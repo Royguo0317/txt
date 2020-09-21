@@ -1,25 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 簡單讀懂閆麗夢博士的科學報告
-`2020-09-21 01:10 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/362794/)
+## 【世界多語言文字版】閆麗夢博士第一份報告
+`2020-09-21 02:53 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/373003/)
 
-美東香草山農場 三票先生
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15214844/e681a961-6441-41b5-bacf-0de5b5bb0ad7.jpg)
 
+[【中文全文翻譯】SARS-CoV-2基因組的不尋常特徵表明其經由實驗室複雜改造的特性非源於自然進化及其可能的合成途徑的描述](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15214028/%E9%97%AB%E4%B8%BD%E6%A2%A6%E5%8D%9A%E5%A3%AB%E7%AC%AC%E4%B8%80%E4%BB%BD%E6%8A%A5%E5%91%8A%E3%80%90%E6%96%B0%E5%9E%8B%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92%E9%9D%9E%E6%BA%90%E4%BA%8E%E8%87%AA%E7%84%B6%E3%80%91%E4%B8%AD%E6%96%87%E5%85%A8%E6%96%87%E7%BF%BB%E8%AF%91.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17013846/23-%E7%AE%80%E5%8D%95%E8%AF%BB%E6%87%82%E9%97%AB%E4%B8%BD%E6%A2%A6%E5%8D%9A%E5%A3%AB%E7%9A%84%E7%A7%91%E5%AD%A6%E6%8A%A5%E5%91%8A.jpg)
+[【英文原文報告】Unusual Features of the SARS-CoV-2 Genome Suggesting Sophisticated Laboratory Modification Rather Than Natural Evolution and Delineation of Its Probable Synthetic Route](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14100542/The_Yan_Report-.pdf)
 
+[【俄語全文翻譯】Необычные особенности генома SARS-CoV-2, предполагающие сложную лабораторную модификацию, а не естественную эволюцию и определение его вероятного синтетического пути](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21024151/The_Yan_Report_%D1%80%D1%83%D1%81%D1%81%D0%BA%D0%B8%D0%B8%CC%86.pdf)
 
-普通人、非專業人士如何讀懂閆麗夢博士的科學報告，看這個比方：天然的魚不能直接吃（蝙蝠病毒不會直接傳染給人），但是魚經過廚師烹飪後就可以食用（病毒經過改造就可以傳染給人）。中共病毒好比一盤泡椒魚，這個魚（舟山蝙蝠病毒，E蛋白100%相似）只有曹務春家裡有，裡面的調料（RBM，4991，增加傳染性，也就是魚更香更可口，更多的人想吃）只有石正麗家裡有，下刀切魚的位置和手法（福林酶切位點，調料能更好的入味）只有石正麗和李放有，泡魚的湯料只有馬力克家裡獨有，泡的時間和火候也只有馬力克掌握（馬力克有個小黑屋）。以上這些信息均由FBI調查核實過，有些他們自己公開炫耀過（公開發表過論文），喜歡吃魚的人（同行）都知道。這些人都是中共的人或者同中共來往非常密切的人，曹務春還是中共軍方的大校。你沒有親眼見到做泡椒魚的場景，但是你說這個泡椒魚是天然的嗎？不是天然的是誰做的？用常識判斷是不是可以得出結論99.999%的可能是中共做的？
+[【中文精簡版】10張圖讓你看懂閆博士最新報告:病毒是中共實驗室人為製造](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16082036/YAN_REPORT_PPT_0-1.pdf)
 
-中共現在一口咬定你們沒有親眼看見我做了這個魚，就死不承認。但是這個沒有用，陪審團不會認可。中共要想擺脫干係，只有打開所有相關實驗室讓國際專家查看完整的工作記錄，不能有任何塗改和遺漏，所有相關人員接受獨立調查，才能說得清楚。就好比一個人被殺了，沒人親眼看見殺人過程，但是殺人的刀是你家的，刀上有你的指紋，下刀的手法也是你慣用的，你和死者也有仇，你只有拿出確鑿證據證明人被殺的時候你不在現場，才能擺脫嫌疑。不過中共做賊心虛，已經派陳薇將軍接管武漢P4實驗室，估計工作記錄和工作現場已經全部銷毀或改變，武漢海鮮市場也已經被拆了，估計中共自證清白的機會都沒有了，也不敢讓國際專家到現場查看，更不敢讓相關人員接受調查，只有等著被清算。相關人員的生命安全是否有保障也未可知。
+[【英文精簡版】10 Pictures Let You Understand Dr. Yan’s Report: The Virus Was Made In A Lab](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16083623/ENGLISH-VERSION.pdf)
 
-閆博士之所以能提供上述論證，是因為她本身是高級廚師（醫學博士，病毒學博士，疫苗研究博士後），也參與過馬力克的相關工作。但是更可貴的是她有正義感和勇氣，能冒著生命危險，拋家舍業來到美國，向全世界揭露中共製造病毒的真相。
+[【日語精簡版】SARS-CoV-2遺伝子の異常な特徴が示すSARS-CoV-2が自然に進化したものではく実験室で丹念に改造されたものであることの証明及びそのSARS-CoV- 2合成プロセスについて](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21024318/YAN_REPORT_JP.pdf)
 
-
-
-更多資訊，歡迎訂閱[美東香草山農場官方推特賬號](https://twitter.com/Mos_Himalaya) ！
-
-[Tweets by Mos\_Himalaya](https://twitter.com/Mos_Himalaya?ref_src=twsrc%5Etfw)
+**By：【秘密翻譯組G-Translators】**
 
 0

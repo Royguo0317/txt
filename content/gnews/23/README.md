@@ -1,43 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中俄從來不是盟友，戰略夥伴關系也不是一直都有！
-`2020-09-21 01:06 GM64` [轉載自GNews](https://gnews.org/zh-hant/372697/)
+## 【世界多語言文字版】9月18日閆博士接受NewsMax肖恩·斯派塞採訪
+`2020-09-21 02:24 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/372958/)
 
-內軍事：快慢機 校對：天藍色獨角色
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21020724/Screen-Shot-2020-09-21-at-4.06.17-pm-3.png)
 
-近期，中共喉舌《環球時報》總編“胡叼盤”發文聲稱：說俄羅斯在中國背後捅刀子的文章，都是中文的！
-其認爲，自中印邊境爆發軍事對峙衝突以來，網上便逐漸有聲音指出，俄方一直心口不一，有意偏袒印度，明顯幫助其對抗中國。
-甚至說普京已經“選邊站”了，但卻選擇站在了印度一邊，而非中國這方！
+[【西班牙語版】Entrevista a la Dra. Li-Meng Yan en Newsmax](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21021032/N091804-Dra-Yan-in-Newsmax-ES.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21021032/N091804-Dra-Yan-in-Newsmax-ES.pdf)
 
-“胡叼盤”聞風立即跑出來幫中共洗地！
-強調這些都是撲風捉影，說炮制此類文章的幕後黑手，應該是對國際關系略知一二，但實際卻是存心煽動，借機在中俄兩國之間制造敵意。
+[【韓語版】 옌 리 멍 박 사 NewsMax 인 터 뷰](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21021236/KR-%E9%97%AB%E5%8D%9A%E5%A3%ABNewsMax%E9%87%87%E8%AE%BF.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21021236/KR-%E9%97%AB%E5%8D%9A%E5%A3%ABNewsMax%E9%87%87%E8%AE%BF.pdf)
 
-中俄之間關系究竟幾何，想必兩國之間必各有一杆心稱！
-事實勝于雄辯！
-不論是沙俄時期，還是前蘇聯，抑或是今日的俄羅斯。
-中俄之間一直是似敵非友，貌合神離之勢。
+[【日語版】NewsMaxの閻博士インタヒュー](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21021345/JP-%E9%97%AB%E5%8D%9A%E5%A3%ABNewsMax%E9%87%87%E8%AE%BF.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21021345/JP-%E9%97%AB%E5%8D%9A%E5%A3%ABNewsMax%E9%87%87%E8%AE%BF.pdf)
 
-中國近代史上被他國，侵占割讓土地面積最多的國家就是俄方！
-原本屬于東三省的“海參崴”在被俄方侵占以後。
-造成了一個奇觀，全國唯一臨海，卻沒有出海口的尴尬省份——吉林省！
+[【法語版】INTERVIEW AVEC DR. YAN SUR NEWSMAX](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21021454/%E3%80%90FR%E3%80%91-%E9%97%AB%E5%8D%9A%E5%A3%ABNewsMax%E9%87%87%E8%AE%BF.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21021454/%E3%80%90FR%E3%80%91-%E9%97%AB%E5%8D%9A%E5%A3%ABNewsMax%E9%87%87%E8%AE%BF.pdf)
 
-如果“海參崴”沒有被俄方侵占，那麽東三省與日本的經貿往來，就不必遠繞至渤海灣，這也是東三省眼下也只有大連算是發展較好，而其他包括省會的沈陽，哈爾濱，長春等都顯得不盡人意，其中很大一部分的原因，在于失去了這一優良的直通日本海的出海口！
 
-在俄方將“海參崴”收入囊中以後，俄方實際上就等于把東三省從海面上合圍了，東三省上面是苦哈哈的俄東方區，下面則是更加苦哈哈的朝鮮，明明是一個沿海省份，卻硬生生的給堵成了內陸省。
 
-普京都已經開始著手准備啓動，將北方四島適當歸還日本的計劃了。
-但卻從未聽聞“海參崴”何時將要重回東三省的消息！
+陸續更新中……
 
-另外，中俄之間不久前簽署了總價值高達4000億美元，爲期30年的能源購買協議。
-在全球石油及天然氣價格暴跌之時，中共卻舍近求遠，以遠高于沙特進價的油價，轉而去高價購買俄羅斯的石油。
-
-中共給出的理由是，由于“一帶一路”項目的需要，幫助俄羅斯把經濟好轉起來，雙方就能馬上達成“經濟聯盟”，中俄兩國的綜合競爭力就能立馬顯現！
-
-俄方近期曾公開表示，中俄之間從來不是盟友，只是中共給錢給利益的時候，會成爲一段時間的戰略夥伴！
-
-言外之意——咱倆就是赤裸裸的利益交換關系！
-別想多了！
-明明自己當了冤大頭，還偏說自己大度的腦殘，全球恐怕再也難尋第二家了！
+**By：【秘密翻譯組G-Translators】**
 
 0
