@@ -1,12 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日政要Twitter播報(中文)09/21期(視頻+ PDF下載)
-`2020-09-21 06:37 GM62` [轉載自GNews](https://gnews.org/zh-hant/373441/)
+## 玫瑰看新聞第二期（視頻版）焦點新聞（8月30日-9月5日）
+`2020-09-21 10:10 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/373874/)
 
-撰稿記者：宠宝贝（⽂宠）、CYC⽂颖、尘凡3、⽯头剪⼑布
+編輯：玫瑰天空
 
-[每日政要推文9-21](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21063038/%E6%AF%8F%E6%97%A5%E6%8E%A8%E6%96%879-21.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21063038/%E6%AF%8F%E6%97%A5%E6%8E%A8%E6%96%879-21.pdf)
+本期焦點新聞摘要：
+
+\*世衛調查新冠源頭先遣小組並未到達武漢就打道回府
+
+\*王毅抵達柏林前德國議員警告本國外長：中國已經喪失了成為值得信賴夥伴的資格
+
+美國司法部曝光重要信函：戴維斯認罪，判刑日期待定
+
+90歲的股神巴菲特向日本五個最大貿易公司投資60億美元
+
+北京抓鋪官媒主播華裔澳籍成蕾
+
+耶魯等多所大學惊現瞞報中俄捐款資金超過15億美元
+
+美國國務院對中共外交官員實施新限制，推進美中外交對等
+
+美國司法部長巴爾稱：中國比俄羅斯伊朗更具侵略性
+
+Rose News 玫瑰新聞第二期字幕版（Subtitle Version） – Himalaya NewZealand 06/09/2020
+
+
 
 
 

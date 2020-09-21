@@ -1,23 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言文字版】9月18日閆博士接受NewsMax肖恩·斯派塞採訪
-`2020-09-21 02:24 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/372958/)
+## 蓬佩奧先生德州浸信會教堂演講中明確中共是真正的世紀污點
+`2020-09-21 06:32 GM101` [轉載自GNews](https://gnews.org/zh-hant/373521/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21020724/Screen-Shot-2020-09-21-at-4.06.17-pm-3.png)
+美東時間9月20號，美國國務卿蓬佩奧先生在德州浸信會教堂發表演講。現年56歲的蓬佩奧出生於[加利福尼亞州奧蘭治](https://en.wikipedia.org/wiki/Orange,_California)，於2017年1月至2018年4月[擔任中央情報局局長](https://en.wikipedia.org/wiki/Director_of_the_Central_Intelligence_Agency)，2018年3月經川普總統提名為國務卿，2018年4月26日通過參議院投票確認蓬佩奧當選並於當天宣誓就職。
 
-[【西班牙語版】Entrevista a la Dra. Li-Meng Yan en Newsmax](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21021032/N091804-Dra-Yan-in-Newsmax-ES.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21021032/N091804-Dra-Yan-in-Newsmax-ES.pdf)
+蓬佩奧表示中國共產黨正在摧毀人類賴以生存的尊嚴，作為中共消滅信仰之戰的一部分，他們想把信仰從公開場所徹底清除；蓬佩奧認為中國共產黨、希特勒、毛澤東毀掉了千萬人的生命，中共的恐怖行徑已經幾十年沒有發生在現代文明社會，其在世界上製造的恐怖是其它政權所不能比擬，中共是真正的世紀污點。
 
-[【韓語版】 옌 리 멍 박 사 NewsMax 인 터 뷰](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21021236/KR-%E9%97%AB%E5%8D%9A%E5%A3%ABNewsMax%E9%87%87%E8%AE%BF.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21021236/KR-%E9%97%AB%E5%8D%9A%E5%A3%ABNewsMax%E9%87%87%E8%AE%BF.pdf)
-
-[【日語版】NewsMaxの閻博士インタヒュー](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21021345/JP-%E9%97%AB%E5%8D%9A%E5%A3%ABNewsMax%E9%87%87%E8%AE%BF.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21021345/JP-%E9%97%AB%E5%8D%9A%E5%A3%ABNewsMax%E9%87%87%E8%AE%BF.pdf)
-
-[【法語版】INTERVIEW AVEC DR. YAN SUR NEWSMAX](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21021454/%E3%80%90FR%E3%80%91-%E9%97%AB%E5%8D%9A%E5%A3%ABNewsMax%E9%87%87%E8%AE%BF.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21021454/%E3%80%90FR%E3%80%91-%E9%97%AB%E5%8D%9A%E5%A3%ABNewsMax%E9%87%87%E8%AE%BF.pdf)
-
-
-
-陸續更新中……
-
-**By：【秘密翻譯組G-Translators】**
+蓬佩奧呼籲面對中共的挑戰，美國人在任何人群聚集的地方都要堅定文明世界的價值觀和信念，這是每一個基督徒的責任，同時也是美國人的意義所在。蓬佩奧對中共的評價非常準確，中共製造的生化病毒席捲全球，對全球經濟及人類生命形成重創，全世界正義力量已面臨和中共惡政的生死之戰。
 
 0
