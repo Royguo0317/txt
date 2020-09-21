@@ -1,99 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## （French+English)美國司法部文件（英文）法語翻譯版（附完整版PDF下載）
-`2020-09-21 06:43 GM62` [轉載自GNews](https://gnews.org/zh-hant/373320/)
+## 美日主導產業鏈重組向中共釋放更強經濟警訊
+`2020-09-21 10:14 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/373871/)
 
-翻譯:【珠丝玛迹】【黄玫瑰法國女郞】【Ai la】【文文-自由法兰西】【Lully】【Lorraine】【Claudio】【Jian】
+作者：美東香草山農場彈指滅共組風雨同舟
 
-校對&整理:【T.J Stonewall】 战友之家 法语翻译小分队 出品
-
-[司法部文件（英文）法文翻譯。pdf](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21050652/DOJ_files_combined_V2.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21050652/DOJ_files_combined_V2.pdf)
-
-# INTRODUCTION
-
-INTRODUCTION
-
-1.At all times relevant to this Information:
-
-1.À tout moment en rapport avec ces informations :
-
-2. From no later than March 2017 to at least in or about January 2018, NICKIE LUM DAVIS agreed with Persons A and B to act as agents of Foreign National A in exchange for millions of dollars in undisclosed wire transfers originating from foreign accounts associated with Foreign National A. DAVIS specifically agreed to facilitate Person B’s lobbying of the President of the United States (“the President”), his Administration, and the United States Department of Justice (“DOJ”) to drop the investigation of Foreign National A for his role in the embezzlement of billions of dollars from 1 Malaysia Development Berhad (“1MDB”), a strategic investment and development company wholly owned by the Government of Malaysia. As part of their efforts, the defendant and Person B willfully failed to disclose to the Administration and DOJ officials that Person B was acting on behalf of Foreign National A. Ultimately, DAVIS and Persons A and B were unsuccessful in their efforts to have the 1MBD investigation dropped.
-
-2. Entre mars 2017 et janvier 2018 ou vers cette période, NICKIE LUM DAVIS a convenu avec l’Individu A et l’Individu B pour agir en tant qu’agent du Ressortissant étranger A en échange de plusieurs millions de dollars, reçus par des virements en provenance des comptes à l’étranger associés au Ressortissant étranger A, dont la nature des virements n’a pas été révélée. DAVIS a spécifiquement accepté de faciliter le lobbying mené par l’Individu B auprès du Président des États-Unis (“le Président”), de son administration et du Département de la justice des États-Unis (“DOJ”) pour qu’ils abandonnent l’enquête visant le Ressortissant étranger A pour son rôle dans le détournement de plusieurs milliards de dollars de l’1 Malaysia Development Berhad (“1MDB”), une société d’investissement et de développement stratégique détenue à 100 % par le gouvernement malaisien. Dans le cadre de leurs efforts, la Partie défenderesse et l’Individu B ont délibérément omis de révéler à l’administration fédérale et aux représentants du Département de la justice que l’Individu B agissait pour le compte du Ressortissant étranger A. Finalement, DAVIS, l’Individu A et l’Individu B n’ont pas réussi à mettre fin à l’enquête sur l’1MDB.
-
-3. During the same approximate period, DAVIS also agreed with Persons A and B to aid their efforts to lobby the Administration and the DOJ to arrange for the removal and return of People’s Republic of China (“PRC”) National A—a dissident of the PRC living in the United States—at the request of Foreign National A and PRC Minister A. Here too, DAVIS and Persons A and B were ultimately unsuccessful.
-
-3. Approximativement au cours de la même période, DAVIS a également convenu avec l’Individu A et l’Individu B pour les aider dans leurs efforts de lobbying auprès de l’administration fédérale et du Département de la justice pour organiser l’expulsion et le renvoi au pays du Ressortissant chinois A – un dissident exilé de la République populaire de Chine (“RPC”) vivant aux États-Unis – à la demande du Ressortissant étranger A et du Ministre chinois A. Ici encore, DAVIS, l’Individu A et l’Individu B ont finalement échoué.
-
-4. To further the interests of Foreign National A, DAVIS aided Person B in facilitating a meeting between Malaysian Prime Minister A and the President in September 2017, in part to allow Malaysian Prime Minister A to raise the resolution of the 1MBD matter with the President.
-
-4. Pour servir les intérêts du Ressortissant étranger A, DAVIS a aidé l’Individu B pour faciliter une rencontre entre le Premier ministre malaisien A et le Président en septembre 2017, en partie pour permettre au Premier ministre malaisien A de soulever la question du dénouement de l’affaire 1MDB auprès du Président.
-
-5. DAVIS, Person A, and Person B also met with PRC Minister A in the PRC and agreed that Person B, assisted by DAVIS, would lobby the Administration to return PRC National A to the PRC. DAVIS, Person A, and Person B, for the express purpose of providing PRC Minister A an opportunity to discuss the removal of PRC National A with high-level United States officials, also agreed to and attempted to facilitate meetings between PRC Minister A and top officials at DOJ and the United States Department of Homeland Security (“DHS”), during PRC Minister A’s visit to the United States in May 2017.
-
-5. DAVIS, l’Individu A et l’Individu B ont également rencontré le Ministre chinois A en Chine et ont convenu que l’Individu B, assistée par DAVIS, ferait pression sur l’administration fédérale pour que le Ressortissant chinois A soit renvoyé en Chine. Afin de donner au Ministre chinois A l’occasion de discuter du renvoi de Ressortissant chinois A avec des hauts fonctionnaires des États-Unis. DAVIS, l’Individu A et l’Individu B sont également d’accord pour tenter de faciliter les rencontres entre le Ministre chinois A et les hauts fonctionnaires du Département de la justice et du Département de la sécurité intérieure (“DHS”) des Etats-Unis, lors de la visite du Ministre chinois A aux États-Unis en mai 2017.
+編輯：文荷
 
 
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21095134/45-%E7%BE%8E%E6%97%A5%E4%B8%BB%E5%AF%BC%E4%BA%A7%E4%B8%9A%E9%93%BE%E9%87%8D%E7%BB%84-%E5%90%91%E4%B8%AD%E5%85%B1%E9%87%8A%E6%94%BE%E6%9B%B4%E5%BC%BA%E7%BB%8F%E6%B5%8E%E8%AD%A6%E8%AE%AF-1.jpg)圖片來源：網絡圖片圖片說明：美、台、日、歐代表出席在台北舉行的“產業鏈重組”論壇。 
+近期，兩則與產業鏈有關的新聞，牽動著全球企業家的神經，也令中共更加坐立難安。一則是9月1日，日本主導的日、印、澳三國產業鏈重組倡議，在相關國家部長參加的視訊會議上得到通過。至此，日本與東盟的產業鏈合作又添新盟友。另一則是9月4日，一場名為“重組供應鏈”論壇在台北召開，論壇由美國在台學會牽頭，日本、歐盟、台灣代表受邀參加。後疫情時代，全球產業鏈採取合縱連橫，顯然是為了打破中共產業鏈的壟斷，加快“去共化”的節奏。在外資撤離、經濟蕭條之下，失業、破產、滯漲的陣痛將隨之而來，被中共裹挾著的中國民眾，面對經濟寒冬的來臨真的準備好了嗎？
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21095144/45-%E7%BE%8E%E6%97%A5%E4%B8%BB%E5%AF%BC%E4%BA%A7%E4%B8%9A%E9%93%BE%E9%87%8D%E7%BB%84-%E5%90%91%E4%B8%AD%E5%85%B1%E9%87%8A%E6%94%BE%E6%9B%B4%E5%BC%BA%E7%BB%8F%E6%B5%8E%E8%AD%A6%E8%AE%AF-2.jpg)圖片來源：網絡圖片圖片說明：四方聯手打造的亞太產業鏈，中國被出局。 
 
-Criminal Prohibitions on Acting as an Agent of a Foreign Principal or Government
 
-Interdictions prévues au Code pénal contre les actes en tant qu’agent au service d’une puissance étrangère ou d’un gouvernement étranger
+**政府主導產業鏈重組意味著大規模的產業鏈轉移潮即將開始**
 
-6. The Foreign Agents Registration Act (“FARA”), 22 U.S.C. 611 et seq., was and is a disclosure statute that requires any person acting in the United States as “an agent of a foreign principal” to register with the Attorney General in connection with certain types of activities, such as political or public relations efforts or lobbying on behalf of the foreign principal. Such registrations are made to the National Security Division’s Foreign Agents Registration Act Unit (“FARA Unit”) within DOJ. It is a crime to knowingly and willfully fail to register, and to make false and misleading statements or material omissions in documents submitted to the FARA Unit under the law’s provisions.
+儘管川普上任以來，一直呼籲企業回流，並推行減稅等刺激政策，但大多數企業仍拖泥帶水持觀望態度。直到全球疫情惡化，才打破了這種僵局。被中國壟斷的醫療物資和原材料嚴重短缺，使世界意識到把雞蛋放在一個籃子裡，還是一個隨時可能破碎的籃子裡是一件多麼危險的事情。今年4月，全球產業鏈兩大巨頭、日、美兩國的政府部門先後宣布對從中國撤出的企業實行補貼，這是國家層面介入產業鏈轉移的開始。
 
-6. La loi sur l’enregistrement des agents étrangers (Le Foreign Agents Registration Act, « FARA »), 22 U.S.C. 611 et seq., prévoit une obligation de divulgation qui exige que toute personne agissant en tant « qu’agent pour le compte d’une puissance étrangère » doive s’enregistrer auprès du Procureur général pour certains types d’activités menées aux États-Unis, telles que les efforts des relations politiques ou publiques, ainsi que le lobbying pour le compte d’une puissance étrangère. Ces enregistrements sont à effectuer auprès du Service de registre des agents étrangères (FARA Unit) de la Direction de sécurité nationale au sein du Département de la justice. Le fait de ne pas s’enregistrer, en toute conscience et délibérément, et de faire des déclarations fausses et trompeuses ou des omissions matérielles dans les documents soumis auprès du Service de registre des agents étrangères est un crime en vertu des dispositions de la loi.
+以美國為主導的全球產業鏈重組在中美脫鉤的背景下加速。疫情使中美貿易談判的成果付諸東流，加上爆料革命對病毒真相的揭露，使美國政府終於下定決心：撤掉駐華大使，關閉中領館，實施清潔網絡行動，圍堵華為5G等高科技公司，清理軍方背景留學人員的清理，制裁侵犯人權的企業……面對中美關係隨時可能脫鉤，曾報僥倖心理並未撤出中國的美資企業感受到了冬天的寒意。根據8月份瑞銀證據實驗室（ USB Evidence Lab）一份調查報告顯示，在被調查的450多名高管中，76%的美國企業高管表示，他們已經或計劃將生產線遷出中國或部分遷出中國。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21095157/45-%E7%BE%8E%E6%97%A5%E4%B8%BB%E5%AF%BC%E4%BA%A7%E4%B8%9A%E9%93%BE%E9%87%8D%E7%BB%84-%E5%90%91%E4%B8%AD%E5%85%B1%E9%87%8A%E6%94%BE%E6%9B%B4%E5%BC%BA%E7%BB%8F%E6%B5%8E%E8%AD%A6%E8%AE%AF-3.jpg)圖片來源：阿波羅新聞網圖片說明：蘋果公司的供應商可成科技今年8月出售給中資企業，外界認為此舉顯示蘋果公司撤離中國的決心
+
+
+以日本為主導的亞洲產業鏈方面，日企撤出中國市場的速度遠超預期。據日媒報導，日本政府在2020年財政中撥出20.7億美元的專項資金用於補貼撤出中國的企業。在今年六月結束的第一輪招標中，政府批准了87家企業，但在7月結束的第二輪申請中，則收到1670份申請，是政府預算的十一倍之多。
+
+由於種種原因，這些撤離的企業並不能全部回流本土，很大一部分搬往了台灣、東南亞、印度。為應對這一趨勢，防止中共利用自由市場的漏洞，在其他國家施加影響，美、日吸取了前期市場為主、分頭行動的教訓，通過政府牽頭、強強聯手，重組全球產業鏈，建立新的遊戲規則，對抗“世界工廠”的壟斷地位。
+
+**產業鏈重組將引發經濟多米諾骨牌效應**
+
+產業鏈轉移戳到了中共的痛點，從中共官媒不停發布的雞湯文可見一般。面對美、日政府主導的兩大供應鏈的撤退和重組，商務部緊急滅火：“中國不存在外資撤離潮”。 “中國仍是各國投資者投資興業的熱土”。並以投入外資仍在增長為論據。排除中共數字造假的因素，從外界披露華爾街今年年初投入中國股市2000億的消息來看，今年外資進入中國大部分都是熱錢、快錢，根本不會投向實體企業，也更本不能扭轉產業鏈撤離的趨勢。
+
+大規模產業鏈轉移潮，第一塊倒下的多米諾骨牌將是中國的民營企業。外資產業鏈下游是大量的民企，僅一家蘋果公司，關聯的民營企業就達200多家。儘管中共聲稱，外資撤離，中國民企將取而代之，成為中國外貿出口的主力。這裡一個重要誤導，是忽視了全球產業鏈重組這個信號。產業鏈重組意味著資源和市場的重組，屆時帶走的將不僅是資金和設備，也將帶走大量訂單和市場。美、日兩大產業鏈將撬動歐洲、亞洲、澳洲、南美加入進來，形成一個去共化的全球市場，到時候就算民企能生產出產品，也賣不出去，因為國際市場會像拒絕華為5G一樣拒絕Made in China的工業產品。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21095240/45-%E7%BE%8E%E6%97%A5%E4%B8%BB%E5%AF%BC%E4%BA%A7%E4%B8%9A%E9%93%BE%E9%87%8D%E7%BB%84-%E5%90%91%E4%B8%AD%E5%85%B1%E9%87%8A%E6%94%BE%E6%9B%B4%E5%BC%BA%E7%BB%8F%E6%B5%8E%E8%AD%A6%E8%AE%AF-4.jpg)圖片來源：美聯社圖片說明：專家估計，中國的失業人口已達30% 
+隨之而來的將是大規模的失業潮，待業潮和降薪潮。曾經的民營企業吸納了大量的農民工和新增就業，民營企業倒閉潮必然催生出失業潮、待業潮和降薪潮。據非官方的媒體和經濟學家計算，如果把農民工（民企主力）和即將進入就業市場的畢業生（靠新增就業吸納）考慮在內，中國失業人口可能已經達1.32億人，大約佔中國城市就業人口的30%。即便能保住崗位，在職人員的降薪也不可避免。
+
+最終，人民幣資產縮水和惡性通漲將波及每一個人。近期，中國股市的瘋狂和人民幣升值，又讓中共韭菜們激動了一把。但了解中國真實現狀的人，恰恰從這兩個現像中看到了危險的信號。股市在沒有任何利好消息的情況下，走出完全脫離實際的行情，正是中國經濟脫實向虛的表現。華爾街的食利本性也注定這些進入中國的熱錢只是快進快出，不會給中國實體經濟帶來任何實質利益，中國韭菜和華爾街比貪婪，還是太嫩了，中共放任熱錢湧入，也是藉機給中國的經濟再打一次雞血，好維持自己的擀麵杖。人民幣升值，也不是外匯市場看好中國經濟，對人民幣需求增加的結果。這一點從央行加強外匯管控、中國外匯儲備不增反降中可見一斑。人民幣升值可以讓人民幣在國際市場上購買力增加，但也將進一步擠占外貿企業出口本就很薄的利潤空間，能夠自由操控匯率的中共國，不會不明白這把雙刃劍的利弊。之所以此時允許人民幣升值，一來是中共已經看到了世界市場對中共的聯合絞殺，放棄了外貿這架馬車；二來是乘機囤積物資，為內循環和通脹的到來做準備。在貨幣外升內貶的規律下，這場資本盛宴過後，留給老百姓的將是資產泡沫化、企業跑路，通貨膨脹的惡果。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21095306/45-%E7%BE%8E%E6%97%A5%E4%B8%BB%E5%AF%BC%E4%BA%A7%E4%B8%9A%E9%93%BE%E9%87%8D%E7%BB%84-%E5%90%91%E4%B8%AD%E5%85%B1%E9%87%8A%E6%94%BE%E6%9B%B4%E5%BC%BA%E7%BB%8F%E6%B5%8E%E8%AD%A6%E8%AE%AF-5.jpg)圖片來源： 網絡圖片說明：房地產泡沫破裂，更多“鬼城”將出現。 
+作為21世紀繼續存在的人類最為邪惡的政權，中共依然會以保證政權的延續性作為最重要的事情來做。國進民退、計劃經濟甚至文革2.0都會如期而至。許多還在做大國春夢的韭菜們不願意相信21世紀的中共會重蹈當年老毛的覆轍，但看看內地一座接一座被廢棄的鬼城，沿海地區人去樓空的廠房，再看看伊朗、委內瑞拉、北朝鮮的現在，中國的未來又有何不同？
 
 
 
-7. The purpose of FARA is to prevent covert influence by foreign principals. Proper registration under the statute allows the U.S. government and the American people to evaluate the statements and activities of individuals who are serving as agents of foreign principals. Among other things, a FARA registration reveals the identity of the foreign principal on whose behalf a registrant performs services, the type of services the registrant provides the foreign principal, the source and amount of compensation the registrant receives from the foreign principal, and political campaign contributions made by the registrant while the registrant was acting as an agent of the foreign principal.
+更多資訊，歡迎訂閱[美東香草山農場官方推特賬號](https://twitter.com/Mos_Himalaya) ！
 
-7. L’objectif de la loi FARA est d’empêcher les puissances étrangères de mener la campagne d’influence politique dans la clandestinité. L’enregistrement conformément à la loi permet au gouvernement américain et au peuple américain de mesurer les propos et les actes des personnes qui sont au service des puissances étrangères. Notamment, l’enregistrement sous la loi FARA permet révéler à quelle puissance étrangère l’agent enregistré est entrain de rendre service, la nature du service fourni, ainsi que le montant et la provenance du fonds que l’agent enregistré ait reçu de son mandant comme paiement. Cela révèle également si des dons aux campagnes électoraux ont été effectués par l’agent enregistré alors qu’elle agissait pour le compte d’une puissance étrangère.
-
-RELEVANT PARTIES & ENTITIES
-
-PARTIES ET ENTITÉS CONCERNÉES
-
-
-
-8. The defendant, NICKIE MALI LUM DAVIS, was and is a United States citizen, businesswoman, and consultant with personal and business relationships with Persons A and B.
-
-8. La partie défenderesse, NICKIE MALI LUM DAVIS, était et est toujours une citoyenne américaine, une femme d’affaires et une consultante qui entretient des relations privées et professionnelles avec l’Individu A et l’Individu B.
-
-9. Person A was a United States citizen, businessperson, and entertainer with international ties, including ties to Foreign National A.
-
-9. L’Individu A était un citoyen américain, un homme d’affaires et un artiste ayant des liens internationaux, y compris des liens avec le Ressortissant étranger A.
-
-10. Person B served as Deputy Finance Chair of a national political committee from approximately April 2016 to April 2018. In that capacity, Person B raised large political contributions from donors, organized political fundraising events, and coordinated fundraising strategies with the campaign of a candidate for the Office of the President of the United States during the 2016 election cycle. After the election, Person B continued in his role as Deputy Finance Chair and maintained access to, and contact with, high-ranking officials in the Administration of the President, including the President. Over the same period, Person B owned and operated several domestic and international businesses and worked as a political consultant.
-
-10. L’Individu B a occupé le poste du vice-président des finances du comité national d’un parti politique entre avril 2016 et avril 2018 environ. À ce titre, l’Individu B a recueilli des financements électoraux considérables auprès de donateurs, organisé des événements de collecte de fonds politiques et coordonné les stratégies de collecte de fonds avec la campagne d’un candidat à l’élection présidentielle aux États-Unis en 2016. Après l’élection, l’Individu B est resté à son poste de vice-président des finances et a maintenu l’accès ainsi que le contact avec les hauts fonctionnaires au sein de l’administration du Président, y compris le Président lui-même. Au cours de la même période, l’Individu B a été propriétaire et dirigeant de plusieurs entreprises nationales et internationales, il a également travaillé comme consultant politique.
-
-11. Foreign National A was a wealthy businessperson living in East Asia who has been charged separately for his role in orchestrating and executing a multibillion-dollar embezzlement scheme from 1MBD.
-
-11. Le Ressortissant étranger A était un riche homme d’affaires vivant en Asie de l’Est qui est d’ailleurs sous l’accusation pour son rôle dans la planification et l’exécution du détournement de fonds de plusieurs milliards de dollars dans l’affaire 1MDB.
-
-12. Company A was a limited liability company formed by Person A to receive wire transfers from Foreign National A to pay Person B for his lobbying efforts.
-
-12. La société A était une société à responsabilité limitée créée par l’Individu A dans l’objectif de recevoir des virements en provenance du Ressortissant étranger A pour ensuite payer l’Individu B pour son travail de lobbying.
-
-13. George Higginbotham was an associate of Person A and was a licensed attorney employed by DOJ. On November 20, 2019, Higginbotham pleaded guilty in the United States District Court for the District of Columbia to a one-count Information charging conspiracy to make false statements to a financial institution.
-
-13. George Higginbotham était un collaborateur de l’Individu A et était un avocat agréé employé par le Département de la justice. Le 20 novembre 2019, Higginbotham a plaidé coupable devant la cour fédérale du district de Columbia à un chef d’accusation de complot pour faire de fausses déclarations à une institution financière.
-
-14. Law Firm A was a law firm operated by Person B’s spouse, Person C.
-
-14. Le Cabinet d’avocats A était un cabinet dirigé par la conjointe de l’Individu B et l’Individu C.
-
-15. PRC National A was a dissident of the PRC, living in the United States on a temporary visa. The government of the PRC, including PRC Minister A and the President of the PRC, were seeking the removal of PRC National A from the United States back to the PRC.
-
-15. Le Ressortissant chinois A était un dissident exilé de la République Populaire de Chine, vivant aux États-Unis avec un visa temporaire. Le gouvernement chinois, y compris le Ministre chinois A et le Président chinois, cherchaient à faire renvoyer le Ressortissant chinois A des États-Unis vers la République Populaire de Chine.
-
-16. In late 2016 through 2019, DOJ was actively investigating transactions of Foreign National A allegedly associated with laundered proceeds of the 1MDB embezzlement scheme. In July 2016, DOJ filed multiple civil forfeiture complaints seeking the forfeiture of millions of dollars in assets allegedly purchased with 1MDB laundered proceeds. On November 1, 2018, DOJ filed a criminal indictment charging Foreign National A and others with conspiring to launder billions of dollars embezzled from 1MDB and conspiring to violate the Foreign Corrupt Practices Act by paying bribes to various Malaysian and Abu Dhabi officials.
-
-16. De la fin de 2016 à 2019, le Département de la justice enquêtait activement sur les opérations financières menées par le Ressortissant étranger A, ces opérations sont soupçonnées d’être en lien avec le blanchiment d’argent dans l’affaire de détournement de fonds d’1MDB. En juillet 2016, le Département de la justice a déposé plusieurs demandes de saisie en procédure civile visant plusieurs millions de dollars d’actifs qui sont supposés d’être acquis avec de l’argent blanchi dans l’affaire 1MDB. Le 1er novembre 2018, le Département de la justice a déposé un acte d’accusation en procédure pénale contre le Ressortissant étranger A et d’autres individus pour avoir participer aux complots, dont le blanchiment des milliards de dollars détournés dans l’affaire 1MDB et pour infraction de la Loi FCPA (contre la corruption d’agents publics à l’étranger), notamment par rapport aux pots-de-vin payés à plusieurs fonctionnaires issus du gouvernement malaisien et d’Abou Dhabi.
-
-**Veuillez télécharger le fichier PDF pour le document complet.****（完整文件请下载****PDF****）**
-
-
+[Tweets by Mos\_Himalaya](https://twitter.com/Mos_Himalaya?ref_src=twsrc%5Etfw)
 
 0

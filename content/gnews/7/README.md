@@ -1,21 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 國慶後實行戰時動員 中共要抓狀丁
-`2020-09-21 07:41 GM62` [轉載自GNews](https://gnews.org/zh-hant/373549/)
+## （German+中文）郭文貴先生披露17年新聞發佈會前燒掉的是中共絕密13579文件 中共計劃利用生化武器統治全球
+`2020-09-21 10:53 GM62` [轉載自GNews](https://gnews.org/zh-hant/374051/)
 
-作者：小雨
+德文標題 Herr Guo Wengui gab bekannt,dass er vor der Pressekonferenz 2017 ein streng geheimes Dokument 13579 der KPCh verbrannte. Die KPCh hat vor, biologische und chemische Waffen einzusetzen, um die Welt zu herrschen
 
-9月19日在「直通北京」微信公眾號上發佈這樣一則消息,題目是「強制執行! 國慶後祖國戰時兵員動員,下列人員必須服役! 違者視同違法”。 文中指出戰時兵員動員的人員必須立刻到位。 除了不准現役軍人退役,休假及探親軍人立即歸隊;預備役人員和國防生隨時準備應召進入服役外;還要徵召36-45周歲男性公民服現役,對於服役的時間,由國務院和中央軍事委員會決定。 消息強調違者視同違法。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21073444/23121.jpg)
-網民對此反應強烈。 網民調侃到 “城管是否需要報備?” “抓18-45周歲的失業人口,既可以消滅社會不穩定因素,同時又可以把這些不穩定因素化為維穩力量去對抗另外一些沒被抓的習時代黑五類以及層出不窮的維權事件。” “老實說,真要開戰。 與其說抓壯丁去打仗,倒不如說抓壯丁去搞後勤。 現代戰爭不是人多才能贏的。 “更有網民質疑,”為什麼要應召36-45周歲的老韭菜,體能不行,又不會玩武器,當炮灰都不夠格。 “還有網民表示”太好了,有生之年終於看到中共國滅亡,新民主中國成立! ”
+原文校對：warroom字幕翻译组 德語翻譯：大脚印 德語校對：It’s happening
 
-由此看到很多民眾己經看清了中共的實質,不會甘心為共產黨賣命,老老實實地做中共的炮灰。 我們有理由預見即使中共開戰,多數老韭菜們一定會毫無顧慮地放下武器投降,爭相做帶路黨。 無論中共發動怎樣的戰爭,最終只會反噬自己。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21073706/231232.jpg)
-這個”直通北京”微信公眾號在20日已發現被封停。 按照中共的一貫操作推測,國慶後戰時兵員強制動員的消息應該屬實。
+視頻簡介
+班農在戰鬥室訪問郭文贵先生。其中提到郭先生于2017年在华盛顿举办的新闻发布之会前烧掉了中共绝密的13579文件。该文件涉及中共有计划地制造生化武器及如何利用P3,P4实验室制造生化武器。当时郭先生就对美国和西方世界提出了警告。
 
-資源連結
-
-[https://pincong.rocks/question/31241](https://pincong.rocks/question/31241)
+Bannon hat Herrn Guo Wengui im ​​Warroom interviewt. Es wurde erwähnt, dass Herr Guo das streng geheime Dokument 13579 der KPCh vor einer Pressekonferenz in Washington im Jahr 2017 verbrannt hat. Dieses Dokument befasste sich mit der geplanten Produktion biologischer und chemischer Waffen durch die KPCh und der Verwendung von P3- und P4-Labors zur Herstellung biologischer und chemischer Waffen. Zu dieser Zeit hat Herr Guo schon die Vereinigten Staaten und die westliche Welt gewarnt.
 
 0
