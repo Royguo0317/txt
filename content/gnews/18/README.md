@@ -1,27 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德國終與中共脫鉤，轉向自由民主國家市場
-`2020-09-21 10:08 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/373855/)
+## （German+中文）郭文貴先生披露17年新聞發佈會前燒掉的是中共絕密13579文件 中共計劃利用生化武器統治全球
+`2020-09-21 10:53 GM62` [轉載自GNews](https://gnews.org/zh-hant/374051/)
 
-喜馬拉雅聯盟加拿大農場 春季
+德文標題 Herr Guo Wengui gab bekannt,dass er vor der Pressekonferenz 2017 ein streng geheimes Dokument 13579 der KPCh verbrannte. Die KPCh hat vor, biologische und chemische Waffen einzusetzen, um die Welt zu herrschen
 
-據Business Time 9月20日的報導， 德國總理默克爾發布了新的關於中共國和與德國的外交政策文件，承諾將與亞洲民主國家開展更多貿易活動。
+原文校對：warroom字幕翻译组 德語翻譯：大脚印 德語校對：It’s happening
 
-德國對中共長達數十年的痴迷，用“通過貿易改變”來概括是再確切不過了。為了恪守這一準則，德國一直自欺欺人地認為中共的威權主義和共產主義政治將能夠通過更廣泛的經濟聯繫以某種方式演變為自由，開放和更加民主的體系。德國以中共國為中心的政策，使得中共國目前佔德國年度貿易總額的近50％。
+視頻簡介
+班農在戰鬥室訪問郭文贵先生。其中提到郭先生于2017年在华盛顿举办的新闻发布之会前烧掉了中共绝密的13579文件。该文件涉及中共有计划地制造生化武器及如何利用P3,P4实验室制造生化武器。当时郭先生就对美国和西方世界提出了警告。
 
-但是中共近年來的不惜一切代價推動中共成為世界領導者的努力，證明了這種不切實際的假設是荒謬的。從此，德國就已經看到了它在中共推動中共霸權的失敗結局。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21100504/170921075751-angela-merkel-unhappy-german-flag-780x439-1-1.jpg)
-這一新現實促使總理默克爾在今年1月宣布德國將“重新審視地圖”。她說：“作為歐洲人，我們需要認真思考在中國面前如何定位自己”。
-
-這種重新定位導致德國於9月2日發布了針對印度-太平洋的官方外交政策文件，該文件稱德國將不支持“強者法律”，並將“避免單方面依賴”。這兩種說法都是對中國的間接引用。
-
-該文件稱：“隨著亞洲的崛起，政治和經濟重心越來越轉移到印度-太平洋地區，該地區將成為塑造21世紀國際秩序的關鍵”。該文件通過了涵蓋印度洋-太平洋的新政策準則，並強烈強調了法治和促進該地區開放市場的重要性。這標誌著德國正式承認印度-太平洋地區在經濟和地緣政治上的重要性，並修改其行動和政策以確保更大的參與度。
-
-德國還對中國的侵略行為感到擔憂，並再次重申了它對遵循基於規則的國際秩序的國家的重視。德國外交部長海克斯•馬斯表示：“我們希望幫助塑造這一秩序，使它建立在規則和國際合作的基礎上，而不是建立在強者的法律之上”。
-
-幻想破滅的德國不再強調與中共的緊密經濟聯繫，離開中國的深刻轉變將立即影響涵蓋其經濟夥伴關係，人權和海上安全等諸多領域。德國更希望與更加尊重法治的自由民主國家開展業務，例如日本，韓國和東盟包括文萊達魯薩蘭國，柬埔寨，印度尼西亞，老撾，馬來西亞，緬甸，菲律賓，新加坡，泰國和越南。
-
-**評** ：這標誌著德國與中共國在經濟貿易上的脫鉤。我們看到，最近結束的中歐峰會以失敗告終，中共的戰狼外交在歐洲完敗。長久以來，德國一直主導著目前有著28個成員國的歐盟政治和經濟走向，它在歐盟的影響力是深遠的。遺憾的是德國在歷史上都沒有把握好歷史的機遇，但願這一次，德國能夠引領歐盟回歸傳統和保守，捍衛人類來之不易的天賦的自由民主權力，加入全球滅共的歷史洪流之中。
+Bannon hat Herrn Guo Wengui im ​​Warroom interviewt. Es wurde erwähnt, dass Herr Guo das streng geheime Dokument 13579 der KPCh vor einer Pressekonferenz in Washington im Jahr 2017 verbrannt hat. Dieses Dokument befasste sich mit der geplanten Produktion biologischer und chemischer Waffen durch die KPCh und der Verwendung von P3- und P4-Labors zur Herstellung biologischer und chemischer Waffen. Zu dieser Zeit hat Herr Guo schon die Vereinigten Staaten und die westliche Welt gewarnt.
 
 0

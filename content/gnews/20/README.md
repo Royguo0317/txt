@@ -1,58 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP滑向深渊——中國將失去澳洲一太空測控站使用權
-`2020-09-21 10:21 GM77` [轉載自GNews](https://gnews.org/zh-hant/373897/)
+## 【世界多語言圖文】2020/09/14 CCP病毒每日疫情直播簡報
+`2020-09-21 10:41 GM62` [轉載自GNews](https://gnews.org/zh-hant/374024/)
 
-整撰：文錦
-審核：WENJUN
+戰友之家圖文摘要及小語種組
 
-路透悉尼9月21日 – 瑞典空間公司(SSC)表示，當前與中國的澳洲測控站合約到期後，將不會續簽新約支援中共客戶。
+[English\_0914\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21102831/English_0914_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21102831/English_0914_CCP_Virus_Updates.pdf)
 
-SSC這項決定表明，一旦公司與中國的合約到期，中共將無法再使用西澳州一座戰略性太空測控站，這將影響中共正在擴大的太空探索及在太平洋地區的遙測能力。但SSC暫未透露租約何時到期。
+[German\_0914\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21102840/German_0914_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21102840/German_0914_CCP_Virus_Updates.pdf)
 
-“基於整體地緣政治情勢造成的中共市場復雜性，SSC決定未來幾年主要聚焦於其他市場，”SSC在答覆詢問的電子郵件中表示。
+[Japanese\_0914\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21102845/Japanese_0914_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21102845/Japanese_0914_CCP_Virus_Updates.pdf)
 
-**近年來中共加強太空戰略擴張**
-
-這個測控站隸屬於SSC子公司–SSC Space Australia。澳洲政府和中共外交部均沒有立即對此事做出表態。
-
-SSC至少從2011年起就與中國訂立合約，允許中國使用這座地面站的衛星天線。這座測控站緊鄰SSC的另一座衛星站，該衛星站主要由美國及美國航空暨太空總署(NASA)等美國機構使用。
-
-地面站是航天計劃的關鍵組成部分，因為它們創建與宇宙飛船的通信聯絡。各個衛星地面站擁有不同的能力，可用於協調民用-軍用全球導航衛星系統(GNSS)使用的衛星。GNSS包括中國的北鬥、俄羅斯的格洛納斯系統(GLONASS)，歐盟的伽利略系統和美國的GDS。
-
-中國的航天計劃最近幾年增加對海外地面站的使用，跟隨其太空探索和計劃的擴張步伐。
-
-“總的來說，不管妳在哪裏設立一個GNSS監控地面站，都會提升對那個地區的定位精確度，”新南威爾士大學電子工程學院的高級研究助理Joon Wayn Cheong說。
-
-SSC稱，中國上次使用澳洲柏斯往北約350公裏處的Yatharagga衛星站是在2013年6月，用於支持三名宇航員參加的神舟十號任務，此次任務完成了一系列空間對接測試。
-
-SSC表示，當前合同支持中國載人航天飛行計劃中與遙測、跟蹤和控制服務有關的科學航天任務。
-
-**中共作惡多端必出局**
-
-英國諾森比亞大學的太空法和政策教授Christopher Newman說，中國希望切斷對GPS的依賴，作為擴大其全球影響的整體計劃的一部分。
-
-“在發生軍事沖突的情況下，它們可能無法使用GPS。獨立的安全系統對中國人民解放軍的定位目標、武器和導航能力來說至關重要，”Newman對路透表示。
-
-面對中共在科技和太空領域的日益擴張，美國制定一系列制裁中共的相關企業，從增加關稅、禁售芯片到逐漸失去和全世界公司之間的合同。
-
-澳洲與美國是關系牢固的盟友，兩國在太空研究和空間計劃方面合作密切。隨著病毒真相的進一步揭露，美國倡議同等價值觀的國家站在一起聯合滅共的浪潮愈演愈烈，澳洲等很多國家和美國站在一起對抗中共。
-
-中共的企業開始陷入沒芯、沒情報、沒服務的境遇，太空領域也不例外。半年時間內，公開的中共衛星發射就有4次失敗記錄。
-
-3月17日，長征七號甲火箭首飛失利，
-
-4月9日，我國在西昌衛星發射中心用長征三號乙運載火箭發射印度尼西亞PALAPA-N1衛星失利，以及快舟11號首飛失利。
-
-9月12，中共在酒泉衛星發射中心發射“吉林一號”衛星，但火箭飛行出現異常，衛星墜毀，發射失敗。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21101550/5-23.png)
-
-由於缺乏芯片及相關核心部件，加上海外地面監控站的遙測、跟蹤和控制服務也逐漸結束合約，未來中共的衛星發射失敗應該會是家常便飯吧。畢竟衛星升空不是靠吹，靠的是實力！
-
-參考鏈接：
-[https://www.reuters.com/article/china-australia-space-tracing-station-09-idCNKCS26C0SD](https://www.reuters.com/article/china-australia-space-tracing-station-09-idCNKCS26C0SD)
-[https://gnews.org/zh-hans/351373/](https://gnews.org/zh-hans/351373/)
+[Spanish\_0914\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21102836/Spanish-listo-Spanish_0914_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21102836/Spanish-listo-Spanish_0914_CCP_Virus_Updates.pdf)
 
 0

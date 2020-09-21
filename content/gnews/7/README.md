@@ -1,16 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## （German+中文）郭文貴先生披露17年新聞發佈會前燒掉的是中共絕密13579文件 中共計劃利用生化武器統治全球
-`2020-09-21 10:53 GM62` [轉載自GNews](https://gnews.org/zh-hant/374051/)
+## 突發！突發！日本議會剛剛決定：登陸尖釣魚島，修建漁業設施！
+`2020-09-21 12:39 GM06` [轉載自GNews](https://gnews.org/zh-hant/374925/)
 
-德文標題 Herr Guo Wengui gab bekannt,dass er vor der Pressekonferenz 2017 ein streng geheimes Dokument 13579 der KPCh verbrannte. Die KPCh hat vor, biologische und chemische Waffen einzusetzen, um die Welt zu herrschen
+編輯：雅典娜之矛
 
-原文校對：warroom字幕翻译组 德語翻譯：大脚印 德語校對：It’s happening
+最新圖發消息來自日本媒體；日本議會決定：釣魚島Noboru Senkaku Islands，維修和建造漁業設施。
 
-視頻簡介
-班農在戰鬥室訪問郭文贵先生。其中提到郭先生于2017年在华盛顿举办的新闻发布之会前烧掉了中共绝密的13579文件。该文件涉及中共有计划地制造生化武器及如何利用P3,P4实验室制造生化武器。当时郭先生就对美国和西方世界提出了警告。
+ 日本八重山每日新聞報道：2020年9月18日，石垣市議會以19票贊成、1票反對的優勢票數通過了壹項意見書：決定登陸尖閣諸島（釣魚島及其附屬島嶼），在島上修建漁業設施。據悉，壹票反對是由日本共產黨人井上美智子投出的。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21122030/54.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21122042/544.png)
+石閣著陸決議/書面意見通過石垣市議會
 
-Bannon hat Herrn Guo Wengui im ​​Warroom interviewt. Es wurde erwähnt, dass Herr Guo das streng geheime Dokument 13579 der KPCh vor einer Pressekonferenz in Washington im Jahr 2017 verbrannt hat. Dieses Dokument befasste sich mit der geplanten Produktion biologischer und chemischer Waffen durch die KPCh und der Verwendung von P3- und P4-Labors zur Herstellung biologischer und chemischer Waffen. Zu dieser Zeit hat Herr Guo schon die Vereinigten Staaten und die westliche Welt gewarnt.
+呼籲發展漁業支持設施壹致同意繼續VERA尋求對實地調查的支持
+
+　9月，石垣市議會常任理事長（大田秀幸董事長）將在18日的最後壹次主要會議上進行當地檢查和調查，以開發有助於在尖閣諸島周圍安全運營的捕魚支持設施。・意見書委員要求支持檢查的兩項提議獲得多數通過。所有人都以19比1贊成。壹致通過了壹項要求日本國立天文臺繼續進行VERA項目的意見草案。派遣國會議員並直接向有關部門和機構發出呼籲。
+
+　決議和書面意見指出：“尖閣諸島是我們前輩繼承的重要財產。迫切需要研究自然環境，生態系統和文化財產，以便將其負責任地傳給後代。 “問題”“有必要進行實地調查，以維護氣象和海洋觀測基地，燈塔，無線中繼設施，船池等，以便在周圍海域安全，安心地進行捕魚。”吸引人的需要。兩者都是長山家康先生的建議。
+
+　日本共產黨的井上道子（Michiko Inoue）對投票提出異議，長濱伸夫（Nobuo Nagahama）離開了。
+
+　井上先生堅持說：“鄰國承認尖閣諸島是日本的領土，我希望漁民能安心地釣魚，但此時的決議將脫離和平。各國應對此進行堅定地討論。”
+
+　贊成的辯論的前田聰俊雄說：“尖閣屬於我們的城市。我同意這樣的想法，壹旦發生事故，我們應在美國軍事基地或自衛隊基地進入。”
+
+　VERA項目意見要求增加預算和長期運營，因為政府預算已減半，並且從明年開始的運營處於危險之中。據說石垣島除 了研究以外，還為旅遊和教育做出了貢獻。長山先生動議提交。
+
+　此外，壹致通過了壹項書面意見，要求政府確保地方稅收來源免受新的冠狀病毒感染的影響而導致地方財政迅速惡化。Tohban Yoshiyuki先生的提案。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21122119/5444.png)
+日本新首相看來新官上任三把火好點燃了！
+
+這個新聞在新浪微博被轉發引發網友有趣留言：“胡錫進沖啊！”…到處都是我們的戰友力量！
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21122315/55.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21122235/5666.png)
+
+
+
+
+援引:https://mp.weixin.qq.com/s/32\_J532y3RtLACwXReIltw
 
 0
