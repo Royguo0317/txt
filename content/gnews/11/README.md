@@ -1,48 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統針對伊朗核導彈、彈道式導彈和常規武器新的限制聲明
-`2020-09-21 23:56 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/375750/)
+## 【香港要聞】【戰友點評】12位勇士被拘29天有感
+`2020-09-22 03:32 GM42` [轉載自GNews](https://gnews.org/zh-hant/376169/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21231908/WH-20200921-Iran-photo169.png)
-**Statement by the President Regarding New Restrictions on Iran’s Nuclear, Ballistic Missile, and Conventional Weapons Pursuits**
+製作單位：戰友之家-粵語組
+蒐集：點蒼山
+評語：點蒼山
+覆核：文粵
 
-**川普總統針對伊朗核導彈、彈道式導彈和常規武器新的限制聲明**
+自8.23至今12位香港青年被關押在深圳已超過29天，沒有任何人的家屬見過或聯繫過當事人，所有的基本人權保障訴求均被敷衍或擱置，日前香港眾新聞報道一篇對被扣押人士廖子文哥哥的採訪。
+ 文中哥哥講述自家作為普通港人在這次反送中及國安法之後因弟弟子文的出走被扣押所遭受的痛苦和無助。弟弟子文從小愛打抱不平，富有正義感，因雙親離異和哥哥、父親生活，與哥哥感情親近，子文因抗議送中法和國安法被黑警抓過，成績從全班前十跌至末尾，此次出走被大陸海警扣押近29日，仍然無任何音訊。家人曾多次致電入境處和駐粵辦查詢子文情況均未得到實質性回覆和幫助，父親承受巨大壓力每天喝酒，對著舊照片落淚，他則盼望大陸能讓弟弟子文打電話報個平安。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22032338/%E8%9E%A2%E5%B9%95%E6%88%AA%E5%9C%96-2020-09-22-%E4%B8%8A%E5%8D%883.22.56.png)圖片：眾新聞![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22032449/%E6%9C%B1%E5%87%B1%E5%BB%B8-%E9%9D%9E%E6%B3%95%E8%B6%8A%E5%A2%83-James-TO-Kun-sun-20200912205205_1520_large.jpg)圖片：眾新聞
+戰友點評：【點蒼山】
+ 反送中運動影響的是香港幾代人的生活和未來，尤其是年輕人，在抗爭專制和爭取自由的行動中從古到今年輕人都表現出他們最強的激情和力量，香港青年則是中華民族中唯一不屈服於強權堅持抗爭一年之久的年輕族群，從他們身上我們看到的是一個個熱愛自由、民主、捍衛人權的靈魂，而在中共眼中他們是眼中釘，中共對於年輕人的殘酷鎮壓從六四到香港，對年輕人的洗腦從內蒙到美國覆蓋全球，偏偏在香港遇到年輕人的激烈反抗。
 
-FOREIGN POLICY
+記得，去年反送中一位年輕人說過的一席話大意是：我們今天站出來，是不想我們的下一代明天受苦像我們一樣⋯⋯笔者想，子文对自己的未来一定充满了失望，对香港未来的失望，他抗争了，付出了，所以决定离开。的确，現在所有人可以苟且和屈服在中共的淫威下，得一餐飽飯，累死累活供一套住房，但是香港民主、法治的根基被侵蝕被大陸化，这就不再是自己的家園，香港年輕人為捍衛家園付出了太多太多血淚。
 
-對外政策
+父親憂傷的眼淚，兄長的無助的祈祷，所有12位當事人的家庭都遭受著巨大的恐懼與折磨，這是中共統治的本質，利用暴力和邪惡製造恐懼，赶尽杀绝有骨氣的人，警示天下。在香港已经罔顾仅剩下的一点口头存在的法治，傀儡政府每天在“皇帝新衣”一般表演！在21世紀世界文明发展到民主、法治社会，中共依然使用这些暴力、谎言统治国家已经被越来越多的国家认清与割席。
 
-Issued on: September 21, 2020
+以上觀點僅代表筆者本人
+新聞來源：眾新聞
 
-發佈時間：2020年9月21日
-
-Today, I am taking new actions to restrict Iran’s nuclear, ballistic missile, and conventional weapons pursuits.  My Administration will never allow Iran to have a nuclear weapon, nor will we allow Iran to endanger the rest of the world with a fresh supply of ballistic missiles and conventional arms.  To ensure this cannot happen, I am issuing a new Executive Order, restoring United Nations (UN) sanctions on Iran, and imposing new sanctions and export controls on more than two dozen entities and individuals that support Iran’s nuclear, missile, and conventional arms-related activities.
-
-今天我採取新的措施來限制伊朗的核導彈、彈道式導彈和常規武器。本屆政府永遠不會允許伊朗擁有核武器，也不會允許伊朗通過提供新型彈道導彈和常規武器來威脅世界。為了確保這種情況不會發生，我現在發佈一項新的行政命令，重啓聯合國對伊朗的制裁，並對涉及支助伊朗核彈、導彈和常規武器相關活動的超過24個實體和個人實施新的強制性制裁和出口管制。
-
-The Executive Order I am issuing today blocks the property, and interests in property, in the United States of those who contribute to the supply, sale, or transfer of conventional arms to or from Iran, as well as those who provide technical training, financial support and services, and other assistance related
-
-to these arms.  This Executive Order is critical to enforcing the UN arms embargo on Iran.  The order will greatly diminish the Iranian regime’s capacity to export arms to terrorists and dangerous actors throughout the region, as well as its ability to acquire weapons to build up its own forces.
-
-這條行政命令對那些致力為伊朗進出口常規武器的供應、出售或轉讓的人員，以及提供與這些武器有關的技術培訓、財務贊助和提供服務等其他的援助的人員和機構，凍結其在美國境內的財產和以及財產所得的利益。此外，該項行政命令對執行聯合國對伊朗的武器禁運起至關重要的作用。同時，此行政管理命令使伊朗政府對該地區的恐怖組織和恐怖活動提供武器裝備的能力大幅消減，以及對其獲取武器增強其武裝力量能力的制約。
-
-Today, my Administration is also imposing new sanctions and export control measures on 27 entities and individuals connected to Iran’s proliferation networks.  These actions target the Atomic Energy Organization of Iran for its role in Iran’s nuclear escalation, the Iranian missile organization Shahid Hemmat Industrial Group for facilitating ballistic missile development, and two Iranian entities for their involvement in the transfer and acquisition of conventional arms.
-
-今天，本屆政府還對與伊朗擴散網絡有關的27個實體和個人實施了新的制裁和出口管制措施。這些行動針對的目標是在伊朗核升級中起作用的伊朗原子能組織，為彈道式導彈的發展提供便利的伊朗導彈組織沙希德·赫馬特（Shahid Hemmat）工業集團，以及兩個參與了常規武器的轉讓和獲取的伊朗實體。
-
-The United States has now restored UN sanctions on Iran.  The Iranian regime has repeatedly lied about its secret nuclear weapons archive and denied access to international inspectors, further exposing the deep flaws of the last administration’s failed nuclear deal from which I withdrew the United States.  The world cannot afford to sit idly by as Iran builds a nuclear weapon.  My Administration is restoring these sanctions as part of our efforts to ensure that never happens.
-
-現在美國恢復聯合國對伊朗的制裁。伊朗政權一而再再而三地在其秘密核武器檔案上撒謊，並拒絕國際檢查人員視察，伊朗政府的舉動進一步暴露了美國上屆政府所簽署的嚴重錯誤並失敗的核協議，對此我已撤銷。在伊朗製造核武器同時，世界各國不能袖手旁觀。美國的政府正在重啓這些制裁，我們努力確保這種情況永遠不會發生。
-
-My actions today send a clear message to the Iranian regime and those in the international community who refuse to stand up to Iran.  The United States will not allow the Iranian regime to further advance capabilities to directly threaten and terrorize the rest of the world.  My Administration will use every tool at our disposal to stop Iran’s nuclear, ballistic missile, and conventional weapons pursuits.  The Iranian regime must change its behavior if it hopes to provide what the Iranian people so desperately want and deserve: a thriving and prosperous Iran.
-
-我今天的行動向伊朗政府以及國際社會拒絕對伊朗說不的人們發出了明確的信息。美國將不允許伊朗政權進一步增強其直接威脅和恐嚇世界其他地區的能力。美國政府將使用我們掌握的一切手段來制止伊朗的核彈，彈道式導彈和常規武器的發展。伊朗人民迫切需要和應得的東西是：一個繁榮和富饒的伊朗，如果伊朗政府想滿足其公民願望的話，那就必須改變其行為。
-
-[閱讀白宮原文](https://www.whitehouse.gov/briefings-statements/statement-president-regarding-new-restrictions-irans-nuclear-ballistic-missile-conventional-weapons-pursuits/)
-
-翻譯：【文所未聞】校對：【rainbow】編輯：【Isaiah4031】
-
-戰友之家玫瑰園小隊出品
+[https://www.hkcnews.com/article/34007/%E5%BB%96%E5%AD%90%E6%96%87-12%E6%B8%AF%E4%BA%BA-%E9%9D%9E%E6%B3%95%E8%B6%8A%E5%A2%83-34026/%E3%80%9012%E8%A2%AB%E6%89%A3%E6%B8%AF%E4%BA%BA%E3%80%91%E5%BB%96%E5%AD%90%E6%96%87%E5%93%A5%E5%93%A5%EF%BC%9A%E5%A5%BD%E6%93%94%E5%BF%83%E5%A5%BD%E7%84%A1%E5%8A%A9-%E6%B8%AF%E5%BA%9C%E4%B8%8D%E9%A1%98%E7%90%86%E6%9C%83-%E5%8F%AA%E7%9B%BC%E7%95%B6%E5%B1%80%E8%AE%93%E5%BC%9F%E8%87%B4%E9%9B%BB%E5%A0%B1%E5%B9%B3%E5%AE%89?fbclid=IwAR2s21BvvMhdmsjigVdd766Ol8Yxg06UjPDjvlosfPQj5TUQvNmCdJQaIqk](https://www.hkcnews.com/article/34007/%E5%BB%96%E5%AD%90%E6%96%87-12%E6%B8%AF%E4%BA%BA-%E9%9D%9E%E6%B3%95%E8%B6%8A%E5%A2%83-34026/%E3%80%9012%E8%A2%AB%E6%89%A3%E6%B8%AF%E4%BA%BA%E3%80%91%E5%BB%96%E5%AD%90%E6%96%87%E5%93%A5%E5%93%A5%EF%BC%9A%E5%A5%BD%E6%93%94%E5%BF%83%E5%A5%BD%E7%84%A1%E5%8A%A9-%E6%B8%AF%E5%BA%9C%E4%B8%8D%E9%A1%98%E7%90%86%E6%9C%83-%E5%8F%AA%E7%9B%BC%E7%95%B6%E5%B1%80%E8%AE%93%E5%BC%9F%E8%87%B4%E9%9B%BB%E5%A0%B1%E5%B9%B3%E5%AE%89?fbclid=IwAR2s21BvvMhdmsjigVdd766Ol8Yxg06UjPDjvlosfPQj5TUQvNmCdJQaIqk)
 
 0
