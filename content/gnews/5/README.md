@@ -1,21 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## （German+中文）Spicer 在9月18號 Newsmax採訪閆博士關於最新發表的文章
-`2020-09-22 09:59 GM62` [轉載自GNews](https://gnews.org/zh-hant/377426/)
+## 警方改《通例》 香港再無新聞自由
+`2020-09-22 12:42 shangshang` [轉載自GNews](https://gnews.org/zh-hant/377923/)
 
-德語標題 Spicer interviewte Dr. Yan am 18. September auf Newsmax über den neuesten Artikel
+作者：vog尚
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22122240/CF14F9AD-ED6E-40A5-A6BA-3FEF53714608.jpeg)
+警方改《通例》　非新聞處登記機構不受認可　網媒、學生記者憂被指「非法採訪」拘捕
 
-英語字幕整理：文菠萝 英語校對： Magician文心; tiger64 中文校對： Magician文心; tiger64
+新聞來自：立場新聞
 
-德語翻譯： 文月 德語校對： MilaM (米拉猫)
+國安惡法實施後，香港已沒有自由可言。而今對於一個公民社會最基本的新聞自由也將不復存在。港警將通過修改《警察通例》限制記者採訪行為。
 
-視頻：文菠萝
+警方今日表示將修改《警察通例》，不再承認香港記者協會及攝影記者協會會員證，只認可已向政府新聞處登記的傳媒機構，或國際認可及知名的非本地媒體代表在現場採訪。以往不少網媒、學生或自由身記者均藉記協會員或學生會員證在場採訪，但日後現場採訪或有更大困難。中大新聞及傳播學院高級講師陳惜姿表示，學院曾向政府新聞處申請登記被拒，現《警察通例》又不承認記協證，進一步將學生記者摒之門外；網媒《丘品新聞》總編輯劉小姐則向《立場新聞》表示，擔心日後進行採訪工作會被警方拘捕，媒體或無法繼續經營。
 
-視頻簡介
-
-閆麗夢博士於9月18日接受NewsMax採訪,主持人Spicer詢問閆博士關於新發表的有關新冠狀病毒來源的論文。
-
-Dr. Limeng Yan erhielt am 18. September ein Interview mit NewsMax. Der Moderator Spicer fragte Dr. Yan nach dem neu veröffentlichten Artikel über die Quelle des neuen Coronavirus.
+原文鏈接：[https://www.thestandnews.com/politics/警方改-通例-非新聞處登記機構不受認可-網媒-學生記者憂被指-非法採訪-拘捕/](https://www.thestandnews.com/politics/警方改-通例-非新聞處登記機構不受認可-網媒-學生記者憂被指-非法採訪-拘捕/)
 
 0

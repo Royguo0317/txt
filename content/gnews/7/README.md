@@ -1,21 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/09/15 CCP病毒每日疫情直播簡報
-`2020-09-22 09:57 GM62` [轉載自GNews](https://gnews.org/zh-hant/377268/)
+## 加拿大主流媒體《環球郵報》仍在為《中國日報》刊登洗腦宣傳
+`2020-09-22 12:38 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/377912/)
 
-戰友之家圖文摘要及小語種組
+喜馬拉雅聯盟加拿大農場 文來
 
-[English\_0915\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22082118/English_0915_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22082118/English_0915_CCP_Virus_Updates.pdf)
+校對 文錦
 
-[French\_0915\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22082114/French_0915_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22082114/French_0915_CCP_Virus_Updates.pdf)
+加拿大獨立媒體斯潘塞·費爾南多（SPENCER FERNANDO） 在9月20日披露：“《環球郵報》（The Globe and Mail）刊登了兩頁關於中國的’樂觀’ 的故事；內容是由中國共產黨管理的《中國日報》製作的“。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22122652/Globe-Mail-China-Propaganda-1.png)《環球郵報》裏的《中國日報》內容插頁
+很多自媒體人就此事發聲, 包括戴維·朗格倫（David Ljunggren） 和保羅·米切爾（Paul Mitchell） 都用推文指出: “這是非常可悲的。這說明《環球郵報》正在與中共大外宣勾兌，並已成它的皮條客。”
 
-[German\_0915\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22082123/German_0915_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22082123/German_0915_CCP_Virus_Updates.pdf)
+自媒體人賈米爾·吉瓦尼（Jamil Jivani）指出：“《環球郵報》已被收買，才會刊登《中國日報》的頁面。這應該是一個重大的新聞，因為《中國日報》被稱為“中國共產黨的宣傳部門”。“更糟糕的是，《環球郵報》的一些記者還對中共國進行了著重的報導。 ”
 
-[Japanese\_0915\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22095459/Japanese_0915_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22095459/Japanese_0915_CCP_Virus_Updates.pdf)
+True North的自媒體人坎蒂絲·馬爾科姆（Candice Malcolm）推文指出：“中共大使曾批評一些加拿大媒體給中國抹黑，但這正是我們的媒體應該做的”。
 
-[Russian\_0915\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22082128/Russian_0915_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22082128/Russian_0915_CCP_Virus_Updates.pdf)
+True North媒體9月22日還在推文中發表觀點，他們認為中共政權同時利用自己的媒體和其他國家的媒體來對其有利的海外輿論產生影響，自媒體人卡倫（Proud to be a Karen ）推文到：“這真的很嚇人。由於美元貶值，我們將民主體制顛覆為自己國家的專制政權。 《環球郵報》應該感到羞恥。”
 
-[Spanish\_0915\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22095514/Spanish_0915_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22095514/Spanish_0915_CCP_Virus_Updates.pdf)
+這些獨立媒體人認為：“面對像中國這樣的殘酷政權，我們應該捍衛加拿大，並確保我們免受外國滲透。我將繼續抵制中國企圖影響我們國家的野心，並抵制任何滲入中共議程的腐敗’加拿大’ 媒體。但官方媒體不但放棄了這個角色，還選擇推送中國共產黨的信息。“
+
+評：
+
+很多跡象表明，中共正在滲透加拿大社會，加大其對機構的腐敗力度，並試圖讓那些被滲透的機構與社會抗衡。特魯多自由主義者似乎已經被中共看好，成為它的滲透目標。加拿大的許多大學和企業也是如此。現在，隨著新聞媒體開始幫助中共做宣傳，它的滲透似乎越來越嚴重。這就是為什麼越來越多的加拿大人開始轉向獨立媒體，也是為什麼中共擔心和恐懼獨立媒體，一直設法攻擊他們。加拿大的華人一定要擦亮眼睛，別被披著主流媒體外衣的大外宣忽悠。
 
 0

@@ -1,27 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突發！黨派鬥爭之傷：任誌強因貪汙罪等獲刑18年並處罰金420萬元
-`2020-09-22 06:47 GM06` [轉載自GNews](https://gnews.org/zh-hant/377043/)
+## 【世界多語言圖文】2020/09/15 CCP病毒每日疫情直播簡報
+`2020-09-22 09:57 GM62` [轉載自GNews](https://gnews.org/zh-hant/377268/)
 
-編輯：雅典娜之矛
+戰友之家圖文摘要及小語種組
 
-目前墻國政黨內部矛盾日益突出，各種派系慘烈爭鬥的犧牲品也越來越多！有名的紅二代代表任大炮，盡管年事已高身體欠佳依然沒逃過被拉出來“殺雞儆猴”！
+[English\_0915\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22082118/English_0915_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22082118/English_0915_CCP_Virus_Updates.pdf)
 
- 9月22日 – 北京市第二中級法院周二宣判，北京市華遠集團原董事長任誌強行為構成貪汙罪、受賄罪、挪用公款罪、國有公司人員濫用職權罪，數罪並罰，合並執行有期徒刑18年，並處罰金人民幣420萬元。
+[French\_0915\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22082114/French_0915_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22082114/French_0915_CCP_Virus_Updates.pdf)
 
- 北京二中院官網新聞稿並稱，宣判後，任誌強當庭表示服從法院判決，不上訴。
+[German\_0915\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22082123/German_0915_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22082123/German_0915_CCP_Virus_Updates.pdf)
 
-法院審理查明，任誌強於2003年至2017年間，利用職務便利，貪汙公款4,974萬余元；收受賄賂125萬余元；挪用公款6,120萬元；濫用職權致使國有控股企業遭受特別重大損失1.167億余元，其中國有股東華遠集團財產損失5,378萬余元，任誌強個人獲利1,941萬余元。
+[Japanese\_0915\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22095459/Japanese_0915_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22095459/Japanese_0915_CCP_Virus_Updates.pdf)
 
- 法院認為，任誌強的行為分別構成貪汙罪、受賄罪、挪用公款罪、國有公司人員濫用職權罪，依法應予懲處。鑒於其自願如實供述自己的全部罪行，承認所指控的全部犯罪事實，並自願接受法院判決，且違法所得已全部追繳，法院對公訴機關的量刑建議予以采納。
+[Russian\_0915\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22082128/Russian_0915_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22082128/Russian_0915_CCP_Virus_Updates.pdf)
 
-1951年3月出生的任誌強作為地產界大佬曾因屢屢對房地產形勢和政策直言評論而被業界冠以“任大炮”之稱。2013年9月22日，任誌強歷時兩年寫作的58萬字自傳體回憶錄《野心優雅》在北京首發。
-
- 而他過往對房地產市場漲跌的評論往往會成為業界討論的焦點。
-
- 今年4月任誌強涉嫌嚴重違紀違法，接受北京西城區紀委區監委紀律審查和監察調查。
-
-援引：https://cn.reuters.com/article/renzhiqiang-sentenced-0922-tues-idCNKCS26D0CG
+[Spanish\_0915\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22095514/Spanish_0915_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22095514/Spanish_0915_CCP_Virus_Updates.pdf)
 
 0
