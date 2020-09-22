@@ -1,33 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 玫瑰看新聞第二期（視頻版）焦點新聞（8月30日-9月5日）
-`2020-09-21 10:10 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/373874/)
+## 【世界多語言圖文】2020/09/14 CCP病毒每日疫情直播簡報
+`2020-09-21 10:41 GM62` [轉載自GNews](https://gnews.org/zh-hant/374024/)
 
-編輯：玫瑰天空
+戰友之家圖文摘要及小語種組
 
-本期焦點新聞摘要：
+[English\_0914\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21102831/English_0914_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21102831/English_0914_CCP_Virus_Updates.pdf)
 
-\*世衛調查新冠源頭先遣小組並未到達武漢就打道回府
+[German\_0914\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21102840/German_0914_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21102840/German_0914_CCP_Virus_Updates.pdf)
 
-\*王毅抵達柏林前德國議員警告本國外長：中國已經喪失了成為值得信賴夥伴的資格
+[Japanese\_0914\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21102845/Japanese_0914_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21102845/Japanese_0914_CCP_Virus_Updates.pdf)
 
-美國司法部曝光重要信函：戴維斯認罪，判刑日期待定
-
-90歲的股神巴菲特向日本五個最大貿易公司投資60億美元
-
-北京抓鋪官媒主播華裔澳籍成蕾
-
-耶魯等多所大學惊現瞞報中俄捐款資金超過15億美元
-
-美國國務院對中共外交官員實施新限制，推進美中外交對等
-
-美國司法部長巴爾稱：中國比俄羅斯伊朗更具侵略性
-
-Rose News 玫瑰新聞第二期字幕版（Subtitle Version） – Himalaya NewZealand 06/09/2020
-
-
-
-
+[Spanish\_0914\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21102836/Spanish-listo-Spanish_0914_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21102836/Spanish-listo-Spanish_0914_CCP_Virus_Updates.pdf)
 
 0

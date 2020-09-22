@@ -1,27 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德國終與中共脫鉤，轉向自由民主國家市場
-`2020-09-21 10:08 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/373855/)
+## 9/21 財經快訊: 匯豐銀行遭重錘壓頂, 擀麵杖經濟難以為繼
+`2020-09-21 10:40 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/374020/)
 
-喜馬拉雅聯盟加拿大農場 春季
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21103144/Picture43.png)圖片來源：Google截圖
+[1.金融幫繼續興風作浪，在豬瘟和中共病毒肆虐後，中共推行仔豬抵押貸款。在中國逾2600萬個養豬場中，小型家庭養豬場佔了三分之一。據國家統計局數據，中國生豬存欄量較2017年底減少約20%，在此情況下，CCP竟敦促銀行尋找有關解決方案。](https://www.wsj.com/articles/china-serves-up-pig-backed-loans-for-its-hogtied-farmers-11599989401?mod=e2tw)
 
-據Business Time 9月20日的報導， 德國總理默克爾發布了新的關於中共國和與德國的外交政策文件，承諾將與亞洲民主國家開展更多貿易活動。
+[2.床單公司也加入滅共浪潮。 Bed Scrunchie創始人Jack Nekhala和Michael Nusinks在其暢銷品被中共廠商抄襲後在亞馬遜網上展開維權行動。](https://www.marketwatch.com/press-release/bed-scrunchie-inventors-fight-to-protect-their-intellectual-property-against-chinese-sellers-on-amazon-2020-09-15?link=TD_barrons_article.d240fa30b2cca186&amp;utm_source=barrons_article.d240fa30b2cca186&amp;utm_campaign=circular&amp;utm_medium=MARKETWATCH)
 
-德國對中共長達數十年的痴迷，用“通過貿易改變”來概括是再確切不過了。為了恪守這一準則，德國一直自欺欺人地認為中共的威權主義和共產主義政治將能夠通過更廣泛的經濟聯繫以某種方式演變為自由，開放和更加民主的體系。德國以中共國為中心的政策，使得中共國目前佔德國年度貿易總額的近50％。
+[3.匯豐港股今日觸及25年地點，收跌5.53%。此前有媒體報導稱匯豐及其它幾家銀行在僅20年內轉移大量非法資金。受金融股拖累，港股週一下跌2.06%至23950.69點](https://www.icij.org/investigations/fincen-files/global-banks-defy-u-s-crackdowns-by-serving-oligarchs-criminals-and-terrorists/)
 
-但是中共近年來的不惜一切代價推動中共成為世界領導者的努力，證明了這種不切實際的假設是荒謬的。從此，德國就已經看到了它在中共推動中共霸權的失敗結局。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21100504/170921075751-angela-merkel-unhappy-german-flag-780x439-1-1.jpg)
-這一新現實促使總理默克爾在今年1月宣布德國將“重新審視地圖”。她說：“作為歐洲人，我們需要認真思考在中國面前如何定位自己”。
+[4.受中共病毒影響，歐洲股市持續下挫](https://markets.businessinsider.com/news/stocks/stock-market-global-slide-europe-reports-new-covid-19-cases-2020-9-1029605882#)
 
-這種重新定位導致德國於9月2日發布了針對印度-太平洋的官方外交政策文件，該文件稱德國將不支持“強者法律”，並將“避免單方面依賴”。這兩種說法都是對中國的間接引用。
+[5.中紀委置頂發文力挺抖音，並諷刺甲骨文敗走中國市場](http://www.ccdi.gov.cn/toutiao/202009/t20200921_225883.html)
 
-該文件稱：“隨著亞洲的崛起，政治和經濟重心越來越轉移到印度-太平洋地區，該地區將成為塑造21世紀國際秩序的關鍵”。該文件通過了涵蓋印度洋-太平洋的新政策準則，並強烈強調了法治和促進該地區開放市場的重要性。這標誌著德國正式承認印度-太平洋地區在經濟和地緣政治上的重要性，並修改其行動和政策以確保更大的參與度。
+[6.央行：或取消債券市場境外投資者匯出比列限制。眾所周知債券投資取決於可信的財務報表和可靠評級，而此二者中共市場皆無。此時取消匯出限制無疑於向投資者暴露了其債券市場的岌岌可危即將資不抵債。](https://m.nbd.com.cn/articles/2020-09-21/1509468.html)
 
-德國還對中國的侵略行為感到擔憂，並再次重申了它對遵循基於規則的國際秩序的國家的重視。德國外交部長海克斯•馬斯表示：“我們希望幫助塑造這一秩序，使它建立在規則和國際合作的基礎上，而不是建立在強者的法律之上”。
-
-幻想破滅的德國不再強調與中共的緊密經濟聯繫，離開中國的深刻轉變將立即影響涵蓋其經濟夥伴關係，人權和海上安全等諸多領域。德國更希望與更加尊重法治的自由民主國家開展業務，例如日本，韓國和東盟包括文萊達魯薩蘭國，柬埔寨，印度尼西亞，老撾，馬來西亞，緬甸，菲律賓，新加坡，泰國和越南。
-
-**評** ：這標誌著德國與中共國在經濟貿易上的脫鉤。我們看到，最近結束的中歐峰會以失敗告終，中共的戰狼外交在歐洲完敗。長久以來，德國一直主導著目前有著28個成員國的歐盟政治和經濟走向，它在歐盟的影響力是深遠的。遺憾的是德國在歷史上都沒有把握好歷史的機遇，但願這一次，德國能夠引領歐盟回歸傳統和保守，捍衛人類來之不易的天賦的自由民主權力，加入全球滅共的歷史洪流之中。
+By：【密翻組·金融法律組】
 
 0
