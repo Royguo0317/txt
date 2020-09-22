@@ -1,21 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## （German+中文）Spicer 在9月18號 Newsmax採訪閆博士關於最新發表的文章
-`2020-09-22 09:59 GM62` [轉載自GNews](https://gnews.org/zh-hant/377426/)
+## 9月22日同聲傳譯: 美國川普總統聯合國大會重磅講話
+`2020-09-22 11:19 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/377734/)
 
-德語標題 Spicer interviewte Dr. Yan am 18. September auf Newsmax über den neuesten Artikel
+9月22日美國川普總統聯合國大會重磅講話（從1:11:26分開始）：聯合國必須做正確的事，必須讓中共國對這次的病毒負責。在疫情初期，中共取消國內的航班，然而卻繼續開放國際航班，從而導致病毒傳播到全世界。中共國完全控制了WHO（世界衛生組織），他們隱瞞疫情說病毒可控不會人傳人。病毒造成了成千上萬人的死亡，中共國必須負責！
 
-英語字幕整理：文菠萝 英語校對： Magician文心; tiger64 中文校對： Magician文心; tiger64
 
-德語翻譯： 文月 德語校對： MilaM (米拉猫)
 
-視頻：文菠萝
-
-視頻簡介
-
-閆麗夢博士於9月18日接受NewsMax採訪,主持人Spicer詢問閆博士關於新發表的有關新冠狀病毒來源的論文。
-
-Dr. Limeng Yan erhielt am 18. September ein Interview mit NewsMax. Der Moderator Spicer fragte Dr. Yan nach dem neu veröffentlichten Artikel über die Quelle des neuen Coronavirus.
+By：【秘密翻譯組G-Translators】
 
 0

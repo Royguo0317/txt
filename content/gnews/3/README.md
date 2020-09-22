@@ -1,23 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統：只有善待自己的國民才真正具備與人合作的基礎—75屆聯合國大會講話
-`2020-09-22 12:54 GM65` [轉載自GNews](https://gnews.org/zh-hant/377957/)
+## 納瓦羅轉推為羥氯喹正名的白皮書炮轟主流媒體洗腦掩蓋真相
+`2020-09-22 16:03 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/378299/)
 
-9月22日，美國川普總統在第75屆聯合國大會的首日一般性辯論中發表講話，談到美國在應對疫情全球爆發和維護世界和平方面作出的努力和取得的成績。川普總統的講話內容，劍指中共等流氓政權對世界和平和繁榮帶來的威脅和損害。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22124924/Screen-Shot-2020-09-22-at-12.11.31.jpeg)
-作為演講結束語，川普總統說：
+喜馬拉雅聯盟加拿大農場 文錦
 
-“For decades, the same tired voices proposed the same failed solutions, pursuing global ambitions at the expense of their own people. But only when you take care of your own citizens will you find a true basis for cooperation. As president, I have rejected the failed approaches of the past, and I am proudly putting America first, just as you should be putting your countries first. That's okay. That's what you should be doing.”
+9月22日，美國總統助理皮特·納瓦羅（Peter Navarro）轉推了《經濟標準報》（The Economic Standard）給羥氯喹正名、去政治化的白皮書, 直指洗腦掩蓋真相的主流媒體CNN 、MSNBC手上沾了更多的血。表明羥氯喹是安全的多功能藥物，七十年來治療了上億人，應該更廣泛地推薦、開具和推廣為治療中共病毒的處方。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22155717/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE368.png)
+《經濟標準報》白皮書：羥氯喹和舉證責任
 
-“幾十年來，一些老生常談的論調一直在提議一些行不通的解決方案，（卻同時）以犧牲自己的人民為代價尋求實現全球野心。然而，只有善待了自己的國民，你才真正具備與人合作的基礎。作為總統，我摒棄了過去所有失敗的做法，自豪地將美國放在首位，你們同樣應該把自己的國家放在首位。這沒什麼不好。這是大家應該做的。”
+《經濟標準報》很榮幸提出我們的第一份白皮書。我們通過精心分析證明： 
+ 1）羥氯喹是一種安全，用途廣泛的藥物，在過去的七十年中已經為數億人治療了多種疾病。 
+ 2）大量的受控觀察研究和綜合分析表明，羥氯喹可以幫助COVID-19的患者。 
+ 3）在類似的觀察研究的基礎上，美國食品和藥物管理局（FDA）已批准了數百種藥物，尤其是在大量進行並進行綜合分析的情況下。 
+ 4）就醫學實踐而言，尤其是在中共病毒疫情緊急情況下，並非只有隨機對照試驗才能證明採用治療的合理性。 
+ 5）現在應更廣泛地推薦，處方和推廣羥氯喹以治療中共病毒。
 
-“I am supremely confident that next year, when we gather in person, we will be in the midst of one of the greatest years in our history. And frankly, hopefully, in the history of the world. Thank you, God bless you all . God bless America. And God bless the United Nations.”
+我們的目標是推動有關公共政策的辯論。與美國和世界各地的執業醫師和傳染病專家密切合作，撰寫本文時沒有任何財政支持或任何形式的道德衝突。我們非常感謝他們為確保分析準確性提供的幫助。任何錯誤都是我們自己的。
 
-“我超級有信心，當明年面對面聚到一起時，我們將處於美國歷史上最偉大的時代之一。坦率講，希望也是世界歷史的偉大時刻。謝謝。願上帝保佑眾生，保佑美國，保佑聯合國！”
+埃里克·薩斯
 
-川普總統一句“以犧牲自己的人民為代價尋求實現全球野心”，已經等同於指責中共虐待、欺壓、剝削、奴役中國人民，以達到他們控制世界的野心。他說“只有善待了自己的國民，你才真正具備與人合作的基礎”，就是告訴中共，沒了中國人民，它什麼都不是，世界上沒有人會跟他們合作。川普政府的執政基本理念就是：“美國首位”和“美國人首位”（America first. American people first.)中國人民應該醒過來，我們同樣需要這樣一個民主政權，“中國首位”，“中國人首位”（China first. Chinese people first.)
+主編首席
 
-[視頻鏈接](https://www.youtube.com/watch?v=JcgSNdMAIhw)
- 
-1
+《經濟標準報》
+
+0

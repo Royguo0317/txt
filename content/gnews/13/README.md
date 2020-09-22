@@ -1,21 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 胡錫進發推“北京不會批準當前抖音和甲骨文&amp;沃爾瑪的協議”變相證實抖音中共背景
-`2020-09-22 11:39 GM06` [轉載自GNews](https://gnews.org/zh-hant/377770/)
+## 川普總統：只有善待自己的國民才真正具備與人合作的基礎—75屆聯合國大會講話
+`2020-09-22 12:54 GM65` [轉載自GNews](https://gnews.org/zh-hant/377957/)
 
-作者：SCELF (文正) 封面：ZEN
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22105729/%E8%83%A1%E9%94%A1%E8%BF%9B.png)
-2020年9月21日環球時報總編胡錫進發推表示，“基於現在我所知道的，北京不會允許當前抖音母公司抖音和甲骨文，沃爾瑪之間的協議，因為協議已經危害了中國的國家安全、利益、尊嚴。”
+9月22日，美國川普總統在第75屆聯合國大會的首日一般性辯論中發表講話，談到美國在應對疫情全球爆發和維護世界和平方面作出的努力和取得的成績。川普總統的講話內容，劍指中共等流氓政權對世界和平和繁榮帶來的威脅和損害。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22124924/Screen-Shot-2020-09-22-at-12.11.31.jpeg)
+作為演講結束語，川普總統說：
 
-其中，胡錫進在推文中公然用“Beijing”壹詞，明確顯示對於抖音在海外的並購協議，北京的中共政府有著最後的決定權。這也變相證實了抖音以及其母公司字節跳動並不是壹個獨立運營的私營企業，而被中共政府所掌控。同時印證了之前川普總統所提到抖音具有中共官方背景，被中共政府所深度影響的事實。
+“For decades, the same tired voices proposed the same failed solutions, pursuing global ambitions at the expense of their own people. But only when you take care of your own citizens will you find a true basis for cooperation. As president, I have rejected the failed approaches of the past, and I am proudly putting America first, just as you should be putting your countries first. That's okay. That's what you should be doing.”
 
-根據字節跳動在20日發布的聲明，字節跳動與甲骨文、沃爾瑪就“雲上加州”方案達成原則性共識，盡快達成滿足美國和中國法律要求的合作協議。新組建的掌管抖音大陸境外業務的TikTok Global將通過融資使甲骨文和沃爾瑪分別獲得12.5%和7.5%的股權，而字節跳動將利用80%的股權繼續掌控TikTok Global。但在協議中，TikTok Global董事會將由5人組成，包括4位美國公民，僅允許壹位可以是來自中共國，並且甲骨文可以訪問審查TikTok Global的源代碼和所有更新內容。
+“幾十年來，一些老生常談的論調一直在提議一些行不通的解決方案，（卻同時）以犧牲自己的人民為代價尋求實現全球野心。然而，只有善待了自己的國民，你才真正具備與人合作的基礎。作為總統，我摒棄了過去所有失敗的做法，自豪地將美國放在首位，你們同樣應該把自己的國家放在首位。這沒什麼不好。這是大家應該做的。”
 
-對於抖音的協議，川普總統在同日已經表示：Oracle, Walmart must have total control of TikTok，即甲骨文，沃爾瑪必需完全擁有抖音的掌控權。環球時報總編似乎對於這樣的表態非常不滿。《環球時報》同日也發表社評表示，這些條款非常充分展現了華盛頓的霸淩做派和強盜邏輯。
+“I am supremely confident that next year, when we gather in person, we will be in the midst of one of the greatest years in our history. And frankly, hopefully, in the history of the world. Thank you, God bless you all . God bless America. And God bless the United Nations.”
 
-如果從抖音與甲骨文&沃爾瑪的協議來看，這是商業層面上的運作和談判，美國川普政府並不會對談判本身進行任何幹預。而川普總統所要看的是最終協議所能帶來的影響，從而決策是否改變對於抖音禁令的實施。如果協議達成，但是無法改變抖音背後中共政府的影響，依然在危害美國安全，抖音禁令並不會因此而終止。重要的並不是“達成協議”這四個字，而是協議的內容，和協議所能造成的影響。因此，抖音禁令的實施事實上並不取決於最終達成協議與否，而是達成的協議是否能真正根本解決抖音危害美國國家安全現實問題。不然，就算達成協議，對於抖音被禁最終的結果也是無濟於事。
+“我超級有信心，當明年面對面聚到一起時，我們將處於美國歷史上最偉大的時代之一。坦率講，希望也是世界歷史的偉大時刻。謝謝。願上帝保佑眾生，保佑美國，保佑聯合國！”
 
-然而胡錫進在推文裏公開明確透露出了“Beijing”，這表明對於抖音與甲骨文&沃爾瑪協議談判這壹商業行為，中共政府在其中對談判過程和內容正在進行強力幹預。中共政府對於這壹項獨立的商業談判所進行的直接幹預，不知又是否配得上官媒《環球時報》所說的“霸淩做派和強盜邏輯”呢？
+川普總統一句“以犧牲自己的人民為代價尋求實現全球野心”，已經等同於指責中共虐待、欺壓、剝削、奴役中國人民，以達到他們控制世界的野心。他說“只有善待了自己的國民，你才真正具備與人合作的基礎”，就是告訴中共，沒了中國人民，它什麼都不是，世界上沒有人會跟他們合作。川普政府的執政基本理念就是：“美國首位”和“美國人首位”（America first. American people first.)中國人民應該醒過來，我們同樣需要這樣一個民主政權，“中國首位”，“中國人首位”（China first. Chinese people first.)
 
-0
+[視頻鏈接](https://www.youtube.com/watch?v=JcgSNdMAIhw)
+ 
+1

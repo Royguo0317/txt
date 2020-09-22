@@ -1,21 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/09/15 CCP病毒每日疫情直播簡報
-`2020-09-22 09:57 GM62` [轉載自GNews](https://gnews.org/zh-hant/377268/)
+## 中共國“農民豐收節”當天，黑龍江大壩決堤，致7萬畝農田被淹！
+`2020-09-22 11:25 GM64` [轉載自GNews](https://gnews.org/zh-hant/377755/)
 
-戰友之家圖文摘要及小語種組
+內新聞：喝咖啡的小螞蟻 校對：雅典娜的聖鬥士(沙加)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22111119/img_5959.jpg)
+據“漩渦視頻”微博爆料：2020年9月22日早上5點左右，黑龍江大慶市肇源縣壹處大壩因江水猛漲決口，約7萬畝農田被大水淹沒。
 
-[English\_0915\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22082118/English_0915_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22082118/English_0915_CCP_Virus_Updates.pdf)
+“它是沿江的壹個壩，壩開了之後，農民靠著邊上，把糧食往外搶壹搶，現在已經搶不出來了，都淹了！可能（水）落差得有3-4米高”。據悉此事故致當地農民損失慘重，損失金額接近上億人民幣。當地村民表示：“壹畝地2000元算，總共是7萬多畝地，壹個多億吧”！
 
-[French\_0915\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22082114/French_0915_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22082114/French_0915_CCP_Virus_Updates.pdf)
+受中共疫情、長江流域嚴重洪澇災害、東北地區夏伏旱、連續臺風侵襲等影響，中共國今年糧食收成相當慘淡。然而9月22日正是中共欽定的第三個“農民豐收節”，並在山西運城濃重舉行了主場活動，全國各地也正在張燈結彩慶“豐收”。
 
-[German\_0915\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22082123/German_0915_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22082123/German_0915_CCP_Virus_Updates.pdf)
+恰逢此時，作為“東北糧倉”的黑龍江，卻因大壩決堤出現嚴重的農業損失，而各大官媒異常安靜，無疑是怕這樣的“壞消息”破壞了節日氣氛。
 
-[Japanese\_0915\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22095459/Japanese_0915_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22095459/Japanese_0915_CCP_Virus_Updates.pdf)
+近期時間，中共國壹方面大量進口糧食，全國上下“血雨腥風”搞“糧食節約”，連教育部都要求“學校食堂實行大小份半份拼菜制度”；另壹方面，又召開“國際糧農會議”誓言“口糧供應絕對安全”，在全國各地“稻花香裏說豐年”，喜迎第三個“農民豐收節”。
 
-[Russian\_0915\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22082128/Russian_0915_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22082128/Russian_0915_CCP_Virus_Updates.pdf)
+兩相對比之下，縱觀中共國內近期種種“過度表演”，大有“以樂景寫哀，倍增其哀”的悲涼！凸顯出的更是中共國糧食危機已經迫在眉睫的現實！
 
-[Spanish\_0915\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22095514/Spanish_0915_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22095514/Spanish_0915_CCP_Virus_Updates.pdf)
+新聞來源：
+
+[https://h5.video.weibo.com/show/1034:4552026382860292](https://h5.video.weibo.com/show/1034:4552026382860292)
 
 0
