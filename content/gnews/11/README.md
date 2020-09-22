@@ -1,17 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 9.14 路德時評：博士團隊解讀系列-康教授解讀【中共病毒的模板來自軍事實驗室】【精華版粵語配音】
-`2020-09-22 06:24 GM42` [轉載自GNews](https://gnews.org/zh-hant/376994/)
+## （Swedish+English）福克斯新聞: 「冠狀病毒吹哨人」揭露新冠狀病毒來源
+`2020-09-22 09:12 GM62` [轉載自GNews](https://gnews.org/zh-hant/377385/)
 
-製作單位：戰友之家·粵語頻道
-製作團隊：製作團隊：打雜的、文東、wikim bao
+瑞典語標題 Fox News: “Coronavirus Whistleblower” avslöjar källan till covid-19
 
-
-
-概要：
-動物傳代是一個模仿自然進化的過程，是在動物裡一代代傳播再傳到人，中共通過這個過程希望可以 抹掉病毒上的一些基因操作的痕跡。
-但是被閆博士發現，新冠病毒的E蛋白仍然與舟山蝙蝠病毒是百分之百的相似度；而且RBM兩端仍存在特別明顯的基因剪接痕跡，把不侵染人的病毒增強成侵染人的。
-為此，中共的目的路人皆知。
+翻譯：JingMerit 校對：lxxy 視頻：杨过
 
 0

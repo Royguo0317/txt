@@ -1,13 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 9月21日蓬佩奧國務卿在浸信會教堂演講(粤语翻译)
-`2020-09-22 07:09 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/377087/)
+## （German+中文）Spicer 在9月18號 Newsmax採訪閆博士關於最新發表的文章
+`2020-09-22 09:59 GM62` [轉載自GNews](https://gnews.org/zh-hant/377426/)
 
-9月21日蓬佩奧國務卿在浸信會教堂演講：沒有一個政權能夠在對當今世界所發生的恐怖行為，和對人類尊嚴核心思想毀滅方面，可以與中共的所做所為相提並論。堅守信仰所面臨的挑戰，是我們身為基督徒當行之事，也是我們作為美國人的根本所在。
+德語標題 Spicer interviewte Dr. Yan am 18. September auf Newsmax über den neuesten Artikel
 
+英語字幕整理：文菠萝 英語校對： Magician文心; tiger64 中文校對： Magician文心; tiger64
 
+德語翻譯： 文月 德語校對： MilaM (米拉猫)
 
-By：【秘密翻譯組G-Translators】
+視頻：文菠萝
+
+視頻簡介
+
+閆麗夢博士於9月18日接受NewsMax採訪,主持人Spicer詢問閆博士關於新發表的有關新冠狀病毒來源的論文。
+
+Dr. Limeng Yan erhielt am 18. September ein Interview mit NewsMax. Der Moderator Spicer fragte Dr. Yan nach dem neu veröffentlichten Artikel über die Quelle des neuen Coronavirus.
 
 0
