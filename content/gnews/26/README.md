@@ -1,16 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## （German+中文）郭文貴先生披露17年新聞發佈會前燒掉的是中共絕密13579文件 中共計劃利用生化武器統治全球
-`2020-09-21 10:53 GM62` [轉載自GNews](https://gnews.org/zh-hant/374051/)
+## 中共逮捕了5000+蒙古族人後反對語言抹殺的抗議活動卻仍在繼續
+`2020-09-21 21:15 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/375454/)
 
-德文標題 Herr Guo Wengui gab bekannt,dass er vor der Pressekonferenz 2017 ein streng geheimes Dokument 13579 der KPCh verbrannte. Die KPCh hat vor, biologische und chemische Waffen einzusetzen, um die Welt zu herrschen
+*新聞來源：Breitbart《布萊特巴特》；作者：Ben Whedon；發佈時間： 2020年9月15日*
 
-原文校對：warroom字幕翻译组 德語翻譯：大脚印 德語校對：It’s happening
+*翻譯/簡評：Cathy r；校對：johnwallis；審核：InAHurry；Page：拱卒*
 
-視頻簡介
-班農在戰鬥室訪問郭文贵先生。其中提到郭先生于2017年在华盛顿举办的新闻发布之会前烧掉了中共绝密的13579文件。该文件涉及中共有计划地制造生化武器及如何利用P3,P4实验室制造生化武器。当时郭先生就对美国和西方世界提出了警告。
+**簡評：**
 
-Bannon hat Herrn Guo Wengui im ​​Warroom interviewt. Es wurde erwähnt, dass Herr Guo das streng geheime Dokument 13579 der KPCh vor einer Pressekonferenz in Washington im Jahr 2017 verbrannt hat. Dieses Dokument befasste sich mit der geplanten Produktion biologischer und chemischer Waffen durch die KPCh und der Verwendung von P3- und P4-Labors zur Herstellung biologischer und chemischer Waffen. Zu dieser Zeit hat Herr Guo schon die Vereinigten Staaten und die westliche Welt gewarnt.
+隨著蒙古族針對中共文化滅絕的抗議活動的持續，中共抓捕的人數越來越多，現在被捕人數已達到了5000多人了。但即便如此，蒙古人還是在繼續抗議中共所謂的“雙語教育”計劃。日前，王毅跑到蒙古國企圖進行勾兌，也許這是因為蒙古最近和美國簽署了軍事聯盟協議，同意美國在蒙古部署導彈。蒙古人舉行的抗議活動來“歡迎”王毅並高喊“王毅滾出去”。
+
+隨著閆博士揭露病毒真相的報告不斷地在美國發酵，一旦美國對中共國製造生化武器定性，中共必將沒有勾兌的土壤，無處遁形。
+
+![](https://spark.adobe.com/page/EdGVsI88YMdme/images/233a76e8-bf2d-45d9-81c8-f4da15ac05b6.jpg?asset_id=ecabed15-6f51-4d9c-a469-3821a5c1483f&amp;img_etag=%22aaaf90dbda19c753dd7754ca50bbec5e%22&amp;size=1024)
+
+**經歷了數週的對峙和嚴密的政治審查，以及5000多名蒙古人被逮捕後，週二，針對意圖在中共國根除蒙古語的中共”雙語教育“計劃的抗議活動仍在繼續。**
+
+本週，蒙古族人在中國內蒙古省發起了反對中共國政權的抗議活動，該活動還跨過邊境延伸到蒙古國。
+
+據路透社報導，週二，蒙古人聚集在首都烏蘭巴托，抗議中共國外交官王毅的訪問，在此之前，中共國一直在其境內壓制蒙古母語，並遏制中國境內蒙古族人對中共所推行的“雙語教育”政策的反對活動。
+
+大約有100名示威者聚集在政府宮外的蘇赫巴托爾廣場，據說他們高呼“王毅滾開”和“讓我們保護我們的母語”。
+
+這些示威活動是對中共國在內蒙古邊境地區實施“雙語教育”政策的回應，該地區擁有相當數量的蒙古族少數民族。據《印度時報》的報導，根據該計劃，該地區的學校將提前一年在小學一年級推廣普通話，並保留文學、政治和歷史專門用於普通話教學。蒙古族人數約佔內蒙古人口的20%。
+
+中共國政府組織了大規模鎮壓反對雙語教育計劃的行動。據《寒冬》報導，警方已經逮捕了至少5000名學生、家長和政治激進人士。此外，由於當局對任何組織異議的努力的積極監控，像微信這樣的社交媒體平台也面臨著嚴密的中共審查。
+
+在官方8月底宣布了“雙語教育”計劃後，蒙古人通過暫停讓孩子們入學，對學校進行了大規模抗議和抵制。據南蒙古人權信息中心的估計，在抵抗最嚴重的時候，該地區有共30萬學生罷課。
+
+除了罷課外，該地區還發生了蒙古族中共官員的大規模辭職，甚至有一人抗議性自殺。
+[!\[\](https://spark.adobe.com/page/EdGVsI88YMdme/images/c574a630-77e3-4c0d-a160-aa00a82e0322.jpg?asset_id=6dd8e008-d03a-4a38-8341-ec286649ffe6&amp;img_etag=%22df25888fbf2279272ef2f3421723a2b0%22&amp;size=1024)](https://spark.adobe.com/page/EdGVsI88YMdme/images/c574a630-77e3-4c0d-a160-aa00a82e0322.jpg?asset_id=6dd8e008-d03a-4a38-8341-ec286649ffe6&amp;img_etag=%22df25888fbf2279272ef2f3421723a2b0%22&amp;size=1024)
+當地人擔心此舉是為了加強中共國內部的文化統一，目的是根除蒙古語，從而消除蒙古人的身份。
+
+共產黨官員一再否認“雙語教學”計劃意圖消除蒙古語。外交部發言人華春瑩強調了此舉的必要性，強調了中共國內部溝通的必要性，並聲稱中共國法律保護蒙古人使用母語的權利。
+
+蒙古人的恐懼，部分源於中共國對待其它少數民族的行為。據自由亞洲電台報導，2017年，中共國政府在新疆各級教育中全面禁止使用維吾爾語。據CNN報導，中共國在西藏強制實施了一項類似於蒙古族的“雙語教育”計劃，即所有學校課程中，讓普通話很大程度上取代當地語言。
+
+蒙古政府沒有對這個問題發表評論，這引起了其公民的不滿，他們同情跨越國界的同語言同胞。
+
+“我們的領導人需要大聲疾呼，”一位在蒙古名叫卡利恩·蘇赫巴托爾的抗議者告訴路透社，他補充說“如果我們的政府以國際關係和經濟穩定的名義保持沉默，一個又一個的蒙古人就會被壓制，蒙古將不復存在”。
+
+蒙古和中共國保持著密切的經濟聯繫。中共國是蒙古的主要出口市場。據報導，王毅將在訪問期間從中共國向蒙古提供大額經濟援助。
+
+在內蒙古，漢族超過蒙古族，佔據了大多數。自公元前三世紀秦朝建立以來，該地區一直是統一的中國國家的一部分。
+
+[原文鏈接](https://www.breitbart.com/asia/2020/09/15/china-protests-persist-language-erasure-despite-arrests-5000-mongolians/)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/EdGVsI88YMdme/)
 
 0

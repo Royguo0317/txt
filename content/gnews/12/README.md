@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 好消息！共和黨報告中共銷毀病毒傳播證據 打壓真相 稱必須追究中共的責任
-`2020-09-21 15:31 GM36` [轉載自GNews](https://gnews.org/zh-hant/375156/)
+## 加拿大魁省女子被確認為給川普總統寄毒包裹者
+`2020-09-21 23:03 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/375682/)
 
-編輯：文橙
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21152600/921_2.jpg)
-共和黨在21號，本週一的外交事務委員會上發布了關於中共國行為造成疫情肆虐的報告，譴責北京隱瞞病毒的危險性、以及WHO對疫情的失職。
+喜馬拉雅聯盟加拿大農場文錦
 
-這份96頁的報告基於共和黨在六月份公佈的臨時調查結果，基本上認同了川普總統所說的中共國的失責導致了本次疫情的爆發。
+繼9月19日報導《給川普總統的含蓖麻毒素包裹從加拿大寄出》後，據自媒體SpencerFernando 9月21日報導，美國當局稱一名為帕斯卡爾·塞西爾·維羅尼卡·費里爾（Pascale Cecile Veronique Ferrier）的女子，被認為是向川普總統發送含蓖麻毒素包裹的犯罪嫌疑人。她手持槍支試圖穿越加拿大與美國邊境時被捕。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21225105/Snipaste_2020-09-22_10-32-56.png)
+加拿大當局對魁省蒙特利爾市附近聖休伯特（Saint-Hubert）的一間公寓進行搜查的同日，宣布了將費列爾定為犯罪嫌疑人。當時處置炸藥和化學品訓練有素的皇家騎警在現場，周圍居民被疏散。
 
-報告具體列明了中共毀滅證據、打壓病毒傳播真相、沒能在及時向世界報告病毒傳播情況，種種違反國際衛生條例的行為。
+費里爾有望於明天在美國法院出庭，這將是她首次公開露面。
 
-報告稱中共銷毀了非常可能的關鍵證據，他們在1月1號關閉並消毒了華南海鮮市場，而這裡是被報導的十二月中旬開始出現第一例病例的地方。並在一月份開始拖延公佈病毒的基因信息、誤導公眾病毒可以人傳人的事實。
+相關鏈接：
 
-中共從二月初開始囤積醫療防護用品給美國和世界在該用品供應上造成了很大的缺失。
+BREAKING: Pascale Cecile Veronique Ferrier Identified As Suspect In Poison Letter Sent To Trump
 
-共和黨要求世衛組織總幹事譚德塞辭職“如果中共是透明的，如果世衛組織負責人更關心全球健康而不是取悅中共，這麼多的生命本可以免受苦難，也不會有這麼嚴重的經濟災難。”“揭露真相只是第一步，我們必須追究中共和世衛組織總幹事譚德塞的責任，因為他們給世界帶來了苦難。”
+> [BREAKING: Pascale Cecile Veronique Ferrier Identified As Suspect In Poison Letter Sent To Trump](https://spencerfernando.com/2020/09/21/breaking-pascale-cecile-veronique-ferrier-identified-as-suspect-in-poison-letter-sent-to-trump/)
 
-同時報告建議恢復台灣作為世衛組織觀察員的角色、加強國際衛生條例來及時報告疾病的威脅。
+給川普總統的含蓖麻毒素包裹從加拿大寄出
 
+> [给川普总统的含蓖麻毒素包裹从加拿大寄出](https://gnews.org/zh-hans/369776/)
 
-
-
-
-0
+1

@@ -1,17 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/09/14 CCP病毒每日疫情直播簡報
-`2020-09-21 10:41 GM62` [轉載自GNews](https://gnews.org/zh-hant/374024/)
+## 美東時間9月21號美國宣佈對伊朗伊斯蘭共和國實施全面制裁——槍口對準中共
+`2020-09-21 21:08 GM101` [轉載自GNews](https://gnews.org/zh-hant/375435/)
 
-戰友之家圖文摘要及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21210331/%E5%9B%BE%E4%B8%80-5.png)
+美东时间9月21号，美国国务院发布了“美国对伊朗伊斯兰共和国实施全面制裁”的公告。明确国务院、财政部、商务部采取了重大行动，以应对伊朗的核威胁以及导弹和常规武器的扩散。公告强调本次行动针对根据联合国安理会第2231号决议重新实施的制裁，该决议恢复对[伊朗](https://zh.wikipedia.org/wiki/%E4%BC%8A%E6%9C%97)的制裁做出的一些措施。
 
-[English\_0914\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21102831/English_0914_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21102831/English_0914_CCP_Virus_Updates.pdf)
+公告指出伊朗伊斯兰共和国政权利用其核计划勒索国际社会，威胁区域和国际安全。伊朗拥有中东最大的弹道导弹部队，并且已向也门的胡塞民兵，黎巴嫩和叙利亚的真主党恐怖分子等暴力非国家行为者出口了导弹和导弹生产技术。在过去的一年中，美国及其伙伴部队屡次拦截了伊朗在向胡希（Houthis）途中使用的武器，这表明该政权继续利用其常规武器库破坏中东的稳定，并在整个地区煽动宗派暴力和恐怖主义。
 
-[German\_0914\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21102840/German_0914_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21102840/German_0914_CCP_Virus_Updates.pdf)
+本次行动包含以下内容：
 
-[Japanese\_0914\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21102845/Japanese_0914_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21102845/Japanese_0914_CCP_Virus_Updates.pdf)
+1、川普总统发布了针对伊朗相关常规武器转让的新行政命令。联合国对伊朗的武器禁运现在无限期重新实行，我们将确保在伊朗改变其行为之前，它一直存在。新的《13382号行政命令》为我们提供了追究企图逃避封锁责任的行为者的工具；
 
-[Spanish\_0914\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21102836/Spanish-listo-Spanish_0914_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/21102836/Spanish-listo-Spanish_0914_CCP_Virus_Updates.pdf)
+2、伊朗国防部和武装力量后勤部（MODAFL），伊朗国防工业组织（DIO）及其局长Mehrdad Akhlaghi-Ketabchi以及委内瑞拉的私下独裁者Nicolas Maduro为其指定常规武器新的《伊朗常规武器行政命令》规定的相关活动；
+
+3、根据13382号行政命令（WMD扩散者及其支持者），国务院和财政部指定了与伊朗原子能组织（AEOI）相关的六个人和三个实体。该行动包括一名个人和一个实体，这些实体和实体在2020年9月19日返回的联合国制裁下重新列出；
+
+4、将5个与AEOI关联的个人添加到商务部的“实体列表”中，这将对这些个人施加出口管制限制；
+
+5、财政部根据13382号行政命令指定了与伊朗液体推进弹道导弹组织，Shahid Hemmat工业集团（SHIG）有关的三人和四家实体，并更新了已根据该命令指定的两名SHIG个人的现有制裁清单13382号行政命令。
+
+同一时段，美国财政部发布公告，并由部长史蒂文·姆努钦表示制裁目标对准与伊朗进行常规武器贸易，为其核计划提供支持或促进其弹道导弹开发的任何人。美国商务部长威尔伯·罗斯宣布将五名伊朗科学家列入实体名单，以促进或协助伊朗的核发展计划。伊朗伊斯兰共和国背后是中共恶政的支持，中共为其提供了核武器、生化武器等技术支持，对全球和平构成严重威胁。本次行动由美国国务院、财政部、商务部三方同时联动，展示了川普政府消灭邪恶势力并维护世界和平的决心。
 
 0
