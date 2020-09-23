@@ -1,23 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統：只有善待自己的國民才真正具備與人合作的基礎—75屆聯合國大會講話
-`2020-09-22 12:54 GM65` [轉載自GNews](https://gnews.org/zh-hant/377957/)
+## 236期疫情播報 文字版9/16
+`2020-09-22 21:33 GM62` [轉載自GNews](https://gnews.org/zh-hant/378492/)
 
-9月22日，美國川普總統在第75屆聯合國大會的首日一般性辯論中發表講話，談到美國在應對疫情全球爆發和維護世界和平方面作出的努力和取得的成績。川普總統的講話內容，劍指中共等流氓政權對世界和平和繁榮帶來的威脅和損害。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/22124924/Screen-Shot-2020-09-22-at-12.11.31.jpeg)
-作為演講結束語，川普總統說：
+1. 9月15日, 字節跳動稱通過巧妙的制度安排，保住對TikTok美國的絕對控制權。隨後該篇文章內容被全網刪除。
+2. 9月15日中辦發文，鼓勵民營企業參與混合所有制改革。共產黨開始控制私有資本，變相搞公有制。
+3. 閆博士于9月14日發佈新型冠狀病毒的最新報告,在全世界引起極大的轟動，論文下載超50萬次，全球多家媒體進行報導。 9月15日英雄科學家閆麗夢推特被禁，納瓦羅、霍利、布萊克本參議員紛紛發推質詢為什麼閆博士推特被封？
+4. 內蒙古反對新雙語教育改革事件繼續發酵，CCP員警抓孩子去上學，找不到孩子就帶走家長。
+5. 中共國外交部長王毅15日訪問蒙古國，100多位蒙古民眾聚集首都烏蘭巴托的廣場，抗議北京壓制蒙古族語言和文化。
+6. 銀行怪相”被貸款”：全村幾十人被莫名奇妙的貸款，銀行工作人員卻不肯給出解釋。受害者介紹：銀行突然通知我，我有一萬塊錢的貸款，是2006年的,而我這一輩子從來沒貸過款。
+7. CCP黑警在香港的抓人手段和恐怖組織無差別
+8. ( 科頓參議員，9/15）2000年之前，總統和國會每年都會審查中共國是否在發展市場經濟和人權的保護方面有所進步。我們需要重新開始執行這個政策，這樣我們就可以逐年向中共國施加壓力，讓他們停止竊取我們的智慧財產權，阻止他們對美國的產品設計和工程而製造的所有剽竊行為。我們需要向他們施壓要求他們尊重本國公民的權利，讓他們堅守其國際承諾。
+9. ( Jack Posobiec，9/15）本來承諾50年的期限，結果20多年就結束了。北京當局已將他們的黑手伸向了香港地區，新界、九龍；整個地區已經完全被他們直接控制。  因此我們才會看到最近他們對赴港美國公民的打壓。他們會逮捕跟我一樣有軍事背景的人，藉口是””這是美國情報人員到香港支持抗議運動和破壞我們在香港的主權來了。 “” 但事實是，在香港只要有人敢於站出來爭取自己的人權和作為自由公民應有的權利，中共就用新的國安法來鎮壓他們。
+10. （9/13）共產黨會很兇殘接下來，因為它在臨死前它不得整點兒事兒嗎？剛剛大家看到了澳大利亞，中共振華企業搜索海外的外國領導人的資訊。三年前我就說了，BGY，就是這個藍金黃(注1)。又是像美國司法部檔（DOJ）一樣證明了我們爆料革命的情報的準確和真實。現在攻擊咱的都什麼人，有頭有面的，最大的媒體、最牛的人、最高的人。為什麼？這到了決戰的時候了，咱們有價值咱有能力。
 
-“For decades, the same tired voices proposed the same failed solutions, pursuing global ambitions at the expense of their own people. But only when you take care of your own citizens will you find a true basis for cooperation. As president, I have rejected the failed approaches of the past, and I am proudly putting America first, just as you should be putting your countries first. That's okay. That's what you should be doing.”
 
-“幾十年來，一些老生常談的論調一直在提議一些行不通的解決方案，（卻同時）以犧牲自己的人民為代價尋求實現全球野心。然而，只有善待了自己的國民，你才真正具備與人合作的基礎。作為總統，我摒棄了過去所有失敗的做法，自豪地將美國放在首位，你們同樣應該把自己的國家放在首位。這沒什麼不好。這是大家應該做的。”
+(注1：BGY藍金黃代表藍色、金色和黃色。藍，指網路監視和攻擊以及資訊控制；金，指金錢利益賄賂手段；黃，指利用性的陷阱和控制手段。）
 
-“I am supremely confident that next year, when we gather in person, we will be in the midst of one of the greatest years in our history. And frankly, hopefully, in the history of the world. Thank you, God bless you all . God bless America. And God bless the United Nations.”
-
-“我超級有信心，當明年面對面聚到一起時，我們將處於美國歷史上最偉大的時代之一。坦率講，希望也是世界歷史的偉大時刻。謝謝。願上帝保佑眾生，保佑美國，保佑聯合國！”
-
-川普總統一句“以犧牲自己的人民為代價尋求實現全球野心”，已經等同於指責中共虐待、欺壓、剝削、奴役中國人民，以達到他們控制世界的野心。他說“只有善待了自己的國民，你才真正具備與人合作的基礎”，就是告訴中共，沒了中國人民，它什麼都不是，世界上沒有人會跟他們合作。川普政府的執政基本理念就是：“美國首位”和“美國人首位”（America first. American people first.)中國人民應該醒過來，我們同樣需要這樣一個民主政權，“中國首位”，“中國人首位”（China first. Chinese people first.)
-
-[視頻鏈接](https://www.youtube.com/watch?v=JcgSNdMAIhw)
- 
-1
+0
