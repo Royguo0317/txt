@@ -1,28 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共軍機頻繁越過海峽中線 美偵察機加緊搜集電磁信息
-`2020-09-23 01:39 GM64` [轉載自GNews](https://gnews.org/zh-hant/379123/)
+## 【VOG多語種新聞播報（西語）0909期】路德社解析中共軍方少將陳薇研製的“殺人疫苗”
+`2020-09-23 04:48 GM62` [轉載自GNews](https://gnews.org/zh-hant/379346/)
 
-內軍事：鷹(文言) 校對：七哩香
+西班牙語標題 Lude Media analiza la “vacuna mortal” desarrollada por Chen Wei, general de división militar del PCCh.
 
-鳳凰網9月21日報道，9月14日，美方3架B52H戰略轟炸機出現在俄羅斯邊境地區，隨後俄羅斯戰機緊急起飛對其進行攔截，但事後披露三架B52H僅僅是誘餌，目的是爲了遠處的RC135電子戰飛機能夠收集分析俄羅斯方面的警戒雷達的電磁信息以及戰機和地面的通訊信息。
+編輯記者：川渝小哥G 校對編輯：文劍
+西語翻譯: 謎擬Q
+西語校對：帅虎
+播音：胜利之光
 
-面對中共方在惡意制造台海緊張局勢，美軍于9月9日，派遣1架RC-135S導彈監視機（AE01D6）現身于黃海，1架EP-3E電子偵察機（AE1D91）現身南海，對中共軍方沿海基地雷達信號進行偵察。
+視頻簡介
 
-9月18、19、20日中共空軍連續三天派遣數十架軍機飛越台海中線，並進入台西南空域，21日兩架運-8反潛機再次侵入台西南“防空識別區”。9月21日，外交部更是官方表態不承認“海峽中線”，公然撕毀兩岸和平契約。
-
-面對中共軍如此挑釁，台灣方面均多次緊急起飛搭載實彈的F-16等戰機，進行驅離。9月20日，台防務部門將“戰備規定”中的“第一擊”改稱爲“行使自衛反擊權”，允許批准後行駛自衛反擊。9月22日，無預警展開舉行“聯翔操演”，全台戰機清晨紛紛緊急起飛模擬反應與共軍來襲戰機接戰與制敵。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/23013851/27-1.jpg)
-在台灣回擊中共非法越線時，美軍也加大對中共雷達的電磁信息以及戰機和地面的通訊信息收集和分析。9月20日美一架EP-3、一架E-8C偵察機和中共軍機同時現身台西南空域。9月22日，美海軍1架EP-3E淩晨5時進入南海進行偵察，11時，1架P-3C反潛巡邏機前往南海偵察，13時許，1架RC-135S導彈監視機（AE01D6）從衝繩嘉手納起飛推測是前往黃海。
-
-面對美軍如此高頻率的偵察，即便中共官媒宣稱的800公裏有39個空軍基地，但只要雷達電磁信息被獲取，一旦中共方惡意制造擦槍走火，其在沿岸導彈能否發射、戰機與地面通信和戰鬥力效能，都要大打折扣。
-
-新聞來源：
-
-美軍成功設伏，轟炸機引誘地面雷達開機，多架特戰機蜂擁而上
-[https://mil.ifeng.com/c/7zxDHaRqVKL](https://mil.ifeng.com/c/7zxDHaRqVKL)
-美空軍又派偵察機飛臨黃海上空 循環飛行多圈後飛離
-[https://mil.news.sina.com.cn/china/2020-09-23/doc-iivhuipp5908670.shtml](https://mil.news.sina.com.cn/china/2020-09-23/doc-iivhuipp5908670.shtml)
+En la noche del 9 de septiembre, horario del este (ET) del hemisferio occidental, Lude Media analizó el proceso de investigación y desarrollo de la nueva vacuna contra el coronavirus desarrollada por el PCCh. Esta fue desarrollada dentro de los 40 días posteriores a que Chen Wei, general de división del EPL, se asentara en Wuhan, el lugar de nacimiento del nuevo coronavirus. Se saltaron la fase 3 de los ensayos clínicos, la fase importante, el PCCh anunció oficialmente que la vacuna se desarrolló con éxito y se promociona ampliamente en todo el mundo.
 
 0

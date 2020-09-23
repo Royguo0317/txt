@@ -1,65 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 閆麗夢博士：我是被消失的目標
-`2020-09-22 20:30 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/378581/)
+## 【重磅】《路德時評》再爆一對中共病毒研究重要人物——周育森和杜蘭英
+`2020-09-23 01:04 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/379037/)
 
-*新聞來源：《零對沖》；作者：Tyler Durden；發佈時間： 2020年9月16日*
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/23022047/Lude_20200923PM-photo2.jpg)
+《路德時評》[2020年9月22日晚間節目](https://www.youtube.com/watch?v=aQ8yq0EfAyE)再次重磅爆料一對中共國病毒研究領域專家——周育森和[杜蘭英](https://nybloodcenter.org/lindsley-f-kimball-research-institute/investigators/lanying-du/)，他們也參與中共病毒生化武器研究。周育森作為病毒研究領域重要專家已於2020年5月份去世，其妻子杜蘭英看似異常冷靜，這些表現極為反常。
 
-*翻譯/簡評：沐子璐璐；校對/審核：InAHurry；Page：拱卒*
+現將周育森基本資訊介紹如下：
 
-[!\[\](https://spark.adobe.com/page/uBTHoW9l1YmPX/images/111d24d2-ad42-4112-a67f-370039760d1e.jpg?asset_id=d941bea0-03f1-4ea5-be65-9960cb0611f4&amp;img_etag=%22e74a5066ef1dd4a64e1bd258b859865a%22&amp;size=1024)](https://spark.adobe.com/page/uBTHoW9l1YmPX/images/111d24d2-ad42-4112-a67f-370039760d1e.jpg?asset_id=d941bea0-03f1-4ea5-be65-9960cb0611f4&amp;img_etag=%22e74a5066ef1dd4a64e1bd258b859865a%22&amp;size=1024)
+周育森，男 1966年生，安徽淮北人。博士、研究員、博士研究生導師、**中國**[**軍事醫學科學院**](https://baike.baidu.com/item/%E5%86%9B%E4%BA%8B%E5%8C%BB%E5%AD%A6%E7%A7%91%E5%AD%A6%E9%99%A2)**微生物流行病研究所病原分子生物學研究室主任、病原微生物生物安全國家重點實驗室病原生物學專業實驗室負責人**[\[1\]](https://baike.baidu.com/item/%E5%91%A8%E8%82%B2%E6%A3%AE/3564287?fr=aladdin)。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/23025903/Lude_20200923PM-figure3.png)
+鄭州大學公共衛生學院兼職教授，安徽醫科大學兼職教授，美國匹斯堡大學客座教授等。1998年畢業於中國軍事醫學科學院，獲醫學博士學位，其博士畢業論文獲2000年度全國百名優秀博士論文獎。2000至2003年在美國匹茲堡大學醫學院進行博士後研究。
 
-**簡評：**
+**專業擅長：主要從事肝炎病毒和新發傳染病病原學和免疫學方面的研究。**
 
-閆麗夢博士在7月份第一次接受福克斯採訪就肯定說這次新冠病毒是來自武漢實驗室，是被人工製成。今天再次接受福克斯採訪，不同的是，在這2個月期間，她還接受了War Room 的採訪和英國主流節目Loose Women的採訪。她已向美國人民，英國人民和全世界揭發病毒真相。此外，她還和另外三位中國科學家一起發表了一份26頁長的專業病毒報告，詳細介紹了病毒原理。她用事實和證據來證明病毒的真實來源。
+**主要成就**：1996年和1997年在國內率先報導了HGV和TTV病毒的發現和測定了國內病毒株的全基因序列，並進行了系統的致病性研究。先後獲得軍隊科技進步一等獎和省部級二等獎和三等獎等。建立的分子病原生物學研究室目前與美國匹茲堡大學（The University of Pittsburgh）、Paris Universty XI大學、紐約血液中心（New York Blood Center）和**香港大學**等聯合進行研究生和博士後的培養和科研合作。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/23020436/Lude_20200923PM-figure2.png)圖片來源：[https://nybloodcenter.org/lindsley-f-kimball-research-institute/investigators/lanying-du/](https://nybloodcenter.org/lindsley-f-kimball-research-institute/investigators/lanying-du/) 
+周育森妻子名為**[杜蘭英](https://nybloodcenter.org/lindsley-f-kimball-research-institute/investigators/lanying-du/)**，她是美國紐約血液中心的副研究員，路德社爆料杜蘭英於07/08年在香港大學師從Malik和袁國勇教授進行博士後病毒研究工作。
 
-“為什麼中共要釋放病毒”，福克斯主持人卡爾森問出了很多人的疑問。閆博士的回答簡單真實“這要問釋放病毒的中共”。正常的政府和政黨還有大眾估計很難理解中共這種邪惡的做法。病毒真相越來清楚，讓我們拭目以待。
+周育森為軍事科學院研究室主任，**曹務春**（軍事醫學科學院微生物流行病研究所所長）是他的直接領導，長年從事微生物病毒研究致病性研究，周本人、杜蘭英以及[李放](https://vetmed.umn.edu/bio/college-of-veterinary-medicine/fang-li)多次共同參與病毒相關課題研究併發表論文。
 
-“我是目標”： 被沉默的中國病毒學家告訴塔克，新冠病毒是被故意釋放並且中共試圖讓她”消失”
+《路德時評》爆料周育森5月份因不明原因死亡，其死亡時間點和原因十分蹊蹺，周死亡前並無身體異樣徵兆。2020年7月31日媒體首次提及周育森“已故”，該文章是他與幾位研究人員共同在《Science》雜誌上發表的研究成果[\[2\]](https://www.medsci.cn/article/show_article.do?id=e1e419845858)。同時，據路德時評爆料周育森妻子杜蘭英對其丈夫死亡表現得異常平靜，始終保持沉默。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/23034947/Lude_20200923PM-figure4.png)
+上周，比爾格茨提及中共國軍方病毒重要人士逃亡歐洲後已與華盛頓建立聯繫，並向美方提供重要情報。據說該軍方人士掌握中共國軍方研究病毒生化武器重要證據資料，並於4月份逃離中共國前往歐洲，隨即其身邊多位研究人員被捕受到監控，周育森作為軍事科學院病毒研究重要人員在5月出現異常死亡和此事必有莫大聯繫。
 
-在中國病毒學專家閆麗夢博士的推特賬號，據猜測因為她要公佈新冠病毒（SARS-CoV-2）來自中共武漢實驗室的證而據被輕率關閉的幾小時後，她出現在《卡爾森今晚》接受福克斯新聞的採訪。在採訪中，她告訴主持人該病毒就像是科學怪人是被人工合成用來攻擊人類，而且是被中共故意釋放出來的。
+除周育森外，路德社透露中共國還有一位病毒研究專家因心臟病死亡，詳細資訊將會在未來節目中揭曉，敬請期待！
 
-[!\[\](https://spark.adobe.com/page/uBTHoW9l1YmPX/images/34d28665-7e06-4971-957d-01e3d44ded2a.png?asset_id=84097782-04d0-4a60-8d05-c0ed4e5be776&amp;img_etag=%2215beb0faec514fa34296933320742922%22&amp;size=2560)](https://spark.adobe.com/page/uBTHoW9l1YmPX/images/34d28665-7e06-4971-957d-01e3d44ded2a.png?asset_id=84097782-04d0-4a60-8d05-c0ed4e5be776&amp;img_etag=%2215beb0faec514fa34296933320742922%22&amp;size=1024)
+相關鏈接：
 
-“它絕不可能來自自然界，”閆—這位在香港大學從事冠狀病毒研究的醫學雙博士這樣說道。
+[1] [https://baike.baidu.com/item/%E5%91%A8%E8%82%B2%E6%A3%AE/3564287?fr=aladdin](https://baike.baidu.com/item/%E5%91%A8%E8%82%B2%E6%A3%AE/3564287?fr=aladdin)
 
-她和另外三位中國科學家一起發表的一份26頁的科學報告裡指出“該病毒根本不是來自自然”因為“在基因組裡留有證據”。她說：“（中共和其幫兇）不想讓人們知道真相，這也是為什麼我的推特賬號被暫停和我被打壓的原因，我是中共想要“消失”的對象”。
+[2] [https://www.medsci.cn/article/show\_article.do?id=e1e419845858](https://www.medsci.cn/article/show_article.do?id=e1e419845858)
 
-當卡爾森問為什麼她認為這個病毒是從武漢實驗室釋放出來的，閆博士說：“我在世衛組織參比實驗室工作過，這是個坐落在香港大學的世界上頂尖病毒實驗室。在病毒爆發早期，我便開始深度秘密調查病毒情況- 我通過自己在中國的醫院，研究所和政府部們的人脈，收集了有關病毒的情報。
+文章撰寫：【重生】编辑：【Isaiah4031】
 
-除此之外，再結合我的工作經驗，我可以肯定地說這種病毒就是來自實驗室。
+戰友之家玫瑰園小隊出品
 
-請看以下福克斯對閆麗夢博士採訪的視頻
+相關新聞：
 
+[路德談中共的生物武器並點名關鍵中共病毒科學家（2000.09.08）](https://gnews.org/zh-hant/353699/)
 
-
-閆博士在今年4月28日乘坐國泰航空航班離開了香港，飛往美國。她認為她的生命受到危險，她不能再回到中共國。閆博士在今年7月份的採訪中告訴福克斯“我來到美國的原因是傳遞新冠病毒的真相”。
-
-![](https://spark.adobe.com/page/uBTHoW9l1YmPX/images/fd5457b2-a38b-4056-946c-29ea31198488.jpg?asset_id=74a57309-6592-49e4-ba2f-42a2ca508a9e&amp;img_etag=%228bf4e90f96ab5e4f0ce8690f378b7dc3%22&amp;size=1024)
-
-如我們當時所報導的：
-
-閆博士說當那些曾公開討論該病毒的醫生和研究人員被禁聲後，中國醫生們之間對該病毒的討論態度出現了急劇轉變。她在武漢的聯繫人，有些徹底消失了，有些人警告她不要再向他們打聽病毒的事情並告訴閆博士“我們不能討論病毒，但我們必須開始戴口罩”。
-
-閆博士說：“有很多患者不能及時得到治療和診斷”。她還補充道：“中國醫院的醫生對病毒感到恐懼，但是他們不能說。 中國疾病控制和預防中心（CDC）的工作人員也感到極度害怕”。
-
-閆博士說在今年1月16日當她再次把她的新冠病毒的調查報告遞交給她的主管時，據說她的主管曾告訴她“你要保持沉默，要小心”。
-
-”就如他之前警告過我的那樣，他說’不要碰紅線’”，閆博士說這裡這位主管指的是不要碰政府的紅線。這位主管還說“否則我們會惹大麻煩並會被’消失’”。
-
-閆博士還指認世界衛生組織附屬實驗室的聯合主任裴偉士也知道實情但選擇了置之不理。
-
-裴偉士對我們的置評請求沒作任何回复。世衛組織的官網上公佈，裴偉士是國際衛生條例肺炎緊急委員會新冠狀病毒的顧問。
-
-閆博士趕到很沮喪，但是並不驚訝—福克斯新聞
-
-閆博士說：“我早已預料到這會發生，因為我知道如世衛組織這樣的國際機構與中共國政府之間的腐敗，與中國共產黨之間的勾兌。基本上，我可以接受這個事情，但是我不想讓假象誤導全世界”。
-
-世衛組織否認了裴偉士教授直接工作為其工作，並在一份聲明中告訴福克斯新聞“裴偉士教授是一名傳染病專家，他擔任過世衛組織任務和專家組成員，像很多人一樣在他自己的領域非常傑出，但這不等於他是世衛組織的工作成員，更不能代表世衛組織。“
-
-[原文鏈接](https://www.zerohedge.com/medical/i-am-target-silenced-chinese-virologist-tells-tucker-covid-19-intentionally-released-ccp)
-
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/uBTHoW9l1YmPX/)
+[路德社點名的中共病毒專家「李放」](https://gnews.org/zh-hant/345593/)
 
 0
