@@ -1,55 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共國利用“友情團體”滲透和分化歐洲
-`2020-09-24 01:26 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/381104/)
+## 採訪閆麗夢博士的約翰·弗雷德里克斯是什麼人
+`2020-09-24 02:15 立武` [轉載自GNews](https://gnews.org/zh-hant/381190/)
 
-*新聞來源：《零對沖(Zero Hedge)》；作者：Tyler Durden轉自大紀元時報；發佈時間：2020*年8月14日
+9月23日，閆麗夢博士接受了**弗吉尼亞州保守電台脫口秀節目主持人約翰·弗雷德里克斯（John Fredericks）**的採訪，閆博士重申了病毒來自於**中共控制的頂級病毒實驗室，是中共故意釋放的生物武器，並且明確表示自己就是證人。**
 
-*翻譯/簡評：Jam；校對：Beicy-數學老師；審核：InAHurry；Page：草根文人*
+> 英雄科学家和众多议员一起在这个共和党最有影响力的radio频道做节目谈病毒来源真相。大家去听！ [https://t.co/Szg1DDg8Wc](https://t.co/Szg1DDg8Wc)
+> — 路德 (@ding\_gang) [September 23, 2020](https://twitter.com/ding_gang/status/1308739176364376064?ref_src=twsrc%5Etfw)
 
-**簡評：**
+採訪閆博士的弗雷德里克斯**與班農先生、川普總統關係都十分密切，**是一名強硬的保守派人士，**堅定地與中國人民站在一起。**
 
-中共國在歐洲的藍金黃行為早已眾所皆知，在金融，政治，媒體上面的滲透達到了前所未有的廣度與深度。這一次戰略與預算評估中心發布的報告，提供了三個簡短的研究案例：歐盟–中共友好協會，意大利對華友好協會，捷中友好合作協會。
+**約翰·弗雷德里克斯**
 
-報告以這三個案例,來研究分析中共遍布歐洲的友誼協會或團體的成立途徑、活動目的以及中共對這些團體的分層次控制使用方式。報告並提出了歐盟可採取的具體行動策略，以對抗中共在歐洲的滲透與分化。
+約翰·弗雷德里克斯是**[資深媒體行政人員，](https://www.johnfredericksradio.com/about/)**擁有40多年的經驗，曾擔任**主流市場報紙發行人、廣告總監、社論頁面編輯、電視主持人、聯合廣播主持人、評論員和報紙專欄作家。**他的報導包括商業、經濟和政治在內的全國性新聞事件。
 
-這篇報告雖然早在8月14日發布, 但今天翻譯閱讀, 我們更能夠體會到在當前大決戰的背景下，滅共戰略早已經制定完成。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/24015136/DEJ5VPJ25VDBJOVRNYISU2QEY4-1.jpg)右為約翰·弗雷德里克斯
 
-中共國利用“友情團體”滲透和分化歐洲
+他先是在報紙公司**McClatchy Co.**擔任**[全國廣告高級副總裁。](https://www.pilotonline.com/news/article_338bab94-8cb3-5095-a9e8-c51db79418e7.html)**
 
-在戰略與預算評估中心最近發布的一份報告中，提到了**中共通過其“友情團體”甄選歐洲政治和商業精英。**
+2007年，他和妻子在**亞特拉大郊區**發行了**名為《燈塔》的每週報紙。**
 
-這些“友情團體”表面上打著中歐之間教育和文化的交流，但實際上，它們是中共代表用來幫助中共統一戰線分裂歐洲的喉舌和中介。
+2011後，他在**Newport News****的《每日新聞》**擔任**意見編輯。**
 
-[!\[\](https://spark.adobe.com/page/q2ZykO4i53gwx/images/76f7887d-97c0-411d-a48a-50d216be5dba.jpg?asset_id=af4cb532-aed3-48a0-a161-ba78edcc8e4c&amp;img_etag=%22226ec178e086711fd246f6b6128b5dac%22&amp;size=1024)](https://spark.adobe.com/page/q2ZykO4i53gwx/images/76f7887d-97c0-411d-a48a-50d216be5dba.jpg?asset_id=af4cb532-aed3-48a0-a161-ba78edcc8e4c&amp;img_etag=%22226ec178e086711fd246f6b6128b5dac%22&amp;size=1024)
+他是**美國首位在****2015****年6****月認可川普擔任總統的媒體人物，**並正確預測了他的提名和大選勝利。
 
-七月一日，戰略與預算評估中心發表了一篇名為《揭露中共國在歐洲的影響：友情團體如何選擇歐洲精英》的出版物。報告指出**“友情團體”是促進北京國內優先事務和外交政策目標的喉舌與中介。**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/24014957/Dz8q4nFW0AAe6Ad-1-1.jpg)左為約翰·弗雷德里克斯
 
-這些團體由當地的政治與商業精英組成，他們通過各種公共活動來**幫助清除所有關於中共的負面言論**，並支持有利於中共的歐洲政策。
+他在2016年當選為**弗吉尼亞州第四國會區****2016****年共和黨代表大會的國家代表，**目前是**川普****/****彭斯2020****顧問委員會的成員。**
 
-**報告摘要**
+他同時也擔任**白宮通訊員和有線電視新聞網的攥稿人。**
 
-歐洲已經成為中國共產黨全球政治影響力運動的主要戰場。這項關於中共在歐洲影響力的研究專注於講述中共國在全球多方面宣傳的一個部分：“友誼會”扮演的角色。 “中共國友誼會”的組成和任務大不相同。一般來說，他們由在海外特定國家的政治、商業和其他領域的精英組成，旨在促進與中共國緊密的雙邊關係。
+川普評價弗雷德里克斯一直是**[“我的好運”](https://www.johnfredericksradio.com/president-donald-j-trump/) ，“我要感謝約翰的堅定支持。約翰是一個很有才華和常識的人”。**
 
-該報告指出，“友誼協會”是前台組織，通過直接或間接渠道和黨派建立聯繫。這些前線組織是推動中共國國內優先事務和外交政策目標的喉舌和中介。他們依靠從歐洲政治階層和工商界中選出來的精英來領導和填補職位。 (這些)友誼團體經常被偽裝成由東道國自己的公民（包括前任和現任政客）經營的本土組織。
+**[班農先生目前正在與John Fredericks廣播網絡合作](http://www.insideradio.com/podcastnewsdaily/trump-ally-steve-bannon-launches-impeachment-focused-podcast-and-radio-show/article_9157987e-f5b5-11e9-b333-2fd7cf9ae93d.html)，** John Fredericks廣播網絡是由弗雷德里克斯創建的無線網絡，用於傳播他**每天的保守脫口秀節目。**
 
-該研究發現，被選中的外國人享有影響力、號召力和人脈，以微妙的方式或其它多種方式實現中共國的目標。與中共國同流合污的那些人，反對損害北京形象的言論，舉辦公開活動彰顯共產黨美德，鼓勵招商引資，科技交流，並對有利於中共國的歐洲政策表示支持。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/24015113/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2020-09-24-1230407-1.png)約翰·弗雷德里克斯接受班農戰斗室採訪
 
-[!\[\](https://spark.adobe.com/page/q2ZykO4i53gwx/images/30c73e89-a439-41f8-b626-b8099cb5942c.jpg?asset_id=edaa3c7b-798e-4eb5-af23-93f3aa850af9&amp;img_etag=%22bbd0555eeb593f4f6d193453d75e52d9%22&amp;size=1024)](https://spark.adobe.com/page/q2ZykO4i53gwx/images/30c73e89-a439-41f8-b626-b8099cb5942c.jpg?asset_id=edaa3c7b-798e-4eb5-af23-93f3aa850af9&amp;img_etag=%22bbd0555eeb593f4f6d193453d75e52d9%22&amp;size=1024)
+在一次節目中，班農先生評價弗雷德里克斯，他表示**[“你不能選出比約翰·弗雷德里克斯更好的人…要想贏得勝利，就必須讓像約翰這樣的人擔任領導職務…我們需要一些堅強的人來做到這一點，因此，您始終得到我的支持…”](https://bluevirginia.us/2019/08/audio-alt-right-steve-bannon-who-said-let-them-call-you-racist-wear-it-as-a-badge-of-honor-endorses-right-wing-radio-host-for-trump-2016-virginia-campaign-chair)**
 
-報告提供了三個簡短的研究案例：歐盟–中共友好協會，意大利對華友好協會，捷中友好合作協會。這些案例研究表明，不乏願意(與中共)合作的人來領導和加入友誼協會。這三個協會的領導人都明確表態，並採取對共產黨有益但與歐洲價值觀和利益背道而馳的行動。他們支持歐洲在可能有安全隱患的領域與中共國進行更深的互動，並且推動了一帶一路倡議(的實施)。
+弗雷德里克斯針對班農先生和戰斗室節目的評價則是，“史蒂夫·班農一直以來都是**[中共鷹派，也是爭取中國人民自由的全球領袖，他是世界上首批准確預測並引發人們對冠狀病毒大流行病關注的人之一，](https://www.trumpnationnews.com/steve-bannon-and-john-fredericks-network-to-host-groundbreaking-special-descent-into-hell-life-of-chinese-under-the-ccp-on-april-11-2020/)**該節目在詳細的策略和關注中共的世界專家的第一手新聞方面具有開創性。”
 
-友誼團體對中共的價值可能取決於(他們的)影響力運動在共產黨更大區域和全球戰略中的地位。這些(友誼)協會在歐洲大國和周圍國家無處不在，產生了多種可能性。北京也許在嘗試贏得盡可能多歐洲國家的政府(支持)。或者，共產黨也許通過一個非直接的方式侵蝕歐洲的集體意願。通過逐漸剝離歐洲的弱小國家，共產黨可能正試圖破壞歐洲的共識。同時，共產黨重視較小國家在多邊論壇中的集體權重。
+**弗雷德里克斯的報導**
 
-歐洲當局和社會當前處於一個很適合實施有針對性的政策來了解、監控和反對友誼團體的狀態。歐洲許多學術機構應促進對中共國利用主要資源進行操縱影響力活動進行嚴格深入的研究。歐洲政界人士應建立官方機構報告機制和程序，作為對中共影響力活動的公共的政府級記錄。歐洲政府和歐盟(EU)機構需要在必要時制定相應的規則和條例來增強問責性和透明度。
+弗雷德里克斯以其**強硬的報導與深入的新聞分析**相結合而聞名。利用他**廣泛的人脈、出色的聲譽和豐富的經驗，**弗雷德里克斯將**最知名的人物和知識最淵博的專家**帶到他的節目中，為聽眾提供他們**做出針對美國所面臨問題的決策**所需的信息。
 
-歐洲民間社會組織和企業應通過建立跨國網絡或工作小組來集中資源和分享信息，來支持研究分析中共國試圖施加影響的政治、經濟和社會領域。最後，歐洲應從那些支持民主政府但同樣面對中共國挑戰的正式和非正式網絡中汲取力量。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/24015018/fredericksPence-1.png)右為約翰·弗雷德里克斯
 
-從這項研究中產生的結論只是初步的。覆蓋區域更廣、尤其是更深層次的嚴格研究更具有效性，可以更加了解友誼協會(這類組織)的影響。對不同國家之間的友誼團體進行比較也許可以進一步了解中共的戰略、優先目標和操作模式。這樣有助於決策者找出歐洲較薄弱和壓力大的社區，從而可以讓決策者相應地分配更多注意力和資源(到相應的區域)。
+他採訪的對像匯集了**美國決策者和推動者，**其中包括**川普總統、彭斯副總統、蓬佩奧國務卿、班農先生、前眾議院院長紐特·金里奇**等等。
 
-[原文鏈接](https://www.zerohedge.com/geopolitical/china-uses-friendship-groups-infiltrate-and-divide-europe)
+在全國范圍內，他的競選預測已被證明極其準確，**他選舉前的賠率分析和預測已經成為美國政客的“必聽之選”。**
 
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/q2ZykO4i53gwx/)
+4月14日，弗雷德里克斯在WNTW Richmond採訪了**[蓬佩奧國務卿關於中共病毒的諸多問題。](https://www.state.gov/secretary-michael-r-pompeo-with-john-fredericks-of-the-john-fredericks-show-wntw-richmond/)**
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/24015044/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2020-09-24-1252938-1.png)約翰·弗雷德里克斯採訪蓬佩奧國務卿
+
+弗雷德里克斯以**John Rogin****關於武漢P4****實驗室的報導**入手，詢問的主題包括**中共掩蓋疫情真相、拒絕美國****CDC****介入調查、美國針對WHO****的立場以及85%****的醫療用品供應鏈位於中國的問題**等等。
+
+蓬佩奧在採訪中明確表態， **（中共）病毒起源於武漢，**他還表示， **WHO****在疫情中失職，美國不希望花一美元建立一個不能保證美國人安全的組織。**
+
+蓬佩奧的回應**預示了後來針對WHO的一系列行動**以及美國在中共病毒上的強硬立場。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/24020659/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2020-09-24-1405232-1.png)出現在路德先生分享的視頻中的班農先生和約翰·弗雷德里克斯
+
+8月12日，班農先生在接受弗雷德里克斯的採訪時討論了**[關於中國共產黨和中共病毒起源的問題，](https://tennesseestar.com/2020/08/12/the-john-fredericks-show-steve-bannon-discusses-the-chinese-communist-party-and-the-origins-of-the-coronavirus/)**班農先生在節目中提到了**閆博士和意大利的Tritto博士**，弗雷德里克斯直稱這是**“戰爭武器”、“生物武器”。**
+
+9月22日，班農先生在弗雷德里克斯的節目中接受了採訪，**[主持採訪的是紐約青年共和黨俱樂部主席（Gavin Wax），](https://tennesseestar.com/2020/09/22/steve-bannon-on-the-john-fredericks-show-how-democrats-plan-to-steal-the-election/)**班農在節目中揭示了民主黨如何破壞選舉。 **[（出現在路德先生分享的那段班農先生演講的視頻中）](https://www.youtube.com/watch?v=r9-Gqp-TgZQ)**
 
 0
