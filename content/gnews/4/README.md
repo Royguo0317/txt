@@ -1,13 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共產黨玩兒火，玩兒大啦！
-`2020-09-25 06:25 GM31` [轉載自GNews](https://gnews.org/zh-hant/381584/)
+## 【世界多語言圖文】2020/09/18 CCP病毒每日疫情直播簡報
+`2020-09-25 09:59 GM62` [轉載自GNews](https://gnews.org/zh-hant/381850/)
 
-在郭先生9月24日的G-TV直播中，他提到美國總統大選已無疑意，未來48小時就結束，共產黨玩大了。下面等著看新聞吧，天意啊。RICO法案起作用了，欺民賊跑到中國都會被抓回來。所有一切的發生的事情都是對咱們有利的。戰友要摟住，敬請關注路德訪談。
+戰友之家圖文摘要及小語種組
 
-*聽寫：【Jamie(文胤)】  翻譯：【noraTina】字幕：【相機過熱啊】視頻轉碼: 【恒久忍耐】 編輯:【GM31】*
+[English\_0918\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25095642/English_0918_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25095642/English_0918_CCP_Virus_Updates.pdf)
 
-*戰友之家玫瑰園小隊出品*
+[French\_0918\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25095655/French_0918_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25095655/French_0918_CCP_Virus_Updates.pdf)
+
+[German\_0918\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25095646/German_0918_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25095646/German_0918_CCP_Virus_Updates_.pdf)
+
+[Korean\_0918\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25095659/Korean_0918_CCP_Virus_Updates_238.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25095659/Korean_0918_CCP_Virus_Updates_238.pdf)
+
+[Spanish\_0918\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25095651/Spanish_0918_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25095651/Spanish_0918_CCP_Virus_Updates.pdf)
 
 0

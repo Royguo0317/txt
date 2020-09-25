@@ -1,37 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 國務卿彭培奧：在公共領域堅守信仰 （採訪環節）
-`2020-09-25 06:02 GM31` [轉載自GNews](https://gnews.org/zh-hant/381499/)
+## 【世界多語言圖文】2020/09/17 CCP病毒每日疫情直播簡報
+`2020-09-25 09:52 GM62` [轉載自GNews](https://gnews.org/zh-hant/381815/)
 
-美國國務卿彭培奧於9月20日來到Prestonwood Baptist Church 參加主日禮拜活動並分享了其信仰之路，在做完題為“**[在公共領域堅守信仰](https://gnews.org/zh-hant/376325/)**”的發言後，他接受了 Graham 牧師採訪:
+戰友之家圖文摘要及小語種組
 
-Graham牧師：告訴我們您對人生和生命神聖的看法。
+[English\_0917\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094921/English_0917_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094921/English_0917_CCP_Virus_Updates.pdf)
 
-蓬佩奧國務卿：你們都對此保持正確的立場，這很重要。要堅守立場。在人類尊嚴和保護每個人的生命這一核心問題上，永遠不要採取模菱兩可的立場。
+[French\_0917\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094917/French_0917_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094917/French_0917_CCP_Virus_Updates.pdf)
 
-Graham牧師：作為基督徒，我們如何看待我們的國家並熱愛我們的國家？我們可以像我們想要的那樣愛我們的國家嗎？
+[German\_0917\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094934/German_0917_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094934/German_0917_CCP_Virus_Updates_.pdf)
 
-蓬佩奧國務卿：我們不僅可以而且必須。我認為有兩件事。
+[Japanese\_0917\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094930/Japanese_0917_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094930/Japanese_0917_CCP_Virus_Updates.pdf)
 
-首先，我們怎麼在世界上展現自己，那在我們的公民生活中也就必須這樣做。其次，我們需要回歸到建國先輩們對信仰的核心理解，以及猶太教-基督教國家對世界的核心作用，並且我們必須堅守這一點，我們不能讓任何人試圖重寫截然不同的歷史。我們堅持並繼續建立這些傳統是絕對必要的，這是給我們的孩子和孫子們的，絕對必要！
+[Korean\_0917\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094940/Korean_0917_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094940/Korean_0917_CCP_Virus_Updates.pdf)
 
-*出處：**[Secretary Pompeo’s second remarks at the Prestonwood Baptist Church.](https://youtu.be/CGQLe9PoMaM?t=1002)*
-
-*翻譯：【倚天劍】校對：【**Rock**小哥】【**GM31**】【**GM80**】【**Isaiah4031**】字幕：【**Rock**小哥】*
-
-*戰友之家玫瑰園小隊出品*
-
-國務卿彭培奧：在公共領域堅守信仰：
-
-> [國務卿彭培奧：在公共領域堅守信仰](https://gnews.org/zh-hant/376325/)
-
-講話中英文對照：
-
-> [蓬佩奧國務卿在普勒斯頓伍德教會分享其信仰經歷](https://gnews.org/zh-hant/373572/)
-
-彭培奧將參加主日崇拜預告：
-
-> [蓬佩奧國務卿將來到普勒斯頓伍德浸信會教堂分享其信仰](https://gnews.org/zh-hant/368077/)
+[Spanish\_0917\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094926/Spanish_0917_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094926/Spanish_0917_CCP_Virus_Updates.pdf)
 
 0
