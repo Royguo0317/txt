@@ -1,21 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/09/17 CCP病毒每日疫情直播簡報
-`2020-09-25 09:52 GM62` [轉載自GNews](https://gnews.org/zh-hant/381815/)
+## 【作為一名佛教徒，我想替李祖原大師說兩句公道話】
+`2020-09-25 12:11 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/382273/)
 
-戰友之家圖文摘要及小語種組
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25120627/1-133.jpg)
+作者[\[email protected\]](/cdn-cgi/l/email-protection)
 
-[English\_0917\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094921/English_0917_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094921/English_0917_CCP_Virus_Updates.pdf)
+我初次知道李祖原大師，是在很多年以前，那次恰好到瀋陽出差，入住的酒店對面，就是瀋陽的方圓大廈。方圓大廈，顧名思義，有方有圓。可方圓大廈，外圓內方，初看上去，像一個巨大的銅錢！我當時禁不住脫口而出，是誰設計了這麼一個無比俗氣的建築？！同行的瀋陽同事告訴我，這是李祖原大師的作品，他是台灣的建築大師。再次聽到大師的名字，是從郭文貴先生的口中，為方便稱呼，以下統稱七哥。七哥說大師是他的貴人，更是他佛法的老師，跟他是如師如父的關係。最近一次聽到大師的名字，是在七哥跟台灣文欣姐的GTV連線中，七哥爆出李祖原大師在2016年，曾被CCP黑警秘密拘押，迫於無奈，不得不同意讓妻子給七哥打電話，說以後不再聯繫。CCP的無恥邪惡，實在是令人髮指！它們想用七哥最愛的人，來擊垮他和傷害他！七哥也說，當時他非常難過，在倫敦的雨中狂跑，淚水打濕了衣衫。從那以後，七哥沒有再跟大師聯繫過，甚至都不知道他是死是活。
 
-[French\_0917\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094917/French_0917_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094917/French_0917_CCP_Virus_Updates.pdf)
+李祖原大師，生於1938年12月30日，今年已82歲高齡。據七哥講，他師從台灣中台禪寺的惟覺老法師，深諳佛法。
 
-[German\_0917\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094934/German_0917_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094934/German_0917_CCP_Virus_Updates_.pdf)
+我個人非常理解七哥當時雨中狂跑難過的心情，李祖原大師之於七哥，亦師亦父，何其重要。七哥當初剛從看守所出來，就有幸得遇大師，可謂是三生有幸。想想看，當時的七哥正是血氣方剛的年紀，那麼年輕，就能跟隨大師這樣的人學習，多麼的難得！大師既是七哥的貴人，更是他人生的導師。七哥正是因為認識了大師，才開始了解佛法，進而重塑自我。古人說，一日為師，終身為父。2016年，正是七哥人生的至困時刻，大師在被脅迫之下，無奈地做出那個艱難的「不再聯繫」的決定，可以想見當時對七哥的傷害會有多大！
 
-[Japanese\_0917\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094930/Japanese_0917_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094930/Japanese_0917_CCP_Virus_Updates.pdf)
+寫到這裡，我不得不提出一個概念——熊貓思維。何謂「熊貓思維」，就是非黑即白的思維。CCP統治中國70年，它們在中國人的思維裡，悄悄地種下了一個毒，這個毒就是熊貓思維。中國老百姓，經常是遇到什麼問題，都會不自覺地落入這個陷阱。我們看CCP過去拍的電影，裡面的人物只有好壞兩種。就連像安徒生的童話《灰姑娘》裡面的人物，也被冠以非黑即白的模式。比如對童話裡灰姑娘的繼母，CCP給孩子們灌輸的永遠是壞人的形象。殊不知，那個看似惡毒的媽媽，恰恰也是為了疼愛她的另外兩個親生女兒，有什麼錯呢？我想說的是：人性如此複雜，怎麼能用簡單的黑白概括呢？
 
-[Korean\_0917\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094940/Korean_0917_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094940/Korean_0917_CCP_Virus_Updates.pdf)
+對於大師，也不應該用這種簡單的思維去判斷。從七哥的角度，大師確實沒能在脅迫下選擇堅持，看似非常的懦弱，其實卻未必。要知道，大師的這個決定，表面上傷害了七哥一個人，但同時也拯救了他自己的家人和同事。我是這樣想，大師對七哥的了解，可以說是超過所有人。他知道七哥是一個性格堅韌且無比勇敢的人，他雖然選擇不再聯繫，但他知道七哥絕對能挺過去。七哥也說，在後來的很多次的夢裡，他夢到自己在浴火重生，而大師則站在遠處望著他痛哭。我從這個細節，讀到了大師內心的無奈和痛苦，我們真的是無法了解他內心的真實想法的！大師修習佛法多年，他當然有取捨的智慧。我選擇相信他為了救更多的人，而不得不放棄或妥協。其實，他的內心很可能最最擔心和掛念著七哥，那種深深的痛苦，誰又能真正了解呢？七哥也說，大師疼愛他超過對自己的親生孩子。
 
-[Spanish\_0917\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094926/Spanish_0917_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094926/Spanish_0917_CCP_Virus_Updates.pdf)
+想起以前我的師父給我講過的一個關於佛陀的故事：燃灯佛住世时，释迦牟尼佛转生为一名大悲商主，他和五百商人一起去大海取宝。途中，一个叫短矛黑人，“黑人”是恶人之义，“短矛”是因他被大悲商主以短矛杀死，故因此而得名。心狠手辣的强盗，混入五百商人的群体中，企图到时候杀人掠财。當晚，大悲商主梦到海神告诉他：“短矛黑人准备杀这五百商人。这些商人全部是不退转菩萨，如果杀了他们，必将于无量劫身陷地狱，实在可怜！所以，你最好是能想个办法，让他不造这种恶业。”大悲商主醒后，不禁思维：“如果我杀了短矛黑人，便可避免他堕入地狱。就算我因此而下堕地狱，也是甘心情愿的。《大宝积经》云：大悲导师如是思惟：“我今当自杀之。我以杀此人故，虽百千劫堕恶道中受地狱苦，我能忍之。不令恶人害五百菩萨，作此恶缘受地狱苦。”这样三思之后，他以非凡的勇气，毅然决然地杀了那个强盗，救护了所有的商人。以此善念，大悲商主非但没有堕入恶趣，反而圆满了七万劫的资粮。
+
+上面這個故事告訴我們，有時候，我們表面上看到的事情，未必是真相。對於大師這件事，也是如此。我們並不知道，大師內心的真實想法和發心。如果他是因為出於對親人同事的慈悲，為了拯救更多的人，而選擇不再聯繫七哥，那我們不是大大地冤枉了他老人家嗎？！
+
+【本文僅代表作者個人觀點】
 
 0

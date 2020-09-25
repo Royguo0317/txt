@@ -1,65 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日新聞看點-2020年9月24日
-`2020-09-25 09:37 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/381786/)
+## 【中英文視頻版】2020/09/18 CCP病毒每日疫情直播簡報
+`2020-09-25 11:53 GM62` [轉載自GNews](https://gnews.org/zh-hant/382218/)
 
-喜馬拉雅聯盟加拿大農場 大地鯤鵬
+英文標題 CCP Virus Pandemic Updates Ep238: China “the digital RBM bears no interest.”
 
-一、疫情真相
+視頻重點
 
-1. 9月24日，閆麗夢博士接受CNN News18採訪時告訴大家，印度人民和中國人民都是中共病毒的受害者，目前情況下與其追求遙不可及的疫苗，更應該讓釋放病毒的中共來承擔責任，只有推翻中共政權才能製止病毒傳播。 CNN News18 是擁有4500萬印度家庭用戶的英語頻道，CNN為其提供國際頻道的支持。此次採訪代表CNN對疫情真相開始轉變態度，此前其一直無視中共病毒由中共軍方製造這一事實。
+1. 央行副行長“數字人民幣不計息”上微博熱搜，網絡炸鍋！並且，如無違反規定，各機構不得拒收數字貨幣.
+2. 哈爾濱：CCP政府不負責醫院養老金，引發抗議 ，呼兰紅十字醫院的醫生和護士都在醫院外面抗议說：我們要養老！我們要吃飯 ！ 是什么让这些为社会做出贡献的医务人员得不到养老的保障？
+3. （阿裏郎新聞，9/17）去年一家生物製藥公司發生泄露事件後中共國西北地區數千人感染了布魯氏菌病。  蘭州市衛生委表示，截至9月14日21847人接受了檢測，3245人感染了這種疾病。
+4. （史蒂夫∙班農，9/17）你遭到所有（來自德國納粹的）災難因為你沒有在1933年、 1934-1935年站起來反抗。歸根到底是要麼反抗要麼玩完。他們（中共）有生物武器計劃，大家都知道。為什麼？因為他們無法在核武器上，無法在軍事上與我們競爭。
+5. （9/17）川普總統當年兩萬五在那塊兒停了好長時間，我記得一兩年好像是。皮特•納瓦羅現在都沒超過我們科學家。一天就幹到五萬九去了。 不停哪？不被黑哪？這就叫正義。
 
-（論文英文版地址[https://zenodo.org/record/4028830#.X1\_lwj-SlPa](https://zenodo.org/record/4028830#.X1_lwj-SlPa) ）
 
-（論文中文版地址[https://gnews.org/zh-hans/359379/](https://gnews.org/zh-hans/359379/) ）
+1. The China Central Bank’s deputy governor said, “the digital RBM bears no interest.” The comment was actively browsed on hot Weibo, and it triggered uproar on internet. And, if there is no violation of the rules, no institution shall refuse to accept the digital Yuan.
+2. In Harbin, the comment that the CCP government will not pay for hospital staff pensions triggered protests.  Doctors and nurses of Hulan Red Cross Hospital were protesting outside the hospital: “We request retirement pension covered! We need social security to live on! ”   What violates the pension right of these hospital staff who have made contributions to society?
+3. (Arirang News, 9/17) Thousands of people in northwest China have been infected with the brucellosis after a leak at a biopharmaceutical company last year. The Health Commission of Lanzhou said as of September 14th, 21,847 people have been tested, and 3,245 people have contracted the disease.
+4. (Steve Bannon, 9/17) You got it all because you didn’t stand up in 1933, 34, 35. It all comes either stand up or not. They have biological weapons where everybody knows that. Why? Because they can’t compete with us with nuclear weapons, they can’t compete with the military.
+5. (9/17)  President Trump’s Twitter account was stuck at around 25,000 followers for one or two years as I remembered. Peter Navarro’s account still has fewer followers than Dr. Yan’s. Dr. Yan had more than 59,000 followers only in one day. What if it were not suspended or hacked? This is what we call justice.
 
-2.美國聯邦調查局(FBI)局長克里斯托弗·雷(Christopher Wray)星期四(9月24日) 在參議院國土安全委員會的一場聽證會上表示，中共國仍在試圖刺探美國的新冠病毒研究成果，並針對相關研究機構發起網絡攻擊。克里斯托弗·雷再次重申，“沒有任何對手比中共政府對美國的民主理念、創新和經濟安全構成更廣泛和更全面的威脅。”
-
-二、新中國聯邦新聞
-
-1. 郭文貴先生9月24日直播部分內容：
-
-郭文貴先生與比朱利安尼先生還重要的人會面；並和某國國防部部長洽談推翻中共後與新中國聯邦的戰略合作；新中國聯邦鳳凰城基地首次迎接紐約總部來訪巡查；GTV 安卓版和iPad版即將上線，爆料革命歌曲會很快上線，文化滅共正在進行。
-
-中共駐紐約大使館是中共全世界五大間諜機構之一，爆料革命為蓬佩奧國務卿調查和表態紐約大使館是間諜機構提供了情報支持。紐約大使館與加拿大領事館關係密切， 在全球滅賊、全球聯合滅共之後，會關閉中共駐紐約、加拿大和溫哥華領事館，隨後中美脫鉤、南海強拆，請大家及時關注路德訪談。中共正在加速滅亡。 9月29號以前大家會看到中共釋放的新的潘多拉盒子，請關注路德的直播節目。
-
-滅賊行動符合每個戰友的利益，能保障海外華人的安全。滅共，各位戰友是主力。沒戰友，滅不了共，滅共也無意義。行動能讓大家互相認識、互相驗證、提高能力、增加原本應有的正義感，找到自己的勇氣和良知，知法、守法並懂得用法。
-
-2.“路德時評”9/24/2020節目部分內容：
-
-a. 川普總統拿到了中共江、曾、孟向美司法部和美國眾議院議長佩洛西傳遞的有重要情報價值的三個硬盤。第一個硬盤的內容涉及喬·拜登之子亨特·拜登的醜聞資料，包含其虐童和涉黃視頻、與中共45億美元的勾兌協議、哈薩克斯坦和烏克蘭天然氣協議等； 第二個硬盤涉及習、王“建築藝術地圖”； 第三個硬盤涉及布隆伯格和生物武器真相資料。
-
-b. 江、曾、孟此次情報輸送是中共黨內鬥爭所迫，更是爆料革命引導的滅共行動所迫；此前習、王也曾向美方傳遞過不利於川普總統的情報，中共黨內各方勢力都想影響美國大選，以便在中共瓦解後保有最大利益。美國兩黨已看清中共邪惡本質，相信會更快達成滅共共識。
-
-（“路德時評”早間節目[https://www.youtube.com/watch?v=4CkQaNn1A9g&list=PLt9WLG-do1ascwrFCV8I6xnUNjCM3xwBY&index=3](https://www.youtube.com/watch?v=4CkQaNn1A9g&amp;list=PLt9WLG-do1ascwrFCV8I6xnUNjCM3xwBY&amp;index=3) ）
-
-（“路德時評”晚間節目[https://www.youtube.com/watch?v=LrKHPNW7UH0&list=PLt9WLG-do1ascwrFCV8I6xnUNjCM3xwBY&index=1](https://www.youtube.com/watch?v=LrKHPNW7UH0&amp;list=PLt9WLG-do1ascwrFCV8I6xnUNjCM3xwBY&amp;index=1) ）
-
-3. 朱利安尼先生24日在Newsmax TV接受采訪時稱，在接下來的三週內，大家會發現中共國已經向拜登家族投入了大量資金。
-
-4. 參議院共和黨關於亨特·拜登的腐敗報告曝光後，僅一天時間，亨特·拜登參與人口走私和嫖妓的醜聞也被曝光，亨特·拜登律所接受中共葉簡明600萬美元交易也被揭露。
-
-5. 美國國務卿蓬佩奧週三（9月23日）接受New York Post採訪時稱，中共國駐紐約總領館是間諜中心，使館人員從事的活動已跨越正常外交的界線。此舉暗示更多中共國領事館將被查封。
-
-6. 日前在網上發起聯署支持香港警察競逐諾貝爾和平獎的何君堯，已被英國事務律師紀律審裁處（Solicitors Disciplinary Tribunal）決定起訴涉違紀，意味著其將被剔除英國註冊律師資格。
-
-7.中共國基督教協會9月23日在上海舉行三自愛國運動70週年紀念會，強調“始終堅持我國基督教的中國化方向，為實現中華民族偉大復興的中國夢作出應有的貢獻。”為美國國務卿蓬佩奧批評中共對宗教的壓迫和要求宗教組織服從中共領導，提供實錘證據。
-
-8. 近日，中共國務院取消對中央儲備糧代儲資格審批事項，正式禁止中儲糧集團公司直屬企業以外的市場主體承儲中央儲備糧。已取得中央儲備糧代儲資格的企業，許可證到期後自動失效。此舉將重新匯攏糧食儲備權，民眾擔憂再走糧管所製度老路。
-
-9. 澳大利亞戰略政策研究所周四9月24日發布的一項調查顯示，中共當局在新疆擁有380個疑似“拘押中心”。該研究所通過對衛星圖像、證詞、媒體報導和公共建設招標書進行綜合分析，辨識出這些疑似拘留中心，並發現這些拘押設施網絡隨著中共安全政策的加強而不斷發展擴大。
-
-三、世界新聞
-
-1. 加勒比海島國、英國前殖民地巴巴多斯（Barbados）9月15日突然宣布將撤銷英國女王的國家元首地位後，英國國會下議院外交事務委員會主席圖根哈特（Tom Tugendhat）21日透露，中共國不斷向“一帶一路”成員國巴巴多斯施壓，逼迫巴巴多斯取消伊麗莎白二世（Queen Elizabeth）的象徵式地位。
-
-2. 中共國連續數月的捕魚活動引發了南美太平洋沿岸的緊張局勢。繼川普總統本週在聯合國大會抨擊中共在其他國家水域過度捕撈之後，厄瓜多爾官方證實，大批中共國漁船本週只是離開了該國附近海域，但卻前往到秘魯附近的海域作業。
-
-3. 正在德國接受治療的被神經毒劑中毒的俄羅斯反對派遣領導人Navalany在俄羅斯的銀行帳戶被凍結，所住公寓被查封。
-
-4. 美國國土安全部周四（9月24日）宣布了一項擬議規則，改國際學生（F類）、交流訪問學者（J類）和外國媒體代表（I類）在美國時間為停留固定的時間段。按照目前的製度，這些簽證的持有者在現有身份不變情況下原可長期在美居留。
-
-5. 9月23日，印度鐵道部部長因感染中共病毒不治身亡，享年65歲，為首位因新冠病毒死亡的政府部長。 9月24日，印度頂尖核科學專家也因感染中共病毒不治身亡。
 
 0
