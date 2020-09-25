@@ -1,21 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/09/17 CCP病毒每日疫情直播簡報
-`2020-09-25 09:52 GM62` [轉載自GNews](https://gnews.org/zh-hant/381815/)
+## 一聲“保重”驚醒了我：CCP病毒已經永遠改變了我們的生活
+`2020-09-25 12:53 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/382353/)
 
-戰友之家圖文摘要及小語種組
+喜馬拉雅聯盟加拿大農場文文-自由法蘭西
 
-[English\_0917\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094921/English_0917_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094921/English_0917_CCP_Virus_Updates.pdf)
+校對不動之光
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25124230/02_Mile_Guo_9-16_cnF-1.jpg)圖片來源：VOG
+雨中的小城，人更少。終於決定在這雷雨交加的時候，打著傘，去公園溜達一圈。健身房已經很久沒去了，自從1月份病毒開始在全世界肆虐以來，原本簡單普通的生活已經徹底改變…..大半年都像老鼠一樣，生活在恐懼擔心和戰戰兢兢中。
 
-[French\_0917\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094917/French_0917_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094917/French_0917_CCP_Virus_Updates.pdf)
+一路所見，既喜且憂，喜的是越來越多的老外開始戴口罩了，說明病毒的嚴重性已經深入人心，戴口罩可以減少感染，終究是個好事；但讓人憂的也正是這點，歐洲北美幾個國家的主流媒體已經開始吹風，第二波疫情無可避免……這日子，什麼時候才是個頭啊？ ！公園深處，沒人的地方，我摘下口罩，大口呼吸幾分鐘，算是難得的奢侈了。
 
-[German\_0917\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094934/German_0917_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094934/German_0917_CCP_Virus_Updates_.pdf)
+花兒依舊開著，絲竹悅耳，幾位中年同胞正集簇在亭子裡，戴著口罩，揮著鈴鼓，伴著音樂翩翩起舞，像是在為中共“國慶”的什麼活動彩排……她們是否知道——新冠病毒——他們主子的高科技鶴頂紅正在毒殺他們自己和他們的家人，高呼著“雖遠必誅”，用無數無辜者的生命和健康去實現ccp魔鬼極權、獨裁惡棍們的夢想！
 
-[Japanese\_0917\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094930/Japanese_0917_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094930/Japanese_0917_CCP_Virus_Updates.pdf)
+回家的路上，去熟識的香港茶餐廳點外賣，人不少。不久前剛恢復城裡的堂食，立馬就吸引了一批在家憋坏了的老饕，再嚴格的衛生要求，也抵擋不住人們內心深處對美食的執著，對自由的嚮往。當然，至於為什麼會變成現在這個樣子，究竟還要持續多久，顯然是個不受歡迎的話題。
 
-[Korean\_0917\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094940/Korean_0917_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094940/Korean_0917_CCP_Virus_Updates.pdf)
+點了一份叉燒包，正在等著，從里間倨傲地走出兩個戴著塑料面罩的中年男女。在一眾口罩客中，他們顯得很突兀，神情間彷彿在說“我這個口罩防疫效果比你們的好”。
 
-[Spanish\_0917\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094926/Spanish_0917_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25094926/Spanish_0917_CCP_Virus_Updates.pdf)
+正出神間，老闆招手喚我，操著半生不熟的普通話說：累的好啦（你的好了）。我忙上前接過我的午餐，在口罩下，盡力擠出一個笑紋表示感謝。 “保重，保重呀”老闆揮手跟我告別，我點著頭，心下卻一驚，竟不是往常聽到的”Bye bye“, ”再來”……
+
+想起有一次，跟朋友分別，用了“保重”一詞，竟還招來朋友的抗議，說我用詞不當，似有不吉利之意；當然老闆今天的本意是藉以表達當下對顧客的一份美好的祝福……
+
+只是讓我在感受到他的好意的同時，心生戰栗：不知不覺間，CCP病毒這個魔鬼已經蔓延到了全世界，我們每一個人的生活都已經徹底被它改變。如果我們不能消滅中共邪魔，人類都將永遠在地獄裡沉淪。我們無路可退了……
 
 0
