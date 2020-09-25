@@ -1,25 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/09/17 CCP病毒每日疫情直播簡報
-`2020-09-24 02:14 GM62` [轉載自GNews](https://gnews.org/zh-hant/381163/)
+## 國務卿彭培奧：在公共領域堅守信仰 （採訪環節）
+`2020-09-25 06:02 GM31` [轉載自GNews](https://gnews.org/zh-hant/381499/)
 
-英文標題　CCP Virus Pandemic Updates Ep237: CCP began to modify Korean textbooks for Korean Chinese in order to eliminate the minority culture.
+美國國務卿彭培奧於9月20日來到Prestonwood Baptist Church 參加主日禮拜活動並分享了其信仰之路，在做完題為“**[在公共領域堅守信仰](https://gnews.org/zh-hant/376325/)**”的發言後，他接受了 Graham 牧師採訪:
 
-視頻重點
+Graham牧師：告訴我們您對人生和生命神聖的看法。
 
-1. 疫情疑雲：9月15日，雲南省長阮成發去瑞麗市方艙醫院瞭解情況，當天瑞麗封城，為什麼方艙醫院在此之前已經建好？官媒報導顯示15日只有2例確診病人，次日雲南四川各地卻派出了8支隊伍632人馳援瑞麗。當地有大量醫療人員難道無法應付疫情嗎？
-2. 中共口中的大豐收，農田裡的真實場景是：天天下雨，收不了穀子。
-3. 繼中共修改蒙語教材、打壓蒙古族文化後，中共又開始修改朝鮮族教材。
-4. （戴夫·溫克勒教授，天空新聞澳大利亞，9/16）我們是計算機科學家。我們建立了數學模型，體現病毒如何與人細胞相互作用。我們觀察了整個一系列物種，包括人們提過的病毒中間宿主，穿山甲、蝙蝠、蛇。我們發現這個病毒對人蛋白質的親和力最高，這是很不尋常的。
-5. （郭文貴先生。9/17）（閆博士的報告）五十萬份的下載，你知道這個人說了什麼嗎? 他說，如果網站不被黑客攻擊的話，下載數量可能超過一百萬。你知道超過一百萬的下載是什麼概念嗎? 這是過去三十年來，在這個領域所有科學論文被下載的總數。
+蓬佩奧國務卿：你們都對此保持正確的立場，這很重要。要堅守立場。在人類尊嚴和保護每個人的生命這一核心問題上，永遠不要採取模菱兩可的立場。
 
+Graham牧師：作為基督徒，我們如何看待我們的國家並熱愛我們的國家？我們可以像我們想要的那樣愛我們的國家嗎？
 
-1. Suspicion of the CCP pandemic: On September 15th, Governor of Yunnan Province, Chengfa Ruan, headed the Ruili mobile cabin hospital to find out the situation. Ruili was closed on that day. Why was the mobile cabin hospital built before then?
-2. The CCP talks about a bumper crop, but the real scene in the fields is that it rains every day and the crops cannot be harvested..
-3. After the CCP revised Mongolian textbooks and suppressed Mongolian culture, it began to modify Korean textbooks for Korean Chinese in order to eliminate the minority culture.
-4. (Prof. Dave Winkler with Sky News Australia, 9/16) We are computational scientists, so we’ve built mathematical models of how the virus interacts with human cells. We looked across the whole range of species, including the ones that people have proposed as being intermediate species for the virus, pangolins and bats and snakes, that we find the human protein’s highest affinity, which is being unusual.
-5. (Miles Guo. 9/17) (Dr. Yan’s paper) was downloaded 500,000 times. Do you know what this person said? He said if the site wasn’t attacked or hacked, the number of downloads could have exceeded one million. Do you know what over one million downloads mean? It’s the total number of downloads of all scientific papers in this field over the past 30 years.
+蓬佩奧國務卿：我們不僅可以而且必須。我認為有兩件事。
 
+首先，我們怎麼在世界上展現自己，那在我們的公民生活中也就必須這樣做。其次，我們需要回歸到建國先輩們對信仰的核心理解，以及猶太教-基督教國家對世界的核心作用，並且我們必須堅守這一點，我們不能讓任何人試圖重寫截然不同的歷史。我們堅持並繼續建立這些傳統是絕對必要的，這是給我們的孩子和孫子們的，絕對必要！
+
+*出處：**[Secretary Pompeo’s second remarks at the Prestonwood Baptist Church.](https://youtu.be/CGQLe9PoMaM?t=1002)*
+
+*翻譯：【倚天劍】校對：【**Rock**小哥】【**GM31**】【**GM80**】【**Isaiah4031**】字幕：【**Rock**小哥】*
+
+*戰友之家玫瑰園小隊出品*
+
+國務卿彭培奧：在公共領域堅守信仰：
+
+> [國務卿彭培奧：在公共領域堅守信仰](https://gnews.org/zh-hant/376325/)
+
+講話中英文對照：
+
+> [蓬佩奧國務卿在普勒斯頓伍德教會分享其信仰經歷](https://gnews.org/zh-hant/373572/)
+
+彭培奧將參加主日崇拜預告：
+
+> [蓬佩奧國務卿將來到普勒斯頓伍德浸信會教堂分享其信仰](https://gnews.org/zh-hant/368077/)
 
 0

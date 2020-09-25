@@ -1,13 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 9月23日同聲傳譯閆博士分別接受電台和知名自媒體採訪
-`2020-09-23 19:51 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/380773/)
+## 【要闻说 第7期】川普联合国讲话-满满的正义
+`2020-09-24 00:24 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hant/381059/)
 
-9月23日閆麗夢博士分別接受電台【 [JOHN FREDERICKS SHOW](https://www.youtube.com/user/JohnFredericksShow) 】和油管知名自媒體【 [VALUETAINMENT](https://www.youtube.com/user/patrickbetdavid) 】採訪
-
-
-
-By：【秘密翻譯組G-Translators】
-
+作者：康州农场-GTalk心语堂
+康州喜马拉雅农场 要闻说
 0

@@ -1,13 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 9月23日同聲傳譯班農戰斗室【第401+402期】
-`2020-09-23 19:41 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/380750/)
+## （Spanish+English）閆博士9月18日NewsMax採訪
+`2020-09-23 23:37 GM62` [轉載自GNews](https://gnews.org/zh-hant/381025/)
 
-9月23日同聲傳譯班農戰斗室【第401+402期】：討論了關于冠狀病毒大流行的最新消息，川普總統重申了迫切需要讓9名法官坐在SCOTUS上。
+西班牙語標題 La entrevista de la Dra.Yan con NewsMax el 18 de septiembre
 
-
-
-By：【秘密翻譯組G-Translators】
+翻譯：帅虎 Benzhang(文羽) 校對：謎擬Q 視頻：文靓
 
 0

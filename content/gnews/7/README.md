@@ -1,25 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美參議員：香港已不安全，推《香港難民保護法》
-`2020-09-24 01:44 pmzy-vog` [轉載自GNews](https://gnews.org/zh-hant/381114/)
+## 文貴先生說的西點幫是哪些人？
+`2020-09-25 05:28 華嶼蘊光` [轉載自GNews](https://gnews.org/zh-hant/357919/)
 
-作者：文章
+作者 臺灣阿宏
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/24014216/%E4%B8%8B%E8%BD%BD-3-1.jpg)新闻来自：美国之音
+隨著美國一步步對中共國收緊包圍網，各項具體制裁接連出台，各式針對中共國的軍事準備也更加頻繁的當下，讓人不禁想起　文貴先生之前曾多次提到的滅共重要力量：西點幫(The west point Mafia )。而這群來自美國最高軍事學府的菁英們會在這場滅共革命上扮演什麼腳色呢？
 
-“隨著北京不斷強硬主張對香港的威權統治，香港居民已經不再安全了！”來自阿肯色州的共和黨聯邦參議員科頓（Sen. Tom Cotton, R-AR）星期壹（9月21日）推出了《香港難民保護法》（Hong Kong Refugee Protection Act）。
+西點軍校全名：美國陸軍軍官協校 或稱 美國陸軍軍事學院，位於紐約西點故簡稱西點軍校　(The United States Military Academy at West Point)，於1802年經由傑佛遜總統修法後成立並與其他三所軍校並稱世界四大軍校，分別是法國-聖西爾軍事專科學校，英國-桑德赫斯特皇家軍事學院，俄羅斯-伏龍芝軍事學院。
 
-根據法案內容，香港將被指定為優先難民區，在正常難民接收上限的基礎上，將在未來五年內為香港居民每年增加提供最多至2萬5千份簽證。美國目前的難民接收上限為1萬8千人。
+這所號稱十萬人僅出一人的菁英學校超過200年的歷時當中，培養了將近四千位將軍，多位參與改變世界歷史的二戰五星上將包括艾森豪，麥克阿瑟，布萊德利以及四星上將巴頓。更包括了美國南北內戰的北方主要將領格蘭特以及南方主要將領羅伯特等等的西點軍校傑出校友。西點軍校所培育的頂尖人才不只在軍事領域嶄露頭角，在其他領域一樣傑出，這些自律的優秀菁英遍佈美國五百大企業的最高管理層中以及華盛頓DC。政治、經濟、軍事各領域都能看到西點幫以最挺拔的姿態站穩著腳步。
 
-科頓議員指出，他的法案將優先考慮香港居民，“幫助他們從壓迫性的中國共產黨手中獲得自由。”
+西點幫就是這樣代表著美國最硬派，最聰明，最忠誠的美國菁英族群。然而文貴先生所提到的西點幫是泛指這所有西點軍校畢業的校友嗎?某種程度當然是，這群人可以說稱為200年來撐起美國一片天的一群人!但如果將時間軸線拉近到 文貴先生在美國開啟滅共浪潮後，除了 班農先生這位較為人們所熟知的西點幫滅共者之外，另有多位西點幫成員在美國政治系體系中身居要職，尤其不得不提1986畢業的這屆西點軍校校友們。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15103735/%E5%9C%96%E7%89%87-3.png)
+第一個要提到的當然是國務卿彭培奧(Mike pompeo)，這位強悍的國務卿頻繁地出現在美國圍堵CCP的最前線，相關的報導非常多，可以參考戰友之家維基百科小組在G-news上的專題，非常詳細。 [https://gnews.org/zh-hant/283383/](https://gnews.org/zh-hant/283383/)
 
-除了科頓最新提出的《香港難民保護法》，美國國會目前還有另外三部旨在為香港居民提供協助的移民政策相關議案，分別為《支持香港共產主義受難者法》（Hong Kong Victims of Communism Support Act）、《香港安全港法》（Hong Kong Safe Harbor Act）、《香港人民自由和選擇法》（Hong Kong People’s Freedom and Choice Act）。
+這位西點軍校第一名畢業的國務卿與他的1986同窗組成了堅定的西點幫國務院鐵三角，主管行政事務的副國務卿布拉託Brian Joseph Bulatao 以及 國務院顧問 布萊奇布爾Thomas Ulrich Brechbuhl堪稱彭培奧在朝中的左右手。此外還有反共立場鮮明田納西州的參議員格林(Mark Green)以及擔任過川普總統競選顧問的厄本(David Urban)，由此可以推斷厄本跟我們敬愛的班農先生兩位都是川普總統最信任的戰友。86年畢業的西點幫除了在美國行政體系中扮演的滅共絕對中間力量之外，對CCP的軍事圍堵怎麼能少了這群西點軍校的軍人呢。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15103844/%E5%9C%96%E7%89%87-4.png)“Shealah Craighead/The White House via Getty Images, Rick Rycroft – Pool/Getty Images”
+國防部長艾斯伯(Mark Esper)也同樣是1986年畢業的西點幫，更是國務卿　彭培奧的同班同學。我們可以從艾斯伯日前所發表名為”美國國防部已經做好對中國的應對準備這篇文章” 以及在中國周邊對解放軍持續的施壓看得出西點幫在軍事方面的具體態度與作為。西點軍校畢業生堅守著”責任、榮譽、國家”為其一生的人生方向，並且以 黑騎士(Black knight)作為西點軍人的精神標誌。一切就好注定好的一樣，這群上天派來的黑騎士們將執行身為騎士的使命，以法律，以武力，以自由民主所賦予的力量來制服CCP這頭惡獸。
 
-今年7月14日，川普總統將參眾兩院皆快速且無異議通過的《香港自治法》（Hong Kong Autonomy Act）簽署成法，顯示了美國國會兩黨在香港爭取民主的活動中的堅定支持立場。
+(文章內容僅代表作者觀點)
 
-原文鏈接：https://www.voachinese.com/a/us-congress-legislation-about-hong-kong-residents-refugee-priority-20200923/5595771.html
-
-
+新聞來源 Source: POLITICO, 2003.” *Trump’s ‘West Point Mafia’ Faces a Loyalty Test”*,” https://www.politico.com/news/magazine/2019/11/17/west-point-alumni-pompeo-esper-state-department-071212”
 
 0
