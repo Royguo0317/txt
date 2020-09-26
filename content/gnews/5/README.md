@@ -1,14 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## （French+English）川普總統聯大發言
-`2020-09-26 00:44 GM62` [轉載自GNews](https://gnews.org/zh-hant/383311/)
+## （Danish+English）9月18號Spicer 在Newsmax採訪閆博(一分鐘版本)
+`2020-09-26 04:20 GM62` [轉載自GNews](https://gnews.org/zh-hant/383480/)
 
-法語標題 TRUMP : nous devons responsabiliser la nation qui a déclenché ce fléau sur le monde : la Chine
+丹麥語標題 Spicer interviewede Dr. Yan på Newsmax den 18. september. Kort version (1 minut)
 
-翻譯：映雪斋 校對：珠丝玛迹 視頻：珠丝玛迹
+翻譯人員：麦丹奈 校對人員：螞蟻游擊隊(文蟻） 視頻人員：Ouroboros文菠蘿， 小羽
 
 視頻簡介
-Président Trump : L’ONU doit tenir la Chine et l’OMS responsables pour la pandémie. Les Etats-Unis ont les armes les plus fortes du monde. La paix est le futur du monde.
+閆麗夢博士於9月18日接收NewsMax採訪,主持人Spicer詢問閆博士關於新發表的有關新冠狀病毒來源的論文。
+
+Dr. Yan lavede et interview med NewsMax den 18. september. Moderator Spicer spurgte Dr. Yan om ny kilde til coronavirus i den nyligt offentliggjorte artikel.
 
 0
