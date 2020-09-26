@@ -1,20 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 9/26財經快訊: 中共擀麵杖經濟急需海外“偉哥”
-`2020-09-26 10:02 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/384213/)
+## 【香港要聞】針對製裁11名中共及香港官員，美國再出重錘
+`2020-09-26 13:08 GM42` [轉載自GNews](https://gnews.org/zh-hant/384531/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/26095425/32e4c525-8d3a-4961-8756-25faf0926d20.jpg)圖片來源： [https://medium.com/](https://medium.com/the-domino/how-the-2020-economic-collapse-will-differ-from-the-2008-financial-crisis-d0f5b5b1b49b)
-[1.9月25日，中共批准境外投資者參與金融期貨，商品期貨，期權等衍生品交易。](http://futures.eastmoney.com/a/202009261649604696.html)
+製作單位：戰友之家-粵語組
+編撰：恩典；
+審核：JK
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/26130040/ok.jpg)圖片：蘋果日報
+**美國財政部**上個月「8月7日」**宣布製裁11名中共及香港官員**。這個月的25日「9月25日」（美國時間）美國財政部又公佈了具體的執行細節，其中規定美國公民不得與受制裁人士有任何交易等來往;而且在與香港政府部門的來往中，不得有受制裁官員直接或間接參與。
 
-[2.丹麥養老基金宣布剔除中共投資組合，總計削減4億丹麥克朗（5370萬歐元）](https://www.ipe.com/news/danish-pension-fund-blacklists-china-dumping-54m-equities-bonds/10047996.article?fbclid=IwAR2ivMkTcH2iayc3vmQm9PtDg1_fZ5BziLcVr5GaI05-uwMpU_1uh0Amu1Q#.X2z4qQ1LOag.facebook)
+美國財政部指出，美國公民在與受制裁的港府官員所任職的香港政府部門來往時，除非已獲得外國資產控制辦公室（OFAC）批准，否則不得與受制裁官員進行任何直接或間接交易。
 
-[3.9月23日中共出台調整土地出讓收入使用範圍意見：提高土地出讓收入用於農業農村比例。從以下兩種方式中選擇一種組織實施：一是按照當年土地出讓收益用於農業農村的資金佔比逐步達到50%以上計提；二是按照當年土地出讓收入用於農業農村的資金佔比逐步達到10%以上計提](http://law.esnai.com/view/197375/)
+**編者觀點：【恩典】**
+     9月25日（美國時間）美國財政部公佈了關於製裁11名港奸官員的執行細節。對於任何一個支持香港民主運動的人來講，美國此舉無疑是令人振奮。
 
-[4.北京車展於9月26日開幕，多家車企消失，參展的新造車廠商不足10家。](https://money.163.com/20/0926/15/FNFAF8MO002580S6.html?clickfrom=w_money)
+港共政府現如今與中共戰狼外交部已是一丘之貉，針對美國的製裁都是採取“打腫臉裝胖子”式的回應，即我們不在乎，一副漫不經心的狀態，實則已經是重錘難抵。
 
-[5.萬博兄弟資產管理公司董事長滕泰表示今年或出現改革開放以來首次消費負增長。](https://money.163.com/20/0926/16/FNFEH26D00258J1R.html?clickfrom=w_money)
+香港作為中華民族走向民主、自由、法治路上的耶路撒冷，必然受到全世界的敬仰與尊重。中共在香港試圖控制、打壓的任何舉措都將受到國際民主國家的一致抵抗與反對。以美國為首的世界民主力量正在持續重錘，砸向中共獨裁專制政府。
 
-By：【秘翻組·金融法律組】
+在此背景下，港奸作為中共惡魔壓害香港人的日子已經走到了盡頭，等待中共及其劊子手的時刻即將帶來，正義會遲到，但絕不會缺席。
+
+以上觀點僅代表筆者本人
+
+資料來源：蘋果日報
+
+[https://hk.appledaily.com/local/20200926/CYT7LOS5R5CVBLQL5SYDWHOQJQ/](https://hk.appledaily.com/local/20200926/CYT7LOS5R5CVBLQL5SYDWHOQJQ/)
 
 0

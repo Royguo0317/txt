@@ -1,24 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路透社9/22/2020：獨家報導中共國在西藏大力發展大規模勞工計劃
-`2020-09-26 09:28 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/384132/)
+## （Spanish+English）派翠克對閆麗夢博士的採訪:&#8221;為何冒生命危險告訴全世界病毒的真相&#8221;
+`2020-09-26 11:48 GM62` [轉載自GNews](https://gnews.org/zh-hant/384397/)
 
-香草山綜合報導
+西班牙語標題 Entrevista con la Dra.Yan por Patrick:¿Por qué arriesga ella su vida para decirle al mundo la verdad sobre el virus?
 
-中文稿：
- 1.中共國正強迫更多西藏農村人口離開當地，並進入最新的軍事化培訓中心改造成工人，這正是西部新疆勞動改造計劃在西藏的翻版。
- 2.上月西藏政府網稱有超50萬藏人在2020年前七個月被加入這個計劃，佔西藏總人口的15%，其中近5萬人在西藏境內轉移就業，並向全國各地轉移就業數千人，多數最後從事如紡織業、建築業或農業類的低薪工作，中共國這次往西藏以外轉移勞動力的規模和配額都是前所未有的。
- 3.被轉移到改造中心的農民工都在接受一種叫“軍訓”的思想改造，以著重通過軍事化的管理進行思想訓化，其教學計劃結合了技能教育、法律教育和旨在提高對黨忠誠度的感恩教育，職業技能教育包括紡織、建築、農業和民族手工業，其目標是逐步實現’我必須工作’向’我想工作’的轉變。
- 4.政府配額和軍事化管理表明這種轉移具強制性因素。
+翻譯：CUTE PANDA 校對：帅虎 視頻：小羽
 
-評論：
-強制軍事化訓練，強制低報酬勞動，並不允許回家，這難道還不是赤裸裸的奴隸制嗎？中共已經奴役14億中國人，如果人們還不覺醒，他們下一步將利用病毒奴役70億全球人！
+視頻簡介
 
+閆博士只希望人們知道病毒真相,不被錯誤論文引導
 
-
-更多資訊，歡迎訂閱[美東香草山農場官方推特賬號](https://twitter.com/Mos_Himalaya)！
-
-[Tweets by Mos\_Himalaya](https://twitter.com/Mos_Himalaya?ref_src=twsrc%5Etfw)
+La Dra.Yan solo quiere que la gente sepa la verdad del virus, que no se deje engañar por otros informes
 
 0

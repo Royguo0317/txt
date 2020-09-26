@@ -1,18 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 9.16 路德時評：川普轉推閆博士論文 證實病毒真相並定案平民主義跟精英主義的戰爭正式打響【精華版粵語配音】
-`2020-09-26 10:33 GM42` [轉載自GNews](https://gnews.org/zh-hant/384307/)
+## 【世界多語言圖文】2020/09/19 CCP病毒每日疫情直播簡報
+`2020-09-26 13:16 GM62` [轉載自GNews](https://gnews.org/zh-hant/384545/)
 
-製作單位：戰友之家-粵語組
-製作團隊：食飽飽、wen fei、哥阿、文雀、wikim bao
+戰友之家圖文摘要及小語種組
 
+[English\_0919\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/26131427/English_0919_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/26131427/English_0919_CCP_Virus_Updates.pdf)
 
+[French\_0919\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/26131436/French_0919_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/26131436/French_0919_CCP_Virus_Updates.pdf)
 
+[German\_0919\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/26131431/German_0919_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/26131431/German_0919_CCP_Virus_Updates.pdf)
 
+[Japanese\_0919\_CCP\_Virus\_updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/26131444/Japanese_0919_CCP_Virus_updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/26131444/Japanese_0919_CCP_Virus_updates.pdf)
 
-摘要：
-閆博士發表的科學報告引起全球極大反響，反對派和中共媒體都攞不出有利的證據反駁這份科學報告。
-Twitter封閆博士的帳號嚴重影響了美國人的言論自由，引起政界強烈反對，齊來討伐 Twitter聲援閆博士，令到更加多的美國人了解到病毒真相。
+[Korean\_0919\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/26131448/Korean_0919_CCP_Virus_Updates_239.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/26131448/Korean_0919_CCP_Virus_Updates_239.pdf)
+
+[Spanish\_0919\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/26131440/Spanish_0919_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/26131440/Spanish_0919_CCP_Virus_Updates.pdf)
 
 0

@@ -1,20 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## （German+English）閆博士稱武漢病毒是實驗室製造
-`2020-09-26 07:57 GM62` [轉載自GNews](https://gnews.org/zh-hant/383924/)
+## 9.20 路德時評：中共從歷史上就是欺騙所有人，通過假騙偷【精華版粵語配音】
+`2020-09-26 10:21 GM42` [轉載自GNews](https://gnews.org/zh-hant/384276/)
 
-德語標題 Dr. Yan sagte, dass das Wuhan-Virus im Labor hergestellt wurde
+製作單位：戰友之家-粵語組
+製作團隊：小叮嚀、一簾幽夢、Andy Su、哥阿、文雀、wikim bao
 
-原文一校：Cute panda 原文二校：文笑如意
 
-德語翻譯：大脚印 德語校對：It’s happening
 
-視頻：文件夹
-
-簡介
-WION採訪:閆博士稱武漢病毒是實驗室製造,在基因上留下的修改痕跡
-
-WION-Interview: Dr. Yan sagte, dass das Wuhan-Virus in einem Labor hergestellt wurde und Spuren genetischer Veränderungen hinterließ
+摘要：
+新冠病毒源自舟山蝙蝠病毒無可置疑。
+中共政權是泊來品「蘇維埃政權」，中共不擇手段地竊取了中國的政權，並欺騙中國人幾十年
 
 0
