@@ -1,49 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文貴說｜系列圖片連載（六）
-`2020-09-26 13:47 GM98` [轉載自GNews](https://gnews.org/zh-hant/384622/)
+## 全美首例？中國公民因共產黨員身份在美國機場被拒入境
+`2020-09-26 16:35 GM01` [轉載自GNews](https://gnews.org/zh-hant/384863/)
 
-## 36.
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/26120012/16976.jpg)
-70年欠下人民的血債，你都要萬倍、億倍的償還！假、騙、黑——這回你完了幾十年的套路，都將萬倍、億倍的還到你的身上去，這就叫輪迴！共產黨，你完了！你徹底的完了！
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/26163118/%E6%88%AA%E5%B1%8F2020-09-26-%E4%B8%8B%E5%8D%889.30.58.png)图片来源：大纪元时报
+大紀元時報消息，壹中國公民因共產黨員身份在美國機場被拒絕入境，這可能是第壹個已知因黨員身份被拒絕簽證的案例。據了解該旅行者有美國旅遊十年簽，且子女為美國公民，於幾個月前申請了家庭移民簽證，結果仍在等候中。
 
-——郭文貴先生2020年2月21日
+根據其律師的說法，當事人於9月17日從中國飛往美國看望女兒，降落到底特律大都會機場時被海關拒絕入境，並與第二天遣送回中國。當事人因害怕個人利益受損並沒有退出中國共產黨。
 
-## 37.
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/26122233/16980.jpg)
-整個疫情把全世界所有的人，你的道德、你的信仰全部裸奔。分出了人、神、鬼、畜牲。
+来源：https://www.theepochtimes.com/chinese-national-denied-us-entry-likely-due-to-ccp-membership-lawyer\_3514641.html?utm\_medium=social&utm\_source=twitter&utm\_campaign=digitalsub
 
-——郭文貴先生2020年3月31日
 
-## 38.
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/26120604/16979-1.jpg)
-爆料革命將成為世界上唯一保存的和必須保存的中國人的有生力量；必須要成為一個能盡全力保護中國人和中國孩子、中國人未來的一個有生力量；必須成為中國人的諾亞方舟；必須要在這個大難的時候，成為唯一讓中國人可以相信的力量。
-
-——郭文貴先生2020年4月7日
-
-## 39.
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/26122222/106.jpg)
-我們有能力有實力，而在沒有任何金錢支持，沒有任何利益不利的情況下，沒有任何人提供子彈的情況下，我們已經形成了強大的絕對不可征服的一個正義的力量。
-
-——郭文貴先生2017年10月31日
-
-## 40.
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/26120528/2020473.jpg)
-大爆發和最災難的時刻絕對沒有出現。共產黨的瘋狂計劃絕對還沒有全面用上。全世界反擊的時候還沒開始呢，還在醞釀中呢！
-
-——郭文貴先生2020年4月7日
-
-## 41.
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/26120543/16977.jpg)
-親愛的兄弟姐妹們，藍天白雲，陽光明媚，太美好了！但是戰友們，我再說一遍，只要你死了，這些都跟你沒關係。
-
-——郭文貴先生2020年4月7日
-
-## 42.
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/26115910/16975.jpg)
-我們要終生感謝香港！香港人的勇敢、智慧、堅決、無私，上天會看得見的。
-
-——郭文貴先生2020年3月18日
 
 0
