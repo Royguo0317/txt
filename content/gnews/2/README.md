@@ -1,16 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## （Danish+English）閆博士:瞭解武漢實驗室發生的事情非常重要
-`2020-09-26 04:35 GM62` [轉載自GNews](https://gnews.org/zh-hant/383555/)
+## （Korean+English）閆博士:&#8221;為何冒生命危險告訴全世界病毒的真相&#8221;
+`2020-09-26 07:24 GM62` [轉載自GNews](https://gnews.org/zh-hant/383896/)
 
-丹麥語標題 Dr. Yan: Vigtigt at forstå, hvad der skete i Wuhan-laboratoriet
+韓語標題 옌박사: 왜 위험을 무릅쓰고 전 세계에게 코로나의 진상을 알려주요?
 
-翻譯：麦丹奈 校對：螞蟻游擊隊(文蟻） 視頻：Ouroboros文菠蘿， 小羽
+翻譯 奥修 校對 文爱 飞茑君 視頻 lain 文菠萝
 
-視頻簡介
-最重要的事情是調查新型冠狀病毒的起源—調查實驗室中發生的事情以及涉及人員。
+簡介
 
-Covid 19s oprindelsen er det vigtigste af undersøge, hvad skete der i laboratoriet og hvem var involveret.
+創業家和財經媒體人派翠克對閆麗夢博士的採訪節選:”為何冒生命危險告訴全世界病毒的真相”
+
+옌박사 인터뷰
 
 0

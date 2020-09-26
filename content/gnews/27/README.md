@@ -1,36 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 國聯邦鳳凰城基地首次迎接紐約總部來訪巡查
-`2020-09-25 23:11 GM77` [轉載自GNews](https://gnews.org/zh-hant/383120/)
+## （Danish+English）9月18號Spicer 在Newsmax採訪閆博(一分鐘版本)
+`2020-09-26 04:20 GM62` [轉載自GNews](https://gnews.org/zh-hant/383480/)
 
-編撰: WENJUN
-審核：JK
+丹麥語標題 Spicer interviewede Dr. Yan på Newsmax den 18. september. Kort version (1 minut)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/25230501/5-16.jpg)
+翻譯人員：麦丹奈 校對人員：螞蟻游擊隊(文蟻） 視頻人員：Ouroboros文菠蘿， 小羽
 
-2020年9月24日，秋高氣爽，Sara女士同新中國聯邦鳳凰城基地的工作人員一起去機場迎接新中國聯邦紐約總部的來訪。
+視頻簡介
+閆麗夢博士於9月18日接收NewsMax採訪,主持人Spicer詢問閆博士關於新發表的有關新冠狀病毒來源的論文。
 
-從Sara女士的直播中可以看出，Sara女士及新中國聯邦鳳凰城基地的工作人員各個形象出眾，氣質中透露出一種一種令人振奮的磁場。
-
-戰友們紛紛在直播視頻下方留言：
-
-帥哥美女，人才濟濟，新中國聯邦牛! 新中國聯邦，華人新形象，太棒了！
-
-牛啊，個個基因好，禮儀，有序，對比中共專制獨裁統治者的烏煙瘴氣……這才是我們民族優秀的兒女，無論男人和女人，都散發者東方迷人又堅韌不屈的氣質，愛妳們。
-
-感謝Sara一直以來的辛苦付出。新中國聯邦一步步被建立和完善，戰友們很欣慰。加油！
-
-川普、彭斯、彭培奧、納瓦羅、朱利安尼等一眾美國正義力量是全人類的希望，當然還有我們的戰神文貴先生……
-
-2020年6月4日，新中國聯邦成立！這向世人宣布了：中共政權是非法的偽政權！在地球的東方、14億人民被中共邪魔政權統治的時代即將過去！
-
-郭先生在直播中談到新中國聯邦鳳凰城基地時說：”接下來我們會在亞利桑那鳳凰城建立一個150-250人的基地，作為新中國聯邦電視臺所在，需要電腦電視工程人才和中英文主持人，年薪12萬美金。還會聘任5位部長年薪30萬美金，一位副總理200萬美金年薪。我們要在2-3個國家買地，小於200萬平方公裏不考慮。未來我們需要大量工程藝術國防軍事外交金融人才！“
-
-除了新中國聯邦鳳凰城基地，新中國聯邦整個架構也在緊鑼密鼓地搭建，爭取CCP滅亡後能夠無縫對接，平穩過度，確保所有中國人民不受影響。 感恩爆料革命！
-
-參考鏈接：
-[https://gwins.org/cn/country/PhoenixCity.html](https://gwins.org/cn/country/PhoenixCity.html)
-[https://gnews.org/zh-hans/221817/](https://gnews.org/zh-hans/221817/)
+Dr. Yan lavede et interview med NewsMax den 18. september. Moderator Spicer spurgte Dr. Yan om ny kilde til coronavirus i den nyligt offentliggjorte artikel.
 
 0
