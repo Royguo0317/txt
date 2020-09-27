@@ -1,36 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班農戰斗室：385期 病毒是人工製造的主要證據 中共大规模收集全球政要名人 及其家屬資料【精華版國語配音】
-`2020-09-26 13:42 GM42` [轉載自GNews](https://gnews.org/zh-hant/384618/)
+## CCP病毒能精准打擊某一種族？研究表明非裔感染率高與ACE等位基因缺失有關
+`2020-09-26 19:47 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/384995/)
 
-製作單位：戰友之家·粵語頻道
-素材製作：Warroom Pandemic
-視頻配音：
-小野貓
-之之
-老徐
-文君
-視頻剪輯：食飽飽
-字幕校對：班農戰斗室字幕翻譯組
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/24031241/20200908_Ethnic_Prevalence_photo169.png)圖片來源：[Obi Onyeador](https://unsplash.com/@thenewmalcolm?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/african-american-coronavirus?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText)， [CDC](https://unsplash.com/@cdc?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/virus?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText)
+新聞摘要：據2020年8月24日發表於《種族和民族健康差異雜誌》（Journal of Racial and Ethnic Health Disparities）的一篇科學論文從特定族群的基因簇樣本入手，研究了血管緊張素轉化酶（ACE）對應等位基因多態性對於CCP病毒感染率的關係，並指出**非洲裔族群的****ACE****等位基因缺失（****D****）型占比****高於其他族群，非洲裔較多感染****CCP****病毒與轉化酶缺失的相關聯關係**。在美國，ACE D等位基因在**非西班牙裔黑人**中出現的頻率高於非西班牙裔白人和墨西哥裔美國人。
 
+[下载英文原文](https://link.springer.com/content/pdf/10.1007/s40615-020-00853-0.pdf) （註：以下翻譯僅做參考使用，一切內容以英文原文為準）
 
+[下載中文簡體PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/09/24101813/20200908_Ethnic_Prevalence_SIM-v2.pdf)
 
-概要：
-關於這個病毒是怎樣在實驗室加工而成，閆博士現在把報告發在了Zenodo上，她在28分鐘前發了這個報告，那些網站已經受到了駭客攻擊
+[下載中文繁體PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/09/24101754/20200908_Ethnic_Prevalence_TRAD-v2.pdf)
 
-第一，sars cov-2 有沒有外部的人工改造
-我們展示三個證據來支持我們
-它的基因序列十分可疑地和一種蝙蝠冠狀病毒相似，這種蝙蝠病毒被重慶第三軍醫大學和南京醫藥研究院的南方實驗室發現
+翻譯：【Naomi】  校對：【重生】  編輯：【Isaiah4031】
 
-第二，在SARS -COV-2 s蛋白中的受體結合點，簡稱RBM ，RBM決定了病毒的宿主特性，SARS-COV-2 RBM和2003年SARS流行病毒的RBM 十分刻意的相似基因證據顯示RBM被人工改造過
-
-第三，SARA-COV-2 s蛋白中有一個獨一無二的弗林酶切位點， 已知該切位點可以大大的增強病毒的感染性和入侵性，然而這個弗林酶切位點是在自然中發現的，冠狀病毒家族裡面沒有的。與此額外序列相關的稀有密碼子，顯示了這個弗林酶切位點不是自然進化的。而且很可能是人工技術插入SARS-COV-2的基因組，而不是共同感染組織中的動物體內簡單點連續傳代或多菌株重組
-她主張這個病毒不是自然產生的
-
-有關全世界超過240萬個人信息被收集 ，來自中國的部門以各種目的收集信息
-從政治影響到知識產權都被作為目標 ，不僅僅是個人本身 ，顯然中共也在跟踪人們的家庭和人們發布的內容相關的任何信息，可能是您感興趣的東西和周邊的信息。
-來自中共的抖音引起巨大恐慌
-中共的滲透是個非常嚴重的問題
+戰友之家玫瑰園小隊出品
 
 0

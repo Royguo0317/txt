@@ -1,38 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統在全國禱告和回歸日的致辭(2020/09/26)
-`2020-09-26 16:49 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/384870/)
+## 中共強行遷徙彝族加劇迫害少數民族
+`2020-09-26 23:12 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/385321/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/26152610/WH_20200926_Prayer-photo169.png)圖片來源：[*https://www.whitehouse.gov/briefings-statements/presidential-message-national-day-prayer-return-2020/*](https://www.whitehouse.gov/briefings-statements/presidential-message-national-day-prayer-return-2020/)
-**Presidential Message on the National Day of Prayer and Return, 2020**
+喜馬拉雅聯盟加拿大農場 阿黎
 
-**總統在全國禱告和回歸日的致辭**
+校對 坐看雲起時
 
-Issued on: September 26, 2020
+據美聯社9月23日報導，成千上萬的彝族人被勒令離開位於四川山區的故鄉，到國有農場工作。中共國政府正在繼續打擊少數民族和宗教少數派。
 
-2020年9月26日發佈
+中共政府已迫使38個村莊的彝族居民移居到政府規劃的社區。彝族是中國西南的一個少數民族，有著獨特的語言和宗教信仰。彝族在四川山區生活了大約3000年。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/26230633/%E5%BD%9D%E6%97%8F.jpg)
+前往新的彝族社區的外國記者報導，在習近平抵達作秀前，彝族社區每間公寓裡都貼有習的照片，並在社區各處張貼海報，要求彝族放棄其母語使用普通話。
 
-On this inaugural National Day of Prayer and Return, the First Lady and I join millions of Christians here in the United States and around the world in prayer, as we turn our hearts to our Lord and Savior.
+普通話是社區公立學校中彝族學生的唯一選擇。
 
-在首屆全國禱告和回歸日這一天，我與第一夫人和美國及世界各地的數百萬基督徒一起祈禱，把我們的心交托給我們的主和救主。
+儘管中共國政府聲稱彝族遷離四川故土是全國反貧困運動的一部分，但此舉與最近發生的中共對少數民族的其他大規模迫害有必然聯繫，例如對蒙古族人，維吾爾族人和中國基督徒的破害。
 
-Our great Nation was founded by men and women of deep and abiding faith – a faith that has stood the test of time.  Four hundred years ago, early American settlers trusted their lives to His providence and braved a voyage to a New World.  From the pilgrims who sought His protection aboard the Mayflower to the countless believers who today bow their heads to ask for His guidance during these unprecedented times, our country continues to turn to the Lord.  Following in our ancestors’ footsteps we continue the “firm reliance on the protection of Divine Providence” that provides us enduring strength and reassurance in our times of need.
+本月初，內蒙古發生了抗議活動，抗議中共內蒙古政府宣布用普通話取代學校科目中一半的蒙古語課程。
 
-我們偉大的國家由具有深刻和持久信仰的先輩所建立，這種信仰歷經時間的考驗，經久不息。 四百年前，早期的美國定居者將他們的生命托付給上帝，勇敢地航行到另一個新世界。 從登錄 「五月花」號尋求上帝保護的朝聖者，到在今天這個前所未有的時代低頭尋求指引的無數信徒，我們的國家一直信奉著主。 追隨先輩的腳步，我們一直「堅定的依靠神聖上帝的保護」，依靠祂在我們需要時為我們提供的經久不衰的力量和保護。
+此後，政府採取各種手段壓制抗議活動，抗議者不顧將受到嚴厲懲罰的危險，繼續發聲抗議。
 
-The trials and tribulations the American people have faced over the past several months have been great.  Yet, as we have seen time and again, the resolve of our citizenry – fortified by our faith in God—has guided us through these hardships and helped to unite us as one Nation under God.  As we continue to combat the challenges ahead of us, we must remember the sage words of President George Washington during his first Presidential Address: “propitious smiles of heaven can never be expected on a nation that disregards the eternal rules of order and right, which Heaven itself has ordained.”  As a country and a people, let us renew our commitment to these abiding and timeless principles.
+一位蒙古男子告訴《洛杉磯時報》：“如果你不讓孩子（上學），他們就會讓你失去工作。”
 
-過去幾個月中，美國人民面臨了巨大的考驗和磨難。 然而，正如我們一再看到的那樣，美國公民因信仰上帝而得到增強的決心引導我們渡過了這些難關，幫助我們因同為上帝庇護的子民而團結在一起。 在繼續應對未來挑戰的同時，我們必須牢記喬治·華盛頓總統在其第一份總統講話中的聖言：如果一個國家無視上天主宰的有關秩序與權利的永恆規則，那麼上天的微笑永遠不會出現。作為一個國家和一個民族，讓我們重拾我們對這些永恆不變的原則的承諾。
+“你無法從銀行獲得補貼或貸款。他們將你列入黑名單。他們逮捕了簽署請願書的人。他們有各種辦法（整治你）。”
 
-Today, I am pleased to join my voice to yours in thanking God for blessing this nation with great power and responsibility.  With reverence, humility, and thanksgiving, we beg for His continued guidance and protection.
+上週五，據透露，中共政府在新疆設有多達400個集中營，關押維吾爾族和其他穆斯林少數民族。
 
-今天，我很榮幸與你們一同感謝上帝賜予美國偉大的力量和責任。我們懷著崇敬、謙卑和感恩的心情，祈求他繼續指引和保護我們。
+據估計，大約有150萬中共國穆斯林被關押在集中營中，其中許多人被用作像華為這樣的科技巨頭的強迫勞動力。
 
-[閱讀白宮英文全文](https://www.whitehouse.gov/briefings-statements/presidential-message-national-day-prayer-return-2020/)
+維吾爾族維權組織在“真正的北部”獨家報導中敦促加拿大政府重新考慮與華為的關係，因為華為使用了維吾爾集中營的勞動力。
 
-翻譯：【jamie(文胤)】校對&編輯：【Isaiah4031】
+評：
 
-戰友之間玫瑰園小隊出品
+滅絕少數民族和消滅宗教信仰始終是中共堅信的維持其強權統治的必要手段。
+
+中共統治中國七十年，從未停止過迫害西藏藏族人民，他們強硬干預西藏高僧轉世權，強拆寺廟，驅逐迫害僧侶，舉辦所謂政策學習班，對藏人進行精神恐嚇。藏人的生存空間越來越小。
+
+中共自2016年以來，加強了對新疆維吾爾人的迫害，除了在新疆拆毀穆斯林教堂，還建立了數百個再教育集中營，關押二百萬維吾爾人，活摘他們的器官進行販賣，強制他們像奴隸一樣地勞動，給他們做絕育手術和流產，以減少他們的人口…
+
+內蒙古在中共幾十年的粗暴統治下，綠草變成沙漠，蒙人逐漸漢化，蒙語成為蒙古族唯一的民族標記。最近中共一聲號令，命令學校實施漢語教學，意在徹底滅絕蒙語，蒙族永久漢化。
+
+蒙古族人的強烈反抗說明了中共做了一個不明智的選擇。那麼彝族會有怎樣的反應？制服彝族之後，下一個遭殃的少數民族又是哪一個呢？
+
+中共不會停止他們迫害滅絕種族和宗教信仰的惡行。不論是少數民族，還是漢族，都要看清中共集權統治的本質，他們靠馭民五術奴役十四億中國人，並且要將他們這一偽政權千秋萬代地維持下去。只有推翻中共，十四億人民才有生存和獲得自由的機會。
 
 0
