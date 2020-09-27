@@ -1,18 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 9.16 路德時評：川普轉推閆博士論文 證實病毒真相並定案平民主義跟精英主義的戰爭正式打響【精華版粵語配音】
-`2020-09-26 10:33 GM42` [轉載自GNews](https://gnews.org/zh-hant/384307/)
+## （Spanish+English）川普總統在聯合國大會上發言:中共國必須要為疫情負責
+`2020-09-26 12:13 GM62` [轉載自GNews](https://gnews.org/zh-hant/384419/)
 
-製作單位：戰友之家-粵語組
-製作團隊：食飽飽、wen fei、哥阿、文雀、wikim bao
+西班牙語標題 El Presidente Trump se dirige a la Asamblea General de la ONU: El PCCh debe ser responsable de la epidemia
 
+翻譯：謎擬Q 校對：帅虎 視頻：小羽
 
+視頻簡介
+中共國必須要為疫情負責, 世衛組織被中共控制
 
-
-
-摘要：
-閆博士發表的科學報告引起全球極大反響，反對派和中共媒體都攞不出有利的證據反駁這份科學報告。
-Twitter封閆博士的帳號嚴重影響了美國人的言論自由，引起政界強烈反對，齊來討伐 Twitter聲援閆博士，令到更加多的美國人了解到病毒真相。
+El PCCh debe ser responsable de la epidemia, la OMS es controlada por el PCCh
 
 0
