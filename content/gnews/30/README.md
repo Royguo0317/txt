@@ -1,20 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP病毒能精准打擊某一種族？研究表明非裔感染率高與ACE等位基因缺失有關
-`2020-09-26 19:47 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/384995/)
+## 中共又鬧煤荒，東北今冬煤炭缺口超3700萬噸
+`2020-09-27 02:04 GM64` [轉載自GNews](https://gnews.org/zh-hant/385565/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/24031241/20200908_Ethnic_Prevalence_photo169.png)圖片來源：[Obi Onyeador](https://unsplash.com/@thenewmalcolm?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/african-american-coronavirus?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText)， [CDC](https://unsplash.com/@cdc?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/virus?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText)
-新聞摘要：據2020年8月24日發表於《種族和民族健康差異雜誌》（Journal of Racial and Ethnic Health Disparities）的一篇科學論文從特定族群的基因簇樣本入手，研究了血管緊張素轉化酶（ACE）對應等位基因多態性對於CCP病毒感染率的關係，並指出**非洲裔族群的****ACE****等位基因缺失（****D****）型占比****高於其他族群，非洲裔較多感染****CCP****病毒與轉化酶缺失的相關聯關係**。在美國，ACE D等位基因在**非西班牙裔黑人**中出現的頻率高於非西班牙裔白人和墨西哥裔美國人。
+內新聞/素材：鷹(文言)     校對：七哩香
 
-[下载英文原文](https://link.springer.com/content/pdf/10.1007/s40615-020-00853-0.pdf) （註：以下翻譯僅做參考使用，一切內容以英文原文為準）
+澎湃網轉載中國能源報微信公眾號2020年9月26日消息，9月末東三省進入冬季用煤儲備期，但電煤供應缺口達3700萬噸，成為2016年以來最大缺口。缺口主要原因可以概括為以下幾點：
 
-[下載中文簡體PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/09/24101813/20200908_Ethnic_Prevalence_SIM-v2.pdf)
+1、近年來受煤炭資源枯竭和“去產能”影響，東三省煤炭自產量快速下降，年煤炭需求超過3.5億噸，但2019年的產能只有1.35億噸，不足需求的39%，而20年以來，受中共病毒影響，吉、遼、黑產能更是同比下降21.3%、4.9%和4.6%。
 
-[下載中文繁體PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/09/24101754/20200908_Ethnic_Prevalence_TRAD-v2.pdf)
+2、東三省下游對煤炭需求攀升，1-7月份吉林火電發電量同比增長2.5%。由於七八月份長江流域洪水氾濫，水壩決堤，水電產能急劇下滑，對火電需求劇增，進而影響1-7月份東北地區輸出華北等地區電量同比增長12.8%，加大了秋末冬初煤炭需求。
 
-翻譯：【Naomi】  校對：【重生】  編輯：【Isaiah4031】
+3、煤炭補充困難，隨著國內整治煤炭行業，大量關停年產30萬噸以下的中小型煤礦，再加上部分國有煤礦縮減產銷，造成蒙東地區約4000萬噸煤炭產量受影響；受中共病毒影響，俄羅斯煤炭出口下降，全年降幅將達到10%。
 
-戰友之家玫瑰園小隊出品
+4、火力發電佔比72%，而隨著南方水電供給的疲軟，火力發電需求加大。全國1-8月份進口煤炭約2.2億噸，接近煤炭進口年3.3億頂峰，而國內煤炭產能的下降，水泥、化工等非電耗煤需求加大，使得3.3億的煤炭進口不足以緩解全國煤炭供應，而著重解決東三省煤炭缺口則更加困難。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/27015712/Screenshot_2020-09-27-09-54-58-482_Discord.png)
+新聞來源： [https://www.thepaper.cn/newsDetail\_forward\_9359748](https://www.thepaper.cn/newsDetail_forward_9359748)
 
 0
