@@ -1,47 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 劉亦菲現象，淺聊中國女性的沈淪
-`2020-09-27 11:18 GM77` [轉載自GNews](https://gnews.org/zh-hant/386838/)
+## 中共國在南中國海開出的空頭支票— 9月27日美國務院新聞公報
+`2020-09-27 15:18 GM65` [轉載自GNews](https://gnews.org/zh-hant/387008/)
 
-今天（北京時間27日）路德社爆料**“神仙姐姐”劉亦菲是習近平深藏不露的白手套嶽欣禹的現任情人。該消息一經曝光，便瞬間在華人圈炸開了鍋。**繼17年郭文貴先生爆料娛樂圈女明星軼事後，沈靜了將近3年的娛樂圈再次被引爆，上演驚天大戲。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/27150139/Screen-Shot-2020-09-27-at-15.01.23.png)
+**China’s Empty Promises in the South China Sea**
 
-有“神仙姐姐”之稱的劉亦菲，2002年因飾演張紀中執導的《天龍八部》王語嫣一角一炮走紅，當時年僅15歲。小小年紀、非科班出身的她卻能在大咖導演的戲份中飾演女二號，而且還能在人才濟濟的娛樂圈中脫穎而出，這樣的成績與經歷也著實令人稱奇，讓同行好生羨慕。
+**中共國在南中國海開出的空頭支票**
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/27094212/1-152.jpg)
+*PRESS STATEMENT*
 
-**2017****年劉亦菲本色出演電影《二代妖精》**
+*新聞公報*
 
-**神秘身世，神奇走紅**
+*MORGAN ORTAGUS, DEPARTMENT SPOKESPERSON*
 
-走紅後的劉亦菲身邊常常伴隨著兩個身影，一位是與劉亦菲的母親，母女倆樣貌極其相似，另一位就是自稱是劉亦菲幹爹的地產商人陳金飛。劉亦菲出道的第一個作品，就是參與拍攝其幹爹地產公司旗下一個樓盤“金菲公寓”的平面廣告。**劉亦菲出道至今，其生父似乎極少出現， 其成長環境和走紅也顯得頗為神秘。**
+*國務院發言人摩根·奧塔格斯*
 
-劉亦菲母親劉曉莉曾是武漢歌舞劇院的一名演員，今年61歲但風韻猶存。據網上流傳，劉亦菲10歲時父母離異，劉隨母親來到美國。“神仙姐姐”好“幸運”，到美國不久就得到一位繼父的關照，時隔5年又有另一位地產商幹爹的大手筆力捧，讓她迅速成為娛樂圈當紅花旦。
+*SEPTEMBER 27, 2020*
 
-劉亦菲18歲的時候，幹爹陳金飛就曾壕擲180W在釣魚臺給她辦成人禮，可見幹爹對其是“百般寵愛”遠甚於美國的那位繼父，19歲便與成龍、李連傑演對手戲，20歲已經簽約好萊塢與國際章同一經紀人。當然，這一切的背後都少不了這位幹爹的運作。
+*2020年9月27日*
 
-我們從劉亦菲及其母親以及其幹爹陳金飛三人同框的畫面來看，劉亦菲與幹爹的親密程度非同一般， 可見小妮子已繼承其母衣缽，且青出於藍而勝於藍。
+Five years ago on September 25, 2015, General Secretary Xi Jinping stood in the White House Rose Garden and stated “China does not intend to pursue militarization” of the Spratly Islands, and China’s outposts would not “target or impact any country.” China has instead pursued a reckless and provocative militarization of those disputed outposts, they have deployed anti-ship cruise missiles, expanded military radar and signal intelligence capabilities, constructed dozens of fighter jet hangars, and have built runways capable of accommodating combat aircraft.
 
-**利令智昏，為虎作倀**
+五年前，2015年9月25日，習近平總書記站在白宮玫瑰園，說“中國無意將南沙群島軍事化”，中共國的前哨基地也不會“瞄准或影響任何國家”。但是現在，中共國對這些有爭議的哨所進行了野蠻和挑釁式的軍事化建設，部署了反艦巡航導彈，擴建了軍事雷達和信號情報能力，建造了數十個戰鬥機機庫，以及可供戰鬥機起降的跑道。
 
-俗話說，人怕出名豬怕壯。特別是美女如雲的娛樂圈，據路德社北京時間9月27日爆料，這幾天剛剛曝光的習近平白手套，中國環保能源控股有限公司及金磚資本管理有限公司的董事嶽欣禹，開價1個億包養劉亦菲，此時的劉亦菲早已不是省油的燈，討價還價以1年5個億人民幣的包養金額成交，三個月後自認深得主子喜愛的劉亦菲再討5億為自己的身價創出新高，外加10多個愛馬仕的包包，本想皆大歡喜哪知愛馬仕包被劉亦菲查出是假貨，嶽董“豪氣”的形象在劉母女心裏也因此大打折扣，殊不知中共土豪們心中的愛馬仕不就是廣東某某皮具廠的貨色嗎？真的假的不都是個包嗎？有啥區別！？差不多就行啦！但是女星們心裏可不這麽想，那可是在娛樂圈身份和地位的象征！
+The Chinese Communist Party (CCP) uses these militarized outposts as platforms of coercion to assert control over waters to which Beijing has no lawful maritime claim. They serve as staging grounds for the hundreds of maritime militia vessels and China Coast Guard ships that regularly harass civilian craft and impede legitimate law enforcement activities, offshore fishing, and hydrocarbon development by neighboring states.
 
-土豪們包養明星的軼事只是吃瓜群眾們茶余飯後各尋開心而已，但是作為公眾人物的劉亦菲去年在香港反送中事件中，在自己擁有6700多萬粉絲的微博公開支持香港警察，還極其囂張地表示：“妳們可以打我了！” 同時附上英文「What a shame for Hong Kong」，引起海外心系香港網友們的極大憤怒，推特上網友們開始自發地抵制劉亦菲主演的新片《花木蘭》。
+中國共產黨（CCP）使用這些軍事化的前哨基地作為控制平台，對其宣稱非法海事主張的水域強行進行控制。數百艘海上民兵船隻和中國海岸警衛隊船隻將它們作為集結地，經常出海騷擾民用船隻並妨礙執法活動、海上捕魚和鄰國油氣開發作業。
 
-可悲的是這條微博竟然為劉亦菲收獲了超過10萬個贊，這位甘願出賣身體出賣尊嚴的中共權貴的“公共廁所”，一邊享受著美國公民身份的自由權力和千萬粉絲的愛護，一邊不顧香港示威民眾被黑警殘暴鎮壓奸淫甚至殺害，不顧香港事件的真相，蒙蔽防火墻內的14億人民，公然為邪惡的中共主子站臺，行為實在是極為卑劣可恥！《 花木蘭》上映遭遇滑鐵盧，這只是剛剛開始。為虎作倀之人必將得到應有的報應，董卿等人的結果就是最好的驗證。
+The CCP does not honor its words or commitments. In recent months, we have seen an unprecedented number of states express their formal opposition at the United Nations to China’s unlawful maritime claims in the South China Sea. We urge the international community to continue to raise its opposition to this unacceptable and dangerous behavior, and to make clear to the CCP that we will hold it to account. The United States will continue to stand with our Southeast Asian allies and partners in resisting China’s coercive efforts to establish dominion over the South China Sea.
 
-**女性是世界美好的希望之源**
+中共言而無信。最近幾個月，我們前所未有地看到多個國家在聯合國對中共國在南海的非法海事主張提出正式反對。我們敦促國際社會繼續對這種不可接受的和危險的行為提出反對意見，並向中共明確表示我們將追究其責任。美國將繼續與我東南亞盟國和夥伴國一起，抵制中共國試圖在南中國海建立統治地位的強行做法。
 
-9月25日郭文貴先生在蓋特上推出新西蘭朱萬利、臺灣陳文茜、日本“鹹鴨蛋”（推特名）和夏威夷豆小豆小豆（推特名），稱這四個女孩代表了我們中國女性當中被共產黨洗腦和收買．……最最悲哀．可憐可恨的這麽一個形象……我們也要面對現實。有很多完全失去了一個女性，起碼應有的尊嚴和母愛和正義，特別是女性最起碼應有的人性的光輝的人。
-
-如今的中共國內，整個社會上上下下無不彌漫著對權力和金錢的極度崇拜，不論是娛樂圈、央視鳳凰衛視還是社交媒體上，再到爆料革命引出的各種海外欺民女賊，甚至到我們身邊相識的形形色色的女性，中共盜國賊借改革開放大肆集權斂財，卻摧毀了人民心底善良純真的天性，剝奪了人民對宗教信仰的權力，中共用”貧民“”弱民“”疲民“”辱民“”愚民“奴役人們的思想，讓中國人永遠在溫飽線上掙紮，無暇遵從內心深處的良善，轉而全體信仰權力與金錢至上。
-
-大學裏女生們攀比著來接自己的車豪華程度；走上社會的女性們為得到更多的機會去選擇權色交易；適婚女性們為男方及其家庭的經濟條件調價還價，無數女性們在一味迷戀金錢和權力的道路上失去了自我失去了尊嚴。
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/27093955/2-66.jpg)*1947年，燕京大學女生宿舍                                                     1989年，北京大學女生宿舍*
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/27094902/3-39.jpg)*2019年，北京大學女生宿舍                                                       ——德國馬丁·楊克*
-
-無論是劉亦菲、其母劉曉莉還是嶽欣禹的前情人葉璇，無論是範冰冰、許晴還是董卿等等；無論是我們身邊的姐妹、女友、女同事，權力只是春藥令人銷魂一刻，在被權貴寵幸背後的滋味她們應該深有體會，**追尋心裏的良與善才是通往世間美好的唯一途徑，這個世界是公平的，善惡終有報,天道好輪回,不信擡頭看,蒼天饒過誰。**
+[原文鏈接](https://www.state.gov/chinas-empty-promises-in-the-south-china-sea/)
 
 0

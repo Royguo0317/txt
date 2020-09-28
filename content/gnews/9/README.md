@@ -1,38 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共國在南中國海開出的空頭支票— 9月27日美國務院新聞公報
-`2020-09-27 15:18 GM65` [轉載自GNews](https://gnews.org/zh-hant/387008/)
+## 為正在全世界參加滅賊行動的戰友加油喝彩！
+`2020-09-27 17:49 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/387137/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/27150139/Screen-Shot-2020-09-27-at-15.01.23.png)
-**China’s Empty Promises in the South China Sea**
+作者：英國喜莊園戰友：寧缺#3950
 
-**中共國在南中國海開出的空頭支票**
+*校對/審核：Julia Win；Page：拱卒*
 
-*PRESS STATEMENT*
+[!\[\]()!\[\](https://spark.adobe.com/page/ZTLQw22h5OQem/images/68854f84-0cc3-46c1-96f6-4a71241cf80b.jpg?asset_id=c25636d4-2e12-47a5-a68c-e3bdbf5f8f03&amp;img_etag=%22248cf255fc026831bb0317adf5dfaa03%22&amp;size=1024)](https://spark.adobe.com/page/ZTLQw22h5OQem/images/68854f84-0cc3-46c1-96f6-4a71241cf80b.jpg?asset_id=c25636d4-2e12-47a5-a68c-e3bdbf5f8f03&amp;img_etag=%22248cf255fc026831bb0317adf5dfaa03%22&amp;size=1024)
 
-*新聞公報*
+## **為正在全世界參加滅賊行動的戰友加油喝彩！**
 
-*MORGAN ORTAGUS, DEPARTMENT SPOKESPERSON*
+近日，世界各地的爆料革命戰友積極響應文貴先生的正義號召，在全球範圍內發起了對中共外宣統戰爪牙的反擊，贏得了所有戰友的一片叫好。作為爆料革命滾滾浪潮中的一朵小浪花，內心按耐不住要為敢於站出來讓西方世界認清欺民賊和共特的英雄戰友們歡呼！
 
-*國務院發言人摩根·奧塔格斯*
+回顧幾年來爆料革命的風雨艱辛歷程，從開始文貴先生孤軍奮戰的點點星火，發展到今天全世界喜馬拉雅農場戰隊遍地開花，滅共之勢風起雲湧。一路走來，文貴先生經歷了多次生死懸於一線的險境，許多戰友受盡了中共的威脅恐嚇，文貴先生被中共及其爪牙們以各種形式潑髒水、抹黑，並與戰友們一起忍辱負重，砥礪前行，終於迎來了今天全世界一起滅共的局面。中共滅亡指日可待。所有的戰友需要繼續努力，一鼓作氣，形成摧枯拉朽之勢，把中共在西方世界嵌入的一個個契子徹底摧毀！
 
-*SEPTEMBER 27, 2020*
+革命不是請客吃飯，革命不是評比風格氣度的禮儀大賽，更不是你好我好大家好和稀泥式的處世哲學。革命是真與假的生死較量，是正義與邪惡的殊死搏鬥。中共的代理人、欺民賊拿著髒錢，乾著滲透、危害西方民主世界、抹黑凌辱爆料革命的髒活，如果無動於衷，繼續放任欺民賊就是為虎作倀。對欺民賊的仁慈就是對中共的仁慈，對欺民賊的同情就是對受中共打壓、威脅、迫害的戰友的侮辱和漠視。爆料革命離不開所有台前幕後戰友的積極行動，無私奉獻。默默奉獻的戰友值得敬佩，敢於拋頭露面與欺民賊面對面的戰友勇氣更為可嘉。
 
-*2020年9月27日*
+為正在全世界參加滅賊行動的戰友加油喝彩！
 
-Five years ago on September 25, 2015, General Secretary Xi Jinping stood in the White House Rose Garden and stated “China does not intend to pursue militarization” of the Spratly Islands, and China’s outposts would not “target or impact any country.” China has instead pursued a reckless and provocative militarization of those disputed outposts, they have deployed anti-ship cruise missiles, expanded military radar and signal intelligence capabilities, constructed dozens of fighter jet hangars, and have built runways capable of accommodating combat aircraft.
-
-五年前，2015年9月25日，習近平總書記站在白宮玫瑰園，說“中國無意將南沙群島軍事化”，中共國的前哨基地也不會“瞄准或影響任何國家”。但是現在，中共國對這些有爭議的哨所進行了野蠻和挑釁式的軍事化建設，部署了反艦巡航導彈，擴建了軍事雷達和信號情報能力，建造了數十個戰鬥機機庫，以及可供戰鬥機起降的跑道。
-
-The Chinese Communist Party (CCP) uses these militarized outposts as platforms of coercion to assert control over waters to which Beijing has no lawful maritime claim. They serve as staging grounds for the hundreds of maritime militia vessels and China Coast Guard ships that regularly harass civilian craft and impede legitimate law enforcement activities, offshore fishing, and hydrocarbon development by neighboring states.
-
-中國共產黨（CCP）使用這些軍事化的前哨基地作為控制平台，對其宣稱非法海事主張的水域強行進行控制。數百艘海上民兵船隻和中國海岸警衛隊船隻將它們作為集結地，經常出海騷擾民用船隻並妨礙執法活動、海上捕魚和鄰國油氣開發作業。
-
-The CCP does not honor its words or commitments. In recent months, we have seen an unprecedented number of states express their formal opposition at the United Nations to China’s unlawful maritime claims in the South China Sea. We urge the international community to continue to raise its opposition to this unacceptable and dangerous behavior, and to make clear to the CCP that we will hold it to account. The United States will continue to stand with our Southeast Asian allies and partners in resisting China’s coercive efforts to establish dominion over the South China Sea.
-
-中共言而無信。最近幾個月，我們前所未有地看到多個國家在聯合國對中共國在南海的非法海事主張提出正式反對。我們敦促國際社會繼續對這種不可接受的和危險的行為提出反對意見，並向中共明確表示我們將追究其責任。美國將繼續與我東南亞盟國和夥伴國一起，抵制中共國試圖在南中國海建立統治地位的強行做法。
-
-[原文鏈接](https://www.state.gov/chinas-empty-promises-in-the-south-china-sea/)
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/ZTLQw22h5OQem/)
 
 0

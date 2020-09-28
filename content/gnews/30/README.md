@@ -1,21 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## （German+English）川普總統在聯合國大會上發言:中共國必須要為疫情負責
-`2020-09-27 09:16 GM62` [轉載自GNews](https://gnews.org/zh-hant/386571/)
+## 中共國製KN95口罩高達70％有質量問題
+`2020-09-27 10:51 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/386828/)
 
-德語標題 Präsident Trump spricht auf der Generalversammlung der UNO: KPCh-China muss die Verantwortung für die Epidemie nehmen
+喜馬拉雅聯盟加拿大農場文來校對文錦
 
-原文校對：tiger64
+據9月25日國家脈搏（The National Pulse）透露，高達70％的中共國製、進口美國的口罩被認定為有缺陷。美國最大的患者安全組織ECRI是一家非營利組織，數十年來一直向醫院，政府組織和其他醫療保健利益相關者提供產品安全方面建議。他們的研究人員發現60％至70％的進口KN95口罩不能阻擋95％的氣溶膠微粒。這和它的名字完全不符。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/27103613/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE403.png)
+ECRI對15種不同的製造商的口罩中的200個進行了測試。測試是根據ECRI的質量保證研究人員在該組織的獨立醫療設備實驗室進行的嚴格產品測試協議進行的。測試結果為ECRI發出了高度危險警報。因為這些口罩正在或將會被投入到醫療健康系統中。
 
-德語翻譯：大脚印 德語校對：ItIsHappening
+ECRI總裁兼首席執行官，醫學博士Marcus Schabacker表示： “由於形勢嚴峻，在過去六個月中，美國的醫院購買了成千上萬在中共國生產的口罩，而我們發現許多這種口罩對預防傳播中共病毒並不安全有效” ， “使用不符合美國標準的口罩會使患者和一線醫護人員面臨感染的風險。我們強烈建議醫療保健提供者在購買未在美國製造或認證的口罩之前進行更多的盡職調查，我們會在這里為他們提供幫助。”
 
-字幕整理：Ouroboros文菠萝 視頻：文件夹
+在中共病毒大流行初期，由於醫護人員的個人防護設備（PPE）嚴重短缺，美國不得不求助於成千上萬在中共國新註冊的公司來生產KN95口罩。儘管最近美國政府支持的PPE生產增加，包括製造N95口罩，但是可購買數量的依舊短缺，導致提供商繼續購買不符合美國標準的進口KN95口罩。此前加拿大、荷蘭等國也因質量不合格原因，召回由中共國生產的KN95口罩。
 
-視頻簡介
-
-川普總統在聯合國大會上指責中共造成了病毒在美國和世界傳播,應予以追責。
-
-Präsident Trump kritisierte die KPCh auf der UNO-Generalversammlung, die Ausbreitung des Virus in der UNO und in der Welt verursacht zu haben, und sollte zur Rechenschaft gezogen werden
+自從中共病毒被惡意散佈到全世界以來，中共可以說是窮凶極惡。一方面極力掩蓋病毒真相，同時又掃蕩了全世界的防護用品。讓全世界都不得不從中共國購買口罩。而中共國的商家為牟取暴利，生產劣質口罩，拿人命當兒戲。可見國人在中共長期統治下，已變得道德淪喪，沒有底線。只有滅掉共產黨，建立真正的有法制的新中國，這種事情才會終止。
 
 0
