@@ -1,47 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 金融核彈：恒大集團崩盤在即，將引發災難
-`2020-09-27 21:53 EWENFEI` [轉載自GNews](https://gnews.org/zh-hant/387205/)
+## 【香港要聞】香港黑警對路過的12歲女學生施襲後企圖欲蓋彌彰，對外宣稱是『截停』
+`2020-09-28 03:40 GM42` [轉載自GNews](https://gnews.org/zh-hant/387975/)
 
-作者：文非
+製作單位：戰友之家-粵語組
+編撰：恩典
+審核：WK
 
-8月份，恒大集團發佈關於懇請支持重大資產重組專案的情況報告，報告表示如果恒大地產本次重組未如期完成，可能引發一系列系統性風險，可能導致恒大地產現金流斷裂，進而引發金融系統性風險。
+據**【立場新聞】**9月27日訊 香港在9·6九龍大遊行期間，一名12歲的女童與家人行走購物時，因驚慌害怕逃跑的時候，被正在施暴的多名防暴惡警撲倒，黑警當天曾在Facebook發文指是「制服」12歲女童。然而，香港黑警在今天回應媒體時竟然篡改口供，顛倒黑白，說是「以最低武力將該女童截停」，又指事後已馬上安排女警安慰女童。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/28033231/Untitled-1-06_8BoBh_1200x0-1.png)圖片：立場新聞
+**戰友點評 ：【恩典】**
+     自國安惡法出台後，香港黑警變本加厲，更是使出共匪的家本領：篡改口供，欲蓋彌彰，無恥至極。港姦黑警發文從原來的「制服」修改為「截停」，而後又宣稱「派女警進行安慰和照顧」，港黑警這一系列拙劣的表演被女孩母親一語戳破，謊話連篇，哪裡來的安慰與照顧。
+     只不過證明了共匪以騙治國的鐵證多了一個證據而已。在多家媒體記者拍照紀錄了真實畫面的鐵證下，還能夠光天化日對著鏡頭厚顏無恥的篡改口供，真的不愧是共匪培養出來的走狗敗類。
+    港奸黑警絞盡腦汁篡改所有可以用的上為他們做為打壓香港人的藉口，用暴力手法制伏一個沒有任何反抗能力的未成年學生。國安惡法賦予了黑警無限權力，它們的迫害對像已經從香港政治異見人士的範圍不斷擴大到竟然連小學生都不放過，中共面對人權組織的關注和世界批評視而不見、目中無人的態度也是令人咋舌。
+    從去年6月香港市民抗議以來，至少3000多名學生被逮捕，顯示了共匪一直在針對香港校園群體進行打壓與抓捕。為了下一代的未來不再生活在極權統治與暴力恐懼中，不再被邪惡共匪所綁架，我們必須號召全世界團結起來，打倒中共，滅共刻不容緩。
 
-恒大集團簡介：
+來源：立場新聞
 
-中國恒大集團（英語：China Evergrande Group，港交所：3333），簡稱恒大集團或恒大，是總部位於深圳的大型綜合性企業集團，1996年由許家印在廣州創辦。集團核心業務為房地產開發，是中國規模最大的地產發展商之一，項目遍及全國兩百多個城市，此外亦發展汽車、旅遊、體育、金融、健康養老等多元化業務。其入股的廣州恒大淘寶足球俱樂部是亞洲近年表現最出色的足球俱樂部之一。集團于2016年進入《財富》世界500強，2020年排行第152位。
-
-崩盤前兆：
-
-有媒體報導稱，恒大集團董事局主席許家印主持集團行銷大會，在會上宣佈自9月7日起至10月8日，恒大全國樓盤全線7折，並透露“金九銀十”兩個月，單月銷售額要衝刺1000億元。**以一套原價****100****萬的恒大房子為例，如果享受所有折扣優惠，現在購買只需要****58****萬左右**。據說，在如此大力度促銷的背後，恒大的目標顯而易見–搶銷售、抓回款、降負債。
-
-所有債務都打折，將房子修建完成後出售，如果恒大集團打算利用時間來換空間，利息抵本金，然後給時間來出售房子，也許能挽救一絲生命。**但是由於恒大的債務體量過大，僅僅通過割韭菜是遠不能解決問題的**。
-
-恒大正在點燃房地產泡沫的暴雷，其資金鏈一旦斷裂，首當其衝是放貸銀行和買房的客戶，也將在一定程度上引發連鎖反應，造成金融海嘯。**郭文貴先生說的“一周破產一家銀行”會很快實現**。
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/27205606/%E4%B8%8B%E8%BD%BD-1-2-2.jpg)
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/27205619/%E4%B8%8B%E8%BD%BD-2-3.jpg)
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/27205707/4-33.jpg)
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/27205732/5-17.jpg)
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/27205742/%E4%B8%8B%E8%BD%BD-5-1.jpg)
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/27205758/%E4%B8%8B%E8%BD%BD-6-1.jpg)
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/27205829/%E4%B8%8B%E8%BD%BD-8.jpg)
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/27205841/%E4%B8%8B%E8%BD%BD-9.jpg)
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/27205854/%E4%B8%8B%E8%BD%BD-10.jpg)
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/27205947/%E4%B8%8B%E8%BD%BD-11.jpg)
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/27205959/%E4%B8%8B%E8%BD%BD-12.jpg)
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/27210011/%E4%B8%8B%E8%BD%BD-13.jpg)
+[https://www.thestandnews.com/politics/%E6%92%B2%E5%80%92-12-%E6%AD%B2%E5%B0%91%E5%A5%B3-%E8%AD%A6%E6%9B%BE%E7%A8%B1-%E5%88%B6%E6%9C%8D-%E4%BB%8A%E6%94%B9%E5%8F%A3-%E6%88%AA%E5%81%9C-%E5%8D%80%E8%AD%B0%E5%93%A1%E6%96%A5%E6%8C%87%E9%B9%BF%E7%82%BA%E9%A6%AC/](https://www.thestandnews.com/politics/%E6%92%B2%E5%80%92-12-%E6%AD%B2%E5%B0%91%E5%A5%B3-%E8%AD%A6%E6%9B%BE%E7%A8%B1-%E5%88%B6%E6%9C%8D-%E4%BB%8A%E6%94%B9%E5%8F%A3-%E6%88%AA%E5%81%9C-%E5%8D%80%E8%AD%B0%E5%93%A1%E6%96%A5%E6%8C%87%E9%B9%BF%E7%82%BA%E9%A6%AC/)
 
 0
