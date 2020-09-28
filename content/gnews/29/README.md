@@ -1,21 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## （French+English）只有推翻中國共產黨政權,我們才能徹底調查病毒真相
-`2020-09-27 08:39 GM62` [轉載自GNews](https://gnews.org/zh-hant/386461/)
+## 【香港要聞】網媒聯盟斥篩選監察者本末倒置：被消失非主流記者媒體就是掩蓋真相
+`2020-09-27 09:20 GM42` [轉載自GNews](https://gnews.org/zh-hant/386607/)
 
-法文標題 Ce n’est qu’en renversant le régime du PCC que nous pourrons enquêter de manière approfondie sur la vérité du virus
+製作單位：戰友之家-粵語組
+編撰：恩典、文錦
 
-字幕整理：文菠萝
+據蘋果日報9月27日報導，警方修訂《警察通例》下「傳媒代表」的定義，僅承認已登記政府新聞處新聞發布系統（GNMIS）的機構，香港網絡新聞工作者聯盟批評警方「帶頭製造不公平」，質疑政府及警方本是被監察一方，「被監察的人篩選哪個監察他們，這個叫做本未倒置」，認為將媒體分成不同階級，有違公平原則，強調會繼續採訪。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/27091531/ax0y9-7rkok-ok.jpg)圖片：蘋果日報
+**戰友點評：【恩典】**
+     今日香港網絡新聞工作者聯盟召開記者會，反對警方修改《警察通例》的傳媒定義。有立法民主議員和多媒體出席會議，對於一個獨裁政權是不理會任何反對聲音的，香港正是斷送在林鄭政府一味聽從中共主子的話。
+     無論香港人如何要求，到頭來得到的都是以各種各樣的所謂罪行控告香港人，本來《警察通例》是監管香港警察的，如今香港的所謂警察反倒凌駕法治司法之上了，香港儼然已成為中共的一個省，香港執法黑警沒有了監督的部門，將成為香港最大的公權力機器和為所欲為的惡棍流氓。
+     從去年到現在，將香港發生的真實歷史紀錄下來的，大多數是非主流的記者媒體，大媒體很多時候都已被收買或要挾，成為黨媒和政治正確的媒體。
+     所以如果沒有這些非主流的記者媒體的勇敢報導，黑警違紀違法的惡行，香港會消失更多無辜的人，民主世界也看不到香港到底真正發生甚麼事情，
+     這次黑警動刀切除自媒體和網媒、自由記者，正是中共指使港府意欲掩蓋香港危機真相的邪惡之處。
 
-英文校對：tiger64
+以上觀點僅代表筆者本人
 
-法文翻譯：Lully 法文校對：石野鲜生 視頻字幕：文靓
+新聞來源：蘋果日報
 
-視頻重點
-
-這個病毒是PLA的實驗室改造的。 PCC一直在鼓勵功能增強實驗和製造更強的病毒。 只有滅掉了這個政權,我們才能獲得病毒真相。
-
-Ce virus a été modifié par le laboratoire de PLA. Le PCC a encouragé les expérimentations d’amélioration fonctionnelle et la création de virus plus puissants. Le seul moyen de trouver la solution et savoir exactement ce qui s’est passé est de supprimer ce régime
+[https://hk.appledaily.com/local/20200927/KZKWB3YCRJFIVDGQYVVRLBAWTM/](https://hk.appledaily.com/local/20200927/KZKWB3YCRJFIVDGQYVVRLBAWTM/)
 
 0

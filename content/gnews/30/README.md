@@ -1,43 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 玫瑰看新聞第六期（視頻版）焦點新聞（9月23日-9月26日）
-`2020-09-27 07:55 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/386439/)
+## （German+English）川普總統在聯合國大會上發言:中共國必須要為疫情負責
+`2020-09-27 09:16 GM62` [轉載自GNews](https://gnews.org/zh-hant/386571/)
 
-編譯：玫瑰天空
+德語標題 Präsident Trump spricht auf der Generalversammlung der UNO: KPCh-China muss die Verantwortung für die Epidemie nehmen
 
-本期焦點新聞摘要：
+原文校對：tiger64
 
-**\***特朗普要求聯合國對中國向全球傳播新冠病毒問責
+德語翻譯：大脚印 德語校對：ItIsHappening
 
-**\***蓬佩奧籲美官員提防中國間諜行動
+字幕整理：Ouroboros文菠萝 視頻：文件夹
 
-**\***特朗普和習近平在聯合國會議上的緊張關係
+視頻簡介
 
-**\***紅衣主教貝喬：梵蒂岡官員意外辭職
+川普總統在聯合國大會上指責中共造成了病毒在美國和世界傳播,應予以追責。
 
-**\***華為公司**25**日中國境內實驗室發生大爆炸
-
-
-
-**\***菅義偉與習近平通電話涉香港釣魚島未提訪日事
-
-🌹❤️ 感謝收看本期玫瑰新聞，歡迎點贊訂閱及分享，我們下期再見。 ❤️🌹
-
-❤️《玫瑰看新聞》每週三，週日12：00（新西蘭時間）在GTV和YOUTUBE「喜馬拉雅新西蘭農場」時政頻道同步播出❤️
-
-以下是玫瑰看新聞視頻版往期視頻鏈接：
-
-[玫瑰看新聞第五期（視頻版）焦點新聞（9月20日-9月22日）](https://gnews.org/zh-hans/386346/)
-
-[玫瑰看新聞第四期（視頻版）九月13日-19日焦點新聞](https://gnews.org/zh-hans/373588/)
-
-[玫瑰看新聞第三期（視頻版）9月5日-12日焦點新聞](https://gnews.org/zh-hans/373664/)
-
-[玫瑰看新聞第二期（視頻版）焦點新聞（8月30日-9月5日）](https://gnews.org/zh-hans/373799/)
-
-[玫瑰看新聞第一期（視頻版）8月23日-8月29日](https://gnews.org/zh-hans/373912/)
-
-
+Präsident Trump kritisierte die KPCh auf der UNO-Generalversammlung, die Ausbreitung des Virus in der UNO und in der Welt verursacht zu haben, und sollte zur Rechenschaft gezogen werden
 
 0

@@ -1,30 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印度尋求海上優勢以應對中共國涉足印度洋地區
-`2020-09-27 12:12 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/386899/)
+## 中共國在南中國海開出的空頭支票— 9月27日美國務院新聞公報
+`2020-09-27 15:18 GM65` [轉載自GNews](https://gnews.org/zh-hant/387008/)
 
-喜馬拉雅聯盟加拿大農場 Revelation119熙攘
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/27150139/Screen-Shot-2020-09-27-at-15.01.23.png)
+**China’s Empty Promises in the South China Sea**
 
-校對 風雲小哥
+**中共國在南中國海開出的空頭支票**
 
-印度加強與美國及其他國家的合作，以對抗中共國圖謀亞洲主導力量的野心。印中邊界爭端迫使印度在對中共國的挑釁尋找新的突破點：加深與其他民主國家合作, 增強海軍實力抗衡中共國全球野心，秀其海軍實力，威懾中共國。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/27120257/%E4%B8%AD%E5%8D%B0-1.jpg)圖片來源：Fair Observer
-印度有世界上最大的海軍，處於印度洋上的重要海運樞紐。這個位置連接著中共國和其主要油氣資源供給來源的中東國家，同時也是中共國出口貨物至歐洲的重要通道。雖然中共國軍力提高迅速，但其在距離本國國土很遠的印度洋並不能發揮其優勢。並且中共國同時還得在自家後院（南中共國海）與美國海軍對持。已退休的前印海軍官員Adm. Arun Prakash說： “在處於爭端中的印中邊界，我們希望看到的最好情況是兩軍僵持而不是發生更惡劣的情況如戰爭。但是在海上我們具有很大優勢。通過與同盟國家海上聯合軍事演習，我們可以向中共國發出明確信號：中共國你很脆弱。我們可以阻撓你在印度洋的商業和能源運輸。你的經濟會加劇動盪。”
+*PRESS STATEMENT*
 
-印度一邊加強與美國及其他盟國的海軍軍事演習，一邊建造更多的海軍艦艇及海岸監視網絡。印度可以隨時了解印度洋上的異常軍事或運輸活動。歷史上印度軍事中心一直放在北境接壤的擁核國家巴基斯坦和中共國。隨著印度外貿產業的發展，以及中共國開始介入印度一直認為是其影響力主導的南亞國家，在過去的十年中，印度政府將更多的注意力放到了南邊印度洋。在一個訪談中，印度外部事務部長Subrahmanyam Jaishankar說，“我們是一個海洋大國並且處於印度洋板塊的中心地帶。可是一直以來我們都沒有註意在印度洋的發展。隨著印度國際貿易的發展，進口更多的貨物，印度人意識到印度洋對印度的重要性：不僅在國家安全上，還在地緣政治上。”全世界四分之三的海運和一半的石油運輸經過印度洋海路通道。在全球經濟版圖中，印度洋有著舉足輕重的作用。海上咽喉要道如東邊的馬六甲海峽和西邊的霍爾木茲海峽及曼德海峽，在軍事衝突中將是關鍵的打擊對方運力之地。
+*新聞公報*
 
-隨著中共國介入印度洋地區的國家，印度已經改變其與美國及該區域其他盟國的外交方式。在冷戰時期，作為不結盟運動的領導者，印度要求外部勢力移除他們在南亞地區的軍事基地並離開該地區。而最近，印度卻對美國在距離印度西南方向1100英里的迪戈加西亞島建立的戰略性軍事基地表示接受。印度穩步地加強與美國，法國，澳大利亞及日本這些所有對中共國成為亞洲主導力量有所顧忌的國家的軍事及外交合作。七月份，美國尼米茨號航母打擊群在南中國海行使自由航行權以挑戰中共國對該海域聲稱的擁有權。該航母打擊群與印度戰艦在印度的安達曼群島和尼科巴群島附近舉行了聯合軍事演習，旨在保衛馬六甲海峽。這是最近的一次印美雙邊行動。 Jaishankar先生說：“世界已經變了。老實說，在以前，對印度來說，美國與其說是其心頭之憂，還不如說是其之威脅。而如今，印度將美國更多的當作合作夥伴。在印度洋地區，有著相同利益的不同國家走到一起，他們對全世界的共同利益有著相同的擔憂。”
+*MORGAN ORTAGUS, DEPARTMENT SPOKESPERSON*
 
-雖然印度和這些國家的合作並不是專門針對中共國，但是中共國的民族主義高漲並且不斷對鄰國的挑釁使得這些國家更緊密地團結在一起。 6月，在印中有爭議的加勒萬河谷，20多個印方士兵和不明數量的中方士兵在雙方衝突中喪生。這是最近中共國入侵被印度認為是本方領土範圍所造成的事件之一。中共國聲稱這兩個亞洲大國之間絕大部分的邊界都為中共國所有，包括印度的阿魯納恰爾邦。在將不結盟運動時代的擔憂擱置之後，2016年，印度與華盛頓簽訂了軍事後勤協議。該協議使得這兩個國家可以更便利的進行海軍互訪和聯合軍事演習。在那個時候之後，印度與法國，韓國，澳大利亞和日本簽訂了類似的協議。倫敦國王學院政府國際學校的負責人，前澳大利亞外交部長，Alexander Downer說：“印度與這些國家的軍事合作並不是要遏制中共國，而是要清楚地向世界表明，印度洋地區並不歡迎中共國的門羅主義。”
+*國務院發言人摩根·奧塔格斯*
 
-印度海軍擁有近30艘大型戰艦和一個戰略及戰術性潛艇編隊。同時印度擁有一艘航空母艦並且在建造另外一艘。相對應的是，中共國海軍擁有大約90艘戰艦，包括2艘航空母艦。同時中共國還在更快地建造更多的新的更高級的艦艇。這種不均衡在未來數年隨著中共國經濟的反彈和由於中共病毒的打擊導致的印度經濟的萎縮還會變得更加嚴重。然而與同樣價值觀的國家的合作使得印中之間的不平衡得到了緩解。克萊蒙特·麥肯納學院學者裴敏新說，相對於中共國來說，“印度有著戰術上的弱勢和戰略上的優勢。印度的行動要比人們所預想得要更加勇敢。其中的原因是，印度有信心看到這種力量的不均衡在長期看來會慢慢向印方傾斜。” 3月，印度的美製P-8I偵察機和反潛戰鬥機執行了第一次聯合任務，從法屬留尼汪島越過印度洋至印度。為了提高對印度洋通行情況的認知，印度海軍在印度附近建立了“信息融合中心”，由合作國家的代表共同運作。這個中心的數據由印度近年在馬爾代夫，斯里蘭卡，緬甸，孟加拉國，毛里求斯和塞舌爾搭建的海岸監察雷達系統集群提供。
+*SEPTEMBER 27, 2020*
 
-澳大利亞智庫羅伊國際政策研究所亞洲國家與外交項目主任Hervé Lemahieu說，“印度人試圖通過事實告訴中共國，印度洋地區是本地區國家的地盤，不容中共國插手。”
+*2020年9月27日*
 
-然而，印度更加雄心勃勃的努力進行得併不順利。 2018年，印度宣布租用塞舌爾阿桑普申島的一部分用作軍事設施，這激起了當地人們的抗議。由政府反對黨控制的塞舌爾議會投票否決並徹底結束了該項計劃。甚至連印度的堅定盟友毛里求斯也由於當地人們的反對擱置了一項類似的在阿加列格島建立軍事設施的計劃。其他的印度洋國家，比如斯里蘭卡，由於中共國的大筆投資開始向中共國靠攏。中共國投資了其在印度洋地區的主要夥伴巴基斯坦西南部的瓜德爾港。印度及西方官員認為，這將為中共國海軍和空軍在該地區建立軍事存在提供條件。中共國已經在吉布提建立了其第一個大型海外軍事基地。同時，中共國和斯里蘭卡簽了一個99年的租用漢班托塔港的協議，以及中共國將資助坦桑尼亞和緬甸修建深水港。中共國堅稱其在所謂的印度洋明珠上所有的這些設施是以和平為目的且不會給印度帶來威脅。印度重要海軍智庫國家海軍基金會常務董事，已退休的副主席Pradeep Chauhan說，除了擁核國家巴基斯坦的瓜德爾港，中共國如果在衝突中不能保護這些設施，它們將成為中共國的負擔
+Five years ago on September 25, 2015, General Secretary Xi Jinping stood in the White House Rose Garden and stated “China does not intend to pursue militarization” of the Spratly Islands, and China’s outposts would not “target or impact any country.” China has instead pursued a reckless and provocative militarization of those disputed outposts, they have deployed anti-ship cruise missiles, expanded military radar and signal intelligence capabilities, constructed dozens of fighter jet hangars, and have built runways capable of accommodating combat aircraft.
 
-。
-隨著衝突形式變得多種多樣和戰爭與和平之間的界線越來越模糊，中共國在印度洋地區的這些存在使得印度非常不安。副主席Pradeep Chauhan說，“中共國並不是要尋求包圍印度。但是，無論如何事實上中共國已經包圍了印度，並且在戰略上限定了印度的行動範圍。印度必須尋求戰略性的自由和活動空間。”
+五年前，2015年9月25日，習近平總書記站在白宮玫瑰園，說“中國無意將南沙群島軍事化”，中共國的前哨基地也不會“瞄准或影響任何國家”。但是現在，中共國對這些有爭議的哨所進行了野蠻和挑釁式的軍事化建設，部署了反艦巡航導彈，擴建了軍事雷達和信號情報能力，建造了數十個戰鬥機機庫，以及可供戰鬥機起降的跑道。
+
+The Chinese Communist Party (CCP) uses these militarized outposts as platforms of coercion to assert control over waters to which Beijing has no lawful maritime claim. They serve as staging grounds for the hundreds of maritime militia vessels and China Coast Guard ships that regularly harass civilian craft and impede legitimate law enforcement activities, offshore fishing, and hydrocarbon development by neighboring states.
+
+中國共產黨（CCP）使用這些軍事化的前哨基地作為控制平台，對其宣稱非法海事主張的水域強行進行控制。數百艘海上民兵船隻和中國海岸警衛隊船隻將它們作為集結地，經常出海騷擾民用船隻並妨礙執法活動、海上捕魚和鄰國油氣開發作業。
+
+The CCP does not honor its words or commitments. In recent months, we have seen an unprecedented number of states express their formal opposition at the United Nations to China’s unlawful maritime claims in the South China Sea. We urge the international community to continue to raise its opposition to this unacceptable and dangerous behavior, and to make clear to the CCP that we will hold it to account. The United States will continue to stand with our Southeast Asian allies and partners in resisting China’s coercive efforts to establish dominion over the South China Sea.
+
+中共言而無信。最近幾個月，我們前所未有地看到多個國家在聯合國對中共國在南海的非法海事主張提出正式反對。我們敦促國際社會繼續對這種不可接受的和危險的行為提出反對意見，並向中共明確表示我們將追究其責任。美國將繼續與我東南亞盟國和夥伴國一起，抵制中共國試圖在南中國海建立統治地位的強行做法。
+
+[原文鏈接](https://www.state.gov/chinas-empty-promises-in-the-south-china-sea/)
 
 0
