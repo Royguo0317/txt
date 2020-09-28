@@ -1,38 +1,109 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共國在南中國海開出的空頭支票— 9月27日美國務院新聞公報
-`2020-09-27 15:18 GM65` [轉載自GNews](https://gnews.org/zh-hant/387008/)
+## 獨家：美國反擊中共軍事活動，彭培奧拒絕“綏靖”
+`2020-09-28 02:51 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/387875/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/27150139/Screen-Shot-2020-09-27-at-15.01.23.png)
-**China’s Empty Promises in the South China Sea**
+*新聞來源：washington times《華盛頓郵報》；作者：Bill Gertz；發佈時間：2020年9月22日*
 
-**中共國在南中國海開出的空頭支票**
+*翻譯/簡評：雲影Julia；校對/審核：海闊天空；Page：拱卒*
 
-*PRESS STATEMENT*
+**簡評：**
 
-*新聞公報*
+二次世界大戰期間，英國首相張伯倫的綏靖外交政策釀成了慕尼黑悲劇。幸運的是， 1940年勇敢智慧的丘吉爾首相挺身而出，發表了無數篇鼓舞人心的著名演講，呼籲英國人民不屈不撓、勇敢頑強地反抗法西斯主義、保護自己國家的領土完整。其中一段重要的演講是這樣說的：“我們將在海灘作戰，我們將在敵人的登陸點作戰，我們將在田野和街頭作戰，我們將在山區作戰。我們絕不投降。直到新世界在上帝認為適當的時候，拿出它所有一切的力量來拯救和解放這個舊世界。”
 
-*MORGAN ORTAGUS, DEPARTMENT SPOKESPERSON*
+下文中彭培奧先生的這篇外交講話，堅定有力，就像丘吉爾的講話。從中我們不難看出川普政府明確堅定、上下一心的滅共決心，美國甚至已經隨時準備好軍事熱戰。新中國聯邦和爆料革命吹起了徹底消滅共產主義中共毒瘤的衝鋒號角，美國以及全世界對中共國全面的經濟、金融制裁，全世界正義聯盟對中共的大審判終將到來！
 
-*國務院發言人摩根·奧塔格斯*
+## **獨家：美國反擊中共軍事活動，彭培奧拒絕“綏靖”**
 
-*SEPTEMBER 27, 2020*
+[!\[\]()!\[\](https://spark.adobe.com/page/SqS3d4ZQ9Q1Pm/images/e7ce40cf-096d-4ef6-a3df-f59a3c381254.jpg?asset_id=a939a4f8-4e26-4c9d-bed6-c8a50753ff29&amp;img_etag=%220ae674d5883d880fa5c48ccc0787c277%22&amp;size=1024)](https://spark.adobe.com/page/SqS3d4ZQ9Q1Pm/images/e7ce40cf-096d-4ef6-a3df-f59a3c381254.jpg?asset_id=a939a4f8-4e26-4c9d-bed6-c8a50753ff29&amp;img_etag=%220ae674d5883d880fa5c48ccc0787c277%22&amp;size=1024)
 
-*2020年9月27日*
+美國國務卿邁克·彭培奧表示，美國正在反擊中共在台灣附近和南中國海不斷加強的軍事活動，以威懾中共的挑釁。
 
-Five years ago on September 25, 2015, General Secretary Xi Jinping stood in the White House Rose Garden and stated “China does not intend to pursue militarization” of the Spratly Islands, and China’s outposts would not “target or impact any country.” China has instead pursued a reckless and provocative militarization of those disputed outposts, they have deployed anti-ship cruise missiles, expanded military radar and signal intelligence capabilities, constructed dozens of fighter jet hangars, and have built runways capable of accommodating combat aircraft.
+[!\[\]()!\[\](https://spark.adobe.com/page/SqS3d4ZQ9Q1Pm/images/a977e920-0258-4f9e-a6da-82b545751fdb.jpg?asset_id=caf1536f-78c6-4283-9766-6e01df433902&amp;img_etag=%228e13404561053d9aa9efdbe181134187%22&amp;size=1024)](https://spark.adobe.com/page/SqS3d4ZQ9Q1Pm/images/a977e920-0258-4f9e-a6da-82b545751fdb.jpg?asset_id=caf1536f-78c6-4283-9766-6e01df433902&amp;img_etag=%228e13404561053d9aa9efdbe181134187%22&amp;size=1024)
 
-五年前，2015年9月25日，習近平總書記站在白宮玫瑰園，說“中國無意將南沙群島軍事化”，中共國的前哨基地也不會“瞄准或影響任何國家”。但是現在，中共國對這些有爭議的哨所進行了野蠻和挑釁式的軍事化建設，部署了反艦巡航導彈，擴建了軍事雷達和信號情報能力，建造了數十個戰鬥機機庫，以及可供戰鬥機起降的跑道。
+中共最近幾天在台灣附近進行了大規模軍事演習，並讓充滿挑釁性的噴氣式飛機飛行。中共官方媒體說，這是對美國國務院一名高級官員上周訪問台灣的回應。中共軍方上周向南中國海發射了四枚導彈，中國人民解放軍本週在網上發布了一段視頻，顯示中共對美國領土關島進行了模擬轟炸。
 
-The Chinese Communist Party (CCP) uses these militarized outposts as platforms of coercion to assert control over waters to which Beijing has no lawful maritime claim. They serve as staging grounds for the hundreds of maritime militia vessels and China Coast Guard ships that regularly harass civilian craft and impede legitimate law enforcement activities, offshore fishing, and hydrocarbon development by neighboring states.
+在接受《華盛頓時報》採訪時，當被問及日益加劇的緊張關係時，彭培奧批評了過去的政策，他說這些政策忽視了中共的威脅活動。他暗示，華盛頓還準備擴大對在美國運營的中國互聯網公司的攻勢，並將尋求最快在今年年底完全關閉在美國的中國文化網絡中心孔子學院。
 
-中國共產黨（CCP）使用這些軍事化的前哨基地作為控制平台，對其宣稱非法海事主張的水域強行進行控制。數百艘海上民兵船隻和中國海岸警衛隊船隻將它們作為集結地，經常出海騷擾民用船隻並妨礙執法活動、海上捕魚和鄰國油氣開發作業。
+幾十年來我們所做的是，我們允許中國共產黨從事威脅或破壞性的行為，無論是巧取強奪式經濟行為還是類似的行為，他們持續擴張其影響力和涉略足跡。 ”“面對中國共產黨的破壞，我們最大的風險是綏靖政策。 ”
 
-The CCP does not honor its words or commitments. In recent months, we have seen an unprecedented number of states express their formal opposition at the United Nations to China’s unlawful maritime claims in the South China Sea. We urge the international community to continue to raise its opposition to this unacceptable and dangerous behavior, and to make clear to the CCP that we will hold it to account. The United States will continue to stand with our Southeast Asian allies and partners in resisting China’s coercive efforts to establish dominion over the South China Sea.
+他補充說，川普總統說，“夠了，我們不會再讓這種事發生了。”
 
-中共言而無信。最近幾個月，我們前所未有地看到多個國家在聯合國對中共國在南海的非法海事主張提出正式反對。我們敦促國際社會繼續對這種不可接受的和危險的行為提出反對意見，並向中共明確表示我們將追究其責任。美國將繼續與我東南亞盟國和夥伴國一起，抵制中共國試圖在南中國海建立統治地位的強行做法。
+這位國務卿在採訪中表示，北京的領導人需要認識到川普政府的認真態度，以及川普反擊中共擴張主義的承諾。 “我們關注這些軍事活動，並做好準備，”彭培奧說。 “川普總統明確表示:我們不想與中共發生衝突。中共說他們也不想和我們發生衝突。我們希望他們能減少製造緊張局勢的行為。”
 
-[原文鏈接](https://www.state.gov/chinas-empty-promises-in-the-south-china-sea/)
+中共不斷加劇的武力威脅和威脅性言論令一些美國官員感到擔憂，他們認為這些活動可能表示北京正在為某種類型的軍事行動做準備。中共最排外的官方媒體《環球時報》本週在一篇社論中警告說，台灣附近的一系列軍事演習可能是對台灣發動攻擊的前奏。
+
+根據1979年的《台灣關係法》，美國有義務保護台灣不受大陸攻擊，該法案還呼籲向台灣出售防禦性武器。
+
+川普政府最近正式向台灣出售了拖延已久的66架新型F-16戰鬥機，價值80億美元。據報導，向台灣出售的其他武器將包括一種先進的攻擊導彈，稱為擴大反應型距外陸攻導彈或高速反輻射導彈，一種空中發射的巡航導彈，能夠打擊中共境內的目標。
+
+**爭取自由**
+
+彭培奧說，美國正在經濟、外交行為和軍事回應方面來堅定的反擊中共。
+
+他說:“我們在南中國海和其它地方開展了航行自由行動，這是美國政府以前從未做過的。”
+
+我們將維護自由，維護美國人的權利，確保我們在國際水道中將貨物轉運到我們需要的任何地方。這些都是川普總統授權的，我希望中國共產黨能看清它們的本質:明確表明美國的基本權利，以及我們幫助建立聯盟以保護自由開放的印度-太平洋地區的意願。 ”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/SqS3d4ZQ9Q1Pm/images/a908511c-4caa-4e7b-8625-c93a3bc403bf.jpg?asset_id=aa31bffa-c3fb-4f0b-86d0-72756d7f3e6f&amp;img_etag=%22ae7cb06cf15902b24b0ea235c0de4076%22&amp;size=1024)](https://spark.adobe.com/page/SqS3d4ZQ9Q1Pm/images/a908511c-4caa-4e7b-8625-c93a3bc403bf.jpg?asset_id=aa31bffa-c3fb-4f0b-86d0-72756d7f3e6f&amp;img_etag=%22ae7cb06cf15902b24b0ea235c0de4076%22&amp;size=1024)
+
+彭培奧說，根據《台灣關係法》，政府對台軍售是允許的。中共國認為台灣是其領土的一部分，並誓言收回台灣。
+
+他說:“我們正在做的就是要明確中共國和美國兩國需承擔的義務，我們對彼此作出的承諾，都將得到履行。”
+
+彭培奧說，威懾中共的挑戰之一是，中共“從未被追究違反承諾的責任”。
+
+他說:“現在我們看到那些沒有兌現的承諾還在繼續。”“他們向奧巴馬總統承諾，不會在南中國海部署武器。他們做了。他們承諾香港將在50年內實行與大陸不同的制度，但現在他們也違背了這一承諾。這樣的例子不勝枚舉。”
+
+美國對華政策的目的是敦促中國共產黨遵守承諾並履行義務。 “包括對台灣的承諾也一樣，”他說。
+
+最近，美國總統下令禁止兩款頗受歡迎的中共國應用軟件抖音和微信，原因是擔心中共情報部門使用該軟件收集美國人和其他人的個人數據。彭培奧也就這一爭議發表了看法。關鍵在於，當美國人的數據通過中共擁有股份的公司進行網絡傳輸時，中共可以從互聯網上獲取這些數據。
+
+彭培奧說，所有在中共國的企業都必須將所有信息交給“中共國家安全局”。
+
+除了禁止微信等中共的通訊和金融交易服務之外，美國政府正在考慮對更多的應用程序進行限制。
+
+“我們的任務不是否認中共國的商業活動，而是保護美國的國家安全和美國人的私人信息，”彭培奧說。
+
+加州一名聯邦法官發布命令，暫時阻止政府禁止微信。在政府的壓力下，受年輕互聯網用戶歡迎的視頻分享網站抖音正在談判一項可能的部分出售給美國公司的交易。
+
+關於微信，彭培奧說:“我們認為他們弄錯了法律，我們希望這個重大的國際安全問題不會由法院決定。”這是總統完全有權決定的，我們希望我們最終能取得勝利。 ”
+
+他補充說，美國人需要知道，網上交流和互動不會導致他們的信息被中共情報機構竊取。
+
+**目標孔子學院**
+
+![]()![](https://spark.adobe.com/image_assets/slate/b224ff51-24c2-4917-8b1f-3946e1a53bf4/images/7eaa6302-cd6c-46b8-9a45-9262eeaa4ab9.jpg?asset_id=780dd21f-0717-496f-9063-212505e8c66b&amp;img_etag=%22fc702193a9b75ea7fa8379b0c52f0723%22&amp;size=1024)
+
+關於中共利用美國校園內的孔子學院網絡進行秘密影響活動的問題，彭培奧說，美國政府正在努力關閉這些孔子學院，最快可能在今年年底。
+
+他說:“我們一開始就糾正了上屆政府的錯誤，指認了這些機構，並讓與它們有關聯的學校和機構知道它們帶來的風險。”
+
+經過努力，超過100多所孔子學院被關閉。
+
+“我們正在研究其它工具，”彭培奧說。 “總統正在評估其他選擇，以確保不受這些孔子學院的影響。”
+
+彭培奧說,這些學院聲稱只教授普通話或中國文化,這是一種虛假的“快樂陣線”。然而，他說，這些研究機構一直對美施加影響，司法部在至少一起案件中將其與非法的中共科技人才招聘項目聯繫在一起。
+
+“本屆政府不會容忍這種情況，”彭培奧先生說。
+
+他說，美國政府最近決定取消與中共國軍民“融合項目”有關的約1000名學生的簽證，以及關閉中共國駐休斯敦領事館，就是例子。
+
+彭培奧還警告說，中共國對即將到來的總統選舉的影響是“一個真正的挑戰”。
+
+司法部長威廉·巴爾和國家情報總監約翰·拉特克利夫警告說，中共國、俄羅斯和伊朗正在試圖影響美國的投票。
+
+“與其它國家的操作方式不同，中國共產黨會試圖影響我們的選舉結果，”彭培奧說，“但是，他們對產生影響、發揮影響，取得與中共國而不是美國選民的目標相符的結果的意圖也同樣認真。”
+
+副總統邁克·彭斯(Mike Pence)曾在2018年表示，中共國對當年的大選進行了前所未有的干預，今年的目標是總統。 “中共國想要一個不同的美國總統，”他說。
+
+彭培奧說，他相信美國政府將保護選舉，並在11月舉行一場自由、公平、安全的選舉。 ”
+
+“我相信我們會做到這一點，但中共國的意圖肯定是加入我們的選舉並發揮重要的影響作用。
+
+[原文鏈接](https://www.washingtontimes.com/news/2020/sep/22/mike-pompeo-rejects-china-appeasement-us-counters-/)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/SqS3d4ZQ9Q1Pm/)
 
 0
