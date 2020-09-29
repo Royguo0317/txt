@@ -1,25 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要聞】【快訊】中聯辦『惱羞成怒』斥策劃十一遊行非法 『威脅』稱國安法利劍高懸
-`2020-09-29 14:17 GM42` [轉載自GNews](https://gnews.org/zh-hant/391203/)
+## 爆革星評：美國務次卿克拉奇發推推倒中共網絡防火牆
+`2020-09-29 14:41 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/391226/)
 
-製作單位：戰友之家-粵語組
-編撰：文悅
-覆核：文粵
+喜馬拉雅聯盟加拿大農場   文星（一號&大衛阿波羅）
 
-據【**NOW新聞**】9月29日訊 中聯辦發言人指，網上有人策劃十月一日非法遊行，嚴正警告港區國安法利劍高懸，絕不容許亂港者肆意妄為。
-    中聯辦發言人表示，12名港人非法越境被捕，但有反中亂港勢力煽動十一發起非法遊行，提出釋放12人的荒唐要求，批評是言無法綱、行無底線。
-    發言人又指，極少數激進分子策動發起暴力衝擊、攻擊警署，甚至慫恿非法購買槍械等，對警員進行恐怖襲擊，形容是公開煽動顛覆國家政權，攻擊執法機構和警員的恐怖行為，是對港區國安法和本地法律的公然挑釁。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/29141034/20200929-0620copy_rPV1J_1200x0.png)圖片：立場新聞
-**戰友點評：【文悅】**
-     遊行，集會這些基本的公民權利，在中聯辦的口中成了恐怖行為；和平抗議的民眾，等同於暴徒。 「欲加之罪何患無詞」，現在的香港人就生活在極權國家的白色恐佈之中。 「國安惡法」猶如達摩克利斯之劍，懸掛在每個港人頭上。人人自危，人心惶惶。由於中共病毒的肆虐和西方世界的集體制裁，香港的經濟也變得岌岌可危。這雪上加霜的局面下，港人的出路究竟在哪裡？
+校對   小鷗
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/29144116/YouTube-1.jpg)圖片來源：YouTube
+9月28日，美國務次卿克拉奇（Keith Krach）來到美國駐柏林大使館的里根雕像前說，30年前，裡根總統向前蘇聯呼籲，“戈爾巴喬夫先生，請推倒柏林牆”。現在，柏林牆倒了，中共卻建起了數字防火牆，這堵牆把中國人民和文明世界隔絕了。
 
-以上觀點僅代表筆者本人
-來源：Now 新聞\立場新聞
+卡拉奇模仿裡根總統繼續說，習近平先生，請推倒中共國的防火牆！
 
-[http://news.now.com/home/local/player?newsId=407322](http://news.now.com/home/local/player?newsId=407322)
+這是克拉奇發的官推信息，他還播放了當年裡根總統呼籲推倒柏林牆的視頻。
 
-[https://www.thestandnews.com/politics/%E6%96%A5%E6%9C%89%E4%BA%BA%E7%99%BC%E8%B5%B7-10-1-%E9%9D%9E%E6%B3%95%E9%81%8A%E8%A1%8C%E9%87%8D%E5%95%9F%E9%BB%91%E6%9A%B4-%E4%B8%AD%E8%81%AF%E8%BE%A6-%E5%9C%8B%E5%AE%89%E6%B3%95%E4%B8%8B%E4%B8%8D%E5%AE%B9%E4%BA%82%E6%B8%AF%E8%80%85%E5%A6%84%E7%82%BA-%E6%94%AF%E6%8C%81%E8%AD%A6%E6%9E%9C%E6%96%B7%E5%9F%B7%E6%B3%95/](https://www.thestandnews.com/politics/%E6%96%A5%E6%9C%89%E4%BA%BA%E7%99%BC%E8%B5%B7-10-1-%E9%9D%9E%E6%B3%95%E9%81%8A%E8%A1%8C%E9%87%8D%E5%95%9F%E9%BB%91%E6%9A%B4-%E4%B8%AD%E8%81%AF%E8%BE%A6-%E5%9C%8B%E5%AE%89%E6%B3%95%E4%B8%8B%E4%B8%8D%E5%AE%B9%E4%BA%82%E6%B8%AF%E8%80%85%E5%A6%84%E7%82%BA-%E6%94%AF%E6%8C%81%E8%AD%A6%E6%9E%9C%E6%96%B7%E5%9F%B7%E6%B3%95/)
+克拉奇是主管經濟、能源和環保的美國國務次卿，蓬佩奧國務卿的得力助手。他曾於9月17日以官方身份正式到訪台灣，參加了主張台灣獨立的台灣前總統李登輝的追思會，台灣總統蔡英文與其會見並稱其將“邁出關鍵一步”，與美國加強合作。
+
+克拉奇的這個推也表達了美國與中國人民站在一起，中共不代表中國人民。在世界人民共享文明成果的現代信息社會，中共還靠網絡防火牆，把善良的中國人民繼續關在籠子裡，繼續圍堵在牆內，並對中國人民強制洗腦，鼓動不明真相的百姓與文明世界為敵。
+
+中共建立網絡防火牆，違背歷史潮流，侵害中國人民的根本利益，世界人民需要和中國人民一起，合力推倒這堵牆！
+
+參考鏈接：
+
+> The Great Firewall of China separates the Chinese people from the free world just as the Berlin Wall separated the German people from each other. The Berlin Wall is gone. Mr. Xi, tear down China's Great Firewall. [pic.twitter.com/uhozlKNFo7](https://t.co/uhozlKNFo7)
+> — Under Secretary Keith Krach (@State\_E) [September 28, 2020](https://twitter.com/State_E/status/1310499460057833472?ref_src=twsrc%5Etfw)
 
 0

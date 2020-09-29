@@ -1,28 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆革星評：美國務次卿克拉奇發推推倒中共網絡防火牆
-`2020-09-29 14:41 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/391226/)
+## 彭培奧促東盟放棄在南中國海沿岸的中共公司
+`2020-09-29 15:21 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/391344/)
 
-喜馬拉雅聯盟加拿大農場   文星（一號&大衛阿波羅）
+*新聞來源：Al Jazeera《半島電視台》；發佈時間： 2020年9月10日*
 
-校對   小鷗
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/29144116/YouTube-1.jpg)圖片來源：YouTube
-9月28日，美國務次卿克拉奇（Keith Krach）來到美國駐柏林大使館的里根雕像前說，30年前，裡根總統向前蘇聯呼籲，“戈爾巴喬夫先生，請推倒柏林牆”。現在，柏林牆倒了，中共卻建起了數字防火牆，這堵牆把中國人民和文明世界隔絕了。
+*翻譯/簡評：Jam；校對/審核：海闊天空；Page：拱卒*
 
-卡拉奇模仿裡根總統繼續說，習近平先生，請推倒中共國的防火牆！
+**簡評：**
 
-這是克拉奇發的官推信息，他還播放了當年裡根總統呼籲推倒柏林牆的視頻。
+[!\[\]()!\[\](https://spark.adobe.com/page/JI0uTENaIKvqL/images/dd344f6b-55dd-472d-b07e-0add7bbc28df.jpg?asset_id=51c648e5-2886-423b-9af0-2d5dbd935cf9&amp;img_etag=%2201d4d8f70c577492636bf69d3a41493c%22&amp;size=1024)](https://spark.adobe.com/page/JI0uTENaIKvqL/images/dd344f6b-55dd-472d-b07e-0add7bbc28df.jpg?asset_id=51c648e5-2886-423b-9af0-2d5dbd935cf9&amp;img_etag=%2201d4d8f70c577492636bf69d3a41493c%22&amp;size=1024)
 
-克拉奇是主管經濟、能源和環保的美國國務次卿，蓬佩奧國務卿的得力助手。他曾於9月17日以官方身份正式到訪台灣，參加了主張台灣獨立的台灣前總統李登輝的追思會，台灣總統蔡英文與其會見並稱其將“邁出關鍵一步”，與美國加強合作。
+中共國霸占南中國海，在海上建立人工島嶼，軍事設施，侵占海洋資源。這次蓬佩奧網絡東盟峰會的演講，督促東南亞國家團結起來，制裁一些軍工企業，對中共國在南中國海的種種惡行說不。可惜如文中所說，“菲利賓上週已經表示不會跟隨美國，因為它需要中共國投資”，看來中共多年佈局下的藍金黃滲透還是拉攏了某些同樣貪婪的政客，希望東盟十國能在一致滅共問題上決然站在以美國為代表的正義力量的一邊，像蓬佩奧國務卿說的：“不光只說，還要行動！”
 
-克拉奇的這個推也表達了美國與中國人民站在一起，中共不代表中國人民。在世界人民共享文明成果的現代信息社會，中共還靠網絡防火牆，把善良的中國人民繼續關在籠子裡，繼續圍堵在牆內，並對中國人民強制洗腦，鼓動不明真相的百姓與文明世界為敵。
+**彭培奧督促東盟放棄南中國海沿岸的中共國公司**
 
-中共建立網絡防火牆，違背歷史潮流，侵害中國人民的根本利益，世界人民需要和中國人民一起，合力推倒這堵牆！
+網絡峰會籠罩在中美關係惡化以及CCP病毒大流行的陰影之下。
 
-參考鏈接：
+[!\[\]()!\[\](https://spark.adobe.com/page/JI0uTENaIKvqL/images/5809a625-8ca1-4bc5-844b-1cb783a694fb.jpg?asset_id=da899a9b-d0d4-44b5-97d7-d25f03d8a81c&amp;img_etag=%2212d2e064f9547f0977fac6f384b3425d%22&amp;size=1024)](https://spark.adobe.com/page/JI0uTENaIKvqL/images/5809a625-8ca1-4bc5-844b-1cb783a694fb.jpg?asset_id=da899a9b-d0d4-44b5-97d7-d25f03d8a81c&amp;img_etag=%2212d2e064f9547f0977fac6f384b3425d%22&amp;size=1024) 因為CCP病毒大流行，越南在線組織了東盟峰會。
 
-> The Great Firewall of China separates the Chinese people from the free world just as the Berlin Wall separated the German people from each other. The Berlin Wall is gone. Mr. Xi, tear down China's Great Firewall. [pic.twitter.com/uhozlKNFo7](https://t.co/uhozlKNFo7)
-> — Under Secretary Keith Krach (@State\_E) [September 28, 2020](https://twitter.com/State_E/status/1310499460057833472?ref_src=twsrc%5Etfw)
+美國國務卿邁克·彭培奧督促東南亞國家的外交官與那些在南中國海幫助建造人工島嶼的中共國公司切斷關係，這發生在華盛頓將二十多家在有爭議的水域上作業的公司列入黑名單之後。
+
+“不要光說，還要行動。”彭培奧在周四的網絡峰會上告訴這十位東盟協會的外長。
+
+白宮高級外交官表示，地區政府“應重新考慮與在南中國海欺負東盟沿海國家的國有企業之間的業務往來”。
+
+他還指出：“不要讓中國共產黨騎到我們和我們人民頭上。”
+
+今年的峰會籠罩在中美之間的激烈爭端的陰影下，包括從中美貿易戰到病毒大流行等一系列問題。
+
+南中國海的緊張局勢也在升溫，美國上月制裁24家幫助北京在資源豐富的水道中建立軍事力量的中共國國企。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/JI0uTENaIKvqL/images/f6e18d1e-30cd-4377-b2d8-ac1eb5158ed5.jpg?asset_id=4cd65e0b-d430-4a1c-9d4e-296943cdb87d&amp;img_etag=%229f10a5a11c027d6820ca3c729e964668%22&amp;size=2560)](https://spark.adobe.com/page/JI0uTENaIKvqL/images/f6e18d1e-30cd-4377-b2d8-ac1eb5158ed5.jpg?asset_id=4cd65e0b-d430-4a1c-9d4e-296943cdb87d&amp;img_etag=%229f10a5a11c027d6820ca3c729e964668%22&amp;size=1024)
+
+中國軍方”向南海發射兩枚導彈警告美國”，此前北京指責美國間諜機進入其禁飛區。
+
+上週，北京在實彈演習中向南中國海發射了彈道導彈。
+
+中共國外交部部長王毅將緊張局勢歸咎於美國，稱華盛頓已經成為（南海）軍事化“最大的驅動力”。
+
+來自半島電視台的斯科特·海德勒（Scott Heidler），經常報導東盟年度峰會。他說，儘管今年東盟的十個國家希望一起努力，以幫助遭受中共病毒大流行後的經濟重建，但中美兩國“繼續各說各話，在該地區有各自的立場。”
+
+“雙方（中共國和美國）都在將軍事力量轉移到有爭議的領土上。”他說，激增的緊張局勢還將伴隨著“外交行動，制裁和威脅。”
+
+中共國聲稱佔有南中國海絕大部分的領海權，援引所謂的九段線來證明其所說的貿易水道的正當歷史權利。
+
+然而在2016年，海牙的一個國際法庭駁回了中共國的說法，稱據1982年的《聯合國海洋法公約》，這是非法主張。
+
+但從那以來，北京加緊建造了幾個可停靠海軍艦隊和飛機的人工島嶼。
+
+越南，菲利賓，馬來西亞，文萊還有台灣都聲稱佔有中共國聲稱佔有的海域的一部分。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/JI0uTENaIKvqL/images/200569e0-ea23-44f2-9a7b-f1a49cb2952e.jpg?asset_id=9da0e899-6141-4346-905b-58ef5b208a72&amp;img_etag=%226c59cb6a1b149662178a1c0e037fca21%22&amp;size=1024)](https://spark.adobe.com/page/JI0uTENaIKvqL/images/200569e0-ea23-44f2-9a7b-f1a49cb2952e.jpg?asset_id=9da0e899-6141-4346-905b-58ef5b208a72&amp;img_etag=%226c59cb6a1b149662178a1c0e037fca21%22&amp;size=1024)     一家中共國企業已經被美國列入黑名單，中國交通建設集團有限公司。它參與拓展菲利賓在桑格里機場的擴建，這是在首都馬尼拉外的一個前美軍海軍設施。
+
+線上東盟峰會的主持國家越南，對最近海上軍事力量的集結表示嚴重關切。
+
+外交部長范平明說：“（中共國）此舉已經削弱了信任和信心，加劇了緊張的局勢， 破壞了該地區和平、安全與法治。”
+
+同時，菲利賓上週已經表示不會跟隨美國，因為它需要中共國投資。哪怕馬尼拉與北京之間就黃岩島（該地區最富裕的捕魚區之一）產生了新的爭執。
+
+一家中共國企業已經被美國列入黑名單，中國交通建設集團有限公司。它參與拓展菲利賓在桑格里機場的擴建，這是在首都馬尼拉外的一個前美軍海軍設施。
+
+[原文鏈接](https://www.aljazeera.com/ajimpact/pompeo-urges-asean-ditch-chinese-firms-south-china-sea-row-200910081943105.html)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/JI0uTENaIKvqL/)
 
 0
