@@ -23,6 +23,11 @@
 **郭文贵MILES** `2020-09-22T20:22:09`
 ##
 
+[9月29日 尊敬的战友们好！这是Bob Fu（傅希秋）这几天在美国华盛顿转发的，完全造假，彻底篡改歪曲陷害文贵爆料革命和我们在美国找出间谍的运动，清理在美国的中...](/content/getter/content/2020/09/5f72f30082371f2d506eec4e.md)
+
+**郭文贵MILES** `2020-09-29T08:40:32`
+##
+
 [September 29th, greetings to our fellow fighters! This is the disinformation spr...](/content/getter/content/2020/09/5f72f1c782371f2d506eeb66.md)
 
 **郭文贵MILES** `2020-09-29T08:35:19`
@@ -156,10 +161,5 @@
 [9月21号：尊敬的战友们好，你们健身了吗？你们传播CCP病毒……香港危机真相了吗？一切都已经开始！](/content/getter/content/2020/09/5f68a47fbe623f30dc7fa110.md)
 
 **郭文贵MILES** `2020-09-21T13:02:55`
-##
-
-[9月20日John Catsimatidis 采访闫博士：病毒是从实验室制造并故意释放出来的。虽然难以找到解药或疫苗，但使用羟氯喹预防最为实际。中共掩盖疫情真相...](/content/getter/content/2020/09/5f686e35be623f30dc7f770e.md)
-
-**郭文贵MILES** `2020-09-21T09:11:17`
 ##
 
