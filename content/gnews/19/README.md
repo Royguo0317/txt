@@ -1,37 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆革星評：川普提名保守派新的女性大法官
-`2020-09-28 15:45 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/389076/)
+## 司法部擬將科技巨頭繩之以法
+`2020-09-28 20:28 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/389391/)
 
-喜馬拉雅聯盟加拿大農場 文星（一號&大衛阿波羅）
+*新聞來源：the federalist《聯邦黨人》；作者：Tristan Justice；發佈時間： 2020年9月23日*
 
-校對 XM
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/28153929/%E5%9B%BE%E7%89%87%E6%9D%A5%E6%BA%90%EF%BC%9Anews.sky_.jpg)圖片來源：news.sky
-9月27日，川普總統在白宮玫瑰園記者招待會上，提名艾米·康尼·巴雷特（Amy Horny Barrett) 為最高法院新的大法官，替代剛剛離世的前大法官金斯伯格，兩人都是女性。
+*翻譯/簡評：Victory；校對：TCC；審核：海闊天空；Page：拱卒*
 
-前大法官金斯伯格由奧巴馬總統於1993年提名，普遍認為是民主派風格，但曾支持川普總統提名、已經任職的保守派大法官卡瓦諾。巴雷特原為前最高法院大法官、著名保守派斯卡利亞的助理，深得斯卡利亞的賞識。
+**簡評：**
 
-巴雷特曾於2017年被川普總統提名為芝加哥聯邦第七巡迴上訴法院法官。她的提名一旦任命，將成為最高法院的9位大法官中，唯一一位不是畢業於常青藤法學院的大法官。巴雷特以第一名的成績，畢業於印第安納大學聖母法學院。
+[!\[\]()!\[\](https://spark.adobe.com/page/bua6nFGbnX56I/images/d84c8b2b-0a58-4958-87d2-8b46b870f385.jpg?asset_id=f910b8bd-3cb0-485f-aa43-8a96382cfe65&amp;img_etag=%22b01e631fc782ce6aeefee570e20583ff%22&amp;size=1024)](https://spark.adobe.com/page/bua6nFGbnX56I/images/d84c8b2b-0a58-4958-87d2-8b46b870f385.jpg?asset_id=f910b8bd-3cb0-485f-aa43-8a96382cfe65&amp;img_etag=%22b01e631fc782ce6aeefee570e20583ff%22&amp;size=1024)
 
-巴雷特的丈夫曾任聯邦檢察官，目前是職業律師。兩人育有七個孩子，其中兩個是從海地收養的，一個還是患有唐氏疾病的孩子，每天早上都得靠巴雷特背下樓梯。巴雷特還曾在孩子就讀的小學做義工。
+美國司法部正式出手了。星期三向國會提交了一份立法草案，概述了司法部根據川普總統關於防止網絡審查的行政命令要求進行的具體改革。
 
-最高法院具有司法審查權，每一個判例都與美國人的生活息息相關，地位舉足輕重。在2000年小布什和戈爾總統競選的選票爭議案中，最高法院還曾裁定支持小布什，轟動一時。
+《美國憲法第一修正案》規定，公民言論自由不受侵犯。雖然230法案的模糊措辭給予了這些作惡的科技公司暫時的保護。但美國製度最大優勢是能及時糾錯。新的法案將會讓這些無恥的科技公司受到應有的懲罰。
 
-如果巴雷特最終被任命為大法官，業內認為，最高法院的判決風格將向保守派進一步傾斜，其判例可能會改變或影響美國幾代人的生活。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/28153952/%E5%9B%BE%E7%89%87%E6%9D%A5%E6%BA%90%EF%BC%9AJULIAN-VELASCO.jpg)圖片來源：JULIAN VELASCO
-參考鏈接：
- [https://twitter.com/whitehouse/status/1310366614689394691?s=21](https://twitter.com/whitehouse/status/1310366614689394691?s=21)
+媒體的力量在某種程度上不亞於軍事力量。中共正因控制了各種媒體的強大力量，才能混淆試聽，在全球興風作浪。以前人們對美國科技公司被中共滲透都是渾然不知的。直到近三年來，郭文貴先生髮起的爆料革命，使得中共不得不一再暴露其對各種高科技公司藍金黃的力量。尤其是近期，在閆博士團隊發佈病毒真相報告以來。推特，谷歌，臉書等等數字媒體已經毫不掩飾，直接明確地站在了共匪一邊，公然毫無理由的刪除病毒相關信息，關閉賬號。這與牆內微信，微博的封號審查內容操作，毫無二致。
+
+這些科技巨頭與中共勾兌作惡，在事實上大大地危害了美國的國家安全和美國人的利益。不誇張的說，這是叛國行為。我們期待美國拿到這些為虎作倀科技公司實錘的通共證據，將它們繩之以法。
+
+## **司法部公佈立法提案，以控制腐敗的科技巨頭的言論管制**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/bua6nFGbnX56I/images/ae6773da-f03d-457a-afa2-3b600c823674.jpg?asset_id=5057512f-d187-4b75-8591-b587c9fc5a60&amp;img_etag=%226a4e05be89df474091f14c057353b830%22&amp;size=1024)](https://spark.adobe.com/page/bua6nFGbnX56I/images/ae6773da-f03d-457a-afa2-3b600c823674.jpg?asset_id=5057512f-d187-4b75-8591-b587c9fc5a60&amp;img_etag=%226a4e05be89df474091f14c057353b830%22&amp;size=1024)
+
+美國司法部星期三向國會提交了一份立法草案，概述了司法部根據川普總統關於防止網絡審查的行政命令要求進行的具體改革。該行政命令限制了1996年《通信規範法》第230條規定的大型科技公司的責任保護。
+
+擬議中的改革主要源於司法部在6月份提出的建議，這些建議是為了回應總統在5月份的指示而製定和發布的，該指示旨在撤銷對託管第三方內容的網絡平台的全面式豁免權的保護。
+
+司法部正針對網站內容的審核採取具體措施，以確保在21世紀的數字公共空間上有一個開放的討論平台。目前，網絡平台已將原本在鼓勵刪除淫穢內容的保護政策武器化，以選擇性地審查不受歡迎的內容，例如，保守的觀點。
+
+例如，儘管這些科技公司自己在YouTube評論區因保留一些互聯網上最邪惡的內容而臭名昭著，谷歌在今年早些時候就曾基於該網站評論區的內容，試圖將《聯邦黨人》內容從平台移除。因此，司法部正在呼籲國會通過它的立法，澄清1996年法律中既有的措辭。司法部說，該法律將用更具體的措辭來避免任意的內容審查決定，對平台、用戶和法院提供更明確的指導，以遏制不公平的審查。
+
+聯邦執法機構也在尋求通過幾項旨在解決非法在線活動的修正案，同時通過明確地取消對那些不顧受害者一再請求，繼續在其網站上保留非法內容的平台的保護，以維持對“武訓”這樣的好人的保護。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/bua6nFGbnX56I/images/6dcd578e-08f2-4636-a185-81024b81ab89.jpg?asset_id=d0fe20f9-bf7b-4ba2-ab16-c23809ab7697&amp;img_etag=%22c0fe537a36478b974b3162c6243c5c44%22&amp;size=1024)](https://spark.adobe.com/page/bua6nFGbnX56I/images/6dcd578e-08f2-4636-a185-81024b81ab89.jpg?asset_id=d0fe20f9-bf7b-4ba2-ab16-c23809ab7697&amp;img_etag=%22c0fe537a36478b974b3162c6243c5c44%22&amp;size=1024)
+
+司法部長威廉·巴爾在一份聲明中說，230條款為網絡平台提供了太長時間的免責保護。對美國來說，確保互聯網是一個安全的、也充滿活力、開放和競爭的環境至關重要。因此，我們敦促國會對第230條進行必要的改革，並開始對網絡平台追究責任，無論它們非法審查言論，還是故意為網絡犯罪活動提供便利。
+
+請看FCC委員Brendan Carr在此討論230條款改革的必要性:
 
 
 
+[原文鏈接](https://thefederalist.com/2020/09/23/doj-unveils-proposed-legislation-to-rein-in-speech-policing-by-corrupt-tech-monopolies/)
 
-> 29 Supreme Court vacancies have occurred during an election year or before an inauguration.
-> 
-> In every single instance, the President has performed his Constitutional duty to nominate a Justice. [pic.twitter.com/cAEnCVhcgk](https://t.co/cAEnCVhcgk)
-> — The White House (@WhiteHouse) [September 27, 2020](https://twitter.com/WhiteHouse/status/1310337450313736197?ref_src=twsrc%5Etfw)
-
-
-[https://udn.com/news/story/121687/4893132](https://udn.com/news/story/121687/4893132)
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/bua6nFGbnX56I/)
 
 0
