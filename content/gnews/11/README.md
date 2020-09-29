@@ -1,27 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 南海强拆前的喊话！美國務院批習近平背信將南海軍事化
-`2020-09-28 11:18 GM77` [轉載自GNews](https://gnews.org/zh-hant/388635/)
+## 爆革星評：川普提名保守派新的女性大法官
+`2020-09-28 15:45 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/389076/)
 
-收集：文槐
-编撰: WENJUN
+喜馬拉雅聯盟加拿大農場 文星（一號&大衛阿波羅）
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/28103824/2-68.jpg)2016年7月，中國海軍飛彈護衛艦「運城號」在南海西沙群島附近水域舉行實彈演習，發射反艦飛彈。（新華社檔案照）
+校對 XM
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/28153929/%E5%9B%BE%E7%89%87%E6%9D%A5%E6%BA%90%EF%BC%9Anews.sky_.jpg)圖片來源：news.sky
+9月27日，川普總統在白宮玫瑰園記者招待會上，提名艾米·康尼·巴雷特（Amy Horny Barrett) 為最高法院新的大法官，替代剛剛離世的前大法官金斯伯格，兩人都是女性。
 
-〔國際新聞中心／綜合報導〕美國國務院27日發表聲明，點名中國國家主席習近平，沒有兌現他在2015年9月訪問美國時，做出不會將南海爭議島礁軍事化的承諾，反而變本加厲，大興土木從事挑釁的軍事建設，呼籲國際社會繼續反對這種「令人無法接受」且「危險」的行為，向中國共產黨表明必將追究到底的決心。
+前大法官金斯伯格由奧巴馬總統於1993年提名，普遍認為是民主派風格，但曾支持川普總統提名、已經任職的保守派大法官卡瓦諾。巴雷特原為前最高法院大法官、著名保守派斯卡利亞的助理，深得斯卡利亞的賞識。
 
-國務院發言人歐塔加斯（Morgan Ortagus）在聲明中指出，習近平5年前訪美時，在白宮與時任美國總統歐巴馬會面時承諾，中國不會將南沙群島軍事化，還說中國在這些爭議島礁上的軍事設施「不針對或影響任何國家」。如今，中國在南海部署反艦巡弋飛彈、擴大軍事雷達和訊號情報能力，構築數十座戰鬥機機棚，而且已經闢建可供戰機起降的跑道。中共利用這些軍事化據點，做為「對北京沒有合法海權的水域強加控制的平台」。
+巴雷特曾於2017年被川普總統提名為芝加哥聯邦第七巡迴上訴法院法官。她的提名一旦任命，將成為最高法院的9位大法官中，唯一一位不是畢業於常青藤法學院的大法官。巴雷特以第一名的成績，畢業於印第安納大學聖母法學院。
 
-歐塔加斯痛批，這些主權有爭議的島礁為中國龐大的海上民兵部隊和中國海警船所用，常態性地騷擾周邊國家的漁船作業，以及石油和天然氣開發工程，「中共毫無誠信可言」。美國將繼續抵制中國宰制南海的企圖，呼籲國際社會向中共究責。
+巴雷特的丈夫曾任聯邦檢察官，目前是職業律師。兩人育有七個孩子，其中兩個是從海地收養的，一個還是患有唐氏疾病的孩子，每天早上都得靠巴雷特背下樓梯。巴雷特還曾在孩子就讀的小學做義工。
 
-美國國防部在2018年4月指出，中國已開始在南海爭議島礁部署防空和反艦飛彈，以及電子戰系統。美軍太平洋司令部司令戴維森（Philip Davidson）2018年在聯邦參議院的一場聽證會上指出，中國在這些島礁上的軍事建設，始於2013年的南沙群島赤瓜礁（Johnson Reef），然後逐漸擴大到華陽礁（Cuarteron Reef）、永暑礁（Fiery Cross Reef）、南薰礁（Gaven Reef）、東門礁（（Hugh Reef）、美濟礁（Mischief Reef）和渚碧礁（Subi Reef）。這些軍事建設足以威脅美國在亞太地區的兵力部署，對區域各國構成嚴重挑戰。
+最高法院具有司法審查權，每一個判例都與美國人的生活息息相關，地位舉足輕重。在2000年小布什和戈爾總統競選的選票爭議案中，最高法院還曾裁定支持小布什，轟動一時。
 
-美国和西方越来越多的国家在政治外交上对中共进行孤立，在贸易和金融上进行不断加码的制裁，军事上美国和北约已经做好应对台湾和南海包括更大范围可能军事冲突的准备，所有这些套在中共脖子上的锁链越拉越紧。中共也深知在劫难逃，但为了对内保持面子和对内的威权，不断的试射飞弹，9月21日中共一艘巡洋舰在南海从美国的巡洋舰前方45尺距离横向穿过。所有这些演戏叫嚣在美国强大的军事实力面前最终都会无济于事。
-
-**根据爆料革命的情报: 美台建交、定义中共恐怖组织、72小时通牒南海强拆，该来的一定会来。美国务院9月27日对南海的声明就是南海强拆的前奏！**
-
+如果巴雷特最終被任命為大法官，業內認為，最高法院的判決風格將向保守派進一步傾斜，其判例可能會改變或影響美國幾代人的生活。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/28153952/%E5%9B%BE%E7%89%87%E6%9D%A5%E6%BA%90%EF%BC%9AJULIAN-VELASCO.jpg)圖片來源：JULIAN VELASCO
 參考鏈接：
-[https://news.ltn.com.tw/news/world/breakingnews/3305181?utm\_medium=APP&utm\_campaign=SHARE&utm\_medium=APP](https://news.ltn.com.tw/news/world/breakingnews/3305181?utm_medium=APP&amp;utm_campaign=SHARE&amp;utm_medium=APP)
+ [https://twitter.com/whitehouse/status/1310366614689394691?s=21](https://twitter.com/whitehouse/status/1310366614689394691?s=21)
+
+
+
+
+> 29 Supreme Court vacancies have occurred during an election year or before an inauguration.
+> 
+> In every single instance, the President has performed his Constitutional duty to nominate a Justice. [pic.twitter.com/cAEnCVhcgk](https://t.co/cAEnCVhcgk)
+> — The White House (@WhiteHouse) [September 27, 2020](https://twitter.com/WhiteHouse/status/1310337450313736197?ref_src=twsrc%5Etfw)
+
+
+[https://udn.com/news/story/121687/4893132](https://udn.com/news/story/121687/4893132)
 
 0
