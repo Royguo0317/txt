@@ -23,6 +23,11 @@
 **郭文贵MILES** `2020-09-22T20:22:09`
 ##
 
+[September 29th, greetings to our fellow fighters! This is the disinformation spr...](/content/getter/content/2020/09/5f72f1c782371f2d506eeb66.md)
+
+**郭文贵MILES** `2020-09-29T08:35:19`
+##
+
 [9月28日：继续得瑟！](/content/getter/content/2020/09/5f7248dc82371f2d506e7150.md)
 
 **郭文贵MILES** `2020-09-28T20:34:36`
@@ -156,10 +161,5 @@
 [9月20日John Catsimatidis 采访闫博士：病毒是从实验室制造并故意释放出来的。虽然难以找到解药或疫苗，但使用羟氯喹预防最为实际。中共掩盖疫情真相...](/content/getter/content/2020/09/5f686e35be623f30dc7f770e.md)
 
 **郭文贵MILES** `2020-09-21T09:11:17`
-##
-
-[9月19日班农战斗室特别节目： 郭文贵先生：推特、脸书等社交媒体封杀闫博士、Tucker Carlson；中共对外的五个武器，以社交媒体为首；中共搞乱了美国，原...](/content/getter/content/2020/09/5f6808f8be623f30dc7f235d.md)
-
-**郭文贵MILES** `2020-09-21T01:59:20`
 ##
 
