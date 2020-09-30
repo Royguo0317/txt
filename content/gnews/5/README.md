@@ -1,36 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要聞】市民要求公開8.31事件錄像長達一年後仍未得到回應 警務處處長鄧炳強繼續胡說八道
-`2020-09-30 05:45 GM42` [轉載自GNews](https://gnews.org/zh-hant/392738/)
+## 9/29財經快訊: 中共房產新政難掩財政危機,新浪正被納入私囊,美國總統辯論後的股市
+`2020-09-30 09:48 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/393216/)
 
-製作單位：戰友之家-粵語組
-整撰：文燕
-審核：JK
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30052848/latejust.jpg)圖片：【獨媒報導】
-據《**獨媒報導**》9月29日稱，民主派李國權促警方公開8.31太子站的閉路電視片段，以伸張8.31太子站公義。
-當區區議員朱江瑋稱，因為不信任政府和警方，表示已提出索取8.31太子站閉路電視片段長達一年，至今還​​是沒公開。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30092001/930FN.jpg)圖片來源： [https://image.cnbcfm.com](https://image.cnbcfm.com/api/v1/image/106630005-1595532860080-gettyimages-1227707089-363421803_1-5.jpeg?v=1601414236&amp;w=740&amp;h=416)
+[1,在美國總統辯論之後，道瓊斯指數下跌了100點。美國股票期貨週二晚間下跌。道瓊斯工業平均指數期貨下跌101點，或0.4％。標普500期貨和納斯達克100期貨均下跌0.3％。](https://www.cnbc.com/2020/09/29/stock-market-futures-open-to-close-news.html)
 
-**鄧炳強版本的”8.31事件”起因**
-     據媒體報導，鄧炳強表示，8.31事件起因是”有穿黑色襯衫暴徒虐打車裡的人”，有人報警，之後警方入太子站內執法。他又表示即使已有當事人澄清，社會上仍充斥8.31″死人謊言”，呼籲市民不要被”假新聞、假消息”蒙蔽，繼而被鼓動做出違法行為。
-     多名議員質疑警察當日的執法行動。李國權指出，8.31事件令很多市民憤怒，原因不單是有謠言”打死人”，更是因為警方當晚”不問是非，濫用武力”，執法方式太過份。李國權表示，自己當日也在太子站內，親眼目睹警方對現場人士使用”非常過份的武力”，簡直系執行私刑。
-     鄧炳強狡辯稱，自反修例事件以來，網上充斥著虛假和誤導的消息、新聞，企圖點燃仇恨和為暴徒的暴行尋找藉口;如8.31太子站死人的謊言，炮轟有人借假新聞煽動和炒作大眾的反社會情緒，”我呼籲年輕人，不要被假新聞同假消息蒙蔽，繼而被鼓動做暴力行為，抱憾終生。”
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30052712/image002-1.png)圖片 ：【立場新聞】
-**鄧炳強推說錄像片段屬於港鐵，而非警方**
-     至於有議員要求公開當日閉路電視，鄧炳強表示錄影片段屬於港鐵，而非警方，又稱警方在”陽光底下做事”，行動”會拿出來看，完全沒問題”，又表示若議員當日身處現場，希望他願意在會後錄口供，協助警方調查，但如果議員”純粹說完，拍拍屁股就走”，他覺得這對警方不公道。
-     鄧炳強在發言後，四點半便離開了會議室，民主派議員則高叫，”五大訴求，缺一不可，懲處警察，處長下台”的口號。
+[2,摩根大通（JP Morgan）以未公開的金額解決了一項訴訟，該訴訟指控該公司欺騙了貴金屬市場的交易。對沖基金經理丹尼爾·沙克（Daniel Shak）和兩名大宗商品交易商的訴訟指控摩根大通操縱白銀期貨市場，給原告造成了3000萬美元的損失。 CNBC獲悉，該行也即將達成9.2億美元的和解方案，以解決政府對貴金屬和美國國債期貨市場類似行為的調查。](https://www.cnbc.com/2020/09/29/jp-morgan-settles-spoofing-lawsuit-alleging-fraud-in-metals-trades.html)
 
-**戰友點評：【文燕】**
-     香港市民向警方索取8.31太子站閉路電視片段長達一年，至今仍未得到公佈。警方這種鬼鬼祟祟的態度，恰恰在告訴我們”8.31太子站閉路電視片段”有著不可告人的內幕;同樣，12名被送中的港人的雷達記錄不能公開，也一定有著不能見光的密秘。
-     公開8.31太子站閉路電視片段，讓閉路電視片段證明8.31太子站沒死人，證明警方沒有使用武力，讓謊言不攻自破。那麼與其說還死人一個公道，不如說是社會還警方一個公道。香港黑警，你們有自證清白的勇氣嗎？
+[3,中共網絡媒體公司新浪公司（Simcorp. ）正退出華爾街。 CEO曹國偉的公司New Wave將收購全部新浪股票，以實現其私有化。該公司的價值為26億美元。](https://www.cnn.com/2020/09/29/tech/sina-private-china-tech-hnk-intl/index.html)
 
-以上觀點僅代表筆者本人
-資料來源：獨立媒體\立場新聞
+[4, TikTok將在視頻共享應用程序中推出一個選舉指南，為用戶提供有關2020年美國選舉的信息，該指南將允許用戶訪問有關候選人的信息。](https://www.reuters.com/article/us-usa-election-tiktok-idUSKBN26K2OP?taid=5f735ed225fc1e0001590fea&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-[https://www.inmediahk.net/node/1077788](https://www.inmediahk.net/node/1077788)
+[5，隨著華為套件逐步淘汰，諾基亞將成為英國電信最大的供應商。英國政府表示，由於國家安全考慮，從明年起，英國手機運營商將無法購買華為用於5G網絡的新設備。](https://www.ft.com/content/4233168c-fcd4-4331-830e-a1b7f494e8b1?accessToken=zwAAAXTdMsiYkc9CMxaM_NRDMdODDqG39JTosQ.MEUCIQCpMThYjaeyJ3yerZCxR9cwzek3ZwQI7KhTojJT6u6ePQIgUO9xhO5Dv2g-4WRt8TBwrX8sgE431NV_cAVBhKgrOvk&amp;sharetype=gift?token=32c6d99a-af1c-44c1-bb04-d5871aaa4db8)
 
-[https://www.thestandnews.com/politics/%E9%84%A7%E7%82%B3%E5%BC%B7-%E7%9C%8B%E4%BA%8B%E4%BB%B6%E4%B8%8D%E8%A6%81%E5%A4%AA%E7%89%87%E9%9D%A2-8-31-%E4%BA%8B%E4%BB%B6%E8%B5%B7%E5%9B%A0%E6%9C%89%E9%BB%91%E8%A1%A3%E6%9A%B4%E5%BE%92%E8%99%90%E6%89%93%E8%BB%8A%E5%85%A7%E5%B8%82%E6%B0%91/](https://www.thestandnews.com/politics/%E9%84%A7%E7%82%B3%E5%BC%B7-%E7%9C%8B%E4%BA%8B%E4%BB%B6%E4%B8%8D%E8%A6%81%E5%A4%AA%E7%89%87%E9%9D%A2-8-31-%E4%BA%8B%E4%BB%B6%E8%B5%B7%E5%9B%A0%E6%9C%89%E9%BB%91%E8%A1%A3%E6%9A%B4%E5%BE%92%E8%99%90%E6%89%93%E8%BB%8A%E5%85%A7%E5%B8%82%E6%B0%91/)
+[6, “房住不炒”政策下，房地產金融政策仍在收緊,金九銀十”控房貸,多家大行新增涉房貸款降至30％以下。9月27日，三位銀行業人士向21世紀經濟報導記者表示，有大行收到通知，監管機構近期要求大型商業銀行壓降、控制個人住房按揭貸款等房地產貸款規模。此外，部分銀行反饋個人按揭貸款額度緊張，已有銀行呼籲客戶辦理房貸提早還款業務，以騰挪房貸額度。](http://news.esnai.com/2020/0929/209157.shtml)
 
-
+By 【秘翻組-金融法律組】
 
 0
