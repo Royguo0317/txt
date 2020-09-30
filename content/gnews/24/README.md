@@ -1,17 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 摩根大通同意支付9.2億美元罰金應對欺詐指控——港交所李小加等中共代言人曾在該公司擔任要職
-`2020-09-29 20:29 GM101` [轉載自GNews](https://gnews.org/zh-hant/391682/)
+## 郭文貴先生最新催人淚下, 獻給媽媽的歌《親愛的媽媽,我正在終結CCP》
+`2020-09-29 22:23 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/391979/)
 
-美東時間9月29號，美國司法部公共事務辦公室公佈了一條司法新聞，與總部位於紐約的紐約全球銀行和金融服務公司摩根大通公司，達成一項決議以解決兩種欺詐方案有關的刑事指控。
+**蘋果iTunes下載：[https://music.apple.com/au/album/dear-mamma-i-am-ending-the-ccp-single/1533851579](https://music.apple.com/au/album/dear-mamma-i-am-ending-the-ccp-single/1533851579)**
 
-該刑事指控第一種涉及數十個欺詐方案，關於貴金屬期貨合約市場中數千次非法交易，第二種涉及美國國債期貨合約市場及美國債票據和債券的二級（現金）市場中的數千次非法交易。
+### **Dear Mamma
+親愛的媽媽**
 
-摩根大通就在康涅狄格州提交的刑事資訊訂立了延期起訴協定（DPA），指控該公司犯有兩項電匯欺詐罪。根據DPA的條款，摩根大通將支付超過9.2億美元的刑事罰金，刑事罰金和受害者賠償，其中刑事罰金將記入與美國商品期貨交易委員會（CFTC）達成的另一項協定中。CFTC今天宣佈，根據與美國證券交易委員會（SEC）達成的另一項協定，向美國證券交易委員會（SEC）支付的款項中有部分刑事犯罪被記入貸方。
+媽媽我們的哭泣已經感動了天地感動了天地媽媽我們的哭泣已經感動了天地感動了天地
+Dear Mamma
+ Are you ok over there?
+ Your son is crying
+ and missing you
+ and see you in his dreams
+親愛的媽媽您在那邊兒還好嗎？
+您的兒子在哭泣很想您他一直在夢裡遇見您
+You said take down take down CCP
+ cause it’s gods will
+ So I’ll win for you and I’ll see you when
+ We end the CCP
+您說過讓我推翻CCP
+因為這是上天的旨意為了您我要贏當我們結束了CCP
+我將能看到您
+So why, do they take our lives?
+ Over and over and over and over again
+ So I, oh I’m putting up a fight
+ To protect my family
+ Let’s Take down the CCP
+為什麼？他們要剝奪我們的生命？
+一遍又一遍我！我將於他們對抗來保護我們的家人讓我們來一起推翻CCP
+ They might have made a virus
+ But the virus is the them
+ Screaming no more death
+ cause together we stand
+ it’s just you and me
+ Taking down the CCP
+ They might have took our parents
+ But they can’t take our hearts
+ Cause the love we have shines so
+ Bright in the dark
+ It’s just you and me
+ Taking down the CCP
+他們也許製做了病毒但是其實病毒就是他們吶喊，不要再有死亡因為我們站在一起你與我一起推翻共產黨CCP
+他們也許剝奪了我們父母的生命但是他們奪不走我們的心因為我們的愛是如此的明亮在那黑暗中你與我一起推翻共產黨CCP
+ Hey son
+ I got a million things I wish i coulda say to you
+ but I’ll start with I’m so proud
+ Yeah You’re doing things that should have been done a long time ago
+ And I know and I know you’re gonna take them down
+嗨！兒子我有千萬件事兒想跟你講讓我先告訴你，我是如此的自傲你做的事情早就應該在很多年前去做了我知道我知道你一定會把他們推翻的媽媽我們的哭泣已經感動了天地感動了天地媽媽我們的哭泣已經感動了天地感動了天地
 
-多位前中共政府官員、立法議員及中共代言人曾在摩根大通公司擔任要職，包括前香港財政司司長梁錦松、前香港商務及經濟發展局馬時亨、前香港立法會議員[吳靄儀](https://zh.wikipedia.org/wiki/%E5%90%B3%E9%9D%84%E5%84%80)、現任香港交易所首席執行官李小加、摩根大通董事總經理兼中國市場主席李晶等。
 
-根據摩根大通公司中共代言人配置情況分析，中共方面派遣的前官員或現任代言人的分量均舉足輕重，雙方大概率存在巨大的利益關聯，後續有待司法部檔或爆料革命路德社進一步解密。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/29202606/%E5%9B%BE%E4%BA%8C-6.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/29202625/%E5%9B%BE%E4%B8%80-7.png)
-0
+
+
+
+1

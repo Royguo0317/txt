@@ -1,57 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班農疫情作戰室 407期
-`2020-09-30 02:39 GM47` [轉載自GNews](https://gnews.org/zh-hant/392437/)
+## 美眾議院關於COVID-19全球大爆發起源報告已經公開否認了一中原則
+`2020-09-30 04:06 NewFOC` [轉載自GNews](https://gnews.org/zh-hant/392549/)
 
-戰友之家新聞譯製組製作
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30034500/%E5%86%85%E6%96%87%E5%8F%8A%E5%B0%81%E9%9D%A2%E9%85%8D%E5%9B%BE-3.jpg)
+作者：Maarago
+
+據GNEWS2020-09-28 02:03發佈的[首發! 美眾議院關於COVID-19全球大爆發起源【重磅報告中文翻譯】](https://gnews.org/zh-hans/387513/)第57頁［2009 年，經過多年的外交談判，臺灣衛福部收到時任世衛組織總幹事陳馮富珍的邀請，以“中華臺北”的名義參加了國際衛生大會。該邀請是根據世衛組織總幹事的授權發出的，會每年被進行延長，直至 2016 年為止。臺灣民選總統蔡英文被認為比前任總統對於中共國更持有批判態度，因此該邀請即被終止。總幹事譚德塞在 2017 年 5 月當選後，很快向中共保證，他會支援他們的立場。5 月 26 日，在其當選三天后，總幹事譚德塞對中共國黨媒新華社發表講話，承諾“遵守一個中國原則。”  “一中原則”只是中共自己宣稱對臺灣擁有主權的主張，並非聯合國的政策，也不是聯合國成員國的共識，更不是美國的政策。］
+
+對應的英文《THE ORIGINS OF THE COVID-19 GLOBAL PANDEMIC, INCLUDING THE ROLES OF THE CHINESE COMMUNIST PARTY AND THE WORLD HEALTH ORGANIZATION》第58頁：［In 2009, after years of diplomatic negotiation, the Department of Health in Taiwan received an invitation from then WHO Director-General Margaret Chan to attend a meeting of the WHA under the name “Chinese Taipei.” The invitation, granted under the authority of the Director-General of the WHO, was extended each year until 2016. After Taiwan democratically elected President Tsai Ing-wen, seen as more critical of the PRC than her predecessor, the invitations stopped. Director-General Tedros, after being elected in May 2017, was quick to reassure the CCP that he would support their position. On May 26 th , three days after he was elected, Director-General Tedros spoke to Xinhua, a PRC state-run press agency, and pledged to “abide by the one-China principle.” The “one-China principle” is the CCP’s own view that it holds sovereignty over Taiwan, which is not UN policy, the consensus view of UN member states, nor the policy of the United States.］
+
+這份報告的重點並不是闡述美國的對外政策，這份報告的重點是對中共冠狀病毒的起源蓋棺定論，但是提及臺灣的部分與病毒真相息息相關，因為在中共冠狀病毒早期與中共和世衛組織極力掩蓋和誤導病毒資訊不同的是，臺灣的相關部門第一時間向WHO發出了預警，而這份報告在提出臺灣在這次中共冠狀病毒大流行中的表現之後，提出的建議（[首發! 美眾議院關於COVID-19全球大爆發起源【重磅報告中文翻譯】](https://gnews.org/zh-hans/387513/)第59頁）［將臺灣納入世衛組織的重要性，長期以來在國會得到兩黨支援 。在第 116 屆國會中，參眾兩院都通過了幾項支援臺灣參與世衛組織的法案。眾議院一致通過了支援臺灣加入世衛組織的第 353 號法案。參議院也緊隨其後，一致通過了類似的第 249 號法案。今年早些時候川普總統簽署了第 1678 號法案，是類似的第三份立法檔，確立了美國支持臺灣以觀察員身份加入相關國際組織的政策。］對應的英文（《THE ORIGINS OF THE COVID-19 GLOBAL PANDEMIC, INCLUDING THE ROLES OF THE CHINESE COMMUNIST PARTY AND THE WORLD HEALTH ORGANIZATION》第58頁）The importance of Taiwan’s inclusion at the WHO is an issue that has longstanding
+
+bipartisan support in Congress. During the 116th Congress, both chambers have passed several pieces of legislation supporting Taiwan’s engagement with the WHO. The House of Representatives passed H.R.353, a bill supporting Taiwan’s participation in the WHO, unanimously. The Senate followed suit, unanimously approving S.249, a similar bill. A third
+
+piece of legislation, S. 1678, was signed into law by President Trump earlier this year, establishing as the policy of the United States support for the inclusion of Taiwan as an observer within appropriate international organizations.］ 臺灣加入世界衛生組織就是終結嗎？不是的！既然一中政策既非聯合國的政策也非美國的政策，那麼下一步臺灣恢復聯合國會員國地位還會遠嗎？那麼下一步臺灣與美國恢復邦交關係還會遠嗎？既然中共不能代表臺灣，那麼下一步中共政權還能代表十四億中國人民嗎？那麼一直以來中共念茲在茲的中美三個聯合公報，它還具有任何現實意義嗎？我相信這一次中美三個聯合公報真的如中共評價《中華人民共和國政府和大不列顛及北愛爾蘭聯合王國政府關於香港問題的聯合聲明》已經是歷史性檔不具有任何現實意義一樣，中美三個聯合公報即將成為歷史性檔，並且將不再具有任何現實意義——由於中共的毀約和對國際法的踐踏，它正在失去香港，它正在失去臺灣，它正在失去聯合國，它正在失去美國，它正在失去整個世界！而香港、臺灣、美國和這個世界都在準備迎接一個沒有中國共產黨的新中國和一個沒有中國共產黨的新世界，WHO是什麼？聯合國是什麼？我相信它們都應該重新洗牌了！
+
+（文章內容僅代表作者個人觀點）
 
 
-
-407.摘要
-
-特裡席林(美國原則計畫執行董事)：讓巴雷特出任最高法院的大法官，民主黨已經開始用巴法官的信仰來做文章。這些人是極端左派，他們不認為基督徒應該有一席之地， 他們不認為任何有超過一兩個孩子的人可以去最高法庭，他們會試圖抹黑摧毀巴法官，他們反天主反基督的立場一表無遺。
-
-現在實際上是善與惡之戰， 一邊是死亡。民主黨是死亡之黨。
-
-我們有一些軟弱的領導，幸運的是川普動搖了整個體系，共和黨有時會軟弱，保持他們不再軟弱的唯一方法是給他們支援，在需要施壓的地方施壓；我們將在整個確認巴法官的過程中發出動作警報，我們必須組織起來，並為各種攻擊做好準備。
-
-麗茲·優爾(梵蒂岡長期關注者)：全球暗黑勢力勾結在一起，企圖滅川普，我們要警醒，這是一場聖戰，世界危在旦夕。自50年代，全球主義者就計畫滲透教庭，現在是我們攤牌的時候。梵蒂岡會在10月份的教宗通諭中給全球主義者開綠燈，反對川普。
-
-維加諾主教，前美國駐梵蒂岡大使，他在給天主教組織和川普的一封信說到：美國大選的結果是決定性的，它會決定世界未來的走向，川普在向邪惡勢力宣戰，這是光明之子和黑暗之子的對決。維加諾主教明白拜登和美國內部的深暗政府與深暗教堂聯合起來，企圖擊敗川普，他斷言教宗教庭收賄。
-
-莫拉•毛甯汗(作家，電影製作人)：大多數人類會認為種族滅絕，殘害兒童以及毀滅文化文明是惡魔行為，中共符合1946年大會對種族滅絕的定義。
-
-梵蒂岡培養了中共，他們沒有譴責過在西藏和新疆的集中營，沒有支持過香港的示威者，沒在中共強制計劃生育政策上發聲，一旦碰到中共就是一片死寂。
-
-西方曾經認真對待西藏問題一段很短暫的時間，那是1989年天安門大屠殺之後，但是911之後  中國問題就靠後站了。
-
-愛麗絲(爆料革命成員，香港流亡學生)：中共毀壞佛教文物，迫害佛教徒，詆毀僧侶，宣揚假和尚、假寺廟，
-
-在寺廟升紅旗、掛習近平頭像，想要改變佛教傳統，控制和尚的思想。
-
-信佛的人相信因果報應，要對自己的行為思想負責，不會跟中共去做邪惡的事，
-
-所以中共害怕佛教。他們想要控制每一個中國人的思想，即使在海外，他們不允許人們瞭解宗教。
-
-茉莉(爆料革命成員，加華基督徒)：中國大陸的教徒看到教庭和中共做生意會很失望的，這會製造恐懼。中共想控制，他們把教堂當工具，用來滲透西方，不僅對中國，也對全世界。
-
-雖然有迫害，我認為信仰依然非常強，因為迫害只是讓大家更靠近上帝。中共從來不尊重生命，現在又有新冠病毒，它是
-
-邪魔，這是一場善與惡的較量。堅信上帝和我們站在一起，因為我們有真相，我們必須團結、反擊。
-
-麥克西(戰斗室副主播)：他們之所以要消滅上帝，消滅對靈性的追求，是因為這是唯一能維繫生命的動力，當家庭、朋友、財富被奪走的時候，所以就是光明與黑暗的格鬥，如果沒有上帝，就沒有戒律，一切可以任意為之，我們現在經歷的就是這個中共製造的危險。
-
-精神力量的基礎，對我而言  歸結為每個人都是按照上帝的形象製造的，而共產主義政權要求個人屈從於國家。天主教會的道德權威瓦解，極為危險。
-
-郭文貴(爆料革命、新中國聯邦創始人)：三年前我警告西方，中共有計劃地想要控制全世界，用低成本的生化武器，殺死西方世界的人，幹掉美國。
-
-在宗教上，中共中央每天都在宣傳，世上沒有上帝，中共就是上帝。
-
-同意主教先生有關邪惡對抗正義的說法，但根本上是真與假的戰爭；宗教、上帝代表真相，中共代表謊言、虛假。美國人民要知道，你們正在與中共交戰，這是真實與虛假的交戰，天主教和基督教兩種宗教與假宗教中共主義的交戰。
-
-中國現在所有的問題都是因為沒有信仰，沒有宗教。真正的中國人，新中國人，是相信上帝的，相信菩薩的。我們會保持上千年的和平，會和全世界和美國保持良好的關係，想要解決中國問題首要是剷除中共，讓中國人回歸信仰，中國人是有宗教自由的，宗教存在了上千年。
-
-他們現在擁有梵蒂岡，簽了秘密合同，他們正在嘲笑西方，梵蒂岡是可以被收買的，他們可以買到西方的信仰，他們可以收買全世界，接著把中共變成神，這點對中共是很鼓舞的。這是為什麼他們不在乎死了多少美國人，他們說，哈哈你們輸了，因為美國政府是愚蠢的，他們從來不想幫美國。
 
 0
