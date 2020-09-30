@@ -1,13 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 9月29日同聲傳譯班農戰斗室【第411+412期】
-`2020-09-29 23:52 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/392230/)
+## 請欣賞郭文貴先生 G-TV 蓋特九月時裝秀！
+`2020-09-30 04:13 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/392528/)
 
-9月29日同聲傳譯班農戰斗室【第411+412期】：當官員開始佈置選票時，2020年選舉將是一場大戰。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30034249/Miles_20200929_Fashion-figure1.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30035110/Miles_20200929_Fashion-figure2-revised.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30034313/Miles_20200929_Fashion-figure3.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30035124/Miles_20200929_Fashion-figure4.png)
+視頻音樂鏈接：[https://www.bensound.com/royalty-free-music/track/dubstep](https://www.bensound.com/royalty-free-music/track/dubstep)
 
+視頻創意&製作：【V%】翻譯&編輯：【Isaiah4031】
 
-
-####  **By：【秘密翻譯組G-Translators】**
+戰友之家玫瑰園小隊出品
 
 0

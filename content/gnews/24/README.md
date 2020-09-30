@@ -1,59 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭文貴先生最新催人淚下, 獻給媽媽的歌《親愛的媽媽,我正在終結CCP》
-`2020-09-29 22:23 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/391979/)
+## 中共滅活疫苗大躍進或許只是一地雞毛  ——高精度病毒完整結構圖顯示：滅活疫苗可能無法留下刺突蛋‘全屍’，影響中和抗體有效性
+`2020-09-30 00:57 Ronald` [轉載自GNews](https://gnews.org/zh-hant/392356/)
 
-**蘋果iTunes下載：[https://music.apple.com/au/album/dear-mamma-i-am-ending-the-ccp-single/1533851579](https://music.apple.com/au/album/dear-mamma-i-am-ending-the-ccp-single/1533851579)**
+內病毒專題:文文      校對:天藍色獨角色
 
-### **Dear Mamma
-親愛的媽媽**
+中共國科學家最新研究成果從理論角度打臉中共國目前的滅活疫苗有效性。9月20日，科技日報報道了清華大學結構生物學高精尖創新中心研究員李賽研究組完成了中共病毒的高精度病毒完整結構圖。這一成果于9月15日在線發表在《細胞》雜志上，題目爲“新冠病毒的分子結構”，他們通過冷凍電鏡斷層成像技術，把新冠病毒看了個清清楚楚。
 
-媽媽我們的哭泣已經感動了天地感動了天地媽媽我們的哭泣已經感動了天地感動了天地
-Dear Mamma
- Are you ok over there?
- Your son is crying
- and missing you
- and see you in his dreams
-親愛的媽媽您在那邊兒還好嗎？
-您的兒子在哭泣很想您他一直在夢裡遇見您
-You said take down take down CCP
- cause it’s gods will
- So I’ll win for you and I’ll see you when
- We end the CCP
-您說過讓我推翻CCP
-因為這是上天的旨意為了您我要贏當我們結束了CCP
-我將能看到您
-So why, do they take our lives?
- Over and over and over and over again
- So I, oh I’m putting up a fight
- To protect my family
- Let’s Take down the CCP
-為什麼？他們要剝奪我們的生命？
-一遍又一遍我！我將於他們對抗來保護我們的家人讓我們來一起推翻CCP
- They might have made a virus
- But the virus is the them
- Screaming no more death
- cause together we stand
- it’s just you and me
- Taking down the CCP
- They might have took our parents
- But they can’t take our hearts
- Cause the love we have shines so
- Bright in the dark
- It’s just you and me
- Taking down the CCP
-他們也許製做了病毒但是其實病毒就是他們吶喊，不要再有死亡因為我們站在一起你與我一起推翻共產黨CCP
-他們也許剝奪了我們父母的生命但是他們奪不走我們的心因為我們的愛是如此的明亮在那黑暗中你與我一起推翻共產黨CCP
- Hey son
- I got a million things I wish i coulda say to you
- but I’ll start with I’m so proud
- Yeah You’re doing things that should have been done a long time ago
- And I know and I know you’re gonna take them down
-嗨！兒子我有千萬件事兒想跟你講讓我先告訴你，我是如此的自傲你做的事情早就應該在很多年前去做了我知道我知道你一定會把他們推翻的媽媽我們的哭泣已經感動了天地感動了天地媽媽我們的哭泣已經感動了天地感動了天地
+其中，最重要的發現就是：活病毒的滅活處理可能破壞病毒本身的蛋白結構，使其S1亞基脫落，S2亞基發生了向與膜融合狀態的構象變化。高精度病毒完整結構圖有助于人類開發出更高效的疫苗。“現在用的滅活疫苗的滅活方法可能無法給病毒的刺突蛋白留下‘全屍’，這理論上會影響其激發中和抗體的有效性。
 
+這一對病毒整體結構的高精度解析戳穿了中共疫苗的牛皮，中共科技部部長王志剛在10天前就吹牛：中共已有4款疫苗進入三期臨床，其中3款就是滅活疫苗。
 
+中共國自己的科學家研究結果馬上就來打臉中共的疫苗大躍進：滅活疫苗可能是無法成功的，滅活過程會影響S蛋白構象，從而導致人體産生的中和抗體不能有效中和活病毒的S蛋白。簡單來說就是死病毒的S蛋白與活病毒不一樣，把死病毒打進人體産生的抗體對活病毒無效！
 
+研究同時也發現CCP病毒是一個非常智能的病毒，雖然病毒表面刺突蛋白非常少，平均不到30個，卻可以自由遊走、旋轉。蛋白旋轉的特征讓新冠病毒在攻擊細胞時，可以自由調整方位，和受體結合。“見風使舵”的特性讓它極具傳染性。在人類認知範圍內，首次見識這樣的囊膜病毒。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30003630/Screenshot_2020-09-29-16-43-24-322_Discord-1.png)
+新聞來源： [https://news.sina.cn/gn/2020-09-29/detail-iivhvpwy9434044.d.html?cre=tianyi&mod=w2019ncov&loc=4&r=0&rfunc=69&tj=cxvertical\_2019ncov&tr=85&vt=4&pos=222](https://news.sina.cn/gn/2020-09-29/detail-iivhvpwy9434044.d.html?cre=tianyi&amp;mod=w2019ncov&amp;loc=4&amp;r=0&amp;rfunc=69&amp;tj=cxvertical_2019ncov&amp;tr=85&amp;vt=4&amp;pos=222)
 
-
-1
+0

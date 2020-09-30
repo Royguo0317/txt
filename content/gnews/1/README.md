@@ -1,24 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美眾議院關於COVID-19全球大爆發起源報告已經公開否認了一中原則
-`2020-09-30 04:06 NewFOC` [轉載自GNews](https://gnews.org/zh-hant/392549/)
+## 9/30 每日滅共新聞摘要 06期
+`2020-09-30 07:03 GM62` [轉載自GNews](https://gnews.org/zh-hant/392173/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30034500/%E5%86%85%E6%96%87%E5%8F%8A%E5%B0%81%E9%9D%A2%E9%85%8D%E5%9B%BE-3.jpg)
-作者：Maarago
+摘要：夏天 封面設計：Bigmama 校對：文蚁
 
-據GNEWS2020-09-28 02:03發佈的[首發! 美眾議院關於COVID-19全球大爆發起源【重磅報告中文翻譯】](https://gnews.org/zh-hans/387513/)第57頁［2009 年，經過多年的外交談判，臺灣衛福部收到時任世衛組織總幹事陳馮富珍的邀請，以“中華臺北”的名義參加了國際衛生大會。該邀請是根據世衛組織總幹事的授權發出的，會每年被進行延長，直至 2016 年為止。臺灣民選總統蔡英文被認為比前任總統對於中共國更持有批判態度，因此該邀請即被終止。總幹事譚德塞在 2017 年 5 月當選後，很快向中共保證，他會支援他們的立場。5 月 26 日，在其當選三天后，總幹事譚德塞對中共國黨媒新華社發表講話，承諾“遵守一個中國原則。”  “一中原則”只是中共自己宣稱對臺灣擁有主權的主張，並非聯合國的政策，也不是聯合國成員國的共識，更不是美國的政策。］
+戰友之家多語組
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/29234339/SC-Anti-CCP-30.09.20-1.png)
+參議員克魯茲:推翻中共的戰略。
 
-對應的英文《THE ORIGINS OF THE COVID-19 GLOBAL PANDEMIC, INCLUDING THE ROLES OF THE CHINESE COMMUNIST PARTY AND THE WORLD HEALTH ORGANIZATION》第58頁：［In 2009, after years of diplomatic negotiation, the Department of Health in Taiwan received an invitation from then WHO Director-General Margaret Chan to attend a meeting of the WHA under the name “Chinese Taipei.” The invitation, granted under the authority of the Director-General of the WHO, was extended each year until 2016. After Taiwan democratically elected President Tsai Ing-wen, seen as more critical of the PRC than her predecessor, the invitations stopped. Director-General Tedros, after being elected in May 2017, was quick to reassure the CCP that he would support their position. On May 26 th , three days after he was elected, Director-General Tedros spoke to Xinhua, a PRC state-run press agency, and pledged to “abide by the one-China principle.” The “one-China principle” is the CCP’s own view that it holds sovereignty over Taiwan, which is not UN policy, the consensus view of UN member states, nor the policy of the United States.］
+泰德·克魯茲參議員接受《美國思想領袖》節目採訪。 我們需要對中共國採取類似於雷根對蘇聯採取的那種全面的方法。 中共政府是新的邪惡帝國,美國將建立一個全面的戰略,追隨羅納德·雷根總統的腳步,抗擊中共。
 
-這份報告的重點並不是闡述美國的對外政策，這份報告的重點是對中共冠狀病毒的起源蓋棺定論，但是提及臺灣的部分與病毒真相息息相關，因為在中共冠狀病毒早期與中共和世衛組織極力掩蓋和誤導病毒資訊不同的是，臺灣的相關部門第一時間向WHO發出了預警，而這份報告在提出臺灣在這次中共冠狀病毒大流行中的表現之後，提出的建議（[首發! 美眾議院關於COVID-19全球大爆發起源【重磅報告中文翻譯】](https://gnews.org/zh-hans/387513/)第59頁）［將臺灣納入世衛組織的重要性，長期以來在國會得到兩黨支援 。在第 116 屆國會中，參眾兩院都通過了幾項支援臺灣參與世衛組織的法案。眾議院一致通過了支援臺灣加入世衛組織的第 353 號法案。參議院也緊隨其後，一致通過了類似的第 249 號法案。今年早些時候川普總統簽署了第 1678 號法案，是類似的第三份立法檔，確立了美國支持臺灣以觀察員身份加入相關國際組織的政策。］對應的英文（《THE ORIGINS OF THE COVID-19 GLOBAL PANDEMIC, INCLUDING THE ROLES OF THE CHINESE COMMUNIST PARTY AND THE WORLD HEALTH ORGANIZATION》第58頁）The importance of Taiwan’s inclusion at the WHO is an issue that has longstanding
+中共國假冒品肆虐 美議員吁取消中國最惠國待遇。
 
-bipartisan support in Congress. During the 116th Congress, both chambers have passed several pieces of legislation supporting Taiwan’s engagement with the WHO. The House of Representatives passed H.R.353, a bill supporting Taiwan’s participation in the WHO, unanimously. The Senate followed suit, unanimously approving S.249, a similar bill. A third
+美國海關和邊境保護局局長摩根(Mark Morgan)和白宮貿易顧問納瓦羅(Peter Navarro)近日聯合發文稱,中國假冒偽劣產品每天湧入美國,美必須採取措施遏制這一危險勢頭。 國會參議院已推出法案,呼籲取消中國的貿易最惠國地位。
 
-piece of legislation, S. 1678, was signed into law by President Trump earlier this year, establishing as the policy of the United States support for the inclusion of Taiwan as an observer within appropriate international organizations.］ 臺灣加入世界衛生組織就是終結嗎？不是的！既然一中政策既非聯合國的政策也非美國的政策，那麼下一步臺灣恢復聯合國會員國地位還會遠嗎？那麼下一步臺灣與美國恢復邦交關係還會遠嗎？既然中共不能代表臺灣，那麼下一步中共政權還能代表十四億中國人民嗎？那麼一直以來中共念茲在茲的中美三個聯合公報，它還具有任何現實意義嗎？我相信這一次中美三個聯合公報真的如中共評價《中華人民共和國政府和大不列顛及北愛爾蘭聯合王國政府關於香港問題的聯合聲明》已經是歷史性檔不具有任何現實意義一樣，中美三個聯合公報即將成為歷史性檔，並且將不再具有任何現實意義——由於中共的毀約和對國際法的踐踏，它正在失去香港，它正在失去臺灣，它正在失去聯合國，它正在失去美國，它正在失去整個世界！而香港、臺灣、美國和這個世界都在準備迎接一個沒有中國共產黨的新中國和一個沒有中國共產黨的新世界，WHO是什麼？聯合國是什麼？我相信它們都應該重新洗牌了！
+美國國務院報告:中共破壞環境11條惡行。
 
-（文章內容僅代表作者個人觀點）
+9月25日,美國國務院發佈報告,細數中共當局破壞環境的11條惡行。
 
+報告說,北京是世界上最大的溫室氣體排放者;
 
+世界上最大的海洋垃圾來源;
+
+世界上最大的、非法、不通報、不管制捕魚的最惡劣肇事者;
+
+也是世界上最大的、走私野生動植物和木材產品的消費國。
+
+中共的這些行為給中國人民造成最惡劣的環境影響的同時,中共國對於自然資源不可持續地開採、及通過”一帶一路”無視環境的出口行為,都威脅著全球經濟和全球健康。
+
+國務院還說,可悲的是,中國共產黨壓制公民社會和新聞自由,放慢了本可以令全世界的公民和中國人民受益的變革。
+
+美國制裁”中芯國際” 跟華為”一起死”
+
+英國《金融時報》報導,美國商務部的工業與安全域9月25日有一份文件,顯示大陸的”中芯國際”也被美國列入貿易禁運的黑名單,也就是對它採取了進出口管制。 意味著所有美國企業,除非得到特殊許可,不然不可以向”中芯國際”供貨。
+
+美助卿:美國不再聽信中共的花言巧語。
+
+美國東亞和太平洋事務局助理國務卿史達偉(David Stilwell)9月17日在參議院一個聽證會上明確表示,中共在全球每一個惡意行動下都隱藏暗礁險灘,美國不再聽信中共花言巧語的自我標榜,並表示,中共對世界的侵略和破壞現在僅現”冰山一角”
+
+對抗中共 印度支持美國-瑪律地夫聯盟。
+
+為了對抗中共在印度洋地區日益增大的影響力,印度支持美國在印度洋地區的防務並參與美國政府本月與馬爾地夫簽署了一項防務協定,標誌著地域政治潮流已向印度洋戰略地帶轉移。 7年前美馬兩國的一個類似倡議曾遭印度的反對,但這次不同,印度支援美馬新合作框架。 這是因為印度感覺到了對中共在該地區威脅的增加。
 
 0
