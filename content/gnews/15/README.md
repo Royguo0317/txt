@@ -1,34 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 9/29財經快訊:中共打劫財富,歪曲西方國家的司法,信仰,破壞西方經濟
-`2020-09-29 11:53 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/391097/)
+## 爆革星評：美國務次卿克拉奇發推推倒中共網絡防火牆
+`2020-09-29 14:41 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/391226/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/29114706/Picture7-5.png)來源：東方財富網
-1.[中共趁疫情、美國對中共施壓之際尋求對私企的更大控制，打劫私企。](https://on.ft.com/2Gkl6rC)
+喜馬拉雅聯盟加拿大農場   文星（一號&大衛阿波羅）
 
-2.[中共通過環球時報打擊匯豐銀行股價，然後用平安銀行低價購買股票的方式，操縱股票，搶劫投資者。](https://on.ft.com/33bQBgP)
+校對   小鷗
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/29144116/YouTube-1.jpg)圖片來源：YouTube
+9月28日，美國務次卿克拉奇（Keith Krach）來到美國駐柏林大使館的里根雕像前說，30年前，裡根總統向前蘇聯呼籲，“戈爾巴喬夫先生，請推倒柏林牆”。現在，柏林牆倒了，中共卻建起了數字防火牆，這堵牆把中國人民和文明世界隔絕了。
 
-3.[坐落在武漢的居然之家（深圳A股： 000785）在合併武漢的國企後，未經審計的半年報顯示利潤下降57.57%，經營活動產生的現金流為虧損5億元，負債高達40億元。](https://finance.sina.com.cn/stock/stockzmt/2020-09-29/doc-iivhuipp7089037.shtml)
+卡拉奇模仿裡根總統繼續說，習近平先生，請推倒中共國的防火牆！
 
-4.[中共期待通過操縱賽馬欺騙老百姓。](https://m.chinanews.com/wap/detail/zw/ty/2020/09-29/9302876.shtml)
+這是克拉奇發的官推信息，他還播放了當年裡根總統呼籲推倒柏林牆的視頻。
 
-5.[與壓迫天主教徒、穆斯林和其他有信仰之人的中共勾兌的梵蒂岡被金融時報報導做了3.5億歐元的倫敦奢侈房地產交易](https://on.ft.com/338g8Y6)
+克拉奇是主管經濟、能源和環保的美國國務次卿，蓬佩奧國務卿的得力助手。他曾於9月17日以官方身份正式到訪台灣，參加了主張台灣獨立的台灣前總統李登輝的追思會，台灣總統蔡英文與其會見並稱其將“邁出關鍵一步”，與美國加強合作。
 
-6.[中共病毒導致法國經濟預計全年萎縮10%](http://forex.eastmoney.com/a/202009291651836353.html)
+克拉奇的這個推也表達了美國與中國人民站在一起，中共不代表中國人民。在世界人民共享文明成果的現代信息社會，中共還靠網絡防火牆，把善良的中國人民繼續關在籠子裡，繼續圍堵在牆內，並對中國人民強制洗腦，鼓動不明真相的百姓與文明世界為敵。
 
-7.[中共對第一階段貿易協議的履約不到五成，即使已經轉換成按月同比率計算。](https://www.zerohedge.com/markets/china-has-purchased-less-one-third-us-exports-under-historic-trade-deal)
+中共建立網絡防火牆，違背歷史潮流，侵害中國人民的根本利益，世界人民需要和中國人民一起，合力推倒這堵牆！
 
-8.[然後中共代表說世貿組織有關2000億美元關稅的裁決是“客觀、公平”的.](https://www.reuters.com/article/us-usa-trade-china-wto/china-calls-wto-ruling-on-trumps-tariffs-objective-and-fair-idUSKBN26J2CJ)
+參考鏈接：
 
-9.[被中共藍金黃嚴重地區的加州法官保護中共，對抗美國的安全憂慮。](https://mobile.reuters.com/article/amp/idUSKBN26J2ZS?__twitter_impression=true)
-
-10.[耶路撒冷郵報爆料1982年拜登就已經捲入了反猶主義，拜登說除非以色列停止在西岸的行動，否則美國將停止對以色列的援助。](https://m.jpost.com/opinion/american-jews-should-reject-joe-biden-643781)
-
-11.[在美國禁止華為，要求美國公司加入5G建設後，微軟(納斯達克代碼: MSFT)使用Azure加入5G比賽。](https://mobile.reuters.com/article/amp/idUSKBN26J2EE?__twitter_impression=true)
-
-整理：CPA Jim
-
-密翻組·金融法律組
+> The Great Firewall of China separates the Chinese people from the free world just as the Berlin Wall separated the German people from each other. The Berlin Wall is gone. Mr. Xi, tear down China's Great Firewall. [pic.twitter.com/uhozlKNFo7](https://t.co/uhozlKNFo7)
+> — Under Secretary Keith Krach (@State\_E) [September 28, 2020](https://twitter.com/State_E/status/1310499460057833472?ref_src=twsrc%5Etfw)
 
 0
