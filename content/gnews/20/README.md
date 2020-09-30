@@ -1,42 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生第二首单曲上线几小时内已在新加坡Apple music荣登榜首！
-`2020-09-30 02:31 SGHIMALAYA` [轉載自GNews](https://gnews.org/zh-hant/392430/)
+## 9/29財經快訊: 中共房產新政難掩財政危機,新浪正被納入私囊,美國總統辯論後的股市
+`2020-09-30 09:48 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/393216/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30020631/mama-1.jpg)
-一大早小坡就听说郭先生又有新歌上线了，不会就是那首改编的《草帽歌》吧？ 跑到apple music 里面一查，果然在Miles Guo的专辑下面新增了一首关于妈妈的歌 “Dear Mamma, I am Ending the CCP” ! 随后奔走呼叫所有小伙伴和战友们抓紧下载这首新歌一听为快， 没想到新加坡中午时间，即时下载榜单上郭先生这首新歌已经排列榜首了！真是可喜可贺！
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30092001/930FN.jpg)圖片來源： [https://image.cnbcfm.com](https://image.cnbcfm.com/api/v1/image/106630005-1595532860080-gettyimages-1227707089-363421803_1-5.jpeg?v=1601414236&amp;w=740&amp;h=416)
+[1,在美國總統辯論之後，道瓊斯指數下跌了100點。美國股票期貨週二晚間下跌。道瓊斯工業平均指數期貨下跌101點，或0.4％。標普500期貨和納斯達克100期貨均下跌0.3％。](https://www.cnbc.com/2020/09/29/stock-market-futures-open-to-close-news.html)
 
-郭先生亲口说过，这首歌是他自己带着真情实感写的，他那略带沙哑的郭氏唱腔也的确让我们听到了对母亲那种撕心裂肺的想念，很多战友反馈都说听哭了。 让我们看看郭先生写了什么：
+[2,摩根大通（JP Morgan）以未公開的金額解決了一項訴訟，該訴訟指控該公司欺騙了貴金屬市場的交易。對沖基金經理丹尼爾·沙克（Daniel Shak）和兩名大宗商品交易商的訴訟指控摩根大通操縱白銀期貨市場，給原告造成了3000萬美元的損失。 CNBC獲悉，該行也即將達成9.2億美元的和解方案，以解決政府對貴金屬和美國國債期貨市場類似行為的調查。](https://www.cnbc.com/2020/09/29/jp-morgan-settles-spoofing-lawsuit-alleging-fraud-in-metals-trades.html)
 
-亲爱的妈妈
+[3,中共網絡媒體公司新浪公司（Simcorp. ）正退出華爾街。 CEO曹國偉的公司New Wave將收購全部新浪股票，以實現其私有化。該公司的價值為26億美元。](https://www.cnn.com/2020/09/29/tech/sina-private-china-tech-hnk-intl/index.html)
 
-妈妈 我们的哭泣 已经感动了天地  感动了天地
+[4, TikTok將在視頻共享應用程序中推出一個選舉指南，為用戶提供有關2020年美國選舉的信息，該指南將允許用戶訪問有關候選人的信息。](https://www.reuters.com/article/us-usa-election-tiktok-idUSKBN26K2OP?taid=5f735ed225fc1e0001590fea&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-亲爱的妈妈 您在那边儿还好吗？您的儿子在哭泣 很想您  他一直在梦里遇见您
+[5，隨著華為套件逐步淘汰，諾基亞將成為英國電信最大的供應商。英國政府表示，由於國家安全考慮，從明年起，英國手機運營商將無法購買華為用於5G網絡的新設備。](https://www.ft.com/content/4233168c-fcd4-4331-830e-a1b7f494e8b1?accessToken=zwAAAXTdMsiYkc9CMxaM_NRDMdODDqG39JTosQ.MEUCIQCpMThYjaeyJ3yerZCxR9cwzek3ZwQI7KhTojJT6u6ePQIgUO9xhO5Dv2g-4WRt8TBwrX8sgE431NV_cAVBhKgrOvk&amp;sharetype=gift?token=32c6d99a-af1c-44c1-bb04-d5871aaa4db8)
 
-您说过让我推翻CCP 因为这是上天的旨意  为了您我要赢 当我们结束了CCP 我将能看到您
+[6, “房住不炒”政策下，房地產金融政策仍在收緊,金九銀十”控房貸,多家大行新增涉房貸款降至30％以下。9月27日，三位銀行業人士向21世紀經濟報導記者表示，有大行收到通知，監管機構近期要求大型商業銀行壓降、控制個人住房按揭貸款等房地產貸款規模。此外，部分銀行反饋個人按揭貸款額度緊張，已有銀行呼籲客戶辦理房貸提早還款業務，以騰挪房貸額度。](http://news.esnai.com/2020/0929/209157.shtml)
 
-为什么？ 他们要剥夺我们的生命？ 一遍又一遍  我！ 我将于他们对抗  来保护我们的家人  让我们来一起推翻CCP
-
-他们也许制做了病毒 但是其实病毒就是他们  呐喊，不要再有死亡
-
-因为我们站在一起  你与我一起  推翻共产党CCP
-
-他们也许剥夺了我们父母的生命  但是他们夺不走我们的心
-
-因为我们的爱 是如此的  明亮在那黑暗中  你与我一起   推翻共产党CCP
-
-嗨！ 儿子 我有千万件事儿 想跟你讲
-
-让我先告诉你，我是如此的自傲 你做的事情早就应该  在很多年前去做了
-
-我知道 我知道你一定会把他们推翻的 ！
-
-小坡边听着循环播放的歌曲，边看着这歌词也泪目了！ 歌词虽然朴素但句句扎心，算得上惊天地，泣鬼神了。 郭妈妈在天堂一定也在微笑地听着这首歌吧，她该是为她的儿子感到多么的骄傲和欣慰！
-
-战友们，如果你们的母亲都尚在，请好好的陪伴和守护她们， 让她们都健康地活到CCP结束的那一天，让她们亲眼看到我们所有爆料革命战友追求的那个拥有法治民主和自由的新中国的到来！
-
-【小坡】
+By 【秘翻組-金融法律組】
 
 0

@@ -1,14 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 請欣賞郭文貴先生 G-TV 蓋特九月時裝秀！
-`2020-09-30 04:13 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/392528/)
+## 班農戰斗室：389期 美國正處歷史最危險時期  閆博士論文拯救了世界【精華版粵語配音】
+`2020-09-30 10:13 GM42` [轉載自GNews](https://gnews.org/zh-hant/393302/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30034249/Miles_20200929_Fashion-figure1.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30035110/Miles_20200929_Fashion-figure2-revised.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30034313/Miles_20200929_Fashion-figure3.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30035124/Miles_20200929_Fashion-figure4.png)
-視頻音樂鏈接：[https://www.bensound.com/royalty-free-music/track/dubstep](https://www.bensound.com/royalty-free-music/track/dubstep)
+製作單位：戰友之家·粵語頻道
+素材制作：Warroom Pandemic
+視頻配音：
+哥阿
+文乔
+视频剪辑：食饱饱
+字幕校對：食饱饱
+音频剪辑：麻辣湯
 
-視頻創意&製作：【V%】翻譯&編輯：【Isaiah4031】
 
-戰友之家玫瑰園小隊出品
+
+概要：
+閆博士是位知名的科學家，她是目擊證人，她見證究竟發生了什麼，她作為當事人寫了這邊論文，我們一定不能讓中共再次打開潘多拉盒子，習這個人謊話連篇，很危險，我們國家現在正處於歷史上最危險的時刻，因為左派，華爾街之流，包括金融家們，對沖基金那幫人，跨國公司，這些人想要建立國家資本主義，矽谷還想在美國複製中國模式。
+這個病毒綜合好幾種病毒的成分，合成為一個病毒，在自然界中發生這種情況的可能性幾乎為零，因為病毒各個方面的基因突變是不同的。
+該刺突蛋白上有兩個切割位點，似乎暗示著刺突蛋白本身 已隨著時間而被修改 。
+當他們在世界任何一個實驗室，研究這種情況下的病毒時，他們很可能有十幾種非常相似的病毒都在經歷同樣的階段，現在有一個被釋放出來了，故意釋放出來的，在中國可能還有幾百個像這樣的調查研究正在進行著。
+在過去24小時內，在甘肅的蘭州爆發了布魯氏菌病，現在已經有幾千人被感染了，他們已經檢測了21000多人，布魯氏菌是我們用來研究生物戰的早起項目之一，這證明了中國科學的絕對不負責任，我認為我們應該讓我們的國安局去調查，因為這不是一個自然的事故。
+中共制定生物武器計劃是一個公開的秘密。
+閆博士就是證據。
 
 0
