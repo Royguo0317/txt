@@ -1,60 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Gnews熱點追蹤（第四期）〈中文字幕〉：中共改變時局的三個硬盤
-`2020-09-30 12:28 GM99` [轉載自GNews](https://gnews.org/zh-hant/393437/)
+## 十一特稿·总结中共 0：引子
+`2020-09-30 13:21 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/393540/)
 
-#### **戰友之家Gnews熱點追蹤工作組**
+作者：美东香草山农场教育组
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30131700/%E5%9B%BE%E7%89%8713.png)
+亲爱的读者，回首 2020 新年当你许下美好愿望之时，可曾想到，COVID- 19，一个你从未听说过的病毒，竟然在短短几月之内，横扫全世界，彻底改变 70 亿人的生活方式!
 
-Hello, this is your host Michael from Gnews Current Affairs.
+在病毒肆虐期间，你是否曾担心，在不远将来还有更多甚至更大的灾难?
 
-大家好，我是Gnews熱點追蹤的主持人麥克。
+这个担心如此强烈，以至于让你开始质疑，灾难到底来自何方?或者说，它们到底是许多人想当然认为的天灾，还是人为造成?
 
-On Sept 23, President Trump suddenly left the White House daily briefing for an emergency phone call. The next day, Trump’s lawyer, Rudy Giuliani was interviewed by Newsmax and said, ‘you will find out over the next 3 weeks, China has put so much money into Biden’s family’. We see some inextricable links between the two incidents out there. Meanwhile, Lude Media exposed that Jiang Zeming, Zeng Qinghong and Meng Jianzhu handed over three hard drives to some prominent figures in the US, in which the following information was included:
+如果你想到这一点，那么，“恭喜”你了!因为，这也是当前全世界人民共同面对的最迫切的问题，没有之一。如果不把它彻底搞清楚，或仓促作出结论，说明我们付出了惨痛代价却没有汲取应有的教训，更说明面对未来我们仍处于完全不设防的险境!
 
-9月23日，川普總統因緊急電話突然離開了白宮的每日新聞簡報會。第二天，川普的律師魯迪·朱利安尼接受Newsmax的採訪時說：“在接下來的三週內您會知道，中國早已向拜登的家族輸送了很多錢”。我們看到這兩件事之間密不可分的關係。同時，路德社曝光江澤民，曾慶紅和孟建柱已將三個硬盤交給美國某幾位知名人士，硬盤裏包括以下信息：
+如果说这一次大瘟疫给全世界带来什么启示，那就是，不管我们接受与否，人类已迈入“全球命运共同体”时代。它表现为，从今往后决定人类命运的大事件，并不一定来自传统意义的国际舞台中央，比如美国、传统发达国家或国际组织，而往往来自以前大家都不曾留意的盲区地带!
 
-Video clips of Hunter Biden’s sex scandals and child sexual abuse in China; Evidence of a 4.5 billion dollar secret deal between Hunter, Secretary Xi Jinping and Wang Qishan; Evidence of Hunter receiving 10 million prepaid dollars before closing the natural gas deal with Kazakhstan and Ukraine and another 1 million dollars as commission from the Chinese Communist Party; All mentioned are stored in the first hard drive.
+我们，一群无名的中国人，正来自这样的盲区地带。今天我们呈献这篇长文，就是邀请你一道来认识当今世界最强大也最为外人误解的组织—— 中国共产党。说起来它本是中国人的内部事务，然而如上所述，中国人的事情已经不再局限于中国。鉴于中国人口数量居世界第一，GDP 总量居世界第二，中国共产党70年来作为中国唯一的执政党，所支配的财富高达数十万亿美元，它的影响力之大，几乎在全世界任何一角落都能感受到。
 
-亨特·拜登（Hunter Biden）的性醜聞和對中國兒童實施性虐待的錄像；亨特，習近平書記和王岐山之間的一筆45億美元祕密交易的證據；亨特在與哈薩克斯坦和烏克蘭達成天然氣交易之前獲得的1000萬美元預付款的證據，並從中共獲得100萬美元佣金；以上所有提及的內容都存儲在第一個硬盤中。
+事实上，今天地球上的任何一个人，如果不知道何为中国共产党，或虽然知道但得到的却是错误认知，他们对这个世界的认识注定就不可能完整，也不可能理解正在发生的许多重大事件，包括眼下的大瘟疫，以及接下来可能出现的更大灾难。
 
-The 2nd hard drive contains information about where and how Xi Jinping and Wang Qishan hid their treasures overseas, particularly in the US, and their global grand strategy: keep enslaving 1.4 billion Chinese people under the totalitarian communist regime and manipulating the US elections. Their ambition is more than bribing politicians of the establishment in Washington DC but infiltrating every country on the planet to control the whole world.
+有鉴于此，我们决定利用这个小册子，尽可能回答下列重大问题：
+(1) 中共到底是一个什么样的组织?
+(2) 为什么说它是一个把人变成鬼的魔鬼组织?
+(3) 为什么它和我们从前一直“听说”的中共都不一样?
+(4) 世界各国精英及所掌控的媒体在中共的庞大宣传策略中扮演了什么角色？
 
-第二塊硬盤包含有關習近平和王岐山在海外，特別是在美國藏匿財富的地點和方式，以及他們的全球大戰略：繼續將14億中國人民奴役在極權共產主義政權下並操縱美國大選。他們的野心不僅僅是賄賂華盛頓的政客們，而是滲透到地球上的每個國家來控制全世界。
+(5) 为什么许多大名鼎鼎的国际精英置本国和世界人民的安全于不顾，甚至搭上自己的全部身家，也要为中共站台?他们真的认同中共的意识形态吗?或者说，他们到底害怕中共什么?有求于中共什么?
 
-To implement their grand strategy, CCP always dreams about possessing the most advanced biological weapon in the world. Evidence of CCP’s bio-weapon and military-civilian integration program is in the 3rd hard drive.COVID-19, the CCP virus is a crucial weapon created within such programs. No wonder Dr. Limeng Yan keeps telling the world that the virus is military lab-made.
+(6) 除了当年美国人在日本投下的两颗原子弹，有谁知道第三颗用于“实战” 的原子弹?它由谁、为什么原因而投放?(参见后文 2015 年天津大爆炸)
 
-爲執行其宏偉戰略，中共一直夢想擁有世界上最先進的生物武器。中共的生物武器和軍民融合計劃的證據在第三個硬盤中。中共病毒COVID-19即是誕生於此的關鍵性武器。難怪閆麗夢博士一直告訴世界這種病毒是軍事實驗室製造的。
+(7) 什么是蓝金黄(绿)?为什么说它是中国渗透国际社会、控制它在各国代理人的秘密武器?
 
-Mr. Lude loves joking about how his show “stands in the future, narrating back into history”. That is to say, what his show informs about the public would soon be revealed and verified. Let’s keep watching closely.
+(8) 什么是超限战?COVID-19 有没有经过人工改造?为什么说如果全世界人民不直面“中共问题”， COVID-19只是一系列灾难的开端?
 
-路德先生愛笑稱自己的節目是“站在未來說歷史”。這意味着他的節目所傳達的信息將被很快揭露和證實。讓我們繼續保持密切關注。
+(9) 谁是当今世界和平的最大敌人?普京的俄罗斯还是中共统治下的中国?
 
-That’s all for today’s news. Please go to gnews.org or download our app for more details. We are the Gnews Current Affairs team. Stay tuned, stay healthy. We’ll see you soon.
+需事先说明的是，一方面，在这篇文章里我们将毫不掩饰自己的观点，另一方面，我们的观点绝非基于个人好恶，而是基于充分的证据和严密的论证。更重要的是，我们既有在中共统治下长期生存的经历，也有从外部观察和反思中共问题的独立视角。因此，我们相信，读完这篇长文，您一定能从中获益。假如您从前对中共的了解来自中共本身或本国所谓主流媒体，这篇文章将完全颠覆您对中共的认知。我们保证，这个改变将有助您更接近真相，而不是相反!它将帮助您重新评估自己和家人、社区，乃至整个国家所处的安全形势。谢谢!
 
-這就是今天的全部新聞。我們是Gnews熱點追蹤新聞團隊。請訪問gnews.org或下載我們的app查看更多詳情。敬請期待下期節目，保持健康，我們很快會再見。
 
-**相關鏈接：**
 
-*[1. Global Himalaya: Rudy Giuliani on Newsmax with Chinese Subtitles
-喜站譯製: 魯迪·朱利安尼在Newsmax的採訪](https://twitter.com/GlobalHimalaya/status/1309431131880603649)*
+注:
 
-*[2. President Trump Suddenly Left the White House Daily Briefing for an Emergency Phone Call
-川普總統因緊急電話突然離開了白宮的每日新聞簡報會](https://www.youtube.com/watch?v=sWabU121ivU)*
+本文提到的魔鬼非指神学意义的魔鬼，而是满足以下所有条件的个人或人类组织:
 
-*[3. Clip of Lude Media Live Broadcast on Sep 26th: CCP’s Bio-Weapon and Military-Civilian Integration Program Is in the 3rd Hard Drive
-9月26日路德直播節選：第三個硬盤包括的生物武器發展和軍民融合項目內容](https://twitter.com/pangukaitiandi/status/1310047251754967040)*
+一、他们自以为是，不承认人类容易犯错的本性;
 
-*[4. Lude Media Live Broadcast on Sep 26th CCP’s Bio-Weapon and Military-Civilian Integration Program Is in the 3rd Hard Drive
-9月26日路德社解密第三個“核彈硬盤”——中共13579號文件生物武器計劃](https://gnews.org/zh-hans/384163)*
+二、每一次犯错之后不是承认和改正，而是用更大的错误来掩盖;
 
-*[5. Lude Media: Evidence of Hunter Biden’s Scandals Were Handed Over to the US
-路德驚天爆拜登之子黃色視頻、虐童視頻，45億美元協議被中共內部高層爆料給美國司法部](https://gnews.org/zh-hans/382094)*
+三、长期缺乏有效的制约机制，导致他们在错误的道路上越走越远，积重难返，形成路径依赖；
 
-*[6. Lude Media: How Xi Jinping Purges the Communist Party and Hides His Treasures Overseas
-路德社解析 “核彈硬盤”——習欲掠奪中共各大家族海外資產，江曾孟家族被逼與之魚死網破](https://gnews.org/zh-hans/383315)*
+五，善良人的宽恕被他们视为软弱和愚蠢，让他们更加有恃无恐。
 
-*[7. Bannon War Room Pandemic EP371: Miles Guo Reveals CCP’s Global Grand Strategy
-班農戰鬥室 EP371: 文貴先生首次曝光“13579”中共統治全球計劃!](https://gnews.org/zh-hans/336235)*
+正如您即将看到的，中共完美符合上述每一个条件，所以我们称它为魔鬼(组织)。
+
+（待续）
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/Mos_Himalaya)！[Tweets by Mos\_Himalaya](https://twitter.com/Mos_Himalaya?ref_src=twsrc%5Etfw)
 
 0
