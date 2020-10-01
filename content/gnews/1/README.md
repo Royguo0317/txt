@@ -1,23 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港要聞：十壹國慶 香港抗議活動再現
-`2020-10-01 10:26 pmzy-vog` [轉載自GNews](https://gnews.org/zh-hant/395361/)
+## 創造出知名角色瑪法達阿根廷漫畫大師-季諾辭世享壽八十八歲
+`2020-10-01 13:26 GM06` [轉載自GNews](https://gnews.org/zh-hant/395811/)
 
-作者：文章
+作者：GM40
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01101752/6ddf32f97b0d8d10ab721795333e2d52.jpg)
+阿根廷漫畫大師季諾（Quino）的出版商今天表示，本名拉瓦多的季諾已經辭世，享壽88歲。人氣漫畫角色瑪法達（Mafalda）就是季諾的創作。
 
-早前民陣發起十壹遊行遭警方反對，香港市民今日自發到銅鑼灣遊行，聲援在深圳被扣押的12名港人，並在壹些商場發起「和妳shop」的抗議活動。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01131425/%E9%A9%AC4.jpg)
 
-據報導，警方今日在全港各區派出6000警力應對示威衝突，水炮車亦於中聯辦、銅鑼灣等地戒備。今天早上，警方開始在交通要道截查車輛，在銅鑼灣街頭截查市民。
+法新社報導，布宜諾斯艾利斯出版社Ediciones de la Flor的負責人狄文斯基（Daniel Divinsky）在推特上寫道：「季諾已經逝世。這個國家和世界上所有的好人都將為他哀悼。」
+筆名季諾的拉瓦多（Joaquín Salvador Lavado）在1964年創造出瑪法達這個角色。這部連環漫畫先是風行於拉丁美洲、歐洲與亞洲許多地區的報刊，接著出書。
 
-十壹抗議從早上已經開始。社民連梁國雄、曾健成和社運人士古思堯等人，遊行至舉行國慶酒會的灣仔會展中心外，手持「沒有國慶、只有國殤」、「追究六四鎮壓 結束壹黨專政」等標語，抗議並要求被拘捕於深圳的12名港人。
+季諾1932年生於阿根廷曼多薩（Mendoza），為西班牙移民的後代。他在曼多薩市的美術學院就讀後，於18歲推出自己第一部漫畫。
 
-截至下午6點，香港警方稱已拘捕69名市民，主要涉及參與未經批準集結，有網絡媒體的記者稱收到限聚令吿票。
+      季諾當初是為了電器行銷活動，造出瑪法達這名討厭共產主義和喝湯、熱愛披頭四（The Beatles）的6歲小女孩。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01131811/%E9%A9%AC5.jpg)
+在以瑪法達為主角的漫畫中，季諾透過一群孩子的觀點來反映成人的世界。已逝女作家三毛（1943-1991年）最早將瑪法達翻譯成中文版「娃娃看天下」介紹給台灣讀者。
 
+      季諾在1976年阿根廷軍事政變後逃至米蘭，接著於1990年成為西班牙公民，生前曾寓居於馬德里、巴黎、米蘭和布宜諾斯艾利斯等地。
 
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01101949/404619cf9b355540e4dc7d167fa07f22.jpg)
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01102106/1601538530-1.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01102243/1601541257.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01102318/1601541267.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01102350/1601545378.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01102429/1601545393.jpg)
 0

@@ -1,25 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 紐西蘭團隊戰友示威紀實 一一一101抗議邪共活動(上)
-`2020-10-01 08:52 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/395009/)
+## 譚詠詩醫生究竟為誰服務？
+`2020-10-01 10:44 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/395413/)
 
-作者:老黃牛
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01014522/PHOTO-2020-10-01-10-37-09.jpg)
-昨天晚上,紐西蘭農場的Discord群召開101抗議邪共國殤日,全球聯動大遊行的佈署工作。 紐西蘭農場之所以能成為組織力與行動力最快速最有力,人人羨慕的農場之一,它的秘訣就是老班長的心靈、心態與智慧是超人的。 老黃牛與老班長認識時間不長,但在多次交往中深刻地感受到他的認知與為人。
+喜馬拉雅聯盟加拿大農場 苔青
 
-有這樣思維通靈,心中有大愛,雷厲風行的負責人,紐西蘭農場未來的各方面表現,不但會不斷地刷新人們的認知,還將會為新中國聯邦的發展培養大批領導級的優秀人才。 話題有點扯遠了,言歸正傳…… 身在世界各地的戰友們,兄弟姐妹們,大家都透過螢幕看到了感受到了紐西蘭農場的戰友們個個整裝出發,摩拳擦掌,分別在紐西蘭南島和北島進行抗議活動。 人身不在紐西蘭的戰友,有的在提供技術支援,做編輯、寫作、翻譯的工作,有的在網上發表感言,強烈支援前線戰友,為他們打氣加油請欣賞其中兩篇:
+校對 不動之光
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01103903/%E5%9B%BE%E7%89%871-1.png)*圖片來源：YouTube*
+從2020年1月25日發現第一例感染中共病毒病例到2020年9月30日，加拿大共檢出158758例陽性患者,死者總數達9297人（1）。第二波疫情已經來臨。中共病毒大流行正在深刻影響加拿大的經濟和生活方式。
 
-一、 能上前線示威抗議的戰友, 我們無法手牽手肩並肩, 但是我們的心在一起, 前方在奮戰,後方喊聲滔滔。 一早就看到了你們的身影, 展示英雄膽氣豪, 身穿戰裝,頭戴戰帽, 抗議CCP,不讓血旗飄⋯⋯ 我們遠隔萬里為你們加油, 我們近隔著螢幕為你們驕傲! 你們的威風衝擊CCP的王朝, 你們的文明將展示新的風貌, 堅定的語氣,堅毅的表情, 你們是紐西蘭農場的榮耀!
+作為加拿大首席衛生官，譚詠詩醫生對這種現狀負有不可推卸的責任。讓我們看看她在COVID-19大流行期間的所作所為：
 
-二、 紐西蘭南島抗議第一波聲浪, 打響了101全球反共第一槍。 面對面的溝通,眼對眼的較量, 典禮製血旗在民主國家上空飄揚。 勇敢的勇士,正義的戰將, 你們不畏懼CCP的末日瘋狂。
+譚醫生於2019年12月下旬已獲悉在中國武漢發生了新型冠狀病毒人傳人的病例（2）。 1月23日，武漢因嚴重的肺炎和病毒人傳人而被封城。但是，1月26日，譚醫生仍然說：“沒有明確的證據表明這種病毒容易在人與人之間傳播。對加拿大人來說，這種風險仍然很低。”（3）
 
-為了全人類衝鋒陷陣在戰場, 高大的身影成為我內心的珍藏。 以上是在描述戰友們親臨紐西蘭南方理工學院的現場,勇敢地向前向學生們宣揚共匪的血旗不該在民主國家的上空飄蕩,邪惡集權的思想要阻擋在民主國家之外。
+在控制病毒傳播最關鍵的最初幾個月中，譚醫生作為世衛組織突發衛生事件獨立監督和諮詢委員會的成員，她應該知道武漢發生了什麼，但是她與中共控制的世衛組織一起淡化這種病毒的威脅；在她的建議下，加拿大對來自病毒肆虐的國家的旅行者保持邊境開放；稱擔心病毒危害的人為“種族主義者”；告訴加拿大人不要戴口罩。作為傳染病專家的這些建議，嚴重誤導了加拿大人，無疑加劇了COVID-19病毒的傳播。
 
-小粉紅上前拍攝女戰友,一位男戰友打著藍旗挺身上前,對方嘴上喊著這是公共地盤,心虛地無力感令他釘在原地。 其實,偽類騙子小粉紅,為何這麼不堪一擊? 因為正義在戰友們的心中,唯真不破是我們得人心的最好武器。 誰說紐西蘭地理位置太偏? 數數CCP的血旗沒少一面。
+作為加拿大的首席衛生官員，譚醫生在加拿大未能採取及時有效措施應對病毒大流行上負有重大責任：
 
-這是盜國賊的大錢藏匿處, 地越偏僻國越民主越安全。 有了文貴領導的爆料革命, 盜國賊妄想安全恐怕太難。 先破防火牆問問十四億人: 殺同胞偷資產,你是否心甘? 誰說紐西蘭地理位置太偏? 人民血汗錢流得源源不斷, 國內的同胞們,翻牆看一看: 南端的戰友為我們在奮戰!
+1. 加拿大的大流行預警系統：COVID-19全球爆發前數月，聯邦政府的大流行早期預警系統卻被關閉，有關工作人員被噤聲，令加拿大喪失了提早防範新冠疫情的時機。早在三年前，譚醫生在無任何籍口的情況下撤銷了專門負責監視大流行病爆發的“首席健康監察官”這一事關全加拿大人生命的重要職位。以至於在這次病毒大流行期間，加拿大政府的決策完全基於她的錯誤建議和來自中共控制的世界衛生組織的信息（2,4）。
 
-他們沒有一兵一卒一炮一彈, 只有唯真不破,正義在心間, 全球戰友摩拳擦掌準備行動, 抗議浪潮風起雲湧橫掃人間…… 南島因弗卡吉爾城市的一戰剛剛結束,北島奧克蘭市中共使領館前的示威抗議活動,又鋪天蓋地地展開了。 正所謂: 清早南島阻升旗, 上午北島反共急。 南呼北應交響曲, 示威心聲傳宇際⋯⋯。
+2. 個人防護用品：由於早期預警失敗和準備不足，導致在大流行初期加拿大的個人防護用品嚴重短缺，大大增加了人們尤其是一線衛生工作者感染病毒的機率（5）。
+
+3. 羥氯喹：羥氯喹被安全地用於抗瘧疾和多種疾病，有長達70年的歷史。可以供各個年齡段的成人和兒童以及孕婦安全服用。羥氯喹對預防和治療COVID-19有顯著療效（6）。但是，譚醫生附和世界衛生組織，誇大羥氯喹的副作用，阻擾羥氯喹在加拿大的臨床使用（7）。目前，羥氯喹已被亞洲和歐洲廣泛用於COVID-19的預防和治療，但在加拿大羥氯喹卻沒有被獲准用來拯救人的生命。
+
+4. 疫苗：在明知中共掩蓋了病毒大流行真相的前提下，加拿大依然與跟中共軍方有密切聯繫的公司（CanSino Biologics）合作開發疫苗（8, 9）。作為醫生和首席衛生官，譚詠詩應該知道，中共在其70年的統治歷史中從未開發出任何安全有效的疫苗。最近，加中疫苗合作夥伴關係破裂，加拿大為此損失了數百萬加元，其擁有的生產疫苗的關鍵技術也被中共所獲取（10）。
+
+5. 快速檢測方法：目前，加拿大部分地區的人們仍然需要排隊等候數小時才得以檢測。儘管幾個月前美國FDA批准了15分鐘的檢測方法，但加拿大衛生部仍未批准任何快速檢測方法（11）。
+
+除此之外，譚醫生還在努力推動芬太尼等毒品的合法化。中共國是芬太尼和芬太尼相關毒品的主要來源。目前美國已經採取多種措施設法阻止芬太尼輸入美國。而加拿大卻反其道而行之（12，13）。
+
+譚詠詩醫生的種種行為，讓加拿大人不禁要問：譚詠詩醫生究竟代表誰的利益？你究竟為誰服務？
+
+參考鏈接:
+
+1.https://www.canada.ca/en/public-health/services/diseases/2019-novel-coronavirus-infection.html.
+
+2.Canada’s pandemic alert system will be reviewed in wake of concerns: health minister. https://www.ctvnews.ca/politics/canada-s-pandemic-alert-system-will-be-reviewed-in-wake-of -concerns-health-minister-1.5096298.
+
+3.https://en.wikipedia.org/wiki/Theresa\_Tam.
+
+4.Trudeau pushes back as intelligence expert slams中共病毒early warning failure
+
+[https://www.ctvnews.ca/politics/canada-s-pandemic-alert-system-will-be-reviewed-in-wake-of-concerns-health-minister-1.5096298.](https://www.ctvnews.ca/politics/canada-s-pandemic-alert-system-will-be-reviewed-in-wake-of-concerns-health-minister-1.5096298.)
+
+5.COVID-19 shortages: Canada looking for ways to disinfect and reuse masks. https://nationalpost.com/news/canada/covid-19-canada-masks-public-health.
+
+6.HYDROXYCHLOROQUINE AND THE BURDEN OF PROOF: An Urgent Call to Depoliticize Medicine in the中共病毒Pandemic. HCQWhitePaper.com.
+
+7.Coronavirus: Health Canada issues warning on hydroxychloroquine, chloroquine use. https://globalnews.ca/news/6869868/coronavirus-hydroxychloroquine-chloroquine-warning/.
+
+8.January 19, 2019, Lude Talk:The first whistleblow of CCP virus. https://youtu.be/GxyIpk\_Cd2M.
+
+9.Dr. LiMeng Yan during the 10 July 2020 interview with Fox News spoke truth of the virus to the world. https://youtu.be/n2E0raFVsrg.
+
+10.Canada-bound vaccine blocked by China’s customs was created with Canadian tech. https://ipolitics.ca/2020/08/17/canada-bound-vaccine-blocked-by-chinas-customs-was-created-with- canadian-tech/.
+
+11.Canada not yet ready to deploy rapid COVID testing devices, says health minister. https://www.cbc.ca/news/politics/canada-covid-19-testing-devices-1.5726686.
+
+12.Talks needed on decriminalizing hard drugs to address opioid crisis, Tam says. https://www.ctvnews.ca/health/talks-needed-on-decriminalizing-hard-drugs-to-address-opioid-crisis-tam- says-1.5075176.
+
+13.Miles KWOK: The world fentanyl crisis caused by CCP. https://youtu.be/cpUXUlKyPsc.
 
 0

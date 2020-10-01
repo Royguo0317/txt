@@ -1,29 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加國總理再次四億大撒幣欲“援助”害人國際機構
-`2020-10-01 09:31 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/395118/)
+## 快訊! 兩黨一致同意克裡斯·華萊士(Chris Wallace)再也不應主持總統辯論
+`2020-10-01 11:29 GM77` [轉載自GNews](https://gnews.org/zh-hant/395558/)
 
-喜馬拉雅聯盟加拿大農場 文來 阿黎
+編撰:WKN
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01110401/%E6%88%AA%E5%B1%8F2020-10-01-%E4%B8%8B%E5%8D%8811.02.16-1.png)
+根據美國國家郵報(National  Post)9月30號報導,週二作為特朗普總統與小約瑟夫· R·拜登(Joseph R. Biden Jr.) 首次總統辯論的主持人**克裡斯·華萊士(Chris Wallace)**被「美國總統大選委員會」永久開除出總統辯論主持人候選名單。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01110335/%E6%88%AA%E5%B1%8F2020-10-01-%E4%B8%8B%E5%8D%8810.57.34-1.png)
+國家郵報報導指出,共和黨人和民主黨人都同意:克裡斯·華萊士(Chris Wallace)再也不應主持辯論。 而且美國總統大選委員會星期三發表聲明表示:「這就是屠殺,它將改變接下來的兩次總統大選的形式。 “
 
-校對 坐看雲起時 風雲小哥
+新聞來源:
 
-據The Post millenial 報導: 加拿大總理特魯多9月29日宣布，將再次捐助4億加元用於全球人道主義援助。特魯多說，這筆資金將用於“與COVID-19作戰的可信賴的合作夥伴”，並說：“加拿大認為，大流行提供了全球的各個領域的強有力協調一致的合作機會” 。特魯多表示，未來幾年還會有更多支出。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01092145/trudeau_41.jpg)加拿大總理賈斯汀·特魯多（Justin Trudeau） 圖片來源：straight.com
-這不是加國總理首次與包括聯合國和世界衛生組織在內的全球多邊組織結盟。 4月，特魯多政府宣布將斥資1.595億加元在國際上與冠狀病毒作鬥爭。特魯多說，這筆資金符合政府在國際上爭取女權主義的立場，稱“特別是婦女和兒童”將受到該病毒的最持久的負面影響。
-
-今年5月，特魯多談到了加拿大在聯合國的未來，談到了加拿大的全球聲音以及與第二次世界大戰後成立的那些全球機構合作，“加拿大認為，像世界衛生組織這樣的多邊機構非常重要，特別是在像這樣的全球衛生危機之時。沒有一個全球機構是完美的，我們需要為多邊主義開展工作並加以改進，這就是在過去的幾周和幾個月中加拿大如此活躍的原因。 ”
-
-**評：**
-
-自中共病毒疫情爆發，世界衛生組織WHO一直在幫中共掩蓋病毒真相，讓中共病毒變成世界級大瘟疫，至今造成全球3400萬人感染和101萬人死亡。美國已部分退出聯合國，一年內完全退出世衛組織。聯合國已成為中共的代言人；世衛組織在這次中共病毒疫情中與中共沆瀣一氣，撒謊誤導全世界；中共製造病毒並把病毒傳到全世界，全世界經濟幾乎倒退到二戰時期。加拿大政府“大膽地”與中共合作研發中共病毒疫苗，資金，人力大量耗費，終不耐中共的連篇謊言，項目中途報廢。在本屆自由黨政府的全力開倒車下，加拿大已成為G7（七大工業國組織）中失業率最糟的國家，八月份的失業率高居10.2％，民不聊生。在全世界都在譴責WHO的醜惡行為之際，反而為它站台，不惜用納稅人的錢為它買單。可見加拿大政府已經選擇與邪惡同流合污。
-
-特魯多上任以來政治醜聞不斷。媒體也特別報導過他的共產主義情結和他與中共勾兌的例證。對外特魯多捐錢和國際組織中的惡勢力結盟，借疫情讓世界政治格局重新洗牌，從而實現他個人的政治野心。對內在沒有任何有效的刺激經濟的措施的情況下，他不顧政府債台高築，採取了大撒錢的辦法來安撫民心，從而維護他的領導地位。如果特魯多繼續這樣走下去，他會把加拿大人帶入疫情和債務雙重深淵。真希望加拿大人早日醒來，一起抵抗這個無能但邪惡的特魯多和他掌管的政府。
-
-
-
-參考鏈接：
-
-[GOLDSTEIN: We’re number one! Highest unemployment rate in the G7](https://torontosun.com/opinion/columnists/goldstein-were-number-one-highest-unemployment-rate-in-the-g7?utm_term=Autofeed&amp;utm_medium=Social&amp;utm_source=Twitter#Echobox=1601501769)
+[https://nationalpost.com/entertainment/television/republicans-and-democrats-agree-chris-wallace-should-never-moderate-a-debate-again](https://nationalpost.com/entertainment/television/republicans-and-democrats-agree-chris-wallace-should-never-moderate-a-debate-again)
 
 0

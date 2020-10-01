@@ -1,26 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 布賴特巴特9/26/2020： 報告稱中國(中共國)已經拆除了新疆的16000座清真寺
-`2020-10-01 09:22 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/395096/)
+## 【世界多語言圖文】2020/09/24～225 CCP病毒每日疫情直播簡報
+`2020-10-01 11:06 GM62` [轉載自GNews](https://gnews.org/zh-hant/394019/)
 
-香草山綜合報導
+戰友之家圖文摘要及小語種組
+
+[English\_0924～0925\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231124/English_0924%EF%BD%9E0925_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231124/English_0924%EF%BD%9E0925_CCP_Virus_Updates.pdf)
+
+[French\_0924～0925\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231259/French_0924%EF%BD%9E0925_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231259/French_0924%EF%BD%9E0925_CCP_Virus_Updates.pdf)
+
+[German\_0924～0925\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231309/German_0924%EF%BD%9E0925_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231309/German_0924%EF%BD%9E0925_CCP_Virus_Updates.pdf)
+
+[Japanese\_0924～0925\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231304/Japanese_0924%EF%BD%9E0925_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231304/Japanese_0924%EF%BD%9E0925_CCP_Virus_Updates.pdf)
+
+[Korean\_0924～0925\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01110634/Korean_0924%EF%BD%9E0925_CCP_Virus_Updates_243_244.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01110634/Korean_0924%EF%BD%9E0925_CCP_Virus_Updates_243_244.pdf)
+
+[Spanish\_0924～0925\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231253/Spanish_0924%EF%BD%9E0925_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231253/Spanish_0924%EF%BD%9E0925_CCP_Virus_Updates-1.pdf)
 
 
-
-
-
-中文稿：
- 1.9月24日，澳大利亞一家智庫發表一份報告，據稱中共在新疆拆毀了總共24000多座清真寺中的約16000萬座，其中約8500座已被夷為平地徹底拆除。此外，新疆各地30%的重點伊斯蘭聖地諸如神社、墓地和朝聖路線，包括許多受中國(中共國)法律保護的地方也已被拆除，另外的28%以某種方式遭到破壞或改變，大部分拆毀自2017年。中共此舉是進一步推動消滅對無神論共產黨構成威脅的維族穆斯林文化運動。
- 2.2017年，中共對新疆維族進行了鎮壓，開始建拘留營，以拘留那些說突厥語並通過信奉穆斯林信仰這種“極端行為” 來反抗中共推動的漢族文化同化的維吾爾人。
-
-評論：
-中共是新納粹主義。穆斯林信仰與其他信仰一樣，在世界各地受到尊重。世界正醒來，看清中共的真面目， 維族人的人權將被世界上所有的民主國家保護。
-
-
-
-更多資訊，歡迎訂閱[美東香草山農場官方推特賬號](https://twitter.com/Mos_Himalaya)！
-
-[Tweets by Mos\_Himalaya](https://twitter.com/Mos_Himalaya?ref_src=twsrc%5Etfw)
 
 0
