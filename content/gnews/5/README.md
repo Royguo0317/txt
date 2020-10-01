@@ -1,36 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新中國聯邦十一全球大遊行舉的滅共橫幅和標語
-`2020-10-01 12:27 vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hant/395777/)
+## 爆革星評： 溫哥華滅共大遊行，加農老江現場支援
+`2020-10-01 14:31 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/395884/)
 
-【持續更新】美東紐約時間2020年10月1日，新中國聯邦電視台一直播美東紐約遊行現場，遊行隊伍排成兩列，隊形完整，服裝整齊統一，旗幟標語清晰，戰友們精神抖擻，喊著“ *CCP Lied Americans Died* !”口號，街道旁邊有警察保護，據報導參加遊行的戰友約400人。
+喜馬拉雅聯盟加拿大農場文星（一號&大衛阿波羅）
 
-新中國聯邦創始人郭文貴先生在紐約遊行現場與戰友們親密擁抱，盡顯新中國聯邦戰友情。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01120846/image-4.png)
-英雄戰友們舉出了各種標語橫幅，大橫幅有：
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01115105/1-2.jpg) Chinese Communist Party, the World Enemy!
-中國共產黨是全世界的公敵！![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01115501/1-3.jpg) WHY IS A FACMASK REQUIRED? CCP MADE IT!
-你為什麼戴上口罩？是中共所為！![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01115756/1-5.jpeg) FREEDOM/DEMOCRACY/RULE OF LAW
-建立民主，自由，法治的社會![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01115809/1-6.jpg)NEW FEDERAL STATE OF CHINA
-新中國聯邦![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01115835/1-7.jpg)CCP DOESN’T REPRESENT THE CHINESE
-中共不能代表中國人民![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01115952/1-8.jpg)THE CHINESE IS CCP’S BIGGEST VICTIM
-中國人民是中共的最大受害者![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01120034/1-9.jpg)LOST MONEY, LOST JOB! TAKE DOWN THE CCP!
-沒了鈔票，丟了工作！一起滅共吧！
-各種滅共小標語
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01120123/1-11.jpg)CCP Lied Americans Died, We Need Truth World Needs Truth and so on.
-新中國聯邦十一全球大遊行，全球各地戰友集結隊伍，傳播CCP病毒真相，呼喚正義，消滅CCP！
-新中國聯邦電視台（籌）連線全球，新西蘭、韓國、日本、意大利、台灣、紐約、蒙特利爾、溫哥華、舊金山、洛杉磯加入同播，超長直播26小時，為戰友們帶來最全面、最震撼的現場直擊！
-直播平台、觀看地址：
- GTV：新中國聯邦電視台一
-https://gtv.org/?sessionid=5f751ad90cd82c6bb6a50589
- GNews：
- https://live.gnews.org/channel.html
- YouTube：戰友之家直播
-https://youtu.be/zZwAe\_RpOxY
- Twitter：戰友之家@VOG2020
- https://twitter.com/VOG2020/status/1311456357652996096?s=20
+校對:HUH
 
-內新聞：背靠背
+![]()![](https://cdn.discordapp.com/attachments/759533853840506900/761286408975155230/image1.jpg)
+
+10月1日不到9點，大溫哥華地區各城市120多位戰友就聚集在中領館東側花園，大家在新中國聯邦迎風飄揚的七芒星國旗下整齊集結，精神飽滿，本地記者也熱情拍照、錄像。大家按計劃分10組列隊，然後四人一排，繞花園一周後走向中領館門前正式示威。
+
+溫哥華中領館現在已經臭名昭著，可能得到了戰友遊行的消息，提前加上了一道黑色的大鐵門，大鐵門像個鬼一樣守候著中領館，可見中共這些人已經恐懼到了什麼程度。
+
+提早到達中領館的北京人在北美等戰友已經擺好音響設備，伴隨著激昂向上的“Take down the CCP” 等歌曲，滅共示威大遊行活動轟轟烈烈地進行著。
+
+溫哥華的文莘戰友巾幗不讓鬚眉，一直領頭喊著洪亮的口號，她在唱詩班的演唱功底帶出的口號聲極具感染力，聽了激動人心。老江則以流利的英語面對中領館歷數其罪，中共這70年的罪惡罄竹難書，一天哪能說得完啊！
+
+和往常一樣，戰友們沿著緊鄰中領館門前的主馬路一字排開，為了增加示威遊行現場的影響力，這次馬路對面的人行道也站滿了揮旗呼喊的戰友們，兩邊呼應，很是壯觀。
+
+10幾個新中國聯邦國旗和加拿大國旗迎風招展，長長的標語上寫著：“消滅共產黨是人類正義的需要”，“CCP LIES，CANADIAN DIE”等莊嚴大字，讓川流不息的過路行人和車輛嘆為觀止，鳴笛支持。
+
+能夠參加溫哥華滅共示威大遊行，是海外溫哥華戰友的福氣，牆內戰友因為中共的高壓和威脅無法參加。通過遊行會加以傳播中共病毒真相，讓加拿大社會了解中共的邪惡本質和釋放病毒的惡毒用心，這無疑會加速中共的滅亡。
+
+在中領館的示威遊行還在持續進行中，下午將移師溫哥華市中心的溫哥華美術館廣場進行。這是溫哥華戰友在進行連續多日的滅賊黃河邊的系列活動中，又舉行的具有重要意義的示威遊行活動。
 
 0

@@ -1,23 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/09/24～225 CCP病毒每日疫情直播簡報
-`2020-10-01 11:06 GM62` [轉載自GNews](https://gnews.org/zh-hant/394019/)
+## 【10.1国殇日 】港警全日最少拘捕 86 人　入夜再有2區議員銅鑼灣被捕
+`2020-10-01 12:30 shangshang` [轉載自GNews](https://gnews.org/zh-hant/395711/)
 
-戰友之家圖文摘要及小語種組
+作者：vog尚
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01114739/82EB7379-B315-4B4D-9B0A-C6AE3C2D1810.png)
+新聞來源：立場新聞
 
-[English\_0924～0925\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231124/English_0924%EF%BD%9E0925_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231124/English_0924%EF%BD%9E0925_CCP_Virus_Updates.pdf)
+10月1日國殤日，民陣申請遊行被拒後，仍有港人在多區發起示威抗議活動。
 
-[French\_0924～0925\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231259/French_0924%EF%BD%9E0925_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231259/French_0924%EF%BD%9E0925_CCP_Virus_Updates.pdf)
+港警晚上在 FB 公布，10月1日截至晚上 10 時，在全港各區共拘捕 86 人，其中 74 人涉嫌在銅鑼灣區非法集結。入夜後，大批警員繼續在銅鑼灣、旺角、荃灣及屯門等多區戒備；晚上 8 時許，警方於銅鑼灣東角 Laforet 商場外截查十多人，指現場人士涉非法集結，其後至少 5 人被捕，現場消息指包括沙田民主派區議員陳運通、黎梓恩，以及一位白髮婆婆。
 
-[German\_0924～0925\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231309/German_0924%EF%BD%9E0925_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231309/German_0924%EF%BD%9E0925_CCP_Virus_Updates.pdf)
+另外，有網民發起傍晚「月夕行動」，每隔一段時間公佈「集合點」。晚上約 7 時，在「集合點」荃灣路德圍，有多名記者及市民被警方截查，最少 2 人被捕，另有一名網媒記者被警員指「細個」帶走；其後在另一「集合點」屯門友愛邨，《立場》記者及一名義務急救員同遭截查，記者其後獲放行，急救員被查逾 20 分鐘後被捕。
 
-[Japanese\_0924～0925\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231304/Japanese_0924%EF%BD%9E0925_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231304/Japanese_0924%EF%BD%9E0925_CCP_Virus_Updates.pdf)
-
-[Korean\_0924～0925\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01110634/Korean_0924%EF%BD%9E0925_CCP_Virus_Updates_243_244.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01110634/Korean_0924%EF%BD%9E0925_CCP_Virus_Updates_243_244.pdf)
-
-[Spanish\_0924～0925\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231253/Spanish_0924%EF%BD%9E0925_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231253/Spanish_0924%EF%BD%9E0925_CCP_Virus_Updates-1.pdf)
-
-
+原文鏈接：[https://www.thestandnews.com/politics/慶-10-1-警入夜繼續大規模截查-銅鑼灣東角-5-人涉非法集結被捕-荃灣-屯門最少拘-3-人/](https://www.thestandnews.com/politics/慶-10-1-警入夜繼續大規模截查-銅鑼灣東角-5-人涉非法集結被捕-荃灣-屯門最少拘-3-人/)
 
 0
