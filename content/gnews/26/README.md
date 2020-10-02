@@ -1,27 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 月圓人缺千萬失獨家庭的節日煎熬
-`2020-10-02 01:18 Ronald` [轉載自GNews](https://gnews.org/zh-hant/396677/)
+## 黑夜已經到來，川普總統不能倖免，每個人都無法倖免
+`2020-10-02 02:02 NewFOC` [轉載自GNews](https://gnews.org/zh-hant/396914/)
 
-內新聞評論/翻上牆頭的豬      校對:天藍色獨角色
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02015114/%E6%8D%95%E8%8E%B7_%E5%89%AF%E6%9C%AC.png)
+作者：Maarago
 
-今天是中國的傳統節日—中秋節。這是中華民族僅次於春節的合家團聚節日。遷居海外的華人，無論已經是多少代，仍十分在意這個舉家歡聚的節日。
+據川普總統Donald J. [\[email protected\]](/cdn-cgi/l/email-protection)於[2020年10月2日12：54](https://twitter.com/realDonaldTrump/status/1311892190680014849)發佈的推文：
 
-然而在中共統治下，今天的中國有著近千萬家庭此生再難享天倫歡愉。多少步入老年的夫妻正在承受著失子之痛，老無所依，在無盡的思念中絕望地孤獨終老，每一個節日都是他（她）們悲痛餘生中的一次煎熬。
+Tonight, [@FLOTUS](https://twitter.com/FLOTUS)and I tested positive for COVID-19. We will begin our quarantine and recovery process immediately. We will get through this TOGETHER!
 
-中共按照需殺人！制定有悖人性，滅絕人倫的計劃生育政策。用謊言欺騙中國人只生一個好政府來養老。用國家機器看守中國女人的子宮。工廠每月查月經帶，村婦三月查一次節育環，抓到超懷的就人流引產，抓到超生的就開除工作，牽牛拆房，生育罰款、超生沒收來的財產從村到鄉到縣按比例分成。中共用盡流氓土匪黑社會的手段來剝奪中國人的生育權。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02004245/Screenshot_2020-10-02-06-32-50-286_Discord.png)
-到2003年，上海市還在對未婚先育的孩子進行強制收取近兩萬元的罰款，哪怕之後領了獨生子女證也一樣照罰。
+> Tonight, [@FLOTUS](https://twitter.com/FLOTUS?ref_src=twsrc%5Etfw) and I tested positive for COVID-19. We will begin our quarantine and recovery process immediately. We will get through this TOGETHER!
+> — Donald J. Trump (@realDonaldTrump) [October 2, 2020](https://twitter.com/realDonaldTrump/status/1311892190680014849?ref_src=twsrc%5Etfw)
 
-在中共的淫威之下絕大部分中國屈服了。根據中國社科院人口與勞動經濟研究所人口預測專家王廣州運用人口抽查數據和計算機仿真模型估計，至2013年中共放開單獨二孩政策，中共國已經有超過1.5億的獨生子女。 3億多中國人只有一個孩子。
+這是一場生化戰爭，美國和全人類都在付出代價，人類可不可以避免這場在三年就已經發出預警的生化戰爭？
 
-當第一批獨生父母步入古稀時，中國有近千萬個家庭失去了唯一的孩子。此時中共告訴這些獨生父母：推遲退休好自己來養老。對那些不幸失去唯一孩子已步入老年的父母，中共沒有任何實質性的關懷政策，任由他們自生自滅！
+視頻來源——
 
-中共統治下，每一個中國人都是不幸的。人治的災難於每個人身上只有時間的先後，沒有倖免的可能性。
+> 七哥三年前的神预测：
+> 
+> 黑夜即将到来！一定要做好准备！
+> 来自中共盗国贼的黑夜即将到来，
+> 将弥漫着世界，西方的文明世界。
+> 我们每个人都将面临，
+> 大家要做好准备！
+> 
+> 🙏🙏🙏👍👍👍 [pic.twitter.com/p7mHi3GbRh](https://t.co/p7mHi3GbRh)
+> — 木兰传奇(文奇） (@Mulan2020) [March 19, 2020](https://twitter.com/Mulan2020/status/1240590913526587392?ref_src=twsrc%5Etfw)
 
-中共紅色統治家族用建築藝術項目繞地球留種。中國人卻要忍受一棵獨苗稍有閃失就斷子絕孫的淒慘！
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02004228/Screenshot_2020-10-02-06-32-31-446_Discord.png)
-新聞來源： [https://zhuanlan.zhihu.com/p/231717985](https://zhuanlan.zhihu.com/p/231717985)
+“我想在這裡告訴我們所有的美國朋友，包括全世界、歐洲和日本的愛好和平的人，一定要相信我說的話，黑夜即將到來，一定要做好準備，來自中共盜國賊的黑夜即將到來，將彌漫著世界、西方的文明世界，我們每個人都將面臨黑夜已經來臨，大家要做好準備。“
+
+黑夜已經來臨，在這場滅共戰爭中任何的妥協、任何的綏靖，都會讓每一個身處這場滅共戰爭中的人類面臨危險，留給全人類的時間不多了！
+
+在這場中共針對全人類發起的生化戰爭已經無人能免，願上帝保佑川普總統和家人，天佑美國，天佑人類，驅除中共，匡扶正義！
+
+（文章內容僅代表作者個人觀點）
 
 0

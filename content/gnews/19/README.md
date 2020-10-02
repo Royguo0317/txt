@@ -1,40 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 黑夜已經到來，川普總統不能倖免，每個人都無法倖免
-`2020-10-02 02:02 NewFOC` [轉載自GNews](https://gnews.org/zh-hant/396914/)
+## 總統醫師就川普總統和第一夫人感染CCP病毒發佈聲明
+`2020-10-02 02:32 GM31` [轉載自GNews](https://gnews.org/zh-hant/397001/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02015114/%E6%8D%95%E8%8E%B7_%E5%89%AF%E6%9C%AC.png)
-作者：Maarago
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02021907/%E5%9B%BE%E7%89%87.png)
+PHYSICIAN TO THE PRESIDENT
 
-據川普總統Donald J. [\[email protected\]](/cdn-cgi/l/email-protection)於[2020年10月2日12：54](https://twitter.com/realDonaldTrump/status/1311892190680014849)發佈的推文：
+THE WHITE HOUSE
 
-Tonight, [@FLOTUS](https://twitter.com/FLOTUS)and I tested positive for COVID-19. We will begin our quarantine and recovery process immediately. We will get through this TOGETHER!
+October 01 , 2020
 
-> Tonight, [@FLOTUS](https://twitter.com/FLOTUS?ref_src=twsrc%5Etfw) and I tested positive for COVID-19. We will begin our quarantine and recovery process immediately. We will get through this TOGETHER!
-> — Donald J. Trump (@realDonaldTrump) [October 2, 2020](https://twitter.com/realDonaldTrump/status/1311892190680014849?ref_src=twsrc%5Etfw)
+總統醫生
 
-這是一場生化戰爭，美國和全人類都在付出代價，人類可不可以避免這場在三年就已經發出預警的生化戰爭？
+白宮
 
-視頻來源——
+2020年10月1日
 
-> 七哥三年前的神预测：
-> 
-> 黑夜即将到来！一定要做好准备！
-> 来自中共盗国贼的黑夜即将到来，
-> 将弥漫着世界，西方的文明世界。
-> 我们每个人都将面临，
-> 大家要做好准备！
-> 
-> 🙏🙏🙏👍👍👍 [pic.twitter.com/p7mHi3GbRh](https://t.co/p7mHi3GbRh)
-> — 木兰传奇(文奇） (@Mulan2020) [March 19, 2020](https://twitter.com/Mulan2020/status/1240590913526587392?ref_src=twsrc%5Etfw)
+MEMORANDUM FOR: KAYLEIGH MCENANY ASSISTANT TO THE PRESIDENT AND WHITE HOUSE PRESS SECRETARY
 
-“我想在這裡告訴我們所有的美國朋友，包括全世界、歐洲和日本的愛好和平的人，一定要相信我說的話，黑夜即將到來，一定要做好準備，來自中共盜國賊的黑夜即將到來，將彌漫著世界、西方的文明世界，我們每個人都將面臨黑夜已經來臨，大家要做好準備。“
+致總統助理兼白宮新聞秘書Kayleigh Mcenany的備忘錄
 
-黑夜已經來臨，在這場滅共戰爭中任何的妥協、任何的綏靖，都會讓每一個身處這場滅共戰爭中的人類面臨危險，留給全人類的時間不多了！
+FROM: SEAN P. CONLEY, DO, FACEP PHYSICIAN TO THE PRESIDENT COMMANDER, U.S. NAVY
 
-在這場中共針對全人類發起的生化戰爭已經無人能免，願上帝保佑川普總統和家人，天佑美國，天佑人類，驅除中共，匡扶正義！
+來自： 骨科醫學博士、美國急診醫師學會院士、美國海軍總統醫生指揮官SEAN P. CONLEY
 
-（文章內容僅代表作者個人觀點）
+SUBJECT: President Donald J. Trump & First Lady Melania Trump’s COVID-19 Tests
 
-0
+主題：唐納德·川普總統和第一夫人梅拉尼亞·川普的COVID-19化驗結果
+
+I release the following information with the permission of President Donald J. Trump and First Lady Melania Trump.
+
+經唐納德·川普總統和第一夫人梅拉尼亞·川普的許可，我發佈如下消息：
+
+This evening I received confirmation that both President Trump and First Lady Melania Trump have tested positive for the SARS-CoV-2 virus.
+
+我於今晚收到確認消息，唐納德·川普總統和第一夫人梅拉尼亞·川普對SARS-CoV-2病毒化驗呈陽性。
+
+The President and First Lady are both well at this time, and they plan to remain at home within the White House during their convalescence.
+
+此時此刻，總統和第一夫人狀況良好，在康復期間，他們打算待在白宮的家中。
+
+The White House medical team and I will maintain a vigilant watch, and I appreciate the support provided by some of our country’s greatest medical professionals and institutions.
+
+白宮醫療團隊和我將會保持警惕，對於我國那些最棒的醫療專業人員和機構提供的支援，我在此表示感謝。
+
+Rest assured I expect the President to continue carrying out his duties without disruption while recovering, and I will keep you updated on any future developments.
+
+請放心，我期待總統在恢復期間繼續履行其職責而不遭到干擾，有任何進展我都會向您隨時彙報。
+
+出处：
+
+> Memorandum from President [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw)’s Physician [pic.twitter.com/ujHUufQBln](https://t.co/ujHUufQBln)
+> — Judd Deere (@JuddPDeere45) [October 2, 2020](https://twitter.com/JuddPDeere45/status/1311895390086729728?ref_src=twsrc%5Etfw)
+
+*翻譯：【**GM31**】*
+
+*戰友之家玫瑰園小隊出品*
+
+1
