@@ -1,28 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共洗腦從娃娃開始，是人類歷史上最邪惡的行徑！沒有之一！
-`2020-10-02 03:35 Ronald` [轉載自GNews](https://gnews.org/zh-hant/397092/)
+## 為川普總統祈福！在羥氯喹+阿奇黴素+鋅的保護下天選之子必將無恙！
+`2020-10-02 04:07 Ronald` [轉載自GNews](https://gnews.org/zh-hant/397112/)
 
-內新聞作者：於人令(文一)       素材：peterwong(7)       校對：文跡～見證神蹟
+內新聞: 雅典娜的聖鬥士(沙加)       校對: 文跡～見證神蹟
 
-據環球網2020年10月1日報導，當天廣州越秀區組織全區中小學校舉辦紀念活動。十四萬青少年以“越秀少年祭英烈，紅色基因代代傳”為主題同上一節思政課，紀念為國捐軀的烈士。活動引導青少年通過祭先烈、學先鋒、立志向等環節，傳承紅色基因，弘揚革命傳統，聽黨話，跟黨走，樹立正確的世界觀、人生觀和價值觀。早日成為擔當民族復興大任的新時代人。
+川普總統10月2日發推證實自己被確診感染CCP病毒！此消息一出，瞬間使萬千爆料革命戰友心懸一線！但要相信在羥氯喹+阿奇黴素+鋅的保護下，川普老爺子必將康復！全盛回歸！
 
-中共自篡政起，用血旗製作了一個遮天蔽日的罩子，成功地把民眾罩在裡面。通過所謂的改造思想和反右等政治運動，把受過民國教育第一代人的思想控制住，只許老老實實，不許亂說亂動，不服的就肉體消滅。
+從機理上看，羥氯喹+阿奇黴素+鋅的組合併不是用於防止服藥者被感染CCP病毒，而是抑制病毒產生的細胞因子風暴，將病毒抑制在一個比較低的水平（詳見： [https: //gnews.org/zh-hant/295499/](https://gnews.org/zh-hant/295499/) ）。
 
-對篡政前後出生的第二代以後的民眾，從小就被中共灌輸“聽黨話，跟黨走；爹親娘親不如黨親；大河有水小河滿，大河沒水小河幹”等眾多違背人倫、違背常識的歪理邪說。其目的就是使民眾失去獨立思考能力，變成中共的傀儡和肉盾。中共通過文革破四舊把傳統文化中的“仁義禮智信，溫良恭儉讓”統統廢棄。鼓吹什麼“與天鬥其樂無窮，與地鬥其樂無窮，與人鬥其樂無窮。”有相當一部分民眾居然認同，說明中共的洗腦非常成功。
+這就如同一個人被毒蛇咬傷，如果體內有抗蛇毒的物質，便會先將蛇毒壓制，再經全面治療後將蛇毒完全消滅。羥氯喹的組合便是抗蛇毒的物質，並不是防止被蛇咬的防護服。
 
-在當今互聯網世界裡，中共喪心病狂地建起了邪惡的網絡防火牆。民眾在血旗罩子裡看不到外面的世界，只能聽到中共假和騙的聲音。
+川普總統雖然被感染，但在長期用藥預防的情況下，病毒水平會被壓制，在接受白宮醫療團隊的治療後，定會無恙歸來！
 
-三年前郭文貴先生橫空出世，發起了爆料革命，把血旗罩子戳了一個洞，扒掉了中共身上的遮羞布，露出了中共以騙治國，以假治國，以黑治國，以警治國的邪惡本質。民眾正逐漸醒來，越來越多的人加入到爆料革命中成為戰友。為消滅中共這個邪惡政權，戰友們把血旗罩子上的洞撕開一點，再撕開一點，喚醒越來越多的民眾，直至把血旗罩子徹底撕開，讓法治、民主、自由之光普照神州大地。
+川普總統乃是上天正義力量選定的滅共重要之人！此事件的發生，預示著2020年代表人類正義與邪惡力量的大決戰即將開始！
 
-看著新聞圖片中孩子們迷茫的眼神和臉上的血旗，我彷彿看到又一代中共的傀儡和肉盾在成長，繼續簇擁著中共這個邪惡政權，甚至為它擋子彈、獻生命，令人痛心疾首！為了我們這一代、下一代、子子孫孫能夠擁有自由和尊嚴，能夠有獨立思考能力，而不是只能像豬狗一樣地活著，繼續被愚昧被奴役，必須消滅中共！
-
-- ![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02032539/image0-50.jpg)
-- ![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02032603/image1-5.png)
-- ![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02032625/image2-1.png)
-
-
-新聞鏈接： [https://china.huanqiu.com/article/405rkT8QFvO](https://china.huanqiu.com/article/405rkT8QFvO)
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02040051/GettyImages-841608592-600x400-1.jpg) WASHINGTON, DC – SEPTEMBER 01: US President Donald Trump, Vice President Mike Pence and faith leaders say a prayer during the signing of a proclamation in the Oval Office of the White House September 1, 2017 in Washington, DC. President Trump signed a proclamation to declare this Sunday as a National Day of Prayer for people affected by Hurricane Harvey. (Photo by Alex Wong/Getty Images)
 
 0

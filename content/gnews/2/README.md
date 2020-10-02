@@ -1,14 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Warroom 400：麗茲談中共與梵蒂岡要續約勾兌協議；蓬佩奧國務卿譴責督促梵蒂岡停止和中共繼續勾兌
-`2020-10-02 10:35 GM77` [轉載自GNews](https://gnews.org/zh-hant/397721/)
+## 每日政要Twitter播報(中文) 10/01期(視頻+ PDF下載)
+`2020-10-02 12:42 GM62` [轉載自GNews](https://gnews.org/zh-hant/398084/)
 
-戰友之家新聞譯制組
-撰稿：GM64
+撰稿記者：宠宝⻉（⽂宠）、CYC⽂颖
+校對：David XX、任意東⻄
+播音：⼤脚印
 
-
-
-中共腐蝕了梵蒂岡，國務卿蓬佩奧已經發起了強烈的外交攻勢譴責梵蒂岡與中共之間繼續簽勾兌協議。警告梵蒂岡如果繼續將會嚴重危害教廷的權威。現在是美國天主教徒與中國的天主教徒站在一起，然而梵蒂岡卻並沒有。
+[每日推文-10-1-PDF](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02123954/%E6%AF%8F%E6%97%A5%E6%8E%A8%E6%96%87-10-1-PDF.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02123954/%E6%AF%8F%E6%97%A5%E6%8E%A8%E6%96%87-10-1-PDF.pdf)
 
 0
