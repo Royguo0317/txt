@@ -1,35 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班農戰斗室：395期 中共利用五種武器 深入控制了美國 其中的媒體戰 最為重要【精华版粤语配音】
-`2020-10-01 09:48 GM42` [轉載自GNews](https://gnews.org/zh-hant/395227/)
+## 【世界多語言圖文】2020/09/24～225 CCP病毒每日疫情直播簡報
+`2020-10-01 11:06 GM62` [轉載自GNews](https://gnews.org/zh-hant/394019/)
 
-製作單位：戰友之家·粵語頻道
-素材製作：Warroom Pandemic
-視頻配音：
-wikim bao
-老徐
-視頻剪輯：食飽飽
-字幕校對：食飽飽
-音頻剪輯：麻辣湯
+戰友之家圖文摘要及小語種組
+
+[English\_0924～0925\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231124/English_0924%EF%BD%9E0925_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231124/English_0924%EF%BD%9E0925_CCP_Virus_Updates.pdf)
+
+[French\_0924～0925\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231259/French_0924%EF%BD%9E0925_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231259/French_0924%EF%BD%9E0925_CCP_Virus_Updates.pdf)
+
+[German\_0924～0925\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231309/German_0924%EF%BD%9E0925_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231309/German_0924%EF%BD%9E0925_CCP_Virus_Updates.pdf)
+
+[Japanese\_0924～0925\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231304/Japanese_0924%EF%BD%9E0925_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231304/Japanese_0924%EF%BD%9E0925_CCP_Virus_Updates.pdf)
+
+[Korean\_0924～0925\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01110634/Korean_0924%EF%BD%9E0925_CCP_Virus_Updates_243_244.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01110634/Korean_0924%EF%BD%9E0925_CCP_Virus_Updates_243_244.pdf)
+
+[Spanish\_0924～0925\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231253/Spanish_0924%EF%BD%9E0925_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30231253/Spanish_0924%EF%BD%9E0925_CCP_Virus_Updates-1.pdf)
 
 
-
-概要：
-文貴先生認為現在和將來 社交媒體力量都將在世界上排名第一 ，CCP的力量要基於五種武器。
-頭號武器是社交媒體，第二大武器是經濟，第三大武器是美國的美元，第四大武器是生物武器和化學武器，第五大武器是大外宣。
-美國的世界第一武器社交媒體被中共完全控制，
-第二經濟華爾街被中共完全控制
-下一個是美元，中共試圖幹掉美國，好萊塢變成了大外宣，完全被中共控制。
-第五生物武器和化學武器已經被散播全球
-美國內部的問題
-是誰在背後出錢
-現在矽谷領袖去了北京受到中共的仰慕，他們喜歡去中國，他們去中國的感覺像是帝王，每晚夜宿夜店，他們有整個中國54個民族的女孩可以玩，他們可以拿到大合同。
-三年前如果美國人可以聽取我的意見，當我在華盛頓的新聞發布會時，也許美國政府可以更早的讓美國人覺醒，也許今天也就沒有新冠病毒危機了
-在一天內我的推特就漲了5萬粉絲，在一周內我的粉絲會增加到了40萬，然後twitter、youtube feacebook 立刻關閉了我的賬戶，閆博士是為了傳遞真相解救人類，但是相同的遭遇也在閆博士身上發生了，現在美國人一定要問這是誰幹的，誰是幕後主使，為什麼美國現在陷入大困境、太官僚主義了，為什麼中共能說謊沒人阻止，因為那些社交媒體，所以美國失去了控制，如果沒有美國後面的支持，中共不可能有這對外的5個武器。
-對內他們有五策
-建防火牆，不讓中國人知道外面的信息，完全控制媒體，拿走所有的錢，讓中國人沒有醫保，沒有社會保障，煽動大家內鬥，沒有自由，沒有法治，誰幫中共實施五策的。
-美國現在所有事情都是兩黨之爭，中共在利用這場鬥爭。
-所有中共的企業都被中共背後控制著，百分之百被解放軍控制。
 
 0

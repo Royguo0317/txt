@@ -1,16 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 留給中共盜國賊的時間不多了——美國空軍對MQ-9死神無人機升級後可一次攜帶8枚地獄火導彈
-`2020-10-01 11:58 GM101` [轉載自GNews](https://gnews.org/zh-hant/395648/)
+## 創造出知名角色瑪法達阿根廷漫畫大師-季諾辭世享壽八十八歲
+`2020-10-01 13:26 GM06` [轉載自GNews](https://gnews.org/zh-hant/395811/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01114107/%E5%9B%BE%E4%B8%80.jpg)
-美東時間9月30號，《空軍雜誌》官方推特公佈對MQ-9死神無人機升級後，使其火力增加了一倍。
+作者：GM40
 
-MQ-9又名捕食者-B，是首款專為長途[高空](https://en.wikipedia.org/wiki/High-altitude_platform)[監視](https://en.wikipedia.org/wiki/Surveillance_aircraft)而設計的[獵殺性](https://en.wikipedia.org/wiki/USAF_Hunter-Killer)無人機，同時可用於監視和偵察工作，能夠[遠程控制](https://en.wikipedia.org/wiki/Remotely_controlled)或[自主飛行](https://en.wikipedia.org/wiki/Autonomous_flight)，由開發運營[通用原子航空系統公司](https://en.wikipedia.org/wiki/General_Atomics_Aeronautical_Systems)（GA-ASI）主要為[美國空軍](https://en.wikipedia.org/wiki/United_States_Air_Force)（USAF）服役。
+阿根廷漫畫大師季諾（Quino）的出版商今天表示，本名拉瓦多的季諾已經辭世，享壽88歲。人氣漫畫角色瑪法達（Mafalda）就是季諾的創作。
 
-《空軍雜誌》表示至9月10號軟體升級後，MQ-9的導彈容量增加了一倍，首次攜帶8枚AGM-114地獄火導彈。《空軍雜誌》指出第556測試和評估中隊在內華達州空軍基地飛過MQ-9無人機，展示了其作戰飛行計畫2409的一部分新功能，該升級功能將在日曆年年底投入使用。升級到第53聯隊 有了新功能，“收割者”可以攜帶兩枚導彈，每個導彈可以跨越四個站。它還與500磅炸彈或燃油箱相容。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01131425/%E9%A9%AC4.jpg)
 
-截至2016年9月起，美國空軍已使用195架MQ-9死神無人機，經驗成熟技術穩定。美國的軍事實力對比中共國可謂天壤之別，在此背景下，中共外交國防部頻繁挑釁美國，實屬雞蛋碰石頭。美軍本次升級標誌著對中共惡政最後通告，此前伊朗獨裁政權的蘇萊曼尼就是前車之鑒，留給中共盜國賊的時間不多了。
+法新社報導，布宜諾斯艾利斯出版社Ediciones de la Flor的負責人狄文斯基（Daniel Divinsky）在推特上寫道：「季諾已經逝世。這個國家和世界上所有的好人都將為他哀悼。」
+筆名季諾的拉瓦多（Joaquín Salvador Lavado）在1964年創造出瑪法達這個角色。這部連環漫畫先是風行於拉丁美洲、歐洲與亞洲許多地區的報刊，接著出書。
+
+季諾1932年生於阿根廷曼多薩（Mendoza），為西班牙移民的後代。他在曼多薩市的美術學院就讀後，於18歲推出自己第一部漫畫。
+
+      季諾當初是為了電器行銷活動，造出瑪法達這名討厭共產主義和喝湯、熱愛披頭四（The Beatles）的6歲小女孩。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01131811/%E9%A9%AC5.jpg)
+在以瑪法達為主角的漫畫中，季諾透過一群孩子的觀點來反映成人的世界。已逝女作家三毛（1943-1991年）最早將瑪法達翻譯成中文版「娃娃看天下」介紹給台灣讀者。
+
+      季諾在1976年阿根廷軍事政變後逃至米蘭，接著於1990年成為西班牙公民，生前曾寓居於馬德里、巴黎、米蘭和布宜諾斯艾利斯等地。
 
 0

@@ -1,36 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新中國聯邦十一全球大遊行舉的滅共橫幅和標語
-`2020-10-01 12:27 vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hant/395777/)
+## 【香港要聞】警全日最少拘捕 86 人 入夜再有 2 區議員被捕　【圖輯】
+`2020-10-01 13:55 GM42` [轉載自GNews](https://gnews.org/zh-hant/395849/)
 
-【持續更新】美東紐約時間2020年10月1日，新中國聯邦電視台一直播美東紐約遊行現場，遊行隊伍排成兩列，隊形完整，服裝整齊統一，旗幟標語清晰，戰友們精神抖擻，喊著“ *CCP Lied Americans Died* !”口號，街道旁邊有警察保護，據報導參加遊行的戰友約400人。
+製作單位：戰友之家-粵語組
+編撰：文燕
+覆核：文粵
 
-新中國聯邦創始人郭文貴先生在紐約遊行現場與戰友們親密擁抱，盡顯新中國聯邦戰友情。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01120846/image-4.png)
-英雄戰友們舉出了各種標語橫幅，大橫幅有：
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01115105/1-2.jpg) Chinese Communist Party, the World Enemy!
-中國共產黨是全世界的公敵！![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01115501/1-3.jpg) WHY IS A FACMASK REQUIRED? CCP MADE IT!
-你為什麼戴上口罩？是中共所為！![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01115756/1-5.jpeg) FREEDOM/DEMOCRACY/RULE OF LAW
-建立民主，自由，法治的社會![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01115809/1-6.jpg)NEW FEDERAL STATE OF CHINA
-新中國聯邦![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01115835/1-7.jpg)CCP DOESN’T REPRESENT THE CHINESE
-中共不能代表中國人民![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01115952/1-8.jpg)THE CHINESE IS CCP’S BIGGEST VICTIM
-中國人民是中共的最大受害者![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01120034/1-9.jpg)LOST MONEY, LOST JOB! TAKE DOWN THE CCP!
-沒了鈔票，丟了工作！一起滅共吧！
-各種滅共小標語
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01120123/1-11.jpg)CCP Lied Americans Died, We Need Truth World Needs Truth and so on.
-新中國聯邦十一全球大遊行，全球各地戰友集結隊伍，傳播CCP病毒真相，呼喚正義，消滅CCP！
-新中國聯邦電視台（籌）連線全球，新西蘭、韓國、日本、意大利、台灣、紐約、蒙特利爾、溫哥華、舊金山、洛杉磯加入同播，超長直播26小時，為戰友們帶來最全面、最震撼的現場直擊！
-直播平台、觀看地址：
- GTV：新中國聯邦電視台一
-https://gtv.org/?sessionid=5f751ad90cd82c6bb6a50589
- GNews：
- https://live.gnews.org/channel.html
- YouTube：戰友之家直播
-https://youtu.be/zZwAe\_RpOxY
- Twitter：戰友之家@VOG2020
- https://twitter.com/VOG2020/status/1311456357652996096?s=20
+據**【立場新聞】**報導，民陣原定今日10.1 在港島發起“聲援12 港人” 遊行，但遭警方反對，網上仍有人號召上街，另有網民在多區發起“中秋月夕行動” 。警方晚上在 Facebook公佈，截至晚上 10 時，在全港各區共拘捕 86 人，其中 74 人涉嫌在銅鑼灣區非法集結。
+入夜後，大批警員繼續在銅鑼灣、旺角、荃灣及屯門等多區戒備；晚上8 時許，警方於銅鑼灣東角Laforet 商場外截查十多人，指現場人士涉非法集結，其後至少5 人被捕，現場消息指包括沙田民主派區議員陳運通、黎梓恩，以及一位經常出現旺角示威場地的白髮婆婆亦被捕。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01133308/image001-1.png)圖片來源：：【立場新聞】
+銅鑼灣百德新街有許多市民被警察以索帶反綁雙手，後來陸續登上旅遊巴。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01133339/image005.jpg)圖片來源：【獨媒報導】![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01133353/image007-1.png)圖片來源：：【立場新聞】
+**12港人送中 岑敖暉、鄒家成在銅鑼灣高呼 “毋忘義士，釋放十二”**
+     下午約5時半，荃灣區議員岑敖暉、屯門區議員張可森及鄒家成於百德新街高呼 “毋忘義士，釋放十二” 口號，獲群眾響應。現場市民亦高呼 “黑警死全家” 等口號。
 
-內新聞：背靠背
+一名被捕人士的母親張女士表示，自己與女兒及友人，一行三人到銅鑼灣購物及晚飯，警方無緣無故就拉起封鎖線截查，但三人中只有自己獲放行，女兒及友人卻被捕，形容事件莫名其妙。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01133326/image003.jpg)圖片來源：【大紀元】
+**銅鑼灣市民遊走喊 “光時” 警商場內外不斷舉藍旗**
+    近百名市民下午於銅鑼灣記利佐治街一帶商場內外遊走，偶爾齊聲喊 “光時” 、“黑警死全家” 等口號。駐守名店坊外的過200名防暴警察，則不下30次重複推進、舉藍旗及拉開橙帶作封鎖。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01133416/image010.jpg)圖片來源：【獨媒報導】
+近下午2時，一名黃衣女子於銅鑼灣東角道舉起《蘋果日報》，又高叫市民有權利使用東角道行人專用區，指香港人不應退縮。有兩名男子於旁邊舉五一手勢，又高叫 “五大訴求，缺一不可”。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01133426/image012.jpg)圖片來源：【獨媒報導】
+**警入夜再清銅鑼灣場 2名沙田區議員自報職業後即遭截查兼被捕**
+     警傍晚上進行驅趕後，銅鑼灣崇光一帶市面已鮮有口號聲，惟近百防暴警之後再度現身，沿東角道駱克道交界推進，截停沿途出現的10多名途人搜查。被防暴警察問及是否記者時，沙田區議員陳運通和黎梓恩自報為區議員，即遭指示去截查被捕。
+
+**戰友點評：【文燕】**
+     2020年10月1日”國殤日“，在中共的“國安惡法”倒行逆施的今天，香港人悍然走上街頭遊行，港人冒著被抓、被消失生命的危險，依然不畏強權，寧死也不向強權屈服，引起全球關注，同時在世界各地爆料革命的戰友紛紛響應，發起全球大遊行，對中共政權怒吼
+     郭文貴先生今天在視頻裡向所友戰友保證，這是CCP它們最後的一個國慶日。我們期待著爆料革命的成功，期待著屬於我們的民主和自由。香港人的血不會白流，香港將是華人的耶路撒冷，
+
+以上觀點僅代表筆者本人
+資料來源：立場新聞/大紀元/獨立媒體
+
+[https://www.thestandnews.com/politics/%E6%85%B6-10-1-%E5%A5%B3%E5%85%92%E8%A2%AB-%E5%9C%8D%E6%8D%95-%E6%AF%8D%E7%8D%B2%E6%94%BE%E8%A1%8C-%E8%8E%AB%E5%90%8D%E5%85%B6%E5%A6%99-%E5%8F%AA%E6%89%93%E7%AE%97%E8%B2%B7%E6%9B%B8%E9%A3%9F%E9%A3%AF/](https://www.thestandnews.com/politics/%E6%85%B6-10-1-%E5%A5%B3%E5%85%92%E8%A2%AB-%E5%9C%8D%E6%8D%95-%E6%AF%8D%E7%8D%B2%E6%94%BE%E8%A1%8C-%E8%8E%AB%E5%90%8D%E5%85%B6%E5%A6%99-%E5%8F%AA%E6%89%93%E7%AE%97%E8%B2%B7%E6%9B%B8%E9%A3%9F%E9%A3%AF/)
+
+[https://www.thestandnews.com/politics/%E6%85%B6-10-1-%E8%AD%A6%E5%85%A5%E5%A4%9C%E7%B9%BC%E7%BA%8C%E5%A4%A7%E8%A6%8F%E6%A8%A1%E6%88%AA%E6%9F%A5-%E9%8A%85%E9%91%BC%E7%81%A3%E6%9D%B1%E8%A7%92-5-%E4%BA%BA%E6%B6%89%E9%9D%9E%E6%B3%95%E9%9B%86%E7%B5%90%E8%A2%AB%E6%8D%95-%E8%8D%83%E7%81%A3-%E5%B1%AF%E9%96%80%E6%9C%80%E5%B0%91%E6%8B%98-3-%E4%BA%BA/](https://www.thestandnews.com/politics/%E6%85%B6-10-1-%E8%AD%A6%E5%85%A5%E5%A4%9C%E7%B9%BC%E7%BA%8C%E5%A4%A7%E8%A6%8F%E6%A8%A1%E6%88%AA%E6%9F%A5-%E9%8A%85%E9%91%BC%E7%81%A3%E6%9D%B1%E8%A7%92-5-%E4%BA%BA%E6%B6%89%E9%9D%9E%E6%B3%95%E9%9B%86%E7%B5%90%E8%A2%AB%E6%8D%95-%E8%8D%83%E7%81%A3-%E5%B1%AF%E9%96%80%E6%9C%80%E5%B0%91%E6%8B%98-3-%E4%BA%BA/)
 
 0

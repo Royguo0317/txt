@@ -1,23 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港要聞：十壹國慶 香港抗議活動再現
-`2020-10-01 10:26 pmzy-vog` [轉載自GNews](https://gnews.org/zh-hant/395361/)
+## 新中國聯邦十一全球大遊行舉的滅共橫幅和標語
+`2020-10-01 12:27 vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hant/395777/)
 
-作者：文章
+【持續更新】美東紐約時間2020年10月1日，新中國聯邦電視台一直播美東紐約遊行現場，遊行隊伍排成兩列，隊形完整，服裝整齊統一，旗幟標語清晰，戰友們精神抖擻，喊著“ *CCP Lied Americans Died* !”口號，街道旁邊有警察保護，據報導參加遊行的戰友約400人。
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01101752/6ddf32f97b0d8d10ab721795333e2d52.jpg)
+新中國聯邦創始人郭文貴先生在紐約遊行現場與戰友們親密擁抱，盡顯新中國聯邦戰友情。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01120846/image-4.png)
+英雄戰友們舉出了各種標語橫幅，大橫幅有：
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01115105/1-2.jpg) Chinese Communist Party, the World Enemy!
+中國共產黨是全世界的公敵！![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01115501/1-3.jpg) WHY IS A FACMASK REQUIRED? CCP MADE IT!
+你為什麼戴上口罩？是中共所為！![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01115756/1-5.jpeg) FREEDOM/DEMOCRACY/RULE OF LAW
+建立民主，自由，法治的社會![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01115809/1-6.jpg)NEW FEDERAL STATE OF CHINA
+新中國聯邦![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01115835/1-7.jpg)CCP DOESN’T REPRESENT THE CHINESE
+中共不能代表中國人民![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01115952/1-8.jpg)THE CHINESE IS CCP’S BIGGEST VICTIM
+中國人民是中共的最大受害者![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01120034/1-9.jpg)LOST MONEY, LOST JOB! TAKE DOWN THE CCP!
+沒了鈔票，丟了工作！一起滅共吧！
+各種滅共小標語
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01120123/1-11.jpg)CCP Lied Americans Died, We Need Truth World Needs Truth and so on.
+新中國聯邦十一全球大遊行，全球各地戰友集結隊伍，傳播CCP病毒真相，呼喚正義，消滅CCP！
+新中國聯邦電視台（籌）連線全球，新西蘭、韓國、日本、意大利、台灣、紐約、蒙特利爾、溫哥華、舊金山、洛杉磯加入同播，超長直播26小時，為戰友們帶來最全面、最震撼的現場直擊！
+直播平台、觀看地址：
+ GTV：新中國聯邦電視台一
+https://gtv.org/?sessionid=5f751ad90cd82c6bb6a50589
+ GNews：
+ https://live.gnews.org/channel.html
+ YouTube：戰友之家直播
+https://youtu.be/zZwAe\_RpOxY
+ Twitter：戰友之家@VOG2020
+ https://twitter.com/VOG2020/status/1311456357652996096?s=20
 
-早前民陣發起十壹遊行遭警方反對，香港市民今日自發到銅鑼灣遊行，聲援在深圳被扣押的12名港人，並在壹些商場發起「和妳shop」的抗議活動。
+內新聞：背靠背
 
-據報導，警方今日在全港各區派出6000警力應對示威衝突，水炮車亦於中聯辦、銅鑼灣等地戒備。今天早上，警方開始在交通要道截查車輛，在銅鑼灣街頭截查市民。
-
-十壹抗議從早上已經開始。社民連梁國雄、曾健成和社運人士古思堯等人，遊行至舉行國慶酒會的灣仔會展中心外，手持「沒有國慶、只有國殤」、「追究六四鎮壓 結束壹黨專政」等標語，抗議並要求被拘捕於深圳的12名港人。
-
-截至下午6點，香港警方稱已拘捕69名市民，主要涉及參與未經批準集結，有網絡媒體的記者稱收到限聚令吿票。
-
-
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01101949/404619cf9b355540e4dc7d167fa07f22.jpg)
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01102106/1601538530-1.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01102243/1601541257.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01102318/1601541267.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01102350/1601545378.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01102429/1601545393.jpg)
 0
