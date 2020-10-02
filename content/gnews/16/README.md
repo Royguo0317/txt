@@ -1,20 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 黑手“硬盤俠”孟建柱現身 最後的晚餐
-`2020-10-02 02:44 GM06` [轉載自GNews](https://gnews.org/zh-hant/397020/)
+## 10/2 財經快訊: 中國芯遇爛尾潮, 川普出手緩解稀土威脅
+`2020-10-02 08:29 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/397338/)
 
-作者：雅典娜之矛
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02054937/1-10.png)圖片來源： [https://asia.nikkei.com/](https://asia.nikkei.com/Economy/Trade-war/China-set-to-produce-first-locally-designed-DRAM-chip)
+[1.當地時間10月1日早盤，日本證券交易所集團（Japan Exchange Group）在一份聲明中表示，由於網絡問題，該公司暫停了所有證券交易。](https://mobile.reuters.com/article/amp/idUSKBN26M4CP?__twitter_impression=true)
 
-最近三硬盤事件全世界鬧得沸沸揚揚，人仰馬翻！墻國內推杯換盞壹片虛假祥和鴻門宴氣勢。孟建柱壹手拿著酒杯，壹手送出硬盤。還真的是諜戰大片的假面妖魔！舉杯之際，壹位說：“妳送硬盤老子也照樣慶祝喝酒”！壹個舉杯：“看妳還能挺多久！”人格分裂之最、險惡卑劣之最、人面獸心之最都整整齊齊碼上陣來！真的非人類所能想象！最後的晚餐都很入戲！
+[2.”中國芯”遇爛尾潮:6個百億級項目坍塌政府輕率買單。](https://money.163.com/20/1001/09/FNRHT3L200259DLP.html?clickfrom=w_money)
 
-中央社10月1日北京消息，中國官方昨晚9月30日在北京人大會堂舉行國慶招待會，近年來壹直負面傳聞纏身的前中共政法委書記孟建柱及前海軍司令員吳勝利均現身，引起註意。
-據星島日報報導，央視新聞聯播畫面顯示，孟建柱出席招待會時，坐在前國務院副總理馬凱及現任中央軍委聯合參謀部參謀長李作成之間，精神尚可。吳勝利則身著白色海軍制服出席，表情顯得嚴肅。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02022230/%EF%BC%9F.png)
-中國官方每年在10月1日前壹晚，都會在人大會堂舉行招待會，邀請現任及卸任中共高官及本國與外國賓客出席，在個招待會是觀察中國政壇及對外關系的指標性場合之壹。
-今年以來，中共政法系統推動整風運動，前公安部副部長孫力軍、前重慶市副市長兼公安局長鄧恢林、前上海市副市長兼公安局長龔道安先後落馬，這3人均為孟建柱的舊部。其中，鄧恢林曾任中央政法委辦公室主任，被視為孟建柱的“大管家”。
-對於這“最後的晚餐”各懷心腹事的各方內鬥的格局進入白熱化階段。各方腳力角逐也進入生死存亡的時刻！歷史總會有似曾相識的瞬間。災難和困境也終將被戰勝！只有選擇的不同帶來不同的結果！黑暗終將被光明驅散！
+[3.當地時間週三，川普總統簽署一項行政令，宣布全美礦業進入緊急狀態。該命令將使美用《國防生產法》來加速開發礦山，以減少中共稀土威脅。](https://www.bloomberg.com/news/articles/2020-09-30/trump-moves-to-expand-rare-earths-mining-citing-china-threat)
 
-援引：https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20201001-2020%E5%9B%BD%E5%BA%86%E6%8B%9B%E5%BE%85%E4%BC%9A-%E5%AD%9F%E5%BB%BA%E6%9F%B1%E5%92%8C%E5%90%B4%E8%83%9C%E5%88%A9%E7%8E%B0%E8%BA%AB
+[4.隨著第三季度結束，分析師預測美國商業銀行Q3利潤將會下滑30%-60%](https://www.reuters.com/article/us-usa-banks-results-preview-idUSKBN26M5VA?taid=5f75c4db7eb24e0001419f86&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+
+[5.旅遊業重創，1至8月中國旅行服務進出口額下降45.8%。](http://news.cnwest.com/tianxia/a/2020/10/01/19151219.html)
+
+[6.當地時間10月1日，美國起訴比特幣巨頭BitMEX老闆涉嫌洗錢。](https://www.ft.com/content/1672e8fe-1072-448a-92e7-cde9cb6dce6f)
+
+By：【密翻組·金融法律組】
 
 0
