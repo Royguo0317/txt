@@ -1,19 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 246期疫情播報 文字版9/27
-`2020-10-02 08:27 GM62` [轉載自GNews](https://gnews.org/zh-hant/397339/)
+## 10/2 財經快訊: 中國芯遇爛尾潮, 川普出手緩解稀土威脅
+`2020-10-02 08:29 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/397338/)
 
-1. 印度記者報導”新冠病毒是中共製造”；世衛組織總幹事譚德賽再次不顧閆麗夢爆出的新冠病毒來自於中共實驗室的事實和證據，為中共病毒“自然起源說”背書。
-2. 中共駐紐約總領館聲稱無意挑戰或取代美國，試圖軟化中美之間的緊張關係；於此同時，中共環球網威脅臺灣稱：大陸軍機20分鐘可打擊臺灣。
-3. 澳洲智庫確認：中共國有380所新疆集中營。
-4. 中共繼續試圖執行滅絕蒙古族文化的政策，禁止蒙語教材出庫售賣。學校教材，只發中文，不發蒙語。
-5. 小伙子向連雲港海州區洪門派出所報案稱自己批發到32噸假的可口可樂飲料，該派出所不僅不做為，還跟蹤他北京上訪並毆打致面癱。 8名行兇員警不僅未遭到處理，該派出所也不承擔其醫藥費。
-6. 群眾視頻爆料顯示洪水已將大量民宅和農田淹沒，與此同時政府卻宣傳稱糧食又大豐收
-7. 中共在香港以黑治港，毀壞了香港的繁榮、法治與自由。 9月26日，又在環球網發文稱：香港遊行抗議由美國煽動，企圖抹黑美國，誤導國人。
-8. （退役四星將軍Jack Keane， 福克斯9/25）中共國所做的事更多地是維護其正面印象，給中共國樹立良好形象。 他們無處不在，他們有一個非常全面的計畫，盡一切努力盜竊我們的技術，竊取我們的機密。也正如我們在這裡看到的，發起運動影響美國民意，製造對中共國有利的觀點。
-9. （Matt Gaetz，9/23）抖音是中共的戰略資產，DJI（大疆創新）無人機也一樣。他們擁有美國90%無人機市場，而我們的國土安全部說他們用這些無人機來識別關鍵的基礎設施並配發給執法隊伍，我們到處在用這些無人機從不停止使用。
-10. （9/26）我們可以接受壞人在你家強姦掠殺火燒房子，但是我們絕不接受自己有任何自衛反擊的能力。 這就是共產黨這麼多年給中國人種下的毒啊。   全球滅賊就是要鍛煉我們中國人你到底應不應該有勇氣，你應不應該有正義。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02054937/1-10.png)圖片來源： [https://asia.nikkei.com/](https://asia.nikkei.com/Economy/Trade-war/China-set-to-produce-first-locally-designed-DRAM-chip)
+[1.當地時間10月1日早盤，日本證券交易所集團（Japan Exchange Group）在一份聲明中表示，由於網絡問題，該公司暫停了所有證券交易。](https://mobile.reuters.com/article/amp/idUSKBN26M4CP?__twitter_impression=true)
 
+[2.”中國芯”遇爛尾潮:6個百億級項目坍塌政府輕率買單。](https://money.163.com/20/1001/09/FNRHT3L200259DLP.html?clickfrom=w_money)
+
+[3.當地時間週三，川普總統簽署一項行政令，宣布全美礦業進入緊急狀態。該命令將使美用《國防生產法》來加速開發礦山，以減少中共稀土威脅。](https://www.bloomberg.com/news/articles/2020-09-30/trump-moves-to-expand-rare-earths-mining-citing-china-threat)
+
+[4.隨著第三季度結束，分析師預測美國商業銀行Q3利潤將會下滑30%-60%](https://www.reuters.com/article/us-usa-banks-results-preview-idUSKBN26M5VA?taid=5f75c4db7eb24e0001419f86&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+
+[5.旅遊業重創，1至8月中國旅行服務進出口額下降45.8%。](http://news.cnwest.com/tianxia/a/2020/10/01/19151219.html)
+
+[6.當地時間10月1日，美國起訴比特幣巨頭BitMEX老闆涉嫌洗錢。](https://www.ft.com/content/1672e8fe-1072-448a-92e7-cde9cb6dce6f)
+
+By：【密翻組·金融法律組】
 
 0
