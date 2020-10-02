@@ -1,21 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 歷史上無數戰爭都有天意，一個不信上天的政黨必遭天滅！
-`2020-10-01 17:49 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/396023/)
+## 為川普總統祈福！在羥氯喹+阿奇黴素+鋅的保護下天選之子必將無恙！
+`2020-10-02 04:07 Ronald` [轉載自GNews](https://gnews.org/zh-hant/397112/)
 
-郭文貴先生[2020年9月27日G-TV直播](https://gtv.org//?videoid=5f711e140cd82c6bb69f9ced)：共產黨假、騙、 偷、威脅、 狂妄無知，想統治世界、用生化武器威脅世界、干涉美國大選、 搞亂美國、威脅台灣。看看二次世界大戰的結局， 上天助正義，邪惡必遭天滅！
+內新聞: 雅典娜的聖鬥士(沙加)       校對: 文跡～見證神蹟
 
-「歷史上無數次的戰爭，咱們說過中途島戰役，包括當年希特勒打斯大林格勒，包括諾曼底絕對性戰役。這一系列的戰役，你看看當時都有天意說不清楚的，什麼海上蒸汽啦，順太陽光啦，反射啦，突然下大雪啦，把百萬大軍凍死在那兒了，這些所有的事情都不是人為的，都有上天的安排。一個不信神，一個不信上天的政黨，他能得到上天的眷顧嗎？」
+川普總統10月2日發推證實自己被確診感染CCP病毒！此消息一出，瞬間使萬千爆料革命戰友心懸一線！但要相信在羥氯喹+阿奇黴素+鋅的保護下，川普老爺子必將康復！全盛回歸！
 
-– 郭文貴
+從機理上看，羥氯喹+阿奇黴素+鋅的組合併不是用於防止服藥者被感染CCP病毒，而是抑制病毒產生的細胞因子風暴，將病毒抑制在一個比較低的水平（詳見： [https: //gnews.org/zh-hant/295499/](https://gnews.org/zh-hant/295499/) ）。
 
-翻譯：【Key】校對：【GM80】字幕：【相機過熱啊】 聽寫：【重生】視頻解碼：【小螺號】編輯：【Isaiah4031】
+這就如同一個人被毒蛇咬傷，如果體內有抗蛇毒的物質，便會先將蛇毒壓制，再經全面治療後將蛇毒完全消滅。羥氯喹的組合便是抗蛇毒的物質，並不是防止被蛇咬的防護服。
 
-戰友之家玫瑰園小隊出品
+川普總統雖然被感染，但在長期用藥預防的情況下，病毒水平會被壓制，在接受白宮醫療團隊的治療後，定會無恙歸來！
 
-```
-「你曾進入雪庫，或見過雹倉嗎？ 這雪雹乃是我為降災，並打仗和爭戰的日子所預備的。」 (約伯記38:22-23 和合本)
-```
+川普總統乃是上天正義力量選定的滅共重要之人！此事件的發生，預示著2020年代表人類正義與邪惡力量的大決戰即將開始！
+
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02040051/GettyImages-841608592-600x400-1.jpg) WASHINGTON, DC – SEPTEMBER 01: US President Donald Trump, Vice President Mike Pence and faith leaders say a prayer during the signing of a proclamation in the Oval Office of the White House September 1, 2017 in Washington, DC. President Trump signed a proclamation to declare this Sunday as a National Day of Prayer for people affected by Hurricane Harvey. (Photo by Alex Wong/Getty Images)
 
 0

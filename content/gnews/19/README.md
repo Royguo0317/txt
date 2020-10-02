@@ -1,36 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新中國聯邦十一全球大遊行舉的滅共橫幅和標語
-`2020-10-01 12:27 vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hant/395777/)
+## 黑夜已經到來，川普總統不能倖免，每個人都無法倖免
+`2020-10-02 02:02 NewFOC` [轉載自GNews](https://gnews.org/zh-hant/396914/)
 
-【持續更新】美東紐約時間2020年10月1日，新中國聯邦電視台一直播美東紐約遊行現場，遊行隊伍排成兩列，隊形完整，服裝整齊統一，旗幟標語清晰，戰友們精神抖擻，喊著“ *CCP Lied Americans Died* !”口號，街道旁邊有警察保護，據報導參加遊行的戰友約400人。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02015114/%E6%8D%95%E8%8E%B7_%E5%89%AF%E6%9C%AC.png)
+作者：Maarago
 
-新中國聯邦創始人郭文貴先生在紐約遊行現場與戰友們親密擁抱，盡顯新中國聯邦戰友情。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01120846/image-4.png)
-英雄戰友們舉出了各種標語橫幅，大橫幅有：
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01115105/1-2.jpg) Chinese Communist Party, the World Enemy!
-中國共產黨是全世界的公敵！![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01115501/1-3.jpg) WHY IS A FACMASK REQUIRED? CCP MADE IT!
-你為什麼戴上口罩？是中共所為！![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01115756/1-5.jpeg) FREEDOM/DEMOCRACY/RULE OF LAW
-建立民主，自由，法治的社會![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01115809/1-6.jpg)NEW FEDERAL STATE OF CHINA
-新中國聯邦![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01115835/1-7.jpg)CCP DOESN’T REPRESENT THE CHINESE
-中共不能代表中國人民![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01115952/1-8.jpg)THE CHINESE IS CCP’S BIGGEST VICTIM
-中國人民是中共的最大受害者![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01120034/1-9.jpg)LOST MONEY, LOST JOB! TAKE DOWN THE CCP!
-沒了鈔票，丟了工作！一起滅共吧！
-各種滅共小標語
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01120123/1-11.jpg)CCP Lied Americans Died, We Need Truth World Needs Truth and so on.
-新中國聯邦十一全球大遊行，全球各地戰友集結隊伍，傳播CCP病毒真相，呼喚正義，消滅CCP！
-新中國聯邦電視台（籌）連線全球，新西蘭、韓國、日本、意大利、台灣、紐約、蒙特利爾、溫哥華、舊金山、洛杉磯加入同播，超長直播26小時，為戰友們帶來最全面、最震撼的現場直擊！
-直播平台、觀看地址：
- GTV：新中國聯邦電視台一
-https://gtv.org/?sessionid=5f751ad90cd82c6bb6a50589
- GNews：
- https://live.gnews.org/channel.html
- YouTube：戰友之家直播
-https://youtu.be/zZwAe\_RpOxY
- Twitter：戰友之家@VOG2020
- https://twitter.com/VOG2020/status/1311456357652996096?s=20
+據川普總統Donald J. [\[email protected\]](/cdn-cgi/l/email-protection)於[2020年10月2日12：54](https://twitter.com/realDonaldTrump/status/1311892190680014849)發佈的推文：
 
-內新聞：背靠背
+Tonight, [@FLOTUS](https://twitter.com/FLOTUS)and I tested positive for COVID-19. We will begin our quarantine and recovery process immediately. We will get through this TOGETHER!
+
+> Tonight, [@FLOTUS](https://twitter.com/FLOTUS?ref_src=twsrc%5Etfw) and I tested positive for COVID-19. We will begin our quarantine and recovery process immediately. We will get through this TOGETHER!
+> — Donald J. Trump (@realDonaldTrump) [October 2, 2020](https://twitter.com/realDonaldTrump/status/1311892190680014849?ref_src=twsrc%5Etfw)
+
+這是一場生化戰爭，美國和全人類都在付出代價，人類可不可以避免這場在三年就已經發出預警的生化戰爭？
+
+視頻來源——
+
+> 七哥三年前的神预测：
+> 
+> 黑夜即将到来！一定要做好准备！
+> 来自中共盗国贼的黑夜即将到来，
+> 将弥漫着世界，西方的文明世界。
+> 我们每个人都将面临，
+> 大家要做好准备！
+> 
+> 🙏🙏🙏👍👍👍 [pic.twitter.com/p7mHi3GbRh](https://t.co/p7mHi3GbRh)
+> — 木兰传奇(文奇） (@Mulan2020) [March 19, 2020](https://twitter.com/Mulan2020/status/1240590913526587392?ref_src=twsrc%5Etfw)
+
+“我想在這裡告訴我們所有的美國朋友，包括全世界、歐洲和日本的愛好和平的人，一定要相信我說的話，黑夜即將到來，一定要做好準備，來自中共盜國賊的黑夜即將到來，將彌漫著世界、西方的文明世界，我們每個人都將面臨黑夜已經來臨，大家要做好準備。“
+
+黑夜已經來臨，在這場滅共戰爭中任何的妥協、任何的綏靖，都會讓每一個身處這場滅共戰爭中的人類面臨危險，留給全人類的時間不多了！
+
+在這場中共針對全人類發起的生化戰爭已經無人能免，願上帝保佑川普總統和家人，天佑美國，天佑人類，驅除中共，匡扶正義！
+
+（文章內容僅代表作者個人觀點）
 
 0

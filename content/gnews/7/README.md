@@ -1,37 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新生——天地的輪迴：獻給巴塞羅那滅共示威
-`2020-10-01 16:21 喜西站HimalayaSpain` [轉載自GNews](https://gnews.org/zh-hant/395927/)
+## 總統醫師就川普總統和第一夫人感染CCP病毒發佈聲明
+`2020-10-02 02:32 GM31` [轉載自GNews](https://gnews.org/zh-hant/397001/)
 
-今天是乾坤倒置、神州陸沉、草木含悲、百年黑暗的“國殤之日”！
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02021907/%E5%9B%BE%E7%89%87.png)
+PHYSICIAN TO THE PRESIDENT
 
-今天是我們創造和維護**新中國聯邦**同“**新中國人**”尊嚴和榮譽的偉大時刻！
+THE WHITE HOUSE
 
-今天是全球華人創造無尚榮光與輝煌的歷史時刻！
+October 01 , 2020
 
-人類歷史走到今天，從來沒有哪一次像“Take down the CCP”這樣把我們全人類的命運緊緊凝聚起來！
+總統醫生
 
-滄海一聲嘯，滔滔滅共潮！
+白宮
 
-CCP lie！ All the people die!
+2020年10月1日
 
-消滅中共是正義的需要。郭文貴先生說：只有消滅中共，把那幾個很小的盜國賊給消滅掉，中國人才能過上有真正的法治和信仰自由的生活，才能讓我們的子女不在恐懼中生存。
+MEMORANDUM FOR: KAYLEIGH MCENANY ASSISTANT TO THE PRESIDENT AND WHITE HOUSE PRESS SECRETARY
 
-一個14億人的國家和民族，被中南坑里幾個人徹底綁架奴役長達70餘年。上天一定會懲罰魔鬼。天也在懲罰我們，我們的自私，我們的懦弱，我們的沉默，我們的鴕鳥姑息。蒼天有眼，要么就讓我們消滅共產黨，要么就滅亡我們。
+致總統助理兼白宮新聞秘書Kayleigh Mcenany的備忘錄
 
-爆料革命將重新樹立我們每個人內心深處的喜馬拉雅，再造我們作為人類靈光的堅貞信仰！堅信了就什麼都不在乎，堅信了就會贏得勝利！
+FROM: SEAN P. CONLEY, DO, FACEP PHYSICIAN TO THE PRESIDENT COMMANDER, U.S. NAVY
 
-我們與全球有正義、有良知的人們，在國際戰場中超限戰，打得異常的漂亮，把全世界絕大多數有良知的人團結到一起。
+來自： 骨科醫學博士、美國急診醫師學會院士、美國海軍總統醫生指揮官SEAN P. CONLEY
 
-爆料革命一次又一次證明了，上天是站在正義一邊的，我們能夠得天助，勝利必將最終屬於我們堅守正信、守死善道的人們。
+SUBJECT: President Donald J. Trump & First Lady Melania Trump’s COVID-19 Tests
 
-我要祝福那些敢於親身站出來沖在滅共最前線的戰友們！你們是**新中國聯邦**成長、發展、壯大的見證者和維護者！正在譜寫者一曲曲迴腸蕩氣、感天動地的浩蕩長歌！
+主題：唐納德·川普總統和第一夫人梅拉尼亞·川普的COVID-19化驗結果
 
-我要向牆內無數不能、不敢親自站出來的兄弟姐妹們，向那些懷抱大愛、清醒獨立、嚮往自由光明、充滿激情和熱血的戰友們吶喊，保存實力，準備戰鬥！揚眉劍出鞘，拔劍斬頑凶之日，就是CCP血債血償、灰飛煙滅，天地迴轉之時！
+I release the following information with the permission of President Donald J. Trump and First Lady Melania Trump.
 
-宇宙必將在天地的輪迴之中，重新得到鍛造，新中國人必將得到新生！
+經唐納德·川普總統和第一夫人梅拉尼亞·川普的許可，我發佈如下消息：
 
-作者：若玉
+This evening I received confirmation that both President Trump and First Lady Melania Trump have tested positive for the SARS-CoV-2 virus.
 
-0
+我於今晚收到確認消息，唐納德·川普總統和第一夫人梅拉尼亞·川普對SARS-CoV-2病毒化驗呈陽性。
+
+The President and First Lady are both well at this time, and they plan to remain at home within the White House during their convalescence.
+
+此時此刻，總統和第一夫人狀況良好，在康復期間，他們打算待在白宮的家中。
+
+The White House medical team and I will maintain a vigilant watch, and I appreciate the support provided by some of our country’s greatest medical professionals and institutions.
+
+白宮醫療團隊和我將會保持警惕，對於我國那些最棒的醫療專業人員和機構提供的支援，我在此表示感謝。
+
+Rest assured I expect the President to continue carrying out his duties without disruption while recovering, and I will keep you updated on any future developments.
+
+請放心，我期待總統在恢復期間繼續履行其職責而不遭到干擾，有任何進展我都會向您隨時彙報。
+
+出处：
+
+> Memorandum from President [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw)’s Physician [pic.twitter.com/ujHUufQBln](https://t.co/ujHUufQBln)
+> — Judd Deere (@JuddPDeere45) [October 2, 2020](https://twitter.com/JuddPDeere45/status/1311895390086729728?ref_src=twsrc%5Etfw)
+
+*翻譯：【**GM31**】*
+
+*戰友之家玫瑰園小隊出品*
+
+1

@@ -1,15 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 9.14 路德時評： 冠博士解讀閆麗夢博士報告 報告第一部分證明病毒來自實驗室【精华版粤语配音】
-`2020-10-01 10:52 GM42` [轉載自GNews](https://gnews.org/zh-hant/395421/)
+## 唱著藍歌滅中共, 各屆精英包括解放軍將軍都加入新中國聯邦滅共
+`2020-10-02 00:14 GM80` [轉載自GNews](https://gnews.org/zh-hant/396547/)
 
-製作單位：戰友之家·粵語頻道
-製作團隊：鬼五、打雜的、阿恩、哥阿
+[https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01230035/Miles\_20200927\_part2.mp4](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01230035/Miles_20200927_part2.mp4)
 
+郭先生在[2020年9月27日的G-TV直播](https://gtv.org/web/?videoid=5f711e140cd82c6bb69f9ced#/VideoPlay_UI)中提到，我們新中國聯邦的精英們在各個不同的領域里展現出他們卓越的光輝，包括科學界、體育界、音樂屆，還有解放軍的許多將領們都加入新中國聯邦一起滅共。郭先生重提路德的名言：”滅共沒你不行，就缺你一個！”
 
-
-概要：
-報告第一部分證明病毒來自實驗室可能性為99.999%，病毒就像貓（舟山蝙蝠）長了狗鼻子（SARS）一樣，狗鼻子有明顯人為操作的痕跡。報告第二部份準確分析了實驗室做病毒的步驟。
+*翻譯：【rainbow】校對：【noraTina】字幕：【班仔】聽寫：【VOG戰友之家字幕組】視頻解碼：【恒久忍耐】編輯：【Isaiah4031】【GM80】
+戰友之家玫瑰園小隊出品*
 
 0

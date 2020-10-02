@@ -1,31 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大蒙特利爾10月1日全球終共大遊行
-`2020-10-01 16:51 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/395963/)
+## 【快評】上海一銀行惊現“墓碑式”服務窗口！暴露了中共國銀行的本性？
+`2020-10-02 03:07 Ronald` [轉載自GNews](https://gnews.org/zh-hant/397069/)
 
-喜馬拉雅聯盟加拿大農場文錦
+內新聞/素材：Meilen 美倫      校對：雅典娜的聖鬥士(沙加)
 
-校對HUH
-![]()![](https://media.discordapp.net/attachments/714279213544505447/761322779311079484/EjQ9_cLXsAI_CNs.jpg?width=679&amp;height=509)
-10月1日，在全球第二大法語城市、素有北美小巴黎之稱的加拿大第二大城市、魁省第一大城市蒙特利爾舉行了加拿大站之全球終共大遊行。
+網易9月26日報導：近日，網上流傳的一段關於上海某銀行惊現“嚇人式窗口”的視頻引發了一片熱議。不少網友紛紛表示，銀行營業廳辦事窗口讓人聯想到墓碑，感覺陰森森的挺嚇人。滾動在電子屏上的“歡迎光臨”四個字更是奇葩。
 
-雖與美國相鄰、語言相通，但藍金黃嚴重的加拿大，政府和主流媒體對病毒真相諱莫如深，當戰友向警局報備活動時，警察聽到真相都大吃一驚，繼而稱讚終共大遊行，並拿起病毒真相宣傳單仔細閱讀。
-![]()![](https://media.discordapp.net/attachments/759533853840506900/761321804341968906/image0.jpg?width=679&amp;height=509)
-開水戰友在9月30日首次接受魁省本地媒體Stu-dio的視頻直播採訪，全程法語、侃侃而談，為10月1日的遊行造勢。採訪涵蓋了遊行示威、病毒真相、新中國聯邦和香港運動等話題。主持人Andre Pitre先生向觀眾多次推薦了蒙特利爾十一終共大遊行，呼籲加拿大人與新中國聯邦站在一起，Take down the CCP!
+對此，新民晚報採訪了上海市規劃委員會諮詢委員薛理勇，他表示：過去銀行的營業廳就是這樣的佈局與樣式，建議網友不要被影響，且上海外灘也不止一家銀行是這種窗口。
 
-10月1日中午12點，150多位戰友們齊聚蒙特利爾中共國總領館門前，左右兩旁列隊整齊，一眼都望不到頭，聲勢浩大。其中不少多倫多的戰友早上5:30驅車去蒙特利爾支援，當天返回，來回車程要11個小時。參與維持秩序的警察非常感興趣，因為從未見過如此震撼的華人示威遊行，而且是幫助他們、勇敢揭露病毒真相的遊行。
-![]()![](https://media.discordapp.net/attachments/714279213544505447/761322781442572288/EjQ-ClKXsAYhi2D.jpg?width=679&amp;height=509)
-藍色七芒星旗迎風招展，戰友們大聲疾呼中共病毒真相，呼籲消滅共產黨是正義的需要。這是我們第一次向蒙特利爾展示了新中國聯邦人的面貌，樹立了華人的新形象，把中共和中國人清晰地分開。附近的行人頻頻駐足，迫切地想了解病毒的真相，因為在這場疫情中，沒有一個人是安全的！
-![]()![](https://media.discordapp.net/attachments/759533853840506900/761321715388252160/image0.jpg?width=679&amp;height=509)
-今天是傳統的中秋節，但我們太多人因為中共暴政無法回到故鄉，多麼希望以後的中秋節能夠回到沒有中共的中華大地，與親人團圓。我們今天所做的一切，都是為了以後父母、孩子不得相見的人倫慘劇不再發生。
+- ![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02024924/0ad30a6e056f434aba0635b6d66bd7eb.jpg)
+- ![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02024941/2954268159086803647.jpg)
+- ![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02024956/d5aa0c22e692394e.jpg)
+- ![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02025008/YPmWgeSbhtXOUkAtoVl8uSEorQLglbVaVpzsXvtkXyzRZ1601152235990compressflag.jpg)
 
-這將是最後一個國殤日！共產黨，你完了！
 
-相關鏈接：
+評：跟著共產黨，走進火葬場！中共國的銀行本就是一個被偽政府呵護的鬼魂，只是一不小心就暴露了身份！
 
-Oct 1st, 2020 NFSC Global Take-down CCP Demonstration——Himalaya Canada 新中國聯邦喜馬拉雅加拿終共大遊行
-
-https://www.youtube.com/watch?v=i63og1z9nU0 deu
+新聞來源： [https://3g.163.com/news/article/FNFEM4AC00258105.html](https://3g.163.com/news/article/FNFEM4AC00258105.html)
 
 0
