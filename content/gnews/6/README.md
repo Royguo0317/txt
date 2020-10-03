@@ -1,40 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 10月1日全球滅共大遊行圖集
-`2020-10-02 18:19 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/398538/)
+## 纽约，你是新中国联邦的圣地-美东香草山十一中秋“终共游行”后记
+`2020-10-02 21:30 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/398672/)
 
-喜馬拉雅聯盟加拿大農場 文錦
+**整个游行路线连起来，就是一个躺着的阿拉伯数字“8”，像极了一个拷在犯人手上的手铐-别忘了，CCP的领事馆就在不远处的42街哈德逊河畔。**
 
-10月1日，當地時間早晨八點整，在新西蘭最南端的因佛卡吉爾（Invercargill) — 新西蘭南方理工學院校園，升起了新中國聯邦的國旗，拉開了十一新中國聯邦滅共大遊行的序幕。之所以選這一天，因為是中共國的“國慶日”，這實際上是其長達七十多年的中共極權獨裁和惡政的象徵，是中國人的“國殤日”。這天也是傳統的中秋節，多少父母、子女因為中共的殘暴統治和戕害生命的中共病毒而骨肉分離、難以相見。
+**作者:美东香草山写作组 Kathy （文艺）**
 
-爆料革命的戰友們在世界各地發出正義的聲音和訴求：揭露中共病毒真相，讓世界人民認識到中國共產黨的邪惡，宣傳新中國聯邦，展現新中國聯邦人的形象。
+审稿：立文
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02211126/%E5%8D%81%E4%B8%801.png)
+**三年前，郭文贵先生在美国纽约发起了爆料革命，自此，亿万战友响应并一路跟随郭先生的步伐。直到今年****6月4日，新中国联邦终于在自由女神像前的Lady May甲板上庄严成立。具有独特魅力，万千风情的纽约，就注定成为了万千战友们心向往之的爆料革命和新中国联邦的圣地。**
 
-我們要告訴世界：遵紀守法的新中國聯邦人和中國共產黨不一樣，我們抱著赤誠之心拯救西方，和中共絕無勾兌，我們代表了十幾億中國人真正的善良和美好！
+**10月1日，在中共国的成立日，全球新中国联邦各个农场，共同举行了“终共游行”。从新西兰开始，欧洲，到亚洲，北美，在全世界一片灭共浪潮声中，美东农场近500名战友，在郭先生的居住地前面的中央公园，有着Grand Army Plaza之称的哥伦布圆环前，聚集在一起，在军乐团伴奏，战友合唱团演唱的新中国联邦的国歌—“喜马拉雅-自由之巅”歌声里，举行了盛大的国旗升旗仪式。并用中英文宣读“新中国联邦宣言”序言。接下来，带领爆料革命的吹哨人，新中国联邦的创建者郭文贵先生致辞，并检阅7个方队，21个车队，7个广告车队。现场一浪高过一浪的Take down the CCP的口号声，响彻云霄，久久地回荡在纽约曼哈顿的上空。**
 
-所有參與滅共遊行的人都肩負著上天的使命，展示給全世界無畏的勇氣。面對邪惡的中共政權，新中國聯邦人一直在付諸行動，誓要剷除消滅中共。
+**游行前，各宗教信徒代表为游行队伍祝祷，向万佛万神祈求，保佑新中国联邦终共游行能唤醒世界人民，一起消灭中共邪恶政权。**
 
-全球滅共大遊行從世界最南端的新西蘭開始，隨著太陽升起，和平抗議在韓國、日本、意大利、西班牙、英國、加拿大、美國進行，最終在台灣結束。
+**11点开始，美东农场主，本次游行组织者和总指挥长岛伟哥发表了激情四溢的动员演说，游行队伍随后起步开始游行。从位于59街的哥伦布圆环出发，经过48街的百老汇-莱克辛顿大道-34街-第六大道-第六大道北59街-59街东第五大道，几乎囊括了曼哈顿最繁华，最热闹的商业，文化，政治的中心地带，整个路线连起来就是一个躺着的阿拉伯数字“8”，像极了一个拷在犯人手上的手铐-别忘了，CCP的领事馆就在不远处的42街哈德逊河畔。**
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02211750/%E5%8D%81%E4%B8%802.png)
+**游行队伍一路所经过之处，战友们对着街道，行人，人群聚集处，高声喊着“Chinese Communist Party, The world’s Enemy”, “CCP lied, Americans died”. “Take down the CCP”. “CCP is illegal, CCP ‘s Evil.” “We are not CCP, We love Peace.” “We are not CCP. We love America”. “God bless America, God bless China.”” Action, Action, Action. CCP is over.”等，这些口号加上宣传单，受到曼哈顿民众的交口称赞与共鸣，民众无不摄像，拍手，竖大拇指，跟着喊口号，为我们让路。还有一位美国老先生主动要求加入我们的游行队伍，因为他说他支持川普，知道病毒真相。郭先生为游行队伍配备的安保团队一路开路并保护，更惊喜的是郭先生也悄悄地跟随着队伍，中间还走下车，与战友们握手拥抱，甚至还一度扯下了口罩，表示了与战友们同生死，共命运的坚强意志，极大的鼓舞了现场及世界各地的战友们灭共的决心。**
 
-請欣賞世界各地戰友們的英姿：
+**下午3点，游行队伍又回到中央公园。战友们一起激情洋溢，毫无倦意地合唱文贵先生传遍世界的歌曲Take down the CCP，至此，美东香草山农场十一中秋“终共大游行”正式结束。**
 
-1. [新西蘭](https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f75a1f882371f2d5070cbef)
+**战友们在“香草山之歌”的乐曲声中，稍作休整，把现场打扫清理干净，才意犹未尽地纷纷离去。笔者了解到许多战友从遥远的芝加哥，亚特兰大等城市连日驱车赶来，游行队伍里出现了多位年长者的身影，老战友坚持一路步行，不愿坐随行的车。大家经过一天的辛苦又将匆忙赶回家去，但战友们个个仍然兴高采烈，精神抖数，沉浸在与郭先生的拥抱的温暖里，并表现出对CCP灭亡后，新中国联邦自由和平的幸福生活的无限憧憬与信心。**
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02212414/%E5%8D%81%E4%B8%803.png)
+**纽约，你这座伟大的城市，你的名字，必将被镌刻在新中国联邦的历史丰碑上。你就像自由女神像所代表的精神****-自由民主，时尚高贵，温暖迷人。你将与美利坚国和新中国联邦的友谊一起，与日月同辉，与天地共存！我们的口号表达了战友们的心声：我们爱纽约，爱美国，我们爱新中国联邦，祝福世界爱好和平的人民康乐幸福！**
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02120101/%E6%96%B0%E8%A5%BF%E5%85%B0-%E5%A5%A5%E5%85%8B%E5%85%B0-1-1536x1023-1.jpeg)奧克蘭
-2.[韓國](https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f75a41082371f2d5070cd2d)
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02120232/%E9%9F%A9%E5%9B%BD.png)首爾
-3.[日本](https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f75aded82371f2d5070d40f)
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02120330/%E6%97%A5%E6%9C%AC-1-2048x1122osaka.png)東京![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02175141/osaka-1-scaled.jpeg)大阪
-4.[意大利](https://twitter.com/VOH_Deutsch/status/1311727677196337159?s=20)
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02121022/%E6%84%8F%E5%A4%A7%E5%88%A9-1.jpeg)羅馬
-5.[西班牙](https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f75b46e82371f2d5070d844)
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02175314/%E8%A5%BF%E7%8F%AD%E7%89%992-1-scaled.jpg)巴塞羅那
-6.[英國](https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f75d9bb82371f2d5070f73f)
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02150529/42add62f-4024-4e8b-bfa7-a98807ae9b96.jpg)倫敦
-7.[加拿大](https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f7687c982371f2d50717941)
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01170415/F10.jpg)蒙特利爾![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01194438/image0-3.jpg)溫哥華
-8.[美國](https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f75f38482371f2d50710cd5)
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02121310/%E7%BE%8E%E5%9B%BD-%E7%BA%BD%E7%BA%A6-2-2048x955-1.png)紐約![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02121326/%E6%97%A7%E9%87%91%E5%B1%B1.jpg)舊金山![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02175937/St-US-1-scaled.jpeg)洛杉磯
-9.[台灣](https://twitter.com/taiwan_himalaya/status/1311890176327651333?s=20)
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02122149/%E5%8F%B0%E6%B9%BE.png)台北
 0
