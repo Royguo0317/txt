@@ -1,42 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 十一特稿·总结中共8：超限战
-`2020-10-02 14:08 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/398219/)
+## 10月1日全球滅共大遊行圖集
+`2020-10-02 18:19 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/398538/)
 
-作者：美东香草山农场教育组
+喜馬拉雅聯盟加拿大農場 文錦
 
-超限战并不是什么新事物，更代表不了文明的进步!恰恰相反，它是把人类文明从高阶拉回丛林时代的巨大陷阱!与其相比，传统战争尚可视为文明发展的结果，因为，后者至少严格限定了战争边界，区分开前线和后方，作战人员和平民，从而将战争对大多数人的影响降到最低水平。
+10月1日，當地時間早晨八點整，在新西蘭最南端的因佛卡吉爾（Invercargill) — 新西蘭南方理工學院校園，升起了新中國聯邦的國旗，拉開了十一新中國聯邦滅共大遊行的序幕。之所以選這一天，因為是中共國的“國慶日”，這實際上是其長達七十多年的中共極權獨裁和惡政的象徵，是中國人的“國殤日”。這天也是傳統的中秋節，多少父母、子女因為中共的殘暴統治和戕害生命的中共病毒而骨肉分離、難以相見。
 
-超限战则粗暴颠覆了传统战争的一切界限，它让每一个领域都变成了战场，每一个社会成员都变成了战争人员。换言之，如果说传统战争是在特定范围内通过特定手段而进行的，超限战则不限范围、不限手段。为达到目的而不择手段是超限战的本质。超限战带来的不仅是战争升级，更是对人类社会赖以存在的信用体制的毁灭性破坏。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02140437/%E5%9B%BE%E7%89%874-2.png)
-中共虽然不是超限战的发明者，却是唯一以举国之力推进超限战策略的执政党。这个政府几十年来控制了全世界最大人口国，和仅次于美国的第二大经济体。
+爆料革命的戰友們在世界各地發出正義的聲音和訴求：揭露中共病毒真相，讓世界人民認識到中國共產黨的邪惡，宣傳新中國聯邦，展現新中國聯邦人的形象。
 
-要理解中共为什么如此热衷于超限战，必须先认识中共毫无底线的魔鬼本质。正常人的思维方式都是基于某几项原则，即核心价值观，然后往上建构观点，得出结论，作为他们日常言行的指导。然而，中共从来都不是正常人的组织，相反，它是把正常人变成鬼的魔鬼组织。中共的魔鬼本质决定了它不可能与文明社会长期共处，所以当条件还不成熟时，它会精心营 造假象，迷惑外界。然而一旦形势需要，它会随时撕下伪装，让人猝不及防。典型例子除了前面介绍的活摘器官、血清针之外，还有通过底层软件操纵股市交易，渗透收买西方媒体、使其成为大宣传策略的一部分，以及今年初蓄意将 CCP 病毒导向国际社会，制造出全球性大瘟疫。
+我們要告訴世界：遵紀守法的新中國聯邦人和中國共產黨不一樣，我們抱著赤誠之心拯救西方，和中共絕無勾兌，我們代表了十幾億中國人真正的善良和美好！
 
-**一件令人迷惑的往事****：****2015 年天津大爆炸，第三次核爆炸?**
-2015年8月12日，中国北方港口城市天津发生大爆炸。据官方事后的解释，爆炸是危险化学品存放管理不当导致局部高温而引发。
+所有參與滅共遊行的人都肩負著上天的使命，展示給全世界無畏的勇氣。面對邪惡的中共政權，新中國聯邦人一直在付諸行動，誓要剷除消滅中共。
 
-但事情没有看起来这么简单。
-爆炸次日美国NBC一篇报道的标题为:像“核弹”一样的中国天津大爆炸。同一天香港《南华早报》的报道标题是:这是核弹爆炸吗? 请注意《南华早报》的母公司为阿里集团，后者由中国超级富豪马云控制，而马云与中共高层有密切联系。要知道，在中国像《南华早报》这样拥有深厚政治背景的报纸提出质疑时，它肯定不是胡乱猜测，而一定有所指向，甚至已经掌握了某种内幕消息。
-两周后的8月27日，geopolitics.co 网站深度报道:多名核武器专家确认天津爆炸为核爆炸所引发。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02132541/%E5%9B%BE%E7%89%871-2.png)图片来源：EUROPEAN PRESSPHOTO AGENCY
-当然，大部分媒体包括维基百科都遵循了中共的官方报道。
-2020年5 月，一名中共太子党在一个 YouTube 视频中爆料，2015 年天津爆炸为小型核弹引发，它起因于中共高层政治内斗，是习近平的政敌为除掉习而铤而走险(注:太子党指那些在 1949 年前立下显赫战功的共产党高官后代)。
+全球滅共大遊行從世界最南端的新西蘭開始，隨著太陽升起，和平抗議在韓國、日本、意大利、西班牙、英國、加拿大、美國進行，最終在台灣結束。
 
-限于证据不足我们对此不做任何结论。但作为从小生长在共产党统治下的中国人，多年跟共产党打交道形成的常识和直觉都告诉我们，如果核武器能帮助他们摆脱困境，他们会毫不犹豫地出手。别忘了这种权力内斗直接关系以万亿计数的财富重新分配。同时，它也符合中共做事没有任何底线的本质。
+請欣賞世界各地戰友們的英姿：
 
-如果读者对这个话题感兴趣，建议您搜索关于天津爆炸的报道、视频、分析，自行做出判断。
+1. [新西蘭](https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f75a1f882371f2d5070cbef)
 
-References:
-1, In 2017, Miles Guo first exposed the CCP’s deadly “3F plan” against the US at a presser, in which Guo predicted a dire scenario: “…it will cause an enormous harm to the American, and their lives and properties… **it might be 100, even 1000 times**” Please note this speech was made nearly three years ago, and compare it to the current state of America as a result of the CCP virus. Video: https://gnews.org/154724/ 
-2, Tianjin, China Explosions Like ‘Nuclear Bomb’: American Witness https://www.nbcnews.com/news/world/tianjin-explosions-californian-witness-filmed-dramatic-china-blasts-n409701
-3, ‘Is this a nuclear bomb?’ https://www.scmp.com/news/china-insider/article/1849157/nuclear-bomb-apocalyptic-scenes-tianjin-china-after-industrial 3, Experts Confirmed Tianjin Blast Was Nuclear
-https://geopolitics.co/2015/08/27/experts-confirmed-tianjin-blast-was-nuclear/
-4, The inside story about the 2015 Tianjin explosion by a top-brass CCP princeling, starting at minute 21. https://www.youtube.com/watch?v=Vckk6iFTXx4 (CHN)
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/Mos_Himalaya)！[Tweets by Mos\_Himalaya](https://twitter.com/Mos_Himalaya?ref_src=twsrc%5Etfw)
-
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02120101/%E6%96%B0%E8%A5%BF%E5%85%B0-%E5%A5%A5%E5%85%8B%E5%85%B0-1-1536x1023-1.jpeg)奧克蘭
+2.[韓國](https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f75a41082371f2d5070cd2d)
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02120232/%E9%9F%A9%E5%9B%BD.png)首爾
+3.[日本](https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f75aded82371f2d5070d40f)
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02120330/%E6%97%A5%E6%9C%AC-1-2048x1122osaka.png)東京![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02175141/osaka-1-scaled.jpeg)大阪
+4.[意大利](https://twitter.com/VOH_Deutsch/status/1311727677196337159?s=20)
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02121022/%E6%84%8F%E5%A4%A7%E5%88%A9-1.jpeg)羅馬
+5.[西班牙](https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f75b46e82371f2d5070d844)
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02175314/%E8%A5%BF%E7%8F%AD%E7%89%992-1-scaled.jpg)巴塞羅那
+6.[英國](https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f75d9bb82371f2d5070f73f)
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02150529/42add62f-4024-4e8b-bfa7-a98807ae9b96.jpg)倫敦
+7.[加拿大](https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f7687c982371f2d50717941)
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01170415/F10.jpg)蒙特利爾![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/01194438/image0-3.jpg)溫哥華
+8.[美國](https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f75f38482371f2d50710cd5)
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02121310/%E7%BE%8E%E5%9B%BD-%E7%BA%BD%E7%BA%A6-2-2048x955-1.png)紐約![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02121326/%E6%97%A7%E9%87%91%E5%B1%B1.jpg)舊金山![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02175937/St-US-1-scaled.jpeg)洛杉磯
+9.[台灣](https://twitter.com/taiwan_himalaya/status/1311890176327651333?s=20)
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02122149/%E5%8F%B0%E6%B9%BE.png)台北
 0
