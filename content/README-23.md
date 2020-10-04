@@ -14,6 +14,12 @@
 
 ## 頁面 23/29 [**<**](/content/README-22.md) [1](/content/README.md) ... [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) **23** [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) ... [**>**](/content/README-24.md) [查看全部](/content/README-all.md)
 
+[文字版路德访谈郭文贵先生：419VOA断播门一周年回顾，再爆新料，展望！（第一部分关于吴晓晖，中共蓝金黄美国）](/content/2018/04/20180421-8587540103403110873.md)
+
+[文字版420文贵将爆中南坑里的老婆女儿的性丑闻](/content/2018/04/20180421-8336686313989639143.md)
+
+[文字版2018.04.16文贵在Livestream与战友互动精华版](/content/2018/04/20180418-6010504136647402175.md)
+
 [文字版4月14号文贵报平安视频：文贵乱谈美国及盟国导袭叙利亚！是否是中国的第二次战略机会！还是盗国贼盗国的最大机会！我们应该怎么看！一切都是刚刚开始！](/content/2018/04/20180418-263041945712607182.md)
 
 [文字版2018年4月13日文贵为什么要爆杨洁篪的料！](/content/2018/04/20180418-500002948561788779.md)
@@ -57,12 +63,6 @@
 [文字版：3月20日文贵报平安视频.盗国贼靠吴征等能依法治国！实现中国梦吗？](/content/2018/04/20180418-8337465493911865893.md)
 
 [文字版：2018年3月18日文贵再谈如何掏肛盗国贼](/content/2018/04/20180418-39810748690895167.md)
-
-[文字版：03/17/18文贵如何看王岐山当选副主席郭七条变不变！喜马拉雅的法治中国目标还能实现吗？](/content/2018/04/20180418-8884654215311993874.md)
-
-[头条：罗杰斯通因诽谤而被富商郭文贵起诉索赔1亿美元](/content/2018/04/20180418-8895540675062184474.md)
-
-[文字版：03/16/18如何感恩．并享受．砸郭运动！王岐山到底是总理还是监察委主任．副主席？一切都是刚刚开始！](/content/2018/04/20180418-2325296927078284742.md)
 
 
 ## 頁面 23/29 [**<**](/content/README-22.md) [1](/content/README.md) ... [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) **23** [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) ... [**>**](/content/README-24.md) [查看全部](/content/README-all.md)

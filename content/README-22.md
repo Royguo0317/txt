@@ -14,6 +14,12 @@
 
 ## 頁面 22/29 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) ... [29](/content/README-29.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)
 
+[文字版6/27/18郭媒体直播](/content/2018/06/20180630-1675811568156911003.md)
+
+[文字版：6月25日 房峰辉为什么问蒂斯这个一个美国战亡士兵价值值中扺国一个连退休士命的命钱](/content/2018/06/20180626-3936778233865225859.md)
+
+[文字版：6月17日父亲节谈与政法委老领导的通话！请草根警察不要伤害遭受不公平的草根司机！](/content/2018/06/20180619-3280425494890246053.md)
+
 [文字版：20186月10日玉岐山孟建柱命不久了马航真相一定会公布(一)](/content/2018/06/20180612-5378414891358976970.md)
 
 [翻译：“中华文春砲”郭文贵与29年无果的民主运动家的不同作者：李小牧 2018年6月2日](/content/2018/06/20180607-8000393637108456093.md)
@@ -57,12 +63,6 @@
 [文字版：4月21号文贵在此庄严地严肃地向中南坑里的某些：妖和怪们．致以衷心的道歉，文贵不会让你们失望的！](/content/2018/04/20180421-5848429127591941015.md)
 
 [文字版：路德访谈郭文贵先生：419VOA断播门一周年回顾，再爆新料，展望！（第二部分龚小夏连线提问）](/content/2018/04/20180421-3038856326236637866.md)
-
-[文字版路德访谈郭文贵先生：419VOA断播门一周年回顾，再爆新料，展望！（第一部分关于吴晓晖，中共蓝金黄美国）](/content/2018/04/20180421-8587540103403110873.md)
-
-[文字版420文贵将爆中南坑里的老婆女儿的性丑闻](/content/2018/04/20180421-8336686313989639143.md)
-
-[文字版2018.04.16文贵在Livestream与战友互动精华版](/content/2018/04/20180418-6010504136647402175.md)
 
 
 ## 頁面 22/29 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) ... [29](/content/README-29.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)
