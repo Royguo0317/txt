@@ -1,42 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 十一特稿·总结中共8：超限战
-`2020-10-02 14:08 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/398219/)
+## 財經普及關鍵詞【貨幣職能】
+`2020-10-04 23:12 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/402999/)
 
-作者：美东香草山农场教育组
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/04191228/Picture1-3.png)圖片來源： [https://www.thechinaguide.com/blog/chinese-currency](https://www.thechinaguide.com/blog/chinese-currency)
+貨幣，是為了提高效率而用於交換的中介商品。貨幣價值由經濟活動中的交易效率決定。
 
-超限战并不是什么新事物，更代表不了文明的进步!恰恰相反，它是把人类文明从高阶拉回丛林时代的巨大陷阱!与其相比，传统战争尚可视为文明发展的结果，因为，后者至少严格限定了战争边界，区分开前线和后方，作战人员和平民，从而将战争对大多数人的影响降到最低水平。
+### **貨幣的職能**
 
-超限战则粗暴颠覆了传统战争的一切界限，它让每一个领域都变成了战场，每一个社会成员都变成了战争人员。换言之，如果说传统战争是在特定范围内通过特定手段而进行的，超限战则不限范围、不限手段。为达到目的而不择手段是超限战的本质。超限战带来的不仅是战争升级，更是对人类社会赖以存在的信用体制的毁灭性破坏。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02140437/%E5%9B%BE%E7%89%874-2.png)
-中共虽然不是超限战的发明者，却是唯一以举国之力推进超限战策略的执政党。这个政府几十年来控制了全世界最大人口国，和仅次于美国的第二大经济体。
+在1875年，威廉·斯坦利傑文斯的《貨幣與交換機制》一書中詳細介紹了貨幣的四個職能：交易媒介，記賬單位，儲存價值和延期支付的標準。有趣的是，現代經濟學通常只列出前兩個功能，不再包括延期支付的標準和儲存價值。
 
-要理解中共为什么如此热衷于超限战，必须先认识中共毫无底线的魔鬼本质。正常人的思维方式都是基于某几项原则，即核心价值观，然后往上建构观点，得出结论，作为他们日常言行的指导。然而，中共从来都不是正常人的组织，相反，它是把正常人变成鬼的魔鬼组织。中共的魔鬼本质决定了它不可能与文明社会长期共处，所以当条件还不成熟时，它会精心营 造假象，迷惑外界。然而一旦形势需要，它会随时撕下伪装，让人猝不及防。典型例子除了前面介绍的活摘器官、血清针之外，还有通过底层软件操纵股市交易，渗透收买西方媒体、使其成为大宣传策略的一部分，以及今年初蓄意将 CCP 病毒导向国际社会，制造出全球性大瘟疫。
+#### **交易媒介（Medium of Exchange）**
 
-**一件令人迷惑的往事****：****2015 年天津大爆炸，第三次核爆炸?**
-2015年8月12日，中国北方港口城市天津发生大爆炸。据官方事后的解释，爆炸是危险化学品存放管理不当导致局部高温而引发。
+再商品買賣中，商品的讓渡和貨幣的讓渡是在同時完成的。因此，價值是雙向的，即賣方在的到貨幣的同時出讓使用價值，買方在讓渡價值的同時獲得使用價值。
 
-但事情没有看起来这么简单。
-爆炸次日美国NBC一篇报道的标题为:像“核弹”一样的中国天津大爆炸。同一天香港《南华早报》的报道标题是:这是核弹爆炸吗? 请注意《南华早报》的母公司为阿里集团，后者由中国超级富豪马云控制，而马云与中共高层有密切联系。要知道，在中国像《南华早报》这样拥有深厚政治背景的报纸提出质疑时，它肯定不是胡乱猜测，而一定有所指向，甚至已经掌握了某种内幕消息。
-两周后的8月27日，geopolitics.co 网站深度报道:多名核武器专家确认天津爆炸为核爆炸所引发。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02132541/%E5%9B%BE%E7%89%871-2.png)图片来源：EUROPEAN PRESSPHOTO AGENCY
-当然，大部分媒体包括维基百科都遵循了中共的官方报道。
-2020年5 月，一名中共太子党在一个 YouTube 视频中爆料，2015 年天津爆炸为小型核弹引发，它起因于中共高层政治内斗，是习近平的政敌为除掉习而铤而走险(注:太子党指那些在 1949 年前立下显赫战功的共产党高官后代)。
+#### **記賬單位（Unit of Account）**
 
-限于证据不足我们对此不做任何结论。但作为从小生长在共产党统治下的中国人，多年跟共产党打交道形成的常识和直觉都告诉我们，如果核武器能帮助他们摆脱困境，他们会毫不犹豫地出手。别忘了这种权力内斗直接关系以万亿计数的财富重新分配。同时，它也符合中共做事没有任何底线的本质。
+記賬單位是貨幣作為社會勞動的直接體系。貨幣本身亦是一種商品，可以以資金為標準與其它商品進行比較。當貨幣執行這一功能時，**貨幣只需要以想像中的或是觀念上的形式存在就可以了**，而他的單位則必須依賴於現實中的流通貨幣。貨幣本身作為商品也存在於不同貨幣之間，因此人們為貨幣也需制定一個定價標準，往往是與重金屬掛鉤。
 
-如果读者对这个话题感兴趣，建议您搜索关于天津爆炸的报道、视频、分析，自行做出判断。
+現階段任何現代貨幣，尤其是紙幣和電子貨幣，已經沒有了任何儲存價值，故儲存價值已不在現今貨幣功能中。而延期支付的標準，是在賒銷賒購中，貨幣被用來償還債務，所以本質上這只是對債務的一種衡量方式，而不是貨幣的功能。因債務的價值會因為通脹和貨幣貶值而減少，所以延期支付的功能因從以上三個功能中特別拆分出來。
 
-References:
-1, In 2017, Miles Guo first exposed the CCP’s deadly “3F plan” against the US at a presser, in which Guo predicted a dire scenario: “…it will cause an enormous harm to the American, and their lives and properties… **it might be 100, even 1000 times**” Please note this speech was made nearly three years ago, and compare it to the current state of America as a result of the CCP virus. Video: https://gnews.org/154724/ 
-2, Tianjin, China Explosions Like ‘Nuclear Bomb’: American Witness https://www.nbcnews.com/news/world/tianjin-explosions-californian-witness-filmed-dramatic-china-blasts-n409701
-3, ‘Is this a nuclear bomb?’ https://www.scmp.com/news/china-insider/article/1849157/nuclear-bomb-apocalyptic-scenes-tianjin-china-after-industrial 3, Experts Confirmed Tianjin Blast Was Nuclear
-https://geopolitics.co/2015/08/27/experts-confirmed-tianjin-blast-was-nuclear/
-4, The inside story about the 2015 Tianjin explosion by a top-brass CCP princeling, starting at minute 21. https://www.youtube.com/watch?v=Vckk6iFTXx4 (CHN)
+當了解了貨幣的功能後，相信能更好的理解通脹和通縮。簡而言之，當實際通貨量大於所需通貨量是，便會導致貨幣貶值，形成通脹。反之，就會導致通縮。那麼，這裡的關鍵就是實際通貨量和所需通貨量。在此，我們想結合一下之前兩個大新聞來簡單分析一下中共想在人民幣上玩什麼花活。由近及遠，第一條便中共兩月前大規模推進數字貨幣測試。私以為，中共推進數字貨幣無疑就是想潛移默化的弱化貨幣交易媒介的職能，進而淡化貨幣的價值。說的通俗點，即中共想把貨幣往數字靠，這裡的數字真的就是字面意思。這麼做的好處一方面是防止銀行被擠兌，另外就是老百姓在面對盜國賊的剝削時會更加麻木。
+
+第二條大新聞便時前兩年吵得沸沸揚揚得人名幣不再以美元為錨，而要以國債為錨。中共推行這一政策無疑是將人名幣的商品這一屬性不斷淡化。上面說過，貨幣也是商品的一種，是商品那就有價格，取消金本位後貨幣的價格自然就需要靠其它貨幣來體現。而以國債為錨的問題就是中共超發國債規模之巨已經到了足以擾亂整個市場的程度，既然債務市場已經混亂不堪，人民幣的真實價格就根本無所知, 人民幣記賬單位這以功能也將慢慢失去。中共在此故意混淆了貨幣和債務的概念並未將來的金融爆雷已經埋下伏筆。當然，渾水摸魚才是中共一貫拿手好戲。
+
+經上面的簡單分析後，我想問各位看官個的問題：這人名幣還是貨幣麼？這人名幣還算錢么？
+
+新聞素材：
+
+- [https://www.bbc.com/zhongwen/simp/business-53722841](https://www.bbc.com/zhongwen/simp/business-53722841)
+- [https://www.reuters.com/article/idCNCHINA-3677620110118](https://www.reuters.com/article/idCNCHINA-3677620110118)
 
 
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/Mos_Himalaya)！[Tweets by Mos\_Himalaya](https://twitter.com/Mos_Himalaya?ref_src=twsrc%5Etfw)
+By：【秘翻組·金融法律組】
 
 0
