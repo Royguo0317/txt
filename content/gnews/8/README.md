@@ -1,27 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國美中經濟與安全評估委員會發佈在美上市中資公司清單
-`2020-10-05 22:39 GM65` [轉載自GNews](https://gnews.org/zh-hant/405180/)
+## 滅共中嘅嘅珍珠港事件-刺殺川普總統!  CCP你完啦!
+`2020-10-06 01:54 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/405649/)
 
-10月2日，美中經濟與安全評估委員會（US-China Economic and Security Review Commission）公佈了一份[《在美主要證券交易所上市中資公司》清單](https://www.uscc.gov/sites/default/files/2020-10/Chinese_Companies_on_US_Stock_Exchanges_10-2020.pdf)（Chinese Companies Listed on Major US Stock Exchanges），其中列出了在納斯達克、紐約證券交易所和美國證券交易所三家主要交易市場上市的217家中資公司，總市值達2.2萬億美元，按其市值的大小排列。其有13家國家級中共國有企業（SOE）上市，在列表中以星號（\*）標出。
+作者：改藍
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06014720/prayfortrump.jpg)
+10月1號喺七哥同農場聯盟嘅領導的戰友們多國同時展開咗轟轟烈烈嘅遊行,痛斥CCP嘅惡性,並且把CCP同中國人區分開,為下一步滅共行動做舖墊,本來戰友們勝利滿滿舉杯相慶,結果次日2號凌晨突然傳出川普總統夫婦確診CCP病毒嘅新聞,戰友們十分擔心,牆內卻舉國同慶醜態百出! 在CCP病毒出現以後,川普總統及家人身邊出現多次到爆燈嘅被感染者,就好似七哥講嘅,CCP一定會向川普投毒,(七哥係有情報嘅白宮真係一啲準備都冇么? )企圖用暗殺嘅手段阻止川普連任,只係最近川普總統不知為何停用硫酸羥氯胍,加上3個硬盤事件,大法官事件等埋。
 
-該中資公司清單使用的是紐約證券交易所、納斯達克、商業投資數據庫和上市公司會計監督委員會（PCAOB）的信息編制而成。其中納斯達克信息是截至2019年2月25日的最新信息，此後，納斯達克不再公開提供總部在國外的公司的信息總匯。
+CCP感受到咗強烈嘅危險,更加深度嘅不惜代價嘅暗殺川普總統,終於小人得逞歡喜一時,但係CCP又豈知,自己只係秌後嘅螞草,今次折騰都不過昰返炤之光,最終要搬起石頭砸斷自己嘅腳,梗係CCP都係冇辦法先會採取暗殺手段,佢哋自己嘅唔自信可窺一斑,由此引發嘅邪惡手段唔會係最後一個,但係從七哥以身釣魚3年以來,CCP嘅牌有係明牌,自己仲不亦樂乎,老賊你惡任你恶,讓你再折騰個一年半載都係涵養,涵養完就係入咗屠宰場嘅豬,一聲尖叫,一命嗚嘑!
 
-收入這個清單的標準有兩個，一是“被相關證券交易所認定為來自中華人民共和國（PRC）”，二是“在向美國證券交易委員會提交的文件中，將中國地址列為其主要執行辦公室”。但有些在美上市的離岸公司沒有說明其國籍，或總部、母公司或執行辦公室的地址，所以尚未收入清單。也不包括香港註冊的公司。
+由於之前病毒肆虐係全球事件,好難凝聚美國人民焦點,但係此次CCP豬急撞圈嘅行為,真正就係針對美國白宮嘅珍珠港襲擊,睇下美國民眾爆發嘅為川普祈福嘅遊行,睇下川普半數以上嘅支持者,等到跟住闫博士嘅第二篇報告出炉,證實生物武器,司法部門調查投 毒事件,七哥嘅爆料,川普支持者們清晰嘅睇到佢哋敬仰嘅總統先生原來係遇刺了,死咗幾十萬人嘅病毒係CCP嘅生化武器,接下來美國民眾嘅民意會如何沸騰,濤濤滅共潮如何的洶湧,以美滅共應該會達到一個歷史嘅高潮! (戰友們嘅滅共遊行係幾咁嘅緊要,挽救民族! )睇下戰,德國使用超限戰(無限制潛艇戰)之後美國參戰;睇下二戰,日本襲擊美國本土後美國參戰;睇下反恐,911之後美國全世界滅恐,結局唔使多講!
 
-該清單還明確指出，對中資公司投資可能帶來與中國大陸法律、法規和金融環境相關的風險，包括：缺乏透明度，可變利益實體在中國沒有法律效力，給美國國家安全帶來風險。
-
-以下是[清單](https://www.uscc.gov/sites/default/files/2020-10/Chinese_Companies_on_US_Stock_Exchanges_10-2020.pdf)列出的217家公司，包括：代號，名稱，市值（百萬美元），首次公開募股（IPO）年份，IPO價值（百萬美元），行業，主承銷商
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223246/Screen-Shot-2020-10-05-at-21.40.48.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223301/Screen-Shot-2020-10-05-at-21.40.40.png)
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223329/Screen-Shot-2020-10-05-at-21.41.18.png)
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223341/Screen-Shot-2020-10-05-at-21.41.26.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223352/Screen-Shot-2020-10-05-at-21.41.35.png)
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223403/Screen-Shot-2020-10-05-at-21.41.44.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223414/Screen-Shot-2020-10-05-at-21.41.50.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223426/Screen-Shot-2020-10-05-at-21.41.57.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223437/Screen-Shot-2020-10-05-at-21.42.09.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223448/Screen-Shot-2020-10-05-at-21.42.16.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223459/Screen-Shot-2020-10-05-at-21.42.24.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223511/Screen-Shot-2020-10-05-at-21.42.31.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223523/Screen-Shot-2020-10-05-at-21.42.43.png)
-（備註：據維基百科信息，美中經濟與安全評估委員會（英語：United States-China Economic and Security Review Commission，縮寫：USCC；英語簡稱：US-China Commission；台灣譯為美中經濟暨安全檢討委員會），是一個美國政府於2000年10月通過國會授權設立，以負責監督和調查美國與中共國之間的國家安全和貿易問題的機構。成員由兩黨國會議員組成，每年發布年度報告，被認為是美國國會、白宮，決定美中政策的重要指南。）
-
-[原文鏈接](https://www.uscc.gov/chinese-companies-listed-major-us-stock-exchanges)
+美國人也見過惡人,也有不少惡人,但是我們發現當惡人展示出非人的嘴臉以後,美國必然會承接上帝旨意,消滅魔鬼,這就是天選之國,天選總統,有神助承接天意! 由此川普總統必然會康復如初,以120倍嘅精力投入到滅共嘅工作中嚟,有了生化武器和刺殺呢個抓手,民意和大法官等內外力量嘅撐,川普總統必然會有更多真善狠嘅手段攞出嚟,滅共事業必將又攀一個新嘅高峰! 当川普總統徹底恢復,回睇呢個過程,唔又係練就了一把屠魔利刃么?  CCP你完啦! 你真系完啦!
 
 0

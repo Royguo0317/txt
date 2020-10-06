@@ -1,34 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 梵蒂岡教宗成為反對資本主義市場製度的中共代言人
-`2020-10-05 19:35 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/404910/)
+## 【世界多語言圖文】2020/09/26CCP病毒每日疫情直播簡報
+`2020-10-05 23:40 GM62` [轉載自GNews](https://gnews.org/zh-hant/405008/)
 
-![A person holding an umbrellaDescription automatically generated]()![A person holding an umbrellaDescription automatically generated](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05192008/1-22.png)
-*圖片來源：* *(foreignpolicy.com)*
+戰友之家圖文摘要及小語種組
 
-據《時代周刊》（Time）網站10月4日報導，梵蒂岡教宗弗朗西斯（Pope Francis）稱，中共病毒大流行證明資本主義市場製度的魔法理論已經失敗，世界需要一種新的政治制度來促進對話與團結，並呼籲不惜一切代價反對戰爭。
+[English\_0926\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05233530/English_0926_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05233530/English_0926_CCP_Virus_Updates.pdf)
 
-報導指出，週日，弗朗西斯在紀念與他同名的和平愛好者，聖徒阿西西**·**聖弗朗西斯（St. Francis of Assisi）的節日發布了題為“全體兄弟”（“Fratelli Tutti”\*\*\* \*\*[0]\*\*\*\*\*\*）的通諭（encyclical），為“后冠狀病毒世界”（post-COVID world）提出了他的願景。
+[French\_0926\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05233555/French_0926_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05233555/French_0926_CCP_Virus_Updates.pdf)
 
-新通諭包含了教宗的社會教導的核心要素，以激發人們對家庭的重新認識。 《時代周刊》稱，教宗是在他先前關於全球經濟造成社會不公並導致環境破壞的宣講的啟發下寫成了這個新通諭，呼籲人類要加強團結，以應對“封閉世界上空的烏雲”。
+[German\_0926\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05233535/German_0926_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05233535/German_0926_CCP_Virus_Updates.pdf)
 
-報導稱，在通諭中，弗朗西斯甚至反對天主教自己有關將戰爭作為合法防御手段的教義，說這個教義在過去的世紀中被廣泛使用，並不好。他在最有爭議的新章節中寫道，“現代世界很難用古時候的邏輯去談論正義戰爭的可能性。”教宗表示，現在的中共病毒大流行印證了他的看法，即需要改革現有的政治和經濟機構來應對中共病毒，並幫助最嚴重的受害者。
+[Japanese\_0926\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05233540/Japanese_0926_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05233540/Japanese_0926_CCP_Virus_Updates.pdf)
 
-據《時代周刊》的報導，教宗在通諭裡寫道，“世界現存的各種制度在瘟疫大流行面前表現出的脆弱性，證明自由市場並非能解決所有的問題，必須要製定積極的經濟政策，以形成’富有成效的多樣化和具有商業創造力的經濟’，使之能增加而不是減少工作機會”。他還批評平民主義的政治尋求將使人們相互責怪和相互孤立，他倡導有助於對話、團結和為共同利益而努力的“接觸文化”。他還進一步引申說，他不贊成絕對的私有財產權，提倡以“社會目的”和共同利益來分享地球的資源。
+[Korean\_0926\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05233545/Korean_0926_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05233545/Korean_0926_CCP_Virus_Updates.pdf)
 
-《時代周刊》還指出，弗朗西斯不贊成對企業和富人實行低監管和低稅負的新自由主義經濟理論，說該理論解決不了它聲稱要解決的問題。理由是該理論的“外溢”（spillover）效應並沒有解決不平等的問題，這種不平等引發了威脅社會結構的新形式暴力。
+[Spanish\_0926\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05233551/Spanish_0926_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05233551/Spanish_0926_CCP_Virus_Updates.pdf)
 
-報導最後稱，弗朗西斯明確要求將他這個講話廣為傳閱，刊登在梵蒂岡報紙上，在禮拜日免費發放給聖彼得廣場上的信眾，並作為因中共病毒封城後停刊的文字版重新發行的標誌。
 
-譯評：鐵了心要和共產中國延續勾兌關係的弗朗西斯，變相宣傳人民公社、供銷社，濫用梵蒂岡在天主教中的地位宣揚共產主義，反對資本主義市場製度，更有甚者反對私有財產權利，與自由世界為敵，通過反對戰爭作為防御手段的教義阻止自由世界對中共已經發動的超限戰的反擊，其中宗教就是中共發動的超限戰的一部分。
-
-[原文鏈接](https://time.com/5896193/pope-market-capitalism/?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=editorial&amp;utm_term=world_&amp;linkId=101157775)
-
-譯者：CPA Jim
-
-校對：文旺
-
-·
 
 0

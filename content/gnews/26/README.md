@@ -1,37 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇，你還能隱瞞多久！ &#8211;法官有令，提交通信記錄
-`2020-10-05 18:52 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/404823/)
+## 器官強摘：對大規模暴行視而不見
+`2020-10-05 22:50 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/405175/)
 
-喜馬拉雅聯盟加拿大農場 laotou
+*新聞來源：Bitter Winter《寒冬》；作者：MAL MITCHELL；發佈時間：2020年10月4日*
 
-校對 XM
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05184918/express-k.kz_.jpg)圖片來源：express-k.kz
-在福奇想方設法阻止人們使用羥氯喹，高度讚賞WHO對中共病毒的應對措施等一系列的為邪共、魔共站台、背書行徑過程中，除了爆料革命、班農先生的WAR ROOM等向其質詢、聲討外，“每日來電新聞基金會”（DAILY CALLER NEWS FOUNDATION）針對福奇“與魔共舞”的嫌疑，起訴了美國健康與人類服務部（US DEPARTMENT OF HEALTH & HUMAN SERVICES），華盛頓特區法院於今年5月4日受理並立案。
+*翻譯/簡評：XW；校對：TCC；審核：InAHurry；Page：拱卒*
 
-起訴書陳述（第5節）：
+[!\[\]()!\[\](https://spark.adobe.com/page/Oo1SlgnByevxe/images/30d26aad-9d25-4b9f-ba14-3357d228fd3f.jpg?asset_id=61f9fd2f-b42b-488f-8999-bd3d6e619adf&amp;img_etag=%2256713d5f9c0cc02f5ef1952837dcd331%22&amp;size=1024)](https://spark.adobe.com/page/Oo1SlgnByevxe/images/30d26aad-9d25-4b9f-ba14-3357d228fd3f.jpg?asset_id=61f9fd2f-b42b-488f-8999-bd3d6e619adf&amp;img_etag=%2256713d5f9c0cc02f5ef1952837dcd331%22&amp;size=1024)
 
-2020年4月1日，“每日來電新聞基金會”向美國國立衛生研究院（National Institutes of Health）提交了一份《信息自由法》（FOIA）請求，該請求是涉及被告的一部分，要求獲得美國國家過敏和傳染病研究所所長安東尼·福奇（Anthony Fauci）和副主任H.Clifford Lane關於新型冠狀病毒的某些記錄。
+**簡評：**
 
-具體來說，“每日來電新聞基金會”要求這兩位醫生與世界衛生組織、世衛組織官員Bruce Aylward、世衛組織總幹事譚德塞（Tedros Anhanom），以及中共國的電子郵件、備忘錄、報告和其他信件。
+本文特別把器官摘取與種族滅絕、政治迫害連結一起；並指出為什麼這個已經通過國際獨立法庭調查的事件，至今未見行動與譴責。其主要原因竟是商業經濟價值。國際性的大公司為了能與中共國做生意，而罔顧天理，對此惡行視而不見。文中並呼籲“那些有權發起調查或能在國際法庭或聯合國控訴者，應對中共犯下有關種族滅絕行徑的調查肩負起道德勇氣，並在第一時間追責。中共迫害法輪功維吾爾族、基督教等團體，活摘器官罪行滔天，手段無所不用其極，正義或許會遲到但絕不會缺席，從我做起，保留良知，保存希望。
 
-申請時間段為2020年1月1日至2020年4月1日。
+**器官強摘：對大規模暴行視而不見**
 
-起訴書鏈接：
+對CCP來說，摘取和出售那些（因政治或宗教異議）被冤枉的”政治犯”的器官是一樁巨大的生意。但民主國家不能再對此視而不見了。
 
-[https://www.judicialwatch.org/wp-content/uploads/2020/05/DCNF-v-HHS-WHO-complaint-01149.pdf](https://www.judicialwatch.org/wp-content/uploads/2020/05/DCNF-v-HHS-WHO-complaint-01149.pdf)
+[!\[\]()!\[\](https://spark.adobe.com/page/Oo1SlgnByevxe/images/0ffad366-31c3-4082-8f89-74ee64d07d1c.jpg?asset_id=098dc1a2-4e07-4a85-91c6-d1330d97a622&amp;img_etag=%22893affc8f8c985500bb7db1c3ac5ba15%22&amp;size=1024)](https://spark.adobe.com/page/Oo1SlgnByevxe/images/0ffad366-31c3-4082-8f89-74ee64d07d1c.jpg?asset_id=098dc1a2-4e07-4a85-91c6-d1330d97a622&amp;img_etag=%22893affc8f8c985500bb7db1c3ac5ba15%22&amp;size=1024)法輪功學員在布魯塞爾歐洲議會外抗議
 
-據報導，被告（HHS，健康與人類服務部）曾試圖將福奇等通信記錄的發布推到美國大選後，參考新聞鏈接：https://buffalochronicle.com/2020/10/02/judge-rejects -hhs-effort-to-stall-release-of-fauci-emails-until-after-election/
+一項暴行正在進行著，儘管它鮮為人知或令人覺得無法置信，但它確實正在發生著，這就是在中共國政府默許下因器官摘取帶來的大規模謀殺，酷刑和暴利。將這一罪行的事實公之於眾是當務之急，同時我們必須積極採取相應的國際行動。
 
-根據路德社提供的線索，筆者查詢到，《司法觀察》10月2日的一篇文章，題目為“福奇郵件石頭牆？”，文章介紹了9月22日法官Dabney L.Friedrich已經向健康與人類服務部（HHS）下命令，從10月21日起提交福奇等人與WHO、中共國、譚德塞等通信記錄，涉及4200份，300頁。
+這裡最主要的受害者是那些”政治犯”，尤其是法輪功學員。第二大隨時會被強摘器官的團體是維吾爾族的穆斯林。同時還有證據表明受害者還包括西藏佛教徒和一些基督教徒團體。但無論他們的種族和信仰是什麼，他們，尤其是日益增加的法輪功學員都被無情地被視為是對中共意識形態的挑戰。這些不同精神和宗教信仰的人的共同點就是他們都是願意為熱情、真理、人類價值等理想奉獻的人，大大不同於中共意識形態下的那些民族擴張主義和唯物主義者。這些受害者在被活摘器官時都會慘遭殺害，然後其屍體遭焚化。
 
-文章鏈接： [https://www.judicialwatch.org/tom-fittons-weekly-update/fauci-email-stonewall/](https://www.judicialwatch.org/tom-fittons-weekly-update/fauci-email-stonewall/)
+這些暴行的行凶者就是中共這個執行大規模暴行的機器。初步估計每年大概有6-10萬例器官摘除，這些被摘取出售的心臟、肺臟、腎臟、肝臟、角膜高達數十億美元。這在中共國是超級大生意，除了來自美國、英國和世界各地的富人外，較富裕的中共國公民也在接受這些移植，他們有人心知肚明他們受捐的器官從哪來，也有人不明就裡。包括台灣、以色列、西班牙、和意大利在內的一些國家已經採取了相關措施來抵制這種“器官移植旅遊”。但仍有其他一些國家在這反人類的罪行上和中共沆瀣一氣。
 
-法官命令鏈接：
+**種族滅絕？**
 
-[https://www.judicialwatch.org/wp-content/uploads/2020/09/Daily-Caller-News-Foundation-v-HHS-order-01149.pdf](https://www.judicialwatch.org/wp-content/uploads/2020/09/Daily-Caller-News-Foundation-v-HHS-order-01149.pdf)
+[!\[\]()!\[\](https://spark.adobe.com/page/Oo1SlgnByevxe/images/c265092f-561c-46be-a740-ac91188063bb.jpg?asset_id=b6d9b047-d20f-48c3-98bb-ad13ac4d9965&amp;img_etag=%22c9f71931928c99306d025eb5de5c6c4c%22&amp;size=1024)](https://spark.adobe.com/page/Oo1SlgnByevxe/images/c265092f-561c-46be-a740-ac91188063bb.jpg?asset_id=b6d9b047-d20f-48c3-98bb-ad13ac4d9965&amp;img_etag=%22c9f71931928c99306d025eb5de5c6c4c%22&amp;size=1024)
 
-福奇，你等著吧！
+美國1948年《危害種族罪公約》將種族滅絕定義為全部或部分蓄意地毀滅民族、人種、種族或宗教信仰團體。去年，由Geoffrey Nice QC先生領導的獨立法庭，中共國獨立法庭，裁定：強行器官摘取已在中共國存在多年，而且還是大規模猖獗多年。他指出：“那些有權發起調查或能在國際法庭或聯合國控訴者應對中共是否犯下有關種族滅絕行徑調查挑起重擔。他們應該在第一時間問責那些違背《危害種族罪公約》規定的行為”。
+
+中共國獨立法庭本身並沒有得出”種族滅絕”這樣的結論，這考慮到中共之真實意圖並非如此直接了當，因為中共強制活摘器官不僅僅是為了清除法輪功學員，維吾爾族及其他人，更是為了從他們的器官上攫取巨大的利益。換而言之，這個中共齷齪生意中的“紅利”成分狡猾地阻礙了對”種族滅絕行徑”的直接指控。是否種族滅絕問題尚待聯合國確定。
+
+中共國獨立法庭本身並沒有得出”種族滅絕”這樣的結論，這考慮到中共之真實意圖並非如此直接了當，因為中共強制活摘器官不僅僅是為了清除法輪功學員，維吾爾族及其他人，更是為了從他們的器官上攫取巨大的利益。換而言之，這個中共齷齪生意中的“紅利”成分狡猾地阻礙了對”種族滅絕行徑”的直接指控。是否種族滅絕問題尚待聯合國確定。
+
+因為一心想要和中共國繼續並擴大貿易往來，這使得各政府部門或私人單位非常”不便”於對現有的器官摘取證據進行適當審查。如果他們相信歷史會讓他們在這個問題上蒙受恥辱，他們是否會採取行動？他們似乎認為繼續忽視證據得以逍遙法外抱有僥倖，儘管歷史上很多國政府曾認定Nelson Mandela為恐怖分子，卻仍和南非愉快的貿易往來，助長了種族隔離制度。這種不道德自私自利的政府和生意所滋生的不公平，最終導致大規模的暴行。
+
+鑑於在這個問題上缺乏政治上的道德領袖，國際公眾的呼聲是否能扭轉經濟形勢，從而改變這一令人可恥的局面？答案是肯定的。但是誰能知道在當下這個話語權和關注度都被其他問題佔據的世界裡，像這般的呼聲究竟能造成多大動靜、能多效力……我們只能以身做則研究這個問題，並向任何願意傾聽的人適當地呼籲。
+
+[原文鏈接](https://bitterwinter.org/organ-harvesting-a-blind-eye-to-mass-atrocity/)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/Oo1SlgnByevxe/) -點擊spark adobe版
 
 0

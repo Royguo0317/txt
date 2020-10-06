@@ -1,44 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 對中共非法抓捕綁架閆博士母親的聲明
-`2020-10-05 18:43 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/404803/)
+## 美國美中經濟與安全評估委員會發佈在美上市中資公司清單
+`2020-10-05 22:39 GM65` [轉載自GNews](https://gnews.org/zh-hant/405180/)
 
-作者：戰鷹團/喜莊園；發佈時間：2020年10月4日
+10月2日，美中經濟與安全評估委員會（US-China Economic and Security Review Commission）公佈了一份[《在美主要證券交易所上市中資公司》清單](https://www.uscc.gov/sites/default/files/2020-10/Chinese_Companies_on_US_Stock_Exchanges_10-2020.pdf)（Chinese Companies Listed on Major US Stock Exchanges），其中列出了在納斯達克、紐約證券交易所和美國證券交易所三家主要交易市場上市的217家中資公司，總市值達2.2萬億美元，按其市值的大小排列。其有13家國家級中共國有企業（SOE）上市，在列表中以星號（\*）標出。
 
-*校對/審核：海闊天空；Page：拱卒/草根（文人）*
+該中資公司清單使用的是紐約證券交易所、納斯達克、商業投資數據庫和上市公司會計監督委員會（PCAOB）的信息編制而成。其中納斯達克信息是截至2019年2月25日的最新信息，此後，納斯達克不再公開提供總部在國外的公司的信息總匯。
 
-## **對中共非法抓捕綁架閆博士母親的聲明**
+收入這個清單的標準有兩個，一是“被相關證券交易所認定為來自中華人民共和國（PRC）”，二是“在向美國證券交易委員會提交的文件中，將中國地址列為其主要執行辦公室”。但有些在美上市的離岸公司沒有說明其國籍，或總部、母公司或執行辦公室的地址，所以尚未收入清單。也不包括香港註冊的公司。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yWV6mY7oZBkyi/images/58a7f22a-d25d-4df8-b57d-1be2d52aef8d.jpg?asset_id=9dcf10a0-14fb-4e7b-a005-30d2a65ffd63&amp;img_etag=%22cc39f0d7b313640469ee94f519b2abdd%22&amp;size=1024)](https://spark.adobe.com/page/yWV6mY7oZBkyi/images/58a7f22a-d25d-4df8-b57d-1be2d52aef8d.jpg?asset_id=9dcf10a0-14fb-4e7b-a005-30d2a65ffd63&amp;img_etag=%22cc39f0d7b313640469ee94f519b2abdd%22&amp;size=1024)
+該清單還明確指出，對中資公司投資可能帶來與中國大陸法律、法規和金融環境相關的風險，包括：缺乏透明度，可變利益實體在中國沒有法律效力，給美國國家安全帶來風險。
 
-我們近日獲悉英雄女科學家閆麗夢博士的母親被中共政權非法抓捕綁架，我們對中共無法無天、玩弄法律的反人類行為表示強烈的譴責與抗議！如同在香港非法暴力抓捕未成年的孩子一樣，中共政權的黑幫本性已經在世界面前暴露無遺！誰是罪犯不言而喻。
+以下是[清單](https://www.uscc.gov/sites/default/files/2020-10/Chinese_Companies_on_US_Stock_Exchanges_10-2020.pdf)列出的217家公司，包括：代號，名稱，市值（百萬美元），首次公開募股（IPO）年份，IPO價值（百萬美元），行業，主承銷商
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223246/Screen-Shot-2020-10-05-at-21.40.48.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223301/Screen-Shot-2020-10-05-at-21.40.40.png)
 
-中共如此下作，如此不顧臉面，直接棄自己法律的遮羞佈於不顧，在眾目睽睽、光天化日之下裸奔。若非閆博士所說證據確鑿，正中共產黨的七寸，中共怎麼會感到如此恐懼、害怕？若非閆博士所說深具影響力，引起西方社會的廣泛共鳴，中共怎麼會如此驚慌失措？若非閆博士以及爆料革命力量給中共帶來了實質性的威脅，中共怎麼會昏招迭出？
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223329/Screen-Shot-2020-10-05-at-21.41.18.png)
 
-閆博士所作所為是出於一位科研工作者的正直和公義，是出於一位知道內情的醫生對全人類的大愛。她將個人安危置之度外，是為了拯救全人類，捍衛人類的健康和安全。中共非法綁架閆博士的家人，意圖讓她閉嘴，中共意欲與全人類為敵，讓全人類遍受病毒的屠虐，必將受到最嚴厲的懲罰！
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223341/Screen-Shot-2020-10-05-at-21.41.26.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223352/Screen-Shot-2020-10-05-at-21.41.35.png)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yWV6mY7oZBkyi/images/fcb08598-5978-4ea8-8625-a2c5bfe472ad.jpg?asset_id=3090b01c-2b60-429e-93fc-7647f09d8412&amp;img_etag=%221c746093b173fb80f4a65b281f6d5328%22&amp;size=1024)](https://spark.adobe.com/page/yWV6mY7oZBkyi/images/fcb08598-5978-4ea8-8625-a2c5bfe472ad.jpg?asset_id=3090b01c-2b60-429e-93fc-7647f09d8412&amp;img_etag=%221c746093b173fb80f4a65b281f6d5328%22&amp;size=1024)
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223403/Screen-Shot-2020-10-05-at-21.41.44.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223414/Screen-Shot-2020-10-05-at-21.41.50.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223426/Screen-Shot-2020-10-05-at-21.41.57.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223437/Screen-Shot-2020-10-05-at-21.42.09.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223448/Screen-Shot-2020-10-05-at-21.42.16.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223459/Screen-Shot-2020-10-05-at-21.42.24.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223511/Screen-Shot-2020-10-05-at-21.42.31.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223523/Screen-Shot-2020-10-05-at-21.42.43.png)
+（備註：據維基百科信息，美中經濟與安全評估委員會（英語：United States-China Economic and Security Review Commission，縮寫：USCC；英語簡稱：US-China Commission；台灣譯為美中經濟暨安全檢討委員會），是一個美國政府於2000年10月通過國會授權設立，以負責監督和調查美國與中共國之間的國家安全和貿易問題的機構。成員由兩黨國會議員組成，每年發布年度報告，被認為是美國國會、白宮，決定美中政策的重要指南。）
 
-我們在此對閆麗夢博士英勇無畏的行為表示深深的敬佩，同時也對您為我們所做的一切表示由衷的感謝！您的家人就是我們的家人，您家人的悲劇是我們所有人的不幸。無論風雨，我們都將堅定地站在您的身邊，與您並肩戰鬥，不讓英雄孤獨！
-
-對於那些曾經與中共勾兌合作過的科學界人士，希望你們能夠認清中共的嘴臉，能在安全的情況下勇敢揭發病毒真相！中共不滅，無人安全。中共一向兔死狗烹、殺人滅口，如果不反抗中共，無論你多麼享有盛譽，都會不可避免地成為中共的祭品。如果不反抗中共，那些為中共賣命科學家的離奇慘死就是你們的前車之鑑！
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05181150/image-27.png)**左圖：**千人計劃成員中科院物理所趙永芳博士2016年8月15日在美國家中意外去世，終年39歲；右上圖：2020年2月4日，研究冠狀病毒幾十年的
-加拿大科學家Frank Plummer在肯尼亞開會期間因“心髒病發作”去世，他曾出任加拿大國家微生物病毒P4實驗室主任，是調查中共病毒的關鍵人；
-**下中圖：**著名華裔科學家千人計劃成員張首晟於2018年12月1日在美去世終年55歲；**右下圖：**匹茲堡大學醫學院的助理教授劉兵（Liu Bing音譯）
-在新冠病毒研究將發生“重大發現”時於2020年5月2日家中被槍殺，終年37歲。
-
-對於黨內那些良知未泯的人士，希望你們能夠看清中共的邪惡本性，看清中共垂死掙扎的瘋狂，看清中共把所有人當成人肉炸彈的殘忍。歷史的車輪滾滾向前，中共的覆滅結局無法挽回。希望所有黨內的人能懸崖勒馬、回頭是岸，為自己，也為自己的子孫後代積一點德福！
-
-中國共產黨，無論你再張牙舞爪，無論你再癲狂叫囂，無論你再使用什麼陰謀詭計，無論你再使用什麼殘酷手段，你不過是一個色厲內荏、虛張聲勢的紙老虎，你不過是個狐假虎威、寄生人民和西方的可憐蟲。世界的覺醒就是你的末日，人民的反抗就是你的死刑宣判書！我們誓言與你的恐怖行徑鬥爭到底，我們誓言要把你這個人類毒瘤從地球上清除！生命不息、戰鬥不止！希望你能夠識時務者為俊傑，早日釋放閆麗夢博士的母親，早日放下屠刀、讓中國人民少受一點苦難！否則，全世界的正義力量絕對不能放過你們，全中國人民絕對不會放過你們！黃泉路上，好走不送！
-
-[!\[\]()!\[\](https://spark.adobe.com/page/yWV6mY7oZBkyi/images/6676e05f-9c3b-42bb-ae4b-fa6549e3536c.jpg?asset_id=0365c47d-0de2-477b-8543-2d88dc444e2f&amp;img_etag=%22347d73e8a6402c8b23bd2999b36c370e%22&amp;size=1024)](https://spark.adobe.com/page/yWV6mY7oZBkyi/images/6676e05f-9c3b-42bb-ae4b-fa6549e3536c.jpg?asset_id=0365c47d-0de2-477b-8543-2d88dc444e2f&amp;img_etag=%22347d73e8a6402c8b23bd2999b36c370e%22&amp;size=1024)
-
-新中國聯邦·英國喜莊園
-
-2020年10月4日
-
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/yWV6mY7oZBkyi/)
+[原文鏈接](https://www.uscc.gov/chinese-companies-listed-major-us-stock-exchanges)
 
 0
