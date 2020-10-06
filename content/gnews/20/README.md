@@ -1,76 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Gnews熱點追蹤第五期：新中國聯邦的全球大遊行和正道主義
-`2020-10-06 10:05 GM99` [轉載自GNews](https://gnews.org/zh-hant/406342/)
+## 郭先生和這些建築的故事｜康州郭莊：喜馬拉雅目標三大基石的奠基之地
+`2020-10-06 11:14 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hant/406589/)
 
-#### **戰友之家Gnews熱點追蹤工作組 VOG’s Gnews Current Affairs Team**
+作者：天高雲淡LM02
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06095903/%E9%83%AD%E5%85%88%E7%94%9F%E5%92%8C%E4%B8%83%E4%B8%AA%E5%BB%BA%E7%AD%91%E7%9A%84%E6%95%85%E4%BA%8B%E5%BA%B7%E5%B7%9E%E9%83%AD%E5%BA%84.jpg)
+古典的中華文明終於秦制之後，中國這片土地上開始了兩千多年的治亂循環，這種建立在專制獨裁制度下的歷史輪迴，慢慢消耗著華夏民族的元氣、改變著這個民族的精神。共產主義邪靈在西歐飄蕩近百年後，在蘇俄的推動下與中國最邪惡虛偽的惡魔們融合雜交，橫掃整個中華大地；共匪建政後的七十年，國人受盡像公私合營、三反五反、農村合作社以及斗地主抄家那樣的經濟掠奪，受盡了大躍進而死幾千萬人那樣的人道災難，受盡了反右派、破四舊和文化大革命那樣的文化滅絕，整個國家民族被中共抽筋挖骨，徹底丟失了現代文明社會的價值觀體系。自建政以來，中共禁止國民保有不利於其統治的信仰；燒毀所有朝代都曾經認可的地契，剝奪國民所有私產；將國家機器置於十幾個家族淫威之下，徹底淪為其統治工具。
 
+如今，郭先生髮起爆料革命三年多以來，已經將中共的邪惡暴露於陽光之下，給中華文明帶來了重生的希望。中共政權狗急跳牆，釋放病毒擾亂世界，以挽回其頹勢，然而不過是搬起石頭砸自己的腳，逆轉不了其被滅的必然趨勢。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/29172526/%E6%88%AA%E5%B1%8F2020-09-30-05.24.51.png)
+在中共即將滅亡之際，當務之急，就是為滅共之後的新中國人重新找回做人的基本尊嚴做好準備。這是一項艱鉅的事業，郭先生在康州郭莊做了一系列規劃，為這項事業打下了牢固的三大基石。
 
+**第一個是信仰基石，即信仰的重建**。這主要體現在郭先生和國旗設計團隊在新中國聯邦旗幟的誕生過程中的思考：國旗以代表財富和生命能量的太陽金七芒星為主元素，以代表自然和生命起源的海洋藍色為背景色調，以置於48顆小星正中的信仰之星為核心，表達了只有信仰的重建才能捍衛正道主義凝聚民心，共同建立與世界各國友好的新中國聯邦。在國旗設計過程中郭先生為我們的國旗定下了設計基調並為設計團隊祈禱以促成信仰之旗的誕生。
 
-Hello, this is your host Michael from Gnews Current Affairs.
+**第二個是經濟基石，即G系列的建立**。郭先生在中共即將滅亡之際，將他早已構思好的G系列開始啟動落實。目下中共建立的邪惡體系即將覆滅，為了防止中共在滅亡時裹挾著國人三十年來辛苦積累的財富一起灰飛煙滅，郭先生建立起G系列這個池子為國人特別是戰友們的財富兜底；戰友們也用自己的財富、時間和承擔的風險回應郭先生、投票郭先生，在未來，G系列也將成為戰友和新中國聯邦的財富孵化平台。
 
-大家好，我是Gnews熱點追蹤的主持人麥克。
+**第三個是政治基石，即新中國聯邦的成立**。有了郭先生建立的新中國聯邦這艘戰船，爆料革命戰友不再是乘坐在無舵的船上，我們與中共的鬥爭也不再是以前那種類似於NGO組織和政權實體的鬥爭，而是現在兩個對等的政治實體之間的堂堂正正的對決。看到我們這艘充滿希望、財富、安全、信仰和未來的戰船，那些正在被盜國賊實施沉船計劃的中共破船上的黨員們，也會盡快做出趨利避害的選擇。這對於中共邪惡體系的瓦解以及新中國聯邦新體系的建立都具有正面的推進作用。
 
-On Oct 1st, the anniversary of the Communist Party’s takeover of the ancient country of China, supporters of the Whistleblower Movement in the New Federal State of China successfully mobilized a global demonstration. It started at 8 am in New Zealand, then fellows in Korea, Japan, Italy, Spain, UK, Canada, and the USA kicked it off one after another and finished it amazingly in Taiwan.
-
-在10月1日共產黨佔領古老中國的週年紀念日這天，新中國聯邦的爆料革命戰友們成功舉行了全球大遊行。上午8點始於新西蘭，然後在韓國，日本，意大利，西班牙，英國，加拿大和美國的戰友們相繼開啓了遊行，並在臺灣圓滿結束。
-
-References（相關鏈接）：
-https://gnews.org/zh-hans/398516/
-
-The demonstration had two demands:
-First one is to expose the truth of Covid-19. “Time is running out for the world to do what’s right” as Dr. Limeng Yan warned us back in July. The CCP virus did not originate from nature but is a military lab-made biological weapon. It was designed to take down the USA as part of Secretary Xi’s grand strategy for global domination. If what Dr. Yan said is not true, then one must question the CCP’s motive for arresting her mother on Oct 3rd.
-
-本次遊行有兩大訴求：
-第一是揭露Covid-19真相。“留給世界做正確事情的時間已經不多了”，閆麗夢博士早在7月份就如是警告我們。CCP病毒不是源於自然，而是一種軍方實驗室製造的生物武器。它旨在摧毀美國，作爲習近平書記統治全球大戰略的一部分。如果閆博士說的不是真的，那必須質問中共在10月3日逮捕其母親的動機。
-
-References（相關鏈接）：
-https://video.foxnews.com/v/6170706702001#sp=show-clips
-https://gnews.org/398115
-https://gnews.org/400434/
-
-To liberate all the communist victims such as Dr. Yan’s mother, the other demand of the demonstration is to implement the rule of law in China, which in turn would lead to the immediate collapse of Xi Jinping’s brutal and barbarous regime.
-
-爲解救諸如閆博士母親這樣的所有的共產主義受害者，遊行的另一訴求是在中國實行法治，這會立刻導致習近平殘酷野蠻政權的土崩瓦解。
-
-Whilst on the subject of family members, we cannot ignore Miles Guo’s success in his second pop single “Dear Mama, I am ending the CCP”. Anybody listening to this song would be transported to an emotional place, where our love for our mothers are never-ending and our commitment manifests into “taking down the CCP”.
-
-說到家庭成員，我們不能不提郭文貴第二支流行單曲《親愛的媽媽，我在終結中共》的成功。任何聆聽這首歌的人都會被帶到令人動容的境地，在那裏我們對母親的愛永不止息，我們的承諾體現爲“推翻中共”。
-
-References（相關鏈接）：
-https://gnews.org/399910/
-
-As Chinese people, our existence is an enculturation of a long history, not of a 70-year disastrous communist period. Communist regimes are always misanthropic and malevolent. They ground their rule solely on lies and the suppression of truth. Understandably, seeking the truth is more than human instinct. It contextualizes our moral principles.
-
-作爲中國人民，我們的存在受悠久的歷史文化薰陶，不只是70年災難性的共產主義統治。共產主義政權總是反人類和惡毒的。他們的統治完全基於謊言和對真相的打壓。不難理解的是，尋求真相不僅是人類本能，該過程具現了我們的道德原則。
-
-References（相關鏈接）：
-https://gnews.org/389176
-
-However, we have seen many people who have suffered from communist ideology who still live in its shadows where cynicism and nihilism are lingering. For this reason, Miles Guo proposed “The Way to Righteousness” as an alternative for post-communist China. It includes fundamental moral principles such as self-respect, seeking truth, kindness and toughness and respect for nature, etc. Furthermore, “The Way to Righteousness” prospects the uniting of all the liberalized people who defend their freedom of religious beliefs.
-
-然而，我們看到許多遭受過共產主義意識形態折磨的人，仍活在揮之不去的犬儒主義和虛無主義陰影中。基於此，郭文貴提出了“正道主義”作爲後共產主義中國的替代選擇。它包括最根本的道德原則，例如自尊，追求真善狠，敬重自然等。此外，“正道主義”還展望了所有捍衛宗教信仰自由的開明人士的團結。
-
-References（相關鏈接）：
-https://gnews.org/zh-hans/228866/
-
-That’s all for today’s news. Please go to gnews.org or download our app for more details. We are the Gnews Current Affairs team. Stay tuned, stay healthy. We’ll see you soon.
-
-這就是今天的全部新聞。請訪問gnews.org或下載我們的app查看更多詳情。我們是Gnews熱點追蹤新聞團隊。敬請期待下期節目，保持健康，我們很快會再見。
-
-**Gnews Current Affairs Ep01-04（熱點追蹤第1-4期）：**
-
-[Ep01: Collapse of Hong Kong & Mongolia; The Expose of Covid-19](https://gnews.org/367980/)
-[第一期：香港內蒙淪陷·中共病毒真相](https://gnews.org/zh-hans/368280/)
-
-[Ep02: The Counter Communist Cultural Movement – Music First](https://gnews.org/374121/)
-[第二期：文化滅共 音樂先行](https://gnews.org/zh-hans/374077/)
-
-[Ep03: Feature Report “Weaponized Activists in Unrestricted Warfare – CCP’s Fake Pro- Democratic Figures”](https://gnews.org/388498/)
-[第三期：【專題報道】 中共武器化的活動分子-僞民運人士](https://gnews.org/zh-hans/388432/)
-
-[Ep04: Game Changer – CCP’s Three Hard Drives”](https://gnews.org/393465/)
-[第四期：中共改變時局的三個硬盤](https://gnews.org/zh-hans/393451/)
+郭先生六四建國前在康州郭莊建立的這三大基石，是對中共邪惡體系即將瓦解的破立之舉，也為即將到來的中國人民的民主事業保駕護航，堪稱中國人民的諾亞方舟。康州郭莊是郭先生對國人大愛的凝聚之地，爆料革命也在這里通過立起新中國聯邦這面大旗迎來了撥開雲霧見青天般的昇華，康州郭莊必將成為未來新中國聯邦公民的聖地！
 
 0

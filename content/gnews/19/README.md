@@ -1,17 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## （西班牙語+中文）3個硬碟將會作為證據在美國大選中起到重要作用
-`2020-10-06 10:16 GM62` [轉載自GNews](https://gnews.org/zh-hant/406372/)
+## 突發事件：湖北恩施發生山體塌方 已致1死1傷
+`2020-10-06 11:30 GM06` [轉載自GNews](https://gnews.org/zh-hant/406596/)
 
-西班牙語標題 Los tres discos duros jugarán un papel importante como evidencia en las elecciones de EE.UU.
+編輯：雅典娜之矛
 
-翻譯：文羽 校對：帅虎 視頻：小羽
+截止發稿前，被困5人中，3名群眾成功獲救，1人輕傷送醫，1人死亡。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06110838/%E4%BA%8B%E4%BB%B6.png)
+據中國硒都網消息，10月6日11時許，恩施市舞陽壩街道辦事處東風大道發生山體塌方，塌方量約3000方。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06110913/%E7%AA%81%E5%8F%911.png)
+險情發生後，恩施州委書記柯俊，州政協副主席、恩施市委書記向前進第壹時間趕赴現場，州、市兩級迅速組織公安、消防、應急、衛健、自然資源等部門及舞陽壩街道辦事處開展應急救援及險情處置工作。
+
+      截止發稿前，被困5人中，3名群眾成功獲救，1人輕傷送醫，1人死亡。涉險區域內群眾均已轉移至安全地帶，現場排險處置工作正在有序開展。
 
 
-
-喬·拜登和他兒子亨特·拜登到底的車峰做了什麼? 現在這就是通共門。
-
-¿Qué hicieron con Chefeng,Joe Biden y su hijo Hunter Biden? Esto es Horas en el PCCh Consulta
+來源：中國硒都網
 
 0

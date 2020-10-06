@@ -1,18 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲雅典娜農場視頻組&#8212; 寄語雅典娜農場成立
-`2020-10-06 12:18 澳洲雅典娜农场` [轉載自GNews](https://gnews.org/zh-hant/406674/)
+## 加拿大喜莊園- 溫哥華滅賊組招募廣告
+`2020-10-06 14:29 加拿大喜庄园🇨🇦` [轉載自GNews](https://gnews.org/zh-hant/406838/)
 
-#### **澳洲雅典娜農場視頻組—寄語雅典娜農場成立。我們將在雅典娜女神的庇護下發展壯大！發揮我們每個人的雅典娜能力，傳播真相，傳播正義！**
+為了曝光中共特務，為了區分海外華人和中共特務，為了保護我們自己和家人。
 
-**澳洲雅典娜農場報名鏈接：
- Discord🔗 [https://discord.gg/aaqJrdY](https://discord.gg/aaqJrdY)**
+請戰友們集結加喜莊園滅賊組！
 
-
-
-####  **By：【澳洲雅典娜農場-視頻組】**
+**聯繫人：卡麗熙女士- Whatsapp號碼(613) 434-9162**
 
 
-
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06142520/GAOBINGCHEN1.jpeg)
 0
