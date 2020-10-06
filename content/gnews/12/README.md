@@ -1,11 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 王者回来！川普总统返回白宫视频：坚定，勇者，力量！
-`2020-10-06 01:09 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/405586/)
+## 【世界多語言圖文】2020/09/27CCP病毒每日疫情直播簡報
+`2020-10-06 03:59 GM62` [轉載自GNews](https://gnews.org/zh-hant/397729/)
 
-編輯：玫瑰天空
-坚定的川普总统王者归来！
-王者回來！川普總統返回白宮視頻：堅定，勇者，力量！遭遇病毒攻擊過後的川普總統，經過治療恢復的很棒！川普先生滿血歸來，王者風範！堅定的步伐，強大的身影，有力的眼神！預示著：CCP你完了！ ！ ！
+戰友之家圖文摘要及小語種組
 
-1
+[English\_0927\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103545/246_English_0927_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103545/246_English_0927_CCP_Virus_Updates.pdf)
+
+[French\_0927\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103558/246_French_0927_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103558/246_French_0927_CCP_Virus_Updates.pdf)
+
+[German\_0927\_CCP\_Virus\_Updates\_](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06021240/German_0927_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06021240/German_0927_CCP_Virus_Updates_.pdf)
+
+[Japanese\_0927\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103603/246_Japanese_0927_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103603/246_Japanese_0927_CCP_Virus_Updates.pdf)
+
+[Korean\_0927\_CCP\_Updates\_246](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06021429/Korean_0927_CCP_Updates_246.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06021429/Korean_0927_CCP_Updates_246.pdf)
+
+[Spanish\_0927\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103550/246_Spanish_0927_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103550/246_Spanish_0927_CCP_Virus_Updates.pdf)
+
+0

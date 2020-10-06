@@ -1,27 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國美中經濟與安全評估委員會發佈在美上市中資公司清單
-`2020-10-05 22:39 GM65` [轉載自GNews](https://gnews.org/zh-hant/405180/)
+## 紐西蘭與亞洲的關係不只限於奧克蘭
+`2020-10-06 01:20 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/405577/)
 
-10月2日，美中經濟與安全評估委員會（US-China Economic and Security Review Commission）公佈了一份[《在美主要證券交易所上市中資公司》清單](https://www.uscc.gov/sites/default/files/2020-10/Chinese_Companies_on_US_Stock_Exchanges_10-2020.pdf)（Chinese Companies Listed on Major US Stock Exchanges），其中列出了在納斯達克、紐約證券交易所和美國證券交易所三家主要交易市場上市的217家中資公司，總市值達2.2萬億美元，按其市值的大小排列。其有13家國家級中共國有企業（SOE）上市，在列表中以星號（\*）標出。
+編譯：淡如水
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06005446/Capture-2.jpg)
+這篇署名文章出自于亞洲紐西蘭基金會執行董事Simon Draper。
 
-該中資公司清單使用的是紐約證券交易所、納斯達克、商業投資數據庫和上市公司會計監督委員會（PCAOB）的信息編制而成。其中納斯達克信息是截至2019年2月25日的最新信息，此後，納斯達克不再公開提供總部在國外的公司的信息總匯。
+紐西蘭與亞洲的緊密聯繫，自第一大城市奧克蘭始，經由這幾十年的耕耘，已如擊鼓傳花般，擴散至全國各個地區。在北島的北地(Northland), 雖亞洲居民相對稀少，但人們對亞洲語言和旅行青睞有加，對亞洲的重要性也不乏認識；而贏得中國最高“友好度”的塔拉納基（Taranaki), 人口雖只有12萬，但其港口出口值卻占了出口中國總額的50％以上。
 
-收入這個清單的標準有兩個，一是“被相關證券交易所認定為來自中華人民共和國（PRC）”，二是“在向美國證券交易委員會提交的文件中，將中國地址列為其主要執行辦公室”。但有些在美上市的離岸公司沒有說明其國籍，或總部、母公司或執行辦公室的地址，所以尚未收入清單。也不包括香港註冊的公司。
+而以旅遊見長名聞遐邇的南島，這十多年來吸引了不少亞洲居民。2018年的人口統計顯示近67，000名坎特伯雷（Canterbury）居民有至少一種亞洲背景，是2006年的2倍多。還舉例偏於一隅的南地（Southland）的一所鄉村小學，有20％來自從事乳業的菲律賓家庭；享有盛譽的Marlborough Cloudy Bay 酒廠，也改由來自中國四川的葡萄酒專家負責；且典型的日本傳統食品味噌、芥末和裙帶菜，也由當地生產。
 
-該清單還明確指出，對中資公司投資可能帶來與中國大陸法律、法規和金融環境相關的風險，包括：缺乏透明度，可變利益實體在中國沒有法律效力，給美國國家安全帶來風險。
+作者特別強調來自亞洲的投資和技術高度參與了南島第一大城基督城（Christchurch)的重建工作，在乳製品業中，也發揮了關鍵作用。尤其是作為金融支柱的食品出口業，佔據了亞洲市場的半壁江山，乳製品，肉類和海鮮比比皆是。
 
-以下是[清單](https://www.uscc.gov/sites/default/files/2020-10/Chinese_Companies_on_US_Stock_Exchanges_10-2020.pdf)列出的217家公司，包括：代號，名稱，市值（百萬美元），首次公開募股（IPO）年份，IPO價值（百萬美元），行業，主承銷商
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223246/Screen-Shot-2020-10-05-at-21.40.48.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223301/Screen-Shot-2020-10-05-at-21.40.40.png)
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223329/Screen-Shot-2020-10-05-at-21.41.18.png)
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223341/Screen-Shot-2020-10-05-at-21.41.26.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223352/Screen-Shot-2020-10-05-at-21.41.35.png)
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223403/Screen-Shot-2020-10-05-at-21.41.44.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223414/Screen-Shot-2020-10-05-at-21.41.50.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223426/Screen-Shot-2020-10-05-at-21.41.57.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223437/Screen-Shot-2020-10-05-at-21.42.09.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223448/Screen-Shot-2020-10-05-at-21.42.16.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223459/Screen-Shot-2020-10-05-at-21.42.24.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223511/Screen-Shot-2020-10-05-at-21.42.31.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05223523/Screen-Shot-2020-10-05-at-21.42.43.png)
-（備註：據維基百科信息，美中經濟與安全評估委員會（英語：United States-China Economic and Security Review Commission，縮寫：USCC；英語簡稱：US-China Commission；台灣譯為美中經濟暨安全檢討委員會），是一個美國政府於2000年10月通過國會授權設立，以負責監督和調查美國與中共國之間的國家安全和貿易問題的機構。成員由兩黨國會議員組成，每年發布年度報告，被認為是美國國會、白宮，決定美中政策的重要指南。）
-
-[原文鏈接](https://www.uscc.gov/chinese-companies-listed-major-us-stock-exchanges)
+評：上述這一切的繁榮，而今被CCP病毒徹底破壞，損失慘重。顯然人們已意識到與亞洲關係發展的機會和潛力，其基金會也積極參與自救：分別與印尼車輛和食品配送巨頭，與新加坡科技業領導組織了線上交流合作活動，並聯合the University of Canterbury商學院舉辦了一系列研討會，但仍不失對中國的依賴，滿足於達尼丁與上海“姐妹城市”間的活躍關係。如此缺乏放眼世界的政治智慧，很難想像接下來能下一盤怎樣的棋局，何談經濟振興…
 
 0

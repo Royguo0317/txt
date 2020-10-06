@@ -1,95 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日快訊   2020.10.5
-`2020-10-06 02:37 GM06` [轉載自GNews](https://gnews.org/zh-hant/404655/)
+## 川普總統10月5日晚在返回白宮後首次發表講話
+`2020-10-06 05:05 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/405922/)
 
-**文字聽寫：**星星、深寒、文依、闪电      **播报**：安妮、鱼摆摆
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06021542/%E6%88%AA%E5%B1%8F2563-10-06-14.12.16-1.png)
-[https://gtv.org//?videoid=5f7bc64f06847a4c650bcf02](https://gtv.org//?videoid=5f7bc64f06847a4c650bcf02)
+川普總統10月5日晚在返回白宮後首次發表講話，表示感謝沃爾特·里德（Walter Reed）醫療團隊，自己使用了最新開發的藥物得已治癒。他感覺是近20年來最好的狀態，並反復強調不要被CCP病毒控制你、佔據你的生活。川普總統在視頻中目光剛毅、聲音洪亮、精力充沛，顯示已完全康復。
+視頻來源：[https://www.youtube.com/watch?v=OuhBF74ZD8E&feature=youtu.be](https://www.youtube.com/watch?v=OuhBF74ZD8E&amp;feature=youtu.be)
+I just left Walter Reed Medical Center, and it’s really something very special, the doctors, the nurses, the first responders. And I learned so much about coronavirus. And one thing that’s for certain. Don’t let it dominate you. Don’t be afraid of it. You’re going to beat it. We have the best medical equipment. We have the best medicines, all developed recently. And you’re going to beat it.
 
-**一、川普總統將於今天下午六點半出院，這對於共產黨來說，絕對是個壞消息**
+我剛離開沃爾特·里德醫療中心。那裡真的是非常特別，醫生、護士和急救人員。我學到了很多關於冠狀病毒的知識。有一件事是可以肯定的：不要讓它（CCP病毒）控制你，不要害怕它，你會打敗它的。我們有最好的醫療設備，我們有最好的最新開發的藥物。你會打敗它的。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06052158/WH_20201005_Tump_Back-figure1.jpeg)川普總統走出醫院:fist: :fist: :fist: 
+圖片來源: [https://youtu.be/aYU6fr8oM-o](https://youtu.be/aYU6fr8oM-o) 
+I went … I didn’t feel so good, and two days ago, I could have left two days ago. Two days ago, I felt great like better than I have in a long time, I said just recently, better than 20 years ago.
 
-**二、郭先生今天的直播內容**
+兩天前，我去了（醫療中心），感覺不太好。兩天前我就可以離開（醫院）了。兩天前，我感覺如此之好，很長一段時間都沒有這麼好過，我說的是比20年前都好。
 
-1．爆料革命面臨的是全人類，整個地球受到的共產黨的威脅，共產黨的病毒；共產黨的心霾，和共產黨帶來的給人類的威脅；
+Don’t let it dominate. Don’t let it take over your lives. Don’t let that happen. We have the greatest country in the world. We’re going to back, we’re going back to work. We’re going to be out front. As your leader I had to do that. I knew there’s danger to it, but I had to do it. I stood out front I led. Nobody that’s a leader would not do what I did. And I know there’s a risk there’s a danger, but that’s okay.
 
-2． 它是一場影響人類未來生存的巨大的革命。有革命就有流血就有犧牲。所有的成功是在失敗中成長出來的。如果沒準備好犧牲，那死亡就一定等著你。
+不要讓它（CCP病毒）控制你，不要讓它佔據你的生活，不要讓那種事情發生。我們是世界上最偉大的國家。我們要回去，我們要回去工作，我們要到前面去。作為你們的領袖，我必須這麼做。我知道有危險，但我必須這麼做，我走在前面領路。沒有哪個領導者不會做我做過的事。我知道有風險，有危險，但是沒關係。
 
-3． 全球的「懲賊行動」，目的揭露所有的在海外的共產黨在海外潛伏的特務，inty、盲流子這樣的，一個都不能放過。我們比的是耐力、決心、實力，它考驗著全球戰友對爆料革命對新中國聯邦的認識。
+And now I’m better, and maybe I’m immune. I don’t know. But don’t let it dominate your lives. Get out there. Be careful! We have the best medicines in the world, and it all happened very shortly, and they’re all getting approved, and the vaccines are coming momentarily.
 
-4．所有的法治基金，法制社會的捐款者，第一條，滅共；第二天維護海外華人的利益；這也是關於我們新中國聯邦在西方是否能得到人家的信任和尊重根本的基礎。最終西方世界講法律，美國的rico法案一定會降臨在他們頭上
+但是現在我好多了，也許是我免疫了，我不知道。但不要讓它（CCP病毒）主宰你的生活，出去小心點。我們有世界上最好的藥物，這一切都發生得很快，但它們（藥）都得到了批准。疫苗也馬上就要出來了。
 
-5． 不僅在美國在所有的聯盟的地方都會全面實施rico法案，對所有的海外華人都會像過篩子一樣過幾遍；所有的共產黨在海外欺壓老百姓都會受到懲罰
+Thank you very much. And Walter Reed, what a group of people! Thank you very much!
 
-6． 前線戰友們，記住不要被任何事情嚇到，因為我們沒乾任何壞事，依法懲賊。
+非常感謝大家。感謝沃爾特·里德，這個了不起的團隊。非常感謝你們！
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06052144/WH_20201005_Tump_Back-figure2.png)圖片來源：https://www.youtube.com/watch?v=zJxmmFs2ZGU
+翻譯：【XO小粉紅】 校對：【Isaiah4031】字幕：【Pamila（文明）】編緝：【Isaiah4031】
 
-7．過去幾天對我的內心是極大的折磨，關於川普總統和他夫人。國內的網絡上鋪天蓋地的是對他及其家人的詛咒，這些同胞，可能包含你的家人，我的家人，你的朋友，我的朋友，等有一天的時候，他們也會這樣對待我們
-
-8． 爆料革命，新中國聯邦辦的最偉大的事情就是將共產黨和中國人分開，把病毒和中國人分開。在我們努力了一段時間後，共產黨用魔鬼的力量，往回拉，讓全世界仇恨中國人，國內這些愚蠢的被洗腦的同胞們拉仇恨，他們不知道，導彈是不長眼的。共產黨從來都沒有跟你分享他們的權利和利益
-
-9． 閆麗夢博士，路德先生等代表中國人的正義，勇氣
-
-10． 如果大家看到美國的將軍在準備什麼的時候，那些詛咒的人一定會害怕，把人體變成屍體，連0.3秒都不需要。你們這些詛咒別人的人一定會得到報應的，戰友們一定要意識到事情多嚴重，我們一定要保持起碼的人道尊嚴。
-
-11． 川普回到白宮也不一定馬上滅共，美國需要考慮美國安全利益為主，並且一切以大選優先，輸了大選什麼都不是；另外，他不是獨裁者。計劃，準備，立法，這些都在進行中，但是這就是美國的脆弱和偉大。
-
-12． 病毒出來後，美國官方到現在沒有說出一句病毒來自那裡？第一需要證據，第二，要有事實，第三，要經過程序；第四：你的演講必須要對社會負責，這就是美國和中共的不同。即使你擔心的慢，也是美國的偉大。
-
-13． 美國這個國家務實；文明；專業；尊重；守法。中國人發生的一切就是對世界的無知，對文明和世界的無視而導致的嚴重後果，我們要以共滅共；依法滅共，以美滅共。
-
-14．新中國聯邦影響力太大了，全世界很多國家政府，公益機構要跟我們形成官方的正式確認。新西蘭，基本確認的下屆政府和下屆總統已經開始要把共產黨徹底移出新西蘭，這是老班長和新西蘭戰友們努力的結果。非洲多個國家承認我們新中國聯邦
-
-15． 我們新中國聯邦所有的官方溝通僅限於喜馬拉雅農場委員會，和喜馬拉雅農場授權的農場。
-
-16．美國大選後，滅共是100%。但是不要指望美國滅共，還是指望我們自己。最後一定是我們的戰友和國內的戰友一起將共產黨掃平，建立一個有獨立的法制系統，信仰自由，讓世界信任的一個新中國聯邦，讓香港、台灣、新疆、西藏有信仰的自由，保留自己美好的文化。現在美國軍方最清楚的是：必須對中共幾個家族進行斬首。人類都得到解放。
-
-17． 最後想說的是，要想革命，不準備好失敗，犧牲，付出，你是不可能成功的。要想革命，沒有強大的經濟實力，沒有強大的國際上的影響力，沒有強大的人才團隊是不可能成功。
-
-**三、****10/4/****路德時評晚間節目主要內容：**
-
-1． 朱利安尼先生每次和川普總統通話，總統都會問候閆博士，稱閆博士為鏗鏘玫瑰。
-
-2． 中共內部都知道中共要結束了，各路人馬紛紛出來傾軋。88.3%的美國民眾認為總統會在大選前對中共採取行動。
-
-3． 習近平在剛剛結束的內部會議上說，拜登一定會贏，做好生化武器研究，使美國在經濟上政治上雙輸。
-
-4． 曹務春前不久發表論文《病毒大牛》，美國獲得了關鍵情報曹務春在研發新一輪的冠狀病毒。
-
-5． 王岐山大管家董宏被抓真實原因，是813在上海策劃政治暴動未遂被捕。
-
-**四、****10/5/2020****路德時評****(****路安墨談****)**
-
-1．福奇的醜聞在三個硬盤里肯定有
-
-2． 墨博士介紹，聯邦法院已經掌握福奇的證據，讓他公開與共產黨、WHO的通話是讓福奇自己選擇,這是釣魚行動!
-
-3．川普視頻有個重要的信息,川普說他學到了很多關於冠狀病毒的東西。川普感染病毒才覺得恐懼,才明白要為生存權而戰,班農也是,被抓鋪後，態度變了,他為自己能活下去而戰
-
-4． 川普競選新方向 #TakeDownTheCCP ,朱利安尼,班農和郭先生在18樓開小會,朱利安尼直接打電話給川普,回應習近平的終極之戰!
-
-5．普京發話，如果美國對CCP，對習近平進行斬首行動，俄羅斯不會插手
-
-**五、班農戰斗室****421****、****422****期內容：**
-
-1.川普一定會贏
-
-2. 郭先生說，中共最大的武器是社交媒體，這些社交媒體全被中共滲透，反川普、誤導輿論
-
-3. 有些國家安全機構，利用他們的技術阻止美國人支持川普
-
-4. 左派希望佩洛西可以繼任總統職位
-
-5. 中共邪惡政權，把川普當做襲擊的目標，在攻擊美國人。我們還要解救中國14億被奴役的人民，中共一定會垮台。
-
-6. 亞洲金融市場有了劇烈的動蕩，因為川普被中共病毒攻擊。
-
-7. 我們不能再跟中共這個魔鬼對話，我們必須要行動。
-
-8. 白宮新聞官凱麗最新推特說：我病毒檢測陽性，但是沒有症狀，我不會停止工作。
-
-9. 羥氯喹對治療RNA類病毒感染都有效，它能幫助鋅在身體吸收，鋅能抑制病毒生長。羥氯喹推廣會對大藥企收入造成影響，所以這個藥被打壓。班農先生推廣的羥氯喹治療方案在巴西、烏克蘭、俄羅斯等國都取得了很好的效果，大大降低了感染率和死亡率。
-
-
+戰友之家玫瑰園小隊出品
 
 0
