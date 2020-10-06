@@ -12,7 +12,9 @@
 [:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
 
 
-## 頁面 12/29 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [29](/content/README-29.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
+## 頁面 12/30 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [30](/content/README-30.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
+
+[文字版：9月7日郭先生直播，关注香港被抓 被杀的年轻人](/content/2019/09/20190908-7629841718868230274.md)
 
 [文字版：2019年9月4日郭文貴報平安直播“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!](/content/2019/09/20190906-2846090461215125304.md)
 
@@ -62,7 +64,5 @@
 
 [文字版：郭文贵先生2019年8月7日直播 王岐山和德国前副总理菲利普什么关系](/content/2019/08/20190808-3378844936967794316.md)
 
-[文字稿：2019年 8 月 6日 谈美国将中共定位汇率操纵国的意义 ](/content/2019/08/20190807-3983824498310525116.md)
 
-
-## 頁面 12/29 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [29](/content/README-29.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
+## 頁面 12/30 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [30](/content/README-30.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)

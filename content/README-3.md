@@ -12,7 +12,9 @@
 [:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
 
 
-## 頁面 3/29 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [29](/content/README-29.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
+## 頁面 3/30 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [30](/content/README-30.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
+
+[文字版: 郭先生2020年6月20日GTV直播](/content/2020/06/20200623-1544322677967966575.md)
 
 [文字版：郭先生2020年6月17日直播-GTV投资和查询股票及夏威夷会议及喜马拉雅农场，新中国联邦的巨大影响力](/content/2020/06/20200623-2877590404181782091.md)
 
@@ -62,7 +64,5 @@
 
 [文字版：郭先生5月16日GTV直播](/content/2020/05/20200519-6331288695899345209.md)
 
-[文字版:5月15日郭先生GTV直播](/content/2020/05/20200519-1610344704805853359.md)
 
-
-## 頁面 3/29 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [29](/content/README-29.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
+## 頁面 3/30 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [30](/content/README-30.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)

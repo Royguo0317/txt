@@ -12,7 +12,9 @@
 [:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
 
 
-## 頁面 18/29 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [29](/content/README-29.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
+## 頁面 18/30 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [30](/content/README-30.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
+
+[文字版：2019年1月10日，談袁健斌的案子，徵求春節爆猛料內幕](/content/2019/01/20190111-7236434520356507605.md)
 
 [文字版：1月8日文贵报平安视频](/content/2019/01/20190111-1742695953607571413.md)
 
@@ -62,7 +64,5 @@
 
 [翻译：1120发布会来宾提问，班农和郭先生回答](/content/2018/11/20181123-8581162821359950469.md)
 
-[2018年11月20号发布会班农第一部分演讲翻译以及文字版郭文贵先生发布会个人演讲部分](/content/2018/11/20181123-7564165555128970884.md)
 
-
-## 頁面 18/29 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [29](/content/README-29.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
+## 頁面 18/30 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [30](/content/README-30.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)

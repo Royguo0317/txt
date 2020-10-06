@@ -12,7 +12,9 @@
 [:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
 
 
-## 頁面 5/29 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [29](/content/README-29.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
+## 頁面 5/30 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [30](/content/README-30.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
+
+[文字版：2020年4月9日上海首长驻地已经升级为生化战争的警卫模式 ](/content/2020/04/20200413-4060291104151405554.md)
 
 [文字版:2020年4月8日郭先生GTV直播谈国内疫情](/content/2020/04/20200413-3302995427300860720.md)
 
@@ -62,7 +64,5 @@
 
 [文字版：2020年3月7日谈冠状病毒始于香港，必将终于香港！世界的爆发还没开始！](/content/2020/03/20200311-4043567072040877942.md)
 
-[文字版：2020年3月4日全世界反击CCP，一切已经开始](/content/2020/03/20200306-1461257140477457088.md)
 
-
-## 頁面 5/29 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [29](/content/README-29.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
+## 頁面 5/30 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [30](/content/README-30.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)

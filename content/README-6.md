@@ -12,7 +12,9 @@
 [:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
 
 
-## 頁面 6/29 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [29](/content/README-29.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
+## 頁面 6/30 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [30](/content/README-30.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
+
+[文字版：2020年3月4日全世界反击CCP，一切已经开始](/content/2020/03/20200306-1461257140477457088.md)
 
 [文字版：2020年3月3日文贵车上直播谈17件大事正在发生中](/content/2020/03/20200305-4413506880481638032.md)
 
@@ -62,7 +64,5 @@
 
 [文字版：2020年1月29日文贵谈CCP统治下的孤国孤市孤镇孤村](/content/2020/02/20200201-2569965414035506727.md)
 
-[文字版：2020年1月28日文贵直播谈WHO已经认错，CCP对疫情必须承担责任](/content/2020/01/20200130-8782739626371859630.md)
 
-
-## 頁面 6/29 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [29](/content/README-29.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
+## 頁面 6/30 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [30](/content/README-30.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)

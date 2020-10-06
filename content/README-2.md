@@ -12,7 +12,9 @@
 [:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
 
 
-## 頁面 2/29 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [29](/content/README-29.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
+## 頁面 2/30 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [30](/content/README-30.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
+
+[ 文字版：2020年8月9日文贵先生连线硅谷战友 ](/content/2020/08/20200823-4152243607808954101.md)
 
 [【文字版】2020年8月8日郭先生GTV连线日本樱花团](/content/2020/08/20200814-3147962922303992326.md)
 
@@ -62,7 +64,5 @@
 
 [文字版：2020年6月25日郭先生直播-杨洁篪来美国都说了什么？共产党最快三个月彻底灭亡！](/content/2020/06/20200629-4613228362412011055.md)
 
-[文字版: 郭先生2020年6月20日GTV直播](/content/2020/06/20200623-1544322677967966575.md)
 
-
-## 頁面 2/29 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [29](/content/README-29.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
+## 頁面 2/30 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [30](/content/README-30.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)

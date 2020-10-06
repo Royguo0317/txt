@@ -12,7 +12,9 @@
 [:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
 
 
-## 頁面 13/29 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [29](/content/README-29.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)
+## 頁面 13/30 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [30](/content/README-30.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)
+
+[文字稿：2019年 8 月 6日 谈美国将中共定位汇率操纵国的意义 ](/content/2019/08/20190807-3983824498310525116.md)
 
 [文字版：2019年8月5日 香港大劫在即······希望香港的四个不要脸群体，能站在正义的一边帮助上街的孩子们](/content/2019/08/20190807-8437960932132112238.md)
 
@@ -62,7 +64,5 @@
 
 [文字版：2019年7月5日文贵船上直播](/content/2019/07/20190706-5106022506023396161.md)
 
-[文字版：2019年7月3日文贵在华盛顿的车上直播](/content/2019/07/20190705-1736534558045793332.md)
 
-
-## 頁面 13/29 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [29](/content/README-29.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)
+## 頁面 13/30 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [30](/content/README-30.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)
