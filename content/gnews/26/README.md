@@ -1,21 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/09/27CCP病毒每日疫情直播簡報
-`2020-10-06 03:59 GM62` [轉載自GNews](https://gnews.org/zh-hant/397729/)
+## 接下來的30天會看到你無法想象的一系列的事情
+`2020-10-06 09:28 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/406302/)
 
-戰友之家圖文摘要及小語種組
+郭文貴先生2020年10月5日（星期一）[G-TV直播](https://gtv.org//?videoid=5f7b2c9b7de25667c0dfee09)：「不要指望美國滅共，還是指望我們自己，還是指望我們戰友，特別是國內那些絕大多數的我們共產黨內部的好人，堅決和我們站在一起滅共的各領域的人。你們會看到多重要的事情會發生！你會看到我們內部的戰友會有多麼大的行動！」
 
-[English\_0927\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103545/246_English_0927_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103545/246_English_0927_CCP_Virus_Updates.pdf)
+「最終就不會再存在什麼獨裁，也不會再存在那些黑社會、黑幫，因為太容易把你收拾掉了，因為所有的流氓黑社會和獨裁就那麼幾個人，就那幾個家庭。把那幾個人乾掉就行了，這就是美國現在軍方最想乾的事。對中共已經很清楚，必須對幾個家庭實行斬首。對幾個家庭實行斬首以後，中國迅速解放。所有人類都得到解放，就這麼簡單！」
 
-[French\_0927\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103558/246_French_0927_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103558/246_French_0927_CCP_Virus_Updates.pdf)
+「戰友們，咱們今天又開始了一個星期一的新的開始。30天，世界大亂。你們會看到你無法想象的一系列的事情的變化。我們是世界上70億人當中，在撬動人類的這個板塊，在改變人類命運最關鍵的人。爆料革命，沒你不行。」
 
-[German\_0927\_CCP\_Virus\_Updates\_](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06021240/German_0927_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06021240/German_0927_CCP_Virus_Updates_.pdf)
+翻譯：【文茶】校對：【Isaiah4031】字幕：【Pamila（文明）】聽寫：【羅賓 Robin (文賓)】【Jamie(文胤)】【一花一世界】視頻解碼：【恆久忍耐】編輯：【Isaiah4031】
 
-[Japanese\_0927\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103603/246_Japanese_0927_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103603/246_Japanese_0927_CCP_Virus_Updates.pdf)
+戰友之家玫瑰園小隊出品
 
-[Korean\_0927\_CCP\_Updates\_246](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06021429/Korean_0927_CCP_Updates_246.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06021429/Korean_0927_CCP_Updates_246.pdf)
-
-[Spanish\_0927\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103550/246_Spanish_0927_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103550/246_Spanish_0927_CCP_Virus_Updates.pdf)
-
-0
+1

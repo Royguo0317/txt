@@ -1,23 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/09/28CCP病毒每日疫情直播簡報
-`2020-10-06 08:09 GM62` [轉載自GNews](https://gnews.org/zh-hant/406156/)
+## 突發事件：湖北恩施發生山體塌方 已致1死1傷
+`2020-10-06 11:30 GM06` [轉載自GNews](https://gnews.org/zh-hant/406596/)
 
-戰友之家圖文摘要及小語種組
+編輯：雅典娜之矛
 
-[English\_0928\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06080547/247_English_0928_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06080547/247_English_0928_CCP_Virus_Updates.pdf)
+截止發稿前，被困5人中，3名群眾成功獲救，1人輕傷送醫，1人死亡。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06110838/%E4%BA%8B%E4%BB%B6.png)
+據中國硒都網消息，10月6日11時許，恩施市舞陽壩街道辦事處東風大道發生山體塌方，塌方量約3000方。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06110913/%E7%AA%81%E5%8F%911.png)
+險情發生後，恩施州委書記柯俊，州政協副主席、恩施市委書記向前進第壹時間趕赴現場，州、市兩級迅速組織公安、消防、應急、衛健、自然資源等部門及舞陽壩街道辦事處開展應急救援及險情處置工作。
 
-[French\_0928\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06080526/247_FRENCH_0928_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06080526/247_FRENCH_0928_CCP_Virus_Updates.pdf)
-
-[German\_0928\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06080537/247_German_0928_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06080537/247_German_0928_CCP_Virus_Updates.pdf)
-
-[Japanese\_0928\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06080542/247_Japanese_0928_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06080542/247_Japanese_0928_CCP_Virus_Updates.pdf)
-
-[Korean\_0928\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06080531/Korean_0928_CCP_Virus_Updates_247.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06080531/Korean_0928_CCP_Virus_Updates_247.pdf)
-
-[Spanish\_0928\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06080521/247_Spanish_0928_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06080521/247_Spanish_0928_CCP_Virus_Updates.pdf)
+      截止發稿前，被困5人中，3名群眾成功獲救，1人輕傷送醫，1人死亡。涉險區域內群眾均已轉移至安全地帶，現場排險處置工作正在有序開展。
 
 
+來源：中國硒都網
 
 0
