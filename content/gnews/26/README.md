@@ -1,32 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 是什麼讓曾經的美國訪問學者沈逸半天發9條微博詛咒川普總統
-`2020-10-06 01:35 NewFOC` [轉載自GNews](https://gnews.org/zh-hant/405613/)
+## 【世界多語言圖文】2020/09/27CCP病毒每日疫情直播簡報
+`2020-10-06 03:59 GM62` [轉載自GNews](https://gnews.org/zh-hant/397729/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06013009/%E5%B0%81%E9%9D%A2-99-1-768x432-1.jpg)
-作者：Maarago
+戰友之家圖文摘要及小語種組
 
-據[沈逸 – 百度百科](https://www.baidu.com/link?url=-3lftMD53phKQdlhWLbrb-RWyLDqDDCEaDn64lYgTOESk1VHiKRUuX8LT8kwCnSyRxfgbUlVPbc177nq7lxesxln5DLZQLUmV-IrF_hxyFa&amp;wd=&amp;eqid=f448d586000141f8000000065f7bfa33)：
+[English\_0927\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103545/246_English_0927_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103545/246_English_0927_CCP_Virus_Updates.pdf)
 
-［沈逸，男，漢族，1976年生，上海人，中國共產黨黨員，[復旦大學國際關係與公共事務學院](https://baike.baidu.com/item/%E5%A4%8D%E6%97%A6%E5%A4%A7%E5%AD%A6%E5%9B%BD%E9%99%85%E5%85%B3%E7%B3%BB%E4%B8%8E%E5%85%AC%E5%85%B1%E4%BA%8B%E5%8A%A1%E5%AD%A6%E9%99%A2/6479002)國際政治系教授，復旦大學網路空間治理研究中心主任，復旦大學網路空間國際治理研究基地主任，美國問題專家。］
+[French\_0927\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103558/246_French_0927_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103558/246_French_0927_CCP_Virus_Updates.pdf)
 
-［1995年-2005年就讀於復旦大學國際政治系。其間（2004年6-12月），赴[香港大學](https://baike.baidu.com/item/%E9%A6%99%E6%B8%AF%E5%A4%A7%E5%AD%A6/233635)歷史系美國研究中心訪問交流。
+[German\_0927\_CCP\_Virus\_Updates\_](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06021240/German_0927_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06021240/German_0927_CCP_Virus_Updates_.pdf)
 
-2005年復旦大學國際關係與公共事務學院國際政治系博士畢業，獲法學博士學位，留校任教至今。
+[Japanese\_0927\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103603/246_Japanese_0927_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103603/246_Japanese_0927_CCP_Virus_Updates.pdf)
 
-2008年8月-2009年9月，以復旦大學“青年骨幹教師培訓”專案公派美國[喬治城大學](https://baike.baidu.com/item/%E4%B9%94%E6%B2%BB%E5%9F%8E%E5%A4%A7%E5%AD%A6/5335677)外交學院科學技術與國際關係項目進行博士後訪學。］
+[Korean\_0927\_CCP\_Updates\_246](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06021429/Korean_0927_CCP_Updates_246.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06021429/Korean_0927_CCP_Updates_246.pdf)
 
-［研究方向：資訊技術與國際安全、資訊技術、傳媒與外交、國家資訊安全戰略、大國關係、國家網路安全戰略、全球網路空間治理、網路外交等。］
-
-每天都能看到沈逸新浪微博上的奇談怪論，自川普總統及第一夫人不幸被中共冠狀病毒襲擊之後，沈逸對於川普總統的詛咒從未停止，而在2020年10月6日淩晨1：22至上午11：22的十個小時內居然連發9條新浪微博詛咒川普總統。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06013143/5-1-8_%E5%89%AF%E6%9C%AC-1.jpg)
-作為一個復旦大學的教授、作為一個曾經的美國訪問學者，沈逸是出於什麼目的去美國進行博士後訪學？難道他訪學的目的就是憎恨美國的制度、找美國制度的缺陷然後顛覆美國的制度？
-
-為什麼沈逸瘋了一樣的詛咒川普總統？莫非川普總統康復出院回到白宮滅共真的就是挖了沈逸家的祖墳？據[中共大外宣&黨員沈逸親口告訴你簽證註銷後再申請有什麼風險](https://gnews.org/zh-hans/387551/)，沈逸已經被美國相關部門註銷了簽證，這不應該是第一步，因為沈逸這樣的瘋子本就不該被美國接受作為訪問學者，鑒於他用惡毒語言攻擊美國的三軍統帥和民選總統，他應該終生被禁止入境美國，讓我們記住共產黨沈逸——
-
-沈逸：男，漢族，籍貫：上海，所屬黨支部：復旦國關教1支部（國際政治系支部），身份證號碼：31010419761106081\*，電話號碼：13\*16020756，學歷：博士研究生。（注：為避免洩露個人完整資訊，身份證號碼及電話號碼中均有一個數位以\*取代，在洩露到外網的1957239名上海中共黨員資訊原始表格中這個\*代表0至9十個數位中的某一個數位）
-
-（文章內容僅代表作者個人觀點）
+[Spanish\_0927\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103550/246_Spanish_0927_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103550/246_Spanish_0927_CCP_Virus_Updates.pdf)
 
 0

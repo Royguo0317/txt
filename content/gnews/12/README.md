@@ -1,21 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/09/27CCP病毒每日疫情直播簡報
-`2020-10-06 03:59 GM62` [轉載自GNews](https://gnews.org/zh-hant/397729/)
+## 【熱點續評】胡錫進”微博接盤“華春瑩
+`2020-10-06 06:41 Ronald` [轉載自GNews](https://gnews.org/zh-hant/406032/)
 
-戰友之家圖文摘要及小語種組
+內新聞：人民公敵      素材：霹靂年      校對：雅典娜的聖鬥士(沙加)
 
-[English\_0927\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103545/246_English_0927_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103545/246_English_0927_CCP_Virus_Updates.pdf)
+繼10月4日華春瑩在其推上對美國疫情患者表達“心碎”引發民眾評論翻車後。 10月5日，《環球時報》總編輯胡錫進在自己微博上發表言論稱，“外交部發言人說話是給外國人聽的，尤其是當他們使用推持說話的時候”，其一言一行是“很專業的事”，並指“為美國’打抱不平’的人屁股坐歪了”｡
 
-[French\_0927\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103558/246_French_0927_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103558/246_French_0927_CCP_Virus_Updates.pdf)
+眾所周知，一個國家外交部發言人的職責當然是使用適當的語種代表國家與政府和外國人交流，這需要特別說明解釋嗎？胡總編輯專門就此點發微博，是以己之低智度民眾之智商而為之呢？還是外交部發言人的一言一行里有不可告人的“秘密”，需要胡總編輯出山引導輿論為其打掩護呢？
 
-[German\_0927\_CCP\_Virus\_Updates\_](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06021240/German_0927_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06021240/German_0927_CCP_Virus_Updates_.pdf)
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06055317/EjkUxUKUYAAQkt3.jpg)
 
-[Japanese\_0927\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103603/246_Japanese_0927_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103603/246_Japanese_0927_CCP_Virus_Updates.pdf)
+為何胡總編輯眼中“很專業的事”在不“專業”的民眾眼裡顯得漏洞百出，而致“很專業的事”被“非專業”批得體無完膚呢？這到底是外交部發言人不專業還是胡總編不專業？
 
-[Korean\_0927\_CCP\_Updates\_246](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06021429/Korean_0927_CCP_Updates_246.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06021429/Korean_0927_CCP_Updates_246.pdf)
+胡總編除了在“專業”與否問題上含糊不清外，似乎還格外的自作多情。在他看來，評論的民眾就應該像他—樣和中共是一根繩上的螞蚱，不論外交部發言人的言行“專業”與否，民眾只能扮演那群稱讚“皇帝新衣”的圍觀者。否則，誰喊出“皇帝沒有穿衣服”誰就是“屁股坐歪了”｡可惜，在互聯網時代，“皇帝”早已被了解真相和具正義感的民眾所唾棄，何來“屁股坐歪”一說？在此奉勸胡總編：別再自作多情，沒人會陪你做中共的殉葬品！
 
-[Spanish\_0927\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103550/246_Spanish_0927_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/02103550/246_Spanish_0927_CCP_Virus_Updates.pdf)
+胡總編在江湖上素有“胡叼盤”之名號，若是“叼”得又準又狠，可謂中共一員猛犬。可是，綜觀胡總編在社交平台之言論，很多時候都“叼”得費力不討好，不是引發民眾輿論反彈給中共帶來壓力，就是有意無意給他國暴露出中共的“小秘密”｡這—次，胡總編若非低智，即打掩護的“叼盤”行動再次見絀。
+
+看來，“胡叼盤”這名頭有浪得虛名之嫌。
+
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06055304/1591017500539.png)
 
 0

@@ -1,27 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 扒皮黃西- 這個所謂的華人精英會給我們帶來多麼大的災難
-`2020-10-06 04:13 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/405844/)
+## 【世界多語言圖文】2020/09/28CCP病毒每日疫情直播簡報
+`2020-10-06 08:09 GM62` [轉載自GNews](https://gnews.org/zh-hant/406156/)
 
-喜馬拉雅聯盟加拿大農場 文文-自由法蘭西🇫🇷
+戰友之家圖文摘要及小語種組
 
-校對上傳 XM
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/05092929/ec927293bd896f846713df0e4ff80d3c.jpeg)
-初識黃西，是從10年前他火遍互聯網的在2010年美國記者年會上的“脫口秀”表演。一個土生土長的中國人，用帶著口音的幽默，征服了一屋子的無冕之王。
+[English\_0928\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06080547/247_English_0928_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06080547/247_English_0928_CCP_Virus_Updates.pdf)
 
-在表演中，他還大膽“嘲弄”了當時在座的時任美國副總統拜登，“We have Mr. Vice President Joe Biden here tonight. I have read your autobiography and today I see you. I think the book is much better. ”（拜登副總統也出席了今晚的晚宴。我曾經讀過您的自傳，現在終於有幸見到您，我覺得還是書上的更好看一些）”。這個出身於中國- 當時正致力於同美國發展友誼的國家的笑星的調侃，讓拜登笑的花枝亂顫，給我留下了深刻的印象。也挺佩服他，畢竟作為一個外國人，在這個華人很少涉及的表演領域闖出名氣來，是需要勇氣的。
+[French\_0928\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06080526/247_FRENCH_0928_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06080526/247_FRENCH_0928_CCP_Virus_Updates.pdf)
 
-然後，他就在國內開始越來越火，頻繁亮相，還接受了楊瀾的採訪，找沒找鑰匙不得而知，但黃西確實由此開啟了通往事業新高峰的大門：當了節目主持人，出版了自傳，進行個人脫口秀巡演，擔任國內脫口秀大賽主持人，時不時還客串一下影視作品……作為所謂的在美華人精英，在賺的盤滿缽滿的同時，其影響力在中美兩地可以說是與日俱增。
+[German\_0928\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06080537/247_German_0928_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06080537/247_German_0928_CCP_Virus_Updates.pdf)
 
-追隨七哥爆料革命3年以來，作為一個普通草根，除了盜國賊的驚天內幕，還順便洞悉了雙休黨的宮帷秘史，鑰匙瀾的採訪玄機，大外宣的九層妖塔，我由此也就基本上和國內的娛樂圈絕緣了，具體原因可以藉用《紅樓夢》裡的話一語概之：你們東府裡，怕只有那兩個石獅子是乾淨的！黃西和他在彼岸的輝煌，也就逐漸淡出了我的視線。
+[Japanese\_0928\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06080542/247_Japanese_0928_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06080542/247_Japanese_0928_CCP_Virus_Updates.pdf)
 
-隨著川普夫婦染疫，廣大爆料革命戰友通過各種途徑紛紛表達震驚難過惋惜祈禱之餘，這幾天竟又在網上看見了黃西，呲著雪白的牙齒，在網上對著鏡頭公開宣稱：“因為川普總統在中國疫情嚴重的時候幸災樂禍，所以我現在要對他說“恭喜奪冠”！”
+[Korean\_0928\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06080531/Korean_0928_CCP_Virus_Updates_247.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06080531/Korean_0928_CCP_Virus_Updates_247.pdf)
 
-黃西在美國曾獲得化學博士學位，以他的智商，應該知道作為一個公眾人物，他必須要對自己的公開言行負責。他在美國留學，工作，結婚，生子，2008年還拿到了美國國籍。在這樣的背景下，他公開造謠川普總統“對中國的疫情幸災樂禍”，公開對川普總統的染疫幸災樂禍，他不可能不知道這樣做的影響和後果，尤其是在美國！
+[Spanish\_0928\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06080521/247_Spanish_0928_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06080521/247_Spanish_0928_CCP_Virus_Updates.pdf)
 
-至於他為什麼會“知難而行”，我們不得而知；他是否帶了任務，隸屬於九層妖塔，我們讓子彈再飛一會。
 
-但黃西已經對海外華人的形象造成了惡劣影響，其殺傷力遠比普通人對著鏡頭歡呼美國總統得了新冠肺炎要大！勇氣曾助他在事業上取得過成功，但缺乏良知，卻讓他被永遠釘在了歷史的恥辱柱上！
 
 0

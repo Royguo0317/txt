@@ -1,34 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統10月5日晚在返回白宮後首次發表講話
-`2020-10-06 05:05 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/405922/)
+## 川普總統戰勝中共病毒，王者回歸白宮
+`2020-10-06 08:29 GM62` [轉載自GNews](https://gnews.org/zh-hant/406192/)
 
-川普總統10月5日晚在返回白宮後首次發表講話，表示感謝沃爾特·里德（Walter Reed）醫療團隊，自己使用了最新開發的藥物得已治癒。他感覺是近20年來最好的狀態，並反復強調不要被CCP病毒控制你、佔據你的生活。川普總統在視頻中目光剛毅、聲音洪亮、精力充沛，顯示已完全康復。
-視頻來源：[https://www.youtube.com/watch?v=OuhBF74ZD8E&feature=youtu.be](https://www.youtube.com/watch?v=OuhBF74ZD8E&amp;feature=youtu.be)
-I just left Walter Reed Medical Center, and it’s really something very special, the doctors, the nurses, the first responders. And I learned so much about coronavirus. And one thing that’s for certain. Don’t let it dominate you. Don’t be afraid of it. You’re going to beat it. We have the best medical equipment. We have the best medicines, all developed recently. And you’re going to beat it.
+編輯記者：小强
 
-我剛離開沃爾特·里德醫療中心。那裡真的是非常特別，醫生、護士和急救人員。我學到了很多關於冠狀病毒的知識。有一件事是可以肯定的：不要讓它（CCP病毒）控制你，不要害怕它，你會打敗它的。我們有最好的醫療設備，我們有最好的最新開發的藥物。你會打敗它的。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06052158/WH_20201005_Tump_Back-figure1.jpeg)川普總統走出醫院:fist: :fist: :fist: 
-圖片來源: [https://youtu.be/aYU6fr8oM-o](https://youtu.be/aYU6fr8oM-o) 
-I went … I didn’t feel so good, and two days ago, I could have left two days ago. Two days ago, I felt great like better than I have in a long time, I said just recently, better than 20 years ago.
+編輯審核：文劍 川渝小哥G
 
-兩天前，我去了（醫療中心），感覺不太好。兩天前我就可以離開（醫院）了。兩天前，我感覺如此之好，很長一段時間都沒有這麼好過，我說的是比20年前都好。
+美國東部時間10月1日川普總統在社交媒體推特上說,他和夫人梅拉尼婭新冠病毒檢測結果均呈陽性,將馬上進入隔離和康復程式。 受此消息影響,美國,歐洲和亞洲股市全線下挫,截止美東時間9:55,道指跌0.86%,報27577.32點,納指跌1.43%,報11164.94,標普500指數跌1.08%.,報3344.45.點油價暴跌逾4%,避險情緒升溫,美元指數反彈,金價走勢震蕩,市場的不確定性和波動性大大增加。
 
-Don’t let it dominate. Don’t let it take over your lives. Don’t let that happen. We have the greatest country in the world. We’re going to back, we’re going back to work. We’re going to be out front. As your leader I had to do that. I knew there’s danger to it, but I had to do it. I stood out front I led. Nobody that’s a leader would not do what I did. And I know there’s a risk there’s a danger, but that’s okay.
+川普總統感染ccp病毒消息公佈後,世界各國領導人都紛紛致電川普總統,向他表示慰問和支援。 就連北韓領導人金正恩也在第一時間向川普總統發出慰問電,朝中社(KCNA)報導消息說,北韓領導人金正恩表示:「我獲悉川普夫婦的新冠病毒檢測結果呈陽性。 祝你們早日康復。 “消息中說,金正恩還向特朗普及他的妻子轉達了誠摯的問候。
 
-不要讓它（CCP病毒）控制你，不要讓它佔據你的生活，不要讓那種事情發生。我們是世界上最偉大的國家。我們要回去，我們要回去工作，我們要到前面去。作為你們的領袖，我必須這麼做。我知道有危險，但我必須這麼做，我走在前面領路。沒有哪個領導者不會做我做過的事。我知道有風險，有危險，但是沒關係。
+只有COVID-19的製造者,故意傳播病毒的中共政府慰問遲到。 郭文貴先生在接受班農戰鬥室節目採訪中明確:「當中共得知川普總統和第一夫人感染病毒時,中共高層大部分人都開始慶祝。 他們早就準備好了簡報,甚至準備了悼詞給美國,這就是中共邪惡的表現。 這是生化武器! 我郭文貴今天向美國發出最後的警告,新冠病毒是生化武器,絕非自然病毒,不可能有疫苗! ”
 
-And now I’m better, and maybe I’m immune. I don’t know. But don’t let it dominate your lives. Get out there. Be careful! We have the best medicines in the world, and it all happened very shortly, and they’re all getting approved, and the vaccines are coming momentarily.
+此後,川普總統於10月2日被一架直升機送到位於馬里蘭州的美國海軍醫療中心,接受治療,川普總統住院期間將繼續履行其總統職權。 與此同時,白宮工作人員,川普總統競選團隊,美國國會駐白宮記者中已經出現多名確診病例,川普總統的病情一直牽掛著世界人民的心,大批的民眾不斷從美國各地,來到馬里蘭州•沃爾特裡德國家軍事醫療中心聚集,大批民眾守護在醫院門口,手中拿著寫有支援川普的旗幟揮舞,祝福川普總統身體康復。
 
-但是現在我好多了，也許是我免疫了，我不知道。但不要讓它（CCP病毒）主宰你的生活，出去小心點。我們有世界上最好的藥物，這一切都發生得很快，但它們（藥）都得到了批准。疫苗也馬上就要出來了。
+令人感動的是,川普總統的車隊突然出現在醫院前面,川普總統隔著車窗和守在醫院門前的美國民眾揮手致意,讓大家歡呼雀躍,令大家欣慰的是,川普總統的身體狀況非常不錯。 川普總統也在沃爾特. 里德軍事醫院錄製的視頻中表示,我想首先感謝沃爾特. 里德中心出色的醫務人員,感謝他們出色的工作,我到這兒時感覺不太好,但現在好多了,我們共同努力,讓我儘快康復,我必須儘快康復,因為我們還要美國再次偉大。
 
-Thank you very much. And Walter Reed, what a group of people! Thank you very much!
-
-非常感謝大家。感謝沃爾特·里德，這個了不起的團隊。非常感謝你們！
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06052144/WH_20201005_Tump_Back-figure2.png)圖片來源：https://www.youtube.com/watch?v=zJxmmFs2ZGU
-翻譯：【XO小粉紅】 校對：【Isaiah4031】字幕：【Pamila（文明）】編緝：【Isaiah4031】
-
-戰友之家玫瑰園小隊出品
+川普總統在視頻中表示他希望很快回來,期待著完成競選,他將帶領美國擊敗中共病毒! 期待川普總統王者歸來,帶領大家找出病毒真相,消滅故意製造傳播病毒的中共魔鬼政權。 截至投稿時,川普總統已經戰勝病毒並回到白宮。
 
 0
