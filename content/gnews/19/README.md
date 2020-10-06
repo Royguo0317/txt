@@ -1,65 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 九月份就業報告彰顯了美國人的堅韌不拔
-`2020-10-04 22:39 GM80` [轉載自GNews](https://gnews.org/zh-hant/402961/)
+## 爆革星評：川普返回白宮滅共風起雲湧
+`2020-10-05 20:03 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/404919/)
 
-美國勞工統計局10月2日發布了九月份就業報告，全美新增了661,000個就業崗位，失業率降至7.9％。報告還顯示彰顯受疫情影響而流失的就業崗位中超過半數已經得到了恢復。儘管今年並不輕鬆，但美國工人的勇氣並沒有絲毫動搖，美國正處於歷史上最快的經濟復甦之中。川普擔任總統期間，製造業一線員工的薪資增長速度(2.8％)是前任奧巴馬總統任職期間(1.7％)的1.6倍以上。在疫情大流行期間，川普政府提出了“薪資保護計劃”，為就業復甦掃清了道路。美國經濟在川普總統的領導下，將再次創造奇蹟。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/04220641/WH_20201002-Jobs-s.jpg)
-[閱讀原文](https://www.whitehouse.gov/articles/september-jobs-report-shows-american-grit/)
+喜馬拉雅聯盟加拿大農場文星（一號&大衛阿波羅）
 
-**全文翻譯：****【繁體】**
+校對上傳HUH
+[!\[川普出院了！推特宣布將重回競選行程返白宮脫口罩比讚| 新聞- Yahoo奇摩行動版\](https://s.yimg.com/ny/api/res/1.2/Yi9pl5uuPcIR6qq57gDBBw--/YXBwaWQ9aGlnaGxhbmRlcjt3PTEyNDI7aD04MjcuNDgyNQ--/https://s.yimg.com/uu/api/res/1.2/NjxKuhY73vTXLIj0MazzfA--~B/aD01MzM7dz04MDA7c209MTthcHBpZD15dGFjaHlvbg--/https://media.zenfs.com/ko/nownews.com/b255d7f334ca8269ff9cd6a6dbb783ce)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Ftw.mobi.yahoo.com%2Fnews%2F%25E5%25B7%259D%25E6%2599%25AE%25E5%2587%25BA%25E9%2599%25A2%25E4%25BA%2586-%25E6%258E%25A8%25E7%2589%25B9%25E5%25AE%25A3%25E5%25B8%2583%25E5%25B0%2587%25E9%2587%258D%25E5%259B%259E%25E7%25AB%25B6%25E9%2581%25B8%25E8%25A1%258C%25E7%25A8%258B-225551623.html&amp;psig=AOvVaw2OeGyeXvZTly_8QcycAXJ9&amp;ust=1602027122886000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCMDMuqTOnuwCFQAAAAAdAAAAABAD)圖片來源： Yahoo
+10月5日，副總統彭斯在去猶他州進行辯論的路上，發出官推說，剛剛與川普總統通了電話，川普總統恢復很好，他聽上去很棒！今晚將返回白宮工作。
 
-Economy & Jobs
+近幾天，川普總統及其競選團隊、白宮官員已有近30人確診感染中共病毒。 10月5日，白宮的美女發言人Kayleigh McEnany 也發推聲明中共病毒陽性。這種定點群體感染的情況，已被朱利安尼等美國關鍵人士確認為中共故意投毒所致，這與爆料革命的判斷也是一致的。
 
-#### **September Jobs Report Shows American Grit**
+據路德社爆料，美國也獲得了中共剛剛召開的內部會議內容：習包子親自部署要充分利用生化武器，讓美國政治經濟雙輸。由此，再結合閆麗夢博士的專業爆料，中共一意孤行破壞川普總統連任、惡意投毒的事實已經無可否認。
 
-October 2, 2020
+中共發動的要置美國死地的生化超限戰不會得逞。川普總統住院後，有大量美國民眾自發地守候在醫院外面，為他們的總統禱告、祈福。加州等美國各地都有民眾走上街頭支持川普總統。爆料革命的戰友們為川普總統發出了長長的祈禱詞，這就是民意！美國有正義感的人們都在希望川普總統早日恢復健康。
 
-3 minute read
+不僅有民意的支持，美國社會中為中共站台、協助中共搗亂的藍金黃力量逐步原形畢露，而滅共力量不斷集結增強。這表現在：
 
-經濟與工作
+10月1日，幫助中共主導陷害和起訴班農先生“建牆腐敗”犯罪的紐約南區檢察官克勞斯於司法部辭職。班農先生評價其辭職行為，是企圖逃離中共這個沉船。
 
-#### **九月份就業報告彰顯了美國人的堅毅**
+此前主持總統辯論的華萊士被永久開除出總統競選主持團隊。 10月4日，川普總統的競選高參—斯蒂文科迪斯，則在採訪中嚴厲狂懟主持人華萊士故意頻繁打斷川普總統的行為，直接指出他不是一個中立的協調人，甚至直接與總統對立。
 
-2020年10月2日
+而作為多年民主黨大本營的加州，10月5日有大量民眾湧上街頭，高舉支持川普的旗幟，擁護川普連任總統。有人戲稱：病毒攻陷了白宮，川普攻陷了加州。其實不是攻陷，這是民意的覺醒！
 
-3分鐘閱讀
+特別是，10月5日，美國聯邦檢察官直接發出指令，要求福奇博士出示與WHO、中共的通信聯絡信件，這勢必將揭開這個被中共藍金黃、阻止川普總統服用羥氯喹的老狐狸的畫皮。
 
-This morning, the Bureau of Labor Statistics released its monthly employment situation report. In September, the United States added 661,000 jobs, and the unemployment rate fell to 7.9 percent.
-
-今天早上，勞工統計局發布了每月的就業情況報告。 9月份全美新增661,000個就業崗位，失業率降至7.9％。
-
-In the last five months, 52 percent of the job losses from the pandemic have been recovered, and the United States has gained more than 11.4 million jobs, including a combined upward revision in July and August of 145,000 jobs. Although this year has not been easy, the grit of the American worker has not wavered, and we are in the midst of the fastest economic recovery in American history.
-
-在過去五個月中，受疫情影響而流失的就業崗位中有52%已經得到了恢復。美國新增了超過1,140萬個就業崗位，其中包括7月和8月上調的145,000個就業崗位。儘管今年並不輕鬆，但美國工人的勇氣並沒有絲毫動搖，我們正處於美國歷史上最快的經濟復甦之中。
-
-Since the recovery began in May, job gains have been concentrated in low-earning industries, which employ a large portion of minorities as well as those without college degrees, such as retail trade and leisure and hospitality. While the losses in these sectors were the steepest, swift, targeted action to keep workers connected to their employers has been a catalyst to recovery. Every private sector industry posted job gains for September, and leisure and hospitality and retail trade increased the most with gains of 318,000 and 142,000, respectively.
-
-自5月份開始復蘇以來，新增的崗位一直集中在低收入行業，例如零售，休閒和酒店業。這些行業僱用了大部分少數族裔以及沒有大專以上學歷的人。雖然這些行業的工作流失是最多最快的，但促使工人與雇主保持聯繫的有針對性的行動成了行業復甦的催化劑。各個私營行業在9月份均錄得就業增長，其中休閒，酒店和零售業增長最快，分別增長了318,000和142,000個就業崗位。
-
-In fact, 51 percent of all job losses from February to April occurred in either the leisure and hospitality industry or the retail trade industry, which have average hourly wages below the national average. Since then, more than 4.5 million jobs have returned in the leisure and hospitality sector and nearly 1.9 million jobs have returned in the retail trade sector. These, in conjunction with the education and health services sector, which added 40,000 jobs in September, account for 68 percent of job gains since April.
-
-實際上，從2月到4月的所有工作流失中，休閒，酒店和零售業就佔了51%。這些行業的平均小時工資低於全國平均水平。從那時候開始休閒和酒店業已挽回了超過450萬個就業崗位，零售業也挽回了近190萬個就業崗位。教育和衛生服務行業在9月份也增加了40,000個就業崗位。所有這些加在一起佔了自4月以來增加的就業崗位的68％。
-
-Blue-collar workers have experienced strong recoveries in recent months as expansions continue in the manufacturing and construction industries. Since their losses through April, manufacturing has recovered more than half of its losses, while construction has rebounded by two-thirds with combined gains of more than 1.4 million jobs. This Administration remains committed to workers previously left on the margin.
-
-製造業和建築業的持續增長帶動了這幾個月藍領工人就業的強勁復甦。自四月份以來，製造業已經挽回了此前流失就業崗位的一半以上，而建築業則反彈三分之二，加在一起總共增加了140萬個以上的就業崗位。政府承諾將繼續幫助失業工人回到工作崗位。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/04220705/WH_20201002-Jobs-figure1.png)
-Wages for manufacturing production and nonsupervisory employees grew more than 1.6 times faster during President Trump’s expansion period (2.8 percent) than during former President Obama’s expansion period (1.7 percent). As these workers experience the aftermath of the pandemic lockdowns, Trump Administration policies such as the Paycheck Protection Program supported roughly 4.3 million manufacturing jobs and 238,000 manufacturing establishments, paving the way for the current strength of their recovery.
-
-川普擔任總統期間，製造業一線員工的薪資增長速度(2.8％)是前任奧巴馬總統任職期間(1.7％)的1.6倍以上。在疫情大流行期間，川普政府提出了“薪資保護計劃”，為大約430萬個製造業就業崗位和238,000個製造業企業提供了支持，並為就業復甦掃清了道路。
-
-Although still elevated, unemployment rates fell for all minorities and historically disadvantaged Americans. Since April, the Hispanic unemployment rate has fallen by 8.6 percentage points, Asian-American unemployment by 5.6 percentage points, and Black American unemployment by 4.6 percentage points. Similarly, the unemployment rate for those with less than a high-school diploma has decreased by 10.6 percentage points, while that of high-school graduates with no college education has fallen by 8.3 percentage points in five months.
-
-儘管失業率仍在上升，但所有少數族裔和歷史上處於不利地位的美國人的失業率都在下降。自4月以來，西班牙裔失業率下降了8.6個百分點，亞裔美國人失業率下降了5.6個百分點，美國黑人失業率下降了4.6個百分點。同樣，擁有高中以下文憑者的失業率下降了10.6個百分點，而沒有大學學歷的高中畢業生的失業率在五個月內下降了8.3個百分點。
-
-The recovery has been historically unprecedented. Over the past five months, the unemployment rate has fallen by 6.8 percentage points. The last time the unemployment rate fell this much following its peak occurred between 1982 and 1999 following the global oil crisis, requiring almost 18 years , five presidential terms, and three administrations. The recovery the United States is witnessing now is almost 41 times faster than that. In fact, just a few months ago, every forecaster expected that 2020 would end with an unemployment rate far above 7.9 percent. The Congressional Budget Office (CBO) projected in July that the unemployment rate in December would be 10.5 percent, while the Blue Chip consensus and the Federal Open Markets Committee (FOMC) of the Federal Reserve projected a rate of 9.3 percent. Time after time, the economy under President Trump pushes Americans to achieve the impossible.
-
-這幾個月就業數據的複蘇是史無前例的。在過去的五個月中，失業率下降了6.8個百分點。上一次失業率下降這麼多是發生在全球石油危機之後的1982年至1999年。但它用了將近18年的時間，經歷了五個總統任期和三屆政府。美國現在的就業復甦速度比那時候快差不多41倍。實際上，就在幾個月前，每一位分析家都預測2020年的失業率將遠高於7.9％。美國國會預算辦公室(CBO) 在7月份預測12月份的失業率將為10.5％，藍籌共識和美聯儲聯邦公開市場委員會 (FOMC)也預測為9.3％。美國經濟在川普總統的領導下，將再次創造奇蹟。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/04220754/WH_20201002-Jobs-figure2.png)
-*翻譯：【倚天剑】 校對：【zhengyi (文正)】編輯：【GM80】*
-
-*戰友之家玫瑰園小隊出品*
+另據報導，美國軍方無人機中隊已經演練斬首行動多日，10月5日文貴先生在直播中也提到了，美國已製定了斬首中共幾個家族的軍事計劃。接下來的一個月，將會出現大力打擊中共的一系列行動。總之，川普總統今晚出院返回白宮，給我們帶來了無限的期待。在世界正義力量和爆料革命的推動下，美國社會的中共藍金黃力量正在逐步現出原形，而滅共力量則風起雲湧，不斷強大。一句話：中共必滅！
 
 0

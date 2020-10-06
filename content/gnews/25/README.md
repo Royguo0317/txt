@@ -1,31 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統10月4日下午報平安視頻
-`2020-10-04 19:14 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/402794/)
+## 中共國間諜對紐約市的“攻擊史無前例”
+`2020-10-05 19:07 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/404831/)
 
-川普總統在美國東部夏令時10月4日下午5:16通過他的[Twitter](https://twitter.com/realDonaldTrump/status/1312864232711520257)發佈了報平安視頻。儘管Walter Reed 醫療團隊在上午的新聞發佈會上，報告說川普總統曾有兩次短暫的血氧降低（低於94%），但視頻中川普總統狀態非常好。除了再次感謝了 Walter Reed 醫院所有人員的令人難以置信的工作之外，還透露了他曾會見醫院中的士兵和救援人員。他著重感謝了一直守候在醫院外街道上的支持者們，透露他有可能會給他們一個小小的驚喜。川普總統認為人們對的厚愛可能是因為他的工作被大眾認可。
+*新聞來源：New York Post 《紐約郵報》；作者：Michael Kaplan /邁克爾·卡普蘭；發佈時間： 2020年9月26日*
 
-We’re getting great reports from the doctors. This is an incredible hospital – Walter Reed. The work they do is just absolutely amazing. I want to thank them all, the nurses, the doctors, everybody here. I’ve also got to meet some of the soldiers and the first responders, and what a group!
+*翻譯/簡評：Marialu；校對：1818；審核：InAHurry；Page：拱卒*
 
-我們從醫生那裡接到的報告很棒。這是一個令人難以置信的醫院 — Walter Reed醫院。他們所做的工作絕對是驚人地棒。我要謝謝他們所有人，包括護士、醫生，和每一位在這裡的人。我還和一些士兵和急救人員見了面。多好的一群人啊！
+**簡評：**
 
-I also think we are going to pay a little surprise to some of great patriots that we have out on the street. They’ve been there for a long time. They’ve got Trump flags, and they love our country. So, I’m not telling anybody but you, but I’m about to make a little surprise visit. So, perhaps I will get there before you get to see me. Ah, but I just, when I look at the enthusiasm, and we have enthusiasm like probably nobody’s ever had, or people that love the job we are doing. We have more enthusiasm than maybe anybody.
+中共政府在美國利用領事館招募間諜。國務卿彭佩奧指控紐約市中領館是中共國在美最大的間諜基地。
 
-我還想給那些站在街上的偉大的愛國者們一個小小的驚喜。他們在那裡已經站了很久了。他們打著川普的旗子，他們愛我們的國家。所以，我誰也不告訴，但就告訴你們，我將要去給他們一個小小的驚喜，去看看他們。所以，也許我會在你們發現我之前就到達那裡。就當我看到那種熱情的時候，我們可能有任何人都沒有過的那種熱情，也許是人們喜歡我們正在做的工作。也許我們比任何人都有熱情。
+紐約警察局警官——昂旺就是其中一例，昂旺被指控為中共國充當間諜，利用職務之便，監控紐約中外社區活動，出賣內部情報給中共，還被洗腦說是保護了同胞利益；同時他還面臨電匯欺詐和作虛假陳述等指控。像昂旺這樣與中共暗通款曲的華人不在少數，順藤摸瓜應該會挖出更多為中共賣命的人，他們是自由世界的叛徒，也是被中共綁架，用之即丟的囚徒。
 
-So, it’s been a very interesting journal. I learnt a lot about COVID. I learnt by really going to school. This is the real school. This isn’t the ‘let’s read the book’ school, and I get it and I understand it, and it’s a very interesting thing. I am going to let you know about it.
+同時昂旺這樣的例子也向人們警示：凡是與中共魔鬼打交道的，最終都會被中共所拋棄。
 
-所以，這次[生病]是一個非常有趣的旅程。我學到了很多關於病毒的知識。我是通過“上學”學到的，這可是真正的“學校”，不是那種“讓我們讀書吧”那種學校。我明白了，我學懂了，而且這是一件很有趣的事。我會讓你們知道這一切的。
+我們呼籲美國政府盡快“關閉紐約中共領館”，告訴世界人民：中共才是自由世界最大的威脅！
 
-In the meanwhile, we love the USA, and we love what’s happening. Thank you.
+## **美國中情局內部人士稱：中共國間諜對紐約市的“攻擊史無前例”**
 
-同時，我們愛美國，我們愛正在發生的事。謝謝你們。
+[!\[\]()!\[\](https://spark.adobe.com/page/bnOTKOSqaWdTJ/images/f4aa5689-903b-4cca-b979-64c37ca42876.jpg?asset_id=24717d5b-c492-4986-80df-efd8f77c4839&amp;img_etag=%22734a8205539735f98dc621f2685829c6%22&amp;size=1024)](https://spark.adobe.com/page/bnOTKOSqaWdTJ/images/f4aa5689-903b-4cca-b979-64c37ca42876.jpg?asset_id=24717d5b-c492-4986-80df-efd8f77c4839&amp;img_etag=%22734a8205539735f98dc621f2685829c6%22&amp;size=1024)
 
+紐約市正在“遭受著前所未有的攻擊”。
 
+美國中情局（CIA）前反間諜局長詹姆斯•M•奧爾森（James M. Olson）對《紐約郵報》表示，中共政府已經加快了其招募間諜的工作。據他“保守”估計：在任何時候，中共國都有超過100名情報人員在該市活動。
 
-聽寫 & 翻譯：【Isaiah4031】字幕：【班仔】技術支持：【XO小粉紅】編輯：【Isaiah4031】
+“他們的間諜計劃非常龐大，”奧爾森（Olson）說道，“他們會在社交媒體上積極地挖掘，以尋找對中共國“母親”懷有感情的華裔美國人。”
 
-戰友之家玫瑰園小隊出品
+[!\[\]()!\[\](https://spark.adobe.com/page/bnOTKOSqaWdTJ/images/85f31f42-b578-49e3-8109-098e7dd7ef9d.jpg?asset_id=191fdb90-cb3b-48b3-8ab0-d9ed729c7e49&amp;img_etag=%228262ea4040d01916e75e68e18cf6ada0%22&amp;size=2560)](https://spark.adobe.com/page/bnOTKOSqaWdTJ/images/85f31f42-b578-49e3-8109-098e7dd7ef9d.jpg?asset_id=191fdb90-cb3b-48b3-8ab0-d9ed729c7e49&amp;img_etag=%228262ea4040d01916e75e68e18cf6ada0%22&amp;size=1024)白馬達傑·昂旺
+
+紐約警察局警官——白馬達傑·昂旺（Baimadajie Angwang）似乎就是一個例子。他是藏裔美國公民，於週一被捕，並被揭露涉嫌為中共國間諜。這位33歲的前海軍陸戰隊、美國陸軍預備役中士，又是2018年“月度警察”，面臨包括非法充當外國政府代理人、電匯欺詐和作虛假陳述等指控。
+
+週三，國務卿邁克·彭佩奧（Mike Pompeo）對《紐約郵報》表示，紐約市中共領館是中共國在美從事間諜活動的主要基地——很可能還會有更多的人被捕。
+
+奧爾森（Olson) 形容昂旺為中共國潛在的“金礦”。
+
+在德克薩斯農工（A&M）大學的布什政府與公共服務學院教授“情報與反間諜”課程的奧爾森說：“警察、軍人、反間諜人員是中共國針對的三大目標。中共的人會對紐約警察局的某位警察很感興趣，因為此人可以獲取記錄，提供線索，找出誰正在接受調查。這樣一來中共就有了內部消息，可以想辦法用實施藍金黃（來擺平被調查）。”
+
+《紐約市間諜網站》一書的共同作者、也是中情局的歷史顧問H.基斯·梅爾頓（H. Keith Melton）說，中共國在招募間諜過程中，其情報機構，即“國家安全部” 會與目標人物在國內有聯繫的人開始接觸，“他們邀請’新招募人員’ 吃飯，也許帶他去看歌劇，最後讓他為中共國做一件灰色地帶的事情。”
+
+奧爾森解釋說：“人們堅信他們的所作所為不會損害美國的利益，儘管這樣做其實是有害的。中共國有多名間諜同時在從事某一特定任務。所以“某個代理人”可能只獲取少量信息，這些信息看似無關緊要，但卻是一個大計劃的一部分。”
+
+就昂旺這一例，奧爾森（Olson）認為：“他們將利用他來摸清紐約警察局在監控方面的工作、所擁有的數據庫，以及掌握（紐約警局）對中共國在聯合國的代表和領事館官員的了解。”
+
+一個潛在的預警是，儘管昂旺通過政治庇護而定居美國，但他曾多次回到中共國。
+
+奧爾森說：“他的上線可能會建議他去中共國匯報工作，獲取補償金，並領受情報收集的要求。這樣他們就可以在自己的地盤上與“間諜”會面，同時對他進行評估、以好酒好菜款待，招待得像貴賓（VIP）似的。而且，’間諜活動’ 會被認為是在幫助你的中國同胞。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/bnOTKOSqaWdTJ/images/3bd9d228-6625-4032-a8ed-dd9a289c0467.jpg?asset_id=d652d221-7ed6-418c-910d-8e5a55f38a87&amp;img_etag=%222edb29925200fdee9c4c38cdf1eaf852%22&amp;size=1024)](https://spark.adobe.com/page/bnOTKOSqaWdTJ/images/3bd9d228-6625-4032-a8ed-dd9a289c0467.jpg?asset_id=d652d221-7ed6-418c-910d-8e5a55f38a87&amp;img_etag=%222edb29925200fdee9c4c38cdf1eaf852%22&amp;size=1024)中共國國旗在紐約中領館外飄揚。
+
+根據竊聽到的消息，昂旺告訴他的一位上線，他參加了紐約警察局的考試，還可能會獲得晉升，他還說他這樣做是“為了家鄉的人民”。
+
+奧爾森說，“如果你在中共國有家人”——就像昂旺那樣，據說他的父母都是共產黨員，——“他們可以決定他的家庭成員是否可以得到幫助，並對此加以利用，對昂旺來說是進退兩難的抉擇。中共會弄清楚你需要什麼樣的幫助，無論是你見家人所需要的簽證，還是獎學金或是錢。”
+
+奧爾森是《抓捕間諜：反間諜的藝術》一書的作者，他說昂旺“很可能每月可以多掙幾千美元。” 根據訴狀，他“收到了來自中共國的多筆大額電匯”。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/bnOTKOSqaWdTJ/images/a46ceaf6-c9cd-4d54-9ba3-23c9c328b02d.jpg?asset_id=c7d1bf22-2895-4452-83f4-bf31d90c9152&amp;img_etag=%222395bc63b9b51701beff756055693fec%22&amp;size=1024)](https://spark.adobe.com/page/bnOTKOSqaWdTJ/images/a46ceaf6-c9cd-4d54-9ba3-23c9c328b02d.jpg?asset_id=c7d1bf22-2895-4452-83f4-bf31d90c9152&amp;img_etag=%222395bc63b9b51701beff756055693fec%22&amp;size=1024)紐約警察局官員白馬達傑·昂旺被逮捕，並被揭露是一名中國間諜。
+
+雖然當局沒有透露昂旺涉嫌的間諜活動是如何被發現的，但奧爾森說“可能是他太輕率了； 也許是他向別人炫耀；也可能是他大手大腳地花錢。”
+
+但中共國是絕不會來救昂旺的。
+
+“他被拋棄了，但這就是作間諜的代價。” 奧爾森根據自己在此類事務上的經驗解釋道，“中共在美國擁有很多的間諜，所以他們損失一些也能承受得起。”
+
+[原文鏈接](https://nypost.com/2020/09/26/how-china-recruits-spies-like-nypd-officer-baimadajie-angwang/)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/bnOTKOSqaWdTJ/) -點擊spark adobe版
 
 0
