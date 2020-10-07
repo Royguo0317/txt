@@ -1,24 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 十一國殇後，節約糧食成爲“新時尚”
-`2020-10-07 01:21 GM64` [轉載自GNews](https://gnews.org/zh-hant/407664/)
+## 簡訊：國會議員提交最新法案“認定CCP為跨國有組織犯罪集團”
+`2020-10-07 04:27 Ronald` [轉載自GNews](https://gnews.org/zh-hant/407858/)
 
-內新聞：WENWU
-素材：peterwong
-校對：天藍色獨角色
+內新聞：霹靂鼠年       校對:天藍色獨角色
 
-據黨媒人民日報、新華社2020年10月5日報道，中共國國家主席習近平曾在2017年1月17日至2020年8月強調國人要節約糧食，就此在中共國社會要實行剛性制度體系。我們知道，節約糧食和經濟可持續發展是扯不上關系的。那麽節約糧食成爲“新時尚”又是什麽把戲呢？
+2020年10月01日，賓夕法尼亞州國會第十選區共和黨眾議員Rep. Perry, Scott（Scott Gordon Perry），向眾議院司法委員會（the House Committee on the Judiciary）提交立法提案：HR8491 – To designate the Chinese Communist Party (CCP) as a transnational organized crime group.（認定CCP為跨國有組織犯罪集團）。
 
-自習上台以來，曾向非洲捐款幾千億美元。據國內媒體對此事相關報道，中共國之所以給非洲捐款是因爲國內用不了美元。然而真相只是窮國家是習的“友邦”，應了慈禧“甯與友邦，不與家奴”這句話。可見，中共的“新時尚”實質是集權體制的獨裁專制，想這麽幹就這麽幹。
+- ![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07041721/download-1.png)
+- ![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07041749/Screenshot_2020-10-07-11-59-19-660_Discord.png)
 
-據新華社報道，截止至3月26日，全國已有7901萬多名黨員“自願”捐款82.6億元，支援國內疫情。官方公布國內感染病毒人數大約在91000多人。可見，捐款金用來支援前線的抗議工作是綽綽有余的。但仍有網友反應，醫院拒絕支付給一線護士支援金，該醫院的操作是違反國務院的通知的，但在中共國卻無法解決！換位思考，在“新時尚”的政策下，我們又該要相信中共官員能爲人民做“苦日子”的榜樣嗎？
 
-中共執政核心：黨在國前。即人爲刀俎，我爲魚肉。真相不言而喻！
-
-新聞來源：
-[https://m.jiemian.com/article/5080100.html](https://m.jiemian.com/article/5080100.html)
-
-圖片來自新浪
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07012008/77-2.png)
 0

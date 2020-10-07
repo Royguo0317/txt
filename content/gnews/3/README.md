@@ -1,51 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國國土安全部重磅首發《國土威脅評估》
-`2020-10-07 01:14 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/407649/)
+## 【香港要聞】港中大民調顯示，43.9%港人想移民
+`2020-10-07 04:07 GM42` [轉載自GNews](https://gnews.org/zh-hant/407826/)
 
-喜馬拉雅聯盟加拿大農場 laotou
+蒐集：JAY 文燕
+編撰：文燕
+審核：WJ
 
-校對上傳 XM
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07010923/bba3039d3d8e87f2cfc47739b0b4a14e.jpg)圖片來源：美聯社
-10月6日，華盛頓特區–美國國土安全部代理部長查德∙沃爾夫（Chad F. Wolf）發布了國土威脅評估（HTA）報告。這是國土安全部（DHS）首份綜合性威脅評估報告，包括情報和作戰部分。
 
-沃爾夫宣布，“這個國土威脅評估報告是盡可能地讓美國人民看到並理解這些信息，我作為代理部長以及我們的員工在執行國家安全使命中看到了這一點。當你通讀這份報告時，你應該有信心知道，這些威脅是通過最好的情報、業務信息以及睿智的國土安全部員工確定的。”
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07035110/d4782406.jpg)
+據**【大紀元】**10月6日報導，香港中文大學一項民調顯示，有43.9%受訪港人想移民，其中三分之一近期已在為移民做準備，原因包括不滿政府，以及人權狀況變壞等。
+     從去年中共推行《逃犯條例》和今年6月30日單方面通過並強制實施的“港版國安法”之後，香港人的移民數量大幅增加，移民的主要原因是不滿香港日益惡化的人權和政治環境。
 
-沃爾夫還說，“當美國人民讀到這份報告時，他們更加意識到美國將面臨的傳統威脅，如恐怖主義和有組織犯罪。不過，我想他們也會意識到，我們國家正在面臨著來自中國、俄羅斯和伊朗等民族國家的重大威脅。”
+**香港中文大學亞太研究所日前訪問了737人，主要調查受訪者認為香港是否適合居住與生活**
 
-內容鏈接：
+43.9%受訪者表示，如果有機會，他們將打算移民或移居外地，當中35%更表示，近期已為移民作準備，相比去年9月的調查顯著增加。
+46.8%表示沒有打算，其餘的表示不知道或難說等。
 
-[https://www.dhs.gov/news/2020/10/06/department-homeland-security-releases-homeland-threat-assessment?utm\_source=hp\_slideshow&utm\_medium=web&utm\_campaign=dhsgov](https://www.dhs.gov/news/2020/10/06/department-homeland-security-releases-homeland-threat-assessment?utm_source=hp_slideshow&amp;utm_medium=web&amp;utm_campaign=dhsgov)
+**調查指出**，最多受訪者提及的移居目的地依次是英國（23.8%）、澳洲（11.6%）和台灣（10.7%）。
+**有意移民者最多提及的離港因素**有4項，包括“不滿特區政府／特首／高官／不滿政府政策”（27.3%）、“香港政治爭拗（議）太多／太煩／政治不穩定”（23.6%）、“香港自由（包括言論自由）／人權情況變壞／喪失新聞自由”（19.8%）和“香港政治不民主”（17.6%）。
+此外，受訪市民對香港“宜居”城市的平均評分為49.6分，較去年9月的54.4分顯著下降，也是2017年以來的低點。
 
-“評估報告”目錄
+另外據**【VOA】**10月7日報導，中文大學民調還顯示，港人提到的移民目的以“該處的自由（包括言論自由）/人權狀況較好”為最多，其他移民目的還包括：當處居住環境比較寬敞、當地政制較民主，以及該處放寬移民條件等因素。
+**中文大學**的民調研究認為，相較於2017-2019年的調查結果，這次民調顯示出，港人想移民的本地因素以及所選移民目的地都首先與政治有關。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07035122/image001-1.jpg)
+**戰友點評：【文燕】**
+     國安法實施前後香港爆發新一波移民潮 。香港曾經有數次移⺠潮，包括在1967年六七暴動後、1989年六四事件後，2014年雨傘運動後;而最大型的一次則是1997年香港主權移交前。
 
-前言
+中國政府頒布實施《港版國安法》，在港國安機構也已揭牌成立，不斷有人被逮捕被起訴，因此誘發的寒蟬效應讓不少港人表示要考慮移居海外，美國、英國、澳大利亞、台灣等也提出給予港人庇護簽證。
 
-HTA（國土威脅評估）的結構
+根據香港民意研究所8月11日發布的民調顯示，特首林鄭月娥的聲望持續下跌，以100分為滿分，林鄭月娥只得到26.7分，當中有將近五成的市民給她0分。從調查結果看到港人對林鄭政府的不滿到了極點。
 
-威脅：
+以上觀點僅代表筆者本人
+資料來源： 大紀元/BBC中文網/美國之音
 
-網絡
+[https://www.epochtimes.com/gb/20/10/6/n12457412.htm](https://www.epochtimes.com/gb/20/10/6/n12457412.htm)
 
-對外影響活動
+[https://www.bbc.com/zhongwen/simp/chinese-news-54382871](https://www.bbc.com/zhongwen/simp/chinese-news-54382871)
 
-經濟安全
-
-恐怖主義
-
-跨國犯罪組織
-
-非法移民
-
-自然災害
-
-全文26頁，涉及中共國內容有大量的篇幅。
-
-原文鏈接：
-
-[https://www.dhs.gov/sites/default/files/publications/2020\_10\_06\_homeland-threat-assessment.pdf](https://www.dhs.gov/sites/default/files/publications/2020_10_06_homeland-threat-assessment.pdf)
-
-期待戰友們閱讀、傳播，讓更多的人了解邪共、魔共對美國、對全世界的威脅！
+[https://www.voachinese.com/a/new-survey-hk-found-44-like-immigrant-20201006/5610863.html](https://www.voachinese.com/a/new-survey-hk-found-44-like-immigrant-20201006/5610863.html)
 
 0
