@@ -1,37 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突發！妳的戰友因和平抗議傅希秋被當地警察抓捕！
-`2020-10-06 17:52 GM01` [轉載自GNews](https://gnews.org/zh-hant/407026/)
+## 中共負隅頑抗下暴露邪惡嘴臉，美軍高級將領感染中共病毒
+`2020-10-06 22:24 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/407371/)
 
-2020年10月6日，壹位戰友在德州米德蘭前線抗議假牧師真間諜傅希秋而被抓捕，視頻中壹位非洲裔警察壹直要求戰友出示ID，從表情和肢體語言判斷給人的感覺很不友好。
+喜馬拉雅聯盟加拿大農場大地鯤鵬
 
-警察表示：“妳不給我ID，就要進監獄”
+校對上傳HUH
+[!\[Milley Calls for 'Hard Look' at Renaming Bases Honoring Confederates - The New York Times\]()!\[Milley Calls for 'Hard Look' at Renaming Bases Honoring Confederates - The New York Times\](https://static01.nyt.com/images/2020/07/09/us/politics/09dc-military/09dc-military-videoSixteenByNine3000.jpg)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Fwww.nytimes.com%2F2020%2F07%2F09%2Fus%2Fpolitics%2Fmilley-trump-confederate-base-names.html&amp;psig=AOvVaw0b2ICud86XU1K6GUOd4fF7&amp;ust=1602123309512000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCOjq5du0oewCFQAAAAAdAAAAABAJ)圖片來源：The New York Time
+美國國防部官員周二（10月6日）說，參謀長聯席會議主席馬克·米爾利（Gen. Mark A. Milley）將軍以及五角大樓幾名最高級的軍隊領導人在暴露於中共病毒後都被隔離。這位官員說，在海岸警衛隊副司令查爾斯·雷（Adm. Charles Ray）將軍檢測出冠狀病毒呈陽性之後，包括陸軍參謀長詹姆斯·麥康維爾（Gen. James C. McConville）上將在內的幾乎所有參謀長聯席會議成員都進行了隔離。
 
-> 为什么当地警察并不友善的阻挠在现场针对【假牧师真间谍】Bob傅的和平抗议活动？
-> 
-> CCP的蓝金黄究竟有多疯狂？伪类的迷惑性究竟有多严重？
-> 
-> 没有前线战友的抗议真的很难直观感受！
-> 
-> 战友们请用行动支持全球 [#惩贼运动](https://twitter.com/hashtag/%E6%83%A9%E8%B4%BC%E8%BF%90%E5%8A%A8?src=hash&amp;ref_src=twsrc%5Etfw) ！[#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#TakeDownTheCCP](https://twitter.com/hashtag/TakeDownTheCCP?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/hBErsK1eNr](https://t.co/hBErsK1eNr)
-> — 战友之家 (@VOG2020) [October 6, 2020](https://twitter.com/VOG2020/status/1313585471759495170?ref_src=twsrc%5Etfw)
+在無干預因素前提下，病毒感染與其他疫情感染分佈應該呈現逐步遞增和蔓延的趨勢。此次軍方核心機構與川普總統所在的白宮的周邊環境尚未達到廣泛傳播水平，但行政和軍事核心人員在公共衛生高級別防禦下集中染疾，其遭受中共生化武器攻擊的可能性更高。
 
-2020年10月5日，郭先生在直播中正式將“滅賊運動”改為全球“懲賊運動”，旨在揭露所有在海外共產黨潛伏的特務。
+“路德時評”10月4日節目中透露出，中共黨魁習近平“終極之戰”講話，“做好生化武器研究”、“利用好優勢” ，都不能簡單理解成中共為鼓舞士氣而進行的吹噓。結合目前美國白宮和五角大樓遭受的攻擊來看，中共對其生化武器的製毒水准上有足夠的自信，並在投毒方法上可謂駕輕就熟。中共對美國商界、政界、軍界多年的情報收集也足以支撐其完成生化武器的定點打擊，另據報導以曹務春為首的中共軍方科學家已經研製了其他更為恐怖的生化武器，並完全可以依托現有投毒渠道輸入至美國樞紐。中共在被逼入死角的關鍵時刻，徹底撕下了面具，完全暴露邪惡本性。
 
-“凡是替共產黨搖旗吶喊的，替共產黨說好話的，反對香港運動，造謠閆麗夢科學家，打擊爆料革命，反對我們滅共的全部都是我們的敵人。”
+今年5月份美國軍事入伍處理司令部的修訂文件顯示：“一經實驗室檢查或臨床醫生確診感染中共病毒者將永久失去入伍美軍的資格。”目前尚不知道查爾斯•雷將軍以及其他幾位將軍是否會受該修訂影響，但美軍應會保持對中共的軍事壓力，不使負隅頑抗的中共得到喘息之機。
 
-抗議過程中，警察還多次要求戰友在疫情期間摘掉口罩，並拍攝戰友的臉部，這些信息會被CCP得到嗎？
+參考新聞[https://gnews.org/zh-hant/196184/](https://gnews.org/zh-hant/196184/)
 
-> 警察要求和平抗议【假牧师真间谍】傅希秋的战友在疫情期间摘下口罩并拍摄战友的脸！
-> 
-> The police demanded that the protesters peacefully protesting against Bob Fu take off their masks and photograph his face during the epidemic! Will CCP get this information? [#惩贼运动](https://twitter.com/hashtag/%E6%83%A9%E8%B4%BC%E8%BF%90%E5%8A%A8?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/TYZB7KBg1B](https://t.co/TYZB7KBg1B)
-> — 战友之家 (@VOG2020) [October 6, 2020](https://twitter.com/VOG2020/status/1313592570623266822?ref_src=twsrc%5Etfw)
-
-傅希秋，1968年出生於中共國山東省，他自稱1989年因組織學生參加了當年的六四遊行示威活動而被捕入獄，然而奇怪的是1991-1993年傅希秋卻來到中國人民大學就讀國際關系專業， 1994年，傅希秋來到北京行政學院當老師，而該校是中共北京市委領導的壹所專門用來培訓黨員與官員的。 1996年，傅希秋及其妻子利用政庇來到了美國。傅希秋作為壹個基督徒牧師，在德州的米蘭德擁有和經營至少兩家酒莊，並把很多家人和親戚都弄到了美國，在米蘭德及周圍區域有10棟左右他們家族的豪宅。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06174345/%E6%88%AA%E5%B1%8F2020-10-06-%E4%B8%8B%E5%8D%8810.43.26.png)傅希秋中共北京市委黨校工作證![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06174259/%E6%88%AA%E5%B1%8F2020-10-06-%E4%B8%8B%E5%8D%8810.42.34.png)傅希秋酒庄图片
-中共釋放冠狀病毒於全球後，閆麗夢博士勇敢地站出來揭露真相，然而，傅希秋公開撒謊，詆毀閆博士，打擊其關於病毒的爆料真相。
-
-
+[https://dailynews.sina.com/gb/usa/phoenixtv/2020-10-06/doc-ihaaqscx9821124.shtml](https://dailynews.sina.com/gb/usa/phoenixtv/2020-10-06/doc-ihaaqscx9821124.shtml) &gt;
 
 0
