@@ -1,21 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/09/30 CCP病毒每日疫情直播簡報
-`2020-10-07 07:37 GM62` [轉載自GNews](https://gnews.org/zh-hant/408390/)
+## 班農疫情作戰室：400期 梵蒂岡和中共續簽勾兌協議【精華版粵語配音】
+`2020-10-07 09:11 GM42` [轉載自GNews](https://gnews.org/zh-hant/408700/)
 
-戰友之家圖文摘要及小語種組
-
-[249\_English\_0930\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073428/249_English_0930_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073428/249_English_0930_CCP_Virus_Updates.pdf)
-
-[249\_French\_0930\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073400/249_French_0930_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073400/249_French_0930_CCP_Virus_Updates.pdf)
-
-[249\_German\_0930\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073350/249_German_0930_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073350/249_German_0930_CCP_Virus_Updates.pdf)
-
-[249\_Korean\_0930\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073355/249_Korean_0930_CCP_Virus_Updates_249.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073355/249_Korean_0930_CCP_Virus_Updates_249.pdf)
-
-[249\_Spanish\_0930\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073405/249_Spanish_0930_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073405/249_Spanish_0930_CCP_Virus_Updates.pdf)
+製作單位：戰友之家·粵語頻道
+素材製作：Warroom Pandemic
+片段選取：你睇我唔到
+視頻剪輯：食飽飽
+字幕校對：喬巴
+視頻配音：小野貓、老徐
 
 
+
+概要：
+中共在美國的滲透無處不在，中共滲透了華爾街及美國所有的高校，還有梵蒂岡
+梵蒂岡和中共續籤的這個協議，這是史無前例的。
+蓬佩奧說，如果天主教臣服於中共，這個蔑視人權的政權，那將是一個大災難。
+如果他們和中共續約，梵蒂岡將危害教廷的道德權威。
+全世界的基督徒，捍衛宗教自由的鬥士們一直懇求梵蒂岡，結束於中共這場交易。並擺脫中共的暴力和迫害。
 
 0

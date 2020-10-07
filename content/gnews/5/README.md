@@ -1,76 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國29無人機攻擊中隊 （The 29th Drone Attack Squadron）
-`2020-10-07 10:06 GM01` [轉載自GNews](https://gnews.org/zh-hant/408856/)
+## 中共通過教育“漢化”西藏青年
+`2020-10-07 13:21 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/409275/)
 
-作者：戰友之家維基百科小組
+*新聞來源：bitter winter《寒冬》；作者：元維/ Yuan Wei；發佈時間：09/15/2020*
 
-第29無人機攻擊中隊前身是美國第29攻擊中隊(維基百科詞條)，隸屬於第49聯隊，於2009年10月23日正式啟用，基地於霍洛曼空軍基地，新墨西哥州，配備通用原子的MQ-9“死神”無人機，也稱“收割者”無人機[1]，是美國在中東和非洲開展了20年的反恐鬥爭的主力無人機[11]。
+*翻譯/簡評：風起雲湧；校對：Linda Black；審核：InAHurry；Page：拱卒*
 
-最初成員由十二名教官（六名教員飛行員和六名教官）組成的幹部配備了部隊。該部隊取代了432d行動小組（第3航空隊）[2]，成為MQ-9的正式訓練部隊[3]。
+[!\[\]()!\[\](https://spark.adobe.com/page/yWkwkIByI0NXa/images/eca24958-cc7a-421f-8486-b93907e4c304.jpg?asset_id=5f6c57ac-06c7-471f-9aea-795e346878bd&amp;img_etag=%226bff98b3aa57b196f16edcee78a391f3%22&amp;size=2560)](https://spark.adobe.com/page/yWkwkIByI0NXa/images/eca24958-cc7a-421f-8486-b93907e4c304.jpg?asset_id=5f6c57ac-06c7-471f-9aea-795e346878bd&amp;img_etag=%226bff98b3aa57b196f16edcee78a391f3%22&amp;size=1024)
 
+**簡評：**
 
+中共這個非法政權，在70年的執政生涯中，作惡多端，罪行累累。它們所作的一切都是為了自己的權力和私利為目的，而每次行動卻都打著“為國為民” 的虛假口號。
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07095916/image001-4.png)圖1 第29攻擊中隊徽章（1956.12.12批準）[1]
+例如，選拔優秀的少數民族學生到中共國內陸免費學習，聽起來像是在幫助少數民族，實質上卻是在漢化少數民族。這些學生不允許頻繁與家人接觸，不允許談及宗教信仰，要經常觀看愛中共國教育影片。大學畢業後，他們都被洗腦成共產邪魔接班人，再回到當地政府任職。顯然，這些少數民族的語言，文化，信仰和傳統將被淡化，從而最終消失。那麼新疆，西藏等地區將完全掌握在中共獨裁的魔爪之下。
 
-新墨西哥州霍洛曼空軍基地-首批抵達霍洛曼的MQ-9收割機於2009年10月1日進行了首次本地飛行，從而增強了遠程駕駛正規訓練部隊的能力。[2]
+如果中共的計劃如期完成，估計它們的下一個目標，就是用類似的方法漢化全世界。文貴先生的爆料革命已經證明，只有我們想不到的，沒有邪共做不到的。所以用“邪惡，無恥，貪婪” 等等這些詞語來形容中共，都顯得那麼蒼白無力。
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07100043/image003-1.jpg)圖2 2009.10.1 第29無人機攻擊中隊MQ-9首飛[2]
+常言道，不作不死，最近發生的許多事件都表明，中共正在作死的末路上狂奔！
 
-**應用**：
+## **中共通過教育“漢化”西Z藏青年**
 
-MQ-9空中徘徊時間超過壹天，所需燃料和維護較少，更不會出現飛行員傷亡。具備強大的情報收集能力，並可以守護關島等遙遠的基地、防止敵人巡航導彈；提供空對空導彈炮臺[8]，以保衛油輪，運輸工具和指揮控制飛機；或為AC-130空中炮艇掃清道路，同時炮艇可搭載操作RPA的飛行員。
+[!\[\]()!\[\](https://spark.adobe.com/page/yWkwkIByI0NXa/images/dca8949f-f7df-4ade-b41f-4d818cfce407.jpg?asset_id=f322733e-7ba4-4c41-92d9-6c3b3457fef7&amp;img_etag=%229c0c766d8782d4f83bade4455a36bf2b%22&amp;size=2560)](https://spark.adobe.com/page/yWkwkIByI0NXa/images/dca8949f-f7df-4ade-b41f-4d818cfce407.jpg?asset_id=f322733e-7ba4-4c41-92d9-6c3b3457fef7&amp;img_etag=%229c0c766d8782d4f83bade4455a36bf2b%22&amp;size=1024)
 
-**任務記錄**：
+中共將有才華的西藏學生帶到中國內地學習，作為交換，中共強迫這些學生放棄自己的文化、語言和傳統。
 
-2011年3月時，美軍已將48架MQ-1和MQ-9部署至伊拉克與阿富汗執行任務。10月，美軍將MQ-9部署至埃塞俄比亞的阿爾巴門奇機場，開始對索馬裏的偵察活動[6]。
+陝西省省會西安市的滻灞一中，是中共所謂的“西藏自治區援助夥伴關係”計劃的一部分，該計劃於數十年前啟動，旨在使該地區的鄰近省份參與進來以“改善藏人的經濟和福利”。這一表面上是利他主義活動的背後，是該活動被廣泛用來同化和“漢化”該地區的年輕人。
 
-2012年4月，第29無人機攻擊中隊利用MQ-9拯救3名希拉河附近失蹤人員 [4]，實現非軍事任務的突破，表明有能力將MQ-9應用於正道主義任務。
+這所學校由政府撥款1.87億元人民幣（約合2700萬美元）建造，是陝西省對藏人“援助”項目的“貢獻”。來自西藏的學生每年都被挑選到滻灞一中學習，並由國家支付所有學費和生活費。但是，就像維吾爾族人受政府津貼，到中共國內地學習一樣，他們為這種“特殊”待遇付出了最終的代價-他們脫離了西藏文化，傳統和宗教，必須服從中共的灌輸。
 
-2017年7月26日，霍洛曼空軍基地的第49聯隊表示正從MQ-9 Block 1過渡到Block 5版本，以及從Block 15地面控制站（GCS）過渡到較新的Block 30[3]，以便於進行新的（遠程駕駛飛機[12]）RPA飛行員和傳感器操作員訓練。
-每天約10架MQ-9空降，飛行時長為6-14小時，飛行空域為白沙導彈靶場和極樂堡上方18,000至30,000英尺領空，以及霍洛曼空軍基地和坎農空軍基地之間的飛行走廊[3]。其中壹架MQ-9於5月2日基地附近墜毀。
+在今年8月28日至29日由中共中央召開的第七屆西藏工作論壇上，習近平主席強調：“我們必須重視加強學校的思想政治教育，把愛國主義精神貫穿於全體，各級和各類學校教育的過程當中，在每個青少年的心中播下愛中國的種子。”
 
-2019年9月夜間，美國對阿富汗進行空中投送補給任務，第29無人機攻擊中隊的2名控制MQ-9保護C-130，並避免使用火箭榴彈的無人機操作員受到獎勵[5]。
+[!\[\]()!\[\](https://spark.adobe.com/page/yWkwkIByI0NXa/images/88caaf08-d04f-4152-8fd5-e834d982fc9e.jpg?asset_id=1c4d0629-94f8-4823-ae8e-69a292820a18&amp;img_etag=%22500abcad3ea6c7cfe765a898ba28cce6%22&amp;size=2560)](https://spark.adobe.com/page/yWkwkIByI0NXa/images/88caaf08-d04f-4152-8fd5-e834d982fc9e.jpg?asset_id=1c4d0629-94f8-4823-ae8e-69a292820a18&amp;img_etag=%22500abcad3ea6c7cfe765a898ba28cce6%22&amp;size=1024)滻灞第一中學的學生參加愛國主義課程。
 
-2020年1月3日淩晨，美軍空襲巴格達國際機場，MQ-9共發射4枚導彈並擊中兩輛座車，造成伊朗第二號人物蘇萊曼尼少將和伊拉克民兵組織首腦等5人身亡[7][8][9][10]。
+西安市教育部門的消息人士告訴《寒冬》，國家把這些藏族學生視為“可靠的繼任者，他們將建設西藏並保衛邊疆，他們肩負著民族團結的偉大使命”。所有從該學校畢業的藏族學生，繼續在大學學習後，會被分配到西藏各政府機構任職。他還補充說，讓藏族青年在中共國內地接受教育的計劃，是政府使西藏“中國化”的戰略之一。
 
-2020年9月第29無人機攻擊中隊演練了斬首北京的軍事行動，軍人的迷彩服臂章上，“死神”無人機飛越中國地圖[13]，配有4顆綠色炸彈，數字29則代表第29無人機攻擊中隊。
+據消息人士稱，滻灞第一中學的老師定期組織藏族學生觀看愛國教育電影。學生住在學校內，在三年的教育期間只允許回家一次。他們還被指定與那些持有“堅定的政治見解和正確的少數民族觀念”的當地漢族家庭結對，要求這些家庭“關注學生的精神成長”，並以符合中共意識形態的“正確”的價值觀和眼光教育藏族學生。
 
-第29中隊指揮官戴維斯中校稱，“敏捷死神”演習3日在加利福尼亞州穆古角的海軍航空站開始，9月29日結束[11]。該演習出動3架MQ-9與海軍第三艦隊合作，第三艦隊向東太平洋部署航母打擊群、潛艇和其他海上船只，空軍C-130飛機，特種作戰和海軍陸戰隊人員。
+[!\[\]()!\[\](https://spark.adobe.com/page/yWkwkIByI0NXa/images/04edfe97-2b59-48e2-a4c7-a8cc24faa21d.jpg?asset_id=5ca87608-6139-4a5b-b8b5-854fc8d734fc&amp;img_etag=%227ad842af8c291e52a63963839c409352%22&amp;size=2560)](https://spark.adobe.com/page/yWkwkIByI0NXa/images/04edfe97-2b59-48e2-a4c7-a8cc24faa21d.jpg?asset_id=5ca87608-6139-4a5b-b8b5-854fc8d734fc&amp;img_etag=%227ad842af8c291e52a63963839c409352%22&amp;size=1024)滻灞第一中學為分配給藏族學生的家庭舉行了儀式。
 
-MQ-9無需使用加油機或其他後勤要求，可以飛行至少2000英裏（約3218km）。在加州海岸的聖克蘭門特島兩棲攻擊模擬演練中負責執行空中打擊任務，可在約160km外為美海軍指示打擊目標[11]。
+這些家庭禁止與分配到戶的學生討論藏傳佛教和“其他敏感話題”。學校也完全禁止提及藏傳佛教。
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07100254/image005-1.jpg)圖3 2020.09.15，加利福尼亞州穆古角的海軍航空站，“敏捷死神”演習
-第9飛機維修部助理專職機長Jorge Garcia與機組人員溝通圖片[11]
+[!\[\]()!\[\](https://spark.adobe.com/page/yWkwkIByI0NXa/images/a92d3430-e539-4fd6-8ac9-37d865fc7a5f.jpg?asset_id=14aad5b6-34e9-460a-89bd-0f8bc41e31a8&amp;img_etag=%22df24fd5abfd85997e34b4ff9e99bd935%22&amp;size=2560)](https://spark.adobe.com/page/yWkwkIByI0NXa/images/a92d3430-e539-4fd6-8ac9-37d865fc7a5f.jpg?asset_id=14aad5b6-34e9-460a-89bd-0f8bc41e31a8&amp;img_etag=%22df24fd5abfd85997e34b4ff9e99bd935%22&amp;size=1024)滻灞第一中學的一名藏族學生在網上與“西安父母”交談。
 
-作為“作戰飛行計劃2409”的壹部分，第556項測試中，憑借軟件升級，MQ-9死神無人機塔架殺傷力翻倍，可以攜帶額外的導彈，可攜帶8枚AGM-114地獄火導彈[14]。
+來自青海省少數民族學院的一名學生告訴【寒冬】記者，他的學校也禁止一切宗教活動。如果發現學生在電腦裡存有達賴喇嘛的圖像，將被視為“反共”或“存在意識形態問題”而受到留校察看和其他懲罰。他們的學習、畢業和將來的工作都可能會受到影響。這位學生說：“沒有人敢涉足宗教話題。”
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07100358/image007.jpg)圖4 MQ-9軟件升級，塔架可攜帶8枚地獄火導彈
+根據流亡的藏族作家桑傑加（音）的說法，中國內陸的“西藏學校”幫助“移植了”新一代藏族人的大腦，使這些年輕學生淪為接受中共國社會價值觀和文化，並被稀釋了種族特徵的人， 中共已經將他們與母語和傳統文化隔離了開來。
 
-**外部鏈接**：
+[!\[\]()!\[\](https://spark.adobe.com/page/yWkwkIByI0NXa/images/2c33dee3-2d1c-4b21-9da5-34186da62732.jpg?asset_id=1cb17734-14f5-4863-bbe5-6f2545e84725&amp;img_etag=%22029a3fbe21dbe232a8c8556d158ac11d%22&amp;size=2560)](https://spark.adobe.com/page/yWkwkIByI0NXa/images/2c33dee3-2d1c-4b21-9da5-34186da62732.jpg?asset_id=1cb17734-14f5-4863-bbe5-6f2545e84725&amp;img_etag=%22029a3fbe21dbe232a8c8556d158ac11d%22&amp;size=1024)在滻灞第一中學舉行的儀式上，學生和他們指定的西安家庭合影。
 
-[1] Kane，Robert B.（2017年5月18日）. 情況介紹29攻擊中隊（ACC）. 空軍歷史研究局.
-https://www.afhra.af.mil/About-Us/Fact-Sheets/Display/Article/432967/29-attack-squadron-acc/
-[2] MQ-9 Reaper makes first local flight. Print News Today. 2009-10-08.
-https://web.archive.org/web/20120312060741/http://www.acc.af.mil/news/story\_print.asp?
-[3] U.S. Air Force Begins Training on New MQ-9 Reaper Block 5. AINonline. 2017-08-12. https://www.ainonline.com/aviation-news/defense/2017-08-12/us-air-force-begins-training-new-mq-9-reaper-block-5
-[4] The Drones Are Coming! Oops – They’re Already Overhead…TIME. 2012-04-11. https://nation.time.com/2012/04/11/the-drones-are-coming-oops-theyre-already-overhead/
-[5] MQ-9 Drone Crew Awarded Air Force Achievement Medals After RPG Attack.Military.com.2020-05-27.https://www.military.com/daily-news/2020/05/27/mq-9-drone-crew-awarded-air-force-achievement-medals-after-rpg-attack.html
-[6] Kingstone, Steve. US flies drones from Ethiopia to fight Somali militants. BBC. 28 October 2011. https://www.bbc.com/news/world-africa-15488804
-[7] Crowley, Michael; Hassan, Falih; Schmitt, Eric. U.S. Strike in Iraq Kills Qassim Suleimani, Commander of Iranian Forces. The New York Times. 2020-01-02.
-https://www.nytimes.com/2020/01/02/world/middleeast/qassem-soleimani-iraq-iran-attack.html
-[8] ‘That place is a dumpster fire’ — Inside the Air Force’s dilapidated Reaper school, which won’t be fixed anytime soon. Task&Purpose. 2020-05-08.
-https://taskandpurpose.com/news/air-force-drone-school-falling-apart
-[9] How U.S. Troops Are Preparing for the Worst in the Middle East. The New York Times. 2020-01-06.
-https://www.nytimes.com/2020/01/06/world/middleeast/troops-iran-iraq.html
-[10] Not Over Taiwan, This Is Where ‘Trump & His Cronies’ Could Trigger A Clash With China? EurAsian Times Desk. 2020-09-29.
-https://eurasiantimes.com/beijing-fears-trump-his-cronies-could-trigger-a-conflict-with-china-before-us-elections/
-[11] With an Eye on China, Reaper Drones Train for Maritime War. AIR FORCE. 2020-09-24. https://www.airforcemag.com/with-an-eye-on-china-reaper-drones-train-for-maritime-war/
-[12] As the Predator Retires, Its Inventor Remembers Its Birth. AIR FORCE. 2017-04-03. https://www.airforcemag.com/as-the-predator-retires-its-inventor-remembers-its-birth/
-[13] 美軍無人機部隊臂章驚現中國地圖，什麼意思？觀察者網. 2020-09-29. https://m.guancha.cn/military-affairs/2020\_09\_29\_566731.shtml
-[14] MQ-9 Reaper Drone Flies with Double Hellfire Missiles in New Test. Yahoo News. 2020-09-30. https://news.yahoo.com/mq-9-reaper-drone-flies-183635065.html?guccounter=1
+[原文鏈接](https://bitterwinter.org/tibetan-youth-sinicized-through-education/)
 
-
+編輯：【[喜馬拉雅戰鷹團】](https://spark.adobe.com/page/yWkwkIByI0NXa/) -點擊Spark Adobe版本
 
 0

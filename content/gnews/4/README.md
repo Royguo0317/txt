@@ -1,19 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生和這些建築的故事｜龍形建築：盤古大觀
-`2020-10-07 10:17 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hant/408871/)
+## 你的戰友在前線抗議中共CCP間諜傅希秋，被警察反手銬在地上，有戰友被銬帶往警車
+`2020-10-07 13:47 vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hant/409297/)
 
-作者：文玹
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07093122/2-15.jpg)
-“龍”是中華民族的圖騰，“龍文化”已有8000年的歷史，但身為首都的北京卻一直沒有龍形建築，即使故宮也不是龍形，直到盤古大觀的建成。
+【持續關注】全球懲賊運動德州現場消息
 
-盤古大觀（Pangu Plaza）總佔地面積4萬平方米，總建築面積42萬平方米，地上39層，地下5層，是一個龍形建築綜合體，東西長近700米，共分五段，南側最高197米的A座「火炬」式的主樓，其樓頂部赫然為“龍頭”造型，龍頭仰天長嘯，氣勢如虹，曾出現在《變形金剛4》中國取景的鏡頭中，正對著9999米外的圓型巨蛋國家大劇院，似乎預示著中華民族這條巨龍按奈不住的蓬勃新生，建築往北中間三段為“龍身”，411米龍廊之上，共有66根龍柱和66顆“龍頭”。最北側的B座為“龍尾”。由於郭先生鍾愛四合院，所以盤古大觀三座公寓樓的頂部都加建了兩層坡屋頂複合式四合院，共有12組。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07093412/1-2-1.jpg)
-整個建築由五棟樓組成，最高的龍頭是一幢超5A級寫字樓，龍頭頂部設有私人停機坪。中間三幢國際公寓、龍尾則是一座七星酒店，地下5層，按世界銀行海外結算中心標准設有2800平方米專業金庫，建築體形如一條通體雪白的巨龍。
+你的戰友在前線抗議中共（CCP）間諜傅希秋-假牧師真特務，被警察反手銬在地上。
 
-這條巨龍，坐北朝南，屹立在北京的中軸線上，北面是綿延的燕山山脈，盤古正是在這個千年龍脈之上。盤古在水立方和鳥巢的旁邊，從五行來看，鳥巢屬金、水立方屬水、娘娘廟屬火、盤古大觀東方龍的形式屬木而建築本身是屬土的，金木水火土在區域中都有了。同時，奧運廣場有一條很長的水龍，在陰陽中屬陰，盤古大觀是陽龍，陰陽合為一體，讓整個區域的氣韻生動起來。
+> 你的战友在前线抗议 CCP间谍傅希秋 [@BobFu4China](https://twitter.com/BobFu4China?ref_src=twsrc%5Etfw) 被警察反手铐在地上！
+> 
+> WHY？？？！！！[#惩贼运动](https://twitter.com/hashtag/%E6%83%A9%E8%B4%BC%E8%BF%90%E5%8A%A8?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#TakeDownTheCCP](https://twitter.com/hashtag/TakeDownTheCCP?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/PhPkMITKpb](https://t.co/PhPkMITKpb)
+> — 战友之家 (@VOG2020) [October 7, 2020](https://twitter.com/VOG2020/status/1313885576324689921?ref_src=twsrc%5Etfw)
 
-盤古大觀2002年9月動工，2003年10月開始為期三年的停工。 2006年1月爆發著名的“摩根事件”被解除出讓合同、收回土地使用權，取消了項目的立項批复文件、規劃意見書、建設用地許可證、建設工程規劃許可證和建築工程施工許可證等批准文件。盤古自建設之初就歷經滄桑劫難，而踏過這些劫難，卻最終賦予了這條龍以生命，建築團隊創下了23天內完成需一年才能完成的進度的奇蹟。讓盤古衝出地面拔地而起之人——郭先生，正是現在帶領廣大戰友喚醒中華民族覺醒之人，希望我們華夏這條巨龍，也能夠在磨難之後，迎來自己的新生。
+我們海洋戰友並沒有做出任何違反法律事情，已經被三位警察上去把他直接銬上了。我們海洋戰友在傅希秋家門口被三位警員用手銬，抓捕，正往警車方向移動。
+
+> 2020-10-07
+> 
+> Another peaceful protestor against CCP SPY BOB Fu [@BobFu4China](https://twitter.com/BobFu4China?ref_src=twsrc%5Etfw) arrested by local officer?
+> 
+> WHY？
+>  [#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [@FBI](https://twitter.com/FBI?ref_src=twsrc%5Etfw) [#TakeDownTheCCP](https://twitter.com/hashtag/TakeDownTheCCP?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/iYYkpLiEWq](https://t.co/iYYkpLiEWq)
+> — 战友之家 (@VOG2020) [October 7, 2020](https://twitter.com/VOG2020/status/1313884065171492865?ref_src=twsrc%5Etfw)
+
+關於傅希秋：
+
+> [傅希秋假牧师真特务](https://gnews.org/zh-hans/391151/)
+
+內新聞：背靠背
 
 0
