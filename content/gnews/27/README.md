@@ -1,21 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美H.R.8491法案定性中共有組織跨國犯罪集團
-`2020-10-07 01:29 GM64` [轉載自GNews](https://gnews.org/zh-hant/407680/)
+## 【世界多語言圖文】2020/09/30 CCP病毒每日疫情直播簡報
+`2020-10-07 07:37 GM62` [轉載自GNews](https://gnews.org/zh-hant/408390/)
 
-撰稿：喝咖啡的小螞蟻 素材：文曲小妹
-校對：天藍色獨角色
+戰友之家圖文摘要及小語種組
 
-最新消息，根據Congress.gov—美國國會立法在線數據庫網站顯示，由美國衆議院共和黨議員佩裏斯科特推出的，將中共定性爲有組織跨國犯罪集團的H.R.8491號法案，已經在10月1日遞交到美國衆議院審議！
+[249\_English\_0930\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073428/249_English_0930_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073428/249_English_0930_CCP_Virus_Updates.pdf)
 
-網站清楚的顯示了該法案的立法流程，分別是：提交法案 -&gt; 衆議院通過 -&gt; 參議院通過 -&gt; 提交給總統-&gt; 變成法律。一旦該法案通過，中共將被以美國法律的形式定義爲有組織跨國犯罪集團，立刻開啓以RICO法案打擊中共的新紀元！郭先生班農先生朱利安尼先生，以及廣大爆料革命戰友長期以來致力于推動的，“依法滅共以美滅共”將獲得實質上程碑意義的進展！而中國共産黨將毫無懸念的，爲其長達七十多年國內國外奴役欺壓中華人民，危害香港的繁榮穩定，研發生産擴散中共病毒到全世界，以致至今超過3500萬人感染104萬人死亡的慘絕人寰罪行付出慘痛的代價！
+[249\_French\_0930\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073400/249_French_0930_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073400/249_French_0930_CCP_Virus_Updates.pdf)
 
-一方面，截止到目前爲止美國已有超過768萬人感染21萬人死亡，中共病毒已給美國人民造成的深重的傷害，已是美國全體政壇的共識，以法律的形式向中共追責中共病毒給全世界人民造成嚴重的精神財産損失，既符合美國法律體系的宗旨也是美國的民心所向！另一方面，根據美國司法部披露的文件，已證明拜登家族與中共牽扯甚廣存在巨大利益勾兌，如果民主黨否決則更難擺脫與中共勾兌的嫌疑，待三個硬盤真相大白于天下更多證據披露之後，必將動搖民主黨執政根基！對民主黨造成衝擊是民主黨不能也不願意承受的！而共和黨作爲美國的保守勢力，一直致力于打擊跨國犯罪維護美國人民的根本利益，該法案也正是由共和黨議員提交，而這次川普總統被中共病毒攻擊更是舉世震驚！因此該法案的順利通過必將毫無懸念！
+[249\_German\_0930\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073350/249_German_0930_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073350/249_German_0930_CCP_Virus_Updates.pdf)
 
-一切已經開始！
-中國共産黨你完了！
+[249\_Korean\_0930\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073355/249_Korean_0930_CCP_Virus_Updates_249.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073355/249_Korean_0930_CCP_Virus_Updates_249.pdf)
 
-來源：[https://www.congress.gov/bill/116th-congress/house-bill/8491?q=%7B%22search%22%3A%5B%228491%22%5D%7D&s=4&r=1](https://www.congress.gov/bill/116th-congress/house-bill/8491?q=%7B%22search%22%3A%5B%228491%22%5D%7D&amp;s=4&amp;r=1)
+[249\_Spanish\_0930\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073405/249_Spanish_0930_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073405/249_Spanish_0930_CCP_Virus_Updates.pdf)
+
+
 
 0

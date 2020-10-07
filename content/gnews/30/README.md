@@ -1,51 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國國土安全部重磅首發《國土威脅評估》
-`2020-10-07 01:14 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/407649/)
+## 文貴說｜系列圖片連載（十一）
+`2020-10-07 06:38 GM98` [轉載自GNews](https://gnews.org/zh-hant/408117/)
 
-喜馬拉雅聯盟加拿大農場 laotou
+## 71.
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07062443/14.jpg)
+新中國聯邦在華盛頓亮相，震撼世界，深刻影響只是剛剛開始。
 
-校對上傳 XM
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07010923/bba3039d3d8e87f2cfc47739b0b4a14e.jpg)圖片來源：美聯社
-10月6日，華盛頓特區–美國國土安全部代理部長查德∙沃爾夫（Chad F. Wolf）發布了國土威脅評估（HTA）報告。這是國土安全部（DHS）首份綜合性威脅評估報告，包括情報和作戰部分。
+——郭文貴先生2020年7月4日
 
-沃爾夫宣布，“這個國土威脅評估報告是盡可能地讓美國人民看到並理解這些信息，我作為代理部長以及我們的員工在執行國家安全使命中看到了這一點。當你通讀這份報告時，你應該有信心知道，這些威脅是通過最好的情報、業務信息以及睿智的國土安全部員工確定的。”
+## 72.
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07062518/15.jpg)
+王岐山所謂的“黨政分離”就是要把國家進行一次次的股票震盪，錢給你洗走。然後，讓老百姓剩下的只有“窮困”，才能使這個國家更加的好控制。
 
-沃爾夫還說，“當美國人民讀到這份報告時，他們更加意識到美國將面臨的傳統威脅，如恐怖主義和有組織犯罪。不過，我想他們也會意識到，我們國家正在面臨著來自中國、俄羅斯和伊朗等民族國家的重大威脅。”
+——郭文貴先生2020年6月30日
 
-內容鏈接：
+## 73.
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07062555/21.jpg)
+我不相信人生下來都是貪官，大部分是因為中共的體制逼著他當貪官。
 
-[https://www.dhs.gov/news/2020/10/06/department-homeland-security-releases-homeland-threat-assessment?utm\_source=hp\_slideshow&utm\_medium=web&utm\_campaign=dhsgov](https://www.dhs.gov/news/2020/10/06/department-homeland-security-releases-homeland-threat-assessment?utm_source=hp_slideshow&amp;utm_medium=web&amp;utm_campaign=dhsgov)
+——郭文貴先生2017年6月30日
 
-“評估報告”目錄
+## 74.
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07062631/22.jpg)
+袁弓夷所說的要清算九千萬黨員，我們不同意！我們要滅共，有章可循！郝海東先生宣讀的新中國聯邦宣言任何人與之違背的都是我們的敵人，或不是我們的朋友！
 
-前言
+——郭文貴先生2020年7月4日
 
-HTA（國土威脅評估）的結構
+## 75.
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07062711/23.jpg)
+美國下定決心要斬斷中共的錢，20幾家企業，一批接一批，最大的傷害是匯豐、中國銀行、平安集團、民生銀行，未來一系列的公佈。個人制裁也是前所未有，讓這些人滾蛋。制裁像台風一樣。
 
-威脅：
+——郭文貴先生2020年7月4日
 
-網絡
+## 76.
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07062905/24.jpg)
+中國那哪是霧霾，那是心霾！大家你們可以看著，天天都有人在人民大會堂撒謊，天天在中南海說瞎話，你們的瞎話就是妄言，瞎話生罪惡，罪惡生最大的心霾！心霾就造成了天氣的霧霾，事物霾，然後就是惡性輪迴！
 
-對外影響活動
+——郭文貴先生2017年6月30日
 
-經濟安全
+## 77.
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07062925/25.jpg)
+什麼時候生，什麼時候死，是由上天決定，你怕沒有用；該你井裡死，你跳海裡也死不了，該你海裡死，你在浴缸裡死也不可能。所以說戰友們，每個人都有自己的使命，恐懼害怕是沒有用的。
 
-恐怖主義
-
-跨國犯罪組織
-
-非法移民
-
-自然災害
-
-全文26頁，涉及中共國內容有大量的篇幅。
-
-原文鏈接：
-
-[https://www.dhs.gov/sites/default/files/publications/2020\_10\_06\_homeland-threat-assessment.pdf](https://www.dhs.gov/sites/default/files/publications/2020_10_06_homeland-threat-assessment.pdf)
-
-期待戰友們閱讀、傳播，讓更多的人了解邪共、魔共對美國、對全世界的威脅！
+——郭文貴先生2020年2月1日
 
 0

@@ -1,63 +1,376 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 致爆料革命的戰友們：請不要再批評川普總統；要依靠自己多付諸行動！
-`2020-10-07 01:43 GM31` [轉載自GNews](https://gnews.org/zh-hant/407685/)
+## 玫瑰看新聞&#8211;2020.10.06
+`2020-10-07 07:39 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/408058/)
 
-在2020年10月5日的[G-TV直播](https://gtv.org/?videoid=5f7b2c9b7de25667c0dfee09)中，郭先生對爆料革命（WM）某些戰友們（BIAs）妄加評論川普總統的行為表示不滿並敦促戰友停止批評川普總統和美國，集中精力採取更多行動支持爆料革命 。 郭先生說：
+編輯：玫瑰天空
+
+1.仍然具有感染力的特朗普回到白宮，沒有面具
+
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07052945/106-111-2.png)
+
+-唐納德·特朗普總統離開軍事醫院後，戲劇性地返回白宮，在那裡他正在接受前所未有的COVID-19護理。他立即宣布了一個新的爭議，他宣布，儘管他生病了，該國也不應該擔心已經殺死了21萬多美國人的病毒-然後他帶著防護面具進入白宮。
+
+特朗普的信息震驚了傳染病專家，並暗示總統的自身病並沒有使他重新考慮他對這種疾病經常採取的武斷態度，這也感染了第一夫人和白宮助手，包括週一透露的新病例。
+
+星期一晚上，特朗普在海軍陸戰隊一號的白宮降落，小心翼翼地爬上南門廊的台階，脫下面具，並宣布：“我感覺很好。” 他豎起大拇指豎起大拇指，從門廊露台上出發的直升機，那裡的助手們在日落時安排了美國國旗。他進入白宮，那裡的助手在藍色房間周圍都可見，沒有戴面罩。
+
+總統離開沃爾特·里德國家軍事醫學中心，在那裡他的醫生是海軍Cmdr。肖恩·康利（Sean Conley）週一早些時候表示，總統仍然具有傳染性，不會再有一個星期完全“走出困境”，但特朗普已經達到或超過了出院標準。預計特朗普將在白宮繼續他的康復，在那裡仍未發現感染美國政府最高層的疫情的蔓延範圍。
+
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07052556/106-1-1.png)
+
+儘管如此，在選舉前僅一個月，就急於展現實力，特朗普在出院前發了一條推文，“很快將重返競選之路！！！” 如果萬一有人錯過了他的“不用擔心”消息，他會趕出白宮的新錄像帶。
+
+特朗普談到病毒時說：“不要擔心。” “您將擊敗它。我們擁有最好的醫療設備，我們擁有最好的藥物。” 他的話很強烈，但是他在講話時比平時更呼吸。
+
+援引： [https://apnews.com/article/election-2020-virus-outbreak-donald-trump-infectious-diseases-michael-pence-a037f5cf6d6f14f90313a3aa7cd58043](https://apnews.com/article/election-2020-virus-outbreak-donald-trump-infectious-diseases-michael-pence-a037f5cf6d6f14f90313a3aa7cd58043)
+
+2.世衛估全球1/10人口染疫超越官方數字20倍
+
+世界衛生組織（WHO）今天估計，全球78億人口中，恐怕已有10%感染新型冠狀病毒，遠遠超過官方記錄數據。
+
+法新社依據官方資料來源統計，全球迄今已記錄到逾3500萬起2019冠狀病毒疾病（COVID-19）病例，其中約104萬人不治。
+
+如今世衛估計，新型冠狀病毒自去年底在中國現踪迄今，全球恐怕已有約1/10人口染疫，高於官方數字的20倍。
+
+世衛公共衛生緊急計畫執行主任萊恩（Michael Ryan）在世衛執行委員會特別會議中表示：「我們目前的最佳預測告訴我們，全球約10%人口恐怕已感染這種病毒。」
+
+他強調感染程度「從城市到鄉村不等、各族群不一」。他警告：「但這意謂全世界絕大多數地區仍處於風險中。」
+
+援引： [https://www.swissinfo.ch/chi/afp/%E4%B8%96%E5%8D%AB%E4%BC%B0%E5%85%A8%E7%90%831-10%E4 %BA%BA%E5%8F%A3%E6%9F%93%E7%96%AB-%E8%B6%85%E8%B6%8A%E5%AE%98%E6%96%B9%E6% 95%B0%E5%AD%9720%E5%80%8D/46078752](https://www.swissinfo.ch/chi/afp/%E4%B8%96%E5%8D%AB%E4%BC%B0%E5%85%A8%E7%90%831-10%E4%BA%BA%E5%8F%A3%E6%9F%93%E7%96%AB-%E8%B6%85%E8%B6%8A%E5%AE%98%E6%96%B9%E6%95%B0%E5%AD%9720%E5%80%8D/46078752)
+
+3.菅義偉與蓬佩奧等三國外長舉行會談
+
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07052614/106-03-1.png)
+
+日本時間6日下午2點，日本首相菅義偉與訪問日本的美國國務卿蓬佩奧舉行了會談。
+
+由於新冠流行，菅義偉和蓬佩奧用碰拳代替握手，然後菅義偉用英文做了自我介紹並對蓬佩奧的來到東京表示歡迎。
+
+這是菅義偉在就任以後首次與外國要人舉行會談。在談及安倍政權所推進的“自由開放的印度洋太平洋”時菅義偉說：這一設想作為地區繁榮與和平的願景，在國際社會得到了廣泛的共識，我所領導的政權也將堅定地推進這一設想作為基本方針。
+
+日菅義偉在會談中表示：為早日解決朝鮮綁架日本人問題，希望美方給予全面支持。蓬佩奧表示同意。
+
+蓬佩奧對菅義偉就任首相表示祝賀，並表示支持日本舉行東京奧運會和殘奧會。
+
+會談進行了15分鐘，日本方面參加會談的有外相茂木敏充、國家安全保障局局長北村滋；美國方面參加會談的有美國國務院負責東亞太平洋事務的助理國務卿史迪威、美國駐日本臨時大使代理楊戈出席可會談。
+
+菅義偉6日在官邸也與來日參加四國外長會談的澳大利亞、印度外長了舉行會談。
+
+而菅義偉在6日自民黨的干部會議上，在談及感染新型冠狀病毒的美國總統特朗普已經退院時表示：可以放心了。
+
+援引： [https://www.rfi.fr/cn/%E4%BA%9A%E6%B4%B2/20201006-%E8%8F%85%E4%B9%89%E4%BC%9F%E4% B8%8E%E8%93%AC%E4%BD%A9%E5%A5%A5%E7%AD%89%E4%B8%89%E5%9B%BD%E5%A4%96%E9%95% BF%E4%B8%BE%E8%A1%8C%E4%BC%9A%E8%B0%88](https://www.rfi.fr/cn/%E4%BA%9A%E6%B4%B2/20201006-%E8%8F%85%E4%B9%89%E4%BC%9F%E4%B8%8E%E8%93%AC%E4%BD%A9%E5%A5%A5%E7%AD%89%E4%B8%89%E5%9B%BD%E5%A4%96%E9%95%BF%E4%B8%BE%E8%A1%8C%E4%BC%9A%E8%B0%88)
+
+4.升級為最強警報區巴黎一環線酒吧將關15天
+
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07052632/106-04-1.png)
+
+傳染新冠病毒人數不斷升高，巴黎一環線(75, 92, 93 et 94)不得不從此前的“強警報區”被升為“最強警報區”。從5日晚22點起，酒吧責令關閉，餐館在遵守新防疫規定的情況下照常營業；巴黎眾多bars-brasseries 可以繼續營業，它和酒吧的區別是向顧客提供“熱菜”。巴黎警察局局長、市長5日舉行聯合記者會，要求大家努力防疫，避免二次經歷全面禁足。
+
+警察局局長迪迪埃·拉勒芒(Didier Lallement)在宣布新的防疫措施前表示，疫情傳染速度過快，為減緩速度，我們不得不宣布酒吧將關閉至少兩周等新防疫措施。從6日起，艾克斯-馬賽等地的餐飲業和巴黎小環線一樣可照常營業。不論是巴黎一環線、艾克斯-馬賽和瓜德羅普等疫情級別最高的地區必須登記餐館顧客的聯繫方式，以便疫情發作後便於查找。
+
+援引：https://www.rfi.fr/cn/%E6%B3%95%E5%9B%BD/20201005-%E5%8D%87%E7%BA%A7%E4%B8%BA%E6% 9C%80%E5%BC%BA%E8%AD%A6%E6%8A%A5%E5%8C%BA-%E5%B7%B4%E9%BB%8E%E4%B8%80%E7%8E %AF%E7%BA%BF%E9%85%92%E5%90%A7%E5%B0%86%E5%85%B315%E5%A4%A9
+
+5.三角洲在加勒比地區發展成颶風；古巴尤加坦的眼睛
+
+週一，熱帶風暴三角洲迅速增強為加勒比海的颶風，目的是可能打擊墨西哥的尤卡坦半島，將其作為大風暴，然後在本週晚些時候繼續襲擊美國墨西哥灣沿岸。
+
+墨西哥的那部分地區仍被熱帶風暴伽馬（Kamma）浸透，該颶風在周末襲擊了其備受歡迎的沿海度假勝地，並迫使數千人撤離了塔巴斯科州和恰帕斯州的房屋。在墨西哥東南部造成七人死亡之後，週一伽瑪減弱為熱帶低壓。它繼續在尤卡坦半島北部破裂。
+
+據預測，達美航空將襲擊古巴西部，但周一將其轉移到西部，使其在周三清晨襲擊尤加坦東北端的道路上，颶風條件開始影響到這個度假勝地，該地區周二晚。
+
+援引： [https://apnews.com/article/virus-outbreak-nobel-prizes-archive-stockholm-cd0a12d2ec738a6662b915a1f0cf54d9](https://apnews.com/article/virus-outbreak-nobel-prizes-archive-stockholm-cd0a12d2ec738a6662b915a1f0cf54d9)
+
+6.日本外相稱自由開放印太地區合作關係應跨出日美印澳四國框架
+
+據路透社10月6日報導- 日本外務大臣茂木敏充週二表示，促進印太地區自由開放的國際合作關係，應擴大到日本、美國、印度及澳洲四國框架之外。
+
+美國國務卿蓬佩奧目前在日本訪問，與日本、印度、澳洲外長舉行四邊會議，推動自由開放的印太地區。
+
+“應該盡可能讓更多具有相同基本價值觀及共同規範的國家一起合作，”茂林敏充向記者表示。
+
+援引： [https://cn.reuters.com/article/japan-motegi-indo-pacific-1006-idCNKBS26R1B7](https://cn.reuters.com/article/japan-motegi-indo-pacific-1006-idCNKBS26R1B7)
+
+7.美國務卿蓬佩奧與澳洲外長討論中國在區域內的“惡意行為”–美官員
+
+路透東京10月6日- 一名美國國務院官員稱，美國國務卿蓬佩奧和澳洲外交部長佩恩(Marise Payne)週二進行會談，就中國在區域內的“惡意活動”這一共同關切進行了討論。
+
+蓬佩奧目前正訪問日本，並將參加美國、日本、澳洲和印度四國外長會議。目前美中關係十分緊張。
+
+“國務卿蓬佩奧與澳洲外長佩恩強調了四方會談對促進印太地區和平、安全與繁榮的重要性，”國務院官員Cale Brown在會談後的宣讀資料中表示。
+
+“國務卿與澳洲外長也討論了他們對於中國在區域內的惡意行為的共同關切。”
+
+援引：https://cn.reuters.com/article/us-pompeo-au-payne-china-1006-idCNKBS26R0NR
+
+8.香港不再近半港人想移民首選英澳台
+
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07052652/106-08-1.png)
+
+香港中文大學一項民調顯示，有43.9%受訪港人想移民，其中1/3近期已在為移民做準備，原因包括不滿政府，以及人權狀況變壞等。最多受訪者提及的移居目的地是英國（23.8%）、澳大利亞（11.6%）和台灣（10.7%）。
+
+據中央社今天報導說，不滿港府與政治，民調稱43.9%港人想移民。香港中文大學亞太研究所日前訪問了737人，主要調查受訪者認為香港是否適合居住與生活。據該報導，43.9%受訪者表示，如果有機會，他們將打算移民或移居外地，當中35%更表示，近期已為移民作準備，相比去年9月的調查顯著增加。
+
+該報導說，46.8%表示沒有打算，其餘的表示不知道或難說等。
+
+據該調查指出，最多受訪者提及的移居目的地是英國（23.8%）、澳洲（11.6%）和台灣（10.7%）。
+
+援引： [https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20201006-%E9%A6%99%E6%B8%AF%E4%B8%8D%E5% 86%8D-%E8%BF%91%E5%8D%8A%E6%B8%AF%E4%BA%BA%E6%83%B3%E7%A7%BB%E6%B0%91-%E9% A6%96%E9%80%89%E8%8B%B1%E6%BE%B3%E5%8F%B0](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20201006-%E9%A6%99%E6%B8%AF%E4%B8%8D%E5%86%8D-%E8%BF%91%E5%8D%8A%E6%B8%AF%E4%BA%BA%E6%83%B3%E7%A7%BB%E6%B0%91-%E9%A6%96%E9%80%89%E8%8B%B1%E6%BE%B3%E5%8F%B0)
+
+9.印度備戰應對中巴軍事聯手夾攻
+
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07052720/106-09-1.png)
+
+中印邊境氣氛持續緊張，印度空軍參謀長巴達烏里亞表示，印度空軍已做好空襲中國的準備，但目前未有這個打算。他又表示，印軍已準備好對中國和巴基坦期雙線作戰。
+
+據東網今天報導稱，不排除中巴合作，印空軍參謀長稱有能力雙線作戰。印度空軍參謀長巴達烏里亞稱已做好對中國和巴基坦期雙線作戰的準備。
+
+該報導稱，印度空軍參謀長巴達烏里亞（Rakesh Kumar Singh Bhadauria）是在當地週一接受印媒訪問時作如上表示。印度於2016年向法國36架疾風式戰機，首批5架今年9月已正式服役。巴達烏里亞表示，該戰機的整合讓印軍在空戰中擁有先發製人和進行縱深打擊的能力，提升對戰優勢。他又表示，未來五年除將引進83架印度自行研發的“光輝”戰機，還訂購了一批國產教練機和輕型戰鬥直升機。
+
+巴達烏里亞指出，一旦中印開戰，中國將無法戰勝印度，因為印方已經在所有相關地區進行了部署，包括在拉達克地區。提到中國可能與巴基斯坦合作並威脅印度，包括解放軍可能藉用巴基斯坦控制喀什米爾區斯卡都（Skardu）的空軍基地，巴達烏里亞強調印方有足夠實力應付雙線作戰。
+
+援引： [https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20201006-%E5%8D%B0%E5%BA%A6%E5%A4%87%E6% 88%98%E5%BA%94%E5%AF%B9%E4%B8%AD%E5%B7%B4%E5%86%9B%E4%BA%8B%E8%81%94%E6%89% 8B%E5%A4%B9%E6%94%BB](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20201006-%E5%8D%B0%E5%BA%A6%E5%A4%87%E6%88%98%E5%BA%94%E5%AF%B9%E4%B8%AD%E5%B7%B4%E5%86%9B%E4%BA%8B%E8%81%94%E6%89%8B%E5%A4%B9%E6%94%BB)
+
+10.國民黨提”台美復交”兩案專家：”只是為了自救”
+
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07052731/106-10-1.png)
+
+國民黨立法院黨團10月6日提出“政府應請求美國協助抵抗中共”及“台美復交”兩案，均獲立法院通過。台灣行政院長蘇貞昌評價國民黨“終於良心發現”。而台灣學者分析指出，國民黨此舉主要“為了吸引選民注意，為了自救”，而不是刻意要疏遠大陸。
+
+“政府應請求美國協助抵抗中共”以及”台美復交”這兩項公決案由國民黨提出，受到外界廣泛關注。由於其他政黨都沒有提出異議，兩案均獲立法院通過。
+
+據中央社等台媒報導，國民黨提出的”請求美國協助抵抗中共”提案稱，鑑於中共連續向台灣派軍機，朝野各黨團”共同呼籲中共必須自我克制，停止一切挑釁行為”，蔡政府宜儘速重新開啟對話，以緩解兩岸衝突，莫使台海緊張局勢再升溫。該提案還指出，長久以來美國一直是台灣軍力堅實後援，蔡政府”應積極說服美國政府依照其台灣關係法精神， 一旦中共有明顯危及台灣人民安全及社會經濟制度的行動時，在我國政府請求下，……協助我國抵抗”。
+
+“台美復交”的提案則指出，鑑於美國近期接連派出高官訪台，並宣布多項對台軍售，對台灣的支持日益提升，”政府應以美國與中華民國回复邦交作為對美外交目標，並積極推動”。
+
+援引： [https://m.dw.com/zh/%E5%9B%BD%E6%B0%91%E5%85%9A%E6%8F%90%E5%8F%B0%E7%BE%8E %E5%A4%8D%E4%BA%A4%E4%B8%A4%E6%A1%88-%E4%B8%93%E5%AE%B6%E5%8F%AA%E6%98%AF% E4%B8%BA%E4%BA%86%E8%87%AA%E6%95%91/a-55172558](https://m.dw.com/zh/%E5%9B%BD%E6%B0%91%E5%85%9A%E6%8F%90%E5%8F%B0%E7%BE%8E%E5%A4%8D%E4%BA%A4%E4%B8%A4%E6%A1%88-%E4%B8%93%E5%AE%B6%E5%8F%AA%E6%98%AF%E4%B8%BA%E4%BA%86%E8%87%AA%E6%95%91/a-55172558)
+
+11.世衛承認調查新冠病毒源頭專家名單先報中國
+
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07052751/106-11-1.png)
+
+國際要求對2019冠狀病毒疾病源頭赴中國展開實地調查，世界衛生組織官員今天證實，國際代表團的專家名單須先提供給中國。
+
+據中央社今天報導稱，世界衛生組織（WHO）執行委員會今天起一連2天召開2019冠狀病毒疾病應對特別會議，世衛公共衛生緊急計劃執行主任萊恩（Michael Ryan）在疫情流行病學分析時表示，世衛將組成一個國際專家團前往中國，以調查病毒起源，且已經提交專家名單給中國當局考慮（consideration）。
+
+COVID-19疫情最先爆發的地點在中國武漢，國際認為實地調查疫情起源對於流行病溯源是不可或缺的步驟。世衛先前派出2名先遣小組人員前往中國，但未能實際前往武漢，曾引發爭議；現在世衛證實專家名單需先由中國點頭。世衛表示，國際專家團將試圖破解病毒如何跨越物種藩籬，從動物傳染給人，繼而引發COVID-19。
+
+據該報導，此外，譚德塞（Tedros Adhanom Ghebreyesus）今天在會中提出應對作為的期中報告。他開場時表示，當今年2月執委會開會時，在中國境外案例只有151例；但令人難以置信的是，現在全球已經約有3500萬病例、100萬人喪生，且實際數字肯定更高。
+
+援引： [https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20201005-%E4%B8%96%E5%8D%AB%E6%89%BF%E8% AE%A4%E8%B0%83%E6%9F%A5%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E6%BA%90%E5%A4% B4%E4%B8%93%E5%AE%B6%E5%90%8D%E5%8D%95%E5%85%88%E6%8A%A5%E4%B8%AD%E5%9B%BD](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20201005-%E4%B8%96%E5%8D%AB%E6%89%BF%E8%AE%A4%E8%B0%83%E6%9F%A5%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E6%BA%90%E5%A4%B4%E4%B8%93%E5%AE%B6%E5%90%8D%E5%8D%95%E5%85%88%E6%8A%A5%E4%B8%AD%E5%9B%BD)
+
+12.嚴防新冠肺炎流感雙流行中國多地疫苗卻一針難求
+
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07052812/106-12-1.png)
+
+秋冬流感季將到來，中國專家建議民眾接種流感疫苗，以降低新冠病毒疫情的診療難度。但包括北京上海等地都出現疫苗短缺，有醫院稱最快要等到11月底，而黃牛疫苗更要價3倍。 《健康時報》引述北京協和醫學院校長王辰8月14日在中國科協年會上表示，在秋冬、冬春季節，一旦新冠病毒疫情合併流感，會增加甄別診斷難度。
+
+他表示，最有效的預防辦法是及時接種流感疫苗，並建議民眾不要晚於10月接種。
+
+不過財經媒體《中新經緯》4日報導，包括北京、上海、天津、黑龍江、重慶、四川和甘肅等地，自9月起都出現流感疫苗短缺。
+
+報導引述一名北京市民指出，他先向東城區的東直門社區服務站諮詢，被告知9月簽發的180劑疫苗已全數打完，且9月23至29日還有1000多人預約。
+
+這名市民之後又聯繫首都醫科大學附屬北京佑安醫院，院方則回應稱預約已排到11月底，建議改到私立醫院試試。
+
+疫苗一針難求催生“黃牛”。民眾求助一名宣稱可幫忙排隊預約的黃牛，而10月施打一針要價人民幣398元，11月則是329元。報導引述在社區醫院接種過疫苗的民眾指，一針四價流感疫苗要價128到153元之間，也就是說，黃牛疫苗的價格相當於醫院價的3倍。
+
+報導引述北京一間社區衛生中心指出，往年民眾10月才開始預約接種疫苗，但今年提前到9月，導致疫苗到貨量趕不上採購量。
+
+報導也指出，一針難求的現象，和民眾過去不熱衷接種流感疫苗有關。報導指，中國的流感疫苗須自費施打，費用又高於感冒藥和消炎藥，因此民眾多認為接種的性價比不高。
+
+援引： [https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20201005-%E4%B8%A5%E9%98%B2%E6%96%B0%E5% 86%A0%E8%82%BA%E7%82%8E%E6%B5%81%E6%84%9F%E5%8F%8C%E6%B5%81%E8%A1%8C-%E4%B8 %AD%E5%9B%BD%E5%A4%9A%E5%9C%B0%E7%96%AB%E8%8B%97%E5%8D%B4%E4%B8%80%E9%92%88 %E9%9A%BE%E6%B1%82](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20201005-%E4%B8%A5%E9%98%B2%E6%96%B0%E5%86%A0%E8%82%BA%E7%82%8E%E6%B5%81%E6%84%9F%E5%8F%8C%E6%B5%81%E8%A1%8C-%E4%B8%AD%E5%9B%BD%E5%A4%9A%E5%9C%B0%E7%96%AB%E8%8B%97%E5%8D%B4%E4%B8%80%E9%92%88%E9%9A%BE%E6%B1%82)
+
+13.馬來西亞總理宣布自我隔離曾與確診感染的部長一同開會
+
+據海外網消息，馬來西亞總理稱將自我隔離14天。此前，一名確認感染新冠病毒的內閣部長曾參加他主持的內閣會議。
+
+據新加坡《亞洲新聞台》(CNA)5日消息，馬來西亞總理穆希丁·亞辛(Muhyiddin Yassin)當日在聲明中說，他於週六(3日)主持國家安全委員會特別會議，總理府的部長祖基菲里(Zulkifli Mohamad Al-Bakri)也出席了會議，隨後該部長新冠病毒檢測結果呈陽性，目前已入院接受治療。亞辛稱，根據衛生部的建議，他將在其住所進行14天的自我隔離。亞辛表示，衛生部已對所有與會者和星期六會議的秘書處進行了新冠病毒檢測篩查測試。
+
+較早前，該國負責宗教事務的部長祖基菲里在社交媒體上證實，他的新冠病毒測試結果呈陽性，但狀況良好。他還敦促參加9月24日至10月4日的活動的公眾立即到任何診所接受新冠病毒健康檢查。
+
+據報導，3日的會議是在該國病例數激增之後進行的。在馬來西亞，6月至8月間新冠病毒大流行似乎已得到控制，直到9月病例數再度上升，大多數病例發現於沙巴地區。本週一(5日)，該國新增確診432例，累計確診病例數達12813例。
+
+援引：海外網
+
+國際新聞摘要：
 
 
-> 只要是爆料革命的戰友，我們不要對別人批評，我們不依靠別人，不批評別人，不辱駡別人，這是起碼的一個基本規則。
+
+[終止疫情諾貝爾醫學獎得主：有賴政治意志](https://www.swissinfo.ch/chi/afp/%E7%BB%88%E6%AD%A2%E7%96%AB%E6%83%85-%E8%AF%BA%E8%B4%9D%E5%B0%94%E5%8C%BB%E5%AD%A6%E5%A5%96%E5%BE%97%E4%B8%BB-%E6%9C%89%E8%B5%96%E6%94%BF%E6%B2%BB%E6%84%8F%E5%BF%97/46079234)
+
+[此內容髮佈於**2020**年**10**月**06**日](https://www.swissinfo.ch/chi/afp/%E7%BB%88%E6%AD%A2%E7%96%AB%E6%83%85-%E8%AF%BA%E8%B4%9D%E5%B0%94%E5%8C%BB%E5%AD%A6%E5%A5%96%E5%BE%97%E4%B8%BB-%E6%9C%89%E8%B5%96%E6%94%BF%E6%B2%BB%E6%84%8F%E5%BF%97/46079234)
+
+**[2020年10月06日（法新社紐約5日電）榮獲今年諾貝爾醫學獎的3位英、美學者今天表示，科技進步與國際合作有助科學理解2019冠狀病毒疾病，但要終止疫情仍有賴政治意志，落實病毒學家認可的戴口罩與維持社交距離。 …](https://www.swissinfo.ch/chi/afp/%E7%BB%88%E6%AD%A2%E7%96%AB%E6%83%85-%E8%AF%BA%E8%B4%9D%E5%B0%94%E5%8C%BB%E5%AD%A6%E5%A5%96%E5%BE%97%E4%B8%BB-%E6%9C%89%E8%B5%96%E6%94%BF%E6%B2%BB%E6%84%8F%E5%BF%97/46079234)**
 
 
 
-> 國與國是有規矩的。…你對美國的政治起碼的瞭解都沒有。絕對不可能(說打就打了): 計畫，準備，立法，這些都在進行中。但是，這就是美國的脆弱和美國的偉大。
+**[IMF緊急援助28窮國抗疫](https://www.swissinfo.ch/chi/afp/imf%E7%B4%A7%E6%80%A5%E6%8F%B4%E5%8A%A928%E7%A9%B7%E5%9B%BD%E6%8A%97%E7%96%AB/46079236)**
+
+[此內容髮佈於**2020**年**10**月**06**日](https://www.swissinfo.ch/chi/afp/imf%E7%B4%A7%E6%80%A5%E6%8F%B4%E5%8A%A928%E7%A9%B7%E5%9B%BD%E6%8A%97%E7%96%AB/46079236)
+
+**[2020年10月06日（法新社紐約5日電）國際貨幣基金（IMF）今天批准一筆給全球28個最貧窮國家的新緊急援助款，以幫助他們減輕債務，並對2019冠狀病毒疾病（COVID-19）疫情有更好的因應。 …](https://www.swissinfo.ch/chi/afp/imf%E7%B4%A7%E6%80%A5%E6%8F%B4%E5%8A%A928%E7%A9%B7%E5%9B%BD%E6%8A%97%E7%96%AB/46079236)**
 
 
 
+[四方會談蓬佩奧尋求同仇敵愾齊抗中](https://www.swissinfo.ch/chi/afp/%E5%9B%9B%E6%96%B9%E4%BC%9A%E8%B0%88-%E8%93%AC%E4%BD%A9%E5%A5%A5%E5%AF%BB%E6%B1%82%E5%90%8C%E4%BB%87%E6%95%8C%E5%BF%BE%E9%BD%90%E6%8A%97%E4%B8%AD/46079144)
 
-#### **To WM BIAs: Stop Criticizing Pres. Trump & Rely on Ourselves**
+[此內容髮佈於**2020**年**10**月**06**日](https://www.swissinfo.ch/chi/afp/%E5%9B%9B%E6%96%B9%E4%BC%9A%E8%B0%88-%E8%93%AC%E4%BD%A9%E5%A5%A5%E5%AF%BB%E6%B1%82%E5%90%8C%E4%BB%87%E6%95%8C%E5%BF%BE%E9%BD%90%E6%8A%97%E4%B8%AD/46079144)
 
-#### **致爆料革命的戰友們：請不要再批評川普總統；要依靠自己多付諸行動**！
+**[2020年10月06日（法新社東京6日電）美國國務卿蓬佩奧（Mike Pompeo）今天在東京與日本、澳洲及印度外長舉行「四方安全對話」（QUAD）。 …](https://www.swissinfo.ch/chi/afp/%E5%9B%9B%E6%96%B9%E4%BC%9A%E8%B0%88-%E8%93%AC%E4%BD%A9%E5%A5%A5%E5%AF%BB%E6%B1%82%E5%90%8C%E4%BB%87%E6%95%8C%E5%BF%BE%E9%BD%90%E6%8A%97%E4%B8%AD/46079144)**
 
-Now let’s go back to President Trump. Quite a few BIAs commenting on the internet, “Pres. Trump, you’ve been hesitant about taking down the CCP. Why don’t you hurry up sending drones over, going for a decapitation strike?” “Oh, Pres. Trump, it’s about time that you take some action!” BIAs, this hurts my heart so much as it hurts Pres. Trump’s. The most terrible person in the world is like: Big-head syndrome [foolish & pompous]! A gladiator of empty talks! A person who fails at every aspect, and yet tries to command others every day. A run-of-the-mill and yet wants to command Pres. Trump every day.
 
-我再說川普總統，還有很多戰友在網路上：啊，川普總統，你這個不滅共，你趕快派無人機，趕快定點爆破。啊，川普總統，這回你該行動了。戰友們，這樣同樣在傷著文貴的心。我覺得這個世界上最可怕的就是這個人呐，大腦袋症！舌頭上的巨人，自己啥球幹不成，天天指揮別人，天天指揮別人。一個普通人，天天指揮川普總統。
 
-We are from the most failed nation. We are the most defeated losers. Why didn’t you stay back in China? Why don’t you take on the CCP yourself? What makes you qualified to command Pres. Trump? When I saw some BIAs’ criticizing Pres. Trump, my heart was wrenching!What makes you qualified to demand or command Pres. Trump? BIAs, have you even asked yourself – Are you really that capable & smart thatyou get to give Pres Trump orders? The audacity that you feel so angry, so disappointed!Give me a break!Suit yourself, who cares if you feel disappointed! Show me some of your actions?!
+[吉爾吉斯總統稱已穩住局勢](https://www.swissinfo.ch/chi/afp/%E5%90%89%E5%B0%94%E5%90%89%E6%96%AF%E6%80%BB%E7%BB%9F%E7%A7%B0%E5%B7%B2%E7%A8%B3%E4%BD%8F%E5%B1%80%E5%8A%BF/46079148)
 
-我們是最失敗的國家來的，我們是最失敗的loser，我們為啥不在中國？你咋不找中國共產黨幹去呀？你憑啥指揮人家川普總統啊？我看到當有戰友在那兒批評川普總統的時候，我心都碎了。你憑啥要求人家？你憑啥指揮人家？戰友們，你有沒有問過自己，你有什麼樣的腦子和能力和智慧，你來指揮川普總統！你生氣，你失望，去你的球吧，你愛去哪兒失望去哪兒失望去。你的行動呢？
+[此內容髮佈於**2020**年**10**月**06**日](https://www.swissinfo.ch/chi/afp/%E5%90%89%E5%B0%94%E5%90%89%E6%96%AF%E6%80%BB%E7%BB%9F%E7%A7%B0%E5%B7%B2%E7%A8%B3%E4%BD%8F%E5%B1%80%E5%8A%BF/46079148)
 
-If you are a true brother-in-arms (BIA), please stop criticizing others like that. Do not rely on other people, do not criticize or scold others. This is a fundamental principle. What is President Trump doing right now? You’d think that once back to WH, he’d immediately start wiping out the CCP?Impossible, unless he had gone mad. The CCP has held 1.4 billion people hostages, 1/6 of the world population. Would you think this is as simple as acting on impulse? Would that be possible? He is the \*President\*; he would become a terrorist if he were to act like that.
+**[2020年10月06日（法新社比許凱克6日電）中亞國家吉爾吉斯爆發反政府示威，親俄羅斯的現任總統堅稱目前已控制住情勢。總統秦貝科夫（Sooronbay…](https://www.swissinfo.ch/chi/afp/%E5%90%89%E5%B0%94%E5%90%89%E6%96%AF%E6%80%BB%E7%BB%9F%E7%A7%B0%E5%B7%B2%E7%A8%B3%E4%BD%8F%E5%B1%80%E5%8A%BF/46079148)**
 
-只要是爆料革命的戰友，我們不要對別人批評，我們不依靠別人，不批評別人，不辱駡別人，這是起碼的一個基本規則。人家川普總統現在幹啥？你以為他回到白宮就滅共去，不可能！除非他是瘋了。共產黨綁架了14億中國人，地球的六分之一。你覺得說打就打了？那可能嗎？那是川普總統，（說打就打）成了恐怖分子了都。
 
-Protocols have to be followed between two countries!First, the Americans always put national security and interestsas the foremost priority. Second, this is an election year for Pres. Trump; so everything shall be election-oriented. If he loses the election, he’d be a nobody; worse, he might be taken out by others. Everything he does, it’s gotta be for the sake of the election. Third, even if he were to go for it, his words alone don’t count! He is not Xi Jinping, nor Gaddafi. Some of us do not even have the basic knowledge of US politics. He cannot just go for it! It takes planning, preparation, legislations, of which all are under the way…This is the fragility of America, albeit, the greatness of America. Ever since the CCP released the virus, the origins were [misled] from snakes to pangolins, to caves in Yunnan, to space…They almost have exhausted the names of all animals. Also, they blamed on the American soldiers.
 
-他是，國與國是有規矩的。第一，人家美國人要以美國國家安全和利益為主。第二，川普總統正在大選，一切都是大選。他輸了大選什麼都不是，他可能被人幹掉，他一切都為大選。第三，即使他想幹，他也一個人說了不算，他不是習近平，他不是卡紮菲。你對美國的政治起碼的瞭解都沒有。絕對不可能。計畫，準備，立法，這些都在進行中。但是，這就是美國的脆弱和美國的偉大。共產黨從病毒一出來，從蛇到穿山甲，到雲南山洞，到太空，到所有的動物，都已經用完了，美國軍人什麼的。
+[英國漏計近**1.6**萬染疫病例衛生大臣歸咎老舊電腦系統](https://www.swissinfo.ch/chi/afp/%E8%8B%B1%E5%9B%BD%E6%BC%8F%E8%AE%A1%E8%BF%911.6%E4%B8%87%E6%9F%93%E7%96%AB%E7%97%85%E4%BE%8B-%E5%8D%AB%E7%94%9F%E5%A4%A7%E8%87%A3%E5%BD%92%E5%92%8E%E8%80%81%E6%97%A7%E7%94%B5%E8%84%91%E7%B3%BB%E7%BB%9F/46079146)
 
-Even by now, the U.S. hasn’t said a word officially. Why haven’t they made official announcement about the origins? First, evidence. Second, the facts [need to be verified]. Third, it has to go through a procedure. Fourth, must be responsible to the society, including your speeches, your talks, your definitions. This is the fundamental difference between the CCP and the U.S. So it is not up to the President to give the verdict. If someone just wants to frame another, would it be that easy? The slow-in-response and indecisiveness that you’re concerned about actually is the greatness of the U.S.
+[此內容髮佈於**2020**年**10**月**06**日](https://www.swissinfo.ch/chi/afp/%E8%8B%B1%E5%9B%BD%E6%BC%8F%E8%AE%A1%E8%BF%911.6%E4%B8%87%E6%9F%93%E7%96%AB%E7%97%85%E4%BE%8B-%E5%8D%AB%E7%94%9F%E5%A4%A7%E8%87%A3%E5%BD%92%E5%92%8E%E8%80%81%E6%97%A7%E7%94%B5%E8%84%91%E7%B3%BB%E7%BB%9F/46079146)
 
-美國到今天官方，沒說出一句來，這東西來自哪裡。官方一句不說，為什麼？第一要講證據。第二要有事實。第三要經過程式。第四，必須要對社會負責，你的演講，你的說話，你的定義。這就是中共和美國的不同啊。不是你總統你想說是誰就是誰的，你想栽贓就去栽贓，可能嗎？即使你擔心的所謂的慢呐，不（下定）決心呐，這也是人家美國的偉大。
+**[2020年10月06日（法新社倫敦5日電）英國英格蘭公共衛生署日前漏計近1萬6000起2019冠狀病毒疾病（COVID-19）陽性病例。英國衛生大臣韓考克今天把此事歸咎於「老舊電腦系統」。韓考克（Matt…](https://www.swissinfo.ch/chi/afp/%E8%8B%B1%E5%9B%BD%E6%BC%8F%E8%AE%A1%E8%BF%911.6%E4%B8%87%E6%9F%93%E7%96%AB%E7%97%85%E4%BE%8B-%E5%8D%AB%E7%94%9F%E5%A4%A7%E8%87%A3%E5%BD%92%E5%92%8E%E8%80%81%E6%97%A7%E7%94%B5%E8%84%91%E7%B3%BB%E7%BB%9F/46079146)**
 
-Mr. Giuliani sat down with me and spoke about 4 hrs last week. The elderly gentleman wrote meticulously, and verified with people word by word. He is in his seventies. An U.S. military personnel also was verifying word by word. You may think this is too low-tech (dumb), too cumbersome. More so, they will re-verify after one month. This is about respecting the facts. Isn’t this what should pursue? We now expect all mankind to fight this righteous war for us. But what have we done, BIAs? What have we done? I’ve gone through many things since I returned from the boat. Too many events. I cannot reveal now. I really feel that the US is just so great! So, so great!I interacted with dozens of people from different industries daily. These Americans are realistic, civilized, respectful, professional, and law-abiding. Too much for us Chinese to fathom even!
 
-人家朱利安尼，在上星期，人家坐在這兒跟我說話的時候，4個小時，人家老人家一紙一筆的寫東西，一個字兒一個字兒的跟你核對，也是七十幾歲的老人了。人家某個美國的軍方的人士，一個字兒一個字兒的核對。你可能覺得太笨了，太囉嗦了，一個月後人還要跟你核對。這就是人家尊重事實，這難道不是我們追求的嗎？我們現在期望著全人類替我們打正義之仗，我們幹了啥？戰友們。我們做了啥？我這經歷太多事兒了，我從船上下來到（現在），經歷太多事兒了。現在我不要講。我真是感覺美國這個國家太偉大太偉大太偉大了。我每天跟這幾十個人在一起，不同行業的人，就這個國家務實，文明，尊重，專業，守法，是我們中國人真的是完全不懂的。
 
-What’s happening among us Chinese now shows utter ignorance of the world. The devastating consequences of ignorance of civilization and humanity. Of course, the core issue is the absence of faith. Please do not criticize Pres. Trump any more, don’t say “wish”, don’t say “expect”. None of us is qualified to do that. Whatever President Trump does is his business. Whatever the U.S. does is their business.
+[颶風戴爾塔來襲墨西哥美國南部嚴陣以待](https://www.swissinfo.ch/chi/afp/%E9%A3%93%E9%A3%8E%E6%88%B4%E5%B0%94%E5%A1%94%E6%9D%A5%E8%A2%AD-%E5%A2%A8%E8%A5%BF%E5%93%A5%E7%BE%8E%E5%9B%BD%E5%8D%97%E9%83%A8%E4%B8%A5%E9%98%B5%E4%BB%A5%E5%BE%85/46078962)
 
-我們中國人現在發生的這一系列事情，就是對世界的無知，對文明和人性的無視導致的嚴重後果。當然了，核心原因是沒有信仰。這是（對）川普總統，不要批評，不要希望，不要指望，沒資格，我們。川普總統做什麼，是他的事情。美國做什麼，是他們的事情。
+[此內容髮佈於**2020**年**10**月**06**日](https://www.swissinfo.ch/chi/afp/%E9%A3%93%E9%A3%8E%E6%88%B4%E5%B0%94%E5%A1%94%E6%9D%A5%E8%A2%AD-%E5%A2%A8%E8%A5%BF%E5%93%A5%E7%BE%8E%E5%9B%BD%E5%8D%97%E9%83%A8%E4%B8%A5%E9%98%B5%E4%BB%A5%E5%BE%85/46078962)
 
-Our strategy of leveraging the CCP to destroy the CCP, leveraging the U.S. to destroy the CCP, shall never change! And, leveraging law to destroy the CCP. I’ve never counted on the Americans to take out the CCP for us. Never have I believed in that. I always believe in that in the end, the one who ends the CCP is none other than the CCP itself. Haven’t all realized that by now? The arrests of [the once-glorified]Dong Hong, Meng Jianzhu, and Sun Lijun, the house arrest of Wang Qishan, and the arrests of millions of the CCP cadres… The collapse of the Chinese economy, food shortages, the madness of the whole society, and the Great Firewall, do you honestly think this country can keep going like this? Every moment some type of revolution is to erupt, ensuing bloodshed, in other words, an internal political riot.
+**[2020年10月06日（法新社邁阿密5日電）熱帶風暴「戴爾塔」（Delta）今天在加勒比海昇級成颶風，且預料在經過墨西哥尤加丹半島（Yucatan Peninsula）並登陸美國南部時，強度還會增加。 …](https://www.swissinfo.ch/chi/afp/%E9%A3%93%E9%A3%8E%E6%88%B4%E5%B0%94%E5%A1%94%E6%9D%A5%E8%A2%AD-%E5%A2%A8%E8%A5%BF%E5%93%A5%E7%BE%8E%E5%9B%BD%E5%8D%97%E9%83%A8%E4%B8%A5%E9%98%B5%E4%BB%A5%E5%BE%85/46078962)**
 
-我們以共滅共，以美滅共，永遠不變，以法滅共。我從不相信美國人幫我們把共產黨給滅了，我從來不相信。我所有的，我認為滅共產黨的，一定是共產黨。大家難道沒看到嗎？董宏的被抓，孟建柱的被抓，孫立軍的被抓，王岐山的被軟禁，百萬黨員的被抓，中國經濟的崩盤，糧食的短缺，全社會的現在的瘋狂和網路的封鎖，你覺得這個國家還能繼續下去麼？下一秒鐘都可能是變成革命，流血，或者說是內部政治暴亂。
 
-If we still have a bit of conscience, we shall not criticize the U.S.!”People have died in the U.S.”, “The U.S. economy is being held hostage!””The U.S. is BGY’ed (corrupt and threatened by extortions)!”It’s up to the Americans to make a decision! Why would you be so worried? The emperor is in no rush; and yet the eunuch [castrated person] is more keen than him!I plead to all BIAs, it you \*truly\* are our brother-in-arms, stop talking nonsense, stop criticizing [the U.S.] so recklessly! This has made such a negative impact to our WM (Whistleblower Movement)!
 
-美國人，我們但凡有一點兒良知的，都不要去批評美國。美國它死人了，美國經濟受到綁架了，美國被藍金黃了，人家做決定！你幹嘛著急啊？皇帝不急你急啥呀？一個太監你急什麼呀？我求求了，只要是戰友的，不要再在那兒塊兒放胡話，放厥詞，這對我們爆料革命影響非常之差。
+[金正恩下令「戰鬥」 **80**天力求黨全代會前振興經濟](https://www.swissinfo.ch/chi/afp/%E9%87%91%E6%AD%A3%E6%81%A9%E4%B8%8B%E4%BB%A4-%E6%88%98%E6%96%97-80%E5%A4%A9-%E5%8A%9B%E6%B1%82%E5%85%9A%E5%85%A8%E4%BB%A3%E4%BC%9A%E5%89%8D%E6%8C%AF%E5%85%B4%E7%BB%8F%E6%B5%8E/46078886)
 
-*翻譯：【RD16】  字幕：【小螺號】  聽寫：【jamie (文胤)】  視頻解碼：【小螺號】  編輯：【GM31】*
+[此內容髮佈於**2020**年**10**月**06**日](https://www.swissinfo.ch/chi/afp/%E9%87%91%E6%AD%A3%E6%81%A9%E4%B8%8B%E4%BB%A4-%E6%88%98%E6%96%97-80%E5%A4%A9-%E5%8A%9B%E6%B1%82%E5%85%9A%E5%85%A8%E4%BB%A3%E4%BC%9A%E5%89%8D%E6%8C%AF%E5%85%B4%E7%BB%8F%E6%B5%8E/46078886)
 
-*戰友之家玫瑰園小隊出品*
+**[2020年10月06日（法新社首爾6日電）北韓官方媒體今天報導，領導人金正恩已下令全國展開80天的「戰鬥」，以在明年1月朝鮮勞動黨全國代表大會登場前，提振疲軟的經濟。 …](https://www.swissinfo.ch/chi/afp/%E9%87%91%E6%AD%A3%E6%81%A9%E4%B8%8B%E4%BB%A4-%E6%88%98%E6%96%97-80%E5%A4%A9-%E5%8A%9B%E6%B1%82%E5%85%9A%E5%85%A8%E4%BB%A3%E4%BC%9A%E5%89%8D%E6%8C%AF%E5%85%B4%E7%BB%8F%E6%B5%8E/46078886)**
 
-1
+
+
+[譚德塞坦承世衛內部改革速度必須加快](https://www.swissinfo.ch/chi/afp/%E8%B0%AD%E5%BE%B7%E5%A1%9E%E5%9D%A6%E6%89%BF-%E4%B8%96%E5%8D%AB%E5%86%85%E9%83%A8%E6%94%B9%E9%9D%A9%E9%80%9F%E5%BA%A6%E5%BF%85%E9%A1%BB%E5%8A%A0%E5%BF%AB/46078750)
+
+[此內容髮佈於**2020**年**10**月**06**日](https://www.swissinfo.ch/chi/afp/%E8%B0%AD%E5%BE%B7%E5%A1%9E%E5%9D%A6%E6%89%BF-%E4%B8%96%E5%8D%AB%E5%86%85%E9%83%A8%E6%94%B9%E9%9D%A9%E9%80%9F%E5%BA%A6%E5%BF%85%E9%A1%BB%E5%8A%A0%E5%BF%AB/46078750)
+
+**[2020年10月06日（法新社日內瓦5日電）世界衛生組織（WHO）秘書長譚德塞（Tedros Adhanom Ghebreyesus）今天在執行委員會特別會議中，坦承應加快世衛內部改革速度。 …](https://www.swissinfo.ch/chi/afp/%E8%B0%AD%E5%BE%B7%E5%A1%9E%E5%9D%A6%E6%89%BF-%E4%B8%96%E5%8D%AB%E5%86%85%E9%83%A8%E6%94%B9%E9%9D%A9%E9%80%9F%E5%BA%A6%E5%BF%85%E9%A1%BB%E5%8A%A0%E5%BF%AB/46078750)**
+
+
+
+[世衛估全球**1/10**人口染疫超越官方數字**20**倍](https://www.swissinfo.ch/chi/afp/%E4%B8%96%E5%8D%AB%E4%BC%B0%E5%85%A8%E7%90%831-10%E4%BA%BA%E5%8F%A3%E6%9F%93%E7%96%AB-%E8%B6%85%E8%B6%8A%E5%AE%98%E6%96%B9%E6%95%B0%E5%AD%9720%E5%80%8D/46078752)
+
+[此內容髮佈於**2020**年**10**月**06**日](https://www.swissinfo.ch/chi/afp/%E4%B8%96%E5%8D%AB%E4%BC%B0%E5%85%A8%E7%90%831-10%E4%BA%BA%E5%8F%A3%E6%9F%93%E7%96%AB-%E8%B6%85%E8%B6%8A%E5%AE%98%E6%96%B9%E6%95%B0%E5%AD%9720%E5%80%8D/46078752)
+
+**[2020年10月06日（法新社日內瓦5日電）世界衛生組織（WHO）今天估計，全球78億人口中，恐怕已有10%感染新型冠狀病毒，遠遠超過官方記錄數據。 …](https://www.swissinfo.ch/chi/afp/%E4%B8%96%E5%8D%AB%E4%BC%B0%E5%85%A8%E7%90%831-10%E4%BA%BA%E5%8F%A3%E6%9F%93%E7%96%AB-%E8%B6%85%E8%B6%8A%E5%AE%98%E6%96%B9%E6%95%B0%E5%AD%9720%E5%80%8D/46078752)**
+
+
+
+[川普出院一返抵白宮立馬摘口罩](https://www.swissinfo.ch/chi/afp/%E5%B7%9D%E6%99%AE%E5%87%BA%E9%99%A2-%E4%B8%80%E8%BF%94%E6%8A%B5%E7%99%BD%E5%AE%AB%E7%AB%8B%E9%A9%AC%E6%91%98%E5%8F%A3%E7%BD%A9/46078706)
+
+[此內容髮佈於**2020**年**10**月**06**日](https://www.swissinfo.ch/chi/afp/%E5%B7%9D%E6%99%AE%E5%87%BA%E9%99%A2-%E4%B8%80%E8%BF%94%E6%8A%B5%E7%99%BD%E5%AE%AB%E7%AB%8B%E9%A9%AC%E6%91%98%E5%8F%A3%E7%BD%A9/46078706)
+
+**[2020年10月06日（法新社華盛頓5日電）美國總統川普感染新型冠狀病毒，住院治療4天后，今天出院。他一抵達白宮就摘下口罩，矢言很快繼續競選腳步。 …](https://www.swissinfo.ch/chi/afp/%E5%B7%9D%E6%99%AE%E5%87%BA%E9%99%A2-%E4%B8%80%E8%BF%94%E6%8A%B5%E7%99%BD%E5%AE%AB%E7%AB%8B%E9%A9%AC%E6%91%98%E5%8F%A3%E7%BD%A9/46078706)**
+
+
+
+[又有能源業者喊裁員埃克森美孚一口氣砍**1600**人](https://www.swissinfo.ch/chi/afp/%E5%8F%88%E6%9C%89%E8%83%BD%E6%BA%90%E4%B8%9A%E8%80%85%E5%96%8A%E8%A3%81%E5%91%98-%E5%9F%83%E5%85%8B%E6%A3%AE%E7%BE%8E%E5%AD%9A%E4%B8%80%E5%8F%A3%E6%B0%94%E7%A0%8D1600%E4%BA%BA/46078710)
+
+[此內容髮佈於**2020**年**10**月**06**日](https://www.swissinfo.ch/chi/afp/%E5%8F%88%E6%9C%89%E8%83%BD%E6%BA%90%E4%B8%9A%E8%80%85%E5%96%8A%E8%A3%81%E5%91%98-%E5%9F%83%E5%85%8B%E6%A3%AE%E7%BE%8E%E5%AD%9A%E4%B8%80%E5%8F%A3%E6%B0%94%E7%A0%8D1600%E4%BA%BA/46078710)
+
+**[2020年10月06日（法新社華盛頓6日電）美國石油及石化業巨擘埃克森美孚公司（ExxonMobil）加入其他能源巨擘，今天宣布，將在歐洲裁減1600人。 …](https://www.swissinfo.ch/chi/afp/%E5%8F%88%E6%9C%89%E8%83%BD%E6%BA%90%E4%B8%9A%E8%80%85%E5%96%8A%E8%A3%81%E5%91%98-%E5%9F%83%E5%85%8B%E6%A3%AE%E7%BE%8E%E5%AD%9A%E4%B8%80%E5%8F%A3%E6%B0%94%E7%A0%8D1600%E4%BA%BA/46078710)**
+
+
+
+[考量抗疫中俄等國籲美等西方國家停止制裁](https://www.swissinfo.ch/chi/afp/%E8%80%83%E9%87%8F%E6%8A%97%E7%96%AB-%E4%B8%AD%E4%BF%84%E7%AD%89%E5%9B%BD%E5%90%81%E7%BE%8E%E7%AD%89%E8%A5%BF%E6%96%B9%E5%9B%BD%E5%AE%B6%E5%81%9C%E6%AD%A2%E5%88%B6%E8%A3%81/46078708)
+
+[此內容髮佈於**2020**年**10**月**06**日](https://www.swissinfo.ch/chi/afp/%E8%80%83%E9%87%8F%E6%8A%97%E7%96%AB-%E4%B8%AD%E4%BF%84%E7%AD%89%E5%9B%BD%E5%90%81%E7%BE%8E%E7%AD%89%E8%A5%BF%E6%96%B9%E5%9B%BD%E5%AE%B6%E5%81%9C%E6%AD%A2%E5%88%B6%E8%A3%81/46078708)
+
+**[2020年10月06日（法新社紐約聯合國總部5日電）中國、俄羅斯和其他20多國，聲稱受制裁的國家更難應付2019冠狀病毒疾病（COVID-19）疫情，呼籲美國和西方國家停止單方面製裁。 …](https://www.swissinfo.ch/chi/afp/%E8%80%83%E9%87%8F%E6%8A%97%E7%96%AB-%E4%B8%AD%E4%BF%84%E7%AD%89%E5%9B%BD%E5%90%81%E7%BE%8E%E7%AD%89%E8%A5%BF%E6%96%B9%E5%9B%BD%E5%AE%B6%E5%81%9C%E6%AD%A2%E5%88%B6%E8%A3%81/46078708)**
+
+
+
+[住院**3**晚川普出院返白宮](https://www.swissinfo.ch/chi/afp/%E4%BD%8F%E9%99%A23%E6%99%9A-%E5%B7%9D%E6%99%AE%E5%87%BA%E9%99%A2%E8%BF%94%E7%99%BD%E5%AE%AB/46078642)
+
+[此內容髮佈於**2020**年**10**月**05**日](https://www.swissinfo.ch/chi/afp/%E4%BD%8F%E9%99%A23%E6%99%9A-%E5%B7%9D%E6%99%AE%E5%87%BA%E9%99%A2%E8%BF%94%E7%99%BD%E5%AE%AB/46078642)
+
+**[2020年10月05日（法新社華盛頓5日電）美國總統川普染疫住院3個晚上後，已迫不及待出院返回白宮。川普在傍晚約6時40分左右，戴著口罩走出華特里德國家軍事醫學中心（Walter Reed National Military…](https://www.swissinfo.ch/chi/afp/%E4%BD%8F%E9%99%A23%E6%99%9A-%E5%B7%9D%E6%99%AE%E5%87%BA%E9%99%A2%E8%BF%94%E7%99%BD%E5%AE%AB/46078642)**
+
+
+
+[美副總統候選人辯論會將架設玻璃塑膠板防疫](https://www.swissinfo.ch/chi/afp/%E7%BE%8E%E5%89%AF%E6%80%BB%E7%BB%9F%E5%80%99%E9%80%89%E4%BA%BA%E8%BE%A9%E8%AE%BA%E4%BC%9A-%E5%B0%86%E6%9E%B6%E8%AE%BE%E7%8E%BB%E7%92%83%E5%A1%91%E8%83%B6%E6%9D%BF%E9%98%B2%E7%96%AB/46078644)
+
+[此內容髮佈於**2020**年**10**月**05**日](https://www.swissinfo.ch/chi/afp/%E7%BE%8E%E5%89%AF%E6%80%BB%E7%BB%9F%E5%80%99%E9%80%89%E4%BA%BA%E8%BE%A9%E8%AE%BA%E4%BC%9A-%E5%B0%86%E6%9E%B6%E8%AE%BE%E7%8E%BB%E7%92%83%E5%A1%91%E8%83%B6%E6%9D%BF%E9%98%B2%E7%96%AB/46078644)
+
+**[2020年10月05日（法新社華盛頓5日電）美國即將於11月3日舉行總統大選，共和黨和民主黨副總統候選人彭斯（Mike Pence）與賀錦麗（Kamala Harris）將10月7日在猶他州鹽湖城（Salt Lake City）舉行辯論會。 …](https://www.swissinfo.ch/chi/afp/%E7%BE%8E%E5%89%AF%E6%80%BB%E7%BB%9F%E5%80%99%E9%80%89%E4%BA%BA%E8%BE%A9%E8%AE%BA%E4%BC%9A-%E5%B0%86%E6%9E%B6%E8%AE%BE%E7%8E%BB%E7%92%83%E5%A1%91%E8%83%B6%E6%9D%BF%E9%98%B2%E7%96%AB/46078644)**
+
+
+
+[川普籲別讓病毒支配生活拜登重申口罩重要性](https://www.swissinfo.ch/chi/afp/%E5%B7%9D%E6%99%AE%E5%90%81%E5%88%AB%E8%AE%A9%E7%97%85%E6%AF%92%E6%94%AF%E9%85%8D%E7%94%9F%E6%B4%BB-%E6%8B%9C%E7%99%BB%E9%87%8D%E7%94%B3%E5%8F%A3%E7%BD%A9%E9%87%8D%E8%A6%81%E6%80%A7/46078622)
+
+[此內容髮佈於**2020**年**10**月**05**日](https://www.swissinfo.ch/chi/afp/%E5%B7%9D%E6%99%AE%E5%90%81%E5%88%AB%E8%AE%A9%E7%97%85%E6%AF%92%E6%94%AF%E9%85%8D%E7%94%9F%E6%B4%BB-%E6%8B%9C%E7%99%BB%E9%87%8D%E7%94%B3%E5%8F%A3%E7%BD%A9%E9%87%8D%E8%A6%81%E6%80%A7/46078622)
+
+**[2020年10月05日（法新社邁阿密5日電）美國總統川普因感染新型冠狀病毒住院治療，今天出院不久就呼籲美國民眾「出門」，但要小心防疫。民主黨籍總統候選人拜登斥責這類說法，並批評川普不重視口罩。 …](https://www.swissinfo.ch/chi/afp/%E5%B7%9D%E6%99%AE%E5%90%81%E5%88%AB%E8%AE%A9%E7%97%85%E6%AF%92%E6%94%AF%E9%85%8D%E7%94%9F%E6%B4%BB-%E6%8B%9C%E7%99%BB%E9%87%8D%E7%94%B3%E5%8F%A3%E7%BD%A9%E9%87%8D%E8%A6%81%E6%80%A7/46078622)**
+
+
+
+[川普染疫出院後籲人民出門但小心防疫](https://www.swissinfo.ch/chi/afp/%E5%B7%9D%E6%99%AE%E6%9F%93%E7%96%AB%E5%87%BA%E9%99%A2%E5%90%8E-%E5%90%81%E4%BA%BA%E6%B0%91%E5%87%BA%E9%97%A8%E4%BD%86%E5%B0%8F%E5%BF%83%E9%98%B2%E7%96%AB/46078620)
+
+[此內容髮佈於**2020**年**10**月**05**日](https://www.swissinfo.ch/chi/afp/%E5%B7%9D%E6%99%AE%E6%9F%93%E7%96%AB%E5%87%BA%E9%99%A2%E5%90%8E-%E5%90%81%E4%BA%BA%E6%B0%91%E5%87%BA%E9%97%A8%E4%BD%86%E5%B0%8F%E5%BF%83%E9%98%B2%E7%96%AB/46078620)
+
+**[2020年10月05日（法新社華盛頓5日電）美國總統川普因感染新型冠狀病毒住院治療，今天出院不久就呼籲美國民眾「出門」，但要小心防疫。 …](https://www.swissinfo.ch/chi/afp/%E5%B7%9D%E6%99%AE%E6%9F%93%E7%96%AB%E5%87%BA%E9%99%A2%E5%90%8E-%E5%90%81%E4%BA%BA%E6%B0%91%E5%87%BA%E9%97%A8%E4%BD%86%E5%B0%8F%E5%BF%83%E9%98%B2%E7%96%AB/46078620)**
+
+
+
+[密克羅尼西亞**5**島國領袖揚言退出太平洋區域論壇](https://www.swissinfo.ch/chi/afp/%E5%AF%86%E5%85%8B%E7%BD%97%E5%B0%BC%E8%A5%BF%E4%BA%9A5%E5%B2%9B%E5%9B%BD%E9%A2%86%E8%A2%96-%E6%89%AC%E8%A8%80%E9%80%80%E5%87%BA%E5%A4%AA%E5%B9%B3%E6%B4%8B%E5%8C%BA%E5%9F%9F%E8%AE%BA%E5%9D%9B/46077712)
+
+[此內容髮佈於**2020**年**10**月**05**日](https://www.swissinfo.ch/chi/afp/%E5%AF%86%E5%85%8B%E7%BD%97%E5%B0%BC%E8%A5%BF%E4%BA%9A5%E5%B2%9B%E5%9B%BD%E9%A2%86%E8%A2%96-%E6%89%AC%E8%A8%80%E9%80%80%E5%87%BA%E5%A4%AA%E5%B9%B3%E6%B4%8B%E5%8C%BA%E5%9F%9F%E8%AE%BA%E5%9D%9B/46077712)
+
+**[2020年10月05日（法新社帛琉首都科羅5日電）帛琉、馬紹爾群島等5個太平洋島國領導人揚言，除非能由他們選出區域論壇領袖，否則將攜手退出論壇。當中國正尋求在太平洋地區擴大勢力，這項發展恐添區域不穩定性。 …](https://www.swissinfo.ch/chi/afp/%E5%AF%86%E5%85%8B%E7%BD%97%E5%B0%BC%E8%A5%BF%E4%BA%9A5%E5%B2%9B%E5%9B%BD%E9%A2%86%E8%A2%96-%E6%89%AC%E8%A8%80%E9%80%80%E5%87%BA%E5%A4%AA%E5%B9%B3%E6%B4%8B%E5%8C%BA%E5%9F%9F%E8%AE%BA%E5%9D%9B/46077712)**
+
+
+
+[英業者電影世界考量疫情暫關閉旗下英美戲院](https://www.swissinfo.ch/chi/afp/%E8%8B%B1%E4%B8%9A%E8%80%85%E7%94%B5%E5%BD%B1%E4%B8%96%E7%95%8C%E8%80%83%E9%87%8F%E7%96%AB%E6%83%85-%E6%9A%82%E5%85%B3%E9%97%AD%E6%97%97%E4%B8%8B%E8%8B%B1%E7%BE%8E%E6%88%8F%E9%99%A2/46077492)
+
+[此內容髮佈於**2020**年**10**月**05**日](https://www.swissinfo.ch/chi/afp/%E8%8B%B1%E4%B8%9A%E8%80%85%E7%94%B5%E5%BD%B1%E4%B8%96%E7%95%8C%E8%80%83%E9%87%8F%E7%96%AB%E6%83%85-%E6%9A%82%E5%85%B3%E9%97%AD%E6%97%97%E4%B8%8B%E8%8B%B1%E7%BE%8E%E6%88%8F%E9%99%A2/46077492)
+
+**[2020年10月05日（法新社倫敦5日電）在2019冠狀病毒疾病（COVID-19）疫情導致主要新電影延後上映之際，英國連鎖電影院營運商電影世界（Cineworld Group）今天宣布，將暫時停止英國及美國旗下戲院的營運。 …](https://www.swissinfo.ch/chi/afp/%E8%8B%B1%E4%B8%9A%E8%80%85%E7%94%B5%E5%BD%B1%E4%B8%96%E7%95%8C%E8%80%83%E9%87%8F%E7%96%AB%E6%83%85-%E6%9A%82%E5%85%B3%E9%97%AD%E6%97%97%E4%B8%8B%E8%8B%B1%E7%BE%8E%E6%88%8F%E9%99%A2/46077492)**
+
+
+
+[諾貝爾醫學獎美英學者發現**C**肝病毒獲殊榮](https://www.swissinfo.ch/chi/afp/%E8%AF%BA%E8%B4%9D%E5%B0%94%E5%8C%BB%E5%AD%A6%E5%A5%96-%E7%BE%8E%E8%8B%B1%E5%AD%A6%E8%80%85%E5%8F%91%E7%8E%B0c%E8%82%9D%E7%97%85%E6%AF%92%E8%8E%B7%E6%AE%8A%E8%8D%A3/46077494)
+
+[此內容髮佈於**2020**年**10**月**05**日](https://www.swissinfo.ch/chi/afp/%E8%AF%BA%E8%B4%9D%E5%B0%94%E5%8C%BB%E5%AD%A6%E5%A5%96-%E7%BE%8E%E8%8B%B1%E5%AD%A6%E8%80%85%E5%8F%91%E7%8E%B0c%E8%82%9D%E7%97%85%E6%AF%92%E8%8E%B7%E6%AE%8A%E8%8D%A3/46077494)
+
+**[2020年10月05日（法新社斯德哥爾摩5日電）諾貝爾生理學或醫學獎委員會今天說，美國學者阿特爾（Harvey J. Alter）、萊斯（Charles M. Rice）和英國學者賀頓（Michael Houghton）因發現C型肝炎病毒獲獎。 …](https://www.swissinfo.ch/chi/afp/%E8%AF%BA%E8%B4%9D%E5%B0%94%E5%8C%BB%E5%AD%A6%E5%A5%96-%E7%BE%8E%E8%8B%B1%E5%AD%A6%E8%80%85%E5%8F%91%E7%8E%B0c%E8%82%9D%E7%97%85%E6%AF%92%E8%8E%B7%E6%AE%8A%E8%8D%A3/46077494)**
+
+
+
+**[COVID-19全球確診逾3524萬例超過103.7萬人病歿](https://www.swissinfo.ch/chi/afp/covid-19%E5%85%A8%E7%90%83%E7%A1%AE%E8%AF%8A%E9%80%BE3524%E4%B8%87%E4%BE%8B-%E8%B6%85%E8%BF%87103.7%E4%B8%87%E4%BA%BA%E7%97%85%E6%AE%81/46077432)**
+
+[此內容髮佈於**2020**年**10**月**05**日](https://www.swissinfo.ch/chi/afp/covid-19%E5%85%A8%E7%90%83%E7%A1%AE%E8%AF%8A%E9%80%BE3524%E4%B8%87%E4%BE%8B-%E8%B6%85%E8%BF%87103.7%E4%B8%87%E4%BA%BA%E7%97%85%E6%AE%81/46077432)
+
+**[2020年10月05日（法新社巴黎5日電）法新社彙整官方數據顯示，截至格林威治標準時間5日11時（台灣5日晚間7時），全球至少103萬7971人死於2019冠狀病毒疾病（COVID-19），超過3524萬3990例確診。 …](https://www.swissinfo.ch/chi/afp/covid-19%E5%85%A8%E7%90%83%E7%A1%AE%E8%AF%8A%E9%80%BE3524%E4%B8%87%E4%BE%8B-%E8%B6%85%E8%BF%87103.7%E4%B8%87%E4%BA%BA%E7%97%85%E6%AE%81/46077432)**
+
+援引： [**https://www.swissinfo.ch/chi/afp**](https://www.swissinfo.ch/chi/afp)
+
+冠狀病毒實時新：
+
+- 援引：
+- 
+- [**https://www.outbreak.my/zh/world**](https://www.outbreak.my/zh/world)
+- 
+- 
+- 
+- [**https://www.nzherald.co.nz/nz/news/article.cfm?c\_id=1&objectid=12322890**](https://www.nzherald.co.nz/nz/news/article.cfm?c_id=1&amp;objectid=12322890)
+
+
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07052453/106-0-1.png)
+
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07052841/106-00-2.png)
+
+0
