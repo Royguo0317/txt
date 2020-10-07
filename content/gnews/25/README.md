@@ -1,13 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日政要Twitter播報(中文) 10/06期(視頻+ PDF下載)
-`2020-10-07 09:36 GM62` [轉載自GNews](https://gnews.org/zh-hant/408724/)
+## 10/5文貴先生直播: “全球滅賊”改成“全球懲賊”, 全世界RICO法案一定會降臨在他們頭上
+`2020-10-07 09:49 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/408751/)
 
-撰稿記者：宠宝⻉(文宠)、CYC文颖、尘凡3、本來
-校對: T.J Stonewall 法语
-播⾳：⼤脚印
+10月5日文貴先生直播精華：我們從今天將”全球滅賊”改成”全球懲賊“，美國的RICO法案，全世界的RICO法案一定會降臨在他們頭上。
 
-[每日推文10-06pdf](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07092701/10-06pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07092701/10-06pdf.pdf)
+
+
+####  **By：【秘密翻譯組G-Translators】**
 
 0
