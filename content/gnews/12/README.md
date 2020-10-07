@@ -1,15 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大喜莊園- 溫哥華滅賊組招募廣告
-`2020-10-06 14:29 加拿大喜庄园🇨🇦` [轉載自GNews](https://gnews.org/zh-hant/406838/)
+## 今年6月郭文貴先生就說過, 曼哈頓房價會大跌
+`2020-10-06 21:22 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/407213/)
 
-為了曝光中共特務，為了區分海外華人和中共特務，為了保護我們自己和家人。
-
-請戰友們集結加喜莊園滅賊組！
-
-**聯繫人：卡麗熙女士- Whatsapp號碼(613) 434-9162**
+今年6月郭文貴先生就在直播中說過，曼哈頓房價會跌30%-50%。福克斯近日報導，曼哈頓房產銷售量下跌46%。我們用事實一次次地證明了爆料革命情報的厲害和價值！
 
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06142520/GAOBINGCHEN1.jpeg)
+
+####  **By：【秘密翻譯組G-Translators】**
+
+
+
 0

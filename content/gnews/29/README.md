@@ -1,17 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 諷防暴警「走狗」遭員佐級協會投訴　郭家麒憂醫委會成打壓工具：滅聲無所不用其極
-`2020-10-06 11:12 shangshang` [轉載自GNews](https://gnews.org/zh-hant/406572/)
+## 比爾格茨：中共國正在與美國爭奪太空優勢
+`2020-10-06 16:37 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/406910/)
 
-作者：vog尚
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06110616/FF514388-6CDC-4677-96EC-12E0E2894089.png)
-新聞來源：立場新聞
+*新聞來源：the Washington Times《華盛頓時報》；作者：Bill Gertz；發佈時間：2020年9月4日*
 
-公民黨立法會議員郭家麒早前在 facebook 貼出防暴警員相片，批評「綠色物體」是「甘心作為殘暴政權的走狗」，被警方發聲明譴責。警察隊員佐級協會主席林志偉今日[去信](https://www1.jpoa.com.hk/%e6%8a%95%e8%a8%b4%e8%a8%bb%e5%86%8a%e9%86%ab%e7%94%9f%e9%83%ad%e5%ae%b6%e9%ba%92%e5%b0%88%e6%a5%ad%e5%a4%b1%e5%be%b7/)醫務委員會，投訴本身是醫生的郭家麒涉嫌違反專業操守及醫德。郭家麒則在 facebook 回應，指香港人擁有言論自由，「我的言論公道自在人心」。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/06110606/248C2275-6C78-4741-97BF-E8C0F21DA4B8.jpeg)
-[醫委會網站上](https://www.mchk.org.hk/tc_chi/complaint/complaint_10.html)亦列出「不大可能進行調查的投訴類別」，當中包括「不構成專業上行為失當的指控」、「未有充分證據證明的投訴」以及「不關乎醫生醫務工作的投訴」等。
+*翻譯/簡評：Cathy r；校對：1818；審核：InAHurry；Page：拱卒*
 
-原文鏈接：[https://www.thestandnews.com/politics/a-警員佐級協會去信醫委會投訴郭家麒-郭憂醫委會被利用作政治工具打壓醫生/](https://www.thestandnews.com/politics/a-警員佐級協會去信醫委會投訴郭家麒-郭憂醫委會被利用作政治工具打壓醫生/)
+[!\[\]()!\[\](https://spark.adobe.com/page/XJhT7fNAFEx8C/images/4ea558d7-c2d5-4cb0-a0f3-a0b4a509530a.jpg?asset_id=8b0d7d2c-251e-4fe1-926e-b6ee16708428&amp;img_etag=%229a04c3952f758ee1a21053343b3b640b%22&amp;size=2560)](https://spark.adobe.com/page/XJhT7fNAFEx8C/images/4ea558d7-c2d5-4cb0-a0f3-a0b4a509530a.jpg?asset_id=8b0d7d2c-251e-4fe1-926e-b6ee16708428&amp;img_etag=%229a04c3952f758ee1a21053343b3b640b%22&amp;size=1024)
+
+**簡評：**
+
+根據郭先生9月5日的蓋特，世界上使用藍牙和WiFi牽引技術的最歷害的國家，就是中共國，他們可以利用這個技術在任何的具有這兩個功能的設備上，植入他們想要的軟件和利用網絡牽引，在任何地方任何地點的這些設備上製造車禍、機禍。所以說中共的破壞手段是一流的，你有什麼高科技的產品，他都能進行破壞。現在他們又瞄準了太空領域，想在太空上也如此炮製，不僅涉嫌模仿美國航天飛行器，並且打著“和平探索太空的幌子”還在不斷增加太空軍事能力。此舉已引起美國太空軍方警覺，美國不可不堤防中共的破壞力，中共的霸權全球的野心看來不止於地球。
+
+## **中共國發射模仿空軍飛機的可重複使用的機器人航天器**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/XJhT7fNAFEx8C/images/65a52c7a-e813-4131-b944-2a64fef903e5.jpg?asset_id=e061c130-7619-4317-9a1d-0e0938a08594&amp;img_etag=%22521610931d593290cbda2be76300d86f%22&amp;size=2560)](https://spark.adobe.com/page/XJhT7fNAFEx8C/images/65a52c7a-e813-4131-b944-2a64fef903e5.jpg?asset_id=e061c130-7619-4317-9a1d-0e0938a08594&amp;img_etag=%22521610931d593290cbda2be76300d86f%22&amp;size=1024)在這張2019年6月29日的照片中，美國總統唐納德·川普(DonaldTrump)在日本西部大阪舉行的20國集團峰會間隙與中共國國家主席習近平合影。
+
+中共國上週五發射了一架可重複使用的航天器，這似乎是北京對神秘的美國X-37太空飛機的回應。
+
+據一位國營太空承包商在網上發布的聲明，該航天器於週五下午在中共國西北部酒泉衛星發射中心的長征-2F助推器上發射。
+
+據中共國最大的太空集團中共國航天科技股份有限公司(China Aerospace Science and Technology Corp.)稱，機器人航天器將在軌道上停留一段未指明的時間以監測其可重複使用的技術。中共國官方媒體報導的這份聲明說，這些試驗旨在推動中共國（航天器）在返回地球前能“和平探索太空”。
+
+中共官媒沒有披露任何其它細節，也沒有該飛行器或其升空的照片。
+
+該航天器可能類似於空軍X-37B航天飛機，該飛機已經進行了六次秘密飛行任務，被認為是新太空部隊空間防禦和戰爭能力的關鍵要素。
+
+波音公司製造的X-37B能夠發射小型衛星。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/XJhT7fNAFEx8C/images/dc1d466d-aa60-4c68-bad0-a611fee19f85.jpg?asset_id=fba6bc60-cff2-46f8-8be1-5943c01c5536&amp;img_etag=%22b443ed92da26a1acc543bb35782b9827%22&amp;size=2560)](https://spark.adobe.com/page/XJhT7fNAFEx8C/images/dc1d466d-aa60-4c68-bad0-a611fee19f85.jpg?asset_id=fba6bc60-cff2-46f8-8be1-5943c01c5536&amp;img_etag=%22b443ed92da26a1acc543bb35782b9827%22&amp;size=1024)中國慶祝秘密航天器安全著陸是”重要突破
+
+智庫“太空法與政策解決方案”(Space Law and Policy Solutions)的太空專家邁克爾\*李斯特納(Michael Listner)表示，儘管缺乏照片，但這架中共國航天飛機與美國空軍的X-37B航天飛機非常相似。
+
+李斯特納(Listner)先生說：“總之，這艘航天器很可能模仿的是X-37B的運行，因為它被公開吹捧為實驗技術的試驗場，並用它來宣傳和平利用外太空的黨的路線。“
+
+但是，他補充說，中共飛機“也與機密的國家安全相關”。
+
+李斯特納先生指出，該航天器由與中共國軍方有著廣泛聯繫的中共國民用航天機構管理。
+
+美國國防情報局局長羅伯特·阿希禮中將（Lt. Gen. Robert Ashley）去年說，用機械臂操縱衛星是太空中日益嚴重的威脅。
+
+他在科羅拉多州的一個論壇上說：“如果中共的那顆衛星與你的衛星相靠，那麼你就有能力損壞傳感器。你可以切斷（傳感器）通路。事實上，你可以用一顆共軌衛星使其失效。”
+
+共產黨報紙《環球時報》(Global Times)稱，該集團的西安航空航天推進研究所(Xian Aerospace Propulsion Institute)3月曾報導，下一個長征2號F運載火箭將涉及一項重要的實驗任務，即作為未來載人航天計劃和下一代航空航天技術的一部分。
+
+該報說，中共國可重複使用的航天器將有一系列的應用，包括太空旅遊、宇航員運輸和空間站補給，以及以更低的成本將衛星送入軌道。
+
+中共國軍方負責中共國的太空計劃，五角大樓關於中共國軍事的最新年度報告顯示，北京正在迅速增強其在太空作戰的能力。
+
+“中共國正在繼續加強其太空軍事能力，儘管它公開反對太空武器化。”報告說。
+
+報告說：“中共國人民解放軍繼續獲得和發展一系列反空間能力和相關技術，包括動能殺傷導彈、地面激光和軌道空間機器人，以及擴大太空監視能力，這些能力可以監測其視野內的太空物體，並使反空間行動成為可能。”
+
+軌道空間機器人是小型機動衛星，可以抓取或粉碎軌道衛星。
+
+報告指出，中共國軍方還在空間情報、監視和偵察(ISR)、衛星通信、衛星導航和氣象學以及載人航天和機器人空間探索等領域投入了巨資。
+
+北京還計劃在2022年前部署一個空間站，以接收外國有效載荷和宇航員。
+
+監督X-37B的空軍快速能力辦公室(Air Force Rapid Capabilities Office)主管蘭德\*瓦爾登(Rand Walden)說：“人們對可重複使用的航天器很感興趣，到目前為止，我們已經在這十年中通過操作此系統獲得了很多信息。“
+
+瓦爾登(Walden)先生上個月在米切爾研究所（Mitchell Institute）主辦的一個論壇上說，他的辦公室正在與五角大樓合作，研究未來航天器可能的防禦載荷。
+
+[原文鏈接](https://www.washingtontimes.com/news/2020/sep/4/china-launches-reusable-robotic-spacecraft-mimics-/)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/XJhT7fNAFEx8C/)
 
 0
