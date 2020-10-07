@@ -1,51 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國國土安全部重磅首發《國土威脅評估》
-`2020-10-07 01:14 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/407649/)
+## 澳大利亞墨爾本男子往食品裏註射東西被當場抓獲
+`2020-10-07 05:56 喜馬拉雅的文雅` [轉載自GNews](https://gnews.org/zh-hant/408040/)
 
-喜馬拉雅聯盟加拿大農場 laotou
+- ![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07055610/image-43.png)
 
-校對上傳 XM
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07010923/bba3039d3d8e87f2cfc47739b0b4a14e.jpg)圖片來源：美聯社
-10月6日，華盛頓特區–美國國土安全部代理部長查德∙沃爾夫（Chad F. Wolf）發布了國土威脅評估（HTA）報告。這是國土安全部（DHS）首份綜合性威脅評估報告，包括情報和作戰部分。
 
-沃爾夫宣布，“這個國土威脅評估報告是盡可能地讓美國人民看到並理解這些信息，我作為代理部長以及我們的員工在執行國家安全使命中看到了這一點。當你通讀這份報告時，你應該有信心知道，這些威脅是通過最好的情報、業務信息以及睿智的國土安全部員工確定的。”
+- ![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07055623/Screenshot-at-Oct-07-20-47-18.png)
 
-沃爾夫還說，“當美國人民讀到這份報告時，他們更加意識到美國將面臨的傳統威脅，如恐怖主義和有組織犯罪。不過，我想他們也會意識到，我們國家正在面臨著來自中國、俄羅斯和伊朗等民族國家的重大威脅。”
 
-內容鏈接：
+10月6日下午在澳大利亞墨爾本北部的Craigieburn，壹名叫Fue Yang的男子被顧客發現往超市的食品裏用針管註射東西後，被當地警察逮捕，偵探對其進行了調查，次日在Broadmeadows地方法庭進行簡短審訊，被指控汙染食品罪。此人作案地點是當地最大的澳洲超市Woolworths，被發現往面包、咖啡等食品裏註射不明東西。超市已經將這些食品下架，並鼓勵購買了相關食品有任何疑問的，回來退貨退款，或給警方提供證據。
 
-[https://www.dhs.gov/news/2020/10/06/department-homeland-security-releases-homeland-threat-assessment?utm\_source=hp\_slideshow&utm\_medium=web&utm\_campaign=dhsgov](https://www.dhs.gov/news/2020/10/06/department-homeland-security-releases-homeland-threat-assessment?utm_source=hp_slideshow&amp;utm_medium=web&amp;utm_campaign=dhsgov)
+今日的法庭審訊中，聽說Yang先生正在服用幾種藥物，包括抗抑郁藥。犯罪分子本人並沒有申請保釋。
 
-“評估報告”目錄
+我們不提倡陰謀論，但是也不相信巧合論。多年前澳大利亞壹位中共國女大使的兒子曾經對家庭教師實施暴力強奸虐殺，之後經過中共官方從中斡旋，稱大使的兒子犯有精神疾病，後不了了之。中共病毒疫情最嚴重的墨爾本近日確診病例已經明顯下降，死亡人數為零的趨勢下，仍然有突發不明來源的確診病例，悉尼確診病例實現零突破後也發現了突發不明原因下水道裏中共病毒汙染問題。而美國白宮川普總統、共和黨幕僚、軍方突發且統壹被中共病毒擊中。這些現象不得不令人把病毒被以不同方式定點投放的事實聯系起來。
 
-前言
+我們海外的華人壹方面在抗疫階段、尤其是中共末路狂奔時更加註意食品安全、人身安全，另壹方面要堅決和中共劃清界限，反洗腦、反利用，反對自覺、不自覺為中共作惡，不做為中共擋導彈的肉盾，發現不法行為堅決舉報，華人要覺醒！我們和中共不同，中共不代表華人。而實現保全自己、家人和所有華人最好的解決辦法就是滅共！中共不滅、華人難安！
 
-HTA（國土威脅評估）的結構
 
-威脅：
 
-網絡
 
-對外影響活動
 
-經濟安全
 
-恐怖主義
 
-跨國犯罪組織
+新聞來源：https://www.9news.com.au/national/man-pokes-woolworths-bread-with-syringe-roxburgh-park-store-melbourne/aec758a3-cf2b-4820-b3c1-ef6aa981ace6?ocid=Social-9News&fbclid=IwAR2gTUClr8a6S5cBjew8M-wZPRBvsZiQaUKC0UbtyWHMkhdyKXer7rROb-M
 
-非法移民
 
-自然災害
-
-全文26頁，涉及中共國內容有大量的篇幅。
-
-原文鏈接：
-
-[https://www.dhs.gov/sites/default/files/publications/2020\_10\_06\_homeland-threat-assessment.pdf](https://www.dhs.gov/sites/default/files/publications/2020_10_06_homeland-threat-assessment.pdf)
-
-期待戰友們閱讀、傳播，讓更多的人了解邪共、魔共對美國、對全世界的威脅！
 
 0

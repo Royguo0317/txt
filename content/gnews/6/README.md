@@ -1,17 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 10.1 路德時評：朱利安尼是川普總統的強力支持者 海外民運烏合之眾一事無成【精華版粵語配音】
-`2020-10-07 03:26 GM42` [轉載自GNews](https://gnews.org/zh-hant/407785/)
+## 【世界多語言圖文】2020/09/30 CCP病毒每日疫情直播簡報
+`2020-10-07 07:37 GM62` [轉載自GNews](https://gnews.org/zh-hant/408390/)
 
-製作單位：戰友之家·粵語頻道
-製作團隊：小叮嚀、Andy Su、流光飛舞、哥阿
+戰友之家圖文摘要及小語種組
+
+[249\_English\_0930\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073428/249_English_0930_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073428/249_English_0930_CCP_Virus_Updates.pdf)
+
+[249\_French\_0930\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073400/249_French_0930_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073400/249_French_0930_CCP_Virus_Updates.pdf)
+
+[249\_German\_0930\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073350/249_German_0930_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073350/249_German_0930_CCP_Virus_Updates.pdf)
+
+[249\_Korean\_0930\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073355/249_Korean_0930_CCP_Virus_Updates_249.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073355/249_Korean_0930_CCP_Virus_Updates_249.pdf)
+
+[249\_Spanish\_0930\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073405/249_Spanish_0930_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07073405/249_Spanish_0930_CCP_Virus_Updates.pdf)
 
 
-
-摘要：
-朱利安尼因支持川普總統倍受左媒攻擊
-中國海外民運烏合之眾一事無成
-爆料革命的戰友們在郭先生的帶領下眾志成城屢創輝煌
 
 0
