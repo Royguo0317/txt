@@ -1,29 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 魔鏡——閆麗夢博士的報告引出的正邪較量
-`2020-10-07 12:00 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/409023/)
+## 【熱點播報】川普總統發布視頻：REGENERON這個藥絕對是CCP病毒剋星！一切的錯及災難都是中共國引起的，一定要讓中共國付出巨大代價！
+`2020-10-07 21:25 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/409558/)
 
-*作者：桂花酒；發布日期：2020/9/23* ；*審核/校對：Julia Win；Page：拱卒*
+作者：美東香草山農場 正道主義聯盟
 
-## **魔鏡**
+川普總統剛剛視頻中說到，REGENERON的這個藥是解藥！ 24小時就讓他感覺好極了！他康復的關鍵就是因為這個藥起了作用！他將會推動FDA盡快批准藥物的臨床使用，並讓這個藥物免費讓美國民眾使用！
 
-### **——閆麗夢博士的報告引出的正邪較量**
+最後更重磅的是，他說所有的錯都是中共國的錯，中共國將會為美國及世界帶來的損失付出巨大代價！
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07205648/101-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E5%B7%9D%E6%99%AE%E7%B8%BD%E7%B5%B1%E5%8F%91%E5%B8%83%E8%A7%86%E9%A2%91%EF%BC%9AREGENERON%E8%BF%99%E4%B8%AA%E8%8D%AF%E7%BB%9D%E5%AF%B9%E6%98%AF%EF%BC%A3%EF%BC%A3%EF%BC%B0%E7%97%85%E6%AF%92%E5%85%8B%E6%98%9F%EF%BC%81%E4%B8%80%E5%88%87%E7%9A%84%E9%94%99%E5%8F%8A%E7%81%BE%E9%9A%BE%E9%83%BD%E6%98%AF%E4%B8%AD%E5%85%B1%E5%9B%BD%E5%BC%95%E8%B5%B7%E7%9A%84%EF%BC%8C%E4%B8%80%E5%AE%9A%E8%A6%81%E8%AE%A9%E4%B8%AD%E5%85%B1%E5%9B%BD%E4%BB%98%E5%87%BA%E5%B7%A8%E5%A4%A7%E4%BB%A3%E4%BB%B7%EF%BC%81%EF%BC%81-1.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07205801/101-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E5%B7%9D%E6%99%AE%E7%B8%BD%E7%B5%B1%E5%8F%91%E5%B8%83%E8%A7%86%E9%A2%91%EF%BC%9AREGENERON%E8%BF%99%E4%B8%AA%E8%8D%AF%E7%BB%9D%E5%AF%B9%E6%98%AF%EF%BC%A3%EF%BC%A3%EF%BC%B0%E7%97%85%E6%AF%92%E5%85%8B%E6%98%9F%EF%BC%81%E4%B8%80%E5%88%87%E7%9A%84%E9%94%99%E5%8F%8A%E7%81%BE%E9%9A%BE%E9%83%BD%E6%98%AF%E4%B8%AD%E5%85%B1%E5%9B%BD%E5%BC%95%E8%B5%B7%E7%9A%84%EF%BC%8C%E4%B8%80%E5%AE%9A%E8%A6%81%E8%AE%A9%E4%B8%AD%E5%85%B1%E5%9B%BD%E4%BB%98%E5%87%BA%E5%B7%A8%E5%A4%A7%E4%BB%A3%E4%BB%B7%EF%BC%81%EF%BC%81-2.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07205858/101-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E5%B7%9D%E6%99%AE%E7%B8%BD%E7%B5%B1%E5%8F%91%E5%B8%83%E8%A7%86%E9%A2%91%EF%BC%9AREGENERON%E8%BF%99%E4%B8%AA%E8%8D%AF%E7%BB%9D%E5%AF%B9%E6%98%AF%EF%BC%A3%EF%BC%A3%EF%BC%B0%E7%97%85%E6%AF%92%E5%85%8B%E6%98%9F%EF%BC%81%E4%B8%80%E5%88%87%E7%9A%84%E9%94%99%E5%8F%8A%E7%81%BE%E9%9A%BE%E9%83%BD%E6%98%AF%E4%B8%AD%E5%85%B1%E5%9B%BD%E5%BC%95%E8%B5%B7%E7%9A%84%EF%BC%8C%E4%B8%80%E5%AE%9A%E8%A6%81%E8%AE%A9%E4%B8%AD%E5%85%B1%E5%9B%BD%E4%BB%98%E5%87%BA%E5%B7%A8%E5%A4%A7%E4%BB%A3%E4%BB%B7%EF%BC%81%EF%BC%81-3.jpg)
+視頻鏈接： [https://twitter.com/realdonaldtrump/status/1313959702104023047?s=21](https://twitter.com/realdonaldtrump/status/1313959702104023047?s=21)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/74dMjzFpXWeLK/images/80907c83-00a7-4ed1-8737-75f1763eab9b.jpg?asset_id=c166e034-2fdd-48cd-9b8c-649ef1993c38&amp;img_etag=%226c666aab9081d74b82e81dd0939f79cb%22&amp;size=2560)](https://spark.adobe.com/page/74dMjzFpXWeLK/images/80907c83-00a7-4ed1-8737-75f1763eab9b.jpg?asset_id=c166e034-2fdd-48cd-9b8c-649ef1993c38&amp;img_etag=%226c666aab9081d74b82e81dd0939f79cb%22&amp;size=1024)
+更多資訊，歡迎訂閱[美東香草山農場官方推特賬號](https://twitter.com/Mos_Himalaya)！
 
-魔鏡魔鏡告訴我，中共到底乾了什麼？
-
-冰心說世界沒有女人，就少了十分之五的真、十分之六的善、十分之七的美。而集真善美於一身的閆麗夢，凝結成一個大寫的“愛”字。她到達美國後首次公開接受采訪就引來巨大“爭議”，而她的病毒研究的專業背景、實驗室工作經歷，恰似一面魔鏡，照出眾生。
-
-2020 年9 月14 日，石破天驚的時刻！身在美國的原香港大學博士後、曾在香港P3實驗室工作的閆麗夢博士，在BIORXIV.ORG網站發表了肆虐全球的“新冠病毒非源於自然”的報告，旋即，此網站被攻擊無法打開，當轉投到ZENODO 網站後，又被洪水般地攻擊。報告用無可辯駁的證據，首次向全世界展示了SARS-CoV-2 和ZC45/ZXC21的氨基酸對比，發現E蛋白100%相似的事實，但並未給出最終的結論。報告的下載量竟然高達50萬，這是多麼震撼！
-
-報告一出，“魔鏡”頓時掀起波濤：牆內新浪、光明網、環球網微信公眾號、觀察者網都在9月17日幾乎異口同聲避重就輕，泛泛指責閆博士說謊、虛構，卻絕口不提報告裡那些相似度高達94%~100%的五個蛋白，並且拉上非專業的香港文匯報解析，東海大學醫學部講師中川草之流來墊背。而中共引以為傲的曹務春、李放、石正麗、陳薇諸專家悉數啞火，無一人敢出來辯駁。再加上那些披著正義、良知外衣，滿嘴民主自由的海外偽類自媒體，更是為中共搖旗吶喊、妖言惑眾。
-
-然而，早在15日，閆博士剛剛註冊不到48小時的推特，被封了，她接受福克斯卡爾森採訪的視頻，被FaceBook封了。中共官媒《環球時報新媒體》三天后，即9月17日發文稱：“奇怪的是，對這篇自稱’證據確鑿’的論文，閆麗夢既沒有投稿給各大學術期刊，也沒有邀請業界同行一起廣泛討論和評審，而是簡單地發表在一個名為Zenodo 的公開資源庫上。”多麼奇妙的魔鏡，無異於讓它們道出了真相——各大學術期刊已被中共滲透、不會刊登閆博士的學術文章，真是學術界的悲哀！更可笑的是，八桿子打不著的“國家地理頻道”也出來說閆博士說的是謠言。這就有意思了。就像大馬戲團裡的小丑，嘲笑歌劇演員不會唱歌。然而，一切攻擊抹黑，都在路德社專業出身的博士們抽絲剝繭的絕妙分析下，如太陽下的雪花，瞬間癱軟化為烏有。同時，陽光下正義力量不斷集結：川普總統轉推Fox News魯道博評論閆博士論文，納瓦羅也轉推並質問為什麼要封禁閆博士，隨後邁克·福林將軍、斯伯丁將軍都提出質疑。爆料革命的億萬戰友，更是人類探尋真相的後盾！人們不約而同、異口同聲地向世界吶喊：病毒來自哪裡？誰製造的！這聲音飛過太平洋、大西洋，飛過喜馬拉雅山、飛過落基山，喚起全人類的共鳴——CCP病毒感染3000多萬人，死亡近百萬人。病毒從哪裡來的？閆博士的纖纖素手，正在撰寫第二份報告。
-
-女神！我們期待傾聽你柔弱且震撼的心跳聲……。
-
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/74dMjzFpXWeLK/) -點擊Adobe Spark版
+[Tweets by Mos\_Himalaya](https://twitter.com/Mos_Himalaya?ref_src=twsrc%5Etfw)
 
 0

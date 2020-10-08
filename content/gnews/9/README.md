@@ -1,32 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 你的戰友在前線抗議中共CCP間諜傅希秋，被警察反手銬在地上，有戰友被銬帶往警車
-`2020-10-07 13:47 vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hant/409297/)
+## 爆料革命戰友易博士研製的Regeneron抗體，成為川普總統快速戰勝新冠病毒並繼續滅共之關鍵
+`2020-10-07 22:51 GM101` [轉載自GNews](https://gnews.org/zh-hant/409790/)
 
-【持續關注】全球懲賊運動德州現場消息
+美東時間10月1號，川普總統通過社交媒體推特表示自己和夫人梅拉尼婭新冠病毒檢測呈陽性，隨後一架直升機將川普總統送到位於馬里蘭州的美國海軍醫療中心接受治療。
 
-你的戰友在前線抗議中共（CCP）間諜傅希秋-假牧師真特務，被警察反手銬在地上。
+川普總統感染新冠病毒消息公佈後，世界各國領導人都紛紛致電川普總統表示慰問和支持。然後讓世界大吃一驚的是，中共政府控制媒體第一時間對川普總統感染病毒進行有序報導，洋溢出一片喜聞樂見的氣氛。甚至有組織的在微信朋友圈詛咒川普總統整個家族感染病毒。
 
-> 你的战友在前线抗议 CCP间谍傅希秋 [@BobFu4China](https://twitter.com/BobFu4China?ref_src=twsrc%5Etfw) 被警察反手铐在地上！
-> 
-> WHY？？？！！！[#惩贼运动](https://twitter.com/hashtag/%E6%83%A9%E8%B4%BC%E8%BF%90%E5%8A%A8?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#TakeDownTheCCP](https://twitter.com/hashtag/TakeDownTheCCP?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/PhPkMITKpb](https://t.co/PhPkMITKpb)
-> — 战友之家 (@VOG2020) [October 7, 2020](https://twitter.com/VOG2020/status/1313885576324689921?ref_src=twsrc%5Etfw)
+就在中共政權得意忘形之際，川普總統于美東時間10月5號戰勝新冠病毒，並站在白宮外公開稱讚其72小時住院期間接受實驗性的Regeneron抗體雞尾酒“，和其他各種藥物”所接受的治療。川普總統表示人們稱它們為治療藥物，但是對我來說，這不只是治療性的，它能使我變得更好。隨後通過檢測，確認川普總統體內新冠病毒已全部清除，並產生抗體。
 
-我們海洋戰友並沒有做出任何違反法律事情，已經被三位警察上去把他直接銬上了。我們海洋戰友在傅希秋家門口被三位警員用手銬，抓捕，正往警車方向移動。
-
-> 2020-10-07
-> 
-> Another peaceful protestor against CCP SPY BOB Fu [@BobFu4China](https://twitter.com/BobFu4China?ref_src=twsrc%5Etfw) arrested by local officer?
-> 
-> WHY？
->  [#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [@FBI](https://twitter.com/FBI?ref_src=twsrc%5Etfw) [#TakeDownTheCCP](https://twitter.com/hashtag/TakeDownTheCCP?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/iYYkpLiEWq](https://t.co/iYYkpLiEWq)
-> — 战友之家 (@VOG2020) [October 7, 2020](https://twitter.com/VOG2020/status/1313884065171492865?ref_src=twsrc%5Etfw)
-
-關於傅希秋：
-
-> [傅希秋假牧师真特务](https://gnews.org/zh-hans/391151/)
-
-內新聞：背靠背
+Regeneron抗體成為本次治癒川普總統新冠病毒的關鍵，而參與Regeneron抗體研製的主要成員易博士也是爆料革命的戰友。其多次參加暴力革命路德社節目，對中共釋放的新冠病毒出謀劃策和發表自己的見解，對全球新冠病毒感染者提供有效治療方案貢獻了力量。而爆料革命不僅在病毒初期向全球提前預警，更是持續的對受感染人群提供幫助，已經成為全球主要的滅共力量。
 
 0

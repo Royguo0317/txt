@@ -1,13 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日政要Twitter播報(中文) 10/06期(視頻+ PDF下載)
-`2020-10-07 09:36 GM62` [轉載自GNews](https://gnews.org/zh-hant/408724/)
+## 【热点播报】不可思议，今晨总统健康报告发布显示体内已经产生SARS-COV-2IG抗体！
+`2020-10-07 14:29 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/409345/)
 
-撰稿記者：宠宝⻉(文宠)、CYC文颖、尘凡3、本來
-校對: T.J Stonewall 法语
-播⾳：⼤脚印
+作者：美东香草山农场灭共霹雳组  正道主义联盟
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07142446/%E5%9B%BE%E7%89%8725-1.png)来自推特截图
+总统染冠3天神速康复已经令人感觉不可思议！更不可思议的是，今晨总统健康报告发布，显示体内已经产生SARS-COV-2IG抗体！
 
-[每日推文10-06pdf](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07092701/10-06pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07092701/10-06pdf.pdf)
+报告说总统感觉身体棒极了！连续四天不需要辅助吸氧，血氧饱和度非常正常！
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07142524/%E5%9B%BE%E7%89%8726.png)
+川普感染ＣＣＰ病毒后，身体安危曾经牵动无数人的心！一个七十多岁的老人，患冠本来应属高危人群，大家深知病毒已经席卷全球，凶恶无比，美国已经达到700万之多的感染人群，死亡超20万！可是总统处在这么危险的边缘居然安然无恙地度过了发病期、危险期、稳定期，直达康复期！现在体内产生抗体，更证明了川普已经自然免疫CCP冠状病毒！意味着总统再也不怕被病毒再次袭击了！
+
+总统这次治疗大胆尝试了美国再生元生物医药公司鸡尾酒疗法，得到了超级好的疗效！这在医疗界，在研究开发对抗CCP病毒的医药界，真是无比令人兴奋的消息！
 
 0
