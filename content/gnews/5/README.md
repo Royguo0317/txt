@@ -1,32 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 你的戰友在前線抗議中共CCP間諜傅希秋，被警察反手銬在地上，有戰友被銬帶往警車
-`2020-10-07 13:47 vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hant/409297/)
+## 【热点播报】不可思议，今晨总统健康报告发布显示体内已经产生SARS-COV-2IG抗体！
+`2020-10-07 14:29 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/409345/)
 
-【持續關注】全球懲賊運動德州現場消息
+作者：美东香草山农场灭共霹雳组  正道主义联盟
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07142446/%E5%9B%BE%E7%89%8725-1.png)来自推特截图
+总统染冠3天神速康复已经令人感觉不可思议！更不可思议的是，今晨总统健康报告发布，显示体内已经产生SARS-COV-2IG抗体！
 
-你的戰友在前線抗議中共（CCP）間諜傅希秋-假牧師真特務，被警察反手銬在地上。
+报告说总统感觉身体棒极了！连续四天不需要辅助吸氧，血氧饱和度非常正常！
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07142524/%E5%9B%BE%E7%89%8726.png)
+川普感染ＣＣＰ病毒后，身体安危曾经牵动无数人的心！一个七十多岁的老人，患冠本来应属高危人群，大家深知病毒已经席卷全球，凶恶无比，美国已经达到700万之多的感染人群，死亡超20万！可是总统处在这么危险的边缘居然安然无恙地度过了发病期、危险期、稳定期，直达康复期！现在体内产生抗体，更证明了川普已经自然免疫CCP冠状病毒！意味着总统再也不怕被病毒再次袭击了！
 
-> 你的战友在前线抗议 CCP间谍傅希秋 [@BobFu4China](https://twitter.com/BobFu4China?ref_src=twsrc%5Etfw) 被警察反手铐在地上！
-> 
-> WHY？？？！！！[#惩贼运动](https://twitter.com/hashtag/%E6%83%A9%E8%B4%BC%E8%BF%90%E5%8A%A8?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#TakeDownTheCCP](https://twitter.com/hashtag/TakeDownTheCCP?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/PhPkMITKpb](https://t.co/PhPkMITKpb)
-> — 战友之家 (@VOG2020) [October 7, 2020](https://twitter.com/VOG2020/status/1313885576324689921?ref_src=twsrc%5Etfw)
-
-我們海洋戰友並沒有做出任何違反法律事情，已經被三位警察上去把他直接銬上了。我們海洋戰友在傅希秋家門口被三位警員用手銬，抓捕，正往警車方向移動。
-
-> 2020-10-07
-> 
-> Another peaceful protestor against CCP SPY BOB Fu [@BobFu4China](https://twitter.com/BobFu4China?ref_src=twsrc%5Etfw) arrested by local officer?
-> 
-> WHY？
->  [#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [@FBI](https://twitter.com/FBI?ref_src=twsrc%5Etfw) [#TakeDownTheCCP](https://twitter.com/hashtag/TakeDownTheCCP?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/iYYkpLiEWq](https://t.co/iYYkpLiEWq)
-> — 战友之家 (@VOG2020) [October 7, 2020](https://twitter.com/VOG2020/status/1313884065171492865?ref_src=twsrc%5Etfw)
-
-關於傅希秋：
-
-> [傅希秋假牧师真特务](https://gnews.org/zh-hans/391151/)
-
-內新聞：背靠背
+总统这次治疗大胆尝试了美国再生元生物医药公司鸡尾酒疗法，得到了超级好的疗效！这在医疗界，在研究开发对抗CCP病毒的医药界，真是无比令人兴奋的消息！
 
 0

@@ -1,15 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 9.14 路德時評：康教授解讀閆博士報告 以舟山蝙蝠的模板製作合成病毒【精華版粵語配音】
-`2020-10-07 09:07 GM42` [轉載自GNews](https://gnews.org/zh-hant/408684/)
+## 每日政要Twitter播報(中文) 10/06期(視頻+ PDF下載)
+`2020-10-07 09:36 GM62` [轉載自GNews](https://gnews.org/zh-hant/408724/)
 
-製作單位：戰友之家·粵語頻道
-製作團隊：鬼五、Andy Su、wen fei、文雀、打雜的、哥阿
+撰稿記者：宠宝⻉(文宠)、CYC文颖、尘凡3、本來
+校對: T.J Stonewall 法语
+播⾳：⼤脚印
 
-
-
-摘要：
-第三步 就是將ORF1d基因嵌入一個已知的一段序列，即後來RaTG13造假的的那個序列模板，然後在第四步中，在fragments 序列以舟山蝙蝠的模板製作合成。最後培養出活的病毒，就可以侵入人類及具更強的治病性。
+[每日推文10-06pdf](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07092701/10-06pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07092701/10-06pdf.pdf)
 
 0

@@ -1,76 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國29無人機攻擊中隊 （The 29th Drone Attack Squadron）
-`2020-10-07 10:06 GM01` [轉載自GNews](https://gnews.org/zh-hant/408856/)
+## 蓬佩奧接受NHK採訪: 敲定&quot;美日印澳&quot;印太合作及協防颱灣
+`2020-10-07 10:57 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/408933/)
 
-作者：戰友之家維基百科小組
+喜馬拉雅聯盟加拿大農場 熊媽媽
 
-第29無人機攻擊中隊前身是美國第29攻擊中隊(維基百科詞條)，隸屬於第49聯隊，於2009年10月23日正式啟用，基地於霍洛曼空軍基地，新墨西哥州，配備通用原子的MQ-9“死神”無人機，也稱“收割者”無人機[1]，是美國在中東和非洲開展了20年的反恐鬥爭的主力無人機[11]。
+校對 不動之光 發布 XM
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07104847/TACC-2.jpg)圖片來源：TACC
+10月6日，美國國務卿蓬佩奧在日本東京參加美日印澳四國第二次外長會議期間，接受了日本NHK專訪。
 
-最初成員由十二名教官（六名教員飛行員和六名教官）組成的幹部配備了部隊。該部隊取代了432d行動小組（第3航空隊）[2]，成為MQ-9的正式訓練部隊[3]。
+蓬佩奧國務卿介紹了10月5日與川普總統大約一個半小時的會議，表示川普總統一切都好，各方面工作也都進展順利。
 
+蓬佩奧表明，在美國白宮特別是川普總統本人確診感染新冠病毒的情況下，他依舊沒有取消日本的行程，可見美日印澳四國外長會議的重要性。蓬佩奧說，首先我要向菅義偉首相表示祝賀和問候，與他商談美日兩國之間重要的雙邊關係。美國人民與日本人民之間有著長期、熱情、歷史性的關係，我們希望日本能夠成功地舉辦奧運會。來訪的第二個原因是，美日印澳四國外長需要就一系列重要問題進行討論，確保印太地區保持開放、自由和法治，並確保有自由和民主價值觀的人們反對中共的威脅。
 
+蓬佩奧接著指出，在此艱難時期，日本接待了我們。這次我來得很緊急，時間就是生命。我充滿信心，四國在此次會議中將獲得重要的實際成果，這將導致一個更加繁榮的世界和一個更加繁榮的地區。世界長期以來一直處於中共的威脅之下，現在正是我們認真對待這一問題的時候了。
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07095916/image001-4.png)圖1 第29攻擊中隊徽章（1956.12.12批準）[1]
+就台灣和香港的問題，近期中美之間的緊張局勢正在加劇的問題，蓬佩奧表示，中共違反了對香港人民所作的一國兩制，50年不變的基本承諾。至於台灣的問題，這與美中無關，這是關乎自由與暴政的對立，這是關於用強權統治世界並用自己的軍事力量來欺負弱小與大家在一個基於規則的、系統中運作的、民主和自由空間的對立。這是一種挑戰，這不是美中之間的競爭，這是為了世界的靈魂，這是關於這個世界是按照自由和民主且基於規則的國際秩序體系運作，還是像中共那樣由強制性的極權主義政權為主導進行運作。如果中共侵略台灣，我們將採取一切行動。
 
-新墨西哥州霍洛曼空軍基地-首批抵達霍洛曼的MQ-9收割機於2009年10月1日進行了首次本地飛行，從而增強了遠程駕駛正規訓練部隊的能力。[2]
+就美日印澳合作，蓬佩奧強調，我們必須共同面對挑戰，而且我們要與東盟國家以及印太周邊地區的國家一道應對來自中共的挑戰。除此之外，我們還要進行經濟合作，以及為應對新冠病毒開發真正的醫療保健安全解決方案，共同對抗中共通過掩蓋病毒並將其強加給世界。當中共知道自己的問題時，他們沒有以民主和按照規則表現出坦率的態度，而是選擇了使知道真相的新聞記者和醫生消失，同時欺騙了整個世界。中共對世界造成了死亡以及巨大心理和經濟損失。
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07100043/image003-1.jpg)圖2 2009.10.1 第29無人機攻擊中隊MQ-9首飛[2]
+就中共PLA最新的海上軍事行動，蓬佩奧表示，這就是中共的欺凌弱者的表現，他們以脅迫的方式並使用軍事力量行事，而不是通過外交手段解決衝突。例如，中共在印中邊境衝突，在香港、在東海、南中國海以及在柬埔寨人民身上的行動。還有台灣，甚至包括中共國境內的人民也遭受到了中共極其惡劣對待——新疆婦女被迫絕育、內蒙古人的自由。
 
-**應用**：
+蓬佩奧強調，面對中共的行為，我們的答案就是回應。中共的行動正在使我們的其他夥伴關係變得更加牢固。美日印澳四國要有行之有效的行動，我們已經建立了對抗中共的安全網絡。
 
-MQ-9空中徘徊時間超過壹天，所需燃料和維護較少，更不會出現飛行員傷亡。具備強大的情報收集能力，並可以守護關島等遙遠的基地、防止敵人巡航導彈；提供空對空導彈炮臺[8]，以保衛油輪，運輸工具和指揮控制飛機；或為AC-130空中炮艇掃清道路，同時炮艇可搭載操作RPA的飛行員。
+在得知川普總統及家人、白宮核心成員，甚至包括美國軍方部分人員確診感染中共病毒之後，蓬佩奧國務卿與川普總統商討，確定取消了此次對蒙古和韓國的訪問行程，但依舊參加了在日本東京舉行的美日印澳四國外長會議，可見四國以及印太周邊盟國的形成對抗中共安全網絡的迫切性、重要性。如蓬佩奧先生所說，“時間就是生命”。特別是蓬佩奧在中共病毒全球肆虐的時刻，幾個月以來在全世界就反抗中共的霸權和邪惡進行遊說，使全世界具有共同價值觀的正義力量團結一致，共同對抗中共。
 
-**任務記錄**：
+蓬佩奧的行動堅定了盟友滅共的軍心。就如日本首相菅義偉在得知川普總統出院並返回白宮後，說了句意味深長的話——“可以放心了。”
 
-2011年3月時，美軍已將48架MQ-1和MQ-9部署至伊拉克與阿富汗執行任務。10月，美軍將MQ-9部署至埃塞俄比亞的阿爾巴門奇機場，開始對索馬裏的偵察活動[6]。
+參考鏈接：
 
-2012年4月，第29無人機攻擊中隊利用MQ-9拯救3名希拉河附近失蹤人員 [4]，實現非軍事任務的突破，表明有能力將MQ-9應用於正道主義任務。
-
-2017年7月26日，霍洛曼空軍基地的第49聯隊表示正從MQ-9 Block 1過渡到Block 5版本，以及從Block 15地面控制站（GCS）過渡到較新的Block 30[3]，以便於進行新的（遠程駕駛飛機[12]）RPA飛行員和傳感器操作員訓練。
-每天約10架MQ-9空降，飛行時長為6-14小時，飛行空域為白沙導彈靶場和極樂堡上方18,000至30,000英尺領空，以及霍洛曼空軍基地和坎農空軍基地之間的飛行走廊[3]。其中壹架MQ-9於5月2日基地附近墜毀。
-
-2019年9月夜間，美國對阿富汗進行空中投送補給任務，第29無人機攻擊中隊的2名控制MQ-9保護C-130，並避免使用火箭榴彈的無人機操作員受到獎勵[5]。
-
-2020年1月3日淩晨，美軍空襲巴格達國際機場，MQ-9共發射4枚導彈並擊中兩輛座車，造成伊朗第二號人物蘇萊曼尼少將和伊拉克民兵組織首腦等5人身亡[7][8][9][10]。
-
-2020年9月第29無人機攻擊中隊演練了斬首北京的軍事行動，軍人的迷彩服臂章上，“死神”無人機飛越中國地圖[13]，配有4顆綠色炸彈，數字29則代表第29無人機攻擊中隊。
-
-第29中隊指揮官戴維斯中校稱，“敏捷死神”演習3日在加利福尼亞州穆古角的海軍航空站開始，9月29日結束[11]。該演習出動3架MQ-9與海軍第三艦隊合作，第三艦隊向東太平洋部署航母打擊群、潛艇和其他海上船只，空軍C-130飛機，特種作戰和海軍陸戰隊人員。
-
-MQ-9無需使用加油機或其他後勤要求，可以飛行至少2000英裏（約3218km）。在加州海岸的聖克蘭門特島兩棲攻擊模擬演練中負責執行空中打擊任務，可在約160km外為美海軍指示打擊目標[11]。
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07100254/image005-1.jpg)圖3 2020.09.15，加利福尼亞州穆古角的海軍航空站，“敏捷死神”演習
-第9飛機維修部助理專職機長Jorge Garcia與機組人員溝通圖片[11]
-
-作為“作戰飛行計劃2409”的壹部分，第556項測試中，憑借軟件升級，MQ-9死神無人機塔架殺傷力翻倍，可以攜帶額外的導彈，可攜帶8枚AGM-114地獄火導彈[14]。
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07100358/image007.jpg)圖4 MQ-9軟件升級，塔架可攜帶8枚地獄火導彈
-
-**外部鏈接**：
-
-[1] Kane，Robert B.（2017年5月18日）. 情況介紹29攻擊中隊（ACC）. 空軍歷史研究局.
-https://www.afhra.af.mil/About-Us/Fact-Sheets/Display/Article/432967/29-attack-squadron-acc/
-[2] MQ-9 Reaper makes first local flight. Print News Today. 2009-10-08.
-https://web.archive.org/web/20120312060741/http://www.acc.af.mil/news/story\_print.asp?
-[3] U.S. Air Force Begins Training on New MQ-9 Reaper Block 5. AINonline. 2017-08-12. https://www.ainonline.com/aviation-news/defense/2017-08-12/us-air-force-begins-training-new-mq-9-reaper-block-5
-[4] The Drones Are Coming! Oops – They’re Already Overhead…TIME. 2012-04-11. https://nation.time.com/2012/04/11/the-drones-are-coming-oops-theyre-already-overhead/
-[5] MQ-9 Drone Crew Awarded Air Force Achievement Medals After RPG Attack.Military.com.2020-05-27.https://www.military.com/daily-news/2020/05/27/mq-9-drone-crew-awarded-air-force-achievement-medals-after-rpg-attack.html
-[6] Kingstone, Steve. US flies drones from Ethiopia to fight Somali militants. BBC. 28 October 2011. https://www.bbc.com/news/world-africa-15488804
-[7] Crowley, Michael; Hassan, Falih; Schmitt, Eric. U.S. Strike in Iraq Kills Qassim Suleimani, Commander of Iranian Forces. The New York Times. 2020-01-02.
-https://www.nytimes.com/2020/01/02/world/middleeast/qassem-soleimani-iraq-iran-attack.html
-[8] ‘That place is a dumpster fire’ — Inside the Air Force’s dilapidated Reaper school, which won’t be fixed anytime soon. Task&Purpose. 2020-05-08.
-https://taskandpurpose.com/news/air-force-drone-school-falling-apart
-[9] How U.S. Troops Are Preparing for the Worst in the Middle East. The New York Times. 2020-01-06.
-https://www.nytimes.com/2020/01/06/world/middleeast/troops-iran-iraq.html
-[10] Not Over Taiwan, This Is Where ‘Trump & His Cronies’ Could Trigger A Clash With China? EurAsian Times Desk. 2020-09-29.
-https://eurasiantimes.com/beijing-fears-trump-his-cronies-could-trigger-a-conflict-with-china-before-us-elections/
-[11] With an Eye on China, Reaper Drones Train for Maritime War. AIR FORCE. 2020-09-24. https://www.airforcemag.com/with-an-eye-on-china-reaper-drones-train-for-maritime-war/
-[12] As the Predator Retires, Its Inventor Remembers Its Birth. AIR FORCE. 2017-04-03. https://www.airforcemag.com/as-the-predator-retires-its-inventor-remembers-its-birth/
-[13] 美軍無人機部隊臂章驚現中國地圖，什麼意思？觀察者網. 2020-09-29. https://m.guancha.cn/military-affairs/2020\_09\_29\_566731.shtml
-[14] MQ-9 Reaper Drone Flies with Double Hellfire Missiles in New Test. Yahoo News. 2020-09-30. https://news.yahoo.com/mq-9-reaper-drone-flies-183635065.html?guccounter=1
-
-
+[https://www.state.gov/secretary-michael-r-pompeo-with-yoshio-arima-of-nhk/](https://www.state.gov/secretary-michael-r-pompeo-with-yoshio-arima-of-nhk/)
 
 0

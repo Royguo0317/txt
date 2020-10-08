@@ -1,20 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共對國際秩序的顛覆：中共指責美國針對抖音和微信的禁令違反世界貿易組織規則
-`2020-10-07 12:54 GM06` [轉載自GNews](https://gnews.org/zh-hant/409218/)
+## 你的戰友在前線抗議中共CCP間諜傅希秋，被警察反手銬在地上，有戰友被銬帶往警車
+`2020-10-07 13:47 vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hant/409297/)
 
-作者：文徬
+【持續關注】全球懲賊運動德州現場消息
 
-美國總統特朗普針對中共TikTok和Wechat出臺下載禁令，並以國家安全理由，命令 TikTok 母公司字節跳動出售其美國業務。中共日前在世界貿易組織的壹次會議上表示，這些措施“明顯不符合WTO規則，限制了跨境貿易服務，違反了多邊貿易體制的基本原則和目標”。中共正在評估依據世界貿易組織規則提起訴訟的可能性。在2018年美國開始對中國加征第壹輪關稅之際，中共在世貿組織起訴美國的征稅措施。世界貿易組織於今年9月15日裁定，美國於2018年對中國商品增加關稅的行為違反國際貿易規則。
+你的戰友在前線抗議中共（CCP）間諜傅希秋-假牧師真特務，被警察反手銬在地上。
 
-中共運用BGY手段控制國際組織已經得心應手。在聯合國目前15個專門機構和附屬機構中，糧農組織、民用航空組織、電信聯盟和工業發展組織等四個由中共代表領導，十幾個來自中共的副秘書長或副總幹事。在聯合國15個專門機構中，由其他四個安理會常任理事國擔任領導的機構都不超過壹個。
+> 你的战友在前线抗议 CCP间谍傅希秋 [@BobFu4China](https://twitter.com/BobFu4China?ref_src=twsrc%5Etfw) 被警察反手铐在地上！
+> 
+> WHY？？？！！！[#惩贼运动](https://twitter.com/hashtag/%E6%83%A9%E8%B4%BC%E8%BF%90%E5%8A%A8?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#TakeDownTheCCP](https://twitter.com/hashtag/TakeDownTheCCP?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/PhPkMITKpb](https://t.co/PhPkMITKpb)
+> — 战友之家 (@VOG2020) [October 7, 2020](https://twitter.com/VOG2020/status/1313885576324689921?ref_src=twsrc%5Etfw)
 
-近年來中共對國際秩序的顛覆觸目驚心，其厚顏無恥程度令人瞠目結舌。中共常駐聯合國代表張軍竟然在9月6日第75屆聯合國大會第三委員會上炫耀中共人權事業的成就，並糾結26國指責美國等西方國家侵犯人權。
+我們海洋戰友並沒有做出任何違反法律事情，已經被三位警察上去把他直接銬上了。我們海洋戰友在傅希秋家門口被三位警員用手銬，抓捕，正往警車方向移動。
 
-針對中共對國際秩序的顛覆，美國特朗普政府已退出聯合國人權理事會、聯合國教科文組織，近日開始退出世衛組織。
+> 2020-10-07
+> 
+> Another peaceful protestor against CCP SPY BOB Fu [@BobFu4China](https://twitter.com/BobFu4China?ref_src=twsrc%5Etfw) arrested by local officer?
+> 
+> WHY？
+>  [#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [@FBI](https://twitter.com/FBI?ref_src=twsrc%5Etfw) [#TakeDownTheCCP](https://twitter.com/hashtag/TakeDownTheCCP?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/iYYkpLiEWq](https://t.co/iYYkpLiEWq)
+> — 战友之家 (@VOG2020) [October 7, 2020](https://twitter.com/VOG2020/status/1313884065171492865?ref_src=twsrc%5Etfw)
 
-信息來源：
-https://www.reuters.com/article/us-usa-tiktok-ban-wto/china-says-u-s-tiktok-wechat-bans-break-wto-rules-idUSKBN26Q26O
+關於傅希秋：
+
+> [傅希秋假牧师真特务](https://gnews.org/zh-hans/391151/)
+
+內新聞：背靠背
 
 0
