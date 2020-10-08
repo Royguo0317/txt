@@ -1,27 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【軍事快訊】美國海軍陸戰隊副司令被中共病毒感染，五角大樓又經歷一次911式襲擊
-`2020-10-07 23:14 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/409834/)
+## 川普行政令尋求打擊中共國稀土礦產的主導地位
+`2020-10-08 02:12 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/410068/)
 
-作者：美東香草山滅共霹靂組  村北
+*新聞來源：Zero Hedge《零對沖》；作者：Tyler Durden；發佈時間： 2020年10月1日*
 
+*翻譯/簡評：X-Wing；校對/審核：海闊天空；Page：拱卒*
 
+**簡評：**
 
-美國軍事專家爆料革命戰友薄博士在路德社指出，繼昨日美國海岸警衛隊副司令被證實感染重病病毒後，美軍參加參謀長聯席會議的成員全部開始隔離後，10月7日美東時間晚上，美國海軍陸戰隊副司令檢測出中共病毒陽性，成為美軍被中共病毒感染的最高級別官員。海軍陸戰隊司令因出差在外，而稱為參謀長聯席會議中唯一未被隔離的人員。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/07230432/105-%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91%E7%BE%8E%E5%9B%BD%E6%B5%B7%E5%86%9B%E9%99%86%E6%88%98%E9%98%9F%E5%89%AF%E5%8F%B8%E4%BB%A4%E8%A2%AB%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92%E6%84%9F%E6%9F%93%EF%BC%8C%E4%BA%94%E8%A7%92%E5%A4%A7%E6%A5%BC%E5%8F%88%E7%BB%8F%E5%8E%86%E4%B8%80%E6%AC%A1911%E5%BC%8F%E8%A2%AD%E5%87%BB-2.jpg)
+中共國在稀土礦產供應方面俱全球主導地位。隨著中美貿易戰和兩國關係不斷緊張，美國意識到稀土作為戰略物資的重要性以及對美國國家安全、外交和經濟的危險，川普簽署行政令，突顯了美國對中共國稀土過分依賴的危險，宣布美國礦物產業進入國家緊急狀態。
 
+在地緣政治發生巨變的今天，川普政府的這一行政令具有指向性意義。美國清醒得慢，但還不是太晚。
 
-路德時評解釋，四星上將上將是美軍中星級最高的將軍了，他們的安保等級很高，居然也被中共病毒攻陷，而且海軍陸戰隊是亞太地區安全的重要力量，此次被襲可見中共邪惡的滲透能力。推特上評論，“這基本上表明五角大樓早到了另一襲擊，這次用的是生物武器而非911時的飛機”，“美國的執行機構和軍方都被感染了，似乎現在是敵人攻擊我們的最佳時機”。
+## **川普行政令尋求打擊中共國稀土礦產的主導地位**
 
-路德表示，這次美國有決策權的高層被全面攻陷，是他們深刻體會到安保，口罩，隔離是防不住中共病毒的，唯一能防得住的辦法就是滅掉中共！
+[!\[\]()!\[\](https://spark.adobe.com/page/FABGFTsZfXmVx/images/23e8505f-2904-4cc1-b38c-0e1fbdae4bc1.jpg?asset_id=dd123572-5882-431f-b23e-cb2a81c7231c&amp;img_etag=%224cadd703abd7f774ad9399dd529bfde0%22&amp;size=1024)](https://spark.adobe.com/page/FABGFTsZfXmVx/images/23e8505f-2904-4cc1-b38c-0e1fbdae4bc1.jpg?asset_id=dd123572-5882-431f-b23e-cb2a81c7231c&amp;img_etag=%224cadd703abd7f774ad9399dd529bfde0%22&amp;size=1024)圖片來自Shutterstocck
 
-路德時評鏈接： [https://youtu.be/ux2EZGaksoc](https://youtu.be/ux2EZGaksoc)
+川普總統週三簽署了一項行政命令，宣布美國礦物產業處於“國家緊急狀態”，突顯了美國過分依賴中共國稀土的危險。
 
+幾十年來，中共國已被公認為在稀土礦產市場上占主導地位，其中包括一些稀缺的礦物質（通常鑑定為17種），通常用於製造從平板顯示器到武器甚至是先進電子產品的任何物品。例如，最受追捧的一種- 釤鈷被用於精密製導導彈和戰鬥機以及先進的通信系統。
 
+該行政令說：“我們國家過分依賴外國對手加工過的或未加工過的關鍵礦物質，這些材料主要來源於美國以外，對於美國國家安全、外交政策和美國經濟構成了不尋常且非常大的威脅。我謹在此宣布全國緊急狀態以應對這一威脅。”
 
-更多資訊，歡迎訂閱[美東香草山農場官方推特賬號](https://twitter.com/Mos_Himalaya)！
+在核監管委員會和國際原子能機構採取行動嚴格限制與環境相關的稀土礦開采之後，中共國於1980年代開始鞏固其全球主導地位。
 
-[Tweets by Mos\_Himalaya](https://twitter.com/Mos_Himalaya?ref_src=twsrc%5Etfw)
+[!\[\]()!\[\](https://spark.adobe.com/page/FABGFTsZfXmVx/images/fbf57b6c-76e9-459a-8079-ec7129e67b14.jpg?asset_id=1706ef90-db5e-4c33-84e3-c00e64a1a41a&amp;img_etag=%228c22cadbf4ec0cf7b70502fb17efd0e3%22&amp;size=2560)](https://spark.adobe.com/page/FABGFTsZfXmVx/images/fbf57b6c-76e9-459a-8079-ec7129e67b14.jpg?asset_id=1706ef90-db5e-4c33-84e3-c00e64a1a41a&amp;img_etag=%228c22cadbf4ec0cf7b70502fb17efd0e3%22&amp;size=1024)
+
+之所以將這些材料視為“稀有”，恰恰是因為它們沒有已知的替代品，並且鑑於它們一直是工業化人口中佔優勢的特定技術的關鍵。
+
+該行政令的文本特別指控北京有意利用其在市場上的地位，特別是針對“對美國的經濟和國家安全至關重要的” 35種礦物：
+
+我們對多種關鍵礦物依賴於一個國家（中華人民共和國）感到擔憂。美國現在直接從中共國進口80％的稀土材料，其餘部分則通過其他國家間接地從中共國進口。在1980年代，美國生產的這些元素比世界上任何其他國家都多，但是中共國利用激進的經濟做法戰略性地湧入全球稀土材料市場，並取代了競爭對手。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/FABGFTsZfXmVx/images/b5e875be-0114-4e9b-9064-e6be10b5fd51.jpg?asset_id=f5ec5520-c127-4225-b085-3d18179c5fd7&amp;img_etag=%226111975ea18f978c4da9d787310849bf%22&amp;size=1024)](https://spark.adobe.com/page/FABGFTsZfXmVx/images/b5e875be-0114-4e9b-9064-e6be10b5fd51.jpg?asset_id=f5ec5520-c127-4225-b085-3d18179c5fd7&amp;img_etag=%226111975ea18f978c4da9d787310849bf%22&amp;size=1024)稀土材料資料圖片
+
+正如路透社強調的那樣，“儘管美國曾經是主要的礦產生產國，但中共國卻利用其在礦產方面的優勢在兩個大國的貿易爭端中佔了優勢。”
+
+毫無疑問，在川普持續的貿易爭端以及與香港問題和其他地緣政治壓力相關的對中共國內地的選擇性制裁中，稀土仍然是美國關鍵的脆弱一環，從而削弱華盛頓的談判砝碼。
+
+在川普簽署命令之後，五角大樓高級採購官員埃倫·洛德（Ellen Lord）在參議院聽證會上說：“我們正著手增加稀土礦物質國防庫存。我認為，COVID疫情帶來的一線希望是，大多數美國人現在已經明白擁有國內稀土供應商的重要性。”
+
+“我們當然可以，特別是在昨天剛剛出台的[行政命令]的支持下，進行跨機構合作，因為已經有很多工作在進行，以擴大國防儲備，包括更多的稀土。”她在周四的講話中說。
+
+[原文鏈接](https://www.zerohedge.com/economics/trump-executive-order-warns-us-overreliance-china-vital-rare-earth-minerals)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/FABGFTsZfXmVx/) -點擊spak adobe版
 
 0
