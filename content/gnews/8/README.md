@@ -1,75 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年10月1日-10月7日新聞大記事
-`2020-10-08 04:46 JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hant/410318/)
+## 德國從秘密封殺中國影響力的報告到劃定對中政策紅線
+`2020-10-08 05:33 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/410398/)
 
-【日本喜馬拉雅聯盟】素材蒐集：日喜聯盟素材蒐集組 整理：天賦的自由 校對：ccp擀麵杖子
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08052426/1-39.jpg)圖片摘自谷歌
+據Axious獲悉，時間回到2018年，由於擔心會影響與中國的商業關係，一位高級德國政府官員不得不壓制了一份關於中國在德國的影響力日益增長的敏感話題的報告。
 
-1、【2020年9月30日Gnews】郭文貴先生新曲“親愛的媽媽,我正在終結CCP” 再創全球音樂史奇蹟。 [https://gnews.org/zh-hans/392774/](https://gnews.org/zh-hans/392774/)
+為什麼？因為長期以來德國始終把對經濟的影響放在對人權及國家安全的考量之上。
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08041926/1-39.png)圖片來源：Gnews
+據兩位前美國情報官員稱，這份2018年完成的機密文件報告了中共是如何試圖從政府部門，經濟和社會全方位影響德國的。報告對中德兩國政府之間的緊密聯繫亮起警燈。但是報告只送到德國總理安杰拉默克爾（Angela Markel）及其他幾位高官那裡，他們閱讀後就壓制了，並沒有被廣泛傳播。
 
-2、【2020年10月1日朱利安尼推特】美國歷史性的政治醜聞。朱利安尼·魯迪發推—拜登家族屬於中共。美國人必須了解。 [https://twitter.com/rudygiuliani/status/1311463779914387457?s=21](https://twitter.com/rudygiuliani/status/1311463779914387457?s=21)
+至於為什麼壓制這份報告，一位德國政府發言人告訴Axios, 遵循原則，德國政府不會對任何情報來源或者情報內容給予評價。
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08042230/2-27.png)圖片來源：朱利安尼推特
+從大的方面來看，德國對中共國的政策一直以經濟方面的考量為主，德國經濟高度依賴出口，因此企業大亨們對德國政府的影響力很大。
 
-3、【2020年10月2日雅虎新聞】トランプ米大統領とメラニア夫人が新型コロナに感染したと明らかにした。直ちに隔離措置に入る。 11月3日の大統領選が1カ月後に迫る中、選挙集會出席が制限され、再選への打撃となるのは必至。
+中共政府最喜歡把政治因素和經濟利益捆綁，任何批評中共政府人權問題、說華為5G有安全漏洞、表達支持台灣的行為都將面臨經濟報復。因此，德國企業與官員會常常避免提及中共的侵權行為，也會淡化對國家安全的影響。
 
-【中文】已確認川普總統和夫人梅拉妮感染冠狀病毒。並立即開始實行隔離措施。距11月3日總統選舉還有一個月，選舉集會受到限制，就會對選舉造成打擊。 [https://news.yahoo.co.jp/pickup/6372629](https://news.yahoo.co.jp/pickup/6372629)
+眾所周知，德國的大眾汽車在新疆烏魯木齊有工廠。而當中共在新疆“再教育營”關押上百萬名維吾爾人而遭到國際社會廣泛批評時，大眾汽車執行長赫伯特·迪斯(Herbert Diess)在2019年4月被問及此事時卻表示自己不知道“再教育營”的存在。
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08042710/3-21.png)圖片來源：共同通訊
+德國政界也因顧慮到中德貿易關係不願嚴厲批評中共。例如2020年7月，中共在香港實施國安法遭到各國批評，但德國的批評力道卻較小，遭到外界質疑。德國經濟部長阿特邁爾(Peter Altmaier)當月表態，捍衛中共政府的做法，稱不嚴厲批評只是為了避免與北京作對可能造成的經濟後果。
 
-4、【2020年10月2日Gnews】墨博士：日本筑波大學掛谷英紀副教授支持“新冠病毒來源實驗室”觀點贊同。 [https://gnews.org/zh-hans/397345/](https://gnews.org/zh-hans/397345/)
+經濟研究機構(Rhodium Group)專門研究中歐關係的研究員巴爾金(Noah Barkin)告訴Axios，默克爾的做法一向是私下而非公開批評中共。然而最近，隨著世界各國放大檢視中共經濟政策與侵害人權的行為，連德國的氛圍也開始轉變。默克爾姑息中國的做法遭到抨擊，這會讓那些對中共國立場更強硬的候選人在2021年的德國議會選舉中佔據上風。他說: “德國開始認知到他們需要劃定紅線，需要更加強硬地對中共施壓，也需要強調人權的重要性。”
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08042809/4-15.png)圖片來源：於掛谷副教授油管上發布的視頻截圖
+由於德國在歐盟種扮演的重要角色，一旦德國改變對中共的態度，歐盟的態度也很可能跟著轉變。今年9月，歐盟委員會主席馮德萊恩(Ursula von der Leyen)宣布，她會參考美國的馬格尼茨基人權問責法，推動歐盟版本的馬格尼茨基人權法案。
 
-5、【2020年10月3日NHK新聞推特】アメリカのトランプ大統領は、新型コロナウイルスの検査で陽性と判明したことを受け、首都ワシントン近郊の軍の病院に移りました。
+評論：日前被起底的前德國副總理越裔菲利普勒斯勒爾（Philipp Rösler）曾經在2017底在海航任職，他是否在中共基因建築藝術圖譜上？同時，他與默克爾親密的私人關係也被坊間津津樂道，他是否是除了經濟因素之外，影響德國對中共國政治政策的另一隻力量我們不得而知。毋庸置疑，被藍金黃的德國政客也是絞殺這份報告的元兇。
 
-【中文】美國川普總統冠狀病毒檢測為陽性，轉入華盛頓郊區的軍醫院住院治療。 [https://twitter.com/nhk\_news/status/1312157167819001856?s=21](https://twitter.com/nhk_news/status/1312157167819001856?s=21)
+[原文鏈接](https://www.axios.com/exclusive-top-german-official-hushed-up-report-on-chinas-influence-8c6aeef3-0f71-405f-a902-a215399f2068.html)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08043116/5-12.png)圖片來源：NHKニュース
-
-6、【2020年10月3日Gnews】中共已經抓捕了閆麗夢博士的母親，這是對閆麗夢博士即將發表的第二篇有關病毒真相論文的威脅，留下您的寄語不要讓這位偉大的中國女性感到孤獨。 [https://gnews.org/zh-hans/403370/](https://gnews.org/zh-hans/403370/)
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08043241/7-4.png)圖片來源：Gnews
-
-7、【2020年10月5日Gnews】隨著川普總統夫婦及共和黨議員集體感染後，沼澤最後排幹開始，福奇漠視硫酸羥氯喹對中共病毒的安全有效性，不能及時開放臨床用藥，導致大量人員感染死亡。福奇受到起訴。
-
-[https://gnews.org/zh-hans/403777/](https://gnews.org/zh-hans/403777/)
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08043355/8-5.png)
-
-8、【2020年10月5日Gnews推特】力挺羥氯喹的紐約良心醫生澤連科（Dr. Zelenko）的推特賬戶被鎖。澤連科醫生分別在4月24日及8月27日在班農戰斗室節目中力挺羥氯喹治療中共病毒，並為人們提供了詳細的用羥氯喹治療中共病毒的方案，在民間得到廣泛傳閱。 [https://twitter.com/canadahimalaya/status/1313150161510494225?s=21](https://twitter.com/canadahimalaya/status/1313150161510494225?s=21)
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08043450/9-1.png)圖片來源：Gnews
-
-9、【2020年10月5日Share New Japan】政府、留學生ビザの審査厳格化へ中國念頭、安保技術を流出防止。
-
-【中文】日本政府為了防止安保技術等流出，對中國留學生簽證嚴格審核。 [https://twitter.com/sharenewsjapan1/status/1312958194344493056?s=21](https://twitter.com/sharenewsjapan1/status/1312958194344493056?s=21)
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08043630/10-3.png)圖片來源： Share New Japan
-
-10、【2020年10月6日戰友之家推特】10.1新中國聯邦舉行了全球遊行。兩大訴求：揭露病毒真相；在中國實行法治。 [https://twitter.com/vog2020/status/1313440981778411520?s=21](https://twitter.com/vog2020/status/1313440981778411520?s=21)
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08043802/11-3.png)圖片來源：日本喜馬拉雅聯盟
-
-11、【2020年10月6日首相官邸推特】美國彭培奧和日本、澳洲、印度會晤。為實現太平洋自由開放達成共識。 [https://twitter.com/kantei/status/1313389840231145475?s=21](https://twitter.com/kantei/status/1313389840231145475?s=21)
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08043934/12-2.png)圖片來源：首相官邸
-
-12、【2020年10月6日Gnews】美國總統川普宣布確診新冠肺炎後，白宮發言人凱萊·麥肯內尼（Kayleigh McEnany）5日也在自己推特上發表聲明，證實自己確診新冠肺炎，她也表示自己目前沒有任何症狀產生，將開始自主隔離。 [https://gnews.org/zh-hans/404605/](https://gnews.org/zh-hans/404605/)
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08044219/13-1.png)圖片來源：Gnews
-
-13、【2020年10月6日雅虎新聞】新型コロナウイルスに感染し、入院していたトランプ米大統領が5日、退院した。 【中文】感染冠狀病毒入院的美國川普總統於5日出院。 [https://news.yahoo.co.jp/articles/ecc3b235a3d4b0bf568c590430a2c2779349a3d7](https://news.yahoo.co.jp/articles/ecc3b235a3d4b0bf568c590430a2c2779349a3d7)
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08044331/15-1.png)圖片來源：朝日新聞
-
-14、【2020年10月6日Gnews】國民黨立法院黨團提出「政府應請求美國協助抵抗中共」及「台美復交」兩個決議案，在未有其他政黨提出異議情況下通過。 [https://gnews.org/zh-hans/406720/](https://gnews.org/zh-hans/406720/)
-
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08044441/16-1.png)圖片來源：Gnews
-
-
+翻譯：Jenny
 
 0
