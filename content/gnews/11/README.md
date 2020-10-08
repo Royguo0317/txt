@@ -1,22 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 閆麗夢博士發表第二篇中共病毒學術報告&#8212;指出中共病毒為超限生物武器
-`2020-10-08 12:42 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/411545/)
+## 【热点播报】一图读懂ＣＣＰ“超限生物武器”！ 闫丽梦博士：这是我对SARS-CoV-2本质做的重新定义！
+`2020-10-08 15:02 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/411745/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08123436/yan-1.jpg)圖片來源：Gnews
-閆麗夢博士於美國東部時間10月8日上午公開發表了長達33頁的題為《SARS-CoV-2是一種超限生物武器-事實真相隱藏在大規模有組織科學造假的背後》（SARS -CoV-2 Is an Unrestricted Bioweapon: A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud）的學術報告，直言中共病毒是超限生物武器。
+作者：美东香草山农场灭共霹雳组  正道主义联盟
 
-文章論證了RATG13、RmYN02等中共所謂的蝙蝠冠狀病毒貌似與SARS-COV-2病毒（即中共病毒）具有較高的基因序列同源性，但實則是掩人耳目的騙局。作者通過深入分析數據和文獻，證明了這些所謂的新型動物冠狀病毒不存在於自然界中，它們的基因序列是捏造的。文章還批駁了莫江礦工感染的冠狀病毒的假相。這些捏造出的病毒假相使自然來源理論毫無根據，還加強了第一篇學術報告的斷言，即中共病毒是實驗室的產物。
+10月8日美东时间上午闫博士第二篇关于新冠病毒真相的报告发布，报告上线不到一小时，所在网站Zenodo已接近瘫痪。闫博士随后发推注释：报告中所称“Unrestricted Bioweapon“， 是基于中国军事医学科学院的生物武器定义，由我对SARS-CoV-2本质做的重新定义：“超限生物武器”！（路德在节目中对此做了解读）
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08145116/%E5%9B%BE%E7%89%8737.png)闫丽梦博士推特截图
+由于发布论文的网站迅速被黑瘫，大部分网友无法直接打开阅读，有爆料革命战友迅速做出图解，让你一图读懂超限生物武器的真面目：
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08145244/%E5%9B%BE%E7%89%8738.png)
+以上五点诠述了超限生物战的特征。由此可见，这种战争在人类历史上绝对史无前例！对世界有着巨大的破坏力及伤害，造成无辜民众无差异大量被病毒感染，数以百万计的生命死亡！人类对病毒的无知还伴随着生命每分每秒被病毒感染的恐惧！CCP病毒自爆发以来，对世界文明社会已经造成无法估量的损失！强烈呼吁西方文明社会应该立即警醒，迅速查明CCP投毒真相！！回想闫博士曾经在媒体采访中说：“留给人类的时间不多了！”这句话至今让我每每想起都不寒而栗！
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08145813/%E5%9B%BE%E7%89%8739.png)
+CCP的邪恶绝对超出人类认知！！套用网友的留言结尾：CCP它们不是人，是魔鬼，为了自己的千秋万代，可以毁灭全人类！ The CCP are evils, they would destroy the whole world for the benefits of their bastards!
 
-報告認為這場科學欺詐的規模和協調性標誌著學術研究和公共衛生領域的腐敗程度。由於這種腐敗，科學界的聲譽和全球社會的福祉都受到了損害。中共病毒符合解放軍規定的生物武器標準，但其影響遠遠超出了典型生物武器的設想。有記錄顯示，這種武器化病原體的釋放應該是有意而非偶然的。因此，報告將中共病毒定義為一種超限生物武器，目前的大流行實則是超限生物戰的結果。
+路德时评链接：[https://youtu.be/ux2EZGaksoc](https://youtu.be/ux2EZGaksoc)
 
-報告最後提出國際社會應採取實際行動：應對涉嫌的政府和個人進行調查，要求中共交出病毒原始數據，交代所有隱藏的病毒真相。國際社會應調查捏造假相、實施科學欺詐的學術腐敗行為，並追究對人類野蠻進行生物攻擊的罪責，同時也要追究世界衛生組織、相關期刊、資助機構等組織的責任。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/Mos_Himalaya)！
 
-Toohigh：【㊙️翻Gnews原創組】
-
-校對：心聲
-
-（本文只代表作者個人觀點）
+[Tweets by Mos\_Himalaya](https://twitter.com/Mos_Himalaya?ref_src=twsrc%5Etfw)
 
 0

@@ -1,21 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 閆麗夢發布第二份中共病毒報告，直指中共病毒為不受控制的“生物武器”
-`2020-10-08 10:55 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/411334/)
+## 閆博士第二份重磅病毒報告——肆虐全球的SARS-CoV-2（新冠病毒）是中共軍方研製並故意釋放的超限生化武器
+`2020-10-08 12:25 GM101` [轉載自GNews](https://gnews.org/zh-hant/411515/)
 
-喜馬拉雅聯盟加拿大農場 大地鯤鵬
+美東時間10月8號上午，閆麗夢博士團隊第二份重磅病毒報告通過社交媒體zenodo向外界公開，此前閆博士發表的第一份病毒報告引發了中共當局的恐慌，隨後中共政府無理由抓捕了閆博士的母親，試圖以此要脅閆博士，達到阻止第二份病毒報告發表的目的。在第二份病毒報告發表後，相關網站遭到駭客攻擊，較長時間內無法打開並下載該報告文件。
 
-校對上傳 XM
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103019/%E5%9B%BE%E7%89%871-4.png)
-美東時間10月8日，英雄科學家閆麗夢博士通過其重新註冊的twitter賬號@DrLiMengYan1發布了放置於Zenodo網站的第二份中共病毒報告《SARS-CoV-2 Is an Unrestricted Bioweapon：A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud 》，此前發布的第一份報告通過揭露SARS-CoV-2病毒在基因組的異常表現，引發世界民眾對新冠病毒來源於中共軍方試驗室“增強型功能實驗”的討論，此篇報告更加深入的分析數據和資料，證明SARS-CoV-2就是中共軍方製造的“生物武器”，並由中共政府故意釋放到人類社會，世界都應該追究中共的責任。
+第二份報告明確了肆虐全球的SARS-CoV-2（新冠病毒，又名非典2.0或中共病毒），是中共軍方實驗室研製並故意釋放的超限生化武器。該報告指出中國國家和軍隊生物恐怖主義應急顧問組的重要成員，兼聯合國特別委員會（UNSCOM）成員楊瑞福博士于2005年明確了病原體被認定為生化武器的標準，標準如下：
 
-如第一份報告一樣，此報告的真實性使中共圈養的科學家無法辯駁。目前所曝光的情報顯示，多年來中共利用“藍金黃”的力量滲透美國為首的西方世界，用媒體的謊言為其“畫皮”掩飾罪行，併計劃使用秘密研製的“生物武器”擊垮西方經濟並取而代之。此報告揭示了中共欲打造“世界命運共同體”中最關鍵和慘無人道的真實情況，並將中共永遠的釘子歷史的恥辱柱上。
+1. 它的毒性顯著，可造成大面積的傷亡；
+2. 它具有很強的傳染性，而且很容易傳播，通常以氣溶膠的形式通過呼吸道傳播。最危險的情況是，它允許人與人之間的傳播；
+3. 它對環境變化有較強的抵抗力，可以維持運輸，並能支援定向釋放;
 
-第一份報告發出時，Zenodo網站曾遭受中共黑客的攻擊，並且閆博士此前的twitter賬號亦被無故封號，引發民眾對社交媒體公正性的關注。目前Zenodo網站已遭到黑客攻擊，民眾關注此次社交媒體的反應。
 
-閆麗夢博士是中國偉大女性的代表，她拯救了全世界，她是全世界的英雄，她一直在默默的付出。
+該報告認為SARS-CoV-2奪走了數十萬人的生命，導致無數人住院治療，並使許多人留下後遺症和各種併發症；SARS-CoV-2很容易通過接觸、飛沫、氣溶膠等呼吸道途徑傳播，並能在人與人之間傳播，它對溫度不敏感且在高溫低溫狀態下仍能長期生存，SARS-CoV-2不僅達到而且超過了傳統生化武器的標準，因此它應被定義為不受限制的生化武器。
 
-論文英文版地址[http://zenodo.org/record/4073131](http://zenodo.org/record/4073131)
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103100/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_01.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103116/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_02.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103133/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_03-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103147/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_04.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103202/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_05.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103321/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_06.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103337/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_07.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103354/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_08.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103410/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_09-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103437/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_10.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103423/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_11.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104047/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_12.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103449/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_13.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104104/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_14-1.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104117/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_15.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104641/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_16-2.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103504/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_17.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104658/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_18-1.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104712/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_19-1.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103611/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_20.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104339/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_21-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103625/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_22.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103639/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_23-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104402/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_24-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103653/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_25.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104017/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_26.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103704/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_27.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103717/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_28.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103731/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_29.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103744/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_30.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103757/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_31.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104726/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_32-1.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104431/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_33-1.jpg)
+該報告重申SARS-CoV-2版本與ZC45和ZXC21 在E蛋白上有100%的一致性，ZC45和ZXC21是由第三軍醫大學（中國重慶）和南京軍區軍事醫學研究所（中國南京）的軍事實驗室發現（2015年7月至2017年2月）、分離和鑒定的蝙蝠冠狀病毒。該資料和相關工作已於2018年發表。證明SARS-CoV-2關鍵的骨架或範本存在於中共控制的相關病毒實驗室中。
+
+而對病毒的S蛋白其中的受體結合基序（RBM）修改後，病毒獲得了與血管緊張素轉換酶II（hACE2）結合並具備感染人類的能力。在此基礎上，增加弗林酶切位點插入到S蛋白的S1至S2結合處，這有助於提高病毒的毒性和致病性。改造後的SARS- CoV-2成為一種高傳播、發病隱匿、致死性強、後遺症不明確的大規模破壞性病原體。
+
+該報告同時揭露了RaTG13蝙蝠冠狀病毒、一系列穿山甲冠狀病毒、以及RmYN02蝙蝠冠狀病毒都與SARS-CoV-2有超過90%的序列同一性。證明這些新的動物冠狀病毒不存在於自然界，其基因組序列是人工製造的結果。該報告指出中共政府組織了大規模的科學欺詐試圖隱藏病毒真相，包括WHO在內的國際、國家相關機構組織及科學家配合了中共的欺詐行為。
+
+該報告明確了中共實驗室已研製出多種類似病毒，強調當前最重要的是追究中共政府投放病毒的行為，並調查其控制的相關病毒實驗室瞭解更多病毒真相。
+
+報告原連結：https://zenodo.org/record/4073131#.X384GMIzYdV
+
+感謝文鳳梨戰友素材整理
+
 0

@@ -1,22 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 10/9財經快訊:台灣正引領亞洲新興市場, 川普新政美股大漲,中共錢砸美國大選
-`2020-10-08 10:19 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/411088/)
+## 川普總統將簽署修改230條款的緊急行政命令
+`2020-10-08 11:45 GM77` [轉載自GNews](https://gnews.org/zh-hant/411445/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08100858/Picture7-1.png)圖片來源： [https://g.foolcdn.com/](https://g.foolcdn.com/editorial/images/517828/silhouettes-of-a-bull-and-bear-on-top-of-a-stock-market-chart.jpg)
-[1,美國股市週三大幅上漲，因美國川普總統在推特上支持對航空公司的援助和其他刺激措施。道瓊斯工業平均指數收盤上漲530.70點，至28303.46點，漲幅1.9%。這是道瓊斯指數自7月中旬以來的最大單日漲幅。標準普爾500指數上漲1.7%，至3419.45點，納斯達克綜合指數上漲1.9%，至11364.60點。](https://www.cnbc.com/2020/10/06/stock-market-futures-open-to-close-news.html)
+整撰:文錦；複核:文非
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08114038/%E6%88%AA%E5%B1%8F2020-10-08-%E4%B8%8B%E5%8D%8811.39.31-1.png)
+美國總統競選已來到了最後衝刺階段。 朱利安尼先生繼昨天強調中共病毒后,今天又指向THE FAKE NEWS MEDIA IS THE REAL OPPOSITION PARTY(假媒體是真正的反對黨),川普總統即刻與朱利安尼互動。
 
-[2，亞洲：一個新的市場正在興起，台灣元領漲，多數亞洲貨幣走高。](https://www.reuters.com/article/emerging-markets-asia/emerging-markets-taiwan-dollar-leads-gains-as-most-asian-currencies-inch-up-idUSL4N2GZ0HL)
+臨近11月3日競選投票日,社交平台已成為戰場。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08113455/%E6%88%AA%E5%B1%8F2020-10-08-%E4%B8%8B%E5%8D%8811.29.48-1.png)
+《路德社》最新(日期:8日)透露,**川普總統極有可能徵對****230****法案簽署一個緊急行政命令**,來遏制美國大的科技公司及其背後中共的控制下,利用手中的權力在社交媒體平臺上影響總統競選結果。
 
-[3,美國監管機構週三表示，花旗集團（CitigroupInc.CN）已同意支付4億美元的罰款，並製定一項全面計劃，以修復多年來導致多起違規和處罰的持續風險管理和運營問題。](https://www.reuters.com/article/us-usa-citigroup-enforcement/citigroup-pays-400-million-u-s-fine-agrees-to-fix-long-term-lapses-idUSKBN26S3DN)
+**什麼是****230****法案****?**
 
-[4,洛杉磯的一家中國公司-索卡爾子公司（SoCal Subsidiary）同意支付100多萬美元已同意支付105萬美元，以解決對該公司與洛杉磯市公職人員之間的刑事調查，包括賄賂、誠實服務欺詐以及為洛杉磯政治人物競選捐款。](https://www.justice.gov/usao-cdca/pr/chinese-company-s-socal-subsidiary-agrees-pay-more-1-million-resolve-criminal)
+1996年美國為規範剛剛起步的互聯網行業制定了《通訊規範法》(Communication Decency Act),該法案的第230條規定,「**任何互動式電腦服務的供應商或者使用者不應被視為另一資訊內容提供者提供的任何資訊的發佈者和發言人**。 「總結來說,  230條款其實包括兩層意思:**網路公司無須為平臺上的第三方資訊負責****,****互聯網公司無須為他們善意刪除平臺內容的行為負責**。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08113542/%E6%88%AA%E5%B1%8F2020-10-08-%E4%B8%8B%E5%8D%8811.32.09-2.png)《通訊規範法》之230條款內容
+事實上該法案行使至今24年,我們從爆料革命以來就能感受到美國科技公司已被中共深度的滲透。 推特上香港反送中遊行和抗議民眾被黑警鎮壓真相的資訊遭到限制,海外偽民運分子和中共大外宣卻把推特當成自己的舞臺大肆傳播虛假資訊。  **2020****年****6****月斯坦福大學就曾發表一篇研究報告顯示****,****有兩萬三千多個大多在****2019****年底建立的高度活躍帳號****(****俗稱水軍****),****近八成的水軍用中文發佈違背事實有關香港、郭文貴、新冠疫情及台灣的資訊。** **推特心懷鬼胎地迅速清理****17****萬個帳戶**。
 
-[5,中國政府日益將貿易與政治融合在一起，威脅要對批評中國人權紀錄、拒絕華為等中共企業進入中國市場或表達對台支持的公司和政府採取懲罰性經濟措施。隨著全球對中經共濟行為和侵犯人權行為的審視日益加強，德國和歐洲各地的情況開始發生變化。](https://www.axios.com/exclusive-top-german-official-hushed-up-report-on-chinas-influence-8c6aeef3-0f71-405f-a902-a215399f2068.html?utm_campaign=organic&amp;utm_medium=socialshare&amp;utm_source=twitter)
+就連川普總統也深受其害,Twitter多次在他的推文打上了”需要事實核查”以及”頌揚暴力內容”的標籤。 其實美國司法部6月份就呼籲美國國會修改230條款,限制對互聯網公司的免責保護。 多名共和黨參議員也提出了新議案《限制第230免責條款法案》。
 
-[6，美國內政部將使用美國製造的無人機，這將有利於美國人安全並且幫助美國製造業回歸。今年早些時候，美國內政部無人機機隊因擔心中國製造的無人機平台而墜毀，當時美國國防部除了緊急反應外，沒有飛行。](https://dronelife.com/2020/10/07/u-s-department-of-the-interior-to-use-u-s-manufactured-drones/amp/?__twitter_impression=true)
+9月份,閆麗夢博士揭露病毒來源真相的資訊在推特和FACEBOOK被封事件,讓美國有良知的議員們更加深刻地意識到事態的嚴重性。 美東時間9月14日,閆博士在新註冊的推特上發表病毒來源真相的第一份報告,48小時不到即被封號;隨後美東時間9月15日,  FOX新聞主持人Tucker採訪閆博士,閆博士指出病毒是中共在實驗室製造的,她隨後會發表第二份詳細的報告。  Tucker將閆博士的採訪視頻發佈在FACEBOOK上也很快被指出是「不實資訊」遭到禁止。
 
-By 【秘翻組- 金融法律團隊】
+2020年的10月註定不同尋常,**親身經歷了中共病毒后重返白宮的川普總統****,****已完全認清美國的總統競選絕不僅僅是自己和對手拜登之間的公平較量****,****而是在美國媒體、政界等背後有中共深度參與的一場生與死的決鬥**。
+
+時間非常緊迫,臨近總統投票日僅有20幾天,如何確保在這期間有美國選民能獲得客觀公正的資訊,投出真正代表個人意願的選票, 等不及形成法律,川普總統有可能會主動出擊對230條款簽署緊急行政命令,才能有希望贏得社交媒體的戰場並贏得選票,增加擊敗對手拜登的可能性,才能有機會與爆料革命TAKEDOWN  CCP的目標匯合在一起,全世界人民才能擁有真正的安全。
+
+(以上僅為個人觀點)
 
 0
