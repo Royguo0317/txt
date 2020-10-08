@@ -1,21 +1,175 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 閆麗夢發布第二份中共病毒報告，直指中共病毒為不受控制的“生物武器”
-`2020-10-08 10:55 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/411334/)
+## 正义是唯一的选择
+`2020-10-08 13:02 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/411592/)
 
-喜馬拉雅聯盟加拿大農場 大地鯤鵬
+作者：美东香草山农场写作组   木白
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08125526/%E5%9B%BE%E7%89%8733.png)
+水之于鱼虾
 
-校對上傳 XM
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103019/%E5%9B%BE%E7%89%871-4.png)
-美東時間10月8日，英雄科學家閆麗夢博士通過其重新註冊的twitter賬號@DrLiMengYan1發布了放置於Zenodo網站的第二份中共病毒報告《SARS-CoV-2 Is an Unrestricted Bioweapon：A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud 》，此前發布的第一份報告通過揭露SARS-CoV-2病毒在基因組的異常表現，引發世界民眾對新冠病毒來源於中共軍方試驗室“增強型功能實驗”的討論，此篇報告更加深入的分析數據和資料，證明SARS-CoV-2就是中共軍方製造的“生物武器”，並由中共政府故意釋放到人類社會，世界都應該追究中共的責任。
+天空之于鸟群
 
-如第一份報告一樣，此報告的真實性使中共圈養的科學家無法辯駁。目前所曝光的情報顯示，多年來中共利用“藍金黃”的力量滲透美國為首的西方世界，用媒體的謊言為其“畫皮”掩飾罪行，併計劃使用秘密研製的“生物武器”擊垮西方經濟並取而代之。此報告揭示了中共欲打造“世界命運共同體”中最關鍵和慘無人道的真實情況，並將中共永遠的釘子歷史的恥辱柱上。
+空气之于人
 
-第一份報告發出時，Zenodo網站曾遭受中共黑客的攻擊，並且閆博士此前的twitter賬號亦被無故封號，引發民眾對社交媒體公正性的關注。目前Zenodo網站已遭到黑客攻擊，民眾關注此次社交媒體的反應。
+在无处可逃的江湖
 
-閆麗夢博士是中國偉大女性的代表，她拯救了全世界，她是全世界的英雄，她一直在默默的付出。
+没有谁可以置身事外
 
-論文英文版地址[http://zenodo.org/record/4073131](http://zenodo.org/record/4073131)
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103100/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_01.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103116/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_02.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103133/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_03-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103147/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_04.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103202/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_05.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103321/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_06.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103337/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_07.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103354/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_08.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103410/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_09-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103437/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_10.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103423/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_11.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104047/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_12.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103449/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_13.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104104/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_14-1.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104117/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_15.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104641/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_16-2.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103504/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_17.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104658/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_18-1.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104712/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_19-1.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103611/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_20.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104339/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_21-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103625/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_22.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103639/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_23-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104402/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_24-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103653/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_25.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104017/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_26.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103704/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_27.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103717/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_28.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103731/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_29.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103744/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_30.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103757/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_31.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104726/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_32-1.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104431/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_33-1.jpg)
+不是我们选择政治
+
+而是无论你是否愿意
+
+不管你是否喜欢
+
+政治在生活中无处不在
+
+且只有两种可能:
+
+你要么站在正义一方
+
+要么与邪恶为伍
+
+但，邪不压正，这是宇宙法则
+
+因此，正义是每个人唯一的选择
+
+**植物赋**
+
+一
+
+喜树、紫花醉鱼草、芭蕉、秋葵
+
+栾树、鱼腥草、紫苏、风信子……
+
+这些名字就是最好的诗
+
+可是，我都认不完
+
+那些叫不出的名字和每天升起的太阳
+
+与我在此交集，成为这首诗里的草木
+
+而那朵花，一直等着我把它打开的花
+
+我还是叫不出它的名字
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08125555/%E5%9B%BE%E7%89%8734.png)
+二
+
+你一眼看见的那棵栾树
+
+开满向风致敬的小黄花
+
+它们也向催开花朵的雨致敬
+
+我向路边不起眼的杂草致敬
+
+它们向老去的时光致敬
+
+你向造物主的偏见致敬——
+
+打开这个五彩缤纷的秋天
+
+上帝也向草木致敬
+
+三
+
+老家有一棵几百年的银杏树
+
+让秋天成为一种难熬的牵挂
+
+黄叶满地，她张开双臂，像母亲的等待
+
+在那个方向，秋更浓，白果最甜
+
+忘记了多少次与之擦肩而过
+
+只记得每次回望都是在风中
+
+如果我们是飞鸟
+
+总有一天会落下来
+
+四
+
+你的性格像植物，安静的暖
+
+柴米油盐像爬山虎那样琐碎
+
+你给它盖上一片绿油油的叶子
+
+男人、酒鬼、艺术家，是燃烧的向日葵
+
+你是旁边那棵树，点亮宁静的绿
+
+你们一起完成一副现代派的油画
+
+那里没有主角，只有冲突的平衡术:
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08125641/%E5%9B%BE%E7%89%8735.png)
+走过的日子，盐油酱醋调和着一地鸡毛
+
+五
+
+多年前我路过的那条青年路
+
+那排栾树头顶着生命的火焰
+
+那是万物都在结果的时候
+
+它们用生命之光，照亮整个秋天
+
+那是我与每一张落叶告别的青年
+
+那是每一个秋天我必须仰望的树
+
+雨后遍地黄花，秋更深，栾树也该结果了
+
+这个病毒肆虐的秋天，一切都有它的因果
+
+六
+
+我们的性情近植物:安静、平和
+
+春天我们用繁花装扮自己
+
+秋天我们把沉甸甸的果实送给路人
+
+我们的执着像树可以屹立千年万年
+
+我们的耐心像藤蔓，千万次缠绕，追逐阳光
+
+我们的不幸是遇到伐木的暴徒：山河破碎
+
+但柔弱的玫瑰也藏有刺，我们已醒来
+
+草木皆兵，落花成箭，大地必繁花盛开
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08125705/%E5%9B%BE%E7%89%8736.png)
+七
+
+妈妈，我们用爱正创造着这片自由的森林
+
+妈妈，我们的哭泣已经感动了天地
+
+妈妈，我们的痛让藤蔓更坚韧
+
+妈妈，喜马拉雅圣山上不再有别离
+
+我们所走过的千山万水正走向我们：
+
+让草原更辽阔的是野马
+
+让天空更高远的是山峰
+
+让云朵更纯洁的是眼泪
+
+
+
+
+
+路德时评链接：[https://youtu.be/ux2EZGaksoc](https://youtu.be/ux2EZGaksoc)
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/Mos_Himalaya)！
+
+[Tweets by Mos\_Himalaya](https://twitter.com/Mos_Himalaya?ref_src=twsrc%5Etfw)
+
 0

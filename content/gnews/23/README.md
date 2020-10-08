@@ -1,25 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普授權解密“通俄門”文件
-`2020-10-08 09:32 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/410709/)
+## 閆麗夢發布第二份中共病毒報告，直指中共病毒為不受控制的“生物武器”
+`2020-10-08 10:55 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/411334/)
 
-喜馬拉雅聯盟加拿大農場 熊媽媽
+喜馬拉雅聯盟加拿大農場 大地鯤鵬
 
-校對 不動之光 上傳 XM
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08091612/lbry.tv_.jpg)圖片來源：lbry.tv
-10月7日，美國川普總統在個人推特上寫道，“我已完全授權解密所有與美國歷史上最重大的政治犯罪有關的文件，這些犯罪與俄羅斯有關，希拉里·克林頓電子郵件醜聞也是如此。無任何修改！”
+校對上傳 XM
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103019/%E5%9B%BE%E7%89%871-4.png)
+美東時間10月8日，英雄科學家閆麗夢博士通過其重新註冊的twitter賬號@DrLiMengYan1發布了放置於Zenodo網站的第二份中共病毒報告《SARS-CoV-2 Is an Unrestricted Bioweapon：A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud 》，此前發布的第一份報告通過揭露SARS-CoV-2病毒在基因組的異常表現，引發世界民眾對新冠病毒來源於中共軍方試驗室“增強型功能實驗”的討論，此篇報告更加深入的分析數據和資料，證明SARS-CoV-2就是中共軍方製造的“生物武器”，並由中共政府故意釋放到人類社會，世界都應該追究中共的責任。
 
-美國當局曾指責俄羅斯在2016年干涉總統大選，對俄羅斯是否干預2016年美國大選的調查持續了兩年。特別檢察官羅伯特·穆勒（Robert Mueller）負責調查“通俄案”，穆勒指出，干預是通過社交媒體和黑客攻擊進行的。 “通俄門”的指控如果成立，川普總統將下台並會被控叛國罪入獄。川普總統一再稱調查是”政治迫害”，並否認與莫斯科勾結的所有指控，莫斯科對此予以否認。
+如第一份報告一樣，此報告的真實性使中共圈養的科學家無法辯駁。目前所曝光的情報顯示，多年來中共利用“藍金黃”的力量滲透美國為首的西方世界，用媒體的謊言為其“畫皮”掩飾罪行，併計劃使用秘密研製的“生物武器”擊垮西方經濟並取而代之。此報告揭示了中共欲打造“世界命運共同體”中最關鍵和慘無人道的真實情況，並將中共永遠的釘子歷史的恥辱柱上。
 
-2019年3月24日，美國司法部長巴爾(William Barr)表示，穆勒的報告沒有發現川普總統競選團隊與俄羅斯有共謀或合作干預2016年美國總統大選的證據，也沒有發現川普總統犯罪和妨礙司法公正的證據。民主黨眾議院議長佩洛西和參議院少數黨領袖舒默表示巴爾並未公開完整的報告內容，並特別指出穆勒的報告沒有免除川普總統的責任。
+第一份報告發出時，Zenodo網站曾遭受中共黑客的攻擊，並且閆博士此前的twitter賬號亦被無故封號，引發民眾對社交媒體公正性的關注。目前Zenodo網站已遭到黑客攻擊，民眾關注此次社交媒體的反應。
 
-“通俄案”於2019年4月結束。 2019年5月，穆勒宣布結案並從美國司法部辭職。最終調查結果顯示，未發現任何“川普總統與俄羅斯串通”的證據。緊接著川普發推稱：“這是美國國恥，美國總統居然要受這種待遇。通俄門調查是一場失敗的非法打擊行動，根本沒有通俄，沒有妨礙司法，完整和徹底的清白。”
+閆麗夢博士是中國偉大女性的代表，她拯救了全世界，她是全世界的英雄，她一直在默默的付出。
 
-自蘇聯解體後，俄羅斯快速實現了向民主政治轉型，國民可以投票，網絡也有了言論自由，人民有集會、結社、遊行、示威和表達反對不公的權利。反觀中共八九之後，極權統治者對內關閉了改開以來僅有的一點自由言論之光，甚至出台了轉發500條“虛假信息”即入罪的惡法，防民之口甚於防川。上至國家最高領導人，下至村長，個個“裸官”公權私用，橫徵暴斂，視人命如草芥。對外，高築防火牆蒙蔽國民的眼睛，同時綁架14億人民成為威脅世界各國的肉盾。用“藍金黃”、 “大外宣”對美國和全球全面滲透，試圖陰謀取代美國主導世界，徹底摧毀西方的價值體系和經濟體系。雖然美國在川普總統執政之後，意識到了中共的邪惡，不斷調整策略團結一切力量對抗中共，包括俄羅斯。但是由於“通俄門”的指控，使得川普總統團結俄羅斯滅共的政策徹底掣肘。
-
-荒唐的“通俄門”將隨著川普總統推特的宣告，文件徹底解密而告終。在中共病毒繼續危害全世界的緊要關頭，美國對俄羅斯政策的方向也將逐步轉變，聯合一切力量滅共是當前自由世界的重中之重。
-
-參考鏈接：https://twitter.com/realDonaldTrump/status/1313640512025513984
-
+論文英文版地址[http://zenodo.org/record/4073131](http://zenodo.org/record/4073131)
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103100/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_01.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103116/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_02.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103133/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_03-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103147/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_04.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103202/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_05.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103321/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_06.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103337/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_07.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103354/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_08.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103410/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_09-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103437/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_10.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103423/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_11.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104047/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_12.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103449/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_13.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104104/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_14-1.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104117/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_15.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104641/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_16-2.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103504/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_17.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104658/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_18-1.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104712/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_19-1.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103611/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_20.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104339/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_21-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103625/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_22.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103639/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_23-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104402/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_24-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103653/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_25.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104017/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_26.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103704/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_27.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103717/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_28.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103731/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_29.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103744/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_30.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08103757/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_31.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104726/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_32-1.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08104431/The-2nd-Yan-Report_%E9%A1%B5%E9%9D%A2_33-1.jpg)
 0

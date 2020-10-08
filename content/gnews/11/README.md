@@ -1,22 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 10/9財經快訊:台灣正引領亞洲新興市場, 川普新政美股大漲,中共錢砸美國大選
-`2020-10-08 10:19 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/411088/)
+## 閆麗夢博士發表第二篇中共病毒學術報告&#8212;指出中共病毒為超限生物武器
+`2020-10-08 12:42 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/411545/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08100858/Picture7-1.png)圖片來源： [https://g.foolcdn.com/](https://g.foolcdn.com/editorial/images/517828/silhouettes-of-a-bull-and-bear-on-top-of-a-stock-market-chart.jpg)
-[1,美國股市週三大幅上漲，因美國川普總統在推特上支持對航空公司的援助和其他刺激措施。道瓊斯工業平均指數收盤上漲530.70點，至28303.46點，漲幅1.9%。這是道瓊斯指數自7月中旬以來的最大單日漲幅。標準普爾500指數上漲1.7%，至3419.45點，納斯達克綜合指數上漲1.9%，至11364.60點。](https://www.cnbc.com/2020/10/06/stock-market-futures-open-to-close-news.html)
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08123436/yan-1.jpg)圖片來源：Gnews
+閆麗夢博士於美國東部時間10月8日上午公開發表了長達33頁的題為《SARS-CoV-2是一種超限生物武器-事實真相隱藏在大規模有組織科學造假的背後》（SARS -CoV-2 Is an Unrestricted Bioweapon: A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud）的學術報告，直言中共病毒是超限生物武器。
 
-[2，亞洲：一個新的市場正在興起，台灣元領漲，多數亞洲貨幣走高。](https://www.reuters.com/article/emerging-markets-asia/emerging-markets-taiwan-dollar-leads-gains-as-most-asian-currencies-inch-up-idUSL4N2GZ0HL)
+文章論證了RATG13、RmYN02等中共所謂的蝙蝠冠狀病毒貌似與SARS-COV-2病毒（即中共病毒）具有較高的基因序列同源性，但實則是掩人耳目的騙局。作者通過深入分析數據和文獻，證明了這些所謂的新型動物冠狀病毒不存在於自然界中，它們的基因序列是捏造的。文章還批駁了莫江礦工感染的冠狀病毒的假相。這些捏造出的病毒假相使自然來源理論毫無根據，還加強了第一篇學術報告的斷言，即中共病毒是實驗室的產物。
 
-[3,美國監管機構週三表示，花旗集團（CitigroupInc.CN）已同意支付4億美元的罰款，並製定一項全面計劃，以修復多年來導致多起違規和處罰的持續風險管理和運營問題。](https://www.reuters.com/article/us-usa-citigroup-enforcement/citigroup-pays-400-million-u-s-fine-agrees-to-fix-long-term-lapses-idUSKBN26S3DN)
+報告認為這場科學欺詐的規模和協調性標誌著學術研究和公共衛生領域的腐敗程度。由於這種腐敗，科學界的聲譽和全球社會的福祉都受到了損害。中共病毒符合解放軍規定的生物武器標準，但其影響遠遠超出了典型生物武器的設想。有記錄顯示，這種武器化病原體的釋放應該是有意而非偶然的。因此，報告將中共病毒定義為一種超限生物武器，目前的大流行實則是超限生物戰的結果。
 
-[4,洛杉磯的一家中國公司-索卡爾子公司（SoCal Subsidiary）同意支付100多萬美元已同意支付105萬美元，以解決對該公司與洛杉磯市公職人員之間的刑事調查，包括賄賂、誠實服務欺詐以及為洛杉磯政治人物競選捐款。](https://www.justice.gov/usao-cdca/pr/chinese-company-s-socal-subsidiary-agrees-pay-more-1-million-resolve-criminal)
+報告最後提出國際社會應採取實際行動：應對涉嫌的政府和個人進行調查，要求中共交出病毒原始數據，交代所有隱藏的病毒真相。國際社會應調查捏造假相、實施科學欺詐的學術腐敗行為，並追究對人類野蠻進行生物攻擊的罪責，同時也要追究世界衛生組織、相關期刊、資助機構等組織的責任。
 
-[5,中國政府日益將貿易與政治融合在一起，威脅要對批評中國人權紀錄、拒絕華為等中共企業進入中國市場或表達對台支持的公司和政府採取懲罰性經濟措施。隨著全球對中經共濟行為和侵犯人權行為的審視日益加強，德國和歐洲各地的情況開始發生變化。](https://www.axios.com/exclusive-top-german-official-hushed-up-report-on-chinas-influence-8c6aeef3-0f71-405f-a902-a215399f2068.html?utm_campaign=organic&amp;utm_medium=socialshare&amp;utm_source=twitter)
+Toohigh：【㊙️翻Gnews原創組】
 
-[6，美國內政部將使用美國製造的無人機，這將有利於美國人安全並且幫助美國製造業回歸。今年早些時候，美國內政部無人機機隊因擔心中國製造的無人機平台而墜毀，當時美國國防部除了緊急反應外，沒有飛行。](https://dronelife.com/2020/10/07/u-s-department-of-the-interior-to-use-u-s-manufactured-drones/amp/?__twitter_impression=true)
+校對：心聲
 
-By 【秘翻組- 金融法律團隊】
+（本文只代表作者個人觀點）
 
 0

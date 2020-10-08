@@ -1,34 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 閆博士第二篇報道出爐！病毒是超限生物武器！
-`2020-10-08 09:33 GM01` [轉載自GNews](https://gnews.org/zh-hant/410860/)
+## 路德紅領帶系列丨閆麗夢博士第二篇科學報告震撼發布，直接定義SARS-COV-2是中共超限戰的生物武器
+`2020-10-08 11:00 YALUN` [轉載自GNews](https://gnews.org/zh-hant/411349/)
 
-【本文將持續更新】
+亞倫
 
-2020年10月8日美東時間上午，閆博士第二篇關於新型冠狀病毒的報告發布！將中共病毒直指生物武器！
 
-報告剛上線不到壹小時，相關網站Zenodo已接近癱瘓。根據閆博士最新接受福克斯新聞主播塔克的采訪，報告在發布之前均會收到美國頂級專家的認可。閆博士的63歲的母親已被中共四次抓捕。
 
-链接：[https://zenodo.org/record/4073131#.X38Q75NKi00](https://zenodo.org/record/4073131#.X38Q75NKi00)
 
-[閆博士第二篇報告](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08092413/The-2nd-Yan-Report.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08092413/The-2nd-Yan-Report.pdf)
 
-閆博士於美東時間上午9點左右用唯壹的推特號發推：我的第二份科學報告已經發布在Zenodo，這是閆麗夢博士的唯壹推特號
 
-> My second scientific report is published in zenodo.
-> 
-> This is the only account in Twitter for Dr. Li-Meng YAN. [pic.twitter.com/THgVjuQawx](https://t.co/THgVjuQawx)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [October 8, 2020](https://twitter.com/DrLiMengYAN1/status/1314191600571031557?ref_src=twsrc%5Etfw)
 
-新論文標題為：《SARS-CoV-2 是超限生物武器：通過揭露大規模、有組織的科學欺騙行為還原真相》作者包括閆麗夢博士，Shu Kang，Jie Guan和Shanchang Hu。由“法治基金”和“法治社會”支持。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08100031/%E6%88%AA%E5%B1%8F2020-10-08-%E4%B8%8B%E5%8D%882.59.17.png)
-2020年2月3日，石正麗壹篇論文將新型冠狀病毒指向了蝙蝠冠狀病毒（RaTG13），在闫博士最新的報告中，閆博士提供了相關證據，證明蝙蝠冠狀病毒（RaTG13）是壹個謊言，根本不存在於自然界。
+驚天爆，天天爆不停，雷霆錘，日日錘不止。
 
-“Evidence proving that the RaTG13 virus is fraudulent and does not exist in nature“
+據《路德社》2020年10月08日早間節目報導，眾望所歸、期待已久的閆博士關於中共病毒第二篇科學報告重磅發布，直接定義新冠病毒（Sars-Cov-2）是一個超限戰的生物武器（Unrestricted Bioweapon）。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08105050/12-4.jpg)圖片來源閆博士官方推特截屏
+2020年10月08日，閆博士本人也在自己的官方Twitter上報告，自己的第二篇關於中共病毒的第二篇科學報告重磅發布。
 
-閆博士還指出，在基因銀行（GenBank）上傳的RaTG13的序列是可以被捏造的。
+路德先生還分析到，超限戰的生物武器是一個新概念，全世界第一次提出來，未來一定會納入牛津大字典的。
 
-“The sequence of RaTG13 uploaded at GenBank can be fabricated“
+1. 這篇科學報導這個時間點發布，是結合美國其他相關的舉動，都是有特別安排的。
+2. 這次從科學角度，無懈可擊的解釋為什麼是生物武器。這次總共33頁，圖文並茂，邏輯鍊及其縝密，用指紋的方式解釋為何生物武器。而且更甚的是，這次是超限戰得生物武器。
+3. 以往的生物武器都是定點投放，造成大規模殺傷。而超限戰的生物武器是要敵國的經濟崩潰，醫療系統崩潰，高傳播，10%左右的既能保障高傳播的最高死亡率，病毒潛伏期長。
 
-0
+
+此科學報告總共引用123條科學論文出處，大多數是中共自己發表的，和與中共合作夥伴發表的，意思是全部都是為了超限戰的生物武器。
+
+據悉，今晚《路德社》博士團會再次詳實的解讀這份第二篇科學報告，徹底揉碎了揭露病毒的製造和中共的長期撒謊造假的鋪墊。
+
+一切都已經開始，一切都被拿到檯面，一切也都快結束。
+
+**閆博士第二篇科學報告鏈接：**
+
+《SARS-CoV-2 Is an Unrestricted Bioweapon: A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud》 [https://zenodo.org/record/4073131#.X38fJmhKhdg](https://zenodo.org/record/4073131#.X38fJmhKhdg)
+
+**Gnews****相關文章：**
+
+《路德紅領帶系列丨閆麗夢博士科學報告震撼發布》[https://gnews.org/zh-hans/356065/](https://gnews.org/zh-hans/356065/)
+
+《人物丨步步驚心，為你講述美女英雄科學家九死一生的衝關異鬼國度》[https://gnews.org/zh-hans/264041/](https://gnews.org/zh-hans/264041/)
+
+
+
+1

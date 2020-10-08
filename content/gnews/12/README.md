@@ -1,26 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【軍事快訊】北約秘書長呼籲發展新戰略以應對包括中共國在內的新挑戰
-`2020-10-08 10:10 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/411075/)
+## 【热点播报】人类末日世界危机！惊悚超限生物战三大要素全揭秘！闫博士的第二份报告今日上传——第一次定义ＣＣＰ病毒为超限生物武器！！！ＣＣＰ病毒目标是全面摧毁世界！！！
+`2020-10-08 12:41 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/411547/)
 
-作者：美東香草山農場滅共霹靂組  人間世
+作者：美东香草山农场灭共霹雳组  正道主义联盟
 
+闫博士的第二份报告已经上传了！请大家转发传播第一次定义超限生物武器。
 
+Dr.Yan’s second scientific report has been uploaded to the zenodo. Please download, read, and broadcast.
 
-10月7日，北大西洋公約組織（NATO）秘書長斯托滕伯格（Jens Stoltenberg）表示，北約需要發展一個嶄新的戰略來應對包括中共國在內的新挑戰。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08100142/107-%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91%E5%8C%97%E7%BA%A6%E7%A7%98%E4%B9%A6%E9%95%BF%E5%91%BC%E5%90%81%E5%8F%91%E5%B1%95%E6%96%B0%E6%88%98%E7%95%A5%E4%BB%A5%E5%BA%94%E5%AF%B9%E5%8C%85%E6%8B%AC%E4%B8%AD%E5%85%B1%E5%9B%BD%E5%9C%A8%E5%86%85%E7%9A%84%E6%96%B0%E6%8C%91%E6%88%98.png)北約資料圖片
+New definition: unrestricted Bioweapon.
 
+Will answer many of your questions!
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08123134/%E5%9B%BE%E7%89%8731.png)来自胡博士推特截图
+根据报告第26页，4.3【超限生物战】定义的标准👇——SARS-CoV-2满足了所有条件：
 
-據法新社報導，斯托滕伯格本週三在斯洛伐克首都布拉迪斯拉舉行的“全球安全論壇”（GLOBSEC）上指出：“全球已從根本上改變，對北約而言，發展新戰略概念的時候到了。”斯托滕伯格極力主張這個擁有30個成員國的西方防禦聯盟，“發展針對新科技的共同原則和標準”，以因應基於大數據和網絡通訊的“顛覆性技術”所帶來的安全挑戰。同時，他也強調必須應對“中共國崛起對全球權力平衡的根本改變”、更殘酷的恐怖主義形式等新局面。
+1⃣极强的毒性，可造成大规模人员伤亡
+2⃣极强的传染性，很容易传播，通常以气溶胶形式通过呼吸道传播
+3⃣环境变化影响相对较小，可以维持运输，并且能够支持【定点投送】
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08123728/%E5%9B%BE%E7%89%8732-1.png)来自推特截图
+早间路德社评论中提到：这个生物武器相当于瘟疫工厂游戏中的瘟疫，它可以瘫痪政府，攻陷所有敌对目标，控制人类社会，彻底瓦解政府军队，而且持续让社会无法正常运作，让政府空心化。所以笔者认为把这次CCP病毒世界投放定义为人类末日危机绝不是耸人听闻！！！
 
-北約成立至今70多年來，在2019年的倫敦峰會上，首次正式承認中共國帶來的“挑戰”。斯托滕伯格強調，隨著中共國的崛起，全球權力平衡已發生根本性變化。他認為，雖然北約的重心仍然是歐洲和北美，但也不能忽視北京在軍事上的發展，以及在地緣政治上的野心。
+真是ＣＣＰ邪魔恶党不灭，人类危机重重！！！
 
-今年六月份，中共國人大常委會冒天下之大不韙，強硬通過“港區國安法”。當時斯托滕伯格曾公開批評中共政府。他說，“很明顯，中共國並不分享我們的民主、自由、法治等價值。我們在香港看到這點，’港區國安法’削弱了它的自治。”
+路德时评链接：[https://youtu.be/ux2EZGaksoc](https://youtu.be/ux2EZGaksoc)
 
-
-
-更多資訊，歡迎訂閱[美東香草山農場官方推特賬號](https://twitter.com/Mos_Himalaya)！
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/Mos_Himalaya)！
 
 [Tweets by Mos\_Himalaya](https://twitter.com/Mos_Himalaya?ref_src=twsrc%5Etfw)
 
