@@ -1,75 +1,179 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年10月1日-10月7日新聞大記事
-`2020-10-08 04:46 JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hant/410318/)
+## 每日快報&#8211; 2020.10.7
+`2020-10-08 09:54 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hant/411018/)
 
-【日本喜馬拉雅聯盟】素材蒐集：日喜聯盟素材蒐集組 整理：天賦的自由 校對：ccp擀麵杖子
+**作者：星空無垠**
 
-1、【2020年9月30日Gnews】郭文貴先生新曲“親愛的媽媽,我正在終結CCP” 再創全球音樂史奇蹟。 [https://gnews.org/zh-hans/392774/](https://gnews.org/zh-hans/392774/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08041926/1-39.png)圖片來源：Gnews
 
-2、【2020年10月1日朱利安尼推特】美國歷史性的政治醜聞。朱利安尼·魯迪發推—拜登家族屬於中共。美國人必須了解。 [https://twitter.com/rudygiuliani/status/1311463779914387457?s=21](https://twitter.com/rudygiuliani/status/1311463779914387457?s=21)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08042230/2-27.png)圖片來源：朱利安尼推特
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/20212312/%E6%AF%8F%E6%97%A5%E5%BF%AB%E6%8A%A5-2.png)
 
-3、【2020年10月2日雅虎新聞】トランプ米大統領とメラニア夫人が新型コロナに感染したと明らかにした。直ちに隔離措置に入る。 11月3日の大統領選が1カ月後に迫る中、選挙集會出席が制限され、再選への打撃となるのは必至。
 
-【中文】已確認川普總統和夫人梅拉妮感染冠狀病毒。並立即開始實行隔離措施。距11月3日總統選舉還有一個月，選舉集會受到限制，就會對選舉造成打擊。 [https://news.yahoo.co.jp/pickup/6372629](https://news.yahoo.co.jp/pickup/6372629)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08042710/3-21.png)圖片來源：共同通訊
 
-4、【2020年10月2日Gnews】墨博士：日本筑波大學掛谷英紀副教授支持“新冠病毒來源實驗室”觀點贊同。 [https://gnews.org/zh-hans/397345/](https://gnews.org/zh-hans/397345/)
+重要事件
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08042809/4-15.png)圖片來源：於掛谷副教授油管上發布的視頻截圖
+- 11.8美東時間今早7:45[川普總統接受了Fox的Morning With MARIA節目採訪](https://www.youtube.com/watch?v=6mvzU7zrGgI&amp;feature=youtu.be)
+- 10.8.[澳洲聯邦參議員帕特里克（Rex Patrick）發布新聞公告，呼籲澳洲帶頭抵制2022年北京冬奧會](https://www.epochtimes.com/gb/20/10/8/n12460939.htm)。他在公告中表示，中共政權利用奧運會使其嚴重侵犯人權和基本自由的行為合法化， “澳洲參加這樣的賽事，在道德上是錯誤的”。
+- 10.7. GNEWS快訊！[川普總統稱，拜登捲入叛國重罪案件，即將退選](https://gnews.org/zh-hans/409702/)？
+- 10.7. ZeroHedge報導[白宮將目標鎖定禁止螞蟻金服，騰訊支付系統](https://www.zerohedge.com/markets/white-house-targets-ant-group-tencent-payment-systems-economic-assault-china-continues)，
+- 10.7. ZeroHedge[基辛格警告:中美必須同意”限制”發出威脅，否則將面臨戰爭風險](https://www.zerohedge.com/geopolitical/kissinger-warns-china-us-must-agree-limits-making-threats-or-risk-war)
+- 10.8 楊潔篪今日出訪斯里蘭卡、阿聯酋、阿爾及利亞、塞爾維亞。首站停留斯里蘭卡——香港港大P3實驗室Malik的老家！
 
-5、【2020年10月3日NHK新聞推特】アメリカのトランプ大統領は、新型コロナウイルスの検査で陽性と判明したことを受け、首都ワシントン近郊の軍の病院に移りました。
 
-【中文】美國川普總統冠狀病毒檢測為陽性，轉入華盛頓郊區的軍醫院住院治療。 [https://twitter.com/nhk\_news/status/1312157167819001856?s=21](https://twitter.com/nhk_news/status/1312157167819001856?s=21)
+文貴直播和蓋特
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08043116/5-12.png)圖片來源：NHKニュース
+#### 直播：
 
-6、【2020年10月3日Gnews】中共已經抓捕了閆麗夢博士的母親，這是對閆麗夢博士即將發表的第二篇有關病毒真相論文的威脅，留下您的寄語不要讓這位偉大的中國女性感到孤獨。 [https://gnews.org/zh-hans/403370/](https://gnews.org/zh-hans/403370/)
+10月7日文貴直播：德州懲賊行動現場，黑警抓戰友，傅希秋一定法庭見；文貴公佈病毒檢測結果，親身驗證羥氯喹是有效的
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08043241/7-4.png)圖片來源：Gnews
+[https://gtv.org/web/#/UserInfo/5e596957357cc612d35a8044](https://gtv.org/web/#/UserInfo/5e596957357cc612d35a8044)
 
-7、【2020年10月5日Gnews】隨著川普總統夫婦及共和黨議員集體感染後，沼澤最後排幹開始，福奇漠視硫酸羥氯喹對中共病毒的安全有效性，不能及時開放臨床用藥，導致大量人員感染死亡。福奇受到起訴。
+- 德州前線戰友被逮捕牽出傅希秋在美黑暗勢力，黑警過度執法、當地市長被買通、在戰友抗議周圍共有八支來福衝鋒槍。美國最牛司法部大律師已介入幫助被黑警逮捕的戰友，依法懲賊，意義深遠！我們連共產黨都不怕，會怕傅希秋？
+- 華盛頓諸多高級政客通過G-TV見證德州黑警過度執法一幕，G-TV的力量！傅希秋曾隸屬中共安全部12局，與當時的馬建副部長是上下級，海南12局陶局長是他的直接領導。
+- 文貴先生對華盛頓喊話，若美國有一千個傅希秋，美國就完全淪陷了。正邪之戰，一定有人最後進監獄。傅希秋已經洗不白了。
+- 郭先生服用羥氯喹和鋅，過往見面幾百人（其中有人感染），但測試仍是陰性，羥氯喹管用！鋅管用！病毒最壞的時刻還沒有來，戰友們一定保護自己和家人！
+- 未來將有21天郭先生前往深山陪伴郭太與家人，定於11月6日回來。在這期間無直播、無視頻。
+- G-Club / G-Fashion 16、17號即將上線，已選定註冊地國家，離美國很近，將建設100-200人基地，當地願建立國防小組保護各位戰友。美國兩個州官員邀請新中國聯邦買地，並授權新中國聯邦，唯一條件是G系列在當地落地。
+- G-Club會員未來將有每年和文貴先生見面吃飯開會的機會。
+- 昨晚閆麗夢的採訪是過去她所有採訪的總和，震撼世界。大統領家人說太愛閆麗夢了，一定要保護閆麗夢，稱其為Miles Rose 「鏗鏘玫瑰」
+- 郭太囑咐郭先生，時間交給戰友，因戰友把命都給了爆料革命，此生只可以戰友對不起郭文貴，不能郭文貴對不起戰友。
+- 海外華人未來在共產黨和爆料革命、新中國聯邦（滅共）中擇其一。那些慶祝川普總統生病的，一定會被送回去，滅了共也來不了美國了。
+- 爆料革命、懲賊行動考驗心智、勇氣、膽量，守住道德底線與法律紅線，其餘誰都不需要怕。
+- 郭先生反复提新中國聯邦買地一事，並評價：我們未來要建造自己的香格里拉。 1000天以內，一定有戰友們能去的深山老林（新中國聯邦的地），到了那裡就是你的家。
+- 以上，致敬前線戰友，秋冬來臨，戰友們遵醫囑服用羥氯喹、鋅，保護家人，滅共靠行動！
 
-[https://gnews.org/zh-hans/403777/](https://gnews.org/zh-hans/403777/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08043355/8-5.png)
+（以上文字內容來自——月球小飛象戰友）
 
-8、【2020年10月5日Gnews推特】力挺羥氯喹的紐約良心醫生澤連科（Dr. Zelenko）的推特賬戶被鎖。澤連科醫生分別在4月24日及8月27日在班農戰斗室節目中力挺羥氯喹治療中共病毒，並為人們提供了詳細的用羥氯喹治療中共病毒的方案，在民間得到廣泛傳閱。 [https://twitter.com/canadahimalaya/status/1313150161510494225?s=21](https://twitter.com/canadahimalaya/status/1313150161510494225?s=21)
+1. 大家不知道，幹倒傅希秋有多麼重要。他一旦被揭發，中共在美國三十幾年苦心經營的情報網（應該說是遠遠超過情報網，整個產業鏈，整個利益集團）都毀於一旦！ ！
+2. 那些親共，或表面反共實則打太極的美國政客才有所忌憚，整個政治版圖都會有變化，德州的戰友太偉大。
+3. 文貴上星期最起碼見300人以上，但文貴相信閆博士和路德，吃了羥氯喹，測試正常，文貴呼籲大家都吃羥氯喹；
+4. 文貴選定了Ｇ系列註冊地：某國，距離美國很近，零關稅，市場運行。戰友在該國，國防部都給予保護。夏威夷日本人免費給26000畝地，條件是日本Ｇ系列給他。 Ｇ-Fashion所有意大利生產，有人幾億美元要入股Ｇ-Fashion，文貴說，現在不對外，看看第二輪第三輪私募再說；
+5. 文貴將去深山老林21天，這期間沒有直播；下個月戰友看看怎麼樣的波瀾壯闊，文貴怎麼做生意。文貴從小沒有任何失言，都兌現了，只有一件還未完成，就是Take Down The CCP。
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08043450/9-1.png)圖片來源：Gnews
 
-9、【2020年10月5日Share New Japan】政府、留學生ビザの審査厳格化へ中國念頭、安保技術を流出防止。
+#### 蓋特：
 
-【中文】日本政府為了防止安保技術等流出，對中國留學生簽證嚴格審核。 [https://twitter.com/sharenewsjapan1/status/1312958194344493056?s=21](https://twitter.com/sharenewsjapan1/status/1312958194344493056?s=21)
+10月8日：衷心的感謝偉大的戰友們……文貴的兩首歌的排名實在是太牛了……爆料革命沒有你們不行文貴沒你們——更不行……一切都已經開始！
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08043630/10-3.png)圖片來源： Share New Japan
+[https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f7ecd0406847a4c650dcf4e](https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f7ecd0406847a4c650dcf4e)
 
-10、【2020年10月6日戰友之家推特】10.1新中國聯邦舉行了全球遊行。兩大訴求：揭露病毒真相；在中國實行法治。 [https://twitter.com/vog2020/status/1313440981778411520?s=21](https://twitter.com/vog2020/status/1313440981778411520?s=21)
+10月7號：尊敬的戰友們好……猜猜這是誰送給我的花？我太喜歡了……
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08043802/11-3.png)圖片來源：日本喜馬拉雅聯盟
+[https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f7e6fa606847a4c650d8243](https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f7e6fa606847a4c650d8243)
 
-11、【2020年10月6日首相官邸推特】美國彭培奧和日本、澳洲、印度會晤。為實現太平洋自由開放達成共識。 [https://twitter.com/kantei/status/1313389840231145475?s=21](https://twitter.com/kantei/status/1313389840231145475?s=21)
+10月7號：尊敬的戰友們好，10月1號在紐約抗議遊行的戰友們．和我擁抱過的戰友們．請在7:00左右．看我直播．我的CCP冠狀病毒檢查結果出來了，一切都已經開始！
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08043934/12-2.png)圖片來源：首相官邸
+[https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f7e36a406847a4c650d5ddb](https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f7e36a406847a4c650d5ddb)
 
-12、【2020年10月6日Gnews】美國總統川普宣布確診新冠肺炎後，白宮發言人凱萊·麥肯內尼（Kayleigh McEnany）5日也在自己推特上發表聲明，證實自己確診新冠肺炎，她也表示自己目前沒有任何症狀產生，將開始自主隔離。 [https://gnews.org/zh-hans/404605/](https://gnews.org/zh-hans/404605/)
+路德社節目：
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08044219/13-1.png)圖片來源：Gnews
+####  10/7/2020早路德時評（路郝葉安墨談）：葉釗穎父親被公安上門威脅騷擾；美司法部11點重磅新聞發布會意味著什麼？美參眾兩院兩院開始刑事調查拜登家族與中共金融腐敗活動意味著什麼？
 
-13、【2020年10月6日雅虎新聞】新型コロナウイルスに感染し、入院していたトランプ米大統領が5日、退院した。 【中文】感染冠狀病毒入院的美國川普總統於5日出院。 [https://news.yahoo.co.jp/articles/ecc3b235a3d4b0bf568c590430a2c2779349a3d7](https://news.yahoo.co.jp/articles/ecc3b235a3d4b0bf568c590430a2c2779349a3d7)
+- 葉釗穎女士和閆博士一樣,父親也被國安多次威脅
+- 如果不是閆麗夢博士119通過路德曝光病毒真相，也許我們都感染了中共病毒，也許已經死了。
+- 她是為了救億萬生命而站出來
+- 中共倒台後也許百年才能去除中共的餘毒，中共從不把人當人，殺死一個中國人，不如把他洗腦成中共的奴隸。
+- 參眾兩院開始調查亨特拜登金融腐敗
+    - 解密前CAI局長給奧巴馬手寫的希拉里陷害川普的證據
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08044331/15-1.png)圖片來源：朝日新聞
 
-14、【2020年10月6日Gnews】國民黨立法院黨團提出「政府應請求美國協助抵抗中共」及「台美復交」兩個決議案，在未有其他政黨提出異議情況下通過。 [https://gnews.org/zh-hans/406720/](https://gnews.org/zh-hans/406720/)
+    - 美國內部排幹沼澤
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08044441/16-1.png)圖片來源：Gnews
 
+    - 這是滅共必須的行動
+- 政治中權力和能力，體制裡面有重重的截止，這就是美國強大的優勢，也是世界秩序得以保障的關鍵
+
+
+#### 10/7/2020晚路德時評（路博艾冠談）：
+
+川普說這是中共國的錯，將付出沉重代價；川普即將禁止螞蟻金服和騰訊支付；海軍陸戰隊司令檢測陽性意味著什麼？
+
+推特文摘
+
+URSO(醫學）博士：羥氯喹幾乎是所有RNA病毒的疫苗！這幾乎可以改變流感，達菲和冠狀病毒等的遊戲規則。羥氯喹可以殺死一個行業而不僅僅是一個病毒！
+
+天哪，羥氯喹這麼厲害嗎？我現在完全不信任那些製藥廠，我完全相信很多病一直得不到清除是因為有巨大的利益驅使， CCPVirus 說明了一切！
+
+> Urso(医学）博士：羟氯喹几乎是所有RNA病毒的疫苗！😱
+> 这几乎可以改变流感，达菲和冠状病毒等的游戏规则。羟氯喹可以杀死一个行业而不仅仅是一个病毒！
+> 
+> 天哪，羟氯喹这么厉害吗？我现在完全不信任那些制药厂，我完全相信很多病一直得不到清除是因为有巨大的利益驱使， [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) 说明了一切！ [https://t.co/LnSOCKKtLS](https://t.co/LnSOCKKtLS)
+> — 黄鹤楼大厨 (@GuoWarriors) [October 7, 2020](https://twitter.com/GuoWarriors/status/1313839242145984517?ref_src=twsrc%5Etfw)
+
+10/7 川普總統週三在橢圓辦公室前面發表講話，他誓言要讓美國人得到跟總統一樣的治療，因為染病是中國的錯。中國將為拖累美國而付出代價。中國將會為拖累全球而付出代價。這是中國的錯，記住這一點！川普感染病毒後發自內心的感受：找中共算帳！他的話已經很明確了！中共這回只有滅亡這一條路了！
+
+> 10/7 川普总统周三在椭圆办公室前面发表讲话，他誓言要让美国人得到跟总统一样的治疗，因为染病是中国的错。中国将为拖累美国而付出代价。中国将会为拖累全球而付出代价。这是中国的错，记住这一点！川普感染病毒后发自内心的感受：找中共算帐！他的话已经很明确了！中共这回只有灭亡这一条路了！ [pic.twitter.com/coaQMTFt57](https://t.co/coaQMTFt57)
+> — 西行小宝 (@htommy998) [October 8, 2020](https://twitter.com/htommy998/status/1314079255211380736?ref_src=twsrc%5Etfw)
+
+班農先生：
+
+CCPVirus 來自武漢實驗室，或者通過非法生物武器研發項目，或者來自功能性增強實驗的出錯。
+
+CCP 對此撒謊直到1月下旬，從而導致全球傳播。這是種族滅絕。
+
+> 班农先生：[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) 来自武汉实验室，或者通过非法生物武器研发项目，或者来自功能性增强实验的出错。[#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) 对此撒谎直到1月下旬，从而导致全球传播。这是种族灭绝。[#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/rvjUjSgTo4](https://t.co/rvjUjSgTo4)
+> — Catseye (@Catseye61972900) [October 8, 2020](https://twitter.com/Catseye61972900/status/1314092882886758400?ref_src=twsrc%5Etfw)
+
+看副總統辯論說中共那段，賀錦麗不敢說一句批評中共的話。反而說川普總統對中共的貿易戰傷害了美國的工作，經濟。
+
+疫情的一切都是川普總統的責任。
+
+如果拜登和她入駐白宮，相當於把習近平的頭像掛在白宮正中央。
+
+> 看副总统辩论说中共那段，贺锦丽不敢说一句批评中共的话。反而说川普总统对中共的贸易战伤害了美国的工作，经济。
+> 疫情的一切都是川普总统的责任。
+> 如果拜登和她入驻白宫，相当于把习近平的头像挂在白宫正中央。
+> — 冠军的亲爹(冠博士) (@Guan\_PhD) [October 8, 2020](https://twitter.com/Guan_PhD/status/1314068296745000961?ref_src=twsrc%5Etfw)
+
+朱利安尼向全人類公佈了最正確的答案：中國共產黨用COVID-19給它自己送終，它是它自己最合格的掘墓人
+
+> 朱利安尼向全人类公布了最正确的答案：中国共产党用COVID-19给它自己送终，它是它自己最合格的掘墓人🤣 [pic.twitter.com/1SAJ3fHANh](https://t.co/1SAJ3fHANh)
+> — 安红橘绛轩 (@maryann\_3040) [October 6, 2020](https://twitter.com/maryann_3040/status/1313540395687579648?ref_src=twsrc%5Etfw)
+
+We thank everyone for the TaiwanNationalDayFlag of Taiwan wishes we have received from around the world. On this day, we celebrate our nation’s hard-earned freedoms & democratic achievements. We invite you to join us here at @iingwen & show that you too are ProudOfTaiwan .
+
+> We thank everyone for the [#TaiwanNationalDay](https://twitter.com/hashtag/TaiwanNationalDay?src=hash&amp;ref_src=twsrc%5Etfw)🇹🇼 wishes we have received from around the world. On this day, we celebrate our nation’s hard-earned freedoms & democratic achievements. We invite you to join us here at [@iingwen](https://twitter.com/iingwen?ref_src=twsrc%5Etfw) & show that you too are [#ProudOfTaiwan](https://twitter.com/hashtag/ProudOfTaiwan?src=hash&amp;ref_src=twsrc%5Etfw). [pic.twitter.com/62ght5cvGd](https://t.co/62ght5cvGd)
+> — 蔡英文 Tsai Ing-wen (@iingwen) [October 8, 2020](https://twitter.com/iingwen/status/1314141895166029824?ref_src=twsrc%5Etfw)
+
+牆內咨訊
+
+- 10.8. 參考消息近70國就涉港涉疆問題力挺中國！
+據新加坡《聯合早報》網站10月7日報導，中國外交部發言人華春瑩指出，近70國在第75屆聯合國大會第三委員會發言，支持和呼應中方立場，再次表明，公道自在人心。少數西方國家借涉港、涉疆問題抹黑中國的企圖再次以失敗告終。
+華春瑩表示，巴基斯坦代表55國就涉港問題做共同發言，古巴代表45國就涉疆問題做共同發言，支持中方在涉港、涉疆問題上的立場和舉措。這些國家認為，中國製定和實施香港特區維護國家安全法有利於“一國兩制”行穩致遠，有利於維護香港的繁榮和穩定，香港廣大居民的合法權利和自由也可在安全環境下得到更好保障。這些國家讚賞中國新疆依法採取一系列措施，應對恐怖主義和極端主義威脅，保障新疆各族人民人權。這些國家強調，不干涉主權國家內政是《聯合國憲章》重要原則，堅決反對將人權問題政治化和雙重標準做法，反對對中國進行無端指責和無理干涉。
+華春瑩指出，這些正義呼聲再次表明，公道自在人心。少數西方國家借涉港、涉疆問題抹黑中國的企圖再次以失敗告終。
+華春瑩強調，人權保障沒有最好，只有更好。各國首先應是做好自己的事情。一些西方國家自身人權劣跡斑斑，難民問題久拖不決、人道主義危機屢屢上演，種族主義、極端主義、少數族裔問題抬頭，反猶太、反穆斯林、反非洲後裔的言論和惡性事件頻頻發生，動輒對別國採取經濟封鎖、金融制裁等單邊強制措施，嚴重侵犯他國基本人權，他們有什麼資格對其他國家的人權狀況說三道四？中方絕不接受人權“教師爺”，反對搞“雙重標準”。
+
+
+*簡評：新聞又是引用大外宣，出口轉內銷模式。假大空騙的手段，想矇騙世人。一切辯駁都是那麼蒼白無力。前伊拉克的新聞發言人就是前車之鑑！*
+
+- 10.8. 環球網可怕！ “食腦蟲”正穿越美國
+
+
+美國疾病控制和預防中心(CDC)表示，“食腦蟲”正進一步“進軍”美國，且自2010年以來觀察到的統計數據顯示，“食腦蟲”在美有“顯著的北移趨勢” 。
+
+威脅還在？美國《新聞周刊》7日報導稱，“食腦蟲”正穿越美國向北遷移，而氣候變化可能是誘因……
+
+還記得9月底得克薩斯州環境質量委員會突然發出的緊急提醒嗎？當時，通知稱該州布拉佐斯波特水務局的供水系統中可能發現“食腦蟲”，隨後官方提醒該州十餘地區居民“不要用水”。雖然有關方面隨後確保了該水務局供水系統不存在安全問題，但事情顯然還沒完……《新聞周刊》10月7日報導稱，美國疾病控制和預防中心(CDC)表示，“食腦蟲”正進一步“進軍”美國，且自2010年以來觀察到的統計數據顯示，“食腦蟲”在美有“顯著的北移趨勢”。這種轉變可能是氣候變化的結果，因為氣溫升高可能會促使該生物向原本不利於其生存的區域演進。
+
+科普還表示，“福氏耐格里變形蟲”是一種“嗜熱生物”，這意味著它在高溫下生長，且喜歡溫暖的水。而談到產生的變化時，科普表示：“氣候變化可能是一個潛在的因素。”
+
+此外，喬治亞大學細胞生物學教授丹尼斯•凱爾(Dennis Kyle)也表示，氣候變化可能會增加感染“食腦蟲”的風險。該教授去年在接受《邁阿密先驅報》採訪時還表示：“我認為，毫無疑問，隨著氣候變化和氣溫升高，我們將會有更多病例和更多的接觸（案例）。”
+
+雖說確診病例較少，但“食腦蟲”帶來的風險巨大。據CDC此前數據，自20世紀60年代首次發現這種“食腦蟲”以來，美國145名已知確診病例，其中只有4人倖免於難……
+
+*簡評：嚇人的題目，在**CCP病毒肆虐的今天，想黑別人，轉移視線，減輕自己的受到全世界要求病毒壓力。也在嚇唬牆內民眾，美國危險別去，就是自己這裡好！*
+
+- 10.8. 環球網台媒：美軍機剛飛越海峽解放軍軍機就出現在台空域
+10月8日上午一架美國空軍MC-130J特種作戰飛機被曝由北向南飛越台灣海峽。台媒最新的報導稱，當天下午在美軍機飛越海峽之後，解放軍軍機也出現在台灣西南空域。
+據台灣親綠媒體“自由時報”10月8日報導，解放軍軍機於當天下午被記錄到出現在台灣西南空域。報導稱，根據記錄，10月8日下午2點58分，解放軍軍機進入台灣西南空域“防空識別區”，高度為3600米，台軍照例在空中警戒，並實施了所謂的“廣播驅離” 。對於此次出現的解放軍軍機型號，台媒分析稱按照高度判斷應當仍為運-8型反潛機。
+台媒還提到，10月8日上午有航空迷記錄到美軍的MC-130J特種飛機沿所謂的“海峽中線”由北向南飛行，美軍機上午剛走，解放軍軍機下午就出現在台灣西南空域。台媒此前的報導稱，根據記錄，美軍MC-130J特種作戰飛機於10月8日上午11點左右進入台灣海峽，由北向南沿著所謂“海峽中線”飛行，約12點30分左右完成任務離開。
+在9月24日國防部例行記者會上，國防部新聞局副局長、國防部新聞發言人譚克非大校表示，台灣是中國不可分割的一部分。解放軍在台海地區組織實兵演練，展現的是捍衛國家主權和領土完整的決心和能力，針對的是外部勢力干涉和極少數“台獨”分裂分子及其分裂活動。台民進黨當局置廣大台灣同胞的安危福祉於不顧，不斷挑動兩岸對立對抗，進行“謀獨”挑釁，危害台海和平穩定，這一圖謀注定不會得逞。如果“台獨”分裂勢力膽敢以任何名義、任何方式把台灣從中國分裂出去，我們必將不惜一切代價，堅決予以挫敗。
+*簡評：美軍機飛過海峽以後，下午PLA軍機才出現在台空域！怎麼不敢直接上前立即驅趕啊？看看又是決心又是能力的，都是嘴上功夫。 “紙老虎”稱呼輪到自己頭上了！*
 
 
 0

@@ -1,17 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 數據顯示:主要發達國家對中共國負面看法激增
-`2020-10-08 03:09 Ronald` [轉載自GNews](https://gnews.org/zh-hant/410143/)
+## 所有這些慶倖川普總統得冠狀病毒的都會受到懲罰和報應
+`2020-10-08 09:40 GM31` [轉載自GNews](https://gnews.org/zh-hant/410777/)
 
-內新聞:庚子       校對:天藍色獨角色
+郭先生在10月5日的G-TV直播中講到：“我一再說，共產黨一定不會收手的，共產黨一定會放所謂的他家族醜聞，來對付川普總統的，甚至一定會放病毒的。但是更讓人寒心的是竟然那麼多人興高采烈，恭喜川普得冠，並且對人家的女兒，對人家的孫女兒進行詛咒，希望也得上冠狀病毒。等有一天的時候，他們也會這麼對待我們，和對待我們的子孫，這叫共產黨病毒。爆料革命，新中國聯邦幹的最偉大的一件事情，就是把中國人跟共產黨分開。咱們國內現在這種愚蠢的被洗腦的同胞們，他在拉仇恨。看到國內這些網路資訊的時候，我真的心都碎了。他們都會受到懲罰和報應的。”
 
-據《Pew Research Center》一項延續了十幾年的研究（Unfavorable Views of China Reach Historic Highs in Many Countries）顯示:中共國在世界的負面影響達到歷史新高。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08023633/Screenshot_2020-10-08-14-22-15-300_Discord.png)
-尤其在中共應對新冠肺炎疫情及其蔓延方面受到了批評。在14個國家接受調查的人中，61%的人認為中共在應對疫情方面做得不好。
+*翻譯：【noraTina】 聽寫：【Jamie】【羅賓 Robin (文賓)】【一花一世界】*
+*字幕：【Rock小哥】 編輯：【GM31】視頻轉碼：【恒久忍耐】*
 
-對習近平不信任度也達到歷史最高。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08023649/Screenshot_2020-10-08-14-22-27-863_Discord.png)
-新聞引用： [https://www.pewresearch.org/global/2020/10/06/unfavorable-views-of-china-reach-historic-highs-in-many-countries/](https://www.pewresearch.org/global/2020/10/06/unfavorable-views-of-china-reach-historic-highs-in-many-countries/)
+*戰友之家玫瑰園小隊出品*
 
-0
+1
