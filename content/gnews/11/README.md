@@ -1,33 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【熱點播報】32名白宮感染名單震撼出爐！ ！
-`2020-10-08 18:35 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/411999/)
+## 中共拒絕履行香港協議，全世界必須予以反擊
+`2020-10-09 02:37 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/412651/)
 
-作者：美東香草山農場  正道主義聯盟
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08182523/108-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%9132%E5%90%8D%E7%99%BD%E5%AE%AB%E6%84%9F%E6%9F%93%E5%90%8D%E5%8D%95%E9%9C%87%E6%92%BC%E5%87%BA%E7%82%89%EF%BC%81%EF%BC%81-1-1.jpg)
+*新聞來源：Hong Kong Free Press 《香港自由新聞》；作者：；發佈時間：2020年10月4日*
 
+*翻譯/簡評：萬人往；校對：感恩；審核：InAHurry；Page：拱卒*
 
-戒備森嚴的白宮集體感染CCP病毒事件持續發酵，白宮32名感染名單震撼出爐！總統最親密身邊人基本毫無懸念被擊中！特別是貼身助理、新聞要員、競選團隊核心成員！
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08182554/108-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%9132%E5%90%8D%E7%99%BD%E5%AE%AB%E6%84%9F%E6%9F%93%E5%90%8D%E5%8D%95%E9%9C%87%E6%92%BC%E5%87%BA%E7%82%89%EF%BC%81%EF%BC%81-2.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/hzeAfJ8SPqCtz/images/0db6a5e6-8020-45e6-b55c-e9e7cdcea506.jpg?asset_id=d42b2851-c5ab-4b93-92c1-2fdff0a5a610&amp;img_etag=%229829f5909d4ccdef187850d2d34c6a9d%22&amp;size=1024)](https://spark.adobe.com/page/hzeAfJ8SPqCtz/images/0db6a5e6-8020-45e6-b55c-e9e7cdcea506.jpg?asset_id=d42b2851-c5ab-4b93-92c1-2fdff0a5a610&amp;img_etag=%229829f5909d4ccdef187850d2d34c6a9d%22&amp;size=1024)
 
+**簡評：**
 
-下表是已確認白宮感染名單列表:
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08182627/108-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%9132%E5%90%8D%E7%99%BD%E5%AE%AB%E6%84%9F%E6%9F%93%E5%90%8D%E5%8D%95%E9%9C%87%E6%92%BC%E5%87%BA%E7%82%89%EF%BC%81%EF%BC%81-3.png)
+中共建政以來，從未兌現任何承諾，踐踏民主、違背法治、撕毀合約、血洗香港，就算是白紙黑字的《中英聯合聲明》，已被中共說成歷史文件，不具備現實意義。
 
+97年香港“回歸”之時，中共信誓旦旦地說堅持一國兩制，50年不動搖。如今僅過去20多年，中共公然違背承諾，強行通過國安法，民主、法治、自由的香港進入了歷史上最黑暗的時期。在紅龍之爪的覆蓋下，香港手足被殘忍殺害、玷污、關押……曾經的東方之珠，被紅色恐怖籠罩。
 
-英文名單如下：
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08182727/108-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%9132%E5%90%8D%E7%99%BD%E5%AE%AB%E6%84%9F%E6%9F%93%E5%90%8D%E5%8D%95%E9%9C%87%E6%92%BC%E5%87%BA%E7%82%89%EF%BC%81%EF%BC%81-4.png)
+希望民主國家出台更多保護香港人的措施，讓更多香港手足安全轉移，保全日後重建香港的有生力量。沒有了中共，東方之珠會更加璀璨。
 
+**中共國拒絕履行其香港協議，全世界必須予以反擊**
 
-總統迅速康復後已經開始白宮的日常工作，可真正的白宮群體CCP病毒感染事件還沒有最終水落石出！總統昨天視頻中稱，FBI的負責人做的很不好！這句話留給大眾無數聯想！毫無疑問，總統昨天視頻中說：“我一定要讓中共對我的感染及由此帶來的對所有人的傷害付出沉重代價！”事件背後是否關聯更大陰謀？ ！
+中共國一直在對香港施以高壓，迫使香港居民逃離壓迫，這已不是什麼秘密。國安法對分裂國家、顛覆國家、恐怖主義和勾結外國勢力的犯罪最高可判處無期徒刑。
 
-期待有進一步感染名單中所有人員康復的好消息！
+中共在沒有徵求香港的意見的情況下，踐踏香港主權：習近平主席領導下的中共在6月份單方面通過了這項法律。這明顯違背了中共國政府承諾的“一國兩制”，而“一國兩制”是英國已移交香港主權的前提。 《中英聯合聲明》維持香港自治的願景本應持續到2047年。
 
+[!\[\]()!\[\](https://spark.adobe.com/page/hzeAfJ8SPqCtz/images/a7ebce73-53f1-49da-a008-761b49c43d20.jpg?asset_id=b41b8cbf-f0e0-429f-98ea-9daf9ea0bff3&amp;img_etag=%221e6d927dbef0381dc3bdbdb67d10c311%22&amp;size=1024)](https://spark.adobe.com/page/hzeAfJ8SPqCtz/images/a7ebce73-53f1-49da-a008-761b49c43d20.jpg?asset_id=b41b8cbf-f0e0-429f-98ea-9daf9ea0bff3&amp;img_etag=%221e6d927dbef0381dc3bdbdb67d10c311%22&amp;size=1024)圖片：Incendo工作室
 
+1997年，英國政府和中共達成移交協議，中共同意按照“一國兩制”的原則管理香港，香港將在未來50年享有高度自治權。國安法是表明北京方面對其曾承諾要遵守的協議改變了想法的一個更明確的表現。
 
-更多資訊，歡迎訂閱[美東香草山農場官方推特賬號](https://twitter.com/Mos_Himalaya)！
+這部法律的含糊不清不僅讓北京可以對香港施加更大的壓力，也為中共提供了提出模糊指控的權力，而這只會在香港市民心中灌輸恐懼。而且一些人已經被逮捕。
 
-[Tweets by Mos\_Himalaya](https://twitter.com/Mos_Himalaya?ref_src=twsrc%5Etfw)
+最近，12名年輕的活動人士因害怕受新安全法的影響，乘坐快艇逃離了香港，結果他們卻被中共國當局逮捕。他們在中共國大陸被拘留了一個多月，無法獲得法律代理。他們的被捕證實了香港人最擔心的事情。但是無論是香港還是世界其他地方的人，都不應該因為上街行使言論自由、向當權者講真話和批評政府而面臨終身監禁。
+
+這些新安全法的執行由中共國國家安全局負責。該局以刑訊逼供聞名，精心挑選忠於北京的法官，並首次在香港執法。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/hzeAfJ8SPqCtz/images/1fe3350a-80f1-44a2-9233-508fb47286a2.jpg?asset_id=62b25071-a842-4fc7-85f5-4f5a9cc3f1ff&amp;img_etag=%223b4c7e9491b0d7dcda8d569af90e353f%22&amp;size=1024)](https://spark.adobe.com/page/hzeAfJ8SPqCtz/images/1fe3350a-80f1-44a2-9233-508fb47286a2.jpg?asset_id=62b25071-a842-4fc7-85f5-4f5a9cc3f1ff&amp;img_etag=%223b4c7e9491b0d7dcda8d569af90e353f%22&amp;size=1024)資料圖片：香港政府
+
+對於經歷過自由和民主的香港人來說，強加於他們的壓迫制度不是一種選擇。很明顯，根據他在重塑與香港關係方面的行動，習近平政權從未打算履行其保留香港的高度自治和政治自由直到2047年的承諾。
+
+由於擔心自己的生命安全，香港人別無選擇，只能逃離家園。為適應這種混亂局面，澳大利亞、英國、越南、菲律賓、新加坡、台灣和美國都出台了措施以幫助那些尋求重新定居的人。在國安法生效之日，台灣設立了一個辦事處來幫助香港人。美國和英國等國已採取措施，降低獲得公民身份的難度。所有這些措施都是正確的。
+
+“一國兩制”的破壞和一個自治香港的消亡，是每個人都應該關心的問題。這部國安法是最後一根稻草，美國必須與國際社會堅定地站在一起反對中共。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/hzeAfJ8SPqCtz/images/f33fed0f-2423-44d8-9e74-8bbca2b9c7e1.jpg?asset_id=b0cf8caa-3f09-4af2-badb-aa0e594ab64f&amp;img_etag=%22cd0cb7a1b8a16b4473b63a0e399247d8%22&amp;size=1024)](https://spark.adobe.com/page/hzeAfJ8SPqCtz/images/f33fed0f-2423-44d8-9e74-8bbca2b9c7e1.jpg?asset_id=b0cf8caa-3f09-4af2-badb-aa0e594ab64f&amp;img_etag=%22cd0cb7a1b8a16b4473b63a0e399247d8%22&amp;size=1024)邁克·彭佩奧資料圖片：美國政府
+
+美國國務卿邁克·彭佩奧發表聲明稱，美國不再承認香港是中共國的自治城市。由此引發的北京方面的強烈反對，只能證明中共意圖利用香港作為傀儡來維護其霸凌議程。很明顯，中共不顧國際社會的譴責或強烈反對，正在迅速行動以實現其領土野心。
+
+英國移交香港的條件是明確的。北京違反了這一協議，北京必須對其承諾負責。中共必須改變路線，以避免對日益加劇的香港動盪以及對國際社會，特別是對美中關係造成不可挽回的損害。中共對那些將支持香港的人發起威脅、實施霸凌措施，國際社會必須團結起來反對中共。
+
+我們今天看到的香港已經和以前完全不一樣了，“一國兩制”被強行變成了“一國一制”。我們需要拒絕共產黨最近的行動，並讓北京為其對香港的行動承擔後果。
+
+事實是，習主席和中共無法與品嚐過自由、思想自由和自治的人在一起共存。美國必須繼續與香港人站在一起,與我們的盟友一起對北京施壓來遵守過去的協議。現在是時候共同努力，抵制北京的不正當手段，保護香港人民了。
+
+[原文鏈接](https://hongkongfp.com/2020/10/04/world-must-push-back-against-chinas-refusal-to-honour-its-hong-kong-deal/)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/hzeAfJ8SPqCtz/) -點擊spark adobe版
 
 0

@@ -1,15 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## #快訊# 英國研究表明：四分之三CCP病毒感染者為無症狀感染
-`2020-10-08 21:27 shangshang` [轉載自GNews](https://gnews.org/zh-hant/412225/)
+## 文貴說｜系列圖片連載（十三）
+`2020-10-09 04:23 GM98` [轉載自GNews](https://gnews.org/zh-hant/412857/)
 
-內病毒專題:文文 校對:天藍色獨角色
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08211558/EDB5AFDB-2347-4745-83ED-2B4677BE45C6.png)
-10月8日《Clinical Epidemiology》發表了來自於英國倫敦學院研究人員的研究結果，其結果表明有76.5%的新冠陽性患者都是無症狀感染者，其比例大大高於普通人的認知，現有的通過臨床症狀（咳嗽、發熱、味覺/嗅覺不靈）進行篩查的方式將會難以發現大量的感染者，對疫情防控不利。
+## 85.
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/09040718/05.jpg)
+戰友們不要著急，讓子彈飛一會兒。
 
-研究者分析了英國36,061名接受新冠病毒檢測的案例結果（4月26日～6月27日）,其中625人（1.7%）在試驗當天報告了症狀。SARS-CoV-2檢測陽性115例（0.32%）,在這115人中，有27人（23.5%）在試驗當天有症狀，88人（76.5%）在試驗當天沒有症狀。針對那些有特殊症狀（咳嗽、发热和/或味觉/嗅觉丧失）的患者，在试验当天有158例（0.43%）出现此类症状。在115例SARS-CoV-2阳性者中，有16例（13.9%）报告有症状。相比之下，99例（86.1%）在试验当天没有报告具体症状。所有症状的PPV为4.3%，特定症状的PPV为10.1%。症状的特异性和NPV均在98%以上。
+——郭文貴先生2017年6月30日
 
-參考文章：Three Quarters of People with SARS-CoV-2 Infection are Asymptomatic: Analysis of English Household Survey Data，Clinical Epidemiology ，8 October 2020 Volume 2020:12 Pages 1039—1043
+## 86.
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/09040852/04.jpg)
+沒有行動的任何承諾都是欺騙! 任何的千言萬語不如一個行動。
+
+——郭文貴先生2017年6月26日
+
+## 87.
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/09040911/08.jpg)
+30年，我從來沒忘了，我一輩子就是來滅共的，我有這個能力，我有這個決心，我不會放棄！
+
+——郭文貴先生2020年6月20日
+
+## 88.
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/09040931/07v.jpg)
+人類的貨幣未來一定是以虛擬貨幣為主，絕不是你美元、人民幣、英鎊、瑞郎，不可能！
+
+——郭文貴先生2020年6月20日
+
+## 89.
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/09041000/06v2.jpg)
+佛家講的很清楚，貪、嗔、痴、慢、疑，那都是一種貪名，貪名之人是最可憐的，還有貪權之人，那更可憐，百年以後都成黃土，有什麼意思啊。
+
+——郭文貴先生2017年5月21日
+
+## 90.
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/09041047/05v1.jpg)
+我再給戰友們說，有錢能搬騰得出來趕快搬騰出來，能離開大陸的離開大陸，能離開香港的離開香港。整個共產黨的一切都將灰飛煙滅、土崩瓦解，這70年的噩夢該醒來了！
+
+——郭文貴先生2020年6月16日
+
+## 91.
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/09041120/04v1.jpg)
+戰友們千萬記住，這個世界上最可怕的事情就是你沒有你自己。人家說東你就東，人家說西你就說西。
+
+——郭文貴先生2020年6月20
 
 0
