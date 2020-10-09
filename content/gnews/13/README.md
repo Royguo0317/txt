@@ -1,29 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 一張圖簡介英雄科學家閆麗夢博士第二篇科學報告
-`2020-10-08 14:11 vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hant/411706/)
+## 【熱點播報】32名白宮感染名單震撼出爐！ ！
+`2020-10-08 18:35 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/411999/)
 
-![Image](https://pbs.twimg.com/media/EjzySnVWAAInXLR?format=jpg&amp;name=900x900)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08140105/image-54.png)
-閆博士報告一針見血指出：SARS-CoV-2病毒是中共超限戰的生物武器，該病毒確實符合楊瑞夫博士所描述的生物武器標準。
+作者：美東香草山農場  正道主義聯盟
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08182523/108-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%9132%E5%90%8D%E7%99%BD%E5%AE%AB%E6%84%9F%E6%9F%93%E5%90%8D%E5%8D%95%E9%9C%87%E6%92%BC%E5%87%BA%E7%82%89%EF%BC%81%EF%BC%81-1-1.jpg)
 
-楊博士是軍事醫學科學院(AMMS)的任命，也是中國國家和軍事的重要成員生物恐怖主義應對顧問小組，並於1998年年參加了對伊拉克生物武器的調查程序作為成員的聯合國特別委員會（特委會）。
 
-```
- 2005年楊博士規定了病原體符合生物武器標準：
-1.有極強的毒性，可造成大規模人員傷亡。
-2.它具有極強的傳染性，很容易傳播，通常以氣溶膠形式通過呼吸道傳播。最危險的情況是它會允許人與人之間的傳播。
-3.相對抗環境變化，可以維持運輸，並且能夠支持目標發布。
-```
+戒備森嚴的白宮集體感染CCP病毒事件持續發酵，白宮32名感染名單震撼出爐！總統最親密身邊人基本毫無懸念被擊中！特別是貼身助理、新聞要員、競選團隊核心成員！
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08182554/108-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%9132%E5%90%8D%E7%99%BD%E5%AE%AB%E6%84%9F%E6%9F%93%E5%90%8D%E5%8D%95%E9%9C%87%E6%92%BC%E5%87%BA%E7%82%89%EF%BC%81%EF%BC%81-2.jpg)
 
-閆博士報告解釋道：一方面當前的中共病毒大流行不是偶然結果，首批受害者是中國人民，特別是武漢。另一方面是中共對該生物武器人與人傳播效率的最終驗證。
 
-閆博士報告呼籲：必須採取行動與當前的大流行作鬥爭並拯救人類的未來。現在是時候了，世界聯合徹查病毒真相，並採取措施挽救人類的未來！
+下表是已確認白宮感染名單列表:
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08182627/108-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%9132%E5%90%8D%E7%99%BD%E5%AE%AB%E6%84%9F%E6%9F%93%E5%90%8D%E5%8D%95%E9%9C%87%E6%92%BC%E5%87%BA%E7%82%89%EF%BC%81%EF%BC%81-3.png)
 
-更多詳情請下載閆博士報告：
 
-[The-2nd-Yan-Report-5](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08140811/The-2nd-Yan-Report-5.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08140811/The-2nd-Yan-Report-5.pdf)
+英文名單如下：
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08182727/108-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%9132%E5%90%8D%E7%99%BD%E5%AE%AB%E6%84%9F%E6%9F%93%E5%90%8D%E5%8D%95%E9%9C%87%E6%92%BC%E5%87%BA%E7%82%89%EF%BC%81%EF%BC%81-4.png)
 
-內新聞：背靠背
+
+總統迅速康復後已經開始白宮的日常工作，可真正的白宮群體CCP病毒感染事件還沒有最終水落石出！總統昨天視頻中稱，FBI的負責人做的很不好！這句話留給大眾無數聯想！毫無疑問，總統昨天視頻中說：“我一定要讓中共對我的感染及由此帶來的對所有人的傷害付出沉重代價！”事件背後是否關聯更大陰謀？ ！
+
+期待有進一步感染名單中所有人員康復的好消息！
+
+
+
+更多資訊，歡迎訂閱[美東香草山農場官方推特賬號](https://twitter.com/Mos_Himalaya)！
+
+[Tweets by Mos\_Himalaya](https://twitter.com/Mos_Himalaya?ref_src=twsrc%5Etfw)
 
 0
