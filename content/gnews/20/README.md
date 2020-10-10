@@ -1,15 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 1,500 黃店響應「全民感謝日」　籲支持民間小店　望續關注 12 港人
-`2020-10-09 21:48 shangshang` [轉載自GNews](https://gnews.org/zh-hant/414113/)
+## 【世界多語言圖文】2020/10/02-03 CCP病毒每日疫情直播簡報
+`2020-10-10 10:23 GM62` [轉載自GNews](https://gnews.org/zh-hant/415796/)
 
-作者：vog尚
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/09211347/AC134AE8-0FFA-4497-8678-1084E4E9799D.png)
-新聞來源：立場新聞
+戰友之家圖文摘要及小語種組
 
-反送中運動衍生出「黃店」概念，不少支持運動的市民都提倡多去「黃店」，抵制「藍店」，組成「黃色經濟圈」。運動爆發至今已超過 1 年，有商戶在網上呼籲本周末（10、11 日）發起「全民感謝日」，組織黃店推出促銷活動，至今全港已經有超過 1,500 間黃店響應。感謝日團隊亦已經印製了 10 萬張文宣卡，呼籲市民繼續留意「12 港人事件」。
+[251-252\_English\_10.2-10.3\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10101715/251-252_English_10.2-10.3_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10101715/251-252_English_10.2-10.3_CCP_Virus_Updates.pdf)
 
-原文鏈接：[https://www.thestandnews.com/politics/1-500-黃店響應-全民感謝日-籲支持民間小店-望續關注-12-港人/](https://www.thestandnews.com/politics/1-500-黃店響應-全民感謝日-籲支持民間小店-望續關注-12-港人/)
+[251-252\_French\_10.2-10.3\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10101720/251-252_French_10.2-10.3_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10101720/251-252_French_10.2-10.3_CCP_Virus_Updates.pdf)
+
+[251-252\_German\_10.2-10.3\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10101726/251-252_German_10.2-10.3_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10101726/251-252_German_10.2-10.3_CCP_Virus_Updates.pdf)
+
+[251-252\_Japanese\_10.2-10.3\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10101731/251-252_Japanese_10.2-10.3_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10101731/251-252_Japanese_10.2-10.3_CCP_Virus_Updates.pdf)
+
+[251-252\_Spanish\_10.2-10.3\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10101710/251-252_Spanish_10.2-10.3_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10101710/251-252_Spanish_10.2-10.3_CCP_Virus_Updates.pdf)
+
+
 
 0

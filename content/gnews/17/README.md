@@ -1,15 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 10/9同聲傳譯閆麗夢博士接受印度媒體NDTV採訪
-`2020-10-09 22:34 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/414151/)
+## 每日政要Twitter播報(中文) 10/07期(視頻+ PDF下載)
+`2020-10-10 11:48 GM62` [轉載自GNews](https://gnews.org/zh-hant/416006/)
 
-**NDTV是在印度和國外製作和廣播中立且全面的新聞和娛樂節目的知名媒體。 2020年10月9日閆麗夢博士接受了印度媒體NDTV採訪。**
+撰稿記者：宠宝⻉(文宠)、CYC文颖、尘凡3、本來、喜马拉雅2020、⽯头
+校對:Magician⽂⼼
+播⾳：⼤脚印
 
-中國病毒學家閆麗夢博士在武漢初次爆發期間調查了COVID-19病毒的起源，並稱COVID-19病毒為中共實驗室製造而震驚世界，現已發表第二篇論文。香港公共衛生學院前研究員閆麗夢博士表示，這種病毒是通過融合兩種蝙蝠冠狀病毒的遺傳物質而構建的。
-
-
-
-####  **By：【秘密翻譯組G-Translators】**
+[每日推文10-07-pdf](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10114313/10-07Magician-pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10114313/10-07Magician-pdf.pdf)
 
 0

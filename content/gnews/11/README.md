@@ -1,25 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中法文視頻版】2020/10/01 CCP病毒每日疫情直播簡報
-`2020-10-09 23:43 GM62` [轉載自GNews](https://gnews.org/zh-hant/414251/)
+## 論10/1/2020全球喜馬拉雅農場TAKE DOWN CCP的大遊行是爆料革命滅共行動的重要時刻
+`2020-10-10 12:16 旧金山农场 Himalaya SF` [轉載自GNews](https://gnews.org/zh-hant/416053/)
 
-法語標題 Sur la pandémie du virus du PCC Ep250: la pénurie alimentaire apparaît et s’aggrave au Sichuan.
+喜馬拉雅聯盟舊金山農場
 
+作者：文罡
 
+配圖：文罡, Amos文也
 
-1. 香港《南華早報》網站9月27日報導：中共要求美駐港外交官與任何民間組織成員會面前，必須得到中共外交部批准。
-2. 新浪宣布退市納斯達克：隨著美國對中共在美上市企業的調查，中概股紛紛退出美國股市。
-3. 湖北武漢民眾視頻揭露中共病毒之惡：家破人亡，新冠肺炎帶走了這間房全家人命。武漢究竟死了多少人？在推翻邪惡的共產黨之前，都會是個謎。
-4. 每日經濟新聞：四川糧食存在缺口且矛盾突出，特別是新冠肺炎疫情發生後，全球糧食供需矛盾凸顯。四川立法鼓勵“藏糧於民”，明確鼓勵餐飲企業、食堂及城鄉家庭，根據需求儲存一定數量的口糧。
-5. （9/24，Miles Guo）整個美洲嚴格講全世界共產黨間諜最多的五大機構之一的其中之一就是紐約。這你能看出來三年前我們陳氏兄弟給我們的絕密文件，給我們的文件，是不是真實的。現在證明了吧。蓬佩奧國務卿親自證實紐約是共產黨最大的間諜基地。
+校對：Amos文也
 
+## **爆料革命篇**
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10131914/Screenshot-from-2020-10-10-10-16-52.png)
+郭文貴先生倡導並發起的爆料革命（告密者運動）是自從2017年4月19日美國之音斷播門之後開始的。郭先生本來想告訴美國，中共要用一點，甚至零成本來搞死美國，搞亂美國的3F計劃，但是VOA（美國之音）卻沒有讓郭先生繼續下去，而是中途突然停止，郭文貴先生只好把已經準備好的文件撕毀，扔進了衛生間的馬桶沖走了，但是仍然告訴大家，黑暗時代已經到來，讓大家做好準備。當時沒有人知道這意味著什麼？郭文貴先生早就知道中共的P3和P4實驗室在研究病毒，而且軍方也參與了！還有毒品芬太尼！還有假美鈔搞亂美國金融市場！他們想用幾乎是零成本的方式搞亂整個世界，進一步統治全人類！
 
-1. Le South China Morning Post de Hong Kong a rapporté sur son site web le 27 septembre que le Parti Communiste Chinois (PCC) exige que les diplomates américains à Hong Kong doivent obtenir l’approbation du ministère des Affaires étrangères du PCC avant de rencontrer des membres d’organisations civiles.
-2. SINA annonce la radiation du NASDAQ : les actions chinoises se sont retirées du marché boursier américain alors que les États-Unis enquêtent sur les sociétés du PCC cotées aux États-Unis.
-3. Une vidéo expose le mal du virus du PCC à Wuhan, province du Hubei : la famille est détruite, cette pandémie prend la vie de toute la famille. Combien de personnes sont mortes à Wuhan à cause du virus du PCC ? Cela restera un mystère jusqu’à ce que le PCC pervers soit renversé.
-4. Selon les médias du PCC, la pénurie alimentaire apparaît et s’aggrave au Sichuan, surtout après l’apparition de la pandémie du virus du PCC, qui reflète également l’écart entre l’offre et la demande alimentaires mondiales. Le gouvernement du Sichuan a légiféré pour encourager la population à « stocker la nourriture pour elle-même », encourageant explicitement les entreprises de restauration, les cantines et les ménages urbains et ruraux à stocker une certaine quantité de rations alimentaires en fonction de la demande.
-5. (le 24 sept., Miles Guo) En Amérique du Nord, et à proprement parler dans le monde entier, le consulat général de New York est l’une des cinq principales agences d’espionnage du PCC. Vous pouvez y voir si les dossiers top secrets que les frères Chen nous ont donnés il y a trois ans et les dossiers de nos alliés étaient authentiques ou non. Ils sont avérés vrais maintenant, n’est-ce pas ? Le secrétaire Pompeo a lui-même confirmé que le consulat général du PCC à New York est le plus grand centre d’espionnage du PCC.
+郭文貴先生使用在商場上多年積累的經驗和人脈，成立了喜馬拉雅大使館並建立了法制基金和法治社會，班農先生和凱爾巴斯先生是郭文貴先生的好朋友，也是法制基金和法治社會的前董事。班農先生的戰斗室一直在為中國人民發聲，從他口裡說的老百姓聽起來是多麼地親切，就連班農先生99歲的老父親也出現在路德採訪中並祝我們完成滅共使命，令人感到非常地感動！經曆三年的苦心經營，聯合了美國最重要的組織和力量，結成連續的聯盟和紐帶，從美國內部瓦解了中共在美國佈局多年的錯綜複雜的美國司法部於暗網，並且告訴美國中共的五個武器：社交媒體，經濟，美元，生化武器，化學武器和宣傳機器；美國的社交媒體，華爾街，好萊塢，矽谷與中共勾兌，從而殺害言論自由。 2020年8月17日日在夏威夷聯邦地區法院已經立案（司法部文件20-cr-0068-LEK），就尼基·盧姆·戴維斯（Nickie Lum Davis）同意於普拉·米歇爾和艾略特·布羅迪（Elliott Broidy）特左有關的數百萬美金的密碼電匯兌，企圖遊說美國總統和政府放棄對壹馬基金的調查和遣返郭文貴先生！這就是爆料革命的力量！現在全世界越來越多的政府和人民真正地認清楚中國共產黨是一個邪惡組織！消滅聯盟是正義的需要！
 
+## **香港反送中運動篇**
+
+香港反對《逃犯條例修訂草案》運動反引渡法修正案法案運動是指香港自2019年3月15日開始，6月19日大規模爆發的社會運動。此次運動沒有統一的領導，主要以社交媒體的方式組織，運動支持者以遊行示威，集會，靜坐，唱歌，吶喊，“三罷”行動，設置連儂牆等各種行為向香港行政區政府抗議其提出的《逃犯條例》修訂草案，五大訴求：全面修訂《逃犯條例》修訂草案；撤回示威“暴動”定性；取而代之的是捕捕示威者控罪；成立獨立調查委員會，追究警隊濫用武力；實現“真雙普選”。運動中出現了“光復香港，時代革命”的口號。2019年3月31日，民陣發起了第一次反送中大遊行，主辦單位估計有1萬2千人參加。2019年6月11日晚間起，部分香港市民在金鐘，中環自發集會，要求香港政府撤逃犯修訂條例，警方發射近150枚催淚彈，20發布彈鉛彈，數發橡膠子彈鎮壓，逾80人受傷。還有幾名身穿白衣人，疑是黑社會成員，伏擊遊行回來的市民，他們手持木棒，對市民拳打腳踢。2019年8月18日在維園，銅鑼灣和天后一帶，共170人參加流水式集會。2019年8月31日，警方用水泡車發射有顏色水柱，方便警方抓捕捕捕威威者，晚間在太子站，大批警察和速龍小隊沖進地鐵站抓捕示威者，一路衝進車廂內用警棍和胡椒噴霧攻擊市民。2019年11月19日至20日，美國眾議院和參議院通過《香港人權與民主法案》！中國全國人民代表大會制定的《香港國安法》於2020年6月30日晚生效，也使美國宣布取消對香港特殊規定被無辜抓捕香港的年輕人，有的被秘密隱藏了大陸，有的被跳樓，被在海裡淹死，被無故消失！香港是我們的聖城！我們的耶路撒冷！香港的反送中運動開啟了滅共的第一道大門！
+
+## **病毒真相篇**
+
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10131847/Screenshot-from-2020-10-10-10-17-24.png)
+
+閆麗夢博士是擁有PHD和MD的雙博士，曾經在香港P3實驗室工作而且還是WHO的聯絡人。由於爆料革命一貫堅持為真不破的理念，加上路德辛勤地工作，在中國武漢封城之前，閆麗夢博士就聯繫路德社爆料關於COVID-19的病毒來源：實驗室製造的，人傳人，強變異和大爆發。中共軍方從舟山病毒身上發現並分離的新型冠狀病毒，在美國國立衛生9月28日閆麗夢博士接受倫敦Real採訪說COVID -19是SARS-1的增強版，而且高速變異很難研究出高效的疫苗，和中共實驗室不同的病毒和更多的毒株被釋放出來，病毒涉及我們每一個人的安全留給我們人類的日子不多了
+
+## **以美滅共！以法滅共！以共滅共！全球滅共篇**
+
+2020年9月28日美國國務卿蓬佩奧接受FOX採訪認為中共是美國的最大威脅，不再對中共國網開一面，並建立所有的經濟槓桿來保障衝擊在結束對中共國綏靖政策之後，並且聯合全球對抗中共！美海軍中隊的徽章暗示著即將斬首中共，順便配上了兩張霸氣的MQ-9飛行照片，美國即將開始南海島礁的強拆，關閉紐約總領事館，關閉作為洗錢中心美國已經遣返部分有國會背景，正在學習敏感的專業的中共國留學生，也停止中共黨員及其家屬申請美國國籍和調查一些持有美國綠卡和國籍而是為中共國工作的偽類們！川普總統的私人律師，前紐約市長朱利安尼正在使用RICO法案製裁CCP！在南海，以美國軍事力量為核心的並集結了周圍國家和地區的軍事力量對中共形成了包圍。消滅聯盟的日子指日可待！
+
+滅共是正義的需要！
 
 0

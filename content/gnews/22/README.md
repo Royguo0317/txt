@@ -1,28 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【軍事快評】中共翼龍-2遠遜美軍MQ-9，何談領銜無人機戰爭？
-`2020-10-09 20:57 公民之聲` [轉載自GNews](https://gnews.org/zh-hant/414076/)
+## 【世界多語言文字版】閆麗夢博士第二份重磅報告全文翻譯
+`2020-10-10 10:14 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/415807/)
 
-內新聞：鷹(文言) 素材：文朝汗（部落） 校對：雅典娜的聖鬥士(沙加)
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/09113513/3507-ipfprtp6240061.jpg)
-鳳凰網10月9日刊文稱：中共國制造的翼龍-2在利比亞內戰中成功壓制土耳其的TB2無人機，性能和實力早已名聲在外。
+### **新型冠狀病毒COVID-19是中共超限生物武器**
 
-雖然中共黨媒十分推崇翼龍-2，但其戰鬥力卻遠遜於美軍的MQ-9死神無人機。因翼龍-2和MQ-9死神無人機的大小和外觀相近，均為非隱身無人機，所以戰鬥力主要體現在載荷、航速和航距上。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/09113625/image0-21.jpg)*翼龙-2*
-翼龍-2擁有兩個外掛點，可攜帶約480kg的武器彈藥，具備載荷約200kg的內部彈艙，於2016年11月首次亮相航展，並於2017年2月首飛。在近期9月29日的通信保障任務中，航速約250km/h，此次任務航時約20h。
-
-MQ-9死神無人機於2009年首飛，空重2223kg，最大起飛重量4760kg，負載可高達2.5噸，接近翼龍-2負載的3.5倍，巡航速度在276-313km/h，最大航速更是高達482 km/h，最大航距3218km，滿載續航時間為14h。在近期的壹次軟件升級中，MQ-9殺傷力翻倍，可攜帶8枚AGM-114地獄火導彈。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/09113647/20180919004737.jpg)*MQ-9死神*
-對比翼龍-2寥寥無幾的參戰記錄，MQ-9的戰績可謂是碩果累累，其最近的壹次斬首行動更是震懾全世界的宵小之徒。2020年1月3日，MQ-9共發射4枚導彈，斬首伊朗二號人物蘇萊曼尼，壹舉將伊朗軍事擴張的野心扼殺在繈褓中。
-
-中共最先進的翼龍-2無人機跟MQ-9之間存在巨大差距，更何談引領無人機戰爭。而今MQ-9已經服役10多個年頭，將逐步退出現役，被美軍的隱身無人機等更加先進的“斬首”機取代。
-
-隨著爆料革命對CCP病毒真相的揭露，距美國官方將此次大流行定義為生物武器戰爭已經不遠。待中共被定為非法犯罪集團，迎接中南坑耗子們的，將是數不盡的“舉頭三尺無人機”。
-
-新聞來源：
-
-[翼龍領銜“無人機戰爭”？將帶給中國重大機遇和挑戰](https://mil.ifeng.com/c/80PX3w1pjCB)
-[國產翼龍-2無人機首次完成應急救援通信保障實戰演練](https://3w.huanqiu.com/a/564394/40D7z964PCB)
+#### 【**[英文原文報告PDF](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08093901/The-2nd-Yan-Report-3.pdf)**】【**[中文全文翻譯PDF](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10100300/%E9%97%AB%E5%8D%9A%E5%A3%AB%E7%AC%AC%E4%BA%8C%E4%BB%BD%E6%8A%A5%E5%91%8A%E4%B8%AD%E6%96%87%E7%89%88V2-1.pdf)**】【**[西班牙語全文翻譯PDF](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095025/%E3%80%90Espan%CC%83ol%E3%80%91The-2nd-Yan-report.pdf)**】
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093158/2-_1.png)
+**免責聲明：**本文系閆麗夢博士第二份科學報告之中文翻譯，僅供參考。某些專業術語的中文可能與您日常聽到的、或採用的略有出入，但不影響本翻譯的基本正確性。若本翻譯稿與英文原版有任何衝突或不一致的地方，請以[英文版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08093901/The-2nd-Yan-Report-3.pdf)為準。
+ — 秘密翻譯組G-Translators
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10092614/0001-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10092633/0002-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10092656/0003-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10092713/0004-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093217/0005-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093233/0006-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093249/0007-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093304/0008-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093348/0009-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093405/0010-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093426/0011-5-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093453/0012-3-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093510/0013-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093528/0014-3-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093545/0015-4-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095035/0016-4-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095054/0017-2-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093758/0018-3-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095126/0019-2-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095257/Screen-Shot-2020-10-10-at-11.52.26-pm.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095159/0021-2-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093819/0022-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095403/0023-3-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093837/0024-2-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095434/0025-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093852/0026-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095505/0027-3-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095522/0028-2-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095541/0029-4-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095724/0030-3-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095741/0031-3-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095757/0032-3-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095816/0033-3-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095835/0034-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095850/0035-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095906/0036-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10100533/0037-2-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10100554/0038-2-scaled.jpg)
+####  **By：【秘密翻譯組G-Translators –北美工作組】**
 
 0
