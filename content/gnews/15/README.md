@@ -1,59 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 港大民主派“列儂牆” 再遭破壞
-`2020-10-09 12:29 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/413678/)
+## 【香港要聞】【突發】因應美國法規 以色列科技公司宣布停止為香港黑警提供破解抗爭者手機服務
+`2020-10-09 14:35 GM42` [轉載自GNews](https://gnews.org/zh-hant/413806/)
 
-*新聞來源：Hong Kong Free Press《香港自由報》；作者：RHODA KWAN；發佈時間：2020年9月28日*
+編撰：文悅
+覆核：文粵
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/09141240/20201009-1020copy_ixkxk_1200x0.png)圖片：立場新聞
 
-*翻譯/簡評：風起雲湧；校對：1818；審核：海闊天空；Page：拱卒*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/9vqDdEOT1FOC6/images/f6e3ef01-f3a4-42d5-bdc2-30a05c2ab5b1.jpg?asset_id=c4e0ad66-c5ae-43b4-b455-e32fb3893a8d&amp;img_etag=%22e45ecd2e48766d9ea74ecdb507db0bf7%22&amp;size=2560)](https://spark.adobe.com/page/9vqDdEOT1FOC6/images/f6e3ef01-f3a4-42d5-bdc2-30a05c2ab5b1.jpg?asset_id=c4e0ad66-c5ae-43b4-b455-e32fb3893a8d&amp;img_etag=%22e45ecd2e48766d9ea74ecdb507db0bf7%22&amp;size=1024)
+據**【立場新聞】**十月九日訊，曾經協助香港警方，破解前香港眾志秘書長黃之鋒 iPhone 的以色列科技公司 Cellbrite 表示，因應美國法規轉變，即時停止向中國和香港客戶出售服務和提供技術。黃之鋒在 Facebook 回應這是「遲來的公義」。
+     Cellbrite 本月 7 日官方網站宣布，即時停止向中國和香港客戶出售服務和提供技術，並指美國法規的轉變促成有關決定。 Cellbrite 行政總裁 Yossi Carmil 指，公司一直為犯罪活動搜證和民事活動等方面提供技術支援，亦會定期檢視和更新政策，確保他們的業務遵照國際法規，以及不同國家和地區的法律。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/09141222/121016660_3408022412623576_3317238959193704306_n.jpg)圖片：黃之鋒FB
+黃之鋒在Facebook 回顧，大半年持續有針對Cellbrite 的行動，包括《彭博周刊》等國際媒體講述香港律政司無視人權，羅冠聰8 月發起聯署要求Cellbrite 停止出售技術之後，以色列人權組織去信國防部、經濟部及Cellebrite，要求承諾禁止出口及以色列人權律師入稟法庭控告Cellbrite等，黃之鋒認為雖然Cellbrite 現時指美國法規令他們停止向中港政府提供服務，但「全賴香港人聚沙成塔參與各式各樣的聯署，大家鍥而不捨在Twitter 以及不同的媒體平台增加關注，才能夠促成這一個遲來的公義。」
+     黃之鋒又指，破解抗爭者手機的黑客公司，不論在何處「一間也嫌多」，期望未來在全球倡議工作上，「即使深深體會到《香港國安法》的陰霾如何嚇怕香港人，我們仍然可以繼續努力。」
 
-**簡評：**
+**戰友點評：【文悅】**
+     中共操控下的港共政權，倒行逆施，喪心病狂打壓香港的民主自由運動，無數港人甚至為此付出生命的代價，終導致以美國為首的正義盟友對其進行封鎖制裁。 Cellebrite公司的表態只是剛剛開始，如今全世界正義的力量集結，加上港人眾志成城，不屈不撓的鬥爭精神，定能擊倒中共這頭惡魔！
 
-自2019年香港修訂【逃犯條例】引發大規模抗議以來，香港人的抗爭就從未停止過。他們一次次走上街頭，用鮮血和生命與獨裁抗爭。他們還在車站，校園等地創建列儂牆來表達自己捍衛法制、民主、自由和不畏暴政的決心。
+以上觀點僅代表筆者本人
+資料來源：立場新聞
 
-然而在中共的統治下，是不允許有言論自由的，於是就出現了香港各地，甚至海外的列儂牆多次被撕毀的現象。這些搞破壞的人，要么是既得利益者，沉溺於自己的富足安逸，而不在乎剝削壓迫老百姓；要么是被中共長期洗腦，失去了正常思考能力而不辨是非，或者只是拿錢辦事的中共running dog。無論出於哪種原因，他們的行為正是中共流氓政黨的縮影。他們胡攪蠻纏、粗暴無禮、目無法紀、傲慢無知。所以，中共不滅，作惡不止。
-
-希望全世界人民都看清中共的邪惡本質，拿起法律的武器群起誅之!
-
-## **港大民主派”列儂牆“再遭破壞**
-
-據學生經營的校園電視（CampusTV）稱，星期六晚上，至少有20名身份不明的人，撕毀了位於薄扶林的香港大學校園內，張貼的民主宣傳留言。
-
-這群人中大多數為中年人，他們於晚上7點左右到達校園，把“列儂牆”上的信息紙張撕得亂七八糟，留下地上一片狼藉。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/9vqDdEOT1FOC6/images/56584e45-634a-4954-9480-f4ab4e1a0317.jpg?asset_id=551fc1b0-abf6-4833-83ac-1a7fee425d14&amp;img_etag=%2273fb6dd05494dcbdd42d5395b1707fd8%22&amp;size=2560)](https://spark.adobe.com/page/9vqDdEOT1FOC6/images/56584e45-634a-4954-9480-f4ab4e1a0317.jpg?asset_id=551fc1b0-abf6-4833-83ac-1a7fee425d14&amp;img_etag=%2273fb6dd05494dcbdd42d5395b1707fd8%22&amp;size=1024)照片：校園電視，港大學生會
-
-在社交媒體上分享的視頻中，其中一人稱他們是“一群普通的香港公民”，他們“不想讓自己的孩子去一個不潔的機構讀書”。她還在視頻中說，他們的行動沒有接受任何人的錢，也不代表任何特定組織。
-
-在另一段視頻中，可以聽到其中一個人說：“我們是在為香港清除垃圾。”
-
-推特原文及翻譯：
-
-[!\[\]()!\[\](https://spark.adobe.com/page/9vqDdEOT1FOC6/images/76aa6fd6-f593-47aa-adec-f9571b14c71a.jpg?asset_id=89bd3cca-46ad-4790-9cb3-8de9e7a5bf7a&amp;img_etag=%22274235f600e18f5d8c0cfd0188961132%22&amp;size=3661)](https://spark.adobe.com/page/9vqDdEOT1FOC6/images/76aa6fd6-f593-47aa-adec-f9571b14c71a.jpg?asset_id=89bd3cca-46ad-4790-9cb3-8de9e7a5bf7a&amp;img_etag=%22274235f600e18f5d8c0cfd0188961132%22&amp;size=1024) 9月26日晚7點，一群破壞者進入港大校園，摧毀位於上大學街的#列儂牆及香港大學學生會會旗。 #HKUSU（港大學生會）採取進一步行動，譴責這種破壞行為。香港大學應與學生站在一起，協力抓住破壞者。
-
-幾名大學僱傭的安保人員也出現在了現場。
-
-事件發生幾小時後，該大學的學生會譴責了這種行為，稱他們不會為暴政而退縮，並將捍衛校園的言論自由。學生會還呼籲香港大學“與學生站在一起……”
-
-**大學調查**
-
-根據校園電視台（CampusTV）的報導，港大的一位發言人稱：“學校正在調查該事件，以及學校的管理和安全措施問題。” 發言人還說，該大學“不排除追究有關人員責任的可能性。”
-
-這面被毀壞的列儂牆位於一條人行道旁，該路被稱為大學上街，從大學的地鐵站很容易就可到達。
-
-學生會宣布計劃在周二重修列儂牆。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/9vqDdEOT1FOC6/images/35aee7ab-bae4-4b9f-8299-5ffccf994e2f.jpg?asset_id=dd042774-c131-481f-a527-662043d20a37&amp;img_etag=%22b47b22609b0ed5a17fecfd35bd590b88%22&amp;size=2560)](https://spark.adobe.com/page/9vqDdEOT1FOC6/images/35aee7ab-bae4-4b9f-8299-5ffccf994e2f.jpg?asset_id=dd042774-c131-481f-a527-662043d20a37&amp;img_etag=%22b47b22609b0ed5a17fecfd35bd590b88%22&amp;size=1024)照片：校園電視，港大學生會
-
-受布拉格的約翰·列儂牆啟發，自2014年雨傘運動以來，列儂牆一直被民主抗議者，用來展示他們支持該運動的信息。
-
-很長時間以來，列儂牆都是香港民主運動和對立派之間爭執的場所。星期六是該大學在十週內第二次發生此類事件。 7月中旬，在同一地點也發生了類似的事件，當時至少有9個人撕毀了先前的列儂牆。
-
-[原文鏈接](https://hongkongfp.com/2020/09/28/video-university-of-hong-kongs-pro-democracy-lennon-wall-vandalised-again/)
-
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/9vqDdEOT1FOC6/) -點擊查看Spark Adobe英中雙語對照版
+[https://www.thestandnews.com/politics/cellbrite-%E5%9B%A0%E6%87%89%E7%BE%8E%E5%9C%8B%E6%B3%95%E8%A6%8F-%E5%81%9C%E6%AD%A2%E7%82%BA%E6%B8%AF%E8%AD%A6%E7%A0%B4%E8%A7%A3%E6%89%8B%E6%A9%9F-%E9%BB%83%E4%B9%8B%E9%8B%92-%E9%81%B2%E4%BE%86%E7%9A%84%E5%85%AC%E7%BE%A9/](https://www.thestandnews.com/politics/cellbrite-%E5%9B%A0%E6%87%89%E7%BE%8E%E5%9C%8B%E6%B3%95%E8%A6%8F-%E5%81%9C%E6%AD%A2%E7%82%BA%E6%B8%AF%E8%AD%A6%E7%A0%B4%E8%A7%A3%E6%89%8B%E6%A9%9F-%E9%BB%83%E4%B9%8B%E9%8B%92-%E9%81%B2%E4%BE%86%E7%9A%84%E5%85%AC%E7%BE%A9/)
 
 0
