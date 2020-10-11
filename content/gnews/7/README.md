@@ -1,95 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 視頻記錄下的香港抗議的八個重要瞬間
-`2020-10-11 14:38 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/418240/)
+## 全球懲賊行動圖集
+`2020-10-11 15:36 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/418341/)
 
-*新聞來源：HKFP《香港自由報》；作者：KELLY HO；發佈時間： 2020年9月24日*
+喜馬拉雅聯盟加拿大農場 WJ
 
-*翻譯/簡評：Dreamer文童；校對：沐子璐璐；審核：InAHurry；Page：拱卒*
+自2020年9月以來，爆料革命戰友自發在美國、加拿大、澳大利亞、新西蘭以及台灣等地開展依法、和平的全球懲賊行動。這不是簡單的抗議，也不是簡單的維權，它是影響著人類未來生存的一場巨大的革命。全球懲賊行動揭露所有海外共產黨潛伏的特務，凡是替共產黨搖旗吶喊的、替共產黨說好話的、反對香港運動的、造謠英雄科學家閆麗夢的、打擊爆料革命的、反對滅共的，都屬於懲賊範疇。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/K1IyQ5oZ0G6MS/images/48595abb-e511-4ea1-a418-70306c5e7eef.jpg?asset_id=df75c691-bbc7-4639-8d91-4fc34e50289a&amp;img_etag=%2283f274ef4a83887544b40477733a6ca6%22&amp;size=1024)](https://spark.adobe.com/page/K1IyQ5oZ0G6MS/images/48595abb-e511-4ea1-a418-70306c5e7eef.jpg?asset_id=df75c691-bbc7-4639-8d91-4fc34e50289a&amp;img_etag=%2283f274ef4a83887544b40477733a6ca6%22&amp;size=1024)
+以下是各地懲賊行動圖集以及相關頻道
 
-**簡評：**
+美國
 
-近日香港警方未經公眾甚至媒體行業討論，擅自修改“傳媒代表”的定義，將未經政府登記和“國際認可”的媒體定義為無效資格。雖然香港警方稱此舉旨在促進一線警務工作，但卻受到媒體工作者的廣泛批評並被質疑將嚴重阻礙香港新聞自由。在持續一年的香港街頭抗爭運動中，許多重要有標誌性的時刻均由自由撰稿人和學生記者所拍攝，包括：727元朗地鐵襲擊、831太子站襲擊、警方首次實彈射擊抗議者、孕婦遭警方胡椒噴霧襲擊等。
+紐約—-**莊烈宏**
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150220/%E5%BA%84%E7%83%88%E5%AE%8F%E6%BC%AB%E7%94%BB.png)
+香草山之聲—GTV
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150205/%E5%BA%84%E7%83%88%E5%AE%8F-%E6%8A%97%E8%AE%AE.jpeg)
+洛杉磯—-**盲流子**（真名：靳清敏）
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11145939/EiehzNzU0AEE08c.jpg)
+喜馬拉雅洛城之聲-GTV
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11151619/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE474.png)
+德州米德蘭—-**傅希秋**
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11145929/cdd574a83ce6810f1afad19fc5ff6526.png)
+香草山之聲-GTV
+ NFSCTV-GTV
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11151737/%E5%82%85%E5%B8%8C%E7%A7%8B-%E6%8A%97%E8%AE%AE.jpeg)
+加拿大溫哥華—-**黃河邊**（真名：高冰塵）
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150050/%E9%BB%84%E6%B2%B3%E8%BE%B9.png)
+喜馬拉雅加拿大農場-GTV
+加農金融時事-GTV
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30160600/EjLcShtU0AEIozK.jpg)
+澳大利亞昆州—-**細思極恐**，又名：雞腿潘（真名：潘林正）
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150105/%E9%B8%A1%E8%85%BF%E6%BD%98.png)
+澳喜公關外聯組-GTV
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150007/%E6%BE%B3%E5%96%9C%E5%86%9C%E5%9C%BA.png)
+新西蘭漢密爾頓—-**朱萬利**
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150117/%E6%9C%B1%E4%B8%87%E5%88%A9.jpg)
+新西蘭農場時政台-GTV
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150130/%E6%9C%B1%E4%B8%87%E5%88%A9.png)
+台灣台北——**陳文茜**
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150040/%E9%99%88%E6%96%87%E8%8C%9C.png)
+臺灣喜馬拉雅農場-GTV
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11152438/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE479.png)
+全球懲賊，讓這些隱藏的中共黑手一個個暴露，讓各個國家警醒中共已經對其政治，社會和司法造成了巨大的影響，絕不能再姑息養奸，任由中共危害世界。
 
-香港警方此次修改“傳媒代表”定義的真實意圖十分明顯，就是阻止自由撰稿人和學生記者拍攝到香港警察真實的一線執法行為，將獨立媒體監督的力量削弱。真可謂，司馬昭之心路人皆知。香港的媒體自由度將淪落到中共國大陸的水平，令人擔憂。
-
-**自由撰稿人和學生記者拍攝的8個重要抗議時刻**
-
-週二，香港警方宣布了一項有爭議的決定，重新定義“傳媒代表”為政府登記和“國際認可”的通訊社、報紙、雜誌、電台和電視台。本地記者組織簽發的記者證將不再被接受為有效資格認證。
-
-警方稱對《警察通例》（Police General Orders）的該項建議修改將有助於促進一線警務工作和報導。這也將有助於識別傳媒人員，並且在抗議現場阻止“自稱”記者的人。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/K1IyQ5oZ0G6MS/images/9c859526-93ee-463e-8411-e527f1765c04.jpg?asset_id=84e43463-4ff9-482a-8924-0b99aec82842&amp;img_etag=%22777f92682bdb9ab65eb13fa04bb9f728%22&amp;size=1024)](https://spark.adobe.com/page/K1IyQ5oZ0G6MS/images/9c859526-93ee-463e-8411-e527f1765c04.jpg?asset_id=84e43463-4ff9-482a-8924-0b99aec82842&amp;img_etag=%22777f92682bdb9ab65eb13fa04bb9f728%22&amp;size=1024)照片：Incendo工作室
-
-警方在回复HKFP的郵件中稱“該項修改並無意收緊對傳媒的定義”。
-
-該項新的指南受到了來自新聞工作者的廣泛批評，八個傳媒聯合會和協會指責該項修改“嚴重阻礙了香港的新聞自由”。
-
-他們要求警方廢除他們所認為的（不合理的）實際資格認證體系，因為警方是在沒有和該領域相關人員討論和諮詢的情況下，對現有體係做出了這種重大修改的。
-
-週三，外國通訊俱樂部稱，新體係將對在去年大規模動亂中提供“令人信服報導”的自由撰稿人和學生記者帶來“嚴重打擊”。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/K1IyQ5oZ0G6MS/images/42649def-c7d0-4e08-bb71-37bba0f37558.jpg?asset_id=326031fd-cde3-4af3-89e9-ed70e8fca9a7&amp;img_etag=%2246b877da7b0bf9dce2a4d17f49c281e7%22&amp;size=1024)](https://spark.adobe.com/page/K1IyQ5oZ0G6MS/images/42649def-c7d0-4e08-bb71-37bba0f37558.jpg?asset_id=326031fd-cde3-4af3-89e9-ed70e8fca9a7&amp;img_etag=%2246b877da7b0bf9dce2a4d17f49c281e7%22&amp;size=1024)照片：Incendo工作室
-
-HKFP查閱了由自由撰稿人和學生記者所拍攝的，香港持續一年的支持民主抗議活動的重要時刻。
-
-許多片段獲得廣泛關注並被本地和國際媒體自由共享。學生記者和自由撰稿人在拍攝有標誌性的抗議時刻時，經常面臨嚴重的人身危險，但卻幾乎收不到報酬、缺乏來自大型新聞機構的保護，並且在警察和示威者的衝突中首當其衝。
-
-**9月6日：防暴警察摁倒年輕女孩**
-
-9月6日，香港科技大學電台新聞組（he HKUST Radio News Reporting Team ）在旺角（Mong Kok）拍攝到，當一名年輕女孩試圖逃離一個示威活動時，防暴警察將她摁倒在地面上的鏡頭。
-
-儘管該女孩未被逮捕，但警方的反應引起了兒童權利組織的憤慨，該組織要求警方道歉。但隨後警方為其反應進行了辯護，稱警員已經使用“最低限度的武力”制服女孩。
-
-
-
-**8月31日：警察對孕婦噴胡椒噴霧**
-
-8月31日，網絡媒體拾玖傳媒（NineTeen Media）在旺角拍攝到，一名孕婦似乎在一個抗議中被警方使用胡椒噴霧攻擊。根據《知識共享許可協議》（Creative Commons license）共享影像的獨立網點工作室Incendo，也拍攝了該事件的照片並被廣泛共享傳播。
+懲賊行動是考驗戰友最關鍵的標準，比的是耐力、決心、實力和不怕犧牲、不怕付出，也是對新中國聯邦在西方是否能得到信任和尊重最根本的基礎。在法治的西方，最終的決定在法庭上。誰輸誰贏，已見分曉！
 
 
 
-**7月1日：抗議者戳警務人員**
+相關新聞
 
-7月1日，香港回歸中國23週年之際，香港浸會大學學生編輯委員會（Hong Kong Baptist University Students’ Union Editorial Board）拍攝到一名抗議者戳一名警務人員胳膊的時刻。那天成千上萬港人無視警方禁止在銅鑼灣和灣仔之間遊行的禁令，抗議北京實施的國家安全法。
+[新中國聯邦人告世界書：嚴正拒絕偽類代表華人形象](https://gnews.org/zh-hans/382773/)
 
+[懲賊行動！你最英雄](https://gnews.org/zh-hans/414340/)
 
-
-**2019年11月11日：警察在西灣河向罷工示威者連開三槍實彈**
-
-2019年11月11日，丘品創作（Cupid Producer）在西灣河記錄了一名警察在一場全市範圍的罷工行動中，向兩名示威者近距離連開三槍實彈。其中一槍擊中一位抗議者，導致其移除掉一個腎和一半的肝。
-
-
-
-**2019年10月1日：警察近距離實彈射中18歲少年**
-
-去年10月1日，香港大學校園電視記錄了警察在荃灣（Tsuen Wan）實彈射中一名18歲抗議者的鏡頭。少年示威者曾志堅（Tsang Chi-kin）當時手裡似乎握著一根桿子，左肺被射中。他當時處於危急狀態，接受手術在離心臟三厘米的地方取出了子彈。
-
-
-
-**2019年10月1日：360度中共國慶節動盪**
-
-HKFP自由撰稿人湯姆斯·布羅德（Thomas Broader）在2019年10月1日拍攝了一個360度視頻，全視角展現了整個城市的動盪。當抗議者“悼念”中共國國慶節時，香港經歷了滾滾的催淚瓦斯、汽油彈和肆意的破壞行為。
-
-
-
-**2019年8月31日：警察襲擊太子站**
-
-去年8月31日，網絡媒體米報（Rice Post）記者梁柏堅（Leung Pak-kin）在太子地鐵站內拍攝到一個視頻，顯示了警察在逮捕時用警棍毆打人群並使用胡椒噴霧。據本地媒體報導，記者和醫務人員被驅逐出該地鐵站，導致在該事件中平民死亡的傳言未被證實。
-
-
-
-**2019年7月27日：警察在元朗地鐵站毆打抗議者**
-
-一名不願透漏姓名的HKFP自由撰稿人在2019年7月27日拍攝到元朗地鐵站內的騷亂場景。在視頻中，可以看到當抗議者打開滅火器時，速龍小隊成員毆打人群。在地面上似乎看到血跡。xian
-
-
-
-[原文鏈接](https://hongkongfp.com/2020/09/24/hong-kong-protest-moments-captured-by-online-and-student-media-who-are-under-threat-from-new-police-guidelines/)
-
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/K1IyQ5oZ0G6MS/) -點擊spark adobe版
+[全球依法滅賊行動加拿大掃黃遛狗10月4日跟進報導](https://gnews.org/zh-hans/403982/)
+[澳喜農場昆州依法懲賊運動初戰告捷雞腿潘囂張到幾時](https://gnews.org/zh-hans/414573/)
 
 0

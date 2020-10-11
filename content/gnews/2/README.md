@@ -1,46 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 唐納德·J·川普總統10月10日健康狀況更新
-`2020-10-11 15:45 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/418352/)
+## 紅燈！中共國向斯裏蘭卡提供9000萬美元“病毒貸款”
+`2020-10-11 17:45 喜馬拉雅的文雅` [轉載自GNews](https://gnews.org/zh-hant/418418/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11153909/WH_20201010-Trump_Health-photo.png)
-THE WHITE HOUSE
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11180356/image-7.jpeg)
 
-October 10, 2020
 
-白宮總統醫生
+10月9日中共中央政治局委員、中央外事工作委員會辦公室主任楊潔篪率領的中共國代表團訪問斯裏蘭卡，兩天後，中方宣布向斯裏蘭卡提供9000萬美元的政府撥款，此前斯裏蘭卡總統戈塔布亞雅·拉賈帕克薩（Gotabhaya Rajapaksa）要求中共國幫助澄清該項大型貸款是“債務陷阱”，旨在在當地事務中贏得影響。
 
-2020年10月10日
+中共國駐Colombo大使稱該財政援助為“及時撥款”，將用於斯裏蘭卡農村地區的醫療，教育和供水。並稱將“在後冠狀病毒疫情時代為（斯裏蘭卡）人民的幸福做出貢獻。”
 
-MEMORANDUM FOR: KAYLEIGH MCENANY ASSISTANT TO THE PRESIDENT AND WHITE HOUSE PRESS SECRETARY
+中共國認為斯裏蘭卡是其龐大的“壹帶壹路”全球基礎設施建設計劃的關鍵環節，並在過去十年中為斯裏蘭卡提供了數十億美元的貸款。這些項目包括海港，機場，港口城市，高速公路和發電站。
 
-致總統助理兼白宮新聞秘書Kayleigh Mcenany的備忘錄
+批評人士說，中國資助的項目在斯裏蘭卡財務上不可行，因為將使其在償還貸款上陷入困境。
 
-FROM: SEAN P. CONLEY, DO, FACEP PHYSICIAN TO THE PRESIDENT COMMANDER, U.S. NANY
+2017年，斯裏蘭卡將中共國建造的港口租給了壹家中方 公司，該港口位處繁忙的航運路線，是中共從中國水域延伸至波斯灣的壹系列港口計劃的壹部分，租期99年，租金用於緩解斯裏蘭卡沈重的債務負擔。中共國還同意向斯裏蘭卡提供9.89億美元的貸款，用於建設壹條高速公路，把種植茶的中部地區與這個海港連接起來。
 
-來自：骨科醫學博士、美國急診醫師學會院士、美國海軍總統醫生指揮官Sean P. Conley
+此前，美國，印度，日本和澳大利亞這四個印太國家的高級外長在東京召開了倡導“自由和開放的印度太平洋”的會議，旨在抵制中共國在該地區日益增長的勢力和威脅。
 
-SUBJECT: Saturday Health Update on President Donald J. Trump
+對於楊娘娘親自出兵再次征服斯裏蘭卡之舉，作為印太戰略後院的印度對此深感擔憂。印度長期以來敢於抗衡中共邊境的威脅，不同媒體對中共病毒疫情真相進行報道，包括著名媒體WION曾對閆麗夢博士進行長達半小時專項報道。而印度目前的疫情單日確診人數在世界排名前列，其疫情狀況是繼美國之後最嚴重的國家。
 
-主題：唐納德·J·川普總統週六健康狀況更新
+英雄科學家閆麗夢博士之前在香港P3實驗室工作的上司Malik Peiris和她的丈夫都是斯裏蘭卡人，並直接參與這次SARS-COVID-2中共病毒開發工作。此前獲悉閆博士成功逃至美國後，Malik本人沒有出席其公開卸任會就匆匆離開香港回到自己的國家。 閆博士多次揭露中共病毒不同毒株及樣本繁多，平均開發時間僅需半年。中共病毒全球大爆發從壹月至今已經將近9個月。雖然中共生化襲擊早已對全世界展開，目前美國大選如火如荼，川普總統壹面力爭贏得選票、排幹沼澤，壹面不得不正視中共的深度滲透勢力及其威脅。矛盾激化時可能升級為地區熱戰。生化戰已經持續數月，楊娘娘親自出征斯裏蘭卡公然對壹帶壹路上的重要棋子、又是中共病毒重要專家所在國進行金錢挾制，他不是在後疫情時代為斯裏蘭卡帶去經費和福祉，而是用“病毒貸款” 引爆潛在的進壹步新型生化戰、把斯裏蘭卡和全世界人民推入災難的深淵。接下來什麽樣的新型中國病毒即將再次被釋放，紅燈已經亮起。郭文貴先生曾警告世界：嚴重的事情還沒有開始。爆料革命戰友扼腕疾呼，美國和世界人民亟需擔憂的和迅速醒來的，是如何鏟除病毒根源、解除戰爭升級的威脅，時間真的不多了。
 
-I release the following information with the permission of President Donald J. Trump.
+新聞來源： https://abcnews.go.com/International/wireStory/china-grants-90m-sri-lanka-visit-top-official-73548617
 
-經唐納德·J·川普總統的許可，我發佈如下消息：
 
-This evening I am happy to report that in addition to the President meeting CDC criteria for the safe discontinuation of isolation, this morning’s COVID PCR sample demonstrates, by currently recognized standards, he is no longer considered a transmission risk to others. Now at day 10 from symptom onset, fever-free for well over 24 hours and all symptoms improved, the assortment of advanced diagnostic tests obtained reveal there is no longer evidence of actively replicating virus. In addition, sequential testing throughout his illness has demonstrated decreasing viral loads that correlate with increasing cycle threshold times, as well as decreasing and now undetectable subgenomic mRNA.
 
-今天晚上我很高興地報告，總統除了符合疾病預防與控制中心（CDC）關於安全終止隔離的標準以外，今天早晨的COVID PCR樣本還顯示，根據目前認可的標準他已經不再有對其他人傳播的風險。從出現症狀到現在已是第10天，（他）超過24小時不發燒，所有症狀已改善，各種先進的診斷測試表明（他身體內）已經沒有主動自我複製病毒的跡象。此外，在他整個疾病期間進行的系列測試表明，減少病毒載量與增加週期臨界值次數以及減少現在不可檢測的亞基因組mRNA相關。
 
-Moving forward, I will continue to monitor him clinically as he returns to an active schedule.
-
-接下來，我會在他恢復活動時間表後繼續對他進行臨床監測。
-
-白宮原文鏈接：[https://www.whitehouse.gov/wp-content/uploads/2020/10/MemoFromThePresdentsPhysician-101020.png](https://www.whitehouse.gov/wp-content/uploads/2020/10/MemoFromThePresdentsPhysician-101020.png)
-
-翻譯：【Cyndi】編輯：【Isaiah4031】
-
-戰友之家玫瑰園小隊出品
 
 0

@@ -1,53 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共變本加厲，維吾爾族集中營繼續擴張
-`2020-10-11 16:01 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/418359/)
+## 【熱點播報】A股連炸兩顆雷： 廣州浪奇近6億存貨離奇消失6700多萬存款被凍結
+`2020-10-11 18:38 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/418474/)
 
-*來源：自由燈塔｜作者：傑克·貝勒（Jack Beyrer）；*
+作者：美東香草山農場寫作組 正道主義聯盟
 
-*翻譯、簡評：Bob1203(文虓)｜PR：沐子璐璐｜審核：海闊天空｜PAGE：玄天生；*
 
-**簡評：**
 
-澳大利亞戰略政策研究院（ASPI）通過對一系列衛星圖像的分析指出，中共國新疆地區的維吾爾族集中營在大規模擴建中。由此可知，中國共產黨一直對外宣稱已經將關押在集中營的維吾爾人釋放回家就是徹頭徹尾的謊言; 對新疆維吾爾人的人權侵犯正變本加厲不斷升級。中共不滅，中共製造的人權災難永遠不會消失。
+屋漏偏逢連夜雨！疫情蔓延已經讓A股昔日大企業進入生存維艱甚至失血的休克狀態！各種衍生債務更是讓A股無法避免地爆出陣陣驚雷！
 
-#### 國家安全
+今日股市傳出離奇事件：據新浪新聞報導：廣州新浪5.72億元存貨離奇消失，6700多萬存款又遭法院裁定凍結。 A股一家公司短時間內連炸兩顆雷，真是咄咄怪事！
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11181918/117-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91A%E8%82%A1%E8%BF%9E%E7%82%B8%E4%B8%A4%E9%A2%97%E9%9B%B7%EF%BC%9A-1.jpg)
 
-## **衛星圖像顯示維吾爾集中營處於擴建中**
 
-*[傑克·貝勒](https://freebeacon.com/author/jack-beyrer/)(Jack Beyrer)-2020年9月24日下午1:25*
+10月9日晚間，[廣州浪奇](https://finance.sina.com.cn/realstock/company/sz000523/nc.shtml)(4.180, 0.01, 0.24%)（000523，SZ）突然發佈公告稱，公司於近日收到廣州市天河區人民法院下發的《民事裁定書》和《凍結/查封扣押財產清單》，申請人立根公司與公司仲裁程序中的財產保全一案，立根公司向中國廣州仲裁委員會提出財產保全申請，要求凍結本公司的銀行存款人民幣6718萬元或查封、扣押其等值財產，廣州市天河區人民法院已立案受理並作出裁定，裁定如下：
 
-![]()![](https://spark.adobe.com/page/bPIVhpQNQVSCE/images/57e8f55c-5d2d-43c5-885d-2d48d6caf61c.jpg?asset_id=a2f6db2d-e774-415c-a194-d1f43ccd3d52&amp;img_etag=%2207e3c2f8494399991df5296e4efb4a55%22&amp;size=1024)
+1、凍結被申請人的銀行存款人民幣6717.7萬元或查封、扣押其等值財產。 2、被查封財產在查封期間不得轉移、轉讓、變賣或抵押。 3、本裁定立即開始執行。
 
-據《紐約時報》週四[報導](https://www.nytimes.com/2020/09/24/world/asia/china-muslims-xinjiang-detention.html)，經過澳大利亞戰略政策研究院（ASPI）[分析](https://xjdp.aspi.org.au/explainers/exploring-xinjiangs-detention-facilities/)的一系列衛星圖像表明，中共國整個新疆地區有多個維吾爾族勞動和監獄營地在大規模擴建中。
+目前，公司尚未收到中國廣州仲裁委員會相關通知，尚未能明確立根公司的主要仲裁請求。
 
-這些營地的擴建與中國共產黨近幾個月來的聲明直接矛盾。中國共產黨的聲明聲稱許多維吾爾族營地的被拘押者已經“畢業”，這意味著他們已經重新融入中國社會並自由地生活。然而，這些圖像揭示出營地的容量、隔離牆和新的監獄場所在大規模擴建中。
+廣州市浪奇實業股份有限公司（以下簡稱“公司”）於2020年9月24日在巨潮資訊網披露了《關於部分債務逾期暨部分銀行賬戶被凍結的公告》（公告編號：2020-067 ），公司因資金狀況緊張出現部分債務逾期情況。經公司財務部門統計核實，截至2020年9月24日，公司逾期債務合計394，974，881.42元，占公司最近一期經審計淨資產的20.74%，涉及被凍結銀行賬戶12個。
 
-“證據表明，新疆龐大的’再教育’網絡中的許多非法被拘押者正在受到正式指控，並被關在更高安全等級的設施中，包括新建或擴建的監獄，” 澳大利亞戰略政策研究院（ ASPI）項目負責人內森·魯瑟（Nathan Ruser）在報告中寫道。
+值得一提的是，9月27日晚，廣州浪奇發佈公告稱，價值5.72億元的存貨不翼而飛。這是堪稱繼[獐子島](https://finance.sina.com.cn/realstock/company/sz002069/nc.shtml)(3.960, 0.18, 4.76%)“扇貝跑了”之後，A股上演的又一奇葩劇情。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11182435/117-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91A%E8%82%A1%E8%BF%9E%E7%82%B8%E4%B8%A4%E9%A2%97%E9%9B%B7%EF%BC%9A-3.png)
 
-澳大利亞戰略政策研究院（ASPI）獲得的圖像通常是在夜間通過衛星拍攝的，因此ASPI專家可以將新的照明光簇識別為潛在的新營地。即使來自聯合國和其它獨立觀察者團體的呼聲越來越高, 外國記者和調查人員在很大程度上也被禁止觀察維吾爾族營地的實地情況。
 
-儘管北京一直拒絕透露新疆的集中營數量，但這些最新的衛星圖像顯示至少有380個集中營，包括自2019年7月以來，已擴建好的61個營地和正在建設中的14個營地。
+據官網資料顯示，廣州浪奇前身是廣州硬化油廠，是中國華南地區歷史最悠久的洗滌用品生產企業之一，也是我國洗滌行業大型骨幹企業。 1993年，經國家證監會批准，成為廣州市上市公司，旗下有“浪奇”、“高富力”、“天麗”、“萬麗”等品牌。不過，公司近年品牌也日趨老化，種種跡象表明這家老牌日化企業已日薄西山。
 
-著名的中共國評論員和官員[否認](http://en.people.cn/n3/2020/0727/c90000-9715250.html)有任何不當行為，甚至常常把對侵犯人權的指控“甩鍋”給西方世界。支持中共的媒體《環球時報》（Global Times）週三發表的一篇文章[斷言](https://www.globaltimes.cn/content/1201857.shtml)，“西方人的指控是不合理和不道德的。”
 
-該專欄寫道：“西方沒有資格指責中國在新疆和西藏等少數民族自治地區的統治。”“相反，西方應該學習中國的治理方法。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/bPIVhpQNQVSCE/images/b73cc3c5-e4c9-4b7f-bda7-eb21e629ed65.jpg?asset_id=17c108ef-0a49-4f54-b883-f34f2d398298&amp;img_etag=%229aedd5647b76542900ab716c0cce0977%22&amp;size=2560)](https://spark.adobe.com/page/bPIVhpQNQVSCE/images/b73cc3c5-e4c9-4b7f-bda7-eb21e629ed65.jpg?asset_id=17c108ef-0a49-4f54-b883-f34f2d398298&amp;img_etag=%229aedd5647b76542900ab716c0cce0977%22&amp;size=1024)
+更多資訊，歡迎訂閱[美東香草山農場官方推特賬號](https://twitter.com/Mos_Himalaya)！
 
-川普政府對中共國的侵犯人權行為採取了更為鷹派的態度，為此最近幾個月通過了一些重大製裁措施。
-
-本週，眾議院以令人震驚的方式投票通過了一項[法案](https://freebeacon.com/national-security/amash-massie-among-three-house-members-to-oppose-uighur-genocide-bill/)，該法案將削弱私人公司與新疆相關的中共國公司開展業務的能力。本月早些時候，國土安全部（Department of Homeland Security）[發布](https://freebeacon.com/national-security/trump-crackdown-on-slave-labor-could-cost-china-250-million/)了類似的製裁措施，可能使北京付出高達2.5億美元的代價。
-
-國務卿邁克·蓬佩奧（Mike Pompeo）週三[在](https://www.state.gov/state-legislatures-and-the-china-challenge/)威斯康星州（Wisconsin）的州議會議員面前做了關於了維吾爾族問題的演講。他說：“政府已將宗教自由作為全世界真正的優先處理事項。”
-
-[!\[\](https://spark.adobe.com/page/bPIVhpQNQVSCE/images/04b6b341-cd0e-48fe-b656-3c53193323d1?asset_id=fc75e456-ffb3-4807-872b-e4fb0a6338c2&amp;img_etag=%221bc6f9c2ca8df0e9257c364a6f0b242f%22&amp;size=1024)](https://spark.adobe.com/page/bPIVhpQNQVSCE/images/04b6b341-cd0e-48fe-b656-3c53193323d1?asset_id=fc75e456-ffb3-4807-872b-e4fb0a6338c2&amp;img_etag=%221bc6f9c2ca8df0e9257c364a6f0b242f%22&amp;size=1024)
-
-“毫無疑問，對那些地方正在發生的事情，世界正在覺醒。我們所要求的是中共國政府停止這種活動，並以生而具有的對人性的尊重善待這些人。” 蓬佩奧補充說：“真的就是這麼簡單。”
-
-[原文鏈接](https://freebeacon.com/national-security/satellite-images-reveal-expansion-of-uighur-camps/)
-
-編輯[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/bPIVhpQNQVSCE/) -點擊spark adobe版
+[Tweets by Mos\_Himalaya](https://twitter.com/Mos_Himalaya?ref_src=twsrc%5Etfw)
 
 0

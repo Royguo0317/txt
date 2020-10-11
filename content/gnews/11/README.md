@@ -1,20 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】病毒变异？！美国首例男子染新冠无呼吸道症状 ，却有小脑损伤反应！
-`2020-10-11 12:44 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/418117/)
+## 【热点播报】神契合：班农喊你Action！川普今晨兴奋发推：体内已经没有任何病毒！完全康复！！
+`2020-10-11 14:22 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/418218/)
 
-作者：美东香草山农场灭共霹雳组  正道主义联盟
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11124013/%E5%9B%BE%E7%89%8760.png)
-美国一名男子感染新冠肺炎后，却没有出现咳嗽等任何呼吸道症状，反而只有说话含糊、行动困难等小脑损伤反应，专家指出，这是全球首个新冠肺炎导致神经系统疾病，却没有伴随其他症状的案例。
+作者：香草山美东农场灭共霹雳组 正道主义联盟
 
-香港《南华早报》报道，德州大学健康医学中心（University of Texas Health Science Center）帕夫罗博士（Adriana Povlow）与奥尔巴赫博士（Andrew Auerbach）9日在《美国急诊医学期刊》（The American Journal of Emergency Medicine）刊登最新研究，指出美国最近发生全球首个新冠患者罹患急性病毒性小脑炎却没有伴随其他呼吸道症状的案例。
+今晨白宫发布了昨晚白宫肖恩医生签字发布的总统最新健康报告如下：
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11141214/%E5%9B%BE%E7%89%8763.png)
+内容显示总统已经完全符合CDC的新冠康复标准！体内完全检测不到任何新冠病毒！！
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11141500/%E5%9B%BE%E7%89%8765.png)
+今天总统兴奋发推：昨天从白宫医生那里获得了完全康复的签字。这意味着完全康复及具有新冠免疫力！也不会对别人感染！很高兴知道！！！总统患冠牵动全球焦点！神一般康复后，今天白宫医生做出完全康复正式文本！
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11141315/%E5%9B%BE%E7%89%8764.png)
+想到昨晚班农先生在warroom火力全开，炮轰总统灭共行动不力！应对病毒罪责缓慢！笔者不禁感慨他们哥俩的神契合，今天总统就兴高采烈地发推表示完全康复！这是否预示着总统王者归来！满血复活！真正要重拳反击CCP呢？！
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11141536/%E5%9B%BE%E7%89%8766.png)
+期待总统先生被CCP病毒袭击后，能够真正看清ＣＣＰ的邪恶！
 
-研究指出，这名30岁德州男子到医院时的症状是呕吐、说话含糊不清、走路不稳，显示支配肢体协调、平衡的小脑有失去功能的迹象，医生起初判断他是脑中风，不过照了X光片后，却发现男子的上肺部有轻微发炎状况，经过核酸检测（PCR）后才确认感染新冠病毒。
+TAKE DOWN ＣＣＰ！
 
-男子住院10天期间都没有出现咳嗽、胸痛、发烧等任何典型呼吸道症状，尽管小脑炎等神经系统症状已经有所改善，他出院时仍须外力协助才能顺利行动。
-
-
+Action！Action！Action！
 
 路德时评链接：[https://youtu.be/ux2EZGaksoc](https://youtu.be/ux2EZGaksoc)
 

@@ -1,18 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 羥氯喹絕對管用！據情報最壞的時刻絕對沒有到來！
-`2020-10-11 11:13 GM31` [轉載自GNews](https://gnews.org/zh-hant/417820/)
+## 每日政要Twitter播報(中文) 10/10期(視頻+ PDF下載)
+`2020-10-11 11:35 GM62` [轉載自GNews](https://gnews.org/zh-hant/418031/)
 
-郭文貴先生在[10月7日在G-TV直播](https://gtv.org/?videoid=5f7e45c37de25667c0e3db05)中提到，自己的CCP病毒檢測結果成陰性，並感謝戰友們的關心和慰問。檢測一是對戰友們負責，二是由於近期會晤過於頻繁，為了對爆料革命事業負責，也需要檢測。此外，文貴先生對於羥氯喹針對CCP病毒的預防效果感到十分滿意，並為閆博士和路德背書，支持其關於羥氯喹藥效的宣傳。 最後他警告大家：
+撰稿記者：CYC文颖、本來、⽯头
+校對:Frontier⻜翔
+播⾳：⼤脚印
 
-
-> 「所以說兄弟姐妹們，家人要保護，絕對不要走出去。我告訴你我得到的各種情報，最壞的時刻絕對沒有到來。現在美國是玩大選呢。大選完了這一系列，完了以後一系列病毒的事兒就嚇死你們。」
-> – 郭文貴先生
-
-
-*聽寫 & 翻譯：【Winston Jackson】 校對：【班仔】视频解码：【恒久忍耐】字幕：【GM31】*
-
-*戰友之家玫瑰園小隊製作*
+[每日推文10-10pdf](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11113249/10-10-F1smallfile-pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11113249/10-10-F1smallfile-pdf.pdf)
 
 0

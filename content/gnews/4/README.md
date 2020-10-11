@@ -1,60 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 全球懲賊行動圖集
-`2020-10-11 15:36 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/418341/)
+## 中共變本加厲，維吾爾族集中營繼續擴張
+`2020-10-11 16:01 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/418359/)
 
-喜馬拉雅聯盟加拿大農場 WJ
+*來源：自由燈塔｜作者：傑克·貝勒（Jack Beyrer）；*
 
-自2020年9月以來，爆料革命戰友自發在美國、加拿大、澳大利亞、新西蘭以及台灣等地開展依法、和平的全球懲賊行動。這不是簡單的抗議，也不是簡單的維權，它是影響著人類未來生存的一場巨大的革命。全球懲賊行動揭露所有海外共產黨潛伏的特務，凡是替共產黨搖旗吶喊的、替共產黨說好話的、反對香港運動的、造謠英雄科學家閆麗夢的、打擊爆料革命的、反對滅共的，都屬於懲賊範疇。
+*翻譯、簡評：Bob1203(文虓)｜PR：沐子璐璐｜審核：海闊天空｜PAGE：玄天生；*
 
-以下是各地懲賊行動圖集以及相關頻道
+**簡評：**
 
-美國
+澳大利亞戰略政策研究院（ASPI）通過對一系列衛星圖像的分析指出，中共國新疆地區的維吾爾族集中營在大規模擴建中。由此可知，中國共產黨一直對外宣稱已經將關押在集中營的維吾爾人釋放回家就是徹頭徹尾的謊言; 對新疆維吾爾人的人權侵犯正變本加厲不斷升級。中共不滅，中共製造的人權災難永遠不會消失。
 
-紐約—-**莊烈宏**
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150220/%E5%BA%84%E7%83%88%E5%AE%8F%E6%BC%AB%E7%94%BB.png)
-香草山之聲—GTV
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150205/%E5%BA%84%E7%83%88%E5%AE%8F-%E6%8A%97%E8%AE%AE.jpeg)
-洛杉磯—-**盲流子**（真名：靳清敏）
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11145939/EiehzNzU0AEE08c.jpg)
-喜馬拉雅洛城之聲-GTV
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11151619/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE474.png)
-德州米德蘭—-**傅希秋**
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11145929/cdd574a83ce6810f1afad19fc5ff6526.png)
-香草山之聲-GTV
- NFSCTV-GTV
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11151737/%E5%82%85%E5%B8%8C%E7%A7%8B-%E6%8A%97%E8%AE%AE.jpeg)
-加拿大溫哥華—-**黃河邊**（真名：高冰塵）
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150050/%E9%BB%84%E6%B2%B3%E8%BE%B9.png)
-喜馬拉雅加拿大農場-GTV
-加農金融時事-GTV
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30160600/EjLcShtU0AEIozK.jpg)
-澳大利亞昆州—-**細思極恐**，又名：雞腿潘（真名：潘林正）
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150105/%E9%B8%A1%E8%85%BF%E6%BD%98.png)
-澳喜公關外聯組-GTV
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150007/%E6%BE%B3%E5%96%9C%E5%86%9C%E5%9C%BA.png)
-新西蘭漢密爾頓—-**朱萬利**
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150117/%E6%9C%B1%E4%B8%87%E5%88%A9.jpg)
-新西蘭農場時政台-GTV
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150130/%E6%9C%B1%E4%B8%87%E5%88%A9.png)
-台灣台北——**陳文茜**
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150040/%E9%99%88%E6%96%87%E8%8C%9C.png)
-臺灣喜馬拉雅農場-GTV
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11152438/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE479.png)
-全球懲賊，讓這些隱藏的中共黑手一個個暴露，讓各個國家警醒中共已經對其政治，社會和司法造成了巨大的影響，絕不能再姑息養奸，任由中共危害世界。
+#### 國家安全
 
-懲賊行動是考驗戰友最關鍵的標準，比的是耐力、決心、實力和不怕犧牲、不怕付出，也是對新中國聯邦在西方是否能得到信任和尊重最根本的基礎。在法治的西方，最終的決定在法庭上。誰輸誰贏，已見分曉！
+## **衛星圖像顯示維吾爾集中營處於擴建中**
 
+*[傑克·貝勒](https://freebeacon.com/author/jack-beyrer/)(Jack Beyrer)-2020年9月24日下午1:25*
 
+![]()![](https://spark.adobe.com/page/bPIVhpQNQVSCE/images/57e8f55c-5d2d-43c5-885d-2d48d6caf61c.jpg?asset_id=a2f6db2d-e774-415c-a194-d1f43ccd3d52&amp;img_etag=%2207e3c2f8494399991df5296e4efb4a55%22&amp;size=1024)
 
-相關新聞
+據《紐約時報》週四[報導](https://www.nytimes.com/2020/09/24/world/asia/china-muslims-xinjiang-detention.html)，經過澳大利亞戰略政策研究院（ASPI）[分析](https://xjdp.aspi.org.au/explainers/exploring-xinjiangs-detention-facilities/)的一系列衛星圖像表明，中共國整個新疆地區有多個維吾爾族勞動和監獄營地在大規模擴建中。
 
-[新中國聯邦人告世界書：嚴正拒絕偽類代表華人形象](https://gnews.org/zh-hans/382773/)
+這些營地的擴建與中國共產黨近幾個月來的聲明直接矛盾。中國共產黨的聲明聲稱許多維吾爾族營地的被拘押者已經“畢業”，這意味著他們已經重新融入中國社會並自由地生活。然而，這些圖像揭示出營地的容量、隔離牆和新的監獄場所在大規模擴建中。
 
-[懲賊行動！你最英雄](https://gnews.org/zh-hans/414340/)
+“證據表明，新疆龐大的’再教育’網絡中的許多非法被拘押者正在受到正式指控，並被關在更高安全等級的設施中，包括新建或擴建的監獄，” 澳大利亞戰略政策研究院（ ASPI）項目負責人內森·魯瑟（Nathan Ruser）在報告中寫道。
 
-[全球依法滅賊行動加拿大掃黃遛狗10月4日跟進報導](https://gnews.org/zh-hans/403982/)
-[澳喜農場昆州依法懲賊運動初戰告捷雞腿潘囂張到幾時](https://gnews.org/zh-hans/414573/)
+澳大利亞戰略政策研究院（ASPI）獲得的圖像通常是在夜間通過衛星拍攝的，因此ASPI專家可以將新的照明光簇識別為潛在的新營地。即使來自聯合國和其它獨立觀察者團體的呼聲越來越高, 外國記者和調查人員在很大程度上也被禁止觀察維吾爾族營地的實地情況。
+
+儘管北京一直拒絕透露新疆的集中營數量，但這些最新的衛星圖像顯示至少有380個集中營，包括自2019年7月以來，已擴建好的61個營地和正在建設中的14個營地。
+
+著名的中共國評論員和官員[否認](http://en.people.cn/n3/2020/0727/c90000-9715250.html)有任何不當行為，甚至常常把對侵犯人權的指控“甩鍋”給西方世界。支持中共的媒體《環球時報》（Global Times）週三發表的一篇文章[斷言](https://www.globaltimes.cn/content/1201857.shtml)，“西方人的指控是不合理和不道德的。”
+
+該專欄寫道：“西方沒有資格指責中國在新疆和西藏等少數民族自治地區的統治。”“相反，西方應該學習中國的治理方法。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/bPIVhpQNQVSCE/images/b73cc3c5-e4c9-4b7f-bda7-eb21e629ed65.jpg?asset_id=17c108ef-0a49-4f54-b883-f34f2d398298&amp;img_etag=%229aedd5647b76542900ab716c0cce0977%22&amp;size=2560)](https://spark.adobe.com/page/bPIVhpQNQVSCE/images/b73cc3c5-e4c9-4b7f-bda7-eb21e629ed65.jpg?asset_id=17c108ef-0a49-4f54-b883-f34f2d398298&amp;img_etag=%229aedd5647b76542900ab716c0cce0977%22&amp;size=1024)
+
+川普政府對中共國的侵犯人權行為採取了更為鷹派的態度，為此最近幾個月通過了一些重大製裁措施。
+
+本週，眾議院以令人震驚的方式投票通過了一項[法案](https://freebeacon.com/national-security/amash-massie-among-three-house-members-to-oppose-uighur-genocide-bill/)，該法案將削弱私人公司與新疆相關的中共國公司開展業務的能力。本月早些時候，國土安全部（Department of Homeland Security）[發布](https://freebeacon.com/national-security/trump-crackdown-on-slave-labor-could-cost-china-250-million/)了類似的製裁措施，可能使北京付出高達2.5億美元的代價。
+
+國務卿邁克·蓬佩奧（Mike Pompeo）週三[在](https://www.state.gov/state-legislatures-and-the-china-challenge/)威斯康星州（Wisconsin）的州議會議員面前做了關於了維吾爾族問題的演講。他說：“政府已將宗教自由作為全世界真正的優先處理事項。”
+
+[!\[\](https://spark.adobe.com/page/bPIVhpQNQVSCE/images/04b6b341-cd0e-48fe-b656-3c53193323d1?asset_id=fc75e456-ffb3-4807-872b-e4fb0a6338c2&amp;img_etag=%221bc6f9c2ca8df0e9257c364a6f0b242f%22&amp;size=1024)](https://spark.adobe.com/page/bPIVhpQNQVSCE/images/04b6b341-cd0e-48fe-b656-3c53193323d1?asset_id=fc75e456-ffb3-4807-872b-e4fb0a6338c2&amp;img_etag=%221bc6f9c2ca8df0e9257c364a6f0b242f%22&amp;size=1024)
+
+“毫無疑問，對那些地方正在發生的事情，世界正在覺醒。我們所要求的是中共國政府停止這種活動，並以生而具有的對人性的尊重善待這些人。” 蓬佩奧補充說：“真的就是這麼簡單。”
+
+[原文鏈接](https://freebeacon.com/national-security/satellite-images-reveal-expansion-of-uighur-camps/)
+
+編輯[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/bPIVhpQNQVSCE/) -點擊spark adobe版
 
 0
