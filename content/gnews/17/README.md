@@ -1,93 +1,103 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 在自然雜誌發表中共病毒與蝙蝠病毒有密切關係論文的張永振團隊
-`2020-10-10 23:26 NewFOC` [轉載自GNews](https://gnews.org/zh-hant/416842/)
+## 【戰友文學原創】連載029: 1984進行時（第二部）
+`2020-10-11 02:56 澳洲雅典娜农场` [轉載自GNews](https://gnews.org/zh-hant/417091/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10230511/%E5%BC%A0%E6%B0%B8%E6%8C%AF%E5%9B%A2%E9%98%9F_%E5%89%AF%E6%9C%AC%E5%B0%81%E9%9D%A2-2.jpg)
-作者：Maarago
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08064446/Screen-Shot-2020-10-08-at-8.43.32-pm.png)
+七十多年前，喬治·奧威爾在他的代表作《1984》中描述了一個完全處於極權政府監視、控制和奴役下的絕望世界……今天世界已經行走在絕望深淵的邊緣，如果沒有文貴先生和爆料革命，人類文明早已被邪惡碾碎，就像這部小說《1984進行時》中描述的那樣。
 
-據[剛剛，上海這家生物安全三級實驗室獲“新冠病毒研究資格”，曾最早發佈冠狀病毒全基因組序列](https://www.sohu.com/a/368789940_120244154)（搜狐2020-01-24 22:44）
+本書獻給文貴先生、班農先生、爆料革命和我們的聖城香港，以及所有和新中國聯邦站在一起的正義力量。
 
-［張永振回憶說，2019年12月26日上海市公共衛生臨床中心科研專案常規收集到武漢市中心醫院和武漢市疾控中心的不明原因發熱患者標本一份。2020年1月5日淩晨，中心就從標本中檢測出一種新型SARS類冠狀病毒，並通過高通量測序獲得了該病毒的全基因組序列。1月11日，團隊在《病毒學組織》網站發佈了所獲得的新型冠狀病毒全基因組序列。］
+十個月後……
 
-據GNEWS於2020-02-29 06:46發佈的 **[第一個與世界共用病毒基因組的實驗室被勒令關門”整頓”，這是為什麼？](https://gnews.org/zh-hans/127686/)**
+### **第二部地獄**
 
-**［**1月11日，上海公共衛生臨床中心實驗室張永振（音）教授的團隊在開放平臺上公佈了基因組序列，資料的公佈對研究人員開發病毒的測試手段非常有幫助。但是，第二天，他所在的實驗室就被勒令關閉進行“整改”。關閉令是上海衛生委員會下達的。**］［**張教授團隊1月11日公佈序列是因為他們發現當局並沒有採取任何有效的行動警告公眾。當時，官方發佈的消息稱，武漢自1月3日以來沒有新增病例，也沒有明確的人傳人證據。張的團隊的發現發表在2月3日的科學雜誌《自然》上。在該團隊發表的一周內，中國的幾家公司相繼宣佈他們開發出了這種病毒的診斷工具。**］**
+#### **14** **、混亂**
 
-天使科學家閆麗夢博士在《SARS-CoV-2IsanUnrestrictedBioweapon:ATruthRevealedthroughUncoveringaLarge-Scale,OrganizedScientificFraud（SARS-CoV-2是超限生化武器：揭露大規模，有組織的科學欺詐行為揭示的真相）》論文中參考文獻部分第2篇文獻[A new coronavirus associated with human respiratory disease in China](https://www.nature.com/articles/s41586-020-2008-3#Abs1)（與人類呼吸系統疾病有關的新型冠狀病毒），在這篇論文中張永振團隊通過科學分析得出了武漢肺炎病毒與蝙蝠冠狀病毒bat-SL-CoVZC45存在密切關係，而同樣是張永振團隊因為2020年1月11日在NIH上傳了武漢肺炎病毒（中共冠狀病毒）的基因序列而被中共關閉了其團隊所在的上海實驗室。
+遊行之後，B國疫情突然加重，每天都有上千人發病。就像戈斯坦因預測的那樣，醫院沒有地方接納這麼多病人，學校和體育場改成了臨時收容所。一些有症狀的人不願傳染給家人，就帶著睡袋住到廣場和公園裡。走在街上經常會聽到呻吟、哭聲、發洩、咒罵和爭吵。整個城市陷入骯髒和混亂，垃圾和污物得不到及時清理，到處是揮之不去的各種臭味混雜在一起。
 
-這篇論文的發佈時間線是：Received07 January 2020（接收日期2020年1月7日）Accepted28 January 2020（接受日期2020年1月28日）Published03 February 2020（印刷日期2020年2月3日）Issue Date12 March 2020（簽發日期2020年3月12日）
+溫斯頓領取的藥物有了升級版，而且服用的劑量加大。塞姆悄悄告訴他，發現了一種新的病毒，傳染性更強，更難以預防。好消息是，新病毒的致死率比較低，被感染的人也不那麼痛苦，只是會影響正常生活，無法工作。因此全國的經濟活動都停下來，政府機構也關門了。 B國總統和夫人也都出現症狀，在公開場合都穿著厚厚的防護服。網上有人懷疑，他們其實已經住院，出來的是替身。
 
-其作者團隊是（筆者注：由於搜集資料的限制，有部分作者無法與公開資料中的中文名字一一對應，凡無法對應的均不在英文名字後邊列中文名字）：
+戈斯坦因認為B國高層對病毒的來源和危害早就知道，但他們不會說出來。也許他們畏懼A國，也畏懼B國。他們是被B國人投票選出來的，B國人選他們，是為了讓他們不斷告訴自己，B國有多麼了不起，而不是告訴他們你必然會生病，你的親人必然會死去，B國完了，我們控制不了病毒，誰也無法消滅病毒。說出真相的人將比病毒本身還遭人痛恨。
 
-[Fan Wu](;), [Su Zhao](;), [Bin Yu](;), [Yan-Mei Chen](;), [Wen Wang](;), [Zhi-Gang Song](;), [Yi Hu](;), [Zhao-Wu Tao](;), [Jun-Hua Tian](;), [Yuan-Yuan Pei](;), [Ming-Li Yuan](;), [Yu-Ling Zhang](;), [Fa-Hui Dai](;), [Yi Liu](;), [Qi-Min Wang](;), [Jiao-Jiao Zheng](;), [Lin Xu](;), [Edward C. Holmes](;) & [Yong-Zhen Zhang](;)
+還有一種更可怕的可能，B國的高級官員不僅早知道病毒，而且參與了製造病毒。這些人早就被A國收買，甚至成為“他們”的一部分了。 B國人怎麼會想到自己已經被出賣了？
 
-這些作者的隸屬關係是：
+溫斯頓覺得特別魔幻。辦公電腦裡的休閒區依然是模擬遊戲和瑣碎的家庭恩怨劇。走出大門，看到的卻更像一個想像的世界。才一年多，B國迅速惡化，已經面目全非，再也不可能回到從前。而戈斯坦因說，這僅僅是開始。如果B國人還不明白，還是束手就擒，就再也沒有機會了。
 
-1、Shanghai Public Health Clinical Center, Fudan University, Shanghai, China（[上海市公共衛生臨床中心（Public Health Clinical Center）](https://www.baidu.com/link?url=XnPnc_vxV4U6_nMzJk2sCJwIxtcF46GzXef4lMAZ1F2lsSOJSAtY4p3beqzDb-8i6rUny8-VOO2ZYT5KyXmm0K&amp;wd=&amp;eqid=a081ff57000e97aa000000065f8253b9)）
+溫斯頓想到茱莉婭一家，他們如何能明白呢？奧布蘭已經把那家美術館的大部分藏品處理掉，開始召集藝術家製作宣傳A國如何成功抗疫的繪畫和雕塑，並陳列在B國的公共場所。那些躺在公園裡得不到藥物救治的病人，看到旁邊散發著英雄氣概A國雕像，會被感動嗎？會盼望B國被合併到A國嗎？再加上帕森斯這些人在媒體上“妙筆生花”，所有人都會相信只要像A國一樣，一切就會好起來？
 
-Fan Wu, Yan-Mei Chen, Zhi-Gang Song, Yuan-Yuan Pei, Yu-Ling Zhang, Fa-Hui Dai, Yi Liu, Qi-Min Wang, Jiao-Jiao Zheng, Lin Xu, Edward C. Holmes & Yong-Zhen Zhang（[張永振](https://www.baidu.com/link?url=FOAEzLjFhnLH_8RJSD_8uk7PFeLISxuWe8qwBsaqYnL2opyYyMC-sv95osVXve9sZdrJIAzYxGFjxIOHKLin5Zv4SD_GwKIC2yIpanvwO5Ss74-LX2rqoVx6r_-sWshk&amp;wd=&amp;eqid=d7843c0200057609000000065f82673c)）
+至少茱莉婭的父母已經相信了。他們現在很少出門，通過報紙知道外面情況不好，但只要照搬A國的政策，B國很快就有希望了。他們對溫斯頓格外熱情，很想知道更多A國的事。溫斯頓被他們問得啞口無言。他無法告訴他們在A國發病地區，人們的家門被封死，全家只能被餓死。收屍體的人夜裡悄悄進去收屍。親人死去後不讓祭奠，甚至不允許哭。這些都是為了讓你們以為A國能控制住病毒的傳播。而最核心的是，製造這些病毒就是用來對付你們的。一種病毒不夠，他們還有更多的種類，直到你們把“他們”當作神來膜拜，心甘情願被“他們”統治。
 
-2、Department of Pulmonary and Critical Care Medicine, The Central Hospital of Wuhan, Tongji Medical College, Huazhong University of Science and Technology, Wuhan, China（華中科技大學同濟醫學院武漢市中心醫院呼吸內科與重症醫學科）
+溫斯頓不是來陪老人解悶的，他有更重要的事：他和茱莉婭的人生大事。他的申請已經獲得批准，他可以和茱莉婭結婚了。其實，從被批准的一刻開始，他們已經就被A國登記為夫妻，無論茱莉婭一家人是否接受，他和茱莉婭已經有了養育後代的任務。
 
-Su Zhao（[趙蘇](http://hxnk.zxhospital.com/index.php/index/zjview/aid/494.html)）, Yi Hu（[胡軼](http://hxnk.zxhospital.com/index.php/index/zjview/aid/7612.html)）, Zhao-Wu Tao（[陶兆武](http://hxnk.zxhospital.com/index.php/index/view/aid/15906.html)） & Ming-Li Yuan（[袁明麗](https://www.baidu.com/link?url=lj9yB9yVE827nMDtoQyBVu2XxabpJG-ZPtUHYJG8DiNORWtaXDB6HCmT3qdOVJe_7bH_cLidfhq959WkBKXTyblQwtYpCjigjZaXBf_pOzS&amp;wd=&amp;eqid=a2cc2d6f00204b0c000000065f826277)）
+這些是沒法直接告訴茱莉婭的父母的。他們不知道這個女婿並不是一個B國意義上的人，而只是A國龐大體系的一個活的工具而已。而茱莉婭所以能被接收到這個體系裡，是因為她可以為“他們”生育出更多工具。溫斯頓相信，這對茱莉婭也是最好的選擇。
 
-3、Wuhan Center for Disease Control and Prevention, Wuhan, China（湖北省武漢疾病預防中心）
+如果B國完全被A國控制，所有年輕的女性都會像A國女性一樣被隨意支配，是一種可以任意使用的資源。對“他們”來說，得到權力，就是為了兩種東西：財富和女性。用粗俗的語言來說就是錢和性。女性可以提供性，也可以因為性而變成錢。為此，世界上任何東西都是獲得權力的工具，除了錢和性，任何東西在他們眼裡都沒有價值。溫斯頓所珍視的人類所創造的相對公平的社會、對世界的探索精神、自由的生活和精美的藝術，在“他們”看來都是糞土，隨時可以被碾碎。
 
-Bin Yu（[餘濱](https://www.whcdc.org/index/zhuanjia.html?id=54)） & Jun-Hua Tian（[田俊華](https://www.baidu.com/link?url=fPJajDU5kIPE_wYdT5W9U53jixm8Cmv70r9kzbdlE6HOclNhcJjDAKCKRDjeIMdm&amp;wd=&amp;eqid=f5f32d9e001f506a000000065f826452)）
+溫斯頓是帶著藥來的。這週開始，茱莉婭就被看作他的家庭成員，未來的孩子母親，因此必須開始預防病毒。他最擔心的是茱莉婭不肯服用。溫斯頓沒有告訴過茱莉婭，他一直在服藥。為什麼為A國工作的人能領取藥物，這不可疑嗎？茱莉婭會不會問，為什麼A國知道如何防治病毒？
 
-4、Department of Zoonosis, National Institute for Communicable Disease Control and Prevention, China Center for Disease Control and Prevention, Beijing, China（中國疾病預防控制中心傳染病預防控制所人畜共患病室）
+茱莉婭沒有問。溫斯頓解釋說單位推薦使用這種藥物，他給她弄到了。茱莉婭也沒有問，是從哪裡弄到的。心大也能算是優點吧，溫斯頓鬆了口氣。他沒料到更麻煩的事。茱莉婭看到了藥的包裝。
 
-Wen Wang & Yong-Zhen Zhang（[張永振](https://www.baidu.com/link?url=FOAEzLjFhnLH_8RJSD_8uk7PFeLISxuWe8qwBsaqYnL2opyYyMC-sv95osVXve9sZdrJIAzYxGFjxIOHKLin5Zv4SD_GwKIC2yIpanvwO5Ss74-LX2rqoVx6r_-sWshk&amp;wd=&amp;eqid=d7843c0200057609000000065f82673c)）
+“這藥有問題！”茱莉婭叫起來。
 
-5、Marie Bashir Institute for Infectious Diseases and Biosecurity, School of Life and Environmental Sciences and School of Medical Sciences, The University of Sydney, Sydney, New South Wales, Australia（悉尼大學瑪麗·巴希爾傳染病與生物安全研究所，生命與環境科學學院和醫學學院，澳大利亞新南威爾士州悉尼）
+“什麼問題？”溫斯頓忍不住皺皺眉。
 
-Edward C. Holmes
+“你沒看報紙嗎？說這種藥不僅沒用，還會導致心臟驟停。有人吃這藥死了！”
 
-6、School of Public Health, Fudan University, Shanghai, China（[復旦大學生物醫學研究院](https://baike.baidu.com/item/%E5%A4%8D%E6%97%A6%E5%A4%A7%E5%AD%A6%E7%94%9F%E7%89%A9%E5%8C%BB%E5%AD%A6%E7%A0%94%E7%A9%B6%E9%99%A2/3805370)）
+“不是，那個人沒有按照劑量服用，吃的太多了。”溫斯頓想起來，確實報導過這件事。
 
-Yong-Zhen Zhang（**[張永振](https://www.baidu.com/link?url=FOAEzLjFhnLH_8RJSD_8uk7PFeLISxuWe8qwBsaqYnL2opyYyMC-sv95osVXve9sZdrJIAzYxGFjxIOHKLin5Zv4SD_GwKIC2yIpanvwO5Ss74-LX2rqoVx6r_-sWshk&amp;wd=&amp;eqid=d7843c0200057609000000065f82673c)**）
+“不是，我看到過研究人員的警告，說絕對不能自己服用。而且有些醫生也說，給病人服用後，病情更重了。你還沒有吃吧？你沒事吧？”茱莉婭一把抓住溫斯頓。
 
-這篇論文的中文譯本據[全文編譯！復旦大學張永振課題組發表Nature論文揭示新型冠狀病毒2019-nCoV與中國正在爆發的人類呼吸道疾病有關](https://news.bioon.com/article/6749934.html)（生物谷來源：本站原創 2020-02-04 20:28）
+“我沒事，你別揪著我。我挺好的，你小點聲。”溫斯頓無奈地說。
 
-2020年2月4日訊/生物穀BIOON/—嚴重急性呼吸綜合征（SARS）和寨卡（Zika）等新興傳染病對公共衛生構成了重大威脅。儘管進行了廣泛的研究，但是如何、何時和何地出現新疾病仍然具有相當大的不確定性。最近在中國湖北省武漢市報導了一種嚴重的呼吸系統疾病。自第一位患者于2019年12月12日住院以來，截至2020年1月25日，已報導了至少1975例病例。流行病學調查提示著此次疫情爆發與武漢的一家海鮮市場有關。
+A國一直在宣傳這種藥不能預防，也不能治療病毒。如果B國人服用了，病毒就無效了。而且這種藥的生產量也不可能滿足所有人的服用需要。最好的辦法就是買通專家，通過他們嚇唬普通人。
 
-在一項新的研究中，來自中國復旦大學、中國疾病預防控制中心、華中科技大學和武漢市疾病預防控制中心的研究人員研究了一名在這家海鮮市場工作的患者，該患者于2019年12月26日入住武漢市中心醫院，出現了嚴重的呼吸綜合征，包括發燒、頭暈和咳嗽。相關研究結果於2020年2月3日線上發表在Nature期刊上，論文標題為“A new coronavirus associated with human respiratory disease in China”。重要的是，Nature期刊在2020年1月7年收到這篇論文的手稿，1月28日就接受了這篇論文，並以“加快評審文章（Accelerated Article Preview）”的形式線上發表了這篇論文。論文通訊作者為復旦大學公共衛生學院張永振（Yong-Zhen Zhang）教授。
+“我已經吃了一個月，就是想試驗一下。你看，我這不是很好嗎？我的同事都在吃，也沒有任何副作用，只要按照劑量服用，就沒事的。你相信我。我不會害你的。”溫斯頓知道，告訴茱莉婭其他人都在撒謊。他們就會像上次一樣吵起來。他必須換一種策略。唯一可以說服茱莉婭的，就是讓她信任他。
 
-這名接受研究的患者是一名41歲的男性，無肝炎、結核病和糖尿病病史。他在病發六天后即2019年12月26日入住武漢市中心醫院。這名患者在就診一周後就出現發燒、胸悶，無力咳嗽、疼痛和虛弱。心血管、腹部和神經系統檢查均正常。觀察到輕度的淋巴細胞減少（每立方毫米少於900個細胞），但在全血細胞計數（CBC）測試中，白細胞和血小板計數正常。在血液化學測試中，觀察到C反應蛋白（CRP，血液41.4 mg/L，參考範圍0～6 mg/L）升高，並且天冬氨酸轉氨酶、乳酸脫氫酶和肌酸激酶的水準略有升高。動脈血氣（ABG）測試顯示這名患者患有輕度低氧血症，血氧水準為67mmHg。在入院的第一天（發病後第6天），胸部X線照片異常，伴有氣腔陰影，如磨玻璃樣陰影（ground glass opacity），雙肺局灶性實變和斑片狀實變。CT掃描顯示雙側局灶性實變、大葉性實變和斑片狀實變，尤其是下肺。胸部X線照片顯示入院後第5天（發病後第11天）雙側彌漫性斑塊狀的模糊陰影。
+“可是……”
 
-通過商業病原體抗原檢測試劑盒開展的初步病原學調查排除了流感病毒、肺炎衣原體和肺炎支原體的存在，並利用PCR進行了確認。其他常見的呼吸道病原體，包括腺病毒，通過qPCR測試也是陰性。儘管進行了抗生素、抗病毒藥物和糖皮質激素的聯合治療，但是這名患者表現出呼吸衰竭，並接受了高流量無創通氣。在治療三天后，這名患者的病情沒有改善，被送進了重症監護室（ICU）。這名患者入院6天后被轉移到武漢的另一家醫院接受進一步治療。
+“那些專家也有弄錯的時候，而且每個人的身體情況也不一樣。他們都是給已經感染的人服用。”
 
-武漢市疾病預防控制中心流行病學調查顯示，這名患者在當地的一家室內海鮮市場工作。值得注意的是，除魚類和貝類外，在這次疫情開始之前，這家海鮮市場上還出售各種活的野生動物，包括刺蝟、獾、蛇和鳥類（斑鳩），以及動物屍體和動物肉。沒有蝙蝠在銷售。儘管這名患者可能與這家海鮮市場上的野生動物接觸過，但是他回憶說，他沒有接觸活禽。
+“那也……”
 
-為了研究與這種疾病相關的可能病原體，這些研究人員收集了支氣管肺泡灌洗液（BALF）並進行了深度宏轉錄組測序。這名患者的臨床樣本在上海公共衛生臨床中心的生物安全3級實驗室中進行處理。從200μl BALF樣本中提取總RNA，並使用Illumina MiniSeq進行雙端（150 bp）測序，從而構建出宏轉錄組文庫。他們總共產生了56565928個讀取序列（sequence read），從頭開始組裝這些讀取序列並篩選潛在的病原體。在利用Megahit組裝出的384096個片段重疊群（contig）中，最長的片段重疊群（30474個核苷酸[nt]）具有很高的豐度，並且與之前在中國採樣獲得的蝙蝠SARS樣冠狀病毒分離株bat-SL-CoVZC45（GenBank登錄號MG772933）具有密切的親緣關係，核苷酸序列同一性為89.1％。這種新型病毒的基因組序列及其末端分別通過RT-PCR9和5’/3′ RACE Kit（TaKaRa）加以確定和確認。它被命名為WH-Human 1冠狀病毒（WHCV，也被稱為2019-nCoV）。它的全基因組序列（29903 nt）的GenBank登錄號為MN908947。將這些RNA測序（RNA-seq）資料與這種組裝出的WHCV完整基因組進行重新映射導致123613個讀取片段發生組裝，並且在平均深度為6.04X（範圍：0.01X-78.84X）的條件下可實現99.99％的基因組覆蓋率。定量PCR（qPCR）估計BALF樣本中的病毒載量為3.95×108拷貝/mL。 通過與β冠狀病毒屬的兩個代表性成員—人類起源的冠狀病毒（SARS-CoV Tor2，AY274119）和蝙蝠起源的冠狀病毒（Bat-SL-CoVZC45，MG772933）—進行序列比對，這些研究人員描述了WHCV的病毒基因組結構特徵。基於這種序列比對和開放閱讀框（ORF），對WHCV的非翻譯區（UTR）和ORF進行了定位。WHCV病毒基因組類似於這兩種冠狀病毒（圖1），它的基因次序為：5′-replicase ORF1ab-S-envelope(E)-membrane(M)-N-3’。WHCV具有典型的β冠狀病毒的5’和3’末端序列，5’末端有265 nt，3’末端有229 nt。這個預測的WHCV ORF1ab基因（編碼複製酶）長度為21291 nt，包含16個預測的非結構蛋白（NSP），隨後是（至少）13個下游ORF。此外，WHCV和SARS-CoV在nsp1中具有一個高度保守的結構域（LLRKNGNKG：氨基酸122-130）。WHCV的S、ORF3a、E、M和N基因的預測長度分別為3822 nt、828 nt、228 nt、669 nt和1260 nt。除了Sarbecovirus亞屬的所有成員都具有這些ORF區域之外，WHCV與SARS-CoV之所以相類似是因為它攜帶一個預測的位於M基因（編碼包膜蛋白的ORF）和N基因之間的ORF8基因（長度為366 nt）。WHCV ORF的功能是根據已知的冠狀病毒序列預測的。與SARS CoV Tor2類似的是，一個前導轉錄調控序列（TRS）和9個假定的TRS可以很容易地在WHCV ORF的5’端上游鑒定出來，其中假定的保守性TRS核心序列以兩種形式—ACGAAC和CUAAAC—之一出現。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10230330/1-66.png)
-圖1.SARS-CoV、WHCV和包括Tor2和CoVZC45在內的SARS樣冠狀病毒的基因組結構。圖片來自Nature, 2020, doi:10.1038/s41586-020-2008-3。
+“這樣吧，你先吃一次，按照這個劑量，這麼少一點，不會有問題的。真的！”溫斯頓很少這樣當機立斷。茱莉婭顯然並沒有被完全說服。但她還是在溫斯頓的催促下把藥放進嘴裡，一仰脖，用水送了下去。
 
-為了確定WHCV與先前鑒定的冠狀病毒之間的進化關係，這些研究人員基於整個基因組序列的核苷酸序列、非結構蛋白基因ORF1a和ORF1b以及S、E、M和N基因編碼的主要結構蛋白，估算了系統進化樹（圖2）。在所有系統進化樹中，WHCV與Sarbecovirus亞屬的成員（包括導致2002-2003年全球SARS 疫情的SARS-CoV）以及從蝙蝠中採集的許多SARS樣冠狀病毒簇集在一起。然而，根據所使用的基因不同，WHCV在Sarbecovirus亞屬內的拓撲位置發生變化，這提示著這組病毒在過去發生了重組事件（圖2）。具體而言，在S基因系統進化樹中，WHCV與蝙蝠冠狀病毒bat-SL-CoVZC45存在最為密切的親緣關係，氨基酸一致性為82.3％，而與SARS-CoV的氨基酸一致性大約為77.2％）；在ORF1b系統進化樹中，WHCV下降至Sarbecovirus亞屬內的基礎位置（圖2）。這種拓撲劃分（topological division）可能反映了蝙蝠病毒Sarbecovirus之間發生的重組事件，也在利用複製酶多蛋白pp1ab的保守結構域估算的系統進化樹中觀察到。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10230407/2-37.png)
-圖2.WHCV及相關冠狀病毒的ORF1a、ORF1b、E基因、M基因核苷酸序列的最大似然系統進化，圖片來自Nature, 2020, doi:10.1038/s41586-020-2008-3。
+溫斯頓笑了：“這就對了，好孩子！”
 
-為了更好地瞭解WHCV感染人類的潛力，將它的刺突蛋白（S）的受體結合結構域（RBD）與SARS-CoV和蝙蝠SARS樣冠狀病毒中的RBD進行了比較。WHCV的RBD序列與SARS-CoV的RBD序列（氨基酸一致性為73.8％～74.9％）和包括毒株RB4874、Rs7327和Rs4231在內的能夠利用人ACE2受體進入細胞的SARS樣冠狀病毒（氨基酸一致性為75.9％～76.9％）存在更為密切的親緣關係。此外，WHCV RBD僅比SARS-CoV RBD長一個氨基酸。相反，與SARS-CoV相比，包括毒株Rp3在內的不能使用人ACE211的其他蝙蝠SARS樣冠狀病毒在473-477和460-472位點發生氨基酸缺失。先前確定的與人ACE2（PDB 2AJF）結合在一起的SARS-CoV RBD的晶體結構顯示，區域473-477和460-472與人ACE2直接相互作用，因此可能在確定物種特異性中起著重要的作用。
+他抓住茱莉婭的雙手，把她拉進懷裡。幸虧這傻姑娘遇到的是他，如果遇到個騙子，她是不是也相信？
 
-這些研究人員使用SWISS-MODEL伺服器進行蛋白同源性建模來預測WHCV、Rs4874和Rp3 RBD結構域的三維蛋白結構，並將它們與SARS-CoV RBD結構域的晶體結構（PDB 2GHV）進行了比較。與序列比對相一致的是，WHCV和Rs4874 RBD結構域的預測蛋白結構與SARS-CoV的RBD結構域存在密切的親緣關係，但與Rp3 RBD結構域的預測蛋白結構不同。此外，相比於可以結合唾液酸的其他人類冠狀病毒（HKU1和OC43），WHCV S蛋白的N末端與SARS-CoV S蛋白的N末端更相似。總之，WHCV和SARS-CoV RBD結構域在氨基酸序列和預測的蛋白結構方面存在高度相似性，這就表明WHCV可能有效地利用人ACE2作為細胞進入受體，從而潛在地促進人與人之間的傳播。 為了進一步表徵Sarbecovirus病毒的進化史中發生的推定重組事件，這些研究人員使用了重組檢測程式v4（Recombination Detection Program v4, RDP4）分析了WHCV和四種代表性冠狀病毒—蝙蝠SARS樣冠狀病毒 Rp3，CoVZC45，CoVZXC21和SARS-CoV Tor2—的全基因組序列。儘管相似性圖提示著WHCV和SARS-CoV或SARS樣冠狀病毒之間可能發生重組事件，但沒有明顯的證據表明整個基因組都發生重組。然而，在WHCV和SARS-CoV和蝙蝠SARS樣冠狀病毒（WIV1和RsSHC014）的S基因中檢測到一些在過去發生重組事件的證據（p&lt;3.147×10-3 to p&lt;9.198×10-9），而且相似性圖提示著在將WHCV S基因分為三個區域的核苷酸1029和1652處存在重組斷裂點（圖3）。在片段（nt 1～1029）和片段（nt 1652至S基因序列末端）的系統進化樹中，WHCV與蝙蝠冠狀病毒Bat-SL-CoVZC45和Bat-SL-CoVZXC21存在最為密切的親緣關係，而在片段（nt 1030～1651）的系統進化樹中，WHCV與能夠直接人際傳播的SARS-CoV和蝙蝠SARS樣冠狀病毒（WIV1和RsSHC014）劃分在一起。儘管這些重組事件似乎在Sarbecovirus病毒中比較常見，但沒有證據表明重組促進了WHCV的出現。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10230438/3-28.png)
-圖3.Sarbecovirus病毒的S基因可能發生的重組事件，圖片來自Nature, 2020, doi:10.1038/s41586-020-2008-3。
+（未完待續……）
 
-冠狀病毒與人類的許多傳染病疫情有關，包括2002～2003年的SARS和20121年的MERS。其他的四種冠狀病毒—人類冠狀病毒HKU1、OC43、NL63和229E—也與呼吸系統疾病有關。儘管自2005年以來在中國在包括蝙蝠在內的哺乳動物中廣泛發現了SARS樣冠狀病毒，但是感染人類的冠狀病毒的確切來源仍不清楚。
+(文章內容僅代表作者觀點)
 
-在這篇論文中，這些研究人員從中國武漢市一名患有嚴重呼吸系統疾病的患者的BALF樣本中描述了一種新型冠狀病毒：WHCV（2019-nCoV）。系統進化樹分析表明WHCV是β冠狀病毒屬（Sarbecovirus亞屬）中的一種新型病毒，因此與SARS-CoV1表現出一些基因組和系統進化相似性，尤其是在RBD中。2019-nCoV與SARS-CoV之間存在的基因組和臨床相似性，以及它在臨床樣本中的大量存在，為WHCV與武漢市正在發生的呼吸道疾病疫情之間存在關聯性提供了證據。儘管僅從一名患者中分離出這種病毒不足以得出導致呼吸道症狀的結論，但是這些發現已在其他患者中得到獨立證實。
-
-蝙蝠中多種SARS樣冠狀病毒的鑒定導致人們認為這些動物是這些病毒的天然宿主。儘管在中國的蝙蝠中廣泛發現了SARS樣冠狀病毒，但尚未記錄到與SARS-CoV相同的病毒。值得注意的是，WHCV與蝙蝠冠狀病毒存在最為密切的親緣關係，甚至在nsp7和E蛋白方面與Bat-SL-CoVZC45表現出100％的氨基酸相似性。因此，這些資料表明蝙蝠可能是WHCV的宿主。但是，由於首次報導這種疾病時這家海鮮市場上有多種動物在出售，因此需要開展更多的研究工作來確定WHCV的天然宿主和中間宿主。（生物穀 Bioon.com）
-**參考資料：**
-
-**Fan Wu et al.****[A new coronavirus associated with human respiratory disease in China](https://www.nature.com/articles/s41586-020-2008-3)****. Nature, 2020, doi:10.1038/s41586-020-2008-3.**
-
-——————原文引用完畢——————
-
-綜述：這篇論文的撰寫團隊為：上海市公共衛生臨床中心張永振等；武漢市中心醫院袁明麗等；武漢疾病預防中心田俊華等；中國疾病預防控制中心Wang Wen；悉尼大學Holmes；
-
-（文章內容僅代表作者個人觀點）
+[【戰友文學原創】連載001: 1984進行時](https://gnews.org/zh-hans/348358/)
+[【戰友文學原創】連載002: 1984進行時](https://gnews.org/zh-hans/350312/)
+[【戰友文學原創】連載003: 1984進行時](https://gnews.org/zh-hans/357228/)
+[【戰友文學原創】連載004: 1984進行時](https://gnews.org/zh-hans/354617/)
+[【戰友文學原創】連載005: 1984進行時](https://gnews.org/zh-hans/354650/)
+[【戰友文學原創】連載006: 1984進行時](https://gnews.org/zh-hans/359871/)
+[【戰友文學原創】連載007: 1984進行時](https://gnews.org/zh-hans/363684/)
+[【戰友文學原創】連載008: 1984進行時](https://gnews.org/zh-hans/366569/)
+[【戰友文學原創】連載009: 1984進行時](https://gnews.org/zh-hans/369767/)
+[【戰友文學原創】連載010: 1984進行時](https://gnews.org/zh-hans/372897/)
+[【戰友文學原創】連載011: 1984進行時](https://gnews.org/wp-admin/post.php?post=376680&amp;action=edit&amp;lang=zh-hans)
+[【戰友文學原創】連載012: 1984進行時](https://gnews.org/zh-hans/379077/)
+[【戰友文學原創】連載013: 1984進行時](https://gnews.org/zh-hans/381851/)
+[【戰友文學原創】連載014: 1984進行時](https://gnews.org/zh-hans/382285/)
+[【戰友文學原創】連載015: 1984進行時](https://gnews.org/zh-hans/384209/)
+[【戰友文學原創】連載016: 1984進行時](https://gnews.org/zh-hans/386255/)
+[【戰友文學原創】連載017: 1984進行時](https://gnews.org/zh-hans/387960/)
+[【戰友文學原創】連載018: 1984進行時](https://gnews.org/zh-hans/390630/)
+[【戰友文學原創】連載019: 1984進行時](https://gnews.org/zh-hans/393225/)
+[【戰友文學原創】連載020: 1984進行時](https://gnews.org/zh-hans/395297/)
+[【戰友文學原創】連載021: 1984進行時](https://gnews.org/zh-hans/397429/)
+[【戰友文學原創】連載022: 1984進行時](https://gnews.org/zh-hans/399951/)
+[【戰友文學原創】連載023: 1984進行時](https://gnews.org/zh-hans/403879/)
+[【戰友文學原創】連載024: 1984進行時](https://gnews.org/zh-hans/406631/)
+[【戰友文學原創】連載025: 1984進行時](https://gnews.org/zh-hans/408243/)
+[【戰友文學原創】連載026: 1984進行時](https://gnews.org/zh-hans/410456/)
+[【戰友文學原創】連載027: 1984進行時](https://gnews.org/zh-hans/412301/)
+[【戰友文學原創】連載028: 1984進行時](https://gnews.org/zh-hans/414810/)
 
 0

@@ -1,31 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共與加拿大政府的深度勾兌
-`2020-10-10 23:26 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/416854/)
+## 【热点播报】堪称政治核弹！美国国务院深夜放出希拉里的38691个邮件！速速下载!
+`2020-10-11 01:19 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/416985/)
 
-喜馬拉雅聯盟加拿大農場F-35C
+作者：美东香草山农场灭共霹雳组  正道主义联盟
 
-校對WJ 上傳HUH
-![]()![](https://media.discordapp.net/attachments/754012761402376282/759961999609430026/infiltrate.png?width=906&amp;height=509)
-據TRUE NORTH10月8日報導，幾十年來，中共政府一直妄圖滲透加拿大政府及公司，早在1997年就出爐了關於中共和亞洲有組織的犯罪（AOC）試圖影響加拿大政府高級官員的報告，即“響尾蛇計劃”。令人震驚的是，在報告建議開始展開全面調查之後，當時自由黨總理讓·克雷蒂安（Jean Chretien）終止了調查，並得到了加拿大政府加拿大安全情報局（CSIS）機構以及由鮑勃·雷（Bob Rae）領導的安全情報審查委員會（SIRC）的支持。
+审核：浪迹天涯
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11011815/WhatsApp-Image-2020-10-10-at-15.18.13-1.jpg)
+2015年3月，希拉里**·**克林顿电子邮件争议（[英语](https://zh.m.wikipedia.org/wiki/%E8%8B%B1%E8%AA%9E)：**Hillary Clinton email controversy**）被公开披露，[2016年美国总统选举](https://zh.m.wikipedia.org/wiki/2016%E5%B9%B4%E7%BE%8E%E5%9C%8B%E7%B8%BD%E7%B5%B1%E9%81%B8%E8%88%89)[民主党](https://zh.m.wikipedia.org/wiki/%E6%B0%91%E4%B8%BB%E9%BB%A8_%28%E7%BE%8E%E5%9C%8B%29)参选人[希拉里·克林顿](https://zh.m.wikipedia.org/wiki/%E5%B8%8C%E6%8B%89%E9%87%8C%C2%B7%E5%85%8B%E6%9E%97%E9%A1%BF)在担任[美国国务卿](https://zh.m.wikipedia.org/wiki/%E7%BE%8E%E5%9B%BD%E5%9B%BD%E5%8A%A1%E5%8D%BF)期间（2009－2013）使用她的私人电子邮件服务器进行官方通信，而不用在联邦服务器上维护的官方国务院电子邮件帐户。这些官方通信包括上千封后来被由国务院归类为[国家机密](https://zh.m.wikipedia.org/wiki/%E5%9B%BD%E5%AE%B6%E6%9C%BA%E5%AF%86)的电子邮件。
 
-加拿大是“五眼聯盟”之一，“五眼聯盟”成員國加拿大，美國，新西蘭，澳大利亞和英國之間是合作夥伴關係，目的是共享針對敵對勢力的情報。一般會同進退。但在其他的五眼聯盟國家政府已經明令禁止華為進入其5G網絡的現在，加拿大政府並沒有跟進，他們聲稱這樣是為了試圖安撫中共，這是到底是為什麼？
+争议在希拉里与班加西美国众议院专责委员会举行的听证会的背景下被揭露。一些专家、官员与[国会](https://zh.m.wikipedia.org/wiki/%E7%BE%8E%E5%9B%BD%E5%9B%BD%E4%BC%9A)议员认为她的私人邮件系统软件与私人服务器的使用违反了[国务院](https://zh.m.wikipedia.org/wiki/%E7%BE%8E%E5%9B%BD%E5%9B%BD%E5%8A%A1%E9%99%A2)协议与程序、联邦法律与[记录保存](https://zh.m.wikipedia.org/wiki/%E6%AA%94%E6%A1%88%E7%AE%A1%E7%90%86)管理条例。作为回应，希拉里表示她的个人电子邮件的使用遵照了联邦法律、国务院条例，而且前国务卿也曾维护个人电子邮件帐户，虽然未用自己的私人电子邮件服务器。
 
-通過分析特魯多基金會資金流向，可以發現賈斯汀·特魯多接任加拿大自由黨領導人後，外國資金開始大量流入基金會，並在他成為總理後爆炸式的增長。本週，我們獲悉，在多倫多豪宅經營非法賭場的負責人韋煒至少與特魯多會晤過兩次。此外，韋煒的機構向特魯多基金會捐贈了超過一百萬加元。同時有證據顯示韋煒的背後有中共的影子。
+指控提出后一些在争议中的电子邮件包含机密信息，[美国联邦调查局](https://zh.m.wikipedia.org/wiki/%E7%BE%8E%E5%9B%BD%E8%81%94%E9%82%A6%E8%B0%83%E6%9F%A5%E5%B1%80)（FBI）对关于希拉里服务器上有多少机密信息理展开了调查。113封电子邮件所载信息在当时是秘密，包括65封电子邮件“机密”与22封“绝密”。三封可为机密，但缺少机密标题，仅被用圆括号中的小写“c”标记，被联邦调查局局长詹姆斯·康梅描述为“部分标记”。康梅还表示希拉里可能不够“技术在行”以理解三个分类标记的意思。在服务器上的近2100封电子邮件被国务院追溯标记为机密。希拉里签署的政府政策非公开协议中重申，作为获得她安全许可的一部分，即使不带有此标记的敏感信息也应被归为机密处理。
 
-2016年9月，總理府發布了題為“職權範圍：加拿大-中國國家安全與法治高層對話”的文件。雖然幾乎沒有媒體對此協議進行報導，但對加拿大的國家安全和與中共國的關係具有深遠的影響。
+在2016年5月，国务院检察长办公室的释出83页的报告，关于国务院电子邮件的惯例。包括希拉里的电子邮件。2016年7月5日，联邦调查局局长[詹姆斯·科米](https://zh.m.wikipedia.org/wiki/%E8%A9%B9%E5%A7%86%E6%96%AF%C2%B7%E7%A7%91%E7%B1%B3)指出，希拉里在处理她的电子邮件系统上“极其粗心大意”，但调查结束后决定不指控希拉里。2016年7月6日，司法部长[洛丽泰·林奇](https://zh.m.wikipedia.org/wiki/%E6%B4%9B%E9%BA%97%E6%B3%B0%C2%B7%E6%9E%97%E5%A5%87)宣布不会提出指控。7月7日国务院对电子邮件争议再展开调查。2016年9月2日，联邦调查局发布对希拉里服务器的58页调查报告。不过，10月28日，科米一度宣布发现新线索，决定需要重启有关调查，被认为最终影响2016年美国大选，导致共和党的[唐纳德·特朗普](https://zh.m.wikipedia.org/wiki/%E5%94%90%E7%B4%8D%C2%B7%E5%B7%9D%E6%99%AE)最终当选的原因之一。希拉里的竞选团队表示：邮件泄露是[俄罗斯](https://zh.m.wikipedia.org/wiki/%E4%BF%84%E7%BD%97%E6%96%AF)间谍所为，他们的目的是在大选中帮助特朗普获胜，至今他们仍认为俄罗斯与特朗普团队有密切联系，协助特朗普胜出总统选举。但最终被证实通俄门是一场对特朗普总统的陷害！这次国务院在大选前把邮件门彻底揭秘，相信比水门事件对白宫的震荡要重磅得多！明天新闻继续追踪！！请持续关注【热点播报】！
 
-文件指出：“對話將由中共中央政法委書記和加拿大總理國家安全顧問共同主持。” 這意味著中共的政治局高級委員和向總理直接匯報的加拿大國家安全顧問共同工作，相當於中共政治局官員可對總理辦公室（PMO）施加重要影響。
-
-2016年，賈斯汀·特魯多（Justin Trudeau）任命了加拿大參議院加拿大中國商業委員會（CCBC）的主席彼得·哈德（Peter Harder），使其成為參議院自由政府名義上的負責人，通過參議院會議來促進立法。值得補充的是，CCBC的現任執行官包括Andre Desmarais的兒子Oliver Desmarais在響尾蛇報告中是亞洲有組織犯罪的主要人物。
-
-在閆麗夢博士站出來勇敢揭露病毒真相，指證中共的病毒超限戰, 接受美國福克斯媒體採訪引起世界轟動時，加拿大媒體卻一片靜悄悄，沒有任何相關報導。中共與加拿大政府深度勾兌，必須要打破這樣的現狀。希望心懷正義的人士可以更多的宣傳真相，喚醒被蒙蔽的加拿大人。
-
-信息來源：
-
-KNIGHT: Liberal ties to Communist China are hurting Canada
-
-> [KNIGHT: Liberal ties to Communist China are hurting Canada](https://tnc.news/2020/10/08/knight-liberal-ties-to-communist-china/)
+下載鏈接：**Virtual Reading Room Documents Search Results [foia.state.gov/search/results](https://foia.state.gov/Search/Results.aspx?searchText=Clinton%20email&amp;beginDate=&amp;endDate=&amp;publishedBeginDate=&amp;publishedEndDate=&amp;caseNumber=)[…](https://foia.state.gov/Search/Search.aspx)**
 
 0
