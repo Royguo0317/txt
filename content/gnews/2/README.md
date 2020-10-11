@@ -1,63 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 歷數中共篡權後的“自創罪狀”|邪惡至極，觸目驚心！
-`2020-10-11 12:40 Ronald` [轉載自GNews](https://gnews.org/zh-hant/418094/)
+## 唐納德·J·川普總統10月10日健康狀況更新
+`2020-10-11 15:45 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/418352/)
 
-內新聞/素材：YMO      校對：雅典娜的聖鬥士(沙加)
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11153909/WH_20201010-Trump_Health-photo.png)
+THE WHITE HOUSE
 
-矛盾虛偽貪婪欺騙
+October 10, 2020
 
-幻想疑惑簡單善變
+白宮總統醫生
 
-好強無奈孤獨脆弱
+2020年10月10日
 
-忍讓氣忿複雜討厭
+MEMORANDUM FOR: KAYLEIGH MCENANY ASSISTANT TO THE PRESIDENT AND WHITE HOUSE PRESS SECRETARY
 
-嫉妒陰險爭奪埋怨
+致總統助理兼白宮新聞秘書Kayleigh Mcenany的備忘錄
 
-自私無聊變態冒險
+FROM: SEAN P. CONLEY, DO, FACEP PHYSICIAN TO THE PRESIDENT COMMANDER, U.S. NANY
 
-好色善良博愛詭辨
+來自：骨科醫學博士、美國急診醫師學會院士、美國海軍總統醫生指揮官Sean P. Conley
 
-能說空虛真誠金錢
+SUBJECT: Saturday Health Update on President Donald J. Trump
 
-哦我的天高級動物
+主題：唐納德·J·川普總統週六健康狀況更新
 
-地獄天堂皆在人間
+I release the following information with the permission of President Donald J. Trump.
 
-偉大渺小中庸可憐
+經唐納德·J·川普總統的許可，我發佈如下消息：
 
-歡樂痛苦戰爭平安
+This evening I am happy to report that in addition to the President meeting CDC criteria for the safe discontinuation of isolation, this morning’s COVID PCR sample demonstrates, by currently recognized standards, he is no longer considered a transmission risk to others. Now at day 10 from symptom onset, fever-free for well over 24 hours and all symptoms improved, the assortment of advanced diagnostic tests obtained reveal there is no longer evidence of actively replicating virus. In addition, sequential testing throughout his illness has demonstrated decreasing viral loads that correlate with increasing cycle threshold times, as well as decreasing and now undetectable subgenomic mRNA.
 
-輝煌黯淡得意傷感
+今天晚上我很高興地報告，總統除了符合疾病預防與控制中心（CDC）關於安全終止隔離的標準以外，今天早晨的COVID PCR樣本還顯示，根據目前認可的標準他已經不再有對其他人傳播的風險。從出現症狀到現在已是第10天，（他）超過24小時不發燒，所有症狀已改善，各種先進的診斷測試表明（他身體內）已經沒有主動自我複製病毒的跡象。此外，在他整個疾病期間進行的系列測試表明，減少病毒載量與增加週期臨界值次數以及減少現在不可檢測的亞基因組mRNA相關。
 
-懷恨報復專橫責難
+Moving forward, I will continue to monitor him clinically as he returns to an active schedule.
 
-幸福在哪裡
+接下來，我會在他恢復活動時間表後繼續對他進行臨床監測。
 
-這是1994年竇唯《高級動物》的歌詞，其中那48個形容詞都描繪了人間的百態，正反矛盾的聯繫,無一不是對人類的情感情緒、社會關係的真實寫照。在詞彙的使用上，中共可謂是創造歪門邪說的“行家”，下面的一長串名詞就不是那麼好看了，應該說是瞠目結舌，這都是中共創造並在打擊對手時真實使用過的罪狀名詞。
+白宮原文鏈接：[https://www.whitehouse.gov/wp-content/uploads/2020/10/MemoFromThePresdentsPhysician-101020.png](https://www.whitehouse.gov/wp-content/uploads/2020/10/MemoFromThePresdentsPhysician-101020.png)
 
-反動派、剝削階級、運動對象、牛鬼蛇神、封資脩大毒草、幫派體系、地主、富農、反革命分子、壞分子、右派分子、三反分子。
+翻譯：【Cyndi】編輯：【Isaiah4031】
 
-歷史反革命、現行反革命、反革命武裝政變、反革命黑幫、反革命暴亂、反共分子、反黨聯盟、反黨集團、陰謀反黨集團、反動學術權威、反黨反社會主義、反馬克思主義、反攻倒算、反軍亂軍。
-
-資產階級、資產階級知識分子、資產階級代表人物、資產階級民主派、資產階級反動路線、資產階級反動思想、新生資產階級分子、資產階級情調、資產階級生活方式、資產階級靡靡之音、小資產階級、小資產階級狂熱病、走資派、一小撮走資派、走資本主義道路的當權派、正在走的死不改悔的走資派。
-
-死硬派、頑固派、保皇派、兩面派、托派、左傾機會主義、極左思潮、形左實右、漏網右派、右傾機會主義、右傾翻案、右傾翻案風、右傾翻案風的急先鋒、右傾翻案風的總後台。
-
-黑幫、黑線、黑五類、黑爪牙、黑幫子弟、黑干將、黑秀才、黑手。
-
-投降主義、分裂主義、官僚主義、教條主義、無政府主義、賣國主義、錦標主義、爬行主義、享樂主義、唯心主義、修正主義、修正主義教育路線回潮。
-
-變節分子、胡風分子、聯動分子、自首分子、頑固分子、階級異己分子、四清四不清分子、五一六分子、投機倒把分子。
-![此圖像的alt屬性為空；文件名為1-48.jpg]()![此圖像的alt屬性為空；文件名為1-48.jpg](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11121600/1-48.jpg)
-中國的赫魯曉夫、赫魯曉夫式的人物、野心家、陰謀家、叛徒、特務、內奸、工賊、大黨閥、學閥、軍閥、狗崽子、封建地主階級孝子賢孫、帶著花崗岩腦袋見上帝的人、政治騙子、中國的納吉、臭老九、白專道路、洋奴哲學、崇洋媚外、里通外國、走狗、買辦、變色龍。
-
-二月逆流、二流堂、三家村、四家店、四舊、國民黨殘渣餘孽、階級鬥爭熄滅論、削尖腦袋鑽進革命陣營、混進黨內、反攻倒算、獨立王國、閻王殿、封資修、唯生產力論、物質刺激、人性論、小艦隊、小腳女人、小爬蟲、形而上學、封建奴隸制、孔孟之道、政治扒手、中庸之道、民主派、還鄉團、絆腳石、分數掛帥、業務掛帥、智育第一、白專道路。
-
-作風不正、作風問題、低級趣味、黃色下流、奇裝異服、生活腐化墮落、政治上的近視眼、挖社會主義牆角、偷聽敵台、湖南幫、破壞上山下鄉、軍事俱樂部……
-
-以上這些都是1949年中共篡權之後所創造出來的罪狀。如果竇唯還能唱著人間的地獄天堂，那這些就是深不見底的黑暗。當年魔岩唱片帶來的中國火，唯一可惜的地方就是沒有把台灣的價值觀傳播到大陸。現在和當年相比，我們有一個根本性改變的契機，就是爆料革命，滅共這個目標要靠大家的努力一起來實現它。不然的話，地球上的每個人都會成為其中一條罪狀，或者是那個省略號。
+戰友之家玫瑰園小隊出品
 
 0

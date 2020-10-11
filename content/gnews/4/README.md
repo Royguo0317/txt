@@ -1,29 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 國內快訊｜大陸又現“毒水”——GDP增長下的次生災害
-`2020-10-11 11:45 公民之聲` [轉載自GNews](https://gnews.org/zh-hant/418052/)
+## 全球懲賊行動圖集
+`2020-10-11 15:36 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/418341/)
 
-內新聞/素材：鷹(文言) 校對：雅典娜的聖鬥士(沙加)
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11105149/img_6463.jpg)
-重慶晨報10月11日報道，湖北仙桃市壹化工廠有毒物質泄露，造成自來水汙染，導致彭場鎮37位居民身體不適，入院治療。截至當前，除2名病情嚴重者住院治療外，其余居民均已康復。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11105225/img_6464.png)圖1：10月10日，許高雙仍躺在ICU病房內，昏迷不醒
-2020年10月2日上午，仙桃市彭場鎮馬溝、大嶺、夏新等3個村共17人出現頭暈、腹瀉、惡心等癥狀。至4日，累計就醫的居民達37人。現場取樣化驗為飲用自來水鋇金屬超標，這3個村的自來水均由同壹自來水公司供給，2號當天切斷入村水源，並於事故發生2天後恢復供水。
+喜馬拉雅聯盟加拿大農場 WJ
 
-經查證，此次事故由當地名為“湖北展朋新材料股份有限公司”的化工廠有毒物質泄露導致。該公司成立於2004年，生產各類電子材料500噸/月，其中電子級碳酸鋇350噸/月。10月2號，該企業停產受查，其老板稱懷疑競爭對手所為，但並無根據。且近幾年該公司曾因偷排汙水、汙水排放超標遭環保部門多次處罰，所以涉事企業老板的辯解嚴重缺乏信服力。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11105323/img_6465.jpg)
-雖然目前沒有出現死亡案例，但其造成的影響卻十分惡劣，因為涉及到民眾日常必須的飲用水安全。在以前，農村都是自己打井吃水，類似的飲用水中毒事故極少發生，主要是因為老百姓對水質的關切，再就是地下水因深度很少會被汙染。而後來，隨著所謂的“新農村建設”，飲用自來水進農村，打著飲用水安全的名義，強行將水源控制到政府手中。
+自2020年9月以來，爆料革命戰友自發在美國、加拿大、澳大利亞、新西蘭以及台灣等地開展依法、和平的全球懲賊行動。這不是簡單的抗議，也不是簡單的維權，它是影響著人類未來生存的一場巨大的革命。全球懲賊行動揭露所有海外共產黨潛伏的特務，凡是替共產黨搖旗吶喊的、替共產黨說好話的、反對香港運動的、造謠英雄科學家閆麗夢的、打擊爆料革命的、反對滅共的，都屬於懲賊範疇。
 
-但這樣做以後，並沒有對農村飲水有多大的安全保障，反而全國各地多有淤泥過多、顏色異常、氯氣超標等影響飲用水質的現象發生。明明是為了保證飲水安全才引進的自來水進村，結果反倒是自來水進村後事故多發。不得不說，這又是中共國的特色。民生中最重要的生命安全都無法保證，而所謂的“人民政府”也都是“事後諸葛亮”，整改過後壹段時間，水質汙染又時有發生。
+以下是各地懲賊行動圖集以及相關頻道
 
-此外，既然涉事化工廠2018年曾因偷排化工廢水被處罰過，但20萬的罰款對企業利潤而言只是杯水車薪，沒有處罰力度，根本達不到勒令整改的效果。由此，才導致了此次嚴重事故的發生。
+美國
 
-相較於飲用水安全，對當地環保部門、甚至政府而言，涉事企業帶來的GDP增長才是實打實的政績，這才有了化工企業偷排超標廢水屢禁不止，卻依舊可以開業盈利。若無此次的37名居民中毒事故的發生，該涉事企業可能照舊壹邊盈利，壹邊把鋇超標的廢水排放到雨水口，最終汙染河流水源。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11105356/img_6466.jpg)
-新聞來源：
+紐約—-**莊烈宏**
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150220/%E5%BA%84%E7%83%88%E5%AE%8F%E6%BC%AB%E7%94%BB.png)
+香草山之聲—GTV
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150205/%E5%BA%84%E7%83%88%E5%AE%8F-%E6%8A%97%E8%AE%AE.jpeg)
+洛杉磯—-**盲流子**（真名：靳清敏）
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11145939/EiehzNzU0AEE08c.jpg)
+喜馬拉雅洛城之聲-GTV
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11151619/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE474.png)
+德州米德蘭—-**傅希秋**
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11145929/cdd574a83ce6810f1afad19fc5ff6526.png)
+香草山之聲-GTV
+ NFSCTV-GTV
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11151737/%E5%82%85%E5%B8%8C%E7%A7%8B-%E6%8A%97%E8%AE%AE.jpeg)
+加拿大溫哥華—-**黃河邊**（真名：高冰塵）
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150050/%E9%BB%84%E6%B2%B3%E8%BE%B9.png)
+喜馬拉雅加拿大農場-GTV
+加農金融時事-GTV
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30160600/EjLcShtU0AEIozK.jpg)
+澳大利亞昆州—-**細思極恐**，又名：雞腿潘（真名：潘林正）
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150105/%E9%B8%A1%E8%85%BF%E6%BD%98.png)
+澳喜公關外聯組-GTV
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150007/%E6%BE%B3%E5%96%9C%E5%86%9C%E5%9C%BA.png)
+新西蘭漢密爾頓—-**朱萬利**
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150117/%E6%9C%B1%E4%B8%87%E5%88%A9.jpg)
+新西蘭農場時政台-GTV
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150130/%E6%9C%B1%E4%B8%87%E5%88%A9.png)
+台灣台北——**陳文茜**
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150040/%E9%99%88%E6%96%87%E8%8C%9C.png)
+臺灣喜馬拉雅農場-GTV
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11152438/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE479.png)
+全球懲賊，讓這些隱藏的中共黑手一個個暴露，讓各個國家警醒中共已經對其政治，社會和司法造成了巨大的影響，絕不能再姑息養奸，任由中共危害世界。
 
-[仙桃20余村民飲用自來水後出現中毒等癥狀，湖北省級調查組調查，警方已控制人員](https://www.cqcb.com/xindiaocha/redian/2020-10-11/3101856_pc.html)
+懲賊行動是考驗戰友最關鍵的標準，比的是耐力、決心、實力和不怕犧牲、不怕付出，也是對新中國聯邦在西方是否能得到信任和尊重最根本的基礎。在法治的西方，最終的決定在法庭上。誰輸誰贏，已見分曉！
 
-[湖北仙桃多名村民飲用水中毒 初步判定飲用水鋇金屬超標](https://dy.163.com/article/FOLGLAO305346936.html)
+
+
+相關新聞
+
+[新中國聯邦人告世界書：嚴正拒絕偽類代表華人形象](https://gnews.org/zh-hans/382773/)
+
+[懲賊行動！你最英雄](https://gnews.org/zh-hans/414340/)
+
+[全球依法滅賊行動加拿大掃黃遛狗10月4日跟進報導](https://gnews.org/zh-hans/403982/)
+[澳喜農場昆州依法懲賊運動初戰告捷雞腿潘囂張到幾時](https://gnews.org/zh-hans/414573/)
 
 0
