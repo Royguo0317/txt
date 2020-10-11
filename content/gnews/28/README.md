@@ -1,16 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言文字版】閆麗夢博士第二份重磅報告全文翻譯
-`2020-10-10 10:14 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/415807/)
+## 川翁失马，灭共只会加速
+`2020-10-10 18:06 HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hant/416443/)
 
-### **新型冠狀病毒COVID-19是中共超限生物武器**
+文/青椒文喜（俄罗斯喜马拉雅农场）
 
-#### 【**[英文原文報告PDF](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08093901/The-2nd-Yan-Report-3.pdf)**】【**[中文全文翻譯PDF](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10100300/%E9%97%AB%E5%8D%9A%E5%A3%AB%E7%AC%AC%E4%BA%8C%E4%BB%BD%E6%8A%A5%E5%91%8A%E4%B8%AD%E6%96%87%E7%89%88V2-1.pdf)**】【**[西班牙語全文翻譯PDF](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095025/%E3%80%90Espan%CC%83ol%E3%80%91The-2nd-Yan-report.pdf)**】
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093158/2-_1.png)
-**免責聲明：**本文系閆麗夢博士第二份科學報告之中文翻譯，僅供參考。某些專業術語的中文可能與您日常聽到的、或採用的略有出入，但不影響本翻譯的基本正確性。若本翻譯稿與英文原版有任何衝突或不一致的地方，請以[英文版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/08093901/The-2nd-Yan-Report-3.pdf)為準。
- — 秘密翻譯組G-Translators
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10092614/0001-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10092633/0002-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10092656/0003-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10092713/0004-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093217/0005-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093233/0006-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093249/0007-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093304/0008-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093348/0009-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093405/0010-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093426/0011-5-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093453/0012-3-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093510/0013-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093528/0014-3-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093545/0015-4-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095035/0016-4-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095054/0017-2-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093758/0018-3-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095126/0019-2-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095257/Screen-Shot-2020-10-10-at-11.52.26-pm.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095159/0021-2-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093819/0022-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095403/0023-3-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093837/0024-2-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095434/0025-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10093852/0026-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095505/0027-3-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095522/0028-2-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095541/0029-4-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095724/0030-3-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095741/0031-3-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095757/0032-3-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095816/0033-3-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095835/0034-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095850/0035-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095906/0036-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10100533/0037-2-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10100554/0038-2-scaled.jpg)
-####  **By：【秘密翻譯組G-Translators –北美工作組】**
+美国当地时间10月1日深夜，川普总统连发2条推文。第一条通报了白宫负责联络的行政人员检测为阳性，而他和第一夫人正在等待COVID-19的检测结果。约2小时后，噩耗传来，川普总统在推上确认自己和第一夫人双双感染病毒。
+
+消息发出同时，2架水星E-6“末日战斗机”从东西海岸升空。时值美国深夜，但消息已经传遍全球。有人送上祝福，但也有很多幸灾乐祸的声音，这个大选年的“十月惊奇”背后十分复杂。事件已经不是美国总统选前患病一般简单，蹊跷在于选情大好，而日前司法部门对中共渗透和Deep State的拔除已经获得重大突破，临近收尾。
+
+一场史诗般的善与恶的较量在最后角力……川普总统选前患病使人们开始担忧川普政府政策的延续性，消除美国被渗透的治国体系、让美国再次伟大、消灭中共，会受到影响吗？
+
+作者的看法是不仅不会打乱，而且将更加迅速地结束目前的纷争！
+
+首先，美国各界在爆料革命三年多的铺垫和半年多疫情真相的揭露中，已对中共的邪恶和美国被渗透的情况有了充分的了解，反击措施的推进已经在立法、司法多方面接近完成。正如10月1日当天，众议员佩里提案将中共定为「跨国犯罪组织」！他动情说到，一定要在我们这一代人终结中共的残暴统治，而这背后是全美清楚真相的人们灭共决心的缩影。
+
+> ⚡️众议员斯科特·佩里提起议案，将中共定为「跨国犯罪组织」！
+> 该法案将剥夺中共的主权豁免权，用RICO法案灭共
+> 所有替中共工作的人（包括外交人员）一旦触犯该法，都要替中共坐牢
+> 
+> 他说，我们要推翻中共的残暴统治！ [pic.twitter.com/uCWhv5vNNQ](https://t.co/uCWhv5vNNQ)
+> — 喜馬拉雅國際工作站 (@GlobalHimalaya) [October 1, 2020](https://twitter.com/GlobalHimalaya/status/1311818150577487874?ref_src=twsrc%5Etfw)
+
+第二，从司法层面，“三个硬盘”所含的巨量证据以及朱利安尼先生提到他掌握的材料，为给中共和被中共兰金黄的美国叛徒定罪提供了铁证。随着新提名大法官候选人巴雷特（Amy Coney Barrett）确定，支持平民主义的保守派大法官将占据大多数，为接下来的判决扫清了障碍。
+
+> 在路德社 [@ding\_gang](https://twitter.com/ding_gang?ref_src=twsrc%5Etfw) 爆猛料的同时，鲁迪.朱利安尼在 [@newsmax](https://twitter.com/newsmax?ref_src=twsrc%5Etfw) 几乎爆了同样的料
+> 
+> 朱利安尼还明确说，这件事会在3个星期内曝光。此外，他还说有人可能会因此暗杀他，但是他干这行50年了，知道背后是谁指使，知道他们要干什么
+> 
+> 至于这是路德社与朱利安尼、Newsmax互相配合，还是纯属巧合，不得而知 [pic.twitter.com/zg0LlQBGDi](https://t.co/zg0LlQBGDi)
+> — 喜馬拉雅國際工作站 (@GlobalHimalaya) [September 25, 2020](https://twitter.com/GlobalHimalaya/status/1309431131880603649?ref_src=twsrc%5Etfw)
+
+第三，从总统个人层面来看。虽然川普先生目前病情稳定没有英国首相约翰逊患病时那般痛苦。然而目前的报道证实川普已经有一定的呼吸困难问题，夫妻双双患病的经历一定会击碎内心深处对灭共进程的最后一丝顾忌。接下来，只有尽快灭共才能给小到家庭大到国家带来安全，没有安全就不可能会让“美国再次伟大”。
+
+最后，特别重要的是，郭文贵先生、爆料革命新中国联邦以及其他“中流砥柱”的力量将给川普先生最强有力的支持。不论是从病症治疗、联合灭共还是携手走向新的人类秩序，川普政府和其他的政府都看到新中国联邦展现的新华人的力量。民众的觉醒和民心所向是彻底消灭中共和共产主义终极的力量。正如文贵先生10月2日的盖文只有短短几个字——一切都已经开始！中共不出招将死，出招则死得更快。
+
+衷心祝愿川普总统和第一夫人早日康复，期盼全球遭受新冠病毒伤害的人们早日恢复正常。
 
 0

@@ -1,74 +1,87 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 哪些團隊參與了中共冠狀病毒起源於蝙蝠的造假論文的編纂
-`2020-10-10 13:38 NewFOC` [轉載自GNews](https://gnews.org/zh-hant/416206/)
+## 淺讀天使博士閆麗夢的第二份報告
+`2020-10-10 21:00 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/416574/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10132434/%E6%8D%95%E8%8E%B7_%E5%89%AF%E6%9C%AC-5.png)
-作者：Maarago
+喜馬拉雅聯盟加拿大農場 laotou
 
-天使科學家閆麗夢博士在《SARS-CoV-2IsanUnrestrictedBioweapon:ATruthRevealedthroughUncoveringaLarge-Scale,OrganizedScientificFraud（SARS-CoV-2是超限生化武器：揭露大規模，有組織的科學欺詐行為揭示的真相）》論文中參考文獻部分第4項：**[A pneumonia outbreak associated with a new coronavirus of probable bat origin](https://www.nature.com/articles/s41586-020-2012-7)**（與可能是蝙蝠起源的新冠狀病毒相關的肺炎暴發），我們現在知道這篇論文是為了把中共生化武器的自然宿主引向蝙蝠的論文，既然是為了誤導公眾，那麼這篇論文就必須用科學的外衣包裝謊言，下面我們來看一下哪些機構的哪些人參與炮製了這個彌天大謊，（筆者注：由於搜集資料的限制，有部分作者無法與公開資料中的中文名字一一對應，凡無法對應的均不在英文名字後邊列中文名字）:
+校對上傳 HUH
 
-1、該論文作者：[Peng Zhou](;), [Xing-Lou Yang](;), [Xian-Guang Wang](;), [Ben Hu](;), [Lei Zhang](;), [Wei Zhang](;), [Hao-Rui Si](;), [Yan Zhu](;), [Bei Li](;), [Chao-Lin Huang](;), [Hui-Dong Chen](;), [Jing Chen](;), [Yun Luo](;), [Hua Guo](;), [Ren-Di Jiang](;), [Mei-Qin Liu](;), [Ying Chen](;), [Xu-Rui Shen](;), [Xi Wang](;), [Xiao-Shuang Zheng](;), [Kai Zhao](;), [Quan-Jiao Chen](;), [Fei Deng](;), [Lin-Lin Liu](;), [Bing Yan](;), [Fa-Xian Zhan](;), [Yan-Yi Wang](;), [Geng-Fu Xiao](;) &[Zheng-Li Shi](;)
+天使博士報告的題目精、準、狠，直逼要害。通過揭露“有組織、大規模”的學術欺詐，斷定中共病毒（SARS-CoV-2）是一種超限生物武器。這種簡單的理解關係無需過多論證，閆博士報告2的重點就是揭露病毒來源、中共授意下有關人的欺詐造假，披露國際知名期刊為造假的配合行為等。
+![]()![](https://media.discordapp.net/attachments/712485685336211527/763988569479970826/e4x.png?width=1080&amp;height=340) by HFC
+報告中，閆博士用3章、11節的篇幅分別對RaTG13蝙蝠冠狀病毒、穿山甲冠狀病毒、RmYN02蝙蝠冠狀病毒的造假行為逐一進行了揭露，除了文字、數據，還有大量的圖示、附表等。
 
-**這些作者**的隸屬關係是：
+報告“摘要”中指出，那些被稱為來自自然的RaTG13蝙蝠冠狀病毒、穿山甲冠狀病毒、RmYN02蝙蝠冠狀病毒，在自然界中不存在，它們的序列是被製造出來的。 SARS-CoV-2是實驗室改造的產物，使用的是解放軍實驗室擁有的模板病毒，可以在大約6個月內製造出來。
 
-1、CAS Key Laboratory of Special Pathogens, Wuhan Institute of Virology, Center for Biosafety Mega-Science, Chinese Academy of Sciences, Wuhan, China（中國科學院武漢病毒學研究所，中國科學院武漢生物安全中心，特殊病原體CAS重點實驗室，武漢）以下名單對照武漢病毒研究所官網[武漢病毒研究所研究員](http://www.whiov.cas.cn/rcdw/yjy_160246/)
+摘要部分還指出，這種科學造假的規模和協調性明示了學術研究和公共衛生領域的腐敗程度……重要的是，不但SARS-CoV-2符合中共軍隊規定的生物武器的標準，而且其影響遠超過一種典型生物武器的設想。此外，記錄表明，釋放這種武器化的病原應該是有意為之，而不是偶然發生的意外。因此，我們將SARS-CoV-2定義為超限生物武器，而目前的全球大流行就是超限生物戰的結果。同時還建議，應對涉嫌的政府和個人進行調查，追究肇事者對這場對國際社會的野蠻襲擊的責任。
 
-Peng Zhou（[**周鵬**](http://www.whiov.cas.cn/sourcedb_whiov_cas/zw/rck/201705/t20170505_4783973.html)）, Xing-Lou Yang（[**楊興婁**](http://www.whiov.cas.cn/sourcedb_whiov_cas/zw/rck/201701/t20170113_4736510.html)）, Ben Hu, Lei Zhang, Wei Zhang, Hao-Rui Si, Yan Zhu, Bei Li, Jing Chen, Yun Luo, Hua Guo, Ren-Di Jiang, Mei-Qin Liu, Ying Chen, Xu-Rui Shen, Xi Wang, Xiao-Shuang Zheng, Kai Zhao, Quan-Jiao Chen（[**陳全姣**](http://www.whiov.cas.cn/sourcedb_whiov_cas/zw/rck/201105/t20110518_3136241.html)）, Fei Deng（[**鄧菲**](http://www.whiov.cas.cn/sourcedb_whiov_cas/zw/rck/200907/t20090718_2100048.html)）, Bing Yan（[**嚴兵**](http://www.whiov.cas.cn/sourcedb_whiov_cas/zw/rck/200907/t20090718_2100066.html)）, Yan-Yi Wang（[**王延軼**](http://www.whiov.cas.cn/sourcedb_whiov_cas/zw/rck/201203/t20120307_3450260.html)）, Geng-Fu Xiao （[**肖庚富**](http://www.whiov.cas.cn/sourcedb_whiov_cas/zw/rck/200907/t20090718_2100042.html)）& Zheng-Li Shi（[**石正麗**](http://www.whiov.cas.cn/sourcedb_whiov_cas/zw/rck/200907/t20090718_2100074.html)）
+報告“介紹”部分進一步強調，SARS-CoV-2一定是實驗室產物，它是通過使用由CCP控制下的軍事研究實驗室擁有的模板病毒（ZC45 / ZXC21）所創建。此外，武漢病毒學研究所和相關的其他中共控制的機構都擁有足夠的資源和專業知識，可以在大約六個月內製造出SARS-CoV-2。
 
-2、Wuhan Jin Yin-Tan Hospital, Wuhan, China（[***武漢市金銀潭醫院***](http://www.baidu.com/link?url=57aywD0Q6WTnl7XKbIHuE8b-omKc3ap2x5EsTpVbV6AGRddGr34ZKtDnm1RlCHAU)）
+“介紹”闡明，本報告提供了基因學和其他分析，結合最近的發現，證明了這些新的動物冠狀病毒在自然界中並不存在，它們的基因組序列是人為製造的結果。
 
-Xian-Guang Wang, Chao-Lin Huang （**[*黃朝林*](https://www.baidu.com/link?url=ir-aO3AnbphQLYqwizv6y-vGC35auuhwYwrBc0Ppppeb0Swxna3wgpfissEC4g2Y03uk4FIF8yED4_HdIH1ybRdVJriF1vclAqlRqumjeCa&amp;wd=&amp;eqid=e7e745390009c2a1000000065f81d2db)****）**& Hui-Dong Chen（**[*陳慧冬*](https://www.baidu.com/link?url=kaf7AUrWeITkKCXn-oX5GU9t7M0tx2l17TvBCePvjeSqNWsNB6oGnXQ_sCvLolpfTCrRZRAjhntFXiviYN_rgpO8q0p_J09q7AGLKcxYS7m&amp;wd=&amp;eqid=aca934c4000524c3000000065f81d246)****）**
+第一章：證明RaTG13病毒是偽造的、自然界中並不存在的證據（共14頁，19圖、1表）
 
-3、University of Chinese Academy of Sciences, Beijing, China（[中國科學院大學](http://english.ucas.ac.cn/) ）
+本章開始就指出，2020年2月3日，石正麗博士及其同事在《自然》雜誌上發表了一篇題為《蝙蝠是造成肺炎疫情的新型冠狀病毒的可能來源》的文章（1月20日提交的手稿），是最早將SARS-CoV-2（也就是現在廣為人知的COVID-19）鑑定為引起該病病原體的文章之一。此文還報導了一種名為RaTG13 的新型蝙蝠冠狀病毒，其基因組序列與SARS-CoV-2序列具有96.2％的同一性，高序列同一性表明，RaTG13與SARS-CoV-2之間的密切進化關係，由此得出結論：SARS-CoV-2起源於自然。正因這些驚人的發現，此文成為了當前炙手可熱的冠狀病毒研究領域中被引用最多的文章之一。有趣的是，張永振博士及其同事在同一期《自然》雜誌上發表的文章也寫到，SARS-CoV-2是導致COVID19的病原體，但受到的引用卻少得多。張博士的文章未提及RaTG13，相反，張和同事的論文表明，SARS-CoV-2從進化角度講，最接近兩種蝙蝠冠狀病毒ZC45和ZXC21，這兩種病毒都是在CCP控制下的軍事研究實驗室發現和定性的。該論文發表後，張博士的實驗室被CCP關閉。
 
-Hao-Rui Si, Jing Chen, Yun Luo, Hua Guo, Ren-Di Jiang, Mei-Qin Liu, Ying Chen, Xu-Rui Shen, Xi Wang, Xiao-Shuang Zheng & Kai Zhao
+閆博士用6節進行了論述，證明RaTG13的造假等，分別是：
 
-4、Hubei Provincial Center for Disease Control and Prevention, Wuhan, China（湖北省疾病預防中心）
+1.1 上傳至GenBank上的RaTG13序列能被偽造，（GenBank基因庫，是一個國際性開放的序列數據庫）
 
-Lin-Lin Liu（**[劉琳琳](http://www.baidu.com/link?url=MQXUpeN9ivnGSRmJ3pjCkgMjgNNPtyYVgmQ2KCetrxO9YZn6shAhIvNEbkH6fG-YRqQTO6QaPqLxVsfbNxRZ1GuOm8l0_TWkVfCjPCLKs6RzWnZ2ActEm_-93klg13V1)**） & Fa-Xian Zhan（[占發先](http://www.hbcdc.com/index.php/index-extview-aid-11-cid-24.html)）
+1.2 與RaTG13相關的其他懷疑
 
-論文發表時間線是：
+1.3 遺傳證據證明RaTG13的欺詐性
 
-Received20 January 2020（接收日期2020年1月20日）Accepted29 January 2020（接受日期2020年1月29日）Published03 February 2020（發佈日期2020年2月3日）Issue Date12 March 2020（發行日期2020年3月12日），以下為中國網站發佈的關於論文的中文編譯——
+1.4 RaTG13的受體結合域(RBD)不能與馬蹄蝠的ACE2結合
 
-**[全文編譯！中科院武漢病毒所石正麗課題組發表Nature發文揭示正在中國肆虐的肺炎疫情很可能由蝙蝠起源的新型冠狀病毒導致](https://www.labagd.com/Item/82273.aspx)****（**2020年02月04日 來源: 生物谷 作者: 生物穀**）**
+1.5 製造過程的結論和假設
 
-摘要：在一項新的研究中，來自中國科學院武漢病毒研究所、武漢金銀潭醫院和湖北省疾病預防控制中心的研究人員報導了位於中國中部的湖北省武漢市發生了一系列病因不明的肺炎疫情。從當地的一家海鮮市場開始，到2020年1月26日為止，疫情已蔓延至中國有2050人感染，其中56人死亡，其他11個國家有35人感染。相關研究結果於2020年2月3日線上發表在Nature期刊上，論文標題為“A pneumonia outbreak associated with a new coronavirus of probable bat origin”。重要的是，Nature期刊在2020年1月20年收到這篇論文的手稿，1月29日就接受了這篇論文，並以“加快評審文章（Accelerated Article Preview）”的形式了線上發表了這篇論文。論文通訊作者為中國科學院武漢病毒研究所石正麗（Zheng-Li Shi）研究員。
+1.6 墨江礦工連續傳代(MMP)假說存在致命缺陷
 
-在過去的二十年中，冠狀病毒已引起兩次大規模疫情：嚴重急性呼吸綜合征（SARS）和中東呼吸綜合征（MERS）。一般認為，主要在蝙蝠中發現的SARS 相關冠狀病毒（SARSr-CoV）可能會導致未來疫情暴發。
+第二章：證明最近發布的穿山甲病毒是假的，並不存在於自然界的證據（共8頁、7圖、3表）
 
-在一項新的研究中，來自中國科學院武漢病毒研究所、武漢金銀潭醫院和湖北省疾病預防控制中心的研究人員報導了位於中國中部的湖北省武漢市發生了一系列病因不明的肺炎疫情。從當地的一家海鮮市場開始，到2020年1月26日為止，疫情已蔓延至中國有2050人感染，其中56人死亡，其他11個國家有35人感染。相關研究結果於2020年2月3日線上發表在Nature期刊上，論文標題為“A pneumonia outbreak associated with a new coronavirus of probable bat origin”。重要的是，Nature期刊在2020年1月20年收到這篇論文的手稿，1月29日就接受了這篇論文，並以“加快評審文章（Accelerated Article Preview）”的形式了線上發表了這篇論文。論文通訊作者為中國科學院武漢病毒研究所石正麗（Zheng-Li Shi）研究員。
+閆博士的結論：1）穿山甲很可能是SARS-CoV-2人畜共患病轉移的中間宿主，而且2）類似於RaTG13的原型冠狀病毒可能通過穿山甲冠狀病毒的受體結合域（RBD）獲得，經過重組最終生成。
 
-這些患者的典型臨床症狀是發燒、乾咳、呼吸困難、頭痛和肺炎。疾病發作後可因肺泡損傷導致進行性呼吸衰竭（如橫向胸部CT圖像所觀察到的那樣），甚至死亡。根據臨床症狀和其他標準，包括臨床體溫升高，淋巴細胞和白細胞減少（有時白細胞正常），胸部X光片上出現新的肺部浸潤，三天抗生素治療無明顯好轉，臨床醫師將這種疾病確定為病毒性肺炎。大多數早期病例似乎都與最初的那家海鮮市場有接觸史，但是如今這種疾病已發展為人與人之間的傳播。
+閆博士的詳細論證如下：
 
-在疫情開始時就進入了重症監護病房（ICU）的7名重症肺炎患者（其中有6名是海鮮市場銷售者或送貨者）的樣本被送至中國科學院武漢病毒研究所（WIV）實驗室進行病原體診斷。考慮這次疫情發生的環境與SARS相同，即在冬季和在一家海鮮市場裡，石正麗及其課題組在冠狀病毒（CoV）實驗室中首先使用泛冠狀病毒PCR引物來測試這些樣本。他們發現了5個PCR陽性樣本。通過使用下一代測序（NGS）對從支氣管肺泡灌洗液（BALF）中收集的樣本（WIV04）進行宏基因組分析以鑒定潛在的病原體。 在總共10038758個讀取片段（read），或者說人類基因組過濾後的總共1582個讀取片段中，有1378個讀取片段與SARSr-CoV序列相匹配（圖1a）。通過從頭組裝和靶向PCR，他們獲得了一個大小29891bp的冠狀病毒基因組，它與SARS-CoV BJ01（GenBank登錄號AY278488.2）具有79.5％的序列一致性（sequence identity）。將這些1582個讀取片段與所獲得的基因組進行重新映射可取得較高的基因組覆蓋。這個基因組序列已被提交GISAID網站（登錄號EPI\_ISL\_402124）。根據世界衛生組織（WHO）的名稱，他們暫時將它稱為新型冠狀病毒2019（2019-nCoV）。隨後從其他四名患者中使用下一代測序和PCR獲得了另外四個2019-nCoV全長基因組序列（WIV02，WIV05，WIV06和WIV07）（GISAID登錄號EPI\_ISL\_402127-402130），彼此之間的一致性高於99.9％。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10133230/1-62.png)
-圖1.2019-nCoV的基因組特徵，圖片來自Nature, 2020, doi:10.1038/s41586-020-2012-7。
+2.1 一批全部用於研究的穿山甲樣本和存儲的序列數據顯示出重度的混合以及製造的跡象
 
-2019-nCoV基因組由冠狀病毒共有的6個主要的開放閱讀框（ORF）和一些其他的附屬基因組成（圖1b）。進一步的分析表明，一些2019-nCoV基因與SARS-CoV在核苷酸序列上的一致性低於80％。然而，用於冠狀病毒物種分類的開放閱讀框ORF1ab中的七個保守性複製酶結構域在2019-nCoV和SARS-CoV之間具有94.6％的氨基酸序列一致性，這意味著這兩者屬於同一病毒物種。
+2.2 在對馬來亞穿山甲的廣泛監測研究中未檢測出冠狀病毒
 
-他們隨後從蝙蝠冠狀病毒BatCoV RaTG13中發現了一個短的RdRp區域，這個區域之前在雲南省的中華菊頭蝠（Rhinolophus affinis）中檢測到，它與2019-nCoV具有高度的序列一致性。他們對這種RNA病毒樣本（GISAID登錄號EPI\_ISL\_402131）進行全長測序。Simplot分析顯示，2019-nCoV在整個基因組中與RaTG13非常相似（圖1c），全基因組序列一致性為96.2％。
+2.3 報告的穿山甲冠狀病毒的受體結合域（RBD）與穿山甲的血管收縮轉化酶2（ACE2）的結合不良
 
-通過使用2019-nCoV、RaTG13、SARS-CoV和先前報導的蝙蝠SARSr-CoV的比對基因組序列，在2019-nCoV基因組中未檢測到重組事件發生的證據。對全長基因組、RNA依賴性RNA聚合酶（RdRp）基因和S基因序列的系統進化樹分析均顯示RaTG13與2019-nCoV存在最密切的親緣關係，但與其他SARSr-CoV形成不同的譜系（圖1d）。2019-nCoV的編碼受體結合蛋白—刺突蛋白（S）—的基因除了與RaTG13的S基因具有93.1%的核酸序列一致性外，與其他冠狀病毒高度不同，與所有先前描述的SARSr-CoV的核苷酸序列同一性低於75％。2019-nCoV的S基因和RaTG13的S基因比其他SARSr-CoV要長。與SARS-CoV相比，2019-nCoV的S蛋白的主要區別是N末端結構域中的三個短插入序列和受體結合基序中的5個關鍵氨基酸殘基有4個發生了變化。2019-nCoV的S蛋白在N末端結構域的插入序列是否具有像MERS-CoV那樣的唾液酸結合活性需要進一步研究。2019-nCo與RaTG13存在密切的系統進化關係為2019-nCoV起源於蝙蝠提供了證據。  他們基於S基因的受體結合結構域（不同冠狀病毒基因組中變化最大的區域）快速開發了一種qPCR檢測方法（圖1c）。他們的資料顯示，針對這種檢測方法設計的引物可以將2019-nCoV與所有其他人類冠狀病毒（包括與SARS-CoV存在95％一致性的蝙蝠SARSr-CoV WIV1）區分開。在這7例患者中，他們在針對qPCR和常規PCR測試的首次採樣期間，在6個BALF樣本和5個口腔拭子樣本中檢測到2019-nCoV陽性。但是，在第二次採樣期間，他們在來自這些患者的口腔拭子、肛門拭子和血液中不再檢測到2019-nCoV陽性（圖2a）。他們必須指出，包括RdRp或E基因在內的其他qPCR靶標可能用於常規檢測。基於這些發現，他們認為這種疾病應當通過呼吸道傳播，但是如果將研究擴大到更多的患者，他們不能排除其他的傳播可能性。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10133312/2-33.png)
-圖2.對患者樣本進行分子和血清學研究，圖片來自Nature, 2020, doi:10.1038/s41586-020-2012-7。
+2.4 證明穿山甲冠狀病毒具有欺詐性質的基因證據
 
-為了對2019-nCoV進行血清學檢測，他們使用了先前開發的蝙蝠SARSr-CoV Rp3核衣殼蛋白（NP）作為IgG和IgM ELISA測試中的抗原，這種核衣殼蛋白與2019-nCoV的核衣殼蛋白具有92％的氨基酸一致性，結果表明與除了SARSr-CoV之外的其他人類冠狀病毒不存在交叉反應。作為研究實驗室，他們只能從這7名病毒感染患者中獲得了5個血清樣本。他們在疾病發作後的第7、8、9和18天監測了其中的一名患者（ICU-06）的病毒抗體水準，結果觀察到明顯的IgG和IgM抗體滴度增加趨勢（在最後一天下降）（圖2b）。在第二項實驗中，他們在疾病發作後約20天左右對這7例病毒陽性患者中的5例進行了病毒抗體檢測。所有患者樣本而不是健康人樣本，均顯示較強的病毒IgG陽性（圖2b）。他們還發現了三個IgM陽性樣本，這表明是急性感染。
+2.5 總結與討論
 
-他們隨後使用了來自ICU-06患者的BALF樣本在Vero細胞和Huh7細胞中成功分離出了這種病毒（名為2019-nCoV BetaCoV/Wuhan/WIV04/2019，下稱毒株WIV04）。在培養三天后，在細胞中觀察到明顯的致細胞病變作用。通過使用交叉反應性病毒核衣殼蛋白抗體進行免疫螢光顯微鏡檢查、通過宏基因組測序表明它的大多數讀取序列可映射到2019-nCoV基因組以及qPCR測試表明病毒載量從第1天到第3天發生增加，毒株WIV04的身份在Vero E6細胞中得到了驗證。
+第三章：揭示新型蝙蝠冠狀病毒RmYN02欺詐性的證據（共3頁、2圖）
 
-在電子顯微鏡下，受感染細胞的超薄切片中的病毒顆粒顯示出典型的冠狀病毒形態。為了進一步確認病毒IgG陽性樣本的中和活性，他們使用5個IgG陽性患者血清在Vero E6細胞中進行了血清中和測定。他們證實所有血清樣本均能夠以1：40～1：80的稀釋度中和120 TCID50 2019-nCoV。他們還發現，這種病毒可以被馬抗SARS-CoV血清在1:80的稀釋度下交叉中和，但與SARS-CoV抗體交叉反應的潛力需要通過人抗SARS-CoV血清加以驗證。 血管緊張素轉化酶II（ACE2）被認為SARS-CoV的細胞受體。為了確定2019-nCoV是否也將ACE2作為細胞進入受體，他們使用表達或不表達人類、中華菊頭蝠、果子狸、豬和小鼠的ACE2蛋白的HeLa細胞進行了病毒感染性研究。他們發現2019-nCoV能夠使用除小鼠ACE2以外的所有其他物種的ACE2蛋白作為表達ACE2的細胞中的進入受體，但在不表達ACE2的細胞中不會如此，這表明它很可能是2019-nCoV的細胞受體（圖3）。他們還證實2019-nCoV不使用其他的冠狀病毒受體：氨基肽酶和二肽基肽酶4。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10133421/3-25.png)
-圖3.對2019-nCoV受體使用進行分析，圖片來自Nature, 2020, doi:10.1038/s41586-020-2012-7。
+報告指出，6月初，另一種新的蝙蝠冠狀病毒RmYN02被報導，它與SARS-CoV-2具有93.3%的序列同源性，似乎是第二個最接近SARS-CoV-2的蝙蝠冠狀病毒（繼RaTG13之後）。這一發現為快速增長的類SARS-CoV-2冠狀病毒亞系又增加了一個成員，在目前的大流行之前，這種病毒已經完全空缺，幾乎不存在。
 
-這項研究提供了關於2019-nCoV的第一份詳細報導，其中2019-nCoV是造成中國中部武漢市正在發生的急性呼吸道綜合征疫情的可能病因。在所有測試的患者中觀察到的病毒特異性核苷酸陽性和病毒蛋白血清轉化提供了這種疾病與這種病毒的存在之間存在關聯性的證據。但是，仍然有許多緊急問題需要解決。尚未通過動物實驗來證實2019-nCoV與這種疾病之間的關聯性以充分符合科赫法則（Koch’s Postulates）。他們還不知道這種病毒在宿主之間的傳播途徑。這種病毒似乎在人與人之間傳播的可能性越來越大了。人們應當密切監視這種病毒是否繼續演變成更強的毒性。由於缺乏特異性治療，並考慮到SARS-CoV與2019-nCoV之間的親緣性，一些針對SARS-CoV的藥物和臨床前疫苗可能可以用於抵抗這種病毒。最後，考慮到SARSr-CoV在它們的天然病毒庫中的廣泛傳播，未來的研究應當集中在更廣泛的地理區域對它們進行主動監視。從長遠來看，應當為這類病毒引起的未來新興傳染病準備廣譜抗病毒藥物和疫苗。最重要的是，應對野生動物的馴養和消費制定嚴格的法規。
+……
 
-——————譯文引用完畢——————
+鑑於中共控制的實驗室已經多次製造冠狀病毒，以填補這個謎題中的缺失，上述論證就是質疑RmYN02病毒是製造出來的可能性。從93.3%的與SARS-CoV-2同源性低於RaTG13與SARS-CoV-2的96.2%同源性推測，RmYN02序列可能是通過對RaTG13序列進行修改而成的。
 
-參與該論文造假的單位和個人是：中科院武漢病毒研究所石正麗等、武漢市金銀潭醫院陳慧冬等、中國科學院大學ZHAO KAI等、湖北省疾病預防中心占發先等。
+最後，閆博士進行了總結和概括，提出應對的策略。
 
-（文章內容僅代表作者個人觀點）
+第四章：最後討論及備註
+
+4.1 所有製造的冠狀病毒與ZC45和ZXC21在E蛋白方面有完全一致的氨基酸序列特徵
+
+（ZC45和ZXC21是軍事研究實驗室擁有的模板病毒）
+
+4.2 大規模、有組織的科學欺詐行為的重要影響
+
+4.3 SARS-CoV-2是一種超限生物武器
+
+4.4 目前的大流行病是對人類的攻擊
+
+4.5 人類需要採取行動，抗擊目前的大流行病，拯救人類的未來
+
+閆博士致謝了報告起草的參與人員，列出了123項參考文獻。
+
+通讀全文，結合英雄科學家的所作所為，我們真正體驗到了麗夢作為天使的勇氣和擔當，作為博士的睿智和嚴謹！
+
+論文英文版地址[http://zenodo.org/record/4073131](http://zenodo.org/record/4073131)
 
 0
