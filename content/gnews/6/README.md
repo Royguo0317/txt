@@ -1,32 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 財經普及關鍵詞：螞蟻金服擴張史
-`2020-10-11 09:28 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/417699/)
+## 每日政要Twitter播報(中文) 10/10期(視頻+ PDF下載)
+`2020-10-11 11:35 GM62` [轉載自GNews](https://gnews.org/zh-hant/418031/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11085412/Picture9-1.png)圖片來源： [https://m.cyzone.cn/](https://m.cyzone.cn/article/487624.html)
-螞蟻金服，是一家所謂的互聯網金融服務公司，2013年3月，阿里巴巴集團宣布開始籌備小微金融服務集團。 2014年6月，阿里巴巴電子商務有限公司更名浙江螞蟻小微金融服務集團有限公司（簡稱：螞蟻金服）。
+撰稿記者：CYC文颖、本來、⽯头
+校對:Frontier⻜翔
+播⾳：⼤脚印
 
-2015年9月下旬，螞蟻金服斥資6.8億美元收購印度最大第三方支付平台Paytm的25%股份。同年9月18日，螞蟻金服以12億元獲得國泰金控和國泰人壽在中國合資的國泰產險公司60%的股權。
-
-2015年11月，螞蟻金服入股註冊於天津自貿區內的天津金融資產交易所。
-
-2016年7月，螞蟻金服斥資8.32億人民幣入股國泰財產保險公司51%。交易完成後國泰財產保險公司總資本額增加到16億3千2百多萬元人民幣，螞蟻金服持股51%、國泰產險24.5%、國泰人壽24.5%。
-
-2017年1月26日，螞蟻金服斥資8.8億美元收購總部設在德克薩斯州的美國匯款服務公司速匯金（MoneyGram）同時將承擔速匯金未償還的債務9.373億美元。 2018年1月2日，此交易遭美國外資審議委員會（CFIUS）以國家安全為由否決。
-
-2017年2月21日，螞蟻金服向韓國移動社交巨頭Kakao Corp旗下移動支付平台KakaoPay注資2億美元
-
-2017年11月，螞蟻金服旗下公司API （Hong Kong） Investment Limited持股12.8％的趣店集團，美東時間17日正式在美股IPO（首次公開募股），以每單位24美元的價格，承銷3,750萬單位的美國存託憑證（ADR），預計集資9億美元，這是今年來美股第4大規模的IPO，螞蟻金服是該公司的第5大股東。
-
-2018年1月，螞蟻金服宣布，與香港飲食資訊平台開飯喇成為戰略合作夥伴，併入股開飯喇，持有20%股份。
-
-2018年2月，阿里巴巴公佈，根據2014年雙方簽署的戰略協議，並經董事會批准，阿里將通過一家中國子公司入股並獲得關聯公司螞蟻金服33%的股權，並將終止當前與螞蟻金服的利潤分享協議。
-
-2018年3月，挪威Telenor與螞蟻金服聯合公佈達成戰略合作夥伴關係，螞蟻金服將出資1.845億美元(約14.5億港元)購入Telenor在巴基斯坦的子公司TMB (Telenor Microfinance Bank)45%股權。
-
-2019年2月，螞蟻金服以7億美元收購英國支付商WorldFirst。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11085607/Picture10-2.png)圖片來源： [https://www.tianyancha.com](https://www.tianyancha.com/company/3455631604)
-By:【秘翻組·金融法律組】
+[每日推文10-10pdf](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11113249/10-10-F1smallfile-pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11113249/10-10-F1smallfile-pdf.pdf)
 
 0
