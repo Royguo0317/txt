@@ -1,40 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共政府媒體為墻民翻墻開“綠燈”，是設“魚來撞網”局還是設“願者上鉤”局？
-`2020-10-10 09:58 GM77` [轉載自GNews](https://gnews.org/zh-hant/415756/)
+## 【世界多語言圖文】2020/10/02-03 CCP病毒每日疫情直播簡報
+`2020-10-10 10:23 GM62` [轉載自GNews](https://gnews.org/zh-hant/415796/)
 
-作者：文小明
+戰友之家圖文摘要及小語種組
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10095308/10.-1.png)
+[251-252\_English\_10.2-10.3\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10101715/251-252_English_10.2-10.3_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10101715/251-252_English_10.2-10.3_CCP_Virus_Updates.pdf)
 
-隨著中國墻內翻墻用戶日益劇增，隨著國際社會對於要求中共打開防火墻的輿論壓力的增大，中共政府在無法控制這股洪流的情況下，在老祖宗“堵不如疏”的原則下，終於推出了一款可以翻墻的瀏覽器Tuber，開放了翻墻的“綠燈”。这是什么情况？这是中共媒体要开启新纪元了吗？这是放弃了对14亿百姓的洗脑了吗？这是对战友翻墙提供了“绿灯”便利吗？怎么可能！！！！！！
+[251-252\_French\_10.2-10.3\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10101720/251-252_French_10.2-10.3_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10101720/251-252_French_10.2-10.3_CCP_Virus_Updates.pdf)
 
-首先，中共推出的這款瀏覽器是經過中共官方當局審核的，號稱是可以讓內地用戶通過這個瀏覽器瀏覽境外網站，包括GOOGLE、YOUTUBE、TWITTER、FACEBOOK、INSTAGRAM、NETFLIX等等。
+[251-252\_German\_10.2-10.3\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10101726/251-252_German_10.2-10.3_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10101726/251-252_German_10.2-10.3_CCP_Virus_Updates.pdf)
 
-乍一看，這真的是要開啟國內新聞媒體的新紀元啊。
+[251-252\_Japanese\_10.2-10.3\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10101731/251-252_Japanese_10.2-10.3_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10101731/251-252_Japanese_10.2-10.3_CCP_Virus_Updates.pdf)
 
-中共的自己的官方大外宣《環球時報》為自己站臺說，“這是對中國開放的重要一步。”
+[251-252\_Spanish\_10.2-10.3\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10101710/251-252_Spanish_10.2-10.3_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10101710/251-252_Spanish_10.2-10.3_CCP_Virus_Updates.pdf)
 
-但是戰友們，註冊這個軟件最重要的第一步就是需要中國的手機號碼，這意味著什麽呢？這意味著實名制翻墻……來來來，妳要翻墻是不是，先把妳的姓名、地址、電話、家庭成員、銀行財產統統的上報清楚吧！
 
-而且註冊過程中，能看到Tuber的用戶守則規定，“主動瀏覽傳播違反《七條底線》和《九不準》的內容，將會無條件封停賬號，並將違法行為和訪問記錄提交給有關部門備查。”
-
-當妳用這款瀏覽器在視頻分享網站YouTube上搜索“爆料革命”“郭文貴”等詞條要麽獲取不到任何結果，要麽就是歪曲事實的不真實的文章。
-
-這就明確的告訴妳了哪裏是禁忌，不能看的別看，看了別怪我利用妳上報的信息來消滅妳！即使妳翻墻成功，中共政府當局的審查也是如影隨形的跟著妳！當妳瀏覽和搜索一些“與國家安全、國防安全有關的”、“與公共安全、公共衛生、重大公共利益有關的”的時候，不需要經過用戶授權同意，直接搜集了用戶的個人信息。
-
-Tuber瀏覽器的軟件研發者系上海豐炫信息技術有限公司。這家公司公開資料顯示，**該公司70%的股份為聚越信息技術（上海）有限公司持有，後者是中國網絡安全公司奇虎360的子公司。**今年9月，上海豐炫就已經推出一款要求付費的“綠光瀏覽器”，支持用戶訪問外國網站。所以這並不是
-
-Tuber、綠光並不是首次首次獲得當局首肯的翻墻工具。去年11月，一款號稱“國內首款合法翻墻瀏覽器”的[酷鳥瀏覽器](https://www.voachinese.com/a/mysterious-censorship-evading-web-browser-banned-in-two-days-20191115/5168494.html)，在一經推出就被註冊和下載數十萬之後，幾天就被封殺。
-
-所以，這一直是中共對廣大戰友和墻民們設的局，擺出了個“魚來撞網”的風水格局，讓那些盲目的、有好奇心的、有覺醒的趨勢的墻民們，全部扼殺在搖籃之中，殺了前面幾批的墻民，後面的墻民們自然而然的就怕了，再過段時間就會關閉了這個軟件，再過段時間，再推出一個軟件，仍然實行著實名註冊和禁止匿名的規矩，一批一批的有覺醒趨勢的墻民們就這麽的一點一點的被扼殺了，最後剩下的全是“死心塌地”的“為國奉獻”的奴隸們。
-
-共產黨的話，一個標點符號都不能相信，共產黨做的事，一個開頭都不能給予盼望和希望，這都是走向滅亡的仁慈。
-
-路德說“滅共，沒我不行”，不滅了共，妳我的子孫可能就會被哪一款實名註冊的翻墻軟件給“消失”了，不滅了共，妳我的子孫百分百最後都會變成“死心塌地”的“為國奉獻”的奴隸。這些未來的奴隸百分百都是信奉著“爹親娘親不如黨親”的信條，百分百的都信著“無神論”，百分百的盲目的糊裏糊塗的活著的死去！
-
-文章參考地址：
-[https://www.voachinese.com/a/china-web-browsers-allow-foreign-access/5616182.html](https://www.voachinese.com/a/china-web-browsers-allow-foreign-access/5616182.html)
 
 0
