@@ -1,83 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 從新英格蘭醫學雜誌為中共月臺看科學界的集體覆滅
-`2020-10-10 23:40 GM77` [轉載自GNews](https://gnews.org/zh-hant/416884/)
+## 新加坡國民因在美國充當中(共)國情報機構的非法代理人被判處14個月監禁
+`2020-10-11 05:33 GM31` [轉載自GNews](https://gnews.org/zh-hant/417238/)
 
-編撰: WENJUN；稽核:文錦
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10233047/%E6%88%AA%E5%B1%8F2020-10-11-%E4%B8%8A%E5%8D%8811.06.22-1.png)
-**新英格蘭醫學雜誌文章:美國,正在逝於屍位素餐的川普政府**
+**Department of Justice**
 
-10月8日,新英格蘭醫學雜誌出了一篇文章,題目按照網站中文翻譯本是:美國,正在逝於屍位素餐的川普政府。 文章對川普總統的領導力對聯邦政府進行了鞭撻,對中共國政府的表現及「低死亡率」進行了褒揚。
+**司法部**
 
-10月10日,財新網採訪新英格蘭醫學雜誌主編為何發表全體編輯署名社論痛批川普時,《新英格蘭醫學雜誌》(NEJM)主編埃裡克·魯賓(Eric Rubin)今日告訴財新記者:”我們不是政治期刊,也不想做這類期刊,但我們確實覺得有責任為公共衛生發一次聲了。”
+**Office of Public Affairs**
 
-文章翻譯的部分內容如下。
+**公共事務辦公室**
 
-Covid-19造成了全球性危機。 這場危機是對領導力的一場考驗。 由於並無對抗新型病原體的理想手段,因此各國被迫就如何應對做出艱難選擇。 而美國的領導人沒有通過這場考驗。 他們把危機變成了災難。
+* * *
 
-此次失敗觸目驚心。 根據約翰霍普金斯大學系統科學與工程中心(Johns Hopkins Center for Systems Science and Engineering)1數據,美國Covid-19患病人數和死亡人數都居於世界首位,遠遠超過中國等人口更多的國家。 美國的病死率是加拿大的2倍多,比人口老齡化並因而擁有眾多Covid-19高危人群的日本高出近50倍,甚至比越南等中低收入國家高出近2,000倍。 Covid-19是一項巨大挑戰,許多因素造成了其嚴峻程度。 但如何應對是一個我們可以控制的因素,而美國的表現自疫情暴發就一直不佳。
+FOR IMMEDIATE RELEASE Friday, October 9, 2020
 
-我們知道我們原本可以做得更好。 最早爆發疫情的中國經歷最初的拖延後,選擇了嚴格的隔離措施。 這些措施雖然嚴厲但很有效,基本上在疫情暴發之初就遏制了傳播。 據報導,其病死率降低至每百萬人中有3人死亡,而美國每百萬人中有超過500人死亡。 新加坡和韓國等與中國往來比較多的國家很早就加強了檢測,同時還積極追蹤接觸者並採取適當隔離措施,因而疫情相對較輕。 紐西蘭也採取了同樣措施,加上該國的地理優勢,他們幾乎清除了Covid-19,因而可以縮短封鎖時間,其社會基本上已經重新開放至疫情前水準。 總的來說,許多民主國家不僅比美國做得好,而且比美國做的好得多。
+2020年10月9日，星期五 立即發佈
 
-美國遭遇這場危機時擁有巨大優勢。 除了巨大的生產能力,我們還有全世界稱羨的生物醫學研究體系。 我們在公共衛生、衛生政策和基礎生物學方面擁有強大專業能力,並且一直能夠將這些專業能力轉化為新療法和預防措施。 這些專業能力很多來自政府機構,可我們的領導人卻選擇無視甚至詆毀專家。
+#### **Singaporean National Sentenced to 14 Months in Prison for Acting in the United States As an Illegal Agent of Chinese Intelligence**
 
-國家領導人應對疫情的措施一直不夠充分。 聯邦政府基本上已經將疾病控制工作甩給了各州。 各州州長的應對各不相同,原因主要不是黨派政治,而是能力。 但不論他們能力如何,州長都不擁有在聯邦政府控制下的各種應對手段。 聯邦政府沒有應用這些手段,而是削弱了它們。 美國疾病控制與預防中心曾是世界領先的疾病防控組織,如今卻遭受重創,並且在檢測和政策方面遭遇慘敗。 美國國立衛生研究院在疫苗開發方面發揮了關鍵作用,但卻被排除在政府的許多關鍵決策之外。 美國食品藥品管理局已經被可恥地政治化了3,他們似乎屈從於政府壓力,而不是遵循科學證據。 我們的領導人破壞了人們對科學和政府的信任4,造成的損害肯定會比他們本人更長久。 政府沒有依賴專業知識,而是求助於無知的”意見領袖”和冒牌內行,他們掩蓋真相,助長了徹頭徹尾的謊言的傳播。
+#### **新加坡國民因在美國充當中****(****共****)****國情報機構的非法****代理人****被判處****14****個月監禁**
 
-假如有其他人如此毫無顧忌地糟蹋生命和金錢,他們一定會受到法律懲罰。 我們的領導人卻聲稱他們的行為享有豁免權。 但是,即將到來的選舉賦予了我們審判其行為的權力。 理性的人當然會對候選人的許多政治立場持不同意見。 但真相本身既不持自由派觀點,也不持保守派觀點。 在我們這個時代最嚴重的公共衛生危機面前,我們的領導人表現出了危險的無能。 我們不應該縱容他們,不應該讓這些人繼續屍位素餐,而令美國的死亡人數再多出成千上萬人。
+Jun Wei Yeo, also known as Dickson Yeo, was sentenced today in federal court to 14 months in prison.  Yeo pled guilty on July 24, 2020 to acting within the United States as an illegal agent of a foreign power without first notifying the Attorney General, in violation of 18 U.S.C. § 951.  The announcement was made by John G. Demers, Assistant Attorney General; Michael R. Sherwin, Acting United States Attorney for the District of Columbia; James A. Dawson, Acting Assistant Director in Charge of FBI Washington Field Office; Alan E. Kohler, Jr., Assistant Director of the FBI’s Counterintelligence Division; and Deputy Assistant Secretary Ricardo Colón, Domestic OperationsDeputy Assistant Secretary Ricardo Colón, Domestic Operations.
 
-**新英格蘭醫學雜誌與中共的淵源**
+楊俊偉（Jun Wei Yeo，又名Dickson Yeo）今天在聯邦法院被判處14個月監禁。 楊俊偉於2020年7月24日認罪，他在美國境內作為外國勢力的非法代理人行事，而沒有事先通知司法部長，這違反了《美國法典》第18編第951條。 宣佈這一消息的是助理總檢察長John G. Demers、哥倫比亞特區代理美國檢察官Michael R. Sherwin、聯邦調查局華盛頓分局辦事處的代理助理主任James A. Dawson、聯邦調查局反間諜司助理主任Alan E. Kohler和國內行動部副助理部長Ricardo Colón。
 
-新英格蘭醫學雜誌(NEJM)不僅於 2016 年末推出了中文出版物,應用軟體和網站,它還與中共政府擁有的上海世紀出版公司的子公司上海科學技術出版社有著緊密合作。 上海科學技術出版社在其獲獎榮譽頁面上以其歸屬中國共產黨中央宣傳部的”第一批”國家優秀出版社”而自豪,並獲得了政府的一系列獎勵。 此外該組織稱自己在黨和政府的出版政策的指導下工作。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/10233144/%E6%88%AA%E5%B1%8F2020-10-11-%E4%B8%8A%E5%8D%8811.07.15.png)
-該出版社定期舉行小組討論會,以加強員工對中國共產黨目標的堅持。 它的主編和主要領導要求員工們必須對黨忠誠和誠實,按照組織有關規定報告重大問題,反對兩面人,杜絕影響政黨形象和聲譽的任何行為或現象。 可見這個團體已失去了它的科技造福人類的宗旨,成為中共造假和掩蓋罪行的宣傳工具。
+Yeo was sentenced by The Honorable Tanya S. Chutkan of the United States District Court for the District of Columbia.
 
-**與中共邪魔共舞的科學界**
+楊俊偉由美國哥倫比亞地區法院的Tanya S. Chutkan 閣下判刑。
 
-編者從中共政府及新華社網站上按照時間順序找到了如下中共機構在科學界世界頂級平台發表文章及與其合作的主題。 世界最頂尖的醫學期刊新英格蘭醫學雜誌(NEJM)、柳葉刀(Lancet)、美國醫學會雜誌(JAMA)及《自然》,哈佛大學都是中共相關機構發聲和交流的平臺。
+“At the direction of the Government of the People’s Republic of China, Yeo recruited Americans to provide information that he would pass back to his PRC handlers,” said Assistant Attorney General for National Security John C. Demers.   “Yeo concealed his PRC affiliation from his recruits and, contrary to law, from the United States Government.  This criminal conduct is part of the PRC’s efforts to exploit the openness of American society by using agents who may appear innocuous, but who act upon taskings from a foreign government to obtain access and information.”
 
-爆料革命路德社曾在年初指出中共提交給全球流感共享資料庫(GISAID)錯誤新型冠狀病毒基因組序列資訊進行誤導。 病毒是中共軍方武漢實驗室製造並釋放到全世界的,這些平臺和機構無非是讓中共發聲為其背書,中共對外裝模做樣妄圖欺瞞天下的招數不會得逞的。
+“在中華人民共和國政府的指示下，楊俊偉招募美國人為其提供資訊，並將資訊傳回給他的中(共)國幕僚，”國家安全助理總檢察長John C. Demers說：  “楊俊偉向他的招募者隱瞞了他的中(共)國背景，並違反法律，向美國政府隱瞞了他的身份。 這種犯罪行為是中(共)國利用美國社會的開放性的一部分，他們利用看似無害的代理人，但他們根據外國政府的任務而採取行動，以獲得訪問權和資訊。”
 
-◆中國疾控中心、中國醫學科學院、中國科學院武漢病毒研究所作為國家衛生健康委指定機構,向世界衛生組織提交新型冠狀病毒基因組序列資訊,在全球流感共享資料庫(GISAID)發佈,全球共用。
+“This case serves as a reminder that China is using professional networking social media sites to target U.S. citizens with government security clearances, and to try to gain non-public and classified information.  The threat is real, and we will prosecute foreign agents who exploit those platforms,” said Michael R. Sherwin, Acting United States Attorney for the District of Columbia.
 
-◆中科院武漢病毒研究所研究團隊有關新型冠狀病毒基因組序列資訊的論文正式被英國《自然》雜誌接收。
+“此案提醒我們，中(共)國正在利用職業網路社交媒體網站來鎖定通過政府安全審查的美國公民，並試圖獲取非公開和機密資訊。 這種威脅是真實存在的，我們將起訴利用這些平臺的外國代理人”，哥倫比亞特區代理美國檢察官Michael R. Sherwin。
 
-◆中國疾控中心在美國《新英格蘭醫學雜誌》發表新冠肺炎疫情流行病學特徵分析文章。
+“Today we are reminded yet again of the Chinese government’s aggressive attempts to gain knowledge and information about U.S. policy and government,” said James A. Dawson, Acting Assistant Director in Charge of the FBI’s Washington Field Office. “The FBI’s warning is not new, but the message warrants repeating: the Chinese communist government is working to gain information and access by all means, including recruiting US-based individuals to provide classified and/or sensitive information. There is no doubt that if you are a former clearance holder, you are an ideal and vulnerable target because of your knowledge and access.  If you believe you have been the target of a recruitment scheme, the FBI is here to help. We remain committed to rebuffing the Chinese government’s attempts, and to protecting the American people, our ideas, and our national and economic security interests.”
 
-◆中國疾控中心等研究團隊在英國《柳葉刀》雜誌發表《2019年新型冠狀病毒的基因組表徵和流行病學:對病毒起源和受體結合的影響》,對來自中國武漢9名確診患者的10個2019-nCoV基因組序列進行了新的遺傳分析。
+“今天，這再次提醒我們，中(共)國政府正用頗具侵略的意圖來獲取有關美國政策和美國政府的知識及資訊”，聯邦調查局華盛頓外地辦事處代理助理主任James A. Dawson說，”這並不是FBI的首次警告，但這一資訊值得重複：中(共)國政府正致力於通過各種手段獲取資訊和資料，包括招募美國境內的個人提供機密和/或敏感資訊。毫無疑問，如果你是一個前通過政府安全審查的人，你就是一個理想且易受攻擊的目標，因為你的知識和訪問權。 如果你認為你已經成為招募計畫的目標，聯邦調查局可以幫到你。我們仍然致力於回擊中(共)國政府的企圖，並保護美國人民、我們的思想以及我們的國家和經濟安全利益。”
 
-◆中國科學院上海藥物研究所研究團隊等在bioRxiv預印版平台發表文章,介紹通過計算機輔助類比藥物篩選的研究結果。
+“Jun Wei Yeo admittedly acted as an illegal agent of a foreign power by using various social media sites, such as a professional networking website and other social networking applications, to recruit Americans with access to sensitive government information. He identified their vulnerabilities, like dissatisfaction with work or financial difficulties, and offered money in exchange for information and written reports,” said Alan E. Kohler Jr., Assistant Director of the FBI’s Counterintelligence Division.  “This is a sobering reminder that the U.S. needs to be clear-eyed about the scope of the Chinese government’s ambition to manipulate Americans for their own nation’s advancement; and, confronting this threat remains the FBI’s top counterintelligence priority.”
 
-◆中國疾控中心等機構在美國《新英格蘭醫學雜誌》上發表《新型冠狀病毒感染的肺炎在中國武漢早期傳播動力學》,通過對425例新冠肺炎確診患者數據研究,揭示了疫情發生至1月22日新冠病毒的傳播規律。
+“楊俊偉承認，他作為外國勢力的非法代理人，利用各種社交媒體網站，如一個專業網路網站和其他社交網路應用，招募能夠獲取政府敏感資訊的美國人。他找出他們的弱點，如對工作不滿或經濟困難，並以金錢換取資訊和書面報告”。聯邦調查局反間諜部門助理主任Alan E. Kohler Jr.說， “這是一個發人深省的警示，美國需要清醒地認識到中(共)國政府操縱美國人為自身國家發展的野心大小；而且，對抗這一威脅仍然是FBI反間諜工作的首要任務。”
 
-◆復旦大學、華中科技大學武漢中心醫院、中國疾控中心傳染病預防控制研究所、武漢市疾控中心、澳大利亞悉尼大學等研究團隊在英國《自然》雜誌發表《一種與中國呼吸道疾病相關的新型冠狀病毒》。
+“The close working relationship between the U.S. Department of State’s Diplomatic Security Service, the FBI, and the U.S. Attorney’s Office resulted in today’s sentencing of Mr.Yeo before he could potentially harm the security of our country,” said Deputy Assistant Secretary Ricardo Colón, Domestic Operations, U.S. Department of State’s Diplomatic Security Service. “This was a great success by all of the agencies involved.”
 
-◆廣州呼吸健康研究院與哈佛大學首次就新冠肺炎進行科研合作交流。
+“美國國務院外交安全局、聯邦調查局和美國檢察官辦公室之間的密切合作，促成今天對楊先生的判決，在他有可能損害我們國家的安全之前，”美國國務院外交安全局國內行動部副助理部長Ricardo Colón說，”這是所有參與機構的巨大成功。”
 
-◆中國科學院武漢病毒研究所、軍事科學院軍事醫學研究院等研究團隊在《細胞研究》期刊發表《瑞得西韋和磷酸氯喹能在體外有效抑制新型冠狀病毒》。
+As outlined in the Statement of Offense, Yeo began working with Chinese intelligence officers as early as 2015, initially targeting other Asian countries, but then focusing on the United States.  In response to taskings from his Chinese intelligence contacts, Yeo worked to spot and assess Americans with access to valuable non-public information, including U.S. military and government employees with high-level security clearances.  After Yeo identified American targets, he solicited them for non-public information and paid them to write reports.  Yeo told these American targets that the reports were for clients in Asia, without revealing that they were in fact destined for the Chinese government.
 
-◆廣州呼吸健康研究院、美國哈佛大學醫學院等聯合成立”新型冠狀病毒肺炎”科研攻堅小組。 聯席組長由鍾南山院士、哈佛大學醫學院院長擔任,圍繞快速檢測診斷、臨床救治、藥物篩選和疫苗研發四大重點方向開展科研合作。
+正如犯罪陳述書中所概述的那樣，楊俊偉早在2015年就開始與中(共)國情報人員合作，最初的目標是其他亞洲國家，但後來集中在美國。 依照他中(共)國情報聯絡人員下達的任務，楊俊偉努力發現和評估能夠接觸到有價值的非公開信息的美國人，包括擁有高級安全審查的美國軍方和政府雇員。 在楊俊偉確定了美國目標人後，他向他們索要非公開信息，並付錢讓他們寫報告。 楊俊偉告訴這些美國目標人，這些報告是給亞洲客戶的，而沒有透露這些報告實際上是給中(共)國政府的。
 
-◆中國疾控中心在《美國醫學會雜誌》發表《新冠病毒疫情特點和經驗教訓》,對截至2月11日報告的72314例中國內地新冠病毒感染病例的流行病學特徵進行描述和分析。
+Yeo made use of various social media sites to carry out the taskings given to him by Chinese intelligence operatives.  In 2018, Yeo created a fake consulting company that used the same name as a prominent U.S. consulting firm that conducts public and government relations, and Yeo posted job advertisements under that company name.  Ninety percent of the resumes Yeo received in response were from U.S. military and government personnel with security clearances, and he passed resumes of interest to one of the Chinese intelligence operatives.
 
-◆英國《柳葉刀》雜誌刊發世界衛生組織總幹事譚德塞與世界衛生組織首席科學家斯瓦米納坦共同署名的文章。 文章說,中國醫生在流感季迅速識別出新冠病毒,並通過全球科研網路與國際同行共用新冠病毒基因組測序資訊等,為後續科研工作奠定基礎。 中國在應對和防控本國新冠肺炎疫情過程中的不懈努力,不但為其他國家爭取了寶貴時間,還為國際科學界共同應對這一疫情”鋪平了道路”。
+楊俊偉利用各種社交媒體網站，來執行中(共)國情報人員交給他的任務。 2018年，楊俊偉創建了一家假的諮詢公司，該公司與美國一家從事公共和政府關係的著名諮詢公司使用相同的名稱，楊俊偉以該公司的名義發佈招聘廣告。 在楊俊偉收到的簡歷中，90%的簡歷來自通過安全審查的美國軍方和政府人員，同時他將感興趣的簡歷交給了給其中一名中(共)國情報人員。
 
-◆中國工程院院士鍾南山團隊、中國工程院院士李蘭娟團隊、武漢市金銀潭醫院、武漢市中心醫院、浙江大學附屬第一醫院、香港中文大學等醫院和研究機構在美國《新英格蘭醫學雜誌》聯合發表論文《新冠肺炎臨床特點》,分析了1099例新冠肺炎患者救治數據。
+Yeo also used a professional networking website that is focused on career and employment information to carry out the taskings he received from Chinese intelligence officials.  Yeo used the professional networking website to find individuals with resumes and job descriptions suggesting that they would have access to valuable information.  After he identified individuals worth targeting, Yeo followed guidance he received from Chinese intelligence operatives regarding how to recruit potential targets, including identifying their vulnerabilities, such as dissatisfaction with work or financial difficulties.
 
-◆南方科技大學及深圳市第三人民醫院研究團隊在bioRxiv平臺發表《低溫電鏡揭示SARS-CoV-2結構全貌》,揭示新冠病毒整體結構。
+楊俊偉還利用一個專注於職業和就業資訊的專業社交網站，來執行中(共)國情報官員交給他的任務。 楊俊偉利用這個專業社交網站，通過簡歷和工作描述表明其可能獲得有價值之資訊來物色人。 在他確定了值得鎖定的個人之後，楊俊偉按照中(共)國情報人員提供 關於如何招募潛在目標的指導包括確定他們的弱點，比如對工作不滿或經濟困難。
 
-◆中國疾控中心研究團隊在《美國醫學會雜誌》發表《不同類型臨床標本中SARS-CoV-2的檢測》,首次發現新冠肺炎患者體內細胞因數變化圖譜及預後的規律。
+The investigation into this matter was conducted by the Federal Bureau of Investigation’s Washington Field Office and the U.S. Department of State’s Diplomatic Security Service.  The case is being prosecuted by Assistant U.S. Attorneys Thomas N. Saunders and Erik M. Kenerson of the National Security Section of the U.S. Attorney’s Office for the District of Columbia, along with David Aaron of the Counterintelligence and Export Control Section of the National Security Division of the Department of Justice. If you suspect you have been the target of a recruitment scheme, contact your local FBI Field Office.
 
-**即將拉清單,出來混總是要還的。 科學界集體瘋狂失智必將加速其與中共一起覆滅**
+對此事的調查是由聯邦調查局華盛頓分局辦事處和美國國務院外交安全局執行的。美國哥倫比亞特區檢察官辦公室國家安全科的助理檢察官Thomas N. Saunders和Erik M. Kenerson，以及司法部國家安全司反間諜和出口管制科的David Aaron正對此案進行起訴。如果您懷疑自己是招募計畫的目標，請與您當地聯邦調查局分局辦事處聯繫。
 
-無論是新英格蘭醫學主編埃裡克·魯賓(Eric Rubin)如何虛偽地狡辯為討伐川普政府和中共月臺的文章不是政治文章,無論柳葉刀主編 Richard Horton 怎麼樣從疫情開始時腔調就不對 一邊極力的批評英美政府 一邊誇獎中共,無論世衛組織譚書記如何為中共月臺,無論美國CDC怎麼與中共勾兌。 沼澤排幹后,它們都要為它們的為虎作伥買單的。
+出處：[https://www.justice.gov/opa/pr/singaporean-national-sentenced-14-months-prison-acting-united-states-illegal-agent-chinese](https://www.justice.gov/opa/pr/singaporean-national-sentenced-14-months-prison-acting-united-states-illegal-agent-chinese)
 
-在中共病毒攻擊世界之前,這些科學界的暗流只是在暗處收黑錢,但隨著對中共病毒追責的雷霆戰爭,英雄科學家閆麗夢博士出來后,它們不得不為中共出來搖旗吶喊,它們都清楚如果中共倒臺,它們的下場一定會很悲慘。 然而它們的最後失智瘋狂在面對事實面對科學面對正義和力量后,最終會和中共一起加速覆滅!
+*翻譯:【文所未聞】校對:【Prof. Bacteriophage】【GM31】編輯：【GM31】*
 
-參考連結:[https://gnews.org/zh-hans/413966/](https://gnews.org/zh-hans/413966/)
+*戰友之家玫瑰園小隊出品*
 
-https://www.nejm.org/doi/full/10.1056/NEJMe2029812?query=featured\_home
-
-http://www.gov.cn/xinwen/2020-04/06/content\_5499625.htm
-
-0
+1
