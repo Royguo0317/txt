@@ -1,46 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 唐納德·J·川普總統10月10日健康狀況更新
-`2020-10-11 15:45 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/418352/)
+## 洛夫勒參議員呼籲對中共國利用美國非營利組織干預選舉進行調查
+`2020-10-11 22:09 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/418643/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11153909/WH_20201010-Trump_Health-photo.png)
-THE WHITE HOUSE
+喜馬拉雅聯盟加拿大農場阿黎
 
-October 10, 2020
+校對上傳HUH
+[!\[川普安全顧問指出中共國有最大規模的干預選舉計劃- Gnews\]()!\[川普安全顧問指出中共國有最大規模的干預選舉計劃- Gnews\](https://spark.adobe.com/page/p9RXUZoMJDxo5/images/3365a31a-3770-4ebb-9b25-9dd1126b4e35.jpg?asset_id=1d65758f-6514-41ba-bed0-3a7bb9a8fd44&amp;img_etag=%220292d918f844dd71d40e3d369135e8d2%22&amp;size=1024)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Fgnews.org%2Fzh-hans%2F342333%2F&amp;psig=AOvVaw1ZkPXLb9uWpR_5ArPPkBSL&amp;ust=1602554437105000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCJDqmdT6rewCFQAAAAAdAAAAABAJ) gnews.com
+據福克斯新聞獨家報導，參議員凱利·洛夫勒（Kelly Loeffler）週四致信高級政府官員，呼籲調查中共國利用美國非營利組織干預美國的選舉和政策，這反映出對共產黨政府尋求干預11月大選的關注日益增加。
 
-白宮總統醫生
+洛夫弗勒在給總檢察長威廉·巴爾將軍，國家情報局局長約翰·拉特克利夫（John Ratcliffe）和國稅局局長查爾斯·雷蒂格（Charles Rettig）的一封信中說：“儘管公開披露的有關中共國政府利用非贏利組織如何干預美國選舉和政策的評估沒有詳細說明他們是如何做的，但很明顯，中共國政府有利用非政府組織執行中共政府政策目標的經驗。”
 
-2020年10月10日
+**國家安全顧問奧布萊恩說中國比俄羅斯更積極干預選舉**
 
-MEMORANDUM FOR: KAYLEIGH MCENANY ASSISTANT TO THE PRESIDENT AND WHITE HOUSE PRESS SECRETARY
+福克斯新聞在Scribd上發表參議員洛夫勒關於中共國干預的信。
 
-致總統助理兼白宮新聞秘書Kayleigh Mcenany的備忘錄
+許多官員警告說，中共國以及伊朗和俄羅斯等其他國家可能會干預選舉。官員們警告說，中共國正在尋求改變政策環境，反對對中共國的批評，並向反對共產主義政權的官員施加壓力。
 
-FROM: SEAN P. CONLEY, DO, FACEP PHYSICIAN TO THE PRESIDENT COMMANDER, U.S. NANY
+上個月在美國有線電視新聞網（CNN）上問巴爾，哪個國家在干預選舉方面更為自信和積極。
 
-來自：骨科醫學博士、美國急診醫師學會院士、美國海軍總統醫生指揮官Sean P. Conley
+巴爾說：“我相信是中（共）國。” “因為我已經看到了他們在網絡智能上對大選的干預，所以我得出了結論。”
 
-SUBJECT: Saturday Health Update on President Donald J. Trump
+八月，情報界警告說，伊朗正試圖詆毀特朗普總統，而俄羅斯在敗壞民主黨候選人喬·拜登。官員們還表示，中共國“更喜歡”特朗普在十一月份沒有獲勝。
 
-主題：唐納德·J·川普總統週六健康狀況更新
+DNI的約翰·拉特克利夫（John Ratcliffe）告訴福克斯新聞（Fox News），中共國在經濟，軍事和技術上對美國構成的國家安全威脅比任何其他國家都要大。
 
-I release the following information with the permission of President Donald J. Trump.
+拉特克利夫說：“這些威脅包括對選舉的影響和乾預。”
 
-經唐納德·J·川普總統的許可，我發佈如下消息：
+洛夫勒從一些報導中，發現中國紅十字會和其他組織與中共國和中國共產黨有聯繫，並在《紐約時報》的一篇文章中找到了中共國在歐洲和澳大利亞影響選舉的例子。
 
-This evening I am happy to report that in addition to the President meeting CDC criteria for the safe discontinuation of isolation, this morning’s COVID PCR sample demonstrates, by currently recognized standards, he is no longer considered a transmission risk to others. Now at day 10 from symptom onset, fever-free for well over 24 hours and all symptoms improved, the assortment of advanced diagnostic tests obtained reveal there is no longer evidence of actively replicating virus. In addition, sequential testing throughout his illness has demonstrated decreasing viral loads that correlate with increasing cycle threshold times, as well as decreasing and now undetectable subgenomic mRNA.
+**勒夫勒議員擁護特朗普“美國第一”戰略，就冠狀病毒對美國造成的損失懲罰中國**
 
-今天晚上我很高興地報告，總統除了符合疾病預防與控制中心（CDC）關於安全終止隔離的標準以外，今天早晨的COVID PCR樣本還顯示，根據目前認可的標準他已經不再有對其他人傳播的風險。從出現症狀到現在已是第10天，（他）超過24小時不發燒，所有症狀已改善，各種先進的診斷測試表明（他身體內）已經沒有主動自我複製病毒的跡象。此外，在他整個疾病期間進行的系列測試表明，減少病毒載量與增加週期臨界值次數以及減少現在不可檢測的亞基因組mRNA相關。
+洛夫勒寫道：“在美國，《外國代理人註冊法》（FARA）和競選資金對外國捐款的限制等法律旨在確保透明度，防止外國人影響我們的政治流程。” “但是，由於非營利組織收到外國個人和實體的捐款，它們代表了中共政府可能影響美國政策和選舉的潛在漏洞。”
 
-Moving forward, I will continue to monitor him clinically as he returns to an active schedule.
+洛夫勒（Loeffler）要求美國國稅局（IRS）對與中共有關的501（c）（3）和501（c）（4）報稅項目進行審查，以獲取接受中國資金並從事政治活動的實體名單，提交司法部，與司法部協調，查明和阻止中共通過非營利組織干預選舉。
 
-接下來，我會在他恢復活動時間表後繼續對他進行臨床監測。
+最近幾個月，特別是自起源於中共國的COVID-19爆發以來，特朗普政府一直在加大力度，以打擊中共國在國內外的影響力。
 
-白宮原文鏈接：[https://www.whitehouse.gov/wp-content/uploads/2020/10/MemoFromThePresdentsPhysician-101020.png](https://www.whitehouse.gov/wp-content/uploads/2020/10/MemoFromThePresdentsPhysician-101020.png)
+在政府採取的各種措施中，有一項是美國國務院於8月採取的行動，將孔子學院（CIUS）美國中心指定為中共國的外國使團。
 
-翻譯：【Cyndi】編輯：【Isaiah4031】
+美國務院聲明說，由中共國政府資助的CIUS是“推動北京在美國校園和K-12教室進行全球宣傳和惡性影響運動的實體”，也是其共產黨機構的一部分。該中心否認了這一定性，並指控美國務院“國際軍刀響”,意指美國務院對CIUS的定性是恐怖的和誇大其辭的。
 
-戰友之家玫瑰園小隊出品
+評：
+
+利用非盈利機構干預美國大选和政策制定和實施，只是中共國滲透和乾預美國政治的諸多措施的一項。中共國一直在美國境內擴張影響力，塑造對中政策環境，施壓，恐赫和威脅不利中方利益的美國政治人物，轉移或反制其對中共的批評。
+
+中共利用美國的媒體對美國的反共政治人士進行攻擊和誣陷，他們攻擊美國民主制度，滲透共產主義思想，他們造謠，欺騙，歪曲事實，洗腦美國民眾。中共試圖動搖美國選民偏好、改變美國政策、擴大美國內訌，破壞美國民眾對民主制度的信心。
+
+郭文貴先生髮起並領導的爆料革命，已經讓美國政府十分清楚中共對美國各界藍金黃，深度滲透，並掌握了大量的證據。然而，三年來，美國政府一直在“警告”, “呼籲”,甚至喊出了一次“72小時”，美國對中共的製裁基本限於口頭。 10月10日,班農先生在疫情戰斗室憤怒地吶喊：行動，行動，還等什麼？這也是郭先生始終如一的對美國政府的呼喊。中共已經對美國發起了戰爭，行動吧，美國！
+
+鏈接：
+
+https://www.foxnews.com/politics/sen-loeffler-chinas-nonprofits-meddle-elections b,\_fnFilte
 
 0

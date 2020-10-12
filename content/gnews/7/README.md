@@ -1,60 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 全球懲賊行動圖集
-`2020-10-11 15:36 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/418341/)
+## 凱爾巴斯:香港和中共國未來走勢
+`2020-10-11 21:45 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/418608/)
 
-喜馬拉雅聯盟加拿大農場 WJ
+喜馬拉雅聯盟加拿大農場Jack傑克
 
-自2020年9月以來，爆料革命戰友自發在美國、加拿大、澳大利亞、新西蘭以及台灣等地開展依法、和平的全球懲賊行動。這不是簡單的抗議，也不是簡單的維權，它是影響著人類未來生存的一場巨大的革命。全球懲賊行動揭露所有海外共產黨潛伏的特務，凡是替共產黨搖旗吶喊的、替共產黨說好話的、反對香港運動的、造謠英雄科學家閆麗夢的、打擊爆料革命的、反對滅共的，都屬於懲賊範疇。
+校對上傳HUH
+![]()![](https://media.discordapp.net/attachments/752580723608780901/765018394096566313/Snipaste_2020-10-12_09-09-46.png) Gnews.com
+海曼資本凱爾巴斯（Hayman Capital Management, Kyle Bass)認為中共國的實力只是像一隻紙老虎。這也是他堅持與中共國對抗的根本原因。
 
-以下是各地懲賊行動圖集以及相關頻道
+**做空港幣，經濟戰**
 
-美國
+凱爾巴斯成功運作了海曼資本15年並以多次準確預測衰退而著名，2007年做空次級抵押貸款得到巨大回報是他的成名之戰。另外，他也對主權債務也充滿興趣。
 
-紐約—-**莊烈宏**
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150220/%E5%BA%84%E7%83%88%E5%AE%8F%E6%BC%AB%E7%94%BB.png)
-香草山之聲—GTV
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150205/%E5%BA%84%E7%83%88%E5%AE%8F-%E6%8A%97%E8%AE%AE.jpeg)
-洛杉磯—-**盲流子**（真名：靳清敏）
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11145939/EiehzNzU0AEE08c.jpg)
-喜馬拉雅洛城之聲-GTV
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11151619/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE474.png)
-德州米德蘭—-**傅希秋**
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11145929/cdd574a83ce6810f1afad19fc5ff6526.png)
-香草山之聲-GTV
- NFSCTV-GTV
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11151737/%E5%82%85%E5%B8%8C%E7%A7%8B-%E6%8A%97%E8%AE%AE.jpeg)
-加拿大溫哥華—-**黃河邊**（真名：高冰塵）
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150050/%E9%BB%84%E6%B2%B3%E8%BE%B9.png)
-喜馬拉雅加拿大農場-GTV
-加農金融時事-GTV
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/30160600/EjLcShtU0AEIozK.jpg)
-澳大利亞昆州—-**細思極恐**，又名：雞腿潘（真名：潘林正）
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150105/%E9%B8%A1%E8%85%BF%E6%BD%98.png)
-澳喜公關外聯組-GTV
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150007/%E6%BE%B3%E5%96%9C%E5%86%9C%E5%9C%BA.png)
-新西蘭漢密爾頓—-**朱萬利**
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150117/%E6%9C%B1%E4%B8%87%E5%88%A9.jpg)
-新西蘭農場時政台-GTV
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150130/%E6%9C%B1%E4%B8%87%E5%88%A9.png)
-台灣台北——**陳文茜**
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11150040/%E9%99%88%E6%96%87%E8%8C%9C.png)
-臺灣喜馬拉雅農場-GTV
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11152438/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE479.png)
-全球懲賊，讓這些隱藏的中共黑手一個個暴露，讓各個國家警醒中共已經對其政治，社會和司法造成了巨大的影響，絕不能再姑息養奸，任由中共危害世界。
+他將自己與中共國的對抗視為一場投資， 同時也是一場道德的戰爭。凱爾巴斯支持貿易關稅並且強調西方國家應該建立能夠發動經濟戰的政府部門，他將目光對準了香港， 大膽的做空港幣將賭注押注在港幣和美元的掛鉤。如果港幣在2021年底跌了40%，投資者將會得到大於他們收入64倍的現金。
 
-懲賊行動是考驗戰友最關鍵的標準，比的是耐力、決心、實力和不怕犧牲、不怕付出，也是對新中國聯邦在西方是否能得到信任和尊重最根本的基礎。在法治的西方，最終的決定在法庭上。誰輸誰贏，已見分曉！
+**香港衰退的時間推算**
 
+香港經濟從2019年6月的開始進入了衰退期。 2019年第三季度經濟下滑了3%。今年香港經濟下降了10%，銀行系統的槓桿率達到了GDP的850%。凱爾巴斯提到從宏觀角度上來說，香港將全面的銀行危機將會在今年第三和第四季度顯現。另外， 有五分之一到十分之一不等的外匯將離開香港，屆時香港的外匯儲備將不再能承擔外匯儲備的作用。但香港的大亨們舉家遷出香港需要時間，所以香港經濟正在一步步不斷退化但目前不會很快崩潰。根據凱爾巴斯先生對於港幣脫鉤的預測和郭先生對於共產黨滅亡時間的預測， 譯者認為香港經濟崩潰的時間應該在今年年底到明年上半年之間。
 
+**中共國經濟預測**
 
-相關新聞
+對於中共國的數據報告，凱爾巴斯揭穿95%的在亞洲的首席經濟學家都是共產黨員。因此中共國的經濟數據不可信。另外，如果大公司想要在中國發展， 他們就必須要和共產黨形成合資合作關係。因此僅大公司有盈利空間，例如高盛。小公司進入便有被中共吞併的危險。所以，譯者認為中共的德行對內對外都一樣，欺負弱小的，懼怕強權。所以中共不滅，所有中小企業無論國內外，都將盈利有限，生存艱難。而賺到高額利潤的那一批只屬於大企業或者中共國少數盜國賊家族。
 
-[新中國聯邦人告世界書：嚴正拒絕偽類代表華人形象](https://gnews.org/zh-hans/382773/)
+**對於中共國貨幣預測**
 
-[懲賊行動！你最英雄](https://gnews.org/zh-hans/414340/)
+中共國玩弄低級政治手段，加上他們的金融結構沒有法治，因此不具備成為一個世界性的基礎貨幣的條件。目前，人民幣的全球交易量僅超過1%。人民幣想要國際化是以一個國家的信用為基礎的，中共國的國家信用注定了它的國際化必然失敗。
 
-[全球依法滅賊行動加拿大掃黃遛狗10月4日跟進報導](https://gnews.org/zh-hans/403982/)
-[澳喜農場昆州依法懲賊運動初戰告捷雞腿潘囂張到幾時](https://gnews.org/zh-hans/414573/)
+英文原版鏈接：https://www.globalcapital.com/article/b1nqr87fqy82dk/39china-is-a-paper-tiger39-says-kyle-bass-hayman-capital-management
 
 0
