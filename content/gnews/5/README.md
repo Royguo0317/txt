@@ -1,19 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/10/06 CCP病毒每日疫情直播簡報
-`2020-10-12 10:30 GM62` [轉載自GNews](https://gnews.org/zh-hant/419240/)
+## 中共病毒 | 外交部首次提閆麗夢 美駐聯合國大使也關註
+`2020-10-12 12:51 公民之聲` [轉載自GNews](https://gnews.org/zh-hant/420202/)
 
-戰友之家圖文摘要及小語種組
+內新聞：α-Vega 校對：天藍色獨角色
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12110809/screenshot_2020-10-12-22-02-13-407_discord.jpg)
+在10月12日外交部記者會上，環球時報-環球網記者提問：美國常駐聯合國代表克拉夫特日前在推特轉發其在聯合國大會第三委員會壹般性辯論中的發言材料稱，美嚴重關切以新冠肺炎大流行為由對本國公民和公民社會進行無端鎮壓，並舉例稱中國醫生閆麗夢(Li-Meng Yan)因試圖就武漢聚集性感染情況向世界發出警告而受到訓誡，後死於新冠病毒。中方對此有何評論？
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12110819/screenshot_2020-10-12-22-02-01-671_discord.jpg)
+趙立堅回應，“我要告訴妳的是，閆麗夢還活著，可是被她說死了。美方提到的應該是李文亮醫生，他是優秀的共產黨員，被授予烈士稱號。“美方有關發言連基本的人名事實都沒有弄清楚，就信口開河，充分暴露了美方有關人士的無知和不負責任。”
 
-[255\_English\_1006\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073232/255_English_1006_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073232/255_English_1006_CCP_Virus_Updates.pdf)
+克拉夫特在聯合國的發言確實如原文所寫。從另外壹個角度看，閆麗夢博士的名字已經被美國政要所知，否則又怎麽會被口誤說出來？網上的各種偽類、五毛攻擊閆博士是個小角色，攻擊閆博士“就是個養倉鼠的”，如此壹個“無名小卒”的名字也不應該出現在聯合國和中共外交部記者會。
 
-[255\_French\_1006\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073237/255_French_1006_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073237/255_French_1006_CCP_Virus_Updates.pdf)
+閆麗夢是誰，想必環球時報的記者和外交部都是相當清楚的，所以安排記者提這個問題，是來奚落美國大使克拉夫特的口誤。
 
-[255\_German\_1006\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073247/255_German_1006_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073247/255_German_1006_CCP_Virus_Updates.pdf)
+克拉夫特最近火力全開，不斷挑戰中共最敏感的神經，大力推動對臺、人權、疫情問題。
 
-[255\_Korean\_1006\_CCP\_Virus\_Updates\_255](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12105742/Korean_1006_CCP_Virus_Updates_255.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12105742/Korean_1006_CCP_Virus_Updates_255.pdf)
+9月16日克拉夫特與駐紐約臺北經濟文化辦事處處長李光章共進午餐，被她稱為“歷史性”的會議，以此推動臺灣全面參與聯合國事務。
 
-[255\_Spanish\_1006\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073242/255_Spanish_1006_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073242/255_Spanish_1006_CCP_Virus_Updates.pdf)
+10月7日克拉夫特在聯合國大會第三委員會壹般性辯論中關於人權問題的發言，針對新冠病毒、新疆人權、香港問題指責中共。
+
+閆麗夢博士在國際舞臺的影響力日漸擴大，她以科學的角度揭露了新冠病毒來源於實驗室，是壹種超限生化武器。病毒的真相此時已經被政府高層所關註，想必不久會震驚世界。
+
+更多真相請查閱：
+Gnews/GTV /路德社
+
+新聞來源：
+
+[美常駐聯合國代表為抹黑中國連人名事實都搞錯，趙立堅回應：信口開河](https://world.huanqiu.com/article/40FsEcCmrrd)
+[閆麗夢博士路德訪談](https://youtu.be/VAKlS2oM9EU)
 
 0

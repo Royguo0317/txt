@@ -1,32 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲總理座騎被昆士蘭州難民抗議者“血”色潑墨
-`2020-10-12 09:47 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hant/419680/)
+## 10/12 財經快訊: 渣打向中共跪求證券拍照, 中共黨企加視在華爾街上市
+`2020-10-12 10:38 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/419891/)
 
-喜马拉雅的文雅 from 喜澳雅典娜农场
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12093425/image-10.jpeg)图片来源 abc.net.au
-2020年10月12日澳大利亞總理斯科特·莫裏森（Scott Morrison）在昆士蘭州大學生物工程與納米技術學院訪問時，他的車遭遇被抗議者紅色潑墨門和被拋擲水果蔬菜的行為。抗議人群來自難民人權活動者。他們舉著標語上寫“鎖住總理”，有的寫著“我劃著小船來是為了尋求安全”。他們抗議的主要訴求是要求“安全”，解除島上滯留。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12093540/detention-is-torture.png)图片来源 abc.net.au. 抗议者标语为滞留是折磨；我划着小船来这里找安全（而不是滞留）。
-此前在今年7月這些難民也舉行過超過3000人的大規模遊行示威活動。當時法官Dalton說“抗議遊行是每個人的權利，但是這種抗議方式顯然是不尋常的。”遊行隊伍曾被警告不要逼警察做出行動。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12094550/1012FN.jpg)圖片來源： [https://www.fox4now.com](https://www.fox4now.com/news/local-news/new-emergency-alert-system-in-place-in-punta-gorda)
+[1.渣打銀行正向中共尋求中國證券牌照](https://www.reuters.com/article/us-stanchart-china-idUKKBN26X0G9?taid=5f83ed5e105ed700015f309e&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-這些難民在居住的昆士蘭州的聖誕島上和袋鼠角接受政府提供的醫療救助。澳洲移民局執行部長曾說，這些難民中有45%都不是真正的難民，他們可以安全返回家園。對於其他人，每個人都有選擇，他們可以返回巴布亞新幾內亞或瑙魯，有些人可以去美國。
+[2.範一飛，人民銀行副行長近日表示中美關係惡化給中共金融網絡帶來巨大風險。](https://mobile.reuters.com/article/amp/idUSKBN26X04E?__twitter_impression=true)
 
-筆者發現2014年2月，中國政府曾公開批評澳大利亞的人權問題，當時中共國外交部長李保東（音譯）說“特別是在保護難民和尋求庇護者方面，難民兒童的受教育權和其他權利。”當被澳洲外交部副部長吉莉安•伯德（Gillian Bird）等人問及中國對異議人士和學者鎮壓的問題時，中共方卻沒有正面答復。
+[3.歐盟加入英美對科技巨頭宣戰。](https://www.marketwatch.com/story/eu-hit-list-would-reportedly-impose-tougher-rules-on-big-tech-companies-11602456911?redirect=amp#click=https://t.co/7h2LPNmYGD)
 
-澳洲在對待難民的問題上可謂人道主義實施“嚴重”的國家，曾幾何時，澳洲辛勤工作的華人甚至感到支付巨額父母移民費用，等待的速度都不及難民簽證的受理速度快。難民得到的待遇比普通技術移民獲得者，以及在受教育及教育金補助的福利方面都非常優待和優先。很多人通過難民身份獲得良好教育和工作機會，最終在澳洲過上殷實的生活。
+[4.中共企業正加速在華爾街上市](https://www.ft.com/content/1acd60ed-f549-430e-822c-8155baf125a8)
 
-對於中共國攻擊西方世界的手段我們早已不再陌生。美國ANTIFA的幕後資金支持者已經被發現是中共政府控制的基金組織。在中共病毒疫情大流行的情況下，澳洲曾經爆發的“黑命貴”運動沒有像在美國壹樣被煽動盛行，然而難民問題甚囂塵上。我們不推崇陰謀論，但是也不相信巧合說。結合當下國際社會中的亂象叢生，澳大利亞在五眼聯盟國家中最先向中共提出調查病毒來源，在中共以大麥、紅酒、牛肉、留學等貿易作為威脅遏制澳洲後，澳洲總理莫裏斯並未就範，反而加強國防軍事建設，積極配合美日印亞太國際安全合作。這些對中共而言，曾經的夥伴似乎不太聽話了，怎麽辦？今天發生的總理座騎被“血“潑事件，留給人的是更多對真相調查的期待。
+[5.銀保監會官網10月10日發布《關於優化保險機構投資管理能力監管有關事項的通知》。 《通知》印發後，銀保監會將通過壓實機構責任、加強監管檢查、發揮監督合力等方式著力加強事中事後監管。中共統治下，保險公司是否會破產呢？保險金能夠兌現嗎？](http://news.esnai.com/2020/1010/209322.shtml)
 
-新聞來源
-https://www.abc.net.au/news/2014-02-20/china-criticises-australia-human-rights-record/5273478
+[6.中共試圖用高級會計師資格收買註冊會計師](http://news.esnai.com/2020/1010/209334.shtml)
 
-[https://www.abc.net.au/news/2020-10-12/uq-refugee-protest-prime-minister-scott-morrison-car/12753858](https://www.abc.net.au/news/2020-10-12/uq-refugee-protest-prime-minister-scott-morrison-car/12753858)
-
-[https://www.abc.net.au/news/2020-08-13/brisbane-protest-supreme-court-ruling-refugee-asylum-seeker/12553114](https://www.abc.net.au/news/2020-08-13/brisbane-protest-supreme-court-ruling-refugee-asylum-seeker/12553114)
-
-[https://www.abc.net.au/news/2020-07-17/human-rights-concerns-kangaroo-point-detainees-refugee-status/12466252](https://www.abc.net.au/news/2020-07-17/human-rights-concerns-kangaroo-point-detainees-refugee-status/12466252)
-
-
+By：【秘翻組·金融法律組】
 
 0

@@ -1,23 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 10月11日班農先生演講 中共在恥笑著我們
-`2020-10-12 09:37 GM62` [轉載自GNews](https://gnews.org/zh-hant/419612/)
+## 【世界多語言圖文】2020/10/06 CCP病毒每日疫情直播簡報
+`2020-10-12 10:30 GM62` [轉載自GNews](https://gnews.org/zh-hant/419240/)
 
-作者：小雨
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12092417/5643232.jpg)
-10月11日前白宮首席戰略家兼戰鬥室主持人斯蒂芬・班農先生在弗吉尼亞州的青年共和黨聯合會上做了演講,這也是班農先生”密謀竊取2020″ (Plot to Steal 2020)全國巡迴演講的一部分。 在演講中班農直指民主黨策劃竊取2020年總統競選活動的陰謀。
+戰友之家圖文摘要及小語種組
 
-針對中共部分,班農指出在中共的支援下,華爾街是百分之百地反對川普總統。 今年華爾街的資本至少增加了三倍。 華爾街賺取的錢都是美國大眾的錢,美國人養老的錢。 班農說,香港來的閆博士告訴我們真相:CCP病毒是超限生化武器,不是什麼實驗室洩漏。 主流媒體和華爾街,沒有一個去指責中共。 班農告訴大家,就算川普總統說這是「中國病毒」,我也沒什麼可高興的。 我們要讓人民幣與美元脫鉤,制裁中共的銀行,像對待伊朗一樣。 因為中共所做的是威脅中國人,威脅美國人,威脅全人類的生命。 中共就是在搞種族滅絕。 中共造成了一百多萬人死亡和幾百萬美元的債務。 中共正在恥笑我們。
+[255\_English\_1006\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073232/255_English_1006_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073232/255_English_1006_CCP_Virus_Updates.pdf)
 
-班農還指出中共掌控著美國律師事務所,華爾街,美國公司,美國的大學。 《新英格蘭醫學》雜誌現在也冒出來攻擊川普總統,這是在《新英格蘭醫學》雜誌過去175年的歷史中絕無僅有的,他們之前從未參與過政治活動,也從未認可任何候選人。 整個科學界,包括世衛組織,各個科學機構和各個研究型大學都與中共有交易,每個人都從中共那裡拿錢。 甚至半個華盛頓特區的人也從中共那裡拿錢。
+[255\_French\_1006\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073237/255_French_1006_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073237/255_French_1006_CCP_Virus_Updates.pdf)
 
-評論:我們可以看到在班農先生的強烈助攻下,川普總統必須立刻要對中共實施真正有效的打擊。 中共在各界的藍金黃勢力不可小覷,美國必須要行動,行動,行動! 川普總統只有真心滅共這一條路,滅共才能確保大選獲勝。
+[255\_German\_1006\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073247/255_German_1006_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073247/255_German_1006_CCP_Virus_Updates.pdf)
 
-资源链接：
+[255\_Korean\_1006\_CCP\_Virus\_Updates\_255](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12105742/Korean_1006_CCP_Virus_Updates_255.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12105742/Korean_1006_CCP_Virus_Updates_255.pdf)
 
-[https://www.youtube.com/watch?v=4dh1e3pZMYY](https://www.youtube.com/watch?v=4dh1e3pZMYY)
-
-
+[255\_Spanish\_1006\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073242/255_Spanish_1006_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073242/255_Spanish_1006_CCP_Virus_Updates.pdf)
 
 0

@@ -1,22 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 10/12 財經快訊: 渣打向中共跪求證券拍照, 中共黨企加視在華爾街上市
-`2020-10-12 10:38 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/419891/)
+## 【原創新聞評論】-青島全市核酸檢測，中共疫情隱瞞還能瞞多久？
+`2020-10-12 13:42 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/420188/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12094550/1012FN.jpg)圖片來源： [https://www.fox4now.com](https://www.fox4now.com/news/local-news/new-emergency-alert-system-in-place-in-punta-gorda)
-[1.渣打銀行正向中共尋求中國證券牌照](https://www.reuters.com/article/us-stanchart-china-idUKKBN26X0G9?taid=5f83ed5e105ed700015f309e&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+投稿日期：10月12日；新聞評論：文明明；校對：InAHurry；審稿：海闊天空；Page:1818
 
-[2.範一飛，人民銀行副行長近日表示中美關係惡化給中共金融網絡帶來巨大風險。](https://mobile.reuters.com/article/amp/idUSKBN26X04E?__twitter_impression=true)
+## **青島全市核酸檢測，中共疫情隱瞞還能瞞多久？**
 
-[3.歐盟加入英美對科技巨頭宣戰。](https://www.marketwatch.com/story/eu-hit-list-would-reportedly-impose-tougher-rules-on-big-tech-companies-11602456911?redirect=amp#click=https://t.co/7h2LPNmYGD)
+據10月12日牆內的每日經濟新聞報導， 青島市深夜緊急動員， 針對該市發現的3例新增新冠病例， 全市立即開展核酸檢測。山東省委、省政府主要負責人高度重視， 第一時間提出要求、 做出部署， 採取最嚴密、最周全、最高效的措施， 從嚴從細從實從快地做好留調、排查、 檢測、 封控、 隔離、 收治工作。要調集全省流調和檢測方面的機動力量， 赴青島提供支持， 堅決打贏打好阻擊戰、攻堅戰。各級各有關部門要全面落實好常態化防控措施， 紮實做好秋冬季疫情防控工作， 鞏固好來之不易的疫情防控成果。
 
-[4.中共企業正加速在華爾街上市](https://www.ft.com/content/1acd60ed-f549-430e-822c-8155baf125a8)
+[!\[\]()!\[\](https://spark.adobe.com/page/EeuJd9dNb4Izv/images/b6bef6d5-4890-483b-89ac-08c3b412a525.png?asset_id=5cf5bdc8-13a0-4d74-9db8-77489508169e&amp;img_etag=%22bbd42575cb8698e134b2778e275fc386%22&amp;size=4845)](https://spark.adobe.com/page/EeuJd9dNb4Izv/images/b6bef6d5-4890-483b-89ac-08c3b412a525.png?asset_id=5cf5bdc8-13a0-4d74-9db8-77489508169e&amp;img_etag=%22bbd42575cb8698e134b2778e275fc386%22&amp;size=1024)
 
-[5.銀保監會官網10月10日發布《關於優化保險機構投資管理能力監管有關事項的通知》。 《通知》印發後，銀保監會將通過壓實機構責任、加強監管檢查、發揮監督合力等方式著力加強事中事後監管。中共統治下，保險公司是否會破產呢？保險金能夠兌現嗎？](http://news.esnai.com/2020/1010/209322.shtml)
+從這篇簡短的新聞中，我們可以按照牆內新聞的慣例預見， 青島的疫情遠遠不止新聞所描述的3例這麼簡單。我們不妨猜測一下：
 
-[6.中共試圖用高級會計師資格收買註冊會計師](http://news.esnai.com/2020/1010/209334.shtml)
+首先，如果僅僅3例，按照牆內的人力資源和高科技追踪手段，7分鐘之內可以找到想要找的人，排查和追溯病源應該不是難事。如果僅僅3例， 那麼， 到記者發稿時，病源應該已經被找到並被控制，記者應該是歌頌領導是如何親自領導、親自指揮、親自部署，勝利打贏打好了阻擊戰和攻擊戰。這麼容易做到的事還需要在深夜驚動山東省委、省政府， 那麼， 這是不是說明領導無能？
 
-By：【秘翻組·金融法律組】
+> 双节的狂欢过后。 中共国各地的武汉病毒在悄悄泛滥。 
+> 
+> 青岛康居公寓。已经封闭小区了。！ [pic.twitter.com/AFsYz5euWO](https://t.co/AFsYz5euWO)
+> — 青山兰 (@qingshanlan) [October 11, 2020](https://twitter.com/qingshanlan/status/1315253977337004032?ref_src=twsrc%5Etfw)
+
+再則，自今年4月以來，當新冠肆虐全球的時候， 中共國已經做到零感染、零死亡。幾個月來，所有從海外回去的同胞， 都要實行嚴格的隔離檢測措施，這3個病例又是從何而來呢？其實中共國內的疫情真相一直被壓制，感染人數和疫情嚴重程度都被當做國家機密， 醫生護士和相關可以得知內情的人被噤聲、 或被要求籤保密協議。鑑定感染者的標準也與全世界不同， 只有同時滿足有症狀檢測陽性和X光肺部陰影才被算作感染者。中共國是全世界唯一分有症狀感染和無症狀的國家， 並一再誤導大眾無症狀感染者沒有傳播性。這無疑為疫情再次爆發埋下了定時炸彈，這也可以從最近兩個月北京和雲南的疫情中看出。
+
+最後，為什麼這次出現緊急情況的偏偏是青島？引用班農先生在戰斗室裡經常說的一句話：我們不相信陰謀論，但我們也不相信巧合。我們的英雄科學家閆麗夢博士和法治基金董事郝海東都來自青島，他們還有很多家人在青島，而這次青島在國慶後僅因為3例確診就連夜發通告要求全市範圍進行核算檢查。這不僅讓人懷疑，中共此舉究竟是為了抗疫還是為了放毒？是為了抗疫還是為了報復、脅迫閆麗夢博士和郝海東家人？如果此次青島真是衝著閆麗夢博士和郝海東先生來的，中共又一次向世人昭示了其令人髮指的邪惡！
+
+綜上所述，中共官方宣布的所謂3例確診根本不可信。在推特上我們已經可以看到有來自青島某小區的視頻流出，警車封樓封路的情況已經發生。這不禁讓我們想起了九個月前武漢的種種。希望武漢的悲劇不要在青島重新上演。
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/EeuJd9dNb4Izv/) -點擊Adobe Spark版
 
 0

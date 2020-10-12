@@ -1,15 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## （德語+中文）閆博士報告已經通過了美國頂級專家的認可,但NIH WHO CDC至今未回復
-`2020-10-12 09:11 GM62` [轉載自GNews](https://gnews.org/zh-hant/419558/)
+## （日語+中文）蓬佩奧在梵蒂岡的演講: 批評中共國打壓各宗教團體
+`2020-10-12 10:19 GM62` [轉載自GNews](https://gnews.org/zh-hant/419807/)
 
-德語標題 Dr. Yans Paper wurde von den Top-Experten in USA anerkennt, keine Rückmeldung von NIH, WHO und CDC
+日語標題 ポンペオ米国国務長官、バチカンで演説：中国共産党の宗教弾圧を非難
 
-校對： 小羽 德語翻譯:    文月 德語校對:    ItIsHappening 視頻：文件夹
+原文校對：tiger64 翻譯：renn 譯文校對：风花雪月 視頻：曼莉 文稿：yuyu（文悠）
 
-Bericht von Dr. Yan wurde von den Top-Experten der US-Regierung aller Art befürwortet, aber NIH, WHO und CDC hat immer noch keine Rückmeldung. Dr. Yan erzählte in die Wahtheit über Coronavirus auf die Kosten ihres Lebens, des Lebens ihrer Familie
+蓬佩奧表示中共國認為自己是終極道德權威,極端迫害宗教信仰自由。 我們必須支援追求自由的人。
 
-閆博士報告已經通過了美國頂級專家的認可,但NIH WHO CDC至今不敢回復。此外閆博士的家人受到了中共國的無理由逮捕，只是為了阻止此份報告的問世
+ポンペオ氏は、「中国共産党は自らを究極の道徳的権威とみなし、信教の自由を迫害している」と表明した。私たちは自由を追求する人々を支持しなければならない
 
 0
