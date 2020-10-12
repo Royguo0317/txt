@@ -1,19 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/10/06 CCP病毒每日疫情直播簡報
-`2020-10-12 10:30 GM62` [轉載自GNews](https://gnews.org/zh-hant/419240/)
+## 班大爺訪問：新西蘭政黨AdvanceNZ：領導人（Jami-Lee Ross）&#8211;指定CCP為與恐怖主義有聯繫的組織
+`2020-10-12 11:18 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/420041/)
 
-戰友之家圖文摘要及小語種組
+編輯：玫瑰天空
 
-[255\_English\_1006\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073232/255_English_1006_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073232/255_English_1006_CCP_Virus_Updates.pdf)
+> 明知中共在新西兰议会安插间谍，新西兰议会却睁一只眼闭一只眼🤬 [pic.twitter.com/g3125jsFqu](https://t.co/g3125jsFqu)
+> — 喜马拉雅农场新西兰站 Himalaya New Zealand (@HimalayaNZF) [October 12, 2020](https://twitter.com/HimalayaNZF/status/1315682137803165697?ref_src=twsrc%5Etfw)
 
-[255\_French\_1006\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073237/255_French_1006_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073237/255_French_1006_CCP_Virus_Updates.pdf)
-
-[255\_German\_1006\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073247/255_German_1006_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073247/255_German_1006_CCP_Virus_Updates.pdf)
-
-[255\_Korean\_1006\_CCP\_Virus\_Updates\_255](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12105742/Korean_1006_CCP_Virus_Updates_255.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12105742/Korean_1006_CCP_Virus_Updates_255.pdf)
-
-[255\_Spanish\_1006\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073242/255_Spanish_1006_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073242/255_Spanish_1006_CCP_Virus_Updates.pdf)
+> 为什么新西兰议员Jami-Lee Ross 选择支持新中国联邦 [pic.twitter.com/JG0T1TCgRy](https://t.co/JG0T1TCgRy)
+> — 喜马拉雅农场新西兰站 Himalaya New Zealand (@HimalayaNZF) [October 12, 2020](https://twitter.com/HimalayaNZF/status/1315682907055218689?ref_src=twsrc%5Etfw)
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12104311/%E6%88%AA%E5%B1%8F2020-10-13-03.41.45.png)
+> [#BillyTK](https://twitter.com/hashtag/BillyTK?src=hash&amp;ref_src=twsrc%5Etfw) speaks at the 2020 Protest & Rally yesterday at Aotea Square [#AdvanceNZ](https://twitter.com/hashtag/AdvanceNZ?src=hash&amp;ref_src=twsrc%5Etfw) [#nzpol](https://twitter.com/hashtag/nzpol?src=hash&amp;ref_src=twsrc%5Etfw) [#NZElection2020](https://twitter.com/hashtag/NZElection2020?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/ypheiZ5cSb](https://t.co/ypheiZ5cSb)
+> — Advance NZ / NZPP (@NZPP\_Official) [October 10, 2020](https://twitter.com/NZPP_Official/status/1315054090112565249?ref_src=twsrc%5Etfw)
 
 0

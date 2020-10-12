@@ -1,15 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 李宇春——中共喊妳查核酸了！青島昨日音樂節萬人狂歡vs今日排隊查核酸
-`2020-10-12 12:40 公民之聲` [轉載自GNews](https://gnews.org/zh-hant/420171/)
+## 【12港人送中】林鄭拒評赴深圳時會否轉達被捕家屬要求【跟蹤報導】
+`2020-10-12 13:48 GM42` [轉載自GNews](https://gnews.org/zh-hant/420273/)
 
-內新聞：文文 校對：天藍色獨角色
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12110235/screenshot_2020-10-12-21-44-39-200_discord.png)
-中共為保經濟不惜淡化疫情，民眾放松警惕，導致了疫情的再度擡頭。青島新增9例核酸檢測陽性病例並在10月12日淩晨宣布青島市啟動全員檢測方案，3天內對市南、市北、李滄、嶗山、城陽五區檢測全覆蓋，5天內對全市檢測全覆蓋。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12110345/screenshot_2020-10-12-21-31-48-433_discord.jpg)
-偽中國國慶假期期間，青島接待了447萬全國遊客，特別是在10月2-3日青島舉辦了鳳凰音樂節，數以萬計的觀眾擁擠在音樂節現場，而戴口罩者寥寥。
+編撰：心聽見
+審核:MIYA
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12132053/thestandnews_121111841_398053131593381_8211580844828708983_n.jpg)圖片：立場新聞
+據【蘋果日報】10月12日訊，在林鄭宣布押後《施政報告》記者會問及林鄭，會否在此行中向深圳當局轉達12名港人家屬希望探望被捕人士、會否親自了解12名港人有否受到酷刑對待，以及目前身體狀況時，林鄭只說：“每個星期都是問這種問題。”
+     她又重彈舊調，強調12名港人是在棄保潛逃期間，在另一司法管轄區犯法，正接受內地的法律處理。
+     民主派會議召集人胡志偉批評，林鄭的說法反映港府無任何誠意為12名港人提供協助，亦沒有將12名港人放在眼內：”特區政府根本沒有將香港市民利益放在施政措施裡面，只追求滿足中央要求，作為考慮所有問題的基礎，忘記了香港政府應該為香港市民服務。”
 
-李宇春、李榮浩、吳亦凡、GAI周延等人登臺表演。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12110407/screenshot_2020-10-12-21-32-06-199_discord-1.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12110431/screenshot_2020-10-12-21-30-38-438_discord.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12110432/screenshot_2020-10-12-21-31-32-809_discord.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12110459/screenshot_2020-10-12-21-32-54-700_discord.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12110520/screenshot_2020-10-12-21-32-30-771_discord.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12110522/screenshot_2020-10-12-21-32-19-028_discord.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12110520/5ee77f71a31027ab6ada3d34.jpg)
+戰友點評：
+12名港人被誘捕強行送中以來，因不允許探視而音訊全無，只能求助於無能的傀儡港共政府官員，而林鄭政府無視被誘捕送中港人家屬提出的要求，一直以來更無動於衷，對這個問題視而不見不預解決，甚至被報出其領導下的政府機構，警察飛行服務隊跟蹤協助，配合中共海盜誘捕行動，林鄭對此案如投鼠忌器，不敢向公眾交代有沒有做過，其實心知肚明。還滿肚牢騷”說為什麼每個禮拜都是這個問題“，是因為林鄭你助紂為虐、不作為、罔顧市民的心聲，問題沒解決肯定要問，只是一味討好中共，將港人利益於而不顧。明顯當政治埋沒良知，受苦的就是廣大納稅人，然而公義自在人心，人在做天在看。
+
+以上觀點僅代表筆者本人
+新聞來源：蘋果日報
+
+[https://hk.appledaily.com/local/20201012/U24CN2VQPJFA5GCDBG6DGU6ZGQ/](https://hk.appledaily.com/local/20201012/U24CN2VQPJFA5GCDBG6DGU6ZGQ/)
+
 0

@@ -1,39 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【軍事快訊】CCP陰謀“洗腦”全世界——美國智庫研究表明CCP信息戰造假技術大幅提升
-`2020-10-12 12:53 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/420203/)
+## 南海美麗的珊瑚礁慘遭中共永久毀壞
+`2020-10-12 17:00 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/420306/)
 
-作者：美東香草山農場寫作組 人間世
+*新聞來源：Breitbart《布賴特巴特》；作者：GABRIELLE REYES；發佈時間： 2020年10月7日*
 
+*翻譯/簡評：Cathy r；校對：感恩；審核：InAHurry；Page：拱卒*
 
+[!\[\]()!\[\](https://spark.adobe.com/page/JyktTL7ukKbtw/images/8a20bcf9-2273-470e-81e3-f97ead777fcd.jpg?asset_id=9b4329bb-1297-4114-966a-1513f2cbf402&amp;img_etag=%22e38f8648fa7beaa6699ab022251d06f8%22&amp;size=2560)](https://spark.adobe.com/page/JyktTL7ukKbtw/images/8a20bcf9-2273-470e-81e3-f97ead777fcd.jpg?asset_id=9b4329bb-1297-4114-966a-1513f2cbf402&amp;img_etag=%22e38f8648fa7beaa6699ab022251d06f8%22&amp;size=1024)
 
-據《今日印度》網站報導（10月12日），美國權威智庫大西洋理事會（Atlantic Council）的一項新研究表明，中共可能會將人工智能製造的虛假信息內容，例如深度偽造視頻和深度語音錄像，投入到其在世界範圍內進行的心理戰和輿論戰當中。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12124059/121-%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91CCP%E9%98%B4%E8%B0%8B%E2%80%9C%E6%B4%97%E8%84%91%E2%80%9D%E5%85%A8%E4%B8%96%E7%95%8C%E2%80%94%E2%80%94%E7%BE%8E%E5%9B%BD%E6%99%BA%E5%BA%93%E7%A0%94%E7%A9%B6%E8%A1%A8%E6%98%8ECCP%E4%BF%A1%E6%81%AF%E6%88%98%E9%80%A0%E5%81%87%E6%8A%80%E6%9C%AF%E5%A4%A7%E5%B9%85%E6%8F%90%E5%8D%87.png) CCP信息戰機構圖（圖片來自Alicia Fawcett, DFRLab）
+**簡評：**
 
+中共國不斷在南海建立軍事島礁是以珊瑚礁為基礎在其上進行挖掘，而中共國逐利的挖蛤行業也是大規模的破壞珊瑚礁，因此到現在已有100平方英里的珊瑚礁被永遠的毀掉了。實際上2016年海牙國際仲裁法庭就已駁回中共國近90%的海域的領土主張，但中共國仍繼續非法推行它的軍事活動。由於沒有製裁機制，中共國一直為所欲為，國際社會規則不變革是不行了。
 
-隸屬於美國智庫大西洋理事會的數字取證實驗室（DFRLab）日前發布了一項最新研究。通過分析中共國的虛假宣傳活動和近期趨勢，該研究指出，在國內受眾群體中取得巨大成功的同時，中國共產黨（CCP）正努力將其信息傳達到國外。到目前為止，由於實施方面不盡如人意，中共國在西方社交媒體平台上發布虛假信息的操作一直效果有限。但現在，DFRLab的專家認為：“人工智能將被用於開展有效的大規模虛假宣傳活動並秘密運行真實的西方社交媒體帳戶”。
+## **海洋生物學家：中共國’永遠’抹去了南海的珊瑚礁**
 
-大西洋理事會的研究指出，北京在外交方面已經改變了“不干涉他國內政”的立場。中共現在希望行使“話語權”，即通過影響國內和其他國家的政治秩序和價值觀，在國際上設定議程，輸出其作為全球超級大國“和平”崛起的形象，從而獲取地緣政治權力。
+[!\[\]()!\[\](https://spark.adobe.com/page/JyktTL7ukKbtw/images/b2c49ddb-c5dd-4f50-b570-bab607610ffe.jpg?asset_id=ffa12ef0-b8a6-4154-b215-d163693bd018&amp;img_etag=%22da699bd4ab923ece662a349a1f587820%22&amp;size=2560)](https://spark.adobe.com/page/JyktTL7ukKbtw/images/b2c49ddb-c5dd-4f50-b570-bab607610ffe.jpg?asset_id=ffa12ef0-b8a6-4154-b215-d163693bd018&amp;img_etag=%22da699bd4ab923ece662a349a1f587820%22&amp;size=1024)
 
-該研究的作者艾麗西亞·福塞特（Alicia Fawcett）認為，中共一直在國內外利用信息空間來投射“中國故事”，即通過講故事在國內外媒體中展現其正面形象。中共慣於使用信息感知策略，例如刪除、抑制和淡化負面信息，將某些主題標籤遊戲​​化等手段來說服外國讀者相信，中共國是“負責任的世界領導者”和改革國際政治體系的主導力量。如今，互聯網驅動下的全球信息空間為北京提供了在全球傳播“中國故事”的有效途徑。
+**一位海洋生物學家和海洋專家週一對自由亞洲電台(RFA)說，由於中共國非法在南海珊瑚礁上建立軍事基地，一些珊瑚礁已“永久性地消失”。**
 
-大規模生產和復制虛假或誤導性信息是中共政府核心部門的主要工作之一，目的就在於欺騙。他們通常依靠心理偏見，在目標受眾中植入“偏執和認知盲點”。福塞特指出，“中國將虛假信息業務視為其政府實現外交政策目標的有效戰略，”人民解放軍（PLA），國務院和中共中央委員會都參與了在國內外平台上進行的有組織的情報行動。
+佛羅里達州邁阿密大學海洋生物學教授約翰·麥克馬納斯(JohnMcManus)對自由亞洲電台說“如果你在珊瑚礁上建造了東西，如果你把泥土、瓦礫和公路（堆積在珊瑚礁上）……珊瑚礁就從此再不可能恢復了”。
 
-深度偽造品是合成的多媒體，其中人的原始聲音或外貌被用來賦予他們未曾說過的話或未曾做過的舉動。人工智能驅動的偽造品使被操縱的媒體內容變得完美無缺，而且易於創建，可以成功欺騙觀眾，讓他們相信根本沒有發生過的事情。有關扎克伯格和奧巴馬的深度偽造視頻的流行，證明了相關技術的確可以被濫用。另一方面，深度語音媒體利用機器學習來克隆人的語音，該技術可用於在未經同意或未獲得相關信息的情況下以人的原始語音創建全新談話。由於在中國社交媒體和人工智能上使用深度偽造品和深度語音（deep voice）並非史無前例，因此這些工具在北京的網絡戰中佔有重要地位。
+該報告稱“絕大多數這樣的建築是由中共國建造的，中共國2014年至2017年間對永暑礁（FieryCrossReef）、渚碧礁（SubiReef）、美濟礁（MischiefReef）、伍迪島（ WoodyIsland）和其它一些小島無恥地進行了大量的挖掘，為現在安置軍隊的人工島嶼開路”。
 
-該研究還考察了中共國流行的應用程序如TikTok、百度等大型科技公司所做的工作。其中提到百度公司的Deep Voice項目，該項目可以在幾秒鐘內克隆任何語音。中共國可以使用這些工具來創建AI驅動的大量深偽造品，並把這些偽造品投入到信息戰當中。包括美國多個州在內的許多政府已經意識到威脅並頒布了法律，以防止濫用深度偽造品的行為。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12124159/121-%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91CCP%E9%98%B4%E8%B0%8B%E2%80%9C%E6%B4%97%E8%84%91%E2%80%9D%E5%85%A8%E4%B8%96%E7%95%8C%E2%80%94%E2%80%94%E7%BE%8E%E5%9B%BD%E6%99%BA%E5%BA%93%E7%A0%94%E7%A9%B6%E8%A1%A8%E6%98%8ECCP%E4%BF%A1%E6%81%AF%E6%88%98%E9%80%A0%E5%81%87%E6%8A%80%E6%9C%AF%E5%A4%A7%E5%B9%85%E6%8F%90%E5%8D%87-2.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12124407/121-%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91CCP%E9%98%B4%E8%B0%8B%E2%80%9C%E6%B4%97%E8%84%91%E2%80%9D%E5%85%A8%E4%B8%96%E7%95%8C%E2%80%94%E2%80%94%E7%BE%8E%E5%9B%BD%E6%99%BA%E5%BA%93%E7%A0%94%E7%A9%B6%E8%A1%A8%E6%98%8ECCP%E4%BF%A1%E6%81%AF%E6%88%98%E9%80%A0%E5%81%87%E6%8A%80%E6%9C%AF%E5%A4%A7%E5%B9%85%E6%8F%90%E5%8D%87-3.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/JyktTL7ukKbtw/images/075b7d92-82ac-4baf-960d-e23afdac5ada.jpg?asset_id=702d0941-034b-421f-bd71-310b0c8c354c&amp;img_etag=%22adabe26d3fb2d111c6f40d2d4cdd09c3%22&amp;size=2560)](https://spark.adobe.com/page/JyktTL7ukKbtw/images/075b7d92-82ac-4baf-960d-e23afdac5ada.jpg?asset_id=702d0941-034b-421f-bd71-310b0c8c354c&amp;img_etag=%22adabe26d3fb2d111c6f40d2d4cdd09c3%22&amp;size=1024)永暑礁（FieryCrossReef）
 
+[!\[\]()!\[\](https://spark.adobe.com/page/JyktTL7ukKbtw/images/0fc7b895-9f0b-46ab-8c9c-618ba39dc3f5.jpg?asset_id=ac351f4a-15b6-4c92-9592-b7a6ae9f939c&amp;img_etag=%22ea8678c3a33f4cc6ad48c90c65400b20%22&amp;size=2560)](https://spark.adobe.com/page/JyktTL7ukKbtw/images/0fc7b895-9f0b-46ab-8c9c-618ba39dc3f5.jpg?asset_id=ac351f4a-15b6-4c92-9592-b7a6ae9f939c&amp;img_etag=%22ea8678c3a33f4cc6ad48c90c65400b20%22&amp;size=1024)渚碧礁（SubiReef）
 
-《今日印度》報導最後指出，中共對大數據的興趣似乎正朝著分析、探測、確定和處理大眾公共情感的方向發展。負責中共心理戰的中國戰略支援部隊（SSF）311基地的一篇文章，曾強調對“語音信息合成技術”的需求。該技術旨在識別用戶情緒，然後進行潛意識的信息傳遞。
+[!\[\]()!\[\](https://spark.adobe.com/page/JyktTL7ukKbtw/images/827f841a-cfc9-4940-9fcb-173a408c5dc9.jpg?asset_id=6a5686eb-f021-4ea1-a10a-2213e55cd085&amp;img_etag=%22724d9c0d3c83745c98394d8af77e7b17%22&amp;size=2560)](https://spark.adobe.com/page/JyktTL7ukKbtw/images/827f841a-cfc9-4940-9fcb-173a408c5dc9.jpg?asset_id=6a5686eb-f021-4ea1-a10a-2213e55cd085&amp;img_etag=%22724d9c0d3c83745c98394d8af77e7b17%22&amp;size=1024)美濟礁（MischiefReef）
 
-由此不難發現，CCP野心“洗腦”全世界，而且其技術能力已經非常接近於實現這一目標。只有全世界認識到CCP的邪惡本質，聯合起來阻止其挑戰人類底線的無恥行徑，才能使世界避免被CCP洗腦的命運。
+[!\[\]()!\[\](https://spark.adobe.com/page/JyktTL7ukKbtw/images/4938aabb-bc36-4644-a3f5-acb60ce2589e.jpg?asset_id=02c35ddd-565e-434f-a70e-816b0736bb07&amp;img_etag=%223d3e48a338618c16cd6d7cda6b0dc9d2%22&amp;size=2560)](https://spark.adobe.com/page/JyktTL7ukKbtw/images/4938aabb-bc36-4644-a3f5-acb60ce2589e.jpg?asset_id=02c35ddd-565e-434f-a70e-816b0736bb07&amp;img_etag=%223d3e48a338618c16cd6d7cda6b0dc9d2%22&amp;size=1024)伍迪島（WoodyIsland）
 
+永暑礁、渚碧礁和美濟礁屬於有爭議的南沙群島。這三個珊瑚礁的主權首要是由菲律賓聲稱擁有，但同時，中共國也聲稱擁有其主權。同樣的爭議也發生在伍迪島所屬的帕拉塞爾群島的主權問題上（ParacelIslands），此島主要由越南聲稱擁有，但中共國也爭奪該島嶼的控制權。
 
+自由亞洲電台指出，北京聲稱已在2017年停止在有爭議的海域進行大規模改造，但最近的“衛星圖像顯示，中共國仍在南海的部分區域繼續施工”。
 
-更多資訊，歡迎訂閱[美東香草山農場官方推特賬號](https://twitter.com/Mos_Himalaya)！
+該報告稱，“中共國在帕拉塞爾群島的主要軍事基地伍迪島西北部的一個新的珊瑚礁區域拆除和挖掘，為一個未知的結構開路。自4月初以來，在該區域上定期發現建築設備。”
 
-[Tweets by Mos\_Himalaya](https://twitter.com/Mos_Himalaya?ref_src=twsrc%5Etfw)
+對南海的另一個主要威脅是北京在此海域大規模捕撈巨大的蛤蜊的行為。根據亞洲海事透明度倡議(AMTI)，中共國使用的是一種生態破壞的方法來收穫瀕危蛤蜊。
+
+“這些偷獵者使用的典型方法是錨定他們的船，然後拖動他們的舷外馬達的加固道具穿過珊瑚礁表面，將珊瑚打破，以便很容易被拉出蛤蜊。”亞洲海事透明度倡議2019年5月報導。
+
+該組織透露：“自2018年末以來，衛星圖像顯示，這些船隊經常在黃岩島（ScarboroughShoal） （主要由菲律賓聲稱擁有)和整個帕拉塞爾群島包括浪花礁（Bombay Reef ）活動。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/JyktTL7ukKbtw/images/c3fb12f7-56b7-4887-b379-4ec32fa327c7.jpg?asset_id=b5d4ecd0-d0fc-4dbd-86f8-cc224eeb729a&amp;img_etag=%224e87d2d0cc7dcc14144d02139e025d41%22&amp;size=2560)](https://spark.adobe.com/page/JyktTL7ukKbtw/images/c3fb12f7-56b7-4887-b379-4ec32fa327c7.jpg?asset_id=b5d4ecd0-d0fc-4dbd-86f8-cc224eeb729a&amp;img_etag=%224e87d2d0cc7dcc14144d02139e025d41%22&amp;size=1024)黃岩島（ScarboroughShoal）
+[!\[\]()!\[\](https://spark.adobe.com/page/JyktTL7ukKbtw/images/ebc04d17-a951-46cd-96ef-1390759d8c6f.jpg?asset_id=49b8bca8-d5a9-4685-971f-8c02c6bbaa90&amp;img_etag=%221a8e265252efed7d5cabf5e0101bdbdf%22&amp;size=2560)](https://spark.adobe.com/page/JyktTL7ukKbtw/images/ebc04d17-a951-46cd-96ef-1390759d8c6f.jpg?asset_id=49b8bca8-d5a9-4685-971f-8c02c6bbaa90&amp;img_etag=%221a8e265252efed7d5cabf5e0101bdbdf%22&amp;size=1024)浪花礁（Bombay Reef ）
+麥克馬納斯週一對自由亞洲電台說，中共國漁民“僅用兩隻巨大的蛤蜊就能掙1000美元左右，這些蛤蜊是在一層類似水泥的珊瑚層中發現的”。
+
+他補充說，“幾乎所有在南海的捕魚船隊都來自中共國南部城鎮潭門（Tanmen）的捕魚船隊，在潭門，蛤蜊殼貿易是當地經濟的關鍵。”
+
+麥克馬納斯估計，南海“100平方英里的珊瑚礁已經被（中共國的）基建和蛤蜊捕獵所破壞”。
+
+麥克馬納斯是一位專注的研究人員，20世紀90年代以來一直在研究海洋的生物多樣性。他向海牙2016年仲裁法庭提交了專家證詞，該法庭裁決了菲律賓就中共國侵占南海一案提起的訴訟。
+
+除了裁定北京對近90%的海域的領土主張沒有法律依據外，獨立法庭還根據麥克馬納斯的證詞認定，“中共國違反了國際法規定的保護海洋環境的義務”。亞洲海事透明度倡議稱，這位海洋生物學家提交了證據，記錄了“截至2016年，由於中共國蛤蜊的開採，對淺礁表面造成了25,000多英畝的破壞(相比之下，大約15,000英畝因挖掘和填埋活動而受損，以建造中共國的人工島嶼）。
+
+北京拒絕了2016年國際法院的裁決，並從那時起繼續推進其在南海的非法主權主張。
+
+在上個月的聯合國大會上，菲律賓和越南呼籲中共國遏制其在南海的非法活動，並敦促各國在爭議很大的海域遵守國際法。兩國領導人都援引《聯合國海洋法公約》(UNCLOS)，該公約根據國際法規定了海上行為準則。菲律賓總統羅德里戈·杜特爾特（RodrigoDuterte）在講話中特別提到了根據《海洋法公約》設立的2016年國際法庭及其裁決，該裁決駁回了北京對大部分海域的主張，認為其為非法。
+
+[原文鏈接](https://www.breitbart.com/asia/2020/10/07/marine-biologist-china-forever-erased-coral-reefs-in-south-china-sea/)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/JyktTL7ukKbtw/)
 
 0

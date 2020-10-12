@@ -1,18 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班大爺訪問：新西蘭政黨AdvanceNZ：領導人（Jami-Lee Ross）&#8211;指定CCP為與恐怖主義有聯繫的組織
-`2020-10-12 11:18 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/420041/)
+## 人們普遍存在的四大誤解（三）
+`2020-10-12 11:54 加拿大喜庄园🇨🇦` [轉載自GNews](https://gnews.org/zh-hant/418437/)
 
-編輯：玫瑰天空
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11175847/WENGUI_7.png)圖片來源：網絡
+我們中國人要找到一個方法，要搞清楚我們自己目前有什麼問題？我們華人目前有兩個極端，第一個就是中共邪教，就是信共產黨的那一大批，他們是以馬列為祖宗。第二個極端就是崇洋媚外的，海外有不少人崇洋媚外的，具體表現在他們辱罵祖先，侮辱中國人，以自己身為華人為恥，這一點我真的是很難接受，他們是以歐美為祖宗。歐美是有很多很多的優點，非常值得我們學習，但是我們是一個華人，我們不能辱罵祖先，不能不孝父母，不能侮辱中國人，不能以自己身為一個華人為恥辱，這是另一個極端。
 
-> 明知中共在新西兰议会安插间谍，新西兰议会却睁一只眼闭一只眼🤬 [pic.twitter.com/g3125jsFqu](https://t.co/g3125jsFqu)
-> — 喜马拉雅农场新西兰站 Himalaya New Zealand (@HimalayaNZF) [October 12, 2020](https://twitter.com/HimalayaNZF/status/1315682137803165697?ref_src=twsrc%5Etfw)
+研究中國傳統文化具有非常重要的現實意義，因為這是一種智慧。這種智慧是有考古依據的，但是現在沒有發布。這是天機，天機不可洩露，伏羲現在不能發布，因為是共產黨當政，不能讓他們來污染和破壞了。但是到了新中國建立的時候，伏羲一定會出來了，我們中華民族的根一定要找到。找到中華民族的根我們才能連接祖先這個血脈，傳承祖先的智慧。
 
-> 为什么新西兰议员Jami-Lee Ross 选择支持新中国联邦 [pic.twitter.com/JG0T1TCgRy](https://t.co/JG0T1TCgRy)
-> — 喜马拉雅农场新西兰站 Himalaya New Zealand (@HimalayaNZF) [October 12, 2020](https://twitter.com/HimalayaNZF/status/1315682907055218689?ref_src=twsrc%5Etfw)
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12104311/%E6%88%AA%E5%B1%8F2020-10-13-03.41.45.png)
-> [#BillyTK](https://twitter.com/hashtag/BillyTK?src=hash&amp;ref_src=twsrc%5Etfw) speaks at the 2020 Protest & Rally yesterday at Aotea Square [#AdvanceNZ](https://twitter.com/hashtag/AdvanceNZ?src=hash&amp;ref_src=twsrc%5Etfw) [#nzpol](https://twitter.com/hashtag/nzpol?src=hash&amp;ref_src=twsrc%5Etfw) [#NZElection2020](https://twitter.com/hashtag/NZElection2020?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/ypheiZ5cSb](https://t.co/ypheiZ5cSb)
-> — Advance NZ / NZPP (@NZPP\_Official) [October 10, 2020](https://twitter.com/NZPP_Official/status/1315054090112565249?ref_src=twsrc%5Etfw)
+這個絕對是普世價值，大家看文貴先生，他有現實意義吧！文貴先生講的就是這些，他是很懂的，他是真正的大家。他懂奇門遁甲，奇門遁甲就是脫胎自河圖洛書，那就是上古絕學。所以他知道風水要怎麼布，風水絕對是有用的，盤古大觀就是這樣完成的。文貴先生的內在就是這些中華傳統智慧，他結合現代西方的外在的技術，內外兼修，他的這種境界比西方人高的不是一點半點了。
+
+我們作為中華兒女，如果找到我們祖先傳給我們的無盡的寶藏，包括對科學技術，都會有巨大的提升。我們為什麼到後來中華民族的這些發明基本都沒有了，因為易經被篡改了，整個的數學模型被破壞了。如果有這個數學模型在的話，那就厲害了。計算機科學它是二進制，這二進制只是整個《易經》裡面的一小部分，就是陰陽。易經裡面有更多更深奧的智慧，沒有被發掘出來，當今的這個時代正是西方現代文明和東方傳統文化互相融合的一個時代。
+
+我們千萬不要妄自菲薄，人間的智慧基本上就分三種，叫天道、地道和人道。天道就是真正的大智慧，宇宙運行的規律，包括河圖洛書都是天道智慧。地道是啥呢？大地是不是變成物質？物質就是現代科技，都是變成東西，變成物質，變成科技，這個是地道。人道就是作為一個人，怎麼樣能活得幸福，怎麼樣發掘內心的潛能，怎麼樣修身，怎麼樣齊家，怎麼樣讓你家庭和睦，怎麼治企，治理企業成功，然後利天下，還能夠給天下人帶來利益，這都是中華文化里面最好的，最優勢的。中華文化擅長的是智慧，是天道的智慧和人道的智慧，西方文明最擅長的是科技，是地道的智慧。所以東西方互相學習，必將帶來人類的真正福祉。
+
+作者：比卡丘，銘鵬
+
+原創觀點文章– 2020/10/12
+
+加拿大喜莊園
 
 0

@@ -1,27 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【軍事快訊】蓬佩奧稱“印度在北部邊境看到了6萬名中國士兵”
-`2020-10-12 10:15 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/419813/)
+## 【世界多語言圖文】2020/10/06 CCP病毒每日疫情直播簡報
+`2020-10-12 10:30 GM62` [轉載自GNews](https://gnews.org/zh-hant/419240/)
 
-作者：直截了當
+戰友之家圖文摘要及小語種組
 
+[255\_English\_1006\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073232/255_English_1006_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073232/255_English_1006_CCP_Virus_Updates.pdf)
 
+[255\_French\_1006\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073237/255_French_1006_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073237/255_French_1006_CCP_Virus_Updates.pdf)
 
-10月9日，蓬佩奧國務卿在The Guy Benson Show接受采訪時強調中共在武漢病毒問題上的撒謊以及中共對世界安全的威脅。在談到中共對世界的挑戰時，蓬佩奧稱“印度人在北部邊境看到了6萬名中國士兵”。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12095528/120-20201012-%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91%E8%93%AC%E4%BD%A9%E5%A5%A5%E7%A7%B0%E2%80%9C%E5%8D%B0%E5%BA%A6%E5%9C%A8%E5%8C%97%E9%83%A8%E8%BE%B9%E5%A2%83%E7%9C%8B%E5%88%B0%E4%BA%866%E4%B8%87%E5%90%8D%E4%B8%AD%E5%9B%BD%E5%A3%AB%E5%85%B5%E2%80%9D.png)
+[255\_German\_1006\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073247/255_German_1006_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073247/255_German_1006_CCP_Virus_Updates.pdf)
 
+[255\_Korean\_1006\_CCP\_Virus\_Updates\_255](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12105742/Korean_1006_CCP_Virus_Updates_255.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12105742/Korean_1006_CCP_Virus_Updates_255.pdf)
 
-自2020年5月以來，中印兩國在邊境實際控制線附近出現多次沖突、對峙。這次中共國部署6萬人的兵力來對印度施壓，說明中共已經意識到了全球聯合滅共的決心。
-
-自從中共病毒在2020年造成全球大流行，世界各國感染中共病毒的人數劇增。隨著閆博士與爆料革命對病毒真相的揭露與傳播，以美國為主導的正義力量要聯合起來共同抵禦中共的經濟侵略、軍事擴張以及生化武器超限戰。 10月6日，美日印澳四國在東京舉行“四國聯盟”外長會議，蓬佩奧呼籲四國應該要加強合作對付中共的蠻橫。
-
-尤其是印度最近表現出對中共極為強硬的一面。印度政府不僅在中印邊境衝突中保持強硬態度，6月底還以國家安全為由，宣布禁用包括抖音、微信等59項中國應用軟件。印度國內已經有超過700萬人感染中共病毒，每天約8萬至10萬例新增病例。閆博士近日在印度多次接受主流媒體採訪揭露中共病毒真相，導致印度國內對中共病毒的溯源與追責的呼聲也越來越高漲。我們相信會有越來越多國家加入到對抗中共的隊伍裡來，中共非法政權的日子不多了。
-
-
-
-更多資訊，歡迎訂閱[美東香草山農場官方推特賬號](https://twitter.com/Mos_Himalaya)！
-
-[Tweets by Mos\_Himalaya](https://twitter.com/Mos_Himalaya?ref_src=twsrc%5Etfw)
+[255\_Spanish\_1006\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073242/255_Spanish_1006_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073242/255_Spanish_1006_CCP_Virus_Updates.pdf)
 
 0
