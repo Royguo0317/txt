@@ -1,46 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 唐納德·J·川普總統10月10日健康狀況更新
-`2020-10-11 15:45 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/418352/)
+## 影響2020年美國大選的六種變數
+`2020-10-11 21:14 澳洲雅典娜农场` [轉載自GNews](https://gnews.org/zh-hant/418568/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11153909/WH_20201010-Trump_Health-photo.png)
-THE WHITE HOUSE
+**作者：翼族編輯/審核：Giselle**
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/11203201/Screen-Shot-2020-10-12-at-10.31.43-am.png)
+美國作為當今世界唯一的超級大國，每四年一次的總統大選都萬眾矚目，全球各種勢力暗中交錯，最後花落誰家也是幾家歡喜幾家愁。 2020年又是美國大選年，由於中共對全球發起的生化武器戰，COVID-19病毒對全球經濟以及每個國家的各個層面造成的巨大衝擊，今天的世界處在一個非常不穩定的節點，也正因為此，今年的美國總統選舉將為未來幾十年甚至數個世紀的世界格局帶來極為深遠的影響。
 
-October 10, 2020
+距離大選還有三週的時間，由於兩黨都已經把對方逼向死角，平時不出的招數這次都會無所顧忌地使用。而且，最後的衝刺階段中共的暗黑力量必將使出各種陰招，從而導致本次美國總統大選走向戲劇性的結尾。現在中共已經是魚死網破，在美國大選最後的結果沒有出來之前，最後大選將以何種方式戲劇性地結束會有多種可能。根據路德社的爆料和分析，結合推特上看到的一些戰友的推測，談談我一些不成熟的看法：
 
-白宮總統醫生
+變數一：最大的一種可能就是由於三個硬盤的巨大殺傷力，川普總統通過媒體將亨特拜登的醜聞公佈於世，民主黨迫於巨大的輿論壓力不得不和拜登進行切割，拜登由於牽涉到貪腐被起訴，或者通過妥協宣布因某種原因退出大選，川普總統連任。這種參選人退選的情況在美國的歷史還從來沒有出現過，所以屆時將一片嘩然，相當具有戲劇性。
 
-2020年10月10日
+變數二：由於中共對華爾街和矽谷的深度控制，對美國媒體的全面滲透，對美國行政機關、國會山甚至司法機構的藍金黃，加上各種Deep State深喉的力量，三個硬盤中涉及拜登家族的醜聞也許會被無良媒體誤導引向政治鬥爭而起不到川普陣營預期的作用。最後階段中共再製造醜聞、股災、假選票、騷亂，甚至對川普及彭斯個人採取暗殺手段。由於美國對中共多年的綏靖政策已經餵大了中共這個紅色惡魔，所以中共攪局的能力絕對不可忽視。在無論哪一種手段，都會讓本次大選一波三折，給最後大選的結果增加各種變數。
 
-MEMORANDUM FOR: KAYLEIGH MCENANY ASSISTANT TO THE PRESIDENT AND WHITE HOUSE PRESS SECRETARY
+變數三，我們看到福奇近日在CNN接受采訪時暗示川普總統的健康會有可能逆轉，以及川普總統染病期間佩羅西提出美國憲法第25修正案，以身體健康為由發起對川普總統新的罷免。一旦川普總統在大選前無法保證健康，或者其醫生團隊出現反水，或者再次染上病毒，都會給大選增添很多變數。另外拜登的身體狀況，在近期一些公開活動中的表現，也令人擔憂。畢竟兩位參選人都70多歲，川普74歲，而拜登已經77歲，無論是誰的身體健康問題而引起選民擔憂，從而影響大選的結果，都有很大的可能性。
 
-致總統助理兼白宮新聞秘書Kayleigh Mcenany的備忘錄
+變數四：由於美國選舉人制度和選票統計的複雜性，今年疫情造成的郵寄選票問題，以及之前提到的假選票問題，最後參選雙方很可能會因選票統計的爭議而走向法律戰。殷鑑不遠，20年前的美國總統選舉就是很好的例子。 2000年，兩個總統參選人喬治·W ·布什和阿爾·戈爾之間的選戰，就非常具有戲劇性。當時民主黨參選人戈爾時任美國副總統，而布甚則是德克薩斯州州長，最終雙方的選舉結果在經過長達36天的爭議後才最終定案，而爭議是在經過多次反复點算普選票並最後經過一系列的司法判決後才結束。 2020年的本次總統選舉最後是否也會走到司法程序呢？漫長的司法程序中又會有哪些戲劇性的變數呢？也許我們要等到2021年才會知道結果。
 
-FROM: SEAN P. CONLEY, DO, FACEP PHYSICIAN TO THE PRESIDENT COMMANDER, U.S. NANY
+變數五：我注意到最近的副總統辯論中最後一個議題是“如果川普輸了並且拒絕選舉結果會發生什麼？”雖然美國的三權分立制度很完善，但也並不是完全沒有可能，否則就不會有這個議題了。而且換成另外一種情況也會有這個可能，“如果川普贏了，拜登不接受選舉結果會發生什麼？”由於本次美國總統參選雙方都到了你死我活的境地，無論哪個陣營也不甘認輸，無論是哪種情況，相信最後參選雙方走到法律程序的可能性都非常大。只是希望最後無論是誰，都會像當年的戈爾面對法院的裁決所說的那樣，“為了我們人民的團結和民主的力量，我做出讓步”。否則美國總統大選的這場大戲，必將帶來美國選舉以來史無前例的滑稽場面。
 
-來自：骨科醫學博士、美國急診醫師學會院士、美國海軍總統醫生指揮官Sean P. Conley
+變數六：正如路德先生所說，中共為了影響美國大選還有很多招未出。以中共的邪惡，很多超出人類底線的陰招我們也根本無法預料，比如是否會製造人道災難來博取世界同情並打擊川普總統？等等。所以上述的各種可能性並不能攬括所有。
 
-SUBJECT: Saturday Health Update on President Donald J. Trump
+人類文明走到今天，絕大部分國家都已經選擇了民主體制。而民主政治體制的文明之處，在於通過民主選舉的方式來保護失敗者不至於家破人亡、人頭落地。但是我們看到美國的選舉，受到的干擾以及暴露出來的問題已經越來越多，以至於不得不讓人重新審視美國兩黨選舉制度中的利與弊。希望新中國聯邦能夠從中吸取教訓，將來設計出更科學的民主選舉制度，從而造福於中華。
 
-主題：唐納德·J·川普總統週六健康狀況更新
-
-I release the following information with the permission of President Donald J. Trump.
-
-經唐納德·J·川普總統的許可，我發佈如下消息：
-
-This evening I am happy to report that in addition to the President meeting CDC criteria for the safe discontinuation of isolation, this morning’s COVID PCR sample demonstrates, by currently recognized standards, he is no longer considered a transmission risk to others. Now at day 10 from symptom onset, fever-free for well over 24 hours and all symptoms improved, the assortment of advanced diagnostic tests obtained reveal there is no longer evidence of actively replicating virus. In addition, sequential testing throughout his illness has demonstrated decreasing viral loads that correlate with increasing cycle threshold times, as well as decreasing and now undetectable subgenomic mRNA.
-
-今天晚上我很高興地報告，總統除了符合疾病預防與控制中心（CDC）關於安全終止隔離的標準以外，今天早晨的COVID PCR樣本還顯示，根據目前認可的標準他已經不再有對其他人傳播的風險。從出現症狀到現在已是第10天，（他）超過24小時不發燒，所有症狀已改善，各種先進的診斷測試表明（他身體內）已經沒有主動自我複製病毒的跡象。此外，在他整個疾病期間進行的系列測試表明，減少病毒載量與增加週期臨界值次數以及減少現在不可檢測的亞基因組mRNA相關。
-
-Moving forward, I will continue to monitor him clinically as he returns to an active schedule.
-
-接下來，我會在他恢復活動時間表後繼續對他進行臨床監測。
-
-白宮原文鏈接：[https://www.whitehouse.gov/wp-content/uploads/2020/10/MemoFromThePresdentsPhysician-101020.png](https://www.whitehouse.gov/wp-content/uploads/2020/10/MemoFromThePresdentsPhysician-101020.png)
-
-翻譯：【Cyndi】編輯：【Isaiah4031】
-
-戰友之家玫瑰園小隊出品
+（文章內容僅代表作者個人觀點）
 
 0
