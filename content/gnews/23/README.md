@@ -1,22 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 10/12 財經快訊: 渣打向中共跪求證券拍照, 中共黨企加視在華爾街上市
-`2020-10-12 10:38 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/419891/)
+## 路德爆料：本周將有大事發生，足夠路德帶兩次紅領帶
+`2020-10-12 12:02 GM06` [轉載自GNews](https://gnews.org/zh-hant/420125/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12094550/1012FN.jpg)圖片來源： [https://www.fox4now.com](https://www.fox4now.com/news/local-news/new-emergency-alert-system-in-place-in-punta-gorda)
-[1.渣打銀行正向中共尋求中國證券牌照](https://www.reuters.com/article/us-stanchart-china-idUKKBN26X0G9?taid=5f83ed5e105ed700015f309e&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+文章撰寫：【重生】
 
-[2.範一飛，人民銀行副行長近日表示中美關係惡化給中共金融網絡帶來巨大風險。](https://mobile.reuters.com/article/amp/idUSKBN26X04E?__twitter_impression=true)
+《路德時評》2020年10月12日早間節目播報：郭文貴先生進入深山後再次發蓋特，照片非常清楚地展示了文貴先生本人、朱利安尼以及班農先生的親密關系，除此之外還有壹位當年支持川普總統的學生代表。郭文貴先生再次用重磅照片踢爛西諾等偽類的屁股，戳穿他們的造謠。路德爆料郭文貴先生參加的本次重要會議還有比朱利安尼與川普總統更親近的人士參與，郭文貴先生背後的實力遠比我們想象地強大。
 
-[3.歐盟加入英美對科技巨頭宣戰。](https://www.marketwatch.com/story/eu-hit-list-would-reportedly-impose-tougher-rules-on-big-tech-companies-11602456911?redirect=amp#click=https://t.co/7h2LPNmYGD)
+近兩年，中共讓滕彪，傅希秋，龔小夏等利用各種關系給國會寫信造謠文貴先生，他們壹直在發動地面戰爭，時間長達兩年多，中共利用海外民運力量打擊郭文貴先生，同時中共也給這些偽民運分子指標允許他們從墻內“救出”某些人員通過獲得美國政治庇護賺取錢財，由此，我們可以看出懲賊運動是多麽關鍵。
 
-[4.中共企業正加速在華爾街上市](https://www.ft.com/content/1acd60ed-f549-430e-822c-8155baf125a8)
+重磅爆料：18樓周日會議後接下來將有哪些行動？美國周二據說有重大行動，路德先生可以帶上兩次紅領帶。班農先生在Warroom發出怒吼後定會有實質性行動，美國只要在幾方面有行動，中共就徹底結束。
 
-[5.銀保監會官網10月10日發布《關於優化保險機構投資管理能力監管有關事項的通知》。 《通知》印發後，銀保監會將通過壓實機構責任、加強監管檢查、發揮監督合力等方式著力加強事中事後監管。中共統治下，保險公司是否會破產呢？保險金能夠兌現嗎？](http://news.esnai.com/2020/1010/209322.shtml)
+      例如：RICO法案？
+              美元與人民幣脫鉤？
+              川普總統說出CCP病毒（朱利安尼已多次提及CCP Virus）？。。。。。。
 
-[6.中共試圖用高級會計師資格收買註冊會計師](http://news.esnai.com/2020/1010/209334.shtml)
+從七哥、班農先生以及朱利安尼先生如此激動高興的合影就可以看到本周即將發生的事件非同小可，各位爆料革命戰友敬請期待！
 
-By：【秘翻組·金融法律組】
+
+
+視頻來源：https://www.youtube.com/watch?v=XqH9SPXmWdA
 
 0

@@ -1,19 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/10/06 CCP病毒每日疫情直播簡報
-`2020-10-12 10:30 GM62` [轉載自GNews](https://gnews.org/zh-hant/419240/)
+## 中共病毒 | 中共醫保局明確，接種新冠疫苗不納入醫保報銷
+`2020-10-12 11:43 公民之聲` [轉載自GNews](https://gnews.org/zh-hant/420075/)
 
-戰友之家圖文摘要及小語種組
+內新聞：sam jeep 素材：新聞收集組 校對：七哩香
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12105600/image0-24.jpg)
+北京晚報官方2020年10月12日發布壹條新聞：國家醫保局明確，接種新冠疫苗不納入醫保報銷。
 
-[255\_English\_1006\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073232/255_English_1006_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073232/255_English_1006_CCP_Virus_Updates.pdf)
+文章指出，針對有人大代表提出“將接種新冠肺炎疫苗納入醫保全額報銷”的建議，醫保局日前作出答復：有關規定明確“預防性疫苗不納入醫保支付範圍”；另外，此次疫苗接種人數眾多，所需費用總額高，明顯超出醫保基金承受能力。
 
-[255\_French\_1006\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073237/255_French_1006_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073237/255_French_1006_CCP_Virus_Updates.pdf)
+簡評：號稱世界第二大經濟體的中共國，無錢給十四億老百姓最基本的生命保障，卻向其它各個國家大撒幣，BGY各國政客，大肆揮霍國庫中老百姓的血汗錢，貪腐橫行。對中共造成的疫情，從核酸檢測到疫苗，全由老百姓自己承擔，更何況中共為達政治目的急急出籠的疫苗，並不可靠。這明顯是視百姓性命如草芥，中共簡直喪心病狂，毫無人性。中共不滅，天道不容。
 
-[255\_German\_1006\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073247/255_German_1006_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073247/255_German_1006_CCP_Virus_Updates.pdf)
-
-[255\_Korean\_1006\_CCP\_Virus\_Updates\_255](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12105742/Korean_1006_CCP_Virus_Updates_255.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12105742/Korean_1006_CCP_Virus_Updates_255.pdf)
-
-[255\_Spanish\_1006\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073242/255_Spanish_1006_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12073242/255_Spanish_1006_CCP_Virus_Updates.pdf)
+[新聞來源：國家醫保局明確 接種新冠疫苗不納入醫保報銷](https://www.takefoto.cn/viewnews-2310187.html)
 
 0
