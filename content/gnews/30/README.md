@@ -1,19 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】川普总统此次感染中共病毒后的恢复之快令人振奋
-`2020-10-12 23:30 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/420546/)
+## 【世界多語言圖文】2020/10/07 CCP病毒每日疫情直播簡報
+`2020-10-13 07:14 GM62` [轉載自GNews](https://gnews.org/zh-hant/421052/)
 
-作者：香草山写作组 村北
+戰友之家圖文摘要及小語種組
 
-审核：浪迹天涯
+[256\_English\_1007\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064908/256_English_1007_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064908/256_English_1007_CCP_Virus_Updates.pdf)
 
-摘要：川普总统感染中共病毒12天后，Sean Conley医生宣布总统体内所有病毒检测方法的检测结果均多日呈阴性，恢复速度之快反映出科技力量的先进程度
+[256\_French\_1007\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064843/256_French_1007_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064843/256_French_1007_CCP_Virus_Updates.pdf)
 
-白宫的川普总统私人医生Sean Conley在今天下午写给总统助理Kayleigh McEnany健康状况报告中，首次报告川普总统中共病毒抗原已连续多日检测为阴性。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12232612/WhatsApp-Image-2020-10-13-at-10.11.02.jpeg)
-这是川普总统自出院后的首次公布抗原检测结果。Conley医生并解释该检测结果同前日公布的川普总统体内的中共病毒mRNA核酸检测持续阴性，表明川普总统体内已无可传染的中共病毒。川普总统总统已经完全肯定地不具有传染性，可以全力履行总统的工作职责。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12232640/WhatsApp-Image-2020-10-13-at-10.11.17.jpeg)
-川普总统此次被中共病毒感染，初期病毒量虽然令人吃惊得高，但依靠世界领先医疗科技的治疗，根据病情精确地使用了曾被中共宣布无效的药物Remdesivir，以及爆料革命战友参与研发的双抗体鸡尾酒疗法。 合并其它日常治疗措施多管齐下，第一时间将中共病毒造成的伤害以及身体症状完全压制，并使川普总统几乎没有中断过工作，仅仅三天后即离开医院回到了白宫。随后，川普总统身体各项指标亦持续好转。至今已完全将中共病毒清除，充分展示出美国医药科技行业的先进程度。
+[256\_German\_1007\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064858/256_German_1007_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064858/256_German_1007_CCP_Virus_Updates.pdf)
+
+[256\_Korean\_1007\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064850/256_Korean_1007_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064850/256_Korean_1007_CCP_Virus_Updates.pdf)
+
+[256\_Spanish\_1007\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064903/256_Spanish_1007_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064903/256_Spanish_1007_CCP_Virus_Updates.pdf)
 
 0

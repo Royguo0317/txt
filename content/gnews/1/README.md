@@ -1,19 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/10/07 CCP病毒每日疫情直播簡報
-`2020-10-13 07:14 GM62` [轉載自GNews](https://gnews.org/zh-hant/421052/)
+## 富士康未實現對川普總統的承諾
+`2020-10-13 10:15 GM77` [轉載自GNews](https://gnews.org/zh-hant/421555/)
 
-戰友之家圖文摘要及小語種組
+編撰：出埃及、文佑(荊棘不鳥)、文非
 
-[256\_English\_1007\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064908/256_English_1007_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064908/256_English_1007_CCP_Virus_Updates.pdf)
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13100723/10.13-5.png)
 
-[256\_French\_1007\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064843/256_French_1007_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064843/256_French_1007_CCP_Virus_Updates.pdf)
+**富士康科技集團在美國的投資沒有達到2017年做出的承諾，當時美國總統唐納德-川普（Donald Trump）稱贊該公司的建廠承諾是美國制造業復興的標誌。**
 
-[256\_German\_1007\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064858/256_German_1007_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064858/256_German_1007_CCP_Virus_Updates.pdf)
+政客們曾表示，這筆交易最終可以創造1.3萬個新的就業機會。
 
-[256\_Korean\_1007\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064850/256_Korean_1007_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064850/256_Korean_1007_CCP_Virus_Updates.pdf)
+但威斯康星州官員表示，到目前為止，它帶來的就業崗位不到300個–遠低於最初的目標。富士康已經表示，它正在改變對該工廠的計劃。
 
-[256\_Spanish\_1007\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064903/256_Spanish_1007_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064903/256_Spanish_1007_CCP_Virus_Updates.pdf)
+到目前位置提供的工作崗位數量在威斯康星州官員的一封拒絕富士康稅收優惠的信中體現出來，該州將稅收優惠作為2017年交易的一部分授予該公司，該公司是蘋果公司的主要供應商。
+
+這個優惠措施的條件是該公司需要達到一定的投資並創造就業機會，當時在美國選舉中的重要州威斯康星引起了重大爭議。
+
+州政府官員扣留稅收優惠的舉動發生幾周後，美國選民將前往投票站決定川普先生是否值得連任總統
+
+川普先生在2016年的競選口號是”讓美國再次偉大”，他一直試圖將他的任期呈現為美國經濟的福音。
+
+但即使在疫情引發的經濟崩潰之前，制造業的就業情況也一直保持相對平穩。
+
+威斯康星州的民主黨人抓住這些數字，將其作為交易出錯的進一步證明，並指出該州已花費10億美元支持該項目。
+
+“富士康事件蓋棺定論起來就是失信行為之一，它缺乏透明度，創造就業機會的徹底失敗，”威斯康星州民主黨領袖、該項目批評者戈登-欣茨說。”共和黨政客應該承擔責任。”
+
+編譯觀點：富士康在威斯康星州的項目，從頭至尾就是一項政治投資，甚至可以稱之為”政治陷阱”。它響應川普總統制造業回歸的號召，開始就披上了偽善的外衣，明知自己無法實現承諾，卻把這個承諾做成”誘餌”拋給尋求政績的政客，一邊影響著美國產業鏈，一邊影響美國政治。當然，比富士康更加”偽善”的，還有阿裏巴巴的馬雲，聲稱要為美國創造100萬個就業崗位，殊不知，”善欲人見，不是真善；惡恐人知，便是大惡。”
+
+編者觀點：
+
+富士康老板郭臺銘，在玩了一場“媽祖夢”加入政壇，敗選後便一蹶不振。郭文貴先生多次說過，其就是中共的棋子，絕對的賣臺賊和親共派。
+
+不是一家人不進一家門，中共的欺騙美國的手段郭臺銘學到了精髓。馬雲曾經就忽悠過川普總統說給美國帶來100萬工作崗位，最後不了了之。這一次富士康又玩老把戲，戲耍美國。
+
+美國在與中共的超限戰中次次吃虧，川普總統也深受其害，富士康這種欺騙手段讓總統在選民心中的地位再次下跌，可見富士康的險惡用心。
+
+原文鏈接：
+[https://www.bbc.com/news/business-54518246](https://www.bbc.com/news/business-54518246)
 
 0
