@@ -1,19 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/10/07 CCP病毒每日疫情直播簡報
-`2020-10-13 07:14 GM62` [轉載自GNews](https://gnews.org/zh-hant/421052/)
+## 閆麗夢博士接受NEWSMAX採訪——解決SARS-CoV-2病毒的唯一方法是追責中共政府，然後研究解決病毒方案
+`2020-10-13 09:35 GM101` [轉載自GNews](https://gnews.org/zh-hant/421381/)
 
-戰友之家圖文摘要及小語種組
+美東時間10月12號，英雄科學家閆麗夢博士接受了NEWSMAX的採訪，NEWSMAX是訪問量最大的保守網站，每月約有400萬獨立訪問者，是美國最有影響力的保守派新聞網站之一。
 
-[256\_English\_1007\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064908/256_English_1007_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064908/256_English_1007_CCP_Virus_Updates.pdf)
+閆博士表示中共國政府一直鼓勵開展“增強性功能”之類的研究，並到處尋找新的人畜共患病毒來達到研製病毒的目的，在SARS-CoV-2（中共超限生化武器，又名新冠病毒）還沒有出現之前，中國(中共)政府就已經招募了科學家，甚至海外合作者偽造了大量虛假臨床資料，包括同行評議期刊《自然》、《柳葉刀》、《新英格蘭醫學雜誌》等都參與其中。
 
-[256\_French\_1007\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064843/256_French_1007_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064843/256_French_1007_CCP_Virus_Updates.pdf)
+針對現階段疫苗研發，閆博士指出SARS-CoV-2不是自然病原體，通過中共軍方實驗室改造後被增強，中共國控制的實驗室有更多其他類型的病原體。閆博士明確解決病毒唯一的方法是先追責中共政府，然後再研究解決病毒的方案，例如研發疫苗等。
 
-[256\_German\_1007\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064858/256_German_1007_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064858/256_German_1007_CCP_Virus_Updates.pdf)
-
-[256\_Korean\_1007\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064850/256_Korean_1007_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064850/256_Korean_1007_CCP_Virus_Updates.pdf)
-
-[256\_Spanish\_1007\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064903/256_Spanish_1007_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064903/256_Spanish_1007_CCP_Virus_Updates.pdf)
+面對中共政府逮捕母親和家人的威脅，閆博士表示自己說出了病毒真相，用證據和視頻向人們展示了事實，不怕中共政府威脅，因為自己站在了真理和事實這一邊，站在了正確的一方。
 
 0

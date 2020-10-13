@@ -1,20 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 採訪最佳行動派 台灣大牛
-`2020-10-13 09:20 GM06` [轉載自GNews](https://gnews.org/zh-hant/421300/)
+## 克里斯蒂亞諾·羅納爾多確診感染中共CCP病毒
+`2020-10-13 10:55 vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hant/421717/)
 
-作者：GM40
-
-10/13 台灣中央廣播電台 抗議夏業良誹謗抹黑郭文貴與般農先生
-
-事由：10/9央廣電台主持人黃娟訪問中共間諜夏業良，訪問內容誹謗抹黑郭文貴先生，誤導台灣人民。
-
-抗議訴求：中央廣播電台 訪問中共間諜夏昂 淪為中共大外宣電台
-
-![pastedGraphic.png](https://gnews.org/276de9c2-0729-42c8-9347-8309628d04ac)![pastedGraphic_1.png](https://gnews.org/e956d567-523d-4f15-8f01-7575fb3d2e67)![pastedGraphic_2.png](https://gnews.org/eafc5112-26a3-42ae-9961-12a276972864)
-抗議進展：今天抗議約1個小時左右，央廣公關部的原小姐出來了解狀況，希望我們給予他們申訴書，他們答應會給我們回復。
-
-後續進程：我們目前開始著手寫申訴書，趙君朔先生也會幫忙一起寫申訴書，預計在10/16之前遞交申訴書，如果在10個工作天內沒有回覆，我們會依法繼續進行抗議！
+葡萄牙足協週二在其網站上的一份聲明中表示，葡萄牙前鋒羅納爾多（Cristiano Ronaldo）對COVID-19的測試為陽性。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13105240/image-79.png)
+內新聞：背靠背
 
 0

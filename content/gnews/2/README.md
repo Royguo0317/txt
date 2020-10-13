@@ -1,51 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【港版国安法】引发学术界寒蝉效应 学生自我审查  退修敏感课  噤声
-`2020-10-13 10:13 GM42` [轉載自GNews](https://gnews.org/zh-hant/421547/)
+## 硅谷科技快線
+`2020-10-13 12:58 GM06` [轉載自GNews](https://gnews.org/zh-hant/421987/)
 
-整撰：文燕
+資料收集整理：littlegecko(小壁虎)； 播報：黎明前；視頻：Aquarius水瓶座； 配樂：Kevin卡卡
 
-覆核：文非
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13095032/image001-3.jpg)圖片：蘋果日報
-據**【蘋果日報】**10月13日訊，“港版国安法”今年6月通过后，来自美国、英国、澳洲和德国等地100名中国问题学者发表联署声明，批评国安法在学术界已引起寒蝉效应，不少学生都不敢讨论及批评中国，甚至提出退修课程，呼吁国际社会联合起来捍卫学术自由。
 
-**由於国安法适用于住在香港境外人士及非香港海外人士，一旦被中国当局视为具颠覆性的学术工作，途经香港和中国都可能要面对长期监禁**
 
-代表16个国家、71间学术机构的中国问题学者联署发信指，港版国安法第38条列明，国安法适用于住在香港境外人士及非香港海外人士，因此一旦学生曾进行被中国当局视为具颠覆性的学术工作，在途经香港和中国时都可能要面对长期监禁。信中更警告如果学界在对抗中国干涉学术研究和教学方面不连手起来，个别大学将会被逐个毁掉。
+1、SpaceX確認Starlink低軌互聯網個人Beta測試正在進行。顯示的低延遲足以玩最快的多人網絡在線遊戲。超過100Mbps的速度足以在多個流上播放多個高清視頻。
+SpaceX confirms Starlink internet private beta underway, showing low latency and speeds over 100Mbps. The service has demonstrated latency low enough to allow it to play the “fastest multiplayer” networked online games, and that it has also shown download speeds in excess of 100Mbps, which is fast enough to stream multiple HD video streams at once.
 
-**国安法第38条适用于全球，学生担心遭到报复，放弃研究与中国相关的模块，并自我审查文章。不少学生都不敢讨论及批评中国，甚至提出退修课程**
+2、流程自動化初創公司Hypatos最近獲得了1000萬歐元種子輪融資。這家位於德國和波蘭的公司應用深度學習技術為更廣泛的後臺自動化提供支持，重點是需要大量財務文件處理的行業，例如金融業和保險業。
+Process automation startup Hypatos has raised a €10 million (~$11.8 million) seed round of funding from investors. The Germany and Poland-based company applies deep learning tech to power a wider range of back-office automation, with a focus on industries with heavy financial document processing needs, such as the financial and insurance sectors.
 
-“大学理应是激烈辩论的场所，为学者和学生提供一个安全的空间，让他们无畏无惧讨论富争议性问题。但国安法第38条适用于全球，会损害言论自由和学术自主，造成寒蝉效应，促使批评中国的学生自我审查”。一些学者更透露，学生因担心遭到报复，已放弃研究与中国相关的模块，并自我审查文章。莱比锡大学（University of Leipzig）一名汉学讲师最近对正在德国留学、外号“鼠标娘娘”的邝颂晴透露，他来自香港、台湾和中国的学生因为担心其他学生在课堂上批评中国共产党的言论而受到牵连，要求取消选修他的课程。
+3、由大眾汽車集團支持的固態電池公司QuantumScape 日前已同意與壹家收購公司合並，目的是籌集所需資金，用於電動汽車固態電池的商業化。
+QuantumScape, the solid-state battery company backed by Volkswagen Group,  has agreed to merge with a special purpose acquisition company. as it aims to raise the capital it needs to commercialize solid-state batteries for electric vehicles.
 
-**中共政府将学生用作监察中国大陆及香港大学导师的工具，利用国外学生作为中共特务**
+4、戴爾的32英寸4K顯示器U3219Q 可提供完美的家庭辦公室升級。越來越多的人正在尋找外部顯示器來補充他們的工作筆記本電腦，因為由於冠狀病毒的影響他們轉向了更多的遠程工作。
+Dell’s U3219Q 32-inch 4K monitor provides a perfect home office upgrade. What has changed is that more and more, people are looking for external monitors to complement their work laptops as they shift to more remote work.
 
-富尔达续称：“众所周知，中国将学生用作监察中国大陆及香港大学导师的武器，这种尝试将学生变成工具的做法不只限于中国境内。方文莎教授（Prof Vanessa Frangville）揭露2018年中国驻布鲁塞尔大使馆在试图雇用布鲁塞尔大学学生，对一个有关维吾尔族示威表达不满。”
+5、冠狀病毒大流行絕對打擊了零售業。全國各地的商店都關門了，與此同時，在線銷售蓬勃發展。直接面向消費者的品牌，其中許多都是在線渠道，在數周和數月內經歷了前所未有的變化。
+The world of retail has been absolutely rocked by the coronavirus pandemic. Stores closed across the country, and at the same time, online sales went through the roof. Direct-to-consumer brands, many of which are masters of both online and brick-and-mortar channels, experienced unprecedented change in a matter of weeks and months.
 
-**大学不能独自面对这场挑战，学术领袖、政客和政府高级官员必须组成联合阵线，捍卫我们的学术自由**
+6、Facebook分享了壹些新的業務增長數字，Facebook Watch現在每月有超過12.5億的訪問者。該產品負責人表示，在病毒封鎖和社交遠離開始後，“確實有很大的增長”，而且隨著社會開始重新開放，這壹趨勢不會變化。
+Facebook is sharing some new growth numbers around its video destination that Facebook Watch is now receiving more than 1.25 billion visitors every month. Product lead Paresh Rajwat said there was “a really big surge” at the beginning of lockdown and social distancing, and that the surge has not subsided as society begins to reopen.
 
-诺丁汉大学亚洲研究所（University of Nottingham Asia Research Institute）高级研究员兼联署其中一名发起人富尔达（Dr Andreas Fulda）说：“来自英国和中国大陆的数名学生都私下告诉我，他们担心在课堂或文章中的评论会被当成对付他们的证据。大学不能独自面对这场挑战，学术领袖、政客和政府高级官员必须组成联合阵线，捍卫我们的学术自由。我们必须揭示国安法的本质，它试图横蛮制止批判中国的讨论，与追求知识真理背道而驰。”
+7、TikTok持續不確定的未來使Snapchat在八月份獲得了巨大發展。
+The continual uncertainty around TikTok’s  future may have provided a big boost to Snapchat in August.
 
-**戰友點評：**
+8、本周早些時候，Amazon開了壹家從外面看起來像壹家典型Whole Foods的商店。但是，它並不對公眾開放，這是壹個新的配送中心。受到病毒疫情的影響，該公司在壹份聲明中說：“配送是Amazon增長最快的業務之壹。”
+Earlier this week, in Brooklyn, near the waterfront, Amazon  opened what looks from the outside like a typical Whole Foods store. It isn’t open to the public, however; it’s a new fulfillment center.
+“Grocery delivery continues to be one of the fastest-growing businesses at Amazon,” the company said in a statement about the location.
 
-国安法的影响可谓牵一发动全身，令人担忧的寒蝉效应已经出现。
+9、折扣航空公司Spirit Airlines今天宣布，將在芝加哥奧黑爾機場的票務大廳引入生物特征登記手續，以簡化登記過程並減少病毒大流行期間員工與乘客之間的面對面互動。
+Discount carrier Spirit Airlines today announced that it is introducing biometric check-ins in its ticket lobby at Chicago’s O’Hare airport to streamline the check-in process and reduce face-to-face interactions between its employees and passengers during the pandemic.
 
-香港教育大学亚洲及政策研究系助理教授伍凤嫦在接受ABC中文采访时称，不论是本地学者还是在港的外国学者都普遍担忧。“外国的学者有一些已经走了，本地的有一些已经准备离开香港”，原因是不能在一个自由的环境中做研究了。
+10、SpaceX成功完成了星艦原型機的又壹次短試飛。
+SpaceX completes another successful short test flight of its Starship spacecraft prototype.
 
-伍凤嫦博士表示，香港学者的职责除了教学与研究之外，需要与国外的大学和研究机构合作。但由于【国安法】中的条文太笼统，研究香港政治、人权问题或是需要跟海外非政府组织（NGO）紧密合作的学者很容易“踩红线”。
-
-最近九龙塘宣道小学一名教师因一张工作纸被指有计划地散播“港独”信息，教育局以“严重专业失德”为由取消注册，并终身不能踏足校园。【港版国安法】在校园被无限放大，上纲上线，使老师的教学机制受到极大钳制。
-
-在【港版国安法】下，谁也无法独善其身。“我们必须揭示国安法的本质，它试图横蛮制止批判中国的讨论，与追求知识真理背道而驰。”
-
-学术界不能独自面对这场挑战，学术领袖、政客和政府高级官员应该组成联合阵线，捍卫我们的学术自由和言论自由。
-
-以上觀點僅代表筆者本人
-
-资料来源：苹果日报、ABC中文
-
-[https://hk.appledaily.com/international/20201013/ZEZK2WOOMRHRFBDEEZWHR2ESCM/](https://hk.appledaily.com/international/20201013/ZEZK2WOOMRHRFBDEEZWHR2ESCM/)
-
-[https://www.abc.net.au/chinese/2020-07-17/national-security-law-worries-hong-kong-academics-and-media/12463822](https://www.abc.net.au/chinese/2020-07-17/national-security-law-worries-hong-kong-academics-and-media/12463822)
+（消息來源：http://techcrunch.com ）
 
 0
