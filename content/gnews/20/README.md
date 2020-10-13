@@ -1,20 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 良心醫生澤連科推號被解封 計劃向推特發起集體訴訟
-`2020-10-12 12:11 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/420161/)
+## 李宇春——中共喊妳查核酸了！青島昨日音樂節萬人狂歡vs今日排隊查核酸
+`2020-10-12 12:40 公民之聲` [轉載自GNews](https://gnews.org/zh-hant/420171/)
 
-喜馬拉雅聯盟加拿大農場 WJ
+內新聞：文文 校對：天藍色獨角色
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12110235/screenshot_2020-10-12-21-44-39-200_discord.png)
+中共為保經濟不惜淡化疫情，民眾放松警惕，導致了疫情的再度擡頭。青島新增9例核酸檢測陽性病例並在10月12日淩晨宣布青島市啟動全員檢測方案，3天內對市南、市北、李滄、嶗山、城陽五區檢測全覆蓋，5天內對全市檢測全覆蓋。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12110345/screenshot_2020-10-12-21-31-48-433_discord.jpg)
+偽中國國慶假期期間，青島接待了447萬全國遊客，特別是在10月2-3日青島舉辦了鳳凰音樂節，數以萬計的觀眾擁擠在音樂節現場，而戴口罩者寥寥。
 
-上傳 WJ
-
-10月5日，Gnews報導了《[推特迫害力挺羥氯喹良心人士大鬍子醫生賬號被停](https://gnews.org/zh-hans/404304/)》。 10月11日，澤連科醫生推號被解封，發出推文：嗨。又從推特監獄出來了。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12120137/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE483.png)
-澤連科醫生表示：嘿，Twitter 正在計劃對你提起集體訴訟。所有的律師都與頂級律師結盟，準備出發。有興趣參加的人聯繫我。並在後續推文中發出聯繫電子郵箱[\[email protected\]](/cdn-cgi/l/email-protection)
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12120221/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE482.png)
-中共病毒肆虐以來，越來越多的人更清楚地認識到傳播真相的聲音屢屢被社交巨頭打壓、噤聲。隨著滅共的步步推進，正義力量正在集結，與中共為伍的科技公司一定會付出代價。
-
-相關新聞
-[羥氯喹療效醫生證詞系列之三：紐約著名醫生弗拉基米爾·澤連科博士](https://gnews.org/zh-hans/287005/)-Gnews
-
+李宇春、李榮浩、吳亦凡、GAI周延等人登臺表演。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12110407/screenshot_2020-10-12-21-32-06-199_discord-1.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12110431/screenshot_2020-10-12-21-30-38-438_discord.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12110432/screenshot_2020-10-12-21-31-32-809_discord.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12110459/screenshot_2020-10-12-21-32-54-700_discord.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12110520/screenshot_2020-10-12-21-32-30-771_discord.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12110522/screenshot_2020-10-12-21-32-19-028_discord.png)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12110520/5ee77f71a31027ab6ada3d34.jpg)
 0

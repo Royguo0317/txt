@@ -1,67 +1,107 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 南海美麗的珊瑚礁慘遭中共永久毀壞
-`2020-10-12 17:00 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/420306/)
+## 覺醒吧，世界！不要再繼續被中共玩弄於股掌之中
+`2020-10-12 17:17 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/420327/)
 
-*新聞來源：Breitbart《布賴特巴特》；作者：GABRIELLE REYES；發佈時間： 2020年10月7日*
+*新聞來源：express《快報》；作者：CHRISTOPHER SMITHERS；發佈時間： 2020年10月10日*
 
-*翻譯/簡評：Cathy r；校對：感恩；審核：InAHurry；Page：拱卒*
+*翻譯/簡評：Cathy r；校對：TCC；審核：InAHurry；Page：拱卒*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/JyktTL7ukKbtw/images/8a20bcf9-2273-470e-81e3-f97ead777fcd.jpg?asset_id=9b4329bb-1297-4114-966a-1513f2cbf402&amp;img_etag=%22e38f8648fa7beaa6699ab022251d06f8%22&amp;size=2560)](https://spark.adobe.com/page/JyktTL7ukKbtw/images/8a20bcf9-2273-470e-81e3-f97ead777fcd.jpg?asset_id=9b4329bb-1297-4114-966a-1513f2cbf402&amp;img_etag=%22e38f8648fa7beaa6699ab022251d06f8%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/0a7Pr5k7dIRYX/images/b863d1ca-f2e1-40d5-a3c6-95551ea6c722.jpg?asset_id=6fbe81c2-f7c6-4e81-934a-db315bf13791&amp;img_etag=%220c35e8f76bcaaaefce207b7f6647409e%22&amp;size=2560)](https://spark.adobe.com/page/0a7Pr5k7dIRYX/images/b863d1ca-f2e1-40d5-a3c6-95551ea6c722.jpg?asset_id=6fbe81c2-f7c6-4e81-934a-db315bf13791&amp;img_etag=%220c35e8f76bcaaaefce207b7f6647409e%22&amp;size=1024)
 
 **簡評：**
 
-中共國不斷在南海建立軍事島礁是以珊瑚礁為基礎在其上進行挖掘，而中共國逐利的挖蛤行業也是大規模的破壞珊瑚礁，因此到現在已有100平方英里的珊瑚礁被永遠的毀掉了。實際上2016年海牙國際仲裁法庭就已駁回中共國近90%的海域的領土主張，但中共國仍繼續非法推行它的軍事活動。由於沒有製裁機制，中共國一直為所欲為，國際社會規則不變革是不行了。
+即使還沒有認識到中共製造冠狀病毒的生物武器釋放給全世界的事實，西方人也終於從中共國的各種不守世界規則秩序的行為上得出結論——中共國要主宰世界。在許多西方人還在政治遊戲中憤世嫉俗的時候，世界已經悄悄地改變了。川普總統競選不再只是為他個人而戰，為美國而戰，甚至是為世界而戰。不聯繫到這一點，就還沒有看到世界局勢的本質。決定世界的前景就在美國大選前這一段珍貴的歷史時刻！
 
-## **海洋生物學家：中共國’永遠’抹去了南海的珊瑚礁**
+## **評論-中共要主宰世界，我們正被他們玩弄於股掌之中**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/JyktTL7ukKbtw/images/b2c49ddb-c5dd-4f50-b570-bab607610ffe.jpg?asset_id=ffa12ef0-b8a6-4154-b215-d163693bd018&amp;img_etag=%22da699bd4ab923ece662a349a1f587820%22&amp;size=2560)](https://spark.adobe.com/page/JyktTL7ukKbtw/images/b2c49ddb-c5dd-4f50-b570-bab607610ffe.jpg?asset_id=ffa12ef0-b8a6-4154-b215-d163693bd018&amp;img_etag=%22da699bd4ab923ece662a349a1f587820%22&amp;size=1024)
+中共國對於控制世界秩序痴迷已經到了走火入魔的地步。被共產黨民族主義激發的狂熱分子形成了一股激進的推力在政治及商業上正引領著中共獨霸世界。
 
-**一位海洋生物學家和海洋專家週一對自由亞洲電台(RFA)說，由於中共國非法在南海珊瑚礁上建立軍事基地，一些珊瑚礁已“永久性地消失”。**
+這說法是否公平地反映了普通的中共國公民（的想法）？我完全不覺得是那樣。但因為中共對其國人鐵腕控制的程度，任何有意義的改變都是遙遙無期的。 “一帶一路倡議”是習近平走向有效地全面世界貿易和政治獨霸的哲學的基石。
 
-佛羅里達州邁阿密大學海洋生物學教授約翰·麥克馬納斯(JohnMcManus)對自由亞洲電台說“如果你在珊瑚礁上建造了東西，如果你把泥土、瓦礫和公路（堆積在珊瑚礁上）……珊瑚礁就從此再不可能恢復了”。
+這一倡議在中共國方面故意不透明化——旨在故意掩蓋真正的目標。
 
-該報告稱“絕大多數這樣的建築是由中共國建造的，中共國2014年至2017年間對永暑礁（FieryCrossReef）、渚碧礁（SubiReef）、美濟礁（MischiefReef）、伍迪島（ WoodyIsland）和其它一些小島無恥地進行了大量的挖掘，為現在安置軍隊的人工島嶼開路”。
+當然，進一步地將此界限模糊也等於將習近平和中共國政府/中國共產黨之間的區別日益模糊，中共已將兩者合而為一，變成了同一回事。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/JyktTL7ukKbtw/images/075b7d92-82ac-4baf-960d-e23afdac5ada.jpg?asset_id=702d0941-034b-421f-bd71-310b0c8c354c&amp;img_etag=%22adabe26d3fb2d111c6f40d2d4cdd09c3%22&amp;size=2560)](https://spark.adobe.com/page/JyktTL7ukKbtw/images/075b7d92-82ac-4baf-960d-e23afdac5ada.jpg?asset_id=702d0941-034b-421f-bd71-310b0c8c354c&amp;img_etag=%22adabe26d3fb2d111c6f40d2d4cdd09c3%22&amp;size=1024)永暑礁（FieryCrossReef）
+[!\[\]()!\[\](https://spark.adobe.com/page/0a7Pr5k7dIRYX/images/896f2ac1-6156-42d8-9b6a-360bd4b3ce0f.jpg?asset_id=0c9badf9-c23a-4613-9ba7-973d4c2caede&amp;img_etag=%223dcec284725bff11dd5b01b53a229139%22&amp;size=2560)](https://spark.adobe.com/page/0a7Pr5k7dIRYX/images/896f2ac1-6156-42d8-9b6a-360bd4b3ce0f.jpg?asset_id=0c9badf9-c23a-4613-9ba7-973d4c2caede&amp;img_etag=%223dcec284725bff11dd5b01b53a229139%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/JyktTL7ukKbtw/images/0fc7b895-9f0b-46ab-8c9c-618ba39dc3f5.jpg?asset_id=ac351f4a-15b6-4c92-9592-b7a6ae9f939c&amp;img_etag=%22ea8678c3a33f4cc6ad48c90c65400b20%22&amp;size=2560)](https://spark.adobe.com/page/JyktTL7ukKbtw/images/0fc7b895-9f0b-46ab-8c9c-618ba39dc3f5.jpg?asset_id=ac351f4a-15b6-4c92-9592-b7a6ae9f939c&amp;img_etag=%22ea8678c3a33f4cc6ad48c90c65400b20%22&amp;size=1024)渚碧礁（SubiReef）
+專制主義，極權主義，不管你喜歡什麼用詞，中共都是這些詞的極限代表。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/JyktTL7ukKbtw/images/827f841a-cfc9-4940-9fcb-173a408c5dc9.jpg?asset_id=6a5686eb-f021-4ea1-a10a-2213e55cd085&amp;img_etag=%22724d9c0d3c83745c98394d8af77e7b17%22&amp;size=2560)](https://spark.adobe.com/page/JyktTL7ukKbtw/images/827f841a-cfc9-4940-9fcb-173a408c5dc9.jpg?asset_id=6a5686eb-f021-4ea1-a10a-2213e55cd085&amp;img_etag=%22724d9c0d3c83745c98394d8af77e7b17%22&amp;size=1024)美濟礁（MischiefReef）
+“一帶一路”不過是那可笑地債務陷阱在政治上用詞，只想讓發展中國家淪為北京的附庸。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/JyktTL7ukKbtw/images/4938aabb-bc36-4644-a3f5-acb60ce2589e.jpg?asset_id=02c35ddd-565e-434f-a70e-816b0736bb07&amp;img_etag=%223d3e48a338618c16cd6d7cda6b0dc9d2%22&amp;size=2560)](https://spark.adobe.com/page/JyktTL7ukKbtw/images/4938aabb-bc36-4644-a3f5-acb60ce2589e.jpg?asset_id=02c35ddd-565e-434f-a70e-816b0736bb07&amp;img_etag=%223d3e48a338618c16cd6d7cda6b0dc9d2%22&amp;size=1024)伍迪島（WoodyIsland）
+例如，斯里蘭卡和巴巴多斯簽署了上述協議，接受了中共國國家銀行的慷慨援助，以換取中共國提供基礎設施建設，即以主權承諾為抵押，在未能按協議償還貸款的情況下就會被沒收這些資本資產。
 
-永暑礁、渚碧礁和美濟礁屬於有爭議的南沙群島。這三個珊瑚礁的主權首要是由菲律賓聲稱擁有，但同時，中共國也聲稱擁有其主權。同樣的爭議也發生在伍迪島所屬的帕拉塞爾群島的主權問題上（ParacelIslands），此島主要由越南聲稱擁有，但中共國也爭奪該島嶼的控制權。
+這些貸款本身必須遵守昂貴的償還條件，這使得這些國家更不可能償還這些債務。
 
-自由亞洲電台指出，北京聲稱已在2017年停止在有爭議的海域進行大規模改造，但最近的“衛星圖像顯示，中共國仍在南海的部分區域繼續施工”。
+即使是慷慨的條件，發展中國家也極不可能有很大的機會履行它們的義務——因此，北京只需沿著時間表，收回貸款，並接管這“資產”。
 
-該報告稱，“中共國在帕拉塞爾群島的主要軍事基地伍迪島西北部的一個新的珊瑚礁區域拆除和挖掘，為一個未知的結構開路。自4月初以來，在該區域上定期發現建築設備。”
+[!\[\]()!\[\](https://spark.adobe.com/page/0a7Pr5k7dIRYX/images/2ab04d27-45c2-49a3-a773-eb6b41b4cccc.jpg?asset_id=591a6419-d993-443c-8c37-d6f51a90d2f5&amp;img_etag=%22677cea939936482803481750f1508d2b%22&amp;size=2566)](https://spark.adobe.com/page/0a7Pr5k7dIRYX/images/2ab04d27-45c2-49a3-a773-eb6b41b4cccc.jpg?asset_id=591a6419-d993-443c-8c37-d6f51a90d2f5&amp;img_etag=%22677cea939936482803481750f1508d2b%22&amp;size=1024)
 
-對南海的另一個主要威脅是北京在此海域大規模捕撈巨大的蛤蜊的行為。根據亞洲海事透明度倡議(AMTI)，中共國使用的是一種生態破壞的方法來收穫瀕危蛤蜊。
+這一怎麼都能為中共所用的做法也為習近平政權提供了一個堅實的立足點，就在我們的後門台階上這有可能使我們陷入被共產主義扼頸的命運。
 
-“這些偷獵者使用的典型方法是錨定他們的船，然後拖動他們的舷外馬達的加固道具穿過珊瑚礁表面，將珊瑚打破，以便很容易被拉出蛤蜊。”亞洲海事透明度倡議2019年5月報導。
+對於中國共產黨的動機，任何幻想現在都應該徹底消除。
 
-該組織透露：“自2018年末以來，衛星圖像顯示，這些船隊經常在黃岩島（ScarboroughShoal） （主要由菲律賓聲稱擁有)和整個帕拉塞爾群島包括浪花礁（Bombay Reef ）活動。”
+例如，中共國對整個或大部分南海的主權提出了完全令人無法接受的主張，並建造人工島嶼作為支持他們的領土主張，這作法應已表明與中共國的任何關係總是有利於中共單方的。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/JyktTL7ukKbtw/images/c3fb12f7-56b7-4887-b379-4ec32fa327c7.jpg?asset_id=b5d4ecd0-d0fc-4dbd-86f8-cc224eeb729a&amp;img_etag=%224e87d2d0cc7dcc14144d02139e025d41%22&amp;size=2560)](https://spark.adobe.com/page/JyktTL7ukKbtw/images/c3fb12f7-56b7-4887-b379-4ec32fa327c7.jpg?asset_id=b5d4ecd0-d0fc-4dbd-86f8-cc224eeb729a&amp;img_etag=%224e87d2d0cc7dcc14144d02139e025d41%22&amp;size=1024)黃岩島（ScarboroughShoal）
-[!\[\]()!\[\](https://spark.adobe.com/page/JyktTL7ukKbtw/images/ebc04d17-a951-46cd-96ef-1390759d8c6f.jpg?asset_id=49b8bca8-d5a9-4685-971f-8c02c6bbaa90&amp;img_etag=%221a8e265252efed7d5cabf5e0101bdbdf%22&amp;size=2560)](https://spark.adobe.com/page/JyktTL7ukKbtw/images/ebc04d17-a951-46cd-96ef-1390759d8c6f.jpg?asset_id=49b8bca8-d5a9-4685-971f-8c02c6bbaa90&amp;img_etag=%221a8e265252efed7d5cabf5e0101bdbdf%22&amp;size=1024)浪花礁（Bombay Reef ）
-麥克馬納斯週一對自由亞洲電台說，中共國漁民“僅用兩隻巨大的蛤蜊就能掙1000美元左右，這些蛤蜊是在一層類似水泥的珊瑚層中發現的”。
+國際仲裁法院對具有高度爭議的南沙群島(Spratly Islands)對中共國做出了否決，但他們卻公然無視這一裁決。
 
-他補充說，“幾乎所有在南海的捕魚船隊都來自中共國南部城鎮潭門（Tanmen）的捕魚船隊，在潭門，蛤蜊殼貿易是當地經濟的關鍵。”
+中共國對任何國際裁決選擇性地遵守或視情況而不顧的模式是非常明確的。無論任何地點或時間，只要符合其商業、軍事或政治目的的條款、義務，甚至國際公約，他們有可能捍衛或拒絕。
 
-麥克馬納斯估計，南海“100平方英里的珊瑚礁已經被（中共國的）基建和蛤蜊捕獵所破壞”。
+人們本希望，在西方世界民主國家的某個強勢政府的領導下，各國不僅會注意到這一點，而且會用智慧提出解決方案。
 
-麥克馬納斯是一位專注的研究人員，20世紀90年代以來一直在研究海洋的生物多樣性。他向海牙2016年仲裁法庭提交了專家證詞，該法庭裁決了菲律賓就中共國侵占南海一案提起的訴訟。
+然而，在冠狀病毒開始之前，世界其它地區似乎都在“方向盤上睡著了”，川普總統可能是唯一的例外。
 
-除了裁定北京對近90%的海域的領土主張沒有法律依據外，獨立法庭還根據麥克馬納斯的證詞認定，“中共國違反了國際法規定的保護海洋環境的義務”。亞洲海事透明度倡議稱，這位海洋生物學家提交了證據，記錄了“截至2016年，由於中共國蛤蜊的開採，對淺礁表面造成了25,000多英畝的破壞(相比之下，大約15,000英畝因挖掘和填埋活動而受損，以建造中共國的人工島嶼）。
+請克制你的憤世嫉俗，因為直到現在，唐納德對經濟方面一直是正確的，他反復指出中共國政府的偏差行為及其所清楚代表的當前危機。
 
-北京拒絕了2016年國際法院的裁決，並從那時起繼續推進其在南海的非法主權主張。
+謝天謝地，冠狀病毒將這刻不容緩的焦點放在不受控制的全球化的想法上，將歐盟和中共國等國推向了一個接近恐慌的過程。
 
-在上個月的聯合國大會上，菲律賓和越南呼籲中共國遏制其在南海的非法活動，並敦促各國在爭議很大的海域遵守國際法。兩國領導人都援引《聯合國海洋法公約》(UNCLOS)，該公約根據國際法規定了海上行為準則。菲律賓總統羅德里戈·杜特爾特（RodrigoDuterte）在講話中特別提到了根據《海洋法公約》設立的2016年國際法庭及其裁決，該裁決駁回了北京對大部分海域的主張，認為其為非法。
+把全球所有的製造業都放在中共國籃子裡，這大大地顯露了這精心設計的世界秩序的愚蠢之處，即世界經濟應該免受到不穩定的衝擊。
 
-[原文鏈接](https://www.breitbart.com/asia/2020/10/07/marine-biologist-china-forever-erased-coral-reefs-in-south-china-sea/)
+恰恰相反的卻已經發生。冠狀病毒危機暴露了全球化議程的真實面貌，也暴露了那些“作牌”的人只顧自己的利益。
 
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/JyktTL7ukKbtw/)
+沒有人不對中共國豐富的歷史和幾個世紀以來對世界的非凡貢獻感到敬畏。
+
+但這並不能成為中共國目前公然無視人類其他成員、追求自私優勢的藉口。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/0a7Pr5k7dIRYX/images/c7bd2084-197d-4435-a96a-26b4ed3f1514.jpg?asset_id=ffa9bddd-124f-47e1-a64b-83103d06a40a&amp;img_etag=%221b69feb0ee78c082a18b127d6ca822b8%22&amp;size=2560)](https://spark.adobe.com/page/0a7Pr5k7dIRYX/images/c7bd2084-197d-4435-a96a-26b4ed3f1514.jpg?asset_id=ffa9bddd-124f-47e1-a64b-83103d06a40a&amp;img_etag=%221b69feb0ee78c082a18b127d6ca822b8%22&amp;size=1024)
+
+中共國統治的威脅是真實存在的。
+
+例如，北京已經入主了聯合國，這讓人嚇呆了。
+
+聯合國人權委員會現在由中共國擔任主席。世界上一個有著如此糟糕的人權記錄的專制政權是如何占據這一地位的？
+
+然後看看世界衛生組織(WHO)，看看它的影響在那裡有多麼的無孔不入。
+
+世界上充斥著這些和無數其它被中共影響的例子，而且當“胡蘿蔔”（利誘）不起作用時，“大棒”就會出來，欺凌就會開始。
+
+看看那些中共對澳大利亞和新西蘭使用的無恥戰術。
+
+中共國市場是這兩個國家出口的最大市場，但當澳大利亞呼籲對冠狀病毒大流行的起源進行徹底的調查時，發生了什麼？
+
+北京方面發出了無理的要求，要求他們撤銷說詞否則其（後果自負）。
+
+突然間，澳大利亞的大麥、葡萄酒和牛肉都受到了威脅，還有最近一次關於金獼猴桃的暴怒。
+
+國際社會越來越多地譴責中共最近公然違反1997年香港恢復中共國統治時作出的承諾，中共國卻提出強烈反彈，聲稱這是對他們內政的侵犯。
+
+好吧，別太吃驚了，這還沒那麼簡單。
+
+香港過去是，現在仍然是一個主要的全球貨幣中心，但隨著最近中共國越過香港立法機構出台的嚴厲和邪惡的《安全法》，美國和其它許多國家宣布香港不再如既定協議的那樣完全自主了。
+
+資本已經流失。這給新加坡和其它國際公認的主要貨幣中心帶來了前所未有的機遇。
+
+在冠狀病毒之後，迫切需要對國際貿易操作進行全面審查，如果不是有其他原因，至少是為了試圖和平衡競爭場地(的不平等)。
+
+要求中共為其在冠狀病毒上的無恥行為承擔責任上，所存在即將到來的未知數是美國總統大選的結果。
+
+用利益綁架喬·拜登會很容易，考慮到中共一貫的恐嚇和欺凌能力，他們會毫不猶豫地爭取盡可能多的讓步。
+
+中國人民是那麼得棒，那麼得勤勞和勤奮，控制他們的中共國政府和共產黨將導致一場終極的災難，而其後果將會影響世世代代。
+
+[原文鏈接](https://www.express.co.uk/comment/expresscomment/1346074/china-news-south-china-sea-dispute-xi-jinping-chinese-military-rule-the-world)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/0a7Pr5k7dIRYX/)
 
 0

@@ -1,53 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 港警進一步逮捕支持“逃亡12人”的抗議者
-`2020-10-12 17:33 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/420340/)
+## 踐踏人權的中共欲管理全球人權遭抗議
+`2020-10-12 17:48 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/420350/)
 
-*新聞來源：the guardian 《衛報》；發佈時間：2020年10月10日*
+*新聞來源：freebeacon《自由燈塔》；作者：Jack Beyrer；發佈時間： 2020年10月9日*
 
-*翻譯/簡評：Victory；校對：1818；審核：InAHurry；Page：拱卒*
+*翻譯/簡評：Victory；校對：TCC；審核：InAHurry；Page：拱卒*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/nClLjJ78sWs2y/images/bbff76e1-a911-4015-822b-467d3061a495.jpg?asset_id=acd01c96-5a12-43f5-9bfc-29b5b0bb16a5&amp;img_etag=%227c6cdb7810b3ec5a4a8824d251c618df%22&amp;size=2560)](https://spark.adobe.com/page/nClLjJ78sWs2y/images/bbff76e1-a911-4015-822b-467d3061a495.jpg?asset_id=acd01c96-5a12-43f5-9bfc-29b5b0bb16a5&amp;img_etag=%227c6cdb7810b3ec5a4a8824d251c618df%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/LxEsUGzlKsGJe/images/454fe58a-8a50-427a-88c0-776b171a2462.jpg?asset_id=1d4dadb6-d507-4384-ba74-0d17ff146f3b&amp;img_etag=%224e87e6747b4b4b8f286ce69c4e155fe1%22&amp;size=2560)](https://spark.adobe.com/page/LxEsUGzlKsGJe/images/454fe58a-8a50-427a-88c0-776b171a2462.jpg?asset_id=1d4dadb6-d507-4384-ba74-0d17ff146f3b&amp;img_etag=%224e87e6747b4b4b8f286ce69c4e155fe1%22&amp;size=1024)
 
 **簡評：**
 
-香港早就不存在司法獨立，無數參加和平抗議的港人被香港黑警公然虐打，甚至殘殺。原來的金融中心已經稱為全世界最不安全的城市之一。在中共強行通過國安法後，每一個港人都可隨時被抓捕，而且沒有公平的司法審判。這是港人逃離的原因。如非萬不得已，港人不會背景離鄉，逃往台灣。這些勇敢的香港人是站在對抗共匪戰線的最前沿，為全世界人流血犧牲。世界各國理應為港人提供一切可能的幫助。
+中共在人權問題上一直是惡名昭彰，較早的西藏問題，維吾爾族種族屠殺式的”再教育營”，及最近的香港抗議活動的鎮壓與內蒙強致漢語教學，這些不顧國際輿論譴責嚴重違反人權的事實下，竟然厚顏無恥地想加入聯合國人權理事國。再過幾天(10/13)就會揭曉了。這也難怪人權組織大聲疾呼，向聯合國抗議!
 
-## **香港警方以涉嫌協助逃亡抗議者逮捕九人**
+中共經過長期的滲透，已幾乎完全掌控各種國際機構。包括聯合國，世界衛生組織，人權理事會等等都是中共的提線木偶。中共國申請加入人權理事會極為荒唐。這種行為，中國有句古話來形容“既要做婊子，又要立牌坊”。七十年來，中共對中國人民所做的侵犯人權的事可謂罄竹難書。而近年來，它們的已經不只在中國大陸作惡，而是把魔抓伸向香港和全世界。
 
-**警方拘留了四男五女，他們涉嫌為試圖乘船逃往台灣的活動人士安排交通**
+## **人權組織抗議中共國申請聯合國人權理事會席位**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/nClLjJ78sWs2y/images/3fc229a7-c5e2-4273-a7e4-d5cb60fb973f.jpg?asset_id=083a5668-8868-4d1a-830a-0db401978355&amp;img_etag=%223712efc6900e2a09ca2bdbcdd22f1ac2%22&amp;size=2560)](https://spark.adobe.com/page/nClLjJ78sWs2y/images/3fc229a7-c5e2-4273-a7e4-d5cb60fb973f.jpg?asset_id=083a5668-8868-4d1a-830a-0db401978355&amp;img_etag=%223712efc6900e2a09ca2bdbcdd22f1ac2%22&amp;size=1024)圖片為這12位香港活動人士的家屬，他們指責香港追踪這12人，並向中共國當局透露了他們的地理位置，以便逮捕他們。這12位活動人士在深圳被拘留，理由是他們涉嫌非法越境進入中共國水域並試圖乘船逃往台灣。照片：約雷梅·法夫爾/EPA
+[!\[\]()!\[\](https://spark.adobe.com/page/LxEsUGzlKsGJe/images/c29640b1-c151-480c-998a-56060bc4479b.jpg?asset_id=26db9a3d-68ef-4a68-9354-85317a35e5c0&amp;img_etag=%2259d1489ef5dbf0c4f708c6dc8b44b49d%22&amp;size=2560)](https://spark.adobe.com/page/LxEsUGzlKsGJe/images/c29640b1-c151-480c-998a-56060bc4479b.jpg?asset_id=26db9a3d-68ef-4a68-9354-85317a35e5c0&amp;img_etag=%2259d1489ef5dbf0c4f708c6dc8b44b49d%22&amp;size=1024)
 
-香港警方說，他們逮捕了涉嫌幫助12名活動人士逃離的9人。這些活動人士今年8月逃離香港前往台灣，但被當局攔截並扣留在中共國大陸。
+自由亞洲電台週四(10/8)報導，多個知名人權組織對中共國申請加入聯合國人權理事會提出抗議。
 
-上週六被捕的九人包括四男五女，其中一些人此前曾因參與去年令這座金融中心陷入混亂的大規模抗議活動而被捕，他們因“協助違規者”而被拘留。
+直到2019年才加入聯合國人權理事會的中共國，可能會在10月13日通過成員國投票獲得連任。人權觀察組織和中國人權捍衛者本星期都發表聲明，呼籲聯合國阻止中共國加入人權理事會。
 
-一名警方發言人告訴記者，“他們做的事情包括，是相關船隻的擁有者、（為12名活動人士）提供資金支持、在旅行前提供住宿、前往碼頭的交通，以及在抵達台灣後的生活安排。“
+中國人權捍衛者星期四在推特上說:“我們敦促聯合國成員國採取強有力和有效的行動，以回應中共國日益增加的侵犯人權行為以及中共政府未能全面執行聯合國的建議。該組織還表示，中共國“未能以任何有效的方式保護和促進人權”。
 
-8月底，中國海岸警衛隊攔截了一艘載有12名香港人前往台灣的船隻，他們的困境引起了國際社會的關注，人權組織對此表示擔憂，因為他們的家人說，他們被剝奪了接觸獨立律師的機會，並表示懷疑香港當局協助了中共國對他們的抓捕。
+如果中共國獲得席位，人權理事會將把世界上最嚴重侵犯人權的國家之一列入其成員國之列。在自由之家的全球自由指數中，中共國名列倒數10名之一，原因包括: 正在進行的對新疆維族穆斯林的種族滅絕，壓制公民自由等。人權組織還批評中共國對西藏文化自由的壓制以及今年夏天惡意侵占香港。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/nClLjJ78sWs2y/images/e53bb0f8-2a00-4bc1-a39b-649a18d39b28.jpg?asset_id=94ee2057-c0ee-4842-aa21-1c251c9413a0&amp;img_etag=%22f68e0275ecfac2ae327b821a2eba4897%22&amp;size=2560)](https://spark.adobe.com/page/nClLjJ78sWs2y/images/e53bb0f8-2a00-4bc1-a39b-649a18d39b28.jpg?asset_id=94ee2057-c0ee-4842-aa21-1c251c9413a0&amp;img_etag=%22f68e0275ecfac2ae327b821a2eba4897%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/LxEsUGzlKsGJe/images/dbd4ee2f-dba0-4cb5-94ff-720571bacfcc.jpg?asset_id=66905898-2492-49e0-98f8-87fb17198d8f&amp;img_etag=%22eaab3c8bf992fb64511410f656dbeb79%22&amp;size=2560)](https://spark.adobe.com/page/LxEsUGzlKsGJe/images/dbd4ee2f-dba0-4cb5-94ff-720571bacfcc.jpg?asset_id=66905898-2492-49e0-98f8-87fb17198d8f&amp;img_etag=%22eaab3c8bf992fb64511410f656dbeb79%22&amp;size=1024)
 
-他們因被控與去年香港的反政府抗議活動有關，而被關押在中共國城市深圳。
+《華盛頓自由燈塔》上個月報導了中共國如何利用在聯合國等多邊組織中的權威地位來轉移外界對其侵犯人權行為的擔憂。最近，在新冠疫情爆發早期，中共國利用其與世界衛生組織的關係來減少大家對北京的指責。
 
-香港警方官員何鎮東(Ho chun-Tung)駁斥了有關香港警方參與逮捕這12人的指控。
+前聯合國大使尼基·黑利(Nikki Haley)告訴《自由燈塔》：“中共國一直在幕後操控，以獲得更大的全球影響力，這在聯合國尤其如此，無論是分散他們對自己人權侵犯的注意力，操縱以控制聯合國的機構，還是欺負弱小國家為它們投票。”
 
-何補充道：在大陸的逮捕行動與香港警方沒有任何關係。
+川普政府在2018年讓美國退出人權理事會，理由是該組織對侵犯人權者的保護以及對以色列的長期偏見。然而，民主黨在2020年的國家綱領中呼籲美國重新加入人權理事會。在自由燈塔8月份發布的一份報告之前，拜登的競選團隊對中共國侵犯西藏人權的問題也沒有任何訴求。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/nClLjJ78sWs2y/images/ebae846d-810f-43fc-a230-4c5d804eb70f.jpg?asset_id=080c5693-ec6c-41df-baf6-d2fe95694482&amp;img_etag=%22ef9bb5b3bf570083147e28a5f32ace8e%22&amp;size=2560)](https://spark.adobe.com/page/nClLjJ78sWs2y/images/ebae846d-810f-43fc-a230-4c5d804eb70f.jpg?asset_id=080c5693-ec6c-41df-baf6-d2fe95694482&amp;img_etag=%22ef9bb5b3bf570083147e28a5f32ace8e%22&amp;size=1024)民運人士黃之鋒、鄒家成和8月在海上被捕、現被扣留在大陸的12名香港民運人士的家屬，週四在香港抗議活動後對記者講話。 (路透社圖片)
+[原文鏈接](https://freebeacon.com/national-security/human-rights-groups-protest-chinas-bid-for-u-n-human-rights-council/)
 
-警方亦檢獲50萬港幣現金、電腦、手機及與購買船隻相關的文件。
-
-幫助香港公民獲得簽證的台北活動人士告訴路透社，從抗議活動開始的最初幾個月，人們開始逃離香港，前往自治的台灣，其中大多數人是合法乘坐飛機，但也有一些人乘坐漁船。
-
-香港當局說，被拘留者將由他們自己選擇的內地律師代表，儘管是來自中共國當局提供的一份名單。
-
-香港當局說，已經為他們的家人提供了“必要和可行”的援助，並將繼續提供。
-
-[原文鏈接](https://www.theguardian.com/world/2020/oct/10/hong-kong-police-arrest-nine-people-suspected-of-aiding-fleeing-activists)
-
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/nClLjJ78sWs2y/)
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/LxEsUGzlKsGJe/)
 
 0

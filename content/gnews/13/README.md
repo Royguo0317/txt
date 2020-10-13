@@ -1,38 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 警惕中共國和俄羅斯的“非常規戰爭”
-`2020-10-12 15:38 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/420292/)
+## 南海美麗的珊瑚礁慘遭中共永久毀壞
+`2020-10-12 17:00 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/420306/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/12151059/10122.png)*圖片來自：asiatimes.com*
-《國會山報》（THE HILL）10月11日發表了肖恩·麥克法特（Sean McFate）署名文章稱，上週，在世界焦點都還集中在美國總統辯論中爭論的稅收、最高法院法官任命、白宮病毒感染等一系列主題時，大家都忽略了一個重要事件，就是國防部正式公佈解密版的《 2018年國防戰略之非常規戰爭附件概摘要》。該戰略告訴美軍，下一場戰爭十有八九是“非常規”，美軍應如何做好準備並贏得勝利。
+*新聞來源：Breitbart《布賴特巴特》；作者：GABRIELLE REYES；發佈時間： 2020年10月7日*
 
-麥克法特是大西洋理事會的高級研究員，著有《戰爭新規則：美國如何取勝–對抗俄羅斯、中國和其他威脅》（2019）等五本書。他是喬治城大學的戰略教授，也是牛津大學技術與全球事務中心的顧問，曾在美國陸軍第82空降師服役，之後擔任私人軍事承包商和軍事顧問。
+*翻譯/簡評：Cathy r；校對：感恩；審核：InAHurry；Page：拱卒*
 
-**美國面臨的下一場戰爭一定是非常規戰**
+[!\[\]()!\[\](https://spark.adobe.com/page/JyktTL7ukKbtw/images/8a20bcf9-2273-470e-81e3-f97ead777fcd.jpg?asset_id=9b4329bb-1297-4114-966a-1513f2cbf402&amp;img_etag=%22e38f8648fa7beaa6699ab022251d06f8%22&amp;size=2560)](https://spark.adobe.com/page/JyktTL7ukKbtw/images/8a20bcf9-2273-470e-81e3-f97ead777fcd.jpg?asset_id=9b4329bb-1297-4114-966a-1513f2cbf402&amp;img_etag=%22e38f8648fa7beaa6699ab022251d06f8%22&amp;size=1024)
 
-軍方使用諸如“非常規”，“非傳統”，“非對稱”，“混合”和“灰色地帶”之類的術語來描述與“常規”戰爭不同的其他戰爭形式。根據軍事理論家卡爾·馮·克勞塞維茨（Carl von Clausewitz）和“戰爭法則”（Laws of War）所述，“常規”戰爭表現為國與國之間的武裝衝突，士兵像角斗士一樣為世界的命運而戰，參與戰鬥的人員要穿軍裝，有愛國熱情並遵守和平條約。
+**簡評：**
 
-現在除了美國沒人再進行這種常規戰了，難怪阿富汗戰爭是美國歷史上持續時間最長的戰爭。自1945年以來，絕大多數武裝衝突都是“非常規”的，要么是試圖推翻政府的叛亂，要么是打擊綁架國家的毒梟的毒品戰爭，或是種族滅絕的種族鬥爭，以及對抗希望毀滅世界的恐怖分子戰爭。二戰以來的數百次武裝衝突中，常規戰爭有: 朝鮮戰爭、阿拉伯-以色列戰爭、印度-巴基斯坦戰爭、福克蘭群島戰爭等等。
+中共國不斷在南海建立軍事島礁是以珊瑚礁為基礎在其上進行挖掘，而中共國逐利的挖蛤行業也是大規模的破壞珊瑚礁，因此到現在已有100平方英里的珊瑚礁被永遠的毀掉了。實際上2016年海牙國際仲裁法庭就已駁回中共國近90%的海域的領土主張，但中共國仍繼續非法推行它的軍事活動。由於沒有製裁機制，中共國一直為所欲為，國際社會規則不變革是不行了。
 
-《2018年國防戰略》的重大意義的是將美軍的打擊重點從恐怖份子轉向具有威脅性的國家（中共國和俄羅斯），五角大樓稱之為“大國競爭”。但問題是大多數專家認為美中/或美俄之間的戰爭將是一場常規戰爭，但其實常規戰爭已經過時，許多國家安全界人士則認為下一次戰爭將是一場技術型更強的二戰。任何認為“大國競爭”將是一場常規戰爭的人都被唬弄了。美國的對手知道只要與美軍隊做傳統戰爭中的正面交鋒，無疑是一種有組織的破腹自殺。但他們也知道美軍也苦惱於非常規戰爭，美軍在越南、伊拉克和阿富汗的參戰就是很好的證明。
+## **海洋生物學家：中共國’永遠’抹去了南海的珊瑚礁**
 
-**美國應積極應對中國和俄羅斯的非常規戰**
+[!\[\]()!\[\](https://spark.adobe.com/page/JyktTL7ukKbtw/images/b2c49ddb-c5dd-4f50-b570-bab607610ffe.jpg?asset_id=ffa12ef0-b8a6-4154-b215-d163693bd018&amp;img_etag=%22da699bd4ab923ece662a349a1f587820%22&amp;size=2560)](https://spark.adobe.com/page/JyktTL7ukKbtw/images/b2c49ddb-c5dd-4f50-b570-bab607610ffe.jpg?asset_id=ffa12ef0-b8a6-4154-b215-d163693bd018&amp;img_etag=%22da699bd4ab923ece662a349a1f587820%22&amp;size=1024)
 
-由於這一點，應預見到中共國和俄羅斯用非常規戰爭策略來對付美國。俄羅斯這在掌握這種戰爭方式。自冷戰以來，他們首次在中東和非洲發動遠征行動，而且完全是通過非常規戰做法進行。在烏克蘭也是如此，俄羅斯與Spetsnaz特種部隊、瓦格納集團、”小綠人”等僱傭兵以及親俄的”分裂”組織發動了一場影子戰爭，所有這些都是非常規模式下的戰士。坦克部隊和驅逐艦隊等正規軍事單位是在克里米亞被攻占後才抵達的。
+**一位海洋生物學家和海洋專家週一對自由亞洲電台(RFA)說，由於中共國非法在南海珊瑚礁上建立軍事基地，一些珊瑚礁已“永久性地消失”。**
 
-中共國的情況更為微妙。它有傳統型的軍隊，但那並不是用來進行征服的。中共國用“一帶一路”倡議的經濟強國戰略，通過設置債務陷阱在外交上取勝。例如，2015年，中共政府像黑幫老大托尼·索普拉諾(Tony soprano)一樣，將斯里蘭卡驅逐出其著名港口漢班托塔(Hambantota)。
+佛羅里達州邁阿密大學海洋生物學教授約翰·麥克馬納斯(JohnMcManus)對自由亞洲電台說“如果你在珊瑚礁上建造了東西，如果你把泥土、瓦礫和公路（堆積在珊瑚礁上）……珊瑚礁就從此再不可能恢復了”。
 
-中共國還利用惡意影響削弱對手對抗它的決心。像俄羅斯一樣，中共政府也是製造虛假信息的大師，這是中共政府所謂的“三戰策略”之一，另外還有“法律戰”，其目的是改變或改寫國際秩序的規則使之有利於中共國。這不是法治，而是對法治的顛覆。
+該報告稱“絕大多數這樣的建築是由中共國建造的，中共國2014年至2017年間對永暑礁（FieryCrossReef）、渚碧礁（SubiReef）、美濟礁（MischiefReef）、伍迪島（ WoodyIsland）和其它一些小島無恥地進行了大量的挖掘，為現在安置軍隊的人工島嶼開路”。
 
-中共國和俄羅斯通過非常規戰爭策略來實現其的征服野心，之所以有效，是因為它們會一直努力將戰爭偽裝成和平，這是一種“慢火煮青蛙”的方法，克里米亞人或斯里蘭卡人飽受其害，非常規戰爭讓取得勝利之路模糊不清，這也是讓傳統戰爭中得戰士崩潰的事情。
+[!\[\]()!\[\](https://spark.adobe.com/page/JyktTL7ukKbtw/images/075b7d92-82ac-4baf-960d-e23afdac5ada.jpg?asset_id=702d0941-034b-421f-bd71-310b0c8c354c&amp;img_etag=%22adabe26d3fb2d111c6f40d2d4cdd09c3%22&amp;size=2560)](https://spark.adobe.com/page/JyktTL7ukKbtw/images/075b7d92-82ac-4baf-960d-e23afdac5ada.jpg?asset_id=702d0941-034b-421f-bd71-310b0c8c354c&amp;img_etag=%22adabe26d3fb2d111c6f40d2d4cdd09c3%22&amp;size=1024)永暑礁（FieryCrossReef）
 
-人們甚至會問，美國是否已經與俄羅斯和/或中共國開戰但卻還蒙在鼓裡？正如勞倫斯(TE Lawrence)所說， “非常規戰爭遠比刺刀衝鋒槍更有智慧。” 非常規戰爭是最常見的武裝衝突，五角大樓早就該採取應對措施了。
+[!\[\]()!\[\](https://spark.adobe.com/page/JyktTL7ukKbtw/images/0fc7b895-9f0b-46ab-8c9c-618ba39dc3f5.jpg?asset_id=ac351f4a-15b6-4c92-9592-b7a6ae9f939c&amp;img_etag=%22ea8678c3a33f4cc6ad48c90c65400b20%22&amp;size=2560)](https://spark.adobe.com/page/JyktTL7ukKbtw/images/0fc7b895-9f0b-46ab-8c9c-618ba39dc3f5.jpg?asset_id=ac351f4a-15b6-4c92-9592-b7a6ae9f939c&amp;img_etag=%22ea8678c3a33f4cc6ad48c90c65400b20%22&amp;size=1024)渚碧礁（SubiReef）
 
-[原文鏈接](https://thehill.com/opinion/national-security/519948-irregular-warfare-with-china-russia-ready-or-not-its-coming-if-not)
+[!\[\]()!\[\](https://spark.adobe.com/page/JyktTL7ukKbtw/images/827f841a-cfc9-4940-9fcb-173a408c5dc9.jpg?asset_id=6a5686eb-f021-4ea1-a10a-2213e55cd085&amp;img_etag=%22724d9c0d3c83745c98394d8af77e7b17%22&amp;size=2560)](https://spark.adobe.com/page/JyktTL7ukKbtw/images/827f841a-cfc9-4940-9fcb-173a408c5dc9.jpg?asset_id=6a5686eb-f021-4ea1-a10a-2213e55cd085&amp;img_etag=%22724d9c0d3c83745c98394d8af77e7b17%22&amp;size=1024)美濟礁（MischiefReef）
 
-翻譯：Alton
+[!\[\]()!\[\](https://spark.adobe.com/page/JyktTL7ukKbtw/images/4938aabb-bc36-4644-a3f5-acb60ce2589e.jpg?asset_id=02c35ddd-565e-434f-a70e-816b0736bb07&amp;img_etag=%223d3e48a338618c16cd6d7cda6b0dc9d2%22&amp;size=2560)](https://spark.adobe.com/page/JyktTL7ukKbtw/images/4938aabb-bc36-4644-a3f5-acb60ce2589e.jpg?asset_id=02c35ddd-565e-434f-a70e-816b0736bb07&amp;img_etag=%223d3e48a338618c16cd6d7cda6b0dc9d2%22&amp;size=1024)伍迪島（WoodyIsland）
 
-校對：Sarathecat
+永暑礁、渚碧礁和美濟礁屬於有爭議的南沙群島。這三個珊瑚礁的主權首要是由菲律賓聲稱擁有，但同時，中共國也聲稱擁有其主權。同樣的爭議也發生在伍迪島所屬的帕拉塞爾群島的主權問題上（ParacelIslands），此島主要由越南聲稱擁有，但中共國也爭奪該島嶼的控制權。
+
+自由亞洲電台指出，北京聲稱已在2017年停止在有爭議的海域進行大規模改造，但最近的“衛星圖像顯示，中共國仍在南海的部分區域繼續施工”。
+
+該報告稱，“中共國在帕拉塞爾群島的主要軍事基地伍迪島西北部的一個新的珊瑚礁區域拆除和挖掘，為一個未知的結構開路。自4月初以來，在該區域上定期發現建築設備。”
+
+對南海的另一個主要威脅是北京在此海域大規模捕撈巨大的蛤蜊的行為。根據亞洲海事透明度倡議(AMTI)，中共國使用的是一種生態破壞的方法來收穫瀕危蛤蜊。
+
+“這些偷獵者使用的典型方法是錨定他們的船，然後拖動他們的舷外馬達的加固道具穿過珊瑚礁表面，將珊瑚打破，以便很容易被拉出蛤蜊。”亞洲海事透明度倡議2019年5月報導。
+
+該組織透露：“自2018年末以來，衛星圖像顯示，這些船隊經常在黃岩島（ScarboroughShoal） （主要由菲律賓聲稱擁有)和整個帕拉塞爾群島包括浪花礁（Bombay Reef ）活動。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/JyktTL7ukKbtw/images/c3fb12f7-56b7-4887-b379-4ec32fa327c7.jpg?asset_id=b5d4ecd0-d0fc-4dbd-86f8-cc224eeb729a&amp;img_etag=%224e87d2d0cc7dcc14144d02139e025d41%22&amp;size=2560)](https://spark.adobe.com/page/JyktTL7ukKbtw/images/c3fb12f7-56b7-4887-b379-4ec32fa327c7.jpg?asset_id=b5d4ecd0-d0fc-4dbd-86f8-cc224eeb729a&amp;img_etag=%224e87d2d0cc7dcc14144d02139e025d41%22&amp;size=1024)黃岩島（ScarboroughShoal）
+[!\[\]()!\[\](https://spark.adobe.com/page/JyktTL7ukKbtw/images/ebc04d17-a951-46cd-96ef-1390759d8c6f.jpg?asset_id=49b8bca8-d5a9-4685-971f-8c02c6bbaa90&amp;img_etag=%221a8e265252efed7d5cabf5e0101bdbdf%22&amp;size=2560)](https://spark.adobe.com/page/JyktTL7ukKbtw/images/ebc04d17-a951-46cd-96ef-1390759d8c6f.jpg?asset_id=49b8bca8-d5a9-4685-971f-8c02c6bbaa90&amp;img_etag=%221a8e265252efed7d5cabf5e0101bdbdf%22&amp;size=1024)浪花礁（Bombay Reef ）
+麥克馬納斯週一對自由亞洲電台說，中共國漁民“僅用兩隻巨大的蛤蜊就能掙1000美元左右，這些蛤蜊是在一層類似水泥的珊瑚層中發現的”。
+
+他補充說，“幾乎所有在南海的捕魚船隊都來自中共國南部城鎮潭門（Tanmen）的捕魚船隊，在潭門，蛤蜊殼貿易是當地經濟的關鍵。”
+
+麥克馬納斯估計，南海“100平方英里的珊瑚礁已經被（中共國的）基建和蛤蜊捕獵所破壞”。
+
+麥克馬納斯是一位專注的研究人員，20世紀90年代以來一直在研究海洋的生物多樣性。他向海牙2016年仲裁法庭提交了專家證詞，該法庭裁決了菲律賓就中共國侵占南海一案提起的訴訟。
+
+除了裁定北京對近90%的海域的領土主張沒有法律依據外，獨立法庭還根據麥克馬納斯的證詞認定，“中共國違反了國際法規定的保護海洋環境的義務”。亞洲海事透明度倡議稱，這位海洋生物學家提交了證據，記錄了“截至2016年，由於中共國蛤蜊的開採，對淺礁表面造成了25,000多英畝的破壞(相比之下，大約15,000英畝因挖掘和填埋活動而受損，以建造中共國的人工島嶼）。
+
+北京拒絕了2016年國際法院的裁決，並從那時起繼續推進其在南海的非法主權主張。
+
+在上個月的聯合國大會上，菲律賓和越南呼籲中共國遏制其在南海的非法活動，並敦促各國在爭議很大的海域遵守國際法。兩國領導人都援引《聯合國海洋法公約》(UNCLOS)，該公約根據國際法規定了海上行為準則。菲律賓總統羅德里戈·杜特爾特（RodrigoDuterte）在講話中特別提到了根據《海洋法公約》設立的2016年國際法庭及其裁決，該裁決駁回了北京對大部分海域的主張，認為其為非法。
+
+[原文鏈接](https://www.breitbart.com/asia/2020/10/07/marine-biologist-china-forever-erased-coral-reefs-in-south-china-sea/)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/JyktTL7ukKbtw/)
 
 0
