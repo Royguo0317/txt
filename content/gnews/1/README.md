@@ -1,39 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【台灣新聞】中共心慌慌，教書的也可以變台諜
-`2020-10-13 02:53 TaiwanFarm` [轉載自GNews](https://gnews.org/zh-hant/420787/)
+## 【世界多語言圖文】2020/10/07 CCP病毒每日疫情直播簡報
+`2020-10-13 07:14 GM62` [轉載自GNews](https://gnews.org/zh-hant/421052/)
 
-作者 台灣農場 zhong
+戰友之家圖文摘要及小語種組
 
-相關新聞連結：[https://www.cna.com.tw/news/firstnews/202010120326.aspx](https://www.cna.com.tw/news/firstnews/202010120326.aspx)
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13024217/%E5%9C%96%E5%8F%96%E8%87%AAweibo.comcctvxinwen.jpg)圖片取自圖取自weibo.com/cctvxinwen
-**背景事實簡要：**
+[256\_English\_1007\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064908/256_English_1007_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064908/256_English_1007_CCP_Virus_Updates.pdf)
 
-台灣籍學者鄭宇欽，2019年4月入境中國時因涉「間諜罪」被逮，目前被羈押在何處，尚無人得以確定。
+[256\_French\_1007\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064843/256_French_1007_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064843/256_French_1007_CCP_Virus_Updates.pdf)
 
-10/12日時，中共官媒以慣用的電視認罪手法大內宣該名台籍學者為「台諜」，並大肆炒作台諜議題，圖謀不軌。
+[256\_German\_1007\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064858/256_German_1007_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064858/256_German_1007_CCP_Virus_Updates.pdf)
 
-鄭宇欽在電視播放的被認罪影片當中，大量使用「中國」兩字，並未被要求替換為大陸，被外界認為是共產黨刻意凸顯「台獨立場」，欲加諸罪行於鄭宇欽，同時更深化兩岸對立情勢。
+[256\_Korean\_1007\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064850/256_Korean_1007_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064850/256_Korean_1007_CCP_Virus_Updates.pdf)
 
-節目聲稱，鄭宇欽為曾在捷克任教的台籍教師，在捷克任教期間，被捷克、台灣雙方吸收成為情治單位人員。因此，被共產黨定義為「對祖國大陸進行情報滲透破壞的重要支點」。
-
-**個人觀點：（以下僅為個人觀點，並不代表台灣農場、gnews）**
-
-台灣在國際上的關係，日漸明朗，且外交困境也逐一破除。從過去幾個月來，歐洲、美國各層級官員訪台可以看出，台灣國際地位在美國領導的全球滅共運動下，爆發性成長。
-
-但台灣國際地位攀升，是共產黨最不想看到的情形。因此，共產黨在各方面意圖利用金錢、威嚇的方式，以各種方法希望促使國際採取不利於台灣的行為。可惜，全球滅共之心堅定不可移，因此共產黨欲動用國際關係排擠台灣招數已經破滅。
-
-既然串通外界力量共同打壓台灣的方案不可行，那內部力量來威嚇、打壓台灣成為上上之策。因此，共產黨使出一貫手法，從無端被抓取的台灣人民開刀，逼迫以電視認罪手法來大內宣，希望引起牆內攻下台灣的民意躁動，並以此為理由作為武力侵擾台灣的藉口。
-
-台灣人民過境被共產黨抓走、政治迫害非無先例，且非在少數。直到現在仍然會發生台灣人民過境被共產黨定義為政治罪犯，而被剝奪人身自由、生死未卜的情形發生。
-
-同時，電視認罪的手法更是層出不窮。前幾年，台灣在韓國發展的藝人周子瑜，也成為共產黨政治迫害的受害人之一，該風波引起全球譁然。
-
-至於，本案當事人是否真為台諜，無從所知。但是其所受的羈押，肯定屬於共產黨追求政治利益的政治迫害，應屬無疑。
-
-台灣與世界逐漸接軌，造成共產黨極度恐慌，千方百計希望威嚇台灣、世界，來實現共產黨追求的政治目的。然而，蔡政府仍然堅強面對共產黨的惡行。雖然蔡政府可能在某些行政行為、發言上面，被外界認為是有所退縮。但是退縮立場，筆者認為並非懦弱，而是希望保全台灣人民的安全，因此退縮。
-
-此時此刻，攸關共產黨存亡之際，難保共產黨不會採取更為激進的作法，迫害台灣、世界秩序。但正義必勝，邪惡必亡，希望世界的和平不會因為共產黨而有所損失。而台灣作為中華文化火種，必須要安全。香港淪為人間煉獄數月，為爭取回復原有的民主、法治、自由，一定會成功。同時，大陸也將迎來屬於自己的民主、法治，並且兩岸三地也必定拋棄「政治上利益」，共榮中華文化，以華人血統榮耀，和平參與國際社會運作的秩序當中，不在淪為笑柄。
+[256\_Spanish\_1007\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064903/256_Spanish_1007_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13064903/256_Spanish_1007_CCP_Virus_Updates.pdf)
 
 0
