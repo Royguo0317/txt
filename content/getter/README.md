@@ -13,6 +13,11 @@
 
 
 
+[10月13日：乖乖呀……这是弄哈呢……](/content/getter/content/2020/10/5f8657ba06847a4c65122444.md)
+
+**郭文贵MILES** `2020-10-14T01:43:22`
+##
+
 [October 13，Dear my fellow fighters, this is Miles Guo’s Declaration about G-Club...](/content/getter/content/2020/10/5f85d22d06847a4c6511ddf2.md)
 
 **郭文贵MILES** `2020-10-13T16:13:33`
@@ -156,10 +161,5 @@
 [10月1日 全球灭共大游行- 蒙特利尔现场  ](/content/getter/content/2020/10/5f786fc482371f2d5072ef30.md)
 
 **郭文贵MILES** `2020-10-03T12:34:12`
-##
-
-[10月2日：一切都已经开始！](/content/getter/content/2020/10/5f77313e82371f2d50720df0.md)
-
-**郭文贵MILES** `2020-10-02T13:55:10`
 ##
 

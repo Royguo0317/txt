@@ -1,32 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆革星評：川普連發三推 連任信心滿滿
-`2020-10-13 12:08 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/421908/)
+## 全人類的恥辱！中共國再次當選聯合國人權理事會成員！
+`2020-10-14 04:05 Ronald` [轉載自GNews](https://gnews.org/zh-hant/423219/)
 
-喜馬拉雅聯盟加拿大農場 文星（一號&大衛阿波羅）
+內新聞/素材：小黑姐（文雅）      校對：七哩香
 
-校對上傳 XM
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13120206/uqdfhlgvekgestvm107jmeey4qrmpyseors7stjnnjleivjji0aelsnzz7c63zqa.jpg)圖片來源：MIC
-川普總統使命在身，忘我工作。繼出院後連發19推讓世人唏噓外，又於10日公開與支持者見面發表《法律和秩序》的演講，12日又見三個推特發出，可見川普總統雖然年已“七十不踰矩”，仍然鬥志昂揚。
+中共國人民網刊文稱，新華社聯合國10月13日電，中國在第75屆聯合國大會上再次成功當選聯合國人權理事會成員，任期為2021年至2023年。並稱“中國一貫高度重視促進和保護人權，中國特色人權發展道路取得巨大成就”。
 
-第一個推特說，拜登今天是糟糕的一天，忘記了參議員羅姆尼的名字，還幾次說自己是在競選州參議員，也忘記了自己來自何州。這種狀態，參選總統實在沒有資格。
+- ![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/14032118/image0-1-9.jpg)
+- ![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/14032158/image1-1-1.jpg)
 
-第二個推特說，WHO承認了川普總統的決策是對的。封鎖會毀滅世界經濟，民主黨重新開放吧，紐約重新開放吧，治愈不會比問題本身更糟。這是一場長期戰爭，我們最終會勝利。
+**香港反送中運動被暴力鎮壓的百姓和學生**
+首先我們來看下這個聯合國人權理事會的相關歷史：
 
-弟三個推特說，今晚弗羅里達偉大的集會，儘管擁擠，但忠誠的人民會贏得勝利。明晚的濱州也會如此，經濟正在恢復，我們正走在勝利的路上。
+聯合國人權理事會（United Nations Human Rights Council）是聯合國大會的下屬機構，總部設在瑞士的日內瓦。其目標是致力於維護各國人權免於侵害。
 
-可以看出，川普總統的精神狀態非常之好，而且繼續延續著一個強者的風格。特別是，至今他已經基本全部兌現了第一個任期內對選民的承諾。選民有理由相信，如獲連任，川普總統的第二任期會更加精彩。
+人權理事會成員由聯大秘密投票產生，候選國必須獲得聯大全體成員國的過半數支持（即至少96票）方能當選。理事會的成員基於公平地域分配原則，席位分配如下：非洲國家：13席；亞洲國家：13席；拉丁美洲和加勒比海國家：8席；西歐和其他國家：7席；東歐國家：6席。
 
-參考鏈接：
+2018年6月19日，美國官員宣布美國退出聯合國人權理事會。
 
-> Great Florida Rally tonight. Big crowd, lot of enthusiasm (you win races with enthusiasm). Just got back. Tomorrow night it’s off to Pennsylvania and another BIG crowd. We are winning. Economy is starting to boom. Good timing!!!
-> — Donald J. Trump (@realDonaldTrump) [October 13, 2020](https://twitter.com/realDonaldTrump/status/1315868183459508226?ref_src=twsrc%5Etfw)
+2018年6月20日，俄羅斯常駐聯合國代表團表示，俄羅斯已經申請成為聯合國人權理事會2021-2023屆成員國。
 
-> The World Health Organization just admitted that I was right. Lockdowns are killing countries all over the world. The cure cannot be worse than the problem itself. Open up your states, Democrat governors. Open up New York. A long battle, but they finally did the right thing!
-> — Donald J. Trump (@realDonaldTrump) [October 12, 2020](https://twitter.com/realDonaldTrump/status/1315769883318124544?ref_src=twsrc%5Etfw)
+2018年7月13日，聯合國大會補選冰島為聯合國人權理事會成員。
 
-> Sleepy Joe Biden had a particularly bad day today. He couldn’t remember the name of Mitt Romney, said again he was running for the U.S. Senate, and forgot what State he was in. If I did any of this, it would be disqualifying. With him, he’s just Sleepy Joe!
-> — Donald J. Trump (@realDonaldTrump) [October 12, 2020](https://twitter.com/realDonaldTrump/status/1315761783177576450?ref_src=twsrc%5Etfw)
+中共國曾4次當選聯合國人權理事會成員，分別是2006年—2009年；2009年—2012年（191個國家出席，167票當選）；2014–2016（176票當選）； 2017年—2019年。今年又再次當選，任期為2021年至2023年。
+
+我們再來看看中共國的人權狀況：
+
+眾所周知，牆內人民一直被代表，從來沒選票，更無人權可言！中共國的人權狀況也長期遭到西方文明國家的指責和詬病！
+包括：打壓異見人士和人權活動人士；宗教迫害，尤其是長期對法輪功學員的迫害、活摘器官等暴行；對藏族、維族、蒙族等少數民族的長期歧視和迫害，建造現代化的納粹集中營關押數百萬新疆人。
+
+中國的死刑數量超過全世界其他國家的總和，其中每年有成千上萬異見、人權活動人士被執行死刑，諾貝爾和平獎獲得者劉曉波冤死獄中；六四天安門大屠殺；控制媒體網絡，建造”防火牆”，阻止人們知曉真相；民間獨立的工會在中國是非法的，罷工和遊行即面臨恐嚇和被捕的威脅；沒有生育權，臭名昭善的計劃生育政策導致各種人道災害；等等。
+
+- ![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/14032347/image2-4.jpg)中共暴力鎮壓香港反送中運動
+- ![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/14032333/image0-26.jpg)新疆集中營事件（中共所謂的對新疆百姓的思想教育）
+- ![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/14033629/6538869_7.jpg)中共使用坦克車對八九六四學生運動的鎮壓
+- ![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/14033643/17665116_101.jpg)中共對八九六四學生運動的暴力鎮壓
+- ![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/14033659/chenguang-800x533-600x400-1.jpg)中共對八九六四學生運動的暴力鎮壓
+- ![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/14033850/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2020-10-14-153713.jpg)中共國八九六四學生和平抗議遊行！
+- ![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/14033904/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2020-10-14-153801.jpg)中共坦克車鎮壓八九六四學生的和平抗議運動！
+
+以上事件僅僅是中共踐踏人權的冰山一角
+還有楊改蘭，馬加爵，藥家鑫，“紅黃藍”幼兒園，各種虐童性侵事件，癌症村，毒河流，毒空氣，毒奶粉，毒疫苗，毒食品，等等，數不勝數，罄竹難書。特別是針對香港反送中運動中的民主人士和學生，進行了慘絕人寰的抓捕和迫害，震驚世界！如今又故意放毒，荼毒生靈，把整個世界拖入至暗深淵！
+
+中共國這樣的國家還能繼續當選聯合國人權理事會成員，聯合國被藍金黃到什麼地步？這個世界腐敗黑暗到什麼地步？讓這樣一個踐踏本國和全世界人民人權的國家當選，聯合國人權理事會就是一個給中共恐怖組織提供保護的組織！
+
+中共國再次當選聯合國人權理事會成員是全人類的恥辱，全世界的悲哀！
+
+新聞來源： [http://world.people.com.cn/n1/2020/1014/c1002-31890836.html](http://world.people.com.cn/n1/2020/1014/c1002-31890836.html)
 
 0
