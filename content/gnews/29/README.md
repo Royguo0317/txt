@@ -1,121 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄羅斯全網沸騰！持續滾動報導拜登家族“硬槃門”醜聞
-`2020-10-15 19:10 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/426764/)
+## 郭爆料串珠（八十三）石正麗級別太低，作用太小，啥也不知道，她要是知道早就被殺了
+`2020-10-15 22:31 GM99` [轉載自GNews](https://gnews.org/zh-hant/426894/)
 
-喜馬拉雅聯盟加拿大農場 熊媽媽
+#### **整理：戰友之家文迅等**
 
-校對 小鷗 上傳 XM
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/15185827/%D0%A4%D0%91%D0%90-1.jpeg)圖片來源：ФБА
-美國《紐約郵報》10月14日開始，連續爆出民主黨總統候選人喬·拜登及其家族的驚天醜聞“硬槃門”，俄羅斯主流媒體不敢對如此敏感政治問題做評價，卻立刻全網持續跟進報導，中央一套電視節目全天滾動大篇幅發布相關新聞。新聞說喬·拜登直接謊言、對其他國家領導人施加壓力和直接敲詐。針對此事，美參議院的共和黨人正在展開調查，涉及喬·拜登出於個人目的的利益遊說。
+*郭爆料串珠系列文章，都是從700多篇郭文貴先生直播聽寫文字版、蓋特精選而成，具有文獻價值。由戰友之家文迅等按時間、主題整理。感謝戰友聽寫！*
 
-《紐約郵報》爆出的主要是喬·拜登任性的兒子亨特·拜登的秘密電子郵件，無異於為美國的總統大選火上加油，爆出的所謂的“烏克蘭事件”的新細節給民主黨的總統候選人蒙上了陰影。
+**標題簡述：
+2020年5月2日，郭先生說：第二個這兩天熱鬧的不得了，說跑到歐洲的是石正麗。我告訴大家你們太小看文貴和爆料革命了，啥時候了還談石正麗呢？輪得着她嗎？石正麗要跑來，我們連一個早餐都不會讓她免費喫。因爲她的級別太低了，她起的作用太小了，有用嗎？沒用，你們太小看我們爆料革命了，還猜什麼石正麗，還有孫力軍。
+2020年5月4日，郭先生說：跑出來的不是郭德銀也不是石正麗。不止一個，跑出來5個人。路德經歷了1或2個人，另外3個全世界只有我知道。石正麗啥也不知道，她知道早就被kill了。我們要的是直接參與和下命令者，另外一個肩頭帶星。大家別多想，最近中共北部戰區可能有大變化，我們這也將有大動作。歐洲首相病好後說後悔啊，很慘。**
 
-特別是，亨特·拜登在2014年2月從葉蓮娜·巴圖琳娜（Elena Baturina）那裡獲得了350萬美元，以幫助她的兄弟進入美國開發市場。還有在喬∙拜登擔任奧巴馬政府副總統期間，烏克蘭天然氣公司布利斯瑪股份有限公司（Burisma Holdings）每月向他的兒子亨特·拜登支付5萬美元。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/15222223/83_Cover.png)
 
-亨特·拜登的電腦在拜登老家特拉華州一家服務中心進行維修，隨即電腦上的照片連同亨特的電子郵件一起洩漏給了媒體。拜登一家住在那裡。亨特·拜登6個月沒去服務中心取回電腦，隨即服務中心老闆將筆記本電腦交給了聯邦調查局（之前已經復制了所有文件）。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/15185841/amarok-man.livejournal.jpg)圖片來源：amarok-man.livejournal
-從亨特的通信往來中可以得出，喬∙拜登在華盛頓會見了烏克蘭布利斯瑪公司董事會的瓦迪姆·波扎爾斯基（Vadim Pozharsky）。波扎爾斯基在信中說：“親愛的亨特，感謝您邀請我來華盛頓，並提供與您父親見面並度過一段時間的機會。”
+**2020年2月2日**
+共產黨西陸這次，發出這些郭德銀的文章。我請戰友們，好好的想一想，是誰說出的一個姓郭的是這個病毒最重要的人物。全人類只有郭文貴知道，全人類。爲什麼我知道王岐山在11月份在廣州換腎，換完腎又去了武漢。到了武漢見了誰，爲什麼軍人跟他一起去的。我都懷疑他這次去武漢有多少中央的人知道，但是我們掌握了這個核心的祕密。郭德銀是這個事情的最關鍵人物，石正麗算個什麼呀，輪不着她。
 
-這次會議七個月後，喬·拜登飛往基輔，並要求解僱懷疑布利斯瑪有財務欺詐行為的烏克蘭司法部長。令人信服的是，喬∙拜登進行了勒索。他威脅說，如果他的要求得不到滿足，他將剝奪對烏克蘭的財政援助。喬·拜登說：“我要在6個小時後離開。如果檢察官沒有被解僱，你們將不會收到錢。這個狗娘養的就被解雇了。”
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/15190024/tk.media_.jpg)圖片來源：tk.media
-一切似乎都是顯而易見的，政治人物利用他的職位向烏克蘭政府施加了壓力。對於像美國川普總統這樣不存在任何違法行為的，民主黨人卻彈劾了他。川普總統被指控在與烏克蘭總統弗拉基米爾·亞歷山德羅維奇·澤連斯基（Volodymyr Oleksandrovych Zelensky）的通話中對澤連斯基施加壓力。藉此，喬·拜登卻擺脫了對其他國家領導人施加壓力和直接敲詐這事的負面影響。喬∙拜登支持者稱這些指控為俄羅斯的虛假信息、川普競選總部的陰謀。
+**2020年2月3日**
+郭德銀在2017年、18年、19年，是王岐山見的最多的人之一，見得最多人之一。爲什麼沒人知道郭德銀呢？頭兩天我直播時候說過，我說記住啊，我說有一個姓郭的是這裏最關鍵的，有個姓郭的，跟我們老郭家有關係，誰知道有個姓郭的。誰知道有個姓郭的，是這件事情的製造者。
 
-喬∙拜登競選總部的發言人安德魯·貝茨(Andrew Bates)表示，“我們分析了正式的喬∙拜登當時的日程，沒有《紐約郵報》提到的會見。”
+**2020年3月7日**
+只要是兩會沒開，（只要）共產黨的人沒把口罩摘下來，只要是國際上沒有正式認爲中國疫情已經下滑，你們千萬別出來。什麼時候出來很簡單，共產黨兩會開了，不戴口罩了。這個共產黨所有官員去湖北不再演戲了，而不是估計這兩天習近平要去，聽說要去，要到百步亭去了，別在那揮揮手就走。那不行，你得摘口罩密切接觸。領導（到）他那個級別已經到了最高級的防範了，防核武的級別了。防化學院劉國勝要親自去了，石正麗、郭德銀、王岐山、孟建柱，楊娘娘這些人都真到了，而且跟大家握手擁抱。而且在武漢那些樓上被鎖着門的人都下來了，你就結束（防範）了。希望這一天早日到來。只要樓上人沒下樓，只要這些領導沒有摘口罩，只要兩會沒召開，只要國際上沒有認可，你就別出來。什麼復工、返工都是胡扯的。活着比什麼都重要。海外戰友千萬要記住，海外大爆發絕對沒開始呢。我從星期一開始起，我要仨地方，水上我要活動，山上活動，還有地下室，完全絕緣狀態，因爲我要迎接着最壞時刻的到來。
 
-看看這就是喬·拜登本人之前在對話中所說的：“副總統先生，您與您的兒子討論過幾次他在國外的事務？”“我從未與他討論過他的事務。 ”
+**2020年3月16日**
+郭文貴是人類上第一個爆料武漢病毒是生化武器的，每次都告訴大家下一步的發展。郭德銀郭德銀郭德銀，石正麗那是狗屁不算。郭德銀郭德銀郭德銀，王岐山王岐山，孟建柱孟建柱，孫力軍孫力軍，吳徵吳徵，上海幫上海幫。
+……
+新的鴉片戰爭，這是叫什麼？冠狀病毒戰爭。就像當年英國去了，你殺了我一個英國人，你燒我的，林則徐你燒我的大煙，你撕毀了合同，我現在找你要人。所以說就打起來了，這些國家全來了，這回一定是這個結局。你不是說這是感冒嗎，你不是說這個過了夏天就好嗎，你不是說不用戴口罩嗎，你不是說這個病就是來自美國大兵嘛。武漢實驗室怎麼回事兒？石正麗怎麼回事兒？郭德銀怎麼回事兒？王延軼怎麼回事兒？到底這蝙蝠是咋回事兒？穿山甲咋回事兒？
 
-但是披露的信件證明這恰恰相反。在亨特∙拜登加盟布利斯瑪董事會後不久，波扎爾斯基想知​​道他如何利用自己的影響力來幫助公司。亨特∙拜登本人在與合夥人討論父親去烏克蘭旅行時，稱波扎爾斯基為“我的人”。
+**2020年3月21日**
+所以說，我相信很快的西方，包括美國，會有霹靂行動。我是前天發郭文說，我說相信美國會有行動，紐約lock down，美國lock down。接下來，你說美國人，和歐洲人，和全世界人死那麼多人，就不想鬧清楚誰讓他們死的人？到底是，來自於穿山甲，還是來自蝙蝠，還是來自於你的P4實驗室，石正麗、郭德銀，王延軼？這得搞清楚。你馬雲送口罩，送肺呼吸機，你覺得美國人就買你賬了麼？你覺得美國死這些人，受到的傷害就拉倒了麼？我不相信。
 
-大多數美國媒體都忽略了這個新的醜聞。 Facebook和Twitter採取了前所未有的手段——他們限制了在其平台上對《紐約郵報》發布關於亨特∙拜登的新聞的訪問。 Facebook發言人安迪∙斯通（Andy stone）表示，這是由於需要對文章進行事實檢查；Twitter解釋說，該出版物中包含的內容違反了“通過黑客獲得的內容被發布”的政策。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/15190144/4545.jpg)
-Twitter還關閉了白宮新聞秘書的個人帳戶因為她分享了該篇報導。
+**2020年4月22日**
+西方有些淪落了，是西方信仰和資本撞擊的結果。世界病毒大流行就是一個核心原因，沒有人說出真相。一個好消息是在武漢實驗室跟我們直接通信的戰友全家已經離開中共國，抵達歐洲。他和石正麗，郭德銀，王延怡，夏德儒，張東合作超過十年的戰友。當這個戰友出來說話大家就知道我們在這個疫情期間靠的是絕對的情報。所以我們可以說這是放毒而且是針對香港去的，必然傳到全世界。而且說AI病毒，最終最受傷是美國。現在國內開始從美國軍人，到穿山甲，到海鮮市場等一系列胡扯後說石正麗拿乾冰親自放毒，還有人說孫立軍把放毒的事告訴美國。我們都不信就是因爲我們有內部戰友情報以及文貴幾十年對共黨的瞭解。煙臺的大校戰友說的香港戒嚴都是情報，所以文貴說它們對香港採取準化學武器，不是文貴的先知。
 
-美國川普總統在與支持者一起的競選活動中稱“社交媒體的決定很糟糕”。川普總統說，“喬·拜登就他參與他兒子的腐敗案件對公眾公開撒謊， 現在有無可辯駁的證據，他試圖掩蓋醜聞。美國從來沒有一個政府比奧巴馬–拜登政府更腐敗。喬·拜登是一個腐敗的政治家，不能競選總統。
+**2020年4月27日**
+當你發這個視頻，比如說你發現在武漢武漢霹靂館石正麗和王岐山見面了。你吧唧你把這個你掛到前面去，你只掛你拍到的一分鐘，你拍了10分鐘左右。說戰友們我看到了王岐山和石正麗，還有王延軼，他在這說話了。比如說有個戰友站出來說，我是在P3實驗室，香港P3實驗室是全世界最高級的之一，比武漢實驗室還牛，裏面是聚集全世界人才。那裏邊某個人，大領導和王岐山有關係，你掛出來，你推出去，就像咱那個文一樣，是吧？那個文啊那個文，出去了。
+……
+第二步，它可以幹什麼？戰友們。不僅能打賞，不僅能讓你在裏邊能成爲情報市場，未來比如說現在有人在那兒，貼出一個王岐山和石正麗，和王延軼的交易，我郭文貴立馬給你打上1千萬賞，我現在立馬給你千萬G幣，立馬。
 
-參議院共和黨人正在對此事展開調查。主要的關注點是洩露信件給新聞界的線人以及喬·拜登在烏克蘭事件中的收信人波扎爾斯基是否會露面。在美國，波扎爾斯基有很深的關係。波扎爾斯基與前美國政府烏克蘭問題特使庫爾特∙沃爾克（Kurt Volker）交好，沃爾克後來成為川普總統彈劾案的主要證人之一，並從國務院辭職。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/15190048/uazmi.net_.png)圖片來源：uazmi.net
-亨特·拜登的名字是去年秋天醜聞的中心。 《華爾街日報》報導說，在與烏克蘭總統澤連斯基的電話交談中，美國川普總統要求調查亨特∙拜登，他在2014年至2019年的5年時間裡是烏克蘭最大的私人天然氣公司之一布利斯瑪的董事會成員。在此之後，對川普總統發起彈劾程序，但參議院在2020年2月宣布總統無罪。
+**2020年5月2日**
+從武漢P4實驗室跑出來的人，不是郭德銀，更不是石正麗。跑出來的至少有五個人。路德知道其中兩人，其餘三人只有郭文貴知道。其中有人是(武漢病毒”泄漏”的) 直接命令和參與者，且有人“肩上帶星”的。未來的幾天內，他們中的一位資深科學家將在攝像機前直播作證“中共病毒”的來源。
+……
+第二個這兩天熱鬧的不得了，說跑到歐洲的是石正麗。我告訴大家你們太小看文貴和爆料革命了，啥時候了還談石正麗呢？輪得着她嗎？石正麗要跑來，我們連一個早餐都不會讓她免費喫。因爲她的級別太低了，她起的作用太小了，有用嗎？沒用，你們太小看我們爆料革命了，還猜什麼石正麗，還有孫力軍。怎麼可能戰友們，怎麼可能呢？戰友們吶，怎麼可能啊，怎麼可能？
+……
+哎呀，石正麗出來。你太小看爆料革命了，石正麗來能幹啥？她能幹啥？石正麗不是最關鍵的，比石正麗關鍵我都說過，他都不是出來了嗎？
+……
+石正麗，她算個鳥，她是小小的鳥。
 
-目前，俄羅斯全部主流媒體就拜登家族“硬槃門”醜聞進行持續滾動報導，該醜聞因此在俄羅斯正在持續發酵中。
+**2020年5月4日**
+大家現在我不知道說明白了嗎？今天爲什麼直播，前邊咱們亂聊，今天亂聊了。現在中央電視臺，你不要小看了對彭佩奧，你也不要小看了中央電視臺對班農。還有現在跑出的人物，我再告訴大家，不是郭徳銀，更不是石正麗。跑出的不僅僅是兩人，跑出來最起碼五個人，當然有男的、女的。路德先生說的話，路德先生的他是經歷了一個人或者兩個人。另外三個人，這個世界上只有一個人知道—郭文貴。我再告訴大家不要猜，絕對石正麗連個屁都不是，她只能告訴你這個病毒怎麼發生了，這個病毒怎麼研究的過程。至於誰放的爲啥放的，她根本不可能知道。大家用腦子想想，如果她真的知道，早就被尅了。知情者是不可能讓她活到現在，還在這邊蹦躂，還發微博，怎麼可能，常識。更不是郭德銀，郭德銀絕對是個關鍵人物，但不是他。但是我們要的這個人就是直接命令和參與者，比這個人牛。還有你不知道你從來沒聽說的名字，但非常關鍵非常牛，但不一定是直接參與者。另外的人就是直接—肩上帶星的，帶星的，帶星的，別想，別想那麼多。我給大家可以說一說，最近啊中共的軍隊北部戰區可能有大變化，當你發現北部戰區大變化以後，我們這將有大的喜事。所以說親愛的兄弟姐妹們，今天的直播我把G幣的事說好了。我要告訴大家的事情，關於那些人怎麼出來不要亂猜，不是郭德銀。更不是石正麗，石正麗她來了我連瓶水都不讓她喝，那是個傻叉。所以說戰友們，我有很多很多大事都在發生。
 
-參考鏈接：
+**2020年8月15日**
+我現在可以告訴你的是，說實在話根本不是西方怎麼看待我們。這就是共產黨很了不起，習加速時是很了不起，王岐山是很了不起，石正麗也很了不起，就是她能把。給咱爆料革命送這麼大一個禮物，你上哪去找去。香港運動、香港抓捕、遣返法、安全法，在全世界窮追猛截我們爆料革命是吧。然後製造這個病毒，而且把班農、蓬佩奧這些人列爲所謂的人類公敵。給咱製造這麼多，現在網上觀看60多萬了。
 
-俄羅斯中央一台： [https://1tv-ru.turbopages.org/1tv.ru/s/news/2020-10-15/395034-v\_ssha\_novyy\_skandalnyy\_vitok\_vokrug\_semi\_dzho\_baydena](https://1tv-ru.turbopages.org/1tv.ru/s/news/2020-10-15/395034-v_ssha_novyy_skandalnyy_vitok_vokrug_semi_dzho_baydena)
-
-俄羅斯共青團真理報： [https://www.kp.kg/daily/217195/4304373/](https://www.kp.kg/daily/217195/4304373/)
-
-新聞前沿： [https://news-front.info/2020/10/14/hanter-bajden-eshhyo-bolshe-korrupczii/](https://news-front.info/2020/10/14/hanter-bajden-eshhyo-bolshe-korrupczii/)
-
-rbc財經新聞: [https://www.rbc.ru/rbcfreenews/5f87a4d59a79476a98caafbf](https://www.rbc.ru/rbcfreenews/5f87a4d59a79476a98caafbf)
-
-福布斯俄羅斯新聞：https://forbes-ru.turbopages.org/forbes.ru/s/newsroom/obshchestvo/411293-tramp-uzhasnulsya-resheniem-twitter-i-facebook-ogranichit-dostup-k
-
-俄羅斯報： [https://www.gazeta.ru/politics/news/2020/10/15/n\_15082651.shtml](https://www.gazeta.ru/politics/news/2020/10/15/n_15082651.shtml)
-
-E新聞： [https://e-news.su/in-world/352854-seks-narkotiki-i-randevu-s-burismoy-kak-novyy-skandal-s-synom-baydena-povliyaet-na-ishod-vyborov -v-ssha.html](https://e-news.su/in-world/352854-seks-narkotiki-i-randevu-s-burismoy-kak-novyy-skandal-s-synom-baydena-povliyaet-na-ishod-vyborov-v-ssha.html)
-
-生意人報： [https://www.kommersant.ru/doc/4531452](https://www.kommersant.ru/doc/4531452)
-
-Нтв電視台： [https://www.ntv.ru/novosti/2448660/?from=mailtopfeed](https://www.ntv.ru/novosti/2448660/?from=mailtopfeed)
-
-俄羅斯消息報： [https://iz.ru/1074320/2020-10-15/tramp-nazval-baidena-absoliutno-korrumpirovannym-politikom?utm\_source=yxnews&utm\_medium=desktop&nw=1602793526000](https://iz.ru/1074320/2020-10-15/tramp-nazval-baidena-absoliutno-korrumpirovannym-politikom?utm_source=yxnews&amp;utm_medium=desktop&amp;nw=1602793526000)
-
-俄羅斯民族服務網： [https://nsn.fm/policy/tramp-obvinil-baidena-v-korruptsii-posle-sliva-perepiski-ego-syna?utm\_source=yxnews&utm\_medium=desktop&nw=1602793526000](https://nsn.fm/policy/tramp-obvinil-baidena-v-korruptsii-posle-sliva-perepiski-ego-syna?utm_source=yxnews&amp;utm_medium=desktop&amp;nw=1602793526000)
-
-俄羅斯國際文傳電訊社： [https://www.interfax.ru/world/731556?utm\_source=yxnews&utm\_medium=desktop&nw=1602793526000](https://www.interfax.ru/world/731556?utm_source=yxnews&amp;utm_medium=desktop&amp;nw=1602793526000)
-
-塔斯社： [https://tass.ru/mezhdunarodnaya-panorama/9731545?utm\_source=yxnews&utm\_medium=desktop&nw=1602793526000](https://tass.ru/mezhdunarodnaya-panorama/9731545?utm_source=yxnews&amp;utm_medium=desktop&amp;nw=1602793526000)
-
-俄新社： [https://ria.ru/20201015/trump-1579873192.html?utm\_source=yxnews&utm\_medium=desktop&nw=1602793526000](https://ria.ru/20201015/trump-1579873192.html?utm_source=yxnews&amp;utm_medium=desktop&amp;nw=1602793526000)
-
-俄羅斯最受歡迎的在線新聞報紙Lenta： [https://lenta.ru/news/2020/10/15/trump\_biden/?utm\_source=yxnews&utm\_medium=desktop&nw=1602793526000](https://lenta.ru/news/2020/10/15/trump_biden/?utm_source=yxnews&amp;utm_medium=desktop&amp;nw=1602793526000)
-
-國家報： [https://strana-ua.turbopages.org/strana.ua/s/news/295140-delo-burismy-kak-svjazannyj-s-ukrainoj-kompromat-na-bajdena-mozhet-povlijat-na-vybory .html](https://strana-ua.turbopages.org/strana.ua/s/news/295140-delo-burismy-kak-svjazannyj-s-ukrainoj-kompromat-na-bajdena-mozhet-povlijat-na-vybory.html)
-
-[https://amarok-man.livejournal.com/5507927.html](https://amarok-man.livejournal.com/5507927.html)
-
-俄羅斯真理報： [https://fakty.com.ua/ru/svit/20201015-skandal-z-lystuvannyam-mizh-synom-bajdena-i-predstavnykom-burisma-shho-vidomo/](https://fakty.com.ua/ru/svit/20201015-skandal-z-lystuvannyam-mizh-synom-bajdena-i-predstavnykom-burisma-shho-vidomo/)
-
-俄羅斯主要記錄網： [https://glavred.info/world/v-ssha-smi-opublikovali-perepisku-yakoby-syna-baydena-s-sotrudnikom-burisma-novosti-mira-10212152.html](https://glavred.info/world/v-ssha-smi-opublikovali-perepisku-yakoby-syna-baydena-s-sotrudnikom-burisma-novosti-mira-10212152.html)
-
-[https://news.rambler.ru/world/45006827-u-nego-byl-plohoy-den-tramp-ne-verit-v-intellekt-baydena/?updated](https://news.rambler.ru/world/45006827-u-nego-byl-plohoy-den-tramp-ne-verit-v-intellekt-baydena/?updated)
-
-[http://voicesevas.ru/news/54955-grandioznyy-predvybornyy-skandal-svyazannyy-s-semey-baydenov-i-ukrainoy.html](http://voicesevas.ru/news/54955-grandioznyy-predvybornyy-skandal-svyazannyy-s-semey-baydenov-i-ukrainoy.html)
-
-俄聯邦新聞社： [https://riafan.ru/1321530-ukrainskii-skandal-vokrug-baidena-vyyavil-defektnost-demokratii-v-ssha](https://riafan.ru/1321530-ukrainskii-skandal-vokrug-baidena-vyyavil-defektnost-demokratii-v-ssha)
-
-[https://www.nakanune.ru/news/2020/10/15/22585949/](https://www.nakanune.ru/news/2020/10/15/22585949/)
-
-世界視角： [https://tehnowar.ru/175694-Tramp-obvinil-Baydena-vo-lghi-na-fone-skandala-s-ego-synom.html](https://tehnowar.ru/175694-Tramp-obvinil-Baydena-vo-lghi-na-fone-skandala-s-ego-synom.html)
-
-俄羅斯專家網： [https://expert.ru/2020/10/15/kompromat-na-bajdena-nashelsya-v-starom-noutbuke/](https://expert.ru/2020/10/15/kompromat-na-bajdena-nashelsya-v-starom-noutbuke/)
-
-[https://tsargrad-tv.turbopages.org/tsargrad.tv/s/news/my-za-kogo-budem-topit-za-bajdena-ili-za-trampa-lavrov-dal-universalnyj-otvet\_288780](https://tsargrad-tv.turbopages.org/tsargrad.tv/s/news/my-za-kogo-budem-topit-za-bajdena-ili-za-trampa-lavrov-dal-universalnyj-otvet_288780)
-
-[https://www.pravda.ru/news/world/1540304-baiden/](https://www.pravda.ru/news/world/1540304-baiden/)
-
-俄羅斯每周信息節目： [https://www.rosbalt.ru/world/2020/10/15/1868202.html](https://www.rosbalt.ru/world/2020/10/15/1868202.html)
-
-俄羅斯經濟報： [https://rueconomics.ru/471837-tramp-prizval-baidena-izvinitsya-pered-amerikancami-za-skandal-s-synom](https://rueconomics.ru/471837-tramp-prizval-baidena-izvinitsya-pered-amerikancami-za-skandal-s-synom)
-
-烏克蘭報： [https://ukraina.ru/news/20201015/1029258096.html](https://ukraina.ru/news/20201015/1029258096.html)
-
-俄羅斯新聞廣播： [https://radiovesti.ru/brand/61178/episode/2454229/](https://radiovesti.ru/brand/61178/episode/2454229/)
-
-俄羅斯5TV網： [https://www.5-tv.ru/news/315943/tramp-obvinil-bajdena-volzi-nafone-skandala-sego-synom/](https://www.5-tv.ru/news/315943/tramp-obvinil-bajdena-volzi-nafone-skandala-sego-synom/)
-
-俄羅斯獨立報： [https://ng-ru.turbopages.org/ng.ru/s/world/2020-10-15/6\_7991\_usa.html](https://ng-ru.turbopages.org/ng.ru/s/world/2020-10-15/6_7991_usa.html)
-
-[https://www.unian.net/world/burisma-i-bayden-v-senate-pytayutsya-proverit-novye-skandalnye-dannye-o-baydene-i-ukraine-novosti-mira-11182655.html](https://www.unian.net/world/burisma-i-bayden-v-senate-pytayutsya-proverit-novye-skandalnye-dannye-o-baydene-i-ukraine-novosti-mira-11182655.html)
-
-俄羅斯政治網： [https://polit.info/512690-okhota-na-baidena-kak-svyazany-vybory-v-ssha-facebook-i-korrupciya-na-ukraine](https://polit.info/512690-okhota-na-baidena-kak-svyazany-vybory-v-ssha-facebook-i-korrupciya-na-ukraine)
-
-亞美尼亞俄語聲音： [https://www.forumdaily.com/novyj-skandal-facebook-i-twitter-ogranichili-rasprostranenie-komprometiruyushhix-statej-o-bajdene/](https://www.forumdaily.com/novyj-skandal-facebook-i-twitter-ogranichili-rasprostranenie-komprometiruyushhix-statej-o-bajdene/)
-
-[https://golospravdy-eu.turbopages.org/golospravdy.eu/s/v-ssha-ocherednoj-grandioznyj-predvybornyj-skandal/](https://golospravdy-eu.turbopages.org/golospravdy.eu/s/v-ssha-ocherednoj-grandioznyj-predvybornyj-skandal/)
-
-俄羅斯一周論點： [https://argumenti-ru.turbopages.org/argumenti.ru/s/world/2020/10/692421](https://argumenti-ru.turbopages.org/argumenti.ru/s/world/2020/10/692421)
+**2020年9月17日**
+共產黨，講的是你殺人。病毒來自你家、來自於共產黨。你不是說來自於山洞嗎？科學家昨天講的一句話講的特別好，科學家說：“你把我送到山洞去我在那睡一個月。”這叫科學家，這叫科學家。你不是說那山洞嗎？我跟石正麗一起睡去，睡一個月，看看能不能染上冠狀病毒。你大爺的，你們拿着這種謊言來欺騙全人類。既然是來自山洞、來自自然，那就讓人家去檢查嗎？跟我郭文貴，跟班農，跟我們法治基金、爆料革命有球的關係啊？你們這幫孫子唉。這幫記者王八蛋，看看你們寫的東西，早晚一天會受上天的懲罰，這幫孫子哎。我們說共產黨來的生化武器，你證明它不是生化武器就完了。你跟我郭三秒屁關係？你跟班農的案子啥關係？跟什麼有什麼關係啊？這不就是共產黨的打法嗎？我說你強姦，你說我鞋子沒穿好？我說你殺人不對，你說我右邊鞋子沒穿好。我說海航貪污了，說海航。“百分之一千是假的”。我百分之一千是假的，我假的跟你球關係啊？陳峯，還有王健先生。你弄了一兩萬億，你貸了幾千億款？誰知道？我知道。還不了吧？孫子。欺騙老百姓。你不是說我百分之一千是假的嗎？我百分之一萬是假的，行不行？跟你陳峯騙錢、盜國賊和王岐山什麼鳥關係啊？我R你八輩祖宗。又來了，我們科學家說病毒是你自己造的、軍工廠的。唉，你說科學家人品不行，這姑娘長得太漂亮。我科學家漂亮，跟你造的病毒什麼球關係啊？你說這幫孫子唉。大家一定記住，一定全人類審判他們。這幫孫子唉，你都殺人了，天天在死人。我們有爆料的，說爆料的鼻子長的不太正。你這般孫子、這幫共產黨，你演吧，你演吧，你把Twitter關了，你把Facebook關了，不關你是孫子唉，共產黨。共產黨你想想你走的每一步。用我們山東老家話說：就是你媽的作死，作死了你，就是作死。你在西方，你要能在全世界把嘴都給閉住，我也就萬死不悔了。我也服了你共產黨了，I服了U了！
 
 0
