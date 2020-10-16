@@ -1,23 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 今夜！美國炸彈需求量最大作戰航空單位F-15E中隊沸騰了！
-`2020-10-13 22:26 GM77` [轉載自GNews](https://gnews.org/zh-hant/422739/)
+## 美國務院呼籲智庫披露外國資助情況
+`2020-10-15 19:53 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/426803/)
 
-編撰：WLQF
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/13221634/%E6%88%AA%E5%B1%8F2020-10-14-%E4%B8%8A%E5%8D%8810.15.43-1.png)
-【2020年當地時間10月13日】美國空軍已批准雷神公司的GBU-53/B “雷神之斧 “精確制導滑翔炸彈（“雷神之斧”是GBU-39精確制導炸彈的下一代產品），又稱小直徑轟炸機II（SDB II），用於其F-15E “攻擊鷹 “戰鬥機。這意味著該部隊現在可以將GBU-53/B “雷神之斧 “這些武器送至F-15E中隊使用，而F-15E中隊是美國需求量最大的作戰航空單位之一。 F-15E之前裝備的GBU-39/B SDB I只能擊中固定目標，但現在裝備最新型的GBU-53/B“雷神之斧”精確制導滑翔炸彈後，F-15E可以在任何天氣條件下精確打擊72公里範圍內任何移動目標，最重要的是價格低廉，有人稱之為“廉價無動力空對地導彈”。
+*新聞來源：National Review《國家評論》；作者：BRITTANY BERNSTEIN；發佈時間： 2020年10月13日*
 
-GBU-53/B最初被稱為小直徑炸彈II（SDB II），其三模製導系統能夠利用成像紅外或毫米波雷達尋找目標，或利用半主動激光歸位擊中指定瞄準點。根據發射飛機的高度，該武器還可以利用GPS輔助慣性導航系統自行滑行至69英里，之後可以打擊特定坐標或開始搜索目標。這將為作戰提供了極大的靈活性，使這種單一的武器既能攻擊靜止的目標，也能攻擊移動的目標，即使是在夜間或惡劣的天氣下。
+*翻譯/簡評：Cathy r；校對：TCC；審核：InAHurry；Page：拱卒*
 
-將 “雷神之斧 “與F-15E配對，將成為更加致命的組合。 GBU-53/Bs的小型化意味著一架 “攻擊鷹 “將能夠攜帶多達28枚這種武器，利用特殊的架子，飛機可以在一個塔架上最多攜帶4枚炸彈。
+[!\[\]()!\[\](https://spark.adobe.com/page/NriPcr0JouvZg/images/a5581021-8fc6-41f8-be7b-ec53f6249029.jpg?asset_id=fbffee55-bfb8-4ef9-b39a-2de43af8f56c&amp;img_etag=%22e0bc0d3598b9905fc680bf93ab2a872e%22&amp;size=1024)](https://spark.adobe.com/page/NriPcr0JouvZg/images/a5581021-8fc6-41f8-be7b-ec53f6249029.jpg?asset_id=fbffee55-bfb8-4ef9-b39a-2de43af8f56c&amp;img_etag=%22e0bc0d3598b9905fc680bf93ab2a872e%22&amp;size=1024)
 
-雖然F-15E是第一架獲准採用GBU-53/B的飛機，但它不會是唯一能夠攜帶這些武器的平台。海軍在今年早些時候從F/A-18E/F “超級大黃蜂 “飛機上首次進行了這種武器的製導發射。此外，還有計劃將 “雷神之斧”（Storm Breaker）整合到F-35聯合攻擊戰鬥機的所有三個變體上。這些噴氣式飛機將能夠在內部攜帶這些武器，使它們能夠在以最隱蔽的形式在作戰時採用這些武器。在F-35的武器庫中增加 “雷神之斧”（Storm Breaker）將極大地擴展該型機的靈活性和殺傷力。其他飛機也將隨之而來，因為該武器為從緩慢飛行的無人機到隱身轟炸機等各種飛機開闢了新的交戰可能性。
+**簡評：**
 
-“雷神之斧”（Storm Breaker）為戰場上的飛行員提供了前所未有的能力。該武器為飛行員提供了一個顯著的優勢–在惡劣天氣下遠距離打擊海上或陸基機動目標的能力。 “空軍F-15E機組現在將率先在未來的作戰行動中利用GBU-53/B提供的巨大能力。
+美國國務卿彭佩奧最近呼籲美國智庫在網站上披露外國資助情況。這一舉措表明美國政府已經開始從最近的地方著手清理沼澤了。這也是給美國人一個提醒，外國人尤其是中共對美國滲透已到了思想層面，各種看似獨立的機構已經不能算作獨立，各種利益已經到達美國政府各個層面。
 
-參考鏈接：
+**美國國務院呼籲美國智庫披露外國資助情況**
 
-[https://www.thedrive.com/the-war-zone/37050/stormbreaker-mini-glide-bomb-that-can-hit-moving-targets-in-any-weather-is-ready-for-war?xid=twittershare](https://www.thedrive.com/the-war-zone/37050/stormbreaker-mini-glide-bomb-that-can-hit-moving-targets-in-any-weather-is-ready-for-war?xid=twittershare)
+根據一份最新的報告，在周二，美國國務卿邁克·彭佩奧(MikePompeo)將敦促美國智庫披露其外國捐助者，這意味著美國開始打擊近年來對這些組織大幅增長的外國資金。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/NriPcr0JouvZg/images/6a913dc0-3eaa-4e5b-ae54-4eb795f5caa0.jpg?asset_id=01918465-4227-4e9b-9e63-8b7c1d93b68e&amp;img_etag=%2237a285aeb287f80f20566ecf6f3f26df%22&amp;size=1024)](https://spark.adobe.com/page/NriPcr0JouvZg/images/6a913dc0-3eaa-4e5b-ae54-4eb795f5caa0.jpg?asset_id=01918465-4227-4e9b-9e63-8b7c1d93b68e&amp;img_etag=%2237a285aeb287f80f20566ecf6f3f26df%22&amp;size=1024)
+
+這是《華盛頓自由燈塔》所獲知的第一手消息。根據彭佩奧計劃於週二發表的一份聲明，儘管法律上不要求智庫披露這些信息，但國務院將要求智庫“在其網站上明確披露”從外國來源獲得的資金。
+
+彭佩奧將在這份聲明中說：“為了保護民間社會機構的完整性，國務院要求今後希望與國務院合作的智庫和其它外交政策組織在其網站上明確披露從外國政府、包括國有或國營附屬實體獲得的資金。“
+
+近年來的報告表明，外國資金如何影響了一些智庫，包括大西洋理事會（Atlantic Council）、戰略和國際研究中心（Center for Strategic and International Studies ）以及布魯金斯學會（Brookings Institute）。外國政府和國有企業利用其對這些組織的財政影響力，獲得了正面的新聞報導，減少了對他們批評性的敘述。
+
+一份2014年《紐約時報》的報告發現，國會議員、政府官員和媒體所依賴獨立政策分析和學術知識的十幾個著名的華盛頓研究小組已經收到外國政府的數千萬美元。報告說，這些智庫一直在努力慫恿美國政府官員採取符合捐助者為優先的政策。
+
+《泰晤士報》的報告發現，卡塔爾給了布魯金斯學會1480萬美元捐款，從而獲得了影響力。最近，《自由燈塔報》的一份報告詳細報導了土耳其政府對大西洋理事會的影響，這導致一些專家從小組中被除名，以符合埃爾多安政府的要求。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/NriPcr0JouvZg/images/283e87da-7508-4c41-8557-36faea826ed2.jpg?asset_id=a867592f-a8e0-4e8a-8f18-efd3b8bcf491&amp;img_etag=%221a457aaeee9eef093b4b5ceb52ba8ca2%22&amp;size=2560)](https://spark.adobe.com/page/NriPcr0JouvZg/images/283e87da-7508-4c41-8557-36faea826ed2.jpg?asset_id=a867592f-a8e0-4e8a-8f18-efd3b8bcf491&amp;img_etag=%221a457aaeee9eef093b4b5ceb52ba8ca2%22&amp;size=1024)
+
+彭佩奧的聲明將特別提到俄羅斯和中共國試圖通過向美國智庫捐款來贏得美國影響力，稱他們“試圖通過遊說、獨立專家和智庫對美國外交政策施加影響” 。
+
+“我們希望不久的某一天，在中共國和俄羅斯等地，美國促進關於經濟和個人自由、平等公民身份、法治和真正民間社團的自由和公開對話的努力將可實現，”彭佩奧說。
+
+[原文鏈接](https://www.nationalreview.com/news/state-department-to-call-on-american-think-tanks-to-disclose-foreign-funding/)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/NriPcr0JouvZg/) -點擊spark adobe版
 
 0
