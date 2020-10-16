@@ -13,6 +13,11 @@
 
 
 
+[10月16日: 亲爱的兄弟姐妹们， G Fashion soft launch 试运营已经开始！ 官方网址www.gfashion.com 🙏🙏🙏🙏欢迎...](/content/getter/content/2020/10/5f89a46506847a4c65144534.md)
+
+**郭文贵MILES** `2020-10-16T13:47:17`
+##
+
 [October 15，Dear my fellow fighters, this is Miles Guo’s updated Declaration abou...](/content/getter/content/2020/10/5f88b22406847a4c6513b508.md)
 
 **郭文贵MILES** `2020-10-15T20:33:40`
@@ -156,10 +161,5 @@
 [10月3日 郭文贵先生接受班农战斗室节目采访；在川普发推宣布确诊的20分钟內，几乎所有中共国社交媒体都在传这个消息。所有中共国的媒体就已经都在说川普总统给了咱们...](/content/getter/content/2020/10/5f798bb806847a4c6509ad0a.md)
 
 **郭文贵MILES** `2020-10-04T08:45:44`
-##
-
-[10月3日 郭文贵先生接受班农战斗室节目采访：闫博士的母亲被中共警察抓走了。当中共得知川普总统和第一夫人感染病毒时，中共大部分人都开始庆祝。他们早就准备好了简报...](/content/getter/content/2020/10/5f794ae082371f2d5073993d.md)
-
-**郭文贵MILES** `2020-10-04T04:09:04`
 ##
 
