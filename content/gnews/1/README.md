@@ -1,66 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 第一夫人梅拉尼婭·川普分享病毒感染經歷
-`2020-10-17 12:21 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/430636/)
+## 亨特·拜登電郵被爆 揭出拼爹與中共勾兌
+`2020-10-17 15:07 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/430744/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17115450/WH_20201012_Malenia_COVID-photo-1.jpeg)圖片來源：[https://www.whitehouse.gov/people/melania-trump/](https://www.whitehouse.gov/people/melania-trump/)
-**First Lady Melania Trump: ‘My personal experience with COVID-19’**
+喜馬拉雅聯盟加拿大農場 WJ
+校對 XM 上傳 WJ
 
-**第一夫人梅拉尼婭·川普：「我的COVID-19個人經歷」**
+10月16日，Breitbart獨家報導，亨特·拜登和他的同夥，靠著父親喬·拜登的政府關係與外界進行勾兌，”為潛在的國外客戶安排白宮的最高級別秘密會議。” 電子郵件顯示，為中共國投資者和中共官員“設法確保與當時的副總統喬·拜登舉行非公開會議。”這些信息是從貝文·庫尼（Bevan Cooney）給Breitbart的彼得·史威哲（Peter Schweizer）的郵件中收集的，庫尼曾與亨特·拜登和德文·阿徹（Devon Archer）進行過業務往來。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17145205/EkVNtK0X0AEyFcu.jpg)圖片來源：Twitter
+2011年的電子郵件（不屬於《紐約郵報》爆出部分）揭示了亨特·拜登與“中共國公司”建立關係，這些新關係將成為“對中共國軟外交的新推動”的一部分。
 
-October 14, 2020
+庫尼向史威哲提供了他的電子郵件地址和密碼，並授權他訪問有問題的電子郵件。之所以如此具有爆炸性，是因為這“是密友第一次公開確認亨特·拜登的交易是在其父親的影響下進行的”。
 
-By Melania Trump, First Lady
+例如，在2011年11月5日，阿徹的一位業務聯繫人向亨特·拜登發送了一封電子郵件，目的是通過幫助為一組中共國高管和政府官員安排白宮會議，從而獲得“潛在的傑出新客戶”的機會。該小組是中共國企業傢俱樂部（CEC），代表團成員包括中共國億萬富翁，中共的忠實擁護者，以及至少一名來自北京的外交官。儘管CEC的名稱是善良的，但它卻被稱為“中共國第二外交部”。 CEC由一群商人和中共政府外交官於2006年成立。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17144215/%E4%B8%AD%E5%9B%BD%E4%BC%81%E4%B8%9A%E5%AE%B6%E4%BF%B1%E4%B9%90%E9%83%A8.jpg)
+CEC的領導層擁有眾多中共高層，其中包括王忠禹（第十屆全國政協副主席，國務委員兼國務院秘書長）、馬蔚華（曾任招商銀行董事、行長，兼任吉林大學董事會董事、中共國金融學會常務理事、中共國企業家協會副會長）和蔣錫培（中共國遠東控股集團有限公司黨委書記、董事局主席，，中共十六大代表）等等。
 
-2020年10月14日
+這封電子郵件吹捧了CEC的會員：
+ CEC目前的成員包括50位傑出人物，例如：CEC主席，傳奇控股和聯想集團董事長柳傳志；中共國著名經濟學家吳敬璉，張維英和周其仁；吳建民，備受尊敬的外交官；龍永圖，中國全球化的代表；王石（万科）; 馬蔚華（招商銀行）；馬雲（阿里巴巴集團）; 郭廣昌（復星集團）；王建林（萬達集團）；牛根生（老牛基金會）；李書福（吉利）;李東昇（TCL公司）；馮倫（萬通控股）等。據稱，CEC成員所掌控的公司總營業收入“總計超過1.5萬億元人民幣，約佔中共國GDP的4％。” 亨特·拜登同事將中共國CEC成員形容為“工業精英”，“極具影響力”和“當今中共國最重要的私營部門人士”。
 
-由第一夫人梅拉尼婭·川普撰寫
+在聯繫亨特·拜登的同事前，CEC一直在試圖與奧巴馬-拜登政府高級官員舉行會議，但毫無結果。 “從華盛頓方面來看，您將在下面看到，他們（CEC）給政府的幾位成員和其他成員寫了封信，到目前為止還沒有強烈的反應。”
 
-It was two weeks ago when I received the diagnosis that so many Americans across our country and the world had already received—I tested positive for COVID-19. To make matters worse, my husband, and our nation’s Commander-in-Chief, received the same news.
+奧巴馬-拜登政府的檔案顯示，這個中共國代表團確實於2011年11月14日訪問了白宮，並享有高層訪問權限。根據白宮訪客記錄，該代表團包括約30名成員。但是這些記錄也掩蓋了中共國代表團最重要的目的“與副總統拜登本人會面”。
 
-兩周前，我接到了全國乃至全世界許多美國人都曾接到過的診斷—我的COVID-19測試呈陽性。更糟糕的是，我的丈夫，國家的總指揮官，也收到了同樣的消息。
+奇怪的是，訪客記錄沒有提到與副總統喬·拜登的任何會面。但是，CEC的一位核心創始人透露了副總統喬·拜登議程外會議。在一份模糊的文件中列出了CEC成員的履歷，CEC秘書長鄭美琪聲稱她為2011年在華盛頓舉行的CEC代表團會議提供了便利，並以CEC會見的華盛頓機構人物為榮。她留下的名字是副總統喬·拜登。
 
-Naturally my mind went immediately to our son. To our great relief he tested negative, but again, as so many parents have thought over the past several months, I couldn’t help but think “what about tomorrow or the next day?” My fear came true when he was tested again and it came up positive. Luckily he is a strong teenager and exhibited no symptoms. In one way I was glad the three of us went through this at the same time so we could take care of one another and spend time together. He has since tested negative.
+在那次訪問期間為CEC所建立的關係可能使亨特·拜登和德文·阿切受益匪淺。兩年後，他們成功的幫助其成立了中共政府資助的渤海華美（BHR）投資基金。渤海華美的第一個主要投資組合之一是滴滴出行。該公司與中共國企業傢俱樂部（CEC）主席、創始人柳傳志密切相關。柳傳志創立聯想集團，曾任聯想控股有限公司總裁、聯想集團有限公司董事局主席，是2011年CEC訪問白宮代表團團長。他的女兒柳青現任滴滴出行首席運營官。目前上海私募股權公司渤海華美官網的團隊成員介紹頁面有關投資合夥人亨特‧拜登的信息已經被悄悄撤下。
 
-很自然的，我立刻想到了我們的兒子。令我們感到欣慰的是，他的測試呈陰性。但是，如同過去幾個月許多父母所想過的那樣，我忍不住想「明天或者後天會怎麼樣？」當他再次測試的時候，我的恐懼變成了現實，他被檢測為陽性。幸運的是，他是一個強壯的少年並且沒有任何症狀。在某種程度上，我很高興我們三個人同時經歷了這個過程，因為我們可以互相照顧，一起度過這段時光。他隨後測試為陰性。
-
-I was very fortunate as my diagnosis came with minimal symptoms, though they hit me all at once and it seemed to be a roller coaster of symptoms in the days after. I experienced body aches, a cough and headaches, and felt extremely tired most of the time. I chose to go a more natural route in terms of medicine, opting more for vitamins and healthy food. We had wonderful caretakers around us and we will be forever grateful for the medical care and professional discretion we received from Dr. Conley and his team. It was an unfamiliar feeling for me to be the patient instead of a person trying to encourage our nation to stay healthy and safe. It was me being taken care of now, and getting first-hand experience with all that COVID-19 can do. As the patient, and the person benefitting from so much medical support, I found myself even more grateful and in awe of caretakers and first responders everywhere. To the medical staff and the residence staff who have been taking care of our family—thank you doesn’t say enough.
-
-我很幸運，因為剛診斷出時的症狀極少，雖然這些症狀同時來襲，並且在之後的日子里症狀反應猶如過山車。我經歷了身體酸痛、咳嗽和頭痛，並且在大多數時候感覺極其疲倦。我選擇了相對自然的醫藥療法，選擇更多的維生素和健康食物。我們周圍有許多優秀的護工，我們會永遠感激 Conley 醫生及其團隊提供的醫療保健及專業判斷。自己成為病人，而不是那個竭力鼓勵我們的國家要保持健康和安全的人，對我而言，是一種令人陌生的感覺。我現在是被照顧的人，並且獲得了 COVID-19 一切的第一手經驗。作為患者，以及從如此多的醫療支持中受益的人，我發現自己甚至更加感激，並且敬重各地的護工及急救人員。對於一直照顧我們家人的醫務人員和住所員工的感激之語，言之不盡。
-
-Recovering from an illness gives you a lot of time to reflect. When my husband was taken to Walter Reed as a precaution, I spent much of my time reflecting on my family. I also thought about the hundreds of thousands of people across our country who have been impacted by this illness that infects people with no discrimination. We are in unprecedented times—and with the election fast approaching, it has been easy to get caught up in so much negative energy.
-
-疾病恢復過程帶給您許多時間去反思。當我丈夫為保險起見被帶到 Walter Reed 時，我用了很多時間來對家庭進行反思。我還想到了全國成千上萬的人受到這個疾病的影響，這個疾病無孔不入。我們正處於前所未有的時代，並且，隨著選舉的臨近，我們很容易陷入如此多的負能量當中。
-
-It also cheered me to think of all the people I have met across our country and the world—and the goodness and compassion that exists if you seek it out. Our country has overcome many hardships and much adversity, and it is my hope COVID-19 will be another obstacle we will be able to tell future generations we overcame—and learned from in the process.
-
-想到在我們國家和世界上我遇到的所有人，也讓我感到高興 — 如果你去尋找，就會發現他們的善良和同情心。我們的國家已經克服了許多困難和逆境，我希望我們將能夠告訴後代， COVID-19是我們克服的另一個障礙，並從中吸取了教訓。
-
-I encourage everyone to continue to live the healthiest life they can. A balanced diet, fresh air, and vitamins really are vital to keep our bodies healthy. For your complete well-being, compassion and humility are just as important in keeping our minds strong. For me personally, the most impactful part of my recovery was the opportunity to reflect on many things—family, friendships, my work, and staying true to who you are.
-
-我鼓勵每個人繼續過自己能及的最健康的生活。均衡的飲食、新鮮的空氣和維生素確實是保持我們身體健康的關鍵。為了你的全面健康，同情心和謙遜對保持我們心靈的強大同樣重要。對我個人來說，康復過程中對我影響最大的部分是有機會反思很多事情：家庭、友誼、工作，以及保持真我。
-
-I am happy to report that I have tested negative and hope to resume my duties as soon as I can. Along with this good news, I want people to know that I understand just how fortunate my family is to have received the kind of care that we did. If you are sick, or if you have a loved one who is sick—I am thinking of you and will be thinking of you every day. I pray for our country and I pray for everyone who is grappling with COVID-19 and any other illnesses or challenges.
-
-我很高興地報告，我的檢測結果已經為陰性，同時希望盡快恢復工作。除了這個好消息，我想讓人們知道，我明白我的家人得到這種照料是多麼的幸運。如果您生病了，或者您有親人生病了，我在想著您，而且每天會想著您。我為我們的國家祈禱，也為每一個正在與COVID-19以及任何其它疾病或挑戰作鬥爭的人祈禱。
-
-Thank you to everyone who reached out, and offered well wishes and prayers for our family. You remain in ours as well.
-
-感謝每一位伸出援助之手的人，為我們的家庭祝福和祈禱的人。你們也是我們的家人。
-
-Sincerely,
-
-真誠的，
-
-Melania Trump
-
-梅拉尼婭·川普
-
-閱讀白宮原文
-
-翻譯 & 校對：【Cyndi】【文所未聞】編輯：【Isaiah4031】
-
-戰友之家玫瑰園小隊出品
+與亨特·拜登來往電郵的爆出，無疑是投給腐敗賣國的拜登家族的重磅炸彈。
 
 0

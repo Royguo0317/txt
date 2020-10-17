@@ -1,26 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 國內時評 | 人民日報發出罕見信號：站在歷史正確的壹邊,平安即是臺灣!——兩岸曾經的壹奶同胞,已被中共害的反目成仇!
-`2020-10-17 10:16 公民之聲` [轉載自GNews](https://gnews.org/zh-hant/430437/)
+## 【世界多語言圖文】2020/10/11 CCP病毒每日疫情直播簡報
+`2020-10-17 12:00 GM62` [轉載自GNews](https://gnews.org/zh-hant/430164/)
 
-內軍事：快慢機 素材：文朝汗 校對：天藍色獨角色
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17092613/0a82e8f38479217289cf3bd0a709ac36.jpg)
-近日,中共黨媒人民日報,發文釋放罕見信號稱——時代已變,盤踞在臺灣的偽政權,已不再是大陸的兄弟姐妹,而是壹意孤行投靠美帝,為虎作倀的反華反共馬前卒的敵人!
+戰友之家圖文摘要及小語種組
 
-中共也已“勿謂言之不預也“!
-翻譯過來就是——對於臺灣,中共已是好話說盡,道理講明!
-醜話說在前頭,不要怪我們事先沒有通知妳!
+[260\_English\_1011\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045721/260_English_1011_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045721/260_English_1011_CCP_Virus_Updates.pdf)
 
-在民族大義面前,臺灣選擇執迷不悟,玩火自焚.寄希望於太平洋那端的美帝國主義,妄圖抗衡兩岸統壹,那是癡心妄想!
-中共只有徹底解決臺灣問題,突破第壹島鏈,幹掉臥榻之側的美帝走狗及幫兇,大陸的安全才能得到保障!
+[260\_French\_1011\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17120037/260_French_1011_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17120037/260_French_1011_CCP_Virus_Updates.pdf)
 
-這壹連串的“咬牙切齒”之詞,字裏行間,除了透出壹股風瘋癲自欺之意,剩下的就是那點可憐的“語言暴力”了!
-動不動就就對臺“喊打喊殺”,已經鬧了幾十年了,結果還不是壹樣!
+[260\_German\_1011\_CCP\_Virus\_Updates\_](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045731/260_German_1011_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045731/260_German_1011_CCP_Virus_Updates_.pdf)
 
-兩岸曾經的壹奶同胞,如今生生被中共這個邪惡的非法政權,給害的要手足相殘,反目成仇!
-“郭文貴先生”曾說過,大陸的發展能有今天的成就,與香港和臺灣是有莫大關系的,沒有血濃於水的同胞之情,任憑誰又會不求回報的向妳伸出援手之意呢?
+[260\_Japanese\_1011\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045726/260_Japanese_1011_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045726/260_Japanese_1011_CCP_Virus_Updates.pdf)
 
-現如今,中共卻要恩將仇報,對自己的昔日兄妹狠下殺手——“狼子野心昭然若揭”!
+[260\_Spanish\_1011\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045736/260_Spanish_1011_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045736/260_Spanish_1011_CCP_Virus_Updates.pdf)
+
+[260\_Korean\_1011\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17083956/260_Korean_1011_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17083956/260_Korean_1011_CCP_Virus_Updates.pdf)
 
 0
