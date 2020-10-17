@@ -1,22 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 10/16路德社:佩羅西接下來會因為對9.24收到的硬碟不作為有大麻煩
-`2020-10-17 00:27 NewFOC` [轉載自GNews](https://gnews.org/zh-hant/429522/)
+## 10/17 財經快訊：墨西哥前國防部長涉嫌洗錢在美被捕;中共病毒肆虐威脅世界教育產業
+`2020-10-17 02:08 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/429645/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17002436/0_%E5%89%AF%E6%9C%AC.jpg)
-作者：Maarago
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17015940/1-130.png)[https://www.cnn.com/2020/10/16/world/mexico-former-defense-minister-detained/index.html](https://www.cnn.com/2020/10/16/world/mexico-former-defense-minister-detained/index.html)
+####  1.英國準備硬脫歐：約翰遜表示準備取消談判
 
-據[10/16/2020 路德時評（路博艾冠談）：兩周前的路德三塊硬碟視頻在美國社交媒體火爆傳開；FBI兒童色情律師負責拜登硬碟門案件再次驗證路德節目爆料；](https://youtu.be/8hcM3lu6qrM)時間點 [1：22：19](https://youtu.be/8hcM3lu6qrM?t=4939)
+[https://www.reuters.com/article/idUSKBN2710SY](https://www.reuters.com/article/idUSKBN2710SY)
 
+####  2.奧巴馬時期國家安全主管主導使抖音成為一家“可信且安全“的企業
 
+[https://thenationalpulse.com/news/obama-nsc-director-leads-tiktok-trust-team/](https://thenationalpulse.com/news/obama-nsc-director-leads-tiktok-trust-team/)
 
-路德先生：9月24號其實說過一個很重要的資訊，就是這個硬碟佩羅西早就有一份，給了佩羅西，她沒有把它給揭露出來，沒有把它作為一個法律的東西（走應該走的法律程式），這件事情大了去了！未來這個也會揭露出來，咱們今天再次站在未來說歷史！
+####  3.中共正加速向美國買家拋售其美元債。
 
-冠博士：從我的角度來看佩羅希作為國會的議長，這件事情牽扯到總統候選人家人的腐敗和犯罪的問題，國會作為監督機構，而作為議長的佩羅西收到這個東西，你看過了，尤其是裡邊有虐童的視頻，那你起碼要去司法或者FBI的人去說，或者以某種形式告訴相關的人員來繼續把這件事情走下去，你不可能只是把它收起來，作為議長來說，是不合格的，從法律方面來講，佩羅西的這種行為也是說不通的。往下看這件事情很可能就除了牽出拜登本人還有它背後包括在司法、在國會保護拜登的力量，這件事情持續發酵的話，將是美國歷史上比水門事件還要重磅很多倍的一個政治醜聞事件。
+[https://www.zerohedge.com/markets/china-sells-dollar-bonds-directly-us-buyers-first-time-gets-record-demand](https://www.zerohedge.com/markets/china-sells-dollar-bonds-directly-us-buyers-first-time-gets-record-demand)
 
-路德先生：如果佩羅西看到了裡面有虐童的畫面，作為議長如果她不交出去的話，這個事很大，所以這個裡面牽扯的面太廣了，不僅僅司法，所以這幾個硬碟改變人類歷史！同時這個事情最終驗證了爆料革命、路德社說的別的事情、閆博士的事情、病毒來源真相，別人就可以相信，一件事、一件事驗證嘛。很多事情遠遠超出咱們正常人的想像、認知！但是在人類不可能墮落到那個地步，往往在最關鍵的時刻，上帝一定會站出來，因為我們都站在正義這一邊！爆料革命都站在正義這一邊！上帝就會站出來，鬼使神差啊！這個硬碟就落在了朱利安尼、班農先生手上，正義的人手上居然也有一份了！這就是上帝！ 綜述：作為議長的佩羅西對於9月24日收到的含有亨特.拜登虐童視頻的硬碟不作為，意味著她可能涉嫌妨礙司法，同時她的不作為是否意味著她也是被中共收買的政客？她是否也犯了判國罪？她與習拉平在習近平2015年訪美時的同框絲毫看不出一個反共鬥士的樣子，倒象一個仰慕英雄的小女孩，美國和我們這麼多年是不是都被佩羅西當年在天安門廣場上的那一幕表演給戲弄了，莫非佩羅西也是那個吃六四血饅頭上位的人？
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17002043/1.png-1.jpg)Chinese President Xi Jinping (3rd R) meets with U.S. congressional leaders (from L) Sen. Harry Reid (D-NV), Sen. Cory Gardner (R-CO), Rep. Nancy Pelosi (D-CA), Sen. Dan Sullivan (R-AK), Senate Majority Leader Mitch McConnell (R-KY), Sen. Maria Cantwell (D-WA), and Sen. Mazie Hirono (D-HI) on Capitol Hill in Washington September 25, 2015. REUTERS/James Lawler Duggan
-（文章內容僅代表作者個人觀點）
+####  4.尼日利亞社會活動人士用比特幣進行各種社會活動
+
+[https://www.coindesk.com/nigerian-activists-bitcoin-endsars-police-brutality](https://www.coindesk.com/nigerian-activists-bitcoin-endsars-police-brutality)
+
+####  5.墨西哥前國防部長因涉嫌洗錢在洛杉磯國際機場遭到逮捕。
+
+[https://www.cnn.com/2020/10/16/world/mexico-former-defense-minister-detained/index.html](https://www.cnn.com/2020/10/16/world/mexico-former-defense-minister-detained/index.html)
+
+####  6.零對沖：中共病毒正威脅世界高等教育
+
+[https://www.zerohedge.com/personal-finance/fall-enrollment-slides-coronavirus-threatens-higher-education-bubble](https://www.zerohedge.com/personal-finance/fall-enrollment-slides-coronavirus-threatens-higher-education-bubble)
+
+秘翻組·金融法律組
 
 0
