@@ -1,217 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 相遇文貴先生
-`2020-10-16 20:37 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/428940/)
+## 10/16路德社:董功文在美購買大量房產四個去向,深扒中共藍金黃
+`2020-10-16 23:35 NewFOC` [轉載自GNews](https://gnews.org/zh-hant/429352/)
 
-作者：海闊天空
+作者：Maarago
 
-校對/審核：Julia Win；Page：拱卒
+據[10/16/2020 路德時評（路博艾冠談）：兩周前的路德三塊硬碟視頻在美國社交媒體火爆傳開；FBI兒童色情律師負責拜登硬碟門案件再次驗證路德節目爆料；](https://youtu.be/8hcM3lu6qrM)時間點 [45：08](https://youtu.be/8hcM3lu6qrM?t=2708)
 
-**相遇文貴先生**
 
-![]()![](https://spark.adobe.com/page/tu7FolRdCwTHG/images/6d0f865b-d6de-4e71-9145-e10df0c56d91.jpg?asset_id=8b59d46e-2156-4501-a2df-f07fa407d40b&amp;img_etag=%221320d764a2ea5f7b3ac0faf405a0da3b%22&amp;size=1024)
 
-天地之間，時間綻放
+路德先生：今天早上咱們說的什麼董功文的是吧？大家看啊，買了很多很多地產，這些地產你看買的哪裡：這裡是五十多萬的，很多，總共幾十套幾十套買，五千多萬的、三千多萬的，代理購買的那個律師事務所是cohen，COHEN和BIDEN這個檔裡也提到了，然後665號（注：應為No.665 , Great Neck, New York in 2014）這個位址，信託公司都叫SENZA name,都是一個信託公司持有，這就是我們今天早上說的家族基金，然後san’s holding，挖一下幾十套，你知道這些房子都是幹啥的，在美國董功文有幾個錢？他是一個打工的，一年年薪五百萬人民幣頂天了，就他這點錢光一個房產稅都交不起，五千萬的房子一年房產稅1-2%,一年都50萬、60萬甚至100萬，還有各種各樣的管理費用、物業管理費用，一年沒有一百萬你根本養不起一套5000萬的房子，這些房子第一送人，送哪些人？國內的常委級別的領導，都是一張紙就給你了，他都是用這種SENZA各種各樣家族基金代持，他們直接給你一張紙，這個房子就是你的了，所有法律手續全部辦好了，查都查不到，國內的軍警特憲就是常委級別的他們要搞定的；第二送給非洲、歐洲、亞洲跟他們搞在一起的政客，在美國直接給他們房子；第三送給拜登這種美國的政客、議員的；第四，有些房子就是專門在裡邊做各種活動的：吸毒、虐童、濫交、PARTY，各個方面的，就這四大類。買得太多了，董功文全面負責這個，因為他是這方面的專家、英文好，然後不留痕跡地把一幢房產變成一張紙，這個美國人根本不瞭解，中共的藍金黃手段遠超美國的理解程度，徹底超越了，這一段絕對大家要翻譯啊！
 
-清楚地記得那是2017年初，我們第一次與您屏前相見，那時滿是懷疑、滿是疑慮，億萬富豪的標籤令人炫目，流亡大亨的經歷讓人獵奇
+以及時間點[1：03：42](https://youtu.be/8hcM3lu6qrM?t=3822)
 
-那時的我們，做夢也沒有想到，您帶給我們的是電光火石碰撞一般的震撼，是千載難逢的民族復興的希望
 
-您沒出現在公眾視野之前，我們茫然，我們絕望，看著腳下千瘡百孔的大地，我們只能無助地深深嘆息
 
-共產紅魔在中華大地肆虐，藉著西方的綏靖和短視，越來越囂張，越來越跋扈
+路德先生：大家知道啊剛才說的那些房子啊，這些基金公司註冊地在哪裡？它的總的基金都是註冊在德拉瓦州，是拜登的地盤，拜登在德拉瓦州做議員做了幾十年，他的大兒子在德拉瓦州做總檢察長，前幾年去世了，從這裡開車到華盛頓中間就德拉瓦州，每次那裡有一個加油站，那個加油站很大，看板是歡迎大家來到德拉瓦州，底下簽名就是Joe Biden，（博博士：德拉瓦州的法律比較奇特，當地對於保護small business的法律非常好，很多的公司就在那兒註冊），因為它免稅，更重要的就是因為德拉瓦州是一個很小很小的地方，很容易把選票搞定，註冊地是德拉瓦州等於所有的名字可以隱藏，如果在法律上有什麼問題，總檢察長都已經呆了這麼多年、在那裡搞議員都搞了這麼多年，大家想想是啥概念。這都是一連串的佈局，司法上的佈局、當了多少年的議員，現在越來越多的美國人在聽我們的節目，中共買這麼多房子，錢來源於哪裡？千萬不要以為只是從十四人的肝上給它們供血，未來幾億美國人的身上也要被插上管子的，他們所有的錢的來源不僅僅是中國老百姓，未來一定也是來源於幾億的美國人、幾億中產階級，這絕對是現實，大家去看香港就知道了，推特、facebook現在言論控制這麼嚴密，只要不按照他們的意思他們就給你封了，大量的媒體已經被中共買通了，中共花錢給他們輸送利益，然後拜登這些家族、很多議員、檢察官、法官，他們給你拍各種視頻、全給你錄下來了，你只要不聽他的，你就死了，中共怎麼忽悠你的？首先它給你一個房產，你一看房產寫著一個什麼家族基金，你想我收到口袋裡沒人知道、神不知鬼不覺，但是你收到這個房產的時候它一定會抓住你人性的弱點，你喜歡男的給你男的，喜歡女的給你女的，喜歡小孩給你小孩，各種各樣！美國人搞不定它從中國搞，這就是那些包括在法拉盛的那些欺民賊給別人干政庇的、包括從邊境過來的大量的華人被他們拿去幹這個事，就跟2017年在文貴先生的樓下一排一排的在這拿著舉牌子一樣，統一的都被他們控制著。因為那幫人很簡單，那幫人溫州或者偷渡過來的，直接說，你看這個檢察官是我們的、律師是我們的，你在美國走到天涯海角我都直接可以把你滅了，甚至黑社會、黑幫也是它的，那幫人肯定傻眼了嘛，你說弄一個美國人還挺難的，很容易爆出來，但是它可以弄自己的同胞啊！很多人來到這裡語言不行、又沒關係，啥都不懂、法律也不懂，那不就是給他們弄到全部買好的房子裡邊，先喝酒然後再吸粉，剛開始可能是大麻，大麻不過癮了就是各種別的，然後最後你的心理防線一旦被突破的時候，視頻全給你錄了，你還覺得你拿了一個家族基金它一定抓不隹你任何把柄的時候，實際上就通過虐童這件事它可以抓任何人的把柄。中共很懂的，如果只是男女關係，它知道在美國這個立不了案、搞不死任何人的，但是只要有虐童的，這些人百分之百，只要把這個視頻一溜，這些人一一就範，這是純刑事的事情，你的房子最後照樣又被它收走了，很多美國這些政客、相應的人就是這麼慘！你必須聽它的，你沒用的時候，你的房子就被它收走了。因為它直接把錄的關於你的虐童視頻拿出來，你到底要房子還是要這個？虐童者是百分之百束手就擒！這就是中共邪惡的地方。我9月24號的視頻就說中共對的是中國同胞，因為這些中國同胞來到這裡根本是沒有根的，父母在法拉盛都是很慘的那些人。
 
-它對著華夏大地發出猙獰的笑聲
+另據LUDE [\[email protected\]](/cdn-cgi/l/email-protection)·於[2020年10月17日7：15PM](https://twitter.com/LudePress/status/1317061484459954177)發佈的推文：
 
-而我們，心在流血，苦楚作痛，卻無能為力
+[#路德社新聞簡報](https://twitter.com/hashtag/路德社新闻简报?src=hashtag_click) ——[拜登的硬碟] 繼續深挖 朱利安尼,班農專訪暗藏重大資訊 結合10/15路安墨|路博艾冠 葉簡明（習白手套） 關聯公司金輝集團 財務總監 董功文 董功文出面 代葉買曼哈頓豪華公寓2套 買完了房子 葉被消失 拜登給董功文發郵件?討論啥? 豪華公寓誰的?誰住過? 更多解密鎖定路德社直播……
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16232829/gsss.jpg)
+> [#路德社新闻简报](https://twitter.com/hashtag/%E8%B7%AF%E5%BE%B7%E7%A4%BE%E6%96%B0%E9%97%BB%E7%AE%80%E6%8A%A5?src=hash&amp;ref_src=twsrc%5Etfw)
+> ——[拜登的硬盘] 继续深挖
+> 朱利安尼,班农专访暗藏重大信息
+> 
+> 结合10/15路安墨|路博艾冠
+> 
+> 叶简明（习白手套）
+> 关联公司金辉集团
+> 财务总监 董功文
+> 
+> 董功文出面
+> 代叶买曼哈顿豪华公寓2套
+> 买完了房子 叶被消失
+> 
+> 拜登给董功文发邮件?讨论啥?
+> 豪华公寓谁的?谁住过?
+> 更多解密锁定路德社直播…… [pic.twitter.com/zRhu0HItiY](https://t.co/zRhu0HItiY)
+> — LUDE PRESS (@LudePress) [October 16, 2020](https://twitter.com/LudePress/status/1317061484459954177?ref_src=twsrc%5Etfw)
 
-夢想在枯萎，希望在消隱
+綜述：董功文在美國購買的大量房產的去向有四個——中共的常委，非洲、歐洲、亞洲與中共勾兌的政客們，給拜登這樣的美國政客、議員，用來舉辦包括吸毒、虐童、濫交等的各種PARTY；中共對被收買的政客錄下虐童類的視頻作為把柄，一旦不服從就亮出把柄，一旦政客失去影響力就以虐童視頻為要脅收回曾經以家族基金形式送給對方的房子，而被美國政客們濫交、虐童的對象就是那些偷渡到美國的被梁冠軍、法拉盛的欺民賊們終生控制的中國同胞們！不消滅不共，人類不得安寧！不消滅中共，中國同胞們永遠豬狗不如！
 
-身體流著華夏血脈的我們
+筆者注：關於路德先生在視頻中引用的報導見於[Chinese Buyer Snaps up Second Manhattan Trophy Apartment](https://www.mansionglobal.com/articles/chinese-buyer-snaps-up-second-manhattan-trophy-apartment-70060)（**BY FANG BLOCK**  |  ORIGINALLY PUBLISHED ON JULY 28, 2017  |  [MANSION GLOBAL](https://www.mansionglobal.com/)）
 
-有的被迫在異國流浪，只把他鄉當故鄉
+［A limited liability company linked to a top executive for a Chinese real estate developer has purchased an apartment at 432 Park Avenue for nearly  $33 million, just three months after he bought a $50 million trophy home at 15 Central Park West.
 
-有的在中華大地隱忍、適應、麻木、老卻
+一家與一家中國房地產開發商的高管有聯繫的有限責任公司以近3,300萬美元的價格購買了公園大道432號的一套公寓，就在三個月前，他購買了位於中央公園西15號的5,000萬美元的凱旋房。
 
-多少華人，生生被自己的祖國流放
+Unit 86A at 432 Park went into contract in May and closed on June 15 for $32.71 million, public records show. It first came on the market in December for $38 million. The sale price represents a 14% discount.
 
-多少同胞，硬是在自己的祖國活成了奴隸
+公共記錄顯示，位於432 Park的86A單元已於5月簽訂合同，並於6月15日完成，價格為3271萬美元。 它於12月首次以3800萬美元的價格上市。 銷售價格代表14％的折扣。
 
-我們抗爭，卻找不到方向
+The buyer, Sandis Holdings LLC, is associated with Gongwen Dong, chief financial officer of Radiance Property Holdings Ltd., part of the Radiance Group, which invests, develops and manages real estate across China.
 
-我們吶喊，卻無人傾聽
+買家Sandis Holdings LLC與Radiance Group旗下子公司Radiance Property Holdings Ltd.首席財務官董功文有聯繫，該公司在中國投資，開發和管理房地產。］
 
-我們結伴，卻如一盤散沙
+［Both of the limited companies share the same address as a property Mr. Dong bought in Great Neck, New York in 2014. They are also repped by the same attorney, who didn’t immediately respond to a request for confirmation.
 
-[!\[\]()!\[\](https://spark.adobe.com/page/tu7FolRdCwTHG/images/384c7844-ca0d-40ba-a684-c79fd7babd4f.jpg?asset_id=2c5bd108-a1e6-4ffa-826e-b175d8b5a8eb&amp;img_etag=%22e169248d8ddc1d6de8612701bc5613c3%22&amp;size=1024)](https://spark.adobe.com/page/tu7FolRdCwTHG/images/384c7844-ca0d-40ba-a684-c79fd7babd4f.jpg?asset_id=2c5bd108-a1e6-4ffa-826e-b175d8b5a8eb&amp;img_etag=%22e169248d8ddc1d6de8612701bc5613c3%22&amp;size=1024)
+兩家有限責任公司的地址與董先生2014年在紐約大內克（New Neck）購置的房產具有相同的位址。同一位律師還拒絕了董先生的財產，後者沒有立即回應確認請求。
 
-我們捐款，卻被小人欺騙
+Mr. Dong, who served as a top executive for Citigroup Global Markets Asia Limited before joining the Radiance Group, couldn’t be immediately reached for comment.
 
-我們追求民主的迫切心情
+董先生在加入Radiance集團之前曾擔任花旗集團全球市場亞洲有限公司的高管，但無法立即置評。］
 
-被一個又一個的偽類利用
-
-我們渴望真相卻迷霧重重
-
-我們期冀光明卻無能為力
-
-日復一日
-
-失望絕望如影隨形
-
-2017年，您來了，橫空出世！
-
-一步一步，我們跟隨您
-
-[!\[\]()!\[\](https://spark.adobe.com/page/tu7FolRdCwTHG/images/59ca9f3d-1bce-47e8-a83d-34f56955b04d.jpg?asset_id=d78fbb60-b231-4eb0-bed2-e228dff18372&amp;img_etag=%22fb652e5d5e7585db60a727eef6e2e752%22&amp;size=1024)](https://spark.adobe.com/page/tu7FolRdCwTHG/images/59ca9f3d-1bce-47e8-a83d-34f56955b04d.jpg?asset_id=d78fbb60-b231-4eb0-bed2-e228dff18372&amp;img_etag=%22fb652e5d5e7585db60a727eef6e2e752%22&amp;size=1024)
-
-從獵奇到狐疑，從狐疑到相信，從相信到堅信，從堅信到信仰
-
-我們冰冷的心被重新點燃
-
-我們被封凍的夢想被重新激活
-
-我們對嶄新的中國充滿了憧憬
-
-不知不覺中，
-
-我們之間，不是親人，勝似親人
-
-一千多個日日夜夜
-
-[!\[\]()!\[\](https://spark.adobe.com/page/tu7FolRdCwTHG/images/a39a93cf-31ae-47a4-a452-506c7068682f.jpg?asset_id=0276751d-dea4-4ffb-9ba3-697b00baadee&amp;img_etag=%22502fbe00e64aff499fdb56aa45340e7f%22&amp;size=1024)](https://spark.adobe.com/page/tu7FolRdCwTHG/images/a39a93cf-31ae-47a4-a452-506c7068682f.jpg?asset_id=0276751d-dea4-4ffb-9ba3-697b00baadee&amp;img_etag=%22502fbe00e64aff499fdb56aa45340e7f%22&amp;size=1024)
-
-我們感受到了您作為滅共者的正義和堅定
-
-您說，我只為14億中國人民的正義和尊嚴而戰；為我受侮辱的家人、員工、朋友、合夥人而戰；為支持我的上天而戰，絕不妥協！在生死威脅面前，在親人的生離死別面前，在家人的不解牽掛麵前，在巨大財富被搶劫面前，在無數玷污您名譽的髒水面前，任憑風吹雨打，任憑雨驟風狂，您無所畏懼，毫不猶豫地選擇正義、選擇良知！
-
-我們感嘆於您如海的智慧和超凡的能力
-
-看到了您怎樣巧妙地將妻女營救；看到您是如何將爆料革命拉向國際；看到您如何喚醒國際社會；看到您怎樣和盜國賊鬥智斗勇；看到您如何讓偽類大白於天下；看到您如何讓土共相互廝殺；看到您如何一步步化腐朽為神奇，化危難為機會，締造了新中國聯邦、構建了新中國聯邦的財富基礎；看到您如何締造金融傳奇；看到您如何一躍成為全球最牛的Rock star； 看到您如何成為全球最潮的設計師和模特……或者您真是受神佛眷顧，否則如何解釋這一個又一個的奇蹟！
-
-我們嘆服於您的勇敢和無畏
-
-您向全世界最邪惡、最恐怖、力量最強大的黑社會恐怖組織發起了挑戰，誓要消滅這個人類的毒瘤，讓公平和正義重歸大地！為了揭露共匪的邪惡，您不惜以身釣魚，為了讓滅共事業順利推進，您將生死置之度外，甚至已經安排好身後之事。您笑對恐懼，看淡生死，只為天命！
-
-[!\[\]()!\[\](https://spark.adobe.com/page/tu7FolRdCwTHG/images/fd58d770-13b6-469a-80fc-8772c3a19414.jpg?asset_id=e22e5e41-0b53-4998-88f6-36faa42253be&amp;img_etag=%22e8a69cefdcc13dd6ed24efc81ed53288%22&amp;size=1024)](https://spark.adobe.com/page/tu7FolRdCwTHG/images/fd58d770-13b6-469a-80fc-8772c3a19414.jpg?asset_id=e22e5e41-0b53-4998-88f6-36faa42253be&amp;img_etag=%22e8a69cefdcc13dd6ed24efc81ed53288%22&amp;size=1024)
-
-我們看到了您的大愛
-
-為了讓西方社會把中國和中國共產黨分開，把中國人和中國共產黨分開，您一次又一次奔走呼號，您一次又一次告誡戰友們文明有序地展現新中國人的形象。武漢疫情肆虐，您心心念念不忘武漢同胞，長江大水滔滔，您又是那麼牽腸掛肚。為了讓中國社會實現最低的轉型成本，您運籌帷幄，小心推進，在極細的鋼絲上跳著高難度的舞蹈，實現最佳的平衡。您痛心疾首同胞共產紅毒心魔之深，您大聲呼籲沒有共產黨的新中國要實現大赦，要人們忘記仇恨，面向未來。您為西藏同胞大聲疾呼，為香港同胞殫精竭慮，為台灣同胞痛心疾首。在香港民主運動中，您不眠不休，與香港人民同呼吸、共命運，您出錢出力、救助港人。
-
-我們看到了您為人的誠摯感恩
-
-看到了您對七嫂的綿綿情意；對兒女的深深愛護；對恩師的拳拳感恩之心；對班農先生的惺惺相惜。您不忘盤古的員工；不忘裕達的同事；不忘丟失的曲國嬌；不忘身陷囹圄的陳氏兄弟；不忘失去自由的大校；不忘勇敢揭露真相的閆博士；不忘6.4毅然站出來滅共的郝海東、葉釗穎
-
-我們感動於您對戰友的深情厚誼
-
-您對戰友不拋棄、不放棄、不忘記，盡最大可能扶持戰友、鼓勵戰友、幫助戰友、成就戰友。新中國聯邦建設的路上，為戰友創造諾亞方舟，還帶著戰友奔向有尊嚴的、財富自由的生活
-
-我們看到了您對弱者的憐惜，對蒼生的悲憫
-
-[!\[\]()!\[\](https://spark.adobe.com/page/tu7FolRdCwTHG/images/bb26b28c-9ab9-45c7-a07c-c06ea03c44e9.jpg?asset_id=00e7435d-5ddc-4dd1-85a4-a59ef46c3e90&amp;img_etag=%222a330c73656a9e613e70e5a13f5ac441%22&amp;size=1024)](https://spark.adobe.com/page/tu7FolRdCwTHG/images/bb26b28c-9ab9-45c7-a07c-c06ea03c44e9.jpg?asset_id=00e7435d-5ddc-4dd1-85a4-a59ef46c3e90&amp;img_etag=%222a330c73656a9e613e70e5a13f5ac441%22&amp;size=1024)
-
-那個被您念念不忘的楊改蘭已然成了戰友們的心結，成了刻在每個人心裡的傷疤
-
-我們看到了您的慷慨大義
-
-看到您對法治基金的大量捐贈，對戰友們幾乎有難必幫
-
-我們也感受了您對假醜惡行徑的義憤填膺
-
-看到您花費巨額的成本去打假，讓醜惡無所遁形，暴露在陽光之下
-
-我們看到了您的無私奉獻
-
-[!\[\]()!\[\](https://spark.adobe.com/page/tu7FolRdCwTHG/images/0e689e23-8158-43c3-a208-5597c30bfd11.jpg?asset_id=62a0318e-c154-439c-9d4b-9176306a2652&amp;img_etag=%22711053e8ac38de6e5b006ff4b01a2525%22&amp;size=1024)](https://spark.adobe.com/page/tu7FolRdCwTHG/images/0e689e23-8158-43c3-a208-5597c30bfd11.jpg?asset_id=62a0318e-c154-439c-9d4b-9176306a2652&amp;img_etag=%22711053e8ac38de6e5b006ff4b01a2525%22&amp;size=1024)
-
-您第一個站在反共最前沿，您第一個捐款給法治基金； 有困難，您總是沖在最前面； 有危險，您為戰友擋子彈
-
-我們感動於您頑強的毅力
-
-您每天雷打不動的健身，每天20小時的沒日沒夜的工作，堅定不移地向自己的目標邁進
-
-我們看到了您無比的堅強
-
-您度盡人世劫波，流言污衊、官司纏身、肆意抹黑、“戰友”背叛、巨額財產被搶、生命安全受到威脅、親人的哭泣、朋友的訣別、民眾的不解、政客的冷漠… …但所有一切的困難都變成了您強大自身的動力，讓您越挫越勇
-
-![]()![](https://spark.adobe.com/page/tu7FolRdCwTHG/images/fbc5dd38-9c82-4005-b062-815eefdcf0e0.jpg?asset_id=34084be1-2225-417d-9829-543512dfcf98&amp;img_etag=%22f9d743fe388907019c310ab1e3728514%22&amp;size=1024)
-
-您經歷的磨難讓我們淚目
-
-言語難以表達我們的情感
-
-我們何其有幸能與您同行
-
-我們何其有幸能與您並肩
-
-每個視頻中的點點滴滴
-
-每個溫暖的問候和話語
-
-每個行動的策劃與推進
-
-[!\[\]()!\[\](https://spark.adobe.com/page/tu7FolRdCwTHG/images/14389ac1-71ef-452c-83db-6a0411c9e7ca.jpg?asset_id=afed402d-1e8b-4910-9138-72161bfc8d23&amp;img_etag=%2291e53e71792fe741a38f23bfb62b3a16%22&amp;size=1024)](https://spark.adobe.com/page/tu7FolRdCwTHG/images/14389ac1-71ef-452c-83db-6a0411c9e7ca.jpg?asset_id=afed402d-1e8b-4910-9138-72161bfc8d23&amp;img_etag=%2291e53e71792fe741a38f23bfb62b3a16%22&amp;size=1024)
-
-您在作為，更在啟迪、在喚醒
-
-您啟發我們重新思考人生的意義
-
-為了正義和理想而奮鬥
-
-您讓我們重燃對公義的熱愛
-
-是其是，非其非
-
-您幫助我們反省自我的局限
-
-審視那些自大與懦弱
-
-您號召我們選擇團結和合作
-
-萬眾一心眾志成城
-
-您希望我們成為務實的行動派
-
-以行動為中共送終
-
-[!\[\]()!\[\](https://spark.adobe.com/page/tu7FolRdCwTHG/images/a905009e-7953-4d32-b062-77296db9e64c.jpg?asset_id=73377e4e-0d6f-452a-be00-b28405e1bf85&amp;img_etag=%22589f7bbb0e9655627daf95b39f27f4a0%22&amp;size=1024)](https://spark.adobe.com/page/tu7FolRdCwTHG/images/a905009e-7953-4d32-b062-77296db9e64c.jpg?asset_id=73377e4e-0d6f-452a-be00-b28405e1bf85&amp;img_etag=%22589f7bbb0e9655627daf95b39f27f4a0%22&amp;size=1024)
-
-您啟示我們感恩平凡的人生
-
-讓我們與愛人相惜相擁， 讓我們珍視家庭懂得感恩
-
-文貴先生，衷心感謝您！
-
-感謝您給我們帶來喜馬拉雅夢想
-
-感謝您讓我們看到了一個沒有共產黨的美好的明天
-
-當您震耳發聵地喊出滅掉共產黨這樣的豪邁誓言時
-
-中國人民內心積壓已久的情感隨著您的誓言噴薄而出
-
-當您不屈不撓去推進滅共事業時
-
-中國人民被壓制的希望隨著您的行動得見天日
-
-我們再也不想做奴隸，沒有自由和尊嚴
-
-我們再也不要被禁錮，沒有未來和希望
-
-我們要跟隨您用我們的行動終結中國共產黨這個邪魔政權！
-
-我們要跟隨您用我們的信念將這個共產邪靈趕出地球，無處容身！
-
-[!\[\]()!\[\](https://spark.adobe.com/page/tu7FolRdCwTHG/images/afc62018-cf0e-4541-b7b4-17207ddf3bc2.jpg?asset_id=f91bd74c-9178-4d36-8b76-bd059e01b026&amp;img_etag=%226630c4a84f0f28c08cf4505cdc5d44e3%22&amp;size=1024)](https://spark.adobe.com/page/tu7FolRdCwTHG/images/afc62018-cf0e-4541-b7b4-17207ddf3bc2.jpg?asset_id=f91bd74c-9178-4d36-8b76-bd059e01b026&amp;img_etag=%226630c4a84f0f28c08cf4505cdc5d44e3%22&amp;size=1024)
-
-文貴先生，衷心感謝您！
-
-與您相遇，此生不虛度！
-
-與您相遇，人生無遺憾！
-
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/tu7FolRdCwTHG/) -點擊spark adobe版
+（文章內容僅代表作者個人觀點）
 
 0

@@ -1,23 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 推特IT安全內控缺陷縱容比特幣欺詐
-`2020-10-16 16:18 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/428643/)
+## 美國國家法律與政策中心就美國大學收取中共禮金致信美國教育部【中文全文翻譯】
+`2020-10-16 21:08 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/429095/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16155621/zixuan.jpg)
-圖片來源：BLOCK TEMPO
-據10月14日華盛頓時報報導，推特在捲入比特幣醜聞調查後，因7月份幾十個大V賬戶被黑面臨來自紐約州金融服務局的全面監管行動。紐約州州長安德魯·庫莫（Andrew Cuomo）要求對推特賬戶被黑事件展開調查，金融服務局最終在一份報告中公佈了調查結果。
+### **[美國國家法律與政策中心（NLPC）致信美國教育部要求對賓夕法尼亞大學及賓大拜登外交與全球事務中心從中國收到的禮金和合同開展全面的調查](https://nlpc.org/2020/05/21/complaint-filed-against-university-of-pennsylvania-and-biden-center-for-undisclosed-china-mega-donations/)**
 
-據服務局的報告稱，這起黑客事件是由推特鬆懈的信息安全防衛系統造成的，技術不怎麼高超的網絡犯罪分子也可以造成巨大破壞。
-
-報導引用紐約州金融服務局主管琳達·A·萊瑟威爾（Linda A. Lacewell）的話稱，在社交媒體迅速成為新聞和信息的主要來源的同時，沒有任何監管機構對它們的網絡安全施以充分的監督。萊瑟威爾還表示，推特連低級別的網絡攻擊都防範不了說明社交媒體企業的自律不是解決網絡安全的方案。例如伊隆·馬斯克（Elon Musk）的賬戶就被黑客，然後被盜用來公開騙錢。公訴人起訴了這起黑客事件中的三人，他們從黑客活動中騙得10萬美元等值的比特幣。
-
-譯評：從推特屏蔽閆麗夢博士、紐約郵報、減少華爾街日報推特的點贊轉發數的事件來看，我們可以推測IT安全內控鬆懈的原因只是為所謂的第三方審查言論提供方便，中國共產黨為了省錢剋扣價款經常僱傭的是技術不怎麼高超的網絡犯罪分子來幫助“核實”信息，調節轉發、點贊數量。相信油管、臉書也有類似的IT安全重大內控缺陷。
-
-[原文鏈接](https://www.washingtontimes.com/news/2020/oct/14/twitter-faces-hew-push-for-regulatory-action-follo/)
-
-譯者：CPA Jim
-
-校對：Sarathecat
-
+#### **【[原文英文信件](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16201626/NLPC-Complaint-vs-Univ-of-Penn-Biden-Center-China-Gifts-May-20-2020-with-2-Exhibits3-1-1.pdf)】【[中文全文翻譯](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16201632/NLPC-Complaint-vs-Univ-of-Penn-Biden-Center-China-Gifts-V1.pdf)】**
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204312/PDFtoJPG.me-01-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204333/PDFtoJPG.me-02-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204349/PDFtoJPG.me-03-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204404/PDFtoJPG.me-04-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204420/PDFtoJPG.me-05-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204436/PDFtoJPG.me-06-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204451/PDFtoJPG.me-07-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204507/PDFtoJPG.me-08-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204539/PDFtoJPG.me-09-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204554/PDFtoJPG.me-10-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204609/PDFtoJPG.me-11-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204625/PDFtoJPG.me-12-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204642/PDFtoJPG.me-13-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204658/PDFtoJPG.me-14-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204714/PDFtoJPG.me-15-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16205317/PDFtoJPG.me-16-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16205340/PDFtoJPG.me-17-2-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16205707/PDFtoJPG.me-18-3-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16205105/PDFtoJPG.me-19-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16205149/PDFtoJPG.me-20-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16205128/PDFtoJPG.me-21-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16205649/PDFtoJPG.me-22-2-scaled.jpg)
 0
