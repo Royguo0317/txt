@@ -1,11 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國國家法律與政策中心就美國大學收取中共禮金致信美國教育部【中文全文翻譯】
-`2020-10-16 21:08 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/429095/)
+## 10.6 路德時評：朱利安尼發推文定性新冠是CCP病毒 美國總統及正義力量紛紛轉推【精華版粵語配音】
+`2020-10-16 22:54 GM42` [轉載自GNews](https://gnews.org/zh-hant/429280/)
 
-### **[美國國家法律與政策中心（NLPC）致信美國教育部要求對賓夕法尼亞大學及賓大拜登外交與全球事務中心從中國收到的禮金和合同開展全面的調查](https://nlpc.org/2020/05/21/complaint-filed-against-university-of-pennsylvania-and-biden-center-for-undisclosed-china-mega-donations/)**
+製作單位：戰友之家·粵語頻道
 
-#### **【[原文英文信件](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16201626/NLPC-Complaint-vs-Univ-of-Penn-Biden-Center-China-Gifts-May-20-2020-with-2-Exhibits3-1-1.pdf)】【[中文全文翻譯](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16201632/NLPC-Complaint-vs-Univ-of-Penn-Biden-Center-China-Gifts-V1.pdf)】**
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204312/PDFtoJPG.me-01-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204333/PDFtoJPG.me-02-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204349/PDFtoJPG.me-03-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204404/PDFtoJPG.me-04-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204420/PDFtoJPG.me-05-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204436/PDFtoJPG.me-06-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204451/PDFtoJPG.me-07-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204507/PDFtoJPG.me-08-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204539/PDFtoJPG.me-09-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204554/PDFtoJPG.me-10-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204609/PDFtoJPG.me-11-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204625/PDFtoJPG.me-12-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204642/PDFtoJPG.me-13-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204658/PDFtoJPG.me-14-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16204714/PDFtoJPG.me-15-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16205317/PDFtoJPG.me-16-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16205340/PDFtoJPG.me-17-2-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16205707/PDFtoJPG.me-18-3-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16205105/PDFtoJPG.me-19-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16205149/PDFtoJPG.me-20-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16205128/PDFtoJPG.me-21-1-scaled.jpg)![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16205649/PDFtoJPG.me-22-2-scaled.jpg)
+編輯團隊： 文恩、打雜的、文雀、文雀、wikim bao
+
+
+
+概要：
+
+朱利安尼發推說「中共病毒」
+
+川普總統轉推文
+
+班農先生在福克斯直接說CCP Virus
+
+羥氯喹防疫確實有效
+
 0

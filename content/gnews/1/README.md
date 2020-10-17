@@ -1,30 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## ABC、CNN試圖避免報道亨特-拜登爆炸性的腐敗新聞;其他網絡媒體報道不足五分鐘
-`2020-10-17 00:05 GM77` [轉載自GNews](https://gnews.org/zh-hant/429453/)
+## 10/17 財經快訊：墨西哥前國防部長涉嫌洗錢在美被捕;中共病毒肆虐威脅世界教育產業
+`2020-10-17 02:08 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/429645/)
 
-編撰：WLQF
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17015940/1-130.png)[https://www.cnn.com/2020/10/16/world/mexico-former-defense-minister-detained/index.html](https://www.cnn.com/2020/10/16/world/mexico-former-defense-minister-detained/index.html)
+####  1.英國準備硬脫歐：約翰遜表示準備取消談判
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16235332/10.17-1-1.png)
+[https://www.reuters.com/article/idUSKBN2710SY](https://www.reuters.com/article/idUSKBN2710SY)
 
-【北京時間10月17日報道】一項新的研究發現，大多數主要的電視網絡對《紐約郵報》關於亨特-拜登的爆炸性報道、他的海外商業交易及其與他父親時任副總統喬-拜登的潛在聯系投入的播出時間很少。
+####  2.奧巴馬時期國家安全主管主導使抖音成為一家“可信且安全“的企業
 
-News Busters確定，在周三和周四的92個小時的新聞節目中，只有不到10分鐘的時間用於報道拜登的爭議，這個故事很快就演變成了大科技公司的爭議。
+[https://thenationalpulse.com/news/obama-nsc-director-leads-tiktok-trust-team/](https://thenationalpulse.com/news/obama-nsc-director-leads-tiktok-trust-team/)
 
-根據這項研究，ABC和CNN根本沒有花時間去報道《紐約郵報》的報道。迪士尼旗下的網絡在 “早安美國 “以及 “今夜世界新聞 “中避開了這個話題。ABC新聞主播喬治-斯蒂芬諾普洛斯也沒有在周四晚上與民主黨候選人的市政廳中詢問拜登有關爭議的情況。
+####  3.中共正加速向美國買家拋售其美元債。
 
-CNN同樣跳過了拜登的醜聞。此外，這家反川普總統的網絡媒體周三選擇不直播最高法院對法官艾米-科尼-巴雷特（Amy Coney Barrett）的確認聽證會，實際上忽略了當天最大的兩個新聞。
+[https://www.zerohedge.com/markets/china-sells-dollar-bonds-directly-us-buyers-first-time-gets-record-demand](https://www.zerohedge.com/markets/china-sells-dollar-bonds-directly-us-buyers-first-time-gets-record-demand)
 
-MSNBC和CBS在《紐約郵報》的報道上各花了不到五分鐘的時間。盡管是24小時新聞網，但MSNBC的報道僅用了4分34秒，而CBS在這個問題上花了4分28秒。NBC在這場爭論上只用了45秒。
+####  4.尼日利亞社會活動人士用比特幣進行各種社會活動
 
-正如媒體研究中心副研究主任傑弗裏-狄更斯在報告中指出的那樣，那些確實報道了《郵報》報道的網絡 “把大部分時間都用來敲打它”。
+[https://www.coindesk.com/nigerian-activists-bitcoin-endsars-police-brutality](https://www.coindesk.com/nigerian-activists-bitcoin-endsars-police-brutality)
 
-上個月，這些電視網絡媒體同樣忽視了參議院國土安全委員會和財政委員會的調查結果，即亨特-拜登、他的同夥和外國人士–包括莫斯科前市長的妻子以及與中共有聯系的個人–之間流轉了數百萬美元的 “可疑金融交易”。
+####  5.墨西哥前國防部長因涉嫌洗錢在洛杉磯國際機場遭到逮捕。
 
-CNN、ABC、CBS和NBC的三個晚間新聞節目完全避開了這個話題。MSNBC的主持人Rachel Maddow是全網唯一一個談及參議院報告的主持人，但在這大約兩分鐘的報道中，卻對報告輕描淡寫。
+[https://www.cnn.com/2020/10/16/world/mexico-former-defense-minister-detained/index.html](https://www.cnn.com/2020/10/16/world/mexico-former-defense-minister-detained/index.html)
 
-參考鏈接：
-[https://www.foxnews.com/media/abc-cnn-avoid-explosive-hunter-biden-report](https://www.foxnews.com/media/abc-cnn-avoid-explosive-hunter-biden-report)
+####  6.零對沖：中共病毒正威脅世界高等教育
+
+[https://www.zerohedge.com/personal-finance/fall-enrollment-slides-coronavirus-threatens-higher-education-bubble](https://www.zerohedge.com/personal-finance/fall-enrollment-slides-coronavirus-threatens-higher-education-bubble)
+
+秘翻組·金融法律組
 
 0
