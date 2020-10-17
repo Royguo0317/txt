@@ -1,36 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 軍事評論 | 運-8反潛機頻繁巡邏臺海,對臺4艘潛艇“人盯人”——對美、日的潛艇恐怕連影都抓不著吧!
-`2020-10-17 09:57 公民之聲` [轉載自GNews](https://gnews.org/zh-hant/430391/)
+## 【世界多語言圖文】2020/10/11 CCP病毒每日疫情直播簡報
+`2020-10-17 12:00 GM62` [轉載自GNews](https://gnews.org/zh-hant/430164/)
 
-內軍事：快慢機 素材：文朝汗 校對：天藍色獨角色
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17092209/screenshot_2020-10-17-12-57-08-683_discord-1.jpg)
-2020年10月16日上午8時許,中共軍方的運-8型反潛機,再次出現在臺灣西南方向空域附近。
-這是進入10月以來的第11次,中共軍方對臺侵擾飛行動向！
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17092231/screenshot_2020-10-17-12-57-40-784_discord.png)
-中共黨媒宣傳喉舌“鳳凰網”發文稱,之所以派運-8反潛機,對臺灣西南空域進行多次前突偵察飛行任務,是由於臺灣所裝備的4艘潛艇,均部署於此方向的高雄,左營兩處軍事基地內.
-而這壹區域正是臺灣海峽的南部出入口,平均水深在200米以上,非常適合各型潛艇活動.
+戰友之家圖文摘要及小語種組
 
-這次的侵擾飛行與之前的不同之處在於,這是繼前日晚6時左右後的15小時內,第二次連續侵擾行動.
-“鳳凰網”稱,之所以在15小時內連續2次,選擇進入這壹空域進行偵查飛行.是因為臺方的4艘潛艇,水下最高航速20節,15小時內最遠航行300海裏,必須不讓它們跑出運-8反潛機的“手掌心”!
-因此,中共軍方才頻繁派出此機型針對臺方的4艘潛艇進行“人盯人”防守!
+[260\_English\_1011\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045721/260_English_1011_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045721/260_English_1011_CCP_Virus_Updates.pdf)
 
-看到上述言論後,就算是普通軍迷,都不免會對之“嗤之以鼻”!
-“鳳凰網”貴為中共黨媒喉舌,這也未免太過有失“專業水準”!
+[260\_French\_1011\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17120037/260_French_1011_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17120037/260_French_1011_CCP_Virus_Updates.pdf)
 
-運-8型反潛機的巡航速度是多少?
-中共官方標準數據是“600公裏/小時”.
-而臺灣4艘相對老舊的普通柴電潛艇的水下最高航速為20節左右,也就相當於37公裏/小時上下.
+[260\_German\_1011\_CCP\_Virus\_Updates\_](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045731/260_German_1011_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045731/260_German_1011_CCP_Virus_Updates_.pdf)
 
-運-8的最大作戰半徑為2700公裏左右.
-臺方4艘潛艇15小時的最遠距離航距大概為300海裏,也就是555公裏左右.
+[260\_Japanese\_1011\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045726/260_Japanese_1011_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045726/260_Japanese_1011_CCP_Virus_Updates.pdf)
 
-先不說,臺方的潛艇會不會閑的沒事幹,跑出去那麽遠.
-就算是,中共的反潛機也用不著“掐分掐秒”的跟在其屁股後面緊盯吧?
-以運-8的航速及航程,就算30小時後,再起飛去追都來得及.
-除非是到了到了深海區,運-8的實際反潛能力就“捉襟見肘”無能為力了.
+[260\_Spanish\_1011\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045736/260_Spanish_1011_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045736/260_Spanish_1011_CCP_Virus_Updates.pdf)
 
-相信,在臺灣海峽附近遊弋的“美、日”兩國潛艇應不在少數,以中共運-8反潛機的真實戰力水平,恐怕是連個影子都抓不到吧!
+[260\_Korean\_1011\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17083956/260_Korean_1011_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17083956/260_Korean_1011_CCP_Virus_Updates.pdf)
 
 0

@@ -1,21 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/10/11 CCP病毒每日疫情直播簡報
-`2020-10-17 12:00 GM62` [轉載自GNews](https://gnews.org/zh-hant/430164/)
+## “我是音雄”第一季第九期–選手陣容
+`2020-10-17 14:10 GMusic` [轉載自GNews](https://gnews.org/zh-hant/430710/)
 
-戰友之家圖文摘要及小語種組
+*我是音雄文字組天涯客，佳佳同學，山上的城，荒漠甘泉整理*
 
-[260\_English\_1011\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045721/260_English_1011_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045721/260_English_1011_CCP_Virus_Updates.pdf)
+GTV“我是音雄”大型音樂滅共節目第一季第九期直播活動，即將於美東時間10月17日週六晚7點，北京時間10月18日週日早7點，火熱開播。本期是西班牙農場主題，將有12名來自世界各地的參賽選手，分享他們高昂的歌聲和不為人知的滅共心路歷程。
 
-[260\_French\_1011\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17120037/260_French_1011_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17120037/260_French_1011_CCP_Virus_Updates.pdf)
+在空中唱響discord 上，開闢了“我是音雄”投票區。專區展示參賽選手簡介，您可以為自己喜歡的選手投上寶貴的一票。
 
-[260\_German\_1011\_CCP\_Virus\_Updates\_](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045731/260_German_1011_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045731/260_German_1011_CCP_Virus_Updates_.pdf)
+[https://discord.gg/AB9Xrrz](https://discord.gg/AB9Xrrz)
 
-[260\_Japanese\_1011\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045726/260_Japanese_1011_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045726/260_Japanese_1011_CCP_Virus_Updates.pdf)
+1 七白石西班牙農場
 
-[260\_Spanish\_1011\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045736/260_Spanish_1011_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045736/260_Spanish_1011_CCP_Virus_Updates.pdf)
+他是一位來自西班牙的藝術家，用畫筆做武器，捍衛爆料革命，歌頌真善美，鞭撻假惡醜。同時他也負責喜馬拉雅西站的直播節目。中共病毒的肆虐，讓他徹底清醒。不要以為政治跟你無關！中共的邪惡事關每一個人的生死。
 
-[260\_Korean\_1011\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17083956/260_Korean_1011_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17083956/260_Korean_1011_CCP_Virus_Updates.pdf)
+2 Marri 日本喜聯盟
+
+在邪惡的中共國，人活著不如豬狗。她五歲時在幼兒園就開始挨打，九歲時就親歷中共對法律的無恥踐踏。她的家庭必須靠微薄的地攤收入為生，卻又經常遭到城管的欺壓和搶劫。中共的種種劣跡迫使她走上了滅共的道路，同時也認識到新中國聯邦是未來的希望。
+
+3 佳佳同學美東香草山農場
+
+她曾是一位小粉紅，體驗過美國法制生活的她逐漸意識到CCP的邪惡。她剛開始接觸爆料革命時選擇逃避，香港慘劇讓她意識到滅掉CCP才是唯一的出路。從此她傳播真相、參加遊行，並參與了《自由》的合唱，用自己的力量消滅共產黨。
+
+4 文淵鳳凰農場
+
+他從2019年跟隨爆料革命，被無數英雄戰友所感動，希望儘自己所能多多參與滅共事業。他傳播真相並給白宮寫信，從剛開始的恐懼轉為無畏。這次他來到《我是音雄》，要用自己的力量做壓垮CCP的最後一根稻草。
+
+5 楓葉澳喜農場
+
+她來到澳洲31年，卻一直生活在微信世界⾥，等於⽣活在牆內。她的內⼼曾經是恐懼的，⾏為是被動的。直到今年5⽉，經過朋友的介紹，她終於接觸到了爆料革命，知道了中共的邪惡真相之後才恍然大悟。從此她開始了新的人生，連20年的憂鬱症也痊癒了。
+
+6 封神榜澳喜農場
+
+他在大學時發現CCP口中的“謠言“實為真相，而CCP宣傳的”真相“則為謠言。接觸爆料革命後，他積極傳播真相、捐款。他堅信郭先生是中共完美的掘墓人，並祈禱消滅CCP與CCP病毒的這一天早日到來。
+
+7 喜山必勝美東香草山農場
+
+她是千萬個普通百姓中的一員，生活中的點滴讓她走上了爆料革命的反共之路。線下向身邊的朋友宣傳中共的惡行，線上在Twitter積極轉發揭露中共的推文，並用英文宣傳爆料革命和病毒真相。參加了724休斯頓抗議遊行並加入了美東香草山農場。
+
+8 就喜歡G幣日本櫻花團
+
+必然加偶然，她於2018年加入了文貴先生領導的爆料革命。經過冷靜和激動的思考之後，原來對中共心存恐懼的她，不再對共產黨抱有任何幻想，也不願再做奴隸。日本的自由環境給了她參與的客觀條件，但更多的是郭先生的正直和付出給她帶來了信心和希望。
+
+9 Nick 新加坡農場
+
+他自2017年5月開始跟隨爆料革命，從此盡力向身邊的人傳播病毒真相和爆料革命。用七哥的名字給兒子取名，幸運的參與了GTV投資獲得了一把椅子。他希望能繼續影響國內的家人朋友，讓他們及時防範病毒，並幫助他們參與到G系列中來。
+
+10 AppleX 草根農場
+
+她來自被深度藍金黃的馬來西亞，因朋友的傳播而了解爆料革命。戰友們的勇敢與堅持令她震撼，家人的不理解更讓她決心以行動滅掉CCP，因此她努力傳播真相，參加日本遊行，並來到《我是音雄》唱出自己的心聲。
+
+11 二花西班牙農場
+
+他是今年全球lockdown的時候關注爆料革命並加入了西班牙農場。今年十月一號巴塞羅那滅共遊行時結識了戰友bbq和ranting，並一起寫滅共歌詞。一度曾因唱不好想退賽，但戰友的付出讓他決定再爭取一次機會繼續參賽。
+
+12 白水豆花兒美東香草山農場
+
+她於2017年開始跟隨爆料革命。 2018年，深受CCP體制的傷害的她與家人來到美國，追求自己的信仰、自由與安全。她相信無數點滴正義力量會促成世界的巨變，於是她勇敢參加了空中唱響團組織的《自由》露臉合唱，為正義與自由歌唱。
 
 0
