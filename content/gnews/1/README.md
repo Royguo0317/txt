@@ -1,30 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共利用孔子學院對加拿大進行政治監控
-`2020-10-17 09:33 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/430297/)
+## 第一夫人梅拉尼婭·川普分享病毒感染經歷
+`2020-10-17 12:21 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/430636/)
 
-加拿大喜馬拉雅聯盟加拿大農場 坐看雲起時
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17115450/WH_20201012_Malenia_COVID-photo-1.jpeg)圖片來源：[https://www.whitehouse.gov/people/melania-trump/](https://www.whitehouse.gov/people/melania-trump/)
+**First Lady Melania Trump: ‘My personal experience with COVID-19’**
 
-校對 WJ 上傳 WJ
+**第一夫人梅拉尼婭·川普：「我的COVID-19個人經歷」**
 
-10月15日，加拿大媒體TRUE NORTH 轉摘了《環球郵報》關於孔子學院的報導，指出中共不但利用其擴大宣傳和影響力，還通過學校對加拿大的政治進行監控。
+October 14, 2020
 
-據《環球郵報》獲得的文件顯示，在BC省高貴林地區每一個經營孔子學校項目的學校，不僅給孔子學院粉飾中共國形象的控制權，學校管理者還被要求定期向孔子學院匯報當地政府，領導人的政治態度和其它各種信息的詳細報告。
+By Melania Trump, First Lady
 
-孔子學院在BC省的高貴林地區，它在Walton小學、Scott Creek中學和當地五所高中開設課後和雙語課程。
+2020年10月14日
 
-學區發言人Ken Hoff說，他從未用過孔子學院提供的評估報告模板。但是，2017年他寫給孔子學院負責人孫梅的一封郵件中，表達了對”在截止日期前提交自我評估”的感謝。
+由第一夫人梅拉尼婭·川普撰寫
 
-到2017年，有超過3500名BC省的孩子參加了該機構開設的項目或課程。這些孩子們用的中文教科書是中國人民教育出版社出版的《快樂漢語》。該教科書完全使用了中共的宣傳，如在地圖上將台灣標為中共國的一個省，以及歪曲天安門事件等。
+It was two weeks ago when I received the diagnosis that so many Americans across our country and the world had already received—I tested positive for COVID-19. To make matters worse, my husband, and our nation’s Commander-in-Chief, received the same news.
 
-高貴林孔子學院十週年慶祝活動的視頻畫面顯示，孩子們高呼中共宣傳口號，朗誦親共詩歌讚美”五星紅旗”，並提到了共產主義革命精神。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17091252/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE497.png)圖片來源：YouTube
-評：孔子學院以教授和推廣中文和中國文化為名，由中共政府出資，在全世界輸出中共宣傳和價值觀，潛移默化地推動影響力。早在幾年前，全世界就已經開始意識到孔子學院的滲透，開始紛紛關閉孔子學院。
+兩周前，我接到了全國乃至全世界許多美國人都曾接到過的診斷—我的COVID-19測試呈陽性。更糟糕的是，我的丈夫，國家的總指揮官，也收到了同樣的消息。
 
-加拿大各省也早在幾年前就紛紛關停孔子學院。 2019年，新布倫瑞克省教育廳廳長在決定叫停該省的孔子學院時說道： “在人類歷史上，（中共）政府殺害的生命，差不多比其它任何政權都多，而孔子學院的任務是為（中共）政府創造一張友善、快樂的面孔。”
-目前高貴林是BC省唯一設有孔子學院的城市。 2020年5月便有許多人在網上呼籲關閉孔子學院。並發起請願簽署，指出關閉孔子學院是全球共識。美國政府8月宣布將孔子學院列為外國使團， 國務卿蓬佩奧又於9月表示，他認為美國大學校園內的孔子學院有望在2020年底前全數關閉。蓬佩奧強調孔子學院在美國“傳播北京的全球政令宣導與影響力” ，並指控中共透過孔子學院在美國大學招募“間諜與合作夥伴” 。
+Naturally my mind went immediately to our son. To our great relief he tested negative, but again, as so many parents have thought over the past several months, I couldn’t help but think “what about tomorrow or the next day?” My fear came true when he was tested again and it came up positive. Luckily he is a strong teenager and exhibited no symptoms. In one way I was glad the three of us went through this at the same time so we could take care of one another and spend time together. He has since tested negative.
 
-在全球滅共浪潮聲中，無論加拿大政府態度如何曖昧，也不得不在近日對中共的人權提出批評。在這種形勢下，高貴林孔子學院關閉的日子，應該將很快來臨。
+很自然的，我立刻想到了我們的兒子。令我們感到欣慰的是，他的測試呈陰性。但是，如同過去幾個月許多父母所想過的那樣，我忍不住想「明天或者後天會怎麼樣？」當他再次測試的時候，我的恐懼變成了現實，他被檢測為陽性。幸運的是，他是一個強壯的少年並且沒有任何症狀。在某種程度上，我很高興我們三個人同時經歷了這個過程，因為我們可以互相照顧，一起度過這段時光。他隨後測試為陰性。
+
+I was very fortunate as my diagnosis came with minimal symptoms, though they hit me all at once and it seemed to be a roller coaster of symptoms in the days after. I experienced body aches, a cough and headaches, and felt extremely tired most of the time. I chose to go a more natural route in terms of medicine, opting more for vitamins and healthy food. We had wonderful caretakers around us and we will be forever grateful for the medical care and professional discretion we received from Dr. Conley and his team. It was an unfamiliar feeling for me to be the patient instead of a person trying to encourage our nation to stay healthy and safe. It was me being taken care of now, and getting first-hand experience with all that COVID-19 can do. As the patient, and the person benefitting from so much medical support, I found myself even more grateful and in awe of caretakers and first responders everywhere. To the medical staff and the residence staff who have been taking care of our family—thank you doesn’t say enough.
+
+我很幸運，因為剛診斷出時的症狀極少，雖然這些症狀同時來襲，並且在之後的日子里症狀反應猶如過山車。我經歷了身體酸痛、咳嗽和頭痛，並且在大多數時候感覺極其疲倦。我選擇了相對自然的醫藥療法，選擇更多的維生素和健康食物。我們周圍有許多優秀的護工，我們會永遠感激 Conley 醫生及其團隊提供的醫療保健及專業判斷。自己成為病人，而不是那個竭力鼓勵我們的國家要保持健康和安全的人，對我而言，是一種令人陌生的感覺。我現在是被照顧的人，並且獲得了 COVID-19 一切的第一手經驗。作為患者，以及從如此多的醫療支持中受益的人，我發現自己甚至更加感激，並且敬重各地的護工及急救人員。對於一直照顧我們家人的醫務人員和住所員工的感激之語，言之不盡。
+
+Recovering from an illness gives you a lot of time to reflect. When my husband was taken to Walter Reed as a precaution, I spent much of my time reflecting on my family. I also thought about the hundreds of thousands of people across our country who have been impacted by this illness that infects people with no discrimination. We are in unprecedented times—and with the election fast approaching, it has been easy to get caught up in so much negative energy.
+
+疾病恢復過程帶給您許多時間去反思。當我丈夫為保險起見被帶到 Walter Reed 時，我用了很多時間來對家庭進行反思。我還想到了全國成千上萬的人受到這個疾病的影響，這個疾病無孔不入。我們正處於前所未有的時代，並且，隨著選舉的臨近，我們很容易陷入如此多的負能量當中。
+
+It also cheered me to think of all the people I have met across our country and the world—and the goodness and compassion that exists if you seek it out. Our country has overcome many hardships and much adversity, and it is my hope COVID-19 will be another obstacle we will be able to tell future generations we overcame—and learned from in the process.
+
+想到在我們國家和世界上我遇到的所有人，也讓我感到高興 — 如果你去尋找，就會發現他們的善良和同情心。我們的國家已經克服了許多困難和逆境，我希望我們將能夠告訴後代， COVID-19是我們克服的另一個障礙，並從中吸取了教訓。
+
+I encourage everyone to continue to live the healthiest life they can. A balanced diet, fresh air, and vitamins really are vital to keep our bodies healthy. For your complete well-being, compassion and humility are just as important in keeping our minds strong. For me personally, the most impactful part of my recovery was the opportunity to reflect on many things—family, friendships, my work, and staying true to who you are.
+
+我鼓勵每個人繼續過自己能及的最健康的生活。均衡的飲食、新鮮的空氣和維生素確實是保持我們身體健康的關鍵。為了你的全面健康，同情心和謙遜對保持我們心靈的強大同樣重要。對我個人來說，康復過程中對我影響最大的部分是有機會反思很多事情：家庭、友誼、工作，以及保持真我。
+
+I am happy to report that I have tested negative and hope to resume my duties as soon as I can. Along with this good news, I want people to know that I understand just how fortunate my family is to have received the kind of care that we did. If you are sick, or if you have a loved one who is sick—I am thinking of you and will be thinking of you every day. I pray for our country and I pray for everyone who is grappling with COVID-19 and any other illnesses or challenges.
+
+我很高興地報告，我的檢測結果已經為陰性，同時希望盡快恢復工作。除了這個好消息，我想讓人們知道，我明白我的家人得到這種照料是多麼的幸運。如果您生病了，或者您有親人生病了，我在想著您，而且每天會想著您。我為我們的國家祈禱，也為每一個正在與COVID-19以及任何其它疾病或挑戰作鬥爭的人祈禱。
+
+Thank you to everyone who reached out, and offered well wishes and prayers for our family. You remain in ours as well.
+
+感謝每一位伸出援助之手的人，為我們的家庭祝福和祈禱的人。你們也是我們的家人。
+
+Sincerely,
+
+真誠的，
+
+Melania Trump
+
+梅拉尼婭·川普
+
+閱讀白宮原文
+
+翻譯 & 校對：【Cyndi】【文所未聞】編輯：【Isaiah4031】
+
+戰友之家玫瑰園小隊出品
 
 0
