@@ -1,43 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 硅谷科技快線
-`2020-10-17 03:22 GM06` [轉載自GNews](https://gnews.org/zh-hant/429661/)
+## 民主黨的捐款大戶：臉書和推特
+`2020-10-17 08:14 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/430133/)
 
-資料收集整理：littlegecko(小壁虎)； 播報：黎明前；視頻：Aquarius水瓶座； 配樂：Kevin卡卡
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17080101/IMG-7610-1-scaled.jpg)
+原文：Facebook and Twitter Contribute Over 90% to Dems
 
+翻譯：引力波
 
+想知道為什麼臉書和推特為何要像奧威爾式的真理部一樣審查關於”紐約郵報”報導亨特.拜登醜聞的真相嗎？
 
-1、Zymergen公司籌集到了3億美元，因為現在合成生物學非常熱門。該公司表示，新資金將用於加速公司的Hyaline薄膜的生產，最早可在明年用於商業產品中。這是壹種革命性的電子應用薄膜，可用於柔性電路、顯示觸摸傳感器和完全透明的柔性印刷電路板。
-Zymergen raised $300 million because synthetic biology is so hot right now. The new capital will be used to accelerate manufacturing of the company’s Hyaline film, which should be used seen in commercial products as soon as next year, according to the company. This is a revolutionary electronic application film used in flexible circuits, display touch sensors and completely transparent printed circuit boards (PCB).
+它們的捐贈記錄可能有助於解釋這一切。
 
-2、谷歌宣布推出Android 11，這是其移動操作系統的最新版本。
-Google  today announced the launch of Android 11, the latest version of its mobile operating system.
+公開的秘密記錄顯示，到目前為止，對於“所有聯邦候選人”來說，臉書和推特向民主黨人提供了90％以上的政治捐款。這兩個平台的總計數百萬美元的總和分別由員工個人捐款和PAC資金分配。獲得這兩個巨頭最高捐款額都是民主黨總統候選人喬·拜登。毫無疑問，這些龐大的科技公司清楚表明了它們的政治立場。
 
-3、PopSQL為其協作SQL編輯器籌集了340萬美元的種子輪資金。使用該創新工具，壹個公司的團隊可以編寫壹次數據庫查詢，然後在內部輕松共享，開發人員和數據分析人員還可以輕松創建不同版本的查詢。
-PopSQL raises a $3.4M seed round for its collaborative SQL editor. With PopSQL, teams can write a database query once and then easily share it within their company. With this tool, developers and data analysts can also easily create different versions of a query.
+昨晚推特對傳播“紐約郵報”報導的推特用戶進行審查的行為很好的說明了它所持的立場。是的，對於“所有聯邦候選人”，推特通過個人捐款（200美元或更多）的方式向民主黨人捐贈了高達98.99％（347,270美元）的捐款。沒有PAC錢被記錄。相比之下，共和黨人只獲得了1.01％（3,556美元）的收入。拜登是推特捐贈的最大接受者，共收到$ 66,929，全部來自個人。這意味著拜登獲得了推特向“所有聯邦候選人”捐款總額的19％。
 
-4、Carbon Health初創公司將在全美開設100家活動式COVID-19測試站。這種方式可能會成為壹種持久和靈活的方式，以滿足各地分布式冠狀病毒檢測的需要。
-Carbon Health to launch 100 pop-up COVID-19 testing clinics. Carbon Health’s model could be a more permanent and scalable way to address the needs of distributed care everywhere.
+在向個人捐款（2,400,269美元）和PAC捐款（234,000美元）等於或大於200美元之間，臉書總共共向民主黨捐款了91.68％（在2,628,040美元中，為2,409,464美元）。共和黨人只佔8.32％（218,576美元）。拜登是臉書捐款最多的人，共收到645,152美元，全部來自個人。這意味著拜登獲得了Facebook向“所有聯邦候選人”捐款總額的25％。
 
-5、歐盟針對打擊在線信息傳播的《行為準則》，進行了壹次重大審查，得出的結論是，自我監管工具無法為簽署該協議的技術平臺和廣告商提供足夠的透明度或問責制。
-A major European Commission review of a Code of Practice aimed at combating the spread of disinformation online has concluded the self-regulatory instrument is failing to deliver enough transparency or accountability from the tech platforms and advertisers signed up to it.
+據報導，推特甚至將*《紐約郵報》*這份擁有219年曆史的報紙的推特帳戶鎖定。這類似於*將《紐約時報》*的帳戶拒之門外*，而《紐約時報》*在《*郵報》*問世幾十年後才首次發布*。*推特甚至將白宮新聞秘書凱里·麥肯尼（Kayleigh McEnany）的帳戶刪除了。
 
-6、COVID-19大流行繼續給人們和企業的財務帶來巨大壓力，為了應對某些緊要關頭，PayPal和Visa宣布擴大服務範圍，以更快地將現金交到人們手中。
-The COVID-19 pandemic continues to put huge stress on people’s and businesses’ finances, and in an effort to meet some of the crunch, today PayPal  and Visa announced an expansion of a service to get cash into people’s hands faster.
+*《紐約郵報》的報導爆出後*，臉書的策略傳訊總監[安迪·斯通](https://twitter.com/andymstone)[在推特上宣布](https://twitter.com/andymstone/status/1316395902479872000)，臉書將“減少在我們平台上傳播*《紐約郵報》的傳播。* ”
 
-7、俄勒岡州波特蘭市議會周三通過了壹項法案，禁止市政局使用有爭議的技術，禁止私人公司在公共場所使用面部識別技術。
-The city council in Portland, Oregon passed legislation Wednesday that Portland will both prohibit city bureaus from using the controversial technology and stop private companies from employing it in public areas.
+如先前的報告所述，斯通與民主黨人合作的歷史悠久。據稱，這包括擔任前參議員芭芭拉（D-CA）的新聞秘書，擔任民主黨國會競選委員會的西部地區新聞秘書，以及擔任前國務卿約翰·克里（John Kerry）2004年總統大選的成員LinkedIn。
 
-8、成立於2015年的Iron Ox公司是農業機器人領域最著名的公司之壹，最近宣布完成2000萬美元的B輪融資。在COVID-19時代，其中壹些問題變得更加緊迫，人們仍然擔心病毒傳播的可能性。因此，投資者正在關註所有的機器人技術和自動化技術。
-Bay Area-based Iron Ox  today announced a $20 million Series B. Founded in 2015, Iron Ox has become one of the more prominent names in the world of agricultural robotics. In the era of COVID-19, some of those problems have become even more pressing, with additional concerns surrounding the potential for transmission. It’s no surprise, then, that the company was able to nearly double previous raises in an era when investors are eyeing any and all robotics and automation.
+最近，臉書和谷歌與左派組織Democracy Works的合作關係被曝光， 揭示這兩巨頭幫助制定其2020年選舉策略。
 
-9、特朗普表示不會延長TikTok出售的截止日期。這增加了談判的緊迫性，因為如果TikTok無法與買方達成協議，TikTok可能會在美國被禁止。
-Trump says deadline for TikTok sale won’t be extended. This adds urgency to negotiations because TikTok may be banned in the United States if it can’t reach an agreement with a buyer.
+Twitter首席執行官傑克·多爾西（Jack Dorsey）還被揭露出向左派波士頓大學教授和哥倫比亞廣播公司新聞通訊員伊布拉姆·X·肯迪（Ibram X. Kendi）捐款1000萬美元，後者因種族歧視而惡毒地襲擊了美國最高法院提名的法官艾米·科尼·巴雷特法官和她的家人。原因就是巴雷特從海地收養了兩個孩子。
 
-10、初創國防科技公司Anduril本月獲得了美國海關與邊境保護局3600萬美元的資助，該公司擁有的隱身快速飛行無人機可用來建造虛擬的邊境墻。
-Anduril, a young defense-friendly tech company from the founder of Oculus, received $36 million from Customs and Border Protection this month for its AI-powered autonomous surveillance towers to build the virtual border wall.
+美國現在需要對抗這些大型高科技公司，否則這些巨頭可能確實會成功地影響2020年大選，獲得這些瘋狂左派想要的結果。
 
-（消息來源：http://techcrunch.com ）
+鏈接： [https://newsbusters.org/blogs/business/joseph-vazquez/2020/10/15/facebook-and-twitter-contribute-over-90-dems](https://newsbusters.org/blogs/business/joseph-vazquez/2020/10/15/facebook-and-twitter-contribute-over-90-dems)
 
 0

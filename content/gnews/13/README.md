@@ -1,34 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 10/17 財經快訊：墨西哥前國防部長涉嫌洗錢在美被捕;中共病毒肆虐威脅世界教育產業
-`2020-10-17 02:08 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/429645/)
+## 美國人體驗中共式言論審查：臉書和推特封殺拜登醜聞報道
+`2020-10-17 07:49 GM06` [轉載自GNews](https://gnews.org/zh-hant/430116/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17015940/1-130.png)[https://www.cnn.com/2020/10/16/world/mexico-former-defense-minister-detained/index.html](https://www.cnn.com/2020/10/16/world/mexico-former-defense-minister-detained/index.html)
-####  1.英國準備硬脫歐：約翰遜表示準備取消談判
+作者：文徬
 
-[https://www.reuters.com/article/idUSKBN2710SY](https://www.reuters.com/article/idUSKBN2710SY)
+2020年10月14日，《紐約郵報》曝光了喬·拜登兒子亨特·拜登醜聞，臉書和推特刪除了該報導的鏈接。這是美國建國245年以來從沒經歷過的言論審查，美國人第壹次全面體驗到中共式言論審查。
 
-####  2.奧巴馬時期國家安全主管主導使抖音成為一家“可信且安全“的企業
+《紐約郵報》曝光了亨特·拜登的郵件，證明亨特從烏克蘭布利斯瑪（Burisma）油氣公司每月拿5萬美元好處費，介紹該公司董事與時任副總統的父親見面。臉書、推特隨後封殺相關報道的新聞鏈接。幾位共和黨參議員、眾議員，白宮新聞秘書賬號都被短暫禁言。
 
-[https://thenationalpulse.com/news/obama-nsc-director-leads-tiktok-trust-team/](https://thenationalpulse.com/news/obama-nsc-director-leads-tiktok-trust-team/)
+美國總統川普14日推特發文，“太可怕了，臉書和推特刪除了紐郵賬號公布的關於‘瞌睡蟲喬’及其兒子亨特的‘確鑿證據’的電子郵件的報導。” 共和黨參議員克魯茲(Ted Cruz)致函推特執行長杜錫(Jack Dorsey)，批評推特公司對言論審查的虛偽。共和黨美國參議員霍利(Josh Hawley)致函臉書執行長紮克伯格(Mark Zuckerberg)，表示這種“看似選擇性的阻撓”暴露了臉書的偏袒。紐約郵報批評臉書和推特協助拜登競選，指出“臉書和推特不是媒體平臺，它們是宣傳機器”。
 
-####  3.中共正加速向美國買家拋售其美元債。
+推特和臉書對言論的審查與中共政府的作為沒有任區別，中共的邪惡威脅到全世界每壹個人。福克斯著名主持人塔克·卡爾森痛斥推特和臉書，他表示，沒人會想到這樣的事情會發生在美國，這是美國的黑暗時刻。
 
-[https://www.zerohedge.com/markets/china-sells-dollar-bonds-directly-us-buyers-first-time-gets-record-demand](https://www.zerohedge.com/markets/china-sells-dollar-bonds-directly-us-buyers-first-time-gets-record-demand)
-
-####  4.尼日利亞社會活動人士用比特幣進行各種社會活動
-
-[https://www.coindesk.com/nigerian-activists-bitcoin-endsars-police-brutality](https://www.coindesk.com/nigerian-activists-bitcoin-endsars-police-brutality)
-
-####  5.墨西哥前國防部長因涉嫌洗錢在洛杉磯國際機場遭到逮捕。
-
-[https://www.cnn.com/2020/10/16/world/mexico-former-defense-minister-detained/index.html](https://www.cnn.com/2020/10/16/world/mexico-former-defense-minister-detained/index.html)
-
-####  6.零對沖：中共病毒正威脅世界高等教育
-
-[https://www.zerohedge.com/personal-finance/fall-enrollment-slides-coronavirus-threatens-higher-education-bubble](https://www.zerohedge.com/personal-finance/fall-enrollment-slides-coronavirus-threatens-higher-education-bubble)
-
-秘翻組·金融法律組
+信息來源： FOX NEWS網站
+https://www.foxnews.com/opinion/tucker-carlson-hunter-biden-twitter-facebook
 
 0
