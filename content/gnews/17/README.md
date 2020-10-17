@@ -1,68 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 耶魯科學家：Fauci與權利交易而非科學，他在“殺死美國人”，為什麽不調查這個人？
-`2020-10-16 13:01 GM77` [轉載自GNews](https://gnews.org/zh-hant/428389/)
+## 牛根生捐款特魯多基金會 中共合法滲透加拿大
+`2020-10-16 17:35 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/428731/)
 
-收集：文W 編撰: WENJUN
+喜馬拉雅聯盟加拿大農場 WJ
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16125515/10.16-8-3.png)（美聯社照片/亞歷克斯·布蘭登）
+校對 小鷗 上傳 XM
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16171711/unnamed-1-2.jpg)圖片來源：en.lnfund.org
+加拿大反叛新聞（Rebel News）10月15日爆出，最近收到加拿大“創新科學和經濟發展部”與特魯多家族基金會打交道的800多頁文件，其中有該基金會收到張斌、牛根生捐款的記錄。
 
-您可能沒有聽說過，但是在8月23日，一個名叫Harvey Risch的人對Anthony Fauci提出了令人震驚的[指控](https://www.foxnews.com/transcript/democrats-and-mainstream-media-push-post-office-conspiracy-theories)。
+以下是與張斌、牛根生向特魯多基金會捐贈有關的關鍵日期：
 
-Risch是耶魯大學流行病學教授。他擁有聖地亞哥大學聖地亞哥分校的博士學位。他來自芝加哥大學，他的職業生涯跨越40年，發表了300多篇論文。
+2014年1月：蒙特利爾大學法學院告知基金會，兩位捐贈者有意向；2014年9月24日：潛在的兩個捐助方與蒙特利爾大學代表和特魯多基金會工作人員開會討論向蒙特利爾大學和特魯多基金會捐贈的方式；2014年11月–2016年2月：在接下來的一年半時間裡，不時地進行談判。
 
-哈維·裏施（Harvey Risch）不能被視為“騙子陰謀論者”。當一位世界著名的科學家成為科學家時，您不能無視這樣一些令人難以置信的嚴肅指控，即“遵循科學”的口頭禪。
+加拿大總理小特魯多曾在2016年5月19日，參加加拿大中華商會主席王標（Benson Wang）位於多倫多的豪宅中舉辦的集資晚宴，每張門票高達$1,500元。在此次集資晚宴的賓客中還有長江國際商會（Yangtze River International Chamber of Commerce）會長劉萌（Liu Meng），該商會在加拿大設有分會。長江國際商會的董事會成員包括李嘉誠和馬蔚華。當天的賓客中，至少還有三人是負責旨在擴大中共國全球影響力的國有機構，並且所有行動都受到中共監管的黨政官員。在小特魯多所參加的中共國富豪集資晚宴舉辦數天后，張斌就前往渥太華與中共國駐加拿大大使羅照輝就“加中關係的最近進展”進行了會談。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16171912/CBC.jpg)圖片來源：CBC
+此事當年曾引發在野黨炮轟。小特魯多在之後的議會質詢時就此辯稱，他參加中共國富豪集資晚宴是為了吸引中共國投資。在此次集資晚宴舉辦不到兩週後，張斌和牛根生便向特魯多基金會及蒙特利爾大學法學院捐款100萬美元，以紀念現任總理小特魯多的父親為名（加國前總理老特魯多1970年在任上開啟了與中共國的外交關係）。在這100萬美元捐款中，有20萬捐給特魯多基金會，有5萬是用於建一座老特魯多雕像，還有75萬用於資助設立蒙特利爾大學法學院獎學金，其中包括資助魁省學生到中共國訪問。
 
-然而，比起裏施的指控本身更令人震驚的是，盡管如此，*他們*被完全推翻了。沒有人打過電話調查Risch所說的話是否真相。正如宮廷警衛看到哈姆雷特父親的幽靈之後所說的那樣，丹麥有些腐爛。
+經過18個月的談判，張斌和牛根生在2016年6月宣布了100萬美元的捐款。捐給特魯多基金會的20萬元以三次分期付款：2016年7月1日，付7萬元；2017年7月1日，付7萬元；2018年7月1日，付6萬元。
 
-裏施（Risch）聲稱，福西（Fauci）故意撒謊該藥羥氯喹，並利用他的影響力讓FDA對其進行鎮壓，因為他和其他官僚“與其他力量並駕齊驅，導致他們做出不基於科學的決定（並且正在殺死美國人）。”
+捐贈和基金會設立協議規定:每年在基金全部用完之前，特魯多基金會將把現有資金用於基金會舉辦”張斌-牛根生會議”，以及影響加中關係的會議和類似活動。
 
-此外，Risch特別聲稱Fauci和FDA造成了“可能通過HCQ拯救的數十萬美國人的死亡”。
+張斌是中共第十二屆、十三屆全國政協委員、中（共）國文化產業協會會長、國家動漫遊戲產業振興基地管委會主任、北京盛世金鷹國際傳媒有限公司董事長。 2013年張斌曾代表中（共）國文化產業協會在白求恩大夫的母校——多倫多大學設立“張斌-牛根生-白求恩基金”。他在2016年收購了加拿大魁北克的Château Montebello酒店。
 
-博士 喬治·法裏德（George C. Fareed），邁克爾·雅各布斯（Michael M. Jacobs）和唐納德·龐貝（Donald C. Pompan）完美地描述了Fauci的觀點令人不安的事實：“沒有受到醫生的強烈反對，正式的公開反對”，盡管他的媒體品牌為“科學人”實際上是科學應如何運作的對立面，實際上是邪教的象征。
+由兩個中（共）國國家部委負責監管的中（共）國文化產業協會旨在協助中共國政府發展對外關係，該協會高層人員包括解放軍高級將領，以及中共高級官員。協會副會長有馬雲、馬化騰、許家印以及楊受成等人們耳熟能詳的“白手套”。牛根生任該協會高級顧問。
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16173140/trudeau-and-jack-ma-in-davos.jpg)*圖片來源：CBC*
+牛根生從伊利做起，是蒙牛乳業集團創始人，還是中（共）國慈善聯合會副會長，一直被中共媒體宣傳為正面形象，在2004年底成立老牛基金會，曾被評為“家族慈善基金會十強”，牛氏家族被評為“中國戰略慈善典範”。截至2019年底，老牛基金會累計與180家機構與組織合作，開展了255個公益慈善項目，遍及中國31個省(自治區/直轄市/特別行政區）及美國、加拿大、法國、意大利、丹麥、尼泊爾、非洲等地，支出總額15.15億元。 2008年中共國乳製品三聚氰胺污染事件，用毒牛奶坑害老百姓的就是伊利、蒙牛。從那以後，越來越多的老百姓不敢買國產奶。牛根生不滿足於用蒙牛來蒙中共國人，還帶著戰略任務走向了世界。 （2016年牛根生在蒙特利爾大學發言， 圖片來源：中共國文化產業協會）
 
-從大流行開始：“全世界的醫務人員發現，在出現癥狀的前五到七天內，可以將高風險患者作為門診病人，並使用由羥氯喹，鋅和阿奇黴素（或強力黴素）組成的“雞尾酒”。對文獻的多項學術貢獻詳細說明了基於羥氯喹的聯合治療的有效性。”
+特魯多家族慈善基金（Pierre Elliott Trudeau Foundation）是為紀念2000年去世的加拿大前總理特魯多，由其家人、朋友和同事於2001年成立。 2002年，在下議院的支持下，加拿大政府向基金會捐贈了1. 25億加元的人文和人文科學高級研究基金。基金會還得益於私人捐款。該基金會將自己描述為一個獨立且無黨派的慈善機構，並資助和促進學術以及公共利益研究。
 
-除了使用HCQ的“美國數百名醫師和全球成千上萬名在治療高危人群方面取得巨大成功的醫師”之外，“至少有10項研究證明了HCQ的有效性”。
+位於加拿大法語區魁省的蒙特利爾大學出過特魯多家族的兩位總理以及魁省的眾多政要，被譽為“法語世界的哈佛”、“加拿大法裔總理的搖籃”，與政界關係緊密。該校負責人表示，如果沒有和中共國大學的長期合作，張斌和牛根生的捐款就不可能實現。該校法學院與中共國的首次聯繫始於1998年，當時讓·克雷蒂安（Jean Chrétien）政府要求加拿大國際開發署組織一場競賽，以培訓中共國法官。自1998年以來，已有很多合作培訓項目，包括面向中共國和魁北克學生的暑期學校，面向中共國學生的法律碩士課程和聯合碩士課程等。
 
-三位醫學博士繼續引用耶魯大學流行病學家，《*美國流行病學*[雜誌》](https://academic.oup.com/aje/advance-article/doi/10.1093/aje/kwaa093/5847586)*的*Harvey Risch博士的文章，敦促其*標題*（可惜無濟於事），開處方HCQ應該是“……立即加大力度作為關鍵。大流行危機。”
-
-這三位醫生指出，Risch博士和全球成千上萬的HCQ取得了巨大成功的醫生建議僅*在*癥狀發作後的*五到七天內對*高危患者使用它。它還必須與鋅和另一種藥物一起在“雞尾酒”中服用。沒有人聲稱HCQ單獨服用或癥狀首次出現後一周以上才有效。
-
-然而，作為博士。Fareed，Jacobs和Pompan繼續直接斥責Fauci，以無恥地欺騙公眾，他聲稱所有隨機對照試驗均顯示HCQ無效，要麽單獨使用HCQ，要麽沒有剩下的全部雞尾酒，要麽沒有服用在出現癥狀後的頭五到七天內。
-
-Fauci力圖抑制HCQ的研究也可能完全與其他藥物有關，因為它們與疾病爆發以來一直挽救生命的人所建議的實際治療方法有關。
-
-今年5月，來自“所有專業和所有州”的600多名醫生簽署了[一封](https://www.scribd.com/document/462319362/A-Doctor-a-Day-Letter-Signed)給特朗普總統的公開[信](https://www.scribd.com/document/462319362/A-Doctor-a-Day-Letter-Signed)，描述的不是COVID-19，而是Fauci的封鎖是“大規模人員傷亡事件”。
-
-最初在那封信上簽名的600名醫生警告我們說，福奇正在美國造成字面上的大規模人員傷亡事件，至今已發展到成千上萬。
-
-事實是令人震驚的專家們警告說，福奇的建議沒有科學依據，並且正在造成空前的災難，這意味著他應該在很久以前就受到調查。但是哈維·裏施（Harvey Risch）走得更遠，明確指控福奇鎮壓一種他深知完全可以挽救數十萬人生命的藥物，因為他“躺在床上”受益。
-
-裏施還說，這絕不是富奇第一次造成美國人因剝奪生命藥物而死亡。他說，在80年代出現艾滋病時，福奇所做的事情完全相同，導致17,000多例不必要的死亡：
-
-這始於1987年，最引人註目的是，當時紐約市的艾滋病患者死於所謂的肺囊蟲性肺炎（PCP），後來積累了臨床經驗。通過使用抗生素Bactrim防止死亡的大量病例。這甚至是當時的通用藥物而且便宜。
-
-活動家在NIH與FDA的Fauci博士及其15名選定的科學家舉行了會議，並請Fauci博士向醫生提出指導方針，他們考慮使用Bactrim來預防艾滋病患者，以免死於這種疾病。福西博士拒絕了。他說，我想要隨機，對照，盲目，對照的試驗證據。那是我的黃金標準。那或什麽都沒有。
-
-活動人士離開了。NIH沒有資助任何隨機試驗。他們從自己的艾滋病患者那裏籌集資金來收集數據，進行隨機試驗。他們花了兩年時間。他們回到了福奇博士那裏。在這兩年中，FDA批準AZT作為艾滋病的治療方法，但AZT可以起作用，但並不完全。它也需要其他藥物。
-
-在他們花了兩年的時間將這些數據返回給Fauci博士以支持使用Bactrim的過程中，有17,000名艾滋病患者死亡，因為Fauci博士堅持甚至不發表支持考慮使用的聲明。
-
-但是，當成千上萬的醫生和科學家花了數月時間警告我們，福奇正在兜售偽科學庸醫，造成重大人員傷亡事件，而享譽全球的耶魯流行病學家繼續公開指責他造成數十萬人死亡時，事情甚至更加嚴重。通過抑制用藥，他知道這是有效的，因為他躺在床上有特殊興趣，但是沒有一個權威人士對這是否成立有絲毫擔憂。
-
-正如我的同事[Bonchie](https://www.redstate.com/bonchie/2020/10/13/dr-fauci-isnt-stupid-he-just-thinks-you-are/)今天上午報道的那樣，Fauci在昨天接受CNN采訪時聲稱，除了COVID-19之外，他沒有想到任何其他原因導致自封鎖行動以來美國遭受的過多死亡。
-
-他一定不要讀《華盛頓[郵報》](https://www.washingtonpost.com/health/2020/09/16/coronavirus-dementia-alzheimers-deaths/?arc404=true)。甚至他們報告說，僅8月15日，福奇的禁閉行動就殺死了13,000多名阿爾茨海默氏癥患者。上帝知道自那以後還有更多的人死亡。
-
-您會發現我沒有使用標題“ Dr.”。當談到福西。這是必須立即停止的事情。從字面上看，Fauci在整個50年的職業生涯中都沒有見過一位患者。稱他*Fauci*博士是淫穢的，就像將Joseph Mengele稱為*Mengele**博士一樣*。
-
-**Fauci****同嗜血的權力和利益關聯方沆瀣一氣，其行徑等同於殺人放火。閆麗夢博士曾在一次訪談節目上質問福奇：他自己就在使用羥氯喹，他敢不敢做尿檢？他為什麽不承認羥氯喹對****CCP****病毒的療效，而總在強調羥氯喹的副作用，他敢不敢做尿檢？**
-
-**Fauci****之流與權力做交易，最終難逃被調查的命運！**
+自2013年4月小特魯多（Justin Trudeau）贏得自由黨領袖以來，特魯多基金會總捐款額水漲船高。此次爆料文件中還有該基金會用政府資金向其志願者提供禮品卡，以及其他未付清款項等假公濟私的記錄。小特魯多從2002年到2014年一直直接參與該基金會。中共媒體吹捧的人物借向特魯多基金會捐款，同小特魯多增加了見面、勾兌的機會。吃人嘴短、拿人手短，看看這些年來，小特魯多和哪些中共背景的人吃了飯、和什麼人物走得近，就可以知道由他領導的政府會將加拿大人帶向何方。
 
 參考鏈接：
-[https://www.redstate.com/michael\_thau/2020/10/13/renowned-yale-scientist-fauci-knowingly-caused-100s-of-1000s-to-die-to-benefit-forces-hes-in-bed-with-what-will-it-take-for-someone-to-investigate/](https://www.redstate.com/michael_thau/2020/10/13/renowned-yale-scientist-fauci-knowingly-caused-100s-of-1000s-to-die-to-benefit-forces-hes-in-bed-with-what-will-it-take-for-someone-to-investigate/)
+
+老牛基金會
+
+[http://www.lnfund.org/index.php?s=/Index/about/cid/164.html](http://www.lnfund.org/index.php?s=/Index/about/cid/164.html)
+
+Two Chinese businessmen donate $1M to the University of Montreal and the Trudeau Foundation
+
+[https://nouvelles.umontreal.ca/en/article/2016/06/02/two-chinese-businessmen-donate-1m-to-the-university-of-montreal-and-the-trudeau-foundatio/](https://nouvelles.umontreal.ca/en/article/2016/06/02/two-chinese-businessmen-donate-1m-to-the-university-of-montreal-and-the-trudeau-foundatio/)
+
+8 things to know about the Pierre Elliott Trudeau Foundation
+
+[https://www.cbc.ca/news/politics/pierre-elliott-trudeau-foundation-questions-1.3868049](https://www.cbc.ca/news/politics/pierre-elliott-trudeau-foundation-questions-1.3868049)
+
+EXCLUSIVE: Chinese billionaires used Trudeau Foundation to legitimize Communist regime
+
+[https://www.rebelnews.com/exclusive\_chinese\_billionaires\_used\_trudeau\_foundation\_to\_legitimize\_communist\_regime](https://www.rebelnews.com/exclusive_chinese_billionaires_used_trudeau_foundation_to_legitimize_communist_regime)
 
 0

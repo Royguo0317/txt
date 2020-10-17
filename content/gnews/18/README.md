@@ -1,37 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 王健林旗下院線AMC或申請破產—中共治下商界大佬們的吊詭宿命
-`2020-10-16 12:47 GM77` [轉載自GNews](https://gnews.org/zh-hant/428330/)
+## 朝鮮秀新導彈威嚇美國
+`2020-10-16 17:11 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/428707/)
 
-收集：JAY 
-編撰: WENJUN
+*新聞來源：華盛頓時報*
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/16123843/7-10.jpg)2020年3月17日，為配合地方減緩病毒傳播，紐約市的AMC影院宣布暫時停業。(Victor J. Blue/Getty Images).
+*作者：[蓋伊·泰勒](https://www.washingtontimes.com/staff/guy-taylor/)（ [Guy Taylor](https://www.washingtontimes.com/staff/guy-taylor/) ）和[比爾·格茨](https://www.washingtontimes.com/staff/bill-gertz/)（ [Bill Gertz](https://www.washingtontimes.com/staff/bill-gertz/) ）*
 
-大連[萬達](https://www.epochtimes.com/gb/tag/%E4%B8%87%E8%BE%BE.html)集團旗下的美國最大連鎖影院AMC（AMC Entertainment, NYSE:AMC）因資金將耗盡，正在考慮多項選擇來度過中共病毒（武漢肺炎）疫情的打擊，其中包括申請[破產](https://www.epochtimes.com/gb/tag/%E7%A0%B4%E4%BA%A7.html)。
+*翻譯、簡評：CharlesS｜PR：感恩｜審核：InAHurry｜PAGE：玄天生；*
 
-據彭博報導，受中共病毒疫情打擊，AMC的上座率比去年同期下降了約85%。
+**簡評**
 
-AMC在13日的一份文件中表示，如果影院的出席人數不增加，公司現金儲備可能在今年年底或明年年初之前耗盡。公司正在探索增加流動性的行動，包括資產銷售、重新談判租賃、合資企業以及債務或股權[融資](https://www.epochtimes.com/gb/tag/%E8%9E%8D%E8%B5%84.html)。但AMC承認，其努力可能達不到目標，或有重大失敗的風險。
+正如部分美國智囊所預測，朝鮮在10月美國大選臨近期間推出了新型洲際彈道導彈，以期在美國政策不確定、兩黨候選人專心競選、照顧選民情緒而對此反應不會過於激烈時又向前擠進一步，擺出一個新籌碼。
 
-有知情人士表示，目前院線已經和貸款機構進行了初步的談判，如果AMC決定申請美國[破產](https://www.epochtimes.com/gb/tag/%E7%A0%B4%E4%BA%A7.html)法第11章的法院保護，貸款機構就會向其提供[融資](https://www.epochtimes.com/gb/tag/%E8%9E%8D%E8%B5%84.html)。知情人士表示，這筆新的資金將使AMC在制定復蘇計劃時繼續運營。
+對比9月份，有消息傳出金與正可能10月訪美時，樂觀的聲音佔了大多數，甚至認為朝鮮要脫離中共的陣營了。
 
-對此，搜狐娛樂表示，有分析師認為AMC的破產已成定局。但AMC的執行長亞當·艾倫表示，公司沒有考慮申請破產保護，可能尋求籌集更多資金作為一種選擇，大部分或者全部通過股權籌資方式。
+此對比讓人不禁想起中共國內“引以為豪”的朝鮮戰爭，當時毛的一個策略叫“邊打邊談”，今天彷彿再次用了這招，給點甜頭，好像有談的希望，好像可以用更小的代價達到目標，符合政治家們最喜歡的方式。但暗地卻準備好了捅刀子。實為緩兵之計，讓你意志動搖，最重要的是錯過解決問題的最佳時機。還想有與邪惡共存的解決方式？這麼想便落入了圈套。
 
-據澎湃新聞報導，8月7日，AMC公司公布的第二季度財報數據顯示，AMC第二季度虧損了5.612億美元，其整個季度的營業收入僅有1890萬美元，比2019年同期下降了98%。截至9月14日，院線的觀影人數下降了81%。
+而時至今日，各國政治家們早應該認清真相，這已不是什麼朝美問題，也不是什麼五方問題，應當排除乾擾，主線就一個：中共。
 
-而在10月2日，國際評級機構標準普爾將AMC院線的發行人信用評級從“CCC+”下調至“CCC-”。標普認為，隨著院線的重新開放，該公司的現金消耗速度可能會加快，AMC可能在未來6個月時間裏耗盡資金，除非該公司能夠籌集到額外的資本或是電影的上座率大幅提高。消息傳出後，AMC院線股價10月5日收盤暴跌逾11%。
+**分析家稱，朝鮮亮相了能夠打到美國的新型導彈，此舉旨在向川普傳遞信號**
 
-AMC創立於2007年6月6日，是美國最大的連鎖電影院運營商，擁有600多家分店。大連[萬達](https://www.epochtimes.com/gb/tag/%E4%B8%87%E8%BE%BE.html)集團在2012年以26億美元的交易金額購買AMC娛樂100%股權。2018年，萬達減持AMC娛樂股份，將持股比例降低至50.01%，目前仍是AMC主要控股股東。
+儘管受到川普的壓力，金氏仍展示了其非法武器庫的擴充
 
-今年以來，電影院受到了中共病毒疫情的嚴重影響。自3月份以來，AMC關閉影院，並讓大部分員工休假以來，AMC幾乎沒有任何收入。
+[!\[\]()!\[\](https://spark.adobe.com/page/jAWQLGgklXSPH/images/c697edaa-b435-41e9-861c-ae7d9631ea58.jpg?asset_id=8617262e-dc93-4662-811e-1f7b47504c14&amp;img_etag=%2241e306923514b9b4caf5b39ba27ad35f%22&amp;size=1024)](https://spark.adobe.com/page/jAWQLGgklXSPH/images/c697edaa-b435-41e9-861c-ae7d9631ea58.jpg?asset_id=8617262e-dc93-4662-811e-1f7b47504c14&amp;img_etag=%2241e306923514b9b4caf5b39ba27ad35f%22&amp;size=1024)*從朝鮮官方電視台KRT的視頻中所截取的圖像顯示，朝鮮舉行閱兵式紀念該國執政黨成立75週年（2020年10月10日，星期六）。*
 
-萬達集團前幾年春風得意擴張迅速，王健林更一度是中國首富影視大亨。王健林曾豪言：萬達要成為不僅在中國更是全球的大公司。由此小編聯想到海航帝國的崛起隕落以及海航董事長王建的慘死，聯想到阿裏巴巴馬雲的黯然被退位，聯想到京東的劉強東，聯想到安邦的吳曉輝，明天系的肖建華，北京北京建昊集團董事長袁寶璟四兄弟近乎被滅門等。
+**分析：**
 
-**所有這些商界精英大佬們吊詭的宿命都因為中共的逆淘汰的機制和殺人的體制，想成功想成就大業就必須依附權力供奉權力最後被權力反噬，要想打破這個魔咒只能推翻這個體制，還人民一個民主法制自由的社會。**
+[朝鮮](https://www.washingtontimes.com/topics/north-korea/)上週末推出了一種洲際彈道導彈，該彈道導彈能夠裝載核彈頭瞄準美國。這表明，儘管[川普政府](https://www.washingtontimes.com/topics/trump-administration/)加大了製裁和外交壓力，但[平壤](https://www.washingtontimes.com/topics/pyongyang/)仍在繼續擴大他的非法武器裝備。
 
-參考鏈接：
-[https://www.epochtimes.com/gb/20/10/15/n12476643.htm](https://www.epochtimes.com/gb/20/10/15/n12476643.htm)
+朝鮮領導人[金正恩](https://www.washingtontimes.com/topics/kim-jong-un/)（Kim Jong-un）掌控的共產主義政權在[平壤](https://www.washingtontimes.com/topics/pyongyang/)舉行了大規模閱兵式，並在閱兵期間公開展示了公路機動洲際彈道導彈。據美國專家說，這顯然是要向華盛頓以及美國在該地區包括[韓國](https://www.washingtontimes.com/topics/south-korea/)在內的盟友傳遞一個信號。
+
+重點關注朝鮮的美國前特種部隊上校戴維·麥克斯韋（David Maxwell）表示：“精心策劃的閱兵表明，儘管受到製裁和遭遇困境，北朝鮮仍在不斷擴大其全方位的軍事能力，從核武器和導彈到常規系統再到單兵裝備。”
+
+“最重要的是，此舉為繼續向南方（韓國）和美國進行勒索外交奠定了基礎，”保衛民主基金會(Foundation for Defense of Democracies)高級研究員麥克斯韋先生（Mr. Maxwell）這樣說道。
+
+當美國官員們焦急地通過朝鮮官方電視台週末所放出的節目來評估閱兵的技術含義時，他通過電子郵件傳遞了自己的評論。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/jAWQLGgklXSPH/images/a4f76f45-fd55-4977-b4db-e50aa50a83fe.jpg?asset_id=3f66ad6d-0aa3-4f81-9ab6-290087fb4dce&amp;img_etag=%225ad740d8a05699026015a42adf5316c1%22&amp;size=2560)](https://spark.adobe.com/page/jAWQLGgklXSPH/images/a4f76f45-fd55-4977-b4db-e50aa50a83fe.jpg?asset_id=3f66ad6d-0aa3-4f81-9ab6-290087fb4dce&amp;img_etag=%225ad740d8a05699026015a42adf5316c1%22&amp;size=1024)
+
+在慶祝金家政權把持的執政黨-勞動黨成立75週年的閱兵儀式上展示出的新型洲際彈道導彈似乎是平壤於2017年試射的火星-15（Hwasong-15）導彈的大幅改進版本。
+
+之前從未在公眾場合展示的洲際彈道導彈被裝載在11軸的車架式運輸車上，這比裝載火星-15（也稱為KN-22）的運輸車還多了兩軸。它是朝鮮研製的第四種彈道導彈，其它的型號為大浦洞、KN-20和KN-22。
+
+平壤的閱兵式還展示了KN-20和一款稱為KN-11的潛射彈道導彈。更大、更新的洲際彈道導彈有望比其它（之前的）型號射程更長，潛在的飛行能力約為7,000英里，遠超平壤到華盛頓的距離。
+
+國家安全消息人士數月以來一直預測，朝鮮可能會利用勞動黨週年紀念日閱兵來展示導彈，從而充分利用即將到來的美國總統大選導致的華盛頓的政策不確定性給美國帶來“十月的驚喜”。
+
+[新聞鏈接](https://www.washingtontimes.com/news/2020/oct/11/kim-jong-un-unveils-north-korea-missile-send-trump/)
+
+編輯[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/jAWQLGgklXSPH/) -點擊spark adobe版
 
 0
