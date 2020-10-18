@@ -1,63 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【深度報導】拜登家族“硬槃門”事件持續發酵
-`2020-10-18 06:48 GM77` [轉載自GNews](https://gnews.org/zh-hant/431692/)
+## 【世界多語言圖文】2020/10/12 CCP病毒每日疫情直播簡報
+`2020-10-18 10:21 GM62` [轉載自GNews](https://gnews.org/zh-hant/432129/)
 
-整撰：文錦；審核：WLQF
+戰友之家圖文摘要及小語種組
 
-北京時間2020年10月18日訊，美國總統候選人喬·拜登之子亨特·拜登的“硬槃門”事件持續發酵，聯邦參議員羅恩·約翰遜17日致函給聯邦調查局（FBI ）局長，要求FBI回答“硬槃門”事件是否屬實等六大問題。 FBI被指在去年底已扣留涉事電腦，但卻一直保持沉默。
+[261\_English\_1012\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18101557/261_English_1012_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18101557/261_English_1012_CCP_Virus_Updates.pdf)
 
-川普總統私人律師朱利安尼接受每日電訊專訪時明確指出，證據充分顯示喬·拜登觸犯了聯邦法，他將在大選前10天公佈其腐敗醜聞的所有直接證據。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18063939/%E6%88%AA%E5%B1%8F2020-10-18-%E4%B8%8B%E5%8D%886.31.07-2.png)
-美國聯邦參議員、國土安全與政府事務委員會主席羅恩·約翰遜（Ron Johnson）17日表示，其所在的委員會9月24日收到了“匿名舉報人”的信息，說手上有亨特·拜登留下的一台筆記本電腦。隨後，約翰遜的委員會員工與舉報人聯繫。舉報人為特拉華州一家電腦維修店的老闆約翰·保羅·麥克·艾薩克（John Paul Mac Isaac）。
+[261\_French\_1012\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18101551/261_French_1012_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18101551/261_French_1012_CCP_Virus_Updates.pdf)
 
-艾薩克表示，他在去年12月已將筆記本電腦交給了FBI，並展示了大陪審團2019年12月9日簽發的傳票。該傳票顯示電腦和硬盤被FBI扣留。然而，事情過去了10個月，FBI對此未做出任何反應。
+[261\_German\_1012\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18101540/261_German_1012_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18101540/261_German_1012_CCP_Virus_Updates.pdf)
 
-隨著電腦硬盤內容被媒體曝光，FBI處於非常尷尬的境地。參議員約翰遜表示， FBI需要給出一個合理的解釋，並要求FBI在下週四（22日）之前回答， 他向FBI提出六大質疑：
+[261\_Japanese\_1012\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18101534/261_Japanese_1012_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18101534/261_Japanese_1012_CCP_Virus_Updates.pdf)
 
-1.FBI是否拿到亨特筆記本電腦中的資料？如果是，FBI是如何以及何時獲得這些信息的？
+[261\_Korean\_1012\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18101545/261_Korean_1012_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18101545/261_Korean_1012_CCP_Virus_Updates.pdf)
 
-2.FBI官員從位於特拉華州的一家企業獲得亨特筆記本電腦中的資料內容，是否屬實？如果是：
-
-FBI首次檢查這些記錄是什麼時候？
-
-FBI是否已結束對這些記錄的審查？
-
-FBI是否根據記錄審查發現了任何犯罪活動的證據？
-
-FBI是否已確定記錄是在該電腦上生成的？是真的，或是以別的方式更改成的？
-
-FBI是否確定這些記錄是由亨特生成的或寫的？
-
-FBI是否已確定這些記錄是否是某人入侵亨特電腦的結果？
-
-3.FBI為獲得信息，從特拉華州地方法院取得的大陪審團傳票，是否屬實？如果是，何時以及為何發出這一傳票？此信息是否是自願提供給FBI的？
-
-4.FBI什麼時候以及如何得知特拉華州的電腦維修店業主有一台亨特的電腦及其電子內容？
-
-5.除了據稱是為回應傳票而提供的這些記錄之外，FBI是否有其它的亨特的電腦或來自亨特電腦的資料？
-
-6.FBI是否了解其它聯邦機構是否持有亨特的電腦或來自亨特電腦的資料？
-
-FBI對此回應說，他們“不會確認或否認委員會確定的任何信息”。
-
-另外，據福克斯新聞報導，16日，19名共和黨聯邦眾議員聯名致信給FBI，詢問如果FBI事先已經獲得亨特的資料，卻沒有警告白宮，甚至將其扣留不轉交給川普的法律團隊，導致川普（在被彈劾過程中）的罪嫌加重，是“犯下重大錯誤判斷”，同時也違反了“信任關係”。
-
-而在當天，川普的總統私人律師朱利安尼也通過自己的Youtube頻道講述了電腦門事件的始末。該硬盤被送去Mac Shop維修店，維修者之後多次嘗試聯繫未果，依據合同條款合法查看了硬盤內容後，覺得事態嚴重因擔心自己的生命安全，他將內容做了4份副本分發給他的朋友，然後才將原始的物理硬盤交給FBI，幾個月後又將副本交給朱利安尼的律師。
-
-朱利安尼經過認證後，授權給《紐約郵報》公佈了硬盤中部分郵件的內容。 《紐約郵報》連續三天刊出拜登父子利用美國副總統一職，從烏克蘭等多個國家到中國，一路貪腐至今的報導，報導裡還披露了少許亨特等人的私生活細節及照片。至此，這一轟動的拜登“硬槃門”醜聞開始浮出水面。
-
-朱利安尼表示，亨特與中共達成多筆交易，其個人及其家族從中獲利，中共政府掌握硬盤上所有的照片及更多情報，拜登家族已受制於中共。而與此同時，**亨特的前商業夥伴庫尼，要轉為污點證人舉報亨特利用其父親副總統的身份，安排中共官方人員與白宮高層會晤。**庫克在2016年因跟亨特的合夥生意，被判債券欺詐入獄，目前仍在服刑中。
-
-朱利安尼在每日電訊（The Daily Caller）的獨家採訪表示**，此案證據充足，記錄在案的有4個證人，一個硬盤和郵件，**朱利安尼強調硬盤上的證據顯示，喬·拜登觸犯了聯邦法，而拜登的競選團隊否認現有這些指控。**他會將喬·拜登腐敗醜聞的所有直接證據在大選前10天公佈，這些證據足以結束拜登的競選機會。**
-
-距美國總統大選投票日僅有15天，“硬槃門”選擇在此時曝光，讓美國從各界到平民看到真相，重新認識到自己的國家正面臨重重危機，中共用盡利益的誘惑和不可告人的方式侵蝕美國的媒體界、政界和聯邦機構，已涵養出一個巨大的貪欲嗜血的利益群體。
-
-中共和美國沉默的暗黑勢力不容小覷，未來15天將是正義和邪惡的較量，能否扳倒被中共控制的喬·拜登利益群體，成敗在此一舉。
-
-參考鏈接：
-
-https://www.ntdtv.com/gb/2020/10/18/a102965699.html
+[261\_Spanish\_1012\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18102810/261_Spanish_1012_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18102810/261_Spanish_1012_CCP_Virus_Updates.pdf)
 
 0

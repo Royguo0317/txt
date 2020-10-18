@@ -1,13 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【1/19/2020 路德社直播回顧】中共為什麼選擇在華南海鮮市場投放病毒？
-`2020-10-18 04:06 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/431528/)
+## 每日政要Twitter播報(中文) 10/17期(視頻+ PDF下載)
+`2020-10-18 09:04 GM62` [轉載自GNews](https://gnews.org/zh-hant/431982/)
 
-2020年1月19日路德社直播回顧：中共為什麼選擇在華南海鮮市場投放病毒？
+撰稿記者：CYC文颖、尘凡3、本來、⽯头
+校對:tiger64（挪威语）
+播⾳：⼤脚印
 
-
-
-#### **By：【秘密翻譯組G-Translators】**
+[每日政要推文10-17.pdf](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18090200/10-17.tiger64-pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18090200/10-17.tiger64-pdf.pdf)
 
 0

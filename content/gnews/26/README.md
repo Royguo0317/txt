@@ -1,43 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 硅谷科技快線
-`2020-10-18 02:39 GM06` [轉載自GNews](https://gnews.org/zh-hant/431408/)
+## 中共再揮制裁大旗下令國企拒買澳洲煤炭
+`2020-10-18 08:09 AUJenny` [轉載自GNews](https://gnews.org/zh-hant/431913/)
 
-資料收集整理：littlegecko(小壁虎)； 播報：黎明前；視頻：Aquarius水瓶座； 配樂：Kevin卡卡
+據《Fanacial Times》報道，堪培拉獲息，中共國口頭下令國有企業停止進口澳大利亞的煤炭。從而加劇了行業人士對中澳兩國政治，經貿局勢的擔憂。
 
+情報分析指出，中共國對所有國有企業下達了口頭命令，全面停止從澳大利亞進口煤炭。已於10月9日起生效。中共國將轉向本國的煤炭企業采購火電煤，替代從有嚴重政治分歧的澳大利亞國進口煤炭資源。
 
+這對於每年全球出口550億澳幣（對中共國大約140億澳幣）的煤炭行業將是巨大的打擊。此前，中共國已經對澳洲的葡萄酒發起了所謂的貿易調查，並對大麥征收關稅，還暫停從澳大利亞進口用於食品加工的紅肉產品。
 
-1、埃隆·馬斯克表示，特斯拉將用高效空氣過濾器HEPA技術生產超高效的家用空調系統。
-Elon Musk says Tesla will one day produce super efficient home HVAC with HEPA filtering.
+自從澳大利亞發起了要求調查武漢疫情真相的倡議後，中共國立即展開了壹場猛烈的外交回應，還跟隨了壹系列的制裁行動，先是澳洲葡萄酒、跟著是大麥、紅肉等，現在輪到了澳洲煤炭。澳大利亞經貿部長Simon Birmingham 周二在回答壹家廣播節目采訪卻中說：“我們並沒有收到任何官方的書面通知，能證明這條關於中共國企將終止從澳大利亞進口煤炭的消息。”這就是中共國最擅長下三濫手段，不撕破臉卻背後捅刀子。
 
-2、伊隆·馬斯克表示，星艦SN8原型機將設計有鼻錐，將進行6萬英尺的返回飛行實驗。
-Elon Musk says Starship SN8 prototype will have a nosecone and attempt a 60,000-foot return flight.
+煤炭行業表示強烈關註目前中澳間的嚴重政治分歧，因為大量裝滿貨物的輪船停靠在中國港口外等待卸載，而來自澳大利亞的貨船絕是對不會被排在前面進入港口卸載貨物的。壹位業主無奈的抱怨道。這無形中增加了很多經營成本。
 
-3、以電子表格為中心的數據庫和無代碼平臺Airtable今天宣布，已完成1.85億美元的D輪融資，使該公司的融資後估值達到25.85億美元。
-The spreadsheet-centric database and no-code platform Airtable today announced that it has raised a $185 million Series D funding round, putting the company at a $2.585 billion post-money valuation.
+評論：據2019年壹月份的調查統計，澳大利亞大約有30%多的出口產品是發往中國的，中國是澳大利亞最大的貿易夥伴，作為第二梯隊的日本，美國，印度和韓國四個國家合計才29%，也就是說，任何“政治震動”，都會讓澳大利亞深受波及。煤炭業則是澳大利亞對中共國出口的三大產品之壹，僅次於鐵礦石，出口價值約為140億澳元，中共國用於發電的火電煤，大約有35%來自澳洲。
 
-4、YouTube遭到英國集體訴訟的打擊，由於“非法”使用兒童數據而被要求賠償25億英鎊，約合32億美元。
-YouTube hit with UK class action style suit seeking $3BN+ for ‘unlawful’ use of kids’ data.
+莫裏森總理曾表示，在中美貿易戰中“澳大利亞不必選邊站，我們也不會這樣做”，但隨著新冠疫情的全球爆發也許會令莫裏森政府不得不選邊站，加上長期以來中共國的“強權外交”已經引起了澳洲民眾的普遍反感，善良的澳洲人特別厭惡被中共國稱為美國的走狗。前段時間澳洲民企和個人消費紛紛開始尋找“澳洲制造”替代“中國制造”，以減少對中共國進口商品的依賴，也算是民眾對中共國隱瞞疫情不滿的壹種情緒宣泄。
 
-5、Facebook正在推出壹項新功能，使朋友和家人可以通過Messenger進行多人視頻連線。
-Facebook today is rolling out a new feature that will allow friends and family to watch videos together over Messenger. The feature, called “Watch Together.”
+值得我們警惕的是，環球時報的“胡叼盤”上周就叫囂要給不聽話的澳大利亞壹點顏色瞧瞧。
 
-6、英偉達證實，將從軟銀收購芯片設計巨頭ARM Holdings，總價預計400億美元。
-Nvidia this evening confirmed that it intends to buy chip design giant Arm Holdings for a total of up to $40 billion from existing owner SoftBank.
+相信不久，我們就會看到這個對澳洲煤礦業的制裁對澳洲經濟的沖擊力有多大，多少個煤礦工人會失去“金飯碗”，他們也許將面臨房貸車貸斷供，這些曾經的高收入人群，他們的消費力缺失也會令已經疲憊不堪的經濟雪上加霜。還有其它那些被刁難被變相制裁的行業的商家也都面臨企業生存的挑戰，這些澳洲民眾和企業對中共甚至對中國人的怨氣也會不斷的加劇，這很快就會成為每個生活在澳洲的華人，都要思考和面臨的棘手問題，如何勸告我們身邊的華人朋友，讓他們了解爆料革命，在暴風雨來臨前登上文貴先生為我們打造的諾亞方舟，共渡難關，重新打造海外華人新形象真的是刻不容緩，因為我相信拉別人壹把，也是救自己壹命。
 
-7、冠狀病毒大流行使N95口罩迅速成為最搶手的資源之壹。N95s型口罩既使用機械過濾，又使用靜電過濾。壹項新的技術可通過充電使N95s口罩恢復靜電過濾功能而不是壹次性使用。
-The pandemic has led to N95 masks quickly becoming one of the world’s most sought-after resources. N95s use both mechanical filtering and electrostatic filtering. New research could lead to an N95 that you can recharge rather than throw away.
+链接：[https://www.ft.com/content/b875dc92-2b58-4414-9fb1-d03b3d2b3888 via @financialtimes](https://www.ft.com/content/b875dc92-2b58-4414-9fb1-d03b3d2b3888%20via%20@financialtimes)
 
-8、壹份泄漏的備忘錄揭露了Facebook對全球政治操縱行為的縱容。例如，今年春天，在西班牙和美國，有約672,000個帳戶被刪除，因為據說發布了與冠狀病毒有關的錯誤信息，但Facebook從未披露這樣的行為。
-Leaked memo excoriates Facebook’s ‘slapdash and haphazard’ response to global political manipulation. Some 672,000 accounts were removed this spring from COVID-related misinformation campaigns in Spain and the U.S., also never disclosed.
-
-9、在COVID-19病毒大流行的不確定性中，機器人行業正處於重要時刻。總部位於德國萊比錫的達芬奇廚房公司（DaVinci Kitchen）希望通過推出可烹飪意大利面食的模塊化機器人來解決食品準備環節的問題。
-The robotics industry is having a major moment amid the uncertainty of the COVID-19 pandemic. DaVinci Kitchen is looking to tackle issues around food preparation with the launch of a modular robotic kiosk that cooks Italian-themed pasta dishes.
-
-10、Firehawk Aerospace公司旨在通過安全、經濟、高效的混合動力發動機來徹底改變目前主流的火箭技術。
-Firehawk Aerospace aims to revolutionize rocketry with safe, cost-effective hybrid engines.
-
-（消息來源：http://techcrunch.com ）
+撰稿：Jenny
 
 0
