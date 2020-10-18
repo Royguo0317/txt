@@ -1,27 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【軍事快訊】揭露CCP假擀麵杖子！美國國家安全顧問指CCP黨衛軍十年內不具備兩棲攻台能力！
-`2020-10-18 08:57 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/431984/)
+## 【世界多語言圖文】2020/10/12 CCP病毒每日疫情直播簡報
+`2020-10-18 10:21 GM62` [轉載自GNews](https://gnews.org/zh-hant/432129/)
 
-作者：香草山寫作組  人間世
+戰友之家圖文摘要及小語種組
 
+[261\_English\_1012\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18101557/261_English_1012_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18101557/261_English_1012_CCP_Virus_Updates.pdf)
 
+[261\_French\_1012\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18101551/261_French_1012_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18101551/261_French_1012_CCP_Virus_Updates.pdf)
 
-2020年10月10日，台灣雙十國慶期間，CCP曾放出一條有關中共黨衛軍搶灘登陸演習的短片，試圖以此顯示其通過兩棲作戰攻打台灣的能力和決心。美國國家安全顧問奧布萊恩在本週五的一次講話中表示，現階段CCP不具備在台灣海峽實施兩棲作戰的實力。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18084125/132-%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91%E6%8F%AD%E9%9C%B2CCP%E5%81%87%E6%93%80%E9%9D%A2%E6%9D%96%E5%AD%90%EF%BC%81%E7%BE%8E%E5%9B%BD%E5%9B%BD%E5%AE%B6%E5%AE%89%E5%85%A8%E9%A1%BE%E9%97%AE%E6%8C%87CCP%E5%85%9A%E5%8D%AB%E5%86%9B%E5%8D%81%E5%B9%B4%E5%86%85%E4%B8%8D%E5%85%B7%E5%A4%87%E4%B8%A4%E6%A0%96%E6%94%BB%E5%8F%B0%E8%83%BD%E5%8A%9B%EF%BC%81.png)美國國家安全顧問奧布萊恩(Robert O’Brien)（The Japan Times/AFP-JIJI）
-美國國家安全顧問奧布萊恩（Robert O’Brien）是在參加阿斯彭研究所的網上安全論壇（Aspen Security Forum）時做出上述評論的。據美國之音報導，當回答中共黨衛軍是否有能力以兩棲作戰方式攻打台灣時，奧布萊恩說，“就兩棲登陸和軍事佔領而言，這很難做到”。因為CCP要應對的是100英里水路，即便對美國來說兩棲作戰也不容易。當年的拿破崙和納粹德國都想跨越英吉利海峽，入侵英國，但都沒有成功，一方面是因為受到皇家海軍的攻擊，另一方面也是因為有12英里的水面阻擋。現在中共要以這種方式對台灣採取軍事行動，將非常困難。 “也許10到15年後，他們的狀況會更好一點，可以做到這一點”。同時他也指出，台灣海峽可登陸的地點只有四五處，這使得以兩棲登陸攻台更有難度。
+[261\_German\_1012\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18101540/261_German_1012_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18101540/261_German_1012_CCP_Virus_Updates.pdf)
 
-據《日本時報》網站透露，在談到中共國針對台灣的大量導彈時，奧布萊恩表示，如果北京通過部署導彈進行軍事打擊，可能對台灣造成極大破壞，但“在摧毀台灣之後，我不知道他們能從中得到什麼。如果這樣做，他們可能會失去想要獲得的一切”。他補充說，假如中國對台灣採取這種破壞性行動，將被國際社會鄙視。
+[261\_Japanese\_1012\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18101534/261_Japanese_1012_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18101534/261_Japanese_1012_CCP_Virus_Updates.pdf)
 
-今年台灣雙十國慶期間，CCP不斷放出對台軍演信息。 CCTV軍事頻道官方微博曾於10月10日晚間發布一條短片，片中顯示“一場多兵種聯合立體渡海登陸演練”已於日前在福建、廣東多處海域同步展開，且是首次在夜間實施登島突襲軍演。一時間，被CCP洗腦的部分大陸網民不斷叫囂“搶灘登陸”“收復台灣”。美國國家安全顧問奧布萊恩的上述分析充分證明， CCP現階段根本不具備以兩棲方式攻打台灣的能力，其所有小動作只是虛張聲勢，企圖忽悠不明真相的群眾而已。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18084231/132-%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91%E6%8F%AD%E9%9C%B2CCP%E5%81%87%E6%93%80%E9%9D%A2%E6%9D%96%E5%AD%90%EF%BC%81%E7%BE%8E%E5%9B%BD%E5%9B%BD%E5%AE%B6%E5%AE%89%E5%85%A8%E9%A1%BE%E9%97%AE%E6%8C%87CCP%E5%85%9A%E5%8D%AB%E5%86%9B%E5%8D%81%E5%B9%B4%E5%86%85%E4%B8%8D%E5%85%B7%E5%A4%87%E4%B8%A4%E6%A0%96%E6%94%BB%E5%8F%B0%E8%83%BD%E5%8A%9B%EF%BC%81-2.png) CCP喉舌央視視頻截圖
-事實上，郭文貴先生髮起的爆料革命，已經讓CCP外強中乾的“假擀麵杖子”本質暴露無疑。無論在政治、經濟還是軍事上，CCP領導下的中共國的真實實力和他們在輿論場上精心營造的假像都相去甚遠。就軍事而已，可能CCP唯一擅長的就是把他們深入骨髓的土匪精神、流氓精神發揮到極致，用無底線的生化戰、以造假取勝的信息戰在全世界製造混亂，讓奉行民主、人權等普世價值的的歐美髮達國家猝不及防。
+[261\_Korean\_1012\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18101545/261_Korean_1012_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18101545/261_Korean_1012_CCP_Virus_Updates.pdf)
 
-
-
-更多資訊，歡迎訂閱[美東香草山農場官方推特賬號](https://twitter.com/Mos_Himalaya)！
-
-[Tweets by Mos\_Himalaya](https://twitter.com/Mos_Himalaya?ref_src=twsrc%5Etfw)
+[261\_Spanish\_1012\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18102810/261_Spanish_1012_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18102810/261_Spanish_1012_CCP_Virus_Updates.pdf)
 
 0
