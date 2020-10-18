@@ -1,66 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 第一夫人梅拉尼婭·川普分享病毒感染經歷
-`2020-10-17 12:21 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/430636/)
+## 中共國用軍演威脅台灣
+`2020-10-17 18:59 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/430856/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17115450/WH_20201012_Malenia_COVID-photo-1.jpeg)圖片來源：[https://www.whitehouse.gov/people/melania-trump/](https://www.whitehouse.gov/people/melania-trump/)
-**First Lady Melania Trump: ‘My personal experience with COVID-19’**
+*新聞來源：Breitbart 《布賴特巴特》；作者：GABRIELLE REYES；發佈時間：2020年10月12日*
 
-**第一夫人梅拉尼婭·川普：「我的COVID-19個人經歷」**
+*翻譯/簡評：萬人往；校對：感恩；審核：InAHurry；Page：拱卒*
 
-October 14, 2020
+[!\[\]()!\[\](https://spark.adobe.com/page/mhIcXIkIVC679/images/87a49ff3-8f77-4f4d-8159-46cef4233595.jpg?asset_id=df63b0f0-d177-4bc3-8d2f-09ecb4487561&amp;img_etag=%22d51256e6058fd97d95b1b13587a72b5b%22&amp;size=1024)](https://spark.adobe.com/page/mhIcXIkIVC679/images/87a49ff3-8f77-4f4d-8159-46cef4233595.jpg?asset_id=df63b0f0-d177-4bc3-8d2f-09ecb4487561&amp;img_etag=%22d51256e6058fd97d95b1b13587a72b5b%22&amp;size=1024)中國遼寧號航母。它現在停靠在青島母港，可能會參加正在附近渤海舉行的大規模演習。圖片來自新華社
 
-By Melania Trump, First Lady
+**簡評：**
 
-2020年10月14日
+在台灣雙十節期間，中共取消香港紀念“雙十”活動，還讓黨衛軍進行搶灘登陸演習，可謂是兔子打拳——一溜小動作。
 
-由第一夫人梅拉尼婭·川普撰寫
+雖然中共嘴上不饒人，說不承諾放棄使用武力解決台灣問題，但中共黨衛軍的戰鬥力如何，他們心裡最清楚。如果比踢正步、疊被子，中共黨衛軍的實力首屈一指；比軍事實力、戰鬥素養，可謂是雲泥之別。
 
-It was two weeks ago when I received the diagnosis that so many Americans across our country and the world had already received—I tested positive for COVID-19. To make matters worse, my husband, and our nation’s Commander-in-Chief, received the same news.
+美國航母艦隊已經在自古以來就屬於中共國的南海演習了幾個月，也沒看見中共國軍隊用實質性的行動回擊。兵熊熊一個，將熊熊一窩，如果雙方比賽喝茅台，中共軍官還可以挺著大肚子奉陪到底；來一場真刀真槍的對決，估計中共軍隊都沒有開槍的勇氣，畢竟自己小命要緊。
 
-兩周前，我接到了全國乃至全世界許多美國人都曾接到過的診斷—我的COVID-19測試呈陽性。更糟糕的是，我的丈夫，國家的總指揮官，也收到了同樣的消息。
+中共對台灣覬覦已久，如果台灣受到侵犯，美國根據《台北法案》，可以依法支援台灣。倘若中共武力攻台，獨裁者被無人機斬首的一幕恐怕要再次發生。
 
-Naturally my mind went immediately to our son. To our great relief he tested negative, but again, as so many parents have thought over the past several months, I couldn’t help but think “what about tomorrow or the next day?” My fear came true when he was tested again and it came up positive. Luckily he is a strong teenager and exhibited no symptoms. In one way I was glad the three of us went through this at the same time so we could take care of one another and spend time together. He has since tested negative.
+**台灣假期期間，中共國軍隊進行島嶼入侵演習**
 
-很自然的，我立刻想到了我們的兒子。令我們感到欣慰的是，他的測試呈陰性。但是，如同過去幾個月許多父母所想過的那樣，我忍不住想「明天或者後天會怎麼樣？」當他再次測試的時候，我的恐懼變成了現實，他被檢測為陽性。幸運的是，他是一個強壯的少年並且沒有任何症狀。在某種程度上，我很高興我們三個人同時經歷了這個過程，因為我們可以互相照顧，一起度過這段時光。他隨後測試為陰性。
+**據中共國官方媒體週一報導：週六，即台灣國慶假期當天，中共國人民解放軍舉行了大規模演習，模擬入侵島嶼。**
 
-I was very fortunate as my diagnosis came with minimal symptoms, though they hit me all at once and it seemed to be a roller coaster of symptoms in the days after. I experienced body aches, a cough and headaches, and felt extremely tired most of the time. I chose to go a more natural route in terms of medicine, opting more for vitamins and healthy food. We had wonderful caretakers around us and we will be forever grateful for the medical care and professional discretion we received from Dr. Conley and his team. It was an unfamiliar feeling for me to be the patient instead of a person trying to encourage our nation to stay healthy and safe. It was me being taken care of now, and getting first-hand experience with all that COVID-19 can do. As the patient, and the person benefitting from so much medical support, I found myself even more grateful and in awe of caretakers and first responders everywhere. To the medical staff and the residence staff who have been taking care of our family—thank you doesn’t say enough.
+[!\[\]()!\[\](https://spark.adobe.com/page/mhIcXIkIVC679/images/3fc99fa2-986a-411e-bb07-906ad9ee7648.jpg?asset_id=56b254e4-ecc5-4dc9-9ef6-c207f4d9546b&amp;img_etag=%2261f1b66fef45afd83c5259befe39069c%22&amp;size=2560)](https://spark.adobe.com/page/mhIcXIkIVC679/images/3fc99fa2-986a-411e-bb07-906ad9ee7648.jpg?asset_id=56b254e4-ecc5-4dc9-9ef6-c207f4d9546b&amp;img_etag=%2261f1b66fef45afd83c5259befe39069c%22&amp;size=1024)中共軍隊在台灣假日期間舉行侵台演習
 
-我很幸運，因為剛診斷出時的症狀極少，雖然這些症狀同時來襲，並且在之後的日子里症狀反應猶如過山車。我經歷了身體酸痛、咳嗽和頭痛，並且在大多數時候感覺極其疲倦。我選擇了相對自然的醫藥療法，選擇更多的維生素和健康食物。我們周圍有許多優秀的護工，我們會永遠感激 Conley 醫生及其團隊提供的醫療保健及專業判斷。自己成為病人，而不是那個竭力鼓勵我們的國家要保持健康和安全的人，對我而言，是一種令人陌生的感覺。我現在是被照顧的人，並且獲得了 COVID-19 一切的第一手經驗。作為患者，以及從如此多的醫療支持中受益的人，我發現自己甚至更加感激，並且敬重各地的護工及急救人員。對於一直照顧我們家人的醫務人員和住所員工的感激之語，言之不盡。
+據中央電視台報導：“此次軍事演習以解放軍無人機、特種部隊和空降部隊為特色，還看到部隊從沿海省份廣東和福建的多個地點轉移，其中一些部隊在夜間轉移。”
 
-Recovering from an illness gives you a lot of time to reflect. When my husband was taken to Walter Reed as a precaution, I spent much of my time reflecting on my family. I also thought about the hundreds of thousands of people across our country who have been impacted by this illness that infects people with no discrimination. We are in unprecedented times—and with the election fast approaching, it has been easy to get caught up in so much negative energy.
+台灣位於中共國東南海岸（廣東和福建的所在地）以東約100英里處。
 
-疾病恢復過程帶給您許多時間去反思。當我丈夫為保險起見被帶到 Walter Reed 時，我用了很多時間來對家庭進行反思。我還想到了全國成千上萬的人受到這個疾病的影響，這個疾病無孔不入。我們正處於前所未有的時代，並且，隨著選舉的臨近，我們很容易陷入如此多的負能量當中。
+解放軍周日發布了一段演習視頻，其中詳細描述了這次模擬海灘襲擊。
 
-It also cheered me to think of all the people I have met across our country and the world—and the goodness and compassion that exists if you seek it out. Our country has overcome many hardships and much adversity, and it is my hope COVID-19 will be another obstacle we will be able to tell future generations we overcame—and learned from in the process.
+中共國軍隊寫道：“隨著夜間演習的開始，幾個水陸兩棲裝甲車編隊向指定區域進發。”
 
-想到在我們國家和世界上我遇到的所有人，也讓我感到高興 — 如果你去尋找，就會發現他們的善良和同情心。我們的國家已經克服了許多困難和逆境，我希望我們將能夠告訴後代， COVID-19是我們克服的另一個障礙，並從中吸取了教訓。
+[!\[\]()!\[\](https://spark.adobe.com/page/mhIcXIkIVC679/images/c6a2da5b-7402-4c71-801f-f4d9be7ab058.jpg?asset_id=c621d179-6883-42b4-b8d1-c7e095ef7057&amp;img_etag=%225bf2620a6bce1e18dfdc43cdbcb79fdf%22&amp;size=1024)](https://spark.adobe.com/page/mhIcXIkIVC679/images/c6a2da5b-7402-4c71-801f-f4d9be7ab058.jpg?asset_id=c621d179-6883-42b4-b8d1-c7e095ef7057&amp;img_etag=%225bf2620a6bce1e18dfdc43cdbcb79fdf%22&amp;size=1024)中共軍隊在台灣”雙十一”期間舉行侵島演習。
 
-I encourage everyone to continue to live the healthiest life they can. A balanced diet, fresh air, and vitamins really are vital to keep our bodies healthy. For your complete well-being, compassion and humility are just as important in keeping our minds strong. For me personally, the most impactful part of my recovery was the opportunity to reflect on many things—family, friendships, my work, and staying true to who you are.
+據報導：“武裝偵察接近’敵方’海灘，並向指揮所發回觀察信息。指揮員立即下令砲兵開火，摧毀敵方砲兵和導彈發射陣地。”
 
-我鼓勵每個人繼續過自己能及的最健康的生活。均衡的飲食、新鮮的空氣和維生素確實是保持我們身體健康的關鍵。為了你的全面健康，同情心和謙遜對保持我們心靈的強大同樣重要。對我個人來說，康復過程中對我影響最大的部分是有機會反思很多事情：家庭、友誼、工作，以及保持真我。
+解放軍轉述道：“在空中和地面炮火的掩護下，兩棲突擊群改變陣型，立即向海岸線挺進。”
 
-I am happy to report that I have tested negative and hope to resume my duties as soon as I can. Along with this good news, I want people to know that I understand just how fortunate my family is to have received the kind of care that we did. If you are sick, or if you have a loved one who is sick—I am thinking of you and will be thinking of you every day. I pray for our country and I pray for everyone who is grappling with COVID-19 and any other illnesses or challenges.
+台灣是一個主權國家，擁有自己的軍隊和民主政府。儘管如此，北京仍將台灣視為一個分裂出去的領土，並發誓在必要時武統台灣。
 
-我很高興地報告，我的檢測結果已經為陰性，同時希望盡快恢復工作。除了這個好消息，我想讓人們知道，我明白我的家人得到這種照料是多麼的幸運。如果您生病了，或者您有親人生病了，我在想著您，而且每天會想著您。我為我們的國家祈禱，也為每一個正在與COVID-19以及任何其它疾病或挑戰作鬥爭的人祈禱。
+解放軍周六的軍事演習恰逢台灣國慶。這個節日也被稱為雙十節，是為了紀念一場起義的開始，這場起義推翻了中國的清朝，為1912年中華民國的成立奠定了基礎。
 
-Thank you to everyone who reached out, and offered well wishes and prayers for our family. You remain in ours as well.
+據《南華早報》報導：“解放軍周六宣布將在台灣海峽再次舉行實彈演習，從周二(10月12日)開始，持續4天。”
 
-感謝每一位伸出援助之手的人，為我們的家庭祝福和祈禱的人。你們也是我們的家人。
+報導稱：“根據當地海事部門的通知，演習將在福建省古雷半島舉行，地點在台灣海峽(中共國和台灣的分界線)到高雄市的另一邊。”
 
-Sincerely,
+台灣總統蔡英文週六呼籲與北京進行“有意義的對話”，同時敦促中共國改善兩岸關係，減少對這個獨立自主的島國的敵意。
 
-真誠的，
+她在國慶官方講話中表示:“只要北京當局願意解決對立，改善兩岸關係，同時保持平等和尊重，我們願共同努力促成有意義的對話。”
 
-Melania Trump
+蔡英文補充道：“我們致力於維護兩岸穩定，但這不是台灣能夠獨自承擔的事情;這是雙方共同的責任。”
 
-梅拉尼婭·川普
+蔡英文總統說：“充分的準備、依靠堅定的決心和雄厚的國防實力是保證台灣安全和維護地區和平的唯一途徑。”
 
-閱讀白宮原文
+蔡英文指出:“(中共國人民解放軍)從空中和海上的騷擾加劇了台灣海峽的緊張局勢。”
 
-翻譯 & 校對：【Cyndi】【文所未聞】編輯：【Isaiah4031】
+蔡英文總統聲明：“為避免由於誤判或意外事件而產生的潛在衝突，我們將堅持不畏戰爭、不謀戰爭的原則，解決地區和平穩定面臨的威脅。”
 
-戰友之家玫瑰園小隊出品
+[原文鏈接](https://www.breitbart.com/asia/2020/10/12/chinas-military-stages-island-invasion-drill-during-taiwan-holiday/)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/mhIcXIkIVC679/) -點擊spark adobe版
 
 0
