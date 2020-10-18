@@ -1,29 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共鎖定OKEx等值30.52億美金比特幣 最後的換匯渠道即將被終結嗎？
-`2020-10-17 11:20 shangshang` [轉載自GNews](https://gnews.org/zh-hant/430523/)
+## G|FASHION ——新人類奢侈品時尚品牌起航
+`2020-10-17 17:36 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hant/430802/)
 
-作者：小妍說
+作者：LM08
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17170710/image3-3.jpg)
+紐約時間10月16日，G|FASHION 作為全球奢侈品的時尚品牌，在萬眾期待中正式登陸數字電商世界，網站：WWW.GFASHION.COM。這是奢侈品大咖郭文貴先生攜手世界頂級奢侈品設計名家一起，共同創立的世界頂級奢侈品時尚品牌，寰球矚目。
 
-10月16日在中共國，對於所有對區塊鏈對數字貨幣關心的人來說，有一個消息絕對是核爆級別的，並且對數字貨幣領域也造成了很大的影響。那就是數字貨幣交易平台OKEx官網發佈通知稱：近日我司部分私鑰負責人正在配合公安機關調查，目前正處於失聯狀態導致無法完成授權。根據《服務條款》8.1條「服務變更和中斷」，OKEx可能在任何時間或不經提前通知，改變服務內容和/或中斷、暫停或終止服務。為了最大限度地保證客戶的利益，最長久地服務客戶，已於2020年10月16日11：00開始（香港時間），OKEx決定暫停用戶提幣。我們向您保證OKEx的其他功能正常，並且您的資產安全不受影響。還沒等大家回過神來，晚間又曝出OKEx創始人徐明星一周前已經被警方帶走配合調查。隨後，OKEx CEO也在官方微博對此前的暫停提幣公告作出回應：請大家放心，公司、業務、平台運營不受影響，屬於私鑰管理人個人問題，暫時停止提幣，後續安排我們會第一時間跟大家公告，請大家以公告信息為準 。受此消息影響，OKB虛擬幣大跌逾16%，比特幣也一度短線急挫，數分鐘內自日高下瀉400美元，暴挫3%。並且根據數據顯示，目前OKEx上僅BTC（比特幣）就有27萬余枚，按照比特幣目前報價11307美元計算，價值超過30.52億美元（折合人民幣214億）。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17111155/A94B94AB-1C94-4D58-98D9-37D3FBD68F9F.png)
-為什麼OKEx暫停提幣會引起軒然大波？在中共國內虛擬貨幣有三大交易所，OKEx就是其中之一，其他兩家是火幣網和幣安網。OKEx 成立於2017 年 5 月，主要面向全球用戶提供比特幣、以太坊及各類創新數字資產的現貨和衍生品交易服務。在OKEx平台內大多數用戶都是中共國內用戶，小妍個人也有兩年的炒幣經驗，一般在國內很多散戶炒幣的用戶都會將交易所的錢包當成自己平時的儲幣賬戶，因為這樣方便交易，而此次OKEx的公告也就意味著很多用戶的錢會直接鎖在交易所的賬戶中。要知道對於一個交易所來說，提幣是最重要的問題，如果用戶連自己的資產都不能正常管理，那盈虧已經沒有任何意義，因為那只是一堆數字。所以此次OKEx暫停提幣才會在國內加密行業掀起軒然大波。從此次公告中提出的根據《服務條款》8.1條「服務變更和中斷」，OKEx可能在任何時間或不經提前通知，改變服務內容和/或中斷、暫停或終止服務。」這一點，就可以看出，事情遠沒有那麼簡單，雖然這種條款用戶在每個交易所都可以看到，但是現在這樣作為公告貼出來，而且目前OKEx方面也沒有確定恢復提幣的具體時間，可能交易所內部已經做好了長期無法提幣的準備，才會發出這樣的公告。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17111130/C32FCA05-8E51-4198-8FBF-AA15A7AB3DE0.png)
-中共這是開始對OKEx下手了，要知道由於在中共國存在換匯的限制，加之中共越來越嚴的外匯管制政策，想將國內資產轉移海外現在已經是難上加難的事情了，然而虛擬貨幣由於其不需要面對面交易，並且擁有快捷性，匿名性，不可撤銷性，加之交易模式複雜性使其可以輕鬆的躲過監管，這就讓虛擬幣交易成為了外幣流出的一條非常方便的渠道，轉移資產也非常便捷。雖然之前為了防止外匯轉出，中共政府也出台了很多限制政策，目的就是為了斬斷這條外匯出境的道路，但是還是有很多聰明人利用這一途徑轉移資產，這次中共對OKEx下手，其最終的目的就是切斷百姓轉移資產的所有渠道，防止一切資金外流，同時要再次割一波韭菜，把平台鎖定的錢款收入囊中。最終倒霉的永遠是最底層的老百姓。
+G|FASHION 將與世界諸多時尚品牌鼎力合作，這些品牌包括但不限於克羅心、LV系列、布奧萊尼、普拉達、古馳等等。除了立足於這些世界頂級奢侈品牌的優勢之外，G|FASHION還將攜手當今引領世界奢侈品行業的頂級設計師，設計、製作出更加能夠代表當今潮流的奢侈品，必將引發世界奢侈品行業的一場變革。
 
-文章內容僅代表作者個人觀點
+G|FASHION 的創立人和發言人郭文貴先生這樣闡述FASHION （時尚）的內涵：G是GOD、GOLD、GOAL、GOOD的意思。 FASHION 是時尚，只有時尚能把很多美好聚集在一起，時尚就是自信、力量、美感、文化、生活、尊重和人性。 G|FASHION 任何一件產品都是稀缺的收藏品，是藝術、工匠精神和裁縫概念的集中展示。
 
-GNEWS之前文章：
+當今世界頂級奢侈品行業的設計師引領者，代表人物如Ben Taverniti, Eli Azran, Doni Nahmias, and Marcella Lindeberg 等都成為G|FASHION的主要設計師，也都給予了G|FASHION 高度評價。創立NAHMIAS 的奢侈品行業新星Doni Nahmias 說，他懂得郭先生的內心世界、靈感和愛之趨向，會將這些特質融合在一起，設計、製作出永恆的奢侈品。
 
-中共“带货一哥” 钟南山再次强推神药 [https://gnews.org/zh-hans/428210/](https://gnews.org/zh-hans/428210/)
+奢侈品H. Lorenzo 的零售運營部主席Kamel·Debeche，是G|FASHION 的CEO 和創新董事。 G|FASHION 是郭文貴先生想像力、創造力、專業工匠精神和細節典範的統一體，將成為奢侈品行業的新標準。特別是，在全球經濟因中共病毒LOCKDOWN的惡劣環境期間，G|FASHION 逆生長亮相，也可以看出G|FASHION 有著旺盛的生命力。
 
-辽宁“君临天下八年烂尾” 业主住进毛坯房[https://gnews.org/zh-hans/426789/](https://gnews.org/zh-hans/426789/)
-
-揭露中共 “后浪谎言” 年轻人绝望轻生 [https://gnews.org/zh-hans/424529/](https://gnews.org/zh-hans/424529/)
-
-新闻链接：
-
-[https://finance.sina.com.cn/stock/hyyj/2020-10-16/doc-iiznctkc5961994.shtml](https://finance.sina.com.cn/stock/hyyj/2020-10-16/doc-iiznctkc5961994.shtml)
-
+參考鏈接： [https://www.prnewswire.com/news-releases/gfashion-launches-global-luxury-fashion-brand-301154129.html](https://www.prnewswire.com/news-releases/gfashion-launches-global-luxury-fashion-brand-301154129.html)
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17174603/gclub%E5%B9%BF%E5%91%8A.jpg)
+萬年不遇的Ｇ會，諾亞方舟起航了！真戰友上船，跟郭先生走！ [https://discord.gg/2vXAV6G](https://discord.gg/2vXAV6G) Discord ：G-伊万卡#1411 WhatsApp：+1 (949) 281‑4641
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17185158/%E5%86%9C%E5%9C%BA%E5%B9%BF%E5%91%8Av6.jpg)
 0

@@ -1,21 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/10/11 CCP病毒每日疫情直播簡報
-`2020-10-17 12:00 GM62` [轉載自GNews](https://gnews.org/zh-hant/430164/)
+## 再過幾個月共產黨會看到中國人真正的力量！
+`2020-10-17 18:23 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/430812/)
 
-戰友之家圖文摘要及小語種組
+郭文貴先生在[10月7日的G-TV直播](https://gtv.org//?videoid=5f7e45c37de25667c0e3db05)中警告中共和被中共收買的美國人：**「再過幾個月，你記住我今天說的話，共產黨會真正的知道…看到中國人的力量。我們再走上街的時候，絕對不是3千5千，也不是3萬5萬，咱走著看！」**
 
-[260\_English\_1011\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045721/260_English_1011_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045721/260_English_1011_CCP_Virus_Updates.pdf)
+郭先生還結合最近德州傅希秋事件，分享了他早年在香港對抗黑幫的經歷，以此警醒戰友們，爆料革命只會比那更危險更艱難。這對所有的戰友們都是一個考驗，考驗大家的心智、智慧、勇氣和膽量。但不論中共以及它的走狗們多麼惡毒，**戰友都必須守住兩個底線，即別壞良心道德和不要碰法律的紅線**。同時郭先生希望戰友們在爆料革命中要冷靜，不要太過情緒化。
 
-[260\_French\_1011\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17120037/260_French_1011_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17120037/260_French_1011_CCP_Virus_Updates.pdf)
+翻譯：【石頭】 校對：【GM80】字幕：【Pamila（文明）】【相機過熱啊】聽寫：【XO小粉紅】視頻解碼：【恆久忍耐】【小螺號】編輯：【Isaish4031】
 
-[260\_German\_1011\_CCP\_Virus\_Updates\_](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045731/260_German_1011_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045731/260_German_1011_CCP_Virus_Updates_.pdf)
-
-[260\_Japanese\_1011\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045726/260_Japanese_1011_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045726/260_Japanese_1011_CCP_Virus_Updates.pdf)
-
-[260\_Spanish\_1011\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045736/260_Spanish_1011_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17045736/260_Spanish_1011_CCP_Virus_Updates.pdf)
-
-[260\_Korean\_1011\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17083956/260_Korean_1011_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17083956/260_Korean_1011_CCP_Virus_Updates.pdf)
+戰友之家玫瑰園小隊出品
 
 0
