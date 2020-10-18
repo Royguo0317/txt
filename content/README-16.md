@@ -14,6 +14,8 @@
 
 ## 頁面 16/30 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [30](/content/README-30.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年4月22日美国宣布对伊朗石油输出禁运不再给豁免国家，对CCP将是什么巨大打击？](/content/2019/04/20190423-1316930851159830610.md)
+
 [文字版：2019年4月21日为什么要揭穿李嘉诚，马云，郭台铭，江志成](/content/2019/04/20190422-2917569343036844190.md)
 
 [文字版：2019年4月20日班农先生与文贵谈郭台铭选台湾总统](/content/2019/04/20190421-3663457252526137440.md)
@@ -61,8 +63,6 @@
 [文字版：2月24日，文贵谈，法治基金建立的真正目的](/content/2019/02/20190227-189178427361048869.md)
 
 [文字版：2019年2月23日文貴和班農談宗教革命：爆梵蒂岡與中共的交易](/content/2019/02/20190226-8859437159396757540.md)
-
-[文字版：2月21日 再談法治基金捐款到底捐給了誰](/content/2019/02/20190225-476123730242359765.md)
 
 
 ## 頁面 16/30 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [30](/content/README-30.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)

@@ -14,6 +14,8 @@
 
 ## 頁面 14/30 [**<**](/content/README-13.md) [1](/content/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) ... [30](/content/README-30.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年7月6日与彭文正先生连线----灭共保台](/content/2019/07/20190707-3878113483367388120.md)
+
 [文字版：2019年7月5日文贵船上直播](/content/2019/07/20190706-5106022506023396161.md)
 
 [文字版：2019年7月3日文贵在华盛顿的车上直播](/content/2019/07/20190705-1736534558045793332.md)
@@ -61,8 +63,6 @@
 [文字版2019年5月31日文貴試直播](/content/2019/06/20190605-8092628019236727777.md)
 
 [文字版：2019年6月2日，班農與郭文貴談林鄭賣港](/content/2019/06/20190604-5110748633595841625.md)
-
-[文字版：2019年6月1日文貴報平安直播！無論任何方式的任何人的「偷「都是錯的，都應該感到可恥······我們今天的額爆料革命！就是為了我們中國兒童！有一個美好的健康的國家和未來！](/content/2019/06/20190601-2272712478111328158.md)
 
 
 ## 頁面 14/30 [**<**](/content/README-13.md) [1](/content/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) ... [30](/content/README-30.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)

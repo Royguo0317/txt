@@ -14,6 +14,8 @@
 
 ## 頁面 22/30 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) ... [30](/content/README-30.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)
 
+[翻译：谍战大戏：虎穴追踪，智擒线民熊 （2）](/content/2018/07/20180703-1798568715370804702.md)
+
 [翻译：谍战大戏：虎穴追踪，智擒线民 （1）](/content/2018/07/20180703-4499282399094679308.md)
 
 [翻译Bill Gertz 中国军方最高统帅习近平的副手会见马蒂斯](/content/2018/07/20180703-4076992664553898674.md)
@@ -61,8 +63,6 @@
 [文字版4月24日在重庆公安认罪的陈氏兄弟是现任常委秘书的家人！](/content/2018/04/20180425-1035788071787459036.md)
 
 [文字版4月22日2个视频1.文贵要射向明镜的10个问彈！2.文贵报平安视频盗国贼新的一波行动](/content/2018/04/20180422-7434374756497601766.md)
-
-[文字版4月19号文贵谈明镜](/content/2018/04/20180422-6701679411518433297.md)
 
 
 ## 頁面 22/30 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) ... [30](/content/README-30.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)
