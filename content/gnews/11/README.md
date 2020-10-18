@@ -1,33 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要聞】港人一窩蜂申請VPN帳號 國安法對香港互聯網的影響
-`2020-10-17 23:25 GM42` [轉載自GNews](https://gnews.org/zh-hant/431195/)
+## 硅谷科技快線
+`2020-10-18 02:39 GM06` [轉載自GNews](https://gnews.org/zh-hant/431408/)
 
-編撰：文悅
+資料收集整理：littlegecko(小壁虎)； 播報：黎明前；視頻：Aquarius水瓶座； 配樂：Kevin卡卡
 
-審核：JK
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17230159/106369580_8unJA_1200x0.png)圖片：立場新聞
-【據立場新聞10月17日報導】香港互聯網協會主席羅浩林，近日發表題為《國安法對香港互聯網的影響》的署名文章。
 
-文中寫道，自從中國政府單方面頒布並實施國安法以來，對香港的衝擊不斷擴大。除了美國及其盟友開始將香港視作與中國大陸同一地區，取消香港的自貿區地位外，於互聯網的規劃層面亦已經改變過往視香港為地區樞紐的做法，反之，將香港視為中共用作竊聽的據點，並於各層面加以防範。
 
-六月中，美國司法部官員更建議聯邦通訊委員會，要求 Google 及 Facebook 將早於四年前開始規劃，連接美國、台灣、香港及菲律賓的海底通訊光纖計劃改為不連接香港。原因是因應中國政府褫奪香港自治，預期中國政府的情報及國安機構會於香港公開活動，美國的通訊或會在香港遭遇北京當局竊取。而到八月，美國國務卿蓬佩奧更提出「Clean Network Initiative」，其中一個倡議「Clean Cable」更開宗明義要確保連接到美國的海底電纜不受中共入侵。而到本月，上述海底光纖計劃更將香港剔出計劃之外，此舉勢將成為其他網絡及服務供應商的參考指標，並影響將來網絡服務及雲端服務的部署。無獨有偶，Google 宣布會於台中建立第三個數據中心，並指台灣適合成為亞太區的數據樞紐。
+1、埃隆·馬斯克表示，特斯拉將用高效空氣過濾器HEPA技術生產超高效的家用空調系統。
+Elon Musk says Tesla will one day produce super efficient home HVAC with HEPA filtering.
 
-另一方面，於國安法實施後，服務供應商將可能於政府要求下，移除被指為影響國家安全的內容。於本地存放的網站固然無可避免受到影響，令人憂慮的是當內容存放於海外網站時，政府可能會進一步要求本地互聯網供應商將該網域或其網絡地址直接封禁，使香港步入有如中國大陸一樣的網絡長城。而技術上較難作封禁的通訊軟體如 Telegram，政府則可能以國安法要求 Apple 及 Google 將該軟體從本地應用商店移除，增加通訊及接觸資訊的難度。如此下去，香港作為互聯網地區樞紐及自由港的優勢將不復存在，而資訊保密和自由受限制，會更加嚴重打擊香港金融中心的地位。
+2、伊隆·馬斯克表示，星艦SN8原型機將設計有鼻錐，將進行6萬英尺的返回飛行實驗。
+Elon Musk says Starship SN8 prototype will have a nosecone and attempt a 60,000-foot return flight.
 
-綜上所述都是比較長遠的影響。比較即時而明顯的是，香港本地已經出現寒蟬效應：為免「秋後算賬」，不少論壇及社交媒體都收到本地用戶刪除其帳號及留言的請求。更有不少網民擔心網絡活動會受到監控和限制，一窩蜂申請 VPN 帳號，預備翻牆之用。這種恐慌於香港可謂前所未見，亦反映國安法對香港一直引以為豪的自由及價值構成即時的負面影響。有見及此，多家跨國科技公司包括Facebook 及Google 已表明暫時停止處理香港政府的資料請求，香港用戶的資料皆存放美國的伺服器，故此香港政府即使動用國安法向香港分公司要求提供用戶資料，仍須經美國總公司批准及美國法庭命令才會成功。此舉可謂對香港政府及司法系統投下了不信任票，認為香港法制無法保障用戶的言論自由及私隱，與其他先進法治國家不能同一而論。對於強調香港沒有三權分立的中聯辦及香港政府，可謂求仁得仁。
+3、以電子表格為中心的數據庫和無代碼平臺Airtable今天宣布，已完成1.85億美元的D輪融資，使該公司的融資後估值達到25.85億美元。
+The spreadsheet-centric database and no-code platform Airtable today announced that it has raised a $185 million Series D funding round, putting the company at a $2.585 billion post-money valuation.
 
-香港的成功有賴於自由所帶來的創新，和資訊不受監控及限制的流通優勢。而暢通及高速的互聯網更是現代金融中心不可或缺的基石。筆者希望香港於可見的非常時期，能早日回复網絡樞紐的地位，香港市民能恢復網絡直抒己見，暢所欲言的日子。
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17231213/%E7%91%9E%E5%85%B8%E7%A7%91%E6%8A%80%E5%85%AC%E5%8F%B8-Micro-Systemation-AB%EF%BC%88MSAB%EF%BC%89%E5%B0%87%E6%92%A4%E5%87%BA%E9%A6%99%E6%B8%AF%EF%BC%8C%E4%B8%8D%E5%86%8D%E7%82%BA%E9%A6%99%E6%B8%AF%E6%94%BF%E5%BA%9C%E6%A9%9F%E6%A7%8B%E5%8F%8A%E8%AD%A6%E5%AF%9F%E6%8F%90%E4%BE%9B%E8%A7%A3%E6%B1%BA%E6%96%B9%E6%A1%88%EF%BC%8C%E5%8D%B3%E6%8F%90%E5%8F%96%E6%B6%89%E6%A1%88%E4%BA%BA%E5%A3%AB%E6%89%8B%E6%A9%9F%E8%B3%87%E6%96%99%E7%9A%84%E6%9C%8D%E5%8B%99%E3%80%82-1.jpeg)圖片：立場新聞
-編者觀點：
+4、YouTube遭到英國集體訴訟的打擊，由於“非法”使用兒童數據而被要求賠償25億英鎊，約合32億美元。
+YouTube hit with UK class action style suit seeking $3BN+ for ‘unlawful’ use of kids’ data.
 
-中共的奇葩防火牆工程，為禍一國，是故其治下民眾又稱「牆民」 。每天接受「閹割」過的互聯網信息的牆民們，多數人在「一帶一路」，「大國崛起」中醉生夢死，心甘情願被一茬茬割韭菜，遭遇人權，環境等極度惡劣的狀況而甘之如飴。現在這堵封殺自由和民主的罪惡之牆，竟然要佇立在東西方文化薈萃的著名國際大都市香港了！香港告急！同胞們，被動地註冊VPN帳號是一種消極的辦法，只有積極自救投入到剷除共產黨的洪流之中，香港才會有希望，子孫後代才能擺脫枷鎖，自由為人！
+5、Facebook正在推出壹項新功能，使朋友和家人可以通過Messenger進行多人視頻連線。
+Facebook today is rolling out a new feature that will allow friends and family to watch videos together over Messenger. The feature, called “Watch Together.”
 
-以上觀點僅代表筆者本人
+6、英偉達證實，將從軟銀收購芯片設計巨頭ARM Holdings，總價預計400億美元。
+Nvidia this evening confirmed that it intends to buy chip design giant Arm Holdings for a total of up to $40 billion from existing owner SoftBank.
 
-參考鏈接：立場新聞
+7、冠狀病毒大流行使N95口罩迅速成為最搶手的資源之壹。N95s型口罩既使用機械過濾，又使用靜電過濾。壹項新的技術可通過充電使N95s口罩恢復靜電過濾功能而不是壹次性使用。
+The pandemic has led to N95 masks quickly becoming one of the world’s most sought-after resources. N95s use both mechanical filtering and electrostatic filtering. New research could lead to an N95 that you can recharge rather than throw away.
 
-[https://www.thestandnews.com/politics/%E5%9C%8B%E5%AE%89%E6%B3%95%E5%B0%8D%E9%A6%99%E6%B8%AF%E4%BA%92%E8%81%AF%E7%B6%B2%E7%9A%84%E5%BD%B1%E9%9F%BF/](https://www.thestandnews.com/politics/%E5%9C%8B%E5%AE%89%E6%B3%95%E5%B0%8D%E9%A6%99%E6%B8%AF%E4%BA%92%E8%81%AF%E7%B6%B2%E7%9A%84%E5%BD%B1%E9%9F%BF/)
+8、壹份泄漏的備忘錄揭露了Facebook對全球政治操縱行為的縱容。例如，今年春天，在西班牙和美國，有約672,000個帳戶被刪除，因為據說發布了與冠狀病毒有關的錯誤信息，但Facebook從未披露這樣的行為。
+Leaked memo excoriates Facebook’s ‘slapdash and haphazard’ response to global political manipulation. Some 672,000 accounts were removed this spring from COVID-related misinformation campaigns in Spain and the U.S., also never disclosed.
+
+9、在COVID-19病毒大流行的不確定性中，機器人行業正處於重要時刻。總部位於德國萊比錫的達芬奇廚房公司（DaVinci Kitchen）希望通過推出可烹飪意大利面食的模塊化機器人來解決食品準備環節的問題。
+The robotics industry is having a major moment amid the uncertainty of the COVID-19 pandemic. DaVinci Kitchen is looking to tackle issues around food preparation with the launch of a modular robotic kiosk that cooks Italian-themed pasta dishes.
+
+10、Firehawk Aerospace公司旨在通過安全、經濟、高效的混合動力發動機來徹底改變目前主流的火箭技術。
+Firehawk Aerospace aims to revolutionize rocketry with safe, cost-effective hybrid engines.
+
+（消息來源：http://techcrunch.com ）
 
 0
