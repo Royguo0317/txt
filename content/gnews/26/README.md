@@ -1,48 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登父子如何秘密地與中共企業開展業務
-`2020-10-17 22:42 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/431149/)
+## 硅谷科技快線
+`2020-10-18 02:39 GM06` [轉載自GNews](https://gnews.org/zh-hant/431408/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/17221137/1-140.png)
-據《布賴特巴特》（Breitbart）網站10月16日的報導，最新獲得的來自亨特·拜登(Hunter Biden)商業夥伴的電子郵件，詳細列出了亨特及其同事如何利用與奧巴馬-拜登(Obama-Biden)政府的接觸，為白宮最高層的潛在外國客戶和投資者安排私人會晤。這些以前從未公開過的電子郵件，描述了一個由中共國投資者和共產黨官員組成的代表團是如何設法與當時的副總統喬·拜登(Joe Biden)進行了一次私下的、不公開的會面。
+資料收集整理：littlegecko(小壁虎)； 播報：黎明前；視頻：Aquarius水瓶座； 配樂：Kevin卡卡
 
-報導指出，在2011年的一封電子郵件中，亨特的商業夥伴討論了與一家被稱為“中國公司”的企業發展關係，作為“中國新推動的軟實力外交”的一部分。 “這些郵件與《紐約郵報》（New York Post）最近公佈的亨特郵件完全無關。
 
-報導稱，亨特和德文·阿徹（Devon Archer）的商業夥伴貝文·庫尼（Bevan Cooney）向施韋澤（Schweizer）提供了這些電子郵件，以及其他更具爆炸性的，從未公開的郵件。庫尼目前因參與2016年債券欺詐投資計劃而入獄服刑。
 
-2019年，庫尼在得知了施韋澤2018年出版的《秘密帝國*》（* *Secret Empires）*一書中的內容後，主動聯繫了施韋澤。庫尼告訴施韋澤，他認為自己當了欺詐計劃的”替罪羊”，讓阿徹和亨特得以逃避責任。阿徹是亨特的長期商業夥伴，本來也在此案中被判有罪，但聯邦法官撤銷了對他的判決。隨後，上訴法院推翻了下級法院法官的這一判決，恢復了阿徹在此案中的定罪。阿徹目前正在等待判決。
+1、埃隆·馬斯克表示，特斯拉將用高效空氣過濾器HEPA技術生產超高效的家用空調系統。
+Elon Musk says Tesla will one day produce super efficient home HVAC with HEPA filtering.
 
-報導披露，庫尼後來通過調查記者馬修·泰吉蘭德（Matthew Tyrmand）與施韋澤重新建立了聯繫。在監獄裡，庫尼向施韋澤提供了書面授權書，以及他的Gmail電子郵件賬戶名和密碼，讓施韋澤獲取他的郵件，並授權他公開發布這些電子郵件。報導強調，這是第一次有親密夥伴公開證實亨特利用其父親的影響力來做交易。
+2、伊隆·馬斯克表示，星艦SN8原型機將設計有鼻錐，將進行6萬英尺的返回飛行實驗。
+Elon Musk says Starship SN8 prototype will have a nosecone and attempt a 60,000-foot return flight.
 
-報導認為，這些郵件提供了一個獨特的窗口，讓人們了解到亨特在奧巴馬-拜登政府期間是如何開展業務的。這些同夥試圖利用亨特與他父親和奧巴馬-拜登政府的關係和接觸機會進行交易，以招攬生意。例如，2011年11月5日，阿徹的一位業務聯絡人向他轉發了一封電子郵件，預告他有機會通過幫助安排中共高管和政府官員組成的一個團體在白宮舉行會議來獲得”潛在的傑出新客戶”。這個團體是中共企業傢俱樂部（CEC），代表團成員包括中共國的億萬富翁、中共的忠實擁護者，以及至少一名來自北京的”受人尊敬的外交官”。
+3、以電子表格為中心的數據庫和無代碼平臺Airtable今天宣布，已完成1.85億美元的D輪融資，使該公司的融資後估值達到25.85億美元。
+The spreadsheet-centric database and no-code platform Airtable today announced that it has raised a $185 million Series D funding round, putting the company at a $2.585 billion post-money valuation.
 
-CEC是由一群商人和中共政府外交官於2006年成立的，儘管名字很好聽，但它被稱為是中共國的”第二外交部”：一個密切控制著國內大多數企業的共產黨政府機構。 CEC的領導層擁有眾多中共高層，包括王忠禹（”十屆全國政協副主席、黨組副書記”）、招商銀行行長馬蔚華(擔任多個中國共產黨辦公室主任),和蔣錫培(中國共產黨第十六次全國代表大會的代表),等等。
+4、YouTube遭到英國集體訴訟的打擊，由於“非法”使用兒童數據而被要求賠償25億英鎊，約合32億美元。
+YouTube hit with UK class action style suit seeking $3BN+ for ‘unlawful’ use of kids’ data.
 
-一位名叫穆罕默德·卡舒吉(Mohamed A. Khashoggi)的中間人，代表中共中央給亨特和阿徹的助手寫信說，”我知道現在是搞政治的季節，大家都很猶豫，但這樣的團體並不是每天都會出現的”。卡舒吉稱，“參觀一下白宮，和幕僚長辦公室的一名成員以及約翰·克里(John Kerry)會面，那就太棒了。” 卡舒吉還說了一句本應該引起警覺的話:“我不確定是否需要註冊才可以安排這樣的會面。”據推測，卡舒吉指的是《外國代理人登記法》(FARA)裡對遊說者的有關規定。
+5、Facebook正在推出壹項新功能，使朋友和家人可以通過Messenger進行多人視頻連線。
+Facebook today is rolling out a new feature that will allow friends and family to watch videos together over Messenger. The feature, called “Watch Together.”
 
-卡舒吉認為，中共官員這趟展現“一種可能非常有效的軟實力外交策略”之行，將使亨特的商業夥伴”有很好的機會接觸到\*\*\*\*\*\*[0]\* \*\*\*\*\*，以便在未來進行某些交易”。事實上，這封郵件吹噓了CEC的富裕成員。據稱，CEC成員所在企業的總收入”超過1.5萬億元人民幣，合計約佔中共國GDP的4%”。提供給亨特助手的CEC背景介紹中，CEC成員被描述得各不相同，稱他們是”企業精英”、”極具影響力”、”當今中共國最重要的私營企業人士”之一，等等。
+6、英偉達證實，將從軟銀收購芯片設計巨頭ARM Holdings，總價預計400億美元。
+Nvidia this evening confirmed that it intends to buy chip design giant Arm Holdings for a total of up to $40 billion from existing owner SoftBank.
 
-報導指出，在與亨特的助手聯繫之前，CEC一直試圖與奧巴馬-拜登政府的高層官員會面，但沒有結果。 “從華盛頓方面來看，正如你在下面看到的那樣，他們（CEC）已經給幾位政府成員和其他人士寫了信，至今沒有得到強烈的反應。”
+7、冠狀病毒大流行使N95口罩迅速成為最搶手的資源之壹。N95s型口罩既使用機械過濾，又使用靜電過濾。壹項新的技術可通過充電使N95s口罩恢復靜電過濾功能而不是壹次性使用。
+The pandemic has led to N95 masks quickly becoming one of the world’s most sought-after resources. N95s use both mechanical filtering and electrostatic filtering. New research could lead to an N95 that you can recharge rather than throw away.
 
-2011年10月19日，卡舒吉的原始電子郵件被發送給加里·費爾斯（Gary Fears）— 一個有爭議的政治籌款人，他的歷史錯綜複雜，在上世紀90年代中期被捲入河船賭場醜聞— 他在幾週後的2011年11月5日將其轉發給了阿徹。
+8、壹份泄漏的備忘錄揭露了Facebook對全球政治操縱行為的縱容。例如，今年春天，在西班牙和美國，有約672,000個帳戶被刪除，因為據說發布了與冠狀病毒有關的錯誤信息，但Facebook從未披露這樣的行為。
+Leaked memo excoriates Facebook’s ‘slapdash and haphazard’ response to global political manipulation. Some 672,000 accounts were removed this spring from COVID-related misinformation campaigns in Spain and the U.S., also never disclosed.
 
-據該報導，卡舒吉在郵件中寫道，”這就是那家中國公司，”他指的是中共億萬富翁代表團。卡舒吉強調說: “CEC團隊此行的首要任務是參觀白宮，並請一位美國高級政治家或奧巴馬政府的高級成員帶他們參觀……如果你在華盛頓的朋友能幫忙，我們將不勝感激。” 亨特和阿徹顯然要在十天內為中共的企業精英們聯繫好白宮會面。
+9、在COVID-19病毒大流行的不確定性中，機器人行業正處於重要時刻。總部位於德國萊比錫的達芬奇廚房公司（DaVinci Kitchen）希望通過推出可烹飪意大利面食的模塊化機器人來解決食品準備環節的問題。
+The robotics industry is having a major moment amid the uncertainty of the COVID-19 pandemic. DaVinci Kitchen is looking to tackle issues around food preparation with the launch of a modular robotic kiosk that cooks Italian-themed pasta dishes.
 
-報導稱，卡舒吉在最初的電子郵件中提到，中共國代表團將於2011年11月14日抵達華盛頓。時間緊迫，費爾斯當天就把卡舒吉的信息轉給了阿徹，並要阿徹“聯繫”卡舒吉，詢問關於邀請中共商人和官員進入奧巴馬白宮的請求。費爾斯還補充說，如果阿徹也能和中共團隊一起“參加”白宮聚會，那將是一個“找人做成鉀礦交易” 的“完美”機會。阿徹收到費爾斯的郵件後，給卡舒吉發去了他已經準備好的鉀礦交易協議。
+10、Firehawk Aerospace公司旨在通過安全、經濟、高效的混合動力發動機來徹底改變目前主流的火箭技術。
+Firehawk Aerospace aims to revolutionize rocketry with safe, cost-effective hybrid engines.
 
-報導披露，六天后，阿徹收到了卡舒吉的一封回复郵件，詢問與CEC代表的會面進展如何。郵件的結尾寫道：”幫我個忙，請亨特給我打電話，我已經嘗試聯繫他好幾次了。” 阿徹回复說：”亨特這周正在阿聯酋和皇室成員一起旅行，可能下週才會回來….。與CEC代表的會面很好。看來以後有很多事情可以一起做。可能不適合現在的鉀礦交易私募，但是隨著礦區的發展，他是一個很好的戰略關係。一定要和卡舒吉喝一杯，讓他知道我對他的整個交易印象深刻。”一分鐘後，阿徹又發了一封後續郵件，說”雖然還無法與亨特在線確認，但我們認為他成功地為中國人安排了周一在白宮的會議。” 2011年11月14日會議當天，庫尼給費爾斯發郵件，確認阿徹”把中國人在華盛頓的事情搞定了” 。
-
-奧巴馬-拜登政府檔案顯示，中共國代表團確實在2011年11月14日訪問了白宮，並受到了高層的會見。據白宮訪客記錄顯示，代表團大約有30名成員。但這些記錄也掩蓋了對中共國代表團來說可能最重要的一件事:與副總統拜登本人的會晤。訪客記錄中列出了奧巴馬的管理和預算辦公室（OMB）副主任傑夫·齊恩茨(Jeff Zients)作為這次CEC代表團的東道主。奧巴馬曾給齊恩茨下達了重組和最終整合商務部下屬各個進出口機構的任務— 中共國代表團很可能對這項工作產生濃厚興趣。中共國CEC公佈的行程表也證實，代表團與奧巴馬當時剛剛任命的商務部長約翰·布賴森（John Bryson）舉行了會談。
-
-報導認為，奇怪的是，奧巴馬和拜登的訪問日誌中並沒有提到CEC人員與副總統拜登有任何會面。但是CEC的核心創始人之一卻透露了與副總統的非正式會議。在一份列有CEC成員履歷的模糊文件中，CEC秘書長鄭美琪稱，她在2011年促成了CEC在華盛頓的會議，並誇耀CEC會見了華盛頓權勢人物。她提到的第一個名字是副總統喬·拜登。
-
-報導指出，在那次訪問中建立的關係可能會讓亨特·拜登和德文·阿徹受益。兩年後，他們幫助組建了中共國政府資助的渤海豐收投資基金(Bohai Harvest RST, BHR)。 BHR的第一筆主要投資組合之一是一家像“優步”（Uber）的出租車公司，叫“滴滴打車”— 現在叫滴滴出行的科技有限公司。那家公司與柳傳志關係密切，而柳傳志就是CEC主席，也是聯想控股— 全球最大電腦公司之一聯想的母公司— 的創始人。柳傳志是前中共代表，是2011年CEC赴白宮代表團的團長。他的女兒是滴滴公司的總裁。
-
-[原文鏈接](https://www.breitbart.com/politics/2020/10/16/exclusive-this-is-china-inc-emails-reveal-hunter-bidens-associates-helped-communist-aligned-chinese-elites-secure-white-house-meetings/)
-
-翻譯報導：Alton
-
-校對：文旺
+（消息來源：http://techcrunch.com ）
 
 0
