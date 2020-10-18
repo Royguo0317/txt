@@ -14,6 +14,8 @@
 
 ## 頁面 3/30 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [30](/content/README-30.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年6月25日郭先生直播-杨洁篪来美国都说了什么？共产党最快三个月彻底灭亡！](/content/2020/06/20200629-4613228362412011055.md)
+
 [文字版: 郭先生2020年6月20日GTV直播](/content/2020/06/20200623-1544322677967966575.md)
 
 [文字版：郭先生2020年6月17日直播-GTV投资和查询股票及夏威夷会议及喜马拉雅农场，新中国联邦的巨大影响力](/content/2020/06/20200623-2877590404181782091.md)
@@ -61,8 +63,6 @@
 [文字版:郭先生5月19日GTV直播](/content/2020/05/20200524-8312018362582702518.md)
 
 [文字版：5月17日郭先生直播-国内的战友不要在6月4号左右有任何冲动的行动，我们要灭共灭贼，不要反真正的好企业](/content/2020/05/20200520-8311112395612251879.md)
-
-[文字版：郭先生5月16日GTV直播](/content/2020/05/20200519-6331288695899345209.md)
 
 
 ## 頁面 3/30 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [30](/content/README-30.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)

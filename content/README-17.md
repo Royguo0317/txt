@@ -14,6 +14,8 @@
 
 ## 頁面 17/30 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [30](/content/README-30.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年2月22日文貴報平安談摩根家族及郭寶勝案情](/content/2019/02/20190224-3447840307197696435.md)
+
 [文字版：2019年2月19日文贵直播关键的问题就郭宝胜的护照，还有袁健斌申请的绿卡，必须得让美国政府知道真相](/content/2019/02/20190222-1257758446657176479.md)
 
 [文字版：2019年2月17日文贵再谈法治基金的目的和中美之间即将发生的大事](/content/2019/02/20190220-7271469985429924299.md)
@@ -61,8 +63,6 @@
 [文字版：2019年1月16日郭先生报平安视频（上，下）](/content/2019/01/20190118-5239795096969232686.md)
 
 [文字版：2019年1月12日郭文贵先生接受《楚门看世界》采访](/content/2019/01/20190113-3654521321996198385.md)
-
-[文字版：2019年1月11日“政法伪”高管评崔永元爆料](/content/2019/01/20190113-1838714476556605024.md)
 
 
 ## 頁面 17/30 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [30](/content/README-30.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)

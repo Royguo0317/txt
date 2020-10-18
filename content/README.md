@@ -14,6 +14,8 @@
 
 ## 頁面 1/30 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [30](/content/README-30.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
 
+[文字版:2020年10月5日郭先生GTV直播 ](/content/2020/10/20201018-5793496232664041877.md)
+
 [文字版:2020年9月27日郭先生GTV直播](/content/2020/10/20201005-7844353111973949021.md)
 
 [文字版:2020年9月26日郭先生GTV直播](/content/2020/10/20201003-1014274309500025995.md)
@@ -61,8 +63,6 @@
 [文字版:2020年8月16日郭先生GTV直播连线新西兰战友](/content/2020/08/20200831-5572954983708392558.md)
 
 [【文字版】2020年8月15日文贵先生连线Masha战友](/content/2020/08/20200823-930057980655469134.md)
-
-[【文字版】2020年8月12日文贵先生直播视频](/content/2020/08/20200823-4877264115847899571.md)
 
 
 ## 頁面 1/30 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [30](/content/README-30.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)

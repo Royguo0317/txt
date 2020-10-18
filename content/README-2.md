@@ -14,6 +14,8 @@
 
 ## 頁面 2/30 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [30](/content/README-30.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
 
+[【文字版】2020年8月12日文贵先生直播视频](/content/2020/08/20200823-4877264115847899571.md)
+
 [ 文字版：2020年8月9日文贵先生连线硅谷战友 ](/content/2020/08/20200823-4152243607808954101.md)
 
 [【文字版】2020年8月8日郭先生GTV连线日本樱花团](/content/2020/08/20200814-3147962922303992326.md)
@@ -61,8 +63,6 @@
 [文字版:郭先生2020年7月2日直播](/content/2020/07/20200706-7619698888838221948.md)
 
 [文字版：郭先生6月28日GTV直播-香港问责法案最后一分钟被大打折扣;成功营救郝海东之子;GTV投资进展；中共对付新中国联邦的烂招](/content/2020/07/20200702-4895298173760578203.md)
-
-[文字版：2020年6月25日郭先生直播-杨洁篪来美国都说了什么？共产党最快三个月彻底灭亡！](/content/2020/06/20200629-4613228362412011055.md)
 
 
 ## 頁面 2/30 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [30](/content/README-30.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)

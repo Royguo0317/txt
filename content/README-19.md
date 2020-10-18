@@ -14,6 +14,8 @@
 
 ## 頁面 19/30 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) ... [30](/content/README-30.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)
 
+[翻译：1120发布会来宾提问，班农和郭先生回答](/content/2018/11/20181123-8581162821359950469.md)
+
 [2018年11月20号发布会班农第一部分演讲翻译以及文字版郭文贵先生发布会个人演讲部分](/content/2018/11/20181123-7564165555128970884.md)
 
 [文字版：郭文贵2018年11月21日视频丢掉放弃幻想只要共产党存在一天我们就没有安全之日亲人员工们忘掉过去的文贵吧现在的文贵是承负着上天的使命和十四亿人民对我的寄托我不能只为你们活着](/content/2018/11/20181122-149600174493022230.md)
@@ -61,8 +63,6 @@
 [文字版：郭先生直播 10月17号2018 年路德访谈文贵先生： 法国大革命与共产党的打土豪分田地的根本不同！也必将引起流血革命！西方国家已经开始实施对中国共产党的清除方案！无人可以改变！](/content/2018/10/20181018-4563210863477806974.md)
 
 [文字版：郭文贵先生10月16日直播政法委以黑治国比黑还黑！孟宏伟怎么回国的？怎么被抓的？王建是怎么死的？王岐山赴以色列人民币“偷”技术 赴沙特 人民币换石油](/content/2018/10/20181017-1150776472458713125.md)
-
-[文字版：20181012 郭文贵直播1700家中资公司 150家中资银行 等待正义惩罚 向大家公布美国财政部海外资产控制办公室合规制栽措施！！](/content/2018/10/20181013-4266410200280515458.md)
 
 
 ## 頁面 19/30 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) ... [30](/content/README-30.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)

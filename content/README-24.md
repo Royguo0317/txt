@@ -14,6 +14,8 @@
 
 ## 頁面 24/30 [**<**](/content/README-23.md) [1](/content/README.md) ... [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) **24** [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) ... [**>**](/content/README-25.md) [查看全部](/content/README-all.md)
 
+[文字版：3月20日文贵报平安视频.盗国贼靠吴征等能依法治国！实现中国梦吗？](/content/2018/04/20180418-8337465493911865893.md)
+
 [文字版：2018年3月18日文贵再谈如何掏肛盗国贼](/content/2018/04/20180418-39810748690895167.md)
 
 [文字版：03/17/18文贵如何看王岐山当选副主席郭七条变不变！喜马拉雅的法治中国目标还能实现吗？](/content/2018/04/20180418-8884654215311993874.md)
@@ -61,8 +63,6 @@
 [文字版：文贵2月9号报平安直播](/content/2018/04/20180418-5725033153896340679.md)
 
 [文字版：2018年2月8号文贵报平安视频](/content/2018/04/20180418-4679573221949971590.md)
-
-[文字版：2018年2月7日郭先生郭媒体2个视频演讲](/content/2018/04/20180418-2002995963017552937.md)
 
 
 ## 頁面 24/30 [**<**](/content/README-23.md) [1](/content/README.md) ... [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) **24** [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) ... [**>**](/content/README-25.md) [查看全部](/content/README-all.md)
