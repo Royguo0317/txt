@@ -1,19 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【熱點播報】揭開罪惡勢力層層面紗！世界早已邪魔當道！
-`2020-10-19 15:35 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/434664/)
+## 【世界多語言圖文】2020/10/13 CCP病毒每日疫情直播簡報
+`2020-10-19 19:43 GM62` [轉載自GNews](https://gnews.org/zh-hant/433998/)
 
-**作者：香草山寫作組**Daxia
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19150416/%E5%9B%BE%E7%89%8715-3.png)
-路德社博士軍團美東時間上午10**月**19**日**8:45的報導，又深入披露了三塊硬盤的來朧去脈，邪惡勢力之間的黑暗較量與鬥爭，遠比電影諜戰大片精彩億萬倍，現今世界真實版正在激烈上演！
+戰友之家圖文摘要及小語種組
 
-據路德透露，2010年奧巴馬送了一份禮物給胡錦濤，但胡錦濤未無敢打開，後奧巴馬又轉交給習，習成功打開禮物後，掌握了政敵機要，以反貪手段一舉清理了薄熙來、徐才厚、周永康等大老虎在西方的私生子女與其建築藝術財富基因鏈。另外，拜登層出賣CIA在華的間諜，使其60名人員相繼被謀密殺害，這一駭人事件引起了西方政客的巨大轟動與震懾，各邪惡政黨因巨大利益紛紛站靠在習一邊，使習擴大了其在世界的影響力，而習派為支持美國拜登當選繼續與他們勾兌。習政敵江曾派讓薄熙來準備的後手——其海外私生子薄甜甜——成功將證據交於政要手上並進行了爆光，但此人至今杳無音訊！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19152104/%E5%9B%BE%E7%89%8713-2.png)
-世界早已被邪惡操控，只是看誰邪過誰。這種殘無人道、滅絕人性、提供同胞兒童被邪魔虐待玩弄，及製造生化武器的行為，“敗燈”的賣國罪證，以及所有這一切背後的巨大黑暗勢力，令人髮指！令人作嘔痛恨！整個世界的道德良知現籠罩在一片邪惡政治黑暗勢力的操控下！一樁樁醜陋的罪惡終將會陸續完全暴露於陽光之下！顛倒是與非、黑與白、善與惡的醜行終將得到世紀公正大審判！
+[262\_English\_1013\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19094908/262_English_1013_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19094908/262_English_1013_CCP_Virus_Updates.pdf)
 
-當務之急，滅黑惡勢力就是滅ccp **！** Take down the Ccp 刻不容緩！雖有險阻，但我們相信上天，相信正義永远战勝邪惡！
+[262\_German\_1013\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19094804/262_German_1013_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19094804/262_German_1013_CCP_Virus_Updates.pdf)
 
-更多資訊，歡迎訂閱[美東香草山農場官方推特賬號](https://twitter.com/Mos_Himalaya)！
+[262\_Korean\_1013\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19094807/262_Korean_1013_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19094807/262_Korean_1013_CCP_Virus_Updates.pdf)
+
+[262\_Spanish\_1013\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19094801/262_Spanish_1013_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19094801/262_Spanish_1013_CCP_Virus_Updates.pdf)
+
+
 
 0
