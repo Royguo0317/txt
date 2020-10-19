@@ -1,53 +1,129 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 從魔鬼731生化部隊到中共病毒
-`2020-10-18 15:38 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/432560/)
+## 約翰遜議員致信 FBI 總監雷對於拜登兒子的筆記本電腦案提出六大質疑（中英文對照）
+`2020-10-18 18:43 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/432683/)
 
-作者：大明
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18175353/20201017_Letter_Investigate_Biden-photo.png)圖片來源：[https://www.ronjohnson.senate.gov/public/](https://www.ronjohnson.senate.gov/public/) , [https://mobile.twitter.com/ChuckRossDC/status/1317516086024327174](https://mobile.twitter.com/ChuckRossDC/status/1317516086024327174)
+新聞簡述：據威斯康星州參議院約翰遜議員（Sen. Ron Johnson）2020年10月17日致 FBI 總監克里斯·雷（Christopher A. Wray）的信中稱 FBI 於2019年12月9日已收到亨特·拜登電腦里的內容，質疑FBI 接到信息後是否已經採取任何行動。約翰遜議員提出六大疑點，懷疑FBI隱瞞內情。
 
-校對：寧缺；審核：海闊天空；Page：Eric8848
+**信件全文（中英文對照）**
 
-## **從魔鬼731生化部隊到中共病毒**
+October 17, 2020
+The Honorable Christopher A. Wray
+Director
+Federal Bureau of Investigation
+935 Pennsylvania Avenue, NW
+Washington, DC 20535
 
-2020年10月9日，閆麗夢博士發表了第二份關於中共病毒的報告，用科學證據證明中共病毒是超限戰生物武器！而這場中共對全世界發動的生化戰爭，截至報告發表時，已經造成了三千萬人感染，過百萬人死亡，並且病毒還在肆虐全世界，看不到何時才能結束。人類歷史上使用生化武器影響改變世界戰爭的著名案例就是蒙古人西征，蒙古人在攻打歐亞大陸各國時，把染有黑死病的屍體投入敵人的城裡，引發瘟疫。瘟疫奪走了數千萬人的生命，歐洲人口減少了三分之一，這場瘟疫也被叫做黑死病，此次病毒改變了人類的歷史進程！
+2020年10月17日
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GVtIWLXV7Ck6f/images/96fa54df-ea3c-4c0b-b26a-82615665dc5b.jpg?asset_id=e849bd40-0090-4e0a-b2f9-438affda54a1&amp;img_etag=%229ed7db17ad860656c7fc545276a8fecc%22&amp;size=1024)](https://spark.adobe.com/page/GVtIWLXV7Ck6f/images/96fa54df-ea3c-4c0b-b26a-82615665dc5b.jpg?asset_id=e849bd40-0090-4e0a-b2f9-438affda54a1&amp;img_etag=%229ed7db17ad860656c7fc545276a8fecc%22&amp;size=1024)**閆博士在War Room直播**
+克里斯托弗. A. 雷閣下
 
-近代對中華民族傷害最大的莫過於日本法西斯。泯滅人性拿活人做生化實驗的731魔鬼部隊，全名叫日本帝國陸軍關東軍防疫給水部本部。該部隊由石井四郎所領導，因此也稱之為石井部隊。 731部隊同時也可以指在抗日戰爭和第二次世界大戰期間，舊日本帝國陸軍於日本以外領土從事生物戰、細菌戰和活人人體試驗相關研究的所有秘密軍事醫療部隊，也代指大日本帝國陸軍在佔領滿洲期間所做的生物戰和人體試驗研究。這場對於中國人民和周邊國家來說罄竹難書、泯滅人性的魔鬼生化戰爭與今天中共國活摘器官，用兒童藍金黃世界上的精英政要，用超限戰生物武器將中共病毒投放在自己國民身上，進而對全世界發動超限生化戰的做法是何其相似！閻博士論述的中共病毒令經濟全面停頓，世界恐慌，世界大量人員死亡，邪惡和危害已經遠超731魔鬼部隊！中共病毒是中共長期計劃研製，使用生化武器攻擊美國、攻擊世界的產物。由於中共拒不交出原始毒株，導致今天世界各國研發的疫苗無法通過三期臨床試驗，澳洲要繼續封國一年。與中共深度勾兌的微軟總裁比爾蓋茨警告……到第二代中共病毒超級疫苗到來之前，世界不會恢復正常。但是閆博士說過中共不會交出病毒原始毒株，而且除了很難開發出疫苗外，中共的病毒庫絕不只擁有一種生化武器病毒。不消滅中共，它會隨時再投放新的病毒。閆博士警告世界，留給人類的時間不多了，不消滅中共，人類永遠都無法擺脫超限戰生物武器的攻擊！
+總監
 
-中共病毒襲擊世界，對經濟造成了嚴重創傷，影響深遠。亞洲開發銀行（ADB）報告稱，中共病毒對全球經濟造成的損失可能達到8.8萬億美元。世界銀行表示，中共病毒大流行產生的快速而巨大的衝擊以及防控措施造成的經濟停擺使世界經濟陷入了嚴重收縮。根據世界銀行估算，全球經濟今年將收縮5.2%。世界銀行2020年6月期《全球經濟展望》指出這將是第二次世界大戰以來最嚴重的經濟衰退，也是自1870年以來，世界經濟體出現人均產出下降數量最多的一次經濟衰退。
+聯邦調查局
 
-由於內需、供應、貿易和金融嚴重中斷，預計發達經濟體2020年的經濟活動將收縮7%。預計新興市場及發展中經濟體（EMDE）今年將收縮2.5%，為至少60年來首次整體收縮。預計人均收入將降低3.6%，今年將使億萬人陷入極端貧困。郭先生預測美國大選後美國經濟和世界經濟將深度衰退。這是中共發動的生化危機戰爭，因為看不到中共病毒停止傳播的任何跡象，疫苗開發受阻，世界經濟危機無法避免，上億人會因為病毒極度貧困、飢餓……
+西北賓夕法尼亞大街935號
 
-到目前為止，美國已經有近二十萬人死於中共病毒，並且預測年底還將有十八萬左右的人死於中共病毒。珍珠港和911事件加起來，美國人死亡人數也沒這次中共發動的生化戰爭的死亡人數多。並且，全世界死亡人數每天都在百萬死亡人數的基礎上增加，歐洲荷蘭再次每日感染七千人，印度成為感染人數的重災區，世界看不到中共病毒何時才能結束！
+華盛頓區 2053
 
-中共的邪惡反人類罪行超過日本法西斯！中共泯滅人性，對武漢同胞和所有中國人民進行病毒屠殺，晝夜不停的焚屍爐，風雨中飄舞的無人關窗的紅窗簾，有多少人家滅門，一個屍袋裝三個孩子……中共是罪惡遠遠超過日本法西斯、德國納粹、ISIS伊斯蘭國恐怖分子的反人類組織！中共不但是中國十四億人民的頭號敵人，更是全球人類的頭號敵人！中共的邪惡體制和日本法西斯相比有過之而無不及，吹哨人李文亮只是冰山一角！這個體制逼迫所有人變成魔鬼，否則就像731魔鬼部隊的人一樣，敢發出不同聲音就會被當作非同胞，直接活體解剖消滅！爆料革命在郭文貴先生的帶領下，已經受到了美國和西方文明世界的熱烈歡迎！滅共的正義之戰誰也無法阻擋！這是人類生死存亡之戰！是正義和邪惡的終極之戰！消滅共產黨，迎接新世界！
+Dear Director Wray:
 
-新聞報導： [https://oversea.huanqiu.com/article/9CaKrnK6qT1](https://oversea.huanqiu.com/article/9CaKrnK6qT1)
+尊敬的雷總監：
 
-NHK再揭“731部隊真實面貌” 解剖兒童挖內臟：心臟還在跳！
+On September 24, 2020, the day after Chairman Grassley and I released our report titled, 「Hunter Biden, Burisma, and Corruption: The Impact on U.S. Government Policy and Related Concerns,」 a whistleblower contacted my committee and informed my staff that he had possession of a laptop left in his business by Hunter Biden. He also informed us that he provided its contents to the Federal Bureau of Investigation (FBI) in response to a December 9, 2019 grand jury subpoena. As the first step in our due diligence, committee staff contacted FBI officials and asked for confirmation of certain facts in an attempt to validate the whistleblower’s claims and assertions. Unfortunately, several days later, the FBI responded that it would not confirm or deny any information identified by the committee even though several of our questions were not related to the possible existence of an ongoing grand jury investigation.
 
-日本放送協會（NHK）去年8月曾播出731部隊紀錄片，破天荒公開日軍暴行真相，引發輿論大量關注。 NHK於21日再度播出《731部隊──人體實驗是這樣展開的》紀錄片，揭露731部隊成員二戰期間不為人知的秘密，同時訪問隊員家屬、戰犯的子女們首次聽見父親承認進行“人體實驗”。
+在2020年9月24日，在格拉斯利主席和我發佈了一篇以《亨特拜登、緬甸和貪污腐敗：美國政府政策的影響及相關事宜》為題的報道後的第一天，一名爆料者聯繫了我的委員會並通知我的員工他那有一台電腦是亨特拜登留在那的。他也告知我們他曾向FBI提供了裡面的內容，以回應2019年12月9日大陪審團的傳票。在我們職責調查的第一步，委員會員工就聯繫了FBI探員並要求確認事實真相以試圖認證爆料人士的主張和斷定。不幸的是，許多天以後，FBI回復說不能確認或否定任何由委員會提供的信息，儘管我們的許多問題都與可能存在的正在進行的大陪審團調查不相關。
 
-這部紀錄片分為上下兩集，總長110分鐘，全片利用過去在俄國海參崴取得的日軍戰犯法庭錄音檔、數百件相關文件，以及前731部隊成員家屬受訪資料製作而成。紀錄片中指出，自從1931年“九一八事變”之後，日本731部隊便在部隊長石井四郎中將的命令下秘密研究“細菌戰”，並將佔領區內的中國人和蘇聯人當作“實驗材料”。
+I have a responsibility to validate and verify the contents of any information produced to my committee. The committee must know if it receives information that could be fraudulent or not accurate. As my staff explained to FBI officials, this information is crucial for several reasons. For example, if any information offered to the committee was linked to a foreign adversary’s attempt to interfere in the election, I would expect the FBI to ensure the committee is protected and receives a defensive briefing. Similarly, knowingly providing false information to Congress is a crime, and I would expect the FBI to have informed me if, after having been given notice of what we received, this may have occurred. That is precisely why my staff reached out to the FBI.
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18151526/image-108.png)**圖片來自NHK**
+我有責任去確認和查證向委員會提供的任何信息的內容。委員會必須知道他接收的信息正確與否。就像我的員工向FBI解釋的，有幾個原因說明這個信息非常關鍵。例如，任何向委員會提供的信息與外國敵對者企圖干擾選舉有關聯，我期望FBI確保委員會能受到保護和收到防禦性簡報。同樣地，故意向國會提供虛假信息是犯罪行為，我期望FBI能預先通知我，如果在得知我們所收到的內容之後判定這件事情可能已經發生。那就正好說明瞭我的員工為什麼跟FBI聯繫。
 
-影片中記錄了731部隊前衛生兵古都在法庭上的證詞，指出在哈爾濱的731部隊舊址中有一處秘密牢房，部隊成員先將傷寒桿菌注入西瓜、甜瓜等瓜果，在實驗室內確認細菌繁殖成功後，讓“滿州人”或“支那人”吃下這些水果，觀察他們感染疾病的情形。
+For these reasons, the committee must know whether the FBI has assessed the validity of materials the whistleblower has provided, and what, if any, actions the FBI has taken since obtaining this information. In light of these unanswered questions, I request the following information and material:
 
-前軍醫西俊英也作證說，當時731部隊駐地有專門進行鼠疫實驗的場所，他們會將4到5名囚犯關進房間內，散播鼠疫病菌讓他們全部感染。當時日本軍人將用來做實驗的中國人稱為“匪賊”。紀錄片中還提到，女性和兒童也會用來人體實驗，有時會對他們施救，過一段時間後再將他們用於另一項實驗，直到他們死亡為止。
+基於這些原因，委員會必須知道FBI是否評估過爆料者所提供材料的可靠性，並且，FBI接到信息後是否已經採取任何行動。鑒於這些未解的疑問，我要求以下資料和素材：
 
-日本知名作家森村誠一也曾採訪過731部隊的成員，對方向他講述活體解剖兒童的過程，他們將小孩子活生生的剖開，拿出內臟一一秤量，再放到福馬林的瓶子裡，這時孩子的心臟還在跳動。有更多被活體解剖的人，在解剖結束已經完全看不出人形，只剩下一灘血肉。這些被用於人體實驗的囚犯，無一能活著離開。
+1. Does the FBI possess material from Hunter Biden’s laptop(s)? If yes, how and when did the FBI obtain this information?
 
-時任部隊長的石井四郎從東京大學、京都大學等學府網羅優秀醫學人才，這些人都被稱為“技師”，在中國東北地區秘密研發細菌武器。 731部隊內部有嚴格的管理規定，不允許成員對外談起人體實驗的任何事情。這些本應治病救人的醫生成為殺人不眨眼的劊子手，並接受日本政府的巨額援助。根據日本文部省和東京大學間往返的文件顯示，該校曾經收到來自731部隊的“特殊費用”1600日圓（折合現在的500萬日圓，約合新台幣132萬）。前細菌研究製造部長川島清也證稱，光是昭和15年（西元1940年）就有大約1000萬日圓（折合現在約300億日圓，約合新台幣79億元）被用來研發細菌武器。
+1. FBI是否持有亨特·拜登電腦里的材料？如果是，FBI是如何、何時收到這個信息的？
 
-日本戰敗投降後，前關東軍末任總司令、731部隊人體實驗的幕後黑手山田乙三遭蘇聯政府判處25年勞動感化，直到1956年蘇聯和日本恢復邦交後才獲得釋放。山田乙三返回日本時受到熱情接待，還與時任日本首相鳩山一郎會面。而731部隊的首腦石井四郎則和美軍達成協議，將所有人體實驗數據交給美國，換取其免受制裁。而731部隊進行人體實驗的“技師”們，回到日本後獲得重用，高升至教授甚至領域權威的例子比比皆是。
+2. Is it accurate that FBI officials obtained contents from Hunter Biden’s laptop from a business located in Delaware? If so:
 
-NHK電視台2017年8月也曾播出過紀錄片《731部隊的真相》，引發巨大迴響。此次再播出《731部隊──人體實驗是這樣展開的》影片，是第二部有關731部隊罪行的紀錄片。
+2. FBI探員是從位於特拉華州的一家商店收到亨特·拜登電腦里資料的，這個（說法）是否正確？如果是：
 
-【文章謹代表作者觀點】
+a. When did the FBI first examine these records?
 
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/GVtIWLXV7Ck6f/)
+a. FBI第一次調查這些記錄是什麼時候？
+
+b. Has the FBI concluded its examination of these records?
+
+b. FBI是否有對調查記錄作總結？
+
+c. Has the FBI found any evidence of criminal activity based on its examination of these records? c. FBI是否在調查這些記錄中發現任何犯罪證據？
+
+d. Has the FBI determined whether the records on the computer was generated on that computer, is genuine. or has been altered in any way?
+
+d. FBI是否能判定電腦中的這些記錄是真的原來就在電腦里的，還是從其它地方轉移過來的？
+
+e. Has the FBI determined whether these records were generated or authored by Hunter Biden? e. FBI是否能判定這些記錄是亨特·拜登所製作或原創的？
+
+f. Has the FBI determined whether these records are a result from someone hacking Hunter Biden’s computer?
+
+f. FBI是否判定這些記錄是否為黑客亨特·拜登的電腦所得到的？
+
+3. Is it accurate that the FBI issued a grand jury subpoena from the U.S. District Court for the District of Delaware to obtain this information? If so, when and why was this subpoena issued? Was this information ever offered to the FBI voluntarily?
+
+3. FBI簽發了來自美國特拉華州地方法院大陪審團的傳票以獲得這個信息，這個說法是否正確？如果是，何時、為何要簽發這張傳票？這個信息是自願提供給FBI的嗎？
+
+4. When and how were you made aware that the Delaware computer repair shop owner possessed a computer and its electronic contents that he claimed originally belonged to Hunter Biden?
+
+4. 你們何時以及如何察覺到特拉華州電腦維修店主擁有的這台電腦及裡面的電子文檔是像他所聲稱的原來是由亨特·拜登所有？
+
+5. In addition to these records allegedly provided in response to a subpoena, has the FBI ever been in possession of any other of Hunter Biden’s laptop(s) or material from Hunter Biden’s laptop(s)?
+
+5. 除了據說是為了回應一個傳票而提供的這些記錄，FBI是否收到亨特·拜登任何其他的電腦或是亨特拜登電腦里的資料？
+
+a. If so, please explain when and how the FBI obtained this information and what, if any, steps it took to investigate and authenticate that material.
+
+a. 如果是這樣的話，請解釋FBI何時和怎樣獲得的此信息，和採取的什麼步驟調查和驗證那個資料。
+
+6. Is the FBI aware of other federal agencies that have Hunter Biden’s laptop(s) or material from Hunter Biden’s laptop(s)?
+
+6. FBI是否知道其它聯邦部門有無亨特·拜登的筆記本和筆記本內的資料？
+
+a. If so, what other agencies have this material and how did those agencies obtain it?
+
+a. 如果知道，那麼是哪些部門有此資料和那些部門是怎樣獲得的資料。
+
+Please provide a response no later than October 22, 2020. Thank you for your attention to this important matter.
+
+請在不晚於2020年10月22日給予答復。謝謝你們對此重要事件給予關注。
+
+Sincerely,
+
+真誠的，
+
+Ron Johnson
+
+Chairman
+
+Committee on Homeland Security and Governmental Affairs
+
+羅恩·約翰遜
+
+國土安全和政府事務委員會主席
+
+cc: The Honorable Gary Peters Ranking Member
+
+抄送：尊敬的少數黨最資深成員加里·彼得斯
+
+[新聞來源](https://mobile.twitter.com/ChuckRossDC/status/1317516086024327174)
+
+[下載信件PDF文件](https://www.scribd.com/document/480467823/2020-10-17-FBI-Wray-letter#download&amp;from_embed)
+
+翻譯：【V% 】校對：【Cyndi】編輯：【Isaiah4031】
+
+戰友之家玫瑰園小隊出品
 
 0
