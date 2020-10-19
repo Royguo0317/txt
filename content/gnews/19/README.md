@@ -1,63 +1,129 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 一切都已經開始：以共滅共 中共官員落馬記事簿之二十二
-`2020-10-18 14:28 GM06` [轉載自GNews](https://gnews.org/zh-hant/432463/)
+## 約翰遜議員致信 FBI 總監雷對於拜登兒子的筆記本電腦案提出六大質疑（中英文對照）
+`2020-10-18 18:43 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/432683/)
 
-編輯：雅典娜之矛
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18175353/20201017_Letter_Investigate_Biden-photo.png)圖片來源：[https://www.ronjohnson.senate.gov/public/](https://www.ronjohnson.senate.gov/public/) , [https://mobile.twitter.com/ChuckRossDC/status/1317516086024327174](https://mobile.twitter.com/ChuckRossDC/status/1317516086024327174)
+新聞簡述：據威斯康星州參議院約翰遜議員（Sen. Ron Johnson）2020年10月17日致 FBI 總監克里斯·雷（Christopher A. Wray）的信中稱 FBI 於2019年12月9日已收到亨特·拜登電腦里的內容，質疑FBI 接到信息後是否已經採取任何行動。約翰遜議員提出六大疑點，懷疑FBI隱瞞內情。
 
-最高檢檢務督察局原局長肖卓被查
+**信件全文（中英文對照）**
 
-2020年10月18日，今天萬眾囑盼的Gfashion和Gclub 都上線了，各地戰友們都投進了自己的壹份希望和夢想！我們的未來壹定會充滿陽光期待和所有美好！爆料革命在全世界各界正在顯現出絕無僅有代表正義力量的的超級價值！和CCP代表的黑暗勢力形成了鮮明的對比！壹正壹邪，壹白壹黑，正如文貴先生歌曲中唱到的：勝敗早已分曉！G系列的橫空出世是爆料革命錦上添花的信仰之花！未來壹定碩果滿滿！氣場強大的文貴先生在宣傳片裏傳遞給世界和戰友們無限的能量和對未來美好的期待！終於迎來了Gfashion的驚艷登場，文貴先生親自為模特代言的Gfashion超級強悍的氣場讓世界為之喝彩！文貴先生帥到無與倫比又壹次圈粉無數！也毫無疑問的成為了戰友們心裏新壹代時尚巨星第壹人！每個人心中都期待著新時代的新中國聯邦人的新形象！
+October 17, 2020
+The Honorable Christopher A. Wray
+Director
+Federal Bureau of Investigation
+935 Pennsylvania Avenue, NW
+Washington, DC 20535
 
-每天好消息越來越密集！在前臺的路德先生和英雄科學家火熱戰鬥時，全球依法懲賊行動也按部就班進行中！各國各界媒體也在發生著微妙的變化！臺前幕後大劇繼續壹步步穩紮穩打！新中國聯邦的戰友們正在展現給世界：追求民主法制的新中國聯邦的公民才是值得被尊重的中國人應有的形象代表！
+2020年10月17日
 
-世界推動加速以共滅共力度持續加大，壹切盡在加速中！壹切都已經開始！十月過半，壹切重磅襲來，郭先生直播宣布進山21天，30天世界巨變。
+克里斯托弗. A. 雷閣下
 
-      每天的好消息和路德節目重磅解讀都令戰友們歡騰鼓舞！戰友們期待的收獲的秋天不遠了！另壹方，CCP來日無多，奄奄壹息！以共滅共落馬個個相續不停！落馬不分先後，善惡終有因果！為了維護世界的安全和正義，全世界壹起來消滅CCP！爆料革命啟動的新史冊繼續接力創造中……
+總監
 
-2020年10月18日落馬記事簿繼續加碼！以共滅共記事簿繼續開工：
+聯邦調查局
 
-最高檢檢務督察局原局長肖卓被查
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18134128/%E8%82%96%E5%8D%93.png)
-中央紀委國家監委網站訊 據中央紀委國家監委駐最高人民檢察院紀檢監察組、雲南省紀委監委消息：最高人民檢察院檢務督察局原局長（巡視工作領導小組辦公室原主任）肖卓涉嫌嚴重違紀違法，目前正接受紀律審查和監察調查。
+西北賓夕法尼亞大街935號
 
-肖卓簡歷
+華盛頓區 2053
 
-      肖卓，男，漢族，1968年12月生，湖南隆回人，中共黨員，1990年8月參加工作，在職研究生學歷，管理學博士學位。
+Dear Director Wray:
 
-1990年8月至1998年11月，先後在湖南省長沙市南區區委、長沙市委辦公廳、湖南省委組織部、湖南省委辦公廳工作；
+尊敬的雷總監：
 
-1998年11月任湖南省委辦公廳秘書處副處級秘書；
+On September 24, 2020, the day after Chairman Grassley and I released our report titled, 「Hunter Biden, Burisma, and Corruption: The Impact on U.S. Government Policy and Related Concerns,」 a whistleblower contacted my committee and informed my staff that he had possession of a laptop left in his business by Hunter Biden. He also informed us that he provided its contents to the Federal Bureau of Investigation (FBI) in response to a December 9, 2019 grand jury subpoena. As the first step in our due diligence, committee staff contacted FBI officials and asked for confirmation of certain facts in an attempt to validate the whistleblower’s claims and assertions. Unfortunately, several days later, the FBI responded that it would not confirm or deny any information identified by the committee even though several of our questions were not related to the possible existence of an ongoing grand jury investigation.
 
-1999年2月任湖南省委組織部副處級組織員；
+在2020年9月24日，在格拉斯利主席和我發佈了一篇以《亨特拜登、緬甸和貪污腐敗：美國政府政策的影響及相關事宜》為題的報道後的第一天，一名爆料者聯繫了我的委員會並通知我的員工他那有一台電腦是亨特拜登留在那的。他也告知我們他曾向FBI提供了裡面的內容，以回應2019年12月9日大陪審團的傳票。在我們職責調查的第一步，委員會員工就聯繫了FBI探員並要求確認事實真相以試圖認證爆料人士的主張和斷定。不幸的是，許多天以後，FBI回復說不能確認或否定任何由委員會提供的信息，儘管我們的許多問題都與可能存在的正在進行的大陪審團調查不相關。
 
-1999年6月任雲南省委政法委辦公室副主任；
+I have a responsibility to validate and verify the contents of any information produced to my committee. The committee must know if it receives information that could be fraudulent or not accurate. As my staff explained to FBI officials, this information is crucial for several reasons. For example, if any information offered to the committee was linked to a foreign adversary’s attempt to interfere in the election, I would expect the FBI to ensure the committee is protected and receives a defensive briefing. Similarly, knowingly providing false information to Congress is a crime, and I would expect the FBI to have informed me if, after having been given notice of what we received, this may have occurred. That is precisely why my staff reached out to the FBI.
 
-2000年4月任雲南省委政法委研究室副主任兼雲南省政法研究所所長；
+我有責任去確認和查證向委員會提供的任何信息的內容。委員會必須知道他接收的信息正確與否。就像我的員工向FBI解釋的，有幾個原因說明這個信息非常關鍵。例如，任何向委員會提供的信息與外國敵對者企圖干擾選舉有關聯，我期望FBI確保委員會能受到保護和收到防禦性簡報。同樣地，故意向國會提供虛假信息是犯罪行為，我期望FBI能預先通知我，如果在得知我們所收到的內容之後判定這件事情可能已經發生。那就正好說明瞭我的員工為什麼跟FBI聯繫。
 
-2001年1月任雲南省委政法委研究室主任兼雲南省政法研究所所長；
+For these reasons, the committee must know whether the FBI has assessed the validity of materials the whistleblower has provided, and what, if any, actions the FBI has taken since obtaining this information. In light of these unanswered questions, I request the following information and material:
 
-2004年11月任雲南省保山市委常委、政法委書記；
+基於這些原因，委員會必須知道FBI是否評估過爆料者所提供材料的可靠性，並且，FBI接到信息後是否已經採取任何行動。鑒於這些未解的疑問，我要求以下資料和素材：
 
-2007年5月任雲南省人民檢察院黨組成員、副檢察長；
+1. Does the FBI possess material from Hunter Biden’s laptop(s)? If yes, how and when did the FBI obtain this information?
 
-2011年1月任雲南省人民檢察院黨組副書記、副檢察長（正廳級）；
+1. FBI是否持有亨特·拜登電腦里的材料？如果是，FBI是如何、何時收到這個信息的？
 
-2014年5月任雲南省人民檢察院黨組副書記、常務副檢察長（正廳級）；
+2. Is it accurate that FBI officials obtained contents from Hunter Biden’s laptop from a business located in Delaware? If so:
 
-2016年5月任雲南省高級人民法院黨組副書記、常務副院長（正廳級）；
+2. FBI探員是從位於特拉華州的一家商店收到亨特·拜登電腦里資料的，這個（說法）是否正確？如果是：
 
-2016年8月任最高人民檢察院政治部副主任；
+a. When did the FBI first examine these records?
 
-2017年6月任最高人民檢察院監察局局長；
+a. FBI第一次調查這些記錄是什麼時候？
 
-2018年12月任最高人民檢察院檢務督察局局長（巡視工作領導小組辦公室主任）；
+b. Has the FBI concluded its examination of these records?
 
-2020年10月免現職。
+b. FBI是否有對調查記錄作總結？
 
-援引：
+c. Has the FBI found any evidence of criminal activity based on its examination of these records? c. FBI是否在調查這些記錄中發現任何犯罪證據？
 
-[https://i.ifeng.com/c/80fIuI7YZ5U](https://i.ifeng.com/c/80fIuI7YZ5U)
+d. Has the FBI determined whether the records on the computer was generated on that computer, is genuine. or has been altered in any way?
+
+d. FBI是否能判定電腦中的這些記錄是真的原來就在電腦里的，還是從其它地方轉移過來的？
+
+e. Has the FBI determined whether these records were generated or authored by Hunter Biden? e. FBI是否能判定這些記錄是亨特·拜登所製作或原創的？
+
+f. Has the FBI determined whether these records are a result from someone hacking Hunter Biden’s computer?
+
+f. FBI是否判定這些記錄是否為黑客亨特·拜登的電腦所得到的？
+
+3. Is it accurate that the FBI issued a grand jury subpoena from the U.S. District Court for the District of Delaware to obtain this information? If so, when and why was this subpoena issued? Was this information ever offered to the FBI voluntarily?
+
+3. FBI簽發了來自美國特拉華州地方法院大陪審團的傳票以獲得這個信息，這個說法是否正確？如果是，何時、為何要簽發這張傳票？這個信息是自願提供給FBI的嗎？
+
+4. When and how were you made aware that the Delaware computer repair shop owner possessed a computer and its electronic contents that he claimed originally belonged to Hunter Biden?
+
+4. 你們何時以及如何察覺到特拉華州電腦維修店主擁有的這台電腦及裡面的電子文檔是像他所聲稱的原來是由亨特·拜登所有？
+
+5. In addition to these records allegedly provided in response to a subpoena, has the FBI ever been in possession of any other of Hunter Biden’s laptop(s) or material from Hunter Biden’s laptop(s)?
+
+5. 除了據說是為了回應一個傳票而提供的這些記錄，FBI是否收到亨特·拜登任何其他的電腦或是亨特拜登電腦里的資料？
+
+a. If so, please explain when and how the FBI obtained this information and what, if any, steps it took to investigate and authenticate that material.
+
+a. 如果是這樣的話，請解釋FBI何時和怎樣獲得的此信息，和採取的什麼步驟調查和驗證那個資料。
+
+6. Is the FBI aware of other federal agencies that have Hunter Biden’s laptop(s) or material from Hunter Biden’s laptop(s)?
+
+6. FBI是否知道其它聯邦部門有無亨特·拜登的筆記本和筆記本內的資料？
+
+a. If so, what other agencies have this material and how did those agencies obtain it?
+
+a. 如果知道，那麼是哪些部門有此資料和那些部門是怎樣獲得的資料。
+
+Please provide a response no later than October 22, 2020. Thank you for your attention to this important matter.
+
+請在不晚於2020年10月22日給予答復。謝謝你們對此重要事件給予關注。
+
+Sincerely,
+
+真誠的，
+
+Ron Johnson
+
+Chairman
+
+Committee on Homeland Security and Governmental Affairs
+
+羅恩·約翰遜
+
+國土安全和政府事務委員會主席
+
+cc: The Honorable Gary Peters Ranking Member
+
+抄送：尊敬的少數黨最資深成員加里·彼得斯
+
+[新聞來源](https://mobile.twitter.com/ChuckRossDC/status/1317516086024327174)
+
+[下載信件PDF文件](https://www.scribd.com/document/480467823/2020-10-17-FBI-Wray-letter#download&amp;from_embed)
+
+翻譯：【V% 】校對：【Cyndi】編輯：【Isaiah4031】
+
+戰友之家玫瑰園小隊出品
 
 0
