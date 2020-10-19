@@ -1,129 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 約翰遜議員致信 FBI 總監雷對於拜登兒子的筆記本電腦案提出六大質疑（中英文對照）
-`2020-10-18 18:43 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/432683/)
+## 美兩大製藥因志願者不良反應暫停臨床，中共執意不顧為百姓預約接種
+`2020-10-18 19:39 GM77` [轉載自GNews](https://gnews.org/zh-hant/432772/)
 
-![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18175353/20201017_Letter_Investigate_Biden-photo.png)圖片來源：[https://www.ronjohnson.senate.gov/public/](https://www.ronjohnson.senate.gov/public/) , [https://mobile.twitter.com/ChuckRossDC/status/1317516086024327174](https://mobile.twitter.com/ChuckRossDC/status/1317516086024327174)
-新聞簡述：據威斯康星州參議院約翰遜議員（Sen. Ron Johnson）2020年10月17日致 FBI 總監克里斯·雷（Christopher A. Wray）的信中稱 FBI 於2019年12月9日已收到亨特·拜登電腦里的內容，質疑FBI 接到信息後是否已經採取任何行動。約翰遜議員提出六大疑點，懷疑FBI隱瞞內情。
+編撰: JAY 、WENJUN、文錦
+![]()![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/10/18193746/%E6%88%AA%E5%B1%8F2020-10-19-%E4%B8%8A%E5%8D%887.32.59-3.png)
+這個星期，美國強生製藥和禮來製藥研發中的新冠疫苗和新冠抗體藥物，因為有志願者出現不良反應，喊停臨床實驗，再次提醒各國開發新冠藥物過程中的風險，以及透明度和安全保障機制的重要性。可是在另一方面，中國國藥集團已經在北京和武漢開放預約接種新冠疫苗，並且宣佈出國留學生優先。那麼，美國兩大製藥公司的挫折會不會提高新冠疫苗審批的門檻，和推遲疫苗誕生的時間？中國廣泛接種實驗中的新冠疫苗會帶來哪些風險？北京加入新冠疫苗保障機制後，中國疫苗是否被廣泛接受？
 
-**信件全文（中英文對照）**
+美國新冠疫苗研發領先者強生，因為一名參加實驗的志願者出現原因不明的不良症狀，星期一宣布暫停實驗。強生對外發表的公告說，出於保護志願者的隱私，不便透露具體情況。強生三期臨床實驗是新冠疫苗開發中規模最大的實驗，有6萬名志願者參加。原沃爾特·里德陸軍研究所病毒專家林曉旭博士說，在大型實驗中有人出現不良反應是常見的。
 
-October 17, 2020
-The Honorable Christopher A. Wray
-Director
-Federal Bureau of Investigation
-935 Pennsylvania Avenue, NW
-Washington, DC 20535
+他說：“通常對於疫苗的臨床試驗，特別是到第三期的臨床試驗，因為參與的志願者相當多，比如強生的試驗就有6萬多人的註冊，這個量是非常大的，所以當然遇到不良反應，特別是嚴重的不良反應，就是severe adverse這樣的案例應該斷斷續續都會出現，這才是三期臨床試驗特別要注意的一點。”
 
-2020年10月17日
+林曉旭說，因為安全性只有在足夠大人群裡測試過以後，才會發現難以預測的情況，特別是一些系統性的不良反應。
 
-克里斯托弗. A. 雷閣下
+星期二，美國藥廠禮來也因潛在安全疑慮，中止新冠抗體藥物最後階段的臨床試驗。 9月初，英國製藥商阿斯利康的新冠疫苗臨床實驗也因為有志願者出現不良反應，喊停全球的實驗。有人擔心，這些挫折是否會提高疫苗審批的門檻，推遲疫苗誕生的時間。
 
-總監
+林曉旭說，疫苗和藥物的審批標准在開始試驗前就已經制定，不會修改。不過，在疫苗開發中受到挫折，接下來將由第三方獨立監督機構獨立數據安全監控委員會和內部的臨床和安全醫生進行審查，可能會需要更長時間來做試驗，影響疫苗的推出時間。
 
-聯邦調查局
+另外一方面，中國國藥集團這個在北京和武漢開放預約接種還沒有完成三期實驗的新冠疫苗，並且給即將出國的留學生優先免費注射，報名者2個星期後可以到指定地點接種。南華早報報導，到10月13號星期二為止，已經有15萬5千多人報名，76萬多人表示有興趣。
 
-西北賓夕法尼亞大街935號
+林曉旭說，國藥集團這麼做是不合理的，因為就算是非常成功的疫苗，在這樣大疫情之下，也應該考慮哪些地區的疫情比較嚴重，哪些醫療機構人員更需要打疫苗，而不是讓民眾來哄搶。
 
-華盛頓區 2053
+他說：“你如果在網上開預約的話，那當然誰有便利，甚至有些學生用專門的軟件可以搶，就像搶購一個什麼音樂會門票一樣，他通過這個軟件來搶購，來預約，怎麼辦？對不對？就是說，你這樣完全對公眾開放預約的話，把疫苗變成一個人們可以搶購的東西，這個我覺得這是不合理的事情，而是應該有整體的考量，而且牽扯到疫苗能不能及時運送到位的問題。”
 
-Dear Director Wray:
+他指出，國藥公司這麼做實際上是為了配合他們公司的股票升值的問題，是一種炒作。
 
-尊敬的雷總監：
+隨後又有報導說，國藥集團的官網上撤掉了報名的通道。有關這個消息，國藥並沒有出面澄清這個消息。這種缺乏透明度的做法令人質疑。
 
-On September 24, 2020, the day after Chairman Grassley and I released our report titled, 「Hunter Biden, Burisma, and Corruption: The Impact on U.S. Government Policy and Related Concerns,」 a whistleblower contacted my committee and informed my staff that he had possession of a laptop left in his business by Hunter Biden. He also informed us that he provided its contents to the Federal Bureau of Investigation (FBI) in response to a December 9, 2019 grand jury subpoena. As the first step in our due diligence, committee staff contacted FBI officials and asked for confirmation of certain facts in an attempt to validate the whistleblower’s claims and assertions. Unfortunately, several days later, the FBI responded that it would not confirm or deny any information identified by the committee even though several of our questions were not related to the possible existence of an ongoing grand jury investigation.
+中國在10月8號確認，加入了新冠疫苗保障機制，成為第171個成員國。不過，中國產的疫苗並非在每個區域都受歡迎，比如台灣福衛部長陳時中明確表示，台灣將不買中國疫苗。
 
-在2020年9月24日，在格拉斯利主席和我發佈了一篇以《亨特拜登、緬甸和貪污腐敗：美國政府政策的影響及相關事宜》為題的報道後的第一天，一名爆料者聯繫了我的委員會並通知我的員工他那有一台電腦是亨特拜登留在那的。他也告知我們他曾向FBI提供了裡面的內容，以回應2019年12月9日大陪審團的傳票。在我們職責調查的第一步，委員會員工就聯繫了FBI探員並要求確認事實真相以試圖認證爆料人士的主張和斷定。不幸的是，許多天以後，FBI回復說不能確認或否定任何由委員會提供的信息，儘管我們的許多問題都與可能存在的正在進行的大陪審團調查不相關。
+世衛組織執委會成員，歐盟首席疫苗談判代表克萊門斯·奧爾也表示，這個機制的透明度嚴重不足。他說：“我們對於疫苗的價格、質量、技術平台或風險都將沒有發言權，這是完全無法接受的。”
 
-I have a responsibility to validate and verify the contents of any information produced to my committee. The committee must know if it receives information that could be fraudulent or not accurate. As my staff explained to FBI officials, this information is crucial for several reasons. For example, if any information offered to the committee was linked to a foreign adversary’s attempt to interfere in the election, I would expect the FBI to ensure the committee is protected and receives a defensive briefing. Similarly, knowingly providing false information to Congress is a crime, and I would expect the FBI to have informed me if, after having been given notice of what we received, this may have occurred. That is precisely why my staff reached out to the FBI.
+林曉旭說：“如果中國的疫苗現在跳過了3期臨床實驗，帶來很多國家對他質量的質疑，包括俄羅斯也是面臨這樣一個處境，對不對？如果這些疫苗的質量沒法保住，我為什麼非得加入這個機制，在一種不透明情況下去預定這些疫苗呢？所以我覺得最核心的問題仍然是疫苗是不是安全，是否有效，這是所有國家最先考慮的。”
 
-我有責任去確認和查證向委員會提供的任何信息的內容。委員會必須知道他接收的信息正確與否。就像我的員工向FBI解釋的，有幾個原因說明這個信息非常關鍵。例如，任何向委員會提供的信息與外國敵對者企圖干擾選舉有關聯，我期望FBI確保委員會能受到保護和收到防禦性簡報。同樣地，故意向國會提供虛假信息是犯罪行為，我期望FBI能預先通知我，如果在得知我們所收到的內容之後判定這件事情可能已經發生。那就正好說明瞭我的員工為什麼跟FBI聯繫。
+中共假疫苗事件層出不窮，多次爆出「百日咳、白喉、破傷風」三合一疫苗檢驗不合格，長春長生生物科技有限公司和武漢生物等多家黑心廠家“榜上留名”，受此戕害終生殘疾甚至毒死的接種兒童數量始終是個謎。近日媒體有報導一個名叫何方美的母親四歲的女兒被疫苗致殘維權潑墨河南輝縣政府牌匾。為母則強，何方美如果不是女兒被疫苗致殘且維權多次得不到解決不會挺著孕身採用這種激烈的維權方式。中國的假疫苗事件反映的不只是製藥企業的黑心以及政府的醜陋不作為，反映的更是中國的醫藥疫苗技術水平之低劣。
 
-For these reasons, the committee must know whether the FBI has assessed the validity of materials the whistleblower has provided, and what, if any, actions the FBI has taken since obtaining this information. In light of these unanswered questions, I request the following information and material:
+美兩醫藥巨頭因一名參加試驗的志願者出現不明的不良症狀而暫停實驗，而中國國藥集團執意不顧採用這種還沒有完成三期實驗的新冠疫苗在北京和武漢開放預約接種，並且給即將出國的留學生優先免費注射。中共的這種做法如此草率簡直就是草菅人命！為出國的留學生倉促進行未經三期驗證疫苗注射簡直就是讓被注射者肉身去留學國家投毒！
 
-基於這些原因，委員會必須知道FBI是否評估過爆料者所提供材料的可靠性，並且，FBI接到信息後是否已經採取任何行動。鑒於這些未解的疑問，我要求以下資料和素材：
+參考鏈接：
 
-1. Does the FBI possess material from Hunter Biden’s laptop(s)? If yes, how and when did the FBI obtain this information?
-
-1. FBI是否持有亨特·拜登電腦里的材料？如果是，FBI是如何、何時收到這個信息的？
-
-2. Is it accurate that FBI officials obtained contents from Hunter Biden’s laptop from a business located in Delaware? If so:
-
-2. FBI探員是從位於特拉華州的一家商店收到亨特·拜登電腦里資料的，這個（說法）是否正確？如果是：
-
-a. When did the FBI first examine these records?
-
-a. FBI第一次調查這些記錄是什麼時候？
-
-b. Has the FBI concluded its examination of these records?
-
-b. FBI是否有對調查記錄作總結？
-
-c. Has the FBI found any evidence of criminal activity based on its examination of these records? c. FBI是否在調查這些記錄中發現任何犯罪證據？
-
-d. Has the FBI determined whether the records on the computer was generated on that computer, is genuine. or has been altered in any way?
-
-d. FBI是否能判定電腦中的這些記錄是真的原來就在電腦里的，還是從其它地方轉移過來的？
-
-e. Has the FBI determined whether these records were generated or authored by Hunter Biden? e. FBI是否能判定這些記錄是亨特·拜登所製作或原創的？
-
-f. Has the FBI determined whether these records are a result from someone hacking Hunter Biden’s computer?
-
-f. FBI是否判定這些記錄是否為黑客亨特·拜登的電腦所得到的？
-
-3. Is it accurate that the FBI issued a grand jury subpoena from the U.S. District Court for the District of Delaware to obtain this information? If so, when and why was this subpoena issued? Was this information ever offered to the FBI voluntarily?
-
-3. FBI簽發了來自美國特拉華州地方法院大陪審團的傳票以獲得這個信息，這個說法是否正確？如果是，何時、為何要簽發這張傳票？這個信息是自願提供給FBI的嗎？
-
-4. When and how were you made aware that the Delaware computer repair shop owner possessed a computer and its electronic contents that he claimed originally belonged to Hunter Biden?
-
-4. 你們何時以及如何察覺到特拉華州電腦維修店主擁有的這台電腦及裡面的電子文檔是像他所聲稱的原來是由亨特·拜登所有？
-
-5. In addition to these records allegedly provided in response to a subpoena, has the FBI ever been in possession of any other of Hunter Biden’s laptop(s) or material from Hunter Biden’s laptop(s)?
-
-5. 除了據說是為了回應一個傳票而提供的這些記錄，FBI是否收到亨特·拜登任何其他的電腦或是亨特拜登電腦里的資料？
-
-a. If so, please explain when and how the FBI obtained this information and what, if any, steps it took to investigate and authenticate that material.
-
-a. 如果是這樣的話，請解釋FBI何時和怎樣獲得的此信息，和採取的什麼步驟調查和驗證那個資料。
-
-6. Is the FBI aware of other federal agencies that have Hunter Biden’s laptop(s) or material from Hunter Biden’s laptop(s)?
-
-6. FBI是否知道其它聯邦部門有無亨特·拜登的筆記本和筆記本內的資料？
-
-a. If so, what other agencies have this material and how did those agencies obtain it?
-
-a. 如果知道，那麼是哪些部門有此資料和那些部門是怎樣獲得的資料。
-
-Please provide a response no later than October 22, 2020. Thank you for your attention to this important matter.
-
-請在不晚於2020年10月22日給予答復。謝謝你們對此重要事件給予關注。
-
-Sincerely,
-
-真誠的，
-
-Ron Johnson
-
-Chairman
-
-Committee on Homeland Security and Governmental Affairs
-
-羅恩·約翰遜
-
-國土安全和政府事務委員會主席
-
-cc: The Honorable Gary Peters Ranking Member
-
-抄送：尊敬的少數黨最資深成員加里·彼得斯
-
-[新聞來源](https://mobile.twitter.com/ChuckRossDC/status/1317516086024327174)
-
-[下載信件PDF文件](https://www.scribd.com/document/480467823/2020-10-17-FBI-Wray-letter#download&amp;from_embed)
-
-翻譯：【V% 】校對：【Cyndi】編輯：【Isaiah4031】
-
-戰友之家玫瑰園小隊出品
+[https://www.voachinese.com/a/voaio-20201017-china-vaccine-risks/5625088.html](https://www.voachinese.com/a/voaio-20201017-china-vaccine-risks/5625088.html)
 
 0
