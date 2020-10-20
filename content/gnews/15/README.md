@@ -1,35 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【熱點播報】拜登腐敗事實核爆烏克蘭！第二台拜登合夥人電腦案件調查進入司法程序！
-`2020-10-19 14:57 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/434622/)
+## 推特又發失心瘋，凱莉賬戶被封
+`2020-10-19 17:30 英國喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hant/434757/)
 
-作者：香草山寫作組正道主義聯盟
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19143943/%E5%9B%BE%E7%89%879-3.png)
-拜登(Joe Biden)遇到了更多麻煩。烏克蘭議員聲稱，亨特(Hunter)在烏克蘭的業務聯繫人的第二台筆記本電腦已被執法部門沒收！
+*新聞來源：《華盛頓時報》The Washington Times；作者：Victor Morton, Dave Boyer；發佈時間： 2020年10月19日*
 
-烏克蘭議員安德里·德爾卡奇（Andrii Derkach）上週五在Facebook上發帖稱有“第二台筆記本電腦”，在帖子中，德爾卡奇說筆記本電腦“被交給了烏克蘭執法部門”。
+*翻譯/簡評：Dreamer文童；校對：感恩；審核：海闊天空；Page：Connor54*
 
-他在帖子中警告說，這些人不是最後的目擊者，這個電腦也不是最後的筆記本電腦！
+**簡評：**
 
-總統的私人律師魯迪·朱利安尼(Rudy Giuliani)表示，外國消息來源沒有提供上週首次報導的亨特·拜登的電子郵件，德爾卡奇是朱利安尼的主要聯繫人之一;美國財政部的一份聲明稱，他是“10多年的俄羅斯活躍特工”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19144227/%E5%9B%BE%E7%89%8710-2.png)
-上週，《紐約郵報》(the New York Post)公佈了一些電子郵件和照片，聲稱這些郵件和照片存在亨特·拜登(Hunter Biden)的一台筆記本電腦中。有消息稱，亨特在喬·拜登擔任副總統、負責美國對烏克蘭政策時，曾安排Burisma的一位高管與他父親會面。
+《紐約郵報》（New York Post）發布一篇報導，稱亨特•拜登（Hunter Biden）在其父親喬•拜登（Joe Biden）任職副總統時，利用他與父親的關係安排一名烏克蘭高管與其父親會見。白宮新聞發言人凱莉•麥肯內尼（Kayleigh McEnany）在其推特賬戶分享該報導，導致其個人推特賬戶被封。此舉引發共和黨人士的如潮抱怨，紛紛譴責科技公司箝制輿論、操縱總統大選。
 
-據《每日野獸》(the Daily Beast)報導，安德里·德爾卡奇上週五在Facebook上發帖稱，有一個“第二台筆記本電腦”涉及腐敗證據，與拜登一家有關。
+社交媒體公司隨意刪帖早已引起民憤，但由於美國《通信規範法》第230條的規定，言論自由受壓制的網絡用戶無法對社交媒體公司提起訴訟。中國病毒學家閆麗夢博士在社交媒體平台發布COVID-19病毒真相的報導，同樣受到類似打壓。此前霍利（Hawley）議員已提議修改230規定。相信通過此次事件發酵，美國民眾將會深刻感受到盡快修改230規定的重要性。
 
-現在，他聲稱知道有第二台筆記本電腦，是Burisma創始人米科拉·茲洛希夫斯基(Mykola Zlochevsky)的兩位代表使用的。而亨特.拜登是烏克蘭能源公司Burisma的董事會成員。
+**推特封鎖新聞發言人凱莉•麥肯內尼（Kayleigh McEnany）的賬戶**
 
-德爾卡奇在帖子中說，筆記本電腦“被交給了烏克蘭執法部門”，Burisma的代表現在是“刑事訴訟中的證人”。
+![]()![](https://spark.adobe.com/page/ug7ZISHW8n9s8/images/52248fc8-31ff-4c37-b562-61cc9b5b0ed1.jpg?asset_id=17966ebc-cd26-4ad0-85fa-a99a79c7a8a6&amp;img_etag=%22246833ada865725a28897d664de8d371%22&amp;size=2560)2020年10月4日（週日），白宮新聞發言人凱莉•麥肯內尼（Kayleigh McEnany）在華盛頓白宮接受福克斯新聞（Fox News）採訪。 (AP 照片/Jacquelyn Martin)
 
-德爾卡奇說，相關人士已經“準備好”講述涉及拜登一家的國際腐敗問題。他警告說:“但最重要的是!這些不是最後的證人或最後的筆記本電腦。”喬·拜登週日在北卡羅來納州達勒姆被拍到。
+推特封鎖了白宮新聞發言人凱莉•麥肯內尼（Kayleigh McEnany）的賬戶，因為她分享了亨特•拜登（Hunter Biden）與烏克蘭的報導。
 
-這位烏克蘭議員說:“確認國際腐敗的事實存儲在第二台筆記本電腦中。”“這台筆記本電腦被移交給了烏克蘭執法人員，這些’工作人員’現在是刑事訴訟的證人。”
+川普總統競選團隊戰斗室（War Room）發布了一張麥肯內尼（McEnany）女士努力訪問其個人推特賬戶的圖片。
 
-這個消息出來後，居然被Facebook全面封殺！ Facebook暫停了德爾卡奇的帳戶，原因是他被美國政府指控為俄羅斯特工，並試圖干預總統大選！這個消息真是讓人震驚，並更加坐實了“硬槃門”的核爆力量！
+[!\[\]()!\[\](https://spark.adobe.com/page/ug7ZISHW8n9s8/images/7f88d9e4-4fe8-41eb-b200-4795b9ad1f3a.jpg?asset_id=91c1ecac-6548-420e-865a-a6d04f0425bf&amp;img_etag=%2238e5cacce80b453d4ae1980d239df03d%22&amp;size=5541)](https://spark.adobe.com/page/ug7ZISHW8n9s8/images/7f88d9e4-4fe8-41eb-b200-4795b9ad1f3a.jpg?asset_id=91c1ecac-6548-420e-865a-a6d04f0425bf&amp;img_etag=%2238e5cacce80b453d4ae1980d239df03d%22&amp;size=1024)
 
+根據該圖片，麥肯內尼（McEnany）女士的賬戶“違反了我們關於發布黑客材料的規定”。
 
+儘管讀者仍然可以訪問（她的）賬戶，但總統的官方發言人卻無法再訪問其推特賬戶，除非她刪除矽谷公司確認的一條“可能使人們處於人身危險”的推文。
 
-更多資訊，歡迎訂閱[美東香草山農場官方推特賬號](https://twitter.com/Mos_Himalaya)！
+麥肯內尼（McEnany）女士分享的信息是《紐約郵報》（New York Post）的一篇報導，（該報導內容）部分基於一台舊筆記本電腦，據稱顯示了一名烏克蘭高管要求亨特•拜登（Hunter Biden）利用他（亨特•拜登）與他父親（時任副總統喬•拜登）的影響力。
+
+《郵報》文章稱該高管感謝小拜登（Biden）先生安排的會見，這與民主黨候選人此前的否認不相符，即，他從未與他兒子討論他的烏克蘭業務。
+
+臉書和推特均試圖阻止《郵報》報導的傳播，導致周三全天保守派都在抱怨科技巨頭們正在替民主黨做骯髒的工作。
+
+眾議院司法委員會共和黨人對麥肯內尼（McEnany）女士因在推特發布報導而被封賬戶做出回應。
+
+委員會共和黨人稱“由於@kayleighmcenany（凱莉•麥肯內尼）無法分享《紐約郵報》（New York Post）的文章，我們將代她發布。”
+
+川普競選團隊通訊總監蒂姆•穆塔（Tim Murtaugh）稱推特“在喬•拜登（Joe Biden）的保護下已失去控制”。
+
+默特（Murtaugh）先生髮推稱“如果是關於川普的報導，你知道他們將放任不管”。
+
+佛羅里達州共和黨參議員里克•斯科特（Rick Scott）發推稱“這太過分了。”
+
+斯科特（Scott）先生稱“推特和大型科技公司正試圖為喬•拜登（Joe Biden）和民主黨操縱此次選舉。他們不希望美國人民知道真相。”
+
+麥肯內尼（McEnany）女士之後將（該事件）記錄在白宮新聞發言人的官方政府報告中，以抗議科技巨頭的行為。
+
+“審查制度應該被譴責！抄送推特和臉書。這不是美國的風格。”她這樣寫道。
+
+[原文鏈接](https://www.washingtontimes.com/news/2020/oct/14/kayleigh-mcenany-twitter-account-locked/?utm_source=RSS_Feed&amp;utm_medium=RSS)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/ug7ZISHW8n9s8/) -點擊spark adobe版
 
 0

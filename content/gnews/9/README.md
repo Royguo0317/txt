@@ -1,37 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 以色列和巴林正式建交中東“火藥桶”熄火了
-`2020-10-19 17:08 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/434749/)
+## 【世界多語言圖文】2020/10/13 CCP病毒每日疫情直播簡報
+`2020-10-19 19:43 GM62` [轉載自GNews](https://gnews.org/zh-hant/433998/)
 
-喜馬拉雅聯盟加拿大農場 熊媽媽
+戰友之家圖文摘要及小語種組
 
-校對 小鷗 上傳 XM
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19165742/gazeta.uz_-1.png)圖片來源：gazeta.uz
-10月18日，《以色列時報》報導，以色列已與巴林正式建立外交關係。這將有力遏制中共和伊朗在中東地區的影響力，令中東局勢趨於穩定。
+[262\_English\_1013\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19094908/262_English_1013_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19094908/262_English_1013_CCP_Virus_Updates.pdf)
 
-建交協議由以色列總理本傑明·內塔尼亞胡的國家安全委員會負責人梅爾·本·沙巴特和巴林外交部長阿卜杜拉蒂夫·本·拉希德·扎亞尼在巴林首都麥納麥簽署，協議允許兩國互設使館和派遣大使。同時雙方還簽署了多領域的貿易合作協議，包括客運航線協議。此外，雙方還簽署了諒解備忘錄。除以色列代表團外，美國代表也抵達麥納麥參加了儀式的簽署。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19165840/yandex-1.jpg)圖片來源：yandex
-雙方協議中指出，兩國都承諾不對彼此採取敵對行動，以及對第三國採取敵對行動。文件中還補充，雙方“將繼續努力，以實現公正，全面和持久的解決以巴衝突。”
+[262\_German\_1013\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19094804/262_German_1013_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19094804/262_German_1013_CCP_Virus_Updates.pdf)
 
-巴林哈馬德·本·伊薩·哈利法國王表示，他相信在不同文化和宗教之間樹立寬容，共存和諒解的價值的重要性，特別是在一個“其人民遭受了許多衝突和鬥爭的地區”。
+[262\_Korean\_1013\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19094807/262_Korean_1013_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19094807/262_Korean_1013_CCP_Virus_Updates.pdf)
 
-美國代表團團長、美國財政部長姆努欽表示，兩國之間的協議“是該地區穩定，該地區及其國家所有居民繁榮的重要一步”。
+[262\_Spanish\_1013\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19094801/262_Spanish_1013_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19094801/262_Spanish_1013_CCP_Virus_Updates.pdf)
 
-據美國Axios稱，以色列和巴林建交協議簽署後，以色列外交部高級官員向巴林外交大臣遞交官方信函，以色列正式請求在麥納麥開設以色列大使館。
 
-9月15日，巴林與阿聯酋、以色列簽署了國家關係正常化協議，簽字儀式在美國白宮舉行， 以色列與兩個阿拉伯國家的談判調解人美國川普總統出席了會議。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19165822/TACC-3-scaled.jpg)圖片來源：TACC
-自1994年以來，巴林和阿聯酋成為第一批承認以色列的國家。 16年前，在美國總統克林頓的調解下，他們在華盛頓簽署了一項關於以色列和約旦關係正常化的協議。在其他阿拉伯國家中，只有埃及在1979年同意與以色列建立關係。巴林是繼埃及和約旦之後與以色列建交的第四個阿拉伯國家，是繼阿聯酋之後與以色列建立外交關係的第二個海灣國家。
-
-今年8月下旬，阿聯酋當局宣布取消自1972年就存在的對以色列的經濟抵制。該解決方案使阿聯酋的公司能夠與以色列居民達成商業交易和任何其他交易，將以色列商品進口到該國。同樣，以色列答應中止宣布對約旦河西岸地區的主權，儘管內塔尼亞胡指出，以色列並未放棄對這些土地的權利。
-
-作為自2017年以來全球最大的石油進口國，中共國越來越依賴中東能源。 2019年，沙特阿拉伯成為中共國最大的石油供應國。三個中東國家——伊朗、伊拉克和阿聯酋是中共國最大的供應商。中共希望與阿拉伯君主國和以色列保持良好關係，試圖達到多贏，中共對伊朗的投資也間接地作為對黎巴嫩、也門、伊拉克和敘利亞的伊朗代理人的支持。
-
-近期，美國強勢推動阿聯酋、以色列、巴林全方位建交，同時提出延長對伊朗武器禁運，美國恢復了在簽署2015年維也納伊朗核協議前的單邊制裁，這一系列舉措主要是為了維護中東局勢，以遏制中共和伊朗政權在中東的影響力。
-
-參考鏈接： [https://www.timesofisrael.com/israel-bahrain-sign-historic-agreement-formally-establishing-diplomatic-ties/](https://www.timesofisrael.com/israel-bahrain-sign-historic-agreement-formally-establishing-diplomatic-ties/)
-
-[https://www.axios.com/israel-bahrain-diplomatic-agreement-2a00edcb-6dda-4189-a48a-0b27a6961b9d.html](https://www.axios.com/israel-bahrain-diplomatic-agreement-2a00edcb-6dda-4189-a48a-0b27a6961b9d.html)
 
 0

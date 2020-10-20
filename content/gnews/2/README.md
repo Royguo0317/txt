@@ -1,19 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/10/13 CCP病毒每日疫情直播簡報
-`2020-10-19 19:43 GM62` [轉載自GNews](https://gnews.org/zh-hant/433998/)
+## 針對美國指控中共國學者的間諜行為，中共威脅將隨時拘捕美國人身上報復
+`2020-10-19 21:16 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/434989/)
 
-戰友之家圖文摘要及小語種組
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19205625/1-153.png)圖片來源：https://www.bannedbook.org/bnews/cnnews/20170419/747851.html
+據《華爾街日報》報導，中共已經直截了當表示將對美國實施“人質外交”政策。
 
-[262\_English\_1013\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19094908/262_English_1013_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19094908/262_English_1013_CCP_Virus_Updates.pdf)
+據知情人士透露，中共國政府官員警告美國同行，他們可能會拘捕在中國的美國人，以回應美國司法部對中共國軍方學者的起訴，中共國官員還通過多種渠道多次向美國政府代表發出這一警告，包括通過美國駐北京的大使館。
 
-[262\_German\_1013\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19094804/262_German_1013_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19094804/262_German_1013_CCP_Virus_Updates.pdf)
+人們注意到，中共的這一威脅源於美國逮捕了一系列在美國進行訪問研究的中共國科學家的案件，這些中共學者涉嫌知識產權盜竊，隱瞞身份，簽證欺詐等罪行。美國移民局已發現多個中共學者隱瞞了其現役中共軍方的身份，並與中共國外交官密切接觸的事實。據信，上述調查直接導致了美國於七月份關閉了中共休斯敦領事館，並開始對中共國軍事科學家實施驅逐。
 
-[262\_Korean\_1013\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19094807/262_Korean_1013_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19094807/262_Korean_1013_CCP_Virus_Updates.pdf)
+報導指出，中共當局向來把任意拘捕外國公民作為其外交報復的手段，中共的這一惡行早已盡人皆知，並在華盛頓的政策圈中被稱為“人質外交”， 其手段包括，禁止美國公民離開中國，刑事或民事指控，甚至直接逮捕。目前已有加拿大，澳大利亞和瑞典的公民因中共的虛假指控而被判刑。
 
-[262\_Spanish\_1013\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19094801/262_Spanish_1013_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19094801/262_Spanish_1013_CCP_Virus_Updates.pdf)
+同時，中共國務院發言人拒絕回應其威脅美國的行為，卻轉過來強調說：“我們警告美國公民，因業務糾紛，或民事問題導致的司法案件，在法院命裁定之前或政府部門調查期間，涉案人將被禁止離開中國，直到問題解決為止。” 美國隨即在9月份的旅行諮詢中，建議美國人應避免前往中共國旅行。
 
+面對中共的“人質外交”威脅， 西方國家顯得無能為力，司法部國家安全部門負責人約翰·德默斯（John Demers）說：“我們知道，對於中共政府非法拘留美國，加拿大和其他國家公民的惡行，除了對中共政府施壓，我們沒有有效的對應機制。”德默斯又補充說：“如果中共國希望被視為世界主要國家之一，那就應該尊重法治，並停止劫持人質。 ”
 
+另外，報導引述了中共國檢察官在6月份以間諜罪名起訴了兩名加拿大公民的案件，這一案件，被廣泛視為是對加拿大應美國引渡請求而逮捕了華為高管的報復。
+
+加拿大總理賈斯汀·特魯多（Justin Trudeau）公開批評了中共的逮捕行動。而中共國駐加拿大大使叢培武警告加拿大：不要向來自中國香港的民主活動人士提供庇護，並稱加拿大應支持北京在香港實施一項新的國家安全法。
+
+報導分析指出， 目前美國針對中共國軍方背景的科研人員所採取的司法行動是前所未有的，這些行動顯然使中共顏面掃地，而從歷史上看，這類行動往往是暗中操作並保存雙方顏面的。
+
+一位知情人士說，在一名中共軍方科學家唐娟於6月受到聯邦調查局的調查後，中共開始發出警告。中國官員告訴美國同行，如果美國不允許該研究員返回中國，他們將在中國拘留一名美國人。而美方顯然沒有屈從於中共的威脅，聯邦調查局在唐女士於七月試圖離開美國時逮捕了她。
+
+簡評：“人質外交”是所有獨裁國家和恐怖組織的慣用伎倆，從慕尼黑的以色列人質事件到塔利班頻繁綁架西方平民，“人質外交”已成為當今世界的一顆毒瘤。隨著擴張野心的膨脹，中共已經撕去了偽裝，開始赤裸裸的對西方民主社會發出了威脅，他們知道，西方民主體制下，沒有有效應對這種流氓手段的機制，但是他們忘了，多行不義必自斃，他們的這種反人類反文明的行為必會招致國際社會的抵制，從而變得更加孤立。
+
+而美國也應明白一個道理：如果你給老鼠一塊餅乾，它就會想要一個蛋糕。相信以美國為首的西方社會不會為了短期利益而屈從於中共的威脅。
+
+[原文鏈接](https://www.wsj.com/articles/china-warns-u-s-it-may-detain-americans-in-response-to-prosecutions-of-chinese-scholars-11602960959)
+
+翻譯報導：Hanstyle88
 
 0
