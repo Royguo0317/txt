@@ -1,33 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特•拜登電郵曝光，拜登家族與中共勾結故事漸漸浮出水面
-`2020-10-20 01:30 GM31` [轉載自GNews](https://gnews.org/zh-hant/435271/)
+## 頂風作案：推特又封了木蘭傳奇的賬戶
+`2020-10-20 02:20 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/435379/)
 
-《[紐約郵報](https://nypost.com/2020/10/15/emails-reveal-how-hunter-biden-tried-to-cash-in-big-with-chinese-firm/amp/?__twitter_impression=true)》近期有不少與亨特·拜登電郵內容有關的文章，主要來自朱利安尼市長的分享。《紐約郵報》還對這些電郵內容進行了分析，拜登家族背後的故事漸漸有了雛形。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20021424/1-103.jpg)https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20021424/1-103.jpg
+**澳洲時間2020年10月20日，戰友們發現，木蘭傳奇（秘翻組負責人）的推特賬戶被封！路德率先發推廣而告之。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20030110/Screen-Shot-2020-10-20-at-5.00.00-pm-2.png)
+#### **木蘭何許人**
 
-Recently, several articles by the New York Post have exposed the Hunter Biden’s email, largely from the sharing of Mayor Giuliani. The Post also analyzed them, outlying the hidden story of the Biden family.
+在爆料革命最早的戰友中，有兩個暱稱都帶木蘭的巾幗，一個是澳大利亞的木蘭傳奇，一個是加拿大的卡麗熙。兩位木蘭一個活躍在前台，堅持做木蘭訪談，一個耕耘在幕後，默默無聞地組建起一支能打硬仗，多做少言的秘密翻譯組。與戲子劉亦菲掛羊頭賣狗肉的《木蘭》不同，我們爆料革命的兩個木蘭都無愧于歷史上花木蘭的美譽，她們比一般的男人更為勤奮更為堅韌，尤其是澳洲的木蘭傳奇，在三年多的密切合作中，她的無我忘我與務實低調給了我最多的感動，也正是她的作風，使得秘翻組成為一支務實低調的行動派。
 
-其中一個案例是，亨特與位於上海的華信中國能源有限公司領導葉簡明、臧建軍，以及國際諮詢公司J2cR的James Gilliar之間的勾結。電郵內容中有在詳細的討論他們之間的股權分配，工資等問題。換句話說，亨特既有股票，也有工資，甚至還對辦公室有期望。亨特在部分電郵中無法掩飾出其高興心情，他還在解釋為何其報酬如此豐厚，也流露出自己和家族很滿意
+#### **為什麼被封號**
 
-One of a case is the collusion between Hunter and CEFC China Energy Co., Shanghai, Ye Jianming, the leader of the company, Zang Jian Jun, the leader of the company, and the James Gilliar of the international consulting firm J2cR. The email discussed in detail the equity distribution, salary and other business among them. In other words, Hunter owns the shares, earns salary and even has some office expectations. It cannot conceal his own happiness in some of his emails. He also explained why he was so well paid, noting a satisfactory of he and his family.
+當閆博士，甚至川普競選團隊，以及無數戰友的賬戶被封之後，提出這個問題其實有些多此一舉，但我還是想再扒一次推特的皮！
 
-因此，亨特·拜登在這些業務中代表了拜登家族。《紐約郵報》也揭示了部分拜登家族成員及所控制實體的異常資金。這又涉及到亨特的叔叔詹姆斯·拜登（James Biden）和詹姆斯的妻子薩拉·拜登（Sara Biden），香港金飛集團CFO董龔文，前香港政府官員何志平，亨特·拜登的律師事務所Owasco PC，以及一家名為亨德森·韋斯特的公司。可以推測出這些資金的活動中拜登家族有獲利，甚至涉嫌犯罪。
+2020年5月，美國最大的社交媒體之一推特，出人意料地任命一個華人李飛飛加入推特公司的獨立董事，從三年多爆料革命獲得的經驗可知，推特公司從那一刻開始徹底淪陷，這無疑是中共全球收買的又一成功案例。我猜測，由於香港事件將中共的暴行赤裸裸地展示給世界，所以中共控制全球輿論的野心再次被激發（中共新華社牆上的標語就是：我們要把地球管起來！），於是，中共迅速以藍金黃的速度安排李飛飛入主推特。
 
-Thus, in all these business, Hunter Biden is on behave of the Biden family. The Post also revealed the abnormal funds of some members of the Biden family and entities under their control, involving Hunter’s uncle James Biden and James’ wife Sara Biden, Dong Gongwen, CFO of the Kam Fei Group; Chi Ping Patrick Ho, former Hong Kong government official; Hunter’s law firm Owasco PC and a company called Henderson West. The Biden family, could be inferred, had not only profited from the activities of these funds, but also suspected of crime.
+李飛飛不辱使命，很快適應角色，把中共言論審查的那一套嫻熟地運用到推特上來。小罵大幫忙的不算，凡是真正戳到中共痛處的，均被推特貼上“不實言論”的標籤予以刪帖或封號。我就納悶了，你推特究竟是什麼角色？你有自己獨立的司法調查鑑定部門嗎？你根據什麼判斷言論的真或假？誰賦予了你法官的權力和角色？
 
-然而這一切並不是簡單的商業犯罪，或是腐敗賄賂。上述提到的中國及香港有關人員或實體無疑均是直接或間接受CCP領導，從事間諜活動的代理人。比如，《紐約郵報》的文章指出，葉簡明與中國軍事和情報部門有深的聯繫。他們核心的目的就是通過這些利益來控制拜登家族，讓其在一些有用的場合在美國為CCP的特殊利益背書。
+#### **哪些人被封號**
 
-However, this is neither a simple commercial crime, nor a corruption with bribery. All these China and Hong Kong-related entities and personnel mentioned above are definitely the spying agents lead by the CCP, directly or indirectly. For example, The Post addressed Ye Jianming had ties to the Chinese military and intelligence service. With a core purpose of controlling the Biden family through these interests, it will let the family endorse its special interests in some useful occasions in the U.S.
+推特上不少發黃色視頻的不見被封號；拉皮條做廣告的不見被封號；對郭先生對爆料革命戰友對川普發出恐怖威脅的不見被封號，說真話的，不小心就會被封號。
 
-拜登方面，幾乎沒有對這些指控有任何正面或者有效的回應。只有其律師蒼白無力在聲稱朱利安尼關於拜登的看法是不誠實的。
+閆博士因為發布了第一份病毒報告，剛剛註冊不到2天的賬戶馬上就被封號。請問你們的團隊有科學家嗎？你們憑什麼認定病毒報告有問題？即使有問題，為什麼不能公開展開學術爭鳴，急匆匆刪帖封號只能證明你們做賊心虛欲蓋彌彰！並且，也讓更多的人質疑，推特的後台老闆究竟是誰？閆博士的論文究竟戳痛了誰的軟肋？
 
-In terms of Biden family, few positive or effective response to these allegations. Only Joe’s lawyer is claiming, in pale and weak, that Giuliani’s views on Biden are dishonest.
+紐約郵報因報導亨特拜登硬槃門事件，揭露家族與中共勾兌的醜惡事實，也被推特和臉書封號，川普競選團隊因轉推也同時被封殺。不言自明，拜登事件又戳到了跨國貪腐犯罪集團的軟肋！
 
-*相關報導：[Emails reveal how Hunter Biden tried to cash in big on behalf of family with Chinese firm](https://nypost.com/2020/10/15/emails-reveal-how-hunter-biden-tried-to-cash-in-big-with-chinese-firm/amp/?__twitter_impression=true)*
+那麼今天木蘭推特賬戶被封也是出於同樣的原因。木蘭傳奇的推特號幾乎是一個工作號，她發的推文從不涉及個人話題或情緒，要么轉發郭先生蓋文，要么轉發戰友製作的短視頻，而最近轉發的拜登和戰斗室的視頻比較多，被推特封號也不足為奇了。
 
-*作者：【Prof. Bacteriophage】   校對&編輯：【GM31】*
+在推特臉書雙雙封鎖紐約郵報及其關於硬槃門的報導之後，兩家媒體的CEO均收到參議院司法委員會的公開信，邀請其到會聽證。在聽證會尚未召開，問責還未解除的尷尬時期，推特仍如此狂妄地頂風作案，可見其瘋狂程度。
 
-*戰友之家玫瑰園小隊出品*
+心理學研究表明，當一個人歇斯底里的時候，往往是他內心極度崩潰的時候。出來混總是要還的，我們爆料革命的戰友等得起，也看得到你們滅亡的那一天！
+
+By：白夜
+
+【文章僅代表作者個人觀點】
 
 0

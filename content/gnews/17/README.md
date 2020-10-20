@@ -1,44 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 硅谷科技快線
-`2020-10-20 04:32 GM06` [轉載自GNews](https://gnews.org/zh-hant/435505/)
+## 【香港要聞】林鄭：不再出席立法會每月質詢　強推「健康碼」
+`2020-10-20 06:10 GM42` [轉載自GNews](https://gnews.org/zh-hant/435600/)
 
-資料收集整理：littlegecko(小壁虎)； 播報：黎明前；視頻：Aquarius水瓶座； 配樂：Kevin卡卡
+蒐集：卡西歐 文粵
 
+編撰：恩典
 
+覆核：文白
 
-1、據稱，遊戲公司將成為美國政府清理中國科技公司騰訊的下壹個目標。
-Gaming companies are reportedly the next targets in the US government’s potentially broader Tencent purge.
+本港多份紅媒報章，包括《文匯報》、《大公報》、《商報》和《經濟日報》今日（19 日）同時刊登特首林鄭月娥專訪，林鄭月娥表示不打算再參與上任以來，每個月在立法會舉行的「短問短答」環節，因為沒有什麼有意義回報，而且每次都出現「矛盾」，甚至被民主派議員「侮辱」，情願專注做要積極處理的工作。林鄭又談及自己 40 年公職生涯，表示自己一直「問心無愧」，「所有事都係為香港好」，遇到攻擊會選擇「不聽」，情願專心做好工作。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20060208/photo_2020-10-13_22-58-33.jpg)
+圖片來源：TG-反惡法公海谷
+編者評論：
 
-2、麻省理工學院的工程師們開發了壹種完全平坦的魚眼鏡頭，可以使廣角鏡頭更容易生產。
-MIT engineers develop a totally flat fisheye lens that could make wide-angle cameras easier to produce.
+林鄭政府成員參加了10月14日深圳經濟特區建立40週年慶祝大會後，回到香港的政治任務來了。同時間幾份中共報紙刊登林鄭專訪，小學生也明白接下來對香港的動作方向，繼續變本加厲的將香港推向死亡的路線。
 
-3、Zoox成為在加州獲得無人駕駛測試許可證的第四家公司。
-Zoox becomes fourth company to land driverless testing permit in California.
+本來立法會是代表民意的地方，今天成為臨時立法會沒有民意可言的場所，林鄭當然不再出席立法會每月質詢參與短問短答環了，林鄭任務完成了，已經將有民意授權的機構變成中共委任了。林鄭所說的尊重基本法只不過是講得一套做也一套。
 
-4、Instagram首席執行官抨擊美國禁止TikTok和微信的行為，認為將會使因特網被不同的國家碎片化，損害跨國運營的美國科技公司的利益。
-Instagram CEO slam TikTok and WeChat app bans that would be meaningful step in the direction of a more fragmented nationalized internet, which would be bad for US tech companies which have benefited greatly from the ability to operate across borders.
+去年反送中開始，林鄭的奴才嘴臉展露無遺，真的不知羞恥還能說出「但我都是很堅持做公共服務、服務市民，這亦是我的使命感。」這句話可說是世界歷史上最荒誕無稽之一。
 
-5、NASA將在Blue Origin公司的New Shepard可重復使用火箭的飛行任務中首次測試用於在月球和火星表面精確著陸的系統，其中的核心系統是具有更高精度的激光雷達。
-NASA  is going to be testing a new precision landing system designed for use on the tough terrain of the moon and Mars for the first time during an upcoming mission of Blue Origin’s New Shepard reusable suborbital rocket, the core of which is a higher-precision lidar system.
+這次林鄭主要任務還是離不開怎樣控製香港人和怎樣配合中共好好融入大灣區做順民罷了，香港百年歷史自由法治和回歸後的基本法保障下，一國兩制的特殊條件下給了國際企業投資者的信心，才吸引世界各地的人才，才有今天的香港，如今林鄭親手把香港＂百年累之，一朝毀之＂。
 
-6、蘋果公司表示，機器學習為iOS的“智能照片體驗”提供了強大動力，該功能通過分析用戶照片庫中的每張照片，為用戶提供個性化的使用體驗。並且具有先進的處理能力，包括場景分類、組成分析、人和寵物識別、質量分析以及面部表情識別等。
-Apple says on-device machine learning powers iOS’ “intelligent photos experience” which “analyzes every photo in a user’s photo library using on-device machine learning to deliver a personalized experience for each user” — with the advanced processing slated to include scene classification, composition analysis, people and pets identification, quality analysis and identification of facial expressions.
+以上觀點僅代表筆者本人
 
-7、隨著遠程工作成為COVID-19時代的常態，任何可以提供培訓和教育服務的工具都會引起投資者的極大興趣，包括醫療保健行業。最近位於矽谷Palo Alto的Osso VR公司提供的虛擬現實工具獲得了1400萬美元的融資。
-As remote work becomes the order of the day in the COVID-19 era, any tool that can bring training and education services to folks across industries is gaining a huge amount of investor interest — and that includes healthcare.
-Virtual reality tools like those on offer from Osso VR have been raising investor dollars at a rapid clip, and now the Palo Alto, Calif.-based virtual reality distribution platform joins their ranks with a $14 million round of financing.
+新聞來源：立場新聞
 
-8、Amnesty International 在壹份新報告中說，有證據表明歐盟的公司向中國出售了數字監控技術，使得臉部識別等有嚴重人權風險的技術最終落入了在所謂“再教育”基地中監控維吾爾族人的專制政權手中。
-In a new report, Amnesty International says it’s found evidence of EU companies selling digital surveillance technologies to China — despite the stark human rights risks of technologies like facial recognition ending up in the hands of an authoritarian regime that’s been rounding up ethnic Uyghurs and holding them in “re-education” camps.
-
-9、微軟今天宣布了壹個聽起來有點瘋狂的項目Premonition，這是壹個用於監視和采樣蚊子等疾病攜帶者的機器人和傳感器平臺，很快就可以進行個人測試。
-Microsoft  today announced a crazy-sounding Premonition, a robotics and sensor platform for monitoring and sampling disease carriers like mosquitos and a cloud-based software stack for analyzing samples, will soon be in private preview.
-
-10、“太空制造”公司下周將向國際空間站運送首個太空陶瓷制造設備。
-Made In Space is sending the first ceramic manufacturing facility in space to the ISS next week.
-
-（消息來源：http://techcrunch.com ）
+[https://www.thestandnews.com/politics/%E6%9E%97%E9%84%AD-%E4%B8%8D%E5%86%8D%E5%87%BA%E5%B8%AD%E7%AB%8B%E6%B3%95%E6%9C%83%E6%AF%8F%E6%9C%88%E8%B3%AA%E8%A9%A2-%E8%A2%AB%E4%BE%AE%E8%BE%B1-%E6%B2%92%E6%9C%89%E5%A5%BD%E5%9B%9E%E5%A0%B1-%E7%BA%8C%E6%8E%A8%E5%8B%95-%E5%81%A5%E5%BA%B7%E7%A2%BC/](https://www.thestandnews.com/politics/%E6%9E%97%E9%84%AD-%E4%B8%8D%E5%86%8D%E5%87%BA%E5%B8%AD%E7%AB%8B%E6%B3%95%E6%9C%83%E6%AF%8F%E6%9C%88%E8%B3%AA%E8%A9%A2-%E8%A2%AB%E4%BE%AE%E8%BE%B1-%E6%B2%92%E6%9C%89%E5%A5%BD%E5%9B%9E%E5%A0%B1-%E7%BA%8C%E6%8E%A8%E5%8B%95-%E5%81%A5%E5%BA%B7%E7%A2%BC/)
 
 0
