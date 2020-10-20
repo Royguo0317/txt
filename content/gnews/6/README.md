@@ -1,44 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 硅谷科技快線
-`2020-10-20 04:32 GM06` [轉載自GNews](https://gnews.org/zh-hant/435505/)
+## 每日新聞看點-2020年10月19日
+`2020-10-20 08:06 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/435756/)
 
-資料收集整理：littlegecko(小壁虎)； 播報：黎明前；視頻：Aquarius水瓶座； 配樂：Kevin卡卡
+喜馬拉雅聯盟加拿大農場 大地鯤鵬
 
+校對上傳 XM
 
+一、疫情真相
 
-1、據稱，遊戲公司將成為美國政府清理中國科技公司騰訊的下壹個目標。
-Gaming companies are reportedly the next targets in the US government’s potentially broader Tencent purge.
+閆麗夢博士第二份論文英文版地址[http://zenodo.org/record/4073131](http://zenodo.org/record/4073131)
 
-2、麻省理工學院的工程師們開發了壹種完全平坦的魚眼鏡頭，可以使廣角鏡頭更容易生產。
-MIT engineers develop a totally flat fisheye lens that could make wide-angle cameras easier to produce.
+閆麗夢博士第二份論文中文版地址[https://gnews.org/zh-hans/411364/](https://gnews.org/zh-hans/411364/)
 
-3、Zoox成為在加州獲得無人駕駛測試許可證的第四家公司。
-Zoox becomes fourth company to land driverless testing permit in California.
+二、新中國聯邦新聞
 
-4、Instagram首席執行官抨擊美國禁止TikTok和微信的行為，認為將會使因特網被不同的國家碎片化，損害跨國運營的美國科技公司的利益。
-Instagram CEO slam TikTok and WeChat app bans that would be meaningful step in the direction of a more fragmented nationalized internet, which would be bad for US tech companies which have benefited greatly from the ability to operate across borders.
+1. “路德時評”10/19/2020節目部分內容:
 
-5、NASA將在Blue Origin公司的New Shepard可重復使用火箭的飛行任務中首次測試用於在月球和火星表面精確著陸的系統，其中的核心系統是具有更高精度的激光雷達。
-NASA  is going to be testing a new precision landing system designed for use on the tough terrain of the moon and Mars for the first time during an upcoming mission of Blue Origin’s New Shepard reusable suborbital rocket, the core of which is a higher-precision lidar system.
+a.中共的機密文件使很多重要崗位的國安人員和企業家覺醒，他們背負著推翻中共統治、拯救中國人民的理想成為CIA的線人，但包括待產孕婦等十餘女性的60餘名義士遭奧巴馬-拜登出賣後犧牲。
 
-6、蘋果公司表示，機器學習為iOS的“智能照片體驗”提供了強大動力，該功能通過分析用戶照片庫中的每張照片，為用戶提供個性化的使用體驗。並且具有先進的處理能力，包括場景分類、組成分析、人和寵物識別、質量分析以及面部表情識別等。
-Apple says on-device machine learning powers iOS’ “intelligent photos experience” which “analyzes every photo in a user’s photo library using on-device machine learning to deliver a personalized experience for each user” — with the advanced processing slated to include scene classification, composition analysis, people and pets identification, quality analysis and identification of facial expressions.
+b.奧巴馬-拜登集團恐習近平進行民主改革，向其提供了政敵薄熙來的錄音和被殺CIA中共線人等資料，習才得以逐步肅清政敵。英國、德國等各國政要分分效仿，出賣本國情報和習建立同盟，彼此清理政敵、相互扶植。中共已經在國際政界形成犯罪同盟。
 
-7、隨著遠程工作成為COVID-19時代的常態，任何可以提供培訓和教育服務的工具都會引起投資者的極大興趣，包括醫療保健行業。最近位於矽谷Palo Alto的Osso VR公司提供的虛擬現實工具獲得了1400萬美元的融資。
-As remote work becomes the order of the day in the COVID-19 era, any tool that can bring training and education services to folks across industries is gaining a huge amount of investor interest — and that includes healthcare.
-Virtual reality tools like those on offer from Osso VR have been raising investor dollars at a rapid clip, and now the Palo Alto, Calif.-based virtual reality distribution platform joins their ranks with a $14 million round of financing.
+c.薄熙來的私生女薄甜甜，化名為鮑佳琪，臥底成為葉簡明的國際事務經理，負責與拜登聯繫，收集到習近平的犯罪資料，但遞交了硬盤之後信息洩露，現在生死不明。
 
-8、Amnesty International 在壹份新報告中說，有證據表明歐盟的公司向中國出售了數字監控技術，使得臉部識別等有嚴重人權風險的技術最終落入了在所謂“再教育”基地中監控維吾爾族人的專制政權手中。
-In a new report, Amnesty International says it’s found evidence of EU companies selling digital surveillance technologies to China — despite the stark human rights risks of technologies like facial recognition ending up in the hands of an authoritarian regime that’s been rounding up ethnic Uyghurs and holding them in “re-education” camps.
+d. 據《福克斯新聞》10月19日報導，美國國家情報總監約翰∙拉特克利夫（John Ratcliffe）在接受福克斯財經網的“Mornings with Maria”（John Ratcliffe）專訪時表示，亨特•拜登的筆記本電腦不是某個俄羅斯虛假宣傳活動的一部分，亨特∙拜登的電子郵件暗示民主黨總統候選人喬∙拜登對其兒子的外國商業交易知情，並涉嫌參與其中。 ”這與眾議院情報委員會主席、來自加州的民主黨人亞當∙希夫（Adam Schiff）的說法剛好相反。
 
-9、微軟今天宣布了壹個聽起來有點瘋狂的項目Premonition，這是壹個用於監視和采樣蚊子等疾病攜帶者的機器人和傳感器平臺，很快就可以進行個人測試。
-Microsoft  today announced a crazy-sounding Premonition, a robotics and sensor platform for monitoring and sampling disease carriers like mosquitos and a cloud-based software stack for analyzing samples, will soon be in private preview.
+e. 路德透露硬盤內容詳細記述了亨特·拜登性虐中國小女孩的過程，亨特·拜登心理變態、手段殘忍。中共為達控制目的，向美兩黨政要設置兒童色情陷阱。川普總統身邊至少兩名政要已為中共所控，美財政部長姆努欽為其一，其虐童罪證將被曝光。
 
-10、“太空制造”公司下周將向國際空間站運送首個太空陶瓷制造設備。
-Made In Space is sending the first ceramic manufacturing facility in space to the ISS next week.
+f. 姆努欽用中共平安集團提供的資金佈局美股，將會配合中共操控股市，對川普總統大選進行打擊。其還為習近平策劃發行虛擬貨幣、進行華爾街洗錢、並和喬·拜登一起“小罵大幫忙”佯裝反共。
 
-（消息來源：http://techcrunch.com ）
+（“路德時評”早間節目[https://www.youtube.com/watch?v=CHQPB5uywto&list=PLt9WLG-do1ascwrFCV8I6xnUNjCM3xwBY&index=2](https://www.youtube.com/watch?v=CHQPB5uywto&amp;list=PLt9WLG-do1ascwrFCV8I6xnUNjCM3xwBY&amp;index=2) ）
+
+（“路德時評”晚間節目[https://www.youtube.com/watch?v=JMa5yX3CEWg&list=PLt9WLG-do1ascwrFCV8I6xnUNjCM3xwBY&index=1](https://www.youtube.com/watch?v=JMa5yX3CEWg&amp;list=PLt9WLG-do1ascwrFCV8I6xnUNjCM3xwBY&amp;index=1) ）
+
+2.美國國務院當地時間19日宣布將2名中共人員和6家中共企業列入黑名單，聲稱前者與伊朗伊斯蘭共和國航運公司(IRISL)打交道，在“某種情況下”幫助伊朗逃脫美國製裁，六家公司提供與伊朗航運業有關的“重要商品或服務”。美國國務卿蓬佩奧在一份聲明中聲稱：“今天，我們再次向全世界的利益相關者發出警告：如果你和IRISL做生意，你將面臨被美國製裁的風險。”
+
+3.有消息顯示，俄羅斯Россия 1台公開報導爆料革命相關內容。 Россия 1是俄羅斯的一個國有電視頻道，在1991年開始播出。 Россия 1隸屬於全俄國家電視廣播公司，目前是俄羅斯收視率第二高的電視頻道，僅次於第一頻道，並與第一頻道保持了相同的政治立場。外界評論， 在“拜登硬槃門”曝光的當下，該節目引用爆料革命路德社關於該事件的節目內容，可能代表普京政治方向的轉變。
+
+4.台灣駐斐濟代表處10月8日舉行國慶酒會，中共大使館人員強硬闖入並打傷台灣代表處人員。對此，台灣外交部10月19日表示強烈譴責中共挑釁做法。
+
+5.法國歐尚零售集團本週一在一份聲明中表示，向阿里巴巴公司出售其在華股權退出中共國市場。繼家樂福或樂購之後，歐尚也最終作出同樣的選擇。
+
+三、世界新聞
+
+1.川普彭斯競選委員會19日發信給總統辯論委員會，對於委員會忽然取消”外交“這一數月前就與拜登競選委員會共同商議的辯論主題，表示擔憂。同時對4個主持人的反川普總統傾向，表示不滿。
+
+2.白宮辦公廳主任馬克·梅多斯（Mark Meadows）週一（10月19日）建議，政府將對最近限制和封鎖有關民主黨總統候選人喬·拜登及其兒子亨特·拜登的新聞報導的社交媒體公司提起訴訟。參議員查克·格拉斯利（Chuck Grassley）在當天發表的一次演說中也指責社交媒體公司Facebook和Twitter從事“選舉干預和反保守主義偏見”。
+
+3.10月19日，川普總統在亞利桑那州競選集會演講中，針對假新聞媒體CNN，他說到：“人們不再為你們的說辭了買賬了，愚蠢的畜生們！”。他說如果你聽著我說話不像華盛頓政客，那是因為我不是政客！
+
+4.印度國防部星期一(10月19日)發表聲明證實：澳大利亞將加入有美國、日本和印度參加的年度2020年馬拉巴爾海上軍事演習。美日印澳本月早些時候剛剛在東京舉行了外長級的“四方會談”。
+
+5.據報導，美聯儲主席杰羅姆·鮑威爾（Jerome Powell）10月19參加了國際貨幣基金組織（IMF）的跨境支付小組討論。鮑威爾表示，美聯儲已經評估了數字貨幣的益處，但尚未決定發行數字貨幣。
+
+6.《美國國家科學院院刊》10月12日發表了這項最新研究，顯示中共國的豬隻早在2016年就被發現感染了Sads-CoV，並引發了豬群感染，症狀是腹瀉、嘔吐。 Sads-CoV與2019冠狀病毒疾病的病毒株“SARS-CoV-2”屬於同一家族。實驗室研究發現，Sads-CoV一旦傳染給人，人可能出現呼吸系統病症，類似中共病毒所引發的症狀。此前閆麗夢博士曾警告中共一直在研製多種生化武器，中共也一直在掩蓋豬瘟疫情。
 
 0

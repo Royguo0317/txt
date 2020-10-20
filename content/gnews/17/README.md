@@ -1,35 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快訊】港人反送中首例德國提供政庇獲批 當事人曾遭難民營職員性侵
-`2020-10-20 01:43 GM42` [轉載自GNews](https://gnews.org/zh-hant/435315/)
+## 硅谷科技快線
+`2020-10-20 04:32 GM06` [轉載自GNews](https://gnews.org/zh-hant/435505/)
 
-編撰：文悅
+資料收集整理：littlegecko(小壁虎)； 播報：黎明前；視頻：Aquarius水瓶座； 配樂：Kevin卡卡
 
-覆核：文白
 
-據【立場新聞】報導十月十九日訊，由流亡海外港人成立的組織「避風驛」（Haven Assistance）在臉書上表示，一名早前在香港被警方以暴動罪拘捕的中大女學生流亡到德國，於本月十四日正式獲德國政府政治庇護，取得三年難民身份，為反送中運動以來首宗德國提供政治庇護的個案。聲明又指該女事主曾被難民營職員性侵。涉事職員已被起訴。
 
-避風驛的聲明引述該名中大女生指，自己曾因情緒問題而需要入院。她感謝德國政府批出庇護，又表示整個申請過程中，德國政府有提供大部分生活基本需要，如衣食住行及基本醫療服務。她指若德國政府能簡化來自香港的難民申請程序，容許申請人在等待過程中自由選擇居住地點將會是對香港抗爭者的支持。
+1、據稱，遊戲公司將成為美國政府清理中國科技公司騰訊的下壹個目標。
+Gaming companies are reportedly the next targets in the US government’s potentially broader Tencent purge.
 
-避風驛亦感激德國政府，指德國是首個歐洲國家向涉及反修例計劃的香港公民批出庇護。同時促請德國及歐盟致力完善難民機制，考慮制定全面的救生艇政策。 「香港監察」高級政策顧問Sam Goodman 則指，德國政府向該女生提供庇護，表明其致力予保護人權，以及認為在港區國安法生效後，留在香港的年輕人將面臨政治迫害，任意逮捕和監禁。 Sam Goodman 認為女生在難民營的經歷，反映有需要改革難民政策。他指出7 月時德國及其他歐盟國家同意作為國際救生艇政策的一部分，讓香港青年在歐盟國家更容易留下讀書及工作，事隔將近 3 個月後，德國政府是時候履行承諾。他建議德國政府改革庇護政策，為面臨政治迫害的香港人提供特別方案申請庇護、延長工作假期簽證等，認為德國應與志同道合的國際夥伴聯手，確保每一個香港人在面對進一步打壓時，都有可行政策保護他們。
+2、麻省理工學院的工程師們開發了壹種完全平坦的魚眼鏡頭，可以使廣角鏡頭更容易生產。
+MIT engineers develop a totally flat fisheye lens that could make wide-angle cameras easier to produce.
 
-避風驛又引述該女生指，在等待政庇居住在難民營近 11 個月的過程中，曾面對不少困難，包括被難民營職員性侵。有份發起避風驛的黃台仰接受香港媒體查詢事件時，拒絕代當事人講述性侵事件的詳情，但他透露事件本年初在德國政府的難民營發生，女生當時有報警，該名涉事職員事後有被起訴，案件正排期上庭。
+3、Zoox成為在加州獲得無人駕駛測試許可證的第四家公司。
+Zoox becomes fourth company to land driverless testing permit in California.
 
-黃台仰表示不會因此事批評德國政府，相信只是個案。但他認為德國政府在處理香港難民的程序上有改善空間，因為香港人大多能說英語及融入德國社會，應付基本生活需要不成問題，因此申請難民的香港人無必要一定住在難民營，倡議德國政府可考慮為香港難民提供特別安排。
+4、Instagram首席執行官抨擊美國禁止TikTok和微信的行為，認為將會使因特網被不同的國家碎片化，損害跨國運營的美國科技公司的利益。
+Instagram CEO slam TikTok and WeChat app bans that would be meaningful step in the direction of a more fragmented nationalized internet, which would be bad for US tech companies which have benefited greatly from the ability to operate across borders.
 
-他又指是次為德國政府首次為反送中示威者批准政庇，提到該名女生在去年11 月到德國，1 月時已完成面試，但一直未有結果，相信國安法的立法令德國多一個原因去批出政庇。
+5、NASA將在Blue Origin公司的New Shepard可重復使用火箭的飛行任務中首次測試用於在月球和火星表面精確著陸的系統，其中的核心系統是具有更高精度的激光雷達。
+NASA  is going to be testing a new precision landing system designed for use on the tough terrain of the moon and Mars for the first time during an upcoming mission of Blue Origin’s New Shepard reusable suborbital rocket, the core of which is a higher-precision lidar system.
 
-德國政府並非首次批出政庇予港人。在 2018 年，本土民主前線創辦人黃台仰及前本土民主前線成員李東昇，亦獲得德國政治庇護。 「避風驛」（Haven Assistance）為四名流亡海外港人成立的組織，包括在台灣的林榮基、在美國的梁繼平、身在德國的黃台仰，以及剛獲英國庇護的鄭文傑。組織指會提供美國、台灣、英國、德國等庇護政策訊息予有需要人士。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20013101/20201019-25_3j38q_1200x0.png)圖片來源：立場新聞
-編者觀點：
+6、蘋果公司表示，機器學習為iOS的“智能照片體驗”提供了強大動力，該功能通過分析用戶照片庫中的每張照片，為用戶提供個性化的使用體驗。並且具有先進的處理能力，包括場景分類、組成分析、人和寵物識別、質量分析以及面部表情識別等。
+Apple says on-device machine learning powers iOS’ “intelligent photos experience” which “analyzes every photo in a user’s photo library using on-device machine learning to deliver a personalized experience for each user” — with the advanced processing slated to include scene classification, composition analysis, people and pets identification, quality analysis and identification of facial expressions.
 
-閱讀此文不勝唏噓，曾經人人嚮往的自由之港，中西文化水乳交融的「東方之珠」香港，如今淪落到成為移民潮，難民潮的源頭！這繁華錦繡之都的上空，有巨大的陰霾籠罩，映照著每個香港人的心情。現在全世界的民主正義人士，都樂見美國及其盟友達成共識制裁香港政府和為受迫害的港人提供各項援助支持，強烈呼籲國際社會完善香港難民的安排計劃，使他們能在所在國覓得一方棲身之地，過上自由自在不受打壓，沒有欺凌的正常生活。
+7、隨著遠程工作成為COVID-19時代的常態，任何可以提供培訓和教育服務的工具都會引起投資者的極大興趣，包括醫療保健行業。最近位於矽谷Palo Alto的Osso VR公司提供的虛擬現實工具獲得了1400萬美元的融資。
+As remote work becomes the order of the day in the COVID-19 era, any tool that can bring training and education services to folks across industries is gaining a huge amount of investor interest — and that includes healthcare.
+Virtual reality tools like those on offer from Osso VR have been raising investor dollars at a rapid clip, and now the Palo Alto, Calif.-based virtual reality distribution platform joins their ranks with a $14 million round of financing.
 
-以上觀點僅代表筆者本人
+8、Amnesty International 在壹份新報告中說，有證據表明歐盟的公司向中國出售了數字監控技術，使得臉部識別等有嚴重人權風險的技術最終落入了在所謂“再教育”基地中監控維吾爾族人的專制政權手中。
+In a new report, Amnesty International says it’s found evidence of EU companies selling digital surveillance technologies to China — despite the stark human rights risks of technologies like facial recognition ending up in the hands of an authoritarian regime that’s been rounding up ethnic Uyghurs and holding them in “re-education” camps.
 
-資料來源：立場新聞
+9、微軟今天宣布了壹個聽起來有點瘋狂的項目Premonition，這是壹個用於監視和采樣蚊子等疾病攜帶者的機器人和傳感器平臺，很快就可以進行個人測試。
+Microsoft  today announced a crazy-sounding Premonition, a robotics and sensor platform for monitoring and sampling disease carriers like mosquitos and a cloud-based software stack for analyzing samples, will soon be in private preview.
 
-[https://www.thestandnews.com/politics/%E9%81%BF%E9%A2%A8%E9%A9%9B-%E4%B8%80%E5%90%8D%E6%B6%89%E6%9A%B4%E5%8B%95%E7%BD%AA%E8%A2%AB%E6%8D%95%E4%B8%AD%E5%A4%A7%E5%A5%B3%E7%94%9F%E7%8D%B2%E5%BE%B7%E5%9C%8B%E6%89%B9%E5%87%BA%E6%94%BF%E6%B2%BB%E5%BA%87%E8%AD%B7/](https://www.thestandnews.com/politics/%E9%81%BF%E9%A2%A8%E9%A9%9B-%E4%B8%80%E5%90%8D%E6%B6%89%E6%9A%B4%E5%8B%95%E7%BD%AA%E8%A2%AB%E6%8D%95%E4%B8%AD%E5%A4%A7%E5%A5%B3%E7%94%9F%E7%8D%B2%E5%BE%B7%E5%9C%8B%E6%89%B9%E5%87%BA%E6%94%BF%E6%B2%BB%E5%BA%87%E8%AD%B7/)
+10、“太空制造”公司下周將向國際空間站運送首個太空陶瓷制造設備。
+Made In Space is sending the first ceramic manufacturing facility in space to the ISS next week.
+
+（消息來源：http://techcrunch.com ）
 
 0

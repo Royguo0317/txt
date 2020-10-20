@@ -1,44 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 硅谷科技快線
-`2020-10-20 04:32 GM06` [轉載自GNews](https://gnews.org/zh-hant/435505/)
+## 美國川普總統要求FBI調查拜登案
+`2020-10-20 07:57 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/435742/)
 
-資料收集整理：littlegecko(小壁虎)； 播報：黎明前；視頻：Aquarius水瓶座； 配樂：Kevin卡卡
+喜馬拉雅聯盟加拿大農場 熊媽媽
 
+校對 不動之光 上傳 XM
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20075215/rbc.png)圖片來源：rbc
+10月19日，美國川普總統在亞利桑那州圖森向選民發表講話時稱，美國聯邦調查局（FBI）應該調查美國總統候選人喬·拜登的案件。
 
+川普總統指的是其民主黨競爭對手喬·拜登在奧巴馬政府擔任美國副總統期間的腐敗系列事件。他說，他不知道聯邦調查局目前是否在進行調查，還建議記者就喬·拜登事件是否已進行調查聯繫FBI局長克里斯托弗·雷（Christopher Wray），讓其解釋這件事。
 
-1、據稱，遊戲公司將成為美國政府清理中國科技公司騰訊的下壹個目標。
-Gaming companies are reportedly the next targets in the US government’s potentially broader Tencent purge.
+此外，總統指出，美國媒體沒有就喬·拜登可能犯下的腐敗罪行進行充分報導。
 
-2、麻省理工學院的工程師們開發了壹種完全平坦的魚眼鏡頭，可以使廣角鏡頭更容易生產。
-MIT engineers develop a totally flat fisheye lens that could make wide-angle cameras easier to produce.
+10月17日，在喬治亞州舉行的一次競選集會上，川普總統呼籲將喬·拜登、他的兒子亨特·拜登和前美國國務卿希拉里·克林頓關進監獄。
 
-3、Zoox成為在加州獲得無人駕駛測試許可證的第四家公司。
-Zoox becomes fourth company to land driverless testing permit in California.
+川普總統指出， “我們必須把拜登家族關進監獄。把喬∙拜登關進監獄，把希拉里關進監獄。拜登家族組織了一個’犯罪企業’，就像吸塵器一樣，吸入了數百萬美元”。
 
-4、Instagram首席執行官抨擊美國禁止TikTok和微信的行為，認為將會使因特網被不同的國家碎片化，損害跨國運營的美國科技公司的利益。
-Instagram CEO slam TikTok and WeChat app bans that would be meaningful step in the direction of a more fragmented nationalized internet, which would be bad for US tech companies which have benefited greatly from the ability to operate across borders.
+川普總統指責喬·拜登利用他的職位來幫助其兒子亨特·拜登從事商業活動，亨特∙拜登曾於2014年至2019年擔任烏克蘭天然氣公司布利斯瑪股份有限公司（Burisma Holdings）董事會成員，當時的副總統喬·拜登正是美烏事務的主管。此外，這位前副總統還被指控向烏克蘭當局施加壓力，要求解僱當時正在調查布利斯瑪的前烏克蘭總檢察長維克托·肖金（Viktor Shokin）。喬∙拜登本人否認了所有指控。
 
-5、NASA將在Blue Origin公司的New Shepard可重復使用火箭的飛行任務中首次測試用於在月球和火星表面精確著陸的系統，其中的核心系統是具有更高精度的激光雷達。
-NASA  is going to be testing a new precision landing system designed for use on the tough terrain of the moon and Mars for the first time during an upcoming mission of Blue Origin’s New Shepard reusable suborbital rocket, the core of which is a higher-precision lidar system.
+川普總統指責喬·拜登說謊，“這些電子郵件表明，喬·拜登一再聲稱從未與亨特·拜登談論過生意是完全錯誤的。現在有無可辯駁的證據，他試圖掩蓋醜聞。美國從來沒有一個政府比奧巴馬–拜登政府更腐敗。喬·拜登是一個腐敗的政治家，不能競選總統。”
 
-6、蘋果公司表示，機器學習為iOS的“智能照片體驗”提供了強大動力，該功能通過分析用戶照片庫中的每張照片，為用戶提供個性化的使用體驗。並且具有先進的處理能力，包括場景分類、組成分析、人和寵物識別、質量分析以及面部表情識別等。
-Apple says on-device machine learning powers iOS’ “intelligent photos experience” which “analyzes every photo in a user’s photo library using on-device machine learning to deliver a personalized experience for each user” — with the advanced processing slated to include scene classification, composition analysis, people and pets identification, quality analysis and identification of facial expressions.
+拜登“硬槃門”事件，開始於10月14日，美國《紐約郵報》連續爆料民主黨總統候選人喬·拜登及其家族的驚天醜聞，《紐約郵報》披露了喬·拜登之子亨特·拜登與布利斯瑪高層瓦迪姆·波扎爾斯基（Vadim Pozharsky）的往來電子郵件。波扎爾斯基在郵件中感謝亨特·拜登提供與其父親見面的機會，並代表公司詢問喬·拜登如何利用他的影響力為公司提供幫助。
 
-7、隨著遠程工作成為COVID-19時代的常態，任何可以提供培訓和教育服務的工具都會引起投資者的極大興趣，包括醫療保健行業。最近位於矽谷Palo Alto的Osso VR公司提供的虛擬現實工具獲得了1400萬美元的融資。
-As remote work becomes the order of the day in the COVID-19 era, any tool that can bring training and education services to folks across industries is gaining a huge amount of investor interest — and that includes healthcare.
-Virtual reality tools like those on offer from Osso VR have been raising investor dollars at a rapid clip, and now the Palo Alto, Calif.-based virtual reality distribution platform joins their ranks with a $14 million round of financing.
-
-8、Amnesty International 在壹份新報告中說，有證據表明歐盟的公司向中國出售了數字監控技術，使得臉部識別等有嚴重人權風險的技術最終落入了在所謂“再教育”基地中監控維吾爾族人的專制政權手中。
-In a new report, Amnesty International says it’s found evidence of EU companies selling digital surveillance technologies to China — despite the stark human rights risks of technologies like facial recognition ending up in the hands of an authoritarian regime that’s been rounding up ethnic Uyghurs and holding them in “re-education” camps.
-
-9、微軟今天宣布了壹個聽起來有點瘋狂的項目Premonition，這是壹個用於監視和采樣蚊子等疾病攜帶者的機器人和傳感器平臺，很快就可以進行個人測試。
-Microsoft  today announced a crazy-sounding Premonition, a robotics and sensor platform for monitoring and sampling disease carriers like mosquitos and a cloud-based software stack for analyzing samples, will soon be in private preview.
-
-10、“太空制造”公司下周將向國際空間站運送首個太空陶瓷制造設備。
-Made In Space is sending the first ceramic manufacturing facility in space to the ISS next week.
-
-（消息來源：http://techcrunch.com ）
+參考鏈接：https://www.teletrader.com/trump-fbi-should-be-investigating-biden/news/details/53520421?ts=1603189154755
 
 0
