@@ -1,34 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共流氓外交，動粗毆打台灣官，斐濟警方消極作為恐淪為共犯
-`2020-10-19 05:00 TaiwanFarm` [轉載自GNews](https://gnews.org/zh-hant/433424/)
+## 硅谷科技快線
+`2020-10-20 04:32 GM06` [轉載自GNews](https://gnews.org/zh-hant/435505/)
 
-作者 台灣農場 zhong
+資料收集整理：littlegecko(小壁虎)； 播報：黎明前；視頻：Aquarius水瓶座； 配樂：Kevin卡卡
 
-相關新聞連結：[https://www.cna.com.tw/news/firstnews/202010190092.aspx](https://www.cna.com.tw/news/firstnews/202010190092.aspx)
-「台灣駐斐濟代表處」針對本事件之新聞連結：[https://www.roc-taiwan.org/fj/post/1909.html](https://www.roc-taiwan.org/fj/post/1909.html)
 
-封面取自：台灣駐斐濟代表處新聞
 
-**簡要事實**
+1、據稱，遊戲公司將成為美國政府清理中國科技公司騰訊的下壹個目標。
+Gaming companies are reportedly the next targets in the US government’s potentially broader Tencent purge.
 
-日前，經外媒報導。兩中共外交官於台灣駐斐濟代表處之中華民國國慶酒會，強行闖入，並且動手毆打台灣官員，致傷者送醫。並向斐濟警方主張享有外交豁免權，因此動粗的中共官員並未受到斐濟法律的制裁。
+2、麻省理工學院的工程師們開發了壹種完全平坦的魚眼鏡頭，可以使廣角鏡頭更容易生產。
+MIT engineers develop a totally flat fisheye lens that could make wide-angle cameras easier to produce.
 
-**評論**
+3、Zoox成為在加州獲得無人駕駛測試許可證的第四家公司。
+Zoox becomes fourth company to land driverless testing permit in California.
 
-中共目前在國際上處於劣勢，相反的台灣國際空間則日漸擴大。而10/10為中華民國國慶，台灣駐斐濟代表處舉辦的國慶晚會自然變成中共眼中釘。
+4、Instagram首席執行官抨擊美國禁止TikTok和微信的行為，認為將會使因特網被不同的國家碎片化，損害跨國運營的美國科技公司的利益。
+Instagram CEO slam TikTok and WeChat app bans that would be meaningful step in the direction of a more fragmented nationalized internet, which would be bad for US tech companies which have benefited greatly from the ability to operate across borders.
 
-在過去歷史當中，兩岸爭奪合法代表中國政府的資格，而形成兩岸對峙局面。共產黨更是對台灣有任何在國際上發聲、露臉的機會都會極力去阻止、干擾，甚至不惜以蠻橫態度對待舉辦活動的單位，只希望達到維護中共政治利益的目的。但過去，中共外交官員也幾乎僅是以蠻橫、不講理的態度來脅迫舉辦活動方或是台灣官員，希望透過語言上、精神上的施壓，來扼殺台灣國際生存空間。
+5、NASA將在Blue Origin公司的New Shepard可重復使用火箭的飛行任務中首次測試用於在月球和火星表面精確著陸的系統，其中的核心系統是具有更高精度的激光雷達。
+NASA  is going to be testing a new precision landing system designed for use on the tough terrain of the moon and Mars for the first time during an upcoming mission of Blue Origin’s New Shepard reusable suborbital rocket, the core of which is a higher-precision lidar system.
 
-惟中共近日因為自己的惡行受到國際社會排擠，自掘墳墓。因而，國際社會轉向力挺長久反共的台灣，在國際上已經成為滅共的一大正當理由，同時也可以更加鞏固國際社會協力滅共的決心。
+6、蘋果公司表示，機器學習為iOS的“智能照片體驗”提供了強大動力，該功能通過分析用戶照片庫中的每張照片，為用戶提供個性化的使用體驗。並且具有先進的處理能力，包括場景分類、組成分析、人和寵物識別、質量分析以及面部表情識別等。
+Apple says on-device machine learning powers iOS’ “intelligent photos experience” which “analyzes every photo in a user’s photo library using on-device machine learning to deliver a personalized experience for each user” — with the advanced processing slated to include scene classification, composition analysis, people and pets identification, quality analysis and identification of facial expressions.
 
-斐濟，並非中華民國邦交國，因此台灣僅有在斐濟設有台灣駐斐濟代表處。而在10/10日中華民國國慶，台灣駐斐濟代表處舉辦了國慶酒會為中華民國國慶做慶祝。但中共蠻橫外交官卻無理闖入搗亂，且逕自與參與酒會之人拍照，經台灣代表處工作人員勸導仍不願離去。隨後，與台灣代表處人員發生爭執的兩中共外交人員便出手毆打台灣外交人員，致傷者送醫治療。
+7、隨著遠程工作成為COVID-19時代的常態，任何可以提供培訓和教育服務的工具都會引起投資者的極大興趣，包括醫療保健行業。最近位於矽谷Palo Alto的Osso VR公司提供的虛擬現實工具獲得了1400萬美元的融資。
+As remote work becomes the order of the day in the COVID-19 era, any tool that can bring training and education services to folks across industries is gaining a huge amount of investor interest — and that includes healthcare.
+Virtual reality tools like those on offer from Osso VR have been raising investor dollars at a rapid clip, and now the Palo Alto, Calif.-based virtual reality distribution platform joins their ranks with a $14 million round of financing.
 
-據台灣代表處表示，在斐濟舉辦的中華民國國慶晚會有外交使團、國際組織、非政府組織和斐濟華人社區成員參與，中共外交人員闖入後的蠻橫行為，已經讓中共在國際名聲更為糟糕。
+8、Amnesty International 在壹份新報告中說，有證據表明歐盟的公司向中國出售了數字監控技術，使得臉部識別等有嚴重人權風險的技術最終落入了在所謂“再教育”基地中監控維吾爾族人的專制政權手中。
+In a new report, Amnesty International says it’s found evidence of EU companies selling digital surveillance technologies to China — despite the stark human rights risks of technologies like facial recognition ending up in the hands of an authoritarian regime that’s been rounding up ethnic Uyghurs and holding them in “re-education” camps.
 
-經報警後，希望斐濟警方以法律方法處理中共外交人員的暴力事件。然而，警方到場後，中共外交人員卻主張享有外交豁免權，因此斐濟警方並未受理中共外交人員的暴力事件。
+9、微軟今天宣布了壹個聽起來有點瘋狂的項目Premonition，這是壹個用於監視和采樣蚊子等疾病攜帶者的機器人和傳感器平臺，很快就可以進行個人測試。
+Microsoft  today announced a crazy-sounding Premonition, a robotics and sensor platform for monitoring and sampling disease carriers like mosquitos and a cloud-based software stack for analyzing samples, will soon be in private preview.
 
-中共官員蠻橫無理，已經成為國際笑話。但台灣外交人員無端受到攻擊，又斐濟方並未以公正、合理的方式處理，更加凸顯中共滲透世界的嚴重性。中華民國外交部為求實現公平正義，已經著手研議提告中方外交人員的蠻橫違法行為。
+10、“太空制造”公司下周將向國際空間站運送首個太空陶瓷制造設備。
+Made In Space is sending the first ceramic manufacturing facility in space to the ISS next week.
+
+（消息來源：http://techcrunch.com ）
 
 0

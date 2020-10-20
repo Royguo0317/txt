@@ -1,17 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 國民黨馬英九執政時期，中共間諜最為活躍
-`2020-10-19 20:00 TaiwanFarm` [轉載自GNews](https://gnews.org/zh-hant/434308/)
+## 硅谷科技快線
+`2020-10-20 04:32 GM06` [轉載自GNews](https://gnews.org/zh-hant/435505/)
 
-作者 台灣農場 Amitofu
+資料收集整理：littlegecko(小壁虎)； 播報：黎明前；視頻：Aquarius水瓶座； 配樂：Kevin卡卡
 
-（中央社記者13日）中共官媒連續宣傳所謂「台灣間諜案」，以電視認罪方式指控2018年下半年在中國失蹤的藍營人士，從事兩岸交流的蔡金樹及師大退休教授施正屏涉嫌「間諜」罪，蔡金樹更已於7月被法院判刑4年。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19115249/%E5%9C%8B%E6%B0%91%E9%BB%A8%E9%A6%AC%E8%8B%B1%E4%B9%9D%E5%9F%B7%E6%94%BF%E6%99%82%E6%9C%9F%EF%BC%8C%E4%B8%AD%E5%85%B1%E9%96%93%E8%AB%9C%E6%9C%80%E7%82%BA%E6%B4%BB%E8%BA%8D.png)圖片來源CCTV
-中共未審先判直接定罪讓台灣人錯愕，比起台諜，在台灣的共諜更是明目張膽，大多是利用剛掛高階的將官或退休將官等軍中人脈吸收。從 2006 年起，有超過 40 名台灣公民因為在中國涉及間諜活動被起訴，包括退役和現役軍官，還有知名商人。事實上這只是中共間諜活動的冰山一角。真正重傷台灣的，是台灣政府高層被間諜滲透。其中在國民黨馬英九政府時期，中共間諜最為活躍。
 
-曾任憲兵司令部中將副司令的前國民黨副主委陳筑藩，也曾任國防部特種情報室，在 2014 年被抓到替中共蒐集情資，中國可以透過像他這種監控人士，找到潛伏在中國的間諜，甚至依此建立未來吸收台灣間諜。中共對台灣情蒐、滲透始終不因情勢改善而趨緩，涉共諜案人員都是受其女色誘惑、性招待、安排特殊職務或接受錢財饋贈，這就是文貴先生2017年提到的藍金黃手段，各方面的情蒐，特別是國防機密與政府政策，長期研究中國情報工作的美國學者馬提斯（Peter Mattis），在「全球台灣研究中心」撰文中，建議蔡英文政府要在國安問題進行風險管理和調查，才能和美國維持信賴真誠的合作關係。
 
-中共一直在國際場合打壓我們、製造臺灣乃中國之一部的假象，又部署千餘枚導彈對準台灣，重傷台灣在國際上和其他國家間的信賴關係，至從香港運動以來，越來越多台灣人看清中共邪惡的本質，不願意被中共統一的框架下主導，加上台灣青年對國家認同、國家主權意識的興起，讓人民更堅信只有守護台灣才有美好的未來。
+1、據稱，遊戲公司將成為美國政府清理中國科技公司騰訊的下壹個目標。
+Gaming companies are reportedly the next targets in the US government’s potentially broader Tencent purge.
+
+2、麻省理工學院的工程師們開發了壹種完全平坦的魚眼鏡頭，可以使廣角鏡頭更容易生產。
+MIT engineers develop a totally flat fisheye lens that could make wide-angle cameras easier to produce.
+
+3、Zoox成為在加州獲得無人駕駛測試許可證的第四家公司。
+Zoox becomes fourth company to land driverless testing permit in California.
+
+4、Instagram首席執行官抨擊美國禁止TikTok和微信的行為，認為將會使因特網被不同的國家碎片化，損害跨國運營的美國科技公司的利益。
+Instagram CEO slam TikTok and WeChat app bans that would be meaningful step in the direction of a more fragmented nationalized internet, which would be bad for US tech companies which have benefited greatly from the ability to operate across borders.
+
+5、NASA將在Blue Origin公司的New Shepard可重復使用火箭的飛行任務中首次測試用於在月球和火星表面精確著陸的系統，其中的核心系統是具有更高精度的激光雷達。
+NASA  is going to be testing a new precision landing system designed for use on the tough terrain of the moon and Mars for the first time during an upcoming mission of Blue Origin’s New Shepard reusable suborbital rocket, the core of which is a higher-precision lidar system.
+
+6、蘋果公司表示，機器學習為iOS的“智能照片體驗”提供了強大動力，該功能通過分析用戶照片庫中的每張照片，為用戶提供個性化的使用體驗。並且具有先進的處理能力，包括場景分類、組成分析、人和寵物識別、質量分析以及面部表情識別等。
+Apple says on-device machine learning powers iOS’ “intelligent photos experience” which “analyzes every photo in a user’s photo library using on-device machine learning to deliver a personalized experience for each user” — with the advanced processing slated to include scene classification, composition analysis, people and pets identification, quality analysis and identification of facial expressions.
+
+7、隨著遠程工作成為COVID-19時代的常態，任何可以提供培訓和教育服務的工具都會引起投資者的極大興趣，包括醫療保健行業。最近位於矽谷Palo Alto的Osso VR公司提供的虛擬現實工具獲得了1400萬美元的融資。
+As remote work becomes the order of the day in the COVID-19 era, any tool that can bring training and education services to folks across industries is gaining a huge amount of investor interest — and that includes healthcare.
+Virtual reality tools like those on offer from Osso VR have been raising investor dollars at a rapid clip, and now the Palo Alto, Calif.-based virtual reality distribution platform joins their ranks with a $14 million round of financing.
+
+8、Amnesty International 在壹份新報告中說，有證據表明歐盟的公司向中國出售了數字監控技術，使得臉部識別等有嚴重人權風險的技術最終落入了在所謂“再教育”基地中監控維吾爾族人的專制政權手中。
+In a new report, Amnesty International says it’s found evidence of EU companies selling digital surveillance technologies to China — despite the stark human rights risks of technologies like facial recognition ending up in the hands of an authoritarian regime that’s been rounding up ethnic Uyghurs and holding them in “re-education” camps.
+
+9、微軟今天宣布了壹個聽起來有點瘋狂的項目Premonition，這是壹個用於監視和采樣蚊子等疾病攜帶者的機器人和傳感器平臺，很快就可以進行個人測試。
+Microsoft  today announced a crazy-sounding Premonition, a robotics and sensor platform for monitoring and sampling disease carriers like mosquitos and a cloud-based software stack for analyzing samples, will soon be in private preview.
+
+10、“太空制造”公司下周將向國際空間站運送首個太空陶瓷制造設備。
+Made In Space is sending the first ceramic manufacturing facility in space to the ISS next week.
+
+（消息來源：http://techcrunch.com ）
 
 0

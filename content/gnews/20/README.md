@@ -1,19 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【熱點播報】揭開罪惡勢力層層面紗！世界早已邪魔當道！
-`2020-10-19 15:35 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/434664/)
+## 亨特•拜登電郵曝光，拜登家族與中共勾結故事漸漸浮出水面
+`2020-10-20 01:30 GM31` [轉載自GNews](https://gnews.org/zh-hant/435271/)
 
-**作者：香草山寫作組**Daxia
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19150416/%E5%9B%BE%E7%89%8715-3.png)
-路德社博士軍團美東時間上午10**月**19**日**8:45的報導，又深入披露了三塊硬盤的來朧去脈，邪惡勢力之間的黑暗較量與鬥爭，遠比電影諜戰大片精彩億萬倍，現今世界真實版正在激烈上演！
+《[紐約郵報](https://nypost.com/2020/10/15/emails-reveal-how-hunter-biden-tried-to-cash-in-big-with-chinese-firm/amp/?__twitter_impression=true)》近期有不少與亨特·拜登電郵內容有關的文章，主要來自朱利安尼市長的分享。《紐約郵報》還對這些電郵內容進行了分析，拜登家族背後的故事漸漸有了雛形。
 
-據路德透露，2010年奧巴馬送了一份禮物給胡錦濤，但胡錦濤未無敢打開，後奧巴馬又轉交給習，習成功打開禮物後，掌握了政敵機要，以反貪手段一舉清理了薄熙來、徐才厚、周永康等大老虎在西方的私生子女與其建築藝術財富基因鏈。另外，拜登層出賣CIA在華的間諜，使其60名人員相繼被謀密殺害，這一駭人事件引起了西方政客的巨大轟動與震懾，各邪惡政黨因巨大利益紛紛站靠在習一邊，使習擴大了其在世界的影響力，而習派為支持美國拜登當選繼續與他們勾兌。習政敵江曾派讓薄熙來準備的後手——其海外私生子薄甜甜——成功將證據交於政要手上並進行了爆光，但此人至今杳無音訊！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/19152104/%E5%9B%BE%E7%89%8713-2.png)
-世界早已被邪惡操控，只是看誰邪過誰。這種殘無人道、滅絕人性、提供同胞兒童被邪魔虐待玩弄，及製造生化武器的行為，“敗燈”的賣國罪證，以及所有這一切背後的巨大黑暗勢力，令人髮指！令人作嘔痛恨！整個世界的道德良知現籠罩在一片邪惡政治黑暗勢力的操控下！一樁樁醜陋的罪惡終將會陸續完全暴露於陽光之下！顛倒是與非、黑與白、善與惡的醜行終將得到世紀公正大審判！
+Recently, several articles by the New York Post have exposed the Hunter Biden’s email, largely from the sharing of Mayor Giuliani. The Post also analyzed them, outlying the hidden story of the Biden family.
 
-當務之急，滅黑惡勢力就是滅ccp **！** Take down the Ccp 刻不容緩！雖有險阻，但我們相信上天，相信正義永远战勝邪惡！
+其中一個案例是，亨特與位於上海的華信中國能源有限公司領導葉簡明、臧建軍，以及國際諮詢公司J2cR的James Gilliar之間的勾結。電郵內容中有在詳細的討論他們之間的股權分配，工資等問題。換句話說，亨特既有股票，也有工資，甚至還對辦公室有期望。亨特在部分電郵中無法掩飾出其高興心情，他還在解釋為何其報酬如此豐厚，也流露出自己和家族很滿意
 
-更多資訊，歡迎訂閱[美東香草山農場官方推特賬號](https://twitter.com/Mos_Himalaya)！
+One of a case is the collusion between Hunter and CEFC China Energy Co., Shanghai, Ye Jianming, the leader of the company, Zang Jian Jun, the leader of the company, and the James Gilliar of the international consulting firm J2cR. The email discussed in detail the equity distribution, salary and other business among them. In other words, Hunter owns the shares, earns salary and even has some office expectations. It cannot conceal his own happiness in some of his emails. He also explained why he was so well paid, noting a satisfactory of he and his family.
+
+因此，亨特·拜登在這些業務中代表了拜登家族。《紐約郵報》也揭示了部分拜登家族成員及所控制實體的異常資金。這又涉及到亨特的叔叔詹姆斯·拜登（James Biden）和詹姆斯的妻子薩拉·拜登（Sara Biden），香港金飛集團CFO董龔文，前香港政府官員何志平，亨特·拜登的律師事務所Owasco PC，以及一家名為亨德森·韋斯特的公司。可以推測出這些資金的活動中拜登家族有獲利，甚至涉嫌犯罪。
+
+Thus, in all these business, Hunter Biden is on behave of the Biden family. The Post also revealed the abnormal funds of some members of the Biden family and entities under their control, involving Hunter’s uncle James Biden and James’ wife Sara Biden, Dong Gongwen, CFO of the Kam Fei Group; Chi Ping Patrick Ho, former Hong Kong government official; Hunter’s law firm Owasco PC and a company called Henderson West. The Biden family, could be inferred, had not only profited from the activities of these funds, but also suspected of crime.
+
+然而這一切並不是簡單的商業犯罪，或是腐敗賄賂。上述提到的中國及香港有關人員或實體無疑均是直接或間接受CCP領導，從事間諜活動的代理人。比如，《紐約郵報》的文章指出，葉簡明與中國軍事和情報部門有深的聯繫。他們核心的目的就是通過這些利益來控制拜登家族，讓其在一些有用的場合在美國為CCP的特殊利益背書。
+
+However, this is neither a simple commercial crime, nor a corruption with bribery. All these China and Hong Kong-related entities and personnel mentioned above are definitely the spying agents lead by the CCP, directly or indirectly. For example, The Post addressed Ye Jianming had ties to the Chinese military and intelligence service. With a core purpose of controlling the Biden family through these interests, it will let the family endorse its special interests in some useful occasions in the U.S.
+
+拜登方面，幾乎沒有對這些指控有任何正面或者有效的回應。只有其律師蒼白無力在聲稱朱利安尼關於拜登的看法是不誠實的。
+
+In terms of Biden family, few positive or effective response to these allegations. Only Joe’s lawyer is claiming, in pale and weak, that Giuliani’s views on Biden are dishonest.
+
+*相關報導：[Emails reveal how Hunter Biden tried to cash in big on behalf of family with Chinese firm](https://nypost.com/2020/10/15/emails-reveal-how-hunter-biden-tried-to-cash-in-big-with-chinese-firm/amp/?__twitter_impression=true)*
+
+*作者：【Prof. Bacteriophage】   校對&編輯：【GM31】*
+
+*戰友之家玫瑰園小隊出品*
 
 0
