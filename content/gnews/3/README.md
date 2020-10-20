@@ -1,19 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 10月20日財經快訊-中共瘟疫導致全球滿目瘡痍
-`2020-10-20 11:19 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/436174/)
+## 喬·拜登現任競選過渡聯席主席的升遷得益於取悅中共
+`2020-10-20 13:42 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/436491/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20094054/FNN1020.jpg)圖片來源：Gnews
-1. [納瓦羅在哈德遜10月19日播出的視頻中歷數中共貿易政策8條罪狀，奴役中國人以傷害美國及全世界](https://www.hudson.org/events/1877-china-s-eight-deadly-sins-in-trade-policy-a-conversation-with-peter-navarro102020)。
-2. [天空新聞10月19日油管視頻報導隨著歐洲的中共病毒新增數量突破15萬，歐洲在採取措施重新實施封城政策，商戶關閉，人心惶惶。](https://www.youtube.com/watch?v=H70nd1ysOgI)
-3. [英國金融時報10月17日發表對中共病毒來源真相的第一篇調查報導，有個武漢附近的農村居民高先生12月下旬發推提到武漢可能發生了病毒爆發，就掩蓋疫情從下面逐級往上投訴毫無效果，草菅人命，再提中共與WHO撒謊。但是該報導對華南海鮮市場沒有進一步調查。](https://on.ft.com/2H7AsAE)
-4. [美國參議員喬什·霍利（Josh Hawley）10月19日在紐約郵報發表文章，認為參議院共和黨需要阻止科技公司繼續濫用權利，最緊要的是傳喚推特和臉書CEO到參議院司法委員會發誓沒有與拜登串通審查紐約郵報的報導，第二沒有任何遲疑地改革克林頓時代的230條款，但是華盛頓的假保守派不肯行動，部分人還在科技公司的付款名單上](https://nypost.com/2020/10/19/josh-hawley-senate-gop-must-act-to-stop-big-tech-abuses/amp/?utm_source=twitter_sitebuttons&amp;utm_medium=site%20buttons&amp;utm_campaign=site%20buttons&amp;__twitter_impression=true)。
-5. [路透社10月20日報導距離美國大選日11月3日僅剩下兩週了，基於中共病毒疫情、中共病毒導致的封城措施、中共病毒導致的財政刺激政策以及兩黨辯論等因素，投資者調整風險敞口](https://www.reuters.com/article/us-global-markets-idUSKBN275009?taid=5f8e6446e934110001595bc7&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)。
+喜馬拉雅聯盟加拿大農場Cran
 
+校對上傳小鷗
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20133055/CharlieRose.jpg)圖片來自Charlie Rose
+哈里斯·阿里奇10月19日發表在《布賴特巴特新聞》的報導顯示，2011年11月在亨特·拜登的商業夥伴們的運作下，時任美國管理與預算辦公室（OMB）副主任傑夫·齊恩茨（Jeff Zients）在奧巴馬政府時期的白宮主辦了中共國企業傢俱樂部（CEC）的特別會議。
 
-CPA Jim整理
+被稱為中共國最富有的俱樂部CEC成立於2006年，2011年11月訪問華盛頓時一直努力與奧巴馬政府高級官員接觸，他們致函了政府和其它的一些成員未得到回复。一份由《布賴特巴特》獨家公佈的郵件副本顯示，亨特·拜登的商業夥伴包括戴文·阿徹在促成CEC訪問白宮這事中發揮了重要作用。
 
-By：【秘翻組·金融法律組】
+一份2011年11月5日由阿徹同事發出的郵件暗示有機會獲得“傑出的新客戶”，“遊覽白宮，並與幕僚長辦公室成員和（當時的國務卿）約翰·克里會面，將是很棒的。” 僅9天以後的11月14日，有30名CEC成員的代表團就參觀了白宮並會見了當時的商務部長約翰·布賴森。其成員透露代表團還私下會晤了副總統喬·拜登，他當時領導對北京政策的製定。
+
+訪問日誌顯示，OMB的副主任齊恩茨是CEC代表團的官方接待人，也是亨特·拜登及其同伙的聯繫人。會議結束後他被提升為OMB的代理總監。他的上司傑克·劉昇任為白宮辦公廳主任。進而在2014年3月齊恩茨被任命為國家經濟委員會主席，直到奧巴馬於2017年卸任為止。
+
+自卸任以來齊恩茨與喬·拜登保持著緊密的關係，今年9月，拜登任命他為總統過渡工作組聯席主席，該工作組負責為潛在的拜登政府（Biden White House) 配備人員。
+
+由此可見，美國政府中要職的配備並非完全基於本國利益，而是為了更多取悅於中共政府。美國的精英與中共的精英相互勾結。民主國家的一些政客們自覺不自覺地配合中共的多年佈局，在國際上歸於或傾向於暗黑勢力。正在發酵的拜登家族醜聞令人們重新審視關於製度、社會、經濟、媒體、宗教等各方面問題。
+
+原文鏈接：
+
+[https://www.breitbart.com/2020-election/2020/10/19/joe-bidens-transition-co-chair-hosted-hunter-biden-linked-chinese-elites-white-house/](https://www.breitbart.com/2020-election/2020/10/19/joe-bidens-transition-co-chair-hosted-hunter-biden-linked-chinese-elites-white-house/)
 
 0
