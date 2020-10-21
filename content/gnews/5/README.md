@@ -1,44 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Netflix推廣《Cuties 》&#8221;描繪未成年人的淫穢視覺效果 &#8220;在德州被起訴
-`2020-10-21 14:46 GM77` [轉載自GNews](https://gnews.org/zh-hant/438693/)
+## 中共再度恐嚇加拿大，不准幫助香港難民
+`2020-10-21 17:20 英國喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hant/438884/)
 
-整撰：文錦
-復核：WENJUN
+*新聞來源：《Breitbart》布賴特巴特；作者：FRANCES MARTEL；發佈時間：2020年10月16日*
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/21143959/3-24.jpg)
+*翻譯/簡評：Cathy R；校對：Linda；審核：海闊天空；Page：Connor54*
 
-圍繞法國電影《Cuties》在Netflix上推廣的爭議現在已經發展到對流媒體服務的刑事指控。
+**簡評：**
 
-周二，德克薩斯州第六區的共和黨眾議員馬特-沙弗（Matt Schaefer）在推特上發布了一張9月23日在德克薩斯州泰勒縣提交的法庭文件的照片，在大陪審團的起訴書中指控這家娛樂公司在發行《Cuties》時 “推廣描述兒童的猥褻視覺材料”。
+以德國為首的39個國家在聯合國發出聯合聲明，敦促中共國尊重少數民族維吾爾人的人權，同時也關注香港的局勢。之後加拿大總理特魯多也發表了講話，公開譴責中共國在香港和新疆侵犯人權。結果馬上引來了中共戰狼外交赤裸裸的威脅。中共駐加拿大大使和中共發言人趙立堅都以加拿大人的“健康和安全”，威脅加拿大政府不要幫助香港難民。中共這個怪獸，完全違背國際社會規則，恃強凌弱、撒潑耍橫、仗勢欺人，國際社會一定要聯手起來，將中共趕出國際社會、趕出人類共有的家園。
 
-> Netflix, Inc. indicted by grand jury in Tyler Co., Tx for promoting material in Cuties film which depicts lewd exhibition of pubic area of a clothed or partially clothed child who was younger than 18 yrs of age which appeals to the prurient interest in sex [#Cuties](https://twitter.com/hashtag/Cuties?src=hash&amp;ref_src=twsrc%5Etfw) [#txlege](https://twitter.com/hashtag/txlege?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/UJ1hY8XJ2l](https://t.co/UJ1hY8XJ2l)
-> — Matt Schaefer (@RepMattSchaefer) [October 6, 2020](https://twitter.com/RepMattSchaefer/status/1313517817942212608?ref_src=twsrc%5Etfw)
+![]()![](https://spark.adobe.com/page/Ryah1HSZ94iwO/images/fc68d076-b1df-4223-a356-16b0921e9a73.jpg?asset_id=542d33b0-6149-4000-b440-e7d8ab1014b3&amp;img_etag=%220585b89a5d6eaef0a9e662b3b1e45bb0%22&amp;size=1024)來源：網絡圖片
 
-泰勒縣地方檢察官盧卡斯-巴賓（Lucas Babin）在一份新聞稿中說：”在聽說了《Cuties》這部電影並看了它之後，我知道有可能的理由相信這是犯罪….”。
+## **如果賈斯丁•特魯多幫助香港難民，中共國將威脅加拿大人的“健康和安全”**
 
-《Cuties》在流媒體平臺上被評為TV-MA級，影片講述一個11歲的小女孩艾米在巴黎郊區的貧困地區成長，家人是傳統的塞內加爾移民，艾米卻加入學校裏一支被稱為 “Cuties “的舞蹈隊，從此在西方自由價值觀和穆斯林保守傳統之間掙紮。這是一個成長的故事，但Netflix在宣傳這部電影時犯了一些嚴重的錯誤，最終把它變成了今年最有爭議的電影之一。
+[!\[\]()!\[\](https://spark.adobe.com/page/Ryah1HSZ94iwO/images/99be0373-dc1d-43cb-a855-d841980c6605.jpg?asset_id=bf4b491a-4dec-426b-a1ce-cb461ec64b52&amp;img_etag=%2275cc35affe5bda966c2016e1652f30e8%22&amp;size=2560)](https://spark.adobe.com/page/Ryah1HSZ94iwO/images/99be0373-dc1d-43cb-a855-d841980c6605.jpg?asset_id=bf4b491a-4dec-426b-a1ce-cb461ec64b52&amp;img_etag=%2275cc35affe5bda966c2016e1652f30e8%22&amp;size=1024)
 
-早在8月，Netflix就在為《Cuties》制作的營銷海報引起反響後公開道歉，批評者稱該海報將兒童色情化。這張有爭議的海報上，影片中的四個年輕女孩穿著暴露的舞蹈服裝，同時擺出暗示性的舞蹈姿勢
+中共國駐加拿大大使叢培武星期四警告加拿大，如果渥太華關心加拿大人的“健康和安全”，就不要伸手幫助逃離共產黨鎮壓浪潮的香港難民。
 
-在社交媒體上，人們稱這部電影的Netflix海報為“令人作嘔”，“令人沮喪”和“病態的” ，上個月#CancelNetflix的標簽開始在社交媒體上流行起來，之後Netflix為Cuties辯護說是 “社會評論”。
+左翼總理賈斯丁• 特魯多(JustinTrudeau)本週在講話中警告中共國，加拿大不會接受“強制性外交政策”，渥太華將公開譴責中共國在香港和新疆侵犯人權，有證據表明中國共產黨將多達300萬人安置在中共國西部省份新疆的集中營裡。
 
-“Cuties是一部反對未成年人性行為的社會評論影片，”Netflix發言人當時在一份聲明中告訴人們。”這是一部獲獎影片，也是一個關於未成年少女在社交媒體上和更普遍的社會成長中所面臨的壓力的強大故事–我們會鼓勵任何關心這些重要問題的人觀看這部電影。”
+[!\[\]()!\[\](https://spark.adobe.com/page/Ryah1HSZ94iwO/images/6185c73c-2792-4be4-9fdd-87316d008eb0.jpg?asset_id=954e202f-5a3d-4668-90be-ff408ef42d09&amp;img_etag=%22d6ed6535ad09cacf177239ad1802ab62%22&amp;size=1024)](https://spark.adobe.com/page/Ryah1HSZ94iwO/images/6185c73c-2792-4be4-9fdd-87316d008eb0.jpg?asset_id=954e202f-5a3d-4668-90be-ff408ef42d09&amp;img_etag=%22d6ed6535ad09cacf177239ad1802ab62%22&amp;size=1024)維吾爾人在集中營
 
-“我們對我們為《Cuties》所使用的不恰當的藝術宣傳深感抱歉。 “Netflix在8月20日的推特上寫道。”我們現在已經更新了圖片和描述。”
+在香港，中共國5月份的“國家安全”法把批評中共都算作違法，實質性地結束了該地區的自治。中共控制的警察越來越多地利用此法逮捕支持民主的持不同政見者，因為他們參與了對中共國的和平抗議。在香港運動的高峰時期，反共抗議活動吸引了香港700萬人中的200萬人。警方還暗示，他們可能會利用此法起訴投票給今年的民主政黨初選的數十萬人。
 
-此後，至少有四個州的總檢察長要求Netflix撤下該片；參議員特德-克魯茲(Ted Cruz)敦促進行刑事調查；參議員邁克-李(Mike Lee)表示，他對Netflix的道歉不滿意；德克薩斯州大陪審團本月早些時候起訴Netflix推廣 “兒童猥褻材料”。
+[!\[\]()!\[\](https://spark.adobe.com/page/Ryah1HSZ94iwO/images/72f31f56-f58a-46ba-858e-1161bbc35cba.png?asset_id=c78ce6a0-0352-40fa-a0d7-4da2f39cc99c&amp;img_etag=%2272c36d346bc640193e07a11cab511801%22&amp;size=1024)](https://spark.adobe.com/page/Ryah1HSZ94iwO/images/72f31f56-f58a-46ba-858e-1161bbc35cba.png?asset_id=c78ce6a0-0352-40fa-a0d7-4da2f39cc99c&amp;img_etag=%2272c36d346bc640193e07a11cab511801%22&amp;size=1024)抗議《逃犯條例》-香港爆發大規模遊行
 
-編者觀點：
+香港《基本法》是香港的憲法文件，禁止中共國在北京通過任何對香港的法律。目前的香港政府選擇無視這一規定並執行“國家安全”法。
 
-看過《Cuties》之後，感到這部影片對外宣傳是未成年少女成長的故事，但影片卻將筆墨著重放在了這群少女們的叛逆和對性的憧憬，可以說它是一部未成年人禁區的百科全書，片中提及了校園霸淩、在洗手間討論異性私處、上成人視頻聊天網站、戀童癖、偷竊、拍個人隱私上傳到社交媒體等等很多現代社會問題，甚至嘗試用身體引誘異性。Cuties舞蹈組合中的幾個未成年少女模仿成人情色舞蹈動作，有大量的特寫鏡頭突出少女們的某些身體部位。個人認為，這些令人不適的鏡頭在片中頻繁出現的意圖已脫離了影片要表達的主題。
+中共國駐渥太華大使叢培武在紀念兩國外交關係週年的講話中威脅加拿大公民。
 
-由此可見，民眾對《Cuties》的爭議不是空穴來風。來自穆斯林傳統家庭的少女，渴望西方自由價值，她嘗試沖破傳統的禁錮後最終仍體會到原生家庭的自在溫暖，這樣的主題固然沒有錯，問題出在制作方拍攝者的表現手法和作為發行商的Netflix的宣傳手段，兩者都一邊倒地在用這些未成年少女們的身體部位和肢體動作，吸引觀眾的目光，他們的作法對公眾社會釋放出難以控制的危險信號。
+“我們強烈敦促加拿大方面不要向香港的暴力罪犯提供所謂的政治庇護，因為這是對中共國內政的干涉，肯定會鼓勵這些暴力犯罪。”叢提到和平的反共抗議者時說。
 
-（以上僅代表個人觀點）
+“如果加拿大方面真的關心香港的穩定和繁榮，並真正關心在香港的30萬加拿大護照持有人的健康和安全，以及在香港經營的大量加拿大公司……你應該支持那些打擊暴力犯罪的努力。”他補充說。
 
-參考鏈接：
-[https://people.com/movies/netflix-indicted-in-texas-over-cuties-controversy/](https://people.com/movies/netflix-indicted-in-texas-over-cuties-controversy/)
+儘管特魯多發表了那些言論，但加拿大移民部門尚未就香港難民的地位作出具體聲明。至少有一對夫婦在逃離香港後在加拿大獲得了政治庇護；另有45起案件據報告正在審理中。
+
+星期五，中共國外交部宣布叢的言論“無可指責”。
+
+“中共國駐加拿大大使館剛剛表明了我們在有關香港問題上的公正立場。這是無可指責的。如果有人誤解了這一點，那麼你應該問問原因，找出其中是否有不可告人的動機。”發言人趙立堅告訴記者，他散佈了一種陰謀論，認為美國軍隊應對中共國冠狀病毒大流行負責。
+
+加拿大官員對這一威脅作出了憤怒的回應。 (當被問到時，叢並沒有否認他的言論是一種威脅)
+
+外交部長弗朗索瓦\*菲利普\*尚帕涅(Francois-Philippe Champagne)在回應中說：“據報導，中共國大使的評論是完全不可接受和令人不安的。我已指示全球事務署致電大使以明確的態度表明，加拿大將永遠捍衛人權和世界各地加拿大人的權力。”
+
+尚帕涅捲入了一場持續不斷的醜聞中，今年6月，加拿大媒體報導稱尚帕涅在中共國國有銀行中國銀行(Bank of China)有兩筆未償還的房屋抵押貸款。這些報導是在尚帕涅做出了表揚並感謝中共國將有缺陷的醫療設備送給加拿大用來抗爭中共國冠狀病毒後浮出水面的。
+
+特魯多周二對中共國政府的言論明顯偏離了他典型的外交政策。和叢一樣，這些言論本應紀念中加外交關係週年。
+
+特魯多說：“我們將繼續絕對致力於與我們的盟友合作，以確保中共國的脅迫外交方法，即任意拘留兩名加拿大公民，以及世界其它國家的其它公民，不被他們視為一種成功的策略。“
+
+[!\[\]()!\[\](https://spark.adobe.com/page/Ryah1HSZ94iwO/images/185e7ff5-be19-4d67-88b8-f8f242cb907b.jpg?asset_id=8b1e8c4d-2177-4875-aac7-90cbdf9cda92&amp;img_etag=%2250ffca4fa6317fe4007e4909bc97324a%22&amp;size=1024)](https://spark.adobe.com/page/Ryah1HSZ94iwO/images/185e7ff5-be19-4d67-88b8-f8f242cb907b.jpg?asset_id=8b1e8c4d-2177-4875-aac7-90cbdf9cda92&amp;img_etag=%2250ffca4fa6317fe4007e4909bc97324a%22&amp;size=1024)被中共拘留的兩名加拿大公民
+
+加拿大總理指的是以可疑“間諜”罪名在中共國任意逮捕康明凱（MichaelKovrig）和邁克爾•斯帕弗（MichaelSpavor）。那次逮捕是在加拿大拘留中共國電信巨頭華為首席財務官孟晚舟之後發生的。孟正在等待引渡到美國，因為有證據表明她故意違反了對伊朗的製裁。中共國官方媒體毫不隱諱將康明凱和斯帕弗關進監獄的真正目的，威脅加拿大，敦促它不要“破壞”中共國。
+
+大赦國際（AmnestyInternational）證實，這兩名加拿大人承受了“明顯侵犯了他們獲得公平審判的權利”，致使法律程序不合法。
+
+中共國外交部周二對特魯多的聲明做出了簡短的回應。
+
+發言人趙立堅說：“我們堅決譴責和反對加拿大方面故意混淆是非，再次作出錯誤評論，我們提出嚴厲的抗議。”
+
+趙明確地說，中加之間的所有緊張關係“都是由加拿大任意拘留孟晚舟造成的，孟晚舟是一名無辜的中共國公民，沒有違反任何加拿大法律。”
+
+這位發言人隨後稱特魯多譴責中共國的人權暴行是“虛偽和軟弱”的。
+
+[原文鏈接](https://www.breitbart.com/asia/2020/10/16/china-threatens-health-safety-canadians-justin-trudeau-helps-hong-kong-refugees/)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/Ryah1HSZ94iwO/) -點擊spark adobe版
 
 0
