@@ -1,17 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 10.15 路德時評：班農先生和朱利安尼先生的立場鮮明，助川普總統排幹沼澤【精華版粵語配音】
-`2020-10-21 05:56 GM42` [轉載自GNews](https://gnews.org/zh-hant/437966/)
+## （德文+日文）郭文貴:我們有個共同的敵人是共產黨
+`2020-10-21 09:35 GM62` [轉載自GNews](https://gnews.org/zh-hant/438183/)
 
-製作單位：戰友之家·粵語頻道
+德語標題 Mils Guo: Wir gemeinsam haben einen Feind – die KPCh
 
-製作團隊：阿恩，wiki bao，一簾幽夢剪刀手
+原文校對：warroom字幕翻译组 德語翻譯：珠丝玛迹，小羽 德語校對：ItIsHappening
 
+郭文貴先生提醒人們,中國共產黨製造了病毒,是全人類共同的敵人。
 
-
-摘要：
-
-見朱利安尼如見川普總統，路德兩週之前我們談到的 現在一一被驗證了。
+Miles Guo warnt, dass die Kommunistische Partei Chinas das Virus entwickelt hat. KPCh ist der gemeinsame Feind der gesamten Menschheit.
 
 0
