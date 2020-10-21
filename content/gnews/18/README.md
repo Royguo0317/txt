@@ -1,13 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 10/18/2020 路德社: 為什麼西方主流媒體各種散佈虛假新聞和中共大外宣口徑一致?
-`2020-10-20 17:37 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/436654/)
+## 閆博士10月21日審定版：第一份報告《 SARS-CoV-2基因組的不尋常特徵表明，該基因組是經過複雜的實驗室改造而非自然進化的，並描述了其可能的合成途徑》
+`2020-10-20 22:10 GM101` [轉載自GNews](https://gnews.org/zh-hant/437151/)
 
-2020年10月18日路德社：為什麼西方主流媒體各種散佈虛假新聞和中共大外宣口徑一致？到底誰是它們背後的大股東？
+本連結轉自喜馬拉雅國際工作站，並經閆麗夢博士校對審核，請戰友們廣泛傳播。
 
-
-
-####  **By：【秘密翻譯組G-Translators】**
-
+報告原連結：https://drive.google.com/file/d/1vZ0vbPJ9QAhGDjna9pkMxqUHhIdakODW/view
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20213817/The-1st-Yan-Report-%E4%B8%AD%E6%96%87%E7%89%88.pdf)
 0
