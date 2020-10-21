@@ -1,34 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 習政府重拾文革改名風
-`2020-10-21 00:04 HAIKUOTIANKONG` [轉載自GNews](https://gnews.org/zh-hant/437368/)
+## 美國、巴林王國與以色列國的聯合聲明
+`2020-10-21 01:42 GM31` [轉載自GNews](https://gnews.org/zh-hant/437576/)
 
-內新聞：WENWU
-素材：霹雳年
-校對：老白
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20235449/12-8.jpg)
-鄭永年于三天前在公民組織網頁“change.org”向中共中央委員會、中國國務院教育部、清華大學發起請願書。請願書的主題是“將清華大學更名爲習近平大學”。副主題是“高舉習近平主義旗幟，引領中國邁向新紀元”。請願人是鄭永年、沈根林、王仲偉、嚴健明。核心正文內容：高舉習近平主義旗幟，就必須將習總母校清華大學更名爲習近平大學。
+#### **Joint Statement by the United States, the Kingdom of Bahrain, and the State of Israel**
 
-可見此次學校改名風波充滿政治色彩，讓人想到曹操的臣子在孔雀台進言讓其稱帝，但都被婉拒。可惜習不是曹操，而是“毛二祖”。從其請願書的頭段句子引用毛澤東的話已可證實一二。
+#### **美國、巴林王國與以色列國的聯合聲明**
 
-據維基百科介紹，習近平于2002年獲清華大學馬克思主義理論與思想政治教育專業法學博士，博士論文爲《中國農村市場化研究》。就此我們已了解，在國內新聞曾曝光其演講稿多爲拼音，更在同一次演講中多次讀錯中文。這讓我們更加相信民間一個流傳，習近平只有小學文憑。換句老百姓的話來說，習近平的法學博士是“買”來的。也就是說，清華大學不是習總的母校，文革經曆才是。
+Issued on: October 19, 2020
 
-據維基百科介紹，1966年8月24日，毛澤東爲北京大學新校刊題寫“新北大”的刊名，被《人民日報》譽爲“破舊立新的動員令，興無滅資的號召書”。于是在中國興起一股改名風，也就是文革改名風。許多人，尤其是當時青少年，都爲自己改了個更革命的名字，如向東、衛彪、立新、志紅、永革、興無等。
+2020年10月19日發佈
 
-那麽當代人如何看待這份荒唐的請願書呢？
+Yesterday, delegations from the Kingdom of Bahrain, the United States of America, and the State of Israel met in Manama.
 
-品蔥網對該請願書的用戶評論如下：
-“大家衝塔呀，一群不要臉的人”、“習近平主義都出來了…..太假了”、“臺灣清華大學才是真．清華大學，北京那間改名正好”、“早該改了，現在的清華大學是玷汙清華之名。反正光複後會改回來的”、“同意，首都就該是平壤的樣子。閱兵、團體操、領袖塑像…”、“聯名請願書變成拍馬屁書”、“沒志氣，馬屁拍不好”。
-直接讓習近平在天壇登基稱帝，建紅色包子王朝，豈不美哉？”……等
+昨天，巴林王國、美利堅合眾國和以色列國代表團在麥納瑪會晤。
 
-1924年（民國13年）2月6日，孫中山下達總統令，任命國立廣東高等師範學校校長鄒魯爲主任，籌建國立廣東大學。民國14年3月12日，孫中山逝世，廣東校長提議改名爲國立中山大學，于10月批准。
+Bahrain and Israel signed a historic Joint Communique on the Establishment of Diplomatic, Peaceful and Friendly Relations, marking the new and promising era in their relationship. Bahrain and Israel also signed Memorandums of Understanding regarding economic and trade cooperation, air services, agriculture, telecommunications and postal services, visas, financial services, cooperation between Ministries of Foreign Affairs, and cooperation between Chambers of Commerce. In addition, working groups met to discuss a wide range of additional areas for potential cooperation, including healthcare, port services, sports, and culture.
 
-目前，清華大學和中山大學的正統傳承都在台灣。
+巴林和以色列簽署了關於建立外交、和平和友好關係的歷史性聯合公報，標誌著兩國關係進入充滿希望的新時代。巴林和以色列還簽署了關於經貿合作、航空服務、農業、電信和郵政服務、簽證、金融服務、外交部合作以及商會合作的諒解備忘錄。此外，各工作組還舉行會議，討論一系列其他潛在合作領域，包括醫療保健、港口服務、體育和文化。
 
-新聞來源：
-https://www.change.org/p/%E4%B8%AD%E5%85%B1%E4%B8%AD%E5%A4%AE%E5%A7%94%E5%91%98%E4%BC%9A-%E5%B0%86%E4%B9%A0%E6%80%BB%E6%AF%8D%E6%A0%A1%E6%B8%85%E5%8D%8E%E5%A4%A7%E5%AD%A6%E6%9B%B4%E5%90%8D%E4%B8%BA%E4%B9%A0%E8%BF%91%E5%B9%B3%E5%A4%A7%E5%AD%A6
+The opening of direct relations between two of the Middle East’s most dynamic nations will contribute to a more secure and prosperous future for the peoples of both countries and the wider region.
 
-[https://project-gutenberg.github.io/Pincong/post/4025926558f243f5372274ea88ecc461/](https://project-gutenberg.github.io/Pincong/post/4025926558f243f5372274ea88ecc461/)
+中東兩個最具活力的國家之間開放直接關係，將有助於為兩國人民和更廣泛的區域創造更安全和繁榮的未來。
 
-0
+This historic diplomatic breakthrough has been facilitated by the Abraham Accords initiative of President Donald J. Trump of the United States of America. It follows the 11 September 2020 agreement between His Majesty King Hamad bin Isa bin Salman Al Khalifa of the Kingdom of Bahrain, and the Israeli Prime Minister Benjamin Netanyahu, to open an era of cooperation between the two nations. This diplomatic step was followed by the signing of the Peace Declaration between Bahrain and Israel in Washington on 15 September 2020, to endorse the principles of the Abraham Accords and to open a new chapter of peace.
+
+美利堅合眾國唐納德·川普總統的《亞伯拉罕協定》倡議促進了這一歷史性的外交突破。此前，巴林王國國王哈馬德·本·伊薩·本·薩勒曼·阿勒哈利法陛下與以色列總理本雅明·內塔尼亞胡於2020年9月11日達成協議，開啟了兩國合作的時代。在這一外交步驟之後，巴林和以色列於2020年9月15日在華盛頓簽署了《和平宣言》，認可《亞伯拉罕協定》的各項原則，並開啟了和平的新篇章。
+
+This chapter is a continuation of determined regional and international efforts to advance peace in the Middle East and is a testament to the bold vision and leadership exhibited by the three countries to innovate in diplomacy for sustainable peace and prosperity. The three countries face a range of interdependent challenges and will mutually benefit from today’s historic milestone.
+
+此篇章是區域和國際社會推進中東和平的堅定努力的延續，證明了三國為實現可持續和平與繁榮而進行外交創新所表現出的大膽眼光和領導力。三國面臨一系列相互依存的挑戰，並將從今天這一歷史性里程碑中受益。
+
+Yesterday’s historic signing brings together two of America’s friends and partners in the Middle East.
+
+昨天的歷史性簽約將美國在中東的兩個朋友和夥伴聯合在一起。
+
+The Kingdom of Bahrain and the State of Israel will join with the United States to advance a Strategic Agenda for peace and prosperity in the Middle East, and expand avenues for cooperation that are anchored within shared values and interests. The three nations are aligned in their views on the challenges, threats and opportunities present in the region. Through closer security cooperation, public diplomacy and engagement on the economy, technology and other shared interests, including the promotion of co-existence, people-to-people engagement and a culture of peace, the region’s potential can be unlocked. Today’s agreements will lead to better lives for the peoples of Bahrain, Israel, and the region.
+
+巴林王國和以色列國將與美國一道推動中東和平與繁榮的戰略議程，並拓寬基於共同價值觀和利益的合作途徑。三國對本區域面臨的挑戰、威脅和機遇的看法一致。通過更密切的安全合作、公共外交以及在經濟、技術和其他共同利益方面的參與，包括促進共存、人與人之間的接觸以及和平文化，該區域的潛力將得以釋放。今天的協定將使巴林、以色列和該地區人民過上更好的生活。
+
+The parties will continue their efforts to achieve a just, comprehensive and enduring resolution to the Israeli-Palestinian conflict. The Kingdom of Bahrain and the State of Israel trust that this development will contribute to a future in which all peoples and all faiths can live together in the spirit of cooperation and enjoy peace and prosperity where states are focused on shared interests and building a better future.
+
+雙方將繼續努力，實現以色列-巴勒斯坦衝突的公正、全面和持久的解決。巴林王國和以色列國相信，這一發展將有助於建立一個所有人民和所有信仰都能本著合作精神共同生活，並享有和平與繁榮的未來，在這個未來中，各國將致力於共同利益，建設更美好的未來。
+
+The Kingdom of Bahrain and the State of Israel express their deep appreciation to the United States of America in securing a more stable, secure and prosperous Middle East.
+
+巴林王國和以色列國對美利堅合眾國確保一個更穩定、安全和繁榮的中東深表感謝。
+
+[閱讀英文全文](https://www.whitehouse.gov/briefings-statements/joint-statement-united-states-kingdom-bahrain-state-israel/)
+
+*翻譯：【Dlrow】 校對：【V%】 編輯：【GM31】*
+
+*戰友之家玫瑰園小隊出品*
+
+1
