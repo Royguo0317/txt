@@ -1,11 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄媒体报道三块硬盘和美国选战，首次在国家级媒体介绍爆料革命的力量。
-`2020-10-21 08:59 HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hant/438144/)
+## 國內時評｜690億芯片巨頭閃崩跌停，北京25家房產中介機構被查，天津事單人員離崗工資正常晉升
+`2020-10-21 11:21 公民之聲` [轉載自GNews](https://gnews.org/zh-hant/438416/)
 
-> 2020年10月17日
->  俄媒体（РОССИЯ 1）报道三块硬盘和美国选战，首次在国家级媒体介绍爆料革命的力量 [#Россия1](https://twitter.com/hashtag/%D0%A0%D0%BE%D1%81%D1%81%D0%B8%D1%8F1?src=hash&amp;ref_src=twsrc%5Etfw) [#КПК](https://twitter.com/hashtag/%D0%9A%D0%9F%D0%9A?src=hash&amp;ref_src=twsrc%5Etfw) [@ding\_gang](https://twitter.com/ding_gang?ref_src=twsrc%5Etfw) [@RussiaHimalaya](https://twitter.com/RussiaHimalaya?ref_src=twsrc%5Etfw) [@Masha44230612](https://twitter.com/Masha44230612?ref_src=twsrc%5Etfw) [https://t.co/zsYKSeff65](https://t.co/zsYKSeff65) [pic.twitter.com/4fReJVU4ev](https://t.co/4fReJVU4ev)
-> — 喜马拉雅农场俄罗斯站 (@RussiaHimalaya) [October 21, 2020](https://twitter.com/RussiaHimalaya/status/1318880816945106946?ref_src=twsrc%5Etfw)
+內新聞：庚子 校對：天藍色獨角色
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/21092431/screenshot_2020-10-21-19-33-26-073_discord.jpg)
+《每日經濟新聞》消息，10月21日上午早盤，芯片巨頭紫光國微盤中快速閃崩，開盤不到半個小時便被巨額賣單砸死跌停，股價也從124元/股跌至113元/股，市值縮水高達70多億。
+
+繼韋爾股份、信維通信、華潤微暴跌之後，又壹芯片股暴跌。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/21092658/screenshot_2020-10-21-19-42-13-984_discord.jpg)
+文章觀點：由於美國的芯片技術限制，中共未來會有更多的芯片及下遊企業倒下，需要高級芯片的中共量子科技也將是個泡影終成騙局。
+
+《新華網客戶端》消息，據北京市住建委通報，北京我愛我家房地產經紀有限公司、北京鏈家置地房地產經紀有限公司等25家企業涉嫌違規發布附帶違法建設的房屋等違規房源信息，違規從事禁止交易房屋經紀業務，北京市住建委已分別對上述企業啟動立案調查程序。
+
+另，《華商網》10月12日消息稱，前三季度40城新房成交環比下降8%，西安下降26%。
+
+文章觀點：中共虛假經濟支柱的房地產市場，在美國經濟技術金融制裁的環境下，崩盤在所難免，中共很有可能全盤控制房產交易市場，人為定價。
+
+《人民日報》消息，天津市人社局關於貫徹落實《人力資源社會保障部關於進壹步支持和鼓勵事業單位科研人員創新創業的指導意見》有關問題的通知
+
+離崗創業期間，科研人員人事檔案由事業單位保管，工齡連續計算，檔案工資正常晉升，社會保險（含職業年金）、住房公積金（含補充住房公積金）依法繼續由事業單位繳納，繳費基數按照離崗時的基數確定。
+
+網友評論：工人創業也享受這種待遇嗎？
+
+[【剛剛！690億芯片巨頭閃崩跌停了，13萬股東“躺槍”，股吧網友氣炸了：“踩中信維，聞泰，今天又踩中它” – 今日頭條】](https://m.toutiao.com/is/JPgMSa3/)
+
+[【北京25家房產中介機構被查：涉鏈家、我愛我家等 – 今日頭條】](https://m.toutiao.com/is/JPg42Ha/)
+
+[【天津鼓勵事業單位科研人員創新創業，離崗期間檔案工資正常晉升 – 今日頭條】](https://m.toutiao.com/is/JPguXxq/)
 
 0

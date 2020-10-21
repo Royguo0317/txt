@@ -1,57 +1,88 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國、巴林王國與以色列國的聯合聲明
-`2020-10-21 01:42 GM31` [轉載自GNews](https://gnews.org/zh-hant/437576/)
+## 【戰友文學原創】連載038: 1984進行時（第三部）
+`2020-10-21 09:15 澳洲雅典娜农场` [轉載自GNews](https://gnews.org/zh-hant/438173/)
 
-#### **Joint Statement by the United States, the Kingdom of Bahrain, and the State of Israel**
+作者：文石
+編輯/審核：Giselle
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/08064446/Screen-Shot-2020-10-08-at-8.43.32-pm.png)
+七十多年前，喬治·奧威爾在他的代表作《1984》中描述了一個完全處於極權政府監視、控制和奴役下的絕望世界……今天世界已經行走在絕望深淵的邊緣，如果沒有文貴先生和爆料革命，人類文明早已被邪惡碾碎，就像這部小說《1984進行時》中描述的那樣。
 
-#### **美國、巴林王國與以色列國的聯合聲明**
+本書獻給文貴先生、班農先生、爆料革命和我們的聖城香港，以及所有和新中國聯邦站在一起的正義力量。
 
-Issued on: October 19, 2020
+16年後……
 
-2020年10月19日發佈
+### **第三部煉獄**
 
-Yesterday, delegations from the Kingdom of Bahrain, the United States of America, and the State of Israel met in Manama.
+#### **5、喚醒**
 
-昨天，巴林王國、美利堅合眾國和以色列國代表團在麥納瑪會晤。
+讓溫斯頓難以置信的是，雖然互聯網完全開放，讓人們了解一個真實的信息依然極為困難。
 
-Bahrain and Israel signed a historic Joint Communique on the Establishment of Diplomatic, Peaceful and Friendly Relations, marking the new and promising era in their relationship. Bahrain and Israel also signed Memorandums of Understanding regarding economic and trade cooperation, air services, agriculture, telecommunications and postal services, visas, financial services, cooperation between Ministries of Foreign Affairs, and cooperation between Chambers of Commerce. In addition, working groups met to discuss a wide range of additional areas for potential cooperation, including healthcare, port services, sports, and culture.
+從K城逃出來的女科學家Y博士，已經拿出很多數據，證明溫斯頓吃過的那種藥可以預防和治療病毒。這是一種預防和治療熱帶疾病的常用藥，七十多年來一直被認為是一種非常安全的藥物。但在B國，醫學機構和醫學雜誌的負責人和專家還是告訴人們，這種藥有害。為什麼A國和B國的領導人，以及這些專家沒有被感染病毒？ Y 博士說，只要讓他們做一下尿檢，就知道他們是不是在服用這種藥。每天都有成百上千普通人死去，這些撒謊的人不僅自己活得很好，還竭盡全力讓人們懷疑、反對那些說出真相的人。那些支持這種藥的醫生受到各種指責，說他們專業水平不夠、不是病毒專家，或者乾脆被醫院開除，甚至家庭成員曾患病都被挖出來證明他們無法給人提供醫療幫助。
 
-巴林和以色列簽署了關於建立外交、和平和友好關係的歷史性聯合公報，標誌著兩國關係進入充滿希望的新時代。巴林和以色列還簽署了關於經貿合作、航空服務、農業、電信和郵政服務、簽證、金融服務、外交部合作以及商會合作的諒解備忘錄。此外，各工作組還舉行會議，討論一系列其他潛在合作領域，包括醫療保健、港口服務、體育和文化。
+溫斯頓經常覺得心灰意冷。如果他當時和凱瑟琳有更深入的關係，雖然是在婚前，但凱瑟琳曾經的職業很可能會引起一些人的不信任。那麼他說的任何事都會被懷疑，即便只是1+1等於2這樣簡單的事實都很難讓人接受。網絡比現實世界還荒唐，左右輿論的是龐大而無形的對手，即便你手握真相，依然毫無還手之力。
 
-The opening of direct relations between two of the Middle East’s most dynamic nations will contribute to a more secure and prosperous future for the peoples of both countries and the wider region.
+溫斯頓搞不明白，邁爾斯和戈斯坦因這幾年是怎麼堅持下來的。他們在全世界被追殺、被抹黑、被打壓，還是不肯放棄。他們簡直是只有在文學作品中才會出現的正義鬥士。如果沒有他們，溫斯頓根本不相信在現實中，真的有人為正義不惜犧牲一切。如果沒有他們，溫斯頓也失去了動力。他覺得自己必須和他們站在一起，否則，他就不配回復到人的世界，不配享有人的自由。
 
-中東兩個最具活力的國家之間開放直接關係，將有助於為兩國人民和更廣泛的區域創造更安全和繁榮的未來。
+但真的值得付出這麼大的代價嗎？既然有人就是不肯相信真相，甚至為此丟了性命，也是他們自己的選擇，誰也無法代替別人的大腦去思考。對這樣的人，邁爾斯也無能為力吧。他要拯救的是雖然被蒙蔽，但看到真實信息後，會分辨真偽，從而自救的人。比如那些相信邁爾斯和Y 博士，一直服藥的人，避免了被感染，可以享受像從前一樣自由的生活。
 
-This historic diplomatic breakthrough has been facilitated by the Abraham Accords initiative of President Donald J. Trump of the United States of America. It follows the 11 September 2020 agreement between His Majesty King Hamad bin Isa bin Salman Al Khalifa of the Kingdom of Bahrain, and the Israeli Prime Minister Benjamin Netanyahu, to open an era of cooperation between the two nations. This diplomatic step was followed by the signing of the Peace Declaration between Bahrain and Israel in Washington on 15 September 2020, to endorse the principles of the Abraham Accords and to open a new chapter of peace.
+溫斯頓的媽媽就是這樣的人。一開始，媽媽也是半信半疑，難道“他們”從一開始就知道這種藥有效，卻把藥出口給B國，讓B國總統偷偷救助他的人而不故A國普通人的死活。 “他們”是需要A國人養活的啊？
 
-美利堅合眾國唐納德·川普總統的《亞伯拉罕協定》倡議促進了這一歷史性的外交突破。此前，巴林王國國王哈馬德·本·伊薩·本·薩勒曼·阿勒哈利法陛下與以色列總理本雅明·內塔尼亞胡於2020年9月11日達成協議，開啟了兩國合作的時代。在這一外交步驟之後，巴林和以色列於2020年9月15日在華盛頓簽署了《和平宣言》，認可《亞伯拉罕協定》的各項原則，並開啟了和平的新篇章。
+溫斯頓不得不跟媽媽解釋，“他們”認為A國人不會死絕，即便人口減少，也可以在征服B國後得到補償。反正是奴隸，具體是A國人還是B國人都是一樣的。
 
-This chapter is a continuation of determined regional and international efforts to advance peace in the Middle East and is a testament to the bold vision and leadership exhibited by the three countries to innovate in diplomacy for sustainable peace and prosperity. The three countries face a range of interdependent challenges and will mutually benefit from today’s historic milestone.
+媽媽覺得溫斯頓說的有道理，便想辦法搞到了藥，在來B國的路上開始服用。真正完全相信溫斯頓，是在她開始看邁爾斯的直播視頻之後。媽媽到B國後一直和溫斯頓一家住在一起。溫斯頓的兒女出生後，公寓裡已經顯得狹小，但茱莉婭什麼也沒說，立即同意把溫斯頓的媽媽接來一起生活。
 
-此篇章是區域和國際社會推進中東和平的堅定努力的延續，證明了三國為實現可持續和平與繁榮而進行外交創新所表現出的大膽眼光和領導力。三國面臨一系列相互依存的挑戰，並將從今天這一歷史性里程碑中受益。
+為此，溫斯頓永遠感激茱莉婭。他也感謝上天的厚愛，讓一個如此善良體貼的女人降臨到他的生命中。茱莉婭已經有些發胖，走起路來有些微微晃悠，好像身體的重心在兩腿間不停交換。說起來不可思議，雖然茱莉顯得笨笨的，在溫斯頓眼裡卻依然是最親的。
 
-Yesterday’s historic signing brings together two of America’s friends and partners in the Middle East.
+溫斯頓原本擔心媽媽上了年紀，離開熟悉的環境會很不適應。沒想到，媽媽像找到一塊新大陸。她看到B國網絡上提供的很多很多免費的音樂和舞蹈資源，興奮得大叫：“這麼多財寶啊，我後半輩子都看不完！”
 
-昨天的歷史性簽約將美國在中東的兩個朋友和夥伴聯合在一起。
+媽媽真是太幸運了，溫斯頓想，她和很多人的區別就是她的屋子後面有一扇窗，隨時可以向外面的世界敞開。並不是所有人都有緣分享受文明，多少人因為沒有鑿開這扇窗，無法照亮他們的生活。如果媽媽的屋子始終是黑的，她不相信溫斯頓告訴她的真相，就不會自己服藥，不會下決心獨自到B國，也就不會發現享用不完的財富，不會有這樣的驚喜和愉悅。她能被照進內心的光指引，因為她一直努力敞開自己的窗戶，即便她A國受到壓制，她不會放棄。媽媽值得擁有美好的生活。
 
-The Kingdom of Bahrain and the State of Israel will join with the United States to advance a Strategic Agenda for peace and prosperity in the Middle East, and expand avenues for cooperation that are anchored within shared values and interests. The three nations are aligned in their views on the challenges, threats and opportunities present in the region. Through closer security cooperation, public diplomacy and engagement on the economy, technology and other shared interests, including the promotion of co-existence, people-to-people engagement and a culture of peace, the region’s potential can be unlocked. Today’s agreements will lead to better lives for the peoples of Bahrain, Israel, and the region.
+媽媽的快樂也感染了茱莉婭。她連續生育兩個孩子，都是在病毒蔓延的動盪不安中，總是為各種事焦慮，哪有聽音樂的心情？但畢竟太美了，只要旋律一響，就很難不被融化在裡面。茱莉婭有時抱著小茱莉婭和媽媽坐在一起。老老小小三個女人，都是溫斯頓生命中最重要最珍貴的。她們被吸引到一個豐富的世界，臉上散發出純淨寧靜的光彩。溫斯頓看著她們，真希望把這個畫面永遠儲存在自己的大腦裡。
 
-巴林王國和以色列國將與美國一道推動中東和平與繁榮的戰略議程，並拓寬基於共同價值觀和利益的合作途徑。三國對本區域面臨的挑戰、威脅和機遇的看法一致。通過更密切的安全合作、公共外交以及在經濟、技術和其他共同利益方面的參與，包括促進共存、人與人之間的接觸以及和平文化，該區域的潛力將得以釋放。今天的協定將使巴林、以色列和該地區人民過上更好的生活。
+可能連邁爾斯都不完全知道，他所做的，改變了所有人的生活。媽媽和茱莉婭也不知道，沒有邁爾斯從天而降，她們現在根本不可能圍坐在一起，享受前人創造出的、如此優雅美好的東西。文明就在這樣的時刻一代代傳承下去。
 
-The parties will continue their efforts to achieve a just, comprehensive and enduring resolution to the Israeli-Palestinian conflict. The Kingdom of Bahrain and the State of Israel trust that this development will contribute to a future in which all peoples and all faiths can live together in the spirit of cooperation and enjoy peace and prosperity where states are focused on shared interests and building a better future.
+（未完待續……）
 
-雙方將繼續努力，實現以色列-巴勒斯坦衝突的公正、全面和持久的解決。巴林王國和以色列國相信，這一發展將有助於建立一個所有人民和所有信仰都能本著合作精神共同生活，並享有和平與繁榮的未來，在這個未來中，各國將致力於共同利益，建設更美好的未來。
+(文章內容僅代表作者觀點)
 
-The Kingdom of Bahrain and the State of Israel express their deep appreciation to the United States of America in securing a more stable, secure and prosperous Middle East.
+[【戰友文學原創】連載001: 1984進行時](https://gnews.org/zh-hans/348358/)
+[【戰友文學原創】連載002: 1984進行時](https://gnews.org/zh-hans/350312/)
+[【戰友文學原創】連載003: 1984進行時](https://gnews.org/zh-hans/357228/)
+[【戰友文學原創】連載004: 1984進行時](https://gnews.org/zh-hans/354617/)
+[【戰友文學原創】連載005: 1984進行時](https://gnews.org/zh-hans/354650/)
+[【戰友文學原創】連載006: 1984進行時](https://gnews.org/zh-hans/359871/)
+[【戰友文學原創】連載007: 1984進行時](https://gnews.org/zh-hans/363684/)
+[【戰友文學原創】連載008: 1984進行時](https://gnews.org/zh-hans/366569/)
+[【戰友文學原創】連載009: 1984進行時](https://gnews.org/zh-hans/369767/)
+[【戰友文學原創】連載010: 1984進行時](https://gnews.org/zh-hans/372897/)
+[【戰友文學原創】連載011: 1984進行時](https://gnews.org/wp-admin/post.php?post=376680&amp;action=edit&amp;lang=zh-hans)
+[【戰友文學原創】連載012: 1984進行時](https://gnews.org/zh-hans/379077/)
+[【戰友文學原創】連載013: 1984進行時](https://gnews.org/zh-hans/381851/)
+[【戰友文學原創】連載014: 1984進行時](https://gnews.org/zh-hans/382285/)
+[【戰友文學原創】連載015: 1984進行時](https://gnews.org/zh-hans/384209/)
+[【戰友文學原創】連載016: 1984進行時](https://gnews.org/zh-hans/386255/)
+[【戰友文學原創】連載017: 1984進行時](https://gnews.org/zh-hans/387960/)
+[【戰友文學原創】連載018: 1984進行時](https://gnews.org/zh-hans/390630/)
+[【戰友文學原創】連載019: 1984進行時](https://gnews.org/zh-hans/393225/)
+[【戰友文學原創】連載020: 1984進行時](https://gnews.org/zh-hans/395297/)
+[【戰友文學原創】連載021: 1984進行時](https://gnews.org/zh-hans/397429/)
+[【戰友文學原創】連載022: 1984進行時](https://gnews.org/zh-hans/399951/)
+[【戰友文學原創】連載023: 1984進行時](https://gnews.org/zh-hans/403879/)
+[【戰友文學原創】連載024: 1984進行時](https://gnews.org/zh-hans/406631/)
+[【戰友文學原創】連載025: 1984進行時](https://gnews.org/zh-hans/408243/)
+[【戰友文學原創】連載026: 1984進行時](https://gnews.org/zh-hans/410456/)
+[【戰友文學原創】連載027: 1984進行時](https://gnews.org/zh-hans/412301/)
+[【戰友文學原創】連載028: 1984進行時](https://gnews.org/zh-hans/414810/)
+[【戰友文學原創】連載029: 1984進行時](https://gnews.org/zh-hans/417089/)
+[【戰友文學原創】連載030: 1984進行時](https://gnews.org/zh-hans/418604/)
+[【戰友文學原創】連載031: 1984進行時](https://gnews.org/zh-hans/421159/)
+[【戰友文學原創】連載032: 1984進行時](https://gnews.org/zh-hans/422977/)
+[【戰友文學原創】連載033: 1984進行時](https://gnews.org/zh-hans/427753/)
+[【戰友文學原創】連載034: 1984進行時](https://gnews.org/zh-hans/430208/)
+[【戰友文學原創】連載035: 1984進行時](https://gnews.org/zh-hans/431650/)
+[【戰友文學原創】連載036: 1984進行時](https://gnews.org/zh-hans/433453/)
+[【戰友文學原創】連載037: 1984進行時](https://gnews.org/zh-hans/435784/)
 
-巴林王國和以色列國對美利堅合眾國確保一個更穩定、安全和繁榮的中東深表感謝。
-
-[閱讀英文全文](https://www.whitehouse.gov/briefings-statements/joint-statement-united-states-kingdom-bahrain-state-israel/)
-
-*翻譯：【Dlrow】 校對：【V%】 編輯：【GM31】*
-
-*戰友之家玫瑰園小隊出品*
-
-1
+0

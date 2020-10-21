@@ -1,23 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【精華版粵語快報】【路德社】10.20 薄甜甜發給亨特.拜登郵件的隱藏內容，FBI局長即將被免職
-`2020-10-21 02:03 GM42` [轉載自GNews](https://gnews.org/zh-hant/437630/)
+## 【世界多語言圖文】2020/10/14 CCP病毒每日疫情直播簡報
+`2020-10-21 09:45 GM62` [轉載自GNews](https://gnews.org/zh-hant/438158/)
 
-製作單位：戰友之家·粵語頻道
+戰友之家圖文摘要及小語種組
 
-製作團隊：路德二組（Andy Su、心安、剪刀手）
+[263\_English\_1014\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/21090659/263_English_1014_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/21090659/263_English_1014_CCP_Virus_Updates.pdf)
+
+[263\_French\_1014\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/21090702/263_French_1014_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/21090702/263_French_1014_CCP_Virus_Updates.pdf)
+
+[263\_Japanese\_1014\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/21100637/263_Japanese_1014_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/21100637/263_Japanese_1014_CCP_Virus_Updates.pdf)
+
+[263\_Koreah\_1014\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/21090705/263_Koreah_1014_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/21090705/263_Koreah_1014_CCP_Virus_Updates.pdf)
+
+[263\_Spanish\_1014\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/21090708/263_Spanish_1014_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/21090708/263_Spanish_1014_CCP_Virus_Updates.pdf)
 
 
-
-概要：
-
-薄甜甜是朱利安尼所說的四個重要證人之一，薄甜甜還活著，爆料革命保護著她。
-
-路德提及FBI局長可能今天會被開除掉。
-
-爆料革命是正義與邪惡的戰鬥，絕不是黨派之爭。
-
-彤寶國的被殺說明了盜國賊、共產體制的邪惡，驚醒了國安秘密戰線這些人的心。
 
 0

@@ -1,21 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【國內快評】新一輪韭菜收割季——中共爲新冠疫苗定價造勢
-`2020-10-21 01:29 HAIKUOTIANKONG` [轉載自GNews](https://gnews.org/zh-hant/437539/)
+## 俄媒体报道三块硬盘和美国选战，首次在国家级媒体介绍爆料革命的力量。
+`2020-10-21 08:59 HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hant/438144/)
 
-內新聞/素材：伍哥 校對：雅典娜的聖鬥士(沙加)
-
-新浪網10月20日報道：中共國務院聯防聯控機制科研攻關組疫苗研發專班組長、國家衛生健康委醫藥衛生科技發展中心主任鄭忠偉在談及中共國新冠疫苗的價格時表示：“在這個地方，我可以負責任的告訴大家，中國新冠疫苗的定價一定是在大衆可接受的範圍內。”
-
-先不說疫苗是不是有效，也不談論毒疫苗事件的心理陰影，中共不會免費給大家使用新冠病毒疫苗是肯定的了。那什麽樣的定價才算在大衆可接受的範圍內呢？全國14億多人口，其中農村人口大約有8億多，可以算是大衆群體了。
-
-按照國家統計局《2019年全國居民收入和支出情況》的統計，農村居民人均可支配收入爲16021元，其中可支配收入中位數爲14389元（處于最中間位置的調查戶人均收入），也就是說有一半的農民月收入不超過1199.08元，日均不到39.97元。
-
-4億多農村居民每天都要靠不到39.97元人民幣的收入養家糊口，一天三頓飯，每頓飯平均不超過13.32元的。由此可見，新冠疫苗的定價達到13.32元就會讓農村居民少吃一頓飯，如果達到39.97元，那麽農村居民就要一天不吃飯，餓著肚子去打疫苗了。
-
-不管怎樣定價，都是中共給4億多農村居民准備的一根結實的褲腰帶，不是勒緊人民的褲腰，讓百姓餓肚子，就是勒緊人民的脖子，讓百姓始終暴露在病毒的威脅之下！
-
-新聞來源：[https://news.sina.com.cn/c/2020-10-20/doc-iiznctkc6627245.shtml](https://news.sina.com.cn/c/2020-10-20/doc-iiznctkc6627245.shtml)
+> 2020年10月17日
+>  俄媒体（РОССИЯ 1）报道三块硬盘和美国选战，首次在国家级媒体介绍爆料革命的力量 [#Россия1](https://twitter.com/hashtag/%D0%A0%D0%BE%D1%81%D1%81%D0%B8%D1%8F1?src=hash&amp;ref_src=twsrc%5Etfw) [#КПК](https://twitter.com/hashtag/%D0%9A%D0%9F%D0%9A?src=hash&amp;ref_src=twsrc%5Etfw) [@ding\_gang](https://twitter.com/ding_gang?ref_src=twsrc%5Etfw) [@RussiaHimalaya](https://twitter.com/RussiaHimalaya?ref_src=twsrc%5Etfw) [@Masha44230612](https://twitter.com/Masha44230612?ref_src=twsrc%5Etfw) [https://t.co/zsYKSeff65](https://t.co/zsYKSeff65) [pic.twitter.com/4fReJVU4ev](https://t.co/4fReJVU4ev)
+> — 喜马拉雅农场俄罗斯站 (@RussiaHimalaya) [October 21, 2020](https://twitter.com/RussiaHimalaya/status/1318880816945106946?ref_src=twsrc%5Etfw)
 
 0
