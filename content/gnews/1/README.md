@@ -1,26 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 臉書竟僱傭持美國工作簽證的中共國籍員工進行言論審查！
-`2020-10-22 11:22 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/440417/)
+## 亨特-拜登的郵件洩露了和中共國的骯髒交易
+`2020-10-22 14:39 英國喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hant/440774/)
 
-喜馬拉雅聯盟加拿大農場天使在人間坐看雲起時上傳WJ
+*新聞來源：Breitbart《布賴特巴特》；作者：SIMON KENT；發佈時間： 2020年10月15日*
 
-最近一段時間， Facebook對有關亨特•拜登與中共之間的腐敗交易的報導進行了極苛刻的審查。據報導，在審查團隊中包含至少六名中共國人， 他們通過修改程序算法把有關拜登的新聞放在不顯眼的位置。 《紐約郵報》10月20日報導：據前Facebook內部人士透露，負責Facebook新聞審查的團隊里至少有六名是拿著H-1B簽證的中共國籍員工。
+*翻譯/簡評：Victory；校對：感恩；審核：InAHurry；Page：拱卒*
 
-這位內部人士認為Facebook的老闆願意為了讓這些中共國籍員工從事這項工作而給他們申請H-1B簽證。這位內部人士透露了主要從事這項工作的內部團隊結構，它被稱為仇恨言論工程（取名自喬治·奧威爾的書《Call Your Office》），項目的主要成員都在Facebook的西雅圖辦公室。
+[!\[\]()!\[\](https://spark.adobe.com/page/PwSZYL25T9ffz/images/ee9035d2-013f-4ad8-9017-6367ed0920b4.jpg?asset_id=cee77335-71ca-4bdd-94fa-3ab60926c1da&amp;img_etag=%22838551aaeeb2a06a266283defeaaed14%22&amp;size=1024)](https://spark.adobe.com/page/PwSZYL25T9ffz/images/ee9035d2-013f-4ad8-9017-6367ed0920b4.jpg?asset_id=cee77335-71ca-4bdd-94fa-3ab60926c1da&amp;img_etag=%22838551aaeeb2a06a266283defeaaed14%22&amp;size=1024)
 
-報導繼續揭示了許多與中共有關的人在這個團隊中：
-根據LinkedIn檔案，仇恨言論工程團隊的工作人員包括西雅圖辦公室的一名研究科人員，擁有中科院計算機所工程碩士學位；該團隊的另一位成員是西雅圖機器學習（人工智能技術的重要組成部分）軟件工程師，擁有中國吉林大學計算機學士和碩士學位。還有一位工程管理人員，在南京大學獲得了計算機學士學位；還有一位軟件工程師曾在中共扶持的華為和中國鐵路信號與通信設計研究院工作。記者嘗試聯繫了所有六名員工，有兩人給予了答复，確認他們是中共國人，但拒絕透露更多信息; 其餘的則沒有回答。
+**簡評：**
 
-機器學習是一項及其複雜的技術——正如技術網站DeepAI.org所說，這項技術的主要目的是教會計算機如何在沒有明確程序指令的情況下“自己學習和採取行動”。具體到社交媒體的審查，這意味著”指導”Facebook的軟件將某些特定內容在新聞內容搜索中置頂，而同時這也意味著“某些其他內容”被放到”最後顯示”— -比如《紐約郵報》關於拜登家族與中共進行交易的報導。這些算法可以把Facebook老闆口中“觸碰紅線”的新聞內容屏蔽掉。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22105448/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE518.png)圖片來源： techcrunch.com
-這一切也許造就了人類歷史上最令人膽寒的複雜審查機制。 “他們不會直接禁止某個的支持川普總統的內容，”但是，”只要內容過於保守，他們就會降低此內容的搜索排名使人們不容易發現。這讓人們無法抓住Facebook新聞審查的把柄。本文的重點不是要關注個人，而是要提出一個問題：一個構築防火牆、禁止Facebook的國家的人是如何在美國參與對社交媒體的審查的。
+本文提及的內容只是拜登家族與中共勾兌的冰山一角。目前已被公佈的信息中除了有亨特拜登的“艷照門” 、 “紐約價值數千萬美元豪華公寓” 等，還有大量的其它細節。可以毫不誇張的說，拜登家族出賣了美國利益，並和中共國盜國賊有極為密切的合作。更恐怖的是，這些硬盤資料在2019年已經給到FBI，但FBI對此事沒有任何動作，足見美國被邪惡力量滲透的程度。截止目前，拜登家族尚未就這些證據做出回應。想了解更多的細節，敬請關注路德社的每日早晚視頻直播。
 
-當然，許多大型高科技公司都會從中共國、印度和其他地方招募人才，其中許多人希望永久地在美國定居並追求“美國夢”。但是有些人可能不同，糟糕的是他們即將返回的地方已經建立了最全面、最完善的信息封鎖機制。到底為什麼中共不許Facebook的中共國工程師施展他們的特長？全球主義者認為與中共接觸將使他們更加開放，而我擔心這反而會更加束縛我們的手腳。
+## **電子郵件：亨特-拜登爭取與一些中共國人士達成“長期且利潤豐厚的協議”**
 
-儘管Facebook發言人強調該公司的政策與標準使公開公正的， 但參議員們認為應該是時候終結230條款賦予大型科技公司的特權了。
+[!\[\]()!\[\](https://spark.adobe.com/page/PwSZYL25T9ffz/images/e7265be9-831a-4b79-af24-a6c3595a7585.jpg?asset_id=2d054648-c0a4-4621-8e50-14552ae60303&amp;img_etag=%2295d9e856d65ad9ebc5124c1caf56fc22%22&amp;size=2560)](https://spark.adobe.com/page/PwSZYL25T9ffz/images/e7265be9-831a-4b79-af24-a6c3595a7585.jpg?asset_id=2d054648-c0a4-4621-8e50-14552ae60303&amp;img_etag=%2295d9e856d65ad9ebc5124c1caf56fc22%22&amp;size=1024) 美聯社圖片/ Patrick Semansky
 
-**簡評：**這個世界太荒唐，人權記錄最差的國家堂而皇之地選入聯合國人權理事會，來自網絡禁言最嚴重的國家的人正在為號稱自由民主燈塔的美國進行嚴苛的言論審查。這個世界太需要重塑秩序，正本清源。凡是甘心與邪惡為伍，赤膊上陣地打壓民眾的言論自由，視民眾為草芥的一眾高科技公司，終會迎來清算的一天。
+**據《紐約郵報》週四公佈的新一批電子郵件顯示，在亨特-拜登尋找“令我和我的家人感興趣的交易”時，與一家中共國大公司討論可能的業務參與。**
+
+這位民主黨總統候選人的兒子與中共國最大的私人能源供應商華信能源集團通信，是《紐約郵報》在據稱是亨特的個人筆記本電腦上發現的。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/PwSZYL25T9ffz/images/84965a10-0147-40b2-b243-7535c1b4c5b6.jpg?asset_id=7bc2e337-e381-48c8-9f4b-75a7633f12dd&amp;img_etag=%221244a4b0a5938ed19b42834c1215e346%22&amp;size=2560)](https://spark.adobe.com/page/PwSZYL25T9ffz/images/84965a10-0147-40b2-b243-7535c1b4c5b6.jpg?asset_id=7bc2e337-e381-48c8-9f4b-75a7633f12dd&amp;img_etag=%221244a4b0a5938ed19b42834c1215e346%22&amp;size=1024)
+
+在2017年5月發給亨特的一封題為“期望”的電子郵件中，他們討論了一家企業中六個人的薪酬方案細節。
+
+他被確定為“主席或副主席”，“取決於與CEFC達成的協議”，顯然指的是現已破產的上海企業集團-中共國華信能源公司。拜登的薪資定為“850”，信函還提到了他“對辦公環境有一些期望，他將詳細說明。”
+
+據布萊巴特新聞(Breitbart News)報導，就在郵件曝光不到24小時前，《紐約郵報》還公佈了其他一些電子郵件，這些郵件顯示，喬·拜登說他“從未和兒子談論過他的海外業務”是撒謊。
+
+根據魯迪·朱利安尼給紐約郵報的資料寶庫，天然氣公司布利斯瑪（Burisma）的顧問瓦迪姆·波扎爾斯基(Vadym pozharsky)在2015年的一封電子郵件中感謝亨特“給了見到你父親的機會”。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/PwSZYL25T9ffz/images/fc304447-be79-4e81-8124-48d5b25dad3b.jpg?asset_id=875c9fcf-8637-4577-b7f6-49f098e79b5e&amp;img_etag=%220520f69e94273447c92115a3d6cec997%22&amp;size=3065)](https://spark.adobe.com/page/PwSZYL25T9ffz/images/fc304447-be79-4e81-8124-48d5b25dad3b.jpg?asset_id=875c9fcf-8637-4577-b7f6-49f098e79b5e&amp;img_etag=%220520f69e94273447c92115a3d6cec997%22&amp;size=1024)
+
+在最新的緩存中，一封郵件概述了一份“臨時協議”，其中80%的股份將平均分配給四個用姓名首字母指代的人（其中一位首字母與亨特相關，以及其他三人）。
+
+詹姆士（James Gilliar）從諮詢公司J2cR發郵件說:“如果細節有不足之處，我很樂意向臧先生反饋。”
+
+“臧”似乎是指華信能源前執行董事臧建軍。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/PwSZYL25T9ffz/images/06b17159-e2c8-44b1-b3b4-186e69f04242.png?asset_id=9db76259-c9ba-45ab-b109-556c11175f8f&amp;img_etag=%228d7e0ada3bb827a93ce94f0580d1ad11%22&amp;size=2560)](https://spark.adobe.com/page/PwSZYL25T9ffz/images/06b17159-e2c8-44b1-b3b4-186e69f04242.png?asset_id=9db76259-c9ba-45ab-b109-556c11175f8f&amp;img_etag=%228d7e0ada3bb827a93ce94f0580d1ad11%22&amp;size=1024) 臧建軍
+
+在2017年的另一封郵件中，據報導，拜登和葉簡明討論了一個交易，隨後這位華信能源的董事長（葉簡明）就消失了。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/PwSZYL25T9ffz/images/9b169674-8d6f-4465-986f-2f386e500530.png?asset_id=3e7eef7d-8d3e-41e0-84bd-d88ee4152c7e&amp;img_etag=%22c51bce9425fed36522cfad583eba0b55%22&amp;size=1024)](https://spark.adobe.com/page/PwSZYL25T9ffz/images/9b169674-8d6f-4465-986f-2f386e500530.png?asset_id=3e7eef7d-8d3e-41e0-84bd-d88ee4152c7e&amp;img_etag=%22c51bce9425fed36522cfad583eba0b55%22&amp;size=1024)葉簡明
+
+他還試圖明確，他的努力不應沒有回報，“諮詢費是我們收入的一部分，但讓我和我家族對主席（葉簡明）所提出方案更感興趣的原因是，我們還是這個合資公司的資產和收益的合夥人。（譯者註：原郵件中inn [sic 原文如此]，可能為in的筆誤）
+
+[原文鏈接](https://www.breitbart.com/politics/2020/10/15/emails-hunter-biden-strives-for-lasting-and-lucrative-arrangement-with-chinese-nationals/)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/PwSZYL25T9ffz/) -點擊spark adobe版
+
+更多資訊請關注[英国喜庄园/战鹰团文宣电台]： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
+
+[英国喜庄园YouTube]: [https://www.youtube.com/channel/UC\_1vMDgDmkUw5N14G-0XsRA](https://www.youtube.com/channel/UC_1vMDgDmkUw5N14G-0XsRA)
+
+[英国喜庄园GTV/盖特]: [https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
 0
