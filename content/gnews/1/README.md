@@ -1,33 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共造船廠傾斜低迷主戰艦已成“落後裝備”
-`2020-10-22 04:30 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/439589/)
+## Tucker驚爆：臉書雇傭大量中共國工程師編制其新聞審查算法！
+`2020-10-22 07:58 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/439803/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22040901/1-175.png)
-圖片來源: sina.com.cn
-《今日印度》(India Today)網站20日報導，中共最大的造船廠之一大連造船工業公司的最新衛星圖像顯示，該廠造艦艇速度已大幅下降。與2019年新幹船塢下水的四艘主戰艦艇相比，今年進展非常緩慢，僅下水了兩艘艦艇。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22073941/Tucker_20201020_Facebook_Censorship-photo.png)
+福克斯新聞的 Tucker Carlson 在[2020年10月20日的節目](https://video.foxnews.com/v/6203384235001)中，驚爆臉書僱員揭露負責臉書審查言論的所謂「仇恨言論工程團隊」里，有半打持工作簽證的中共國人外籍工程師，負責編寫審查程序，而且他們在過去的幾天中行動異常活躍。
 
-**0** **55****型****導彈巡洋艦**
+Tucker 邀請的《紐約郵報》（New York Post）特約嘉賓曝光臉書中有一位爆料人和前僱員曝光了此事。此爆料人還透露這個「仇恨言論工程團隊」的人大部分在西雅圖工作，至少有半打（6人）是中共國在持美國工作簽證的外籍工程師。紐約郵報的記者提醒美國人要警醒這些大科技公司雇傭來自鉗制言論自由的中共國的技術人員，提出雖然很多人是因為美國夢來到這裡定居，但是也有很多人用這裡學習的技術，如機器輔助學習技術（machine learning），回去幫助習近平壓制他們本國的人民。
 
-055型刃海級（The Type 55 Renhai-class）巡洋艦是隱形導彈巡洋艦，作用與美國的提康德羅加級（Ticonderoga-class）巡洋艦相當。最近的《2020年中共軍力報告》（CCP Military Power Report 2020）指出，排量為一萬噸的055型可以攜帶遠程艦空導彈，遠程反艦巡航導彈，未來很可能能夠發射反艦彈道導彈。
+福克斯的此報道已在美國民眾中發酵，網友表示震驚。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22073951/Tucker_20201020_Facebook_Censorship-figure1.png)圖片來源：[https://mobile.twitter.com/stillgray/status/1318806443764576256?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1318806443764576256%7Ctwgr%5Eshare\_3%2Ccontainerclick\_0&ref\_url=https%3A%2F%2Fwww.investmentwatchblog.com%2Ftucker-carlson-facebook-at-least-half-a-dozen-members-of-the-in-house-team-are-in-fact-chinese-nationals-in-this-country-on-h-1b-visas-theyre-in-charge-of-developing-algorithms-to-censor-what-y%2F](https://mobile.twitter.com/stillgray/status/1318806443764576256?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1318806443764576256%7Ctwgr%5Eshare_3%2Ccontainerclick_0&amp;ref_url=https%3A%2F%2Fwww.investmentwatchblog.com%2Ftucker-carlson-facebook-at-least-half-a-dozen-members-of-the-in-house-team-are-in-fact-chinese-nationals-in-this-country-on-h-1b-visas-theyre-in-charge-of-developing-algorithms-to-censor-what-y%2F)
+報道：【Isaiah4031】
 
-自2018年以來，大連造船廠每年至少下水兩艘055型導彈巡洋艦。 2019年下水的最後一艘是大連造船廠的第六艘055型。然而與往年相比，055型的建造速度相當緩慢，中共國2020年只在大連8月29日下水了一艘055型刃海級巡洋艦。衛星圖像捕捉到了正在施工的碼頭。最新的衛星圖像顯示，2020年9月19日在大連的055型上安裝了球根狀的聲納。
-
-**052D型導彈驅逐艦**
-
-大連造船廠下水的第二艘主力戰艦是旅洋III級（Type 52D Luyang III-class）驅逐艦。它是中共海軍最新一代的導彈驅逐艦（DDG）之一。
-
-52D型是其前身52C型的較大改良型，排水量為7,500噸，具有艦載垂直發射系統（VLS），而不是旋轉式。 52D型在設計和武器裝備方面進行了多項改進。中共海軍（PLAN）宣稱，兩款主雷達—346型和518型—為垂直發射系統提供支持，使其成為接近美國海軍宙斯盾戰鬥系統（Aegis Combat System）的系統。中共海軍只在2020年8月29日從大連下水了一艘52D型。
-
-最新的衛星圖像顯示了大連造船廠可能在接下來的兩個月內無法從該船廠下水另一艘主戰艦艇。中共國的葫蘆島（核潛艇），上海江南長興和廣州等主要建造船廠也觀察到類似的生產速度減慢。
-
-**評：**不論是052D型還是055型，對於中共海軍來講，已經可以稱為“落後裝備”了。 052系列，艦體空間利用率已經非常高，儲備浮力不足，自持性與抗浪性也比較一般，動力與能源系統支持346雷達這種四面陣大型有源相控陣雷達已經比較勉強，支持346A 、甚至未來更大的相控陣雷達，其持續作戰能力與態勢感知能力都無法適應未來遠洋作戰的需求。而055型，目前的技術狀態本身就不是“完美狀態”，還需要作進一步的細化設計。
-
-因此中共不得不暫停主戰艦生產率，徹底陷入老式的軍艦不能再造，而新式的軍艦不知道怎麼造的窘境之中。
-
-[原文鏈接](https://www.indiatoday.in/world/story/china-s-largest-ship-building-yard-in-the-doldrums-1733536-2020-10-20)
-
-翻譯報導：Tracy
+戰友之家玫瑰園小隊出品
 
 0

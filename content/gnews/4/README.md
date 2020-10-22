@@ -1,38 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 10/22財經快訊：螞蟻金服-不服不行；虛擬貨幣-小三登堂入室
-`2020-10-22 03:21 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/439554/)
+## 中國人為什麼不相信真相
+`2020-10-22 07:37 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/439779/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22031127/1-174.png)[https://s2.reutersmedia.net/resources/r/?m=02&d=20201021&t=2&i=1538298136&w=640&fh=&fw=&ll=&pl=&sq=&r=LYNXMPEG9K0YI](https://s2.reutersmedia.net/resources/r/?m=02&amp;d=20201021&amp;t=2&amp;i=1538298136&amp;w=640&amp;fh=&amp;fw=&amp;ll=&amp;pl=&amp;sq=&amp;r=LYNXMPEG9K0YI)
-1, 與主要美國股指相關的期貨合約在周三晚間交易時段下跌。道瓊斯工業平均指數下跌了150點，而標準普爾500指數和納斯達克-100指數也下跌了約0.6％。
+作者：道行天下
 
-[https://www.cnbc.com/2020/10/21/stock-market-futures-open-to-close-news.html](https://www.cnbc.com/2020/10/21/stock-market-futures-open-to-close-news.html)
+和牆內屁民說共產黨即將倒台，沒有人會相信，說郭文貴先生能滅共，覺得是天方夜譚，說新冠病毒是中國軍方的生化武器，他們認為這是陰謀論。當你和他們說起這些真相的時候，一是不相信，二是把你當成破壞者，當成負能量，唯恐天下不亂。在他們的觀念中，有吃有穿比什麼都強。什麼民主、自由，既不能當飯吃，又不能當衣穿，國家大事不是普通老百姓能管得了的事情。當你和他們說真相的時候，反而認為你是被外媒洗腦，被別有用心的人所利用。
 
-2, 今日（2020年10月21日）最佳抵押貸款率數據分析：現在可能是獲取固定利率抵押貸款或再融資的好時機。利率到2021年可能會保持較低水平，甚至更長的時間。
+每當聽到這種反駁，真不知該哭還是該笑，內心會升起無名的悲傷與憤怒，但這就是現實。真應了那句可憐之人必有可恨之處，身為奴隸，過著豬狗不如的生活，卻在為奴隸主操碎了心，自覺去維持奴隸主的統治，這恰恰就是我們的兄弟姐妹。正如文貴先生所說，我們每一位爆料革命戰友，都是家里或家族中唯一清醒的人，我們必須忍辱前行，去拯救他們。
 
-[https://www.businessinsider.com/personal-finance/best-mortgage-refinance-rates-today-wednesday-october-21-2020](https://www.businessinsider.com/personal-finance/best-mortgage-refinance-rates-today-wednesday-october-21-2020)
+當一種聲音深入骨髓，其它任何語言都是雜音，這就是中共馭民五術之一“壹民”的效果，黨媒洗腦的結果。
 
-3, 美教育部在有關學校和外國合同的最新報告中指出, Cornell大學最初未能向美國當局報告其近年來收到的超過12億美元的外國資金，其中包括與卡塔爾(Qata)校園相關的7.6億美元，以及中國電信公司華為技術有限公司（美國教育）的約100萬美元合同。
+由於70多年中共虛假教育，大部分中國人已經對真相具有超強的免疫力。奴隸當久了，讓他擁有自由，他們反而不適應，認為不正常。中共七十年的統治，已經是黑白顛倒，是非不分。世界已經進入到二十一世紀，自由、民主、法治已經在人類社會如空氣一樣存在，但在中國人的頭腦中還是幾百年前封建王朝的那套思想，甚至更遠，到了奴隸社會。
 
-[https://www.wsj.com/articles/top-universities-took-billions-in-unreported-foreign-funds-us-finds-11603226953](https://www.wsj.com/articles/top-universities-took-billions-in-unreported-foreign-funds-u-s-finds-11603226953)
+謊言說一千遍就成了真理，共產黨深暗此道。愛國變成了愛黨，愛黨變成了愛領導。集中力量辦大事，變成了為獨裁、壟斷找到了依據。在謊言的世界裡，真相就是挑破膿瘡的針，會給人帶來痛苦，所以大部分人會選擇捂著，繼續接受謊言。
 
-4, 倫敦（路透社）-PayPal Holdings Inc（PYPL.O）週三表示，它將允許客戶在其在線錢包中持有比特幣和其他虛擬代幣，並通過其網絡上的2600萬商家使用加密貨幣進行購物。
+我們不要相信防火牆倒了，牆內民眾就會覺醒，只要中共不倒，他們會選擇相信謊言。有很多身在牆外，關注的還是牆內虛假新聞，對國外中立的媒體反而不相信，因為中共已經給他們打了預防針。
 
-[https://mobile.reuters.com/article/amp/idUSKBN2762D5](https://mobile.reuters.com/article/amp/idUSKBN2762D5)
+一、中國很強大，西方世界害怕超過他們。
 
-5， 中共正在用芬太尼和冠狀病毒殺死成千上萬的美國人，他們卻在其中獲利。多年來，中共政權一直在將芬太尼推向美國: 大陸是芬太尼美國非法藥物市場的主要來源，也常常是墨西哥生產芬太尼的前體藥物的主要來源。
+二、境外媒體都是不懷好心，想搞亂中國。
 
-[https://www.gatestoneinstitute.org/16662/china-fentanyl-source](https://www.gatestoneinstitute.org/16662/china-fentanyl-source)
+三、中國是有各種問題，但是國家太大，治理有一個過程，我們要有耐心。
 
-6, 在周三的新聞發布會上，美國家情報局局長約翰·拉特克利夫（John Ratcliffe）表示，伊朗和俄羅斯已獲得美國選民登記信息，可用於“試圖將虛假信息傳達給已登記的選民“ 目的是乾擾美國大選。
+四、中國必須一黨執政，否則就會亂，一亂就會戰火紛飛，如利比亞、伊拉克一樣。
 
-[https://www.breitbart.com/clips/2020/10/21/ratcliffe-iran-and-russia-have-obtained-voter-info-iran-has-tried-to-damage-president-trump/amp/ ?\_\_twitter\_impression=true](https://www.breitbart.com/clips/2020/10/21/ratcliffe-iran-and-russia-have-obtained-voter-info-iran-has-tried-to-damage-president-trump/amp/?__twitter_impression=true)
+五、世界很亂，中國很好。
 
-7, 10月21日-中國證監會周三表示，已批准螞蟻集團在上海上市註冊。
-
-[https://www.reuters.com/article/ant-group-ipo/china-securities-regulator-approves-registration-of-ant-groups-shanghai-listing-idUSB9N2D401D](https://www.reuters.com/article/ant-group-ipo/china-securities-regulator-approves-registration-of-ant-groups-shanghai-listing-idUSB9N2D401D)
-
-By 【秘翻組- 金融法律團隊】
+由於中共長期虛假新聞報導與宣傳，讓真相在民眾眼中成為別有用心，而假的當成真的。只要沒有人認識到中共體制的邪惡，就一定會落入中共設計好的陷阱，永遠困在其中，拒絕真相，拒絕救援。
 
 0
