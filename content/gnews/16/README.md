@@ -1,44 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Netflix推廣《Cuties 》&#8221;描繪未成年人的淫穢視覺效果 &#8220;在德州被起訴
-`2020-10-21 14:46 GM77` [轉載自GNews](https://gnews.org/zh-hant/438693/)
+## 傅希秋家的草坪全枯！風水破敗！
+`2020-10-21 17:28 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hant/438883/)
 
-整撰：文錦
-復核：WENJUN
+作者：天高雲淡LM02
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/21143959/3-24.jpg)
+10月21日，為子孫愛七哥農場8位戰友從紐約出發，橫跨大半個美國，3千多公里，毫不畏懼病毒感染風險，趕往德克薩斯州米蘭德市參加針對中共間諜傅希秋的“懲賊行動”。戰友們在爆料革命正道主義信仰的感召之下，為維護正義而勇敢發聲，為揭露真相而積極行動！10月21日，為子孫愛七哥農場8位戰友從紐約出發，橫跨大半個美國，3千多公里，趕往德克薩斯州米蘭德市參加針對中共間諜傅希秋的“懲賊行動” 。戰友們在爆料革命正道主義信仰的感召之下，為維護正義而勇敢發聲，為揭露真相而積極行動。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/21164126/7-14-scaled.jpg)*傅希秋家門口草坪一片枯萎，毫無生機，死气沉沉*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/21165024/5-17-scaled.jpg)*傅希秋家門口草坪一片光禿禿*，死氣沉沉
+秋天的德州， 天氣不算冷，但戰友們發現傅希秋家門前的草坪上卻寸草不生，一片枯黃，毫無生機，死气沉沉，與四周鄰居家門前綠油油的草坪形成了鮮明對比。戰友感慨：“這個散發著CCP惡臭的傅希秋的家，連草都不願意往他家門口長！”為子孫愛七哥農場的一位戰友一語道破天機：“是風水不行！”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/21164206/8-6-scaled.jpg)*四周鄰居家門前的草坪生機盎然，一片綠油油*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/21164322/9-3.jpg)*傅希秋家門口與隔壁鄰居家的草坪形成鮮明對比*
+看得出來，傅希秋目前已是泥菩薩過江——自身難保，所以完全顧不上打理自家庭院了。戰友們連日來的懲賊示威行動顯示出強大威力，已經把傅希秋嚇破膽，讓他根本無力維繫所謂“虔誠牧師”的形象，徹底自暴自棄。就像這片草坪一樣，傅希秋為首的中共特務群體在美國的前途命運，已是“風燭殘年”！中共偽政權在爆料革命全球戰友的共同努力下，也已經是“風雨飄搖”！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/21162958/image1-19.jpg)*為子孫愛七哥農場（美東）8位戰友參加德州懲賊行動*
+跟隨七哥三年爆料革命以來，戰友們曾經在推特和facebook上與各種偽類五毛戰鬥。如今的全球懲賊行動，是戰友們從線上走到線下，直面共匪海外潛伏力量的“肉搏戰”。懲賊對象分為三類：
 
-圍繞法國電影《Cuties》在Netflix上推廣的爭議現在已經發展到對流媒體服務的刑事指控。
+- 第一類是朱萬利、潘林正、相林等一系列戰友“耳熟能詳”的前線偽類，主要特點是屬於共匪海外間諜網絡終端的小嘍囉；
+- 第二類是梁冠軍、李紅寬、黃河邊之類，是共匪海外小頭目，屬於間諜網絡的外圍節點；
+- 最後才是傅希秋，可以歸類於共匪海外間諜網絡的局部核心節點，類似於間諜戰的站長式人物。
 
-周二，德克薩斯州第六區的共和黨眾議員馬特-沙弗（Matt Schaefer）在推特上發布了一張9月23日在德克薩斯州泰勒縣提交的法庭文件的照片，在大陪審團的起訴書中指控這家娛樂公司在發行《Cuties》時 “推廣描述兒童的猥褻視覺材料”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/21164729/23-1.jpg)*為子孫愛七哥農場（美東）8位戰友參加德州懲賊行動*
+傅希秋背靠共匪休斯頓領事館，是中共在美國南方區域的間諜大佬。 CCP為了扶植他甚至為他提供了多種產業鏈：
 
-> Netflix, Inc. indicted by grand jury in Tyler Co., Tx for promoting material in Cuties film which depicts lewd exhibition of pubic area of a clothed or partially clothed child who was younger than 18 yrs of age which appeals to the prurient interest in sex [#Cuties](https://twitter.com/hashtag/Cuties?src=hash&amp;ref_src=twsrc%5Etfw) [#txlege](https://twitter.com/hashtag/txlege?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/UJ1hY8XJ2l](https://t.co/UJ1hY8XJ2l)
-> — Matt Schaefer (@RepMattSchaefer) [October 6, 2020](https://twitter.com/RepMattSchaefer/status/1313517817942212608?ref_src=twsrc%5Etfw)
+- 其一是通過他的渠道從國內輸送偽民運出國，在美國政界幫他賺取政治資本；
+- 其二是為其在美國開設兩個酒莊洗錢，以及提供每年幾百萬的捐助作為藍金黃的運作資本，供其與美國參眾議院大量議員勾結輸送利益及捐贈，並在其住所所在地深度藍金黃當地政府、警察及牧師，編織起屬於他的的黑暗大網。
 
-泰勒縣地方檢察官盧卡斯-巴賓（Lucas Babin）在一份新聞稿中說：”在聽說了《Cuties》這部電影並看了它之後，我知道有可能的理由相信這是犯罪….”。
 
-《Cuties》在流媒體平臺上被評為TV-MA級，影片講述一個11歲的小女孩艾米在巴黎郊區的貧困地區成長，家人是傳統的塞內加爾移民，艾米卻加入學校裏一支被稱為 “Cuties “的舞蹈隊，從此在西方自由價值觀和穆斯林保守傳統之間掙紮。這是一個成長的故事，但Netflix在宣傳這部電影時犯了一些嚴重的錯誤，最終把它變成了今年最有爭議的電影之一。
+因此，剪斷傅希秋這樣的局部網絡中心，無論是現實意義，還是對未來的滅共佈局都是極其重要的。一是，將共匪一個大的間諜系統連根拔起，破壞其組織結構；二是，為將來在法庭上審判傅希秋提供素材和民意基礎，這是參考了朱利安尼先生當時對付紐約五大黑幫的做法（美國是案例法國家，只要有一個成功的審判案例，以後的類似案件就可以遵循該判例）。
 
-早在8月，Netflix就在為《Cuties》制作的營銷海報引起反響後公開道歉，批評者稱該海報將兒童色情化。這張有爭議的海報上，影片中的四個年輕女孩穿著暴露的舞蹈服裝，同時擺出暗示性的舞蹈姿勢
+這次戰友們參加德州懲賊行動是一次艱苦而意義重大的團隊行動！向美國社會撕開傅希秋的偽牧師面具，揭露他的中共間諜身份，並依法懲賊，要靠前線戰友在前線充當開路先鋒！戰友們一定要順利打開這個局面，為以後郭先生以及美國正義力量的戰略佈局披荊斬棘、開闢道路。
 
-在社交媒體上，人們稱這部電影的Netflix海報為“令人作嘔”，“令人沮喪”和“病態的” ，上個月#CancelNetflix的標簽開始在社交媒體上流行起來，之後Netflix為Cuties辯護說是 “社會評論”。
+**更多精彩資訊請關注：**
 
-“Cuties是一部反對未成年人性行為的社會評論影片，”Netflix發言人當時在一份聲明中告訴人們。”這是一部獲獎影片，也是一個關於未成年少女在社交媒體上和更普遍的社會成長中所面臨的壓力的強大故事–我們會鼓勵任何關心這些重要問題的人觀看這部電影。”
+- 為子孫愛七哥農場官方推特：[https://twitter.com/wzsaqg](https://twitter.com/wzsaqg)
+- 為子孫愛七哥農場官方GTV號：[https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
+- 歡迎加入農場discord官方群：[https://discord.com/invite/2vXAV6G](https://discord.com/invite/2vXAV6G)
 
-“我們對我們為《Cuties》所使用的不恰當的藝術宣傳深感抱歉。 “Netflix在8月20日的推特上寫道。”我們現在已經更新了圖片和描述。”
-
-此後，至少有四個州的總檢察長要求Netflix撤下該片；參議員特德-克魯茲(Ted Cruz)敦促進行刑事調查；參議員邁克-李(Mike Lee)表示，他對Netflix的道歉不滿意；德克薩斯州大陪審團本月早些時候起訴Netflix推廣 “兒童猥褻材料”。
-
-編者觀點：
-
-看過《Cuties》之後，感到這部影片對外宣傳是未成年少女成長的故事，但影片卻將筆墨著重放在了這群少女們的叛逆和對性的憧憬，可以說它是一部未成年人禁區的百科全書，片中提及了校園霸淩、在洗手間討論異性私處、上成人視頻聊天網站、戀童癖、偷竊、拍個人隱私上傳到社交媒體等等很多現代社會問題，甚至嘗試用身體引誘異性。Cuties舞蹈組合中的幾個未成年少女模仿成人情色舞蹈動作，有大量的特寫鏡頭突出少女們的某些身體部位。個人認為，這些令人不適的鏡頭在片中頻繁出現的意圖已脫離了影片要表達的主題。
-
-由此可見，民眾對《Cuties》的爭議不是空穴來風。來自穆斯林傳統家庭的少女，渴望西方自由價值，她嘗試沖破傳統的禁錮後最終仍體會到原生家庭的自在溫暖，這樣的主題固然沒有錯，問題出在制作方拍攝者的表現手法和作為發行商的Netflix的宣傳手段，兩者都一邊倒地在用這些未成年少女們的身體部位和肢體動作，吸引觀眾的目光，他們的作法對公眾社會釋放出難以控制的危險信號。
-
-（以上僅代表個人觀點）
-
-參考鏈接：
-[https://people.com/movies/netflix-indicted-in-texas-over-cuties-controversy/](https://people.com/movies/netflix-indicted-in-texas-over-cuties-controversy/)
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20123101/%E5%86%9C%E5%9C%BA%E5%B9%BF%E5%91%8Av7-3.jpg)
 0

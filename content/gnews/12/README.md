@@ -1,58 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 面對中共國的兩棲登陸計劃，台灣，你準備好了嗎？
-`2020-10-21 16:09 英國喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hant/438775/)
+## 中共又去黑客日本冠狀病毒疫苗項目
+`2020-10-21 19:55 英國喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hant/438973/)
 
-*新聞來源：ZeroHedge《零對沖》；作者：泰勒·德登（Tyler Durden）；發佈時間： 2020年10月17日*
+*新聞來源：National Cyber Security News Today 《今日國家網絡安全新聞》；發佈時間： 2020年10月19日*
 
-*翻譯/簡評：Bob1203(文虓)；校對：1818；審核：海闊天空；Page：拱卒*
-
-[!\[\]()!\[\](https://spark.adobe.com/page/r1o171XOXin8B/images/ce005f5c-bbf1-49d8-8370-2b271858c476.jpg?asset_id=96be21c0-694e-4147-b96f-a00b42136e14&amp;img_etag=%2265d77061e4e801db5e1fc6381437402e%22&amp;size=1024)](https://spark.adobe.com/page/r1o171XOXin8B/images/ce005f5c-bbf1-49d8-8370-2b271858c476.jpg?asset_id=96be21c0-694e-4147-b96f-a00b42136e14&amp;img_etag=%2265d77061e4e801db5e1fc6381437402e%22&amp;size=1024)
+*翻譯/簡評：萬人往；校對：感恩；審核：海闊天空；Page：Eric8848*
 
 **簡評：**
 
-日前中共國完成了大規模的兩棲作戰登陸演習，以達到威懾和恐嚇台灣的目的，川普總統的國家安全顧問周五在阿斯彭研究所（Aspen Institute）發表了一份具有啟示性的聲明，作為對該舉動的回擊。羅伯特·奧布賴恩（Robert C. O’Brien）敦促台灣採取適當的策略阻擋中共國兩棲登陸，建議考慮一些非對稱作戰和區域封鎖策略，以此保證領土不被中共國入侵，並舉例香港為前車之鑑。但他認為中共國並沒有侵占台灣的實力。並明確表示，如果中共國敢襲擊台灣，“他們將失去他們希望獲得的一切並成為國際社會的棄兒。”
+中共一邊在國內大肆宣傳所謂自主研發的疫苗，一邊搞小動作，竊取別國疫苗研究情報。倘若中共在國內推廣的新冠疫苗有效，為什麼還要費盡心思地讓黑客盜取其他國家的疫苗研究成果？
 
-從中我們也可以看到，雖然中共一再在南海及台灣海峽附近大秀肌肉搞各種演習，挑釁或者企圖威懾台灣及周邊國家地區，但以美國為首的世界中堅力量已看清中共“紙老虎“的實質。此刻唯有各方正義勢力聚焦中共病毒真相，才能一錘打到中共邪惡政權的七寸，並藉此排幹國際上的中共藍金黃沼澤，還世界人民以和平與自由！
+疫苗固然重要，但在中共發動的超限戰面前，最重要的是滅共，查清病毒真相。中共不滅，病毒會持續肆虐，新的毒株隨時有可能被釋放出來。就算疫苗被研製出來，誰能保證對新的毒株有效？對抗中共無底線的超限戰，唯有真善狠。正如班農先生所言，給中共72小時的時間，查清病毒真相，否則，切斷美元供應。
 
-## 
-**國家安全顧問奧布萊恩：台灣必須準備阻止中共國兩棲登陸**
+## **針對日本冠狀病毒疫苗項目的網絡攻擊指向中共國**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/r1o171XOXin8B/images/17fa24c2-fc7e-4b17-bbf7-db310fffbb92.jpg?asset_id=61f603e1-cbd1-42d8-a493-4313f15e4268&amp;img_etag=%22a8b2d40b12074e795e95adf55236f44b%22&amp;size=1024)](https://spark.adobe.com/page/r1o171XOXin8B/images/17fa24c2-fc7e-4b17-bbf7-db310fffbb92.jpg?asset_id=61f603e1-cbd1-42d8-a493-4313f15e4268&amp;img_etag=%22a8b2d40b12074e795e95adf55236f44b%22&amp;size=1024)中共國新型兩棲攻擊艦
+[!\[\]()!\[\](https://spark.adobe.com/page/qIZMDpDqHe3h4/images/b6068ebd-5343-44e5-b84d-442ef4cdfee9.jpg?asset_id=5a8892d6-48e1-435d-81c3-9767b4e5563c&amp;img_etag=%2283467fa7fac1bddf67c7eef5e86fb095%22&amp;size=1024)](https://spark.adobe.com/page/qIZMDpDqHe3h4/images/b6068ebd-5343-44e5-b84d-442ef4cdfee9.jpg?asset_id=5a8892d6-48e1-435d-81c3-9767b4e5563c&amp;img_etag=%2283467fa7fac1bddf67c7eef5e86fb095%22&amp;size=1024) 圖片來源：《今日國家網絡安全新聞》
 
-在中共國人民解放軍（PLA）在中共國沿海進行大規模的兩棲登陸演習幾天后，川普總統的國家安全顧問周五在阿斯彭研究所（Aspen Institute）的一次活動中發表了啟示性聲明。
+週一，美國一家信息安全公司說，一些日本研發冠狀病毒疫苗的研究機構受到網絡攻擊，這些攻擊顯然來自中共國，據稱這是日本首次出現此類情況。
 
-現任總統國家安全事務助理羅伯特·奧布萊恩（Robert C. O’Brien）敦促台灣採**取阻止中共國兩棲登陸的戰略**。
+據CrowdStrike公司稱，在研發新冠疫苗的激烈競爭中，這些團體自4月份以來一直是被攻擊的目標，但還沒有任何信息洩露的報告。
 
-奧布萊恩（O’Brien）聲明：“**台灣需要開始考慮一些非對稱作戰和區域封鎖策略**”，最終在時機成熟時阻止領土被入侵。
+政府的國家網絡安全事件準備和策略中心已經敦促製藥商和研究機構提高警戒級別，以防範此類竊取機密信息的企圖。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/r1o171XOXin8B/images/7120dbd2-8891-4f9a-b572-2512b8511a51.png?asset_id=732e2759-72c5-4d1f-bca5-43dcc0be52b2&amp;img_etag=%22f33016f62a9e598df44a2c4017197f0d%22&amp;size=1024)](https://spark.adobe.com/page/r1o171XOXin8B/images/7120dbd2-8891-4f9a-b572-2512b8511a51.png?asset_id=732e2759-72c5-4d1f-bca5-43dcc0be52b2&amp;img_etag=%22f33016f62a9e598df44a2c4017197f0d%22&amp;size=1024)
+這家美國公司沒有透露被攻擊機構的名字，但表示，根據所使用的技術，公司懷疑這些攻擊是由一個中共國黑客組織發起的。
 
-川普政府如此高級別的官員發表評論表明，就台灣問題白宮認為北京正在快速地奔向敵對和戰爭邊緣。
+據該公司稱，這些攻擊包括發送帶有電子文檔的電子郵件，這些文檔似乎與新病毒有關，但包含電腦病毒。
 
-他補充說：“中共國現在沒有軍事實力來接管台灣，但未來五年後也許能做到。”這種爭議性評論肯定不會被北京當局所忽視。
+CrowdStrike公司負責亞太地區的主管斯科特•賈科夫（Scott Jarkoff）指出，各國政府領導的間諜活動正在加強，因為他們希望趕在其他國家之前研發出針對新冠的疫苗。
 
-此外，就中共國問題，在回應前喬治·W·布什（George W. Bush）的國家安全顧問史蒂芬·哈德利（Stephen Hadley）時，國家安全顧問奧布萊恩（O’Brien）說：“我認為總統對關稅採取的措施是，他終於喚醒中共國人民……”並爭辯說川普政府已經成功地“建立了可替代的稀土供應鏈”-儘管沒有提供確切的實現方式以及達到了何種程度的細節。
+根據世衛組織和其他機構的數據，截至9月底，大約有190個疫苗項目正在進行中，其中一些已經進入了試驗的最後階段。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/r1o171XOXin8B/images/62d1d02b-4557-41af-99e2-539ce3a0bed7.jpg?asset_id=fc0f9e85-b2ef-4fb7-a835-3d491cd7ed89&amp;img_etag=%22862b7cdc5ab8776c8167ff6147de90c0%22&amp;size=2793)](https://spark.adobe.com/page/r1o171XOXin8B/images/62d1d02b-4557-41af-99e2-539ce3a0bed7.jpg?asset_id=fc0f9e85-b2ef-4fb7-a835-3d491cd7ed89&amp;img_etag=%22862b7cdc5ab8776c8167ff6147de90c0%22&amp;size=1024)推文翻譯：國家安全局羅伯特·奧布賴恩正從白宮直播發言@AspenSecurity。細數成就時，他說，在一方不遵
-守條約的情況下，美國不會坐視不管，例如中程導彈條約(Intermediate-Range Nuclear Forces Treaty)…
-或者對於腐敗或受中共國影響的國際組織， 如世衛組織（WHO）
+安全公司Crowdstrike的研究人員認為，上海的一座解放軍大樓是一群中共國軍事黑客的總部|《紐約時報》
 
-在同阿斯彭研究所（Aspen Institute）進行遠程討論時，台灣的主題始於奧布萊恩（O’Brien）的以下評論：
+在日本，東京大學、大阪大學和國立傳染病研究所等機構都加入了這場競賽。
 
-***“他們霸凌台灣，他們已經全面接管了香港……他們宣稱對南中國海的主權，（他們看待南中國海）就像（美國人看待）太浩湖（Lake Tahoe，譯者註：美國內陸湖）一樣。”***
+由政府資助的日本醫學研究與發展機構(AMED)已採納了20個由大學和私營企業實施的疫苗項目。該機構分配國家資金支持醫學研究。
 
-*“我不認為目前中國人（中共）可能想要或可能準備進行兩棲登陸”……他們擁有大規模導彈，但如果襲擊（台灣），“他們將失去他們希望獲得的一切並成為國際棄兒（被世界大多數國家所唾棄）。“*
+包括武田製藥(Takeda pharmaceutical Co.)和第一三共株式會社(Daiichi Sankyo Co.)在內的大型製藥公司已被該機構的新冠疫苗研發支持計劃選中。根據日本醫學研究與發展機構的資料，每個項目的資助金額最高可達100億日元。
 
-![]()![](https://spark.adobe.com/page/r1o171XOXin8B/images/d6bba1f8-db30-4ffb-9ad7-9c33625de6dc.jpg?asset_id=3ab1b338-ce52-46fc-b787-83594c59a5c7&amp;img_etag=%2244717a6a7d8f80938335f937143e864e%22&amp;size=1024)兩棲作戰是中共國作戰戰略的重要內容
+[!\[\]()!\[\](https://spark.adobe.com/page/qIZMDpDqHe3h4/images/e72f95e0-b534-4130-83e2-9e20ab857da6.jpg?asset_id=405e0865-2d0f-4a81-8c7e-e841b6edf30d&amp;img_etag=%223ae654b2198d08c8735e554a91530a41%22&amp;size=1024)](https://spark.adobe.com/page/qIZMDpDqHe3h4/images/e72f95e0-b534-4130-83e2-9e20ab857da6.jpg?asset_id=405e0865-2d0f-4a81-8c7e-e841b6edf30d&amp;img_etag=%223ae654b2198d08c8735e554a91530a41%22&amp;size=1024) 圖片來源：Shutterstock
 
-這些評論非常及時，也考慮到中共國在本周初啟動了大規模的兩棲登陸演習，目的是**向台灣傳遞一個“信息”** ，即中共國國家媒體《環球時報》所謂的“猖獗的分裂主義行動”。
+但目前尚不清楚日本國內研製的首批新冠疫苗何時能廣泛使用，而國外一些國家計劃在年底推出自己的疫苗。
 
-隨著華盛頓增加了對台的軍事武器銷售，這也遭到了中共國對華盛頓一再違反現行的“一個中國”政策的譴責。
+今年7月，美國、英國和加拿大在一份報告中聲稱，與俄羅斯情報機構有關聯的黑客曾試圖從他們國家從事研製冠狀病毒疫苗的研究人員竊取信息，莫斯科方面對此予以否認。
 
-[原文鏈接](https://www.zerohedge.com/geopolitical/taiwan-must-prepare-strategies-deter-pla-amphibious-landing-national-security-advisor)
+同樣在7月，美國司法部起訴了兩名中共國公民。他們被認為是在為中共國政府工作，罪名是侵入數百家公司、政府和非政府機構的計算機系統，竊取新冠病研究和其它信息。
 
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/r1o171XOXin8B/) -點擊spark adobe版
+北京方面否認參與黑客攻擊。
+
+神戶大學(Kobe University)精通信息安全的教授Masakatsu Morii說，有關新冠疫苗的信息很容易受到網絡攻擊，這是理所當然的事情，因為黑客組織往往會竊取人們關注的核心機密信息。
+
+Morii教授說:“ 除疫苗研發之外，日本政府應該提供足夠的安全支持，因為(冠狀病毒疫苗) 預計需要幾年的時間才能穩定供應”。
+
+[原文鏈接](https://nationalcybersecuritynews.today/computerhacking-computer-hacking-cyberattacks-on-japan-coronavirus-vaccine-projects-point-to-china/)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/qIZMDpDqHe3h4/) -點擊spark adobe版
 
 0
