@@ -1,27 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【熱點播報】Payton市長，別再做蠢事了！
-`2020-10-22 01:24 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/439435/)
+## 10/22財經快訊：螞蟻金服-不服不行；虛擬貨幣-小三登堂入室
+`2020-10-22 03:21 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/439554/)
 
-作者：香草山寫作組遍地開花
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22011825/image0-54.jpg)
-德州米德蘭市新中國聯邦戰友對中共間諜假牧師粑粑傅的抗議在持續進行中。 10月16日海洋戰友在網上發布一個視頻，提出要與米德蘭市長展開一場公開公平辯論的挑戰，News West 9新聞台發布了這一新聞，並把海洋的挑戰告訴了Payton市長。近一個星期過去了，市長沒有任何回應，也沒有新聞發布會聲明。其間海洋多次提出這樣的要求，都石沉大海沒有得到回复。作為一個民選政府，選民提出這樣的要求合情合理，你們必須做出回應，這是你們的責任。海洋戰友在21日直播中說，歡迎你們來告我們。對，來告我們，告什麼都行，快來告我們吧……
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22031127/1-174.png)[https://s2.reutersmedia.net/resources/r/?m=02&d=20201021&t=2&i=1538298136&w=640&fh=&fw=&ll=&pl=&sq=&r=LYNXMPEG9K0YI](https://s2.reutersmedia.net/resources/r/?m=02&amp;d=20201021&amp;t=2&amp;i=1538298136&amp;w=640&amp;fh=&amp;fw=&amp;ll=&amp;pl=&amp;sq=&amp;r=LYNXMPEG9K0YI)
+1, 與主要美國股指相關的期貨合約在周三晚間交易時段下跌。道瓊斯工業平均指數下跌了150點，而標準普爾500指數和納斯達克-100指數也下跌了約0.6％。
 
-尊敬的Payton市長，您知不知道您在做蠢事。班農先生在接受澳洲電視台採訪中說，21世紀上半頁的關鍵主題是中國人民的民主運動，它關係到世界的命運。您作為一個市長竟然毫無根據地說新中國聯邦的人是恐怖分子，您這是在丟美國人的臉。說出去的話收不回來，我們一定要您給個說法，我們敢於暴露在陽光下，敢於對簿公堂，現在我們要求您公開辯論您不敢，您可以沉默，那是您的權利。我們也可以合法抗議，這也是我們的權利。你們派人用槍威脅、恐嚇、刁難，在推特網絡上造謠，說我們是習近平花錢僱傭的人，這樣的顛倒黑白，你們是已經把靈魂出賣給了魔鬼嗎？
+[https://www.cnbc.com/2020/10/21/stock-market-futures-open-to-close-news.html](https://www.cnbc.com/2020/10/21/stock-market-futures-open-to-close-news.html)
 
-尊敬的Payton市長，您在做蠢事。您的沉默就證明您與CCP肯定有勾兌，您不敢面對公眾辯論是因為您心虛，您到底是美國人的市長還是CCP的市長，您把米德蘭變成了一個“小中國”。您知道在CCP統治下中國人民所遭受的苦難嗎？您知道香港發生了什麼嗎？您知道維吾爾集中營嗎？您知道中國大陸假騙偷後的高壓維穩嗎？您要把米德蘭也變成這樣嗎？如果這樣，您就是美國的罪人。您知道我們在文貴先生帶領下推翻CCP、實現民主法治的決心嗎？米德蘭，你們真的要跟正義為敵嗎？
+2, 今日（2020年10月21日）最佳抵押貸款率數據分析：現在可能是獲取固定利率抵押貸款或再融資的好時機。利率到2021年可能會保持較低水平，甚至更長的時間。
 
-尊敬的Payton市長，您在做蠢事。您知道嗎？我們揭露粑粑傅是中共間諜也是在幫助美國人，粑粑傅長達幾十年腐敗你們的官員，破壞你們的民主法治，您卻要做他的“保護傘”？ ！路德說“硬槃門”裡面一定會有粑粑傅的犯罪視頻證據，這傢伙能有資格出現在硬盤裡，真的是大魚。他在米德蘭，上下腐敗和犯罪的證據硬盤里肯定也會有。 Payton市長，您願意做米德蘭被CCP扭住了春蛋的“拜登”嗎？
+[https://www.businessinsider.com/personal-finance/best-mortgage-refinance-rates-today-wednesday-october-21-2020](https://www.businessinsider.com/personal-finance/best-mortgage-refinance-rates-today-wednesday-october-21-2020)
 
-Payton市長，您在做蠢事。您為了一己私慾而不顧美國人民的利益和生命。難道您不知道新冠病毒的真相嗎？ CCP的生物武器已經殺死了美國20多萬條生命，讓800多萬人受到了感染，您卻要跟美國的敵人為伍。
+3, 美教育部在有關學校和外國合同的最新報告中指出, Cornell大學最初未能向美國當局報告其近年來收到的超過12億美元的外國資金，其中包括與卡塔爾(Qata)校園相關的7.6億美元，以及中國電信公司華為技術有限公司（美國教育）的約100萬美元合同。
 
-payton市長，您在做蠢事。被CCP藍金黃的高官紐約南區法院檢察官辭職了，FBI局長也要辭職了，被抓的布羅伊迪認罪了，CCP內部專門負責大外宣的王滬寧也被替換掉了，這些跡像都表明ccp要完蛋了，它自己也知道要完蛋了，它的沉船計劃您知道嗎？您也要跟著去陪葬嗎？
+[https://www.wsj.com/articles/top-universities-took-billions-in-unreported-foreign-funds-us-finds-11603226953](https://www.wsj.com/articles/top-universities-took-billions-in-unreported-foreign-funds-u-s-finds-11603226953)
 
-Payton市長，趕緊投誠吧，這是您唯一的出路。如果您有信仰，請遵循您的信仰，不要再助紂為虐了。回頭是岸，您還可以有網開一面的機會！
+4, 倫敦（路透社）-PayPal Holdings Inc（PYPL.O）週三表示，它將允許客戶在其在線錢包中持有比特幣和其他虛擬代幣，並通過其網絡上的2600萬商家使用加密貨幣進行購物。
 
+[https://mobile.reuters.com/article/amp/idUSKBN2762D5](https://mobile.reuters.com/article/amp/idUSKBN2762D5)
 
+5， 中共正在用芬太尼和冠狀病毒殺死成千上萬的美國人，他們卻在其中獲利。多年來，中共政權一直在將芬太尼推向美國: 大陸是芬太尼美國非法藥物市場的主要來源，也常常是墨西哥生產芬太尼的前體藥物的主要來源。
 
-更多資訊，歡迎訂閱[美東香草山農場官方推特賬號](https://twitter.com/Mos_Himalaya)！
+[https://www.gatestoneinstitute.org/16662/china-fentanyl-source](https://www.gatestoneinstitute.org/16662/china-fentanyl-source)
+
+6, 在周三的新聞發布會上，美國家情報局局長約翰·拉特克利夫（John Ratcliffe）表示，伊朗和俄羅斯已獲得美國選民登記信息，可用於“試圖將虛假信息傳達給已登記的選民“ 目的是乾擾美國大選。
+
+[https://www.breitbart.com/clips/2020/10/21/ratcliffe-iran-and-russia-have-obtained-voter-info-iran-has-tried-to-damage-president-trump/amp/ ?\_\_twitter\_impression=true](https://www.breitbart.com/clips/2020/10/21/ratcliffe-iran-and-russia-have-obtained-voter-info-iran-has-tried-to-damage-president-trump/amp/?__twitter_impression=true)
+
+7, 10月21日-中國證監會周三表示，已批准螞蟻集團在上海上市註冊。
+
+[https://www.reuters.com/article/ant-group-ipo/china-securities-regulator-approves-registration-of-ant-groups-shanghai-listing-idUSB9N2D401D](https://www.reuters.com/article/ant-group-ipo/china-securities-regulator-approves-registration-of-ant-groups-shanghai-listing-idUSB9N2D401D)
+
+By 【秘翻組- 金融法律團隊】
 
 0
