@@ -1,18 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Tucker驚爆：臉書雇傭大量中共國工程師編制其新聞審查算法！
-`2020-10-22 07:58 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/439803/)
+## 臉書竟僱傭持美國工作簽證的中共國籍員工進行言論審查！
+`2020-10-22 11:22 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/440417/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22073941/Tucker_20201020_Facebook_Censorship-photo.png)
-福克斯新聞的 Tucker Carlson 在[2020年10月20日的節目](https://video.foxnews.com/v/6203384235001)中，驚爆臉書僱員揭露負責臉書審查言論的所謂「仇恨言論工程團隊」里，有半打持工作簽證的中共國人外籍工程師，負責編寫審查程序，而且他們在過去的幾天中行動異常活躍。
+喜馬拉雅聯盟加拿大農場天使在人間坐看雲起時上傳WJ
 
-Tucker 邀請的《紐約郵報》（New York Post）特約嘉賓曝光臉書中有一位爆料人和前僱員曝光了此事。此爆料人還透露這個「仇恨言論工程團隊」的人大部分在西雅圖工作，至少有半打（6人）是中共國在持美國工作簽證的外籍工程師。紐約郵報的記者提醒美國人要警醒這些大科技公司雇傭來自鉗制言論自由的中共國的技術人員，提出雖然很多人是因為美國夢來到這裡定居，但是也有很多人用這裡學習的技術，如機器輔助學習技術（machine learning），回去幫助習近平壓制他們本國的人民。
+最近一段時間， Facebook對有關亨特•拜登與中共之間的腐敗交易的報導進行了極苛刻的審查。據報導，在審查團隊中包含至少六名中共國人， 他們通過修改程序算法把有關拜登的新聞放在不顯眼的位置。 《紐約郵報》10月20日報導：據前Facebook內部人士透露，負責Facebook新聞審查的團隊里至少有六名是拿著H-1B簽證的中共國籍員工。
 
-福克斯的此報道已在美國民眾中發酵，網友表示震驚。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22073951/Tucker_20201020_Facebook_Censorship-figure1.png)圖片來源：[https://mobile.twitter.com/stillgray/status/1318806443764576256?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1318806443764576256%7Ctwgr%5Eshare\_3%2Ccontainerclick\_0&ref\_url=https%3A%2F%2Fwww.investmentwatchblog.com%2Ftucker-carlson-facebook-at-least-half-a-dozen-members-of-the-in-house-team-are-in-fact-chinese-nationals-in-this-country-on-h-1b-visas-theyre-in-charge-of-developing-algorithms-to-censor-what-y%2F](https://mobile.twitter.com/stillgray/status/1318806443764576256?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1318806443764576256%7Ctwgr%5Eshare_3%2Ccontainerclick_0&amp;ref_url=https%3A%2F%2Fwww.investmentwatchblog.com%2Ftucker-carlson-facebook-at-least-half-a-dozen-members-of-the-in-house-team-are-in-fact-chinese-nationals-in-this-country-on-h-1b-visas-theyre-in-charge-of-developing-algorithms-to-censor-what-y%2F)
-報道：【Isaiah4031】
+這位內部人士認為Facebook的老闆願意為了讓這些中共國籍員工從事這項工作而給他們申請H-1B簽證。這位內部人士透露了主要從事這項工作的內部團隊結構，它被稱為仇恨言論工程（取名自喬治·奧威爾的書《Call Your Office》），項目的主要成員都在Facebook的西雅圖辦公室。
 
-戰友之家玫瑰園小隊出品
+報導繼續揭示了許多與中共有關的人在這個團隊中：
+根據LinkedIn檔案，仇恨言論工程團隊的工作人員包括西雅圖辦公室的一名研究科人員，擁有中科院計算機所工程碩士學位；該團隊的另一位成員是西雅圖機器學習（人工智能技術的重要組成部分）軟件工程師，擁有中國吉林大學計算機學士和碩士學位。還有一位工程管理人員，在南京大學獲得了計算機學士學位；還有一位軟件工程師曾在中共扶持的華為和中國鐵路信號與通信設計研究院工作。記者嘗試聯繫了所有六名員工，有兩人給予了答复，確認他們是中共國人，但拒絕透露更多信息; 其餘的則沒有回答。
+
+機器學習是一項及其複雜的技術——正如技術網站DeepAI.org所說，這項技術的主要目的是教會計算機如何在沒有明確程序指令的情況下“自己學習和採取行動”。具體到社交媒體的審查，這意味著”指導”Facebook的軟件將某些特定內容在新聞內容搜索中置頂，而同時這也意味著“某些其他內容”被放到”最後顯示”— -比如《紐約郵報》關於拜登家族與中共進行交易的報導。這些算法可以把Facebook老闆口中“觸碰紅線”的新聞內容屏蔽掉。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22105448/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE518.png)圖片來源： techcrunch.com
+這一切也許造就了人類歷史上最令人膽寒的複雜審查機制。 “他們不會直接禁止某個的支持川普總統的內容，”但是，”只要內容過於保守，他們就會降低此內容的搜索排名使人們不容易發現。這讓人們無法抓住Facebook新聞審查的把柄。本文的重點不是要關注個人，而是要提出一個問題：一個構築防火牆、禁止Facebook的國家的人是如何在美國參與對社交媒體的審查的。
+
+當然，許多大型高科技公司都會從中共國、印度和其他地方招募人才，其中許多人希望永久地在美國定居並追求“美國夢”。但是有些人可能不同，糟糕的是他們即將返回的地方已經建立了最全面、最完善的信息封鎖機制。到底為什麼中共不許Facebook的中共國工程師施展他們的特長？全球主義者認為與中共接觸將使他們更加開放，而我擔心這反而會更加束縛我們的手腳。
+
+儘管Facebook發言人強調該公司的政策與標準使公開公正的， 但參議員們認為應該是時候終結230條款賦予大型科技公司的特權了。
+
+**簡評：**這個世界太荒唐，人權記錄最差的國家堂而皇之地選入聯合國人權理事會，來自網絡禁言最嚴重的國家的人正在為號稱自由民主燈塔的美國進行嚴苛的言論審查。這個世界太需要重塑秩序，正本清源。凡是甘心與邪惡為伍，赤膊上陣地打壓民眾的言論自由，視民眾為草芥的一眾高科技公司，終會迎來清算的一天。
 
 0

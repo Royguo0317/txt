@@ -1,40 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普競選團隊要求總統辯論關注大事
-`2020-10-22 03:00 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/439524/)
+## Tucker驚爆：臉書雇傭大量中共國工程師編制其新聞審查算法！
+`2020-10-22 07:58 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/439803/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22024952/1-173.png)圖面來源： [https://www.facebook.com/DonaldTrump/photos](https://www.facebook.com/DonaldTrump/photos)
-**川普團隊要將外交議題拉回辯論台上**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22073941/Tucker_20201020_Facebook_Censorship-photo.png)
+福克斯新聞的 Tucker Carlson 在[2020年10月20日的節目](https://video.foxnews.com/v/6203384235001)中，驚爆臉書僱員揭露負責臉書審查言論的所謂「仇恨言論工程團隊」里，有半打持工作簽證的中共國人外籍工程師，負責編寫審查程序，而且他們在過去的幾天中行動異常活躍。
 
-根據福克斯新聞(Fox News) 山姆·多曼(Sam Dorman)和安德魯·奧賴利(Andrew O’Reilly)的報導，川普競選團隊週一向總統辯論委員會發出了長達兩頁的信，要求委員會“重新考慮並重新發布”將在本週即將在納什維爾（Nashville）舉行的總統辯論中討論的話題。
+Tucker 邀請的《紐約郵報》（New York Post）特約嘉賓曝光臉書中有一位爆料人和前僱員曝光了此事。此爆料人還透露這個「仇恨言論工程團隊」的人大部分在西雅圖工作，至少有半打（6人）是中共國在持美國工作簽證的外籍工程師。紐約郵報的記者提醒美國人要警醒這些大科技公司雇傭來自鉗制言論自由的中共國的技術人員，提出雖然很多人是因為美國夢來到這裡定居，但是也有很多人用這裡學習的技術，如機器輔助學習技術（machine learning），回去幫助習近平壓制他們本國的人民。
 
-據報導，川普競選團隊經理比爾·斯蒂芬（Bill Stepien）週一在推特上說：“為了維護競選的完整性，並為了美國人民的利益，我們敦促您為10月22日的辯論重新思考並重新發布一系列主題，重點是外交政策。”斯蒂芬談到這次的辯論主題將包含CCP病毒，美國家庭，國家安全，領導力，氣候變化和美國種族議題。斯蒂芬更進一步表示“委員會明顯偏袒拜登的行為已經將整個系列的總統辯論變得荒謬，難怪民眾為什麼對辯論的客觀性失去了信心。”
+福克斯的此報道已在美國民眾中發酵，網友表示震驚。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22073951/Tucker_20201020_Facebook_Censorship-figure1.png)圖片來源：[https://mobile.twitter.com/stillgray/status/1318806443764576256?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1318806443764576256%7Ctwgr%5Eshare\_3%2Ccontainerclick\_0&ref\_url=https%3A%2F%2Fwww.investmentwatchblog.com%2Ftucker-carlson-facebook-at-least-half-a-dozen-members-of-the-in-house-team-are-in-fact-chinese-nationals-in-this-country-on-h-1b-visas-theyre-in-charge-of-developing-algorithms-to-censor-what-y%2F](https://mobile.twitter.com/stillgray/status/1318806443764576256?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1318806443764576256%7Ctwgr%5Eshare_3%2Ccontainerclick_0&amp;ref_url=https%3A%2F%2Fwww.investmentwatchblog.com%2Ftucker-carlson-facebook-at-least-half-a-dozen-members-of-the-in-house-team-are-in-fact-chinese-nationals-in-this-country-on-h-1b-visas-theyre-in-charge-of-developing-algorithms-to-censor-what-y%2F)
+報道：【Isaiah4031】
 
-**拜登團隊想在辯論會時用美國病毒疫情攻擊川普**
-
-拜登的國家新聞秘書TJ達克洛(TJ Ducklo)指責川普競選活動是在撒謊。達克洛（Ducklo）在提供給福克斯新聞（Fox News）的一份聲明中說：“競選團隊和委員會幾個月前就同意由辯論主持人選擇話題。”他還表示“川普的競選活動現在與此有關，因為唐納德·川普害怕面對有關災難性的中共病毒疫情的更多問題。就像往常一樣，總統更關心辯論的規則，而不是以行動來解決這個國家正面臨的危機。 ”
-
-**本週辯論主持人與民主黨關係深厚**
-
-根據報導，原本是第二次辯論的主持人史蒂夫·斯庫利（Steve Scully），因為他說謊的事件，關於他發給前川普高級助手和總統安東尼·斯莫奇(Anthony Scaramucci)的推文，有線電視C-SPAN已取消讓其擔任主持。而原本預計10月15日的第二場總統辯論也因為川普拒絕辯論委員會提議的線上辯論方式，而被取消。
-
-除了斯庫利，本週總統辯論主持人克里斯汀·韋爾克（Kristen Welker）與民主黨的深厚關係的也遭到越來越多的質疑。根據《紐約郵報》( New York Post)週六的報導說到，韋爾克來自一個民主黨深藍家庭，多年來一直給民主黨提供資金援助，韋爾克的父母曾在拜登的2020年競選活動捐贈了3,300美元，而且他還是一位堅定的反川人士。
-
-**拜登·亨特****硬盤****內的不法內容將是重點**
-
-在周四的辯論之際，有許多新聞報導引發了質疑拜登通過其兒子亨特與中國和烏克蘭商業利益的關係。福克斯新聞周六報導說，備受爭議的電子郵件中的一個人證實了一條消息，該消息顯示股權分割使前副總統受益。川普通過拜登的不法新聞證明，拜登在擔任副總統時期濫用職權，犧牲美國人民的利益來交換自己的利益。而川普競選顧問傑森·米勒（Jason Miller）也在周一表示，在本週的辯論中，總統將對前副總統兒子的違法事件提出質詢。川普可能還會強調他的政府在中東的工作。
-
-**拜登競選團隊繼續否認有不法行為**
-
-拜登競選活動發言人安德魯·貝茨（Andrew Bates）此前對福克斯新聞說：“經調查，甚至兩個共和黨領導的參議院委員會（雖然這些委員會被一些共和黨議員斷定為“不合法”且有政治導向）也得出相同的結論：即喬·拜登對烏克蘭執行了美國的官方政策，沒有做錯任何事情。連川普政府的官員也宣誓證實了這些事實。“
-
-[原文出處](https://www.foxnews.com/politics/trump-campaign-letter-debate-commission-foreign-policy)
-
-翻譯報導：william
-
-譯評:
-
-美國時間本週四將舉行總統選舉的最後一回辯論，在明知道整個辯論委員會和主持人會偏袒拜登的情況下，川普總統仍決定要現場辯論。這次拜登·亨特的硬盤事件絕對會是全美民眾的關注焦點，這關係著法律是否被濫用以及美國所一直堅守的正義。儘管媒體一面倒的支持拜登抹黑川普，但是全美民眾的眼睛是雪亮的，到底誰在拼命為美國以及美國人民做事情，而誰又在利用美國資源和CCP勾兌，11月3日的結果絕對會明確地告訴CCP，什麼叫做民主與法治。
+戰友之家玫瑰園小隊出品
 
 0
