@@ -1,61 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特-拜登的郵件洩露了和中共國的骯髒交易
-`2020-10-22 14:39 英國喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hant/440774/)
+## CNN攻擊閆博士文中疑似“共毒學派”的六個人
+`2020-10-22 17:53 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/440984/)
 
-*新聞來源：Breitbart《布賴特巴特》；作者：SIMON KENT；發佈時間： 2020年10月15日*
+加拿大蒙特利爾戰友團laotou
 
-*翻譯/簡評：Victory；校對：感恩；審核：InAHurry；Page：拱卒*
+校對上傳小鷗
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22173602/CNN.jpg)圖片來自Amazon.com
+10月21日晚上CNN網站登出了攻擊閆博士的文章，拼湊了6個人的言論，進行了牽強附會的質疑，但大部分是不貼主題的政治攻擊。 ¹
 
-[!\[\]()!\[\](https://spark.adobe.com/page/PwSZYL25T9ffz/images/ee9035d2-013f-4ad8-9017-6367ed0920b4.jpg?asset_id=cee77335-71ca-4bdd-94fa-3ab60926c1da&amp;img_etag=%22838551aaeeb2a06a266283defeaaed14%22&amp;size=1024)](https://spark.adobe.com/page/PwSZYL25T9ffz/images/ee9035d2-013f-4ad8-9017-6367ed0920b4.jpg?asset_id=cee77335-71ca-4bdd-94fa-3ab60926c1da&amp;img_etag=%22838551aaeeb2a06a266283defeaaed14%22&amp;size=1024)
+文章這樣描述：“作為論述的一部分，CNN採訪了來自多個機構的六位專家……”（原文As part of its review, CNN spoke with a half-dozen experts from multiple institutions ……）
 
-**簡評：**
+看看這六位所謂專家對閆博士論文的評論：
 
-本文提及的內容只是拜登家族與中共勾兌的冰山一角。目前已被公佈的信息中除了有亨特拜登的“艷照門” 、 “紐約價值數千萬美元豪華公寓” 等，還有大量的其它細節。可以毫不誇張的說，拜登家族出賣了美國利益，並和中共國盜國賊有極為密切的合作。更恐怖的是，這些硬盤資料在2019年已經給到FBI，但FBI對此事沒有任何動作，足見美國被邪惡力量滲透的程度。截止目前，拜登家族尚未就這些證據做出回應。想了解更多的細節，敬請關注路德社的每日早晚視頻直播。
+之一，哥倫比亞大學病毒學家安吉拉·拉斯穆森（Angela Rasmussen）
 
-## **電子郵件：亨特-拜登爭取與一些中共國人士達成“長期且利潤豐厚的協議”**
+在CNN文中沒有發現她對閆博士論文論點、論據有相應的回應，只是一些“欺騙”、“宣傳、”、“政治化”、“無稽之談”等謾罵性用詞。她也不得不承認閆博士的論文”是用非常專業的語言寫成的，聽起來像是一篇合規的科學論文”。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/PwSZYL25T9ffz/images/e7265be9-831a-4b79-af24-a6c3595a7585.jpg?asset_id=2d054648-c0a4-4621-8e50-14552ae60303&amp;img_etag=%2295d9e856d65ad9ebc5124c1caf56fc22%22&amp;size=2560)](https://spark.adobe.com/page/PwSZYL25T9ffz/images/e7265be9-831a-4b79-af24-a6c3595a7585.jpg?asset_id=2d054648-c0a4-4621-8e50-14552ae60303&amp;img_etag=%2295d9e856d65ad9ebc5124c1caf56fc22%22&amp;size=1024) 美聯社圖片/ Patrick Semansky
+之二，密歇根大學教授安娜·馬普（Anna Mapp）
 
-**據《紐約郵報》週四公佈的新一批電子郵件顯示，在亨特-拜登尋找“令我和我的家人感興趣的交易”時，與一家中共國大公司討論可能的業務參與。**
+CNN同樣沒有發表該教授的對閆博士論文論點的反駁，只表示她贊同安吉拉·拉斯穆森的觀點。
 
-這位民主黨總統候選人的兒子與中共國最大的私人能源供應商華信能源集團通信，是《紐約郵報》在據稱是亨特的個人筆記本電腦上發現的。
+這類中共“御用的科技打手”，多看一眼都是浪費時間。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/PwSZYL25T9ffz/images/84965a10-0147-40b2-b243-7535c1b4c5b6.jpg?asset_id=7bc2e337-e381-48c8-9f4b-75a7633f12dd&amp;img_etag=%221244a4b0a5938ed19b42834c1215e346%22&amp;size=2560)](https://spark.adobe.com/page/PwSZYL25T9ffz/images/84965a10-0147-40b2-b243-7535c1b4c5b6.jpg?asset_id=7bc2e337-e381-48c8-9f4b-75a7633f12dd&amp;img_etag=%221244a4b0a5938ed19b42834c1215e346%22&amp;size=1024)
+之三，喬治敦大學的丹尼爾·露西（Daniel R. Lucey）
 
-在2017年5月發給亨特的一封題為“期望”的電子郵件中，他們討論了一家企業中六個人的薪酬方案細節。
+這位教授見過閆博士，CNN說他對閆博士的批評較為溫和，他自己也坦承不是一個分子病毒學家。最搞笑的是，CNN竟發表他這樣的疑問：為什麼中（共）國會在武漢釋放一種政府設計的病毒？
 
-他被確定為“主席或副主席”，“取決於與CEFC達成的協議”，顯然指的是現已破產的上海企業集團-中共國華信能源公司。拜登的薪資定為“850”，信函還提到了他“對辦公環境有一些期望，他將詳細說明。”
+閆博士已經向全世界作了回答：“你該去問中共！”
 
-據布萊巴特新聞(Breitbart News)報導，就在郵件曝光不到24小時前，《紐約郵報》還公佈了其他一些電子郵件，這些郵件顯示，喬·拜登說他“從未和兒子談論過他的海外業務”是撒謊。
+之四，南希·D·康內爾（Nancy D. Connell）、
 
-根據魯迪·朱利安尼給紐約郵報的資料寶庫，天然氣公司布利斯瑪（Burisma）的顧問瓦迪姆·波扎爾斯基(Vadym pozharsky)在2015年的一封電子郵件中感謝亨特“給了見到你父親的機會”。
+之五，吉吉·奎克·格隆沃爾（Gigi Kwik Gronvall）
 
-[!\[\]()!\[\](https://spark.adobe.com/page/PwSZYL25T9ffz/images/fc304447-be79-4e81-8124-48d5b25dad3b.jpg?asset_id=875c9fcf-8637-4577-b7f6-49f098e79b5e&amp;img_etag=%220520f69e94273447c92115a3d6cec997%22&amp;size=3065)](https://spark.adobe.com/page/PwSZYL25T9ffz/images/fc304447-be79-4e81-8124-48d5b25dad3b.jpg?asset_id=875c9fcf-8637-4577-b7f6-49f098e79b5e&amp;img_etag=%220520f69e94273447c92115a3d6cec997%22&amp;size=1024)
+兩個人同時供職於約翰·霍普金斯大學健康安全中心（The Johns Hopkins Center for Health Security）。本指望能看到在世界頂級研究機構做研究的人，顯示出世界頂級的反駁、論證水準，無論是論點選取，還是論證過程，然而，她倆讓人大跌眼鏡。
 
-在最新的緩存中，一封郵件概述了一份“臨時協議”，其中80%的股份將平均分配給四個用姓名首字母指代的人（其中一位首字母與亨特相關，以及其他三人）。
+CNN的文章裡只看到她們對閆博士論文兩個“注角”的異議、引用GNEWS文章的異議、共同作者化名的異議。
 
-詹姆士（James Gilliar）從諮詢公司J2cR發郵件說:“如果細節有不足之處，我很樂意向臧先生反饋。”
+閆博士的兩篇論文有幾百個注角，且不說她們說得對錯（筆者非病毒專業），拿兩個“注角”來論事，“吹毛求疵”的成語是不是可以有新的解釋了？
 
-“臧”似乎是指華信能源前執行董事臧建軍。
+引GNEWS文章，論文共同作者自己寫的互相引用，不行嗎？
 
-[!\[\]()!\[\](https://spark.adobe.com/page/PwSZYL25T9ffz/images/06b17159-e2c8-44b1-b3b4-186e69f04242.png?asset_id=9db76259-c9ba-45ab-b109-556c11175f8f&amp;img_etag=%228d7e0ada3bb827a93ce94f0580d1ad11%22&amp;size=2560)](https://spark.adobe.com/page/PwSZYL25T9ffz/images/06b17159-e2c8-44b1-b3b4-186e69f04242.png?asset_id=9db76259-c9ba-45ab-b109-556c11175f8f&amp;img_etag=%228d7e0ada3bb827a93ce94f0580d1ad11%22&amp;size=1024) 臧建軍
+用化名是共魔猖獗時期的自保手段，當世界從閆博士的歷險經歷中看到惡共、魔共、邪共的本來面目後，你們就不會來指責這拯救人類的天使了！
 
-在2017年的另一封郵件中，據報導，拜登和葉簡明討論了一個交易，隨後這位華信能源的董事長（葉簡明）就消失了。
+筆者發現，約翰·霍普金斯大學的健康安全中心有兩塊牌子，另一個是約翰霍普金斯彭博公共衛生學院（Johns Hopkins Bloomberg School of Public Health），維基資料顯示“為了紀念邁克爾·布隆伯格對學校和約翰·霍普金斯大學的財政支持和承諾，學校於2001年4月20日更名為約翰·霍普金斯·彭博公共衛生學院。在過去的幾十年中，彭博社向約翰·霍普金斯大學捐贈了總計29億美元。”²
 
-[!\[\]()!\[\](https://spark.adobe.com/page/PwSZYL25T9ffz/images/9b169674-8d6f-4465-986f-2f386e500530.png?asset_id=3e7eef7d-8d3e-41e0-84bd-d88ee4152c7e&amp;img_etag=%22c51bce9425fed36522cfad583eba0b55%22&amp;size=1024)](https://spark.adobe.com/page/PwSZYL25T9ffz/images/9b169674-8d6f-4465-986f-2f386e500530.png?asset_id=3e7eef7d-8d3e-41e0-84bd-d88ee4152c7e&amp;img_etag=%22c51bce9425fed36522cfad583eba0b55%22&amp;size=1024)葉簡明
+明白了，金主邁克爾·布隆伯格，王岐山的老朋友，文貴先生說過，布隆伯格曾一再宣稱王岐山是中共國最有權勢的人物。
 
-他還試圖明確，他的努力不應沒有回報，“諮詢費是我們收入的一部分，但讓我和我家族對主席（葉簡明）所提出方案更感興趣的原因是，我們還是這個合資公司的資產和收益的合夥人。（譯者註：原郵件中inn [sic 原文如此]，可能為in的筆誤）
+之六，安東尼·福奇（Anthony Fauci）
 
-[原文鏈接](https://www.breitbart.com/politics/2020/10/15/emails-hunter-biden-strives-for-lasting-and-lucrative-arrangement-with-chinese-nationals/)
+毋需多言，福奇嘴裡吐不出真相！
 
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/PwSZYL25T9ffz/) -點擊spark adobe版
+參見筆者2020年10月5日GNEWS文章：“福奇，你還能隱瞞多久！—–法官有令，提交通信記錄”，大約晚7點左右的時間段登出。
 
-更多資訊請關注[英国喜庄园/战鹰团文宣电台]： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
+註釋：
 
-[英国喜庄园YouTube]: [https://www.youtube.com/channel/UC\_1vMDgDmkUw5N14G-0XsRA](https://www.youtube.com/channel/UC_1vMDgDmkUw5N14G-0XsRA)
+1. 原文鏈接：https://www.cnn.com/2020/10/21/politics/coronavirus-lab-theory-yan-bannon-invs/index.html
 
-[英国喜庄园GTV/盖特]: [https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+2. https://en.wikipedia.org/wiki/Johns\_Hopkins\_Bloomberg\_School\_of\_Public\_Health
 
 0

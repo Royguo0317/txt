@@ -1,15 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日政要Twitter播報(中文) 10/21期(視頻+ PDF下載)
-`2020-10-22 10:13 GM62` [轉載自GNews](https://gnews.org/zh-hant/440250/)
+## 【熱點播報】美媒CNN的＂驢騾精神＂ 歡迎多多來“搞”
+`2020-10-22 12:00 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/440492/)
 
-撰稿記者：CYC文颖、尘凡3
-校對:Magician⽂⼼
-播⾳：⼤脚印
+香草山寫作組：Daxia
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22114328/142-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E7%BE%8E%E5%AA%92CNN%E7%9A%84%EF%BC%82%E8%A0%A2%E9%A9%B4%E7%B2%BE%E7%A5%9E%EF%BC%82%E6%AC%A2%E8%BF%8E%E5%A4%9A%E5%A4%9A%E6%9D%A5%E6%90%9E-1.jpg)
+據路德社博士軍團美東時間10月22日08:45分報導。沉默已久的美國大傳媒公司，CNN美媒傳媒大公司，終於今天以風趣幽默風格＂閃亮登場＂了！文章報導指出＂我們偉大的天使閆麗夢博士的兩份報告，有抄襲康教授和GNEWS 文章報告的＂嫌疑＂今於路德社得到佐證，情況屬實！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22114649/142-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E7%BE%8E%E5%AA%92CNN%E7%9A%84%EF%BC%82%E8%A0%A2%E9%A9%B4%E7%B2%BE%E7%A5%9E%EF%BC%82%E6%AC%A2%E8%BF%8E%E5%A4%9A%E5%A4%9A%E6%9D%A5%E6%90%9E.jpg)
+首先感謝CNN的巨大勇氣，雖然你的出現有些滑稽，但依然給你點贊，你是最後鼓起勇氣，終於敢在這個謊言滿天飛的世界裡，再獻一份謊，雖然你的謊言無足輕重，登不上謊言的大舞台，首先聲明，你散佈之前，沒有做很好的功課，這是你們的失職，你們報導了閆博士的報告抄襲自己隊伍的文章，這都不足以奇怪，因為這些文章及聲音全源自於天使閆博士的報告內容！我們所有正義的戰友，非常感謝你們，雖然你的出現不單純，創造了有史以來唯有的奇蹟，同時也給人們貢獻點茶餘飯後的一點笑資而已，用謊言論證閆博士報告的真、唯、善，更希望你繼續發揚你的驢騾精神，在世界每個角落，喚醒更多可憐的裝睡的人們！戰友們會更加感謝你！
 
-[每日政要推文10-21\_pdf](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22100746/10-21_Done-pdf.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22100746/10-21_Done-pdf.pdf)
+同時證明，CCP已窮途末路，技倆用盡，邪魔當道的時代即將結束！再次感謝你們勇敢的付出和精彩的表演，歷史是永遠不會忘記你們的，這幫二貨！哈哈哈！
 
-
+更多資訊，歡迎訂閱[美東香草山農場官方推特賬號](https://twitter.com/Mos_Himalaya)！
 
 0

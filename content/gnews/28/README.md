@@ -1,13 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 10月22日同聲傳譯: 朱利安尼接受BLAZETV採訪
-`2020-10-22 09:00 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hant/440116/)
+## 10.14 路德時評：亨特拜登艷照門 硬盤已經被紐約郵報曝出來震驚全世界【精華版粵語配音】
+`2020-10-22 11:16 GM42` [轉載自GNews](https://gnews.org/zh-hant/440440/)
 
-2020年10月22日同聲傳譯: 朱利安尼接受BLAZETV採訪
+製作單位：戰友之家·粵語頻道
+
+製作團隊：打雜的、wenfei、WikimBao、麻辣湯
 
 
 
-####  **By：【秘密翻譯組G-Translators】**
+摘要：
+
+紐約郵報披露亨特.拜登硬盤的內容，爆光其邪惡生活，及其父喬.拜登賣國求榮的證據
 
 0
