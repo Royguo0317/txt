@@ -1,77 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奧國務卿將出訪斯里蘭卡等亞太國家並進行美歐對話來聯合對抗中共國
-`2020-10-22 18:30 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/441008/)
+## 華爾街利益集團仍對中國市場垂涎欲滴
+`2020-10-22 23:32 GM77` [轉載自GNews](https://gnews.org/zh-hant/441436/)
 
-新聞簡述：美國國務卿彭佩奧在2020年10月21日舉行的國務院記者會上，宣佈其即將出訪印度、斯里蘭卡、馬爾代夫等亞太國家，並與這些國家進行雙邊協議。也將進行歐美對話，通過聯合各個國家來一起對抗中(共)國。除此之外，彭佩奧還回顧了近期發生的重要國際事件。講話要點總結如下：
+整撰：文錦
+審核：WLQF
 
-1. 即將出訪印度、斯里蘭卡、馬爾代夫等亞太國家，並與這些國家進行雙邊協議。
+【先鋒集團轉手中共國有資產管理給黑巖集團後繼續與螞蟻金服合作】賓州領航投資（The Vanguard Group，也稱先鋒集團），創辦者為約翰·柏格，是美國最大的基金管理公司之一。創建於1975年，領航投資在歷史上以消極投資 (指數基金) 和反市場周期的投資風格而著稱，發行了全球第一支追蹤標準500指數的指數型基金。領航投資是全球最大的共同基金（mutual fund）和第二大的交易所交易基金（ETF）提供商。**近日，Vanguard在宣布計劃將其地區總部遷往上海的同時，竟然決定放棄向中國大型龍頭國有資產管理公司收取達數百萬美元之多的服務費用，Vanguard這一反常行為令許多金融界人士感到震驚。**
 
-2. 將開啟歐美對話，通過聯合各個國家來對抗中(共)國。
+據消息人士證實，Vanguard在為中國國有資產管理機構提供服務時，其費用收取標準存在一定差異。比如，Vanguard在為中國國家外匯管理局運營著規模達100億美元的投資組合基金，收取1.5個基點的費用，通過委托形式為中國投資有限責任公司管理著約100億美元的投資基金，收取約2個基點的費用，以外包方式為中國社保基金管理著約16億美元的基金投資服務，收取3.5個基點的費用。
 
-3. 中共剛公佈的所謂“事實清單”試圖轉移大家對其可怕環境記錄的關注。而中(共)國是世界上最大的溫室氣體排放國、對全球海洋的塑膠污染比任何其它國家都多、是世界上最大的非法野生動植物和木材產品消費國、經常進行非法捕魚或過度捕撈在其它沿海國家管轄下的水域。
+![https://www.ft.com/__origami/service/image/v2/images/raw/https%3A%2F%2Fd1e00ek4ebabms.cloudfront.net%2Fproduction%2Fdb9ef68c-e774-4a47-8bc5-f26e977188cf.jpg?fit=scale-down&amp;source=next&amp;width=700]()![https://www.ft.com/__origami/service/image/v2/images/raw/https%3A%2F%2Fd1e00ek4ebabms.cloudfront.net%2Fproduction%2Fdb9ef68c-e774-4a47-8bc5-f26e977188cf.jpg?fit=scale-down&amp;source=next&amp;width=700](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22225209/vanguard.png)
 
-4. 宣佈美國國務院將六家在美國運行的中(共)國媒體公司指定為外國使團。
+Vanguard為中國國家外匯管理局管理100億美元的投資組合，收費約為1.5個基點
 
-5. 美日達成了一項新的東道國支持協定，將為兩國共同安全承擔責任。
+據相關數據顯示，Vanguard每年可能從中國國有資產管理單位或機構的服務委托中獲得約400萬美元的管理費。Ignites Asia上周報道稱，**Vanguard正在撤出備受矚目的全權委托項目。**Broadridge駐倫敦的高級董事Nigel Birch表示，Vanguard向中國最大資產所有者收取的費用與行業規範相差無幾。因此，如果這個決定純粹與現有的收費水平有關，我會感到驚訝。
 
-6. 美國跟斐濟簽署了一個協議，為兩國的商業關係和定期會談打開了大門。而中共國外交官在駐斐濟的臺北貿易辦事處的野蠻打人行為及其不當和令人不齒。
+**據一位知情人士透露， Vanguard有可能受到了監管甚至政治壓力，迫使其退出相關業務。**
 
-7. 川普總統表示新的《戰略性武器消減條約》對美國及盟友無益。俄羅斯只有45%的核武器受到限制，而中(共)國完全不受限制。
+無論Vanguard與中國外匯管理局、中國投資有限責任公司、中國社保基金等中國三大機構斷絕業務往來的原因是什麽，這個決定所造成的影響可能不僅僅是簡單的貨幣指標。**Vanguard一方面在中國積極擴張，然後又從中國國有資產所有者等大客戶中撤出，其用意何在？**
 
-**彭佩奧國務卿講話全文（中英文對照）**
+據Ignites Asia 8月報道，在關閉了香港和日本辦事處後，Vanguard將把地區總部遷至上海。此舉意味著這家美國公司正豪賭在中國零售基金市場建立一個強大的、盈利的業務。Vanguard正在準備申請公募基金管理牌照，允許其在市場上制造和發行基金給零售投資者。此外，Vanguard與中國科技巨頭螞蟻集團達成了基金咨詢合資夥伴關系，目前已在為市場上約37萬名個人投資者提供服務。Vanguard現有的機構業務線和零售領域的新業務線之間並不存在明顯的沖突。
 
-This Sunday I’ll depart for India, for Sri Lanka, for the Maldives, and then on to Indonesia.  On every stop I will discuss a broad range of bilateral topics, but also work to find out with each of those countries the best ways that we can make sure that we cooperate to preserve a free and open Indo-Pacific.
+**據知情人士透露，Vanguard向中國的政府客戶返還了約210億美元的管理資產（這些資產包括Vanguard曾為中國國家外匯管理局和中國投資公司主權財富基金各管理的約100億美元）。**當前**，**[黑巖集團(BlackRock Inc.)](https://en.wikipedia.org/wiki/BlackRock)和Amundi SA正在考慮接管Vanguard向中國國有資產所有者退回的這部分資金。有消息稱，國家外匯管理局可能會將其資金的監督權轉移給包括黑巖在內的其他管理人，而中國社保基金則可能會選擇總部位於巴黎的Amundi來管理其部分賬戶，而中國投資有限責任公司則會將Vanguard基金折合到自己的指數投資平臺。
 
-這個星期天，我將前往印度，斯里蘭卡，馬爾代夫，然後前往印尼。在每一站我都講討論廣泛的雙邊議題，而且還將與這些國家一起尋求最佳合作方案以確保我們共同維護印度太平洋地區的自由和開放。
+**對此，Vanguard、中國社保基金理事會、BlackRock和Amundi拒絕置評。中投公司和國家外匯管理局也沒有立即回復置評請求。**
 
-I’m especially looking forward to doing that with Secretary Esper and our 2+2 ministerial dialogue with our Indian friends.  It’s been postponed because of the virus.  I’m glad we’re going to be able to execute that in person here in just a few days.  I’m sure that my meetings will also include discussions on how free nations can work together to thwart threats posed by the Chinese Communist Party.
+作為與中國監管機構的主要談判者之一、Vanguard亞洲區首席執行官林曉東(Charles Lin)去年突然辭職後，至少有10名高級管理人員曾跟隨他出走，包括法律事務、人力資源、風險管理和銷售方面的工作人員。9月22日，Vanguard宣布任命羅登攀（Luo Dengpan）為在上海總部的總經理。一位知情人士稱，曾是先鋒集團在上海的外資企業總經理的克萊爾·趙（Clare Zhao）離開，加入了阿蒙迪（Amundi），她將擔任阿蒙迪中國業務的負責人。
 
-為此，我特別期待與Esper部長及我們的印度朋友進行2 + 2部長級對話。由於病毒(會面)被推遲了。我很高興我們能夠在短短幾天內到此會晤。我敢肯定，我的會議還將包括探討自由國家如何共同抵抗中國共產黨構成的威脅。
+對基金經理來說，中國是一個巨大的市場，不僅因為其龐大的規模和財富管理的潛力，還因為收費比美國更有利可圖。德勤會計師事務所預測，到2023年，中國的零售基金市場可能增長到3.4萬億美元。不過外國公司一直在努力解決在這個以投資者從一個基金跳到另一個基金而臭名昭著的市場。
 
-And on that front, good news.  This Friday the EU High Representative Josep Borrell and I will launch the U.S.-EU dialogue on China.  I’m confident that the discussion will deepen our long-term engagement with EU friends on this important issue.
+1988年的黑巖曾是[黑石（BlackStone）](https://en.wikipedia.org/wiki/The_Blackstone_Group)集團的一部分，後由創始人拉裏·芬克（Larry Fink）從黑石集團獨立分離出來。2020年8月，黑巖獲得中國證券監督管理委員會的批準，在中國設立共同基金業務，並與一家中國銀行成立了合資企業。**這使黑巖成為首張獲得外商獨資共同基金牌照的全球資產管理公司。**
 
-在這方面，有個好消息。星期五，歐盟高級代表Josep Borrell和我將發起美歐關於中(共)國的對話。我相信，此次討論將加深我們與歐盟朋友在這個重要問題上的長期合作。
+我們看到，在Vanguard將中共國有資產三大機構的管理業務轉手交給了黑巖等其他美國公司後，並沒有退出中國市場，而是選擇與中共江家利益集團旗下的螞蟻金服繼續合作。接管Vanguard中國國有資產基金管理業務的黑巖等公司，仍大刀闊斧與中國銀行體系合資，並取得首張共同基金拍照。種種跡象表明，中共盜國賊正各自利用手中的權力，將中國未來的潛力市場向美國華爾街嗜血一族拋出誘餌，美國華爾街大佬並沒想真正脫離中共市場，而是繼續在這些對華爾街來說極具誘惑的市場提前布局。**70多年來，中共剝削14億中國人民的血汗錢，再輸送給這些華爾街大佬們，坐享榮華富貴讓華爾街大佬們變得更加貪婪。而“相信共產黨奔向火葬場”這句話不僅對中國人、對美國人也同樣適用，但歷史終將給出答案。**
 
-For instance, Europeans are concerned too about the environment, just as we are.  Just this week, the CCP issued a “fact sheet” that was – “fact sheet” is in quotes – a “fact sheet” trying to divert attention away from its own horrific environmental record.  Let me give you a few real data points.
-
-例如，歐洲人民也像我們一樣關注環境問題。就在本周，中共發佈了“事實清單”，這個“事實清單”需要加引號。這個“事實清單”試圖轉移對其環境可怕記錄的關注。讓我給您舉些實際數據。
-
-The PRC is the world’s largest emitter of greenhouse gases, bar none – number one.  The PRC is indeed responsible for an estimated 30 percent of plastic pollution in the world’s oceans – more than any other country.  The PRC is the world’s largest consumer of illegal wildlife and timber products – again, number one.  PRC-flagged or owned vessels constantly fish illegally or overfish in waters under the jurisdiction of other coastal states, in particular in Africa, Asia, and in South America.
-
-中(共)國是世界上最大的溫室氣體排放國，無例外地排在第一位。實際上，中(共)國對全球海洋中約30％的塑膠污染負有責任，比任何其它國家都多。中(共)國是世界上最大的非法野生動植物和木材產品消費國，再次名列第一。掛中(共)國國旗或其擁有的船隻經常進行非法捕魚或過度捕撈在其他沿海國家管轄下的水域，尤其在非洲，亞洲和南美。
-
-We’re pushing back on the Chinese communist propaganda efforts here at home, too.  Today I’m announcing the State Department is designating the U.S. operations of six China-based media companies as foreign missions.  They are all substantially owned or effectively controlled by a foreign government.  We’re not placing any restrictions on what these outlets can publish in the United States.  We simply want to ensure that American people, consumers of information, can differentiate between news written by a free press and propaganda distributed by the Chinese Communist Party itself.  They’re not the same thing.
-
-我們也在抑制中國共產黨的在(美)境內的宣傳工作。今天，我宣佈美國國務院將六家在美國運行的中(共)國媒體公司指定為外國使團。它們全部歸屬或被有效控制於外國政府。對於這些媒體可以發佈的內容，我們不加任何限制。在美國境內的。我們只是想確保美國人民，作為資訊受眾，能夠區分自由撰寫的新聞和中國共產黨自身發佈宣傳的不同。兩者不相等同。
-
-I’d also like to note last week President Trump released the National Strategy for Critical and Emerging Technologies.  It outlines fundamentally how the United States will maintain global leadership in conventional weapons, artificial intelligence, semiconductor, and space technologies.  Our competitive edge in each of these arenas is all the more important as the Chinese Communist Party and Russia seek to supplant America as the leader in these fields.
-
-我還要指出，上周川普總統發佈了《關鍵技術和新興技術國家戰略》。它從根本上概述了美國將如何在常規武器、人工智慧、半導體以及太空技術方面保持全球領先地位。我們在這幾個領域的競爭優勢變得越來越重要，因為中國共產黨和俄羅斯企圖替代美國在這幾個領域的領導地位。
-
-In other news from Asia, last week the United States and Japan held the first ever consultations for a new host nation support agreement by which Japan will take on its share of the burden for our mutual security.  We agreed to continue coordination on dates and framework for formal negotiations in the coming weeks.
-
-來自亞洲的其他新聞，上周美國和日本舉行了有史以來的第一次磋商，以達成一項新的東道國支持協定，根據這個協定日本將為我們的共同安全承擔責任。在未來幾周，我們同意繼續就正式磋商的日期及框架進行協調。
-
-Also last week, U.S. Trade Representative Bob Lighthizer and I and Ambassador Joseph Cella virtually signed an agreement with Fiji that opens the door to regular talks between the United States and Fiji on our growing commercial relationship.  Contrast that with the activity that took place early this month when Chinese diplomats appeared uninvited at an event organized by the Taipei trade office in Fiji.  They started taking pictures of guests, were asked to stop, and then got into a fight, a brawl, resulting in one of Taipei trade office staffers suffering a head injury.  We wish our Taiwanese friend a healthy, safe recovery.  This isn’t, unfortunately, the first time we’ve heard allegations of Chinese diplomats behaving inappropriately.
-
-同樣在上周，美國貿易代表Bob Lighthizer和我以及Joseph Cella大使實際上跟斐濟簽署了一個協議。該協議為美國和斐濟關於正在發展的商業關係的定期會談打開了大門。這與本月初發生的活動相反，當時中共國外交官不請自來地參加一個由駐斐濟的臺北貿易辦事處組織的活動。他們開始為客人拍照，被要求停止後，他們陷入了打架和爭吵，導致臺北貿易辦事處的一名職員頭部受傷。我們希望臺灣朋友健康、安全的康復。不幸的是，這不是我們第一次聽到關於中共國外交官行為不當的聲明。
-
-Shifting gears to Russia, President Trump has made clear that the New START Treaty by itself is not a good deal for the United States or our friends or allies.  Only 45 percent of Russia’s nuclear arsenal is subject to numerical limits, posing a threat to the United States and our NATO allies.  Meanwhile, that agreement restricts 92 percent of America’s arsenal that is subject to the limits contained in the New START agreement.
-
-轉到俄羅斯，川普總統明確表明新的《戰略性武器消減條約》本身是一個對美國或者我們的朋友、同盟無益的交易。俄羅斯只有45%的核武器受到數量限制，這對美國和我們的北約同盟構成威脅。與此同時，該協議限制了美國92%的軍火庫，這取決於新的《戰略性武器削減條約》中包含的限制。
-
-And China – China of course is not bound at all.  Zero percent of their weapon systems are governed and restricted by the New START agreement.  What we’ve proposed to extend that agreement would be historic, it’d be a great achievement.  Russia has agreed in principle to freeze all of its nuclear warheads.  We’re very pleased about that.  But we need to make sure that U.S. and Russian negotiators get together just as soon as possible to continue to make progress to finalize a verifiable agreement.
-
-而中(共)國—中(共)國當然一點也不受約束。他們的武器系統不受新的《戰略性武器削減條約》所管理和限制。我們已經提議擴展該協議，這將會是歷史性的，這將會是一項巨大的成就。俄羅斯原則上已經同意凍結其所有的核彈頭。我們對此感到十分高興。但是，我們需要確保美國和俄羅斯的談判者儘快聚在一起，繼續為敲定一個可核查的協議而取得進展。
-
-[閱讀國務院英文全文](https://www.state.gov/secretary-michael-r-pompeo-at-a-press-availability-15/)
-
-翻譯：【一花一世界】【Cyndi】 校對：【重生】【Isaiah4031】字幕：【Pamila（文明）】編輯：【Isaiah4031】
-
-戰友之家玫瑰園小隊出品
-
-相關新聞：[蓬佩奧國務卿正面回擊亨特·拜登事件是「俄羅斯信息戰」的謊言](https://gnews.org/zh-hant/439231/)
+參考鏈接：
+[https://www.ft.com/content/c43c66ca-23a7-45e4-bc72-6ee43e1fd768](https://www.ft.com/content/c43c66ca-23a7-45e4-bc72-6ee43e1fd768)
+[https://web.archive.org/web/20201012055340if\_/https://www.bloomberg.com/news/articles/2020-10-09/vanguard-returns-21-billion-in-assets-to-china-s-state-funds](https://web.archive.org/web/20201012055340if_/https://www.bloomberg.com/news/articles/2020-10-09/vanguard-returns-21-billion-in-assets-to-china-s-state-funds)
 
 0

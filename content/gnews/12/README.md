@@ -1,37 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆革星評- 閆博士發推：目前羥氯喹比潛在的疫苗有效
-`2020-10-22 17:03 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/440934/)
+## 路德社重磅揭露：幫亨特·拜登吸毒的人找到了！ 「毒亦菲」！
+`2020-10-22 22:36 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/441363/)
 
-喜馬拉雅聯盟加拿大農場 文星（一號）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22220411/Lude_20201021_PM_Hunter_LiuYifei-figure1.png)圖片來源：[https://gtv.org/web/#/UserInfo/5e596957357cc612d35a8044](https://gtv.org/web/#/UserInfo/5e596957357cc612d35a8044)
+郭文貴先生於2020年10月22日在蓋特中發出一張圖片，並附文：「10月22日 亨特拜登，這是在哪裡吸毒？誰在幫他吸毒？請戰友們稍後看路德訪談 。」
 
-校對上傳 XM
+隨後，路德先生也在推特中附上該圖片：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22220354/Lude_20201021_PM_Hunter_LiuYifei-figure2.png)圖片來源：[https://twitter.com/ding\_gang/status/1319346509129940996](https://twitter.com/ding_gang/status/1319346509129940996)
+[《路德时评》在晚間節目](https://www.youtube.com/watch?v=-Q-Xt9BxaXc)中便揭開該照片神秘面紗：
 
-10月21日，巴西總統賈爾·博爾索納羅(Jair Bolsonaro)宣布拒絕購買中共國公司尚在研發階段的4600萬劑疫苗。因為博爾索納羅總統曾經罹患中共病毒，他還以自己服用羥氯喹治愈中共病毒的親身經歷，說明羥氯喹是有效的藥物。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22165632/391755-01-08-1595544502_444752.jpg)圖片來源：法新社
-中共的疫苗尚在研製或臨床試驗過程之中，其療效尚未得到驗證。但據媒體報導，中共除已強制向本國幾十萬國民注射了這些不合格疫苗外，還處心積慮制定方案，企圖向世界各國兜售，一方面藉此要挾各國，另一方面故意引發使用國的二次病毒災難。
+- 該照片是某整段視頻中的一個截圖；
+- 照片中的主角是亨特·拜登，他在吸毒；
+- 從圖片中可以看到約有三個人在現場；
+- 亨特·拜登吸毒處所是北京東方集團張宏偉的一處私人俱樂部；
+- 重磅：在亨特拜登身邊幫忙他吸毒的就是《花木蘭》主演：劉亦菲
 
-其實，針對中共病毒的治療，閆麗夢博士已多次公開表示羥氯喹的有效性。她在幾天前發推說：“目前世界上沒有治愈中共病毒的靈丹妙藥，但是存在相對安全、有效地抵禦中共病毒的藥物，這種藥物就是羥氯喹。面對歷史罕見的中共病毒大瘟疫，任何讓人們遠離羥氯喹藥物的行為，都是極端不負責任的”。
 
-10月21日閆博士又一次發推強調：“目前狀況下，羥氯喹和其它藥物（鋅）是比其它任何藥物和實驗中的疫苗更有效。” 目前有很多實例說明，羥氯喹確實對預防和治療中共病毒有明顯效用。
+張宏偉，1954年生，黑龍江省哈爾濱市人，碩士，高級經濟師。現任東方集團董事局主席，東方集團股份有限公司名譽董事長、董事，聯合能源集團有限公司董事局主席，中國民生銀行股份有限公司副董事長。[1]
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22220341/Lude_20201021_PM_Hunter_LiuYifei-figure3.jpg)圖片來源：[http://pic.baike.soso.com/p/20131014/20131014103733-484084604.jpg](http://pic.baike.soso.com/p/20131014/20131014103733-484084604.jpg)
+路德社還爆料張宏偉主要幫劉亦菲打理財務，劉亦菲替中共在海外進行「藍金黃」活動。張宏偉企業還參與許多軍工項目，在海外還涉足石油等能源項目。他在美國、新加坡、巴基斯坦等地都註冊有公司，這些公司未來都會通過RICO法案被一鍋端。
 
-做為深度了解中共病毒之來龍去脈的頂級專家，閆博士的多次提醒應該引起全世界的高度重視。注射不合規範的疫苗是極其危險的，尤其是中共大規模生產、企圖大量輸出國外的疫苗。注射這些疫苗，不僅不能治愈中共病毒，還可能引致更深度的傷害。
+此前，路德社爆料劉亦菲被岳欣禹包養，並成為中共海外「藍金黃」工具，劉亦菲也因此獲得「十億菲」光榮稱號，現又憑借一張吸毒照片，奪得「毒亦菲」稱號，她已完全成為中共在海外「藍金黃」的武器。
 
-中共病毒給世界各國帶來了無以復加的傷害，面對世界各國的詰問和譴責，中共不思悔改，反而變本加厲再度向世界各國投放不合格的中共疫苗，以期達到最終控制全世界的罪惡目的。
+未來還將有更多重磅信息揭露，請大家拭目以待 ！！！
 
-巴西總統博爾索納羅拒絕中共疫苗的決定，是消滅中共疫苗超限戰的清醒、正確的開端。世界各國和人民應該聯合起來，向中共疫苗說不！避免陷入中共的疫苗陷阱，進而徹底戰勝中共利於疫苗進行的變相攻擊。
+參考資料：
 
-參考鏈接：
+[1] [https://baike.baidu.com/item/%E5%BC%A0%E5%AE%8F%E4%BC%9F/6813656](https://baike.baidu.com/item/%E5%BC%A0%E5%AE%8F%E4%BC%9F/6813656)
 
-> There is no magic drugs/vaccines in the world.
-> But there are comparably safe and efficient drugs against COVID-19 before novel therapeutic methods /vaccines developed.
-> Facing to this historic pandemic, it is extremely irresponsible to keep people away from hydroxychloroquine. [https://t.co/sZx0mkQ4Rw](https://t.co/sZx0mkQ4Rw)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [October 16, 2020](https://twitter.com/DrLiMengYAN1/status/1317243515982708738?ref_src=twsrc%5Etfw)
+文章撰寫：【重生】   編輯：【Isaiah4031】
 
-> Key point here: Hydroxychloroquine and other medicines are better than potential vaccine candidates at this moment.
-> 
-> BTW, why can’t it be retweeted without comments? [https://t.co/l4s7lTvXKV](https://t.co/l4s7lTvXKV)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [October 21, 2020](https://twitter.com/DrLiMengYAN1/status/1319055682419777538?ref_src=twsrc%5Etfw)
+戰友之家玫瑰園小隊出品
 
 0
