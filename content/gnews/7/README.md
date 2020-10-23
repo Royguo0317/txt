@@ -1,61 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## ELLIOTT BROIDY承認犯有非法遊說活動罪
-`2020-10-22 15:08 英國喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hant/440808/)
+## 蓬佩奧國務卿將出訪斯里蘭卡等亞太國家並進行美歐對話來聯合對抗中共國
+`2020-10-22 18:30 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/441008/)
 
-*新聞來源：美國司法部；發佈時間： 2020年10月20日*
+新聞簡述：美國國務卿彭佩奧在2020年10月21日舉行的國務院記者會上，宣佈其即將出訪印度、斯里蘭卡、馬爾代夫等亞太國家，並與這些國家進行雙邊協議。也將進行歐美對話，通過聯合各個國家來一起對抗中(共)國。除此之外，彭佩奧還回顧了近期發生的重要國際事件。講話要點總結如下：
 
-*翻譯/簡評：勢不可擋；校對：Julia Win；審核：海闊天空；Page：拱卒*
+1. 即將出訪印度、斯里蘭卡、馬爾代夫等亞太國家，並與這些國家進行雙邊協議。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/iDN500wqEsm8d/images/79c87f06-cec0-4982-9698-c4e4f13b98a8.jpg?asset_id=3292ed58-7a2c-4c1f-bb46-bf97a607eeb1&amp;img_etag=%221b86db58e53c91cf3821728fa4e0d089%22&amp;size=1024)](https://spark.adobe.com/page/iDN500wqEsm8d/images/79c87f06-cec0-4982-9698-c4e4f13b98a8.jpg?asset_id=3292ed58-7a2c-4c1f-bb46-bf97a607eeb1&amp;img_etag=%221b86db58e53c91cf3821728fa4e0d089%22&amp;size=1024)
+2. 將開啟歐美對話，通過聯合各個國家來對抗中(共)國。
 
-**簡評：**
+3. 中共剛公佈的所謂“事實清單”試圖轉移大家對其可怕環境記錄的關注。而中(共)國是世界上最大的溫室氣體排放國、對全球海洋的塑膠污染比任何其它國家都多、是世界上最大的非法野生動植物和木材產品消費國、經常進行非法捕魚或過度捕撈在其它沿海國家管轄下的水域。
 
-2020年10月20日，現年63歲的埃利奧特·布洛伊迪（Elliott Broidy）在美國地方法院法官科琳·科拉爾·科特利（Colleen Kollar-Kotelly）面前承認了一項共謀違反《外國代理人登記法》的罪名。布洛伊迪作為前共和黨全國委員會財務副主席，曾幫助川普就職委員會籌集了創紀錄的1.07億美元，但是在明知道“在任何時候充當外國委託人的代理人都需要向司法部FARA登記註冊”的情況下，由於其自私、貪婪和懦弱的本性，仍然暗中為中共國和其它國家利益集團進行遊說。
+4. 宣佈美國國務院將六家在美國運行的中(共)國媒體公司指定為外國使團。
 
-布洛伊迪參與的非法遊說犯罪活動包括：一、應中共常委孟建柱私生子，馬來西亞“壹馬公司”醜聞的主角劉特佐（Jho Low）要求，布洛伊迪和其搭檔戴維斯同意幫助遊說美國總統及其政府撤銷對“壹馬公司（1MDB）”的調查，並要求800萬美元的預付款；二、 布洛伊迪和戴維斯在劉特佐處領取的另一個任務是，與時任中共國公安部副部長孫力軍合作，遊說美國總統及其政府遣返在美居住人士郭文貴先生，並且在孫力軍訪美期間，布洛伊迪曾努力遊說美國司法部和國家安全部的最高官員與孫力軍會面。但這些遊說活動均未成功。
+5. 美日達成了一項新的東道國支持協定，將為兩國共同安全承擔責任。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/iDN500wqEsm8d/images/62f57bc5-c57a-4389-8c2d-d76457e5b0b0.jpg?asset_id=cb8968c7-1a08-4745-9041-8d4d42e9280e&amp;img_etag=%222d26d0614c05caf9e0f9c409b7acc897%22&amp;size=1024)](https://spark.adobe.com/page/iDN500wqEsm8d/images/62f57bc5-c57a-4389-8c2d-d76457e5b0b0.jpg?asset_id=cb8968c7-1a08-4745-9041-8d4d42e9280e&amp;img_etag=%222d26d0614c05caf9e0f9c409b7acc897%22&amp;size=1024)
+6. 美國跟斐濟簽署了一個協議，為兩國的商業關係和定期會談打開了大門。而中共國外交官在駐斐濟的臺北貿易辦事處的野蠻打人行為及其不當和令人不齒。
 
-早前，司法部前僱員喬治·希金伯瑟姆（George Higginbotham），在美國哥倫比亞特區地方法院因其在遊說活動中的角色而認罪；布洛伊迪搭檔戴維斯也已經宣判為非法外國代理人，她也已經認罪。現在，這位聲名狼藉的共和黨金融家布洛伊迪也對其進行的非法遊說活動認罪，他的認罪是維護美國司法制度公平透明原則的第一步。儘管中共利用“藍金黃”戰略，誘惑腐敗的律師、政府官員以及貪婪的商人對美國進行大規模滲透，讓他們不惜以破壞美國利益和美國司法制度為代價與中共勾兌，但是，作為三權分立的國家，美國司法部保護了司法部調查的完整性不受外國滲透勢力的影響。
+7. 川普總統表示新的《戰略性武器消減條約》對美國及盟友無益。俄羅斯只有45%的核武器受到限制，而中(共)國完全不受限制。
 
-布洛伊迪的認罪表明，美國司法部正在用法律全面圍剿和中共勾兌的暗勢力，以將其繩之以法。當美國利用法律武器時，和中共勾兌的人將無法逃過法律制裁，將受到正義的審判。同時奉勸美國的中間派、牆頭草以及投機主義者們能看清形勢，儘早遠離中共生態圈，加入到全球自動滅共的行列中來。
+**彭佩奧國務卿講話全文（中英文對照）**
 
-![]()![](https://spark.adobe.com/page/iDN500wqEsm8d/images/db87b3c2-5833-48e5-8b58-397d799a07e9.jpg?asset_id=d370ccef-08af-4a26-8152-06ac0b168ac2&amp;img_etag=%227afad403fd26732db5a89d76a36a2712%22&amp;size=1024)
+This Sunday I’ll depart for India, for Sri Lanka, for the Maldives, and then on to Indonesia.  On every stop I will discuss a broad range of bilateral topics, but also work to find out with each of those countries the best ways that we can make sure that we cooperate to preserve a free and open Indo-Pacific.
 
-**埃利奧特·布洛伊迪（Elliott Broidy）承認犯有非法遊說活動罪，該遊說旨在撤銷1MDB的調查並遣返一名華裔外國人**
+這個星期天，我將前往印度，斯里蘭卡，馬爾代夫，然後前往印尼。在每一站我都講討論廣泛的雙邊議題，而且還將與這些國家一起尋求最佳合作方案以確保我們共同維護印度太平洋地區的自由和開放。
 
-現年63歲、來自於加州貝弗利山莊（Beverly Hills）的埃利奧特·布洛伊迪（Elliott Broidy）今天在美國地方法院法官科琳·科拉爾·科特利（Colleen Kollar-Kotelly ）面前承認了一項共謀違反《外國代理人登記法》的罪名。
+I’m especially looking forward to doing that with Secretary Esper and our 2+2 ministerial dialogue with our Indian friends.  It’s been postponed because of the virus.  I’m glad we’re going to be able to execute that in person here in just a few days.  I’m sure that my meetings will also include discussions on how free nations can work together to thwart threats posed by the Chinese Communist Party.
 
-司法部刑事司代理助理總檢察長佈萊恩·C·拉比特（Brian C. Rabbitt）說：“以數百萬美元為交換，埃利奧特·布洛伊迪和他的同謀者同意秘密地聽命於一個外國政府和一個外國公民，就司法部正在進行的調查和引渡一位外國公民的問題遊說美國政府高級官員。儘管他不斷影響政府的努力均沒有成功，但布洛伊迪先生從未透露他實際上是代表外國行為者行事。此案表明，外國政府和委託人是如何通過隱藏在具有政治影響力的代理人背後，以尋求在美國推進其議程的。這種行為對我們的國家安全構成了嚴重威脅，並破壞了我們民主的完整性。布洛伊迪先生沒有披露他是代表外國委託人行事，這欺騙了美國人民，並使政府官員無法正確評估其努力遊說工作的真正來源和動機。”
+為此，我特別期待與Esper部長及我們的印度朋友進行2 + 2部長級對話。由於病毒(會面)被推遲了。我很高興我們能夠在短短幾天內到此會晤。我敢肯定，我的會議還將包括探討自由國家如何共同抵抗中國共產黨構成的威脅。
 
-司法部國家安全部助理總檢察長約翰·C·德默斯（John C. Demers）說：“埃利奧特·布洛伊迪試圖遊說美國政府最高層，以撤銷有史以來規模最大的欺詐和洗錢起訴之一，並驅逐一名對中國共產黨的批評者，同時隱瞞了他受命於外國利益集團。他的認罪是維護透明原則的第一步，而透明原則是我們民主制度中自由思想的基礎。”
+And on that front, good news.  This Friday the EU High Representative Josep Borrell and I will launch the U.S.-EU dialogue on China.  I’m confident that the discussion will deepen our long-term engagement with EU friends on this important issue.
 
-聯邦調查局（FBI）刑事調查部助理局長卡爾文·希弗斯（Calvin Shivers）說：“FBI致力於根除任何形式的腐敗。FBI與我們在司法部-監察局（DOJ-OIG）的合作夥伴合作，揭露並挫敗了埃利奧特·布洛伊迪從事非法遊說以換取數百萬美元的計劃。此案應該成為所有參與國際腐敗計劃的人的範例。FBI和我們的合作夥伴將對你進行調查，我們將把你繩之以法。”
+在這方面，有個好消息。星期五，歐盟高級代表Josep Borrell和我將發起美歐關於中(共)國的對話。我相信，此次討論將加深我們與歐盟朋友在這個重要問題上的長期合作。
 
-司法部-監察局網絡調查辦公室的特別負責人基思·波南諾（Keith A. Bonanno）說：“布洛伊迪代表外國官員對司法部施加影響，在這個過程中，他並沒有披露他與外國官員之間的有利可圖的關係。儘管他沒有成功，但此案突顯了保護司法部調查的完整性免受外國影響的重要性。”
+For instance, Europeans are concerned too about the environment, just as we are.  Just this week, the CCP issued a “fact sheet” that was – “fact sheet” is in quotes – a “fact sheet” trying to divert attention away from its own horrific environmental record.  Let me give you a few real data points.
 
-[!\[\]()!\[\](https://spark.adobe.com/page/iDN500wqEsm8d/images/991214ff-947c-45f0-9591-5ce813287687.jpg?asset_id=f5f53d9f-7cc9-4805-9690-dfa7b16a5c73&amp;img_etag=%2295fcb6af0d0a7faa0fb0dcb71d664f06%22&amp;size=1024)](https://spark.adobe.com/page/iDN500wqEsm8d/images/991214ff-947c-45f0-9591-5ce813287687.jpg?asset_id=f5f53d9f-7cc9-4805-9690-dfa7b16a5c73&amp;img_etag=%2295fcb6af0d0a7faa0fb0dcb71d664f06%22&amp;size=1024)
+例如，歐洲人民也像我們一樣關注環境問題。就在本周，中共發佈了“事實清單”，這個“事實清單”需要加引號。這個“事實清單”試圖轉移對其環境可怕記錄的關注。讓我給您舉些實際數據。
 
-根據他在認罪時作出的交代，2017年3月至2018年1月期間，布洛伊迪同意遊說美國總統、司法部長以及政府和司法部的其他高級官員，以撤銷民事沒收程序和涉及從馬來西亞政府全資擁有的戰略投資和發展公司1Malaysia Development Berhad（1MDB）貪污數十億美元的相關事宜。由於他的努力，布洛伊迪從外國國民A（據稱是1MDB計劃的設計者）那裡獲得900萬美元的報酬。布洛伊迪還同意代表外國國民A和中華人民共和國（中共國）部長A遊說政府和司法部，以安排將中國國民A（居住在美國的中國異議人士）遣送回國。布羅迪向他遊說的官員隱瞞了外國國民A向他支付了數百萬美元的報酬，並期望獲得數千萬的成功費。遊說活動最終沒有成功。
+The PRC is the world’s largest emitter of greenhouse gases, bar none – number one.  The PRC is indeed responsible for an estimated 30 percent of plastic pollution in the world’s oceans – more than any other country.  The PRC is the world’s largest consumer of illegal wildlife and timber products – again, number one.  PRC-flagged or owned vessels constantly fish illegally or overfish in waters under the jurisdiction of other coastal states, in particular in Africa, Asia, and in South America.
 
-在其它行動中，布洛伊迪試圖在2017年5月中共國部長訪美期間，安排中共國部長A與司法部長、國土安全部部長和其他高級官員會面；在2017年8月美國國務卿與馬來西亞總理會晤之前，向國務卿提供有關1MDB調查的談話要點；並推動白宮幕僚長安排總統與馬來西亞總理之間的高爾夫比賽，以允許馬來西亞總理提出1MDB調查的解決方案。如前所述，儘管布洛伊迪和他的同謀做了很多努力，但對於上述人員的遊說活動並未成功。布洛伊迪因其在該計劃中的作用而獲得900萬美元的報酬，他向同謀尼基·盧姆·戴維斯（Nickie Lum Davis）支付了大約240萬美元。作為認罪協議的一部分，布羅迪已經同意沒收660萬美元的餘額。
+中(共)國是世界上最大的溫室氣體排放國，無例外地排在第一位。實際上，中(共)國對全球海洋中約30％的塑膠污染負有責任，比任何其它國家都多。中(共)國是世界上最大的非法野生動植物和木材產品消費國，再次名列第一。掛中(共)國國旗或其擁有的船隻經常進行非法捕魚或過度捕撈在其他沿海國家管轄下的水域，尤其在非洲，亞洲和南美。
 
-司法部前僱員喬治·希金伯瑟姆（George Higginbotham）曾於2018年11月30日在美國哥倫比亞特區地方法院因其在該計劃中的角色而認罪。盧姆·戴維斯此前於2020年8月31日因其在該計劃中的角色而認罪。
+We’re pushing back on the Chinese communist propaganda efforts here at home, too.  Today I’m announcing the State Department is designating the U.S. operations of six China-based media companies as foreign missions.  They are all substantially owned or effectively controlled by a foreign government.  We’re not placing any restrictions on what these outlets can publish in the United States.  We simply want to ensure that American people, consumers of information, can differentiate between news written by a free press and propaganda distributed by the Chinese Communist Party itself.  They’re not the same thing.
 
-對布洛伊迪的宣判將擇日進行。
+我們也在抑制中國共產黨的在(美)境內的宣傳工作。今天，我宣佈美國國務院將六家在美國運行的中(共)國媒體公司指定為外國使團。它們全部歸屬或被有效控制於外國政府。對於這些媒體可以發佈的內容，我們不加任何限制。在美國境內的。我們只是想確保美國人民，作為資訊受眾，能夠區分自由撰寫的新聞和中國共產黨自身發佈宣傳的不同。兩者不相等同。
 
-FBI洛杉磯外勤部和司法部-監察局調查了此案。首席副主任約翰-D-凱勒（John D. Keller）、選舉犯罪部副主任肖恩-F-穆林（Sean F. Mulryne）和刑事部公共廉正科（PIN）的審判律師尼科爾·洛克哈特（Nicole R. Lockhart）和詹姆斯·曼（James C. Mann）正在起訴此案。前PIN審判律師瑞安·埃勒西克（Ryan Ellersick）也在調查中提供了重要協助。
+I’d also like to note last week President Trump released the National Strategy for Critical and Emerging Technologies.  It outlines fundamentally how the United States will maintain global leadership in conventional weapons, artificial intelligence, semiconductor, and space technologies.  Our competitive edge in each of these arenas is all the more important as the Chinese Communist Party and Russia seek to supplant America as the leader in these fields.
 
-[原文鏈接](https://www.justice.gov/opa/pr/elliott-broidy-pleads-guilty-back-channel-lobbying-campaign-drop-1mdb-investigation-and)
+我還要指出，上周川普總統發佈了《關鍵技術和新興技術國家戰略》。它從根本上概述了美國將如何在常規武器、人工智慧、半導體以及太空技術方面保持全球領先地位。我們在這幾個領域的競爭優勢變得越來越重要，因為中國共產黨和俄羅斯企圖替代美國在這幾個領域的領導地位。
 
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/iDN500wqEsm8d/) -點擊spark adobe版
+In other news from Asia, last week the United States and Japan held the first ever consultations for a new host nation support agreement by which Japan will take on its share of the burden for our mutual security.  We agreed to continue coordination on dates and framework for formal negotiations in the coming weeks.
 
-了解更多信息敬請關注【英國喜莊園/戰鷹團文宣電台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
+來自亞洲的其他新聞，上周美國和日本舉行了有史以來的第一次磋商，以達成一項新的東道國支持協定，根據這個協定日本將為我們的共同安全承擔責任。在未來幾周，我們同意繼續就正式磋商的日期及框架進行協調。
 
-[英国GTV/盖特]: [https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+Also last week, U.S. Trade Representative Bob Lighthizer and I and Ambassador Joseph Cella virtually signed an agreement with Fiji that opens the door to regular talks between the United States and Fiji on our growing commercial relationship.  Contrast that with the activity that took place early this month when Chinese diplomats appeared uninvited at an event organized by the Taipei trade office in Fiji.  They started taking pictures of guests, were asked to stop, and then got into a fight, a brawl, resulting in one of Taipei trade office staffers suffering a head injury.  We wish our Taiwanese friend a healthy, safe recovery.  This isn’t, unfortunately, the first time we’ve heard allegations of Chinese diplomats behaving inappropriately.
 
-[英国喜庄园YouTube]: [https://www.youtube.com/channel/UC\_1vMDgDmkUw5N14G-0XsRA](https://www.youtube.com/channel/UC_1vMDgDmkUw5N14G-0XsRA)
+同樣在上周，美國貿易代表Bob Lighthizer和我以及Joseph Cella大使實際上跟斐濟簽署了一個協議。該協議為美國和斐濟關於正在發展的商業關係的定期會談打開了大門。這與本月初發生的活動相反，當時中共國外交官不請自來地參加一個由駐斐濟的臺北貿易辦事處組織的活動。他們開始為客人拍照，被要求停止後，他們陷入了打架和爭吵，導致臺北貿易辦事處的一名職員頭部受傷。我們希望臺灣朋友健康、安全的康復。不幸的是，這不是我們第一次聽到關於中共國外交官行為不當的聲明。
+
+Shifting gears to Russia, President Trump has made clear that the New START Treaty by itself is not a good deal for the United States or our friends or allies.  Only 45 percent of Russia’s nuclear arsenal is subject to numerical limits, posing a threat to the United States and our NATO allies.  Meanwhile, that agreement restricts 92 percent of America’s arsenal that is subject to the limits contained in the New START agreement.
+
+轉到俄羅斯，川普總統明確表明新的《戰略性武器消減條約》本身是一個對美國或者我們的朋友、同盟無益的交易。俄羅斯只有45%的核武器受到數量限制，這對美國和我們的北約同盟構成威脅。與此同時，該協議限制了美國92%的軍火庫，這取決於新的《戰略性武器削減條約》中包含的限制。
+
+And China – China of course is not bound at all.  Zero percent of their weapon systems are governed and restricted by the New START agreement.  What we’ve proposed to extend that agreement would be historic, it’d be a great achievement.  Russia has agreed in principle to freeze all of its nuclear warheads.  We’re very pleased about that.  But we need to make sure that U.S. and Russian negotiators get together just as soon as possible to continue to make progress to finalize a verifiable agreement.
+
+而中(共)國—中(共)國當然一點也不受約束。他們的武器系統不受新的《戰略性武器削減條約》所管理和限制。我們已經提議擴展該協議，這將會是歷史性的，這將會是一項巨大的成就。俄羅斯原則上已經同意凍結其所有的核彈頭。我們對此感到十分高興。但是，我們需要確保美國和俄羅斯的談判者儘快聚在一起，繼續為敲定一個可核查的協議而取得進展。
+
+[閱讀國務院英文全文](https://www.state.gov/secretary-michael-r-pompeo-at-a-press-availability-15/)
+
+翻譯：【一花一世界】【Cyndi】 校對：【重生】【Isaiah4031】字幕：【Pamila（文明）】編輯：【Isaiah4031】
+
+戰友之家玫瑰園小隊出品
+
+相關新聞：[蓬佩奧國務卿正面回擊亨特·拜登事件是「俄羅斯信息戰」的謊言](https://gnews.org/zh-hant/439231/)
 
 0

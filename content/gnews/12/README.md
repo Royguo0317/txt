@@ -1,33 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重要證人出現：我親眼目睹了亨特與喬·拜登討論交易
-`2020-10-22 14:19 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/440751/)
+## 爆革星評- 閆博士發推：目前羥氯喹比潛在的疫苗有效
+`2020-10-22 17:03 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/440934/)
 
-喜馬拉雅聯盟加拿大農場Cran
+喜馬拉雅聯盟加拿大農場 文星（一號）
 
-校對上傳小鷗
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22140318/%E8%AF%81%E4%BA%BA.jpg)圖片來自Fox
-據馬修·博伊爾（Matthew Boyle）在《布萊特巴特新聞》報導，舉報人托尼·博布林斯基（Tony Bobulinski）來自拜登內部、任华鹰控股CEO，他在10月21日晚發布的新聞聲明中談到，他就是7天前《紐約郵報》公佈的電子郵件的收件人，稱他親眼目睹了喬·拜登與兒子亨特討論商業交易。
+校對上傳 XM
 
-由《紐約郵報》公佈的那封電子郵件就如何分配與CEFC中共國能源公司合作的六人“薪酬待遇”的商討中，博布林斯基指出，“電子郵件中提到的’大佬’是對喬·拜登本人的直接指稱”。
+10月21日，巴西總統賈爾·博爾索納羅(Jair Bolsonaro)宣布拒絕購買中共國公司尚在研發階段的4600萬劑疫苗。因為博爾索納羅總統曾經罹患中共病毒，他還以自己服用羥氯喹治愈中共病毒的親身經歷，說明羥氯喹是有效的藥物。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22165632/391755-01-08-1595544502_444752.jpg)圖片來源：法新社
+中共的疫苗尚在研製或臨床試驗過程之中，其療效尚未得到驗證。但據媒體報導，中共除已強制向本國幾十萬國民注射了這些不合格疫苗外，還處心積慮制定方案，企圖向世界各國兜售，一方面藉此要挾各國，另一方面故意引發使用國的二次病毒災難。
 
-博布林斯基是硬盤們事件站出來的又一個重要證人。
+其實，針對中共病毒的治療，閆麗夢博士已多次公開表示羥氯喹的有效性。她在幾天前發推說：“目前世界上沒有治愈中共病毒的靈丹妙藥，但是存在相對安全、有效地抵禦中共病毒的藥物，這種藥物就是羥氯喹。面對歷史罕見的中共病毒大瘟疫，任何讓人們遠離羥氯喹藥物的行為，都是極端不負責任的”。
 
-博布林斯基說：“我是當事人。我是华鹰控股（Sinohawk Holdings）的首席執行官（CEO），該公司是中共國通過CEFC （董事長葉簡明）與拜登家族之間合作成立的。 詹姆斯·吉利亞爾（James Gilliar）和亨特·拜登將我帶入公司。在2017年5月13日的電子郵件中所提的“大佬”實際上是指喬·拜登。該電子郵件中引用的另一個“JB”是喬·拜登的兄弟吉姆·拜登。
+10月21日閆博士又一次發推強調：“目前狀況下，羥氯喹和其它藥物（鋅）是比其它任何藥物和實驗中的疫苗更有效。” 目前有很多實例說明，羥氯喹確實對預防和治療中共病毒有明顯效用。
 
-博布林斯基聲明中談到，電子郵件不是“任何形式的國內或國外虛假信息”。他來自軍人家庭，他本人以及父親和祖父都曾在美國海軍服役。多年來他只給民主黨捐了款。
+做為深度了解中共病毒之來龍去脈的頂級專家，閆博士的多次提醒應該引起全世界的高度重視。注射不合規範的疫苗是極其危險的，尤其是中共大規模生產、企圖大量輸出國外的疫苗。注射這些疫苗，不僅不能治愈中共病毒，還可能引致更深度的傷害。
 
-博布林斯基說：“我是一位任職37年的陸軍情報官的孫子，一位任職20多年職業海軍軍官的兒子和一位任職28年職業海軍飛行軍官的兄弟。我本人為國家服務了4年，以上尉的身份離開海軍。我通過了高級別的安全檢查，是海軍核動力訓練司令部的教官，還是首席技術官。我為家人自豪，也為自己為這個國家的服務而自豪。我不是一個政治人物，我很少參與的對競選活動的捐款還給了民主黨”。
+中共病毒給世界各國帶來了無以復加的傷害，面對世界各國的詰問和譴責，中共不思悔改，反而變本加厲再度向世界各國投放不合格的中共疫苗，以期達到最終控制全世界的罪惡目的。
 
-博布林斯基是亨特·拜登的第二位長期商業夥伴出來公開發聲。貝文·庫尼（Bevan Cooney）作為第一位發聲人，與《布萊特巴特新聞》（Bredenbart News）交換了總計26,000封電子郵件。庫尼因其和其他亨特·拜登的商業夥伴參與了美國原住民部落投資有關的交易而被定罪，目前正在俄勒岡州聯邦監獄服刑。為了他的安全庫尼本週早些時候被移離了牢房。
+巴西總統博爾索納羅拒絕中共疫苗的決定，是消滅中共疫苗超限戰的清醒、正確的開端。世界各國和人民應該聯合起來，向中共疫苗說不！避免陷入中共的疫苗陷阱，進而徹底戰勝中共利於疫苗進行的變相攻擊。
 
-博布林斯基說：“亨特·拜登將他的父親稱為’大佬’（the Big Guy) 或’我的董事長’，並經常提到要求他簽署或就我們正在討論的各種潛在交易提供建議。我看到拜登副總統說他從未與亨特談過他的生意。我的親眼所見證實那是不對的，因為這不只是亨特的交易，他們說他們將拜登家族的名聲和財產置於風頭浪尖上。
+參考鏈接：
 
-”我意識到中（共）國人並沒有真正專注於健康的財務投資回報率。他們將其視為一項政治或影響力投資。一旦我意識到亨特想要將公司當成私人儲存罐並從中（共）國人那裡提取錢，我便採取措施防止這種情況的發生”。
+> There is no magic drugs/vaccines in the world.
+> But there are comparably safe and efficient drugs against COVID-19 before novel therapeutic methods /vaccines developed.
+> Facing to this historic pandemic, it is extremely irresponsible to keep people away from hydroxychloroquine. [https://t.co/sZx0mkQ4Rw](https://t.co/sZx0mkQ4Rw)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [October 16, 2020](https://twitter.com/DrLiMengYAN1/status/1317243515982708738?ref_src=twsrc%5Etfw)
 
-“《約翰遜報告》中的某些方面震撼了我，使我意識到拜登一家已經背著我從中（共）國人那裡收取了數百萬美元，儘管他們告訴我他們沒有也不會這樣做。 ” “拜登家族強勢地利用拜登這個名字從外國實體賺取了數百萬美元，其中一些甚至來自於共產黨控制的中（共）國。上帝保佑美國！！！！”
-
-鏈接https://www.breitbart.com/politics/2020/10/21/bombshell-statement-biden-insider-claims-he-was-recipient-of-the-email-says-he-witnessed-joe-hunter -discussing-deals/
+> Key point here: Hydroxychloroquine and other medicines are better than potential vaccine candidates at this moment.
+> 
+> BTW, why can’t it be retweeted without comments? [https://t.co/l4s7lTvXKV](https://t.co/l4s7lTvXKV)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [October 21, 2020](https://twitter.com/DrLiMengYAN1/status/1319055682419777538?ref_src=twsrc%5Etfw)
 
 0
