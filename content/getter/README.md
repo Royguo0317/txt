@@ -13,6 +13,11 @@
 
 
 
+[10月23日 吉姆·拜登在2018年2月2日给罗伯特.拜登(亨特.拜登）的一封邮件  An email from Jim Biden to Robert Bid...](/content/getter/content/2020/10/5f93141a06847a4c65196717.md)
+
+**郭文贵MILES** `2020-10-23T17:34:18`
+##
+
 [10月23日 拜登家族与中共关系调查报告中文版；感谢国内战友们冒着生命危险给我们提供的信息！  全文下载： https://gnews.org/zh-hans/...](/content/getter/content/2020/10/5f92f40306847a4c65194bd0.md)
 
 **郭文贵MILES** `2020-10-23T15:17:23`
@@ -21,11 +26,6 @@
 [10月23日 中共已经准备好与全世界开战，以再次绑架14亿人民作为其最好的武器，西方世界准备好了吗？  October 23, the CCP is ready...](/content/getter/content/2020/10/5f92f05306847a4c651946d0.md)
 
 **郭文贵MILES** `2020-10-23T15:01:39`
-##
-
-[10月23日  吉姆·拜登在2018年2月2日给罗伯特.拜登的一封邮件  An email from Jim Biden to Robert Biden on ...](/content/getter/content/2020/10/5f92e8e506847a4c65193df3.md)
-
-**郭文贵MILES** `2020-10-23T14:29:57`
 ##
 
 [10月23日 亨特·拜登向海航渤海金控借钱的目的是什么？](/content/getter/content/2020/10/5f92e6c006847a4c65193b73.md)
