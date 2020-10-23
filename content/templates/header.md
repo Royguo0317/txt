@@ -9,6 +9,6 @@
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 
-[:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
+![](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
 
