@@ -1,53 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 硅谷科技快线
-` GM06` [轉載自GNews](https://gnews.org/zh-hans/445435/)
+## 为应对中共，美国增强太平洋海岸警卫队力量
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/446304/)
 
-资料收集整理：littlegecko(小壁虎)； 播报：黎明前；视频：Aquarius水瓶座； 配乐：Kevin卡卡
+喜马拉雅联盟加拿大农场 熊妈妈
 
+校对 不动之光 上传 XM
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24083115/uscg-bertholf-wmsl-750-1350-full-hull.jpg)图片来源：venoil.kz
+10月23日，美国总统国家安全事务顾问罗伯特·奥布莱恩（Robert C. O’Brien）在白宫官网发表声明，美国将通过增加快速反应舰艇来加强其海岸警卫队（USCG）力量，用以遏制中共国的非法捕鱼活动。
 
+声明指出，美国是太平洋大国。中共制下的非法、不报告、不管制捕鱼，以及对在印度太平洋其他国家地区专属经济区作业的船只的骚扰，威胁到我们的主权以及太平洋邻国的主权，并危及区域稳定。包括USCG在内的美国政府的努力对于打击这些破坏稳定和恶性的行动至关重要。
 
-1、NASA委员会的报告显示了NASA的经济影响：$ 64B和312,000个职位。
+奥布莱恩认为，中共国不仅秘密从事海洋无管制的捕捞活动，而且还骚扰在印太地区专属经济区捕鱼的其他国家的船只。
 
-NASA commissions report to show its economic impact: $64B and 312K jobs.
+为了应对中共制下的非法捕鱼活动，美国将向西太平洋派遣改进型的“快速反应刀具（FRC）”巡逻艇，FRC由西太平洋公认的路易斯安那州造船厂建造。新一代快速反应艇将执行安全任务，且主要任务之一是控制渔业捕捞和近海监视，并帮助能力有限的区域合作伙伴协作执法，保障海上自由航行。
 
-2、随着机器学习技术的发展，始终存在一个瓶颈问题，就是对数据的标记，只有这样才能使机器学习程序能更好识别和理解数据。最近，Datasaur公司获得了390万美元投资，来构建解决这一瓶颈问题的通用平台，在保持有人参与的同时，通过使用一定的AI技术来加快数据的标记速度。
+为了增强美国在印太地区的能力和影响力，在2021财年，USCG计划评估在美属萨摩亚设立FRC的可行性。如果评估结果有利，美国可进一步扩大在南太平洋的部署。
 
-As machine learning has grown, one of the major bottlenecks remains labeling things so the machine learning application understands the data it’s working with. Datasaur snags $3.9M investment to build intelligent machine learning labeling platform.It built a platform to speed up human data labeling with a dose of AI, while keeping humans involved.
+中共国的海洋非法捕捞船名义上是民间船只，背后是超限战下的间谍活动和避开他国海军和海警的对他国的战术骚扰。
 
-3、D-Wave公司今天宣布推出其新的Advantage量子计算机，具有可扩展的5,000量子比特和15路量子比特连接，能够帮助解决天文复杂度的蛋白质设计，最终帮助实现新的药物。
-
-D-Wave today announced the launch of its new Advantage quantum computers. These new systems, with over 5,000 qubits and 15-way qubit connectivity, can solve astronomical protein design problems that help us create better proteins and ultimately enable new drug discoveries.
-
-4、法国公司Klaxoon推出了多交互式视频会议产品Board。除了视频会议小窗口，该软件屏幕的大部分区域是数字白板形式，可用于书写文本、插入图像或视频。
-
-French company Klaxoon has launched a multi-interactive video conferencing product Board. Except for the small video conference window, most of the software’s screen is in the form of a digital whiteboard, which can be used to write text, insert images or videos.
-
-5、亚马逊的执法请求门户网站允许警察和联邦代理人在提供传票、搜查令、法院命令等法律依据后，请求获得客户的数据。
-
-Amazon’s law enforcement request portal allows police and federal agents to submit formal requests for customer data along with a legal order, like a subpoena, a search warrant, or a court order.
-
-6、亚马逊的Prime Day大型促销活动将于10月13日至14日进行。
-
-Amazon’s Prime Day mega sale event will take place October 13-14.
-
-7、美国联邦法院表示TikTok禁令不会按原定时间在周一生效，仍然需要确认禁令的合法性以及特朗普总统声称的该App威胁国家安全是否属实。在禁令推迟期间，美国人仍然可以继续使用TikTok。
-
-A U.S. federal court has said a ban on TikTok  will not go into effect on Monday as scheduled. The move to delay the anticipated ban will allow Americans to continue using the app while the court considers the ban’s legality and whether the app poses a risk to national security as the Trump administration claims.
-
-8、ARM公司今天宣布推出针对汽车和工业应用的一套高可靠芯片解决方案，包括ARM Cortex-A78AE高性能CPU、Mali-G78AE GPU以及ARM Mali-C71AE图像信号处理器。高可靠的核心是具有内置双重冗余的工作机制。
-
-ARM today announced the launch of a new set of solutions for autonomous systems for both automotive and industrial use cases. These include the Arm Cortex-A78AE high-performance CPU, the Mali-G78AE GPU and Arm Mali-C71AE image signal processor. The core of high reliability is a working mechanism with built-in double redundancy.
-
-9、iRobot联合创始人Helen Greiner被任命为园艺机器人初创公司Tertill的首席执行官。
-
-iRobot cofounder Helen Greiner named CEO of robotic gardening startup, Tertill.
-
-10、Swarm卫星物联网公司为分布全球的物联网设备提供低速率、低功耗的卫星连接。对日益发展的精准农业、智能海事和物流等行业，降低成本同时增加连通性非常重要。
-
-Swarm’s new network of satellites is intended to provide low-bandwidth, low-power connectivity to “Internet of Things” devices all over the world. It’s important to keep costs down and connectivity up in growing industries like precision agriculture and smart maritime and logistics work.
-
-（消息来源：http://techcrunch.com ）
+参考链接：https://www.whitehouse.gov/briefings-statements/statement-national-security-advisor-robert-c-obrien-102320/
 
 0
