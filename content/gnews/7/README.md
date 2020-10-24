@@ -1,25 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP賊喊捉賊 趙立堅七問美國
-`2020-10-23 06:47 shangshang` [轉載自GNews](https://gnews.org/zh-hant/441956/)
+## 硅谷科技快线
+` GM06` [轉載自GNews](https://gnews.org/zh-hans/445435/)
 
-內新聞/素材：一碗蘭州（文遠） 校對：老白
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/23063452/E07AB9EA-FE20-41D6-A841-8F4F2B71FD17.jpeg)
-10月21日，中共偽外交部舉行例行記者會，發言人趙立堅回答《環球時報》記者提問中，指責美國軍方在全球建立眾多生物實驗室，且實驗室存在管理不透明及病毒洩露問題，同時向美方發出七連問，暗指美國軍方是疫情大爆發的「元兇」。
+资料收集整理：littlegecko(小壁虎)； 播报：黎明前；视频：Aquarius水瓶座； 配乐：Kevin卡卡
 
-此事一出，牆內外各媒體、大小咖紛紛轉載，並加以「給力」、「精彩」、「靈魂拷問」、「一針見血」等雞血字眼，彷彿趙立堅化身「大法官」，已給美國軍方定罪。雖然中共偽外交部時常發出雷人之語刷新大眾三觀，但此番言論還是有一定迷惑性，畢竟在輿論管控下公眾很難對內容進行驗證核查。且此番指控直指美國投毒，嚴重程度不言而喻。
 
-首先看提問方是被稱為「黨的接盤俠」的胡錫進為主編的《環球時報》，問題由「俄羅斯聯邦安全委員會副主席梅德韋傑夫對美國在獨聯體國家的生物實驗室的關切」引出，看似是提問，實際上預設了「美國從事不透明生物實驗室，違背國際組織准則」的結論，趙立堅的回復不過是上述結論的論據罷了。趙發言期間，不時低頭看稿，所說內容明顯是提前寫好，可見所謂「現場問答」是一場非常共產黨作風的、提前安排的、徹頭徹尾的滑稽雙簧。
 
-再看趙所說內容，把梅德韋傑夫一家之言奉為「國際社會」的代表，實在可笑，至少也要拉上朝鮮民主主義人民共和國、伊朗伊斯蘭共和國、委內瑞拉玻利瓦爾共和國、古巴共和國等「共和國聯盟」湊個數呀，不行再叫上塔利班、按提法等小兄弟一起發聲譴責，才夠「國際社會」這頂帽子嘛。話又說回來，「國際社會」如此有意見，美國又是怎麼把實驗室建在「包括中東、非洲、東南亞以及前蘇聯的25個國家和地區」的呢？
+1、NASA委员会的报告显示了NASA的经济影响：$ 64B和312,000个职位。
 
-在人才、資本自由流動的西方世界，擁有絕對科學、技術優勢的美國，其公司、高校、組織、機構等在世界範圍內以各種形式廣泛合作建立生物實驗室，是很正常的事情。趙所說的「實驗室所在地曾暴發大規模傳染病」、「美國國內外生物實驗室發生了數百起人類意外接觸致命微生物事故」，這些與2019年新冠疫情（中共病毒）有什麼關係？與武漢爆發初期中共偽政府隱瞞疫情、抓捕知情者、故意擴散全球有什麼關係？毫無事實根據的情況下強行把這些信息斷章取義拼湊在一起，無中生有誤導聽眾，含沙射影地指控他方，而對中共偽政府製造2019中共病毒、隱瞞疫情等邪惡行徑卻不顧事實、無恥抵賴，孰是孰非一目瞭然。
+NASA commissions report to show its economic impact: $64B and 312K jobs.
 
-而後的「趙七問」一度讓我產生錯覺——是不是主語寫錯了？我都懷疑如果主語不是「美國」這幾句話能否在牆內發佈。如此連問不禁也讓我躍躍欲試，問句接連冒出：牆內為什麼建設那麼多生物實驗室？為什麼很多實驗室有軍方背景？他們的目的是什麼？為什麼到處收集病毒樣本？為什麼不及時完整上傳病毒序列？為什麼與中共軍方獨家擁有的舟山蝙蝠病毒如此接近？為什麼拒絕國際專家調查？為什麼抓捕李文亮？為什麼隱瞞人傳人？為什麼提前在海外囤積醫療物資？為什麼中共國沒一個高官感染？為什麼……這些問題不管CCP回不回答，真相都會被揭露在陽光之下！
+2、随着机器学习技术的发展，始终存在一个瓶颈问题，就是对数据的标记，只有这样才能使机器学习程序能更好识别和理解数据。最近，Datasaur公司获得了390万美元投资，来构建解决这一瓶颈问题的通用平台，在保持有人参与的同时，通过使用一定的AI技术来加快数据的标记速度。
 
-偽外交部賊喊捉賊，暗指病毒是美國軍方的生物武器，明顯是在「病毒自然來源」的說法被閆博士實錘駁斥後的策略改變。不同於此前趙立堅在推特上質問美國何時出現零號病人，栽贓病毒來源而挑起美國仇華情緒，此次21號的記者會上公然質問美國，指責美國沒有履行《生物武器公約》，性質較之前嚴重許多。輿論戰場似乎已無回旋餘地，雙方愈加逼近火戰臨界點。在中美各方勢力絞殺纏鬥進入決戰階段，正義聯盟力輓狂瀾開始收網之際，CCP再次實力逆增援，快馬加鞭奔向死亡。
+As machine learning has grown, one of the major bottlenecks remains labeling things so the machine learning application understands the data it’s working with. Datasaur snags $3.9M investment to build intelligent machine learning labeling platform.It built a platform to speed up human data labeling with a dose of AI, while keeping humans involved.
 
-[https://www.fmprc.gov.cn/web/fyrbt\_673021/t1825668.shtml](https://www.fmprc.gov.cn/web/fyrbt_673021/t1825668.shtml)
+3、D-Wave公司今天宣布推出其新的Advantage量子计算机，具有可扩展的5,000量子比特和15路量子比特连接，能够帮助解决天文复杂度的蛋白质设计，最终帮助实现新的药物。
+
+D-Wave today announced the launch of its new Advantage quantum computers. These new systems, with over 5,000 qubits and 15-way qubit connectivity, can solve astronomical protein design problems that help us create better proteins and ultimately enable new drug discoveries.
+
+4、法国公司Klaxoon推出了多交互式视频会议产品Board。除了视频会议小窗口，该软件屏幕的大部分区域是数字白板形式，可用于书写文本、插入图像或视频。
+
+French company Klaxoon has launched a multi-interactive video conferencing product Board. Except for the small video conference window, most of the software’s screen is in the form of a digital whiteboard, which can be used to write text, insert images or videos.
+
+5、亚马逊的执法请求门户网站允许警察和联邦代理人在提供传票、搜查令、法院命令等法律依据后，请求获得客户的数据。
+
+Amazon’s law enforcement request portal allows police and federal agents to submit formal requests for customer data along with a legal order, like a subpoena, a search warrant, or a court order.
+
+6、亚马逊的Prime Day大型促销活动将于10月13日至14日进行。
+
+Amazon’s Prime Day mega sale event will take place October 13-14.
+
+7、美国联邦法院表示TikTok禁令不会按原定时间在周一生效，仍然需要确认禁令的合法性以及特朗普总统声称的该App威胁国家安全是否属实。在禁令推迟期间，美国人仍然可以继续使用TikTok。
+
+A U.S. federal court has said a ban on TikTok  will not go into effect on Monday as scheduled. The move to delay the anticipated ban will allow Americans to continue using the app while the court considers the ban’s legality and whether the app poses a risk to national security as the Trump administration claims.
+
+8、ARM公司今天宣布推出针对汽车和工业应用的一套高可靠芯片解决方案，包括ARM Cortex-A78AE高性能CPU、Mali-G78AE GPU以及ARM Mali-C71AE图像信号处理器。高可靠的核心是具有内置双重冗余的工作机制。
+
+ARM today announced the launch of a new set of solutions for autonomous systems for both automotive and industrial use cases. These include the Arm Cortex-A78AE high-performance CPU, the Mali-G78AE GPU and Arm Mali-C71AE image signal processor. The core of high reliability is a working mechanism with built-in double redundancy.
+
+9、iRobot联合创始人Helen Greiner被任命为园艺机器人初创公司Tertill的首席执行官。
+
+iRobot cofounder Helen Greiner named CEO of robotic gardening startup, Tertill.
+
+10、Swarm卫星物联网公司为分布全球的物联网设备提供低速率、低功耗的卫星连接。对日益发展的精准农业、智能海事和物流等行业，降低成本同时增加连通性非常重要。
+
+Swarm’s new network of satellites is intended to provide low-bandwidth, low-power connectivity to “Internet of Things” devices all over the world. It’s important to keep costs down and connectivity up in growing industries like precision agriculture and smart maritime and logistics work.
+
+（消息来源：http://techcrunch.com ）
 
 0
