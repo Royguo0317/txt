@@ -1,47 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## FBI要求问询亨特·拜登的前助手博布林斯基
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/446148/)
+## 【世界多语言图文】2020/10/16 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/447396/)
 
-加拿大蒙特利尔战友团 laotou
+战友之家图文摘要及小语种组
 
-校对 不动之光 上传 XM
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24080230/%E5%9B%BE%E7%89%871-21.png)图片来源：newsweek.com
-10月22日，福克斯新闻（Fox News）报道，美国会参议院委员会说，联邦调查局（FBI）要求问询亨特·拜登的前助手博布林斯基。联邦调查局拒绝置评。
+[265\_English\_1016\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24033211/265_English_1016_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24033211/265_English_1016_CCP_Virus_Updates.pdf)
 
-参议院国土安全委员会星期五发表了一份声明，博布林斯基(Bobulinski）的律师告诉参议院国土安全委员会，联邦调查局已经要求亨特·拜登的前商业伙伴托尼·博布林斯基在星期五接受问询。
+[265\_french\_1016\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24033212/265_french_1016_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24033212/265_french_1016_CCP_Virus_Updates.pdf)
 
-联邦调查局还要求博布林斯基交出手机的拷贝，博布林斯基星期四公开指控前副总统拜登在他儿子的商业交易中撒谎。
+[265\_German\_1016\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24033211/265_German_1016_CCP_Virus_Updates_-1.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24033211/265_German_1016_CCP_Virus_Updates_-1.pdf)
 
-联邦调查局拒绝对福克斯新闻发表评论，“这符合我们既不确认、也不否认调查存在的标准做法。”
+[265\_Japanese\_1016\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24131338/265_Japanese_1015_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24131338/265_Japanese_1015_CCP_Virus_Updates.pdf)
 
-一直在调查亨特·拜登商业交易的参议院国土安全委员会和参议院财政委员会说，他们原定周五上午对博布林斯基的采访被推迟。
+[265\_Korean\_1016\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24131347/265_Korean_1016_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24131347/265_Korean_1016_CCP_Virus_Updates.pdf)
 
-参议院国土安全委员会主席约翰逊（Ron Johnson）说：“我很感谢联邦调查局有一项工作要做，我很高兴他们终于对我们委员会调查了数月的金融问题感兴趣。”
+[265\_Spanish\_1016\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24033210/265_Spanish_1016_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24033210/265_Spanish_1016_CCP_Virus_Updates.pdf)
 
-来自威斯康星州的共和党人约翰逊说：“我希望博布林斯基先生能尽快与我们的委员会对话，并充分分享他对拜登家族商业交易的见解。”
-
-《纽约邮报》发表的一封电子邮件似乎详述了一家中共国公司和拜登家族成员之间的商业安排，博布林斯基被列为收件人，他周四在一份声明中证实，这封电子邮件是“真实的”。
-
-邮件中有这样一段：“亨特对办公室有一些期望，他会作详细说明”，有关股权分配的提议，“20给H”，“10由H持有给大人物。”
-
-博布林斯基在接受福克斯新闻台（Fox News）的一份声明中说：“广为流传的2017年5月13日电子邮件中提到的‘大人物’实际上是指乔·拜登。”拜登9月份公布的纳税申报表显示，他在中共国没有任何个人商业利益。
-
-博布林斯基说，他是中鹰控股（Sinohawk Holdings）的首席执行官，他解释说，这是“通过CEFC（中共国华信能源公司）的叶董事长和拜登家族运作中国业务的伙伴关系。”他说，他是由亨特·拜登和詹姆斯·吉利亚（James Gilliar）介绍接任首席执行官的，后者被列为邮件的发送者。
-
-拜登阵营对此进行了反击，称这些指控是“一场激烈的竞选活动中上演的绝望、可悲的闹剧”。博布林斯基是川普总统在周四晚上的总统辩论中的嘉宾。
-
-拜登竞选发言人安德鲁·贝茨（Andrew Bates）在接受福克斯新闻台采访的一份声明中说：“乔·拜登从来没有考虑过通过家人做生意，也没有考虑过任何海外业务”，“他从未持有任何此类商业安排的股票，也从未有任何家庭成员或任何其他人为他持有股票。”
-
-中鹰控股（SinoHawk Holdings）的合伙人之一吉利亚（Gilliar）告诉《华尔街日报》（Wall Street Journal），他“在任何时候都不知道这位前副总统有任何牵连。”
-
-关于2017年的讨论，吉利亚对《华尔街日报》表示：“（你们）问及的那些活动，从未带来任何项目收入。”
-
-博布林斯基称，他与乔·拜登就他儿子的商业风险进行了会晤，周四在辩论前他向记者展示了三部手机内容，声称里面有确凿的证据，但拒绝回答记者提问。
-
-“我看到副总统拜登说他从来没有和亨特谈过他的生意。我亲眼看到这不是真的，因为这不仅仅是亨特的事，他们说他们把拜登家族和它的遗产放在一起，”博布林斯基周四说。
-
-参考链接：[https://www.foxnews.com/politics/fbi-interview-request-hunter-biden-ex-associate-tony-bobulinski-senate-committee](https://www.foxnews.com)
-
-2+
+0
