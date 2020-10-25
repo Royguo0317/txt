@@ -13,6 +13,16 @@
 
 
 
+[10月25日  2015年，习近平访美期间与贾跃亭，王昕和拜登之间的关系的有关文件揭秘](/content/getter/content/2020/10/5f959afae7d0c633dede7470.md)
+
+**郭文贵MILES** `2020-10-25T15:34:18`
+##
+
+[Oct 25,2020  Exclusive: Documents to reveal the relationships between Jia Yaotin...](/content/getter/content/2020/10/5f959a75e7d0c633dede5920.md)
+
+**郭文贵MILES** `2020-10-25T15:32:05`
+##
+
 [10 24日：乖乖呀……https://gtv.org//?videoid=5f94837c7de25667c0fe0c5e](/content/getter/content/2020/10/5f948ad806847a4c651a7e06.md)
 
 **郭文贵MILES** `2020-10-24T20:13:12`
@@ -151,15 +161,5 @@
 [October 15，Dear my fellow fighters, this is Miles Guo’s updated Declaration abou...](/content/getter/content/2020/10/5f88b22406847a4c6513b508.md)
 
 **郭文贵MILES** `2020-10-15T20:33:40`
-##
-
-[10月15日 尊敬的战友们好，这是文贵关于G-Clubs， G-Fashion的声明更新版，请大家一定仔细阅读，非常感谢！](/content/getter/content/2020/10/5f88b19106847a4c6513b4c6.md)
-
-**郭文贵MILES** `2020-10-15T20:31:13`
-##
-
-[亲爱的兄弟姐妹们！  明天@gfashionclubs Instagram将发布重要消息！ 快来关注订阅这个账户，并了解更多G Fashion有关产品信息. 谢...](/content/getter/content/2020/10/5f88a35006847a4c6513abae.md)
-
-**郭文贵MILES** `2020-10-15T19:30:24`
 ##
 
