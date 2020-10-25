@@ -1,21 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/10/16 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/447396/)
+## 澳喜新闻 路德社24日早间时评 摘录
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/449967/)
 
-战友之家图文摘要及小语种组
+川普讲话验证924节目爆料。川普总统在佛州竞选演讲第三次提到“来自地狱笔记本”，该笔记本里还有很多内容，大家还没有看到更多内容；拜登这样的政客蹂躏美国家庭同时为自己家庭搜刮财产；笔记本中还有很多实例，这是闻所未闻的贪污腐败。川普总统的演讲击穿了NBC记者抹黑路德社的无端指责，验证了路德社924节目爆料的真实性。中共从80年代开始与几代美国总统勾兑，但相关证据都已经被掌握，川普总统看清了历任政客的贪腐。
 
-[265\_English\_1016\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24033211/265_English_1016_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24033211/265_English_1016_CCP_Virus_Updates.pdf)
+朱利安尼誓言清干沼泽。执法部门没有采取行动，而是进行掩盖，最终造成了拜登家族逍遥法外、媒体恣意颠倒黑白、贪官竞选总统的怪相。朱利安尼先生临危受命，承受各种骂名、构陷、威胁，黑手党、哥伦比亚武装力量、伊斯兰恐怖分子、中共邪魔恶党与美国沼泽勾结的黑暗势力都无法吓倒他，不论是共和党还是民主党里面的丑陋的政客都要被清理掉。朱利安尼呼吁广大选民“你们是唯一可以拯救这个国家的人，只有你们可以用选票阻止这些腐败政客进入白宫”，并保证会尽全力彻底排干沼泽。
 
-[265\_french\_1016\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24033212/265_french_1016_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24033212/265_french_1016_CCP_Virus_Updates.pdf)
+记者Rion看了拜登硬盘视频内容。记者Chnel Rion 在OAN关于“来自地狱硬盘”内容解读的访谈节目里证实了硬盘中涉及的未成年少女之一是亨特拜登的侄女。再次验证路德社爆料的真实性，有力反驳了伪类的恶意质疑。中共作恶到极致，甚至在媒体上曝光其罪恶都会违法相关法规；伪类恶意索求证据链，妄图给路德社设置法理上的陷阱；但司法最终会去验证。路德社永远都是爆真相，身正不怕影子斜，跟中共站在一起的大鱼虾米、伪类五毛最后都会被法律清理掉。
 
-[265\_German\_1016\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24033211/265_German_1016_CCP_Virus_Updates_-1.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24033211/265_German_1016_CCP_Virus_Updates_-1.pdf)
+拜登家族与中共勾兑调查报告披露。台风调查公司披露了中共长期布局通过设立渤海华美股权投资基金向外国领导人输送利益、施加影响力，包括乔拜登。中共收买乔拜登是通过杨洁篪进行的；林俊良从中撮合渤海华美的设立，资金由国企注资，亨特拜登占股10%，目前市值5000亿美元。亨特拜登与中共国政治局常委、富商有直接联系。渗透、控制外国政要是中共的长期战略，用的都是空手套白狼的路数，损失的是中共国、美国和欧洲诸国老百姓的钱。中共国偷走美国的军事技术，在地缘政治上变得越来越强势，拜登却采取温和的外交策略；中共一步步威胁美国，而且并不只想吞并美国。如果不是爆料革命，美国可能已被中共收入囊中。
 
-[265\_Japanese\_1016\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24131338/265_Japanese_1015_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24131338/265_Japanese_1015_CCP_Virus_Updates.pdf)
+YouTube链接：[https://youtu.be/QZYVz6mA23c](https://youtu.be/QZYVz6mA23c)
 
-[265\_Korean\_1016\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24131347/265_Korean_1016_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24131347/265_Korean_1016_CCP_Virus_Updates.pdf)
+摘录：Quartz58（小米粒）
 
-[265\_Spanish\_1016\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24033210/265_Spanish_1016_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24033210/265_Spanish_1016_CCP_Virus_Updates.pdf)
+审稿：Jenny
 
 0

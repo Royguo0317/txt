@@ -1,32 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 众议员要求美国务院立即公布拜登与习近平私下会晤的所有信息
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/446938/)
+## 【世界多语言图文】2020/10/16 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/447396/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24111331/1-189.png)
-*图片来自：**.sohu.com*
+战友之家图文摘要及小语种组
 
-《国家脉动》（National Pulse）10月23 日独家提供的消息，”印第安纳州的
+[265\_English\_1016\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24033211/265_English_1016_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24033211/265_English_1016_CCP_Virus_Updates.pdf)
 
-国会议员吉姆·班克斯（JIM BANKS）给美国国务院写了一封信，根据《信息自由法》(FOIA)，要求“公开美国前副总统乔•拜登(Joe Biden)与中国国家主席习近平私人晚宴的任何和所有信息”。 他说:“必须加快这一信息的公布。鉴于这些谈判可能对国家具有如此深远的重要意义，以及美国即将面临的关键选举，没有什么比及时完成这项《信息自由法》的要求更重要了。
+[265\_french\_1016\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24033212/265_french_1016_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24033212/265_french_1016_CCP_Virus_Updates.pdf)
 
-共和党众议员班克斯在接受《国家脉动》独家采访时坚称，《信息自由法》要求提供的信息，可以证实有关拜登与中国共产党的关系。“美国政府可能掌握了确凿的证据，可以证实《纽约邮报》的报道， 并为拜登家族与中共的关系提供更多的背景资料”。我们需要尽快看到这些文件。”
+[265\_German\_1016\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24033211/265_German_1016_CCP_Virus_Updates_-1.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24033211/265_German_1016_CCP_Virus_Updates_-1.pdf)
 
-针对拜登吹嘘自己 “与习近平私下会面的时间比任何一位世界领导人都要多”，《国家脉动》提交了《信息自由法》申请。由于拜登的家族与中共所属企业签订了价值数十亿美元的合同，有必要调查这些只有拜登、习近平和一名翻译参与的私下会面。
+[265\_Japanese\_1016\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24131338/265_Japanese_1015_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24131338/265_Japanese_1015_CCP_Virus_Updates.pdf)
 
-众议员班克斯支持《国家脉动》提出的《信息自由法》请求,他在写给国务院的信中说,“我敦促公布任何和所有信息,包括但不限于时间,日期,地点,与会者,笔录、读本,以及前副总统拜登与中共国家主席习近平私人晚宴的任何和所有资料。”
+[265\_Korean\_1016\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24131347/265_Korean_1016_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24131347/265_Korean_1016_CCP_Virus_Updates.pdf)
 
-《国家脉动》指出，然而，预计国务院将把回复这一请求的日期定在2023年4月5日。假设拜登当选了总统，那时他第一任的时间已经过了一半多，并且离2024年的选举日，而非2020年的选举日，只有300多天。
+[265\_Spanish\_1016\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24033210/265_Spanish_1016_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24033210/265_Spanish_1016_CCP_Virus_Updates.pdf)
 
-评论：
-
-自从文贵先生引领的爆料革命在美国大选前夕投下的核弹级炸弹揭开了拜登一家的虚假面具，乔拜等已经没有机会了，只是垂死挣扎。盼望美国司法部门早日法办这个勾结中共，出卖美国国家利益的卖国贼。事实证明，中共为了控制全世界所有有权势的人，可以无所不用其极，真是让世人开眼，也给西方文明敲响了警钟。面对中共这种无道德，无底线的恶魔，西方世界要有充分认识，找到应对方式，制定更有针对性的法律法规，保护人类文明和维护真正的民主自由。
-
-[原文](https://thenationalpulse.com/exclusive/banks-backs-biden-foia-request/)
-
-翻译：Alton
-
-校对：文旺
-
-4+
+0

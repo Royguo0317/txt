@@ -1,26 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美参议员罗恩-约翰逊称FBI与拜登家族前商业伙伴托尼-波布林斯基会面
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/446910/)
+## 【世界多语言图文】2020/10/15 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/440295/)
 
-编撰：WLQF
+战友之家图文摘要及小语种组
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24111154/1000.jpg)
+[264\_English\_1015\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22103205/264_English_1015_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22103205/264_English_1015_CCP_Virus_Updates.pdf)
 
-美国共和党参议员罗恩-约翰逊称，FBI周五将与一名商人会面，该商人提供了大量与拜登家族参与一家中国能源公司交易有关的文件。
+[264\_French\_1015\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24031939/264_French_1015_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24031939/264_French_1015_CCP_Virus_Updates.pdf)
 
-约翰逊在一份声明中说，托尼-波布林斯基的律师通知他，联邦调查局要求在周五与他们的客户会面。”我很感激FBI有工作要做，我很高兴他们终于对这些有关财务问题感兴趣，我们的委员会已经调查了几个月，”约翰逊在一份声明中说。
+[264\_German\_1015\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22103209/264_German_1015_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22103209/264_German_1015_CCP_Virus_Updates_.pdf)
 
-波布林斯基是Oneida Holdings的五个合伙人之一，Oneida Holdings是2017年5月波布林斯基与亨特-拜登、他的叔叔詹姆斯-拜登和其他两名商人成立的一家空壳公司。这些合伙人打算利用Oneida促成与CEFC的交易，CEFC是一家中国能源公司，其主席由与中国政府有密切关系的商人叶建明担任。
+[264\_Japanese\_1015\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24031921/264_Japanese_1015_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24031921/264_Japanese_1015_CCP_Virus_Updates.pdf)
 
-波布林斯基周三出面证实了上周公布的邮件的真实性，这封邮件是在一台属于拜登的笔记本电脑上发现的。他还声称，拜登夫妇 “积极利用 “他们的姓氏与外国公司产生业务。这封日期为2017年5月13日的电子邮件，列出了Oneida-CEFC合作的细节。文件称，亨特-拜登将获得该合伙企业20%的股权，被称为 “大人物 “的人将持有10%的股份。
+[264\_Korean\_1015\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22103213/264_Korean_1015_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22103213/264_Korean_1015_CCP_Virus_Updates.pdf)
 
-波布林斯基说，”大人物 “是乔-拜登。他的言论可能会削弱拜登竞选团队和民主党人所推崇的两种说法。乔-拜登一直否认自己参与了儿子的商业交易。波布林斯基说，他掌握的文件与这一说法相矛盾。波布林斯基对2017年5月13日电子邮件的证实也打破了拜登盟友的说法，即据称来自亨特-拜登笔记本电脑的文件是俄罗斯虚假信息活动的一部分。《纽约邮报》公布了几封来自拜登据称于2019年4月留在电脑维修店的笔记本电脑的电子邮件。
+[264\_Spanish\_1015\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22103202/264_Spanish_1015_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22103202/264_Spanish_1015_CCP_Virus_Updates.pdf)
 
-波布林斯基正在向约翰逊担任主席的参议院国土安全委员会提供大量与Oneida-CEFC交易有关的电子邮件、短信和商业合同。
 
-参考链接：
-[https://dailycaller.com/2020/10/23/fbi-tony-bobulinski-hunter-biden/](https://dailycaller.com/2020/10/23/fbi-tony-bobulinski-hunter-biden/)
 
-4+
+0
