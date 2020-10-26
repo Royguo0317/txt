@@ -13,144 +13,126 @@
 
 
 
-### [中共指使推特查封路德、GNEWS和数千名战友推特号，公开挑战世界文明的疯狂行为将加速灭亡](/content/gnews/1/README.md)
- ` GM101`
+### [突发！德州现场升级，Bob傅支持者无理挑衅并推到和平示威者，当地警察无动于衷！](/content/gnews/1/README.md)
+ ` GM01`
 
-### [量中华之物力, 结禽兽之欢心](/content/gnews/2/README.md)
+### [【热点播报】47块硬盘！谁掩盖了拜登父子犯罪卖国反人类的证据！](/content/gnews/2/README.md)
+ ` 纽约香草山农场`
+
+### [众势合围，正义灭共——首尔喜韩10.25大游行！](/content/gnews/3/README.md)
+ ` GM30`
+
+### [挖一挖鲁冠球的背景和万向集团在新能源的布局](/content/gnews/4/README.md)
+ ` SGHIMALAYA`
+
+### [排干沼泽之揭露美国卖国贼](/content/gnews/5/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [中情局告密者称，FBI、司法部从2015年就一直隐藏了能证明拜登父子与中国有关联的证据。](/content/gnews/6/README.md)
  ` 倫敦英喜莊園 Himalaya UK`
 
-### [美军B-1B战略轰炸机双机编队,从关岛安德森空军基地出发——目标“南中国海”!](/content/gnews/3/README.md)
- ` 快慢机`
-
-### [路德社：请全体战友集结，“终极之战”全面开打！！！](/content/gnews/4/README.md)
+### [郭先生：gab 不错，我们应该到那里去注册！](/content/gnews/7/README.md)
  ` Isaiah4031`
 
-### [10/24路德社:闫丽梦博士回应CNN攻击——这是终极之战他们已丧失良知](/content/gnews/5/README.md)
- ` NewFOC`
+### [突发! 新疆爆发疫情喀什地区紧急封城](/content/gnews/8/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [视频2020年10月24日中共病毒疫情要闻快报](/content/gnews/6/README.md)
- ` 秘密翻译组G-Translators`
-
-### [拜登曾阻挡“台湾安全加强法”](/content/gnews/7/README.md)
- ` TaiwanFarm`
-
-### [视频10/18/2020 路德社首次提到拜登家族与中共关系调查报告！](/content/gnews/8/README.md)
- ` 秘密翻译组G-Translators`
-
-### [澳喜新闻 路德社24日早间时评 摘录](/content/gnews/9/README.md)
- ` Himalaya Australia`
-
-### [為什麼前美國副總統之子可以非法獲得巨額財富?](/content/gnews/10/README.md)
+### [凡走過必留下痕跡 &#8212; 拜登家族的犯罪歷史軌跡](/content/gnews/9/README.md)
  ` VOH欧洲战友团`
 
-### [美国沦陷记](/content/gnews/11/README.md)
+### [视频抢听! 郭文贵先生最新单曲：《为香港而战》](/content/gnews/10/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [亨特·拜登的第二笔中国交易—渤海华美（4）](/content/gnews/11/README.md)
+ ` VOH欧洲战友团`
+
+### [川普总统若连任，将立即解雇包括FBI局长、CIA局长、国防部长在内的众多官员](/content/gnews/12/README.md)
+ ` GM65`
+
+### [亨特·拜登的第二笔中国交易 —渤海华美（3）](/content/gnews/13/README.md)
+ ` VOH欧洲战友团`
+
+### [假戏再登场：中共国用假冒繁荣来吸引外资](/content/gnews/14/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [天堂的妈妈，我们有话对你说……](/content/gnews/15/README.md)
+ ` 为子孙爱七哥农场`
+
+### [视频班农疫情作战室449/450期](/content/gnews/16/README.md)
+ ` GM47`
+
+### [亨特·拜登与中共的经济勾兑从“万向”开始](/content/gnews/17/README.md)
+ ` gnewscanada`
+
+### [纳瓦罗说，中共国为击败川普加班加点](/content/gnews/18/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [美国，该站起来战斗了](/content/gnews/19/README.md)
  ` 温哥华加喜农场🇨🇦`
 
-### [【热点播报】亨特·拜登以副总统之子及渤海基金董事长名义与中共在胡锦涛时代建立关系，为敛收巨额资金打下埋伏！](/content/gnews/12/README.md)
- ` 纽约香草山农场`
-
-### [中共通过渤海华美向拜登家族输送利益浅析](/content/gnews/13/README.md)
- ` 纽约香草山农场`
-
-### [【台风巨眼】鲁冠球及万象集团的真相](/content/gnews/14/README.md)
- ` 纽约香草山农场`
-
-### [大战来临，让世界听到我们的声音](/content/gnews/15/README.md)
- ` 倫敦英喜莊園 Himalaya UK`
-
-### [10/21 班农战斗室 朱利安尼专访 EP449 中文翻译摘要](/content/gnews/16/README.md)
- ` 纽约香草山农场`
-
-### [【世界多语言图文】2020/10/15 CCP病毒每日疫情直播简报](/content/gnews/17/README.md)
- ` GM62`
-
-### [【世界多语言图文】2020/10/16 CCP病毒每日疫情直播简报](/content/gnews/18/README.md)
- ` GM62`
-
-### [视频GTV大型音乐活动《我是音雄》第一季第九期 精彩回顾](/content/gnews/19/README.md)
- ` GMusic`
-
-### [266期疫情播報文字版10/17](/content/gnews/20/README.md)
- ` GM62`
-
-### [“我是音雄”第一季第十期 第二场复赛 – 选手阵容](/content/gnews/21/README.md)
- ` GMusic`
-
-### [265期疫情播報文字版10/16](/content/gnews/22/README.md)
- ` GM62`
-
-### [【中英文视频版】2020/10/17 CCP病毒每日疫情直播简报](/content/gnews/23/README.md)
- ` GM62`
-
-### [视频10.18 路德时评：拜登家族与中共勾兑的英文报告【精华版粤语配音】](/content/gnews/24/README.md)
- ` GM42`
-
-### [谁是 Michael Lin 林俊良?](/content/gnews/25/README.md)
+### [亨特拜登的第二笔中国交易 —渤海华美（2）](/content/gnews/20/README.md)
  ` VOH欧洲战友团`
 
-### [美参议员罗恩-约翰逊称FBI与拜登家族前商业伙伴托尼-波布林斯基会面](/content/gnews/26/README.md)
- ` GM77`
-
-### [众议员要求美国务院立即公布拜登与习近平私下会晤的所有信息](/content/gnews/27/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【中英文视频版】2020/10/16 CCP病毒每日疫情直播简报](/content/gnews/28/README.md)
- ` GM62`
-
-### [【台风巨眼】恶魔的生态链之习奥拜金](/content/gnews/29/README.md)
- ` 纽约香草山农场`
-
-### [视频每日政要Twitter播报(中文) 10/20期(视频+ PDF下载)](/content/gnews/30/README.md)
- ` GM62`
-
-### [每日政要Twitter播报(中文) 10/23期(视频+ PDF下载)](/content/gnews/31/README.md)
- ` GM62`
-
-### [「江派」3硬盘交美国 揭亨特拜登荒淫虐童与习近平45亿美元秘密协议](/content/gnews/32/README.md)
- ` pmzy-vog`
-
-### [揭秘：王歧山家族与拜登家族的媾和](/content/gnews/33/README.md)
- ` 秘密翻译组G-Translators`
-
-### [在加拿大议会委员会称中共国的维吾尔政策相当于“种族灭绝”后，北京暴跳如雷](/content/gnews/34/README.md)
- ` gnewscanada`
-
-### [乔·拜登被共产党收买第一笔交易](/content/gnews/35/README.md)
+### [乔‧拜登被中共收买的第二笔交易—渤海华美 (1)](/content/gnews/21/README.md)
  ` VOH欧洲战友团`
 
-### [国家脉冲：乔-拜登的电子邮件化名是&#8221;彼得-亨德森 &#8220;吗？ 每日快报 &#8211;2020.10.24](/content/gnews/36/README.md)
- ` 喜马拉雅-华盛顿DC站`
-
-### [郭文贵先生的“清丰看守所”经历（三）](/content/gnews/37/README.md)
- ` GM77`
-
-### [世纪大案 18：参议院司法委员会](/content/gnews/38/README.md)
- ` 纽约香草山农场`
-
-### [视频【精华版粤语快报】【路德社】：91号、94号文件将在GNEWS震撼发布、终极之战正式打响 阎博士幽默回击CNN](/content/gnews/39/README.md)
- ` GM42`
-
-### [美总统竞选第二次辩论会上主持人就拜登与中共的问题多次打断川普总统](/content/gnews/40/README.md)
- ` GM77`
-
-### [10月24日同声传译： 朱利安尼油管频道PODCAST重磅最新讲话](/content/gnews/41/README.md)
- ` 秘密翻译组G-Translators`
-
-### [为应对中共，美国增强太平洋海岸警卫队力量](/content/gnews/42/README.md)
+### [神秘的高瓴资本集团与张磊](/content/gnews/22/README.md)
  ` gnewscanada`
 
-### [“深渊”那边的蓝天白云是我们梦想的“幸福”](/content/gnews/43/README.md)
- ` 倫敦英喜莊園 Himalaya UK`
-
-### [FBI要求问询亨特·拜登的前助手博布林斯基](/content/gnews/44/README.md)
+### [每日新闻看点-2020年10月24日](/content/gnews/23/README.md)
  ` gnewscanada`
 
-### [华媒GTV独家震撼披露：拜登家族与中共政权交易内幕与证据！](/content/gnews/45/README.md)
+### [是什么让乔拜登对华态度发生了巨大之转变？](/content/gnews/24/README.md)
  ` VOH欧洲战友团`
 
-### [社交媒体巨头在玩火自焚吗？](/content/gnews/46/README.md)
+### [当地警察双重标准！德州抗议前线一名女战友被推倒地不起](/content/gnews/25/README.md)
+ ` GM36`
+
+### [拜登家族從第一個與中國的交易就是在叛國](/content/gnews/26/README.md)
+ ` VOH欧洲战友团`
+
+### [渤海华美税务问题浅析](/content/gnews/27/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [使用谷歌AI翻译软件小心CCP植入BUG](/content/gnews/28/README.md)
+ ` GM06`
+
+### [达摩克利斯之剑出鞘](/content/gnews/29/README.md)
+ ` 温哥华加喜农场🇨🇦`
+
+### [愈演愈烈的中共国“人质外交”](/content/gnews/30/README.md)
  ` 倫敦英喜莊園 Himalaya UK`
 
-### [中共火箭军DF-100——还真当自己是高超音速巡航导弹了?](/content/gnews/47/README.md)
- ` 快慢机`
+### [乔·拜登直系家庭成员简介](/content/gnews/31/README.md)
+ ` gnewscanada`
+
+### [中共国在澳的间谍活动猖獗](/content/gnews/32/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [美国副总统的儿子？这只是冰山一角](/content/gnews/33/README.md)
+ ` GM06`
+
+### [用你手中正义的选票，让美国再次伟大](/content/gnews/34/README.md)
+ ` gnewscanada`
+
+### [一颗被魔鬼操控的心](/content/gnews/35/README.md)
+ ` 温哥华加喜农场🇨🇦`
+
+### [拜登家族从渤海华美一步步走向地狱](/content/gnews/36/README.md)
+ ` GM77`
+
+### [关于乔·拜登的腐败故事](/content/gnews/37/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [新疆喀什首例无症状感染者与其后的137例新增无症状是什么关系](/content/gnews/38/README.md)
+ ` NewFOC`
+
+### [通过“共情”，我们能从亨特拜登的黄色视频中感受到什么](/content/gnews/39/README.md)
+ ` GM06`
+
+### [美国、苏丹共和国和以色列国联合声明](/content/gnews/40/README.md)
+ ` Isaiah4031`
+
+### [【经验分享】推特战争——夺命十三天](/content/gnews/41/README.md)
+ ` shangshang`
 

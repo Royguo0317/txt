@@ -1,23 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/10/15 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/440295/)
+## 亨特·拜登与中共的经济勾兑从“万向”开始
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/453923/)
 
-战友之家图文摘要及小语种组
+加拿大蒙特利尔战友团 laotou
 
-[264\_English\_1015\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22103205/264_English_1015_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22103205/264_English_1015_CCP_Virus_Updates.pdf)
+校对 小鸥 上传 HUH
+![]()![](https://media.discordapp.net/attachments/721388937553248396/770029493841821746/Snipaste_2020-10-26_05-01-55.png?width=904&amp;height=509)
+根据“台风调查”提供的资料，亨特·拜登的塞内卡全球顾问公司（Seneca Global Advisors）在2012年初，作为咨询顾问，代表美国的“巨点能源”（GreatPoint）与万向集团就4.2 亿美元的股权投资和 12.5 亿美元的项目融资进行了洽谈，双方同意在新疆共同开发建设一个煤制天然气厂。
 
-[264\_French\_1015\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24031939/264_French_1015_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24031939/264_French_1015_CCP_Virus_Updates.pdf)
+从拜登家族与中共经济来往勾兑的时间表来看，这是第一宗，是开始。
 
-[264\_German\_1015\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22103209/264_German_1015_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22103209/264_German_1015_CCP_Virus_Updates_.pdf)
+“巨点能源”官方2012年5月21日对媒体发布，“万象集团和巨点能源宣布投资12.5亿美元在中（共）国建设世界上最高效的煤制天然气生产设施”¹。
 
-[264\_Japanese\_1015\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24031921/264_Japanese_1015_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24031921/264_Japanese_1015_CCP_Virus_Updates.pdf)
+笔者没有查询“万向集团”，一个汽车零部件制造商，如何将业务扩展到能源行业，而且上来就是大手笔。 “台风调查”称“习近平等中美两国政府高官均出席了该项目的签字仪式”，同时还称“万向给‘巨点能源‘提供了数百万美元”。
 
-[264\_Korean\_1015\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22103213/264_Korean_1015_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22103213/264_Korean_1015_CCP_Virus_Updates.pdf)
+能够追踪到的是，从2011年初开始，万向集团就是奥巴马政府的常客，身后出现众多的美国政府高官的影子：
 
-[264\_Spanish\_1015\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22103202/264_Spanish_1015_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/22103202/264_Spanish_1015_CCP_Virus_Updates.pdf)
+“2011年 1月19日，受奥巴马总统的邀请，万向集团董事局主席鲁冠球同时抵达白宫，参加中美两国企业家圆桌讨论会。”
 
+“鲁冠球结束在白宫的精彩发言，匆匆吃了午饭便赶往机场，搭机返回芝加哥，并从芝加哥机场直接赶赴美国前财政部长亨利·保尔森的私人晚宴。”
 
+“3月17日，美国能源部代表团地考察万向集团，称万向在新能源领域已走在前列……“
+
+“4月10日上午，在万向总部会议室，当美国芝加哥前市长理查德·迈克尔·戴利（Richard Daley）从鲁冠球手中接过“高级顾问”的聘任书时，全场响起一阵热烈的掌声……”²
+
+“台风调查”介绍，芝加哥前市长理查德·迈克尔·戴利的兄弟威廉·戴利（William Daley）, 是奥巴马内阁的商务部部长，而亨特·拜登此前曾为理查德·戴利担任过电子商务政策协调部执行主任。 威廉·戴利还曾是奥巴马的幕僚长（2011-2012 年）。
+
+有了这样的背景，美国对万向集团的回报也是够丰盛的，只是苦了双方的老百姓！
+
+“美国当地时间1月28日晚，在首都华盛顿，美国外国投资委员会（CIFUS）正式批准，同意万向集团收购美国A123系统公司。与此同时，万向与A123将就该项收购进行交割，预计将于近期完成”³
+
+之后，在2014年又进行了一次收购——“成功收购美国菲斯科 万向新能源汽车产业圈初成“
+
+美国当地时间3月21日，万向收购美国电动汽车制造商菲斯科汽车公司(Fisker Automotive，下称“菲斯科”)交割仪式在芝加哥举行。至此，万向收购菲斯科的全部程序已经完成，这场持续整整一年的收购案终于尘埃落定。
+
+这是万向继去年收购美国锂离子动力电池制造商A123系统公司后，再次成功收购美国新能源企业。这将进一步加强万向在新能源汽车，尤其是乘用车领域的研发制造能力，标志着万向全面进入新能源汽车产业，从而形成完整的产业圈……”⁴
+
+“台风调查”的报告指出，菲斯科和 A123 公司都有部分资金是美国政府贷款，在特拉华州（拜登的家乡）制造汽车，这意味着万向得到的技术是用美国纳税人的钱来开发的，亨特·拜登也被列为菲斯科的债权人之一。万向集团从公司的收购中获得了可能被中共国军方使用的敏感技术。
+
+“台风调查”还指责万向集团积极参与中共国的对外渗透活动，其中包括出资让特拉华州的学生去中国学中文。其实不只是特拉华州，“留学中国”的规模更大，万向官网如此报道：
+
+“十万人留学中国计划”第二批学员抵杭开班
+
+6月24日上午，“十万人留学中国计划”——芝加哥万向合作项目来华美国学员开班仪式，在杭州万向职业技术学院新校区内隆重举行。来自美国芝加哥大学的32名师生和万向职业技术学院教师代表及志愿者们参加了开班仪式。
+
+这是自“十万人留学中国计划”——芝加哥万向合作项目正式启动以来，万向学院迎来的第二批美国学生……”5
+
+万向，拜登家族用各自国家人民的利益进行着相互的勾兑，为己谋利。
+
+人民总有反省、认清邪恶的那一天！
+
+参考链接：
+
+1. [https://www.netl.doe.gov/sites/default/files/netl-file/GreatPoint-WanxiangMay-21-2012.pdf](https://www.netl.doe.gov/sites/default/files/netl-file/GreatPoint-WanxiangMay-21-2012.pdf)
+
+2. [http://www.wanxiang.com.cn/index.php/news/info](http://www.wanxiang.com.cn/index.php/news/info)
+
+3. http://www.wanxiang.com.cn/index.php/news/info/1704
+
+4. http://www.wanxiang.com.cn/index.php/news/info/1750
+
+5. [http://www.wanxiang.com.cn/index.php/news/info/1720](http://www.wanxiang.com.cn/index.php/news/info/1720)
 
 0

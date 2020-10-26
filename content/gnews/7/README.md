@@ -1,15 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登曾阻挡“台湾安全加强法”
-` TaiwanFarm` [轉載自GNews](https://gnews.org/zh-hans/446852/)
+## 郭先生：gab 不错，我们应该到那里去注册！
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/454801/)
 
-台湾农场 Amitofu
+郭文贵先生[2020年10月25日的G-TV Getter](https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f95c0e5e7d0c633dee4dd5c) 上让战友们安装 Gab：“10月25日：尊敬的战友们好🙏🙏🙏gab 不错，我们应该到那里去注册！ ”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25211226/Miles_20201025_Getter-figure1.png)图片来源：Getter 链接：[https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f95c0e5e7d0c633dee4dd5c](https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f95c0e5e7d0c633dee4dd5c)
+同日在[《路德时评》早间节目](https://www.youtube.com/watch?v=wDTO96gFjZM)里，路德也推荐了 [gab.com](http://gab.com) 这个自媒体平台。路德另外还推荐了 Parler。
 
-已故前立委蔡同荣曾透露，在他2000年因美国国会推动支持台湾法案时，曾积极试图说服拜登，并请德拉瓦州的台湾同乡去找时任德拉瓦州联邦参议员的拜登，均告无效，当时众议院通过旨在加强美台关系的“台湾安全加强法”后，在参议院却遭到拜登强烈反对，理由是已有“台湾关系法”，没有必要另立“台湾安全加强法”。当时拜登主张美国必须采取“模糊政策”，不事先说要采取什么行动。蔡同荣和彭明敏提醒拜登，“模糊政策”会使中国误判美国防卫台湾的决心，反而会增加台海危机。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24105655/17-8.png)圖：美聯社
-近日路德时评重磅不断！硬碟内包含拜登当年为何提供在中共重要部门CIA间谍人员名单、十亿菲在旁边给亨特陪睡点毒、薄熙来私生女出现在拜登硬碟邮件内、军情的张宏伟、亨特·拜登与渤海华美RS（上海）投资基金管理有限公司的巨额贷款协议…等，厉害的文贵先生掌握巨量的情报与实锤的证据，向大众传播拜登贪腐真相与共产党蓝金黄网络，正也说明为何欧巴马与拜登执政时代，当时台美的关系相当疏远，美方倾向中共的一国两制。
+**Gab 创始人 Andrew Torba**
 
-在美国总统大选之际，中共与拜登家族勾兑中，揭开自邓小平开始到习近平政权，中共透过各种管道和力量对美国领导人、华盛顿政府高层、华尔街资本利诱等蓝金黄，暴露中共长期控制美国的野心，加上闫博士核实Covid19是生化武器，是中共发动对美国的侵略，美国真正要面对的是整个中共体制的邪恶系统，只有消灭共产党，世界才会安定。
+Gab 创始人，Andrew Torba 先生马上在 Gab 里转了郭先生的盖文，并给出了英文翻译：“Translation: Dear brothers and sisters (in arms): Gab looks good, we should go register there!”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25212001/Andrew_Torba_homepage.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25211241/Miles_20201025_Getter-figure2.jpg)图片来源：[https://gab.com/a/posts/105096948955707632](https://gab.com/a/posts/105096948955707632)
+Andrew Torba 是我们新中国联邦和爆料革命的战友无疑。他在自己的账号里给英文世界介绍我们的爆料革命、郭文贵先生和新中国联邦。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25211248/Miles_20201025_Getter-figure3.jpg)图片来源：[https://gab.com/a/posts/105096681944277137](https://gab.com/a/posts/105096681944277137)
+Figure 3. Andrew Torba 是我们的战友！
 
-0
+他还在 Gab 上介绍郭文贵先生的视频：[https://gab.com/a/posts/105096717573907297](https://gab.com/a/posts/105096717573907297)
+
+介绍新中国联邦：[https://gab.com/a/posts/105096788553418772](https://gab.com/a/posts/105096788553418772)
+
+**安装和使用 Gab**
+
+安装 Gab 超级简单。有以下几个原因。
+
+1. 不需要电话，墙内战友不用担忧买实体电话卡或虚拟号的时候暴露隐私。
+
+2. 注册只需要电子邮箱。建议战友们新申请一个邮箱，专号专用。比如可以申请 gmail（对不起，这个是号称“不作恶”又天天作恶的 Google 公司的，战友们只好委屈暂时用一下），注意 gmail 不用提供电话号码，问你电话号码时跳过即可。
+
+3. 虽然 Gab 是网页版，但是其实 Andrew Torba 教了大家怎样绕过 App 商店，在 Android 和苹果手机上安装 Gab，而且是中英文对照。超级简单！原来可以这样绕过App商店直接安装，涨见识啊！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25211257/Miles_20201025_Getter-figure4.jpg)
+笔者试了一下，超级简单！只需按步骤轻轻点几下即可。安装后的Gab在手机上长这样：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25211305/Miles_20201025_Getter-figure5.jpg)
+注册账号的步骤如下（[https://gab.com/auth/sign\_up](https://gab.com/auth/sign_up)）：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25211316/Miles_20201025_Getter-figure6.png)
+安装完成后，请到邮箱里点击确认，就完成了安装。现在请战友们动起你的手指，点赞、转发，并和英语世界的战友们建立友谊，让我们一起 “Take down the CCP and drain the swamp!”
+
+撰文：【Isaiah4031】
+
+战友之家玫瑰园小队出品
+
+1+

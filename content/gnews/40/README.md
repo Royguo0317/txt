@@ -1,37 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美总统竞选第二次辩论会上主持人就拜登与中共的问题多次打断川普总统
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/446412/)
+## 美国、苏丹共和国和以色列国联合声明
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/452919/)
 
-整撰：文錦
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24084443/102220sot2prezdebate1_960x540.jpg)
-10月22日美国总统竞选辩论会的第二场，川普总统与民主党竞选人乔拜登就多个议题展开辩论，川普总统指出乔拜登在任职副总统时就从俄罗斯拿到300多万美元，而且在一个新闻发布会上有人揭露有协议证实拜登家族与中共合作，乔拜登就是协议中得到10%股份的“大人物”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25132120/WH_20201024_Joint_Statement-photo169.png)图片来源：[https://twitter.com/IvankaTrump/status/1319709270166949892](https://twitter.com/IvankaTrump/status/1319709270166949892)
+**Joint Statement of the United States, the Republic of Sudan, and the State of Israel**
 
-整场辩论只要一触及中共和拜登的交易，主持人便出面干预。拜登多次辩解，“我没有从任何其他国家拿过一分钱，一生中从来没有。”
+**美国、苏丹共和国、以色列国联合声明**
 
-今天是美国总统竞选辩论会的第二场，在本场辩论会之前，前亨特拜登合作伙伴托尼-波布林斯基举行了新闻发布会。托尼在发布会上证明自己是中共华兴能源公司与拜登家族合作经营的中鹰公司CEO，在中共与中鹰达成的一份协议中，乔拜登就是那个拿了10%股份的“大人物”，对于家族成员利用自己的副总统职位与中共的交易，乔拜登完全知情。
+[**FOREIGN POLICY**](https://www.whitehouse.gov/issues/foreign-policy/)
 
-该来的一定会来。当辩论会进入到国家安全议题时，拜登指责川普总统一直不愿强硬对待俄罗斯，话外音是川普总统是否与俄罗斯之间有不同寻常的关系。川普总统回应道，“我没有从俄罗斯拿过一分钱，当你是美国副总统时，与前莫斯科市长夫妇关系密切，你从俄罗斯拿到300多万美元，你欠美国人民一个解释。刚刚有人开新闻发布会，揭露你的犯罪情况，你最好现在就澄清一下。”
+外交政策
 
-拜登公然撒谎，且贼喊捉贼。“我从来没有从任何外国拿过一分钱，一生中从来没有！你知道这个人{川普总统}在中共有个秘密的银行帐户，他在中国有商业活动。我把税收报表上报并公开，但他却隐藏起来。他是不是从外国拿了很多钱。”
+Issued on: October 23, 2020
 
-川普总统回应，“我会和会计联系，很快将公布我的税收报表，我已经提前支付了百万美元的税额，我不从中共和乌克兰那里捞钱，刚才的新闻发布会上有人已证实10%的股份给‘大人物’，你就是那个‘大人物’…”**此时出现第一次被主持人打断，话题被转到川普总统的税表和与外国的关系需要广泛的讨论。**
+发布日期：2020年10月23日
 
-川普总统，“我被迫经历了一个虚假的猎污行动，从2016年上任前我的竞选团队被监督、穆勒报告、18个愤怒的民主党人、FBI官员花费了4800万美元用来稽查我的税收，没有找到任何勾结的证据。而你，我只需100万美元就能查到你的家族利用你副总统职位到处捞钱，还有你众多的资产和房产…”**此时出现第二次被主持人打断，话题被转为询问拜登对有关儿子与乌克兰和中共的关系提出质疑是否合适。**
+President Donald J. Trump, Sudanese Chairman of the Sovereignty Council Abdel Fattah al-Burhan, Sudanese Prime Minister Abdalla Hamdok, and Israeli Prime Minister Benjamin Netanyahu spoke today to discuss Sudan’s historic progress towards democracy and opportunities to advance peace in the region.
 
-拜登，“这些指责是不道德的，他说他履行了美国的政策，没有任何出格的行为，我的儿子没有在这个问题上捞钱。”
+唐纳德·J·川普总统和苏丹主权委员会主席阿卜杜勒·法塔赫·布尔汉，苏丹总理阿卜杜拉·哈姆多克以及以色列总理本杰明·内塔尼亚胡在今天发表了讲话，讨论了苏丹在实现民主方面的历史性进步以及能够促进该地区和平的机会。
 
-川普，“我听说布里斯马公司付给亨特300万美元头款，有数以亿计的交易…”**此时出现第三次被打断，话题被引到川普总统需要解释在中国的银行帐户。**
+After decades of living under a brutal dictatorship, the people of Sudan are finally taking charge. The Sudanese transitional government has demonstrated its courage and commitment to combating terrorism, building its democratic institutions, and improving its relations with its neighbors.
 
-川普，“我在中国的银行帐户2013年开户，2015年我在参与总统竞选前就已关闭。而拜登不一样，他在副总统任职期间，他的家族就与中共做交易捞取巨额财富…”**此时出现第四此被主持人打断，话题被转到中共必须对疫情负起责任。**
+在残酷的独裁统治下生活了几十年之后，苏丹人民终于由自己掌握了国家权力。苏丹过渡政府在打击恐怖主义，建立民主制度和改善与邻国关系等问题上上证明了他们的勇气与承诺。
 
-川普总统主动出击，“不好意思我必须要补充一下，拜登的儿子从中共拿了数10亿美元这是第一，第二，有确切证据的电子邮件曝光拜登家族从中共拿到引荐费数千万美元… ”**此时出现被主持人第五次打断，话题转到继续要中共对疫情负责。**
+In light of this historic progress, and following President Trump’s decision to remove Sudan from the State Sponsors of Terrorism list, the United States and Israel agreed to partner with Sudan in its new start and ensure that it is fully integrated into the international community.
 
-第二场美国总统竞选辩论再次得益于女主持人的神助攻，能让乔拜登成功躲闪开川普总统对自己家族与中共交易问题的步步紧逼，这次他作为美国总统竞选人，当着全美人民的面公然撒谎，声称自己和家族成员从没有从任何其他国家获取利益 。“三块硬盘”已经确凿证据显示乔拜登的罪行累累，接下来他将面临什么样的结局我们拭目以待。
+鉴于这一历史性进展，和川普总统将苏丹从“国家恐怖主义赞助国”名单中删除这一决定，美国和以色列同意与苏丹合作，以确保苏丹能够完全融入国际社会。
 
-参考链接：
+The United States will take steps to restore Sudan’s sovereign immunity and to engage its international partners to reduce Sudan’s debt burdens, including advancing discussions on debt forgiveness consistent with the Highly Indebted Poor Countries Initiative.
+
+美国将逐步采取措施以恢复苏丹的主权豁免权，并与其国际伙伴合作，减轻苏丹的债务负担，包括根据《重债穷国倡议》推进有关债务免除的讨论。
+
+The United States and Israel also committed to working with their partners to support the people of Sudan in strengthening their democracy, improving food security, countering terrorism and extremism, and tapping into their economic potential.
+
+美国和以色列还承诺与合作伙伴一道，支持苏丹人民加强其民主体制，改善粮食安全，打击恐怖主义和极端主义并挖掘其经济潜力。
+
+The leaders agreed to the normalization of relations between Sudan and Israel and to end the state of belligerence between their nations. In addition, the leaders agreed to begin economic and trade relations, with an initial focus on agriculture.
+
+两国领导人同意实现苏丹与以色列之间的外交关系正常化，并结束两国之间的交战状态。此外，两国领导人也同意以农业作为切入点开始建立双边经贸关系。
+
+The leaders also agreed that delegations will meet in the coming weeks to negotiate agreements of cooperation in those areas as well as in agriculture technology, aviation, migration issues and other areas for the benefit of the two peoples.
+
+两国领导人还商定，各代表团将在未来几周举行会议，商讨两国在这些领域的合作，此外还包括农业技术，航空，移民问题和其他领域的合作，以造福两国人民。
+
+The leaders also resolved to work together to build a better future and advance the cause of peace in the region. This move will improve regional security and unlock new opportunities for the people of Sudan, Israel, the Middle East, and Africa.
+
+两国领导人还决心共同努力，共创美好未来，促进该地区的和平事业。此举将改善区域安全，并为苏丹，以色列，中东和非洲人民创造新的机会。
+
+This historic agreement is a testament to the bold and visionary approach of the four leaders. Prime Minister Netanyahu, Chairman al-Burhan, and Prime Minister Hamdok expressed their appreciation for President Trump for his pragmatic and unique approach to ending old conflicts and building a future of peace and opportunity for all the people of the region.
+
+这一历史性协议证明了四位领导人的魄力和远见。川普总统为结束该地区由来已久的冲突，为该地区所有人民构建和平与充满机遇的未来而采取了务实且独辟蹊径的做法，内塔尼亚胡总理，布尔汉主席和哈姆多克总理对此表示赞赏。
+
+[阅读白宫英文原文](https://www.whitehouse.gov/briefings-statements/joint-statement-united-states-republic-sudan-state-israel/)
+
+翻译 & 校对：【Winston Jackson(文李)】【jamie(文胤)】编辑：【Isaiah4031】
+
+战友之家玫瑰园小队出品
+
+相关新闻：[美国又一外交胜利：川普总统促成了苏丹和以色列之间的和平协议](https://gnews.org/zh-hans/452828/)
 
 
 
-1+
+> [Another Diplomatic Victory: President Trump Brokers a Historic Peace Agreement Between Israel and Sudan](https://gnews.org/452780/)
+
+
+
+0
