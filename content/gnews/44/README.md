@@ -1,48 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登家族：乔·拜登弟、妹家庭成员简介
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/458153/)
+## 真相的较量—推特野蛮封杀将传播媒体变成战场
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/458423/)
 
-喜马拉雅联盟加拿大农场 小先生
-校对 文锦 上传 WJ
+作者：桂花酒
 
-乔.拜登（Joseph Robinette “Joe” Biden Jr.）生于1942年11月20日。为家中长子，有两个弟弟（詹姆斯.拜登James Brian“Jim” Biden，弗朗西斯.拜登Francis W. “Frank” Biden）和一个妹妹（瓦莱丽.拜登 Valerie Biden）
+校对：宁缺；审核：海阔天空；Page：拱卒
 
-**瓦莱丽.拜登**（Valerie Biden）生于1944年，为家中次女。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26113844/Valerie_Biden_Owens_1_1.jpg)
-她一直打理乔.拜登政治生涯的每一次竞选。是特拉华大学拜登研究所（Biden Institute）的副主席，其研究所使命是影响，塑造和致力于解决美国面临的最紧迫的政策问题。瓦莱丽也是哈佛大学约翰·肯尼迪政府学院政治研究所的常任研究员。她还担任拜登基金会（Biden Foundation）的副主席，该基金会致力于帮助推进前副总统乔.拜登和前第二夫人吉尔.拜登职业生涯中的各项工作；她也是欧文斯帕特里克领导人研讨会（Owens Patrick Leadership Seminars）的合伙人；并担任博·拜登（Beau Biden）保护儿童基金会的顾问委员会成员。并被任命为内华达大学拉斯维加斯分校的米高梅公共政策研究所顾问委员会成员。并获得认证的肢体语言培训师资格。国际方面，她曾被提名并担任联合国大会的美国高级顾问并有发言。
+[!\[\]()!\[\](https://spark.adobe.com/page/SjtPH1TuKdtgP/images/2b9e8393-c6f9-45ab-a276-fadcaf4f0442.jpg?asset_id=e34c143e-6e61-45ed-9baa-263100898607&amp;img_etag=%2202e7f91d32902fa875fb458b7fd404f2%22&amp;size=1024)](https://spark.adobe.com/page/SjtPH1TuKdtgP/images/2b9e8393-c6f9-45ab-a276-fadcaf4f0442.jpg?asset_id=e34c143e-6e61-45ed-9baa-263100898607&amp;img_etag=%2202e7f91d32902fa875fb458b7fd404f2%22&amp;size=1024)
 
-瓦莱丽.拜登的第一任丈夫为布鲁斯.桑德斯（Bruce Saunders），于1975年离婚后与第二任丈夫身为律师和商人的捷克.欧文斯（John T. “Jack”Owens）共育有三个孩子库夫.拜登.欧文斯（Cuffe Biden Owens），凯瑟琳·尤金妮娅·欧文斯（又称：凯西.欧文斯Catherine Eugenia “Casey”Owens）和瓦莱丽·詹姆斯·欧文斯（又称：米西.欧文斯Valerie James“Missy” Owens）。第一任丈夫桑德斯曾任命为特拉华州经济发展办公室主任，他将其归功于与乔.拜登的联系。
+**真相的较量—推特野蛮封杀将传播媒体变成战场**
 
-1.**库夫.拜登.欧文斯**（Cuffe Biden Owens）：毕业于南加州大学古尔德法学院，并成为加州注册律师。
+自由女神像，骄傲地矗立在美利坚的土地上，眺海而望。而她的衣袂已快成了烂衣裳。
 
-2.**米西.欧文斯**（Valerie James“Missy” Owens）：1998年前后乔.拜登强调跨党派合作并与当时市长卢迪.朱利安尼（Rudy Giuliani）通话并希望其聘请自己的侄女米西·欧文斯来担任政府的中层职位。并于1998年6月开始为朱利安尼（Giuliani）先生的立法事务团队工作，并一直任职至1999年8月。随后在华盛顿可口可乐公司任高级主管。根据领英资料，奥巴马-拜登团队于2009年接任华盛顿政府后不久，米西.欧文斯和她的妹妹凯西.欧文斯都找到了联邦政府工作。米西.欧文斯于2009年成为能源部副参谋长，并在联邦政府任职三年。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26113825/Valerie-JamesMissy-Owens.jpg)右一为米西.欧文斯
-3.**凯西·欧文斯**（Catherine Eugenia “Casey”Owens）：也在2009年加入财政部，担任中国高级协调员的特别助理，并于2011年离开政府。 凯西·欧文斯（现称Casey Castello）在西雅图的星巴克管理部门工作。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26113704/Casey-Castello.jpeg)
-**詹姆斯.拜登**（James Brian “Jim” Biden），又称吉姆.拜登，生于1949年。他曾担任推销员，于1972年担任乔.拜登的参议院竞选财务主席，之后开始了自己一系列的企业家生涯。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26113739/james-biden.jpg)
-1970年代，当乔进入参议院并在银行委员会中任职时，詹姆斯从放贷机构获得了特别慷慨的贷款，这些放贷人后来面临联邦监管问题。在1990年代，密西西比州的审判律师们找詹姆斯寻求合作，希望国会支持烟草行业的更大规模发展，后因其他原因搁置。在奥巴马任职期间，詹姆斯加入一家建筑公司担任执行官几个月后，该公司获得了一份价值15亿美元的合同–在伊拉克建造房屋，而乔.拜登则负责美国对伊拉克土地的占用。随后，詹姆斯与他的侄子亨特结为生意伙伴。在2000年代初期，亨特（Hunter）与叔叔一起开办了一个游说公司，并在乔.拜登第二次竞选总统前进军对冲基金业务；2006年二人收购了Paradigm Global Advisors，随后爆出数件诈骗、犯罪丑闻。2020年1月，FBI的一次对与詹姆斯.拜登有关的医院Americore Health突袭调查中，发现了许多金融法律问题。目前案件正在侦办中。
+拜登变态性照经过爆料革命战友的传播让路德9月24号来自地狱的硬盘门持续发酵，不断印证着站在未来说历史的正确性，不断冲击着美国人民的精神底线。
 
-詹姆斯.拜登共育有三子，女儿卡罗琳·拜登（Caroline Nicole Biden），儿子小詹姆斯.拜登（James Brian Biden, Jr.）和尼古拉斯.拜登（Nicholas Coleman Biden）。
+中共大外宣、伪民运们在叫嚣路德社没有硬盘，没有照片，企图故伎重演抹黑爆料革命，转身就遭打脸。
 
-**卡罗琳·拜登**，现年33岁。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26113713/court-caroline-biden_m.jpg)
-2019年8月因在费城郊区无证驾驶被捕。2018年，她因借用信用卡购买价值超过100,000美元的美容产品，构成诈骗罪被曼哈顿法院判处缓刑两年。2013年，因与室友打架而被捕，当时她欠了房租。
+推特对此作出了迅速的反应，对传播拜登艳照丑闻真相的推特号包括大V路德先生和几千个转发的帐号悉数封杀。推特多年“西方自由”形象的累积，瞬间坍塌。他们如何知道那些人是持续传播真相的？如何短时间就“定点清除”的？难道也持续监控？难道路德社9月24日那个来自地狱的硬盘门从没被验证？推特岂不是在用自己愚蠢的行动在告诉美国网民事实真相？在接近大选最后的十几天，推特、脸书为代表的科技巨头们撕下伪装，赤膊上阵，完全为中共站台。
 
-**弗朗西斯.拜登**（Francis W. ”Frank“ Biden）又称弗兰克.拜登，生于1953年11月 为拜登四兄妹中最小。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26113722/Frances-Biden.jpg)
-他是佛罗里达州的房地产开发商，2018年出任Berman Law Group高级顾问。童年时期他身材高大，运动能力强，是一名高中篮球明星。根据乔·拜登第二任妻子吉尔·拜登（Jill Biden）的回忆录，弗兰克是特拉华大学的；但是在弗兰克于1985年宣布结婚时，他被描述为在旧金山州立大学学习。 在其他地方，他被描述为曾在加利福尼亚州马里布康奈尔大学和佩珀代因法学院就读。1985年10月，弗兰克与特拉华州新闻记者简妮·贾奎特（Janine Jaquet）结婚，随后成为旧金山的房地产经纪人。1993年，弗兰克担任政府印刷局（现为政府出版局）的国会和立法事务主任，任期至1997年6月。1997年与妻子分居。他在2009年加入了佛罗里达州以营利为目的的慈善机构小牛教育公司（Mavericks in Education），从事政府特批教育项目（Charter School），后被曝光经营不善和财政、生源造假以获得更高政府补助。情感上，分居后的弗兰克与明迪·沃德（Mindy Ward）同居，据了解他们于2010年初认识。 47岁的沃德（Ward）是前Hooters女服务员，目前是美国航空的空姐，根据她在脸书上的个人资料，她还曾在博卡拉顿的CHG Healthcare工作。据说，Frank与另外与一名不知名情人育有一女名Megan，据说是一名护士。
+真相不仅仅是那些肮脏的照片、视频。它们揭示出没有任何底线的CCP在对美国的蓝金黄，中共和拜登家族的相互勾结和腐败，揭示出中共对拜登家族的彻底控制。美国的选民只会更加清醒，更加明白中共对美国渗透腐蚀有多么深！
 
-**简妮·贾奎特**（Jaquet）于1981年6月在特拉华州威尔明顿新闻晨报的纽瓦克分社工作，之后于1984年在特拉华新闻12台担任政治记者，现任纽约哥伦比亚新闻学院的副院长。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26113756/Janine-Jaquet.jpg)右一为简妮·贾奎特
-这对夫妇在1989年生了一个女儿阿拉娜（Alana），她是洛杉矶NBC Productions的高管。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26113645/Alana-Biden.jpg)
-据报道，乔拜登选举中整个家庭参与其中。兄弟詹姆斯·拜登（James Biden）负责筹款，弗兰克·拜登（Frank Biden）负责管理志愿者。他们的母亲开了一家咖啡馆。瓦莱丽.拜登的第一任丈夫布鲁斯·桑德斯（Bruce Saunders）处理了预算。
+推特的疯狂反证了爆料革命巨大的影响力。美国网民关注和转发，他们如何不害怕？230修正案的实施，将除去科技巨头的特权。王子犯法与庶民同罪在美国变成现实的时候，班农先生为代表的平民主义与精英主义的较量，终将胜利。
 
+CCP用高墙封锁14亿人并给大多数人洗脑的成功，还妄想把这一套强硬地复制到美国，遇人杀人，逢佛杀佛。
 
+推特封杀爆料革命的战友，自以为替CCP主子出力会得到好处，恰恰相反，随着大批战友离开，推特的死期就快到了。推特为虎作伥，与中共狼狈为奸的事实真相已经摆在了世界面前。
 
-参考链接
+[!\[\]()!\[\](https://spark.adobe.com/page/SjtPH1TuKdtgP/images/43f6b50f-f146-4659-93d9-238865993145.jpg?asset_id=7261c998-a8cf-4fd0-905a-a87c550f67c5&amp;img_etag=%22c8b1624aa87368616d57bca1ef02ba51%22&amp;size=1024)](https://spark.adobe.com/page/SjtPH1TuKdtgP/images/43f6b50f-f146-4659-93d9-238865993145.jpg?asset_id=7261c998-a8cf-4fd0-905a-a87c550f67c5&amp;img_etag=%22c8b1624aa87368616d57bca1ef02ba51%22&amp;size=1024)
+
+现在我们已经有了自己的发声平台：GTV/GNEWS，，并且会坚定地开辟新的社交媒体战场，继续传播真相，煽动蝴蝶的翅膀。面对黑暗，绝不退缩，爆料革命的时代洪潮谁也无法阻挡！
+
+——事实的真相在闪铄发光
+
+象一件圣者的烂衣裳
+
+注：圣者的烂衣裳来自冯至的《十四行诗》
+
+编辑：[【喜马拉雅战鹰团】](https://spark.adobe.com/page/SjtPH1TuKdtgP/)-点击spark adobe版
+
+了解更多资讯敬请关注：
+
+【战鹰团Gab】[https://gab.com/himalayahawks](https://gab.com/himalayahawks)
+
+【英喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
+
+【英喜庄园GTV/盖特】:
+
+[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+![]()![](https://spark.adobe.com/page/SjtPH1TuKdtgP/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)
 
 0

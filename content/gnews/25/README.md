@@ -1,10 +1,12 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【重磅新闻】乔·拜登被共产党收买第一笔交易
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/458800/)
+## 【重磅新闻】门户评论家网：GTV又发布了两个关于亨特·拜登的性爱视频
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/458893/)
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25225844/WhatsApp-Image-2020-10-24-at-08.09.25-2.jpeg)
+
+
 
 
 
