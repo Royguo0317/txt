@@ -1,48 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登家族：乔·拜登弟、妹家庭成员简介
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/458153/)
+## 每日新闻看点-2020年10月25日
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/459348/)
 
-喜马拉雅联盟加拿大农场 小先生
-校对 文锦 上传 WJ
+喜马拉雅联盟加拿大农场 大地鲲鹏
 
-乔.拜登（Joseph Robinette “Joe” Biden Jr.）生于1942年11月20日。为家中长子，有两个弟弟（詹姆斯.拜登James Brian“Jim” Biden，弗朗西斯.拜登Francis W. “Frank” Biden）和一个妹妹（瓦莱丽.拜登 Valerie Biden）
+校对上传 XM
 
-**瓦莱丽.拜登**（Valerie Biden）生于1944年，为家中次女。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26113844/Valerie_Biden_Owens_1_1.jpg)
-她一直打理乔.拜登政治生涯的每一次竞选。是特拉华大学拜登研究所（Biden Institute）的副主席，其研究所使命是影响，塑造和致力于解决美国面临的最紧迫的政策问题。瓦莱丽也是哈佛大学约翰·肯尼迪政府学院政治研究所的常任研究员。她还担任拜登基金会（Biden Foundation）的副主席，该基金会致力于帮助推进前副总统乔.拜登和前第二夫人吉尔.拜登职业生涯中的各项工作；她也是欧文斯帕特里克领导人研讨会（Owens Patrick Leadership Seminars）的合伙人；并担任博·拜登（Beau Biden）保护儿童基金会的顾问委员会成员。并被任命为内华达大学拉斯维加斯分校的米高梅公共政策研究所顾问委员会成员。并获得认证的肢体语言培训师资格。国际方面，她曾被提名并担任联合国大会的美国高级顾问并有发言。
+一、疫情真相
 
-瓦莱丽.拜登的第一任丈夫为布鲁斯.桑德斯（Bruce Saunders），于1975年离婚后与第二任丈夫身为律师和商人的捷克.欧文斯（John T. “Jack”Owens）共育有三个孩子库夫.拜登.欧文斯（Cuffe Biden Owens），凯瑟琳·尤金妮娅·欧文斯（又称：凯西.欧文斯Catherine Eugenia “Casey”Owens）和瓦莱丽·詹姆斯·欧文斯（又称：米西.欧文斯Valerie James“Missy” Owens）。第一任丈夫桑德斯曾任命为特拉华州经济发展办公室主任，他将其归功于与乔.拜登的联系。
+闫丽梦博士论文：
 
-1.**库夫.拜登.欧文斯**（Cuffe Biden Owens）：毕业于南加州大学古尔德法学院，并成为加州注册律师。
+第一份英文版[https://zenodo.org/record/4028830#.X1\_lwj-SlPa](https://zenodo.org/record/4028830#.X1_lwj-SlPa)
 
-2.**米西.欧文斯**（Valerie James“Missy” Owens）：1998年前后乔.拜登强调跨党派合作并与当时市长卢迪.朱利安尼（Rudy Giuliani）通话并希望其聘请自己的侄女米西·欧文斯来担任政府的中层职位。并于1998年6月开始为朱利安尼（Giuliani）先生的立法事务团队工作，并一直任职至1999年8月。随后在华盛顿可口可乐公司任高级主管。根据领英资料，奥巴马-拜登团队于2009年接任华盛顿政府后不久，米西.欧文斯和她的妹妹凯西.欧文斯都找到了联邦政府工作。米西.欧文斯于2009年成为能源部副参谋长，并在联邦政府任职三年。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26113825/Valerie-JamesMissy-Owens.jpg)右一为米西.欧文斯
-3.**凯西·欧文斯**（Catherine Eugenia “Casey”Owens）：也在2009年加入财政部，担任中国高级协调员的特别助理，并于2011年离开政府。 凯西·欧文斯（现称Casey Castello）在西雅图的星巴克管理部门工作。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26113704/Casey-Castello.jpeg)
-**詹姆斯.拜登**（James Brian “Jim” Biden），又称吉姆.拜登，生于1949年。他曾担任推销员，于1972年担任乔.拜登的参议院竞选财务主席，之后开始了自己一系列的企业家生涯。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26113739/james-biden.jpg)
-1970年代，当乔进入参议院并在银行委员会中任职时，詹姆斯从放贷机构获得了特别慷慨的贷款，这些放贷人后来面临联邦监管问题。在1990年代，密西西比州的审判律师们找詹姆斯寻求合作，希望国会支持烟草行业的更大规模发展，后因其他原因搁置。在奥巴马任职期间，詹姆斯加入一家建筑公司担任执行官几个月后，该公司获得了一份价值15亿美元的合同–在伊拉克建造房屋，而乔.拜登则负责美国对伊拉克土地的占用。随后，詹姆斯与他的侄子亨特结为生意伙伴。在2000年代初期，亨特（Hunter）与叔叔一起开办了一个游说公司，并在乔.拜登第二次竞选总统前进军对冲基金业务；2006年二人收购了Paradigm Global Advisors，随后爆出数件诈骗、犯罪丑闻。2020年1月，FBI的一次对与詹姆斯.拜登有关的医院Americore Health突袭调查中，发现了许多金融法律问题。目前案件正在侦办中。
+第一份中文版[https://drive.google.com/file/d/1vZ0vbPJ9QAhGDjna9pkMxqUHhIdakODW/view?usp=sharing](https://drive.google.com/file/d/1vZ0vbPJ9QAhGDjna9pkMxqUHhIdakODW/view?usp=sharing)
 
-詹姆斯.拜登共育有三子，女儿卡罗琳·拜登（Caroline Nicole Biden），儿子小詹姆斯.拜登（James Brian Biden, Jr.）和尼古拉斯.拜登（Nicholas Coleman Biden）。
+第二份英文版[http://zenodo.org/record/4073131](https://zenodo.org/record/4073131)
 
-**卡罗琳·拜登**，现年33岁。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26113713/court-caroline-biden_m.jpg)
-2019年8月因在费城郊区无证驾驶被捕。2018年，她因借用信用卡购买价值超过100,000美元的美容产品，构成诈骗罪被曼哈顿法院判处缓刑两年。2013年，因与室友打架而被捕，当时她欠了房租。
+第二份中文版[https://gnews.org/zh-hans/411364/](https://gnews.org/zh-hans/411364/)
 
-**弗朗西斯.拜登**（Francis W. ”Frank“ Biden）又称弗兰克.拜登，生于1953年11月 为拜登四兄妹中最小。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26113722/Frances-Biden.jpg)
-他是佛罗里达州的房地产开发商，2018年出任Berman Law Group高级顾问。童年时期他身材高大，运动能力强，是一名高中篮球明星。根据乔·拜登第二任妻子吉尔·拜登（Jill Biden）的回忆录，弗兰克是特拉华大学的；但是在弗兰克于1985年宣布结婚时，他被描述为在旧金山州立大学学习。 在其他地方，他被描述为曾在加利福尼亚州马里布康奈尔大学和佩珀代因法学院就读。1985年10月，弗兰克与特拉华州新闻记者简妮·贾奎特（Janine Jaquet）结婚，随后成为旧金山的房地产经纪人。1993年，弗兰克担任政府印刷局（现为政府出版局）的国会和立法事务主任，任期至1997年6月。1997年与妻子分居。他在2009年加入了佛罗里达州以营利为目的的慈善机构小牛教育公司（Mavericks in Education），从事政府特批教育项目（Charter School），后被曝光经营不善和财政、生源造假以获得更高政府补助。情感上，分居后的弗兰克与明迪·沃德（Mindy Ward）同居，据了解他们于2010年初认识。 47岁的沃德（Ward）是前Hooters女服务员，目前是美国航空的空姐，根据她在脸书上的个人资料，她还曾在博卡拉顿的CHG Healthcare工作。据说，Frank与另外与一名不知名情人育有一女名Megan，据说是一名护士。
+二、新中国联邦新闻
 
-**简妮·贾奎特**（Jaquet）于1981年6月在特拉华州威尔明顿新闻晨报的纽瓦克分社工作，之后于1984年在特拉华新闻12台担任政治记者，现任纽约哥伦比亚新闻学院的副院长。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26113756/Janine-Jaquet.jpg)右一为简妮·贾奎特
-这对夫妇在1989年生了一个女儿阿拉娜（Alana），她是洛杉矶NBC Productions的高管。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26113645/Alana-Biden.jpg)
-据报道，乔拜登选举中整个家庭参与其中。兄弟詹姆斯·拜登（James Biden）负责筹款，弗兰克·拜登（Frank Biden）负责管理志愿者。他们的母亲开了一家咖啡馆。瓦莱丽.拜登的第一任丈夫布鲁斯·桑德斯（Bruce Saunders）处理了预算。
+1. 新中国联邦大决战：
 
+a.GNEWS独家持续曝光拜登家族丑闻
 
+乔·拜登之子亨特·拜登大量淫秽色情画面。[https://gnews.org/zh-hans/446695/](https://gnews.org/zh-hans/446695/)
 
-参考链接
+照片里和亨特·拜登一起的是谁? 持续更新中。[https://gnews.org/zh-hans/451832/](https://gnews.org/zh-hans/451832/)
 
-0
+b.2015年，习近平访美期间与贾跃亭、王昕和拜登之间关联的有关文件揭秘。[https://gnews.org/zh-hans/452500/](https://gnews.org/zh-hans/452500/)
+
+2. “路德时评”10/25/2020节目部分内容:
+
+a.推特正在全面封杀爆料革命战友的账号，但爆料革命的影响力已经使舆论风向逐步转变，CBS、新闻周刊、纽约时报等左媒，要求乔·拜登对“硬盘门”进行解释。乔·拜登已停止竞选集会，坐等中共习近平暗招助选。
+
+GTV、GNEWS成为主战场，请战友注册Parler、Gab账号中转和分享GTV 、GNEWS链接，将英文世界读者引流至爆料革命媒体。
+
+b.川普总统在威斯康辛州的竞选演讲坦承，轻视了“沼泽”深度和邪恶，今后将逐一收拾。
+
+c.硬盘门中有4个关键点：谁安排的亨特·拜登与中共明星一起吸毒？FBI为什么没有立案?硬盘事件为什么被纽约南区检察院按下？众多媒体和民主党大佬都有硬盘为什么不报？硬盘中的腐败案件一定要让美国人民知道。
+
+d.《拜登家族与中共关系调查报告》解读：中共通过万向集团注资拜登家族的巨点能源公司输送利益。乔·拜登协助中共完成对A123、菲斯科汽车的收购，骗取美国贷款、军事技术、投资北朝鲜。亨特·拜登早在2010年就开始与渤海产业基金人士多次会面，并在2013年签署了协议，利用其父乔·拜登公权力，控股中共渤海华美。
+
+e.川普大选后将解雇FBI、CIA局长及国防部长埃斯伯，以及涉案的司法部官员。
+
+f.美国911后实施了监控外国危险分子的计划，但O先生自2009年就将CIA、DHI用于监控和威胁政敌，并与中共互换情报、相互扶持，意图长期共同控制世界。其做派和中共高层如出一辙。CIA自2003年以来，所掩盖的拜登与中共勾兑的证据多达47块硬盘。
+
+g.美国建制派想统治世界。最大的障碍就是川普总统、班农先生领导的平民主义以及美国还有独立思维的民众。爆料革命的战友是和平的缔造者，在这个对于我们子孙后代都至关重要的转折点上贡献自己一份力量。
+
+（“路德时评”早间节目[https://www.youtube.com/watch?v=wDTO96gFjZM&list=PLt9WLG-do1ascwrFCV8I6xnUNjCM3xwBY&index=3](https://www.youtube.com/watch?v=wDTO96gFjZM&amp;list=PLt9WLG-do1ascwrFCV8I6xnUNjCM3xwBY&amp;index=3)）
+
+（“路德时评”晚间节目[https://www.youtube.com/watch?v=zfpRmic6EX8](https://www.youtube.com/watch?v=zfpRmic6EX8)）
+
+3.包括北马其顿、保加利亚与科索沃等在内的巴尔干半岛三国10月23日与美国签署了“清洁网络”协议，排除中共国公司参与其网络建设。
+
+三、世界新闻
+
+1.美众议员吉姆·乔丹（Jim Jordan）在周日（10月25日）接受Fox采访时说，其工作人员审查了亨特·拜登（Hunter Biden）笔记本电脑上声称的电子邮件，并对其进行了独立身份验证， “它们是真实的。“（they’re as real as real can be.”） 目击者博布林斯基先生对此所声称确有其事，也是是真实的。乔·拜登就是那个“big guy”。
+
+2.联邦参议院10月25日下午，投票以51票比48票限制针对川普总统提名保守派法官巴瑞特递补最高法院大法官金斯柏格一案的辩论和民主党的阻挠，为预计26日晚间进行的最终确认表决做好了准备。共和党目前在一百席的参院拥有五十三席对四十七席优势，且共和党参议员几乎一致支持巴瑞特，原本反对在大选前表决这项人事案的共和党阿拉斯加州参议员丽莎·穆考斯基，24日也已表态支持巴瑞特。
+
+3.10月25日美国国务院与阿塞拜疆和亚美尼亚政府在一份联合声明中说，新的人道主义停火协议将于10月26日上午8时（美国东部时间上午12时）在阿塞拜疆和亚美尼亚围绕纳戈尔诺-卡拉巴赫飞地的冲突中生效，尽管双方爆发了新的战斗，并指责对方要为之前停火协议的失败负责。此前，美国国务卿蓬佩奥周五在华盛顿分别与亚美尼亚和阿塞拜疆外长举行了会晤。
+
+1+

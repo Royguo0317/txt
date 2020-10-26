@@ -1,27 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 驚爆十三天 終極滅共之戰全面開啓
-` Ronald` [轉載自GNews](https://gnews.org/zh-hans/458424/)
+## CCP蓝金黄的重度粉碎机&#8211;炸弹资料(H大佬+毒=CCP&#8221;BGY&#8221;)
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/444946/)
 
-內新聞：土家部落 校對:天藍色獨角色
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26123702/Screenshot_2020-10-26-23-32-13-576_Discord.png)
-美東時間二十三日11時開始，十三天、每天二十四小時、每隔一小時，不斷爆料硬盤內容。這十三天將改變人類的曆史，也是光明與黑暗，正義與邪惡之戰，也是未來人類生存的終極之戰。
+编辑：玫瑰天空
 
-爆料將引發美國一系列的政治海嘯，一些隱藏很深的被中共藍金黃的代理人，以及與中共勾結的美國盜國賊也將暴露在全世界面前。
+邪恶的灵魂总是能聚集在一起，所有的贪欲和色诱都是他们堕落的借口。
 
-美國的沼澤將會排幹，那些與中共勾結夢想統治全世界，企圖將全世界拖入黑暗之中的暗勢力將無所遁形，許多偉大的政治人物將被扯下虛僞的面具，總統參選人拜登與中共勾結的證據被揭露，其政治生命很快會終結，未來一定會受到法律的嚴懲。
+选择黑暗的人永远把罪责推向别处，怪罪阳光没有照耀他们的黑夜！
 
-美國是滅共的主戰場，打掉中共作惡的背後勢力，徹底斬斷中共伸向世界、控制世界、攫取財富的黑手、這是中共強大能量的來源。
+把自己的罪恶归咎于人情的冷暖和世界的倾斜，
 
-這次美國選舉也是滅共的終極之戰，雖然美國已經被黑暗所籠罩，但是美國建國先賢所建立的民主構架具有強大的糾錯能力，在曆史關頭美國這艘巨輪一定會修正航線、破浪前行。
+殊不知，它们才是粉碎世界和侵吞美好的恶魔！
 
-美國的選舉之戰也是正邪大戰的終極之戰，相信川普總統一定會大勝，如果那樣的話，將會引發一系列的蝴蝶效應，這對中共也是一個巨大的打擊！
+这样的恶行和黑暗是该被挖掘出来了！
 
-由于前期爆料革命引發的中共內部血腥的內鬥和清洗，中共內部已經四分五裂了，一些黨內還在猶豫，左右搖擺、觀望的勢力會借助這個外部條件站出來，改變曆史的就是手握實權的實力派，以共滅共的條件成熟了。
+世界不能被它们毁灭！
 
-川普總統的勝利是滅共的重要一戰，未來一系列的滅共措施、方案乃至戰爭將會全面推出！
+灵魂和人类的光明不能被它们继续玷污和荼毒！
 
-中共也明白憑一己之力無法對抗全世界正義聯盟的合力圍剿，于是中共內部就會瓦解，中共大廈將會傾斜、根基開始松動、在一陣脆斷聲中，中共將被掃入曆史的垃圾堆中，人類將迎來光明的未來。
+是时候集结全世界的正义力量奋起抗争了！
 
-0
+不分国家，不分宗族，不分肤色，不分党派，让我们一起为世界而战！
+
+为人类的未来而战！为了保护我们的孩子而战！！为正义和光明而战！！摧毁恶魔和黑暗！！！
+
+照片里的是谁？视频里的是谁？H大佬是谁？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24211501/IMG_C4835A12BCE9-1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25235322/85c373b3-43c7-4115-b97b-a6c5a0b17920.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26012814/2be805a2-39b2-40e1-b677-36dae1de427c.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26012839/%E6%88%AA%E5%B1%8F2020-10-25-13.53.54.png)
+1:
+
+
+
+> [“BGY”H大佬集锦](https://www.xmlynz.org/?p=3547&#038;lang=zh-cn)
+
+
+
+2:
+**Who is Hunter Biden’s money, gender and transactions related to? 14 years old?**
+
+
+
+> [Who is Hunter Biden’s money, gender and transactions related to? 14 years old?](https://gnews.org/455853/)
+
+
+
+# 3: Mr. R. Hunter Biden is not a vagrant, he has a very high-paying job! Who do you work for? Who pays? Where does the money come from?Who is he with?
+
+
+
+> [Mr. R. Hunter Biden is not a vagrant, he has a very high-paying job! Who do you work for? Who pays? Where does the money come from?Who is he with?](https://gnews.org/444943/)
+
+
+4:CCP蓝金黄的重度粉碎机–炸弹资料(H大佬+毒=CCP”BGY”)
+
+https://gnews.org/zh-hans/444946/
+
+
+
+
+
+
+7+

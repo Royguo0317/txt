@@ -1,7 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 全球爆料创造人类传播史上的奇迹
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/457201/)
+## 10.4 路德时评：董宏被抓的真实原因【精华版粤语配音】
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/458631/)
+
+制作单位：战友之家·粤语频道
+
+制作团队：路斯、一帘幽梦、阿恩、流光飞舞、wikim bao
+
+
+
+摘要：
+
+董宏策划了5.12刺杀失败并被捕，意味着习王斗进入了白热化，习之后会不断面对此类事件。
 
 0

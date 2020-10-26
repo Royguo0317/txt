@@ -1,36 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登：被共产恶魔操控的僵尸
-` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/457318/)
+## 【重磅新闻】 林俊良，究竟何许人也？
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/458738/)
 
-作者：LM33
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26094725/%E6%8B%9C%E7%99%BB%E5%83%B5%E5%B0%B8%E5%B0%81%E9%9D%A2.jpg)
-拜登家族丑闻继续发酵，媒体战正在激烈进行。在主战场推特，今天有数千战友的账号被封。推特等社交媒体和科技大公司早已被蓝金黄，他们不允许post亨特拜登的丑闻，拜登的背后是老败登，老败登的背后是CCP。
-
-最近几天全网满是9.5英寸，我们似乎看到一个活着的僵尸，精神萎靡，行为邪恶。
-
-亨特拜登本可以找个美女，交个正常的女朋友，难道不香吗？可是它不这么做。它的欲望格外清奇，口味怪癖，专攻家人和幼女。让世人大脑一时短路，惊掉下巴，不敢相信。它本可以有丰富阳光的生活方式，却吸毒上瘾，狂野又焦虑。它本已有足够的金钱，却贪婪无度，为老败登当黑金吸尘器。
-
-亨特拜登的精神心智早已被金钱利益所迷乱，肉体早已被毒、色所侵蚀，即使它想自己戒掉毒、色、利，都已身不由己，无法自控。幸好有爆料革命亿万战友帮忙，有美国法律体系的关怀，相信亨特拜登最终一定会彻底戒除不良嗜好。
-
-有人说这是又一次艳照门，恐怕不妥。这是犯罪证据，让人恶心的罪证！所以要公布，要继续传播！
-
-比亨特拜登更坏的是操控它的人，一个是CCP，一个是乔拜登。怂恿和勾引别人做坏事，还把做坏事的行为偷拍下来，记录留底，作为把柄。这样的组织或个人，难道不是人间恶魔吗？
-
-恶魔不除，世间难有太平。有爆料革命发起人郭文贵先生运筹帷幄、纵横国际，有亿万战友日夜作战、坚持努力，CCP的寿命不长了，剩下的时日业已不多。前几天竟然喊出了“终极之战”这么绝望的口号，从心理上看，这是打算死拼了。爆料革命既有行动，也有振聋发聩的口号，郝海东先生说：“灭共是正义的需要！”，郭文贵先生说：“70年你们欠中国老百姓的血债，每一笔都要偿还！”
-
-接下来，每个小时都可能有新的爆料。继续揭露CCP罪恶的行径，继续曝光蓝金黄手段和对象，让恶魔们的罪证一一呈现！
-
-封号不要紧，全网战场有无数个。G-TV日点击已经过亿次！新版G-News惊艳网络！人心所向，能量汇集，赶快行动！G系列……你懂的！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25225844/WhatsApp-Image-2020-10-24-at-08.09.25-2.jpeg)
 
 
 
-**更多精彩资讯请关注：**
+香草山综合报道
 
-- 为子孙爱七哥农场官方推特：[https://twitter.com/wzsaqg](https://twitter.com/wzsaqg)
-- 为子孙爱七哥农场官方GTV号：[https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
-- 欢迎加入农场discord官方群：[https://discord.com/invite/2vXAV6G](https://discord.com/invite/2vXAV6G)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20123101/%E5%86%9C%E5%9C%BA%E5%B9%BF%E5%91%8Av7-3.jpg)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
 0

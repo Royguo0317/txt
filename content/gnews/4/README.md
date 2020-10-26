@@ -1,64 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP蓝金黄的重度粉碎机&#8211;炸弹资料(H大佬+毒=CCP&#8221;BGY&#8221;)
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/444946/)
+## 爆料革命终极之战系列三：路德社重磅曝光奥巴马被拜登绑架默许南海军事化后，亨特26小时内收取中共十亿美元
+` GM101` [轉載自GNews](https://gnews.org/zh-hans/457406/)
 
-编辑：玫瑰天空
+美东时间10月26号，路德社重磅曝光中共习近平总书记于2016年4月1日出访美国，与奥巴马就南海问题达成共识，奥巴马同意中共南海军事化26小时内，中共支付十亿美元“酬劳”。
 
-邪恶的灵魂总是能聚集在一起，所有的贪欲和色诱都是他们堕落的借口。
+路德表示习近平与奥巴马深入交流后，奥巴马同意中共南海军事化26小时内，由拜登之子亨特收取十亿美元“酬劳”。路德指出拜登为控制奥巴马并拿走更多酬劳，拜登动用了其政治力量避开白宫安保和监控，将奥巴马默许南海军事化谈话影像资料偷拍保存。
 
-选择黑暗的人永远把罪责推向别处，怪罪阳光没有照耀他们的黑夜！
+路德进一步指出十亿美元“酬劳”由亨特收取，最终分到奥巴马手上的资金估计较少，奥巴马被拜登所胁迫，在拜登硬盘贪腐资料曝光后，被逼出面为其站台。
 
-把自己的罪恶归咎于人情的冷暖和世界的倾斜，
+路德明确本届美国总统大选将决定人类文明走向，人类文明已经走到了十字路口。如成功人类文明将更上一层楼，美国也将再次伟大；如失败美国将变成第二个香港，全世界人民将被中共所奴役。
 
-殊不知，它们才是粉碎世界和侵吞美好的恶魔！
-
-这样的恶行和黑暗是该被挖掘出来了！
-
-世界不能被它们毁灭！
-
-灵魂和人类的光明不能被它们继续玷污和荼毒！
-
-是时候集结全世界的正义力量奋起抗争了！
-
-不分国家，不分宗族，不分肤色，不分党派，让我们一起为世界而战！
-
-为人类的未来而战！为了保护我们的孩子而战！！为正义和光明而战！！摧毁恶魔和黑暗！！！
-
-照片里的是谁？视频里的是谁？H大佬是谁？
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24211501/IMG_C4835A12BCE9-1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25235322/85c373b3-43c7-4115-b97b-a6c5a0b17920.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26012814/2be805a2-39b2-40e1-b677-36dae1de427c.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26012839/%E6%88%AA%E5%B1%8F2020-10-25-13.53.54.png)
-1:
-
-
-
-> [“BGY”H大佬集锦](https://www.xmlynz.org/?p=3547&#038;lang=zh-cn)
-
-
-
-2:
-**Who is Hunter Biden’s money, gender and transactions related to? 14 years old?**
-
-
-
-> [Who is Hunter Biden’s money, gender and transactions related to? 14 years old?](https://gnews.org/455853/)
-
-
-
-# 3: Mr. R. Hunter Biden is not a vagrant, he has a very high-paying job! Who do you work for? Who pays? Where does the money come from?Who is he with?
-
-
-
-> [Mr. R. Hunter Biden is not a vagrant, he has a very high-paying job! Who do you work for? Who pays? Where does the money come from?Who is he with?](https://gnews.org/444943/)
-
-
-4:CCP蓝金黄的重度粉碎机–炸弹资料(H大佬+毒=CCP”BGY”)
-
-https://gnews.org/zh-hans/444946/
-
-
-
-
-
-
-7+
+1+
