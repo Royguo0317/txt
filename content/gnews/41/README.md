@@ -1,31 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发! 新疆爆发疫情喀什地区紧急封城
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/454733/)
+## 🎉祝贺郭先生最新单曲《Fight For Hong Kong》iTunes多国排名第一🥇, 再创奇迹
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/455443/)
 
-作者：Giselle \ S
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25210341/Picture13-1.png)
-新疆天山网10月24日在微博上公告说，新疆维吾尔自治区卫生健康委最新通报，10月24日，喀什地区疏附县对“应检尽检”人员进行定期检测中，发现1例中共新冠病毒无症状感染者。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26010421/1-233.png)
+2020年10月25日（EST），郭文贵先生最新灭共单曲“为香港而战”（“Fight For Hong Kong”）首次上线，由郭文贵先生主创，G Music音乐团队联合制作，在短短十几个小时内再次登上iTunes音乐平台多个国家的榜单前列，再创全球音乐史奇迹。
 
-该例无症状感染者，女，17岁，喀什地区疏附县站敏乡二村村民，24日在定期核酸检测中结果呈阳性，经专家诊断为无症状感染者，已转入喀什定点医院进行隔离医学观察，目前，没有发热、咳嗽等症状。
+## **香港iTunes排名第一**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26011814/2-123.png)10月25日 @11pm（EST）的排名截图
+## 新西兰**iTunes**排名第一
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26012421/5-32.png)10月25日 @11pm（EST）的排名截图
+## 柬埔寨**iTunes**排名第一
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26012315/4-48.png)10月25日 @11pm（EST）的排名截图
+## 新加坡**iTunes**排名第二
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26012012/3-76.png)10月25日 @11pm（EST）的排名截图
+## 加纳**iTunes**排名第二
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26012507/6-20.png)10月25日 @11pm（EST）的排名截图![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26013225/1-235.png)
+**苹果音乐🎵下载：[https://music.apple.com/us/album/fight-for-hong-kong-single/1537277836](https://music.apple.com/us/album/fight-for-hong-kong-single/1537277836)**
 
-有网友在网上晒出了全副武装的生化检测人员进驻喀什地区的照片。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25210401/Picture15.png)
-一位喀什地区的匿名医务工作者说，他24日下午接到医院通知，即刻起全院所有医务人员全部到岗到位，不允许有任何理由在家，并被要求“携带适量生活用品及物资”。让人感觉疫情又来了！
-
-一则当日发布在网上的通告显示，新疆喀什地区个别县城会进行冬季全面核酸检测，可能会在核酸检测时间段暂时不让出门。街道、社区全面核酸检测完成后才能恢复正常。
-
-有网友透露他所在的社区于24日发布了紧急通知，要求不是本小区的人员尽快离开，如果小区封了，禁止任何人员出入！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25210350/Picture14.png)
-24日下午18时，网友小森透露，他们家的小区突然就被封了，不让进出，现在所有人都在囤生活物资。
-
-网友何先生在旅游过程中，听闻疏勒县查出了黄码，就在喀什市的隔壁，现在他们掉头也进不了塔县，被困在去往目的地的国道上。何先生询问路边执勤人员，但执勤人员也不知道什么时候解封，“要等领导指示”。
-
-何先生从下午开始就被困在国道上。他透露，凌晨三点半，警察还在挨家挨户地调查，疾控还在逐户取样，整个大喀什地区动员起来，要求在一夜之间完成几十万人的检测。
-
-何先生在微博上发帖说，自己与不到一岁的孩子被困在荒山野岭，他希望相关部门见到微博内容以后，不要打电话来要求删微博，尽快解决安置问题。
-
-喀什市警方24日在微博发布公告，要求大家“不信谣，不传谣，以免引起不必要的恐慌，一切以官方的通知为准”。警方的通知反而加重了民众的猜疑，有网友发帖说，新疆阿克苏地区已经开始恐慌封城了，目前大家都想在封城前“逃出去”。
-
-1+
+0

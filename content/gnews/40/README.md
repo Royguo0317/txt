@@ -1,43 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生：gab 不错，我们应该到那里去注册！
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/454801/)
+## 班农疫情作战室447/448期
+` GM47` [轉載自GNews](https://gnews.org/zh-hans/455660/)
 
-郭文贵先生[2020年10月25日的G-TV Getter](https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f95c0e5e7d0c633dee4dd5c) 上让战友们安装 Gab：“10月25日：尊敬的战友们好🙏🙏🙏gab 不错，我们应该到那里去注册！ ”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25211226/Miles_20201025_Getter-figure1.png)图片来源：Getter 链接：[https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f95c0e5e7d0c633dee4dd5c](https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f95c0e5e7d0c633dee4dd5c)
-同日在[《路德时评》早间节目](https://www.youtube.com/watch?v=wDTO96gFjZM)里，路德也推荐了 [gab.com](http://gab.com) 这个自媒体平台。路德另外还推荐了 Parler。
+战友之家新闻译制组制作
 
-**Gab 创始人 Andrew Torba**
 
-Gab 创始人，Andrew Torba 先生马上在 Gab 里转了郭先生的盖文，并给出了英文翻译：“Translation: Dear brothers and sisters (in arms): Gab looks good, we should go register there!”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25212001/Andrew_Torba_homepage.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25211241/Miles_20201025_Getter-figure2.jpg)图片来源：[https://gab.com/a/posts/105096948955707632](https://gab.com/a/posts/105096948955707632)
-Andrew Torba 是我们新中国联邦和爆料革命的战友无疑。他在自己的账号里给英文世界介绍我们的爆料革命、郭文贵先生和新中国联邦。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25211248/Miles_20201025_Getter-figure3.jpg)图片来源：[https://gab.com/a/posts/105096681944277137](https://gab.com/a/posts/105096681944277137)
-Figure 3. Andrew Torba 是我们的战友！
 
-他还在 Gab 上介绍郭文贵先生的视频：[https://gab.com/a/posts/105096717573907297](https://gab.com/a/posts/105096717573907297)
 
-介绍新中国联邦：[https://gab.com/a/posts/105096788553418772](https://gab.com/a/posts/105096788553418772)
 
-**安装和使用 Gab**
+447/448.摘要
 
-安装 Gab 超级简单。有以下几个原因。
+班农：
 
-1. 不需要电话，墙内战友不用担忧买实体电话卡或虚拟号的时候暴露隐私。
+硬盘电邮公开后，乔拜登躲起来5天，没有否认指控。这是个公开的秘密，拜登是来卖的。问题不在于做儿子的吸毒，而是更严重的系统性违反国家安全。
 
-2. 注册只需要电子邮箱。建议战友们新申请一个邮箱，专号专用。比如可以申请 gmail（对不起，这个是号称“不作恶”又天天作恶的 Google 公司的，战友们只好委屈暂时用一下），注意 gmail 不用提供电话号码，问你电话号码时跳过即可。
+朱利安尼(前纽约市长，任内运用Rico法案成攻赶走纽约黑手党五大家族)：
 
-3. 虽然 Gab 是网页版，但是其实 Andrew Torba 教了大家怎样绕过 App 商店，在 Android 和苹果手机上安装 Gab，而且是中英文对照。超级简单！原来可以这样绕过App商店直接安装，涨见识啊！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25211257/Miles_20201025_Getter-figure4.jpg)
-笔者试了一下，超级简单！只需按步骤轻轻点几下即可。安装后的Gab在手机上长这样：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25211305/Miles_20201025_Getter-figure5.jpg)
-注册账号的步骤如下（[https://gab.com/auth/sign\_up](https://gab.com/auth/sign_up)）：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25211316/Miles_20201025_Getter-figure6.png)
-安装完成后，请到邮箱里点击确认，就完成了安装。现在请战友们动起你的手指，点赞、转发，并和英语世界的战友们建立友谊，让我们一起 “Take down the CCP and drain the swamp!”
+有大量证据显示，三十年来，拜登家族利用乔拜登的职位来获取利益。
 
-撰文：【Isaiah4031】
+亨特拜登在他的硬盘上说：「我照顾家族大部份的费用，把一半给了爸爸」。
 
-战友之家玫瑰园小队出品
+乔拜登把有毒瘾的儿子放到一个高度犯罪的环境，让他围绕世界上最危险的一羣人，有这样问题的孩子应该让他生活简单，找个工作，建立信心，而不是用他来做沙包。乔拜登不是好人，川普说过，他非常坏。
 
-1+
+有许多方式证明硬盘的真实，其一是亨特的律师曾致电计算机维修店店主要求取回硬盘。接下来24-48小时会公布其他的金融犯罪，还有个人的犯罪行为。
+
+这节目影响了很多人，我们穿越了铁幕。
+
+班农：
+
+朱利安尼，911救灾英雄，如今是圣战者，揭发拜登家族的不法行为，仅管受嘲讽攻击也不能阻止他。
+
+推特正在全球性地关闭爆料革命账号，因为他们看到亚洲人渴望自由，被偷走自由的平民百姓会讨伐那些偷走他们自由的人。拜登家族手上沾满了中国人民的血，他们从世界上最差的独裁政权之下最差的公司里最坏的人那里拿钱
+
+。
+
+朱利安尼已说这不只是经济犯罪，还有其他的犯罪行为。这将是一场政治风暴。
+
+参加川普集会的人，有三分之一是没有登记的民主党党人。
+
+简单说，谁赢了宾州东北部，谁就是下任总统。
+
+贾斯汀泰勒(民主党人，宾夕法尼亚州卡本代尔市长)：
+
+我们有非常强大的工业制造和劳动阶级背景，50年前民主党和共和党人数比例是4：1，一个非常倾民主党的城市；现在选民的10％是新共和党人。宾州东北部人民的核心价值是上帝、家庭、国家和工作， 我没有从拜登团队那里看到这些内容。
+
+我是民主党，我的爷爷在我18岁时对我说：「你要成为民主党」，但是我不能对儿子这样说，我感觉自己被民主党抛弃， 像我们这样的人越来越多。
+
+我看到众多的川普支持者，我看到共和党巨大的胜利，
+
+老实说，纵观美国，每个人都看到。那些希望美国再次兴旺，对国家前景乐观的人们，
+
+会有重大影响力，会令川普总统再次取得巨大胜利。
+
+马修图尔曼(调查记者)：
+
+爆料人贝文库尼(亨特拜登合伙人，在服刑中)成为亨特拜登和克里斯汉斯出售政治影响力的替罪羊。他曾近距离地了解拜登家族，非常震惊拜登成为民主党的总统候选人，
+
+也无法相信这样的人可能成为美国总统。他希望将故事披露，让美国人可以明智地判断。
+
+渤海华美，一个经济实体，是他们建立的门户机构，为中共、国有企业与西方投资者和西方政府之间搭桥，进行收购与投资的金融游戏。
+
+双方的裙带关系都涉及最高层，我们知道他们与中共有联系，美方这边就是奥巴马政府的驻华大使马克斯 鲍克斯。在电邮中看到的证据非常清楚，他们一直在鲍克斯办公室开会，签署合同，得到美国政府的认可和批准。渤海华美的交易达15亿美元，但是在经营管理上，用了没有董事会经验，有吸毒习惯的亨特。所涉的达㓇斯派人士包括两党。庆柷交易成功的照片在取得中。
+
+这是个开端，另有26000封电邮在研究中。
+
+城堡(爆料革命支持者)：
+
+过去24小时内推特封禁了大量战友的推特账号，自从我们开始在华人间传递纽约邮报有关拜登的的消息。这样大规模的关闭账号是不正常的。这是推特，脸书，谷歌，和其他网络巨头建立的另类防火墙，以压制我们的言论自由。
+
+0

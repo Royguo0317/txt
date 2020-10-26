@@ -1,17 +1,7 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【精华版粤语配音】10.15 路德时评：乔.拜登施压FBI和南区检查官 渎职不处理硬盘门案件
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/455730/)
-
-制作单位：战友之家·粤语频道
-
-制作团队：路斯、一帘幽梦、阿恩、流光飞舞、wikim bao
-
-
-
-摘要：
-
-纽约邮报第三篇拜登硬碟门内容暗藏哪些重要资讯，硬碟门将会揭开美司法系统的惊天黑幕！
+## 全球爆料创造人类传播史上的奇迹
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/457201/)
 
 0
