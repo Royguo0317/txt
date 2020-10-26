@@ -1,64 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国又一外交胜利：川普总统促成了苏丹和以色列之间的和平协议
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/452828/)
+## 用你手中正义的选票，让美国再次伟大
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/452997/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25124157/WH_20201024_photo169.png)图片来源：[https://www.whitehouse.gov/briefings-statements/president-donald-j-trump-brokers-historic-peace-agreement-israel-sudan/](https://www.whitehouse.gov/briefings-statements/president-donald-j-trump-brokers-historic-peace-agreement-israel-sudan/)
-美国总统川普2020年10月23日宣布已正式促成了苏丹和以色列之间的和平协议 – 这是在不到三个月的时间内，以色列和阿拉伯穆斯林国家达成的第三份此类协议。此类协议的连续签署也显示了美国在外交层面节节胜利的步伐。而一个和平稳定的中东对于美国的国家利益无疑有着巨大的帮助。
+喜马拉雅联盟加拿大农场 晨熹
 
-***“They are choosing a future in which Arabs and Israelis, Muslims, Jews, and Christians can live together, pray together, and dream together, side by side, in harmony, community, and peace.”***
+校对上传 XM
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25134128/FFFFF-7.png)图片来源：GTV GNEWS nymag.com
+这几天随着亨特∙拜登硬盘门丑闻的爆出，与硬盘内容相关的内幕和细节被一条条踢爆，从截至目前被爆出的内容来看，每一条都包含着中共与拜登家族之间惊天的罪恶交易和龌龊不堪的丑闻。
 
-***President Donald J. Trump***
+“权力、金钱、色情、毒品”，硬盘劲爆的内容毫不夸张的说，秒杀任何一部情节跌宕起伏的好莱坞大片，而硬盘中所涉及到的人物也是一次又一次刷新“无耻”这个词所能表述的下线。我想换做任何一个，只要稍微还要那么一点点脸面的人，都会即刻萌发从此隐姓埋名，逃离公众视野的心，因为不知道今后再怎么抬起头来做人！
 
-***“他们正在选择一个未来。在那里，阿拉伯人和以色列人、穆斯林、犹太人和基督徒可以肩并肩，和谐的、和平的共同生活，共同祈祷，追求共同的梦想。”***
+转而再看当下，也就在两天前，乔∙拜登还衣冠楚楚、道貌岸然的出现在2020年度竞选美国总统的辩论场上。当主持人克里斯汀∙韦尔克（Kristen Welker）问及：“拜登副总统，有人质疑你担任副总统期间，您儿子在中国以及乌克兰一家能源公司的工作。请问，这些关系是否不合适或不道德？” 乔∙拜登竟然回答说：“没有不道德，我的儿子没有在这种事上从中国捞钱，没有人从中国捞钱。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25134503/16275984878_7b70a4b04f_h.jpg)图片来源：justthenews.com
+那么我们转头看看已经被曝光的乔∙拜登的儿子亨特∙拜登与渤海华美（上海）投资基金管理有限公司（BHR）签署的巨额贷款协议的关键内容：
 
-***唐纳德·J·川普总统***
+a. 亨特∙拜登以300万人民币作为承诺资本换取10％BHR的股权；
 
-**STRIKING ANOTHER HISTORIC AGREEMENT: President Donald J. Trump has brokered a peace agreement between Sudan and Israel – the third such agreement between Israel and an Arab-Muslim nation in less than three months. **
+b. 亨特∙拜登本次用于投资的承诺资本，来源于BHR董事兼总裁李祥生和BHR投资合伙人王昕处贷款垫付；
 
-**又达成一项历史性协议：唐纳德*·*J*·*川普总统促成了苏丹和以色列之间的和平协议 – 这是在不到三个月的时间内，以色列和阿拉伯穆斯林国家达成的第三份此类协议。**
+c: 本次贷款是6.5％的低利率且没有固定的偿还期限（可随时延长，合同显示已延长至2019年12月31日）；
 
-- Today, Israel and Sudan have agreed to make peace and to normalize their relations in another landmark agreement brokered by President Trump.
-- 今天，在由川普总统促成的，另一项具有里程碑意义的协议中，以色列和苏丹已同意实现和平和两国关系正常化。
-- In the coming weeks, the two countries will begin negotiations on cooperation agreements in agriculture, economy, trade, aviation, migration issues, and other areas of mutual benefit.
-- 在未来的几周内，两国将针对农业、经济、贸易、航空、移民和其他互惠领域展开谈判。
-- This historic peace agreement follows similar agreements between Israel and the United Arab Emirates and Israel and the Kingdom of Bahrain.
-- 这一历史性的和平协定参照先前的以色列与阿联酋、以色列与巴林之间的类似协定。
-    - The United Arab Emirates, Bahrain, and Sudan are the first Arab nations to normalize relations with Israel in over 25 years.
-    - 阿联酋、巴林和苏丹是25年来第一批与以色列实现关系正常化的阿拉伯国家。
-- The expansion of the Abraham Accords to include Sudan is a significant step that will further enhance Israel’s security and create opportunities for Sudan and Israel to deepen their economic ties and improve the lives of their people.
-- 扩大《以阿和平协议》的范围，将苏丹纳入其中，是一个重要步骤。这将进一步加强以色列的安全，并将为苏丹和以色列两国深化经济关系，改善人民生活创造机会。
+d: 用于本次贷款担保的竟是亨特∙拜登用本次贷款再投资于BHR才能换取的BHR的股权权益。
 
+如果我们再留心研究一下乔∙拜登的儿子亨特∙拜登与渤海华美（上海）投资基金管理有限公司（BHR）签署的巨额贷款协议中涉及的中方公司的背景和后续发展，我们不难发现：
 
-**BEGINNING A NEW ERA FOR SUDAN: This agreement is a historic step forward for the people of Sudan and the new transitional government.**
+渤海华美（上海），这家成立于2013年的投资基金管理有限公司，注册资本人民币3000万元，领投投资人渤海产业投资基金是中国银行的附属机构，渤海华美的合伙人都是中国国有企业，它们负责将资金/资产注入渤海华美，显而易见，渤海华美是一个由中共政府控制的基金管理公司。
 
-**开启了苏丹的新纪元：对苏丹人民和新的过渡政府来说，这项协议是历史性的一步。**
+目前渤海华美管理着65亿美元的国有资产。据此保守估计，亨特∙拜登在渤海华美的股权预计至少价值5000万美元，投资收益率为12400%。
 
-- After decades living under a brutal Islamist dictatorship that supported terrorism, the people of Sudan are in charge and democracy is taking root.
-- 历经几十年来支持恐怖主义的残暴伊斯兰独裁政府统治后，苏丹人民终于当家作主，民主正在苏丹扎根。
-- The Sudanese transitional government has demonstrated tremendous courage and commitment to combating terrorism, building its democratic institutions, and improving its relations with its neighbors.
-- 苏丹过渡政府在打击恐怖主义、构建民主体制、改善与邻国关系方面表现出了巨大的勇气和决心。
-- The United States welcomes this important progress and stands ready to support the people of Sudan as they work to build a better future for themselves and future generations.
-- 美国对这一重大进展表示欢迎，并随时准备支持苏丹人民通过自己的努力，为自己和后代建设一个美好的未来。
+至此，想必大家都能看懂乔∙拜登的儿子亨特∙拜登和中共这玩儿得是一个什么套路！看似合规的表象下，上演的摆明就是一个空手套白狼的戏码。
 
+我们再把目光转回2013年，时任美国副总统的乔∙拜登，在12月访华时，随同前往的还有他的儿子亨特∙拜登。而亨特∙拜登此行正是为渤海华美而来。在乔∙拜登访华10天后，上海有关部门就为这个基金颁发了许可证，亨特∙拜登则是董事会成员。尽管此行在美国国内饱受争议，但是乔∙拜登在曾多个场合坚称，他对儿子的生意往来毫不知情。
 
-**CREATING THE CONDITIONS FOR PEACE: After decades of instability and crisis, nations across the Middle East and Africa are increasingly working together to build a more peaceful, prosperous future.**
+姑且暂时相信了乔∙拜登的这句话，那么我们不禁要问：事发之前就算你不知情，那么当有媒体报道出来后，你难道不需要严肃认真的过问一下你儿子亨特∙拜登在中国做的是什么生意？都在和哪些人来往？去中国都做了什么吗？然后给公众一个明确无误的答复，澄清一切不利的传闻。毕竟彼时你是美国副总统，身居高位，代表的是国家的利益，是全美纳税人的利益，行使的是国家公权力，不是你个人或你家族的私利。时时检视你和家人的行为，避免被其他势力利用和掌控，难道这不是对自己、对他人、对社会更负责任的做法吗？如果你没有那么做，那就很清楚的表明，你就是知情者，是来故意搅浑水的，欺骗美国民众。那你又怎么有资格参选美国总统？你觉得美国民众会傻到把权力交给你吗？
 
-**为和平创建条件：在经历了几十年的不稳定局势和危机之后，中东和非洲各国正逐渐就开始共同合作，创建一个更加和平、繁荣的未来。**
+近日，川普总统在竞选集会上公开对民众讲：“如果乔∙拜登赢得选举，那么就是中共国赢得选举，中共国将拥有美国”。
 
-- Since taking office, President Trump has worked to rebuild trust with our regional partners and identify their shared interests, moving them away from the conflicts of the past.
-- 自上任以来，川普总统一直在努力重建美国与区域伙伴间的信任，并确定他们的共同利益，使他们摆脱过去的冲突。
-- Thanks to President Trump’s leadership, the Middle East and Africa are experiencing the most rapid geopolitical transformation in over a generation.
-- 感谢川普总统的领导，中东和非洲正经历着这一代人以来最迅速的地缘政治转变。
-- As more countries normalize relations with Israel, the region will become more stable, secure, and prosperous.
-- 随着越来越多的国家与以色列实现关系正常化，该地区将变得更加稳定、安全和繁荣。
-- The United States will continue to stand with the people of the region as they work to build a brighter, more hopeful future.
-- 苏丹人民会努力建设一个更加光明、充满希望的未来，美国将继续与苏丹人民站在一起。
+这话一是暗指总统竞选人乔∙拜登受制于中共。那必然是中共握有其把柄。加之近来越来越多的媒体指出，有证据表明乔∙拜登对儿子亨特∙拜登那些直接或间接与中共的交易及所收受的资金均知情，并且是其中主要受益人，即所谓硬盘内邮件和短信中提及的“大人物”。如果上述报道属实，那么川普总统意有所指的这句话就会在乔∙拜登胜选的情况下百分之百应验。现在硬盘门丑闻还在进一步发酵中，相信在未来的几天内会有更多的内容和细节曝光，我们拭目以待。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25134846/%E5%9B%BE%E7%89%871-22.png)
+另外川普总统这句话还暗指乔∙拜登听命于中共。如果乔∙拜登胜选美国总统，那么中共就会通过掌控他，进而掌控美国。换句话说，乔∙拜登即是中共政治白手套，是与中共紧紧捆绑在一起的中共的利益代言人，中共通过摆布乔∙拜登这个台前的傀儡，加之中共已有的对美国各个精英阶层的深度“蓝金黄”，通过他们的彼此勾结和配合，来实现对美国的全面控制，进而真正实现称霸全球的野心。届时，地球上的全人类都将全部处于中共的统治之下，接受它的世代奴役和蹂躏。
 
+至此，不禁让人倒吸一口冷气。然而这一天绝非臆想，它就在眼前、危在旦夕，全人类未来的命运在此一役，正如中共党魁习近平所说，这是“终极之战”。而决定我们未来的就是在本次总统大选中，每一位美国公民替自己、也替全世界人民投下的这一张选票。稍有差池，我们整个人类从此就落入万劫不复的深渊，明天的美国就是今天中共暴政下的香港，就是共产党红色恐怖下的中共国大陆，自由、民主、法治、文明从此将从地球上消亡，所有的财富都会被他们据为己有；所有的科技都会变成他们统治人类的工具；所有的武器都会被他们用来屠杀民众，而我们每个人及子孙将世代成为他们的奴隶，人类将不再有未来。
 
-翻译：【jamie(文胤)】 校对：【Winston Jackson(文李)】编辑：【Isaiah4031】
+而我们每一位爆料革命的战友，都深知中共的邪恶，也深知它对中国人民以及世界人民所犯下的深重罪孽，为此我们曾冒着生命危险传递真相，努力唤醒每一位还在沉睡中的人，告诉他们危险就在眼前，我们要合力抗争！
 
-战友之家玫瑰园小队制作
+现在，就在这决战时刻，我们紧紧的和广大美国民众站在一起，和全世界爱好和平、正义的人站在一起，为了我们自己的命运而抗争，为了我们的子孙后代而抗争。拜请你们：为你们因为中共病毒而失去的亲人和朋友；为此刻正饱受中共病毒折磨的自己和家人；为因此失去工作，生活陷入困顿的全体美国人乃至全世界人民，投出这正义的一票！
+
+让我们用选票告诉川普总统：请川普总统替我们讨回公道，让中共为它制造的病毒给全世界带来的灾难负责！我们要彻查病毒来源真相，追究相关人员责任，赔偿受害人和受害家庭的损失！也要让川普总统把那些与中共同流合污，为虎作伥，出卖自己国家利益的流氓政客；贪婪嗜血的华尔街投机者；为中共站台，替中共发声的文化和科技领域的恶霸；为中共权力勾兑牵线搭桥的华盛顿的皮条客们绳之以法！排干沼泽，还这世界祥和与宁静，还回我们富足、体面的生活，我们必须让美国再次伟大！让全世界自由、民主的灯塔永不熄灭！
 
 0

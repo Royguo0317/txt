@@ -1,89 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国在澳的间谍活动猖獗
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/453073/)
+## 每日新闻看点-2020年10月24日
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/453228/)
 
-*新闻来源：HKFP《香港自由报》；作者：AFP法新社；发布时间：October 20 , 2020 / 2020年10月20日*
+喜马拉雅联盟加拿大农场 大地鲲鹏
 
-*翻译/简评：Linda Black；校对：Beicy-数学老师；审核：海阔天空 ；Page：拱卒*
-[!\[\]()!\[\](https://spark.adobe.com/page/hCbZVLfqUImjo/images/4809f6b6-fda0-4f62-b6bd-3a3de7aac67a.jpg?asset_id=20eefeb9-4b98-4c17-bc10-335eec2e4574&amp;img_etag=%2299c6ebc1e23afc133d97f60dfa7c46d6%22&amp;size=1024)](https://spark.adobe.com/page/hCbZVLfqUImjo/images/4809f6b6-fda0-4f62-b6bd-3a3de7aac67a.jpg?asset_id=20eefeb9-4b98-4c17-bc10-335eec2e4574&amp;img_etag=%2299c6ebc1e23afc133d97f60dfa7c46d6%22&amp;size=1024)
-**简评：**
+校对上传 XM
 
-中共国近年来通过各种手段渗透澳大利亚的政治体系，包括给政客捐助大笔现金、窃取个人隐私和威胁恐吓在澳大利亚的新疆维吾尔族人等。文中提到自从习近平上台以来，这种企图影响澳大利亚政治的活动日益增长。澳大利亚为五眼联盟成员，绝不会允许中共国在其国家从事非法活动。中共口口声声绝不干涉他国内政，实际上四处用蓝金黄手段腐蚀他国政要，从而绑架对方、操纵权力，坑害世界百姓。
+一、疫情真相
 
+1.闫丽梦博士论文：
 
+第一份英文版[https://zenodo.org/record/4028830#.X1\_lwj-SlPa](https://zenodo.org/record/4028830#.X1_lwj-SlPa)
 
-#### 
+第一份中文版[https://drive.google.com/file/d/1vZ0vbPJ9QAhGDjna9pkMxqUHhIdakODW/view?usp=sharing](https://drive.google.com/file/d/1vZ0vbPJ9QAhGDjna9pkMxqUHhIdakODW/view?usp=sharing)
 
-#### 情报主管警告说，中共国在澳大利亚的间谍活动比冷战还要高
+第二份英文版[http://zenodo.org/record/4073131](https://zenodo.org/record/4073131)
 
+第二份中文版[https://gnews.org/zh-hans/411364/](https://gnews.org/zh-hans/411364/)
 
+2.10月25日下午19时50分，中共国新疆维吾尔自治区人民政府新闻办公室召开喀什疫情新闻发布会，通报了疫情相关情况。截至10月25日14时，137人呈阳性，且均为无症状感染者。
 
-(目前在)澳大利亚的间谍活动已经使冷战时期的水平黯然失色，该国的情报局长周二在一次国会讲话中警告公民正受到外国势力的监视和骚扰。
+3.10月21号，中共疾控中心的首席流行病学专家吴尊友却突然发声，说目前未完成试验的疫苗，切实和保护效果还不明确 ，建议普通民众暂不移植。中共此前一直强推疫苗，党内专家释放负面消息，此次发声被疑疫苗试验出现了大问题。
 
+二、新中国联邦新闻
 
+1.新中国联邦大决战：
 
-意识形态领域的几位政客都卷入了对涉嫌海外影响力活动的调查中，其中最引人注目的(海外影响力活动)来自中共国。
-[!\[\]()!\[\](https://spark.adobe.com/page/hCbZVLfqUImjo/images/7f3a4c70-8fdf-4e9a-aa72-dcd7452691d7.jpg?asset_id=f9ca9527-bda1-4e8c-bdf1-2ace5a328d75&amp;img_etag=%228a993f45d1381881313e1a2c2aa9dada%22&amp;size=1024)](https://spark.adobe.com/page/hCbZVLfqUImjo/images/7f3a4c70-8fdf-4e9a-aa72-dcd7452691d7.jpg?asset_id=f9ca9527-bda1-4e8c-bdf1-2ace5a328d75&amp;img_etag=%228a993f45d1381881313e1a2c2aa9dada%22&amp;size=1024)澳大利亚安全情报组织办公室。 图片：Wikicommons
-澳大利亚通常守口如瓶的情报主管对这种威胁越来越直言不讳。
+a. GNEWS独家持续曝光拜登家族丑闻
 
+乔·拜登之子亨特·拜登大量淫秽色情画面。[https://gnews.org/zh-hans/446695/](https://gnews.org/zh-hans/446695/)
 
+照片里和亨特·拜登一起的是谁? 持续更新中。[https://gnews.org/zh-hans/451832/](https://gnews.org/zh-hans/451832/)
 
-澳大利亚安全情报组织负责人迈克尔·伯吉斯（Michael Burgess）说：“与冷战高峰时期相比，有更多的外国间谍及其代理人从事违反澳大利亚人利益的活动。”
+2.“路德时评”10/24/2020节目部分内容:
 
+a.朱利安尼先生即将上任FBI代理局长,发出宣言：执法部门没有采取任何行动，他们只是掩盖所有的一切，所以最终出现这样的结果，你们（美国人民）是唯一可以拯救这个国家的人，我个人无法拯救这个国家，我已经尽力了。虽然我承受各种骂名，被人起诉，并被以无法想象的方式所威胁，但这一切都是让我自己感到骄傲！我父亲就是这样养我的。黑手党没能阻止我！哥伦比亚革命武装力量没能阻止我！伊斯兰恐怖分子与没能阻止我！而这些垃圾更不能阻止我！是的，他们就是垃圾！不知这帮垃圾怎么混进了白宫！但是我们不要让他们占领白宫！只有你们能拯救美国，用选票阻止这些腐败政客进入白宫！我保证会尽全力彻底排干沼泽，我们现在非常清楚沼泽是谁了。我就是这么一个奇怪的家伙，美国人是最有常识和体面的人，你们必须阻止这些人，你们必须出去投票！把他们选下台！把他们赶走！我向你们保证！我将尽一切努力来解决目前这些问题。让我们不再受言论审查，我们可以将这些丑陋的政客赶出华盛顿！不论是共和党还是民主党，就那么几个坏人，这些人可追溯到克林顿时代，他们不仅仅主要是民主党人，让我们将这些人都清理掉，这次让我们真正排干沼泽，因为我们现在知道它有多严重！我从来没有想到会如此糟糕！愿上帝拯救我们美国免于这种腐败、堕落和灾难！让我们最后静静地向上帝祈祷！祈求上帝从这场灾难中拯救我们的国家！（取自战友“能灯山神”盖特笔记）
 
+b.中共通过杨洁篪（驻美大使期间）收买乔·拜登，BHR即渤海华美是中共外交部领导下联络人林俊良撮合设立，并与外交部领导的海外影响势力合伙的基金。亨特·拜登与政治局常委有直接联系
 
-他警告说，居住在澳大利亚的侨民团体受到外国政府的监视和骚扰。
+c.看过硬盘视频的OANN记者确认亨特·拜登视频中的未成年少女确为乔·拜登孙女。
 
+d.推特、Youtube、Facebook三家媒体已经暴露与中共的深度勾结，推特开始大量封杀战友账号，阻止揭露拜登家族丑闻，与中共的终极之战进行中。
 
+e.闫博士做客“路德时评”节目证实，CNN罔顾事实，再做节目攻击病毒真相。CNN和推特一样，为了维持现在的地位、利益，已经摒弃了所有做为人应该有的良知，已经是不配称呼有职业道德的人。
 
-法新社的一项调查显示，来自中共国新疆地区的维吾尔族流亡者在澳大利亚和其他民主国家生活期间遭到袭击。
-[!\[\]()!\[\](https://spark.adobe.com/page/hCbZVLfqUImjo/images/bde84722-4e22-4e05-b818-96b6041d4398.jpg?asset_id=daa879c0-98e7-4e73-b3d3-96a62690a801&amp;img_etag=%22da275debc55966fee13ae6331c0e6e8d%22&amp;size=1024)](https://spark.adobe.com/page/hCbZVLfqUImjo/images/bde84722-4e22-4e05-b818-96b6041d4398.jpg?asset_id=daa879c0-98e7-4e73-b3d3-96a62690a801&amp;img_etag=%22da275debc55966fee13ae6331c0e6e8d%22&amp;size=1024)悉尼大学 照片Pixabay
-去年在金融中心举行的民主抗议活动之后，在澳大利亚大学就读的香港学生也报告了(他们)家庭受到恐吓和威胁。
+（“路德时评”早间节目[https://www.youtube.com/watch?v=QZYVz6mA23c&list=PLt9WLG-do1atM5bjKoiSQuXncbmVnEESC&index=3](https://www.youtube.com/watch?v=QZYVz6mA23c&amp;list=PLt9WLG-do1atM5bjKoiSQuXncbmVnEESC&amp;index=3)）
 
+（“路德时评”晚间节目[https://www.youtube.com/watch?v=IJRcllCCHUY](https://www.youtube.com/watch?v=IJRcllCCHUY)）
 
+3.美国国家安全顾问奥布莱恩（Robert O’Brien）10月22日通过视频会议参加大西洋未来论坛（Atlantic Future Forum），对英国皇家海军航空母舰伊伊丽莎白女王号上的英国和美国高级军事和情报官员发表演说，指控中共试图窃取西方的新冠肺炎疫苗研究成果，称中共是一个试图垄断21世纪所有重要行业的恶意对手，是世纪威胁。
 
-伯吉斯在堪培拉立法会议员面前的讲话中并未提及中共国。
+4.当地日期10月23日，美国旧金山地方法院法官劳雷尔·比勒(Laurel Beeler)驳回了司法部的最新请求，即禁止将微信从苹果和谷歌等美国应用商店中移除。美国司法部旋即就比勒法官允许用户继续使用微信的决定向美国第九巡回上诉法院提出上诉。
 
-但他说，外国对侨民团体的监视和恐吓“不亚于对澳大利亚主权的攻击”。
+5.荷兰外交部一份本月15日公布的文件证实，政府认为暂停与香港的引渡协议适当，又指与欧盟采取共同针对中共国的行动符合荷兰的利益。港版国安法在7月实施后，澳洲、加拿大、德国、英国、美国、新西兰、法国、芬兰以及爱尔兰先后宣布暂停与香港的引渡协议。
 
-他说：“仅仅因为主张民主改革或批评侵犯人权行为而使澳大利亚人民受到恐吓是令人无法接受的”
+6.随着中共国的需求增长，导致玉米库存下降，中共政府预计将发放更多进口配额，在新的作物销售年度额外购买数百万吨玉米。
 
-近年来，由于从与北京有联系的捐助者那里接受现金捐赠或被指控参与中共国的宣传活动，几名澳大利亚政客陷入丑闻。
+7.10月21日，中共《国防法（修订草案）》在全国人大官网全文公布。其中，第八章“国防动员和战争状态”的第四十四条改为第四十七条，条文也修改为当“主权、统一、领土完整、安全和发展利益遭受威胁时”，可“进行全国总动员或者局部动员”。其中“发展利益”四个字为新增内容。凸显其疯狂的“末日心态”。
 
-伯吉斯警告说，本国政客是(外国势力)“窃取我们的秘密并操纵我们的决策”的主要目标。
+三、世界新闻
 
-[!\[\]()!\[\](https://spark.adobe.com/page/hCbZVLfqUImjo/images/b6749e5e-0c8c-4db4-bc1d-b8627d16adf7.jpg?asset_id=065ff756-f179-44a3-8c6f-ed753409faa7&amp;img_etag=%226b1bbe0a71552fd03af96d060649db76%22&amp;size=1024)](https://spark.adobe.com/page/hCbZVLfqUImjo/images/b6749e5e-0c8c-4db4-bc1d-b8627d16adf7.jpg?asset_id=065ff756-f179-44a3-8c6f-ed753409faa7&amp;img_etag=%226b1bbe0a71552fd03af96d060649db76%22&amp;size=1024)澳大利亚安全情报组织负责人迈克尔·伯吉斯(Michael Burgess)。 照片：AusGov
+1.当地时间10月24日，川普总统在佛罗里达州提前参加了总统选举投票。据报道，川普总统对现场媒体称，他已投票给自己。
 
-他补充说:“我们看到有证据表明，情报机构为了增进外国利益，欺骗性地培养了各级政府的政客。”
-
-
-
-澳大利亚安全情报组织的前任邓肯·刘易斯（Duncan Lewis）去年警告说，中共国正试图通过间谍活动和和影响力兜售来“接管”澳大利亚的政治体系。
-
-
-
-他特别指出了中共国特工为澳大利亚政党捐助巨额资金，是中共广泛渗透的一部分，此运动也针对澳大利亚媒体和大学。
-
-官员们表示，自习近平主席上台以来，中共国通过捐款、投资和社区团体影响海外政治的努力正在加大。
-
-美国长期以来关注对澳大利亚的影响，一再警告其盟友不要轻敌。
-
-澳大利亚和华盛顿是五眼情报共享联盟的成员–该联盟还包括英国、加拿大和新西兰。
-
-[原文链接](https://hongkongfp.com/2020/10/20/chinese-espionage-in-australia-at-higher-levels-than-cold-war-spy-chief-warns/)
-
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/hCbZVLfqUImjo/)】-点击spark adobe版
-
-了解更多资讯敬请关注：
-
-【英国喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
-
-【英国喜庄园GTV/盖特】：[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-【英国喜庄园Twitter】：[https://twitter.com/UkHimalaya](https://twitter.com/UkHimalaya)
-[!\[\]()!\[\](https://spark.adobe.com/page/hCbZVLfqUImjo/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/hCbZVLfqUImjo/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
+2.中共国并未放弃将未通过三期临床试验的病毒疫苗投放至其他国家。巴西卫生监督局（ANVISA）10月23日在一份声明中表示，已授权圣保罗布坦坦（Butantan）研究所生物医学中心进口600万剂中共国北京科兴生物制品有限公司（Sinovac）研制的冠病疫苗。此前巴西总统已经下令取消购买中共国4600万疫苗，但巴西共产党及其他可能被中共影响的党派计划向法院对博索纳罗禁购中共国疫苗一事提起上诉。
 
 0

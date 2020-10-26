@@ -1,64 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 乔·拜登直系家庭成员简介
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/453213/)
+## 神秘的高瓴资本集团与张磊
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/453525/)
 
-喜马拉雅联盟加拿大农场 文锦 整理
-校对 小鸥 上传 WJ
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25143017/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE539.png)
-**乔·拜登**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25132558/Joe-Biden.jpg)
-乔·拜登（Joe Biden），生于1942年 ，民主党，2009年～2016年任美国历史上第47位副总统，1973年 至2009年任特拉华州参议员，是美国史上最资深参议员，被6次当选，直到2009年入阁奥巴马政府辞去参议员。2020年被民主党提名总统候选人。
-拜登1966年在锡拉丘兹大学法学院求学期间，与校友内莉亚·亨特（Neilia Hunter）结婚。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25132635/Neilia_Hunter.jpeg)内莉亚·亨特
-拜登与内莉亚育有二子一女：
+喜马拉雅联盟加拿大农场 维京商人
 
-1. 长子**博·拜登**（Joseph R. Biden III），1969年2月3日出生，曾担任特拉华州的检察长和特拉华州陆军国民警卫队的少校，2015年1月6日因脑癌过世。
+校对 上传 小鸥
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25132510/BeauBiden.jpg)
-2.次子罗伯特·亨特·拜登（Robert Hunter Biden），即**亨特·拜登**，1970年2月4日出生。他是美国律师和投资顾问,他是投资和咨询公司Rosemont Seneca Partners的创始合伙人。最近被爆出糜烂、罪恶的真实生活。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25132540/Hunter-Biden.jpg)
-3.纳奥米·拜登（Naomi Christina Biden ），生于1970，因车祸早夭于1972。
+高瓴资本集团（Hillhouse Capital Group），这家神秘的私募股权基金至今一直在公众面前保持神秘的色彩。高瓴资本成立于2005年，创始人张磊时年只有33岁。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25144043/%E9%AB%98%E7%93%B4%E5%BC%A0%E7%A3%8A.jpg)图片来自台风调查公司时光项目
+作为亨特·拜登在2010年4月份的中共国之行中特别会面的几家公司之一，当时只有5年运营历史的高瓴资本对标的是诸如中国人寿、中国邮政储蓄银行、方正集团、中国投资有限公司等超级国企，那么高瓴资本又有何独到之处呢？
 
-1977年，拜登与吉尔·拜登（Jilll Biden）结婚，育有一女：阿什莉·拜登（Ashley Biden）。
+据网络报道，高瓴资本创始人张磊先生于1990年自河南省驻马店市以文科高考状元考入中国人民大学国际金融专业。1994年毕业后，张磊就职于中国国企五矿集团直到1997年，职务不详。1998年，张磊考入美国耶鲁大学，获得工商管理及国际关系双硕士，并在留学期间于耶鲁大学投资基金办公室任职。
 
-**吉尔·拜登**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25132550/Jill_Biden_.jpg)
-吉尔·拜登生于1951年6月3日，特拉华大学学士学位，西切斯特大学和维拉诺瓦大学硕士学位，以及特拉华大学博士学位。她在高中教了十三年的英语和阅读，还在一家精神病院教有情绪障碍的青少年。从1993年到2008年，她是特拉华技术与社区学院的英语和写作教师。自2009年起，她在北弗吉尼亚州社区学院担任英语教授，被是第一位在丈夫担任副总统期间从事有偿工作的第二夫人。她是 “拜登乳腺健康倡议 “非营利组织创始人，”书友 “计划联合创始人，拜登基金会的联合创始人，活跃于特拉华州 “地上之靴 “活动，是 “与米歇尔-奥巴马联手 “的联合创始人。
+网络信息对于张磊在2000年至2005年之间的经历没有准确的说法，大致脉络是张磊于1999年底回国后，于2000年1月与校友合伙创业了一家互联网初创公司，即中华创业网[www.sinobit.com](http://www.sinobit.com)。据笔者查证，该网站域名已经失效，Google或百度中华创业网也完全无法查询。据报道，2002年至2004年期间，张磊在美国新生市场投资基金任基金经理。在2004年至2005年之间，他任职纽约证券交易所国际董事及驻中共国区首席代表。需要提到的是，自2004年起，张磊任耶鲁大学北京校友会副会长。
 
-**阿什莉·拜登**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25132502/Ashley_Biden.jpg)
-阿什莉·拜登生于1981年6月8日，是美国社会工作者、活动家、慈善家和时装设计师。2014年至2019年，担任特拉华州司法中心执行主任。在该中心担任行政职务之前，她曾在特拉华州儿童、青少年及其家庭服务部工作。她创立了时尚公司Livelihood。
+2005年起，年仅33岁的张磊利用耶鲁大学捐赠的种子基金2000万美元创办了高瓴资本，后来，耶鲁大学投资基金追加了1000万美元，总额至3000万美元。高瓴资本在创建当年即投资了腾讯，而腾讯公司在2004年刚刚在港交所上市。经过十几年的发展和数轮增资，高瓴资本如今已经成长为管理超过160亿美金的资本大鳄，投资过的国内外知名公司包括: 腾讯、百度、京东、格力、滴滴、蔚来汽车、去哪儿、爱奇艺、ZOOM、美团、UBER等。
 
-博·拜登家庭成员：
-1.遗孀：**哈莉·拜登**（Hallie Biden），生于1974年11月30日，现年45岁。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25133838/Hallie-Biden.jpg)
-2.**娜塔莉·拜登**（Natalie Biden），女儿，生于2004年8月4日，现年16岁。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25132627/Natalie-Biden-with-Dr.-Jill-and-Joe-Biden-at-the-Delaware-Memorial-Day-Ceremony-in-2019.jpg)2019年，娜塔莉-拜登（左一）与吉尔-拜登和乔-拜登出席特拉华州纪念日仪式。
-3.**罗伯特·亨特·拜登二世**（Robert “Hunter” Biden II），儿子，2006年出生，以叔叔的名字命名。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25134103/biden-grandchildren-mc-main-200821_1e2a640ff89355733632753d2d6b6802.jpg)（左二罗伯特·亨特·拜登二世，2020年8月17日乔·拜登孙辈背诵效忠誓言视频截图）
-**亨特·拜登**（Robert Hunter Biden）家庭成员
+有鉴于高瓴资本集团可以透露的信息极为有限，那么就让我们用常识问几个小问题。
 
-亨特·拜登于1993年与凯瑟琳·布勒（Kathleen Buhle）结婚，育有三个女儿纳奥米（Naomi）、菲尼根（Finnegan）和梅西（Maisy），夫妻俩于2017年离婚，2016年拜登开始与哥哥博的遗孀哈莉·拜登（Hallie Biden）约会。
+1.耶鲁开智: 据网络采访，张磊在耶鲁大学留学期间最尊重的导师是尼克拉斯·拉迪Nicholas R. Lardy。拉迪曾经是美国布鲁金斯研究院首席中（共）国问题专家。值得注意的是，他只是在1997年至2000年加入耶鲁大学成为兼职教授。当然，很明显的一点是拉迪肯定是左派民主党的支持者。我想知道，张磊先生是如何在短短一年多的留学时间内获得了克林顿政府两届中共国问题顾问的垂青的。
 
-亨特·拜登也是2018年8月在阿肯色州与伦登·亚历克西斯·罗伯茨（Lunden Alexis Roberts）所生孩子的父亲。
+2.初创资金: 作为耶鲁大学基金的首席投资官，大卫·史文森掌管着多达数百亿美元的基金。自1985年起，在他任职期间，不仅投资业绩出色，而且为美国各大机构输送了无数优秀的人才，被美国的机构投资者奉为教父级人物。他本人在2009年2月被时任总统的奥巴马任命为美国经济复苏顾问。这又是一位左派民主党的铁杆！
 
-亨特·拜登于2019年5月与南非电影制片人梅丽莎·科恩（Melissa Cohen）结婚，他们的儿子于2020年3月在洛杉矶出生。
+我想知道, 史文森先生是如何能够在短短不到两年的时间内信任一个二十多岁的年轻人，并允许他任职于如此重要的耶鲁大学投资基金办公室的?
 
-亨特·拜登的三个女儿:
+我想知道, 史文森先生是如何能毅然的在2005年起先后提供3000万美元之巨的天使创投资金给这位先前没有相关成功投资经验的张磊先生的？
 
-1.**纳奥米·拜登**（Naomi Biden），长女，1994年出生，现年26岁，以乔·拜登已故的女儿纳奥米（Naomi）的名字命名，今年5月，毕业于哥伦比亚法学院（Columbia Law School），在此之前，她是宾夕法尼亚大学的学生。曾发推支持乔·拜登。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25132615/Naomi-Biden.jpg)乔·拜登与孙女**纳奥米·拜登**
-2.**芬尼根·拜登**（Finnegan Biden），次女，于2001年出生，现年19岁。和娜奥米一样，她是以乔·拜登已故的母亲 凯瑟琳·尤金尼娅·”珍”·菲尼根·拜登命名。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25132529/Finnegan-Biden.jpg)乔·拜登于2019年6月28日星期五在芝加哥亲吻孙女芬尼根·拜登。
-3.**梅西·拜登**（Maisy Biden），三女，于2002年出生，现年18岁。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25132607/Maisy-Biden.jpg)
+3.纽约证券交易所NYSE传奇: 根据透露出来的信息，张磊先生曾在2004-2005年间担任中共国地区第一任纽约证券交易所NYSE的代表。据笔者查询，纽约证券交易所NYSE在2017年9月4日才在中美两国政府官方的见证下开启了位于北京的第一家驻中共国办公机构，当时出席仪式的中方最高代表是时任国务院副总理的吴仪女士。
 
+我想知道，张磊先生在2004年时到底在哪里任职？
+
+4.腾讯和京东：根据公开透露的消息，高瓴资本自2011年起不止一次将腾讯的掌门人马化腾先生和京东的创始人刘强东先生召集在一起商谈商业合作。
+
+我想知道，张磊先生是如何在四十岁出头的年龄做到了这笔当时中共国互联网上最大的一笔并购案的呢？
+
+5.耶鲁大学校董: 根据耶鲁大学的报道，张磊先生在2002年获得了耶鲁大学工商管理学位，并在2016年6月9日成为耶鲁大学建校315年以来首位中国校董！
+
+我想知道，耶鲁大学的任命和张磊先生在先前捐赠的888万美元巨额捐赠有什么关系吗？
+
+6.拜登家族: 众所周知，乔·拜登先生的儿子亨特·拜登毕业于耶鲁大学法学院，亨特在Rosemont Capital资本管理公司的两位合伙人克里斯·海因茨（Chris Heinz）和德文·阿彻(Devon Archer)也是耶鲁大学校友。身为耶鲁大学驻北京校友办负责人并在2016年出任耶鲁大学校董的张磊先生，与亨特·拜登及拜登家族的业务往来似乎没有什么可以值得怀疑的。乔·拜登先生自2008年至2016年间任职美国副总统。更加有兴趣的是，高瓴资本近期风投了于2019年上半年上市的Zoom公司，其公司注册地就是乔·拜登先生耕耘了30多年的特拉华州。
+
+我想知道，张磊先生是如何在短短数年间能够与美国当政政要的家族建立起如此密切的联系的呢?
+
+现在来看，高瓴资本这家神秘的私募基金原来真的不简单，它与它的创始人张磊的神秘面纱就要揭开了！
 
 参考链接：
-[Joe Biden’s Granddaughter Finnegan Biden Wiki, Bio, Age, Height, Instagram, College, Kissing, Parents!!](https://aussiecelebs.com.au/finnegan-biden/)
-[Who Are Joe Biden’s Children and Grandchildren?](https://www.harpersbazaar.com/celebrity/latest/a33661848/joe-biden-children-grandchildren/)
-[wikipedia](https://en.wikipedia.org/wiki/Family_of_Joe_Biden#:~:text=Joe%20Biden%20is%20the%20oldest,for%20Joe%20Biden's%20presidential%20campaigns.)
 
-1+
+1.[www.zhihu.com](https://www.zhihu.com)
+
+2.[http://www.cye.com.cn/wscy/20100112171502.htm](http://www.cye.com.cn/wscy/20100112171502.htm)
+
+3.[www.hillhousecap.com](http://www.hillhousecap.com)
+
+4.[https://som.yale.edu/blog/interview-with-nicholas-r-lardy](https://som.yale.edu/blog/interview-with-nicholas-r-lardy)
+
+5.[https://www.businesswire.com/news/home/20071211005712/en/NYSE-Office-In-Beijing-China-Officially-Opens-In-Historic-Ceremony](https://www.businesswire.com/news/home/20071211005712/en/NYSE-Office-In-Beijing-China-Officially-Opens-In-Historic-Ceremony)
+
+6.[https://news.yale.edu/2016/06/09/yale-announces-new-trustees-senior-fellow](https://news.yale.edu/2016/06/09/yale-announces-new-trustees-senior-fellow)
+
+2+

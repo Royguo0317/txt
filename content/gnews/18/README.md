@@ -1,83 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 纳瓦罗说，中共国为击败川普加班加点
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/453840/)
+## 凡走過必留下痕跡 &#8212; 拜登家族的犯罪歷史軌跡
+` VOH欧洲战友团` [轉載自GNews](https://gnews.org/zh-hans/454724/)
 
-*新闻来源：The Washington Times 《华盛顿时报》；作者：Bill Gertz；发布时间： 2020年10月20日*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25203628/G14-_.jpg)
 
-*翻译/简评：万人往；校对：感恩；审核：海阔天空 ；Page：拱卒*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/JRU5vlXLMAhxj/images/cc589ad7-e826-48dc-af65-728ba6488d21.jpg?asset_id=854826a7-f65a-40e6-987c-097f2067f997&amp;img_etag=%2226459e4bce5cf1f98ab9d763516eb37e%22&amp;size=1024)](https://spark.adobe.com/page/JRU5vlXLMAhxj/images/cc589ad7-e826-48dc-af65-728ba6488d21.jpg?asset_id=854826a7-f65a-40e6-987c-097f2067f997&amp;img_etag=%2226459e4bce5cf1f98ab9d763516eb37e%22&amp;size=1024)
+撰稿: 牛小妹 圖片: 千鳥
 
-**简评：**
+有信仰的人或許都了解, 我們的所做的任何一件事情上天都有紀錄, 而拜登家族與中共的各種邪惡交易, 竟然留有Hunter Biden的詳實紀錄，真是「天網恢恢, 疏而不漏」。
 
-在哈德逊研究所的演讲中，纳瓦罗明确说中共在签署第一阶段贸易协议时就已经在隐瞒中共病毒真相，让潜在的病毒感染者到世界各地旅行，加速病毒的传播。中共现在加强对美国的经济战、信息战、宣传战，目的是为了击败川普总统。
+1979年到2004年是喬拜登跟中共早期接觸的時期，1979年36歲的喬拜登是Delaware的參議員，他作為美國政府的代表跟鄧小平相處了幾天。1997年拜登成為「 參議院對外關係委員會」的排名會員，在那期間拜登支持自由貿易的立法, 而這正是幫助中共進入WTO的推手。2001年拜登成為「參議院對外關係委員會」主席, 同年中共被允許進入WTO，2004年拜登跟楊潔篪見面。
 
-纳瓦罗作为美国的“常委”，对中共犯下的罪行如数家珍，将中共的假、丑、恶揭露出来，并说出中共的最终目的，是用独裁体制取代美国的民主体制，这说明美国政府层面已经深刻认识到了中共的邪恶。随着美国“排干沼泽”的深入，中共作为干涉、扰乱美国政治的罪魁祸首必定逃脱不了干系。届时美国公开病毒真相，将中共定义为反人类的恐怖组织，冻结中共海外资产、“斩首中南坑”也就成了顺理成章的事。
+2005到2006年拜登家族被指控規避競選資金法律，2005年Hunter Biden 的合夥人成立羅斯蒙特基金(Rosemont Capital),2006年Hunter 和他的兄弟James獲得範式對衝基金（Paradium）。2007年他們開始跟中共的政治人物會面，一月1號喬拜登重新選為「參議院對外關係委員會」的主席，1月7號拜登宣布第二次爭取總統大選資格,1月18號Hunter辭去範式首席執行官，9月5號Bulger 和Lin 成立Thornton。
 
-## 彼得·纳瓦罗表示，中共国加班加点击败唐纳德·川普
+2008年到2009年是拜登跟中共外交關係機構的合作開始, 2009年3月14號Rosemont Solebury Capital 被購併，2009年7月9號Bulger 和 Lin 北京成立Solebury Thornton 顧問有限公司, 2009年8月23號拜登被選為歐巴馬副總統的競選夥伴, 2009年9月Hunter成立Seneca Global Advisors,這是一個幫助小型及中小型企業拓展在美國及其他國家的市場, 2008年11月4號年拜登被選為第47屆美國副總統, 2009年7月27號到28號第一屆S&ED華盛頓舉辦2009年7月29號 Rosemont Seneca Advisors LLC 在Delaware 被購併，2009年11月10號到15號第一屆first Dino US Provincial Legislative Leaders Forum 舉辦。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/JRU5vlXLMAhxj/images/a4b95f24-d6df-424b-bb81-30b1b236588b.jpg?asset_id=3ebab049-bedb-4fee-93c1-a7d0277f993e&amp;img_etag=%225cfc8c3fbecfaf1a375238670712a4e5%22&amp;size=1024)](https://spark.adobe.com/page/JRU5vlXLMAhxj/images/a4b95f24-d6df-424b-bb81-30b1b236588b.jpg?asset_id=3ebab049-bedb-4fee-93c1-a7d0277f993e&amp;img_etag=%225cfc8c3fbecfaf1a375238670712a4e5%22&amp;size=1024)2020年10月12日，周一，华盛顿，白宫贸易顾问彼得·纳瓦罗在白宫接受电视采访后拿着他的笔记。 (美联社照片/亚历克斯·布兰登)
+2010年是Hunter追逐中共國的金錢的年份, 2010年Rosemont Realty 獲得BGK, BGK 在22個州擁有135棟商業大樓, Hunter被選為BGK管理顧問, 2010年4月7號Hunter 與SSF’s權益資產主席Ji會晤。
 
-总统的一名高级经济顾问本周表示，为了在11月的大选中击败川普总统，中共国正在升级对美国的经济侵略和信息战。
+2011年是Hunter沒有被官方證實的中國拜訪, 2011年4月18日到四月20日Hunter拜訪台灣的銀行跟商業機構,同行的有Thornton 的主席Bulger 及CEO Lin, 2011年拜登到中國大陸及四川旅行,在2011年8月17號拜登訪問中國與中共外交部長楊潔篪碰面,8月19號拜登與胡錦濤在人民大會堂碰面,8月22號拜登在四川大學演講, 11月28號Thornton 與 中國國際貿易促進委員會（China Council for the Promotion of International Trade, CCPIT）在紐約共同主辦一個商業活動,與會者包括美國銀行的高級合夥人。
 
-周一晚上，白宫贸易和制造业政策办公室主任纳瓦罗在哈德逊研究所发表演讲时说：“他们的近期目标是帮助击败川普。”
+2012年是Hunter跟中共的第一筆交易「萬象集團」,2012年1月17號拜登跟習在加州碰面,1月19號Hunter’s Seneca Global Advisors 協助美國能源技術新創公司Great Point接受來自萬向集團42億美元的股權投資及12.5億美元的項目基金投資,這是當年美國最大的風險投資。萬向集團是一個長期與中共政治盤根錯節的工業聯合企業,因為這個投資案,萬向集團從拜登所影響的美國政策得到了好處。2013年萬向集團得到了A123汽車鋰電池和電池系統商的破產人資產，2014年萬象集團贏得了菲斯特汽車產業的破產拍賣。菲斯特汽車是一家已停產的插電式混合動力跑車生產工廠,無論是菲斯特汽車或者是A 123都是美國政府貸款所成立的位於Delaware的汽車生產事業, 而Delaware正是拜登的家鄉!這表示萬向集團得到的這些技術是從美國納稅人的扶植而來的。
 
-“他们更广泛的战略目标是让世界相信，中共国的威权政治、社会制度，以及指挥、控制经济，远远优于建立在自由市场、自由人员、民主选举、法治和独立司法基础上的美国例外主论。”
+2013年是Hunter跟中共的第二筆交易BHR, 2013年12 月4號Hunter陪伴拜登的去中國做官方旅行, 這趟旅行Hunter與烏克蘭總統Viktor的官方旅行不期而遇, 在那裏並且簽署合約背書Hunter的 BHR合約, 同年12月16號BHR根據State market regulatory administration (SMRA)紀錄, BHR在上海被併購。
 
-纳瓦罗说，中共国对死于这场大瘟疫的20万美国人负有直接责任，这是一个关于中共国和贸易政策的关键言论。这位白宫助手还谴责了他所说的美国媒体和私营部门的“有用的白痴”，这些人机械地重复中共的宣传。
+2014年10月3號拜登演講的時候說:「我希望中國成功!他們在經濟上的成功正是我們的利益所在。」2015年是Hunter與中國的第三個交易Sino-Ocean, 1月23號拜登與中共國務委員楊潔篪在華盛頓DC舉辦的2015年S&ED會面, 同一天由Rosemont ,Seneca,Thornton所持股的30%BHR 股票分成兩個部分持有,美國的部分則分別存放在Rosemont, Seneca, Bohai LLC 和Thornton LLC。
 
-纳瓦罗表示:“遗憾的是，太多的美国媒体带着他们明显的党派偏见，正在帮助推进这种腐蚀性的、有毒的中共宣传。在这种情况下，今天有太多的美国记者只是在充当列宁和斯大林眼中为共产党做事的‘有用的白痴’。”
+2016年的9月8號洛陽欒川鉬業(China Molybdenum)與費利浦·麥克莫蘭銅金公司 (Freeport-McMoRan)達成一個協議去購買一個在剛果共和國擁有採礦權公司的56%的股權, 同時BHR可以購買另外的24%。 2017年5月Hunter私下在邁阿密的飯店會晤CEFC主席葉簡明,他接受了2.8克拉鑽石, 根據2017年10月23號SMRA的紀錄顯示.Hunter購買了10%的BHR的股權, 2017年11月18號前香港政治家侯志平因爲賄賂及洗錢的指控，在JFK機場被逮捕，他請求Hunter協助。
 
-纳瓦罗为川普对中共国的强硬态度进行了辩护，称总统严厉打击了中共国的非法技术盗窃、不公平贸易行为和侵犯人权行为。
+2019年Hunter否認從中國的合約當中謀取利益,5月2號拜登提到「中國並不u要跟美國競爭」, 5月3號報導說BHR投資Face++, 這是一個發展人臉辨識軟體中的中國的監控公司, 主要是為中共的執法和使用,包括針對教少數民族穆斯林。2019年9月拜登說他從來沒有跟Hunter 討論有關他在中國的合約。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/JRU5vlXLMAhxj/images/1b037784-f32b-415f-8710-2aea2c9b8679.jpg?asset_id=15b91ccb-5a45-45e3-b1ab-cf7177be4309&amp;img_etag=%22c6b7817fcf88fd0f23ecf248ad4da01e%22&amp;size=1024)](https://spark.adobe.com/page/JRU5vlXLMAhxj/images/1b037784-f32b-415f-8710-2aea2c9b8679.jpg?asset_id=15b91ccb-5a45-45e3-b1ab-cf7177be4309&amp;img_etag=%22c6b7817fcf88fd0f23ecf248ad4da01e%22&amp;size=1024)总统严厉打击了中共国的非法技术盗窃、不公平贸易行为和侵犯人权行为。
+2020年的紀錄呢? 老天爺說:「拜登競選總統失敗!要下地獄!」
 
-他争辩说，川普的经济民族主义已经开始扭转数十年来损害美国工人、造成“蓝领大屠杀”的经济损失的局面。
-
-纳瓦罗说，在全球范围内，中共国正试图利用其庞大的人口和不断增强的军事实力，以颠覆和推翻基于规则的国际体系。
-
-他表示:“在这些努力中，中共国所寻求的无非是用中共自己的独裁政权取代美国的民主政权。”
-
-川普政府推迟对中共国产品征收超过3500亿美元的关税, 对通信公司华为和中兴进行了罚款和制裁,并禁止了抖音和微信等流行的手机应用程序。美国官员警告说，这些应用程序正被用来监控美国人，并窃取他们的个人资料。
-
-纳瓦罗在哈佛大学获得经济学博士学位，并在加州大学欧文分校的商学院任教20多年，他对1月15日在华盛顿举行会谈的中共国贸易官员提出了严厉批评。他声称，中共国官员知道疫情爆发，但没有向任何白宫官员提供信息。
-
-纳瓦罗说：“相反，这些中共官员只是对我们微笑，吃我们的食物，和我们握手，并签署了第一阶段贸易协议。”
-
-纳瓦罗将美国有线电视新闻网（CNN）、微软全国有线广播电视公司（MSNBC）和《纽约时报》等新闻媒体与中共党报《环球时报》进行了比较，这些媒体无情地攻击川普政府，并支持民主党总统候选人乔•拜登（Joseph R. Biden）
-
-他说:“美国第四阶层的权力转移到了党派文人和民主党超级政治行动委员会手中，这不仅仅是对我们美国人永远追求更完美的联邦所存在的威胁。”
-
-“一个带有党派色彩的假新闻集团的崛起——这是主流媒体所忽略的——也为中共想让美国的太阳在亚洲落山的意图提供了帮助、安慰和支援”。
-
-“一个带有党派色彩的假新闻集团的崛起——这是主流媒体所忽略的——也为中共想让美国的太阳在亚洲落山的意图提供了帮助、安慰和支援”。
-
-主持该工作组工作的德克萨斯州共和党众议员麦克考尔(Michael McCaul)在一份声明中说：“随着(中共国)加大军事侵略，将供应链武器化，并肆无忌惮地攻击支撑美国社会和全球繁荣的民主价值观，我们不能再袖手旁观。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/JRU5vlXLMAhxj/images/1bb27093-0db1-4cf1-a7e2-a93a869afddd.jpg?asset_id=d9d80e35-1171-4587-8672-5cac8e49a1ec&amp;img_etag=%22f50d865052ce4533c79cbf4c3ec08134%22&amp;size=1024)](https://spark.adobe.com/page/JRU5vlXLMAhxj/images/1bb27093-0db1-4cf1-a7e2-a93a869afddd.jpg?asset_id=d9d80e35-1171-4587-8672-5cac8e49a1ec&amp;img_etag=%22f50d865052ce4533c79cbf4c3ec08134%22&amp;size=1024)德克萨斯州共和党众议员麦克考尔(Michael McCaul)
-
-在谈到这场全球大瘟疫时，纳瓦罗说：“中共国对我们自己的国家和我们的总统感染致命的病毒负有直接责任。”
-
-中共国政府采取的最过分的行动是允许数万名可能感染病毒的中共国公民前往世界各地的主要城市旅行，从而加剧了疫情的传播。
-
-纳瓦罗说：“美国人民想知道中共病毒是从哪里来的。中共必须停止向自由世界隐瞒这些信息。”
-
-[原文链接](https://www.washingtontimes.com/news/2020/oct/20/peter-navarro-says-china-working-overtime-to-defea/?utm_source=RSS_Feed&amp;utm_medium=RSS)
-
-编辑：[【喜马拉雅战鹰团】](https://spark.adobe.com/page/JRU5vlXLMAhxj/)-点击spark adobe版
-
-了解更多资讯请关注：
-
-【英国喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
-
-【英国喜庄园GTV/盖特】:
-
-[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-【大卫作战室YouTube】[https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
-
-![]()![](https://spark.adobe.com/page/JRU5vlXLMAhxj/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
-1+
+3+

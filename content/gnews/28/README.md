@@ -1,19 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 使用谷歌AI翻译软件小心CCP植入BUG
-` GM06` [轉載自GNews](https://gnews.org/zh-hans/453261/)
+## 美国，该站起来战斗了
+` 温哥华加喜农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/453978/)
 
-供稿：喜马拉雅#8560  出品：首尔喜韩农场
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25164001/biden11.png)图片来源： 网路
+今天全网都在转载亨特拜登的视频
 
-大家都在积蓄力量和子弹，参加到爆料革命终极之战。这里提醒：使用AI翻译软件的战友当心，有不止一位战友发现 Google Translate出现了非常诡异/危险的 BUG！如图：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25142834/b.png)
-有战友在实践中发现，谷歌翻译对Joe Biden做了定向翻译干预！输入Joe Biden输掉大选，谷歌竟然会改成Trump 输掉大选!这会让完全不会英文或太信任谷歌翻译的战友被骗。
+他做的恶终于浮出水面让世人皆知
 
-在此之前，也有朋友发现谷歌翻自动篡改内容，导致相反的翻译结果出来。看来Deepstate沼泽大鱼还在垂死挣扎，CCP还在伸出爪牙作恶，我们要当心掉坑。
+拜登Hunter Biden一生劣迹斑斑
 
-而我本人在自己电脑上测试，尚未发现异常。猜测：Google Translate对不同区域、不同用户分类区别处理了。因此，涉及到美国政治人物或敏感话题的翻译，务必留神！大家可以尝试其他引擎或翻译工具。如：DeepL Pro，有道翻译，REVERSO [https://www.reverso.net/text\_translation.aspx?lang=ZH](https://www.reverso.net/text_translation.aspx?lang=ZH)等。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25142909/b1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25142927/b2.png)
-不同的翻译工具或网站里，特色和功能各不相同，语言种类也不同。比如有的有检查拼写错误，有推荐同义词、反义词等，期待各位大咖战友补充。
+2013年，他在海军服役期间因吸毒被行政开除。
+
+2017年，他与已故兄弟的妻子结婚，导致与原妻子离婚;
+
+在2019年，被告因未承认妓女的私生子而出庭，并最终在DNA测试中被迫与妓女庭外和解; 而他的父亲乔拜登现在却想利用谎言和欺骗来赢得总统大选。
+
+是的，他将赢得生前身后名，永世骂名！
+
+国家的一切运转，不是因为精英，不是因为华盛顿的无用混蛋，不是因为华尔街把美国人卖给了中国
+
+现在的大选不再是民主党人，独立者或共和党人，而是美国人打败腐败的共产主义者，使他们脱离国会，参议院投票赞成正义与自由
+
+你看总统辩论时乔·拜登那空洞的眼睛。那心灵的窗户里只有满满的与魔鬼为伍！
+
+沉默的多数派-崛起并为我们的祝福美国而战！上帝爱美国，上帝保佑我们的总统，让我们一起冲向终点！
+
+我们的怒火和传播真相将在网上迅速传播，让它像野火一样蔓延！让所有人知道到底发生了什么！
+
+每一个有良知，有认识的美国人，请为了我们所有人的未来投下你改变世界命运的一票！你选择了拜登，香港的中国大陆的今天就是所有人的明天！
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25164059/hunter8.png)
+作者：昔马千羽
+
+原创观点文章 – 2020/10/25
+
+温哥华加喜农场
 
 1+

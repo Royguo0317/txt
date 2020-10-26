@@ -1,39 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班农疫情作战室449/450期
-` GM47` [轉載自GNews](https://gnews.org/zh-hans/454351/)
+## 郭先生：gab 不错，我们应该到那里去注册！
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/454801/)
 
-战友之家新闻译制组制作
+郭文贵先生[2020年10月25日的G-TV Getter](https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f95c0e5e7d0c633dee4dd5c) 上让战友们安装 Gab：“10月25日：尊敬的战友们好🙏🙏🙏gab 不错，我们应该到那里去注册！ ”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25211226/Miles_20201025_Getter-figure1.png)图片来源：Getter 链接：[https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f95c0e5e7d0c633dee4dd5c](https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f95c0e5e7d0c633dee4dd5c)
+同日在[《路德时评》早间节目](https://www.youtube.com/watch?v=wDTO96gFjZM)里，路德也推荐了 [gab.com](http://gab.com) 这个自媒体平台。路德另外还推荐了 Parler。
 
+**Gab 创始人 Andrew Torba**
 
+Gab 创始人，Andrew Torba 先生马上在 Gab 里转了郭先生的盖文，并给出了英文翻译：“Translation: Dear brothers and sisters (in arms): Gab looks good, we should go register there!”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25212001/Andrew_Torba_homepage.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25211241/Miles_20201025_Getter-figure2.jpg)图片来源：[https://gab.com/a/posts/105096948955707632](https://gab.com/a/posts/105096948955707632)
+Andrew Torba 是我们新中国联邦和爆料革命的战友无疑。他在自己的账号里给英文世界介绍我们的爆料革命、郭文贵先生和新中国联邦。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25211248/Miles_20201025_Getter-figure3.jpg)图片来源：[https://gab.com/a/posts/105096681944277137](https://gab.com/a/posts/105096681944277137)
+Figure 3. Andrew Torba 是我们的战友！
 
+他还在 Gab 上介绍郭文贵先生的视频：[https://gab.com/a/posts/105096717573907297](https://gab.com/a/posts/105096717573907297)
 
+介绍新中国联邦：[https://gab.com/a/posts/105096788553418772](https://gab.com/a/posts/105096788553418772)
 
-449/450.摘要
+**安装和使用 Gab**
 
-朱利安尼(前纽约市长，川普私人律师)：
+安装 Gab 超级简单。有以下几个原因。
 
-不知道为何FBI(联邦调查局)持有硬盘一年却不作为，需要调查，显然内部有非常非常腐败的人，可怕的人，在掩饰真相。
+1. 不需要电话，墙内战友不用担忧买实体电话卡或虚拟号的时候暴露隐私。
 
-会要求FBI查明不作为的真相，如果拖延搪塞，就炒人，不过大选在即，要等选后再向总统提出建议。
+2. 注册只需要电子邮箱。建议战友们新申请一个邮箱，专号专用。比如可以申请 gmail（对不起，这个是号称“不作恶”又天天作恶的 Google 公司的，战友们只好委屈暂时用一下），注意 gmail 不用提供电话号码，问你电话号码时跳过即可。
 
-乔拜登应立刻举报有关虐童00:53:53,800，儿童色情的事项，履行法定责任；他让一个没有能力处理复杂局面的瘾君子儿子沦为利益冲突战的沙包，真坏，远远超出想象的坏，基本上他为人父的性格是有问题的。
+3. 虽然 Gab 是网页版，但是其实 Andrew Torba 教了大家怎样绕过 App 商店，在 Android 和苹果手机上安装 Gab，而且是中英文对照。超级简单！原来可以这样绕过App商店直接安装，涨见识啊！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25211257/Miles_20201025_Getter-figure4.jpg)
+笔者试了一下，超级简单！只需按步骤轻轻点几下即可。安装后的Gab在手机上长这样：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25211305/Miles_20201025_Getter-figure5.jpg)
+注册账号的步骤如下（[https://gab.com/auth/sign\_up](https://gab.com/auth/sign_up)）：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25211316/Miles_20201025_Getter-figure6.png)
+安装完成后，请到邮箱里点击确认，就完成了安装。现在请战友们动起你的手指，点赞、转发，并和英语世界的战友们建立友谊，让我们一起 “Take down the CCP and drain the swamp!”
 
-班农：
+撰文：【Isaiah4031】
 
-美国人民最不能接受的是传奇的FBI系统性地出错00:55:46,525，就像是球赛，一边是朱利安尼队，一边是拜登队，你会选哪个？
+战友之家玫瑰园小队出品
 
-伯尼寇克Bernie Kerik(前纽约市警察局长)：
-
-现任FBI局长雷是旧建制派的人，FBI需要真正警察，真正调查员的领导，而非前检察官或律师；FBI出现持续性违法行为，诸如吃案1年不作为，打压企图推翻依选举产生的总统的证据，忽视法定调查责任，若由他人领导，像拜登那样的案子，在2年前涉案人的安检许可就会被撤；FBI的问题不在它的干员，在它的顶导层，他们忘了初衷。
-
-从调查的眼光看，拜登一族不是个强硬的目标，真正的目标是那罪行丰富的环境，他们惊人犯罪，脱不了责任的。
-
-要求川普总统敕令总检察长与FBI解释吃案，如果不能获得满意的答复，雷必须离职；FBI需要清理，需要独立调查。我与朱利安尼向特拉华州警方举报儿童色情，无关政治，目的在保护未成年人。
-
-雷蒙亚伯拉罕(《剑与弯刀》作者)：
-
-法国学校老师被斩首，巴基斯坦被告在法庭被枪杀，肇事者皆被视为英雄。简单说伊斯兰教义在宣扬爱与恨，爱穆斯林兄弟，爱阿拉，恨非穆斯林。以敌意与暴力惩罚非教人士是在执行穆罕默德的意旨，这是信仰，不是法国当局以为的某极端异常的怪行，具有可教化的空间。历史上这种惩罚外教的行为由国家为之，直到被殖民者遏止。
-
-0
+1+
