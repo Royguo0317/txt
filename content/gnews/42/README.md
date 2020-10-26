@@ -1,89 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国在澳的间谍活动猖獗
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/453073/)
+## 凡走過必留下痕跡 &#8212; 拜登家族的犯罪歷史軌跡
+` VOH欧洲战友团` [轉載自GNews](https://gnews.org/zh-hans/454724/)
 
-*新闻来源：HKFP《香港自由报》；作者：AFP法新社；发布时间：October 20 , 2020 / 2020年10月20日*
-
-*翻译/简评：Linda Black；校对：Beicy-数学老师；审核：海阔天空 ；Page：拱卒*
-[!\[\]()!\[\](https://spark.adobe.com/page/hCbZVLfqUImjo/images/4809f6b6-fda0-4f62-b6bd-3a3de7aac67a.jpg?asset_id=20eefeb9-4b98-4c17-bc10-335eec2e4574&amp;img_etag=%2299c6ebc1e23afc133d97f60dfa7c46d6%22&amp;size=1024)](https://spark.adobe.com/page/hCbZVLfqUImjo/images/4809f6b6-fda0-4f62-b6bd-3a3de7aac67a.jpg?asset_id=20eefeb9-4b98-4c17-bc10-335eec2e4574&amp;img_etag=%2299c6ebc1e23afc133d97f60dfa7c46d6%22&amp;size=1024)
-**简评：**
-
-中共国近年来通过各种手段渗透澳大利亚的政治体系，包括给政客捐助大笔现金、窃取个人隐私和威胁恐吓在澳大利亚的新疆维吾尔族人等。文中提到自从习近平上台以来，这种企图影响澳大利亚政治的活动日益增长。澳大利亚为五眼联盟成员，绝不会允许中共国在其国家从事非法活动。中共口口声声绝不干涉他国内政，实际上四处用蓝金黄手段腐蚀他国政要，从而绑架对方、操纵权力，坑害世界百姓。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25203628/G14-_.jpg)
 
 
+撰稿: 牛小妹 圖片: 千鳥
 
-#### 
+有信仰的人或許都了解, 我們的所做的任何一件事情上天都有紀錄, 而拜登家族與中共的各種邪惡交易, 竟然留有Hunter Biden的詳實紀錄，真是「天網恢恢, 疏而不漏」。
 
-#### 情报主管警告说，中共国在澳大利亚的间谍活动比冷战还要高
+1979年到2004年是喬拜登跟中共早期接觸的時期，1979年36歲的喬拜登是Delaware的參議員，他作為美國政府的代表跟鄧小平相處了幾天。1997年拜登成為「 參議院對外關係委員會」的排名會員，在那期間拜登支持自由貿易的立法, 而這正是幫助中共進入WTO的推手。2001年拜登成為「參議院對外關係委員會」主席, 同年中共被允許進入WTO，2004年拜登跟楊潔篪見面。
 
+2005到2006年拜登家族被指控規避競選資金法律，2005年Hunter Biden 的合夥人成立羅斯蒙特基金(Rosemont Capital),2006年Hunter 和他的兄弟James獲得範式對衝基金（Paradium）。2007年他們開始跟中共的政治人物會面，一月1號喬拜登重新選為「參議院對外關係委員會」的主席，1月7號拜登宣布第二次爭取總統大選資格,1月18號Hunter辭去範式首席執行官，9月5號Bulger 和Lin 成立Thornton。
 
+2008年到2009年是拜登跟中共外交關係機構的合作開始, 2009年3月14號Rosemont Solebury Capital 被購併，2009年7月9號Bulger 和 Lin 北京成立Solebury Thornton 顧問有限公司, 2009年8月23號拜登被選為歐巴馬副總統的競選夥伴, 2009年9月Hunter成立Seneca Global Advisors,這是一個幫助小型及中小型企業拓展在美國及其他國家的市場, 2008年11月4號年拜登被選為第47屆美國副總統, 2009年7月27號到28號第一屆S&ED華盛頓舉辦2009年7月29號 Rosemont Seneca Advisors LLC 在Delaware 被購併，2009年11月10號到15號第一屆first Dino US Provincial Legislative Leaders Forum 舉辦。
 
-(目前在)澳大利亚的间谍活动已经使冷战时期的水平黯然失色，该国的情报局长周二在一次国会讲话中警告公民正受到外国势力的监视和骚扰。
+2010年是Hunter追逐中共國的金錢的年份, 2010年Rosemont Realty 獲得BGK, BGK 在22個州擁有135棟商業大樓, Hunter被選為BGK管理顧問, 2010年4月7號Hunter 與SSF’s權益資產主席Ji會晤。
 
+2011年是Hunter沒有被官方證實的中國拜訪, 2011年4月18日到四月20日Hunter拜訪台灣的銀行跟商業機構,同行的有Thornton 的主席Bulger 及CEO Lin, 2011年拜登到中國大陸及四川旅行,在2011年8月17號拜登訪問中國與中共外交部長楊潔篪碰面,8月19號拜登與胡錦濤在人民大會堂碰面,8月22號拜登在四川大學演講, 11月28號Thornton 與 中國國際貿易促進委員會（China Council for the Promotion of International Trade, CCPIT）在紐約共同主辦一個商業活動,與會者包括美國銀行的高級合夥人。
 
+2012年是Hunter跟中共的第一筆交易「萬象集團」,2012年1月17號拜登跟習在加州碰面,1月19號Hunter’s Seneca Global Advisors 協助美國能源技術新創公司Great Point接受來自萬向集團42億美元的股權投資及12.5億美元的項目基金投資,這是當年美國最大的風險投資。萬向集團是一個長期與中共政治盤根錯節的工業聯合企業,因為這個投資案,萬向集團從拜登所影響的美國政策得到了好處。2013年萬向集團得到了A123汽車鋰電池和電池系統商的破產人資產，2014年萬象集團贏得了菲斯特汽車產業的破產拍賣。菲斯特汽車是一家已停產的插電式混合動力跑車生產工廠,無論是菲斯特汽車或者是A 123都是美國政府貸款所成立的位於Delaware的汽車生產事業, 而Delaware正是拜登的家鄉!這表示萬向集團得到的這些技術是從美國納稅人的扶植而來的。
 
-意识形态领域的几位政客都卷入了对涉嫌海外影响力活动的调查中，其中最引人注目的(海外影响力活动)来自中共国。
-[!\[\]()!\[\](https://spark.adobe.com/page/hCbZVLfqUImjo/images/7f3a4c70-8fdf-4e9a-aa72-dcd7452691d7.jpg?asset_id=f9ca9527-bda1-4e8c-bdf1-2ace5a328d75&amp;img_etag=%228a993f45d1381881313e1a2c2aa9dada%22&amp;size=1024)](https://spark.adobe.com/page/hCbZVLfqUImjo/images/7f3a4c70-8fdf-4e9a-aa72-dcd7452691d7.jpg?asset_id=f9ca9527-bda1-4e8c-bdf1-2ace5a328d75&amp;img_etag=%228a993f45d1381881313e1a2c2aa9dada%22&amp;size=1024)澳大利亚安全情报组织办公室。 图片：Wikicommons
-澳大利亚通常守口如瓶的情报主管对这种威胁越来越直言不讳。
+2013年是Hunter跟中共的第二筆交易BHR, 2013年12 月4號Hunter陪伴拜登的去中國做官方旅行, 這趟旅行Hunter與烏克蘭總統Viktor的官方旅行不期而遇, 在那裏並且簽署合約背書Hunter的 BHR合約, 同年12月16號BHR根據State market regulatory administration (SMRA)紀錄, BHR在上海被併購。
 
+2014年10月3號拜登演講的時候說:「我希望中國成功!他們在經濟上的成功正是我們的利益所在。」2015年是Hunter與中國的第三個交易Sino-Ocean, 1月23號拜登與中共國務委員楊潔篪在華盛頓DC舉辦的2015年S&ED會面, 同一天由Rosemont ,Seneca,Thornton所持股的30%BHR 股票分成兩個部分持有,美國的部分則分別存放在Rosemont, Seneca, Bohai LLC 和Thornton LLC。
 
+2016年的9月8號洛陽欒川鉬業(China Molybdenum)與費利浦·麥克莫蘭銅金公司 (Freeport-McMoRan)達成一個協議去購買一個在剛果共和國擁有採礦權公司的56%的股權, 同時BHR可以購買另外的24%。 2017年5月Hunter私下在邁阿密的飯店會晤CEFC主席葉簡明,他接受了2.8克拉鑽石, 根據2017年10月23號SMRA的紀錄顯示.Hunter購買了10%的BHR的股權, 2017年11月18號前香港政治家侯志平因爲賄賂及洗錢的指控，在JFK機場被逮捕，他請求Hunter協助。
 
-澳大利亚安全情报组织负责人迈克尔·伯吉斯（Michael Burgess）说：“与冷战高峰时期相比，有更多的外国间谍及其代理人从事违反澳大利亚人利益的活动。”
+2019年Hunter否認從中國的合約當中謀取利益,5月2號拜登提到「中國並不u要跟美國競爭」, 5月3號報導說BHR投資Face++, 這是一個發展人臉辨識軟體中的中國的監控公司, 主要是為中共的執法和使用,包括針對教少數民族穆斯林。2019年9月拜登說他從來沒有跟Hunter 討論有關他在中國的合約。
 
+2020年的紀錄呢? 老天爺說:「拜登競選總統失敗!要下地獄!」
 
-
-他警告说，居住在澳大利亚的侨民团体受到外国政府的监视和骚扰。
-
-
-
-法新社的一项调查显示，来自中共国新疆地区的维吾尔族流亡者在澳大利亚和其他民主国家生活期间遭到袭击。
-[!\[\]()!\[\](https://spark.adobe.com/page/hCbZVLfqUImjo/images/bde84722-4e22-4e05-b818-96b6041d4398.jpg?asset_id=daa879c0-98e7-4e73-b3d3-96a62690a801&amp;img_etag=%22da275debc55966fee13ae6331c0e6e8d%22&amp;size=1024)](https://spark.adobe.com/page/hCbZVLfqUImjo/images/bde84722-4e22-4e05-b818-96b6041d4398.jpg?asset_id=daa879c0-98e7-4e73-b3d3-96a62690a801&amp;img_etag=%22da275debc55966fee13ae6331c0e6e8d%22&amp;size=1024)悉尼大学 照片Pixabay
-去年在金融中心举行的民主抗议活动之后，在澳大利亚大学就读的香港学生也报告了(他们)家庭受到恐吓和威胁。
-
-
-
-伯吉斯在堪培拉立法会议员面前的讲话中并未提及中共国。
-
-但他说，外国对侨民团体的监视和恐吓“不亚于对澳大利亚主权的攻击”。
-
-他说：“仅仅因为主张民主改革或批评侵犯人权行为而使澳大利亚人民受到恐吓是令人无法接受的”
-
-近年来，由于从与北京有联系的捐助者那里接受现金捐赠或被指控参与中共国的宣传活动，几名澳大利亚政客陷入丑闻。
-
-伯吉斯警告说，本国政客是(外国势力)“窃取我们的秘密并操纵我们的决策”的主要目标。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/hCbZVLfqUImjo/images/b6749e5e-0c8c-4db4-bc1d-b8627d16adf7.jpg?asset_id=065ff756-f179-44a3-8c6f-ed753409faa7&amp;img_etag=%226b1bbe0a71552fd03af96d060649db76%22&amp;size=1024)](https://spark.adobe.com/page/hCbZVLfqUImjo/images/b6749e5e-0c8c-4db4-bc1d-b8627d16adf7.jpg?asset_id=065ff756-f179-44a3-8c6f-ed753409faa7&amp;img_etag=%226b1bbe0a71552fd03af96d060649db76%22&amp;size=1024)澳大利亚安全情报组织负责人迈克尔·伯吉斯(Michael Burgess)。 照片：AusGov
-
-他补充说:“我们看到有证据表明，情报机构为了增进外国利益，欺骗性地培养了各级政府的政客。”
-
-
-
-澳大利亚安全情报组织的前任邓肯·刘易斯（Duncan Lewis）去年警告说，中共国正试图通过间谍活动和和影响力兜售来“接管”澳大利亚的政治体系。
-
-
-
-他特别指出了中共国特工为澳大利亚政党捐助巨额资金，是中共广泛渗透的一部分，此运动也针对澳大利亚媒体和大学。
-
-官员们表示，自习近平主席上台以来，中共国通过捐款、投资和社区团体影响海外政治的努力正在加大。
-
-美国长期以来关注对澳大利亚的影响，一再警告其盟友不要轻敌。
-
-澳大利亚和华盛顿是五眼情报共享联盟的成员–该联盟还包括英国、加拿大和新西兰。
-
-[原文链接](https://hongkongfp.com/2020/10/20/chinese-espionage-in-australia-at-higher-levels-than-cold-war-spy-chief-warns/)
-
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/hCbZVLfqUImjo/)】-点击spark adobe版
-
-了解更多资讯敬请关注：
-
-【英国喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
-
-【英国喜庄园GTV/盖特】：[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-【英国喜庄园Twitter】：[https://twitter.com/UkHimalaya](https://twitter.com/UkHimalaya)
-[!\[\]()!\[\](https://spark.adobe.com/page/hCbZVLfqUImjo/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/hCbZVLfqUImjo/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
-
-0
+3+

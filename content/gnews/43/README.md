@@ -1,25 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国副总统的儿子？这只是冰山一角
-` GM06` [轉載自GNews](https://gnews.org/zh-hans/453137/)
+## 抢听! 郭文贵先生最新单曲：《为香港而战》
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/454643/)
 
-作者：明台  校对：明台  出品：首尔喜韩农场文宣部
+**《为香港而战》
+℗ G Music
+发布于: 2020-10-24**
 
-为期十三天的大决战拉开了帷幕，关于亨特拜登的视频、图片开始爆出。
 
-路德社9月24日的直播首次爆出有关中共绝密的三块硬盘，硬盘中的部分内容是中共利用蓝金黄的方式控制外国政要及其家人，本届总统的候选人乔拜登的儿子亨特拜登就在硬盘中！
 
-视频中的亨特拜登称量毒品、大尺度的自拍、虐童、吸毒，每一幕都令人发指。路德社还曾经在美东时间10月22日晚间爆出帮助亨特拜登吸食毒品，与他发生性关系的人正是中共国的女明星、美国公民刘亦菲。然而这些只是硬盘中内容的冰山一角，其他美国的政客在不在硬盘中呢？只有民主党被蓝金黄了吗？路德社的无数次爆料，都将一一得到验证！
+**苹果商店下载：[https://music.apple.com/au/album/fight-for-hong-kong-single/1537277836](https://music.apple.com/au/album/fight-for-hong-kong-single/1537277836)**
 
-视频链接：
-
-亨特拜登大尺度自拍：https://gtv.org//?videoid=5f94bdfa04b26243e0d36208
-
-亨特拜登和刘亦菲： https://gtv.org//?videoid=5f94837c7de25667c0fe0c5e
-
-亨特拜登虐童： [https://gtv.org//?videoid=5f94a10e04b26243e0d306b2](https://gtv.org/?videoid=5f94a10e04b26243e0d306b2)
-
-亨特拜登称量毒品： https://gtv.org//?videoid=5f94a73b04b26243e0d30dbc
-
-0
+3+

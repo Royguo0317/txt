@@ -1,63 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 关于乔·拜登的腐败故事
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/452888/)
+## 假戏再登场：中共国用假冒繁荣来吸引外资
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/453790/)
 
-*新闻来源：Wallstreet Jounal《华尔街日报》；作者：詹姆斯·弗里曼 (James Freeman)；发布时间： 2020年10月22日*
+*新闻来源：ZeroHedge《零对冲零对冲》；作者：Eric Peters(CIO of One River Asset Management 一河资产管理公司的首席信息官)；发布时间：2020年10月19日*
 
-*翻译/简评：Marialu；校对：感恩；审核： InAHurry；Page：拱卒*
-
-[!\[\]()!\[\](https://spark.adobe.com/page/anH8whChAwnPP/images/02e53ae2-868d-48b3-bc2c-9618b3f6c75c.jpg?asset_id=060c17af-51cc-4a47-9a5f-2e696d965c0b&amp;img_etag=%2243e3f061dd725db2315046c27621bdba%22&amp;size=1024)](https://spark.adobe.com/page/anH8whChAwnPP/images/02e53ae2-868d-48b3-bc2c-9618b3f6c75c.jpg?asset_id=060c17af-51cc-4a47-9a5f-2e696d965c0b&amp;img_etag=%2243e3f061dd725db2315046c27621bdba%22&amp;size=1024)
-
+*翻译/简评：Bob1203(文虓)；校对：1818；审核：海阔天空 ；Page：拱卒*
+[!\[\]()!\[\](https://spark.adobe.com/page/jtRV0RsRVdVaj/images/65d13f76-f596-431b-a468-bd5cd729fc08.jpg?asset_id=82b2ba26-c8c8-4499-b92f-8d29f1a85b85&amp;img_etag=%22fc355259d7fa97fd81f043ed5088ca67%22&amp;size=1024)](https://spark.adobe.com/page/jtRV0RsRVdVaj/images/65d13f76-f596-431b-a468-bd5cd729fc08.jpg?asset_id=82b2ba26-c8c8-4499-b92f-8d29f1a85b85&amp;img_etag=%22fc355259d7fa97fd81f043ed5088ca67%22&amp;size=1024)
 **简评：**
 
-《华尔街日报》刊登了由《纽约邮报》的资深专栏作者古德温先生（Mr. Goodwin)最新报道的关于拜登商业伙伴托尼·博布林斯基（Tony Bobulinski）的一份声明，他指出乔·拜登参与了家族影响力的兜售活动，特别与中共国有勾兑关系。托尼·博布林斯基看到乔·拜登矢口否认他参与他儿子亨特·拜登的生意，但事实是亨特在生意上称他父亲为“大人物”或“董事长”，他经常提到要他父亲签字或提供建议等…，显而易见，这不是未来总统应参与的业务。托尼·博布林斯基在关键时刻站出来揭露拜登家族的丑恶行径，他就是真正的爱国者，也是英雄。然而大多数媒体集体失声！媒体封锁还能持续多久？
+一位亚洲CIO认为，美国和中共国已经开启了金融战，中共国资本市场的增长之路已经一去不复返。中共国独裁者习近平希望吸引5万亿美元的外资来填补漏洞，但投资者担心他们的数据安全性以及怀疑中共国捏造虚假的财务经营业绩并假冒繁荣，对中共国投资非常谨慎，最终中共国无法吸引到这5万亿美元。中共国最终会因资本断流而在金融战中全面崩溃！
 
-现在美国媒体如《华尔街日报》在觉醒，他们发问：如果乔·拜登确实接受了包括来自中共国实体的勾兑款项，出卖国家利益，谋取私利，那么他应该立即退出总统竞选。
+**原文翻译：**
 
-民意不可违，希望更多的媒体守住新闻自由的底线，临阵倒戈，站在正义一边，为正义发声！
+#### 首席信息官：“美国和中共国卷入全面的金融战……中共国将用虚假繁荣和增长来吸引外资”
+[!\[\]()!\[\](https://spark.adobe.com/page/jtRV0RsRVdVaj/images/7049c6b3-7191-44ad-bf78-a940315b7ee7.jpg?asset_id=47962dbd-5e9e-47b9-b7cc-5d1a863437c7&amp;img_etag=%22f17995e3689728f779a7ef997a4d51b5%22&amp;size=1024)](https://spark.adobe.com/page/jtRV0RsRVdVaj/images/7049c6b3-7191-44ad-bf78-a940315b7ee7.jpg?asset_id=47962dbd-5e9e-47b9-b7cc-5d1a863437c7&amp;img_etag=%22f17995e3689728f779a7ef997a4d51b5%22&amp;size=1024)
+这位来自亚洲的首席信息官（CIO）说到，“在2000年代初期，中共国大陆可能占亚洲资本市场的5-10％，而中共国似乎可能与美国以共生的方式增长，” 该地区的主要投资者之一继续说：“现在这条路已经一去不复返了，可能出现的情况不像当时那么乐观。” 他说：“但是，知道未来并不那么光明，与知道未来将如何发展是不同的。为此，我们把未来分成许多种可能性，然后观察那些使可能性偏向其中一种的迹象。”
 
-**现在，腐败的焦点是乔·拜登，而不是亨特·拜登**
+“中共国负债累累，杠杆作用很大，因此习（近平）正试图开放，因为他需要吸引外资，”这位亚洲首席信息官补充道。他说:“他在打一场信心比赛，赢得这场比赛对他的生存至关重要。在不到20年的时间里，中共国已经占据了亚洲资本市场的70%。“在这种主导地位下，在该地区的任何投资决定，都需要考虑你是否愿意做多中共国。“习（近平）希望吸引5万亿美元的外资来填补漏洞，通过国家银行体系将其杠杆化10到15倍。”
 
-**媒体封锁还能持续多久？**
+这位首席信息官在谈到人工智能、生物技术和微芯片时解释说：“看好中共国的理由是，习（近平）拿到了他的5万亿美元资金，并利用过剩的资金来确保在未来行业的主导地位”“沿着这条路,习（近平）将利用所有中共国已经占主导地位的产业来确保优势。（例如：太阳能，电池，液晶面板的生产。）”虽然美国可能会撤资，但德国和法国最终是商业化的，如果中共国能生产最好的产品，并消费欧洲出口的奢侈品，北京可能就是赢家。”
+[!\[\]()!\[\](https://spark.adobe.com/page/jtRV0RsRVdVaj/images/0ceb0458-69e8-4a92-993f-047b88141fa6.png?asset_id=84f6f6eb-4757-4bb9-adc5-90378379b535&amp;img_etag=%2289547da99bd07e3119b3ae49224056d8%22&amp;size=1024)](https://spark.adobe.com/page/jtRV0RsRVdVaj/images/0ceb0458-69e8-4a92-993f-047b88141fa6.png?asset_id=84f6f6eb-4757-4bb9-adc5-90378379b535&amp;img_etag=%2289547da99bd07e3119b3ae49224056d8%22&amp;size=1024)
+他解释说：“看空美国的理由是看多中共国的衍生物。美国的国际净投资头寸为-（负）13万亿美元。” 为了保持其经济主导地位，它需要持续地吸引大量的资本流入。“使美国得以维持这种不平衡的是全球对法律/政治制度的信心以及奖励企业家精神的激励结构，但如果该国在未来十年内在川普主义（Trumpism）和桑德斯主义（Sanderism）之间摇摆，这种信心将受到损害。投资者将寻求在美国以外的地区进行多元化投资。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/anH8whChAwnPP/images/f02969eb-531b-4c2e-addd-040a528427d2.jpg?asset_id=c3247757-7464-4f63-a28a-d24949a6eea9&amp;img_etag=%227e36e758e0b2fdeef79c926897d52ccb%22&amp;size=1024)](https://spark.adobe.com/page/anH8whChAwnPP/images/f02969eb-531b-4c2e-addd-040a528427d2.jpg?asset_id=c3247757-7464-4f63-a28a-d24949a6eea9&amp;img_etag=%227e36e758e0b2fdeef79c926897d52ccb%22&amp;size=1024)10月12日，民主党总统候选人乔·拜登（Joe Biden）在俄亥俄州联合终点站（Union Terminal）的辛辛那提博物馆中心。PHOTO: TOM BRENNER/REUTERS 照片： 汤姆·布伦纳/路透社
+“看空中共国的理由是,习（近平）显然是一个独裁。“这位亚洲首席信息官说。“他对中共国公司施加了如此大的控制——他已经做到了——以至于世界其他国家拒绝使用中共国的物联网技术（IOT）。”担心中共国政府最终将获得我们所有的数据，这被视为是不可接受的。“这就扼杀了中共国许多有才华的企业家。”使得他们无法在国内市场之外扩张。“它们的规模只能与（中共国）成功的经济（规模）一样大——所以中共国无法吸引到这5万亿美元。”
 
-此时此刻，许多读者仍被困在硅谷大佬们拉起的铁幕背后。然而，感谢亚历山大·汉密尔顿（Alexander Hamilton）于1801年创办的一家地下出版物，有关拜登家族企业的消息仍在被继续传播着。与《华尔街日报》享有共同所有权的《纽约邮报》，最新报道了出自资深专栏作家迈克尔·古德温（Michael Goodwin）的报道。报道中刊登了来自拜登商业伙伴的一份声明。其中明确指出乔·拜登（Joe Biden）也参与了包括中国在内的家族影响力的兜售活动。
+**轶事**
+[!\[\]()!\[\](https://spark.adobe.com/page/jtRV0RsRVdVaj/images/35ed35a4-36f9-4ff3-b115-9b9e44ee9eec.png?asset_id=9c480728-096d-43df-b6a7-5cb2c497ea21&amp;img_etag=%22fb123cac073a66a82ef679f437fc524e%22&amp;size=2560)](https://spark.adobe.com/page/jtRV0RsRVdVaj/images/35ed35a4-36f9-4ff3-b115-9b9e44ee9eec.png?asset_id=9c480728-096d-43df-b6a7-5cb2c497ea21&amp;img_etag=%22fb123cac073a66a82ef679f437fc524e%22&amp;size=1024)
+这位来自亚洲的首席信息官表示:“中共国现在完全卷入了与美国的金融战中。”“这种看法是北京权力结构顶端的看法，”该地区的一位主要投资者继续说。
 
-鲍勃林斯基先生的声明似乎证实了，与乔·拜登（Joe Biden）一直的矢口否认的相反，他参与了他儿子亨特（Hunter）的生意，而这不是未来总统应参与的业务。《纽约邮报》发表的博布林斯基声明的部分内容如下：
+他表示:“中共国政府认为，任何能够吸引外资的举措都符合国家利益。因此，如果一家领先的中共国科技公司捏造虚假的财务经营业绩符合国家利益，政府可能会接受。”
 
+在战争时期，规则会因国家需要而改变。在一个资本迫切需要实质增长的世界里，编造数据来吸引资本是一种理性的策略。对于一个房地产泡沫不断膨胀的国家来说，房地产泡沫同时支撑着税收、就业和国内消费，未能吸引到资本是不可接受的。对于北京的“杂技演员们”来说，美国施压要求重整全球供应链来得再糟糕不过了，他们的“盘子”在旋转，速度在放缓。
 
+这加大了保持繁荣表象的压力，以便外国资本继续流入。
 
-我是中鹰控股（Sinohawk Holdings）的首席执行官，该控股公司是叶的中共国公司华信能源（CEFC ）与拜登家族合伙成立的公司。我被詹姆斯·吉利亚（James Gilliar）和亨特·拜登（Hunter Biden）带入公司担任首席执行官。在广为报道的2017年5月13日的电子邮件中所提到的 “大人物”（Big Guy）实际上是指乔·拜登（Joe Biden）。该邮件中提到的另一个“JB”是吉姆·拜登（Jim Biden），乔·拜登（Joe Biden）的哥哥。
+他说:“我们总是不得不对中共国的经济统计数据和企业数据有所怀疑，但在金融战争中，我们可能会看到前所未有的（数据）扭曲。”“就目前而言，西方资金仍在流入，尽管当地的资本管制正在收紧。国外养老金、捐赠基金，他们正在寻求更多样化的投资组合。”
 
-亨特·拜登（Hunter Biden）称他的父亲为“大佬/大人物”或“我的董事长”，并经常提到要他签字或就我们正在讨论的各种潜在交易提供建议。我看到拜登副总统说他从未与亨特谈论过他的生意。但我亲眼看到，那不是真的，因为拜登认为这不仅仅是亨特的生意，这一切关系到拜登家族的声誉和名声。
+如果这不起作用，中共国可能会选择在区域上变得更加自信，并拉拢为美国赤字提供资金的资本盈余来源——香港、台湾、韩国和日本。在拜登的领导下，沙特和俄罗斯肯定会更加与北京结盟。
 
-我意识到中共在这个合作项目中并不关注健康的财务[投资回报]。 他们把它看作是一项政治影响力投资。
+“但在中共国投资这么多资金的基础是不稳定的，”这位首席信息官表示。“在中共国投资必须非常谨慎，并对提交的所有数据持怀疑态度。”
 
-拜登家族一直在积极地利用其家族名义从外国实体（公司）中赚取数以百万计的美元，他们完全不在乎其中一些来自共产党控制的中共国。
+[原文链接](https://www.zerohedge.com/markets/cio-us-and-china-are-engaged-full-blown-financial-war-and-china-will-fake-prosperity-growth?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/anH8whChAwnPP/images/8374c026-10c4-44b9-9ff8-ae878665b87d.jpg?asset_id=73f15669-7e8a-4ad4-9f6d-0f1243ef45b8&amp;img_etag=%22053dba8819c78cc42dc34e90afaaf28f%22&amp;size=1024)](https://spark.adobe.com/page/anH8whChAwnPP/images/8374c026-10c4-44b9-9ff8-ae878665b87d.jpg?asset_id=73f15669-7e8a-4ad4-9f6d-0f1243ef45b8&amp;img_etag=%22053dba8819c78cc42dc34e90afaaf28f%22&amp;size=1024)
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/jtRV0RsRVdVaj/)】- 点击spark adobe版
 
-如果乔·拜登真的接受了包括来自中共国实体的贿赂，那么他应该立即退出总统竞选。但媒体界对这件事的追踪报道基本上不感兴趣。今天，《新闻周刊》的杰森•莱蒙（Jason Lemon）假惺惺地报道了这个事件：
+了解更多资讯敬请关注：
 
-《新闻周刊》联系了乔·拜登总统竞选团队和亨特·拜登的律师来征询意见，但截至发稿时，他们没有作出回应。
+【英国喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
 
-[原文链接](https://www.wsj.com/articles/now-corruption-story-is-about-joe-not-hunter-11603392288)
+【英国喜庄园GTV/盖特】：[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-编辑：[【喜马拉雅战鹰团】](https://spark.adobe.com/page/anH8whChAwnPP/)-点击spark adobe版
-
-了解更多详情敬请关注：
-
-【英国喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
-
-【英国喜庄园GTV/盖特】
-
-[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-【大卫作战室YouTube】：[https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
-
-![]()![](https://spark.adobe.com/page/anH8whChAwnPP/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)
-
-0
+【英国喜庄园Twitter】：[https://twitter.com/UkHimalaya](https://twitter.com/UkHimalaya)
+[!\[\]()!\[\](https://spark.adobe.com/page/jtRV0RsRVdVaj/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/jtRV0RsRVdVaj/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+1+
