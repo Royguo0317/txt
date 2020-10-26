@@ -1,89 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国在澳的间谍活动猖獗
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/453073/)
+## 乔·拜登直系家庭成员简介
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/453213/)
 
-*新闻来源：HKFP《香港自由报》；作者：AFP法新社；发布时间：October 20 , 2020 / 2020年10月20日*
+喜马拉雅联盟加拿大农场 文锦 整理
+校对 小鸥 上传 WJ
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25143017/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE539.png)
+**乔·拜登**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25132558/Joe-Biden.jpg)
+乔·拜登（Joe Biden），生于1942年 ，民主党，2009年～2016年任美国历史上第47位副总统，1973年 至2009年任特拉华州参议员，是美国史上最资深参议员，被6次当选，直到2009年入阁奥巴马政府辞去参议员。2020年被民主党提名总统候选人。
+拜登1966年在锡拉丘兹大学法学院求学期间，与校友内莉亚·亨特（Neilia Hunter）结婚。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25132635/Neilia_Hunter.jpeg)内莉亚·亨特
+拜登与内莉亚育有二子一女：
 
-*翻译/简评：Linda Black；校对：Beicy-数学老师；审核：海阔天空 ；Page：拱卒*
-[!\[\]()!\[\](https://spark.adobe.com/page/hCbZVLfqUImjo/images/4809f6b6-fda0-4f62-b6bd-3a3de7aac67a.jpg?asset_id=20eefeb9-4b98-4c17-bc10-335eec2e4574&amp;img_etag=%2299c6ebc1e23afc133d97f60dfa7c46d6%22&amp;size=1024)](https://spark.adobe.com/page/hCbZVLfqUImjo/images/4809f6b6-fda0-4f62-b6bd-3a3de7aac67a.jpg?asset_id=20eefeb9-4b98-4c17-bc10-335eec2e4574&amp;img_etag=%2299c6ebc1e23afc133d97f60dfa7c46d6%22&amp;size=1024)
-**简评：**
+1. 长子**博·拜登**（Joseph R. Biden III），1969年2月3日出生，曾担任特拉华州的检察长和特拉华州陆军国民警卫队的少校，2015年1月6日因脑癌过世。
 
-中共国近年来通过各种手段渗透澳大利亚的政治体系，包括给政客捐助大笔现金、窃取个人隐私和威胁恐吓在澳大利亚的新疆维吾尔族人等。文中提到自从习近平上台以来，这种企图影响澳大利亚政治的活动日益增长。澳大利亚为五眼联盟成员，绝不会允许中共国在其国家从事非法活动。中共口口声声绝不干涉他国内政，实际上四处用蓝金黄手段腐蚀他国政要，从而绑架对方、操纵权力，坑害世界百姓。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25132510/BeauBiden.jpg)
+2.次子罗伯特·亨特·拜登（Robert Hunter Biden），即**亨特·拜登**，1970年2月4日出生。他是美国律师和投资顾问,他是投资和咨询公司Rosemont Seneca Partners的创始合伙人。最近被爆出糜烂、罪恶的真实生活。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25132540/Hunter-Biden.jpg)
+3.纳奥米·拜登（Naomi Christina Biden ），生于1970，因车祸早夭于1972。
 
+1977年，拜登与吉尔·拜登（Jilll Biden）结婚，育有一女：阿什莉·拜登（Ashley Biden）。
 
+**吉尔·拜登**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25132550/Jill_Biden_.jpg)
+吉尔·拜登生于1951年6月3日，特拉华大学学士学位，西切斯特大学和维拉诺瓦大学硕士学位，以及特拉华大学博士学位。她在高中教了十三年的英语和阅读，还在一家精神病院教有情绪障碍的青少年。从1993年到2008年，她是特拉华技术与社区学院的英语和写作教师。自2009年起，她在北弗吉尼亚州社区学院担任英语教授，被是第一位在丈夫担任副总统期间从事有偿工作的第二夫人。她是 “拜登乳腺健康倡议 “非营利组织创始人，”书友 “计划联合创始人，拜登基金会的联合创始人，活跃于特拉华州 “地上之靴 “活动，是 “与米歇尔-奥巴马联手 “的联合创始人。
 
-#### 
+**阿什莉·拜登**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25132502/Ashley_Biden.jpg)
+阿什莉·拜登生于1981年6月8日，是美国社会工作者、活动家、慈善家和时装设计师。2014年至2019年，担任特拉华州司法中心执行主任。在该中心担任行政职务之前，她曾在特拉华州儿童、青少年及其家庭服务部工作。她创立了时尚公司Livelihood。
 
-#### 情报主管警告说，中共国在澳大利亚的间谍活动比冷战还要高
+博·拜登家庭成员：
+1.遗孀：**哈莉·拜登**（Hallie Biden），生于1974年11月30日，现年45岁。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25133838/Hallie-Biden.jpg)
+2.**娜塔莉·拜登**（Natalie Biden），女儿，生于2004年8月4日，现年16岁。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25132627/Natalie-Biden-with-Dr.-Jill-and-Joe-Biden-at-the-Delaware-Memorial-Day-Ceremony-in-2019.jpg)2019年，娜塔莉-拜登（左一）与吉尔-拜登和乔-拜登出席特拉华州纪念日仪式。
+3.**罗伯特·亨特·拜登二世**（Robert “Hunter” Biden II），儿子，2006年出生，以叔叔的名字命名。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25134103/biden-grandchildren-mc-main-200821_1e2a640ff89355733632753d2d6b6802.jpg)（左二罗伯特·亨特·拜登二世，2020年8月17日乔·拜登孙辈背诵效忠誓言视频截图）
+**亨特·拜登**（Robert Hunter Biden）家庭成员
 
+亨特·拜登于1993年与凯瑟琳·布勒（Kathleen Buhle）结婚，育有三个女儿纳奥米（Naomi）、菲尼根（Finnegan）和梅西（Maisy），夫妻俩于2017年离婚，2016年拜登开始与哥哥博的遗孀哈莉·拜登（Hallie Biden）约会。
 
+亨特·拜登也是2018年8月在阿肯色州与伦登·亚历克西斯·罗伯茨（Lunden Alexis Roberts）所生孩子的父亲。
 
-(目前在)澳大利亚的间谍活动已经使冷战时期的水平黯然失色，该国的情报局长周二在一次国会讲话中警告公民正受到外国势力的监视和骚扰。
+亨特·拜登于2019年5月与南非电影制片人梅丽莎·科恩（Melissa Cohen）结婚，他们的儿子于2020年3月在洛杉矶出生。
 
+亨特·拜登的三个女儿:
 
-
-意识形态领域的几位政客都卷入了对涉嫌海外影响力活动的调查中，其中最引人注目的(海外影响力活动)来自中共国。
-[!\[\]()!\[\](https://spark.adobe.com/page/hCbZVLfqUImjo/images/7f3a4c70-8fdf-4e9a-aa72-dcd7452691d7.jpg?asset_id=f9ca9527-bda1-4e8c-bdf1-2ace5a328d75&amp;img_etag=%228a993f45d1381881313e1a2c2aa9dada%22&amp;size=1024)](https://spark.adobe.com/page/hCbZVLfqUImjo/images/7f3a4c70-8fdf-4e9a-aa72-dcd7452691d7.jpg?asset_id=f9ca9527-bda1-4e8c-bdf1-2ace5a328d75&amp;img_etag=%228a993f45d1381881313e1a2c2aa9dada%22&amp;size=1024)澳大利亚安全情报组织办公室。 图片：Wikicommons
-澳大利亚通常守口如瓶的情报主管对这种威胁越来越直言不讳。
-
-
-
-澳大利亚安全情报组织负责人迈克尔·伯吉斯（Michael Burgess）说：“与冷战高峰时期相比，有更多的外国间谍及其代理人从事违反澳大利亚人利益的活动。”
-
-
-
-他警告说，居住在澳大利亚的侨民团体受到外国政府的监视和骚扰。
-
-
-
-法新社的一项调查显示，来自中共国新疆地区的维吾尔族流亡者在澳大利亚和其他民主国家生活期间遭到袭击。
-[!\[\]()!\[\](https://spark.adobe.com/page/hCbZVLfqUImjo/images/bde84722-4e22-4e05-b818-96b6041d4398.jpg?asset_id=daa879c0-98e7-4e73-b3d3-96a62690a801&amp;img_etag=%22da275debc55966fee13ae6331c0e6e8d%22&amp;size=1024)](https://spark.adobe.com/page/hCbZVLfqUImjo/images/bde84722-4e22-4e05-b818-96b6041d4398.jpg?asset_id=daa879c0-98e7-4e73-b3d3-96a62690a801&amp;img_etag=%22da275debc55966fee13ae6331c0e6e8d%22&amp;size=1024)悉尼大学 照片Pixabay
-去年在金融中心举行的民主抗议活动之后，在澳大利亚大学就读的香港学生也报告了(他们)家庭受到恐吓和威胁。
-
-
-
-伯吉斯在堪培拉立法会议员面前的讲话中并未提及中共国。
-
-但他说，外国对侨民团体的监视和恐吓“不亚于对澳大利亚主权的攻击”。
-
-他说：“仅仅因为主张民主改革或批评侵犯人权行为而使澳大利亚人民受到恐吓是令人无法接受的”
-
-近年来，由于从与北京有联系的捐助者那里接受现金捐赠或被指控参与中共国的宣传活动，几名澳大利亚政客陷入丑闻。
-
-伯吉斯警告说，本国政客是(外国势力)“窃取我们的秘密并操纵我们的决策”的主要目标。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/hCbZVLfqUImjo/images/b6749e5e-0c8c-4db4-bc1d-b8627d16adf7.jpg?asset_id=065ff756-f179-44a3-8c6f-ed753409faa7&amp;img_etag=%226b1bbe0a71552fd03af96d060649db76%22&amp;size=1024)](https://spark.adobe.com/page/hCbZVLfqUImjo/images/b6749e5e-0c8c-4db4-bc1d-b8627d16adf7.jpg?asset_id=065ff756-f179-44a3-8c6f-ed753409faa7&amp;img_etag=%226b1bbe0a71552fd03af96d060649db76%22&amp;size=1024)澳大利亚安全情报组织负责人迈克尔·伯吉斯(Michael Burgess)。 照片：AusGov
-
-他补充说:“我们看到有证据表明，情报机构为了增进外国利益，欺骗性地培养了各级政府的政客。”
+1.**纳奥米·拜登**（Naomi Biden），长女，1994年出生，现年26岁，以乔·拜登已故的女儿纳奥米（Naomi）的名字命名，今年5月，毕业于哥伦比亚法学院（Columbia Law School），在此之前，她是宾夕法尼亚大学的学生。曾发推支持乔·拜登。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25132615/Naomi-Biden.jpg)乔·拜登与孙女**纳奥米·拜登**
+2.**芬尼根·拜登**（Finnegan Biden），次女，于2001年出生，现年19岁。和娜奥米一样，她是以乔·拜登已故的母亲 凯瑟琳·尤金尼娅·”珍”·菲尼根·拜登命名。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25132529/Finnegan-Biden.jpg)乔·拜登于2019年6月28日星期五在芝加哥亲吻孙女芬尼根·拜登。
+3.**梅西·拜登**（Maisy Biden），三女，于2002年出生，现年18岁。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25132607/Maisy-Biden.jpg)
 
 
+参考链接：
+[Joe Biden’s Granddaughter Finnegan Biden Wiki, Bio, Age, Height, Instagram, College, Kissing, Parents!!](https://aussiecelebs.com.au/finnegan-biden/)
+[Who Are Joe Biden’s Children and Grandchildren?](https://www.harpersbazaar.com/celebrity/latest/a33661848/joe-biden-children-grandchildren/)
+[wikipedia](https://en.wikipedia.org/wiki/Family_of_Joe_Biden#:~:text=Joe%20Biden%20is%20the%20oldest,for%20Joe%20Biden's%20presidential%20campaigns.)
 
-澳大利亚安全情报组织的前任邓肯·刘易斯（Duncan Lewis）去年警告说，中共国正试图通过间谍活动和和影响力兜售来“接管”澳大利亚的政治体系。
-
-
-
-他特别指出了中共国特工为澳大利亚政党捐助巨额资金，是中共广泛渗透的一部分，此运动也针对澳大利亚媒体和大学。
-
-官员们表示，自习近平主席上台以来，中共国通过捐款、投资和社区团体影响海外政治的努力正在加大。
-
-美国长期以来关注对澳大利亚的影响，一再警告其盟友不要轻敌。
-
-澳大利亚和华盛顿是五眼情报共享联盟的成员–该联盟还包括英国、加拿大和新西兰。
-
-[原文链接](https://hongkongfp.com/2020/10/20/chinese-espionage-in-australia-at-higher-levels-than-cold-war-spy-chief-warns/)
-
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/hCbZVLfqUImjo/)】-点击spark adobe版
-
-了解更多资讯敬请关注：
-
-【英国喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
-
-【英国喜庄园GTV/盖特】：[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-【英国喜庄园Twitter】：[https://twitter.com/UkHimalaya](https://twitter.com/UkHimalaya)
-[!\[\]()!\[\](https://spark.adobe.com/page/hCbZVLfqUImjo/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/hCbZVLfqUImjo/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
-
-0
+1+

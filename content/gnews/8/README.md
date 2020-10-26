@@ -1,92 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 曾为中共的五斗米折腰，如今英国学术界悬崖勒马
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/455064/)
+## 重磅! 更多不雅照流出，亨特背后刺青是否与性奴交易有关？
+` GM10` [轉載自GNews](https://gnews.org/zh-hans/455057/)
 
-*新闻来源：The Times 《泰晤士报》；作者：Edward Lucas；发布时间： 2020年10月16日*
+**作者: Dogman**
 
-*翻译：Cathy r/ Marialu；简评/校对：1818；审核：海阔天空 ；Page：拱卒*
+近日，美国总统民主党候选人乔拜登之子，亨特拜登的不雅视频和照片一经流出，在网络上掀起巨大波浪（Ref 1）。在GTV的网站上，关于亨特拜登的多个不雅视频浏览量高达百万（Ref 2，Ref 3）。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Iu27ByH8nVP4y/images/cfea98d4-1faf-4c35-8620-b52cd1253cf5.jpg?asset_id=84db45c3-fe37-4d7f-9713-8a30f077734e&amp;img_etag=%22feddd56607dca88ccc039d90b13eaf93%22&amp;size=1024)](https://spark.adobe.com/page/Iu27ByH8nVP4y/images/cfea98d4-1faf-4c35-8620-b52cd1253cf5.jpg?asset_id=84db45c3-fe37-4d7f-9713-8a30f077734e&amp;img_etag=%22feddd56607dca88ccc039d90b13eaf93%22&amp;size=1024)
+10月25日，在gnews.org网站上所发表的一篇文章中（Ref 4），登出一张亨特拜登带有背后刺青的自拍照，引起网友广泛的猜测。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25230031/Picture-2-1.png)
+（来源：Ref 4）
 
-**简评：**
+亨特拜登后背的刺青呈上下方向的不规则条形状。多位网友和论坛对此进行了解读。（Ref 5, 6）。多数网友表示，亨特的背后刺青，与纽约上州的Finger Lakes形状走向基本一致。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25230102/Picture-3.png)
+(来源：Ref 7)
 
-“英国是一个自由的国家。但对于这里的中共国学生来说，生活与在国内的独裁统治下没有什么不同。”文中明确表达了直至今日，英国大学界才慢慢觉醒，对于中共种种渗透感到不寒而栗，中共的阴影笼罩整个学界，如同“一只巨大的蟒蛇盘绕在头顶的吊灯上。通常情况下，大蟒蛇不会移动。它不需要这样做。”
+而围绕在Finger Lakes周边发生的贩卖儿童当做性奴的事件一直层出不穷（Ref 8, 9）。 读者不禁要问，为何亨特拜登要将如此有争议的图案当作背后刺青？
 
-文中所列的几个例子也非常鲜明地说明了中共的“萝卜大棒”流氓规则：
+而此前，纽约前市长朱利安尼先生在多次采访时称（Ref 10, 11），确认亨特拜登的硬盘中含有“无数张未成年女孩的照片”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25230137/Picture-4.png)
+（来源：Ref 10 ）
 
-1. 不能和被中共定义为“政治难民”交往，被怀疑对象将被无死角地监控，甚至胁迫海外留学生作为移动监控设备，以及以国内家人安危作为威胁地条件；
+由此进一步引发网友的猜测，难道亨特拜登与儿童贩卖有关系？
 
-2. 招募让中共国学生参与间谍活动，特别是窃取技术和其它机秘，以及利用他们遏制对中国共产党的批评，比如驻英大使馆召见学生写驳斥批评中共侵犯人权的文章；
+Reference:
 
-3. 组织大陆学生进行反示威，压过香港支持民主的抗议学生的声势；
+1. [https://gnews.org/](https://gnews.org/)
+2. [https://gtv.org/web/#/VideoPlay\_UI](https://gtv.org/web/#/VideoPlay_UI)
+3. [https://gtv.org/web/#/VideoPlay\_UI](https://gtv.org/web/#/VideoPlay_UI)
+4. [https://gnews.org/451659/](https://gnews.org/451659/)
+5. [https://www.youtube.com/watch?v=umsNHexBy0o](https://www.youtube.com/watch?v=umsNHexBy0o)
+6. [https://thedonald.win/p/11PVkQAkRb/hunter-biden-has-back-tattoo-of-/c/](https://thedonald.win/p/11PVkQAkRb/hunter-biden-has-back-tattoo-of-/c/)
+7. [https://boards.4chan.org/pol/thread/284673974](https://boards.4chan.org/pol/thread/284673974)
+8. [https://www.cacfingerlakes.org/sex-trafficking](https://www.cacfingerlakes.org/sex-trafficking)
+9. [https://www.mpnnow.com/news/20191109/human-trafficking-in-finger-lakes-region-its-real-and-its-here](https://www.mpnnow.com/news/20191109/human-trafficking-in-finger-lakes-region-its-real-and-its-here)
+10. [https://thenationalpulse.com/breaking/giuliani-hunter-biden/](https://thenationalpulse.com/breaking/giuliani-hunter-biden/)
+11. [https://twitter.com/dcexaminer/status/1318707167483121664?s=20](https://twitter.com/dcexaminer/status/1318707167483121664?s=20)
 
-4. 伪造电子邮件陷害对中共持批评意见的人士，甚至以他人名义开个人邮箱发送辞职信，并对其发送死亡威胁；
-
-5. 令人惊讶的是，面对中共步步紧逼，英国大学界几乎集体失声，教授们只能私下采用保护学生安全的方式，美其名曰“姗姗来迟的英国正在采取对策”，例如一对一教学，筛选删除敏感课题及教材进行授课，或是让学生采用纸笔手写的方式避免被网络黑客等等。在英国大学，对中共审查制度的应对竟然也形成了一套“自我审查”，和墙内百姓又有何异！看来为了中共给的“五斗米”，英国学界也纷纷屈服于其淫威之下，所谓的“采取对策”也只是委曲求全。对于中共之恶，不遏制就是纵容，为了保护英国自由开放平等的学术环境和国际学生不被胁迫、安全的求学生活，该是采取行动的时候了，光是意识到中共国对英国的影响力和其他国家不是一个等量级是远远不够的！
-
-**我们的大学为获得中共国的现金而牺牲了学术自由**
-
-**爱德华·卢卡斯（Edward Lucas）说，中国共产党对英国校园的恶性影响已经被忽略了太长时间。**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Iu27ByH8nVP4y/images/f25a9cea-2fd8-47b2-b680-d77ed2243d1d.jpg?asset_id=5cc88234-e2a5-47fa-a21d-bce58b8eed08&amp;img_etag=%2235a42991637ad4d9d601077995f1ab58%22&amp;size=1024)](https://spark.adobe.com/page/Iu27ByH8nVP4y/images/f25a9cea-2fd8-47b2-b680-d77ed2243d1d.jpg?asset_id=5cc88234-e2a5-47fa-a21d-bce58b8eed08&amp;img_etag=%2235a42991637ad4d9d601077995f1ab58%22&amp;size=1024)剑桥大学承诺调查外界对其学生的干扰
-
-
-“已经太晚了，”这位21岁的学生在伦敦最著名的大学里说，痛苦刻在他的脸上。“这所大学已经变红了。”他正在和他的老朋友的母亲交谈，解释说他必须切断联系。作为来自中共国的政治难民，她（母亲）和她的家人在中共政权眼中是罪犯。与他们交往会危及他和他在中共国的家人。他解释说，不可能有例外。他的手机（使用强制性的中共国电话号码）被监控，深入接触学生的中共国间谍会监控学生人身自由，甚至他离开校园他们也会注意到的。
-
-英国是一个自由的国家。但对于这里的中共国学生来说，生活与在国内的独裁统治下没有什么不同。表达观点是危险的；即使是寻求庇护也有可能使（在中共国）家里的亲人被报复。维吾尔穆斯林少数群体的成员特别容易受到伤害：如果他们跨过红线，他们的家人可能会被发配到中共政权臭名昭著的再教育营中遭受酷刑和强迫劳动。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Iu27ByH8nVP4y/images/eb900c95-7b63-4339-b014-f8761064268d.jpg?asset_id=2a1e6168-77e5-47d0-a9da-b7e5007eb114&amp;img_etag=%229b82b9a4841679203f11adfd98f53328%22&amp;size=1024)](https://spark.adobe.com/page/Iu27ByH8nVP4y/images/eb900c95-7b63-4339-b014-f8761064268d.jpg?asset_id=2a1e6168-77e5-47d0-a9da-b7e5007eb114&amp;img_etag=%229b82b9a4841679203f11adfd98f53328%22&amp;size=1024)
-
-这个控制系统的一个目标是招募中共国学生参与间谍活动，特别是窃取技术和其它机密，二是遏制对中国共产党的批评。在剑桥大学学习的尤利西斯·周（Ulysses Chow）是许多来自香港的支持民主的学生之一，他发现他们的收件箱里充斥着辱骂和恶作剧（信件）。学生们说，他们被组织起来进行反示威，以声势压倒那些抗议中共政权镇压政策的人，尽管（反示威的）他们私下认同抗议者的观点。中共国驻伦敦大使馆召见了上文中的学生，该学生紧张地要求（本报道中）不使用他的名字，并且（大使馆）吩咐他写一篇文章反驳媒体对中共国侵犯人权行为的批评。
-
-即使是敢于批评共产党的非中共国人也面临着骚扰。令人吃惊的是，他们往往很少能得到英国大学的支持。今年早些时候，有一系列伪造的电子邮件针对中共政权的主要批评者。诺丁汉大学（Nottingham University）一位直言不讳的政治学教授安德烈亚斯·富尔达(Andreas Fulda)惊讶地发现，他已经辞去了自己的职务——辞职信是从以他的名义开设的一个电子邮件账户上发送的，后来他收到了死亡威胁。
-
-去年英国下议院外交事务委员会(Commons Foreign Affairs Committee)称之为中共国“令人震惊”的干涉模式背后，是艰难的政治目标。 其一是，对中共国的任何描述或讨论，无论在世界任何地方，都是对中共政权合法性的潜在威胁，必须加以控制。好莱坞非常依赖中共国市场，1997年以来就没有拍过批评中共国的电影。现在我们的大学正朝着同样的方向发展。
-
-根本问题是，西方文化机构被鼓励在国内和海外创业——争夺客户、赞助商和合作伙伴。因此，很少阻止他们与专制国家进行交易。虽然西方社会很少人发现我们制度中的这个漏洞，但中共国政权发现了。它利用其巨大的商业和金融力量来开发它。对于大学来说，寻找赠款和研究合同以及吸引学生和工作人员的需要是工作中很大的难点。另一个是海外校园：利兹大学、利物浦大学、诺丁汉大学和伯明翰城市大学都在中共国设有分校。甚至对学术生涯至关重要的实地考察能力也被（中共）利用来施加影响。
-
-直到现在，英国才意识到对（来自）中共国压力的长期担忧。美国学者佩里·林克(Perry Link)在2002年的《纽约图书评论》(New York Review of Books)上写了一篇引人注目的文章，将中共国审查制度这一异国阴影比作“一只巨大的蟒蛇盘绕在头顶的吊灯上。通常情况下，大蟒蛇不会移动。它不需要这样做。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Iu27ByH8nVP4y/images/02fa44f0-d02e-4b6c-90c4-f61d2e841253.jpg?asset_id=d9e860cf-34c4-4164-aeb0-bf4aaae7dba0&amp;img_etag=%22babbe5ef39d92fefd0304e4f32bc7824%22&amp;size=1024)](https://spark.adobe.com/page/Iu27ByH8nVP4y/images/02fa44f0-d02e-4b6c-90c4-f61d2e841253.jpg?asset_id=d9e860cf-34c4-4164-aeb0-bf4aaae7dba0&amp;img_etag=%22babbe5ef39d92fefd0304e4f32bc7824%22&amp;size=1024)英国政府正在考虑对来自中国的学生和研究人员进行限制，因为担心他们可能会与中国人分享美国的技术和商业机密. 路透社。
-
-
-英国和其它国家的第一反应是限制中共国研究人员进入材料科学、量子计算和人工智能等敏感领域。现在，人们对学术自由的担忧加剧了。香港的国家安全法第38条包含了全面的治外法权条款，这些条款可能会将任何人、在任何地方对中共国制度的批评定为刑事犯罪。批评人士说，任何访问香港或中共国，或（入境）有按北京要求引渡人员记录的泰国等国家的教师或学生，都有可能因其言论或研究而被捕。中共国驻伦敦大使馆发言人表示不同意。他说：“中共国没有统治世界的野心[并且]尊重学术自由。我们从未对英国大学的正常学术活动施加过任何政治影响。某些势力滥用言论自由，散布谬误，欺骗公众，煽动分裂和动乱，破坏中共国稳定，将遭到中国人民的坚决反对。”
-
-100多位学者发表了一封公开信，批评国家安全法。公开信警告说，中共党国正在“武装（中共国）学生监控他们的大学教授”。这封信的策划者之一是诺丁汉大学的富尔达教授，他是《中共国大陆、台湾和香港的民主斗争》（The Struggle for Democracy in Mainland China, Taiwan and Hong Kong）一书的作者，此书对北京政权正在蔓延的独裁统治进行了强硬的抨击。出版后，他接受他将不能再去香港或中共国（的事实）。“我知道这是我必须付出的代价，”他说。但他表示，新法律（国安法）在煽动自我审查方面是一个“游戏规则改变者”。
-
-危险的领域远超出了历史和政治等显而易见的主题。 例如，人类起源于非洲的科学理论, 尽管在国外被广泛接受，但在中共国却遭到强烈的质疑。它与根深蒂固的种族民族主义信仰相冲突，即汉人是民间传说中“黄帝”的后裔，具有相应而独特的身体、心理、智力甚至道德特征。
-
-中共国非常关注许多英国人视之为细节的问题，例如对被围困的台湾的定名。 在中共国的压力下，由英国文化协会（British Council）和剑桥大学（Cambridge University）共同拥有的国际英语语言测试系统（简称：雅思考试）（International English Language Testing System）选择北京方面更喜欢用的术语“中国台湾省”来指代这个民主、主权国家。总部位于剑桥的鸟类保护组织（Birdlife）出于中共国对术语的敏感性，取消了与台湾同行的合作关系。这种压力旨在使“另一个中国”边缘化和锐气受挫，中共政权将其视为反叛省份，而非独立国家。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Iu27ByH8nVP4y/images/fef3ea53-c452-4358-842c-31071231044b.jpg?asset_id=8d3cf2c5-56b4-4a71-8020-63fc73725f67&amp;img_etag=%222dae5087b533ed5f92e805e7dcf87558%22&amp;size=2560)](https://spark.adobe.com/page/Iu27ByH8nVP4y/images/fef3ea53-c452-4358-842c-31071231044b.jpg?asset_id=8d3cf2c5-56b4-4a71-8020-63fc73725f67&amp;img_etag=%222dae5087b533ed5f92e805e7dcf87558%22&amp;size=1024)在埃克塞特大学（Exeter University）对习近平处理香港问题的抗议活动
-
-
-其他的自我审查也有直接的影响。富尔达教授（Fulda)说：“相当多的学者会说‘我不想惹麻烦，我不想冒犯中共（和中共打架）’”。唯利是图的出版商从学术期刊中剔除批评中共国的内容。中国留学生回避敏感教材的课程模块，或者以不会在国内惹麻烦的方式完成作业。
-
-英国学者对其他国家的事态发展感到震惊。塔斯马尼亚大学的卡兹·罗斯（Kaz Ross）为中国大陆和香港的学生开办了她所谓的“政治精英”课程，使用不同的阅读清单和教学大纲。她解释说，她把他们的安全放在第一位。新西兰奥克兰大学的一位讲师最近警告学生不要提出诸如“天安门广场；维吾尔集中营；香港民主；台湾；西藏；法轮功；批评习近平”这样的话题，因为这样做可能会危及来自中国和香港的学生。
-
-新西兰坎特伯雷大学（University of Canterbury）的安妮•玛丽•布莱迪（Anne-Marie-Brady）是一位中共国影响力行动方面的著名专家，她因副校长在向议会就中共国干预问题进行调查的证据中存在的错误和“误导性推论”，而一直保持沉默。校方没有透露细节。她的律师斯蒂芬·弗兰克斯（Stephen Franks）表示，禁止她向媒体发表言论，表面上是为了保护隐私，（但）这是“虚假的”，并补充说，学术纠纷应通过辩论而不是纪律处分来解决。
-
-尽管中共国的规则越来越多地作用于西方校园，而西方规则却不适用于外国大学在中共国的校园。 在那里，内容也经过了严格的调整，以符合当地的敏感度。简言之，急需资金的大学与中共的控制狂之间的互动交流对学术自由是致命的。
-
-姗姗来迟的英国正在采取对策。牛津大学表示，它将为可能面临风险的学生提供一对一的教学。其他机构则计划允许学生匿名和用老式纸张提交作品，这样中共间谍无法对其黑客入侵。英国高等教育伞形组织—英国大学（universitys UK）周四发布了一份备受期待的关于外国合作风险的报告。其主要建议是，理事机构委托编写一份关于国际关系及其潜在不利因素的年度报告。
-
-令人惊讶的是，他们的报告与北京的作用是不可知的。 “中国”一词在近60页的篇幅中没有出现。确实其他国家也存在问题。几十年来，沙特的资金一直歪曲了英国的学术调查。“安全”科目获得大量资助。具有潜在爆炸性的话题，比如对早期《古兰经》文本差异的研究，让人怀疑《古兰经》绝对是从天使的口述中抄写而成的穆斯林教义，则更为棘手。俄罗斯、伊朗、哈萨克斯坦、土耳其和海湾国家也或多或少地成功地暗中监视“麻烦生”并影响课程的内容和研究。但中共国的影响力则是另一个等量级。
-
-[原文链接](https://www.thetimes.co.uk/article/our-universities-have-sacrificed-academic-liberty-for-chinese-cash-hltnh8395)
-
-编辑：[【喜马拉雅战鹰团】](https://spark.adobe.com/page/Iu27ByH8nVP4y/)-点击spark adobe版
-
-【战鹰团Gab】：[https://gab.com/himalayahawks](https://gab.com/himalayahawks)
-
-【英喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
-
-【英喜庄园GTV/盖特】:
-
-[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-![]()![](https://spark.adobe.com/page/Iu27ByH8nVP4y/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

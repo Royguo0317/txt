@@ -1,50 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 达摩克利斯之剑出鞘
-` 温哥华加喜农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/453275/)
+## 使用谷歌AI翻译软件小心CCP植入BUG
+` GM06` [轉載自GNews](https://gnews.org/zh-hans/453261/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25142744/hunter5.png)
-这张路德放出的照片是享特.拜登在2013年访问中国时偷拍视频中的截图。当时他在北京东方集团张宏伟的私人俱乐部吸食毒品。给他点烟，陪睡的是十亿菲，被中共国用来代表我们华人女性形象的花木兰再次轰然垮塌。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25142818/lyf1.png)
-绿水青山小白羊，左右逢源马明哲。
+供稿：喜马拉雅#8560  出品：首尔喜韩农场
 
-十亿菲与百亿甜，外表清纯实淫乱。
+大家都在积蓄力量和子弹，参加到爆料革命终极之战。这里提醒：使用AI翻译软件的战友当心，有不止一位战友发现 Google Translate出现了非常诡异/危险的 BUG！如图：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25142834/b.png)
+有战友在实践中发现，谷歌翻译对Joe Biden做了定向翻译干预！输入Joe Biden输掉大选，谷歌竟然会改成Trump 输掉大选!这会让完全不会英文或太信任谷歌翻译的战友被骗。
 
-我们也更清晰的认识到
+在此之前，也有朋友发现谷歌翻自动篡改内容，导致相反的翻译结果出来。看来Deepstate沼泽大鱼还在垂死挣扎，CCP还在伸出爪牙作恶，我们要当心掉坑。
 
-不论国界，种族和产业如何，大多数政治和商业权力都已经被恶魔缠身，被中共蓝金黄。
+而我本人在自己电脑上测试，尚未发现异常。猜测：Google Translate对不同区域、不同用户分类区别处理了。因此，涉及到美国政治人物或敏感话题的翻译，务必留神！大家可以尝试其他引擎或翻译工具。如：DeepL Pro，有道翻译，REVERSO [https://www.reverso.net/text\_translation.aspx?lang=ZH](https://www.reverso.net/text_translation.aspx?lang=ZH)等。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25142909/b1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25142927/b2.png)
+不同的翻译工具或网站里，特色和功能各不相同，语言种类也不同。比如有的有检查拼写错误，有推荐同义词、反义词等，期待各位大咖战友补充。
 
-然后他们再黑白颠倒，坏人变好人，明星变娼妓触目惊心的盗国贼吸血鬼群体。The CCP Virus困扰着全人类，疯狂仍在继续…
-
-与此同时，
-
-当天川普佛州演讲再称拜登硬盘来自地狱，
-
-OANN名主持里昂证实硬盘遭性侵14岁女孩为拜登孙女
-
-而朱利安尼市长更发表了激情四射的讲话：
-
-我保证会尽全力彻底排干沼泽，我们现在非常清楚沼泽是谁了
-
-祈求上帝从这场灾难中拯救我们的共和国！
-
-只有你们能拯救美国，用选票阻止这些腐败政客进入白宫！
-
-在全球疫情肆虐，
-
-邪魔当道，人类进入转折点时，英雄们纷纷站起来，举起手中的达摩克利斯之剑！
-
-他们的存在，
-
-终将让邪恶惩罚，
-
-让良知看到希望。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25143028/view1.png)
-作者：昔马千羽
-
-原创观点文章 – 2020/10/25
-
-温哥华加喜农场
-
-2+
+1+
