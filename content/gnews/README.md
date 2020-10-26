@@ -13,8 +13,8 @@
 
 
 
-### [突发！德州现场升级，Bob傅支持者无理挑衅并推到和平示威者，当地警察无动于衷！](/content/gnews/1/README.md)
- ` GM01`
+### [爆料革命终极之战系列二：路德社曝光习近平签字后，中共将拜登出卖的第一批36名CIA线人，诱骗至会议室后枪杀并拍成视频恐吓相关人员](/content/gnews/1/README.md)
+ ` GM101`
 
 ### [【热点播报】47块硬盘！谁掩盖了拜登父子犯罪卖国反人类的证据！](/content/gnews/2/README.md)
  ` 纽约香草山农场`
@@ -133,6 +133,24 @@
 ### [美国、苏丹共和国和以色列国联合声明](/content/gnews/40/README.md)
  ` Isaiah4031`
 
-### [【经验分享】推特战争——夺命十三天](/content/gnews/41/README.md)
+### [突发！德州现场升级，Bob傅支持者无理挑衅并推到和平示威者，当地警察无动于衷！](/content/gnews/41/README.md)
+ ` GM01`
+
+### [【经验分享】推特战争——夺命十三天](/content/gnews/42/README.md)
  ` shangshang`
+
+### [美国又一外交胜利：川普总统促成了苏丹和以色列之间的和平协议](/content/gnews/43/README.md)
+ ` Isaiah4031`
+
+### [【香港要闻】【明日大屿】经济学者估政府储备最快2027年耗尽](/content/gnews/44/README.md)
+ ` GM42`
+
+### [正义与邪恶的终极之战已拉开帷幕！](/content/gnews/45/README.md)
+ ` 喜马拉雅-华盛顿DC站`
+
+### [文贵说｜系列图片连载（二十八）](/content/gnews/46/README.md)
+ ` GM98`
+
+### [光的启示录 《拜登家族与中共关系调查报告》](/content/gnews/47/README.md)
+ ` gnewscanada`
 
