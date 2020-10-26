@@ -1,22 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 🎉祝贺郭先生最新单曲《Fight For Hong Kong》iTunes多国排名第一🥇, 再创奇迹
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/455443/)
+## 推特你野蛮封杀我们的账号，股票价格还有脸涨？
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/456931/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26010421/1-233.png)
-2020年10月25日（EST），郭文贵先生最新灭共单曲“为香港而战”（“Fight For Hong Kong”）首次上线，由郭文贵先生主创，G Music音乐团队联合制作，在短短十几个小时内再次登上iTunes音乐平台多个国家的榜单前列，再创全球音乐史奇迹。
+从昨天开始，推特开始了野蛮的封杀账号行动，连路德大咖的账号也全军覆没，任何与亨特拜登，Gnews 网站文章，GTV字样的统统灭掉。顿时间狼烟四起，几家欢喜几家愁， 一个我从来没听说过的类似推特的网站昨天迅即新开户90万，乐得老板今天早上亲自用中文发推报喜。我也牺牲了两个账号，为了表示抗议，我又加入了另个类似的叫做gab 的网站。
 
-## **香港iTunes排名第一**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26011814/2-123.png)10月25日 @11pm（EST）的排名截图
-## 新西兰**iTunes**排名第一
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26012421/5-32.png)10月25日 @11pm（EST）的排名截图
-## 柬埔寨**iTunes**排名第一
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26012315/4-48.png)10月25日 @11pm（EST）的排名截图
-## 新加坡**iTunes**排名第二
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26012012/3-76.png)10月25日 @11pm（EST）的排名截图
-## 加纳**iTunes**排名第二
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26012507/6-20.png)10月25日 @11pm（EST）的排名截图![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26013225/1-235.png)
-**苹果音乐🎵下载：[https://music.apple.com/us/album/fight-for-hong-kong-single/1537277836](https://music.apple.com/us/album/fight-for-hong-kong-single/1537277836)**
+这些社交网络媒体平台其实都差不多，但也差很多，Gab是一个美国的社交网络服务网站， 宣称支持“言论自由”和成为Twitter的替代品。它允许用户发表最多300个字符的消息，称为“gabs”。Gab 将全世界的保守主义者、民族主义者和民粹主义者视为目标市场，并将极右翼阴谋论网站布赖特巴特新闻网和InfoWars视为其主要竞争对手。
+
+这简直就是我们的盟友啊！所有亨特拜登那些见不得人的勾当全让发。
+
+推特一夜间跑了至少100万账号，那这么下去，谁还玩推特？突发奇想，去看看它今天以及近期的股票价格。
+
+你猜，怎么着？今年九月八日低至$38.19, 而今天？¥50.44
+
+这简直是见鬼了！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26080116/qc2TPJSeEvk3CwHsHQ_thumb_8b89.jpg)
+你猜，怎么着？今年九月八日低至$38.19, 而今天？¥50.44
+
+这简直是见鬼了！
+
+原创：Jenny
 
 0

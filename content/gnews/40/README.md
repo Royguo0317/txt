@@ -1,73 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班农疫情作战室447/448期
-` GM47` [轉載自GNews](https://gnews.org/zh-hans/455660/)
+## 【世界多语言图文】2020/10/17 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/457096/)
 
-战友之家新闻译制组制作
+战友之家图文摘要及小语种组
 
+[266\_English\_1017\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26080712/266_English_1017_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26080712/266_English_1017_CCP_Virus_Updates.pdf)
 
+[266\_French\_1017\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26080714/266_French_1017_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26080714/266_French_1017_CCP_Virus_Updates.pdf)
 
+[266\_German\_1017\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26080713/266_German_1017_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26080713/266_German_1017_CCP_Virus_Updates.pdf)
 
+[266\_Japanese\_1017\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26080713/266_Japanese_1017_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26080713/266_Japanese_1017_CCP_Virus_Updates.pdf)
 
-447/448.摘要
+[266\_Korean\_1017\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26080713/266_Korean_1017_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26080713/266_Korean_1017_CCP_Virus_Updates.pdf)
 
-班农：
-
-硬盘电邮公开后，乔拜登躲起来5天，没有否认指控。这是个公开的秘密，拜登是来卖的。问题不在于做儿子的吸毒，而是更严重的系统性违反国家安全。
-
-朱利安尼(前纽约市长，任内运用Rico法案成攻赶走纽约黑手党五大家族)：
-
-有大量证据显示，三十年来，拜登家族利用乔拜登的职位来获取利益。
-
-亨特拜登在他的硬盘上说：「我照顾家族大部份的费用，把一半给了爸爸」。
-
-乔拜登把有毒瘾的儿子放到一个高度犯罪的环境，让他围绕世界上最危险的一羣人，有这样问题的孩子应该让他生活简单，找个工作，建立信心，而不是用他来做沙包。乔拜登不是好人，川普说过，他非常坏。
-
-有许多方式证明硬盘的真实，其一是亨特的律师曾致电计算机维修店店主要求取回硬盘。接下来24-48小时会公布其他的金融犯罪，还有个人的犯罪行为。
-
-这节目影响了很多人，我们穿越了铁幕。
-
-班农：
-
-朱利安尼，911救灾英雄，如今是圣战者，揭发拜登家族的不法行为，仅管受嘲讽攻击也不能阻止他。
-
-推特正在全球性地关闭爆料革命账号，因为他们看到亚洲人渴望自由，被偷走自由的平民百姓会讨伐那些偷走他们自由的人。拜登家族手上沾满了中国人民的血，他们从世界上最差的独裁政权之下最差的公司里最坏的人那里拿钱
-
-。
-
-朱利安尼已说这不只是经济犯罪，还有其他的犯罪行为。这将是一场政治风暴。
-
-参加川普集会的人，有三分之一是没有登记的民主党党人。
-
-简单说，谁赢了宾州东北部，谁就是下任总统。
-
-贾斯汀泰勒(民主党人，宾夕法尼亚州卡本代尔市长)：
-
-我们有非常强大的工业制造和劳动阶级背景，50年前民主党和共和党人数比例是4：1，一个非常倾民主党的城市；现在选民的10％是新共和党人。宾州东北部人民的核心价值是上帝、家庭、国家和工作， 我没有从拜登团队那里看到这些内容。
-
-我是民主党，我的爷爷在我18岁时对我说：「你要成为民主党」，但是我不能对儿子这样说，我感觉自己被民主党抛弃， 像我们这样的人越来越多。
-
-我看到众多的川普支持者，我看到共和党巨大的胜利，
-
-老实说，纵观美国，每个人都看到。那些希望美国再次兴旺，对国家前景乐观的人们，
-
-会有重大影响力，会令川普总统再次取得巨大胜利。
-
-马修图尔曼(调查记者)：
-
-爆料人贝文库尼(亨特拜登合伙人，在服刑中)成为亨特拜登和克里斯汉斯出售政治影响力的替罪羊。他曾近距离地了解拜登家族，非常震惊拜登成为民主党的总统候选人，
-
-也无法相信这样的人可能成为美国总统。他希望将故事披露，让美国人可以明智地判断。
-
-渤海华美，一个经济实体，是他们建立的门户机构，为中共、国有企业与西方投资者和西方政府之间搭桥，进行收购与投资的金融游戏。
-
-双方的裙带关系都涉及最高层，我们知道他们与中共有联系，美方这边就是奥巴马政府的驻华大使马克斯 鲍克斯。在电邮中看到的证据非常清楚，他们一直在鲍克斯办公室开会，签署合同，得到美国政府的认可和批准。渤海华美的交易达15亿美元，但是在经营管理上，用了没有董事会经验，有吸毒习惯的亨特。所涉的达㓇斯派人士包括两党。庆柷交易成功的照片在取得中。
-
-这是个开端，另有26000封电邮在研究中。
-
-城堡(爆料革命支持者)：
-
-过去24小时内推特封禁了大量战友的推特账号，自从我们开始在华人间传递纽约邮报有关拜登的的消息。这样大规模的关闭账号是不正常的。这是推特，脸书，谷歌，和其他网络巨头建立的另类防火墙，以压制我们的言论自由。
+[266\_Spanish\_1017\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26082047/266_Spanish_1017_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26082047/266_Spanish_1017_CCP_Virus_Updates.pdf)
 
 0
