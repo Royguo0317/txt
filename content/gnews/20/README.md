@@ -1,24 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国版挟天子以令诸侯
-` 温哥华加喜农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/459610/)
+## Joe Biden Using facial recognition to monitor the inside of the White House
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/459887/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26184846/obama.jpg)
-今天路德社节目又爆出核弹级内幕，一张白宫总统办公室的照片，居然隐藏着惊天秘密。原来奥巴马总统只是乔.拜登儿子的马仔，这太令人大跌眼境了。原来以为是奥巴马为了自己的私利，利用总统的职权与中共勾兑，没想到他居然只是中共控制的拜登家族的一个马仔，一个彻头彻尾的傀儡总统。这让美国人民情何以堪？这可是他们一票一票选出来的民选总统啊！中共居然在美国上演了一场挟天子以令诸侯的闹剧！作为中国人是很熟悉这个历史典故的，但是美国人不知道，而且我相信他们也不能接受。这件事情必将在美国内部引起深刻的讨论，究竟美国是怎么被中共玩坏的？
+【Japan Himalaya League】JPHIMALAYAwriter: 宇宙之泾  proofread: CCP擀面杖子
 
-中共的领导人中，许多人是熟读历史的，像毛泽东，王岐山，都可以称的上是历史学家。但他们专门研究弄权之术，三十六计用的炉火纯青。毛泽东推崇的秦皇汉武，一个是建立中央集权独裁统治并且焚书坑儒的暴君；一个是建立中央财税体制，篡改儒家经典，全面进行愚民的历史罪人。王岐山更是推崇《商君书》，直接借鉴商鞅的驭民五术，对中国人民进行残暴的统治。
+We all knew that the Biden family conspired with the Chinese Communist Party to sell out the interests of two countries and intelligence agents in return for huge personal gains. The Biden family operates through Joe Biden’s son Hunter Biden, to do the inappropriate things will be alleged serious crimes.
 
-中共内部从成立以来，也是争权夺利，不断的伴随着血腥的屠杀与火拼。他们在长期的内斗中积累了丰富的经验，既能打击政治对手，又能保持长期把控中国。他们在斗争中找到了平衡，斗而不散，确实是把权术玩出了新的高度。现在他们要把这种模式复制到全世界，在美国奥巴马总统身上小试牛刀，不但成功了，而且美国人民还浑然不知，这件事细想起来太恐怖了，就像是一位武林高手正在炫耀自己的武功有多厉害的时候，突然被人从背后点了死穴。这对美国人民、美国军方都是莫大的讽刺与侮辱。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26200439/%E5%9B%B31-12.png)
 
-川普总统在昨天的演讲中也说，没想到美国的沼泽地如此之深。也许2016年他竞选总统的时候，还只是看到了美国经济衰退这个层面，所以他提出了让美国再次伟大的口号，并且在当选之后，他致力于恢复美国经济，把产业链拉回美国，解决就业，改善民生，取得了一定的成绩。但是中共病毒的肆虐，让川普总统认清了当前的形势，白宫已沦陷，美国已危矣！在这种情况下，川普总统毅然选择了为美国人民而战！
+These men steal these countries, a group of thievery, to hold through Bohai Capital financial group trade. Hunter Biden is a shareholder in Bohai Huamei company .Wang Xi is the illegitimate daughter of CCP’s vice chairman Wang Qishan. She is the company’s finance director.
 
-文贵先生一再说，美国是一个伟大的国家，美国人民是伟大的，就是因为每次在关键的历史节点上，总有正义的力量站出来，捍卫美国，捍卫自由，成为美国真正的定海神针。现在美国又一次站在了历史的十字路口，美国人民一定会拿起武器与总统并肩作战，彻底排干沼泽，让美国真正再次伟大！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26200759/%EF%BC%92-125.png)
 
-作者：比卡丘
+Let us observe some of the details of the report from Miles Guo:
 
-原创观点文章 – 2020/10/26
+SMRA records show that HUNTER purchased 10% of BHR on October 23, 2017 (via his investment vehicle Skaneateles LLC) and was a director until April 20, 2020. Previously he was invested via other holding companies.
 
-温哥华加喜农场
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26201309/%EF%BC%93-79.png)
+
+BHR’s current shareholders are Bohai Capital (30%), Shanghai Ample Harvest Financial Services Group Co Ltd (30%), Angju Investment (10%), Thornton (10%), Ulysses Diversified Inc (10%), Skaneateles LLC (10%). According to Chinese corporate records, the original owner of the US stake in BHR was Rosemont, Seneca Thornton, LLC with a 30% shareholding. This was split just under two years later into what is believed to be 20%/10% holding between Rosemont, Seneca, Bohai LLC and Thornton LLC. This was later changed again splitting Rosemont, Seneca, Bohai into Skanletes and Ulyssees. As Rosemont is the HEINZ KERRY vehicle and Seneca is the Biden vehicle, it is believed that the final split allowed HEINZ to exit the partnership divesting to ARCHER.
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26201437/%EF%BC%94-50.png)
+
+In summary, the Chinese government funded a business that , as it were, co-owned along with the son of a sitting US vice president and Secretary of State who was with high probability directly or indirectly invested in the holding company.
+
+On May 7 – 8 2014, HUNTER visited China for the fifth time, for undisclosed reasons, according to FOIA records.
+
+They heard about the multinational group laundering money and also passing it through China’s financial system to legalize the proceeds.
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26201503/%EF%BC%95-5.png)
+
+$1 billion within 26 hours in exchange for Obama’s acquiescence to Chinese Communist militarization of islands and reefs in the South China Sea.
+
+Here we have a great problem: how much money did Obama receive?! And rather importantly：Who monitored Obama’s presence with a facial recognition system in the Oval Office White House? Our New Federal of the China’s media LuDe told us its from Joe Biden. 2020 the US Democratic party presidential candidate.
+
+(All the pictures from GTV)
+
+
 
 0

@@ -1,43 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Joe Biden Using facial recognition to monitor the inside of the White House
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/459887/)
+## 川普的黄金精神
+` GM30` [轉載自GNews](https://gnews.org/zh-hans/459882/)
 
-【Japan Himalaya League】JPHIMALAYAwriter: 宇宙之泾  proofread: CCP擀面杖子
+**作者：柏熙**
 
-We all knew that the Biden family conspired with the Chinese Communist Party to sell out the interests of two countries and intelligence agents in return for huge personal gains. The Biden family operates through Joe Biden’s son Hunter Biden, to do the inappropriate things will be alleged serious crimes.
+川普是一个奇迹，他是具有黄金精神的总统。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26200439/%E5%9B%B31-12.png)
+虽然写本文的时候，距离2020年美国大选仍有10天，相信本文的读者一定不会有怀疑：川普在本次竞选中，会以较大的优势取胜。上帝又一次让川普胜选，让黄金家族具有黄金精神的川普继续他的黄金生涯，上帝再一次眷顾了美国。
 
-These men steal these countries, a group of thievery, to hold through Bohai Capital financial group trade. Hunter Biden is a shareholder in Bohai Huamei company .Wang Xi is the illegitimate daughter of CCP’s vice chairman Wang Qishan. She is the company’s finance director.
+墙内的朋友应该也看过或者听闻过《JoJo的奇妙冒险》这部动画，作者荒木飞吕彦[日] 创作了这部强调命运的作品，其核心精神就是以上的黄金精神：面对也许是必然的命运，做不屈的抗争。有着卓绝的勇气和坦然。就算是螳臂当车，也希望能将命运导向更好的结局。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26200759/%EF%BC%92-125.png)
+川普老爷子，正是具有这样黄金精神的人。他的豪宅，用黄金装饰。黄金是稀有的、抗腐蚀的、珍贵的金属。黄金有着亘古不变的坚定特质，代表着坚持和勇气。在本次美国历史上最大的危机时，川普的横空出世，是上帝赐予美国一次新生的机会。即使这次机会来的较晚一些。他在2016年的胜选，无疑是对美国坚持信心的正义力量的强心针。
 
-Let us observe some of the details of the report from Miles Guo:
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26202222/e0831eacb758094e9ddcd64739c0a634.jpg)
 
-SMRA records show that HUNTER purchased 10% of BHR on October 23, 2017 (via his investment vehicle Skaneateles LLC) and was a director until April 20, 2020. Previously he was invested via other holding companies.
+美国，罗马意志的五个继承人之一。有全世界最成熟也最悠久的宪政体制，有法治、自由、民主现代国家的三驾马车以及世界上最完善的三权分立体系。在自由的指引之下，无数精英，例如爱因斯坦，远渡重洋，也要进入自由的世界。甚至爱因斯坦在1930年写作《我的世界观》时，已经明确了他的选择。他在文中写道：只要是极权国家，不管是极左的、还是极右的，我都反对。此处极左国家指的是苏联，极右国家指的是可能会上台导致种族主义泛滥的纳粹德国（虽然其时纳粹尚未执掌政权）。爱因斯坦明白，只有自由，才能让精英释放自己的创造力，为人类造福；只有自由，才能保证人民对权势者和利益集团的监督，让他们难以作弊；只有自由，才能让法律正义化、为保正义而存在、最终就能让民主通行。这一切都来自于自由。想明白这一切的爱因斯坦，在1933年加入了美国国籍。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26201309/%EF%BC%93-79.png)
+贝聿铭，曾经被网络
 
-BHR’s current shareholders are Bohai Capital (30%), Shanghai Ample Harvest Financial Services Group Co Ltd (30%), Angju Investment (10%), Thornton (10%), Ulysses Diversified Inc (10%), Skaneateles LLC (10%). According to Chinese corporate records, the original owner of the US stake in BHR was Rosemont, Seneca Thornton, LLC with a 30% shareholding. This was split just under two years later into what is believed to be 20%/10% holding between Rosemont, Seneca, Bohai LLC and Thornton LLC. This was later changed again splitting Rosemont, Seneca, Bohai into Skanletes and Ulyssees. As Rosemont is the HEINZ KERRY vehicle and Seneca is the Biden vehicle, it is believed that the final split allowed HEINZ to exit the partnership divesting to ARCHER.
+粉红疯狂吹捧：他是华人最伟大的建筑师，不言而喻。然而，当他们吹嘘贝聿铭爱国时，贝聿铭冷静的回复了一篇文章，引用了爱因斯坦的话“哪里有自由，哪里就是我的祖国”。值此，网络粉红立即停止呛声。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26201437/%EF%BC%94-50.png)
+美国的伟大，来自于罗马意志、自由法治民主三驾马车、三权分立形成的成熟宪政体系，自由是这一切的核心。
 
-In summary, the Chinese government funded a business that , as it were, co-owned along with the son of a sitting US vice president and Secretary of State who was with high probability directly or indirectly invested in the holding company.
+然而，新世纪开始，有人盯上了这块全球最大的蛋糕。美国有着全世界一半以上的创新能力、美国有全世界三分之二以上的军事实力、美国有全世界任何国家无法企及的外太空开发实力、美国有在金融危机后依然最高的经济体量。
 
-On May 7 – 8 2014, HUNTER visited China for the fifth time, for undisclosed reasons, according to FOIA records.
+盯上这个蛋糕的人，虽然核心成员很少，但他们利用利益捆绑的手段，妄图使用舆论误引、虚假新闻轰炸、金主水军等中共国技巧，让美国这块蛋糕也沦陷。让美国被极左翼人士控制，他们控制了媒体、控制了舆论。将美国的自由彻底扼杀，让这个人类文明的灯塔彻底淹没。这里面，涉及了巨大的小集团利益，这块蛋糕，让它们垂涎三尺。
 
-They heard about the multinational group laundering money and also passing it through China’s financial system to legalize the proceeds.
+然而，盯上这块蛋糕的坏家伙，它们的犬儒却堂而皇之的出现在竞选赛场上。向全世界的正义力量宣战，羞辱着每一个美国的爱国者！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26201503/%EF%BC%95-5.png)
+当上帝不再沉睡，它缓慢的苏醒，发现这一切已经到了如此恶劣的境地。然而，那个73岁的老头，却冲了上来。自从1980年开始，他就思考着一切，却从来没有成功过。“他是一个斗士，每次失败后，都钻研的更深入，都变得更加有斗志”。这些年来，他从未向邪恶屈服。即使被操纵的媒体对他百般栽赃，即使他的黄金被污蔑成了邪恶的尘土。但他从来没有放弃过黄金精神。
 
-$1 billion within 26 hours in exchange for Obama’s acquiescence to Chinese Communist militarization of islands and reefs in the South China Sea.
+如果没有川普，少数邪恶分子的计划会成功。他们会抢占白宫，占据美国的权力巅峰。他们会改造美国，将美国变为社会主义国家，他们会利用国家机器掌握所有媒体宣传，让全美国失去自由，控制全美国的创造力、控制全美国的精英和财富。让他们为犬为奴、成为权贵的附庸，让他们甘愿为权贵去洗美国人民的脑，让美国变成第二个中共国，让美国暗无天日。人类文明也许就此覆灭。这不是危言耸听，这是邪恶分子真真实实的计划。很可能，下一步，就是全世界的纳粹化战争，同时拥有中共国和美国，有着中共国这样数量庞大的制造业群体，和美国这样最强的技术国家，它们就可以为所欲为，统治全世界，基因代代传。
 
-Here we have a great problem: how much money did Obama receive?! And rather importantly：Who monitored Obama’s presence with a facial recognition system in the Oval Office White House? Our New Federal of the China’s media LuDe told us its from Joe Biden. 2020 the US Democratic party presidential candidate.
+然而，上帝却重写了撒旦的剧本。2016年，上帝唤醒了美国。2020年，上帝仍在继续这件事。这证明上帝没有变，上帝依然爱着美国。川普的黄金精神，是他的勇气、他的机智、他的信仰。激励着所有美国的正义力量，激励着全世界的正义力量。现在，一部分邪恶的力量也准备切割、脱身、转变了，他们害怕被牵连，他们希望能更快的灭掉邪恶的元凶，为他们开脱。然而，这部分邪恶力量失望的是，川普的黄金豪宅与萨达姆的黄金马桶完全不同，萨达姆的黄金马桶是杜裁、强欲、欺骗与陷害，而川普的黄金精神则恰恰相反。因此他们拿川普的黄金精神毫无办法，用取笑、栽赃、恶毒攻击的手法都无法改变黄金的坚持、黄金的勇敢、黄金的信念。
 
-(All the pictures from GTV)
+这就是川普的黄金精神，他激励了一代人，共同见证这个时代的伟大。他的团队在“排干沼泽”，这一切都会很快结束。留给世人的是，那座山上不朽的浮雕。这不是个人崇拜，因为那座浮雕并不是川普，而是他的“黄金精神”！
 
-
+（文章内容仅代表作者观点）
 
 0
