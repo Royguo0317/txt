@@ -1,68 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】白宫宣布参议院确认艾米 · 科尼 · 巴雷特出任最高法院大法官
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/460208/)
+## 华为、中兴瑞典被禁
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/460540/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26213033/WH_20201026_Amy-cover169.png)图片来源：[https://youtu.be/9pIRkgg2sBQ](https://youtu.be/9pIRkgg2sBQ)
-**Senate Confirms Amy Coney Barrett for Supreme Court**
+*新闻来源：Daily Caller《每日来电》；作者：马洛·萨菲 (Marlo Safi)；发布时间：2020年10月20日*
 
-**参议院确认艾米 · 科尼 · 巴雷特出任最高法院大法官**
+*翻译/简评：Marialu；校对：Beicy-数学老师；审核：海阔天空 ；Page：拱卒*
+[!\[\]()!\[\](https://spark.adobe.com/page/EnQBd9qmxLI7A/images/d681f358-a1eb-4444-82a2-6a22c0282ca2.jpg?asset_id=2e0229b2-f387-4565-996f-0629d65dc812&amp;img_etag=%22bab06b2817049ac71d85b041bb05d006%22&amp;size=1024)](https://spark.adobe.com/page/EnQBd9qmxLI7A/images/d681f358-a1eb-4444-82a2-6a22c0282ca2.jpg?asset_id=2e0229b2-f387-4565-996f-0629d65dc812&amp;img_etag=%22bab06b2817049ac71d85b041bb05d006%22&amp;size=1024)
+**简评：**
 
-Issued on: October 26, 2020
+瑞典出于安全考虑，禁止中共国的电信巨头华为和中兴通讯的电信设备进入其5G网络建设。瑞典电信监管机构周二表示，禁止华为和中兴通讯的产品，参与即将举行的5G频谱拍卖，要求参与5G频普拍卖的电信运营商须在2025年之前将这两家中共国公司生产的设备从现有的核心功能的基础设施中移除。该决定是在瑞典军方和安全部门的建议下做出的。瑞典官方称中共国是“瑞典面临的最大威胁之一。”
 
-发布日期：2020年10月26日
+越来越多的西方国家在觉醒，欧洲政府正在加强对建设5G网络的中共国公司如华为和中兴的限制，像英国、法国和德国等国家。瑞典是最新一个禁止华为部署5G设备的国家。尽管华为矢口否认其设备存在安全风险，但各国一致认为华为和中兴等公司都被中共政府用来从事间谍活动、收集情报、窃取他国技术和研发。
 
-**Following a unanimous vote **by the Judiciary Committee last week, the Senate just confirmed Seventh Circuit Court of Appeals Judge Amy Coney Barrett to become the 115th Associate Justice on the United States Supreme Court.
+在华为和中兴被排除在很多国家的5G网络建设之外后，瑞典的爱立信和芬兰的诺基亚将成为最大的获益者，只有享有相同价值观的国家和企业，才能走到一起。中共极权政府越来越被世界文明国家所孤立，与中共有密切联系的公司最终也会被抛弃。
 
-在司法委员会上周一致投票后，参议院刚刚批准第七巡回上诉法院法官艾米 · 科尼 · 巴雷特成为美国最高法院第115位大法官。
+**原文翻译：**
 
-“Having confirmed her to the Circuit Court in 2017 with bipartisan support, the Senate has already undertaken a thorough and rigorous review of her record,” Sen. Ted Cruz (R-TX) said after President Trump made the nomination last month.
+#### 瑞典官方称中共国为该国“最大威胁”之一，并禁止科技公司华为
+[!\[\]()!\[\](https://spark.adobe.com/page/EnQBd9qmxLI7A/images/2a841ba6-bc28-400a-a180-43be6716f0be.jpg?asset_id=1252648d-97cc-40dc-8da9-a21885ff38ed&amp;img_etag=%223c920a35e1c59c82df825ce3ad879fc9%22&amp;size=1024)](https://spark.adobe.com/page/EnQBd9qmxLI7A/images/2a841ba6-bc28-400a-a180-43be6716f0be.jpg?asset_id=1252648d-97cc-40dc-8da9-a21885ff38ed&amp;img_etag=%223c920a35e1c59c82df825ce3ad879fc9%22&amp;size=1024)路透社/杰森-李
+据众多消息人士报道，瑞典正禁止中共国科技公司华为和中兴通讯建设该国第五代高速无线通讯服务，与其他几个国家一样，这些国家在决定不与中共国科技巨头开展业务时，都提到了安全问题。
 
-得克萨斯州共和党参议员特德 · 克鲁兹（Ted Cruz）在川普总统上月提名她之后说，“2017年在两党支持下确认她进入巡回法院后，参议院已经对她的记录进行了彻底和严格的审查。”
+据美联社报道，瑞典电信监管机构周二表示，在该国军方和安全部门的建议下，该机构已决定禁止四家竞标的无线运营商在即将举行的频谱拍卖中使用华为和中兴通讯。
 
-Throughout Justice Barrett’s career, she has faithfully upheld our U.S. Constitution as written. The American Bar Association gave Barrett its highest rating, and she has an impressive track record across the legal profession—as a judge, professor, and litigator.
+据英国《金融时报》报道，该禁令让电信运营商在2025年之前，将这两家中共国公司生产的设备从现有的核心功能的基础设施中移除。
 
-在巴雷特法官的整个职业生涯中，她一直忠实地维护我们的宪法。美国律师协会给了巴雷特最高的评价，她在整个法律界有着令人印象深刻的记录，无论是作为一名法官、教授和还是诉讼律师。
+据美联社报道，瑞典国内安全部门（SAPO）负责人克拉斯·弗里伯格（Klas Friberg）周二表示：“中共国是瑞典面临的最大威胁之一。”
 
-Most important, she will bring a valuable new perspective to our High Court:
+“中共国正在进行网络间谍活动，以促进其自身的经济发展并发展其军事力量。 这一切都是通过广泛的情报收集和窃取他国技术和研发来完成的。 这是构建未来5G网络时我们必须考虑的问题。”
 
-最重要的是，她将为我们的高等法院带来一个宝贵的新前景:
+瑞典是最新一个禁止华为部署设备的国家，并且紧随“五眼联盟”的所有成员国——加拿大、新西兰、美国、英国和澳大利亚——承诺放弃使用华为技术。 “五眼联盟”代表着世界上最强大的情报机构。
 
-Justice Barrett is the first mother of school-aged children to become a Supreme Court Justice. She is also only the fifth woman ever to serve.
+今年7月，英国宣布将退出(使用)华为(设备)，尽管这一决定意味着5G的推出将推迟三年。（相关报道：英国禁止中国科技巨头打造5G技术）
 
-巴雷特法官是第一位成为最高法院法官的学龄儿童的母亲。她也是有史以来第五位担任此职位的女性。
+美国总统唐纳德·川普（Donald Trump）在整个2020年都在与华为作斗争，今年5月实施出口管制，切断该公司生产技术所需的半导体产品。专家认为，5G将有助于为所谓的“物联网”打下基础，“物联网”是一种将几乎所有设备都与互联网连接在一起的技术形式。
+[!\[\]()!\[\](https://spark.adobe.com/page/EnQBd9qmxLI7A/images/184cedaf-4f82-4fad-ac58-77f3e0c53721.jpg?asset_id=7efe9561-47e2-4c51-a085-3896923547f0&amp;img_etag=%22c981bcc414d447c496d9c84ee8e8f227%22&amp;size=2971)](https://spark.adobe.com/page/EnQBd9qmxLI7A/images/184cedaf-4f82-4fad-ac58-77f3e0c53721.jpg?asset_id=7efe9561-47e2-4c51-a085-3896923547f0&amp;img_etag=%22c981bcc414d447c496d9c84ee8e8f227%22&amp;size=1024)
+美国联邦通信委员会（FCC）主席阿吉特·派（Ajit Pai）6月宣布，该机构决定将华为和中兴通讯列为国家安全威胁，理由是该公司涉嫌与中共和中共国军事机构有密切联系。
+[!\[\]()!\[\](https://spark.adobe.com/page/EnQBd9qmxLI7A/images/1bebee38-c94e-4f9a-a70d-303d124d9b40.jpg?asset_id=639e97a8-cccf-41d1-8e1f-a248b9e19626&amp;img_etag=%22a7e0a90cd8603351468afe8f4995df91%22&amp;size=3017)](https://spark.adobe.com/page/EnQBd9qmxLI7A/images/1bebee38-c94e-4f9a-a70d-303d124d9b40.jpg?asset_id=639e97a8-cccf-41d1-8e1f-a248b9e19626&amp;img_etag=%22a7e0a90cd8603351468afe8f4995df91%22&amp;size=1024)
+据美联社报道，华为否认存在安全风险，称其“从未对瑞典网络安全造成丝毫威胁，也永远不会。排除华为不会使瑞典5G网络变得更加安全。相反，竞争和创新将受到严重阻碍。”
 
-As the mother of a child with special needs, she understands the issues and concerns confronting our nation’s most vulnerable people.
+据英国《金融时报》报道，该禁令将为华为最大的竞争对手瑞典爱立信公司带来更多机会。
 
-作为一个有特殊需求的孩子的母亲，她理解我们国家最弱势群体面临的问题和担忧。
+弗里贝格（Friberg) 说：“我们不能拿瑞典的安全作妥协。”
 
-Justice Barrett will be the only current justice to have a law degree from a school other than Harvard or Yale. She graduated at the top of her class from Notre Dame Law School in Indiana. 巴雷特法官将是唯一一位拥有哈佛或耶鲁以外学校法律学位的现任法官。她以全班第一名的成绩毕业于印第安纳州圣母大学的法学院。
+[原文链接](https://dailycaller.com/2020/10/20/sweden-bans-huawei-zte-5g-china-national-security-threat/)
 
-Justice Barrett has made her philosophy clear: She will not legislate from the bench. “Courts have a vital responsibility to the rule of law, which is critical to a free society, but courts are not designed to solve every problem or right every wrong in our public life,” she said during her confirmation hearings.
+编辑：【喜马拉雅战鹰团】- 点击spark adobe版
 
-巴雷特法官已经明确了她的理念：她不会在法官席上立法。她在确认听证会上说：”法院对法治负有重要责任，这对一个自由社会至关重要，但法院不是为了解决所有问题或纠正我们公共生活中的每一个错误”。
+了解更多资讯敬请关注：
 
-“The policy decisions and value judgments of government must be made by the political branches, elected by and accountable to the people,” she added.
+【战鹰团Gab】[https://gab.com/himalayahawks](https://gab.com/himalayahawks)
 
-“政府的政策决定和价值判断必须由政治部门作出，由人民选举产生并对人民负责。”她补充说。
+【英国喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
 
-One letter—written by Justice Barrett’s former law clerks—calls her approach principled and independent-minded. “Judge Barrett taught us that a good judge will not always like the results she reaches; a good judge goes wherever the law leads,” it reads.
+【英国喜庄园GTV/盖特】：[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-有一封信，由巴雷特法官的前法律助理写的，称她的做法是有原则的，有独立思想的。信中写道：“巴雷特法官教导我们，一个好的法官不会总是喜欢她得出的结果；一个好的法官会一直在法律的指引下的。”
-
-Justice Barrett is the very model of a sympathetic yet impartial judge, according to her colleagues at Notre Dame Law School. She is exactly the type of person whom the American people deserve to have sitting on their Supreme Court.
-
-巴雷特法官是一个有同情心而又公正的法官的典范，据她在圣母大学法学院的同事说。她正是美国人民值得拥有的那种坐在最高法院的人。
-
-“If we are to protect our institutions, and protect the freedoms, and protect the rule of law that’s the basis for the society and the freedom that we all enjoy—if we want that for our children and our children’s children—then we need to participate in that work,” Justice Barrett said.
-
-“如果我们要保护我们的机构，保护自由，保护法治——即社会的基础和我们所有人享有的自由；如果我们想让我们的孩子和我们孩子的孩子享有这种自由，那么我们需要参与这项工作，”巴雷特法官说。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26213002/WH_20201026_Amy-figure1.jpg)图片来源：[https://www.whitehouse.gov/articles/senate-confirms-amy-coney-barrett-supreme-court/](https://www.whitehouse.gov/articles/senate-confirms-amy-coney-barrett-supreme-court/)
-[阅读白宫英文原文](https://www.whitehouse.gov/articles/senate-confirms-amy-coney-barrett-supreme-court/)
-
-翻译：【Naomi】校对 & 编辑：【Isaiah4031】
-
-战友之家玫瑰园小队出品
-
+【大卫作战室YouTube】[https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+[!\[\]()!\[\](https://spark.adobe.com/page/EnQBd9qmxLI7A/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/EnQBd9qmxLI7A/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

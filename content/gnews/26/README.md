@@ -1,121 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 十三天战歌
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/458905/)
+## 肮脏的灵魂：亨特与陈文茜
+` gewsTaiwan` [轉載自GNews](https://gnews.org/zh-hans/460880/)
 
-作者：x.pan
+台灣農場 花澤類
 
-审核：海阔天空；Page：拱卒
+（封面圖片：擷取自中時新聞網）
 
+【陳文茜-杭特醜聞假的，美式民主恐成國際笑柄】新聞連結： [https://tw.mobi.yahoo.com/home/杭特醜聞假的-陳文茜-美式民主恐成國際笑柄-013937570.html?cue=false](https://tw.mobi.yahoo.com/home/杭特醜聞假的-陳文茜-美式民主恐成國際笑柄-013937570.html?cue=false)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26142352/%E8%AF%97%E6%AD%8C.jpg)
+2020.9.24，路德社开始爆料与亨特等人相关三块硬盘。到今天十月二十六日，大众已从Gtv、推特、路德社、班农先生、朱利安尼先生、川普总统等多个媒体及权威人士得到验证，乔拜登出卖FBI线人给习近平，习近平下令将这些弃暗投明、向往自由民主、看清共产党邪恶肮脏的真面目的高阶线人全部枪杀在会议室里。另外乔拜登犯下叛国罪，谋杀了执行反恐任务的海豹六队全体队员，藏匿了宾拉登。乔拜登更是利用自己副总统的身份纵容儿子亨特作恶。亨特伸手向习近平讨女人、幼童、麻黄碱满足私欲；习近平通过贷款无限延期的方式让亨特贷款入股华信等多家大公司，也就是让送钱贿络合法化，让拜登父子可以长久的吸中国纳税人的钱财。亨特更是打破人伦，叔嫂、叔侄乱伦，在在显示其肮脏堕落的灵魂。
 
+以上种种仅是三块硬盘的一部分，已是罪证确凿，罪大恶极，陈文茜竟然在电视台说这是假的，她凭什么这然说？她能为此作什么证明？她能向美国的司法部门替拜登父子去喊冤吗？如果她真相信拜登是清白的，请她去美国起诉川普、班农、朱利安尼、郭文贵以及江泽民、习近平。陈文茜满嘴谎言，她为黑暗助言，不就是因为自己也是同类人吗？郭文贵先生早就爆料陈文茜与中共国安部有来往，中共送了多少好处给她，她自己清楚。陈文茜如果得肺癌是真的，有没有接受中共的＂器捐＂治疗？台湾人都知道陈文茜私生活混乱，作风广受质疑。她不过是女版的亨特，何其相似，同属茅屎坑，枉费在自由社会里勋陶若许年。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27014402/9a65c48e866a6d403a20d0584f27c476.jpg)圖片擷取自中時新聞網
+听陈氏文茜的言论，让不知情者随之起舞，让有良知者痛心疾首。多行不义必自毙！这是恒古不变的真理。
 
+近段时间以来，爆料革命台湾大牛组织战友们抗义红媒—-中天电视台、陈文茜通共卖台的活动，希望更多台湾人加入行动，为维护台湾利益、自由民主献出一份力量。将亨特、陈文茜的之流扫回茅屎坑！
 
+一切邪惡均來自ccp，Take down the ccp！
 
-在远山传来
-
-还是大洋的彼岸
-
-在空中洒落
-
-又在平地升起
-
-你一定听到了召唤
-
-口口相传的呐喊
-
-从海边到山颠
-
-决胜终极之战
-
-如果人类还有未来
-
-也许会是永远
-
-如果世界将毁灭
-
-这是最后的十三天
-
-
-
-你与我
-
-站在黑暗的边缘
-
-先觉的灵魂
-
-必须承受这份荣耀与苦难
-
-守卫破损的美利坚
-
-这里是民主的桥头堡
-
-这也是
-
-自由世界最后的残湾
-
-退缩吗
-
-身后是无尽地狱
-
-会埋葬肉体和灵魂
-
-前进吧！不屈服的人
-
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26150348/light-breaking-through-darkness.jpg)
-
-
-我们将集结
-
-将出击
-
-将牺牲
-
-将复活
-
-
-
-
-
-我们会在敌人的世界里征战
-
-我们会有更多同类
-
-我们会唤醒整个星空
-
-我们会展示邪灵的罪恶
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26151417/worrier.jpg)
-
-
-我们会撕开黑暗
-
-引进光明
-
-我们手握真相
-
-刺穿肮脏者的胸膛
-
-一起来吧
-
-整个星球都在召唤
-
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/19i5wD9TT3nmd/)】- 点击spark adobe版
-
-了解更多资讯敬请关注：
-
-【战鹰团Gab】[https://gab.com/himalayahawks](https://gab.com/himalayahawks)
-
-【英国喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
-
-【英国喜庄园GTV/盖特】：[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-【大卫作战室YouTube】[https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
-[!\[\]()!\[\](https://spark.adobe.com/page/19i5wD9TT3nmd/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/19i5wD9TT3nmd/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0
