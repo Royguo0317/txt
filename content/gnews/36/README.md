@@ -1,20 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年10月26日中共病毒疫情要闻快报
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/460330/)
+## 美国参议院向最高法院确认艾米·科尼·巴雷特（Amy Coney Barrett） 巩固保守派多数
+` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/460014/)
 
-重点内容：
+内新闻：背靠背
 
-- GTV爆料亨特拜登罪证！
-- 推特助纣为虐！战友开拓parler与gab平台新战场！
-- 喀什疫情复发，居民屯粮应对封城
-- 江西湖北等地大米大幅涨价
-- 马云高级黑，中国的金融没有系统。
+2020年10月26日，美国参议院以52票对48票确认艾米·科尼·巴雷特（Amy Coney Barrett）到最高法院，标志着特朗普总统第三次任命高等法院。
 
+缅因州参议员苏珊·柯林斯（Susan Collins）是唯一投票赞成“不”的共和党人。
 
-
-
-#### By:【秘翻组-上天造灭疫组】
+艾米·科尼·巴雷特（Amy Coney Barrett）现年48岁巩固了白宫和参议院共和党人的司法遗产，巴雷特（Barrett）是已故大法官安东宁·斯卡利亚（AntoninScalia）的助手。
 
 0

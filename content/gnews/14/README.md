@@ -1,68 +1,91 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家曝光：拜登夫妇知情其子亨特与未成年人发生性关系
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/459327/)
+## 世纪大案 20：最高法院
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/461127/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26104626/Screen-Shot-2020-10-27-at-12.46.08-am.png)图片来源：[https://www.thegatewaypundit.com/](https://www.thegatewaypundit.com/2020/10/breaking-exclusive-text-messages-show-vp-biden-wife-brother-key-family-members-aware-concerned-colluded-suppress-hunters-actions-around-certain-minor/)
-10月25日，Gateway Pundit网站报道了前副总统乔·拜登（Joe Biden）严厉打断询问其儿子亨特·拜登（Hunter Biden）的记者Andy Mehalshick的采访，但是乔·拜登无法回避关于亨特·拜登的问题。
+作者：香草山文艺组 Tiffany 的早餐 校对/审核：飞虹
 
-在10月24日的电视采访中，WYOU电视台的记者刚开始提及亨特·拜登的问题：关于您儿子亨特·拜登的问题和争议今天仍在继续。乔·拜登立即打断记者：我的儿子没有争议，这是个极大的谎言，这是个明显的谎言，因为总统没有什么可说的了才说这个，这就是典型的川普（Trump）。乔·拜登显然不想让人们相信自己的眼睛，但实际上乔拜登才是那个撒谎的人。泄漏出的电子邮件已经揭露出了拜登家族深度的腐败，他儿子和妓女一起嗑药的自拍色情视频也已经传遍互联网。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25225844/WhatsApp-Image-2020-10-24-at-08.09.25-2.jpeg)
 
-此外，该报道还爆出了更猛的料！以下泄露的邮件可窥见拜登家族围绕着亨特拜登如姚依林家一样的乱伦关系。
 
-**截图一：2018年7月5号 被覆盖姓名的（B）发给亨特拜登的短信**
 
-我爱你，（）但你妈妈刚刚决定，她宁可冒着失去你的风险，也要去加州马里布和家里人待一个月。她告诉爸爸如果我再想见你，她会叫警察。当她说绝对没打电话给爸爸并问过他时，她其实在撒谎。
+摘要：巴雷特大法官提名通过，美国政府司法分支进入未来三十年的保守派时代。从沃伦到斯卡利亚、金斯伯格、巴雷特。最高法院将超越任期和党争，用一代人的时间清洗美国社会被CCP的侵袭，这是美国政治体制最后的一道防线。
 
-（作者分析：B=亨特的侄女，即亨特的哥哥博和哈莉·奥莉薇尔·拜登（Hallie Olivere Biden）的女儿，出生于2004年8月，2018年时仅有14岁）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26171802/1-192.jpg)图片来源：[https://www.thegatewaypundit.com/](https://www.thegatewaypundit.com/2020/10/breaking-exclusive-text-messages-show-vp-biden-wife-brother-key-family-members-aware-concerned-colluded-suppress-hunters-actions-around-certain-minor/)
-**截图二：时间2018****年7****月10-15****号，亨特拜登和德文·****阿彻的短信对话**
+2020年10月26日，美国参议院以52票对48票通过对川普提名的最高法院大法官巴雷特(Amy Coney Barrett)，美国未来三十年的保守派主导格局完全巩固下来。自由派大法官金斯伯格(Ruth Ginsburg)死于2020年9月18日，随即川普总统和麦康奈尔领导的参议院、格拉汉姆(Lindsey Graham)领导的参议院司法委员会快马加鞭，短短四十天完成了提名、委员会听证、全院投票和宣誓就职。
 
-7/10/18, 5:09 pm 德文·阿彻: 30分钟后给你电话
+美国政府分为行政、立法、司法三个分支。2020年大选，川普-彭斯行政分支、参议院-众议院立法分支，以及地方上的诸多政府机构都将改选。在这风云变换的大选年，可以超然于党派、任期的政府分支就是最高法院领导的司法分支。
 
-7/11/18, 9:08 pm  德文·阿彻: 感谢昨晚和我聊天，这种生活简直是折磨
+– 首席大法官小罗伯茨(John Roberts Jr)，2005年小布什任命
 
-7/11/18, 9:20 pm  亨特拜登: 是的，这简直是对我的理智无休止的考验。像这样憎恨已经超出危险范围了。我爸不在场的话，A不会让我见到B。你他妈能想象么。我他妈已经被封闭在外两年了，承受了所有的煎熬，不能和B讲话，不能在B周围出现
+– 托马斯(Clarence Thomas)，1991年布什任命
 
-7/12/18,6:22 am 德文·阿彻: 是一种折磨
+– 布莱叶(Stephen Breyer)，1994年克林顿任命
 
-7/15/18, 9:33 am  德文·阿彻:今天你怎么样？
+– 小阿利托(Samuel Alito Jr)，2006年小布什任命
 
-7/15/18, 11:48 am 德文·阿彻: 还那样.
+– 索托马约(Sonia Sotomayor)，2009年奥巴马任命
 
-（作者分析：A = 哈莉·奥莉薇尔·拜登**，**B= 娜塔莉·拜登 ）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26170310/2-50.jpg)图片来源：[https://www.thegatewaypundit.com/](https://www.thegatewaypundit.com/2020/10/breaking-exclusive-text-messages-show-vp-biden-wife-brother-key-family-members-aware-concerned-colluded-suppress-hunters-actions-around-certain-minor/)
-**截图三：时间不明 ****亨特拜登发给（可能是朋友）的短信**
+– 卡根(Elena Kagan)，2010年奥巴马任命
 
-……告诉人们我对她女儿有不正当的性侵，如果你们任何人再重复这件事的话，我向上帝发誓，你们也可以拿枪顶着自己脑袋了。因为（），如果那些围着我转靠挖料的八卦媒体就会重复来自（A）的谣言，所以我不能回家，我就活不下去了，没人能活下去了，她太蠢了而且不计后果，而且邪恶，如果你们不能让她看到她的利益所在，就永远不要再提了，这就是我不允许单独和（B）在一起的原因。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26104057/Child-Abuse-Texts-2-family-friend.jpg)图片来源：[https://www.thegatewaypundit.com/](https://www.thegatewaypundit.com/2020/10/breaking-exclusive-text-messages-show-vp-biden-wife-brother-key-family-members-aware-concerned-colluded-suppress-hunters-actions-around-certain-minor/)
-**截图四:** **他们会不会完全相信（A）告诉他们的事，或是我妈告诉他关于我和那些孩子们有不正当性行为。请告诉我我怎样才能留住我的孩子们而不中途自杀。**
+– 戈萨奇(Neil Gorsuch)，2017年川普任命
 
-（作者分析：A=哈莉·奥莉薇尔·拜登, B= 娜塔莉·拜登，这段亨特的短信可以看出：第一，嫂子为了保护女儿在与这头叫亨特Hunter的丧失人伦的少女猎手抗争；第二，亨特在与显然很熟悉的狐朋狗友聊的当中，提及与其他孩子们（亨特短信中也用了特指的复数the children）的不正当性关系，说明这些朋友都知道的有这么一群孩子们，同时他的继母也知道这件事，并且告诉了“他们”，这里的“他们”是亨特担心的，这里的他们在下面的截图五中就可以知道是：吉姆拜登和乔拜登）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26104138/Child-Abuse-Texts-5-Mom.jpg)图片来源：[https://www.thegatewaypundit.com/](https://www.thegatewaypundit.com/2020/10/breaking-exclusive-text-messages-show-vp-biden-wife-brother-key-family-members-aware-concerned-colluded-suppress-hunters-actions-around-certain-minor/)
-**截图五：2018****年8****月10-11****号 ****亨特拜登和其叔叔吉姆拜登的短信对话**
+– 和卡瓦诺(Brett Kavanaugh)，2018年川普任命
 
-8月10号
+2016年2月13日，大法官斯卡利亚(Antonin Scalia)在得克萨斯州西部狩猎期间离奇逝世。1986年，里根总统提名斯卡利亚任最高法院大法官。斯卡利亚多年来支持死刑、反对堕胎、同性恋、支持拥枪，深受共和党信任，是原旨主义的保守派旗手。
 
-吉姆 拜登：
+川普一直表示，他认为斯卡利亚是被谋杀的。并称奥巴马没有参加斯卡利亚的葬礼，因为奥巴马是一个穆斯林，而斯卡利亚是天主教。“我想问的是，如果斯卡利亚的葬礼在清真寺举行的话，奥巴马总统是否就会出席了？非常难过他没有去！”特朗普在推特中写道（原文）：
 
-亨特，你要立即打电话给我或你的父亲。你父亲和我一样正在被（A）围攻。你父亲没有回应，我也没有回应。我们都同意并愿意去信任你。她正在到处传播那些你告诉我的那些事，我相信你！那些都是谎言！再说一次，我们需要你这边的证词，这样我们才能够让她彻底闭嘴接受。我恳求你打电话给我。求你了，我们是站在你这边的。我相信你，这简直是在谋杀你的声誉。爱你的，吉姆。
+I wonder if President Obama would have attended the funeral of Justice Scalia if it were held in a Mosque? Very sad that he did not go!
 
-8月11号
+— Donald J. Trump (@realDonaldTrump) February 20, 2016
 
-你的飞机什么时候到，我去接你。
+在2016关键的大选年，当时的最高法院格局为5名保守派(倾向共和党)对4名自由派(倾向民主党)。斯卡利亚在大选前的突然离世影响极大，两党立刻就是否要在奥巴马任期内提名并任命新的大法官而吵得不可开交。奥巴马获得了绝佳的机会来改变美国高法的党派力量抗衡现状。
 
-请发信息！！！我愛你。仅限我、你父亲和你。
+奥巴马的方案是提名中间派戈兰德(Merrick Garland)。这样的方案在参议院阻力更小，相当于奥巴马放弃提名极左法官，换得最高法院的相对平衡。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27024532/190806-mitch-mcconnell-gun-cpap-se-536p_c79eb872d89d8a7169793e3d9cefce53.fit-2000w.jpg)持枪权的强硬支持者、肯塔基州共和党参议员麦康奈尔；来源：NBC
+参议院多数党领袖麦康奈尔神似忍者神龟，绰号“龟丞相”。他赌上了自己的政治生涯，强力抵制奥巴马的提名，坚持应由下一任美国总统负责提名。如果2016年大选希拉里上台，那么连奥巴马提名的中间派大法官也没有了，共和党最终可能会面对只剩下3个保守派大法官。
 
-（作者分析：A = 哈莉·奥莉薇尔·拜登**）**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26104150/Child-Abuse-Texts-4-Jim-B.jpg)图片来源：[https://www.thegatewaypundit.com/](https://www.thegatewaypundit.com/2020/10/breaking-exclusive-text-messages-show-vp-biden-wife-brother-key-family-members-aware-concerned-colluded-suppress-hunters-actions-around-certain-minor/)
-综合以上这些讯息描绘了拜登家族背后的乱伦关系，亨特拜登勾引他的14岁未成年侄女，并发生不正当性行为，被其嫂子发现后禁止他与女儿单独接触，继母也发现了亨特拜登与特指的孩子们（复数）有不正当性行为，而亨特的叔叔和父亲乔拜登在知情的情况下，完全对亨特的犯罪行为不作为，这说明了乔拜登是在放任亨特成为堕落的瘾君子，吸钱的“吸尘器”，9.5寸的“娈童恶魔”，是纵容犯罪，就凭这一点乔拜登完全失去美国总统的竞选资格。
+龟丞相的豪赌获得了成功。参议院一直顶住民主党的强烈反对，熬到特朗普上台后提名49岁的戈萨奇，恢复了保守派大法官在最高法院占相对多数的局面，并且新上任的大法官相比斯卡利亚有了近30年的年龄优势。在最高法院，保守派反败为胜。
 
-翻译：【秘密翻译组G-Translators】
+老布什、克林顿、小布什、奥巴马，他们相继执政的28年，CCP几乎完成了对美国政治精英阶层的渗透。如果不是2016年川普的横空出世，借助政党轮换完成的腐蚀美国的计划就快要完成。然而在司法分支，保守派一直超然，即便奥巴马塞进了索托马约、卡根两位政治正确的女性少数民族法官，即便原先的保守派法官逐渐左倾，最高法院仍然在维持着保守的局面，从个人角度也在抵制着CCP的侵蚀。
 
-整理点评：Skagen【秘翻Gnews原创组】
+大法官金斯伯格在2016年发表反川普总统言论、并因此反政治中立原则的不当言论而被迫公开道歉，到身为抗癌英雄硬赖在位子上不肯退休，不给川普在任期内提名保守派大法官的机会。金斯伯格人算不如天算，想以年老之躯硬熬过川普任期，最终却让位给48岁拥有年龄优势的巴雷特大法官，而巴雷特正是斯卡利亚的助手。([世纪大案 18：参议院司法委员会](https://gnews.org/zh-hans/446437/) )
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27024805/scaliabarrett1.jpg)斯卡利亚和巴雷特；来源：National Review
+20世纪50年代到70年代，也就是如火如荼的冷战时期，韩战、越战、NATO(North Atlantic Treaty Organization北大西洋公约组织)和WP(Warsaw Pact华沙条约组织)的对抗、东西柏林、第三次世界大战、核军备竞赛、古巴导弹危机 … … ，这些问题是那个时代的主线。而美国本土却是经济突飞猛进、歌舞升平。从反战的情绪发展到自由主义的泛滥，产生了毒品、性解放、乌托邦的嬉皮士文化。
 
-《本文仅代表作者个人观点》
+那个年代的大明星是1953年到1969年最高法院首席大法官沃伦(Earl Warren)。过去的加州曾经是保守州([世纪大案 19：加州群妖](https://gnews.org/zh-hans/452366/))，沃伦曾经是加州共和党主席，后任加州总检察长、加州州长，直到被艾森豪威尔总统(Dwight Eisenhower)提名为最高法院首席大法官。这是艾森豪威尔一生中最后悔的决定之一，因为沃伦摇身一变成了之后十几年司法左倾自由主义的棋手，史称沃伦法院。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27025046/Earl_Warren.jpg)沃伦大法官；来源：维基
+按照美国政治传统，司法分支会被动地等待上诉案件，通过判决阐述宪法思想，为立法、行政分支的过大偏差纠错。然而沃伦法院将司法权力运用到了极致，使最高法院成为那个年代的舆论焦点。沃伦法院大幅度地走向自由主义，一方面大大扩增了公民权利、公民自由，另一方面大大扩大了司法权力以及美国联邦政府的权力。
 
-0
+沃伦法院被称为自由主义宪政革命(constitutional revolution)。从进步的方面，沃伦法院体现了对自由、民主、平等、人权的深刻信仰，将美国带入了一人一票的普选时代，终结了美国的种族隔离制度，维护了妇女权益，推广了美国权利法案。但矫枉过正，沃伦法院在宗教自由的旗号下终止了公立学校内强制背诵官方祷词的祈祷活动等，也让反宗教的、无道德底线的思潮乘虚而入，并为日后CCP的精神渗透留下了漏洞。
+
+沃伦法院是历史上美国司法权力所到达的顶峰，从那以后司法权力逐渐衰弱，但依旧对美国社会保持长久影响。美国的自我纠错能力和反思精神，在沃伦法院后的时代逐渐显现。后沃伦时代，自由派精英治国和大政府主义越来越不得人心。
+
+里根总统的上任，代表着保守主义革命的成功。在里根的率领下，共和党从大企业利益的代言人，逐渐成为覆盖平民利益的政党，并在日后的茶党运动、班农的平民主义后进一步平民化。而民主党从冷战后人权、自由至上的政党，转变为大企业利益的代言人。共和党和民主党在微妙中完成了角色变换。最近几十年，面对美国社会日益激烈的党争、保守主义和CCP渗透的斗争，最高法院恢复了保守主义主导的局面。
+
+巴雷特大法官提名通过，使美国政府司法分支进入未来三十年的保守派时代。超越任期和党争，用一代人的时间清洗美国社会被CCP的侵袭，这是美国政治体制最后的一道防线。
+
+10月27日，巴雷特将在最高法院完成司法宣誓，正式就任大法官。紧赶慢赶，从金斯伯格的入土为安，到巴雷特有权在最高法院投票，离美国大选的11月3日就剩下一个星期。CCP和美国腐败集团还在拼命地控制舆论、选举舞弊，美国大选的政权更迭之际，是否就等待着最高法院的最终裁决？2000年大选布什诉戈尔案，最高法院裁决布什赢得大选([世纪大案 10：金牌律师](https://gnews.org/zh-hans/385869/) )，20年后的大选，我们拭目以待。
+
+(待续)
+
+
+
+相关链接：
+
+【[世纪大案 19](https://gnews.org/zh-hans/452366/)】【[世纪大案 18](https://gnews.org/zh-hans/446437/)】【[世纪大案17](https://gnews.org/zh-hans/441412)】【[世纪大案16](https://gnews.org/zh-hans/438204/)】【[世纪大案15](https://gnews.org/zh-hans/432315/)】
+
+【[世纪大案14](https://gnews.org/zh-hans/426275/)】【[世纪大案13](https://gnews.org/zh-hans/424956/)】【[世纪大案12](https://gnews.org/zh-hans/415418/)】【[世纪大案11](https://gnews.org/zh-hans/409277/)】【[世纪大案10](https://gnews.org/zh-hans/385869/)】
+
+【[世纪大案9](https://gnews.org/zh-hans/377802/)】【[世纪大案8](https://gnews.org/zh-hans/369116/)】【[世纪大案7](https://gnews.org/zh-hans/364009/)】【[世纪大案6](https://gnews.org/zh-hans/359272/)】【[世纪大案5](https://gnews.org/zh-hans/351469/)】
+
+【[世纪大案4](https://gnews.org/zh-hans/344780/)】【[世纪大案3](https://gnews.org/zh-hans/343557/)】【[世纪大案2](https://gnews.org/zh-hans/343551/)】【[世纪大案1](https://gnews.org/zh-hans/343549/)】【[世纪大案0](https://gnews.org/zh-hans/343551/)】
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+3+

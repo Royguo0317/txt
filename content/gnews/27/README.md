@@ -1,17 +1,121 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆料革命终极之战系列四：提供“黑料硬盘”给爆料革命的江志成、吴征，江派在历史时刻的明智之选
-` GM101` [轉載自GNews](https://gnews.org/zh-hans/460795/)
+## 十三天战歌
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/458905/)
 
-美东时间10月23号，爆料革命发起人郭文贵先生发动了举世瞩目的灭共终极之战，每小时一个与中共有关的重磅新闻通过GNEWS公布，终极之战将持续13天，直到美国总统大选结束为止。
+作者：x.pan
 
-在此背景下，拜登儿子亨特吸毒、淫乱、虐童等违法视频通过GTV、GNEWS在社交媒体中广泛传播，个别视频备注了提供材料人员名字，为江泽民派系人物江志成和吴征，经路德社披露该视频只是江派提供材料的冰山一角。
+审核：海阔天空；Page：拱卒
 
-江志成籍贯[江苏扬州](https://zh.wikipedia.org/wiki/%E6%89%AC%E5%B7%9E)，是前[中共第三代核心人物](https://zh.wikipedia.org/wiki/%E4%B8%AD%E5%85%B1%E4%B8%AD%E5%A4%AE%E7%B8%BD%E6%9B%B8%E8%A8%98)[江泽民](https://zh.wikipedia.org/wiki/%E6%B1%9F%E6%B3%BD%E6%B0%91)总书记之孙，[江绵恒](https://zh.wikipedia.org/wiki/%E6%B1%9F%E7%BB%B5%E6%81%92)之子。江志成曾任职于美国华尔街金融机构[高盛公司](https://zh.wikipedia.org/wiki/%E9%AB%98%E7%9B%9B%E5%85%AC%E5%8F%B8)，并长期居住在纽约。之后在香港设立博裕资本有限公司，成为首任董事。
 
-江志成提供硬盘材料的行为证明得到了江泽民的认可，江泽民是当下中共资历最老、阅历最深的关键人物，其执政中共多年，手上掌握了大量国内、国际政要的黑材料。在美国总统大选之前将部分黑材料提供给爆料革命，证明其看到美国镇国之力排干沼泽的决心，知道中共大势已去而准备善后工作。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26142352/%E8%AF%97%E6%AD%8C.jpg)
 
-江泽民曾参与了镇压六四学运、法轮功活摘器官等事件，其双手沾满人民鲜血，江志成向爆料革命提供相关证据为家人赎罪，也为江派人士保留了后路。此前中共将屠杀CIA中国线人的视频用于恐吓体制内人士事件被路德社揭露，中共的泯灭人性的行为让体制人士由恐惧转为愤怒，正如爆料革命发起人郭文贵先生所说，内外压力下最终必定会以共灭共。
 
+
+
+在远山传来
+
+还是大洋的彼岸
+
+在空中洒落
+
+又在平地升起
+
+你一定听到了召唤
+
+口口相传的呐喊
+
+从海边到山颠
+
+决胜终极之战
+
+如果人类还有未来
+
+也许会是永远
+
+如果世界将毁灭
+
+这是最后的十三天
+
+
+
+你与我
+
+站在黑暗的边缘
+
+先觉的灵魂
+
+必须承受这份荣耀与苦难
+
+守卫破损的美利坚
+
+这里是民主的桥头堡
+
+这也是
+
+自由世界最后的残湾
+
+退缩吗
+
+身后是无尽地狱
+
+会埋葬肉体和灵魂
+
+前进吧！不屈服的人
+
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26150348/light-breaking-through-darkness.jpg)
+
+
+我们将集结
+
+将出击
+
+将牺牲
+
+将复活
+
+
+
+
+
+我们会在敌人的世界里征战
+
+我们会有更多同类
+
+我们会唤醒整个星空
+
+我们会展示邪灵的罪恶
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26151417/worrier.jpg)
+
+
+我们会撕开黑暗
+
+引进光明
+
+我们手握真相
+
+刺穿肮脏者的胸膛
+
+一起来吧
+
+整个星球都在召唤
+
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/19i5wD9TT3nmd/)】- 点击spark adobe版
+
+了解更多资讯敬请关注：
+
+【战鹰团Gab】[https://gab.com/himalayahawks](https://gab.com/himalayahawks)
+
+【英国喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
+
+【英国喜庄园GTV/盖特】：[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+【大卫作战室YouTube】[https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+[!\[\]()!\[\](https://spark.adobe.com/page/19i5wD9TT3nmd/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/19i5wD9TT3nmd/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0
