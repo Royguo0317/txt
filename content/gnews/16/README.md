@@ -1,121 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 十三天战歌
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/458905/)
+## 原来拜登是维尼熊和跳跳虎的好友驴子伊尔
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/460167/)
 
-作者：x.pan
+多伦多加喜农场 大地鲲鹏
 
-审核：海阔天空；Page：拱卒
+校对 小鸥 上传 HUH
+![]()![](https://media.discordapp.net/attachments/721388937553248396/770462815709691924/Snipaste_2020-10-27_09-43-35.png)
+2013年6月，中共党魁习近平访问美国，与时任美国总统O先生会面的照片被网民首次联想到维尼熊和跳跳虎，从此维尼熊在中共国和所有被中共控制的媒体称为敏感角色，它们之间的精彩故事似乎就要这么被遗忘了。
 
+但不管如何被掩盖，真相总是会在某个时间破土而出。10月26日爆料革命“路德时评”节目公布了一张2016年4月4日乔·拜登之子亨特·拜登与时任总统 O先生在白宫办公室会面的照片，并曝光此照片截取自亨特与O先生就收受中共10亿美元贿金的会谈视频，彻底打开了这个尘封已久的“故事”，乔·拜登这个藏在“故事”里的驴子——伊尔，让他那个喜欢炫耀生殖器的儿子，上演了以下精彩剧情。
+![]()![](https://media.discordapp.net/attachments/721388937553248396/770463261291839488/Snipaste_2020-10-27_09-45-11.png)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26142352/%E8%AF%97%E6%AD%8C.jpg)
+![]()![](https://media.discordapp.net/attachments/721388937553248396/770463307307548692/Snipaste_2020-10-27_09-45-31.png)
+路德根据情报爆料，习近平2016年4月1日出席在美举行的第四届核安全峰会，会见O先生之后，亨特向O先生传达了中共希望用贿金换取美国对南海军事化、乌克兰等国获得美国先进武器装备、收购美国高科技企业等美国对中政策的软化和默许。
 
+这出闹剧的结果竟然是，出于对好朋友维尼熊贿金的眷恋，当然还有好友驴子伊尔通过儿子的直接授意，美国总统跳跳虎最终同意了所有建议。低调的驴子伊尔兴高采烈地用偷拍的这段视频向维尼熊汇报，并代表跳跳虎共同收到了这笔10亿贿金，至于跳跳虎拿到了其中的多少，路德爆料最多几千万美元吧。跳跳虎和愚蠢的驴子永远没想到维尼熊的邪恶，他们的秘密被拍摄成视频，并且看来已经被中共泄露了，所有证据已足够指证拜登家族以及O先生涉嫌美国卖国罪。
 
+接下来的一段时间，请各位紧跟爆料革命的步伐，仔细观瞧这三位丑角如何出演最后的剧情。
 
-
-在远山传来
-
-还是大洋的彼岸
-
-在空中洒落
-
-又在平地升起
-
-你一定听到了召唤
-
-口口相传的呐喊
-
-从海边到山颠
-
-决胜终极之战
-
-如果人类还有未来
-
-也许会是永远
-
-如果世界将毁灭
-
-这是最后的十三天
-
-
-
-你与我
-
-站在黑暗的边缘
-
-先觉的灵魂
-
-必须承受这份荣耀与苦难
-
-守卫破损的美利坚
-
-这里是民主的桥头堡
-
-这也是
-
-自由世界最后的残湾
-
-退缩吗
-
-身后是无尽地狱
-
-会埋葬肉体和灵魂
-
-前进吧！不屈服的人
-
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26150348/light-breaking-through-darkness.jpg)
-
-
-我们将集结
-
-将出击
-
-将牺牲
-
-将复活
-
-
-
-
-
-我们会在敌人的世界里征战
-
-我们会有更多同类
-
-我们会唤醒整个星空
-
-我们会展示邪灵的罪恶
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26151417/worrier.jpg)
-
-
-我们会撕开黑暗
-
-引进光明
-
-我们手握真相
-
-刺穿肮脏者的胸膛
-
-一起来吧
-
-整个星球都在召唤
-
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/19i5wD9TT3nmd/)】- 点击spark adobe版
-
-了解更多资讯敬请关注：
-
-【战鹰团Gab】[https://gab.com/himalayahawks](https://gab.com/himalayahawks)
-
-【英国喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
-
-【英国喜庄园GTV/盖特】：[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-【大卫作战室YouTube】[https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
-[!\[\]()!\[\](https://spark.adobe.com/page/19i5wD9TT3nmd/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/19i5wD9TT3nmd/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

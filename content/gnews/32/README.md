@@ -1,24 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国版挟天子以令诸侯
-` 温哥华加喜农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/459610/)
+## 【快讯】白宫宣布参议院确认艾米 · 科尼 · 巴雷特出任最高法院大法官
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/460208/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26184846/obama.jpg)
-今天路德社节目又爆出核弹级内幕，一张白宫总统办公室的照片，居然隐藏着惊天秘密。原来奥巴马总统只是乔.拜登儿子的马仔，这太令人大跌眼境了。原来以为是奥巴马为了自己的私利，利用总统的职权与中共勾兑，没想到他居然只是中共控制的拜登家族的一个马仔，一个彻头彻尾的傀儡总统。这让美国人民情何以堪？这可是他们一票一票选出来的民选总统啊！中共居然在美国上演了一场挟天子以令诸侯的闹剧！作为中国人是很熟悉这个历史典故的，但是美国人不知道，而且我相信他们也不能接受。这件事情必将在美国内部引起深刻的讨论，究竟美国是怎么被中共玩坏的？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26213033/WH_20201026_Amy-cover169.png)图片来源：[https://youtu.be/9pIRkgg2sBQ](https://youtu.be/9pIRkgg2sBQ)
+**Senate Confirms Amy Coney Barrett for Supreme Court**
 
-中共的领导人中，许多人是熟读历史的，像毛泽东，王岐山，都可以称的上是历史学家。但他们专门研究弄权之术，三十六计用的炉火纯青。毛泽东推崇的秦皇汉武，一个是建立中央集权独裁统治并且焚书坑儒的暴君；一个是建立中央财税体制，篡改儒家经典，全面进行愚民的历史罪人。王岐山更是推崇《商君书》，直接借鉴商鞅的驭民五术，对中国人民进行残暴的统治。
+**参议院确认艾米 · 科尼 · 巴雷特出任最高法院大法官**
 
-中共内部从成立以来，也是争权夺利，不断的伴随着血腥的屠杀与火拼。他们在长期的内斗中积累了丰富的经验，既能打击政治对手，又能保持长期把控中国。他们在斗争中找到了平衡，斗而不散，确实是把权术玩出了新的高度。现在他们要把这种模式复制到全世界，在美国奥巴马总统身上小试牛刀，不但成功了，而且美国人民还浑然不知，这件事细想起来太恐怖了，就像是一位武林高手正在炫耀自己的武功有多厉害的时候，突然被人从背后点了死穴。这对美国人民、美国军方都是莫大的讽刺与侮辱。
+Issued on: October 26, 2020
 
-川普总统在昨天的演讲中也说，没想到美国的沼泽地如此之深。也许2016年他竞选总统的时候，还只是看到了美国经济衰退这个层面，所以他提出了让美国再次伟大的口号，并且在当选之后，他致力于恢复美国经济，把产业链拉回美国，解决就业，改善民生，取得了一定的成绩。但是中共病毒的肆虐，让川普总统认清了当前的形势，白宫已沦陷，美国已危矣！在这种情况下，川普总统毅然选择了为美国人民而战！
+发布日期：2020年10月26日
 
-文贵先生一再说，美国是一个伟大的国家，美国人民是伟大的，就是因为每次在关键的历史节点上，总有正义的力量站出来，捍卫美国，捍卫自由，成为美国真正的定海神针。现在美国又一次站在了历史的十字路口，美国人民一定会拿起武器与总统并肩作战，彻底排干沼泽，让美国真正再次伟大！
+**Following a unanimous vote **by the Judiciary Committee last week, the Senate just confirmed Seventh Circuit Court of Appeals Judge Amy Coney Barrett to become the 115th Associate Justice on the United States Supreme Court.
 
-作者：比卡丘
+在司法委员会上周一致投票后，参议院刚刚批准第七巡回上诉法院法官艾米 · 科尼 · 巴雷特成为美国最高法院第115位大法官。
 
-原创观点文章 – 2020/10/26
+“Having confirmed her to the Circuit Court in 2017 with bipartisan support, the Senate has already undertaken a thorough and rigorous review of her record,” Sen. Ted Cruz (R-TX) said after President Trump made the nomination last month.
 
-温哥华加喜农场
+得克萨斯州共和党参议员特德 · 克鲁兹（Ted Cruz）在川普总统上月提名她之后说，“2017年在两党支持下确认她进入巡回法院后，参议院已经对她的记录进行了彻底和严格的审查。”
+
+Throughout Justice Barrett’s career, she has faithfully upheld our U.S. Constitution as written. The American Bar Association gave Barrett its highest rating, and she has an impressive track record across the legal profession—as a judge, professor, and litigator.
+
+在巴雷特法官的整个职业生涯中，她一直忠实地维护我们的宪法。美国律师协会给了巴雷特最高的评价，她在整个法律界有着令人印象深刻的记录，无论是作为一名法官、教授和还是诉讼律师。
+
+Most important, she will bring a valuable new perspective to our High Court:
+
+最重要的是，她将为我们的高等法院带来一个宝贵的新前景:
+
+Justice Barrett is the first mother of school-aged children to become a Supreme Court Justice. She is also only the fifth woman ever to serve.
+
+巴雷特法官是第一位成为最高法院法官的学龄儿童的母亲。她也是有史以来第五位担任此职位的女性。
+
+As the mother of a child with special needs, she understands the issues and concerns confronting our nation’s most vulnerable people.
+
+作为一个有特殊需求的孩子的母亲，她理解我们国家最弱势群体面临的问题和担忧。
+
+Justice Barrett will be the only current justice to have a law degree from a school other than Harvard or Yale. She graduated at the top of her class from Notre Dame Law School in Indiana. 巴雷特法官将是唯一一位拥有哈佛或耶鲁以外学校法律学位的现任法官。她以全班第一名的成绩毕业于印第安纳州圣母大学的法学院。
+
+Justice Barrett has made her philosophy clear: She will not legislate from the bench. “Courts have a vital responsibility to the rule of law, which is critical to a free society, but courts are not designed to solve every problem or right every wrong in our public life,” she said during her confirmation hearings.
+
+巴雷特法官已经明确了她的理念：她不会在法官席上立法。她在确认听证会上说：”法院对法治负有重要责任，这对一个自由社会至关重要，但法院不是为了解决所有问题或纠正我们公共生活中的每一个错误”。
+
+“The policy decisions and value judgments of government must be made by the political branches, elected by and accountable to the people,” she added.
+
+“政府的政策决定和价值判断必须由政治部门作出，由人民选举产生并对人民负责。”她补充说。
+
+One letter—written by Justice Barrett’s former law clerks—calls her approach principled and independent-minded. “Judge Barrett taught us that a good judge will not always like the results she reaches; a good judge goes wherever the law leads,” it reads.
+
+有一封信，由巴雷特法官的前法律助理写的，称她的做法是有原则的，有独立思想的。信中写道：“巴雷特法官教导我们，一个好的法官不会总是喜欢她得出的结果；一个好的法官会一直在法律的指引下的。”
+
+Justice Barrett is the very model of a sympathetic yet impartial judge, according to her colleagues at Notre Dame Law School. She is exactly the type of person whom the American people deserve to have sitting on their Supreme Court.
+
+巴雷特法官是一个有同情心而又公正的法官的典范，据她在圣母大学法学院的同事说。她正是美国人民值得拥有的那种坐在最高法院的人。
+
+“If we are to protect our institutions, and protect the freedoms, and protect the rule of law that’s the basis for the society and the freedom that we all enjoy—if we want that for our children and our children’s children—then we need to participate in that work,” Justice Barrett said.
+
+“如果我们要保护我们的机构，保护自由，保护法治——即社会的基础和我们所有人享有的自由；如果我们想让我们的孩子和我们孩子的孩子享有这种自由，那么我们需要参与这项工作，”巴雷特法官说。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26213002/WH_20201026_Amy-figure1.jpg)图片来源：[https://www.whitehouse.gov/articles/senate-confirms-amy-coney-barrett-supreme-court/](https://www.whitehouse.gov/articles/senate-confirms-amy-coney-barrett-supreme-court/)
+[阅读白宫英文原文](https://www.whitehouse.gov/articles/senate-confirms-amy-coney-barrett-supreme-court/)
+
+翻译：【Naomi】校对 & 编辑：【Isaiah4031】
+
+战友之家玫瑰园小队出品
 
 0

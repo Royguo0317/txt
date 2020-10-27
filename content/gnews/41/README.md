@@ -1,181 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 无用的绝句: 苍白的大地上没有脚印
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/459072/)
+## Joe Biden Using facial recognition to monitor the inside of the White House
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/459887/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25225844/WhatsApp-Image-2020-10-24-at-08.09.25-2.jpeg)
+【Japan Himalaya League】JPHIMALAYAwriter: 宇宙之泾  proofread: CCP擀面杖子
 
+We all knew that the Biden family conspired with the Chinese Communist Party to sell out the interests of two countries and intelligence agents in return for huge personal gains. The Biden family operates through Joe Biden’s son Hunter Biden, to do the inappropriate things will be alleged serious crimes.
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26200439/%E5%9B%B31-12.png)
 
+These men steal these countries, a group of thievery, to hold through Bohai Capital financial group trade. Hunter Biden is a shareholder in Bohai Huamei company .Wang Xi is the illegitimate daughter of CCP’s vice chairman Wang Qishan. She is the company’s finance director.
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26200759/%EF%BC%92-125.png)
 
-作者：美东香草山写作组   木白
+Let us observe some of the details of the report from Miles Guo:
 
-题记：中共国的女人一直是盗国贼们和官员们的玩物。而在中下层女性的命运更加悲惨。各种强压在女性身上的观念，让女性处于被压迫的一方：比如在丛林法则的社会，男人在外面被欺负，回家欺负妻子的故事早是常态；又比如那些优秀的大龄女青年们，每天都在别人异样的眼光下压抑地生活；更不用说那些出卖肉体的女人，她们每个人身后都有许多的悲惨故事。在中共国做人难，做女人难上加难。我用笔写她们的苦难，我热爱她们心中依旧未被这个社会污染的美。
+SMRA records show that HUNTER purchased 10% of BHR on October 23, 2017 (via his investment vehicle Skaneateles LLC) and was a director until April 20, 2020. Previously he was invested via other holding companies.
 
-我们要让这片土地上的人真正能够像一个人那样活着，首先，我们就必须懂得尊重女人。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26201309/%EF%BC%93-79.png)
 
+BHR’s current shareholders are Bohai Capital (30%), Shanghai Ample Harvest Financial Services Group Co Ltd (30%), Angju Investment (10%), Thornton (10%), Ulysses Diversified Inc (10%), Skaneateles LLC (10%). According to Chinese corporate records, the original owner of the US stake in BHR was Rosemont, Seneca Thornton, LLC with a 30% shareholding. This was split just under two years later into what is believed to be 20%/10% holding between Rosemont, Seneca, Bohai LLC and Thornton LLC. This was later changed again splitting Rosemont, Seneca, Bohai into Skanletes and Ulyssees. As Rosemont is the HEINZ KERRY vehicle and Seneca is the Biden vehicle, it is believed that the final split allowed HEINZ to exit the partnership divesting to ARCHER.
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26151238/166-%E6%97%A0%E7%94%A8%E7%9A%84%E7%BB%9D%E5%8F%A5-1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26201437/%EF%BC%94-50.png)
 
+In summary, the Chinese government funded a business that , as it were, co-owned along with the son of a sitting US vice president and Secretary of State who was with high probability directly or indirectly invested in the holding company.
 
-**无用的绝句**
+On May 7 – 8 2014, HUNTER visited China for the fifth time, for undisclosed reasons, according to FOIA records.
 
-苍白的大地上没有脚印
+They heard about the multinational group laundering money and also passing it through China’s financial system to legalize the proceeds.
 
-像裸露的肉体
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26201503/%EF%BC%95-5.png)
 
-如果吻是一种安慰
+$1 billion within 26 hours in exchange for Obama’s acquiescence to Chinese Communist militarization of islands and reefs in the South China Sea.
 
-美的前奏带着风声
+Here we have a great problem: how much money did Obama receive?! And rather importantly：Who monitored Obama’s presence with a facial recognition system in the Oval Office White House? Our New Federal of the China’s media LuDe told us its from Joe Biden. 2020 the US Democratic party presidential candidate.
 
-歇在一棵银杏树上
+(All the pictures from GTV)
 
-当你用眼泪向落叶告别
 
-风暴鼓点般砸进黑夜内部
-
-女人是件受难的乐器
-
-奏响大地
-
-无用的绝句在这里生长
-
-花开即慰藉
-
-我们克制地享受着它的美
-
-2020年10月20日
-
-
-
-**转身与回头**
-
-当你走后，空荡荡的地铁驶向终点站
-
-你和人群一同消失在寂寞的路上
-
-三年前，谈起你喜欢的乐队，秋天的夜晚格外爽朗
-
-此刻，在这个熟悉而陌生的城市，你们一同埋没于雾霾
-
-在不通风的地铁外，枫叶满山，正改变着颜色
-
-我放下了多年挤压在心里的石头
-
-而另一块石头却在你的心中越压越重
-
-但我相信地铁的终点:红叶满山，涂满了生命的色彩
-
-于是，我不再转身，你未曾回头
-
-2020年10月24日
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26151519/166-%E6%97%A0%E7%94%A8%E7%9A%84%E7%BB%9D%E5%8F%A5-2.jpg)
-
-
-**小习惯**
-
-我喜欢看你开车的样子
-
-并不是因为我不会开
-
-我喜欢看你唱歌的样子
-
-并不是因为你唱得好
-
-今年秋天的雨水太多
-
-并不是因为大地干涸过
-
-眼前这小条路负载过量
-
-并不因身旁的繁华而走运
-
-繁忙后的静，沉重时的轻
-
-亦如你不经意的小习惯
-
-总有一只眼会打开它的美
-
-2020年10月
-
-
-
-**无题**
-
-一
-
-世界的美好，我缓缓上口
-
-暗月在头顶缓缓上升
-
-我虚构一棵不属于明天的树
-
-如同这个成熟的秋天，万叶凋零
-
-却是我至爱你的理由
-
-再喝一口黄酒吧
-
-把夜读出另一种孤独
-
-银白的江水漫过无名者的脸
-
-无眠的夜晚对饮沉默的篝火
-
-而那晚的风，我热爱过
-
-2020年10月24
-
-二
-
-当我醒来
-
-芦苇惊醒了阳光
-
-蓝色的浪还在我的梦中沉睡
-
-草地上，野花盛开
-
-这个没有露珠的早晨
-
-像极了没有你的梦
-
-2020年10月25
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26151541/166-%E6%97%A0%E7%94%A8%E7%9A%84%E7%BB%9D%E5%8F%A5-3.jpg)
-
-
-**我想吻你，这是花朵的声音**
-
-秋天孤独的王，安静的江水
-
-正一点点淹没这个没有夜晚的城市
-
-只有纯净的吻才能把今夜点燃
-
-我想吻你，这是花朵的声音
-
-我想吻你，月光在我体内生长
-
-我想吻你，大地不曾拥有过我
-
-沉默的河流，疯长的草地
-
-如果还有期望，我想吻你
-
-填满干枯的身躯和深秋的影子
-
-2020年10月24
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
