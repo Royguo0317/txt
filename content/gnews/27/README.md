@@ -1,16 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Gab 创始人兼总裁 Andrew Torba 先生讲解 Gab 新手指南
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/459346/)
+## 决战13天：速来围观！亨特拜登第二部足交乱伦来袭！
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/459951/)
 
-视频来源： [https://gab.com/a/posts/105062121526503185](https://gab.com/a/posts/105062121526503185)
-在这个视频里，[gab.com](http://gab.com) 的创始人兼总裁 [Andrew Torba](https://gab.com/a) 先生向您讲解 Gab 的一些小窍门帮助，新手上路。他还在 Gab 里发布了一个有英文和汉语标注的双语图解，来涵盖这个视频里的基本内容。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26165000/20201025-Gab-tutorial-by-Torba-figure1.png)图片来源: [https://gab.com/a/posts/105099555495590842](https://gab.com/a/posts/105099555495590842)
-请阅读 GNEWS 相关新闻来了解为什么我们要选择 gab 这个自媒体（“[郭先生：gab 不错，我们应该到那里去注册！](https://gnews.org/zh-hans/454801/)”）。正如 Torba 先生在视频里说的一样：“您在 Gab 上，所以您可以自由发言，远离大科技公司的暴政。” 希望通过我们的介绍，您能喜欢 Gab 给您带来的体验，享受言论自由，并在那里找到更多的战友！
+编辑：文顺
 
-翻译：【Cyndi】校对 & 新闻撰写：【V%】字幕：【Naomi(文花开)】【V%】听写：【Dlrow】听写校对：【BruhM】编辑：【Isaiah4031】
+10月26日，爆料革命再爆亨特拜登足交视频。
 
-战友之家玫瑰园小队出品
+更多爆料，请关注Gtv、Gnews！
 
-1+
+您申明，您已年满18周岁或在您访问本视频内容的司法管辖区已达到成人年龄，并完全有能力和资格签订本服务条款中规定的条款、条件、义务、申明、陈述和保证，并遵守和履行本服务条款。如果您未满18岁或法定成年年龄，请不要观看本视频的任何内容。
+
+视频链接：[https://gtv.org//?videoid=5f976a6c384a485bd95fedde](https://gtv.org//?videoid=5f976a6c384a485bd95fedde)
+
+我申明，我已年满18周岁或在访问本视频内容的司法管辖区已达到成人年龄，并完全有能力和资格签订本服务条款中规定的条款、条件、义务、申明、陈述和保证，并遵守和履行本服务条款。
+
+0

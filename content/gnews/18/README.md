@@ -1,15 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国参议院向最高法院确认艾米·科尼·巴雷特（Amy Coney Barrett） 巩固保守派多数
-` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/460014/)
+## 文贵先生歌曲《为香港而战》发行背后的故事
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/460446/)
 
-内新闻：背靠背
+文贵先生盖特：
 
-2020年10月26日，美国参议院以52票对48票确认艾米·科尼·巴雷特（Amy Coney Barrett）到最高法院，标志着特朗普总统第三次任命高等法院。
+10月26日 尊敬的战友们好，你们知道文贵的新歌“Fight For Hong Kong” 发布出来是有多难吗，就是因为这首歌是鼓励香港的，但是我们做到了，因为有正义在，有好人在！感谢我们美国的朋友，国内的战友的支持！
 
-缅因州参议员苏珊·柯林斯（Susan Collins）是唯一投票赞成“不”的共和党人。
+[iTunes下载链接](https://music.apple.com/us/album/fight-for-hong-kong-single/1537277836)🔗
 
-艾米·科尼·巴雷特（Amy Coney Barrett）现年48岁巩固了白宫和参议院共和党人的司法遗产，巴雷特（Barrett）是已故大法官安东宁·斯卡利亚（AntoninScalia）的助手。
-
-0
+1+

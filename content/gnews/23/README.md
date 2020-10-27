@@ -1,43 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Joe Biden Using facial recognition to monitor the inside of the White House
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/459887/)
+## 亨特拜登与欧巴马的神秘交易
+` gewsTaiwan` [轉載自GNews](https://gnews.org/zh-hans/460164/)
 
-【Japan Himalaya League】JPHIMALAYAwriter: 宇宙之泾  proofread: CCP擀面杖子
+台灣農場 文旦
 
-We all knew that the Biden family conspired with the Chinese Communist Party to sell out the interests of two countries and intelligence agents in return for huge personal gains. The Biden family operates through Joe Biden’s son Hunter Biden, to do the inappropriate things will be alleged serious crimes.
+參考資料：[https://www.youtube.com/watch?v=EuG9hF0–Io](https://www.youtube.com/watch?v=EuG9hF0--Io)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26212927/%E4%BA%A8%E7%89%B9%E6%8B%9C%E7%99%BB.png)
+由路德社所发布的爆料照片，白宫内部椭圆形办公室的秘密，美国最严密的行政地方，尽然流出了这张照片及影片，这张照片让全美国人了解的事，白宫不安全了，白宫有叛徒，白宫有间谍，现在的美国政治出了什么问题，更想不到的事，照片及影片的拍摄者是乔拜登，这位现在选举美国总统的候选人，现在拜登家族被一一爆料硬盘门的一群邪恶家族。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26200439/%E5%9B%B31-12.png)
+这张照片在2016年4月4号所拍摄录影，在2016年4月1日时，正是中共领导人习近平赴美参加核安全峰会，在这时间所谈的邪恶阴谋，这个影片尽然是要把南海军事化默认了，只要默认就给10多亿美元，南海再差的海洋经济也不只10亿美元，这是卖出了美国全国人民及其他国家的国际利益，出卖全世界所有人的利益交换的南海军事化，并且还洽谈其他更多项目，将世界各国利益当成自己得利益，将自己的权力用来谋更多的利益，更长久的权利，破坏民主制度。
 
-These men steal these countries, a group of thievery, to hold through Bohai Capital financial group trade. Hunter Biden is a shareholder in Bohai Huamei company .Wang Xi is the illegitimate daughter of CCP’s vice chairman Wang Qishan. She is the company’s finance director.
+这张照片影片也能深刻了解白宫安保团队的沦陷，拥有全球最强科技的帮助之下，使他用来当作私人保安公司的利益，用来运作更多非法的权益，身为国家领导人，将领导人所做的事情当作商品一样，标价贩售，这场交易也超过了所有人的想像但这就是”事实”!!!，希望大家能勇敢面对，在真相接露之时让邪恶之人寿该有之罪责。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26200759/%EF%BC%92-125.png)
-
-Let us observe some of the details of the report from Miles Guo:
-
-SMRA records show that HUNTER purchased 10% of BHR on October 23, 2017 (via his investment vehicle Skaneateles LLC) and was a director until April 20, 2020. Previously he was invested via other holding companies.
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26201309/%EF%BC%93-79.png)
-
-BHR’s current shareholders are Bohai Capital (30%), Shanghai Ample Harvest Financial Services Group Co Ltd (30%), Angju Investment (10%), Thornton (10%), Ulysses Diversified Inc (10%), Skaneateles LLC (10%). According to Chinese corporate records, the original owner of the US stake in BHR was Rosemont, Seneca Thornton, LLC with a 30% shareholding. This was split just under two years later into what is believed to be 20%/10% holding between Rosemont, Seneca, Bohai LLC and Thornton LLC. This was later changed again splitting Rosemont, Seneca, Bohai into Skanletes and Ulyssees. As Rosemont is the HEINZ KERRY vehicle and Seneca is the Biden vehicle, it is believed that the final split allowed HEINZ to exit the partnership divesting to ARCHER.
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26201437/%EF%BC%94-50.png)
-
-In summary, the Chinese government funded a business that , as it were, co-owned along with the son of a sitting US vice president and Secretary of State who was with high probability directly or indirectly invested in the holding company.
-
-On May 7 – 8 2014, HUNTER visited China for the fifth time, for undisclosed reasons, according to FOIA records.
-
-They heard about the multinational group laundering money and also passing it through China’s financial system to legalize the proceeds.
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26201503/%EF%BC%95-5.png)
-
-$1 billion within 26 hours in exchange for Obama’s acquiescence to Chinese Communist militarization of islands and reefs in the South China Sea.
-
-Here we have a great problem: how much money did Obama receive?! And rather importantly：Who monitored Obama’s presence with a facial recognition system in the Oval Office White House? Our New Federal of the China’s media LuDe told us its from Joe Biden. 2020 the US Democratic party presidential candidate.
-
-(All the pictures from GTV)
-
-
+这件事情业能让大家了解，中共的认知，有钱有恶，是没有什么都不能收买的，是没有什么是不敢做的，是没有什么不敢卖的，中共在没有法律，没有真相，没有道德文明的状况，造就了这些人需要更极端的要保护自身的权力，因为没有了这些贪污的钱，没有了权力，他就不能够收买人，不能够巩固自己权力，所以要更加无所不用其极，因为在这个体制下输了，全家丧命，全家被分瓜，甚至连历史纪录，民间纪录都不会有你的出现，只有将中共解体，邪恶制度解体，才能让你在任何职位上，最后能的到善终，你们努力是为了什么???，就只是为了”平安”而已，传播真相吧!!!，在你可以安全的情况传播吧!!!，你们一个小举动将为你们的未来带来真正的平安。
 
 0
