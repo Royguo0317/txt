@@ -1,18 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 谁是盗国贼? 盗了哪个国?
-` VOH欧洲战友团` [轉載自GNews](https://gnews.org/zh-hans/459318/)
+## Gab 创始人兼总裁 Andrew Torba 先生讲解 Gab 新手指南
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/459346/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26165206/134-2.jpg)
-撰稿: michelle喜乐DE 图片: 千鸟
+视频来源： [https://gab.com/a/posts/105062121526503185](https://gab.com/a/posts/105062121526503185)
+在这个视频里，[gab.com](http://gab.com) 的创始人兼总裁 [Andrew Torba](https://gab.com/a) 先生向您讲解 Gab 的一些小窍门帮助，新手上路。他还在 Gab 里发布了一个有英文和汉语标注的双语图解，来涵盖这个视频里的基本内容。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26165000/20201025-Gab-tutorial-by-Torba-figure1.png)图片来源: [https://gab.com/a/posts/105099555495590842](https://gab.com/a/posts/105099555495590842)
+请阅读 GNEWS 相关新闻来了解为什么我们要选择 gab 这个自媒体（“[郭先生：gab 不错，我们应该到那里去注册！](https://gnews.org/zh-hans/454801/)”）。正如 Torba 先生在视频里说的一样：“您在 Gab 上，所以您可以自由发言，远离大科技公司的暴政。” 希望通过我们的介绍，您能喜欢 Gab 给您带来的体验，享受言论自由，并在那里找到更多的战友！
 
-由郭文贵先生发起的爆料革命，从2007年开始就听到郭先生口中，说出的”盗国贼”3个字。这对我们来说并不陌生，但是非常抽象。今天看了&lt;台风调查公司&gt; 2020年9月29日的调查报告，才知晓其中猫腻。
+翻译：【Cyndi】校对 & 新闻撰写：【V%】字幕：【Naomi(文花开)】【V%】听写：【Dlrow】听写校对：【BruhM】编辑：【Isaiah4031】
 
-Hunter Biden 是正在和川普竞选2020年总统的候选人Joe Biden的儿子。Hunter 从2012年起大肆收受中国国有资金，第一笔交易—万向。万向集团总部设在杭州，是一家经营多年，政治上人脉极广的工业集团，创始人鲁冠球曾在2011年1月与Obama前总统会面，并聘用了Obama的盟友，前芝加哥市长Richard Daley (2011-2012曾任Obama白宫 幕僚长 )，Hunter此前曾为其兄弟商务部部长William Daley工作。
-
-而鲁冠球在80年代认识习近平的父亲, 并与2000年初担任浙江省委书记的习近平相识相交。2012年的2月19日Hunter的Seneca环球顾问公司 (Seneca Global Advisors) 作为咨询顾问，代表美国一家能源技术初创企业-巨点能源 (GreatPoint)就4,2亿美元的股权投资和12,5亿美元的项目融资经行洽谈，这是当年外国风险投资资金进入美国的最大一笔投资。双方同意在新疆共同开发建设一个煤制天然气, 就在该项目的签字仪式上中美政府高管均出席了。这种商业活动显然加入了二国的政治影响。这与Joe biden声称的其子与中共的商业活动不了解更加不可相信，他在撒谎。
-
-自万向给马赛诸塞州的“Great Point“提供了数百万美元后，也从Biden参与美国政策决策中得到了好处，2013年万向收购了A123的破产资产，并在2014年赢得Fisker汽车公司的资产破产拍卖，于是顺理成章的拥有了A123和Fisker的汽车技术，还有甚者获得可能被中共军方使用的敏感技术，而这破产的2家公司都有部分资金是美国政府贷款，在特拉华州 (biden的家乡)….
+战友之家玫瑰园小队出品
 
 1+

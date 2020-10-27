@@ -1,19 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【重磅新闻】 林俊良，究竟何许人也？
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/458738/)
+## 10.15 路德时评：朱利安尼班农先生上路德节目暗藏哪些重要硬盘内信息解读？【精华版粤语配音】
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/458753/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25225844/WhatsApp-Image-2020-10-24-at-08.09.25-2.jpeg)
+制作单位：战友之家·粤语频道
+
+制作团队：阿恩，一帘幽梦，流光飞舞，Andy Su，wikim bao，剪刀手
 
 
 
-香草山综合报道
+摘要：
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+亨特.拜登硬盘门里面的资金来源是定罪的依据，硬盘里涉及很多的豪华公寓资产，这些所有权的价值就意味着跟他的付出与收不相符。
 
 0
