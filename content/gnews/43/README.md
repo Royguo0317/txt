@@ -1,52 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 今木兰辞
-` 温哥华加喜农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/458302/)
+## 【重磅新闻】拜登家族与中国的投资合作关系
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/458691/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26122945/mulan1.jpg)图片来源： 网络
-鸡鸡复鸡鸡，木兰满网叫，不闻机杼声，惟闻女呻吟。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25225844/WhatsApp-Image-2020-10-24-at-08.09.25-2.jpeg)
 
-问女何所思，问女何所忆。万里赴戎机，关山度若飞。
 
-这家喻户晓的木兰辞成了所有人的笑话
 
-一个收费最贵的妓女，影响世界进程的鸡。古有千金一笑，今有木兰叫。
+香草山综合报道
 
-花木兰成了花木马，特洛伊木马
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
 
-上海话叫港宁木马
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-艳名留史同时创造了很多世界纪录。
-
-也给日本AV行业迎来历史上最严重的挑战
-
-令圈里人扼腕，圈外人耻笑。
-
-在这恶的体制下，利用你为党国献身，为自己钱程铺路，终是贻害终身。
-
-木兰十亿菲的经历像极了很多共产党党员，从小就是个戏子，人生都是在戏中
-
-欺上瞒下，吃里扒外，祸国殃民，假大空骗坏。她中间屡上中南海钓鱼台。
-
-中共的钓鱼台好有讽刺意义，的确为党国钓了一条条大鱼
-
-姜子牙钓鱼，愿者上钩。海内外大鱼纷纷入局。
-
-一声叹息。
-
-乱世卖春佳人与欺世盗名枭雄俱灭的钟声已被爆料革命敲响。
-
-出门看火伴，火伴皆惊忙：
-
-同行十二年，不知木兰是兔郎。
-
-从此节操是路人。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26123255/biden12.png)
-作者：昔马千羽
-
-原创观点文章 – 2020/10/26
-
-温哥华加喜农场
+圣经故事背景，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

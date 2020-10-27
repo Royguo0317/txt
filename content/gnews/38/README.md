@@ -1,12 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【重磅新闻】托尼.鲍布林斯基声明：中共想借合作影响美国政治
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/458627/)
+## 【重磅新闻】乔·拜登被共产党收买第一笔交易
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/458800/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25214337/WhatsApp-Image-2020-10-24-at-08.09.25-1.jpeg)
-
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25225844/WhatsApp-Image-2020-10-24-at-08.09.25-2.jpeg)
 
 
 

@@ -1,10 +1,12 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【重磅新闻】拜登家族与中国的投资合作关系
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/458691/)
+## 【重磅新闻】中共给了亨特拜登免费的午餐
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/458856/)
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25225844/WhatsApp-Image-2020-10-24-at-08.09.25-2.jpeg)
+
+
 
 
 

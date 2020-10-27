@@ -1,65 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】绝句:潮起潮落没有什么不对
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/459141/)
+## Joe Biden Using facial recognition to monitor the inside of the White House
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/459887/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25214337/WhatsApp-Image-2020-10-24-at-08.09.25-1.jpeg)
+【Japan Himalaya League】JPHIMALAYAwriter: 宇宙之泾  proofread: CCP擀面杖子
+
+We all knew that the Biden family conspired with the Chinese Communist Party to sell out the interests of two countries and intelligence agents in return for huge personal gains. The Biden family operates through Joe Biden’s son Hunter Biden, to do the inappropriate things will be alleged serious crimes.
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26200439/%E5%9B%B31-12.png)
+
+These men steal these countries, a group of thievery, to hold through Bohai Capital financial group trade. Hunter Biden is a shareholder in Bohai Huamei company .Wang Xi is the illegitimate daughter of CCP’s vice chairman Wang Qishan. She is the company’s finance director.
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26200759/%EF%BC%92-125.png)
+
+Let us observe some of the details of the report from Miles Guo:
+
+SMRA records show that HUNTER purchased 10% of BHR on October 23, 2017 (via his investment vehicle Skaneateles LLC) and was a director until April 20, 2020. Previously he was invested via other holding companies.
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26201309/%EF%BC%93-79.png)
+
+BHR’s current shareholders are Bohai Capital (30%), Shanghai Ample Harvest Financial Services Group Co Ltd (30%), Angju Investment (10%), Thornton (10%), Ulysses Diversified Inc (10%), Skaneateles LLC (10%). According to Chinese corporate records, the original owner of the US stake in BHR was Rosemont, Seneca Thornton, LLC with a 30% shareholding. This was split just under two years later into what is believed to be 20%/10% holding between Rosemont, Seneca, Bohai LLC and Thornton LLC. This was later changed again splitting Rosemont, Seneca, Bohai into Skanletes and Ulyssees. As Rosemont is the HEINZ KERRY vehicle and Seneca is the Biden vehicle, it is believed that the final split allowed HEINZ to exit the partnership divesting to ARCHER.
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26201437/%EF%BC%94-50.png)
+
+In summary, the Chinese government funded a business that , as it were, co-owned along with the son of a sitting US vice president and Secretary of State who was with high probability directly or indirectly invested in the holding company.
+
+On May 7 – 8 2014, HUNTER visited China for the fifth time, for undisclosed reasons, according to FOIA records.
+
+They heard about the multinational group laundering money and also passing it through China’s financial system to legalize the proceeds.
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26201503/%EF%BC%95-5.png)
+
+$1 billion within 26 hours in exchange for Obama’s acquiescence to Chinese Communist militarization of islands and reefs in the South China Sea.
+
+Here we have a great problem: how much money did Obama receive?! And rather importantly：Who monitored Obama’s presence with a facial recognition system in the Oval Office White House? Our New Federal of the China’s media LuDe told us its from Joe Biden. 2020 the US Democratic party presidential candidate.
+
+(All the pictures from GTV)
 
 
-
-
-
-**作者:纽约香草山写作组   木白 发稿：悟空**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26152822/167-%E7%BB%9D%E5%8F%A5-1.png)
-绝句
-
-**一**
-
-**潮起潮落没有什么不对，黑夜白天没有什么不对，人与兽没有什么不对**。
-
-**可是，你是人中的兽就是不对，你要把他人也变成兽就是不对。**
-
-**从兽到人，我们进化了亿万年，无法忍受这邪恶，如同无法忍受恶臭的脏水。**
-
-**我们每个人都是受害者，现在，我写不出优美的诗句，只有本能地抗争。**
-
-二
-
-**如同我热爱的江水，它流动的时候，我不动； 它不动的时候，却流进了我的心里。**
-
-**如同，这个秋夜，雾霾遮不住星辰，星光从亿万光年外落到我们的手上，仿佛触到了神的手指。**
-
-**万物静美如谜，我们只是渺小的尘埃，若我们不争气，比尘埃更微不足道，比禽兽还野蛮可悲。**
-
-**看看这世界吧，我们没有资格享用任何美好，只要巨大的邪恶还在，我就无法写下一句美丽的诗。**
-
-三
-
-**当我忘掉了眼泪，我还能忘掉什么？在黑夜里行走，在那堵黑墙内，我的心比你们更热烈。**
-
-**星辰在抖动，五脏六腑在我体内燃烧，可怜的诗人，除了手中那只无用的笔还能做什么。**
-
-可**笑的堂吉诃德，但是哪怕是一无所有，我都有反抗，我的手中还有语言**。
-
-**邪恶的帝国正在崩塌，人民的唾沫成海：他们的死亡始于肉体，他们彻底的死亡终止于人心。**
-
-四
-
-**踏上那座午夜之桥，踏进多年的心病，霓虹灯下的暗影历历在目。**
-
-**曝光于天下你们就无路可逃，一群上钩的鱼扎不进江底。**
-
-**当乌鸦与黑夜融为一体，死亡是黑夜的嫁衣。**
-
-**我醒着走进梦境，夸过那座午夜之桥，跨过你们的尸体。**
-
-2020年10月23日
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26152932/167-%E7%BB%9D%E5%8F%A5-2.png)
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
