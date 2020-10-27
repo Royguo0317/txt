@@ -1,11 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年10月26日CCP冠状病毒大流行第275集
-` GM30` [轉載自GNews](https://gnews.org/zh-hans/459968/)
+## 独家： 亨特拜登与奥巴马在白宫椭圆形办公室
+` GM36` [轉載自GNews](https://gnews.org/zh-hans/454919/)
 
-中共宣传朝鲜战争预意绑架国人对抗西方；王岐山暗示金融危机预示内斗升级；喀什封城全面核酸检测；中共强行挖地，打伤致残牧民……
-
-
-
+他们一起出现在椭圆形办公室，这又是什么情况呢？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25223940/OBAMA.jpeg)
 0

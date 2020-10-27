@@ -1,17 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 10.20 路德时评：薄甜甜现在是否还活着？【精华版粤语配音】
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/458841/)
+## 【重磅新闻】中共给了亨特拜登免费的午餐
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/458856/)
 
-制作单位：战友之家·粤语频道
-
-制作团队：阿恩，打杂的，Andy Su，wen fei，文雀，剪刀手
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25225844/WhatsApp-Image-2020-10-24-at-08.09.25-2.jpeg)
 
 
 
-摘要：
 
-美国左派一直隐而不发亨特.拜登硬盘丑闻，蓄意隐瞒等同犯罪，关键证人薄甜甜将出面指证。
+
+香草山综合报道
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

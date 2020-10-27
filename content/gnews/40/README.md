@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【重磅新闻】 林俊良，究竟何许人也？
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/458738/)
+## 【重磅新闻】乔·拜登被共产党收买第一笔交易
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/458800/)
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25225844/WhatsApp-Image-2020-10-24-at-08.09.25-2.jpeg)
 
