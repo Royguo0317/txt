@@ -1,23 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【精华版粤语快报】【路德社】10.25：FBI/DOJ一直隐藏勾兑证据；川普必炒执法高官；亨特与奥巴马密会曝光
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/458654/)
+## 【重磅新闻】 林俊良，究竟何许人也？
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/458738/)
 
-制作单位：战友之家·粤语频道
-
-制作团队：路德二组（文雀、心安、文恩）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25225844/WhatsApp-Image-2020-10-24-at-08.09.25-2.jpeg)
 
 
 
-摘要：
+香草山综合报道
 
-亨特硬碟曝光与奥巴马在白宫秘密会晤照片，CIA内部人士爆料2015年FBI/DOJ就一直在隐藏拜登和中共勾兑证据；每日邮报曝大选之后川普必解雇FBI和CIA局长。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
 
-原视频链接：
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-10/25/2020 路德时评（路博艾冠谈）：亨特硬盘曝光与奥巴马在白宫秘密会晤照片；CIA内部人士曝“FBI\DOJ一直在隐藏拜登和中共勾兑证据；每日邮报曝大选之后川普必解雇FBI/CIA局长！
-
-
+圣经故事背景，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

@@ -1,43 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Joe Biden Using facial recognition to monitor the inside of the White House
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/459887/)
+## 美国参议院投票确认 巴雷特成为最高法院法官
+` pmzy-vog` [轉載自GNews](https://gnews.org/zh-hans/460006/)
 
-【Japan Himalaya League】JPHIMALAYAwriter: 宇宙之泾  proofread: CCP擀面杖子
+作者：文章
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26205318/d0489049-4f60-4801-86a3-7d8fc98f9bdf-AP_Supreme_Court_Barrett.jpg)
+最新消息，参议院周一投票确认了法官艾米-科尼-巴雷特为最高法院法官，完成了在选举日前几天将她安排到高等法院的冲刺，并巩固了法官席上6-3的保守派多数。
 
-We all knew that the Biden family conspired with the Chinese Communist Party to sell out the interests of two countries and intelligence agents in return for huge personal gains. The Biden family operates through Joe Biden’s son Hunter Biden, to do the inappropriate things will be alleged serious crimes.
+巴雷特以52-48票的微弱优势获得确认，她将在周一晚间的白宫仪式上宣誓就职。一名共和党人、缅因州的苏珊-柯林斯（Susan Collins）和众议院的47名民主党人一起投票反对这一提名。 现年48岁的巴雷特将成为第五位在最高法院任职的女性，填补9月去世的大法官鲁斯-巴德-金斯伯格留下的空缺。她的宣誓就职意味著她最早可能在下周就能审理案件。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26200439/%E5%9B%B31-12.png)
+参议员们在周末对巴雷特的提名进行了辩论，双方都重申了在最后投票前的整个确认过程中发出的论点。在最后30个小时的辩论中，参议员们从周日晚上到周一通宵达旦，轮流守在会场。民主党人警告说，巴雷特的确认会对平价医疗法案和选举争议等热点问题造成影响，而共和党人则称赞巴雷特的资格，并将她的待确认宣传为总统唐纳德-特朗普和参议院共和党人的关键成就，民主党人将无法侵蚀。
 
-These men steal these countries, a group of thievery, to hold through Bohai Capital financial group trade. Hunter Biden is a shareholder in Bohai Huamei company .Wang Xi is the illegitimate daughter of CCP’s vice chairman Wang Qishan. She is the company’s finance director.
+尽管民主党人反对–其中包括对在COVID-19大流行的情况下举行确认程序的担忧–但共和党人还是向前推进。巴雷特迅速开始与参议员会面，确认听证会被安排，参议院共和党人制定了一条在选举日之前确认巴雷特的道路。当监督她的审查过程的参议院司法委员会进行投票，将她的提名送交参议院全体议员时，民主党人抵制了投票，而是在椅子上放了一些人的照片，他们说这些人可能会受到《平价医疗法》被推翻的影响。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26200759/%EF%BC%92-125.png)
-
-Let us observe some of the details of the report from Miles Guo:
-
-SMRA records show that HUNTER purchased 10% of BHR on October 23, 2017 (via his investment vehicle Skaneateles LLC) and was a director until April 20, 2020. Previously he was invested via other holding companies.
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26201309/%EF%BC%93-79.png)
-
-BHR’s current shareholders are Bohai Capital (30%), Shanghai Ample Harvest Financial Services Group Co Ltd (30%), Angju Investment (10%), Thornton (10%), Ulysses Diversified Inc (10%), Skaneateles LLC (10%). According to Chinese corporate records, the original owner of the US stake in BHR was Rosemont, Seneca Thornton, LLC with a 30% shareholding. This was split just under two years later into what is believed to be 20%/10% holding between Rosemont, Seneca, Bohai LLC and Thornton LLC. This was later changed again splitting Rosemont, Seneca, Bohai into Skanletes and Ulyssees. As Rosemont is the HEINZ KERRY vehicle and Seneca is the Biden vehicle, it is believed that the final split allowed HEINZ to exit the partnership divesting to ARCHER.
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26201437/%EF%BC%94-50.png)
-
-In summary, the Chinese government funded a business that , as it were, co-owned along with the son of a sitting US vice president and Secretary of State who was with high probability directly or indirectly invested in the holding company.
-
-On May 7 – 8 2014, HUNTER visited China for the fifth time, for undisclosed reasons, according to FOIA records.
-
-They heard about the multinational group laundering money and also passing it through China’s financial system to legalize the proceeds.
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26201503/%EF%BC%95-5.png)
-
-$1 billion within 26 hours in exchange for Obama’s acquiescence to Chinese Communist militarization of islands and reefs in the South China Sea.
-
-Here we have a great problem: how much money did Obama receive?! And rather importantly：Who monitored Obama’s presence with a facial recognition system in the Oval Office White House? Our New Federal of the China’s media LuDe told us its from Joe Biden. 2020 the US Democratic party presidential candidate.
-
-(All the pictures from GTV)
-
-
+巴雷特在正式担任高等法院法官之前，还需要进行两次宣誓。通常情况下，最高法院首席大法官约翰-罗伯茨将为新任副大法官进行宣誓，并在白宫举行仪式。巴雷特最早可能在周一晚上宣誓就职，并可能参与最高法院关于平价医疗法案的争议案件或选举后可能出现的纠纷。
 
 0

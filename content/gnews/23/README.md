@@ -1,35 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德惊天爆丨视频照片显示的是中共用10亿美元让亨特拜登用钱买通奥巴马总统在中共南中国海军事化上默许，这是整个人类文明命运之战
-` YALUN` [轉載自GNews](https://gnews.org/zh-hans/459357/)
+## Joe Biden Using facial recognition to monitor the inside of the White House
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/459887/)
 
-亚伦
+【Japan Himalaya League】JPHIMALAYAwriter: 宇宙之泾  proofread: CCP擀面杖子
+
+We all knew that the Biden family conspired with the Chinese Communist Party to sell out the interests of two countries and intelligence agents in return for huge personal gains. The Biden family operates through Joe Biden’s son Hunter Biden, to do the inappropriate things will be alleged serious crimes.
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26200439/%E5%9B%B31-12.png)
+
+These men steal these countries, a group of thievery, to hold through Bohai Capital financial group trade. Hunter Biden is a shareholder in Bohai Huamei company .Wang Xi is the illegitimate daughter of CCP’s vice chairman Wang Qishan. She is the company’s finance director.
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26200759/%EF%BC%92-125.png)
+
+Let us observe some of the details of the report from Miles Guo:
+
+SMRA records show that HUNTER purchased 10% of BHR on October 23, 2017 (via his investment vehicle Skaneateles LLC) and was a director until April 20, 2020. Previously he was invested via other holding companies.
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26201309/%EF%BC%93-79.png)
+
+BHR’s current shareholders are Bohai Capital (30%), Shanghai Ample Harvest Financial Services Group Co Ltd (30%), Angju Investment (10%), Thornton (10%), Ulysses Diversified Inc (10%), Skaneateles LLC (10%). According to Chinese corporate records, the original owner of the US stake in BHR was Rosemont, Seneca Thornton, LLC with a 30% shareholding. This was split just under two years later into what is believed to be 20%/10% holding between Rosemont, Seneca, Bohai LLC and Thornton LLC. This was later changed again splitting Rosemont, Seneca, Bohai into Skanletes and Ulyssees. As Rosemont is the HEINZ KERRY vehicle and Seneca is the Biden vehicle, it is believed that the final split allowed HEINZ to exit the partnership divesting to ARCHER.
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26201437/%EF%BC%94-50.png)
+
+In summary, the Chinese government funded a business that , as it were, co-owned along with the son of a sitting US vice president and Secretary of State who was with high probability directly or indirectly invested in the holding company.
+
+On May 7 – 8 2014, HUNTER visited China for the fifth time, for undisclosed reasons, according to FOIA records.
+
+They heard about the multinational group laundering money and also passing it through China’s financial system to legalize the proceeds.
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26201503/%EF%BC%95-5.png)
+
+$1 billion within 26 hours in exchange for Obama’s acquiescence to Chinese Communist militarization of islands and reefs in the South China Sea.
+
+Here we have a great problem: how much money did Obama receive?! And rather importantly：Who monitored Obama’s presence with a facial recognition system in the Oval Office White House? Our New Federal of the China’s media LuDe told us its from Joe Biden. 2020 the US Democratic party presidential candidate.
+
+(All the pictures from GTV)
 
 
 
-
-
-
-
-《路德社》10月26日早间节目继续解读昨天晚上放出的一张亨特拜登与时任总统奥巴马在椭圆形办公室的人脸识别系统偷拍的视频截图，此图竟然就是亨特拜登用中共的黑金说服奥巴马默许中共军事化南中国海。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26172331/123.jpeg)
-关于中共南中国海军事化，美国方面是奥巴马说，习对他说中共绝对不会在南中国海搞岛礁军事化。而中共外交部一直强调，南中国海军事化是美国默许的。路德先生指出，就在这个照片画面之后的26个小时内，亨特拜登这个中间人就收了10亿美元，估计给奥巴马的就是一个零头，并没有透露具体数字。亨特拜登对奥巴马说，收取这笔钱的代价最重要的一点——要同意习、同意中共在南中国海军事化，除此之外，还有等一系列肮脏的出卖美国国家安全的交易。
-
-这张照片是在亨特拜登的电脑里发现的，这张照片发出去以后，邮件里显示亨特拜登相关的银行账户就多了10亿美元。这张照片是亨特拜登想证明是他买通了奥巴马关于南中国海问题，这个也就是习敢干的底气所在，发生这一切的视频就在习的手上。
-
-有意思的是，这个视频是谁录的？答案是亨特拜登的父亲乔拜登，乔拜登留了一份证据，亨特拜登也偷偷的拷贝了一份。他俩父子关系清楚的像生意伙伴，因为涉及的利益太大了，所以相互提防。
-
-按照美国国家制度的安排，只有美国特勤局有特殊权力在白宫内部拍摄视频。而且，在奥巴马任期的时代，美国的真正总统是乔拜登。因为在当时美国特勤局官员的指派都是乔拜登说的算，所以安排这些拍摄是很合情合理的。所以，如果奥巴马看到这张照片的时候，一定会震惊。
-
-“这是我们文明历史的一个十字路口！”——川普总统
-
-《路德社》节目也一直在强调，这次美国大选，是人类文明的一个分水岭。如果这一次中共控制渗透的乔拜登一派大选成功了，美国的军警特宪就成了中共的军警特宪，美国的FBI也就成了中共的纪检委，美国司法部就成了中共的黑法庭，美国的国会就成了中共的人民代表举手大会，后面美国议会按照中共的意愿通过一个一个设法让民众禁言的法案，上街，最后美国也将成为香港，沦为大陆。
-
-路德先生也指出，美国人从来没有想过如何控制总统，即是通过控制白宫幕僚长。控制了幕僚长就等于控制了整个白宫，控制了白宫就等于控制了全世界。正如中共只要控制了8341部队，就等于控制了整个北京城，这就是中国几千年来的帝王之术，美国几百年的民主制度几乎被玩弄残废。
-
-所以，爆料革命跟多少力量在交量，最早是和王岐山，后来是整个中共，还有华尔街，后面还有被中共蓝金黄的硅谷，后来又加上好莱坞，后来还有民主党，最后到部分共和党。幸亏美国还有定海神针的力量，美国真正背后的力量，文明的力量，所以才有现在的这一切，可以把黑暗揭露出来。关键时刻美国总有伟大的人物站出来，比如在林肯时代有林肯站出来，在里根时代有里根站出来，在川普时代有川普总统、班农先生和朱利安尼先生站出来。
-
-未来还有乔拜登和中共勾兑的视频出来，会更震惊，美国人民请醒醒吧。47个硬盘，上百个硬盘，而且不仅仅是拜登家族，还有欧洲的家族，都一样，还有好莱坞的，IT类公司的将来全部都会炸出来。
-
-1+
+0

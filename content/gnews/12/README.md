@@ -1,64 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP蓝金黄的重度粉碎机&#8211;炸弹资料(H大佬+毒=CCP&#8221;BGY&#8221;)
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/444946/)
+## 宾夕法尼亚州上诉法院拒绝了川普政府提议卫星监控选举办公室的要求，中共启动在美沉默力量
+` GM101` [轉載自GNews](https://gnews.org/zh-hans/456116/)
 
-编辑：玫瑰天空
+美东时间10月25号晚，川普总统通过社交媒体推特表示宾夕法尼亚州上诉法院拒绝了自己关于适用卫星监控选举办公室的提议。川普总统指出宾夕法尼亚州上诉法院拒绝了本届政府对民意调查员监视卫星选举办公室的要求。川普总统认为监视的目的只是为了寻求公平的投票数，然而法院的恶意拒绝非常糟糕，其行为可耻。
 
-邪恶的灵魂总是能聚集在一起，所有的贪欲和色诱都是他们堕落的借口。
+此前美国总统大选曝光通过邮寄选票作假的丑闻，更有甚者将支持川普总统的投票销毁。爆料革命路德社曝光中共在美国蓝金黄布局多年，试图通过控制政客、媒体、相关部门及人员左右美国总统大选，达到其控制美国并奴役世界的目的。在此背景下，爆料革命发起人郭文贵先生发动了举世瞩目的灭共终极之战，每小时一个与中共有关的重磅新闻通过GNEWS公布，终极之战将持续13天，直到美国总统大选结束为止。
 
-选择黑暗的人永远把罪责推向别处，怪罪阳光没有照耀他们的黑夜！
+宾夕法尼亚州上诉法院拒绝监控选举办公室的行为，证明了美国自由民主法治遭到严重破坏，美国的立国之本遭到挑战。本次大选将决定世界人民的命运，区别是让政府服务于人民，还是让盗国贼奴役人民。
 
-把自己的罪恶归咎于人情的冷暖和世界的倾斜，
-
-殊不知，它们才是粉碎世界和侵吞美好的恶魔！
-
-这样的恶行和黑暗是该被挖掘出来了！
-
-世界不能被它们毁灭！
-
-灵魂和人类的光明不能被它们继续玷污和荼毒！
-
-是时候集结全世界的正义力量奋起抗争了！
-
-不分国家，不分宗族，不分肤色，不分党派，让我们一起为世界而战！
-
-为人类的未来而战！为了保护我们的孩子而战！！为正义和光明而战！！摧毁恶魔和黑暗！！！
-
-照片里的是谁？视频里的是谁？H大佬是谁？
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24211501/IMG_C4835A12BCE9-1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25235322/85c373b3-43c7-4115-b97b-a6c5a0b17920.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26012814/2be805a2-39b2-40e1-b677-36dae1de427c.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26012839/%E6%88%AA%E5%B1%8F2020-10-25-13.53.54.png)
-1:
-
-
-
-> [“BGY”H大佬集锦](https://www.xmlynz.org/?p=3547&#038;lang=zh-cn)
-
-
-
-2:
-**Who is Hunter Biden’s money, gender and transactions related to? 14 years old?**
-
-
-
-> [Who is Hunter Biden’s money, gender and transactions related to? 14 years old?](https://gnews.org/455853/)
-
-
-
-# 3: Mr. R. Hunter Biden is not a vagrant, he has a very high-paying job! Who do you work for? Who pays? Where does the money come from?Who is he with?
-
-
-
-> [Mr. R. Hunter Biden is not a vagrant, he has a very high-paying job! Who do you work for? Who pays? Where does the money come from?Who is he with?](https://gnews.org/444943/)
-
-
-4:CCP蓝金黄的重度粉碎机–炸弹资料(H大佬+毒=CCP”BGY”)
-
-https://gnews.org/zh-hans/444946/
-
-
-
-
-
-
-7+
+0
