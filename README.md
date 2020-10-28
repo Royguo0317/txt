@@ -13,26 +13,26 @@
 
 
 
-### [路德再爆猛料：中共特务傅希秋与拜登勾结证据出现在硬盘里](/content/gnews/1/README.md)
+### [视频亨特·拜登第二波视频 9 : 更加刺激, 更加沒有人性, 更加变态!](/content/gnews/1/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [路德再爆猛料：中共特务傅希秋与拜登勾结证据出现在硬盘里](/content/gnews/2/README.md)
  ` pmzy-vog`
 
-### [每小时更新‼️独家重磅! 照片里和亨特·拜登一起的是谁?](/content/gnews/2/README.md)
+### [每小时更新‼️独家重磅! 照片里和亨特·拜登一起的是谁?](/content/gnews/3/README.md)
  ` 秘密翻译组G-Translators`
 
-### [中共盗国贼财富系列一：驻美特务头目何志平身家3230亿美元](/content/gnews/3/README.md)
+### [中共盗国贼财富系列一：驻美特务头目何志平身家3230亿美元](/content/gnews/4/README.md)
  ` GM101`
 
-### [视频亨特·拜登第二波视频8 : 更加刺激, 更加沒有人性, 更加变态!](/content/gnews/4/README.md)
+### [视频亨特·拜登第二波视频8 : 更加刺激, 更加沒有人性, 更加变态!](/content/gnews/5/README.md)
  ` 秘密翻译组G-Translators`
 
-### [爆炸新闻!亨特·拜登的一封电邮(转自“Bob Fenet”的邮件 &#8211; 关于华尔街日报郭文贵先生的报道),谁又是Bob Fenet?](/content/gnews/5/README.md)
+### [爆炸新闻!亨特·拜登的一封电邮(转自“Bob Fenet”的邮件 &#8211; 关于华尔街日报郭文贵先生的报道),谁又是Bob Fenet?](/content/gnews/6/README.md)
  ` 秘密翻译组G-Translators`
 
-### [川普总统明确提出乔拜登与“中国共产党”的关系](/content/gnews/6/README.md)
+### [川普总统明确提出乔拜登与“中国共产党”的关系](/content/gnews/7/README.md)
  ` Wenya Himalaya`
-
-### [突发！继《纽约邮报》后，第二家媒体《波士顿先驱报》发文支持川普总统连任](/content/gnews/7/README.md)
- ` GM101`
 
 ### [亨特-拜登高频率出现在加州意味着什么？](/content/gnews/8/README.md)
  ` GM77`
