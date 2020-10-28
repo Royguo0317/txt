@@ -1,24 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统竞选网站被黑
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/474427/)
+## 54%～73%｜喀什CCP病毒感染率奇高！
+` Ronald` [轉載自GNews](https://gnews.org/zh-hans/492947/)
 
-**翻译：康州农场-蜗牛先生**
-**审核：康州农场-Helen**
-**制图：康州农场-Truemanman**
-**翻译来源：https://www.washingtonexaminer.com/news/trump-campaign-website-briefly-hacked**
+内新闻/素材：Stephen 校对：老白
 
-本周二晚上川普总统竞选网站在遭到部分黑客攻击后，现已恢复上线。
+从喀什CCP病毒事件来看，目前中共病毒毒株已具备极强的传染率，能在短时间内感染大量人群。从CCP公开的信息来看，其短时间内已经造成了54%～73%的人群感染率，且多为无症状感染者，传播风险更高，传播的隐蔽性更强。
 
-美国东部时间下午7点左右，一位经常从“网络小白”那里窃取加密货币的黑客以某种数字入侵方式修改了特朗普竞选网站的“简介”部分，并发布了一张网站截图，使其看起来像联邦调查局关闭了该网站。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28051036/%E5%9B%BE%E7%89%871-23.png)川普总统竞选网站被黑
-“唐纳德·特朗普总统每天在全世界散布很多的假新闻，”张贴在网站上的截图中显示的部分文字表明，“够了，现在是时候让世界知道真相了。”
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28082030/11111.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28082035/22222.jpg)
 
-截图文字中给出了两个私有门罗币区块链的加密货币地址，指示人们如果想要查看“川普总统及家人的全部隐私”，请发送门罗币。”
+新疆三村服装厂
+截至10月26日，中共公布的感染病例为137人，全部为站敏乡的三村服装厂工人，该工厂有工人252人，其感染率为54%。
 
-门罗币（Monero）是现有的最有价值的区块链加密货币之一，其特点是对个人隐私有高度的匿名性，完全隐匿了交易双方之间的信息，标志着过去黑客依赖于比特币交易的转变，比特币采用公共账本记账方式，更易于追踪。
+截至10月27日，中共公布的总感染病例为183人，但未说明其他病例是否也来自同一工厂，如果所有病患都是三村服装厂工人，那么其感染率则高达73%！
 
-特朗普竞选活动的传播总监蒂姆·默特（Tim Murtaugh）周二晚发表声明说，竞选活动的网站被“污名化”，竞选活动团队已经与执法部门联系“以便对攻击来源进行调查”。默特补充说，该网站的功能已恢复，并且在攻击过程中未暴露任何敏感数据。骇客事件发生在选举日的前一周，正是特朗普与前副总统乔·拜登对峙的关键时期。
+新闻链接：
+[https://3g.163.com/news/article/FQ2084CG0001899O.html?clickfrom=baidu\_adapt
+https://3g.163.com/news/article\_so/FPS0SLNM0545LX4F.html](https://3g.163.com/news/article/FQ2084CG0001899O.html?clickfrom=baidu_adapt
+https://3g.163.com/news/article_so/FPS0SLNM0545LX4F.html)
 
-1+
+2+

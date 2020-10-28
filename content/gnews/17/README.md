@@ -1,24 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 54%～73%｜喀什CCP病毒感染率奇高！
-` Ronald` [轉載自GNews](https://gnews.org/zh-hans/492947/)
+## 阿什利·拜登日记被爆——童年性创伤、吸毒、对父亲的怨恨
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/493707/)
 
-内新闻/素材：Stephen 校对：老白
+*喜马拉雅联盟加拿大农场 abbs
+校对 文锦 不动之光 上传 WJ*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28095322/Ashley-Biden-Diary-Full-Release-1-1.jpg)图片来源：https://nationalfile.com/
+据美国国家档案局网站10月26日 报道，自周六晚上以来，国家档案局已发布了数十份民主党总统候选人乔·拜登39岁的女儿阿什莉·拜登（Ashley Biden） 2019 年的日记。日记从她在佛罗里达州戒毒所开始的，详细介绍了她的浪漫爱好、婚姻破裂、毒品和性瘾的困扰，以及她的家庭生活，还有她父亲开始竞选总统。国家档案局公开了112页的日记，仅通过少量修饰来保护个人隐私。
 
-从喀什CCP病毒事件来看，目前中共病毒毒株已具备极强的传染率，能在短时间内感染大量人群。从CCP公开的信息来看，其短时间内已经造成了54%～73%的人群感染率，且多为无症状感染者，传播风险更高，传播的隐蔽性更强。
+这些文档已被举报人确定是属于阿什莉·拜登，举报人还有录音确认其日记，并邀请了一个鉴定手写专家确认日记上的字是阿什莉·拜登所写，国家档案局拥有这位举报人的录音，详细记录了他所做的工作，验证其真实性。国家档案局得知：举报人认为雇用他的有关媒体不会在总统大选前发布这个材料。在录音中，举报人还说，雇用他的媒体在得到其他竞争媒体施加的压力，选择不发布这个日记。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28095449/dacab151ea443ec9.jpg)拜登家族成员图
+国家档案局网站已经披露了日记中的一些内容，作者认为Ashley在儿时就被性骚扰，在和她父亲一同淋浴时乔·拜登有不恰当的行为。日记中详细介绍她戒毒的挣扎、失败的婚姻和不同恋情对她的折磨，显示了她全家恐惧她哥哥的性丑闻会暴露，同时显示她对她父亲的深深怨恨，因为他的钱、控制欲和情感上的利用。
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28082030/11111.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28082035/22222.jpg)
-
-新疆三村服装厂
-截至10月26日，中共公布的感染病例为137人，全部为站敏乡的三村服装厂工人，该工厂有工人252人，其感染率为54%。
-
-截至10月27日，中共公布的总感染病例为183人，但未说明其他病例是否也来自同一工厂，如果所有病患都是三村服装厂工人，那么其感染率则高达73%！
-
-新闻链接：
-[https://3g.163.com/news/article/FQ2084CG0001899O.html?clickfrom=baidu\_adapt
-https://3g.163.com/news/article\_so/FPS0SLNM0545LX4F.html](https://3g.163.com/news/article/FQ2084CG0001899O.html?clickfrom=baidu_adapt
-https://3g.163.com/news/article_so/FPS0SLNM0545LX4F.html)
+参考链接：
+[FULL RELEASE: Ashley Biden Diary Reveals Child Sex Trauma, Drug Abuse, Resentment For Joe – Whistleblower](https://nationalfile.com/full-release-ashley-biden-diary-reveals-child-sex-trauma-drug-abuse-resentment-for-joe-whistleblower/)
 
 2+
