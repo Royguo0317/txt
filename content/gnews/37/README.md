@@ -1,33 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Facebook 已经沦为中共的喉舌
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/492921/)
+## 54%～73%｜喀什CCP病毒感染率奇高！
+` Ronald` [轉載自GNews](https://gnews.org/zh-hans/492947/)
 
-纽约香草山农场金融部  三票先生 校对/发稿：飞虹
+内新闻/素材：Stephen 校对：老白
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25225844/WhatsApp-Image-2020-10-24-at-08.09.25-2.jpeg)
+从喀什CCP病毒事件来看，目前中共病毒毒株已具备极强的传染率，能在短时间内感染大量人群。从CCP公开的信息来看，其短时间内已经造成了54%～73%的人群感染率，且多为无症状感染者，传播风险更高，传播的隐蔽性更强。
 
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28082030/11111.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28082035/22222.jpg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28081745/%E5%9B%BE%E7%89%87-1-20.png)
-据中共最大的海外公关公司、全球行业排名第九的上市公司蓝色光标发布的公开信息来看，2015年蓝色光标成为facebook的战略合作伙伴，2018年蓝色光标成为facebook全球首家突破10亿美元的合作伙伴，2019年度海外业务增长42.83%，2020年上半年海外业务同比增长58.36%。这说明蓝色光标已经成为facebook的最大客户，合作金额已经远超10亿美元。由于蓝色光标的主要业务为中国内地公司在海外的公关和广告代理，所以这10多亿美元的合作金额实际就是facebook的收入！也就是说来自中国内地的公司已经成为facebook的重要金主。这还没有计算一些大的中国企业如海航等单独的公关和广告投放。
+新疆三村服装厂
+截至10月26日，中共公布的感染病例为137人，全部为站敏乡的三村服装厂工人，该工厂有工人252人，其感染率为54%。
 
-据《北美保守评论》2020年8月23日报道，facebook有一个由20人组成的监督委员会，该监督委员会拥有从平台上删除内容的权力。这20名委员中有18名成员要么与索罗斯有直接关系，要么与他支持的团体有直接关系。由此看来facebook已经被索罗斯直接控制。众所周知，索罗斯与中共有千丝万缕的利益联系，也是安提法（Antifa）的主要资助人。
+截至10月27日，中共公布的总感染病例为183人，但未说明其他病例是否也来自同一工厂，如果所有病患都是三村服装厂工人，那么其感染率则高达73%！
 
-据《纽约时报》中文网2018年6月6日报道，facebook承认与华为、联想、OPPO和TCL等至少四家中国企业共享数据。
+新闻链接：
+[https://3g.163.com/news/article/FQ2084CG0001899O.html?clickfrom=baidu\_adapt
+https://3g.163.com/news/article\_so/FPS0SLNM0545LX4F.html](https://3g.163.com/news/article/FQ2084CG0001899O.html?clickfrom=baidu_adapt
+https://3g.163.com/news/article_so/FPS0SLNM0545LX4F.html)
 
-2016年3月18日扎克伯格访问北京，在其个人网页上公布了他在天安门跑步的照片，他经过天安门广场和故宫到达天坛，全程5公里，他没有戴口罩，而当天北京环保监测中心公布的空气数据为“重度污染”。他在会见习近平的时候直接用中文交流，传说是他特地向他的具有华裔血统的妻子学的中文。看来小札为了讨好中共也是拼了。
-
-2014年12月8日，时任中国网信办主任鲁炜访问了facebook总部，报道说鲁炜在扎克伯格的办公桌上发现一本习近平的书，扎克伯格还对鲁炜说“这本书我也给同事买了，我要让他们了解中国特色社会主义”。这成了笑谈。
-
-从facebook、推特等社交媒体对郭文贵先生发起的13天24小时密集爆料以及对闫丽梦博士发布的病毒真相的疯狂封杀来看，作为美国立国之本的言论自由已经被中共严重侵蚀，facebook已经彻头彻尾地沦为中共的喉舌！
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约
-
-0
+2+

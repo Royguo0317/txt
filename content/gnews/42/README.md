@@ -1,13 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 10/26/2020 路德解读照片门; 最终目标是灭共
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/492860/)
-
-2020年10月26日 路德解读照片门；最终目标是灭共
-
-
+## 文贵先生歌曲《为香港而战》发行背后的故事
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/492906/)
 
 #### **By: 【秘密翻译组G-Translators】**
 
-0
+2+
