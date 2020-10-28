@@ -1,46 +1,82 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共用金钱购买西方的沉默
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/463924/)
+## 罪恶的财务崛起 &#8211; 拜登
+` GM77` [轉載自GNews](https://gnews.org/zh-hans/464386/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27113746/1-205.jpg)*图片来自：screenrant.com*
-美国驻格鲁吉亚大使馆日前发表了一篇《中共为什么怕鬼》的文章。
+编辑：文w、天使
 
-文章首先写道：谁不喜欢观看精彩的恐怖电影? 或者是一个跨越时空的冒险故事? 中国共产党常态化地审查国内所有的电影、报纸、电视和社交媒体，查禁任何批评他们在西藏和天安门广场进行镇压，当然还包括批评其审查制度的内容。但是中共为什么会害怕鬼怪和跨越时空的故事呢?
+拜登家族的财务崛起，揭示了这个家族非正常的飞速发展进程，这与海南航空公司的飞速发展进程如此相似，非正常规律或逻辑的事情，背后一定是妖。以下列举拜登家族与CCP、乌克兰等勾兑的重要事件，也许可以更清晰的展现拜登家族与CCP狼狈为奸盗取中国和乌克兰人民的钱财，践踏美国宪法的罪恶。
 
-**中共防范任何对其不利的媒体和宣传**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27131620/1-270.png)
 
-根据美国笔会(PEN America)最近发表的题为《好莱坞制造，北京审查》的报告，中共审查那些可能让观众联想起他们实行的集权控制和腐败的题材。报告援引出生在中国的英国艺术家和社会评论家金翱文（Aowen Jin）的话说，在中国文学和民间故事中，”恶魔 “是贪官的隐喻。他说，”禁止鬼故事对西方人说来几乎是荒唐可笑的，但它却带着政府对自己人民根深蒂固的历史恐惧感。”
+2010年4月7 – 9日
 
-美国大使馆的文章还提到，2016年美国翻拍的喜剧片《捉鬼敢死队》（Ghostbusters）在中共国被禁。早在2008年，中国共产党就对描写“恐怖、鬼魂和超自然”的电影进行了限制。一位好莱坞作家对保护言论自由的非营利组织美国笔会(PEN America)表示，今天可能不会有人再重拍1990年由黛米•摩尔(Demi Moore)主演的热门电影《人鬼情未了》(Ghost)，因为担心中共的审查机构会禁止它进入利润丰厚的中共国市场。
+亨特·拜登 北京，Thornton 林俊良 Bulger, 国有金融机构会面
 
-美国笔会的这份报告只不过是揭示中共对信息控制将会走多远的最新证据。保护记者委员会(Committee to Protect Journalists)在2019年12月的一份报告中发现，中共国关押的记者比世界上任何其他国家都多。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27131412/2-128.png)中国投资有限责任公司2010年4月8日
 
-文章继续指出，中国共产党还在国家、省和地方各级雇佣了数万人在互联网上进行监控。被禁的内容包括从1989年中共政府在天安门广场侵犯人权，到中共国网民有时用来影射中共最高领导人的维尼熊(Winnie the Pooh)图片。
+2010年4月12 -13日
 
-**中共政权寻求确保人民只学习共产党版本的历史**。
+乔·拜登和中国国家主席胡锦涛参加华盛顿核安全峰会
 
-中共审查机构在2011年发布了禁止在影视作品中描写跨越时空（穿越）的指导方针，声称这些电影“以一种轻佻的方式对待严肃的历史”。尽管禁令很模糊，但一位好莱坞制片人告诉美国笔会，跨越时空的故事可以提供不同的历史解读。
+2011年4月18 – 20日 （亨特离开台湾后访问中国至4月22日）
 
-文章披露，内蒙古历史学者拉幕札部-博尔吉金（Lhamjab Borjigin），因在他写的一本书里记录了文化大革命期间中共在内蒙古犯下的暴行，并谴责了中共政府采取有组织的杀戮和酷刑，于2019年以“分裂国家”，“破坏民族团结”和“非法出版与发行”罪被判入狱。
+亨特·拜登与桑顿董事长Bulger和首席执行官林俊良，台湾的主要银行和金融机构，
 
-**中共对世界各地的电影制作人进行审查**
+亨特成为Rosemont Realty高级顾问，2010年收购BGK公司
 
-文章指出，中共的审查制度超越了中共国，世界各地的电影制作人都默许中共的要求，改变细节、改变人物和改写主要情节，以获得进入中共国的电影观众市场。
+2012年2月17日
 
-美国电影导演贾德•阿帕图（Judd Apatow）最近对MSNBC表示，那些能唤醒世界关注中共持续侵犯人权的电影，比如中共在新疆关押100多万维吾尔族和其他少数民族的电影，可能永远也拍不出来。
+乔·拜登和习近平（副主席）， 加州（2011年到2012年会见时间共计）25小时，探讨美国电影公司在中国市场的准入问题
 
-文章最后用阿帕图的话总结道：”与其说我们与中国做生意，并由此导致中国变得更加自由，”，”不如说……中共用他们的钱买到了我们的沉默。”
+2012年2月19日
 
-评论：
+亨特Seneca Global Advisors 环球顾问公司, 代表美国巨点能源技术初创公司Great Point与万向集团就4.2亿美元的股权投资和12.5亿美元的项目融资进行洽谈。当年外国风险投资资金进入美国的最大一笔投资。
 
-随着中共在美国的渗透能力被越来越多的人认识，人们才发现原来中共快控制了全世界。中共岂止对世界各地的电影制作人进行审查，在体育界，互联网，出版界，媒体都已经被中共控制。导致闫博士揭露中共病毒是人造生物武器的分析报告，至今没有一家国际知名的医学出版社敢于接受出版。拜登一家与中共勾兑，出卖美国利益的丑闻竟然在美国左媒也视而不见。据说，CNN和《纽约时报》的后台是中共国的歌华公司，中共的确是用金钱买来了美国左媒的沉默。这是一个触目惊心的事情，期待各国人民能够看清中共的真面目，携手反制中共。
+2012年，纽约， Devon Archert与渤海产业基金的李祥生Joanthan Li
 
-[原文链接](https://ge.usembassy.gov/why-is-the-chinese-communist-party-afraid-of-ghosts/)
+亨特·拜登是Orient Capital Research东方资本研究高管，2010年曾与渤海产业基金主要利益者多次会面, 与杨洁篪结交
 
-翻译：Alton
+2013年 6月11日， 林俊良与渤海产业基金高管会面
 
-校对：文旺
+6月13 – 14日 亨特，布尔格，林俊良和阿彻 上海会面
 
-2+
+6月15日，亨特在北京
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27131420/3-80.png)2013年渤海华美签署协议
+
+2013年12月4日，乔·拜登访华，会见渤海华美首席执行官李祥生，亨特·拜登陪同乌克兰总统维克托-亚努科维奇中国正式访问，签署了许多促进双方贸易和投资的商业交易（渤海商品交易所，渤海产业投资基金管理有公司）
+
+2013年12月16日，乔·拜登和亨特·拜登，上海自贸区，注册渤海华美（上海）股权投资基金管理有限公司（BHR）。
+
+2014年5月7日到8日，根据FOIA记录，亨特第5次访华，原因未公开。
+
+2015年11月16日的一个存档版本中亨特·拜登被列为董事之一。是Rosement Seneca合伙企业(Rosement Seneca Partners)的管理合伙人及Boies Schiller Flexner LPP律师事务所 (Boies Schiller律师事务所) 的法律顾问。
+
+2017年10月23日，亨特拜登收购渤海华美 10%的股份(通过他的投资实体Skaneateles LLC，并担任董事至2020年4月20日。 此前他是通过其他控股公司进行投资。 经过不到2年的拆分，HEINZ出局。2019年10月13日的声明中，亨特拜登是 Boies Schiller律师事务所的法律顾问，并为与乌克兰有关的Burisma能源公司Burisma Holdings Limited改制等举措提供建议。中国私募基金的有关网站上有亨特的中文名字。
+
+自此拜登家族的财富迅速暴增，开始与中共和乌克兰利益捆绑争斗的罪恶之旅。
+
+乔·拜登是在乌克兰有影响力的美国政要，其儿子亨特及其美国商业伙伴德文·阿彻Devon Archer勾结乌克兰石油和天然气公司Burisma的财务总监，并和三名乌克兰检察长维塔利·耶拉玛Vitaly Yerema和尤里·卢琴科Yuriy Lutsenko积极帮助Burisma逃脱了盗窃乌克兰石油和天然气资产的责任，从而掩盖为其掠财的目的。
+
+只有乌克兰总检察长Viktor Shokin肖金，将兹洛切夫斯基财产扣押起来，并发出令其返回乌克兰逮捕令。乔·拜登通过在美国的地位和权利罢免乌克兰总检察长肖金并逼迫其离职。为了实现自己家族利益，不惜毁掉美国名誉与利益。
+
+随后兹洛切夫斯基[聘请](https://www.scribd.com/document/433389210/Bluestar-Novelli-Contacts)了一家具有政治背景的DC公司Star Strategies，游说美国国务院改变这一政策。乔·拜登成为美国政要后不久，2014年2月，兹洛切夫斯基以每月最高160,000美元的价格[聘请了](https://www.cnbc.com/2014/05/13/bidens-son-joins-ukraine-gas-companys-board-of-directors.html)亨特·拜登及其合伙人德文·阿彻Devon Archer作为Burisma董事会成员，表面上为[公司治理](https://scribd.com/document/436048670/Burisma-Holdings-%20Accounting-Ledger)提供咨询，都不要求他们去乌克兰参加董事会会议。私人公司Burisma几乎不需要公司治理建议。并且亨特·拜登和阿彻实际上是公司股东，那么为这些服务付出的代价真是惊人的。
+
+亨特·拜登和阿彻通过乔·拜登联络国务卿约翰·克里John Kerry游说国务院高层，包括与克里会面（  [有](https://www.cnbc.com/2014/05/13/bidens-son-joins-ukraine-gas-companys-board-of-directors.html)[文件](https://www.scribd.com/document/433389212/Biden-Blinken-Meeting%29)证明这一点）。佐洛切夫斯基以拜登的已故儿子博（Beau）的名义为特拉华州的一家慈善机构做出了[巨大贡献](https://www.scribd.com/document/436048670/Burisma-Holdings-Accounting-Ledger)。阿切尔还为克里的女儿举行了[$ 10,000的盘子筹款活动](https://www.scribd.com/document/432522987/Devon-Archer-Fundraiser-Vanessa-Kerry)。
+
+国务院敦促乔·拜登解决因亨特·拜登的活动引起的明显利益冲突。亨特·拜登曾在电视采访中公开表示，他在加入Burisma之前曾与父亲讨论过合作事宜，但乔·拜登却什么也没有做。
+
+2014年4月中旬，英国[冻结](https://www.sfo.gov.uk/cases/ukraine-money-laundering-investigation/)了兹洛切夫斯基2300万美元的资产。2015年1月，英国释放了这些资产，因为在随后的10个月中，当时由乌克兰总检察长耶拉玛Yerema领导的乌克兰检察官办公室拒绝提供证据支持英国的扣押，实际上是与兹洛切夫斯基的律师合作以释放资产。乔·拜登通过发言人[声明](https://www.nytimes.com/2015/12/09/world/europe/corruption-ukraine-joe-biden-son-hunter-biden-ties.html?referringSource=articleShare.)：“亨特是私人公民和律师，副总裁不参与该公司，也不认可任何特定的公司。”他没有透露有关叶雷马（Yerema）行为不检的消息。2015年2月10日，乌克兰政府[解雇了叶雷马（Yerema）总检察长](https://www.nytimes.com/2015/12/09/world/europe/corruption-ukraine-joe-biden-son-hunter-biden-ties.html?referringSource=articleShare.) ，经证实他已从Burisma收到了700万美元的贿赂。
+
+通过上述被郭先生爆料文件中梳理得出，乔·拜登一直利用在美国政坛的地位和权利指使其儿子亨特·拜登联络美国各界政要高层，使其权利最大化，以至于可以干预他国政治，从而达到持续为家族敛财的目的。今天路德时评也揭示乔·拜登同时通过乌克兰贩卖美国军火给中共，中共（CCP）不光通过其子亨特·拜登变相勾兑、捆绑美国政要，还将美国军火收入囊中，并将早已经行一带一路规划的乌克兰这一资源胜地与乔·拜登家族利益相捆绑，最终达到奴役美国的目的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27131530/4-27.jpg)
+相关信息源：
+
+[https://www.hsgac.senate.gov/imo/media/doc/HSGAC\_Finance\_Report\_FINAL.pdf](https://www.hsgac.senate.gov/imo/media/doc/HSGAC_Finance_Report_FINAL.pdf)
+[https://www.nytimes.com/2015/12/09/world/europe/corruption-ukraine-joe-biden-son-hunter-biden-ties.html?referringSource=articleShare.](https://www.nytimes.com/2015/12/09/world/europe/corruption-ukraine-joe-biden-son-hunter-biden-ties.html?referringSource=articleShare.)
+[https://www.nytimes.com/2015/12/09/world/europe/corruption-ukraine-joe-biden-son-hunter-biden-ties.html?referringSource=articleShare.](https://www.nytimes.com/2015/12/09/world/europe/corruption-ukraine-joe-biden-son-hunter-biden-ties.html?referringSource=articleShare.)
+[https://twitter.com/EricTrump/status/1317482157812613122?s=20](https://twitter.com/EricTrump/status/1317482157812613122?s=20)
+
+0

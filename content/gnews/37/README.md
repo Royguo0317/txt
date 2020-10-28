@@ -1,44 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 决不能让明天的美国变为今天的中共国
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/463902/)
+## 向中共国唯一的“人民”-9.5英寸同志”敬礼”！
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/464123/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27104150/Sara_20201026_photo2.png)图片来源：VOG 设计组
-战友之家创始人 Sara 女士近日在社交媒体上强调在德州进行“惩贼”傅希秋的三个原因，并向在第一线的“惩贼”抗议的战友们致以敬意。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27020200/Sara_20201026_figure2.png)
-我们华人要完全抛开根深蒂固的多一事不如少一事的观念，我们站在德州米德兰的理由：
+作者：宁缺
 
-We of Chinese descent, really should eradicate the deep-rooted notion that “Don’t be bothered by other’s trouble so long as it has not affected myself for the time being”. The reasons that many of us have stepped forward in protesting Bob Fu in the city of Midland, TX are:
+校对：Julia Win；审核：Free Dust；Page：拱卒
 
-1、必须彻底调查 Bob Fu 傅希秋，不能让 CCP 特务祸害美国。
+## 向中共国唯一的“人民”-9.5英寸同志”敬礼”！
 
-It is imperative for us to raise the U.S. government’s awareness in order to launch an immediate and full investigation on Bob Fu (aka, Xiqiu Fu or 傅希秋). We shall not allow any CCP spies to continue to harm the U.S.  anymore.
+[!\[\]()!\[\](https://spark.adobe.com/page/uu00Tw1lvfQWt/images/66ea3810-3bc6-4339-8f05-3bcc3af0922e.jpg?asset_id=6e32adfe-346f-4df5-af79-ceb330200f7b&amp;img_etag=%22db8afff081f877b58c8424cde16ecd5a%22&amp;size=1024)](https://spark.adobe.com/page/uu00Tw1lvfQWt/images/66ea3810-3bc6-4339-8f05-3bcc3af0922e.jpg?asset_id=6e32adfe-346f-4df5-af79-ceb330200f7b&amp;img_etag=%22db8afff081f877b58c8424cde16ecd5a%22&amp;size=1024)
 
-2、绝对不能黑白颠倒，必须让市长 [Patrick Payton] [1]来对话，（我们不会去市政府找他，我们不做上访户，那是 CCP 国家做的）。
+从记事开始，“人民”这个词在我心目中就是个神圣的概念。国家叫“人民”共和国，纪念塔叫“人民”英雄纪念碑，会议中心叫“人民”大会堂，上海最繁华的地段叫“人民”广场，就连独裁领导人还亲自题字号召为“人民”服务。在中共的洗脑教育下，似乎所有的一切都是以“人民”为中心建立的。自从小时候起我就很好奇，到底“人民”是个什么神奇的人物，可以享受如此地位超然的待遇。找到到底谁是“人民”这个问题的答案，成为我几十年孜孜不倦追求的目标。
 
-Midland Mayor’s [1] inversions of right and wrong are absolutely unacceptable. We demand Mayor Patrick Payton to come out and have an open dialogue with us. And “No”, we will not attempt to look for him in the City Hall, as we are not the oppressed petitioners begging for a meet-up. That’d be a thing only belongs to the regime of the CCP.
+不用说，我肯定不是“人民”。回忆起自己的成长环境，从小就感觉自己生活在一个冷若冰霜的荒诞世界里。上学的时候，除了交完学费书本费，学校还变着各种花样从你家长的口袋里掏钱，被学校摊派着买这买那，买完一堆从来没翻过的垃圾教辅材料不说，甚至还被迫买过彩票；被以自愿的名义推去上各种补习培训班；被一帮拿着学费混吃混喝的老师，忽悠着学习各种毫无用处的垃圾知识，最后一脸懵逼地被推入社会。
 
-3、如果居民有意见，我们真心对不起，但是我们是为了他们的明天不成为现在的中国。
+工作之后，拿着几千块钱的工资，连买个iphone都要考虑老天给自己长两个肾是不是有点铺张了。就这点薪水见了老板还得像李莲英见慈禧太后一样点头哈腰，别说当“人民”靠不上边，连贱民的称号放在我头上感觉都是缩水版。唯一感觉自己受过一次“人民”待遇的就是在献血车上献完400CC的献血后，抽血的护士递给我一瓶酸奶时温馨的微笑，不过这唯一 一次“人民”的待遇，也就持续了三秒钟，也许根本只是我自己的一种幻觉。
 
-In case our “Bring the CCP’s Spies to Justice” protests have caused any unintended inconvenience to the local residents, our sincere apologies.
+起码我还过着像猪狗一样的生活，再看看周围生活得猪狗不如的人，更不可能和“人民”粘上一点边了。这些生活得猪狗不如的人自打生下来开始，吃着地沟油，呼吸着重度雾霾，还要像水果一样被各种原浆榨汁机不断榨取着剩余价值。从最早的90年代东北国企破产，工人下岗。多少工人失去生活技能，沦落到晚上骑自行车把自己的妻子拉到夜总会出卖肉体，到现在抬头随便看看街边的房价，能让每位城市蓝领、白领仰望长空直接治好十多年埋头学习落下的颈椎病。随便入手一套房子，就卖出了自己一辈子的青春和劳动能力。等这些人老了提前准备个墓地，只能放一个屁股大小的水泥坑就要价10万，还一分不能少，仅此一家，别无分店。这些人从身体到肉体，从精神到灵魂，被各种利益集团盘剥得干干净净，连贱民的资格都没有，叫被吸干成渣的渣民才合适。
 
-However, with all due respect, we’d like to bring attention to all American people – we are protesting vigorously is because we really would not want America’s tomorrow to degenerate to Communist China’s Today.
+“人民”到底在哪呢？中共国为“人民”服务的公仆离“人民”应该最近，我试图通过“人民”公仆找到“人民”。竟然发现这些“人民”公仆过着神仙般的日子，享受着天人的待遇。他们吃着特供的食品，吸着过滤的空气，脚上踩着贱民，拳手煽着渣民，玩着各种高级妓女，养着无数等着被猥亵的儿童，戴着价值我几十、几百、几万个腰子的手表，就是死了，还能风风光光地经过特供焚烧炉，送到特供八宝山。榨干了所有人就是为他们服务，这让我产生了他们就是“人民”的想法，但是他们只是公仆，并不是“人民”。我就更好奇了，连为“人民”服务的公仆都这么飞扬跋扈，吃得脑满肥肠，那人民肯定简直是神一般的存在了。
 
-咱们华人要从今天开始挺起腰杆
+直到今天，我从文贵先生的爆料中才找到这个问题的真正答案。原来是来自大洋彼岸的9.5英寸先生。9.5英寸先生符合中共描述“人民”的全部特征，享受到了中共“人民”公仆的服务。9.5英寸先生从下飞机开始就享受到了中共“人民”公仆比对自己亲爹还亲的贴心服务。送钱送女人还不够，在了解到9.5英寸先生提出满足恋童癖的无耻变态下三滥请求后，立刻发动所有力量，经过层层挑选，把可怜的中国幼童送到了魔鬼的手上。
 
-We of Chinese descent, from today onwards, let each of us grow a spine!
+听闻这样的爆料让我目瞪口呆，每当我跑到办多小的屁事，都会有各种各样芝麻粒权利大小的公仆认真地对我说各种规定。但是到了9.5英寸先生这里，才知道原来真正的“人民”果然是可以为所欲为的，连猥亵性侵幼小儿童这样丧心病狂、泯灭人性的事，中共没有任何规定的。非但没有加以阻拦，甚至从头到尾，亲力亲为、关怀入微、尽心服侍；精心挑选，细心安排，最后贴心双手奉上。这要不是中共传说中的“人民”，谁还有资格称“人民”。我尝试将从小被灌输的各种“人民”的概念用9.5英寸代入，发现简直毫无违和感。9.5英寸共和国、9.5英寸英雄纪念碑、9.5英寸大会堂、9.5英寸广场。
 
-@支援德州 感恩所有的你们
+终于找到了中共国唯一真正的“人民”！向中共国唯一的“人民”9.5英寸同志敬礼！
 
-Kudos to all the frontline protesters in Texas, our brothers-in-arms!  Thank you all very much!
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27104227/Sara_20201026_figure1.png)图片来源：[https://gtv.org/web/#/UserInfo/5e6753818723ef1f52a55e2f](https://gtv.org/web/#/UserInfo/5e6753818723ef1f52a55e2f)
-参考链接：
+日你八辈祖宗的，中共这样的万恶不赦的政权不立刻马上倒台，以死向全体中国人谢罪，你TM还等过年呢！
 
-[1] [https://www.midlandtexas.gov/238/Mayor-City-Council](https://www.midlandtexas.gov/238/Mayor-City-Council)
+【注：文章代表作者观点】
 
-翻译：【RD16】图片：【VOG设计组】
+编辑：[【喜马拉雅战鹰团】](https://spark.adobe.com/page/uu00Tw1lvfQWt/)-点击spark adobe版
 
-战友之家玫瑰园小队出品
+注：更多资讯敬请关注：
 
-0
+【战鹰团Gab】[https://gab.com/himalayahawks](https://gab.com/himalayahawks)
+
+【英喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
+
+【英喜庄园GTV/盖特】:
+
+[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/uu00Tw1lvfQWt/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/uu00Tw1lvfQWt/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
+1+

@@ -1,16 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭文贵最新单曲火爆出炉 Fight For Hong Kong – Single by Miles Guo
-` 温哥华加喜农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/460526/)
+## 10/26/2020 每日快讯
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/464601/)
 
-Fight For Hong Kong – Single by Miles Guo
-
-
-
-
-视频播客
-
-温哥华加喜农场 – 2010/10/27
-
-4+
+2020年10月26日 每日快讯 制作：战友之家粤语频道
+主播 【闪电】 幕后制作 【An】【陆柒陆捌】【Cathy】【星星】【Rudy】【深寒】【鱼摆摆】【美国小李】 【文武】【安妮】【文依】【文德】
+2+

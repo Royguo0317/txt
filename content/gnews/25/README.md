@@ -1,47 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 温哥华加喜农场近期惩贼视频盘点
-` 温哥华加喜农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/460630/)
+## 川普总统：排干沼泽，尽早投票，亲自投票
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/464788/)
 
-温哥华加喜农场在最近的惩贼行动中，访问报备了一系列高冰尘家附近的警察局。
+视频来源: [https://www.youtube.com/watch?v=YgwSMumt-ek&feature=youtu.be](https://www.youtube.com/watch?v=YgwSMumt-ek&amp;feature=youtu.be)
+2020年10月27日，川普总统在白宫向美国人发表讲话。他正在全力排干沼泽，尽管沼泽的肮脏和深度超出人们的想象。排干沼泽还没有完成，但接近尾声了。这是历史上最重要的一次选举，并且是人们这一生中最重要的一次选举。鼓励民众走出家门，去投票亭投票，尽早投票，亲自投票。
 
-访问的皇家骑警警局地址如下：
+翻译：【Jamie(文胤)】校对：【文灵】字幕：【罗宾 Robin (文宾)】编辑：【Isaiah4031】
 
-#1, Sept 28, 2020
+战友之家玫瑰园小队出品
 
-10395 148 st Surrey BC V3R 6S4
-
-#2, Oct 07, 2020
-
-10720 King George Boulevard Surrey BC
-
-V3T 2X3,
-
-#3, Oct 10, 2020
-
-14355 57 Ave Surrey BC
-
-#4, Oct 12, 2020
-
-7235 137 St Surrey BC
-
-V3W 1A4
-
-#5, Oct 14, 2020
-
-5732 176A St
-
-Surrey BC V3S 4H2
-
-#6, Oct 16, 2020
-
-1815 152 St Surrey BC
-
-V4A 9Y9
-
-视频作者： 美好的时光
-
-温哥华加喜农场–2010/10/27
-
-2+
+0

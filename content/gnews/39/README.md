@@ -1,31 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】美印签署关键军事协定，距“印太版北约”又近一步
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/463825/)
+## 中天红媒换证听证会，战友们勇敢上街媒体争相报导
+` gewsTaiwan` [轉載自GNews](https://gnews.org/zh-hans/464082/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25214337/WhatsApp-Image-2020-10-24-at-08.09.25-1.jpeg)
+GM40
 
+中天电视台换证听证会昨天登场，场内激辩，场外也热闹无比，上千名中天电视台支持者，在场外不停呼喊“挺中天、反关台”，统促党总裁“白狼”张安乐也现身。另有五十多名反对中天换证的群众，手持“中天＝中共”“陈文茜通共卖台”等标语，站在路口和中天支持者相互较劲、警方在场维持秩序双方没造成冲突。
 
+GM40 與台灣大牛現場報導
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27120031/image0-2-8-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27120053/image2-10-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27120102/image1-24.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27120051/image0-4-2.jpg)
 
-
-
-作者：香草山写作组 人间世
-
-当地时间周二（10月27日）下午，美国和印度签署了旨在扩大互换信息渠道的“基本交换与合作协定”（BECA）。美国为遏制CCP而构建印太版北约的计划又向前推进一步。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27105647/173-%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91%E7%BE%8E%E5%8D%B0%E7%AD%BE%E7%BD%B2%E5%85%B3%E9%94%AE%E5%86%9B%E4%BA%8B%E5%8D%8F%E5%AE%9A%EF%BC%8C%E8%B7%9D%E5%8D%B0%E5%A4%AA%E7%89%88%E5%8C%97%E7%BA%A6%E5%8F%88%E8%BF%91%E4%B8%80%E6%AD%A5-1.jpg)（India Today/PTI）
-10月26日至27日，美国国务卿蓬佩奥、国防部长埃斯珀飞赴印度首都新德里，出席第三届美印“2+2”部长级会议，和印度外长贾山卡尔（S Jaishankar）、国防部长辛格（Rajnath Singh）会谈。27日会谈结束后，双方正式签署了以共享地理空间情报信息为主要内容的《基本交流合作协议》(BECA)的协议。印度借此可获得美国先进的卫星数据和图像。
-
-BECA成为继2002年的《一般军事信息安全协议》、2016年的《后勤交流协定备忘录》及2018年的《通信兼容与安全协议》之后，美印达成的第四份基础性军事协议。而这四份协议，是美国与北约成员等防务伙伴都会签署的基础文件。可以说，至此美印之间的关系已达到“准盟友”级别。为对抗在外交上变得日益放肆的CCP，印度似乎开始放弃曾经长期坚持的“不结盟”策略，不断加强与美日澳等印太国家的军事合作。
-
-德国之音中文网透露，蓬佩奥将会一连访问区内其他四个国家（斯里兰卡、马尔代夫和印度尼西亚等）。他在上周明言：“此行的会谈将讨论自由国家如何携手阻挡中国共产党带来的威胁。”在蓬佩奥和埃斯珀抵达印度之前，美国副国务卿比根（Stephen Biegun）上周访问该国时称中国为“房间里的大象”(an elephant in the room)。他强调华府乐意促进印度在区内的利益，抗衡中国高科技通讯网路带来的风险。
-
-由此可见，美国毫不掩饰拉拢印澳日等国围堵中共的意图。CCP在“小粉红”习近平带领下四面树敌的“野蛮外交”，终于如愿以偿地得到了应有的回报。一个以遏制CCP为主要目标的印太版北约正逐渐成形。所幸在于，郭文贵先生领导的爆料革命不仅在国际上推动把中共和中国以及中国人区别对待，还旗帜鲜明地奋斗在全球灭共最前线，让全体华人避免了被CCP绑架的悲催命运，也为将来华夏文明以崭新的面貌重返世界舞台保留了难得的机会。
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
