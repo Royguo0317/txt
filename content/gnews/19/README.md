@@ -1,43 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Hunter Biden&#8217;s Partnership with China Revealed – An Investigation by TYPHOON INVESTIGATIONS
-` VOH欧洲战友团` [轉載自GNews](https://gnews.org/zh-hans/469061/)
+## 爆料革命引发人类文明的终极之战
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/473650/)
 
-Written by: 大賢 Editor: 莫黎
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27205627/IMG_2912.jpg)
-/GETTY IMAGES
+**纽约香草山农场金融部  三票先生**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25225844/WhatsApp-Image-2020-10-24-at-08.09.25-2.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28012153/2020-10-26-09.45.24.jpeg)
+人类历史上发生了很多次战争，绝大部分战争只有局部意义或者只有军事价值，但有些战争是改变人类文明和命运的。目前由爆料革命引发的美国正义力量对抗CCP及其在美国代理人的战争是决定人类文明的终极之战！
 
+改变人类文明走向的第一场战争当属发生在公元前236年到公元前221年之间的秦灭六国建立秦朝的战争。此前从周天子分封诸侯到战国七雄并存，中国处于封建时代，当时长江流域的荆楚文化、东部的齐鲁文化和北方的燕赵文化，都优于地处西陲的秦国，如果正常发展下去，有可能发展成联邦制，或者象英国那样诸侯、贵族与天子签署一个类似英国《大宪章》一样的契约，逐步演变成君主宪政体制。但是秦国自商鞅变法实施驭民五术，秦国国力逐步强大，终于灭了六国而建立了中央集权专制的秦朝。自此2000多年中国就一直处于专制体制之下，到中共篡政后专制达到了顶峰，终成人类文明的最大祸害。
 
+发生于1585年至1604年的英国西班牙战争是第二场决定人类文明方向的战争。此前西班牙的无敌舰队控制了海上霸权，这次战争中西班牙无敌舰队遭受巨大损失，而英国则从此逐步确立了海上霸权。试想如果英国战败，海上霸权仍然由西班牙控制，那么现今的北美和澳洲可能就不是英语世界，就如当今的中南美洲一样，那会是一种什么样的景象。
 
-Recently, the Typhoon Investigations research firm published a report about the secret cooperation between the Biden family and the Chinese government. It disclosed a detailed narration of important events and interactions which took place during meetings between Hunter Biden and Chinese tycoons, step by step unveiling the colossal conspiracy that was hidden behind.
+美国独立战争是第三场影响人类文明方向的战争。这场战争后诞生了一个全新的以天赋人权、自由和法治为基础、以基督教为立国之本的国家。经过近250年的发展，尤其是经过两次世界大战和苏联解体，美国成了世界上最强大的民主国家，被誉为民主的灯塔、人类文明的中流砥柱。很难想象如果没有美国世界将乱成什么样，而这一切都是从美国独立战争而来。
 
-According to the report, Joe Biden’s son Hunter Biden had multiple deals made with China since 2012, yet two years before he was already paying hasty visits to some of China’s most dominant state financial institutions, presenting himself as the second son of the Vice President of the U.S. In 2011, the year after his visit to China, Hunter went through the same procedure with the leading Taiwan banks and financial institutions. These visits above played a significant role in the political bribery of the Biden family. By 2012, Hunter Biden and his associates have already established a close relation with the Chinese government and its key financial institutions. According to the report, Hunter had established a direct line to China’s Politburo.
+发生于1939年9月1日到1945年9月3日的第二次世界大战是影响人类文明方向的第四次战争。如果德国控制了欧洲，日本控制了亚洲，美国本土亦将不保，全人类将生活在法西斯的铁蹄下。
 
-During several meetings in 2010, Hunter familiarized with the head stakeholders of Bohai Capital. Later, when Bohai Capital was looking for a new investment partner, Hunter then arranged a short meeting between his father Joe Biden, and the CEO of Bohai Capital – Jonathan Li. Afterwards, in 2017 Hunter purchased 10% of Bohai Harvest RST (BHR) and became the director of the company. Therefore, Hunter and Bohai Capital are BHR:s investors.
+眼下我们正经历第五次影响人类文明的战争，也是人类文明的终极之战。这场战争由郭文贵先生于2017年发起的爆料革命所引发。前面说过，中共继承了中国2000多年的专制制度并将其发挥到了极致，集古今中外邪恶之大成。中共的一小撮盗国家族不仅要奴役十四亿中国人民，还一直妄想奴役世界人民，为此他们视美国为眼中钉肉中刺，从三十年前起就处心积虑，要用超限战的手法搞垮、搞弱、搞死美国。他们用从中国人民身上压榨来的金钱蓝金黄美国政商媒体学术等各界人士。如今他们几乎得逞了，操控了美国80%以上的媒体，操控了华尔街、硅谷和好莱坞，影响了几乎所有的著名大学和智库，收买了众多重要政客，老布什、克林顿、小布什、奥巴马连续四任总统被收买，奥巴马政府的副总统和两任国务卿均被收买。更有甚者，他们渗透到了美国的司法系统和情报系统，FBI、CIA、特勤局、甚至幕僚长等均沦陷！看看最近推特、脸书对爆料革命和病毒真相的封杀，看看纽约时报、CNN等媒体对爆料革命和病毒真相不仅不报道反而恶意攻击，看看FBI在收到有关拜登家族明显的腐败和犯罪线索10个月后还不立案侦查，就知道司法独立和言论自由这两个美国宪法和立国的根基已经被严重动摇！如今中共病毒已经导致美国近900万人感染，超过22万人死亡，全球4400万人感染，117万人死亡。最危急的是，美国大选只有不到一周时间，中共的代理人拜登离总统的位置只有一步之遥！
 
-However, it indicates a serious problem. Bohai Capital is a state-owned enterprise (SOE) and it has funds derived from national level SOE financials, such as Bank of China and National Social Security. Consequently, any partnership with a SOE is supported by the State and interconnected with the Chinese government. Briefly said, Hunter was actually cooperating with the Chinese government. As stated by the report, “the Chinese government-funded a business that it co-owned along with the son of a sitting US vice president and Secretary of State who was with a high probability directly or indirectly invested in the holding company.”
+人类到了有史以来最危机的时刻！如果拜登当选，他将被中共控制，整个美国都将被中共控制，美国沦陷了全球也就沦陷了，没有一片净土，没有一个人能逃脱，中共奴役中国人民的模式就会蔓延到全球，全世界人民都将成为中共盗国贼家族的奴隶！
 
-And why did Hunter join the partnership? The answer was given in the report:
+幸而有文贵先生、闫丽梦博士，有班农先生、朱利安尼先生和川普总统这样的美国英雄，有正义的爆料革命战友，更重要的是有正义的美国人民！文贵先生发起的13天24小时连续爆料，是近4年爆料革命同中共的总决战，是人类文明的终极决战！战友们，动手动嘴传播爆料！美国人民，请用你们神圣的选票把拜登选下去！爆料革命拯救人类，终极之战正义必胜！
 
-“There is no apparent reason for Hunter’s participation in the BHR partnership other than political payoff and influence. Virtually all financial investors or partners are state policy entities, state-owned entities, or only nominally private.”
+**审核： 悟空**
 
-The money, which the Chinese state paid to the Biden family for bribery, was transferred with help from Chinese major SOEs and Bohai Capital, here is a chart from the report:
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27210315/IMG_2909.jpg)
-
-
-Besides this, Hunter had other numerous deals with China, in which many other SOEs are involved. But when Joe Biden was asked about Hunter’s deals, he denied being aware of anything regarding his son’s overseas business, despite the contradicting fact.
-
-
-
-
-
-Source: INTELLIGENCE REPORT
-
-[https://www.baldingsworld.com/wp-content/uploads/2020/10/KVBJHB.pdf](https://www.baldingsworld.com/wp-content/uploads/2020/10/KVBJHB.pdf)
-
-
-
-1+
+更多资讯请查看：[https://mobile.twitter.com/mos\_himalaya](https://mobile.twitter.com/mos_himalaya)，[https://gnews.org/zh-hant/author/changdao/](https://gnews.org/zh-hant/author/changdao/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25225844/WhatsApp-Image-2020-10-24-at-08.09.25-2.jpeg)
+0

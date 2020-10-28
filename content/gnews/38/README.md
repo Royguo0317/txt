@@ -1,47 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 温哥华加喜农场近期惩贼视频盘点
-` 温哥华加喜农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/460630/)
+## Hunter Biden&#8217;s Partnership with China Revealed – An Investigation by TYPHOON INVESTIGATIONS
+` VOH欧洲战友团` [轉載自GNews](https://gnews.org/zh-hans/469061/)
 
-温哥华加喜农场在最近的惩贼行动中，访问报备了一系列高冰尘家附近的警察局。
+Written by: 大賢 Editor: 莫黎
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27205627/IMG_2912.jpg)
+/GETTY IMAGES
 
-访问的皇家骑警警局地址如下：
 
-#1, Sept 28, 2020
 
-10395 148 st Surrey BC V3R 6S4
+Recently, the Typhoon Investigations research firm published a report about the secret cooperation between the Biden family and the Chinese government. It disclosed a detailed narration of important events and interactions which took place during meetings between Hunter Biden and Chinese tycoons, step by step unveiling the colossal conspiracy that was hidden behind.
 
-#2, Oct 07, 2020
+According to the report, Joe Biden’s son Hunter Biden had multiple deals made with China since 2012, yet two years before he was already paying hasty visits to some of China’s most dominant state financial institutions, presenting himself as the second son of the Vice President of the U.S. In 2011, the year after his visit to China, Hunter went through the same procedure with the leading Taiwan banks and financial institutions. These visits above played a significant role in the political bribery of the Biden family. By 2012, Hunter Biden and his associates have already established a close relation with the Chinese government and its key financial institutions. According to the report, Hunter had established a direct line to China’s Politburo.
 
-10720 King George Boulevard Surrey BC
+During several meetings in 2010, Hunter familiarized with the head stakeholders of Bohai Capital. Later, when Bohai Capital was looking for a new investment partner, Hunter then arranged a short meeting between his father Joe Biden, and the CEO of Bohai Capital – Jonathan Li. Afterwards, in 2017 Hunter purchased 10% of Bohai Harvest RST (BHR) and became the director of the company. Therefore, Hunter and Bohai Capital are BHR:s investors.
 
-V3T 2X3,
+However, it indicates a serious problem. Bohai Capital is a state-owned enterprise (SOE) and it has funds derived from national level SOE financials, such as Bank of China and National Social Security. Consequently, any partnership with a SOE is supported by the State and interconnected with the Chinese government. Briefly said, Hunter was actually cooperating with the Chinese government. As stated by the report, “the Chinese government-funded a business that it co-owned along with the son of a sitting US vice president and Secretary of State who was with a high probability directly or indirectly invested in the holding company.”
 
-#3, Oct 10, 2020
+And why did Hunter join the partnership? The answer was given in the report:
 
-14355 57 Ave Surrey BC
+“There is no apparent reason for Hunter’s participation in the BHR partnership other than political payoff and influence. Virtually all financial investors or partners are state policy entities, state-owned entities, or only nominally private.”
 
-#4, Oct 12, 2020
+The money, which the Chinese state paid to the Biden family for bribery, was transferred with help from Chinese major SOEs and Bohai Capital, here is a chart from the report:
 
-7235 137 St Surrey BC
 
-V3W 1A4
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27210315/IMG_2909.jpg)
 
-#5, Oct 14, 2020
 
-5732 176A St
+Besides this, Hunter had other numerous deals with China, in which many other SOEs are involved. But when Joe Biden was asked about Hunter’s deals, he denied being aware of anything regarding his son’s overseas business, despite the contradicting fact.
 
-Surrey BC V3S 4H2
 
-#6, Oct 16, 2020
 
-1815 152 St Surrey BC
 
-V4A 9Y9
 
-视频作者： 美好的时光
+Source: INTELLIGENCE REPORT
 
-温哥华加喜农场–2010/10/27
+[https://www.baldingsworld.com/wp-content/uploads/2020/10/KVBJHB.pdf](https://www.baldingsworld.com/wp-content/uploads/2020/10/KVBJHB.pdf)
 
-2+
+
+
+1+

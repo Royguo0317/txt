@@ -1,18 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德 Parler：拜登竞选团队内部成员爆料“拜登的竞选结束了”！美国人该醒醒了！
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/468801/)
+## 亨特·拜登的金钱乱伦淫乱和交易 与谁有关？14岁女孩是谁？
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/455962/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27194817/Lude_20201027_parler_Biden_campaign_insider-figure1.png)图片来源：[https://share.par.pw/post/d494b945e54449a49d91fd3ac3d227c1](https://share.par.pw/post/d494b945e54449a49d91fd3ac3d227c1)
-2020年10月27日，路德在 Parler 上转帖一位自称是来自拜登竞选团队的内部成员的爆料：“没有人谈论这个事情，但从他们的脸上可以看到答案。拜登的竞选结束了。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27194728/Lude_20201027_parler_Biden_campaign_insider-figure3.png)圖片來源：[https://ifunny.co/picture/anonymous-id-ciao70fk-biden-campaign-insider-here-no-284710210-nobody-cCeKOMZ58](https://ifunny.co/picture/anonymous-id-ciao70fk-biden-campaign-insider-here-no-284710210-nobody-cCeKOMZ58)
-【译文】拜登竞选团队内部成员发的信息：“没有人谈论这个事情，但从他们的脸上可以看到答案。拜登的竞选结束了。我为曾经给拜登助选而感到耻辱，有这种感觉的还有其他人。有几个竞选团队的成员和义工在过去几天都没有来工作，这里就像鬼城一样。我发完了这个信息也会离开，永远都不会再回来。拜登本人腐败，他的家族有很严重的问题。拜登不会赢得选举。我们打了很多电话，也登门拜访，很多人都让我们马上就滚。大部分人都会听我们说上几秒，然后说他们不感兴趣，而且他们说话的语气就是他们永远不会投票给拜登的。所有的事情都很奇怪，我已经从事竞选事业超过了10年了，从来没有遇到过人们这样的反应。我知道大家都想听到来源可靠的消息，所以我希望在我离开之前，至少可以帮一点忙揭发所有的谎言。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27194654/Lude_20201027_parler_Biden_campaign_insider-photo.png)图片编辑自：[https://youtu.be/SzOJLJPMh7E](https://youtu.be/SzOJLJPMh7E)
-【编者评论】有很多移民来到美国这个基督建国的国家，因着热爱这里人民的淳朴、正直、坚持正义和信仰，因为热爱这个国家司法的公正、政治的透明、公平的竞争和自由；更因为痛恨中共国深入骨髓的腐败和对自己人民的极端残暴。可是让我们看看这几十、十几年来美国变成了什么？现在美国的腐败已经和中共国如出一辙，然而更隐蔽和道貌岸然，也因此对美国善良民众更有欺骗性。感谢郭文贵先生引领的爆料革命，由班农先生、朱利安尼市长、川普总统等强大的美国和世界正义力量的支持，使美国人民又有了希望。让我们祈祷善良美国人民的觉醒，在总统选举中投出公正的一票！
+**13天终极之战—27日28日大合集持续更新中。。。。。。**
 
-翻译：【相机过热啊】新闻撰写 & 编辑：【Isaiah4031】
+作者：玫瑰天空
 
-战友之家玫瑰园小队出品
+如果该视频给您造成了严重的不适，我们深表歉意！但是正是为了拯救世界和人类的未来，我们新中国联邦人为了维护正义的必须！
 
-2+
+才将一切真相公布于众。因为共产党的朋友就是我们的敌人。
+
+我们只站在正义和真相一边，我们要为老捍卫14亿来百姓的未来而战！
+
+如文贵先生所说：
+
+”任何人偷盗中国人的钱，我们绝不答应！
+任何人奴役中国人，我们绝不答应！
+任何人玩弄中国人的子女，我们绝不答应！”
+
+亨特.拜登仅仅是中国共产党蓝金黄计划（BGY）的沧海一粟。他后面的各级大鳄还在不断浮出水面！世界的沼泽正在排干！！！
+
+CCP利用人性的丑陋和贪婪，通过色诱和金钱，用利益和权利的承诺腐蚀西方政客，名人及其家人。这些人贪恋女人，金钱，权力，性欲，甚至是超乎常人的兽性娈童癖！他们满足了自己内心魔鬼般的欲望！出卖了自己的国家和人民！他们如恶魔般荼毒残害了幼小的中国孩子们！他们残害了无数孩子的身体和生命！他们不惜出卖灵魂和国家安全来配合中国共产党统治世界，操控世界，他们偷盗中国14亿老百姓的血汗钱满足自己挥金如土，纸醉金迷的糜烂兽性。
+
+这恶魔般的罪恶滔天，罄竹难书！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28004238/IMG_2633-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28005046/IMG_2524-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28005103/IMG_2542-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28004309/IMG_2573-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28005027/IMG_2581-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28004324/IMG_2498-1.jpg)
+中共共产党录制所有交往政客，高层人士和他们的家人与女性，毒品相关的视频，用来要挟和操控这些魔鬼一起合作企图统治世界和人类！
+
+美国乔·拜登绝对是被共产党百分之百控制，蓝金黄最成功的美国政客之一。他也是共产党搞弱，搞乱，搞死美国的3F重要计划之一！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27234748/ztEO74esvx.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27234630/2020-10-27.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27234616/1028-2.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28004710/IMG_2313-2.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28004745/IMG_51DEDA9028C1-1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28004809/d7a32a2f-322a-473e-9a9c-b2b407dcf307.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27234829/pvGGfsoRQL.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28004832/IMG_2368-1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28005135/IMG_1712-1.jpg)
+
+中国共产党用此手段威胁拜登父子，并且对他们进行大量的财富贿赂，这就是造成在中国南海以及中美之间的贸易争端，知识产权，能源价格等问题，以及拜登向中共提供大量的CIA在中国的情报人员的重要原因之一。
+
+中国共产党在美国及欧洲多个西方国家都存在这样的的蓝金黄计划。我们将会有数以百万计的视频和相关政府官员，腐败者，卖国者，与共产党勾兑欲统治世界的犯罪者的照片放出来。
+
+不论你来自哪个国家，哪个民族，什么肤色，哪个党派，下一个被虐待的可能就是你的女儿，你的妻子，你的姐妹；所以在消灭中国共产党问题上没有任何党派民族国界之分。
+
+
+
+1+
