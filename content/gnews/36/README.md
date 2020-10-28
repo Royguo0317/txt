@@ -1,35 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 塔克卡尔森采访波布林斯基揭露乔拜登真相或涉俄罗斯黑金
-` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/492697/)
+## 54%～73%｜喀什CCP病毒感染率奇高！
+` Ronald` [轉載自GNews](https://gnews.org/zh-hans/492947/)
 
-内新闻：背靠背
+内新闻/素材：Stephen 校对：老白
 
-2020年10月27日，FOX著名媒体人塔克·卡尔森（Tucker Carlson）采访波布林斯基（Tony Bobulinski），曾是亨特拜登商业合作伙伴兼CEO。波布林斯基称James Gilliar邮件中H持有的大人物是乔·拜登，拜登家族与中共华信能源CEFC交易密切，存在利益输送，或涉及俄罗斯石油公司。
+从喀什CCP病毒事件来看，目前中共病毒毒株已具备极强的传染率，能在短时间内感染大量人群。从CCP公开的信息来看，其短时间内已经造成了54%～73%的人群感染率，且多为无症状感染者，传播风险更高，传播的隐蔽性更强。
 
-波布林斯基称，2017年5月在洛杉矶的马尔蒙城堡，多次会见罗伯·沃克（Rob Walker），亨特·拜登（Hunter Biden），他们希望波布林斯基与乔·拜登见面会谈。
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28082030/11111.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28082035/22222.jpg)
 
-波布林斯基说，第一次见到乔·拜登（Joe Biden）和吉姆·拜登（Jim Biden）是2017年5月2日晚上10:38在比佛利希尔顿酒店（The BeverlyHilton），希望波布林斯基担任首席执行官CEO一职，并与华信能源CEFC合作在美国和世界各地发展Sinohawk。
+新疆三村服装厂
+截至10月26日，中共公布的感染病例为137人，全部为站敏乡的三村服装厂工人，该工厂有工人252人，其感染率为54%。
 
-波布林斯基说，在与乔·拜登会谈前，亨特·拜登向乔·拜登提前做了10分钟的简报。
+截至10月27日，中共公布的总感染病例为183人，但未说明其他病例是否也来自同一工厂，如果所有病患都是三村服装厂工人，那么其感染率则高达73%！
 
-因此乔·拜登说对儿子生意一无所知，是公然撒谎。并且他非常清楚的知道合作的企业华信能源CEFC就是中共金融和政治支持的企业。
+新闻链接：
+[https://3g.163.com/news/article/FQ2084CG0001899O.html?clickfrom=baidu\_adapt
+https://3g.163.com/news/article\_so/FPS0SLNM0545LX4F.html](https://3g.163.com/news/article/FQ2084CG0001899O.html?clickfrom=baidu_adapt
+https://3g.163.com/news/article_so/FPS0SLNM0545LX4F.html)
 
-波布林斯基1000%确认，5月13日James Gilliar发给波布林斯基关于薪酬和分配企业股权情况的邮件中，H持有的大人物是乔·拜登，拥有10%的收益。
-
-波布林斯基说，拜登家族利用俄罗斯的虚假信息来攻击他，公开指控叛国。
-
-博布林斯基还表示，他了解到在2015-2016年乔·拜登还在任美国时，拜登家族利用权力在世界各地发展业务，如阿曼，卢森堡，罗马尼亚和哈萨克斯坦。
-
-5月中旬亨特拜登一行人罗马尼亚之行后，中共华信能源董事臧建军向波布林斯基保证，有1000万美元将汇入Oneida Holdings的银行帐户。但实际情况是，500万美元Sinohawk Holdings资本化的出资，另500万美元提供BD家庭贷款（BD家族是拜登家族）。
-
-随后7月4日中共习近平访俄罗斯并会见普京，达成华信能源CEFC购买俄罗斯石油公司（Rosneft）14％协议涉及金额90亿美元，亨特拜登是叶简明的私人律师，当时美国制裁俄罗斯（Sinohawk Holdings疑似间接持有俄罗斯石油公司）。
-
-最后博布林斯基说，自己收到死亡威胁，现在收到联邦调查局FBI保护（朱利安尼先生已代理FBI局长）。
-
-罗伯·沃克是塞内卡罗斯蒙特（Rosemont Seneca）的合伙人，与拜登（Biden）家族有非常密切的关系，并在2015年和2016年与詹姆斯·吉亚（James Gilliar）一直与中共华信能源CEFC做交易。他曾在政府工作，现在是拜登家族的全球代理。
-
-James Gilliar发给波布林斯的邮件显示，Oneida Holdings，LLC中，股权分为亨特·拜登（Hunter Biden）20％，吉姆·拜登（Jim Biden）20％。詹姆斯·吉利亚尔（James Gilliar）20％；Rob Walker20％和20％的波布林斯基及其投资实体。
-
-1+
+2+

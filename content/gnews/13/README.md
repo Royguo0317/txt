@@ -1,93 +1,74 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 科技巨头网络审查的护身符——“230法案”即将寿终正寝？
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/493803/)
+## 你会埋葬所有参与其中的人
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/493909/)
 
-*喜马拉雅联盟加拿大农场 枫叶小哥
-校对 文锦 不动之光 上传 WJ*
+*新闻来源：ZeroHedge《零对冲》；作者：Tyler Durden；发布时间： 2020年10月27日*
 
-据DJHJ MEDIA10月27日报道，当天15名YouTube热门大V对谷歌和YouTube提起联邦诉讼，指控谷歌和YouTube违反了自己的服务条款，侵犯了其第一修正案的权利——言论自由。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28102307/%E6%8D%82%E5%98%B4.jpg)
-**原告代理律师背景**
+*翻译/简评：亚瑟小子；校对：Beicy-数学老师；审核： InAHurry；Page：拱卒*
 
-原告的代理律师M.Cris Armenta和Credence Sol都是资深的前联邦法院雇员。Armenta女士曾在加州中区法院工作，Sol女士曾在第九巡回上诉法院工作。Armenta女士被评为加州100名最佳女律师之一，并在同行评审的民事诉讼超级律师（SuperLawyers）名单上。她是洛杉矶美国公民自由联盟董事会的前成员。Armenta女士的法律实践主要集中在民事诉讼、娱乐、房地产和被绑架儿童的追索方面。Sol女士的业务重点是民事诉讼和知识产权，她拥有这方面的博士学位。她发表了几篇关于互联网法律和国际言论自由问题的文章。Armenta女士和Sol女士以前都曾对谷歌提起过诉讼。她们期待YouTube和谷歌为该案件辩护，并声称《通信规范法案》第230条（即“230法案”，是当前科技网络巨头进行言论审查的护身符）将为他们提供针对保守的YouTube评论员和内容创作者所采取行动的豁免权。
+[!\[\]()!\[\](https://spark.adobe.com/page/KZRf2vnhpcunF/images/81546c22-c050-4759-b5b1-0eb3f67cb735.jpg?asset_id=9d055f0e-af26-4666-acf0-b4653a681eb0&amp;img_etag=%22902ddb73b6926c43b7a86eba461cbc4e%22&amp;size=1024)](https://spark.adobe.com/page/KZRf2vnhpcunF/images/81546c22-c050-4759-b5b1-0eb3f67cb735.jpg?asset_id=9d055f0e-af26-4666-acf0-b4653a681eb0&amp;img_etag=%22902ddb73b6926c43b7a86eba461cbc4e%22&amp;size=1024)
 
-该诉讼称，奉命行事的YouTube得到了国会、众议院议长南希·佩洛西（Nancy Pelosi）和众议员亚当·希夫（Adam Schiff）的鼓励和胁迫，他们曾在国会信笺上发表了一份敦促删除和更换内容的投诉。原告称，根据最高法院的先例，如果私人当事方在政府或其代理人的鼓励或胁迫下采取行动，则适用国家行动理论，第一修正案权利应受到保护，特别是免受观点歧视。
+**简评：**
 
-由于现任代表Adam Schiff以官方身份亲自公开要求社交媒体平台开始审查保守派内容提供者，而YouTube随后也回应并遵守了这一要求，因此这起诉讼的大门被打开。原告们预计，他们将收到或被拒绝一项紧急禁令，或向Youtube发出限制令，要求恢复他们的账户。 如果诉讼按照预期进展的话，预计诉状中提出的法律问题可能会导致科技公司“230法案”豁免权的撤销。
+重磅中的重磅，前拜登内部人士托尼-博布林斯基（Tony Bobulinski）作为爆料者将于本周二在福克斯新闻“塔克-卡尔森今夜”（Tucker Carlson Tonight）节目中曝光拜登家族恳求他闭嘴这一事实的直接证据，届时秘密录音带将被曝光。
 
-**如下为Scribd网上的相关起诉书内容：**
+博布林斯基作为拜登家族与中共商业计划的参与者、知情者，在见证了拜登家族种种的暗箱操作，利益勾兑，贪污腐败这种与世界主流价值观相违背的事件后，选择站到正义的一面来揭露这一犯罪集团。
 
-加利福尼亚州圣迭戈市–2020年10月26日，15名YouTube内容创作者对谷歌和YouTube提起联邦诉讼，在17项救济要求中指控谷歌和YouTube违反了服务条款，侵犯了他们的第一修正案权利，因为他们在没有提前通知的情况下，立即取消了原告的频道，并从YouTube上删除了他们的内容。
+这是正义的呼唤，这是美国精神的回归，这是不与中共同流合污的强烈回击，博布林斯基的这种宣战会唤醒越来越多的美国人加入到我们爆料革命的队伍中来。毫无疑问，在这种全球反共灭共的大浪潮中，中共这种人类历史上的毒瘤一定会被正义所根除
 
-他们的新闻和社会评论频道的浏览量一起达到了8亿多，他们在YouTube上的用户数一起超过了许多传统新闻频道，如C-SPAN、纽约时报和NBC新闻。原告引用了皮尤研究中心(Pew Research Center)最近的一项研究，该研究得出的结论是，许多美国人从YouTube频道获取新闻的指标与传统或传统新闻来源相同。
+[!\[\]()!\[\](https://spark.adobe.com/page/KZRf2vnhpcunF/images/6d22bfa1-913e-42bf-a3e7-3211cc8a7dcb.jpg?asset_id=13636834-088c-494f-8efc-a3b61544a9f3&amp;img_etag=%2276a2bd03b57e3cc942dff7c909254791%22&amp;size=1024)](https://spark.adobe.com/page/KZRf2vnhpcunF/images/6d22bfa1-913e-42bf-a3e7-3211cc8a7dcb.jpg?asset_id=13636834-088c-494f-8efc-a3b61544a9f3&amp;img_etag=%2276a2bd03b57e3cc942dff7c909254791%22&amp;size=1024)
 
-YouTube和谷歌预计将为此案辩护，并声称《通信规范法案》第230条为他们在11月3日总统大选前19天对保守派评论员采取的行动提供了豁免权。然而，第九巡回法院最近发表了一项意见，从对豁免权的宽泛解释中退了出来，社交媒体多年来一直使用该豁免权来为其合同伙伴和用户的诉讼辩护。第230条豁免权是国会提供的一种手段，目的是让互联网提供商有能力删除被认为是 “淫秽、猥亵、淫乱、污秽、过度暴力、骚扰或其他令人讨厌的内容。”
+## 据称，前拜登内部人士托尼-博布林斯基（Tony Bobulinski）有一段拜登家族跟他的秘密录音，里面拜登家族的代表恳求他保持沉默，否则托尼的行动将会“埋葬”所有参与亨特海外交易的人的声誉。
 
-原告称，YouTube在没有通知他们或根据YouTube自己起草并强加给原告的服务条款无故删除他们的频道。原告称，YouTube还侵犯了原告的第一修正案权利，以及他们通过其社会评论、新闻和信息渠道所服务的公众。尽管许多法院已经拒绝了YouTube受第一修正案约束的观点，认为YouTube是一个私人当事方，但起诉书声称YouTube是在国会、众议院议长南希·佩洛西和众议员亚当·希夫的要求、鼓励和胁迫下行事的。原告在诉状中附上了Schiff代表用国会信笺发表的敦促删除和替换内容的信件。原告还提到了众议院最近的行动，众议院通过了众议院1154号决议，谴责某些内容，并特别提到了社交媒体。对于希夫代表发表的要求审查的信件，YouTube首席执行官Susan Wojcicki通过Tweet回应，”感谢您伸出援手，我们每天都在努力保护人们免受错误信息的影响，并帮助他们找到权威信息。我们感谢您的合作，并将继续与国会成员协商，因为我们解决ARMENTA＆SOL PC，114400 WEST BERNARDO COURT，SUITE 300，SAN DIEGO，CA 92127围绕#COVID19不断变化的问题。” 原告声称，根据最高法院的先例，如果私人当事方在政府或其代理人的鼓励或胁迫下采取行动，那么国家行动理论适用，第一修正案权利应该受到保护，特别是免受观点歧视。
+据《联邦主义者报》（Federalist）的肖恩-戴维斯（Sean Davis）透露，博布林斯基将于周二在福克斯新闻“塔克-卡尔森今夜”（Tucker Carlson Tonight）节目中播放这盘录音带，届时卡尔森将用整集节目“完全”用于采访这位拜登的举报人。
 
-这场诉讼是在司法部和11个州对谷歌提起大规模反垄断诉讼之后进行的。
+[!\[\]()!\[\](https://spark.adobe.com/page/KZRf2vnhpcunF/images/451b8de1-ae31-4126-9bd3-ffec2fdf7acc.jpg?asset_id=73d409b0-4cc9-4a1b-b87a-0befe6938f43&amp;img_etag=%222df108303ae829dc7fa0b051b7b1bf74%22&amp;size=2560)](https://spark.adobe.com/page/KZRf2vnhpcunF/images/451b8de1-ae31-4126-9bd3-ffec2fdf7acc.jpg?asset_id=73d409b0-4cc9-4a1b-b87a-0befe6938f43&amp;img_etag=%222df108303ae829dc7fa0b051b7b1bf74%22&amp;size=1024)推文翻译：明晚塔克-卡尔森的节目将专门采访托尼-波布林克西，他是拜登家族的内部人士，后来变成了举报者，他的爆炸性邮件显示，乔-拜登本人深深卷入了亨特的对外商业交易。据知情人士透露，博布林斯基将播放拜登家族的特工求他保持沉默的录音，并声称博布林斯基的爆料将 “埋葬 “所有参与亨特海外交易的人的名誉。
 
-“国家行动 “理论曾在2020年7月由Armenta & Sol代表非裔美国保守派评论员Young Pharaoh提出，也是针对谷歌和YouTube。虽然该案被告提出了撤诉动议，并进行了口头辩论，但地方法院法官弗吉尼亚·德马奇尚未作出裁决。
+《联邦主义者报》称：他们在熟悉博布林斯基的爆料计划的知情人士那里获得证实，博布林斯基将在前副总统乔-拜登下周为入主白宫做最后冲刺之际，播放拜登代表恳求他保持沉默的录音带。博布林斯基是一位已退休的海军少尉和拜登的同僚。
 
-诉讼将于今天送达谷歌和YouTube。
+博布林斯基对拜登家族态度的反转是由于他在之前参议院的一份报告中得知，拜登从一家现已破产的中国能源公司那里获得了500万美元的无息贷款。
 
-**以下内容是关于本次诉讼发起者对这个案件的完整介绍**（来自PUNCHGOOGLE.COM）：
+据前拜登内部人士博布林斯基透露，他是由亨特-拜登介绍给乔-拜登的，他们进行了一个小时的会面，讨论了拜登与中国的商业计划，他还说乔“很显然对亨特(与中国的商业往来)很熟悉”。
 
-你好，我叫扎克-沃希斯，我被称为谷歌告密者。我和Facebook的举报者Ryan Hartwig一起参与这次活动。
+[!\[\]()!\[\](https://spark.adobe.com/page/KZRf2vnhpcunF/images/226beefd-cb9d-4599-8d63-4484f611421d.jpg?asset_id=383a21b9-bd40-4514-ad46-269a52a5f6b6&amp;img_etag=%2260648573a58bf6d7d6bec3c978442d49%22&amp;size=1024)](https://spark.adobe.com/page/KZRf2vnhpcunF/images/226beefd-cb9d-4599-8d63-4484f611421d.jpg?asset_id=383a21b9-bd40-4514-ad46-269a52a5f6b6&amp;img_etag=%2260648573a58bf6d7d6bec3c978442d49%22&amp;size=1024)截图翻译：不要说乔参与其中了，只有当你面对面谈话时（才能提及乔），我知道你知道规矩，但是(乔)那边极其担心(会被其他人知道)
 
-我在谷歌工作了8年半，是一名高级软件工程师。其中最后三年是在谷歌旗下的YouTube工作。
+博布林斯基的短信还透露出，一直有力量在试图隐瞒乔-拜登参与亨特业务往来的事实，而博布林斯基也证实，泄露的邮件中所描述的“大人物”正是乔-拜登本人。
 
-我非常遗憾，我的前雇主YouTube现在已经成为对美利坚合众国和它所代表的共和国的直接威胁。YouTube通过对其认为 “品牌不安全 “的内容创作者进行大规模的清理，正在进行鲁莽的审查。
+[!\[\]()!\[\](https://spark.adobe.com/page/KZRf2vnhpcunF/images/1afed42e-f484-4a62-a31e-502aeca16e57.png?asset_id=6e3917bd-5a2f-4120-a99a-8eadb95b8b53&amp;img_etag=%22831a6f02b55f99af0a1e14a8f6605019%22&amp;size=1024)](https://spark.adobe.com/page/KZRf2vnhpcunF/images/1afed42e-f484-4a62-a31e-502aeca16e57.png?asset_id=6e3917bd-5a2f-4120-a99a-8eadb95b8b53&amp;img_etag=%22831a6f02b55f99af0a1e14a8f6605019%22&amp;size=1024)
 
-谷歌为什么要采取看似压制思想和不同观点的明确交流的行动？这看起来不是在干涉言论自由和选举吗？事实上，情况正是如此。谷歌正在故意通过阻止某些观点的分享来影响选举。
+当然，除了腐败的指控外，亨特-拜登的笔记本电脑据称还含有儿童色情内容。在特拉华州的那家计算机维修店的老板将电脑交给了联邦调查局后，FBI他们按住了这个消息整整九个月没有动作，最后只有鲁迪-朱利安尼（Rudy Giuliani）向国会提出申诉，可是在当时没有任何人采取行动。
 
-这种行为毫无疑问是一场选举政变!
+[!\[\]()!\[\](https://spark.adobe.com/page/KZRf2vnhpcunF/images/2944c32e-f795-41ab-87d6-0fe155c166f6.jpg?asset_id=78c3957c-efca-444b-88b9-da8af45edb02&amp;img_etag=%227bd53018c4f6c7f2d8c9273aa2f9adde%22&amp;size=2560)](https://spark.adobe.com/page/KZRf2vnhpcunF/images/2944c32e-f795-41ab-87d6-0fe155c166f6.jpg?asset_id=78c3957c-efca-444b-88b9-da8af45edb02&amp;img_etag=%227bd53018c4f6c7f2d8c9273aa2f9adde%22&amp;size=1024)
 
-我知道是因为我亲眼所见。我花了几年时间观察谷歌建立这个选举操纵机器，才得出结论，谷歌肯定会试图窃取2020年的选举。这不是他们试图隐藏的事情。 相反，他们小心翼翼地记录下来，作为一个名为 “机器学习公平性 “的庞大项目——我在2019年8月下载并向公众披露了这个项目。披露的内容有950页，可以在这里看到。
+OAN的@ChanelRion 证实亨特笔记本电脑上的照片和视频是他的侄女娜塔莉-拜登， 亨特已故哥哥博-拜登的女儿。照片和视频拍摄时，她只有14岁。
 
-不要只相信我的话，谷歌现任高层主管Jen Gennai去年曾向一名卧底记者承认，只有谷歌这样规模的公司才能 “防止下一个川普的情况发生”。
+尽管我们对“Q”现象不持任何立场—但如果我们不指出这似乎又是主流媒体惊慌失措地想要掩盖另一个精英恋童癖者，且可能与他的侄女有不正当关系，那将是我们的失职。同时值得一提的是，这个侄女（他的哥哥遗孀）的母亲跟亨特也曾有“亲密”关系。
 
-作为一名前员工，我了解谷歌的规模。我很害怕因为对抗世界上有史以来最大的选举操纵机器而可能发生的事情。
+[!\[\]()!\[\](https://spark.adobe.com/page/KZRf2vnhpcunF/images/aca52ee3-7f94-4e21-bbc5-52f0f23940d4.png?asset_id=59ea1ee0-073e-44bb-9a2f-59acaa794950&amp;img_etag=%2209560b49d4d9b696fb150c6f4762a7fd%22&amp;size=1024)](https://spark.adobe.com/page/KZRf2vnhpcunF/images/aca52ee3-7f94-4e21-bbc5-52f0f23940d4.png?asset_id=59ea1ee0-073e-44bb-9a2f-59acaa794950&amp;img_etag=%2209560b49d4d9b696fb150c6f4762a7fd%22&amp;size=1024)推文翻译：我在新闻中看到了疯狂的卡农阴谋论。它们声称这个世界被一群受到媒体和科技公司的保护的恋童癖所统治。与此同时，各个媒体都拒绝谈论亨特-拜登的笔记本电脑，而科技公司也正在禁止那些谈论这个话题的人。
 
-与这个巨无霸相比，我这样一个小个体算什么？如果我是谷歌，我会让这个公司的举报人被杀。这听起来是不是很离谱？
+这些人到底是怎么回事？
 
-**这是一个大卫与歌利亚的时刻**
+[!\[\]()!\[\](https://spark.adobe.com/page/KZRf2vnhpcunF/images/a9ab92f3-b8a1-428b-8712-be00d23cec03.jpg?asset_id=5ded6a59-e8c7-4978-a0a1-dc88c4c82d92&amp;img_etag=%223e0f68a998becce1066df745dd2061b4%22&amp;size=3975)](https://spark.adobe.com/page/KZRf2vnhpcunF/images/a9ab92f3-b8a1-428b-8712-be00d23cec03.jpg?asset_id=5ded6a59-e8c7-4978-a0a1-dc88c4c82d92&amp;img_etag=%223e0f68a998becce1066df745dd2061b4%22&amp;size=1024) 推文翻译：一位母亲指责亨特-拜登与她的孩子有不正当的接触，她告诉乔-拜登，
+ 如果亨特再靠近未成年人，她就会报警。但乔和他的弟弟吉姆却让这位母亲闭嘴。
 
-唯一比死亡和我的家人被盯上更让我恐惧的是，谷歌正在为我们所有人建立一个世界。这其实是我们最后的阵地。这不仅仅是对美国大选的政变，如果谷歌赢了，这将是对人类的政变。为什么呢？因为谷歌把你看作是一个可编程的单元：当你使用谷歌搜索、谷歌新闻和YouTube时，谷歌通过控制他们返回给你的信息来进行编程。
+设想一下这个情景吧，如果小唐纳德-川普一边吸食可卡因，一边接受可能还未成年家庭成员的足交，而且这些家庭成员的色情照片还被发现都储存在他的笔记本电脑上，（主流媒体会作何反应）。
 
-**这不是 “左派与右派 “或 “保守派与自由派 “的问题**
+[原文链接](https://www.zerohedge.com/political/youll-bury-everyone-involved-bobulinski-recorded-biden-operatives-begging-him-stay-quiet)
 
-这场斗争与政治无关。这是为人类的未来而战。我这样做不仅是为了我们自己，更是为了我们的孩子、我们孩子的孩子。他们应该得到我们所继承的自由世界。自由的火炬必须传承下去。
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/KZRf2vnhpcunF/)】- 点击spark adobe版
 
-这是一个千载难逢的机会，我们要团结起来，与谷歌抗衡。作为一个人，我什么都不是。一直以来，是我们每个美国人民让这场斗争成为可能。团结起来，谷歌可以而且将会被阻止!
+了解更多资讯敬请关注：
 
-**法律战略**
+【战鹰团Gab】[https://gab.com/himalayahawks](https://gab.com/himalayahawks)
 
-这实质上是一场针对谷歌的违约诉讼。
+【英国喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
 
-下面是我们策略的简单总结：
+【英国喜庄园GTV/盖特】：[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-1. 由2020年10月15日被清理的顶级保守账户提起诉讼。
-2. Google/YouTube关闭这些账号违反了自己的服务条款，因为他们只有在自己的服务条款存在3个条件的情况下才能关闭。
-3. 他们声称自己是因为多次违规和骚扰而被关闭的。
-4. 但是，这些频道并不是复读机，也没有骚扰，新的骚扰政策的颁布特别是为了彻底消灭这些频道。
-5. 原告将寻求TRO或紧急禁令，让这些频道重新恢复。
-6. 原告有第一修正案的话语权，覆盖面大，而且有 “国家行为”，因为希夫代表要求 “阴谋 “频道被拿下来，HR 1154谴责这些频道上的言论类型。
-7. 这是一个第一修正案的案件，但通过让YouTube对它自己强加的服务条款负责，它将被简化。
-8. 参与的律师在与谷歌的诉讼中拥有丰富的经验，并且正在塑造这个案件，要么在第九巡回法院获胜（总统翻转了巡回法院），要么为修改“230法案”创造明确的路径。
-9. 上周，最高法院拒绝审理第九巡回法院表示“230法案”豁免权并非 “无边无际 “的案件。
+【大卫作战室YouTube】[https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
 
+[!\[\]()!\[\](https://spark.adobe.com/page/KZRf2vnhpcunF/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/KZRf2vnhpcunF/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
-参考链接：
-
-
-
-> [EXCLUSIVE: Emergency Lawsuit FINALLY Filed Against Google & Youtube To Reverse Massive Purge \[Complaint Attached\]](https://djhjmedia.com/deb/exclusive-emergency-lawsuit-finally-filed-against-google-youtube-to-reverse-massive-purge-complaint-attached/)
-
-
-
-
-
-3+
+2+

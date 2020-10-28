@@ -1,9 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵先生歌曲《为香港而战》发行背后的故事
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/492906/)
+## 10.19 路德时评：拜登硬盘更加重磅的大料川普身边习的人即将被曝光【精华版粤语配音】
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/493037/)
 
-#### **By: 【秘密翻译组G-Translators】**
+制作单位：战友之家·粤语频道
 
-2+
+制作团队： wikim bao 、流光飞舞、 文洪
+
+
+
+摘要：
+
+藏在川普总统身边的中共走狗努姆钦，配合中共控制华尔街股市，扰乱川普总统灭共进程。
+
+1+
