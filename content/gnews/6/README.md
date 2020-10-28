@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【5】亨特拜登对自己的私处迷恋到变态！无下限猛料第二部来袭！
-` Gundam0078` [轉載自GNews](https://gnews.org/zh-hans/461059/)
+## 【6】亨特拜登最新性爱照片曝光！他们在哪里？女性是谁？无下限猛料第二部来袭！
+` Gundam0078` [轉載自GNews](https://gnews.org/zh-hans/461104/)
 
 毒品，淫乱，变态，虐待、乱伦……近日亨特拜登的被共产党所掌握的蓝金黄证据频频爆出，让我们感受到了这个世界无比的黑暗。
 
@@ -11,9 +11,5 @@
 **你准备好了吗？**
 
 （您申明，您已年满18周岁或在您访问本视频内容的司法管辖区已达到成人年龄，并完全有能力和资格签订本服务条款中规定的条款、条件、义务、申明、陈述和保证，并遵守和履行本服务条款。如果您未满18岁或法定成年年龄，请不要观看本视频的任何内容）
-
-
-
-
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27023043/6_2-1-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27023205/6-21.png)
 0

@@ -1,26 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 快讯：美财政部制裁伊朗石油相关个人和公司
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/463717/)
+## 重磅! 亨特·拜登的录音承认他同中共国“间谍头目”的商业合作关系
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/467892/)
 
-*加拿大草原三省战友团 金不換
-校对 风云小哥* *上传 WJ*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27103435/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE549.png)
-2020年10月26日，美财政部外国资产管制办公室(OFAC) 根据经修订的第13224号行政法令认定伊朗石油部、伊朗国家石油公司(NIOC)和伊朗国家油箱公司(NITC)向伊朗伊斯兰革命卫队(IRGC-QF)提供财政资助。 NIOC和NITC高级人员与IRGC-QF高级官员兼前石油部长Rostam Ghasemi密切合作。Rostam Ghasemi于2019年被任命，并部分承担了前IRGC-QF指挥官Qasem Soleimani为IRGC-QF财务利益运输石油和石油产品方面的工作。外国资产管制处还指认与石油部、NIOC和NITC有联系的多个实体和个人，包括前线公司、子公司和高级管理人员。 此外，外国资产管制办公室正在指认四名参与最近向委内瑞拉非法马杜罗政权出售伊朗石油的人员。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27103330/%E4%BC%8A%E6%9C%97.jpg)图片来源：Getty
-财政部长Steven T. Mnuchin表示 “伊朗政权利用石油部门为IRGC-QF的破坏活动提供资金。伊朗政权继续把支持恐怖实体及其核计划置于伊朗人民的需要之上。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27172110/Screen-Shot-2020-10-28-at-7.20.53-am.png)图片来源：GTV
+《国家脉动》获得一个[录音文件](https://rumble.com/vautmt-exc-hunter-biden-audio-on-chinese-spies-and-joe.html)，独家重磅曝光亨特·拜登（Hunter Biden）“邮件门”的最新消息：在[录音](https://rumble.com/vautmt-exc-hunter-biden-audio-on-chinese-spies-and-joe.html)中可以听到亨特·拜登谈论与“中(共)国间谍头目”有关的业务，以及他的商业合伙人德文.阿彻（Devon Archer）把他和他的父亲列为纽约南部地区联邦法院刑事犯罪案件的证人。他谈到前香港特别行政区民政事务局局长何志平（Patrick Ho）是“中(共)国间谍头目”，同时感叹他的商业伙伴，中国华信能源公司（CEFC China Energy）的叶简明已经人间蒸发。根据纽约邮报的报道，何志平也参与了中国华信的投资项目，但是这个消息遭到媒体和大科技公司的压制。
 
-仅在2019年春天，一个由IRGC-QF领导的网络就雇用了十几艘NITC船只运送近1000万桶原油，该原有大部分被运往阿萨德政权。 伊朗继续通过这些交易使使叙利亚冲突永久化。 这些原油运输合起来相当5亿多美元的价值。 今天的行动针对提供和运输石油的人，这些人为IRGC-QF提供收入来源。
+这个[录音](https://rumble.com/vautmt-exc-hunter-biden-audio-on-chinese-spies-and-joe.html)内容的曝光，使得主流媒体之前声称的拜登硬盘是“伪造的”或表示亨特.拜登或乔.拜登（Joe Biden）并不涉及与中国共产党有关商业交易和刑事调查的说法不攻自破。这位前副总统的儿子还哀叹他的长期商业伙伴德文·阿彻没有通知他就将他和他的父亲乔.拜登列为“刑事案件中的证人”。
 
-今天被美国管辖的这些人的财产和权益均被冻结，美国人一般不得与他们进行交易。 直接或间接拥有的此类人的50%或以上资产的任何实体也被冻结。 此外，外国金融机构如果协助今天被指认的人进行重大交易或提供物质或其他支持可能受到相应制裁，这些制裁会切断他们进入美国金融系统的机会，或冻结他们在美国管辖下的财产和利益。
+**亨特.拜登在[录音](https://rumble.com/vautmt-exc-hunter-biden-audio-on-chinese-spies-and-joe.html)里说：**
 
-在采取今天行动的同时，外国资产管制办公室正在发布修订的8A通用许可证，该通用许可证是根据《全球恐怖主义制裁条例》和《伊朗交易和制裁条例》颁发的。 该许可证继续允许涉及NIOC或直接或间接拥有50%或更大份额的任何实体的某些人道主义贸易交易。
+*“我接到父亲打来的电话，告诉我《纽约时报》打电话来，但接电话的人是我的老搭档埃里克（Eric），因为我父亲总是不会不把电话转给埃里克，这个埃里克实际上对我造成了不知多久的长期伤害。还有另一位《纽约时报》记者打电话给我询问我关于何志平的事，姓何的家伙是他妈的中国间谍头目，他创立了这家公司，而拥有3,230亿美元价值，我的投资合伙人如今却已经失踪。我的合伙人是这个世界上最富有的人，现在失踪了。 自从我上次在他那价值5800万美元的公寓中与他讨论一个价值40亿美元的交易中见到他后，他就失踪了，这笔交易是建造世界上最大的他妈的液化气（LNG）港口。 我也接到美国检察官本人从纽约南区联邦法院打来的电话。我的最要好的商业朋友德文·阿彻没有告诉我就把我还有我父亲列为刑事案件的证人。”*
 
+评：这个亨特.拜登的[录音](https://rumble.com/vautmt-exc-hunter-biden-audio-on-chinese-spies-and-joe.html)通过他自己的嘴直接证实了：
+（1）他明明知道何志平是中共的间谍头目仍然明目张胆地与他发展生意关系；
+（2）他和他的前副总统父亲一起被他的最要好的商业合伙人德文·阿彻拖进了刑事案件。乔.拜登再怎么辩解，说对儿子的代表家族进行的商业活动不知情，最后也是徒劳的，因为将会有更多的证据爆光出来，这些犯罪将会无所遁形。更多的美国人民和全世界将会看清这个与中共勾兑的拜登家族极其腐败的丑陋嘴脸。
 
+【[原文链接](https://thenationalpulse.com/exclusive/biden-recording-spy-chief-and-sdny/)】【[录音链接](https://rumble.com/vautmt-exc-hunter-biden-audio-on-chinese-spies-and-joe.html)】
 
-新闻链接：
-
-[Treasury Sanctions Key Actors in Iran’s Oil Sector for Supporting Islamic Revolutionary Guard Corps-Qods Force](https://home.treasury.gov/news/press-releases/sm1165)
+翻译报道：下里巴人
+校对整理：晴天
 
 0

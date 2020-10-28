@@ -1,61 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 现实版一九八四！中共利用阉割汉字永远思想奴役中国人！
-` Ronald` [轉載自GNews](https://gnews.org/zh-hans/461477/)
+## 决不能让明天的美国变为今天的中共国
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/463902/)
 
-内新闻/素材：小黑姐（文雅） 校对：雅典娜的圣斗士(沙加)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27104150/Sara_20201026_photo2.png)图片来源：VOG 设计组
+战友之家创始人 Sara 女士近日在社交媒体上强调在德州进行“惩贼”傅希秋的三个原因，并向在第一线的“惩贼”抗议的战友们致以敬意。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27020200/Sara_20201026_figure2.png)
+我们华人要完全抛开根深蒂固的多一事不如少一事的观念，我们站在德州米德兰的理由：
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27045552/133168840.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27045557/133168908.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27045607/133169188.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27045616/133169252.jpg)
+We of Chinese descent, really should eradicate the deep-rooted notion that “Don’t be bothered by other’s trouble so long as it has not affected myself for the time being”. The reasons that many of us have stepped forward in protesting Bob Fu in the city of Midland, TX are:
 
+1、必须彻底调查 Bob Fu 傅希秋，不能让 CCP 特务祸害美国。
 
-不久前中共国务院副总理孙春兰出席全国语言文字会议并讲话。她强调，要深入贯彻习近平总书记关于语言文字工作的重要指示精神，落实党中央、国务院加强新时代语言文字工作的决策部署。并且强调，要坚定不移推广普及国家通用语言文字。
+It is imperative for us to raise the U.S. government’s awareness in order to launch an immediate and full investigation on Bob Fu (aka, Xiqiu Fu or 傅希秋). We shall not allow any CCP spies to continue to harm the U.S.  anymore.
 
-汉字是汉族从古至今的通用文字。在大陆由于政府半个多世纪的推行使用简化汉字，绝大多数人不认识繁体字，只认识简体字。而在香港、澳门、台湾等地，人们沿用的是繁体汉字。
+2、绝对不能黑白颠倒，必须让市长 [Patrick Payton] [1]来对话，（我们不会去市政府找他，我们不做上访户，那是 CCP 国家做的）。
 
-这就在文化交流上形成了巨大障碍，大陆人不能通畅的阅读港澳台的报刊和其他出版物，同样港澳台等地的华人对简化字十分陌生，无法正常阅读。然而中国几千年的文化都是用繁体汉字来记录和传承，而不是简体汉字。
+Midland Mayor’s [1] inversions of right and wrong are absolutely unacceptable. We demand Mayor Patrick Payton to come out and have an open dialogue with us. And “No”, we will not attempt to look for him in the City Hall, as we are not the oppressed petitioners begging for a meet-up. That’d be a thing only belongs to the regime of the CCP.
 
-那么汉字是从何时开始被分为繁体和简体的呢？
+3、如果居民有意见，我们真心对不起，但是我们是为了他们的明天不成为现在的中国。
 
-汉字的人工简化是指中共国成立后由政府组织的有目的、有计划、有步骤的汉字简化工作。
+In case our “Bring the CCP’s Spies to Justice” protests have caused any unintended inconvenience to the local residents, our sincere apologies.
 
-1956年1月28国务院全体会议通过《汉字简化方案》，公布立即推行230个简化字，试用285个简化字和54个简化偏旁。并在1964年、1977年、1986年逐步增加简化的汉字数量。毛泽东最早在1940年指出：“文字必须在一定条件下加以改革，言语必须接近民众。”
+However, with all due respect, we’d like to bring attention to all American people – we are protesting vigorously is because we really would not want America’s tomorrow to degenerate to Communist China’s Today.
 
-中华人民共和国建立后，1949年10月10日，中国文字改革协会成立。在1956年中国大陆讨论文字改革的时候说“汉字是一种落后的字体”，所以“必须要改革成像拉丁文那样” ，方便学习及辨识，以使其能够符合其救国的思想。
+咱们华人要从今天开始挺起腰杆
 
-随着中苏决裂，大陆学者认识到废弃汉字不现实。于是简化汉字与汉语拼音方案成为大陆主流，并推行沿用至今，再看看中共国召开的各种语言文字会议，就知道继续简化阉割汉字，统一语言文字的邪恶计划仍在悄悄的进行。
+We of Chinese descent, from today onwards, let each of us grow a spine!
 
-事实上早有学者意识到中国简化字是中国共产党受苏联影响而制定消灭汉字的步骤，并且进行思想文化控制的方法，正如《一九八四》小说中的新语一样，简化字只是一个政治性产物而不是一个文字自然的进化过程。
+@支援德州 感恩所有的你们
 
-《一九八四》是英国左翼作家乔治·奥威尔于1949年出版的长篇政治小说。在小说中，新话是一种大洋国为了控制人们的思想而专门发明的新语言，是大洋国的官方语言。
+Kudos to all the frontline protesters in Texas, our brothers-in-arms!  Thank you all very much!
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27104227/Sara_20201026_figure1.png)图片来源：[https://gtv.org/web/#/UserInfo/5e6753818723ef1f52a55e2f](https://gtv.org/web/#/UserInfo/5e6753818723ef1f52a55e2f)
+参考链接：
 
-为了能够保证新话更好地实行下去，大洋国的领袖以及他的部下们专门编写了《新话词典》，他们计划用新话替代旧语言，这样就能很好地控制大洋国民众的思想。
+[1] [https://www.midlandtexas.gov/238/Mayor-City-Council](https://www.midlandtexas.gov/238/Mayor-City-Council)
 
-语言是人与人交流的工具，是传递思想的载体。如果控制了语言，就相当于控制了思想，也就维护了个人的独裁统治，保证了民众绝对忠实于独裁者。
+翻译：【RD16】图片：【VOG设计组】
 
-简化汉字就是现实版的新话，是对中华文化的极大之破坏和摧毁。
+战友之家玫瑰园小队出品
 
-汉字简化后，中国五千年的传统文化无法在大陆正常的继承，人们无法再直接阅读古代的典籍。中国大陆和台湾、港澳等地之间的文化无法正常交流，与日本等外国使用的汉字也进一步脱节，做成人为的“书不同文”。
-
-这也违反了六书造字原则，使汉字系统更繁杂，增加学习者的负担，从书法美观的角度出发，简化汉字也失去原先书体的特殊美感等等。
-
-不仅在汉字方面，外语也不放过，随着科技经济的发展，世界各国交流愈加频繁深入，英语成为人们沟通交流的必备语言，但在墙内，学的都是中国式应试英语，哪怕从小学学到大学毕业，也无法正常阅读文章，无法用英语正常沟通和交流。
-
-中共简化、阉割汉字、统一语言，最终的目的就是弱化、消灭中华文化，割断墙内人民与自由世界的联系，永远思想控制奴役中国人！
-
-仿佛奥威尔刻画下的那个令人感到窒息的恐怖世界，在假想的未来社会中，独裁者以追逐权力为最终目标，人性被强权彻底扼杀，自由被彻底剥夺，思想受到严酷钳制，人民的生活陷入了极度贫困，下层人民的人生变成了单调乏味的循环。
-
-而我们所有中国人，是生活在现实版的一九八四！
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27045643/133168718.jpg)
-
-当一个国家，一个民族的语言和文字都已消失，思想文化无法继承，后代无从考察追寻，那也就没有国家、民族、思想、文化可言，活着的被称之为人的也不过是独裁者手里的工具。
-
-正如小说里所说：“我们将会让思想罪变得根本不可能再犯，因为没有单词可以表达它。最迟到二零五零年，没有一个活着的人能听懂我们现在的谈话！”
-
-新闻来源：[http://politics.people.com.cn/n1/2020/1013/c1001-31890636.html](http://politics.people.com.cn/n1/2020/1013/c1001-31890636.html)
-
-3+
+0

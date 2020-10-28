@@ -1,44 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 决不能让明天的美国变为今天的中共国
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/463902/)
+## 雅典娜的希望：我们身处一场人类终极之战！
+` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/468717/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27104150/Sara_20201026_photo2.png)图片来源：VOG 设计组
-战友之家创始人 Sara 女士近日在社交媒体上强调在德州进行“惩贼”傅希秋的三个原因，并向在第一线的“惩贼”抗议的战友们致以敬意。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27020200/Sara_20201026_figure2.png)
-我们华人要完全抛开根深蒂固的多一事不如少一事的观念，我们站在德州米德兰的理由：
+作者：天高云淡LM02
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27190010/%E4%BA%BA%E7%B1%BB%E7%BB%88%E6%9E%81%E4%B9%8B%E6%88%98%E5%B0%81%E9%9D%A2.jpg)
+自人类这种有思想的生物诞生千百年以来，正义和邪恶的斗争就从未停止。天上的神佛和地狱的恶魔都如此钟爱这有灵性的物种，并以他们作为验证真理和考验人性的载体。披着人皮的恶魔曾在人间游荡了几千年，它们从未放弃对人性的侵蚀，但并未有大的成效。直到两百多年前，随着工业革命的开始，人类物质财富得到了爆发式的增长，各国进行着全球化的扩张、掠夺和融合，这也将人性中的欲望大范围的激发出来，给了恶魔祸乱人间的机会。
 
-We of Chinese descent, really should eradicate the deep-rooted notion that “Don’t be bothered by other’s trouble so long as it has not affected myself for the time being”. The reasons that many of us have stepped forward in protesting Bob Fu in the city of Midland, TX are:
+1818年撒旦之子从地狱的裂缝中窜入人间，开始了其统治人间的布局；1840年古老的东方城墙被打破，这片土地上的先贤开始觉醒，寻找拯救同胞的出路；1848年撒旦之子用“共产党宣言”这一集千百年邪恶之大成的终极教义正式向人间宣告：其目的是用暴力手段夺取全世界，使其成为恶魔的乐园；在欧洲游荡了几十年的共产邪灵在100年前终于将目光投向了东方这片缺少现代文明浇灌的土地，它们惊喜的发现这片土地上满是聪明但被抽离了信仰的人们，这是它们生根发芽的最好土壤。从此东西方的恶魔开始结合，这片土地也悲剧的沦为它们源源不断汲取生命源质的容器，成为它们无限侵蚀的炼狱场。终于在80年前，它们彻底夺取了这片土地，并将其变为进行全球扩张的根据地。
 
-1、必须彻底调查 Bob Fu 傅希秋，不能让 CCP 特务祸害美国。
+这几十年来，共产邪灵从未停止其扩张的布局。它们通过窥探人性的虚伪和贪婪加以诱惑，最终逼迫与其签订下邪恶的契约。现在中共这个共产邪灵的终极进化版已经在全世界裹挟了足够多的像“拜登家族”那样的奴仆，以至于曝露于阳光和真相之下它们都能恬不知耻的隐藏身形于人皮之下。面对郭文贵先生和川普总统为代表的上天拣选之人的警醒和反击，即使没有完全布局好，中共也不得不提前打开“潘多拉魔盒”。为了统治世界，中共发展的“拜登家族”们试图阻止全世界正义力量的集结，它们甚至想通过赢得美国的大选来控制正义力量的盟主，并且在这些布局的背后隐藏着它们早已聚集起来的无人性的僵尸和吸血鬼大军。如果我们输掉了这场大选，他们必将倾巢而出，席卷全球。
 
-It is imperative for us to raise the U.S. government’s awareness in order to launch an immediate and full investigation on Bob Fu (aka, Xiqiu Fu or 傅希秋). We shall not allow any CCP spies to continue to harm the U.S.  anymore.
+文贵先生曾经说过：爆料革命战友是上天赋予使命的人。我们有幸在正邪决战之前受到万神万佛使徒的召唤而觉醒，我们应肩负起属于我们的使命，在力所能及的范围内参与这场决定人类未来的终极之战。我们站在正义这一边，我们站在人性这一边，我们站在万神万佛之前直面邪恶的势力，万神万佛也必将为我们祈福、加持我们的事业。
 
-2、绝对不能黑白颠倒，必须让市长 [Patrick Payton] [1]来对话，（我们不会去市政府找他，我们不做上访户，那是 CCP 国家做的）。
+面对着“潘多拉魔盒”控制下遍布全球的“拜登家族”们，万佛万神的使徒已在三年前为我们披荆斩棘、标明沼泽、开辟道路。他带着雅典娜的希望，为我们祈福。身为战友的我们请相互扶持，将后背交给神使，一往无前的加入这场正邪的终极之战。中文世界在文贵先生和其他坚持不懈做节目揭露真相的战友们的努力下已经聚集了足够多的战友，但是面对全球邪恶力量的总动员，我们的力量还是不够的。因此文贵先生启动“雅典娜的希望”，要用这次的战斗打破中文世界和其他语言世界的孤岛壁垒，尽量将真相传播到全世界，尽快聚集起足够多的各肤色的灭共盟友。请战友们尽其所能的传播真相，因为只有真相才能让邪恶曝露于阳光之下让其无所遁形，只有全人类善意的聚集才能击败这次邪恶的倾巢而出，只有对邪恶力量的狠狠出手才能将恶魔重新击退回地狱，拯救人间。
 
-Midland Mayor’s [1] inversions of right and wrong are absolutely unacceptable. We demand Mayor Patrick Payton to come out and have an open dialogue with us. And “No”, we will not attempt to look for him in the City Hall, as we are not the oppressed petitioners begging for a meet-up. That’d be a thing only belongs to the regime of the CCP.
+100年前，撒旦选择我们这个民族和这片土地作为恶魔的孵化场、邪恶力量的再生容器，这是我们这片土地上的人们抛弃信仰所付出的代价，也是我们刻骨铭心的耻辱。爆料革命的战友们，请勇敢的站出来，不止为了全人类，也是为了我们自己，为了子孙后代，我们勇往无前四面出击，真相和“雅典娜的希望”也必将随着我们的足迹传遍世界。让我们这些受共产恶魔毒害最深的族群做为这场两百多年圣战的先锋，引领全世界各民族、各肤色的真诚善良的人们对共产邪灵做出最狠的第一击。只有这样我们才能洗刷掉我们这个民族百年来被共产邪毒蚀骨销髓的耻辱，只有这样我们这个民族被禁锢的灵魂、被侵蚀的信仰才能获得自由和重生！
 
-3、如果居民有意见，我们真心对不起，但是我们是为了他们的明天不成为现在的中国。
+**更多精彩资讯请关注：**
 
-In case our “Bring the CCP’s Spies to Justice” protests have caused any unintended inconvenience to the local residents, our sincere apologies.
+- 为子孙爱七哥农场官方推特：[https://twitter.com/wzsaqg](https://twitter.com/wzsaqg)
+- 为子孙爱七哥农场官方GTV号：[https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
+- 欢迎加入农场discord官方群：[https://discord.gg/mZG9MtM](https://discord.com/invite/2vXAV6G)
 
-However, with all due respect, we’d like to bring attention to all American people – we are protesting vigorously is because we really would not want America’s tomorrow to degenerate to Communist China’s Today.
-
-咱们华人要从今天开始挺起腰杆
-
-We of Chinese descent, from today onwards, let each of us grow a spine!
-
-@支援德州 感恩所有的你们
-
-Kudos to all the frontline protesters in Texas, our brothers-in-arms!  Thank you all very much!
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27104227/Sara_20201026_figure1.png)图片来源：[https://gtv.org/web/#/UserInfo/5e6753818723ef1f52a55e2f](https://gtv.org/web/#/UserInfo/5e6753818723ef1f52a55e2f)
-参考链接：
-
-[1] [https://www.midlandtexas.gov/238/Mayor-City-Council](https://www.midlandtexas.gov/238/Mayor-City-Council)
-
-翻译：【RD16】图片：【VOG设计组】
-
-战友之家玫瑰园小队出品
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20123101/%E5%86%9C%E5%9C%BA%E5%B9%BF%E5%91%8Av7-3.jpg)
 0

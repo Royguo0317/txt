@@ -1,15 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发！继《纽约邮报》后，第二家媒体《波士顿先驱报》发文支持川普总统连任
-` GM101` [轉載自GNews](https://gnews.org/zh-hans/464100/)
+## 川普总统明确提出乔拜登与“中国共产党”的关系
+` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/468924/)
 
-美东时间10月27号上午，美国《波士顿先驱报》官方发布新闻稿，声明支持川普总统连任。《波士顿先驱报》成立于1846年，是美国最古老的日报之一。在其历史上已获得八项[普利策奖](https://en.wikipedia.org/wiki/Pulitzer_Prize)，其中包括四项社论写作和三项[摄影](https://en.wikipedia.org/wiki/Photography)[奖](https://en.wikipedia.org/wiki/Pulitzer_Prize)。
+喜马拉雅的文雅 （澳洲雅典娜农场）
 
-《波士顿先驱报》认为拜登背后的支持者是伯尼·桑德斯和亚历山大·奥卡西奥·科尔特斯等极左翼党派。而川普总统于2019年将失业率降至3.5％，为50年来最低。另引用CNBC报道，西班牙裔美国人的失业率在2019年9月创下3.9％的历史新低，非洲裔美国人的失业率则保持了有史以来最低的5.5％。
 
-《波士顿先驱报》指出川普总统削减了法规，并在贸易谈判中变得更加严格，川普总统要求中共国对COVID-19的过失负责，并将美国置于贸易，国防，法院以及经济的第一位。
 
-《波士顿先驱报》强调川普总统是美国现在所需要的，采取果断行动，使美国恢复大流行前的实力之关键，所以《波士顿先驱报》支持川普总统连任。
+2020年10 月27日川普总统发推说：“乔拜登是一个腐败的政客。他想把你们的工作送到中国，同时他全家从中国共产党收取了千百万元的好处。如果乔拜登赢了，美国就是中国的了。相反我们（团队）赢了，你们就赢了，威斯康星州（Wisconsin）就赢了，美国就赢了！”
+
+
+
+> Joe Biden is a corrupt politician. He wants to send YOUR jobs to China, while his family rakes in millions from the Chinese Communist Party. If Biden wins, China will OWN the USA. When we win, YOU win, Wisconsin wins, and AMERICA wins! [#VOTE](https://twitter.com/hashtag/VOTE?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Donald J. Trump (@realDonaldTrump) [October 27, 2020](https://twitter.com/realDonaldTrump/status/1321233661765693440?ref_src=twsrc%5Etfw)
+
+
+
+川普总统明確指出乔拜登的腐败、出卖国家利益的罪恶行径来自“中国共产党”（的威胁和控制）这一概念，这完全是受爆料革命的推动把中国共产党和中国、中国人民区分开来，预示着潘多拉盒子即将打开，也再次印证了郭文贵先生早前提出2020美国总统选举不是共和党和民主党之间的竞争，而是共和党和共产党之间的较量和决战。爆料革命再一次成为这次美国大选时，人类文明分水岭正义之战的中坚力量。
 
 0

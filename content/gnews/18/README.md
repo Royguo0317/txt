@@ -1,19 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/10/18 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/463600/)
+## 【热点播报】让子弹飞一会儿
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/466445/)
 
-战友之家图文摘要及多语种组
+**作者：香草山 Ryan 审核 ：悟空**
 
-[267\_English\_1018\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26080335/267_English_1018_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26080335/267_English_1018_CCP_Virus_Updates.pdf)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25214337/WhatsApp-Image-2020-10-24-at-08.09.25-1.jpeg)
 
-[267\_German\_1018\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26080335/267_German_1018_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26080335/267_German_1018_CCP_Virus_Updates.pdf)
 
-[267\_Japanese\_1018\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26080336/267_Japanese_1018_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26080336/267_Japanese_1018_CCP_Virus_Updates.pdf)
 
-[267\_Korean\_1018\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27093856/267_Korean_1018_CCP_Virus_Updates-1.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27093856/267_Korean_1018_CCP_Virus_Updates-1.pdf)
+惊爆15天的信息战已进行几日了，亨特拜登的照片在各大媒体继续发酵，但民众似乎只是从道德上对他的这些行径进行评论。部分看客甚至基于西方一直以来开放的文化，觉得这些是只是彼此心照不宣的成人世界的现状。终其原因，不过是他们还没有看到这背后的作用和目的。
 
-[267\_Spanish\_1018\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26080335/267_Spanish_1018_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26080335/267_Spanish_1018_CCP_Virus_Updates.pdf)
+罗马不是一天建成的，爆料革命也不是三两天的功夫就能有这样的影响力，一切都是在长久的准备和精准的策略配合下完成的。当初郭先生表面不参与美国政治，不为大选站队，但也明确他不会独善其身，任由中共在美国继续勾兑、危害人间的态度。这一招声东击西实在是妙，让敌人放松警惕，也为战友们现在给对方深挖坟墓赢得更多的时间。G系列的开发，尤其 GTV和GNews两个媒体平台的发展是灭共这盘大棋的关键招数之一。以CCTV和广电总局为代表的党媒喉舌，从设立的那一天，就被CCP以商鞅五术的方式愚民大众，并且后来发展到美国各大主流媒体甚至也已经被渗透沦陷。七哥正是看到了这一点，从一开始就坚定自己成立媒体平台，为爆料革命和战友创造影响力，布局意义深远。
 
-0
+已被中共操控的拜登的那些淫乱视频和图片在经过转发曝光后，民众的反应程度已经趋缓。其实要的就是这个效果：放给他本人和其他当事人去看，以达到敲山震虎的效果。让他们知道，当把玩人性的同时也已被中共玩弄于鼓掌之中，自拍者反被偷拍和监控，拜登家族，只是众多傀儡中的一个。任何与红魔勾结的，终将被中共所吞噬。未公诸于世的还涉及到美国的其他政界、商界、艺术界等。CCP的魔爪也已经伸向了世界各地，任何国家有过和中共勾兑、隐藏在阴暗角落的实体和个人，都会是下一个被曝光的对象，三张硬盘，只是冰山一角。
+
+魔鬼，已经丧失了人性中的善的那一部分，只留下了无限的恶，所以它不会幡然悔悟。消灭它最好的办法是让它自己土崩瓦解，这个也是七哥和中共打交道这么久观察总结下来重要的一点。翻看那些不堪入目的相片时，比起语言与特殊部位带来的视觉冲击外，亨特拜登一脸颓败如同枯槁的倦容，是更让世人所惊愕。无论伪装与否，之前网络上有关他的照片还能看得到有意气风发的时候，但在被CCP蓝金黄彻底控制以后，在日夜被毒品淫逸的摧毁下，他脸上满布中共折磨后的痕迹，越来越深。魔鬼的同伴们是不是也该自己照照镜子，看看是否只剩下了骷髅的轮廓？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27164532/Picture6-9-e1603831583767.png)
+狙击手瞄准目标前长时间的待命，击剑选手脚下凌波微步的周旋，平静海面上鲨鱼露出的那一截随身体游动不断变换方向的背鳍；为的都是让敌人没有反抗的可能，最终的那致命一击。精准的时机往往在战斗中比力量更为重要。郭先生待到拜登选举人资格坐实，其代表的勾兑势力无路可退，再出牌；拜登家族那些贪腐资料爆料革命早已掌握，等的，也是这决战前的这一刻。亨特还有哪些视频、未成年的儿童被强奸猥亵图片什么时候放、乔拜登自己勾兑实锤要不要发出，有些问题的答案和决定权我们让其返回到了拜登团队的手里。让他们意识到形势已越来越可怕恐惧，让他们去思考怎样抉择自己已经失败了的未来。
+
+明修栈道、暗渡陈仓我们已经用过，接下来对于中共和它的那些木偶们的对策我们依然还会见招拆招、绝不手软。拜登一众已经朝自己抠动了板机，那么我们就让子弹飞一会儿，让他们也再飞一会儿。一切已经开始，正在上演。
+
+更多资讯请查：[纽约香草山农场](http://纽约香草山农场)Youtube [，喜马拉雅香草山](http://喜马拉雅香草山)推特。
+
+聖經故事背景，免費英語教學，美東時間周一至周四晚上9:00，美國志願者在美東香草山農場Discord群[Richard English](http://Richard%20English)版塊和[chat-room](http://chat-room)您相約！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25225844/WhatsApp-Image-2020-10-24-at-08.09.25-2.jpeg)
+1+

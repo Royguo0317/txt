@@ -1,38 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】古有“火烧圆明园”今有“钱烧美白宫”，古中今美，历史性大逆袭！
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/461639/)
+## 中天红媒换证听证会，战友们勇敢上街媒体争相报导
+` gewsTaiwan` [轉載自GNews](https://gnews.org/zh-hans/464082/)
 
-作者：香草山写作组 Daxia 编辑：文位
+GM40
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25225844/WhatsApp-Image-2020-10-24-at-08.09.25-2.jpeg)
+中天电视台换证听证会昨天登场，场内激辩，场外也热闹无比，上千名中天电视台支持者，在场外不停呼喊“挺中天、反关台”，统促党总裁“白狼”张安乐也现身。另有五十多名反对中天换证的群众，手持“中天＝中共”“陈文茜通共卖台”等标语，站在路口和中天支持者相互较劲、警方在场维持秩序双方没造成冲突。
 
+GM40 與台灣大牛現場報導
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27120031/image0-2-8-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27120053/image2-10-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27120102/image1-24.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27120051/image0-4-2.jpg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27054503/%E5%9B%BE%E7%89%8734-1.png)
-据《路德社》10月25日早间于美东报道：
-在亨特电脑里记载了一段精彩视频，在白宫椭圆形办公室内，亨利双手前抱的高姿态，和时任总统奥巴马低头在玩弄领带卑恭屈膝的精彩画面，瞬间击破诸多恶魔之网，掀起惊涛巨浪！
-
-其实前副总统乔拜登才是被中共操控下的＂西方世界巨魔＂，自他从政47年以来，其身边的幕僚与幕后中共势力，巨网早已铺设。照片暗示，乔·拜登与其子亨特·拜登，互相联手，瓜分来自中共国的10亿美金，迫使时任总统奥巴马乖乖就范（包括默许中共国在南海岛礁的军事部署），而奥巴马仅得到10亿美元的零头。由于魔性使然，相互不信任为基础，即使父子，也不例外，乔·拜登录下其子与奥巴马交谈的视频，以驾凌其子亨特与奥巴马以及整个白宫之上，可任由自己与中共邪恶勾兑。然亨特又暗中从乔·拜登处拷贝了视频，中共也得到了此视频，至此中共牢牢抓住美国黑政把柄，欲达到控制西方政坛、独霸天下的目的！
-
-美国大选在即，这是关乎地球人类存亡的大选，这是善与恶、正与邪的终极之战！真相已逐渐大白天下，坚信有信仰的美国人民会给出手中正义的最神圣的一票！
-
-此时耳旁响起嘹亮的歌声，＂起来，起来，被欺骗了全世界的人们，擦亮了双眼觉醒，除魔，除魔＂…
-
-群魔乱舞的时代即将终结！重振雄风，让美国再次伟大！
-
-点击以下更多详情👇🏻
-
-[https://youtu.be/EuG9hF0–Io](https://youtu.be/EuG9hF0--Io)
-
-
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
