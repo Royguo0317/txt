@@ -1,29 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每小时更新‼️独家重磅! 照片里和亨特·拜登一起的是谁?
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/474058/)
+## 路德再爆猛料：中共特务傅希秋与拜登勾结证据出现在硬盘里
+` pmzy-vog` [轉載自GNews](https://gnews.org/zh-hans/474495/)
 
-如果该照片给您造成了严重的不适，我们深表歉意！但是正是为了匡扶正义，我们新中国联邦人才将此图片公布于众。因为共产党的朋友就是我们的敌人。
+作者：文章
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28052638/1222.png)
+美东时间2020年10月27日 路德时评节目中，路德展示了一封刚刚从硬盘里拍下的一张邮件照片，照片显示是吉-拜登（乔-拜登的弟弟）发给罗伯特-拜登（亨特-拜登的化名）的一封邮件，里面转发了2017年10月24日一个显示叫bob fu发来（路德确认就是傅希秋的化名）的文件。
 
-任何人偷盗中国人的钱，我们绝不答应！
-任何人奴役中国人，我们绝不答应！
-任何人玩弄中国人的子女，我们绝不答应！
+邮件中傅希秋问吉-拜登：“这篇报道出来以后会是什么情况？”
 
-这些图片仅展示了中国共产党蓝金黄计划（BGY）中重要内容的冰山一角。他们利用那些所有贪婪中国财富的西方政客，名人及其家人，通过掌握并录制他们与女性和毒品相关的视频进行威胁，迫使他们出卖自己的国家和人民，甚至出卖其本国的国家安全来配合中国共产党统治世界。
+这是一篇什么报道？这是一篇抹黑郭文贵先生的报道，《华尔街日报》把它发给了傅希秋。傅希秋马上又把它发给了吉-拜登，吉=拜登把它转发给了亨特-拜登。这层关系链代表了什么？
 
-美国总统候选人乔·拜登绝对是被共产党百分之百控制，蓝金黄最成功的美国政客之一。他也是共产党搞弱，搞乱，搞死美国的3F重要计划之一！
+**谁付钱给华尔街日报去攻击郭文贵先生？中间傅希秋转手，这是一条什么关系链？吉-拜登为什么又发给了亨特-拜登？**
 
-中国共产党用此手段威胁拜登父子，并且对他们进行大量的财富贿赂，这就是造成在中国南海以及中美之间的贸易争端，知识产权，能源价格等问题，以及拜登向中共提供大量的CIA在中国的情报人员的重要原因之一。  中国共产党在美国及欧洲多个西方国家都存在这样的的蓝金黄计划。我们将会有数以百万计的视频和相关政府官员，腐败者，卖国者，与共产党勾兑欲统治世界的犯罪者的照片放出来。
+为什么华尔街日报要写这篇东西要转给这几个人，最后又到亨特-拜登这里？为什么当时中间要签一个3000万美元的资金顾问服务，通过大卫鲍易斯的律师事务所给了亨特-拜登？ 大卫鲍易斯又是郭文贵先生当时请的律师，现在这个律师事务所早已永久停业了。
 
-不论你来自哪个国家，哪个民族，什么肤色，哪个党派，下一个被虐待的可能就是你的女儿，你的妻子，你的姐妹；所以在消灭中国共产党问题上没有任何党派民族国界之分。
+路德爆料:中共要对付郭文贵先生，除了花大价钱买通共和党和民主党的一些人士，还有民主党控制的媒体像纽约时报、华尔街日报、CNN等等一系列媒体，这些事情都要运作。靠谁？就是傅希秋。
 
-**您申明，您已年满18周岁或在您访问以下照片的司法管辖区已达到成人年龄，并完全有能力和资格签订本服务条款中规定的条款、条件、义务、申明、陈述和保证，并遵守和履行本服务条款。如果您未满18岁或法定成年年龄，请不要观看以下的任何内容**
+**这封邮件表明傅希秋表面跟共和党站在一起，实际上跟亨特-拜登是一伙的。**
 
-# **持续更新中!!！**
+抹黑郭文贵先生的这篇报道首先发给了傅希秋，傅希秋又发给了吉-拜登，吉拜登把它转发给了亨特-拜登。这里面说明了什么？这就是表明拜登家族已经替中共做了事情，现在要收钱了。这篇文章要值多少钱呢？这封邮件说明傅希秋就是中共在美国关于媒体蓝金黄运作的一个关键联络人。这个律师事务所就是一个洗钱平台。
 
-## **最新照片**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28030808/Hunter-biden-9.jpeg)
+路德强调：清干沼泽不只是美国，中共在美国的特务也必须清干！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27220425/fd16a030-1283-4fb1-9be5-0acc4f1dd634.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28031407/4bf3e710350544c1e396f7c5c6d03e90.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28012305/hunter-biden-8.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27230932/h1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27231039/h2.jpeg)![This image has an empty alt attribute; its file name is Hunter-Biden-7.jpeg]()![This image has an empty alt attribute; its file name is Hunter-Biden-7.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27181702/Hunter-Biden-7.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27111340/22-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27102026/IMG_4207.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27090421/Image-1-1-1.jpg)![This image has an empty alt attribute; its file name is Image-1-1.jpg]()![This image has an empty alt attribute; its file name is Image-1-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27075100/Image-1-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27064242/11-12.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27053346/hunter-biden-5.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27043034/Hunter-Biden-4.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27043029/Hunter-Biden2-2.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27200058/1-212.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26122300/ec7f2e80273998ee.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26122241/38b4f2d0334fc03d.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26073102/Hunter-Biden3-1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26073100/Hunter-Biden2-1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26073057/Hunter-Biden1-1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26040306/Hunter-Biden-2.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26040802/23542efe00392b1b.jpeg)![](https://api.parler.com/l/rVc5h)![](https://api.parler.com/l/M5B1a)![](https://api.parler.com/l/lQs8e)![](https://api.parler.com/l/0UQE5)![This image has an empty alt attribute; its file name is Hunter-Biden.jpeg]()![This image has an empty alt attribute; its file name is Hunter-Biden.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25185608/Hunter-Biden.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25144743/06fbff5630aebc17c5a14d4deb34b8de.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25133712/a802cfd786b5722bb11275ba28704301-1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25110043/4db08a2ce6b4cb317af8da1680d12997.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25092417/Hunter-Biden20.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25075456/Hunter-Biden19.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063723/Hunter-Biden18.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063310/Hunter-Biden17.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063308/Hunter-Biden16.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063306/Hunter-Biden15.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063303/Hunter-Biden14.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063300/Hunter-Biden13.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063257/Hunter-Biden12.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063254/Hunter-Biden11.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063251/Hunter-Biden10.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063236/Hunter-Biden6.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063244/Hunter-Biden8.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063247/Hunter-Biden9.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063241/Hunter-Biden7.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063220/Hunter-Biden2.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063234/Hunter-Biden5.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063230/Hunter-Biden4.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063215/Hunter-Biden1.jpeg)Who is in this photo with Biden?![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063226/Hunter-Biden3.jpeg)
+路德说以前有个袁建斌的伪类，曾号称自己是傅希秋半夜打电话给希拉里，叫人帮助弄到美国来的。这如果属实的话，说明傅希秋和希拉里关系很好。那是谁又可以让希拉里做到半夜接傅希秋的电话呢？如果是亨特-拜登让乔-拜登出面，一切都解释的通了！
+
+谁有能指挥亨特-拜登和乔-拜登呢？一定是中共啊！傅希秋是中共的间谍，与拜登联系的证据已经查出来了。未来所有在硬盘中出现、与拜登有过联系的中共间谍，也一定会一一被揭露出来。
+
 0
