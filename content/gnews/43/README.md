@@ -1,18 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德 Parler：拜登竞选团队内部成员爆料“拜登的竞选结束了”！美国人该醒醒了！
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/468801/)
+## 『热点播报』中共利用国有企业在榨干14亿同胞的最后一滴血汗
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/469688/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27194817/Lude_20201027_parler_Biden_campaign_insider-figure1.png)图片来源：[https://share.par.pw/post/d494b945e54449a49d91fd3ac3d227c1](https://share.par.pw/post/d494b945e54449a49d91fd3ac3d227c1)
-2020年10月27日，路德在 Parler 上转帖一位自称是来自拜登竞选团队的内部成员的爆料：“没有人谈论这个事情，但从他们的脸上可以看到答案。拜登的竞选结束了。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27194728/Lude_20201027_parler_Biden_campaign_insider-figure3.png)圖片來源：[https://ifunny.co/picture/anonymous-id-ciao70fk-biden-campaign-insider-here-no-284710210-nobody-cCeKOMZ58](https://ifunny.co/picture/anonymous-id-ciao70fk-biden-campaign-insider-here-no-284710210-nobody-cCeKOMZ58)
-【译文】拜登竞选团队内部成员发的信息：“没有人谈论这个事情，但从他们的脸上可以看到答案。拜登的竞选结束了。我为曾经给拜登助选而感到耻辱，有这种感觉的还有其他人。有几个竞选团队的成员和义工在过去几天都没有来工作，这里就像鬼城一样。我发完了这个信息也会离开，永远都不会再回来。拜登本人腐败，他的家族有很严重的问题。拜登不会赢得选举。我们打了很多电话，也登门拜访，很多人都让我们马上就滚。大部分人都会听我们说上几秒，然后说他们不感兴趣，而且他们说话的语气就是他们永远不会投票给拜登的。所有的事情都很奇怪，我已经从事竞选事业超过了10年了，从来没有遇到过人们这样的反应。我知道大家都想听到来源可靠的消息，所以我希望在我离开之前，至少可以帮一点忙揭发所有的谎言。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27194654/Lude_20201027_parler_Biden_campaign_insider-photo.png)图片编辑自：[https://youtu.be/SzOJLJPMh7E](https://youtu.be/SzOJLJPMh7E)
-【编者评论】有很多移民来到美国这个基督建国的国家，因着热爱这里人民的淳朴、正直、坚持正义和信仰，因为热爱这个国家司法的公正、政治的透明、公平的竞争和自由；更因为痛恨中共国深入骨髓的腐败和对自己人民的极端残暴。可是让我们看看这几十、十几年来美国变成了什么？现在美国的腐败已经和中共国如出一辙，然而更隐蔽和道貌岸然，也因此对美国善良民众更有欺骗性。感谢郭文贵先生引领的爆料革命，由班农先生、朱利安尼市长、川普总统等强大的美国和世界正义力量的支持，使美国人民又有了希望。让我们祈祷善良美国人民的觉醒，在总统选举中投出公正的一票！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25225844/WhatsApp-Image-2020-10-24-at-08.09.25-2.jpeg)
+作者：香草山写作组 程万里 审核：浪迹天涯
 
-翻译：【相机过热啊】新闻撰写 & 编辑：【Isaiah4031】
+国有企业，国有实质就是党有，党有就是那几个家族有。国有企业基本都属于资源型企业，资源型企业最大的特点不是怎么利用资源，而是怎样获取资源，获取资源的方式就是垄断。政权保证国企垄断，国企又能源源不断的提供财富保证政权的延续性，这就是国有企业的本质，中共眼中的共和国长子。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27232150/WhatsApp-Image-2020-10-28-at-10.17.41.jpeg)
+根据台风调查的报告，我们可以简单的把国企分为金融企业和实体企业，实体企业在墙内疯狂搜刮财富，通过组建金融公司，把钱合法转移到金融企业，在通过金融企业把财富洗出去用于贪腐勾兑和蓝金黄。或者两种公司相互勾结，把账目做的琳琅满目，眼花缭乱，让人分不清，看不明白，掩盖其非法邪恶的勾当。如嘉实基金的主要股东之一是一家名为中 诚信托有限责任公（“CCT“或“中诚信托“）的金融公司。 中诚信托（CCT）是一家由省级和国家级煤炭和矿业公司 等组成的集团所拥有的非存款性金融公司。其中的国企股 东都是大企业，包括中煤集团、中国人保、中国五矿等， 都是实力雄厚的国资委直属企业。这种模式就是央企参与，其他合伙人是其他国企或与国家相关联的实体。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27232238/10282.png)
+这些国企就是榨干14亿同胞的机器，只要你还活着，他们就会通过水电气，柴米油，你生活的方方面面，不断的榨干你的血汗，他们不是在创造价值，而是吸血鬼，趴在肉体上不断的吸食，不断的给盗国贼输血续命，这也就是为什么我们的周边一切都在涨价，而国企总是在增长但总是亏损的原因。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27232312/WhatsApp-Image-2020-10-28-at-10.17.48.jpeg)
+而这种方式已经开始在美国发生，如facebook，推特等，如果没有爆料革命，那些吸血鬼企业也会在不久的将来榨干美国人最后一滴血汗。
 
-战友之家玫瑰园小队出品
-
-2+
+0
