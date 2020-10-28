@@ -1,28 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 光鲜的背后，是同样的邪恶
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/474463/)
+## 【世界多语言图文】2020/10/19 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/493701/)
 
-上进哥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28051754/Capture-150.png)
-![]()
-当读者初看到这张照片，一定会觉得拜登这家子还不错，儿孙满堂，笑容满是。可是随着三块硬盘的曝光，拜登家族的隐藏的罪恶被公布与众：吸毒、性虐儿童、乱伦、滥权、叛国，巨量贪污。这些都在释放出来的亨特拜登色情照、短信、电子邮件中得到了验证！
+战友之家图文摘要及多语种组
 
-这是怎么的一个人，他还能称之为人类吗？那张亨特拜登和两位未成年少女的照片的性照，如果真的是拜登自己的女儿和奥巴马的女儿，美国人该如何面对他们自己选出来、领导了这个国家近八年的正副总统？我们又该如何面对父亲对于女儿的性行为？那本来应该是人类性道德的一条底线，跨越了这条底线，那还有什么邪恶的事情做不出来？奥巴马果然不是Big guy, 如果稍微有父亲的良知，肯定不会接受自己的小女儿被一个大叔性虐。正常人只能想到一个理由，他被控制了，也许女儿只是一个他交换权力的工具⋯⋯
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28052232/Capture-152.png)
-无独有偶，在相距数万公里的某个神奇的国度，也有着同样光鲜亮丽的第二家庭。父亲廉洁、公正、无儿无女。为了辅佐习老大日理万机，带着自己的人马冲在反腐、金融、抗疫的第一线；美名远播！此人名叫王歧山！
+[268\_English\_1019\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28094458/268_English_1019_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28094458/268_English_1019_CCP_Virus_Updates.pdf)
 
-可是自从郭文贵二〇一七年开始爆料中共，及至寻求海航集团董事长王键在法国被自杀之真相时，我们才看到那张伪善背后的画皮，那是如此的邪恶，如此的歹毒！以至我们不得不相信，魔鬼就在人间，就在我们的身边，不在神异故事里！
+[268\_German\_1019\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28094459/268_German_1019_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28094459/268_German_1019_CCP_Virus_Updates.pdf)
 
-中共就是魔鬼的尸乐园，它们利用人性的弱点，已经把世界的恶都连在了一起，那些被魔鬼诱惑的人类，如同一个个牵线木偶，听任着中共的摆布！
+[268\_Japanese\_1019\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28094500/268_Japanese_1019_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28094500/268_Japanese_1019_CCP_Virus_Updates.pdf)
 
-和王副主席的恶比起来，作为前任副总统的乔拜登真是小巫见大巫，王副主席的名言是搞几个娘们搞几吨钱，算什么腐败，政治错误才叫腐败！
+[268\_Korean\_1019\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28094501/268_Korean_1019_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28094501/268_Korean_1019_CCP_Virus_Updates.pdf)
 
-可见，天下做恶之人共同的特点是：肆无忌惮，无所畏惧！而要对付铲除他们，就得剐骨疗伤，置之死地而后生！所以川爷，朱尼安尼，班农应时势而生，救美国！所以文贵先生及爆料革命，聚众英才，救中国！
+[268\_Spanish\_1019\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28094456/268_Spanish_1019_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28094456/268_Spanish_1019_CCP_Virus_Updates.pdf)
 
-大决战已初战告捷
 
-恶将尽除矣！
 
 0
