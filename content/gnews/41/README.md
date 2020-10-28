@@ -1,44 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 决不能让明天的美国变为今天的中共国
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/463902/)
+## 中共政权的那些对外蓝金黄 &#8220;统战&#8221;机构
+` VOH欧洲战友团` [轉載自GNews](https://gnews.org/zh-hans/464390/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27104150/Sara_20201026_photo2.png)图片来源：VOG 设计组
-战友之家创始人 Sara 女士近日在社交媒体上强调在德州进行“惩贼”傅希秋的三个原因，并向在第一线的“惩贼”抗议的战友们致以敬意。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27020200/Sara_20201026_figure2.png)
-我们华人要完全抛开根深蒂固的多一事不如少一事的观念，我们站在德州米德兰的理由：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27131206/g20.jpg)
+撰稿: BoLu文龍 图片: 阿喵
 
-We of Chinese descent, really should eradicate the deep-rooted notion that “Don’t be bothered by other’s trouble so long as it has not affected myself for the time being”. The reasons that many of us have stepped forward in protesting Bob Fu in the city of Midland, TX are:
+共产党政权从建国伊始,便开始着手建立以”统战”为掩护的蓝金黄机构部门。所谓的”统一战线”其实就是今日一尊习近平的所谓”人类命运共同体”一样。就是用金钱/美女/利益为诱饵, 采取威逼利诱, 贿赂加控制的双重黑社会手段。对世界各国政商要人进行腐蚀拉拢和把柄收集,最终达到”不战而屈人之兵”的目的。以用最少的时间和经济成本, 达到控制一国政要, 方便控制该国命脉。最终灌输并推行邪恶共产价值观,统治全世界的战略目的。那这些部门具体都有哪些呢? 我们大致罗列一下:
 
-1、必须彻底调查 Bob Fu 傅希秋，不能让 CCP 特务祸害美国。
+1. 首当其冲当然是中共政权驻各国的海外使馆/领事馆了。大使馆通常设在一国首都,领事馆设在重要城市,级别不同但都肩负着收集整理目标人物资料信息的功能, 也因此成为间谍的任务指挥中心和藏身之所。
 
-It is imperative for us to raise the U.S. government’s awareness in order to launch an immediate and full investigation on Bob Fu (aka, Xiqiu Fu or 傅希秋). We shall not allow any CCP spies to continue to harm the U.S.  anymore.
+2. 外交部 （MOFA） 是政府部门负责的中华人民共和国的对外关系，并由国务院管理, 可以说是官方的蓝金黄大本营.历任外交部长里面, 杨洁篪显然是佼佼者, 他竟然发展了几任美国总统成为中共的傀儡和线人!
 
-2、绝对不能黑白颠倒，必须让市长 [Patrick Payton] [1]来对话，（我们不会去市政府找他，我们不做上访户，那是 CCP 国家做的）。
+3. 中共中央统战部（United Front）是中共用来推进其核心利益的组织，其目的是为了拉拢可能威胁自身利益的组织。目标可以包括海外华人社区、政府官员、教育机构和任何被认为有影响力的个人，如林俊良、BULGER、阿彻、亨特拜登、甚至乔拜登和奥巴马。
 
-Midland Mayor’s [1] inversions of right and wrong are absolutely unacceptable. We demand Mayor Patrick Payton to come out and have an open dialogue with us. And “No”, we will not attempt to look for him in the City Hall, as we are not the oppressed petitioners begging for a meet-up. That’d be a thing only belongs to the regime of the CCP.
+4. 中国人民外交学会 （CPIFA）: 隶属于外交部.冠冕堂皇的宗旨是增进中国人民与世界人民之间的相互了解和友谊, 其实也是在不同层面渗透的”统战”机构。
 
-3、如果居民有意见，我们真心对不起，但是我们是为了他们的明天不成为现在的中国。
+5. 中国国际友好联络协会 （CAIFC）: 中央军委政治工作联络部领导的统一战线组织，主要从事情报收集工作。这个部门的目的是收集”外国敌对势力”并对其进行打击和瓦解。
 
-In case our “Bring the CCP’s Spies to Justice” protests have caused any unintended inconvenience to the local residents, our sincere apologies.
-
-However, with all due respect, we’d like to bring attention to all American people – we are protesting vigorously is because we really would not want America’s tomorrow to degenerate to Communist China’s Today.
-
-咱们华人要从今天开始挺起腰杆
-
-We of Chinese descent, from today onwards, let each of us grow a spine!
-
-@支援德州 感恩所有的你们
-
-Kudos to all the frontline protesters in Texas, our brothers-in-arms!  Thank you all very much!
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27104227/Sara_20201026_figure1.png)图片来源：[https://gtv.org/web/#/UserInfo/5e6753818723ef1f52a55e2f](https://gtv.org/web/#/UserInfo/5e6753818723ef1f52a55e2f)
-参考链接：
-
-[1] [https://www.midlandtexas.gov/238/Mayor-City-Council](https://www.midlandtexas.gov/238/Mayor-City-Council)
-
-翻译：【RD16】图片：【VOG设计组】
-
-战友之家玫瑰园小队出品
+6. 中国国际贸易促进委员会 （CCPIT）简称贸促会, 外表上是组织各行业贸易展览会和活动，但实际上其主要目的是游说海外商人，让他们觉得对中国的贸易禁运有损其自身利益，是获得情报和增强中共影响力活动的渠道, 更是蓝金黄的主要实施机构之一。上述这些中共”统战”机构和部门要么直接负责中共的对外关系，要么充当中共宣传的代理人，并试图营造一个有利于中共政策的话语环境, 统战手段方式则无所不用其极, 最终目的是通过在适当的地方培养足够多的所在国政商要人，使中共能够最大化的利用这些人的话语权和影响力来进行有利于中共政权和统治的吹捧认可, 或者辩解和辩论。在拜登家族与中共的勾兑时间线上, 处处可见这些机构部门的身影。只要被他们盯上, 也就等于一脚踏进了魔鬼的客厅, 命运不可逆转….
 
 0

@@ -1,28 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 评论：史蒂夫·班农和GTV将是拯救西方文明的力量
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/467854/)
+## Hunter Biden&#8217;s Partnership with China Revealed – An Investigation by TYPHOON INVESTIGATIONS
+` VOH欧洲战友团` [轉載自GNews](https://gnews.org/zh-hans/469061/)
 
-喜马拉雅联盟加拿大农场 小先生
-校对 文锦 上传 WJ
-
-当亨特·拜登（的电脑门事件对全世界带来的震撼稍有降温之时，美国开始面对20年来共和国制度被“控制”衰败的后果，并开始慎思马克思主义对美国制度的渗透，将美国公民自由权利交给那些寻求权利的恶魔。许多已在自由边缘的国家例如香港都在目睹美国落入民主党的共产主义计划，很多国家的自由斗士都意识到：“如果美国陷落，他们将面临的是死亡。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27170915/T6U2HOXCUVAIZHDZOKOS54UZZM.jpg)
-班农先生在全球不断地传递着民主与自由的权力并激励着人们对精神和生活自由的向往。班农先生和郭文贵先生建立了GTV，并与其创立的Warroom一起致力于自由运动。郭文贵先生掌握有美国政府官员、媒体和科技公司巨鳄的丑闻、甚至犯罪资料，二人在本月开始了对他们的强有力的反击。例如亨特·拜登的电脑门事件和对美国媒体和大型科技公司开始了严格的审查制度。这让美国人了解了其所重视的传统文化和价值观已彻底被颠覆。老百姓曾经拥有的政服务已渐渐失去，美国公民的权利几乎荡然无存！只因中国共产党对其渗透并试图剥夺美国老百姓的民主与自由的权利！
-
-评论：
-
-1. 我是一名中国人，很多西方人对东方人热衷于储蓄感到不可思议！以至于小偷会在世界各地专门偷亚洲人，而不会清楚中国人生活在共产主义国家没有免费医疗、养老教育…有的只是为了生存苦苦挣扎，中共蓝金黄拜登、奥巴马还有欧洲国家政要。拜登出卖六十多名CIA的中国情报线人，导致36人直接被枪决，而他从中共获取了几千亿美元利益！这是美国超过水门事件的最严重的政治犯罪！爆料革命在唤醒世界！中共病毒杀死了全世界超过一百万人，美国却还没有追究杀死二十多万美国人的中共病毒是超限战生物武器的罪责！川普总统清空沼泽，是在拯救美国更是拯救人类的未来！
+Written by: 大賢 Editor: 莫黎
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27205627/IMG_2912.jpg)
+/GETTY IMAGES
 
 
-1. 如果我正在竞选国家公职岗位，而我15岁的女儿的手机上有她裸体在床与妓女们吸食毒品自拍照…我认为我第一反应是立即退出竞选并回家教导我的孩子。但，事实并非如此。亨特·拜登你今年50岁，很显然通过出售与在位副总统父亲接触的机会中获取了天价利润而他的父亲也将此视为行动的一部分。现在不幸的是，整个家族拼命地确保他们的痴呆父亲继续参加竞选，以便家族生意可以继续下去。我不晓得他们是如何为这种犯罪行为找借口，更不用讲那些违背伦理道德的行为了。这就是50岁的亨特·拜登为15岁的孩子找的借口。
+
+Recently, the Typhoon Investigations research firm published a report about the secret cooperation between the Biden family and the Chinese government. It disclosed a detailed narration of important events and interactions which took place during meetings between Hunter Biden and Chinese tycoons, step by step unveiling the colossal conspiracy that was hidden behind.
+
+According to the report, Joe Biden’s son Hunter Biden had multiple deals made with China since 2012, yet two years before he was already paying hasty visits to some of China’s most dominant state financial institutions, presenting himself as the second son of the Vice President of the U.S. In 2011, the year after his visit to China, Hunter went through the same procedure with the leading Taiwan banks and financial institutions. These visits above played a significant role in the political bribery of the Biden family. By 2012, Hunter Biden and his associates have already established a close relation with the Chinese government and its key financial institutions. According to the report, Hunter had established a direct line to China’s Politburo.
+
+During several meetings in 2010, Hunter familiarized with the head stakeholders of Bohai Capital. Later, when Bohai Capital was looking for a new investment partner, Hunter then arranged a short meeting between his father Joe Biden, and the CEO of Bohai Capital – Jonathan Li. Afterwards, in 2017 Hunter purchased 10% of Bohai Harvest RST (BHR) and became the director of the company. Therefore, Hunter and Bohai Capital are BHR:s investors.
+
+However, it indicates a serious problem. Bohai Capital is a state-owned enterprise (SOE) and it has funds derived from national level SOE financials, such as Bank of China and National Social Security. Consequently, any partnership with a SOE is supported by the State and interconnected with the Chinese government. Briefly said, Hunter was actually cooperating with the Chinese government. As stated by the report, “the Chinese government-funded a business that it co-owned along with the son of a sitting US vice president and Secretary of State who was with a high probability directly or indirectly invested in the holding company.”
+
+And why did Hunter join the partnership? The answer was given in the report:
+
+“There is no apparent reason for Hunter’s participation in the BHR partnership other than political payoff and influence. Virtually all financial investors or partners are state policy entities, state-owned entities, or only nominally private.”
+
+The money, which the Chinese state paid to the Biden family for bribery, was transferred with help from Chinese major SOEs and Bohai Capital, here is a chart from the report:
 
 
-3. 乔·拜登是美国的叛徒，他完全出卖了自己的国家来获得私利。他在职责所在的事情上都失败了，因为他对他的工作毫无兴趣。而他的财富与权力才是他完全在乎的…..他的家庭非常腐败。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27210315/IMG_2909.jpg)
 
-参考链接：
 
-[史蒂夫·班农（Steve Bannon）和GTV将成为拯救西方文明的明灯](https://gnews.org/zh-hans/463967/)
+Besides this, Hunter had other numerous deals with China, in which many other SOEs are involved. But when Joe Biden was asked about Hunter’s deals, he denied being aware of anything regarding his son’s overseas business, despite the contradicting fact.
 
-2+
+
+
+
+
+Source: INTELLIGENCE REPORT
+
+[https://www.baldingsworld.com/wp-content/uploads/2020/10/KVBJHB.pdf](https://www.baldingsworld.com/wp-content/uploads/2020/10/KVBJHB.pdf)
+
+
+
+1+

@@ -1,82 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 罪恶的财务崛起 &#8211; 拜登
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/464386/)
+## 【热点播报】让子弹飞一会儿
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/466445/)
 
-编辑：文w、天使
+**作者：香草山 Ryan 审核 ：悟空**
 
-拜登家族的财务崛起，揭示了这个家族非正常的飞速发展进程，这与海南航空公司的飞速发展进程如此相似，非正常规律或逻辑的事情，背后一定是妖。以下列举拜登家族与CCP、乌克兰等勾兑的重要事件，也许可以更清晰的展现拜登家族与CCP狼狈为奸盗取中国和乌克兰人民的钱财，践踏美国宪法的罪恶。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25214337/WhatsApp-Image-2020-10-24-at-08.09.25-1.jpeg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27131620/1-270.png)
 
-2010年4月7 – 9日
 
-亨特·拜登 北京，Thornton 林俊良 Bulger, 国有金融机构会面
+惊爆15天的信息战已进行几日了，亨特拜登的照片在各大媒体继续发酵，但民众似乎只是从道德上对他的这些行径进行评论。部分看客甚至基于西方一直以来开放的文化，觉得这些是只是彼此心照不宣的成人世界的现状。终其原因，不过是他们还没有看到这背后的作用和目的。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27131412/2-128.png)中国投资有限责任公司2010年4月8日
+罗马不是一天建成的，爆料革命也不是三两天的功夫就能有这样的影响力，一切都是在长久的准备和精准的策略配合下完成的。当初郭先生表面不参与美国政治，不为大选站队，但也明确他不会独善其身，任由中共在美国继续勾兑、危害人间的态度。这一招声东击西实在是妙，让敌人放松警惕，也为战友们现在给对方深挖坟墓赢得更多的时间。G系列的开发，尤其 GTV和GNews两个媒体平台的发展是灭共这盘大棋的关键招数之一。以CCTV和广电总局为代表的党媒喉舌，从设立的那一天，就被CCP以商鞅五术的方式愚民大众，并且后来发展到美国各大主流媒体甚至也已经被渗透沦陷。七哥正是看到了这一点，从一开始就坚定自己成立媒体平台，为爆料革命和战友创造影响力，布局意义深远。
 
-2010年4月12 -13日
+已被中共操控的拜登的那些淫乱视频和图片在经过转发曝光后，民众的反应程度已经趋缓。其实要的就是这个效果：放给他本人和其他当事人去看，以达到敲山震虎的效果。让他们知道，当把玩人性的同时也已被中共玩弄于鼓掌之中，自拍者反被偷拍和监控，拜登家族，只是众多傀儡中的一个。任何与红魔勾结的，终将被中共所吞噬。未公诸于世的还涉及到美国的其他政界、商界、艺术界等。CCP的魔爪也已经伸向了世界各地，任何国家有过和中共勾兑、隐藏在阴暗角落的实体和个人，都会是下一个被曝光的对象，三张硬盘，只是冰山一角。
 
-乔·拜登和中国国家主席胡锦涛参加华盛顿核安全峰会
+魔鬼，已经丧失了人性中的善的那一部分，只留下了无限的恶，所以它不会幡然悔悟。消灭它最好的办法是让它自己土崩瓦解，这个也是七哥和中共打交道这么久观察总结下来重要的一点。翻看那些不堪入目的相片时，比起语言与特殊部位带来的视觉冲击外，亨特拜登一脸颓败如同枯槁的倦容，是更让世人所惊愕。无论伪装与否，之前网络上有关他的照片还能看得到有意气风发的时候，但在被CCP蓝金黄彻底控制以后，在日夜被毒品淫逸的摧毁下，他脸上满布中共折磨后的痕迹，越来越深。魔鬼的同伴们是不是也该自己照照镜子，看看是否只剩下了骷髅的轮廓？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27164532/Picture6-9-e1603831583767.png)
+狙击手瞄准目标前长时间的待命，击剑选手脚下凌波微步的周旋，平静海面上鲨鱼露出的那一截随身体游动不断变换方向的背鳍；为的都是让敌人没有反抗的可能，最终的那致命一击。精准的时机往往在战斗中比力量更为重要。郭先生待到拜登选举人资格坐实，其代表的勾兑势力无路可退，再出牌；拜登家族那些贪腐资料爆料革命早已掌握，等的，也是这决战前的这一刻。亨特还有哪些视频、未成年的儿童被强奸猥亵图片什么时候放、乔拜登自己勾兑实锤要不要发出，有些问题的答案和决定权我们让其返回到了拜登团队的手里。让他们意识到形势已越来越可怕恐惧，让他们去思考怎样抉择自己已经失败了的未来。
 
-2011年4月18 – 20日 （亨特离开台湾后访问中国至4月22日）
+明修栈道、暗渡陈仓我们已经用过，接下来对于中共和它的那些木偶们的对策我们依然还会见招拆招、绝不手软。拜登一众已经朝自己抠动了板机，那么我们就让子弹飞一会儿，让他们也再飞一会儿。一切已经开始，正在上演。
 
-亨特·拜登与桑顿董事长Bulger和首席执行官林俊良，台湾的主要银行和金融机构，
+更多资讯请查：[纽约香草山农场](http://纽约香草山农场)Youtube [，喜马拉雅香草山](http://喜马拉雅香草山)推特。
 
-亨特成为Rosemont Realty高级顾问，2010年收购BGK公司
-
-2012年2月17日
-
-乔·拜登和习近平（副主席）， 加州（2011年到2012年会见时间共计）25小时，探讨美国电影公司在中国市场的准入问题
-
-2012年2月19日
-
-亨特Seneca Global Advisors 环球顾问公司, 代表美国巨点能源技术初创公司Great Point与万向集团就4.2亿美元的股权投资和12.5亿美元的项目融资进行洽谈。当年外国风险投资资金进入美国的最大一笔投资。
-
-2012年，纽约， Devon Archert与渤海产业基金的李祥生Joanthan Li
-
-亨特·拜登是Orient Capital Research东方资本研究高管，2010年曾与渤海产业基金主要利益者多次会面, 与杨洁篪结交
-
-2013年 6月11日， 林俊良与渤海产业基金高管会面
-
-6月13 – 14日 亨特，布尔格，林俊良和阿彻 上海会面
-
-6月15日，亨特在北京
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27131420/3-80.png)2013年渤海华美签署协议
-
-2013年12月4日，乔·拜登访华，会见渤海华美首席执行官李祥生，亨特·拜登陪同乌克兰总统维克托-亚努科维奇中国正式访问，签署了许多促进双方贸易和投资的商业交易（渤海商品交易所，渤海产业投资基金管理有公司）
-
-2013年12月16日，乔·拜登和亨特·拜登，上海自贸区，注册渤海华美（上海）股权投资基金管理有限公司（BHR）。
-
-2014年5月7日到8日，根据FOIA记录，亨特第5次访华，原因未公开。
-
-2015年11月16日的一个存档版本中亨特·拜登被列为董事之一。是Rosement Seneca合伙企业(Rosement Seneca Partners)的管理合伙人及Boies Schiller Flexner LPP律师事务所 (Boies Schiller律师事务所) 的法律顾问。
-
-2017年10月23日，亨特拜登收购渤海华美 10%的股份(通过他的投资实体Skaneateles LLC，并担任董事至2020年4月20日。 此前他是通过其他控股公司进行投资。 经过不到2年的拆分，HEINZ出局。2019年10月13日的声明中，亨特拜登是 Boies Schiller律师事务所的法律顾问，并为与乌克兰有关的Burisma能源公司Burisma Holdings Limited改制等举措提供建议。中国私募基金的有关网站上有亨特的中文名字。
-
-自此拜登家族的财富迅速暴增，开始与中共和乌克兰利益捆绑争斗的罪恶之旅。
-
-乔·拜登是在乌克兰有影响力的美国政要，其儿子亨特及其美国商业伙伴德文·阿彻Devon Archer勾结乌克兰石油和天然气公司Burisma的财务总监，并和三名乌克兰检察长维塔利·耶拉玛Vitaly Yerema和尤里·卢琴科Yuriy Lutsenko积极帮助Burisma逃脱了盗窃乌克兰石油和天然气资产的责任，从而掩盖为其掠财的目的。
-
-只有乌克兰总检察长Viktor Shokin肖金，将兹洛切夫斯基财产扣押起来，并发出令其返回乌克兰逮捕令。乔·拜登通过在美国的地位和权利罢免乌克兰总检察长肖金并逼迫其离职。为了实现自己家族利益，不惜毁掉美国名誉与利益。
-
-随后兹洛切夫斯基[聘请](https://www.scribd.com/document/433389210/Bluestar-Novelli-Contacts)了一家具有政治背景的DC公司Star Strategies，游说美国国务院改变这一政策。乔·拜登成为美国政要后不久，2014年2月，兹洛切夫斯基以每月最高160,000美元的价格[聘请了](https://www.cnbc.com/2014/05/13/bidens-son-joins-ukraine-gas-companys-board-of-directors.html)亨特·拜登及其合伙人德文·阿彻Devon Archer作为Burisma董事会成员，表面上为[公司治理](https://scribd.com/document/436048670/Burisma-Holdings-%20Accounting-Ledger)提供咨询，都不要求他们去乌克兰参加董事会会议。私人公司Burisma几乎不需要公司治理建议。并且亨特·拜登和阿彻实际上是公司股东，那么为这些服务付出的代价真是惊人的。
-
-亨特·拜登和阿彻通过乔·拜登联络国务卿约翰·克里John Kerry游说国务院高层，包括与克里会面（  [有](https://www.cnbc.com/2014/05/13/bidens-son-joins-ukraine-gas-companys-board-of-directors.html)[文件](https://www.scribd.com/document/433389212/Biden-Blinken-Meeting%29)证明这一点）。佐洛切夫斯基以拜登的已故儿子博（Beau）的名义为特拉华州的一家慈善机构做出了[巨大贡献](https://www.scribd.com/document/436048670/Burisma-Holdings-Accounting-Ledger)。阿切尔还为克里的女儿举行了[$ 10,000的盘子筹款活动](https://www.scribd.com/document/432522987/Devon-Archer-Fundraiser-Vanessa-Kerry)。
-
-国务院敦促乔·拜登解决因亨特·拜登的活动引起的明显利益冲突。亨特·拜登曾在电视采访中公开表示，他在加入Burisma之前曾与父亲讨论过合作事宜，但乔·拜登却什么也没有做。
-
-2014年4月中旬，英国[冻结](https://www.sfo.gov.uk/cases/ukraine-money-laundering-investigation/)了兹洛切夫斯基2300万美元的资产。2015年1月，英国释放了这些资产，因为在随后的10个月中，当时由乌克兰总检察长耶拉玛Yerema领导的乌克兰检察官办公室拒绝提供证据支持英国的扣押，实际上是与兹洛切夫斯基的律师合作以释放资产。乔·拜登通过发言人[声明](https://www.nytimes.com/2015/12/09/world/europe/corruption-ukraine-joe-biden-son-hunter-biden-ties.html?referringSource=articleShare.)：“亨特是私人公民和律师，副总裁不参与该公司，也不认可任何特定的公司。”他没有透露有关叶雷马（Yerema）行为不检的消息。2015年2月10日，乌克兰政府[解雇了叶雷马（Yerema）总检察长](https://www.nytimes.com/2015/12/09/world/europe/corruption-ukraine-joe-biden-son-hunter-biden-ties.html?referringSource=articleShare.) ，经证实他已从Burisma收到了700万美元的贿赂。
-
-通过上述被郭先生爆料文件中梳理得出，乔·拜登一直利用在美国政坛的地位和权利指使其儿子亨特·拜登联络美国各界政要高层，使其权利最大化，以至于可以干预他国政治，从而达到持续为家族敛财的目的。今天路德时评也揭示乔·拜登同时通过乌克兰贩卖美国军火给中共，中共（CCP）不光通过其子亨特·拜登变相勾兑、捆绑美国政要，还将美国军火收入囊中，并将早已经行一带一路规划的乌克兰这一资源胜地与乔·拜登家族利益相捆绑，最终达到奴役美国的目的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27131530/4-27.jpg)
-相关信息源：
-
-[https://www.hsgac.senate.gov/imo/media/doc/HSGAC\_Finance\_Report\_FINAL.pdf](https://www.hsgac.senate.gov/imo/media/doc/HSGAC_Finance_Report_FINAL.pdf)
-[https://www.nytimes.com/2015/12/09/world/europe/corruption-ukraine-joe-biden-son-hunter-biden-ties.html?referringSource=articleShare.](https://www.nytimes.com/2015/12/09/world/europe/corruption-ukraine-joe-biden-son-hunter-biden-ties.html?referringSource=articleShare.)
-[https://www.nytimes.com/2015/12/09/world/europe/corruption-ukraine-joe-biden-son-hunter-biden-ties.html?referringSource=articleShare.](https://www.nytimes.com/2015/12/09/world/europe/corruption-ukraine-joe-biden-son-hunter-biden-ties.html?referringSource=articleShare.)
-[https://twitter.com/EricTrump/status/1317482157812613122?s=20](https://twitter.com/EricTrump/status/1317482157812613122?s=20)
-
-0
+聖經故事背景，免費英語教學，美東時間周一至周四晚上9:00，美國志願者在美東香草山農場Discord群[Richard English](http://Richard%20English)版塊和[chat-room](http://chat-room)您相約！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25225844/WhatsApp-Image-2020-10-24-at-08.09.25-2.jpeg)
+1+

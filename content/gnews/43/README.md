@@ -1,31 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】美印签署关键军事协定，距“印太版北约”又近一步
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/463825/)
+## “硬盘门”，仅仅是美国人民的悲歌？
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/464198/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25214337/WhatsApp-Image-2020-10-24-at-08.09.25-1.jpeg)
+作者：桂花酒
 
+校对：宁缺；审核：Free Dust；Page：拱卒
+[!\[\]()!\[\](https://spark.adobe.com/page/rBETWByLPQke9/images/4d76215b-3aa3-4bf9-bc9d-7bf09f5c4106.jpg?asset_id=e2618e39-9d83-4b76-97ea-6c2a16020666&amp;img_etag=%22e18c61fc5efd3a8f9ef8cfedd8da19a9%22&amp;size=2560)](https://spark.adobe.com/page/rBETWByLPQke9/images/4d76215b-3aa3-4bf9-bc9d-7bf09f5c4106.jpg?asset_id=e2618e39-9d83-4b76-97ea-6c2a16020666&amp;img_etag=%22e18c61fc5efd3a8f9ef8cfedd8da19a9%22&amp;size=1024)
+2020年9月24日，路德社全世界第一个爆出“三块硬盘”。简单说，第一块是拜登的腐败证据（正在快速发酵中，骇人的内容持续流出），第二块是CCP最高层的“基因图谱”包括海外私生子女，第三块是现在杀害无数人的超限生化武器。
 
+现在围绕第一块硬盘曝光的是亨特拜登一系列色情图片和视频截图，里面的信息量非常大。个人角度尝试简单疏理：他在自己家里的乱伦、他在中国大陆（还有其它未暴光的国家）与不同年龄的女性发生性关系的背景还有当时吸毒后的非人的特殊心理，或是犯罪心理。
 
+他与谁在什么地方签了什么？难道仅仅是目前公开的渤海华美那几份文件？以他为代表的卖美贼们和中共盗国贼还做了哪些勾当？硬盘数绝非“三块”，三只是个虚数。现在仅仅拜登相关的就多达47块！而且还不包括尚未透露的和欧洲等等诸多国家的无数个“拜登”们。
+[!\[\]()!\[\](https://spark.adobe.com/page/rBETWByLPQke9/images/0244ad41-3613-43a2-a927-57ac49224055.png?asset_id=5bc651b7-5b1a-4b70-bfb0-f2b2e8620a8b&amp;img_etag=%227c19a978765c1add52fd2dac9a92c78d%22&amp;size=2851)](https://spark.adobe.com/page/rBETWByLPQke9/images/0244ad41-3613-43a2-a927-57ac49224055.png?asset_id=5bc651b7-5b1a-4b70-bfb0-f2b2e8620a8b&amp;img_etag=%227c19a978765c1add52fd2dac9a92c78d%22&amp;size=1024)
+全世界总数多达70亿的人类，在如今物质、科技、信息极度发达的看似高度文明的社会，在航天已经出现了私营巨头SpaceX的马斯克，在互联网人们几秒钟就购买到藉由物流迅速送达的商品的表面美好下，让大众沉浸在近似虚幻的亢奋中而不自拔，全然不知人类的善良和绥靖，悄悄地培养出一个巨兽红魔般的中共正在吞噬世界！
 
+产自四大文明古国之一的中共，承二千年的帝王权谋，用谎言和杀戮把少数既得利益者高高置于14亿人民之上。建高墙、圈百姓，既目无王法，又无任何人类的底线，打着“改革开放”的旗号，一边对百姓敲骨吸髓，一边输送利益收买美国无耻政客并留下证据，自以为牢牢掌控了全人类就能满足几个家族无穷的欲望。
 
-作者：香草山写作组 人间世
+如今硬盘门事件真相慢慢披露，硬盘曾被寄到美国多个部门：包括司法、行政、媒体，但就有人敢默不作声，视之不见，听之不闻。还有推特、福齐为代表的科学界，以教皇为代表的宗教界，还有遍地丧失良知给钱就叫爹的媒体界等等，都被CCP用“蓝金黄”一网打尽了。中共3F美国的野心昭然若揭。据报，早在2003年中共就与拜登接洽，两个魔鬼一一拍即合。世界已经如郭文贵先生2017年警告的那样，“陷入黑暗”久矣！
 
-当地时间周二（10月27日）下午，美国和印度签署了旨在扩大互换信息渠道的“基本交换与合作协定”（BECA）。美国为遏制CCP而构建印太版北约的计划又向前推进一步。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27105647/173-%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91%E7%BE%8E%E5%8D%B0%E7%AD%BE%E7%BD%B2%E5%85%B3%E9%94%AE%E5%86%9B%E4%BA%8B%E5%8D%8F%E5%AE%9A%EF%BC%8C%E8%B7%9D%E5%8D%B0%E5%A4%AA%E7%89%88%E5%8C%97%E7%BA%A6%E5%8F%88%E8%BF%91%E4%B8%80%E6%AD%A5-1.jpg)（India Today/PTI）
-10月26日至27日，美国国务卿蓬佩奥、国防部长埃斯珀飞赴印度首都新德里，出席第三届美印“2+2”部长级会议，和印度外长贾山卡尔（S Jaishankar）、国防部长辛格（Rajnath Singh）会谈。27日会谈结束后，双方正式签署了以共享地理空间情报信息为主要内容的《基本交流合作协议》(BECA)的协议。印度借此可获得美国先进的卫星数据和图像。
+今天，10月25号美东时间，路德社再次全球首发曝光前总统奥巴马2016年4月4日白宫密谋照片。舆论的海啸必将引领美国选民新一波哗然从而不断推动正义的事业——灭共。
+[!\[\]()!\[\](https://spark.adobe.com/page/rBETWByLPQke9/images/cc26cf80-26c9-4c60-8b69-f69497a51dd8.jpg?asset_id=e764980a-8ce0-4360-9be0-ed2ef48f3b3b&amp;img_etag=%22eb4a4434a459db575a7de73ca76000cc%22&amp;size=2560)](https://spark.adobe.com/page/rBETWByLPQke9/images/cc26cf80-26c9-4c60-8b69-f69497a51dd8.jpg?asset_id=e764980a-8ce0-4360-9be0-ed2ef48f3b3b&amp;img_etag=%22eb4a4434a459db575a7de73ca76000cc%22&amp;size=1024)
+按照第一块硬盘已经出现的实锤证据来推测，第二块硬盘里又会爆出哪些人为中共提供了试管胚胎？这些行为又将如何定义？是否是和拜登一样违反人伦的犯罪？想想2018年11月27日中国科学家贺建奎实验室的培养皿，其中含有基因被编辑过的胚胎；还有马航上消失的国际著名肾脏病专家的黎磊石；被逼上梁山的闫丽梦博士。
 
-BECA成为继2002年的《一般军事信息安全协议》、2016年的《后勤交流协定备忘录》及2018年的《通信兼容与安全协议》之后，美印达成的第四份基础性军事协议。而这四份协议，是美国与北约成员等防务伙伴都会签署的基础文件。可以说，至此美印之间的关系已达到“准盟友”级别。为对抗在外交上变得日益放肆的CCP，印度似乎开始放弃曾经长期坚持的“不结盟”策略，不断加强与美日澳等印太国家的军事合作。
+第三块硬盘里包含的“超限生化武器”。郭文贵先生说过，没有美国人提供的技术，中共造不出现在的“冠状病毒”。那么又是谁，在什么条件下，设计并给了中共？其后果就是当今全球的4000万的感染，115万死亡！
 
-德国之音中文网透露，蓬佩奥将会一连访问区内其他四个国家（斯里兰卡、马尔代夫和印度尼西亚等）。他在上周明言：“此行的会谈将讨论自由国家如何携手阻挡中国共产党带来的威胁。”在蓬佩奥和埃斯珀抵达印度之前，美国副国务卿比根（Stephen Biegun）上周访问该国时称中国为“房间里的大象”(an elephant in the room)。他强调华府乐意促进印度在区内的利益，抗衡中国高科技通讯网路带来的风险。
+悠悠苍天，何薄于我！郭文贵和爆料革命、班农先生、川普总统、朱利安尼等等正义力量将要进行人类文明的终极之战，CCP也说那是他们对外的“终极之战”！人类文明到了变奴为人的关键十字路口。千年前中国小女孩李寄挺身而出、为民除害，用她手中的宝剑斩杀了巨蟒，如今现实中各位英雄也藉由“硬盘门”的正义之战将对人类文明的分水岭作出选择，世界不再有悲歌。
 
-由此可见，美国毫不掩饰拉拢印澳日等国围堵中共的意图。CCP在“小粉红”习近平带领下四面树敌的“野蛮外交”，终于如愿以偿地得到了应有的回报。一个以遏制CCP为主要目标的印太版北约正逐渐成形。所幸在于，郭文贵先生领导的爆料革命不仅在国际上推动把中共和中国以及中国人区别对待，还旗帜鲜明地奋斗在全球灭共最前线，让全体华人避免了被CCP绑架的悲催命运，也为将来华夏文明以崭新的面貌重返世界舞台保留了难得的机会。
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/rBETWByLPQke9/)】- 点击spark adobe版
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+了解更多资讯敬请关注：
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+【战鹰团Gab】[https://gab.com/himalayahawks](https://gab.com/himalayahawks)
 
-圣经故事背景，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+【英国喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
 
-0
+【英国喜庄园GTV/盖特】：[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+【大卫作战室YouTube】[https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+[!\[\]()!\[\](https://spark.adobe.com/page/rBETWByLPQke9/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/rBETWByLPQke9/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+1+
