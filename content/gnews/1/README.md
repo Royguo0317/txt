@@ -1,13 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发！美国国务院指定和平统一全国协会为中华人民共和国的外国使团
-` GM101` [轉載自GNews](https://gnews.org/zh-hans/498074/)
+## 亨特拜登第三波: 硬盘邮件解密 民主党金主比尔· 巴特曼承诺无条件支持亨特拜登
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/498240/)
 
-美东时间10月28号，美国国务院官方宣布将中国和平统一全国协会（NACPU）定性为中共国的外国使团。
+### **邮件：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29042141/1-296.png)
+### **邮件中文翻译如下：**
 
-国务院表示人与人之间的交流对于建立文化之间的理解至关重要，但UFWD并不是人与人之间交流的工具。它是中共前线组织用来推进宣传和恶性影响。
+**邮件标题：**拜登之子亨特因可卡因测试不合格被海军后备队开除军籍 – 华尔街日报(报道)
 
-国务院指出统一战线部门（UFWD）是中共的机构，其任务是共同消除和消除对该党统治的威胁，并将其影响力和宣传传播到海外。中共将此党派机构视为推进北京政策的“法宝”。国务院明确根据美国《外国使馆法》指定由UFWD控制的组织，中国和平统一全国协会（NACPU）作为中国的外国使团。
+**发件人：**Bill Bartmann (比尔·巴特曼)
+
+**日期：**2014年10月16日8:30PM
+**收件人：**亨特·拜登
+
+亨特，
+
+您的朋友们无条件与您站在一起。
+
+在这个尴尬的时刻 ， 让我知道我是否能提供帮助。 如你所知，我也有一些尴尬的经历。
+
+[http://m.wsj.com/articles/bidens-son-hunter-discharged-from-navy-reserve-after-failingcocaine-test-1413499657?mobile=y](http://m.wsj.com/articles/bidens-son-hunter-discharged-from-navy-reserve-after-failingcocaine-test-1413499657?mobile=y)** **
+
+### **邮件人物介绍/分析：**
+
+- 发件人猜测可能是民主党金主比尔·巴特曼（Bill Bartmann）
+- 参考资料：[https://en.wikipedia.org/wiki/Bill\_Bartmann](https://en.wikipedia.org/wiki/Bill_Bartmann)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29045041/Screen-Shot-2020-10-29-at-6.50.19-pm.png)
+[亨特拜登第三波: 硬盘邮件解密 民主党金主比尔· 巴特曼承诺无条件支持亨特拜登](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29045441/7-Email-Declassification.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29045441/7-Email-Declassification.pdf)
 
 0

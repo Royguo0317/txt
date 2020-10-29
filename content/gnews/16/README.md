@@ -1,41 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共和党全国委员会发言人怒怼CNN王牌主播
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/495466/)
+## 【香港要闻】左媒南华早报：国安处拟设报料热线 最早 11 月推行　强调报料人身份『保密』
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/497868/)
 
-多伦多加喜农场 文文-自由法兰西🇫🇷
+整撰：文燕
 
-校对 小鸥 上传 XM
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28185802/%E5%9B%BE%E7%89%872-16.png)
-近日，在CNN新闻采访中，共和党全国委员会发言人伊丽莎白∙哈灵顿（Elizabeth Harrington）与美国CNN新闻主播克里斯汀·阿曼普（Christiane Amanpour）就拜登硬盘门内容发生争执，她给予后者有力回击。
+覆核：文非
 
-在采访中，阿曼普援引O先生前一天公开演讲中提出的“川普总统在中（共）国有一个神秘账户”的说法，对川普总统进行大肆污蔑，并称硬盘中所谓的拜登电子邮件都属于俄罗斯虚假信息阴谋的一部分。
+香港媒体指《港区国安法》今年7月实施以来，先后有多人被捕或被通缉。
 
-哈灵顿对此予以有力回击，她说，CNN真的是太放肆了 ——到底是谁在散播俄罗斯的虚假信息并试图颠覆和平过渡的川普政权——（同时）却指责别人在传播俄罗斯虚假信息？顺便说一句：有关 “大人物(big guy)“的那些邮件都是真实的。
+【立场新闻】引述香港红媒《南华早报》10月28 日晚消息报道，警察国安处将最早在11 月开设多平台热线（multi-platform hotline），以收集情报，公众可透过平台举报有助警方执法的信息，并强调报料人的身份会保密，收集的资料只会交由警察国安处处理。消息人士对《南华早报》指，有关构想早在 7 月成立国安处时已有提出。
 
-哈灵顿随后质问阿曼普，为什么主流新闻媒体在很大程度上都选择忽视亨特∙拜登的硬盘邮件内容？
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28190503/%E5%9B%BE%E7%89%873-13.png)
-“你（阿曼普）为什么不报道这个？这涉及华盛顿最有权势的家庭之一。”
+有政府消息人士向《南华早报》表示，公众可能掌握有关危害国家安全活动的资讯，甚至拥有疑犯的信息或行动资讯。
 
-“在我们遭受来自共产中国的病毒疫情所带来的苦难时，乔∙拜登为了谋取自己和家人的好处，而出卖了我们的利益，你真的认为这OK吗？”
+消息人士认为，报料人欲举报敏感信息时，不会希望致电999，因此需要有一个合适的渠道，供公众向警方报料，相信可对疑犯产生阻吓作用，令他们感到周围都是耳目（as there will be eyes and ears everywhere）。
 
-郭先生发起灭共的爆料革命3年来，CNN、《华尔街日报》、《纽约时报》等所谓的美国主流媒体对美国民主党与中共的利益勾兑以及在美国已经造成900万人感染、23万人死亡的超限生物武器CCP病毒的真相等，从始至终都选择性忽视或进行歪曲报道，个中原因发人深省。
+《立场新闻》就事件向警方查询，暂时未有回覆。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29014118/image001-17.png)
+战友点评：
 
-格伦∙爱德华∙格林沃尔德（Glenn Edward Greenwald），这位曾以发表过一系列轰动的斯诺登调查报告而闻名的记者、作家兼前律师，注意到了在所谓“言论自由”的美国存在的这个虚伪现象，即“媒体是如此迫切地希望帮助乔∙拜登获胜，以至于他们都放弃了伪装，赤膊上阵了。这一点非常明确。”
+根据《中华人民共和国香港特别行政区维护国家安全法》第四十三条，警务处维护国家安全部门拥有下列职权：
 
-顺便说一句，阿曼普的父亲是伊朗人，前夫是美国人詹姆斯∙鲁宾（James Rubin），曾在克林顿政府任职期间担任美国助理国务卿兼美国国务院发言人，及担任过美国前国务卿希拉里∙克林顿和前总统O先生的非正式顾问。
+1. 搜查可能存有犯罪证据的处所、车辆、船只、航空器以及其他有关地方和电子设备；
 
-O先生、乔∙拜登、亨特∙拜登相互勾兑，以及他们深层次的与中共邪恶政权勾结并为其代言，行反人类的罪恶，不仅危害了美国人民、中国老百姓以及全世界人民，更使美国整个三权分立、民主、自由、法治的社会中布满了沼泽，现在是逐步拨云见日，排干沼泽的时候了。
+2. 要求涉嫌实施危害国家安全犯罪行为的人员交出旅行证件或者限制其离境；
 
-参考链接:
+3. 对用于或者意图用于犯罪的财产、因犯罪所得的收益等与犯罪相关的财产，予以冻结，申请限制令、押记令、没收令以及充公；
 
-1. [https://www.zerohedge.com/political/cnn-theyre-not-even-pretending-anymore](https://www.zerohedge.com/political/cnn-theyre-not-even-pretending-anymore)
+4. 要求资讯发布人或者有关服务商移除资讯或者提供协助；
 
-2. [https://www.msn.com/en-us/news/politics/why-dont-you-want-to-report-this-rnc-spokeswoman-spars-with-cnn-anchor-over-claim-hunter-biden-emails-are-russia-disinformation/ar-BB1amhLK](https://www.msn.com/en-us/news/politics/why-dont-you-want-to-report-this-rnc-spokeswoman-spars-with-cnn-anchor-over-claim-hunter-biden-emails-are-russia-disinformation/ar-BB1amhLK)
+5. 要求外国及境外政治性组织，外国及境外当局或者政治性组织的代理人提供资料；
 
-3. [https://en.wikipedia.org/wiki/Christiane\_Amanpour](https://en.wikipedia.org/wiki/Christiane_Amanpour)
+6. 经行政长官批准，对有合理理由怀疑涉及实施危害国家安全犯罪的人员进行截取通讯和秘密监察；
 
-4. [https://en.wikipedia.org/wiki/James\_Rubin](https://en.wikipedia.org/wiki/James_Rubin) 5. [https://en.wikipedia.org/wiki/Glenn\_Greenwald](https://en.wikipedia.org/wiki/Glenn_Greenwald)
+在【港版国安法】的框架下，港警有着巨大的执法许可权。现在更是开放热线电话，鼓励举报。中共在香港布下天罗地网，无处不在，这线眼成为中共监视和抓捕港人的爪牙。昔日自由开放的民主社会，今天已经成为大牢房，港人的一举一动被国安怀疑、监视。
 
-2+
+而钟翰林这次被捕事件，印证了一个资讯：中共克格勃员警遍布全港，收集情报，打着《香港国安法》的旗帜，以莫须有的罪名随时监控抓捕曾经参加抗争的人士。
+
+以上观点仅代表笔者本人
+
+资料来源：立场新闻、独立媒体
+
+[https://www.thestandnews.com/politics/%E5%8D%97%E8%8F%AF%E6%97%A9%E5%A0%B1-%E5%9C%8B%E5%AE%89%E8%99%95%E6%93%AC%E8%A8%AD%E5%A0%B1%E6%96%99%E7%86%B1%E7%B7%9A-%E6%9C%80%E6%97%A9-11-%E6%9C%88%E6%8E%A8%E8%A1%8C-%E5%BC%B7%E8%AA%BF%E5%A0%B1%E6%96%99%E4%BA%BA%E8%BA%AB%E4%BB%BD%E4%BF%9D%E5%AF%86/](https://www.thestandnews.com/politics/%E5%8D%97%E8%8F%AF%E6%97%A9%E5%A0%B1-%E5%9C%8B%E5%AE%89%E8%99%95%E6%93%AC%E8%A8%AD%E5%A0%B1%E6%96%99%E7%86%B1%E7%B7%9A-%E6%9C%80%E6%97%A9-11-%E6%9C%88%E6%8E%A8%E8%A1%8C-%E5%BC%B7%E8%AA%BF%E5%A0%B1%E6%96%99%E4%BA%BA%E8%BA%AB%E4%BB%BD%E4%BF%9D%E5%AF%86/)
+
+[https://www.inmediahk.net/node/1076356](https://www.inmediahk.net/node/1076356)
+
+0
