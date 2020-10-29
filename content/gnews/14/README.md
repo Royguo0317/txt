@@ -1,35 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 东莞美得丽家具厂员工为打造铁军团跪地自扇耳光是不是自愿的
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/500259/)
+## 文贵说｜系列图片连载（三十一）
+` GM98` [轉載自GNews](https://gnews.org/zh-hans/500090/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29142524/%E5%B0%81%E9%9D%A2-6.png)
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+## 211.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29140853/01-13.jpg)
+这是我唯一希望的，第一希望战友活着，安全，第二我们希望战友富有，然后家人安全，互相恩爱，这就是我文贵的战略目标。
 
-据Kyle [email protected]先生于[2020年10月29日下午8：52](https://twitter.com/Jkylebass/status/1321796940456169473)发布的推文
+——郭文贵先生 2020年5月14日
 
-Working conditions with chinese characteristics…it’s time to worry. [#China](https://twitter.com/hashtag/China?src=hashtag_click) [#peakform](https://twitter.com/hashtag/peakform?src=hashtag_click) （中文大意：具有中国特色的工作条件…到了令人担忧的时刻了。 ＃中国＃峰值）SCMP [email protected][下午3:25 · 2020年10月29日](https://twitter.com/SCMPNews/status/1321714804860416001)·[Twitter Media Studio](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)
+## 212.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29141606/06-7.jpg)
+我们喜马拉雅要有高度，要有纯洁，而且是普渡众生，地球上多少人是喝着喜马拉雅的水，而且这个高度是人类要仰视的。这是为什么我叫喜马拉雅！
 
-These Chinese workers were seen kneeling and slapping themselves – all so their company could build an “iron army”（中文大意：这些中国工人们被看到跪地扇耳光——这样他们的公司就可以建成一支铁军了）
+——郭文贵先生2020年5月10日
 
+## 213.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29141720/04-7.jpg)
+什么叫祖国？祖国还有你的母国，别搞错，这不是一回事。能让我安全，能让我生存的，这就是我们国家，给我未来的，给我尊严的。生我、养我的地方，生我的地方，母国就是中国。但不是共产党的国，我从不承认共产党的国。
 
+——郭文贵先生2020年4月28日
 
-> Working conditions with chinese characteristics…it’s time to worry. [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [#peakform](https://twitter.com/hashtag/peakform?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/55B8Hrwobl](https://t.co/55B8Hrwobl)
-> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [October 29, 2020](https://twitter.com/Jkylebass/status/1321796940456169473?ref_src=twsrc%5Etfw)
+## 214.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29142233/05-7.jpg)
+我觉得亚洲人、中国人、所有的一切共产党最大的病毒就是把中国人男人的勇气给拿走了，脊梁骨给拿走了，把中国女人的善良给拿走了，此社会必属大恶！更不要说法律和道德，不除掉大恶之本共产党的病毒，找回中国男人的勇气这个脊梁骨，女人的善良，社会没有共产党会更惨更乱！
 
+——郭文贵先生2020年5月10日
 
+## 215.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29142316/03-11.jpg)
+老百姓、蚂蚁们、草根们虽然穷，有时候可能是天真，有时候可能是狂妄点，我们可能幼稚点，但绝不是骗子。我们知道什么叫善恶，什么叫真假。
 
-对照凯尔.巴斯先生转推的这则推文里的视频，在国内的网站上可以查到的视频来源如下（由于视频版权原因，不再附上原始视频）：
+——郭文贵先生2018年3月15日
 
-[【家具厂培训员工集体跪地扇耳光 厂家回应：主题心灵成长，打造铁军团】10月27日，广东东莞。一段员工集体跪地自扇耳](https://haokan.baidu.com/v?pd=wisenatural&amp;vid=4225410477750455863)（封面新闻 发布时间：2020年10月27日）
+## 216.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29142337/02-11.jpg)
+这是共产党和共产党的战争，死的却是最穷的人民，这就是真相。
 
-同样引用这段视频的[财经网](https://weibo.com/1642088277?refer_flag=1001030103_) [10月28日 09:02](https://weibo.com/1642088277/Jrf3C1BTf?from=page_1002061642088277_profile&amp;wvr=6&amp;mod=weibotime) 新浪微博发布的文字内容是：
+——郭文贵先生 2020年1月26日
 
-[#崇尚狼性文化的企业值得去吗#](https://s.weibo.com/weibo?q=%23%E5%B4%87%E5%B0%9A%E7%8B%BC%E6%80%A7%E6%96%87%E5%8C%96%E7%9A%84%E4%BC%81%E4%B8%9A%E5%80%BC%E5%BE%97%E5%8E%BB%E5%90%97%23)【[#家具厂培训员工跪地自扇耳光#](https://s.weibo.com/weibo?q=%23%E5%AE%B6%E5%85%B7%E5%8E%82%E5%9F%B9%E8%AE%AD%E5%91%98%E5%B7%A5%E8%B7%AA%E5%9C%B0%E8%87%AA%E6%89%87%E8%80%B3%E5%85%89%23) ，厂家：主题心灵成长，打造铁军团，是他们自愿的】10月27日，广东东莞一段员工集体跪地自扇耳光的视频在网上流传。据了解，该视频内容是10月21日某家具厂经销商培训会，一群人身着工服情绪激昂跪地自扇耳光，更有人脱去上衣一边喊着口号一边双手拍地。该家具厂称，培训的主题是心灵成长，为了打造铁军团，让员工们激发最巅峰的状态，是他们自愿的。 [@漩涡视频](https://weibo.com/n/%E6%BC%A9%E6%B6%A1%E8%A7%86%E9%A2%91) [L漩涡视频的微博视频](http://t.cn/A6bD0ur3) [收起全文d](void%280%29;)
+## 217.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29142418/0112.jpg)
+爆料革命给所有的同胞带来的是真相真相就是力量！真相就是财富！
 
-如果通过这样的方式可以打造钢铁军团和巅峰状态，那东莞美得丽家具厂的董事长和高管成员们可不可以通过向全体员工下跪、自扇耳光、脱光上衣来展示他们的钢铁意志和巅峰状态呢？在东莞美得利的高管们习惯于向他们更高的阶层下跪、自扇耳光的时候，他们是自愿的，基于这种习惯和自愿，他们也会把下游的经销商或者员工的集体下跪、自扇耳光视为自愿，并且还要美其名曰打造铁军团、激发最巅峰的状态——他们都病了，而且是自愿的病了！
-
-（文章内容仅代表作者个人观点）
+——郭文贵先生2019年12月2日
 
 0

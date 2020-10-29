@@ -1,32 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美军指挥官高调回应中共：美军可派兵保卫日本尖阁诸岛
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/499243/)
+## 亨特·拜登第三波: 硬盘邮件解密7 2014年5月15 日布利斯马公司董事会主席艾伦将通过邮件协调与今天宣布就任公司董事的前波兰总统克瓦斯涅夫斯基的通话
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/499218/)
 
-*喜马拉雅联盟加拿大农场 知舍
-校对 文锦 上传 WJ*
+前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
 
-据Zerohedge10月28日报道，两周前，中共国船只闯入位于东海争议海域即日本称之为尖阁诸岛的地区，船只在此海域停留时间之长前所未有，日本防卫大臣称对中共的这种行为 “无法容忍”，由此中日在该海域爆发出紧张局势。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29100127/jislanfd.jpg)部分尖阁诸岛（钓鱼岛） 图片来源：nuke.or.up
-本周初，驻日美军负责人表示，五角大楼可能会派遣美军保卫尖阁诸岛，使其不受来自中共国未来可能发起的侵略活动，这一表态使得原本紧张的事态加剧。
-凯文·施耐德中将在周一表示：“我们今天的到来只展示了运输少量人员的能力，但同样的这种能力也可被用来部署作战部队以保卫尖阁诸岛，或应对其它危机和突发事件。”随后，他在日本一艘驱逐舰的甲板上做简报时，更是进一步阐述了中共在该海域的一系列“恶性行为”。
+**亨特拜登第三波：硬盘邮件解密
+2014 年 5 月 15 日布利斯马公司董事会主席艾伦将通过邮件协调与今天宣布就任公司董事的前波兰总统克瓦斯涅夫斯基的通话，并安排了强大的国际媒体阵容为布利斯马公司站台 **
 
-当日是美日两国海军联合演习（代号为“利剑21”）的第一天，据报道，此次演习在日本冲绳附近海域举行，为期10天左右，参与兵力包括来自“里根”号航母战斗群的军舰、100多架飞机和地面部队，演练科目涵盖陆海空三个领域，美军人员近万人，阵容强大。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29100036/Japan.jpg)美国海军图片拍摄于 “利剑21 “演习期间 图片来源：USNavy，Twitter
-日媒对美军指挥官施耐德中将的言论进行了报道：*施耐德说，美国运输人员的能力 “可以也可能被用来运送作战部队以保卫尖阁诸岛”。日本防卫省官员解读美军中将的言论是对中共一直在尖阁诸岛附近海域加强活动的一种警告。*
+### **邮件：**
+![This image has an empty alt attribute; its file name is 5e33b089-2d83-45a9-95c0-f2f9681a5f64.jpg]()![This image has an empty alt attribute; its file name is 5e33b089-2d83-45a9-95c0-f2f9681a5f64.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29093716/5e33b089-2d83-45a9-95c0-f2f9681a5f64.jpg)
+### **邮件中文翻译如下：**
 
-中共国将尖阁诸岛称为钓鱼岛并主张钓鱼岛主权是归自己的，这块区域位于东京的西南方向，距离1200英里(1900公里)的这片无人居住的岩石链区域，对这一区域主权的主张问题可以追溯到几个世纪前，至今没有解决。目前情况看来，日本和中共国都不可能在这一问题上做出退让。
+发件人: 德文·阿彻 &lt;[email protected]……….&gt;
+时间: 2014年5月15日 凌晨 5:54
+收件人: 希瑟·金
+附件: 亨特·拜登
 
-中共国国内媒体也报道了两周前在这一海域发生的事件，他们称是中共国海岸警卫队的船只主动离开该海域，从而化解了这场危机。
+主题: 有关艾伦给董事会打电话的电子邮件
 
-中共国船只今年在尖阁诸岛附近海域的停留时间创下历史新高，引起日本的谴责。两周前发生的事件更是近十年来日本海域发生的持续时间最长的一次违规事件。美日之间早已签订的共同防御条约，基于此日本和中共国在尖阁海峡的任何潜在军事对抗都会使美军介入其中。
+希瑟,
 
-中共现阶段党内斗争日渐加剧，已进入白热化；国内多地城市疫情极具恶化，难以掩盖；经济贸易量锐减，百姓失业潮来袭，内需严重不足，再加之难以避免的粮食危机已至。国际方面，主要西方民主国家和日本、印度等亚洲主要国家已集结成了民主正义联盟，不论从军事还是经济上对中共形成了有效的包围圈，效果逐渐显著。
+董事会主席艾伦（Alan Apter）将通过电子邮件与你和团队协调明天与克瓦斯涅夫斯基(Kwasniewski)总统（波兰前总统）通电话，他今天将在波兰媒体上宣布就任董事。艾伦（Alan Apter）还安排了强大的采访阵容，为Burisma站台（有来自俄罗斯的，还有乌克兰的人选和美国媒体）。
 
-中共绑架、欺瞒中国百姓，还想将独裁输出海外，进而统治全球，狼子野心，路人皆知。中共内外点火，必将玩火自焚。这一次中共的阴谋诡计一定不会得逞，因为全球正义之师已经苏醒！
+祝好
 
-相关新闻：
-[US Commander Provokes China: Troops Can Be Sent To Defend Japan’s Senkaku Islands](https://www.zerohedge.com/geopolitical/us-commander-provokes-china-troops-can-be-sent-defend-japans-senkaku-islands)
+德文·阿彻
+
+### **邮件人物介绍/分析：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29092012/Screen-Shot-2020-10-29-at-11.19.49-pm.png)**參考資料：[https://conservapedia.com/Devon\_Archer](https://conservapedia.com/Devon_Archer)**![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29092015/Screen-Shot-2020-10-29-at-11.20.00-pm.png)**參考資料: [https://www.bsfllp.com/lawyers/heather-king.html](https://www.bsfllp.com/lawyers/heather-king.html)**![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29095802/Screen-Shot-2020-10-29-at-11.57.50-pm.png)**Reference**: [https://en.wikipedia.org/wiki/Aleksander\_Kwa%C5%9Bniewski](https://en.wikipedia.org/wiki/Aleksander_Kwa%C5%9Bniewski)
+
+
+[亨特·拜登第三波: 硬盘邮件解密7 2014年5月15 日布利斯马公司董事会主席艾伦将通过邮件协调与今天宣布就任公司董事的前波兰总统克瓦斯涅夫斯基的通话](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29100329/19-Email-for-Board-call-form-Alan-1.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29100329/19-Email-for-Board-call-form-Alan-1.pdf)
 
 0

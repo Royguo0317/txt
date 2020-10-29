@@ -1,41 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 给人类哀的美敦书
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/497725/)
+## 【1】第三波硬盘邮件解密！乌克兰天然气公司瓦迪姆与亨特·拜登商务伙伴德文·阿彻邮件曝光！
+` GM01` [轉載自GNews](https://gnews.org/zh-hans/498612/)
 
-*作者：文护念*
+[该部分高清PDF版请点击下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29092039/10.29proofread.translation-17.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29092039/10.29proofread.translation-17.pdf)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29082650/WhatsApp-Image-2020-10-29-at-12.23.12.jpeg)
+**发件人**：瓦迪姆-波扎尔斯基**收件人**：德文-阿彻
+**日期**：2014年5月7日 7:46AM
+**主题**：访问哈萨克斯坦/签证问题
 
-*校对：宁缺；审核：free dust；Page：Eric8848*
+亲爱的阿彻，
 
+继我们上次交流之后，请告知基辅会议之后您计划访问哈萨克斯坦的几个要点：
 
-此视频为：《川普VS影子政府-震撼演讲》
-四年前，当时还是共和党参选人的川普先生在此视频发表了振奋人心的演讲，视频谈及的内容，如今一一应验。
+日期;访问哈萨克斯坦有确切的日期吗？
 
-天将降大任于斯人也，必先苦其心志。在川普总统任内的四年，被Deep State的暗黑势力千方百计设局陷害，利用控制的媒体抹黑川普总统，把川普总统描绘成为一个千夫所指的国家罪人。无论是精神上的折磨，还是中共病毒对其身体的攻击，都无法把川普总统击倒。经历了百般磨难，如今才铸造了钢铁般意志的战士。
+对口单位;我们计划会见谁，什么级别，仅会见政治人物在内的最高管理层，还是说我们应该带上我们的地质学家/专家？
 
-正如川普总统在视频中谈到：“这是我们国家生死存亡的斗争，这会是我们最后一次机会来拯救它。这次选举会决定我们是一个自由的国度，还是我们只有民主的假象。实际上却被一小撮的全球特殊利益集团控制来操纵制度，而我们的制度已经被操纵了。这就是现实，你知道，他们知道。我知道，非常肯定，全世界都知道。”
+会谈内容;我们计划讨论哪些议题、合作方向？
 
-不仁者而居高其位，是播其恶于众也。无论是前任总统奥巴马，时任国务卿希拉里，还是当今权倾朝野的拜登家族，他们都是身居要职，恋栈权力，利用公权与中共眉来眼去，互输私利，其伤害的正是美国民众与中国的老百姓。
+如果我们要讨论与哈萨克斯坦的天然气田合作的可能性，那么从哈萨克方面得到关于可能成为谈判主题的天然气田，地区等任何可能的初步信息都将非常有益，这样我们的地质学家/专家将为我们的代表团进行富有成效的谈判做准备。
 
-这是人类文明的十字路口，人生不只限于自身，而岂衣食温饱之谓生乎！文明乃群体一大生命，与个己小生命不同。个体小生命必寄存在躯体物质中，其生命既微小，又短暂；大生命乃超躯体而广大悠久。如若被暗黑势力掌控全世界，届时整个地球都充斥战争、谎言，人类文明将会断层，所以捍卫地球文明，燃眉之急。人类会走向何方，与每个人都休戚相关，没人可以置身事外。
-[!\[\]()!\[\](https://spark.adobe.com/page/F852gRGTr8i6m/images/f5b2a86d-4cb5-40c1-a1b3-69e92018ff15.jpg?asset_id=d0e942df-80de-4390-a6a6-cad27cfaeb78&amp;img_etag=%22fac9312547bf321bbe2f9d287d1a45df%22&amp;size=1024)](https://spark.adobe.com/page/F852gRGTr8i6m/images/f5b2a86d-4cb5-40c1-a1b3-69e92018ff15.jpg?asset_id=d0e942df-80de-4390-a6a6-cad27cfaeb78&amp;img_etag=%22fac9312547bf321bbe2f9d287d1a45df%22&amp;size=1024)
-川普总统腰缠万贯，本可衣食无忧，但他放弃了，选择站出来，为“光复美国”而战。尊敬的郭文贵先生，放弃了千亿资产，卧薪尝胆，准备了三十年，为中国老百姓而战，为正义与尊严而战。问舍求田原无大志，掀天揭地方是奇才，还有千万正义的人都站出来了。上天有好生之德，还没有放弃人类。扼言之，人类仍存希望，自救者，天救之。
+尼古拉的签证问题你有什么消息吗？
 
-尽管这段时间我们被很多颠覆三观的事情深受影响，但是我们不能气馁。 我们要抱有敬畏之心往上看，有天道、人道、阿修罗道；至于我们能够做什么，就是把那些作恶多端的人送去饿鬼道、畜生道、地狱道轮回。
+祝好，瓦迪姆
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29085513/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8812.54.48.png)
+**发件人**：德文-阿彻
+**日期**：2014年5月7日 16:03
+**收件人**：瓦迪姆-波扎尔斯基  
+**主题**：访问哈萨克斯坦/签证问题
 
-正义与邪恶永远没有中间，我们应该摒弃平庸之恶。一息尚存，都应该嫉恶如仇，为正义而战。举而措之天下之民，谓之事业。相信伟大的美利坚合众国与新中国联邦携手定能闯出一番事业，拯救人类。
+瓦迪姆，
+下周我将提供给你一份哈萨克斯坦的完整行程表，但主要的会议定于6月2日与哈萨克总理马西莫夫举行。 一切都将围绕这次会议展开，主题是确保取得哈萨克已探明储备的最高质量油田。 此外，还将概念性地讨论其他合作。
 
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/F852gRGTr8i6m/)】- 点击spark adobe版
+也请告知你此次行程的其他可能的目的。
 
-了解更多资讯敬请关注：
+此外，31日我在阿拉木图的40岁生日派对也将成为焦点。
 
-【战鹰团Gab】[https://gab.com/himalayahawks](https://gab.com/himalayahawks)
+我们暂定28日傍晚抵达基辅，30日晚饭后或31日清晨离开。周日在阿拉木图逗留，周一和周二在阿斯塔纳开会。
 
-【英国喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
+然后初步的计划是我和Alex从阿斯塔纳前往北京。 如果我们能够在这个时间段内协调中海油合作会议的话，我们希望你和尼古拉也能加入我们。如果中海油合作会议有进展，我们计划6月5日或6日从北京出发前往我们各自的家乡。
 
-【英国喜庄园GTV/盖特】：[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+我今天会跟进瓦迪姆的签证。
 
-【大卫作战室YouTube】[https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
-[!\[\]()!\[\](https://spark.adobe.com/page/F852gRGTr8i6m/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/F852gRGTr8i6m/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+祝福，
+
+德文·阿彻
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29085612/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8812.55.37.png)
+**发件人**：瓦迪姆-波扎尔斯基
+**收件人**：德文-阿彻
+**日期**：2014年5月8日 4:24AM
+**主题**：访问哈萨克斯坦/签证问题
+
+亲爱的阿彻，
+谢谢您的回复。
+我与同僚商议后再回复您。
+
+祝福， 瓦迪姆
+
+**邮件人物介绍/分析：**
+
+- 发件人瓦迪姆·波扎尔斯基 (Vadim Pozharskyi) ，是乌克兰天 然气公司 Burisma 董事会成员，乌克兰裔。
+- 参考资料:[http://energysecurityforum.org/esf-council/92-vadym-pozharskyi](http://energysecurityforum.org/esf-council/92-vadym-pozharskyi)
+- [Email reveals how Hunter Biden introduced Ukrainian biz man …nypost.com › 2020/10/14 › email-reveals-how-hunter-…](https://nypost.com/2020/10/14/email-reveals-how-hunter-biden-introduced-ukrainian-biz-man-to-dad/)）
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29085715/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8812.56.47.png)
+- 收件人Devon Archer (德文·阿彻) 是亨特·拜登的商务伙伴
+- 参考资料:[https://conservapedia.com/Devon\_Archer](https://conservapedia.com/Devon_Archer)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29085755/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8812.57.36.png)
 0
