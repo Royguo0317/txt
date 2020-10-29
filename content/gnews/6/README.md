@@ -1,37 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特拜登第三波: 硬盘邮件解密 亨特·拜登合伙人德文·阿彻力邀律师西瑟·金加入布利斯马
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/498579/)
+## 爆料革命终极之战系列六：突发！台湾UMC公司认罪并缴纳6000万罚金，以换取保密协议配合美司法部起诉中国国企
+` GM101` [轉載自GNews](https://gnews.org/zh-hans/498727/)
 
-**亨特拜登第三波: 硬盘邮件解密** — 2014年4月22日亨特·拜登合伙人德文·阿彻力邀律师, 鲍伊斯/希勒/弗莱克斯纳律师事务所的合伙人西瑟·金加入布利斯马 。
+美东时间10月28号，美国司法部发布“台湾公司承认涉及中国国企的刑事案件中商业机密盗窃罪”的新闻。
 
-### **邮件：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29064038/790fe5a7-805d-437a-b6d6-981ea7635267.jpg)
-### **邮件中文翻译如下：**
+该新闻明确台湾半导体铸造厂联合微电子公司（UMC）对盗窃商业秘密罪表示认罪，并被判处罚款6000万美元，以换取其与美国政府合作的秘密协议。对其共同被告中国国有企业的调查和起诉。
 
-发件人：Devon Archer (德文·阿彻)
-收件人：Heather King (希瑟·金), Hunter Biden (亨特·拜登)
-日期： 2014年4月22日 21:35
-主题： Burisma (布利斯玛)的后续跟进
+该新闻表示联邦大陪审团于2018年9月对联电（UMC）以及中华人民共和国（PRC）的国有企业，福建金华集成电路有限公司（福建金华）以及三人串谋盗窃提出起诉，为中国的国有企业（福建金华）的利益而转载并拥有美国半导体公司（美光科技有限公司（Micron））的商业机密。根据认罪协议，联华电子将支付其6000万美元的罚款，这是刑事商业秘密起诉中有史以来第二大罚款。
 
-希瑟，
+美国司法部的行动证明了此前纽约之王朱利安尼提到的RICO法案已正式启动，RICO法案特点为让下级犯罪人举证上级犯罪人以换取赦免特权，朱利安尼曾使用该法案解体纽约各大黑帮、911大事件而名动天下。
 
-谢谢你今天抽出时间来，以及在电话中的出色表现（对让你有重复工作之处表示抱歉）。 我期待着与你一起合作，共同完成与布利斯玛的这个非常特殊和潜在的巨大机会。
-
-在处理和执行你的委托书之后，我们应该花30分钟与你通话，来介绍我的公司内部背景、管理层和董事会的情况，以及我们面临的直接挑战。
-
-祝好
-德文
-
-### **邮件人物介绍/分析：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29064909/Screen-Shot-2020-10-29-at-8.48.29-pm.png)
-參考資料：[https://conservapedia.com/Devon\_Archer](https://conservapedia.com/Devon_Archer)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29065021/Screen-Shot-2020-10-29-at-8.50.06-pm.png)
-參考資料：[https://www.bsfllp.com/lawyers/heather-king.html](https://www.bsfllp.com/lawyers/heather-king.html)
-
-
-
-[亨特拜登第三波: 硬盘邮件解密 亨特·拜登合伙人德文·阿彻力邀律师西瑟·金加入布利斯马](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29065947/13-Burisma-follow-up_PR_v3-1.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29065947/13-Burisma-follow-up_PR_v3-1.pdf)
+中共在美国大选前发动攻击拟阻止川普总统连任，道拜登家族贪腐犯罪相关报道被各大社交媒体审查掩盖，琼斯指数连续暴跌。本次台湾UMC公司认罪只是开始，后续将牵扯出该利益链背后重量级人物及相关单位。
 
 0
