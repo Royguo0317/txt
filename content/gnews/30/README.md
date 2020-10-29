@@ -1,21 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【重磅新闻】亨特拜登与奥巴马在白宫的私密录像
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/497195/)
+## 2020年10月28日CCP冠状病毒大流行第277集
+` GM30` [轉載自GNews](https://gnews.org/zh-hans/497250/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28173039/logo-1.jpg)
-
-
+美国又批准新对台军售，中共强烈谴责；美日加强合作对抗中共；喀什封城封门，满地乌鸦；中共暴政下民众下跪喊冤，不要再跪了……
 
 
-
-香草山综合报道
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayanyM)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 3+
