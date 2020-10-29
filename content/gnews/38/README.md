@@ -1,47 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登第三波: 硬盘邮件解密6 2014年5月26日Burisma公司内部邮件显示将有特勤人员加入哈萨克斯坦之行
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/499305/)
+## 谁偷走了拜登家族与中共国和乌克兰国利益勾兑的文件？
+` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/499265/)
 
-前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
+作者：为子孙爱七哥农场 烛阴之子
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29104824/%E5%81%B7%E8%AF%81%E6%8D%AE%E5%B0%81%E9%9D%A2%E5%89%AF%E6%9C%AC.jpg)
+这真是侦探小说的情节： 本周一，福克斯新闻主播搭克 Tucker Carlson 与制作人在洛杉机准备釆访拜登家族公司前CEO Bobulinski 有关拜登家族与中共国和乌克兰国利益勾兌的节目时，突然收到某消息来源，表示愿意提供有关拜登的机密文件合辑。塔克确认了文件来源的真实性及其具备的杀伤力，让制作人马上通过纽约某家物流公司寄给他。当天下午，邮件从曼哈顿寄出。
 
-**亨特拜登第三波：硬盘邮件解密
-2014年5月26日Burisma公司内部邮件显示将有特勤人员加入哈萨克斯坦之行 **
+诡异的是，次日上午塔克接到物流公司的留言：清晨3:44分，另一个州负责分拣的工作人员发现包裹已被打开，里面的文件不翼而飞了！
 
-### 邮件：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29101730/6bf1785d-2fdd-43ff-9008-c1c41dcb132d.jpg)
-### **邮件中文翻译如下：**
+物流公司根据邮寄方提供的包裹照片，彻查了邮件经过的收件处、飞机、货运车……每个环节与经手人，依然毫无头绪。塔克说，该公司不明白到底发生了什么，甚至想不出任何合理的理由来说明这与六天之后的大选息息相关的文件发生了什么。由于事关生意与名誉，该公司总裁为此感到莫名其妙，并无比焦虑。塔克表示，自己也深有同感。
 
-**发件人：**瓦迪姆·波扎尔斯基 （Vadim Pozharskyi）
-**收件人：**塞巴斯蒂安·蒙塔奇（Sebastian Momtazi）
-**抄送**：亨特·拜登（Hunter Biden）, 德文·阿彻（Devon Archer）
-**日期：**2014年5月26日 上午11:16
-**主题：**（无）
+脑洞一下吧，这批从纽约曼哈顿寄出的文件为什么具有如此高的信誉，以致于福克斯这位名嘴当场接受，并相信它对拜登大选有杀伤力？是谁如此害怕这批文件曝光以致于不择手段，光天化日之下让文件“消失”？虽然他们明知邮寄者手中一定有备份。
 
-亲爱的塞巴斯蒂安（Sebastian）：
+也许不用多久，福尓摩斯就会揭开谜底。此举只是让世人更加了解，经过这几天爆料革命推出的“硬盘门”大料，美国大选形势己然扭转，作恶的一方是多么恐慌而不择手段啊！
 
-请问有多少特勤人员将加入我们的哈萨克斯坦之行，以便我们安排一个合适的包机。
+**更多精彩资讯请关注：**
 
-此致，
+- 为子孙爱七哥农场官方推特：[https://twitter.com/wzsaqg](https://twitter.com/wzsaqg)
+- 为子孙爱七哥农场官方GTV号：[https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
+- 欢迎加入农场discord官方群：[https://discord.gg/mZG9MtM](https://discord.com/invite/2vXAV6G)
 
-瓦迪姆（Vadim）
-
-### **邮件人物介绍：**
-
-- **发件人：**瓦迪姆·波扎尔斯基 (Vadim Pozharskyi) 是乌克兰天然气公司 Burisma 的董事会成员，乌克兰裔。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29102420/%E7%93%A6%E8%BF%AA%E5%A7%86%C2%B7%E6%B3%A2%E6%89%8E%E5%B0%94%E6%96%AF%E5%9F%BA.png)
-参考资料：[http://energysecurityforum.org/esf-council/92-vadym-pozharskyi](http://energysecurityforum.org/esf-council/92-vadym-pozharskyi)
-
-- **收件人之一****：**德文·阿彻（Devon Archer）是亨特·拜登的前商业伙伴。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29102654/Screen-Shot-2020-10-30-at-12.26.37-am.png)参考资料：[https://conservapedia.com/Devon\_Archer](https://conservapedia.com/Devon_Archer)
-- **收件人之一：**塞巴斯蒂安·蒙塔奇（Sebastian Momtazi）是德文·阿彻（Devon Archer）的助手。
-
-
-参考资料：[https://www.casemine.com/judgement/us/5bef59bd342cca3d464cd01a](https://www.casemine.com/judgement/us/5bef59bd342cca3d464cd01a)
-
-[亨特·拜登第三波: 硬盘邮件解密6 2014年5月26日Burisma公司内部邮件显示将有特勤人员加入哈萨克斯坦之行](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29103027/5%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29103027/5%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF.pdf)
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20123101/%E5%86%9C%E5%9C%BA%E5%B9%BF%E5%91%8Av7-3.jpg)
 1+

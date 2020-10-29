@@ -1,73 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【1】第三波硬盘邮件解密！乌克兰天然气公司瓦迪姆与亨特·拜登商务伙伴德文·阿彻邮件曝光！
-` GM01` [轉載自GNews](https://gnews.org/zh-hans/498612/)
+## 【台风巨眼】由乌克兰Vadim Pozharskyi至拜登前商业伙伴Devon Archer的邮件谈起
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/499164/)
 
-[该部分高清PDF版请点击下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29092039/10.29proofread.translation-17.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29092039/10.29proofread.translation-17.pdf)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29082650/WhatsApp-Image-2020-10-29-at-12.23.12.jpeg)
-**发件人**：瓦迪姆-波扎尔斯基**收件人**：德文-阿彻
-**日期**：2014年5月7日 7:46AM
-**主题**：访问哈萨克斯坦/签证问题
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28173039/logo-1.jpg)
 
-亲爱的阿彻，
 
-继我们上次交流之后，请告知基辅会议之后您计划访问哈萨克斯坦的几个要点：
 
-日期;访问哈萨克斯坦有确切的日期吗？
 
-对口单位;我们计划会见谁，什么级别，仅会见政治人物在内的最高管理层，还是说我们应该带上我们的地质学家/专家？
 
-会谈内容;我们计划讨论哪些议题、合作方向？
+作者：香草山写作组 Kathy（文艺）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29092155/182-%E3%80%90%E5%8F%B0%E9%A3%8E%E5%B7%A8%E7%9C%BC%E3%80%91%E7%94%B1%E4%B9%8C%E5%85%8B%E5%85%B0Vadim-Pozharskyi%E8%87%B3%E6%8B%9C%E7%99%BB%E5%89%8D%E5%95%86%E4%B8%9A%E4%BC%99%E4%BC%B4Devon-Archer%E7%9A%84%E9%82%AE%E4%BB%B6%E8%B0%88%E8%B5%B7-1.jpg)
+“台风调查报告”里的这张关系网，揭开了前美国务卿，联邦参议员，美国民主党2004年提名的总统参选人John Kerry（克里） 及其继子 Christopher Heinz（海因茨）在其中的位置。而今天由爆料革命释放出的一份由乌克兰裔Vadim Pozharskyi（瓦蒂姆）的邮件，又牵出了另一中间人-收件人Devon Archer（阿彻）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29092223/182-%E3%80%90%E5%8F%B0%E9%A3%8E%E5%B7%A8%E7%9C%BC%E3%80%91%E7%94%B1%E4%B9%8C%E5%85%8B%E5%85%B0Vadim-Pozharskyi%E8%87%B3%E6%8B%9C%E7%99%BB%E5%89%8D%E5%95%86%E4%B8%9A%E4%BC%99%E4%BC%B4Devon-Archer%E7%9A%84%E9%82%AE%E4%BB%B6%E8%B0%88%E8%B5%B7-2.jpg)
+据媒体公开报道，阿彻曾在2004年担任克里竞选总统的高级顾问。“华尔街日报”还爆料称，阿彻在大学时，还是克里继子海因茨的室友。而阿彻与亨特拜登的关系更早，91年就一起建立私募基金公司Rosemont Investment Group(罗斯蒙特资本)，那时亨特才二十出头。阿彻是亨特和海因茨的公司Rosemont Seneca Partners,LLC的合作伙伴。
 
-如果我们要讨论与哈萨克斯坦的天然气田合作的可能性，那么从哈萨克方面得到关于可能成为谈判主题的天然气田，地区等任何可能的初步信息都将非常有益，这样我们的地质学家/专家将为我们的代表团进行富有成效的谈判做准备。
+Burisma Holidings（布利斯马股份有限公司）是乌克兰最大天然气供应商，亨特拜登自14年到19年间担任此公司的董事。2019年，美国总统特朗普指控乔拜登要求乌克兰解雇一位在调查行动中袒护亨特拜登的律师西瑟-金，而引发特朗普被人揭发向乌克兰政府施压以调查拜登家族，而面临弹劾，而力邀西瑟加入布利斯马的就是这位阿彻。
 
-尼古拉的签证问题你有什么消息吗？
+这封邮件来自乌克兰天然气公司Burisma董事会成员及同事瓦蒂姆，这位乌克兰裔的波兰同事，很有可能就是波兰前总统Aleksander Kwasniewski(克瓦希涅夫斯基）。而收件人Devon Archer(德文-阿彻)就是亨特-拜登的商业伙伴，更准确点说，阿彻就是拜登家族在乌克兰天然气事件的“白手套”。
 
-祝好，瓦迪姆
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29085513/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8812.54.48.png)
-**发件人**：德文-阿彻
-**日期**：2014年5月7日 16:03
-**收件人**：瓦迪姆-波扎尔斯基  
-**主题**：访问哈萨克斯坦/签证问题
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayanyM)！
 
-瓦迪姆，
-下周我将提供给你一份哈萨克斯坦的完整行程表，但主要的会议定于6月2日与哈萨克总理马西莫夫举行。 一切都将围绕这次会议展开，主题是确保取得哈萨克已探明储备的最高质量油田。 此外，还将概念性地讨论其他合作。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-也请告知你此次行程的其他可能的目的。
+圣经故事背景，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-此外，31日我在阿拉木图的40岁生日派对也将成为焦点。
-
-我们暂定28日傍晚抵达基辅，30日晚饭后或31日清晨离开。周日在阿拉木图逗留，周一和周二在阿斯塔纳开会。
-
-然后初步的计划是我和Alex从阿斯塔纳前往北京。 如果我们能够在这个时间段内协调中海油合作会议的话，我们希望你和尼古拉也能加入我们。如果中海油合作会议有进展，我们计划6月5日或6日从北京出发前往我们各自的家乡。
-
-我今天会跟进瓦迪姆的签证。
-
-祝福，
-
-德文·阿彻
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29085612/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8812.55.37.png)
-**发件人**：瓦迪姆-波扎尔斯基
-**收件人**：德文-阿彻
-**日期**：2014年5月8日 4:24AM
-**主题**：访问哈萨克斯坦/签证问题
-
-亲爱的阿彻，
-谢谢您的回复。
-我与同僚商议后再回复您。
-
-祝福， 瓦迪姆
-
-**邮件人物介绍/分析：**
-
-- 发件人瓦迪姆·波扎尔斯基 (Vadim Pozharskyi) ，是乌克兰天 然气公司 Burisma 董事会成员，乌克兰裔。
-- 参考资料:[http://energysecurityforum.org/esf-council/92-vadym-pozharskyi](http://energysecurityforum.org/esf-council/92-vadym-pozharskyi)
-- [Email reveals how Hunter Biden introduced Ukrainian biz man …nypost.com › 2020/10/14 › email-reveals-how-hunter-…](https://nypost.com/2020/10/14/email-reveals-how-hunter-biden-introduced-ukrainian-biz-man-to-dad/)）
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29085715/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8812.56.47.png)
-- 收件人Devon Archer (德文·阿彻) 是亨特·拜登的商务伙伴
-- 参考资料:[https://conservapedia.com/Devon\_Archer](https://conservapedia.com/Devon_Archer)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29085755/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8812.57.36.png)
 0
