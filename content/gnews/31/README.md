@@ -1,9 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 揭示拜登家族罪恶部分二维码链接
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/499022/)
+## 真相拯救生命
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/499345/)
 
-多伦多加喜农场
+*喜马拉雅联盟加拿大农场* *视频制作组*
+
+
 
 0

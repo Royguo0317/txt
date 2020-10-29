@@ -1,28 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 又美企撤离中国：史丹利百得 数千工人一夜间失业
-` GM06` [轉載自GNews](https://gnews.org/zh-hans/498803/)
+## 【1】第三波硬盘邮件解密！乌克兰天然气公司瓦迪姆与亨特·拜登商务伙伴德文·阿彻邮件曝光！
+` GM01` [轉載自GNews](https://gnews.org/zh-hans/498612/)
 
-编辑：雅典娜之矛
+[该部分高清PDF版请点击下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29092039/10.29proofread.translation-17.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29092039/10.29proofread.translation-17.pdf)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29082650/WhatsApp-Image-2020-10-29-at-12.23.12.jpeg)
+**发件人**：瓦迪姆-波扎尔斯基**收件人**：德文-阿彻
+**日期**：2014年5月7日 7:46AM
+**主题**：访问哈萨克斯坦/签证问题
 
-世界巨变的过程中，美国企业正在做出最终的选择。撤离中国市场是目前为止最紧迫的行动。这会给中国市场带来怎样的影响？脱钩和内循环已成事实，中国老百姓在这个过程中恐怕要经受一次经济和心理的强大冲击。职业，收入，经济缩水，粮食安全不确定性，还未退去的疫情大流行都在浮出水面！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29080305/%E5%9B%BE%E7%89%87-20.png)
-美中爆发贸易战以来，陆续有外企把产业链撤离中国。全球最大五金工具企业“史丹利百得”也加入此行列，宣布关闭深圳工厂，估计涉及数千名员工。有分析相信，史丹利百得的决定是因为忍受不了大陆的侵权行为，加上美中关系不明朗，所以最后决定完全撤离中国。
+亲爱的阿彻，
 
-以“构思大胆创新”作为企业口号的史丹利百得，以生产电钻、电批等五金工具闻名全球，名列“财富”杂志五百强企业，上世纪90年代在中国成立子公司，至今研发出一百多种工具系列，透过分销网络销售全球。
+继我们上次交流之后，请告知基辅会议之后您计划访问哈萨克斯坦的几个要点：
 
-广东媒体为庆祝深圳特区成立40周年早前对这家工厂进行专题报道。当时企业高管表示，公司透过充分利用协作机器人等先进技术，大幅削减了生产线所需人手，可是这家全球最大五金工具企业周一（26日）突然发公告，宣布解散深圳子公司，深圳工厂从当天开始停产。
+日期;访问哈萨克斯坦有确切的日期吗？
 
-上传到互连网的公告表示，市场整体环境变化，加上行业内竞争加剧，集团基于战略发展需求，加速重整业务资源，以提升市场竞争力。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29080324/%E5%9B%BE%E7%89%87%C2%B7.png)史丹利百得深圳子公司发出的提前解散公告近日在网上流传。 （互连网图片）
- 
-自从美中爆发贸易站，不少外企已把产业链撤离中国，迁往东南亚。台湾中华经济与金融协会副秘书长曾志超表示， 史丹利百得的产品以出口为主，加上中国未能有效遏制侵权行为，面对艰难处境，选择走这一步是可以理解的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29080430/%E5%9B%BE%E7%89%87-21.png)
-资料显示，史丹利百得在深圳的厂房占地面积54000平方米，雇用数千名员工。综合大陆媒体报道，资方提供的赔偿方案高于法定标准。至于生产线会迁到东南亚还是美国，目前尚未明朗。
+对口单位;我们计划会见谁，什么级别，仅会见政治人物在内的最高管理层，还是说我们应该带上我们的地质学家/专家？
 
-据了解，史丹利百得除了在深圳，在苏州，上海等地也设有生产和研发基地。2010年，百得因搬迁问题曾引发数次罢工，规模最大的一次有数千人参与。
+会谈内容;我们计划讨论哪些议题、合作方向？
 
-援引：[https://www.rfa.org/mandarin/yataibaodao/jingmao/gf-10282020073428.html](https://www.rfa.org/mandarin/yataibaodao/jingmao/gf-10282020073428.html)
+如果我们要讨论与哈萨克斯坦的天然气田合作的可能性，那么从哈萨克方面得到关于可能成为谈判主题的天然气田，地区等任何可能的初步信息都将非常有益，这样我们的地质学家/专家将为我们的代表团进行富有成效的谈判做准备。
 
+尼古拉的签证问题你有什么消息吗？
+
+祝好，瓦迪姆
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29085513/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8812.54.48.png)
+**发件人**：德文-阿彻
+**日期**：2014年5月7日 16:03
+**收件人**：瓦迪姆-波扎尔斯基  
+**主题**：访问哈萨克斯坦/签证问题
+
+瓦迪姆，
+下周我将提供给你一份哈萨克斯坦的完整行程表，但主要的会议定于6月2日与哈萨克总理马西莫夫举行。 一切都将围绕这次会议展开，主题是确保取得哈萨克已探明储备的最高质量油田。 此外，还将概念性地讨论其他合作。
+
+也请告知你此次行程的其他可能的目的。
+
+此外，31日我在阿拉木图的40岁生日派对也将成为焦点。
+
+我们暂定28日傍晚抵达基辅，30日晚饭后或31日清晨离开。周日在阿拉木图逗留，周一和周二在阿斯塔纳开会。
+
+然后初步的计划是我和Alex从阿斯塔纳前往北京。 如果我们能够在这个时间段内协调中海油合作会议的话，我们希望你和尼古拉也能加入我们。如果中海油合作会议有进展，我们计划6月5日或6日从北京出发前往我们各自的家乡。
+
+我今天会跟进瓦迪姆的签证。
+
+祝福，
+
+德文·阿彻
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29085612/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8812.55.37.png)
+**发件人**：瓦迪姆-波扎尔斯基
+**收件人**：德文-阿彻
+**日期**：2014年5月8日 4:24AM
+**主题**：访问哈萨克斯坦/签证问题
+
+亲爱的阿彻，
+谢谢您的回复。
+我与同僚商议后再回复您。
+
+祝福， 瓦迪姆
+
+**邮件人物介绍/分析：**
+
+- 发件人瓦迪姆·波扎尔斯基 (Vadim Pozharskyi) ，是乌克兰天 然气公司 Burisma 董事会成员，乌克兰裔。
+- 参考资料:[http://energysecurityforum.org/esf-council/92-vadym-pozharskyi](http://energysecurityforum.org/esf-council/92-vadym-pozharskyi)
+- [Email reveals how Hunter Biden introduced Ukrainian biz man …nypost.com › 2020/10/14 › email-reveals-how-hunter-…](https://nypost.com/2020/10/14/email-reveals-how-hunter-biden-introduced-ukrainian-biz-man-to-dad/)）
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29085715/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8812.56.47.png)
+- 收件人Devon Archer (德文·阿彻) 是亨特·拜登的商务伙伴
+- 参考资料:[https://conservapedia.com/Devon\_Archer](https://conservapedia.com/Devon_Archer)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29085755/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8812.57.36.png)
 0
