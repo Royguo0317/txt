@@ -1,33 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登第三波: 硬盘邮件解密5 2014年4月22日亨特·拜登合伙人德文·阿彻向亨特汇报布利斯马公司在塞浦路斯的注册信息
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/499128/)
+## 【热点播报】地狱式硬盘将埋葬群魔罪恶的灵魂，文明的车轮滚滚驶入美好未来
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/499308/)
 
-前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
-
-**亨特拜登第三波：硬盘邮件解密
-2014年4月22日亨特·拜登合伙人德文·阿彻向亨特汇报布利斯马公司在塞浦路斯的注册信息，包括注册编号和地址 **
-
-### 邮件：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090007/15-%E9%82%AE%E4%BB%B6%E5%9B%BE%E7%89%87.jpg)
-### **邮件中文翻译如下：**
-
-**发件人：** 德文·阿彻 (Devon Archer )
-**收件人：**亨特·拜登 (Hunter Biden)
-**日期： **2014年4月22日 凌晨03:08
-**主题：** 布利斯玛 (Burisma) 的信息
-
-Burisma控股有限公司在塞浦路斯共和国注册成立，公司编号为HE […]，公司注册地址为:
-
-Archiepiskopou Makariou III，[…]
-
-德文·阿彻
-
-### **邮件人物介绍/分析：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29092012/Screen-Shot-2020-10-29-at-11.19.49-pm.png)參考資料：[https://conservapedia.com/Devon\_Archer](https://conservapedia.com/Devon_Archer)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29092015/Screen-Shot-2020-10-29-at-11.20.00-pm.png)參考資料：[https://www.bsfllp.com/lawyers/heather-king.html](https://www.bsfllp.com/lawyers/heather-king.html)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28173039/logo-1.jpg)
 
 
-[亨特·拜登第三波: 硬盘邮件解密5 2014年4月22日亨特·拜登合伙人德文·阿彻向亨特汇报布利斯马公司在塞浦路斯的注册信息](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29091234/15-Burisma-info.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29091234/15-Burisma-info.pdf)
+
+
+
+作者：香草山写作组 Daxia 编辑：文位
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29101945/184-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E5%9C%B0%E7%8B%B1%E5%BC%8F%E7%A1%AC%E7%9B%98%E5%B0%86%E5%9F%8B%E8%91%AC%E7%BE%A4%E9%AD%94%E7%BD%AA%E6%81%B6%E7%9A%84%E7%81%B5%E9%AD%82%EF%BC%8C%E6%96%87%E6%98%8E%E7%9A%84%E8%BD%A6%E8%BD%AE%E6%BB%9A%E6%BB%9A%E9%A9%B6%E5%85%A5%E7%BE%8E%E5%A5%BD%E6%9C%AA%E6%9D%A5.png)
+文贵先生以三年多的呕心呖血，引领全球战友，发动出一场以正义良知推翻邪恶政权的伟大爆料革命，并且在2020年6月4日诞生了伟大的新中国联邦！宣言＂灭共是正义的需要＂！以《路德社》等平台为窗口，秉承爆料革命的唯真不破，向世界传递真相，拯救中国、美国乃至世界人民于CCP病毒肆虐，以及未来的水深火热之中；披露中共勾结以美国内部蛀虫为首的西方邪恶势力，发动反人类的生物武器等超限战，制造投放人工合成冠状病毒，以威害全人类生命为代价，为中共家族金字塔式的人体建筑艺术项目，实现人类命运共同体；扒开中共以蓝金黄（BGY）手段，要挟各国政要和商界大佬控制世界，以达到奴役全人类的罪恶政治野心！目前随着亨特·拜登权钱色内幕交易的曝光，满屏的奇葩黄、肉臭、铜臭、权臭及各种臭，腐蚀着人类的灵魂以致难以呼吸……
+
+世界被整个黑暗笼罩，也预示着黎明即将到来！
+
+随着地狱式硬盘内幕公开，亨特·拜登大量的恋童、乱伦、毒品、金钱、权力等音、视频和协议一系列罪证曝光，无不透射出其背后权钱色交易的黑暗，官商勾结以出卖国家利益为基础，以剥夺人民巨额财富为代价为己谋私。随着一个个世纪大鳄争先恐后跃出水面，乔·拜登家族、奥巴马、克林顿夫妇及小布什等家族，被操控的Facebook 、Twitter 、YouTube 、CNN等各大媒体，比尔·盖次、华尔街世界金融大亨，福奇为首的医学元佬、世界顶尖医学界，世界公共卫生组织WHO，下至各州议员及各间谍机构，无不被中共渗透影响。摧毁世界上最后的文明，中共奴役全世界的罪恶嘴脸已被揭开，灭共之战的号角已在全世界拉响！
+
+拜登家族的CEO鲍布林斯基主动向FOX NEWS 说出了真相，亨特·拜登的内幕交易都是在前副总统乔·拜登的权力掩护下，与各官商大佬里应外合进行！世界各国将有无数个象乔·拜登一样的魔头会被挖出公布天下！
+
+世界大魔头习近平向人民喊话，敌人来了，我们14亿人民是不怕嘀，是吓不倒嘀。相信真相不会永远被掩盖，他的虚假谎言，无形中反而帮助爆料革命坚守的唯真不破，唤醒了正在谎言中沉睡的华人，开启了以共灭共，以美灭共的新时代。历史的车轮滚滚向前，将辗碎中共及其群魔罪恶的灵魂，他们将被刻在历史的耻辱柱上，永不得翻身！
+
+站在现在展望未来，世界的文明将以信仰＂白纸式＂重新开启，谱写真善美的新时代！
+
+更多详情证据点击以下中文报告链接：[https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/23095636/拜登家族与中共关系调查报告中文版.pdf](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/23095636/拜登家族与中共关系调查报告中文版.pdf)
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayanyM)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

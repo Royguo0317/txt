@@ -1,50 +1,96 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 匈各界名流：已成中共蓝金黄锁定目标
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/499950/)
+## 亨特把中共蓝金黄中的“金”用上了，却被抓个正着
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/500046/)
 
-*新闻来源：《Hungary Today》；作者：Hungary Today；发布时间： 2020年10月22日*
+*新闻来源：The National Pulse《国家脉动》；作者：Natalie Winters, Raheem Kassam；发布时间： 2020年10月26日*
 
-*翻译/简评：《1984》；校对：文明明；审核：InAHurry；Page：草根 文人*
+*翻译/简评：文明明；校对：Beicy-数学老师；审核：TCC；Page：拱卒*
+
+[!\[\]()!\[\](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/959f81ba-a608-4abb-8697-e32262bdbd00.jpg?asset_id=c8b55efc-314e-4fb5-9647-1b1c9ce07230&amp;img_etag=%2273897f98f4cd84ad423c506f01882de5%22&amp;size=1024)](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/959f81ba-a608-4abb-8697-e32262bdbd00.jpg?asset_id=c8b55efc-314e-4fb5-9647-1b1c9ce07230&amp;img_etag=%2273897f98f4cd84ad423c506f01882de5%22&amp;size=1024)
 
 **简评：**
 
-中共国深圳振华全球大规模监控数据泄露事件终于延烧到“老朋友“匈牙利政府。据匈主流媒体报道，该数据库惊现710名匈牙利个人信息。在爆出现任总理，匈最有权势的人物维克多·欧尔班及其家人也在其中后，匈国家调查局立即宣布对该事件展开调查。初步确认的名单显示，中共国感兴趣的“猎物”远远不止于政府各级机构官员、议员，国企历任现任高管，甚至与权势人物相关的律师都是他们监控并实施“蓝金黄”的对象。
+《国家脉动 》近日发布了一系列亨特拜登的电子邮件。 邮件揭示亨特拜登 按照他＂外国＂商业伙伴要求，把一些人带进了白宫和副总统府。作为报酬，他得到了艺术品，享用度假别墅的权利和潜在的商业机会。
 
-值得一提的是，今年8月11日蓬佩奥国务卿出访奥地利、斯洛文尼亚、捷克、波兰中欧四国，刻意避开了位于中间的匈牙利，此举被看作是对匈牙利与中共深度勾兑的警告。而两周后，8月24日匈牙利外长西雅尔多成为疫情之后首位访华的欧盟国家外长，被中共官媒争相报道。不知这位外长个人和家人资料是否也在深圳振华数据库里？
+文章中涉及的外国合作伙伴是指米格尔·阿莱曼·马格纳尼（Miguel Aleman Magnani）。马格纳尼是墨西哥前总统的孙子，是墨西哥首富之一的儿子，也是墨西哥航空公司Interjet的首席执行官。根据马格纳尼的要求，亨特把马格纳尼名单上的人一一带进了白宫和副总统的府邸， 甚至是就职典礼。有趣的是即便亨特兑现了马格纳尼所要求的每一件事，但是马格纳尼仍然对他爱理不理。显然， 除了相关利益捆绑，即使他的同伙也对亨特的人品不齿。
 
-这件事在拜登家族硬盘门丑闻曝光之后格外引人注目。匈牙利在多大程度上被中共“蓝金黄”？中共国如何使用这些数据？事实上，任何与中共有过勾兑的各国政界、商界、演艺界、媒体、科学界，都处于胆战心惊、度日如年的状态。
+电子邮件还涉及了与亨特有关的乌克兰伯里斯马（Burisma）公司与马格纳尼的家族公司阿莱曼集团（Aleman Group）之间的交易，在这项交易中丑闻缠身的伯里斯马（Burisma）公司获得了参与墨西哥石油公司Pemex私有化机会 。
 
-讽刺的是，至今匈政府仍使用华为作为其5G供应商，为中共的“蓝金黄”继续提供重要的抓手。
+这些曝光的邮件实锤证实了亨特利用副总统老爸的关系进行以外国人利益为前提的钱权交易， 并从中牟利。这些在中共国被特权阶层玩剩下的伎俩，被亨特搬到了美国，运用到他的商业交往中。看来亨特拜登在中共国的所获真的是十分的丰硕。
 
-#### 匈各界名流：已成中共蓝金黄锁定目标（匈牙利警方介入调查中共监控数据库）
+**独家新闻：亨特-拜登 “把外国商业伙伴所要求的每一个人带进白宫和副总统府”，作为交换，他得到了艺术品和享用度假别墅的权利**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GOc6qnZ2XMH8Y/images/96b50187-672f-4a75-8c5a-db83183644b0.jpg?asset_id=d6afba17-e6f2-4e00-b978-a48658baf332&amp;img_etag=%22cf2af788d2aa0b0d063166827660ff7e%22&amp;size=1024)](https://spark.adobe.com/page/GOc6qnZ2XMH8Y/images/96b50187-672f-4a75-8c5a-db83183644b0.jpg?asset_id=d6afba17-e6f2-4e00-b978-a48658baf332&amp;img_etag=%22cf2af788d2aa0b0d063166827660ff7e%22&amp;size=1024) 维克多·欧尔班总理
+**《国家脉动》获得的电子邮件显示，前副总统和现任民主党总统候选人乔-拜登的儿子亨特-拜登安排了一名墨西哥商人与白宫官员会面，其中包括他的父亲，作为回报，亨特得到了艺术品，享用度假别墅，以及参与潜在的商业项目。**
 
-据（匈牙利主流媒体）RTL电视台报道，国家调查局正在对收集710名匈牙利人数据的中共国监控数据库进行调查，因为该数据库滥用个人信息。
+向亨特提供这些礼物的人是米格尔·阿莱曼·马格纳尼（Miguel Aleman Magnani）。
 
-近日爆出的一个240万人的全球监控数据库，显示中共国正在全球范围内收集和监控信息。名单中还包括710个匈牙利人，其中包括主要的和地方政府官员及其家庭成员、公司高管、记者和军官。总理维克多·欧尔班（Viktor Orbán）和他一个女儿的名字也赫然在目，对此，匈政府随即启动了调查。
+[!\[\]()!\[\](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/14f09ffb-70f2-4849-a6bf-b7aa27160fe0.jpg?asset_id=09176ad0-f560-4174-9c77-6a7617c1f4e0&amp;img_etag=%224f1cc79a03ff96e582535006d02ad068%22&amp;size=1024)](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/14f09ffb-70f2-4849-a6bf-b7aa27160fe0.jpg?asset_id=09176ad0-f560-4174-9c77-6a7617c1f4e0&amp;img_etag=%224f1cc79a03ff96e582535006d02ad068%22&amp;size=1024)向亨特提供这些礼物的人是米格尔·阿莱曼·马格纳尼（Miguel Aleman Magnani）
 
-虽然目前爆出的只是数据库中被修复的一小部分，但是，中共国可能已经收集了数千匈牙利人的数据。最先爆料的自由欧洲 (Szabad Európa)公布了他们能明确识别的393人中315人的名字。
+*亨特-拜登在邮件中写道：”我真的很感谢你让我住在你的度假别墅里…… 你让我把这些人带进白宫和副总统家， 以及就职典礼上， 我都一一做到了。”*
 
-名单上的大多数都是现任和前任议员及其亲属。建立该数据库的中共国深圳振华数据信息公司对政府行政人员尤其感兴趣：上至国家最高行政长官，下至地方行政主席，但绝不止于此。该名单可能包括所有历任总理，因为在数据库中可以找到所有总理们至少一位亲属的名字，例如前总理彼得·迈杰希（Péter Medgyessy）和戈尔东·鲍伊瑙伊（Gordon Bajnai）的亲属，还有维克多·欧尔班总理的一个孩子的名字也在其中。另外： Szabad Európa(自由欧洲) 还在数据库中发现了一名乡村市长和一名区代表的名字。
+马格纳尼（Magnani）是墨西哥前总统的孙子，也是墨西哥首富之一的儿子，是墨西哥航空公司Interjet的首席执行官（CEO）。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GOc6qnZ2XMH8Y/images/f96b6245-3bd5-4950-b6d2-fdfa03610075.png?asset_id=970c0f4b-b92b-48b0-b31b-0a7d398cce6a&amp;img_etag=%22a506d4a132ae59a425df8cf3a1b0d34a%22&amp;size=2560)](https://spark.adobe.com/page/GOc6qnZ2XMH8Y/images/f96b6245-3bd5-4950-b6d2-fdfa03610075.png?asset_id=970c0f4b-b92b-48b0-b31b-0a7d398cce6a&amp;img_etag=%22a506d4a132ae59a425df8cf3a1b0d34a%22&amp;size=1024)
+在2016年2月24日的一封电子邮件中，罗伯特-“亨特 “-拜登联系了马格纳尼，似乎在感叹自己被一个他曾经帮助过并引见给白宫的人所忽视了。
 
-名单上有许多亲政府的政客，包括司法部长尤蒂特·瓦尔加(Judit Varga)、农业部长伊什特万·纳吉（István Nagy）、教会、少数民族和民政事务国务秘书米克洛什·舒勒德斯（Miklós Soltész）、欧尔班总理的新闻主管拜勒达兰· 哈瓦什（Bertalan Havasi），以及青民盟(Fidesz)通讯主任伊什特万·霍利克（István Hollik）。自由欧洲(Szabad Európa)还发现了安塔勒·罗冈（Antal Rogán）部长、国务秘书本茨·涂松（Bence Tuzson）、雅诺什·拉萨尔（János Lázár）、拉佑什·廓沙（Lajos Kósa）、拉斯洛·托洛詹尼（László Trócsányi）、伊什特万·塔洛什（István Tarlós）和雅诺什·马拉托尼（János Martonyi）等人子女的名字。
+[!\[\]()!\[\](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/154d238b-99b2-4d28-bbc6-fdb25e9b8128.png?asset_id=efdae6f3-9c7a-4eb4-9374-2a0a9af8d3e1&amp;img_etag=%2228ff876e67665c96e1214821aa50bac7%22&amp;size=2837)](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/154d238b-99b2-4d28-bbc6-fdb25e9b8128.png?asset_id=efdae6f3-9c7a-4eb4-9374-2a0a9af8d3e1&amp;img_etag=%2228ff876e67665c96e1214821aa50bac7%22&amp;size=1024)
 
-数据库中还包括几十名现任和前任外交官及其一些直系亲属的姓名，以及16名法官和宪法法官的名字；另外，可能由于以前从事与政治相关的工作，国家审计局局长拉斯洛·多莫寇什（László Domokos）和前匈牙利科学院院长约瑟夫·帕林卡什（József Pálinkás）也在名单上。
+在邮件中，亨特透露说他 “已兑现了马格纳尼（Magnani）要求的每一件事”。
 
-除了几位税务官员榜上有名外，众多匈牙利国企高管也是中共关注的对象。领导层上榜的公司包括匈牙利国家银行（National Bank of Hungary）、匈牙利国家铁路公司MÁV、布达佩斯公共交通公司BKK、公共采购局(Public Procurement Authority)、匈牙利国家资产管理公司（MNV）、匈牙利国家财政部(Hungarian State Treasury)、匈牙利邮政(Magyar Posta)、进出口机构HEPA、三家前石油公司及天然气公司MOL。除此以外，参与了帕克什（Paks)核电站管理的几人也出现在数据库中，以及律师伊万·萨博（Iván Szabó），他除了在匈牙利代表（普京的）原子能公司（Roszatom）公司外，还处理了多个与（维克多·欧尔班的）青民盟（Fidesz）相关的重要事务。
+亨特帮助马格纳尼（Magnani）完成的事情包括亨特按照马格纳尼（Magnani）的要求，把马格纳尼（Magnani）要求的每一个人都带到了白宫和副总统家，以及就职典礼上。
 
-军情部门将于下周二向国家安全委员会报告此事的调查结果。外交和贸易部拒绝发表评论，但此前曾表示，中方的行为是一种“企图操纵”的表现。
+*自从我为卡洛斯（Carlos）和你爸爸安排了会面后就一直没有你的消息了。我们已经谈了7年的商业项目和合作。我真的很感谢你让我住在你的度假别墅里…… 你让我把这些人带进白宫和副总统家， 以及就职典礼上， 我都一一做到了。*
 
-图片来自总理办公室
+邮件除了透露马格纳尼（Magnani）让亨特 “住在他的度假别墅 “外，还显示 “米格尔（Miguel） “赠送了亨特艺术品。
 
-[原文链接](https://hungarytoday.hu/hungarian-police-investigate-chinese-surveillance-database/)
+2017年1月9日的一封电子邮件显示，Rosemont Seneca Partners高级顾问Joan Peugh 在一个亨特”一定要做卻尚未完成的”清单上，记载着对米格尔（Miguel）赠送的一件艺术品 “需要说谢谢”。
 
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/GOc6qnZ2XMH8Y/)】-点击spark adobe版
+[!\[\]()!\[\](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/44e11be5-3afc-4e92-a308-7b4b30c62aee.png?asset_id=dbaf0de5-a1b7-41f8-8c58-dbd16d6efb55&amp;img_etag=%22bfb46a249ae2df8ae9a5ea5c13060eb2%22&amp;size=2560)](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/44e11be5-3afc-4e92-a308-7b4b30c62aee.png?asset_id=dbaf0de5-a1b7-41f8-8c58-dbd16d6efb55&amp;img_etag=%22bfb46a249ae2df8ae9a5ea5c13060eb2%22&amp;size=1024)
+
+亨特与这位墨西哥商人关系密切，亨特甚至被邀请参加他的50岁生日派对，而下面的邮件中描述的生日派对被推迟了。
+
+***英语译文：***
+
+*亲爱的朋友们,*
+
+*我很高兴看到大家对我的50岁生日庆祝活动的反应和兴趣。*
+
+*不幸的是，由于一股更强大的压力，我们必须将聚会推迟到新日期，我们将很快通知您，希望能够依靠您的光临庆祝活动。*
+
+*问候您。*
+
+*米格尔·阿莱曼·马格纳尼（Miguel Aleman Magnani）*
+
+[!\[\]()!\[\](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/d0c24cb3-5042-44a6-8231-348ee8a3de3f.png?asset_id=b3d8e860-726d-4690-98a0-8dff9c8f6b35&amp;img_etag=%22197fb52b650531e8f17f1c0474e4f3f8%22&amp;size=2560)](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/d0c24cb3-5042-44a6-8231-348ee8a3de3f.png?asset_id=b3d8e860-726d-4690-98a0-8dff9c8f6b35&amp;img_etag=%22197fb52b650531e8f17f1c0474e4f3f8%22&amp;size=1024)
+
+**曾在墨西哥的一次犯罪**
+
+布里斯马（Burisma）公司是一家颇具争议的乌克兰石油公司，亨特曾在该公司的董事会任职，还与Pemex公司—-一家国有的墨西哥石油公司有业务往来。
+
+电子邮件显示， 2015年1月27日， 亨特在与马格纳尼（Magnani）的家族公司阿莱曼集团（Aleman Group）合作中一封的电子邮件表明，丑闻缠身且有寡头主导的伯里斯马（Burisma）公司获得了参与”Pemex私有化的机会 “。
+
+这封邮件阐述了交易中的利益相关方亨特、马格纳尼（Magnani）的阿莱曼集团（Aleman Group），以及亨特的其他合伙人，如德文-阿彻（Devon Archer）和杰夫-库珀（Jeff Cooper ），在交易得以实现后计算报酬的方法。
+
+亨特还提到了2月27日在墨西哥城的一次会议，该会议是在时任副总统乔-拜登访问该地区，与墨西哥总统和众多高级顾问举行会谈的几天后举行的。目前仍不清楚乔-拜登是否出席了下面提到的会议。
+
+*一旦我们完成了上述工作，我们应该能够很好地利用计划于2月27日在墨西哥城举行的会议。*
+
+[!\[\]()!\[\](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/9917971d-9397-4cba-81de-31b9cfe05a68.png?asset_id=adc67b25-2b74-4e86-acb4-c83a64ca991b&amp;img_etag=%22968c9736ca8b24d743dc8b3cf83979d4%22&amp;size=1024)](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/9917971d-9397-4cba-81de-31b9cfe05a68.png?asset_id=adc67b25-2b74-4e86-acb4-c83a64ca991b&amp;img_etag=%22968c9736ca8b24d743dc8b3cf83979d4%22&amp;size=1024)
+
+随后的邮件显示，德文-阿彻（Devon Archer）试图协调该交易的支付事务。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/a5282595-6596-4a27-bc21-320d0fc9e5c9.png?asset_id=166acef6-d82d-40d9-82b4-6c810be0580e&amp;img_etag=%2221627077159c58af32d173cf6bfa4e07%22&amp;size=1024)](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/a5282595-6596-4a27-bc21-320d0fc9e5c9.png?asset_id=166acef6-d82d-40d9-82b4-6c810be0580e&amp;img_etag=%2221627077159c58af32d173cf6bfa4e07%22&amp;size=1024)
+
+*亲爱的Laura:*
+
+*根据你的邮件，下面是你所要求的信息，并附上所有出席人员的护照复印件：*
+
+[!\[\]()!\[\](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/a52bb104-0f79-4d2b-aac5-7e7d191b9aff.png?asset_id=8f943e9d-e18f-48cc-a02f-9d54ddd60824&amp;img_etag=%22d367c4d7d5f645f0e69514004237b405%22&amp;size=3059)](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/a52bb104-0f79-4d2b-aac5-7e7d191b9aff.png?asset_id=8f943e9d-e18f-48cc-a02f-9d54ddd60824&amp;img_etag=%22d367c4d7d5f645f0e69514004237b405%22&amp;size=1024)
+
+[原文链接](https://thenationalpulse.com/exclusive/biden-leveraged-meetings-for-art-vacations-and-more/)
+
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/AS6T6tj9hFiP6/)】-点击spark adobe版
 
 更多资讯敬请关注：
 
@@ -58,6 +104,6 @@
 
 【大卫作战室YouTube】：[https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GOc6qnZ2XMH8Y/images/4de77974-959d-450e-a872-0f79453161c6.jpg?asset_id=c1e52e6e-f3f9-4c3b-825a-2ec1bdba558c&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/GOc6qnZ2XMH8Y/images/4de77974-959d-450e-a872-0f79453161c6.jpg?asset_id=c1e52e6e-f3f9-4c3b-825a-2ec1bdba558c&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0
