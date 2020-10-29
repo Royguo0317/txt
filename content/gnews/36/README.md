@@ -1,11 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 沧海一声啸 澳洲昆州惩贼版
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/497078/)
+## 10/25/2020 Ron Johnson议员讲述其在进行拜登家族涉及的海外交易的调查时所遇到的重重阻力
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/497094/)
 
-2020年10月24日上午11时，墨尔本雅典娜农场成员与20多位来自印度、澳洲、美国、新西兰等国的民众，以及数位台湾志愿者，联合在昆州Wellington Point Recreation Reserve举行了抗议活动。活动参与者高喊：中共间谍，滚出澳洲！抗议中共间谍潘林征掩盖病毒真相，攻击闫丽梦博士，危害澳洲民众安全。来自新西兰的声援者Charlie和印度裔Ruggy甚至当场表示，他们支持新中国联邦，澳洲政府要站出来为病毒真相发声！
+2020年10月25日 Ron Johnson议员讲述其在进行拜登家族涉及的海外交易的调查时所遇到的重重阻力。
 
 
 
-1+
+#### **By: 【秘密翻译组G-Translators】**
+
+2+

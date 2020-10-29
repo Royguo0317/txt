@@ -1,37 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【台风巨眼】参与拜登家族贪腐案的中共间谍头子何志平
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/495311/)
+## 2020.10.16｜G翻身上线 · 我的心情
+` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/428524/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28173039/logo-1.jpg)
+G|FASHION和G|CLUBS的上线惊艳了全球战友！在2020.10.16，2020.10.17这两个特别的日子里，很多战友通过我们的征集活动表达了自己的激动心情以及对G|FASHION和G|CLUBS的祝福。我们汇编了一部分优秀作品，以此致敬郭先生，致敬G系列所有团队工作人员，以及全球为之付出努力的战友们！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/16144411/image111.jpg)图/为子孙爱七哥农场 lau-文房四宝
+超限战中引领时尚潮流，引领时尚潮流中决胜超限战！
 
-**香草山写作组 ：Kathy（文艺）**
+——澳喜农场 安红
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/16143925/image3-2.jpg)
+G|CLUBS是正义的企业，G|CLUBS是全球战友用爱创造的企业，G|CLUBS一定是全世界第一有信誉，第一强企业！
 
+——韩国恩典农场 哈恩
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/16144007/1-1-6-scaled.jpg)图/韩国恩典农场 神即道
+G|FASHION，今翻身！ 爆料灭共，全球引领； 揭伪弃假，信仰唯真； 战友弄潮，时尚在今！ 今翻身，真時尚！
 
+——喜澳雅典娜农场 喜马拉雅的文雅
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/16144529/3-1-2-scaled.jpg)图/韩国恩典农场 神即道
+祝G|FASHION初试蹄音： 云想衣裳花想容，春风拂槛露华浓。喜国时尚初绽现，正气风姿领潮流。
 
-据2020年10月28日路德社报道，美国政府已经依据FISA（Foreign Intelligence Surveillance Act) 法案，依照FISA法庭颁发的监视令对拜登家族展开了监听。Tucker Carlson于昨晚采访了亨特拜登前商业伙伴Tony Bobulinski 。从曝出的录音里，亨特拜登本人承认与中共特务头子何志平合作交易的事实。
+——Ezer愛喜兒
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/16153524/2-1-1.jpg)图/韩国恩典农场 神即道
+七哥高屋建瓴带领众战友创造G|FASHION，震撼世界！个人理解其中不止于其商业意义，更包含七哥对于后CCP时代——华人时尚艺术审美和形象重塑的思考，满满包含七哥的大爱，G事业战友们一同努力！！！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28172938/%E3%80%90%E5%8F%B0%E9%A3%8E%E5%B7%A8%E7%9C%BC%E3%80%91%E5%8F%82%E4%B8%8E%E6%8B%9C%E7%99%BB%E5%AE%B6%E6%97%8F%E8%B4%AA%E8%85%90%E6%A1%88%E7%9A%84%E4%B8%AD%E5%85%B1%E9%97%B4%E8%B0%8D%E5%A4%B4%E5%AD%90%E4%BD%95%E5%BF%97%E5%B9%B31.jpg)
+——中原佛手
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/16143905/image011.jpg)图/为子孙爱七哥农场 lau-文房四宝
+献给尊敬的郭文贵先生：明珠昏暗魔鬼现， 鲜血呐喊筑尊严。七子一贵千年出， 誓将明珠做圣殿。
 
-2017年底，前香港特区政府民政事务局长，代表中国华信能源公司（CEFC)的何志平，因向非洲国家行贿在美国被捕，后被驱逐出境。FISA法庭早在2018年2月何志平案中就使用了FISA法案。在愈演愈烈的拜登家族贪腐丑闻中，中国华信能源公司与何志平案件，因牵扯到与中共勾结的关系网，又重回公众视野。
+——加拿大农场 snow（文胜）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28193654/image2-13.jpg)图/为子孙爱七哥农场 lau-文房四宝
+如果说6月2日在康州郭庄诞生的GTV是承载新中国联邦出世之龙，今天的G|Clubs、G|FASHION就是龙翼龙鳞，12月启用的喜币喜元將是注入龙体的血液、激活巨龙的精气神！沉潜千载的盘古龙，终于满载人类的希望与未来腾飞了！
 
-据（大纪元）透露，身为“中华能源基金会”副主席的何志平，为了替其幕后金主“中国华信能源公司” 换取生意上的好处，先后贿赂多名非洲政要。纽约南区法院法庭上有证供显示，被视为前港特首董建华“家臣”的前特首高级助理路祥安，一直知悉此情况并参与游说塞内加尔前外长加迪奥（Cheikh Gadio)。
+——为子孙爱七哥农场 烛阴之子
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28172953/%E3%80%90%E5%8F%B0%E9%A3%8E%E5%B7%A8%E7%9C%BC%E3%80%91%E5%8F%82%E4%B8%8E%E6%8B%9C%E7%99%BB%E5%AE%B6%E6%97%8F%E8%B4%AA%E8%85%90%E6%A1%88%E7%9A%84%E4%B8%AD%E5%85%B1%E9%97%B4%E8%B0%8D%E5%A4%B4%E5%AD%90%E4%BD%95%E5%BF%97%E5%B9%B32.jpg)
+**更多精彩资讯请关注：**
 
-目前，曾与亨特拜登直接见面，洽谈价值40亿美元的天然气港口交易的华信能源老板叶简明已经失联，而当时南区法院检察官以重要证人身份联系过亨特，但不知为何，未能对拜登家族与华信能源的合作关系进行进一步的深入挖掘，这不得不令人怀疑乔拜登在这当中起到的影响。而如今Tony Bobulinski的出面，直接把拜登家族与中共勾兑的事实摆到了台面，而何志平的身份就更加引人注目。
+- 为子孙爱七哥农场官方推特：[https://twitter.com/wzsaqg](https://twitter.com/wzsaqg)
+- 为子孙爱七哥农场官方GTV号：[https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
+- 欢迎加入农场discord官方群：[https://discord.gg/mZG9MtM](https://discord.com/invite/2vXAV6G)
 
-公开资料显示，何志平于1949年7月24日出生于香港，美国范德堡大学医学博士毕业，曾在哈佛大学任助教。80年代返回香港，任教于香港中文大学医学院，成为全港首位眼外科全职教授。1994年起，开始执证营业，后成为眼科名医。
-
-据（星岛日报）报道，何志平曾因为国家领导人治疗眼疾而备受亲睐。93年起，他连续4届担任全国政协委员，96年任职香港特别行政区筹备委员会委员。02-07年担任香港民政事务局局长时，受到特首董建华的赏识。他在任内促成了香港各电视台在新闻时段前播放“心系家国”宣传片，积极推动人心回归。卸任后，他于10年起担任香港中华能源基金会董事以及基金会常务副主席兼秘书长，长期在国际社会推动能源与文化，一带一路，对国际社会尤其是美国进行影响。随着爆料革命的深入进行，贪腐视频中展现出了拜登家族与中共的关系网。而何志平在其中竟然扮演着极其重要的角色，不禁令世人跌破眼镜。
-
-何志平前后曾有两次婚姻，与前妻育有两名子女。最著名的要属第二段婚姻，于97年迎娶台湾影星胡慧中，与胡亦有一名女儿。随着视频的曝出，他“辉煌”的人生从此被葬送在中共对外国政要的蓝金黄计划中！
-
-审核：jamie(文胤)
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文章，欢迎浏览[美东香草山农场GNEWS](https://gnews.org/zh-hans/author/changdao/)！
-
-4+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20123101/%E5%86%9C%E5%9C%BA%E5%B9%BF%E5%91%8Av7-3.jpg)
+3+

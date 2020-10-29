@@ -1,39 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登第三波：硬盘邮件解密【1】
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/497831/)
+## 突发！美国国务院指定和平统一全国协会为中华人民共和国的外国使团
+` GM101` [轉載自GNews](https://gnews.org/zh-hans/498074/)
 
-来自邮件内容：我们的波兰同事，也是Burisma董事会的某位成员，将亲自发表评论，将减轻您现在所遇到的媒体压力。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29030356/Picture29.png)
-### 邮件中文**翻译如下：**
+美东时间10月28号，美国国务院官方宣布将中国和平统一全国协会（NACPU）定性为中共国的外国使团。
 
-**发件人： **瓦迪姆·波扎尔斯基 (Vadim Pozharskyi)
-**收件人：** Hunter Biden (亨特·拜登)、Devon Archer (德文·阿彻)
-**日期：** 2014年5月14日4:49 AM
-**主题：** AK Burisma (乌克兰天然气布利斯玛公司)
+国务院表示人与人之间的交流对于建立文化之间的理解至关重要，但UFWD并不是人与人之间交流的工具。它是中共前线组织用来推进宣传和恶性影响。
 
-亲爱的同事们，谨在此通知您，我们波兰同事今天或之后的几天都将亲自发表评论，他也是董事会的成员。我相信这将有助于减轻你们现在所遇到的媒体压力。
-
-请等波兰同事发布完评论我们再来制定策略。
-
-Отправлено с iPad
-
-### **邮件人物介绍/分析：**
-
-- **发件人**瓦迪姆·波扎尔斯基 (Vadim Pozharskyi) 是乌克兰天然气公司Burisma董事会成员，乌克兰裔。
-
-
-- **收件人之一**Devon Archer (德文·阿彻) 是亨特·拜登的商务伙伴
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29030343/Picture28.png)
-参考资料：[https://conservapedia.com/Devon\_Archer](https://conservapedia.com/Devon_Archer)
-
-- 邮件中的波兰同事，董事会的成员。有可能是波兰前总统Aleksander Kwasniewski
-
-参考资料：[https://www.buzzfeednews.com/article/maxseddon/bidens-son-polish-ex-president-quietly-sign-on-to-ukrainian](https://www.buzzfeednews.com/article/maxseddon/bidens-son-polish-ex-president-quietly-sign-on-to-ukrainian)
-
-
-
+国务院指出统一战线部门（UFWD）是中共的机构，其任务是共同消除和消除对该党统治的威胁，并将其影响力和宣传传播到海外。中共将此党派机构视为推进北京政策的“法宝”。国务院明确根据美国《外国使馆法》指定由UFWD控制的组织，中国和平统一全国协会（NACPU）作为中国的外国使团。
 
 0

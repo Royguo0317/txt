@@ -1,78 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 除了与中共的勾兑，亨特邮件还透露出其失败的商业人缘
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/495220/)
+## 每小时更新‼️独家重磅! 照片里和亨特·拜登一起的是谁?
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/474058/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28162014/1028-4-1.png)图片来源: Crikey
-Revolver新闻 10月27日刊登了他们获取的来自亨特·拜登（Hunter Biden）硬盘中一些未公开的邮件截图，这些邮件显示了亨特和他的商业伙伴之间的矛盾。
+如果该照片给您造成了严重的不适，我们深表歉意！但是正是为了匡扶正义，我们新中国联邦人才将此图片公布于众。因为共产党的朋友就是我们的敌人。
 
-**亨特的合作伙伴艾瑞克 ·史威林（Eric Schwerin）发给亨特的邮件**
-![](https://lh3.googleusercontent.com/VjMrNgY9orkYuMQNl9YS8GZj0k7ZtI906OtLzWmQ0FEmIVSI63QgCtQy-VCBejste9aWpaWl6289QEWXLFAnAtPN13ICGlDa9gyojh2PmTujflgfS56CZ6zJ2QYwchxE3HWAk5dV)
-*亨特，*
+任何人偷盗中国人的钱，我们绝不答应！
+任何人奴役中国人，我们绝不答应！
+任何人玩弄中国人的子女，我们绝不答应！
 
-*只是想知道你对以下内容有什么反馈，或接下来该怎么操作？我同时抄送给乔治（George)。*
+这些图片仅展示了中国共产党蓝金黄计划（BGY）中重要内容的冰山一角。他们利用那些所有贪婪中国财富的西方政客，名人及其家人，通过掌握并录制他们与女性和毒品相关的视频进行威胁，迫使他们出卖自己的国家和人民，甚至出卖其本国的国家安全来配合中国共产党统治世界。
 
-*你可能已经看到了来自王昕（王昕为王岐山私生女）的邮件：渤海华美（BHR）注册资本的转帐。你可能记起这是7月乔纳森（Jonathan）贷给每个美国股东的钱，以便他们可以支付剩余的注册资本。 那些贷款将会用分红来偿还。我认为这实际上是你之前给乔纳森出的主意，目的是避免美国股东多掏现金。*
+美国总统候选人乔·拜登绝对是被共产党百分之百控制，蓝金黄最成功的美国政客之一。他也是共产党搞弱，搞乱，搞死美国的3F重要计划之一！
 
-*我告诉琼（Joan）暂停转账，直到你签字同意为止。*
+中国共产党用此手段威胁拜登父子，并且对他们进行大量的财富贿赂，这就是造成在中国南海以及中美之间的贸易争端，知识产权，能源价格等问题，以及拜登向中共提供大量的CIA在中国的情报人员的重要原因之一。  中国共产党在美国及欧洲多个西方国家都存在这样的的蓝金黄计划。我们将会有数以百万计的视频和相关政府官员，腐败者，卖国者，与共产党勾兑欲统治世界的犯罪者的照片放出来。
 
-这封邮件的内容与亨特在中国私募股权公司渤海华美（BHR）的持股有关。Revolver在以前的文章中披露过亨特和BHR的关系。亨特能加入BHR除了他能带来的政治利益和影响外，看不出有其他任何明显原因。实际上，（中共国的）所有金融投资者或合作伙伴背后都是国家政策性实体、国有实体，或者只是名义上的私营企业。这些投资主要流向中共政府支持的项目和企业。 我们已经能够找到具体的交易条款，其中的金融财务条款涉及将费用和资产输送给特定的一方非正常的商业行为。渤海华美是国家运作，主要股东渤海银行是中国银行的子公司，渤海华美的合作伙伴是向它输送资金资产的中共国有企业。
+不论你来自哪个国家，哪个民族，什么肤色，哪个党派，下一个被虐待的可能就是你的女儿，你的妻子，你的姐妹；所以在消灭中国共产党问题上没有任何党派民族国界之分。
 
-艾瑞克承认渤海华美向美国股东提供了特殊贷款，但明显的一个问题是，所有美国股东都拿到了贷款还是是几个特殊股东？是什么让这些特殊股东特殊化？有意思的是艾瑞克以书面形式将功劳记在亨特名下，以下是相关邮件：
-![](https://lh5.googleusercontent.com/bnH6uy0u8COaluK89sXlx8ARxIuQXE9g_smAqUl19SfgBNVCpX8osNC-9At3l2oorSB_UZWURTxH3xBdGjoKAIbqzUKQVHiK6qQPlnLhL7K5ToSmYB3u5IeOWhEkb988CdPF_7sb)
-*亨特，*
+**您申明，您已年满18周岁或在您访问以下照片的司法管辖区已达到成人年龄，并完全有能力和资格签订本服务条款中规定的条款、条件、义务、申明、陈述和保证，并遵守和履行本服务条款。如果您未满18岁或法定成年年龄，请不要观看以下的任何内容**
 
-*希望我们能尽快解决以下邮件中的一些急迫问题。*
+# **持续更新中!!！**
 
-*1.  让我和(或)乔治（Geroge）知道你对拟议协议构架的重点有什么想法，以便我们可以开始执行。如果你同意的话，我们可以做过条款细节表。*
+## **最新照片**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28030808/Hunter-biden-9.jpeg)
 
-*2.  我想确保你看到主题为“回复:BHR注册的出资”的邮件，并且同意将乔纳森的15万美元贷款支付回渤海华美。如果星期一下班前没得到回复，我就默认你同意这么办，因为我们在夏天时就次讨论过，而你那时是同意的。*
-
-*3.  我还想确保您对提议的款项分配方案满意，这笔钱将在下周作为部分CAF成功费从亚伯（Abel)那里拿到**。**我建议所有这笔款项按比例75/25，四分之三用在从现在到2017年底间的Rosemont Seneca Advisors（亨特的咨询公司）的开支上，非常直接清楚。我再次添加了详细费用的表格附件。扣除费用后，你还会有25-30,000美元的额外进账，我们将转给Owasco（亨特·拜登的律师事务所）。如果星期一下班前没有收到答复，我还将假定你已同意，因为这是需要支付给RSA的费用。*
-
-*如果你能尽快就上述三个问题答复我或乔治，那将是很大的帮助。*
-
-*谢谢。*
-
-艾瑞克对偿还15万美元渤海华美的贷款表现出了一种奇怪的渴望。目前尚不清楚这是否来自之前邮件中所描述的付款。有消息人士向Revolve新闻透露，艾瑞克比较关注贷款的性质，而且希望快速结束与渤海华美之间的私人关系。这只是有根据的推测，但与Revolver工作人员看到的艾瑞克发送的其他邮件相一致。
-
-**下面这封电子邮件表明，艾瑞克已经准备好与亨特划清界限，提出买下他在Rosemont Seneca Advisors 公司的全部股份。**
-![](https://lh6.googleusercontent.com/MYfC4PVO5NsJRn_Yr1QyHWVL-nmNquU2jXXW0fwY8WWP01m3dcQ4E7Gnn7B0NMorBYp_1_0yOyWhV-gnf7ismo65tn3upgfrOVDcaMWtf8sFxplk36OiZ2sou_LBhEsSK2Mms-Gb)
-*亨特，*
-
-*根据你本周早些时候的电子邮件，我想跟进后续步骤，以敲定协议，我们希望最迟在12月底执行。*
-
-*与其让乔治重做条款，不如先找出重点，然后照此开始执行。*
-
-*1.*    *因为Rosemont Seneca Advisors不再有客户了，要解决这个问题，我建议我们的目标应该是使2017年报税成为我们最后一次报税。根据我本周早些时候的邮件，我们应在年底之前共同偿还归RSA的所有债务，并将每项健康保险计划转入我们自己的名下或我们所选择的实体。（健康保险转移可以无缝交接，而计划或保费都没有任何变化。我可以联系帕特里夏（Patricia）请她处理一下，这样你就不会看到任何耽搁）*
-
-*2.*    *我想建议我接管你在RSPI（Rosemont Seneca Partners，亨特与他人成立的经纪人公司）的所有权权益，因为我想着重看看我是否能做些什么。从操作层面上讲，这意味着Skaneateles将把其在RSP控股公司（RSPI的母公司）的权益转让给Aqaba。我认为你的75％不难拿到，也许我可以用一两年的利润支付给你。我认为，作价就是你的这个RSPI空壳公司的行情价格减去欠资本账户的所有债务。由于RSPI目前没有发生任何费用，因此目前的合同都没任何价值。我相信乔治的一些同事可以帮算出个价格。*
-
-*3.*    *因为这与Skaneateles控股的所有剩余资产有关，我建议根据我们的所有权将其分割为75/25。我认为我们必须保持Skaneateles的继续运作，直到我们能够成功转账，然后再将其关闭。*
-
-*可能还有一些其他管理方面的问题，但希望上述内容应该很清楚明了。*
-
-*请告知我或乔治你对以上内容的想法，或如何更好的跟进。*
-
-*谢谢*
-
-**以下是亨特对以上邮件的回复，至少说明了他们之间的紧张关系。**
-![](https://lh6.googleusercontent.com/F6ne_0fFuRwzdADJ2iKroBAE7FFgY4C7N7B-LG5I44wt8QEOXaSgyMrwW1ZTdEr3xBCUAvuGEqFdZBkWv1DW9CrFRfYBgdH6vnFFswMlCXar_-lPPFSXNw2oIy9-qEqbCSDqnRuy)
-*我完全不同意你的邮件所提议的任何事项，未经我明确同意，你无权就我的业务事项做出单方面的决定。你没有理由进入任何与Owasco Skaneateles，RSP，Rosemont Seneca，RSP Advisors Eudora等公司有关的帐户。你不是这些公司的合伙人，也不是我其他全部或大部分拥有公司的合伙人，你是无合同限制员工，我以重大过失为由解雇你。同样，如果你继续与我的朋友在一起，还继续对我进行诽谤我，我会起诉你的，以诽谤罪和挪用公款，还有你拥有25%股份所应该承担的债务。*
-
-*乔治，你可能因为某些未知原因而与我发生冲突，但我不记得艾瑞克让你作他的个人律师。但我很肯定你是我的私人律师才对。*
-
-*艾瑞克，当我接到道格拉斯（Douglas）和道格（Doug）之类不同的人打来电话告诉我说：“刚和艾瑞克一起吃了午餐，你知道他在说什么吗？”当我从卢比（Robi）、克里斯（Chris）和（法兰）Fran等各种各样的人嘴里听到这些时…你他妈的认为我会怎么做。我们已经不是生意伙伴了，你应该考虑搬到佛罗里达州某个我永远不会去的地方。那不勒斯是完美的，你可以与父母永远生活在那里，然后谈论我是一个多么可怕的人。*
-
-无论合作伙伴艾瑞克和亨特之间闹翻的原因是什么，几乎所有和亨特做生意的人要么看不起他，要么会坐牢，或两者兼有。
-
-亨特与商业伙伴克里斯托弗·海因茨（Christopher Heinz）的关系也有问题。海因茨是前参议员兼国务卿约翰·克里（John Kerry）的女婿，邮件中提到的公司 “Rosemont Seneca “是以海因茨家族农场命名的。Revolver新闻人正在对海因茨现况，他与亨特的关系，海因茨在与Rosemont和渤海华美不正当交易中可能有的罪责等进行积极调查。
-
-[原文链接](https://www.revolver.news/2020/10/unseen-emails-does-this-heated-exchange-suggests-hunters-deals-were-too-dirty-for-his-business-associate/)
-
-翻译：Hakunamatata
-
-校对：Sarathecat
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27220425/fd16a030-1283-4fb1-9be5-0acc4f1dd634.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28031407/4bf3e710350544c1e396f7c5c6d03e90.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28012305/hunter-biden-8.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27230932/h1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27231039/h2.jpeg)![This image has an empty alt attribute; its file name is Hunter-Biden-7.jpeg]()![This image has an empty alt attribute; its file name is Hunter-Biden-7.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27181702/Hunter-Biden-7.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27111340/22-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27102026/IMG_4207.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27090421/Image-1-1-1.jpg)![This image has an empty alt attribute; its file name is Image-1-1.jpg]()![This image has an empty alt attribute; its file name is Image-1-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27075100/Image-1-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27064242/11-12.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27053346/hunter-biden-5.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27043034/Hunter-Biden-4.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27043029/Hunter-Biden2-2.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27200058/1-212.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26122300/ec7f2e80273998ee.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26122241/38b4f2d0334fc03d.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26073102/Hunter-Biden3-1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26073100/Hunter-Biden2-1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26073057/Hunter-Biden1-1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26040306/Hunter-Biden-2.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26040802/23542efe00392b1b.jpeg)![](https://api.parler.com/l/rVc5h)![](https://api.parler.com/l/M5B1a)![](https://api.parler.com/l/lQs8e)![](https://api.parler.com/l/0UQE5)![This image has an empty alt attribute; its file name is Hunter-Biden.jpeg]()![This image has an empty alt attribute; its file name is Hunter-Biden.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25185608/Hunter-Biden.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25144743/06fbff5630aebc17c5a14d4deb34b8de.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25133712/a802cfd786b5722bb11275ba28704301-1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25110043/4db08a2ce6b4cb317af8da1680d12997.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25092417/Hunter-Biden20.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25075456/Hunter-Biden19.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063723/Hunter-Biden18.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063310/Hunter-Biden17.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063308/Hunter-Biden16.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063306/Hunter-Biden15.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063303/Hunter-Biden14.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063300/Hunter-Biden13.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063257/Hunter-Biden12.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063254/Hunter-Biden11.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063251/Hunter-Biden10.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063236/Hunter-Biden6.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063244/Hunter-Biden8.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063247/Hunter-Biden9.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063241/Hunter-Biden7.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063220/Hunter-Biden2.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063234/Hunter-Biden5.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063230/Hunter-Biden4.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063215/Hunter-Biden1.jpeg)Who is in this photo with Biden?![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063226/Hunter-Biden3.jpeg)
 0

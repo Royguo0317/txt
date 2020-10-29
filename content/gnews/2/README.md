@@ -1,17 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆料革命终极之战系列五：路德社揭露“拜登硬盘门”持续曝光背景下，习总书记纡尊降贵求教中共元老企图挽回败局
-` GM101` [轉載自GNews](https://gnews.org/zh-hans/497722/)
+## 亨特·拜登第三波：硬盘邮件解密【1】
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/497831/)
 
-美东时间10月28号，爆料革命路德社揭露“拜登硬盘门”持续曝光发酵背景下，中共习近平总书记认识到拜登竞选美国总统难度巨大，故尊降贵求教于中共元老企图挽回败局。
+来自邮件内容：我们的波兰同事，也是Burisma董事会的某位成员，将亲自发表评论，将减轻您现在所遇到的媒体压力。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29030356/Picture29.png)
+### 邮件中文**翻译如下：**
 
-路德指出拜登美国总统大选成败，决定了习总书记的位置稳定。路德表示习总书记能登大位背后关键人物为以拜登为首的美国利益体，拜登提供了习政治对手薄熙来、周永康等人的黑材料助其登上大位，习更是依靠拜登提供的党内人士黑材料控制中共政体至今。
+**发件人： **瓦迪姆·波扎尔斯基 (Vadim Pozharskyi)
+**收件人：** Hunter Biden (亨特·拜登)、Devon Archer (德文·阿彻)
+**日期：** 2014年5月14日4:49 AM
+**主题：** AK Burisma (乌克兰天然气布利斯玛公司)
 
-路德进一步指出拜登竞选失败甚至会导致习的生命危险，因习派的根本以巨大利益为保证，其前提是以拜登为代表的美国政客配合中共以保证利益链持续运转。路德认为拜登竞选失败后，将进一步导致习在党内失势，习在海外的“藏宝图”也将被挖掘，习将处于一个非常危险的境地。
+亲爱的同事们，谨在此通知您，我们波兰同事今天或之后的几天都将亲自发表评论，他也是董事会的成员。我相信这将有助于减轻你们现在所遇到的媒体压力。
 
-习能登大位是中共逆淘汰体制的产物，是江泽民为延续其统治而布局，后因失去控制和习的志大才疏导致了现今的局势。习应该认真看看中国的历史，现在的中共国和历史上朝代更替何其相似，小学学历和大学博士的差距并不能决定个人能力，让国家民主法治和人民真正富有才是能力的体现。
+请等波兰同事发布完评论我们再来制定策略。
 
-留给习的时间不多了，和爆料革命合作是习唯一的正确抉择。郝海东先生的呼吁是发自内心的，毛泽东的经历不能被复制，即使中共成功控制美国，习明泽等人也将成为下一个亨特拜登，当习打破共产体系的那一刻起，中共就已进入解体倒计时。
+Отправлено с iPad
+
+### **邮件人物介绍/分析：**
+
+- **发件人**瓦迪姆·波扎尔斯基 (Vadim Pozharskyi) 是乌克兰天然气公司Burisma董事会成员，乌克兰裔。
+
+
+- **收件人之一**Devon Archer (德文·阿彻) 是亨特·拜登的商务伙伴
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29030343/Picture28.png)
+参考资料：[https://conservapedia.com/Devon\_Archer](https://conservapedia.com/Devon_Archer)
+
+- 邮件中的波兰同事，董事会的成员。有可能是波兰前总统Aleksander Kwasniewski
+
+参考资料：[https://www.buzzfeednews.com/article/maxseddon/bidens-son-polish-ex-president-quietly-sign-on-to-ukrainian](https://www.buzzfeednews.com/article/maxseddon/bidens-son-polish-ex-president-quietly-sign-on-to-ukrainian)
+
+
+
 
 0

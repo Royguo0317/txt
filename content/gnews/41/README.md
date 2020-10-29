@@ -1,18 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 艾米·巴雷特大法官就职仪式：“我将毫无畏惧，毫无偏袒地工作”
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/495282/)
+## 为什么是亨特拜登?!
+` VOH欧洲战友团` [轉載自GNews](https://gnews.org/zh-hans/495298/)
 
-视频来源：[https://www.youtube.com/watch?v=dKppODKE-LU](https://www.youtube.com/watch?v=dKppODKE-LU)
-2020年10月26日在白宫南草坪上美国川普总统和新任美国最高法院的大法官巴雷特举行宣誓就职仪式。川普总统地向美国人民介绍了巴雷特大法官的法律职业生涯，并强调了美国宪法和法律对美国人民的重要性。巴雷特大法官强调了法官的职责应当是基于美国的宪法和法律来载决而不是法官个人的政治倾向：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28173108/136.jpg)
 
-“*今晚我庄严宣誓，其核心而言，我将毫无畏惧，毫无偏袒的情况下开展工作，并且我的工作将独立于政治派别和我的个人意愿。我热爱宪法和它所建立的民主共和国，我将致力于维护宪法。*”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28171233/WH_20201026_Ceremony-photo.jpg)图片来源：[https://www.whitehouse.gov/articles/senate-confirms-amy-coney-barrett-supreme-court/](https://www.whitehouse.gov/articles/senate-confirms-amy-coney-barrett-supreme-court/)
-[阅读英文全文](https://www.whitehouse.gov/briefings-statements/remarks-president-trump-swearing-ceremony-honorable-amy-coney-barrett-associate-justice-supreme-court-united-states/)
 
-翻译: 【JennyL】 校对: 【rainbow】字幕：【Rock小哥】编辑：【Isaiah4031】
+撰稿: BOLU文龍 图片: 千鸟
 
-战友之家玫瑰园小队制作
+无论是爆料革命还是三块硬盘，无论是邮件门还是艳照门，所有的突破口或者说众矢之的，目前都集中在亨特拜登身上。为什么是亨特拜登？！追本逐源, 这个问题要从中共盗国贼为什么选定亨特拜登为”形象大使”说起。
 
-2+
+时间回到1979年,那一年中美建交, 时年36岁的特拉华州参议员乔拜登随美国代表团访华.这是乔拜登与中共的首次接触。从此拜登家族便进入中共的统战布局中。因为我们现在已经知道, 这一切都是套路,中共早已驾轻就熟。
+
+随着中美两国交往日深, 乔拜登的羽翼也在美国政坛日渐成熟丰满, 中共统战部门已将乔拜登列入”潜力股”名单, 而亨特拜登也自然进入了中共的视线。在外交部/大使馆/统战部等情报部门所收集的信息分析得出,亨特拜登是一个不折不扣的美国红二代, 虽然他有着不俗的外貌谈吐以及教育背景, 但他爱慕金钱和虚荣,贪恋女色, 好大喜功, 最重要的是, 由于童年的遭遇 (不详), 他远离上帝, 怨恨并鄙视神明, 这与共产党的无神论不谋而合, 两者都会导致对人性欲望无底线的索求。于是，亨特拜登成为蓝金黄乔拜登家族的突破口, 事实上跟最初的判断一样, 几乎毫不费力, 亨特拜登甚至主动提出要求: 大家谁也不要装了! 金钱和美女在哪里?
+
+于是, 在经贸合作的幌子下, 中美双方卖国贼在其代理人执行下, 展开一系列盗国卖国的权力勾兑和交易, 中国盗国贼利益集团用中国人民的几亿血汗钱买通拜登父子,从获得万亿的技术情报和潜在经济利益回报, 在蓝金黄的同时也把这对父子牢牢控制在手中, 美国总统候选人其实早已是中国共产党的盟友和傀儡。这就是超限战!
+
+4+
