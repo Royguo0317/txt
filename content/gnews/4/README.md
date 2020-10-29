@@ -1,37 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特拜登第三波: 硬盘邮件解密 亨特·拜登合伙人德文·阿彻力邀律师西瑟·金加入布利斯马
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/498579/)
+## 亨特拜登第三波: 硬盘邮件解密 2014年4月22日亨特·拜登合伙人德文·阿彻向亨特汇报布利斯马公司领导在5,6月份到美国,墨西哥,哈萨克斯坦的行程安排
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/498746/)
 
-**亨特拜登第三波: 硬盘邮件解密** — 2014年4月22日亨特·拜登合伙人德文·阿彻力邀律师, 鲍伊斯/希勒/弗莱克斯纳律师事务所的合伙人西瑟·金加入布利斯马 。
+前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
 
-### **邮件：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29064038/790fe5a7-805d-437a-b6d6-981ea7635267.jpg)
+**亨特拜登第三波：硬盘邮件解密 — 2014 年 4 月 22 日 亨特·拜登合伙人德文·阿彻向亨特汇报布利斯马公司领导在5，6月份到美国，墨西哥，哈萨克斯坦的行程安排**
+
+### 邮件：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29074626/12-%E4%B8%BB%E9%A2%98%E5%9B%BE%E7%89%87.jpg)
 ### **邮件中文翻译如下：**
 
-发件人：Devon Archer (德文·阿彻)
-收件人：Heather King (希瑟·金), Hunter Biden (亨特·拜登)
-日期： 2014年4月22日 21:35
-主题： Burisma (布利斯玛)的后续跟进
+发件人：德文·阿彻 
+收件人：亨特·拜登
+日期：2014年4月22日 下午 晚上10:51
+主题：布利斯玛股份有限公司行程安排
 
-希瑟，
+如早些时候提到的, 这是临时的建议时间安排：
 
-谢谢你今天抽出时间来，以及在电话中的出色表现（对让你有重复工作之处表示抱歉）。 我期待着与你一起合作，共同完成与布利斯玛的这个非常特殊和潜在的巨大机会。
+五月七日到九日： 巴黎董事会前会（取消）
 
-在处理和执行你的委托书之后，我们应该花30分钟与你通话，来介绍我的公司内部背景、管理层和董事会的情况，以及我们面临的直接挑战。
+五月日期待定：瓦迪姆·波扎尔斯基纽约和华盛顿特区行
 
-祝好
-德文
+五月日期待定：尼古拉·兹洛切夫斯基和德文·阿切尔(Devon Archer）到墨西哥
+
+五月二十七日或者六月二日：基辅董事会
+
+基辅董事会之后的一周: 哈萨克斯坦
 
 ### **邮件人物介绍/分析：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29064909/Screen-Shot-2020-10-29-at-8.48.29-pm.png)
-參考資料：[https://conservapedia.com/Devon\_Archer](https://conservapedia.com/Devon_Archer)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29065021/Screen-Shot-2020-10-29-at-8.50.06-pm.png)
-參考資料：[https://www.bsfllp.com/lawyers/heather-king.html](https://www.bsfllp.com/lawyers/heather-king.html)
 
+瓦迪姆·波扎尔斯基（Vadim Pozharskyi）：乌克兰最大天然气供应商布利斯玛股份有限公司顾问董事会顾问
 
+德文·阿切尔（Devon Archer）: 罗斯蒙特塞内卡合伙人, 这家投资公司的创建人之一。同时创建此公司的还有亨特·拜登和克里斯托弗·亨氏。德文·阿切尔伙同亨特·拜登加入乌克兰最大天然气供应商布利斯玛股份有限公司。
 
-[亨特拜登第三波: 硬盘邮件解密 亨特·拜登合伙人德文·阿彻力邀律师西瑟·金加入布利斯马](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29065947/13-Burisma-follow-up_PR_v3-1.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29065947/13-Burisma-follow-up_PR_v3-1.pdf)
+尼古拉·兹洛切夫斯基 （Nicolai Zlochevskey）： 猜测Nicoli 是Nicolai的昵称。布利斯玛股份有限公司受益人。
+
+[亨特拜登第三波：硬盘邮件解密 2014 年 4 月 22 日 亨特·拜登合伙人德文·阿彻向亨特汇报布利斯马公司领导在5,6月份到美国,墨西哥,哈萨克斯坦的行程安排](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29075354/12-Burisma-dates-follow-up.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29075354/12-Burisma-dates-follow-up.pdf)
 
 0

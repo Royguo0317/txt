@@ -1,13 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发！美国国务院指定和平统一全国协会为中华人民共和国的外国使团
-` GM101` [轉載自GNews](https://gnews.org/zh-hans/498074/)
+## 亨特拜登第三波: 硬盘邮件解密 亨特·拜登合伙人德文·阿彻力邀律师西瑟·金加入布利斯马
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/498579/)
 
-美东时间10月28号，美国国务院官方宣布将中国和平统一全国协会（NACPU）定性为中共国的外国使团。
+**亨特拜登第三波: 硬盘邮件解密** — 2014年4月22日亨特·拜登合伙人德文·阿彻力邀律师, 鲍伊斯/希勒/弗莱克斯纳律师事务所的合伙人西瑟·金加入布利斯马 。
 
-国务院表示人与人之间的交流对于建立文化之间的理解至关重要，但UFWD并不是人与人之间交流的工具。它是中共前线组织用来推进宣传和恶性影响。
+### **邮件：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29064038/790fe5a7-805d-437a-b6d6-981ea7635267.jpg)
+### **邮件中文翻译如下：**
 
-国务院指出统一战线部门（UFWD）是中共的机构，其任务是共同消除和消除对该党统治的威胁，并将其影响力和宣传传播到海外。中共将此党派机构视为推进北京政策的“法宝”。国务院明确根据美国《外国使馆法》指定由UFWD控制的组织，中国和平统一全国协会（NACPU）作为中国的外国使团。
+发件人：Devon Archer (德文·阿彻)
+收件人：Heather King (希瑟·金), Hunter Biden (亨特·拜登)
+日期： 2014年4月22日 21:35
+主题： Burisma (布利斯玛)的后续跟进
+
+希瑟，
+
+谢谢你今天抽出时间来，以及在电话中的出色表现（对让你有重复工作之处表示抱歉）。 我期待着与你一起合作，共同完成与布利斯玛的这个非常特殊和潜在的巨大机会。
+
+在处理和执行你的委托书之后，我们应该花30分钟与你通话，来介绍我的公司内部背景、管理层和董事会的情况，以及我们面临的直接挑战。
+
+祝好
+德文
+
+### **邮件人物介绍/分析：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29064909/Screen-Shot-2020-10-29-at-8.48.29-pm.png)
+參考資料：[https://conservapedia.com/Devon\_Archer](https://conservapedia.com/Devon_Archer)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29065021/Screen-Shot-2020-10-29-at-8.50.06-pm.png)
+參考資料：[https://www.bsfllp.com/lawyers/heather-king.html](https://www.bsfllp.com/lawyers/heather-king.html)
+
+
+
+[亨特拜登第三波: 硬盘邮件解密 亨特·拜登合伙人德文·阿彻力邀律师西瑟·金加入布利斯马](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29065947/13-Burisma-follow-up_PR_v3-1.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29065947/13-Burisma-follow-up_PR_v3-1.pdf)
 
 0

@@ -1,21 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德重磅消息：拜登腐败案曝光后习彻底慌了
-` shangshang` [轉載自GNews](https://gnews.org/zh-hans/497098/)
+## 亨特·拜登第三波：硬盘邮件解密【1】
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/497831/)
 
-作者：vog尚
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28222606/A3EB6115-501E-42DD-B034-681D3AC143A0.png)
-路德10月28日爆料称：由于近期拜登腐败案的陆续被曝光，习最近非常的紧张和沮丧，失去了信心，并密集的问计于党内元老以应对愈加不利于自己的国际形势。
+来自邮件内容：我们的波兰同事，也是Burisma董事会的某位成员，将亲自发表评论，将减轻您现在所遇到的媒体压力。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29030356/Picture29.png)
+### 邮件中文**翻译如下：**
 
-中共的历史就是在权力斗争中进行的，三反五反、整风运动、文化大革命无一不是内斗。自邓小平上台后，中共内斗有所缓和，发展经济形成中共权贵资本，盗取国家人民财富，习执政后以反腐为名打击异己，权力斗争升级。
+**发件人： **瓦迪姆·波扎尔斯基 (Vadim Pozharskyi)
+**收件人：** Hunter Biden (亨特·拜登)、Devon Archer (德文·阿彻)
+**日期：** 2014年5月14日4:49 AM
+**主题：** AK Burisma (乌克兰天然气布利斯玛公司)
 
-路德称，薄熙来、周永康、徐才厚等高层被打倒，正是习抓住了他们的蛋蛋，因为习掌握了美国拜登这条线，通过与拜登家族的勾兑，掌握了政敌在美国的绝密信息及重要贪腐证据，薄熙来的失败就是拜登出卖的结果。又称，当初江泽民进北京打败北京帮也是借助于当时中共特务家族曾庆红的海外情报力量。同时，三块硬盘也藏有习王的“建筑艺术项目”等绝密情报，习如果失去美国拜登这条线作支撑，他最担心的事情可能发生，就是中共内部对习不满的各种政治势力随时会反对甚至打倒他。
+亲爱的同事们，谨在此通知您，我们波兰同事今天或之后的几天都将亲自发表评论，他也是董事会的成员。我相信这将有助于减轻你们现在所遇到的媒体压力。
 
-中共潜伏和渗透能力之强，从国共内战到如今海外尤其对美国拜登家族的掌控，一直是中共执政的重要支撑。但随着拜登家族腐败丑闻被不断曝光，和中共勾兑出卖美国利益，习寄希望于拜登当选总统后继续中共独裁统治的美梦也即将破碎。
+请等波兰同事发布完评论我们再来制定策略。
 
-路德表示中共肯定还会出各种对策，比如今日的美国股市无征兆无缘由的大跌即是中共所为。
+Отправлено с iPad
 
-爆料革命稳扎稳打，灭共之终极之战已经开始，以美灭共，最终以共灭共。
+### **邮件人物介绍/分析：**
 
-5+
+- **发件人**瓦迪姆·波扎尔斯基 (Vadim Pozharskyi) 是乌克兰天然气公司Burisma董事会成员，乌克兰裔。
+
+
+- **收件人之一**Devon Archer (德文·阿彻) 是亨特·拜登的商务伙伴
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29030343/Picture28.png)
+参考资料：[https://conservapedia.com/Devon\_Archer](https://conservapedia.com/Devon_Archer)
+
+- 邮件中的波兰同事，董事会的成员。有可能是波兰前总统Aleksander Kwasniewski
+
+参考资料：[https://www.buzzfeednews.com/article/maxseddon/bidens-son-polish-ex-president-quietly-sign-on-to-ukrainian](https://www.buzzfeednews.com/article/maxseddon/bidens-son-polish-ex-president-quietly-sign-on-to-ukrainian)
+
+
+
+
+0

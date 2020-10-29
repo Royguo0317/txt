@@ -1,39 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登第三波：硬盘邮件解密【1】
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/497831/)
+## 亨特拜登第三波: 硬盘邮件解密 民主党金主比尔· 巴特曼承诺无条件支持亨特拜登
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/498240/)
 
-来自邮件内容：我们的波兰同事，也是Burisma董事会的某位成员，将亲自发表评论，将减轻您现在所遇到的媒体压力。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29030356/Picture29.png)
-### 邮件中文**翻译如下：**
+### **邮件：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29042141/1-296.png)
+### **邮件中文翻译如下：**
 
-**发件人： **瓦迪姆·波扎尔斯基 (Vadim Pozharskyi)
-**收件人：** Hunter Biden (亨特·拜登)、Devon Archer (德文·阿彻)
-**日期：** 2014年5月14日4:49 AM
-**主题：** AK Burisma (乌克兰天然气布利斯玛公司)
+**邮件标题：**拜登之子亨特因可卡因测试不合格被海军后备队开除军籍 – 华尔街日报(报道)
 
-亲爱的同事们，谨在此通知您，我们波兰同事今天或之后的几天都将亲自发表评论，他也是董事会的成员。我相信这将有助于减轻你们现在所遇到的媒体压力。
+**发件人：**Bill Bartmann (比尔·巴特曼)
 
-请等波兰同事发布完评论我们再来制定策略。
+**日期：**2014年10月16日8:30PM
+**收件人：**亨特·拜登
 
-Отправлено с iPad
+亨特，
+
+您的朋友们无条件与您站在一起。
+
+在这个尴尬的时刻 ， 让我知道我是否能提供帮助。 如你所知，我也有一些尴尬的经历。
+
+[http://m.wsj.com/articles/bidens-son-hunter-discharged-from-navy-reserve-after-failingcocaine-test-1413499657?mobile=y](http://m.wsj.com/articles/bidens-son-hunter-discharged-from-navy-reserve-after-failingcocaine-test-1413499657?mobile=y)** **
 
 ### **邮件人物介绍/分析：**
 
-- **发件人**瓦迪姆·波扎尔斯基 (Vadim Pozharskyi) 是乌克兰天然气公司Burisma董事会成员，乌克兰裔。
+- 发件人猜测可能是民主党金主比尔·巴特曼（Bill Bartmann）
+- 参考资料：[https://en.wikipedia.org/wiki/Bill\_Bartmann](https://en.wikipedia.org/wiki/Bill_Bartmann)
 
-
-- **收件人之一**Devon Archer (德文·阿彻) 是亨特·拜登的商务伙伴
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29030343/Picture28.png)
-参考资料：[https://conservapedia.com/Devon\_Archer](https://conservapedia.com/Devon_Archer)
-
-- 邮件中的波兰同事，董事会的成员。有可能是波兰前总统Aleksander Kwasniewski
-
-参考资料：[https://www.buzzfeednews.com/article/maxseddon/bidens-son-polish-ex-president-quietly-sign-on-to-ukrainian](https://www.buzzfeednews.com/article/maxseddon/bidens-son-polish-ex-president-quietly-sign-on-to-ukrainian)
-
-
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29045041/Screen-Shot-2020-10-29-at-6.50.19-pm.png)
+[亨特拜登第三波: 硬盘邮件解密 民主党金主比尔· 巴特曼承诺无条件支持亨特拜登](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29045441/7-Email-Declassification.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29045441/7-Email-Declassification.pdf)
 
 0

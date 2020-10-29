@@ -1,42 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特拜登第三波: 硬盘邮件解密 2014年4月22日亨特·拜登合伙人德文·阿彻向亨特汇报布利斯马公司领导在5,6月份到美国,墨西哥,哈萨克斯坦的行程安排
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/498746/)
+## 【1】第三波硬盘邮件解密！乌克兰天然气公司瓦迪姆与亨特·拜登商务伙伴德文·阿彻邮件曝光！
+` GM01` [轉載自GNews](https://gnews.org/zh-hans/498612/)
 
-前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
+[该部分高清PDF版请点击下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29092039/10.29proofread.translation-17.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29092039/10.29proofread.translation-17.pdf)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29082650/WhatsApp-Image-2020-10-29-at-12.23.12.jpeg)
+**发件人**：瓦迪姆-波扎尔斯基**收件人**：德文-阿彻
+**日期**：2014年5月7日 7:46AM
+**主题**：访问哈萨克斯坦/签证问题
 
-**亨特拜登第三波：硬盘邮件解密 — 2014 年 4 月 22 日 亨特·拜登合伙人德文·阿彻向亨特汇报布利斯马公司领导在5，6月份到美国，墨西哥，哈萨克斯坦的行程安排**
+亲爱的阿彻，
 
-### 邮件：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29074626/12-%E4%B8%BB%E9%A2%98%E5%9B%BE%E7%89%87.jpg)
-### **邮件中文翻译如下：**
+继我们上次交流之后，请告知基辅会议之后您计划访问哈萨克斯坦的几个要点：
 
-发件人：德文·阿彻 
-收件人：亨特·拜登
-日期：2014年4月22日 下午 晚上10:51
-主题：布利斯玛股份有限公司行程安排
+日期;访问哈萨克斯坦有确切的日期吗？
 
-如早些时候提到的, 这是临时的建议时间安排：
+对口单位;我们计划会见谁，什么级别，仅会见政治人物在内的最高管理层，还是说我们应该带上我们的地质学家/专家？
 
-五月七日到九日： 巴黎董事会前会（取消）
+会谈内容;我们计划讨论哪些议题、合作方向？
 
-五月日期待定：瓦迪姆·波扎尔斯基纽约和华盛顿特区行
+如果我们要讨论与哈萨克斯坦的天然气田合作的可能性，那么从哈萨克方面得到关于可能成为谈判主题的天然气田，地区等任何可能的初步信息都将非常有益，这样我们的地质学家/专家将为我们的代表团进行富有成效的谈判做准备。
 
-五月日期待定：尼古拉·兹洛切夫斯基和德文·阿切尔(Devon Archer）到墨西哥
+尼古拉的签证问题你有什么消息吗？
 
-五月二十七日或者六月二日：基辅董事会
+祝好，瓦迪姆
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29085513/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8812.54.48.png)
+**发件人**：德文-阿彻
+**日期**：2014年5月7日 16:03
+**收件人**：瓦迪姆-波扎尔斯基  
+**主题**：访问哈萨克斯坦/签证问题
 
-基辅董事会之后的一周: 哈萨克斯坦
+瓦迪姆，
+下周我将提供给你一份哈萨克斯坦的完整行程表，但主要的会议定于6月2日与哈萨克总理马西莫夫举行。 一切都将围绕这次会议展开，主题是确保取得哈萨克已探明储备的最高质量油田。 此外，还将概念性地讨论其他合作。
 
-### **邮件人物介绍/分析：**
+也请告知你此次行程的其他可能的目的。
 
-瓦迪姆·波扎尔斯基（Vadim Pozharskyi）：乌克兰最大天然气供应商布利斯玛股份有限公司顾问董事会顾问
+此外，31日我在阿拉木图的40岁生日派对也将成为焦点。
 
-德文·阿切尔（Devon Archer）: 罗斯蒙特塞内卡合伙人, 这家投资公司的创建人之一。同时创建此公司的还有亨特·拜登和克里斯托弗·亨氏。德文·阿切尔伙同亨特·拜登加入乌克兰最大天然气供应商布利斯玛股份有限公司。
+我们暂定28日傍晚抵达基辅，30日晚饭后或31日清晨离开。周日在阿拉木图逗留，周一和周二在阿斯塔纳开会。
 
-尼古拉·兹洛切夫斯基 （Nicolai Zlochevskey）： 猜测Nicoli 是Nicolai的昵称。布利斯玛股份有限公司受益人。
+然后初步的计划是我和Alex从阿斯塔纳前往北京。 如果我们能够在这个时间段内协调中海油合作会议的话，我们希望你和尼古拉也能加入我们。如果中海油合作会议有进展，我们计划6月5日或6日从北京出发前往我们各自的家乡。
 
-[亨特拜登第三波：硬盘邮件解密 2014 年 4 月 22 日 亨特·拜登合伙人德文·阿彻向亨特汇报布利斯马公司领导在5,6月份到美国,墨西哥,哈萨克斯坦的行程安排](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29075354/12-Burisma-dates-follow-up.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29075354/12-Burisma-dates-follow-up.pdf)
+我今天会跟进瓦迪姆的签证。
 
+祝福，
+
+德文·阿彻
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29085612/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8812.55.37.png)
+**发件人**：瓦迪姆-波扎尔斯基
+**收件人**：德文-阿彻
+**日期**：2014年5月8日 4:24AM
+**主题**：访问哈萨克斯坦/签证问题
+
+亲爱的阿彻，
+谢谢您的回复。
+我与同僚商议后再回复您。
+
+祝福， 瓦迪姆
+
+**邮件人物介绍/分析：**
+
+- 发件人瓦迪姆·波扎尔斯基 (Vadim Pozharskyi) ，是乌克兰天 然气公司 Burisma 董事会成员，乌克兰裔。
+- 参考资料:[http://energysecurityforum.org/esf-council/92-vadym-pozharskyi](http://energysecurityforum.org/esf-council/92-vadym-pozharskyi)
+- [Email reveals how Hunter Biden introduced Ukrainian biz man …nypost.com › 2020/10/14 › email-reveals-how-hunter-…](https://nypost.com/2020/10/14/email-reveals-how-hunter-biden-introduced-ukrainian-biz-man-to-dad/)）
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29085715/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8812.56.47.png)
+- 收件人Devon Archer (德文·阿彻) 是亨特·拜登的商务伙伴
+- 参考资料:[https://conservapedia.com/Devon\_Archer](https://conservapedia.com/Devon_Archer)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29085755/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8812.57.36.png)
 0
