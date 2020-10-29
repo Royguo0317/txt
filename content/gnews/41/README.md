@@ -1,13 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 10/25/2020 Ron Johnson议员讲述其在进行拜登家族涉及的海外交易的调查时所遇到的重重阻力
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/497094/)
+## 2020年10月28日CCP冠状病毒大流行第277集
+` GM30` [轉載自GNews](https://gnews.org/zh-hans/497250/)
 
-2020年10月25日 Ron Johnson议员讲述其在进行拜登家族涉及的海外交易的调查时所遇到的重重阻力。
+美国又批准新对台军售，中共强烈谴责；美日加强合作对抗中共；喀什封城封门，满地乌鸦；中共暴政下民众下跪喊冤，不要再跪了……
 
 
 
-#### **By: 【秘密翻译组G-Translators】**
-
-2+
+3+
