@@ -1,29 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每小时更新‼️独家重磅! 照片里和亨特·拜登一起的是谁?
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/474058/)
+## 亨特·拜登第三波：硬盘邮件解密【1】
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/497831/)
 
-如果该照片给您造成了严重的不适，我们深表歉意！但是正是为了匡扶正义，我们新中国联邦人才将此图片公布于众。因为共产党的朋友就是我们的敌人。
+来自邮件内容：我们的波兰同事，也是Burisma董事会的某位成员，将亲自发表评论，将减轻您现在所遇到的媒体压力。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29030356/Picture29.png)
+### 邮件中文**翻译如下：**
 
-任何人偷盗中国人的钱，我们绝不答应！
-任何人奴役中国人，我们绝不答应！
-任何人玩弄中国人的子女，我们绝不答应！
+**发件人： **瓦迪姆·波扎尔斯基 (Vadim Pozharskyi)
+**收件人：** Hunter Biden (亨特·拜登)、Devon Archer (德文·阿彻)
+**日期：** 2014年5月14日4:49 AM
+**主题：** AK Burisma (乌克兰天然气布利斯玛公司)
 
-这些图片仅展示了中国共产党蓝金黄计划（BGY）中重要内容的冰山一角。他们利用那些所有贪婪中国财富的西方政客，名人及其家人，通过掌握并录制他们与女性和毒品相关的视频进行威胁，迫使他们出卖自己的国家和人民，甚至出卖其本国的国家安全来配合中国共产党统治世界。
+亲爱的同事们，谨在此通知您，我们波兰同事今天或之后的几天都将亲自发表评论，他也是董事会的成员。我相信这将有助于减轻你们现在所遇到的媒体压力。
 
-美国总统候选人乔·拜登绝对是被共产党百分之百控制，蓝金黄最成功的美国政客之一。他也是共产党搞弱，搞乱，搞死美国的3F重要计划之一！
+请等波兰同事发布完评论我们再来制定策略。
 
-中国共产党用此手段威胁拜登父子，并且对他们进行大量的财富贿赂，这就是造成在中国南海以及中美之间的贸易争端，知识产权，能源价格等问题，以及拜登向中共提供大量的CIA在中国的情报人员的重要原因之一。  中国共产党在美国及欧洲多个西方国家都存在这样的的蓝金黄计划。我们将会有数以百万计的视频和相关政府官员，腐败者，卖国者，与共产党勾兑欲统治世界的犯罪者的照片放出来。
+Отправлено с iPad
 
-不论你来自哪个国家，哪个民族，什么肤色，哪个党派，下一个被虐待的可能就是你的女儿，你的妻子，你的姐妹；所以在消灭中国共产党问题上没有任何党派民族国界之分。
+### **邮件人物介绍/分析：**
 
-**您申明，您已年满18周岁或在您访问以下照片的司法管辖区已达到成人年龄，并完全有能力和资格签订本服务条款中规定的条款、条件、义务、申明、陈述和保证，并遵守和履行本服务条款。如果您未满18岁或法定成年年龄，请不要观看以下的任何内容**
+- **发件人**瓦迪姆·波扎尔斯基 (Vadim Pozharskyi) 是乌克兰天然气公司Burisma董事会成员，乌克兰裔。
 
-# **持续更新中!!！**
 
-## **最新照片**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28030808/Hunter-biden-9.jpeg)
+- **收件人之一**Devon Archer (德文·阿彻) 是亨特·拜登的商务伙伴
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27220425/fd16a030-1283-4fb1-9be5-0acc4f1dd634.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28031407/4bf3e710350544c1e396f7c5c6d03e90.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28012305/hunter-biden-8.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27230932/h1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27231039/h2.jpeg)![This image has an empty alt attribute; its file name is Hunter-Biden-7.jpeg]()![This image has an empty alt attribute; its file name is Hunter-Biden-7.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27181702/Hunter-Biden-7.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27111340/22-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27102026/IMG_4207.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27090421/Image-1-1-1.jpg)![This image has an empty alt attribute; its file name is Image-1-1.jpg]()![This image has an empty alt attribute; its file name is Image-1-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27075100/Image-1-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27064242/11-12.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27053346/hunter-biden-5.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27043034/Hunter-Biden-4.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27043029/Hunter-Biden2-2.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27200058/1-212.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26122300/ec7f2e80273998ee.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26122241/38b4f2d0334fc03d.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26073102/Hunter-Biden3-1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26073100/Hunter-Biden2-1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26073057/Hunter-Biden1-1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26040306/Hunter-Biden-2.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26040802/23542efe00392b1b.jpeg)![](https://api.parler.com/l/rVc5h)![](https://api.parler.com/l/M5B1a)![](https://api.parler.com/l/lQs8e)![](https://api.parler.com/l/0UQE5)![This image has an empty alt attribute; its file name is Hunter-Biden.jpeg]()![This image has an empty alt attribute; its file name is Hunter-Biden.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25185608/Hunter-Biden.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25144743/06fbff5630aebc17c5a14d4deb34b8de.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25133712/a802cfd786b5722bb11275ba28704301-1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25110043/4db08a2ce6b4cb317af8da1680d12997.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25092417/Hunter-Biden20.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25075456/Hunter-Biden19.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063723/Hunter-Biden18.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063310/Hunter-Biden17.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063308/Hunter-Biden16.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063306/Hunter-Biden15.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063303/Hunter-Biden14.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063300/Hunter-Biden13.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063257/Hunter-Biden12.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063254/Hunter-Biden11.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063251/Hunter-Biden10.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063236/Hunter-Biden6.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063244/Hunter-Biden8.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063247/Hunter-Biden9.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063241/Hunter-Biden7.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063220/Hunter-Biden2.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063234/Hunter-Biden5.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063230/Hunter-Biden4.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063215/Hunter-Biden1.jpeg)Who is in this photo with Biden?![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063226/Hunter-Biden3.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29030343/Picture28.png)
+参考资料：[https://conservapedia.com/Devon\_Archer](https://conservapedia.com/Devon_Archer)
+
+- 邮件中的波兰同事，董事会的成员。有可能是波兰前总统Aleksander Kwasniewski
+
+参考资料：[https://www.buzzfeednews.com/article/maxseddon/bidens-son-polish-ex-president-quietly-sign-on-to-ukrainian](https://www.buzzfeednews.com/article/maxseddon/bidens-son-polish-ex-president-quietly-sign-on-to-ukrainian)
+
+
+
+
 0

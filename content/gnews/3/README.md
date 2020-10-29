@@ -1,34 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特拜登第三波: 硬盘邮件解密 民主党金主比尔· 巴特曼承诺无条件支持亨特拜登
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/498240/)
+## 爆料革命终极之战系列六：突发！台湾UMC公司认罪并缴纳6000万罚金，以换取保密协议配合美司法部起诉中国国企
+` GM101` [轉載自GNews](https://gnews.org/zh-hans/498727/)
 
-### **邮件：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29042141/1-296.png)
-### **邮件中文翻译如下：**
+美东时间10月28号，美国司法部发布“台湾公司承认涉及中国国企的刑事案件中商业机密盗窃罪”的新闻。
 
-**邮件标题：**拜登之子亨特因可卡因测试不合格被海军后备队开除军籍 – 华尔街日报(报道)
+该新闻明确台湾半导体铸造厂联合微电子公司（UMC）对盗窃商业秘密罪表示认罪，并被判处罚款6000万美元，以换取其与美国政府合作的秘密协议。对其共同被告中国国有企业的调查和起诉。
 
-**发件人：**Bill Bartmann (比尔·巴特曼)
+该新闻表示联邦大陪审团于2018年9月对联电（UMC）以及中华人民共和国（PRC）的国有企业，福建金华集成电路有限公司（福建金华）以及三人串谋盗窃提出起诉，为中国的国有企业（福建金华）的利益而转载并拥有美国半导体公司（美光科技有限公司（Micron））的商业机密。根据认罪协议，联华电子将支付其6000万美元的罚款，这是刑事商业秘密起诉中有史以来第二大罚款。
 
-**日期：**2014年10月16日8:30PM
-**收件人：**亨特·拜登
+美国司法部的行动证明了此前纽约之王朱利安尼提到的RICO法案已正式启动，RICO法案特点为让下级犯罪人举证上级犯罪人以换取赦免特权，朱利安尼曾使用该法案解体纽约各大黑帮、911大事件而名动天下。
 
-亨特，
-
-您的朋友们无条件与您站在一起。
-
-在这个尴尬的时刻 ， 让我知道我是否能提供帮助。 如你所知，我也有一些尴尬的经历。
-
-[http://m.wsj.com/articles/bidens-son-hunter-discharged-from-navy-reserve-after-failingcocaine-test-1413499657?mobile=y](http://m.wsj.com/articles/bidens-son-hunter-discharged-from-navy-reserve-after-failingcocaine-test-1413499657?mobile=y)** **
-
-### **邮件人物介绍/分析：**
-
-- 发件人猜测可能是民主党金主比尔·巴特曼（Bill Bartmann）
-- 参考资料：[https://en.wikipedia.org/wiki/Bill\_Bartmann](https://en.wikipedia.org/wiki/Bill_Bartmann)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29045041/Screen-Shot-2020-10-29-at-6.50.19-pm.png)
-[亨特拜登第三波: 硬盘邮件解密 民主党金主比尔· 巴特曼承诺无条件支持亨特拜登](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29045441/7-Email-Declassification.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29045441/7-Email-Declassification.pdf)
+中共在美国大选前发动攻击拟阻止川普总统连任，道拜登家族贪腐犯罪相关报道被各大社交媒体审查掩盖，琼斯指数连续暴跌。本次台湾UMC公司认罪只是开始，后续将牵扯出该利益链背后重量级人物及相关单位。
 
 0
