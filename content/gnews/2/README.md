@@ -1,34 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国际社会对中共应对CCP病毒的方式持压倒性负面态度
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/494250/)
+## 每小时更新‼️独家重磅! 照片里和亨特·拜登一起的是谁?
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/474058/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28130833/10283.jpg)*图片来自：forbes.com*
-英国《卫报》(The Guardian)近日报道，在应对冠状病毒的国际斗争中，中共国似乎全面输掉了人心，大多数人认为中共国对疫情的爆发负有责任，而且从一开始对疫情的态度就不透明。
+如果该照片给您造成了严重的不适，我们深表歉意！但是正是为了匡扶正义，我们新中国联邦人才将此图片公布于众。因为共产党的朋友就是我们的敌人。
 
-该调查结果来自YouGov-Cambridge全球主义项目，该项目是与《卫报》共同设计的，对25个国家的2.6万人进行了调查。
+任何人偷盗中国人的钱，我们绝不答应！
+任何人奴役中国人，我们绝不答应！
+任何人玩弄中国人的子女，我们绝不答应！
 
-这是通过全球公众对中共国应对疫情的态度进行的最广泛的调查，这种压倒性的负面态度将令中共外交官员感到失望，他们花费了大量精力来转移指责，并把中国描绘成一个无私地帮助他人恢复健康的国家。
+这些图片仅展示了中国共产党蓝金黄计划（BGY）中重要内容的冰山一角。他们利用那些所有贪婪中国财富的西方政客，名人及其家人，通过掌握并录制他们与女性和毒品相关的视频进行威胁，迫使他们出卖自己的国家和人民，甚至出卖其本国的国家安全来配合中国共产党统治世界。
 
-报道指出，总体而言，这项民调显示，如果下一任美国总统选择构建一个国际联盟来挑战中共日益增长的政治主导地位，并对中共领导层的道德价值提出质疑，那么全球有很多人都能接受。然而，这份报告的结论没有任何意义，即美国能够利用其对危机的处理来承担这种领导角色。
+美国总统候选人乔·拜登绝对是被共产党百分之百控制，蓝金黄最成功的美国政客之一。他也是共产党搞弱，搞乱，搞死美国的3F重要计划之一！
 
-调查显示，除中共国外，受访国家民众普遍认为冠状病毒首先在中共国发现。尼日利亚的比率最高(98%)，紧随其后的是希腊、南非(97%)和西班牙(96%)。除中共国外，比率最低的国家是沙特阿拉伯(83%)和美国(84%)。相比之下，中共国只有52%的受访者认为冠状病毒是在中共国首次发现的，当被问及在哪个国家首次发现病毒时，仅有12%的中共国受访者表示不知道。将近三分之一的受访者认为该病毒最初是在美国发现的。
+中国共产党用此手段威胁拜登父子，并且对他们进行大量的财富贿赂，这就是造成在中国南海以及中美之间的贸易争端，知识产权，能源价格等问题，以及拜登向中共提供大量的CIA在中国的情报人员的重要原因之一。  中国共产党在美国及欧洲多个西方国家都存在这样的的蓝金黄计划。我们将会有数以百万计的视频和相关政府官员，腐败者，卖国者，与共产党勾兑欲统治世界的犯罪者的照片放出来。
 
-大多数国家的多数人还认为，中共政府在2019年底首次发现冠状病毒时，对该病毒的信息不透明。在英国，80%的受访者认为中共当局试图隐瞒真相。日本(84%)和西班牙(82%)的受访者认为中共政府试图隐瞒真相，这一比例最高，但欧盟的这一比例与日本相近。
+不论你来自哪个国家，哪个民族，什么肤色，哪个党派，下一个被虐待的可能就是你的女儿，你的妻子，你的姐妹；所以在消灭中国共产党问题上没有任何党派民族国界之分。
 
-公众不太确定中共是否试图惩罚最先发现病毒的医生，但除希腊外，每个接受调查的欧洲国家的大多数人都认为中共肯定或可能试图这样做。南非和尼日利亚的大多数人认为中共在惩罚医生方面走到了极端，中共可能会感到不安。中共经常将非洲视为其政治支持的更稳定来源之一。许多国家（通常为五分之一）中的许多人表示，他们根本不知道医生是否成为袭击目标，世界卫生组织对病毒爆发的外部调查可能会探讨这个问题。
+**您申明，您已年满18周岁或在您访问以下照片的司法管辖区已达到成人年龄，并完全有能力和资格签订本服务条款中规定的条款、条件、义务、申明、陈述和保证，并遵守和履行本服务条款。如果您未满18岁或法定成年年龄，请不要观看以下的任何内容**
 
-调查报告还显示，许多人指责中共政府没有采取行动阻止本来可以防止的病毒传播。在英国，67%的受访者认为，如果中共政府采取更快的应对措施，病毒的国际传播是可以避免的。
+# **持续更新中!!！**
 
-关于哪一个国家在危机中表现出了最强的全球领导力，意见不一，但最主要的发现是，没有任何一个国家能单独获得这一殊荣。在中共国国内，每10名受访者中就有近9名声称他们的政府表现出了最强的全球领导力。然而，这一观点在全球范围内很难得到反映，欧洲赞扬中共国的人数微乎其微。称赞中共国的受访者数量从瑞典（1%）、英国（1%）、德国（2%）、澳大利亚（2%）到日本（3%）不等。在泰国和埃及，超过五分之一的人提到了中国，但最引人注目的发现是，很少有人能指出任何一个国家显示出领导力。
+## **最新照片**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28030808/Hunter-biden-9.jpeg)
 
-少数国家赞扬德国，但没有一个国家被认为是鼓舞人心的领导者。只有在尼日利亚和美国，超过五分之一的人提到了美国的领导力。
-
-[原文链接](https://www.theguardian.com/world/2020/oct/27/china-loses-trust-internationally-over-coronavirus-handling)
-
-翻译：Alton
-
-校对：文旺
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27220425/fd16a030-1283-4fb1-9be5-0acc4f1dd634.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28031407/4bf3e710350544c1e396f7c5c6d03e90.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28012305/hunter-biden-8.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27230932/h1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27231039/h2.jpeg)![This image has an empty alt attribute; its file name is Hunter-Biden-7.jpeg]()![This image has an empty alt attribute; its file name is Hunter-Biden-7.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27181702/Hunter-Biden-7.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27111340/22-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27102026/IMG_4207.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27090421/Image-1-1-1.jpg)![This image has an empty alt attribute; its file name is Image-1-1.jpg]()![This image has an empty alt attribute; its file name is Image-1-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27075100/Image-1-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27064242/11-12.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27053346/hunter-biden-5.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27043034/Hunter-Biden-4.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27043029/Hunter-Biden2-2.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27200058/1-212.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26122300/ec7f2e80273998ee.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26122241/38b4f2d0334fc03d.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26073102/Hunter-Biden3-1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26073100/Hunter-Biden2-1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26073057/Hunter-Biden1-1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26040306/Hunter-Biden-2.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/26040802/23542efe00392b1b.jpeg)![](https://api.parler.com/l/rVc5h)![](https://api.parler.com/l/M5B1a)![](https://api.parler.com/l/lQs8e)![](https://api.parler.com/l/0UQE5)![This image has an empty alt attribute; its file name is Hunter-Biden.jpeg]()![This image has an empty alt attribute; its file name is Hunter-Biden.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25185608/Hunter-Biden.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25144743/06fbff5630aebc17c5a14d4deb34b8de.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25133712/a802cfd786b5722bb11275ba28704301-1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25110043/4db08a2ce6b4cb317af8da1680d12997.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25092417/Hunter-Biden20.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25075456/Hunter-Biden19.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063723/Hunter-Biden18.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063310/Hunter-Biden17.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063308/Hunter-Biden16.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063306/Hunter-Biden15.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063303/Hunter-Biden14.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063300/Hunter-Biden13.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063257/Hunter-Biden12.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063254/Hunter-Biden11.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063251/Hunter-Biden10.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063236/Hunter-Biden6.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063244/Hunter-Biden8.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063247/Hunter-Biden9.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063241/Hunter-Biden7.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063220/Hunter-Biden2.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063234/Hunter-Biden5.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063230/Hunter-Biden4.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063215/Hunter-Biden1.jpeg)Who is in this photo with Biden?![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25063226/Hunter-Biden3.jpeg)
 0

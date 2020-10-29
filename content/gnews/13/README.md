@@ -1,22 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 科技已步入歧途
-` 温哥华加喜农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/473812/)
+## 共和党全国委员会发言人怒怼CNN王牌主播
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/495466/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28020533/mad-scientist-blog.jpg)图片来源： 网络
-随着互联网产业的兴起与发展，人类社会近三十年的科技发展成果超过了过去几百年的总和，科技渗透到人们日常生活的方方面面。人们也在科技领域追逐、竞争，更高、更快、更强成为最响亮的口号。各个科技公司都在他们的领域无极限的挑战着未来，他们坚信科技改变未来。人们享受着科技带来的便捷与刺激，有的人甚至已经到了崇拜、迷恋科技的地步，不能自拔。各种天才不断的有逆天的想法产生，他们妄图颠覆一切，并美其名曰“创新“。人类的狂妄与无知，已经背离了天道和人道的规律，这种无底线的更高、更快、更强已经给人类带来了灾难，如果不及时的加以制止，科技最终必将毁灭人类。
+多伦多加喜农场 文文-自由法兰西🇫🇷
 
-通过三年多的爆料革命，我们看的很清楚，无论是中共的网络防火墙，还是新疆的集中营，还是武汉P4实验室，中共都是利用了世界各国的先进技术在作恶，换句话说是西方的科技公司在帮助中共作恶，如果没有这些科技公司助纣为虐，中共自己掀不起这么大的风浪。中共正是利用了资本主义逐利的本性，成功的利诱了这些科技企业，经过几十年的勾兑，他们俨然已经融为一体，用中共的话说叫你中有我，我中有你。一张无形的黑网，撒向了世界。这些科技大佬像是掉进了蜜罐一样，赚到了巨额的财富，享受着应有尽有的生活，他们对中共感恩戴德，心甘情愿的为中共提供一切技术上的服务。
+校对 小鸥 上传 XM
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28185802/%E5%9B%BE%E7%89%872-16.png)
+近日，在CNN新闻采访中，共和党全国委员会发言人伊丽莎白∙哈灵顿（Elizabeth Harrington）与美国CNN新闻主播克里斯汀·阿曼普（Christiane Amanpour）就拜登硬盘门内容发生争执，她给予后者有力回击。
 
-尤其是病毒爆发以后，各大科学杂志都在为中共站台，一路误导病毒来源。一个羟氯喹事件，折射出这背后的利益链条。为了利益，科学家放弃了职业道德，罔顾事实，瞪着眼睛说瞎话，像福齐这样的官员，每天看着全世界每分每秒都在死人，他们无动于衷，视而不见；各大利益集团更是为了利益抹黑羟氯喹，千方百计阻止临床医生使用。在人类面对病毒肆虐的大灾难时，人们渴望科学家解救自己的时候，这些无良的科学家把人民推向了地狱。
+在采访中，阿曼普援引O先生前一天公开演讲中提出的“川普总统在中（共）国有一个神秘账户”的说法，对川普总统进行大肆污蔑，并称硬盘中所谓的拜登电子邮件都属于俄罗斯虚假信息阴谋的一部分。
 
-我们中华传统文化讲天道、地道、人道，三才之道，其中天道和人道代表的是精神层面，地道代表的是物质层面，现代的科技就是地道。物质层面的发展必须要为精神层面的发展服务，物质的发展必须以提高人民的幸福指数为目标。但是现在，科技被魔鬼掌控，变成了灾难的制造者，魔鬼手中的利剑。如果广大的科技工作者不能及时醒悟过来，斩断魔鬼的触手，那么人类必将在不久的将来走向毁灭，留给人类的时间不多了！
+哈灵顿对此予以有力回击，她说，CNN真的是太放肆了 ——到底是谁在散播俄罗斯的虚假信息并试图颠覆和平过渡的川普政权——（同时）却指责别人在传播俄罗斯虚假信息？顺便说一句：有关 “大人物(big guy)“的那些邮件都是真实的。
 
-作者：比卡丘
+哈灵顿随后质问阿曼普，为什么主流新闻媒体在很大程度上都选择忽视亨特∙拜登的硬盘邮件内容？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28190503/%E5%9B%BE%E7%89%873-13.png)
+“你（阿曼普）为什么不报道这个？这涉及华盛顿最有权势的家庭之一。”
 
-原创观点文章 – 2020/10/28
+“在我们遭受来自共产中国的病毒疫情所带来的苦难时，乔∙拜登为了谋取自己和家人的好处，而出卖了我们的利益，你真的认为这OK吗？”
 
-温哥华加喜农场
+郭先生发起灭共的爆料革命3年来，CNN、《华尔街日报》、《纽约时报》等所谓的美国主流媒体对美国民主党与中共的利益勾兑以及在美国已经造成900万人感染、23万人死亡的超限生物武器CCP病毒的真相等，从始至终都选择性忽视或进行歪曲报道，个中原因发人深省。
 
-4+
+格伦∙爱德华∙格林沃尔德（Glenn Edward Greenwald），这位曾以发表过一系列轰动的斯诺登调查报告而闻名的记者、作家兼前律师，注意到了在所谓“言论自由”的美国存在的这个虚伪现象，即“媒体是如此迫切地希望帮助乔∙拜登获胜，以至于他们都放弃了伪装，赤膊上阵了。这一点非常明确。”
+
+顺便说一句，阿曼普的父亲是伊朗人，前夫是美国人詹姆斯∙鲁宾（James Rubin），曾在克林顿政府任职期间担任美国助理国务卿兼美国国务院发言人，及担任过美国前国务卿希拉里∙克林顿和前总统O先生的非正式顾问。
+
+O先生、乔∙拜登、亨特∙拜登相互勾兑，以及他们深层次的与中共邪恶政权勾结并为其代言，行反人类的罪恶，不仅危害了美国人民、中国老百姓以及全世界人民，更使美国整个三权分立、民主、自由、法治的社会中布满了沼泽，现在是逐步拨云见日，排干沼泽的时候了。
+
+参考链接:
+
+1. [https://www.zerohedge.com/political/cnn-theyre-not-even-pretending-anymore](https://www.zerohedge.com/political/cnn-theyre-not-even-pretending-anymore)
+
+2. [https://www.msn.com/en-us/news/politics/why-dont-you-want-to-report-this-rnc-spokeswoman-spars-with-cnn-anchor-over-claim-hunter-biden-emails-are-russia-disinformation/ar-BB1amhLK](https://www.msn.com/en-us/news/politics/why-dont-you-want-to-report-this-rnc-spokeswoman-spars-with-cnn-anchor-over-claim-hunter-biden-emails-are-russia-disinformation/ar-BB1amhLK)
+
+3. [https://en.wikipedia.org/wiki/Christiane\_Amanpour](https://en.wikipedia.org/wiki/Christiane_Amanpour)
+
+4. [https://en.wikipedia.org/wiki/James\_Rubin](https://en.wikipedia.org/wiki/James_Rubin) 5. [https://en.wikipedia.org/wiki/Glenn\_Greenwald](https://en.wikipedia.org/wiki/Glenn_Greenwald)
+
+2+
