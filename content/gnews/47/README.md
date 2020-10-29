@@ -1,21 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】灭共利器FISA法案
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/498060/)
+## 亨特拜登第三波: 硬盘邮件解密 民主党金主比尔· 巴特曼承诺无条件支持亨特拜登
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/498240/)
 
-作者：香草山写作组 遍地开花 校对/发稿：飞虹
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29035910/1603958287648.jpg)
-路德社在10月28日早上又透露出一条重要消息，朱利安尼在2018年2月份就拿到了美国一个重要部门FIAC法庭给出的允许监控的法令，对拜登家族与中共如何勾兑进行合法监控。从这一重磅消息可以预见，拜登家族彻底完了。
+### **邮件：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29042141/1-296.png)
+### **邮件中文翻译如下：**
 
-如果说美国的民主法治是抵挡CCP的坚固护盾的话，那么美国的FISA法案就是攻击CCP的最佳利器。尽管乔·拜登“权倾朝野”，但是美国伟大的法治制度还在，在证据确凿的情况下已经进入了司法程序，他的卖国罪行一定会得到审判。就算他赢得竞选也没用，因为知道真相后的美国人民一定还会把他赶下台。这是美国民主制度的伟大，就如川普总统的“通俄门”事件，如果是真的，川普总统早就被弹劾掉了。
+**邮件标题：**拜登之子亨特因可卡因测试不合格被海军后备队开除军籍 – 华尔街日报(报道)
 
-对于美国来说最重要的是排干沼泽。这些沼泽伤到了美国的根基，威胁到美国的国家安全，更是令美国几乎沦陷，若不排干，川普总统就是连任也照样寸步难行。任何一个国家都绝不会允许卖国贼的存在，更何况强如美国这座世界灯塔。而排干沼泽就必须要文贵先生的情报支持。文贵先生领导的新中国联邦的唯一目标是灭共，美国的沼泽就是共匪的主要实力，所以灭共就是双方共同的目标。
+**发件人：**Bill Bartmann (比尔·巴特曼)
 
-有美国背后定海神针力量做后盾的朱利安尼老先生做美国司法方面的布局，七哥提供情报和战略指导，双方协同作战，引蛇出洞，然后一网打尽。把共匪慢慢逼上了绝境。
+**日期：**2014年10月16日8:30PM
+**收件人：**亨特·拜登
 
-用FISA法案对付拜登家族已经快两年了，路德这时候说出来只能说明需要的证据已经收集完毕，只要配合RICO法案就能将他们全部定罪。这是瓦解分裂敌方的一记重锤，拜登家族的CEO包布林斯基接受福布斯采访，证实拜登家族与中共有勾兑就是一个例子，将来一定会越来越多的人出来指证，以求得到从轻发落的机会。这是七哥要不战而屈人之兵啊。
+亨特，
 
-七哥说灭共的核心是以共灭共，国内的战友算是中共的“沼泽”吗？可惜中共没有它的“郭文贵”。路德说薄熙来的女儿薄甜甜因为提供硬盘的事情已经被爆料革命保护起来了，可以认为薄家与爆料革命已经合作。那么为了自保的江曾家族是否也已经与爆料革命合作了呢？毕竟七哥曾经说过如果王岐山选择灭共他也会举手欢迎的，江曾两家如果为了将来得以苟活很有可能这么做。如果真是如此，加上习总加速师的配合，以共灭共指日可待了！
+您的朋友们无条件与您站在一起。
+
+在这个尴尬的时刻 ， 让我知道我是否能提供帮助。 如你所知，我也有一些尴尬的经历。
+
+[http://m.wsj.com/articles/bidens-son-hunter-discharged-from-navy-reserve-after-failingcocaine-test-1413499657?mobile=y](http://m.wsj.com/articles/bidens-son-hunter-discharged-from-navy-reserve-after-failingcocaine-test-1413499657?mobile=y)** **
+
+### **邮件人物介绍/分析：**
+
+- 发件人猜测可能是民主党金主比尔·巴特曼（Bill Bartmann）
+- 参考资料：[https://en.wikipedia.org/wiki/Bill\_Bartmann](https://en.wikipedia.org/wiki/Bill_Bartmann)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29045041/Screen-Shot-2020-10-29-at-6.50.19-pm.png)
+[亨特拜登第三波: 硬盘邮件解密 民主党金主比尔· 巴特曼承诺无条件支持亨特拜登](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29045441/7-Email-Declassification.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29045441/7-Email-Declassification.pdf)
 
 0

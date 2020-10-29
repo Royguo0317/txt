@@ -1,37 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特拜登第三波: 硬盘邮件解密 亨特·拜登合伙人德文·阿彻力邀律师西瑟·金加入布利斯马
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/498579/)
+## 【台湾军事】美国印太战略-不对称战略优势
+` gewsTaiwan` [轉載自GNews](https://gnews.org/zh-hans/498860/)
 
-**亨特拜登第三波: 硬盘邮件解密** — 2014年4月22日亨特·拜登合伙人德文·阿彻力邀律师, 鲍伊斯/希勒/弗莱克斯纳律师事务所的合伙人西瑟·金加入布利斯马 。
+台灣農場Amitofu
 
-### **邮件：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29064038/790fe5a7-805d-437a-b6d6-981ea7635267.jpg)
-### **邮件中文翻译如下：**
+针对美国对台军售案10月26日中共外交部发言人赵立坚表示，中国将对此次对台军售的洛克希德·马丁、波音防务、雷神等美国企业以及在售台武器过程中发挥恶劣作用的美国有关个人和实体实施制裁。随后川普政府立即向美国国会表示对台湾军售，一周内第2度宣布对台军售，是川普上任后第9次对台军售，此次鱼叉飞弹军售案，主要特色是在美国海军瘫痪敌舰，当接近敌舰时，飞弹会突然跃升然后向目标俯冲，穿入舰桥内部爆炸，以提高摧毁敌舰雷达指管通情能量。
 
-发件人：Devon Archer (德文·阿彻)
-收件人：Heather King (希瑟·金), Hunter Biden (亨特·拜登)
-日期： 2014年4月22日 21:35
-主题： Burisma (布利斯玛)的后续跟进
-
-希瑟，
-
-谢谢你今天抽出时间来，以及在电话中的出色表现（对让你有重复工作之处表示抱歉）。 我期待着与你一起合作，共同完成与布利斯玛的这个非常特殊和潜在的巨大机会。
-
-在处理和执行你的委托书之后，我们应该花30分钟与你通话，来介绍我的公司内部背景、管理层和董事会的情况，以及我们面临的直接挑战。
-
-祝好
-德文
-
-### **邮件人物介绍/分析：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29064909/Screen-Shot-2020-10-29-at-8.48.29-pm.png)
-參考資料：[https://conservapedia.com/Devon\_Archer](https://conservapedia.com/Devon_Archer)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29065021/Screen-Shot-2020-10-29-at-8.50.06-pm.png)
-參考資料：[https://www.bsfllp.com/lawyers/heather-king.html](https://www.bsfllp.com/lawyers/heather-king.html)
-
-
-
-[亨特拜登第三波: 硬盘邮件解密 亨特·拜登合伙人德文·阿彻力邀律师西瑟·金加入布利斯马](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29065947/13-Burisma-follow-up_PR_v3-1.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29065947/13-Burisma-follow-up_PR_v3-1.pdf)
+美国国务卿蓬佩奥本周出访印度、斯里兰卡、马尔地夫和印尼，结束印度访问行程，预计28日抵达斯里兰卡，正是美国加强印太合作的战略，对抗中共的任何威胁。美印双方签署了地理空间基本交流与合作协定，分享包括军事卫星在内，所提供的精准地理空间资料。美国强调于区域内长久以来的安全同盟与伙伴，是美国印太战略的“基石”所在，也是在印太地区没有任何竞争对手所能匹敌的“不对称战略优势”，针对中共在国际秩序、区域政治经济军事带来的冲击与破坏，遏止中共无谓、侵略式、扩张式的军事行动。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29080924/%E7%BE%8E%E5%9C%8B%E5%8D%B0%E5%A4%AA%E6%88%B0%E7%95%A5-%E4%B8%8D%E5%B0%8D%E7%A8%B1%E6%88%B0%E7%95%A5%E5%84%AA%E5%8B%A2.png)圖片來源:美國國務院
+美国国防部多次表明，对台军售案是基于《台湾关系法》而推动的项目，能使台湾因应当前和未来中共军事威胁，符合美国国家、经济和安全利益，有助于提高台湾安全和地区政治稳定、军事平衡、经济和进步。
 
 0
