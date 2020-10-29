@@ -1,22 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 决战13天：真相了！黑文贵先生的华尔街日报记者原来是乔拜登最佳的炮友
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/499562/)
+## 美国务卿彭培奥谴责中共港警逮捕三名学生民主活动人士并呼吁立即放人
+` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/500009/)
 
-- 编辑：文顺
+内新闻：背靠背
 
+2020年10月29日，美国务卿彭培奥发推文谴责中共利用所控制的香港警察逮捕三名学生民主活动人士，并呼吁中共立即释放被拘留的人员。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29131805/image-180.png)
+此前三位学生民主人士遭到中共控制的香港警察逮捕，他们是“学生动源”前召集人钟翰林、前成员何忻诺和陈渭贤，被指发表煽动他人分裂国家内容被中共在港黑警逮捕，三人年仅17至21岁。
 
-10月28日，乔拜登照片惊现《华尔街日报》印度裔女记者Aruna Viswanatha，疑为乔拜登最佳炮友！
-
-自郭先生爆料以来，《华尔街日报》不断歪曲事实，肆意抹黑。据知情人透露，撰稿者正是这位女士（右二），也是乔拜登最喜欢的炮友之一。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29113817/PHOTO-2020-10-29-23-13-23.jpg)
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29120319/PHOTO-2020-10-29-23-13-23-1.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25143553/image0-101.jpg)喜西农场官方Parler二维码，敬请关注！
+据众新闻10月27日报道，钟翰林今早在美国驻港澳总领事馆对面的咖啡厅附近被捕。另有四名前成员下午曾尝试进入美领馆寻求庇护，但不成功。
 
 0

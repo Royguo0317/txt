@@ -1,37 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特拜登第三波: 硬盘邮件解密 亨特·拜登合伙人德文·阿彻力邀律师西瑟·金加入布利斯马
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/498579/)
+## 呼吁台侨支持川普总统连任，保卫台湾国家安全。
+` gewsTaiwan` [轉載自GNews](https://gnews.org/zh-hans/498896/)
 
-**亨特拜登第三波: 硬盘邮件解密** — 2014年4月22日亨特·拜登合伙人德文·阿彻力邀律师, 鲍伊斯/希勒/弗莱克斯纳律师事务所的合伙人西瑟·金加入布利斯马 。
+台灣農場Amitofu
 
-### **邮件：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29064038/790fe5a7-805d-437a-b6d6-981ea7635267.jpg)
-### **邮件中文翻译如下：**
+英国民调机构YouGov针对欧洲7国、亚太8国，调查共15个国家的民众对美国总统候选人的支持度，结果显示，台湾人最挺川普总统，其他国家民众都是支持拜登较多，为何台湾这么挺川普总统?
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29082013/%E5%9C%96%E7%89%87-1-6.png)
+川普政府执政以来，全面加强与台湾关系反制中国，推动对台军售常态化、派卫生部长访问台湾及强化美军战力、吓阻中国武力扩张等，打破了近几十年来美国政府对台湾的模糊战略，台湾人长期在国际关系架构上，被中共压制太久了。特别是在民主党欧巴马与拜登执政时代亲中绥靖政策。近日在文贵先生领导的爆料革命及班农战斗室(Warroom pandemic)和纽约之王朱利安尼(Rudy Giuliani)先生、路德社，唯真不破传播真相，揭开拜登家族与中共贪腐的证据，让台湾人清楚明白川普总统无疑是二战后对台湾最友好的美国总统。
 
-发件人：Devon Archer (德文·阿彻)
-收件人：Heather King (希瑟·金), Hunter Biden (亨特·拜登)
-日期： 2014年4月22日 21:35
-主题： Burisma (布利斯玛)的后续跟进
-
-希瑟，
-
-谢谢你今天抽出时间来，以及在电话中的出色表现（对让你有重复工作之处表示抱歉）。 我期待着与你一起合作，共同完成与布利斯玛的这个非常特殊和潜在的巨大机会。
-
-在处理和执行你的委托书之后，我们应该花30分钟与你通话，来介绍我的公司内部背景、管理层和董事会的情况，以及我们面临的直接挑战。
-
-祝好
-德文
-
-### **邮件人物介绍/分析：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29064909/Screen-Shot-2020-10-29-at-8.48.29-pm.png)
-參考資料：[https://conservapedia.com/Devon\_Archer](https://conservapedia.com/Devon_Archer)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29065021/Screen-Shot-2020-10-29-at-8.50.06-pm.png)
-參考資料：[https://www.bsfllp.com/lawyers/heather-king.html](https://www.bsfllp.com/lawyers/heather-king.html)
-
-
-
-[亨特拜登第三波: 硬盘邮件解密 亨特·拜登合伙人德文·阿彻力邀律师西瑟·金加入布利斯马](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29065947/13-Burisma-follow-up_PR_v3-1.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29065947/13-Burisma-follow-up_PR_v3-1.pdf)
+呼吁台湾人民及在美国台侨基于台湾国家利益、对自由民主的追求与坚持，值得台侨在美国总统大选动员支持川普总统，加以投票，尤其是在摇摆州的台裔美国选民，并告诉在美亲朋好友应该支持川普总统连任，以保卫台湾国家安全。
 
 0
