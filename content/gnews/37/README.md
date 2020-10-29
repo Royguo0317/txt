@@ -1,73 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【1】第三波硬盘邮件解密！乌克兰天然气公司瓦迪姆与亨特·拜登商务伙伴德文·阿彻邮件曝光！
-` GM01` [轉載自GNews](https://gnews.org/zh-hans/498612/)
+## 揭露亨特·拜登， 仅仅是揭开与中共勾结的美国深层黑暗势力的开始
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/499228/)
 
-[该部分高清PDF版请点击下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29092039/10.29proofread.translation-17.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29092039/10.29proofread.translation-17.pdf)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29082650/WhatsApp-Image-2020-10-29-at-12.23.12.jpeg)
-**发件人**：瓦迪姆-波扎尔斯基**收件人**：德文-阿彻
-**日期**：2014年5月7日 7:46AM
-**主题**：访问哈萨克斯坦/签证问题
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28173039/logo-1.jpg)
 
-亲爱的阿彻，
 
-继我们上次交流之后，请告知基辅会议之后您计划访问哈萨克斯坦的几个要点：
 
-日期;访问哈萨克斯坦有确切的日期吗？
 
-对口单位;我们计划会见谁，什么级别，仅会见政治人物在内的最高管理层，还是说我们应该带上我们的地质学家/专家？
 
-会谈内容;我们计划讨论哪些议题、合作方向？
+作者：美东香草山 文芒七星 编辑：文位、浪迹天涯
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29095423/183-%E6%8F%AD%E9%9C%B2%E4%BA%A8%E7%89%B9%C2%B7%E6%8B%9C%E7%99%BB%EF%BC%8C-%E4%BB%85%E4%BB%85%E6%98%AF%E6%8F%AD%E5%BC%80%E4%B8%8E%E4%B8%AD%E5%85%B1%E5%8B%BE%E7%BB%93%E7%9A%84%E7%BE%8E%E5%9B%BD%E6%B7%B1%E5%B1%82%E9%BB%91%E6%9A%97%E5%8A%BF%E5%8A%9B%E7%9A%84%E5%BC%80%E5%A7%8B.jpg)
+在过去的一周中，由川普前高级顾问史蒂夫·班农和中国亿万富翁文贵先生创立的媒体集团旗下的GTV，揭露了亨特·拜登的笔记本电脑里的一些关于其吸毒、性虐和乱伦的录像、图像和消息等。
 
-如果我们要讨论与哈萨克斯坦的天然气田合作的可能性，那么从哈萨克方面得到关于可能成为谈判主题的天然气田，地区等任何可能的初步信息都将非常有益，这样我们的地质学家/专家将为我们的代表团进行富有成效的谈判做准备。
+这不仅向世界传播了真相，而且还实锤地警告腐败的美国政府官员、华尔街精英以及中共，文贵先生领导的爆料革命确凿掌握着亨特·拜登笔记本电脑中的所有内容。相反，美国司法部和众议院议长南希·佩洛西在数月前已同样掌握这些信息的情况下，却没有任何行动。更糟的是，美国媒体和大科技公司对这些揭露行为还迳行了严格的审查和封杀。
 
-尼古拉的签证问题你有什么消息吗？
+当前，GTV所揭露的亨特.拜登电脑里的内容只是冰山一角，但仍震惊了世界，且尤其是美国。据文贵先生透露，接下来的一个星期会有更多的内容被揭露出来，而且要通过揭开与中共勾结的美国深层黑暗势力，最终达到推翻中共的目的。
 
-祝好，瓦迪姆
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29085513/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8812.54.48.png)
-**发件人**：德文-阿彻
-**日期**：2014年5月7日 16:03
-**收件人**：瓦迪姆-波扎尔斯基  
-**主题**：访问哈萨克斯坦/签证问题
+在过去的几十年中，中共实施的蓝金黄计划利用黑材料成功地控制了许多西方政客和企业精英。作为2020年美国总统大选候选人的乔·拜登及其家人100％已经被中共所控制，这是中共蓝金黄计划一个很好的成功例子。
 
-瓦迪姆，
-下周我将提供给你一份哈萨克斯坦的完整行程表，但主要的会议定于6月2日与哈萨克总理马西莫夫举行。 一切都将围绕这次会议展开，主题是确保取得哈萨克已探明储备的最高质量油田。 此外，还将概念性地讨论其他合作。
+从亨特·拜登电脑里可怕的内容细节可以看出，华盛顿政府实际上已经走偏了很远，相关官员已将他们的个人利益远远凌驾于于美国国家利益之上。由于拜登等人的权力运作方式，美国的国家安全、传统价值观和文化遭到了破坏，美国人的自由和利益都被中共夺走。
 
-也请告知你此次行程的其他可能的目的。
+据DJHJ媒体称，史蒂夫·班农和GTV可能将担负起拯救西方文明的使命。
 
-此外，31日我在阿拉木图的40岁生日派对也将成为焦点。
 
-我们暂定28日傍晚抵达基辅，30日晚饭后或31日清晨离开。周日在阿拉木图逗留，周一和周二在阿斯塔纳开会。
 
-然后初步的计划是我和Alex从阿斯塔纳前往北京。 如果我们能够在这个时间段内协调中海油合作会议的话，我们希望你和尼古拉也能加入我们。如果中海油合作会议有进展，我们计划6月5日或6日从北京出发前往我们各自的家乡。
-
-我今天会跟进瓦迪姆的签证。
-
-祝福，
-
-德文·阿彻
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29085612/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8812.55.37.png)
-**发件人**：瓦迪姆-波扎尔斯基
-**收件人**：德文-阿彻
-**日期**：2014年5月8日 4:24AM
-**主题**：访问哈萨克斯坦/签证问题
-
-亲爱的阿彻，
-谢谢您的回复。
-我与同僚商议后再回复您。
-
-祝福， 瓦迪姆
-
-**邮件人物介绍/分析：**
-
-- 发件人瓦迪姆·波扎尔斯基 (Vadim Pozharskyi) ，是乌克兰天 然气公司 Burisma 董事会成员，乌克兰裔。
-- 参考资料:[http://energysecurityforum.org/esf-council/92-vadym-pozharskyi](http://energysecurityforum.org/esf-council/92-vadym-pozharskyi)
-- [Email reveals how Hunter Biden introduced Ukrainian biz man …nypost.com › 2020/10/14 › email-reveals-how-hunter-…](https://nypost.com/2020/10/14/email-reveals-how-hunter-biden-introduced-ukrainian-biz-man-to-dad/)）
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29085715/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8812.56.47.png)
-- 收件人Devon Archer (德文·阿彻) 是亨特·拜登的商务伙伴
-- 参考资料:[https://conservapedia.com/Devon\_Archer](https://conservapedia.com/Devon_Archer)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29085755/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8812.57.36.png)
-0
+1+

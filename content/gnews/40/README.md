@@ -1,37 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 十月惊奇的尾声
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/497639/)
+## 【1】第三波硬盘邮件解密！乌克兰天然气公司瓦迪姆与亨特·拜登商务伙伴德文·阿彻邮件曝光！
+` GM01` [轉載自GNews](https://gnews.org/zh-hans/498612/)
 
-### *——亨特拜登各种“性”视频不断曝光的背后*
+[该部分高清PDF版请点击下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29092039/10.29proofread.translation-17.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29092039/10.29proofread.translation-17.pdf)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29082650/WhatsApp-Image-2020-10-29-at-12.23.12.jpeg)
+**发件人**：瓦迪姆-波扎尔斯基**收件人**：德文-阿彻
+**日期**：2014年5月7日 7:46AM
+**主题**：访问哈萨克斯坦/签证问题
 
-*作者：桂花酒*
+亲爱的阿彻，
 
-*校对：宁缺；审核：free dust；Page：Eric8848*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29000027/bar.png)
-自从郭文贵先生10月23日发出“终极之战”的号角以来，首当其冲的就是含有亨特拜登乱性图片内容的推特遭到无情的封杀，其中包括以路德为代表的大批爆料革命战友、正义人士的账号。
+继我们上次交流之后，请告知基辅会议之后您计划访问哈萨克斯坦的几个要点：
 
-截止10月27日，亨特拜登的图片和视频还在持续流出，GTV在按自己的节奏爆料。我在想，一个人无论他多么无耻、无底线，但仅靠性泛滥是不可能对他造成致命打击的。何况这是前副总统的公子，一个背着“悲情英雄”光环的现总统候选人的儿子呢。
+日期;访问哈萨克斯坦有确切的日期吗？
 
-根据GNEWS秘密翻译组10月25日提供的亨特拜登一张背后纹身的照片显示，他有可能与贩卖人口的犯罪有染，这只是事情的一个方面。另一方面10月25日同一天，GTV爆出亨特拜登9.5英寸生殖器性侵未成年女孩的视频则让天下做父母的都无法安眠。种种不堪的对象里甚至包括他哥哥的女儿，和他的亲侄女有不当性关系的图片也表明了他是个不具有人类基本道德底线的人。他自爆自己痛苦的灵魂，并且他的精神科医生向乔拜登报告过情况。
-[!\[\]()!\[\](https://spark.adobe.com/page/vuL2gFjSe1nOm/images/bcf3290f-28be-4de8-a400-4c7227330cf5.jpg?asset_id=b1185d7e-d648-47a6-86dd-d8f58a694307&amp;img_etag=%229e5c67b2e9c0e628a1910b9a3e200ee1%22&amp;size=1024)](https://spark.adobe.com/page/vuL2gFjSe1nOm/images/bcf3290f-28be-4de8-a400-4c7227330cf5.jpg?asset_id=b1185d7e-d648-47a6-86dd-d8f58a694307&amp;img_etag=%229e5c67b2e9c0e628a1910b9a3e200ee1%22&amp;size=1024)图片来自网络
-而其行为不仅仅是个人犯罪，在烜赫的社会地位掩盖下有没有集体犯罪的可能？至于被曝光的接受中共利益输送高达45亿美元的财产更让人相信这位公子的犯罪绝非普通性质。反观他的“合伙人”中共，已经是世界公认的人类公敌。自从中共病毒爆发以来，中共通过WHO不断掩盖疫情，嫁祸美国。他们提供器官活摘，强迫新疆劳改营制造产品出口，对吹哨人李文亮灭口，让诺贝尔和平奖得主刘晓波肝癌死，抓捕在美国爆料病毒真相的香港P3实验室研究员闫丽梦博士的母亲，都证明中共是不折不扣的有组织犯罪集团。
+对口单位;我们计划会见谁，什么级别，仅会见政治人物在内的最高管理层，还是说我们应该带上我们的地质学家/专家？
 
-据此可以判断亨特拜登参与有组织犯罪不是空穴来风。根据郭文贵先生披露，今年抓捕到的一名大陆贪官家中有数个未成年女孩的尸体制作的“木乃伊”，据称此官员收集未成年女尸的怪异癖好。而亨特拜登的种种反人性的性行为又常常在吸毒后发生。联系前后，不禁让人毛骨悚然。
+会谈内容;我们计划讨论哪些议题、合作方向？
 
-当然，以上这些观点只是在既定事实下的推测，至于真实情况，相信未来几天甚至几小时后就会揭晓的。
+如果我们要讨论与哈萨克斯坦的天然气田合作的可能性，那么从哈萨克方面得到关于可能成为谈判主题的天然气田，地区等任何可能的初步信息都将非常有益，这样我们的地质学家/专家将为我们的代表团进行富有成效的谈判做准备。
 
-编辑：【喜马拉雅战鹰团】- 点击spark adobe版
+尼古拉的签证问题你有什么消息吗？
 
-了解更多资讯敬请关注：
+祝好，瓦迪姆
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29085513/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8812.54.48.png)
+**发件人**：德文-阿彻
+**日期**：2014年5月7日 16:03
+**收件人**：瓦迪姆-波扎尔斯基  
+**主题**：访问哈萨克斯坦/签证问题
 
-【战鹰团Gab】[https://gab.com/himalayahawks](https://gab.com/himalayahawks)
+瓦迪姆，
+下周我将提供给你一份哈萨克斯坦的完整行程表，但主要的会议定于6月2日与哈萨克总理马西莫夫举行。 一切都将围绕这次会议展开，主题是确保取得哈萨克已探明储备的最高质量油田。 此外，还将概念性地讨论其他合作。
 
-【英国喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
+也请告知你此次行程的其他可能的目的。
 
-【英国喜庄园GTV/盖特】：[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+此外，31日我在阿拉木图的40岁生日派对也将成为焦点。
 
-【大卫作战室YouTube】[https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
-[!\[\]()!\[\](https://spark.adobe.com/page/vuL2gFjSe1nOm/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/vuL2gFjSe1nOm/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+我们暂定28日傍晚抵达基辅，30日晚饭后或31日清晨离开。周日在阿拉木图逗留，周一和周二在阿斯塔纳开会。
+
+然后初步的计划是我和Alex从阿斯塔纳前往北京。 如果我们能够在这个时间段内协调中海油合作会议的话，我们希望你和尼古拉也能加入我们。如果中海油合作会议有进展，我们计划6月5日或6日从北京出发前往我们各自的家乡。
+
+我今天会跟进瓦迪姆的签证。
+
+祝福，
+
+德文·阿彻
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29085612/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8812.55.37.png)
+**发件人**：瓦迪姆-波扎尔斯基
+**收件人**：德文-阿彻
+**日期**：2014年5月8日 4:24AM
+**主题**：访问哈萨克斯坦/签证问题
+
+亲爱的阿彻，
+谢谢您的回复。
+我与同僚商议后再回复您。
+
+祝福， 瓦迪姆
+
+**邮件人物介绍/分析：**
+
+- 发件人瓦迪姆·波扎尔斯基 (Vadim Pozharskyi) ，是乌克兰天 然气公司 Burisma 董事会成员，乌克兰裔。
+- 参考资料:[http://energysecurityforum.org/esf-council/92-vadym-pozharskyi](http://energysecurityforum.org/esf-council/92-vadym-pozharskyi)
+- [Email reveals how Hunter Biden introduced Ukrainian biz man …nypost.com › 2020/10/14 › email-reveals-how-hunter-…](https://nypost.com/2020/10/14/email-reveals-how-hunter-biden-introduced-ukrainian-biz-man-to-dad/)）
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29085715/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8812.56.47.png)
+- 收件人Devon Archer (德文·阿彻) 是亨特·拜登的商务伙伴
+- 参考资料:[https://conservapedia.com/Devon\_Archer](https://conservapedia.com/Devon_Archer)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29085755/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8812.57.36.png)
 0
