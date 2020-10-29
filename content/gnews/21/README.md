@@ -1,41 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 给人类哀的美敦书
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/497725/)
+## 【台风巨眼】由乌克兰Vadim Pozharskyi至拜登前商业伙伴Devon Archer的邮件谈起
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/499164/)
 
-*作者：文护念*
-
-*校对：宁缺；审核：free dust；Page：Eric8848*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28173039/logo-1.jpg)
 
 
-此视频为：《川普VS影子政府-震撼演讲》
-四年前，当时还是共和党参选人的川普先生在此视频发表了振奋人心的演讲，视频谈及的内容，如今一一应验。
 
-天将降大任于斯人也，必先苦其心志。在川普总统任内的四年，被Deep State的暗黑势力千方百计设局陷害，利用控制的媒体抹黑川普总统，把川普总统描绘成为一个千夫所指的国家罪人。无论是精神上的折磨，还是中共病毒对其身体的攻击，都无法把川普总统击倒。经历了百般磨难，如今才铸造了钢铁般意志的战士。
 
-正如川普总统在视频中谈到：“这是我们国家生死存亡的斗争，这会是我们最后一次机会来拯救它。这次选举会决定我们是一个自由的国度，还是我们只有民主的假象。实际上却被一小撮的全球特殊利益集团控制来操纵制度，而我们的制度已经被操纵了。这就是现实，你知道，他们知道。我知道，非常肯定，全世界都知道。”
 
-不仁者而居高其位，是播其恶于众也。无论是前任总统奥巴马，时任国务卿希拉里，还是当今权倾朝野的拜登家族，他们都是身居要职，恋栈权力，利用公权与中共眉来眼去，互输私利，其伤害的正是美国民众与中国的老百姓。
+作者：香草山写作组 Kathy（文艺）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29092155/182-%E3%80%90%E5%8F%B0%E9%A3%8E%E5%B7%A8%E7%9C%BC%E3%80%91%E7%94%B1%E4%B9%8C%E5%85%8B%E5%85%B0Vadim-Pozharskyi%E8%87%B3%E6%8B%9C%E7%99%BB%E5%89%8D%E5%95%86%E4%B8%9A%E4%BC%99%E4%BC%B4Devon-Archer%E7%9A%84%E9%82%AE%E4%BB%B6%E8%B0%88%E8%B5%B7-1.jpg)
+“台风调查报告”里的这张关系网，揭开了前美国务卿，联邦参议员，美国民主党2004年提名的总统参选人John Kerry（克里） 及其继子 Christopher Heinz（海因茨）在其中的位置。而今天由爆料革命释放出的一份由乌克兰裔Vadim Pozharskyi（瓦蒂姆）的邮件，又牵出了另一中间人-收件人Devon Archer（阿彻）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29092223/182-%E3%80%90%E5%8F%B0%E9%A3%8E%E5%B7%A8%E7%9C%BC%E3%80%91%E7%94%B1%E4%B9%8C%E5%85%8B%E5%85%B0Vadim-Pozharskyi%E8%87%B3%E6%8B%9C%E7%99%BB%E5%89%8D%E5%95%86%E4%B8%9A%E4%BC%99%E4%BC%B4Devon-Archer%E7%9A%84%E9%82%AE%E4%BB%B6%E8%B0%88%E8%B5%B7-2.jpg)
+据媒体公开报道，阿彻曾在2004年担任克里竞选总统的高级顾问。“华尔街日报”还爆料称，阿彻在大学时，还是克里继子海因茨的室友。而阿彻与亨特拜登的关系更早，91年就一起建立私募基金公司Rosemont Investment Group(罗斯蒙特资本)，那时亨特才二十出头。阿彻是亨特和海因茨的公司Rosemont Seneca Partners,LLC的合作伙伴。
 
-这是人类文明的十字路口，人生不只限于自身，而岂衣食温饱之谓生乎！文明乃群体一大生命，与个己小生命不同。个体小生命必寄存在躯体物质中，其生命既微小，又短暂；大生命乃超躯体而广大悠久。如若被暗黑势力掌控全世界，届时整个地球都充斥战争、谎言，人类文明将会断层，所以捍卫地球文明，燃眉之急。人类会走向何方，与每个人都休戚相关，没人可以置身事外。
-[!\[\]()!\[\](https://spark.adobe.com/page/F852gRGTr8i6m/images/f5b2a86d-4cb5-40c1-a1b3-69e92018ff15.jpg?asset_id=d0e942df-80de-4390-a6a6-cad27cfaeb78&amp;img_etag=%22fac9312547bf321bbe2f9d287d1a45df%22&amp;size=1024)](https://spark.adobe.com/page/F852gRGTr8i6m/images/f5b2a86d-4cb5-40c1-a1b3-69e92018ff15.jpg?asset_id=d0e942df-80de-4390-a6a6-cad27cfaeb78&amp;img_etag=%22fac9312547bf321bbe2f9d287d1a45df%22&amp;size=1024)
-川普总统腰缠万贯，本可衣食无忧，但他放弃了，选择站出来，为“光复美国”而战。尊敬的郭文贵先生，放弃了千亿资产，卧薪尝胆，准备了三十年，为中国老百姓而战，为正义与尊严而战。问舍求田原无大志，掀天揭地方是奇才，还有千万正义的人都站出来了。上天有好生之德，还没有放弃人类。扼言之，人类仍存希望，自救者，天救之。
+Burisma Holidings（布利斯马股份有限公司）是乌克兰最大天然气供应商，亨特拜登自14年到19年间担任此公司的董事。2019年，美国总统特朗普指控乔拜登要求乌克兰解雇一位在调查行动中袒护亨特拜登的律师西瑟-金，而引发特朗普被人揭发向乌克兰政府施压以调查拜登家族，而面临弹劾，而力邀西瑟加入布利斯马的就是这位阿彻。
 
-尽管这段时间我们被很多颠覆三观的事情深受影响，但是我们不能气馁。 我们要抱有敬畏之心往上看，有天道、人道、阿修罗道；至于我们能够做什么，就是把那些作恶多端的人送去饿鬼道、畜生道、地狱道轮回。
+这封邮件来自乌克兰天然气公司Burisma董事会成员及同事瓦蒂姆，这位乌克兰裔的波兰同事，很有可能就是波兰前总统Aleksander Kwasniewski(克瓦希涅夫斯基）。而收件人Devon Archer(德文-阿彻)就是亨特-拜登的商业伙伴，更准确点说，阿彻就是拜登家族在乌克兰天然气事件的“白手套”。
 
-正义与邪恶永远没有中间，我们应该摒弃平庸之恶。一息尚存，都应该嫉恶如仇，为正义而战。举而措之天下之民，谓之事业。相信伟大的美利坚合众国与新中国联邦携手定能闯出一番事业，拯救人类。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayanyM)！
 
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/F852gRGTr8i6m/)】- 点击spark adobe版
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-了解更多资讯敬请关注：
+圣经故事背景，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-【战鹰团Gab】[https://gab.com/himalayahawks](https://gab.com/himalayahawks)
-
-【英国喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
-
-【英国喜庄园GTV/盖特】：[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-【大卫作战室YouTube】[https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
-[!\[\]()!\[\](https://spark.adobe.com/page/F852gRGTr8i6m/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/F852gRGTr8i6m/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

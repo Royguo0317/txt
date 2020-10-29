@@ -1,34 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特拜登第三波: 硬盘邮件解密 民主党金主比尔· 巴特曼承诺无条件支持亨特拜登
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/498240/)
+## 小川普警告，本次大选是“自由与暴政，资本主义与社会主义和共产主义间的对决”
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/498425/)
 
-### **邮件：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29042141/1-296.png)
-### **邮件中文翻译如下：**
+翻译：康州农场 Feiyi
+校对：康州农场 蜗牛先生
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27120143/a203cfe3a24d38e699001a3c10ef98bb7b254b4226246d1daebd5e217537dc2d_large.jpg)
+小唐纳德·川普(Donald Trump Jr.)周三晚在《汉尼提》(Hannity)节目中表示，民主党的“终极之战”是把美国变成一个极左的马克思主义国家，不允许异见存在。
+小唐纳德显然是指持刀黑人袭击警察后被警察枪击之后发生的费城骚乱。小唐纳德对主持人肖恩·汉尼提说:“那些都是拜登的选民。这就是今天的民主党。这是全美国人民必须认识到的，这不是你们祖辈的民主党。这个民主党是一个社会主义和马克思主义政党。”
+“他们不再代表辛勤工作的美国人”小川普继续说道,“他们不在乎是否永远关闭你的生意，不在乎你的生计问题。你猜怎么着?他们会让你参加一个政府项目。你将终生成为民主党的选民。”
+总统的儿子继续解释说:“这次选举是关于自由与暴政，资本主义与社会主义和共产主义的对垒。他们甚至不再伪装了。他们享受这种类比，这让我们所有人都感到害怕。”
 
-**邮件标题：**拜登之子亨特因可卡因测试不合格被海军后备队开除军籍 – 华尔街日报(报道)
+小川普对汉尼提说，现代民主党“禁止他们不喜欢的人发表言论”，他们是由那些“在街上烧书、在全国各地内城抢劫和暴乱的人”组成的。
+在谈到总统竞选时，41岁的小川普说，他在佛罗里达州的集会取得了很大的成功，吸引了大约3000人来到这个“宝藏海岸”。“太棒了！”他开玩笑说，他向集会的参与者确认，他们应该知道这次集会“不是为老一代而是为新一代选民”举行的。
 
-**发件人：**Bill Bartmann (比尔·巴特曼)
+原文链接：：https://www.foxnews.com/politics/donald-trump-jr-2020-election-freedom-tyranny-capitalism-socialism
 
-**日期：**2014年10月16日8:30PM
-**收件人：**亨特·拜登
-
-亨特，
-
-您的朋友们无条件与您站在一起。
-
-在这个尴尬的时刻 ， 让我知道我是否能提供帮助。 如你所知，我也有一些尴尬的经历。
-
-[http://m.wsj.com/articles/bidens-son-hunter-discharged-from-navy-reserve-after-failingcocaine-test-1413499657?mobile=y](http://m.wsj.com/articles/bidens-son-hunter-discharged-from-navy-reserve-after-failingcocaine-test-1413499657?mobile=y)** **
-
-### **邮件人物介绍/分析：**
-
-- 发件人猜测可能是民主党金主比尔·巴特曼（Bill Bartmann）
-- 参考资料：[https://en.wikipedia.org/wiki/Bill\_Bartmann](https://en.wikipedia.org/wiki/Bill_Bartmann)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29045041/Screen-Shot-2020-10-29-at-6.50.19-pm.png)
-[亨特拜登第三波: 硬盘邮件解密 民主党金主比尔· 巴特曼承诺无条件支持亨特拜登](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29045441/7-Email-Declassification.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29045441/7-Email-Declassification.pdf)
-
-0
+1+

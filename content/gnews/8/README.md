@@ -1,14 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统：拜登家族深度腐败，呼吁民众出门投票
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/499563/)
+## 决战13天：真相了！黑文贵先生的华尔街日报记者原来是乔拜登最佳的炮友
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/499562/)
 
-视频来源：[https://twitter.com/i/status/1321286217032290304](https://twitter.com/i/status/1321286217032290304)
-总结：川普总统在10月27日通过社交媒体播出了自己对拜登家族腐败一事的看法，相信是与最近在媒体和互联网上曝光的拜登家族的腐败证据有关。川普总统称拜登家族在乔·拜登任职美国副总统期间积累了天量的财富，而且几乎是在一瞬间完成的。他认为美国人民应该知道这些真相，并在这场可以说是美国有史以来最重要的选举中做出自己的选择。
+- 编辑：文顺
 
-翻译：【Winston Jackson】校对：【重生】字幕：【Vinzo】编辑：【Isaiah4031】
 
-战友之家玫瑰园小队出品
+10月28日，乔拜登照片惊现《华尔街日报》印度裔女记者Aruna Viswanatha，疑为乔拜登最佳炮友！
+
+自郭先生爆料以来，《华尔街日报》不断歪曲事实，肆意抹黑。据知情人透露，撰稿者正是这位女士（右二），也是乔拜登最喜欢的炮友之一。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29113817/PHOTO-2020-10-29-23-13-23.jpg)
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29120319/PHOTO-2020-10-29-23-13-23-1.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25143553/image0-101.jpg)喜西农场官方Parler二维码，敬请关注！
 
 0
