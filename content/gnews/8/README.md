@@ -1,29 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【台风巨眼】由乌克兰Vadim Pozharskyi至拜登前商业伙伴Devon Archer的邮件谈起
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/499164/)
+## 天主教徒乔•拜登，你的家族如此龌龊上帝知道吗
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/497927/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28173039/logo-1.jpg)
+作者：宁缺
 
+校对：Julia Win；审核：Julia Win；Page：Eric8848
 
+## 天主教徒乔•拜登，你的家族如此龌龊上帝知道吗？
 
+在我的心中，虔诚的天主教徒一直是神圣无私的存在。我接触过的天主教徒都是对主忠诚，充满爱和对他人关怀的群体。
 
+[!\[\]()!\[\](https://spark.adobe.com/page/wjSVMvQZ94dtN/images/cd250a15-2d0d-4792-9fa9-d31dd9b91633.jpg?asset_id=6848dd11-7ec6-4eb5-951b-9688780b4de8&amp;img_etag=%22f9f70c6e2120ee89aef27f63a49e2f56%22&amp;size=1024)](https://spark.adobe.com/page/wjSVMvQZ94dtN/images/cd250a15-2d0d-4792-9fa9-d31dd9b91633.jpg?asset_id=6848dd11-7ec6-4eb5-951b-9688780b4de8&amp;img_etag=%22f9f70c6e2120ee89aef27f63a49e2f56%22&amp;size=1024)图片来自网络
 
-作者：香草山写作组 Kathy（文艺）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29092155/182-%E3%80%90%E5%8F%B0%E9%A3%8E%E5%B7%A8%E7%9C%BC%E3%80%91%E7%94%B1%E4%B9%8C%E5%85%8B%E5%85%B0Vadim-Pozharskyi%E8%87%B3%E6%8B%9C%E7%99%BB%E5%89%8D%E5%95%86%E4%B8%9A%E4%BC%99%E4%BC%B4Devon-Archer%E7%9A%84%E9%82%AE%E4%BB%B6%E8%B0%88%E8%B5%B7-1.jpg)
-“台风调查报告”里的这张关系网，揭开了前美国务卿，联邦参议员，美国民主党2004年提名的总统参选人John Kerry（克里） 及其继子 Christopher Heinz（海因茨）在其中的位置。而今天由爆料革命释放出的一份由乌克兰裔Vadim Pozharskyi（瓦蒂姆）的邮件，又牵出了另一中间人-收件人Devon Archer（阿彻）。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29092223/182-%E3%80%90%E5%8F%B0%E9%A3%8E%E5%B7%A8%E7%9C%BC%E3%80%91%E7%94%B1%E4%B9%8C%E5%85%8B%E5%85%B0Vadim-Pozharskyi%E8%87%B3%E6%8B%9C%E7%99%BB%E5%89%8D%E5%95%86%E4%B8%9A%E4%BC%99%E4%BC%B4Devon-Archer%E7%9A%84%E9%82%AE%E4%BB%B6%E8%B0%88%E8%B5%B7-2.jpg)
-据媒体公开报道，阿彻曾在2004年担任克里竞选总统的高级顾问。“华尔街日报”还爆料称，阿彻在大学时，还是克里继子海因茨的室友。而阿彻与亨特拜登的关系更早，91年就一起建立私募基金公司Rosemont Investment Group(罗斯蒙特资本)，那时亨特才二十出头。阿彻是亨特和海因茨的公司Rosemont Seneca Partners,LLC的合作伙伴。
+曾经的大学英语语言老师杰森，是堪萨斯大学语言学硕士，拖家带口不远万里来到中国，全家挤在狭窄的学生公寓里，却和妻子一起坚持为中国学生传播西方文化，教授西方语言课程。我亲眼见证过天主教地下教会的主教，不畏中共暴政威胁，坚持传播信仰和开展正常的教会活动。主教一生清贫如洗，却敢于坚持信仰被中共当局九抓九放，累积服刑超过28年。他在监狱中经常遭狱警恐吓，毒打，但从未低头屈服、放弃信仰。试问人一辈子掐头去尾，有几个28年。这都是我自己亲身接触过的天主教徒。正是这些为信仰放弃名利，无所畏惧的天主教徒，激励着我勇敢站出来与中共斗争到底。
 
-Burisma Holidings（布利斯马股份有限公司）是乌克兰最大天然气供应商，亨特拜登自14年到19年间担任此公司的董事。2019年，美国总统特朗普指控乔拜登要求乌克兰解雇一位在调查行动中袒护亨特拜登的律师西瑟-金，而引发特朗普被人揭发向乌克兰政府施压以调查拜登家族，而面临弹劾，而力邀西瑟加入布利斯马的就是这位阿彻。
+现在，也有一位站在媒体面前自称是天主教徒的美国总统候选人家族，却让我眼睛被辣得不忍直视，内心里直犯恶心。这自称信仰天主教的一家人，干出来的事却让信仰跟着蒙羞。
 
-这封邮件来自乌克兰天然气公司Burisma董事会成员及同事瓦蒂姆，这位乌克兰裔的波兰同事，很有可能就是波兰前总统Aleksander Kwasniewski(克瓦希涅夫斯基）。而收件人Devon Archer(德文-阿彻)就是亨特-拜登的商业伙伴，更准确点说，阿彻就是拜登家族在乌克兰天然气事件的“白手套”。
+让我们细数到目前为止有爆料事实证明的拜登家族七宗罪恶：
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayanyM)！
+**第一宗：与撒旦为伍。**
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+独裁暴政的中共消灭宗教信仰，拆毁教堂。拜登家族自甘堕落，成为中共邪恶撒旦政权的马前卒。这是对上帝最大的亵渎。
 
-圣经故事背景，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+**第二宗：贪恋财物。**
+
+拜登家族为中共鞍前马后，奔走美国政坛，所有的出发点都是金钱。贪恋财物是拜登家族所有恶行的犯罪之源。
+
+**第三宗：出卖国家利益。**
+
+作为美国政府高级官员，为了金钱、权利，与包括中共国在内的国家勾结，出卖美国国家利益。以南海为例，中共仅花了10亿美元，就得到拜登家族的帮助，以及当时奥巴马政府的默许，得以施行在南海的军事扩张计划。拜登家族还帮助中共收购美国企业，使得中共有机会反手低价倾销摧毁美各行业，让无数的美国人失去工作岗位。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/wjSVMvQZ94dtN/images/46b9ef67-436e-4169-a630-60a2d184e6ee.jpg?asset_id=da9b230d-c768-4593-960d-3b931cefea42&amp;img_etag=%22b478e5c8df00f95a9d0409533aa122f7%22&amp;size=1024)](https://spark.adobe.com/page/wjSVMvQZ94dtN/images/46b9ef67-436e-4169-a630-60a2d184e6ee.jpg?asset_id=da9b230d-c768-4593-960d-3b931cefea42&amp;img_etag=%22b478e5c8df00f95a9d0409533aa122f7%22&amp;size=1024)图片来自网络
+
+**第四宗：出卖忠诚于美国国家利益的勇士军人。**
+
+为使奥巴马政府赢得连任，自己能继续担任副总统。拜登配合奥巴马政府制造拉登被击毙的假象，事后通过各种手段将知晓内情的重要参与者-海豹六队全部灭口。
+
+**第五宗：荒淫无度，滥交无下限。**
+
+老拜登自己曾经就一度传出对多名女下属实施性骚扰和威胁。现在，儿子亨特.拜登无论是中国明星，还是疑似奥巴马女儿，甚至连未成年儿童也不放过，性侵、性虐！自己的亲侄女，亲嫂子更是来者不拒。好吃不过饺子，好玩不过嫂子。这样的玩笑话竟然在大众广庭之下成为现实，果然一脉相承，“品质不凡”。
+
+**第六宗：沾染毒品，醉生梦死。**
+
+在文贵先生发出的爆料图片显示，亨特多次点火吸食大麻，房间内还留有疑似是毒品的白色粉末照片。亨特的眼神始终无法聚焦，迷离失神。作为前美国副总统的儿子，亨特败坏美国国家形象，为自己亲爹脸上涂粪的本事实在是非常给力。
+
+**第七宗：撒谎成性，死不悔改。**
+
+之前面对媒体指控拜登指使亨特与中共、乌克兰等国家勾结，参股白手套公司就百般抵赖，一概否认，还指责是川普总统的有意陷害，凸显流氓政客无耻本性。现在，文贵先生爆出亨特亲手签名，亲身滥交的文件和视频后，老拜登既不承认，也不否认，干脆玩起了消失。
+
+仅按照目前文贵先生和路德访谈爆料出的情况，就罗列了这么多罪恶，这里面有哪一条是真正的天主教徒能干出来的事情！有哪一条没有违背圣经的教诲！我不禁想问，拜登家族，你们内心究竟是把上帝放在至高无上、神圣不可欺骗的位置上，还是仅仅为了争名夺利、保住权位，通过虚情假意膜拜上帝来拉拢选民、迎合选票？信仰上帝的口号叫得震天响，背弃信仰道德、出卖国家利益的行动也干得热火朝天。人前一套，人后一套。正应了中共所谓的“两手都要抓，两手都要硬”。你们与中共搅和在一起时间太久，已经完全被赤化了吧！
+
+拜登家族，你们如此的肮脏龌龊，亵渎神明，难道就不怕上帝知道吗！
+
+【注：文章观点谨代表作者】
+
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/wjSVMvQZ94dtN/)】-点击spark adobe版
+
+更多资讯敬请关注：
+
+【战鹰团Gab】[https://gab.com/himalayahawks](https://gab.com/himalayahawks)
+
+【英喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
+
+【英喜庄园GTV/盖特】:
+
+[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+【大卫作战室YouTube】：[https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/wjSVMvQZ94dtN/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/wjSVMvQZ94dtN/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

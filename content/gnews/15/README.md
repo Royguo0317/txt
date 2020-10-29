@@ -1,28 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 又美企撤离中国：史丹利百得 数千工人一夜间失业
-` GM06` [轉載自GNews](https://gnews.org/zh-hans/498803/)
+## 【台风巨眼】由乌克兰Vadim Pozharskyi至拜登前商业伙伴Devon Archer的邮件谈起
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/499164/)
 
-编辑：雅典娜之矛
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28173039/logo-1.jpg)
 
-世界巨变的过程中，美国企业正在做出最终的选择。撤离中国市场是目前为止最紧迫的行动。这会给中国市场带来怎样的影响？脱钩和内循环已成事实，中国老百姓在这个过程中恐怕要经受一次经济和心理的强大冲击。职业，收入，经济缩水，粮食安全不确定性，还未退去的疫情大流行都在浮出水面！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29080305/%E5%9B%BE%E7%89%87-20.png)
-美中爆发贸易战以来，陆续有外企把产业链撤离中国。全球最大五金工具企业“史丹利百得”也加入此行列，宣布关闭深圳工厂，估计涉及数千名员工。有分析相信，史丹利百得的决定是因为忍受不了大陆的侵权行为，加上美中关系不明朗，所以最后决定完全撤离中国。
 
-以“构思大胆创新”作为企业口号的史丹利百得，以生产电钻、电批等五金工具闻名全球，名列“财富”杂志五百强企业，上世纪90年代在中国成立子公司，至今研发出一百多种工具系列，透过分销网络销售全球。
 
-广东媒体为庆祝深圳特区成立40周年早前对这家工厂进行专题报道。当时企业高管表示，公司透过充分利用协作机器人等先进技术，大幅削减了生产线所需人手，可是这家全球最大五金工具企业周一（26日）突然发公告，宣布解散深圳子公司，深圳工厂从当天开始停产。
 
-上传到互连网的公告表示，市场整体环境变化，加上行业内竞争加剧，集团基于战略发展需求，加速重整业务资源，以提升市场竞争力。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29080324/%E5%9B%BE%E7%89%87%C2%B7.png)史丹利百得深圳子公司发出的提前解散公告近日在网上流传。 （互连网图片）
- 
-自从美中爆发贸易站，不少外企已把产业链撤离中国，迁往东南亚。台湾中华经济与金融协会副秘书长曾志超表示， 史丹利百得的产品以出口为主，加上中国未能有效遏制侵权行为，面对艰难处境，选择走这一步是可以理解的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29080430/%E5%9B%BE%E7%89%87-21.png)
-资料显示，史丹利百得在深圳的厂房占地面积54000平方米，雇用数千名员工。综合大陆媒体报道，资方提供的赔偿方案高于法定标准。至于生产线会迁到东南亚还是美国，目前尚未明朗。
 
-据了解，史丹利百得除了在深圳，在苏州，上海等地也设有生产和研发基地。2010年，百得因搬迁问题曾引发数次罢工，规模最大的一次有数千人参与。
+作者：香草山写作组 Kathy（文艺）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29092155/182-%E3%80%90%E5%8F%B0%E9%A3%8E%E5%B7%A8%E7%9C%BC%E3%80%91%E7%94%B1%E4%B9%8C%E5%85%8B%E5%85%B0Vadim-Pozharskyi%E8%87%B3%E6%8B%9C%E7%99%BB%E5%89%8D%E5%95%86%E4%B8%9A%E4%BC%99%E4%BC%B4Devon-Archer%E7%9A%84%E9%82%AE%E4%BB%B6%E8%B0%88%E8%B5%B7-1.jpg)
+“台风调查报告”里的这张关系网，揭开了前美国务卿，联邦参议员，美国民主党2004年提名的总统参选人John Kerry（克里） 及其继子 Christopher Heinz（海因茨）在其中的位置。而今天由爆料革命释放出的一份由乌克兰裔Vadim Pozharskyi（瓦蒂姆）的邮件，又牵出了另一中间人-收件人Devon Archer（阿彻）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29092223/182-%E3%80%90%E5%8F%B0%E9%A3%8E%E5%B7%A8%E7%9C%BC%E3%80%91%E7%94%B1%E4%B9%8C%E5%85%8B%E5%85%B0Vadim-Pozharskyi%E8%87%B3%E6%8B%9C%E7%99%BB%E5%89%8D%E5%95%86%E4%B8%9A%E4%BC%99%E4%BC%B4Devon-Archer%E7%9A%84%E9%82%AE%E4%BB%B6%E8%B0%88%E8%B5%B7-2.jpg)
+据媒体公开报道，阿彻曾在2004年担任克里竞选总统的高级顾问。“华尔街日报”还爆料称，阿彻在大学时，还是克里继子海因茨的室友。而阿彻与亨特拜登的关系更早，91年就一起建立私募基金公司Rosemont Investment Group(罗斯蒙特资本)，那时亨特才二十出头。阿彻是亨特和海因茨的公司Rosemont Seneca Partners,LLC的合作伙伴。
 
-援引：[https://www.rfa.org/mandarin/yataibaodao/jingmao/gf-10282020073428.html](https://www.rfa.org/mandarin/yataibaodao/jingmao/gf-10282020073428.html)
+Burisma Holidings（布利斯马股份有限公司）是乌克兰最大天然气供应商，亨特拜登自14年到19年间担任此公司的董事。2019年，美国总统特朗普指控乔拜登要求乌克兰解雇一位在调查行动中袒护亨特拜登的律师西瑟-金，而引发特朗普被人揭发向乌克兰政府施压以调查拜登家族，而面临弹劾，而力邀西瑟加入布利斯马的就是这位阿彻。
+
+这封邮件来自乌克兰天然气公司Burisma董事会成员及同事瓦蒂姆，这位乌克兰裔的波兰同事，很有可能就是波兰前总统Aleksander Kwasniewski(克瓦希涅夫斯基）。而收件人Devon Archer(德文-阿彻)就是亨特-拜登的商业伙伴，更准确点说，阿彻就是拜登家族在乌克兰天然气事件的“白手套”。
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayanyM)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
