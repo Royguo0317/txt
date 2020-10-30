@@ -1,60 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【台风巨眼】瓦蒂姆-波扎尔斯基给亨特拜登邮件谈寄相框一事
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/501330/)
+## 【台风巨眼】路德社爆出拜登邮件，揭示其与习近平关系，牵出NBA湖人队球星约翰逊
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/501529/)
 
-作者：香草山写作组Kathy（文艺）
+作者： 香草山写作组 Kathy（文艺）
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28173039/logo-1.jpg)
 
 
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29222616/189-%E3%80%90%E5%8F%B0%E9%A3%8E%E5%B7%A8%E7%9C%BC%E3%80%91%E8%B7%AF%E5%BE%B7%E7%A4%BE%E7%88%86%E5%87%BA%E6%8B%9C%E7%99%BB%E9%82%AE%E4%BB%B6%EF%BC%8C%E6%8F%AD%E7%A4%BA%E5%85%B6%E4%B8%8E%E4%B9%A0%E8%BF%91%E5%B9%B3%E5%85%B3%E7%B3%BB%EF%BC%8C%E7%89%B5%E5%87%BANBA%E6%B9%96%E4%BA%BA%E9%98%9F%E7%90%83%E6%98%9F%E7%BA%A6%E7%BF%B0%E9%80%8A-1.jpg)
+随着爆料革命惊艳亮相于世人的路德社，在郭文贵先生带领的对中共与拜登家族的利益交换事件揭秘攻坚战中，连续多天对拜登家族贪腐事件的报道及爆料，及对其中各种信息的解密遥遥领先于世界。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29222643/189-%E3%80%90%E5%8F%B0%E9%A3%8E%E5%B7%A8%E7%9C%BC%E3%80%91%E8%B7%AF%E5%BE%B7%E7%A4%BE%E7%88%86%E5%87%BA%E6%8B%9C%E7%99%BB%E9%82%AE%E4%BB%B6%EF%BC%8C%E6%8F%AD%E7%A4%BA%E5%85%B6%E4%B8%8E%E4%B9%A0%E8%BF%91%E5%B9%B3%E5%85%B3%E7%B3%BB%EF%BC%8C%E7%89%B5%E5%87%BANBA%E6%B9%96%E4%BA%BA%E9%98%9F%E7%90%83%E6%98%9F%E7%BA%A6%E7%BF%B0%E9%80%8A-2.jpg)
+2020年10月29日晚间直播时间，“路博艾冠胡谈”曝出几封署名“Francis Person” 回复亨特·拜登的邮件，时间是2015年7月至8月，主题是“关于邀请拜登家族来中国旅游”。邮件隐约揭示拜登与习近平关系，及牵出NBA湖人队球星魔术师约翰逊与拜登家族事件的关系。
 
-2020年10月29日，爆料革命平台GTV, Gnews等借助秘密翻译组曝出一封写于2015年6月19日的邮件，此邮件只谈了一件小事，主题是关于“塞浦路斯董事会会议相框照片邮寄”。但邮件的相关人却来头不小。发送人是瓦蒂姆-波扎尔斯基，发给亨特-拜登，德文-阿彻，抄送塞巴斯蒂安-莫塔齐，凯蒂-道奇等人。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29205533/185-%E3%80%90%E5%8F%B0%E9%A3%8E%E5%B7%A8%E7%9C%BC%E3%80%91%E7%93%A6%E8%92%82%E5%A7%86-%E6%B3%A2%E6%89%8E%E5%B0%94%E6%96%AF%E5%9F%BA%E7%BB%99%E4%BA%A8%E7%89%B9%E6%8B%9C%E7%99%BB%E9%82%AE%E4%BB%B6%E8%B0%88%E5%AF%84%E7%9B%B8%E6%A1%86%E4%B8%80%E4%BA%8B-1.jpg)
-邮件内容如下：
+博博士指出，这样的旅游邀请绝对是一场蓝金黄之旅。邮件中安排亨特拜登与张博见面。据悉张博不到三十岁，人很低调但绝对来头不小，很多大人物比如海航的陈峰要见他都不容易，总统都要拜他的码头。张博还代理NBA，曼联等联络事谊。路德大胆怀疑NBA传奇巨星科比的飞机失事是否与他有关。邮件中还提到怎样搞定NBA湖人队。路德指出，NBA是美国意识形态的象征，搞定曼联及好莱坞，就是为了影响总统大选。
 
-诸位先生，
+张博母亲邵锦兰就职于华锐集团高层，对外称私人企业。但据路德社分析应该是中共的间谍企业。
 
-希望你们都很好。我们给上次董事会会议的照片镶嵌了订制的相框，想用联邦快递发给你们。恳请各位告知邮寄地址？（罗斯蒙特纽约，华盛顿的地址还是你家里）
+海南省委书记刘赐贵是习的死党，一路跟着习从福建到海南，号称是张博岳父，传说中习私生子刘呈杰的挂名父亲。
 
-期待回复。
+在美国哈佛学习的习公主就是由张博照顾着，习公主的安保均在张博公司工作。
 
-良好祝愿，
+路德指出，张博在美国的主要任务就是拉拢共和党人，重点是打入川普家族圈子。
 
-瓦蒂姆
-
-英文如下：
-
-From:Vadim Pozharskyi
-
-Date:June 19, 2015 10:54:06
-
-To Hunter Biden, Devon Archer.Cc:Sebastian Momtazi, Katie Dodge
-
-Subject:framed Cyprus BoD meeting photo delivery
-
-Gents，
-
-Hope，you are well.We had a BoD photo from the previous meeting put into custom-made frame and would love to fedex it to you. Could you kindly tell me where best to send it to? （ Rosemont NY and Washiington addresses or your house ones)
-
-Looking forward to your fedback!
-
-Best,
-
-Vadym
-
-注：邮件中人物
-
-Vadim Pozharskyi:（瓦蒂姆-波扎尔斯基）：乌克兰天然气公司Burisma董事会成员。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29205551/185-%E3%80%90%E5%8F%B0%E9%A3%8E%E5%B7%A8%E7%9C%BC%E3%80%91%E7%93%A6%E8%92%82%E5%A7%86-%E6%B3%A2%E6%89%8E%E5%B0%94%E6%96%AF%E5%9F%BA%E7%BB%99%E4%BA%A8%E7%89%B9%E6%8B%9C%E7%99%BB%E9%82%AE%E4%BB%B6%E8%B0%88%E5%AF%84%E7%9B%B8%E6%A1%86%E4%B8%80%E4%BA%8B-2.jpg)
-Devon Archer: （德文-阿彻）：亨特-拜登的商业伙伴。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29205609/185-%E3%80%90%E5%8F%B0%E9%A3%8E%E5%B7%A8%E7%9C%BC%E3%80%91%E7%93%A6%E8%92%82%E5%A7%86-%E6%B3%A2%E6%89%8E%E5%B0%94%E6%96%AF%E5%9F%BA%E7%BB%99%E4%BA%A8%E7%89%B9%E6%8B%9C%E7%99%BB%E9%82%AE%E4%BB%B6%E8%B0%88%E5%AF%84%E7%9B%B8%E6%A1%86%E4%B8%80%E4%BA%8B-3.jpg)
-Sabastian Momtazi(赛巴蒂斯安-莫塔齐）：不详。
-
-Katie Dodge(凯蒂-道奇）：不详。
+中共一贯利用所谓“政治建筑艺术项目”，即中共高层领导人的海外基因地图和财务地图，对外国政要进行蓝金黄的计划。随着拜登家族与中共的利益交换贪腐案真相一一败露，像亨特-拜登提到的特务头目，中国华信能源的何志平一直利用文化讲坛拉拢政要文人，利用公司帮拜登洗钱；像张博这样的年轻间谍，利用体育电影业的号召力，进一步渗透进美国年轻一代，这样一代一代对美国民主政治进行染指渗透，美国人们真的要醒悟了！
 
 更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayanyM)！
 

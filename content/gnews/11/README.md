@@ -1,35 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美科学家发表论文 直指中共病毒起源于武汉实验室
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/501283/)
+## 硬盘邮件解密:30年的天然气的洗钱管道
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/501469/)
 
-多伦多加喜农场 文锦
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24064746/WhatsApp-Image-2020-10-24-at-15.08.49.jpeg)
+作者：康州农场-大飞机
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29220249/cea4142353d5cbd8.jpeg)
+GNEWS爆出了最新邮件解密，在2014年5月26日，乌克兰天然气公司董事之一瓦迪姆·波扎尔斯基 (Vadim Pozharskyi) 发送给塞巴斯蒂安·蒙塔奇（Sebastian Momtazi）并抄送给亨特·拜登（Hunter Biden）与德文·阿彻（Devon Archer）的邮件，并在邮件中询问请问有多少特勤人员将加入哈萨克斯坦之行，以便安排一个合适的包机。
 
-校对 小鸥 上传 HUH
-[!\[肺炎疫情：政治纷争下，全球科学家如何看武汉起源论和病毒溯源- BBC News 中文\]()!\[肺炎疫情：政治纷争下，全球科学家如何看武汉起源论和病毒溯源- BBC News 中文\](https://ichef.bbci.co.uk/news/640/cpsprodpb/183B4/production/_112225299_67.png)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fscience-52613218&amp;psig=AOvVaw2DutU0MSo1quKUBIzGbtnu&amp;ust=1604104838583000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCKiB37GK2-wCFQAAAAAdAAAAABAO)图片来源：bbc.com
-据PR Newswire10月28日报道，美国史蒂文·奎伊（Steven Quay）博士在Zenodo上发表了一篇名为《首个中共病毒基因组患者群体位于武汉解放军医院》（《First COVID-19 Genomic Patient Cluster was at PLA Hospital in Wuhan, China》）的论文。阐明了新的科学发现和结论，表明中共病毒大流行始于位于武昌武珞路627号的武汉市人民解放军中部战区总医院。国际生物样本数据存储库表明，早在2019年12月10日 ，中共国政府告知WHO此次疫情前几周，解放军就建立了中共病毒患者记录。
-![]()![](https://media.discordapp.net/attachments/769175824266952724/771521621302968320/565.png?width=915&amp;height=509)
-该论文记录了武汉市人民解放军中部战区总医院中四名具有直接人传人冠状病毒传播基因特征的患者，还包括其冠状病毒在遗传上最接近武汉病毒研究所（武毒所）的蝙蝠病毒的患者，武毒所科学家称之为“ 2019-nCoV的最近亲源”。解放军总医院距武毒所三公里，都位于武汉地铁2号线附近。该文件记录了对2019年12月1日至1月初之间最早出现中共病毒病人的医院的分析，并显示所有这些医院也位于地铁2号线上。
-![]()![](https://media.discordapp.net/attachments/769175824266952724/771521610997301278/563.png?width=1080&amp;height=484)
-这是世界上第一篇论述武汉地铁2号线与中共病毒疫情关系的论文。地铁2号线每天承载着武汉5％的人口，可以令病毒在武汉乃至整个湖北省迅速传染开; 地铁站连接着高铁站，可以在整个中共国内迅速传播；地铁站终止于国际机场站，可以令病毒迅速扩散到世界。被中共官方认定为病毒起源地的华南海鲜市场也位于地铁2号线附近。
+这封邮件与下面几件事可能关系重大：
+2013年12月 乌克兰危机开始
+2014年3月 克里米亚入俄导致乌克兰危机升级，美欧以此为由对俄展开长期制裁。
+2014年4月 乌克兰宣布起将停购俄罗斯天然气，俄罗斯采取反制措施。
+2014年5月 中俄签4000亿天然气大单
+同月26日，此解密邮件被发送，亨特·拜登与相关人员将去哈萨克斯坦。
 
-史蒂文·奎伊博士在密歇根大学获得医学博士和博士学位，曾在麻省理工学院化学系与诺贝尔奖获得者H. Gobind Khorana一起做博士后研究员，在哈佛MGH医院做住院医师，并在斯坦福大学医学院任教近十年。他是Atossa Therapeutics Inc.的首席执行官，该公司是处于临床阶段的生物制药公司，正在开发用于治疗乳腺癌和中共病毒的新疗法。
+中俄4000亿合同为：为期30年，每年供应380亿立方米的天然气，总值约为4000亿美元(约合2.5万亿元人民币)的合同总额。
 
-评论：
+乌克兰危机：2013年11月21日开始，时任总统亚努科维奇在俄罗斯的压力下冻结了与欧盟签署自由贸易协定的谈判 。这个决定导致反对者举行大规模抗议示威，在2014年2月22日，亚努科维奇被示威者赶下台，乌克兰东部和南部发生骚乱，结果3月18日俄罗斯并吞克里米亚。
 
-继英雄科学家闫丽梦博士之后，又一位美国科学家不畏强权，直指中共病毒起源真相，就像《皇帝的新衣》里勇敢的小孩。随着疫情的不断加重，全球都受到中共病毒的威胁，各国人民的共同诉求越来越清晰、越来越强烈——就是要中共病毒真相！假的真不了，真的假不了，随着越来越多良心人士挺身而出，相信很快真相的光明会驱散谎言的阴霾！
+根据上面的事件加上硬盘门解密推测，他们由乌克兰危机开始制造局势，美方（拜登）配合进行制裁，然后乌克兰停购俄罗斯天然气推进局势发展，最终以缓解局势为由促成天然气大单，这几方演员在各环节上烘托气氛，制造了可以连续30年洗钱的“合法“管道。
+
+这几位邪恶演员获得了面子、领土、洗黑钱、当然还有把柄。硬盘门曝光了这条长达30年的洗钱管道，打掉这帮赚带血钱的邪恶势力，真相将大白于天下，天快亮了。
 
 参考链接：
 
-New Research Points to the People’s Liberation Army Hospital in Wuhan, China as the Origin for the Worldwide Coronavirus Pandemic
+1. [https://gnews.org/zh-hans/499305/](https://gnews.org/zh-hans/499305/)
+2. [http://www.bj.sgcc.com.cn/html/main/col12/2014-05/26/20140526142136424961671\_1.html](http://www.bj.sgcc.com.cn/html/main/col12/2014-05/26/20140526142136424961671_1.html)
+3. [https://world.huanqiu.com/article/9CaKrnJEZdB](https://world.huanqiu.com/article/9CaKrnJEZdB)
+4. [https://zh.wikipedia.org/wiki/%E7%83%8F%E5%85%8B%E8%98%AD%E5%8D%B1%E6%A9%9F](https://zh.wikipedia.org/wiki/%E7%83%8F%E5%85%8B%E8%98%AD%E5%8D%B1%E6%A9%9F)
 
-[https://www.prnewswire.com/ae/news-releases/new-research-points-to-the-peoples-liberation-army-hospital-in-wuhan-china-as-the-origin-for-the-worldwide-coronavirus-pandemic-301158985.html](https://www.prnewswire.com/ae/news-releases/new-research-points-to-the-peoples-liberation-army-hospital-in-wuhan-china-as-the-origin-for-the-worldwide-coronavirus-pandemic-301158985.html)
-
-论文链接：
-
-First COVID-19 Genomic Patient Cluster was at PLA Hospital in Wuhan, China
-
-[https://zenodo.org/record/4139432#.X5tP9YhKg2w](https://zenodo.org/record/4139432#.X5tP9YhKg2w)
 
 1+

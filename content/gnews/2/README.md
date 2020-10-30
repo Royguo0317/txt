@@ -1,39 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登第三波: 硬盘邮件解密13 2015年8月25日瓦迪姆.波扎尔斯基致函亨特.拜登，琼.梅耶和德文.阿彻,寻求亨特对印刷宣传材料的终审以及询问其旅行详情
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/501248/)
+## 中华能源基金会发给Ian Everhart先生的邀请函 1
+` 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hans/501551/)
 
-前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
-
-**亨特拜登第三波：硬盘邮件解密
-2015年8月25日 瓦迪姆.波扎尔斯基致函亨特.拜登，琼.梅耶和德文.阿彻，寻求亨特对印刷宣传材料的终审以及询问其旅行详情 **
-
-### **邮件：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29200806/Screen-Shot-2020-10-30-at-10.07.48-am.png)
-### **邮件中文翻译如下：**
-
-**发件人:** 瓦迪姆·波扎尔斯基
-**时间：**8/25/2015 5:42 上午
-**收件者: **琼·梅耶;亨特.拜登;德文·阿彻
-**主题: **玻璃纤维增强混凝土(GRC)材料和旅行详情
-
-亲爱的亨特，
-望您一切都好。能否请您尽快在截止日期之前对我之前发给您的单页广告和单页插页进行终审？
-另外，请告知我您的航班需求，以便我可以适当的购票。
-期待您的回复！
-致礼，
-瓦迪姆
-
-### **邮件人物介绍/分析**：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29201803/Screen-Shot-2020-10-30-at-10.17.43-am.png)
-**參考資料：**
-
-- [http://energysecurityforum.org/esf-council/92-vadym-pozharskyi](http://energysecurityforum.org/esf-council/92-vadym-pozharskyi)
-- [https://conservapedia.com/Hunter\_Biden](https://conservapedia.com/Hunter_Biden)
-- [https://conservapedia.com/Devon\_Archer](https://conservapedia.com/Devon_Archer)
+**翻译： Alton**
 
 
-[**2015年8月25日 瓦迪姆.波扎尔斯基致函亨特.拜登，琼.梅耶和德文.阿彻，寻求亨特对印刷宣传材料的终审以及询问其旅行详情 **](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29201054/R25-GRC-materials-Travel-details.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29201054/R25-GRC-materials-Travel-details.pdf)
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29223855/Picture0.png)
+
+
+
+
+**中华能源基金委员会**
+
+**具有特别咨商地位，联合国经济及社会理事会**
+
+2017年11月02日
+
+兰·埃弗哈特(lan Everhart )
+
+哥伦比亚文理学院，2014:中国语言文学。经济学
+
+乔治华盛顿大学(GWU)
+
+
+
+**参加中美研讨会****(十二):**
+
+**走向更广泛的美中关系的私人邀请**
+
+
+
+亲爱的埃弗哈特先生,
+
+来自中国能源基金委员会（CEFC）的问候 !
+
+我致函向您发出最诚挚的个人邀请，请您作为我们的尊贵客人出席即将举行的中美座谈会（十二）。将于2017年11月20日在华盛顿特区国家新闻俱乐部举行的 “迈向更广泛的中美议程 “座谈会。
+
+该论坛自2012年起轮流在香港和华盛顿举行.旨在增进北美决策者对中美关系的了解，并寻求美中两国共同维护地区稳定和推进亚太经济活力的建设性途径。
+
+今年的论坛是在特朗普总统即将访华之后举行的，将评估中美关系的现状，以寻求超越朝鲜、南海和贸易等明显的棘手问题，而仍然能够拓宽中美关系的途径。为此，我们将探讨能源安全、技术创新、基础设施建设和一带一路倡议等领域的合作，并邀请中国高级专家代表团赴华盛顿交流最新意见。
+
+34 F。Cvation Pa塔，红港，香港，中国
+
+电话:852)2605 – 1666
+
+传真:(55-1616)
+
+网址:
+
+电子邮件:
 
 0

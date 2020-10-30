@@ -1,63 +1,302 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 匈各界名流：已成中共蓝金黄锁定目标
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/499950/)
+## 【2】硬盘第三波烧脑风暴来袭！亨特拜登曾飞往北京参加渤海股东会议并与中海油进行会晤！
+` GM01` [轉載自GNews](https://gnews.org/zh-hans/499530/)
 
-*新闻来源：《Hungary Today》；作者：Hungary Today；发布时间： 2020年10月22日*
+战友们好！在经历了近几天“小视频”“小图片”的洗礼，大家一定被吸足了眼球！现在真正的烧脑风暴来了！你准备好了吗？接下来铁一般的证据，山一般的证明逐一清晰展示了中美两国盗国贼对人类的威胁和伤害！对法律的无视！以及对女性的侮辱甚至奴役变态！他们的人性已完全丧失！
 
-*翻译/简评：《1984》；校对：文明明；审核：InAHurry；Page：草根 文人*
+其实硬盘中还有绝大部分的视频因涉及到极为敏感，极为不人道，极为残忍的画面无法播放，将随后再进行处理。
 
-**简评：**
+现在将为大家呈现Burisma与亨特拜登和中共之间勾兑的铁一般的事实，包括文件和Email的往来，以及相关人物往来！希望全世界有良知的战友来看一看。如果这样的事情不被揭发，人类将全面走向黑暗！
 
-中共国深圳振华全球大规模监控数据泄露事件终于延烧到“老朋友“匈牙利政府。据匈主流媒体报道，该数据库惊现710名匈牙利个人信息。在爆出现任总理，匈最有权势的人物维克多·欧尔班及其家人也在其中后，匈国家调查局立即宣布对该事件展开调查。初步确认的名单显示，中共国感兴趣的“猎物”远远不止于政府各级机构官员、议员，国企历任现任高管，甚至与权势人物相关的律师都是他们监控并实施“蓝金黄”的对象。
+[以下部分邮件内容可点击下载PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29143943/Email_Tran.8-16_Annie-GM31-Xiaofenhong-V-Winston-Ver3.0.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29143943/Email_Tran.8-16_Annie-GM31-Xiaofenhong-V-Winston-Ver3.0.pdf)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29124127/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%884.29.43.png)
+**日期：**2014年5月7日  上午1:31      
+**发件人：**Devon Archer
+**主题：回复：** HB 布利斯玛新闻稿
 
-值得一提的是，今年8月11日蓬佩奥国务卿出访奥地利、斯洛文尼亚、捷克、波兰中欧四国，刻意避开了位于中间的匈牙利，此举被看作是对匈牙利与中共深度勾兑的警告。而两周后，8月24日匈牙利外长西雅尔多成为疫情之后首位访华的欧盟国家外长，被中共官媒争相报道。不知这位外长个人和家人资料是否也在深圳振华数据库里？
+**收件人：** Vadim Pozharskyi  ** 抄送：**亨特·拜登
 
-这件事在拜登家族硬盘门丑闻曝光之后格外引人注目。匈牙利在多大程度上被中共“蓝金黄”？中共国如何使用这些数据？事实上，任何与中共有过勾兑的各国政界、商界、演艺界、媒体、科学界，都处于胆战心惊、度日如年的状态。
+感谢 Devon,
+就新闻发布稿来说，您有什么大体意见？
 
-讽刺的是，至今匈政府仍使用华为作为其5G供应商，为中共的“蓝金黄”继续提供重要的抓手。
+发自我的iPad
 
-#### 匈各界名流：已成中共蓝金黄锁定目标（匈牙利警方介入调查中共监控数据库）
+2014年5月6日，20:31，Devon Archer [email protected]… 写到：
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GOc6qnZ2XMH8Y/images/96b50187-672f-4a75-8c5a-db83183644b0.jpg?asset_id=d6afba17-e6f2-4e00-b978-a48658baf332&amp;img_etag=%22cf2af788d2aa0b0d063166827660ff7e%22&amp;size=1024)](https://spark.adobe.com/page/GOc6qnZ2XMH8Y/images/96b50187-672f-4a75-8c5a-db83183644b0.jpg?asset_id=d6afba17-e6f2-4e00-b978-a48658baf332&amp;img_etag=%22cf2af788d2aa0b0d063166827660ff7e%22&amp;size=1024) 维克多·欧尔班总理
+Vadim,
+亨特刚刚搭上去往北京的飞机，去参加渤海股东会议。（他会在那里与我们中国海洋石油总公司的合作伙伴进行会晤并提名一位。）我们很快会回来。
 
-据（匈牙利主流媒体）RTL电视台报道，国家调查局正在对收集710名匈牙利人数据的中共国监控数据库进行调查，因为该数据库滥用个人信息。
+感谢你的新闻概要，我会快速过目。非常有用，我也抄送给了Boies。
+谢谢。
+Devon Archer
+646 436….
 
-近日爆出的一个240万人的全球监控数据库，显示中共国正在全球范围内收集和监控信息。名单中还包括710个匈牙利人，其中包括主要的和地方政府官员及其家庭成员、公司高管、记者和军官。总理维克多·欧尔班（Viktor Orbán）和他一个女儿的名字也赫然在目，对此，匈政府随即启动了调查。
+2014年5月6日 1:25PM, Dadim Pozharskyi &lt;[\[email protected\]](/cdn-cgi/l/email-protection#5c2a722c3326343d2e2f3725357229372e3d3532391c3b3d313530723f3331)&gt; 写到：
 
-虽然目前爆出的只是数据库中被修复的一小部分，但是，中共国可能已经收集了数千匈牙利人的数据。最先爆料的自由欧洲 (Szabad Európa)公布了他们能明确识别的393人中315人的名字。
+亲爱的亨特，
 
-名单上的大多数都是现任和前任议员及其亲属。建立该数据库的中共国深圳振华数据信息公司对政府行政人员尤其感兴趣：上至国家最高行政长官，下至地方行政主席，但绝不止于此。该名单可能包括所有历任总理，因为在数据库中可以找到所有总理们至少一位亲属的名字，例如前总理彼得·迈杰希（Péter Medgyessy）和戈尔东·鲍伊瑙伊（Gordon Bajnai）的亲属，还有维克多·欧尔班总理的一个孩子的名字也在其中。另外： Szabad Európa(自由欧洲) 还在数据库中发现了一名乡村市长和一名区代表的名字。
+请查收附件中我们商量过的新闻稿。
+请您修改并补充内容。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GOc6qnZ2XMH8Y/images/f96b6245-3bd5-4950-b6d2-fdfa03610075.png?asset_id=970c0f4b-b92b-48b0-b31b-0a7d398cce6a&amp;img_etag=%22a506d4a132ae59a425df8cf3a1b0d34a%22&amp;size=2560)](https://spark.adobe.com/page/GOc6qnZ2XMH8Y/images/f96b6245-3bd5-4950-b6d2-fdfa03610075.png?asset_id=970c0f4b-b92b-48b0-b31b-0a7d398cce6a&amp;img_etag=%22a506d4a132ae59a425df8cf3a1b0d34a%22&amp;size=1024)
+期待得到您的回复。
+致敬， Vadym
 
-名单上有许多亲政府的政客，包括司法部长尤蒂特·瓦尔加(Judit Varga)、农业部长伊什特万·纳吉（István Nagy）、教会、少数民族和民政事务国务秘书米克洛什·舒勒德斯（Miklós Soltész）、欧尔班总理的新闻主管拜勒达兰· 哈瓦什（Bertalan Havasi），以及青民盟(Fidesz)通讯主任伊什特万·霍利克（István Hollik）。自由欧洲(Szabad Európa)还发现了安塔勒·罗冈（Antal Rogán）部长、国务秘书本茨·涂松（Bence Tuzson）、雅诺什·拉萨尔（János Lázár）、拉佑什·廓沙（Lajos Kósa）、拉斯洛·托洛詹尼（László Trócsányi）、伊什特万·塔洛什（István Tarlós）和雅诺什·马拉托尼（János Martonyi）等人子女的名字。
+发自我的iPad 
+&lt;新闻稿  HB.docx&gt;
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29125517/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%884.55.04.png)
+**日期：**2014年5月7日  上午1:31      
+**发件人：**Devon Archer
+**主题：**回复： HB 布利斯玛新闻稿
+**收件人： **Vadim Pozharskyi   **抄送：**亨特·拜登
 
-数据库中还包括几十名现任和前任外交官及其一些直系亲属的姓名，以及16名法官和宪法法官的名字；另外，可能由于以前从事与政治相关的工作，国家审计局局长拉斯洛·多莫寇什（László Domokos）和前匈牙利科学院院长约瑟夫·帕林卡什（József Pálinkás）也在名单上。
+Vadim:
 
-除了几位税务官员榜上有名外，众多匈牙利国企高管也是中共关注的对象。领导层上榜的公司包括匈牙利国家银行（National Bank of Hungary）、匈牙利国家铁路公司MÁV、布达佩斯公共交通公司BKK、公共采购局(Public Procurement Authority)、匈牙利国家资产管理公司（MNV）、匈牙利国家财政部(Hungarian State Treasury)、匈牙利邮政(Magyar Posta)、进出口机构HEPA、三家前石油公司及天然气公司MOL。除此以外，参与了帕克什（Paks)核电站管理的几人也出现在数据库中，以及律师伊万·萨博（Iván Szabó），他除了在匈牙利代表（普京的）原子能公司（Roszatom）公司外，还处理了多个与（维克多·欧尔班的）青民盟（Fidesz）相关的重要事务。
+亨特刚刚搭上去往北京的飞机，去参加渤海股东会议。（他会在那里与我们中国海洋石油总公司的合作伙伴进行会晤并提名一位。）我们很快会回来。
 
-军情部门将于下周二向国家安全委员会报告此事的调查结果。外交和贸易部拒绝发表评论，但此前曾表示，中方的行为是一种“企图操纵”的表现。
+感谢你的新闻概要，我会快速过目。非常有用，我也抄送给了Boies。
 
-图片来自总理办公室
+Devon Archer
+646 436 ….
 
-[原文链接](https://hungarytoday.hu/hungarian-police-investigate-chinese-surveillance-database/)
+2014年5月6日，下午1:25， Vadim Pozharskyi  &lt;[\[email protected\]](/cdn-cgi/l/email-protection#d7a1f9a7b8adbfb6a5a4bcaef9a2bca5b6beb9b297b0bab6bef9b4b8ba) &gt;写到：
 
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/GOc6qnZ2XMH8Y/)】-点击spark adobe版
+亲爱的亨特：
+请查收附件中我们商量过的新闻稿。
+请您修改并补充内容。
 
-更多资讯敬请关注：
+期待您的回复。
+感谢,
 
-【战鹰团Gab】[https://gab.com/himalayahawks](https://gab.com/himalayahawks)
+Vadym
+发自iPhone
+&lt;新闻稿 HB.docx&gt;
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29130730/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%884.31.04.png)
+日期：2014年5月7日 下午3:51
+发件人：Vadim Pozharskyi  
+主题：回复：HB 布利斯玛新闻稿
 
-【英喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
+收件人：亨特 拜登     抄送： Devon Archer
 
-【英喜庄园GTV/盖特】:
+亲爱的亨特，感谢您的回复。
+期待您对新闻稿的修改。
 
-[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+另外，您那边对新闻备忘录的格式和内容上，有哪些我们需要作调整来适应您的要求吗？
 
-【大卫作战室YouTube】：[https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+期待您在中国顺利，会把您的信息转达给 Nikolay.
+祝福， Vadym
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GOc6qnZ2XMH8Y/images/4de77974-959d-450e-a872-0f79453161c6.jpg?asset_id=c1e52e6e-f3f9-4c3b-825a-2ec1bdba558c&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/GOc6qnZ2XMH8Y/images/4de77974-959d-450e-a872-0f79453161c6.jpg?asset_id=c1e52e6e-f3f9-4c3b-825a-2ec1bdba558c&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+发自iPad 
+2014年5月7日，10:41，亨特·拜登 &lt;[\[email protected\]](/cdn-cgi/l/email-protection#e58d878c81808ba5978a9680888a8b9196808b808684cb8688)&gt; 写到：
 
-0
+Vadim-
+刚刚到达北京，我会在12小时左右给你回复修改的内容。感谢你的更新备忘录，非常有用。我在北京，其中一个主要原因是去商量布利斯玛与中国海洋石油总公司的合作。请告知 Nikolay 我很高兴能加入团队，我们往后还有很多事情要做，但这是很好的机会。
+
+罗伯特·亨特·拜登 
+202.333.1880
+
+2014年5月7日， 下午3:21， Vadim Pozharskyi&lt; [\[email protected\]](/cdn-cgi/l/email-protection#82f4acf2edf8eae3f0f1e9fbacf7e9f0e3ebece7c2e5efe3ebace1edef)&gt; 写到：
+
+好的，谢谢您
+期待亨特那边的确认。
+
+祝福，Vadym
+发自iPad
+
+2014年5月6日，23:30，Devon Archer&lt;[\[email protected\]…com](/cdn-cgi/l/email-protection#610500130209041321130e12040c0e0f1512040f0402004f020e0c)&gt; 写到：
+
+感谢，Vadim。我想我们在给我们的朋友及支持者们发出了一个强有力信号。
+
+Devon Archer
+646 436。。。
+
+2014年5月6日，下午2:38， Vadim Pozharskyi&lt; [\[email protected\]](/cdn-cgi/l/email-protection#0f79217f6075676e7d7c6476217a647d6e66616a4f68626e66216c6062)&gt; 写到：
+
+感谢 Devon,
+
+就新闻发布稿来说，您有什么大体意见？
+发自 iPad
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29135329/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%884.31.53.png)
+2014年5月6日，20:31, Devon Archer&lt;[email protected]&gt; 写到：
+
+Vadim:
+亨特刚刚搭上去往北京的飞机，去参加渤海股东会议。（他会在那里与我们中国海洋石油总公司的合作伙伴进行会晤并提名一位。）我们很快会回来。
+
+感谢你的新闻概要。我会在快速过目。非常有用，我也抄送给了Boies.
+
+Devon Archer
+646 436….
+
+2014年5月6日，下午1:25， Vadim Pozharskyi  &lt;[\[email protected\]](/cdn-cgi/l/email-protection#06702876697c6e6774756d7f28736d74676f686346616b676f2865696b) &gt;写到：
+
+亲爱的亨特：
+请查收附件中我们商量过的新闻稿。
+请您修改并补充内容。
+期待您的回复。
+
+感谢,Vadym
+发自iPhone
+&lt;新闻稿 HB.docx&gt;
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29140451/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%886.04.35.png)
+时间：2014年5月7日 下午3:21
+发件人：Vadim Pozharskyi
+主题：Re:HB 布利斯玛新闻稿
+收件人: Devon Archer,  抄送：Hunter Biden
+
+好的，谢谢您。
+期待亨特那边的确认。
+祝福，Vadym
+发自iPad
+
+2014年5月6日23:30, Devon Archer &lt;[email protected]…&gt; 写到：
+
+感谢Vadim, 我想我们在给我们的朋友及支持者们发出了一个强有力信号。
+
+Devon Archer
+646 436
+
+2014年5月6日 2:38PM, Vadim Pozharskyi &lt;[\[email protected\]](/cdn-cgi/l/email-protection#e294cc928d988a839091899b8bcc978990838b8c87a285838f8b8ecc818d8f)&gt; 写到:
+
+感谢 Devon,
+
+就新闻发布稿来说，您有什么大体意见？
+发自ipad
+
+2014年5月6日，20:31，Devon Archer [email protected] 写到：
+
+Vadim,
+
+亨特刚刚搭上去往北京的飞机，去参加渤海股东会议。（他会在那里与我们中国海洋石油总公司的合作伙伴进行会晤并提名一位。）我们很快会回来。
+
+感谢你的新闻概要，我会快速过目。非常有用，我也抄送给了Boies。
+
+谢谢。
+
+Devon Archer
+646 436。。。
+
+2014年5月6日 1:25PM, Dadim Pozharskyi &lt;[\[email protected\]](/cdn-cgi/l/email-protection#50267e203f2a383122233b29397e253b2231393e351037313d393c7e333f3d)&gt; 写到：
+
+亲爱的亨特，
+请查收附件中我们商量过的新闻稿。
+请您修改并补充内容。
+期待得到您的回复。
+
+致敬，Vadym
+&lt;新闻稿  HB.docx&gt;
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29141358/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%886.13.40.png)
+时间：2014年5月7日 上午4:30
+发件人：Devon Archer 
+主题：Re:HB 布利斯玛新闻稿
+收件人: Vadim Pozharskyi,  抄送：Hunter Biden
+
+感谢Vadim, 我想我们在给我们的朋友及支持者们发出了一个强有力信号。
+
+Devon Archer
+646 436
+
+2014年5月6日 2:38PM, Vadim Pozharskyi &lt;[\[email protected\]](/cdn-cgi/l/email-protection#89ffa7f9e6f3e1e8fbfae2f0e0a7fce2fbe8e0e7ecc9eee8e4e0e5a7eae6e4)&gt; 写到:
+
+感谢 Devon,
+就新闻发布稿来说，您有什么大体意见？
+发自iPad
+
+2014年5月6日，20:31，Devon Archer &lt;[email protected]&gt; 写到：
+
+Vadim,
+亨特刚刚搭上去往北京的飞机，去参加渤海股东会议。（他会在那里与我们中国海洋石油总公司的合作伙伴进行会晤并提名一位。）我们很快会回来。
+感谢你的新闻概要，我会快速过目。非常有用，我也抄送给了Boies。
+谢谢。
+
+Devon Archer
+646 436
+
+2014年5月6日 1:25PM, Dadim Pozharskyi &lt;[\[email protected\]](/cdn-cgi/l/email-protection#6e18401e0114060f1c1d051707401b051c0f07000b2e090f030702400d0103)&gt; 写到：
+
+亲爱的亨特，
+请查收附件中我们商量过的新闻稿。
+请您修改并补充内容。
+
+期待得到您的回复。
+致敬， Vadym
+&lt;新闻稿  HB.docx&gt;
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29141836/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%886.18.25.png)
+日期：2014年5月7日，下午4:06
+发件人： Devon Archer
+主题：Re:HB 布利斯玛新闻稿
+收件人：亨特·拜登
+
+没有问题。他们显然会照我们说的做，所以（甚至不需要）不要把它当成是反驳(提出修改要求)。是的，我同意。
+
+Devon Archer
+646 436
+
+2014年5月7日，上午 3:28  亨特·拜登&lt;[\[email protected\]](/cdn-cgi/l/email-protection#8ae2e8e3eeefe4caf8e5f9efe7e5e4fef9efe4efe9eba4e9e5e7)&gt; 写到：
+
+Devon,
+你能不能让Seb编辑一下—只做语法和小改动，诸如我到商务部前曾在美信银行(MBNA)工作那样。我也不喜欢“XX儿子”这行。我认为在背景方面，让人们自己得出结论或给出结论要有效得多。但作为来自布利斯玛公司(Burisma)的声明的一部分，这似乎过于严厉和直接。此外，如果他们想展示我在外交政策方面的信誉，他们应该包括（接受）我作为美国全球领导力联盟(US Global Leadership Coalition)、国家政策中心(Center for National policy)以及国家民主党研究所（国际事务全国民主研究所）(National Democratic Institute)主席(玛德琳·奥尔布赖特Madeline Albright)顾问委员会主任的角色，但最重要的就是不认可声明中（是谁）儿子的提法。如果他们想说得更隐晦一些，他们可以说一些类似于拜登先生曾于2008年担任奥巴马-拜登就职委员会的名誉联合主席的话。
+
+罗伯特.亨特.拜登
+202.33.1880
+
+2014年5月6日23:30, Devon Archer &lt;[email protected]&gt; 写到：
+
+感谢Vadim, 我想我们在给我们的朋友及支持者们发出了一个强有力信号。
+Devon Archer
+646 436
+
+2014年5月6日 2:38PM, Vadim Pozharskyi &lt;[\[email protected\]](/cdn-cgi/l/email-protection#0c7a227c6376646d7e7f6775652279677e6d6562694c6b6d616560226f6361)&gt; 写到:
+
+感谢 Devon,
+就新闻发布稿来说，您有什么大体意见？
+
+2014年5月6日，20:31，Devon Archer [email protected]。。 写到：
+
+Vadim,
+亨特刚刚搭上去往北京的飞机，去参加渤海股东会议。（他会在那里与我们中国海洋石油总公司的合作伙伴进行会晤并提名一位。）我们很快会回来。
+感谢你的新闻概要，我会快速过目。非常有用，我也抄送给了Boies。
+
+谢谢。
+
+Devon Archer
+646 436
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29142302/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%886.22.46.png)
+2014年5月6日 1:25PM, Dadim Pozharskyi &lt;[\[email protected\]](/cdn-cgi/l/email-protection#0b7d257b6471636a7978607262257e60796a62656e4b6c6a66626725686466)&gt; 写到：
+
+亲爱的亨特，
+请查收附件中我们商量过的新闻稿。
+请您修改并补充内容。
+期待得到您的回复。
+致敬， 
+Vadym
+&lt;新闻稿  HB.docx&gt;
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29142705/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%886.26.30.png)
+日期：2014年5月13日，下午10:45
+发件人：Heather King, Esq.
+主题：RE：HB 布利斯玛新闻媒体
+收件人：Devon Archer   抄送：亨特·拜登
+
+你是说乌克兰的那些媒体 吗？我看到在美国的一些博客/ 聊天室之类的网站上偶尔有些疯狂的人会关注它，但是没什么合法（合理）的
+
+Heather King Eaq.
+合伙人
+BOIES,SCHILLER&FLEXNER LLP
+53..W…
+202-27…(电话)
+202-2…（传真）
+
+——–原文——-
+
+发件人：Devon Archer&lt;邮箱[email protected]。。.com&gt;
+发送时间：星期二 2014年5月13日 上午10：42
+收件人:Heather King
+抄送：亨特·拜登
+主题：HB 布利斯玛新闻媒体
+
+亨特.拜登加入董事会引起了一些媒体的注意. 我们要小心.
+
+Devon Archer
+646 4…
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29143352/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%886.33.21.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29143404/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%886.33.36.png)
+1+

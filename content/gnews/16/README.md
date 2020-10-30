@@ -1,18 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳喜新闻 路德社29日早间摘录
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/501013/)
+## 美科学家发表论文 直指中共病毒起源于武汉实验室
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/501283/)
 
-莊烈宏出賣鐘翰林信息導致鐘被抓。莊烈宏在媒體上出賣鐘翰林賬戶信息，導致鐘翰林被抓，罪名之壹為“非法洗錢罪”。莊烈宏的卑劣行徑背後有中共的影子，他不是簡單的偽類。中共後續會用“國安法”打擊爆料革命，最終目的是針對文貴先生和路德先生。莊烈宏的卑劣行徑最後壹定會被揭露，偽類沒有好結果。
+多伦多加喜农场 文锦
 
-Tucker的 拜登家族機密文件在郵寄過程消失了。在周壹的時候Tucker收到某線報，稱手中掌握拜登家族的機密文件合輯。Tucker先生和制作人當時在洛杉磯準備采訪Bobulinski， 所以讓制作人從紐約用某大型物流公司寄望洛杉磯。從周壹下午寄出，壹直到周二淩晨之後都有記錄，但最終在周二早上3：44，有分揀工作人員發現包裹被打開，裏面空無壹物。物流公司詳細詢問、調查、尋找，至今壹無所獲；這些文件憑空消失了。無形之手能中途截走郵件，這後面的水很深, 可見較量之激烈。
+校对 小鸥 上传 HUH
+[!\[肺炎疫情：政治纷争下，全球科学家如何看武汉起源论和病毒溯源- BBC News 中文\]()!\[肺炎疫情：政治纷争下，全球科学家如何看武汉起源论和病毒溯源- BBC News 中文\](https://ichef.bbci.co.uk/news/640/cpsprodpb/183B4/production/_112225299_67.png)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fscience-52613218&amp;psig=AOvVaw2DutU0MSo1quKUBIzGbtnu&amp;ust=1604104838583000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCKiB37GK2-wCFQAAAAAdAAAAABAO)图片来源：bbc.com
+据PR Newswire10月28日报道，美国史蒂文·奎伊（Steven Quay）博士在Zenodo上发表了一篇名为《首个中共病毒基因组患者群体位于武汉解放军医院》（《First COVID-19 Genomic Patient Cluster was at PLA Hospital in Wuhan, China》）的论文。阐明了新的科学发现和结论，表明中共病毒大流行始于位于武昌武珞路627号的武汉市人民解放军中部战区总医院。国际生物样本数据存储库表明，早在2019年12月10日 ，中共国政府告知WHO此次疫情前几周，解放军就建立了中共病毒患者记录。
+![]()![](https://media.discordapp.net/attachments/769175824266952724/771521621302968320/565.png?width=915&amp;height=509)
+该论文记录了武汉市人民解放军中部战区总医院中四名具有直接人传人冠状病毒传播基因特征的患者，还包括其冠状病毒在遗传上最接近武汉病毒研究所（武毒所）的蝙蝠病毒的患者，武毒所科学家称之为“ 2019-nCoV的最近亲源”。解放军总医院距武毒所三公里，都位于武汉地铁2号线附近。该文件记录了对2019年12月1日至1月初之间最早出现中共病毒病人的医院的分析，并显示所有这些医院也位于地铁2号线上。
+![]()![](https://media.discordapp.net/attachments/769175824266952724/771521610997301278/563.png?width=1080&amp;height=484)
+这是世界上第一篇论述武汉地铁2号线与中共病毒疫情关系的论文。地铁2号线每天承载着武汉5％的人口，可以令病毒在武汉乃至整个湖北省迅速传染开; 地铁站连接着高铁站，可以在整个中共国内迅速传播；地铁站终止于国际机场站，可以令病毒迅速扩散到世界。被中共官方认定为病毒起源地的华南海鲜市场也位于地铁2号线附近。
 
-何誌平曾經想藍金黃的嘉賓Ian做客路德社。哥倫比亞大學中國問題專家Ian先生交流CEFC如何在美國開展藍金黃的經歷，何誌平在2016年9月25日以香港中華能源基金會的名義邀請Ian先生參加晚餐會。該請柬是重要的證據，請柬上的簽章證明了何誌平為葉簡明的CEFC工作，證明何誌平是中共的特務。中共特務在美國打著反共、民運的旗幟，藍金黃美國的學者、退休外交官、退休政府官員，用他們的關系網滲透美國。此外Ian先生交流了大學期間參加留學生學生團的時候，中共大使館如何滲透學中文的美國人和中共國到美國的留學生。中共尋找目標人員的弱點，針對其人性的弱點來藍金黃、控制被滲透人員。Ian也從歷史角度揭露了共產國際的邪惡，揭露了中國共產黨的邪惡不僅來自於西方文明的垃圾-馬列主義還兼有中國文明裏的糟粕-陰謀之術，建立了壹個人人都在詐騙的邪惡國度。
- 嘉賓Ian證實三個硬盤在扭轉民意上的貢獻。Ian指出拜登笑裏藏刀，笑容裏面藏著自身的腐敗。最近幾個星期，美國老百姓的民意開始變化，雖然媒體勾結精英階層掩蓋很多真相，但越來越多的選民知道拜登家族的腐敗，拜登越來越不得民心；相反川普總統很受民眾擁戴。硬盤扭轉了選情。Ian也收看了部分路德社9月24日的節目，證實了路德社爆料的真實性。有爆料革命曝光三塊硬盤的真相，中共的所有陰謀詭計都被曝光在光天化日之下，中共無處可藏。
+史蒂文·奎伊博士在密歇根大学获得医学博士和博士学位，曾在麻省理工学院化学系与诺贝尔奖获得者H. Gobind Khorana一起做博士后研究员，在哈佛MGH医院做住院医师，并在斯坦福大学医学院任教近十年。他是Atossa Therapeutics Inc.的首席执行官，该公司是处于临床阶段的生物制药公司，正在开发用于治疗乳腺癌和中共病毒的新疗法。
 
-摘录：小米粒
+评论：
 
+继英雄科学家闫丽梦博士之后，又一位美国科学家不畏强权，直指中共病毒起源真相，就像《皇帝的新衣》里勇敢的小孩。随着疫情的不断加重，全球都受到中共病毒的威胁，各国人民的共同诉求越来越清晰、越来越强烈——就是要中共病毒真相！假的真不了，真的假不了，随着越来越多良心人士挺身而出，相信很快真相的光明会驱散谎言的阴霾！
 
+参考链接：
 
-0
+New Research Points to the People’s Liberation Army Hospital in Wuhan, China as the Origin for the Worldwide Coronavirus Pandemic
+
+[https://www.prnewswire.com/ae/news-releases/new-research-points-to-the-peoples-liberation-army-hospital-in-wuhan-china-as-the-origin-for-the-worldwide-coronavirus-pandemic-301158985.html](https://www.prnewswire.com/ae/news-releases/new-research-points-to-the-peoples-liberation-army-hospital-in-wuhan-china-as-the-origin-for-the-worldwide-coronavirus-pandemic-301158985.html)
+
+论文链接：
+
+First COVID-19 Genomic Patient Cluster was at PLA Hospital in Wuhan, China
+
+[https://zenodo.org/record/4139432#.X5tP9YhKg2w](https://zenodo.org/record/4139432#.X5tP9YhKg2w)
+
+1+
