@@ -1,17 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 10.24 路德时评：朱利安尼市长震撼直播暗藏重要信息【精华版粤语配音】
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/504119/)
+## 【世界多语言图文】2020/10/20 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/504437/)
 
-制作单位：战友之家·粤语频道
+战友之家图文摘要及多语种组
 
-制作团队：剪刀手，一帘幽梦，文雀，wen fei，阿恩，哥阿
+[269\_English\_1020\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090156/269_English_1020_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090156/269_English_1020_CCP_Virus_Updates.pdf)
 
+[269\_French\_1020\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30102239/269_FR_1020_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30102239/269_FR_1020_CCP_Virus_Updates.pdf)
 
+[269\_German\_1020\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090156/269_German_1020_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090156/269_German_1020_CCP_Virus_Updates.pdf)
 
-摘要：
+[269\_Korean\_1020\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090156/269_Korean_1020_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090156/269_Korean_1020_CCP_Virus_Updates.pdf)
 
-朱利安尼先生在直播中感叹个人无法拯救这个国家，但他并不惧怕来自各界的威​​​​胁！
+[269\_Spanish\_1020\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090155/269_Spanish_1020_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090155/269_Spanish_1020_CCP_Virus_Updates.pdf)
 
 0

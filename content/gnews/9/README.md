@@ -1,19 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/10/20 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/504437/)
+## Warroom 452：亨特·拜登签署的协议中，关键组织都与中共外事办有关联；杨洁篪是为亨特安排交易的教父级人物
+` snow` [轉載自GNews](https://gnews.org/zh-hans/504354/)
 
-战友之家图文摘要及多语种组
+战友之家新闻译制组
+撰稿：GM64
 
-[269\_English\_1020\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090156/269_English_1020_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090156/269_English_1020_CCP_Virus_Updates.pdf)
 
-[269\_French\_1020\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30102239/269_FR_1020_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30102239/269_FR_1020_CCP_Virus_Updates.pdf)
 
-[269\_German\_1020\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090156/269_German_1020_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090156/269_German_1020_CCP_Virus_Updates.pdf)
-
-[269\_Korean\_1020\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090156/269_Korean_1020_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090156/269_Korean_1020_CCP_Virus_Updates.pdf)
-
-[269\_Spanish\_1020\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090155/269_Spanish_1020_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090155/269_Spanish_1020_CCP_Virus_Updates.pdf)
+•杨洁篪的职位不仅仅是外长，而是相当于副总理，负责整个中共侵蚀美国的国际战略。在布什时期他就是中共国驻美大使。
+•杨洁篪早就明白拜登的重要性，从2008年开始贿赂亨特·拜登，然后在2013年签署交易。
 
 0

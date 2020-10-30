@@ -1,15 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登第三波: 硬盘邮件解密 21 布里斯玛天然气公司创始人尼古拉与亨特拜登是什么关系？
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/503080/)
+## ハンター・バイデンの第三波: HDの電子メールの秘密暴露、民主党の最大スポンサー、ビル・バートマンは ハンター・バイデンを無条件支持と約束
+` xbwen7m` [轉載自GNews](https://gnews.org/zh-hans/503345/)
 
-前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
+出稿者：秘密翻訳組　　　　和訳：旭鵬（文鵬）（ヒマラヤ櫻花団）
 
-**亨特·拜登第三波：硬盘邮件解密**
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30074801/%E7%94%BB%E5%83%8F1-33.jpg)
 
-**布里斯玛天然气公司创始人尼古拉与亨特拜登是什么关系？**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30064117/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_00.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065438/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_12.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065441/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_13.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065446/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_14.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065450/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_15.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065534/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_16.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065539/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_17.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065544/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_18.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065547/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_19.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065600/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_20.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065602/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_21.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065606/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_22.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065608/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_23.png)
-[**布里斯玛天然气公司创始人尼古拉与亨特拜登是什么关系？**](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30064556/21-What-is-the-relationship-between-Burisma-founder-Nikolai-and-Hunter-Biden.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30064556/21-What-is-the-relationship-between-Burisma-founder-Nikolai-and-Hunter-Biden.pdf)
 
-0
+**メールのタイトル：**バイデン氏の息子ハンター氏、コカイン検査に不合格で海軍予備役から除隊、ウォールストリート・ジャーナル（レポート)
+
+**差出人：**Bill Bartmann (ビル・バートマン)
+
+**日付：**2014年10月16日8:30PM
+**受取人：**ハンター・バイデン
+
+ハンター，
+
+あなたの友人として私は、無条件にあなたの味方です。
+
+この気まずい時に、何かお役に立てることがあれば教えて下さい。 ご存知の通り、私も恥ずかしい経験をしてきた。
+
+### メール送信者についての説明：
+
+- 送信者は民主党の最大スポンサー、ビル・バートマン（Bill Bartmann）の可能性がある
+
+
+参考資料：[https://en.wikipedia.org/wiki/Bill\_Bartmann](https://en.wikipedia.org/wiki/Bill_Bartmann)
+
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30074747/%E7%94%BB%E5%83%8F2%E3%80%80-1.png)
+
+
+2+

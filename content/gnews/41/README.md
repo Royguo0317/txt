@@ -1,55 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 从林俊良与乾丰韵盛的行为报告看中共对美全方位渗透
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/501150/)
+## 谷歌翻译搜索被CCP植入BUG，信息战中混淆视听。
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/502763/)
 
-多伦多加喜农场 大地鲲鹏
+作者:喜马拉雅战友
 
-校对 小鸥 上传 HUH
+编辑：李小甜KR
 
-林俊良Michael Lin（简称“林”），在中共和拜登家族的犯罪网络中，撮合了渤海华美私募基金的设立，并与受中共外交部领导的海外影响势力结成伙伴关系。
+大家都在积蓄力量和子弹，参加到爆料革命终极之战。这里提醒：使用AI翻译软件的战友当心，有不止一位战友发现 Google Translate出现了非常诡异/危险的 BUG！
 
-2018年林利用新投资的企业 Michelangelo Investment Holdings Ltd（中文名“乾丰韵盛”）频繁活动，此时林俊良仍然代表亨特·拜登的企业桑顿，有时也同时代表乾丰韵盛，有时也和巴尔杰进行业务联系。感谢《拜登家族与中共关系调查报告》给我们的线索，让我们有机会收集到乾丰韵盛公司的所作所为。
+如图：
 
-**企业介绍**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30035917/101.jpg)
-Michelangelo Investment Holdings Ltd在中共国的名称为乾丰钧盛（以下称乾丰），总部设于中国天津市，先后以乾丰钧盛（北京）企业管理有限公司、乾丰钧盛（成都）文化发展有限公司和乾丰钧盛（深圳）投资控股有限公司的名称从事经营活动，宣称是为海内外企业提供战略融资、并购重组、上市等。投资设立了影视传媒、IP运营、文化艺术交易、老年服务/互联网、交流培训、投资银行及私募股权基金管理，参于海内外的金融、文化、艺术、教育、商贸、投资等交流合作 。林任乾丰钧盛投资控股有限公司董事局联席主席，能查到的另外两位美方代表为董事局主席史蒂芬·雷吉斯（Steve Lakis）、董事詹姆斯·巴尔杰（James Bulger，现任美国立法领袖基金会亚洲分会常务副会长）。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30041934/%E5%9B%BE%E7%89%871-29.png)林俊良左 雷吉斯右![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30042212/%E5%9B%BE%E7%89%872-5.jpg)巴尔杰左二 林俊良右二
-史蒂芬·雷吉斯任美国州立法领袖基金会主席40多年，此人多次组织美国立法领袖基金会人员和企业代表到中共国“考察访问”：2015年9月，其参与的“中美省州立法机关交流机制”被纳入中共国家领导人访美成果清单；同年12月，其在来自美国21个州的24名州议会领袖的见证下，在美国劳德代尔岛正式签订了《关于建立中美省州立法机关交流机制的协定》。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24011942/%E5%9B%BE%E7%89%871-18.png)
 
-**渗透美国省州级立法和企业**
+有战友在实践中发现，谷歌翻译对Joe Biden做了定向翻译干预！输入Joe Biden输掉大选，谷歌竟然会改成Trump 输掉大选!这会让完全不会英文或太信任谷歌翻译的战友被骗。
 
-乾丰于2018年5月18日以顾问团的名目正式参与美国立法领袖基金会 （State LegislativeLeaders Foundation）。其顾问团由近8 0家美国各行业领袖、世界百强企业等组成。美国电影协会（ Motion Picture Association of America）、Facebook、康卡斯特（ Comcast）、苹果、美国娱乐软件协会（ Entertainment Software Association）、美国电话电报公司（ AT&T）、万事达信用卡（ Master Card）、威瑞森公司（ Verizon）、沃尔玛等企业或机构均为该基金顾问团成员。
+在此之前，也有朋友发现谷歌翻自动篡改内容，导致相反的翻译结果出来。看来Deepstate沼泽大鱼还在垂死挣扎，CCP还在伸出爪牙作恶，我们要当心掉坑。
 
-2018年11月19日在拉斯维加斯市举行的第三届中美省州立法机关合作论坛上，乾丰由雷吉斯做代表进行发言，同时参与发言的中共方代表还有：中（共）国人民对外友好协会会长李小林、中共国驻美大使代表及公使衔参赞尹承武、中共国驻旧金山总领事王东华、河北省人大常委会常务副主任范照兵、江苏省人大常委会常务副主任陈震宁、上海市人大常委会常务副主任肖贵玉、河南省人大常委会常务副主任徐济超、湖北省人大常委会常务副主任王建鸣都参加论坛并发言。美国亚拉巴马、阿拉斯加、亚利桑那等16个州的25名州议会领袖以及中美各界代表共约150人出席论坛。该论坛成立于2015年12月，由中共间谍组织中（共）国人民对外友好协会（CPAFFC，简称“全国友协”）和美国州立法领袖基金会（SLLF）共同主办。 我们有理由相信中共一直坚持渗透美国省州一级的立法机构和大型企业，而乾丰是深度参与者。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30045057/%E6%9E%971.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30045109/%E6%9E%972.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30045118/%E6%9E%973.jpg)
-**入侵好莱坞**
+而我本人在自己电脑上测试，尚未发现异常。猜测：Google Translate对不同区域、不同用户分类区别处理了。 因此，涉及到美国政治人物或敏感话题的翻译，务必留神！大家可以尝试其他引擎或翻译工具。如：DeepL Pro，有道翻译，REVERSO 。
 
-根据乾丰公布的行事历，2018年5月29日至6月11日，林与乾丰钧盛的董事局董事詹姆斯·巴尔杰（James Bulger）窜访了美国，期间拜访了原任加州众议院议长Robert Hertzberg，原美国国务院及商务部资深官员、现任渤海华美基金监事局监事、美国亨氏家族基金首席投资官史威林（E. Schwerin），以及好莱坞Bent Outta Shape Productions, Inc.（简称B.O.S.P.）影视公司及其首席执行官Bentley Kyle Evans，美国四届奥斯卡金像奖最佳音效奖得主，2012年2月获得美国音效工会终身成就奖得主Scott Millan先生的儿子Brandon Millan先生和独立制片人Brad Billington。并于同年8月6日与B.O.S.P.影视公司签署战略合作协议。
+[https://www.reverso.net/text\_translation.aspx?lang=ZH](https://www.reverso.net/text_translation.aspx?lang=ZH)等。
 
-B.O.S.P.代表作有《马丁秀》、《吉米·福克斯秀》等；其中《长大成人》、《家庭时光》和《关键点》这三部电视剧都在目前播出的电视剧中排行前三。B.O.S.P.随后在林的引导下访问中共国四川省，并与当地影视界进行合作交流。同年8月4日，乾丰钧盛与多元化的美国好莱坞娱乐公司Mirage Entertainment Design, Inc. (MED)达成战略合作。MED在电影拍摄、制作、3D绘图和视觉效果营造等方面拥有一流的技术，同时也是世界先进的主题乐园设计专家，与环球影城 (Universal Studios)、迪士尼 (Disney)、六旗 (Six Flags)、华纳兄弟 (Warner Brothers) 等国际知名品牌保持着长期核心的合作。林入手有实力的好莱坞企业，一方面加强对好莱坞影视公司的联系和控制，满足中共大外宣需求；另一方面借助影视公司通道方便完成国内资本和美国资本的转换和利益输送。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24012043/%E5%9B%BE%E7%89%872-3.jpg)
 
-**插管大陆影视传媒、文化、教育、地产等产业吸血**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24012108/%E5%9B%BE%E7%89%873-10.png)
 
-乾丰在中共国内地以“中美名校桥项目”为招牌，联合陶行知教育基金会（李小琳为主席）、北大金秋（北大知名校企）等中共国有及其他儿童教育机构，构建所谓的中美教育产业。该招牌由“美国立法领袖基金会”于2016年发起，旨在从中美两国中小学学习培训入手，收割中共国内地中产阶级财富，渗透美国老师、校长以及基层官员。
+评论：川普大选之前，CCP带着各种牛鬼蛇神都在争取最后一搏。其中信息战为重中之重，每一个细节都不能忽略。为期13天的新中国联邦信息战，就是一场真与假，邪恶与正义之战，一场人类有史以来最大的信息战。如郭先生所言： “我要告诉全世界：谁玩弄我们的子女，我们绝不答应；谁偷我们的钱，绝不答应；谁是共产党的朋友就是我们的敌人；谁想和共产党一起奴役我们，绝不答应。这就是新中国联邦接下来要干的事！兄弟姐妹们。”
 
-参考链接：
-
-第三届中美省州立法机关合作论坛
-
-[https://www.sohu.com/a/280314097\_100078051](https://www.sohu.com/a/280314097_100078051)
-
-史蒂芬·雷基斯介绍和美国立法领袖基金会成员表
-
-[https://www.sohu.com/a/238070981\_100078051?spm=smpc.author.fd-d.18.1603848861976YaG2zjK](https://www.sohu.com/a/238070981_100078051?spm=smpc.author.fd-d.18.1603848861976YaG2zjK)
-
-SLLF例行峰会
-
-[https://www.sohu.com/a/238371255\_100078051?sec=wd&spm=smpc.author.fd-d.17.1603848861976YaG2zjK](https://www.sohu.com/a/238371255_100078051?sec=wd&amp;spm=smpc.author.fd-d.17.1603848861976YaG2zjK)
-
-领袖基金大事记
-
-[https://www.sohu.com/a/277096804\_100078051?spm=smpc.author.fd-d.9.1603848861976YaG2zjK](https://www.sohu.com/a/277096804_100078051?spm=smpc.author.fd-d.9.1603848861976YaG2zjK)
-
-0
+1+
