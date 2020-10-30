@@ -1,109 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特把中共蓝金黄中的“金”用上了，却被抓个正着
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/500046/)
+## “彤宝国”们被枪杀 推特封杀 真相之殇 文明之殇
+` 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hans/500053/)
 
-*新闻来源：The National Pulse《国家脉动》；作者：Natalie Winters, Raheem Kassam；发布时间： 2020年10月26日*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29133311/Picture1-50.png)
 
-*翻译/简评：文明明；校对：Beicy-数学老师；审核：TCC；Page：拱卒*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/959f81ba-a608-4abb-8697-e32262bdbd00.jpg?asset_id=c8b55efc-314e-4fb5-9647-1b1c9ce07230&amp;img_etag=%2273897f98f4cd84ad423c506f01882de5%22&amp;size=1024)](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/959f81ba-a608-4abb-8697-e32262bdbd00.jpg?asset_id=c8b55efc-314e-4fb5-9647-1b1c9ce07230&amp;img_etag=%2273897f98f4cd84ad423c506f01882de5%22&amp;size=1024)
 
-**简评：**
 
-《国家脉动 》近日发布了一系列亨特拜登的电子邮件。 邮件揭示亨特拜登 按照他＂外国＂商业伙伴要求，把一些人带进了白宫和副总统府。作为报酬，他得到了艺术品，享用度假别墅的权利和潜在的商业机会。
+在文明世界，人权大于主权。这是对生命的尊重，对造物主的敬畏。在动物世界里，我们可以看见不同类的动物可以和谐相处或者救助弱小。在魔鬼的世界，才有同类残害荼毒生命。对于一个正常有人性的人，当看到弱者被欺辱，生命被残害时会本能地出手救助或者想把这些邪恶的事情传播出去，盼望正义公正的力量可以出手相助。当勇敢说出恶行真相的人被出卖被枪杀，人类的文明人性良知被黑暗彻底遮盖了。
 
-文章中涉及的外国合作伙伴是指米格尔·阿莱曼·马格纳尼（Miguel Aleman Magnani）。马格纳尼是墨西哥前总统的孙子，是墨西哥首富之一的儿子，也是墨西哥航空公司Interjet的首席执行官。根据马格纳尼的要求，亨特把马格纳尼名单上的人一一带进了白宫和副总统的府邸， 甚至是就职典礼。有趣的是即便亨特兑现了马格纳尼所要求的每一件事，但是马格纳尼仍然对他爱理不理。显然， 除了相关利益捆绑，即使他的同伙也对亨特的人品不齿。
+### **中共封杀真相“彤宝国”们被枪杀**
 
-电子邮件还涉及了与亨特有关的乌克兰伯里斯马（Burisma）公司与马格纳尼的家族公司阿莱曼集团（Aleman Group）之间的交易，在这项交易中丑闻缠身的伯里斯马（Burisma）公司获得了参与墨西哥石油公司Pemex私有化机会 。
+2020年10月19日，路德社在纽约时间早上8点多的路安墨谈[\[i\]](//E400A53A-EDBC-4450-BD7C-74B6722A0C3E#_edn1)里第一次提到CIA在中国的线人被枪杀：36名中国安全部工作人员“彤宝国”们和20多个外围工作人员。他们因为工作机会看到中共最高机密，惨绝人寰的恶行，希望可以把这些真相通过CIA传递到美国，推翻中共这个邪恶政权，建立一个自由民主文明的中国。但是他们的信息被拜登出卖给中国最高领导人，这些希望能把真相传出去的人们被以开会的名义被叫到办公室直接枪决，包括还有十几天就生产的孕妇。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29133348/Picture2-36.png)
+墨博士说：这些人有人性的良知，有判断是非和反思思维，也是有能力的。他们被枪杀，让所有跟这些有类似经历的人失去了对美国公正国家的信心。
 
-这些曝光的邮件实锤证实了亨特利用副总统老爸的关系进行以外国人利益为前提的钱权交易， 并从中牟利。这些在中共国被特权阶层玩剩下的伎俩，被亨特搬到了美国，运用到他的商业交往中。看来亨特拜登在中共国的所获真的是十分的丰硕。
+### **美媒推特封推禁号 ****个人声音在网络世界的被封喉**
 
-**独家新闻：亨特-拜登 “把外国商业伙伴所要求的每一个人带进白宫和副总统府”，作为交换，他得到了艺术品和享用度假别墅的权利**
+2020年10月24日上午， GTV和GNews推出亨特拜登的不雅图片和他与中共高层有生意往来的文件和签字，这些图片证实爆料革命在两年前发出的对美国的提醒：中共在多年之前逐步实施蓝金黄美国的计划，并且进行地非常成功[\[ii\]](//E400A53A-EDBC-4450-BD7C-74B6722A0C3E#_edn2)。 这些信息如惊雷在推特上快速转发，随着信息广传，到纽约时间傍晚，许多转发这些信息的推特号被封推禁言。还有一些几天没有活动的推特号，只是以前转推过爆料革命的信息，和闫丽梦博士关于新冠病毒的两份科学报告信息的推号也被封，就像中国古代的岳飞被“莫须有”的罪名处死，这些在网络世界传播真相的真实世界的个人存在，被以封号禁言的方式在网络世界封喉。真相被截停。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29133516/Picture3-21.png)
 
-**《国家脉动》获得的电子邮件显示，前副总统和现任民主党总统候选人乔-拜登的儿子亨特-拜登安排了一名墨西哥商人与白宫官员会面，其中包括他的父亲，作为回报，亨特得到了艺术品，享用度假别墅，以及参与潜在的商业项目。**
 
-向亨特提供这些礼物的人是米格尔·阿莱曼·马格纳尼（Miguel Aleman Magnani）。
+随着这几天路德社信息的继续深挖，CIA爆料人出现[\[iii\]](//E400A53A-EDBC-4450-BD7C-74B6722A0C3E#_edn3)，拜登家族的CEO接受采访[\[iv\]](//E400A53A-EDBC-4450-BD7C-74B6722A0C3E#_edn4)，爆出乔拜登是亨特拜登与中共有生意往来真正的大人物。笔者不明白，美国正在大选，民众需要真实的信息去判断选出哪一位总统，为什么推特会用和中国大陆很多媒体一样的方式封锁消息呢？
 
-[!\[\]()!\[\](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/14f09ffb-70f2-4849-a6bf-b7aa27160fe0.jpg?asset_id=09176ad0-f560-4174-9c77-6a7617c1f4e0&amp;img_etag=%224f1cc79a03ff96e582535006d02ad068%22&amp;size=1024)](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/14f09ffb-70f2-4849-a6bf-b7aa27160fe0.jpg?asset_id=09176ad0-f560-4174-9c77-6a7617c1f4e0&amp;img_etag=%224f1cc79a03ff96e582535006d02ad068%22&amp;size=1024)向亨特提供这些礼物的人是米格尔·阿莱曼·马格纳尼（Miguel Aleman Magnani）
+### **真相之殇 ****文明之殇**
 
-*亨特-拜登在邮件中写道：”我真的很感谢你让我住在你的度假别墅里…… 你让我把这些人带进白宫和副总统家， 以及就职典礼上， 我都一一做到了。”*
+36个CIA的中国线人“彤宝国”们和20多个外围公安部人员被枪杀，牵扯到乔拜登出卖这些人的信息给中共高层；亨特拜登的不雅图片，已经牵扯到美国的前政要，这些图片是谁在哪里拍摄，前后还有哪些事情发生？亨特和中共高层的的生意已经牵扯到乔拜登，还会连接到哪些人和桌子底下的交易？
 
-马格纳尼（Magnani）是墨西哥前总统的孙子，也是墨西哥首富之一的儿子，是墨西哥航空公司Interjet的首席执行官（CEO）。
+当美国两党大选民众都需要真相做出决策投票时，这些本该报道真相的媒体，你们为什么要封杀真相？
 
-在2016年2月24日的一封电子邮件中，罗伯特-“亨特 “-拜登联系了马格纳尼，似乎在感叹自己被一个他曾经帮助过并引见给白宫的人所忽视了。
+在美国，这个高举自由火炬女神屹立的地方，如果真相不能被传播，恶行不能被揭发，人们会失去对公正、法治和自由的信心。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/154d238b-99b2-4d28-bbc6-fdb25e9b8128.png?asset_id=efdae6f3-9c7a-4eb4-9374-2a0a9af8d3e1&amp;img_etag=%2228ff876e67665c96e1214821aa50bac7%22&amp;size=2837)](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/154d238b-99b2-4d28-bbc6-fdb25e9b8128.png?asset_id=efdae6f3-9c7a-4eb4-9374-2a0a9af8d3e1&amp;img_etag=%2228ff876e67665c96e1214821aa50bac7%22&amp;size=1024)
+真相之殇！文明之殇！
 
-在邮件中，亨特透露说他 “已兑现了马格纳尼（Magnani）要求的每一件事”。
+* * *
 
-亨特帮助马格纳尼（Magnani）完成的事情包括亨特按照马格纳尼（Magnani）的要求，把马格纳尼（Magnani）要求的每一个人都带到了白宫和副总统家，以及就职典礼上。
+[\[i\]](//E400A53A-EDBC-4450-BD7C-74B6722A0C3E#_ednref1) https://youtu.be/CHQPB5uywto
 
-*自从我为卡洛斯（Carlos）和你爸爸安排了会面后就一直没有你的消息了。我们已经谈了7年的商业项目和合作。我真的很感谢你让我住在你的度假别墅里…… 你让我把这些人带进白宫和副总统家， 以及就职典礼上， 我都一一做到了。*
+[\[ii\]](//E400A53A-EDBC-4450-BD7C-74B6722A0C3E#_ednref2) https://gtv.org//?videoid=5f94a73b04b26243e0d30dbc
 
-邮件除了透露马格纳尼（Magnani）让亨特 “住在他的度假别墅 “外，还显示 “米格尔（Miguel） “赠送了亨特艺术品。
+[\[iii\]](//E400A53A-EDBC-4450-BD7C-74B6722A0C3E#_ednref3) https://youtu.be/zfpRmic6EX8
 
-2017年1月9日的一封电子邮件显示，Rosemont Seneca Partners高级顾问Joan Peugh 在一个亨特”一定要做卻尚未完成的”清单上，记载着对米格尔（Miguel）赠送的一件艺术品 “需要说谢谢”。
+[\[iv\]](//E400A53A-EDBC-4450-BD7C-74B6722A0C3E#_ednref4) https://youtu.be/GGP0WaraiAQ
 
-[!\[\]()!\[\](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/44e11be5-3afc-4e92-a308-7b4b30c62aee.png?asset_id=dbaf0de5-a1b7-41f8-8c58-dbd16d6efb55&amp;img_etag=%22bfb46a249ae2df8ae9a5ea5c13060eb2%22&amp;size=2560)](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/44e11be5-3afc-4e92-a308-7b4b30c62aee.png?asset_id=dbaf0de5-a1b7-41f8-8c58-dbd16d6efb55&amp;img_etag=%22bfb46a249ae2df8ae9a5ea5c13060eb2%22&amp;size=1024)
-
-亨特与这位墨西哥商人关系密切，亨特甚至被邀请参加他的50岁生日派对，而下面的邮件中描述的生日派对被推迟了。
-
-***英语译文：***
-
-*亲爱的朋友们,*
-
-*我很高兴看到大家对我的50岁生日庆祝活动的反应和兴趣。*
-
-*不幸的是，由于一股更强大的压力，我们必须将聚会推迟到新日期，我们将很快通知您，希望能够依靠您的光临庆祝活动。*
-
-*问候您。*
-
-*米格尔·阿莱曼·马格纳尼（Miguel Aleman Magnani）*
-
-[!\[\]()!\[\](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/d0c24cb3-5042-44a6-8231-348ee8a3de3f.png?asset_id=b3d8e860-726d-4690-98a0-8dff9c8f6b35&amp;img_etag=%22197fb52b650531e8f17f1c0474e4f3f8%22&amp;size=2560)](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/d0c24cb3-5042-44a6-8231-348ee8a3de3f.png?asset_id=b3d8e860-726d-4690-98a0-8dff9c8f6b35&amp;img_etag=%22197fb52b650531e8f17f1c0474e4f3f8%22&amp;size=1024)
-
-**曾在墨西哥的一次犯罪**
-
-布里斯马（Burisma）公司是一家颇具争议的乌克兰石油公司，亨特曾在该公司的董事会任职，还与Pemex公司—-一家国有的墨西哥石油公司有业务往来。
-
-电子邮件显示， 2015年1月27日， 亨特在与马格纳尼（Magnani）的家族公司阿莱曼集团（Aleman Group）合作中一封的电子邮件表明，丑闻缠身且有寡头主导的伯里斯马（Burisma）公司获得了参与”Pemex私有化的机会 “。
-
-这封邮件阐述了交易中的利益相关方亨特、马格纳尼（Magnani）的阿莱曼集团（Aleman Group），以及亨特的其他合伙人，如德文-阿彻（Devon Archer）和杰夫-库珀（Jeff Cooper ），在交易得以实现后计算报酬的方法。
-
-亨特还提到了2月27日在墨西哥城的一次会议，该会议是在时任副总统乔-拜登访问该地区，与墨西哥总统和众多高级顾问举行会谈的几天后举行的。目前仍不清楚乔-拜登是否出席了下面提到的会议。
-
-*一旦我们完成了上述工作，我们应该能够很好地利用计划于2月27日在墨西哥城举行的会议。*
-
-[!\[\]()!\[\](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/9917971d-9397-4cba-81de-31b9cfe05a68.png?asset_id=adc67b25-2b74-4e86-acb4-c83a64ca991b&amp;img_etag=%22968c9736ca8b24d743dc8b3cf83979d4%22&amp;size=1024)](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/9917971d-9397-4cba-81de-31b9cfe05a68.png?asset_id=adc67b25-2b74-4e86-acb4-c83a64ca991b&amp;img_etag=%22968c9736ca8b24d743dc8b3cf83979d4%22&amp;size=1024)
-
-随后的邮件显示，德文-阿彻（Devon Archer）试图协调该交易的支付事务。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/a5282595-6596-4a27-bc21-320d0fc9e5c9.png?asset_id=166acef6-d82d-40d9-82b4-6c810be0580e&amp;img_etag=%2221627077159c58af32d173cf6bfa4e07%22&amp;size=1024)](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/a5282595-6596-4a27-bc21-320d0fc9e5c9.png?asset_id=166acef6-d82d-40d9-82b4-6c810be0580e&amp;img_etag=%2221627077159c58af32d173cf6bfa4e07%22&amp;size=1024)
-
-*亲爱的Laura:*
-
-*根据你的邮件，下面是你所要求的信息，并附上所有出席人员的护照复印件：*
-
-[!\[\]()!\[\](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/a52bb104-0f79-4d2b-aac5-7e7d191b9aff.png?asset_id=8f943e9d-e18f-48cc-a02f-9d54ddd60824&amp;img_etag=%22d367c4d7d5f645f0e69514004237b405%22&amp;size=3059)](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/a52bb104-0f79-4d2b-aac5-7e7d191b9aff.png?asset_id=8f943e9d-e18f-48cc-a02f-9d54ddd60824&amp;img_etag=%22d367c4d7d5f645f0e69514004237b405%22&amp;size=1024)
-
-[原文链接](https://thenationalpulse.com/exclusive/biden-leveraged-meetings-for-art-vacations-and-more/)
-
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/AS6T6tj9hFiP6/)】-点击spark adobe版
-
-更多资讯敬请关注：
-
-【战鹰团Gab】[https://gab.com/himalayahawks](https://gab.com/himalayahawks)
-
-【英喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
-
-【英喜庄园GTV/盖特】:
-
-[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-【大卫作战室YouTube】：[https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
-0
+1+
