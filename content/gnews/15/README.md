@@ -1,14 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文视频版】2020/10/22 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/501164/)
+## 亨特·拜登第三波: 硬盘邮件解密15 2015年6月19日 快递董事会会议照片：瓦迪姆.波扎尔斯基致函亨特.拜登及德文.阿彻，询问快递塞浦路斯董事会会议照片的邮寄地址
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/501575/)
 
-1. 美国安全部20日称中共幕后支持黑客破坏美国网络安全。
-2. 以警治国：2019年全国的”维稳费”，将近一万四千亿元，共产党不仅将医疗、教育产业化增加人民生活负担，同时还拿着纳税人的钱镇压纳税人。 在视频，我们看到了某个小县城里的一只维稳队伍，估计有近百人。
-3. 统治危机，中共对老百姓的恐惧和无处不在的监控：2020年9月25日通过《北京市燃气管理条例》，北京实行购买瓶装煤气实名制，新疆的菜刀早就需要实名登记，现在北京买煤气瓶也要实名登记。
-4. 中共国灭绝人性的教育：强迫孩子在爷爷、奶奶、外公、外婆、爸爸、妈妈、兄弟、姐妹、亲戚、朋友之间选择，最后只能活一个人，孩子将一个个亲朋在黑板上划去，最后只剩下爸爸活下来，最后泪流满面。
-5. （路德社，10/21）亨特·拜登那次跟乔·拜登，最早第一次到那里。 就见了车峰，就在盘古酒店。 当时车峰是带着一个任务的，把亨特·拜登搞定。 但亨特·拜登一坐下来，张口就说，我很穷啊，怎么搞钱，我要钱，我看好某某房子，要一到两个亿美元，大概意思是这样，有没有女孩子。 所以说，他（车峰）说，这也太快了吧，玩这么主动，不叫上钩啊。 完全是自己主动往钩上撞啊。 这是第一次啊。
+前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
+
+**亨特拜登第三波：硬盘邮件解密**
+
+**2015年6月19日 快递董事会会议照片：瓦迪姆.波扎尔斯基致函亨特.拜登及德文.阿彻，询问快递塞浦路斯董事会会议照片的邮寄地址 **
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29191546/Screen-Shot-2020-10-30-at-9.15.32-am.png)![]()![]()
+**Reference:**
+
+- [https://conservapedia.com/Devon\_Archer](https://conservapedia.com/Devon_Archer%E2%80%A8)
+- [http://energysecurityforum.org/esf-council/92-vadympozharskyi](http://energysecurityforum.org/esf-council/92-vadympozharskyi)
+
+
+[**参考资料：
+6/19/2015 Framed Cyprus BoD meeting photo delivery: Vadim Pozharskyi emailed Hunter Biden and Devon Archer, asking their delivery address for the framed Cyprus BoD meeting photo.**](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29223246/R24-framed-Cyprus-BoD-meeting-photo-delivery.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29223246/R24-framed-Cyprus-BoD-meeting-photo-delivery.pdf)
+
 
 
 0

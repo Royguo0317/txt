@@ -1,20 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登第三波: 硬盘邮件解密16 2012年5月14日 时任美国参议员马克.尤德尔的调度总监凯西.钟对亨特拜登之前与她的通话的跟踪回复。在邮件中，她对亨特给她的工作机会表示了感谢,并向亨特询问了更多有关工作的详细内容
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/501376/)
+## 神秘的ZHANG BO- 出自地狱硬盘门邮件里的秘密
+` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/501695/)
 
-前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
-
-**亨特拜登第三波：硬盘邮件解密
-时间：2012年5月14日 下午2:00
-邮件是时任美国参议员马克.尤德尔的调度总监凯西.钟对亨特拜登之前与她的通话的跟踪回复。在邮件中，她对亨特给她的工作机会表示了感谢，并向亨特询问了更多有关工作的详细内容。**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29204701/Screen-Shot-2020-10-30-at-10.46.47-am.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29213150/Screen-Shot-2020-10-30-at-11.31.25-am.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29213230/Screen-Shot-2020-10-30-at-11.32.17-am.png)
-**参考资料：**
-
-- [https://zh.wikipedia.org/wiki/%E9%A9%AC%E5%85%8B%C2%B7%E5%B0%A4%E5%BE%B7%E5%B0%94](https://zh.wikipedia.org/wiki/%E9%A9%AC%E5%85%8B%C2%B7%E5%B0%A4%E5%BE%B7%E5%B0%94)
+喜马拉雅的文雅 （喜澳雅典娜农场）
 
 
-[**2012年5月14日 时任美国参议员马克.尤德尔的调度总监凯西.钟对亨特拜登之前与她的通话的跟踪回复。在邮件中，她对亨特给她的工作机会表示了感谢,并向亨特询问了更多有关工作的详细内容**](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29213706/28-China-Hi-Hunter.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29213706/28-China-Hi-Hunter.pdf)
+
+随着第三波地狱硬盘中解密的邮件如冰山一角般浮出水面，乔拜登家族作为中共代理人的交易细节正在逐步勾勒出来。2015年8月4日，前美国副总统乔拜登的特别助理Francis Person发邮件给亨特拜登确认8月18-23日在海口和三亚度假的日期。根据路德节目提供的信息，疑似中共总书记习近平的代持者Zhang Bo,是接待亨特拜登的关键人物。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29230718/zhang-bo-property.jpg)
+不知是否是巧合，2019年11月4日英国每日邮报报道，32岁的中国亿万富翁Zhang Bo在短短2年内在悉尼下北岸抢购了六栋价值3700万澳元的悉尼豪宅。邻居称房子基本是空置。张先生是澳大利亚公民，来自中国广东省，没有办公室地址，也没有在线个人资料。两年前住在Wolli Creek并在此以西太平洋银行抵押贷款购置一所公寓。他其他所有房产均用现金购买。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29230706/zhangbo-property.jpg)
+网上公布出他在悉尼的房产和购买时间如下。。
+26 Beauty Point Road, $6.2million, purchased on June 6, 2017
+26 Euryalus Street, $8million, purchased on August 15, 2017
+8 Tivoli Street, $5.3million, purchased on January 4, 2018
+77 Bay Street, $7.65million, purchased on October 26, 2018
+69 Bay Street, $6.6million, purchased on May 24, 2019
+101 Bay Street, $3.075million, purchased on October 21, 2019
+
+（后续发文敬请关注）
+
+
+
+新闻和图片来源：路德社和DailyMail
+
+[https://www.dailymail.co.uk/news/article-7645695/Mystery-surrounds-Chinese-billionaire-snapped-six-Sydney-mansions-worth-37million.html](https://www.dailymail.co.uk/news/article-7645695/Mystery-surrounds-Chinese-billionaire-snapped-six-Sydney-mansions-worth-37million.html)
 
 0
