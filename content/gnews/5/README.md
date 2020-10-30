@@ -1,23 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德先生转发郭先生Parler发文“今天真高兴😊真高兴……”！
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/502192/)
+## 亨特·拜登第三波: 硬盘邮件解密 18 2014年5月5日亨特·拜登的另一个生意伙伴杰夫·库伯(参与了Burisma与墨西哥石油公司合作项目)询问他父亲乔·拜登是否与他们会面
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/501953/)
 
-全文摘自**Gtv **盖特：文柯**Miles**
+前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
+
+**亨特·拜登第三波：硬盘邮件解密**
+
+**2014年5月5日亨特·拜登的另一个生意伙伴杰夫·库伯（参与了Burisma与墨西哥石油公司合作项目）询问他父亲乔·拜登是否与他们会面 **
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30000659/Screen-Shot-2020-10-29-at-9.00.55-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30012703/Screen-Shot-2020-10-30-at-3.26.43-pm.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30012736/Screen-Shot-2020-10-30-at-3.27.10-pm.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30012738/Screen-Shot-2020-10-30-at-3.27.17-pm.png)
+**参考资料**:
+
+- [https://gnews.org/zh-hans/500046/](https://gnews.org/zh-hans/500046/)
+- [https://conservapedia.com/Hunter\_Biden](https://conservapedia.com/Hunter_Biden)
 
 
 
-亨特-拜登已向联邦调查局自首！他今天下午亲自接受了巴尔和其他六名司法部律师的询问。他一直藏在华盛顿特区的一家医疗机构里，在那里接受戒毒治疗。
 
-到目前为止，他已经签署了声明，并提供了拜登家族在过去20年中所收受的3亿多元贿赂的证据。
+[**2014年5月5日亨特·拜登的另一个生意伙伴杰夫·库伯（参与了Burisma与墨西哥石油公司合作项目）询问他父亲乔·拜登是否与他们会面**](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30000505/33-Is-your-dad-coming-here.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30000505/33-Is-your-dad-coming-here.pdf)
 
-这些资金藏在瑞士的几个账户中，亨特提供的证据表明，乔-拜登多年来一直在访问这些账户并使用资金。证据显示，乔-拜登个人已经取走了超过4500万现金，并将其用于个人物品。
 
-这些信息已经转交给国税局的一个特别部门进行调查。巴尔将在周五与拜登会面，建议他要么退出竞选，要么面临多项刑事指控。
 
-如果他退选并充公账户中的所有资金，拜登家族特别是亨特将不会面临刑事指控。
-
-全文摘自**Gtv **盖特：文柯**Miles**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30010713/UNADJUSTEDNONRAW_thumb_8d25.jpg)
 0

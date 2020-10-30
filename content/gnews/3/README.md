@@ -1,15 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆料革命终极之战系列七：路德社重磅爆料中共习总书记核心藏宝图张博，试图渗透川普总统和共和党
-` GM101` [轉載自GNews](https://gnews.org/zh-hans/502447/)
+## 亨特·拜登第三波: 硬盘邮件解密 19 2014年5月5日德文·阿彻致函瓦迪姆·波扎尔斯基和亨特·拜登探讨天然气计划受阻的原因
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/502493/)
 
-美东时间10月29号晚，爆料革命路德社曝光中共习近平总书记在海外重磅藏宝图张博及相关细节。张博是方正证券隐形股东，曼联中国总代理。其母亲是华锐集团董事长邵景兰，岳父是海南省委书记刘赐贵，刘赐贵是习近平的“心腹代言人”之一，代持习私生子刘呈杰。
+前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
 
-路德表示张博不到30岁即可攻关NBA湖人队、英国曼联等俱乐部，其背后势力巨大，包括东北地下组织部长人和集团戴永革、国务院秘书长王忠禹、海航王建陈峰、北大王恩哥等人对其阿谀奉承，证明张博在东北已经权倾朝野。
+**亨特·拜登第三波：硬盘邮件解密**
 
-路德指出张博是习总书记在美国的核心藏宝图，张博负责习明泽（习总书记女儿）的生活和安保工作，其公司持有曼哈顿大量房产。同时张博也是中共海外布局的间谍头子，负责渗透川普总统和共和党。
+**2014年5月5日德文·阿彻致函瓦迪姆·波扎尔斯基和亨特·拜登探讨天然气计划受阻的原因**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30034119/Capture21.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30034316/Capture21-1.jpg)
 
-拜登家族贪腐、虐童等犯罪证据持续曝光后，习近平深知海外布局已完全暴露，其往日的“雄心壮志”荡然无存，惊慌失措下紧急转移大量的核心情报人员及相关装置，十多架飞机从加拿大专机飞往中国。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30034452/Capture21-2.jpg)
+
+
+
+参考资料：
+
+
+
+> [【1】第三波硬盘邮件解密！乌克兰天然气公司瓦迪姆与亨特·拜登商务伙伴德文·阿彻邮件曝光！](https://gnews.org/zh-hans/498612/)
+
+
+
+
+
+> [美国之鼠-拜登父子！](https://gnews.org/zh-hant/499547/)
+
+
+
+[https://en.wikipedia.org/wiki/Hunter\_Biden](https://en.wikipedia.org/wiki/Hunter_Biden)
+
+[https://www.bbc.com/news/world-5455313](https://www.bbc.com/news/world-5455313)
+
+[2014年5月5日德文·阿彻致函瓦迪姆·波扎尔斯基和亨特·拜登探讨天然气计划受阻的原因](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30033455/41-NYTimes-Kiev-Struggles-to-Break-Russias-Grip-on-Gas-Flow.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30033455/41-NYTimes-Kiev-Struggles-to-Break-Russias-Grip-on-Gas-Flow.pdf)
 
 0
