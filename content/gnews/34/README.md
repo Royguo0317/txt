@@ -1,22 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共《参考消息》憋出“大招”搬来大外宣CNN攻击闫博士、班农先生；只字不敢提新中国联邦
-` HAIKUOTIANKONG` [轉載自GNews](https://gnews.org/zh-hans/501844/)
+## 重磅! 渤海华美(上海)股权投资基金管理有限公司, 董事会第十三次会议保密材料首次曝光!
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/502006/)
 
-内新闻：Stephen(文文） 旅行
-校对：天蓝色独角色
+### **[渤海华美(上海)股权投资基金管理有限公司,
+董事会第十三次会议保密材料首次曝光!](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002909/Bohai-Harvest-RST-Chinese.pdf)**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002423/Bohai-Harvest-RST-Chinese_00.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002429/Bohai-Harvest-RST-Chinese_01.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002439/Bohai-Harvest-RST-Chinese_02.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002444/Bohai-Harvest-RST-Chinese_03.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002447/Bohai-Harvest-RST-Chinese_04.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002452/Bohai-Harvest-RST-Chinese_05.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002514/Bohai-Harvest-RST-Chinese_06.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002519/Bohai-Harvest-RST-Chinese_07.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002523/Bohai-Harvest-RST-Chinese_08.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002528/Bohai-Harvest-RST-Chinese_09.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002550/Bohai-Harvest-RST-Chinese_10.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002556/Bohai-Harvest-RST-Chinese_11.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002600/Bohai-Harvest-RST-Chinese_12.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002610/Bohai-Harvest-RST-Chinese_13.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002615/Bohai-Harvest-RST-Chinese_14.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002618/Bohai-Harvest-RST-Chinese_15.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002623/Bohai-Harvest-RST-Chinese_16.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002628/Bohai-Harvest-RST-Chinese_17.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002630/Bohai-Harvest-RST-Chinese_18.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002633/Bohai-Harvest-RST-Chinese_19.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002650/Bohai-Harvest-RST-Chinese_20.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002654/Bohai-Harvest-RST-Chinese_21.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002657/Bohai-Harvest-RST-Chinese_22.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002702/Bohai-Harvest-RST-Chinese_23.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002704/Bohai-Harvest-RST-Chinese_24.png)
+[**渤海华美(上海)股权投资基金管理有限公司, 董事会第十三次会议保密材料首次曝光!**](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002909/Bohai-Harvest-RST-Chinese.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002909/Bohai-Harvest-RST-Chinese.pdf)
 
-闫丽梦博士第二篇论文发表了三周后才憋出“大招”，《参考消息》10月28日才引用了中共大外宣美国有线电视新闻网攻击闫博士的一篇报道，题为《奇特的科学：班农支持的有关新冠病毒起源的“蹩脚”论文是如何传播给数以百万计的受众的》。
 
-《参考消息》引用的文章和21日CNN报道的内容基本一致，文章围绕抄袭、匿名作者、与班农政治关系，推特脸书和某些专家质疑，来攻击闫丽梦博士病毒真相的论文。通篇我们没有看到对闫博士科学论点的任何回应。中共一直宣称病毒溯源的科学问题要用科学的方式来回答，而闫博士用科学的方式做了回答后，中共却一点科学的回应都没有，通篇都是“政治化”的攻击。中共不是一直都反对将病毒“政治化”吗？共匪永远改不掉的就是撒谎和抵赖！
-
-中共在文章中还捎带攻击了班农先生，但只字不敢提班农先生是新中国联邦宣言的英文宣读人，班农先生的观点是中国人不等于中国共产党的政治观点。
-
-一周前美国CNN在黄金档播出4分钟节目，闫博士随即在推特、War Room和路德社就CNN的攻击进行了回应。闫博士指出CNN指出的抄袭部分犯了致命错误，却依旧在黄金档推出，继续洗脑他们的观众，是黔驴技穷的癫狂状态。真实情况是所谓的抄袭对象，一部分是来自作为闫博士共同作者之一的康教授的博客，而康教授博客里有关病毒内容，正是来源于闫博士在1月18号通过路德社提供的病毒重要信息；另一部分是闫博士自己早期匿名发在 gnews上的病毒真相论文。GHH和美国有线电视新闻网网站等于再说，闫博士抄了自己的文章。
-
-中共引用在美国收买的媒体和“科学家”们言论，对国内民众进行洗脑。在中共的红色统治下，有良知的科学家为了保护自己国内的亲人，只能用化名来揭露病毒真相。“法治学会”和“法治基金会”其中很重要的职责，就是营救保护被中共迫害和为消灭中共而奋斗的勇士们。闫博士与其他几位博士合著的病毒真相论文，署上“法治学会”和“法治基金会”的名字作为感谢，此举感动了出版方和亿万个爆料革命的战友。邪恶中共无法反驳闫丽梦博士的论文，只能从政治角度和污名化伎俩来攻击。这是一个多么无耻没有底线的政权，封锁了14亿人的信息然后用谎言来洗脑民众，一洗就是70多年。高科技时代，中共虽然有高高的防火墙，但是，真实的声音再也不会被阻挡。我们每一位传播真相的声音，都是射向中共子弹。邪恶中共不灭，防火墙不推倒，中国人就永远被奴役，世界就永远没有安宁，我们要传递真相，唤醒更多同胞，一起消灭邪恶中共。
-
-[https://news.sina.cn/2020-10-28/detail-iiznctkc8153412.d.html?cre=tianyi&mod=w2019ncov&loc=1&r=0&rfunc=0&tj=cxvertical\_2019ncov&tr=85&vt=4&pos=222](https://news.sina.cn/2020-10-28/detail-iiznctkc8153412.d.html?cre=tianyi&amp;mod=w2019ncov&amp;loc=1&amp;r=0&amp;rfunc=0&amp;tj=cxvertical_2019ncov&amp;tr=85&amp;vt=4&amp;pos=222)
 
 0

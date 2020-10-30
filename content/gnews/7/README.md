@@ -1,14 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅! 渤海华美(上海)股权投资基金管理有限公司, 董事会第十三次会议保密材料首次曝光!
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/502006/)
+## 爆料革命终极之战系列七：路德社重磅爆料中共习总书记核心藏宝图张博，试图渗透川普总统和共和党
+` GM101` [轉載自GNews](https://gnews.org/zh-hans/502447/)
 
-### **[渤海华美(上海)股权投资基金管理有限公司,
-董事会第十三次会议保密材料首次曝光!](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002909/Bohai-Harvest-RST-Chinese.pdf)**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002423/Bohai-Harvest-RST-Chinese_00.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002429/Bohai-Harvest-RST-Chinese_01.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002439/Bohai-Harvest-RST-Chinese_02.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002444/Bohai-Harvest-RST-Chinese_03.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002447/Bohai-Harvest-RST-Chinese_04.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002452/Bohai-Harvest-RST-Chinese_05.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002514/Bohai-Harvest-RST-Chinese_06.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002519/Bohai-Harvest-RST-Chinese_07.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002523/Bohai-Harvest-RST-Chinese_08.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002528/Bohai-Harvest-RST-Chinese_09.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002550/Bohai-Harvest-RST-Chinese_10.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002556/Bohai-Harvest-RST-Chinese_11.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002600/Bohai-Harvest-RST-Chinese_12.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002610/Bohai-Harvest-RST-Chinese_13.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002615/Bohai-Harvest-RST-Chinese_14.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002618/Bohai-Harvest-RST-Chinese_15.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002623/Bohai-Harvest-RST-Chinese_16.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002628/Bohai-Harvest-RST-Chinese_17.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002630/Bohai-Harvest-RST-Chinese_18.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002633/Bohai-Harvest-RST-Chinese_19.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002650/Bohai-Harvest-RST-Chinese_20.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002654/Bohai-Harvest-RST-Chinese_21.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002657/Bohai-Harvest-RST-Chinese_22.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002702/Bohai-Harvest-RST-Chinese_23.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002704/Bohai-Harvest-RST-Chinese_24.png)
-[**渤海华美(上海)股权投资基金管理有限公司, 董事会第十三次会议保密材料首次曝光!**](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002909/Bohai-Harvest-RST-Chinese.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002909/Bohai-Harvest-RST-Chinese.pdf)
+美东时间10月29号晚，爆料革命路德社曝光中共习近平总书记在海外重磅藏宝图张博及相关细节。张博是方正证券隐形股东，曼联中国总代理。其母亲是华锐集团董事长邵景兰，岳父是海南省委书记刘赐贵，刘赐贵是习近平的“心腹代言人”之一，代持习私生子刘呈杰。
 
+路德表示张博不到30岁即可攻关NBA湖人队、英国曼联等俱乐部，其背后势力巨大，包括东北地下组织部长人和集团戴永革、国务院秘书长王忠禹、海航王建陈峰、北大王恩哥等人对其阿谀奉承，证明张博在东北已经权倾朝野。
 
+路德指出张博是习总书记在美国的核心藏宝图，张博负责习明泽（习总书记女儿）的生活和安保工作，其公司持有曼哈顿大量房产。同时张博也是中共海外布局的间谍头子，负责渗透川普总统和共和党。
+
+拜登家族贪腐、虐童等犯罪证据持续曝光后，习近平深知海外布局已完全暴露，其往日的“雄心壮志”荡然无存，惊慌失措下紧急转移大量的核心情报人员及相关装置，十多架飞机从加拿大专机飞往中国。
 
 0

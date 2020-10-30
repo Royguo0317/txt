@@ -1,25 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登第三波: 硬盘邮件解密 18 2014年5月5日亨特·拜登的另一个生意伙伴杰夫·库伯(参与了Burisma与墨西哥石油公司合作项目)询问他父亲乔·拜登是否与他们会面
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/501953/)
+## 亨特·拜登第三波: 硬盘邮件解密 20 2015年7月23日德文·阿彻给瓦迪姆·波扎尔斯要求其向亨特·拜登提供挪威之行的时间安排，以便他们尽快通知特勤局
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/502698/)
 
 前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
 
 **亨特·拜登第三波：硬盘邮件解密**
 
-**2014年5月5日亨特·拜登的另一个生意伙伴杰夫·库伯（参与了Burisma与墨西哥石油公司合作项目）询问他父亲乔·拜登是否与他们会面 **
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30000659/Screen-Shot-2020-10-29-at-9.00.55-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30012703/Screen-Shot-2020-10-30-at-3.26.43-pm.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30012736/Screen-Shot-2020-10-30-at-3.27.10-pm.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30012738/Screen-Shot-2020-10-30-at-3.27.17-pm.png)
-**参考资料**:
-
-- [https://gnews.org/zh-hans/500046/](https://gnews.org/zh-hans/500046/)
-- [https://conservapedia.com/Hunter\_Biden](https://conservapedia.com/Hunter_Biden)
-
-
-
-
-[**2014年5月5日亨特·拜登的另一个生意伙伴杰夫·库伯（参与了Burisma与墨西哥石油公司合作项目）询问他父亲乔·拜登是否与他们会面**](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30000505/33-Is-your-dad-coming-here.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30000505/33-Is-your-dad-coming-here.pdf)
-
-
+**2015年7月23日德文·阿彻给瓦迪姆·波扎尔斯要求其向亨特·拜登提供挪威之行的时间安排，以便他们尽快通知特勤局**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30043234/Capture20-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30044443/Capture20-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30044603/Capture20-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30044647/Capture20-6.jpg)
+[2015年7月23日德文·阿彻给瓦迪姆·波扎尔斯要求其向亨特·拜登提供挪威之行的时间安排，以便他们尽快通知特勤局](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30043944/40-Norway-%E6%A0%A1%E5%AF%B9.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30043944/40-Norway-%E6%A0%A1%E5%AF%B9.pdf)
 
 0

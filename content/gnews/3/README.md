@@ -1,39 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登第三波: 硬盘邮件解密 19 2014年5月5日德文·阿彻致函瓦迪姆·波扎尔斯基和亨特·拜登探讨天然气计划受阻的原因
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/502493/)
+## 薄甜甜给亨特拜登发邮件 涉及何志平案 华信能源以及美国法律
+` GM36` [轉載自GNews](https://gnews.org/zh-hans/502971/)
 
-前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30063900/EMAIL.jpeg)
+**译文：**
 
-**亨特·拜登第三波：硬盘邮件解密**
+发件人: Jiaqi Bao  [email protected]
 
-**2014年5月5日德文·阿彻致函瓦迪姆·波扎尔斯基和亨特·拜登探讨天然气计划受阻的原因**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30034119/Capture21.jpg)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30034316/Capture21-1.jpg)
+主题:   感恩节快乐 + 关于何志平 + 你的电话
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30034452/Capture21-2.jpg)
+日期:   2017年11月23日 下午3：50
+
+收件人: 亨特拜登 [email protected], 罗伯特拜登 [email protected]
+
+感恩节快乐，亨特！
+
+希望你一切顺利，我仍然无法适应你总玩消失，老不接电话，完全联系不上（沮丧表情）。
+
+关于何志平博士…我知道你一定是在忙着解决这个问题。如果需要任何帮助，请告诉我。你肯定有好多工作要做，承担很大的压力，但一定要照顾好自己。我读了一些最新的报纸，你也会感到惊讶的，那就是最新一期的中国娱乐新闻与他有关，内容是他的妻子是电影明星（巨星，在你和Jim叔叔的那一代就已经是偶像巨星）。说到眼前这个问题，我希望它成为我向你学习的一个机会，因为我对法律知识一无所知。
+
+1）我想不明白，为什么所有的一切未发生在美国境内且不涉及没有任何美国公司，美国却有权利按照美国法律去起诉何志平博士。如果非得要起诉他的话，那也应该是香港政府或者非洲国家的政府，因为何志平是这些国家的公民……这与美国又有什么关系呢？难道是有什么事情是发生在美国境内而且还牵扯到某家美国银行？或者是因为触犯了某些国际法？
+
+2）此外，何志平博士在多个领域（医疗界，商界和香港政界）都有著丰富的閲历，因此备受尊重。美国政府按照他们自己的标准判断，可能认为他与交往密切的某些领域或者公司之间的交易有问题，甚至可能只是个人问题，不一定与中国华信能源公司有关系。为什么美国政府如此确定其与华信能源有关系？
+
+很期待向你学习，我想知道你怎么能读著那些无聊的报纸却不睡著。
+
+在这个感恩的时刻，我衷心感谢你给予我的机会和信任，感谢你为你这个令人讨厌的伙伴所做的一切(俏皮的表情）。同时也要感谢你是一位很棒且善解人意的老板，也是我最有魅力的朋友和恶作剧的好搭档，祝你和你的家人感恩节快乐！
+
+此致
+
+Jiaqi
 
 
-
-参考资料：
-
-
-
-> [【1】第三波硬盘邮件解密！乌克兰天然气公司瓦迪姆与亨特·拜登商务伙伴德文·阿彻邮件曝光！](https://gnews.org/zh-hans/498612/)
-
-
-
-
-
-> [美国之鼠-拜登父子！](https://gnews.org/zh-hant/499547/)
-
-
-
-[https://en.wikipedia.org/wiki/Hunter\_Biden](https://en.wikipedia.org/wiki/Hunter_Biden)
-
-[https://www.bbc.com/news/world-5455313](https://www.bbc.com/news/world-5455313)
-
-[2014年5月5日德文·阿彻致函瓦迪姆·波扎尔斯基和亨特·拜登探讨天然气计划受阻的原因](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30033455/41-NYTimes-Kiev-Struggles-to-Break-Russias-Grip-on-Gas-Flow.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30033455/41-NYTimes-Kiev-Struggles-to-Break-Russias-Grip-on-Gas-Flow.pdf)
 
 0
