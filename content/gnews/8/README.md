@@ -1,15 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 塔克·卡尔森：丢失的亨特拜登资料突然重新出现了
-` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/503041/)
+## ハンター・バイデンの第三波: HDの電子メールの秘密暴露、民主党の最大スポンサー、ビル・バートマンは ハンター・バイデンを無条件支持と約束
+` xbwen7m` [轉載自GNews](https://gnews.org/zh-hans/503345/)
 
-内新闻：背靠背
+出稿者：秘密翻訳組　　　　和訳：旭鵬（文鵬）（ヒマラヤ櫻花団）
 
-2020年10月30日 08:41 FOX著名媒体人塔克·卡尔森（Tucker Carlson）发推文称，丢失的亨特·拜登（Hunter Biden）文件突然出现了，但是我们仍然有许多疑问。
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30074801/%E7%94%BB%E5%83%8F1-33.jpg)
 
-UPS回应称，“没有更多的细节，保安正在退回。再次表示歉意，我们无法按照您要求的服务水平次日送达。”
 
-塔克·卡尔森（Tucker Carlson）周三（28日）晚上透露，有人拦截了一个信封，里面装有支持托尼·波布林斯基（Tony Bobulinski）重要证据。这些文件是通过一家“知名的过夜运输”公司邮寄的，并且神秘地从纽约到洛杉矶的运输中被拿掉了。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065807/1-275.jpg)
-0
+**メールのタイトル：**バイデン氏の息子ハンター氏、コカイン検査に不合格で海軍予備役から除隊、ウォールストリート・ジャーナル（レポート)
+
+**差出人：**Bill Bartmann (ビル・バートマン)
+
+**日付：**2014年10月16日8:30PM
+**受取人：**ハンター・バイデン
+
+ハンター，
+
+あなたの友人として私は、無条件にあなたの味方です。
+
+この気まずい時に、何かお役に立てることがあれば教えて下さい。 ご存知の通り、私も恥ずかしい経験をしてきた。
+
+### メール送信者についての説明：
+
+- 送信者は民主党の最大スポンサー、ビル・バートマン（Bill Bartmann）の可能性がある
+
+
+参考資料：[https://en.wikipedia.org/wiki/Bill\_Bartmann](https://en.wikipedia.org/wiki/Bill_Bartmann)
+
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30074747/%E7%94%BB%E5%83%8F2%E3%80%80-1.png)
+
+
+2+
