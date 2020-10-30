@@ -1,19 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/10/20 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/504437/)
+## 中共国家发改委牵头,14部门协同发布——“全国家庭应急物资储备清单”!
+` 快慢机` [轉載自GNews](https://gnews.org/zh-hans/504415/)
 
-战友之家图文摘要及多语种组
+内军事:快慢机
 
-[269\_English\_1020\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090156/269_English_1020_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090156/269_English_1020_CCP_Virus_Updates.pdf)
+素材:文朝汗
 
-[269\_French\_1020\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30102239/269_FR_1020_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30102239/269_FR_1020_CCP_Virus_Updates.pdf)
+近日,由中共国家发改委牵头,14部门联合协同发布的,关于加速引导“全民家庭应急物资储备清单”的专项任务通告!
 
-[269\_German\_1020\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090156/269_German_1020_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090156/269_German_1020_CCP_Virus_Updates.pdf)
+通告称,全国范围内,各级地方政府,应参照北京等地,所推出的省级家庭应急物资储备清单经验,加速制定并引导全民家庭进行应急医疗急救等物资储备.
 
-[269\_Korean\_1020\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090156/269_Korean_1020_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090156/269_Korean_1020_CCP_Virus_Updates.pdf)
+美国大选眼下已经进入白热化阶段!
 
-[269\_Spanish\_1020\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090155/269_Spanish_1020_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090155/269_Spanish_1020_CCP_Virus_Updates.pdf)
+“郭文贵先生”曾经说过,这次的大选,将会以非常滑稽的结果而收场!
+
+但不论最终获胜的是哪一方,有一点是100%可以确定的!
+
+那就是——“灭共”是当选后的首要唯一必须!
+
+相信这一点就目前的局势而言,各方势力早已有目共睹且深信不疑!
+
+中共自然也嗅到了“极度危险”的味道!
+
+大选尘埃落定之日,必是美国报“新仇旧恨”之时!
+
+中共如今已是骑虎难下,死罪难免,活罪难逃!
+
+在其累累罪行铁证如山般的被一一曝光于天下之际.
+
+困兽犹斗的中共,自然而然的便祭出了14亿人质的无耻之尤!
+
+妄图以这14亿草民来胁迫世界,抗衡最终针对其的正义审判!
+
+当年的“伊拉克”如此、“利比亚”亦是如此!
+
+“独裁政权”又有哪一个不是如此之下场?
 
 0
