@@ -1,29 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 以“命运观”浅析亨特·拜登的惨败人生
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/502875/)
+## 台湾联华电子对其盗窃商业机密表示认罪，并愿意协助美国调查相关中共国企业
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/503797/)
 
-多伦多加喜农场 CAO
+新闻摘要：2020年10月28日美国司法部宣布，台湾半导体代工企业联华电子（UMC）对其盗窃商业机密指控表示认罪，并被判处罚款6000万美元，以换取其与美国政府合作，对其共同被告中[共]国国有企业进行调查和起诉。此类案件对于在全球范围内保护创新和知识产权都具有极为重要的意义。
 
-校对上传 XM
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30070948/755274575.jpg)
-近日，亨特·拜登的花样淫魔照风靡网络，这些非人类的丑态及背后与中共的罪恶交易，令全球民众触目惊心。而目前公众一窥的也不过是亨特·拜登罪恶之冰山一角，他的罪恶早已被钉上人类的耻辱柱了。
+**Taiwan Company Pleads Guilty to Trade Secret Theft in Criminal Case Involving PRC State-Owned Company**
 
-在美国的拜登家族，生活在信仰神的国度，为何沦落到地狱般荒淫无度？我们都知道，是中共罪恶的渗透、引诱和控制，是中共的蓝金黄，活生生把正常人变成了魔鬼或禽兽。
+**台湾公司承认涉及中共国有公司的商业机密盗窃行为的刑事案件**
 
-毛贼东曾惊爆逆天语录：与天斗，其乐无穷；与地斗，其乐无穷；与人斗，其乐无穷。他企图把天地人的和谐共处割裂，将人变得无法无天，如同魔鬼或禽兽。而这便成为了中共极权者一以贯之行动！拜登家族成为了重要的蓝金黄对象，且收效显著。
+The Department of Justice today announced that United Microelectronics Corporation, Inc. (UMC), a Taiwan semiconductor foundry, pleaded guilty to criminal trade secret theft and was sentenced to pay a $60 million fine, in exchange for its agreement to cooperate with the government in the investigation and prosecution of its co-defendant, a Chinese state-owned-enterprise.
 
-然而我们虽然深受中共邪恶文化侵扰七十年，但是善良的人们依然敬畏上天，相信着命运。什么是命运，就是相信上天自有冥冥中的安排。下面以纪晓岚《阅微草堂笔记》中记载了名臣李卫的一件奇闻，来阐述“命运观”。
+美国司法部今天宣布，台湾半导体代工企业联华电子（UMC）对盗窃商业机密表示认罪，并被判处罚款6000万美元，以换取其与美国政府合作对其共同被告中[共]国国有企业进行调查和起诉。
 
-李卫有一年乘船渡江，同船有一名道士预言船上有一人将死，果不然那人不久后被船帆扫落江中而亡。后来，船至江心时，忽然大风袭船，道士施法很快平复风浪，解救了全船人。李卫一拜再拜，答谢道士的救命之恩。道士却说，坠江之人，命中注定溺亡，而李卫命中注定不该死，所以施救，不必谢！
+A federal grand jury had indicted UMC in September 2018, along with Fujian Jinhua Integrated Circuit Co., Ltd. (Fujian Jinhua), a state-owned enterprise of the People’s Republic of China (PRC), and three individuals for conspiracy to steal, convey, and possess stolen trade secrets of an American semiconductor company (Micron Technology, Inc. (Micron)) for the benefit of a state-owned enterprise of the PRC (Fujian Jinhua).
 
-李卫趁机讨教命运的玄机，道士讲解一番：“一个人是穷困，还是飞黄腾达，这应听从命运的安排。如果不顺从命运，就会奔走竞争、排挤倾轧，动用各种手段。殊不知李林甫、秦桧即便不构陷忠良，也能当上宰相，他们陷害忠良，只不过徒然增加自身的罪孽罢了。至于有关国计民生的大事，就不可轻易言命。天地降生有才干者，朝廷设置百官，都是用来弥补气数的办法。如果手中握有大权，却整日无所事事，完全交由命运，那么天地又何必降生才干，朝廷又何必设置官职呢？……是知其不可而为之……鞠躬尽瘁，死而后已……这都是圣贤修身养性奉天命的学问，您要了解一下。”
+联邦大陪审团已于2018年9月对联华电子（UMC）以及中华人民共和国（PRC）的国有企业福建晋华集成电路有限公司JHICC（福建晋华）以及其他三个个人为中共国的国有企业（福建晋华）的利益而串谋盗窃、传送并拥有盗取的美国半导体公司（美光科技有限公司（Micron））的商业机密提出起诉。
 
-亨特·拜登现在拥有的财富，不是踏踏实实工作获得的。他选择了以邪恶手段获取。这正是命运的另外一个特征，那就是命运掌握在自己手里，决定于自我的选择。显然亨特·拜登后来选择了与中共邪魔共舞，赚快钱，赚轻松钱，不惜出卖国家和平民的利益。他以为自己非常聪明，夜夜做新郎，挑战人类的享乐极限，殊不知，中共这个恶魔，抛给他一个利益甜头，同时也在他脖子上加一根绳索，最终用犯罪、出卖灵魂将他捆绑，并一切都留下了证据。当然，他之所以选择了堕入魔道之路，也跟他屈服于本性的弱点，还有一个邪恶的乔·拜登有关。
+As a result of today’s guilty plea, and in accordance with an accompanying plea agreement, UMC, whose American Depository Receipts are publicly traded on the New York Stock Exchange, will pay the fine—the second largest ever in a criminal trade secret prosecution, be subject to a three-year term of probation, and cooperate with the United States.
 
-不过，在命运里，在名利上，有些人选择了另外一条路，不仅勤奋工作，坚守信仰，在个人名利上功成名就。更可贵的是，当个人名利与天下大义相冲突时，他们毅然选择大义，不惜牺牲个人性命相搏。这些人舍小利，求大义的选择，令亨特·拜登这样连正常人修为都放弃的人，望其项背，自愧不如。
+基于今天的认罪，并根据相关认罪协议，联华电子，这一其美国存托凭证在纽约证券交易所公开交易的企业，将支付其罚款——这是刑事商业机密起诉史上第二高额的罚款。此判决缓刑期为三年，并要求联华电子与美国合作。
 
-其实，我们的人生里，很多人以为可以拥有很多，那不过也是冥冥注定。本质上，我们只拥有一样东西，那就是“善恶选择权”。选择善时，你的一切便是祝福；选择恶时，你的一切便是惩罚。亨利·拜登，从他选择与中共邪魔一起时，便注定了惨败！便注定了恶果！
+“UMC stole the trade secrets of an American leader in computer memory to enable China to achieve a strategic priority: self-sufficiency in computer memory production without spending its own time or money to earn it,” said Deputy Attorney General Jeffrey A. Rosen. “This prosecution is an example of the Department of Justice’s successful efforts to defend American companies from those who try to cheat and steal their technology.”
+
+副总检察长杰弗里·罗森说： “联华电子窃取了美国计算机存储器领导者的商业机密，以使中[共]国能够实现其战略优势：在不投入时间或金钱的情况下实现计算机存储设备的自给自足。这项起诉是美国司法部致力于成功保护美国公司免受那些企图欺骗和窃取其技术的公司侵害的一个案例。”
+
+UMC pleaded guilty to a superseding information charging the company with one count of criminal trade secret theft in violation of 18 U.S.C. § 1832(a)(3). The other criminal charges and a parallel civil suit by the United States against UMC will be dismissed.
+
+联华电子承认其篡改取代信息，其行为违反了18 U.S.C. 第1832(a)(3)条法令，被指控盗窃商业秘密罪。美国对联华电子的其它刑事指控和相关的民事诉讼将被驳回。
+
+The criminal prosecution of Fujian Jinhua and the three individual defendants will continue, as will a civil action seeking to enjoin Fujian Jinhua from the further transfer of stolen trade secrets and the export to the United States of products manufactured by Fujian Jinhua that were made using the stolen trade secrets.
+
+对福建晋华及其三名被告的刑事诉讼将继续进行，而相关民事诉讼也将继续执行，以阻止福建晋华进一步转移其盗取的商业机密，并将其通过使用盗取的商业机密而制造的产品出口到美国。
+
+“UMC’s guilty plea points this case towards trial against Fujian Jinhua in 2021,” said U.S. Attorney David L. Anderson.  “Criminal trade secrets cases protect freedom and innovation.  These cases have global significance when a foreign defendant is charged with stealing intellectual property protected by U.S. law.”
+
+美国检察官戴维·L·安德森（David L. Anderson）说：“联华电子的认罪使本案指向2021年对福建晋华的审判。刑事商业机密的案件可以保护自由与创新。当外国被告被控窃取受美国法律保护的知识产权时，这些案件在全球范围内都具有意义。”
+
+“Protecting American intellectual property and trade secrets is a top priority for the FBI.  This is especially true for the FBI’s San Francisco Division, with Silicon Valley in our area of responsibility, and we will continue to lead the fight in safeguarding U.S. innovation from foreign adversaries,” said FBI Special Agent in Charge Craig Fair.  “This case sends an important message to Bay Area companies: if you report suspicious activity to the FBI, we will follow all investigative leads to identify and prosecute those responsible.”
+
+FBI主管特工 Craig Fair 说： “保护美国的知识产权和商业机密是联邦调查局的头等大事。 这对于FBI旧金山分部尤其如此，硅谷也是我们负责的地区，我们将继续在保护美国创新能力免受其外国对手盗取的斗争上起到引领作用。此案向湾区公司传达了一个重要信息：如果您向FBI报告可疑活动，我们将跟踪所有调查线索，以识别并起诉相关责任人。”
+
+According to the facts admitted in connection with the guilty plea, UMC hired the three individual defendants—Chen Zhengkun, a.k.a. Stephen Chen; He Jianting, a.k.a. J.T. Ho; and Wang Yungming, a.k.a. Kenny Wang—from Micron’s Taiwan subsidiary. UMC made Chen a senior vice president and assigned him to lead negotiation of an agreement with Fujian Jinhua to develop Dynamic Random Access Memory (DRAM) technology for Fujian Jinhua.
+
+根据有关认罪的事实，联华电子聘请了三名被告人：陈正坤，又名斯蒂芬·陈；何建廷（J.T.）和美光台湾子公司的王永铭（又名Kenny Wang）。联华电子任命陈为高级副总裁，并指派他领导与福建晋华就为福建晋华开发动态随机存取存储器（DRAM）技术的协议进行谈判。
+
+As a foundry company, UMC previously made logic chips designed by other companies but did not make DRAM memory chips. Chen hired Ho and Wang to join the DRAM development team, and Ho and Wang brought Micron’s confidential information to UMC from Micron’s Taiwan subsidiary.
+
+作为一家代工企业，联华电子以前生产过其它公司设计的逻辑芯片，但没有生产过（DRAM）随机存取存储器芯片。陈正坤聘请了何建廷和王永铭加入DRAM开发团队，何和王从美光台湾子公司将美光的机密信息带到了联华电子。
+
+After UMC’s Information Technology Department found Micron’s intellectual property on Ho’s UMC computer, Chen approved the issuance of two “off network” laptop computers that allowed UMC employees to access Micron confidential information without further detection by UMC’s IT department.
+
+联华电子信息技术部在何建廷的联华电子工作电脑上发现美光的知识产权后，陈正坤批准配备了两台“不联网”的笔记本电脑，这些笔记本电脑使联华电子的员工可以访问美光的机密信息，而无需联华电子信息技术部的进一步侦测。
+
+In particular, Wang used one file containing Micron’s trade secrets to adjust UMC’s design rules for the memory in question. Later, when Taiwan authorities searched UMC’s offices, Ho and Wang asked another UMC employee to hide papers, notes, USB drives, a personal phone, and a laptop computer while the Taiwan authorities executed their search warrants.
+
+特别是，王永铭使用了一个包含美光公司商业机密的文件来调整联华电子针对有缺陷的内存的设计规则。后来，当台湾当局搜寻了联华电子公司的办公室。当台湾当局则执行其搜查令时，何和王要求另一名联华电子公司的员工藏匿纸张，记录，USB驱动器，个人电话和一台笔记本电脑。
+
+Taiwan authorities recovered only one of the two off-network laptops. The hard drive of the other was reformatted and concealed from Taiwan authorities. Beginning in the month of the Taiwan raids, Chen became president of Fujian Jinhua and took charge of its memory production facility.
+
+台湾当局只恢复了两台不联网笔记本电脑中的一台。另一台电脑的硬盘被重新格式化并对台湾当局进行了隐藏。台湾进行突击搜查的那个月早期，陈正坤刚刚就任福建晋华总裁，负责其内存生产设施。
+
+This prosecution is a result of an investigation by the FBI. Substantial assistance was provided by Taiwan’s Ministry of Justice, its Ministry of Justice Investigation’s Bureau (MJIB), and the Taichung District Prosecutor’s Office (TDPO).
+
+该起诉是根据联邦调查局调查的结果而进行的。台湾司法部，司法部调查局（MJIB）和台中地区检察官办公室（TDPO）提供了大量援助。
+
+[阅读司法部英文原文](https://www.justice.gov/opa/pr/taiwan-company-pleads-guilty-trade-secret-theft-criminal-case-involving-prc-state-owned)
+
+翻译：【Winston Jackson(文李)】 校对：【文灵】编辑：【Isaiah4031】
+
+战友之家玫瑰园小队制作
 
 0

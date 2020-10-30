@@ -1,9 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅！拜登门证人Bobulinski称FBI在23号对他的证据进行了调查
-` GM36` [轉載自GNews](https://gnews.org/zh-hans/502772/)
+## 亨特·拜登第三波: 硬盘邮件解密 21 布里斯玛天然气公司创始人尼古拉与亨特拜登是什么关系？
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/503080/)
 
-重磅！Sinclair采访了拜登门证人Bobulinski, Bobulinki称FBI在23号对他的证据进行了调查。当时在场的探员多至六名，均深悉此案敏感性。根据DOJ线人证实此调查涉及洗钱活动，从2019年至今仍在推进。Bobulinski提出2017年亨特及合伙人通过华信获利五百万美金，美国总统候选人乔拜登也有参与。乔拜登对此指控予以否认，但至今其竞选团队仍未对采访内容提出任何异议。
+前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
+
+**亨特·拜登第三波：硬盘邮件解密**
+
+**布里斯玛天然气公司创始人尼古拉与亨特拜登是什么关系？**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30064117/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_00.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065438/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_12.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065441/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_13.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065446/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_14.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065450/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_15.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065534/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_16.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065539/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_17.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065544/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_18.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065547/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_19.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065600/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_20.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065602/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_21.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065606/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_22.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065608/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_23.png)
+[**布里斯玛天然气公司创始人尼古拉与亨特拜登是什么关系？**](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30064556/21-What-is-the-relationship-between-Burisma-founder-Nikolai-and-Hunter-Biden.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30064556/21-What-is-the-relationship-between-Burisma-founder-Nikolai-and-Hunter-Biden.pdf)
 
 0

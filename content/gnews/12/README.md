@@ -1,40 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 滑天下之大稽：亨特·拜登居然是一个“禁止虐童基金会”的主席
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/504442/)
+## 评脱欧功臣法拉奇先生支持川普竞选的演讲
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/504724/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27191627/1-271.png)图片来源： gtv.org
+*翻译：赞赞；简评：文明明；校对: Beicy-数学老师；审核： InAHurry；Page：拱卒*
+[!\[\]()!\[\](https://spark.adobe.com/page/hbV0gGSxTwjPQ/images/9009ff5a-6311-4bf2-bb14-2ae1e2b2048e.jpg?asset_id=5cd76de7-6e8a-46f1-8628-1e2830ca66ba&amp;img_etag=%220402d8127ca371b584c0f773333d7660%22&amp;size=2560)](https://spark.adobe.com/page/hbV0gGSxTwjPQ/images/9009ff5a-6311-4bf2-bb14-2ae1e2b2048e.jpg?asset_id=5cd76de7-6e8a-46f1-8628-1e2830ca66ba&amp;img_etag=%220402d8127ca371b584c0f773333d7660%22&amp;size=1024)法拉奇为川普站台（Ross D. Franklin/AP）
+奈杰尔-法拉奇 （Nigel Farage）先生在川普总统的竞选集会上的讲话，说出我们大家的心声，也给予我们大家以极大的鼓舞。
 
+2016年，奈杰尔-法拉奇（Nigel Farage）主导的英国脱欧公投在几乎不可能的情况下，取得了成功，这反映了英国民众对左派政客和所谓的全球化已经忍无可忍了，也反映了英国民众对回归传统价值的渴望。正如路德时评所说的, 全球化实质是共产主义加上全球奴隶化。四年前，奈杰尔-法拉奇（Nigel Farage）带着英国脱欧的成功经验，来到美国，支持川普总统，四年后，他再次站出来支持川普，说明在被中共深度蓝金黄的西方政坛，还是有保持清醒头脑的人，还是有人敢于站出来，挑战中共的人。这些人虽然现在仍是少数，但是，他们让我们看到了希望。
 
-据《谈论新闻》（Speaking About News）10月26日报道，目前正处于政治丑闻和性丑闻中心的亨特·拜登（Hunter Biden）的笔记本电脑上所贴有的一张“Beau Biden Foundation（博·拜登基金会）”的标签，引起了人们的广泛兴趣。据悉，该基金会的全称是博·拜登保护儿童基金会 （[Beau Biden Foundation for the Protection of Children](https://www.beaubidenfoundation.org/)）。
+在竞选集会上，奈杰尔-法拉奇（Nigel Farage）对川普总统的赞扬得到了美国人民的认同，同时他也提醒美国人民：“你们是在投票选举“自由世界”的领袖，你们投的是自由世界中，目前唯一有勇气站出来为民族国家而战、为爱国主义而战、为反对全球化而战的领导人。”
 
-然而，令人大跌眼镜的是，前纽约市长鲁迪·朱利安尼（Rudy Giuliani）刚刚宣称该笔记本电脑中包含有未成年女孩的色情材料，这令人既悲哀又恶心。
+事实上，这是对全世界向往自由和民主的人民发出的呼吁。战友们，让我们大家都站出来，为我们民族的未来、为我们的新中国、为全世界人民的自由而战！！！
+[!\[\]()!\[\](https://spark.adobe.com/page/hbV0gGSxTwjPQ/images/395cb8cc-f32f-4eba-b039-3b2f97616153.jpg?asset_id=06e9fab0-5ff0-4dce-a60b-c5be3ead8c45&amp;img_etag=%2238fdbce9418eabfd8c637afc03507080%22&amp;size=2560)](https://spark.adobe.com/page/hbV0gGSxTwjPQ/images/395cb8cc-f32f-4eba-b039-3b2f97616153.jpg?asset_id=06e9fab0-5ff0-4dce-a60b-c5be3ead8c45&amp;img_etag=%2238fdbce9418eabfd8c637afc03507080%22&amp;size=1024)法拉奇与一名戴着 “让美国再次伟大 “帽子的特朗普粉丝合影（字幕：美联社）
+**演讲内容片段：**
 
-报道透露今年早些时候，博·拜登基金会是特拉华州疫情应急基金的捐款受益人之一，并获得了22,000美元的赠款，号称用于提供“线上培训”以保护儿童免受虐待。博·拜登保护儿童基金会声称，其使命是保护儿童免遭虐待，尤其是在互联网上。它举办讲座并提供培训课程，以防止儿童在网上受到欺凌。而令人深感不安的是，亨特·拜登自己恰恰被指控涉及儿童性犯罪。
+我和您（总统先生）比起来，我并不具有争议性，也不那么害羞。我必须说四年前，我很荣幸能带着“脱欧”的信息来到美国。这个消息可以让你击溃“建制派”，这就是川普总统已经做到的。
 
-据称在乔·拜登（Joe Biden）和他的儿子亨特·拜登之间的信息沟通中，这位民主党总统候选人问他的儿子：“这是[已编辑过的14岁女孩]，对吗？”另外，亨特·拜登还有与未成年女孩进行网上性爱视频的癖好。
+他（川普总统）打败了民调机构，打败了媒体，打败了所有的预测。然而最糟糕的是，这些团体从来没有因此而放过他。
 
-有人推测，该女孩是指哈莉·拜登的女儿。而哈莉·拜登（Hallie Biden）也是该基金会的联席主席，也与亨特·拜登保持着某种特殊关系。如果是这样的话，这将是对该基金会领导层的毁灭性打击。
+他们从来没有放过他。他们花了4年时间试图让他失去合法性，4年的“通俄骗局”，4年的“假弹劾”。大多数人在这种冲击下都会选择放弃。（川普总统）是我这辈子见过的最有韧性和最勇敢的人。
 
-该基金会曾自我标榜，称：“作为成年人，我们有法律和道义上的义务为那些受虐待，又不能为自己说话的儿童站出来大声疾呼。”
+当你们下周投票时，你们不仅仅是在投票选举谁是美利坚合众国的总统，应该说最为重要的是，你们是在投票选举“自由世界”的领袖。
+[!\[\]()!\[\](https://spark.adobe.com/page/hbV0gGSxTwjPQ/images/8dbec87a-2522-41a6-bb4b-c5c42420bbf9.jpg?asset_id=a5cdc592-29e2-4e22-8db4-745258b1ae3c&amp;img_etag=%22b95c76ce96a1eea8bd7d1ebb60056fac%22&amp;size=2560)](https://spark.adobe.com/page/hbV0gGSxTwjPQ/images/8dbec87a-2522-41a6-bb4b-c5c42420bbf9.jpg?asset_id=a5cdc592-29e2-4e22-8db4-745258b1ae3c&amp;img_etag=%22b95c76ce96a1eea8bd7d1ebb60056fac%22&amp;size=1024)川普总统在听演讲时做手势(图：美联社)
+你们投的是自由世界目前唯一有勇气站出来为民族国家而战，为爱国主义而战，为反对全球主义而战的领导人。
 
-报道进一步指出，如果亨特·拜登被指责为“为孩子们创造一个非常不安全的环境”，并有在未成年女孩面前进行裸体性骚扰，甚至性行为的劣迹，则必须公开这些信息，而不是隐瞒多年。可笑的是，亨特·拜登的基金会向“青年服务组织”提供了3,000美元的“保护盾”计划，该计划声称将培训员工如何成为“儿童管家”，以及“认识并报告虐待儿童行为”。
+你们要把票投给西方世界唯一一个真正有勇气站出来对抗“中国共产党”的领导人。
 
-现在，人们意识到，这个基金会的领导人正是需要这类培训的人。
+你们将投票给一个正直的、直言不讳的人，一个在四年内不仅削减了你们的税收，不仅改善了经济，而且现在正在以一种难以置信的方式把以色列和阿拉伯国家团结在一起的人，这就是他（川普总统）所做的，我祝你们成功，我真的祝你们成功。
 
-然而，博·拜登基金会的丑闻并不仅限于此。除了拜登家族的成员外，基金会董事会还包括特拉华州立大学校长托尼·艾伦，乔·拜登的前演讲撰稿人和特别助理，以及乔·拜登的过渡小组成员。董事会成员甚至还包括前联邦调查局局长路易斯·弗里斯（Louis Freeh）。
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/hbV0gGSxTwjPQ/)】- 点击spark adobe版
 
-这个基金会就像一张缩影，折射出拜登家族的所有事物，包括他们在政治和商业领域的各种丑陋行径。
+了解更多资讯敬请关注：
 
-博·拜登（已故）是乔·拜登眼中的好儿子，曾任特拉华州的总检察长，担任了8年职位。特拉华州的法律界到处都是他的同事。人们注意到，当朱利安尼（Giuliani）将笔记本电脑移交给特拉华州当局时，特拉华州总检察长凯西·詹宁斯（Kathy Jennings）办公室迅速宣布将笔记本电脑移交给了联邦调查局。詹宁斯曾在博·拜登手下任职，并正在帮助乔·拜登竞选总统，他曾说：“我一生都感激拜登一家。”
+【战鹰团Gab】[https://gab.com/himalayahawks](https://gab.com/himalayahawks)
 
-报道分析，特拉华州是一个小州，政要圈子很小。博·拜登基金会的董事会成员对笔记本电脑的内容了解多少？他们中是否有人知道，他们的联席主席可能被指控性虐待儿童？也许，就像关于乔·拜登的许多问题一样，它们既不会被问到也不会被回答。
+【英喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
 
-尽管联席主席涉嫌未成年女孩照片的笔记本电脑已提交当局，博·拜登基金会仍坚称他们会保护儿童。但是，谁来保护孩子免受来自拜登的性侵呢？
+【英喜庄园GTV/盖特】：[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-[相关链接](https://speakingaboutnews.com/hunter-biden-chaired-a-foundation-to-stop-child-abuse-while-engaging-in-it/)
-
-翻译：Hanstyle88
-
+【大卫作战室YouTube】[https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+[!\[\]()!\[\](https://spark.adobe.com/page/hbV0gGSxTwjPQ/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/hbV0gGSxTwjPQ/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0
