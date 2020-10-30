@@ -1,35 +1,110 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美科学家发表论文 直指中共病毒起源于武汉实验室
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/501283/)
+## 墙内战友｜如何注册Parler、选择翻墙方式的13个问题
+` 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hans/500335/)
 
-多伦多加喜农场 文锦
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29144231/Snip20201030_63.png)
+摘要：最近墙内战友遇到了两个难题：1，注册Parler的时候被手机短信验证这一步卡住了；2，翻墙的网络偶尔会中断一段时间，并且中断的时间越来越长。解决方法：1，墙内注册Parler账户用KnowRoaming的实体美国电话卡；2，翻墙最好选用Vless和Torjan，不要用已经大众化的V2ray，不要用收费的机场，最好自己搭建。3，如果用老手机看GTV视频卡顿，一定要选Vless协议。
 
-校对 小鸥 上传 HUH
-[!\[肺炎疫情：政治纷争下，全球科学家如何看武汉起源论和病毒溯源- BBC News 中文\]()!\[肺炎疫情：政治纷争下，全球科学家如何看武汉起源论和病毒溯源- BBC News 中文\](https://ichef.bbci.co.uk/news/640/cpsprodpb/183B4/production/_112225299_67.png)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fscience-52613218&amp;psig=AOvVaw2DutU0MSo1quKUBIzGbtnu&amp;ust=1604104838583000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCKiB37GK2-wCFQAAAAAdAAAAABAO)图片来源：bbc.com
-据PR Newswire10月28日报道，美国史蒂文·奎伊（Steven Quay）博士在Zenodo上发表了一篇名为《首个中共病毒基因组患者群体位于武汉解放军医院》（《First COVID-19 Genomic Patient Cluster was at PLA Hospital in Wuhan, China》）的论文。阐明了新的科学发现和结论，表明中共病毒大流行始于位于武昌武珞路627号的武汉市人民解放军中部战区总医院。国际生物样本数据存储库表明，早在2019年12月10日 ，中共国政府告知WHO此次疫情前几周，解放军就建立了中共病毒患者记录。
-![]()![](https://media.discordapp.net/attachments/769175824266952724/771521621302968320/565.png?width=915&amp;height=509)
-该论文记录了武汉市人民解放军中部战区总医院中四名具有直接人传人冠状病毒传播基因特征的患者，还包括其冠状病毒在遗传上最接近武汉病毒研究所（武毒所）的蝙蝠病毒的患者，武毒所科学家称之为“ 2019-nCoV的最近亲源”。解放军总医院距武毒所三公里，都位于武汉地铁2号线附近。该文件记录了对2019年12月1日至1月初之间最早出现中共病毒病人的医院的分析，并显示所有这些医院也位于地铁2号线上。
-![]()![](https://media.discordapp.net/attachments/769175824266952724/771521610997301278/563.png?width=1080&amp;height=484)
-这是世界上第一篇论述武汉地铁2号线与中共病毒疫情关系的论文。地铁2号线每天承载着武汉5％的人口，可以令病毒在武汉乃至整个湖北省迅速传染开; 地铁站连接着高铁站，可以在整个中共国内迅速传播；地铁站终止于国际机场站，可以令病毒迅速扩散到世界。被中共官方认定为病毒起源地的华南海鲜市场也位于地铁2号线附近。
+结论：1，墙内注册Parler账户用KnowRoaming的实体美国电话SIM卡，官网和某宝均可购买；2，翻墙的话，要自己搭建Vless或Torjan协议。3，上GTV想要更流畅的话，首选Vless协议（尤其是老款手机）。
 
-史蒂文·奎伊博士在密歇根大学获得医学博士和博士学位，曾在麻省理工学院化学系与诺贝尔奖获得者H. Gobind Khorana一起做博士后研究员，在哈佛MGH医院做住院医师，并在斯坦福大学医学院任教近十年。他是Atossa Therapeutics Inc.的首席执行官，该公司是处于临床阶段的生物制药公司，正在开发用于治疗乳腺癌和中共病毒的新疗法。
+## 问题列表（点击相应问题即可到达答案）：
 
-评论：
+1，为什么要用KnowRoaming实体电话卡注册Parler？
 
-继英雄科学家闫丽梦博士之后，又一位美国科学家不畏强权，直指中共病毒起源真相，就像《皇帝的新衣》里勇敢的小孩。随着疫情的不断加重，全球都受到中共病毒的威胁，各国人民的共同诉求越来越清晰、越来越强烈——就是要中共病毒真相！假的真不了，真的假不了，随着越来越多良心人士挺身而出，相信很快真相的光明会驱散谎言的阴霾！
+2，墙内能买到美国实体电话卡吗？
 
-参考链接：
+3，某宝购买电话卡安全吗？
 
-New Research Points to the People’s Liberation Army Hospital in Wuhan, China as the Origin for the Worldwide Coronavirus Pandemic
+4，官网的Travel SIM Sticker也是电话卡吗？
 
-[https://www.prnewswire.com/ae/news-releases/new-research-points-to-the-peoples-liberation-army-hospital-in-wuhan-china-as-the-origin-for-the-worldwide-coronavirus-pandemic-301158985.html](https://www.prnewswire.com/ae/news-releases/new-research-points-to-the-peoples-liberation-army-hospital-in-wuhan-china-as-the-origin-for-the-worldwide-coronavirus-pandemic-301158985.html)
+5，有什么注意事项吗？
 
-论文链接：
+6，为什么要用Vless和Torjan翻墙协议？
 
-First COVID-19 Genomic Patient Cluster was at PLA Hospital in Wuhan, China
+7，为什么不要选用V2ray翻墙协议？
 
-[https://zenodo.org/record/4139432#.X5tP9YhKg2w](https://zenodo.org/record/4139432#.X5tP9YhKg2w)
+8，为什么不要选用付费机场翻墙？
 
-1+
+9，为什么上GTV要选择Vless和Torjan翻墙协议？
+
+10，Vless和Torjan我要选哪个？
+
+11，翻墙协议容易搭建吗？
+
+12，如何自己搭建翻墙服务？
+
+13，有什么要补充的吗？
+
+
+
+## 1，为什么要用KnowRoaming实体电话卡注册Parler？
+
+- 像对于其他实体海外电话卡更省钱
+- （几十块钱买一张卡即可，无月租，不充钱也能免费收短信）
+- 能注册Parler
+- 号码保存时间长（注册后如果无任何使用可以保留15个月）
+- Google Voice等虚拟号码，无法注册Parler
+- 付费的虚拟号码费用较高。
+
+
+2，**墙内能买到美国实体电话卡吗？**
+
+- 可以。
+- 从KnowRoaming[官网](https://www.knowroaming.com/)购买9.99美元（会从香港邮寄过来，大概半个月左右收到），
+- 或者从某宝购买（30-50块钱不等）。
+- 墙外战友如果想用匿名电话卡的话，也可以考虑。
+
+
+3，**某宝购买安全吗？**
+
+只有激活后才能看到电话号码。激活之前看不到电话号码。
+
+4，**官网的Travel SIM Sticker也是电话卡吗？**
+
+是的。如果购买Travel SIM Sticker的话则要14.99美元（这是一种直接可以贴在自己原来的手机卡上的薄如蝉翼小贴纸SIM卡，就相当于一个手机装上了两张SIM卡。
+
+**5，有什么注意事项吗？**
+
+有，激活电话卡的时候，VPN网络最好全程使用美国原生IP，检查是否美国原生IP，只需要打开这个网址[ipip.net](https://www.ipip.net/) ，如果地址显示是美国地址即可。
+
+## 6，为什么要用Vless和Torjan？
+
+因为V2ray协议已经被防火墙识别，很容易被封IP。这两个协议相对更安全。
+
+激活的时候最好全程美国原生IP的VPN。检查是否美国原生IP方法：打开这个网址[ipip.net](https://www.ipip.net/) ，如果地址显示是美国地址即可。
+
+**7，为什么不要选用V2ray协议？**
+
+因为V2ray协议已经被识别，CCP随时可以掐断V2ray的流量，最近“硬盘们“事件出来之后，很多战友的翻墙上网环境时好时坏，这都是CCP故意为之，它不会全部掐死你的网络，但是也不会让你经常顺畅。就像对待GTV一样，不会干瘫痪你，但是也不会让你像Youtube一样流畅。
+
+**8，为什么不要选用付费机场翻墙？**
+
+因为付费机场如果是支付宝和微信可以付款的话，基本上可以确定是在CCP那里备案的。有些机场甚至直接使用全局翻墙都无法上GTV。并且付费机场的服务器是掌握在别人手里，当你的网络去请求服务器的翻墙代理服务时，掌握服务器的人就能看到你的墙内IP地址。所以为了保险起见，最好还是自己搭建翻墙服务。
+
+**9，为什么上GTV要选择Vless或Torjan翻墙协议？**
+
+因为Vless协议是V2ray的升级版，使用HTTP加密，对机器要求不高（V2ray的另一个缺点），一些老的Iphone手机的话，也可以流畅看GTV直播和视频（GTV对网速的要求比较高，如果用老的手机的CPU用来解码V2ray的加密方式的话，是一种对设备的浪费。结果导致网速降低。
+
+**10，Vless和Torjan我要选哪个翻墙协议？**
+
+如果你的手机是比较高的版本的话，这两个协议都可以选，甚至可以自己搭建两个玩一玩。这两个协议的搭建都需要一个域名，简单来讲，就像你去访问了一个墙外 的网站，相比V2ray的加密流量，会令防火墙更难识别。如果是老手机的话，上GTV的话，Vless是首选。
+
+**11，翻墙服务容易搭建吗？**
+
+网上有很多教程，请自己搜Youtube。照着视频一步步来，基本一天都能搞定。
+
+**12，如何自己搭建？**
+
+按照网上教学视频即可。建议选用有一键脚本的搭建教程（YouTube搜索：“一键搭建Vless”或“一键搭建Torjan”）。具体方式需要自己去Youtube搜索。只有自己搭建的，才会更安全！不要怕麻烦！
+
+**13，有什么要补充的吗？**
+
+如果没有双币信用卡的话，申请一个。一定要自己搭建，只有自己搭建的才是相对更安全的。
+
+链接：[KnowRoaming官网](https://www.knowroaming.com/)
+
+声明：以上仅代表个人观点，本方法并不保证100%成功。本方法只是相对安全，并不能保证绝对安全。千万不要怕麻烦！！越麻烦的翻墙方法，越安全！！！
+
+0

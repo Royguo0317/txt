@@ -1,15 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【4】硬盘第三波烧脑风暴来袭！亨特拜登向合伙人的表白——“你比亲兄弟以外的任何人都支持我”
-` GM01` [轉載自GNews](https://gnews.org/zh-hans/501093/)
+## 【热点播报】Burisma和普金有关
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/501140/)
 
-在经历了近几天“小视频”“小图片”的洗礼，大家一定被吸足了眼球！现在真正的烧脑风暴来了！你准备好了吗？接下来铁一般的证据，山一般的证明逐一清晰展示了中美两国盗国贼对人类的威胁和伤害！对法律的无视！以及对女性的侮辱甚至奴役变态！他们的人性已完全丧失！
+**纽约香草山金融部  三票先生**
 
-其实硬盘中还有绝大部分的视频因涉及到极为敏感，极为不人道，极为残忍的画面无法播放，将随后再进行处理。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25225844/WhatsApp-Image-2020-10-24-at-08.09.25-2.jpeg)
 
-现在将为大家呈现Burisma与亨特拜登和中共之间勾兑的铁一般的事实，包括文件和Email的往来，以及相关人物往来！希望全世界有良知的战友都来关注。如果这样的事情不被揭发，人类将全面走向黑暗！
 
-[点击下载PDF版本](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29191418/E4-15.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29191418/E4-15.pdf)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29191558/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8811.15.45.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29191640/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8811.16.23.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29191706/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8811.16.57.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29191738/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8811.17.29.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29191839/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8811.18.27.png)
+
+
+
+**据BuzzFeed News 2014年5月13日报道，美国副总统乔拜登的小儿子亨特拜登与波兰前总统Aleksander Kwasniewski 共同加入了Burisma公司的董事会，这家公司经营乌克兰油气业务，其拥有者是流亡的乌克兰前总统Viktor Yanukovych 的盟友。乌克兰前总统Viktor Yanukovych 2014年被乌克兰议会罢免，目前流亡在俄罗斯，是普金的政治盟友。Burisma和普金有关。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29194144/Picture5-14.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29193925/image-184.png)
+**审核： 悟空**
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+
+圣经故事背景，免费英语教学，美东时间周一至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25225844/WhatsApp-Image-2020-10-24-at-08.09.25-2.jpeg)
+
+
 0
