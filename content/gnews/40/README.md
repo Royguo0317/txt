@@ -1,109 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特把中共蓝金黄中的“金”用上了，却被抓个正着
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/500046/)
+## 树不在了中共安全部特务、文化妓女陈文茜还来得及种树吗？
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/500179/)
 
-*新闻来源：The National Pulse《国家脉动》；作者：Natalie Winters, Raheem Kassam；发布时间： 2020年10月26日*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29140559/%E9%99%88%E6%96%87%E8%8C%9C.jpg)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-*翻译/简评：文明明；校对：Beicy-数学老师；审核：TCC；Page：拱卒*
+看了油管上[唯真不破台灣大牛](https://www.youtube.com/channel/UCQm9pSXu7FctQk_4eieB7dg)做的几期关于卖台贼陈文茜及抗议卖台贼陈文茜的视频，对于陈文茜的认知渠道在此前一直是郭先生在三年爆料革命中提到的几次，由于陈文茜在大陆可以查到的用以研究的资料相对少，下面的这篇文章或许可能算是陈文茜自吹自擂的一篇典范——据[陈文茜：我确实是台湾最聪明的女人，情史与才气，就值得争议一生](https://baijiahao.baidu.com/s?id=1680886882035056078&amp;wfr=spider&amp;for=pc)（[河东史子](https://author.baidu.com/home?from=bjh_article&amp;app_id=1676173889560094)发布时间：10-18日18:57）：［在台湾有句话，可谓是男怕李敖 , 女怕陈文茜，李敖说 : “ 我要包办五百年来第一名 ” , 陈文茜便说 : “ 我只要 501年第一 , 就超越他 了 。 ”李敖又说：陈文茜是我所见过最聪明的女人”，陈文茜就说了那句：“我确实是台湾最聪明的女人”。论才气有人说她堪比张爱玲，论情史，可谓是一箩筐，61岁还自称本姑娘。］
 
-[!\[\]()!\[\](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/959f81ba-a608-4abb-8697-e32262bdbd00.jpg?asset_id=c8b55efc-314e-4fb5-9647-1b1c9ce07230&amp;img_etag=%2273897f98f4cd84ad423c506f01882de5%22&amp;size=1024)](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/959f81ba-a608-4abb-8697-e32262bdbd00.jpg?asset_id=c8b55efc-314e-4fb5-9647-1b1c9ce07230&amp;img_etag=%2273897f98f4cd84ad423c506f01882de5%22&amp;size=1024)
+陈文茜在要包办501年第一名的时候应该是非常有底气的，但到底是哪种第一名？已经年届62岁的陈大姑娘并没有明说，其实501年来卖台、通共、通奸方面或许陈大姑娘不仅独一而且无二，以阅人无数的陈大姑娘依然自称本姑娘，何故？曾经看过一个笑话，有个妓女曾经接客无数 ，但仍自称处女，旁人问她为何已经历这么多肉林蛋雨却仍是处女，这个风月女子解释说，在我和嫖客们在一起的时候，只是我的肉体与他们在一起，我的心永远没有属于任何人，所以我是处女。妓女的处女论与陈大姑娘的情史一大筐但仍称本姑娘的确异曲同工——陈文茜小姐本就是一个出卖灵魂与魔鬼共舞的文化妓女，只是这个文化妓女既卖了艺又卖了身，并且更进一步她做了中共安全部的特务（据郭文贵先生**2019年4月13日什么叫蓝通？为什么刘鹤将遣返战友21人做为中美贸易交易的条件！（三连播之二）:** ［陈文茜，对陈文茜，哎呀我的妈，一说陈文茜我有点受不了了啊。太受不了了。陈文茜妳来告我，妳来美国告我陈文茜！陈文茜这个人真是这话说她是什么？外号叫什么？我忘了叫什么外号了，叫做北什么呀？啊。有个叫什么，不是叫“公共马桶”，叫什么玩意外号啊。这个女人太烂了，太烂了啊！跟刘长乐，通过凤凰刘长乐、王纪言，加入了中共的安全部。］）
 
-**简评：**
+[唯真不破台灣大牛](https://www.youtube.com/channel/UCQm9pSXu7FctQk_4eieB7dg)在2020年9月25日发布了[賣台賊！陳文茜！『 通共賣台』](https://youtu.be/ffmUIuKq2S0)：
 
-《国家脉动 》近日发布了一系列亨特拜登的电子邮件。 邮件揭示亨特拜登 按照他＂外国＂商业伙伴要求，把一些人带进了白宫和副总统府。作为报酬，他得到了艺术品，享用度假别墅的权利和潜在的商业机会。
 
-文章中涉及的外国合作伙伴是指米格尔·阿莱曼·马格纳尼（Miguel Aleman Magnani）。马格纳尼是墨西哥前总统的孙子，是墨西哥首富之一的儿子，也是墨西哥航空公司Interjet的首席执行官。根据马格纳尼的要求，亨特把马格纳尼名单上的人一一带进了白宫和副总统的府邸， 甚至是就职典礼。有趣的是即便亨特兑现了马格纳尼所要求的每一件事，但是马格纳尼仍然对他爱理不理。显然， 除了相关利益捆绑，即使他的同伙也对亨特的人品不齿。
 
-电子邮件还涉及了与亨特有关的乌克兰伯里斯马（Burisma）公司与马格纳尼的家族公司阿莱曼集团（Aleman Group）之间的交易，在这项交易中丑闻缠身的伯里斯马（Burisma）公司获得了参与墨西哥石油公司Pemex私有化机会 。
+中共安全部特务陈文茜来头甚大，郭先生在**2018年9月5日黄河边性无能造成严重后果林肯中心被取消发布会**直播中提到的：［我要说一下在台湾骂我的叫陈文茜。这个不要脸的女人太不要脸了。大家上网上搜一搜，陈文茜最早夸盘古的，北顶娘娘庙就是她搞的。她跟谁到了我盘古呢？刘长乐。凤凰的刘长乐还有王记言带着她到盘古吃饭，到我家参观。我当时不欢迎，谁给我打的电话，安全部部长，耿部长亲自安排。说郭文贵这次你一定要最高规格接待陈文茜。我说什么意思这是？他说上边领导的指示。我说你又忽悠我呢，我说你就够了，你就说你就行了。不，上边领导的指示。我一听，这真的呀这是。你说谁呀？当时，当时那个时候接待陈文茜的是周永康。那周永康政法委书记，部长不是孟建柱嘛，然后还说梦部长，孟书记也关注了。呦，我说这是好，他说你要最高级的。我们盘古最高级的是什么你知道吗？请到我家四合院吃饭，这李小牧刚吃过了。日餐是最牛的，我们的日餐是赔大了钱了。我们起价1000美金当时，如果是VIP起价10000美元。所有的东西，连水都是日本来的，服务生全是日本的。日本最高级的怎么做呢？是当时啊丰臣秀吉时代除了喝高级的茶，还有叫做喂口饭。就是这好吃的，是主人拿过来，因为你不懂得吃，放你嘴里边。那天在我家，我是把最好的金枪鱼，最好的啊，一个大金枪鱼买回来，只要中间那么一块儿，取大概是0.1%，不是1%，把那块儿夹好放进陈文茜嘴里，放了五六片。刘长乐，王记言，还有他的随从，还有摄影师。我说你哪儿都可以拍，不可以拍我这个家。我给陈文茜做了一场最高级的服务。陈文茜把我夸的就不行了。后来跟我联系啊，但是对不起，我不回。为什么，我不想跟他联系，那是人家凤凰刘长乐的人嘛，王记言的人。诶，后来她搞了个录像，说北顶娘娘庙龙卷风的事，再过一段时间开始骂我了。］中共安全部特务、文化妓女陈文茜当年是如何夸盘古的呢？互联网是有记忆的——[2012.06.23文茜世界周報／登上盤古大觀　俯看京奧場館全景](https://www.youtube.com/watch?v=ftTMvhRFUO4)：
 
-这些曝光的邮件实锤证实了亨特利用副总统老爸的关系进行以外国人利益为前提的钱权交易， 并从中牟利。这些在中共国被特权阶层玩剩下的伎俩，被亨特搬到了美国，运用到他的商业交往中。看来亨特拜登在中共国的所获真的是十分的丰硕。
 
-**独家新闻：亨特-拜登 “把外国商业伙伴所要求的每一个人带进白宫和副总统府”，作为交换，他得到了艺术品和享用度假别墅的权利**
 
-**《国家脉动》获得的电子邮件显示，前副总统和现任民主党总统候选人乔-拜登的儿子亨特-拜登安排了一名墨西哥商人与白宫官员会面，其中包括他的父亲，作为回报，亨特得到了艺术品，享用度假别墅，以及参与潜在的商业项目。**
+中共安全部特务、文化妓女为何对郭先生前恭后倨？在我看来前恭意在求宠、取悦，求宠取悦而不得之下，中共安全部特务、文化妓女陈文茜恼羞成怒，开始怒砸郭文贵先生了。
 
-向亨特提供这些礼物的人是米格尔·阿莱曼·马格纳尼（Miguel Aleman Magnani）。
+在今天，陈文茜称之为违章建筑的盘古大观依然屹立不倒，她称之为大骗子的那个人正在引领全球正义力量终结中共，她所卖身投靠的那颗大树即将轰然倒塌，她出了《树，不在了》是意识到了吗？在大树即将倒掉的时候，她号召要自己种树，其实猢狲从未种过树，陈文茜自不例外，在中共这颗她投靠的树倒下之后，她又将卖身何处呢？
 
-[!\[\]()!\[\](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/14f09ffb-70f2-4849-a6bf-b7aa27160fe0.jpg?asset_id=09176ad0-f560-4174-9c77-6a7617c1f4e0&amp;img_etag=%224f1cc79a03ff96e582535006d02ad068%22&amp;size=1024)](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/14f09ffb-70f2-4849-a6bf-b7aa27160fe0.jpg?asset_id=09176ad0-f560-4174-9c77-6a7617c1f4e0&amp;img_etag=%224f1cc79a03ff96e582535006d02ad068%22&amp;size=1024)向亨特提供这些礼物的人是米格尔·阿莱曼·马格纳尼（Miguel Aleman Magnani）
+（文章内容仅代表作者个人观点）
 
-*亨特-拜登在邮件中写道：”我真的很感谢你让我住在你的度假别墅里…… 你让我把这些人带进白宫和副总统家， 以及就职典礼上， 我都一一做到了。”*
 
-马格纳尼（Magnani）是墨西哥前总统的孙子，也是墨西哥首富之一的儿子，是墨西哥航空公司Interjet的首席执行官（CEO）。
-
-在2016年2月24日的一封电子邮件中，罗伯特-“亨特 “-拜登联系了马格纳尼，似乎在感叹自己被一个他曾经帮助过并引见给白宫的人所忽视了。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/154d238b-99b2-4d28-bbc6-fdb25e9b8128.png?asset_id=efdae6f3-9c7a-4eb4-9374-2a0a9af8d3e1&amp;img_etag=%2228ff876e67665c96e1214821aa50bac7%22&amp;size=2837)](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/154d238b-99b2-4d28-bbc6-fdb25e9b8128.png?asset_id=efdae6f3-9c7a-4eb4-9374-2a0a9af8d3e1&amp;img_etag=%2228ff876e67665c96e1214821aa50bac7%22&amp;size=1024)
-
-在邮件中，亨特透露说他 “已兑现了马格纳尼（Magnani）要求的每一件事”。
-
-亨特帮助马格纳尼（Magnani）完成的事情包括亨特按照马格纳尼（Magnani）的要求，把马格纳尼（Magnani）要求的每一个人都带到了白宫和副总统家，以及就职典礼上。
-
-*自从我为卡洛斯（Carlos）和你爸爸安排了会面后就一直没有你的消息了。我们已经谈了7年的商业项目和合作。我真的很感谢你让我住在你的度假别墅里…… 你让我把这些人带进白宫和副总统家， 以及就职典礼上， 我都一一做到了。*
-
-邮件除了透露马格纳尼（Magnani）让亨特 “住在他的度假别墅 “外，还显示 “米格尔（Miguel） “赠送了亨特艺术品。
-
-2017年1月9日的一封电子邮件显示，Rosemont Seneca Partners高级顾问Joan Peugh 在一个亨特”一定要做卻尚未完成的”清单上，记载着对米格尔（Miguel）赠送的一件艺术品 “需要说谢谢”。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/44e11be5-3afc-4e92-a308-7b4b30c62aee.png?asset_id=dbaf0de5-a1b7-41f8-8c58-dbd16d6efb55&amp;img_etag=%22bfb46a249ae2df8ae9a5ea5c13060eb2%22&amp;size=2560)](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/44e11be5-3afc-4e92-a308-7b4b30c62aee.png?asset_id=dbaf0de5-a1b7-41f8-8c58-dbd16d6efb55&amp;img_etag=%22bfb46a249ae2df8ae9a5ea5c13060eb2%22&amp;size=1024)
-
-亨特与这位墨西哥商人关系密切，亨特甚至被邀请参加他的50岁生日派对，而下面的邮件中描述的生日派对被推迟了。
-
-***英语译文：***
-
-*亲爱的朋友们,*
-
-*我很高兴看到大家对我的50岁生日庆祝活动的反应和兴趣。*
-
-*不幸的是，由于一股更强大的压力，我们必须将聚会推迟到新日期，我们将很快通知您，希望能够依靠您的光临庆祝活动。*
-
-*问候您。*
-
-*米格尔·阿莱曼·马格纳尼（Miguel Aleman Magnani）*
-
-[!\[\]()!\[\](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/d0c24cb3-5042-44a6-8231-348ee8a3de3f.png?asset_id=b3d8e860-726d-4690-98a0-8dff9c8f6b35&amp;img_etag=%22197fb52b650531e8f17f1c0474e4f3f8%22&amp;size=2560)](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/d0c24cb3-5042-44a6-8231-348ee8a3de3f.png?asset_id=b3d8e860-726d-4690-98a0-8dff9c8f6b35&amp;img_etag=%22197fb52b650531e8f17f1c0474e4f3f8%22&amp;size=1024)
-
-**曾在墨西哥的一次犯罪**
-
-布里斯马（Burisma）公司是一家颇具争议的乌克兰石油公司，亨特曾在该公司的董事会任职，还与Pemex公司—-一家国有的墨西哥石油公司有业务往来。
-
-电子邮件显示， 2015年1月27日， 亨特在与马格纳尼（Magnani）的家族公司阿莱曼集团（Aleman Group）合作中一封的电子邮件表明，丑闻缠身且有寡头主导的伯里斯马（Burisma）公司获得了参与”Pemex私有化的机会 “。
-
-这封邮件阐述了交易中的利益相关方亨特、马格纳尼（Magnani）的阿莱曼集团（Aleman Group），以及亨特的其他合伙人，如德文-阿彻（Devon Archer）和杰夫-库珀（Jeff Cooper ），在交易得以实现后计算报酬的方法。
-
-亨特还提到了2月27日在墨西哥城的一次会议，该会议是在时任副总统乔-拜登访问该地区，与墨西哥总统和众多高级顾问举行会谈的几天后举行的。目前仍不清楚乔-拜登是否出席了下面提到的会议。
-
-*一旦我们完成了上述工作，我们应该能够很好地利用计划于2月27日在墨西哥城举行的会议。*
-
-[!\[\]()!\[\](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/9917971d-9397-4cba-81de-31b9cfe05a68.png?asset_id=adc67b25-2b74-4e86-acb4-c83a64ca991b&amp;img_etag=%22968c9736ca8b24d743dc8b3cf83979d4%22&amp;size=1024)](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/9917971d-9397-4cba-81de-31b9cfe05a68.png?asset_id=adc67b25-2b74-4e86-acb4-c83a64ca991b&amp;img_etag=%22968c9736ca8b24d743dc8b3cf83979d4%22&amp;size=1024)
-
-随后的邮件显示，德文-阿彻（Devon Archer）试图协调该交易的支付事务。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/a5282595-6596-4a27-bc21-320d0fc9e5c9.png?asset_id=166acef6-d82d-40d9-82b4-6c810be0580e&amp;img_etag=%2221627077159c58af32d173cf6bfa4e07%22&amp;size=1024)](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/a5282595-6596-4a27-bc21-320d0fc9e5c9.png?asset_id=166acef6-d82d-40d9-82b4-6c810be0580e&amp;img_etag=%2221627077159c58af32d173cf6bfa4e07%22&amp;size=1024)
-
-*亲爱的Laura:*
-
-*根据你的邮件，下面是你所要求的信息，并附上所有出席人员的护照复印件：*
-
-[!\[\]()!\[\](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/a52bb104-0f79-4d2b-aac5-7e7d191b9aff.png?asset_id=8f943e9d-e18f-48cc-a02f-9d54ddd60824&amp;img_etag=%22d367c4d7d5f645f0e69514004237b405%22&amp;size=3059)](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/a52bb104-0f79-4d2b-aac5-7e7d191b9aff.png?asset_id=8f943e9d-e18f-48cc-a02f-9d54ddd60824&amp;img_etag=%22d367c4d7d5f645f0e69514004237b405%22&amp;size=1024)
-
-[原文链接](https://thenationalpulse.com/exclusive/biden-leveraged-meetings-for-art-vacations-and-more/)
-
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/AS6T6tj9hFiP6/)】-点击spark adobe版
-
-更多资讯敬请关注：
-
-【战鹰团Gab】[https://gab.com/himalayahawks](https://gab.com/himalayahawks)
-
-【英喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
-
-【英喜庄园GTV/盖特】:
-
-[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-【大卫作战室YouTube】：[https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/AS6T6tj9hFiP6/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0
