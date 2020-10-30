@@ -1,25 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登第三波: 硬盘邮件解密24 2014年5月17日 律师希瑟·金写信给亨特·拜登等人嘱咐不要立即回应媒体问询
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/503504/)
+## 渤海华美并没有创造价值，而是让特定组织从他们的投资参与中攫取利益
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/503928/)
 
-前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
+作者：香草山写作组 程万里
 
-**亨特·拜登第三波：硬盘邮件解密** **2014年5月17日 来自BOIES, SCHILLER & FLEXNER LLP律所的律师希瑟.金写信给瓦迪姆，德文.阿彻，亨特.拜登以及阿普特，嘱咐他们不要立即回应来自媒体的的问询以及与公关有关的问题，应立即向FTI寻求建议，同时，FTI也会立即准备一份谈话要点以供他们面对媒体时使用**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30083530/PDFtoJPG.me-01-2-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30083259/PDFtoJPG.me-11-2-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30083343/PDFtoJPG.me-12-2-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30083405/PDFtoJPG.me-13-2-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30083606/PDFtoJPG.me-14-2-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30083626/PDFtoJPG.me-15-2-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30083657/PDFtoJPG.me-16-2-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30083716/PDFtoJPG.me-17-3-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30083738/PDFtoJPG.me-18-4-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30083756/PDFtoJPG.me-19-2-scaled.jpg)
-**参考资料：**
-[https://gnews.org/zh-hans/498612/](https://gnews.org/zh-hans/498612/)
-[https://gnews.org/zh-hant/499547/](https://gnews.org/zh-hant/499547/)
-[https://en.wikipedia.org/wiki/Hunter\_Biden](https://en.wikipedia.org/wiki/Hunter_Biden)
-[https://www.bbc.com/news/world-5455313](https://www.bbc.com/news/world-5455313)
-[https://burisma-group.com/eng/director/alan-apter-3/](https://burisma-group.com/eng/director/alan-apter-3/)
-[https://www.bsfllp.com/lawyers/heather-king.html](https://www.bsfllp.com/lawyers/heather-king.html)
-[https://en.wikipedia.org/wiki/FTI\_Consulting](https://en.wikipedia.org/wiki/FTI_Consulting)
-[https://twitter.com/fticonsulting?s=11](https://twitter.com/fticonsulting?s=11)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28173039/logo-1.jpg)
 
 
-[律师希瑟·金写信给瓦迪姆、德文·阿彻、亨特·拜登以及阿普特嘱咐他们不要立即回应来自媒体的的问询以及与公关有关的问题](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30083955/47-Privileged-and-Confidential.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30083955/47-Privileged-and-Confidential.pdf)
 
+
+
+渤海华美董事会第十三次会议材料验证了时光项目调查报告的正确性。如文中提到的James Bulger，其与林俊良合伙创办了Thorton Group LLC.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30091208/191-%E6%B8%A4%E6%B5%B7%E5%8D%8E%E7%BE%8E%E5%B9%B6%E6%B2%A1%E6%9C%89%E5%88%9B%E9%80%A0%E4%BB%B7%E5%80%BC%EF%BC%8C%E8%80%8C%E6%98%AF%E8%AE%A9%E7%89%B9%E5%AE%9A%E7%BB%84%E7%BB%87%E4%BB%8E%E4%BB%96%E4%BB%AC%E6%8A%95%E8%B5%84%E5%8F%82%E4%B8%8E%E4%B8%AD%E6%94%AB%E5%8F%96%E5%88%A9%E7%9B%8A-2.jpg)
+渤海华美，是一个国家控制的项目。投资人是中国银行为首的国有企业，它们负责将资金资产不断的注入渤海华美，其再转投其他国有企业。渤海华美董事会第十三次会议保密材料介绍：其跨境投资的法老项目，H.C.Starck 项目，Eagle 项目等都无疾而终；国内投资如极飞项目，长远锂科项目等最终也未投资；在手项目也因各种原因错失良机，但其融资却绑定了如中粮集团和各政府引导基金有条不紊的进行着，这让人费解，既然行情那么差为啥还能正常融资呢？难道是保密的原因，怕见光，怕国家机器的审核，这只能说明亏了是国家的，肥了是自己的。
+
+渤海华美对中石化营销部门的投资，看不出能创造了什么价值。首先，中石化营销部门缺钱吗？现金交易，不存在应收账款，稳定现金流，不会缺钱，只会让中石化多一笔巨额现金，这是左手倒右手，只能让之间的利益方获取大量的财富，合法转移资产。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30091232/191-%E6%B8%A4%E6%B5%B7%E5%8D%8E%E7%BE%8E%E5%B9%B6%E6%B2%A1%E6%9C%89%E5%88%9B%E9%80%A0%E4%BB%B7%E5%80%BC%EF%BC%8C%E8%80%8C%E6%98%AF%E8%AE%A9%E7%89%B9%E5%AE%9A%E7%BB%84%E7%BB%87%E4%BB%8E%E4%BB%96%E4%BB%AC%E6%8A%95%E8%B5%84%E5%8F%82%E4%B8%8E%E4%B8%AD%E6%94%AB%E5%8F%96%E5%88%A9%E7%9B%8A-3.jpg)
+可以推测，像这样中共控制的公司如海航，华锐世纪等有很多，他们采取投融资或并购的方式转移财富，用于干着邪恶的勾当，不断的掏空这个国家，他们才是真正的盗国贼。
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayanyM)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，免费英语教学，美东时间周一至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

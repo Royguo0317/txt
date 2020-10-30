@@ -1,16 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 终极之战胜利号角已吹响
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/502228/)
+## 亨特·拜登第三波: 硬盘邮件解密 21 布里斯玛天然气公司创始人尼古拉与亨特拜登是什么关系？
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/503080/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065127/%E6%AD%A3%E4%B9%89003a-1.jpg)
-随着拜登家族丑闻在全世界不断发酵，关键证人越来越多，FISA法案利器作用，GTV，GNEWS不断在全球揭露真相，川普总统的演讲逐步唤醒了民意，美国人已开始觉醒。据称拜登家族已有认输放弃大选之意，但是，中共能答应吗? 习准备了那么多年，如果拜登做不成总统，他就失去了美国这个世界第一的超级大国强有力的支撑。没有了外援，以前的薄家，徐家，江家曾孟家都会放过他吗?习此时内忧外患，据说他十分慌张，频频问身边的元老以求对策。
+前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
 
-假如,习及中共各派在最后一刻认清现实，主动缴械，让我泱泱华夏国民免于战火之涂炭，或许新中国联邦及美国人民会放他一马从轻发落。
+**亨特·拜登第三波：硬盘邮件解密**
 
-但更大的可能是中共仍执迷不悔，继续把中国拖入战火的深渊，或者制造股市大崩盘并继续用病毒生化武器和全世界来个鱼死网破，同时他会用更大利益驱使督促拜登及美国的黑暗势力向正义的一方疯狂反扑。所以在最后一刻，川普总统、班农先生、朱利安尼先生、文贵先生还有新中国联邦的后方和前方的无数战友，你们每一个人都肩负着历史的重任。在胜利的最后时刻千万别大意失荆州。因为黎明前最是黑暗，希望各位保重自身安全，迎接新世界的到来。
+**布里斯玛天然气公司创始人尼古拉与亨特拜登是什么关系？**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30064117/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_00.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065438/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_12.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065441/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_13.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065446/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_14.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065450/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_15.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065534/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_16.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065539/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_17.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065544/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_18.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065547/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_19.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065600/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_20.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065602/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_21.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065606/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_22.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065608/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_23.png)
+[**布里斯玛天然气公司创始人尼古拉与亨特拜登是什么关系？**](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30064556/21-What-is-the-relationship-between-Burisma-founder-Nikolai-and-Hunter-Biden.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30064556/21-What-is-the-relationship-between-Burisma-founder-Nikolai-and-Hunter-Biden.pdf)
 
-by 金色苹果
-
-1+
+0

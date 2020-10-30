@@ -1,15 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登第三波: 硬盘邮件解密 21 布里斯玛天然气公司创始人尼古拉与亨特拜登是什么关系？
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/503080/)
+## 惊天秘密FISA法案 罪恶家族黄粱一梦
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/503282/)
 
-前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30074334/maxresdefault-80.jpg)
+就在拜登家族权倾白宫，习满以为胜利在望。大半个白宫川普周围全是沼泽，多只黑手在等着伸向他，他的安全也牵动着无数人的神经。昨晚路德社爆出一惊天秘密,心情总算轻松了许多.
 
-**亨特·拜登第三波：硬盘邮件解密**
+原来美国还藏着一个FISA法案，此法案非同小可，它是为了保护美国国家安全，针对外国人而设立的。它要由专人申请秘密监控令才有效，它可以三方监控：外国人、与外国人交往的各国人和美国公民。只要有监控令在手，收集到的证据都视为有效证据，当年朱利安尼先生当部长之时就被批准拿到了一百多条专案线一举打掉了五大黑帮以及2018年的何志平案。
 
-**布里斯玛天然气公司创始人尼古拉与亨特拜登是什么关系？**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30064117/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_00.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065438/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_12.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065441/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_13.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065446/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_14.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065450/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_15.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065534/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_16.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065539/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_17.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065544/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_18.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065547/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_19.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065600/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_20.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065602/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_21.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065606/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_22.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065608/21%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-PDF_23.png)
-[**布里斯玛天然气公司创始人尼古拉与亨特拜登是什么关系？**](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30064556/21-What-is-the-relationship-between-Burisma-founder-Nikolai-and-Hunter-Biden.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30064556/21-What-is-the-relationship-between-Burisma-founder-Nikolai-and-Hunter-Biden.pdf)
+说到此，我们恍然大悟，怪不得文贵先生号召战友惩贼，先钓出傅希秋，继续声势浩大惩贼，后又引出一些政客，然后紧逼亨特拜登，可能后面还有更多的大鳄会浮出水面。这招真高明，只是辛苦了前方惩贼战友。此次钓鱼惩贼战友功不可没。
 
-0
+让我们想起朱利安尼先生与文贵先生在18层公寓搂肩抱腿抽雪茄的场景，那画面，远非两个大佬互相认识这么简单。一个是拥有100条FISA法令的美国秘密高官，一个是爆料革命的先行者，而且是在私宅，如果我们不用心去领悟，文贵先生几次都说搂住搂住，他要和比川普还要大的人物在一起，那么朱利安尼先生，难道他是……他背后，啊？我惊呆了，我兴奋得几乎一夜未眠。
+
+新中国联邦这么强大的实力，CCP没几天可以疯狂了。
+
+文贵先生建立GTV，GNEWS，意在讲真相，提高知名度，GTV一火，那战友们的股票就会涨。那惩贼战友、川普、班弄先生的演讲旨在唤醒民意，背后神秘的大人物，实力加民意加坚定的战友和盟友，新中国联邦才是胜券在握。就算拜登和习机关算尽，也会在民意和实锤的证据下灭亡。文贵先生说美国总统选举是分水岭，人们会说，FISA法令几年前就在手，为什么没早用，因为好钢用在刀刃上，适当的时机适当的时间点恰到好处的利用。明白的说就是在敌人得意忘形的时候，在民意被唤醒的时候，在改变历史命运美国大选的时候，在我们准备充分的时候，来个一招制胜。而推进这一切的战略大师就是文贵先生，这种大智慧一千个伪类和CCP也不是文贵先生的对手。
+
+某些人为了达到控制全世界的目的苦心经营花了两国人民的无数人力财力，终究将只是美梦一场。
+
+by 金色苹果
+
+【以上内容仅代表作者本人观点】
+
+1+

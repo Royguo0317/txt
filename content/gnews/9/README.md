@@ -1,14 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Warroom 458：王岐山私生女王昕是渤海华美借给亨特拜登新的签字借款人 渤海华美整个购买计划是为中共军队
-` snow` [轉載自GNews](https://gnews.org/zh-hans/504768/)
+## 《The Biden Crime Family-Who Are They-trailer 系列片之一Who Are They With Hunter》
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/503319/)
 
-战友之家新闻译制组
-撰稿：GM64
-
+多伦多加喜农场 凯路团队特别组
 
 
-王岐山的私生女王昕女士是渤海华美借款给亨特·拜登的放款人，这件事不仅仅是美国受到中共的破坏，很多华尔街家族有处于骗局中的风险。最重要的是中共通过这家公司窃取美国的军事技术。
 
 0
