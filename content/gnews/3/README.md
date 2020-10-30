@@ -1,57 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中华能源基金会发给Ian Everhart先生的邀请函2
-` 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hans/501602/)
+## 亨特·拜登第三波: 硬盘邮件解密16 2012年5月14日 时任美国参议员马克.尤德尔的调度总监凯西.钟对亨特拜登之前与她的通话的跟踪回复。在邮件中，她对亨特给她的工作机会表示了感谢,并向亨特询问了更多有关工作的详细内容
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/501376/)
 
-**翻译： Alton**
+前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
 
+**亨特拜登第三波：硬盘邮件解密
+时间：2012年5月14日 下午2:00
+邮件是时任美国参议员马克.尤德尔的调度总监凯西.钟对亨特拜登之前与她的通话的跟踪回复。在邮件中，她对亨特给她的工作机会表示了感谢，并向亨特询问了更多有关工作的详细内容。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29204701/Screen-Shot-2020-10-30-at-10.46.47-am.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29213150/Screen-Shot-2020-10-30-at-11.31.25-am.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29213230/Screen-Shot-2020-10-30-at-11.32.17-am.png)
+**参考资料：**
 
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29224837/Picture1-52.png)
-
-
-
-
-**中华能源基金委员会**
-
-**具有特别咨商地位，联合国经济及社会理事会**
+- [https://zh.wikipedia.org/wiki/%E9%A9%AC%E5%85%8B%C2%B7%E5%B0%A4%E5%BE%B7%E5%B0%94](https://zh.wikipedia.org/wiki/%E9%A9%AC%E5%85%8B%C2%B7%E5%B0%A4%E5%BE%B7%E5%B0%94)
 
 
-
-如果您能在方便的时候尽早表明您是否有兴趣参加本次研讨会，我将非常感谢。更多关于研讨会的细节可以从http://oborforum.org获得
-
-请登录：https://www.eventbrite.com/e/the-thus china-forum-registration=38855283198
-
-如果您有任何问题，请随时与我们联系
-
-电话:(+ 852)2655 – 1656
-
-传真:(+ 852)2655 – 1616
-
-电子邮件:rsvpdivaschinacncgyfund.org
-
-我期待各位对这一及时而有意义的活动的参与和贡献。
-
-谨致个人最热烈的问候!
-
-(何志平博士)
-
-副主席兼秘书长
-
-中国能源基金委员会（CEFC）
-
-34. Conto P
-
-中國香港紅灣半島1號辦公室 TOLCS2655.6
-
-傳真：(52) 2655-1616
-
-电话：
-
-网站：
-
-电子邮件：
+[**2012年5月14日 时任美国参议员马克.尤德尔的调度总监凯西.钟对亨特拜登之前与她的通话的跟踪回复。在邮件中，她对亨特给她的工作机会表示了感谢,并向亨特询问了更多有关工作的详细内容**](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29213706/28-China-Hi-Hunter.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29213706/28-China-Hi-Hunter.pdf)
 
 0
