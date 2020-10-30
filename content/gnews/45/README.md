@@ -1,14 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅! 渤海华美(上海)股权投资基金管理有限公司, 董事会第十三次会议保密材料首次曝光!
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/502006/)
+## 美国总统竞选史上最大耻辱：犯罪家庭的乔∙拜登参选美国总统
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/501316/)
 
-### **[渤海华美(上海)股权投资基金管理有限公司,
-董事会第十三次会议保密材料首次曝光!](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002909/Bohai-Harvest-RST-Chinese.pdf)**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002423/Bohai-Harvest-RST-Chinese_00.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002429/Bohai-Harvest-RST-Chinese_01.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002439/Bohai-Harvest-RST-Chinese_02.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002444/Bohai-Harvest-RST-Chinese_03.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002447/Bohai-Harvest-RST-Chinese_04.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002452/Bohai-Harvest-RST-Chinese_05.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002514/Bohai-Harvest-RST-Chinese_06.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002519/Bohai-Harvest-RST-Chinese_07.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002523/Bohai-Harvest-RST-Chinese_08.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002528/Bohai-Harvest-RST-Chinese_09.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002550/Bohai-Harvest-RST-Chinese_10.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002556/Bohai-Harvest-RST-Chinese_11.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002600/Bohai-Harvest-RST-Chinese_12.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002610/Bohai-Harvest-RST-Chinese_13.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002615/Bohai-Harvest-RST-Chinese_14.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002618/Bohai-Harvest-RST-Chinese_15.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002623/Bohai-Harvest-RST-Chinese_16.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002628/Bohai-Harvest-RST-Chinese_17.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002630/Bohai-Harvest-RST-Chinese_18.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002633/Bohai-Harvest-RST-Chinese_19.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002650/Bohai-Harvest-RST-Chinese_20.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002654/Bohai-Harvest-RST-Chinese_21.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002657/Bohai-Harvest-RST-Chinese_22.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002702/Bohai-Harvest-RST-Chinese_23.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002704/Bohai-Harvest-RST-Chinese_24.png)
-[**渤海华美(上海)股权投资基金管理有限公司, 董事会第十三次会议保密材料首次曝光!**](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002909/Bohai-Harvest-RST-Chinese.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002909/Bohai-Harvest-RST-Chinese.pdf)
+多伦多加喜农场 晨熹
 
+校对 小鸥 上传 HUH
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30033612/independent.co_.uk_-2.jpg)图片来源：independent.co.uk
+近日，网上铺天盖地、轰炸式袭来的几乎全部是正在参加美国第59届总统竞选的民主党候选人乔∙拜登及其家庭涉嫌严重贪腐、洗钱、收受贿赂、钱权交易、权色交易，并为个人及家族利益不惜出卖国家利益，对国家安全构成严重威胁的新闻。
 
+这些指控拜登家族的文章，由于信息来源广，文章间缺乏连贯性，所涉事件的时间跨度长、涉事人物多、人物关系复杂、相关证据凌乱，加之事件本身的复杂性，让人雾里看花，迷蒙中很难理出一个清晰的脉络。今天，笔者就带领大家沿着时间轴，把握人物关系的主线，尽可能地还原整个事件来龙去脉，帮助大家理清头绪，弄明白拜登家族究竟做了什么，遭到了大家如此严重的指控和围攻。
+
+乔∙拜登1972年即当选特拉华州参议员，成为当时美国最年轻的参议员。在他从政40多年的时间里，政绩平平，无亮点可言。但由于他浸淫美国政坛多年，积累了一定的人脉，其脾气秉性和自身弱点也逐渐为中共熟悉和掌握，理所当然地成为了中共意图染指美国政治的理想目标。
+
+为便于读者的阅读理解，下面我们分乔∙拜登副总统政治活动线和拜登家族商业发展时间线，这两条主线来叙述拜登前副总统的政治履历和其家族发迹史之间的关联：
+![]()![](https://media.discordapp.net/attachments/721388937553248396/771537913220562954/Snipaste_2020-10-30_08-56-01.png)![]()![](https://media.discordapp.net/attachments/721388937553248396/771538508102893598/Snipaste_2020-10-30_08-58-08.png?width=759&amp;height=509)
+
+![]()![](https://media.discordapp.net/attachments/721388937553248396/771539267428024360/Snipaste_2020-10-30_09-00-42.png?width=763&amp;height=509)![]()![](https://media.discordapp.net/attachments/721388937553248396/771539728456744970/Snipaste_2020-10-30_09-03-08.png?width=763&amp;height=509)![]()![](https://media.discordapp.net/attachments/721388937553248396/771540086542041128/Snipaste_2020-10-30_09-04-30.png?width=761&amp;height=509)![]()![](https://media.discordapp.net/attachments/721388937553248396/771540423424475176/Snipaste_2020-10-30_09-05-50.png?width=759&amp;height=509)![]()![](https://media.discordapp.net/attachments/721388937553248396/771540784948183050/Snipaste_2020-10-30_09-07-21.png)
+乔∙拜登在参加2020年总统竞选时公开宣称：中共不是我们的竞争对手，并表示他一旦当选就要停止与中共的贸易战，停止正在执行的对中共国的关税。目前由已经被爆光的证据来看，乔∙拜登与中共的利益已经深深地捆绑在一起，成为中共“同呼吸、共命运“的命运共同体。他是中共长期以来，在美国不惜代价培植的代理人，他们互为依存、相互扶植、相互之间输送利益，成为名副其实的利益共同体和同盟军。在整个过程中，我们可以看到乔∙拜登不但是参与者而且是主导者，完全是中共利益代理人。中共通过各种渠道为其提供大笔竞选资金，不遗余力地要把乔∙拜登扶上美国总统大位，借以实现对美国乃至整个世界的全面掌控。
+
+乔∙拜登及其家庭除与中共勾兑外，还在世界其他国家和地区也涉嫌犯罪：
+![]()![](https://media.discordapp.net/attachments/721388937553248396/771542015372558406/Snipaste_2020-10-30_09-12-19.png?width=876&amp;height=509)
+乔∙拜登及其家庭还涉嫌帮助俄罗斯对美渗透负责人安德烈·泰利琴科游说美国政府；亨特·拜登在2009年1月29日至2014年7月8日期间，因为其父的关系，还曾是美国特勤局的保护对象。除此之外，拜登家庭被曝光的还有吸毒、乱伦等丑闻，更加让人不能容忍的是，同时曝光的还有亨特∙拜登侵犯未成年人等令人发指的罪行，这严重挑战了美国民众的底线。毋庸置疑，等待乔∙拜登及其犯罪家庭的必将是美国法律的严惩。
+
+日前，亨特·拜登的前生意伙伴鲍布林斯基（Tony Bobulinski）在一段采访中谈到：当他问起吉姆∙拜登，乔∙拜登未来参加总统竞选的话，不担心这些政治风险和丑闻风险吗？你们将如何应对？吉姆∙拜登轻笑着说“合理的否认“。其神态、语气和所说内容，都足以表明：乔∙拜登及家人完全不担心、更完全不在意未来美国民众是否会知道真相，他们是否会面临大众的质询。正如乔∙拜登一次又一次在公众场合公然不假思索地当众撒谎一样。
+
+将来有一天，当我们回望历史，看到在美国总统竞选史上，居然还有乔∙拜登这种满嘴谎言、贪婪无耻、出卖国家、罪行累累、恶名昭彰的垃圾政客竞选过第59届美国总统，一定觉得当事人的这种无知、无耻和狂妄得有多么疯狂！我想这也一定会成为美国总统竞选史上最大的耻辱，永远为历史所记，时时警醒未来！
+
+愿上帝保佑美国！
+
+新闻来源：[https://www.epochtimes.com/b5/20/10/20/n12487902.htm](https://www.epochtimes.com/b5/20/10/20/n12487902.htm)
+
+[https://www.epochtimes.com/b5/20/9/28/n12436339.htm](https://www.epochtimes.com/b5/20/9/28/n12436339.htm)
+
+[https://www.epochtimes.com/gb/20/10/18/n12484808.htm](https://www.epochtimes.com/gb/20/10/18/n12484808.htm) \
 
 0
