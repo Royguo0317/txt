@@ -1,35 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美科学家发表论文 直指中共病毒起源于武汉实验室
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/501283/)
+## 【台风巨眼】瓦蒂姆-波扎尔斯基给亨特拜登邮件谈寄相框一事
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/501330/)
 
-多伦多加喜农场 文锦
+作者：香草山写作组Kathy（文艺）
 
-校对 小鸥 上传 HUH
-[!\[肺炎疫情：政治纷争下，全球科学家如何看武汉起源论和病毒溯源- BBC News 中文\]()!\[肺炎疫情：政治纷争下，全球科学家如何看武汉起源论和病毒溯源- BBC News 中文\](https://ichef.bbci.co.uk/news/640/cpsprodpb/183B4/production/_112225299_67.png)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fscience-52613218&amp;psig=AOvVaw2DutU0MSo1quKUBIzGbtnu&amp;ust=1604104838583000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCKiB37GK2-wCFQAAAAAdAAAAABAO)图片来源：bbc.com
-据PR Newswire10月28日报道，美国史蒂文·奎伊（Steven Quay）博士在Zenodo上发表了一篇名为《首个中共病毒基因组患者群体位于武汉解放军医院》（《First COVID-19 Genomic Patient Cluster was at PLA Hospital in Wuhan, China》）的论文。阐明了新的科学发现和结论，表明中共病毒大流行始于位于武昌武珞路627号的武汉市人民解放军中部战区总医院。国际生物样本数据存储库表明，早在2019年12月10日 ，中共国政府告知WHO此次疫情前几周，解放军就建立了中共病毒患者记录。
-![]()![](https://media.discordapp.net/attachments/769175824266952724/771521621302968320/565.png?width=915&amp;height=509)
-该论文记录了武汉市人民解放军中部战区总医院中四名具有直接人传人冠状病毒传播基因特征的患者，还包括其冠状病毒在遗传上最接近武汉病毒研究所（武毒所）的蝙蝠病毒的患者，武毒所科学家称之为“ 2019-nCoV的最近亲源”。解放军总医院距武毒所三公里，都位于武汉地铁2号线附近。该文件记录了对2019年12月1日至1月初之间最早出现中共病毒病人的医院的分析，并显示所有这些医院也位于地铁2号线上。
-![]()![](https://media.discordapp.net/attachments/769175824266952724/771521610997301278/563.png?width=1080&amp;height=484)
-这是世界上第一篇论述武汉地铁2号线与中共病毒疫情关系的论文。地铁2号线每天承载着武汉5％的人口，可以令病毒在武汉乃至整个湖北省迅速传染开; 地铁站连接着高铁站，可以在整个中共国内迅速传播；地铁站终止于国际机场站，可以令病毒迅速扩散到世界。被中共官方认定为病毒起源地的华南海鲜市场也位于地铁2号线附近。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28173039/logo-1.jpg)
 
-史蒂文·奎伊博士在密歇根大学获得医学博士和博士学位，曾在麻省理工学院化学系与诺贝尔奖获得者H. Gobind Khorana一起做博士后研究员，在哈佛MGH医院做住院医师，并在斯坦福大学医学院任教近十年。他是Atossa Therapeutics Inc.的首席执行官，该公司是处于临床阶段的生物制药公司，正在开发用于治疗乳腺癌和中共病毒的新疗法。
 
-评论：
 
-继英雄科学家闫丽梦博士之后，又一位美国科学家不畏强权，直指中共病毒起源真相，就像《皇帝的新衣》里勇敢的小孩。随着疫情的不断加重，全球都受到中共病毒的威胁，各国人民的共同诉求越来越清晰、越来越强烈——就是要中共病毒真相！假的真不了，真的假不了，随着越来越多良心人士挺身而出，相信很快真相的光明会驱散谎言的阴霾！
 
-参考链接：
 
-New Research Points to the People’s Liberation Army Hospital in Wuhan, China as the Origin for the Worldwide Coronavirus Pandemic
+2020年10月29日，爆料革命平台GTV, Gnews等借助秘密翻译组曝出一封写于2015年6月19日的邮件，此邮件只谈了一件小事，主题是关于“塞浦路斯董事会会议相框照片邮寄”。但邮件的相关人却来头不小。发送人是瓦蒂姆-波扎尔斯基，发给亨特-拜登，德文-阿彻，抄送塞巴斯蒂安-莫塔齐，凯蒂-道奇等人。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29205533/185-%E3%80%90%E5%8F%B0%E9%A3%8E%E5%B7%A8%E7%9C%BC%E3%80%91%E7%93%A6%E8%92%82%E5%A7%86-%E6%B3%A2%E6%89%8E%E5%B0%94%E6%96%AF%E5%9F%BA%E7%BB%99%E4%BA%A8%E7%89%B9%E6%8B%9C%E7%99%BB%E9%82%AE%E4%BB%B6%E8%B0%88%E5%AF%84%E7%9B%B8%E6%A1%86%E4%B8%80%E4%BA%8B-1.jpg)
+邮件内容如下：
 
-[https://www.prnewswire.com/ae/news-releases/new-research-points-to-the-peoples-liberation-army-hospital-in-wuhan-china-as-the-origin-for-the-worldwide-coronavirus-pandemic-301158985.html](https://www.prnewswire.com/ae/news-releases/new-research-points-to-the-peoples-liberation-army-hospital-in-wuhan-china-as-the-origin-for-the-worldwide-coronavirus-pandemic-301158985.html)
+诸位先生，
 
-论文链接：
+希望你们都很好。我们给上次董事会会议的照片镶嵌了订制的相框，想用联邦快递发给你们。恳请各位告知邮寄地址？（罗斯蒙特纽约，华盛顿的地址还是你家里）
 
-First COVID-19 Genomic Patient Cluster was at PLA Hospital in Wuhan, China
+期待回复。
 
-[https://zenodo.org/record/4139432#.X5tP9YhKg2w](https://zenodo.org/record/4139432#.X5tP9YhKg2w)
+良好祝愿，
 
-1+
+瓦蒂姆
+
+英文如下：
+
+From:Vadim Pozharskyi
+
+Date:June 19, 2015 10:54:06
+
+To Hunter Biden, Devon Archer.Cc:Sebastian Momtazi, Katie Dodge
+
+Subject:framed Cyprus BoD meeting photo delivery
+
+Gents，
+
+Hope，you are well.We had a BoD photo from the previous meeting put into custom-made frame and would love to fedex it to you. Could you kindly tell me where best to send it to? （ Rosemont NY and Washiington addresses or your house ones)
+
+Looking forward to your fedback!
+
+Best,
+
+Vadym
+
+注：邮件中人物
+
+Vadim Pozharskyi:（瓦蒂姆-波扎尔斯基）：乌克兰天然气公司Burisma董事会成员。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29205551/185-%E3%80%90%E5%8F%B0%E9%A3%8E%E5%B7%A8%E7%9C%BC%E3%80%91%E7%93%A6%E8%92%82%E5%A7%86-%E6%B3%A2%E6%89%8E%E5%B0%94%E6%96%AF%E5%9F%BA%E7%BB%99%E4%BA%A8%E7%89%B9%E6%8B%9C%E7%99%BB%E9%82%AE%E4%BB%B6%E8%B0%88%E5%AF%84%E7%9B%B8%E6%A1%86%E4%B8%80%E4%BA%8B-2.jpg)
+Devon Archer: （德文-阿彻）：亨特-拜登的商业伙伴。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29205609/185-%E3%80%90%E5%8F%B0%E9%A3%8E%E5%B7%A8%E7%9C%BC%E3%80%91%E7%93%A6%E8%92%82%E5%A7%86-%E6%B3%A2%E6%89%8E%E5%B0%94%E6%96%AF%E5%9F%BA%E7%BB%99%E4%BA%A8%E7%89%B9%E6%8B%9C%E7%99%BB%E9%82%AE%E4%BB%B6%E8%B0%88%E5%AF%84%E7%9B%B8%E6%A1%86%E4%B8%80%E4%BA%8B-3.jpg)
+Sabastian Momtazi(赛巴蒂斯安-莫塔齐）：不详。
+
+Katie Dodge(凯蒂-道奇）：不详。
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayanyM)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，免费英语教学，美东时间周一至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+0

@@ -1,49 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登第三波: 硬盘邮件解密8 2014年6月1日布利斯马公司董事波扎尔斯基致电公司高层,邮件涉及美联社、华尔街日报等媒体
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/499634/)
+## “彤宝国”们被枪杀 推特封杀 真相之殇 文明之殇
+` 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hans/500053/)
 
-前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
-
-**亨特拜登第三波：硬盘邮件解密
-2014年6月1日，布利斯马公司董事波扎尔斯基致电公司高层：希瑟·金、瑞安 ·图海、亨特·拜登、德文·阿彻，安排后续公关事宜，邮件涉及美联社、华尔街日报等媒体，其中华尔街日报将对布利斯马公司受益人尼古拉进行采访 **
-
-### **邮件：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29132409/PHOTO-2020-10-29-13-20-18.jpg)
-### **邮件中文翻译如下：**
-
-**发件人**: 瓦迪姆·波扎尔斯基”Vadim Pozharskyi” &lt;v.pozharskyi. …….&gt;
-**收件人**: 希瑟·金”Heather King”&lt;[email protected] …….&gt;,瑞安 · 图海 “Ryan Toohey&lt;[email protected] …….&gt;,亨特·拜登 “Hunter Biden”&lt;[email protected] …….&gt;,德文·阿彻 “Devon Archer”&lt;[email protected] …….&gt;
-**时间**：6/1/2014 7:55PM
-**主题**：一些公关问题
-
-尊敬的同事们，对前面的几封邮件沟通总结如下：
-
-1.美联社的问题，我们将按瑞安的建议，按照瑞安起草的答复草稿进行答复，他和他的团队将和记者一起工作。
-
-2.《华尔街日报》恐怕很快要采访尼古拉(尼古拉·兹洛切夫斯基Nicolai Zlochevskey)，我希望瑞安能尽快给一些建议。
-
-3.请考虑向董事会传达后续的公关信息。我建议我们起草公司信息/新闻通稿，用来放到我们网站上，然我会把它发给大家征求意见。我们也会和该信息一起发送几张照片供你审核后放到网站上。
-
-另外，鉴于我们都要出差到周二晚些时候才回来，我建议要不大家在周三或周四一起电话里沟通一下？请告知。
-
-最好的祝愿，瓦迪姆（Vadym）
-
-发自iPad
-
-### **邮件人物介绍/分析：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29120012/Capture7.jpg)
-参考资料：[https://conservapedia.com/Devon\_Archer](https://conservapedia.com/Devon_Archer)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29120045/Capture8.jpg)
-參考資料：[https://www.bsfllp.com/lawyers/heather-king.html](https://www.bsfllp.com/lawyers/heather-king.html)
-
-### 尼古拉·兹洛切夫斯基 （Nicolai Zlochevskey）：布利斯玛股份有限公司受益人
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29120159/Capture9.jpg)
-参考资料：[http://energysecurityforum.org/esf-council/92-vadym-pozharskyi](http://energysecurityforum.org/esf-council/92-vadym-pozharskyi)
-
-[亨特·拜登第三波: 硬盘邮件解密8 2014年6月1日布利斯马公司董事波扎尔斯基致电公司高层,邮件涉及美联社、华尔街日报等媒体](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29120802/20-Few_PR_issues.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29120802/20-Few_PR_issues.pdf)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29133311/Picture1-50.png)
 
 
 
-0
+
+在文明世界，人权大于主权。这是对生命的尊重，对造物主的敬畏。在动物世界里，我们可以看见不同类的动物可以和谐相处或者救助弱小。在魔鬼的世界，才有同类残害荼毒生命。对于一个正常有人性的人，当看到弱者被欺辱，生命被残害时会本能地出手救助或者想把这些邪恶的事情传播出去，盼望正义公正的力量可以出手相助。当勇敢说出恶行真相的人被出卖被枪杀，人类的文明人性良知被黑暗彻底遮盖了。
+
+### **中共封杀真相“彤宝国”们被枪杀**
+
+2020年10月19日，路德社在纽约时间早上8点多的路安墨谈[\[i\]](//E400A53A-EDBC-4450-BD7C-74B6722A0C3E#_edn1)里第一次提到CIA在中国的线人被枪杀：36名中国安全部工作人员“彤宝国”们和20多个外围工作人员。他们因为工作机会看到中共最高机密，惨绝人寰的恶行，希望可以把这些真相通过CIA传递到美国，推翻中共这个邪恶政权，建立一个自由民主文明的中国。但是他们的信息被拜登出卖给中国最高领导人，这些希望能把真相传出去的人们被以开会的名义被叫到办公室直接枪决，包括还有十几天就生产的孕妇。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29133348/Picture2-36.png)
+墨博士说：这些人有人性的良知，有判断是非和反思思维，也是有能力的。他们被枪杀，让所有跟这些有类似经历的人失去了对美国公正国家的信心。
+
+### **美媒推特封推禁号 ****个人声音在网络世界的被封喉**
+
+2020年10月24日上午， GTV和GNews推出亨特拜登的不雅图片和他与中共高层有生意往来的文件和签字，这些图片证实爆料革命在两年前发出的对美国的提醒：中共在多年之前逐步实施蓝金黄美国的计划，并且进行地非常成功[\[ii\]](//E400A53A-EDBC-4450-BD7C-74B6722A0C3E#_edn2)。 这些信息如惊雷在推特上快速转发，随着信息广传，到纽约时间傍晚，许多转发这些信息的推特号被封推禁言。还有一些几天没有活动的推特号，只是以前转推过爆料革命的信息，和闫丽梦博士关于新冠病毒的两份科学报告信息的推号也被封，就像中国古代的岳飞被“莫须有”的罪名处死，这些在网络世界传播真相的真实世界的个人存在，被以封号禁言的方式在网络世界封喉。真相被截停。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29133516/Picture3-21.png)
+
+
+随着这几天路德社信息的继续深挖，CIA爆料人出现[\[iii\]](//E400A53A-EDBC-4450-BD7C-74B6722A0C3E#_edn3)，拜登家族的CEO接受采访[\[iv\]](//E400A53A-EDBC-4450-BD7C-74B6722A0C3E#_edn4)，爆出乔拜登是亨特拜登与中共有生意往来真正的大人物。笔者不明白，美国正在大选，民众需要真实的信息去判断选出哪一位总统，为什么推特会用和中国大陆很多媒体一样的方式封锁消息呢？
+
+### **真相之殇 ****文明之殇**
+
+36个CIA的中国线人“彤宝国”们和20多个外围公安部人员被枪杀，牵扯到乔拜登出卖这些人的信息给中共高层；亨特拜登的不雅图片，已经牵扯到美国的前政要，这些图片是谁在哪里拍摄，前后还有哪些事情发生？亨特和中共高层的的生意已经牵扯到乔拜登，还会连接到哪些人和桌子底下的交易？
+
+当美国两党大选民众都需要真相做出决策投票时，这些本该报道真相的媒体，你们为什么要封杀真相？
+
+在美国，这个高举自由火炬女神屹立的地方，如果真相不能被传播，恶行不能被揭发，人们会失去对公正、法治和自由的信心。
+
+真相之殇！文明之殇！
+
+* * *
+
+[\[i\]](//E400A53A-EDBC-4450-BD7C-74B6722A0C3E#_ednref1) https://youtu.be/CHQPB5uywto
+
+[\[ii\]](//E400A53A-EDBC-4450-BD7C-74B6722A0C3E#_ednref2) https://gtv.org//?videoid=5f94a73b04b26243e0d30dbc
+
+[\[iii\]](//E400A53A-EDBC-4450-BD7C-74B6722A0C3E#_ednref3) https://youtu.be/zfpRmic6EX8
+
+[\[iv\]](//E400A53A-EDBC-4450-BD7C-74B6722A0C3E#_ednref4) https://youtu.be/GGP0WaraiAQ
+
+1+

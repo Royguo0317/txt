@@ -1,30 +1,302 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 树不在了中共安全部特务、文化妓女陈文茜还来得及种树吗？
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/500179/)
+## 【2】硬盘第三波烧脑风暴来袭！亨特拜登曾飞往北京参加渤海股东会议并与中海油进行会晤！
+` GM01` [轉載自GNews](https://gnews.org/zh-hans/499530/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29140559/%E9%99%88%E6%96%87%E8%8C%9C.jpg)
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+战友们好！在经历了近几天“小视频”“小图片”的洗礼，大家一定被吸足了眼球！现在真正的烧脑风暴来了！你准备好了吗？接下来铁一般的证据，山一般的证明逐一清晰展示了中美两国盗国贼对人类的威胁和伤害！对法律的无视！以及对女性的侮辱甚至奴役变态！他们的人性已完全丧失！
 
-看了油管上[唯真不破台灣大牛](https://www.youtube.com/channel/UCQm9pSXu7FctQk_4eieB7dg)做的几期关于卖台贼陈文茜及抗议卖台贼陈文茜的视频，对于陈文茜的认知渠道在此前一直是郭先生在三年爆料革命中提到的几次，由于陈文茜在大陆可以查到的用以研究的资料相对少，下面的这篇文章或许可能算是陈文茜自吹自擂的一篇典范——据[陈文茜：我确实是台湾最聪明的女人，情史与才气，就值得争议一生](https://baijiahao.baidu.com/s?id=1680886882035056078&amp;wfr=spider&amp;for=pc)（[河东史子](https://author.baidu.com/home?from=bjh_article&amp;app_id=1676173889560094)发布时间：10-18日18:57）：［在台湾有句话，可谓是男怕李敖 , 女怕陈文茜，李敖说 : “ 我要包办五百年来第一名 ” , 陈文茜便说 : “ 我只要 501年第一 , 就超越他 了 。 ”李敖又说：陈文茜是我所见过最聪明的女人”，陈文茜就说了那句：“我确实是台湾最聪明的女人”。论才气有人说她堪比张爱玲，论情史，可谓是一箩筐，61岁还自称本姑娘。］
+其实硬盘中还有绝大部分的视频因涉及到极为敏感，极为不人道，极为残忍的画面无法播放，将随后再进行处理。
 
-陈文茜在要包办501年第一名的时候应该是非常有底气的，但到底是哪种第一名？已经年届62岁的陈大姑娘并没有明说，其实501年来卖台、通共、通奸方面或许陈大姑娘不仅独一而且无二，以阅人无数的陈大姑娘依然自称本姑娘，何故？曾经看过一个笑话，有个妓女曾经接客无数 ，但仍自称处女，旁人问她为何已经历这么多肉林蛋雨却仍是处女，这个风月女子解释说，在我和嫖客们在一起的时候，只是我的肉体与他们在一起，我的心永远没有属于任何人，所以我是处女。妓女的处女论与陈大姑娘的情史一大筐但仍称本姑娘的确异曲同工——陈文茜小姐本就是一个出卖灵魂与魔鬼共舞的文化妓女，只是这个文化妓女既卖了艺又卖了身，并且更进一步她做了中共安全部的特务（据郭文贵先生**2019年4月13日什么叫蓝通？为什么刘鹤将遣返战友21人做为中美贸易交易的条件！（三连播之二）:** ［陈文茜，对陈文茜，哎呀我的妈，一说陈文茜我有点受不了了啊。太受不了了。陈文茜妳来告我，妳来美国告我陈文茜！陈文茜这个人真是这话说她是什么？外号叫什么？我忘了叫什么外号了，叫做北什么呀？啊。有个叫什么，不是叫“公共马桶”，叫什么玩意外号啊。这个女人太烂了，太烂了啊！跟刘长乐，通过凤凰刘长乐、王纪言，加入了中共的安全部。］）
+现在将为大家呈现Burisma与亨特拜登和中共之间勾兑的铁一般的事实，包括文件和Email的往来，以及相关人物往来！希望全世界有良知的战友来看一看。如果这样的事情不被揭发，人类将全面走向黑暗！
 
-[唯真不破台灣大牛](https://www.youtube.com/channel/UCQm9pSXu7FctQk_4eieB7dg)在2020年9月25日发布了[賣台賊！陳文茜！『 通共賣台』](https://youtu.be/ffmUIuKq2S0)：
+[以下部分邮件内容可点击下载PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29143943/Email_Tran.8-16_Annie-GM31-Xiaofenhong-V-Winston-Ver3.0.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29143943/Email_Tran.8-16_Annie-GM31-Xiaofenhong-V-Winston-Ver3.0.pdf)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29124127/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%884.29.43.png)
+**日期：**2014年5月7日  上午1:31      
+**发件人：**Devon Archer
+**主题：回复：** HB 布利斯玛新闻稿
 
+**收件人：** Vadim Pozharskyi  ** 抄送：**亨特·拜登
 
+感谢 Devon,
+就新闻发布稿来说，您有什么大体意见？
 
-中共安全部特务陈文茜来头甚大，郭先生在**2018年9月5日黄河边性无能造成严重后果林肯中心被取消发布会**直播中提到的：［我要说一下在台湾骂我的叫陈文茜。这个不要脸的女人太不要脸了。大家上网上搜一搜，陈文茜最早夸盘古的，北顶娘娘庙就是她搞的。她跟谁到了我盘古呢？刘长乐。凤凰的刘长乐还有王记言带着她到盘古吃饭，到我家参观。我当时不欢迎，谁给我打的电话，安全部部长，耿部长亲自安排。说郭文贵这次你一定要最高规格接待陈文茜。我说什么意思这是？他说上边领导的指示。我说你又忽悠我呢，我说你就够了，你就说你就行了。不，上边领导的指示。我一听，这真的呀这是。你说谁呀？当时，当时那个时候接待陈文茜的是周永康。那周永康政法委书记，部长不是孟建柱嘛，然后还说梦部长，孟书记也关注了。呦，我说这是好，他说你要最高级的。我们盘古最高级的是什么你知道吗？请到我家四合院吃饭，这李小牧刚吃过了。日餐是最牛的，我们的日餐是赔大了钱了。我们起价1000美金当时，如果是VIP起价10000美元。所有的东西，连水都是日本来的，服务生全是日本的。日本最高级的怎么做呢？是当时啊丰臣秀吉时代除了喝高级的茶，还有叫做喂口饭。就是这好吃的，是主人拿过来，因为你不懂得吃，放你嘴里边。那天在我家，我是把最好的金枪鱼，最好的啊，一个大金枪鱼买回来，只要中间那么一块儿，取大概是0.1%，不是1%，把那块儿夹好放进陈文茜嘴里，放了五六片。刘长乐，王记言，还有他的随从，还有摄影师。我说你哪儿都可以拍，不可以拍我这个家。我给陈文茜做了一场最高级的服务。陈文茜把我夸的就不行了。后来跟我联系啊，但是对不起，我不回。为什么，我不想跟他联系，那是人家凤凰刘长乐的人嘛，王记言的人。诶，后来她搞了个录像，说北顶娘娘庙龙卷风的事，再过一段时间开始骂我了。］中共安全部特务、文化妓女陈文茜当年是如何夸盘古的呢？互联网是有记忆的——[2012.06.23文茜世界周報／登上盤古大觀　俯看京奧場館全景](https://www.youtube.com/watch?v=ftTMvhRFUO4)：
+发自我的iPad
 
+2014年5月6日，20:31，Devon Archer [email protected]… 写到：
 
+Vadim,
+亨特刚刚搭上去往北京的飞机，去参加渤海股东会议。（他会在那里与我们中国海洋石油总公司的合作伙伴进行会晤并提名一位。）我们很快会回来。
 
-中共安全部特务、文化妓女为何对郭先生前恭后倨？在我看来前恭意在求宠、取悦，求宠取悦而不得之下，中共安全部特务、文化妓女陈文茜恼羞成怒，开始怒砸郭文贵先生了。
+感谢你的新闻概要，我会快速过目。非常有用，我也抄送给了Boies。
+谢谢。
+Devon Archer
+646 436….
 
-在今天，陈文茜称之为违章建筑的盘古大观依然屹立不倒，她称之为大骗子的那个人正在引领全球正义力量终结中共，她所卖身投靠的那颗大树即将轰然倒塌，她出了《树，不在了》是意识到了吗？在大树即将倒掉的时候，她号召要自己种树，其实猢狲从未种过树，陈文茜自不例外，在中共这颗她投靠的树倒下之后，她又将卖身何处呢？
+2014年5月6日 1:25PM, Dadim Pozharskyi &lt;[\[email protected\]](/cdn-cgi/l/email-protection#5c2a722c3326343d2e2f3725357229372e3d3532391c3b3d313530723f3331)&gt; 写到：
 
-（文章内容仅代表作者个人观点）
+亲爱的亨特，
 
+请查收附件中我们商量过的新闻稿。
+请您修改并补充内容。
 
+期待得到您的回复。
+致敬， Vadym
 
-0
+发自我的iPad 
+&lt;新闻稿  HB.docx&gt;
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29125517/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%884.55.04.png)
+**日期：**2014年5月7日  上午1:31      
+**发件人：**Devon Archer
+**主题：**回复： HB 布利斯玛新闻稿
+**收件人： **Vadim Pozharskyi   **抄送：**亨特·拜登
+
+Vadim:
+
+亨特刚刚搭上去往北京的飞机，去参加渤海股东会议。（他会在那里与我们中国海洋石油总公司的合作伙伴进行会晤并提名一位。）我们很快会回来。
+
+感谢你的新闻概要，我会快速过目。非常有用，我也抄送给了Boies。
+
+Devon Archer
+646 436 ….
+
+2014年5月6日，下午1:25， Vadim Pozharskyi  &lt;[\[email protected\]](/cdn-cgi/l/email-protection#d7a1f9a7b8adbfb6a5a4bcaef9a2bca5b6beb9b297b0bab6bef9b4b8ba) &gt;写到：
+
+亲爱的亨特：
+请查收附件中我们商量过的新闻稿。
+请您修改并补充内容。
+
+期待您的回复。
+感谢,
+
+Vadym
+发自iPhone
+&lt;新闻稿 HB.docx&gt;
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29130730/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%884.31.04.png)
+日期：2014年5月7日 下午3:51
+发件人：Vadim Pozharskyi  
+主题：回复：HB 布利斯玛新闻稿
+
+收件人：亨特 拜登     抄送： Devon Archer
+
+亲爱的亨特，感谢您的回复。
+期待您对新闻稿的修改。
+
+另外，您那边对新闻备忘录的格式和内容上，有哪些我们需要作调整来适应您的要求吗？
+
+期待您在中国顺利，会把您的信息转达给 Nikolay.
+祝福， Vadym
+
+发自iPad 
+2014年5月7日，10:41，亨特·拜登 &lt;[\[email protected\]](/cdn-cgi/l/email-protection#e58d878c81808ba5978a9680888a8b9196808b808684cb8688)&gt; 写到：
+
+Vadim-
+刚刚到达北京，我会在12小时左右给你回复修改的内容。感谢你的更新备忘录，非常有用。我在北京，其中一个主要原因是去商量布利斯玛与中国海洋石油总公司的合作。请告知 Nikolay 我很高兴能加入团队，我们往后还有很多事情要做，但这是很好的机会。
+
+罗伯特·亨特·拜登 
+202.333.1880
+
+2014年5月7日， 下午3:21， Vadim Pozharskyi&lt; [\[email protected\]](/cdn-cgi/l/email-protection#82f4acf2edf8eae3f0f1e9fbacf7e9f0e3ebece7c2e5efe3ebace1edef)&gt; 写到：
+
+好的，谢谢您
+期待亨特那边的确认。
+
+祝福，Vadym
+发自iPad
+
+2014年5月6日，23:30，Devon Archer&lt;[\[email protected\]…com](/cdn-cgi/l/email-protection#610500130209041321130e12040c0e0f1512040f0402004f020e0c)&gt; 写到：
+
+感谢，Vadim。我想我们在给我们的朋友及支持者们发出了一个强有力信号。
+
+Devon Archer
+646 436。。。
+
+2014年5月6日，下午2:38， Vadim Pozharskyi&lt; [\[email protected\]](/cdn-cgi/l/email-protection#0f79217f6075676e7d7c6476217a647d6e66616a4f68626e66216c6062)&gt; 写到：
+
+感谢 Devon,
+
+就新闻发布稿来说，您有什么大体意见？
+发自 iPad
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29135329/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%884.31.53.png)
+2014年5月6日，20:31, Devon Archer&lt;[email protected]&gt; 写到：
+
+Vadim:
+亨特刚刚搭上去往北京的飞机，去参加渤海股东会议。（他会在那里与我们中国海洋石油总公司的合作伙伴进行会晤并提名一位。）我们很快会回来。
+
+感谢你的新闻概要。我会在快速过目。非常有用，我也抄送给了Boies.
+
+Devon Archer
+646 436….
+
+2014年5月6日，下午1:25， Vadim Pozharskyi  &lt;[\[email protected\]](/cdn-cgi/l/email-protection#06702876697c6e6774756d7f28736d74676f686346616b676f2865696b) &gt;写到：
+
+亲爱的亨特：
+请查收附件中我们商量过的新闻稿。
+请您修改并补充内容。
+期待您的回复。
+
+感谢,Vadym
+发自iPhone
+&lt;新闻稿 HB.docx&gt;
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29140451/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%886.04.35.png)
+时间：2014年5月7日 下午3:21
+发件人：Vadim Pozharskyi
+主题：Re:HB 布利斯玛新闻稿
+收件人: Devon Archer,  抄送：Hunter Biden
+
+好的，谢谢您。
+期待亨特那边的确认。
+祝福，Vadym
+发自iPad
+
+2014年5月6日23:30, Devon Archer &lt;[email protected]…&gt; 写到：
+
+感谢Vadim, 我想我们在给我们的朋友及支持者们发出了一个强有力信号。
+
+Devon Archer
+646 436
+
+2014年5月6日 2:38PM, Vadim Pozharskyi &lt;[\[email protected\]](/cdn-cgi/l/email-protection#e294cc928d988a839091899b8bcc978990838b8c87a285838f8b8ecc818d8f)&gt; 写到:
+
+感谢 Devon,
+
+就新闻发布稿来说，您有什么大体意见？
+发自ipad
+
+2014年5月6日，20:31，Devon Archer [email protected] 写到：
+
+Vadim,
+
+亨特刚刚搭上去往北京的飞机，去参加渤海股东会议。（他会在那里与我们中国海洋石油总公司的合作伙伴进行会晤并提名一位。）我们很快会回来。
+
+感谢你的新闻概要，我会快速过目。非常有用，我也抄送给了Boies。
+
+谢谢。
+
+Devon Archer
+646 436。。。
+
+2014年5月6日 1:25PM, Dadim Pozharskyi &lt;[\[email protected\]](/cdn-cgi/l/email-protection#50267e203f2a383122233b29397e253b2231393e351037313d393c7e333f3d)&gt; 写到：
+
+亲爱的亨特，
+请查收附件中我们商量过的新闻稿。
+请您修改并补充内容。
+期待得到您的回复。
+
+致敬，Vadym
+&lt;新闻稿  HB.docx&gt;
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29141358/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%886.13.40.png)
+时间：2014年5月7日 上午4:30
+发件人：Devon Archer 
+主题：Re:HB 布利斯玛新闻稿
+收件人: Vadim Pozharskyi,  抄送：Hunter Biden
+
+感谢Vadim, 我想我们在给我们的朋友及支持者们发出了一个强有力信号。
+
+Devon Archer
+646 436
+
+2014年5月6日 2:38PM, Vadim Pozharskyi &lt;[\[email protected\]](/cdn-cgi/l/email-protection#89ffa7f9e6f3e1e8fbfae2f0e0a7fce2fbe8e0e7ecc9eee8e4e0e5a7eae6e4)&gt; 写到:
+
+感谢 Devon,
+就新闻发布稿来说，您有什么大体意见？
+发自iPad
+
+2014年5月6日，20:31，Devon Archer &lt;[email protected]&gt; 写到：
+
+Vadim,
+亨特刚刚搭上去往北京的飞机，去参加渤海股东会议。（他会在那里与我们中国海洋石油总公司的合作伙伴进行会晤并提名一位。）我们很快会回来。
+感谢你的新闻概要，我会快速过目。非常有用，我也抄送给了Boies。
+谢谢。
+
+Devon Archer
+646 436
+
+2014年5月6日 1:25PM, Dadim Pozharskyi &lt;[\[email protected\]](/cdn-cgi/l/email-protection#6e18401e0114060f1c1d051707401b051c0f07000b2e090f030702400d0103)&gt; 写到：
+
+亲爱的亨特，
+请查收附件中我们商量过的新闻稿。
+请您修改并补充内容。
+
+期待得到您的回复。
+致敬， Vadym
+&lt;新闻稿  HB.docx&gt;
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29141836/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%886.18.25.png)
+日期：2014年5月7日，下午4:06
+发件人： Devon Archer
+主题：Re:HB 布利斯玛新闻稿
+收件人：亨特·拜登
+
+没有问题。他们显然会照我们说的做，所以（甚至不需要）不要把它当成是反驳(提出修改要求)。是的，我同意。
+
+Devon Archer
+646 436
+
+2014年5月7日，上午 3:28  亨特·拜登&lt;[\[email protected\]](/cdn-cgi/l/email-protection#8ae2e8e3eeefe4caf8e5f9efe7e5e4fef9efe4efe9eba4e9e5e7)&gt; 写到：
+
+Devon,
+你能不能让Seb编辑一下—只做语法和小改动，诸如我到商务部前曾在美信银行(MBNA)工作那样。我也不喜欢“XX儿子”这行。我认为在背景方面，让人们自己得出结论或给出结论要有效得多。但作为来自布利斯玛公司(Burisma)的声明的一部分，这似乎过于严厉和直接。此外，如果他们想展示我在外交政策方面的信誉，他们应该包括（接受）我作为美国全球领导力联盟(US Global Leadership Coalition)、国家政策中心(Center for National policy)以及国家民主党研究所（国际事务全国民主研究所）(National Democratic Institute)主席(玛德琳·奥尔布赖特Madeline Albright)顾问委员会主任的角色，但最重要的就是不认可声明中（是谁）儿子的提法。如果他们想说得更隐晦一些，他们可以说一些类似于拜登先生曾于2008年担任奥巴马-拜登就职委员会的名誉联合主席的话。
+
+罗伯特.亨特.拜登
+202.33.1880
+
+2014年5月6日23:30, Devon Archer &lt;[email protected]&gt; 写到：
+
+感谢Vadim, 我想我们在给我们的朋友及支持者们发出了一个强有力信号。
+Devon Archer
+646 436
+
+2014年5月6日 2:38PM, Vadim Pozharskyi &lt;[\[email protected\]](/cdn-cgi/l/email-protection#0c7a227c6376646d7e7f6775652279677e6d6562694c6b6d616560226f6361)&gt; 写到:
+
+感谢 Devon,
+就新闻发布稿来说，您有什么大体意见？
+
+2014年5月6日，20:31，Devon Archer [email protected]。。 写到：
+
+Vadim,
+亨特刚刚搭上去往北京的飞机，去参加渤海股东会议。（他会在那里与我们中国海洋石油总公司的合作伙伴进行会晤并提名一位。）我们很快会回来。
+感谢你的新闻概要，我会快速过目。非常有用，我也抄送给了Boies。
+
+谢谢。
+
+Devon Archer
+646 436
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29142302/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%886.22.46.png)
+2014年5月6日 1:25PM, Dadim Pozharskyi &lt;[\[email protected\]](/cdn-cgi/l/email-protection#0b7d257b6471636a7978607262257e60796a62656e4b6c6a66626725686466)&gt; 写到：
+
+亲爱的亨特，
+请查收附件中我们商量过的新闻稿。
+请您修改并补充内容。
+期待得到您的回复。
+致敬， 
+Vadym
+&lt;新闻稿  HB.docx&gt;
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29142705/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%886.26.30.png)
+日期：2014年5月13日，下午10:45
+发件人：Heather King, Esq.
+主题：RE：HB 布利斯玛新闻媒体
+收件人：Devon Archer   抄送：亨特·拜登
+
+你是说乌克兰的那些媒体 吗？我看到在美国的一些博客/ 聊天室之类的网站上偶尔有些疯狂的人会关注它，但是没什么合法（合理）的
+
+Heather King Eaq.
+合伙人
+BOIES,SCHILLER&FLEXNER LLP
+53..W…
+202-27…(电话)
+202-2…（传真）
+
+——–原文——-
+
+发件人：Devon Archer&lt;邮箱[email protected]。。.com&gt;
+发送时间：星期二 2014年5月13日 上午10：42
+收件人:Heather King
+抄送：亨特·拜登
+主题：HB 布利斯玛新闻媒体
+
+亨特.拜登加入董事会引起了一些媒体的注意. 我们要小心.
+
+Devon Archer
+646 4…
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29143352/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%886.33.21.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29143404/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%886.33.36.png)
+1+

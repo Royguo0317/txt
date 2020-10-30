@@ -1,24 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登第三波: 硬盘邮件解密17 2014年3月6日德文·阿彻致函亨特·拜登，告知其正在接触乌克兰天然气公司Burisma的所有人寻找机会。但是目前首要仍然是渤海
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/501765/)
+## 川普总统连任系列三:川普总统领导下的经济增长率创70年最高记录
+` GM101` [轉載自GNews](https://gnews.org/zh-hans/501840/)
 
-前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
+美东时间10月29号，美国政府白宫官网发布“川普总统领导下的经济复苏打破70年记录”的新闻。该新闻表示2020年美国第三季度实际GDP的年增长率为33.1％，GDP的增长几乎是70年前最高纪录的两倍，创下历史新高。
 
-**亨特拜登第三波：硬盘邮件解密
-2014年3月6日德文·阿彻致函亨特·拜登，告知其正在接触乌克兰天然气公司Burisma的所有人寻找机会。但是目前首要仍然是渤海。 **
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29232354/Screen-Shot-2020-10-29-at-8.18.48-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29233354/Screen-Shot-2020-10-29-at-8.33.28-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29220935/Screen-Shot-2020-10-30-at-12.09.13-pm.png)
-**参考资料**:
+该新闻指出川普总统的成功为以下两个原因：
 
-[https://conservapedia.com/Devon\_Archer](https://conservapedia.com/Devon_Archer)
-
-[https://conservapedia.com/Hunter\_Biden](https://conservapedia.com/Hunter_Biden)
-
-**Download:**
-
-[**2014年3月6日德文·阿彻致函亨特·拜登，告知其正在接触乌克兰天然气公司Burisma的所有人寻找机会。但是目前首要仍然是渤海。 **](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29232551/30-burisma-%E6%A0%A1%E5%AF%B9.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29232551/30-burisma-%E6%A0%A1%E5%AF%B9.pdf)
+1. 川普总统亲增长、亲工人的行动使美国的经济基础更加牢固。在冠状病毒席卷全球之前，美国的收入在2019年创历史新高，而贫困率创下历史新低。中层收入是有史以来最大的一年增长；
+2. 冠状病毒袭击后，川普政府采取了有针对性的行动，与CARES法案进行了谈判，实施了“薪资保护计划”以挽救工作和扩大补充失业救济金，暂停学生还贷并停止驱逐；
 
 
+新闻进一步指出左派企图效仿欧洲，实行无休止的封锁，并以大流行为借口加强政府权利。而川普总统希望继续与私营部门合作，保护最弱势群体，并安全地重新开放经济和学校，GDP报告的数据证明了川普总统连任的必要性。
 
 0

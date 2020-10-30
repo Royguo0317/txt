@@ -1,65 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【台风巨眼】瓦蒂姆-波扎尔斯基给亨特拜登邮件谈寄相框一事
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/501330/)
+## 【中英文视频版】2020/10/22 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/501164/)
 
-作者：香草山写作组Kathy（文艺）
+1. 美国安全部20日称中共幕后支持黑客破坏美国网络安全。
+2. 以警治国：2019年全国的”维稳费”，将近一万四千亿元，共产党不仅将医疗、教育产业化增加人民生活负担，同时还拿着纳税人的钱镇压纳税人。 在视频，我们看到了某个小县城里的一只维稳队伍，估计有近百人。
+3. 统治危机，中共对老百姓的恐惧和无处不在的监控：2020年9月25日通过《北京市燃气管理条例》，北京实行购买瓶装煤气实名制，新疆的菜刀早就需要实名登记，现在北京买煤气瓶也要实名登记。
+4. 中共国灭绝人性的教育：强迫孩子在爷爷、奶奶、外公、外婆、爸爸、妈妈、兄弟、姐妹、亲戚、朋友之间选择，最后只能活一个人，孩子将一个个亲朋在黑板上划去，最后只剩下爸爸活下来，最后泪流满面。
+5. （路德社，10/21）亨特·拜登那次跟乔·拜登，最早第一次到那里。 就见了车峰，就在盘古酒店。 当时车峰是带着一个任务的，把亨特·拜登搞定。 但亨特·拜登一坐下来，张口就说，我很穷啊，怎么搞钱，我要钱，我看好某某房子，要一到两个亿美元，大概意思是这样，有没有女孩子。 所以说，他（车峰）说，这也太快了吧，玩这么主动，不叫上钩啊。 完全是自己主动往钩上撞啊。 这是第一次啊。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28173039/logo-1.jpg)
-
-
-
-
-
-2020年10月29日，爆料革命平台GTV, Gnews等借助秘密翻译组曝出一封写于2015年6月19日的邮件，此邮件只谈了一件小事，主题是关于“塞浦路斯董事会会议相框照片邮寄”。但邮件的相关人却来头不小。发送人是瓦蒂姆-波扎尔斯基，发给亨特-拜登，德文-阿彻，抄送塞巴斯蒂安-莫塔齐，凯蒂-道奇等人。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29205533/185-%E3%80%90%E5%8F%B0%E9%A3%8E%E5%B7%A8%E7%9C%BC%E3%80%91%E7%93%A6%E8%92%82%E5%A7%86-%E6%B3%A2%E6%89%8E%E5%B0%94%E6%96%AF%E5%9F%BA%E7%BB%99%E4%BA%A8%E7%89%B9%E6%8B%9C%E7%99%BB%E9%82%AE%E4%BB%B6%E8%B0%88%E5%AF%84%E7%9B%B8%E6%A1%86%E4%B8%80%E4%BA%8B-1.jpg)
-邮件内容如下：
-
-诸位先生，
-
-希望你们都很好。我们给上次董事会会议的照片镶嵌了订制的相框，想用联邦快递发给你们。恳请各位告知邮寄地址？（罗斯蒙特纽约，华盛顿的地址还是你家里）
-
-期待回复。
-
-良好祝愿，
-
-瓦蒂姆
-
-英文如下：
-
-From:Vadim Pozharskyi
-
-Date:June 19, 2015 10:54:06
-
-To Hunter Biden, Devon Archer.Cc:Sebastian Momtazi, Katie Dodge
-
-Subject:framed Cyprus BoD meeting photo delivery
-
-Gents，
-
-Hope，you are well.We had a BoD photo from the previous meeting put into custom-made frame and would love to fedex it to you. Could you kindly tell me where best to send it to? （ Rosemont NY and Washiington addresses or your house ones)
-
-Looking forward to your fedback!
-
-Best,
-
-Vadym
-
-注：邮件中人物
-
-Vadim Pozharskyi:（瓦蒂姆-波扎尔斯基）：乌克兰天然气公司Burisma董事会成员。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29205551/185-%E3%80%90%E5%8F%B0%E9%A3%8E%E5%B7%A8%E7%9C%BC%E3%80%91%E7%93%A6%E8%92%82%E5%A7%86-%E6%B3%A2%E6%89%8E%E5%B0%94%E6%96%AF%E5%9F%BA%E7%BB%99%E4%BA%A8%E7%89%B9%E6%8B%9C%E7%99%BB%E9%82%AE%E4%BB%B6%E8%B0%88%E5%AF%84%E7%9B%B8%E6%A1%86%E4%B8%80%E4%BA%8B-2.jpg)
-Devon Archer: （德文-阿彻）：亨特-拜登的商业伙伴。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29205609/185-%E3%80%90%E5%8F%B0%E9%A3%8E%E5%B7%A8%E7%9C%BC%E3%80%91%E7%93%A6%E8%92%82%E5%A7%86-%E6%B3%A2%E6%89%8E%E5%B0%94%E6%96%AF%E5%9F%BA%E7%BB%99%E4%BA%A8%E7%89%B9%E6%8B%9C%E7%99%BB%E9%82%AE%E4%BB%B6%E8%B0%88%E5%AF%84%E7%9B%B8%E6%A1%86%E4%B8%80%E4%BA%8B-3.jpg)
-Sabastian Momtazi(赛巴蒂斯安-莫塔齐）：不详。
-
-Katie Dodge(凯蒂-道奇）：不详。
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayanyM)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，免费英语教学，美东时间周一至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

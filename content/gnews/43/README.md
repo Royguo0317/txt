@@ -1,48 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “彤宝国”们被枪杀 推特封杀 真相之殇 文明之殇
-` 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hans/500053/)
+## 东莞美得丽家具厂员工为打造铁军团跪地自扇耳光是不是自愿的
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/500259/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29133311/Picture1-50.png)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29142524/%E5%B0%81%E9%9D%A2-6.png)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
+据Kyle [email protected]先生于[2020年10月29日下午8：52](https://twitter.com/Jkylebass/status/1321796940456169473)发布的推文
 
+Working conditions with chinese characteristics…it’s time to worry. [#China](https://twitter.com/hashtag/China?src=hashtag_click) [#peakform](https://twitter.com/hashtag/peakform?src=hashtag_click) （中文大意：具有中国特色的工作条件…到了令人担忧的时刻了。 ＃中国＃峰值）SCMP [email protected][下午3:25 · 2020年10月29日](https://twitter.com/SCMPNews/status/1321714804860416001)·[Twitter Media Studio](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)
 
-
-在文明世界，人权大于主权。这是对生命的尊重，对造物主的敬畏。在动物世界里，我们可以看见不同类的动物可以和谐相处或者救助弱小。在魔鬼的世界，才有同类残害荼毒生命。对于一个正常有人性的人，当看到弱者被欺辱，生命被残害时会本能地出手救助或者想把这些邪恶的事情传播出去，盼望正义公正的力量可以出手相助。当勇敢说出恶行真相的人被出卖被枪杀，人类的文明人性良知被黑暗彻底遮盖了。
-
-### **中共封杀真相“彤宝国”们被枪杀**
-
-2020年10月19日，路德社在纽约时间早上8点多的路安墨谈[\[i\]](//E400A53A-EDBC-4450-BD7C-74B6722A0C3E#_edn1)里第一次提到CIA在中国的线人被枪杀：36名中国安全部工作人员“彤宝国”们和20多个外围工作人员。他们因为工作机会看到中共最高机密，惨绝人寰的恶行，希望可以把这些真相通过CIA传递到美国，推翻中共这个邪恶政权，建立一个自由民主文明的中国。但是他们的信息被拜登出卖给中国最高领导人，这些希望能把真相传出去的人们被以开会的名义被叫到办公室直接枪决，包括还有十几天就生产的孕妇。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29133348/Picture2-36.png)
-墨博士说：这些人有人性的良知，有判断是非和反思思维，也是有能力的。他们被枪杀，让所有跟这些有类似经历的人失去了对美国公正国家的信心。
-
-### **美媒推特封推禁号 ****个人声音在网络世界的被封喉**
-
-2020年10月24日上午， GTV和GNews推出亨特拜登的不雅图片和他与中共高层有生意往来的文件和签字，这些图片证实爆料革命在两年前发出的对美国的提醒：中共在多年之前逐步实施蓝金黄美国的计划，并且进行地非常成功[\[ii\]](//E400A53A-EDBC-4450-BD7C-74B6722A0C3E#_edn2)。 这些信息如惊雷在推特上快速转发，随着信息广传，到纽约时间傍晚，许多转发这些信息的推特号被封推禁言。还有一些几天没有活动的推特号，只是以前转推过爆料革命的信息，和闫丽梦博士关于新冠病毒的两份科学报告信息的推号也被封，就像中国古代的岳飞被“莫须有”的罪名处死，这些在网络世界传播真相的真实世界的个人存在，被以封号禁言的方式在网络世界封喉。真相被截停。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29133516/Picture3-21.png)
+These Chinese workers were seen kneeling and slapping themselves – all so their company could build an “iron army”（中文大意：这些中国工人们被看到跪地扇耳光——这样他们的公司就可以建成一支铁军了）
 
 
-随着这几天路德社信息的继续深挖，CIA爆料人出现[\[iii\]](//E400A53A-EDBC-4450-BD7C-74B6722A0C3E#_edn3)，拜登家族的CEO接受采访[\[iv\]](//E400A53A-EDBC-4450-BD7C-74B6722A0C3E#_edn4)，爆出乔拜登是亨特拜登与中共有生意往来真正的大人物。笔者不明白，美国正在大选，民众需要真实的信息去判断选出哪一位总统，为什么推特会用和中国大陆很多媒体一样的方式封锁消息呢？
 
-### **真相之殇 ****文明之殇**
+> Working conditions with chinese characteristics…it’s time to worry. [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [#peakform](https://twitter.com/hashtag/peakform?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/55B8Hrwobl](https://t.co/55B8Hrwobl)
+> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [October 29, 2020](https://twitter.com/Jkylebass/status/1321796940456169473?ref_src=twsrc%5Etfw)
 
-36个CIA的中国线人“彤宝国”们和20多个外围公安部人员被枪杀，牵扯到乔拜登出卖这些人的信息给中共高层；亨特拜登的不雅图片，已经牵扯到美国的前政要，这些图片是谁在哪里拍摄，前后还有哪些事情发生？亨特和中共高层的的生意已经牵扯到乔拜登，还会连接到哪些人和桌子底下的交易？
 
-当美国两党大选民众都需要真相做出决策投票时，这些本该报道真相的媒体，你们为什么要封杀真相？
 
-在美国，这个高举自由火炬女神屹立的地方，如果真相不能被传播，恶行不能被揭发，人们会失去对公正、法治和自由的信心。
+对照凯尔.巴斯先生转推的这则推文里的视频，在国内的网站上可以查到的视频来源如下（由于视频版权原因，不再附上原始视频）：
 
-真相之殇！文明之殇！
+[【家具厂培训员工集体跪地扇耳光 厂家回应：主题心灵成长，打造铁军团】10月27日，广东东莞。一段员工集体跪地自扇耳](https://haokan.baidu.com/v?pd=wisenatural&amp;vid=4225410477750455863)（封面新闻 发布时间：2020年10月27日）
 
-* * *
+同样引用这段视频的[财经网](https://weibo.com/1642088277?refer_flag=1001030103_) [10月28日 09:02](https://weibo.com/1642088277/Jrf3C1BTf?from=page_1002061642088277_profile&amp;wvr=6&amp;mod=weibotime) 新浪微博发布的文字内容是：
 
-[\[i\]](//E400A53A-EDBC-4450-BD7C-74B6722A0C3E#_ednref1) https://youtu.be/CHQPB5uywto
+[#崇尚狼性文化的企业值得去吗#](https://s.weibo.com/weibo?q=%23%E5%B4%87%E5%B0%9A%E7%8B%BC%E6%80%A7%E6%96%87%E5%8C%96%E7%9A%84%E4%BC%81%E4%B8%9A%E5%80%BC%E5%BE%97%E5%8E%BB%E5%90%97%23)【[#家具厂培训员工跪地自扇耳光#](https://s.weibo.com/weibo?q=%23%E5%AE%B6%E5%85%B7%E5%8E%82%E5%9F%B9%E8%AE%AD%E5%91%98%E5%B7%A5%E8%B7%AA%E5%9C%B0%E8%87%AA%E6%89%87%E8%80%B3%E5%85%89%23) ，厂家：主题心灵成长，打造铁军团，是他们自愿的】10月27日，广东东莞一段员工集体跪地自扇耳光的视频在网上流传。据了解，该视频内容是10月21日某家具厂经销商培训会，一群人身着工服情绪激昂跪地自扇耳光，更有人脱去上衣一边喊着口号一边双手拍地。该家具厂称，培训的主题是心灵成长，为了打造铁军团，让员工们激发最巅峰的状态，是他们自愿的。 [@漩涡视频](https://weibo.com/n/%E6%BC%A9%E6%B6%A1%E8%A7%86%E9%A2%91) [L漩涡视频的微博视频](http://t.cn/A6bD0ur3) [收起全文d](void%280%29;)
 
-[\[ii\]](//E400A53A-EDBC-4450-BD7C-74B6722A0C3E#_ednref2) https://gtv.org//?videoid=5f94a73b04b26243e0d30dbc
+如果通过这样的方式可以打造钢铁军团和巅峰状态，那东莞美得丽家具厂的董事长和高管成员们可不可以通过向全体员工下跪、自扇耳光、脱光上衣来展示他们的钢铁意志和巅峰状态呢？在东莞美得利的高管们习惯于向他们更高的阶层下跪、自扇耳光的时候，他们是自愿的，基于这种习惯和自愿，他们也会把下游的经销商或者员工的集体下跪、自扇耳光视为自愿，并且还要美其名曰打造铁军团、激发最巅峰的状态——他们都病了，而且是自愿的病了！
 
-[\[iii\]](//E400A53A-EDBC-4450-BD7C-74B6722A0C3E#_ednref3) https://youtu.be/zfpRmic6EX8
+（文章内容仅代表作者个人观点）
 
-[\[iv\]](//E400A53A-EDBC-4450-BD7C-74B6722A0C3E#_ednref4) https://youtu.be/GGP0WaraiAQ
-
-1+
+0

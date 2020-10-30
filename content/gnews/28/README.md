@@ -1,37 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登第三波: 硬盘邮件解密11 2014年5月13日 亨特·拜登成为布利斯马公司董事一事引起媒体关注,亨特前合伙人德文·阿彻发电邮给纽约本地律师事务律师,提醒大家需注意观察
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/500904/)
+## 【4】硬盘第三波烧脑风暴来袭！亨特拜登向合伙人的表白——“你比亲兄弟以外的任何人都支持我”
+` GM01` [轉載自GNews](https://gnews.org/zh-hans/501093/)
 
-前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
+在经历了近几天“小视频”“小图片”的洗礼，大家一定被吸足了眼球！现在真正的烧脑风暴来了！你准备好了吗？接下来铁一般的证据，山一般的证明逐一清晰展示了中美两国盗国贼对人类的威胁和伤害！对法律的无视！以及对女性的侮辱甚至奴役变态！他们的人性已完全丧失！
 
-**亨特拜登第三波：
-2014年5月13日 亨特·拜登媒体关注：亨特·拜登成为布利斯马公司董事一事引起媒体关注，德文·阿彻（亨特前生意合伙人）发电邮给纽约本地律师事务律师，抄送亨特拜登，提醒大家需注意观察**
+其实硬盘中还有绝大部分的视频因涉及到极为敏感，极为不人道，极为残忍的画面无法播放，将随后再进行处理。
 
-### **邮件：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29171839/Screen-Shot-2020-10-30-at-7.17.46-am.png)
-### **邮件中文翻译如下：**
+现在将为大家呈现Burisma与亨特拜登和中共之间勾兑的铁一般的事实，包括文件和Email的往来，以及相关人物往来！希望全世界有良知的战友都来关注。如果这样的事情不被揭发，人类将全面走向黑暗！
 
-**发件人：**德文・阿彻 &lt;[email protected]…….com&gt;
-**时间：**5/13/2014 10:41 AM
-**收件人: **希赫・金， 亨特・拜登
-**主题：**亨特加入布利斯马引起媒体关注
-
-HB（亨特・拜登） 加入董事会一事正引起某些媒体的关注。咱们注意观察。
-
-Devon Archer
-[…]
-
-### **邮件任务介绍/分析**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29173137/Screen-Shot-2020-10-30-at-7.31.18-am.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29173141/Screen-Shot-2020-10-30-at-7.31.26-am.png)
-**参考资料:**
-
-- [https://conservapedia.com/Devon\_Archer](https://conservapedia.com/Devon_Archer)
-- [https://www.bsfllp.com/lawyers/heather-king.html](https://www.bsfllp.com/lawyers/heather-king.html)
-- [https://conservapedia.com/Hunter\_Biden](https://conservapedia.com/Hunter_Biden)
-
-
-[**2014年5月13日 亨特·拜登媒体关注：亨特·拜登成为布利斯马公司董事一事引起媒体关注，德文·阿彻（亨特前生意合伙人）发电邮给纽约本地律师事务律师，抄送亨特拜登，提醒大家需注意观察**](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29171948/27-HB-Burisma-press.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29171948/27-HB-Burisma-press.pdf)
-
+[点击下载PDF版本](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29191418/E4-15.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29191418/E4-15.pdf)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29191558/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8811.15.45.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29191640/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8811.16.23.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29191706/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8811.16.57.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29191738/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8811.17.29.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29191839/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8811.18.27.png)
 0
