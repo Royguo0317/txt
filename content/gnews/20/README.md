@@ -1,33 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】美日开启大型军演，防CCP于美大选期间铤而走险
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/502657/)
+## 亨特·拜登第三波: 硬盘邮件解密 20 2015年7月23日德文·阿彻给瓦迪姆·波扎尔斯要求其向亨特·拜登提供挪威之行的时间安排，以便他们尽快通知特勤局
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/502698/)
 
-作者：香草山写作组 人间世 校对/发稿：飞虹
+前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28173039/logo-1.jpg)
+**亨特·拜登第三波：硬盘邮件解密**
 
+**2015年7月23日德文·阿彻给瓦迪姆·波扎尔斯要求其向亨特·拜登提供挪威之行的时间安排，以便他们尽快通知特勤局**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30043234/Capture20-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30044443/Capture20-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30044603/Capture20-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30044647/Capture20-6.jpg)
+[2015年7月23日德文·阿彻给瓦迪姆·波扎尔斯要求其向亨特·拜登提供挪威之行的时间安排，以便他们尽快通知特勤局](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30043944/40-Norway-%E6%A0%A1%E5%AF%B9.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30043944/40-Norway-%E6%A0%A1%E5%AF%B9.pdf)
 
-
-美国和日本从周一(10月26日)开始在日本本土、冲绳和日本周边水域，展开陆海空大型军演。演习将持续到11月5日。《路德访谈》评论员Dr. Bo认为，此次军演的目的之一是震慑CCP，防止其乘美大选之机在周边地区制造事端。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30043331/%E5%9B%BE%E7%89%879-6.png)演习中的里根号航母（2020.10.28） 图片来源：dvidshub.net/ Gabriel Martinez
-综合德国之声和美国之音网站的消息，“锐剑-21”(Keen Sword 21) 是美日之间的联合军演，每两年举行一次。此次美日双方出动几十艘军舰、数百架军机和4.6万名陆海空军参加演习，可谓声势浩大。演习项目中首次增加了网络、电子战训练等内容。
-
-日本最大航空母舰“加贺号”全长248公尺，此次与美国航空母舰里根号(USS Ronald Reagan)及其配备的轰炸机一同参加演习。加贺号才刚结束在南中国海和印度洋的巡逻，预计从明年开始将会配备F-35闪电战斗机。
-
-据美国军人网站military.com的消息，驻日美军司令凯文·施耐德中将(Kevin Schneider)说，“尽管新冠病毒对全球造成了巨大的影响，但美日联盟依然正常运作，我们保持着战之能胜的状态”。
-
-路透社报道，日本陆上自卫队(GSDF)参谋长山崎幸二(Koji Yamazaki)将军表示: “日本周边的安全形势日益严峻。这次军演给我们一次机会，展现日美同盟的力量。” 双方都指出，中共国最近的动向让华府和东京都十分担忧，包括在香港实施《香港国安法》、在南海增加军事建设、军事行动骚扰台湾等。
-
-“锐剑-21”是日本新首相菅义伟上任以来的第一次军演。菅义伟上任后，强调日本要继续扩建军事力量，以对抗中共国威胁。菅义伟在本月访问了越南和印度尼西亚。这是日本为加强与东盟主要国家的之间的团结与合作而作出的努力的一部分。本月初，日本还在东京主办了美、日、印、澳“亚太四国”会议。华盛顿认为这四个国家组成了遏制中共国地区影响力增长的基本力量。CCP则谴责这四个国家试图组建针对中共国的“小北约”的动作。
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayanyM)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，免费英语教学，美东时间周一至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-2+
+0

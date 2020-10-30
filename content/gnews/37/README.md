@@ -1,25 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登第三波: 硬盘邮件解密 18 2014年5月5日亨特·拜登的另一个生意伙伴杰夫·库伯(参与了Burisma与墨西哥石油公司合作项目)询问他父亲乔·拜登是否与他们会面
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/501953/)
+## 美国大量主流媒体的真正面目就是”控制言论”
+` gewsTaiwan` [轉載自GNews](https://gnews.org/zh-hans/502260/)
 
-前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
+台灣農場 文旦
 
-**亨特·拜登第三波：硬盘邮件解密**
+（封面僅為示意圖）
 
-**2014年5月5日亨特·拜登的另一个生意伙伴杰夫·库伯（参与了Burisma与墨西哥石油公司合作项目）询问他父亲乔·拜登是否与他们会面 **
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30000659/Screen-Shot-2020-10-29-at-9.00.55-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30012703/Screen-Shot-2020-10-30-at-3.26.43-pm.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30012736/Screen-Shot-2020-10-30-at-3.27.10-pm.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30012738/Screen-Shot-2020-10-30-at-3.27.17-pm.png)
-**参考资料**:
+在美国大选如火如荼地进行时，”媒体”是一个重要的平台，在这个时刻，全世界了解了这些媒体道貌岸然的真实面目，”媒体”是属于第四方权力，不应该打压、屏蔽、删除、封锁其他不同的声音与言论，在这场选战中，只要有使用社交软体的人民，会有深刻的体验，传送川普诽闻与传送拜登诽闻的重大差异性，在这个现实之下，能让你了解这个媒体世界被污染的多严重，被勾结地有多严重，由此可知，在你今天之前的新闻呢???，在你今天之前的消息呢???，你会不会开始怀疑，以前得到的消息，是否正确，是否是假消息，是否是早与今天一样，只是那还不是”你”正在传替正确的消息，这是一个很可怕的事情，当你没遇这件事的话，那你所得到的资讯，是否正在影响你，影响你的一切，影响你的下一代的思想???，这都是为了让你盲目地相信”它们”这些”媒体”，你不能在怀疑了，你不能再让步了，对言论自由的破坏，活生生的出现在你面前，这将影响未来任何的爆料人，未来任何正义之声，未来你的安全，未来你的思想行为及”价值观”，会导致你们与其他人不一样而不知道，这就是”洗脑”，这样就要让你们便”盲目”，使他们的权力、利益能够持续”永续”，这才是最可怕的!!!
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30014023/%E5%9C%96%E7%89%87-1-8.png)
+清醒的你，传播真相吧，让更多人一同清醒，了解这最黑暗的时刻，了解这一切的真相，必须把这一切的真相，给更多人知道!!!
 
-- [https://gnews.org/zh-hans/500046/](https://gnews.org/zh-hans/500046/)
-- [https://conservapedia.com/Hunter\_Biden](https://conservapedia.com/Hunter_Biden)
+在这个时刻也开始有良善之人站了出来，正义之人站了出来，美国海关和边境保护局（US Customs and Border Protection）代理局长马克‧摩根（Mark Morgan）发推被封，格伦‧格林沃尔德（Glenn Greenwald）作出了离开《拦截报》（The Intercept）的决定，等拜登竞选团队的人陆续离开，合伙人出来爆料，这就是真相，这就是正义与良知，希望大家能够一起行动，一起传播世界真正的真相!!!
 
-
-
-
-[**2014年5月5日亨特·拜登的另一个生意伙伴杰夫·库伯（参与了Burisma与墨西哥石油公司合作项目）询问他父亲乔·拜登是否与他们会面**](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30000505/33-Is-your-dad-coming-here.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30000505/33-Is-your-dad-coming-here.pdf)
-
-
-
-0
+1+

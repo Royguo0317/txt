@@ -1,22 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 东北航空背后老板是邵景兰
-` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/501631/)
+## 亨特拜登第三波：硬盘邮件解密 17 2014年5月7日 星期三 瓦迪姆· 波扎尔斯基致函德文-阿彻和亨特-拜登商讨访问哈萨克斯坦期间的会议时间和会议内容安排及尼古拉的签证问题
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/502076/)
 
-内新闻：背靠背
+前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
 
-据华商晨报2007年10月31日报道，2005年11月21日，中国民用航空总局在其官方网站上发布了《关于辽宁寰江实业有限公司申请筹建东北航空有限公司情况的公示》，而后2006年1月，“东北航空”获地方初审，11月1日，“东北航空”将迎来公司的第一架飞机。
+**亨特拜登第三波：硬盘邮件解密**
 
-**东北航空股东情况**
-投资人方面，第一大股东为沈阳中瑞投资有限公司，以现金和实物的方式出资5440万元，出资比例占34%。第二大股东为四川航空集团公司，以现金方式出资5360万元，占33.5%。第三大股东有两位，分别是沈阳市人民政府国有资产监督管理委员会，以现金方式出资2600万元；辽宁寰江实业有限公司，以现金和实物方式出资2600万元，各占总投资的16.25%。而辽宁寰江实业有限公司则是辽宁省机场管理集团的下属公司，具有省级国资背景。
+**2014年5月7日 星期三 瓦迪姆· 波扎尔斯基致函德文-阿彻和亨特-拜登商讨访问哈萨克斯坦期间的会议时间和会议内容安排及尼古拉的签证问题 **
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30001227/d740b01e-470e-4975-acfb-91eb1a40b16c.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30003129/Screen-Shot-2020-10-29-at-9.28.03-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30003138/Screen-Shot-2020-10-29-at-9.28.09-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30003144/Screen-Shot-2020-10-29-at-9.28.14-PM.png)
 
-业内关于第一大股东“中瑞”的资料显示，该企业为民营企业，注册地在沈阳，负责人名叫邵景兰。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30003152/Screen-Shot-2020-10-29-at-9.28.18-PM.png)
+**Reference:**
 
-东北房地产界也有一位知名女性叫邵景兰，是沈阳华锐世纪企业集团董事长兼总经理。随后，华商晨报记者在华锐方面得到证实：“公司确实有参股东北航空的举动。”
+- [https://conservapedia.com/Devon\_Archer](https://conservapedia.com/Devon_Archer)
+- [https://conservapedia.com/Hunter\_Biden](https://conservapedia.com/Hunter_Biden)
+- [http://energysecurityforum.org/esf-council/92-vadym-pozharskyi](http://energysecurityforum.org/esf-council/92-vadym-pozharskyi)
 
-资料还显示，四川航空公司已同意向东北航空有限公司转让飞行人员30人，乘务员20人，机务人员6人，签派2人。股东之一辽宁寰江实业有限公司方面向记者透露东北航空第一条航线初步拟定执飞沈阳—成都。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30000702/image-191.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30003945/1-2-7.jpg)
-新闻来源：http://news.carnoc.com/list/91/91795.html
+
+[**2014年5月7日 星期三 瓦迪姆· 波扎尔斯基致函德文-阿彻和亨特-拜登商讨访问哈萨克斯坦期间的会议时间和会议内容安排及尼古拉的签证问题 **](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30001815/34-Kazahstan-visit_-visa-issue-.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30001815/34-Kazahstan-visit_-visa-issue-.pdf)
 
 0

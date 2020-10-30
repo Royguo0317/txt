@@ -1,24 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【精华版粤语快报】【路德社】10.28：钟翰林先生被捕背后隐藏的什么，塔克.卡森邮寄的关于拜登家族的犯罪资料神秘消失
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/502112/)
+## 重磅! 渤海华美(上海)股权投资基金管理有限公司, 董事会第十三次会议保密材料首次曝光!
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/502006/)
 
-【精华版粤语快报】【路德社】10.28：钟翰林先生被捕背后隐藏的什么，塔克.卡森邮寄的关于拜登家族的犯罪资料神秘消失
-
-制作单位：战友之家·粤语频道
-
-制作团队：路德二组（Andy Su、文乔、剪刀手）
-
-
-
-摘要：
-
-钟翰林先生被抓就是美国内部的人出卖了信息给香港黑警；塔克.卡森关于拜登家族的邮件丢失显示美国的黑暗力量不容小觑；中共问题专家分享他经历的蓝金黄
-
-原视频链接：
-
-10/29/2020 路德时评（路安墨谈）：TUCKER的拜登家族机密文件在邮寄过程消失了；美抓捕“猎狐行动”在美执法特工意味着什么？庄烈宏出卖重要信息，导致钟翰林被抓，罪名之一非法洗钱罪
+### **[渤海华美(上海)股权投资基金管理有限公司,
+董事会第十三次会议保密材料首次曝光!](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002909/Bohai-Harvest-RST-Chinese.pdf)**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002423/Bohai-Harvest-RST-Chinese_00.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002429/Bohai-Harvest-RST-Chinese_01.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002439/Bohai-Harvest-RST-Chinese_02.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002444/Bohai-Harvest-RST-Chinese_03.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002447/Bohai-Harvest-RST-Chinese_04.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002452/Bohai-Harvest-RST-Chinese_05.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002514/Bohai-Harvest-RST-Chinese_06.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002519/Bohai-Harvest-RST-Chinese_07.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002523/Bohai-Harvest-RST-Chinese_08.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002528/Bohai-Harvest-RST-Chinese_09.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002550/Bohai-Harvest-RST-Chinese_10.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002556/Bohai-Harvest-RST-Chinese_11.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002600/Bohai-Harvest-RST-Chinese_12.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002610/Bohai-Harvest-RST-Chinese_13.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002615/Bohai-Harvest-RST-Chinese_14.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002618/Bohai-Harvest-RST-Chinese_15.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002623/Bohai-Harvest-RST-Chinese_16.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002628/Bohai-Harvest-RST-Chinese_17.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002630/Bohai-Harvest-RST-Chinese_18.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002633/Bohai-Harvest-RST-Chinese_19.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002650/Bohai-Harvest-RST-Chinese_20.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002654/Bohai-Harvest-RST-Chinese_21.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002657/Bohai-Harvest-RST-Chinese_22.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002702/Bohai-Harvest-RST-Chinese_23.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002704/Bohai-Harvest-RST-Chinese_24.png)
+[**渤海华美(上海)股权投资基金管理有限公司, 董事会第十三次会议保密材料首次曝光!**](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002909/Bohai-Harvest-RST-Chinese.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002909/Bohai-Harvest-RST-Chinese.pdf)
 
 
 

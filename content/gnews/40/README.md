@@ -1,14 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅! 渤海华美(上海)股权投资基金管理有限公司, 董事会第十三次会议保密材料首次曝光!
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/502006/)
+## 新中国联邦电视台“爆料灭共”节目第三期之亨特·拜登背部纹身的秘密
+` GM64` [轉載自GNews](https://gnews.org/zh-hans/502157/)
 
-### **[渤海华美(上海)股权投资基金管理有限公司,
-董事会第十三次会议保密材料首次曝光!](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002909/Bohai-Harvest-RST-Chinese.pdf)**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002423/Bohai-Harvest-RST-Chinese_00.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002429/Bohai-Harvest-RST-Chinese_01.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002439/Bohai-Harvest-RST-Chinese_02.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002444/Bohai-Harvest-RST-Chinese_03.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002447/Bohai-Harvest-RST-Chinese_04.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002452/Bohai-Harvest-RST-Chinese_05.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002514/Bohai-Harvest-RST-Chinese_06.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002519/Bohai-Harvest-RST-Chinese_07.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002523/Bohai-Harvest-RST-Chinese_08.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002528/Bohai-Harvest-RST-Chinese_09.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002550/Bohai-Harvest-RST-Chinese_10.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002556/Bohai-Harvest-RST-Chinese_11.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002600/Bohai-Harvest-RST-Chinese_12.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002610/Bohai-Harvest-RST-Chinese_13.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002615/Bohai-Harvest-RST-Chinese_14.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002618/Bohai-Harvest-RST-Chinese_15.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002623/Bohai-Harvest-RST-Chinese_16.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002628/Bohai-Harvest-RST-Chinese_17.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002630/Bohai-Harvest-RST-Chinese_18.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002633/Bohai-Harvest-RST-Chinese_19.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002650/Bohai-Harvest-RST-Chinese_20.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002654/Bohai-Harvest-RST-Chinese_21.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002657/Bohai-Harvest-RST-Chinese_22.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002702/Bohai-Harvest-RST-Chinese_23.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002704/Bohai-Harvest-RST-Chinese_24.png)
-[**渤海华美(上海)股权投资基金管理有限公司, 董事会第十三次会议保密材料首次曝光!**](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002909/Bohai-Harvest-RST-Chinese.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002909/Bohai-Harvest-RST-Chinese.pdf)
+供稿 新中国联邦电视台
 
+更多详情请点击：[https://gtv.org/web/?videoid=5f995a05384a485bd9661849#/VideoPlay\_UI](https://gtv.org/web/?videoid=5f995a05384a485bd9661849#/VideoPlay_UI)
 
+更多精彩请关注：GTV频道新中国联邦电视台
+
+出自“三个硬盘”的内容在网络引起广泛关注，其中一张亨特·拜登自拍背部纹身的照片引发网络的热议和猜想。有网友指出，该照片中纹身图案与纽约州五指湖的卫星图完全一致，且脉络分支几乎完全相同。那其中是否隐藏着一些内幕呢？
+
+我们一起来关注今天的爆料内容。
+
+五指湖位于美国纽约州中西部，是由一组湖区狭长、长短不一的冰川湖组成，从地图上看形似手指而得名。据悉，亨特·拜登的母亲内莉亚·亨特（Neilia Hunter）的家乡在手指湖附近，是一个叫做斯卡尼阿特勒斯（Skaneateles）的湖边小镇。细心的观众一定会注意到，于2020年10月24日曝光的亨特·拜登与渤海华美（上海）投资基金管理有限公司的巨额贷款协议中，亨特·拜登就是通过一家名为斯卡尼阿特勒斯（Skaneateles）的公司，而持有BHR（渤海华美）10%的股权。可见这个地方对与亨特·拜登有重要意义。
+
+虽然亨特·拜登在一篇采访中透露，其纹身的原因是因为母亲在那里成长。但是随着亨特·拜登无数变态情色照片和拜登家族与中共勾兑事实的曝光，网友对此纹身有了更多的质疑。
+
+有网友在推特指出：“拜登纹身是纽约北部五指湖的精确地图……该地区以地下铁路隧道而闻名，该隧道用于运输奴隶，令人毛骨悚然的豪宅和废弃的军事掩体……”
+
+推文提到的地下铁路实则是一条500英里的秘密通道网络，当年是帮助美国南部的奴隶逃亡到加拿大境内的通道。而有网友指出，五指湖的地下通道正是一个地下奴隶交易市场。DAILY Messenger 去年11月也曾刊登了一篇关于五指湖区人口贩卖情况的报道。文中提到在美国纽约州五指湖区，贩卖人口的现象正在发生。
+
+路德社在直播中多次提到“三个硬盘”中含有大量亨特·拜登虐童的照片，而此前，纽约前市长朱利安尼先生在多次采访时…
+
+**中共和美国深层次的利益输送**
+
+10月25日GTV盖特社区揭秘了，2015年习近平访美期间与贾跃亭，王昕和拜登之间的关系的有关文件。内容显示：乐视网要求，安排习近平访问美国时参观乐视网在洛杉矶的公司或者帮助贾跃亭能在习近平出席的任何一场见面会上发言。许诺渤海华美（BHR）及其股东的好处：一是向BHR支付一次性咨询费。二是有机会参与乐视和北京汽车集团的共同投资，成为不少于35亿美元的洛杉矶/硅谷业务的股东。三是长期合作，参与乐视的海外收购，共同扩张海外“帝国”。
+
+通过23号的揭秘文件可知，渤海华美（BHR）通过借款方式给拜登家族，使其入股公司获得10%的股份。现在中共基因地图产品王昕（王岐山私生女）和亨特拜登利用中共权贵和拜登家族在美国的资源来处理“微妙”的请求，文件牵扯的高层和利益众多，涉及习近平家族、王岐山家族、美国前副总统拜登家族，这是很典型的利益输送和高层腐败。
+
+2015年正是乐视网进一步市场拓宽和海外资本运作的时间，乐视全业务总收入接近100亿元，同年5月乐视网市值超过1700亿元。乐视网的贾跃亭作为CCP权贵家族的白手套，听命于权贵集团的基因地图产品，并运用“蓝金黄”的手段渗透到了美国，通过与美国最高层做勾兑，奴役中国人，盗取美国人财富。这份文件只是冰山一角，随后的爆料会将越来越多视频、相片、文件的揭秘，会向全世界的人民展示真相，为被中共奴役70年的老百姓找回尊严。任何人盗取中国人的钱财，奴役中国人，玩弄中国人的子女，我们都绝不答应。揭秘这一切的目的就是要消灭中国共产党。
 
 0
