@@ -1,11 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《The Biden Crime Family-Who Are They-trailer 系列片之一Who Are They With Hunter》
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/503319/)
+## Warroom 454杰克·马克西：一封关于拜登家族支离破碎关系的邮件；乔·拜登利用并坑害了其家族30年
+` snow` [轉載自GNews](https://gnews.org/zh-hans/505187/)
 
-多伦多加喜农场 凯路团队特别组
+战友之家新闻译制组
+撰稿：GM64
 
 
+
+揭露了一封关于拜登家族支离破碎的关系的邮件。邮件透露了亨特痛苦的灵魂，以及乔·拜登利用并坑害了亨特和他的叔叔吉姆（詹姆斯·拜登）长达30年之久。并在信中明确表示对于吉姆和亨特来说停止糟蹋自己的唯一方式就是供出那个幕后大佬。
 
 0
