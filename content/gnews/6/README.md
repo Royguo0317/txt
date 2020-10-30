@@ -1,31 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 神秘的ZHANG BO- 出自地狱硬盘门邮件里的秘密
-` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/501695/)
+## 川普总统连任系列三:川普总统领导下的经济增长率创70年最高记录
+` GM101` [轉載自GNews](https://gnews.org/zh-hans/501840/)
 
-喜马拉雅的文雅 （喜澳雅典娜农场）
+美东时间10月29号，美国政府白宫官网发布“川普总统领导下的经济复苏打破70年记录”的新闻。该新闻表示2020年美国第三季度实际GDP的年增长率为33.1％，GDP的增长几乎是70年前最高纪录的两倍，创下历史新高。
 
+该新闻指出川普总统的成功为以下两个原因：
 
-
-随着第三波地狱硬盘中解密的邮件如冰山一角般浮出水面，乔拜登家族作为中共代理人的交易细节正在逐步勾勒出来。2015年8月4日，前美国副总统乔拜登的特别助理Francis Person发邮件给亨特拜登确认8月18-23日在海口和三亚度假的日期。根据路德节目提供的信息，疑似中共总书记习近平的代持者Zhang Bo,是接待亨特拜登的关键人物。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29230718/zhang-bo-property.jpg)
-不知是否是巧合，2019年11月4日英国每日邮报报道，32岁的中国亿万富翁Zhang Bo在短短2年内在悉尼下北岸抢购了六栋价值3700万澳元的悉尼豪宅。邻居称房子基本是空置。张先生是澳大利亚公民，来自中国广东省，没有办公室地址，也没有在线个人资料。两年前住在Wolli Creek并在此以西太平洋银行抵押贷款购置一所公寓。他其他所有房产均用现金购买。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29230706/zhangbo-property.jpg)
-网上公布出他在悉尼的房产和购买时间如下。。
-26 Beauty Point Road, $6.2million, purchased on June 6, 2017
-26 Euryalus Street, $8million, purchased on August 15, 2017
-8 Tivoli Street, $5.3million, purchased on January 4, 2018
-77 Bay Street, $7.65million, purchased on October 26, 2018
-69 Bay Street, $6.6million, purchased on May 24, 2019
-101 Bay Street, $3.075million, purchased on October 21, 2019
-
-（后续发文敬请关注）
+1. 川普总统亲增长、亲工人的行动使美国的经济基础更加牢固。在冠状病毒席卷全球之前，美国的收入在2019年创历史新高，而贫困率创下历史新低。中层收入是有史以来最大的一年增长；
+2. 冠状病毒袭击后，川普政府采取了有针对性的行动，与CARES法案进行了谈判，实施了“薪资保护计划”以挽救工作和扩大补充失业救济金，暂停学生还贷并停止驱逐；
 
 
-
-新闻和图片来源：路德社和DailyMail
-
-[https://www.dailymail.co.uk/news/article-7645695/Mystery-surrounds-Chinese-billionaire-snapped-six-Sydney-mansions-worth-37million.html](https://www.dailymail.co.uk/news/article-7645695/Mystery-surrounds-Chinese-billionaire-snapped-six-Sydney-mansions-worth-37million.html)
+新闻进一步指出左派企图效仿欧洲，实行无休止的封锁，并以大流行为借口加强政府权利。而川普总统希望继续与私营部门合作，保护最弱势群体，并安全地重新开放经济和学校，GDP报告的数据证明了川普总统连任的必要性。
 
 0

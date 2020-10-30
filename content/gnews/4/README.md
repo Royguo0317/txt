@@ -1,24 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特拜登第三波：硬盘邮件解密 17 2014年5月7日 星期三 瓦迪姆· 波扎尔斯基致函德文-阿彻和亨特-拜登商讨访问哈萨克斯坦期间的会议时间和会议内容安排及尼古拉的签证问题
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/502076/)
+## 重磅! 渤海华美(上海)股权投资基金管理有限公司, 董事会第十三次会议保密材料首次曝光!
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/502006/)
 
-前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
-
-**亨特拜登第三波：硬盘邮件解密**
-
-**2014年5月7日 星期三 瓦迪姆· 波扎尔斯基致函德文-阿彻和亨特-拜登商讨访问哈萨克斯坦期间的会议时间和会议内容安排及尼古拉的签证问题 **
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30001227/d740b01e-470e-4975-acfb-91eb1a40b16c.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30003129/Screen-Shot-2020-10-29-at-9.28.03-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30003138/Screen-Shot-2020-10-29-at-9.28.09-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30003144/Screen-Shot-2020-10-29-at-9.28.14-PM.png)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30003152/Screen-Shot-2020-10-29-at-9.28.18-PM.png)
-**Reference:**
-
-- [https://conservapedia.com/Devon\_Archer](https://conservapedia.com/Devon_Archer)
-- [https://conservapedia.com/Hunter\_Biden](https://conservapedia.com/Hunter_Biden)
-- [http://energysecurityforum.org/esf-council/92-vadym-pozharskyi](http://energysecurityforum.org/esf-council/92-vadym-pozharskyi)
+### **[渤海华美(上海)股权投资基金管理有限公司,
+董事会第十三次会议保密材料首次曝光!](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002909/Bohai-Harvest-RST-Chinese.pdf)**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002423/Bohai-Harvest-RST-Chinese_00.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002429/Bohai-Harvest-RST-Chinese_01.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002439/Bohai-Harvest-RST-Chinese_02.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002444/Bohai-Harvest-RST-Chinese_03.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002447/Bohai-Harvest-RST-Chinese_04.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002452/Bohai-Harvest-RST-Chinese_05.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002514/Bohai-Harvest-RST-Chinese_06.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002519/Bohai-Harvest-RST-Chinese_07.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002523/Bohai-Harvest-RST-Chinese_08.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002528/Bohai-Harvest-RST-Chinese_09.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002550/Bohai-Harvest-RST-Chinese_10.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002556/Bohai-Harvest-RST-Chinese_11.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002600/Bohai-Harvest-RST-Chinese_12.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002610/Bohai-Harvest-RST-Chinese_13.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002615/Bohai-Harvest-RST-Chinese_14.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002618/Bohai-Harvest-RST-Chinese_15.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002623/Bohai-Harvest-RST-Chinese_16.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002628/Bohai-Harvest-RST-Chinese_17.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002630/Bohai-Harvest-RST-Chinese_18.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002633/Bohai-Harvest-RST-Chinese_19.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002650/Bohai-Harvest-RST-Chinese_20.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002654/Bohai-Harvest-RST-Chinese_21.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002657/Bohai-Harvest-RST-Chinese_22.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002702/Bohai-Harvest-RST-Chinese_23.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002704/Bohai-Harvest-RST-Chinese_24.png)
+[**渤海华美(上海)股权投资基金管理有限公司, 董事会第十三次会议保密材料首次曝光!**](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002909/Bohai-Harvest-RST-Chinese.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30002909/Bohai-Harvest-RST-Chinese.pdf)
 
 
-[**2014年5月7日 星期三 瓦迪姆· 波扎尔斯基致函德文-阿彻和亨特-拜登商讨访问哈萨克斯坦期间的会议时间和会议内容安排及尼古拉的签证问题 **](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30001815/34-Kazahstan-visit_-visa-issue-.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30001815/34-Kazahstan-visit_-visa-issue-.pdf)
 
 0

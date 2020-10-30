@@ -1,15 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【4】硬盘第三波烧脑风暴来袭！亨特拜登向合伙人的表白——“你比亲兄弟以外的任何人都支持我”
-` GM01` [轉載自GNews](https://gnews.org/zh-hans/501093/)
+## 亨特·拜登第三波: 硬盘邮件解密14 2014年3月6日德文·阿彻致函亨特·拜登,告知其正在接触乌克兰天然气公司Burisma的所有人寻找机会,但是目前首要仍然是渤海。
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/501346/)
 
-在经历了近几天“小视频”“小图片”的洗礼，大家一定被吸足了眼球！现在真正的烧脑风暴来了！你准备好了吗？接下来铁一般的证据，山一般的证明逐一清晰展示了中美两国盗国贼对人类的威胁和伤害！对法律的无视！以及对女性的侮辱甚至奴役变态！他们的人性已完全丧失！
+前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
 
-其实硬盘中还有绝大部分的视频因涉及到极为敏感，极为不人道，极为残忍的画面无法播放，将随后再进行处理。
+**亨特拜登第三波：硬盘邮件解密
+2014年3月6日德文·阿彻致函亨特·拜登，告知其正在接触乌克兰天然气公司Burisma的所有人寻找机会。但是目前首要仍然是渤海。**
 
-现在将为大家呈现Burisma与亨特拜登和中共之间勾兑的铁一般的事实，包括文件和Email的往来，以及相关人物往来！希望全世界有良知的战友都来关注。如果这样的事情不被揭发，人类将全面走向黑暗！
+### **邮件：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29205811/Screen-Shot-2020-10-30-at-10.57.56-am.png)
+### **邮件中文翻译如下：**
 
-[点击下载PDF版本](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29191418/E4-15.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29191418/E4-15.pdf)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29191558/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8811.15.45.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29191640/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8811.16.23.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29191706/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8811.16.57.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29191738/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8811.17.29.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29191839/%E6%88%AA%E5%B1%8F2020-10-29-%E4%B8%8B%E5%8D%8811.18.27.png)
+**发件人：** 德文·阿彻
+**时间：**2014年3月6日 8:46AM
+**收件人：**亨特·拜登
+**主题：**http://burisma.com
+
+我在考察这个公司看看是否有机会。今天会和公司所有者开会然后晚上将共进晚餐。他显然压力很大，但是看着像是非常真实很好的一个人。我会打电话详述，但是目前首要是渤海。
+
+德文·阿彻
+6[…]
+
+### **邮件人物介绍/分析**：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29211628/Screen-Shot-2020-10-30-at-11.16.10-am.png)
+**参考资料：**
+
+- 
+
+
+[**2014年3月6日德文·阿彻致函亨特·拜登，告知其正在接触乌克兰天然气公司Burisma的所有人寻找机会。但是目前首要仍然是渤海。**](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29210138/30-burisma.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29210138/30-burisma.pdf)
+
 0
