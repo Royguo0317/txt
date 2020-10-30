@@ -1,35 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登第三波: 硬盘邮件解密14 2014年3月6日德文·阿彻致函亨特·拜登,告知其正在接触乌克兰天然气公司Burisma的所有人寻找机会,但是目前首要仍然是渤海。
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/501346/)
+## 【重磅新闻】拜登家族出卖美国的工作给中共
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/501373/)
 
-前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
+香草山综合报道
 
-**亨特拜登第三波：硬盘邮件解密
-2014年3月6日德文·阿彻致函亨特·拜登，告知其正在接触乌克兰天然气公司Burisma的所有人寻找机会。但是目前首要仍然是渤海。**
-
-### **邮件：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29205811/Screen-Shot-2020-10-30-at-10.57.56-am.png)
-### **邮件中文翻译如下：**
-
-**发件人：** 德文·阿彻
-**时间：**2014年3月6日 8:46AM
-**收件人：**亨特·拜登
-**主题：**http://burisma.com
-
-我在考察这个公司看看是否有机会。今天会和公司所有者开会然后晚上将共进晚餐。他显然压力很大，但是看着像是非常真实很好的一个人。我会打电话详述，但是目前首要是渤海。
-
-德文·阿彻
-6[…]
-
-### **邮件人物介绍/分析**：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29211628/Screen-Shot-2020-10-30-at-11.16.10-am.png)
-**参考资料：**
-
-- 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28173039/logo-1.jpg)
 
 
-[**2014年3月6日德文·阿彻致函亨特·拜登，告知其正在接触乌克兰天然气公司Burisma的所有人寻找机会。但是目前首要仍然是渤海。**](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29210138/30-burisma.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29210138/30-burisma.pdf)
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayanyM)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，免费英语教学，美东时间周一至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
