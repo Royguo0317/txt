@@ -1,14 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登第三波: 硬盘邮件解密 20 2015年4月17日 瓦迪姆在华盛顿特区感谢亨特把他介绍与其父亲，也就是副总统乔拜登 。
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/502911/)
+## 终极之战胜利号角已吹响
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/502228/)
 
-前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065127/%E6%AD%A3%E4%B9%89003a-1.jpg)
+随着拜登家族丑闻在全世界不断发酵，关键证人越来越多，FISA法案利器作用，GTV，GNEWS不断在全球揭露真相，川普总统的演讲逐步唤醒了民意，美国人已开始觉醒。据称拜登家族已有认输放弃大选之意，但是，中共能答应吗? 习准备了那么多年，如果拜登做不成总统，他就失去了美国这个世界第一的超级大国强有力的支撑。没有了外援，以前的薄家，徐家，江家曾孟家都会放过他吗?习此时内忧外患，据说他十分慌张，频频问身边的元老以求对策。
 
-**亨特拜登第三波：硬盘邮件解密
-2015年4月17日 瓦迪姆在华盛顿特区感谢亨特把他介绍与其父亲，也就是副总统乔拜登 **。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30060416/Picture37.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30061255/Screen-Shot-2020-10-30-at-8.12.33-pm.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30061313/Screen-Shot-2020-10-30-at-8.12.59-pm.png)参考资料: [http://energysecurityforum.org/esf-council/92-vadym-pozharskyi](http://energysecurityforum.org/esf-council/92-vadym-pozharskyi)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30061402/Screen-Shot-2020-10-30-at-8.13.46-pm.png)參考資料：[https://conservapedia.com/Hunter\_Biden](https://conservapedia.com/Hunter_Biden)
-[**2015年4月17日 瓦迪姆在华盛顿特区感谢亨特把他介绍与其父亲，也就是副总统乔拜登 **](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30060647/37-Meeting-for-coffee.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30060647/37-Meeting-for-coffee.pdf)
+假如,习及中共各派在最后一刻认清现实，主动缴械，让我泱泱华夏国民免于战火之涂炭，或许新中国联邦及美国人民会放他一马从轻发落。
 
-0
+但更大的可能是中共仍执迷不悔，继续把中国拖入战火的深渊，或者制造股市大崩盘并继续用病毒生化武器和全世界来个鱼死网破，同时他会用更大利益驱使督促拜登及美国的黑暗势力向正义的一方疯狂反扑。所以在最后一刻，川普总统、班农先生、朱利安尼先生、文贵先生还有新中国联邦的后方和前方的无数战友，你们每一个人都肩负着历史的重任。在胜利的最后时刻千万别大意失荆州。因为黎明前最是黑暗，希望各位保重自身安全，迎接新世界的到来。
+
+by 金色苹果
+
+1+

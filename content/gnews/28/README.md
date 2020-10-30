@@ -1,39 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登第三波: 硬盘邮件解密 19 2014年5月5日德文·阿彻致函瓦迪姆·波扎尔斯基和亨特·拜登探讨天然气计划受阻的原因
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/502493/)
+## 【热点播报】拜登硬盘邮件透露，其亲信弗朗西斯受雇华锐世纪张博邀请亨特密访中国，发展“友谊”关系——未来做很多“大事”
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/502529/)
 
-前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
+作者：香草山写作组 雨倩 校对/发稿：飞虹
 
-**亨特·拜登第三波：硬盘邮件解密**
-
-**2014年5月5日德文·阿彻致函瓦迪姆·波扎尔斯基和亨特·拜登探讨天然气计划受阻的原因**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30034119/Capture21.jpg)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30034316/Capture21-1.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30034452/Capture21-2.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28173039/logo-1.jpg)
 
 
 
-参考资料：
+据路德社报道：弗朗西斯·帕森 （Francis person ）2015年7月28日写给亨特的邮件内容如下：
+
+亨特，long shot，但你是否有兴趣在8月中旬（8月16日之后的一个星期）来中国一个星期。可以带上你的家人，我也带上我的女孩子们，这将是一次很棒的远行。
+
+张博和他的家人将接待我们。张博是很棒的家族在中国享有很高的地位，有各种关系。张博毕业于美国大学，不到30岁。他的父母拥有的华锐世纪集团在沈阳是中国一流的房地产公司。他的母亲是这个公司的董事会主席。他们在中国非常低调。他们不会告诉任何人你的到来。张博的岳父实际是海南（中国的夏威夷）的省长，这个没人知道。你将有机会看到华锐世纪的生意规模非常了不起，我想能再次见到你真是太好了！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30040437/%E5%9B%BE%E7%89%878-10.png)
+我们先飞北京，然后再到沈阳，到那里你会看到华锐在沈阳建造的一个项目。他们正在打造一个沈阳的大金融中心。之后我们将到海南放松度假。海南是中国的夏威夷，我们将在两个圣地享受美好时光。一个是在海边有一个很棒的高尔夫球场；另一个是在山上独揽大海，那里有一百个温泉。你可以带着你的年轻女孩在一个独揽大海的地方远足。
+
+张博提到，我们随时可以去西安，我们可以花一些时间去探讨中国王朝的历史（这也是习主席的故乡）。不过这虽然很酷，但可能会花太多时间。
+
+再说一遍，我知道这次很仓促，这次旅行路途很长时间。张博和我这段时间会在中国，我们正在讨论跟魔术师·约翰逊 （Magic Johnson ）、勒布朗·詹姆斯 （Lebon James ）的合作，2016年辽宁省将举办一场NBA全球赛，勒布朗.詹姆斯 Lebon james 届时也会在中国。
+
+我想让你认识张博，他是一个很有智慧的人，他将要接任家族的王朝事业。但他人非常谦虚。他总有一天会做伟大的事情。但他需要身边有一帮好人辅佐。他和他的妻子现生活在华盛顿DC，他正在待产新生儿，正在维吉尼亚的麦卡琳（Mclean）建造一套大房子准备在美国工作和生活。
+
+这次旅行不光是生意合作和卖给你东西。只是想发展我们的友谊关系，未来会有很多大事要做。
+
+这次邀请是长期性的，我们今后可以随时举行。这次安排可能仓促了些，但也可能是最佳时期。
+
+爱你的男人
+
+Fran。
+
+亨特回复：明天再细聊吧. L，H
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30035137/2-70.jpg)
+这些邮件透露了很多信息，张博可能是习近平的私生子。而张博岳父是海南省省长刘赐贵，现任海南省书记，是刘呈杰的养父、习进平的死党。
+
+这次密访所谓的发展友谊关系，未来会有很多大事要做，科普也就是拜登家族开始卖国的计划。
 
 
 
-> [【1】第三波硬盘邮件解密！乌克兰天然气公司瓦迪姆与亨特·拜登商务伙伴德文·阿彻邮件曝光！](https://gnews.org/zh-hans/498612/)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayanyM)！
 
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-
-
-
-> [美国之鼠-拜登父子！](https://gnews.org/zh-hant/499547/)
-
-
-
-[https://en.wikipedia.org/wiki/Hunter\_Biden](https://en.wikipedia.org/wiki/Hunter_Biden)
-
-[https://www.bbc.com/news/world-5455313](https://www.bbc.com/news/world-5455313)
-
-[2014年5月5日德文·阿彻致函瓦迪姆·波扎尔斯基和亨特·拜登探讨天然气计划受阻的原因](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30033455/41-NYTimes-Kiev-Struggles-to-Break-Russias-Grip-on-Gas-Flow.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30033455/41-NYTimes-Kiev-Struggles-to-Break-Russias-Grip-on-Gas-Flow.pdf)
+圣经故事背景，免费英语教学，美东时间周一至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

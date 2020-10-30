@@ -1,24 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特拜登第三波：硬盘邮件解密 17 2014年5月7日 星期三 瓦迪姆· 波扎尔斯基致函德文-阿彻和亨特-拜登商讨访问哈萨克斯坦期间的会议时间和会议内容安排及尼古拉的签证问题
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/502076/)
+## 【精华版粤语快报】【路德社】10.28：钟翰林先生被捕背后隐藏的什么，塔克.卡森邮寄的关于拜登家族的犯罪资料神秘消失
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/502112/)
 
-前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
+【精华版粤语快报】【路德社】10.28：钟翰林先生被捕背后隐藏的什么，塔克.卡森邮寄的关于拜登家族的犯罪资料神秘消失
 
-**亨特拜登第三波：硬盘邮件解密**
+制作单位：战友之家·粤语频道
 
-**2014年5月7日 星期三 瓦迪姆· 波扎尔斯基致函德文-阿彻和亨特-拜登商讨访问哈萨克斯坦期间的会议时间和会议内容安排及尼古拉的签证问题 **
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30001227/d740b01e-470e-4975-acfb-91eb1a40b16c.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30003129/Screen-Shot-2020-10-29-at-9.28.03-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30003138/Screen-Shot-2020-10-29-at-9.28.09-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30003144/Screen-Shot-2020-10-29-at-9.28.14-PM.png)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30003152/Screen-Shot-2020-10-29-at-9.28.18-PM.png)
-**Reference:**
-
-- [https://conservapedia.com/Devon\_Archer](https://conservapedia.com/Devon_Archer)
-- [https://conservapedia.com/Hunter\_Biden](https://conservapedia.com/Hunter_Biden)
-- [http://energysecurityforum.org/esf-council/92-vadym-pozharskyi](http://energysecurityforum.org/esf-council/92-vadym-pozharskyi)
+制作团队：路德二组（Andy Su、文乔、剪刀手）
 
 
-[**2014年5月7日 星期三 瓦迪姆· 波扎尔斯基致函德文-阿彻和亨特-拜登商讨访问哈萨克斯坦期间的会议时间和会议内容安排及尼古拉的签证问题 **](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30001815/34-Kazahstan-visit_-visa-issue-.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30001815/34-Kazahstan-visit_-visa-issue-.pdf)
+
+摘要：
+
+钟翰林先生被抓就是美国内部的人出卖了信息给香港黑警；塔克.卡森关于拜登家族的邮件丢失显示美国的黑暗力量不容小觑；中共问题专家分享他经历的蓝金黄
+
+原视频链接：
+
+10/29/2020 路德时评（路安墨谈）：TUCKER的拜登家族机密文件在邮寄过程消失了；美抓捕“猎狐行动”在美执法特工意味着什么？庄烈宏出卖重要信息，导致钟翰林被抓，罪名之一非法洗钱罪
+
+
 
 0
