@@ -1,45 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 评脱欧功臣法拉奇先生支持川普竞选的演讲
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/504724/)
+## 习近平一声令下，他们来了&#8212;美国科技公司CEO向中共献媚
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/505200/)
 
-*翻译：赞赞；简评：文明明；校对: Beicy-数学老师；审核： InAHurry；Page：拱卒*
-[!\[\]()!\[\](https://spark.adobe.com/page/hbV0gGSxTwjPQ/images/9009ff5a-6311-4bf2-bb14-2ae1e2b2048e.jpg?asset_id=5cd76de7-6e8a-46f1-8628-1e2830ca66ba&amp;img_etag=%220402d8127ca371b584c0f773333d7660%22&amp;size=2560)](https://spark.adobe.com/page/hbV0gGSxTwjPQ/images/9009ff5a-6311-4bf2-bb14-2ae1e2b2048e.jpg?asset_id=5cd76de7-6e8a-46f1-8628-1e2830ca66ba&amp;img_etag=%220402d8127ca371b584c0f773333d7660%22&amp;size=1024)法拉奇为川普站台（Ross D. Franklin/AP）
-奈杰尔-法拉奇 （Nigel Farage）先生在川普总统的竞选集会上的讲话，说出我们大家的心声，也给予我们大家以极大的鼓舞。
+翻译：康州农场-Truemanman
 
-2016年，奈杰尔-法拉奇（Nigel Farage）主导的英国脱欧公投在几乎不可能的情况下，取得了成功，这反映了英国民众对左派政客和所谓的全球化已经忍无可忍了，也反映了英国民众对回归传统价值的渴望。正如路德时评所说的, 全球化实质是共产主义加上全球奴隶化。四年前，奈杰尔-法拉奇（Nigel Farage）带着英国脱欧的成功经验，来到美国，支持川普总统，四年后，他再次站出来支持川普，说明在被中共深度蓝金黄的西方政坛，还是有保持清醒头脑的人，还是有人敢于站出来，挑战中共的人。这些人虽然现在仍是少数，但是，他们让我们看到了希望。
+2015年《纽约时报》的一篇文章揭示了美国最大的科技和社交媒体公司的CEO们，包括脸书的马克·扎克伯格，苹果的蒂姆·库克和亚马逊的杰夫·贝佐斯是如何奉承中国共产党领导人习近平的。
 
-在竞选集会上，奈杰尔-法拉奇（Nigel Farage）对川普总统的赞扬得到了美国人民的认同，同时他也提醒美国人民：“你们是在投票选举“自由世界”的领袖，你们投的是自由世界中，目前唯一有勇气站出来为民族国家而战、为爱国主义而战、为反对全球化而战的领导人。”
+这篇文章–《习近平美国之行最难忘的时刻》–描述了2015年9月习近平访问微软总部期间，美国大型科技公司的CEO们是如何与这位中共领导人套近乎的。
 
-事实上，这是对全世界向往自由和民主的人民发出的呼吁。战友们，让我们大家都站出来，为我们民族的未来、为我们的新中国、为全世界人民的自由而战！！！
-[!\[\]()!\[\](https://spark.adobe.com/page/hbV0gGSxTwjPQ/images/395cb8cc-f32f-4eba-b039-3b2f97616153.jpg?asset_id=06e9fab0-5ff0-4dce-a60b-c5be3ead8c45&amp;img_etag=%2238fdbce9418eabfd8c637afc03507080%22&amp;size=2560)](https://spark.adobe.com/page/hbV0gGSxTwjPQ/images/395cb8cc-f32f-4eba-b039-3b2f97616153.jpg?asset_id=06e9fab0-5ff0-4dce-a60b-c5be3ead8c45&amp;img_etag=%2238fdbce9418eabfd8c637afc03507080%22&amp;size=1024)法拉奇与一名戴着 “让美国再次伟大 “帽子的特朗普粉丝合影（字幕：美联社）
-**演讲内容片段：**
+正如《纽约时报》所说，这些科技大佬们向习近平 “致敬”。
 
-我和您（总统先生）比起来，我并不具有争议性，也不那么害羞。我必须说四年前，我很荣幸能带着“脱欧”的信息来到美国。这个消息可以让你击溃“建制派”，这就是川普总统已经做到的。
+据这家建制派大报报道，在与习近平合影后，苹果公司的蒂姆-库克 “印象深刻”，并微笑着询问 “（习这么大的人物来了）你有没有感觉到房间在震动？”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30124303/%E5%9B%BE%E7%89%871-32.png)贝佐斯、库克、腾讯的马化腾与习近平交谈
+扎克伯格当天早些时候还表示，与习近平的会面是 “有意义的个人里程碑 ”和“荣誉”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30124445/%E5%9B%BE%E7%89%872-19.png)扎克伯格和习近平
+《纽约时报》的文章叙述了 “2.5万亿美元的美国企业力量如何向中共国主席致敬”。
 
-他（川普总统）打败了民调机构，打败了媒体，打败了所有的预测。然而最糟糕的是，这些团体从来没有因此而放过他。
+“回顾这次旅行，最令人难忘的时刻 也许也是最重要的时刻 就是看着2. 5万亿美元的美国企业力量向中共国主席致敬”
 
-他们从来没有放过他。他们花了4年时间试图让他失去合法性，4年的“通俄骗局”，4年的“假弹劾”。大多数人在这种冲击下都会选择放弃。（川普总统）是我这辈子见过的最有韧性和最勇敢的人。
+文章描述了CEO们如何与这位残暴的独裁者一起合影，并指出 “这些高管们不习惯呼之即来”，但当 “习主席招手，他们就来了”。
 
-当你们下周投票时，你们不仅仅是在投票选举谁是美利坚合众国的总统，应该说最为重要的是，你们是在投票选举“自由世界”的领袖。
-[!\[\]()!\[\](https://spark.adobe.com/page/hbV0gGSxTwjPQ/images/8dbec87a-2522-41a6-bb4b-c5c42420bbf9.jpg?asset_id=a5cdc592-29e2-4e22-8db4-745258b1ae3c&amp;img_etag=%22b95c76ce96a1eea8bd7d1ebb60056fac%22&amp;size=2560)](https://spark.adobe.com/page/hbV0gGSxTwjPQ/images/8dbec87a-2522-41a6-bb4b-c5c42420bbf9.jpg?asset_id=a5cdc592-29e2-4e22-8db4-745258b1ae3c&amp;img_etag=%22b95c76ce96a1eea8bd7d1ebb60056fac%22&amp;size=1024)川普总统在听演讲时做手势(图：美联社)
-你们投的是自由世界目前唯一有勇气站出来为民族国家而战，为爱国主义而战，为反对全球主义而战的领导人。
+“突然间，美国十大科技公司（市值约2.5万亿美元）的首席执行官 在十几家中国科技公司负责人的陪同下抵达。他们排成三排。这些高管不习惯呼之即来–他们拒绝商业峰会、世界经济论坛等邀请。但习主席一招手，他们就来了。”
 
-你们要把票投给西方世界唯一一个真正有勇气站出来对抗“中国共产党”的领导人。
+更重要的是，《纽约时报》的报道版本坚持认为，对于美国科技巨头来说，”和习主席做生意的诱惑显然太诱人，高管们无法错过”。
 
-你们将投票给一个正直的、直言不讳的人，一个在四年内不仅削减了你们的税收，不仅改善了经济，而且现在正在以一种难以置信的方式把以色列和阿拉伯国家团结在一起的人，这就是他（川普总统）所做的，我祝你们成功，我真的祝你们成功。
+“和习主席做生意的诱惑显然对高管们来说太诱人了，他们不能错过。到了之后，高管们凉了十多分钟，等待习结束对微软的参观。很难想象这些高管们会在其他地方闲等10分钟。”
 
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/hbV0gGSxTwjPQ/)】- 点击spark adobe版
+除了习近平，出席的其他中共党员还包括阿里巴巴的马云和腾讯的马化腾。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30124602/%E5%9B%BE%E7%89%873-16.png)
+最前排：杉杉CEO李骏、滴滴-快滴 CEO程维、宽带资本CEO田溯宁、CEC CEO刘烈宏、百度CEO张亚勤、AME云创投CEO杨致远、Inspur CEO孙丕恕、Airbnb CEO Brian Chesky、红杉资本中国创始人沈南鹏
 
-了解更多资讯敬请关注：
+中排：搜狐CEO张朝阳、AMD CEO苏丽莎、联想CEO杨元庆、微软副总裁Harry Shum、高通CEO Steve Mollenkopf、中科创达CEO熊群力、英特尔CEO Brian Krzanich、奇虎360 CEO周鸿祎、LinkedIn董事长Reid Hoffman、新浪CEO曹国伟
 
-【战鹰团Gab】[https://gab.com/himalayahawks](https://gab.com/himalayahawks)
+下排：Facebook CEO马克-扎克伯格、京东CEO刘强东、思科董事长钱伯斯、阿里巴巴创始人马云、IBM CEO金尼-罗梅蒂、国家主席习近平、微软CEO萨蒂亚-纳德拉、前任中共宣传部副部长鲁炜、苹果CEO蒂姆-库克、腾讯CEO马化腾、亚马逊CEO杰夫-贝佐斯
 
-【英喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
+原文链接：[https://thenationalpulse.com/politics/tech-ceos-fawned-over-xi-jinping/](https://thenationalpulse.com/politics/tech-ceos-fawned-over-xi-jinping/)
 
-【英喜庄园GTV/盖特】：[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-【大卫作战室YouTube】[https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
-[!\[\]()!\[\](https://spark.adobe.com/page/hbV0gGSxTwjPQ/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/hbV0gGSxTwjPQ/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-0
+1+
