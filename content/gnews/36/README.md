@@ -1,16 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 终极之战胜利号角已吹响
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/502228/)
+## 【5】硬盘第三波烧脑风暴来袭！亨特拜登与Eudora创始人谈论父亲乔拜登行踪
+` GM01` [轉載自GNews](https://gnews.org/zh-hans/502979/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30065127/%E6%AD%A3%E4%B9%89003a-1.jpg)
-随着拜登家族丑闻在全世界不断发酵，关键证人越来越多，FISA法案利器作用，GTV，GNEWS不断在全球揭露真相，川普总统的演讲逐步唤醒了民意，美国人已开始觉醒。据称拜登家族已有认输放弃大选之意，但是，中共能答应吗? 习准备了那么多年，如果拜登做不成总统，他就失去了美国这个世界第一的超级大国强有力的支撑。没有了外援，以前的薄家，徐家，江家曾孟家都会放过他吗?习此时内忧外患，据说他十分慌张，频频问身边的元老以求对策。
+在经历了近几天“小视频”“小图片”的洗礼，大家一定被吸足了眼球！现在真正的烧脑风暴来了！你准备好了吗？接下来铁一般的证据，山一般的证明逐一清晰展示了中美两国盗国贼对人类的威胁和伤害！对法律的无视！以及对女性的侮辱甚至奴役变态！他们的人性已完全丧失！
 
-假如,习及中共各派在最后一刻认清现实，主动缴械，让我泱泱华夏国民免于战火之涂炭，或许新中国联邦及美国人民会放他一马从轻发落。
+其实硬盘中还有绝大部分的视频因涉及到极为敏感，极为不人道，极为残忍的画面无法播放，将随后再进行处理。
 
-但更大的可能是中共仍执迷不悔，继续把中国拖入战火的深渊，或者制造股市大崩盘并继续用病毒生化武器和全世界来个鱼死网破，同时他会用更大利益驱使督促拜登及美国的黑暗势力向正义的一方疯狂反扑。所以在最后一刻，川普总统、班农先生、朱利安尼先生、文贵先生还有新中国联邦的后方和前方的无数战友，你们每一个人都肩负着历史的重任。在胜利的最后时刻千万别大意失荆州。因为黎明前最是黑暗，希望各位保重自身安全，迎接新世界的到来。
+现在将为大家呈现Burisma与亨特拜登和中共之间勾兑的铁一般的事实，包括文件和Email的往来，以及相关人物往来！希望全世界有良知的战友都来关注。如果这样的事情不被揭发，人类将全面走向黑暗！
 
-by 金色苹果
-
-1+
+[点击下载PDF文件](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30064045/Email-5-16_Annie-GM31-Xiaofenhong-V-Winston-Ver3.0-1.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30064045/Email-5-16_Annie-GM31-Xiaofenhong-V-Winston-Ver3.0-1.pdf)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30064222/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8A%E5%8D%8810.41.10.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30064404/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8A%E5%8D%8810.41.25-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30064410/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8A%E5%8D%8810.41.33-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30064418/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8A%E5%8D%8810.41.42-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30064426/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8A%E5%8D%8810.41.53-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30064432/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8A%E5%8D%8810.42.00-1.png)
+0

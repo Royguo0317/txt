@@ -1,31 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 272期疫情播報文字版10/23
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/504297/)
+## 【世界多语言图文】2020/10/20 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/504437/)
 
-1. 中共统治下，老百姓没有食品安全。食用油行业巨头金龙鱼被大陆媒体爆出公开造假对转基因原料不进行标识。随后金龙鱼发官方声明承认使用转基因原料，其国外供应商提供虚假材料申报。
+战友之家图文摘要及多语种组
 
-2. 中共银行业2020年前三季度逾期90天以上的贷款和不良贷款比值为80.2%。凸显经济恶化企业资金链断裂，以债度日，借新还旧都难以为继！
+[269\_English\_1020\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090156/269_English_1020_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090156/269_English_1020_CCP_Virus_Updates.pdf)
 
-3. 中共军企华为担忧ARM芯片被英伟达收购后，没有芯片来源。
+[269\_French\_1020\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30102239/269_FR_1020_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30102239/269_FR_1020_CCP_Virus_Updates.pdf)
 
-4. 中共开始战争动员，利用志愿军事件洗脑国人，要百姓做牺牲来维护中共血色政权，让百姓的孩子学黄继光。镜头里领导问“你们是谁？”，被洗脑的士兵们声嘶力竭地喊：“我们是黄继光”。
+[269\_German\_1020\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090156/269_German_1020_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090156/269_German_1020_CCP_Virus_Updates.pdf)
 
-5. 富士康郭台铭资金受限。美国威斯康星州指出其在建的LCD工厂，无论是性质、类型、投资额和创造就业上都名不符实。
+[269\_Korean\_1020\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090156/269_Korean_1020_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090156/269_Korean_1020_CCP_Virus_Updates.pdf)
 
-6. 中共统治下，民不聊生。镜头记载贵州一家三口背着玉米过危桥，拿命换钱，打脸中共消灭贫困全面实现小康社会的宣传。
-
-7. 美国务院再列6家中共在美红色媒体为外国使团，重创中共干涉美国大选的媒体部署。
-
-8.（10/21，阿里郎新闻）美国国务院已批准向台湾出售18亿美元的武器。五角大楼周三称，这些武器包括11套高机动性火箭炮系统、135枚远距对地攻击型鱼叉导弹 和6套MS-110侦察吊舱。路透社上周报导，白宫计划向台北分别出售5套尖端军事装备，价值50亿美元。美国一直在鼓励台湾加强防御能力，以此面对中共国日益咄咄逼人的对台行动。
-
-9.（10/21，鲁迪·朱利安尼）是什么驱动了我？
-
-我只是打开了照片。我不知道里面都有些什么。有些人告诉我里面非常非常色情的内容，我也是预料到的。然后我们就浏览了一遍，寻找一些引爆点，因为他是个瘾君子，这就是为什么那些寡头会给他这些钱，这本身就是很荒谬的。当然我知道中共国有所有这些照片，所以我说既然中共国有，那我最好看看。
-
-10. 中共有的不仅是亨特·拜登的淫秽照片，他们还有一些让人看了就会呕吐的照片。 “
-
-（10/21，路德社，Bo博士）亨特·拜登坐下来就开始要这个要那个的话，车峰，我怀疑他可能心里都有点奇怪啊。公关把一个东西拿下的话是很不容易的。但是亨特·拜登，立刻进入角色说，我就要这个就要这个。这里可以看见，亨特·拜登这个人的道德水准有多低，仗着他老爸的影响有多放肆。
+[269\_Spanish\_1020\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090155/269_Spanish_1020_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29090155/269_Spanish_1020_CCP_Virus_Updates.pdf)
 
 0
