@@ -1,19 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登第三波: 硬盘邮件解密29 2019年4月21日亨特·拜登答复德文·阿彻关于Burisma和渤海华美会议等事宜邮件
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/505745/)
+## 【9】硬盘第三波烧脑风暴来袭！亨特拜登与乌克兰前总统邮件曝光！
+` GM01` [轉載自GNews](https://gnews.org/zh-hans/505921/)
 
-前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
+在经历了近几天“小视频”“小图片”的洗礼，大家一定被吸足了眼球！现在真正的烧脑风暴来了！你准备好了吗？接下来铁一般的证据，山一般的证明逐一清晰展示了中美两国盗国贼对人类的威胁和伤害！对法律的无视！以及对女性的侮辱甚至奴役变态！他们的人性已完全丧失！
 
-**亨特·拜登第三波硬盘邮件解密**：
+其实硬盘中还有绝大部分的视频因涉及到极为敏感，极为不人道，极为残忍的画面无法播放，将随后再进行处理。
 
-**2019年4月21日亨特·拜登回复德文.阿彻的邮件，回答关于Burisma相关信函，以及渤海华美会议等事**宜
+现在将为大家呈现Burisma与亨特拜登和中共之间勾兑的铁一般的事实，包括文件和Email的往来，以及相关人物往来！希望全世界有良知的战友都来关注。如果这样的事情不被揭发，人类将全面走向黑暗！
 
-### 邮件：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30153242/PDFtoJPG.me-01-5-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30153215/PDFtoJPG.me-08-4-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30153305/PDFtoJPG.me-09-4-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30153349/PDFtoJPG.me-10-4-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30153415/PDFtoJPG.me-11-4-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30153439/PDFtoJPG.me-12-4-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30153459/PDFtoJPG.me-13-4-scaled.jpg)
-[亨特·拜登回复德文.阿彻的邮件，回答关于Burisma相关信函，以及渤海华美会议等事宜](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30153526/53-Re_-Burisma-2.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30153526/53-Re_-Burisma-2.pdf)
-
-
-
+[点击下载PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30164014/E9-63_1.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30164014/E9-63_1.pdf)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30164050/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%888.40.40.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30164144/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%888.41.34.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30164200/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%888.41.50.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30164233/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%888.42.23.png)
 0
