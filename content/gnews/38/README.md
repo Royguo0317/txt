@@ -1,57 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 站在未来说历史，共产主义将从地球消失
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/505699/)
+## 哭笑不得，亨特-拜登自己上传了含家庭成员在内的色情照到Pornhub网站被抓包
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/509613/)
 
-*作者：大明*
+*喜马拉雅联盟加拿大农场 坐看云起时
+校对 文锦 上传 WJ*
 
-*校对：free dust；审核：free dust；Page：Eric8848*
+GTV和GNEWS向世界公开了亨特-拜登来自地狱的硬盘中极少的一批资料及照片，主流媒体和社交媒体的集体噤声并疯狂打压，但这些做法不但完全阻止不了真相的传播，反而激起了国外越来越多的网友和媒体工作者主动投身到了追寻真相的队伍中。
 
+10月29日Gateway Pundit 报道了一个令人哭笑不得的故事，在亨特-拜登的淫乱照片被主流媒体，社交网络媒体乃至色情网站联手封禁之时，却被网友们发现，他本人其实早早地已经在色情网站Pornhub上开设了帐户，并上传了包含他家庭成员在内的高清无码淫乱图片。即便在这风口浪尖，也不曾删除。亨特-拜登这一通实力坑爹的精彩操作，令网友们喷饭群嘲之余，实不知主流媒体以及股票为之狂跌20%的推特对此情以何堪。
 
-> *站在未来说历史，共产主义将从地球消失*
+Gateway Pundit报道中指出，拜登家族希望美国人相信他们是典型的勤劳的美国家庭，但事实远非如此。
 
+根据《每日邮报》在今年年初情人节的报道，乔-拜登声称他的儿子亨特 “一生只做了好事”。在上周四，他依旧为儿子亨特-拜登辩护，称他是个 “好人”，”一生只做了好事”，即使在亨特被要求向一名婚外怀孕的脱衣舞女支付子女抚养费之后，他也如此坚称。
 
-郭文贵先生发起的13天爆料决战，已经深深的震撼了全世界，美国大选的民主党竞选人，堂堂的前奥巴马政府的副总统，拜登家族的腐败，娈童，乱性，和中共权钱交易，玷污司法，更令人发指的出卖美国CIA所有线人六十多人，导致36名英雄被中共直接枪决，在华情报网彻底瘫痪……
+上个月，亨特-拜登同意向一名阿肯色州女子伦登-罗伯茨（Lunden Roberts）支付子女抚养费，该女子是他常去的华盛顿特区一家俱乐部的脱衣舞娘。2019年5月，伦登-罗伯茨在阿肯色州独立县提起诉讼后，2019年11月DNA测试证明了亨特-拜登是罗伯茨孩子的生父。
 
-美国多年来一直在寻找原因，家贼难防，更恐怖的是美国的国家领导人正副总统都出卖美国国家利益，世人都谴责中共在南海人工岛礁军事化，却不知道这是奥巴马拜登收受中共十亿美元的贿赂后的默许……美国被中共蓝金黄的有多深？以至于从中共军方实验室逃出来的人员，不敢来美国，而是去了欧洲，因为他深知美国执法部门和政府被中共蓝金黄的程度，对于他这样知道中共病毒是来源于中共军方实验室的生化武器的重要证人，肯定会被灭口。
+上周公开的信息更显示出一切完全不像乔-拜登声称的那样。
 
-![]()![](https://spark.adobe.com/page/ZiPVfnZkctnWC/images/0a079411-c5d2-418e-bcc7-35624b8f269e.jpg?asset_id=b691bf08-a5a7-4747-97d6-14f3b12385c5&amp;img_etag=%223b9cb8c913e47ed4ea16d8fd79f69b38%22&amp;size=3649)
+星期一，我们发现副总统拜登和他的妻子共谋掩饰亨特与某未成年人的不轨行为。 周二，信息显示，亨特与至少一名俄罗斯女性在西好莱坞参与了肮脏的行动，让他的家人面临遭受俄罗斯勒索的风险。周三，我们报道了亨特拍下了在未成年人面前暴露自己的照片。 今天早上我们报道了亨特被指控在未成年人面前 “裸体走来走去看色情片自慰和吸毒”。
+而这一切都是在乔-拜登任副总统期间，这期间亨特被指责参与了副总统在世界各地的以权谋私的丑闻。我们可以看到，亨特并不像副总统所说的那样。
 
-这世界怎么了？从奥巴马拜登叛国也解开了我心中长久的疑问！曾经攻城略地，疯狂突破人类文明底线的伊斯兰国恐怖组织ISIS,为何有地球上最强军力的美国无法消灭他们？火烧被俘的飞行员！叫孩子杀人！集体屠杀平民……
+今天，我们彻底摧毁了拜登家族和亨特-拜登是全美英雄的任何想法。
 
-这一切本不该发生的反人类暴行都在川普总统上台后半年结束！美军消灭他们！奥巴马曾命令美国网络部队不对中共国的网络入侵做出回击……
+事实上，亨特-拜登不仅参与了种种堕落的色情活动，他还拍摄了这些活动，以及这些活动的照片，今天我们有证据表明，他在色情网站PornHub上发布并展示了这些活动。
 
-纸是包不住火的，当三块硬盘揭开拜登奥巴马和许许多多政商界名人都和中共有罪恶的交易时，本应传播真相的新闻媒体，却成了中共渗透的重灾区，纽约时报，CNN,推特，等美国所谓的主流媒体已经是脱光衣服裸奔，毫不顾及的颠倒黑白，大勢攻击传播病毒真相的阎利梦博士，攻击中共病毒真相，抹黑川普总统。美国的福奇，令人难以置信反对爆料革命最早说出的预防和救治中共病毒的廉价药物硫酸氢氯喹，二十多万美国人死于中共病毒，也是死于美国的福奇和幕后的黑暗势力之手！
+下面是亨特在Pornhub的资料图片。 亨特在Pornhub 网站上建立了用户账号RHEast，他在那里自称 “哈珀”（Harper)。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31105445/Hunter-Pornhub-1-homepage.jpg)图片来源 ：Pornhub
+之所以大家知道这是亨特的账号，其中一个原因是下面的截图，他的一个网页书签是 “Joe Biden Smiling”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31105451/Hunter-Pornhub-2-Joe-Biden-Smiling.jpg)
+除此外我们还可能通过其它方式确认这个账号与亨特的关系。账号中的图片和视频也在最近被曝光的亨特拜登笔记本电脑上。 在PornHub上有两个女人在亨特身上的照片，这些照片同样位于他的笔记本电脑上。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31105455/Hunter-Pornhub-3-Hollywood.jpg)
+在亨特的PornHub账户上，与两个女孩的照片中的一个女人也可以追溯到好莱坞某地游泳池中的一个女人。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31105500/Hunter-Pornhub-4-Hollywood-House.jpg)
+我们还把他主页上的另一张图片和他笔记本上的另一张图片绑定在一起。 这个账号不是编造的，的确是亨特自己的帐号。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31105509/Hunter-Pornhub-6-Its-him.jpg)
+在这个肮脏的故事中，更让人震惊的是他上传到他自己的PornHub主页的一张色情照片，而那个女人是他的一个家庭成员! 亨特还在自己的账号内加入了这个女人的其它照片。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31105504/Hunter-Pornhub-5-Family-Fun-913x479-1.jpg)
+以下都是他上传到色情网站上的图片：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31105515/Hunter-Pornhub-1536x648-1.jpg)
+亨特-拜登的一切行动告诉大家，他糟糕得一塌糊涂，他承认自己吸毒，在肮脏的地方与肮脏的人在一起，但他的家庭却竭力掩盖这一切，把他当做钱袋子在全世界掩盖他们以权谋私的丑恶。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ZiPVfnZkctnWC/images/214ab09a-8b66-40ec-9464-2c0d6bb9bcbe.jpg?asset_id=1e75afe0-9ca1-4c26-8abd-2967f9c12089&amp;img_etag=%22e8dab9c4681530372b95b8de1119a2c8%22&amp;size=4491)](https://spark.adobe.com/page/ZiPVfnZkctnWC/images/214ab09a-8b66-40ec-9464-2c0d6bb9bcbe.jpg?asset_id=1e75afe0-9ca1-4c26-8abd-2967f9c12089&amp;img_etag=%22e8dab9c4681530372b95b8de1119a2c8%22&amp;size=1024)
+这一切向大家证明了—-绝不能让乔-拜登入主白宫！
 
-细思极恐，这还是民主法治的伟大美国吗？美国有良知的大胡子医生愤而在白宫网站发起了追责福奇谋杀美国人的签名！中共病毒已经感染了四千多万人，死亡超过百万，此时此刻全球再次进入病毒爆发，法国封城……
+新闻链接：
+[HUGE BREAKING EXCLUSIVE: Hunter Biden Has a PornHub Account Where He Uploaded His Personal Porn – Including with Family Member](https://www.thegatewaypundit.com/2020/10/huge-breaking-exclusive-hunter-biden-pornhub-account-uploaded-personal-porn-including-family-members/)
 
-中国青岛，新疆喀什也出现疫情，欧洲、美洲、亚洲、澳洲……
-
-世界再次回到了三月初的恐怖场景！不灭中共！人类永远无法消灭生化武器的伤害！这一切的罪恶都源于中共BGY 3F美国的长久的策略！中共自49年窃国后，就撕破伪装，一直奉行的是把美国当作头号敌人的政策，从未改变过，毛贼东在延安时期肯登在新华社报纸上的赞美美国的文章，没过几年就在朝鲜战场和美打了一场战争！中共从来就没有诚信二字！郭先生讲过见晚年的蒋介石的夫人宋美龄的经历，这位上个世纪最著名的女性对美国政要说过，你们老辈政治家的错误选择……
-
-[!\[\]()!\[\](https://spark.adobe.com/page/ZiPVfnZkctnWC/images/12128cbe-9c9a-4def-bfa4-049f5dd23ed6.jpg?asset_id=55a4aa65-178c-40ff-9fb1-b313284aa4f3&amp;img_etag=%229a0e600b6ef7c754d8320d725e689da9%22&amp;size=1024)](https://spark.adobe.com/page/ZiPVfnZkctnWC/images/12128cbe-9c9a-4def-bfa4-049f5dd23ed6.jpg?asset_id=55a4aa65-178c-40ff-9fb1-b313284aa4f3&amp;img_etag=%229a0e600b6ef7c754d8320d725e689da9%22&amp;size=1024)
-
-而今天美国面对的是世界第二大经济体，用生化武器攻击了美国本地土，美国却还在排干沼泽中内斗。当世界要变成黑客帝国里情景时，上天派来了灭共者，郭文贵！今天世界几乎所有的罪恶都源于中共，源于百年前诞生于欧洲的共产主义幽灵！人类是时候把带来死亡，饥饿，邪恶的共产主义从地球上清除。
-
-郭先生13天爆料的终极目的并非是美国大选，而是中共，当苏联在上世纪末九十年代倒台后，全世界只有中共，古巴朝鲜越南还在奉行共产主义或者社会主义，中共也义不容辞的接过了统领共产国际的位置！朝鲜和古巴是靠中共输血维持的邪恶共产政权，而越南逐步在改革开放！走亲美路线，只要中共灭亡，共产主义从地球上消失就会很快实现！新中国联邦将代表14亿华人和人类共同建设美好家园！共享人类发展文明！
-
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/ZiPVfnZkctnWC/)】-点击spark adobe版
-
-更多资讯敬请关注：
-
-【战鹰团Gab】[https://gab.com/himalayahawks](https://gab.com/himalayahawks)
-
-【英喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
-
-【英喜庄园GTV/盖特】:
-
-[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-【大卫作战室YouTube】：[https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/ZiPVfnZkctnWC/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/ZiPVfnZkctnWC/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
-0
+1+
