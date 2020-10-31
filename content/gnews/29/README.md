@@ -1,61 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 邮件秘密: 薄熙来私生女薄甜甜送拜登家族哈德逊西部公司
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/509438/)
+## 俄罗斯战友日志——我们的灭共13天
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/509834/)
 
-*新闻来源：《Bannon War Room》；发布时间：2020年10月31日*
+文/Latinca    校对/青椒文喜、文璟    文宣/YYZ
 
-*翻译/简评：Beicy-数学老师；校对：johnwallis；审核：TCC；Page：Connor54*
-[!\[\]()!\[\](https://spark.adobe.com/page/OKuLmCzmVz7ka/images/a3dbe142-161e-407c-b87c-5c357e92812b.jpg?asset_id=d4a4e7ae-f782-4d4b-adb6-29930c614307&amp;img_etag=%22ee1b3286b5cdae1fd8116bf09d1556f4%22&amp;size=1024)](https://spark.adobe.com/page/OKuLmCzmVz7ka/images/a3dbe142-161e-407c-b87c-5c357e92812b.jpg?asset_id=d4a4e7ae-f782-4d4b-adb6-29930c614307&amp;img_etag=%22ee1b3286b5cdae1fd8116bf09d1556f4%22&amp;size=1024)
-**简评：**
+早上睁开惺忪双眼，我的第一件事就是取下充电线上的手机，开始翻看各个群里的信息，直到把所有的楼梯爬完，了解自己睡觉的几个小时内所发生的事件和错过的信息。把需要马上处理的事情做完，才感觉到被什么憋得难受到不行！在马桶上提着手机就开始梳理今天的任务……看到其它战友在各个媒体战场上的厮杀和战果，觉得自己已经被远远落在后面，于是开启奋起直追的节奏。几轮补充追赶轰炸下来，肚子已经有些饿，泡上一碗拉面填饱肚子，边吃边继续投入到这场史无前例即将改变人类历史的舆论大战之中。这不仅是我的普通的一天，农场战友几乎皆是如此。
 
-据路德社报道，鲍嘉琪(Jiaqi)是薄熙来的私生女薄甜甜。这份电子邮件是薄甜甜在2018年4月10日的下午6点23分发给亨特·拜登。亨特·拜登是现民主党总统候选人乔拜登儿子。邮件中提到的吉姆(Jim)叔叔,是乔拜登的弟弟。
+俄罗斯喜马拉雅农场所处的地理位置与政治环境极为特殊。在文贵先生呼吁爆料革命战友用13天时间唤醒世界，用真相揭露CCP以及被CCP兰金黄的国家时，玛莎就不断叮嘱战友们要尽最大努力唤醒俄语世界。为此她和几位战友经常熬夜或半夜起床轮班。每个参与的战友都深知，或许每个人都力量非常渺小，但汇聚起来的力量可以给俄罗斯的带去真相。事实也证明了这点，最近不断有俄媒正面报道爆料革命。
 
-邮件证明了薄甜甜曾经在当时免费注册了哈德逊西部有限责任公司(Hudson West LLD ) 。
+战友们地处世界多个时区，当一个时区已是深夜凌晨而另一个时区的战友迎来朝霞开始接力继续战斗！我们就这样以每天24小时连续不间断的循环往复与邪恶媒体和恶魔般的CCP缠斗着。农场领导骨干按照24小时编排了轮流值班顺序，给大家安排任务并解决随时出现的问题，带领战友们有条理有秩序有策略地和恶媒周旋。陪伴我们的除了充电器，眼药水，咖啡和浓茶之外，还有正义带给我们的使命感和成就感。战友们互相鼓舞鼓励，那种温暖和亲切无以言表。推特脸书对我们打压噤声，我们就去Parler, Gab; 他们删除Gtv, Gnews链接，我们就利用图片涂鸦等方式绕过他们的过滤围剿; 他们封掉一个账号，我们就立刻注册上百个新号。每到了一个时区的战友睡觉时间，可正赶上有新的任务刚刚下达，他们就继续战斗，最后常常是通宵达旦，连续几十个小时不眠。大家心在一起，劲儿在一处：Take Down The CCP ！
 
-由她亲昵的称呼吉姆(Jim)叔叔，可以看出其关系之不寻常。作为中共要员的私生女，薄甜甜哪里来的金钱为拜登家族免费注册公司? 他们注册这家公司的目的，洗钱，藏钱?? 后来拜登家族是如何利用这家公司的? 薄甜甜作为薄熙来的代表，还做了哪些与拜登家族的交易?
+早晨起床转眼就到了晚饭时间，虽然腰酸屁股痛、眼睛昏花，但只要一天里收到对我们正义之声的回复和共鸣，喜悦就发自内心。想犒劳一下自己，但又不愿意浪费太多时间，外卖便当就成了我们的大餐。其它时区的战友开始先后投入战斗了！所以，一边吃一边继续战斗在滚滚洪流之中。如果有摄影，此刻我们战友最美丽的风景就是，嘴里叼着披萨，手上捧着手机，眼睛盯着屏幕……每一个战友都在尽自己最大的努力，为爆料革命默默地加上自己的那一根稻草。
 
-战鹰团/英喜庄园翻译组战友从班农战斗室获悉此邮件，现紧急发布，以帮助战友们深入挖掘真相。
-[!\[\]()!\[\](https://spark.adobe.com/page/OKuLmCzmVz7ka/images/0112300f-505e-426f-8da7-5b3976facc95.jpg?asset_id=b7e9831e-fc28-45f5-a3de-26bcf2a490b7&amp;img_etag=%22e01e4b0f65ff8143181f26e61d4fa470%22&amp;size=2560)](https://spark.adobe.com/page/OKuLmCzmVz7ka/images/0112300f-505e-426f-8da7-5b3976facc95.jpg?asset_id=b7e9831e-fc28-45f5-a3de-26bcf2a490b7&amp;img_etag=%22e01e4b0f65ff8143181f26e61d4fa470%22&amp;size=1024)
-**原文翻译：**
+我们身处一个巨变的时代，并且有幸成为爆料革命的一员！未来的某一天我们面对镜子里的自己，一定会说：谢谢你，选择了正义，还好，你没有虚度这段时光！
 
-发件人: 鲍嘉琪(Jiaqi Bao)
-
-主题: 你公司的注册
-
-日期: 2018年4月10日 下午6:23
-
-致: 亨特·拜登(Hunter Biden) 罗伯特·拜登(Robert Biden)
-
-亨特,
-
-你好吗？希望你近来一切顺利。还记得我们收到的”哈德逊西部有限责任公司(Hudson West LLD )”的公司名吗？在这公司名称保留截止日期结束之后，我已让它自动注册成为一有限责任公司。
-
-我不知道你们下一步的计划是什么，但无论如何，这公司已注册在你的名下了，以备将来，可能对你有用。这就是我为你注册”哈德逊西部有限责任公司(Hudson West LLD) ”的原因。
-
-“哈德逊西部有限责任公司(Hudson West LLD )”暂时以我的名字注册。我的名字和信息只是先用来占个位置的，目的是为了及时完成所需的文书工作。为了不失去你和吉姆(Jim)叔叔都喜欢的这个名字，我们现在必须注册（在截止日期前完成注册是非常重要的，因为有一些相同或相似名字的公司可能会搞混）。我很乐意随时转让给你或你认为合适的人。只要让我知道就行了! 这真的都是为了你，这是你的公司。
-
-另外, 公司注册幸运日+幸运号码，没问题的。你懂我的，呵呵。
-
-祝好，
-
-嘉琪(Jiaqi)
-
-[原文链接](https://twitter.com/WarRoomPandemic/status/1322043760776253440)
-
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/OKuLmCzmVz7ka/)】- 点击spark adobe版
-
-了解更多资讯敬请关注：
-
-[点击阅读倫敦英喜莊園Himalaya UK在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-【战鹰团Gab】[https://gab.com/himalayahawks](https://gab.com/himalayahawks)
-
-【英喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
-
-【英喜庄园GTV/盖特】：[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-【大卫作战室YouTube】[https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
-[!\[\]()!\[\](https://spark.adobe.com/page/OKuLmCzmVz7ka/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/OKuLmCzmVz7ka/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

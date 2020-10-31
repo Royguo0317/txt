@@ -1,29 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国总统大选|最新民调显示川普总统在摇摆州遥遥领先
-` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/509167/)
+## 【军事快讯】CCP下属研究机构透露 美军同一天向南海派出三架侦察机
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/509512/)
 
-内新闻：背靠背
+作者：香草山写作组 人间世
 
-2020年美国总统大选鏖战正酣，根据特拉法加民意调查的新民意调查，川普总统在密歇根州，宾夕法尼亚州、亚利桑那、北卡罗来纳和佛罗里达州获胜。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28173039/logo-1.jpg)
 
-密西根州：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31093909/image-201.png)
-宾夕法尼亚州：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31095038/image-203.png)
-佛罗里达：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31093933/image-202.png)
-亚利桑那：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31100043/az.jpg)
-北卡罗来纳：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31095604/image-204.png)
-全美一共538张选举团票，获得其中270张即当选总统。
 
-按美国政治版图现状看，全美50个州及首都哥伦比亚特区除了摇摆州之外，其它的州有固定的党派属性，比如西部的加州、俄勒冈、华盛顿，东部的马萨诸塞、纽约、新泽西、马里兰等都是民主党票仓，而中西部、南部的怀俄明、内布拉斯加、阿拉巴马、南卡罗来纳、密西西比等则是共和党的铁票。对于两党来说，这些各自属于自己的选举团票是稳定的票源，无需担心，但为获得270票多数，摇摆州的选举团票成为关键。
 
-“摇摆州”（swing state）又称“战场州”（battleground state），在美国总统大选中起着决定作用。亚利桑那、佛罗达、密歇根、北卡罗来纳、宾夕法尼亚、威斯康星、佐治亚、俄亥俄、新罕布什尔、爱荷华等常被列入摇摆州。
 
-每一个州的选举团票投给哪一位总统候选人并不由选举团成员决定，而是由该州选民决定。如果该州选民的多数投票给共和党总统候选人，则该州的选举团票就必须全部归给共和党总统候选人，反之亦然。表面看，当选总统的候选人是获得半数以上选民支持，特殊情况例外通常比如2016年大选，川普获得多数选举团票，但却比希拉里·克林顿少近290万张选民票。
+
+中共国北京大学海洋研究院“南海战略态势感知计划”（SCS Probing Initiative）平台在推特发布消息指，10月30日上午，美军同时向南海派出了3架侦察机，加强对南中国海的侦察活动。其中两架侦察机从巴士海峡进入南海，另一架侦察机则经停菲律宾后进入南海。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31103548/197-%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91CCP%E4%B8%8B%E5%B1%9E%E7%A0%94%E7%A9%B6%E6%9C%BA%E6%9E%84%E9%80%8F%E9%9C%B2-%E7%BE%8E%E5%86%9B%E5%90%8C%E4%B8%80%E5%A4%A9%E5%90%91%E5%8D%97%E6%B5%B7%E6%B4%BE%E5%87%BA%E4%B8%89%E6%9E%B6%E4%BE%A6%E5%AF%9F%E6%9C%BA-1.jpg)图片来自SCS Probing Initiative推特帐号![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31103609/197-%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91CCP%E4%B8%8B%E5%B1%9E%E7%A0%94%E7%A9%B6%E6%9C%BA%E6%9E%84%E9%80%8F%E9%9C%B2-%E7%BE%8E%E5%86%9B%E5%90%8C%E4%B8%80%E5%A4%A9%E5%90%91%E5%8D%97%E6%B5%B7%E6%B4%BE%E5%87%BA%E4%B8%89%E6%9E%B6%E4%BE%A6%E5%AF%9F%E6%9C%BA-2.jpg)图片来自SCS Probing Initiative推特帐号![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31103654/197-%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91CCP%E4%B8%8B%E5%B1%9E%E7%A0%94%E7%A9%B6%E6%9C%BA%E6%9E%84%E9%80%8F%E9%9C%B2-%E7%BE%8E%E5%86%9B%E5%90%8C%E4%B8%80%E5%A4%A9%E5%90%91%E5%8D%97%E6%B5%B7%E6%B4%BE%E5%87%BA%E4%B8%89%E6%9E%B6%E4%BE%A6%E5%AF%9F%E6%9C%BA-3.jpg)图片来自SCS Probing Initiative推特帐号
+中共喉舌《环球网》分析“南海战略态势感知”计划平台10月30日发布的消息指出，一架美国陆军的CL-604侦察机一架美国海军的EP-3E电子侦察机和一架美国海军P-8A反潜巡逻机，在同一天进入南中国海执行侦察任务。美国海军的EP-3E侦察机、P-8A巡逻机都是途径巴士海峡进入南海，EP-3E电子侦察机还一度飞行至距离广东省沿岸只有51.97海里（约合96.24公里）的位置。通过巴士海峡向西飞行进入南海是美军侦察机的“常规路线”。但这次美国陆军CL-604侦察机则是飞经菲律宾上空后进入南海，期间还在菲律宾短暂停留。“南海战略态势感知”计划平台推测，CL-604侦察机可能是在菲律宾进行加油补给。
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayanyM)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，免费英语教学，美东时间周一至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
