@@ -1,35 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《拦截》（The Intercept）拒登批评拜登文章　普立兹奖美国记者格林华德（Glenn Greenwald）辞职
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/507805/)
+## 【国内快讯】女子自杀拉人陪葬——中共幽灵对人心的污染
+` shangshang` [轉載自GNews](https://gnews.org/zh-hans/507740/)
 
-整撰：文燕
+内新闻/素材：一碗兰州（文远）   校对：雅典娜的圣斗士(沙加)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31011201/57037FB9-0277-499D-8920-C1D9732B4F83.jpeg)
+10月21日，南京市溧水区无想山水库有两名女子溺水身亡，根据网络上流传的一截监控视频可以看出，黑衣女子趁黄衣服女子不备，将黄衣服女子猛推入水中并跟着跳了进去。
 
-审核：MY
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31010745/image001-21.png)美国记者格林华德（Glenn Greenwald）（图片来源：美联社数据图片）
-曾获普立兹奖的美国记者格林华德（Glenn Greenwald）表示，《拦截》新闻网站拒绝刊登他批评民主党总统候选人拜登的文章，他因此辞职。 53岁的格林华德，是率先报道斯诺登（Edward Snowden）披露美国政府大规模监控计划的记者之一。 《卫报》的有关报道，获得2014年普立兹奖最高荣誉的公共服务奖。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31010808/image003-14.png) 图片：格林华德宣布辞职。![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31010717/image005-4.png)图片：《拦截》发表格林华德辞职声明。
-据【众新闻】10月30日报道，格林华德2013年离开英国《卫报》后，与两名记者共同创立调查新闻网站《拦截》（The Intercept）。格林华德早前在网上贴文表示：「今天，我向我于2013年与斯加希尔及保托拉斯联合创立的《拦截》，以及其母公司First Look Media提出辞职」。
+南京市公安局溧水分局称，两人均已溺亡，22日就已立案侦查，视频中的黑衣女子生前服用过抑郁症药物。据网络消息，黄衣女子是黑衣女子的朋友，事发当天黄衣女子陪黑衣女子来水库散心，不想竟遭此厄运。
 
-格林华德指出辞职原因：《拦截》编辑违反合约赋予我编辑自由的权利，审查我这星期写的一篇文章并拒绝刊登，除非我删除批评民主党总统候选人拜登的所有段落。所有参与此次压制行动的《拦截》在纽约的编辑，都强烈支持拜登这位候选人」（the final, precipitating cause is that The Intercept’s editors, in violation of my contractual right of editorial freedom, censored an article I wrote this week, refusing to publish it unless I remove all sections critical of Democratic presidential candidate Joe Biden, the candidate vehemently supported by all New-York-based Intercept editors involved in this effort at suppression）。
+看过视频的网友们直呼恐怖，自杀还要拉着别人垫背。由此引出民间俗语“一人不进庙，二人不看井，三人不抱树，独坐莫凭栏”，以此警示世人人心叵测，需处处提防。
 
-格林华德说，被审查的稿件，是根据最近透露的电邮及目击者的证供，对拜登的行为提出批评性的质疑（the censored article, based on recently revealed emails and witness testimony, raised critical questions about Biden’s conduct) 。格林华德在辞职声明附有他撰写的该篇文章以及《拦截》编辑给他的电邮。
+单一的事件或许不能证明什么，但不可否认，当下的中共国笼罩在阴霾之下，所谓“一党独裁，遍地是灾”，更何况这“一党”是席卷半个地球残害生灵无数的“假、丑、恶”共产党，它给中国人乃至全世界带来的“心霾”让人间沦为地狱。
 
-《拦截》其后发表声明，指格林华德要求对他发表的文章有绝对的决定权，又指「他相信所有不同意他的人都是腐败，所有人编辑他的文字都是审查」。声明又说，「现在必须清楚说明，我们的目标是编辑他的文稿，以保证它是准确及公平」，「他指控我们有政治偏见，但他是企图回收使用一个政治阵营的可疑指控，特朗普阵营，以及把这些洗成像新闻」。
+从“乳山市统计局员工向单位饮水机投毒”到“中石油举报者李晓飞杀四人后自杀”，再到“马加爵案主审法官杀人”，10月底的几则新闻，一桩桩惨剧背后反映出畸形的人性与丑陋的体制。
 
-战友点评：
+什么样的体制造就什么样的人性，“共惨党”幽灵抹杀善与爱，传播厚黑与杀戮，其毒害之深远，好比土地、水源之污染，即使消灭了污染根源，也需要几代人的努力才能修复！
 
-格林华德辞职《拦截》（The Intercept）这件事上，标志了爆料革命路德社揭露「三块硬盘」事实真相的威力，爆料革命唤醒了越来越多有独立判断能力的人。
+新闻来源：
 
-有良知有远见的记者如格林华德认识到报道事实才是他们生存之道，这些坚守媒体道义的媒体人必定能成为有良知媒体报道真相的领头羊。
+[https://xw.qq.com/cmsid/20201025A0CMXO00](https://xw.qq.com/cmsid/20201025A0CMXO00)
 
-以上观点仅代表笔者本人
+[https://xw.qq.com/cmsid/20201026A0H15Q00?f=newdc](https://xw.qq.com/cmsid/20201026A0H15Q00?f=newdc)
 
-资料来源：众新闻\ 立场新闻
+[https://finance.sina.cn/chanjing/gsxw/2020-10-20/detail-iiznctkc6566190.d.html?cref=cj](https://finance.sina.cn/chanjing/gsxw/2020-10-20/detail-iiznctkc6566190.d.html?cref=cj)
 
-[https://www.hkcnews.com/article/35186/%E6%A0%BC%E6%9E%97%E8%8F%AF%E5%BE%B7glenn\_greenwald-%E3%80%8A%E6%94%94%E6%88%AA%E3%80%8Bthe\_intercept-%E6%8B%9C%E7%99%BB-35191/%E7%B6%B2%E7%AB%99%E6%8B%92%E7%99%BB%E6%89%B9%E8%A9%95%E6%8B%9C%E7%99%BB%E6%96%87%E7%AB%A0-%E6%99%AE%E7%AB%8B%E8%8C%B2%E7%8D%8E%E8%A8%98%E8%80%85%E8%BE%AD%E8%81%B7](https://www.hkcnews.com/article/35186/%E6%A0%BC%E6%9E%97%E8%8F%AF%E5%BE%B7glenn_greenwald-%E3%80%8A%E6%94%94%E6%88%AA%E3%80%8Bthe_intercept-%E6%8B%9C%E7%99%BB-35191/%E7%B6%B2%E7%AB%99%E6%8B%92%E7%99%BB%E6%89%B9%E8%A9%95%E6%8B%9C%E7%99%BB%E6%96%87%E7%AB%A0-%E6%99%AE%E7%AB%8B%E8%8C%B2%E7%8D%8E%E8%A8%98%E8%80%85%E8%BE%AD%E8%81%B7)
+[https://baijiahao.baidu.com/s?id=1681939489829765853&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1681939489829765853&amp;wfr=spider&amp;for=pc)
 
-[https://www.thestandnews.com/international/%E7%8D%B2%E6%99%AE%E7%AB%8B%E8%8C%B2%E7%8D%8E%E8%A8%98%E8%80%85%E8%BE%AD%E8%81%B7-%E7%A8%B1%E6%89%B9%E8%A9%95%E6%8B%9C%E7%99%BB%E6%96%87%E7%AB%A0%E9%81%AD%E5%AF%A9%E6%9F%A5-%E5%AA%92%E9%AB%94%E5%90%A6%E8%AA%8D%E6%9C%89%E6%94%BF%E6%B2%BB%E5%81%8F%E8%A6%8B/](https://www.thestandnews.com/international/%E7%8D%B2%E6%99%AE%E7%AB%8B%E8%8C%B2%E7%8D%8E%E8%A8%98%E8%80%85%E8%BE%AD%E8%81%B7-%E7%A8%B1%E6%89%B9%E8%A9%95%E6%8B%9C%E7%99%BB%E6%96%87%E7%AB%A0%E9%81%AD%E5%AF%A9%E6%9F%A5-%E5%AA%92%E9%AB%94%E5%90%A6%E8%AA%8D%E6%9C%89%E6%94%BF%E6%B2%BB%E5%81%8F%E8%A6%8B/)
-
-0
+3+
