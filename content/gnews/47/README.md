@@ -1,57 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班农战斗室418期：闫博士讲述自己如何逃离香港【精华版国粤双语配音】
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/508109/)
+## 亨特·拜登第三波: 硬盘邮件解密35 2014年5月15日希瑟·金(律师)写信给德文·阿彻和亨特·拜登，希望他们采纳她之前给布利斯马(Burisma)的建议,也就是布利斯马除了公关公司,还需要聘请一家游说公司和调查研究公司
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/508471/)
 
-班农战斗室418期：闫博士讲述自己如何逃离香港【精华版粤语配音】
+前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
 
-制作单位：战友之家·粤语频道
+**亨特·拜登第三波：硬盘邮件解密**
 
-素材制作：Warroom Pandemic
+**2014年5月15日希瑟·金, 鲍伊斯/希勒/弗莱克斯纳律师事务所合伙人写信给德文·阿彻和亨特·拜登，希望他们采纳她之前给布利斯马(Burisma)的建议，即在希瑟看来，布利斯马除了公关公司，肯定还需要聘请一家游说公司和一家调查研究公司。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31055241/8Privileged_and_Confidential_00.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31055816/8Privileged_and_Confidential_06.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31055819/8Privileged_and_Confidential_07.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31055821/8Privileged_and_Confidential_08.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31055824/8Privileged_and_Confidential_09.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31055826/8Privileged_and_Confidential_10.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31055839/8Privileged_and_Confidential_11.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31055842/8Privileged_and_Confidential_12.png)
+[**2014年5月15日希瑟·金,鲍伊斯/希勒/弗莱克斯纳律师事务所合伙人写信给德文·阿彻和亨特·拜登，恳求他们采纳她之前给布利斯马(Burisma)的建议，即在希瑟看来，布利斯马除了公关公司，肯定还需要聘请一家游说公司和一家调查研究公司。**](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31055342/8Privileged_and_Confidential.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31055342/8Privileged_and_Confidential.pdf)
 
-片段选取：文恩
-
-视频剪辑：食饱饱
-
-音频剪辑：麻辣汤
-
-字幕校对：乔巴
-
-视频配音：wikim bao、哥阿、文乔
-
-
-
-————————
-
-班农战斗室418期：闫博士讲述自己如何逃离香港【精华版国语配音】
-
-制作单位：战友之家·粤语频道
-
-素材制作：Warroom Pandemic
-
-片段选取：文恩
-
-视频剪辑：食饱饱
-
-字幕校对：乔巴
-
-视频配音：之之、老徐、文君
-
-
-
-概要：
-
-闫博士是如何离开香港的，闫博士和路德接触之后，她将这些事情告诉路德，然后她开始意识到自己必需要逃离香港，这似乎和有些惊悚悬疑连续剧的情节非常相似，这凸显了你所受的危险和你们的勇敢。
-
-我离开香港是因为路德告诉我的情报，自从我和他一起工作几个月以来，尽管我是匿名透露了有关COVID-19的真相，但是中共已经将我定为攻击目标，他们想让我消失。
-
-第二由于这个病毒大流行，越来越严重，而西方人仍然没有获得这种病毒的正确信息，因此我意识到我必须站出来，因为我可能是唯一一个，当然也是第一个，即是科学家又是医生的内部人士，来告诉人们COVID-19的事实，因此我决定离开香港，前往美国。
-
-那段时间我真的很难做出选择，但是当我看到危险越来越近时，我就拿到机票马上逃离香港，是法治基金帮我安排了机票。
-
-就 在我逃离香港的前一天，还有在第二天我去机场之前，我不得不假装去上班，我假装去校园看医生，然后回到家，我迅速带了些行李，坐车去到实验室，因为我将护照放在了实验室，以防万一我不能带任何行李，
-
-然后我带上我的护照，我还要假装和同事交谈和主管潘烈文交谈，比如报告我的工作，并讨论我工作上的进展，然后我在午餐时间，他们以为我要去独立实验室做。
-
-1+
+0

@@ -1,61 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 邮件秘密: 薄熙来私生女薄甜甜送拜登家族哈德逊西部公司
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/509438/)
+## 推特现状：推特退缩了，解锁了纽约邮报的账号，股价下跌了
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/509670/)
 
-*新闻来源：《Bannon War Room》；发布时间：2020年10月31日*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31112414/%E5%B0%81%E9%9D%A21111.jpg)
+翻译：康州农场-烟波浩淼
 
-*翻译/简评：Beicy-数学老师；校对：johnwallis；审核：TCC；Page：Connor54*
-[!\[\]()!\[\](https://spark.adobe.com/page/OKuLmCzmVz7ka/images/a3dbe142-161e-407c-b87c-5c357e92812b.jpg?asset_id=d4a4e7ae-f782-4d4b-adb6-29930c614307&amp;img_etag=%22ee1b3286b5cdae1fd8116bf09d1556f4%22&amp;size=1024)](https://spark.adobe.com/page/OKuLmCzmVz7ka/images/a3dbe142-161e-407c-b87c-5c357e92812b.jpg?asset_id=d4a4e7ae-f782-4d4b-adb6-29930c614307&amp;img_etag=%22ee1b3286b5cdae1fd8116bf09d1556f4%22&amp;size=1024)
-**简评：**
+校对：康州农场-Truemanman
 
-据路德社报道，鲍嘉琪(Jiaqi)是薄熙来的私生女薄甜甜。这份电子邮件是薄甜甜在2018年4月10日的下午6点23分发给亨特·拜登。亨特·拜登是现民主党总统候选人乔拜登儿子。邮件中提到的吉姆(Jim)叔叔,是乔拜登的弟弟。
+推特周五在与《邮报》的战斗中退缩了，并在亨特-拜登曝光事件僵持两周后解封了其主账号。
 
-邮件证明了薄甜甜曾经在当时免费注册了哈德逊西部有限责任公司(Hudson West LLD ) 。
+此举是在《邮报》拒绝推特要求其删除六条与推特声称源于黑客信息的相关的推文但没有任何证据的情况之后。
 
-由她亲昵的称呼吉姆(Jim)叔叔，可以看出其关系之不寻常。作为中共要员的私生女，薄甜甜哪里来的金钱为拜登家族免费注册公司? 他们注册这家公司的目的，洗钱，藏钱?? 后来拜登家族是如何利用这家公司的? 薄甜甜作为薄熙来的代表，还做了哪些与拜登家族的交易?
+邮报从来没有让步，在僵持期间，该账户上的推文仍然存在即使推特将它们遮挡起来。
 
-战鹰团/英喜庄园翻译组战友从班农战斗室获悉此邮件，现紧急发布，以帮助战友们深入挖掘真相。
-[!\[\]()!\[\](https://spark.adobe.com/page/OKuLmCzmVz7ka/images/0112300f-505e-426f-8da7-5b3976facc95.jpg?asset_id=b7e9831e-fc28-45f5-a3de-26bcf2a490b7&amp;img_etag=%22e01e4b0f65ff8143181f26e61d4fa470%22&amp;size=2560)](https://spark.adobe.com/page/OKuLmCzmVz7ka/images/0112300f-505e-426f-8da7-5b3976facc95.jpg?asset_id=b7e9831e-fc28-45f5-a3de-26bcf2a490b7&amp;img_etag=%22e01e4b0f65ff8143181f26e61d4fa470%22&amp;size=1024)
-**原文翻译：**
+在一系列推文中，这家社交媒体巨头表示，它正在修订其 “黑客资料政策”，并 “更新了我们做法，即不追溯先前的政策条款，推翻以前的执行”。
 
-发件人: 鲍嘉琪(Jiaqi Bao)
+“我们的政策是灵活的，”@TwitterSafety的一条推文说。
 
-主题: 你公司的注册
+“当我们遇到新的情况或收到公众的重要反馈时，我们愿意更新和调整它们。”
 
-日期: 2018年4月10日 下午6:23
+《邮报》以推文宣布“我们回来了了了了”和周六头版图片，并以标题“ 自由的鸟！”来庆祝胜利。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31004143/%E5%9B%BE%E7%89%8711-7.png)
+这条消息迅速走红，在大约一个小时内就积累了超过1.7万次转发和近5万个赞。
 
-致: 亨特·拜登(Hunter Biden) 罗伯特·拜登(Robert Biden)
+推特武断地打压《邮报》，并在10月14日封了它的账号。
 
-亨特,
+该公司声称，《邮报》在推特上发布关于拜登邮件的重磅炸弹独家新闻的链接，从而违反了分享 “黑客材料 “的政策，但是推特从未没有说出如何得出这个结论的依据，尽管事实是亨特-拜登或其他任何人都没有声称他的邮件被黑。
 
-你好吗？希望你近来一切顺利。还记得我们收到的”哈德逊西部有限责任公司(Hudson West LLD )”的公司名吗？在这公司名称保留截止日期结束之后，我已让它自动注册成为一有限责任公司。
+此举引发了广泛的愤怒，导致推特修改了政策，让其他用户可以在推特上发布这些报道。
 
-我不知道你们下一步的计划是什么，但无论如何，这公司已注册在你的名下了，以备将来，可能对你有用。这就是我为你注册”哈德逊西部有限责任公司(Hudson West LLD) ”的原因。
+但推特拿《邮报》的账号继续要挟，要删除其六条关于《邮报》报道的推文，但是他们从来没有这么做。
 
-“哈德逊西部有限责任公司(Hudson West LLD )”暂时以我的名字注册。我的名字和信息只是先用来占个位置的，目的是为了及时完成所需的文书工作。为了不失去你和吉姆(Jim)叔叔都喜欢的这个名字，我们现在必须注册（在截止日期前完成注册是非常重要的，因为有一些相同或相似名字的公司可能会搞混）。我很乐意随时转让给你或你认为合适的人。只要让我知道就行了! 这真的都是为了你，这是你的公司。
+“虽然我们已经更新了政策，但我们不会追溯先前的政策条款。你们仍然需要删除那些推文才能重新获得对你账户的访问权。”10月16日，一位推特代表告诉《邮报》。
 
-另外, 公司注册幸运日+幸运号码，没问题的。你懂我的，呵呵。
+推特还通过用 “此推文已不可用 “的信息取代这6条推文，使用户看不到这些推文。
 
-祝好，
+周五，该公司表示，根据其最新的政策修订，”如果争议帐户是这一更改的驱动力，那么根据后来更改和发布的策略做出的决定现在可以提出上诉。”
 
-嘉琪(Jiaqi)
+推特说”我们认为这是公平和适当的。”
 
-[原文链接](https://twitter.com/WarRoomPandemic/status/1322043760776253440)
+“这意味着，因为一个对@nypost账号的强制执行导致我们更新了黑客材料政策，我们将不再根据以前的政策条款限制他们的账户，他们现在可以再次发帖。”
 
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/OKuLmCzmVz7ka/)】- 点击spark adobe版
+新闻集团称此举是 “新闻业和新闻自由的重要时刻”。
 
-了解更多资讯敬请关注：
+“没有任何证据表明这些文件不是真实的，在这个选举季的关键时刻，刻意封锁《邮报》是一个重要时刻。 这也给《邮报》造成了负面的商业影响，但《邮报》团队认定原则应该占上风，而且确实如此。
 
-[点击阅读倫敦英喜莊園Himalaya UK在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+首席通讯官Jim Kennedy说：“该报的创始人Alexander Hamilton今晚带着灿烂的笑容和自豪感往下看。”。
 
-【战鹰团Gab】[https://gab.com/himalayahawks](https://gab.com/himalayahawks)
+邮报在被封账户的同时，获得了约19万名粉丝，在短短两周左右的时间里增加了10.6%。
 
-【英喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
+与此同时，推特的股价周五暴跌超过21%，至41.36美元/股，下跌11.09美元。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31111306/%E5%BE%AE%E4%BF%A1%E6%88%AA%E5%9B%BE_20201031231247.png)
+相比之下，标普500指数的跌幅仅为1.2%，而推特在2018年取代被拜耳收购的Monsanto时加入了该指数。
 
-【英喜庄园GTV/盖特】：[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+推特CEO 杰克.多尔西在出席周三参议院商业，科学和运输委员会听证会上出现问题之后，该公司突然面对《邮报》及其华尔街交易员的严厉对待。
 
-【大卫作战室YouTube】[https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
-[!\[\]()!\[\](https://spark.adobe.com/page/OKuLmCzmVz7ka/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/OKuLmCzmVz7ka/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-0
+多尔西通过视频就公司对待《邮报》亨特-拜登的报道作证时，否认了参议员特德-克鲁兹的指责，克鲁兹说：”你们还在封杀他们的帖子，就在今天，你们正在封杀他们的帖子。”
+
+多尔西回应道 “我们没有屏蔽《邮报》，任何人都可以在推特上发表这些文章。”
+
+但特朗普总统竞选活动的发言人很快发布了一段视频，显示她被阻止在推特上发布10月15日《邮报》的一篇报道，内容是关于2017年涉及亨特-拜登的商业计划，其中一家新公司10%的股份将 “由H为一个大人物代持”。
+
+在多尔西发表言论大约两小时后，该报道的禁令被解除，推特称这是技术故障所致。
+
+原文链接：[https://nypost.com/2020/10/30/twitter-backs-down-agrees-to-unlock-posts-account/](https://nypost.com/2020/10/30/twitter-backs-down-agrees-to-unlock-posts-account/)
+
+1+

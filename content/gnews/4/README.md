@@ -1,126 +1,351 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【文字版】10/30/2020 路德时评（路博艾冠谈嘉宾班农先生）：封杀爆料革命为什么导致推特公司股价大跌20%？朱利安尼市长说大选之后拜登就会进联邦监狱意味着什么？
-` 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hans/508917/)
+## 乔拜登会宣布退选吗？《每日快报 &#8212; 2020.10.31》
+` 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hans/509215/)
 
-文字校对：[茅屎坑](https://gwins.org/cn/name/12737.html) [sdblack](https://gwins.org/cn/name/16674.html) [墨墨十七](https://gwins.org/cn/name/19586.html) kimkim（文沙）（日本东京樱花团）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31023339/D-lu-2.png)
+**作者：星空无垠**
 
 
-**摘要：**
+![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2020/10/每日快报.png)
 
-[——路德华盛顿DC筹备11.3选举夜直播✊
-🔸班农WarRoom将携手GTV爆料革命同场直播，中国人数千年的首次大选‼️
-🔸Twitter今日股价暴跌21％，封杀政治核心爆料革命致流量骤减‼️
-🔸川普竞选集会改称中国为共产中国‼️
-🔸朱利安尼怒斥左媒无视拜登犯罪证据，痛斥拜登毁了亨特，出卖美国应立即送监狱‼️
-🔸美普利策奖名记Greenwald因撰稿批评拜登腐败，遭其创办媒体Intercept删除，愤然辞职，左媒良知记者开始觉醒‼️](https://parler.com/post/8051271bb9384ac98b650730e280c6d3)
 
-[Gwins原文链接](https://gwins.org/cn/lude/20691.html)
 
-**路德**
 
-路德先生：艾丽把画面调一下啊，大家大家好，大家好，我在华盛顿，华盛顿DC。今天我们连线班农先生啊，你看班农先生后面是国会，艾丽把画面调一下，好，今天班农先生来到咱们这里了，他会先说啊，先来给给大家介绍重要的事情，博博士给大家介绍一下。
+***今日摘要***
 
-博博士：好的，各位观众，大家好，今天班农先生花点时间来我们的节目，给大家介绍一下一些重要事情。我们现在就让班农先生开始。然后如果有时间的话，我们还可以问他一两个问题，因为今天班农先生的时间非常紧，他大概只有5~10分钟，所以我们可以让他先开始啊。「Good evening. I think you can.」
+1. [拜登今天会宣布退出竞选，并认罪，换取免于起诉吗？](//300CE1C6-6717-4B12-A0A7-198C100E98A3#%E5%8F%B8%E6%B3%95%E9%83%A8%E9%95%BF%E5%B7%B4%E5%B0%94)(未知真假！！！)
+2. [川普口中拜登刚刚出了糟糕的新闻，你们明天就会知道，会是什么呢？](//300CE1C6-6717-4B12-A0A7-198C100E98A3#%E5%8F%B8%E6%B3%95%E9%83%A8%E9%95%BF%E5%B7%B4%E5%B0%94)
+3. [推特股价重挫21%，迫于压力，解封纽约邮报账号](//300CE1C6-6717-4B12-A0A7-198C100E98A3#%E7%BA%BD%E7%BA%A6%E9%82%AE%E6%8A%A5)
+4. [GTV、Gnews和WarRoom将在国会山前最好的位置直播总统大选的盛况](//300CE1C6-6717-4B12-A0A7-198C100E98A3#GTV)
 
-班农先生：「My from Washington DC at the location is what the best 1.With the most outstanding you t tv, the war are going to.
-Have a election night global TV special live with love. All the personality GT v, and all the world.Jack max Steven k ban on Jack the soviet from one American news John friend who can have a Complete team of americans and list.The post plus entire Chinese part of the news on TV the first time that has ever been done. So I’m so proud to announce.Does everybody in the sea is talking about its gonna be very exciting to remember. What happens next Tuesday in the United States is the most important election in China.
-And 5000 years. So come and see how democracy works. I couldn’t be more excited to have the entire team from his show from GT vg.就是all the words of blood is the new favorite state. We are going to have a global TV special for guys. We can take it back to the studio, we are gonna be right here this beautiful.Your the nation’s capital, this is the Top location, better than CNN, rather than MSNbc, better than CCTV better than BBC.GT v war right here like starting at seven o’clock DC time next Tuesday until we are until we get to the morning.
-And call the winner. That’s awesome, such a great event. We are looking forward to that.Let you go. Can we ask you a question? Recently we can we have lots of you no like Washington post and all those are left news.Paper on the left side, they are saying that a noodle media is giving out for the Information about a.Family and a warm program is also doing that. So what do you what you’re talking about that the.
-In some kind of ali are so afraid of what’s on the hard drive from hell that they don’t want to deal with it. Shut down all the accounts just right before we came on this.Broadcast they lifted the instructions on on the new post. So listen my point is that people want to see what the news is that you go to.CCTV war room and let the main stream media since they don’t have the hard drive let them deal with it, but I could tell you tomorrow we are going to be live at ten o’clock in the.Morning putting out more news Information Jack max will beating up, us so much more on next Tuesday night for the entire Chinese audience. Just be prepared some.
-The clock at night live from our nation’s capital over look ING this beautiful view of the capital of the best view of anybody we’re going to be here live with the great.From your room, the part of with g news and GT v could wait for and watch the show in war room between now there is gonna be a lot more.Breaking news on the crime city. We are looking forward to that. 」
 
-博博士：「Thank you so much and you look great in your jacket.Thank you miss a good night.」
-好了啊，路德，刚才班农先生给我们传播的这个巨大的新闻啊，大新闻啊，下个星期二晚上真的是一个，嗯，关于选举之夜的，美国这边大家也知道，这个11月3号是美国的这个选举日啊，所以说，整晚，整个的这个WAR ROOM节目，GTV节目，GNEWS节目，都将开始在刚才班农先生站在那个地方进行直播，大家可以看到，那个地方，班农先生刚才说了，是整个DC视野最好的一个直播地点啊，他说是office啊，因为这个地方她可以直接看到，背后就是美国的国会山，就是在这个时候整夜直播来，给大家传播这个大选的这个消息，而且班农先生刚才说，这是中国人民跟美国人民一样，是中国人民5000年以来最重要的一次大选啊，这个真的是所言不虚啊，所以说大家一定要，下个星期二晚上，一定要跟紧我们的节目啊，我们会给大家，就是即刻的播报这样的这个消息。好，路德。
+重要事件
 
-路德先生：后面一个问题啊，你问了什么？
+- 10.30. National Pulse [亨特电子邮件要求与父亲举行正式会议以确保数十亿美元的交易EXCLUSIVE: Hunter E-Mails Request ‘Formal Meetings With Dad’ To Secure Billion-Dollar Deals](https://thenationalpulse.com/politics/biden-biz-partner-leverages-joe/)
+亨特-拜登正在跟进一笔10亿美元的债券交易。他的搭档建议：”我们需要让这些人去参加一个活动，让他们正式见你爸爸一面 “他们可以和幕僚长谈一谈”
+- 10.30. 纽约邮报[推特如何做的：推特退缩，解锁了纽约邮报的账号 How tweet it is: Twitter backs down, unlocks Post’s account](https://nypost.com/2020/10/30/twitter-backs-down-agrees-to-unlock-posts-account/?utm_source=twitter_sitebuttons&amp;utm_medium=site%20buttons&amp;utm_campaign=site%20buttons)
+邮报在被锁定账户的同时，获得了约19万名粉丝，在短短两周左右的时间里增加了10.6%。与此同时，Twitter的股价周五暴跌超过21%，至41.36美元/股，下跌11.09美元。The Post gained about 190,000 followers while it was locked out of its account, a 10.6 percent increase in just about two weeks. Meanwhile, Twitter’s stock price plunged more than 21 percent Friday, to $41.36 a share, down $11.09.
+- 10.30. National Pulse [亨特称另一位外国间谍头目为 “亲密朋友”，并与乔-拜登一起会见了与克格勃有关的人Hunter Called ANOTHER Foreign Spy Chief A ‘Close Friend,’ Met KGB-Linked Man With Joe Biden](https://thenationalpulse.com/breaking/biden-spy-close-friend/)
 
-博博士：后面一个问题我就问了班农先生，说这个像左派的媒体，像那个华盛顿邮报啊，最近有一篇那个消息出来，攻击这个路德社的节目，攻击这个WAR ROOM的节目，说他们对于这个拜登的硬盘的这个新闻的传播是不实的消息，是没有根据的，怎么说呢，就基本上说是空穴来风，没有事实根据，但是我们都知道谁在说谎。然后班农先生就是说，开始的时候我问他这个问题，他就是笑了一笑，感觉到真的是很轻蔑的笑了一下，然后就说左派他们现在是非常非常的害怕。为什么呢？因为民意不可违，民意不可违，因为你看，他刚刚听到的消息，就是说纽约邮报，就是爆出登硬盘门的纽约邮报，已经在推特被解封了，就说他们已经没有办法继续推行他们的这个，就是左派的这种偏见，对吧，为什么呢？大家可能知道，今天看了股市，今天那个推特的股票跌了百分之二十几，不是开玩笑啊，可见，是多么重要一件事情啊。好的，路德。
 
-路德先生：对，我们做节目说过，没有暴力革命的推特是什么结果？冠博士，记不记得咱们说过？冠博士？
+从亨特-拜登的硬盘中的电子邮件显示，尽管有这些关系，但显然存在利益冲突，亨特-拜登称将与乔-拜登会面的哈撒克斯坦情报和间谍机构负责人卡里姆-马西莫夫为 “亲密朋友”，并与其父亲乔-拜登一起会见了国家安全委员会主席。E-MAILS FROM HUNTER BIDEN’S HARD DRIVE SHOW THE FORMER VEEP’S SON REFERRING TO KARIM MASSIMOV – HEAD OF KAZAKHSTAN’S INTELLIGENCE AND ESPIONAGE AGENCY WHO MET WITH JOE BIDEN – AS A “CLOSE FRIEND.” Despite these ties, evidently presenting a conflict of interest, Hunter Biden referred to Massmiov as a “close friend” and met with the NSC Chairman alongside his father Joe Biden.
 
-冠博士：是的，这个推测就很多内容都是因为爆料革命才起来的。
+- 10.30. Gateway Pundit [乔·拜登宣布他将领导一项有效的战略来动员“ Trunalimunumaprzure” Joe Biden Announces He Will Lead an Effective Strategy to Mobilize ‘Trunalimunumaprzure’](https://www.thegatewaypundit.com/2020/10/watch-joe-biden-announces-will-lead-effective-strategy-mobilize-trunalimunumaprzure/) 
+社交媒体发酵了，被亨特硬盘门刺激得老年痴呆又发作，人们都没有听懂他在演说中说的是什么。
 
-路德先生：对。
 
-冠博士：但他现在做的这些言论封锁的这些行为，就是砸了他自己本身的初衷，因为我们说，推特他作为一个这种这种短的自媒体的这种形式，那么就是为了给每个人机会来表达自己的意见，如果说你弄的跟主流媒体一样，这个封杀言论的话，那你就自然失去了自己的优势。大家也就去看主流媒体，你这根本就没有任何存在的意义，而且我们说更何况现在还有更多的能传播真相的一些其他的类似的自媒体平台。那你在这样的情况下，尤其是面临大选的时候，面临在美国这个节点，民意觉醒的时候，拜登的犯罪家族的事实被弄出来，竟然让你推特封杀，这个他确实就是自己砸自己的未来，自己砸自己的这个立推特之本，所以说现在我们也看到了，它的股价跌了20%。这个就是他和这些背后的这些邪恶的资本政治力量站在一起的报应。好的，路德。
+文贵直播和盖特
 
-路德先生：你想想，你想想这个推特啊，我们那天说了，没有我们的推特，没有爆料革命的推的里面全是5毛，全是一堆传播的虚假消息，你像我走到parler，几天时间，现在已经过7万关注了，是吧，才4天时间就已经7万了，啥意思？是不是那？多少人追到咱们爆料革命走，追着路德社走，谁还去看推特？推特里头全部都是，这个也不能说，那个也不能说，然后全部都是一帮撒谎的，造谣的，抹黑的一些文章在里面，然后一堆5毛在那里，结果就是推特股价跌20%。你想想，大家想想，这是什么？是他的流量，绝对是因为流量的原因减少这么多，这个流量，你看似咱们啊，好像似乎，是不是？我这个推特只有不到20万，咱们所有的战友加起来，据说封了几千个，上万个账号，看的才上万，他（推特）不是有13亿啊，推特有13亿的注册用户，为什么咱们这点会影响21%？大家想一想，有多少，14亿自己翻墙的人，他不去推特了，告诉大家啊，他全部都跟着，跑到这个parler或者gab这里了，推特及时反应，排名迅速下跌，告诉大家啊，你要知道，在前10位，推特是前10位的排名，每跌一位，你的股价至少跌百分之几十，大家都知道啊，大家知道前一段时间，有一个最著名的叫凯德山金凯戴珊，他号称他不用推特了，不，说不用Facebook，他从此不用Facebook，他在Facebook的注册用户大家知道，8000多万还是一个多亿啊，反正这么多，他一说不用，Facebook股价跌了5%吧好像。
+#### 直播：无
 
-博博士：对，5~7%。
+#### 盖特：
 
-路德先生：咱们爆料革命，几天下来，就让推特跌21%。博博士，你说，爆料革命有多少战友？
+“Fight For Hong Kong” Official MV 《为香港而战》MV正式版
 
-博博士：你说这件事情是真的，我们在当时在这个事情出的时候，就是说那天晚上，那天晚上大家都收到了，我们就说了，推特他这样子拉偏架，他这样子就是搞一言堂，完全控制言论的话，这个事情如果在中共国也许可以做得通，但是，你在美国这样的这种自由的这种环境下面的话，你是做不通的。这是一，第二就是说，所有的这些自媒体和社交媒体的这个软件啊，平台啊，它的唯一的这个标志就是流量。流量越大，它的这个传播度就越好，然后它的这个广告的这个费用啊，各种各样的收入就越高，它的股价也就水涨船高。你想，就是这个社交媒体的这个平台，它靠什么赚钱，我们上这个推特，又不给他交钱，是不是？他就是要靠吸引观众，吸引听众，来进行这个广告的这个推广，这是他赚钱的部分，如果一旦他这样子，往左边就这么，就是说完全就是钳制舆论，像中共那样进行这种舆论钳制和这种舆论清洗的话，这样的话，他是自绝财路，他的这些投资人，因为它都是这种上市公司，它的这些投资人，他们肯定才不管你，他们才不管你有没有什么一个主义在里面驱动，才不管呢，只要你的这个数字一开始往下走的话，后面的人立刻开始抛股票，因为大佬一开始抛股票的话，小的这些（投资人），我们刚刚讲过，美国的这个股市它是一个机构，大家不要忘了，美国的股市是一个机构股市，就是说比较大的一些一开始抛股票的话，散户们全部跟上，这样的话，它的这个股票就可以呈现这种雪崩式的这种下跌啊。所以这个东西是所有的投资人、董事会最怕的，而且是为什么呢？刚才你看，班农先生在节目里面，我问他的问题的时候，班农先生很高兴的跟我们说啊，纽约邮报，就是爆拜登的那个硬盘门的那个报纸，纽约邮报已经在推特被解封了啊。这就是说推特在这个上面已经开始软化立场，开始投降了，就是说他那天晚上封了我们这么多爆料革命战友的这个推特账号，以及疯了这么多像那个GTV啊，GNEWS啊，路德社，这样的账号以后，大量的观众和用户离开推特，这让他们的这个股价，你看，在一天就跌了 20%，一天就跌20%，这是一个雪崩式的下跌，而且就是说美国人民他们是用脚投票的，在这里他们是用脚投票，你如果不给我一个我喜欢的平台的话，我就不来了，你们这些伪类，你们这些五毛，你们这些中国的走狗，你们自己去玩去，我们不陪你玩，也不陪你玩了，我们走了，是吧，所以这个时候，你看那个GAB的那个老板多开心，是不是？像那个parler的老板，估计这样也很开心啊，就是说，他们那样的平台，说到底，一个公正公平公开的一个平台，自然会吸引用户过去，所以从这上面也能看出来啊，在美国这样的这种现代环境下，推特想一手遮天还是做不到的啊，好，路德。
+iTunes download(下载链接）:🔗https://music.apple.com/us/album/fight-for-hong-kong-single/1537277836
+![]()![](https://www.himalayawashingtondc.org/wp-content/uploads/2020/10/Picture1-2.png)
+[https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f9d49f1ad3f0f61d2a54723](https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f9d49f1ad3f0f61d2a54723)
 
-路德先生：大家知道，这个美国的几大社交平台，推特，Facebook，这两个，是吧？你看，台湾人，香港人，主要是玩facebook为主，只有咱们中国大陆人以推特为主，而这个就是文贵先生爆料革命，绝对掀起的，是不是？然后，美国人，你去看，美国本土人啊，本土人，就美国，玩推特的也很少，都是玩Facebook，都是以政治性的内容为主的，都在推特市场，大家看啊，你如果在政治方面，你居然给封掉，不让真相出来，而在华人流量贡献最大的，华人这个团体里头，你把这个爆料革命给封了，你就自己自寻死路。中共把你推特已经彻底封杀，任何一个人都不能看推特，中国人翻墙出来，看推特，看的什么？看的就是爆料革命。有谁会去看什么什么民运的，他们有几个人看他的推，有几个人转的，有几个点赞的，你去看Bob Fu啊，包括这些伪民运的，有几个？是不是？这种情况下，他把我们封了，那就是彻底封了中国人进入推特的这个空间，那是多大的流量？大家想想。这不就是21%就没了吗？是不是？所以他觉得，好像咱们这个爆料革命这两个就无关紧要啊，加起来我就封你几千，几千个账号，1万个（账号），但是别忘了，大量的，很多人都不注册推特，大量翻墙出来的都是不注册的，都是用浏览器普通看，这是多少流量？大家想想，所以推特这次知道亲共的结果。亲共的结果是什么样的一个结果。好，冠博士。
+10月30日 尊敬的战友们好，文贵第二首中文单曲“酒灭中共”11月7日即将全球发布，现在战友们都可以提前预定了，在第一时间听到这首歌，预定链接：
 
-冠博士：是的，因为我们说，推特它实际上就是大家要看这个及时的一手信息，还有就是内部信息的爆料，那刚才路德说得非常对，因为我们说，Facebook上是一个比较私人和娱乐化，生活化的一个空间，那推特上，实际上没有人会天天把自己的照片，出去玩的，都贴在推特上，推特主要还是一个政治啊，这个工作啊，商业啊，这样的一个平台。我们说中文世界，就是2017年文贵先生开始使用推特爆料革命之后，中文世界才开始火的，虽然说也有很多民运，他在2017年，就以前就注册了推特，然后一点开，这个关注者都几十万，但你看他们转推的点赞数，他们的关注，很多都是假的，他不是说真正的流量在那儿。爆料革命的流量，就说你就不看那些注册推号，可以转发的那些战友们，你就看那个Google搜索，你随便搜一个我们这个战友的名字的推号，比如说你搜路德推号，很快就出来了，因为推特 那你不注册也可以看，所以说这个它背后的带着一整块的流量，都是巨大的，而且呢，我们说从爆料革命走到今天，2017年到2020年，那现在对于拜登这一块来说，爆的是整个美国盗国贼他自己的这些犯罪的证据以及这些视频、图片的证据，所以说，现在这个爆料革命的影响力早就已经从中文推特世界，到了英文世界了。那现在爆料革命就是整个推动世界前进，世界政治大方向前进的最核心的力量，那英文世界也有很多人看我们的中文推，而且我们现在也有很多这个英文推，所以说，你这个流量损失，相当于是把这个政治这一块最核心的那一块给拿掉了，那另外就是说还有一个原因是，你在现在这种情况下，大家都明显的可以看到，资本可以看到，拜登这一块儿的丑闻就要撑不住了，你那个生态圈，你那个沼泽地马上都要倒了，你在这种情况下，推动你还封锁，还和这个拜登这一块站在一起的话，你还在这裸奔的话，那绝对的，外面的资本也会慢慢的不看好你。所以现在的这个情况就是说，真相让正义和这个利益这完完全全的这个一致了，所以说呢，这个接下来我们可以看到，这些媒体他为了利益的话，他也会做出改变，就像班农先生刚才说的，纽约邮报的账号已经被解封了。好的，路德。
+[http://gyro.lnk.to/DrinkingDownTheCCP](http://gyro.lnk.to/DrinkingDownTheCCP)
 
-路德先生：好的，我们再看啊，川普总统，今天下午，直接在竞选集会中，说，越来越多，直接说中共，或者共产中国，而不是中国，在刚刚结束的密西根演讲中，川普总统说，“乔拜登是一个贪腐的政客，拜登家族看起来越来越像一个犯罪家族，那个电脑被称为来自地狱的电脑，他们从中共那里收取了千万美元，作为回报，乔拜登总统把密西根州的工作迁到中国，我对此还不清楚，但是昨天有报道说，联邦调查局已经查拜登家族很长一段时间了，他们从共产中国收取了千万美元，现在他还在竞选总统。他能像我一样和中国打交道吗？”。你看川普总统说的这些，你看这个纽约邮报，华盛顿邮报，然后就是NBC啊，在那里造谣抹黑，说我们传递不实消息，然后推特一堆5毛啊，什么砸锅的，然后这帮假民伪，欺民贼，一个个好像过年一样，在里面说，庆幸。有用吗？最终是谁认可？美国司法，美国政府，川普政府现在说的。是不是？乔拜登就是一个腐败的政客，朱利安尼怎么说的？司法！司法靠的什么？靠的在法庭，你对这个RICO法案和FISA法案的了解，你们任何一个人，我现在就告诉你，这所有的什么NBC，什么华盛顿邮报的记者你们，任何一个人站出来，敢跟朱利安尼在法庭上去对抗吗？没有一个人有这个水平，你请再大的律师，包括乔拜登他们买通的所有的，中共所有买通的律师，跟朱利安尼在这个方案上，根本就无法对抗，我告诉大家。经验，就是靠经验，以及几十年的这方面的确凿的东西，是不是？这帮记者，真的是，华盛顿邮报那个什么，乔希·罗金，真的是垃圾中的垃圾，你看他报道什么？傅希秋！傅希秋是共和党的，哎，他里头攻击我们，说什么啊，乔拜登的这个事情有问题，是我们传递不实的，他就支持傅希秋，哎，这就奇怪了，傅希秋明明打着旗号是支持共和党的，然后这个华盛顿邮报是支持民主党的，是坚决反川普的，哎，你看把他带到一起，你就知道，这个傅希秋在这个过程中有多么那个。他实际上是支持谁的，他根本都不是支持川普总统的，根本不是支持共和党。他是什么？支持中共的，因为中共让他去采访的，华盛顿邮报，是不是？这个这种报道写的东西，真的是，垃圾中的垃圾，博博士。
+Oct 30, 2020 Dear fellow fighters, Miles Guo’s second Chinese single “Drinking Down the CCP” will be released worldwide on November 7th! Dear fellow fighters, please pre-order it now to secure first access to this hit song!
 
-博博士：大家知道，华盛顿邮报他是被收购了以后，它就是完完全全是变成了这种美国的这种精英阶层的这种这个代言报纸啊，它其实在这个里面它是很多的观点，是非常左倾的，非常偏左的，但是他这次跟这个傅希秋的这个勾兑，非常非常有意思，他还去采访了，电话采访了傅希秋，然后还引用了很多傅希秋说的话，我就觉得，那你有没有采访路德，引用一下路德说的话，然后你就说人家，是造遥是什么，对吧？所以说在这个里面，他们完全的这种一言堂，拉偏架，做的实在是太过分。而且美国老百姓对于像wap（华盛顿邮报？）啊，对于像new york time这样的媒体，都已经看得很清楚了，知道吧，就是在这个里面，就像那个，CCN就举一个好例子，CCN从2016年开始到现在，他的流量跌到多少？以前的时候，CNN是排名前5的这种大型的媒体公司，对吧，但是到现在，CCN的排名已经到20位以外了，所以说，CNN现在还顶不上像福克斯的一个节目，比方说fox business，知道吗？他还顶不上FOX一个频道的流量，所以可见，他这个跟跟民意对着干，你是什么样的一个结果，大家不要忘了，在这里面，拜登他其实，如果拜登的这个儿子，他就是吸毒，搞女人，这些东西的话也就算了，但是这个里面最要命的，就是说他出卖了美国的利益，你作为任何一个美国人，不管你是在左还是在右，还是老还是年轻，还是无神论者，还是基督教徒，还是穆斯林，只要拜登出卖了美国的利益，他就是你们美国人的敌人，知道吗？就是我们每一个美国人的敌人，拜登出卖了美国的利益，这些利益是从中国，用中国人的血汗换来的利益，这就是说明，拜登是每一个中国人的敌人，所以说在这个里面，尤其像我们这样的，生活在美国的中国人，就更是，他从两方说，拜登都是我们的敌人，所以说在这个时候，大家有投票权的一定一定，一定要去投票，所以说在这个里面大家一定要知道这一点，而且今天我看川普总统的这个rally啊，这个rally里面，那个密西根的那个rally里面，川普总统用的词都是“共产中国”，知道吧，Communist China或者CCP，China Communist Party。
+Pre-order link:
 
-路德先生：中共国，英语是China Communist Party，是不是？
+[http://gyro.lnk.to/DrinkingDownTheCCP](http://gyro.lnk.to/DrinkingDownTheCCP)
+![]()![](https://www.himalayawashingtondc.org/wp-content/uploads/2020/10/Picture2.png)
 
-博博士：中共国，很多人说，什么中共国，根本没有这个词，但是，川普总统今天说出来了，Communist China，就是中共国的意思，因为我们以前一直跟大家说，说川普总统一定会说，川普总统一定会说。现在怎么样？川普总统果然全部把它改过来了，对吧，就是在他的rally里，他每天提。然后，最近这个拜登的事情，真的是让很多的美国人啊，就是看出来了，在拜登的rally（音）上面，对吧，是昨天吧，有一个拜登的rally上面，好多美国人在底下问，你是不是拿了10%啊？这个big guy，是不是啊？你是不是拿了10%啊？是在拜登的rally上面啊，同学们，这是非常非常大的一个事情啊，这个里面可以看到美国的民意，真的是在急转，在急转，我们拭目以待，这个后面几天会发生什么事情啊。好，路德。
 
-路德先生：冠博士。
+[https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f9c100aad3f0f61d29cc097](https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f9c100aad3f0f61d29cc097)
 
-冠博士：对，这媒体的事情啊，实际上美国人都能看得明白，因为这件事情很简单，你说它是假的，拜登自己他都不敢出来逐条反驳，如果说那是假的话，拜登早就找律师开记者会了，说你怎么（爆）假的，再反告这个朱利安尼先生这边。但是，拜登到现在什么都不敢说，都承认。所以现在的情况是，他们沼泽地啊，这个皇上没说话，这些太监都出来说话，所以就是彻彻底底的媒体战，那我们说，媒体战打到现在，我们刚才说的，这个真相的力量它是挡不住的，因为像这些华尔街日报啊，这些报纸他都开始转向了，那最后剩下的就是CCN和华盛顿邮报这样的报纸，他最后还是要和这个沼泽地站在一起，这就是我们说的中共他的这个大外宣的英文版，或者说就是他们的整个的宣传系统的一部分。而且这件事情就像我们刚才看到的，川普总统他在他的这个集会中就明确说了，这个拜登他是犯罪的人，那一个总统这样说话的话，他绝对是不能乱说，川普总统说话多谨慎啊，班农先生说话已经非常严谨了，那川普总统他是更严谨的。而在这个时候他已经说出来了，这就说明了拜登这件事情已经完全是没得说了，所以这些媒体他现在再怎么说都根本没有任何用处。而我们看这个川普总统现在也是就这拜登这件事情开始往前推进，这个灭共的这三条红线。因为我们说中共不等于中国人，这个就是灭共三条红线的之一，而川普总统今天说了这个共产中国呢，他是这么讲的，实际上。他是在借拜登来推进这个，因为我们说如果你只是说拜登是和外国政府合作的话，那它这里面的性质美国人还不一定看得很清楚。但是现在问题是拜登是在和中共这个独裁的残暴的政体合作，而是和中共内部的间谍，也就是为中共几大大家族服务的这个间谍，还有为中共几大家族服务的军方的人一起合作做生意，那你出卖的东西就是美国的国家利益，这个非常简单就可以推导得出来的，因为你不论你拜登在怎么说这个再怎么说你作为这个美国副总统，人家凭什么给你这么多钱，这个这么好的工作，川普总统自己在集会上来说，也讲了说他亨特的儿子，他以前没工作，现在中共一年给他1000万，那这工作你要不要？你也很想要这个工作啊，所以川普总统已经说得很明确了，这就是出卖美国利益，所以最后我们看这件事情到了现在也就是说这个清理美国的盗国贼和这个灭共这个两件事情，现在已经渐渐的两条线要合成一条线，那大选之后川普总统这个连任之后，我们说它，我认为川普总统绝对会连任，那他接下来要很快要做的就是清干沼泽，然后就是这个继续推进病毒真相，因为他之前已经向美国人承诺过了，要让中共为病毒真相负责，那接下来就是一系列的重锤，所以这一系列的动作在大选之后将会更加快速的往前推进，所以说现在大选这一仗是最最关键的。好的，路德。
+#### PARLER:
 
-路德：好了，我们朱利安尼先生今天在自己的频道里头这样说：“它《纽约时报》你们不是要证据吗？推特你们不是要证据吗？脸书你们不是要证据？你们这些腐败的东西，那我就给你们证据，啪—甩出一个东西啊，这些不是我写的，也不是俄罗斯写的，我可没有从中获取3000万美元的好处，你们的王子啊，你们的王拿了这些钱暗指这个乔拜登啊，乔拜登竟然利用自己瘾君子的儿子去替他收钱，你们认为是什么原因亨特才40岁就失去了所有的牙啊，这个牙齿的照片大家记得啊。因为他在这样的高压下生活，需要与杀人犯和犯罪集团打交道，尼古拉斯诺夫斯基，叶琳娜，巴图林娜，还有已经被抛尸河里的叶简明，还有黑帮头子，白毛巴尔杰的侄子，你认为一个瘾君子面对这些会变成什么样子，身为父亲的你却让他置身于这些人当中，他的毒瘾变得更加严重，他变成一具嗜毒成瘾的腐朽皮囊，你就不能在华盛顿找个混蛋替你做这些吗？你还想成为总统，我的天你应该立即去联邦监狱报到开始服刑，那里才是你应该去的地方，而不是白宫，你利用你的家人去收受贿赂，藏匿赃款而你自己却过着亿万富翁的生活，我认为你那些谈判的失败不是因为愚蠢，你谈判失败是因为你出卖了美国，我想那个才是你的真面目。而你已经准备好再一次出卖美国，如果我们不把你揪出来，”你看朱利安尼先生啊，这个绝对底气啊，他这种底气是他过往的成功啊成功做到的，是不是？抓了这么多黑帮，黑帮5大家族给灭了，然后这么多这个哥伦比亚的这个贩毒集团它灭了，后面还有这个恐怖分子是吧？在911吓得都不敢啊出手，你想想这就是朱利安尼。你看这些美国的这些媒体啊，怎么抹黑他的，是不是说他说了什么3000万卢卡，这真的是抹黑，说他通俄啊，然后在这个过程中顺带啊，把我们也叫上了，把我们加上爆料革命路德社，以前只提啊文贵先生啊，这个现在为什么提我们，因为发现有影响力了，所以才把我名字加上去，但是没用。在美国，大家记住，媒体就是媒体战，谁也不能给谁定罪，《纽约时报》哪怕一亿人看他也不可能把白的说成黑的，是不是？把黑的自己说成白的啊，《华盛顿邮报》哪怕再怎么普利策奖的啊，这个所谓的记者也没有用啊，因为真相就在那里。大家去看啊，这个有个叫什么，有一个叫Intercept一个，一个一个媒体的那个记者啊他是这个媒体的创始人，他获得普利策奖其中之一，他呢，今天辞职了。Inter cept这家媒体，他叫做Glenn Greenwald为什么辞职？因为他虽然是这个创始人，但是他们通过了规则要审查他，为什么呢？因为他批评拜登的言论啊，批评拜登说他腐败，这个媒体的编辑们啊，说他审查他这周写的报告，报道要他删除批评拜登的内容。不给刊登，最后他怎么办？直接辞职，是不是？这就是这才是真正的牛人啊，你看直接辞职。今天媒体曝出来了，他也看到了，越来越多人醒悟过来，你看这个人之前他什么？他是什么？他之前和他们也是站在一起的也是反川普的，为什么呢？因为大多数获普利策奖的都是主流媒体啊，都是反川普的人。然而这一次真正看明白了，这些视频照片，这个合同这邮件是假的吗？是不是？稍微花时间一看就知道是真还是假。所以他醒悟了，要写批拜登的这些报道居然不给他刊登，他直接辞职，博博士，你怎么看？
+10月30日：希望战友能喜欢这首歌！定阅这首歌！
+![]()![](https://www.himalayawashingtondc.org/wp-content/uploads/2020/10/Picture3-1.png)
 
-博博士：咱们这个内容比较多，咱们先说这个朱利安尼说的话，今天朱利安尼的这个视频，喜马拉雅工作站已经贴出来了，大家一定要去看啊，特别解气啊，为什么？就是说朱利安尼他讲话，他也有一种这个不怒自威的这种感觉，因为他是知道吧，就是怎么讲呢，讲的一个打一个不恰当的比方啊。就是以前，嗯我们那儿有一个有一个屠夫，就说他经常杀猪啊，什么什么东西，所有的狗看见他都绕着走，就说他身上有一股那个就是煞气，知道吧，就可能比喻不是很恰当，但是你们大家可能知道我什么意思，就是说朱利安尼先生他做了，办了多少大案子，干掉了多少这个黑帮头子这样的这种一手遮天这种黑手党人物，他的这种这个气场是不一样的，这是1。第二就是说，第二就是说朱利安尼先生，我们以前看他这个对付5大黑帮对吧？对5大黑帮他的这个最难的这个部分是什么呢？我以前介绍大家去看那个片子，叫那个fear the City是吧，那个片子大家可以看到整片几乎都在讲什么，怎么取证对吧，就装窃听器啊，监听啊，跟踪啊，各种各样东西怎么取证，但是亨特拜登这些事情所有的证据都放在硬盘里面给他送过去了，他这个完全就没有这个取证环节，知道吗？他这个所有东西他只要验证这些证据是可以用的还是不可以用的就可以了，就说这就是为什么，朱利安尼先生说这个硬盘里面1/10的东西就足够把拜登定罪了。知道吗？甚至包括乔拜登都可以把他们定罪了，1/10啊，这还有9/10你要知道吗？都是什么样的情况，就是说由这个硬盘里面给他的这个东西只要验证了，他们就说前段时间一直在验证它的真伪性，验证过了以后这些东西就足够足够给拜登家族定罪的，这就是为什么现在朱利安尼先生出来讲话这么有底气的原因啊，它这个底气不是从说像那个叫什么像什么啊，新闻媒体呀或这些东西，这种宣传上面这种底气，他是法律界摸爬滚打几十年下来，这才具有这样的这种底气，他一眼就能知道这些东西是有没有用，能不能做证据，这个证据会给拜登和他的家族带来什么样的这个判决和什么样的这个刑期啊，所以说这些东西完完全全就是说它完全是叛国罪，而且今天那个朱利安尼先生完全指出就是说乔拜登才是幕后的大佬，才是那个big guy，知道吗？亨特拜登只是他用去收钱的一个工具，而且他拿自己的儿子去干这个事情就基本上把他给毁了，因为亨特拜登他有这种吸毒啊，这种性癖呀这些东西，各种各样的这种弱点，而由他去把他送到中共伤害，是不是？朱利安尼先生说了他40岁的时候满口牙都掉光了，亨特拜登是1970年生的人到现在50岁，所以说他现在这个已经身体状况已经非常非常差，都有传闻说他去医院啊什么的这些东西都已经身体非常非常差了，就说这可以说亨特拜登，其实他也就是被他老爸给害了，知道吗？就是这样的一个一个原因，而且朱利安尼先生说了，像这样的人直接应该去监狱报道，都省了这些这个警察去传迅啊，走司法程序，就像这些人直接应该去监狱报道，他说的这一点都没错，而且这个里面是有一个确实证据的，如果是别的媒体人像这样说，比方说像塔克卡森是吧？他像这样说我们就说OK，这是一个气话对吧，这是一个媒体的话，但是朱利安尼先生他是法律界的人，他自己就是律师啊，他要乱讲话的话，他的律师执照会被吊销的啊，这是一。就说他自己就是律师，然后像这样的这个法律的人士的话，他这样说是非常不容易的啊，非常非常重磅的一块，还有刚才第二个问题就是那个Greenwald（音）大家不要小看这个哥们啊，Greenwald你知道他当年扬名立万是什么案子？他得普利策奖是因为爱德华斯诺登知道吗？是他把斯诺登那个吹哨案公诸于世的，当时在全球做到了多大影响，他是美国甚至全球的爆料革命之父爆料这个之父知道吗？他这个爆料就从他那儿来的，现在他现在因为他现在很要命，就是说。这个媒体啊，是他自己一手创办的，就是从斯诺登案件那个以后，他就自己一手创办了一个媒体，一向以这种怎么说呢，深挖是吧？他所感兴趣的这个行业叫做investigated journal ism就是啊，怎么说呢？叫调查新闻学，调查新闻，但是现在他的这篇文章他是这方面的老鸟，他已经把乔拜登的这篇东西已经写出来了，已经全部弄好了，但是他们的编辑说你这个东西没有事实根据，我不给你发，你这个东西没有事实，在他后面再跟你说了，他说如果你说我这个没有事实根据，那你让我发，然后你再发一些东西跟我跟我对打，你敢不敢，对吧？这是很正常的事情嘛，对吧？两个两篇报纸我发一个说乔拜登是这样这样，然后另外一篇报纸说你说的是不对的，乔拜登没有没有这样这样。两篇文章对打吗？对吧，辩出来，清者自清浊者自浊，你敢不敢，然后那个编辑说不行不行不行我们要怎样怎样讲白了就是中宣部的一样道理，乔拜登事件要用通稿。就是这个道理，然后他现在辞职了，他自己马上开始做新媒体，要自己再深挖这件事情，所以说美国的这个新闻人啊，真正的独立的，有独立思想的，有新闻的从业道德的这个新闻人，还没有全部完蛋，还有这些很牛的这种有这个啊怎么说呢，没有摈弃这个新闻的这个媒体的这种良知的这种新闻人还存在他们还在发声，所以说像这篇东西，他马上会用别的方式比方说通过一下自己的比方说一些社交媒体账号啊，或者通过他自己的一些别的渠道放出来，放出来以后绝对是重磅，因为他的这个被他这个编辑逼走这个事情在先啊，所以这个事情在推特上面的这个圈里面已经吵得非常非常热了，连我的这种军事记者啊，都在转这个东西了，所有我的这个朋友军事记者都在转这些东西了，所以说，可见美国这个风向真的是在变，真的是在变。因为左派媒体在乔拜登这件事情里面实在是搞的太过分了，搞得太过分了以后就必然会招致广大的群众广大的民意的强烈反击，现在正在经受着强烈反击这个阶段。嗯，路德。
 
-路德：大家想想，后面有资本的量，他最后由于他创立，但是他把股权让给别人，把审核权、内容审查权给资本方了，最后他自己创立的，他自己都没权力说话。看见吗，想放啥他自己都没有言论自由，但是这个人还是有良知的，但是有多少记者啊，你想想于他来说他如果稍微没有良知一点，或者稍微考虑到，唉，我这个这个月房贷怎么付啊？我下个月这个车贷怎么付的时候，他这篇报道他就可能用通稿了。但是毕竟这种人不是一般人是不是啊？说白了就是曾经扬名立万，知道如何在美国这种环境下知道事实真相才是记者生存的唯一唯一生存方式，而不是用言论审查，所以这个他毅然辞职，这个冠博士。
+[https://parler.com/post/f2ce2a97415c4bc99110ee25c291b0b2](https://parler.com/post/f2ce2a97415c4bc99110ee25c291b0b2)
 
-冠博士：是的，从这件事情来看，那就是说他的原因是因为他发表了拜登的文章，那让他这个不让他文章发表的原因呢，是要证据。这个就是流氓文化的，因为你们说什么样的证据才算是证据，这个不由记者说了算是由他背后团队说了算，所以你即使把所有东西都亮出来，他都可以说那个证据是假的或者是真实性不确定，那不能发这个完全就是借口，那现在证据我们可以看到有视频有邮件，那更关键是FBI都承认他在调查这件事情。那FBI都没说硬盘是假的，这个如果还不算证据的话，那么真的不知道什么算是证据了，因为FBI它完完全全是这个之前已经是被渗透的很深了，在这种这个拉偏架的情况下他都不敢说，所以可见是什么样子，所以这件事情到背后来看呢，就是说一个媒体被资本控制的情况，那就像这篇文章作者自己说的，那不管你又说我这个证据也好怎么也好，那最后读者是有权利确定谁是对的，所以读者看的是背后的逻辑，那我作为一个媒体，只要把这些事情说出来的话，读者自己会判断，所以呢，到这件事情到现在为止，很多的媒体，这个有真正有良知有远见的媒体人都开始转向。而我们说很多媒体的创立，它都是基于一件重大事情的报道，比如说福克斯之前火爆就是因为这个克林顿的事情，那这位记者他之前创立了这个媒体也是一样的，所以现在拜登这个事情，在所有的媒体都被沼泽地蓝金黄的情况下，就大部分主流媒体都被蓝金黄的情况下，那谁能把这个东西做到最好，谁能把这个报道这个第1个把这件事情从头到尾说清楚占领这个风头，那以后你就能占领市场，所以这个爆料革命真相带来的是一场这个全方位的革命，包括媒体见那以后也有革命。你在这种情况下，大家以后都会想，那以后媒体是不是要改革，你是不是要有新型的独立于传统投资这种方式的新型媒体包括自媒体，这些我相信都会慢慢出来，而我们这个GTv和Gnews是在这一方面新兴媒体上绝对是走在这个时代的前面，而我们在说回这个朱利安尼先生说的这件事情，而我们从朱利安尼先生他这么斩钉截铁的说，你要证据我这把证据都给你了，这东西又不是俄罗斯写的，又不是我写的，都是亨特拜登自己写的，他自己的邮件，你这个东西是斩钉截铁的，而且他在这个采访里面他说乔拜登用他儿子收钱，他说他儿子为什么牙没了，就是因为你这个老爸你的这个教育问题让儿子去做这些事情，实际上呢，这个我们说因为它是作为一个盗国贼家族和中共盗国贼家族比较类似的家族。他们这种行为从上到下从爸爸到儿子我们做事，这个比较容易理解的，但是呢，这个朱利安尼先生这种话很可能是从美国人的传统观点来说的，因为我们说拜登他的竞选的时候，包括民主党他打的很重要的一张牌，就是自己的这个家庭的牌，自己的这个爱心的牌，那就是说我是一个有很美满的家庭的丈夫，我是一个很好的父亲，那包括他在造势的时候也是说这个和他的老婆多么相亲相爱、他的儿子给我力量，他们的家庭给了他这个竞选多大的助推力，但是呢，这个现在朱利安尼先生从这个角度来说，就是把他的这个道德制高点再一次的打下去，这就好比说这个墙内也是玩一样的套路，就是习大大彭妈妈实际上都是一个意思，那这个道德制高点被打掉，那对于民众了解真相，了解他们这个犯罪家族到底是怎么回事儿，怎么运作的是非常重要的，因为你这种情况要再继续下去的话，他们这种这个家族的模式，这种邪恶，我们说从这个乔拜登到亨特拜登身上就可以看到这种邪恶，你在这种生态圈下它是可以传承的，如果这种传承和这个中共盗国贼这个传承变成了一样，那他们这些子孙又在世界覆盖，那就变成了这个邪恶的人全部掌握了全球的资源，全球的这个资本和力量，那就是非常非常可怕的一件事情，所以说现在是真的是美国人觉醒，那现在有机会来逆转这一切。好的，路德。
+班农战斗室 War Room
 
-路德：现在我们再看看阿，这个最后再谈谈，这个爆料啊这一系列啊到底对美国对民众的影响，大家看阿有个视频，这拜登啊在竞选集会中直接，是下面的人说你···给他喝倒彩啊，又抢了一分多钟啊，拜登哑口无言阿。所以啊，这个影响的面非常大，这个是真的是叫做啊这种传播性是很广的，虽然有的人可能不相信阿，当然了，那有那有啥办法，咱们永远我····我的一个人认为是没永远，不要想着去说服任何一个啊不愿意醒的人，不要去叫醒一个不······装睡的人啊，这个，但是我们要做··就是··这个我相信越来越多的美国人阿，醒过来了，看明白了，中共的邪恶。中共在彻底要把美国变成香港，要把美国变成未来阿今天···今天的中国啊，要把未来的美国变成今天的中国，他们也知道啊这个一系列的我们所做的啊，很多人说我们干预什么美国大选，那个胡扯，什么叫外国代理人？是不是，大家去看看，你以为打两个电话就叫外国代理人。我们何况我们跟中共一个电话都没打过，是不是？得有资金往来第一啊，你就像那个布洛伊迪一样，是吧，这次一帮推特5毛啊这包括这砸锅的，激动的不得了，说什么好像华盛顿邮报那个吹嘘说，Rogan说什么我们干预，就说涉嫌，什么叫涉嫌？我们最基本的揭露真相这都不行，是不是啊？难道说你美国回头揭露中共国的腐败，哪个记者就叫干涉内政？这话就跟中共一模一样，外交部耿爽经常就是，你干涉内政，是不是啊？
+War Room: Pandemic Ep 465 – The Misdirection Play (w/ Jack Posobiec and Rudy Giuliani)
 
-博博士：呵呵呵····中宣部通稿。呵呵呵·····
 
-路德：对，中宣部通稿，所以他们，做任何事，你干涉美国大选，我就举个例子吧，你说我，哎呀，博博士是你说啊，咱们任何一个人 点评美国大选有错没有啊？
 
-博博士;没有,任何人都可以点评
+War Room: Pandemic Ep 466 – The People’s Pundit (w/ Jack Posobiec and Richard Baris)
 
-路德：对啊，只不过我是在Youtube上点评，又没有···有的人在私底下点评，那你去抓，多少人，每··全世界各个国家每个人都在点评，是不是？都在用自己的去····把自己的看法跟别人说啊，我觉得谁会赢啊，我觉得谁谁谁，这就是点评。什么叫干涉，中共这种，是吧，邮寄选票作假，黑客、是不是？水军、兼职的水军，水军的IP地址直指哪里？直指中共国的各种监狱，是不是？这就叫干涉，就相当对方是统一的编制啊，那种才叫做啊。真正朝你方进攻，中共是成编制的，有预算的，里面有间谍跟他们联系的间谍是收···要收钱的都是有任务的，有目标的，搞定这个搞定那个，是不是？所以这帮人意淫啊，是不是？如果说咱们关注美国大选，干涉。那班农先生刚还跟我们连线，那不天天不早就，他们早就那个了，是不是？还有包括朱利安尼先生，他昨天还跟班长先生连线了，还有这个拉西姆，拉西姆不是英国人吗？他英国国籍啊，他不也····你不也涉嫌干涉吗？所以这帮人一点法律常识、法律意识都没有，好，博博士。
 
-博博士:对啊，这些人他们的想法就是跟中共是一样的，为什么中共能够在中共墙内呢实现这种洗脑啊，就是说对舆论的管控,它是两手抓,一手就是说建立一个墙，把大家围起来围在里面，然后只给你喂一种声音知道吧，你只能听到一种声音然后你就使劲喂使劲喂使··使劲喂，然后你就很多人，我说很多人啊，就相信了，说，哦·····原来这个世界就是这个样子的，那这是被洗脑的，但是呢，洗脑这个事情啊，就像任何做的事情一样，它的成功率都不可能100%，对吧。总有洗脑失败的，比方说像我这样子的嘛，在墙内就是，当时就是洗脑失败的这个典型，对吧。还有需要在墙内现在这个跟随爆料革命的翻墙出来看我们的节目的，这些都是中共洗脑失败的案例，然后像这些案例呢，中共他就有一个怎么样，国家机器，是吧？军警特宪，然后经常请你去喝喝茶，对吧？请你去谈谈话训诫一下，是吧，然后再关你几天，是吧？他就是干这种事情，但是美国它不一样，美国只有前一种，他在建立前一种。前一种什么，就是说像推特啊Facebook这些东西，他们给围起来，然后呢，给你喂同样的信息，这跟中共国的搞法是一样的，只不过他没有那个防火墙。它是用像推特Facebook这种大型的那种，这个叫什么big cake叫·····社交媒体，然后呢，等到这一步，成熟了，等到美国的年轻人长大了以后，几代年轻人都只会看推特只会在Facebook的时候，他们就要去做第2步了。就是说，比方说大部分人百 ····百··90%的人都只相信推特都只相信Facebook，只有10%的人有独立思考能力去自己去找寻答案，那时候他们就要用选举、用法律，用这样的事情去对付那10%的人了，但是这件事情还在早期，为什么呢？就是说他还没有那个能力。川普总统2016年的当选就是一个很好的一个例子，现在美国的很大程度的民意上面，对于左派的这些这个。呃··大型的这个社交媒体的操纵，你看像今天那个Facebook··那个推特的股市就是一个股票，这个价格就是很好的一个例子暴跌，对吧，就是很就是很好的一个例子。
 
-路德：对。
+Hunter’s $1million retainer to be personal attorney for Patrick Ho, since disappeared head of #CCP communist spy chief.
 
-博博士：美国老百姓，他是有他基本的独立思维，独立思维的素养，呃··独立思考的这个素养的，是他们是有基本的判断能力的，这是一，第2，就是说美国的这个建国先贤们，给美国创造这样的一个三权分立的系统，到现在为止还没有崩坏，像中共那样的这种这个渗透还没有完全成功，所以说从这个上面可以，就从这方面就可以看出来，中共的这个搞法在美国现在暂时是行不通的。但是如果像我们这样的节目不把真实的情况爆出来，不把这些声音发出来的话，那真的是有可能会搞成这样，几十年以后可能美国就跟中共一样的啊。
+#BidenCrimeFamily and @JoeBiden completely sold out the entire #USA
 
-路德：绝对的阿，百分百。
+$$$millions more thru #HudsonWestLLC on and on. But, nobody knew
 
-博博士：所以说，这个里面大家一定要小心，就是说像我们这样肉身已经跑出国外的，我们是绝对不希望美国变成第2个中共国的，是吧？这个东西讲白了就是说如果要上山···上···，就说要进行，真的这种这个抵抗的话，我们都愿意做的，因为我们自己知道中共国出来人知道中共国国内是什么样子，你去告诉老美他们都不相信，知道吧？他···你们·····我们知道中共国墙内是什么样子，我们是绝对不····不希望···绝对不要···绝对抗拒，要···要中共国把····想把美国变成中共国这样的一样环境的这样的一个试图的啊，我们需要跟他们斗争到底的啊，路德。
+亨特以一百万美元的聘金，为失踪的中共间谍头目何秀成做私人律师。
 
-路德：好的，冠博士。
+#拜登犯罪家族和@拜登完全出卖了整个#美国。但是，没有人知道
 
-冠博士：是的，首先我想说这个拜登他在上面演讲的时候，下面的美国人去质问他的时候，他哑口无言，这个首先第1点就说明了这个真相传播，你即使在自媒体也好，传统媒体也好全面封杀的情况下，它也是挡不住的。因为无论如何美国是一个开放的社会，他有渠道，那美国还没有被他们完全控制；第2点，就是说明美国现在呢他的这个体制还是保障的，他的这个底子是保障非常好的，你在中共国的话，你····你底下要这个质问了他。他上面的就直接下去就回去给你抓了，他绝对是这样的情况，所以说这个美国它的底子是非常非常好，他民主法治的底子，那现在需要确保的就是这个底子不被破坏，那说干扰大选这件事情，我们说从中共的他的各种这个手法，其实干扰大选来说，它最主要的就是2点，第1点就是玩假的、假信息也好，这个假账号也好，假民意也好，作假选票也好，他一定是传递着这一些假的信息，不存在的信息，来干扰选民，来干扰这些真正有投票权的人，他作的决定；那第2点，就是有这个这个国家或者是政权的利益驱使，那我们说从中共的角度来讲，那大家都可以看到习近平他对它的这个国家机器，现在完全是这个这个这个让他用这些利益来驱使他的这些水军和间谍去帮助拜登大选，这是铁的事实，而这为什么我们之前已经分析的很清楚了，所以说相反我们爆料革命我们做的很简单，我们只是说把真相传播出去就是仅此而已，因为美国每一个选民你在这个大选之前，你在做出投票之前是有权力知道真相的，
 
-路德：对
 
-冠博士：那拜登他到底是什么样子？他不是表面上表现的那样，好像是一个君子，一个这个各方面都表现的非常好的人。他并不是这样的，那我们要做的只需要是把这个信息传递出去，我们不是说告诉你要选川普或者选拜登，我们只是说我这个事实就是这样的，你····你自己做决定，我们又没有封你嘴，又没有堵你耳朵，又没有说给你钱，让你选谁，这个一个我们都没有做，我们只是把信息传递出去。所以这个反而是保证大选的公平性，那从另外一个角度说，你的CNN你的这些纽约时报，这些美国媒体,在明确知道事实真相的情况下，还在这个打掩还在为沼泽地打掩护，还在这个混淆视听模糊这些拜登他的硬盘的时候视频的这些事情的事实，所以这从这个角度上来说这些传统媒体包括Facebook推特也好，他们才是干扰大选，而不是我们。好的，路德。
+> Hunter's $1million retainer to be personal attorney for Patrick Ho, since disappeared head of [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) communist spy chief. [#BidenCrimeFamily](https://twitter.com/hashtag/BidenCrimeFamily?src=hash&amp;ref_src=twsrc%5Etfw) and [@JoeBiden](https://twitter.com/JoeBiden?ref_src=twsrc%5Etfw) completely sold out the entire [#USA](https://twitter.com/hashtag/USA?src=hash&amp;ref_src=twsrc%5Etfw) 
+> 
+> $$$millions more thru [#HudsonWestLLC](https://twitter.com/hashtag/HudsonWestLLC?src=hash&amp;ref_src=twsrc%5Etfw) on and on
+> 
+> But, nobody knew [#LaptopFromHell](https://twitter.com/hashtag/LaptopFromHell?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/MIhMceEhDm](https://t.co/MIhMceEhDm)
+> — Steve Bannon’s War Room (@WarRoomPandemic) [October 31, 2020](https://twitter.com/WarRoomPandemic/status/1322333502034104320?ref_src=twsrc%5Etfw)
 
-路德：是的，这些都会一个个被揭露出来被爆出来的，今天我们是在华盛顿啊，我在华盛顿DC阿。我们这个来了20多个人啊，咱们的Sara也在这里啊，啊，呃然后呢，我们明天开始啊，这个我们专门有一个大的演···演··演播厅演播厅在这里，然后礼拜····呃···礼拜·······呃·····11月1号我们就会在刚才班农先生直播的那个平台，后面就是国会山啊，就国会那个见····演播厅啊，到时连续直播啊一连阿，连续直播让大家，然后11月3号晚上在那里和Warroom两个台子同时同时直播啊。Warroom直播,Warroom,GTV直播GTV，这个我们又来到了华盛顿啊，大家来见证历史，共同见证历史，好由于阿···由于这个来的都比较辛苦，所以今天我们的节目就早点结束，然后最后让博博士给大家分享一下啊，总结分享一下啊。
 
-博博士：好的啊今天啊，咱··咱们可以看到这是一个比较新的一个直播的这个模式啊，今天要··要感谢艾丽女士在后台做了非常多的工作，今天今天艾丽女士是后台的编辑
 
-路德：总切换，总切换，总切换师，总切换师
+How tweet it is: Twitter backs down, unlocks Post’s account
 
-博博士：呵呵呵呵····大总管大总管，呵呵呵···今天噢班农先生他给我i我们到节目里来要跟大家讲一下，下个星期二11月3号美国大选日，从晚上揭票开始会，可能会一直延续到凌晨的一个节目啊，所以说。就是在这个华盛顿DC的可以俯瞰这个国会山的一个非常好的一个地点，··很·····像路德节目像Gnews节目、GTV的节目和班农战斗室节目将同台联袂演出啊，这是一个非常非常重大的一个一个媒体事件啊，大家一定要关注啊，这是一个很重磅很重磅的事情。然后呢，今天我们又讲了，像那个川普总统在他的这个演讲里面是怎么样提到拜登的事情，怎么样提到中共国，而不是中国，中共国communist China OK他用这个词，然后又讲到了朱利安尼先生，他是他的这个最近的这个视频里面是怎么样把拜登的这个啊罪行，老拜登的罪行和小拜登的这个处境，把他给详细的记录，而且说明这个里面很多东西都是可以直接定罪的，所以很快可能会进入法律阶段，而且FBI已经开始调查，这这是我们都已经知道的事实啊。然后啊我们又讲。把这个啊，当时这个爆料的这个大牛啊，他是怎么样被这个他自己的这个媒体啊，就是扫地出门。这个里面可以看出来美国的这个情况，他现在虽然左派的媒体在很多方面占上风，但是有良知的新闻人，秉···秉承这个新闻职业操守的新闻人还在继续抗争啊，所以说我们可以看到真正的美国的老百姓，真正的美国的民意，他们是有独立的判断能力的，他们是对于有逻辑有事实的东西，他们是会相信的，所以说从这里可以看出来，只要我们唯真不破，只要我们继续爆料革命这条路的话，我们就一定能唤醒更多的中国人，唤醒更多的美国人，能够为我们所有的人来拼得一个更好的一个未来啊，路德。
 
-路德：好的，谢谢博博士，谢谢艾丽女士，谢谢冠博，谢谢艾丽女士，今天虽然艾丽女士没有没有出声，但是他在后台做我们的总切换师，谢谢诸位观众观看。别忘了点赞分享，再见。
 
-博博士：再见，
+> [#BidenCrimeFamiIy](https://twitter.com/hashtag/BidenCrimeFamiIy?src=hash&amp;ref_src=twsrc%5Etfw) [#LaptopFromHell](https://twitter.com/hashtag/LaptopFromHell?src=hash&amp;ref_src=twsrc%5Etfw) 
+> 
+> How tweet it is: Twitter backs down, unlocks Post's account [https://t.co/AbAYgkHQ4k](https://t.co/AbAYgkHQ4k) via [@nypost](https://twitter.com/nypost?ref_src=twsrc%5Etfw)
+> — Steve Bannon’s War Room (@WarRoomPandemic) [October 30, 2020](https://twitter.com/WarRoomPandemic/status/1322320432691879937?ref_src=twsrc%5Etfw)
 
-冠博士：再见。
 
-更多路德文字版，请看[Gwins](https://gwins.org/)
+
+#Eudora was dumping cash to the #BidenCrimeFamily during the @BarackObama admin. #OchoGaming????? #Amtrak? what was source of cash? #JeffCooper
+
+
+
+> [#Eudora](https://twitter.com/hashtag/Eudora?src=hash&amp;ref_src=twsrc%5Etfw) was dumping cash to the [#BidenCrimeFamily](https://twitter.com/hashtag/BidenCrimeFamily?src=hash&amp;ref_src=twsrc%5Etfw) during the [@BarackObama](https://twitter.com/BarackObama?ref_src=twsrc%5Etfw) admin. [#OchoGaming](https://twitter.com/hashtag/OchoGaming?src=hash&amp;ref_src=twsrc%5Etfw)?????[#Amtrak](https://twitter.com/hashtag/Amtrak?src=hash&amp;ref_src=twsrc%5Etfw)? what was source of cash? [#JeffCooper](https://twitter.com/hashtag/JeffCooper?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/4PgidQl7d5](https://t.co/4PgidQl7d5)
+> — Steve Bannon’s War Room (@WarRoomPandemic) [October 30, 2020](https://twitter.com/WarRoomPandemic/status/1322263454053531659?ref_src=twsrc%5Etfw)
+
+
+
+Subject: Ocho Columbia
+
+OMG! May 2012, They were lobbying Ocho Gaming online gambling down in Columbia all through @BarackObama’s Presidency?
+
+Why was the big “0” never told. #JeffCooper #Eudora #BidenCrimeSyndicate
+
+“nobody knew nothin'”
+
+天哪! 2012年5月，在@奥巴马任内，他们一直在哥伦比亚游说Ocho博彩在线赌博？
+
+为什么从来没有告诉大 “0”。#JeffCooper #Eudora #Biden犯罪集团#。
+
+“没人会知道什么”
+
+
+
+> Subject: Ocho Columbia
+> 
+> OMG! May 2012 
+> They were lobbying Ocho Gaming online gambling down in Columbia all through [@BarackObama](https://twitter.com/BarackObama?ref_src=twsrc%5Etfw) 's Presidency?
+> 
+> Why was the big "0" never told.[#JeffCooper](https://twitter.com/hashtag/JeffCooper?src=hash&amp;ref_src=twsrc%5Etfw) [#Eudora](https://twitter.com/hashtag/Eudora?src=hash&amp;ref_src=twsrc%5Etfw) [#BidenCrimeSyndicate](https://twitter.com/hashtag/BidenCrimeSyndicate?src=hash&amp;ref_src=twsrc%5Etfw)
+> 
+> "nobody knew nothin'"[@elBogotano](https://twitter.com/elBogotano?ref_src=twsrc%5Etfw) [#LaptopFromHell](https://twitter.com/hashtag/LaptopFromHell?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/6kUWOyBiI5](https://t.co/6kUWOyBiI5)
+> — Steve Bannon’s War Room (@WarRoomPandemic) [October 30, 2020](https://twitter.com/WarRoomPandemic/status/1322256566297518081?ref_src=twsrc%5Etfw)
+
+
+
+@RudyGiuliani: There should be a special prosecutor, and #FBI Director Wray should be terminated for failing to bring forward exculpatory evidence on @realDonaldTrump
+
+Wray may have obstructed justice
+
+@RudyGiuliani：应该有一个特别检察官，#FBI局长Wray应该被终止，因为他没有提出realDonaldTrump的无罪证据。 Wray妨碍了司法公正
+
+
+
+> .[@RudyGiuliani](https://twitter.com/RudyGiuliani?ref_src=twsrc%5Etfw): There should be a special prosecutor, and [#FBI](https://twitter.com/hashtag/FBI?src=hash&amp;ref_src=twsrc%5Etfw) Director Wray should be terminated for failing to bring forward exculpatory evidence on [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw)
+> 
+> Wray may have obstructed justice[#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [@WarRoom2020](https://twitter.com/WarRoom2020?ref_src=twsrc%5Etfw) [#HardDriveFromHell](https://twitter.com/hashtag/HardDriveFromHell?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/6Kvq626c24](https://t.co/6Kvq626c24)
+> — Steve Bannon’s War Room (@WarRoomPandemic) [October 30, 2020](https://twitter.com/WarRoomPandemic/status/1322212832277090304?ref_src=twsrc%5Etfw)
+
+
+
+路德社节目：
+
+#### 10/30/2020 早 路德时评（路安墨谈）：
+
+薄家人薄甜甜发给亨特拜登的邮件暗藏碟中谍无间道烧脑信息；张博公司华锐与华信、国开金融资本上的深刻关系；渤海华美2018年董事会材料曝光很多内幕；
+
+
+
+亨特拜登的合作对象，无论是华信能源CEFC还是华锐娱乐，都是打着民营企业的幌子、实质是以国家开发银行等国家金融机构为洗钱平台的间谍企业；
+
+与亨特拜登直接合作的当事人叶简明、何志平、董功文、张博都是中共的间谍头子
+
+#### 10/30/2020 晚 路德时评（路博艾冠谈嘉宾班农先生）：
+
+川普总统和朱利安尼讲话透露重要信息；推特公司股价大跌20%意味爆料革命的巨大价值！
+
+
+
+班农：下周二晚上，GTV、Gnews和WarRoom将在可俯瞰国会山的最好的直播（白宫）地点，整夜直播华盛顿大选进展。这是五千年来对中国人民影响最重要的一次美国大选，战友们务必紧跟路德社，获得最及时、最劲爆的新闻
+
+博博士提问“左派媒体如华盛顿邮报最近有报道，攻击路德社、攻击WarRoom，说硬盘门说空穴来风、没有事实根据，但我们都知道谁在说谎，请问班农先生如何看”，班农先生淡淡一笑，说民意不可违，左派现在非常害怕，他们已经没有办法推行他们那一套偏见。
+
+最新消息，推特顶不住了，解封了纽约邮报的推特账号
+
+路德社有20多个工作人员已抵达华盛顿，有个大的演播室，将在黄金地段国会山前连续直播，11月3号与班农战斗室，G-TV同时直播，共同见证历史的一刻！
+
+每日文贵说
+![]()![](https://www.himalayawashingtondc.org/wp-content/uploads/2020/10/Picture4-1.png)
+推特文摘
+
+
+
+川普在最近的竞选集会中越来越多直接说「中共」或者「共产中国」而不是「中国」在刚刚结束的密西根演讲中，川普说，拜登犯罪家族从「中共」和「共产中国」拿了很多钱
+
+
+
+
+
+> 🔥川普在最近的竞选集会中越来越多直接说「中共」或者「共产中国」而不是「中国」
+> 
+> 在刚刚结束的密西根演讲中，川普说，拜登犯罪家族从「中共」和「共产中国」拿了很多钱
+> 
+> （喜站新号，欢迎关注） [pic.twitter.com/i8QNPy1aeE](https://t.co/i8QNPy1aeE)
+> — 喜马拉雅国际工作站（复活2号） (@GHimalaya2) [October 30, 2020](https://twitter.com/GHimalaya2/status/1322320274038030337?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+The Post’s Twitter account gained nearly 190,000 followers during blackout https://trib.al/JogVy2S
+
+
+
+
+
+> The Post's Twitter account gained nearly 190,000 followers during blackout [https://t.co/ccBJHbYI6i](https://t.co/ccBJHbYI6i) [pic.twitter.com/VgWXSuRH1T](https://t.co/VgWXSuRH1T)
+> — New York Post (@nypost) [October 30, 2020](https://twitter.com/nypost/status/1322316590222872577?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+乔.拜登，你竟然用自己儿子当你的捞钱袋，你毁了他的一生！你还想选总统，你的归宿是联邦监狱，不是白宫！如果我们没抓住你，你还会继续出卖美国！朱利安尼先生为啥怒了？因为他见过Hunter天真烂漫小时候。因为他很少见到人会把自己的儿子做马仔跟一群杀人犯混。因为他没见过一个父亲把自己的儿子推向地狱。这么厚颜无耻的人居然还想要当总统。
+
+
+
+
+
+> 朱利安尼先生为啥怒了？因为他见过Hunter天真烂漫小时候。因为他很少见到人会把自己的儿子做马仔跟一群杀人犯混。因为他没见过一个父亲把自己的儿子推向地狱。🤬🤬🤬这么厚颜无耻的人居然还想要当总统。 [https://t.co/P6ooexux0g](https://t.co/P6ooexux0g)
+> — 鴨川龍馬 (@y4GGfrb2CVactNK) [October 30, 2020](https://twitter.com/y4GGfrb2CVactNK/status/1322306863078150144?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+3年前由郭文贵发起爆料革命，让Twitter涌现出大量中国人爬过防火墙注册Twitter。如今，Twitter大量封杀爆料革命运动支持者的账号，股价说明了一切。The #WhistleblowerMovment started by #MilesGuo 3 years ago gave Twitter a flood of Chinese people climbing over the firewall to register for Twitter. Today, Twitter is heavily blocking the accounts of #WhistleblowerMovment supporters, and the stock price says it all.
+
+
+
+
+
+> The [#WhistleblowerMovment](https://twitter.com/hashtag/WhistleblowerMovment?src=hash&amp;ref_src=twsrc%5Etfw) started by [#MilesGuo](https://twitter.com/hashtag/MilesGuo?src=hash&amp;ref_src=twsrc%5Etfw) 3 years ago gave Twitter a flood of Chinese people climbing over the firewall to register for Twitter. 
+> 
+> Today, Twitter is heavily blocking the accounts of [#WhistleblowerMovment](https://twitter.com/hashtag/WhistleblowerMovment?src=hash&amp;ref_src=twsrc%5Etfw) supporters, and the stock price says it all. [pic.twitter.com/skWoKILXwl](https://t.co/skWoKILXwl)
+> — 500 Miles (@Safeguard008) [October 31, 2020](https://twitter.com/Safeguard008/status/1322346128730333184?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+*美司法部长巴尔已向乔-拜登发函，将于周五，也就是明天美国东部时间10月30日将与乔-拜登会晤，并建议，要么拜登退出竞选，要么面临多项刑事指控。如果他退出竞选并交出贪腐的所有资金，拜登及其家人包括亨特-拜登将不会受到刑事指控。*
+
+
+
+
+
+> 美司法部长巴尔已向乔-拜登发函，将于周五，也就是明天美国东部时间10月30日将与乔-拜登会晤，并建议，要么拜登退出竞选，要么面临多项刑事指控。如果他退出竞选并交出贪腐的所有资金，拜登及其家人包括亨特-拜登将不会受到刑事指控。 [pic.twitter.com/s74SauOIuv](https://t.co/s74SauOIuv)
+> — 全民挺郭联盟✊️ ✊️ ✊️ (@redwallpusher) [October 31, 2020](https://twitter.com/redwallpusher/status/1322440939567116289?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+拜登！你从中共拿的钱都是中国老百姓的血汗钱！多少中国的底层人民活得像奴隶！又有多少中国人民被迫害的生不如死！有人看到他们的苦难吗？拜登！中国人民会来找你！新中国联邦会来找你！推特和脸书关闭不了老百姓为了自由而发出的怒吼！
+
+
+
+
+
+> [#班农](https://twitter.com/hashtag/%E7%8F%AD%E5%86%9C?src=hash&amp;ref_src=twsrc%5Etfw) [@WarRoomPandemic](https://twitter.com/WarRoomPandemic?ref_src=twsrc%5Etfw) :
+> 拜登！你从中共拿的钱都是中国老百姓的血汗钱！
+> 多少中国的底层人民活得像奴隶！
+> 又有多少中国人民被迫害的生不如死！
+> 有人看到他们的苦难吗？
+> 拜登！中国人民会来找你！新中国联邦会来找你！
+> 推特和脸书关闭不了老百姓为了自由而发出的怒吼！
+> 
+> （喜站新号，欢迎关注） [pic.twitter.com/Kk4WUE93DV](https://t.co/Kk4WUE93DV)
+> — 喜马拉雅国际工作站（复活2号） (@GHimalaya2) [October 30, 2020](https://twitter.com/GHimalaya2/status/1322283104740941824?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+If these reports are true, Joe Biden should be arrested – not elected, says Grant Stinchfield.
+
+
+
+
+
+> If these reports are true, Joe Biden should be arrested – not elected, says Grant Stinchfield. [@stinchfield1776](https://twitter.com/stinchfield1776?ref_src=twsrc%5Etfw) [https://t.co/VlT7z8drtO](https://t.co/VlT7z8drtO) [pic.twitter.com/6Il1yPGcBj](https://t.co/6Il1yPGcBj)
+> — Newsmax (@newsmax) [October 31, 2020](https://twitter.com/newsmax/status/1322464578173882370?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+墙内咨讯
+
+- **10.31. 移动短信 转发国务院人口普查通知 **
+
+
+第七次全国人口普查将于2020年11月1日起开展现场登记。普查员将依法进入每家每户进行普查，并严格保障您的隐私安全，请您如实填报。国务院人普办。
+
+***简评：干什么事都扛着依法的名义，口口声声保障隐私安全，哪里都可以低价买到你的信息！这是为下一轮割韭菜摸底的！***
+
+- **10.31. 环球时报 常熟通报多名银行员工查出肺部结节**
+
+
+【常熟通报多名银行员工查出肺结节：正组织专家检查】10月31日，江苏@常熟发布通报：常熟农商行驻苏州工业园区2.5产业园的金融科技公司多名员工在体检中查出肺部结节，常熟市高度重视，正组织苏州、常熟两级医疗专家对金融科技公司相关员工的体检报告、数字化胸片及既往病史逐一检查，给出诊断意见。同时，责成常熟农商银行成立专门工作小组，由农商行纪委牵头，金融科技公司全体员工选出的代表组成，迅速进行第三次第三方环境检测（前二次检测结果均为合格），机构选择、检测内容由员工代表共同决定，相关结果及时公布，回应员工关切。
+
+***简评：新种病毒又现身了？环保排放不处理，造成的空气污染对人们的健康安全形成不可逆转的伤害！***
+
+- **10.31．参考消息 欧盟与加拿大指责中国任意拘押外国公民 中方回应**
+
+
+据中国驻欧盟使团网站消息，驻欧盟使团发言人就欧盟与加拿大领导人会晤有关涉华言论答记者问，全文如下：
+
+问：10月29日，在欧盟—加拿大领导人会晤后的记者会上，欧加双方对“中国任意拘押加拿大等外国公民问题”表示严重关切。中方对此有何评论？
+
+答：所谓中方“任意拘押”外国公民的指责毫无根据。中国是法治国家，坚决依法严厉打击危害国家安全的犯罪活动，坚决维护国家安全利益。中国司法机关严格依法办理有关案件，相关涉案人员的合法权益依法得到了切实保障。欧方与加方发表不负责任的言论，罔顾法治，干涉中国司法主权，是不可接受的。
+
+***简评：中共就是极权国家，没有法治，全凭人治。几十年来就是拿人当肉票、人质绑架着，用威胁恐吓的黑社会手段，达到他的目的，这种例子数不胜数。***
+
+- **10.31. 央视 张文宏：当前抗疫策略能很好控制新疆此轮疫情**
+
+
+复旦大学附属华山医院感染科主任张文宏表示，数据显示，世界上50%的病例是由无症状感染者传染的，整个社会上的传播，无症状感染者和有症状感染者各占一半。这并不意味着无症状感染者传染性更弱，也不代表无症状感染者更吓人。无论是无症状还是有症状，都要全面进行控制。新疆喀什无症状感染者的发现，只是证明疾病处于早期发展阶段。无论处于哪个阶段，按照中国当前的抗疫策略，最终都能得到很好的控制。
+
+***简评：张嘴就来，世界******50%患者都是无症状感染者传染的。这是功能增强的生化武器，有针对性的投放的。不查清，讲清来源，拿出改造步骤，不可能彻底控制和解决。***
 
 0
