@@ -1,11 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《The Biden Crime Family-Who Are They-trailer 系列片之一Who Are They With Hunter》
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/503319/)
+## Warroom 452：闫丽梦博士回应霍普金斯大学南希博士所说，以及中共国疫苗不可信实际仍在临床实验三期
+` snow` [轉載自GNews](https://gnews.org/zh-hans/504885/)
 
-多伦多加喜农场 凯路团队特别组
+战友之家新闻译制组
+撰稿：GM64
 
 
+
+•南希·康奈尔博士和罗伯特·加洛博士用质量很差的一些东西回应闫博士的第一份关于冠状病毒的报告。
+•闫博士表示不能相信中共国生产的冠状病毒疫苗，而且实际上冠状病毒疫苗仍在临床实验第三期。
 
 0

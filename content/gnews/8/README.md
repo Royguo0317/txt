@@ -1,46 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 纪念林昭：我们的自由女神
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/506173/)
+## 中国能源集团、美国石油与天然气分公司和中国公民被控窃取商业机密
+` GM80` [轉載自GNews](https://gnews.org/zh-hans/506152/)
 
-作者：文石
-校对：Giselle
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30181116/Screen-Shot-2020-10-31-at-8.10.59-am.png)图片说明：1951年11月，林昭在苏州农工团土改工作组时留影。图片来源：[https://commons.wikimedia.org/](https://commons.wikimedia.org/wiki/File:Lin-zhao-1951.png)
-每年4月，临近林昭的祭日，她在苏州的墓地便成了禁区。从全国各地前来祭扫的人不是被拦截在火车站，或遭到驱赶，便是以“寻衅滋事罪”遭到逮捕。有消息说，林昭的同学们为她树立的纪念碑被拆毁。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30175959/DOJ-20201029-1.jpg)
+[阅读原文](https://www.justice.gov/opa/pr/chinese-energy-company-us-oil-gas-affiliate-and-chinese-national-indicted-theft-trade-secrets)
 
-从照片上看，林昭就是一个普通的南方女孩子，梳着两支长辫子，文弱而温和。在她短暂的一生中，她从没有伤害过任何人。只要有需要救助的同学，她会毫不犹豫地奉送自己的衣物用品。在食品供应最困难的时候，在遍地哀鸿的时候，她却尽量节省自己宝贵的粮票，寄给远方的同学，帮助他逃离了被饿死的命运。
+A federal grand jury has returned an indictment alleging corporate entities conspired to steal technology from a Houston-area oil & gas manufacturer, announced U.S. Attorney Ryan K. Patrick and Assistant Attorney General John C. Demers of the Department of Justice’s National Security Division.
 
-如今，这个善良优秀的女性，离开我们已经五十多年了，却被中共政权视为越来越危险的敌人，以至现在要动用国家公权力极力抹去她的名字。他们害怕什么？其实只要在极权下生活过的人都知道，他们最害怕的是思想，是一个人的思考，是对他们这个政权本质的透彻认识。林昭，一个像林黛玉一样娇柔优雅、才华横溢的女孩子，就是因为坚持自己的思想，绝不放弃作为一个人的权利，便遭到整肃、监禁、虐待，最终被杀害。
+美国司法部国家安全部检察长赖安·帕特里克（Ryan K.Patrick）和助理检察长约翰·C·德默斯（John C. Demers ) 宣布，联邦大陪审团巳经颁布了一份起诉书，指控一些实体企业合谋从休斯顿地区的一家石油天燃气制造商那里窃取技术。
 
-她曾和所有上世纪三十年代的热血青年一样，基于对社会现实的不满，渴望用激进的手段彻底改变中华民族的命运。当有一种理论告诉他们，只要以暴力的方式清除现存的社会秩序，重新建立一个红色政权，这块苦难的土地就可以获得新生，他们就相信了。林昭甚至和家庭决裂，全身心投身于这场暴力革命，并把领导者视为自己的再生父母。她也曾为新建立的国家政权欢呼，并努力为它效力。
+Jason Energy Technologies Co. (JET) in Yantai, People’s Republic of China; Jason Oil and Gas Equipment LLC (JOG) USA and Chinese national Lei Gao aka Jason Gao, 45, are charged with conspiracy, theft of trade secrets and attempted theft of trade secrets.
 
-但这个政权的所作所为粉碎了热血青年们的幻想。它不仅没有像承诺的那样，实行民主和自由，甚至采用比之前的政府更高压更恐怖的手段压制民主。而且各种接连不断的运动和洗脑将新一代青年培养成打手，驯化成奴隶。对农村实行的残酷掠夺，把农民逼到了饥饿的边缘。
+中华人民共和国烟台杰森能源技术有限公司 (JET) 、美国杰森石油和天然气设备有限责任公司(JOG) 和45岁的中国公民高磊 (Jason Gao) 被控共谋，盗窃商业机密和企图盗窃商业机密。
 
-林昭无法对这些事实视而不见，她开始怀疑自己的选择，怀疑这个疯狂的政权和它的领袖们到底要把中国引向何方。1957年的反右运动，正是为她这样的人预设下的陷阱。任何人表现出质疑，都会被视为政权的敌人。甚至有些人，根本没有表现出来，也落入圈套。因为这个政权要清除的是所有可能有思考能力的人，包括那些只是断文识字，属于这个范围内的人。这就是所谓为凑数而被打成右派的人。因为右派是有指标的，各单位必须凑够一定比例。
+Gao previously resided in Houston but is now believed to be in China. A warrant remains outstanding for his arrest.
 
-曾和林昭相爱的甘粹先生就是这样的一个凑数右派。和绝大多数被划为右派的人不同，林昭并不以此为耻。林昭和甘粹先生之间最初只是一般的友情，并没有确定恋爱关系。但“组织上”禁止他们在一起，反而激发了他们共同的反抗情绪，促成了他们的感情进一步发展。甘粹在申请和林昭结婚遭到拒绝后被发配新疆劳动改造。此后，林昭也因为参与出版地下刊物《星火》，一本主要反映农村饥荒问题的杂志，遭到逮捕。
+高以前居住在休斯顿，但现据信在中国。目前对他发出的逮捕令尚未得到执行。
 
-林昭不承认自己有罪。在狱中，因为被认为“拒绝改造”，她遭到毒打和虐待。一个在监狱中送饭的犯人回忆说，林昭被单独关押，为了不让林昭说话，不让其他犯人听到她喊口号，林昭的头被用一个套子罩住，只有吃饭的时候才被解下来。
+Also charged in relation to the case is Robert Erford Jr., 41, Dayton, who worked for a Houston-area company. He previously pleaded guilty to conspiracy to commit trade secrets.
 
-为了表达自己的思想，林昭刺破自己的皮肤，用发卡沾着自己的鲜血写下了几十万字的血书。此时，她不再是惶惑的青年，而是对中共政权有了极为清晰的认识：
+曾在一家休斯顿公司工作，现年41岁的俄亥俄州代顿市居民小罗伯特·埃尔福德（Robert Erford Jr.）也因涉及与此案有关而受到指控，他之前承认犯有合谋窃取商业机密罪。
 
-“阴险地利用我们的天真、幼稚、正直，利用我们的善良、单纯的心，与热烈、激昂的气质，予以煽动加以驱使，而当我们比较成长了一些，开始警觉到现实的荒谬和残酷，开始要求我们的民主权利时，就遭到了空前未有的惨毒无已的迫害、折磨和镇压……我们的青春、爱情、友谊、学业、事业、抱负、理想、自由，我们之生活的一切，这人的一切，几乎被摧残殆尽地葬送在这污秽、罪恶、极权制度的恐怖统治之下……”
+On or about Nov. 7, 2019, Gao allegedly met with Erford at the JOG offices located in Houston. According to the indictment, Erford signed a consultancy agreement that Gao provided at that time, indicating Erford would work in China as a consultant to assist JOG in coiled tubing technology. Erford was to be $1,000 each day of a 15-day visit, according to the charges.
 
-林昭年少时曾就读于教会学校。她的父亲也是基督徒。林昭参加中共地下党时拒绝了父亲所代表的西方文明，但在逐渐认识到中共政权的邪恶后，她开始重新认识自己的父亲。在狱中，她向神祈祷，祈祷自己不会失去理智，她必须继续思考，因为身陷囚笼中唯一的武器就是思想。林昭称自己为“自由的战士”，发誓要和这个恐怖政权战斗到底。宗教信仰不仅给予林昭勇气和力量，也使她从更高的层面看待人类的苦难。对我们这个遭受奴役的、在痛苦中呻吟的民族，对所有遭受红色政权迫害的人们，甚至对狱中的看守，林昭都怀着悲悯之情。
+在2019年11月7日前后，高据称曾在休斯顿的JOG办公室会见了埃尔福德。起诉书显示，埃尔福德当时签署了一份由高提供的咨询协议，确定埃尔福德将在中国担任顾问工作，协助JOG开发连续油管技术。根据起诉书，埃尔福德在为期15天的访问中每天的报酬为1000美元。
 
-毛泽东曾解释说，在取得政权后，为何要不断发动各种运动，因为资产阶级会随时反扑。毛所说的资产阶级，其实是指在尊重私有制和各种相应社会规则的基础上形成的一种秩序，以及随之产生的道德观和价值观等，也就是我们今天所说的普世价值。这是人类在漫长的历史中逐渐寻找到的符合正常规律的发展方式，因而被普遍接受。
+This agreement allegedly also included a confidentiality provision.
 
-但通过欺骗、通过暴力和一切肮脏手段掠夺的权力，完全不具备合理性，更没有合法性。因此，中共在建立无产阶级政权后，就必须通过各种非常手段来维持。与此同时，也用各种方式灌输与普世价值相反的观念，通过极力改变人的正常思维和情感，让人们逐渐麻木，逐渐习惯于一种现实：人的生命和尊严微不足道，都可以作为“伟大政权”的牺牲品。
+据信，该协议还包括一条保密条款。
 
-但像林昭这样具有独立思考能力的人是不会轻易被改变的。虽然她在年轻时被左翼激进思潮蒙蔽，但对普世价值的信念最终使她能够认清邪恶政权的本质。和当时绝大多数还对中共抱有幻想的知识分子不同，她的觉醒和反抗都非常彻底。因为她坚信人的存在必须基于一种健康、公正、正直的价值观。因而逐渐觉醒的人们将她视为我们的自由女神。
+At that meeting, Erford was also provided a letter from the JET general manager inviting him to visit in order to have a technical exchange and discussion, according to the charges. That letter allegedly indicated a goal of helping to promote the company’s manufacturing efficiency, reduce machine failure and increase production capacity.
 
-从这一点上说，毛泽东说的很对，资产阶级会随时反扑，因为人性中对真理和正义有天然的渴望，这是不会被完全压制的，即便在中共政权使用一切卑劣残忍手段的极端情况下，还是会有像林昭这样觉醒的先行者站出来反抗暴政。
+根据起诉书上称，在那次会面中，埃尔福德还收到了一封JET总经理的邀请信，邀请他访问，以便进行技术交流和讨论。据称该信目的是帮助促进该企业提高生产效率、减少机器故障和提高生产能力。
 
-1968年，林昭被判处死刑，被害时年仅36岁。1981年，林昭被上海高院宣判无罪。此后，逐渐出现了纪念她的文章和书籍等，还有各种形式的纪念活动。但依然有些当事人不愿接受采访，讲述林昭生前的遭遇。这些人的疑虑是有道理的。大多数人认为执政党逐渐开明，承认了原来的错误，林昭不再被认为是这个政权的敌人。她的同学甚至能为她集资立碑。但近几年，谈论林昭再次变成禁忌。七十年来，这个政权的性质没有丝毫改变，只是在不同时期，极权统治者出于自身的需要变化手法而已。表面上控制的松弛并不意味着对民主的认可。在这种情况下，对于林昭的纪念和研究变得尤为重要。她的清醒透彻和绝不妥协时刻提醒着我们，不要再被这个善于欺骗的政权再次欺骗。
+Without authorization, on or about Nov. 22, 2019, Erford allegedly transferred a victim company document that contained a trade secret from the United States to the China for JET’s benefit. The indictment further alleges that from approximately Nov. 25-29, 2019, Erford held meetings with Gao and JET officials at JET’s offices in China and its coiled tubing facilities. At those meetings, they allegedly discussed coiled tubing technology, including victim company proprietary technology, practices and procedures.
 
-在接到判刑书时，林昭写到：“这是一个可耻的判决，但我骄傲地听取了它。这是敌人对于我个人战斗行为的一种估价……我应该做更多，以符合你们的估价！除此以外，这所谓的判决与我可谓毫无意义！我蔑视它！看着吧！历史法庭的正式判决很快即将昭告于后世！你们这些极权统治者和诈伪的奸佞——歹徒、恶赖、盗国贼和殃民贼将不仅是真正的被告，更是公诉的罪人！公义必胜！自由万岁！”
+在未经授权的情况下，2019年11月22日前后，埃尔福德为了JET的利益， 将一份包含受害公司商业机密的文件从美国传递到中国。起诉书还称，大约在2019年11月25日至29日，埃尔福德在JET的中国办公室及连续油管办事处与高和JET的管理层举行了几次会谈。据称，在那些会议上，他们讨论了连续油管技术，其中包括了受害公司的专有技术、做法和程序。
 
-（文章内容仅代表作者个人观点）
+The charges also allege authorities obtained evidence that Erford and Gao used encrypted messaging app WeChat in December 2019 to obtain, collect and copy victim company manufacturing information.
 
-1+
+指控还称有关部门获得了证据，证实埃尔福德和高在2019年12月使用微信的加密信息获取、收集和复制受害公司的制造信息。
+
+The corporate entities could be fined up to $5 million or three times the value of the stolen trade secret, whichever is greater. Gao faces the same potential fine as well as a possible prison sentence of up to 10 years.
+
+这些实体企业有可能被处以最高500万美元，或同等于被窃取的商业机密价值的三倍的罚款，以最高金额为限。高也可能面临同样的罚款和最高10年的监禁。
+
+The FBI conducted the investigation. Assistant U.S. Attorneys Carolyn Ferko and S. Mark McIntyre of the Southern District of Texas are prosecuting the case along with Trial Attorney William Mackie from the Department of Justice’s National Security Division’s Counterintelligence and Export Control Section.
+
+联邦调查局对此进行了调查。德克萨斯州南区调查局的美国助理检察官卡洛琳.佛寇（Carolyn Ferko） 和 迈克·麦金太尔（ S. Mark McIntyre ）与司法部国家安全司反间谍和出口管制科的审判律师威廉·麦凯（ William Mackie ）共同起诉了该案件。
+
+The charges contained in the indictment are only allegations.  A defendant is presumed innocent unless and until proven guilty beyond a reasonable doubt in a court of law.
+
+起诉书中的控告仅是指控。除非并且直到在法庭上无可辩驳地证实其有罪之前，否则被告将被视为无罪。
+
+*翻譯：【rainbow】校对：【Duojia】编辑：【GM80】
+战友之家玫瑰园小队出品*
+
+0

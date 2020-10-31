@@ -1,33 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】拯救世界上最可爱的女人
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/505450/)
+## 决战13天：重磅！亨特拜登中国行，刘呈杰代持者被爆出
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/505697/)
 
-香草山写作组：Daxia  编辑：文位
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25214127/WhatsApp-Image-2020-10-24-at-08.09.25.jpeg)
+- 编辑：文顺
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30132714/%E5%9B%BE%E7%89%8710-6.png)
-10**月**24号，文贵先生在GTV转发美国前副总统乔·拜登之子亨特·拜登在中国淫辱我中国女性同胞的链接，内容极度淫秽下流，在全世界炸开了锅!
+10月30日，爆料革命《路德社》解析亨特拜登15年中国之行前与Francis Person的沟通邮件，爆出中共与拜登家族特殊的利益关系，惊现习近平私生子刘呈杰身影。
 
-硬盘里还包括亨特拜登吸毒后与未成年少女（包含其侄女）、奧巴马女儿以及与家族内其她女人乱伦的视频。此时，我只能说，虎毒不食子，更何况他们还是直行动物，颠覆人伦！
+15年7月28日，Francis Person发送邮件邀请亨特·拜登去中国游玩，由张博及其家人接待。据路德社披露，Francis Person在2009-2014年是乔·拜登的特殊助理和顾问，而张博的母亲邵景兰是华锐世纪集团董事长，其岳父刘赐贵是现任十九届中央委员海南省委书记，而刘则是习近平私生子刘呈杰的代持者，张博则负责习近平女儿习明泽在美的安保及生活。张博通过Francis Person牵线，与亨特·拜登达成合作，而张博背后正是CCP。
 
-我们都是女人所生，世界上最美的赞歌，可亲的、可爱的、可敬的妈妈才配拥有，正是女性的伟大，世界才更精彩！
+据路德社分析，此次亨特·拜登中国之行期间，Francis正在洽谈NBA湖人队到沈阳比赛的事宜。湖人队作为NBA的旗帜之一，拿下湖人队再拿下NBA，也就拿下了好莱坞，从而利用NBA、好莱坞的巨大影响力，来影响美国甚至全球的争执，这便是CCP的终极目标。
 
-在中共绞肉机体制的统治下，为了实现控制世界的野心，他们不择手段，把国民女子、幼童拱手于同盟玩弄，随意践踏、蹂躏。如果让中共继续作恶下去，那不仅是中国女性，也是全世界所有女性的悲哀！所有人都应该惊醒了。
 
-现在我们要不分国籍、不分种族、不分肤色、不分信仰、不分老少，为了后代、为了妻女、为了姐妹、为了母亲及所有爱的女人不被魔鬼奴役，必须勇敢站出来，传播真相，消灭恶魔！
-
-拯救世界上我们最可爱的女人吧！
-
-更多内容请访问： [https://gtv.org//?videoid=5f977cf9384a485bd9603541](https://gtv.org//?videoid=5f977cf9384a485bd9603541)
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayanyM)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，免费英语教学，美东时间周一至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30150034/PHOTO-2020-10-31-00-34-46.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25143553/image0-101.jpg)喜西农场官方Parler二维码，敬请关注！
 
 0

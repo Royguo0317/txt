@@ -1,40 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 滑天下之大稽：亨特·拜登居然是一个“禁止虐童基金会”的主席
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/504442/)
+## 亨特·拜登第三波: 硬盘邮件解密26 3/6/2019 亨特的金钱运作方式
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/504539/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27191627/1-271.png)图片来源： gtv.org
+前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
+
+**亨特·拜登第三波：硬盘邮件解密** **3/6/2019 亨特的金钱运作方式**
+
+### 邮件：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110355/Capture-15.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110434/PDFtoJPG.me-07-4-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110455/PDFtoJPG.me-08-3-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110514/PDFtoJPG.me-09-3-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110536/PDFtoJPG.me-10-3-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110557/PDFtoJPG.me-11-3-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110653/PDFtoJPG.me-12-3-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110714/PDFtoJPG.me-13-3-scaled.jpg)
+[亨特的金钱运作方式](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110745/22%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-Word.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110745/22%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-Word.pdf)
 
 
-据《谈论新闻》（Speaking About News）10月26日报道，目前正处于政治丑闻和性丑闻中心的亨特·拜登（Hunter Biden）的笔记本电脑上所贴有的一张“Beau Biden Foundation（博·拜登基金会）”的标签，引起了人们的广泛兴趣。据悉，该基金会的全称是博·拜登保护儿童基金会 （[Beau Biden Foundation for the Protection of Children](https://www.beaubidenfoundation.org/)）。
-
-然而，令人大跌眼镜的是，前纽约市长鲁迪·朱利安尼（Rudy Giuliani）刚刚宣称该笔记本电脑中包含有未成年女孩的色情材料，这令人既悲哀又恶心。
-
-报道透露今年早些时候，博·拜登基金会是特拉华州疫情应急基金的捐款受益人之一，并获得了22,000美元的赠款，号称用于提供“线上培训”以保护儿童免受虐待。博·拜登保护儿童基金会声称，其使命是保护儿童免遭虐待，尤其是在互联网上。它举办讲座并提供培训课程，以防止儿童在网上受到欺凌。而令人深感不安的是，亨特·拜登自己恰恰被指控涉及儿童性犯罪。
-
-据称在乔·拜登（Joe Biden）和他的儿子亨特·拜登之间的信息沟通中，这位民主党总统候选人问他的儿子：“这是[已编辑过的14岁女孩]，对吗？”另外，亨特·拜登还有与未成年女孩进行网上性爱视频的癖好。
-
-有人推测，该女孩是指哈莉·拜登的女儿。而哈莉·拜登（Hallie Biden）也是该基金会的联席主席，也与亨特·拜登保持着某种特殊关系。如果是这样的话，这将是对该基金会领导层的毁灭性打击。
-
-该基金会曾自我标榜，称：“作为成年人，我们有法律和道义上的义务为那些受虐待，又不能为自己说话的儿童站出来大声疾呼。”
-
-报道进一步指出，如果亨特·拜登被指责为“为孩子们创造一个非常不安全的环境”，并有在未成年女孩面前进行裸体性骚扰，甚至性行为的劣迹，则必须公开这些信息，而不是隐瞒多年。可笑的是，亨特·拜登的基金会向“青年服务组织”提供了3,000美元的“保护盾”计划，该计划声称将培训员工如何成为“儿童管家”，以及“认识并报告虐待儿童行为”。
-
-现在，人们意识到，这个基金会的领导人正是需要这类培训的人。
-
-然而，博·拜登基金会的丑闻并不仅限于此。除了拜登家族的成员外，基金会董事会还包括特拉华州立大学校长托尼·艾伦，乔·拜登的前演讲撰稿人和特别助理，以及乔·拜登的过渡小组成员。董事会成员甚至还包括前联邦调查局局长路易斯·弗里斯（Louis Freeh）。
-
-这个基金会就像一张缩影，折射出拜登家族的所有事物，包括他们在政治和商业领域的各种丑陋行径。
-
-博·拜登（已故）是乔·拜登眼中的好儿子，曾任特拉华州的总检察长，担任了8年职位。特拉华州的法律界到处都是他的同事。人们注意到，当朱利安尼（Giuliani）将笔记本电脑移交给特拉华州当局时，特拉华州总检察长凯西·詹宁斯（Kathy Jennings）办公室迅速宣布将笔记本电脑移交给了联邦调查局。詹宁斯曾在博·拜登手下任职，并正在帮助乔·拜登竞选总统，他曾说：“我一生都感激拜登一家。”
-
-报道分析，特拉华州是一个小州，政要圈子很小。博·拜登基金会的董事会成员对笔记本电脑的内容了解多少？他们中是否有人知道，他们的联席主席可能被指控性虐待儿童？也许，就像关于乔·拜登的许多问题一样，它们既不会被问到也不会被回答。
-
-尽管联席主席涉嫌未成年女孩照片的笔记本电脑已提交当局，博·拜登基金会仍坚称他们会保护儿童。但是，谁来保护孩子免受来自拜登的性侵呢？
-
-[相关链接](https://speakingaboutnews.com/hunter-biden-chaired-a-foundation-to-stop-child-abuse-while-engaging-in-it/)
-
-翻译：Hanstyle88
 
 0

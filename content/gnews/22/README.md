@@ -1,37 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共真正的治国圣典是服务生殖器
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/504926/)
+## 【热点播报】拯救世界上最可爱的女人
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/505450/)
 
-*作者：宁缺; 校对/审核：Julia Win；Page: 拱卒*
+香草山写作组：Daxia  编辑：文位
 
-一直以来，中共通过一帮没有骨头的文化犬儒对统治下的祖国花朵从出生起就开始进行洗脑教育。把所有领导人的狗屁治国理念包装成高深莫测的雄才伟略写入教材，通过应试教育一遍遍强化，让中国所有的孩子在反复的朗读背诵中将这些糟粕垃圾灌输进自己的大脑。进而相信统治他们的党是伟大光荣正确的党, 奴役他们的领导人是聪明绝顶，道德完美的天降伟人。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25214127/WhatsApp-Image-2020-10-24-at-08.09.25.jpeg)
 
-从邓小平放开高考开始，政治教材中就一路写满了什么以经济建设为中心，什么三个代表、什么科学发展观、和谐社会，直到现在的特色社会主义。而今，老百姓吃地沟油、吸毒霾、看不起病、死不起人，生存环境越来越糟糕，但是洗脑的文宣却越来越庞杂，越来越繁琐，一套一套，令人眼花缭乱，目不暇接。在这样地毯式连番滚动轰炸的洗脑下，曾经一度，我还真相信教科书里所有的理论都是各个领导人高屋建瓴、指点江山的恢宏作品，是中共国建设宏图伟业的治国圣典。共产党是为人民服务的党，社会主义制度是世界上最先进的制度，是党救了百姓，是党发展了国家的一系列荒唐说辞。
-[!\[\]()!\[\](https://spark.adobe.com/page/UZ3dQ0trjpbof/images/7d581c80-c8c4-40d7-9350-85ba9e5f1baf.jpg?asset_id=fac85df4-cb1d-425f-82e7-140fa2fd5ff2&amp;img_etag=%22e0c6804599cbe39b5c4bee0dafeed812%22&amp;size=3840)](https://spark.adobe.com/page/UZ3dQ0trjpbof/images/7d581c80-c8c4-40d7-9350-85ba9e5f1baf.jpg?asset_id=fac85df4-cb1d-425f-82e7-140fa2fd5ff2&amp;img_etag=%22e0c6804599cbe39b5c4bee0dafeed812%22&amp;size=1024)网络图片
-遇到文贵先生之后才明白，所有的这些糊弄鬼的狗屁理论不过是皇帝摆在台面上供人虚伪赞叹的新衣而已。共产党真正的治国神器原来一直偷偷地藏在裤裆里，中共哪里敢恬不知耻地掏出来摆在台面上让所有中国人知道。
 
-回顾几年来的爆料历程，文贵先生为全世界详细展示了以王岐山为代表的中共盗国贼集团如何强奸这个人口超过14亿的国家来服务自己的生殖器。中共盗国贼荒淫无度，败坏人伦，非其母，非其女，尽可妻也。他们把明星骑在胯下甚至母女通吃，把大学打造成青楼，把央视变成了妓院。再将生殖器鼓捣出来的所有后代低调地安插到各个关键岗位，执掌把持国家的经济命脉，进而控制整个国家。世世代代吸人民的血，吃人民的肉，奴役人民的儿子，玩弄人民的女儿，中国老百姓就像矿产资源一样等待盗国贼家族开采、挖掘、压榨。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30132714/%E5%9B%BE%E7%89%8710-6.png)
+10**月**24号，文贵先生在GTV转发美国前副总统乔·拜登之子亨特·拜登在中国淫辱我中国女性同胞的链接，内容极度淫秽下流，在全世界炸开了锅!
 
-到了今天最后决战的关键时刻，我们又有了新的发现，中共盗国贼不光是服务自己生殖器的高手，还是跪舔美国卖国贼生殖器的高手。春秋时期，齐桓公感叹自己当了国君什么都享受了就是没吃过人肉，底下的厨子易牙听后立即回家把自己三岁的儿子煮汤送到齐桓公桌前。而今亨特·拜登感叹自己很久没有强暴猥亵幼童了，中共就立刻找到别人家孩子脱光了送到亨特面前。自己跪舔人家的生殖器，却慷百姓之慨，把百姓的孩子送到魔鬼手上，连个厨子都不如，真是无耻之尤！
+硬盘里还包括亨特拜登吸毒后与未成年少女（包含其侄女）、奧巴马女儿以及与家族内其她女人乱伦的视频。此时，我只能说，虎毒不食子，更何况他们还是直行动物，颠覆人伦！
 
-[!\[\]()!\[\](https://spark.adobe.com/page/UZ3dQ0trjpbof/images/daa0e6dc-8292-4a27-a9a2-5d7c46c1d3c3.jpg?asset_id=f80782e4-69c5-4460-ae0f-f923d4ffc597&amp;img_etag=%2284d0c3f3355b7fd3b2e114e7e2d28226%22&amp;size=2560)](https://spark.adobe.com/page/UZ3dQ0trjpbof/images/daa0e6dc-8292-4a27-a9a2-5d7c46c1d3c3.jpg?asset_id=f80782e4-69c5-4460-ae0f-f923d4ffc597&amp;img_etag=%2284d0c3f3355b7fd3b2e114e7e2d28226%22&amp;size=1024)
+我们都是女人所生，世界上最美的赞歌，可亲的、可爱的、可敬的妈妈才配拥有，正是女性的伟大，世界才更精彩！
 
-我一直以为女人是弱者，不应该把女人作为男人之间决战的牺牲品。到目前为止，我都没有对各个主动或被迫参与淫乱行为的女人说任何侮辱的话。可是中共的盗国贼家族为了稳固自己的权位，霸占人民的利益，为了能坐在台面上继续堂而皇之宣扬自己的狗屁治国理念，竟然连自己的女人都可以上前送给洋大人服务生殖器。你们这群禽兽究竟把谁当过人？你们自己究竟何以为人？我曾经天真地相信共产共妻是国民党抹黑诬陷共产党的宣传词，今天面对这么多真相，一时真的无言以对。
+在中共绞肉机体制的统治下，为了实现控制世界的野心，他们不择手段，把国民女子、幼童拱手于同盟玩弄，随意践踏、蹂躏。如果让中共继续作恶下去，那不仅是中国女性，也是全世界所有女性的悲哀！所有人都应该惊醒了。
 
-现在距离美国大选结束不到一周时间，拜登败选已成定局，中共的这些魔鬼们在人间游荡的日子也进入倒计时了。爆料革命将和全世界正义的力量一起把你们全部送回地狱。以后请记得不要再投胎人间，好好呆在地狱不要再来祸害黎民百姓、不要再来祸害这个原本清明的世界。没有你们的天空才是真正晴朗的天空！
+现在我们要不分国籍、不分种族、不分肤色、不分信仰、不分老少，为了后代、为了妻女、为了姐妹、为了母亲及所有爱的女人不被魔鬼奴役，必须勇敢站出来，传播真相，消灭恶魔！
 
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/UZ3dQ0trjpbof/)】- 点击spark adobe版
+拯救世界上我们最可爱的女人吧！
 
-了解更多资讯敬请关注：
+更多内容请访问： [https://gtv.org//?videoid=5f977cf9384a485bd9603541](https://gtv.org//?videoid=5f977cf9384a485bd9603541)
 
-【战鹰团Gab】[https://gab.com/himalayahawks](https://gab.com/himalayahawks)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayanyM)！
 
-【英喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-【英喜庄园GTV/盖特】：[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+圣经故事背景，免费英语教学，美东时间周一至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-【大卫作战室YouTube】[https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
-[!\[\]()!\[\](https://spark.adobe.com/page/UZ3dQ0trjpbof/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/UZ3dQ0trjpbof/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-1+
+0
