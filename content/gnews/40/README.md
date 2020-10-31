@@ -1,17 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登第三波: 硬盘邮件解密36 2014年5月13日律师希瑟.金写邮件给瓦迪姆.波扎尔斯基关于媒体对于亨特.拜登的公关反应
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/509415/)
+## 常熟农商行员工受害群体爆料称3人已确认肺癌肺结节患者超106人
+` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/509769/)
 
-前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
+素材：am心的小屋 内新闻：背靠背
 
-**亨特·拜登第三波：硬盘邮件解密**
+2020年10月31日，江苏省常熟市委外宣办、常熟市政府新闻办官方微博发布消息称，常熟农商行驻苏州工业园区2.5产业园的金融科技公司多名员工在体检中查出肺部结节。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31114720/image-213.png)
+10月28日，一张名为“常熟农商银行群体性肺结节事件”的截图在网上曝光。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31113333/image-208.png)
+对该事件按时间梳理：
 
-**2014年5月13日律师希瑟.金写邮件给瓦迪姆.波扎尔斯基关于媒体对于亨特.拜登的公关反应，Burisma集团董事会顾问波扎尔斯基在邮件说：“Burisma的人当然是从未经过副总统及其工作人员。”**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31103607/Capture9-1-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31100937/Capture9-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31101527/Capture9-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31101606/Capture9-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31105459/Capture9-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31105534/Capture9-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31105544/Capture9-9-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31105554/Capture9-10.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31105608/Capture9-11.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31105837/Capture9-13.jpg)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31105849/Capture9-14.jpg)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31105902/Capture9-15.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31105936/Capture9-16.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31105948/Capture9-17.jpg)
-[2014年5月13日律师希瑟.金写邮件给瓦迪姆.波扎尔斯基关于媒体对于亨特.拜登的公关反应，Burisma集团董事会顾问波扎尔斯基在邮件说：“Burisma的人当然是从未经过副总统及其工作人员。”](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31110206/9-V4.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31110206/9-V4.pdf)
+2020年8月31日，一名网名为“喝茶的猫”的网友在“苏州市12345阳光便民”网站上发出“救命贴”。该网友在帖子中称，“位于苏州工业园区的2.5产业园，常熟农商行内部员工体检后发现大部分员工都有肺部结节病症，而在一年前员工的体检都是正常的，有理由怀疑是公司刚搬进新装修的办公区导致的疾病。“目前已知的肺部结节病人有60多人，6月份体检出的报告，公司在得知消息后并不是第一时间排查给员工交代，而是在第一时间把剩余未体检的员工的体检日期推迟到十月份。”
 
-0
+在该贴中，该名网友表示，有员工已经因为肺部结节接受了手术，当时只是认为自身原因。
+
+9月14日，“喝茶的猫”再次在“苏州市12345阳光便民”网站上发帖，表示患有肺部结节的常熟农商行员工人数已增加至75人。该网友称，“我们在等待行方给出处理方案，但是行方一直当做没有发生过，还安排了医生进行慰问洗脑，之后继续沉默。”
+
+9月18日至10月27日，有常熟农商行员工在去医院复查时，发现自己身上的肺结节增大，其中有数位员工进行了手术切除部分肺部组织。
+
+10月10日，一位女员工在进行血清癌抗检查时，初诊为肺癌。“毕业才1年，进入公司体检正常，年龄不到24岁。发生这件事，（她）不敢告诉家里的爸妈，独自含泪面对。”
+
+10月27日，员工病友微信群人数扩增至96人，其中有人表示：“银行领导采用鸵鸟策略，对同事的诉求不闻不问”，一份疑似农商行员工受害者诉求文件截图：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31113537/image-209.png)
+此外，疑似大量常熟农商行员工聊天室信息截图曝光，根据聊天内容发现整个过程，农商行领导层都在推诿，不作为，敷衍了事，员工健康利益无法保障，哭诉无门。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31113627/image-210.png)
+银行领导层安排讲座给员工洗脑，会议上声称，“家里解决就好，不要外传出去。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31113659/image-211.png)
+农商行领导层搬出办公环境检测报告继续推诿。10月29日，常熟农商银行在其官网发布关于体检中有员工查出肺结节的情况说明，称办公环境两次检测合格。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31115511/1-1-16.jpg)
+根据微信公众号行长助手收到的一份常熟农商行受害员工对媒体的申诉材料。该材料显示，至10月29日，肺结节患病员工已达106人，（仅统计加入微信病友群的人数），其实员工患有肺部结节人数远远不止106人，此外还有3名员工已确认肺癌。
+
+针对常熟农商行10月29日发布的“关于体检中有员工查出肺结节的情况说明”，该材料中共提出5点质疑（以下5点为材料原文内容，引用未作改动）：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31113753/image-212.png)
+农商行领导层解决问题方案与该行员工受害者诉求相差甚远，持续关注后续报道。
+
+新闻来源：
+
+https://m.sohu.com/a/428613906\_120161493scm=1002.b000b.1f2032c.ARTICLE\_REC https://view.inews.qq.com/a/20201030A08AJU00 https://view.inews.qq.com/a/20201029A07HLK00?tbkt=A&uid=
+
+2+

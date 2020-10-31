@@ -1,21 +1,187 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “我是音雄”人物故事 第一季，第十一集：讽红秀三剑客
-` GMusic` [轉載自GNews](https://gnews.org/zh-hans/510095/)
+## 郭文贵先生最新单曲《为香港而战》MV正式版
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/511013/)
 
-*音雄文字组 小雄 Kardia*
+**Fight for Hong Kong – Single by Miles Guo
+**[https://music.apple.com/us/album/fight-for-hong-kong-single/1537277836](https://music.apple.com/us/album/fight-for-hong-kong-single/1537277836)
 
-红朝末日，英雄辈出，郭大侠麾下集齐三大剑客，剑指 CCP妄图毁灭世界的蓝金黄计划，斩蓝剑——威廉王，灭金剑 ——文艺，扫黄剑——Eric
+**歌词/lyrics：**
 
-他们，相识相知于我是音雄的赛场，他们才华出众、惺惺相惜，又联手推起新的音乐灭共浪潮，在讽红秀节目里，嬉笑怒骂皆成刀光剑影劈向ccp，斩段信息垄断控制的蓝色魔爪，灭除金钱腐蚀的权钱交易沼泽，扫杀淫秽丑恶的黄色恶龙，十三天大决战，他们披荆斩棘和全球爆料革命战友一起力战到底，与邪恶决一死战。
+Fight for Hong Kong
+为香港而战
+The enemy’s fear
+他们的恐惧
+is our weapon and our victory
+是我们的武器、我们的胜利
+Thank you all brothers and sisters
+谢谢了，兄弟姊妹们
+Have you worked out today?
+你们健身了吗?
+Action! Action! Action!
+行动！行动！行动！
+CCP, you’re over!
+中共，你完了
+Take down the CCP
+干灭中国共产党
+Take down the CCP
+干灭中国共产党
+Everything is just beginning
+一切都是刚刚开始
+For the games you want to play
+不管你花招用尽
+Bring it on and I will fight till the end
+来吧，我会战斗到底
+Just watch and see
+走着瞧
+It’s all started everything’s begun
+一切都已经开始
+And you are over!
+你完蛋了
+Coz’ we’re taking down the CCP
+因为我们正在推翻中共
+Spread the word of Hong Kong
+传播香港真相
+We will fight till they’re all gone
+我们会消灭掉所有敌人
+We rejoice when there’s no more
+我们将庆祝敌人的消亡
+Let’s take down the CCP
+让我们灭掉中共
+They’ve all lied for too long
+它们的谎言横行多年
+We will end when they do wrong
+如任其肆虐我们将没有未来
+Spread the word of Hong Kong
+传播香港的真相
+Let’s take down the CCP
+让我们灭掉中共
+Let the bullets fly a little longer
+让子弹再飞一会儿
+and you will surrender
+你终将屈膝投降
+Let the bullets fly a little longer
+让子弹再飞一会儿
+We will let freedom to live
+自由终将永存
+we will, when you surrender
+我们定会令你投降
+Let the bullets fly a little longer
+让子弹再飞一会儿
+Let the bullets fly a little longer
+让子弹再飞一会儿
+CCP, you’re over! Let the bullets fly a little longer
+中共，你完了 让子弹再飞一会儿
+Let the bullets fly a little longer
+让子弹再飞一会儿
+CCP, you’re over! Let the bullets fly a little longer
+中共，你完了 让子弹再飞一会儿
+Take Down the CCP, the evil CCP
+干灭中国共产党，这个CCP
+is the only way for us to live without fear
+才能让我们远离恐惧
+Take down the CCP
+灭掉中共
+They try to scare the nation with fabrication
+它们试图用谎言威吓整个民族
+But we see through the lies
+但我们已看清一切
+you will fall, we will fight you back
+你终将灭亡，而我们定会反击
+Police corruption with crooked assumption
+腐败的警察用歪曲的臆断执法
+They ran our lives
+它们荼毒我们的生命
+But no more, we will win
+我们不会允许你们继续作恶
+we will take down the CCP
+我们会推翻中共
+Spread the word of Hong Kong
+传播香港真相
+We will fight till they’re all gone
+我们会消灭掉所有敌人
+We rejoice when there’s no more
+我们将庆祝敌人的消亡
+Let’s take down the CCP
+让我们灭掉中共
+They’ve all lied for too long
+它们的谎言横行多年
+We will end when they do wrong
+如任其肆虐我们将没有未来
+Spread the word of Hong Kong
+传播香港真相
+Let’s take down the CCP
+让我们灭掉中共
+Let the bullets fly a little longer
+让子弹再飞一会儿
+and you will surrender
+你终将屈膝投降
+Let the bullets fly a little longer
+让子弹再飞一会儿
+We will let freedom to live
+自由终将永存
+we will, when you surrender
+我们定会令你投降
+Let the bullets fly a little longer
+让子弹再飞一会儿
+Let the bullets fly a little longer
+让子弹再飞一会儿
+Let’s stand up
+站起来吧
+Let the bullets fly a little longer
+让子弹再飞一会儿
+Let’s stand up
+站起来吧
+Let the bullets fly a little longer
+让子弹再飞一会儿
+All the enslaved people
+被奴役的人们
+Let the bullets fly a little longer
+让子弹再飞一会儿
+Action!
+行动
+Let the bullets fly a little longer
+让子弹再飞一会儿
+Action!
+行动
+Let the bullets fly a little longer
+让子弹再飞一会儿
+You’re over!
+你完了！
+Let the bullets fly a little longer
+让子弹再飞一会儿
+Take Down the CCP
+灭掉中共
+Let the bullets fly a little longer
+让子弹再飞一会儿
+and you will surrender
+你终将屈膝投降
+Let the bullets fly a little longer
+让子弹再飞一会儿
+We will let freedom to live
+自由终将永存
+we will, when you surrender
+我们定会令你投降
+Let the bullets fly a little longer
+让子弹再飞一会儿
+Take Down The CCP Let the bullets fly a little longer
+灭掉中共 让子弹再飞一会儿
+Take Down The CCP Let the bullets fly a little longer
+灭掉中共 让子弹再飞一会儿
+Take Down The CCP Let the bullets fly a little longer
+灭掉中共 让子弹再飞一会儿
+Take Down The CCP Let the bullets fly a little longer
+灭掉中共 让子弹再飞一会儿
+Take Down The CCP Let the bullets fly a little longer
+灭掉中共 让子弹再飞一会儿
+Take Down The CCP Let the bullets fly a little longer
+灭掉中共 让子弹再飞一会儿
+Take Down The CCP Let the bullets fly a little longer
+灭掉中共 让子弹再飞一会儿
+Take Down The CCP Let the bullets fly a little longer
+灭掉中共 让子弹再飞一会儿
+Take Down the Evil CCP
+灭掉这个邪恶的中国共产党！
 
-斩蓝剑—威廉王成名已久，作为新中国联邦国歌的词作者和《我是音雄》主持评委，实力惊人却霸气内敛，玉树临风又谦和如水，身负过人才华，出口成词，抚琴成调，弦动音成，助力郭大侠，谈笑间，只见ccp灰飞烟灭。斩断蓝色魔爪，除灭信息控制，灯火阑珊，蓦然回首，他是风华绝代的斩蓝剑
-
-灭金剑 —MC文艺，在今年六四庆典中展露头角，领唱歌曲《自由》，初震江湖；在第一期《我是音雄》的舞台一曲成名，斩获擂主；身为樱花团的美声担当，MC文艺名副其实，在各次灭共游行中引吭高歌，呼喊自由。宝剑一出，华光四射，照进黑色沼泽，寂灭黑金交易，她气质高冷，眼神灭共，她就是闪耀着冷艳光芒的。 灭金剑
-
-扫黄剑 —— Eric，隐藏在秘密翻译组的隐士高手，貌不惊人，却武艺超群，在第三期《我是音雄》出山，一曲原创代表作《莘县阳谷县达县》惊为天人，当仁不让赢取擂主。人狠话不多，玉米地里见分晓，剑利扫黄龙，除尽天下无良汉！阅尽江湖，历尽风雨，小曲见沧桑，风趣能扫黄，肌肉男，不服就干。他是变幻莫测的。扫黄剑
-
-三剑即出，风云变色，讽红烈焰，势如破竹，歌声如镜，照尽红朝谎言，歌声如火，烧尽红妖魔魇。他们是郭大侠麾下的三大剑客，他们是斩妖除魔的anti蓝金黄之剑，他们是十三天大决战里每一个点击和转发的无名战友，抢占黑幕笼罩下的真相高地，在风云变幻的历史关头，每一个勇敢站出来的人，都是涛涛灭共浪潮潮里的侠客。
-
-1+
+0
