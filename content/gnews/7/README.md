@@ -1,15 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【12】硬盘第三波烧脑风暴来袭！亨特拜登与桑顿集团布尔格关于中国问题与能源项目邮件曝光！
-` GM01` [轉載自GNews](https://gnews.org/zh-hans/506379/)
+## 亨特·拜登第三波: 硬盘邮件解密32 2014年4月21日 德文·阿彻和亨特·拜登之间的一系列邮件，其中讨论了包括布利斯马的委任书,时任美国驻中国大使等不同话题
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/506592/)
 
-在经历了近几天“小视频”“小图片”的洗礼，大家一定被吸足了眼球！现在真正的烧脑风暴来了！你准备好了吗？接下来铁一般的证据，山一般的证明逐一清晰展示了中美两国盗国贼对人类的威胁和伤害！对法律的无视！以及对女性的侮辱甚至奴役变态！他们的人性已完全丧失！
+前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
 
-其实硬盘中还有绝大部分的视频因涉及到极为敏感，极为不人道，极为残忍的画面无法播放，将随后再进行处理。
+**亨特·拜登第三波：硬盘邮件解密**
 
-现在将为大家呈现Burisma与亨特拜登和中共之间勾兑的铁一般的事实，包括文件和Email的往来，以及相关人物往来！希望全世界有良知的战友都来关注。如果这样的事情不被揭发，人类将全面走向黑暗！
+**2014年4月21日上午，这是德文·阿彻和亨特·拜登之间的一系列邮件，其中讨论了不同的话题。在商业方面，他们谈及了布利斯马的委任书，对美国远程医疗平台公司American Well的投资，五月的巴黎会议，卡塔尔会议和多哈论坛等内容。同时，在对话中还提到了时任美国驻中国大使。个人方面，亨特与德文讨论了该购买哪一款保时捷汽车。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30205627/54-Re_-Burisma-%E6%A0%A1%E5%AF%B9-2_00.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30210313/54-Re_-Burisma-%E6%A0%A1%E5%AF%B9-2_07.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30210316/54-Re_-Burisma-%E6%A0%A1%E5%AF%B9-2_08.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30210318/54-Re_-Burisma-%E6%A0%A1%E5%AF%B9-2_09.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30210321/54-Re_-Burisma-%E6%A0%A1%E5%AF%B9-2_10.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30210324/54-Re_-Burisma-%E6%A0%A1%E5%AF%B9-2_11.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30210328/54-Re_-Burisma-%E6%A0%A1%E5%AF%B9-2_12.png)
+[**2014年4月21日上午，这是德文·阿彻和亨特·拜登之间的一系列邮件，其中讨论了不同的话题。在商业方面，他们谈及了布利斯马的委任书，对美国远程医疗平台公司American Well的投资，五月的巴黎会议，卡塔尔会议和多哈论坛等内容。同时，在对话中还提到了时任美国驻中国大使。个人方面，亨特与德文讨论了该购买哪一款保时捷汽车。**](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30205729/54-Re_-Burisma.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30205729/54-Re_-Burisma.pdf)
 
-[点击下载PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30200754/E12-60-1.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30200754/E12-60-1.pdf)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30200830/%E6%88%AA%E5%B1%8F2020-10-31-%E4%B8%8A%E5%8D%8812.08.18.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30200932/%E6%88%AA%E5%B1%8F2020-10-31-%E4%B8%8A%E5%8D%8812.09.22.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30201007/%E6%88%AA%E5%B1%8F2020-10-31-%E4%B8%8A%E5%8D%8812.09.56.png)
 0
