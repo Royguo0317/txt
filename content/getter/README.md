@@ -13,6 +13,11 @@
 
 
 
+[GTV iOS v2.0 手机新版本发布  GTV v2.0 新版发布，全新的原生代码，专业的UI设计，更精简的功能，更流畅的体验。请到苹果商店（App Sto...](/content/getter/content/2020/10/5f9d9e40ad3f0f61d2a700a4.md)
+
+**郭文贵MILES** `2020-10-31T17:26:24`
+##
+
 [“Fight For Hong Kong” Official MV  《为香港而战》MV正式版  iTunes download(下载链接）:  🔗https...](/content/getter/content/2020/10/5f9d49f1ad3f0f61d2a54723.md)
 
 **郭文贵MILES** `2020-10-31T11:26:41`
@@ -156,10 +161,5 @@
 [10月18日 班农接受澳洲Skynews采访:《纽约邮报》曝光的第一封电邮显示亨特·拜登曾试图为乌克兰能源公司Burisma高管与其父乔·拜登-时任美国副总统安...](/content/getter/content/2020/10/5f8d332806847a4c65163ba7.md)
 
 **郭文贵MILES** `2020-10-19T06:33:12`
-##
-
-[10月18日澳洲Skynews采访班农，介绍亨特拜登电脑硬盘是如何到了朱利安尼及其律师的手里的，还有推特任凭针对川普总统的消息满天飞，却对合法媒体《纽约邮报》的...](/content/getter/content/2020/10/5f8d2b2806847a4c65163811.md)
-
-**郭文贵MILES** `2020-10-19T05:59:04`
 ##
 
