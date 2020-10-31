@@ -1,15 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登第三波: 硬盘邮件解密27 吉姆.拜登写信给亨特.拜登问对墨西哥石油企业Pemex是否感兴趣
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/504764/)
+## Warroom 452：闫丽梦博士回应霍普金斯大学南希博士所说，以及中共国疫苗不可信实际仍在临床实验三期
+` snow` [轉載自GNews](https://gnews.org/zh-hans/504885/)
 
-前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
+战友之家新闻译制组
+撰稿：GM64
 
-**亨特·拜登第三波：硬盘邮件解密**
 
-**吉姆.拜登写信给亨特.拜登，有一笔同墨西哥石油企业Pemex的交易，他希望尽快知道亨特是否感兴趣。**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30114943/43-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30115240/Capture43-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30115336/Capture43-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30115627/Capture43-3.jpg)
-[吉姆.拜登写信给亨特.拜登，有一笔同墨西哥石油企业Pemex的交易，他希望尽快知道亨特是否感兴趣。](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30115448/43-Oil-deal.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30115448/43-Oil-deal.pdf)
+
+•南希·康奈尔博士和罗伯特·加洛博士用质量很差的一些东西回应闫博士的第一份关于冠状病毒的报告。
+•闫博士表示不能相信中共国生产的冠状病毒疫苗，而且实际上冠状病毒疫苗仍在临床实验第三期。
 
 0

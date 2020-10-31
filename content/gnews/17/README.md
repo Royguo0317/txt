@@ -1,30 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登早知自己深陷中共圈套，却执意“行走钢丝”与邪魔共舞
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/505878/)
+## 中国能源集团、美国石油与天然气分公司和中国公民被控窃取商业机密
+` GM80` [轉載自GNews](https://gnews.org/zh-hans/506152/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30160131/Capture-18.jpg)图片来源：Steve Bannon War Room 10/29
-10月29日的班农作战室的推特贴出了一封在2018年3月26日由JiaQi Bao写给亨特·拜登的邮件。这份邮件的内容充分表明亨特·拜登清楚自己深陷在中共的圈套里。我想从以下几个方面来解读这份邮件背后的含义。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30175959/DOJ-20201029-1.jpg)
+[阅读原文](https://www.justice.gov/opa/pr/chinese-energy-company-us-oil-gas-affiliate-and-chinese-national-indicted-theft-trade-secrets)
 
-寄件人为JiaQi Bao，其真名为薄甜甜。她是薄熙来的私生女，由北京国际关系学院培训出来的高级间谍，精通英文，暗地里代表的是中共党内“江曾派”势力。她一直潜伏在习近平的白手套，华信能源CEFC公司董事局主席叶简明的手下，代表叶简明方面与拜登方面联络，并且共同在纽约设立了办公室。
+A federal grand jury has returned an indictment alleging corporate entities conspired to steal technology from a Houston-area oil & gas manufacturer, announced U.S. Attorney Ryan K. Patrick and Assistant Attorney General John C. Demers of the Department of Justice’s National Security Division.
 
-收件人为亨特·拜登。从信件内容来看，薄甜甜与亨特·拜登不仅是单纯的工作伙伴关系，两人很长一段时间私交非常好。并且薄甜甜也熟悉拜登家族的另一位重要成员乔·拜登的弟弟吉姆·拜登（JimBiden）。但是，亨特并不信任他的叔叔。所以他要求薄甜甜凡事要先跟他联系后才能告诉吉姆。
+美国司法部国家安全部检察长赖安·帕特里克（Ryan K.Patrick）和助理检察长约翰·C·德默斯（John C. Demers ) 宣布，联邦大陪审团巳经颁布了一份起诉书，指控一些实体企业合谋从休斯顿地区的一家石油天燃气制造商那里窃取技术。
 
-而在2018年3月1日，大陆财新网独家报道了华信能源的董事局主席叶简明被查的消息。笔者估计拜登家族也在2月底或3月初得知了此消息，亨特对薄甜甜的真实身份恍然大悟后，他开始故意疏远薄甜甜。故此，薄甜甜在信的开头提到办公室将被迫关闭的消息来自Mervyn，而非亨特，她表示非常震惊。同时她意识到自己正遭遇非常可悲的处境，却仍旧怀抱一丝希望可以将生意改头换面，继续保持与拜登家族的关系。薄甜甜一再强调过去两人的交好，说自己还欠亨特一次家庭式的中国晚餐。在信的结尾部分，薄甜甜仍存幻想希望亨特不要不理睬她，把她当路人对待。
+Jason Energy Technologies Co. (JET) in Yantai, People’s Republic of China; Jason Oil and Gas Equipment LLC (JOG) USA and Chinese national Lei Gao aka Jason Gao, 45, are charged with conspiracy, theft of trade secrets and attempted theft of trade secrets.
 
-信件中最关键部分就是薄甜甜再三嘱咐亨特有关“生意和金钱”方面的细节。首先，薄甜甜含蓄地说：“你处理完你必须处理的事情以后，让我们坐下来重新调整一下生意方面的事情。”薄甜甜这里的话语，显得非常意味深长。那么，亨特在叶简明被捕以后究竟需要处理什么事情呢？不言而喻，无非就是违法违章的金钱，文件等等。
+中华人民共和国烟台杰森能源技术有限公司 (JET) 、美国杰森石油和天然气设备有限责任公司(JOG) 和45岁的中国公民高磊 (Jason Gao) 被控共谋，盗窃商业机密和企图盗窃商业机密。
 
-薄甜甜花费了大量篇幅，大胆地规劝亨特收下“Hudson West“哈德逊·韦斯特的钱。她说，”你要想尽一切办法收下，能收多少就收多少。只有找到办法将这些钱转到美国合法账户里。不要担心有什么人说出来。总而言之，薄甜甜一直给亨特明示，“这是安全的钱，请记住就好，我什么都没有说过。”
+Gao previously resided in Houston but is now believed to be in China. A warrant remains outstanding for his arrest.
 
-根据参议员罗恩·约翰逊（Ron Johnson）和参议院查克·格拉斯力（Chuck Grassley）9月所发布的关于亨特·拜登公司海外业务往来的报告，在爱荷华州开设的一家名为“Hudson West“哈德逊·韦斯特公司，亨特于2017年9月在哈德逊·韦斯特公司开设了信贷额度。其信贷额度每月10万美元。参议院的报告称，哈德逊·韦斯特实际是隶属于CEFC华信能源的空壳公司。而在2018年3月22日，哈德逊·韦斯特公司向拜登的律师事务所Owasco电汇了100万美元。
+高以前居住在休斯顿，但现据信在中国。目前对他发出的逮捕令尚未得到执行。
 
-故此，这份邮件充分地显示：亨特.拜登明知自己收受的是来自中共不干净的钱，但是在贪婪和其父亲乔·拜登的利用下，他已经无法回头地只能选择继续行走钢丝，与邪魔共舞。
+Also charged in relation to the case is Robert Erford Jr., 41, Dayton, who worked for a Houston-area company. He previously pleaded guilty to conspiracy to commit trade secrets.
 
-撰稿：阿丽塔Alita【㊙️翻Gnews原创组】
+曾在一家休斯顿公司工作，现年41岁的俄亥俄州代顿市居民小罗伯特·埃尔福德（Robert Erford Jr.）也因涉及与此案有关而受到指控，他之前承认犯有合谋窃取商业机密罪。
 
-校对：心声
+On or about Nov. 7, 2019, Gao allegedly met with Erford at the JOG offices located in Houston. According to the indictment, Erford signed a consultancy agreement that Gao provided at that time, indicating Erford would work in China as a consultant to assist JOG in coiled tubing technology. Erford was to be $1,000 each day of a 15-day visit, according to the charges.
 
-（本文仅代表作者个人观点）
+在2019年11月7日前后，高据称曾在休斯顿的JOG办公室会见了埃尔福德。起诉书显示，埃尔福德当时签署了一份由高提供的咨询协议，确定埃尔福德将在中国担任顾问工作，协助JOG开发连续油管技术。根据起诉书，埃尔福德在为期15天的访问中每天的报酬为1000美元。
+
+This agreement allegedly also included a confidentiality provision.
+
+据信，该协议还包括一条保密条款。
+
+At that meeting, Erford was also provided a letter from the JET general manager inviting him to visit in order to have a technical exchange and discussion, according to the charges. That letter allegedly indicated a goal of helping to promote the company’s manufacturing efficiency, reduce machine failure and increase production capacity.
+
+根据起诉书上称，在那次会面中，埃尔福德还收到了一封JET总经理的邀请信，邀请他访问，以便进行技术交流和讨论。据称该信目的是帮助促进该企业提高生产效率、减少机器故障和提高生产能力。
+
+Without authorization, on or about Nov. 22, 2019, Erford allegedly transferred a victim company document that contained a trade secret from the United States to the China for JET’s benefit. The indictment further alleges that from approximately Nov. 25-29, 2019, Erford held meetings with Gao and JET officials at JET’s offices in China and its coiled tubing facilities. At those meetings, they allegedly discussed coiled tubing technology, including victim company proprietary technology, practices and procedures.
+
+在未经授权的情况下，2019年11月22日前后，埃尔福德为了JET的利益， 将一份包含受害公司商业机密的文件从美国传递到中国。起诉书还称，大约在2019年11月25日至29日，埃尔福德在JET的中国办公室及连续油管办事处与高和JET的管理层举行了几次会谈。据称，在那些会议上，他们讨论了连续油管技术，其中包括了受害公司的专有技术、做法和程序。
+
+The charges also allege authorities obtained evidence that Erford and Gao used encrypted messaging app WeChat in December 2019 to obtain, collect and copy victim company manufacturing information.
+
+指控还称有关部门获得了证据，证实埃尔福德和高在2019年12月使用微信的加密信息获取、收集和复制受害公司的制造信息。
+
+The corporate entities could be fined up to $5 million or three times the value of the stolen trade secret, whichever is greater. Gao faces the same potential fine as well as a possible prison sentence of up to 10 years.
+
+这些实体企业有可能被处以最高500万美元，或同等于被窃取的商业机密价值的三倍的罚款，以最高金额为限。高也可能面临同样的罚款和最高10年的监禁。
+
+The FBI conducted the investigation. Assistant U.S. Attorneys Carolyn Ferko and S. Mark McIntyre of the Southern District of Texas are prosecuting the case along with Trial Attorney William Mackie from the Department of Justice’s National Security Division’s Counterintelligence and Export Control Section.
+
+联邦调查局对此进行了调查。德克萨斯州南区调查局的美国助理检察官卡洛琳.佛寇（Carolyn Ferko） 和 迈克·麦金太尔（ S. Mark McIntyre ）与司法部国家安全司反间谍和出口管制科的审判律师威廉·麦凯（ William Mackie ）共同起诉了该案件。
+
+The charges contained in the indictment are only allegations.  A defendant is presumed innocent unless and until proven guilty beyond a reasonable doubt in a court of law.
+
+起诉书中的控告仅是指控。除非并且直到在法庭上无可辩驳地证实其有罪之前，否则被告将被视为无罪。
+
+*翻譯：【rainbow】校对：【Duojia】编辑：【GM80】
+战友之家玫瑰园小队出品*
 
 0

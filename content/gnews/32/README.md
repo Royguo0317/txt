@@ -1,33 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】粤港签署落实《粤港合作框架协议》2020年重点工作 林郑月娥加速香港内地化
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/505061/)
+## 【8】硬盘第三波烧脑风暴来袭！ 亨特密谋使用Burisma公司收购墨西哥石油公司Pemex邮件曝光！
+` GM01` [轉載自GNews](https://gnews.org/zh-hans/505585/)
 
-整撰：文燕
+在经历了近几天“小视频”“小图片”的洗礼，大家一定被吸足了眼球！现在真正的烧脑风暴来了！你准备好了吗？接下来铁一般的证据，山一般的证明逐一清晰展示了中美两国盗国贼对人类的威胁和伤害！对法律的无视！以及对女性的侮辱甚至奴役变态！他们的人性已完全丧失！
 
-覆核：文非
+其实硬盘中还有绝大部分的视频因涉及到极为敏感，极为不人道，极为残忍的画面无法播放，将随后再进行处理。
 
-据【香港电台新闻网】10月30日报道，行政长官林郑月娥以交换文本方式，与广东省省长马兴瑞签署落实《粤港合作框架协议》2020年重点工作，共同推进涵盖8大范畴的57项措施。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30122816/image002-3.jpg)林郑月娥与广东省长马兴瑞签署落实《粤港合作框架协议》2020年重点工作。
-政府发言人表示，8大范畴包括跨界基建及通关便利化、共建国际科技创新中心、促进现代服务业合作，以及推进教育、人才和青年合作等。
+现在将为大家呈现Burisma与亨特拜登和中共之间勾兑的铁一般的事实，包括文件和Email的往来，以及相关人物往来！希望全世界有良知的战友都来关注。如果这样的事情不被揭发，人类将全面走向黑暗！
 
-57项措施涉及研究完善港珠澳大桥跨境车辆通行及出入境政策，继续放宽香港服务业的准入限制，完善本港居民随迁子女义务教育入学、考试等政策，港人在广东省购房政策措施亦会改善等。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30122806/image004-3.jpg)（资料来源：香港电台网站中文新闻）
-战友点评：
-
-2020年重点工作内的57项措施，重点项目包括推动落实深圳湾口岸24小时通关、研究完善港珠澳大桥跨境车辆通行政策及有关出入境政策、优化落实便利香港居民在粤购房政策措施、推动旅游、医疗卫生、建筑等专业领域认可香港专业资格，以及建立健全疫情联防联控工作机制等。
-
-57项措施标志着中共去香港本土化的最辣措施，使香港更快地内地化。港共匪首林郑为求政治利益，不惜出卖香港价值观，将香港这颗东方之珠拱手送给魔鬼中共。
-
-以上观点仅代表笔者本人
-
-资料来源：香港政府新闻网
-
-[https://www.news.gov.hk/chi/2020/10/20201030/20201030\_174533\_440.html](https://www.news.gov.hk/chi/2020/10/20201030/20201030_174533_440.html)
-
-香港电台中文新闻
-
-[https://news.rthk.hk/rthk/ch/component/k2/1557565-20201030.htm?spTabChangeable=0](https://news.rthk.hk/rthk/ch/component/k2/1557565-20201030.htm?spTabChangeable=0)
-
-0
+[点击下载PDF文件](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30142534/E9-25-32_-1.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30142534/E9-25-32_-1.pdf)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30142855/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.27.34.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30142910/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.27.55.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144155/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.40.24.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144210/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.40.33.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144217/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.40.41.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144226/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.40.50.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144233/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.40.59.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144238/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.41.07.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144245/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.41.13.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144250/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.41.25.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144257/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.41.32.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144303/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.41.38.png)
+1+

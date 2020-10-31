@@ -1,17 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登第三波: 硬盘邮件解密26 3/6/2019 亨特的金钱运作方式
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/504539/)
+## 突发！连续关闭爆料革命战友账户后，推特道琼斯股指开盘暴跌20%
+` GM101` [轉載自GNews](https://gnews.org/zh-hans/504875/)
 
-前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
+美东时间10月30号上午，美国社交媒体大亨推特道琼斯股指开盘后一个小时内跌幅20%，单股股价减少超过10.7美元，刷新其历史单日最高跌幅记录。
 
-**亨特·拜登第三波：硬盘邮件解密** **3/6/2019 亨特的金钱运作方式**
+推特此前无理由封停了英雄科学家闫丽梦博士的账号，试图阻止闫博士关于“中共超限生物武器”报告的公开，配合背后势力继续掩盖病毒真相。推特甚至利用美国制度的“优势”封停过川普总统推特上的推文；封停了包括《纽约邮报》在内的媒体关于民主党总统候选人乔·拜登犯罪事实的报道。
 
-### 邮件：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110355/Capture-15.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110434/PDFtoJPG.me-07-4-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110455/PDFtoJPG.me-08-3-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110514/PDFtoJPG.me-09-3-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110536/PDFtoJPG.me-10-3-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110557/PDFtoJPG.me-11-3-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110653/PDFtoJPG.me-12-3-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110714/PDFtoJPG.me-13-3-scaled.jpg)
-[亨特的金钱运作方式](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110745/22%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-Word.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110745/22%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-Word.pdf)
+川普总统呼吁废除《通信规范法》第230条，该法规保护科技公司免于对用户及其在线服务上发布的内容承担责任，同时允许他们对用户及相关内容进行审核。Twitter等社交媒体大亨利用此法规的免责“优势”，以中共思维配合其背后势力无底限的压制管控新闻讯息，对美国发动了超限战。
 
-
+本次股指暴跌证明推特配合中共新闻言论审查，破坏言论自由、挑战美国立国之本的行为引发了美国人民的抵制，大批资金的撤出导致了推特股指暴跌，同时也让品牌形象遭到重创。
 
 0

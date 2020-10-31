@@ -1,19 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登第三波: 硬盘邮件解密29 2019年4月21日亨特·拜登答复德文·阿彻关于Burisma和渤海华美会议等事宜邮件
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/505745/)
+## 亨特·拜登 Finger Lakes 刺青背后的故事
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/506256/)
 
-前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
+作者：翼族
+校对/审核：Giselle
 
-**亨特·拜登第三波硬盘邮件解密**：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30183334/Picture38.png)图片来源：GTV.org，Gnews.org
 
-**2019年4月21日亨特·拜登回复德文.阿彻的邮件，回答关于Burisma相关信函，以及渤海华美会议等事**宜
+从最近曝光的亨特·拜登一系列性丑闻照片和视频中，人们可以看到亨特纵欲的人生和变态的内心世界。而其中一张亨特的自拍裸照，引起了很多人的关注，照片中亨特背部的刺青诡异的图案，和Finger Lakes（手指湖）非常吻合，似乎隐隐约约揭示了他深藏在心中的秘密。
 
-### 邮件：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30153242/PDFtoJPG.me-01-5-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30153215/PDFtoJPG.me-08-4-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30153305/PDFtoJPG.me-09-4-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30153349/PDFtoJPG.me-10-4-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30153415/PDFtoJPG.me-11-4-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30153439/PDFtoJPG.me-12-4-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30153459/PDFtoJPG.me-13-4-scaled.jpg)
-[亨特·拜登回复德文.阿彻的邮件，回答关于Burisma相关信函，以及渤海华美会议等事宜](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30153526/53-Re_-Burisma-2.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30153526/53-Re_-Burisma-2.pdf)
+手指湖位于纽约上州，安大略湖以南，由十多个大大小小的湖泊组成。其中Seneca湖的名字就出现在亨特最初入股渤海华美BHR公司的Rosemont Seneca LLC中，而Skaneateles湖的名字则出现在亨特与李祥生/王昕签订的借款合同以及后续BHR股东名单中（Skaneateles LLC），并且Skaneateles也是亨特母亲Neilia出生的小镇。由此也可以看出，手指湖，或者说母亲Neilia在亨特的内心世界中占有举足轻重的地位。
 
+亨特·拜登，全名Robert Hunter Biden，现在家喻户晓的亨特（Hunter）这个名字就来自于他的母亲。亨特的母亲原名Neilia Hunter，在西方文化中女性结婚后通常会改成夫姓，Hunter是她嫁给乔·拜登之前在娘家时的父姓。西方的父母们还经常会将祖辈或父辈的姓名放在他们新生孩子的姓名之中，而Neilia的父亲（亨特的外祖父）名字就是Robert Hunter。
 
+1972年12月18日，亨特的母亲Neilia和妹妹在一场车祸中丧生，当时两岁多的亨特和他的哥哥也在车里受了重伤，随后他和哥哥幸运地逃过了死神的召唤。而就在这不久之前，亨特的父亲乔·拜登当选成为美国历史上最年轻的参议员，从此开始了他长达47年的政治生涯。
 
-0
+联合国的幼儿心理研究表明：两岁是性格形成的重要时期。两岁儿童所受到的心灵上的伤害，可能会长期伴随着孩子。美国心理咨询师John Bradshaw提出过Inner Child（内在孩童）的观点，他通过自身体验和大量的案例总结出以下理论：当一个孩子的成长受阻，特别是愤怒、伤害的感情受到压抑时，心里就会有另一个愤怒、受伤的孩子和他一起慢慢长大。这个内在孩童会不由自主地污染到这个孩子长大成人后的种种行为，亨特的心里是不是也住着这么一个魔鬼孩童？我想答案是不言而喻的。
+
+正如《纽约邮报》报道中所说，在亨特放纵生活的背后，隐藏着一个痛苦的灵魂。当我回顾亨特母亲的这场离奇交通事故，以及事故之后的一些疑点时，不禁在想：亨特心中的这个魔鬼，是不是就源于他的父亲乔·拜登？
+
+根据维基百科对这次事故的描述，当时Neilia驾车去买圣诞树，车上有亨特以及他的哥哥和妹妹。Neilia沿霍克辛（Hockessin）的山谷路（Valley Road）向西行驶到与特拉华州7号公路的十字路口时，被一辆沿着特拉华州7号公路向北行驶的牵引卡车撞击后身亡。在后来的事故处理中，警方判定是Neilia错误地将车驶入了卡车的道路，而这可能是因为当时她回了头并没有看到驶来的卡车。在这个路口，有一个醒目的STOP停车标志。在美国，驾车者在STOP标志前停车有非常严格的规定，无论前方有没有车经过，只要有STOP的标志就必须要停。一般情况下这种不管不顾就贸然闯入对方道路的可能性非常小，更何况是车上载着三个孩子的母亲？
+
+在这次令人心碎的事故后，乔·拜登得到了很多美国民众的同情，另一方面也为他的政治形象加了分。然而，乔·拜登却在公开场合多次指称拖车司机柯蒂斯·邓恩（Curtis Dunn）事发当天午饭的时候喝了很多酒，醉酒才导致了车祸的发生。但是据2008年发表在新泽西Newark Post《纽瓦克邮报》的一篇报道，该拖车司机的女儿Pamela（住在Newark）要求乔·拜登因为他的这些不实言论进行公开道歉，这篇文章在乔·拜登宣布竞选2020年美国总统后又再次引起了很多新的关注，随后该文章的编辑发布声明：乔·拜登已经在2019年对他给Pamela女士的家庭造成的伤害做出了道歉。那乔·拜登为什么要在这件事情上说谎呢？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30183618/Picture39.png)
+关于这起交通事故，另外一种截然相反的说法：喝醉的是Neilia，她醉酒的原因是因为发现丈夫出轨，而出轨的对象正是乔.拜登现在的妻子Jill。这个传言是有迹可循的，乔·拜登曾经多次在公开场合称他和现在的妻子Jill是1975年认识的，但是很多证据都表明他们早在1972年乔·拜登竞选参议员的时候就已经认识。在Jill自己写的《Where The Light Enters》一书中，她就提到参加了1972年乔·拜登竞选参议员成功后的Party。其次，Jill的前夫Bill Stevenson也指称她是1972年乔·拜登竞选参议员时的工作人员，并且和乔·拜登发生了婚外情，这也是他们后来离婚的原因。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30183644/Picture40.png)图片来源：Jill Biden的推特截图
+另外， Jill在2020年8月19日的推特中写到，1975年她和乔·拜登第一次电话的那一天，乔跟她说“今晚我将在民主党大会上发言，希望你收听！”但很明显Jill在说谎，因为1975年并没有民主党大会，上一次开会是1972年，而下一次则是1976年。为什么乔.拜登和Jill夫妇不约而同地要在他们认识的时间上一再说谎？他们究竟要掩盖什么？Neilia到底是因为什么原因出车祸的？早逝的母亲对亨特有什么影响？亨特的背上为什么有手指湖的刺青？这一系列的疑问并没有得到当事人的回应，但是我们有理由相信这些问题都是相关的。
+
+随着硬盘中公布出来越来越多的证据，美国民众已经越来越看清楚乔·拜登是个彻头彻尾的伪君子，在公众媒体面前表现得一身正气，背地里却收取着中共贿赂，严重出卖美国人民的利益。在这样一个没有信仰的家庭里，正是因为有乔·拜登这样一个整天戴着假面具的父亲，亨特最后必然选择酒精、性和毒品来麻醉自己，并最终走向毁灭。下面这张早年拍摄的照片中，我们可以看到小亨特双眼的忧郁和迷茫，而旁边则是他兴高采烈的父亲，也许这正是拜登家庭的真实写照。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30183752/Picture41.png)图片来源：AP Photo/Sen. Biden’s office
+（文章内容仅代表作者个人观点）
+
+1+
