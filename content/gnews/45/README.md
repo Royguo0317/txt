@@ -1,17 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登第三波: 硬盘邮件解密26 3/6/2019 亨特的金钱运作方式
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/504539/)
+## 新中国联邦电视台“爆料灭共”第五期之拜登家族和中共金钱交易的录音证据
+` GM64` [轉載自GNews](https://gnews.org/zh-hans/504551/)
 
-前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
+供稿 新中国联邦电视台
 
-**亨特·拜登第三波：硬盘邮件解密** **3/6/2019 亨特的金钱运作方式**
+更多精彩请点击：[https://gtv.org/web/?videoid=5f9c1df4bd0d464fade0703a#/VideoPlay\_UI](https://gtv.org/web/?videoid=5f9c1df4bd0d464fade0703a#/VideoPlay_UI)
 
-### 邮件：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110355/Capture-15.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110434/PDFtoJPG.me-07-4-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110455/PDFtoJPG.me-08-3-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110514/PDFtoJPG.me-09-3-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110536/PDFtoJPG.me-10-3-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110557/PDFtoJPG.me-11-3-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110653/PDFtoJPG.me-12-3-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110714/PDFtoJPG.me-13-3-scaled.jpg)
-[亨特的金钱运作方式](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110745/22%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-Word.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110745/22%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-Word.pdf)
+2020年10月27日, 美国媒体《国家脉动》独家曝光一段亨特·拜登的录音，录音表明，亨特承认自己与中共间谍头目何志平、叶简明有合作关系，而且他的父亲乔·拜登对此是知情的。这段录音也从另一个角度佐证了，目前正在持续曝光的拜登家族与中共勾兑丑闻的真实性。
 
+在这段音频中，亨特拜登在电话里说，他的父亲乔拜登会把打给亨特的电话转给Eric也就是叶简明，亨特称Eric叶简明为“自己的搭档”。亨特还特别提到何志平为“我所代表的何志平”，并直接说何志平是中共间谍的头目，在他那价值5800万的公寓里面，有一笔40亿的交易，要建世界上最大的液化天然气港口。
 
+紧接着亨特还说纽约南区检查官亲自给他打电话，他最好的生意伙伴德文（Devon Archer）在没有告诉亨特的情况下，把亨特拜登列为刑事案件的证人，还把他父亲乔拜登也列入其中，但亨特的父亲乔拜登在本知情的状况下也没有告诉亨特事情的进展。
+
+这个录音透露出几个重要信息：
+
+1、亨特大概在2018年就与中共特务何志平、叶简明开展合作，依靠其父亲的政治影响力，出卖美国利益以换取个人利益。乔·拜登知道亨特与中共的交易，并参与其中。
+
+2、纽约南区联邦法院检察官曾就何志平与叶简明有关的刑事调查主动联系亨特·拜登。据「路德社」节目分析，纽约时报、纽约南区法院都与拜登家族勾兑，他们会及时把对民主党不利的案件的进展情况向拜登汇报，以便作出应对。
+
+亨特·拜登的这段音频，有力的佐证了硬盘门爆料的真实性，揭露了像纽约时报、纽约南区法院这些美国的媒体和司法部门，与拜登家族沆瀣一气，与中共在美国的代理人勾兑。随着硬盘门的发酵，还会有更惊人，更有力的证据，证明拜登家族的卖国行径。
 
 0

@@ -1,61 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中国能源集团、美国石油与天然气分公司和中国公民被控窃取商业机密
-` GM80` [轉載自GNews](https://gnews.org/zh-hans/506152/)
+## 在中共国 武汉一菜市场都可以践踏人权 剥夺中年百姓的生存权了吗？
+` shangshang` [轉載自GNews](https://gnews.org/zh-hans/506489/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30175959/DOJ-20201029-1.jpg)
-[阅读原文](https://www.justice.gov/opa/pr/chinese-energy-company-us-oil-gas-affiliate-and-chinese-national-indicted-theft-trade-secrets)
+作者：小妍说
 
-A federal grand jury has returned an indictment alleging corporate entities conspired to steal technology from a Houston-area oil & gas manufacturer, announced U.S. Attorney Ryan K. Patrick and Assistant Attorney General John C. Demers of the Department of Justice’s National Security Division.
+10月22日，湖北武汉，有40多年历史的吉庆街胜利菜场正在对标上海进行改造升级。但工地门前张贴的《入驻须知》上却写到：第一，入驻者必须接受3.0市场标准管理，有能力按照“统一标识、统一管理、统一结算、统一服务”要求规范作业和操作的企业；第二，必须接受超市化管理，售货员入驻上岗前接受付费的两周封闭式培训并考试合格，女售货员年龄不超过45岁，男售货员不超过50岁，持有有效期1年以上（含一年）的健康证书上岗。这个年龄规定让不少商贩议论纷纷，商贩们担心会失去生计。有商贩称，50岁正是打拼挣钱的时候，这样的规定不合理。不过从之前采访视频显示，面对“45岁、50岁的限制是否违法”的提问时，该市场的工作人员在电话中却回应称：“违反哪条国法？不觉得有风险吗？摊贩每天搬上搬下，你得考虑身体强度啊。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30204956/E89A0C92-5569-47A4-92F7-649E8363036C.png)
+随后，10月23日，武汉市江岸区官方微博发布《关于网传我区吉庆街胜利生鲜市场限制摊贩年龄的处置情况说明》称，经初步核实，改造升级后的胜利生鲜市场《合作入驻须知》，为市场运营方龙骧网（武汉）网络集团有限公司、中中市集（武汉）商业集团有限公司、青桥进出口（湖北）有限公司自行制定和张贴，是企业自主行为。江岸区市场监管局已约谈三家企业，要求企业不得违规设置不合理条件，并责令企业立即改正。同一天武汉市江岸区胜利菜场办公室一名工作人员称：前述《合作入驻须知》是菜场对外招商时发布的通告，菜场原有经营户不受年龄限制。对于为何在招商时限制售货员年龄，上述工作人员解释，“现在市场正在升级，超市里（招聘）肯定要年纪小的。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30204954/22CF6206-CCC0-4A69-96ED-D231BD66DA51.png)
+众所周知，无论哪个地方的菜市场，私人个体摊主一般都是年龄大的偏多，现在这样搞一刀切，年龄大的个体摊主该怎么办?这些人该何去何从？他们的生活该如何维持？况且，45岁、50岁可能孩子都还在上中学或者大学，正好是上有老下有小的年纪，卖个菜怎么就不行了？还是说在你们眼里这个年龄的人不配活在世上吗？70岁都能考驾照了，个体摊主过45就不能卖菜了吗？若不是生活艰难，谁愿意五六十岁了还起早贪黑的去卖菜？现在连努力生存的权利都要被剥夺了吗？更可气的是市场工作人员回应称：“违反哪条国法？不觉得有风险吗？摊贩每天搬上搬下，你得考虑身体强度啊。”首先这工作人员想的可真体贴啊，如果个体摊主不摆摊，那摊主孩子交学费是你给交吗？其次是这个“工作风险”具体是什么？摊贩无非就是要装卸货和售卖货。最后就算是不违规国法，这难道不是歧视性的规定吗？一个菜场都敢这样做，以后别的地方效仿怎么办？本以为在中共国，45岁以上的年纪，只是程序员和高级白领干不下去了，没想到连卖菜的资格也被剥夺了。一句“工作风险”，轻轻松松地扼杀了中年人的谋生之路。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30205024/456ADB0D-091F-4655-8A69-2AB9D53E05F2.png)
+这规定太荒谬了，那菜场管理人员年龄是否也有同等待遇？同理可得：是不是有搬运货物的男50岁以上和女45岁以上的公务员、领导是不是都应该下岗。一个即将步入老龄化社会的国家设置这种规定纯属有病，剥夺了最底层百姓生存的权利还振振有词。还是说要像朝鲜看齐呢？供销社菜场版吗？以后营业员都只能要求30岁以内年轻貌美身材好的女子了，因为都要变成国营。菜场也要变成国营的，卖菜也不是你想卖就能卖的了。这可真是形式主义根深蒂固！扯淡永无止境！
 
-美国司法部国家安全部检察长赖安·帕特里克（Ryan K.Patrick）和助理检察长约翰·C·德默斯（John C. Demers ) 宣布，联邦大陪审团巳经颁布了一份起诉书，指控一些实体企业合谋从休斯顿地区的一家石油天燃气制造商那里窃取技术。
+GNEWS之前文章：
 
-Jason Energy Technologies Co. (JET) in Yantai, People’s Republic of China; Jason Oil and Gas Equipment LLC (JOG) USA and Chinese national Lei Gao aka Jason Gao, 45, are charged with conspiracy, theft of trade secrets and attempted theft of trade secrets.
+近期多名中共高官离奇死亡 [https://gnews.org/zh-hans/435659/](https://gnews.org/zh-hans/435659/)
 
-中华人民共和国烟台杰森能源技术有限公司 (JET) 、美国杰森石油和天然气设备有限责任公司(JOG) 和45岁的中国公民高磊 (Jason Gao) 被控共谋，盗窃商业机密和企图盗窃商业机密。
+中石油员工李晓飞多年实名举报公司党员[https://gnews.org/zh-hans/441095/](https://gnews.org/zh-hans/441095/)
 
-Gao previously resided in Houston but is now believed to be in China. A warrant remains outstanding for his arrest.
+中共一男子炫耀包养幼女 [https://gnews.org/zh-hans/441183/](https://gnews.org/zh-hans/441183/)
 
-高以前居住在休斯顿，但现据信在中国。目前对他发出的逮捕令尚未得到执行。
-
-Also charged in relation to the case is Robert Erford Jr., 41, Dayton, who worked for a Houston-area company. He previously pleaded guilty to conspiracy to commit trade secrets.
-
-曾在一家休斯顿公司工作，现年41岁的俄亥俄州代顿市居民小罗伯特·埃尔福德（Robert Erford Jr.）也因涉及与此案有关而受到指控，他之前承认犯有合谋窃取商业机密罪。
-
-On or about Nov. 7, 2019, Gao allegedly met with Erford at the JOG offices located in Houston. According to the indictment, Erford signed a consultancy agreement that Gao provided at that time, indicating Erford would work in China as a consultant to assist JOG in coiled tubing technology. Erford was to be $1,000 each day of a 15-day visit, according to the charges.
-
-在2019年11月7日前后，高据称曾在休斯顿的JOG办公室会见了埃尔福德。起诉书显示，埃尔福德当时签署了一份由高提供的咨询协议，确定埃尔福德将在中国担任顾问工作，协助JOG开发连续油管技术。根据起诉书，埃尔福德在为期15天的访问中每天的报酬为1000美元。
-
-This agreement allegedly also included a confidentiality provision.
-
-据信，该协议还包括一条保密条款。
-
-At that meeting, Erford was also provided a letter from the JET general manager inviting him to visit in order to have a technical exchange and discussion, according to the charges. That letter allegedly indicated a goal of helping to promote the company’s manufacturing efficiency, reduce machine failure and increase production capacity.
-
-根据起诉书上称，在那次会面中，埃尔福德还收到了一封JET总经理的邀请信，邀请他访问，以便进行技术交流和讨论。据称该信目的是帮助促进该企业提高生产效率、减少机器故障和提高生产能力。
-
-Without authorization, on or about Nov. 22, 2019, Erford allegedly transferred a victim company document that contained a trade secret from the United States to the China for JET’s benefit. The indictment further alleges that from approximately Nov. 25-29, 2019, Erford held meetings with Gao and JET officials at JET’s offices in China and its coiled tubing facilities. At those meetings, they allegedly discussed coiled tubing technology, including victim company proprietary technology, practices and procedures.
-
-在未经授权的情况下，2019年11月22日前后，埃尔福德为了JET的利益， 将一份包含受害公司商业机密的文件从美国传递到中国。起诉书还称，大约在2019年11月25日至29日，埃尔福德在JET的中国办公室及连续油管办事处与高和JET的管理层举行了几次会谈。据称，在那些会议上，他们讨论了连续油管技术，其中包括了受害公司的专有技术、做法和程序。
-
-The charges also allege authorities obtained evidence that Erford and Gao used encrypted messaging app WeChat in December 2019 to obtain, collect and copy victim company manufacturing information.
-
-指控还称有关部门获得了证据，证实埃尔福德和高在2019年12月使用微信的加密信息获取、收集和复制受害公司的制造信息。
-
-The corporate entities could be fined up to $5 million or three times the value of the stolen trade secret, whichever is greater. Gao faces the same potential fine as well as a possible prison sentence of up to 10 years.
-
-这些实体企业有可能被处以最高500万美元，或同等于被窃取的商业机密价值的三倍的罚款，以最高金额为限。高也可能面临同样的罚款和最高10年的监禁。
-
-The FBI conducted the investigation. Assistant U.S. Attorneys Carolyn Ferko and S. Mark McIntyre of the Southern District of Texas are prosecuting the case along with Trial Attorney William Mackie from the Department of Justice’s National Security Division’s Counterintelligence and Export Control Section.
-
-联邦调查局对此进行了调查。德克萨斯州南区调查局的美国助理检察官卡洛琳.佛寇（Carolyn Ferko） 和 迈克·麦金太尔（ S. Mark McIntyre ）与司法部国家安全司反间谍和出口管制科的审判律师威廉·麦凯（ William Mackie ）共同起诉了该案件。
-
-The charges contained in the indictment are only allegations.  A defendant is presumed innocent unless and until proven guilty beyond a reasonable doubt in a court of law.
-
-起诉书中的控告仅是指控。除非并且直到在法庭上无可辩驳地证实其有罪之前，否则被告将被视为无罪。
-
-*翻譯：【rainbow】校对：【Duojia】编辑：【GM80】
-战友之家玫瑰园小队出品*
+新闻链接：[https://news.163.com/20/1023/18/FPL3RM4T0001899O.html](https://news.163.com/20/1023/18/FPL3RM4T0001899O.html)
 
 0

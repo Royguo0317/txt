@@ -1,22 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大依法惩贼 扫黄遛狗 10月29日跟进报道
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/504414/)
+## 亨特·拜登第三波: 硬盘邮件解密26 3/6/2019 亨特的金钱运作方式
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/504539/)
 
-*温哥华战友之家 文敏 西山大姐 图片来源：一直在关注、 Mia笑咪咪
-校对 文锦 上传 WJ*
+前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
 
-10月29日，扫黄遛狗第46天，今日阴雨绵绵，战友们从四面八方集结在黄河边家门前，进行每日遛狗活动。还有7天，黄狗必须去法庭回应战友们对他的法律诉讼，黄狗在其直播中尽管百般压制自己，但是还是能强烈感受到他的气极败坏。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30102400/10301-scaled.jpg)
-几天来，遛狗现场时不时会发生一些蹊跷的事。比如今天，下午2点30分左右，来了一个警察，接着两个自称《环球邮报》的记者来到抗议现场采访。一会儿黄狗岳母出来经过战友抗议现场时，那个警察拿着手机准备拍照，如果此刻战友们跟黄狗岳母发生口角，那警察就可以以此理由终止我们的抗议，并且可以作为证据呈给法庭。战友们整个过程非常理性，没有让对方抓住任何把柄。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30102420/10307.jpg)
-那两位记者采访时设计了许多圈套，如：“你们知道郭文贵吗？”、“你们抗议行动有负责的人吗？”、”你们抗议的目的是什么？“等问题。根据农场的安排，北京人在北美非常完美地回答了他们的提问，巧妙地回避了记者设计的圈套，黄狗的阴谋没有得逞。
+**亨特·拜登第三波：硬盘邮件解密** **3/6/2019 亨特的金钱运作方式**
 
-三年来黄狗肆意在网络上诬陷我同胞、构陷我战友、造谣中伤郭先生及我们美丽勇敢的闫丽梦博士，甘心充当CCP走狗。现在谁选择与CCP站在一边，谁就是人类的公敌，必会受到人类的审判。
+### 邮件：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110355/Capture-15.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110434/PDFtoJPG.me-07-4-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110455/PDFtoJPG.me-08-3-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110514/PDFtoJPG.me-09-3-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110536/PDFtoJPG.me-10-3-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110557/PDFtoJPG.me-11-3-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110653/PDFtoJPG.me-12-3-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110714/PDFtoJPG.me-13-3-scaled.jpg)
+[亨特的金钱运作方式](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110745/22%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-Word.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30110745/22%E5%8F%B7%E9%82%AE%E4%BB%B6%E7%BF%BB%E8%AF%91-%E4%B8%AD%E8%8B%B1%E6%96%87%E7%89%88-Word.pdf)
 
-几天来，响应温哥华战友之家的号召，战友们扫黄遛狗之余，全力转发各种信息，以配合新中国联邦take down CCP，不会转发信息的战友向其他战友学习，在手机上学习下载，场景令人感动。反观黄狗及其他伪类欺民贼，在直播中公开内讧，让人耻笑，既无追求正义之举，又让人不耻于其人品，CCP 也只能收买这些拉圾充当走狗。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30102606/30306-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30102502/10304-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30102512/10305-scaled.jpg)
-46天的扫黄遛狗，农场对战友的支持与关爱，田野之子、西山大姐等战友们精心准备的美食，也让战友们倍感温暖。在决战时刻，战友们同心协力，按照农场要求转发各种信息，将一颗颗正义的子弹射向CCP！
+
 
 0

@@ -1,15 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登第三波: 硬盘邮件解密27 吉姆.拜登写信给亨特.拜登问对墨西哥石油企业Pemex是否感兴趣
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/504764/)
+## Warroom 458：王岐山私生女王昕是渤海华美借给亨特拜登新的签字借款人 渤海华美整个购买计划是为中共军队
+` snow` [轉載自GNews](https://gnews.org/zh-hans/504768/)
 
-前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
+战友之家新闻译制组
+撰稿：GM64
 
-**亨特·拜登第三波：硬盘邮件解密**
 
-**吉姆.拜登写信给亨特.拜登，有一笔同墨西哥石油企业Pemex的交易，他希望尽快知道亨特是否感兴趣。**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30114943/43-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30115240/Capture43-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30115336/Capture43-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30115627/Capture43-3.jpg)
-[吉姆.拜登写信给亨特.拜登，有一笔同墨西哥石油企业Pemex的交易，他希望尽快知道亨特是否感兴趣。](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30115448/43-Oil-deal.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30115448/43-Oil-deal.pdf)
+
+王岐山的私生女王昕女士是渤海华美借款给亨特·拜登的放款人，这件事不仅仅是美国受到中共的破坏，很多华尔街家族有处于骗局中的风险。最重要的是中共通过这家公司窃取美国的军事技术。
 
 0

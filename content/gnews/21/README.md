@@ -1,15 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【8】硬盘第三波烧脑风暴来袭！ 亨特密谋使用Burisma公司收购墨西哥石油公司Pemex邮件曝光！
-` GM01` [轉載自GNews](https://gnews.org/zh-hans/505585/)
+## 决战13天：重磅！亨特拜登中国行，刘呈杰代持者被爆出
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/505697/)
 
-在经历了近几天“小视频”“小图片”的洗礼，大家一定被吸足了眼球！现在真正的烧脑风暴来了！你准备好了吗？接下来铁一般的证据，山一般的证明逐一清晰展示了中美两国盗国贼对人类的威胁和伤害！对法律的无视！以及对女性的侮辱甚至奴役变态！他们的人性已完全丧失！
+- 编辑：文顺
 
-其实硬盘中还有绝大部分的视频因涉及到极为敏感，极为不人道，极为残忍的画面无法播放，将随后再进行处理。
 
-现在将为大家呈现Burisma与亨特拜登和中共之间勾兑的铁一般的事实，包括文件和Email的往来，以及相关人物往来！希望全世界有良知的战友都来关注。如果这样的事情不被揭发，人类将全面走向黑暗！
+10月30日，爆料革命《路德社》解析亨特拜登15年中国之行前与Francis Person的沟通邮件，爆出中共与拜登家族特殊的利益关系，惊现习近平私生子刘呈杰身影。
 
-[点击下载PDF文件](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30142534/E9-25-32_-1.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30142534/E9-25-32_-1.pdf)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30142855/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.27.34.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30142910/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.27.55.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144155/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.40.24.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144210/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.40.33.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144217/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.40.41.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144226/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.40.50.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144233/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.40.59.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144238/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.41.07.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144245/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.41.13.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144250/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.41.25.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144257/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.41.32.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144303/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.41.38.png)
-1+
+15年7月28日，Francis Person发送邮件邀请亨特·拜登去中国游玩，由张博及其家人接待。据路德社披露，Francis Person在2009-2014年是乔·拜登的特殊助理和顾问，而张博的母亲邵景兰是华锐世纪集团董事长，其岳父刘赐贵是现任十九届中央委员海南省委书记，而刘则是习近平私生子刘呈杰的代持者，张博则负责习近平女儿习明泽在美的安保及生活。张博通过Francis Person牵线，与亨特·拜登达成合作，而张博背后正是CCP。
+
+据路德社分析，此次亨特·拜登中国之行期间，Francis正在洽谈NBA湖人队到沈阳比赛的事宜。湖人队作为NBA的旗帜之一，拿下湖人队再拿下NBA，也就拿下了好莱坞，从而利用NBA、好莱坞的巨大影响力，来影响美国甚至全球的争执，这便是CCP的终极目标。
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30150034/PHOTO-2020-10-31-00-34-46.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25143553/image0-101.jpg)喜西农场官方Parler二维码，敬请关注！
+
+0

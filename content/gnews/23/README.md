@@ -1,22 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特拜登的重生之路
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/505500/)
+## 【8】硬盘第三波烧脑风暴来袭！ 亨特密谋使用Burisma公司收购墨西哥石油公司Pemex邮件曝光！
+` GM01` [轉載自GNews](https://gnews.org/zh-hans/505585/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24064746/WhatsApp-Image-2020-10-24-at-15.08.49.jpeg)
-作者：康州农场-GTalk心语堂
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30133938/WhatsApp-Image-2020-10-31-at-01.27.14.jpeg)图像来源：https://abcnews.go.com/Politics/exclusive-hiding-plain-sight-hunter-biden-defends-foreign/story?id=66275416
-亨特拜登最近火了，一把火把亨特拜登及其家庭伦殇烧成灰烬，坑爹的把他老子乔拜登积攒的多年政治资本也一起烧了；这还没完，其父在民主党、共和党的多年黑网也因他一并拔出；更有甚者，连同号称司法独立的司法机关多年肮脏也一同暴露出来。亨特拜登有没有想过：自己只是乔拜登的一粒棋子，为乔拜登火中取钱，为美国两党渣子奔走，为政府沼泽黑幕献身？纵观爆料革命信息，我们不难发现亨特拜登不是这上述黑暗世界的因，他只是这个黑暗的果。
+在经历了近几天“小视频”“小图片”的洗礼，大家一定被吸足了眼球！现在真正的烧脑风暴来了！你准备好了吗？接下来铁一般的证据，山一般的证明逐一清晰展示了中美两国盗国贼对人类的威胁和伤害！对法律的无视！以及对女性的侮辱甚至奴役变态！他们的人性已完全丧失！
 
-亨特拜登火了，他因毒品、淫乱、犯罪火了；家里家外的女人女孩一锅端。凡是被他性侵过的女孩，凡是被他电脑曝光的裸女，凡是看见自己家女孩女人被糟蹋的，心里想到的只能是一句话：亨特拜登，你还是滚回地狱吧！
+其实硬盘中还有绝大部分的视频因涉及到极为敏感，极为不人道，极为残忍的画面无法播放，将随后再进行处理。
 
-亨特拜登火了，他的众多公司和合伙人们也跟着火了，尤其是垂帘听政的乔拜登也是火的不要不要的，用不完的钞票都不能再形容他们的富有。吊鬼的是，每一笔交易的背后操纵者都是中共。比如说，拜登家族与乌克兰天然气公司的邮件中，我们看见乔拜登，一个神的角色，以美国老大的姿态摆平了乌克兰，俄罗斯和东欧，促使了中俄30年大单。交易的背后分赃的有欧洲国家的老大们，中共黑帮老大；乔当然不会把自己的名字放在受惠者中，让亨特拜登出面，把巨额洗入腰包，顺便用钱绑上几个美国国内大佬的子孙们。朱利安尼对整个事件的调查已经完成了证据链，这些一条链子上的蚂蚱们多么希望这个证据链断掉，亨特拜登就是关键的一环。难道他们不在想绞死亨特拜登以求自保吗？
+现在将为大家呈现Burisma与亨特拜登和中共之间勾兑的铁一般的事实，包括文件和Email的往来，以及相关人物往来！希望全世界有良知的战友都来关注。如果这样的事情不被揭发，人类将全面走向黑暗！
 
-亨特拜登火了，火得让人不安，烧得政府机关曾经分赃的官员们心神不宁。他们一边绞尽脑汁分散国人的注意力，一边捂盖子。例如：FBI老大克里斯朵夫瑞在收到亨特拜登的电脑以后，其中亨特拜登的犯罪事实即可定罪，瑞先生恁是装作没事，没有调查，没有起诉；拼着老命做同谋。一个多年从政，多年从事法律工作的人士，不够敬业已经不能评价他对于千万人交托的国家重任的亵渎！这个事件暴露了他，原来他也是中共黑网中的一个毒蜘蛛。一个和乔拜登一样被中共收买的奴隶，一个为中共主子效力的奴才。瑞与中共的私下交易，亨特拜登是参与者也是知情人。难道克里斯朵夫瑞不想着吊死亨特拜登让自己脱钩吗？
-
-亨特拜登曾因不堪心理重负，吸毒成瘾，放纵兽欲；他的罪孽在世界各地曝光之时，他却消失了。作为观火者，我们不禁纳闷：亨特拜登去哪了？不会此时进了戒毒所吧？还是大彻大悟进山修行去了？还是被毒蜘蛛们绑架或毒害了？
-
-我们对亨特拜登也有着最后的猜测或希望，就是希望他已经放下屠刀“立志”成佛：投诚朱利安尼等正义之师，做污点证人；一洗旧事龌龊，开启重生之路。
-
-0
+[点击下载PDF文件](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30142534/E9-25-32_-1.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30142534/E9-25-32_-1.pdf)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30142855/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.27.34.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30142910/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.27.55.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144155/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.40.24.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144210/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.40.33.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144217/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.40.41.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144226/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.40.50.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144233/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.40.59.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144238/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.41.07.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144245/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.41.13.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144250/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.41.25.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144257/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.41.32.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30144303/%E6%88%AA%E5%B1%8F2020-10-30-%E4%B8%8B%E5%8D%886.41.38.png)
+1+
