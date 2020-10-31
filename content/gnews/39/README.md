@@ -1,21 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳喜农场大决战全英文直播240万在线体会
-` GM06` [轉載自GNews](https://gnews.org/zh-hans/509427/)
+## 亨特·拜登第三波: 硬盘邮件解密36 2014年5月13日律师希瑟.金写邮件给瓦迪姆.波扎尔斯基关于媒体对于亨特.拜登的公关反应
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/509415/)
 
-作者：澳喜农场 喜妈
+前两波大家饱了眼福了，第三波请大家认真思考，动动脑子，大脑风暴一下。铁一般的证据，山一般的事实，来证明这些中美两国的盗国贼，对人类的威胁和伤害，对法律的无视！丧失人性的变态之后，对女性完全如奴役！虽然我们有绝大多数的视频，因为涉及到敏感、极为不人道、极为残忍的内容，现在暂时不播放，稍后再播。先放出“Burisma”这个公司和中共之间勾兑，和亨特拜登之间的勾兑。这种铁一般的事实，这些文件和Email的往来，和相关文件和人，希望全世界有良知的战友来看一看。如果这样的事情，不被揭发，人类将全面走向黑暗！
 
-今天“澳喜农场”乘胜追击，继续以精干团队，发扬决战精神，今天以全英文直播方式收获一次240万的在线收看人数，取得了又一次的突破。今天的直播，参与的人员有安红、喜妈、蓝心、考拉和城城。我们以灵活的方式和变通的方案，并以机动和即兴的表达达到了比较好的效果。我想以自己在一线参与的成员，对此分享一下体会。
+**亨特·拜登第三波：硬盘邮件解密**
 
-首先，我们在内容上，是分成了严肃、活泼和调节内容三部分。严肃内容是宣传爆料革命的内容和爆料革命团队对硬盘门丑闻事件的深度分析。活泼内容是丑闻和一些爆料。调节内容是爆料革命歌曲、外界的相关反馈和留言区互动。
-
-其次，我们在同伴的合作方式上，按照灵活、方便和机动的方式进行。灵活的方式是指不限于一定是某位成员固定分工，可能一人都是身兼数职。方便的实行就是，一定从每个人的直播方式与个性出发，给出一个基本原则，在爆料革命的框架下，有底线有原则，不出格就好，大家自由发挥。机动的方面就是根据现场的情况，大家都发挥和周转，平衡直播的各个环节。
-
-第三，我们在今天的直播中，根据新的情况又发展出全场英文下的中文阶段性跟进和解说。这个原因就是我们目前来到G-TV的观众分为两类，一部分是华人群体，一部分是西人观众。我们不会因为全英文的直播，对西方社会的强化播放分享，而放掉了进入频道的华人观众。而且我们不断地对两边的观众都尊重和平衡，效果非常好。华人观众喜欢我们阶段性地中文解说补充。英语好的华人观众，也喜欢两种版本都兼顾到，毕竟还有部分华人观众是喜欢英语但是又不能全部听懂的。而西人朋友因为有全场英文解说，即使中途有阶段性的中文解说，他们有耐心等待。这样操作完全不影响我们的直播进程和效果。
-
-第四，全英文直播还有一点就是，因为来英文频道的不仅是美国人，因此，我们扩大了资讯涉及的范围。比如，安红战友对澳洲情况比较熟悉，就发散自己的澳洲CCP的渗透。我因为自己从不关心政治，接触爆料革命才因为了解真相和事实而从震惊当中觉醒，而走向争取正义。并提供了我的欧洲朋友美洲朋友的个人角度的反馈。蓝心也从他自己从东南亚的角度分析了CCP的渗透等。我们的直播给来自世界各地的观众一个特别广阔的CCP渗透画卷。这是非常有意义的。
-
-因此，基于以上的体会，我们认为，全英文直播虽然具有特别挑战，也是很有难度，但是它的影响力却能延伸到西方世界和更多的文化圈。它起着让更多华人社会之外的人了解爆料革命；了解华人的正义争取背景，有了新中国联邦的基本概念。当然这些资讯也让他们在把爆料革命资讯带给自己文化与社区的时候，也达到了更新观念的价值。尤其在这个特殊阶段，具有非常重要的战斗意义和不可忽视的份量。l
+**2014年5月13日律师希瑟.金写邮件给瓦迪姆.波扎尔斯基关于媒体对于亨特.拜登的公关反应，Burisma集团董事会顾问波扎尔斯基在邮件说：“Burisma的人当然是从未经过副总统及其工作人员。”**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31103607/Capture9-1-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31100937/Capture9-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31101527/Capture9-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31101606/Capture9-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31105459/Capture9-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31105534/Capture9-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31105544/Capture9-9-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31105554/Capture9-10.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31105608/Capture9-11.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31105837/Capture9-13.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31105849/Capture9-14.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31105902/Capture9-15.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31105936/Capture9-16.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31105948/Capture9-17.jpg)
+[2014年5月13日律师希瑟.金写邮件给瓦迪姆.波扎尔斯基关于媒体对于亨特.拜登的公关反应，Burisma集团董事会顾问波扎尔斯基在邮件说：“Burisma的人当然是从未经过副总统及其工作人员。”](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31110206/9-V4.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31110206/9-V4.pdf)
 
 0
