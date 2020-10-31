@@ -1,35 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《拦截》（The Intercept）拒登批评拜登文章　普立兹奖美国记者格林华德（Glenn Greenwald）辞职
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/507805/)
+## 【国内快讯】中共驻各国使馆接连发布返华通知，意为回收特务？
+` shangshang` [轉載自GNews](https://gnews.org/zh-hans/507859/)
 
-整撰：文燕
+内新闻/素材：鹰(文言)    校对：雅典娜的圣斗士(沙加)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31012002/0CB3C4F6-8688-4418-B6E1-B935CF632DA5.jpeg)
+新京报10月30日报道，继驻美国、英国、荷兰、意大利、瑞士、芬兰、丹麦、波兰、罗马尼亚、泰国、俄罗斯和德国等之后，中共驻法大使馆发布赴华通知，要求11月6日起中外籍乘客搭乘航班前需提供48小时内双阴性证明才能返回中国。
 
-审核：MY
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31010745/image001-21.png)美国记者格林华德（Glenn Greenwald）（图片来源：美联社数据图片）
-曾获普立兹奖的美国记者格林华德（Glenn Greenwald）表示，《拦截》新闻网站拒绝刊登他批评民主党总统候选人拜登的文章，他因此辞职。 53岁的格林华德，是率先报道斯诺登（Edward Snowden）披露美国政府大规模监控计划的记者之一。 《卫报》的有关报道，获得2014年普立兹奖最高荣誉的公共服务奖。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31010808/image003-14.png) 图片：格林华德宣布辞职。![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31010717/image005-4.png)图片：《拦截》发表格林华德辞职声明。
-据【众新闻】10月30日报道，格林华德2013年离开英国《卫报》后，与两名记者共同创立调查新闻网站《拦截》（The Intercept）。格林华德早前在网上贴文表示：「今天，我向我于2013年与斯加希尔及保托拉斯联合创立的《拦截》，以及其母公司First Look Media提出辞职」。
+1、搭乘航班前需提供48小时内的核酸检测阴性证明和血清特异性IgM抗体检测阴性证明，即11月6日开始实施，则11月4日就需开始检测。
 
-格林华德指出辞职原因：《拦截》编辑违反合约赋予我编辑自由的权利，审查我这星期写的一篇文章并拒绝刊登，除非我删除批评民主党总统候选人拜登的所有段落。所有参与此次压制行动的《拦截》在纽约的编辑，都强烈支持拜登这位候选人」（the final, precipitating cause is that The Intercept’s editors, in violation of my contractual right of editorial freedom, censored an article I wrote this week, refusing to publish it unless I remove all sections critical of Democratic presidential candidate Joe Biden, the candidate vehemently supported by all New-York-based Intercept editors involved in this effort at suppression）。
+2、需经第三国中转人员，在法国第一次核酸检测和血清IgM抗体检测后，在中转国需进行第二次“双阴检测”，并分别向驻法和中转国使领馆申领带“HS”标识的绿色健康码或健康状况声明书。
 
-格林华德说，被审查的稿件，是根据最近透露的电邮及目击者的证供，对拜登的行为提出批评性的质疑（the censored article, based on recently revealed emails and witness testimony, raised critical questions about Biden’s conduct) 。格林华德在辞职声明附有他撰写的该篇文章以及《拦截》编辑给他的电邮。
+此次中共驻外使领馆的统一行动，始于驻美使馆（时间自美西时间2020年11月6日0时起），加上48小时内的双阴证明，此次大规模的撤离行动时间正是在美国大选结果公布后。虽然中共名义上称为了阻止疫情跨境传播，但事实绝非如此，中共驻日使馆9月9日发布通知要求25日起，日本赴华航班人员需提供3日内核酸阴性通知。如果单纯从遏制疫情传播，减少境外输入而言，中共驻各国使馆应在同期间发布类似通知。再者，欧洲各国CCP病毒第二波爆发以来，于日前达到单日新增最大值，若考虑“封关禁入”因素，中共也应在一周前发布类似通知，更何况此次“撤离行动”规模超前，涵盖亚洲、欧洲、北美洲，几乎遍及中共蓝金黄的各国。
 
-《拦截》其后发表声明，指格林华德要求对他发表的文章有绝对的决定权，又指「他相信所有不同意他的人都是腐败，所有人编辑他的文字都是审查」。声明又说，「现在必须清楚说明，我们的目标是编辑他的文稿，以保证它是准确及公平」，「他指控我们有政治偏见，但他是企图回收使用一个政治阵营的可疑指控，特朗普阵营，以及把这些洗成像新闻」。
+无论是中共此次驻外使馆统一行动的时间，还是起始时间均为11月6日（美国大选后），均表明此次行动时间仓促且被迫无奈。结合路德社近几天的爆料，不断披露出中共长期在外的各种特务人员，更直接点出习包子已经慌恐不安、四处求计，针对此次“撤离行动”，可以推测为，美国大选后大局已定，美国和全球灭共力量全面掌权，而出于对在外特务安全和防泄密需要，更为了防止其转做污点证人指证，中共只能第一时间撤离相关人员，便于控制人身甚至灭口。
 
-战友点评：
+新闻来源：
 
-格林华德辞职《拦截》（The Intercept）这件事上，标志了爆料革命路德社揭露「三块硬盘」事实真相的威力，爆料革命唤醒了越来越多有独立判断能力的人。
+[http://www.bjnews.com.cn/news/2020/10/30/783127.html](http://www.bjnews.com.cn/news/2020/10/30/783127.html)
 
-有良知有远见的记者如格林华德认识到报道事实才是他们生存之道，这些坚守媒体道义的媒体人必定能成为有良知媒体报道真相的领头羊。
+[https://news.sina.com.cn/c/2020-10-31/doc-iiznctkc8622569.shtml](https://news.sina.com.cn/c/2020-10-31/doc-iiznctkc8622569.shtml)
 
-以上观点仅代表笔者本人
-
-资料来源：众新闻\ 立场新闻
-
-[https://www.hkcnews.com/article/35186/%E6%A0%BC%E6%9E%97%E8%8F%AF%E5%BE%B7glenn\_greenwald-%E3%80%8A%E6%94%94%E6%88%AA%E3%80%8Bthe\_intercept-%E6%8B%9C%E7%99%BB-35191/%E7%B6%B2%E7%AB%99%E6%8B%92%E7%99%BB%E6%89%B9%E8%A9%95%E6%8B%9C%E7%99%BB%E6%96%87%E7%AB%A0-%E6%99%AE%E7%AB%8B%E8%8C%B2%E7%8D%8E%E8%A8%98%E8%80%85%E8%BE%AD%E8%81%B7](https://www.hkcnews.com/article/35186/%E6%A0%BC%E6%9E%97%E8%8F%AF%E5%BE%B7glenn_greenwald-%E3%80%8A%E6%94%94%E6%88%AA%E3%80%8Bthe_intercept-%E6%8B%9C%E7%99%BB-35191/%E7%B6%B2%E7%AB%99%E6%8B%92%E7%99%BB%E6%89%B9%E8%A9%95%E6%8B%9C%E7%99%BB%E6%96%87%E7%AB%A0-%E6%99%AE%E7%AB%8B%E8%8C%B2%E7%8D%8E%E8%A8%98%E8%80%85%E8%BE%AD%E8%81%B7)
-
-[https://www.thestandnews.com/international/%E7%8D%B2%E6%99%AE%E7%AB%8B%E8%8C%B2%E7%8D%8E%E8%A8%98%E8%80%85%E8%BE%AD%E8%81%B7-%E7%A8%B1%E6%89%B9%E8%A9%95%E6%8B%9C%E7%99%BB%E6%96%87%E7%AB%A0%E9%81%AD%E5%AF%A9%E6%9F%A5-%E5%AA%92%E9%AB%94%E5%90%A6%E8%AA%8D%E6%9C%89%E6%94%BF%E6%B2%BB%E5%81%8F%E8%A6%8B/](https://www.thestandnews.com/international/%E7%8D%B2%E6%99%AE%E7%AB%8B%E8%8C%B2%E7%8D%8E%E8%A8%98%E8%80%85%E8%BE%AD%E8%81%B7-%E7%A8%B1%E6%89%B9%E8%A9%95%E6%8B%9C%E7%99%BB%E6%96%87%E7%AB%A0%E9%81%AD%E5%AF%A9%E6%9F%A5-%E5%AA%92%E9%AB%94%E5%90%A6%E8%AA%8D%E6%9C%89%E6%94%BF%E6%B2%BB%E5%81%8F%E8%A6%8B/)
-
-0
+2+

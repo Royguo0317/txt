@@ -1,9 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登硬盘邮件解密: 布里斯玛天然气公司创始人尼古拉与亨特拜登是什么关系？
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/507833/)
+## 10月30日同声传译班农战斗室【第465+466期】
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/507919/)
+
+2020年10月30日同声传译班农战斗室【第465+466期】
+
+
 
 #### **By: 【秘密翻译组G-Translators】**
 
-1+
+0
