@@ -1,43 +1,143 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 常熟农商行员工受害群体爆料称3人已确认肺癌肺结节患者超106人
-` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/509769/)
+## 我用我残损的手掌
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/505606/)
 
-素材：am心的小屋 内新闻：背靠背
+作者：桂花酒
 
-2020年10月31日，江苏省常熟市委外宣办、常熟市政府新闻办官方微博发布消息称，常熟农商行驻苏州工业园区2.5产业园的金融科技公司多名员工在体检中查出肺部结节。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31114720/image-213.png)
-10月28日，一张名为“常熟农商银行群体性肺结节事件”的截图在网上曝光。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31113333/image-208.png)
-对该事件按时间梳理：
+校对：宁缺；审核：Julia Win；Page：拱卒
 
-2020年8月31日，一名网名为“喝茶的猫”的网友在“苏州市12345阳光便民”网站上发出“救命贴”。该网友在帖子中称，“位于苏州工业园区的2.5产业园，常熟农商行内部员工体检后发现大部分员工都有肺部结节病症，而在一年前员工的体检都是正常的，有理由怀疑是公司刚搬进新装修的办公区导致的疾病。“目前已知的肺部结节病人有60多人，6月份体检出的报告，公司在得知消息后并不是第一时间排查给员工交代，而是在第一时间把剩余未体检的员工的体检日期推迟到十月份。”
 
-在该贴中，该名网友表示，有员工已经因为肺部结节接受了手术，当时只是认为自身原因。
+> *我用我残损的手掌*
 
-9月14日，“喝茶的猫”再次在“苏州市12345阳光便民”网站上发帖，表示患有肺部结节的常熟农商行员工人数已增加至75人。该网友称，“我们在等待行方给出处理方案，但是行方一直当做没有发生过，还安排了医生进行慰问洗脑，之后继续沉默。”
 
-9月18日至10月27日，有常熟农商行员工在去医院复查时，发现自己身上的肺结节增大，其中有数位员工进行了手术切除部分肺部组织。
+[!\[\]()!\[\](https://spark.adobe.com/page/7FW2PQxhAFZg7/images/2f72272c-d17f-499b-bd52-421928a2a98f.jpg?asset_id=f60d1e5e-0ef4-479c-9dbf-99c4a8b3ae1e&amp;img_etag=%2269f08bf4df2a4240616c542aa6ea2a2c%22&amp;size=1024)](https://spark.adobe.com/page/7FW2PQxhAFZg7/images/2f72272c-d17f-499b-bd52-421928a2a98f.jpg?asset_id=f60d1e5e-0ef4-479c-9dbf-99c4a8b3ae1e&amp;img_etag=%2269f08bf4df2a4240616c542aa6ea2a2c%22&amp;size=1024)
 
-10月10日，一位女员工在进行血清癌抗检查时，初诊为肺癌。“毕业才1年，进入公司体检正常，年龄不到24岁。发生这件事，（她）不敢告诉家里的爸妈，独自含泪面对。”
+我用残损的手掌，母亲
 
-10月27日，员工病友微信群人数扩增至96人，其中有人表示：“银行领导采用鸵鸟策略，对同事的诉求不闻不问”，一份疑似农商行员工受害者诉求文件截图：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31113537/image-209.png)
-此外，疑似大量常熟农商行员工聊天室信息截图曝光，根据聊天内容发现整个过程，农商行领导层都在推诿，不作为，敷衍了事，员工健康利益无法保障，哭诉无门。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31113627/image-210.png)
-银行领导层安排讲座给员工洗脑，会议上声称，“家里解决就好，不要外传出去。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31113659/image-211.png)
-农商行领导层搬出办公环境检测报告继续推诿。10月29日，常熟农商银行在其官网发布关于体检中有员工查出肺结节的情况说明，称办公环境两次检测合格。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31115511/1-1-16.jpg)
-根据微信公众号行长助手收到的一份常熟农商行受害员工对媒体的申诉材料。该材料显示，至10月29日，肺结节患病员工已达106人，（仅统计加入微信病友群的人数），其实员工患有肺部结节人数远远不止106人，此外还有3名员工已确认肺癌。
+拭去你干枯的泪痕。
 
-针对常熟农商行10月29日发布的“关于体检中有员工查出肺结节的情况说明”，该材料中共提出5点质疑（以下5点为材料原文内容，引用未作改动）：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31113753/image-212.png)
-农商行领导层解决问题方案与该行员工受害者诉求相差甚远，持续关注后续报道。
+辛苦一年种地，
 
-新闻来源：
+到头却还蚀本。
 
-https://m.sohu.com/a/428613906\_120161493scm=1002.b000b.1f2032c.ARTICLE\_REC https://view.inews.qq.com/a/20201030A08AJU00 https://view.inews.qq.com/a/20201029A07HLK00?tbkt=A&uid=
+你衰老年迈的身躯，
+
+
+
+```
+哪有余钱存身？
+```
+
+
+
+
+我用残损的手掌，女儿
+
+
+拨动按键出声。
+
+那滴滴的音响，
+
+是我愧疚的灵魂。
+
+满以为送你到大学
+
+一切都将起死回生，
+
+谁料学校让你夜里
+
+
+
+```
+去陪黑人留学生。
+```
+
+
+
+我用残损的手掌，姐姐！
+
+女娲何苦用手造我为人？
+
+当官的性侵我娇美的外甥女
+
+完事做成木乃伊，
+
+在家里的密室
+
+
+
+
+```
+私存
+```
+
+
+
+
+他的儿子，
+
+吸毒后转脸
+
+就用迷药把你
+
+转交拜登！
+
+她好——
+
+
+
+```
+她母亲也一样容颜姣美。
+```
+
+
+
+我用我残损的手掌，孙女！
+
+不敢触碰你的伤痕，
+
+幼儿园成了魔窟，
+
+我欲哭无声。
+
+她们说手里有长长的望远镜
+
+一直伸到你家的房门，
+
+心肝儿啊！
+
+在妈妈怀里瑟瑟发抖，
+
+我的小人儿。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/7FW2PQxhAFZg7/images/d559b87e-17e2-459a-b1b8-905f3c4b36cf.jpg?asset_id=39af3882-f714-439d-b1a8-4f0b58bc064a&amp;img_etag=%2243f3721bfdb43310944771f6d97b929f%22&amp;size=1024)](https://spark.adobe.com/page/7FW2PQxhAFZg7/images/d559b87e-17e2-459a-b1b8-905f3c4b36cf.jpg?asset_id=39af3882-f714-439d-b1a8-4f0b58bc064a&amp;img_etag=%2243f3721bfdb43310944771f6d97b929f%22&amp;size=1024)
+
+我用残损的手掌，我
+
+只能在日记里
+
+偷偷的，
+
+偷偷的，
+
+留下一点泪痕……
+
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/7FW2PQxhAFZg7/)】-点击spark adobe版
+
+更多资讯敬请关注：
+
+【战鹰团Gab】[https://gab.com/himalayahawks](https://gab.com/himalayahawks)
+
+【英喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
+
+【英喜庄园GTV/盖特】:
+
+[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+【大卫作战室YouTube】：[https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+
+![]()![](https://spark.adobe.com/page/7FW2PQxhAFZg7/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)
 
 2+
