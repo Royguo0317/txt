@@ -1,19 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【重磅新闻】Facebook 已经沦为中共的喉舌
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/506798/)
+## 亨特·拜登在色情网站上传自己及家人不雅内容
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/507985/)
 
-香草山综合报道
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31022929/6-2.jpeg)
+据Gateway Pundit 网站10月29日报道，拜登家族希望美国人相信他们是典型的勤劳美国家庭，但事实并非如此。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28173039/logo-1.jpg)
+*根据《每日邮报》在今年年初情人节的报道，美国副总统乔 •拜登(Joe Biden)为自己的儿子亨特 •拜登(Hunter Biden)辩护，称他是一个“好人”，即使在他被迫为自己未婚怀孕的一名脱衣舞女支付抚养费之后，他还说亨特是“一辈子都在做好事”。亨特 •拜登同意支付阿肯色州妇女伦登·罗伯茨（Lunden Roberts）的孩子抚养费，伦登·罗伯茨是他经常光顾的一家华盛顿俱乐部的脱衣舞女。*
 
+Gateway Pundit独家报道:亨特·拜登有一个色情网站账户，在那里他上传了自己的个人色情内容——包括和自己家人的。
 
+上周披露的其他信息显示了一个不同的故事。周一有消息称，前副总统拜登和他的妻子合谋压制舆论关于亨特与一名未成年人的行为。周二，我们揭露了亨特与至少一名俄罗斯女子在西好莱坞参与下流行动后，如何将家人置于俄罗斯勒索的危险之中。周三我们报道了亨特在一个未成年人面前拍摄的照片。 今早我们报道了亨特被指控在未成年人面前 “裸体走来走去看色情片自慰和吸毒”。
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayanyM)！
+这一切都是在指控亨特在其父担任副总统期间卷入了全球范围内的圈钱游戏丑闻。不，亨特似乎并不像副总统所说的那样。
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+今天，我们彻底摧毁了任何认为拜登家族和亨特拜登都是美国英雄的想法。
 
-圣经故事背景，免费英语教学，美东时间周一至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+亨特·拜登不仅参与了这些堕落的活动，他还拍下了这些活动的照片。今天我们有证据表明，他在色情网站PornHub上发布并宣传了这些活动。
+
+下面你可以看到Hunter在Pornhub的资料图片。 亨特建立了用户账号RHEast，他在那里自称 “Harper”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31021412/2-72.jpg)
+我们知道这是亨特的账号，其中一个原因是下面的截图，他的一个网页书签是 “Joe Biden Smiling”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31021357/3-51.jpg)
+我们能够确认这个账号与亨特的关系，因为账号中的图片和视频也在最近被曝光的亨特拜登笔记本电脑上出现。 在PornHub上有亨特和两个女人的不雅照片，这些照片同样存在于他的笔记本电脑上。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31021341/4-31.jpg)
+在亨特的PornHub账户上，和两个女孩在一起的照片中的一个女孩也可以追溯到一个在好莱坞的游泳池里的女人。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31021344/5-28.jpg)
+我们还把他主页上的另一张图片和他笔记本上的另一张图片绑定在一起。 这个
+
+账号不是编造的。 是亨特的帐号。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31021347/6-25.jpg)
+在这个肮脏的故事中，在亨特的网站上发现了一个令人震惊的信息。 在他的PornHub主页上，那个女人后背的照片是亨特一个家庭成员的照片!  亨特还在自己的账号内加入了同一个女人的照片
+
+拜登家族为什么要用亨特做他们的包工头，进行他们的圈钱计划？ 亨特是个禽兽，是个麻烦。 他承认自己吸毒  他在肮脏的地方和肮脏的人在一起… …但家族却竭力掩盖这一切。这就说明了你要对乔·拜登做出判断。乔·拜登永远都不应该再接近白宫。
+
+评论：
+
+翻译这篇文章感觉很恶心，亨特·拜登完全堕落成一个不可救药的人。难怪他有一颗痛苦的心灵，他的生活充斥着贪婪，欺诈，色情，乱伦和毒品。是谁造成他今天这样的？他的父亲乔•拜登负有不可推卸的责任。乔•拜登鼓励儿子到全世界捞钱，他在背后以自己的身份和声望给亨特撑腰，特别是出卖美国利益从中共换取巨额酬金，20年间敛财3亿美金。他容忍自己儿子在家里乱伦，诱奸未成年少女。这是一个什么样的父亲，长辈？就是这样一个伪君子，还在欺骗全世界，还要竞选美国总统。遗憾的是还有很多美国人没有看清拜登的真面目，现在是时候认清事实，做出明智的判决，放弃让这个出卖美国利益的人去竞选总统。
+
+[新闻链接](https://www.thegatewaypundit.com/2020/10/huge-breaking-exclusive-hunter-biden-pornhub-account-uploaded-personal-porn-including-family-members/?utm_source=Twitter&amp;utm_campaign=websitesharingbuttons)
+
+翻译报道： Alton
 
 0

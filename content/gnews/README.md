@@ -13,147 +13,147 @@
 
 
 
-### [亨特·拜登第三波: 硬盘邮件解密33 2018年12月20日应亨特要求，爱德华·披威特致函凯蒂·道奇,辛奇雅·杜肯并抄送亨特·拜登,要求凯蒂停止ACH自动付款](/content/gnews/1/README.md)
+### [【文字版】10/30/2020 路德时评（路安墨谈）：薄家人薄甜甜发给亨特拜登的邮件暗藏碟中谍无间道烧脑信息；张博公司华锐与华信、国开金融资本上的深刻关系；渤海华美2018年董事会材料曝光很多内幕；](/content/gnews/1/README.md)
+ ` 喜马拉雅-华盛顿DC站`
+
+### [亨特·拜登第三波: 硬盘邮件解密33 2018年12月20日应亨特要求，爱德华·披威特致函凯蒂·道奇,辛奇雅·杜肯并抄送亨特·拜登,要求凯蒂停止ACH自动付款](/content/gnews/2/README.md)
  ` 秘密翻译组G-Translators`
 
-### [亨特·拜登第三波: 硬盘邮件解密32 2014年4月21日 德文·阿彻和亨特·拜登之间的一系列邮件，其中讨论了包括布利斯马的委任书,时任美国驻中国大使等不同话题](/content/gnews/2/README.md)
+### [亨特·拜登第三波: 硬盘邮件解密32 2014年4月21日 德文·阿彻和亨特·拜登之间的一系列邮件，其中讨论了包括布利斯马的委任书,时任美国驻中国大使等不同话题](/content/gnews/3/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【12】硬盘第三波烧脑风暴来袭！亨特拜登与桑顿集团布尔格关于中国问题与能源项目邮件曝光！](/content/gnews/3/README.md)
+### [【12】硬盘第三波烧脑风暴来袭！亨特拜登与桑顿集团布尔格关于中国问题与能源项目邮件曝光！](/content/gnews/4/README.md)
  ` GM01`
 
-### [亨特·拜登第三波: 硬盘邮件解密31 2015年8月6日弗兰西斯·佩森致函亨特·拜登再次商讨去中国海南省海口和三亚的确切日期](/content/gnews/4/README.md)
+### [亨特·拜登第三波: 硬盘邮件解密31 2015年8月6日弗兰西斯·佩森致函亨特·拜登再次商讨去中国海南省海口和三亚的确切日期](/content/gnews/5/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【11】硬盘第三波烧脑风暴来袭！亨特拜登与私人助理沟通个人消费细节账单曝光！](/content/gnews/5/README.md)
+### [【11】硬盘第三波烧脑风暴来袭！亨特拜登与私人助理沟通个人消费细节账单曝光！](/content/gnews/6/README.md)
  ` GM01`
 
-### [【10】硬盘第三波烧脑风暴来袭！邮件揭露Francis邀请亨特拜登到中国与张博会面！詹姆斯、约翰逊等人涉局！](/content/gnews/6/README.md)
+### [【10】硬盘第三波烧脑风暴来袭！邮件揭露Francis邀请亨特拜登到中国与张博会面！詹姆斯、约翰逊等人涉局！](/content/gnews/7/README.md)
  ` GM01`
 
-### [亨特·拜登第三波: 硬盘邮件解密30- 亨特在叶简明“出事”后注销了Hudson West LLC；薄甜甜发长信“指导”亨特如何在中共更换新老板前捞钱](/content/gnews/7/README.md)
- ` 秘密翻译组G-Translators`
-
-### [大选夜历史将再次把中国和美国人们的命运紧紧相连](/content/gnews/8/README.md)
- ` Wenya Himalaya`
-
-### [视频【重磅新闻】Facebook 已经沦为中共的喉舌](/content/gnews/9/README.md)
- ` 纽约香草山农场`
-
-### [视频朱利安尼先生怒诉脸书推特撒谎“黑暗王子乔拜登毁掉儿子把亨特交给杀人犯罪犯你应该去监狱！](/content/gnews/10/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [10/30/2020 每日快讯](/content/gnews/11/README.md)
- ` Caihongqiao`
-
-### [密切关注爆料革命13天大决战，不妨思考这些有趣的问题](/content/gnews/12/README.md)
- ` GM80`
-
-### [《国家脉动》惊爆：亨特·拜登曾任中共华信能源的 &#8220;董事总经理&#8221;](/content/gnews/13/README.md)
- ` gnewscanada`
-
-### [美军指挥官称美军部队可能被派往 ”保卫尖阁列岛”](/content/gnews/14/README.md)
- ` VOH欧洲战友团`
-
-### [澳喜要闻 路德时评30日早间摘要](/content/gnews/15/README.md)
- ` Himalaya Australia`
-
-### [在中共国 武汉一菜市场都可以践踏人权 剥夺中年百姓的生存权了吗？](/content/gnews/16/README.md)
- ` shangshang`
-
-### [中国能源集团、美国石油与天然气分公司和中国公民被控窃取商业机密](/content/gnews/17/README.md)
- ` GM80`
-
-### [🎼抢先预订“酒灭中共”、11月7日火爆上线 🎶](/content/gnews/18/README.md)
- ` Wenya Himalaya`
-
-### [亨特·拜登 Finger Lakes 刺青背后的故事](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
-
-### [纪念林昭：我们的自由女神](/content/gnews/20/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共打着做交易的幌子 掩盖企图统治世界的野心](/content/gnews/21/README.md)
- ` 秘密翻译组G-Translators`
-
-### [10/29/2020 每日快讯](/content/gnews/22/README.md)
- ` Caihongqiao`
-
-### [【9】硬盘第三波烧脑风暴来袭！亨特拜登与乌克兰前总统邮件曝光！](/content/gnews/23/README.md)
- ` GM01`
-
-### [爆革星评：司法部已调查亨特·拜登洗钱犯罪](/content/gnews/24/README.md)
- ` gnewscanada`
-
-### [解密的2014年春的部分邮件显示，亨特·拜登很忙碌](/content/gnews/25/README.md)
- ` gnewscanada`
-
-### [亨特·拜登早知自己深陷中共圈套，却执意“行走钢丝”与邪魔共舞](/content/gnews/26/README.md)
- ` 秘密翻译组G-Translators`
-
-### [War Room 465-466摘要：特拉华州警察没有按要求前往拜登家查证，而是将儿童濒临危险的证据交给了联邦调查局（FBI），而FBI竟然未采取任何行动。](/content/gnews/27/README.md)
- ` 巴塞罗那喜西农场`
-
-### [亨特·拜登第三波: 硬盘邮件解密29 2019年4月21日亨特·拜登答复德文·阿彻关于Burisma和渤海华美会议等事宜邮件](/content/gnews/28/README.md)
- ` 秘密翻译组G-Translators`
-
-### [第三波硬盘邮件解密：拜登家族的犯罪，遍布乔·拜登权力到达的地方](/content/gnews/29/README.md)
- ` gnewscanada`
-
-### [决战13天：重磅！亨特拜登中国行，刘呈杰代持者被爆出](/content/gnews/30/README.md)
- ` 巴塞罗那喜西农场`
-
-### [亨特·拜登第三波: 硬盘邮件解密28 2019年3月5日 亨特·拜登发邮件给其私人助理凯蒂·道奇询问开设新账户事宜](/content/gnews/31/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【8】硬盘第三波烧脑风暴来袭！ 亨特密谋使用Burisma公司收购墨西哥石油公司Pemex邮件曝光！](/content/gnews/32/README.md)
- ` GM01`
-
-### [重创中共猎狐行动 斩断中共结盟拜登](/content/gnews/33/README.md)
- ` VOH欧洲战友团`
-
-### [亨特拜登的重生之路](/content/gnews/34/README.md)
- ` 康州喜马拉雅农场`
-
-### [【热点播报】拯救世界上最可爱的女人](/content/gnews/35/README.md)
- ` 纽约香草山农场`
-
-### [路德时评曝叶简明情况变化后薄甜甜给亨特拜登发出的邮件信息](/content/gnews/36/README.md)
- ` vog_dongdong_vog`
-
-### [汪文斌对被美抓捕猎狐人员昨是而今非的答复暴露严重外交事件](/content/gnews/37/README.md)
+### [扒一扒作为中国和平统一促进会理事单位的全美国各地统促会](/content/gnews/8/README.md)
  ` NewFOC`
 
-### [中共真正的治国圣典是服务生殖器](/content/gnews/38/README.md)
- ` 倫敦英喜莊園 Himalaya UK`
+### [亨特·拜登在色情网站上传自己及家人不雅内容](/content/gnews/9/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [习近平一声令下，他们来了&#8212;美国科技公司CEO向中共献媚](/content/gnews/39/README.md)
- ` 康州喜马拉雅农场`
+### [011期灭共新闻摘要：美国国务卿蓬佩奥出访亚洲4国一路谴责中共，北约将在德国建太空中心 应对中俄威胁](/content/gnews/10/README.md)
+ ` GM62`
 
-### [Warroom 454杰克·马克西：一封关于拜登家族支离破碎关系的邮件；乔·拜登利用并坑害了其家族30年](/content/gnews/40/README.md)
- ` snow`
+### [蚂蚁集团上市 这局的玩法是史上最大规模](/content/gnews/11/README.md)
+ ` Himalaya Australia`
 
-### [【香港要闻】粤港签署落实《粤港合作框架协议》2020年重点工作 林郑月娥加速香港内地化](/content/gnews/41/README.md)
- ` GM42`
-
-### [Warroom 452：闫丽梦博士回应霍普金斯大学南希博士所说，以及中共国疫苗不可信实际仍在临床实验三期](/content/gnews/42/README.md)
- ` snow`
-
-### [文贵说｜系列图片连载（三十二）](/content/gnews/43/README.md)
- ` GM98`
-
-### [三块硬盘引发的思考](/content/gnews/44/README.md)
- ` 纽约香草山农场`
-
-### [【7】硬盘第三波烧脑风暴来袭！亨特拜登乌克兰主题邮件曝光！&#8221;2016年你就看我的吧！&#8221;](/content/gnews/45/README.md)
- ` GM01`
-
-### [视频《The Biden Crime Family-Who Are They-trailer 系列片之一Who Are They With Hunter》](/content/gnews/46/README.md)
+### [一窥神秘的年轻亿万富豪-张博](/content/gnews/12/README.md)
  ` gnewscanada`
 
-### [突发！连续关闭爆料革命战友账户后，推特道琼斯股指开盘暴跌20%](/content/gnews/47/README.md)
- ` GM101`
+### [川普总统在民主党深兰州受到火热追捧](/content/gnews/13/README.md)
+ ` Wenya Himalaya`
 
-### [听障学生否认袭警 自辩称要求洗椒及戴回助听器遭拒 仅听到「道歉」两字](/content/gnews/48/README.md)
+### [爆料革命战友抗议傅希秋事件让更多无良记者和媒体暴露真面目](/content/gnews/14/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [澳喜要闻 路德时评30日晚间摘录](/content/gnews/15/README.md)
+ ` Himalaya Australia`
+
+### [鉴于Twitter流氓封锁，总结绕过封锁办法](/content/gnews/16/README.md)
+ ` gnewscanada`
+
+### [视频10月30日同声传译班农战斗室【第465+466期】](/content/gnews/17/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【国内快讯】中共驻各国使馆接连发布返华通知，意为回收特务？](/content/gnews/18/README.md)
+ ` shangshang`
+
+### [视频10/29/2020 司法部官员已确认早在2019年,联邦调查局就针对亨特·拜登及其同伙就其洗钱的指控展开了刑事调查,该调查仍在进行中](/content/gnews/19/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [好莱坞与NBA帮助中共宣传的方式](/content/gnews/20/README.md)
+ ` gewsTaiwan`
+
+### [亨特·拜登硬盘邮件解密: 2014年4月17日德文阿彻与亨特商讨欧洲会面及访问基辅事宜](/content/gnews/21/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【国内快讯】女子自杀拉人陪葬——中共幽灵对人心的污染](/content/gnews/22/README.md)
+ ` shangshang`
+
+### [视频亨特·拜登硬盘邮件解密: 布里斯玛天然气公司创始人尼古拉与亨特拜登是什么关系？](/content/gnews/23/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [《拦截》（The Intercept）拒登批评拜登文章　普立兹奖美国记者格林华德（Glenn Greenwald）辞职](/content/gnews/24/README.md)
  ` GM42`
+
+### [视频亨特·拜登硬盘邮件解密: 2014年5月7日瓦迪姆· 波扎尔斯基致函德文·阿彻和亨特-拜登商讨访问哈萨克斯坦期间的会议时间和会议内容安排及尼古拉的签证问题](/content/gnews/25/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [美国第一夫人梅拉尼亚警告“乔·拜登的社会主义议程只会摧毁美国”](/content/gnews/26/README.md)
+ ` 康州喜马拉雅农场`
+
+### [秘密邮件揭开中共以渤海华美为幌子进行贿赂拜登的内幕](/content/gnews/27/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [视频亨特·拜登硬盘邮件解密: 2015年7月23日德文·阿彻给瓦迪姆·波扎尔斯要求其向亨特·拜登提供挪威之行的时间安排，以便他们尽快通知特勤局](/content/gnews/28/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频亨特·拜登硬盘邮件解密: 2014年5月5日德文·阿彻致函瓦迪姆·波扎尔斯基和亨特·拜登探讨天然气计划受阻的原因](/content/gnews/29/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频亨特·拜登硬盘邮件解密: 2014年5月5日亨特·拜登的另一个生意伙伴杰夫·库伯(参与了Burisma与墨西哥石油公司合作项目)询问他父亲乔·拜登是否与他们会面](/content/gnews/30/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [推特退让了，解除了《纽约邮报》因为报道亨特-拜登而被封账户的僵持状况](/content/gnews/31/README.md)
+ ` 康州喜马拉雅农场`
+
+### [路德时评：没有爆料革命的推特是什么结果？推特今日市值狂跌百分之二十](/content/gnews/32/README.md)
+ ` shangshang`
+
+### [康州农场本日新闻热点（盘古时间2020-10-30）](/content/gnews/33/README.md)
+ ` 康州喜马拉雅农场`
+
+### [视频10月30日今日要闻同声传译: 福克斯采访朱利安尼和布莱恩 + NEWSMAX亨特拜登犯罪调查和朱利安尼采访](/content/gnews/34/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频亨特·拜登硬盘邮件解密: 2012年5月14日时任美国参议员马克·尤德尔的调度总监凯西·钟对亨特拜登之前与她的通话的跟踪回复。在邮件中，她对亨特给她的工作机会表示了感谢,并向亨特询问了更多有关工作的详细内容](/content/gnews/35/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [关于乔拜登家的邮件不翼而飞又飞了回来](/content/gnews/36/README.md)
+ ` Wenya Himalaya`
+
+### [视频亨特·拜登硬盘邮件解密: 2015年6月19日快递董事会会议照片,瓦迪姆·波扎尔斯基致函亨特.拜登及德文.阿彻,询问快递塞浦路斯董事会会议照片的邮寄地址](/content/gnews/37/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频【精华版粤语快报】【路德社】10.30：薄甜甜给亨特的烧脑信件；张博的公司资本关系](/content/gnews/38/README.md)
+ ` GM42`
+
+### [视频亨特·拜登硬盘邮件解密: 2015年5月26日乌克兰天然气公司 董事成员瓦迪姆·波扎尔斯基致函 询问是否可以在2015年8月3日-6日接受邀请参加挪威旅行](/content/gnews/39/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频2020年10月30日中共病毒疫情要闻快报](/content/gnews/40/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频亨特·拜登硬盘邮件解密: 2014年5月13日亨特·拜登成为布利斯马公司董事一事引起媒体关注,亨特前合伙人德文·阿彻发电邮给纽约本地律师事务律师,提醒大家需注意观察](/content/gnews/41/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频亨特·拜登硬盘邮件解密: 2015年08月04日曾担任副总统乔·拜登的助手的弗兰西斯·佩森致函亨特拜登,询问其是否可确认8月18日-23日去中国海南三亚和海口的行程](/content/gnews/42/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频亨特·拜登硬盘邮件解密: 2014年5月17日中国外商独资企业WFOE桑顿公司创始人之一詹姆士布尔格致函杰克欧文(乔拜登法学院好友),抄送林俊良(桑顿集团创始人),Michael Leonard,就其拟在中国设立的外商独资公司,通报进展,包括研究当地法规,以确定和中共政府哪些具体部门沟通](/content/gnews/43/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频亨特·拜登硬盘邮件解密: 2014年6月1日布利斯马公司董事波扎尔斯基致电公司高层, 邮件涉及美联社,华尔街日报等媒体,其中华尔街日报将对布利斯马公司受益人尼古拉进行采访](/content/gnews/44/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频亨特·拜登硬盘邮件解密: 2014年5月15日布利斯马公司董事会主席艾伦将通过邮件协调与今天宣布就任公司董事的前波兰总统克瓦斯涅夫斯基的通话,并安排了强大的国际媒体阵容为布利斯马公司站台](/content/gnews/45/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [爱国者指控亨特·拜登犯罪 中共借钱给拜登家族](/content/gnews/46/README.md)
+ ` gnewscanada`
+
+### [视频2020年10月30日CCP冠状病毒大流行第279集](/content/gnews/47/README.md)
+ ` GM30`
+
+### [视频爆料革命最新宣传短片](/content/gnews/48/README.md)
+ ` 秘密翻译组G-Translators`
 
