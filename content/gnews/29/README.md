@@ -1,85 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 一窥神秘的年轻亿万富豪-张博
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/505956/)
+## 再看Burisma
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/508274/)
 
-文文-自由法兰西🇫🇷
+多伦多加喜农场 维京商人
 
-校对上传 XM
+校对 不动之光 上传 XM
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31040556/thedaleygator.com_.jpg)图片来源：thedaleygator.com
+成立于2002年的Burisma集团是乌克兰第二大的私有天然气公司，总部位于乌克兰首都基辅，公司注册地点位于欧洲岛国塞浦路斯的海滨城市利马索尔Limassol。Burisma是乌克兰第一家也是唯一一家完全集成的天然气运营商，并从事碳氢化合物的勘探、生产、加工、运输和最终销售。
 
-2020年10月29日路德社晚间新闻，又掷出一颗“深水炸弹” – 跟亨特∙拜登硬盘门有关联的，也是大部分人闻所未闻的新名字 – 张博。
+让我们将时钟回拨到2014年初。
 
-透过路德社爆料，我们能总结出张博的3个基本点：
+在克里米亚危机于2014年2月爆发后，国际社会与俄罗斯的关系不断恶化，西方各国领导人纷纷指责俄罗斯非法吞并乌克兰领土（克里米亚原属乌克兰），此举侵犯了乌克兰的主权和领土完整。时任美国副总统乔·拜登于2014年4月22日对乌克兰进行了为期两天的官方访问，巧合的是，就在2014年4月，乔·拜登的次子亨特·拜登加入了Burisma董事会，公开的薪酬是每月五万美金。该公司的官方解释是亨特·拜登将负责公司的法律部门，并将在国际组织中为公司提供支持。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31040748/%E6%8D%95%E8%8E%B7-5.jpg)图片来源：valjean72.wordpress.com
+与此同时，亨特·拜登多年的合作伙伴，其在罗斯蒙特（Rosemont）公司的合伙人德文·阿彻也已进入Burisma董事会，而德文·阿彻不但是时任美国国务卿约翰·特里的前竞选团队骨干，也是特里继子克里斯·海因斯的大学密友。
 
-1）年轻而掌控巨额资金；
+如此一来, 我们不难看到，时任美国政府的第二号和第三号人物，美国副总统乔·拜登和美国国务卿约翰·特里都将一只无形的手涉入Burisma公司业务。难道这些显而易见的裙带关系所带来的可能的利益冲突没有引起美国相关部门的质疑吗？
 
-2）背景神秘可动用国家级资源；
+乔·拜登本人自2014年以来一再否认他本人与亨特·拜登之间涉及任何利益冲突或不当行为，拜登的发言人肯德拉·巴尔科夫也表示，亨特只是普通美国公民和律师，乔·拜登不偏向某家特定企业，与Burisma公司没有关联。白宫发言人也在不同场合强调，亨特·拜登的个人行为不应该被解读为美国政府为该商业机构背书。
 
-3）所谓的高贵血统疑似贝勒之身份。
+官方的说辞可以平复广大美国民众的质疑吗？事实是，拜登在2014年4月访乌时一个具体举措就是美国将支持乌克兰提高天然气产量，并将会提供“一揽子援助计划”。作为乌克兰最大的私有天然气公司，Burisma毫无意外地在亨特·拜登加入董事会后成为了幸运儿。在乔.拜登的第二届副总统任期结束后，亨特·拜登在2019年4月从Burisma的董事会退出，完美离场。
 
-随着美国大选临近，路德社每天重磅实锤真是一点也不嫌多，只是普通草根的小心脏着实有些接受不了，难怪七哥总是嘱咐大家要坚持健身，锻炼好心脏。
+我想从乔·拜登否认有任何利益冲突的那时起，他和他的其他同僚作为民选政客的公信力已经被普通民众画上了一个大大的问号。
 
-网上张博的公开资料不多。吃了半片救心丸搜索半天的战果按时间整理如下：
+诚然，我们无从获知亨特·拜登、德文·阿彻甚至其背后的大人物从Burisma的经营活动中获利多少，也许只有等待有关部门揭晓的那一天。但笔者认为，围绕Burisma、甚至乌克兰相关能源公司的明争暗斗和利益输送并不会随着亨特·拜登的离开而消失。
 
-1.2015年4月10日，《北美华商会》发表了《共襄——北美华商会成员参加2015年”选择美国”投资峰会暨中国官方代表团华盛顿特区考察交流活动》的文章，记述了由时任美国驻中国领事馆商务部组织的中国企业家官方代表团，于2015年3月23-24日其间，赴美参加在华盛顿召开第二届“选择美国”投资峰会的盛况。
+从地缘政治的角度来看，乌克兰南靠黑海，东倚远东帝国俄罗斯，西连巴尔干半岛和东欧诸国，独特的地理地位决定了它成为兵家必争之地。无论是美国、欧盟、俄罗斯还是中共国都希望在这个地缘政治的角力场取得话语权。已经神秘消失的中共国华信能源CEFC总裁叶简明就曾深耕乌克兰。
 
-美国O先生在会议上发表演讲，其内阁中与商业投资有关的高官几乎全部到场助阵，包括美国国务卿克里(John Kerry)。会上还出现了前任美国驻华大使骆家辉先生的身影。
+在如此重要的地理位置上，乌克兰不仅本身有着丰富的油气资源，它还扼守着俄罗斯油气进入欧盟各国的咽喉要道。可以说，从油气的生产、加工、运输到销售等各个环节，无论怎么看，各大油气公司都是一只可以不断下金蛋的鸡。从此，也就不难解释为何各方政客都绞尽脑汁参与其中了。
 
-文章中最为引人注目的是第一次出现了张博的名字，2015年，那年他应该28岁吧，名字旁边的头衔是：华锐投资集团董事长, Harves Investment Group CEO。
+附Burisma现任董事会成员
 
-不过照片已经被拿掉了，与整篇文章蓬勃向上欢乐祥和的气氛相比，留下一片不和谐的空白。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31020512/566878552.jpg)图片来源：freewechat
-2.2019年1月8日，新浪网上出现《曼联将在中国建立曼联主题娱乐体验中心》的文章，张博以华锐世纪CEO的身份首次访问老特拉福德球场，启动和曼联俱乐部的合作。
+董事长 Alan Apter 阿兰于2013年5月份加入董事会，在各大投资银行有着长达27年的从业经验，如美林证券（Merrill Lynch），复兴资本（Renaissance Capital）和摩根士丹利（Morgan Stanley）。阿兰职业生涯的大部分时间都在东欧工作，可以说是东欧通。他还曾在Sullivan＆Cromwell律所任职。该律所一位知名合伙人是Jay Clayton, 美国证券交易委员会现任主席。
 
-文章揭示，“曼联足球俱乐部携手中共国杰出地产开发商华锐世纪宣布，将在中共国建立一系列曼联主题娱乐体验中心。第一批曼联主题娱乐体验中心计划于2020年底前分别在北京、上海和沈阳对外开放。
+董事会成员亚历山大·科瓦西涅夫斯基（Aleksander Kwasniewski）2014年4月加入，波兰前总统 (1995-2005)
 
-其中，北京的曼联主题娱乐体验中心将选址前门大栅栏地区的北京坊，距天安门和故宫仅咫尺之遥。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31015132/2-71.jpg)图片来源：sina![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31015116/3-50.jpg)图片来源：sina![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31015056/4-30.jpg)图片来源：sina![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31015127/5-42.png)图片来源：sohu
-3∙.2019年11月，英国《每日邮报》(Daily Mail)等西方媒体曝出，一个叫Zhang Bo的32岁年轻中共国亿万富翁，短短2年内，在澳大利亚悉尼郊外Mosman的高档社区Beauty Point（美丽角），抢购了六栋聚集在一起的，总共价值3700万澳元的悉尼豪宅，但没有一处用来居住。
+董事会成员 Joseph Cofer Black 约瑟夫·科弗·布莱克2017年2月加入 美国中央情报局反恐中心前主任（1999-2002）和反恐大使（2002-2004），曾在Blackwater Worldwide担任副董事长并在Total Intelligence Solutions（Total Intel）情报公司担任董事长。
 
-“Zhang很神秘，一直保持极低调，没有公开的互联网信息，甚至没有公开列出其办公室地址。”
+Karina Zlochevska 2016年2月加入，Burisma公司实际控制人Nikola Zlochevska的女儿
 
-其中一篇报道还带我们参观了Zhang添加到他Mosman系列豪宅收藏中的第一座房子，位于Beauty Point Road 26号的一处风水圣地，依山傍海，美轮美奂。
+Burisma董事会的其他三位成员网上披露信息极少，据笔者考证均为法律或财务方面专业人士，分别为Christina Sofocleous，Riginos Charalampous，Andreas Sofocleous。
 
-4∙.2020年9月4日，大悦城控股华中区域商业战略发布会暨长沙北辰三角洲大悦城&武汉大悦城招商启动会在长沙北辰洲际酒店盛大召开。
+[http://hnrb.hinews.cn/html/2014-04/24/content\_11\_4.htm](http://hnrb.hinews.cn/html/2014-04/24/content_11_4.htm)
 
-“曼联中国官方室内娱乐中心合作伙伴华锐娱乐创始人兼董事长张博作为代表上台致辞，对大悦城控股华中区域的品牌实力、招商及运营能力表示了高度认可。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31015109/6-24.jpg)图片来源：linkshop
-5.2020年10月13日，华悦世纪的官方网站上，出现《曼联宣布新体验中心命名》的新闻。
+[http://pic.people.com.cn/n/2014/0609/c1016-25120572.html](http://pic.people.com.cn/n/2014/0609/c1016-25120572.html)
 
-“曼联足球俱乐部携手华锐娱乐宣布全新升级体验中心的命名，首个中心位于北京，目前升级改造工作已大抵竣工。
+[http://world.people.com.cn/n/2014/0528/c1002-25072831.html](http://world.people.com.cn/n/2014/0528/c1002-25072831.html)
 
-距天安门广场咫尺之遥，中心被命名为“曼联梦剧场”。这是规划建成的五个曼联梦剧场中的首座，其余中心明年将在上海、沈阳和长沙等地落成，旨在成为曼联与中国球迷交流互动的纽带。”
+[https://3g.k.sohu.com/t/n489168163?serialId=40c21891d15c8d59fe53c6ef319cb034&showType=&sf\_a=weixin&spm=smwp.home.fd-important.2.1602738577105ZUd914b](https://3g.k.sohu.com/t/n489168163?serialId=40c21891d15c8d59fe53c6ef319cb034&amp;showType=&amp;sf_a=weixin&amp;spm=smwp.home.fd-important.2.1602738577105ZUd914b)
 
-张博戴着眼镜，文质彬彬，从上述各种报道中，给人的感觉总体低调，沉稳，老练，所以这也是他从小在国外培养并被委以重任的原因？！包括掌管巨额资金，为公主海外护驾，亲自上阵“蓝金黄”亨特，并同世界顶级球队合作？！
-
-可以看出，从2019年开始，张博的报道开始多了起来。如果没有郭先生对中共高层海外基因地图的揭露，你会惊叹这是一个受过高等教育，英文流利，着装得体，事业有成，年轻有为的后生。如果没有郭先生的爆料，也许，我们依然会像猪狗一样，朝九晚五，疲于奔命，刷着抖音，羡慕地看着杂志上铺天盖地的各种赞美和报道，恨自己拙而不勤不够努力，叹家国不兴皆因苦难尚不够多！
-
-参考链接：
-
-1.《Vol∙ 7 | 共襄——北美华商会成员参加2015年”选择美国”投资峰会暨中国官方代表团华盛顿特区考察交流活动》
-
-[https://freewechat∙com/a/MzA4ODk1MDczMg==/204782687/1《](https://freewechat∙com/a/MzA4ODk1MDczMg==/204782687/1《)
-
-2.《曼联将在中国建立曼联主题娱乐体验中心》
-
-[https://k∙sina∙com∙cn/article\_3576234807\_d529033702000g1fj∙html](https://k∙sina∙com∙cn/article_3576234807_d529033702000g1fj∙html)
-
-3.英国《每日邮报》的报道
-
-[https://www∙dailymail∙co∙uk/news/article-7645695/Mystery-surrounds-Chinese-billionaire-snapped-six-Sydney-mansions-worth-37million∙html](https://www∙dailymail∙co∙uk/news/article-7645695/Mystery-surrounds-Chinese-billionaire-snapped-six-Sydney-mansions-worth-37million∙html)
-
-4.外媒报道2 《Celebrity Net Worth》
-
-[https://www∙celebritynetworth∙com/articles/billionaire-news/young-billionaire-zhang-bo-has-spent-37m-on-six-houses-that-mostly-sit-empty-in-one-sydney-neighborhood/](https://www∙celebritynetworth∙com/articles/billionaire-news/young-billionaire-zhang-bo-has-spent-37m-on-six-houses-that-mostly-sit-empty-in-one-sydney-neighborhood/)
-
-5.《大悦城首入华中落子双城 武汉长沙双项目招商全面启动》
-
-[http://www∙linkshop∙com∙cn/web/archives/2020/454330∙shtml](http://www∙linkshop∙com∙cn/web/archives/2020/454330∙shtml)
-
-6.《曼联宣布新体验中心命名》
-
-[http://www∙harves∙com∙cn/News/news\_detail/99](http://www∙harves∙com∙cn/News/news_detail/99)
+[https://burisma-group.com/eng](https://burisma-group.com/eng)
 
 0
