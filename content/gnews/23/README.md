@@ -1,21 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【精华版粤语快报】【路德社】10.31：亨特第三台电脑出现；左媒报导拜登家族腐败
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/512012/)
+## 【重磅新闻】世纪大案：美国爆料者
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/512168/)
 
-制作单位：战友之家·粤语频道
+香草山综合报道
 
-制作团队：路德二组（Andy Su、心安、鬼五）
-
-
-
-摘要:
-
-美国禁毒署获得亨特拜登第三台电脑，通过追查毒品犯罪线最后的结果一定会再次震惊美国；中共蓝金黄就是最后就是影响西方的法律，最终就是通过3F方案搞乱美国；拜登家族就是中共的内应，硬盘内有证据可以证明乔拜登也参与了犯罪
-
-原视频链接:
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/01003406/WhatsApp-Image-2020-11-01-at-11.33.40.jpeg)
 
 
 
-0
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayanyM)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+1+

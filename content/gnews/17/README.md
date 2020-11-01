@@ -1,21 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【重磅新闻】世纪大案：美国爆料者
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/512168/)
+## 10/28/2020 福克斯塔克·卡尔森: 拜登家族对真相败露十分担心,Rob Walker和James Gilliar为此请求Tony Bobulinski三思而后行,但连拜登等人也没有想到的是,媒体会如此自觉的帮住他们掩盖这个惊人的大新闻
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/507398/)
 
-香草山综合报道
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/01003406/WhatsApp-Image-2020-11-01-at-11.33.40.jpeg)
+2020年10月28日 福克斯塔克·卡尔森: 拜登家族对真相败露十分担心，Rob Walker和James Gilliar还为此请求Tony Bobulinski三思而后行，但连拜登等人也没有想到的是，媒体会如此自觉的帮住他们掩盖这个惊人的大新闻。
 
 
 
+#### **By: 【秘密翻译组G-Translators】**
 
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayanyM)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-1+
+0

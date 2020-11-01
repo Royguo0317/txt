@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【19】硬盘第三波烧脑风暴继续！亨特·拜与瓦迪姆沟通挪威钓鱼行程邮件曝光！
-` GM01` [轉載自GNews](https://gnews.org/zh-hans/511254/)
+## 【20】硬盘第三波烧脑风暴继续！亨特及商业伙伴谈及天然气转向计划因俄罗斯受阻
+` GM01` [轉載自GNews](https://gnews.org/zh-hans/511451/)
 
 在经历了近几天“视频”“图片”的洗礼，大家一定被吸足了眼球！现在真正的烧脑风暴来了！你准备好了吗？接下来铁一般的证据，山一般的证明逐一清晰展示了中美两国盗国贼对人类的威胁和伤害！对法律的无视！以及对女性的侮辱甚至奴役变态！他们的人性已完全丧失！
 
@@ -10,6 +10,6 @@
 
 现在将为大家呈现Burisma与亨特拜登和中共之间勾兑的铁一般的事实，包括文件和Email的往来，以及相关人物往来！希望全世界有良知的战友都来关注。如果这样的事情不被揭发，人类将全面走向黑暗！
 
-[点击下载PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31192253/E19-3.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31192253/E19-3.pdf)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31192320/%E6%88%AA%E5%B1%8F2020-10-31-%E4%B8%8B%E5%8D%8811.23.04.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31192353/%E6%88%AA%E5%B1%8F2020-10-31-%E4%B8%8B%E5%8D%8811.23.43.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31192408/%E6%88%AA%E5%B1%8F2020-10-31-%E4%B8%8B%E5%8D%8811.23.59.png)
+[点击下载PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31211120/E20-1-1.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31211120/E20-1-1.pdf)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31211149/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.11.38.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31211243/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.12.33.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31211304/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.12.54.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31211332/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.13.18.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31211353/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.13.43.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31211410/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.14.00.png)
 0
