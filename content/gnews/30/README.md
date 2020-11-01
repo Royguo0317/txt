@@ -1,22 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特拜登第三波：硬盘邮件解密31-1#（视频版）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/511959/)
+## 【精华版粤语快报】【路德社】10.31：亨特第三台电脑出现；左媒报导拜登家族腐败
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/512012/)
 
-编辑：玫瑰天空；制作：玫瑰天空&巴比奥
+制作单位：战友之家·粤语频道
 
-
-
-亨特拜登第三波：硬盘邮件解密
-2014年5月29日约翰·拿沃勾利在写给亨特·拜登和埃里克·史威林 （亨特的表弟）的邮件中谈论了布利斯玛（Burisma）在非洲的潜在商机
+制作团队：路德二组（Andy Su、心安、鬼五）
 
 
 
+摘要:
+
+美国禁毒署获得亨特拜登第三台电脑，通过追查毒品犯罪线最后的结果一定会再次震惊美国；中共蓝金黄就是最后就是影响西方的法律，最终就是通过3F方案搞乱美国；拜登家族就是中共的内应，硬盘内有证据可以证明乔拜登也参与了犯罪
+
+原视频链接:
 
 
-> [The Third Wave(Email 34 Declassification):5/29/2014 John Nevergole wrote to Hunter Biden and Eric Schwerin for some potential gas opportunities in Africa.](https://gnews.org/508150/)
 
-
-
-3+
+0

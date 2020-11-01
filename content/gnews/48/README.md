@@ -1,13 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 10月31日同声传译班农战斗室【第467+468期】
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/511147/)
+## 【19】硬盘第三波烧脑风暴继续！亨特·拜与瓦迪姆沟通挪威钓鱼行程邮件曝光！
+` GM01` [轉載自GNews](https://gnews.org/zh-hans/511254/)
 
-2020年10月31日同声传译班农战斗室【第467+468期】
+在经历了近几天“视频”“图片”的洗礼，大家一定被吸足了眼球！现在真正的烧脑风暴来了！你准备好了吗？接下来铁一般的证据，山一般的证明逐一清晰展示了中美两国盗国贼对人类的威胁和伤害！对法律的无视！以及对女性的侮辱甚至奴役变态！他们的人性已完全丧失！
 
+其实硬盘中还有绝大部分的视频因涉及到极为敏感，极为不人道，极为残忍的画面无法播放，将随后再进行处理。
 
+现在将为大家呈现Burisma与亨特拜登和中共之间勾兑的铁一般的事实，包括文件和Email的往来，以及相关人物往来！希望全世界有良知的战友都来关注。如果这样的事情不被揭发，人类将全面走向黑暗！
 
-#### **By: 【秘密翻译组G-Translators】**
-
+[点击下载PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31192253/E19-3.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31192253/E19-3.pdf)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31192320/%E6%88%AA%E5%B1%8F2020-10-31-%E4%B8%8B%E5%8D%8811.23.04.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31192353/%E6%88%AA%E5%B1%8F2020-10-31-%E4%B8%8B%E5%8D%8811.23.43.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31192408/%E6%88%AA%E5%B1%8F2020-10-31-%E4%B8%8B%E5%8D%8811.23.59.png)
 0
