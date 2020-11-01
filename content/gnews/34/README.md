@@ -1,23 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德时评：美大选结束日将会超两万安提法围着白宫 GTV直播有大人物连线 民主党议员“钱”功尽弃
-` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/512775/)
+## 【世界多语言图文】2020/10/22 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/513021/)
 
-内新闻：背靠背
+战友之家图文摘要及多语种组
 
-2020年10月31日，路德时评（路博艾冠谈）爆料美国大选11月3日，有超过两万多安提法(Antifa)支持者将会围着白宫，GTV直播，有很多大人物直播连线。三块硬盘扭转大选局势。如果中共不灭，与中共沆瀣一气的民主党高层没有好结果，通过家族基金隐秘持有的、不可追溯赃款，那张纸会被中共夺走，因为私人手机都被监控，身边人都被蓝金黄，最终竹篮打水一场空。
+[271\_English\_1022\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_English_1022_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_English_1022_CCP_Virus_Updates.pdf)
 
-51:05 路德先生：Atifa在准备骚乱，有两万多人，要围着白宫周围，据说，怎么地，都有两万多围在白宫周围，骚乱。所以，这里面就是11月3号晚上，这有很多大事出来。大家一定不要走开，唯一可以看的就是GTV，回头去GTV看，因为在GTV平台上，有很多大人物跟我们连线，一起来做直播，有很多大人在GTV。不在咱们Youtube而是在GTV。回头那天的绝对超越所有，什么CNN那些分析，对选情的分析，报道。大家一定要去GTV看。
+[271\_French\_1022\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_French_1022_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_French_1022_CCP_Virus_Updates.pdf)
 
-51:53 路德先生：然后，整个三块硬盘彻底改变了（美国）大选选情，民意。之前，告诉大家，生物武器（灭共TAKE DOWN THE CCP），由于川普总统身边还有中共的人和利益集团包括卖药的，最终他没有选择这个。当时如果他当时选择这个，100%民意一边倒，民意肯定大大一边倒，都不需要别的。川普最终被中共身边的人忽悠了。
+[271\_German\_1022\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_German_1022_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_German_1022_CCP_Virus_Updates_.pdf)
 
-52:38 路德先生：川普总统在感染病毒和第一次（总统候选人）辩论后，很多地方民意下降十几个点。因为在第一次辩论中，在病毒追责上没有明确表态，所以乔拜登在民意上有所提升。但自从9月24号之后，三块硬盘事件出来，并验证后，一个月后，民意彻底翻转，这是很神奇的事情。
+[271\_Japanese\_1022\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_Japanese_1022_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_Japanese_1022_CCP_Virus_Updates.pdf)
 
-53:22 路德先生：所以（美国）民意明确要求TAKE DOWN CCP。这成为主流了，这是国家安全事情，不是两党竞争问题。因为民主党很多跟中共勾兑的人也在考虑，危险，跟你勾兑的难道都有硬盘吗，都有被中共掌握录音、视频证据。那完了，等于说全部都被绑架。很多人跟中共勾兑，第一、想着从中共那赚钱，第二、中共可控、可防、可治。如果一发现中共不可控，家族权利内斗，最终让他们处于危险境地。很多与中共勾兑的人，那怕赚了几十亿美元，如果让他选择中国护照，看他们愿不愿意，100%没一个人愿意。居住北京，住中南海，看他们愿不愿意，绝对没人愿意去。
+[271\_Korean\_1022\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051126/271_Korean_1022_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051126/271_Korean_1022_CCP_Virus_Updates.pdf)
 
-54:45 路德先生：很明显都是利用中共赚钱，从基辛格主义到后面一系列的，逻辑都一样。没有想到与中共勾兑证据都被中共掌握。中共可以把他们赚的钱搞回去。分分钟各种方式，因为都是用不可追溯的家族基金方式，就算家族基金方式，中共也有办法，中共够黑，黑你手机号码，将你身边所有的人都蓝金黄，你的那张纸迟早也是变成它（中共）手里的。这回他们彻底看清楚了。（每日邮报）透露的（亨特拜登笔记本硬盘）资料，显示大量民主党高层参议员重要私人手机号码，打了多少电话，联系谁，基本都被（中共）控制和监控。
+[271\_Spanish\_1022\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_Spanish_1022_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_Spanish_1022_CCP_Virus_Updates.pdf)
 
-56:02 路德先生：政客，千万不要以为美国政客（清廉），政客没有干净的。就看谁能找到他（她）污点，这是最核心的。只是比谁更有本事把自己污点隐藏起来，所以三块硬盘起着重要作用。
+
 
 0
