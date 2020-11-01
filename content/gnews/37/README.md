@@ -1,26 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 早在2016年氯喹就被发现对非典、艾滋病、丙肝、埃博拉 、MERS等多种病毒有效！
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/511222/)
+## 《匹萨门》 第八集 超越国王和王后的文字版（上）
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/511421/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31190302/HCQ_20161207-phot169.png)图片来源：[CDC](https://unsplash.com/@cdc?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/virus?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText)
-【新闻简述】早在 2016 年 12 月发表于《药理研究与展望》的一篇科学综述文章就表明，氯喹类似物对多种病毒感染有效，包括艾滋病毒、登革热、甲型流感、丙肝、SARS 冠状病毒、埃博拉病毒、MERS 和其它病毒。这些病毒中的大多数是导致致命感染爆发的原因。氯喹类似物已被证明它在（病毒）复制和感染过程中抑制胞内体的酸化。此外，它的免疫调节作用对几种病毒性疾病的严重炎症并发症患者有益。有趣的是，成功的靶向策略之一是类似物对艾滋病病毒复制具有抑制作用，这些类似物正在数个体外临床试验进行测试。这篇综述的焦点是：氯喹类似物治疗胞内体低 pH 依赖性新发病毒性疾病的潜力。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31191128/HCQ_20161207_pdf-coverpage.png)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31185548/HCQ_20161207_Table1-part1-simplified.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31185542/HCQ_20161207_Table1-part2-simplified.png)
+摘自Gtv 《阴谋的败落》第八集
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31210910/IMG_3113.jpg)
+对欧洲皇族不为人知一面的研究越深，我的的探险之旅就走得越远，直到我被一件极其黑暗的事物绊倒，我会告诉你这些可怕的细节，这事太恐怖，太恶心，我鼓励你自己去查查谷歌，你听到的名字，自己读读，自己做决定。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31185536/HCQ_20161207_Table2-part1-simplified.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31185529/HCQ_20161207_Table2-part2-simplified.png)
+现在，我们再来看看匹萨门。匹萨门不仅是美国问题，它是一个全球问题，让我们学习什么才是匹萨门的真正意义。世界上的儿童被偷，被出售给精英的娈童癖圈子，作为撒旦庆典仪式的一部分，这些儿童被折磨，强奸和杀害，刽子手时候会喝掉死去儿童的血，并吃掉他们的肉。
+
+死前被残害折磨过的孩子血里含有肾上腺素，肾上腺素是大脑松果体产生的一种天然药物，被认为是世界上最昂贵的药，这些获取肾上腺色素的人膜拜之神为撒旦。而不是有爱和怜悯的上帝。
+
+不管你相信撒旦与否，他们相信撒旦，根据每一个有胆站出来的人证实，《匹萨门》是真的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31211224/r3STyglkTTSSOx39L0uN0A_thumb_8d68.jpg)
+还记得，梅尔 吉普森的声明吗？他不愿意同流而污而被被驱逐。尽管如此，他还是勇敢地指正了罪行。他也是少数几个敢发声明谴责的人之一，我认为他还活着是个奇迹，肾上腺素是真的被认为是仙丹。
+
+你吃了它是这样，但你再吃不到它是这样。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212025/IMG_3114.jpg)
+感谢川普总统。 脸书的创始人和总裁马克 扎克伯格，她的脸书帖子上写道，他在爱博斯坦的小圣詹姆斯岛上，也叫狂欢岛，“尽管很多人觉得看群体性行为愉悦而充实，我有时觉得看到后来从较小参加者身上移除肾上腺色素的过程对我很有挑战性…. 但是，服用肾上腺色素的过程却令我陶醉至极，是我以前的任何人行为从来未让我体验过的” 马克 扎克伯格。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212311/UNADJUSTEDNONRAW_thumb_8d6a.jpg)
 
 
+待续……
 
-[下载英文原文PDF](https://bpspubs.onlinelibrary.wiley.com/doi/epdf/10.1002/prp2.293)
+您可以登陆Gtv，目前已更新至第九集。
 
-[下载中文译文PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31185520/HCQ_20161207_for-download-simplified.pdf)
+链接：[https://gtv.org//?videoid=5f989990e7d0c633de29cf7f](https://gtv.org//?videoid=5f989990e7d0c633de29cf7f)
 
-【编者按】此文在美国卫生研究院 (NIH)， 即福奇医生 (Dr. Anthony Fauci) 所在的联邦部门下辖的论文数据库可轻易检索到（[https://pubmed.ncbi.nlm.nih.gov/28596841/](https://pubmed.ncbi.nlm.nih.gov/28596841/) ），且研究成果已经发表多年，因此以福奇医生为首的“建制派”科学家顽固地坚持“羟氯喹无用论”的观点就非常令人生疑。相信美国的法律终会将违法者绳之以法，即使是戴着“科学家”光环的人。
-
-翻译：【重生】 编辑：【Isaiah4031】
-
-战友之家玫瑰园小队出品
+转载：匿名
 
 0

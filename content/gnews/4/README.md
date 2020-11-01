@@ -1,15 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【21】硬盘第三波烧脑风暴继续！亨特·拜登使用化名进行戒毒瘾治疗
-` GM01` [轉載自GNews](https://gnews.org/zh-hans/511489/)
+## 重磅快讯：每日邮报爆料亨特拜登硬盘堪称“经典勒索材料”，内容含克林顿夫妇、前总统奥巴马内阁及众议院议长佩洛西和参议院共和党领袖麦康奈尔等电话号码！
+` GM01` [轉載自GNews](https://gnews.org/zh-hans/511671/)
 
-在经历了近几天“视频”“图片”的洗礼，大家一定被吸足了眼球！现在真正的烧脑风暴来了！你准备好了吗？接下来铁一般的证据，山一般的证明逐一清晰展示了中美两国盗国贼对人类的威胁和伤害！对法律的无视！以及对女性的侮辱甚至奴役变态！他们的人性已完全丧失！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31221817/35088830-8901193-image-a-11_1604180643596.jpg)
+据《星期日邮报》透露，被一些人期待成为美国下一任总统的人的儿子抛弃了一台笔记本电脑，里面竟然是充满绝密资料的宝库，包括他父亲的私人电子邮件，手机号码。
 
-其实硬盘中还有绝大部分的视频因涉及到极为敏感，极为不人道，极为残忍的画面无法播放，将随后再进行处理。
+亨特-拜登选择用一个简单的密码来保护他的MacBook Pro电脑。**那里面塞满了一位IT专家昨晚描述的 “国家安全噩梦 “和 “经典勒索材料”，但只有一个简单的密码：hunter02。**
 
-现在将为大家呈现Burisma与亨特拜登和中共之间勾兑的铁一般的事实，包括文件和Email的往来，以及相关人物往来！希望全世界有良知的战友都来关注。如果这样的事情不被揭发，人类将全面走向黑暗！
+值得注意的是，这位50岁的商人和已经自己承认吸毒者在2019年4月将机器带到特拉华州的一家后街IT商店进行维修–然而再也没有回来取机。纽约邮报上个月披露了它的存在，但其惊人的规模和敏感的内容，只要有一定技术的黑客就能轻易获得——今天才首次披露。这些材料，没有一个被加密或保护的东西，如基本的双因素认证。其中包括：
 
-[点击下载PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212018/E21-49-52.Wenming.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212018/E21-49-52.Wenming.pdf)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212045/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.20.29.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212104/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.20.54.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212153/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.21.39.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212211/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.22.01.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212225/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.22.15.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212242/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.22.32.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212255/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.22.46.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212311/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.23.01.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212325/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.23.16.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212339/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.23.29.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212352/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.23.43.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212408/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.23.56.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212423/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.23.56-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212441/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.24.32.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212503/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.24.52.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212539/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.25.29.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212609/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.25.52.png)
+- 乔-拜登的个人手机号码和三个私人电子邮件地址 以及他的特勤人员的名字。
+- 前总统比尔・克林顿的手机号码 他的妻子希拉里以及前总统奥巴马内阁的几乎所有成员的手机号码
+- 包括演员格温妮丝-帕特洛、冷玩歌手克里斯-马丁、前总统候选人约翰-克里、前联邦调查局局长路易斯-弗莱在内的1500人的联络数据库。
+- 个人文件包括亨特-拜登的护照、驾照、社保卡、信用卡和银行对账单等
+- 亨特-拜登的毒品和性问题的细节，包括在一个 “现场直播 “的色情网站上花了21000美元，以及他进行性行为和吸食可卡因的自拍照片。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31222247/35088778-8901193-image-a-2_1604180643566.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31222404/35088736-8901193-image-m-14_1604180686042.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31222418/35088736-8901193-image-a-3_1604180643568.jpg)
+昨晚，亨特的律师拒绝发表评论。拜登先生的代表没有回应评论请求。一位受雇分析从笔记本电脑下载的材料的网络专家说，这是真的。这位曾与美国执法机构合作过的专家表示：’我做这个工作已经20年了，没有任何迹象表明笔记本电脑或其内容被以任何方式干扰或改变。’没有任何数据被添加的迹象。在我看来，毫无疑问，这是真实的交易。
+
+联邦调查局去年12月掌握了电脑硬盘的副本，但拒绝确认或否认是否正在进行调查。
+
+不过，亨特的前商业伙伴之一托尼-波布林斯基声称，他于10月23日在华盛顿接受了FBI探员的面谈，并在那次会面中交出了与笔记本电脑上材料相符的手机记录。
+
+昨晚，一位熟悉MacBook Pro内容的消息人士说：’个人和财务信息的数量表明，亨特-拜登多年来一直是潜在的勒索素材。’似乎几乎无法想象，亨特-拜登，这位很可能成为我们下一任总统的儿子，竟然如此天真和鲁莽，没有基本的加密，甚至没有两级密码来保护如此高度敏感的资料。
+
+笔记本电脑上存储的信息包括2015年6月拜登先生在白宫办公室的工作人员发给亨特-拜登的姓名和手机号码，这是在亨特的弟弟博的葬礼之后几天，博因脑癌去世，享年46岁。**除了克林顿夫妇之外，还有美国两位最有权势的政治领导人的数字–众议院议长南希-佩洛西和参议院共和党领袖米奇-麦康奈尔。**
+
+早前一封来自2011年11月的电子邮件列出了拜登先生担任副总统时的特勤局细节的姓名和手机号码。**一位消息人士说：’这都是公然破坏安全的行为。’如果有敌对国家或个人设法入侵亨特的电脑–考虑到电脑上缺乏安全保障，这并不困难–他们会很容易发现谁在保护副总统，并有可能威胁到这些特勤人员的家人。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31222608/35088772-8901193-image-a-6_1604180643578.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31222626/35088770-8901193-image-a-9_1604180643590.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31222636/35090960-8901193-image-m-40_1604185676500.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31222647/35090962-8901193-image-m-45_1604185749087.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31222659/35090964-8901193-image-a-42_1604185706209.jpg)
+亨特-拜登沉迷于非法的性刺激，他曾经在纽约一家脱衣舞俱乐部的一个晚上就花了1.14万美元放荡不羁，并向一家成人 “实况录像 “色情网站掏出了超过2.1万美元。
+
+乔-拜登的儿子陷入毒品、酒精和淫秽的泥潭–让拜登家族很有可能成为勒索的目标。
+
+50岁的他被遗弃的笔记本电脑上的数百份文件和照片中暴露无遗。包括花了一大笔钱在陪酒女身上，大量的酒店账单，经常在一个晚上支付多个房间的费用。图文照片显示，他显然用烟斗吸食快克可卡因，并与身份不明的女性发生性行为。
+
+一位熟悉手提电脑内容（包括银行对账单和信用卡收据）的消息人士说：”亨特在色情网站上的消费惊人。有一次，他的信用卡因为被刷爆而被一家网站拒绝。’同一天晚上有多笔酒店房费。他在陪侍上花费了数千美元。
+
+**“他显然极易受到外部势力的勒索企图 影响他的父亲。”**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31222748/35088806-8901193-image-a-4_1604182797314.jpg)
+拜登档案中包含了众多性爱网站的登录细节和密码，以及多次向女性支付的款项，这些女性的名字都与陪侍网站有关联。其中一条来自Jasmin色情网站的信息，显示Hunter试图购买信用额度被 “因信用卡资金不足而被拒绝”。
+
+消息人士说：’当你看到这些内容时，留给你的画面是一个蓬头垢面的男人，他极力想在公众面前维持家庭形象，但在幕后却分崩离析。’他有着不负拜登之名的压力，但是，在私下里，他却潜入了这个黑暗的世界。
+
+by：文顾
+编辑：GM01
+来源：每日邮报
+链接：[https://www.dailymail.co.uk/news/article-8901193/National-security-nightmare-Hunter-Bidens-laptop.html](https://www.dailymail.co.uk/news/article-8901193/National-security-nightmare-Hunter-Bidens-laptop.html)
+
 0

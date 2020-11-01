@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 10/30/2020 班农: FBI风风火火的洗钱调查其实只是一个烟雾弹,拜登事件的重点是其与中共的勾兑
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/511080/)
+## 亨特·拜登硬盘邮件解密: 2015年6月7日乔·拜登法律顾问亚历山大·麦克勒向亨特·拜登提供参加会议的内阁大臣的电话号码
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/511127/)
 
 #### **By: 【秘密翻译组G-Translators】**
 
