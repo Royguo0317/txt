@@ -1,15 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【15】硬盘第三波烧脑风暴来袭！华锐张博和弗朗西斯邀请亨特拜登来中国，以及亨特的回复
-` GM01` [轉載自GNews](https://gnews.org/zh-hans/509720/)
+## 有关拜登家族的重要证据在邮寄过程中神秘失踪
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/509764/)
 
-在经历了近几天“视频”“图片”的洗礼，大家一定被吸足了眼球！现在真正的烧脑风暴来了！你准备好了吗？接下来铁一般的证据，山一般的证明逐一清晰展示了中美两国盗国贼对人类的威胁和伤害！对法律的无视！以及对女性的侮辱甚至奴役变态！他们的人性已完全丧失！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31114557/2jpg.jpg)
+据保守派的一个媒体报道，塔克·卡尔森（Tucker Carlson）透露，有人截获了一个快递，里面装有证明托尼·波布林斯基（Tony Bobulinski）爆料拜登家族的证据文件。这些文件是通过一家“知名的运输”公司邮寄的，但却神秘地从纽约到洛杉矶的运输中消失了。
 
-其实硬盘中还有绝大部分的视频因涉及到极为敏感，极为不人道，极为残忍的画面无法播放，将随后再进行处理。
+卡尔森提到，他从一个完全无法解释的角度来回顾这件事。以他最近的个人经验来看这个情况的发生非常特殊，除了因为被国土安全部监视之外，无法用其他任何方法来解释。
 
-现在将为大家呈现Burisma与亨特拜登和中共之间勾兑的铁一般的事实，包括文件和Email的往来，以及相关人物往来！希望全世界有良知的战友都来关注。如果这样的事情不被揭发，人类将全面走向黑暗！
+这个快递可能是被联邦调查局特工使用跟踪和监视拦截了，通过连接到与国土安全部相连的门户打开目标锁定。作为《美国爱国者法案》的一项条例，美国国土安全部与邮件运输公司，公共或私人服务部门达成了一项协议，该协议中允许他们跟踪所有州内和州际快递的门户。联邦调查局可以访问此数据网络，就像他们也可以访问联邦运输的记录一样。比如人们预订机票时一样，国土安全部的门户也是打开的，联邦调查局就可以追踪人们在国内的行踪。还可以通过Uber，Lyft等这类型的私人公司门户运输来进行查看，这样国土安全部和联邦调查局可以很容易的追踪到人们的行踪。
 
-[点击下载PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31114029/E15-55-1.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31114029/E15-55-1.pdf)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31112115/%E6%88%AA%E5%B1%8F2020-10-31-%E4%B8%8B%E5%8D%883.21.04.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31112147/%E6%88%AA%E5%B1%8F2020-10-31-%E4%B8%8B%E5%8D%883.21.34.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31112216/%E6%88%AA%E5%B1%8F2020-10-31-%E4%B8%8B%E5%8D%883.22.02.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31114138/%E6%88%AA%E5%B1%8F2020-10-31-%E4%B8%8B%E5%8D%883.41.28.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31112407/%E6%88%AA%E5%B1%8F2020-10-31-%E4%B8%8B%E5%8D%883.23.55.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31114232/%E6%88%AA%E5%B1%8F2020-10-31-%E4%B8%8B%E5%8D%883.42.21.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31113704/%E6%88%AA%E5%B1%8F2020-10-31-%E4%B8%8B%E5%8D%883.36.51.png)
+卡尔森说他敢打赌，有可能的情况是联邦调查局正在监视博布林斯基（Bobulinski）的通讯，和整个卡尔森自己的信息网络。一旦知道快递在运输过程中，就会打开国土安全部的门户渠道，追踪快递，然后联邦调查局介入拦截快递。运输公司不需要参与，因为他们的系统网络已经连接到了联邦调查局。
+
+翻译报道：Hakunamatata
+
+[新闻链接](https://theconservativetreehouse.com/2020/10/28/tucker-carlson-bobulinski-documents-intercepted-and-removed-from-overnight-package/)
+
 0

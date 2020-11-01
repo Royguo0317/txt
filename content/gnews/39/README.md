@@ -1,143 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 我用我残损的手掌
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/505606/)
+## 从薄甜甜给亨特·拜登的邮件看华信能源老总叶简明之死（一）
+` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/509734/)
 
-作者：桂花酒
+作者：为子孙爱七哥农场 烛阴之子
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31122412/%E5%8F%B6%E7%AE%80%E6%98%8E%E5%B0%81%E9%9D%A2.jpg)
+前阵子路德爆料：和亨特.拜登关系密切的薄熙来私生女薄甜甜与“硬盘门”事件有关，一时间“公主复仇”沸沸扬扬。又说薄女在华信能源老总叶简明手下工作，负责与亨特.拜登联系。2018年三月初叶简明被中共召回逮捕，是习近平亲自作的决定，事关薄女身份暴露。据传，叶在关押期间几次心脏病发作，一次甚至已经进了停尸房又活过来。不过结局很可能是已经死了，而且被沉尸上海黄浦江。今天，朱利安尼先生的最新视频证实了这一消息（见截图）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31122557/image0.png123.jpg)
+秘密翻译组新发布的薄甜甜在2018年3月26日给亨特的邮件，让我们有机会对这一扑朔迷离的事件略窥端倪：得悉叶突然被捕后，亨特解散了他与叶合作的Husdon west LLC，并派手下人通知解雇薄女。从邮件内容看，薄女似乎负责该公司的财务，熟知亨特的某些活动和花销，掌握其私生活内情和机密。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31122817/%E8%96%84%E7%94%9C%E7%94%9C%E9%82%AE%E4%BB%B6jpg.jpg)
+不过该邮件的重点是劝告对方利用叶的突然失踪，尽快拿走合作公司的钱，还说：“如果你不拿，那些钱最后会成为’无人认领的钱’……尽可能多的拿钱，拿走那些可以在美国动用的钱。或者，你或你的合伙人摩文/凯文（Mervyn/kervin) ，在中国有关部门对 这笔钱作出限制或指定新老板来打理叶留下的公司之前，找个可靠的办法把钱转到合适的美国帐号上。”
 
-校对：宁缺；审核：Julia Win；Page：拱卒
+她担心亨特不明白“无人认领的钱”是什么意思：“他们（指中共）会拿走所有这些您放弃的钱，没人知道那些钱最终会出现在他们的系统里，可能会有陌生人简单地把钱没收。”真不愧是特工出身的薄家血脉啊！不过既然她与“硬盘门”有关，暂且不论其动机也罢。
 
+且说横死黄埔江的叶简明何许人也？
 
-> *我用我残损的手掌*
+(未完待续）
 
+**更多精彩资讯请关注：**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7FW2PQxhAFZg7/images/2f72272c-d17f-499b-bd52-421928a2a98f.jpg?asset_id=f60d1e5e-0ef4-479c-9dbf-99c4a8b3ae1e&amp;img_etag=%2269f08bf4df2a4240616c542aa6ea2a2c%22&amp;size=1024)](https://spark.adobe.com/page/7FW2PQxhAFZg7/images/2f72272c-d17f-499b-bd52-421928a2a98f.jpg?asset_id=f60d1e5e-0ef4-479c-9dbf-99c4a8b3ae1e&amp;img_etag=%2269f08bf4df2a4240616c542aa6ea2a2c%22&amp;size=1024)
+- [为子孙爱七哥农场官方推特](https://twitter.com/wzsaqg)
+- [为子孙爱七哥农场官方GTV号](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
+- [欢迎加入农场discord官方群](https://discord.gg/mZG9MtM)
 
-我用残损的手掌，母亲
-
-拭去你干枯的泪痕。
-
-辛苦一年种地，
-
-到头却还蚀本。
-
-你衰老年迈的身躯，
-
-
-
-```
-哪有余钱存身？
-```
-
-
-
-
-我用残损的手掌，女儿
-
-
-拨动按键出声。
-
-那滴滴的音响，
-
-是我愧疚的灵魂。
-
-满以为送你到大学
-
-一切都将起死回生，
-
-谁料学校让你夜里
-
-
-
-```
-去陪黑人留学生。
-```
-
-
-
-我用残损的手掌，姐姐！
-
-女娲何苦用手造我为人？
-
-当官的性侵我娇美的外甥女
-
-完事做成木乃伊，
-
-在家里的密室
-
-
-
-
-```
-私存
-```
-
-
-
-
-他的儿子，
-
-吸毒后转脸
-
-就用迷药把你
-
-转交拜登！
-
-她好——
-
-
-
-```
-她母亲也一样容颜姣美。
-```
-
-
-
-我用我残损的手掌，孙女！
-
-不敢触碰你的伤痕，
-
-幼儿园成了魔窟，
-
-我欲哭无声。
-
-她们说手里有长长的望远镜
-
-一直伸到你家的房门，
-
-心肝儿啊！
-
-在妈妈怀里瑟瑟发抖，
-
-我的小人儿。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/7FW2PQxhAFZg7/images/d559b87e-17e2-459a-b1b8-905f3c4b36cf.jpg?asset_id=39af3882-f714-439d-b1a8-4f0b58bc064a&amp;img_etag=%2243f3721bfdb43310944771f6d97b929f%22&amp;size=1024)](https://spark.adobe.com/page/7FW2PQxhAFZg7/images/d559b87e-17e2-459a-b1b8-905f3c4b36cf.jpg?asset_id=39af3882-f714-439d-b1a8-4f0b58bc064a&amp;img_etag=%2243f3721bfdb43310944771f6d97b929f%22&amp;size=1024)
-
-我用残损的手掌，我
-
-只能在日记里
-
-偷偷的，
-
-偷偷的，
-
-留下一点泪痕……
-
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/7FW2PQxhAFZg7/)】-点击spark adobe版
-
-更多资讯敬请关注：
-
-【战鹰团Gab】[https://gab.com/himalayahawks](https://gab.com/himalayahawks)
-
-【英喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
-
-【英喜庄园GTV/盖特】:
-
-[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-【大卫作战室YouTube】：[https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
-
-![]()![](https://spark.adobe.com/page/7FW2PQxhAFZg7/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20123101/%E5%86%9C%E5%9C%BA%E5%B9%BF%E5%91%8Av7-3.jpg)
 2+

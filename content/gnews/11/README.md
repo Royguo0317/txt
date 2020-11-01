@@ -1,13 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 10月31日同声传译班农战斗室【第467+468期】
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/511147/)
+## 终极之战(6)
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/511241/)
 
-2020年10月31日同声传译班农战斗室【第467+468期】
-
-
-
-#### **By: 【秘密翻译组G-Translators】**
+拜登·亨特与中国共产党的勾结
 
 0

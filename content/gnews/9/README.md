@@ -1,26 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 早在2016年氯喹就被发现对非典、艾滋病、丙肝、埃博拉 、MERS等多种病毒有效！
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/511222/)
+## 一场关乎人类命运的大选
+` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/511118/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31190302/HCQ_20161207-phot169.png)图片来源：[CDC](https://unsplash.com/@cdc?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/virus?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText)
-【新闻简述】早在 2016 年 12 月发表于《药理研究与展望》的一篇科学综述文章就表明，氯喹类似物对多种病毒感染有效，包括艾滋病毒、登革热、甲型流感、丙肝、SARS 冠状病毒、埃博拉病毒、MERS 和其它病毒。这些病毒中的大多数是导致致命感染爆发的原因。氯喹类似物已被证明它在（病毒）复制和感染过程中抑制胞内体的酸化。此外，它的免疫调节作用对几种病毒性疾病的严重炎症并发症患者有益。有趣的是，成功的靶向策略之一是类似物对艾滋病病毒复制具有抑制作用，这些类似物正在数个体外临床试验进行测试。这篇综述的焦点是：氯喹类似物治疗胞内体低 pH 依赖性新发病毒性疾病的潜力。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31191128/HCQ_20161207_pdf-coverpage.png)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31185548/HCQ_20161207_Table1-part1-simplified.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31185542/HCQ_20161207_Table1-part2-simplified.png)
+作者：为子孙爱七哥农场 老枪6
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31192939/%E5%A4%A7%E9%80%89%E5%B0%81%E9%9D%A2.jpg)
+随着美国大选最后日期的临近，有关拜登家族等政客们的腐败丑闻越爆越多。以川普总统代表的为了美国国家利益的正义力量一方，与乔·拜登代表的妄图毁掉美国普世价值的腐败政客一方，展开了激烈的交战，并且已经进入到了白热化的状态。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31185536/HCQ_20161207_Table2-part1-simplified.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31185529/HCQ_20161207_Table2-part2-simplified.png)
+这次美国大选，不仅仅是一次总统选举，也是美国普世价值与马克思主义的世纪大决战，更是一场关乎人类命运的大选。以乔·拜登家族为代表的左派政客，长期与中共勾兑，贪污腐化堕落，挑拨种族矛盾，煽动暴力，支持＂黑人命贵、Antifa＂左派激进思潮，造成了社会分裂动荡，完全是想让社会主义理念占领美国这块神选之地，动摇美国的建国根基。大部分传统的美国人可能做梦也沒料到，社会主义反人类的邪灵正在神不知鬼不觉地来到了美国社会，进入了美国人民的家庭，破坏着美国社会自身的良好的社会秩序，逐步在美国社会中制造各种阶级对立，种族对立，政治对立，使得两党政治的和平竞争，变成了无法调和的对立矛盾。这一切的变化的始作俑者就是中共，这个共产主义幽灵的化身正威胁着全世界的一切生命。
 
+但是，这个世界上，毕竟是追求善良美好的普世价值观在主导着人类的方向，任何撒旦邪灵都无法阻挡人类社会迈向文明的步伐。川普总统，“He is the chosen one”，定会在神明的护佑下，奉天行道，让美国再次伟大！同时，爆料革命也将对此次大选起到决定性的作用。
 
+咱们回过头来看看，2017年，郭文贵先生选择在华盛顿DC，这个美国的政治中心，也是世界的权力中心，郑重的向美国发出了中共要搞乱搞垮搞死美国的警告！可是，美国政府当时并没有引起足够的重视！很多人还在怀疑这个警告的真实性，很多人根本没意识到中共和平面具下的狼子野心，加上那些砸郭的伪类、靠吃＂人血馒头＂的假民运从中作梗，致使爆料革命一开始并没有得到美国的广泛支持。可是随着时间推移，文贵先生所有对美国的警示一件一件都在现实生活中发生了！让信仰上帝的美国平民主义力量不得不承认过去对中共的看法是错误的，不得不承认几十年来是美国养肥了中共这条饿狼；ccp放出病毒之后，更是用数十万美国人的生命证明了文贵先生爆料革命的真实性，多么深刻的教训啊！
 
-[下载英文原文PDF](https://bpspubs.onlinelibrary.wiley.com/doi/epdf/10.1002/prp2.293)
+当美国被中共用各种手段搞成今天这个混乱局面而又无所适从的时候，又是文贵先生率领爆料革命的战友，帮助美国排干沼泽，对美国内部的各种间谍伪类进行持久的“惩贼行动”，并对以乔．拜登家族为主首的腐败政客们进行了坚决的揭露和抨击。虽然已有成千上万爆料革命战友的帐号被封杀，但战友们从未退缩过，并且表现出了一个正义的、新中国联邦人大无畏的战斗精神，前仆后继地在各社交平台“战线”上与邪恶势力进行顽強的斗争！已让打压爆料革命的某些媒体和“大鳄”付出了应有的惨重代价。与此同时，也在美国和世人面前真实的展示了我们新中国联邦人唯真不破誓与邪恶中共血战到底的正面形象。
 
-[下载中文译文PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31185520/HCQ_20161207_for-download-simplified.pdf)
+不论灭共之路有多么艰难，多少险阻，战友们都会秉承正道主义的信仰，挥舞新中国联邦蓝色的国旗，一路披荆斩棘，把爆料革命进行到底，直到彻底take down the CCP！
 
-【编者按】此文在美国卫生研究院 (NIH)， 即福奇医生 (Dr. Anthony Fauci) 所在的联邦部门下辖的论文数据库可轻易检索到（[https://pubmed.ncbi.nlm.nih.gov/28596841/](https://pubmed.ncbi.nlm.nih.gov/28596841/) ），且研究成果已经发表多年，因此以福奇医生为首的“建制派”科学家顽固地坚持“羟氯喹无用论”的观点就非常令人生疑。相信美国的法律终会将违法者绳之以法，即使是戴着“科学家”光环的人。
+**更多精彩资讯请关注：**
 
-翻译：【重生】 编辑：【Isaiah4031】
+- [为子孙爱七哥农场官方推特](https://twitter.com/wzsaqg)
+- [为子孙爱七哥农场官方GTV号](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
+- [欢迎加入农场discord官方群](https://discord.gg/mZG9MtM)
 
-战友之家玫瑰园小队出品
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20123101/%E5%86%9C%E5%9C%BA%E5%B9%BF%E5%91%8Av7-3.jpg)
 0

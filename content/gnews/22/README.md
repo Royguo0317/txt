@@ -1,80 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 又一次拜登邮件-14亿人民血汗钱竟被称为“无名氏的钱”
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/510459/)
+## 决战13天：惊爆！波兰前总统亚历山大·克瓦斯涅夫斯基恐是波兰的“乔·拜登“
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/510257/)
 
-*新闻来源：拜登的三个硬盘；发件人：鲍嘉琪(薄甜甜)；邮件发出时间：2018年3月26日 下午2时28分*
-
-*翻译/简评：毛毛猫猫；校对：MikeHua；审核：TCC；Page：拱卒*
-
-[!\[\]()!\[\](https://spark.adobe.com/page/VadDTdjwHemQp/images/be5a0523-fb5a-4113-8f0e-87338543233a.jpg?asset_id=aada6e47-a7b6-4904-a5be-ba6b40e3aa56&amp;img_etag=%220ce0c89b823cbc7ebb8345419e55b528%22&amp;size=1024)](https://spark.adobe.com/page/VadDTdjwHemQp/images/be5a0523-fb5a-4113-8f0e-87338543233a.jpg?asset_id=aada6e47-a7b6-4904-a5be-ba6b40e3aa56&amp;img_etag=%220ce0c89b823cbc7ebb8345419e55b528%22&amp;size=1024)鲍嘉琪(薄甜甜)告诉亨特拜登，“无名氏”的钱不拿白不拿
-
-**简评：**
-
-这封邮件是中共代理人薄甜甜在得知中共与拜登家族项目合作的哈德逊西部责任有限公司突然终止运作后，向亨特拜登发出的“交接函件”。这也是在叶简明失踪后，薄甜甜见大势已去，用一个同路人的口语，建议亨特小心行事并以情，理，想继续保留此人脉的一封邮件。该邮件除了透露薄甜甜与亨特拜登以及其家族成员的亲近关系，更重要的是向公众揭示了中共为了腐蚀利诱美国政客向其家属慷“民脂民膏”之慨的惊人内幕。把中国老百姓的血汗钱说成“无名氏的钱”，令人随取随用，真令人辛酸。中国人到底要当奴才到什么时候才会觉醒！
-
-![]()![](https://spark.adobe.com/page/VadDTdjwHemQp/images/cbef154e-d9cc-4ea5-96f1-8bc01eceb2e7.jpg?asset_id=54a378a2-a6f2-41d5-94db-7e8d2e9ff3d3&amp;img_etag=%22b6f5ae6c182264528976b18fb41d5063%22&amp;size=1024)鲍嘉琪(薄甜甜)
+- 作者：Free monkey、年糕
 
 
-发件人：鲍嘉琪(薄甜甜)
+***更多真相请关注：**[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)*
 
-主题：机密—你好和該交代的項目
+自从拜登硬盘事件发酵以来，牵扯出了一大串惊天爆料，其中也暴露了波兰前总统和亨特·拜登的牵扯。西班牙喜马拉雅农场本周五的直播就这个邮件展开了讨论，这位波兰前总统在本国的角色也许就类似乔·拜登之于美国。
 
-日期：2018年3月26日 下午2时28分
+人民网在2019年中共国庆日发表了一篇波兰前总统亚历山大·克瓦希涅夫斯基(Aleksander Kwaśniewski)贺中国人民国庆日的报道，通篇都是对中共国的吹捧。通过维基百科的页面我们可以了解到，这位与中共关系密切的前总统出身于波兰共和国社会民主党，任期从1995年到2005年。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31160356/1-1-18.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31155943/2-1-3.jpg)
+在他之后由莱赫·卡钦斯基(Lech Kaczyński)继任，他于2005年10月23日赢得选举，取代了这任共产党总统，奠定了波兰右派的胜利。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31155334/16-6.jpg)
+莱赫·卡钦斯基在2008年2月就西藏314事件对中共的血腥镇压行为强烈谴责，2008年12月他在总统府以个人身份会晤达赖喇嘛，“对达赖喇嘛为争取西藏真正意义上的[自治](https://zh.wikipedia.org/wiki/%E8%87%AA%E6%B2%BB)、特别是为促进世界[宗教](https://zh.wikipedia.org/wiki/%E5%AE%97%E6%95%99)和谐等所做出的努力表达了赞扬。”，此举受到了中华人民共和国外交部的强烈谴责。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31155348/18-3.jpg)
+但在汶川大地震中代表波兰人民个人名义向遇难者家属表示诚挚慰问，祝伤者早日康复。
 
-致：亨特拜登(两个不同的电子邮件地址:)
+从莱赫·卡钦斯基的事迹中我们能看出他是一个反对中共暴政但不反中国和中国人的总统。
 
-亨特，你好！
+在他在任期间卡钦斯基视北约为跨大西洋及全球安全体系的关键，因此和美国交往较近。但在与欧盟成员国的相处并不融洽，甚至陷入孤立境况。对俄罗斯和格鲁吉亚的冲突这位总统直言不讳点出俄罗斯的问题，得罪了俄罗斯。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31155405/20-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31155424/21-5.jpg)
+与亚历山大·克瓦希涅夫斯基不同的是，莱赫·卡钦斯基的经历十分悲惨，在上任第五年也就是2010年，罹难于一场空难。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31155526/14-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31155538/15-7.jpg)
+再让我们来看看从2015年就职的现任总统[安杰伊·杜达](https://zh.wikipedia.org/wiki/%E5%AE%89%E6%9D%B0%E4%BC%8A%C2%B7%E6%9D%9C%E8%BE%BE)（Andrzej Duda）上任后对中共暴政视而不见，对中共在香港和西藏的暴行缄口不言，还配合中共进行大量贸易往来和展现政治上对中共国的亲近意向。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31155610/8-15.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31155616/9-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31155642/10-10.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31155724/11-19.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31155751/12-19.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31155751/13-12.jpg)
+- 2015年 “‘中国-中东欧投资合作基金’管理公司收购了波兰两个新能源项目”
 
-我刚刚从Mervyn(Yan)那里得知公司解散的消息……我被告知我在办公室的最后一天应该是今天早上(3月31日)……这对我来说有点意外，因为我没想到一切都会这么突然，这么快。只希望你一切都好。虽然Mervyn没有告诉我这个决定背后的具体理由和细节，但我明白你、Jim叔叔(吉米·拜登)、Kevin和Mervyn一定是有很好的理由的才做出这样的决定。
 
-我想告诉你的是，如果有什么我可以帮忙的，请告诉我。很高兴将来继续能以朋友的身份帮助你。能为你工作是一件愉快的事，尽管我希望能更了解你，多花点时间和你在一起。祝愿你一切顺利，希望未来我们还会有交集。
+“希望新政府能够转变传统，将视线从所谓的‘西方’移向‘东方’新兴市场”
 
-因为你跟我说过，任何事情最好先跟你联系，所以在没和你谈之前，我不打算联系吉姆叔叔或任何人。不过，我还是想跟他好好道别一番。请转达我对吉姆叔叔的问候。为你们俩工作是很愉快的。请保持联系:）
+- 2016年 “波兰是中国在中欧的最大伙伴”
 
-在打包離開之前，请看下面的几项需要和你跟进的行政事务：
 
-1.你的差旅费报销：你所说的费用文件我还没有收到。请你方便的时候随时可以发给我。同时，我将根据你上次去纽约旅行时我能从酒店获得的任何发票，整理出一份费用报告给你备案。一旦完成，我就会发给你批示。不过，到现在为止，我还在等待酒店的发票，如果有什么额外的费用我应该为你添上，或者除了哥伦布圆环6号(6 Columbus Circle)和耶鲁俱乐部(Yale Club)之外，我应该找谁来获取发票/信用卡对账单/账单，请告诉我。
+“‘一带一路’建设离不开中波两国政府的参与与合作”
 
-2.你狗狗的项圈：我本来打算在你上次去纽约的时候把它带给你，但你太忙了，没做成。请你告诉我，我应该在何时何地给你带去，或者你希望怎么给你寄(送)过去。不过，我想最方便的方法就是下次你来纽约的时候来取。此时此刻（不用担心），它在一个安全的地方等着你。
+- 2020年 “央企国际化经营稳步推进”
 
-3.办公物品/办公室行政工作：办公室里有什么东西是你想让我帮你拿或整理的吗？或者说在3月31日我的最后一天，办公室里有什么需要我为您做的事情吗？
 
-[!\[\]()!\[\](https://spark.adobe.com/page/VadDTdjwHemQp/images/689937d1-f0f3-499d-8a77-3e0f2b68f7fb.jpg?asset_id=40de2cf6-83d2-403a-9da6-f0aa27d4fa4b&amp;img_etag=%223a7f1a7eb1dc606e71624d9340ce9897%22&amp;size=2560)](https://spark.adobe.com/page/VadDTdjwHemQp/images/689937d1-f0f3-499d-8a77-3e0f2b68f7fb.jpg?asset_id=40de2cf6-83d2-403a-9da6-f0aa27d4fa4b&amp;img_etag=%223a7f1a7eb1dc606e71624d9340ce9897%22&amp;size=1024)鲍嘉琪(薄甜甜)
+“中国电力建设集团有限公司的所属公司和波兰公司携手建设铁路修复项目，合同金额约10.5亿美元”
 
-我还有一些个人想法希望与您分享：
+中共媒体更是乐于去宣扬这一国际友好关系的建立，报道不断。
 
-1.关于业务的想法/思路：在你处理完你需要处理的事情后，我想我们应该坐下来总结一下业务上的问题。不管你做什么，不管你将来决定和谁合作，也不管你未来决定如何在业务方面开展工作，我想，，讨论和追加一些相关领域进展及根据过去我们触及的一些项目/主题延伸想法，再加上从我个人角度的观察，希望对你有所帮助。
+这一任又一任的波兰政界变动，清清楚楚的展示了何谓 “顺中共者昌，逆中共者亡“。
 
-2.有多少钱就留多少钱。我有点犹豫要不要跟你说这些，因为我不想让你误解我是个乱七八糟的坏女孩。不过，为了你的利益，我也管不了那么多了。以下是我的建议：不管哈德逊西部责任有限公司的钱是什么(来源)，请你拿着，并尽可能多拿点，或者为了你自己的利益找出办法把它花掉。不管哈德逊西部责任有限公司剩下的运营资金是被贴上 “个人善意或贷款 ”的标签，还是被贴上 “无追索权”“有追索权”或者“借贷/提取”的标签……请尽管拿着，并尽可能多的留给自己。以前的关于这笔钱的协议或名義什么的，现在都没有任何意义了，尤其是叶（简明）的情况发生了变化，不管怎么安排，反正都是个人层面的。如果你不拿这些钱，这些钱最终会变成“无名氏的钱”。所以，还是让这笔钱有个好归宿吧。“无名氏的钱 ”意味着他们会拿走你放弃的部分，没有人知道它在系统中的最终下落，任何陌生人都有可能平白無故拿走这笔钱。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25143553/image0-101.jpg)Himalaya Spain’s official Parler account, stay tuned! 
 
-此外，想想你所做的所有工作和贡献的时间和努力，你更有资格把这笔钱作为公平的回报。在私募基金行业，无论你是亏钱还是赚钱，你的钱都是被锁定的，你必须向基金经理支付运营费用。这个概念同样适用于你的这个情形。再者，对于律师和顾问来说，不管交易做不做，官司输赢，你的时间都是要付费的，你是可以保住你的佣金的。因此，你更应该把哈德逊西部有限责任公司营运资金上剩下的钱都留着，作为对你自己的补偿。所以，只要你们能在美国合法索取，或者你们(You/Mervyn/Kevin)想办法在中共国监管部门施加任何限制或任命新的上司来管理叶留下来的企业之前，把钱转到正确的美国账户上，你们能拿走多少就拿走多少吧。
-
-不要担心有人会说什么或排斥这个想法，只要能让帮助执行或者促成这个过程的人也能受益或得到一些东西就不会有问题（这是基于我对中共国事务处理方面的理解）。我不知道你和你朋友以及和“他们”的具体安排……但我希望你能明白，我在这里想表达的是：忘掉之前协议（在中共国的情况发生变化之前的协议）中说的任何标签和安排，只管尽量保留並尽可能多拿点钱。不要担心别人知道，只要处理得当，保持低调，确保一切都在中国发生任何变化之前完成。这些钱是安全的，没有机构会关心“无名氏的钱”的下落。请注意，我可是没有对你说过这些哦:)
-
-我说过，不管我是否为你工作，我会永远把你当作好朋友，当你需要我的时候，我很乐意帮助你。请不要疏远我哦。我还欠你一顿家常的中国菜，你要抓紧时间，记得我还欠你的哦;p。
-
-祝好
-
-JiaQi Bao 鲍嘉琪(薄甜甜)
-
-[email protected]
-
-[!\[\]()!\[\](https://spark.adobe.com/page/VadDTdjwHemQp/images/f5a921b6-0cc6-4c9a-8e42-a51c4a9abad6.jpg?asset_id=3ec13455-7a80-4b7f-9646-0e8bd28bc1cd&amp;img_etag=%2238456f5c635b38e182c295bb6fdecbaf%22&amp;size=1024)](https://spark.adobe.com/page/VadDTdjwHemQp/images/f5a921b6-0cc6-4c9a-8e42-a51c4a9abad6.jpg?asset_id=3ec13455-7a80-4b7f-9646-0e8bd28bc1cd&amp;img_etag=%2238456f5c635b38e182c295bb6fdecbaf%22&amp;size=1024)邮件原件照片
-
-[原文链接](https://twitter.com/WarRoomPandemic/status/1322033523667193856)[点击阅读倫敦英喜莊園Himalaya UK在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)[点击观看倫敦英喜莊園Himalaya UK在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/VadDTdjwHemQp/)】-点击spark adobe版
-
-更多资讯敬请关注：
-
-【战鹰团Gab】[https://gab.com/himalayahawks](https://gab.com/himalayahawks)
-
-【英喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
-
-【战鹰团Ins】：[https://www.instagram.com/himalayahawksquad/](https://www.instagram.com/himalayahawksquad/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/VadDTdjwHemQp/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/VadDTdjwHemQp/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
-0
+1+
