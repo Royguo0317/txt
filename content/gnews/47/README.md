@@ -1,43 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 常熟农商行员工受害群体爆料称3人已确认肺癌肺结节患者超106人
-` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/509769/)
+## 决战13天：惊爆！波兰前总统亚历山大·克瓦斯涅夫斯基恐是波兰的“乔·拜登“
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/510257/)
 
-素材：am心的小屋 内新闻：背靠背
+- 作者：Free monkey、年糕
 
-2020年10月31日，江苏省常熟市委外宣办、常熟市政府新闻办官方微博发布消息称，常熟农商行驻苏州工业园区2.5产业园的金融科技公司多名员工在体检中查出肺部结节。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31114720/image-213.png)
-10月28日，一张名为“常熟农商银行群体性肺结节事件”的截图在网上曝光。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31113333/image-208.png)
-对该事件按时间梳理：
 
-2020年8月31日，一名网名为“喝茶的猫”的网友在“苏州市12345阳光便民”网站上发出“救命贴”。该网友在帖子中称，“位于苏州工业园区的2.5产业园，常熟农商行内部员工体检后发现大部分员工都有肺部结节病症，而在一年前员工的体检都是正常的，有理由怀疑是公司刚搬进新装修的办公区导致的疾病。“目前已知的肺部结节病人有60多人，6月份体检出的报告，公司在得知消息后并不是第一时间排查给员工交代，而是在第一时间把剩余未体检的员工的体检日期推迟到十月份。”
+***更多真相请关注：**[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)*
 
-在该贴中，该名网友表示，有员工已经因为肺部结节接受了手术，当时只是认为自身原因。
+自从拜登硬盘事件发酵以来，牵扯出了一大串惊天爆料，其中也暴露了波兰前总统和亨特·拜登的牵扯。西班牙喜马拉雅农场本周五的直播就这个邮件展开了讨论，这位波兰前总统在本国的角色也许就类似乔·拜登之于美国。
 
-9月14日，“喝茶的猫”再次在“苏州市12345阳光便民”网站上发帖，表示患有肺部结节的常熟农商行员工人数已增加至75人。该网友称，“我们在等待行方给出处理方案，但是行方一直当做没有发生过，还安排了医生进行慰问洗脑，之后继续沉默。”
+人民网在2019年中共国庆日发表了一篇波兰前总统亚历山大·克瓦希涅夫斯基(Aleksander Kwaśniewski)贺中国人民国庆日的报道，通篇都是对中共国的吹捧。通过维基百科的页面我们可以了解到，这位与中共关系密切的前总统出身于波兰共和国社会民主党，任期从1995年到2005年。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31160356/1-1-18.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31155943/2-1-3.jpg)
+在他之后由莱赫·卡钦斯基(Lech Kaczyński)继任，他于2005年10月23日赢得选举，取代了这任共产党总统，奠定了波兰右派的胜利。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31155334/16-6.jpg)
+莱赫·卡钦斯基在2008年2月就西藏314事件对中共的血腥镇压行为强烈谴责，2008年12月他在总统府以个人身份会晤达赖喇嘛，“对达赖喇嘛为争取西藏真正意义上的[自治](https://zh.wikipedia.org/wiki/%E8%87%AA%E6%B2%BB)、特别是为促进世界[宗教](https://zh.wikipedia.org/wiki/%E5%AE%97%E6%95%99)和谐等所做出的努力表达了赞扬。”，此举受到了中华人民共和国外交部的强烈谴责。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31155348/18-3.jpg)
+但在汶川大地震中代表波兰人民个人名义向遇难者家属表示诚挚慰问，祝伤者早日康复。
 
-9月18日至10月27日，有常熟农商行员工在去医院复查时，发现自己身上的肺结节增大，其中有数位员工进行了手术切除部分肺部组织。
+从莱赫·卡钦斯基的事迹中我们能看出他是一个反对中共暴政但不反中国和中国人的总统。
 
-10月10日，一位女员工在进行血清癌抗检查时，初诊为肺癌。“毕业才1年，进入公司体检正常，年龄不到24岁。发生这件事，（她）不敢告诉家里的爸妈，独自含泪面对。”
+在他在任期间卡钦斯基视北约为跨大西洋及全球安全体系的关键，因此和美国交往较近。但在与欧盟成员国的相处并不融洽，甚至陷入孤立境况。对俄罗斯和格鲁吉亚的冲突这位总统直言不讳点出俄罗斯的问题，得罪了俄罗斯。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31155405/20-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31155424/21-5.jpg)
+与亚历山大·克瓦希涅夫斯基不同的是，莱赫·卡钦斯基的经历十分悲惨，在上任第五年也就是2010年，罹难于一场空难。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31155526/14-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31155538/15-7.jpg)
+再让我们来看看从2015年就职的现任总统[安杰伊·杜达](https://zh.wikipedia.org/wiki/%E5%AE%89%E6%9D%B0%E4%BC%8A%C2%B7%E6%9D%9C%E8%BE%BE)（Andrzej Duda）上任后对中共暴政视而不见，对中共在香港和西藏的暴行缄口不言，还配合中共进行大量贸易往来和展现政治上对中共国的亲近意向。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31155610/8-15.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31155616/9-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31155642/10-10.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31155724/11-19.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31155751/12-19.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31155751/13-12.jpg)
+- 2015年 “‘中国-中东欧投资合作基金’管理公司收购了波兰两个新能源项目”
 
-10月27日，员工病友微信群人数扩增至96人，其中有人表示：“银行领导采用鸵鸟策略，对同事的诉求不闻不问”，一份疑似农商行员工受害者诉求文件截图：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31113537/image-209.png)
-此外，疑似大量常熟农商行员工聊天室信息截图曝光，根据聊天内容发现整个过程，农商行领导层都在推诿，不作为，敷衍了事，员工健康利益无法保障，哭诉无门。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31113627/image-210.png)
-银行领导层安排讲座给员工洗脑，会议上声称，“家里解决就好，不要外传出去。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31113659/image-211.png)
-农商行领导层搬出办公环境检测报告继续推诿。10月29日，常熟农商银行在其官网发布关于体检中有员工查出肺结节的情况说明，称办公环境两次检测合格。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31115511/1-1-16.jpg)
-根据微信公众号行长助手收到的一份常熟农商行受害员工对媒体的申诉材料。该材料显示，至10月29日，肺结节患病员工已达106人，（仅统计加入微信病友群的人数），其实员工患有肺部结节人数远远不止106人，此外还有3名员工已确认肺癌。
 
-针对常熟农商行10月29日发布的“关于体检中有员工查出肺结节的情况说明”，该材料中共提出5点质疑（以下5点为材料原文内容，引用未作改动）：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31113753/image-212.png)
-农商行领导层解决问题方案与该行员工受害者诉求相差甚远，持续关注后续报道。
+“希望新政府能够转变传统，将视线从所谓的‘西方’移向‘东方’新兴市场”
 
-新闻来源：
+- 2016年 “波兰是中国在中欧的最大伙伴”
 
-https://m.sohu.com/a/428613906\_120161493scm=1002.b000b.1f2032c.ARTICLE\_REC https://view.inews.qq.com/a/20201030A08AJU00 https://view.inews.qq.com/a/20201029A07HLK00?tbkt=A&uid=
 
-2+
+“‘一带一路’建设离不开中波两国政府的参与与合作”
+
+- 2020年 “央企国际化经营稳步推进”
+
+
+“中国电力建设集团有限公司的所属公司和波兰公司携手建设铁路修复项目，合同金额约10.5亿美元”
+
+中共媒体更是乐于去宣扬这一国际友好关系的建立，报道不断。
+
+这一任又一任的波兰政界变动，清清楚楚的展示了何谓 “顺中共者昌，逆中共者亡“。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25143553/image0-101.jpg)Himalaya Spain’s official Parler account, stay tuned! 
+
+1+

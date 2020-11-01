@@ -13,147 +13,147 @@
 
 
 
-### [重磅快讯：每日邮报爆料亨特拜登硬盘堪称“经典勒索材料”，内容含克林顿夫妇、前总统奥巴马内阁及众议院议长佩洛西和参议院共和党领袖麦康奈尔等电话号码！](/content/gnews/1/README.md)
+### [川普总统连任系列四:突发，脸书删除了拥有29000名会员并支持川普总统连任的新泽西州女性私人组](/content/gnews/1/README.md)
+ ` GM101`
+
+### [重磅快讯：每日邮报爆料亨特拜登硬盘堪称“经典勒索材料”，内容含克林顿夫妇、前总统奥巴马内阁及众议院议长佩洛西和参议院共和党领袖麦康奈尔等电话号码！](/content/gnews/2/README.md)
  ` GM01`
 
-### [【21】硬盘第三波烧脑风暴继续！亨特·拜登使用化名进行戒毒瘾治疗](/content/gnews/2/README.md)
+### [【21】硬盘第三波烧脑风暴继续！亨特·拜登使用化名进行戒毒瘾治疗](/content/gnews/3/README.md)
  ` GM01`
 
-### [【20】硬盘第三波烧脑风暴继续！亨特及商业伙伴谈及天然气转向计划因俄罗斯受阻](/content/gnews/3/README.md)
+### [【20】硬盘第三波烧脑风暴继续！亨特及商业伙伴谈及天然气转向计划因俄罗斯受阻](/content/gnews/4/README.md)
  ` GM01`
 
-### [【19】硬盘第三波烧脑风暴继续！亨特·拜与瓦迪姆沟通挪威钓鱼行程邮件曝光！](/content/gnews/4/README.md)
+### [【19】硬盘第三波烧脑风暴继续！亨特·拜与瓦迪姆沟通挪威钓鱼行程邮件曝光！](/content/gnews/5/README.md)
  ` GM01`
 
-### [亨特·拜登第三波: 硬盘邮件解密39 2014年5月26日瓦迪姆·波扎尔斯基致函亨特·拜登，询问其哈萨克斯坦之行的随行人员数量](/content/gnews/5/README.md)
+### [亨特·拜登第三波: 硬盘邮件解密39 2014年5月26日瓦迪姆·波扎尔斯基致函亨特·拜登，询问其哈萨克斯坦之行的随行人员数量](/content/gnews/6/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【18】硬盘第三波烧脑风暴来袭！亨特拜登与德文阿彻底沟通安排BURISMA会谈及会见乌克兰相关要人](/content/gnews/6/README.md)
+### [【18】硬盘第三波烧脑风暴来袭！亨特拜登与德文阿彻底沟通安排BURISMA会谈及会见乌克兰相关要人](/content/gnews/7/README.md)
  ` GM01`
 
-### [【17】硬盘第三波烧脑风暴来袭！亨特拜登发抱怨邮件给私人助理！涉及部分开销信息！](/content/gnews/7/README.md)
- ` GM01`
+### [具有中共特色的“第二轮全员核酸检测”，新疆又新增61名无症状感染者](/content/gnews/8/README.md)
+ ` HAIKUOTIANKONG`
 
-### [中共将通过制造假身份证和邮寄选票来影响美国大选](/content/gnews/8/README.md)
- ` 喜马拉雅-华盛顿DC站`
-
-### [【热点播报】腐败丑闻令拜登成为负资产！左媒CNN突然转调：川普总统应得连任！](/content/gnews/9/README.md)
- ` 纽约香草山农场`
-
-### [《匹萨门》 第八集 超越国王和王后的文字版（上）](/content/gnews/10/README.md)
- ` Himalaya Australia`
-
-### [视频2020年10月31日中共病毒疫情要闻快报](/content/gnews/11/README.md)
- ` 秘密翻译组G-Translators`
-
-### [一场关乎人类命运的大选](/content/gnews/12/README.md)
- ` 为子孙爱七哥农场`
-
-### [早在2016年氯喹就被发现对非典、艾滋病、丙肝、埃博拉 、MERS等多种病毒有效！](/content/gnews/13/README.md)
- ` Isaiah4031`
-
-### [终极之战(6)](/content/gnews/14/README.md)
- ` GM62`
-
-### [视频10月31日同声传译班农战斗室【第467+468期】](/content/gnews/15/README.md)
- ` 秘密翻译组G-Translators`
-
-### [视频亨特·拜登硬盘邮件解密: 2015年6月7日乔·拜登法律顾问亚历山大·麦克勒向亨特·拜登提供参加会议的内阁大臣的电话号码](/content/gnews/16/README.md)
- ` 秘密翻译组G-Translators`
-
-### [视频亨特·拜登硬盘邮件解密: 2015年6月7日乔·拜登法律顾问亚历山大·麦克勒向亨特·拜登提供参加会议的内阁大臣的电话号码](/content/gnews/17/README.md)
- ` 秘密翻译组G-Translators`
-
-### [视频亨特·拜登硬盘邮件解密: 2018年3月26日亨特在叶简明“出事”后注销了Hudson West LLC,薄甜甜发长信“指导”亨特如何在中共更换新老板前捞钱](/content/gnews/18/README.md)
- ` 秘密翻译组G-Translators`
-
-### [视频10月31日今日要闻同声传译:班农连线路德+玛丽亚采访纳瓦罗+NEWSMAX采访朱利安尼+朱利安尼podcast重磅讲话](/content/gnews/19/README.md)
- ` 秘密翻译组G-Translators`
-
-### [视频10/30/2020 班农: FBI风风火火的洗钱调查其实只是一个烟雾弹,拜登事件的重点是其与中共的勾兑](/content/gnews/20/README.md)
- ` 秘密翻译组G-Translators`
-
-### [重磅视频：鲁迪·朱利安尼认定暗黑政治蛇头乔·拜登的5宗罪](/content/gnews/21/README.md)
- ` 秘密翻译组G-Translators`
-
-### [从总加速师上位看中共体制为何必然灭亡](/content/gnews/22/README.md)
- ` 巴塞罗那喜西农场`
-
-### [视频郭文贵先生最新单曲《为香港而战》MV正式版](/content/gnews/23/README.md)
- ` 秘密翻译组G-Translators`
-
-### [美国2020年第三季度GDP增长率为33.1％，创历史记录！](/content/gnews/24/README.md)
- ` Isaiah4031`
-
-### [决战13天：惊爆！波兰前总统亚历山大·克瓦斯涅夫斯基恐是波兰的“乔·拜登“](/content/gnews/25/README.md)
- ` 巴塞罗那喜西农场`
-
-### [又一次拜登邮件-14亿人民血汗钱竟被称为“无名氏的钱”](/content/gnews/26/README.md)
- ` 倫敦英喜莊園 Himalaya UK`
-
-### [亨特·拜登第三波: 硬盘邮件解密38 2015年2月16日瓦迪姆·波扎尔斯基致函告知亨特·拜登和德文·阿彻等人墨西哥之行签证事宜](/content/gnews/27/README.md)
- ` 秘密翻译组G-Translators`
-
-### [万圣节说勇气](/content/gnews/28/README.md)
- ` 温哥华加喜农场🇨🇦`
-
-### [War Room 467-468 摘要：选举和进一步揭露拜登犯罪集团](/content/gnews/29/README.md)
- ` 巴塞罗那喜西农场`
-
-### [亨特·拜登第三波: 硬盘邮件解密37 2015年5月14日时任美国世界粮食计划署公共政策副总裁的希瑟·汉森写信给亨特·拜登请求与其进行离职面谈](/content/gnews/30/README.md)
- ` 秘密翻译组G-Translators`
-
-### [亨特拜登的悲剧人生](/content/gnews/31/README.md)
- ` 温哥华加喜农场🇨🇦`
-
-### [视频硬盘门第三波二维码图集锦](/content/gnews/32/README.md)
- ` gnewscanada`
-
-### [美国参议院两个委员会发函要求特勤局局长澄清关于拜登邮件门的疑问](/content/gnews/33/README.md)
- ` GM80`
-
-### [Warroom 420：茉莉花谈中共如何消除了一代人的信仰，让每个人从孩提时代开始将中共领导人当作神](/content/gnews/34/README.md)
- ` snow`
-
-### [视频亨特·拜登性丑态短集](/content/gnews/35/README.md)
- ` gnewscanada`
-
-### [Warroom 407 莫拉：中共洗劫了6000座藏族寺院约600万人被杀；奥巴马和拜登豁免了中共公司在纽约监交所审计](/content/gnews/36/README.md)
- ` snow`
-
-### [视频“我是音雄”人物故事 第一季，第十一集：讽红秀三剑客](/content/gnews/37/README.md)
- ` GMusic`
-
-### [“我是音雄”第一季第十一期 第三场复赛 – 选手阵容](/content/gnews/38/README.md)
- ` GMusic`
-
-### [决战到天亮](/content/gnews/39/README.md)
- ` GM06`
-
-### [【16】硬盘第三波烧脑风暴来袭！德文·阿彻与亨特·拜登讨论布利斯玛公司项目邮件曝光！涉及乌克兰天然气！](/content/gnews/40/README.md)
- ` GM01`
-
-### [【香港要闻】去年8.31湾仔暴动案8名被告 全部罪名不成立 当庭释放【跟踪报导】](/content/gnews/41/README.md)
- ` GM42`
-
-### [爆革星评：FBI 对亨特·拜登的洗钱调查是烟雾弹](/content/gnews/42/README.md)
- ` gnewscanada`
-
-### [【香港要闻】法官判社工陈虹秀罪名不成立 律政司司长不服拟上诉](/content/gnews/43/README.md)
- ` GM42`
-
-### [从薄甜甜给亨特·拜登的邮件看华信能源老总叶简明之死（一）](/content/gnews/44/README.md)
- ` 为子孙爱七哥农场`
-
-### [军事时评 | 是谁，生错了年代 ？](/content/gnews/45/README.md)
- ` 公民之聲`
-
-### [我用我残损的手掌](/content/gnews/46/README.md)
- ` 倫敦英喜莊園 Himalaya UK`
-
-### [常熟农商行员工受害群体爆料称3人已确认肺癌肺结节患者超106人](/content/gnews/47/README.md)
+### [美国大选加州爆发冲突：安提法在比佛利山庄袭击川普总统的支持者 恍如昨日全球惩贼米德兰现场](/content/gnews/9/README.md)
  ` vog_dongdong_vog`
 
-### [视频【精华版粤语快报】【路德社】10.30：川普和朱利安尼讲话透露重要信息；推特股价暴跌20％；爆料革命巨大价值](/content/gnews/48/README.md)
+### [史丹利搬离深圳给员工超额补偿是否刺痛了赵家狗的心给无良企业挖了坑](/content/gnews/10/README.md)
+ ` NewFOC`
+
+### [视频2020年10月31日CCP冠状病毒大流行第280集](/content/gnews/11/README.md)
+ ` GM30`
+
+### [视频【重磅新闻】世纪大案：美国爆料者](/content/gnews/12/README.md)
+ ` 纽约香草山农场`
+
+### [澳喜要闻 路德时评31日晚间摘录](/content/gnews/13/README.md)
+ ` Himalaya Australia`
+
+### [推特公司终于解锁《纽约邮报》账号](/content/gnews/14/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [澳喜要闻 路德时评31日早间摘录](/content/gnews/15/README.md)
+ ` Himalaya Australia`
+
+### [【军事快讯】阿以空军力量增强，对伊朗合围形成](/content/gnews/16/README.md)
+ ` HAIKUOTIANKONG`
+
+### [【快讯】中共炒作中药防疫效用，引发中药材涨价潮](/content/gnews/17/README.md)
+ ` HAIKUOTIANKONG`
+
+### [视频【精华版粤语快报】【路德社】10.31：亨特第三台电脑出现；左媒报导拜登家族腐败](/content/gnews/18/README.md)
  ` GM42`
+
+### [视频亨特拜登第三波：硬盘邮件解密31-1#（视频版）](/content/gnews/19/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [中共国首个城投债爆雷债务危机爆发还远吗](/content/gnews/20/README.md)
+ ` GM08`
+
+### [新疆新增61例感染且出现跨州疫情,灭共3.0的条件已经越来越近](/content/gnews/21/README.md)
+ ` NewFOC`
+
+### [从亨特拜登的邮件将发现更多暗势力的存在](/content/gnews/22/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [中山三院持刀伤人后自杀者相关文章发出后遭删当局在隐藏什么](/content/gnews/23/README.md)
+ ` NewFOC`
+
+### [骇人听闻”死人”也会投票](/content/gnews/24/README.md)
+ ` gewsTaiwan`
+
+### [纳瓦罗专栏：美国的历史抉择](/content/gnews/25/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [白宫特情局的一封信](/content/gnews/26/README.md)
+ ` gewsTaiwan`
+
+### [【文字版】2020.10.31 &#8211; 1 路德时评（路安墨谈）：亨特拜登另一硬盘早在美禁毒署手中，16欺民賊资料已被掌握](/content/gnews/27/README.md)
+ ` 喜马拉雅-华盛顿DC站`
+
+### [波兰政要恐涉中共蓝金黄](/content/gnews/28/README.md)
+ ` 巴塞罗那喜西农场`
+
+### [【热点播报】纳瓦罗表明民主党与中共存在“不明不白的联盟”](/content/gnews/29/README.md)
+ ` 纽约香草山农场`
+
+### [中共将通过制造假身份证和邮寄选票来影响美国大选](/content/gnews/30/README.md)
+ ` 喜马拉雅-华盛顿DC站`
+
+### [【热点播报】腐败丑闻令拜登成为负资产！左媒CNN突然转调：川普总统应得连任！](/content/gnews/31/README.md)
+ ` 纽约香草山农场`
+
+### [《匹萨门》 第八集 超越国王和王后的文字版（上）](/content/gnews/32/README.md)
+ ` Himalaya Australia`
+
+### [视频2020年10月31日中共病毒疫情要闻快报](/content/gnews/33/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [一场关乎人类命运的大选](/content/gnews/34/README.md)
+ ` 为子孙爱七哥农场`
+
+### [早在2016年氯喹就被发现对非典、艾滋病、丙肝、埃博拉 、MERS等多种病毒有效！](/content/gnews/35/README.md)
+ ` Isaiah4031`
+
+### [终极之战(6)](/content/gnews/36/README.md)
+ ` GM62`
+
+### [视频10月31日同声传译班农战斗室【第467+468期】](/content/gnews/37/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频亨特·拜登硬盘邮件解密: 2015年6月7日乔·拜登法律顾问亚历山大·麦克勒向亨特·拜登提供参加会议的内阁大臣的电话号码](/content/gnews/38/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频亨特·拜登硬盘邮件解密: 2015年6月7日乔·拜登法律顾问亚历山大·麦克勒向亨特·拜登提供参加会议的内阁大臣的电话号码](/content/gnews/39/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频亨特·拜登硬盘邮件解密: 2018年3月26日亨特在叶简明“出事”后注销了Hudson West LLC,薄甜甜发长信“指导”亨特如何在中共更换新老板前捞钱](/content/gnews/40/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频10月31日今日要闻同声传译:班农连线路德+玛丽亚采访纳瓦罗+NEWSMAX采访朱利安尼+朱利安尼podcast重磅讲话](/content/gnews/41/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频10/30/2020 班农: FBI风风火火的洗钱调查其实只是一个烟雾弹,拜登事件的重点是其与中共的勾兑](/content/gnews/42/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [重磅视频：鲁迪·朱利安尼认定暗黑政治蛇头乔·拜登的5宗罪](/content/gnews/43/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [从总加速师上位看中共体制为何必然灭亡](/content/gnews/44/README.md)
+ ` 巴塞罗那喜西农场`
+
+### [视频郭文贵先生最新单曲《为香港而战》MV正式版](/content/gnews/45/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [美国2020年第三季度GDP增长率为33.1％，创历史记录！](/content/gnews/46/README.md)
+ ` Isaiah4031`
+
+### [决战13天：惊爆！波兰前总统亚历山大·克瓦斯涅夫斯基恐是波兰的“乔·拜登“](/content/gnews/47/README.md)
+ ` 巴塞罗那喜西农场`
+
+### [【17】硬盘第三波烧脑风暴来袭！亨特拜登发抱怨邮件给私人助理！涉及部分开销信息！](/content/gnews/48/README.md)
+ ` GM01`
 

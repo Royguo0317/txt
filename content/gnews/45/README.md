@@ -1,35 +1,187 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 军事时评 | 是谁，生错了年代 ？
-` 公民之聲` [轉載自GNews](https://gnews.org/zh-hans/509881/)
+## 郭文贵先生最新单曲《为香港而战》MV正式版
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/511013/)
 
-内新闻/素材：司廷Sting    校对：文迹～见证神迹
+**Fight for Hong Kong – Single by Miles Guo
+**[https://music.apple.com/us/album/fight-for-hong-kong-single/1537277836](https://music.apple.com/us/album/fight-for-hong-kong-single/1537277836)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31115434/PSX_20201031_205549.jpg)
+**歌词/lyrics：**
 
-10月28日，中共外交部发言人汪文斌在答记者问时，谴责彭佩奥： “再次攻击中国和中国共产党，声称**整个世界都面临中国实现其民族复兴志向的挑战**”**。**29日，新华社旗下参考消息发表评论，呐喊助威，批彭佩奥，生错了年代 ！
+Fight for Hong Kong
+为香港而战
+The enemy’s fear
+他们的恐惧
+is our weapon and our victory
+是我们的武器、我们的胜利
+Thank you all brothers and sisters
+谢谢了，兄弟姊妹们
+Have you worked out today?
+你们健身了吗?
+Action! Action! Action!
+行动！行动！行动！
+CCP, you’re over!
+中共，你完了
+Take down the CCP
+干灭中国共产党
+Take down the CCP
+干灭中国共产党
+Everything is just beginning
+一切都是刚刚开始
+For the games you want to play
+不管你花招用尽
+Bring it on and I will fight till the end
+来吧，我会战斗到底
+Just watch and see
+走着瞧
+It’s all started everything’s begun
+一切都已经开始
+And you are over!
+你完蛋了
+Coz’ we’re taking down the CCP
+因为我们正在推翻中共
+Spread the word of Hong Kong
+传播香港真相
+We will fight till they’re all gone
+我们会消灭掉所有敌人
+We rejoice when there’s no more
+我们将庆祝敌人的消亡
+Let’s take down the CCP
+让我们灭掉中共
+They’ve all lied for too long
+它们的谎言横行多年
+We will end when they do wrong
+如任其肆虐我们将没有未来
+Spread the word of Hong Kong
+传播香港的真相
+Let’s take down the CCP
+让我们灭掉中共
+Let the bullets fly a little longer
+让子弹再飞一会儿
+and you will surrender
+你终将屈膝投降
+Let the bullets fly a little longer
+让子弹再飞一会儿
+We will let freedom to live
+自由终将永存
+we will, when you surrender
+我们定会令你投降
+Let the bullets fly a little longer
+让子弹再飞一会儿
+Let the bullets fly a little longer
+让子弹再飞一会儿
+CCP, you’re over! Let the bullets fly a little longer
+中共，你完了 让子弹再飞一会儿
+Let the bullets fly a little longer
+让子弹再飞一会儿
+CCP, you’re over! Let the bullets fly a little longer
+中共，你完了 让子弹再飞一会儿
+Take Down the CCP, the evil CCP
+干灭中国共产党，这个CCP
+is the only way for us to live without fear
+才能让我们远离恐惧
+Take down the CCP
+灭掉中共
+They try to scare the nation with fabrication
+它们试图用谎言威吓整个民族
+But we see through the lies
+但我们已看清一切
+you will fall, we will fight you back
+你终将灭亡，而我们定会反击
+Police corruption with crooked assumption
+腐败的警察用歪曲的臆断执法
+They ran our lives
+它们荼毒我们的生命
+But no more, we will win
+我们不会允许你们继续作恶
+we will take down the CCP
+我们会推翻中共
+Spread the word of Hong Kong
+传播香港真相
+We will fight till they’re all gone
+我们会消灭掉所有敌人
+We rejoice when there’s no more
+我们将庆祝敌人的消亡
+Let’s take down the CCP
+让我们灭掉中共
+They’ve all lied for too long
+它们的谎言横行多年
+We will end when they do wrong
+如任其肆虐我们将没有未来
+Spread the word of Hong Kong
+传播香港真相
+Let’s take down the CCP
+让我们灭掉中共
+Let the bullets fly a little longer
+让子弹再飞一会儿
+and you will surrender
+你终将屈膝投降
+Let the bullets fly a little longer
+让子弹再飞一会儿
+We will let freedom to live
+自由终将永存
+we will, when you surrender
+我们定会令你投降
+Let the bullets fly a little longer
+让子弹再飞一会儿
+Let the bullets fly a little longer
+让子弹再飞一会儿
+Let’s stand up
+站起来吧
+Let the bullets fly a little longer
+让子弹再飞一会儿
+Let’s stand up
+站起来吧
+Let the bullets fly a little longer
+让子弹再飞一会儿
+All the enslaved people
+被奴役的人们
+Let the bullets fly a little longer
+让子弹再飞一会儿
+Action!
+行动
+Let the bullets fly a little longer
+让子弹再飞一会儿
+Action!
+行动
+Let the bullets fly a little longer
+让子弹再飞一会儿
+You’re over!
+你完了！
+Let the bullets fly a little longer
+让子弹再飞一会儿
+Take Down the CCP
+灭掉中共
+Let the bullets fly a little longer
+让子弹再飞一会儿
+and you will surrender
+你终将屈膝投降
+Let the bullets fly a little longer
+让子弹再飞一会儿
+We will let freedom to live
+自由终将永存
+we will, when you surrender
+我们定会令你投降
+Let the bullets fly a little longer
+让子弹再飞一会儿
+Take Down The CCP Let the bullets fly a little longer
+灭掉中共 让子弹再飞一会儿
+Take Down The CCP Let the bullets fly a little longer
+灭掉中共 让子弹再飞一会儿
+Take Down The CCP Let the bullets fly a little longer
+灭掉中共 让子弹再飞一会儿
+Take Down The CCP Let the bullets fly a little longer
+灭掉中共 让子弹再飞一会儿
+Take Down The CCP Let the bullets fly a little longer
+灭掉中共 让子弹再飞一会儿
+Take Down The CCP Let the bullets fly a little longer
+灭掉中共 让子弹再飞一会儿
+Take Down The CCP Let the bullets fly a little longer
+灭掉中共 让子弹再飞一会儿
+Take Down The CCP Let the bullets fly a little longer
+灭掉中共 让子弹再飞一会儿
+Take Down the Evil CCP
+灭掉这个邪恶的中国共产党！
 
-看看最近几天，在印太地区发生了什么，就知道中共为什么又跳脚。26日，美-日“利剑”军演在冲绳海域展开，同天，彭佩奥抵达新德里参加美-印2+2会谈；27日，台湾国防部证实，美国批准售台鱼叉导弹，同天，美-印签署了《地理空间合作基本交流与合作协定》；28日，越南外交部公告，应越南外交部邀请，彭佩奥将于29-30日访问越南。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31120026/7604-iufmpmn0329859.png)
-
-美-日军演，说明美日同盟牢不可破；对台军售严重挫败中共的“军事优势；访问越南，传递了越南对”东亚北约”感兴趣的信息；访印，对中共打击最大，中共气不打一处来。美-印《合作协定》，其实就是向印度提供中共军事部署的卫星数据，如此，印军的布拉莫斯、烈火导弹就长了眼，中共焉能不急眼 ！
-
-中共宣传有三个特点，曰：扯谎，曰：自吹，曰：很“正经”。这次批彭佩奥，三件法宝全上。
-
-首先，是批彭佩奥没资格评判中国，因为中国民众对政府有93%的满意度，远远高于美国民众对川普政府的满意度。是有这么一份哈佛大学的调查报告，2016年的。可是中共这些伎俩骗得了谁呢 ？一方面蓝金黄“调查者”，一方面组织党员 “被调查”。其实这是个“错误的”数据，对中共的满意度完全可以是100% ！干嘛不把谎言编得更彻底 ？
-
-其次，就是常人比不了的特点，脸皮厚。批彭佩奥说中共是“ 暴政“ ，人民满意度达到93%, 怎么会是暴政呢 ? 彭佩奥完全不顾事实！不是暴政 ？那是谁割开了张志新的喉咙 ？是谁用履带把学生碾成肉泥 ？是谁把刘晓波、许章润等等批评者投入监狱 ？是谁把新疆人关进集中营 ？铜锣湾事件是谁干的，肖建华又是谁绑走的 ？绑架都绑到美国了，还说”中国是机遇，不是威胁“。 脸皮厚还是有样好处，批判别人时可以很“进戏”，竟然忘了自己是什么东西。
-
-再次，外宣总是把自己装得“很正经”、“很正义“ ：“ 蓬佩奥的歪曲抹黑之词抹杀不了中国坚持和平发展、合作共赢的事实，也阻挡不了中国实现民族复兴的大势。**“  **很知名、也很搞笑的金政委说了，“合作共赢”，就是共产党赢两次。 “民族复兴”是占领联合国，颠覆美国 ，让全球红旗插遍 ！任何权利都没有的“民”，有什么“族”可言 ？即便有，这个“民族”和共产主义也没有半毛钱的关系； “百年梦”的实质就是“作梦” ！
-
-外宣文以这样一段话作收尾：“蓬佩奥之流鼓吹反共反华、煽动对抗分裂的言行，同全世界人民谋发展、求合作的普遍愿望背道而驰，终究逃脱不了失败的结局。”不知道是记错了彭佩奥的出生日期，还是搞错了历史纪年，事情给说反了。结局的确正一步步到来，失败的绝不是美国，“谋发展”，也不是非求中共不可，中共赢两次的事，没人愿意干，还是内循环为宜。
-
-至于我们究竟处在一个什么样的年代？ 毋庸多言，只需睁眼看看：苏联早已垮台，颜色革命一个接一个，人民不是”求”与中共合作，而是争民主，保自由；中国和世界已然不在同一个时间截面，在发达国家需要制止权力滥用时候，中共还在滥用权力，人民仍与臣民无异，一点权利都没有。时间轴的位置不同，时代自然不同，外宣文可能真的说对了，较之仍做着帝国梦，争霸主，活在秦皇汉武之年的人，彭佩奥之流的确错生了年代。反之，较之于自由、民主、法治盛行的今天，生错年代的中共，必然被扫入历史的垃圾堆。
-
-[新闻来源 ：参考消息 ：中方批彭佩奥“生错了年代”](http://www.ckxxbao.com/huanqiushibaodianziban/102916464R020_32.html)
-
-
-
-2+
+0

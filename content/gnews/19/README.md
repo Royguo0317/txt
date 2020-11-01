@@ -1,13 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 10月31日今日要闻同声传译:班农连线路德+玛丽亚采访纳瓦罗+NEWSMAX采访朱利安尼+朱利安尼podcast重磅讲话
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/511094/)
+## 亨特拜登第三波：硬盘邮件解密31-1#（视频版）
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/511959/)
 
-2020年10月31日今日要闻同声传译:班农连线路德+玛丽亚采访纳瓦罗+NEWSMAX采访朱利安尼+朱利安尼podcast重磅讲话
+编辑：玫瑰天空；制作：玫瑰天空&巴比奥
 
 
 
-#### **By: 【秘密翻译组G-Translators】**
+亨特拜登第三波：硬盘邮件解密
+2014年5月29日约翰·拿沃勾利在写给亨特·拜登和埃里克·史威林 （亨特的表弟）的邮件中谈论了布利斯玛（Burisma）在非洲的潜在商机
 
-0
+
+
+
+
+> [The Third Wave(Email 34 Declassification):5/29/2014 John Nevergole wrote to Hunter Biden and Eric Schwerin for some potential gas opportunities in Africa.](https://gnews.org/508150/)
+
+
+
+3+
