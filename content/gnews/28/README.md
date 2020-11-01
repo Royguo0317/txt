@@ -1,22 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】阿以空军力量增强，对伊朗合围形成
-` HAIKUOTIANKONG` [轉載自GNews](https://gnews.org/zh-hans/512085/)
+## 【重磅新闻】世纪大案：美国爆料者
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/512168/)
 
-内军事：鹰(文言) 素材：文朝汗（部落）校对：雅典娜的圣斗士(沙加)
+香草山综合报道
 
-环球网10月31日报道，时隔美国宣布向阿联酋出售F-35战机不久，美同意向以色列出售F-22隐形战斗机。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/01003406/WhatsApp-Image-2020-11-01-at-11.33.40.jpeg)
 
-2020年8月31日，在川普总统的协调下，阿联酋和以色列正式建交，签署“亚伯拉罕协议”，不但将中共通过“一带一路”影响阿拉伯世界的意图破灭，更将美国精力从中东沼泽中顺利撤出，完全用于应对中共威胁。
 
-在中东乱局中，中共的盟友主要是伊朗，除资助伊朗核计划外，更是短短半年时间协助伊朗建立生化实验室，意图以伊朗胁迫整个中东牵制美国。随着“亚伯拉罕协议”的签署，中共意图破灭，且由阿联酋和以色列为首的对伊朗合围初具形成。
 
-向阿联酋和以色列分别出售F-35和F-22，不仅加深和平协议影响，更是可以完全形成对伊朗的空域封锁，震慑其宵小行动，确保了美国大选前后中东形势的稳定过渡，更可以预防中共和伊朗勾兑挑起战争的企图。
 
-同时阿以军事合围更可对伊朗内部施压，迫使其民众觉醒，通过平民主义运动推翻伊朗非法政权，真正斩断中共的触角，实现中东地区和平。
 
-新闻来源：
-[https://mil.huanqiu.com/article/40VraaH9YJb](https://mil.huanqiu.com/article/40VraaH9YJb)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayanyM)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 1+

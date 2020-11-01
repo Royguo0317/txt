@@ -1,23 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/10/22 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/513021/)
+## 弃子，亨特∙拜登
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/513272/)
 
-战友之家图文摘要及多语种组
+多伦多加喜农场 鹰嘴逗逗
 
-[271\_English\_1022\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_English_1022_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_English_1022_CCP_Virus_Updates.pdf)
+校对上传 XM
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01063919/%E5%9B%BE%E7%89%871.jpg)
+都说亨特∙拜登是个败家子，近期的视频也展示了亨特∙拜登的斑斑劣迹：从毒品到淫乱，从伦乱到性犯罪，从公开的生意到神秘的五指湖，从利用乔∙拜登的权利大赚顾问费到10%的股份收入，无一不证明他是一个败家败族败国的人渣。
 
-[271\_French\_1022\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_French_1022_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_French_1022_CCP_Virus_Updates.pdf)
+按照中国人的说法：人之初性本善，那么亨特∙拜登从儿童时期的性本善，一步步走到今天这样的罪犯，是谁做的孽？那就是他的生父乔∙拜登，乔∙拜登是一个幕后黑手，一个把亨特∙拜登推上罪犯的幕后魔鬼！
 
-[271\_German\_1022\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_German_1022_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_German_1022_CCP_Virus_Updates_.pdf)
+亨特∙拜登的劣迹开始于一个瘾君子，作为父亲的乔∙拜登在政界夸夸其谈，这样的人物也一定有办法帮助亨特∙拜登戒毒，但是这个生父没有，至少是没有成效。当大媳妇向乔∙拜登求救，希望他能解决亨特∙拜登性侵大媳妇未成年的女儿时，乔∙拜登没有作为：保护未成年孩子是每个美国公民应尽的义务。他没有报警，也没有制止亨特∙拜登在家族内的伦乱和性犯罪。是乔∙拜登缺乏法律常识还是无能？我们不得而知，至少，象这样一个没有常识没有能力的人，就没有资格竞选美国总统。 还是乔∙拜登根本不希望亨特∙拜登改邪归正，这样可以更好地利用亨特∙拜登为自己卖命？
 
-[271\_Japanese\_1022\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_Japanese_1022_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_Japanese_1022_CCP_Virus_Updates.pdf)
+亨特∙拜登的毒瘾和性犯罪没有逃过中共的嗅觉，一个现成的投名状，中共就收复了亨特∙拜登。中共用乱性和犯罪把亨特∙拜登扶上马，更送一程，送他上了更牢固的绞首架。乔∙拜登借公务的机会带着魔鬼上身的亨特∙拜登，让儿子出面当自己的黑手，签下了一个个赚黑钱、洗黑钱的交易。
 
-[271\_Korean\_1022\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051126/271_Korean_1022_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051126/271_Korean_1022_CCP_Virus_Updates.pdf)
+说起乔∙拜登赚黑钱、洗黑钱的交易，乌克兰天然气的交易就可以作证。通过这个交易，中共借乔∙拜登只手，完成了欧洲大国首脑的臣服计划。当年乔∙拜登代表美国大使出使欧洲，表面上利用美国的实力摆平了欧洲各国的利益，实际上是完美地完成了中共收买欧洲政界的计划。乔同时私下利用儿子在塞浦路斯加盟建立了一个布里斯马的公司，参与乌克兰天然气运作。
 
-[271\_Spanish\_1022\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_Spanish_1022_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_Spanish_1022_CCP_Virus_Updates.pdf)
+按照中共的计划，败家子亨特∙拜登当顾问，实际公司利益收入拜登家族占30%，其中乔∙拜登10%，这可是上亿的黑心钱，就这样通过中共的安排，乔∙拜登收受贿赂，替中共干事。 公司的利润这边贿赂了美国乔∙拜登及其家属和其他政要，那边也贿赂了欧洲相关大国的“乔∙拜登”及其政要。好一个一石多鸟的猎捕头人的计划，没有乔∙拜登当时的位置是不行的，没有乔∙拜登的贪欲也是不行的，没有乔∙拜登“舍不得儿子套不住狼”的狠心，也是不行的。 一个为了自己的利益把儿子献出的父亲，当数乔∙拜登了。
 
+亨特∙拜登一步一个坑， 挖坑的自然是他自身的人性缺失，但是一直启发他、鼓励他挖坑、挖大坑的人还是其父乔∙拜登。乔∙拜登布了这么多地狱般的局，他没有用黑社会，没有用下三滥的社会渣子人员，他只用自己的儿子，只消耗自己亲生的儿子！历经了这么多被父坑害的亨特∙拜登，打落牙齿只能往肚里吞；他曾经求助过父亲，没有结果；他只能通过发泄找平衡，只能是更变态的乱性，性犯罪和吸毒。
 
+正如朱利安尼在一个视频上愤怒的说：“你（乔∙拜登）竟然用你自己的儿子，毁了他（亨特∙拜登）的一生” ！亨特∙拜登生在乔∙拜登的家里，被父亲亲手加害，成为一个自己都不敢面对的弃子。寒心呐！
 
-0
+1+

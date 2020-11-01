@@ -1,19 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/10/21 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/512981/)
+## 左派主流媒体的疯狂与转向
+` G-NEWS Taiwan` [轉載自GNews](https://gnews.org/zh-hans/513090/)
 
-战友之家图文摘要及多语种组
+台灣 文旦
 
-[270\_English\_1021\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050236/270_English_1021_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050236/270_English_1021_CCP_Virus_Updates.pdf)
+媒体是人民发声与了解时事的重要情报来源。在美国总统大选的厮杀下，激烈的媒体战是常有的事情。但是今天的媒体战，与往年不同，更加的激烈、更加的疯狂、更加的封锁消息、更加的封锁言论转贴。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01052424/%E5%B7%9D%E6%99%AE-1.png)
+不论你身处于追随哪一个政党，这都是影响”你”的重要问题，因为这会严重改变你的讯息来源，了解两党主要政策及消息是评估你自身是否要”投票”的依据。但这些消息被封锁、被屏蔽、被禁止转贴、被禁止发声，这就很可怕了。
 
-[270\_French\_1021\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050237/270_French_1021_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050237/270_French_1021_CCP_Virus_Updates.pdf)
+代表着知道真相的人无法传递讯息，不知道真相的人一直再假消息中以为自己的消息才是正确，最终可能变成激烈的对况，互相认为对方才有问题而增加仇恨，这就是封锁言论自由导致某些激进分子的结果。
 
-[270\_German\_1021\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050237/270_German_1021_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050237/270_German_1021_CCP_Virus_Updates_.pdf)
+在这场媒体战当中可以发现，这些左派媒体，一直的封锁真相，直到现在有良知的媒体人一个一个的站了出来，告知大家，这个”民调”是错误的、哪些消息是正确的新闻。
 
-[270\_Korean\_1021\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050238/270_Korean_1021_CCP_Virus_Updates-1.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050238/270_Korean_1021_CCP_Virus_Updates-1.pdf)
+甚至离开他的媒体公司去告知大众正确的消息，因为”真相”的曝光，让更多有良知的人醒悟、让有良知的人知道自己该站出来，告知更多人”真相”。因为这些社交媒体的行为，最后会产生非常严重的后果。为了避免这不应该存在的后果，所以他们站了出来，也连带着这些左派媒体开始曝光真相，因为如果他们不曝光真相，他们这些媒体未来的命运，将是没有人会信任，”公正”与”事实”。因此，媒体最重要的，也是媒体存在的意义，接受不同得声音，不压制其他声音，，了解事实，及正确的价值观，才能让媒体可以继续存在。
 
-[270\_Spanish\_1021\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050236/270_Spanish_1021_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050236/270_Spanish_1021_CCP_Virus_Updates.pdf)
+“真相”将改变历史，改变这场大选，揭露”中共”的阴谋，揭露”中共”的黑手，在这场大选背后真正的黑手，真正在这场大选随处可见的影子”中共”所有的手段，将在这个”真相”底下接露无遗，传播真相吧!
 
-0
+1+
