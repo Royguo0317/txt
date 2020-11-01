@@ -1,15 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【21】硬盘第三波烧脑风暴继续！亨特·拜登使用化名进行戒毒瘾治疗
-` GM01` [轉載自GNews](https://gnews.org/zh-hans/511489/)
+## 亨特拜登第三波：硬盘邮件解密31-1#（视频版）
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/511959/)
 
-在经历了近几天“视频”“图片”的洗礼，大家一定被吸足了眼球！现在真正的烧脑风暴来了！你准备好了吗？接下来铁一般的证据，山一般的证明逐一清晰展示了中美两国盗国贼对人类的威胁和伤害！对法律的无视！以及对女性的侮辱甚至奴役变态！他们的人性已完全丧失！
+编辑：玫瑰天空；制作：玫瑰天空&巴比奥
 
-其实硬盘中还有绝大部分的视频因涉及到极为敏感，极为不人道，极为残忍的画面无法播放，将随后再进行处理。
 
-现在将为大家呈现Burisma与亨特拜登和中共之间勾兑的铁一般的事实，包括文件和Email的往来，以及相关人物往来！希望全世界有良知的战友都来关注。如果这样的事情不被揭发，人类将全面走向黑暗！
 
-[点击下载PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212018/E21-49-52.Wenming.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212018/E21-49-52.Wenming.pdf)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212045/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.20.29.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212104/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.20.54.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212153/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.21.39.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212211/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.22.01.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212225/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.22.15.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212242/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.22.32.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212255/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.22.46.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212311/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.23.01.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212325/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.23.16.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212339/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.23.29.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212352/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.23.43.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212408/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.23.56.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212423/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.23.56-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212441/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.24.32.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212503/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.24.52.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212539/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.25.29.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31212609/%E6%88%AA%E5%B1%8F2020-11-01-%E4%B8%8A%E5%8D%881.25.52.png)
-0
+亨特拜登第三波：硬盘邮件解密
+2014年5月29日约翰·拿沃勾利在写给亨特·拜登和埃里克·史威林 （亨特的表弟）的邮件中谈论了布利斯玛（Burisma）在非洲的潜在商机
+
+
+
+
+
+> [The Third Wave(Email 34 Declassification):5/29/2014 John Nevergole wrote to Hunter Biden and Eric Schwerin for some potential gas opportunities in Africa.](https://gnews.org/508150/)
+
+
+
+3+

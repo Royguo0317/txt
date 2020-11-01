@@ -1,22 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特拜登第三波：硬盘邮件解密31-1#（视频版）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/511959/)
+## 具有中共特色的“第二轮全员核酸检测”，新疆又新增61名无症状感染者
+` HAIKUOTIANKONG` [轉載自GNews](https://gnews.org/zh-hans/512262/)
 
-编辑：玫瑰天空；制作：玫瑰天空&巴比奥
+内新闻/素材：Stephen（文文）
+校对：老白
 
+中共国10月31日报告新疆新增无症状感染者61例，这61例都是在“第二轮全员核酸检测”中被发现的。中共在10月27日已经在喀什及周边地区完成了全员核酸检测，除了当时发现的133名阳性病例外，其余都为阴性。但是几天后依然还有阳性病例出现，怎么办？之前的牛已经吹过了，都已经全部阴性了，这些阳性病例从哪里来？中共又搞了个“第二轮全员核酸检测”，通过第二轮的筛查，发现了这61名无症状感染者。
 
+中共也就是承认自己第一轮的全员筛查并不能完全排除阳性感染者！那么按照中共的逻辑和检测能力，武汉、北京、大连、青岛等地疫情发生后的一轮全员核酸检测也一定会有阳性病例漏检、漏报！
 
-亨特拜登第三波：硬盘邮件解密
-2014年5月29日约翰·拿沃勾利在写给亨特·拜登和埃里克·史威林 （亨特的表弟）的邮件中谈论了布利斯玛（Burisma）在非洲的潜在商机
+而且武汉、北京、青岛的人口规模、人口密度远远大过新疆喀什，发病人数上武汉、北京目前远超新疆。按照中共逻辑，武汉、北京、青岛等地的一轮的核酸全员检测怎么够啊，不来第三轮，也要来第二轮吧？
 
+中共瞒报疫情、检测能力低、却又夸大宣传，所以导致逻辑上漏洞百出，在新疆疫情尚未明确前就宣布“其余阴性”，结果被疫情打脸，不得不编造出其特色的“第二轮全员核酸检测”来解释新增病例的来源。
 
+中共二轮全员核酸新闻节选：
+截至10月27日18时，克州完成全员核酸检测，检测结果均为阴性。30日，克州对重点地区、重点人群开展了第二轮免费核酸检测。30日24时至31日18时，阿克陶县与疏附县相邻的喀热开其克乡和皮拉勒乡新增无症状感染者15例。
 
+新闻链接：
+[https://news.sina.cn/2020-10-31/detail-iiznezxr9191286.d.html?cre=tianyi&mod=w2019ncov&loc=1&r=0&rfunc=84&tj=cxvertical\_2019ncov&tr=85&vt=4&pos=222](https://news.sina.cn/2020-10-31/detail-iiznezxr9191286.d.html?cre=tianyi&amp;mod=w2019ncov&amp;loc=1&amp;r=0&amp;rfunc=84&amp;tj=cxvertical_2019ncov&amp;tr=85&amp;vt=4&amp;pos=222)
 
+[https://m.weibo.cn/status/Jr9s3xDmw?jumpfrom=weibocom](https://m.weibo.cn/status/Jr9s3xDmw?jumpfrom=weibocom)
 
-> [The Third Wave(Email 34 Declassification):5/29/2014 John Nevergole wrote to Hunter Biden and Eric Schwerin for some potential gas opportunities in Africa.](https://gnews.org/508150/)
-
-
-
-3+
+1+
