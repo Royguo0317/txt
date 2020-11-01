@@ -1,27 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英国中共CCP病毒疫情恶化首相宣布英格兰第二次封城
-` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/512861/)
+## 【世界多语言图文】2020/10/21 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/512981/)
 
-内新闻：背靠背
+战友之家图文摘要及多语种组
 
-英国时间10月31日晚，英国首相鲍里斯·约翰逊（Boris Johnson）召开新闻发布会，宣布从11月5日起英国英格兰地区将开始实施第二次全国封锁，以防止国民保健服务系统（NHS）遭受医疗和道德灾难。
+[270\_English\_1021\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050236/270_English_1021_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050236/270_English_1021_CCP_Virus_Updates.pdf)
 
-第二次封锁将直至12月2日结束。届时，除售卖生活必需品的超市外，餐饮、娱乐等非生活必须设施、机构一律暂停营业。
+[270\_French\_1021\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050237/270_French_1021_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050237/270_French_1021_CCP_Virus_Updates.pdf)
 
-他说：酒吧，餐馆，体育馆和非必需品商店将从周四起关闭四周。但是与春季的限制不同，学校，学院和大学可以保持开放。
+[270\_German\_1021\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050237/270_German_1021_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050237/270_German_1021_CCP_Virus_Updates_.pdf)
 
-他说：12月2日之后，限制将放宽，地区将恢复到分级系统。
+[270\_Korean\_1021\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050238/270_Korean_1021_CCP_Virus_Updates-1.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050238/270_Korean_1021_CCP_Virus_Updates-1.pdf)
 
-约翰逊先生还说：今年圣诞节将有所不同，也许会有很大不同，但是我真诚的希望和信念是，通过现在采取强硬的行动，我们可以允许全国各地的家庭在一起。
-
-他在唐宁街的新闻发布会上说，对企业的影响表示“真的，真的很抱歉”，但他表示，将支付员工工资的80％的休假制度将延长至11月。
-
-英格兰是英国最大，人口最多的组成部分，在威尔士，苏格兰和北爱尔兰已经实行了当地禁区和更严格的限制。
-
-截至周五晚上，全英国有24,405例新病例和274例新死亡。英国的累计死亡人数为46,229人，是欧洲最高的。
-
-新闻来源：https://www.bbc.com/news/uk-54763956
+[270\_Spanish\_1021\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050236/270_Spanish_1021_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050236/270_Spanish_1021_CCP_Virus_Updates.pdf)
 
 0
