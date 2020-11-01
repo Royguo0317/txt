@@ -1,143 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 我用我残损的手掌
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/505606/)
+## 【香港要闻】法官判社工陈虹秀罪名不成立 律政司司长不服拟上诉
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/509988/)
 
-作者：桂花酒
+整撰：文燕
 
-校对：宁缺；审核：Julia Win；Page：拱卒
+审核：MY
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31123411/image001-22.png)图片来源：众新闻
+据众新闻报道，8.31湾仔暴动案第五被告社工陈虹秀，上月29日获法官裁定表证不成立当庭释放。律政司司长不服裁定，5日后致函区域法院法官沈小民，指因裁定的法律观点有错误而「感到受屈」，要求法官列明裁定的事实和理由，以便提出上诉。
 
+沈官今日颁下的判词，指出假如警方执法没有按规则行事，因而有人站出来提醒他们按法例行事，这做法也许会令一些警员感到不悦，但若要控诉该人暴动罪，本席看不到该人如何会成为暴动的一份子。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31123434/image003-15.png)陈虹秀今天在Facebook贴出律政司司长有意提出上诉的信函。
+沈小民今日颁下判词指出，客观情况显示第五被告出现的地方，在不同时间确实有很多人聚集在一起，有人曾投掷汽油弹，又燃烧离物。但问题是，有否表面证据显示，被告与为着破坏社会安宁的目的与这班人集结在一起？虽然陈虹秀被捕后没有受伤，但本案确有被告被捕后身体多处受伤。以辩方角度来看，他们会认为有关警员使用了不必要武力，甚至是非法武力，例如影片显示有多名防暴警员，举起警棍击打第六被告人，导致他头破血流。
 
-> *我用我残损的手掌*
+判词指出，陈虹秀当晚叫警察「克制」、「不要开枪」等，明显是提醒他们不要肆意使用暴力；至于叫警察给予市民足够时间离开，也是配合警方呼吁，以上种种根本不可能令人想象被告当时有破坏社会安宁的目的。
 
+控方并无证据显示被告与暴动分子集结在一起，虽然片段显示被告在一群黑衣人中出现，但那些黑衣人当时并没有做什么，被告也没有与他们交谈接触，不到几秒便在镜头外消失。被告看来视察一下环境多于一切，证据不足以支持被告与暴动分子集结，并有着「破坏社会安宁」共同目的。法官指出：「这样薄弱的证据，连非法集结的罪行也支持不了」，因此行使酌情权裁定陈虹秀表证不成立，撤销控罪。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7FW2PQxhAFZg7/images/2f72272c-d17f-499b-bd52-421928a2a98f.jpg?asset_id=f60d1e5e-0ef4-479c-9dbf-99c4a8b3ae1e&amp;img_etag=%2269f08bf4df2a4240616c542aa6ea2a2c%22&amp;size=1024)](https://spark.adobe.com/page/7FW2PQxhAFZg7/images/2f72272c-d17f-499b-bd52-421928a2a98f.jpg?asset_id=f60d1e5e-0ef4-479c-9dbf-99c4a8b3ae1e&amp;img_etag=%2269f08bf4df2a4240616c542aa6ea2a2c%22&amp;size=1024)
+战友点评：
 
-我用残损的手掌，母亲
+我们庆幸香港还有沈小民这样的正义法官，给港人一点希望。但可恨的是，陈虹秀案在证据不足，获法官裁定表证不成立当庭释放后，律政司司长竟不服裁定，继而致函区域法院法官沈小民，指因裁定的法律观点有错误而「感到受屈」。
 
-拭去你干枯的泪痕。
+值得留意的是，早前立法会议员何君尧曾提过要整顿香港司法界、教育和社福界「三座大山」，而陈虹秀恰好是来自社福界的社工。律政司司长对陈虹秀「咬死不放」，硬要把陈虹秀往死里整。不排除律政司司长针对陈虹秀上诉，是有政治目的，是要借陈虹秀开刀，把魔爪伸向社福界的序幕。
 
-辛苦一年种地，
+以上观点仅代表笔者本人
 
-到头却还蚀本。
+资料来源：众新闻
 
-你衰老年迈的身躯，
-
-
-
-```
-哪有余钱存身？
-```
-
-
-
-
-我用残损的手掌，女儿
-
-
-拨动按键出声。
-
-那滴滴的音响，
-
-是我愧疚的灵魂。
-
-满以为送你到大学
-
-一切都将起死回生，
-
-谁料学校让你夜里
-
-
-
-```
-去陪黑人留学生。
-```
-
-
-
-我用残损的手掌，姐姐！
-
-女娲何苦用手造我为人？
-
-当官的性侵我娇美的外甥女
-
-完事做成木乃伊，
-
-在家里的密室
-
-
-
-
-```
-私存
-```
-
-
-
-
-他的儿子，
-
-吸毒后转脸
-
-就用迷药把你
-
-转交拜登！
-
-她好——
-
-
-
-```
-她母亲也一样容颜姣美。
-```
-
-
-
-我用我残损的手掌，孙女！
-
-不敢触碰你的伤痕，
-
-幼儿园成了魔窟，
-
-我欲哭无声。
-
-她们说手里有长长的望远镜
-
-一直伸到你家的房门，
-
-心肝儿啊！
-
-在妈妈怀里瑟瑟发抖，
-
-我的小人儿。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/7FW2PQxhAFZg7/images/d559b87e-17e2-459a-b1b8-905f3c4b36cf.jpg?asset_id=39af3882-f714-439d-b1a8-4f0b58bc064a&amp;img_etag=%2243f3721bfdb43310944771f6d97b929f%22&amp;size=1024)](https://spark.adobe.com/page/7FW2PQxhAFZg7/images/d559b87e-17e2-459a-b1b8-905f3c4b36cf.jpg?asset_id=39af3882-f714-439d-b1a8-4f0b58bc064a&amp;img_etag=%2243f3721bfdb43310944771f6d97b929f%22&amp;size=1024)
-
-我用残损的手掌，我
-
-只能在日记里
-
-偷偷的，
-
-偷偷的，
-
-留下一点泪痕……
-
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/7FW2PQxhAFZg7/)】-点击spark adobe版
-
-更多资讯敬请关注：
-
-【战鹰团Gab】[https://gab.com/himalayahawks](https://gab.com/himalayahawks)
-
-【英喜庄园/战鹰团文宣电台】： [https://t.me/HimalayaUK](https://t.me/HimalayaUK)
-
-【英喜庄园GTV/盖特】:
-
-[https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807](https://web.gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-【大卫作战室YouTube】：[https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
-
-![]()![](https://spark.adobe.com/page/7FW2PQxhAFZg7/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)
+[https://www.hkcnews.com/article/35224/%E9%99%B3%E8%99%B9%E7%A7%80-831%E8%A1%9D%E7%AA%81%E7%81%A3%E4%BB%94-%E6%B2%88%E5%B0%8F%E6%B0%91-35227/%E3%80%90%E9%99%B3%E8%99%B9%E7%A7%80%E6%92%A4%E7%BD%AA%E5%BE%8B%E6%94%BF%E5%8F%B8%E6%93%AC%E4%B8%8A%E8%A8%B4%E3%80%91%E5%8F%B8%E9%95%B7%E6%8C%87%E6%B3%95%E5%BE%8B%E8%A7%80%E9%BB%9E%E9%8C%AF%E8%AA%A4%E6%84%9F%E5%8F%97%E5%B1%88-%E5%AE%98%EF%BC%9A%E6%9C%89%E4%BA%BA%E6%8F%90%E9%86%92%E6%8C%89%E6%B3%95%E4%BE%8B%E8%A1%8C%E4%BA%8B%E6%88%96%E4%BB%A4%E8%AD%A6%E5%93%A1%E4%B8%8D%E6%82%85-%E4%BD%86%E7%9C%8B%E4%B8%8D%E5%88%B0%E5%A6%82%E4%BD%95%E6%88%90%E7%82%BA%E6%9A%B4%E5%8B%95%E4%B8%80%E4%BB%BD%E5%AD%90](https://www.hkcnews.com/article/35224/%E9%99%B3%E8%99%B9%E7%A7%80-831%E8%A1%9D%E7%AA%81%E7%81%A3%E4%BB%94-%E6%B2%88%E5%B0%8F%E6%B0%91-35227/%E3%80%90%E9%99%B3%E8%99%B9%E7%A7%80%E6%92%A4%E7%BD%AA%E5%BE%8B%E6%94%BF%E5%8F%B8%E6%93%AC%E4%B8%8A%E8%A8%B4%E3%80%91%E5%8F%B8%E9%95%B7%E6%8C%87%E6%B3%95%E5%BE%8B%E8%A7%80%E9%BB%9E%E9%8C%AF%E8%AA%A4%E6%84%9F%E5%8F%97%E5%B1%88-%E5%AE%98%EF%BC%9A%E6%9C%89%E4%BA%BA%E6%8F%90%E9%86%92%E6%8C%89%E6%B3%95%E4%BE%8B%E8%A1%8C%E4%BA%8B%E6%88%96%E4%BB%A4%E8%AD%A6%E5%93%A1%E4%B8%8D%E6%82%85-%E4%BD%86%E7%9C%8B%E4%B8%8D%E5%88%B0%E5%A6%82%E4%BD%95%E6%88%90%E7%82%BA%E6%9A%B4%E5%8B%95%E4%B8%80%E4%BB%BD%E5%AD%90)
 
 2+

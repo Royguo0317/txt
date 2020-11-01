@@ -1,71 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国2020年第三季度GDP增长率为33.1％，创历史记录！
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/510834/)
+## 从总加速师上位看中共体制为何必然灭亡
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/510977/)
 
-新闻简述：2020年10月29日消息，2020 年第三季度国内生产总值（GDP）的年增长率为 33.1％，超出了预期，并创下了历史新高。GDP的增长几乎是70年前创纪录的两倍。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31165418/WH_20201029_Third_Quarter_GDP_photo169.png)
-**The Great American Recovery: Third Quarter GDP Blows Past Expectations**
+- 编辑：文顺
+- 作者：Víctor Torres
 
-**美国伟大的复苏： 第三季度国内生产总值超过了过去的期望**
 
-Economy & Jobs
+**更多真相请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！**
 
-经济与就业
+众所周知，中共政权对其统治方式和运行体制高度自信，并穷尽心血向全球推广所谓的优势制度，妄图给全世界把把脉，打造所谓新的全球治理模式和格局，称霸人类社会。但是这种体制真的优越么？笔者认为答案是否定的，并且必然灭亡。
 
-October 29, 2020
+那么首先看一下，中共体制的本质是什么？它的逻辑出发点是人性本恶，是人的动物性，对应了人类七宗原罪，即傲慢、贪婪、色欲、嫉妒、暴食、憤怒及怠惰。共产中国认为人是为欲望而生的，人所有的行为模式都基于自利。他们利用人性的弱点，熟练操纵人群，达到为其所用的目的，窃取了中华大地，奴役了十四亿百姓。
 
-2020年10月29日
+然而，这一体制的逻辑基础本身是荒谬和片面的。人固然有动物性的一面，但人之所以为人，之所以脱离了动物界，是因为人具有人性，或者说具有一部分神性，因其乃是由神照着自己的样子创造的。忠诚、希望、慷慨、正义、坚韧、节制、节俭等等美德都是使人作为万物之灵存在的基石。中共体制建立在砂砾之上，根基不牢，地动山摇。
 
-After releasing his plan to reopen America safely in April, President Trump remarked that prior to the Coronavirus pandemic, the United States had “built the greatest economy anywhere in the world . . .  and we’re going to build it again.”
+就中共这个组织而言，外部看似铁板一块，专政铁拳无往不利，所向披靡，不仅荼毒中国，更遗祸全人类。但是，党内无派，千奇百怪。党固然有共同的利益，中共党内的精英却更忠实于自身的欲望、自己家族的利益，对于党内的竞争对手，毫不留情，必灭之而后快。事实上整个政党内部犹如一个黑暗丛林，互不信任，互相杀伐，先下手为强、后下手遭殃。从建党的第一天起，就开启了互害模式，中共组织犹如蛊毒之所，逆向淘汰。因此党内缺乏能人和有识之士，却盛产奸佞小人，无德无能之辈，代表人物为小学生博士习总加速师。也正是由于这样的修罗场模式，中共必亡于党内的斗争。
 
-今年4月，川普总统宣布了安全重新开放美国的计划，之后他表示，在冠状病毒大流行之前，美国已经“建立了世界上最伟大的经济体… … 我们将再次建立它。”
+下面笔者想就总加速师的上位过程为例做进一步分析，说明这种自我毁灭模式的必然性。总加速师虽根正苗红，但其出生称不上显赫，其父习仲勋长期受迫害，远离权力中枢。总加速师幼年命运多舛，少管所没少去，书却没读多少。平时更少不得受其他红二代的欺负，带头的正是八大家族之一薄家的少爷薄熙来。总加速师忍辱负重，深感自卑的同时，心底滋生的却是对权力的痴迷和渴望。
 
-At that time, the consensus among economic forecasters was that pandemic-induced lockdowns would result in a sharp economic contraction in the second quarter, and that the economy would experience tepid growth in the third quarter as it slowly clawed back pandemic losses. But because of the President’s pro-growth policies that set a strong pre-pandemic foundation—and the extraordinary speed and scale of the Administra-tion’s support for America’s families and businesses—our nation’s recovery continues to exceed expectations.
+时值江泽民选择隔代继承人，总加速师因其低能、根基浅、听话好控制(伪装)符合了江傀儡人选的标准，而中标中共接班人。可以看到，江泽民在选择党的接班人时考虑的也是自己的利益而非全党的利益，从而埋下了灭亡的种子。
 
-当时，经济预测人士的共识是，大流行病引发的封锁将导致第二季度经济急剧收缩，第三季度经济增长将不愠不火，因为它将缓慢地收复大流行病造成的损失。但是，由于奥巴马总统支持增长的政策奠定了强大的疫情爆发前基础，以及政府对美国家庭和企业的支持速度和规模异乎寻常，我们国家的复苏继续超出预期。
+待到总加速师初上台，胡锦涛令人意外的交出了全部实权和旧部。主因有二，一是欲借习打击报复江派的长期压制；二是立下密约由习扶持胡锦涛之子胡海峰坐上总理之位作为交换。左右胡锦涛决策的依旧是私利，而非党的公利。
 
-This morning’s release of U.S. GDP for the third quarter of 2020 from the Bureau of Economic Analysis (BEA) affirms President Trump’s statement that “we’re coming back, and we’re coming back strong.”
+习执政后，逐渐露出定于一尊的野心，撕下了卧薪尝胆长期隐忍的伪装，同时强敌环伺，险象环生，屡遭暗杀。总加速师终于痛下杀手，全面绞杀党内反对势力，疯狂抢夺其他红色家族利益，薄、邓、江、曾、孟等家族无一幸免。由于习对党内，诸如刑不上常委、诸如任期限制等一系列重大规则的颠覆，从而导致了党的内部严重分裂，各派间仅存的一丝互信荡然无存。
 
-美国经济分析局 (BEA) 今天上午发布的2020年第三季度美国国内生产总值 (GDP) ，证实了川普总统的声明，即“我们正在回归，我们正在强劲回归。”
+另一方面，宥于思维的局限、野心和能力不成正比，任人唯亲唯谄媚，德不配位，必有灾殃。对内经济、民生逐年凋敝，野蛮施政，疯狂遏制反对声音。对外强推一带一路、大国崛起，更是突破人类底线投放病毒武器，还妄图影响大选，颠覆美国。在其领导下，中共国内政外交全面崩溃，总加速师非浪得虚名。在中共各派精英自利互害的共同推动下，在总加速师千古一帝毁党不倦的猛踩油门中，中共这辆不带闸的破车正光速奔向悬崖。
 
-The BEA estimates that real GDP grew 7.4 percent (33.1 percent at an annual rate) in the third quarter, the largest single quarter of economic growth on record and roughly twice the prior record of 3.9 percent (16.7 percent at an annual rate) set in the first quarter of 1950. This growth follows the most severe pandemic-induced contraction on record in the second quarter of 2020, which occurred as the government mandatorily shut down all but nonessential services, and Americans made sacrifices to slow the pandemic.
-
-经济分析局估计，第三季度的实际国内生产总值增长了 7.4% (按年率计算为 33.1%) ，这是有记录以来最大的单季度经济增长，大约是 1950 年第一季度创下的3.9% (按年率计算为 16.7%) 的两倍。此前，2020 年第二季度出现了有记录以来最严重的流感大流行引发的收缩，当时政府强制关闭了除非必要服务以外的所有服务，美国人也为减缓流感大流行做出了牺牲。
-
-With the historic third-quarter growth, the United States in a single quarter has now re-covered two-thirds of the economic output lost due to the pandemic during the first half of the year (Figure 1). In the recovery from the 2008-09 recession, it took 4 times as long to regain the same share of lost economic output.
-
-随着历史性的第三季度增长，美国在一个季度内已经恢复了今年上半年因大流行病而损失的经济产出的三分之二 (图 1)。在从 2008 年至 2009 年的衰退中复苏的过程中，经济产出损失所占的比例恢复到原来的4倍。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31165403/WH_20201029_Third-Quarter-GDP_fig1-simplified.png)
-After data confirmed the recovery was well underway beginning in May, the nonpartisan Congressional Budget Office (CBO) in July projected a second quarter contraction roughly in line with the actual decline that occurred, though the CBO projected a third quarter growth rate of just 4.0 percent (17.0 percent at an annual rate). The strong footing of the United States economy prior to the pandemic contributed to the stronger-than-expected recovery our country is currently experiencing.
-
-在数据确认经济复苏从 5 月份开始就已经进行良好之后，无党派的国会预算办公室 (CBO) 在 7 月份预测，第二季度的经济萎缩与实际下降大致相符，尽管 CBO 预测第三季度的经济增长率仅为 4.0% (按年率计算为 17.0%)。在大流行病爆发之前，美国经济的坚实基础促进了我国目前正在经历的比预期更强劲的复苏。
-
-The United States had the highest GDP growth rate among the G7 countries from 2017 to 2019, with growth more than double the G7 average. While the pandemic hit every major economy around the world, the United States experienced the least severe economic contraction of any major Western economy in the first half of 2020, with the Euro Area economy’s contraction being 1.5 times as severe as the contraction of the U.S. economy.
-
-从 2017 年到 2019 年，美国的 GDP 增长率在七国集团中名列前茅，是七国集团平均增长率的两倍以上。2020 年上半年，全球各主要经济体都受到了大流行病的冲击，而美国经济的萎缩程度是西方主要经济体中最轻的，欧元区经济的萎缩程度是美国经济萎缩程度的 1.5 倍。
-
-A resurgence in consumer spending, which accounts for two-thirds of GDP, supported the historic third quarter GDP growth and reflects both the reopening of America’s busi-nesses and the confidence of consumers to spend on goods and services once more. Consumer spending in the services sector alone accounted for nearly half of GDP growth in the third quarter. Greater third quarter spending on recreation, food, and accommodation services—sectors acutely impacted by lockdowns—alone accounted for one-fifth of total GDP growth in the third quarter.
-
-占国内生产总值 (GDP) 三分之二的消费者支出的复苏，支撑了历史性的第三季度 GDP 增长，反映了美国企业的重新开张，以及消费者对商品和服务支出的信心。仅服务部门的消费支出就占到了第三季度 GDP 增长的近一半。第三季度，娱乐、食品和住宿服务行业的支出增加，仅此一项就占到了第三季度国内生产总值 (GDP) 总增长的五分之一。
-
-The growth in the third quarter, and the particular strength of American consumers, also reflects the swiftness and magnitude of the aid the Administration provided directly to America’s families, workers, and small businesses. The $2.7 trillion in stimulus that the CARES Act and other pandemic-related legislation supplied is roughly 13 percent as a share of GDP. That is more than twice the size of the 2009 American Recovery and Rein-vestment Act (ARRA) as a share of GDP.
-
-第三季度的经济增长，以及美国消费者的特殊力量，也反映了政府直接向美国家庭、工人和小企业提供援助的迅速性和规模。《关爱法案》和其他与大流行病有关的立法提供的 2.7 万亿美元的刺激资金约占国内生产总值的 13% 。这是 2009 年美国复苏和再投资法案(ARRA)规模占 GDP 比重的两倍多。
-
-This direct aid supported Americans’ income through the pandemic. Total personal in-come rose above, and still remains above, pre-pandemic levels. Personal income exclud-ing the government transfers provided for in the CARES Act, however, decreased from pre-pandemic levels (Figure 2). Without this income support, the resurgence in consumer spending would likely not have been as strong. Having added back 11.4 million jobs since April with more than 5 in 10 jobs lost in the pandemic recovered, total wages and salaries increased 5 percent in the third quarter and are now just 1.4 percent below pre-pandemic level.
-
-这项直接援助在流感大流行期间支撑了美国人的收入。个人总收入超过了，并且仍然保持在大流行前的水平。个人收入不包括《关爱法案》规定的政府转移，但是，从大流行前的水平下降 (图 2)。如果没有这种收入支持，消费支出的复苏可能不会如此强劲。自 4 月以来新增了 1140 万个工作岗位，在大流行期间失去的工作岗位中有超过 50% 得到恢复，总工资和薪水在第三季度增长了 5% ，目前仅比大流行前水平低 1.4% 。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31165348/WH_20201029_Third-Quarter-GDP-fig2-simplified.png)
-The strong foundation of the pre-pandemic economy and the efficacy of the Trump Ad-ministration’s efforts to provide direct economic aid to families and small businesses helped deliver record-setting growth that few predicted would occur earlier this year. Our nation’s economy is poised for continued expansion in the fourth quarter, and the strength of the recovery thus far is a testament to the fortitude and resilience of Ameri-ca’s workers and families.
-
-大流行前经济的坚实基础，以及川普政府为家庭和小企业提供直接经济援助的努力的效力，帮助实现了创纪录的增长，今年早些时候很少有人预测会出现这种增长。我们国家的经济已经准备好在第四季度继续扩张，到目前为止复苏的力量是对美国工人和家庭的坚韧和韧性的证明。
-
-[阅读白宫英文原文](https://www.whitehouse.gov/articles/great-american-recovery-third-quarter-gdp-blows-past-expectations/)
-
-翻译：【向日葵（文美）】【一花一世界】【Naomi】编辑：【Isaiah4031】
-
-战友之家玫瑰园小队出品
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25143553/image0-101.jpg)Parler QR code of Himalaya Spain
 
 0
