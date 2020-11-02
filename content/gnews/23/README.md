@@ -1,17 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 快讯：新中国联邦电视台在华盛顿DC直播室完成首场直播测试
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/516560/)
+## 【世界多语言图文】2020/10/23 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/516826/)
 
-作者：文錦
+战友之家图文摘要及多语种组
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02055153/1-4.png)美东时间10月31日NFSCTV首场直播测试在华盛顿DC直播室顺利进行
+[272\_English\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_English_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_English_1023_CCP_Virus_Updates.pdf)
 
-由路德先生总导演、SARA女士总策划，新中国联邦电视台（简称NFSCTV）首场直播测试于美国当地时间10月31日，在华盛顿DC的直播室顺利进行。 新中国联邦第一梯队的成员以清新靓丽的形象首次出现在镜头面前，包括NFSCTV主持人、文怡、文笑、爆料革命的美国战友Ian Everhart、Zee、Victor在内，不同岗位的新中国联邦成员除了简单地介绍自己参与爆料革命的经历和目前的工作之外，也对目前与大家息息相关的新闻时事发表了个人的观点。
+[272\_French\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070753/272_French_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070753/272_French_1023_CCP_Virus_Updates.pdf)
 
-新中国联邦电视台经过这场实战前的热身之后，会在华盛顿DC的直播室陆续对众多嘉宾进行直播专访，未来会有更多重磅的内容呈现给大家。至此，新中国联邦电视台将承载着亿万爆料革命战友的期望，以全新的面貌带给大家最新、最真实的新闻节目。以下是NFSCTV在GTV的账号，**欢迎踊跃订阅，敬请关注来自****GTV****、** **NFSCTV****和GNEWS****最前沿的新闻报道。**
+[272\_German\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_German_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_German_1023_CCP_Virus_Updates.pdf)
 
-**新中国联邦电视台的GTV****账号：NFSCTV7**
+[272\_Japanese\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Japanese_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Japanese_1023_CCP_Virus_Updates.pdf)
 
-1+
+[272\_Korean\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Korean_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Korean_1023_CCP_Virus_Updates.pdf)
+
+[272\_Spanish\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Spanish_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Spanish_1023_CCP_Virus_Updates.pdf)
+
+0
