@@ -1,25 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆革星评 &#8211; 川普紧急声明：民主党将在他胜选之时实施“红色火焰”计划
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/518325/)
+## 决战13天：独家！拜登家族与中共深度控制全球石油产业
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/518356/)
 
-多伦多加喜农场 文星（一号）
+编辑：文顺
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02162333/%E7%BA%A2%E8%89%B2%E7%81%AB%E7%84%B0.jpg)图片来自 Flipboard
-11月2日，川普总统发表紧急声明，揭露民主党将于11月3日川普宣布胜选之时，启动“红色火焰”（RED MIRAGE）计划，来污蔑川普的胜选属于非法结果。据称，这是由此前无奈退出总统竞选的民主党大佬布隆伯格出资的一个罪恶计划。川普总统这项声明警醒美国社会，每一个美国人都应该意识到，尽管大选我们会取得胜利，民主党人却无论如何不会善罢甘休，但是我们不会让他们得逞。
+11月1日，喜西农场在Gtv深度分析“硬盘披露第三波”邮件，根据邮件内容与中共喉舌相关报道，披露中共打造全球利益共同体，瓜分全球石油产业。
 
-所谓“红色火焰”计划，是指乔·拜登的团队正在做各种准备，如到处分发关于大选的谈话和研究要点，试图把川普总统的胜选结果非法化，并已经安排代理人要将胜选结果称为“红色火焰”。这是因为民主党非常恐慌地看到，乔拜登没有在早期选票中取得大的领先优势，川普总统将会在11月3日大选当日的现场真实投票中取得优势，并取得最终的总统连任胜选。
+视频链接：[https://gtv.org/web/#/UserInfo/5efcaf33a433d76eee77417a](https://gtv.org/web/#/UserInfo/5efcaf33a433d76eee77417a)
 
-可以预料，民主党还会发动特别媒体的攻势来制造烟雾混淆视听，甚至要把邮政延误的尚未完成的邮寄选票直接错误地定为合法选 票。也可以预期，民主党会在川普胜选后在法庭上制造许许多多指向大选的诉讼案件，利用美国的司法制度，发动法律超限战，企图污名化川普总统的胜选。11月2日早上的路德社也对民主党的这一安排做了报道。
+***更多真相，请关注： [gtv.org](https://gtv.org/)、[gnews.org](https://gnews.org/)***
 
-此前有媒体称，ANTIFA业已在白宫周围安排组织了2万人规模的破坏队伍，试图在川普胜选之日当晚围攻白宫、制造混乱。民主党大佬如佩洛西，还失去理性地发誓称，无论选票多少，乔·拜登都要进白宫。种种现象和证据表明，乔·拜登团伙已经被中共控制和利用，其目的就是借助乔·拜登上台，来搞乱和搞垮美国，使美国失去与中共竞争的能力，从而控制全世界。
-
-事实证明，这已经不是一场普通的总统大选，而是一场正义和邪恶、光明与黑暗之战，决定着美国乃至整个世界的未来走向，而爆料革命将在这场大决战中，起到的是中流砥柱的关键作用。
-
-参考链接：
-
-[https://trendingpolitics.com/breaking-trump-releases-urgent-statement-on-democrat-plans-to-delegitimize-election-day-results/](https://trendingpolitics.com/breaking-trump-releases-urgent-statement-on-democrat-plans-to-delegitimize-election-day-results/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25143553/image0-101.jpg)Parler QR code of Himalaya Spain
 
 0

@@ -1,15 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 快讯：美国下任FBI局长人选确定——悉妮·鲍威尔（Sidney Powell）
-` GM65` [轉載自GNews](https://gnews.org/zh-hans/517797/)
+## 【香港要闻】令人感动：7人被控8.31暴动罪名不成立【跟踪报导】
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/517845/)
 
-11月2日，班农先生在战斗室直播中正式向公众介绍，悉妮·鲍威尔（Sidney Powell）将代替雷，接任下一届FBI局长职位。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02120702/IMG_1371.jpg)
-据“联邦上诉网”（Federal Appeals）的 [个人主页](https://www.federalappeals.com/attorneys/sidney-powell/)显示，鲍威尔女士是美国法律协会（the American Law Institute）成员和美国上诉律师学会（the American Academy of Appellate Lawyers）院士。她还曾担任第五联邦巡回律师协会主席。
+收集：文卡西欧
 
-她作为代理律师，曾经中途接手福林将军被美国司法部起诉案，帮助福林找到关键证据而翻案，做实了司法部和FBI对福林的陷害，致使司法部撤销针对福林的指控。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02120955/kloor-powell-image1.jpg)Michael Flynn, President Donald Trump’s former national security adviser, leaves the federal court with his lawyer Sidney Powell, left, following a status conference with Judge Emmet Sullivan, in Washington, Tuesday, Sept. 10, 2019. (AP Photo/Manuel Balce Ceneta)
-根据网上资料，鲍威尔女士著有畅销著作《持证撒谎》（Licenced To Lie)，揭露美国司法部腐败。她经常作为特约嘉宾出现在鲁道伯等电视媒体节目上，探讨司法问题。
+编撰：点苍山
 
-3+
+审核：MY
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02122437/jpg.jpg)图片：香港媒体
+据立场新闻10.31讯“阵地社工”成员陈虹秀等8人，被控去年8.31在湾仔参与暴动案，法官沉小民早前裁定陈虹秀的暴动罪表证不成立，当庭释放，剩下7名被告继续处理，今天予以裁决。法官裁定7人暴动罪不成立，第四被告另被控的一项罪名：在公共地方管有攻击性武器也不成立。案件开庭前，多名被告亲友到场旁听，不少人于庭外与被告相拥安慰，有被告与十多名亲友围圈祈祷，期间有人双眼通红，眼角泛泪，场面令人伤感。有被告进入法庭等候裁决时有亲友大叫“加油”。
+
+法官宣布各被告罪名不成立一刻，庭内随即掌声雷动。散庭后有被告难掩激动，失声痛哭，有被告与亲友及律师相拥致谢，众人均眼泛泪光，场面感人，期间有人指“这个才是正常结果”，也有人指“好像突然发红包一样”，还有亲友向罪名不成立的被告表示“你明天可以准时上班啦”，对方回答“是啊，可以上班了”如释重负。
+
+案件原有8名被告，依次为余德颖（24岁自雇人士）、赖姵岐（23岁学生）、钟嘉能（27岁电脑程序员）、龚梓舜（23岁厨师）、陈虹秀（43岁社工）、简家康（19岁无业）、莫嘉晴（24岁）、梁雁彬（25岁无业）。控罪内容经修订后，他们被控于去年8.31在湾仔轩尼诗和卢押道一带，连同他人参与暴动。龚另被控一项在公众地方管有攻击性武器罪。指他同日在轩尼诗道117至123号外的公众地方管有一支伸缩棍及一颗疑似汽油弹。当中陈虹秀早前获裁定表证不成立，当庭获释，控罪撤销。
+
+战友点评
+
+这是香港法治的正常程序得以维护和实施的结果。香港刑事审讯程序规定，法官根据控方（警方）提供的开案陈词和证据包括证物、证人作供，辩方有权反驳和挑战相关证物和供词，当所有控方证人作供后举证程序结束。如果辩方能推翻控方证据可信性，不足以令被告入罪，便是“表证不成立”，被告毋需答辩，当庭获释。
+
+看过去年香港反送中运动的所有人都知道真相是香港人民为表达的合理诉求经过审批和平上街游行，根本不是中共在媒体和国内颠倒黑白的暴动，那些身上佩戴特定标志物，如荧光带，耳麦等等，混入游行队伍的黑社会和黑警才是制造事端嫁祸港人的罪魁。香港司法机制正常运转的情况下，就不会让中共制造的冤假错案得逞。
+
+以上观点仅代表笔者本人
+
+新闻来源：立场新闻
+
+[https://www.thestandnews.com/court/%E8%A2%AB%E6%8E%A7-8-31-%E7%81%A3%E4%BB%94%E6%9A%B4%E5%8B%95-7-%E8%A2%AB%E5%91%8A%E5%85%A8%E9%83%A8%E7%BD%AA%E5%90%8D%E4%B8%8D%E6%88%90%E7%AB%8B/?fbclid=IwAR1zr-o-m0WfZFiO0bthxIOp6dCWb\_1dOu6H75unls-tsiPwkGsjj5DuvjA](https://www.thestandnews.com/court/%E8%A2%AB%E6%8E%A7-8-31-%E7%81%A3%E4%BB%94%E6%9A%B4%E5%8B%95-7-%E8%A2%AB%E5%91%8A%E5%85%A8%E9%83%A8%E7%BD%AA%E5%90%8D%E4%B8%8D%E6%88%90%E7%AB%8B/?fbclid=IwAR1zr-o-m0WfZFiO0bthxIOp6dCWb_1dOu6H75unls-tsiPwkGsjj5DuvjA)
+
+0

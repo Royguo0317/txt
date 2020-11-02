@@ -1,25 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国内快评 | 无视实体店倒闭潮，中共党媒坚称实体经济更壮实
-` 公民之聲` [轉載自GNews](https://gnews.org/zh-hans/517734/)
+## 突发：白宫周一开始构筑围栏 为选举夜可能发生的暴力事件美各地均做部署
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/517781/)
 
-内新闻：小黑姐（文雅） 校对：文迹~见证神迹
+喜马拉雅联盟加拿大  坐看云起时
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02113901/PSX_20201102_203015.jpg)
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02120408/%E5%A4%A7%E9%80%89%E5%A4%9C.jpg)图片来自 The Atlantic
+11月2日各大新闻媒体纷纷报道，白宫的工作人员周一开始在整个建筑群、椭圆区和拉斐特广场周围建造 “不可缩放 “的围栏。
 
-据人民网-人民日报11月2日刊登的《十三五，总书记关心的这些事》特别报道称：实体经济是我国经济的命脉所在，中国是大国，必须发展实体经济，不断推进工业现代化、提高制造业水平，不能脱实向虚。文章还称在以习近平同志为核心的党中央坚强领导下，这五年，实体经济更壮实了。
+CNN报道说，计划中的围栏将封闭Ellipse和拉斐特广场(Lafayette Square)，沿着15街延伸到宪法大道( Constitution Avernue)，然后穿过17街。它将一直延伸到H街，穿过拉斐特(Lafayette)，然后再从15街下来。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02113915/PSX_20201102_202949.jpg)
+美国全国广播公司（NBC News）周日还援引联邦执法部门的消息报道，250名国民警卫队队员已经进入待命状态。这些人将向特区大都会警察报告。
 
-近年来，随着电商、网购、微商等迅速火爆，线上购买和支付迅速占领零售市场，人们的生活方式也发生改变，逛淘宝逛天猫逛京东取代了传统的逛街，大街小巷的实体店门可罗雀，生意越来越少，但是租金不降反增，导致大量实体店无法支撑，纷纷倒闭。尤其是近5年来，由于政府出台的一系列有利于虚拟经济的政策，楼价疯涨，股市动荡，各种金融理财坑人，共享经济盛行，老百姓可支配的资金越来越少，越来越穷只能买便宜货，商家经不起低价挤压利润空间，没钱赚，最后要么关门大吉，要么转型做虚拟经济。特别是随着中美贸易战的开打和新冠病毒疫情的影响，倒闭的门店和厂商数量惊人，官方失业率已经连续几个月高达6%，这还只是在中共数据不透明的情况下得出的虚假数据，实际情况一定更糟。
+这是为周二大选后的一波预期动荡做准备，可能发生的抗议和暴力事件引起了学者、企业主、执法人员等的警惕。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02113927/PSX_20201102_202925.jpg)
+全国各地的警察部门已经开始警告他们的警员做好部署准备，而纽约市一些高层建筑则聘请了武装警卫来保护。
 
-中共国副总理刘鹤在10月21日的金融年会中说：中国经济第2季度由负转正，增长3.2%，第3季度增长4.9%。但是我们从上海市区最知名最繁华的南京路步行街上冷冷清清的街道、人去楼空的商铺、醒目的招租广告中能看出，经济到底是增是减。再看看一线城市大深圳，有网友拍摄视频，从深圳某商场的一楼走到四楼，一片空荡，许多商店门锁紧闭，冷清异常。有广州居民网上留言：中庭这边，一个人都没看到，这种情况可以说百年一遇，前所未有。
+今年美国各大城市经历了一个夏天的抗议，暴力和抢劫。波特兰市（Portland)与华盛顿州的西雅图市（Seattle, Wash.）、纽约市（New York City）都被司法部贴上了 “无政府主义管辖区 “的标签，这三个城市面临失去联邦资助的风险。
 
-中共治下，新闻可以骗人，数据可以造假。但事实就是事实，关掉的门店就在那里，无人问津的街道也在那里，路上越来越少的车辆，越来越少的快递，越来越少的出行，越来越多的转租出租广告等等，这些肉眼可见的事实，却还是扯不下经济诡异增长的数字谎言。
+在弗洛伊德(Floyd)死亡的视频开始流传后的几天里，白宫外的抗议活动变得非常暴力和激烈，特勤局特工被迫将第一家庭带到一个通常设计用于恐怖袭击的特殊掩体中。
 
-[新闻来源：这五年，实体经济更壮实（“十三五”，总书记关心的这些事）](http://politics.people.com.cn/n1/2020/1102/c1001-31914334.html)
+白宫没有立即回应各媒体对建造新围栏的评论请求。
 
-0
+美国全国各地的企业也纷纷用木板等其它加固保护方法迎接将要来临的选举夜大动荡。据Dr. Zev. Zelenko 10月30日上传的一则泄露出来的Zoom会议视频里显示，美国左翼极端分子正在策划在大选后制造暴乱，这些人来自不同组织阶层，包括“黑命贵”运动成员、地方政府官员、联邦政府雇员、情报界合同工等以及其他组织。他们有着严密的计划，具体时间、地点，还准备了地图。他们计划从11月4日开始，视频上有人说，“我们就是要制造社会危机，谁先开枪谁就赢了！一定要攻占大楼。”【1】
+
+路德社节目在上周就曾指出，据可靠消息得知选举当晚会有2万多人在华盛顿计划制造暴力事件，白宫将建造围栏严阵以待。选举之夜新中国联邦电视台将在安全区内为世界各地及时播报最新消息并连线许多重磅嘉宾。今天各媒体纷纷报道，更加证实了路德社节目一贯的“站在未来说历史”。
+
+在人类文明迎来最为重要的一次总统大选之际，美国也将迎来建国以来最为动荡的选举之夜。All 50 News 的一则推文指出，国民卫队已经进驻了十二个城市。另一则来自推推党宣传小部长的推文中说道，由于估计选举夜后会有暴乱，市政府建议市民囤好两个星期的食物和紧急用品，同时在该市中心已经看到了国民警卫队的军车。【2】
+
+相关链接：[https://www.newsweek.com/trump-white-house-across-us-fears-election-night-violence-protective-fences-boards-erected-1543911?utm\_source=pushnami&utm\_medium=Push\_Notifications&utm\_campaign=automatic&UTM=1604323894498](https://www.newsweek.com/trump-white-house-across-us-fears-election-night-violence-protective-fences-boards-erected-1543911?utm_source=pushnami&amp;utm_medium=Push_Notifications&amp;utm_campaign=automatic&amp;UTM=1604323894498)
+
+[https://nypost.com/2020/11/02/white-house-building-non-scalable-fence-for-election-day-protection/?utm\_medium=SocialFlow&utm\_campaign=SocialFlow&utm\_source=NYPTwitter&\_\_twitter\_impression=true&\_\_twitter\_impression=true&\_\_twitter\_impression=true](https://nypost.com/2020/11/02/white-house-building-non-scalable-fence-for-election-day-protection/?utm_medium=SocialFlow&amp;utm_campaign=SocialFlow&amp;utm_source=NYPTwitter&amp;__twitter_impression=true&amp;__twitter_impression=true&amp;__twitter_impression=true)
+
+【1】[https://twitter.com/zev\_dr/status/1322256329285795843?s=20](https://twitter.com/zev_dr/status/1322256329285795843?s=20)
+
+【2】[https://twitter.com/tuituidang/status/1322965679759392771?s=20](https://twitter.com/tuituidang/status/1322965679759392771?s=20)
+
+2+
