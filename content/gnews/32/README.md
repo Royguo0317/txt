@@ -1,20 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 挪威天然气背后拜登家族的阴影
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/517536/)
+## 快讯：美国下任FBI局长人选确定——悉妮·鲍威尔（Sidney Powell）
+` GM65` [轉載自GNews](https://gnews.org/zh-hans/517797/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24064746/WhatsApp-Image-2020-10-24-at-15.08.49.jpeg)
-作者：康州农场-GTalk心语堂
-Source from:GTalk
-天然气是挪威经济的重要支柱，但由于它既不是欧盟成员国，也不在欧元区，其天然气出口受到诸多限制；而俄罗斯天然气在欧盟国家，特别是德国大行其道。
+11月2日，班农先生在战斗室直播中正式向公众介绍，悉妮·鲍威尔（Sidney Powell）将代替雷，接任下一届FBI局长职位。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02120702/IMG_1371.jpg)
+据“联邦上诉网”（Federal Appeals）的 [个人主页](https://www.federalappeals.com/attorneys/sidney-powell/)显示，鲍威尔女士是美国法律协会（the American Law Institute）成员和美国上诉律师学会（the American Academy of Appellate Lawyers）院士。她还曾担任第五联邦巡回律师协会主席。
 
-2014年3月俄罗斯吞并克里米亚之后受到美国和西方国家的制裁，打击其天然气出口是主要经济制裁手段之一；
+她作为代理律师，曾经中途接手福林将军被美国司法部起诉案，帮助福林找到关键证据而翻案，做实了司法部和FBI对福林的陷害，致使司法部撤销针对福林的指控。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02120955/kloor-powell-image1.jpg)Michael Flynn, President Donald Trump’s former national security adviser, leaves the federal court with his lawyer Sidney Powell, left, following a status conference with Judge Emmet Sullivan, in Washington, Tuesday, Sept. 10, 2019. (AP Photo/Manuel Balce Ceneta)
+根据网上资料，鲍威尔女士著有畅销著作《持证撒谎》（Licenced To Lie)，揭露美国司法部腐败。她经常作为特约嘉宾出现在鲁道伯等电视媒体节目上，探讨司法问题。
 
-对俄罗斯天然气出口的制裁立即导致挪威天然气成为首选的替代品，并迅速成为欧洲最大的天然气供应国；
-
-2015年8月3日到6日，亨特拜登和Burisma公司的高管Vadym等人齐聚挪威，他们此行的目的是什么呢？美国带头制裁俄罗斯的背后，难道与制裁最大的受益国挪威之间有着事前交易？而亨特拜登此行就是去收获利益？
-
-情况可能不止于次，Burisma公司的同时出现表明亨特拜登的野心绝不会止步于利益勾兑，看看Burisma公司的中共背景，以及该公司在乌克兰及周边的行动，可以推断，亨特拜登此行是又一次替中共卖命，试图控制挪威的天然气资源。
-
-0
+3+
