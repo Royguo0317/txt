@@ -1,21 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/10/23 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/516826/)
+## 【精华版粤语快报】【路德社】11.01：福克斯爆料美国最大腐败案；中共全球蓝金黄案例曝光
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/516997/)
 
-战友之家图文摘要及多语种组
+制作单位：战友之家·粤语频道
 
-[272\_English\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_English_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_English_1023_CCP_Virus_Updates.pdf)
+制作团队：路德二组（文雀、一帘幽梦、剪刀手）
 
-[272\_French\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070753/272_French_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070753/272_French_1023_CCP_Virus_Updates.pdf)
 
-[272\_German\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_German_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_German_1023_CCP_Virus_Updates.pdf)
 
-[272\_Japanese\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Japanese_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Japanese_1023_CCP_Virus_Updates.pdf)
+摘要：
 
-[272\_Korean\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Korean_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Korean_1023_CCP_Virus_Updates.pdf)
+福克斯采访国土安全委员会主席和政府责任研究所总裁；FBI为什么没有及时立案，拜登卖了什么给中共国；中共全球蓝金黄案例曝光
 
-[272\_Spanish\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Spanish_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Spanish_1023_CCP_Virus_Updates.pdf)
+原视频链接:
+
+
+
+
 
 0

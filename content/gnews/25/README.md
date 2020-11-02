@@ -1,19 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统暗示可能在大选后解雇伏奇博士
-` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/516739/)
+## 据称俄罗斯人手里也掌握勒索亨特.拜登的不雅照
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/516841/)
 
-喜马拉雅的文雅 （雅典娜农场）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02064420/image.jpg)图片来源 ctvnew.ca
-周日夜间，川普总统在周日佛罗里达第五场竞选集会上暗示，他可能在大选后解雇白宫冠状病毒特别工作组成员安东尼·伏奇（Anthony Fauci）博士。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02072933/speech.jpg)
+图片来自：film daily
+据美国极右媒体***《The Gateway Pundit*** 》的最新报道，多年来，人们一直听到左派声称俄罗斯持有有关针对川普总统（Donald Trump）的勒索信息。左派甚至暗示说俄罗斯有录音带。但这是一个谎言，完全是杜撰的。
 
-演讲中川普总统提到病毒新闻被掩盖时，人群爆发出了“ 炒掉伏奇”的呼声。川普总统回应说，伏奇“做错了很多事”， “但是别告诉任何人，等我在大选之后再说。”此前在亨特拜登硬盘门爆出后，伏奇仍然公开肯定乔拜登，并批评川普总统对疫情的应对政策。
+俄罗斯人能拿着亨特.拜登的敲诈录像带，用来对付拜登政府。但那些勒索照片却与川普总统无关，而与拜登家族有关。
 
-川普总统这里提前释放出解雇伏奇的信号，是为了让子弹再飞一会吗？
+亨特.拜登（Hunter Biden）当然是一个瘾君子，现在依然如此。他把自己置于非常不利的境地。亨特行事非常的自恋和鲁莽，这些都体现在他对待女人，家庭，朋友和毒品的方式上。亨特（Hunter）的父亲乔.拜登（Joe Biden）利用亨特在世界各地建立了一个犯罪集团，这贯穿了乔.拜登47年的从政生涯。然而他现在正在美国竞选总统。
 
-新闻来源 [https://nypost.com/2020/11/02/trump-hints-he-may-fire-dr-fauci-after-the-election/](https://nypost.com/2020/11/02/trump-hints-he-may-fire-dr-fauci-after-the-election/)
+拜登家族本身就存在着巨大的问题，他们在世界各地参与了很多不正当的非法活动，他们容易妥协。亨特将家人置于勒索的境地之中。
 
-[https://www.ctvnews.ca/health/coronavirus/white-house-unleashes-on-fauci-after-criticism-of-trump-s-pandemic-response-1.5169917](https://www.ctvnews.ca/health/coronavirus/white-house-unleashes-on-fauci-after-criticism-of-trump-s-pandemic-response-1.5169917)
+由于他的毒瘾，亨特发现自己在阴暗的地方和阴暗的人在一起。其中一个例子是2018年10月他与一些“朋友”在西好莱坞的Devlin大道上的一幢豪华房子里和一群男女朋友住了一夜。这些不是普通朋友，他们似乎是俄罗斯人。其中一名成员是一个叫克里斯​​蒂娜的女孩。她有加利福尼亚州的驾照，还和亨特呆了一段时间。 在这个假期期间，他们给亨特拍了许多不雅照，都被闭路摄像机拍了下来。一张照片是亨特的狂欢照，另一张是他的裸体照。其中一个女性的背部有一些标记，在拍摄后有人用黑色椭圆形遮盖了它，但能够发现在黑色椭圆形下有一个纹身，这种纹身标记类似于用来标记被贩运的性奴隶的纹身。
 
-0
+在西好莱坞的别墅中，有一位女性是俄罗斯的公民，曾在2017-2018年持旅游签证前往美国，知情人有她的护照复印件。
+
+现在的情况已经不是斯蒂尔档案馆和俄罗斯串通的闹剧了，拜登一家确实存在着永无休止的一连串问题，应该坚决取消他们不再担任公职的资格。这样的拜登不配担任美国总统，必须让他远离白宫。
+
+翻译报道：Hakunamatata
+
+校对整理：人间四月
+
+原文链接：https://www.thegatewaypundit.com/2020/10/breaking-exclusive-hunter-bidens-russian-blackmail-photos-uncovered-hunter-russians-hollywood/
+
+1+
