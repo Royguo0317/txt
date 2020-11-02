@@ -1,19 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳喜要闻 路德时评01日晚间摘录
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/516521/)
+## 【世界多语言图文】2020/10/23 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/516826/)
 
-路博安墨谈
+战友之家图文摘要及多语种组
 
-参议院国土安全委员会主席约翰逊和政府责任研究所总裁施韦泽，接受福克斯玛丽亚的采访。约翰逊和施韦泽明确表示，没有任何专业背景和实际的经验亨特拜登，能从乌克兰的能源公司获取巨额报酬，从中国的私募公司获得巨额报酬，就是因为他的父亲是副总统，这些外国实体要获取他父亲的帮助。亨特是作为一家中国政府投资的私募股权投资公司，渤海华美股权投资公司的董事，收购了密西根的一家拥有敏感技术，生产军民两用科技产品的公司。这样的收购需要通过美国海外投资委员会的批准，亨特拜登父亲当政的政府，批准了把这家美国公司卖给中国政府。这宗收购只是冰山一角。拜登家族和外国勾兑，没有原则的权钱交易，对美国国家主权和国家秩序，是巨大的危害。
+[272\_English\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_English_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_English_1023_CCP_Virus_Updates.pdf)
 
-美国的人民已经觉醒，明白这次大选不是党派之争，而是美国价值观与中共共产主义价值观之争。在川普的大选集会中，出现了很多民主党和中间派人士。来参加川普在明尼苏达和威斯康辛州的六个集会中，有超过一半的民众，不是共和党的选民。密西根州有49%，佛罗里达有19.3%不是共和党的选民，也来参加了川普总统大选集会。
+[272\_French\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070753/272_French_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070753/272_French_1023_CCP_Virus_Updates.pdf)
 
-中国政府一直致力于收买澳大利亚和新西兰的政坛。在世界上的很多国家如澳洲，也是中共蓝金黄的重灾区。渤海华美董事会第十三次会议保密材料首次曝光，在这份25页的报告中，前澳大利亚驻中国大使芮捷锐（Dr.Geoff Raby) 博士，曾担任澳洲外交贸易部的副部长，澳洲驻世界贸易组织大使等诸多头衔的人，被中共国称为“有识之士”，实际上是澳洲版的沼泽地成员之一。相信很快会有更多中共在澳洲蓝金黄的案例会被挖出。
+[272\_German\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_German_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_German_1023_CCP_Virus_Updates.pdf)
 
-Shirley摘录
+[272\_Japanese\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Japanese_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Japanese_1023_CCP_Virus_Updates.pdf)
 
-YouTube：[https://www.youtube.com/watch?v=Sreyg0R2eXI&ab\_channel=%E8%B7%AF%E5%BE%B7%E7%A4%BELUDEMedia](https://www.youtube.com/watch?v=Sreyg0R2eXI&amp;ab_channel=%E8%B7%AF%E5%BE%B7%E7%A4%BELUDEMedia)
+[272\_Korean\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Korean_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Korean_1023_CCP_Virus_Updates.pdf)
+
+[272\_Spanish\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Spanish_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Spanish_1023_CCP_Virus_Updates.pdf)
 
 0
