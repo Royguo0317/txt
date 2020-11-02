@@ -1,37 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫宣布在尼日利亚被绑架的美国人质已获快速解救
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/514579/)
+## 中共与拜登家族的勾结历险记
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/515099/)
 
-在川普总统的亲自指挥下， 美国特种部队于10月30日成功地营救了一名美国人质。该人质于 96 小时前在尼日利亚被绑架，目前人质健康状况良好，已与家人团聚。川普总统说：“今天的行动应该是对恐怖分子和犯罪暴徒的一次严厉警告，他们错误地认为他们可以绑架美国人而不受惩罚。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01141526/WH_20201031_-Hostage-Rescue169.png)图片来源：[https://www.whitehouse.gov/briefings-statements/statement-president-last-nights-hostage-rescue/](https://www.whitehouse.gov/briefings-statements/statement-president-last-nights-hostage-rescue/)
-以下是美国川普总统发表的声明：
+蒙特利尔战友团 laotou
 
-**Statement From the President On Last Night’s Hostage Rescue**
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01185708/%E5%8E%86%E9%99%A9%E8%AE%B0.jpg)
+《国家评论》10月31日刊登了美国著名专栏作家安德鲁·C·麦卡锡的文章，题目“勾结历险记：中（共）国与拜登家族”，副标题是，据悉，拜登家族的中共国商业往来不仅是与统治集团有联系，可能还是秘密代理人。
 
-**总统关于昨晚人质获救的声明**
+这份长篇报道较详细地记录了拜登家族与中（共）国华信能源公司的勾结过程，直到何志平在美国被捕，叶简明在中（共）国失踪。阅读后感觉大部分内容来自文贵先生和爆料革命。
 
-NATIONAL SECURITY & DEFENSE
+这类文章出自于美国名流作者，发表在著名的媒体上，充分显示美国人民的觉醒，对邪共、魔共的认清，这是爆料革命的成果。
 
-国家安全与国防
+文章题目是炸裂的，开头是震惊的，结尾的几个字发人深省，“去想想吧！”
 
-Issued on: October 31, 2020
+文章节选内容：
 
-发布于：2020年10月31日
+“明白这是怎么回事吧——媒体民主党联合体在没有证据的情况下警告你，如果你不对亨特·拜登电脑的爆炸性披露视而不见，你将被教唆为俄罗斯的情报行动；然而，越来越明显的是，这是因为，如果你睁开眼睛，你可能会发现拜登夫妇把自己卖给了一个真正的中共国情报机构。
 
-Last night, at my direction, the United States military conducted a successful operation to rescue an American hostage in Nigeria, kidnapped just 96 hours earlier. United States Special Forces executed a daring nighttime operation to rescue their fellow American with exceptional skill, precision, and bravery. No United States Service Members were harmed. The former hostage is currently in good health and has been reunited with his family.
+在拜登腐败丑闻中，媒体民主党联合体阻碍选民看到的更惊人的揭露是，拜登与之勾结的腐败华商不仅有购买政治影响力的记录，而且众所周知，他们与中共及其政权有着高层联系，也有中共国的秘密特工——至少，联邦调查局和司法部似乎是这样告诉外国情报监视（FISA）法庭的。
 
-昨晚，在本人的指挥下，美国军方成功地营救了96小时前在尼日利亚被绑架的一名美国人质。美国特种部队进行了一次大胆的夜间行动，以非凡的技能、精准的定点和无畏的勇敢，营救了他们的美国同胞。没有美国军人受到伤害。人质目前健康状况良好，已与家人团聚。
+拜登家族正寻求与总部位于上海的中（共）国华信能源集团（CEFC）达成4000万美元的液化天然气（LNG）交易，该公司在2018年初之前一直高歌猛进。然而，到那时，习近平政府已经非常清楚，该公司代表政权的阴谋已经被美国情报和执法部门获悉。今年早些时候，CEFC正式破产，但那是两年前中共国政府停止了其业务，而这似乎是中共国情报活动的一个幌子。
 
-Securing the freedom of Americans held in captivity abroad has been a top national security priority of my Administration. Since the beginning of my Administration, we have rescued over 55 hostages and detainees in more than 24 countries. Today’s operation should serve as a stark warning to terrorists and criminal thugs who mistakenly believe they can kidnap Americans with impunity.
+拜登家族，前副总统乔·拜登的儿子亨特担任要员，2017年与CEFC打交道。他们是腐败行为的受益者，当CEFC因美国的调查而开始瓦解时，他们处于困境之中，亨特·拜登同意考虑他的CEFC合伙人的利益。
 
-确保在国外被关押的美国人获得自由是我任政府国家安全的首要任务。自我执政以来，我们已在24多个国家或地区解救了55名人质和被拘留者。今天的行动应该是对恐怖分子和犯罪暴徒的一次严厉警告，他们错误地认为他们可以绑架美国人而不受惩罚。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01144015/WH_20201031_-Hostage-Rescue-figure1.png)图片来源：[https://www.goarmy.com/special-forces.html](https://www.goarmy.com/special-forces.html)
-[阅读白宫英文原文](https://www.whitehouse.gov/briefings-statements/statement-president-last-nights-hostage-rescue/)
+……
 
-翻译：【沙漠红蚂蚁】编辑：【Isaiah4031】
+“CEFC就是中共国
 
-战友之家玫瑰园小队出品
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01145114/GNEWS-GTV-VOG.png)
-4+
+CEFC冒充私人公司，不过，请不要搞错，CEFC是中共国，否则，它的迅速崛起是不可能的。它的迅速崩溃是因为它作为共产党政权影响工具的作用被美国的监视行动所破坏所致。”
+
+……
+
+FISA的监控
+
+美国情报机构显然注意到了这一点。据《每日电讯报》记者查克·罗斯报道，美国政府至少获得了一份依据FISA的监视令，其中有证据证明何志平是CEFC的重量级人物之一。FISA授权的监视包括电子窃听和物理搜索。
+
+……
+
+亨特代表“中共国间谍头目”
+
+也许我们不应该惊讶，亨特称何志平为“中（共）国的间谍头目”，正如我在周三的一篇专栏文章中所说的那样。何志平很有个性，他是香港政府的内政大臣。在2000年早期，他发起了一个由CEFC支持的非政府组织，中国能源基金委员会（CEFC-NGO），它被联合国认可并注册为美国的慈善机构。这给了何志平资源和威望，使他得以实践CEFC高效的工作方式，贿赂有影响力的外国政治家和政府官员，然后依靠他们为CEFC打开大门，进而为中共国打开大门。
+
+……
+
+CEFC盘亘在拜登家族中
+
+到那时，叶简明和CEFC用巨大的经济利益来引诱拜登家族，叶简明一直在寻求与通往华盛顿政治舞台的显赫人物建立联系，双方的这些需求最终促成了叶2017年5月与亨特·拜登在迈阿密的会面。
+
+……
+
+真正的共谋
+
+然而，结局已近。
+
+11月18日，何志平从香港起飞抵达纽约肯尼迪国际机场后被FBI逮捕。当他拘留后被允许打电话时，何志平第一个打给了前副总统、即将成为下届总统候选人的乔·拜登的弟弟吉姆·拜登。吉姆后来告诉《泰晤士报》，他对这个电话感到惊讶（我敢打赌！），并假设何某是想给亨特打电话，吉姆把亨特的联系方式告诉了何。“我没什么要说的了”，吉姆告诉报纸，“我不想再被牵扯进这件事了”。显然，吉姆没有提到任何费用账户的拖累，也没有提到由于何志平工作的CEFC和叶，以及吉姆的侄子亨特慷慨地支付给何志平的律师的费用。
+
+在何志平被捕6周后，叶简明向华信员工发出了最终的指示，就像《金融时报》称之为中共国传统风格的一首诗：“为‘一带一路’承担重任，更加努力，再接再厉！”
+
+……之后不久，叶简明在中国被拘留。据说这是一起“受贿”调查，但此后叶某一直杳无音讯。
+
+或者，正如亨特·拜登所说，“世界上最富有的人失踪了，他是我的合伙人。”
+
+……
+
+下周二，媒体民主党的联合体将让美国人民选出他们的总统乔·拜登，根据大量证据，他似乎是被他的家人与敌对外国势力的秘密特工构陷了。而毫无疑问的是，数百万美元从与中共和习近平政权有重要关系的中共国阴暗人物那里流向了拜登家族。
+
+去想想吧！
+
+原文链接：
+
+[https://www.nationalreview.com/2020/10/a-collusion-tale-the-bidens-and-china/](https://www.nationalreview.com/2020/10/a-collusion-tale-the-bidens-and-china/)
+
+0

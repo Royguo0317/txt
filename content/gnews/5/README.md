@@ -1,23 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 又有动作？奥巴马基金会拥有全美邮寄投票打印机的82％
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/513172/)
+## 朱利安尼发推, 证实拜登父子正被刑事调查中
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/513589/)
 
-翻译：康州农场-Selina、霹雳忍者蛙、Bruce
+翻译：Beicy-数学老师；校对：文明明； 审核：TCC；Page：拱卒
 
-审核：康州农场-Truemanman
+## 朱利安尼发推, 证实拜登父子正被刑事调查中
 
+[!\[\]()!\[\](https://spark.adobe.com/page/7ntykLxVZo0fT/images/02386d61-caeb-4c4b-9304-a35e4c3f303c.jpg?asset_id=9a3a4717-727d-4c09-b58d-5210147eaeab&amp;img_etag=%22719ff92997018002d1a9b5c8c60192bc%22&amp;size=1024)](https://spark.adobe.com/page/7ntykLxVZo0fT/images/02386d61-caeb-4c4b-9304-a35e4c3f303c.jpg?asset_id=9a3a4717-727d-4c09-b58d-5210147eaeab&amp;img_etag=%22719ff92997018002d1a9b5c8c60192bc%22&amp;size=1024)战鹰团海报突击队作品
 
+一周多来亨特-拜登硬盘事件持续发酵，乔-拜登或回避不谈，或装聋作哑。尽管推特等媒体封杀消息，但《纽约邮报》, 《福克斯电视台》都已经多次报道拜登家族丑闻。
 
-对于在2020年大选使用邮寄投票的主题引起了许多争议和激烈的讨论, 其中不得不讨论的是在中共势力和美国沼泽势力的操控下导致和产生大量的关于选民投票的欺诈。
+10月27日, 《国家脉冲》独家披露亨特-拜登音频，拜登亲口承认与中”共间谍头目”合作，与 “中共间谍头子”有商业关系，并且他的商业伙伴德文-阿克尔(Devon Archer)于2019年已经将他和他的父亲列为纽约南部地区犯罪案件的证人。亨特-拜登在音频中说:
 
-乔·巴伦（Joe Barron）和他的调查小组一直在追踪经验丰富的每日新闻出版物《华盛顿·布鲁姆普金眼》（The Washington Blumpkin Eye）在过去一年中选票的真正来源。 就在上周，他们发现了纸张的踪迹，发现将近82％的美国邮寄选票是由“ Smoovy-G” 5级点阵复制机印刷的，该复制机由IG-88级Atari 800超级计算机提供动力。 所有这些都由奥巴马基金会所有和运营。
+“…我的代理人何志平，那个该死的中共间谍头子，他创办的公司是我的合伙人创办的，我的合伙人有3230亿美元的身价，但是现在却失踪了。世界上最富有的人失踪了，而且他是我的合伙人。从我最后一次见到他之后，他就失踪了。我们当时在他那价值5800万的公寓里面进行一笔40亿的交易，要建（他妈的）世界上最大的（他妈的）液化天然气港口。我接到纽约南区检察官亲自打来的电话，我生意上最好的伙伴德文（Devon）在没有告诉我的情况下，将我和我的父亲列为刑事案件的证人。”
 
-奥巴马选票，随着一些信息发酵并且开始疯狂流行，现在被一些专家称为奥巴马选票正在俄亥俄州的巴格蒂茨，佛罗里达的奎夫加斯沼泽和科罗拉多州的拉尼亚斯纳奇的主要分销中心大量生产。 毫无疑问，每天都有数以百万计的选票印制，选票上已经勾选了民主党候选人的名字，并由位于加拿大湖滨公园的Lee、Lifeson和Peart运输公司的子公司LaForm卡车公司拥有的纯黑色半挂车逐州运送。
+在这个大选敏感时刻，这么重大的新闻，难怪朱利安尼先生突然发推发问: “媒体在哪? “怎么不播报?
 
-大选近在眼前，邮寄选票的水越来越深，川普总统发推表示大选应该在11月3日结束，现在就让我们拭目以待这几天更深层次的排干沼泽，更多关于大选的重磅消息，请关注：GTV.ORG
+[!\[\]()!\[\](https://spark.adobe.com/page/7ntykLxVZo0fT/images/8a05220f-cd12-47b9-821f-363f483a0ca4.jpg?asset_id=6db5dfba-0274-49e5-ac2c-39b10968ac5c&amp;img_etag=%22f54c67914e39aed7c651e2323714b5e2%22&amp;size=2560)](https://spark.adobe.com/page/7ntykLxVZo0fT/images/8a05220f-cd12-47b9-821f-363f483a0ca4.jpg?asset_id=6db5dfba-0274-49e5-ac2c-39b10968ac5c&amp;img_etag=%22f54c67914e39aed7c651e2323714b5e2%22&amp;size=1024)
 
-信息来源：*[https://obamawatcher.com/2020/06/cheatin/?fbclid=IwAR20UeYGCy5r75HLYi3Ud9KokpL1YxEBRHbBHWpw7MSRNACfixUoApuPSkY](https://obamawatcher.com/2020/06/cheatin/?fbclid=IwAR20UeYGCy5r75HLYi3Ud9KokpL1YxEBRHbBHWpw7MSRNACfixUoApuPSkY)*
+***翻译 突发新闻: 司法部官员证实亨特-拜登和他的商业伙伴目前正在接受FBI主动的刑事调查。这调查是自2019年就就開始一直在进行的，而且调查可能还包括他的父亲乔-拜登。媒体在哪里？***
 
-2+
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/7ntykLxVZo0fT/)】-点击spark adobe版
+
+[点击阅读英喜莊園Himalaya UK在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜莊園Himalaya UK在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/7ntykLxVZo0fT/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/7ntykLxVZo0fT/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
+0
