@@ -1,21 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/10/23 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/516826/)
+## 班农疫情作战室461/462期
+` GM47` [轉載自GNews](https://gnews.org/zh-hans/516902/)
 
-战友之家图文摘要及多语种组
+战友之家新闻译制组制作
 
-[272\_English\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_English_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_English_1023_CCP_Virus_Updates.pdf)
 
-[272\_French\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070753/272_French_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070753/272_French_1023_CCP_Virus_Updates.pdf)
 
-[272\_German\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_German_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_German_1023_CCP_Virus_Updates.pdf)
 
-[272\_Japanese\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Japanese_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Japanese_1023_CCP_Virus_Updates.pdf)
 
-[272\_Korean\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Korean_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Korean_1023_CCP_Virus_Updates.pdf)
+461/462摘要
 
-[272\_Spanish\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Spanish_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Spanish_1023_CCP_Virus_Updates.pdf)
+班农：
+
+拜登一族的商业模型就是售卖通往乔拜登的路，从中获利。
+
+华盛顿是一个非常腐败的地方，现在这个案子重点是向底线妥协，因为妥协所以腐败。现在我们有亨特拜登的电话录音，有何志平，亨特拜登以为的间谍头子，的相关签名信，有汇款，有与中国情报部门接触的有关证据，这就是向底线妥协，那意味有人不能当美国总司令了。
+
+一个头发五颜六色，鼻孔穿环的年轻女子，非典型共和党人，原本讨厌川普，但因「不能接受笔电门」转投川普一票，这显示了信息正确呈现出来的力量。
+
+中国有五大家族掌控着中共，中共掌控着中国政府，中国政府掌控着中国老百姓，为了继续掌控，他们需要引入合作伙伴，这是全球化的原因。西方资本为了赚中国市场的热钱，以奴工的低成本赚取较高利润，然后将利润来推高股价，这是全球化体系运作的方式。由于起点与终点都是中国，所以需要摧毁民族国家的概念。
+
+中共经由奴工制向全球输出通货紧缩、过剩产能，让全球其他的劳动者成为农奴。
+
+马修特曼(波美政治活动家，记者)：
+
+朱克伯与拜登家族做生意，有电邮谈到他占股50%。
+
+班农：
+
+脸书规定在选前10天不能做任何政治宣传，让很多草根团体不能沟通。
+
+朱克伯为推进美国民主的捐款，有95％在民主党的区域推动反川普的民主党投票活动。他一个科技寡头，却是拜登的合作者，打压保守派的声音，推动支持拜登。
+
+杰克波索比(OAN记者)：
+
+费城抢劫的地点距离警察事件原发地有10英里，所以不是抗议活动的蔓延 ，
+
+而是有针对性的无政府状态。他们没有政治诉求，是为了钱。市长下令不许逮捕和平示威人士，所以人们放心洗劫，这是经济恐怖主义。很多人选择离去，房产实际价值为零。
+
+班农：
+
+FBI和CIA需要系统性调查，进行解构，勿需全部销毁。雷局长若不能提出满意解释，今天就要开除他，因为他是问题的一部分，这对国家有利。川普总统因等待显出弱点，做自己，做总统应该做的。
+
+山姆费帝 (前CIA情报员，「CIA沉浮录」作者)：
+
+美国副总统很可能已被中国情报部收买，多年来一直听命于他们。情治单位不可能不知道拜登家族的行为。
+
+乔拜登极有可能不仅妥协，而且多年来确实交付了中共要求他做的事。以南海为例，两年来中共的军事建筑占领了南中国海的85％，美国放弃了与每个盟友的每一个联盟。
 
 0
