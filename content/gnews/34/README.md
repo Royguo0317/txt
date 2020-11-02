@@ -1,23 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/10/22 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/513021/)
+## 美利坚，莱克星顿在召唤
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/514611/)
 
-战友之家图文摘要及多语种组
+多伦多加喜农场   孙行者
 
-[271\_English\_1022\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_English_1022_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_English_1022_CCP_Virus_Updates.pdf)
+校对上传 XM
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01150020/%E5%9B%BE%E7%89%875.jpg)图片来源：VK
+两百年前，1775年4月18日晚上，当保尔·瑞维尔和威廉·戴维斯骑着快马从波士顿向康科德飞驰，沿途把英国军队来袭的消息告诉当地民兵的时候，他们的内心是紧张、焦急的，他们希望能唤醒每一个正在沉睡的人。听到消息的人们，有狡诈的造谣者，有冷漠的旁观者，有糊涂的怀疑者，更多的是默默行动，准备战斗的人。紧张混合着激动的气息在每个村庄上的夜空里弥漫开来。
 
-[271\_French\_1022\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_French_1022_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_French_1022_CCP_Virus_Updates.pdf)
+第二天凌晨，枪声终于在莱克星顿响起。不管人们有多少善良美好的愿望，不管人们有多少忍让退却，欲望和尊严，贪婪和自由的矛盾最终只有通过战争来解决。莱克星顿枪声点燃了北美反抗英国王室统治的战火，成为美国人民争取独立、自由的起点和象征。
 
-[271\_German\_1022\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_German_1022_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_German_1022_CCP_Virus_Updates_.pdf)
+两百年后的今天，在美国2020年大选前，美国人民的自由和权利再度受到巨大的威胁。只是，因为媒体和科技的催眠，很多人依然沉睡在谎言和自我编织的梦幻里。
 
-[271\_Japanese\_1022\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_Japanese_1022_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_Japanese_1022_CCP_Virus_Updates.pdf)
+面对两篇揭露杀害二十万美国人的病毒来源真相的报告，科学界可以保持缄默，甚至罔顾事实，抹黑攻击作者。面对三块硬盘揭示的拜登家族铁的犯罪事实，纽约时报、华尔街日报等传统媒体可以视而不见，装聋作哑；推特、脸书等高科技媒体可以屏蔽、封锁消息；FBI可以进行长达一年时间的掩盖、压制。面对支持川普的汹涌选民，明尼苏达州民主党州长沃尔兹和检察长埃里森可以以防疫为名，只允许250人入场参加竞选集会。面对川普总统和乔·拜登竞选现场几万人与几十个人的对比，民意调查机构甚至能够编制出拜登90%的胜选率。
 
-[271\_Korean\_1022\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051126/271_Korean_1022_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051126/271_Korean_1022_CCP_Virus_Updates.pdf)
+美国人民的言论、集会自由受到前所未有的赤裸裸的打击，公众的知情权被剥夺，民选的民主党地方政府成了压迫民主的机器。根据亨特·拜登三块硬盘的内容，所有这些，都是共产中国长期渗透美国，通过利益、色诱、胁迫等手段控制华盛顿、华尔街、硅谷、大学、好莱坞、NBA等所谓美国精英届的结果。中共正在通过他们操控2020年美国大选结果。
 
-[271\_Spanish\_1022\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_Spanish_1022_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01051125/271_Spanish_1022_CCP_Virus_Updates.pdf)
+躲在地下室的乔·拜登即使在选前偃旗息鼓，不做竞选活动，也可以说他会赢得大选，言之凿凿；南希·佩罗西可以在众议院宣称她已经为乔·拜登的总统职位做好了准备；疯疯癫癫的哈里斯可以在舞台上面对寥寥无几的听众称自己是下一届美国总统。所有这些，并不只是在虚张声势，而是他们已经做好了准备，要窃取、改变美国人民的选举结果。
 
+他们从中共国邮寄假身份证件，登记虚假选民信息；他们分发出比选区实际人数多的选票；他们向选民邮寄印刷错误的选票；他们毁坏有大量支持川普总统选票的邮箱；他们涂改邮寄选票；他们通过O先生基金会操纵投票打印机；他们设制计票软件程序，控制计票结果；他们延长计票日期，改变选举结果；如果所有这些不起作用，他们还做了最后准备，组织安提法暴乱，拒不承认选举结果。种种伎俩，都像中共的行为一样，总是能突破人们想象的范围和良知的底线。
 
+而这一切，也离不开共产中国的资金和他们窃取的美国公民信息的支持，中共是组织这些活动的幕后黑手，他们试图通过建立乔·拜登傀儡政府控制、占领美国，就像他们在香港、东南亚、非洲国家做的一样。美利坚的独立和自由面临着和两百年前一样甚至更严重的威胁。
+
+莱克星顿在再次召唤美国人民！
+
+正直、善良、勇敢的美国人是多数，真正的犯罪分子不到这个社会的0.1%。面对这些“精英蛆虫”出卖美国精神和利益的行为，如果人们不站出来，今天香港发生的一切，明天就将发生在美国：人民不仅会失去一切权利和自由，他们将被迫跪下，反抗会被虐杀，青年将成为收割器官的“蔬菜”，儿童会成为亨特·拜登们的性奴。
+
+美国人民有着热爱自由的传统，美国人民有着追求独立的精神，美国人民有着追求正义的品德。他们不会接受权利的侵犯，不会忍受迫害加身，不会坐视罪行的发生，那么，今天，是时候拿起武器，在大选的日子里再度捍卫美利坚的独立、自由和权利了！
+
+拿起武器，用你的钢笔，而不是投票点准备好的铅笔填写选票；
+
+拿起武器，盯住投票箱，保证你的选票不会被人做手脚；
+
+拿起武器，骑上快马，保证投票箱在运输途中不被偷梁换柱；
+
+拿起武器，紧盯屏幕，防止计票过程中发生任何舞弊的可能；
+
+拿起武器，子弹上膛，警惕任何可能制造骚乱，浑水摸鱼的意图。
+
+让我们牢记莱克星顿独立纪念碑的铭文：“坚守阵地。在敌人没有开枪射击以前，不要先开枪；但是，如果敌人硬要把战争强加在我们头上，那么，就让战争从这儿开始吧！”
+
+如果选举的结果，人民的意志被篡改，枪支，就成了宪法赋予美利坚人民反抗暴政，捍卫权利的武器！
 
 0

@@ -1,19 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/10/21 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/512981/)
+## 乔·拜登是如何被共产党收买的 &#8211; 中共收买拜登家族(1)
+` VOH欧洲战友团` [轉載自GNews](https://gnews.org/zh-hans/514479/)
 
-战友之家图文摘要及多语种组
+撰稿: 广场小哥  校对: G吉
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01135741/G30.jpg)图片: 昆仑竹
 
-[270\_English\_1021\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050236/270_English_1021_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050236/270_English_1021_CCP_Virus_Updates.pdf)
 
-[270\_French\_1021\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050237/270_French_1021_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050237/270_French_1021_CCP_Virus_Updates.pdf)
+拜登 36 岁时第一次访问中国, 作为美国政府代表团的一员，当时他是特拉华州的参议员(1973-2009)。 他与当时新任的中国“最高领导人”邓小平（邓）进行了几天的会晤，正是邓小平带领中国走上了改革开放的道路。
 
-[270\_German\_1021\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050237/270_German_1021_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050237/270_German_1021_CCP_Virus_Updates_.pdf)
+外交关系后来成为拜登职业生涯的一个重要方面。1997 年，他成为参议院外交关系委员会（SFRC）的高级成员，该委员会是美国参议院的常设委员会，负责在参议院引领外交政策的立法和辩论。 SFRC 负责监督对外援助项目的资金、对国家盟友的武器销售、国际条约谈判和外交提名。
 
-[270\_Korean\_1021\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050238/270_Korean_1021_CCP_Virus_Updates-1.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050238/270_Korean_1021_CCP_Virus_Updates-1.pdf)
+从外国竞争者或对手的角度来看， SFRC 是美国政府的重要部门，它对美国在地缘政治的发展和定位方面影响巨大。 SFRC 的任何成员作为一个情报资产以及向一个外国政府政策倾斜都是非常有价值的。
 
-[270\_Spanish\_1021\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050236/270_Spanish_1021_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01050236/270_Spanish_1021_CCP_Virus_Updates.pdf)
+在中国申请加入WTO 的关键时期， 拜登成为委员会的一员。加入世贸组织会使中国能够更自由地与世界其他国家进行贸易，促进其经济发展。而且还会使中国富有的政客和那些有政治关系的精英阶层能够从贸易繁荣中获利，他们随后用从中赚取的收入再投资到海外市场。在中国申请加入世贸组织期间，拜登(和当时许多其他美国政客一样)支持帮助中国加入了 WTO 的自由贸易立法。 2001 年，当中国正式加入 WTO 时，拜登成为 SFRC主席，一个对全球有重大影响的职位， 他应该以美国国家安全利益行事。 作为 SFRC 主席的底线，其应该不受任何外国干扰或影响。
+
+在担任 SFRC 主席的初期，拜登被形容为政策鹰派。在中国加入 WTO 之前，他说“…如果中国在武器扩散问题上继续像大流氓一样为所欲为，我们应该准备明确的、且毫不含糊地反击它…取消中国最惠国贸易地位 。 ”在克林顿的总统任期间，有关中国获取捐赠的丑闻，拜登将其称为“严重事件”，认为应该进行审查以确认是否存在“交换条件”。
+
+2001 年 8 月, 拜登代表美国访问中国，并与中国国家主席江泽民会谈。拜登对中国的武器扩散、 司法系统、 人权记录等问题上态度强硬。  但随着中国在 21 世纪的发展，拜登逐渐适应了中国的崛起。 2004 年， 他被拍到会见当时的中国驻美国大使杨洁篪。
+
+许多其它美国政界人士也支持对华自由贸易，主要是因为美国企业希望进入中国这个十几亿人口的消费市场。但是，历史证明，中国从未完全向外国公司开放国内市场。
+
+在某些行业(通常是赚钱行业)，市场准入受到限制，迫使其他国家寻求国家补偿。中国没有兑现加入世贸时的承诺，当然这并不是一定是美国或拜登政策的失败，但拜登的反常表现是当时美国其他高级政客不会有的。
 
 0
