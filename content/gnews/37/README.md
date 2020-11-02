@@ -1,19 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统暗示可能在大选后解雇伏奇博士
-` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/516739/)
+## 【热点播报】叶简明的下场，预示“习魔头”已掌控中共党内及海外恶势力！
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/516684/)
 
-喜马拉雅的文雅 （雅典娜农场）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02064420/image.jpg)图片来源 ctvnew.ca
-周日夜间，川普总统在周日佛罗里达第五场竞选集会上暗示，他可能在大选后解雇白宫冠状病毒特别工作组成员安东尼·伏奇（Anthony Fauci）博士。
+**香草山写作组****：**Daxia **编辑：文位**
 
-演讲中川普总统提到病毒新闻被掩盖时，人群爆发出了“ 炒掉伏奇”的呼声。川普总统回应说，伏奇“做错了很多事”， “但是别告诉任何人，等我在大选之后再说。”此前在亨特拜登硬盘门爆出后，伏奇仍然公开肯定乔拜登，并批评川普总统对疫情的应对政策。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28173039/logo-1.jpg)
 
-川普总统这里提前释放出解雇伏奇的信号，是为了让子弹再飞一会吗？
 
-新闻来源 [https://nypost.com/2020/11/02/trump-hints-he-may-fire-dr-fauci-after-the-election/](https://nypost.com/2020/11/02/trump-hints-he-may-fire-dr-fauci-after-the-election/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070237/image.jpeg)
+据《路德社》10**月**30日早间于美东报道：2018**年**2月，华信创始人叶简明以经济犯罪为由被抓捕，当时消息迟迟未公开。但之后，这位神秘的“能源大亨”便消失在公众的视野中。也有未经证实的消息称其早已被秘密杀害，陈尸江底。
 
-[https://www.ctvnews.ca/health/coronavirus/white-house-unleashes-on-fauci-after-criticism-of-trump-s-pandemic-response-1.5169917](https://www.ctvnews.ca/health/coronavirus/white-house-unleashes-on-fauci-after-criticism-of-trump-s-pandemic-response-1.5169917)
+随后嘉宾分析了薄甜甜2018年3月先后给亨特·拜登发送的两封机密邮件，邮件中，薄甜甜以＂我们＂相称（可见关系的密切），告之亨特·拜登，尽可能把华信能源合作公司的钱速速提走，能提多少提多少，理由是在合作期间他应得酬劳，否则这些钱也会被其他人（暗指习势力）白白拿走。并告之如有需要可随时提供帮助。邮件的语气显示了二人关系非同寻常，也体现了薄甜甜能力非凡。薄甜甜还以在纽约要还小狗项链（机密资料）为由，提出想与亨特见面，并报销亨特在哥伦布酒店和叶鲁俱乐部的所有差旅费。邮件透露出薄甜甜想借此试探亨特·拜登的反应，也暗示亨特的黑材料在握，不要想随便动我。
+
+事实上，当时亨特·拜登已经知道薄甜甜是薄熙来家人，叶简明的突然被捕让他意识到薄家人已失势，已被习势力取代，便匆匆解散了他与叶合作的一家公司，并通知解雇薄甜甜。这才有了薄甜甜的两封邮件。不过，亨特当时并未回复邮件！
+
+叶简明的被捕、失踪，薄甜甜的邮件折射出中共党內与美国腐败政客背后的黑幕交易。这种党内的黑吃黑，加固了习团伙和海外政商黑势力的联盟，他们各自消除政党对手，巩固江山！
+
+习近平和乔·拜登勾结，通过“建筑艺术项目”，以蓝金黄手段快速收复海外黑势力，以反腐名义打压薄等党内势力，掐断其海外政商关系及财富。习的疯狂模式早已开启，也预示着他的“人类命运共同体”计划将走向地狱！
+
+更多黑暗详情点击链接：[https://youtu.be/p\_hi4cv7USM](https://youtu.be/p_hi4cv7USM)
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
