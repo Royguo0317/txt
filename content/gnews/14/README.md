@@ -1,73 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日新闻看点-2020年11月1日
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/517603/)
+## 中美盗国卖国集团的联合指挥部
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/517911/)
 
-多伦多加喜农场 大地鲲鹏
+作者：宁缺
 
-校对上传 XM
+校对/审核：free dust；Page：拱卒
 
-一、疫情真相
+# *中美盗国卖国集团的联合指挥部*
 
-闫丽梦博士论文：
+### 渤海华美背后股东都有谁？
 
-第一份英文版[https://zenodo.org/record/4028830#.X1\_lwj-SlPa](https://zenodo.org/record/4028830#.X1_lwj-SlPa)
+[!\[\]()!\[\](https://spark.adobe.com/page/45s2rnVpaRMbM/images/5d4a228e-12d3-4b88-9a1f-ee6a3f4e866c.jpg?asset_id=6b149a28-8ef1-44a6-a89d-ab89c7fd875d&amp;img_etag=%227e7efef0cf75344c6f67e4a14d11533f%22&amp;size=1024)](https://spark.adobe.com/page/45s2rnVpaRMbM/images/5d4a228e-12d3-4b88-9a1f-ee6a3f4e866c.jpg?asset_id=6b149a28-8ef1-44a6-a89d-ab89c7fd875d&amp;img_etag=%227e7efef0cf75344c6f67e4a14d11533f%22&amp;size=1024)
 
-第一份中文版[https://drive.google.com/file/d/1vZ0vbPJ9QAhGDjna9pkMxqUHhIdakODW/view?usp=sharing](https://drive.google.com/file/d/1vZ0vbPJ9QAhGDjna9pkMxqUHhIdakODW/view?usp=sharing)
+随着拜登电邮门事件的发酵和美国大选的逼近，美国总统候选人拜登及其家族，与中共之间的关系，已经成为舆论焦点。其中最引人注目的就是文贵先生和路德访谈曝光的中美盗国卖国集团的联合指挥部渤海华美。我们通过梳理渤海华美成立的时间和背后股东阵容，可以清晰地看到中共盗国贼和美国卖国贼勾结的详细形式和手段。以下内容均来自公开资料：
 
-第二份英文版[http://zenodo.org/record/4073131](https://zenodo.org/record/4073131)
+2012年11月习近平当选中共中央总书记、中共中央军委主席，成为中华人民共和国第五代领导人。一年后，2013年12月4日至5日，时任美国副总统拜登访问中国，与习近平会面，亨特随拜登乘坐“空军二号”访问中国。此次访问仅10天后，渤海华美基金成立，亨特为9名董事之一。
 
-第二份中文版[https://gnews.org/zh-hans/411364/](https://gnews.org/zh-hans/411364/)
+[!\[\]()!\[\](https://spark.adobe.com/page/45s2rnVpaRMbM/images/12b37b38-539c-4082-b05d-7c163c9e143e.jpg?asset_id=d35a6528-6851-4a01-aacf-b61facae9779&amp;img_etag=%22fb1b2a5431ecf9ea6ef7c620907a120c%22&amp;size=1024)](https://spark.adobe.com/page/45s2rnVpaRMbM/images/12b37b38-539c-4082-b05d-7c163c9e143e.jpg?asset_id=d35a6528-6851-4a01-aacf-b61facae9779&amp;img_etag=%22fb1b2a5431ecf9ea6ef7c620907a120c%22&amp;size=1024)拜登与儿子2013年中国之行引关注
 
-二、新中国联邦新闻
 
-1.新中国联邦大决战：
+2013年12月16日，渤海华美（上海）股权投资基金管理有限公司（BHR Partners）在上海注册成立。渤海华美（BHR Partners）是一家专门负责跨境并购投资的私人基金公司，由中方的渤海产业投资基金、嘉实基金管理公司（Harvest Fund Management），与美方的投资顾问机构Rosemont Seneca Partners，和桑顿集团（Thornton Group）共同成立。渤海产业投资总经理李祥生是BHR总裁。亨特是BHR的9名董事之一，持股10%。
 
-硬盘邮件解密新闻列表：
+渤海华美基金三大股东：
 
-[https://drive.google.com/file/d/1rmGvUGoPiBAj9ts5PECczWkG3YPUfIyg/view?usp=sharing](https://drive.google.com/file/d/1rmGvUGoPiBAj9ts5PECczWkG3YPUfIyg/view?usp=sharing)
+[!\[\]()!\[\](https://spark.adobe.com/page/45s2rnVpaRMbM/images/5d90b1d8-0ae8-41bf-9006-c3422b438e8e.jpg?asset_id=a30496f6-b040-4dac-a167-5e7dea95d66e&amp;img_etag=%22cf2a4d1b575da528504578583d11b876%22&amp;size=2560)](https://spark.adobe.com/page/45s2rnVpaRMbM/images/5d90b1d8-0ae8-41bf-9006-c3422b438e8e.jpg?asset_id=a30496f6-b040-4dac-a167-5e7dea95d66e&amp;img_etag=%22cf2a4d1b575da528504578583d11b876%22&amp;size=1024)
 
-一切真相，尽在GNEWS。
+下面就上面所述的所有大股东进行一一详细的介绍：
 
-2.“路德时评”10/31/2020节目部分内容:
+![]()![](https://spark.adobe.com/page/45s2rnVpaRMbM/images/7576a7ff-8eb7-4a4d-a852-9ef474fcced8.jpg?asset_id=26530001-5a04-44ca-adcf-d63187b918c5&amp;img_etag=%22c80ca5e5a8f0148192d0395eeafb1d1b%22&amp;size=1024)
 
-a.民主党组织两万多名Antifa成员俟机于大选夜挑起白宫附近的暴乱活动，国民警卫队严阵以待。
+**一、渤海产业投资基金**
 
-b.朱利安尼痛斥乔∙拜登屡次卖国，证据确凿。班农明确爆料革命是因灭共诉求而打击乔∙拜登，并非干预大选。川普总统对中共病毒追责不及时，几近败选，爆料革命所揭露的硬盘真相扭转颓势。
+渤海产业投资基金于2006年12月在天津设立。该基金由全体出资人以契约方式发起设立，总规模200亿元，首期募集60.8亿元。出资人是实力雄厚的金融企业和投资机构，包括全国社会保障基金理事会、国家开发银行、国家邮政局、邮政储汇局、天津市津能投资公司、中银集团投资有限公司、中国人寿保险（集团）公司、中国人寿保险股份有限公司，以及渤海产业投资基金管理有限公司。
 
-c.亨特∙拜登邮件曝光其曾参与渤海母公司股东会议，与中海油商议董事提名，勾结华尔街律师Boies，坐实其为中共的外国代理人。
+很明显，渤海产业投资基金来自中国政府国家企业的直接投资，这些国家企业背后股东有江泽民、朱镕基家族的银行，邓小平家族保险公司，李鹏家族的能源电力公司，以及王岐山家族的天津基建城建企业。为渤海产业背书的香港中银控股公司则与姚依林家族有关。
 
-d.美参议院国土安全委员会主席在Fox节目中揭露，乔∙拜登借助美国海外投资委员会主席身份，审批中共收购美国企业，窃取军民科技，危害国家安全。
+**二、嘉实基金管理公司**
 
-e.拜登家族持股的渤海华美2018年报曝光：前澳驻华大使芮捷锐协助中共渗透澳洲，BHR海外投资高科技，布局现代奴隶制，美大选推动民意觉醒。
+嘉实重要股东之一是中国国营企业中诚信托。中诚信托主要股东就是国有和地方煤炭、矿产、能源等企业，其中可能包含了中国华信能源。嘉实的背书银行是德意志银行，而德意志银行最大股东是王岐山所掌控的海航集团。
 
-f.路德再次详解为何本次大选不仅关乎美国、更关乎全人类的命运:
+**三、美方RST（Rosemont Seneca Partners和Thornton Group）**
 
-这个地球和全人类的走向，关键在美国。如果美国都没有言论自由，十四亿中国人民短期内很难翻身，必将进入中世纪一样的千年黑暗。城门失火必定殃及池鱼，没有投票权的中国人已经处在这场选举战争之中。
+Rosemont投资公司是由美国前国务卿克里（副总统拜登）的继子汉斯，以及克里的顾问阿契尔共同创办的。
 
-我们中国十四亿人已经被中共压榨了七十年，过得猪狗不如。曾经的自由之都香港已经沦陷，很多欧盟国家也沦陷。
+Seneca Global Advisors咨询公司由拜登之子亨特·拜登与美国前国务卿约翰·克里的继子汉斯在2008年9月，拜登被宣布成为副总统候选人的数周后共同创办。也就是说亨特·拜登除了自己独占渤海华美10%的股权外，还通过自己创办的下属公司间接持有渤海华美额外的股权，既吃独食又吃团餐。
 
-中共已经控制了媒体、华尔街、好莱坞，加上他们投毒、印制假钞、芬太尼和无底线的黑社会运作方式，几乎为所欲为。甚至构陷还在任上的川普总统、班农和朱利安尼先生。乔·拜登如果胜选，中共将更加肆无忌惮，正义力量都会被消灭，世界将进入黑暗。
+Thornton Group（桑顿集团）由台湾商人林俊良和前马萨诸塞州参议院议长威廉·布尔格之子詹姆斯·布尔格创办。而林俊良又曾担任德意志银行台湾区首席代表。北大方正国际投资部门负责人。
 
-爆料革命灭共，靠的是实力和策略。
+渤海华美的所有股东组成就是一份中美盗国卖国贼通过经济利益勾结的最好证据。为什么江、曾、孟拥有展示所有拜登与中共合作勾结的所有证据？因为这些家族本身就是盗国卖国活动的重要参与者，是渤海华美等系列金控集团的股东。路德访谈评论江、曾、孟交出硬盘资料是跳船举动的说法是十分恰当和精准的。因为他们为了打击政治对手，可以连自己的秘密都和盘托出，这就是舍命与对手同归于尽的行为。共产党大佬的矛盾已经在世界范围公开化，铁板已经在内部断裂。这就充分证明了文贵先生以共灭共取得了完美的成功！
 
-（“路德时评”早间节目[https://www.youtube.com/watch?v=gVB2cS7vlcs&list=PLt9WLG-do1atM5bjKoiSQuXncbmVnEESC&index=2](https://www.youtube.com/watch?v=gVB2cS7vlcs&amp;list=PLt9WLG-do1atM5bjKoiSQuXncbmVnEESC&amp;index=2)）
+让我们继续努力，不断发掘，让更多中美盗国卖国集团勾结证据的细节公布于天下，让美国人民清楚认识到中共邪恶政权带来的威胁，加速以美灭共终极目标的到来！
 
-（“路德时评”晚间节目[https://www.youtube.com/watch?v=Sreyg0R2eXI&list=PLt9WLG-do1atM5bjKoiSQuXncbmVnEESC](https://www.youtube.com/watch?v=Sreyg0R2eXI&amp;list=PLt9WLG-do1atM5bjKoiSQuXncbmVnEESC)）
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/45s2rnVpaRMbM/)】-点击spark adobe版
 
-3.10月31日（周六）晚，瑞士日内瓦州大议会议员提案反对瑞士与中共签署的一项协议，并获得通过。该协议允许中共官员监控调查在瑞士的华人，并对其进行审讯（中共称之为“猎狐行动”），会直接威胁到瑞士华人的人权自由。
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-4. 中共五中全会闭幕次日，其官方以“中共中央”名义，透过中共国务院新闻办公室举行记者会做有关五中全会的说明。江金权以中央政策研究室主任身份出席记者会。 证实了“路德时评”此前透露的消息，王沪宁因在与爆料革命的对手盘中屡遭败绩，而失去在中共宣传机器中的核心地位。
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-5.中共秋后算账，在港版国安法实施之后，逐步控制香港民主人士。港现任及前任立法会议员陈志全、朱凯迪等至少7人于11月1日早晨被捕。香港警方宣称，抓捕行动因2020年5月8日香港立法会内会“混乱事件”。
-
-6.土耳其总统埃尔多安在Twitter上发布图片，感谢100个国家和国际组织对土耳其爱琴海地震的慰问。台湾以中华民国的称号与中共国共同出现在感谢名单中。
-
-三、世界新闻
-
-1.德拉瓦州联邦参议员候选人劳伦·维茨克（Lauren Witzke）爆料，已有深入了解亨特·拜登硬盘门的消息人士证实，该州民主党籍联邦参议员克里斯·库恩斯（Chris Coons）的女儿和另外7名未成年女孩出现在硬碟中。此前一名白宫记者指出，其中已包括亨特·拜登的侄女。
-
-2.10月27日，美印两国签署了又一项重要军事协议《地理空间合作基本交流与合作协议》（BECA），该协议将允许新德里从华盛顿获取绝密卫星和传感器数据，随着美国和印度之间的军事合作不断加强，以及两国在印度洋和南亚地区存在的共同利益，印度正取代巴基斯坦成为美国在该地区的最大合作伙伴。
+![]()![](https://spark.adobe.com/page/45s2rnVpaRMbM/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

@@ -1,31 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 决战时刻：墙国“家庭紧急物资储备建议清单”引起关注
-` GM06` [轉載自GNews](https://gnews.org/zh-hans/517247/)
+## 快讯：美国下任FBI局长人选确定——悉妮·鲍威尔（Sidney Powell）
+` GM65` [轉載自GNews](https://gnews.org/zh-hans/517797/)
 
-编辑 : 雅典娜之矛
+11月2日，班农先生在战斗室直播中正式向公众介绍，悉妮·鲍威尔（Sidney Powell）将代替雷，接任下一届FBI局长职位。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02120702/IMG_1371.jpg)
+据“联邦上诉网”（Federal Appeals）的 [个人主页](https://www.federalappeals.com/attorneys/sidney-powell/)显示，鲍威尔女士是美国法律协会（the American Law Institute）成员和美国上诉律师学会（the American Academy of Appellate Lawyers）院士。她还曾担任第五联邦巡回律师协会主席。
 
-黑暗与光明的世界大战正在大决战进行中…邪恶的跨国集团正在遭受前所未有的打击。战争还在继续，邪恶力量也正在猖獗反击。可以想象，他们正在做一切疯狂反扑的准备和计划。经过近日的爆料革命消息解密轰炸，世界正在晕眩中惊叹这邪恶力量渗透之深之广！CCP的邪恶以及与之共舞的妖魔鬼怪都慢慢浮出水面，曝光于世界！
+她作为代理律师，曾经中途接手福林将军被美国司法部起诉案，帮助福林找到关键证据而翻案，做实了司法部和FBI对福林的陷害，致使司法部撤销针对福林的指控。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02120955/kloor-powell-image1.jpg)Michael Flynn, President Donald Trump’s former national security adviser, leaves the federal court with his lawyer Sidney Powell, left, following a status conference with Judge Emmet Sullivan, in Washington, Tuesday, Sept. 10, 2019. (AP Photo/Manuel Balce Ceneta)
+根据网上资料，鲍威尔女士著有畅销著作《持证撒谎》（Licenced To Lie)，揭露美国司法部腐败。她经常作为特约嘉宾出现在鲁道伯等电视媒体节目上，探讨司法问题。
 
-观察墙国内部一些动向发现，CCP正在紧张备战。除了其幕后各种黑手计划外，其中一个消息是关乎老百姓的生活：
-
-中国国家发改委近日公布一份”扩内需促消费”方案，要求各地”在秋冬季推出全国家庭应急物资储备建议清单”，引发网友议论。有人认为可能是为疫情封城准备，也有人担忧是为应对战事。
-
-中央社报道，中国国家发展和改革委员会10月29日在官网公布，已于10月中旬印发给各地方政府的”近期扩内需促消费的工作方案”，其中第15点提及”在秋冬季推出全国家庭应急物资储备建议清单”。
-
-方案要求各地方卫生健康委员会、应急管理部、发改委等部门，按职责分工负责，参照北京等地推出省级家用应急物资储备清单的经验，制定全国”基础版家庭应急物资储备建议清单”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02092712/%E6%B8%85%E5%8D%95.png)
-方案并鼓励各地因地制宜，加速制定扩充版清单，引导城市家庭进行家庭急救箱等医疗物资储备。
-
-截至目前，包括北京、山东济南、浙江宁波、广东深圳、海南海口等地均已公布相关物资清单。
-
-初步比对可以发现，各地清单多半包括干粮、急救包、手电筒、矿泉水等物资，以及现金、信用卡等财物，还有身分证、紧急联络表等重要资料。
-
-当局下令各地研拟家庭紧急物资储备清单，近日也在中国社群网站新浪微博引发网友讨论。有人认为，这份清单可能是为应对秋冬季节疫情反弹时的封城措施；也有人担忧，中国近期对外关系紧张，官方要求民众准备紧急物资，可能是为战事预作准备。
-
-一切看似平静，实际上则暗流涌动。我们的同胞兄弟姐妹还需各种心理金额生活准备！曙光不远，暗夜还在。一切防范还需谨慎做起！
-
-援引：[https://www.rfi.fr/cn/中国/20201101-中国下令研拟家庭紧急物资储备建议清单引起关注](https://www.rfi.fr/cn/%25E4%25B8%25AD%25E5%259B%25BD/20201101-%25E4%25B8%25AD%25E5%259B%25BD%25E4%25B8%258B%25E4%25BB%25A4%25E7%25A0%2594%25E6%258B%259F%25E5%25AE%25B6%25E5%25BA%25AD%25E7%25B4%25A7%25E6%2580%25A5%25E7%2589%25A9%25E8%25B5%2584%25E5%2582%25A8%25E5%25A4%2587%25E5%25BB%25BA%25E8%25AE%25AE%25E6%25B8%2585%25E5%258D%2595%25E5%25BC%2595%25E8%25B5%25B7%25E5%2585%25B3%25E6%25B3%25A8)
-
-1+
+3+

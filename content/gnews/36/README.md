@@ -1,21 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/10/23 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/516826/)
+## 路德社11/2:布隆伯格出资ANTIFA于川普总统宣布胜选时发动红色火焰行动
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/517454/)
 
-战友之家图文摘要及多语种组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02102503/%E5%B0%81%E9%9D%A2-14.jpg)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-[272\_English\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_English_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_English_1023_CCP_Virus_Updates.pdf)
+据[11/2/2020 路德时评（路安墨谈）：布隆伯格将在拜登败选之后搞乱美国策划即将被曝光；拜登邮件中牵扯民主党副总统候选人贺锦丽一起从中共国赚钱；董功文与亨特在国泰银行共同开账户](https://www.youtube.com/watch?v=ezQnl9O-r2I)时间点[5：12](https://youtu.be/ezQnl9O-r2I?t=312)
 
-[272\_French\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070753/272_French_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070753/272_French_1023_CCP_Virus_Updates.pdf)
 
-[272\_German\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_German_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_German_1023_CCP_Virus_Updates.pdf)
 
-[272\_Japanese\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Japanese_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Japanese_1023_CCP_Virus_Updates.pdf)
+［路德先生：好的，咱们路德社这里很多的信息了解到，今天站在未来说历史，过几天就可以暴露出来的、大家可以验证，为什么说、这个ANTIFA怎么组织起来的？实际上现在是有情报得知，它是由布隆伯格出资策划的，这个行动叫做RED MIRAGEM，中文是红色幻影或者红色火焰，它是根据投票的形式和时间线，会在全美各地大选夜展现红色火焰出来，这个是什么组织？之前跟大家说过，是ANTIFA，现在是39%的邮寄选票正在转移，转移的目的可能就是造假或者什么东西，并且要对大选夜合法性他们要进行质疑，因为可能就是在明天晚上11：00左右（注：美国时间2020年11月3日11：00PM左右）川普总统就会发推宣布：I WIN!我赢了！但是后面因为有邮寄选票，有的是11月6号截止，有的是11月9号截止，大家去看啊，各个州不一样的啊，川普总统一旦俄亥俄州和佛罗里达州一旦胜选，这两个州是7：00PM(2020年11月3日美国时间)截止，没有什么邮寄选票会拖延的，这两个州一旦胜的话，川普总统就会当场宣布，但是由此布隆伯格就会组织ANTIFA来质疑川普总统宣布胜选，并且把希望寄托在之后，然后通过这种游行来给川普总统施压，并且川普总统一旦宣布完胜选，他就会炒掉那几个人——FBI局长、CIA局长还有国防部的部长，这可不是我们乱说的，这可是有信息来源的。任何幻影的领导都是潜在的危险，在大选夜和随后的几天提供预期、同时保持信任度、要求保持超强的信息传播和公平报道，回头我说的都会有文件会被揭露出来，叫RED MIRAGEM，在未来报道的时候绝对有这个词（注：不保证拼写正确，按路德先生提供的中文意思红色幻影，应该就是RED MIRAGEM），然后目前已经接近2016年投票率的45%,拜登的四个支持者可能有三个邮寄或者投票箱投票，他们就是寄希望于推迟、来清点选票。拜登的四个支持者有三个邮寄选票的说辞就给他们的群体传递了一个错误信息，就告诉大家就算11月3号结果出来了，拜登一方还可以翻盘的，因为还有邮寄选票，意思是说，ANTIFA只要去闹就可以了。在川普当晚宣布胜选的时候，他们就用这个方式来给川普总统施压。（以下略，详细文字摘要请看随后的路德社文字纪录。）］
 
-[272\_Korean\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Korean_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Korean_1023_CCP_Virus_Updates.pdf)
+综述：布隆伯格是谁？它和拜登一起就是中共搞乱美国的双枪，据2020年1月18日文贵谈：刘鹤招待会取消预示着什么？爆料革命击中了中共的所有要害！
 
-[272\_Spanish\_1023\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Spanish_1023_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02070752/272_Spanish_1023_CCP_Virus_Updates.pdf)
+［因为他说我们每个人都纳闷为什么在这个几年前，你能说出郭台铭要选总统；你能说出郭台铭选不上；你又说出郭台铭最后大家都说他还继续会选，你说他不会选；然后韩国瑜美国人认为他是个网红，他根本没有人想到他跟共产党有关系，你说他百分之百共产党控制的；然后你说出的双枪政策；现在你又说出了中共新的双枪政策在美国，也是双枪，拜登副总统是习近平的关系，布隆伯格两枪对一枪对你川普总统；他说为什么又发生这里的双枪关系，我就想听这事，包括这个签约或中国这个老百姓和党内的反应。我就立马打开那个电视，我想让他看刘鹤记者招待会，就一打开视频删了，他很惊讶，他说真的吗？真的吗？马上发信息，问他们的人怎么回事，他们为什么删了，他们说是的，他们删了。］
 
-0
+［大家千万记住，刘鹤这个记者招待会开的多愚蠢，开得他有多危险！开得他未来对他有多大伤害！唯一受益者就是我们爆料革命！就是爆料革命。不等我说呢，人家刘鹤同志开记者招待会亲自证明了我即将说的话！很简单！这个协议绝对不能执行，不可能执行，他执行不了，他没有执行能力，我说的观点；第二，他绝对不想执行，而且把不想执行的责任一定推你川普总统；第三，玩的就是你的政治，就是双枪政治，在台湾郭台铭和韩国瑜对付蔡英文，现在来了拜登和布隆伯格对付川普，双枪政治又来了！据说，美国朋友告诉我说，见王岐山还有见最高领导，原话说“我们在乎什么签协议！我们已经给他谈了一、两年了！签个协议不就是一张纸吗？他能不能过2020还不一定呢！我们的好朋友拜登还有布隆伯格一旦要是竞选总统，那我们有两人竞争川普一个人，我相信我们还是赢面还是很大的嘛！最多不就是一年的时间嘛！我们能签5千亿美元的合同，我们也可以给美国的5千亿美元帮助他们赢嘛！”原话呀！这美国人听了都傻了，说：“你在说什么？你的意思你能影响美国总统选举？” 觉得王岐山疯了！］
+
+我们相信川普总统必将胜选，但是在这次关乎全人类未来的美国大选过程中暴露出来的中共对美国政客的操控、中共对美国双枪政治的布局已经让全人类看清楚中共的邪恶本质，如果这一次共匪的双枪得势了，人类将归于黑暗，但我相信这一天永远不会到来！
+
+（文章内容仅代表作者个人观点）
+
+1+

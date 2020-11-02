@@ -1,29 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 据称俄罗斯人手里也掌握勒索亨特.拜登的不雅照
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/516841/)
+## 【香草诗词汇】我们永不为奴
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/517531/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02072933/speech.jpg)
-图片来自：film daily
-据美国极右媒体***《The Gateway Pundit*** 》的最新报道，多年来，人们一直听到左派声称俄罗斯持有有关针对川普总统（Donald Trump）的勒索信息。左派甚至暗示说俄罗斯有录音带。但这是一个谎言，完全是杜撰的。
+作者：香草山农场写作组   木白
 
-俄罗斯人能拿着亨特.拜登的敲诈录像带，用来对付拜登政府。但那些勒索照片却与川普总统无关，而与拜登家族有关。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/01003406/WhatsApp-Image-2020-11-01-at-11.33.40.jpeg)
 
-亨特.拜登（Hunter Biden）当然是一个瘾君子，现在依然如此。他把自己置于非常不利的境地。亨特行事非常的自恋和鲁莽，这些都体现在他对待女人，家庭，朋友和毒品的方式上。亨特（Hunter）的父亲乔.拜登（Joe Biden）利用亨特在世界各地建立了一个犯罪集团，这贯穿了乔.拜登47年的从政生涯。然而他现在正在美国竞选总统。
 
-拜登家族本身就存在着巨大的问题，他们在世界各地参与了很多不正当的非法活动，他们容易妥协。亨特将家人置于勒索的境地之中。
 
-由于他的毒瘾，亨特发现自己在阴暗的地方和阴暗的人在一起。其中一个例子是2018年10月他与一些“朋友”在西好莱坞的Devlin大道上的一幢豪华房子里和一群男女朋友住了一夜。这些不是普通朋友，他们似乎是俄罗斯人。其中一名成员是一个叫克里斯​​蒂娜的女孩。她有加利福尼亚州的驾照，还和亨特呆了一段时间。 在这个假期期间，他们给亨特拍了许多不雅照，都被闭路摄像机拍了下来。一张照片是亨特的狂欢照，另一张是他的裸体照。其中一个女性的背部有一些标记，在拍摄后有人用黑色椭圆形遮盖了它，但能够发现在黑色椭圆形下有一个纹身，这种纹身标记类似于用来标记被贩运的性奴隶的纹身。
 
-在西好莱坞的别墅中，有一位女性是俄罗斯的公民，曾在2017-2018年持旅游签证前往美国，知情人有她的护照复印件。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02104326/205-%E3%80%90%E9%A6%99%E8%8D%89%E8%AF%97%E8%AF%8D%E6%B1%87%E3%80%91%E6%88%91%E4%BB%AC%E6%B0%B8%E4%B8%8D%E4%B8%BA%E5%A5%B4-1.jpg)
 
-现在的情况已经不是斯蒂尔档案馆和俄罗斯串通的闹剧了，拜登一家确实存在着永无休止的一连串问题，应该坚决取消他们不再担任公职的资格。这样的拜登不配担任美国总统，必须让他远离白宫。
 
-翻译报道：Hakunamatata
+醒来的和没醒的人
 
-校对整理：人间四月
+我们永不为奴
 
-原文链接：https://www.thegatewaypundit.com/2020/10/breaking-exclusive-hunter-bidens-russian-blackmail-photos-uncovered-hunter-russians-hollywood/
+昨日的枪口送走了黄昏
 
+但这并非是结局
+
+
+
+跪着的和没跪的人
+
+我们永不为奴
+
+今日之潮水如万马奔腾
+
+胜利的号角已吹响
+
+
+
+流泪的和没流泪的人
+
+我们永不为奴
+
+明天的太阳温暖、安详，如母亲
+
+蝴蝶的翅膀用风暴  拥抱住了苍生
+
+
+
+2020年10月31日
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/01003406/WhatsApp-Image-2020-11-01-at-11.33.40.jpeg)
 1+
