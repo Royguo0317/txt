@@ -1,47 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】木白的诗：无言的悲哀
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/519436/)
+## 【12】多角度自恋情色裸照！亨特·拜登硬盘第五波超劲爆照片再度来袭！
+` GM01` [轉載自GNews](https://gnews.org/zh-hans/519863/)
 
-作者：香草山农场写作组   木白 校对/发稿：飞虹
+（**您申明，您已年满18周岁或在您访问以下内容的司法管辖区已达到成人年龄，并完全有能力和资格签订本服务条款中规定的条款、条件、义务、申明、陈述和保证，并遵守和履行本服务条款。如果您未满18岁或法定成年年龄，请不要观看以下的任何内容**）
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/01003406/WhatsApp-Image-2020-11-01-at-11.33.40.jpeg)
+这几天大家从劲爆“视频”和“图片”开始了解到美国前副总统，现总统竞选人之一乔·拜登之子，亨特·拜登的荒淫无度，对女性的侮辱与变态，从他的手机聊天记录中感受到家人乱伦已成为公开秘密，还有一封封烧脑的“邮件”曝光拜登家族与中共联合出卖本国利益，为自己谋取巨额财富等铁一般的证据。
 
+其实硬盘中还有绝大部分的视频因涉及到极为敏感，极为不人道，极为残忍的画面无法播放，将随后再进行处理。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02225413/%E5%9B%BE%E7%89%8719.png)
-**无言的悲哀**
-
-又听到类似的故事
-
-这是他们生下的第二个女孩
-
-因为穷，送给了不育的亲戚
-
-三年后，女儿回来了，遍体鳞伤
-
-下体被烟头烫得失去生育能力
-
-亲戚被好事的邻居举报
-
-于是，亲戚把女儿送回
-
-现在，亲戚等待着另一个女儿
-
-现在，他们的女儿，笑声里
-
-多了点无言的悲哀
-
-2020年11月2日
-
-后记：在中共国像杨改兰那样的悲剧千千万万，比杨改兰更悲剧的是他们还在这个炼狱世界无奈地活着。中共国所谓的脱贫攻坚，他们宣称的近八年来近亿人脱贫，不过是这群恶魔用宣传工具制造的假象罢了。我必须发出真实的声音，让世界知道那些无言的悲哀。那些痛，时刻提醒着全世界人民正义的价值以及灭掉中共的理由。否则，这样悲哀的下一个，即是自由文明的世界。
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
+连续十三天的爆料已更新到了第五波，将每30分钟爆出亨特拜登硬盘内更多淫乱照片。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03000112/WhatsApp-Image-2020-11-03-at-01.57.39.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03000120/WhatsApp-Image-2020-11-03-at-01.59.05.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03000125/WhatsApp-Image-2020-11-03-at-02.00.40.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03000131/WhatsApp-Image-2020-11-03-at-02.02.30.jpeg)
 0
