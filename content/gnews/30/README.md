@@ -1,8 +1,12 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/01/2020 朱利安尼: 乔·拜登以出卖美国人民的利益为代价,为其子谋取数十亿美元的私利
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/519037/)
+## 11月2日同声传译班农战斗室【第469+470期】
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/519117/)
+
+2020年11月2日同声传译班农战斗室【第469+470期】
+
+
 
 #### **By: 【秘密翻译组G-Translators】**
 
