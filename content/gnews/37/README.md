@@ -1,15 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 快讯：美国下任FBI局长人选确定——悉妮·鲍威尔（Sidney Powell）
-` GM65` [轉載自GNews](https://gnews.org/zh-hans/517797/)
+## 从一封邀请函看何志平和华信集团的真实面目
+` VOH欧洲战友团` [轉載自GNews](https://gnews.org/zh-hans/517824/)
 
-11月2日，班农先生在战斗室直播中正式向公众介绍，悉妮·鲍威尔（Sidney Powell）将代替雷，接任下一届FBI局长职位。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02120702/IMG_1371.jpg)
-据“联邦上诉网”（Federal Appeals）的 [个人主页](https://www.federalappeals.com/attorneys/sidney-powell/)显示，鲍威尔女士是美国法律协会（the American Law Institute）成员和美国上诉律师学会（the American Academy of Appellate Lawyers）院士。她还曾担任第五联邦巡回律师协会主席。
+撰稿: BoLu文龍 校对: 菲野, G吉
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02121419/G29.jpg)图片: 科林零
 
-她作为代理律师，曾经中途接手福林将军被美国司法部起诉案，帮助福林找到关键证据而翻案，做实了司法部和FBI对福林的陷害，致使司法部撤销针对福林的指控。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02120955/kloor-powell-image1.jpg)Michael Flynn, President Donald Trump’s former national security adviser, leaves the federal court with his lawyer Sidney Powell, left, following a status conference with Judge Emmet Sullivan, in Washington, Tuesday, Sept. 10, 2019. (AP Photo/Manuel Balce Ceneta)
-根据网上资料，鲍威尔女士著有畅销著作《持证撒谎》（Licenced To Lie)，揭露美国司法部腐败。她经常作为特约嘉宾出现在鲁道伯等电视媒体节目上，探讨司法问题。
 
-3+
+哥伦比亚大学中国问题专家易安(Ian Everhart) 向路德社展示了一封来自中国能源基金委员会（China Energy Fund Committee，CEFC）副主席兼秘书长何志平的邀请函, 通过这份邀请函,我们来看看这个何志平和中国能源基金是个怎样的所谓商业机构。
+
+易安先生是一位著名的中国文化学者和中国问题专家,事实上在收到这封邮件之前,他已经接到过何志平的邀请。2016年9月，何志平以中华能源基金会（CEFC）也就是华信集团的名义，邀请了包括易安先生在内的一百多位美国人在华盛顿聚餐，主题是美中两国应共同加强合作等。大概一周后，华信集团又在同一个会场,举办了”中华民族抗日战史”论坛，邀请了前国军将领郝柏村、陈廷宠等演讲，其中前陆军总司令陈廷宠后来去了北京,在人民大会党受到习近平接见。这些前国军退休将军从台湾到华盛顿的费用,全部由华信集团承担支付。
+
+“我当时不知道，桌上的那杯酒是中国人民的血汗钱。整个活动、场地、餐费都是何志平的中华能源基金会买单，背后都是中国人的民脂民膏。”易安在访谈中说。
+
+而这位华信集团董事长叶简明的高级助理、前香港民政局长何志平，2017年底被美国司法机构以行贿/洗钱罪名逮捕，并获刑3年。拜登电邮门事件爆发后，一份被媒体（National Pulse)公开的亨特·拜登电话录音档案中，显示当何志平被逮捕时先打电话给拜登的弟弟吉姆·拜登（Jim Biden），吉姆则称感到意外，认为何应该是要打给亨特·拜登。而亨特·拜登则在电话录音中直接称何志平为”中国间谍头子”!
+
+“这是一举两得，在华盛顿同时对美国和台湾两方面进行影响和渗透。”对于易安先生提到的邀请函事件,路德社时政评论员兼主持人路德说:”从中可以看出何志平的CEFC中华能源基金会、包括香港的中华能源基金会, 都是中共政府设在海外的间谍/统战组织。”
+
+0
