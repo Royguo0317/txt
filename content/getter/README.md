@@ -13,6 +13,11 @@
 
 
 
+[11月2日：相信共产党……走进火葬场！](/content/getter/content/2020/11/5fa0aef5ad3f0f61d2b2c8e2.md)
+
+**郭文贵MILES** `2020-11-03T01:14:29`
+##
+
 [GTV Android 安卓正式版发布  GTV v2.0 Android 版发布，拥有和iOS新版一样的优质体验 - 全新的原生代码，专业的UI设计，更精简的...](/content/getter/content/2020/11/5fa04517ad3f0f61d2b172f3.md)
 
 **郭文贵MILES** `2020-11-02T17:42:47`
@@ -156,10 +161,5 @@
 [10月19日: 让我们大家来认识一下： Doni Nahmias   Doni Nahmias是时尚界最受欢迎的名字之一，最著名的是他在HLorenzo首次亮相...](/content/getter/content/2020/10/5f8dd59d06847a4c65168a43.md)
 
 **郭文贵MILES** `2020-10-19T18:06:21`
-##
-
-[10月18日 班农先生接受Sky News采访爆料：亨特·拜登当时送修电脑时已经喝多了，竟然记不清送到了哪家店；美国主流媒体和科技巨头也被精英们收买了，推特竟然...](/content/getter/content/2020/10/5f8d341806847a4c65163c2d.md)
-
-**郭文贵MILES** `2020-10-19T06:37:12`
 ##
 
