@@ -1,19 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 10.31 路德时评：美国左派齐力撑拜登 恐牢狱之灾【精华版粤语配音】
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/523314/)
+## 5月发票表格1177号
+` JP007` [轉載自GNews](https://gnews.org/zh-hans/523817/)
 
-制作单位：战友之家·粤语频道
-
-制作团队：: 鬼五、打杂的、流光飞舞、哥阿
-
-
-
-摘要：
-
-美国左派的媒体和左派的政客纷纷露头极力维护拜登
-
-亨特.拜登把美国高层及政要的电话号码卖给中共，叛国罪行。
-
-1+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03130308/5%E6%9C%88%E5%8F%91%E7%A5%A8%E8%A1%A8%E6%A0%BC1177%E5%8F%B7.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03130315/5%E6%9C%88%E5%8F%91%E7%A5%A8%E8%A1%A8%E6%A0%BC1177%E5%8F%B7-E1.png)
+0

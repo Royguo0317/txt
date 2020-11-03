@@ -1,49 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家：亨特∙拜登300美元转账邮件
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/522201/)
+## 【香草诗词汇】向今天致敬
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/522617/)
 
-多伦多加喜农场 坐看云起时
+作者：香草山写作组  木白
 
-校对上传 XM
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03091152/98-1.jpg)
-发件人：琼∙梅尔
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/01003406/WhatsApp-Image-2020-11-01-at-11.33.40.jpeg)
 
-主题：回复: Naomi 的帐户
 
-日期：2015年6月11日下午1点34分
 
-发送至： 罗伯特∙拜登
 
-是的，我昨天转了，我转了300美元
 
-于2015年6月11日4:28Pm。
+一生中重要的日子总有那么一两天。
 
-罗伯特∙拜登（Robert Biden)写道。
+究竟是它找上你，还是你偶遇它。这不重要。重要的是恰好花好月圆，夜黑天高下会有那么一丝喜悦中的惊险。
 
-你转过去了吗？谢谢你
+你看见的那张脸，先是血肉，然后是骨骼，最后它就变成你想要的样子。因为人事是相通的，尤其是关于美的。
 
-RHB
+生命的奇迹，有着无数春天的惊喜，才有了此刻的人类。这是上帝的礼物。而今天，这份礼物正被我们缓缓打开。
 
-202.333.1880
+2020年11月3日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03095119/210-%E3%80%90%E9%A6%99%E8%8D%89%E8%AF%97%E8%AF%8D%E6%B1%87%E3%80%91%E5%90%91%E4%BB%8A%E5%A4%A9%E8%87%B4%E6%95%AC.jpg)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
 
-琼∙梅尔
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-罗斯蒙特·塞内卡合作伙伴
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03091254/98-2.jpg)
-来自： 罗伯特∙拜登
-
-主题： Naomi账户
-
-日期：2015年6月11日下午1点28分
-
-发送到：琼∙梅尔
-
-你钱转过去了吗？谢谢你
-
-RHB
-
-202.333.1880
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

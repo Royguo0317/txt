@@ -1,45 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 快讯｜新疆11月3日新增感染者116例！并启动第四轮全员核酸检测
-` Ronald` [轉載自GNews](https://gnews.org/zh-hans/522602/)
+## 独家：鲍嘉琪与拜登家族邮件，透露川普总统与中国石化贸易谈判
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/522889/)
 
-内新闻/素材：Stephen（文文） 校对：老白
+翻译 多伦多加喜农场 坐看云起时
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03095241/image0-1-1.jpg)
+校对 XM 上传 HUH
+![]()![](https://media.discordapp.net/attachments/721388937553248396/773209947466235934/Snipaste_2020-11-03_23-30-13.png?width=353&amp;height=509)![]()![](https://media.discordapp.net/attachments/721388937553248396/773209976070996000/Snipaste_2020-11-03_23-39-14.png?width=397&amp;height=509)
+来自：**鲍嘉琪 **
 
-11月3日晚，中共新疆政府新闻办召开第八场新闻发布会，通报称11月2日24时至3日20时30分，喀什地区新增无症状感染者116例，全部与疏附县站敏乡相关联。并于11月4日启动喀什地区疏附县第四轮全员核酸检测。
+主题：新闻和项目清单
 
-至此，新疆喀什阳性病例人数已高达408人，还不包括中共漏报、瞒报病例，可见新疆喀什疫情已经相当严重。
+日期：2017年11月8日下午4:40分
 
-中共公布的喀什疫情“无症状感染”病例情况：
+收件人：gongwen dong , Hunter Biden , Jim Biden, Mervyn Yan, Robert Biden。
 
-11月3日 116人
+**科普斯基斯蒂(Corpus Christ)的Cheniere LNG还是Texas LNG和中国石化？**
 
-11月2日 19人
+**“****请注意，科普斯基斯蒂(Corpus Christ)在20世纪70年代被飓风摧毁，最近又被飓风Harvey摧毁。**
 
-10月31日 76人
+**Cheniere****目前有2条生产线正在建设中，并计划在以后建设更多的液化生产线。**
 
-10月29日 14人
+**除了Cheniere和Texas LNG，Delfin Midstream是第三家随川普总统贸易代表团访华的德克萨斯LNG公司，第四家LNG/NG公司是阿拉斯加天然气公司。**
 
-10月27日 19人
+川普政府目前正在谈判的最大交易之一是来自中国石油天然气巨头中国石油化工集团公司的数十亿美元的能源投资，这将为德克萨斯州和美属维尔京群岛的飓风肆虐地区带来数千个新的就业机会。许多交易，包括中国石油的投资，预计将以非约束性谅解备忘录的形式进行，没有合同。
 
-10月26日 26人
+根据Bloomberg新闻社获得的一份政府文件，被初步列为与此行有关的中国相关交易的公司有：
 
-10月25日 137人
+通用电气公司（General Electric Co.）、霍尼韦尔国际公司（Honeywell International Inc）、西屋电气公司（Westinghouse Electric Co., ）、阿拉斯加天然气公司（Alaska Gasline Development Corp.）、波音公司（ Boeing Co.）和高通公司（Qualcomm Inc）。这些公司代表了从生命科学到重型机械的各个领域。根据该文件，其他可能正在进行交易的公司包括Cheniere Energy (钱尼尔能源)、特雷克斯公司（Terex Corp) 、赛默飞世尔科技公司（Thermo Fisher Scientific Inc. ）、美国应用材料公司（Applied Materials Inc.）、卡特彼勒（Caterpillar Inc.）和黑石集团(Blacestone Group)。
 
-10月24日 1人
+该项目在德克萨斯州和维尔京群岛的飓风区的细节尚未确定，但这家中国公司，即中国石化，预计将与位于波士顿的基础设施投资公司Arclight Capital和康涅狄格州的商品贸易公司Freepoint Commodities LLC合作。这笔交易预计在美国的投资价值将超过70亿美元。
 
-喀什地区全员核酸检测情况：
+**700-****英里管道**
 
-10月27日，完成第一轮
+该项目将包括建造一条700英里长的管道，从德克萨斯州西部的二叠纪油田到墨西哥湾沿岸，并在那里建造一个储存设施。另外，中国石化还将扩大圣克罗伊岛被称为石灰树的现有油储设施。
 
-10月31日，完成第二轮
+据一位熟悉该提案的人士透露。
 
-11月3日，完成第三轮
+该交易仍需得到美国和中共官员的最终批准。
 
-11月4日，启动第四轮
+但所有这些开发交易都可能为美国总统提供政治助力，他在竞选活动中的大部分时间都在争辩说，他具有吸引就业和投资回美国的独特资格。
 
-新闻来源：[https://m.sohu.com/a/429274620\_120914498https://news.sina.cn/gn/2020-11-03/detail-iiznezxr9740948.d.html?cre=tianyi&mod=w2019ncov&loc=-5&r=-1&rfunc=71&tj=cxvertical\_2019ncov&tr=73&vt=4&pos=222](https://m.sohu.com/a/429274620_120914498https://news.sina.cn/gn/2020-11-03/detail-iiznezxr9740948.d.html?cre=tianyi&amp;mod=w2019ncov&amp;loc=-5&amp;r=-1&amp;rfunc=71&amp;tj=cxvertical_2019ncov&amp;tr=73&amp;vt=4&amp;pos=222)
+美国商务部长威尔伯∙罗斯表示，上个月川普访华时，美国希望在川普访华期间能有 “非常好的可交付成果”。
 
-0
+2+

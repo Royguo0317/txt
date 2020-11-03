@@ -1,18 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅炸弹第六波之：猴岛液化天然气公司–液化科技饼状图
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/522141/)
+## 叶简明之死 （三）华信案将是拜登家族钉在耻辱柱上的第一颗钉子？
+` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/523776/)
 
-*翻译：万人往｜校对：MikeHua｜审核：JohnWallis｜Page：玄天生；*
+作者：为子孙爱七哥农场 烛阴之子
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/31122412/%E5%8F%B6%E7%AE%80%E6%98%8E%E5%B0%81%E9%9D%A2.jpg)
+为什么叶简明手下的何志平2017年 11月在纽约被捕时的第一通电话打给了乔·拜登的弟弟詹姆斯·拜登？在《纽约时报》的采访中，詹姆斯·拜登说，他对何志平的电话感到意外，他相信这是打给前副总统的儿子亨特·拜登的。他表示已经将侄子的联系方式传给了何，并说：“我没有什么要说的了，我不想再被牵扯进来了。”
 
-**简评：**
+确实，从那之后，外人无从得知拜登家族是否与华信或叶简明达成任何商业交易。不过由于何志平不仅贿赂了乍得和乌干达的非洲官员，还试图让华信成为伊朗躲避石油制裁的中间人，此外还牵涉在冲突地区进行不正当未遂武器交易，《纽时》报道，联邦探员至迟从2016年夏天起，就已监控新崛起的华信。逮捕何志平几天后，持有传票的联邦探员也出现在叶简明位于中央公园对面的川普大楼，要求问讯叶简明。
 
-2017年11月17日，猴岛液化天然气公司（Monkey Island LNG）董事长兼首席执行官格雷格·迈克尔斯（Greg Michaels）、董功文、严默文（Mervyn Yan）、鲍嘉琪、亨特·拜登（Hunter Biden）和吉姆拜登（Jim Biden）之间电子邮件沟通，邮件主题为“液化科技饼状图”。
-[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7cf60866-4d58-4f0e-abbe-1024fd6bc36a.png?asset_id=edd1358e-12ea-48e3-8b80-5b2daee7abf0&amp;img_etag=%22f75569f9109e7d45642c0c8583f73666%22&amp;size=3200)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7cf60866-4d58-4f0e-abbe-1024fd6bc36a.png?asset_id=edd1358e-12ea-48e3-8b80-5b2daee7abf0&amp;img_etag=%22f75569f9109e7d45642c0c8583f73666%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/80a02f61-b4f9-4652-b02a-3e0381e6afd9.png?asset_id=7e10ab2e-094a-450f-9491-6695287b20d0&amp;img_etag=%22c99793434693a1eac0a5b42e0166e813%22&amp;size=2560)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/80a02f61-b4f9-4652-b02a-3e0381e6afd9.png?asset_id=7e10ab2e-094a-450f-9491-6695287b20d0&amp;img_etag=%22c99793434693a1eac0a5b42e0166e813%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/0065d205-8aa2-4008-aeb6-3bc960ba1ea0.png?asset_id=8d7589ab-b6c0-4fea-9a07-e1317166ad11&amp;img_etag=%2224433158d7dc5b3698e1dfcd5f98824c%22&amp;size=2886)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/0065d205-8aa2-4008-aeb6-3bc960ba1ea0.png?asset_id=8d7589ab-b6c0-4fea-9a07-e1317166ad11&amp;img_etag=%2224433158d7dc5b3698e1dfcd5f98824c%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/d09fcfb7-fa17-452f-b117-b218962131e1.png?asset_id=16a6c111-7a65-4631-827d-a5d6d82b6f32&amp;img_etag=%22a79548df66b4220caec34d0b75ec9419%22&amp;size=2560)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/d09fcfb7-fa17-452f-b117-b218962131e1.png?asset_id=16a6c111-7a65-4631-827d-a5d6d82b6f32&amp;img_etag=%22a79548df66b4220caec34d0b75ec9419%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/518320ac-cd9b-44af-84ff-f7937346d5b6.png?asset_id=50591412-16cc-4eb0-b2c3-fb72c56bdf60&amp;img_etag=%2223c8931b3c78b726cc62443f18aeb1e2%22&amp;size=3212)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/518320ac-cd9b-44af-84ff-f7937346d5b6.png?asset_id=50591412-16cc-4eb0-b2c3-fb72c56bdf60&amp;img_etag=%2223c8931b3c78b726cc62443f18aeb1e2%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7ea94840-3a88-4c27-a143-0ccb883ae083.png?asset_id=e4ba059f-c455-4412-89b7-768919dad055&amp;img_etag=%2231c03301237cee47ac6cc3799d2202a9%22&amp;size=3272)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7ea94840-3a88-4c27-a143-0ccb883ae083.png?asset_id=e4ba059f-c455-4412-89b7-768919dad055&amp;img_etag=%2231c03301237cee47ac6cc3799d2202a9%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/6bfbbc1f-036f-4c63-a311-72819d0239a1.png?asset_id=3c2096dd-3b06-4448-80d5-c11547870ddd&amp;img_etag=%225166165d7242a2f5b0f50f143ea023f5%22&amp;size=3310)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/6bfbbc1f-036f-4c63-a311-72819d0239a1.png?asset_id=3c2096dd-3b06-4448-80d5-c11547870ddd&amp;img_etag=%225166165d7242a2f5b0f50f143ea023f5%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7263ba0d-03ab-4f1c-aa72-803734b2a5ed.png?asset_id=e00c06d5-6636-45f4-9194-16e66353aa62&amp;img_etag=%225adec6f74a291b2938593a1c48f68e18%22&amp;size=3328)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7263ba0d-03ab-4f1c-aa72-803734b2a5ed.png?asset_id=e00c06d5-6636-45f4-9194-16e66353aa62&amp;img_etag=%225adec6f74a291b2938593a1c48f68e18%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/f43e09f2-4c41-4bb0-bd0c-8c91619f3fc8.png?asset_id=7618caf1-fe62-41de-a334-9957103f06b2&amp;img_etag=%22f80cfc8ef6bc84208c1e23fab3dadc91%22&amp;size=3342)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/f43e09f2-4c41-4bb0-bd0c-8c91619f3fc8.png?asset_id=7618caf1-fe62-41de-a334-9957103f06b2&amp;img_etag=%22f80cfc8ef6bc84208c1e23fab3dadc91%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/51a14734-cd1a-4236-9e98-8c2d373d0c7b.png?asset_id=9efc8407-0089-45c8-ac55-6542a791e436&amp;img_etag=%2210b88ea1124b58840de78ddfebc3a701%22&amp;size=2560)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/51a14734-cd1a-4236-9e98-8c2d373d0c7b.png?asset_id=9efc8407-0089-45c8-ac55-6542a791e436&amp;img_etag=%2210b88ea1124b58840de78ddfebc3a701%22&amp;size=1024)
-编辑：[【喜马拉雅战鹰团】](https://spark.adobe.com/page/Q4r6941HyJTEb/)-点击Adobe Spark版
+如今爆料革命路德社首先报道的硬盘门事件，又将拜登家族与叶简明华信能源的关系再度曝光。叶简明的财务总监董功文与亨特·拜登在国泰银行开设账号，户名Hudson West III LLC。一份签于2017年9月18日的协议显示，亨特·拜登受聘为叶简明的私人律师，从中华能源基金委员会有限公司的何志平收取100万美元的法律服务费。前文已提到，与硬盘门关系密切的薄甜甜在2018年3月26日得知亨特在叶简明出事后，注销与叶合作的哈德逊西部Husdon West公司，写信劝他尽可能卷走该公司的剩余资金，等等。
 
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/639e2b2b-d173-446c-9ff7-e1e33c73b8d8.jpg?asset_id=6dc5cc52-a5c5-4f67-ac6b-f8c1fe4a2710&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/639e2b2b-d173-446c-9ff7-e1e33c73b8d8.jpg?asset_id=6dc5cc52-a5c5-4f67-ac6b-f8c1fe4a2710&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+朱利安尼先生前两天说：对乔·拜登家族有五项指控符合RICO法案，其中之一是他们从叶简明的华信能源CEFC获得三年3000万美原顾问介绍费，以及相关公司的50%股权，其中Big Guy乔·拜登占10%。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03130042/IMG_6158.jpg)
+几小时前新中国联邦电视台采访纽约前警察局局长，他认为对拜登家族的犯罪指控并非易事，且相当耗时。不过，当路德问到亨特·拜登与中共间谍叶简明、何志平、董功文的接触是否可以对其进行违反外国人代理法起诉？局长很干脆地回答：百分之一千！相关的邮件、短信内容将让拜登家族脱不了干系。FBI的洗钱调查只不过是前菜，拜登家族商业合伙人托尼.博布林斯基（Tony Bobulinski ）曝光的拜登与华信能源的合资公司——华鹰控股公司（Sinohawk Holdings）竞标俄罗斯国有能源公司14%的股份，绝对是美国有史以来最大的贪腐案之一。
+
+叶简明的华信能源会是钉在拜登家族棺材上的第一颗钉子吗？与亨特·拜登关系非同小可、据说与江泽民之孙江志成已谈婚论嫁的薄甜甜会站出来做污点证人吗？
+
+（未完待续）
+
+**更多精彩资讯请关注：**
+
+- [为子孙爱七哥农场官方推特](https://twitter.com/wzsaqg)
+- [为子孙爱七哥农场官方GTV号](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
+- [欢迎加入农场discord官方群](https://discord.gg/mZG9MtM)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20123101/%E5%86%9C%E5%9C%BA%E5%B9%BF%E5%91%8Av7-3.jpg)
 0

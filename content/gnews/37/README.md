@@ -1,31 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】CCP上周宣布“制裁”美相关军事企业后，美本周再向台出售先进无人机
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/522469/)
+## 快讯｜新疆11月3日新增感染者116例！并启动第四轮全员核酸检测
+` Ronald` [轉載自GNews](https://gnews.org/zh-hans/522602/)
 
-作者：香草山写作组 人间世
+内新闻/素材：Stephen（文文） 校对：老白
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/01003406/WhatsApp-Image-2020-11-01-at-11.33.40.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03095241/image0-1-1.jpg)
 
+11月3日晚，中共新疆政府新闻办召开第八场新闻发布会，通报称11月2日24时至3日20时30分，喀什地区新增无症状感染者116例，全部与疏附县站敏乡相关联。并于11月4日启动喀什地区疏附县第四轮全员核酸检测。
 
+至此，新疆喀什阳性病例人数已高达408人，还不包括中共漏报、瞒报病例，可见新疆喀什疫情已经相当严重。
 
+中共公布的喀什疫情“无症状感染”病例情况：
 
+11月3日 116人
 
-据路透社华盛顿11月2日消息，美国向台湾出售四架MQ-9无人机的军售案，已在美国国会进入最后批准阶段。这项价值6亿美元的交易，是特朗普政府放松对尖端无人机技术出口管控以来，首个该类出口交易。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03092754/208-%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91CCP%E4%B8%8A%E5%91%A8%E5%AE%A3%E5%B8%83%E5%88%B6%E8%A3%81%E7%BE%8E%E7%9B%B8%E5%85%B3%E5%86%9B%E4%BA%8B%E4%BC%81%E4%B8%9A%E5%90%8E%EF%BC%8C%E7%BE%8E%E6%9C%AC%E5%91%A8%E5%86%8D%E5%90%91%E5%8F%B0%E5%87%BA%E5%94%AE%E5%85%88%E8%BF%9B%E6%97%A0%E4%BA%BA%E6%9C%BA-1.png)MQ-9海上卫士无人机（Naval News/GA-ASI）
-据德国之声报道，这四架MQ-9海上卫士 (SeaGuardian) 型号的无人机是由通用原子航空系统公司（General Atomics Aeronautical Systems Inc.）生产，美国也会将相关的地面战台与代训一起出售给台湾。美国出售给台湾的四架无人机目前只装有侦查设备，但MQ-9海上卫士无人机本身可携带武器。
+11月2日 19人
 
-根据网络公开信息，这是2020年美国第五次对台军售，也是特朗普上任以来，第十项对台军售案。据路透社的报道，特朗普政府还在推进另外四项对台湾出售尖端军事装备的交易，总价值约为50亿美元。
+10月31日 76人
 
-针对美方一再向台出售武器，CCP外交部发言人赵立坚10月26日曾经表示，对参与对台军售的洛克希德·马丁、波音防务、雷神等美国企业实施制裁。鉴于CCP并不像美国那样在全球金融、科技等领域占据绝对优势，所谓“制裁”意义不大。美国政府及相关企业根本没有把CCP的“口炮”当回事，已提上日程的对台军售计划仍在按部就班地进行之中。
+10月29日 14人
 
-结合“军事快讯”栏目过去刊出的相关消息可知，为在全球范围内遏制以CCP为代表的邪恶势力的扩张，美国正致力于加强其盟友和合作伙伴的军事力量，向他们出售必要的先进武器是该项计划的重要组成部分。
+10月27日 19人
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+10月26日 26人
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+10月25日 137人
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+10月24日 1人
+
+喀什地区全员核酸检测情况：
+
+10月27日，完成第一轮
+
+10月31日，完成第二轮
+
+11月3日，完成第三轮
+
+11月4日，启动第四轮
+
+新闻来源：[https://m.sohu.com/a/429274620\_120914498https://news.sina.cn/gn/2020-11-03/detail-iiznezxr9740948.d.html?cre=tianyi&mod=w2019ncov&loc=-5&r=-1&rfunc=71&tj=cxvertical\_2019ncov&tr=73&vt=4&pos=222](https://m.sohu.com/a/429274620_120914498https://news.sina.cn/gn/2020-11-03/detail-iiznezxr9740948.d.html?cre=tianyi&amp;mod=w2019ncov&amp;loc=-5&amp;r=-1&amp;rfunc=71&amp;tj=cxvertical_2019ncov&amp;tr=73&amp;vt=4&amp;pos=222)
 
 0

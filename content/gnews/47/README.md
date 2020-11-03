@@ -1,41 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 我能改投票吗？登顶谷歌搜索，爆料革命已唤醒美国民意
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/518397/)
+## 【军事快讯】CCP上周宣布“制裁”美相关军事企业后，美本周再向台出售先进无人机
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/522469/)
 
-作者：大明
+作者：香草山写作组 人间世
 
-校对：宁缺；审核：free dust；Page：Eric8848
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/01003406/WhatsApp-Image-2020-11-01-at-11.33.40.jpeg)
 
-# **我能改投票吗？登顶谷歌搜索，爆料革命已唤醒美国民意**
 
-美国多家媒体报道，随着拜登硬盘门丑闻不断被曝光，选民投完票后，闹后悔。美民众热搜我可以改投吗？CAN I CHANGE MY VOTE在美国东部时间周二早上六点左右，谷歌搜索量达到顶峰。美国大选前，郭先生发起13天24小时不间断曝光拜登三块硬盘的内容，全球首家在GTV，GNEWS媒体平台上持续曝光亨特家族的娈童，吸毒，乱性事实证据，勾结中共出卖美国的叛国罪证，奥巴马、克林顿也深深陷入和中共的勾兑腐败叛国之中，举世震惊。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/o6eKDpHOKbEbN/images/6d8e3f11-0a62-456d-bef8-23d0a8f313b2.jpg?asset_id=d9202da5-3104-4807-9fc7-c4133e2a8194&amp;img_etag=%227c37aa5f8b8b62c5368d182340f68f16%22&amp;size=1024)](https://spark.adobe.com/page/o6eKDpHOKbEbN/images/6d8e3f11-0a62-456d-bef8-23d0a8f313b2.jpg?asset_id=d9202da5-3104-4807-9fc7-c4133e2a8194&amp;img_etag=%227c37aa5f8b8b62c5368d182340f68f16%22&amp;size=1024)
 
-郭先生三年多前，发起爆料革命，把战场拉向西方，以美灭共以共灭共的伟大战略。其关键就在于唤醒世界、唤醒美国，用事实让美国从政府到民间彻底了解什么是BGY，什么是3F。拜登硬盘门曝光的中共蓝金黄美国政要和社会精英阶层，都是中共自49年窃国以来，从未放弃过把美国作为头号敌人的结果。当美国人民看到拜登家族和中共勾兑，出卖美国的罪证一个接一个爆出来时，先行投票的民众，后悔投了叛国的拜登。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/o6eKDpHOKbEbN/images/1ff8c12c-d251-4887-8ab7-4423a1f40819.png?asset_id=6b69b3a7-4954-4fba-ad8b-03e4252449c7&amp;img_etag=%222864d7b4aa206f7ff9f10fd928de39e8%22&amp;size=1024)](https://spark.adobe.com/page/o6eKDpHOKbEbN/images/1ff8c12c-d251-4887-8ab7-4423a1f40819.png?asset_id=6b69b3a7-4954-4fba-ad8b-03e4252449c7&amp;img_etag=%222864d7b4aa206f7ff9f10fd928de39e8%22&amp;size=1024)
+据路透社华盛顿11月2日消息，美国向台湾出售四架MQ-9无人机的军售案，已在美国国会进入最后批准阶段。这项价值6亿美元的交易，是特朗普政府放松对尖端无人机技术出口管控以来，首个该类出口交易。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03092754/208-%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91CCP%E4%B8%8A%E5%91%A8%E5%AE%A3%E5%B8%83%E5%88%B6%E8%A3%81%E7%BE%8E%E7%9B%B8%E5%85%B3%E5%86%9B%E4%BA%8B%E4%BC%81%E4%B8%9A%E5%90%8E%EF%BC%8C%E7%BE%8E%E6%9C%AC%E5%91%A8%E5%86%8D%E5%90%91%E5%8F%B0%E5%87%BA%E5%94%AE%E5%85%88%E8%BF%9B%E6%97%A0%E4%BA%BA%E6%9C%BA-1.png)MQ-9海上卫士无人机（Naval News/GA-ASI）
+据德国之声报道，这四架MQ-9海上卫士 (SeaGuardian) 型号的无人机是由通用原子航空系统公司（General Atomics Aeronautical Systems Inc.）生产，美国也会将相关的地面战台与代训一起出售给台湾。美国出售给台湾的四架无人机目前只装有侦查设备，但MQ-9海上卫士无人机本身可携带武器。
 
-谷歌搜索：我能改投吗？成为搜索热词是美国民众觉醒后行动，俄罗斯媒体用来凶猛一词来形容本次大选选民投完拜登的后悔现象。觉醒的美国，对于中共用超级生物武器攻击了美国，杀害了二十多万美国人，造成巨大的经济损失的事实和明白3F、BGY，搞弱美国，搞死美国的计划后，有全球最强军力的美国还可能还不灭共吗？
+根据网络公开信息，这是2020年美国第五次对台军售，也是特朗普上任以来，第十项对台军售案。据路透社的报道，特朗普政府还在推进另外四项对台湾出售尖端军事装备的交易，总价值约为50亿美元。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/o6eKDpHOKbEbN/images/0cff608f-e81e-4143-a598-3cf5be4f0cb6.png?asset_id=ccd796f6-8745-427f-bbbd-2de938a43deb&amp;img_etag=%22b5b1571800cd3128a54b1b0871f87988%22&amp;size=1024)](https://spark.adobe.com/page/o6eKDpHOKbEbN/images/0cff608f-e81e-4143-a598-3cf5be4f0cb6.png?asset_id=ccd796f6-8745-427f-bbbd-2de938a43deb&amp;img_etag=%22b5b1571800cd3128a54b1b0871f87988%22&amp;size=1024)
+针对美方一再向台出售武器，CCP外交部发言人赵立坚10月26日曾经表示，对参与对台军售的洛克希德·马丁、波音防务、雷神等美国企业实施制裁。鉴于CCP并不像美国那样在全球金融、科技等领域占据绝对优势，所谓“制裁”意义不大。美国政府及相关企业根本没有把CCP的“口炮”当回事，已提上日程的对台军售计划仍在按部就班地进行之中。
 
-美国珍珠港和“911”加起来死的人都没这次中共病毒杀死的人多，珍珠港事件后对日宣战，太平洋战争爆发，1945年日本战败投降，东条英机等战犯被审判后处以绞刑。“911”事件后，爆发阿富汗战争，基地组织主要负责人基本被美军定点清除斩首，塔利班政权倒台。
+结合“军事快讯”栏目过去刊出的相关消息可知，为在全球范围内遏制以CCP为代表的邪恶势力的扩张，美国正致力于加强其盟友和合作伙伴的军事力量，向他们出售必要的先进武器是该项计划的重要组成部分。
 
-爆料革命已唤醒美国人民，当知道这些信息后，特朗普认为那些投了“后悔票”的选民显然是想改投自己，他兴奋地发推特称：“答案是大多数州都能改投！去改吧！这可是你这辈子最重要的一次大选哦！”路德时评报道朱利安尼市长说这次选举不仅仅关乎美国，人类命运在此一举。一语道破天机，如果没有爆料革命，没有郭先生拿全家性命，几千亿身价，挺身而出灭共，共产党差一点就成功了……那世界将陷入黑暗时代，黑恶势力用高科技奴役统治全人类。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
 
-[!\[\]()!\[\](https://spark.adobe.com/page/o6eKDpHOKbEbN/images/b7102fe8-a22a-48be-a6a4-c383f5dba680.jpg?asset_id=afe52e74-fe70-4f55-a2d2-706d0b2523d4&amp;img_etag=%22b577517331c2a5e6d6f41c7040386133%22&amp;size=1024)](https://spark.adobe.com/page/o6eKDpHOKbEbN/images/b7102fe8-a22a-48be-a6a4-c383f5dba680.jpg?asset_id=afe52e74-fe70-4f55-a2d2-706d0b2523d4&amp;img_etag=%22b577517331c2a5e6d6f41c7040386133%22&amp;size=1024)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-当郭先生13天爆料灭共决战还剩两三天时，“我能改投吗“成为热搜，证明爆料革命已经唤醒美国人民，民意就是选票，主要摇摆州在内15个州可以更改投票，民心不可欺。路德爆出习总加速师，知道大势已去，一切都结束了，从加拿大包机十多架撤回情报特工人员⋯⋯爆料革命岂止是单单唤醒美国，推翻中共。几年来，无数爆料革命战友已经用勇敢无畏、昂扬斗志昭示了灭共的坚定决心。新中国联邦以民主法治自由开放的新姿态，已经准备好迎接没有共产党的新时代，和全球各国人民共享美好未来。
-
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/o6eKDpHOKbEbN/)】-点击spark adobe版
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/o6eKDpHOKbEbN/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/o6eKDpHOKbEbN/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
