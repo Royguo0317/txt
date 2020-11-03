@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【10】亨特·拜登硬盘第五波超劲爆照片再度来袭！披萨“躺枪”画面不忍直视！
-` GM01` [轉載自GNews](https://gnews.org/zh-hans/519648/)
+## 【11】亨特·拜登硬盘第五波超劲爆照片再度来袭！SM捆绑囚禁淫乱照曝光！
+` GM01` [轉載自GNews](https://gnews.org/zh-hans/519718/)
 
 （**您申明，您已年满18周岁或在您访问以下内容的司法管辖区已达到成人年龄，并完全有能力和资格签订本服务条款中规定的条款、条件、义务、申明、陈述和保证，并遵守和履行本服务条款。如果您未满18岁或法定成年年龄，请不要观看以下的任何内容**）
 
@@ -11,5 +11,5 @@
 其实硬盘中还有绝大部分的视频因涉及到极为敏感，极为不人道，极为残忍的画面无法播放，将随后再进行处理。
 
 连续十三天的爆料已更新到了第五波，将每30分钟爆出亨特拜登硬盘内更多淫乱照片。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02231847/WhatsApp-Image-2020-11-03-at-01.41.59.jpeg)
-1+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02233241/WhatsApp-Image-2020-11-03-at-02.43.21.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02233251/WhatsApp-Image-2020-11-03-at-01.55.43.jpeg)
+0
