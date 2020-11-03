@@ -1,9 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家视频‼️2018年10月3号与亨特·拜登过夜的女郎
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/519904/)
+## 亨特·拜登硬盘里的照片
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/519875/)
 
-**您申明，您已年满18周岁或在您访问以下视频的司法管辖区已达到成人年龄，并完全有能力和资格签订本服务条款中规定的条款、条件、义务、申明、陈述和保证，并遵守和履行本服务条款。如果您未满18岁或法定成年年龄，请不要观看以下的任何内容。**
+编辑：io
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03002150/1-11.jpg)
+这张照片是明显放大的，这人是谁
 
 0
