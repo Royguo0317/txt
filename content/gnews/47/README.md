@@ -1,66 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 渤海华美收购美国最大影院集团：富豪娱乐Regal Entertainment（亨特拜登-卢长祺）
-` 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hans/522666/)
+## 快讯｜新疆11月3日新增感染者116例！并启动第四轮全员核酸检测
+` Ronald` [轉載自GNews](https://gnews.org/zh-hans/522602/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03100435/Screen-Shot-2020-11-03-at-10.04.05-AM.png)
+内新闻/素材：Stephen（文文） 校对：老白
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03095241/image0-1-1.jpg)
 
+11月3日晚，中共新疆政府新闻办召开第八场新闻发布会，通报称11月2日24时至3日20时30分，喀什地区新增无症状感染者116例，全部与疏附县站敏乡相关联。并于11月4日启动喀什地区疏附县第四轮全员核酸检测。
 
+至此，新疆喀什阳性病例人数已高达408人，还不包括中共漏报、瞒报病例，可见新疆喀什疫情已经相当严重。
 
-关键词：渤海华美、亨特拜登、摩根斯坦利、桑顿集团、卢长祺
+中共公布的喀什疫情“无症状感染”病例情况：
 
-**富豪娱乐Regal Entertainmant：美国最大影院集团**
+11月3日 116人
 
-**[桑顿集团](https://www.thorntongroup.com/)（Thronton Group LLC）：美国咨询公司**
+11月2日 19人
 
-## 2014年11月11日-12月12日ReRe\_Regal
+10月31日 76人
 
+10月29日 14人
 
-![](https://lh4.googleusercontent.com/M7rXhAw8NXr1ywK0hU5uXfpdlkbixaVQaMsAuYV2XCvqkDMZ104l3UJPPLqj06WInLoF38NjinEFy4TiQClONkMxxGRigV28dnWFEcgF20HnPsrOWE0vORqW3or5AfKW_Obs79A)
-非常感谢你的快速反应。摩根斯坦利已被任命为富豪娱乐的FA. 这将是一个约20亿美元的私有化交易。 下周一在上海与James Gorman先生会面后，我将尝试获得更多信息。如果有任何更新会通知你. 一旦你有任何关于交易的信息，请随时告诉我。
+10月27日 19人
 
-谢谢，问候
+10月26日 26人
 
-Andy (安迪)
-![](https://lh5.googleusercontent.com/j2LR4NzSMJIvXH7uQMnBM8bvtr2I4iPSmk82suqL9cYlotfdAPQmF3bhc6SdWAZLqvB-BB_eZtH7yC5xNr4na6INcqTMV7oow4M6Fz9hhFm4NMZTEbzAi48j0Me5nN3nyiX0cdA)
-Andy (安迪)
+10月25日 137人
 
-安迪
+10月24日 1人
 
-我也在试图确定我们在这里可能有什么直接的关系，如果有任何线索，我会向吉米和迈克尔报告。
+喀什地区全员核酸检测情况：
 
-RHB
+10月27日，完成第一轮
 
-202.333.1880
-![](https://lh6.googleusercontent.com/LGB2LaUC6WjkH3Ydi6em1HgiYnFblxEItiEG2Ghm1yXzcgujqZBGTwzyNNOcLG3BN2OZ4PE3WjBdER86BEhRaOsqmbcw7e_mwjQTa4pACVf0nmJgqzDbc-NyX_eAX6bzD0dSt3w)
-2014年11月11日下午4:07,詹姆斯·布尔格写道:
+10月31日，完成第二轮
 
-安迪
+11月3日，完成第三轮
 
-我个人不认识高曼先生 只知道他的声誉很好。我在这里忙于其他与BHR相关的问题，但会尝试四处寻找有关您提出的Regal Entertainmant问题的指导。娱乐行业显然对与中国建立更紧密的联系感兴趣，我们看到这类新闻经常在美国媒体上报道。我会尽快为您找到一些具体信息
+11月4日，启动第四轮
 
-谢谢
-
-吉米
-
-2014年11月7日，星期五，卢长祺（Andy Lu）&lt;[email protected]&gt;写道：
-
-亲爱的大家
-
-摩根士丹利向我们介绍了富豪娱乐会出售。 董事长兼首席执行官詹姆斯·戈尔曼女士下周将在上海举办午餐会，我应邀与他见面. 我希望您能帮助验证富豪娱乐是否真的可以出售。 如果万达想购买，由于万达已经拥有AMC，是否有可能获得批准？ 此外，如果你们中有人熟悉詹姆斯，请在我与他会面之前向他介绍BHR。
-
-如有任何疑问，请随时与我联系
-
-谢谢和最诚挚的问候
-
-安迪
-![](https://lh5.googleusercontent.com/FssDFBvzJbPXG6xCvDeWWbAUUO3imNfZxmyFDzT19A2OBPtgAWMkk590MJ2fCCDns8he_uynx5x5Gm7e_m5u4zRtt2yf3Bz0baTGuyZjAUwVGUQx32pPey9EoujBLxJ7Xn0RZZY)![](https://lh4.googleusercontent.com/5yU3RRWdz3CMjzCLGR17E_bwWmNh-x6dGGLVGFarSYgpamh54j26qRoIGqu332CduVTksA_GYcOWQvvfjiPCqxSdnnP_Gd_Lx7KAhGJx1TlVZo3r3wnsGR6IArJhoH5FzCR6VP0)
-詹姆斯·布尔格
-
-主席
-
-桑顿集团LLC
+新闻来源：[https://m.sohu.com/a/429274620\_120914498https://news.sina.cn/gn/2020-11-03/detail-iiznezxr9740948.d.html?cre=tianyi&mod=w2019ncov&loc=-5&r=-1&rfunc=71&tj=cxvertical\_2019ncov&tr=73&vt=4&pos=222](https://m.sohu.com/a/429274620_120914498https://news.sina.cn/gn/2020-11-03/detail-iiznezxr9740948.d.html?cre=tianyi&amp;mod=w2019ncov&amp;loc=-5&amp;r=-1&amp;rfunc=71&amp;tj=cxvertical_2019ncov&amp;tr=73&amp;vt=4&amp;pos=222)
 
 0
