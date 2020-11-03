@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 决战13天：独家视频！亨特·拜登硬盘揭秘（2）
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/522088/)
+## 决战13天：独家视频！亨特·拜登硬盘揭秘（3）
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/522173/)
 
 - 编辑：文顺
 - 制作：将来已来
@@ -14,6 +14,6 @@
 
 犯罪家族前台傀儡——亨特·拜登在毒瘾与性瘾中沉沦。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25143553/image0-101.jpg)喜西站官方Parler二维码，敬请关注！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25143553/image0-101.jpg)喜西农场官方Parler二维码，敬请关注！
 
 0

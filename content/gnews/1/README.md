@@ -1,135 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 炸裂突发！【3-34】亨特拜登新一波邮件显示：拜登家族出卖美国实锤，与中信能源集团深度勾兑
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/522381/)
+## 渤海华美收购美国最大影院集团：富豪娱乐Regal Entertainment（亨特拜登-卢长祺）
+` 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hans/522666/)
 
-**翻译：康州农场-Mike Li
-校对：康州农场-TrueSky
-编辑：康州农场-文韵**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03100435/Screen-Shot-2020-11-03-at-10.04.05-AM.png)
 
-这几天大家都能从大量的劲爆“视频”和“图片”终开始了解到美国前副总统，现总统竞选人之一乔·拜登之子，亨特·拜登淫乱荒诞的生活。拜登家族的荒诞、无耻可不止私生活混乱，陆续被曝出的亨特·拜登邮件显示，以亨特·拜登为主的拜登家族勾兑中共公司出卖本国利益，为自己谋取巨额财富。
 
-2017年4月18日上午2：47分，James Gilliar向亨特·拜登和吉姆·拜登发送了邮件，向他们报告在阿曼苏丹国完成勾兑的最新情况。一个名为Caesar的人代表了中信能源公司与James Gilliar通信。邮件里不仅清楚地表明了拜登家族与中共华信金融前执行董事臧建军和叶简明有着密切联系，而且邮件特别提到，拜登家族在美国的运作是本次交易成功的最大因素。实锤拜登家族出卖美国利益。正是因为拜登家族与中共勾兑，才促成了中信能源集团与阿曼的伊德里斯将军和王室办公室的会议签订协议，中共才得以控制阿曼/伊朗的油气管道，而所有与TFI签订的项目都提供给了中共。
 
-**邮件原内容以及翻译如下：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03092516/%E5%9B%BE%E7%89%871-2.png)*邮件1*
-**邮件1翻译如下：**
 
-**来自：**詹姆斯·吉利亚尔 主题：转发：阿曼
-**日期：**2017年4月18日上午2：47
-**收件人：**亨特·拜登
-**抄送：**吉姆·拜登
+关键词：渤海华美、亨特拜登、摩根斯坦利、桑顿集团、卢长祺
 
-各位，
-简短的最新情况，请看下面的记录。
-KR
-詹姆斯
+**富豪娱乐Regal Entertainmant：美国最大影院集团**
 
-开始转发信息
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03093119/%E5%9B%BE%E7%89%872-3.png)*邮件2*
-**邮件2翻译如下：**
+**[桑顿集团](https://www.thorntongroup.com/)（Thronton Group LLC）：美国咨询公司**
 
-**来自：**cuican
-**主题：**阿曼
-**日期：**2017年4月18日
-**收件人：**詹姆斯·吉利亚尔
-**抄送**
+## 2014年11月11日-12月12日ReRe\_Regal
 
-“亲爱的詹姆斯，
 
-我已经向臧主任当面汇报了一切。
+![](https://lh4.googleusercontent.com/M7rXhAw8NXr1ywK0hU5uXfpdlkbixaVQaMsAuYV2XCvqkDMZ104l3UJPPLqj06WInLoF38NjinEFy4TiQClONkMxxGRigV28dnWFEcgF20HnPsrOWE0vORqW3or5AfKW_Obs79A)
+非常感谢你的快速反应。摩根斯坦利已被任命为富豪娱乐的FA. 这将是一个约20亿美元的私有化交易。 下周一在上海与James Gorman先生会面后，我将尝试获得更多信息。如果有任何更新会通知你. 一旦你有任何关于交易的信息，请随时告诉我。
 
-首先，他让我转达他对你和大卫的感谢，他感谢你们辛勤而富有成效的工作，他相信我们已经有了一个很好的开端，我们将在阿曼和其他地方有更多的合作机会。
+谢谢，问候
 
-其次，请转达臧主任对B家族的问候，他们的支持是中国华信能源进一步发展的基础。
+Andy (安迪)
+![](https://lh5.googleusercontent.com/j2LR4NzSMJIvXH7uQMnBM8bvtr2I4iPSmk82suqL9cYlotfdAPQmF3bhc6SdWAZLqvB-BB_eZtH7yC5xNr4na6INcqTMV7oow4M6Fz9hhFm4NMZTEbzAi48j0Me5nN3nyiX0cdA)
+Andy (安迪)
 
-第三，臧主任代表叶主席诚挚地邀请皇室办公室到上海参观中国华信能源，届时他们将亲自到场。
+安迪
 
-最后，臧主任和叶主席将在5月份一起访问美国，如果有机会，他们愿意尽可能地与H和你会面。届时将讨论美国/中东/欧洲的进一步合作机会。
+我也在试图确定我们在这里可能有什么直接的关系，如果有任何线索，我会向吉米和迈克尔报告。
 
-臧主任再次感谢您的务实安排，他期待着早日见到您。
+RHB
 
-最良好的祝愿，
+202.333.1880
+![](https://lh6.googleusercontent.com/LGB2LaUC6WjkH3Ydi6em1HgiYnFblxEItiEG2Ghm1yXzcgujqZBGTwzyNNOcLG3BN2OZ4PE3WjBdER86BEhRaOsqmbcw7e_mwjQTa4pACVf0nmJgqzDbc-NyX_eAX6bzD0dSt3w)
+2014年11月11日下午4:07,詹姆斯·布尔格写道:
 
-Caesar”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03093431/%E5%9B%BE%E7%89%873-4.png)邮件3
-**邮件3翻译如下：**
+安迪
 
-**2017年四月18日 13：13：31 “詹姆斯·吉利亚尔”**
-“Caesar：
-一个伟大的团队协作，并见证了主席们和DZ的信念和远见。回头见
-詹姆斯”
-手机发送
+我个人不认识高曼先生 只知道他的声誉很好。我在这里忙于其他与BHR相关的问题，但会尝试四处寻找有关您提出的Regal Entertainmant问题的指导。娱乐行业显然对与中国建立更紧密的联系感兴趣，我们看到这类新闻经常在美国媒体上报道。我会尽快为您找到一些具体信息
 
-**2017年4月18日8：47 发出：**
-“亲爱的詹姆斯，
-我刚到我们的北京办事处，感谢你在阿曼事务中的出色工作。我会尽快将您的来信报告给臧主任。”
-致敬，Caesar
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03093853/%E5%9B%BE%E7%89%874-1.png)*邮件4/1*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03093953/%E5%9B%BE%E7%89%875-1.png)*邮件4/2*
-**邮件4翻译如下：**
+谢谢
 
-2017年4月18日11：52：51 “詹姆斯·吉利亚尔”
+吉米
 
-“各位访问阿曼的重要成果
+2014年11月7日，星期五，卢长祺（Andy Lu）&lt;[email protected]&gt;写道：
 
-在与伊德里斯将军和王室办公室的会议上，达成了以下协议。
+亲爱的大家
 
-1.NBO（National Bank of Oman阿曼国家银行）、TFI被取消，中国华信集团可以立即开始与卡塔尔实体进行谈判，收购34.9%的股份，金融财团将为该收购过程保驾护航，并应得到授权，因为他们了解所有重要细节，他们也会将其他小股东的意见统一。大卫将在下周会见将军和皇家办公室，以最终确定。
+摩根士丹利向我们介绍了富豪娱乐会出售。 董事长兼首席执行官詹姆斯·戈尔曼女士下周将在上海举办午餐会，我应邀与他见面. 我希望您能帮助验证富豪娱乐是否真的可以出售。 如果万达想购买，由于万达已经拥有AMC，是否有可能获得批准？ 此外，如果你们中有人熟悉詹姆斯，请在我与他会面之前向他介绍BHR。
 
-2. Lee Long主任暗示，Fin corp（金融财团）也可能是一个待收购目标，大卫会跟踪此事。
+如有任何疑问，请随时与我联系
 
-3. 与皇家办公室的会议进行得很顺利，主要负责人很喜欢这些结果，会议超过了计划的时间表，这是非常积极的。
+谢谢和最诚挚的问候
 
-4. 萨利姆博士的工作已被皇家办公室叫停，我再另行解释。
+安迪
+![](https://lh5.googleusercontent.com/FssDFBvzJbPXG6xCvDeWWbAUUO3imNfZxmyFDzT19A2OBPtgAWMkk590MJ2fCCDns8he_uynx5x5Gm7e_m5u4zRtt2yf3Bz0baTGuyZjAUwVGUQx32pPey9EoujBLxJ7Xn0RZZY)![](https://lh4.googleusercontent.com/5yU3RRWdz3CMjzCLGR17E_bwWmNh-x6dGGLVGFarSYgpamh54j26qRoIGqu332CduVTksA_GYcOWQvvfjiPCqxSdnnP_Gd_Lx7KAhGJx1TlVZo3r3wnsGR6IArJhoH5FzCR6VP0)
+詹姆斯·布尔格
 
-5. 从5月1日起，所有与TFI签订的项目都将提供给中国华信能源集团。
+主席
 
-6. 中国华信能源集团将开始与石油和天然气部门直接讨论项目。
+桑顿集团LLC
 
-7. 大卫拥有阿曼/伊朗的油气管道，并将开发阿曼/伊朗的油气管道。
-
-需要留意，皇家办公室提到美国的支持是一个很大的因素。我建议尽快与皇家办公室计划到上海访问，并有美国团队在场，这将是一个很好的公关。藏主任主持？
-
-中国华信能源集团收购一家阿曼100%控股公司的项目，向国际和国内其他参与者发出了一个强烈的信息，据我所知，只有另外一家公司，Babcock，一家英国控股的安防公司有这样的架构，这是因为当地人不能干涉这项业务。TH官员的提议是，他们明白这同样适用于中国华信能源集团，中国华信能源集团应该与R O无形地联系在一起，每个人都明白这就是没有本地合作伙伴的原因，我强烈建议将此作为将来的合作方向，因为这是苏丹人的一个重要姿态。
-
-后续还有更多数据，但这些都是主要成果。
-
-中国华信能源集团达成所有的期望，L Y主任很好地完成了工作，在了解到整个项目的推动人后，将军向主席和臧主任转达了他的问候。他对收到的礼物非常满意，大卫和我也非常感谢董事长。
-
-最亲爱的詹姆斯”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03094226/%E5%9B%BE%E7%89%876-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03094243/%E5%9B%BE%E7%89%877-1.png)
-其中上图的CEFC (Euro-Asian) Limited Company为中国华信能源有限公司。
-
-**本文邮件涉及人物索引：**
-
-1、其中邮件中的发件人James Gilliar为国际咨询公司J2CR的詹姆士·吉利亚尔(James Gilliar)，为亨特拜登与吉姆拜登合作的英国商人。
-
-2、臧主任：华信金融前执行董事臧建军(Zang Jian Jun)。
-
-3、叶主席：失踪已久的中国华信能源有限公司董事长、香港中华能源基金会理事局主席叶简明。
-
-4、CEFC (Euro-Asian) Limited Company为中国华信能源有限公司。
-
-5、NBO（National Bank of Oman阿曼国家银行） 6、伊德里斯（General Idris）：阿曼的第一将军参谋长
-
-6、Lee Long：暂不详，中国华信执行董事为李勇（LEE Yong），相差一个字母
-
-附相关链接：
-
-1、阿曼苏丹国
-
-[https://zh.wikipedia.org/wiki/%E9%98%BF%E6%9B%BC](https://zh.wikipedia.org/wiki/%E9%98%BF%E6%9B%BC)
-
-阿曼苏丹国：简称阿曼，是位于西南亚，阿拉伯半岛东南沿海的国家，北部与阿拉伯联合酋长国接壤，西面毗邻沙特阿拉伯，西南靠近也门。阿曼的海岸南部和东部临阿拉伯海，东北方则抵阿曼湾。阿曼的石油储量居全球第25位，盛产天然气。
-
-2、中国华信能源有限公司（CEFC）：
-
-[https://zh.wikipedia.org/wiki/%E8%8F%AF%E4%BF%A1%E8%83%BD%E6%BA%90](https://zh.wikipedia.org/wiki/%E8%8F%AF%E4%BF%A1%E8%83%BD%E6%BA%90)
-
-3、中国华信执行董事李勇会见阿曼第一将军参谋长（2017年11月18日的报道）
-[https://cj.sina.com.cn/articles/view/1787920531/6a9180930420052iq](https://cj.sina.com.cn/articles/view/1787920531/6a9180930420052iq)
-
-4、叶简明：华信做金融的目标和路径都与一般民企不同（2017年12月22日的报道） https://finance.qq.com/a/20171222/009931.htm
-
-1+
+0

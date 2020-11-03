@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 决战13天：独家视频！亨特·拜登硬盘揭秘（1）
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/522068/)
+## 决战13天：独家视频！亨特·拜登硬盘揭秘（2）
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/522088/)
 
 - 编辑：文顺
 - 制作：将来已来

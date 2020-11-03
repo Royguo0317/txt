@@ -1,33 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家：鲍嘉琪向拜登家族多名成员及董功文发送演讲交流材料
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/521627/)
+## 决战13天：独家！再爆亨特拜登邮件（3）
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/521748/)
 
-多伦多加喜农场 文星（一号）
+- 编辑：文顺
+- 翻译：Ranting
 
-校对上传 XM
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03071442/95.jpg)
-发件人：鲍嘉琪
 
-主题：猴岛中文演讲
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03074346/3.2.jpg)
 
-日期：2017年11月2日，晚上7:18
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03074402/3-9.jpg)
 
-发送至：梅文恩；吉姆·拜登；亨特·拜登；董功文；罗伯特·拜登
-
-请参阅中文猴岛演示文稿的附件。 我以中文翻译页和原始英文页的形式并排进行了此演示，尽力呈现英语上下文+尊重原文的原始音调，并带有逐字逐句的准确含义。 所有翻译的内容均为紫色字体。 其他任何注释（数量不多）都带有栗色，带有“ HW3评论”标签，支持原始英文上下文的解释/详细说明，并为中国读者提供了更多的背景知识/背景，以便于理解。
-
-您的任何建设性批评和编辑反馈将不胜感激。 谢谢！
-
-顺便说一句，我们只保留中文副本供我们自己使用，请不要将译好的版本免费送给猴岛，好吗？ 我之前还曾靠这种出色的翻译赚钱。
-
-祝好
-
-嘉琪
-
-猴岛
-
-LNG C … ion.pdf 无法下载附件。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25143553/image0-101.jpg)喜西农场官方Parler二维码，敬请关注！
 
 0
