@@ -1,29 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅：由中共为拜登付款的证据支持博布林斯基说法，并显示拜登家族靠诈骗美国赚了数百万美元
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/522921/)
+## 重磅炸弹第六波之：猴岛液化天然气公司–液化科技饼状图
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/522141/)
 
-*喜马拉雅联盟加拿大农场 雅典娜2020
-校对 文锦 上传 WJ*
+*翻译：万人往｜校对：MikeHua｜审核：JohnWallis｜Page：玄天生；*
 
-主流媒体、民主党人和拜登竞选团队都指责托尼·博布林斯基（Tony Bobulinski）的故事是谎言。他们希望美国人民相信亨特和乔·拜登都是有品行的人，而博布林斯基是个缺乏诚信的人。不幸的是，对这个腐败集团来说，有大量证据证明博布林斯基是对的。
-一些主流媒体一直在质疑托尼·博布林斯基关于乔·拜登及其兄弟吉姆参与亨特在中共国商业活动的说法的有效性。《纽约邮报》最新的司法鉴定证实，博布林斯基的邮件是合法的。但显然，这对有线电视新闻网、《纽约时报》和《华盛顿邮报》等宣传机构来说还不够好，他们继续对这些邮件和任何关于 “家族 “参与的说法采取质疑的态度。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03105353/1-14.jpg)
-XRVision Pte. Ltd.的首席技术官兼创始人阿佩尔鲍姆（Apelbaum）声称他有一小部分文件和其他数字版证据，可以证实博布林斯基的说法是合法的。这些内容已经通过传统的计算机取证技术认证，并通过这些来源和方法进行了鉴定。其中包括：亨特·拜登的官方身份证明文件，如驾照、护照、出生证明等；亨特·拜登的各种财务记录；电汇活动进出其账户的详细记录；电子邮件和短信活动；语音录音；和图像、视频、手机、笔记本电脑和地理空间联系。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03105432/2-7.jpg)
-阿佩尔鲍姆还有拜登来自中共国的付款证据，亨特向华信能源的严莫文催款，随后就有电汇到他的账户，以及中共国向拜登的业务之一的Owasco P.C付款证据。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03105515/Hunter-China-Payments.jpg)
-阿佩尔鲍姆曾经报道了亨特就是在Owasco公司里向一个人经常性的转账，而这个人就像一个幽灵没有任何网络足迹，而亨特的公司Owasco恰好是纽约的手指湖其中一个湖的名字。
-在下面一张图片中，阿佩尔鲍姆提供了拜登家族与中共国华信能源的合同，以及随后向亨特及其叔叔吉姆和姑姑莎拉控制的纽约银行账户进行的大额电汇。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03105500/4-7.jpg)
-阿佩尔鲍姆提供了亨特和中共国之间的一封信，信中介绍了托尼·博布林斯基。阿佩尔鲍姆还提供了亨特在2015年高达250万美元收入的证据。然后他提供了乌克兰的布里斯马公司支付给亨特的款项未被算为收入的证据。然后阿佩尔鲍姆出示了亨特因在世界各地进行腐败交易而获得的一些额外待遇。这其中包括皮草、钻石和与约旦国王的讨论。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03105600/5-7.jpg)
-有大量的证据证明拜登家族就是一个犯罪家族，不像民主党人声称的那样是总统及其家人（对拜登家族）的各种诋毁行为。如果拜登家族、克林顿家族、奥巴马家族和其他人偷走这次选举，美国和全世界就都输了。
-评论：拜登家族、克林顿家族、奥巴马家族和华尔街的大鳄们实际上就是美国的盗国贼，他们和中共国的盗国贼狼狈为奸，里通外国，掏空了各自国家的民脂民膏。如果乔·拜登获选美国总统，美国的自由民主将荡然无存，美国很快就会成为第二个中共国、第二个朝鲜，甚至第二个伊朗。庆幸的是美国人民还能独立地思考，不被主流媒体带偏。2016年美国人民既然能让川普总统意外胜出，2020年川普总统再次连任就已无悬念！
+**简评：**
 
-*相关新闻*
+2017年11月17日，猴岛液化天然气公司（Monkey Island LNG）董事长兼首席执行官格雷格·迈克尔斯（Greg Michaels）、董功文、严默文（Mervyn Yan）、鲍嘉琪、亨特·拜登（Hunter Biden）和吉姆拜登（Jim Biden）之间电子邮件沟通，邮件主题为“液化科技饼状图”。
+[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7cf60866-4d58-4f0e-abbe-1024fd6bc36a.png?asset_id=edd1358e-12ea-48e3-8b80-5b2daee7abf0&amp;img_etag=%22f75569f9109e7d45642c0c8583f73666%22&amp;size=3200)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7cf60866-4d58-4f0e-abbe-1024fd6bc36a.png?asset_id=edd1358e-12ea-48e3-8b80-5b2daee7abf0&amp;img_etag=%22f75569f9109e7d45642c0c8583f73666%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/80a02f61-b4f9-4652-b02a-3e0381e6afd9.png?asset_id=7e10ab2e-094a-450f-9491-6695287b20d0&amp;img_etag=%22c99793434693a1eac0a5b42e0166e813%22&amp;size=2560)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/80a02f61-b4f9-4652-b02a-3e0381e6afd9.png?asset_id=7e10ab2e-094a-450f-9491-6695287b20d0&amp;img_etag=%22c99793434693a1eac0a5b42e0166e813%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/0065d205-8aa2-4008-aeb6-3bc960ba1ea0.png?asset_id=8d7589ab-b6c0-4fea-9a07-e1317166ad11&amp;img_etag=%2224433158d7dc5b3698e1dfcd5f98824c%22&amp;size=2886)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/0065d205-8aa2-4008-aeb6-3bc960ba1ea0.png?asset_id=8d7589ab-b6c0-4fea-9a07-e1317166ad11&amp;img_etag=%2224433158d7dc5b3698e1dfcd5f98824c%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/d09fcfb7-fa17-452f-b117-b218962131e1.png?asset_id=16a6c111-7a65-4631-827d-a5d6d82b6f32&amp;img_etag=%22a79548df66b4220caec34d0b75ec9419%22&amp;size=2560)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/d09fcfb7-fa17-452f-b117-b218962131e1.png?asset_id=16a6c111-7a65-4631-827d-a5d6d82b6f32&amp;img_etag=%22a79548df66b4220caec34d0b75ec9419%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/518320ac-cd9b-44af-84ff-f7937346d5b6.png?asset_id=50591412-16cc-4eb0-b2c3-fb72c56bdf60&amp;img_etag=%2223c8931b3c78b726cc62443f18aeb1e2%22&amp;size=3212)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/518320ac-cd9b-44af-84ff-f7937346d5b6.png?asset_id=50591412-16cc-4eb0-b2c3-fb72c56bdf60&amp;img_etag=%2223c8931b3c78b726cc62443f18aeb1e2%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7ea94840-3a88-4c27-a143-0ccb883ae083.png?asset_id=e4ba059f-c455-4412-89b7-768919dad055&amp;img_etag=%2231c03301237cee47ac6cc3799d2202a9%22&amp;size=3272)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7ea94840-3a88-4c27-a143-0ccb883ae083.png?asset_id=e4ba059f-c455-4412-89b7-768919dad055&amp;img_etag=%2231c03301237cee47ac6cc3799d2202a9%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/6bfbbc1f-036f-4c63-a311-72819d0239a1.png?asset_id=3c2096dd-3b06-4448-80d5-c11547870ddd&amp;img_etag=%225166165d7242a2f5b0f50f143ea023f5%22&amp;size=3310)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/6bfbbc1f-036f-4c63-a311-72819d0239a1.png?asset_id=3c2096dd-3b06-4448-80d5-c11547870ddd&amp;img_etag=%225166165d7242a2f5b0f50f143ea023f5%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7263ba0d-03ab-4f1c-aa72-803734b2a5ed.png?asset_id=e00c06d5-6636-45f4-9194-16e66353aa62&amp;img_etag=%225adec6f74a291b2938593a1c48f68e18%22&amp;size=3328)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7263ba0d-03ab-4f1c-aa72-803734b2a5ed.png?asset_id=e00c06d5-6636-45f4-9194-16e66353aa62&amp;img_etag=%225adec6f74a291b2938593a1c48f68e18%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/f43e09f2-4c41-4bb0-bd0c-8c91619f3fc8.png?asset_id=7618caf1-fe62-41de-a334-9957103f06b2&amp;img_etag=%22f80cfc8ef6bc84208c1e23fab3dadc91%22&amp;size=3342)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/f43e09f2-4c41-4bb0-bd0c-8c91619f3fc8.png?asset_id=7618caf1-fe62-41de-a334-9957103f06b2&amp;img_etag=%22f80cfc8ef6bc84208c1e23fab3dadc91%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/51a14734-cd1a-4236-9e98-8c2d373d0c7b.png?asset_id=9efc8407-0089-45c8-ac55-6542a791e436&amp;img_etag=%2210b88ea1124b58840de78ddfebc3a701%22&amp;size=2560)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/51a14734-cd1a-4236-9e98-8c2d373d0c7b.png?asset_id=9efc8407-0089-45c8-ac55-6542a791e436&amp;img_etag=%2210b88ea1124b58840de78ddfebc3a701%22&amp;size=1024)
+编辑：[【喜马拉雅战鹰团】](https://spark.adobe.com/page/Q4r6941HyJTEb/)-点击Adobe Spark版
 
-[BREAKING: Evidence of Biden Payments from China Support Tony Bobulinski and Show the Bidens Made Millions Swindling America](https://www.thegatewaypundit.com/2020/11/breaking·evidence·biden·payments·china·support·tony·bobulinski·show·bidens·made·millions·swindling·america/)
-
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/639e2b2b-d173-446c-9ff7-e1e33c73b8d8.jpg?asset_id=6dc5cc52-a5c5-4f67-ac6b-f8c1fe4a2710&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/639e2b2b-d173-446c-9ff7-e1e33c73b8d8.jpg?asset_id=6dc5cc52-a5c5-4f67-ac6b-f8c1fe4a2710&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

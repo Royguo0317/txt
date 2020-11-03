@@ -1,13 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 硬盘门内容泄露：亨特·拜登2016年11月-12月的通话记录
-` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/524618/)
+## 决战13天：拜登家族与共碟合作牟利
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/524961/)
 
-为子孙爱七哥农场翻译组
+- 作者：Víctor Torres
+- 资料：七白石
 
-[亨特·拜登2016年11月-12月的通话记录](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03175540/%E4%BA%A8%E7%89%B9%C2%B7%E6%8B%9C%E7%99%BB2016%E5%B9%B411%E6%9C%88-12%E6%9C%88%E7%9A%84%E9%80%9A%E8%AF%9D%E8%AE%B0%E5%BD%95.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03175540/%E4%BA%A8%E7%89%B9%C2%B7%E6%8B%9C%E7%99%BB2016%E5%B9%B411%E6%9C%88-12%E6%9C%88%E7%9A%84%E9%80%9A%E8%AF%9D%E8%AE%B0%E5%BD%95.pdf)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03175720/Screen-Shot-2020-11-04-at-6.56.58-AM.png)文件第一页截图
 
+***更多真相，请关注：[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)***
+
+朱利安尼先生透露，在拜登硬盘中一段长达3-4小时的对话中，亨特·拜登自述他和他的父亲跟中共国间谍做生意，合同金3000万美元，10%属于” Big Guy”乔·拜登。《国家脉搏》公布的通话录音中，亨特·拜登对他的合作伙伴和老爸充满了抱怨，并亲口承认：“我的合作伙伴何志平是他妈的中国间谍头子！”何志平于17年11月在纽约被捕，叶简明要求亨特担任何志平代理律师，并于18年3月汇给亨特1百万美元律师费。另外，其生意伙伴Archer曾将他和乔·拜登列为纽约南区联邦地区法院一桩刑事案件证人。
+
+叶简明系中国最大的非国有能源公司中国华信能源有限公司董事局主席。2018年，因中共不同派系权斗，在中共中央总书记习近平的亲自授意下被拘留审问，目前有消息称其已死亡。
+
+何志平曾任香港民政事务局局長和港区全国政协委员，因在美行贿塞内加尔外长和乍德总统而被判囚三年并罚款40万美元。2020年6月8日出狱后被驱逐回香港。
+
+另外值得关注的是，2010年在香港成立的中华能源基金委员会，何志平任基金会秘书长，路祥安任副秘书长。2017年11月，何志平在美国被捕。2018年2月12日，路疑似感染流感入住玛丽医院，但在两日间病情急剧转差病逝。两者间的联系不禁引人遐想。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0

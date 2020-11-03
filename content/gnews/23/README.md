@@ -1,21 +1,83 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅炸弹第六波之: 亨特半夜多次发乔和吉尔的汽车保险卡给纽约警察局办事人员
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/523984/)
+## 每日新闻看点-2020年11月2日
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/524081/)
 
-**简评：**
+多伦多加喜农场 大地鲲鹏
 
-这是亨特拜登把乔拜登和吉尔拜登夫妇的汽车保险卡的影印件转发给在的纽约警察局(NYPD) 芭芭拉\_塔维拉斯的邮件。原邮件是罗伯特\_亨特的名字从同一个电邮账户&lt;[email protected]&gt;送到罗伯特\_拜登。由此可见，当时汽车保险卡在亨特手中。介于汽车保险卡上明确表示保险卡需要被放置在车内，可见当时亨特在使用乔和吉尔拜登的车。这也从侧面可以看出，亨特的确是支付家里一切开支的那个人。最后，亨特在半夜将同一文件反复转发，也许这表示亨特的精神状态令人担忧。
+校对上传 XM
 
-深夜将汽车保险卡连续送往纽约市警局，这是 发生了什么状况？
+一、疫情真相
 
-**The original document 原文件：**
-[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/60111cee-55f6-4a87-ba01-f0eec4f76b46.jpg?asset_id=3e7fe070-eb19-4066-8109-ab287905a451&amp;img_etag=%22b3f0e8ce74a0bb0ec095509f3efa596b%22&amp;size=2560)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/60111cee-55f6-4a87-ba01-f0eec4f76b46.jpg?asset_id=3e7fe070-eb19-4066-8109-ab287905a451&amp;img_etag=%22b3f0e8ce74a0bb0ec095509f3efa596b%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/41f74324-ffea-4837-9109-973af37d6e77.jpg?asset_id=cfacf352-9390-4abf-8852-0bed9078a02f&amp;img_etag=%220179f074c72d9a9cbb14bc5cbbb2741b%22&amp;size=2560)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/41f74324-ffea-4837-9109-973af37d6e77.jpg?asset_id=cfacf352-9390-4abf-8852-0bed9078a02f&amp;img_etag=%220179f074c72d9a9cbb14bc5cbbb2741b%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/34a86115-ec3c-4d4a-b836-9d7beb899a54.jpg?asset_id=d4c3eb63-d287-494f-9ec1-63abb4f3811a&amp;img_etag=%22cdee93afeb658cf25915d5da34768077%22&amp;size=3229)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/34a86115-ec3c-4d4a-b836-9d7beb899a54.jpg?asset_id=d4c3eb63-d287-494f-9ec1-63abb4f3811a&amp;img_etag=%22cdee93afeb658cf25915d5da34768077%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/508f583f-601b-4bd8-b81a-b091f18a2267.jpg?asset_id=b84cec8e-0d2e-4305-92fd-9d9f87b679cd&amp;img_etag=%22e656b2c564c0619797d1738bd5770713%22&amp;size=2560)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/508f583f-601b-4bd8-b81a-b091f18a2267.jpg?asset_id=b84cec8e-0d2e-4305-92fd-9d9f87b679cd&amp;img_etag=%22e656b2c564c0619797d1738bd5770713%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/67c7d8a1-ac32-4918-9879-a7551f50ff8e.jpg?asset_id=142e894f-aaf1-413c-97a1-e8376e41c7ff&amp;img_etag=%22d9803102e6bb972f70fa179ab1153d21%22&amp;size=2657)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/67c7d8a1-ac32-4918-9879-a7551f50ff8e.jpg?asset_id=142e894f-aaf1-413c-97a1-e8376e41c7ff&amp;img_etag=%22d9803102e6bb972f70fa179ab1153d21%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/034a6073-203f-41b6-9e9c-19ad816c3293.jpg?asset_id=cdbbb703-0a25-4d99-a7ca-6636fb199df6&amp;img_etag=%22363b0cfad53fb46985d1959a6fdb0537%22&amp;size=3457)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/034a6073-203f-41b6-9e9c-19ad816c3293.jpg?asset_id=cdbbb703-0a25-4d99-a7ca-6636fb199df6&amp;img_etag=%22363b0cfad53fb46985d1959a6fdb0537%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/12c67047-22d0-48f5-b407-9c005fa0e00a.jpg?asset_id=c273496f-510b-4780-8207-7002bc43a460&amp;img_etag=%226ae8251f2259a0368b3bcc998fbce02b%22&amp;size=2560)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/12c67047-22d0-48f5-b407-9c005fa0e00a.jpg?asset_id=c273496f-510b-4780-8207-7002bc43a460&amp;img_etag=%226ae8251f2259a0368b3bcc998fbce02b%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/e3084b73-f33d-4f94-88ee-c4abf49c981e.jpg?asset_id=90545237-1534-47ba-82fc-83dcd4efeb43&amp;img_etag=%227e79a47bb7f9d78c7c42192b48afb477%22&amp;size=3256)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/e3084b73-f33d-4f94-88ee-c4abf49c981e.jpg?asset_id=90545237-1534-47ba-82fc-83dcd4efeb43&amp;img_etag=%227e79a47bb7f9d78c7c42192b48afb477%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/76399ee2-831d-4be4-a81a-98c3374aedce.jpg?asset_id=e5471db8-b9a0-48b1-9812-0443b2db698e&amp;img_etag=%221a0c9694f5b0773fc30579e51d96d73d%22&amp;size=2560)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/76399ee2-831d-4be4-a81a-98c3374aedce.jpg?asset_id=e5471db8-b9a0-48b1-9812-0443b2db698e&amp;img_etag=%221a0c9694f5b0773fc30579e51d96d73d%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/e00aaeb4-541c-4ee2-b056-10edc9498476.jpg?asset_id=f5d09455-0840-4436-b279-bacc7aa4b8f1&amp;img_etag=%22481c10a5b6e0e30e4d713b9aebef1107%22&amp;size=3477)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/e00aaeb4-541c-4ee2-b056-10edc9498476.jpg?asset_id=f5d09455-0840-4436-b279-bacc7aa4b8f1&amp;img_etag=%22481c10a5b6e0e30e4d713b9aebef1107%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/8c8a8f87-50c2-4e06-9c2b-212c87daef18.jpg?asset_id=c8ab5aec-b799-432f-811e-e5ccaec44c12&amp;img_etag=%22db69b1281f09c63cd1ee01bfdb71238e%22&amp;size=2560)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/8c8a8f87-50c2-4e06-9c2b-212c87daef18.jpg?asset_id=c8ab5aec-b799-432f-811e-e5ccaec44c12&amp;img_etag=%22db69b1281f09c63cd1ee01bfdb71238e%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/1b2fef47-bc75-4a28-9789-5fe7eb45fbf9.jpg?asset_id=bc1217cc-b48d-48ef-b468-b7c2b79d79da&amp;img_etag=%22c778b844e413c702c94122789bdb713f%22&amp;size=3530)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/1b2fef47-bc75-4a28-9789-5fe7eb45fbf9.jpg?asset_id=bc1217cc-b48d-48ef-b468-b7c2b79d79da&amp;img_etag=%22c778b844e413c702c94122789bdb713f%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/41dc6f22-a9a7-491b-8255-fb4a2be77e06.jpg?asset_id=9955d8dc-fe0a-4e6b-9226-a07816434772&amp;img_etag=%221145497f6c1fcc443d457894a57bb108%22&amp;size=2560)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/41dc6f22-a9a7-491b-8255-fb4a2be77e06.jpg?asset_id=9955d8dc-fe0a-4e6b-9226-a07816434772&amp;img_etag=%221145497f6c1fcc443d457894a57bb108%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/9fbe973e-7c22-488d-ba90-0c1312965401.jpg?asset_id=34024b84-a0a6-4710-90bd-0a46df6d5207&amp;img_etag=%22811f6c96ba17c9c372bd786b6d16d418%22&amp;size=3342)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/9fbe973e-7c22-488d-ba90-0c1312965401.jpg?asset_id=34024b84-a0a6-4710-90bd-0a46df6d5207&amp;img_etag=%22811f6c96ba17c9c372bd786b6d16d418%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/eea7fd60-c994-4684-9fc9-f4db76cad4c8.jpg?asset_id=06a84c3e-a6da-4aa9-b1ca-faae0d152a0b&amp;img_etag=%22f891c9cfc2ca89023dad940d3d88e755%22&amp;size=2560)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/eea7fd60-c994-4684-9fc9-f4db76cad4c8.jpg?asset_id=06a84c3e-a6da-4aa9-b1ca-faae0d152a0b&amp;img_etag=%22f891c9cfc2ca89023dad940d3d88e755%22&amp;size=1024)
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+1.闫丽梦博士论文：
 
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+第一份英文版[https://zenodo.org/record/4028830#.X1\_lwj-SlPa](https://zenodo.org/record/4028830#.X1_lwj-SlPa)
 
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/vKdPRcwXIanPA/)】
-[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-1+
+第一份中文版[https://drive.google.com/file/d/1vZ0vbPJ9QAhGDjna9pkMxqUHhIdakODW/view?usp=sharing](https://drive.google.com/file/d/1vZ0vbPJ9QAhGDjna9pkMxqUHhIdakODW/view?usp=sharing)
+
+第二份英文版[http://zenodo.org/record/4073131](https://zenodo.org/record/4073131)
+
+第二份中文版[https://gnews.org/zh-hans/411364/](https://gnews.org/zh-hans/411364/)
+
+2.上周五，世卫组织国际专家组与中共专家举行了新冠病毒溯源的首次视频交流会，标志着“中外联合专家组”正式启动了所谓的对中共病毒的溯源调查。据报道，世卫组织高层已与中共私下里达成协议，放弃了国际专家组在关键问题上的调查控制权。外界对中共把持下的调查组得出准确的结论不报希望。
+
+二、新中国联邦新闻
+
+1.新中国联邦大决战：
+
+硬盘邮件解密新闻列表：
+
+
+
+> [【2】Drug Abuser! Hunter Biden’s Corrupted Life Revealed by Cellphone Messages. Mechanic Covering Up For Him For Money as Police Found “Crack Pip” in Biden’s Truck](https://gnews.org/517853/)
+
+
+
+
+
+> [独家：鲍嘉琪与亨特·拜登、罗伯特·拜登、董功文、严莫文商讨液化天然气（LNG）项目](https://gnews.org/zh-hans/521322/)
+
+
+
+
+
+> [【3】第四波亨特拜登手机内容揭秘极其露骨的淫乱生活！——“有几个火辣的大学生”“都熟透了”](https://gnews.org/zh-hans/517942/)
+
+
+
+一切真相，尽在GNEWS。
+
+2.“路德时评”11/2/2020节目部分内容:
+
+a.据情报，布隆伯格执行中共策划的“红色幻影”Red Mirage大选夜将掀全美Antifa暴乱阻止川普总统连任；华盛顿 DC的市长（民主党人）不设防，故意让外围的Antifa进来市中心，围住从川普酒店到白宫这个区域；川普总统若于选举夜宣布获胜，中共将利用暴乱、股市、疫情搞乱美国；民主党已准备500余诉讼律师，利用邮寄选票造成的争端缠诉总统。主流媒体也将抹黑连任合法性。
+
+b.川普总统计划开除CIA局长、FBI局长和国防部长。
+
+c.南华早报企图利用政治化抹黑路德社揭露硬盘门，遭路德驳斥。
+
+d.2014年Wray任FBI局长前曾代理华信能源（亨特∙拜登为董事）收购俄罗斯国家石油公司股份的丑闻已曝光。王岐山当年授意姆努钦提名Wray任局长。
+
+e.亨特∙拜登与董功文在国泰银行开设共同账户的联名签署协议曝光，薄甜甜掌管该公司财务记录，将为指控拜登家族勾兑中共提供实锤证据。
+
+f.新中国联邦电台华盛顿DC演播厅加固提防大选夜暴乱。
+
+g.美国退休空军中将说：“如果川普输了，这将是最后一次自由选举”；经过中共长期渗透，美国沼泽地控制了媒体、大科技公司、华尔街资本、司法行政、情报、国防等几乎每一个行业、每一个层级、每一个角落，且隐藏极深，骗过了几乎所有善良的美国民众。幸亏有爆料革命横空出世，帮助世界一点一点看清真相。
+
+（“路德时评”早间节目[https://www.youtube.com/watch?v=ezQnl9O-r2I&list=PLt9WLG-do1atM5bjKoiSQuXncbmVnEESC&index=4](https://www.youtube.com/watch?v=ezQnl9O-r2I&amp;list=PLt9WLG-do1atM5bjKoiSQuXncbmVnEESC&amp;index=4)）
+
+（“路德时评”晚间节目[https://www.youtube.com/watch?v=PWXl4icSGRs&list=PLt9WLG-do1atM5bjKoiSQuXncbmVnEESC&index=3](https://www.youtube.com/watch?v=PWXl4icSGRs&amp;list=PLt9WLG-do1atM5bjKoiSQuXncbmVnEESC&amp;index=3)）
+
+3.中共于5月对原产澳洲的进口大麦课征80.5%的反倾销及反补贴税。中共上个星期拒绝了澳大利亚关于取消对澳课征高额关税的请求。另外11月2日，中共”崴脚部”发言人汪文斌证实，中方已禁止进口澳大利亚昆士兰州的原木。
+
+4.中共国中国银行和交通银行11月2日发布公告称，预计北京时间11月3日至4日贵金属、外汇市场市场风险可能加剧。如果市场波动加剧，可能会限制贵金属和外汇产品的交易。这正是美国大选结果落定的时间，中共很可能是这次波动的始作俑者。
+
+5.11月2日报道，爱尔兰有名的商人、电信巨头华为公司的企业传播副总裁乔·凯利（Joe Kelly）上周在中共国深圳突然去世，终年55岁。凯利专长危机处理，曾帮助华为驳斥指控。
+
+三、世界新闻
+
+1.川普总统否认在选举夜提前宣布胜选，但暗示共和党将寻求阻止在大选日之后继续清点选票。
+
+2.美国国家法律和政策中心周日（11月2日）向美国司法部提交一份长达12页的诉状，要求对亨特·拜登及几个相关机构进行调查，以确定它们代表中共利益从事政治活动时，是否遵守了外国代理人注册法（FARA）。
+
+0

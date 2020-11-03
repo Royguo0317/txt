@@ -1,47 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家：鲍嘉琪与拜登家族邮件，透露川普总统与中国石化贸易谈判
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/522889/)
+## 重磅炸弹第六波之：詹姆斯拜登开给亨特拜登的发票
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/522927/)
 
-翻译 多伦多加喜农场 坐看云起时
+**简评：**
 
-校对 XM 上传 HUH
-![]()![](https://media.discordapp.net/attachments/721388937553248396/773209947466235934/Snipaste_2020-11-03_23-30-13.png?width=353&amp;height=509)![]()![](https://media.discordapp.net/attachments/721388937553248396/773209976070996000/Snipaste_2020-11-03_23-39-14.png?width=397&amp;height=509)
-来自：**鲍嘉琪 **
+以下是詹姆斯拜登开给亨特拜登的发票，亨特拜登每月需要向詹姆斯拜登的国际业务发展项目支付82,500美金，6月份欠款14，001美金。
 
-主题：新闻和项目清单
+![]()![](https://spark.adobe.com/page/yLy6f7FsMlusm/images/2a608ca2-a284-4614-bebc-f1541b62f20c.jpg?asset_id=c4845de7-6ff8-4274-a122-cf4de0ba6066&amp;img_etag=%22f1bbea8527e23052fe85d09d0c350b36%22&amp;size=1024)
 
-日期：2017年11月8日下午4:40分
+![]()![](https://spark.adobe.com/page/yLy6f7FsMlusm/images/fa8b5ff8-5bd8-4570-a49b-f5ac6e2de82a.jpg?asset_id=f5c1fa61-64c0-4e17-a005-275fd9769b24&amp;img_etag=%224cbf36142da52c4a8bdf307249621b27%22&amp;size=1024)
 
-收件人：gongwen dong , Hunter Biden , Jim Biden, Mervyn Yan, Robert Biden。
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-**科普斯基斯蒂(Corpus Christ)的Cheniere LNG还是Texas LNG和中国石化？**
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-**“****请注意，科普斯基斯蒂(Corpus Christ)在20世纪70年代被飓风摧毁，最近又被飓风Harvey摧毁。**
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/yLy6f7FsMlusm/)】
 
-**Cheniere****目前有2条生产线正在建设中，并计划在以后建设更多的液化生产线。**
+[!\[\]()!\[\](https://spark.adobe.com/page/yLy6f7FsMlusm/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/yLy6f7FsMlusm/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
-**除了Cheniere和Texas LNG，Delfin Midstream是第三家随川普总统贸易代表团访华的德克萨斯LNG公司，第四家LNG/NG公司是阿拉斯加天然气公司。**
-
-川普政府目前正在谈判的最大交易之一是来自中国石油天然气巨头中国石油化工集团公司的数十亿美元的能源投资，这将为德克萨斯州和美属维尔京群岛的飓风肆虐地区带来数千个新的就业机会。许多交易，包括中国石油的投资，预计将以非约束性谅解备忘录的形式进行，没有合同。
-
-根据Bloomberg新闻社获得的一份政府文件，被初步列为与此行有关的中国相关交易的公司有：
-
-通用电气公司（General Electric Co.）、霍尼韦尔国际公司（Honeywell International Inc）、西屋电气公司（Westinghouse Electric Co., ）、阿拉斯加天然气公司（Alaska Gasline Development Corp.）、波音公司（ Boeing Co.）和高通公司（Qualcomm Inc）。这些公司代表了从生命科学到重型机械的各个领域。根据该文件，其他可能正在进行交易的公司包括Cheniere Energy (钱尼尔能源)、特雷克斯公司（Terex Corp) 、赛默飞世尔科技公司（Thermo Fisher Scientific Inc. ）、美国应用材料公司（Applied Materials Inc.）、卡特彼勒（Caterpillar Inc.）和黑石集团(Blacestone Group)。
-
-该项目在德克萨斯州和维尔京群岛的飓风区的细节尚未确定，但这家中国公司，即中国石化，预计将与位于波士顿的基础设施投资公司Arclight Capital和康涅狄格州的商品贸易公司Freepoint Commodities LLC合作。这笔交易预计在美国的投资价值将超过70亿美元。
-
-**700-****英里管道**
-
-该项目将包括建造一条700英里长的管道，从德克萨斯州西部的二叠纪油田到墨西哥湾沿岸，并在那里建造一个储存设施。另外，中国石化还将扩大圣克罗伊岛被称为石灰树的现有油储设施。
-
-据一位熟悉该提案的人士透露。
-
-该交易仍需得到美国和中共官员的最终批准。
-
-但所有这些开发交易都可能为美国总统提供政治助力，他在竞选活动中的大部分时间都在争辩说，他具有吸引就业和投资回美国的独特资格。
-
-美国商务部长威尔伯∙罗斯表示，上个月川普访华时，美国希望在川普访华期间能有 “非常好的可交付成果”。
-
-2+
+0

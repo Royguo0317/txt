@@ -1,9 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特包养多名在校女孩的邮件往来被曝
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/524488/)
+## 拜登与多名女性调情信息被曝
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/524554/)
 
-该邮件往来记录了亨特拜登通过私人助理来负责数名年轻女性的生活和消费支出。从邮件表面看来其中大多皆为美国高中生或者大学在校学生，不排除有未成年少女，在2018年亨特的一张美国银行卡停用。并且其私人助理与他失去联系。，其时间与2018年叶简明出事相呼应。可以另一方面证实其与中共代理人之间密不可分的联系，
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03170239/WhatsApp-Image-2020-11-03-at-10.32.21-PM-1-1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03170254/WhatsApp-Image-2020-11-03-at-10.32.21-PM-2.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03170305/WhatsApp-Image-2020-11-03-at-10.32.22-PM-1-1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03170314/WhatsApp-Image-2020-11-03-at-10.32.22-PM-2.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03170328/WhatsApp-Image-2020-11-03-at-10.32.23-PM-2.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03170339/WhatsApp-Image-2020-11-03-at-10.32.23-PM-1-2.jpeg)
+翻译:康州农场—任天行
+
+校对:康州农场—大飞机
+
+编辑：康州农场—残夜听雨声
+
+其信息往来具体身份未名，其中一位女士在信息往来中谈到了戒毒治疗，并且亨特对其有安慰与调情，怀疑其为吸毒的嫂子。另一位名女士在其中谈到自己的孩子，怀疑为已婚妇人。其中有一段剧情一位已婚女士去亨特家中怕被拍到因此改为披萨店相会
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173036/0001-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173044/0002-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173052/0003-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173059/0004-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173106/0005-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173116/0006-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173126/0007-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173138/0008-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173220/0009-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173224/0010-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173238/0011-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173315/0012-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173327/0013-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173340/0014-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173342/0015-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173349/0016-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173357/0017-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173410/0018-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173439/0019-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173443/0020-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173444/0021-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173443/0022-scaled.jpg)
 0
