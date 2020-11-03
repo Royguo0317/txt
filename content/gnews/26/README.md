@@ -1,13 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 战斗室469精选: 一旦悉尼·鲍威尔被任命为FBI总监, 鲁迪·吉利安尼出任特别检察官后,拜登家族犯罪集团将被彻底调查
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/521567/)
+## 决战13天：独家！再爆亨特拜登邮件（2）
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/521721/)
 
-战斗室469精选：一旦悉尼-鲍威尔被任命为FBI总监，鲁迪•吉利安尼出任特别检察官后，拜登家族犯罪集团将被彻底调查。FBI和其他一些高层干部也会被调查。大选投票结束后，就会开始清理内务。
+- 编辑：文顺
+- 翻译：Ranting
 
-
-
-#### **By: 【秘密翻译组G-Translators】**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03073749/2.1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03073800/2-5.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25143553/image0-101.jpg)喜西农场官方Parler二维码，敬请关注！
 
 0
