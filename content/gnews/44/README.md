@@ -1,25 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家：鲍嘉琪与亨特·拜登、罗伯特·拜登、董功文、严莫文商讨液化天然气（LNG）项目
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/521322/)
+## 10.17 路德时评：路德英文频道的重要性【精华版粤语配音】
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/521402/)
 
-多伦多加喜农场 小先生 大地鲲鹏
+制作单位：战友之家·粤语频道
 
-校对上传 XM
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03062407/94.jpg)
-来自: 鲍嘉琪
+制作团队：Mrcc、文雀、打杂的、wen fei、阿恩
 
-主题:猴岛液化石油气项目会议纪要
 
-日期: 2017年10月24日下午1:07
 
-致： jbiden; 亨特·拜登; 罗伯特·拜登；董功文；严莫文
+摘要：
 
-请查看MILNG（猴岛液化天然气项目）会议纪要的附件，如果您有任何问题或意见，请与我联系。 我们已经发送了已执行的保密协议。 正在等待收到他们的评估报告。 谢谢。
+中文频道已经为国内外同胞认可，致力在华人圈传递真相，现在需要将真相传递给外国人，向全球揭露中共真相。
 
-JiaQi  泓慧
+川普总统积极进行选举宣传，目的是测试民意。
 
-JiaQi Bao 鲍泓慧| 202.679.0168
+路德社英文频道：
+
+[https://www.youtube.com/c/Ludepress](https://www.youtube.com/c/Ludepress)
 
 0

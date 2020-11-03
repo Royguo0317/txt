@@ -1,17 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 决战13天：独家！再爆亨特拜登邮件（3）
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/521748/)
+## 中储粮又一高层被双开
+` Ronald` [轉載自GNews](https://gnews.org/zh-hans/521764/)
 
-- 编辑：文顺
-- 翻译：Ranting
+内新闻/素材：庚子 校对：老白
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03075439/image0-12.jpg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03074346/3.2.jpg)
+据中国储备粮管理集团有限公司纪检监察组消息：日前，中国储备粮管理集团有限公司纪检监察组、辽宁省沈阳市监委对中储粮储运有限公司原党委常委、副总经理王立强涉嫌严重违纪违法。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03074402/3-9.jpg)
+依照《中国共产党纪律处分条例》《中国储备粮管理集团有限公司员工处分办法》等有关规定，经中国储备粮管理集团有限公司党组研究决定，给予王立强开除党籍、开除（解除劳动合同）处分；收缴其违纪所得；将其涉嫌受贿犯罪问题移送检察机关依法审查起诉，所涉财物随案移送。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25143553/image0-101.jpg)喜西农场官方Parler二维码，敬请关注！
+这是继8月18日，中粮集团有限公司党组成员、总会计师骆家駹落马后又一高层被开。
 
-0
+结合习近平的“粮食节约政策”，京津冀粮食危机互助协议的签署，以及部分省份粮食节约法的出台，2021年将是艰难的一年。
+
+新闻来源：
+【中储粮储运有限公司原党委常委、副总经理王立强被双开 – 今日头条】[https://m.toutiao.com/is/Jmko848/](https://m.toutiao.com/is/Jmko848/)
+
+1+

@@ -1,107 +1,168 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 埃里克‧史威林写给亨特的信
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/521268/)
+## 爆炸揭秘第六波(43) 拜家子竟为几千元惊动一众沼泽巨鳄？
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/521661/)
 
-发件人: 埃里克·史威林 [email protected]
+赵胜欢
 
-主题: 协议时间 – 接下来的步骤
+2010年12月27日，上午11点30分，亨特·拜登写道——
 
-日期: 2019年1月 11日, 上午10:01
+请查看银行帐户，多谢。
 
-收件人: 罗伯特·亨特·拜登 [email protected]
+2010年12月27日，上午11点40分，埃里克·史威林写道——
 
-抄送: George R. Mesires [email protected], Katie Dodge [email protected]
+查得银行卡帐上有两千四百零九美金。是这张卡无法使用，还是刚才你要查余额？今天我会电邮“智慧同步”的史蒂芬（或许来自你？），向他垂询其所认为的付款时间。作为2010年红利因素，我需要它周三到账。你认为呢？需要我发送电邮，还是劳您大驾？
 
-亨特,
+2010年12月27日，上午11点46分，亨特·拜登写道——
 
-我想绕回来讨论以确保我们都意识到,如果我们不能尽快就我们的协议得出一些结论，我们很快就会遇到一些问题。
+从你这里发电邮吧，如对方无回应，我再亲自发。
 
-由于许多时间敏感的原因，我们至少需要就高层架构达成一致协议。由于它与BD（斐格毕迪律师事务所）有关，我们想要达成一项自2018年12月31日起生效的协议，因为税务和其它方面的原因。
+2010年12月27日，上午11点52分，埃里克·史威林写道——
 
-最紧迫的是，RSPI（RespireRx Pharmaceuticals Inc,制药公司）目前正在进行其2018年的年度审计，我们需要将任何可能的结构变化告知审计员。该审计将在接下来的3-4周内完成并提交给SEC（美国证券交易委员会）。
+听上去不赖。有关余额的问题解决了吗？即使有亟待纠正处，直到本周末付款到账前，消费应无碍，是这样吧？
 
-此外，RSPI的资本追加将在接下来的几周内到期，我们不想通过Skaneateles进行资本追加，这样我们不需要在Skaneateles的2019税务申报表里提供关于RSPI相关交易的部分。
+2010年12月27日，下午12点19分，亨特·拜登写道——
 
-我们最好能在下周之前达成一个可以在2018年12月31日生效的口头协议，我将放弃对BHR的权益，以换取您放弃对BD的权益。在此之后的几周内，我们可以处理将其写入书面协议以及一些较小的问题。我认为那些小问题不是很主要，不管如果都不会花费太多时间。但是，当我们有了口头协议后，我们可以开始在新的架构下运行。
+此卡在自动提款机上无法使用，显示余额不足。
 
-由于BD受FINRA（美国金融业监管局）和SEC的监管，如果我们继续将这一问题搁置一旁，我们都将面临潜在的问题，并且在何时使该协议生效上我们将失去任何变通。
+2010年12月27日，下午12点26分，埃里克·史威林写道——
 
-（此邮件）同时也抄送给了George和Katie，这样每个人都得到一致的信息并对这件事有相同的理解。
+嗯，我会让辛蒂去查证。你以前能从亚历克斯/博那拿到五百美金维萨卡吗？卡还在吗？
 
-谢谢
+(辛蒂，严重怀疑是Cindy Lou Hensley McCain，约翰·麦凯恩遗孀。丈夫为越战退伍军人，参议院成员，曾于2000和2008年两度参选总统，分别败给布什和奥巴马。辛蒂曾深度参与丈夫政事，一度滥用药物，极度轻视川普，乃是铁杆拜登粉，私交不浅)
 
-埃里克
+（亚历克斯，严重怀疑是Alexander Mackler，亚历山大·麦凯勒，特拉华州司法部部长。）
 
-埃里克·D**‧**史威林
+（博即博·拜登，乔拜登长子）
 
-华盛顿特区M街西北2550 号
+2010年12月27日，下午1点21分，亨特·拜登写道——
 
-邮编20037
+有消息吗？
 
-电话 (202)333-5196
+2010年12月27日，下午2点16分，埃里克·史威林写道——
 
-[\[email protected\]](/cdn-cgi/l/email-protection#f49187979c8391869d9ab4869b8791999b9a8087919a919795da979b99)
+已从辛蒂处获知。于我而言非常困惑，但此账户可用余额仅三百七十六美金。上周我们所做的其中一笔转款搁置十天（这也是我困惑的地方），但今日它将获准，明日账上即有两千刀可用。辛蒂刚在准备尝试提前这一进程，如此你立刻能有超过三百七十六美金。我不懂转款搁置，也不清楚多余的两千刀从何而来。但如果她（辛蒂）没错，别多嘴乱问。
 
-发件人: 凯特·道奇 [email protected]
+我会见机行事，问爱德华这些款项的来龙去脉。
 
-主题: 转发: 协议时间 – 接下来的步骤
+[亨特·拜登沉迷招嫖，毒品，常年出沒風月場，曾為艷舞一擲千金，于在綫色情直播平臺險些刷爆銀行卡；所以不要奇怪堂堂拜登之子會爲了一兩千元坐地叫嚷，甚至勞動一眾大佬為之鞍前馬後。無他，色慾薰心，外加臉皮厚過城牆拐角而已。]
 
-日期: 1月14, 2019  10:24 AM
-
-收件人：亨特·拜登 [email protected]
-
-你好，亨特。我只是跟进一下。有什么需要我帮助的吗？谢谢
-
--凯特
-
-起始转发的信息：
-
-发件人: 埃里克·史威林 [email protected]
-
-主题: 协议时间 – 接下来的步骤
-
-日期: 2019年1月 11日, 上午10:01
-
-收件人: 罗伯特·亨特·拜登 [email protected]
-
-抄送: George R. Mesires [email protected], Katie Dodge [email protected]
-
-亨特,
-
-我想绕回来讨论以确保我们都意识到,如果我们不能尽快就我们的协议得出一些结论，我们很快就会遇到一些问题。
-
-由于许多时间敏感的原因，我们至少需要就高层架构达成一致协议。由于它与BD（斐格毕迪律师事务所）有关，我们想要达成一项自2018年12月31日起生效的协议，因为税务和其它方面的原因。
-
-最紧迫的是，RSPI（RespireRx Pharmaceuticals Inc,制药公司）目前正在进行其2018年的年度审计，我们需要将任何可能的结构变化告知审计员。该审计将在接下来的3-4周内完成并提交给SEC（美国证券交易委员会）。
-
-此外，RSPI的资本追加将在接下来的几周内到期，我们不想通过Skaneateles进行资本追加，这样我们不需要在Skaneateles的2019税务申报表里提供关于RSPI相关交易的部分。
-
-我们最好能在下周之前达成一个可以在2018年12月31日生效的口头协议，我将放弃对BHR的权益，以换取您放弃对BD的权益。在此之后的几周内，我们可以处理将其写入书面协议以及一些较小的问题。我认为那些小问题不是很主要，不管如果都不会花费太多时间。但是，当我们有了口头协议后，我们可以开始在新的架构下运行。
-
-由于BD受FINRA（美国金融业监管局）和SEC的监管，如果我们继续将这一问题搁置一旁，我们都将面临潜在的问题，并且在何时使该协议生效上我们将失去任何变通。
-
-（此邮件）同时也抄送给了George和Katie，这样每个人都得到一致的信息并对这件事有相同的理解。
-
-谢谢
-
-埃里克
-
-埃里克·D**‧**史威林
-
-华盛顿特区M街西北2550 号
-
-邮编20037
-
-电话 (202)333-5196
-
-[email protected]
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03070911/8-3.jpg)
 
 
+From: Eric Schwerin [email protected]
 
-翻译：澳喜翻译组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03060714/IMG_2850-1.jpg)
+Subject: Re: Can you Date: December 27, 2010 at 2:16 PM
 
+To: Hunter Biden [\[email protected\]](/cdn-cgi/l/email-protection#751d171c11101b35071a0610181a1b0106101b1016145b161a18)
 
-1+
+Heard back from Cindy.
+
+It was all very confusing to me, but the bottom line is that there is only $376 currently available in to be used at the moment.
+
+One of the transfers we did last week apparently has a 10 day hold on it (this is where it got confusing to me) but that hold is going to be released today and there will be $2000 in the account effective tomorrow.
+
+Cindy was going to try and get the hold released earlier today so you have a little more than the $376 currently in there effective immediately.
+
+I don’t understand the hold and I am not sure where that extra $2000 was coming from but if she’s right, don’t ask questions – I’ll ask Edward at some point what that is all about.
+
+Eric D. Schwerin Rosemont Seneca Partners,
+
+LLC 1010 Wisconsin Ave.,
+
+NW Suite 705 Washington DC 20007
+
+(202) 333-1880
+
+[\[email protected\]](/cdn-cgi/l/email-protection#adc8decec5dac8dfc4c3eddfc2dec8c0c2c3d9dec8c3c8cecc83cec2c0)
+
+P Consider the environment before printing this email.
+
+On Dec 27, 2010, at 1:21 PM, Hunter Biden wrote:
+
+Any word?
+
+R. Hunter Biden Rosemont Seneca Partners 202-333-1880
+
+On Dec 27, 2010, at 12:26 PM,
+
+Eric Schwerin &lt;[email protected]&gt; wrote:
+
+OK – I am asking Cindy to check.
+
+Were you able to get that $500 Visa card from Alex/Beau?
+
+Do you still have that?
+
+Eric D. Schwerin Rosemont Seneca Partners,
+
+LLC 1010 Wisconsin Ave.,
+
+NW Suite 705 Washington, DC 20007
+
+(202) 333-1880
+
+[\[email protected\]](/cdn-cgi/l/email-protection#066375656e7163746f6846746975636b6968727563686365672865696b)
+
+P Consider the environment before printing this email.
+
+On Dec 27, 2010, at 12:19 PM, Hunter Biden wrote:
+
+It says I have insufficient funds @ ATM and card won’t work.
+
+R. Hunter Biden Rosemont Seneca Partners 202-333-1880
+
+On Dec 27, 2010, at 11:52 AM,
+
+Eric Schwerin &lt;[email protected]&gt; wrote:
+
+Sounds good.
+
+Got what you need on the balance question?
+
+If that is anywhere near correct, you should be good on spending money until you get paid out at the end of the week, right?
+
+Eric D. Schwerin Rosemont Seneca Partners,
+
+LLC 1010 Wisconsin Ave., NW Suite 705 Washington, DC 20007
+
+(202) 333-1880 [\[email protected\]](/cdn-cgi/l/email-protection#e38690808b9486918a8da3918c90868e8c8d9790868d868082cd808c8e)
+
+P Consider the environment before printing this email.
+
+On Dec 27, 2010, at 11:46 AM, Hunter Biden wrote:
+
+From you I think first and me if no response.
+
+R. Hunter Biden Rosemont Seneca Partners 202-333-1880
+
+On Dec 27, 2010, at 11:40 AM,
+
+Eric Schwerin &lt;[email protected]&gt; wrote:
+
+Says there is $2409 in your ATM card account.
+
+Is it not working or you just needed a balance check?
+
+I am going to email Stephen at Smart Synch today (maybe from you?) and ask what he thinks his timing will be on their payment.
+
+I really kind of need it by Wednesday at the latest to factor it into the 2010 bonus.
+
+What do you think? Should I send email from you or me?
+
+Eric D. Schwerin Rosemont Seneca Partners, LLC 1010 Wisconsin Ave.,
+
+NW Suite 705 Washington, DC 20007 (202) 333-1880
+
+[\[email protected\]](/cdn-cgi/l/email-protection#761305151e0113041f1836041905131b1918020513181315175815191b)
+
+P Consider the environment before printing this email.
+
+On Dec 27, 2010, at 11:30 AM, Hunter Biden wrote:
+
+Please check bank account- thanks.
+
+R. Hunter Biden Rosemont Seneca Partners 202-333-1880
+
+0
