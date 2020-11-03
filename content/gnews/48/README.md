@@ -1,35 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】叶刘淑仪：港人入籍外国 3 年不返港失投票权；涂谨申：港人无责任通知港府
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/517758/)
+## 突发：白宫周一开始构筑围栏 为选举夜可能发生的暴力事件美各地均做部署
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/517781/)
 
-搜集：文政、文罡
+喜马拉雅联盟加拿大  坐看云起时
 
-编撰：文燕
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02120408/%E5%A4%A7%E9%80%89%E5%A4%9C.jpg)图片来自 The Atlantic
+11月2日各大新闻媒体纷纷报道，白宫的工作人员周一开始在整个建筑群、椭圆区和拉斐特广场周围建造 “不可缩放 “的围栏。
 
-审核：MY
+CNN报道说，计划中的围栏将封闭Ellipse和拉斐特广场(Lafayette Square)，沿着15街延伸到宪法大道( Constitution Avernue)，然后穿过17街。它将一直延伸到H街，穿过拉斐特(Lafayette)，然后再从15街下来。
 
-特区政府声称因疫情爆发，认为是合适时机研究「境外投票」，又指社会一直对此有需求。港府计划推行内地港人投票，民主派质疑为何不包括海外港人。行政会议成员叶刘淑仪表示，居于外地多年的港人大部分已入籍他国，根据《国籍法》代表他已放弃中国国籍；另根据《入境条例》，若3年内没有回港，即丧失在港居留权，亦不属于香港永久性居民，将失去投票权。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02113806/image001-2.png)图片：立场新闻
-据香港媒体报道，行政会议成员及立法会议员，新民党主席叶刘淑仪表示支持，认为内地港人极有可能符合「通常居港」条件。叶刘淑仪在《Now 新闻台》节目〈大鸣大放〉提出，如果海外港人取得外国国籍，3 年内未有返港，根据中国《国籍法》和《入境条例》，该人将失去居留权，即不属永久居民，因此也失去投票权。
+美国全国广播公司（NBC News）周日还援引联邦执法部门的消息报道，250名国民警卫队队员已经进入待命状态。这些人将向特区大都会警察报告。
 
-民主党立法会议员涂谨申向《立场新闻》表示，除非当事人主动谈及，否则政府难以知悉对方已取得外国国籍、以至定居海外，港人亦无责任主动通知当局，他已经取得外国国籍，以及定居外地；至于排除海外港人居留权，从而导致对方无法投票的程序，涂谨申认为虽在法理上可行，但是当中的行政手段必须由港府主动采取，获得外国国籍，以至居于海外港人数量数以十万计，如果入境处不时询问相关港人是否已经定居外国，入境处工作会大增。
+这是为周二大选后的一波预期动荡做准备，可能发生的抗议和暴力事件引起了学者、企业主、执法人员等的警惕。
 
-对于开放大湾区港人投票的建议，会触及「在香港通常居住」的定义，叶刘淑仪表示，《选举条例》虽有规定选民要是「在香港通常居住的永久居民」，但根据英国案例，一个人可在两至三个地方「通常居住」。叶刘淑仪认为，只要一个人自愿居住在一个地方，并有定居目的，就可被视为「通常居住」，故即使是居内地的港人，都极有可能符合「通常居住」的条件。
+全国各地的警察部门已经开始警告他们的警员做好部署准备，而纽约市一些高层建筑则聘请了武装警卫来保护。
 
-战友点评：
+今年美国各大城市经历了一个夏天的抗议，暴力和抢劫。波特兰市（Portland)与华盛顿州的西雅图市（Seattle, Wash.）、纽约市（New York City）都被司法部贴上了 “无政府主义管辖区 “的标签，这三个城市面临失去联邦资助的风险。
 
-叶刘淑仪这里说到：如果海外港人取得外国国籍，3 年内未有返港，根据中国《国籍法》和《入境条例》，该人将失去居留权，即不属永久居民，因此也失去投票权。这种说法，实在可圈可点。我们都知道香港法律是容许拥有双重国籍的，除非市民自己向政府报告，否则政府是无权过问居民有没有外国国籍。
+在弗洛伊德(Floyd)死亡的视频开始流传后的几天里，白宫外的抗议活动变得非常暴力和激烈，特勤局特工被迫将第一家庭带到一个通常设计用于恐怖袭击的特殊掩体中。
 
-再者，叶刘淑仪口中的「根据中国《国籍法》」实际是在混淆市民视听。在一国两制下，香港特区的香港身份证是不受中国《国籍法》管辖的。可见『中共奴才』的奴才叶刘企图偷换概念、公然撒谎。叶刘淑仪曾经担任香港保安局局长，竟然连这基本常识都没有，令人怀疑她这么说是有政治目的。
+白宫没有立即回应各媒体对建造新围栏的评论请求。
 
-【港区国安法】实施后，不少抗争者迫于无奈要逃离香港，中共的政权一日在，他们都不敢回港。向来是中共走狗的叶刘淑仪现在抛出这说法，不排除有部分港官为了舔中共、捞政治资本而抛出的毒招、损招，目的是要恐吓已经和计划逃离香港的抗争者。
+美国全国各地的企业也纷纷用木板等其它加固保护方法迎接将要来临的选举夜大动荡。据Dr. Zev. Zelenko 10月30日上传的一则泄露出来的Zoom会议视频里显示，美国左翼极端分子正在策划在大选后制造暴乱，这些人来自不同组织阶层，包括“黑命贵”运动成员、地方政府官员、联邦政府雇员、情报界合同工等以及其他组织。他们有着严密的计划，具体时间、地点，还准备了地图。他们计划从11月4日开始，视频上有人说，“我们就是要制造社会危机，谁先开枪谁就赢了！一定要攻占大楼。”【1】
 
-以上观点仅代表笔者本人
+路德社节目在上周就曾指出，据可靠消息得知选举当晚会有2万多人在华盛顿计划制造暴力事件，白宫将建造围栏严阵以待。选举之夜新中国联邦电视台将在安全区内为世界各地及时播报最新消息并连线许多重磅嘉宾。今天各媒体纷纷报道，更加证实了路德社节目一贯的“站在未来说历史”。
 
-资料来源：立场新闻
+在人类文明迎来最为重要的一次总统大选之际，美国也将迎来建国以来最为动荡的选举之夜。All 50 News 的一则推文指出，国民卫队已经进驻了十二个城市。另一则来自推推党宣传小部长的推文中说道，由于估计选举夜后会有暴乱，市政府建议市民囤好两个星期的食物和紧急用品，同时在该市中心已经看到了国民警卫队的军车。【2】
 
-[https://www.thestandnews.com/politics/%E5%A2%83%E5%A4%96%E6%8A%95%E7%A5%A8-%E8%91%89%E5%8A%89%E6%B7%91%E5%84%80-%E6%B8%AF%E4%BA%BA%E5%85%A5%E7%B1%8D%E5%A4%96%E5%9C%8B-3-%E5%B9%B4%E4%B8%8D%E8%BF%94%E6%B8%AF%E5%A4%B1%E6%8A%95%E7%A5%A8%E6%AC%8A-%E6%B6%82%E8%AC%B9%E7%94%B3-%E6%B8%AF%E4%BA%BA%E7%84%A1%E8%B2%AC%E4%BB%BB%E9%80%9A%E7%9F%A5%E6%B8%AF%E5%BA%9C/](https://www.thestandnews.com/politics/%E5%A2%83%E5%A4%96%E6%8A%95%E7%A5%A8-%E8%91%89%E5%8A%89%E6%B7%91%E5%84%80-%E6%B8%AF%E4%BA%BA%E5%85%A5%E7%B1%8D%E5%A4%96%E5%9C%8B-3-%E5%B9%B4%E4%B8%8D%E8%BF%94%E6%B8%AF%E5%A4%B1%E6%8A%95%E7%A5%A8%E6%AC%8A-%E6%B6%82%E8%AC%B9%E7%94%B3-%E6%B8%AF%E4%BA%BA%E7%84%A1%E8%B2%AC%E4%BB%BB%E9%80%9A%E7%9F%A5%E6%B8%AF%E5%BA%9C/)
+相关链接：[https://www.newsweek.com/trump-white-house-across-us-fears-election-night-violence-protective-fences-boards-erected-1543911?utm\_source=pushnami&utm\_medium=Push\_Notifications&utm\_campaign=automatic&UTM=1604323894498](https://www.newsweek.com/trump-white-house-across-us-fears-election-night-violence-protective-fences-boards-erected-1543911?utm_source=pushnami&amp;utm_medium=Push_Notifications&amp;utm_campaign=automatic&amp;UTM=1604323894498)
 
-0
+[https://nypost.com/2020/11/02/white-house-building-non-scalable-fence-for-election-day-protection/?utm\_medium=SocialFlow&utm\_campaign=SocialFlow&utm\_source=NYPTwitter&\_\_twitter\_impression=true&\_\_twitter\_impression=true&\_\_twitter\_impression=true](https://nypost.com/2020/11/02/white-house-building-non-scalable-fence-for-election-day-protection/?utm_medium=SocialFlow&amp;utm_campaign=SocialFlow&amp;utm_source=NYPTwitter&amp;__twitter_impression=true&amp;__twitter_impression=true&amp;__twitter_impression=true)
+
+【1】[https://twitter.com/zev\_dr/status/1322256329285795843?s=20](https://twitter.com/zev_dr/status/1322256329285795843?s=20)
+
+【2】[https://twitter.com/tuituidang/status/1322965679759392771?s=20](https://twitter.com/tuituidang/status/1322965679759392771?s=20)
+
+2+

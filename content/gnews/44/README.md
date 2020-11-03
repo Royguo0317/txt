@@ -1,41 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发：白宫周一开始构筑围栏 为选举夜可能发生的暴力事件美各地均做部署
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/517781/)
+## 乔·拜登自曝要与中共继续深度勾兑
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/517873/)
 
-喜马拉雅联盟加拿大  坐看云起时
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02125442/Capture-1.jpg)图片来源：世界日报
+根据华盛顿自由灯塔(FreeBeacon)的报导，民主党总统候选人乔·拜登（Joe Biden）于10月22日在华文报纸《世界日报》(World Journal)上发表了一篇专栏文章，承诺要对中共采取更加合作的态度。
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02120408/%E5%A4%A7%E9%80%89%E5%A4%9C.jpg)图片来自 The Atlantic
-11月2日各大新闻媒体纷纷报道，白宫的工作人员周一开始在整个建筑群、椭圆区和拉斐特广场周围建造 “不可缩放 “的围栏。
+**乔·拜登承诺继续和中共合作**
 
-CNN报道说，计划中的围栏将封闭Ellipse和拉斐特广场(Lafayette Square)，沿着15街延伸到宪法大道( Constitution Avernue)，然后穿过17街。它将一直延伸到H街，穿过拉斐特(Lafayette)，然后再从15街下来。
+拜登在专栏中写道：“我们目前和中共的合作可以提高美国的竞争力，不只振兴美国国内的实力，更可以强化我们在海外的联盟合作和美国的领导地位。在符合美国利益的情况下，我们将在公共卫生和气候变化方面与中共合作。”
 
-美国全国广播公司（NBC News）周日还援引联邦执法部门的消息报道，250名国民警卫队队员已经进入待命状态。这些人将向特区大都会警察报告。
+拜登的这篇中文专栏文章的发表正值其家族财务涉嫌与某些政治寡头有关而受审查之际，其子亨特·拜登（Hunter Biden）和兄弟吉姆·拜登（Jim Biden）的公司从中共那里获得了高达数百万美元的收益。拜登的商业伙伴托尼·波布林斯基（Tony Bobulinski）表示，前副总统很清楚他的家人与中共的商业往来。
 
-这是为周二大选后的一波预期动荡做准备，可能发生的抗议和暴力事件引起了学者、企业主、执法人员等的警惕。
+拜登在专栏文章中批评唐纳德·川普（Donald Trump）总统，指控总统将冠状病毒称为“中共冠状病毒”，煽动了反华情绪。拜登还讨论了他对亚洲外交政策的看法，他强调与台湾的关系，但不排除在共同利益问题上与中共合作的可能性。
 
-全国各地的警察部门已经开始警告他们的警员做好部署准备，而纽约市一些高层建筑则聘请了武装警卫来保护。
+**中共操控的华文报社之一《世界日报》**** **
 
-今年美国各大城市经历了一个夏天的抗议，暴力和抢劫。波特兰市（Portland)与华盛顿州的西雅图市（Seattle, Wash.）、纽约市（New York City）都被司法部贴上了 “无政府主义管辖区 “的标签，这三个城市面临失去联邦资助的风险。
+世界日报由台湾新闻集团拥有，本来是反对中共的报刊，但近年来的报道内容已表明其已成为中共的海外华文宣传工具，该报的编辑们还参加了许多由中共主办的年度会议，并且在中共领事馆的施压下，此报社已停止刊登法轮功的广告。
 
-在弗洛伊德(Floyd)死亡的视频开始流传后的几天里，白宫外的抗议活动变得非常暴力和激烈，特勤局特工被迫将第一家庭带到一个通常设计用于恐怖袭击的特殊掩体中。
+与中共有联系的报纸发表的这篇专栏文章充分证明了中共在美国公民社会中的巨大影响力。总部位于华盛顿的智囊团詹姆斯敦基金会（Jamestown Foundation）在2001年的一份报告中发现，美国国内四家最有影响力的中文报纸中三家“是由中共直接或间接控制的”。同一份报告还发现，尽管《世界日报》不由中共势力控制，但它越来越容易被中共所施加的压力所左右。《世界日报》目前的日发行量超过40万本，其创立宗旨是“反共产主义”。但是根据胡佛研究所(Hoover Institution)的一份报告，该报社软化了其反中共的言论，并选择性地接受中共的指示。胡佛报告还指出，近年来，《世界日报》的报导范围发生了变化，并在许多领域变得更加亲中共，例如对有关中共南中国海军事化以及对台湾和香港问题的处理的报道方面明显亲共。据该报消息人士称，报纸的台湾老板对发展中国大陆市场很感兴趣，这也许能帮助解释该报立场的转变。
 
-白宫没有立即回应各媒体对建造新围栏的评论请求。
+该报纸编辑们近年来频繁参加由中共国务院海外事务办公室举办的全球华人媒体年度论坛，这也部分体现了该报被中共政府的日益认可。中共国务院海外事务办公室现隶属于中共统一战线工作部，而统战部是个跨部门的影响机构，其目的是改善中共国在海外的形象并影响外国机构。
 
-美国全国各地的企业也纷纷用木板等其它加固保护方法迎接将要来临的选举夜大动荡。据Dr. Zev. Zelenko 10月30日上传的一则泄露出来的Zoom会议视频里显示，美国左翼极端分子正在策划在大选后制造暴乱，这些人来自不同组织阶层，包括“黑命贵”运动成员、地方政府官员、联邦政府雇员、情报界合同工等以及其他组织。他们有着严密的计划，具体时间、地点，还准备了地图。他们计划从11月4日开始，视频上有人说，“我们就是要制造社会危机，谁先开枪谁就赢了！一定要攻占大楼。”【1】
+**译评:**
 
-路德社节目在上周就曾指出，据可靠消息得知选举当晚会有2万多人在华盛顿计划制造暴力事件，白宫将建造围栏严阵以待。选举之夜新中国联邦电视台将在安全区内为世界各地及时播报最新消息并连线许多重磅嘉宾。今天各媒体纷纷报道，更加证实了路德社节目一贯的“站在未来说历史”。
+宣传系统一直是中共的重中之重，也是洗脑国内百姓以及各国人民的最有效也是重要策略。靠着蓝金黄，不只纽约时报、华尔街日报等传统报社，还有 CNN、ABC、NBC、CBS等主流电视新闻，还有网路科技 Facebook、Twitter、Youtuber 一起联合大外宣，指鹿为马的方式来造势宣传，影响美国以及各国的舆论和选举。尽管如此，民众的眼睛是雪亮的，各国以及美国之中的沉默大多数已然觉醒，并且都勇敢地站出来表已行动表示意见。正义的支流已汇集成江海力量，中共的灭亡指日可待。
 
-在人类文明迎来最为重要的一次总统大选之际，美国也将迎来建国以来最为动荡的选举之夜。All 50 News 的一则推文指出，国民卫队已经进驻了十二个城市。另一则来自推推党宣传小部长的推文中说道，由于估计选举夜后会有暴乱，市政府建议市民囤好两个星期的食物和紧急用品，同时在该市中心已经看到了国民警卫队的军车。【2】
 
-相关链接：[https://www.newsweek.com/trump-white-house-across-us-fears-election-night-violence-protective-fences-boards-erected-1543911?utm\_source=pushnami&utm\_medium=Push\_Notifications&utm\_campaign=automatic&UTM=1604323894498](https://www.newsweek.com/trump-white-house-across-us-fears-election-night-violence-protective-fences-boards-erected-1543911?utm_source=pushnami&amp;utm_medium=Push_Notifications&amp;utm_campaign=automatic&amp;UTM=1604323894498)
 
-[https://nypost.com/2020/11/02/white-house-building-non-scalable-fence-for-election-day-protection/?utm\_medium=SocialFlow&utm\_campaign=SocialFlow&utm\_source=NYPTwitter&\_\_twitter\_impression=true&\_\_twitter\_impression=true&\_\_twitter\_impression=true](https://nypost.com/2020/11/02/white-house-building-non-scalable-fence-for-election-day-protection/?utm_medium=SocialFlow&amp;utm_campaign=SocialFlow&amp;utm_source=NYPTwitter&amp;__twitter_impression=true&amp;__twitter_impression=true&amp;__twitter_impression=true)
+[原文出处](https://freebeacon.com/2020-election/biden-pledges-to-collaborate-with-ccp-in-chinese-language-newspaper/)
 
-【1】[https://twitter.com/zev\_dr/status/1322256329285795843?s=20](https://twitter.com/zev_dr/status/1322256329285795843?s=20)
 
-【2】[https://twitter.com/tuituidang/status/1322965679759392771?s=20](https://twitter.com/tuituidang/status/1322965679759392771?s=20)
+翻译：william
+校对：Sarathecat
 
-2+
+
+0
