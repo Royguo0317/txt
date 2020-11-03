@@ -1,27 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅炸弹第六波之：拜登夫妻分居后的税务遗留问题
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/522302/)
+## 独家：亨特∙拜登与人联络，并被问及是否乔∙拜登也参加
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/522816/)
 
-*翻译/简评：Victor K｜校对：MikeHua｜审核：John Wallis｜Page：玄天生；*
+多伦多加喜农场 鹰嘴逗逗
 
-**简评：**
+校对上传 XM
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03103249/101.jpg)
+收件人：瓦德
 
-以下邮件是亨特拜登前妻凯瑟琳拜登（Kathleen Buhle）的律师（Rebekah Sullivan）写给亨特拜登的律师（Sarah Mancinelli）的。主要就亨特拜登夫妻分居后的税务遗留问题沟通。邮件时间为2018年11月27日，而邮件中讨论的税务问题是2015年的遗留问题。（据新闻报道，两人与2015年分居， 2017年正式离婚）
+主题：有关明日电汇
 
-![]()![](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/463d1b42-5100-4a2b-a5ff-7d438743e346.png?asset_id=b900f6ef-f089-4d63-9cf3-1d53bb7ad2a2&amp;img_etag=%22514aef6f68a7ae8b3e228c815fce0436%22&amp;size=1024)
+日期：2014年2月27日 上午7:55
 
-![]()![](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/2cf7ac24-18fb-4b46-b055-2e518f5c0e4a.png?asset_id=c66e0722-b8fb-456a-bec6-58c63716c866&amp;img_etag=%226e3f74a7d27f0ba8a8dbcc19879916c9%22&amp;size=2560)
+收件人：亨特∙拜登
 
-![]()![](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/0f1d1f25-13c5-438f-a59b-9d606a97ae8e.png?asset_id=411fbc6d-1ba9-431d-a2f4-f76603446fe9&amp;img_etag=%225fb32e637661a49d74d8ca4308a1b4aa%22&amp;size=1024)
+我们下午5:30的通话联络。
 
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+安好，
 
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+—————————
 
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/oq0RNu8iDoJpi/)】
+韦德·兰德利特
 
-[!\[\]()!\[\](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/d288ddc9-49ef-4598-9cc8-c487df77a030.jpg?asset_id=de90ac60-ba89-4373-9678-a3f55df1aa6b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/d288ddc9-49ef-4598-9cc8-c487df77a030.jpg?asset_id=de90ac60-ba89-4373-9678-a3f55df1aa6b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+布什街381号300室
+
+加利福尼亚州旧金山94104
+
+————————————————————————————————
+
+2014年2月27日上午8:09，“亨特拜登” 邮件写道：
+
+几点？
+
+兴业银行
+
+202.333.1880
+
+————————————————————————————————
+
+2014年2月26日晚上10：47，韦德·兰德利特写道：
+
+你跟你父亲一起来吗？无论怎样，我有个好建议给你，如果您有时间讨论。
+
+安好，
+
+—————————
+
+韦德·兰德利特
+
+布什街381号300室
+
+加利福尼亚州旧金山94104
 
 0

@@ -1,75 +1,100 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家！更多证据表明亨特·拜登如何将公司财产转为私有
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/522676/)
+## 亨特拜登邮件里的一个文件和一封邮件：叶简明卸任 &amp; 1776崛起的革命者（3月版）
+` 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hans/522797/)
 
-这两周亨特拜登的硬盘门事件越演越烈！牵扯出的各方大佬也层出不穷！今天我们就结合亨特拜登硬盘门中的两封电子邮件以及一份医疗账单来谈谈亨特拜登是如何索取费用的。在此之前，我们先简单解释一下以下三份文件中出现的相关人物之间的关系。罗伯特拜登(Robert Biden)也就是罗伯特亨特拜登(Robert Hunter Biden)，凯蒂道奇(Katie Dodge)是亨特拜登的私人秘书，梅西尔乔治(George.Mesires)是亨特拜登的律师，凯瑟琳(Kathleen)是亨特拜登的前妻，埃里克·史威林(Eric D. Schwerin)是亨特拜登的公司合作伙伴。
-
-从以下三份文件结合近期路德访谈以及其他GNEWS的爆料报道，我们可以看到一点亨特拜登的索钱手法。他通过私人助理和律师，给他的公司合伙人压力，想要把支票从公司转移到他自己的私人账户上，相信这也是他和几个合作伙伴关系闹僵的原因之一，难怪已经有几个他之前的公司合作伙伴出来向FBI等政府部门指认拜登家族的犯罪证据！自古以来邪不压正，相信这次美国司法部门结合我们的爆料革命爆出的各种犯罪材料，一定可以把相关拜登家族以及其他犯罪大佬们绳之以法！
-
-**英文原文：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03094700/14-Gnews-1-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03094710/14-Gnews-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03094724/14-Gnews-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03094814/14-Gnews-4.jpg)
-**中文翻译**：
-
-来自：罗伯特·拜登(Robert Biden) [email protected]
-日期：2019年3月5日上午7:16
-至：凯蒂·道奇(Katie Dodge) [email protected]
-
-之前辛迪(Cindy)告诉我们的从Venmo转帐到USAA帐户的这笔钱是做什么的？为什么我们仍然有来自WF的自动扣款？为什么我们还没有设置新的帐户？ 更清楚一点地说，您为什么还不按照我在一月份说明的那样来设置新的帐户系统？我确定这是我该死的烂摊子-但这就像在问埃里克为什么他可以拿到并持有着从我公司开出的$ 896K支票13个工作日！这怎么可能发生的？
-
-来自：罗伯特·拜登(Robert Biden) [email protected]
-主题：Fwd：
-日期：2019年3月5日上午6:47
-至：埃里克·史威林(Eric Schwerin) [email protected]
-抄送：George R. Mesires George.Mesires @ faegrebd.com，Edward Prewitt [\[email protected\]](/cdn-cgi/l/email-protection#2c49485b4d5e480249025c5e495b4558586c5b4940405f4a4d5e4b43024f4341)
-
-埃里克请立即存入支票。自动扣款已经退还给NFS了，我现在无法继续付赡养款给凯瑟琳(Kathleen)，如您所知，这将使我的生活变得更加复杂。请给我支出费用清单，之后我会立即把款项发送给您。请马上存入支票，我已经耐心等待了13天了。
-
-开始转发消息：
-
-来自：“梅西尔，乔治·R” &lt;[email protected]&gt;
-日期：2019年3月5日，上午5:52(美国东部标准时间8点52分)
-发送至：“埃里克·史威林(Eric D. Schwerin)” &lt;[email protected]&gt;
-抄送：“ R.Hunter Biden” [\[email protected\]](/cdn-cgi/l/email-protection#3e4c565c5a5d7e575d52514b5a105d5153)
-
-埃里克：
-
-今天早上，我重申了亨特的要求，要求您立即将支票存入Skaneateles银行帐户。您表示将评估您拒绝存款并把支票归还给(Hunter)亨特的权利。请尽快评估。
-
-我还指出，您应该提供所声称的支出费用清单。
-
-再说，我看不出有任何理由拒绝存入支票。如果您不同意，请指出在运营协议的何处有注明。
-
-乔治·R·梅斯
-
-合伙人
-
-[email protected]下载电子名片
-D：+1 312 356 5101 |手机：+1 312 972 4151
-Faegre Baker Daniels LLP
-311 S. Wacker Drive |套房4300 |美国伊利诺伊州芝加哥60606
-
-**参考资料：**
-
-
-
-> [EXCLUSIVE: Eric Schwerin emailed Hunter Biden on 1/16/2017 evidencing Hunter’s Phantom Income partly “borrowed” from RSB](https://gnews.org/518034/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03102907/Screen-Shot-2020-11-03-at-10.26.34-AM.png)
 
 
 
 
+## fastFT中国 ：中国的叶简明在欧洲中国华信能源放弃股权和职位2018年3月20日3.19.18\_FT\_Ye\_to\_relinquish\_stake\_and\_role\_in\_CEFC\_Europe\_CN
 
-> [亨特∙拜登合作伙伴埃里克∙史威林（Eric D. Schwerin）](https://gnews.org/zh-hans/450140/)
+James Kynge在伦敦 昨天
 
+中国的神秘的CEFC集团董事长和创始人 ，叶简明，根据CEFC网站上的公告，将放弃其在欧洲中国华信能源的股份和管理职位。
 
+叶先生被拘留的报道在这一公告前爆出，这已经使投资者，银行家和政府争先恐后地了解他的下落。
 
-https://gnews.org/ 514791/
+欧洲中国华信能源执行副总裁Marcela Hrda在公告中被引述说，“新股东”已经出现。
 
+“我们的项目将继续发展，我们期待与新股东合作。Hrda女士说：“我们看到欧洲中国华信能源的活动与不仅在中国而且在世界各地的活动之间有许多协同作用。”
 
+从新闻稿中还不清楚新股东是谁，或者该股东是否还将持有华信能源有限公司的股权，该公司网站上将华信能源有限公司描述为“上海最大的私营公司”。
 
-> [The Third Wave(Email 28 Declassification)：3/5/2019 Hunter Biden emailed Katie Dodge, his personal assistant regarding opening a new bank account](https://gnews.org/505582/)
+公告还补充说，欧洲中国华信能源还取消了捷克央行同意将其在布拉格J＆T金融公司的股份从9.9％增至50％的请求。
 
+欧洲中国华信能源表示，做出撤回该请求的决定，是“考虑到股权结构即将发生变化”。
 
+此前，备案文件显示，中国资产管理公司华融 已收购 中国华信能源子公司中有36％的股权，这可能使中国华信能源子公司在该公司购买俄罗斯石油公司Rosneft 90亿美元股份的计划中发挥作用。
+
+在中国保险监管机构没收保险公司安邦之后，国家控制的华融公司购买了华信金融的子公司股权，这是北京发起的将依赖风险融资进行大规模海外购买的私人公司绳之以法的运动的一部分。
+
+中国公司备案文件显示，中国华融资产管理公司购买了华信金融海南国际控股有限公司36％的股份，它是华信金融海信国际的子公司并且是在一月份接受中国媒体采访时表示的购买俄罗斯石油公司的股份被指定为的载体。
+
+[https://www.ft.com/content/6369377c-2b9c-11e8-9b4b-bc4b9f08f381](https://www.ft.com/content/6369377c-2b9c-11e8-9b4b-bc4b9f08f381)
+
+2018年3月20日 中国的叶简明在欧洲中国华信能源放弃股权和职位
+
+相关阅读：
+
+不透明中国石油集团使得前苏联集团明显的效果
+
+版权所有 金融时报有限公司2018。保留所有权利。
+
+尚未为本文启用评论。
+
+宣传内容
+
+## 2019年3月15日杂志：1776\_Revolutionaries\_on\_the\_Rise\_March\_Edition\_CN
+
+**发件人： ****1776 **[email protected] ![](https://lh4.googleusercontent.com/5k0aKkG4IFfaQItNyJxJKFE2nDAXujqsgf_ZEUmUfhPXSx2vlVo7-ipmw1PzKgfJ3H0_pwAnKxtOclqHmLGNDWc8UJBYtZPvkcv9DL3GAy45EDYmFTC0Qv_npiHQ2QmwPR5xEr4)
+
+**主题： **1776崛起的革命者：3月版
+
+**日期： **2019年3月15日上午6:07
+
+**收件人： **[email protected]
+
+在浏览器中查看此电子邮件
+
+Bravoscore这个新的在线平台可在SXSW上启动，该平台可帮助歌迷找到并审查各种表演艺术体验。
+
+做洪水和灾难地图绘制的 Dorothy 在《今日宾夕法尼亚州》杂志关于SXSW的文章被刊登
+
+WealthKeel,一种创新的财务计划方法,上了NBC10并提供一些很好的财务建议。
+
+Allevi3D生物技术打印机公司刚刚发布了他们的新产品，该产品可以 3D打印组织层。
+
+QuotaPath销售绩效平台刚刚宣布，我们筹集 了3.5美元 百万
+
+Pantheon是Drupal的托管平台，刚刚宣布 募集4000万美元
+
+Bansen Labs创造了可促进残疾人包容，获取和社交机会的技术，并被公认为 2018年Flatley挑战赛 的高科技获奖者
+
+超越护理 将您与负担得起的可靠护理员联系起来的人，赢得了水稻联盟快速推销比赛。
+
+RoadBotics 使用人工智能和智能手机帮助政府和工程公司通过客观的道路评估做出以数据为依据的决策。他们正在扩展到印度。
+
+连续第二年， 内容农场的迈克尔·霍尔斯坦（Michael Holstein）赢得了Real Screen “ Summit Showdown” 音高竞赛，这次赢得了A + E Network的一项开发协议，该协议开发了一项名为阿肯色州El Dorado的新电视节目。
+
+*版权所有©2019 1776，保留所有权利。*
+
+您选择接收我们的电子邮件。
+
+**我们的邮件地址是： **
+
+1776
+
+1608 Walnut Street
+
+Suite 1200
+
+Philadelphia，PA 19103
+
+将我们添加到您的地址簿
+
+是否要更改您接收这些电子邮件的方式？您可以 更新您的首选项 或 从此列表退订。
 
 0
