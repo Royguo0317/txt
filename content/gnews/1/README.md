@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【8】亨特·拜登硬盘第五波超劲爆情色照片再度来袭！与两年轻女子裸浴淫乱照片曝光！
-` GM01` [轉載自GNews](https://gnews.org/zh-hans/519294/)
+## 【9】亨特·拜登硬盘第五波超劲爆情色照片再度来袭！图中的非裔女孩是谁？
+` GM01` [轉載自GNews](https://gnews.org/zh-hans/519511/)
 
 （**您申明，您已年满18周岁或在您访问以下内容的司法管辖区已达到成人年龄，并完全有能力和资格签订本服务条款中规定的条款、条件、义务、申明、陈述和保证，并遵守和履行本服务条款。如果您未满18岁或法定成年年龄，请不要观看以下的任何内容**）
 
@@ -10,6 +10,6 @@
 
 其实硬盘中还有绝大部分的视频因涉及到极为敏感，极为不人道，极为残忍的画面无法播放，将随后再进行处理。
 
-连续十三天的爆料已更新到了第五波，将每30分钟爆出亨特拜登硬盘内更多淫乱照片
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02222534/WhatsApp-Image-2020-11-03-at-00.35.49.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02222547/WhatsApp-Image-2020-11-03-at-00.33.57.jpeg)
+连续十三天的爆料已更新到了第五波，将每30分钟爆出亨特拜登硬盘内更多淫乱照片。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02230303/WhatsApp-Image-2020-11-03-at-00.41.50.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02230309/WhatsApp-Image-2020-11-03-at-00.40.46.jpeg)
 0
