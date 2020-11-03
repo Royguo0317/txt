@@ -1,54 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 请国务院详查已完成登记的中南坑负责人私生子女及配偶等信息
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/518891/)
+## 国务卿蓬佩奥巡访亚洲五国 抨击中共恶行表达美国强硬立场
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/519248/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02220319/%E5%B0%81%E9%9D%A2-17.jpg)
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
-视频来源：[习近平:切实做好第七次全国人口普查工作 为高质量发展提供准确统计信息支持](https://news.sina.com.cn/c/xl/2020-11-02/doc-iiznctkc9114386.shtml)2020年11月02日 19:50 [央视](https://news.cctv.com/2020/11/02/ARTI5N67ftwL5PsZZTMssKGM201102.shtml)
-据[习近平:切实做好第七次全国人口普查工作 为高质量发展提供准确统计信息支持](https://news.sina.com.cn/c/xl/2020-11-02/doc-iiznctkc9114386.shtml)（2020年11月02日 19:50 [央视](https://news.cctv.com/2020/11/02/ARTI5N67ftwL5PsZZTMssKGM201102.shtml)）：［第七次全国人口普查登记工作正在全国开展。中共中央总书记、国家主席、中央军委主席习近平2日下午在北京中南海参加人口普查登记。］、［李克强、栗战书、汪洋、王沪宁、赵乐际、韩正、王岐山等在中南海分别参加了人口普查登记。］
+*喜马拉雅联盟加拿大农场 卢比肯*
 
-另据[中华人民共和国国务院令第　576　号](http://www.gov.cn/zhengce/content/2010-05/28/content_1317.htm)：
+*校对 Myway 上传 WJ*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02222017/5f97bf210d9ac.image_.jpg)图片来源：starherald.com
+据WJNews10月28日报道，美国国务卿蓬佩奥在上周出访了印度、斯里兰卡、马尔代夫、印尼和越南五国。
 
-《全国人口普查条例》已经2010年5月12日国务院第111次常务会议通过，现予公布，自2010年6月1日起施行。
-　　　　　　　　　　　　　　　　　　　　　　　　　 　总　　理　温家宝
+从周一访问印度的行程伊始,蓬佩奥就将矛头直接指向了中共。众所周知斯里兰卡及马尔代夫都在印度洋海域占据重要的战略地理位置，两国近年来因为一带一路欠下中国大笔债务，引起美国等西方国家的担忧。周三蓬佩奥就访问斯里兰卡首都科伦坡时提出该国与中共签署的协议为不公平侵犯当地主权的协议，并称中共为 “掠夺者 “。
 
-二○一○年五月二十四日
+随后蓬佩奥在马尔代夫首都马累谴责中共是在继续其无法无天的威胁行为，并宣布美国将首次在印度洋群岛开设大使馆。
 
-［第十一条　人口普查对象是指普查标准时点在中华人民共和国境内的自然人以及在中华人民共和国境外但未定居的中国公民，不包括在中华人民共和国境内短期停留的境外人员。
+周四蓬佩奥在世界上穆斯林人口占最多的国家印度尼西亚首都兼东盟总部雅加达发表讲话，称赞印尼为保护自己的主权和领土对中共的 “非法”主张所做出的强有力反击，并在关于宗教问题上指出，”无神论的中共曾试图说服世界，其在新疆对维吾尔族穆斯林的残害是必要的，同样地也曾试图说服印尼人对穆斯林同胞所受的遭遇视而不见，中共是宗教自由的最严重威胁”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02222500/https___s3-ap-northeast-1.amazonaws.com_psh-ex-ftnikkei-3937bb4_images_1_0_4_1_30281401-3-eng-GB_Cropped-1603950708AP_20303146758551-scaled.jpg)图片来源：asia.nikkei.com
+他驳斥了中国官员关于 “现代维吾尔人，正在享受着中共主导的所谓发展带来的利益，自愿放弃了对自己的民族、宗教和文化身份的认同”的说法，并敦促印尼人也拒绝这些说法。
 
-第十二条　人口普查主要调查人口和住户的基本情况，内容包括姓名、性别、年龄、民族、国籍、受教育程度、行业、职业、迁移流动、社会保障、婚姻、生育、死亡、住房情况等。］
+此前印尼外长雷特诺-马苏迪（Retno Marsudi）在与蓬佩奥的会晤中就南中国海的问题也达成了共识， 蓬佩奥表示，印尼对其纳图纳贝沙岛主权的积极保护是一个值得称道的例子，并期待着以新的方式共同合作，确保海上安全，保护世界上这条最繁忙的贸易路线。
 
-［第二十四条　人口普查对象应当按时提供人口普查所需的资料，如实回答相关问题，不得隐瞒有关情况，不得提供虚假信息，不得拒绝或者阻碍人口普查工作。］
+今年早些时候，川普政府澄清了其长期以来对南中国海政策，直接拒绝了中共有关在南中国海的几乎所有的海洋主张。
 
-鉴于中南坑主要负责人已经完成人口普查信息上报工作，现依据[中华人民共和国国务院令第　576　号](http://www.gov.cn/zhengce/content/2010-05/28/content_1317.htm)第三条——
+蓬佩奥在7月13日的一份声明中提到，美国现在认为中共在其国际公认水域之外的几乎所有海洋主张都是非法的，中共无视仲裁的裁决一直在努力执行其在南中国海的争议主张，导致近年来与越南、菲律宾和马来西亚等国发生严重争端。
 
-［第三条　人口普查工作按照全国统一领导、部门分工协作、地方分级负责、各方共同参与的原则组织实施。
+蓬佩奥在美方宣布主张时表示，中共不能对马来西亚、越南、文莱和印尼附近的海域提出非法要求。
 
-国务院统一领导全国人口普查工作，研究决定人口普查中的重大问题。地方各级人民政府按照国务院的统一规定和要求，领导本行政区域的人口普查工作。］
+周五蓬佩奥于越南结束了此次亚洲的巡回访问。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02222314/AGUOEAT4YJBYHDP2GIL56ZQ6G4.jpg)图片来源：WSIS 10
+评：在此次关系着人类命运走向的大选冲刺阶段，国务卿蓬佩奥的亚洲之行的重要性和意义可想可知，团结盟友，摆明立场，迫使与中共勾兑的邻国看清形势选边站。长期关注爆料革命的朋友们不妨脑洞下，随着美国大选的尘埃落定，对中共病毒的追责及对南中国海的强拆等行动措施是不是就在眼前了呢？
 
-特别向负责人口普查统一领导的中华人民共和国国务院并李克强总理报备中南坑相关负责人的非婚生子女及配偶相关情况，以备查实——
+参考链接：
+1． [Pompeo Stands Up to ‘Atheist CCP’ in Visit to Countries in Shadow of Chinese Threat](https://www.westernjournal.com/ap-pompeo-stands-atheist-ccp-visit-countries-shadow-chinese-threat/?utm_source=push&amp;utm_medium=westernjournalism&amp;utm_content=2020-10-31&amp;utm_campaign=pushtraffic)
 
-1. 中南坑负责人习近平：请核实浙江草媒信息技术有限公司 王荣朋与习近平的血缘关系，以免人口普查出现漏记、错记、张冠李戴；
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02220555/3-5.jpg)
-2、中南坑负责人王岐山：请核实其配偶姚明珊的国籍、在美国的社会安全号码、拥有中华人民共和国以外其他国籍的相关信息；
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02220615/9-1.jpg)
-请核实贯君与王岐山的血缘关系，以免出现人口普查漏记、错记、张冠李戴；
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02220636/10-2.jpg)
-请核实武汉病毒研究所王延轶与王岐山的血缘关系，以免出现人口普查漏记、错记、张冠李戴；
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02220655/7-2.jpg)
-请核实渤海华美王昕与王岐止血缘关系，以免出现人口普查漏记、错记、张冠李戴；
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02220717/8-2.jpg)
-请核实王岐山与其配偶姚明珊名下养女孙瑶与姚依林的血缘关系，以免出现人口普查漏记、错记、张冠李戴；
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02220910/%E5%AD%99%E7%91%B6.jpg)
-3、中南坑负责人韩正：请核实作为韩正女儿的1986年出生、曾持有护照号码G34760072的韩雪的个人信息、国籍信息、拥有的房产信息。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02220931/5-3.png)
-请核实1978年6月28日出生、曾经持有护照号码为E29652901的原上海市委机关事务管理局工作人员高素琴的个人信息、国籍信息、拥有房产信息；请核实2005年11月22日出生、曾持有护照号码E29907738的韩华曦与韩正的血缘关系，以免出现人口普查漏记、错记、张冠李戴；
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02220945/6-2.png)
-请核查其他已经接受人口普查的中南坑负责人李克强、栗战书、汪洋、王沪宁、赵乐际等人是否存在不挂在个人名下的私生子女信息，如有请详查这些私生子女的国籍信息、个人拥有房产信息，以免出现人口普查漏记、错记、张冠李戴。
-
-（文章内容仅代表作者个人观点）
+2. [Pompeo, Esper drive US anti-China message in India visit](http://2．	https://apnews.com/article/joe-biden-donald-trump-mike-pompeo-india-elections-c9490d8a78b3bcb21ff35d3c927cdce6)
 
 0
