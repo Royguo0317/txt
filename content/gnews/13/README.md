@@ -1,39 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅炸弹第六波之：哈萨克斯坦发展中国家职场的案例研究报告
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/522831/)
+## 重磅炸弹第六波之：猴岛液化天然气公司–液化科技饼状图
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/522141/)
 
-*翻译/简评：Johnwallis｜校对：John Wallis｜审核：John Wallis｜Page：玄天生；*
+*翻译：万人往｜校对：MikeHua｜审核：JohnWallis｜Page：玄天生；*
 
 **简评：**
 
-这是一封由丹尼尔·若迪（Daniel F. Runde，CSIS高级副总裁）写给亨特拜登关于哈萨克斯坦发展中国家职场的案例研究报告的信件。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/cb9e2620-275c-4fc3-8176-1db2db9c33cc.png?asset_id=95f95ed4-4142-4b61-b77b-17eadad605cd&amp;img_etag=%22b8e36b2a610df1d0dcfbdf743979411d%22&amp;size=3060)](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/cb9e2620-275c-4fc3-8176-1db2db9c33cc.png?asset_id=95f95ed4-4142-4b61-b77b-17eadad605cd&amp;img_etag=%22b8e36b2a610df1d0dcfbdf743979411d%22&amp;size=1024)
-
-![]()![](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/45defddf-63db-4ea5-9a9a-a7a7af4dbd9d.png?asset_id=baaad10e-25a9-4ff1-b7da-b6a24561482a&amp;img_etag=%228dc4624585cb81df456d9b5a72bbf049%22&amp;size=3484)
-
-![]()![](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/9e85827d-5787-4eb4-b728-bfbdaeb4b981.png?asset_id=c7911113-33ac-4398-abb7-c44ff5c55910&amp;img_etag=%22d240aae07fef2c42a9195a74f80c5569%22&amp;size=3270)
-
-![]()![](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/705f0d07-16d7-4ef5-aef1-324c69e24bfa.png?asset_id=2273420b-59f2-42c8-a329-b59eade40c4c&amp;img_etag=%22cc691c3c1a9250a06b029d25da2db264%22&amp;size=2560)
-
-![]()![](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/2f86b37a-aec5-4323-bf94-b1fbc1f18b3b.png?asset_id=6e556cc9-f719-46fd-8bf3-bf69b0c8a9cf&amp;img_etag=%224221ed110ce88b4fb1562e25370c2b2e%22&amp;size=3614)
-
-![]()![](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/efffb130-25ca-4394-9f41-1329ea33f99d.png?asset_id=9130ae1a-8759-48a2-a2eb-098441652af9&amp;img_etag=%2286005f174730b6c404bca76be71e73ac%22&amp;size=3611)
-
-![]()![](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/79aeec77-1b28-4dd8-95f2-1e5fd5b304b6.png?asset_id=f82d677c-7d34-426f-8440-0ec7ebbb058f&amp;img_etag=%22e586617c252974a6ed2002dc9021251a%22&amp;size=3413)
-
-![]()![](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/06fb1b3d-df03-45f8-a563-6154999dd331.png?asset_id=a8a7dab1-8b37-4825-b778-309ba46b6194&amp;img_etag=%222811b79a9dca04b73ad9b14558213c1d%22&amp;size=3604)
-
-![]()![](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/ca0629be-23d7-42b0-b57b-1db6f64e7ee4.png?asset_id=3479830c-e094-48bf-9b12-b6e38d3a2bff&amp;img_etag=%225458f01c7ee39f9a9610f6b70e0c9dc7%22&amp;size=3602)
+2017年11月17日，猴岛液化天然气公司（Monkey Island LNG）董事长兼首席执行官格雷格·迈克尔斯（Greg Michaels）、董功文、严默文（Mervyn Yan）、鲍嘉琪、亨特·拜登（Hunter Biden）和吉姆拜登（Jim Biden）之间电子邮件沟通，邮件主题为“液化科技饼状图”。
+[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7cf60866-4d58-4f0e-abbe-1024fd6bc36a.png?asset_id=edd1358e-12ea-48e3-8b80-5b2daee7abf0&amp;img_etag=%22f75569f9109e7d45642c0c8583f73666%22&amp;size=3200)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7cf60866-4d58-4f0e-abbe-1024fd6bc36a.png?asset_id=edd1358e-12ea-48e3-8b80-5b2daee7abf0&amp;img_etag=%22f75569f9109e7d45642c0c8583f73666%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/80a02f61-b4f9-4652-b02a-3e0381e6afd9.png?asset_id=7e10ab2e-094a-450f-9491-6695287b20d0&amp;img_etag=%22c99793434693a1eac0a5b42e0166e813%22&amp;size=2560)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/80a02f61-b4f9-4652-b02a-3e0381e6afd9.png?asset_id=7e10ab2e-094a-450f-9491-6695287b20d0&amp;img_etag=%22c99793434693a1eac0a5b42e0166e813%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/0065d205-8aa2-4008-aeb6-3bc960ba1ea0.png?asset_id=8d7589ab-b6c0-4fea-9a07-e1317166ad11&amp;img_etag=%2224433158d7dc5b3698e1dfcd5f98824c%22&amp;size=2886)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/0065d205-8aa2-4008-aeb6-3bc960ba1ea0.png?asset_id=8d7589ab-b6c0-4fea-9a07-e1317166ad11&amp;img_etag=%2224433158d7dc5b3698e1dfcd5f98824c%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/d09fcfb7-fa17-452f-b117-b218962131e1.png?asset_id=16a6c111-7a65-4631-827d-a5d6d82b6f32&amp;img_etag=%22a79548df66b4220caec34d0b75ec9419%22&amp;size=2560)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/d09fcfb7-fa17-452f-b117-b218962131e1.png?asset_id=16a6c111-7a65-4631-827d-a5d6d82b6f32&amp;img_etag=%22a79548df66b4220caec34d0b75ec9419%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/518320ac-cd9b-44af-84ff-f7937346d5b6.png?asset_id=50591412-16cc-4eb0-b2c3-fb72c56bdf60&amp;img_etag=%2223c8931b3c78b726cc62443f18aeb1e2%22&amp;size=3212)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/518320ac-cd9b-44af-84ff-f7937346d5b6.png?asset_id=50591412-16cc-4eb0-b2c3-fb72c56bdf60&amp;img_etag=%2223c8931b3c78b726cc62443f18aeb1e2%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7ea94840-3a88-4c27-a143-0ccb883ae083.png?asset_id=e4ba059f-c455-4412-89b7-768919dad055&amp;img_etag=%2231c03301237cee47ac6cc3799d2202a9%22&amp;size=3272)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7ea94840-3a88-4c27-a143-0ccb883ae083.png?asset_id=e4ba059f-c455-4412-89b7-768919dad055&amp;img_etag=%2231c03301237cee47ac6cc3799d2202a9%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/6bfbbc1f-036f-4c63-a311-72819d0239a1.png?asset_id=3c2096dd-3b06-4448-80d5-c11547870ddd&amp;img_etag=%225166165d7242a2f5b0f50f143ea023f5%22&amp;size=3310)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/6bfbbc1f-036f-4c63-a311-72819d0239a1.png?asset_id=3c2096dd-3b06-4448-80d5-c11547870ddd&amp;img_etag=%225166165d7242a2f5b0f50f143ea023f5%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7263ba0d-03ab-4f1c-aa72-803734b2a5ed.png?asset_id=e00c06d5-6636-45f4-9194-16e66353aa62&amp;img_etag=%225adec6f74a291b2938593a1c48f68e18%22&amp;size=3328)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7263ba0d-03ab-4f1c-aa72-803734b2a5ed.png?asset_id=e00c06d5-6636-45f4-9194-16e66353aa62&amp;img_etag=%225adec6f74a291b2938593a1c48f68e18%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/f43e09f2-4c41-4bb0-bd0c-8c91619f3fc8.png?asset_id=7618caf1-fe62-41de-a334-9957103f06b2&amp;img_etag=%22f80cfc8ef6bc84208c1e23fab3dadc91%22&amp;size=3342)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/f43e09f2-4c41-4bb0-bd0c-8c91619f3fc8.png?asset_id=7618caf1-fe62-41de-a334-9957103f06b2&amp;img_etag=%22f80cfc8ef6bc84208c1e23fab3dadc91%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/51a14734-cd1a-4236-9e98-8c2d373d0c7b.png?asset_id=9efc8407-0089-45c8-ac55-6542a791e436&amp;img_etag=%2210b88ea1124b58840de78ddfebc3a701%22&amp;size=2560)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/51a14734-cd1a-4236-9e98-8c2d373d0c7b.png?asset_id=9efc8407-0089-45c8-ac55-6542a791e436&amp;img_etag=%2210b88ea1124b58840de78ddfebc3a701%22&amp;size=1024)
+编辑：[【喜马拉雅战鹰团】](https://spark.adobe.com/page/Q4r6941HyJTEb/)-点击Adobe Spark版
 
 [点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
 [点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/jAArU5hnxAsbJ/)】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/1e1f35f5-e9db-467b-8c1c-3e99e6024ecd.jpg?asset_id=411ff867-84ce-453e-b4b1-d4e07326d446&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/1e1f35f5-e9db-467b-8c1c-3e99e6024ecd.jpg?asset_id=411ff867-84ce-453e-b4b1-d4e07326d446&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
-2+
+[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/639e2b2b-d173-446c-9ff7-e1e33c73b8d8.jpg?asset_id=6dc5cc52-a5c5-4f67-ac6b-f8c1fe4a2710&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/639e2b2b-d173-446c-9ff7-e1e33c73b8d8.jpg?asset_id=6dc5cc52-a5c5-4f67-ac6b-f8c1fe4a2710&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+0

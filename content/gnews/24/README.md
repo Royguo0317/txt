@@ -1,31 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】向今天致敬
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/522617/)
+## 重磅炸弹第六波之：拜登夫妻分居后的税务遗留问题
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/522302/)
 
-作者：香草山写作组  木白
+*翻译/简评：Victor K｜校对：MikeHua｜审核：John Wallis｜Page：玄天生；*
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/01003406/WhatsApp-Image-2020-11-01-at-11.33.40.jpeg)
+**简评：**
 
+以下邮件是亨特拜登前妻凯瑟琳拜登（Kathleen Buhle）的律师（Rebekah Sullivan）写给亨特拜登的律师（Sarah Mancinelli）的。主要就亨特拜登夫妻分居后的税务遗留问题沟通。邮件时间为2018年11月27日，而邮件中讨论的税务问题是2015年的遗留问题。（据新闻报道，两人与2015年分居， 2017年正式离婚）
 
+![]()![](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/463d1b42-5100-4a2b-a5ff-7d438743e346.png?asset_id=b900f6ef-f089-4d63-9cf3-1d53bb7ad2a2&amp;img_etag=%22514aef6f68a7ae8b3e228c815fce0436%22&amp;size=1024)
 
+![]()![](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/2cf7ac24-18fb-4b46-b055-2e518f5c0e4a.png?asset_id=c66e0722-b8fb-456a-bec6-58c63716c866&amp;img_etag=%226e3f74a7d27f0ba8a8dbcc19879916c9%22&amp;size=2560)
 
+![]()![](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/0f1d1f25-13c5-438f-a59b-9d606a97ae8e.png?asset_id=411fbc6d-1ba9-431d-a2f4-f76603446fe9&amp;img_etag=%225fb32e637661a49d74d8ca4308a1b4aa%22&amp;size=1024)
 
-一生中重要的日子总有那么一两天。
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-究竟是它找上你，还是你偶遇它。这不重要。重要的是恰好花好月圆，夜黑天高下会有那么一丝喜悦中的惊险。
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-你看见的那张脸，先是血肉，然后是骨骼，最后它就变成你想要的样子。因为人事是相通的，尤其是关于美的。
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/oq0RNu8iDoJpi/)】
 
-生命的奇迹，有着无数春天的惊喜，才有了此刻的人类。这是上帝的礼物。而今天，这份礼物正被我们缓缓打开。
-
-2020年11月3日
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03095119/210-%E3%80%90%E9%A6%99%E8%8D%89%E8%AF%97%E8%AF%8D%E6%B1%87%E3%80%91%E5%90%91%E4%BB%8A%E5%A4%A9%E8%87%B4%E6%95%AC.jpg)
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+[!\[\]()!\[\](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/d288ddc9-49ef-4598-9cc8-c487df77a030.jpg?asset_id=de90ac60-ba89-4373-9678-a3f55df1aa6b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/d288ddc9-49ef-4598-9cc8-c487df77a030.jpg?asset_id=de90ac60-ba89-4373-9678-a3f55df1aa6b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0
