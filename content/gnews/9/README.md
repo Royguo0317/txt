@@ -1,8 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Metabiota
-` JP007` [轉載自GNews](https://gnews.org/zh-hans/523868/)
+## “美好的仗我打了，当跑的路我跑了” 求上天赐福
+` 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hans/524032/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03130727/Metabiota.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03130734/Metabiota-E1.png)
+**祈祷者： Faller**
+
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03143243/Picture1-3.png)
+
+
+
+
+#### 祈祷：
+
+我们祖宗的神，主宰宇宙万物的上天。感谢你让我认识你的全能和伟大，信实和爱。你教导我们说：“你要吃劳碌得来的，你就享福，凡事顺利”[\[i\]](//5E34D260-79A2-44F6-B7F3-0AD3E3488937#_edn1)。我领受了。是的，一切的假骗黑抢是你厌恶的。神啊，你怜悯软弱的为奴的。你曾经带领以色列人出为奴之地埃及，你也再次听见你儿女的呼求：你的神州儿女不愿为奴。不管是100年，30年，3年，还是13天24小时，你看见你的儿女为自由而拼搏。就像使徒保罗所说“那美好的仗，我已经打过了，当跑的路我已经跑尽了，所信的道我已经守住了”[\[ii\]](//5E34D260-79A2-44F6-B7F3-0AD3E3488937#_edn2)。你以天光显现见证你一直庇护真实、公义与良善，告诉我们你一直在前头亲自带领走义路的人。
+
+今日，美国大选，求你赐福华夏儿女，求你赐福美国，求你赐福这世界！你亲自成就你的话语，这些都是真的!
+
+* * *
+
+[\[i\]](//5E34D260-79A2-44F6-B7F3-0AD3E3488937#_ednref1) 圣经 诗篇 128：2
+
+[\[ii\]](//5E34D260-79A2-44F6-B7F3-0AD3E3488937#_ednref2) 圣经 提摩太后书 4：7
+
 0

@@ -1,18 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅炸弹第六波之：猴岛液化天然气公司–液化科技饼状图
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/522141/)
+## 为什么星相圈、能量圈皆赌拜登输？
+` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/523124/)
 
-*翻译：万人往｜校对：MikeHua｜审核：JohnWallis｜Page：玄天生；*
+作者：为子孙爱七哥农场 CG、文喜
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03123634/%E6%98%9F%E8%B1%A1.jpg)
+自从郭先生领导的爆料革命开启13天媒体大战以来、美国总统候选人民主党拜登（Joe Biden）的赔率再次降低，支持共和党川普（Donald Trump）的博彩玩家明显增加。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03121927/1-15.jpg)
+13天大战之前、博彩公司曾经将拜登2020年美国大选赔率从副总统辩论后的1/2降至4/9，他赢得大选的机会从66.7％增加到69.2％。对应把川普2020年美国大选赔率从9/5变为21/10，意味着川普赢得大选的机会从34.5％降至32.3％。
 
-**简评：**
+也许是受到13天大战的影响，博彩玩家则将59％的赌注押在了川普身上，相反拜登的2020年美国大选赌注仅占35％。
 
-2017年11月17日，猴岛液化天然气公司（Monkey Island LNG）董事长兼首席执行官格雷格·迈克尔斯（Greg Michaels）、董功文、严默文（Mervyn Yan）、鲍嘉琪、亨特·拜登（Hunter Biden）和吉姆拜登（Jim Biden）之间电子邮件沟通，邮件主题为“液化科技饼状图”。
-[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7cf60866-4d58-4f0e-abbe-1024fd6bc36a.png?asset_id=edd1358e-12ea-48e3-8b80-5b2daee7abf0&amp;img_etag=%22f75569f9109e7d45642c0c8583f73666%22&amp;size=3200)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7cf60866-4d58-4f0e-abbe-1024fd6bc36a.png?asset_id=edd1358e-12ea-48e3-8b80-5b2daee7abf0&amp;img_etag=%22f75569f9109e7d45642c0c8583f73666%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/80a02f61-b4f9-4652-b02a-3e0381e6afd9.png?asset_id=7e10ab2e-094a-450f-9491-6695287b20d0&amp;img_etag=%22c99793434693a1eac0a5b42e0166e813%22&amp;size=2560)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/80a02f61-b4f9-4652-b02a-3e0381e6afd9.png?asset_id=7e10ab2e-094a-450f-9491-6695287b20d0&amp;img_etag=%22c99793434693a1eac0a5b42e0166e813%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/0065d205-8aa2-4008-aeb6-3bc960ba1ea0.png?asset_id=8d7589ab-b6c0-4fea-9a07-e1317166ad11&amp;img_etag=%2224433158d7dc5b3698e1dfcd5f98824c%22&amp;size=2886)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/0065d205-8aa2-4008-aeb6-3bc960ba1ea0.png?asset_id=8d7589ab-b6c0-4fea-9a07-e1317166ad11&amp;img_etag=%2224433158d7dc5b3698e1dfcd5f98824c%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/d09fcfb7-fa17-452f-b117-b218962131e1.png?asset_id=16a6c111-7a65-4631-827d-a5d6d82b6f32&amp;img_etag=%22a79548df66b4220caec34d0b75ec9419%22&amp;size=2560)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/d09fcfb7-fa17-452f-b117-b218962131e1.png?asset_id=16a6c111-7a65-4631-827d-a5d6d82b6f32&amp;img_etag=%22a79548df66b4220caec34d0b75ec9419%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/518320ac-cd9b-44af-84ff-f7937346d5b6.png?asset_id=50591412-16cc-4eb0-b2c3-fb72c56bdf60&amp;img_etag=%2223c8931b3c78b726cc62443f18aeb1e2%22&amp;size=3212)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/518320ac-cd9b-44af-84ff-f7937346d5b6.png?asset_id=50591412-16cc-4eb0-b2c3-fb72c56bdf60&amp;img_etag=%2223c8931b3c78b726cc62443f18aeb1e2%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7ea94840-3a88-4c27-a143-0ccb883ae083.png?asset_id=e4ba059f-c455-4412-89b7-768919dad055&amp;img_etag=%2231c03301237cee47ac6cc3799d2202a9%22&amp;size=3272)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7ea94840-3a88-4c27-a143-0ccb883ae083.png?asset_id=e4ba059f-c455-4412-89b7-768919dad055&amp;img_etag=%2231c03301237cee47ac6cc3799d2202a9%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/6bfbbc1f-036f-4c63-a311-72819d0239a1.png?asset_id=3c2096dd-3b06-4448-80d5-c11547870ddd&amp;img_etag=%225166165d7242a2f5b0f50f143ea023f5%22&amp;size=3310)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/6bfbbc1f-036f-4c63-a311-72819d0239a1.png?asset_id=3c2096dd-3b06-4448-80d5-c11547870ddd&amp;img_etag=%225166165d7242a2f5b0f50f143ea023f5%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7263ba0d-03ab-4f1c-aa72-803734b2a5ed.png?asset_id=e00c06d5-6636-45f4-9194-16e66353aa62&amp;img_etag=%225adec6f74a291b2938593a1c48f68e18%22&amp;size=3328)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7263ba0d-03ab-4f1c-aa72-803734b2a5ed.png?asset_id=e00c06d5-6636-45f4-9194-16e66353aa62&amp;img_etag=%225adec6f74a291b2938593a1c48f68e18%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/f43e09f2-4c41-4bb0-bd0c-8c91619f3fc8.png?asset_id=7618caf1-fe62-41de-a334-9957103f06b2&amp;img_etag=%22f80cfc8ef6bc84208c1e23fab3dadc91%22&amp;size=3342)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/f43e09f2-4c41-4bb0-bd0c-8c91619f3fc8.png?asset_id=7618caf1-fe62-41de-a334-9957103f06b2&amp;img_etag=%22f80cfc8ef6bc84208c1e23fab3dadc91%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/51a14734-cd1a-4236-9e98-8c2d373d0c7b.png?asset_id=9efc8407-0089-45c8-ac55-6542a791e436&amp;img_etag=%2210b88ea1124b58840de78ddfebc3a701%22&amp;size=2560)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/51a14734-cd1a-4236-9e98-8c2d373d0c7b.png?asset_id=9efc8407-0089-45c8-ac55-6542a791e436&amp;img_etag=%2210b88ea1124b58840de78ddfebc3a701%22&amp;size=1024)
-编辑：[【喜马拉雅战鹰团】](https://spark.adobe.com/page/Q4r6941HyJTEb/)-点击Adobe Spark版
+对于欧美政治选举来说博彩玩家的赌注往往比所谓“民调”准确，许多博彩玩家本身就是热衷于星相能量分析的占星师，他们对自己所支持的有关政治博彩人物的胜算，一般都只是相信自己的判断而不迷信所谓专家、更不相信被操作的媒体机构公布的“民调”。
 
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/639e2b2b-d173-446c-9ff7-e1e33c73b8d8.jpg?asset_id=6dc5cc52-a5c5-4f67-ac6b-f8c1fe4a2710&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/639e2b2b-d173-446c-9ff7-e1e33c73b8d8.jpg?asset_id=6dc5cc52-a5c5-4f67-ac6b-f8c1fe4a2710&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-0
+我们首先来看**川普、拜登的星**相——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03121949/c89ed1cf-cf45-43d1-8dc7-ffe88c1b2377.jpg)
+**左图：**
+
+川普的星相排列，双轮系统，内轮（inner wheel）和外轮（outer wheel），内轮是生辰的星相排列，外轮是大选前的日子10月29日。他的星相是比较符合大选前的能量场，川普的星相内轮外轮的对比，火星、木星代表一种成功；太阳天王星的组合就是会让民众兴奋。川普的生日星辰就是幸运的，他不是一般的人。
+
+**右图：**
+
+拜登的星相排列在两侧，土星、海王星，没有连在一起，显现出来是一种被操纵的模式。中轨的两侧，冥王星，代表阴间，说明他的疾病在大选前可能会对他的选情有不好的影响。他现在有一种老年失忆症的症状，也表现得很明显。
+
+除了这种对川普和拜登两个人星相排列与大选前的能量场的分析以外，关注**生命频率两性能量**的玩家还通过对比川普和拜登两个家族的能量提前看到拜登大选必然失败的下场。
+
+川普是幸运生日，和三任妻子的生命频率都是相宜的、产生聚核能量，为家庭和后代带来幸福。同时川普的大儿子、二儿子的生日也和各自的夫人是相宜的生命频率，给整个家族带来兴旺能量。相反拜登的生日生辰却很不幸、两次婚姻都遭遇不相宜的生命频率（撞星）而产生可怕的漏核能量，青年丧妻女，晚年丧长子。而且拜登的两个儿子和儿媳妇也都撞星，家族充满漏核能量，导致拜登根本不是川普的对手。
+
+再对比两位竞选搭档的能量：彭斯和夫人生命频率相宜产生聚核能量，相反Kamala Harris（贺锦丽 ）和老公生命频率不相宜、和香港特首林郑月娥和老公一样是撞星夫妻、产生漏核能量。
+
+为什么星相圈能量圈皆赌拜登输？还可以用**古老中国的五行术**来进行推演和验证，示意图如下：
+
+**五行相生相克能量关系**：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03122042/1111__1.jpg)
+**总统竞选人夫妻能量关系 ：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03122205/1111__1_3.jpg)
+**副总统竞选人夫妻能量关系：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03122340/1111__1_.jpg)
+**总统竞选人儿子儿媳能量关系：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03122400/1111__1_2.jpg)
+写到这，想起看到的几句话，借用一下。 **思想证明思想是哲学，宗教证明宗教是信仰，事实证明事实是科学 。**
+
+感谢郭先生发起爆料革命提前终结ccp构建的邪恶能量。
+
+大道至简，太阳月亮两性频率决定宇宙生命能量。
+
+万事万物唯有果不虚。 尊天道，不要乱啪啪！
+
+**更多精彩资讯请关注：**
+
+- [为子孙爱七哥农场官方推特](https://twitter.com/wzsaqg)
+- [为子孙爱七哥农场官方GTV号](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
+- [欢迎加入农场discord官方群](https://discord.gg/mZG9MtM)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20123101/%E5%86%9C%E5%9C%BA%E5%B9%BF%E5%91%8Av7-3.jpg)
+1+
