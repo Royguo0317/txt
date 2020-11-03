@@ -1,41 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发：白宫周一开始构筑围栏 为选举夜可能发生的暴力事件美各地均做部署
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/517781/)
+## 【香港要闻】令人感动：7人被控8.31暴动罪名不成立【跟踪报导】
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/517845/)
 
-喜马拉雅联盟加拿大  坐看云起时
+收集：文卡西欧
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02120408/%E5%A4%A7%E9%80%89%E5%A4%9C.jpg)图片来自 The Atlantic
-11月2日各大新闻媒体纷纷报道，白宫的工作人员周一开始在整个建筑群、椭圆区和拉斐特广场周围建造 “不可缩放 “的围栏。
+编撰：点苍山
 
-CNN报道说，计划中的围栏将封闭Ellipse和拉斐特广场(Lafayette Square)，沿着15街延伸到宪法大道( Constitution Avernue)，然后穿过17街。它将一直延伸到H街，穿过拉斐特(Lafayette)，然后再从15街下来。
+审核：MY
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02122437/jpg.jpg)图片：香港媒体
+据立场新闻10.31讯“阵地社工”成员陈虹秀等8人，被控去年8.31在湾仔参与暴动案，法官沉小民早前裁定陈虹秀的暴动罪表证不成立，当庭释放，剩下7名被告继续处理，今天予以裁决。法官裁定7人暴动罪不成立，第四被告另被控的一项罪名：在公共地方管有攻击性武器也不成立。案件开庭前，多名被告亲友到场旁听，不少人于庭外与被告相拥安慰，有被告与十多名亲友围圈祈祷，期间有人双眼通红，眼角泛泪，场面令人伤感。有被告进入法庭等候裁决时有亲友大叫“加油”。
 
-美国全国广播公司（NBC News）周日还援引联邦执法部门的消息报道，250名国民警卫队队员已经进入待命状态。这些人将向特区大都会警察报告。
+法官宣布各被告罪名不成立一刻，庭内随即掌声雷动。散庭后有被告难掩激动，失声痛哭，有被告与亲友及律师相拥致谢，众人均眼泛泪光，场面感人，期间有人指“这个才是正常结果”，也有人指“好像突然发红包一样”，还有亲友向罪名不成立的被告表示“你明天可以准时上班啦”，对方回答“是啊，可以上班了”如释重负。
 
-这是为周二大选后的一波预期动荡做准备，可能发生的抗议和暴力事件引起了学者、企业主、执法人员等的警惕。
+案件原有8名被告，依次为余德颖（24岁自雇人士）、赖姵岐（23岁学生）、钟嘉能（27岁电脑程序员）、龚梓舜（23岁厨师）、陈虹秀（43岁社工）、简家康（19岁无业）、莫嘉晴（24岁）、梁雁彬（25岁无业）。控罪内容经修订后，他们被控于去年8.31在湾仔轩尼诗和卢押道一带，连同他人参与暴动。龚另被控一项在公众地方管有攻击性武器罪。指他同日在轩尼诗道117至123号外的公众地方管有一支伸缩棍及一颗疑似汽油弹。当中陈虹秀早前获裁定表证不成立，当庭获释，控罪撤销。
 
-全国各地的警察部门已经开始警告他们的警员做好部署准备，而纽约市一些高层建筑则聘请了武装警卫来保护。
+战友点评
 
-今年美国各大城市经历了一个夏天的抗议，暴力和抢劫。波特兰市（Portland)与华盛顿州的西雅图市（Seattle, Wash.）、纽约市（New York City）都被司法部贴上了 “无政府主义管辖区 “的标签，这三个城市面临失去联邦资助的风险。
+这是香港法治的正常程序得以维护和实施的结果。香港刑事审讯程序规定，法官根据控方（警方）提供的开案陈词和证据包括证物、证人作供，辩方有权反驳和挑战相关证物和供词，当所有控方证人作供后举证程序结束。如果辩方能推翻控方证据可信性，不足以令被告入罪，便是“表证不成立”，被告毋需答辩，当庭获释。
 
-在弗洛伊德(Floyd)死亡的视频开始流传后的几天里，白宫外的抗议活动变得非常暴力和激烈，特勤局特工被迫将第一家庭带到一个通常设计用于恐怖袭击的特殊掩体中。
+看过去年香港反送中运动的所有人都知道真相是香港人民为表达的合理诉求经过审批和平上街游行，根本不是中共在媒体和国内颠倒黑白的暴动，那些身上佩戴特定标志物，如荧光带，耳麦等等，混入游行队伍的黑社会和黑警才是制造事端嫁祸港人的罪魁。香港司法机制正常运转的情况下，就不会让中共制造的冤假错案得逞。
 
-白宫没有立即回应各媒体对建造新围栏的评论请求。
+以上观点仅代表笔者本人
 
-美国全国各地的企业也纷纷用木板等其它加固保护方法迎接将要来临的选举夜大动荡。据Dr. Zev. Zelenko 10月30日上传的一则泄露出来的Zoom会议视频里显示，美国左翼极端分子正在策划在大选后制造暴乱，这些人来自不同组织阶层，包括“黑命贵”运动成员、地方政府官员、联邦政府雇员、情报界合同工等以及其他组织。他们有着严密的计划，具体时间、地点，还准备了地图。他们计划从11月4日开始，视频上有人说，“我们就是要制造社会危机，谁先开枪谁就赢了！一定要攻占大楼。”【1】
+新闻来源：立场新闻
 
-路德社节目在上周就曾指出，据可靠消息得知选举当晚会有2万多人在华盛顿计划制造暴力事件，白宫将建造围栏严阵以待。选举之夜新中国联邦电视台将在安全区内为世界各地及时播报最新消息并连线许多重磅嘉宾。今天各媒体纷纷报道，更加证实了路德社节目一贯的“站在未来说历史”。
+[https://www.thestandnews.com/court/%E8%A2%AB%E6%8E%A7-8-31-%E7%81%A3%E4%BB%94%E6%9A%B4%E5%8B%95-7-%E8%A2%AB%E5%91%8A%E5%85%A8%E9%83%A8%E7%BD%AA%E5%90%8D%E4%B8%8D%E6%88%90%E7%AB%8B/?fbclid=IwAR1zr-o-m0WfZFiO0bthxIOp6dCWb\_1dOu6H75unls-tsiPwkGsjj5DuvjA](https://www.thestandnews.com/court/%E8%A2%AB%E6%8E%A7-8-31-%E7%81%A3%E4%BB%94%E6%9A%B4%E5%8B%95-7-%E8%A2%AB%E5%91%8A%E5%85%A8%E9%83%A8%E7%BD%AA%E5%90%8D%E4%B8%8D%E6%88%90%E7%AB%8B/?fbclid=IwAR1zr-o-m0WfZFiO0bthxIOp6dCWb_1dOu6H75unls-tsiPwkGsjj5DuvjA)
 
-在人类文明迎来最为重要的一次总统大选之际，美国也将迎来建国以来最为动荡的选举之夜。All 50 News 的一则推文指出，国民卫队已经进驻了十二个城市。另一则来自推推党宣传小部长的推文中说道，由于估计选举夜后会有暴乱，市政府建议市民囤好两个星期的食物和紧急用品，同时在该市中心已经看到了国民警卫队的军车。【2】
-
-相关链接：[https://www.newsweek.com/trump-white-house-across-us-fears-election-night-violence-protective-fences-boards-erected-1543911?utm\_source=pushnami&utm\_medium=Push\_Notifications&utm\_campaign=automatic&UTM=1604323894498](https://www.newsweek.com/trump-white-house-across-us-fears-election-night-violence-protective-fences-boards-erected-1543911?utm_source=pushnami&amp;utm_medium=Push_Notifications&amp;utm_campaign=automatic&amp;UTM=1604323894498)
-
-[https://nypost.com/2020/11/02/white-house-building-non-scalable-fence-for-election-day-protection/?utm\_medium=SocialFlow&utm\_campaign=SocialFlow&utm\_source=NYPTwitter&\_\_twitter\_impression=true&\_\_twitter\_impression=true&\_\_twitter\_impression=true](https://nypost.com/2020/11/02/white-house-building-non-scalable-fence-for-election-day-protection/?utm_medium=SocialFlow&amp;utm_campaign=SocialFlow&amp;utm_source=NYPTwitter&amp;__twitter_impression=true&amp;__twitter_impression=true&amp;__twitter_impression=true)
-
-【1】[https://twitter.com/zev\_dr/status/1322256329285795843?s=20](https://twitter.com/zev_dr/status/1322256329285795843?s=20)
-
-【2】[https://twitter.com/tuituidang/status/1322965679759392771?s=20](https://twitter.com/tuituidang/status/1322965679759392771?s=20)
-
-2+
+0

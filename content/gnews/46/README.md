@@ -1,35 +1,76 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】李宇轩妹妹首次露面撑12港青　与海外人士拍片　促向中共施压
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/517674/)
+## 【2】第四波亨特拜登手机揭秘毒瘾生活的背后！朋友帮拜登修车因车上吸毒工具被误抓，还趁机想要钱！——“我值得你好好报答”
+` GM01` [轉載自GNews](https://gnews.org/zh-hans/517403/)
 
-捜集：卡西欧 文粤
+连续十三天的爆料已经到了第四波，这几天我们从劲爆“视频”和“图片”开始了解到美国前副总统，现总统竞选人之一乔·拜登之子，亨特·拜登的荒淫无度，对女性的侮辱与变态，再到一封封烧脑的“邮件”曝光拜登家族与中共联合出卖本国利益，为自己谋取巨额财富等铁一般的证据。
 
-编撰：心听见
+总之人们对亨特·拜登的认识逐渐丰满起来，变态，性虐，乱伦，毒瘾，离婚，虐童，…….已经50岁亨特·拜登充当乔拜登手下的“钱袋子”，中共手下的“带路党”，40岁就失去所有牙齿，每天与最黑的黑帮中共为伍，与最残忍杀人凶手打交道，已无法避免的早就了他悲剧的一生。
 
-审核：MY
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02111935/MIRH6XIWB5AHBDMLUKICLCWXCM.jpg)
-据【香港新闻报道】12名港人至今在深圳盐田看守所扣押第72日，仍然音讯全无，一班关注12港人安危人士日前发布短片声援。其中「香港故事」成员李宇轩的妹妹首度公开露面，与多名海外政界人士一同拍片，呼吁国际社会和各地政府站在公义一方，关注被关押的12港人，并迫使中国对侵犯人权行为负责。
+第四波将从2016/17年亨特拜登个人通讯设备中的几万条信息中梳理，通过山一般的证明展现拜登家族混乱腐败与中美两国盗国贼对人类的威胁伤害，希望全世界有良知的战友都来关注！
 
-促请各界关注12港人的片段长约两分钟，由多位人士用英文作出呼吁，李宇轩的妹妹Beatrice在片中指，被关押12人当中有人患有严重抑郁、哮喘及皮肤病，但家属不能把相关药物交到被扣留者手上。 12人离开家园后至今音讯全无，家人十分担心其安危，「因为中共过往一直残害人权分子及尝试将他们灭声」。拍片声援的港人包括前学民成员许颖婷、协助12港人家属的本土派人士邹家成、已流亡的本土民主前线黄台仰和前「民间外交网络」发言人张昆阳。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02111917/PWTF5XPDPVAZRPGP5XSRSDZC5I-_1_.jpg)图片：李宇轩妹妹Beatrice首公开露面，与多名流亡港人及海外人士拍片撑12港人。
-斥中共残害人权分子
+第一期是关于亨特拜登与利兹的聊天记录节选，可点击链接回顾：
 
-在短片发声的还有人权组织Arise Foundation总监裴伦德（Luke de Pulford）、曾为声援12港人而绝食的意大利激进党成员Patrizia de Grazia、澳洲自由党国会议员威尔逊（Tim Wilson）、黑斯蒂（Andrew Hastie），以及定居澳洲的中国异见艺术家。他们在影片尾声手持「#SAVE12HKYOUTHS」标语，呼吁拯救12港人并带他们回家。
 
-其中Patrizia de Grazia 警告今天「被送中」事件，明天随时能发生在其他港人身上，国际社会应站在公义一方。裴伦德表示，港府已成为北京的傀儡，甚至把中国的政治议程凌驾于市民的安全。他们共同呼吁国际社会应就事件向中国施压。他们在影片尾声手持「#SAVE12HKYOUTHS」标语，一起高呼「Save the 12 Hong Kong Youths, and bring them home（拯救 12 港人，并带他们回家）」。
 
-许颖婷在fb专页帖文指，12港人已被关押逾70天，至今仍未能见律师或服药，国际社会不能承受第13位受害者出现，并代表家属列明七大要求，包括立即停即秘密关押，让家属委托的律师接触被告人。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02111928/5YDZMVK4F5A4TCOBJ7TNVDPEAI.jpg)
-战友点评：
+> [【1】第四波亨特拜登手机揭秘与其嫂的亲姐妹利兹（Elizabeth Secundy）混乱家庭关系！——“让我们一起淋浴裸聊教你如何…”](https://gnews.org/zh-hans/514349/)
 
-12个港人被关押在深圳已经逾70多天，不作处理，也拒绝给家人和委托律师外界会面，已经是违反国际人权法，而中共这种做法已经是超出对待偷渡案件范围，真正目的是打压政治异己，在中共国没有人权自由可言，因政治大于法，侵犯践踏人权，对异见人士非法手段采取限制人身自由是常事，虽然国际上的声援一直被漠视，而港政府部门已经沦陷，声援关注不能停止，因为这是为12人士争取公平对待的途径。
 
-以上观点仅代表笔者个人
 
-新闻来源：苹果新闻
+**第二期将通过亨特拜登的手机聊天内容为您揭露亨特拜登的毒瘾生活**
 
-[https://hk.appledaily.com/local/20201102/JJM3AQAOZBET5PLDYQWM54T2KU](https://hk.appledaily.com/local/20201102/JJM3AQAOZBET5PLDYQWM54T2KU)
+**时间：**2016年9月16日-9月17日
+**人物：**亨特·拜登的朋友或者帮助亨特拜登修车的人(收信) & 亨特·拜登
+
+**事件概述：**2016年9月16日前不久，亨特拜登出差到中国，期间把车交给朋友修理，朋友途中被警察抓捕，原因是该朋友被认为偷盗了亨特拜登的车，其次在车上发现了亨特拜登的吸毒工具。该朋友在对话中对亨特拜登抱怨，并希望得到一些“报答”。
+
+**以下是部分对话，蓝色【收信】为亨特拜登收到朋友的信息，红色【发送】是拜登发给朋友的信息
+**
+
+**9/16/2016 21:24 收信**
+
+Yo Rob they think I stole your car but I’m ur macanick they need to hear or get a text from u 
+**嗨，罗伯，他们认为我偷了你的车，但我只是帮你修车的。他们想要给你打电话或收到你的短信确认 **
+
+**9/16/2016 21:24 收信 **
+
+ASAP now 
+**越快越好，现在 **
+
+**9/16/2016 21:29 收信**
+
+Yo 
+**嗨**
+
+**9/16/2016 21:34 收信 **
+
+Smfh now I smoke crack because they found a crack pip 
+**好郁闷阿（Smfh） 现在我竟然成了瘾君子，因为他们找到一个吸毒管 **
+
+**9/17/2016 5:25 收信**
+
+911
+**有急事阿！（911）**
+
+**9/17/2016 5:57 发送 **
+
+Send What is going on did you repair dent in my truck– I have been in China by way of Chicago since Sunday and just returned. 
+**什么情况，你修好我车的凹痕了么？–我从周日从芝加哥去了中国，现在刚刚回来 **
+
+9/17/2016 6:00 发送
+
+What could possibly be your emergency at 6 AM that involves my truck. 一**大早6点你能有什么紧急情况？还跟我的车有关系？ **
+
+**9/17/2016 23:25 收信 **
+
+No but we need to talk fave to face because some people was talking bad. A bout u but just to thank u I have a charge now since it was a Tabasco pip fibbing thing is they wanted me to say u sa bad but I told them I get but I work on ur cars I don’t know how we gone take care of this but they stop me at the pump asking do I know who truck I’m driving so they wasn’t gone search but they said call u and if u say I’m suppose to have it they would let me go but u didn’t pick up so they charged me with your shit like I said I’m real and I know it would of fuck ur shit up even more but what r we going to????????????????????? **I think I deserve something real nice** they even call sect serve come on bro I really might go too jail be hind this so let me know y 
+**没有**，**但我们要面对面谈，因为有些人说了很糟的话。是关于你的，但要感谢你我有了一项指控，因为涉及到吸烟工具那些东西。他们想让我说你的不好，但我告诉他们我只是**帮**你修车。我不知道我们怎么搞定这件事。但他们在加油站那拦下我，问我知不知道我开的是谁的车，他们就不用搜了。但他们说打电话给你确认，如果你说是我开，他们就放我走。但你一直没接电话，所以他们因为你的烂东西指控我。我说的都是真的，我知道这会把你搞得更糟。我们怎么办？？？？我觉得我应该得到好好报答。他们甚至叫了特勤局，我真是服你了！我可能真的要因此进监狱。请回复我该如何做。 **
+
+**9/17/2016 23:27 收信**
+
+Hello 
+**嗨 
+**
 
 0
