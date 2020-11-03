@@ -1,21 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【重磅新闻】亨特拜登、世界粮食计划署和中共的影响
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/522573/)
+## 独家：亨特.拜登要求向他私人账户转款，财务顾问要求他解答如何处理账户中的学生贷款及车费等支出
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/522522/)
 
-香草山综合报道
+翻译：多伦多加喜农场 大地鲲鹏
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/01003406/WhatsApp-Image-2020-11-01-at-11.33.40.jpeg)
+校对上传： HUH
+![]()![](https://media.discordapp.net/attachments/721388937553248396/773193184859127848/Snipaste_2020-11-03_22-33-24.png?width=923&amp;height=509)
+**来自**：罗伯特·亨特
+
+**主题**：回复：需要在12:00之前回答
+
+**日期**：2018年12月21日上午9:44
+
+**致**：edward.e.prewitt
+
+**抄送**：[dodgekatie13; cynthia.duncan](/cdn-cgi/l/email-protection#7713181310121c16031e12464437101a161e1b5914181a4c524547140e19031f1e16591302191416193700121b1b0411160510181613011e041805045914181a)
+
+请向5858帐户转款。
+
+亨特·拜登
+
+![]()
+
+2018年12月21日下午12：22，edward.e.prewitt写道：
+
+为了支票不被退还，需要在中午之前答复。谢谢
+
+
+
+**需要答复的邮件附件如下：**
+
+**来自**: 辛迪·邓肯（Fayetteville，AR）
+
+**发送**：2018年12月21日，星期五11:15 AM
+
+**致**：edward.e.prewitt
+
+**主题**：我还没有转款。
+
+亨特的欧元已记入PC活期存款帐户，目前余额为$39,239.07。该帐户中有一笔借款。
+
+个人活期存款帐户余额-&lt;$ 190.63&gt;
+
+目前您的个人活期存款帐户（5858）中有2个空头支票需要处理，我们要在标准时间12:00之前完成付款，否则支票将退还。 他们是：
+
+$ 348.66       学生贷款
+
+$ 668.63       车费
+
+$ 1017.29
+
+该银行的余额为$1,529.65
+
+请告知该如何处理…….
+
+&lt;image003.jpg&gt; &lt;image004.jpg&gt; （附件未能读取）
+
+**辛迪·邓肯，**
+
+**高级客户助理**
 
 
 
 
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

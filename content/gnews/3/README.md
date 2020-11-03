@@ -1,12 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅炸弹爆料第六波重磅炸弹爆料之17：亨特拜登从洛杉矶到华盛顿的机票。Hunter Biden&#8217;s flight ticket from Los Angeles to Washington.
-` xbwen7m` [轉載自GNews](https://gnews.org/zh-hans/522770/)
+## (49)亨特拜登向董功文索要何志平律师代理费
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/522791/)
 
-作者：总部直接任务 日本樱花团整理发送
+作者：Dolores
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03102334/1-54.jpeg)
+来源：亨特硬盘里的邮件
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03102155/IMG-8397-scaled.jpg)
+2018年3月19日，亨特·拜登向董功文发送邮件，向其索要亨特·拜登开设的律师事务所OWASCO , LLC为何志平的代理费，该邮件中，存在以下几个问题：
 
+1.        何志平是中共的间谍，并在2018年因贿赂和洗钱问题被起诉，并最终判处有期徒刑3年并罚款40万美金，亨特·拜登为一个中共间谍提供代理服务，其中的勾兑不言而喻。
 
+2.       邮件中显示的银行账户Hudson West III LLC是亨特·拜登和董功文在美国国泰银行开立的共同账户，而且Hudson West III LLC与国泰银行在2017年9月14日签署了一份《多方签字授权协议》，约定超过10,000.01美元的现金或支票支取需提供董功文、亨特·拜登的共同签字。董功文签署协议的身份是Hudson West V LLC的总裁，亨特·拜登签署协议的身份是OWASCO P.C.董事长。亨特·拜登能与董功文开设共同账户，可见他们的关系非常的亲密。但约定1万美金的现金支取就必须双方签字，也表明中共希望在金钱来往方面留下证据，作为与亨特·拜登勾兑的证据。
+
+3.       何志平的代理费用为什么要通知董功文支付，因为何志平与董功文的领导都是华信能源的前主席叶简明，而拜登家族和叶简明的公司及其个人都有着非常密切的关系。
+
+综上可知，亨特·拜登代表的拜登家族，与中共间谍以及中共控制的公司都有着经济、商业及政治上的往来，所有拜登家族到底卖给了中共什么？我猜想就是美国人民的权力和未来吧。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03102554/%E5%B1%8F%E5%B9%95%E5%BF%AB%E7%85%A7-2020-11-03-%E4%B8%8B%E5%8D%8811.12.05-scaled.jpg)
 0
