@@ -1,43 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】对警鸣笛新巴车长被控　新巴称若不认罪拒供法律支持 工会：同事遭抛弃非常失望
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/522670/)
+## 重磅炸弹第六波之：拜登夫妻分居后的税务遗留问题
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/522302/)
 
-整撰：文燕
+*翻译/简评：Victor K｜校对：MikeHua｜审核：John Wallis｜Page：玄天生；*
 
-审核：MY
+**简评：**
 
-网民今年9 月6 日在九龙区发起游行，期间警方在弥敦道截停一部970 号新巴，将一名36 岁巴士司机，以涉嫌「危险驾驶」等罪名将其拘捕，最后落案控告「不小心驾驶」，案件本月17 日再讯。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03095527/image001-5.png)9月6号九龙游行，970车长当时被警方指单手控軚及作挑衅手势，及后将其拘捕。 （图片来源：众新闻）
-据【众新闻】11月3日报道，新巴职工会表示新巴管理层昨召见涉事车长，据悉通知他若不认罪，公司将不会再提供任何法律支持服务，若车长选择抗辩，需自行承担一切法律费用；而新巴回复查询时承认此事，并称其委托的律师行审视证据及口供后，认为车长抗辩理据薄弱，故作出有关决定。
+以下邮件是亨特拜登前妻凯瑟琳拜登（Kathleen Buhle）的律师（Rebekah Sullivan）写给亨特拜登的律师（Sarah Mancinelli）的。主要就亨特拜登夫妻分居后的税务遗留问题沟通。邮件时间为2018年11月27日，而邮件中讨论的税务问题是2015年的遗留问题。（据新闻报道，两人与2015年分居， 2017年正式离婚）
 
-今年九月六日网民发起九龙游行，由新巴970车长被拘捕，警方曾多次修改对司机的指控：
+![]()![](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/463d1b42-5100-4a2b-a5ff-7d438743e346.png?asset_id=b900f6ef-f089-4d63-9cf3-1d53bb7ad2a2&amp;img_etag=%22514aef6f68a7ae8b3e228c815fce0436%22&amp;size=1024)
 
-1）先指车长无故响按「挑衅」在场警员，影响警方工作及挑起在场人士 情绪。
+![]()![](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/2cf7ac24-18fb-4b46-b055-2e518f5c0e4a.png?asset_id=c66e0722-b8fb-456a-bec6-58c63716c866&amp;img_etag=%226e3f74a7d27f0ba8a8dbcc19879916c9%22&amp;size=2560)
 
-2）改称车长快速行驶，危及路旁执勤的警务人员安全，涉嫌危险驾驶，并指车长携「士巴拿」开工，并涉嫌藏有攻击武器，事件引来关注，
+![]()![](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/0f1d1f25-13c5-438f-a59b-9d606a97ae8e.png?asset_id=411fbc6d-1ba9-431d-a2f4-f76603446fe9&amp;img_etag=%225fb32e637661a49d74d8ca4308a1b4aa%22&amp;size=1024)
 
-3）警方最终改控不小心驾驶罪。新巴亦曾就事件多次发声明，表示公司会为车长提供适切协助。
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-新巴回复传媒查询时指，970号线事件自9月发生以来，新巴一直有委托律师行，为车长就案件提供法律支持。就车长不小心驾驶的控罪，新巴委托的律师行在审视与案件相关的证据及车长的口供后，认为车长抗辩的理据薄弱。
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-新巴昨日向车长解释，若车长选择于聆讯认罪，新巴可继续为他提供法律支持，而委托的律师行会为车长处理求情事宜。若车长决定抗辩，新巴将不会继续向他提供法律支持，并建议他尽快另委律师处理案件，新巴会将案件文件及纪录，转交予车长或其代表律师，以便处理后续程序。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03095543/image003-2.png)案件已于9月15日在九龙城裁判法院提堂，之后押后至本月17日再讯，被捕张姓车长获准以6,000元保释。 （图片来源：众新闻）
-新巴职工会今日在Facebook发文表示，对公司感到非常失望，指同事一心相信公司会尽力提供协助，关键时刻却遭抛弃，会方现正就事件与该名车长寻求他方支持，不论胜算如何，会与同事站在同一阵线，希望公众人士能继续留意事态发展，并会密切跟进有关事件。
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/oq0RNu8iDoJpi/)】
 
-战友点评：
-
-970号线事件重点是警方不爽自己的权威受到车长的「挑衅」，而以「莫须有」的罪名指控车长。
-
-警方曾多次修改对司机的指控，新巴公司不担没有站出来为车长发声，为职员据理力争。而是通知车长若他不认罪，公司将不再提供任何法律支持服务，若车长选择抗辩，需自行承担一切法律费用。新巴以自费法律费要挟车长认罪，实在冷血。可见新巴考虑的是公司的利益，而不是员工的利益。令人怀疑新巴是在配合警方办案。
-
-在公司利益当前，新巴公司赤裸裸地在港共面前跪下，弱势力的车长可能被强迫认罪。在红魔的爪下，香港社会没有公平公义，只有利益与勾兑。
-
-以上观点仅代表笔者本人
-
-资料来源：众新闻
-
-[https://www.hkcnews.com/article/35290/%E6%96%B0%E5%B7%B4%E5%8F%B8%E6%A9%9F-96%E4%B9%9D%E9%BE%8D%E9%81%8A%E8%A1%8C-35290/%E5%B0%8D%E8%AD%A6%E9%9F%BF%E5%92%B9%E6%96%B0%E5%B7%B4%E8%BB%8A%E9%95%B7%E8%A2%AB%E6%8E%A7-%E6%96%B0%E5%B7%B4%E7%A8%B1%E8%8B%A5%E4%B8%8D%E8%AA%8D%E7%BD%AA%E6%8B%92%E4%BE%9B%E6%B3%95%E5%BE%8B%E6%94%AF%E6%8F%B4-%E5%B7%A5%E6%9C%83%EF%BC%9A%E5%90%8C%E4%BA%8B%E9%81%AD%E6%8B%8B%E6%A3%84%E9%9D%9E%E5%B8%B8%E5%A4%B1%E6%9C%9B](https://www.hkcnews.com/article/35290/%E6%96%B0%E5%B7%B4%E5%8F%B8%E6%A9%9F-96%E4%B9%9D%E9%BE%8D%E9%81%8A%E8%A1%8C-35290/%E5%B0%8D%E8%AD%A6%E9%9F%BF%E5%92%B9%E6%96%B0%E5%B7%B4%E8%BB%8A%E9%95%B7%E8%A2%AB%E6%8E%A7-%E6%96%B0%E5%B7%B4%E7%A8%B1%E8%8B%A5%E4%B8%8D%E8%AA%8D%E7%BD%AA%E6%8B%92%E4%BE%9B%E6%B3%95%E5%BE%8B%E6%94%AF%E6%8F%B4-%E5%B7%A5%E6%9C%83%EF%BC%9A%E5%90%8C%E4%BA%8B%E9%81%AD%E6%8B%8B%E6%A3%84%E9%9D%9E%E5%B8%B8%E5%A4%B1%E6%9C%9B)
+[!\[\]()!\[\](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/d288ddc9-49ef-4598-9cc8-c487df77a030.jpg?asset_id=de90ac60-ba89-4373-9678-a3f55df1aa6b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/d288ddc9-49ef-4598-9cc8-c487df77a030.jpg?asset_id=de90ac60-ba89-4373-9678-a3f55df1aa6b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

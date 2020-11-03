@@ -1,8 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## LNG战略
-` JP007` [轉載自GNews](https://gnews.org/zh-hans/522307/)
+## 美国路易斯安那州Monkey Island液化天然气项目
+` JP007` [轉載自GNews](https://gnews.org/zh-hans/522481/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03092038/1-8.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03092050/2-9.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03092054/4-4.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03092058/3-10.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03092105/5-6.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03092106/E1-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03092110/E2-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03092113/6-7.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03092114/E3-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03092118/E4-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03092121/E5-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03092125/E6-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03092127/E7-1.png)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03092958/%E7%BE%8E%E5%9B%BD%E8%B7%AF%E6%98%93%E6%96%AF%E5%AE%89%E9%82%A3%E5%B7%9EMonkey-Island%E6%B6%B2%E5%8C%96%E5%A4%A9%E7%84%B6%E6%B0%94%E9%A1%B9%E7%9B%AE1.png)
+
+
 0
