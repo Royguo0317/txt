@@ -1,23 +1,111 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅炸弹第六波之：詹姆斯拜登开给亨特拜登的发票
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/522927/)
+## 独家：亨特·拜登邮件 Owasco P.C.的续约议案
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/523022/)
 
-**简评：**
+多伦多加喜农场 大地鲲鹏
 
-以下是詹姆斯拜登开给亨特拜登的发票，亨特拜登每月需要向詹姆斯拜登的国际业务发展项目支付82,500美金，6月份欠款14，001美金。
+校对上传 HUH
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03115726/103-1.png)
+**来自**：埃里克·史威林 （eschwerin）
 
-![]()![](https://spark.adobe.com/page/yLy6f7FsMlusm/images/2a608ca2-a284-4614-bebc-f1541b62f20c.jpg?asset_id=c4845de7-6ff8-4274-a122-cf4de0ba6066&amp;img_etag=%22f1bbea8527e23052fe85d09d0c350b36%22&amp;size=1024)
+**主题**：回复：续约议案
 
-![]()![](https://spark.adobe.com/page/yLy6f7FsMlusm/images/fa8b5ff8-5bd8-4570-a49b-f5ac6e2de82a.jpg?asset_id=f5c1fa61-64c0-4e17-a005-275fd9769b24&amp;img_etag=%224cbf36142da52c4a8bdf307249621b27%22&amp;size=1024)
+**日期**：2016年4月12日，上午8:56
 
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+**收件人**：亨特·拜登； 亨特·拜登
 
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+**抄送**：琼·佩格(jmayer)
 
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/yLy6f7FsMlusm/)】
+我最后一次交谈是你每个月都在。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yLy6f7FsMlusm/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/yLy6f7FsMlusm/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+埃里克·史威林
+
+eschwerin
+
+自我的Iphone发送
+
+2016年4月12日上午10:46，亨特·拜登写道：
+
+亨特拜登
+
+202-333-1880
+
+开始已转发的信息：
+
+来自：HolmDC
+
+日期：2016年4月12日，美国东部时间上午10:02:24
+
+至：rhbdc
+
+主题：续约议案
+
+答复：HolmDC
+
+Owasco P.C.的续约议案
+
+您已收到一个或多个要约续约的议案。
+
+请点击下面的链接登录到您的Resident Portal帐户并查看您的选择。
+
+单击此处查看并选择您的续订议案。
+
+请保留作为记录。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03120028/103-2.png)
+**来自**：HolmDC
+
+**主题**：回复：续约议案
+
+**日期**：2016年4月12日上午7:02
+
+**收件人**：亨特·拜登
+
+**Owasco P.C.****的续约议案**
+
+**您已收到一个或多个要约续约的议案。**
+
+请点击下面的链接登录到您的Resident Portal帐户并查看您的选择。
+
+**登录名 :**[** **rhbdc](/cdn-cgi/l/email-protection#bbc9d3d9dfd8fbd2d8d7d4cedf95d8d4d6)
+
+单击此处查看并选择您的续订议案。
+
+**请保留作为记录。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03120123/103-3.png)
+发件人：罗伯特·拜登
+
+主题：转发：续约议案
+
+日期：2016年4月12日，上午7:45
+
+至：琼·佩格，埃里克·史威林
+
+亨特·拜登
+
+202-333-1880
+
+开始已转发的信息
+
+来自：HolmDC
+
+日期：2016年4月12日，美国东部时间上午10:02:24
+
+至：亨特·拜登
+
+主题：续约议案的答复：[HolmDC](/cdn-cgi/l/email-protection#a2eacdcecfe6e1e2d6d2d2cecbd4cbccc58cc1cdcf)
+
+**Owasco P.C.****的续约议案**
+
+**您已收到一个或多个要约续约的议案。**
+
+请点击下面的链接登录到您的Resident Portal帐户并查看您的选择。
+
+**登录名**** :**[** **\[email protected\]](/cdn-cgi/l/email-protection#ec9e848e888fac858f80839988c28f8381)
+
+单击此处查看并选择您的续订议案。
+
+**请保留作为记录。**
 
 0

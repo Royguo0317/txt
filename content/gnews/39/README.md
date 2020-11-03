@@ -1,57 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家：亨特∙拜登与人联络，并被问及是否乔∙拜登也参加
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/522816/)
+## 重磅炸弹爆料第六波之20：亨特拜登女儿骨折亨特联系医生 Hunter contacted surgeons for his daughter&#8217;s bone fracture.
+` xbwen7m` [轉載自GNews](https://gnews.org/zh-hans/523019/)
 
-多伦多加喜农场 鹰嘴逗逗
+作者：总部直接任务 日本樱花团整理发送
 
-校对上传 XM
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03103249/101.jpg)
-收件人：瓦德
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03110932/1-62.jpeg)
 
-主题：有关明日电汇
 
-日期：2014年2月27日 上午7:55
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03110910/2-20.jpeg)
 
-收件人：亨特∙拜登
 
-我们下午5:30的通话联络。
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03110920/3-10.jpeg)
 
-安好，
 
-—————————
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03110940/4-11.jpeg)
 
-韦德·兰德利特
 
-布什街381号300室
 
-加利福尼亚州旧金山94104
-
-————————————————————————————————
-
-2014年2月27日上午8:09，“亨特拜登” 邮件写道：
-
-几点？
-
-兴业银行
-
-202.333.1880
-
-————————————————————————————————
-
-2014年2月26日晚上10：47，韦德·兰德利特写道：
-
-你跟你父亲一起来吗？无论怎样，我有个好建议给你，如果您有时间讨论。
-
-安好，
-
-—————————
-
-韦德·兰德利特
-
-布什街381号300室
-
-加利福尼亚州旧金山94104
 
 0

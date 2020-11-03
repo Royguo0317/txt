@@ -1,27 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅炸弹第六波之：拜登夫妻分居后的税务遗留问题
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/522302/)
+## 蚂蚁金服被暂缓上市，只因一句“中国金融没有系统”
+` Ronald` [轉載自GNews](https://gnews.org/zh-hans/522783/)
 
-*翻译/简评：Victor K｜校对：MikeHua｜审核：John Wallis｜Page：玄天生；*
+内新闻/素材：庚子 校对：老白
 
-**简评：**
+原定于11月5日在上交所、港交所同步上市的蚂蚁金服，双双暂缓上市。
 
-以下邮件是亨特拜登前妻凯瑟琳拜登（Kathleen Buhle）的律师（Rebekah Sullivan）写给亨特拜登的律师（Sarah Mancinelli）的。主要就亨特拜登夫妻分居后的税务遗留问题沟通。邮件时间为2018年11月27日，而邮件中讨论的税务问题是2015年的遗留问题。（据新闻报道，两人与2015年分居， 2017年正式离婚）
+上交所给出的理由是：“你公司（蚂蚁集团）实际控制人及董事长、总经理被有关部门联合进行监管约谈，你公司也报告所处的金融科技监管环境发生变化等重大事项。该重大事项可能导致你公司不符合发行上市条件或者信息披露要求”。
 
-![]()![](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/463d1b42-5100-4a2b-a5ff-7d438743e346.png?asset_id=b900f6ef-f089-4d63-9cf3-1d53bb7ad2a2&amp;img_etag=%22514aef6f68a7ae8b3e228c815fce0436%22&amp;size=1024)
+11月2日晚，证监会网站发布消息，中国人民银行、中国银保监会、中国证监会、国家外汇管理局对蚂蚁集团实际控制人马云、董事长井贤栋、总裁胡晓明进行了监管约谈。
 
-![]()![](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/2cf7ac24-18fb-4b46-b055-2e518f5c0e4a.png?asset_id=c66e0722-b8fb-456a-bec6-58c63716c866&amp;img_etag=%226e3f74a7d27f0ba8a8dbcc19879916c9%22&amp;size=2560)
+而马云等人的被约谈，起因于10月24日外滩金融峰会上马云的一句话:“中国的金融没有系统”。
 
-![]()![](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/0f1d1f25-13c5-438f-a59b-9d606a97ae8e.png?asset_id=411fbc6d-1ba9-431d-a2f4-f76603446fe9&amp;img_etag=%225fb32e637661a49d74d8ca4308a1b4aa%22&amp;size=1024)
+中共利用证交所人为可控的交易系统，一波一波的割韭菜，已经不是什么秘密了。但是堂而皇之的被指出来，中共还怎么割韭菜呢？这就是马云你的不对了！
 
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/oq0RNu8iDoJpi/)】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/d288ddc9-49ef-4598-9cc8-c487df77a030.jpg?asset_id=de90ac60-ba89-4373-9678-a3f55df1aa6b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/d288ddc9-49ef-4598-9cc8-c487df77a030.jpg?asset_id=de90ac60-ba89-4373-9678-a3f55df1aa6b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+新闻来源：【今日头条】[https://m.toutiao.com/is/JmAgSTR/](https://m.toutiao.com/is/JmAgSTR/)
 
 0

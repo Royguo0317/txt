@@ -1,47 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家：鲍嘉琪与拜登家族邮件，透露川普总统与中国石化贸易谈判
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/522889/)
+## 重磅炸弹第六波之：猴岛液化天然气公司–液化科技饼状图
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/522141/)
 
-翻译 多伦多加喜农场 坐看云起时
+*翻译：万人往｜校对：MikeHua｜审核：JohnWallis｜Page：玄天生；*
 
-校对 XM 上传 HUH
-![]()![](https://media.discordapp.net/attachments/721388937553248396/773209947466235934/Snipaste_2020-11-03_23-30-13.png?width=353&amp;height=509)![]()![](https://media.discordapp.net/attachments/721388937553248396/773209976070996000/Snipaste_2020-11-03_23-39-14.png?width=397&amp;height=509)
-来自：**鲍嘉琪 **
+**简评：**
 
-主题：新闻和项目清单
+2017年11月17日，猴岛液化天然气公司（Monkey Island LNG）董事长兼首席执行官格雷格·迈克尔斯（Greg Michaels）、董功文、严默文（Mervyn Yan）、鲍嘉琪、亨特·拜登（Hunter Biden）和吉姆拜登（Jim Biden）之间电子邮件沟通，邮件主题为“液化科技饼状图”。
+[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7cf60866-4d58-4f0e-abbe-1024fd6bc36a.png?asset_id=edd1358e-12ea-48e3-8b80-5b2daee7abf0&amp;img_etag=%22f75569f9109e7d45642c0c8583f73666%22&amp;size=3200)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7cf60866-4d58-4f0e-abbe-1024fd6bc36a.png?asset_id=edd1358e-12ea-48e3-8b80-5b2daee7abf0&amp;img_etag=%22f75569f9109e7d45642c0c8583f73666%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/80a02f61-b4f9-4652-b02a-3e0381e6afd9.png?asset_id=7e10ab2e-094a-450f-9491-6695287b20d0&amp;img_etag=%22c99793434693a1eac0a5b42e0166e813%22&amp;size=2560)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/80a02f61-b4f9-4652-b02a-3e0381e6afd9.png?asset_id=7e10ab2e-094a-450f-9491-6695287b20d0&amp;img_etag=%22c99793434693a1eac0a5b42e0166e813%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/0065d205-8aa2-4008-aeb6-3bc960ba1ea0.png?asset_id=8d7589ab-b6c0-4fea-9a07-e1317166ad11&amp;img_etag=%2224433158d7dc5b3698e1dfcd5f98824c%22&amp;size=2886)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/0065d205-8aa2-4008-aeb6-3bc960ba1ea0.png?asset_id=8d7589ab-b6c0-4fea-9a07-e1317166ad11&amp;img_etag=%2224433158d7dc5b3698e1dfcd5f98824c%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/d09fcfb7-fa17-452f-b117-b218962131e1.png?asset_id=16a6c111-7a65-4631-827d-a5d6d82b6f32&amp;img_etag=%22a79548df66b4220caec34d0b75ec9419%22&amp;size=2560)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/d09fcfb7-fa17-452f-b117-b218962131e1.png?asset_id=16a6c111-7a65-4631-827d-a5d6d82b6f32&amp;img_etag=%22a79548df66b4220caec34d0b75ec9419%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/518320ac-cd9b-44af-84ff-f7937346d5b6.png?asset_id=50591412-16cc-4eb0-b2c3-fb72c56bdf60&amp;img_etag=%2223c8931b3c78b726cc62443f18aeb1e2%22&amp;size=3212)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/518320ac-cd9b-44af-84ff-f7937346d5b6.png?asset_id=50591412-16cc-4eb0-b2c3-fb72c56bdf60&amp;img_etag=%2223c8931b3c78b726cc62443f18aeb1e2%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7ea94840-3a88-4c27-a143-0ccb883ae083.png?asset_id=e4ba059f-c455-4412-89b7-768919dad055&amp;img_etag=%2231c03301237cee47ac6cc3799d2202a9%22&amp;size=3272)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7ea94840-3a88-4c27-a143-0ccb883ae083.png?asset_id=e4ba059f-c455-4412-89b7-768919dad055&amp;img_etag=%2231c03301237cee47ac6cc3799d2202a9%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/6bfbbc1f-036f-4c63-a311-72819d0239a1.png?asset_id=3c2096dd-3b06-4448-80d5-c11547870ddd&amp;img_etag=%225166165d7242a2f5b0f50f143ea023f5%22&amp;size=3310)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/6bfbbc1f-036f-4c63-a311-72819d0239a1.png?asset_id=3c2096dd-3b06-4448-80d5-c11547870ddd&amp;img_etag=%225166165d7242a2f5b0f50f143ea023f5%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7263ba0d-03ab-4f1c-aa72-803734b2a5ed.png?asset_id=e00c06d5-6636-45f4-9194-16e66353aa62&amp;img_etag=%225adec6f74a291b2938593a1c48f68e18%22&amp;size=3328)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/7263ba0d-03ab-4f1c-aa72-803734b2a5ed.png?asset_id=e00c06d5-6636-45f4-9194-16e66353aa62&amp;img_etag=%225adec6f74a291b2938593a1c48f68e18%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/f43e09f2-4c41-4bb0-bd0c-8c91619f3fc8.png?asset_id=7618caf1-fe62-41de-a334-9957103f06b2&amp;img_etag=%22f80cfc8ef6bc84208c1e23fab3dadc91%22&amp;size=3342)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/f43e09f2-4c41-4bb0-bd0c-8c91619f3fc8.png?asset_id=7618caf1-fe62-41de-a334-9957103f06b2&amp;img_etag=%22f80cfc8ef6bc84208c1e23fab3dadc91%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/51a14734-cd1a-4236-9e98-8c2d373d0c7b.png?asset_id=9efc8407-0089-45c8-ac55-6542a791e436&amp;img_etag=%2210b88ea1124b58840de78ddfebc3a701%22&amp;size=2560)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/51a14734-cd1a-4236-9e98-8c2d373d0c7b.png?asset_id=9efc8407-0089-45c8-ac55-6542a791e436&amp;img_etag=%2210b88ea1124b58840de78ddfebc3a701%22&amp;size=1024)
+编辑：[【喜马拉雅战鹰团】](https://spark.adobe.com/page/Q4r6941HyJTEb/)-点击Adobe Spark版
 
-日期：2017年11月8日下午4:40分
-
-收件人：gongwen dong , Hunter Biden , Jim Biden, Mervyn Yan, Robert Biden。
-
-**科普斯基斯蒂(Corpus Christ)的Cheniere LNG还是Texas LNG和中国石化？**
-
-**“****请注意，科普斯基斯蒂(Corpus Christ)在20世纪70年代被飓风摧毁，最近又被飓风Harvey摧毁。**
-
-**Cheniere****目前有2条生产线正在建设中，并计划在以后建设更多的液化生产线。**
-
-**除了Cheniere和Texas LNG，Delfin Midstream是第三家随川普总统贸易代表团访华的德克萨斯LNG公司，第四家LNG/NG公司是阿拉斯加天然气公司。**
-
-川普政府目前正在谈判的最大交易之一是来自中国石油天然气巨头中国石油化工集团公司的数十亿美元的能源投资，这将为德克萨斯州和美属维尔京群岛的飓风肆虐地区带来数千个新的就业机会。许多交易，包括中国石油的投资，预计将以非约束性谅解备忘录的形式进行，没有合同。
-
-根据Bloomberg新闻社获得的一份政府文件，被初步列为与此行有关的中国相关交易的公司有：
-
-通用电气公司（General Electric Co.）、霍尼韦尔国际公司（Honeywell International Inc）、西屋电气公司（Westinghouse Electric Co., ）、阿拉斯加天然气公司（Alaska Gasline Development Corp.）、波音公司（ Boeing Co.）和高通公司（Qualcomm Inc）。这些公司代表了从生命科学到重型机械的各个领域。根据该文件，其他可能正在进行交易的公司包括Cheniere Energy (钱尼尔能源)、特雷克斯公司（Terex Corp) 、赛默飞世尔科技公司（Thermo Fisher Scientific Inc. ）、美国应用材料公司（Applied Materials Inc.）、卡特彼勒（Caterpillar Inc.）和黑石集团(Blacestone Group)。
-
-该项目在德克萨斯州和维尔京群岛的飓风区的细节尚未确定，但这家中国公司，即中国石化，预计将与位于波士顿的基础设施投资公司Arclight Capital和康涅狄格州的商品贸易公司Freepoint Commodities LLC合作。这笔交易预计在美国的投资价值将超过70亿美元。
-
-**700-****英里管道**
-
-该项目将包括建造一条700英里长的管道，从德克萨斯州西部的二叠纪油田到墨西哥湾沿岸，并在那里建造一个储存设施。另外，中国石化还将扩大圣克罗伊岛被称为石灰树的现有油储设施。
-
-据一位熟悉该提案的人士透露。
-
-该交易仍需得到美国和中共官员的最终批准。
-
-但所有这些开发交易都可能为美国总统提供政治助力，他在竞选活动中的大部分时间都在争辩说，他具有吸引就业和投资回美国的独特资格。
-
-美国商务部长威尔伯∙罗斯表示，上个月川普访华时，美国希望在川普访华期间能有 “非常好的可交付成果”。
-
-2+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+[!\[\]()!\[\](https://spark.adobe.com/page/Q4r6941HyJTEb/images/639e2b2b-d173-446c-9ff7-e1e33c73b8d8.jpg?asset_id=6dc5cc52-a5c5-4f67-ac6b-f8c1fe4a2710&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/Q4r6941HyJTEb/images/639e2b2b-d173-446c-9ff7-e1e33c73b8d8.jpg?asset_id=6dc5cc52-a5c5-4f67-ac6b-f8c1fe4a2710&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+0
