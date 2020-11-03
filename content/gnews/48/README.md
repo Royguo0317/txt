@@ -1,27 +1,168 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 4 岁女童被邻居砍成重伤 中共法院不支持医疗赔偿 称「社会捐赠已弥补」
-` shangshang` [轉載自GNews](https://gnews.org/zh-hans/521204/)
+## 爆炸揭秘第六波(43) 拜家子竟为几千元惊动一众沼泽巨鳄？
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/521661/)
 
-作者：小妍说
+赵胜欢
 
-2019年5月5日下午，四川隆昌市响石镇某村，4岁女童小雨随奶奶在路边玩耍时，曾被诊断为精神分裂症的邻居王某突然发病，手持篾刀将其砍成重伤。随即，小雨被送往隆昌市人民医院治疗，医院诊断为重型脑伤，右侧枕叶、右侧小脑及左颞叶脑挫裂伤伴血肿，枕骨骨折，右侧面部、颈项部皮肤软组织挫裂伤，耳部、枕部挫擦伤，枕部头皮血肿，吸入性肺炎，外伤性脑梗死。治疗期间除医保报销外，住院及门诊治疗费花费10万余元。同时，小雨的家人通过网络平台获得捐助13.7万余元，当地镇政府给予困难救助和职工捐款2.3万余元。此后，经转院至内江市第一人民医院、重庆医科大学附属儿童医院多次住院治疗，小雨于去年12月9日好转出院，但医嘱仍要求继续系统康复诊疗。小雨在医院住院治疗139天，治疗费共花费16.8万余元，除去医保报销的11万余元，小雨家人自行支付5.8万余元。出院后，小雨继续接受门诊治疗和康复理疗，花费门诊治疗费4.3万余元。后经鉴定，小雨颅脑损伤后软化灶形成，伴有神经系统症状属十级伤残。在小雨出院后，父母作为其法定代理人，代其向隆昌市人民法院提起诉讼，请求法院判令王某及黄某连带赔偿住院医疗费5.8万余元、门诊治疗费4.3万余元、护理费2.78万元、住院伙食补助费4170元、营养费4170元、残疾赔偿金29340元、精神抚慰金3000元、交通和住宿费1万元，总计18万余元。而10月30日中共国裁判文书网公开的判决书显示，对于女童方索赔的10万余元医疗费，法院不予支持。法院认为，网络平台及政府捐款是具有社会性和针对性，捐款足以弥补女童方所主张的医疗费用损失，女童方不能重复主张，也不能因他人的侵权行为而获益。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03062245/image-42.png)
-小雨治愈后，鉴定为神经脑损伤十级残疾，中共国的法院却判决驳回理由是:社会捐赠弥补了医药费，社会捐赠是大家对小雨的同情，怎么能用爱心捐款来抵消医药费呢？其中的一句不能因他人的侵权行为而获益，受害人的民诉主张难道是为了获益吗？一个小女孩，被定为神经性脑损伤十级残疾，她的一生就此就毁了，后半生不但不能日常活动，就连学习、工作 、社交都会出现问题，这样的她该怎么生存？一生的幸福要花多少钱去弥补？哪个父母会牺牲自己的孩子的性命和未来去谋利？如果受害者，没募捐到这笔救命钱，因此耽误、失去了生命、这责任该如何划分，索赔还会不成立吗？还记得当年的彭宇案吗？感觉这个判决和当初的“不是你撞的你为什么要扶”一样让人寒心，之前是“扶不扶”，这次是“捐不捐”。如果当事人被认定为非完全行为能力人，不追究其刑事责任也算符合法律。但是不追究民事责任算什么意思？法官判决有依据吗？这不是法律对当事人的纵容吗？这不就相当于捐赠款都赠给当事人作为赔偿款了？按照法官的逻辑当事人犯罪之后还获利了？并且以后责任人首先会要求受害者申请社会救助，这样自己就可以免赔或少赔了。真想问一下，这些手握中共赋予的大权法官们:伤人不用赔偿医药费这是哪条哪款法律规定的？在中共国法院就是邪恶的发源地、而法官就是穿着法律的外衣的罪恶保护者！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03062140/image-41.png)
-如果一个国家要不停的喊“依法治国”的口号，你认为这个国家正在依法治国吗？没有，正是因为没有，才需要呐喊。贪污腐败成风，贿赂公安、检察院、法院、法官，在中共国早已不足为奇了，当他们拿了钱，也就不得不替人办事了。中共国法制已进入了最荒唐的时代：政府不依法行政；法院不依法审判；上访多被欺骗；民众无处伸冤。当今中共国，最不讲法律的是法院；最不讲公平的就是政府；最不解决问题的就是信访。
+2010年12月27日，上午11点30分，亨特·拜登写道——
 
-文章内容仅代表个人观点
+请查看银行帐户，多谢。
 
-GNEWS之前文章：
+2010年12月27日，上午11点40分，埃里克·史威林写道——
 
-湖北巴东货车车祸倾泄猪产品 发黑腐烂 [https://gnews.org/zh-hans/513758/](https://gnews.org/zh-hans/513758/)
+查得银行卡帐上有两千四百零九美金。是这张卡无法使用，还是刚才你要查余额？今天我会电邮“智慧同步”的史蒂芬（或许来自你？），向他垂询其所认为的付款时间。作为2010年红利因素，我需要它周三到账。你认为呢？需要我发送电邮，还是劳您大驾？
 
-亲生母亲虐待孩子热水浇头、钳子拔牙 [https://gnews.org/zh-hans/509540/](https://gnews.org/zh-hans/509540/)
+2010年12月27日，上午11点46分，亨特·拜登写道——
 
-谈到“全民免费医疗” 官方却宣称财力有限[https://gnews.org/zh-hans/508339/](https://gnews.org/zh-hans/508339/)
+从你这里发电邮吧，如对方无回应，我再亲自发。
 
-新闻链接：[https://finance.sina.com.cn/money/insurance/sbxw/2020-11-03/doc-iiznezxr9545530.shtml](https://finance.sina.com.cn/money/insurance/sbxw/2020-11-03/doc-iiznezxr9545530.shtml)
+2010年12月27日，上午11点52分，埃里克·史威林写道——
+
+听上去不赖。有关余额的问题解决了吗？即使有亟待纠正处，直到本周末付款到账前，消费应无碍，是这样吧？
+
+2010年12月27日，下午12点19分，亨特·拜登写道——
+
+此卡在自动提款机上无法使用，显示余额不足。
+
+2010年12月27日，下午12点26分，埃里克·史威林写道——
+
+嗯，我会让辛蒂去查证。你以前能从亚历克斯/博那拿到五百美金维萨卡吗？卡还在吗？
+
+(辛蒂，严重怀疑是Cindy Lou Hensley McCain，约翰·麦凯恩遗孀。丈夫为越战退伍军人，参议院成员，曾于2000和2008年两度参选总统，分别败给布什和奥巴马。辛蒂曾深度参与丈夫政事，一度滥用药物，极度轻视川普，乃是铁杆拜登粉，私交不浅)
+
+（亚历克斯，严重怀疑是Alexander Mackler，亚历山大·麦凯勒，特拉华州司法部部长。）
+
+（博即博·拜登，乔拜登长子）
+
+2010年12月27日，下午1点21分，亨特·拜登写道——
+
+有消息吗？
+
+2010年12月27日，下午2点16分，埃里克·史威林写道——
+
+已从辛蒂处获知。于我而言非常困惑，但此账户可用余额仅三百七十六美金。上周我们所做的其中一笔转款搁置十天（这也是我困惑的地方），但今日它将获准，明日账上即有两千刀可用。辛蒂刚在准备尝试提前这一进程，如此你立刻能有超过三百七十六美金。我不懂转款搁置，也不清楚多余的两千刀从何而来。但如果她（辛蒂）没错，别多嘴乱问。
+
+我会见机行事，问爱德华这些款项的来龙去脉。
+
+[亨特·拜登沉迷招嫖，毒品，常年出沒風月場，曾為艷舞一擲千金，于在綫色情直播平臺險些刷爆銀行卡；所以不要奇怪堂堂拜登之子會爲了一兩千元坐地叫嚷，甚至勞動一眾大佬為之鞍前馬後。無他，色慾薰心，外加臉皮厚過城牆拐角而已。]
+
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03070911/8-3.jpg)
+
+
+From: Eric Schwerin [email protected]
+
+Subject: Re: Can you Date: December 27, 2010 at 2:16 PM
+
+To: Hunter Biden [\[email protected\]](/cdn-cgi/l/email-protection#751d171c11101b35071a0610181a1b0106101b1016145b161a18)
+
+Heard back from Cindy.
+
+It was all very confusing to me, but the bottom line is that there is only $376 currently available in to be used at the moment.
+
+One of the transfers we did last week apparently has a 10 day hold on it (this is where it got confusing to me) but that hold is going to be released today and there will be $2000 in the account effective tomorrow.
+
+Cindy was going to try and get the hold released earlier today so you have a little more than the $376 currently in there effective immediately.
+
+I don’t understand the hold and I am not sure where that extra $2000 was coming from but if she’s right, don’t ask questions – I’ll ask Edward at some point what that is all about.
+
+Eric D. Schwerin Rosemont Seneca Partners,
+
+LLC 1010 Wisconsin Ave.,
+
+NW Suite 705 Washington DC 20007
+
+(202) 333-1880
+
+[\[email protected\]](/cdn-cgi/l/email-protection#adc8decec5dac8dfc4c3eddfc2dec8c0c2c3d9dec8c3c8cecc83cec2c0)
+
+P Consider the environment before printing this email.
+
+On Dec 27, 2010, at 1:21 PM, Hunter Biden wrote:
+
+Any word?
+
+R. Hunter Biden Rosemont Seneca Partners 202-333-1880
+
+On Dec 27, 2010, at 12:26 PM,
+
+Eric Schwerin &lt;[email protected]&gt; wrote:
+
+OK – I am asking Cindy to check.
+
+Were you able to get that $500 Visa card from Alex/Beau?
+
+Do you still have that?
+
+Eric D. Schwerin Rosemont Seneca Partners,
+
+LLC 1010 Wisconsin Ave.,
+
+NW Suite 705 Washington, DC 20007
+
+(202) 333-1880
+
+[\[email protected\]](/cdn-cgi/l/email-protection#066375656e7163746f6846746975636b6968727563686365672865696b)
+
+P Consider the environment before printing this email.
+
+On Dec 27, 2010, at 12:19 PM, Hunter Biden wrote:
+
+It says I have insufficient funds @ ATM and card won’t work.
+
+R. Hunter Biden Rosemont Seneca Partners 202-333-1880
+
+On Dec 27, 2010, at 11:52 AM,
+
+Eric Schwerin &lt;[email protected]&gt; wrote:
+
+Sounds good.
+
+Got what you need on the balance question?
+
+If that is anywhere near correct, you should be good on spending money until you get paid out at the end of the week, right?
+
+Eric D. Schwerin Rosemont Seneca Partners,
+
+LLC 1010 Wisconsin Ave., NW Suite 705 Washington, DC 20007
+
+(202) 333-1880 [\[email protected\]](/cdn-cgi/l/email-protection#e38690808b9486918a8da3918c90868e8c8d9790868d868082cd808c8e)
+
+P Consider the environment before printing this email.
+
+On Dec 27, 2010, at 11:46 AM, Hunter Biden wrote:
+
+From you I think first and me if no response.
+
+R. Hunter Biden Rosemont Seneca Partners 202-333-1880
+
+On Dec 27, 2010, at 11:40 AM,
+
+Eric Schwerin &lt;[email protected]&gt; wrote:
+
+Says there is $2409 in your ATM card account.
+
+Is it not working or you just needed a balance check?
+
+I am going to email Stephen at Smart Synch today (maybe from you?) and ask what he thinks his timing will be on their payment.
+
+I really kind of need it by Wednesday at the latest to factor it into the 2010 bonus.
+
+What do you think? Should I send email from you or me?
+
+Eric D. Schwerin Rosemont Seneca Partners, LLC 1010 Wisconsin Ave.,
+
+NW Suite 705 Washington, DC 20007 (202) 333-1880
+
+[\[email protected\]](/cdn-cgi/l/email-protection#761305151e0113041f1836041905131b1918020513181315175815191b)
+
+P Consider the environment before printing this email.
+
+On Dec 27, 2010, at 11:30 AM, Hunter Biden wrote:
+
+Please check bank account- thanks.
+
+R. Hunter Biden Rosemont Seneca Partners 202-333-1880
 
 0

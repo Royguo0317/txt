@@ -1,16 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆炸揭密第六波：45#亨特召集投资顾问和律师，一次简单透露着诡异！
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/521403/)
+## 决战13天：独家！再爆亨特拜登邮件（1）
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/521601/)
 
-楼兰古城2.0
-
-这是一份亨特拜登发出的要求开电话会议的邮件，在2019年1月25日上午6点10分发出，确定开会时间在晚上美东时间下午6点，美中时间5点。同时提到了1月23日的一项停止接收营销性邮件的行为
-
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03063441/7-3.png)
+- 编辑：文顺
+- 翻译：Ranting
 
 
-日的一项停止接收营销性邮件的行为！这个邮件内容其实非常一般，属于行政措施，参与者爱德华·普雷维特是董事总经理-投资普威特财富管理集团富国银行顾问，道奇是亨特的私人助理，Mesires George R是芝加哥的律师。这是要干大事的组合操作，放荡的亨特在那期间似乎谋划着什么，这些相信都会慢慢挖掘出来的！
+亨特·拜登与其父在2010年6月到非洲与Shell公司勾兑可再生能源方面的合作。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03070633/1.1.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03070701/1-13.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25143553/image0-101.jpg)喜西农场官方Parler二维码，敬请关注！
 
 0

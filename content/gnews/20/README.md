@@ -1,33 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 决战13天：硬核！亨特·拜登的聊天记录（9）
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/521964/)
+## 再爆酒店账单 ！亨特拜登又和谁在美国的中央公园酒店共度良宵？
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/521593/)
 
-- 编辑：文顺
-- 翻译：Ranting
+翻译： 康州农场-一花一世界
 
+校对:   康州农场-郑彬
 
-***更多真相，请关注：[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)***
+编辑： 康州农场- Stephanie
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03020356/A8.jpg)
+2017年12月21日，亨特拜登又和谁在美国的中央公园酒店共度良宵？ 中央公园酒店坐落在纽约。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03090812/%E5%9B%BE%E7%89%875.png)每晚约500美金![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03090828/%E5%9B%BE%E7%89%876-1.png)
+亨特在12月21日入住，直到第二天午后才退房，甚至因为晚退房而再补交了150美元。
 
-**X****：我是说看到你清醒我很开心，你甚至都不知道**
+亨特拜登在酒店消费了21号的晚餐，22号的早餐以及午餐，迷你酒吧食品以及代客泊车等。
 
-**H****：我知道的，我早就知道。**
-
-**X：或许那天一起晚餐？**
-
-**H：LY**
-
-**X：爱你？**
-
-**H：是的爱你DXriX，老天，你不会让我这么清醒去睡觉吧，**
-
-**H：TMD你刚才那个问号是什么意思，你不认为我爱你吗，或者你在说”爱你？你真不明白，你干嘛要爱我？”**
-
-**X：我只是想知道是否”LY”的意思是”爱你”！只是普通友好的方式，仅此而已。**
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25143553/image0-101.jpg)喜西农场官方Parler二维码，敬请关注！
+仅仅22号的午餐就花费了309美金。 不到24小时，亨特拜登共花费了约1500美金。亨特拜登与谁在此酒店共度良宵了呢？
 
 0
