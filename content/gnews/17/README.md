@@ -1,21 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅炸弹第六波之: 亨特半夜多次发乔和吉尔的汽车保险卡给纽约警察局办事人员
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/523984/)
+## 奇门遁甲预测 斗转星移
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/524221/)
 
-**简评：**
+撰稿人：Jenny
 
-这是亨特拜登把乔拜登和吉尔拜登夫妇的汽车保险卡的影印件转发给在的纽约警察局(NYPD) 芭芭拉\_塔维拉斯的邮件。原邮件是罗伯特\_亨特的名字从同一个电邮账户&lt;[email protected]&gt;送到罗伯特\_拜登。由此可见，当时汽车保险卡在亨特手中。介于汽车保险卡上明确表示保险卡需要被放置在车内，可见当时亨特在使用乔和吉尔拜登的车。这也从侧面可以看出，亨特的确是支付家里一切开支的那个人。最后，亨特在半夜将同一文件反复转发，也许这表示亨特的精神状态令人担忧。
+四年前的今天，在学校咖啡厅与几个人一起看直播，我是唯一一个认为川普会赢的人，我听起来像个另类。
 
-深夜将汽车保险卡连续送往纽约市警局，这是 发生了什么状况？
+还记得川普赢后，很多美国人发现大家在朋友圈里公开批评川普，但私底下却都投了他的票，彼此莞尔一笑。说起来，最初我和其他人一样，被澳大利亚的主流媒体给迷惑了，九号台，七号台一早一晚“提溜”川普，主流社会讥笑谩骂那个疯子是一种时尚，就算在酒吧，在单位，川普也是大家一起调侃的话题，没人喜欢那个傲慢无礼的家伙，最初我也不喜欢他！
 
-**The original document 原文件：**
-[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/60111cee-55f6-4a87-ba01-f0eec4f76b46.jpg?asset_id=3e7fe070-eb19-4066-8109-ab287905a451&amp;img_etag=%22b3f0e8ce74a0bb0ec095509f3efa596b%22&amp;size=2560)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/60111cee-55f6-4a87-ba01-f0eec4f76b46.jpg?asset_id=3e7fe070-eb19-4066-8109-ab287905a451&amp;img_etag=%22b3f0e8ce74a0bb0ec095509f3efa596b%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/41f74324-ffea-4837-9109-973af37d6e77.jpg?asset_id=cfacf352-9390-4abf-8852-0bed9078a02f&amp;img_etag=%220179f074c72d9a9cbb14bc5cbbb2741b%22&amp;size=2560)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/41f74324-ffea-4837-9109-973af37d6e77.jpg?asset_id=cfacf352-9390-4abf-8852-0bed9078a02f&amp;img_etag=%220179f074c72d9a9cbb14bc5cbbb2741b%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/34a86115-ec3c-4d4a-b836-9d7beb899a54.jpg?asset_id=d4c3eb63-d287-494f-9ec1-63abb4f3811a&amp;img_etag=%22cdee93afeb658cf25915d5da34768077%22&amp;size=3229)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/34a86115-ec3c-4d4a-b836-9d7beb899a54.jpg?asset_id=d4c3eb63-d287-494f-9ec1-63abb4f3811a&amp;img_etag=%22cdee93afeb658cf25915d5da34768077%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/508f583f-601b-4bd8-b81a-b091f18a2267.jpg?asset_id=b84cec8e-0d2e-4305-92fd-9d9f87b679cd&amp;img_etag=%22e656b2c564c0619797d1738bd5770713%22&amp;size=2560)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/508f583f-601b-4bd8-b81a-b091f18a2267.jpg?asset_id=b84cec8e-0d2e-4305-92fd-9d9f87b679cd&amp;img_etag=%22e656b2c564c0619797d1738bd5770713%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/67c7d8a1-ac32-4918-9879-a7551f50ff8e.jpg?asset_id=142e894f-aaf1-413c-97a1-e8376e41c7ff&amp;img_etag=%22d9803102e6bb972f70fa179ab1153d21%22&amp;size=2657)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/67c7d8a1-ac32-4918-9879-a7551f50ff8e.jpg?asset_id=142e894f-aaf1-413c-97a1-e8376e41c7ff&amp;img_etag=%22d9803102e6bb972f70fa179ab1153d21%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/034a6073-203f-41b6-9e9c-19ad816c3293.jpg?asset_id=cdbbb703-0a25-4d99-a7ca-6636fb199df6&amp;img_etag=%22363b0cfad53fb46985d1959a6fdb0537%22&amp;size=3457)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/034a6073-203f-41b6-9e9c-19ad816c3293.jpg?asset_id=cdbbb703-0a25-4d99-a7ca-6636fb199df6&amp;img_etag=%22363b0cfad53fb46985d1959a6fdb0537%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/12c67047-22d0-48f5-b407-9c005fa0e00a.jpg?asset_id=c273496f-510b-4780-8207-7002bc43a460&amp;img_etag=%226ae8251f2259a0368b3bcc998fbce02b%22&amp;size=2560)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/12c67047-22d0-48f5-b407-9c005fa0e00a.jpg?asset_id=c273496f-510b-4780-8207-7002bc43a460&amp;img_etag=%226ae8251f2259a0368b3bcc998fbce02b%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/e3084b73-f33d-4f94-88ee-c4abf49c981e.jpg?asset_id=90545237-1534-47ba-82fc-83dcd4efeb43&amp;img_etag=%227e79a47bb7f9d78c7c42192b48afb477%22&amp;size=3256)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/e3084b73-f33d-4f94-88ee-c4abf49c981e.jpg?asset_id=90545237-1534-47ba-82fc-83dcd4efeb43&amp;img_etag=%227e79a47bb7f9d78c7c42192b48afb477%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/76399ee2-831d-4be4-a81a-98c3374aedce.jpg?asset_id=e5471db8-b9a0-48b1-9812-0443b2db698e&amp;img_etag=%221a0c9694f5b0773fc30579e51d96d73d%22&amp;size=2560)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/76399ee2-831d-4be4-a81a-98c3374aedce.jpg?asset_id=e5471db8-b9a0-48b1-9812-0443b2db698e&amp;img_etag=%221a0c9694f5b0773fc30579e51d96d73d%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/e00aaeb4-541c-4ee2-b056-10edc9498476.jpg?asset_id=f5d09455-0840-4436-b279-bacc7aa4b8f1&amp;img_etag=%22481c10a5b6e0e30e4d713b9aebef1107%22&amp;size=3477)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/e00aaeb4-541c-4ee2-b056-10edc9498476.jpg?asset_id=f5d09455-0840-4436-b279-bacc7aa4b8f1&amp;img_etag=%22481c10a5b6e0e30e4d713b9aebef1107%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/8c8a8f87-50c2-4e06-9c2b-212c87daef18.jpg?asset_id=c8ab5aec-b799-432f-811e-e5ccaec44c12&amp;img_etag=%22db69b1281f09c63cd1ee01bfdb71238e%22&amp;size=2560)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/8c8a8f87-50c2-4e06-9c2b-212c87daef18.jpg?asset_id=c8ab5aec-b799-432f-811e-e5ccaec44c12&amp;img_etag=%22db69b1281f09c63cd1ee01bfdb71238e%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/1b2fef47-bc75-4a28-9789-5fe7eb45fbf9.jpg?asset_id=bc1217cc-b48d-48ef-b468-b7c2b79d79da&amp;img_etag=%22c778b844e413c702c94122789bdb713f%22&amp;size=3530)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/1b2fef47-bc75-4a28-9789-5fe7eb45fbf9.jpg?asset_id=bc1217cc-b48d-48ef-b468-b7c2b79d79da&amp;img_etag=%22c778b844e413c702c94122789bdb713f%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/41dc6f22-a9a7-491b-8255-fb4a2be77e06.jpg?asset_id=9955d8dc-fe0a-4e6b-9226-a07816434772&amp;img_etag=%221145497f6c1fcc443d457894a57bb108%22&amp;size=2560)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/41dc6f22-a9a7-491b-8255-fb4a2be77e06.jpg?asset_id=9955d8dc-fe0a-4e6b-9226-a07816434772&amp;img_etag=%221145497f6c1fcc443d457894a57bb108%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/9fbe973e-7c22-488d-ba90-0c1312965401.jpg?asset_id=34024b84-a0a6-4710-90bd-0a46df6d5207&amp;img_etag=%22811f6c96ba17c9c372bd786b6d16d418%22&amp;size=3342)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/9fbe973e-7c22-488d-ba90-0c1312965401.jpg?asset_id=34024b84-a0a6-4710-90bd-0a46df6d5207&amp;img_etag=%22811f6c96ba17c9c372bd786b6d16d418%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/eea7fd60-c994-4684-9fc9-f4db76cad4c8.jpg?asset_id=06a84c3e-a6da-4aa9-b1ca-faae0d152a0b&amp;img_etag=%22f891c9cfc2ca89023dad940d3d88e755%22&amp;size=2560)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/eea7fd60-c994-4684-9fc9-f4db76cad4c8.jpg?asset_id=06a84c3e-a6da-4aa9-b1ca-faae0d152a0b&amp;img_etag=%22f891c9cfc2ca89023dad940d3d88e755%22&amp;size=1024)
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+但是大约在大选前两周左右，有一些人开始预言他会赢，出于好奇开始关注他，却惊讶的发现原来他是个“人物”。
 
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+首先，打动我的是他的家庭竞选团队，听到伊万卡自豪地“My father this… My father that…”我开始转变了，然后又发现，他原来是个热心肠，很多人受到了他的资助，好感再次加分。
 
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/vKdPRcwXIanPA/)】
-[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-1+
+最终改变我看法的是副总统彭斯的演讲，说实话我曾经希望竞选总统的是彭斯，他更像那个神拣选的人，彭斯当时在美国政界是保守派的代表人物，也是唯一一个受到共和党和民主党双方都敬重的政客，他一身正气，家庭美满幸福，特别是他的声明，说自己先是一个神的仆人，然后才是一个共和党人，一位丈夫，一位父亲，打动了很多人，因为那时候在西方社会公开表明自己是基督徒的身份不是那么“popular”。而彭斯副总统对川普的敬重言表有佳，相信他是听从了神的召唤来辅佐川普。
+
+过去的四年，我一次次确认了川普确实是神选之子，这里就不赘述他的功绩了。咱就来看看今天全世界的人们是如何为川普连任祈祷的。
+
+一.  最早在90年代，有灵性的基督徒已经为神拣选了川普而祈祷了！首先我很抱歉我无法找到这条信息的原始资料了，好像是在YouTube（请更正），在90年代，一位牧师曾经收到一位在梵蒂冈做祷告的修行者（他很有灵性）的来信，要求他为川普祷告，为他未来成为美国总统而祷告，牧师当时非常困惑，彼时，川普是花花公子地产大亨的恶劣形象已经在被塑造了，牧师不喜悦川普情有可原，但是他出于对这位灵修者的敬重同意了这么做。当川普第一次赢得大选后，这位牧师才将那段神奇的经历分享出来。
+
+二. 全球为川普祷告
+
+15万！不同种族，不同肤色的美国人自发在林肯纪念堂为川普一家人祈祷，震惊了全世界！
+
+以色列民众聚集在族长墓前为川普连任彻夜祷告！
+
+甚至在伊朗，也出现了为川普祈祷的民众。
+
+这里，我重点想分享的是一位民间高人，他在YouTube上以奇门遁甲起局而走红，并且他是位非常有正义感的年轻人，我认为他是带着使命来人间的道义之士。他甚至也亲自为川普连任布阵，做法事。以他的话说，据他所知（阴阳两界？），很多正义力量，都在为老特头（川普）能胜任而努力，有钱的出钱，有力的出力，有祈祷的还有做法事的，各显其能。
+
+他预测：斗转星移，川普连任，板上钉钉，并立帖为证。
+
+同时，他指出，川普将乱中取胜，而那些阻挡他的势力将“游魂入墓”，乖乖啊！并且，据他所知，川普虽然有的时候，看起来比较容易冲动，做一些奇怪的事，但是他是一个善于运筹帷幄的老头，有脑系，很聪明！但他警告人们病毒可能再次发威。
+
+最后，分享一位战友从天象角度来分析的信息，2020年11月2日，木星和土星的合相将进入到20年的新循环期。12月，火白羊四分冥王，土木和水瓶四分天王，日射手四分海王三分火星。国家、政党、组织、企业的生命循环，来到一个审判的时候。世界范围内权力和资源进行重新分配。木星、土星和冥王星的三星合相，新的相位为人类社会注入一股势不可挡的进化转变的能量。这代表全世界即将发生剧烈且颠覆性的社会结构、金融经济制度和科技领域的革命性变革，一连串不可逆的洗牌效应，将影响世界的各个层面。
+
+中国古老的奇门遁甲术和西方的星相学全部指出：斗转星移！
+
+为世界和平祈祷，为**14**亿中国人民祈祷，为文贵先生祈祷，为我们爆料革命祈祷，为川普祈祷，为正义之师祈祷！
+
+
+
+0

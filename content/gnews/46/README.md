@@ -1,21 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蚂蚁金服被暂缓上市，只因一句“中国金融没有系统”
-` Ronald` [轉載自GNews](https://gnews.org/zh-hans/522783/)
+## 重磅炸弹爆料第六波之20：亨特拜登女儿骨折亨特联系医生 Hunter contacted surgeons for his daughter&#8217;s bone fracture.
+` xbwen7m` [轉載自GNews](https://gnews.org/zh-hans/523019/)
 
-内新闻/素材：庚子 校对：老白
+作者：总部直接任务 日本樱花团整理发送
 
-原定于11月5日在上交所、港交所同步上市的蚂蚁金服，双双暂缓上市。
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03110932/1-62.jpeg)
 
-上交所给出的理由是：“你公司（蚂蚁集团）实际控制人及董事长、总经理被有关部门联合进行监管约谈，你公司也报告所处的金融科技监管环境发生变化等重大事项。该重大事项可能导致你公司不符合发行上市条件或者信息披露要求”。
 
-11月2日晚，证监会网站发布消息，中国人民银行、中国银保监会、中国证监会、国家外汇管理局对蚂蚁集团实际控制人马云、董事长井贤栋、总裁胡晓明进行了监管约谈。
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03110910/2-20.jpeg)
 
-而马云等人的被约谈，起因于10月24日外滩金融峰会上马云的一句话:“中国的金融没有系统”。
 
-中共利用证交所人为可控的交易系统，一波一波的割韭菜，已经不是什么秘密了。但是堂而皇之的被指出来，中共还怎么割韭菜呢？这就是马云你的不对了！
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03110920/3-10.jpeg)
 
-新闻来源：【今日头条】[https://m.toutiao.com/is/JmAgSTR/](https://m.toutiao.com/is/JmAgSTR/)
+
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03110940/4-11.jpeg)
+
+
+
 
 0

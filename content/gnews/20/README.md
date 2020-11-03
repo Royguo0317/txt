@@ -1,71 +1,83 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 至暗时刻 坚守光明 —— 扒皮撒谎成性的乔·拜登
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/523897/)
+## 每日新闻看点-2020年11月2日
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/524081/)
 
-多伦多加喜农场 文文-自由法兰西🇫🇷
+多伦多加喜农场 大地鲲鹏
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03131348/liar-scaled.jpeg)图片来自Medium
-2020年11月3日的美国大选，不光决定着美国未来的走向，还关系到全世界所有国家的命运。是最终光明战胜黑暗，社会发展重归正道？还是地球被黑暗笼罩，人类自此万劫不复？
+校对上传 XM
 
-正如维加诺大主教在2020年10月25日致美利坚合众国总统的公开信中所说：“一个名为‘伟大重置’的全球计划正在进行中。它的设计蓝图是征服全人类的地球精英，并强行采取胁迫措施，以极大地限制每个人乃至全人类的自由。……在这个历史时刻，邪恶势力与正义力量正在进行一场没有硝烟的战斗；邪恶势力蓄谋已久，在对抗光明的儿女时，仿佛占了上风，而光明的儿女却迷失了方向，失去了组织，被他们属世和属灵的领袖所抛弃。”
+一、疫情真相
 
-因此，这场选举，不仅是代表共和党人的川普总统和代表民主党人的乔·拜登之间的竞争，还是光明之子和黑暗之子的终极对决，也是人类历史上的至暗时刻。
+1.闫丽梦博士论文：
 
-川普总统并不完美，但同与中共勾兑的邪恶势力美国代言人乔·拜登相比，他堪称是受上天庇护的天使，关键时刻，肩负带领人类重归光明的重任。
+第一份英文版[https://zenodo.org/record/4028830#.X1\_lwj-SlPa](https://zenodo.org/record/4028830#.X1_lwj-SlPa)
 
-再看乔·拜登，纵观其近50年的从政历史，他不仅是一个失败的政客，还一直是一个骗子，而其30年来同中共巨大的利益勾兑，更让他成了出卖美国人民利益的叛国者，卖美贼！
+第一份中文版[https://drive.google.com/file/d/1vZ0vbPJ9QAhGDjna9pkMxqUHhIdakODW/view?usp=sharing](https://drive.google.com/file/d/1vZ0vbPJ9QAhGDjna9pkMxqUHhIdakODW/view?usp=sharing)
 
-乔·拜登撒谎成性，历史悠久。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03131708/Joe.jpg)图片来自 Nature Gas Now
-在9月29日总统大选的第一场辩论中，面对川普总统对他儿子提出的质疑，拜登大义凛然、信誓旦旦，“我的儿子没有做错任何事。”
+第二份英文版[http://zenodo.org/record/4073131](https://zenodo.org/record/4073131)
 
-在10月22日第二场辩论中，面对同样的再次质疑，拜登目光炯炯、言之凿凿，“我这辈子从来没有从任何外国渠道拿过一分钱。亨特在中（共）国和乌克兰的生意没有涉及不道德的因素，亨特没有在中（共）国生意中获利。我从未与亨特讨论过他的交易。“
+第二份中文版[https://gnews.org/zh-hans/411364/](https://gnews.org/zh-hans/411364/)
 
-很快，亨特·拜登的前商业伙伴托尼·博布林斯基（Tony Bobulinski）就在公开采访中，指责拜登在其本人参与家人海外交易一事上撒谎——“那不是真的。我对此有第一手的了解，因为我直接与拜登一家打交道，包括与乔·拜登本人”。
+2.上周五，世卫组织国际专家组与中共专家举行了新冠病毒溯源的首次视频交流会，标志着“中外联合专家组”正式启动了所谓的对中共病毒的溯源调查。据报道，世卫组织高层已与中共私下里达成协议，放弃了国际专家组在关键问题上的调查控制权。外界对中共把持下的调查组得出准确的结论不报希望。
 
-从此，乔·拜登“Big Guy”（大人物）“美名”天下扬。
+二、新中国联邦新闻
 
-除了震惊其在同中共的勾兑中高达10%的巨额数目，估计很多读者同我一样，更惊讶于拜登在全世界面前公然撒谎的底气！
+1.新中国联邦大决战：
 
-除了上述，在其从政生涯中，拜登还有哪些可圈可点的公然挑衅大众智商的事迹呢？
+硬盘邮件解密新闻列表：
 
-据华盛顿特区《国会山报》(The Hill）今年早些时候的一篇报道，拜登曾在1987年的一次集会中自豪地声称他就读于法学院并获得了全额奖学金……且成绩在班里名列前茅，还说自己“获得了3个大学本科的学位”，是“政治学系的杰出学生”。
 
-但正如新闻工作者后来所确认的，拜登的上述说法没有一个是真的。拜登在法学院学习时，在班里的85名学生中，毕业成绩排在第76名，且只获得了部分奖学金，当然这算不得杰出。
 
-乔·拜登1987年首次问鼎民主党总统候选人，最后竞选活动之所以失败，是因为他抄袭尼尔·金诺克（Neil Kinnock）- 英国工党领袖的一段演讲被抓了现行。乔·拜登照猫画虎地挪用了这位英国工党领袖的个人历史，说自己是家族”千秋万代”中第一个从大学毕业的人，并几乎一字不差地重复了关于他妻子的同样故事，就像金诺克本人一样。
+> [【2】Drug Abuser! Hunter Biden’s Corrupted Life Revealed by Cellphone Messages. Mechanic Covering Up For Him For Money as Police Found “Crack Pip” in Biden’s Truck](https://gnews.org/517853/)
 
-更令人震惊的是，乔·拜登还声称”我的祖先… …在宾夕法尼亚州东北部的煤矿工作过”，实际上，在拜登的家谱中从没有人在地下工作过，那是金诺克的家人！
 
-而这并不是乔·拜登第一次被抓住剽窃，在法学院读书时，他从一篇已发表的法律评论文章中 “借用 “了整整5页纸且没有注明出处，最后不得不苦苦哀求不被学校开除。
 
-还有离奇的事，乔·拜登声称自己在上世纪70年代被捕过，因为他试图去监狱探望纳尔逊·曼德拉。当然这也属于子虚乌有。
 
-1972年12月18日，乔·拜登的原配妻子Neilia和女儿在一场车祸中丧生，当时两岁多的亨特·拜登和他的哥哥也在车里受了重伤。警方最后判定是Neilia错误地将车驶入了卡车的道路，而这可能是因为当时她回了头并没有看到驶来的卡车。
 
-乔·拜登却在公开场合多次指称卡车司机柯蒂斯·邓恩（Curtis Dunn）事发当天喝酒，是酒驾导致了车祸的发生。司机的女儿Pamela要求乔·拜登为他的这些不实言论进行公开道歉。根据《纽瓦克邮报》（Newark Post）早先对此事进行过报道的编辑的最新声明：乔·拜登已经在2019年对他给Pamela女士的家庭所造成的伤害做出了道歉。无疑，所谓的酒驾又是拜登一个无端的指控和谎言！
+> [独家：鲍嘉琪与亨特·拜登、罗伯特·拜登、董功文、严莫文商讨液化天然气（LNG）项目](https://gnews.org/zh-hans/521322/)
 
-正如时事评论家埃弗里特·派珀（Everett Piper）2020年10月30日在《华盛顿时报》(The Washington Times)上撰文指出：
 
-“在超过47年的公共生涯中，乔·拜登显示出自己不可抗拒的撒谎倾向。他对他的教授撒谎，他对他的选民撒谎，他对他的学术工作撒谎，他在自己的演讲里撒谎，他在支持民权的问题上撒谎，他甚至在自己妻子和年幼女儿的死亡一事上撒谎。而今天，在他的儿子亨特.拜登，布里斯马公司(Burisma)，中共和他本人勾结的问题上，他在继续对我们撒谎。”
 
-消息来源：
 
-1.[https://gnews.org/zh-hans/511976/](https://gnews.org/zh-hans/511976/)
 
-2.[https://www.foxnews.com/opinion/trump-biden-election-david-bossie](https://www.foxnews.com/opinion/trump-biden-election-david-bossie)
+> [【3】第四波亨特拜登手机内容揭秘极其露骨的淫乱生活！——“有几个火辣的大学生”“都熟透了”](https://gnews.org/zh-hans/517942/)
 
-3.[https://www.washingtontimes.com/news/2020/oct/30/joe-biden-is-a-pathological-liar/](https://www.washingtontimes.com/news/2020/oct/30/joe-biden-is-a-pathological-liar/)
 
-4.[https://nypost.com/2020/10/22/hunter-ex-partner-tony-bobulinski-calls-joe-biden-a-liar/](https://nypost.com/2020/10/22/hunter-ex-partner-tony-bobulinski-calls-joe-biden-a-liar/)
 
-5.[https://thehill.com/opinion/campaign/499065-lies-damned-lies-and-the-truth-about-joe-biden](https://thehill.com/opinion/campaign/499065-lies-damned-lies-and-the-truth-about-joe-biden)
+一切真相，尽在GNEWS。
 
-6.[https://www.reuters.com/article/idCNChina-2737120081031](https://www.reuters.com/article/idCNChina-2737120081031)
+2.“路德时评”11/2/2020节目部分内容:
 
-7.[https://gnews.org/zh-hans/515130/](https://gnews.org/zh-hans/515130/)
+a.据情报，布隆伯格执行中共策划的“红色幻影”Red Mirage大选夜将掀全美Antifa暴乱阻止川普总统连任；华盛顿 DC的市长（民主党人）不设防，故意让外围的Antifa进来市中心，围住从川普酒店到白宫这个区域；川普总统若于选举夜宣布获胜，中共将利用暴乱、股市、疫情搞乱美国；民主党已准备500余诉讼律师，利用邮寄选票造成的争端缠诉总统。主流媒体也将抹黑连任合法性。
+
+b.川普总统计划开除CIA局长、FBI局长和国防部长。
+
+c.南华早报企图利用政治化抹黑路德社揭露硬盘门，遭路德驳斥。
+
+d.2014年Wray任FBI局长前曾代理华信能源（亨特∙拜登为董事）收购俄罗斯国家石油公司股份的丑闻已曝光。王岐山当年授意姆努钦提名Wray任局长。
+
+e.亨特∙拜登与董功文在国泰银行开设共同账户的联名签署协议曝光，薄甜甜掌管该公司财务记录，将为指控拜登家族勾兑中共提供实锤证据。
+
+f.新中国联邦电台华盛顿DC演播厅加固提防大选夜暴乱。
+
+g.美国退休空军中将说：“如果川普输了，这将是最后一次自由选举”；经过中共长期渗透，美国沼泽地控制了媒体、大科技公司、华尔街资本、司法行政、情报、国防等几乎每一个行业、每一个层级、每一个角落，且隐藏极深，骗过了几乎所有善良的美国民众。幸亏有爆料革命横空出世，帮助世界一点一点看清真相。
+
+（“路德时评”早间节目[https://www.youtube.com/watch?v=ezQnl9O-r2I&list=PLt9WLG-do1atM5bjKoiSQuXncbmVnEESC&index=4](https://www.youtube.com/watch?v=ezQnl9O-r2I&amp;list=PLt9WLG-do1atM5bjKoiSQuXncbmVnEESC&amp;index=4)）
+
+（“路德时评”晚间节目[https://www.youtube.com/watch?v=PWXl4icSGRs&list=PLt9WLG-do1atM5bjKoiSQuXncbmVnEESC&index=3](https://www.youtube.com/watch?v=PWXl4icSGRs&amp;list=PLt9WLG-do1atM5bjKoiSQuXncbmVnEESC&amp;index=3)）
+
+3.中共于5月对原产澳洲的进口大麦课征80.5%的反倾销及反补贴税。中共上个星期拒绝了澳大利亚关于取消对澳课征高额关税的请求。另外11月2日，中共”崴脚部”发言人汪文斌证实，中方已禁止进口澳大利亚昆士兰州的原木。
+
+4.中共国中国银行和交通银行11月2日发布公告称，预计北京时间11月3日至4日贵金属、外汇市场市场风险可能加剧。如果市场波动加剧，可能会限制贵金属和外汇产品的交易。这正是美国大选结果落定的时间，中共很可能是这次波动的始作俑者。
+
+5.11月2日报道，爱尔兰有名的商人、电信巨头华为公司的企业传播副总裁乔·凯利（Joe Kelly）上周在中共国深圳突然去世，终年55岁。凯利专长危机处理，曾帮助华为驳斥指控。
+
+三、世界新闻
+
+1.川普总统否认在选举夜提前宣布胜选，但暗示共和党将寻求阻止在大选日之后继续清点选票。
+
+2.美国国家法律和政策中心周日（11月2日）向美国司法部提交一份长达12页的诉状，要求对亨特·拜登及几个相关机构进行调查，以确定它们代表中共利益从事政治活动时，是否遵守了外国代理人注册法（FARA）。
 
 0
