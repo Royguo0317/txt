@@ -1,27 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅炸弹第六波之：拜登夫妻分居后的税务遗留问题
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/522302/)
+## 从水门事件到拜登门事件：主流媒体如何丑陋地掩盖真相
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/522675/)
 
-*翻译/简评：Victor K｜校对：MikeHua｜审核：John Wallis｜Page：玄天生；*
+*喜马拉雅联盟加拿大农场 文来
+原文作者 Liberte
+校对 文锦 上传 WJ*
 
-**简评：**
+据GNEWS11月2日报道，现在的美国已经达到了反乌托邦的境地，所谓的主流媒体决定丑闻何时成为丑闻。他们不再为公共利益服务，而是仅为在中共控制的中国以及他们狭义的马克思主义－全球主义议程中的经济利益服务。他们不知羞耻地封杀对可能对拜登当选有负面影响的故事。他们不再作为受信任的第四阶级服务于公共利益。
 
-以下邮件是亨特拜登前妻凯瑟琳拜登（Kathleen Buhle）的律师（Rebekah Sullivan）写给亨特拜登的律师（Sarah Mancinelli）的。主要就亨特拜登夫妻分居后的税务遗留问题沟通。邮件时间为2018年11月27日，而邮件中讨论的税务问题是2015年的遗留问题。（据新闻报道，两人与2015年分居， 2017年正式离婚）
+正如托马斯·杰斐逊（Thomas Jefferson）著名的声明：“*没有比我们现在正在尝试的实验更有趣的事情了，那就是信任需要建立在理性和真相之上。因此，我们的首要目标应该是向它敞开一切通往真相的道路。迄今为止发现的最有效的方法是新闻自由。”*
 
-![]()![](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/463d1b42-5100-4a2b-a5ff-7d438743e346.png?asset_id=b900f6ef-f089-4d63-9cf3-1d53bb7ad2a2&amp;img_etag=%22514aef6f68a7ae8b3e228c815fce0436%22&amp;size=1024)
+上个月前中央情报局局长约翰·布伦南（John Brennan）解密的手写笔记被发布出来，表明他于2016年7月28日向时任总统奥巴马通报了情报证据，表明希拉里批准了一项针对川普的虚假指控的计划。这是俄罗斯串通骗局的起源。希拉里这样做是为了分散她的电子邮件丑闻。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01075959/3%E9%81%BF%E4%B8%AAname.jpg)
+几个月来，她通过在竞选演讲中指控特朗普是克里姆林宫的资产和“普京的玩偶”，为该计划做好了准备。当然，没有任何实际证据。这是一个无耻的谎言，可以从索尔·阿林斯基的《激进主义规则》或中共的《第9号文件》中得出。
 
-![]()![](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/2cf7ac24-18fb-4b46-b055-2e518f5c0e4a.png?asset_id=c66e0722-b8fb-456a-bec6-58c63716c866&amp;img_etag=%226e3f74a7d27f0ba8a8dbcc19879916c9%22&amp;size=2560)
+当希拉里被揭露实施整个事件时，媒体报道的所謂的 “这是自水门事件以来最大的故事-俄罗斯串通川普总统丑闻的头条” 突然变得不值得报道。所谓的主流媒体不顾公共利益，完全掩盖事实。
 
-![]()![](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/0f1d1f25-13c5-438f-a59b-9d606a97ae8e.png?asset_id=411fbc6d-1ba9-431d-a2f4-f76603446fe9&amp;img_etag=%225fb32e637661a49d74d8ca4308a1b4aa%22&amp;size=1024)
+十月份，自从“爆炸性的” 关于乔·拜登（Joe Biden）声称自己对自己的儿子亨特（及其合伙人）在中国和乌克兰的业务往来一无所知的谎言被报道出来，《纽约邮报》（New York Post）如今已成为历史上唯一的一家捍卫新闻工作者的完整性和独立性的传统媒体组织之一。但是社交媒体巨头们，特别是推特，封锁了《纽约邮报》和所有的试图分享拜登故事的推特账号并删除了分享的有关拜登的故事，以迎合拜登和他的派系。
 
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+《华盛顿邮报》没有向读者提供有关牵涉拜登一家的电子邮件的分析，而是宣称：“选举日前三周，特朗普盟友企图追究亨特和乔·拜登”。该标题的寓意是显而易见的，意味着故事源于特朗普的盟友，而不是笔记本电脑的电子邮件，或者最终是亨特·拜登及其撰写电子邮件的业务伙伴。此外，《纽约时报》和《洛杉矶时报》否认了有关乔·拜登的腐败行为的可信度（尽管多年来在华盛顿圈子中广为人知），认为是未经证实的虚假信息。他们称赞社交媒体平台采取了阻止虚假信息传播的政策，并声称现在这些努力终于“见成效”。
 
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+这种公然的双重标准引起广泛的警觉。媒体党派认为亨特·拜登笔记本电脑丑闻不值得关注，但却用头版不断宣传对特朗普的任何捏造丑闻。媒体党可以昧着良心来决定什么是丑闻，什么不是丑闻。假新闻变成真实的，真实卻变成假的。
 
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/oq0RNu8iDoJpi/)】
+本杰明·富兰克林（Benjamin Franklin）曾經对于有可能滥用新闻自由的言论发表了先见之明：“*在联邦宪法上已经撰写并发表了太多文章，并且对善政的所有其他部分进行检查的必要性也已经得到了清晰明确的了解，我发现自己很开明，以至于怀疑在这一部分也可以进行检查; 但我无所适从，想像不到任何可能被解释为侵犯新闻界神圣自由的行为。*”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/d288ddc9-49ef-4598-9cc8-c487df77a030.jpg?asset_id=de90ac60-ba89-4373-9678-a3f55df1aa6b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/d288ddc9-49ef-4598-9cc8-c487df77a030.jpg?asset_id=de90ac60-ba89-4373-9678-a3f55df1aa6b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+法国政治思想家和历史学家托克维尔(Alexis do Tocqueville)明智地指出：“从*长远来看，当新闻界的众多机构前进时，它们的影响力几乎不可抗拒，而总是从同一侧来袭的公众舆论却因受到打击而屈服。”*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03100918/WhatsApp_Image_2020-11-02_at_14.43.35-1.jpg)
+对媒体的核实曾经是媒体本身，这是诚信和独立的新闻信条的专业性。现在，他们都以勾结狭义的财务和意识形态为目标，和黑帮集团没什么区别了。
+
+相关连接：
+
+[Watergate to Bidengate: How the Media Party Scandalously Failed to Report the Biden Scandal](https://gnews.org/513454/)
 
 0

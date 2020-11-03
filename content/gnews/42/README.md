@@ -1,71 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家：亨特.拜登要求向他私人账户转款，财务顾问要求他解答如何处理账户中的学生贷款及车费等支出
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/522522/)
+## 重磅炸弹第六波之：拜登夫妻分居后的税务遗留问题
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/522302/)
 
-翻译：多伦多加喜农场 大地鲲鹏
+*翻译/简评：Victor K｜校对：MikeHua｜审核：John Wallis｜Page：玄天生；*
 
-校对上传： HUH
-![]()![](https://media.discordapp.net/attachments/721388937553248396/773193184859127848/Snipaste_2020-11-03_22-33-24.png?width=923&amp;height=509)
-**来自**：罗伯特·亨特
+**简评：**
 
-**主题**：回复：需要在12:00之前回答
+以下邮件是亨特拜登前妻凯瑟琳拜登（Kathleen Buhle）的律师（Rebekah Sullivan）写给亨特拜登的律师（Sarah Mancinelli）的。主要就亨特拜登夫妻分居后的税务遗留问题沟通。邮件时间为2018年11月27日，而邮件中讨论的税务问题是2015年的遗留问题。（据新闻报道，两人与2015年分居， 2017年正式离婚）
 
-**日期**：2018年12月21日上午9:44
+![]()![](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/463d1b42-5100-4a2b-a5ff-7d438743e346.png?asset_id=b900f6ef-f089-4d63-9cf3-1d53bb7ad2a2&amp;img_etag=%22514aef6f68a7ae8b3e228c815fce0436%22&amp;size=1024)
 
-**致**：edward.e.prewitt
+![]()![](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/2cf7ac24-18fb-4b46-b055-2e518f5c0e4a.png?asset_id=c66e0722-b8fb-456a-bec6-58c63716c866&amp;img_etag=%226e3f74a7d27f0ba8a8dbcc19879916c9%22&amp;size=2560)
 
-**抄送**：[dodgekatie13; cynthia.duncan](/cdn-cgi/l/email-protection#7713181310121c16031e12464437101a161e1b5914181a4c524547140e19031f1e16591302191416193700121b1b0411160510181613011e041805045914181a)
+![]()![](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/0f1d1f25-13c5-438f-a59b-9d606a97ae8e.png?asset_id=411fbc6d-1ba9-431d-a2f4-f76603446fe9&amp;img_etag=%225fb32e637661a49d74d8ca4308a1b4aa%22&amp;size=1024)
 
-请向5858帐户转款。
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-亨特·拜登
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-![]()
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/oq0RNu8iDoJpi/)】
 
-2018年12月21日下午12：22，edward.e.prewitt写道：
-
-为了支票不被退还，需要在中午之前答复。谢谢
-
-
-
-**需要答复的邮件附件如下：**
-
-**来自**: 辛迪·邓肯（Fayetteville，AR）
-
-**发送**：2018年12月21日，星期五11:15 AM
-
-**致**：edward.e.prewitt
-
-**主题**：我还没有转款。
-
-亨特的欧元已记入PC活期存款帐户，目前余额为$39,239.07。该帐户中有一笔借款。
-
-个人活期存款帐户余额-&lt;$ 190.63&gt;
-
-目前您的个人活期存款帐户（5858）中有2个空头支票需要处理，我们要在标准时间12:00之前完成付款，否则支票将退还。 他们是：
-
-$ 348.66       学生贷款
-
-$ 668.63       车费
-
-$ 1017.29
-
-该银行的余额为$1,529.65
-
-请告知该如何处理…….
-
-&lt;image003.jpg&gt; &lt;image004.jpg&gt; （附件未能读取）
-
-**辛迪·邓肯，**
-
-**高级客户助理**
-
-
-
-
-
-
+[!\[\]()!\[\](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/d288ddc9-49ef-4598-9cc8-c487df77a030.jpg?asset_id=de90ac60-ba89-4373-9678-a3f55df1aa6b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/oq0RNu8iDoJpi/images/d288ddc9-49ef-4598-9cc8-c487df77a030.jpg?asset_id=de90ac60-ba89-4373-9678-a3f55df1aa6b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

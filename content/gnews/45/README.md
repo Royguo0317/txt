@@ -1,66 +1,97 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 渤海华美收购美国最大影院集团：富豪娱乐Regal Entertainment（亨特拜登-卢长祺）
-` 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hans/522666/)
+## 独家：董功文与亨特·拜登联名签署协议
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/522523/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03100435/Screen-Shot-2020-11-03-at-10.04.05-AM.png)
+多伦多加喜农场 忠勇无双 鹰嘴逗逗 文星（一号）
+
+校对 大地鲲鹏 上传 XM
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03100137/97-1-1.jpg)
+国泰银行印鉴（信件左上角）
+
+联名签署协议
+
+客户：哈德逊西部lll有限公司（Hudson West LLC）
+
+帐号：655928969
+
+您（如客户所述，“您”或“客户”）要求国泰银行（“我们”，“我们”或“银行”）对于所有分支机构的提款和提取支票，必须需要所有如附表A所列签名人或授权人的签名，银行和客户可不时以书面形式相互联系。
+
+您确认银行仅根据商品上编码的MICR信息以自动方式处理某些支票（有时称为“批量归档”）。因此，某些美元金额以下的支票可能不会进行目视检查，以确定它们是否由附表A中列明的要求的签名人签署，并且您同意银行对任何未经我们目视检查的支票均不承担本协议的责任。 尽管我们保留通过自动方式处理某些支票的权利，但我们同意拒绝取款并退回我们在目视检查中发现的不符合本协议要求的支票。
+
+您同意，如果我们根据本协议进行项目付款，则您可以免除我们认为该项目付款不正确的任何麻烦。 如果我们根据本保证书拒付物品，则您可以免除我们对物品已正确付款的任何索赔以及对不当拒付物品的任何索赔。 您同意受制于以您的名义发出并经我们根据协议接受的任何指示，无论您是否授权，都必须服从该指示。
+
+此安排为您特殊定制，作为回报，您同意：
+
+（1）您同意就此服务实施合理的内部安全程序。 如果您选择不这样做，则表示您同意在您的帐户、交易和对帐单方面接受更高的安全标准。
+
+（2）您将为此服务向银行支付费用。
+
+（3）联名签署的服务费取决于附表A中规定的服务水平：
+
+a. 任何2个签名支付$ .03审阅费，不包含任何美元或所列条件。（即A组人员和B组人员）
+
+b.包含任何美元和/或所列条件的签名，每个支付$.05审阅费。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03100154/97-2-1.jpg)
+（4）您的支票将包含附表A要求的签名数的签名行。如果您购买的支票未能包含正确的签名行数（或醒目的图例说明要求的签名数），我们可以根据附表A上列出的任意一人签字兑现支票。
+
+（5）您须及时的查看（5日内收到，或可查）所有账户账单、通知、支票以确认所有交易被正确的人授权签字。
+
+（6）您须立即通知银行，如果任何提款或交易是被非授权的人操作的。
+
+（7）你须立即书面通知银行有关任何附表A的改动， 并同意提交一份含有最新内容的附表A。
+
+（8）如果附表A中列出的任何授权签署人将使用面部签名，则将单独执行标题为“面部签名协议”的协议，以使传真签名生效。
+
+（9）除非我们另行书面同意，在任何汇款、银行卡、网上银行（包含网上BillPay）或其他你和银行之间的现金管理合同中，这份安排将不会替换任何不同的授权要求描述。
+
+除非我们另行书面同意，否则此安排将不会取代您与银行之间任何电汇、银行卡、在线银行（包括在线BillPay）或其他现金管理协议中规定的任何不同授权要求。
+
+本协议包含并取代了您的帐户协议中的条款（如有歧义）。 银行保留以与您的帐户协议相同的方式修改这些条款的权利。
+
+签字同意以上条款
+
+由：                    （客户签名）         日期：
+
+董功文与罗伯特·亨特·拜登(职位)
+
+Hudson West V LLC总裁，OWASCO P.C.董事长
+
+国泰银行
+
+由：                      （客户签名）       日期：
+
+（职位）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03100217/97-3-1.jpg)
+客户：哈德逊西部lll有限公司
+
+账号： 655928969
+
+联名签署协议的附表A
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03100230/97-4-1.jpg)
+
+| $10,000.00 以下  |   A，B，C组任何一个签字人 |
+| --- | --- |
+| $            至 $         |     方一个签字人 和    方一个签字人 |
+| $            至 $         |     方一个签字人 和    方一个签字人 |
+| $10,000.01 以上 | A组任何两人共同签名 |
 
 
+此授权将有保持完全的效力，直到客户书面更改并被国泰银行接受为止。
 
+日期： 2017年9月14日          哈德逊西部lll有限公司（客户）
 
-关键词：渤海华美、亨特拜登、摩根斯坦利、桑顿集团、卢长祺
+签字人： 董功文 （签字）
 
-**富豪娱乐Regal Entertainmant：美国最大影院集团**
+国泰银行认同并接受                此据：Hudson West V LLC总裁
 
-**[桑顿集团](https://www.thorntongroup.com/)（Thronton Group LLC）：美国咨询公司**
+签字：                            签字人：罗伯特·亨特·拜登 （签字）
 
-## 2014年11月11日-12月12日ReRe\_Regal
+此据：———————             此据：OWASCO P.C.董事长
 
+（职位）                          ——————————————
 
-![](https://lh4.googleusercontent.com/M7rXhAw8NXr1ywK0hU5uXfpdlkbixaVQaMsAuYV2XCvqkDMZ104l3UJPPLqj06WInLoF38NjinEFy4TiQClONkMxxGRigV28dnWFEcgF20HnPsrOWE0vORqW3or5AfKW_Obs79A)
-非常感谢你的快速反应。摩根斯坦利已被任命为富豪娱乐的FA. 这将是一个约20亿美元的私有化交易。 下周一在上海与James Gorman先生会面后，我将尝试获得更多信息。如果有任何更新会通知你. 一旦你有任何关于交易的信息，请随时告诉我。
-
-谢谢，问候
-
-Andy (安迪)
-![](https://lh5.googleusercontent.com/j2LR4NzSMJIvXH7uQMnBM8bvtr2I4iPSmk82suqL9cYlotfdAPQmF3bhc6SdWAZLqvB-BB_eZtH7yC5xNr4na6INcqTMV7oow4M6Fz9hhFm4NMZTEbzAi48j0Me5nN3nyiX0cdA)
-Andy (安迪)
-
-安迪
-
-我也在试图确定我们在这里可能有什么直接的关系，如果有任何线索，我会向吉米和迈克尔报告。
-
-RHB
-
-202.333.1880
-![](https://lh6.googleusercontent.com/LGB2LaUC6WjkH3Ydi6em1HgiYnFblxEItiEG2Ghm1yXzcgujqZBGTwzyNNOcLG3BN2OZ4PE3WjBdER86BEhRaOsqmbcw7e_mwjQTa4pACVf0nmJgqzDbc-NyX_eAX6bzD0dSt3w)
-2014年11月11日下午4:07,詹姆斯·布尔格写道:
-
-安迪
-
-我个人不认识高曼先生 只知道他的声誉很好。我在这里忙于其他与BHR相关的问题，但会尝试四处寻找有关您提出的Regal Entertainmant问题的指导。娱乐行业显然对与中国建立更紧密的联系感兴趣，我们看到这类新闻经常在美国媒体上报道。我会尽快为您找到一些具体信息
-
-谢谢
-
-吉米
-
-2014年11月7日，星期五，卢长祺（Andy Lu）&lt;[email protected]&gt;写道：
-
-亲爱的大家
-
-摩根士丹利向我们介绍了富豪娱乐会出售。 董事长兼首席执行官詹姆斯·戈尔曼女士下周将在上海举办午餐会，我应邀与他见面. 我希望您能帮助验证富豪娱乐是否真的可以出售。 如果万达想购买，由于万达已经拥有AMC，是否有可能获得批准？ 此外，如果你们中有人熟悉詹姆斯，请在我与他会面之前向他介绍BHR。
-
-如有任何疑问，请随时与我联系
-
-谢谢和最诚挚的问候
-
-安迪
-![](https://lh5.googleusercontent.com/FssDFBvzJbPXG6xCvDeWWbAUUO3imNfZxmyFDzT19A2OBPtgAWMkk590MJ2fCCDns8he_uynx5x5Gm7e_m5u4zRtt2yf3Bz0baTGuyZjAUwVGUQx32pPey9EoujBLxJ7Xn0RZZY)![](https://lh4.googleusercontent.com/5yU3RRWdz3CMjzCLGR17E_bwWmNh-x6dGGLVGFarSYgpamh54j26qRoIGqu332CduVTksA_GYcOWQvvfjiPCqxSdnnP_Gd_Lx7KAhGJx1TlVZo3r3wnsGR6IArJhoH5FzCR6VP0)
-詹姆斯·布尔格
-
-主席
-
-桑顿集团LLC
+（职位）
 
 0

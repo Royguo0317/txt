@@ -1,37 +1,83 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 邪恶势力策划关闭联邦机构 破坏美国大选结果
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/524021/)
+## 每日新闻看点-2020年11月2日
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/524081/)
 
-*加拿大草原三省战友团 重生之鹰*
+多伦多加喜农场 大地鲲鹏
 
-*校对 风云小哥 上传 WJ*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03142725/ZOOM.jpg)图片来源：Sunrise Exposed
-据DJHJ MEDIA11月2日报道，数十份被泄露的文件和ZOOM视频片段周日被公开。这些资料揭露了包括联邦工作人员在内的进步活动人士企图扰乱和破坏周二美国总统大选结果的计划。他们计划关闭包括白宫在内的联邦政府机构。
+校对上传 XM
 
-在网站上可以看到这些被泄露的信息，更多的信息将在接下来48小时内更新。所有的信息都已移交给执法部门。
+一、疫情真相
 
-来自日出运动(Sunrise Movement)的吹哨人透露，由自由主义活动人士组成的网络已经在全国范围内动员起来，这些人企图在即将到来的政变中制造混乱、破坏甚至骚乱。详情可以回看9月初的关于川普看起来会赢得选举之夜的报道。
+1.闫丽梦博士论文：
 
-这些文件和视频片段讨论了一项组织很好的在选举结果开始时关闭包括白宫和国会在内的联邦建筑和关闭公共交通系统的行动。日出运动是由400个不同的左翼活动团体组成的活动中心的一部分。
+第一份英文版[https://zenodo.org/record/4028830#.X1\_lwj-SlPa](https://zenodo.org/record/4028830#.X1_lwj-SlPa)
 
-在被称为关闭华盛顿DC（Shut Down DC）的ZOOM视频中，一位发言人说:
-我们已经讨论了几个月关于如何应对不同的有争议的选举场景。第一步我们认为在选举开始后的阶段需要出现在街道上，所以我们邀请每个人在选举之夜4点后的任何时间来到BLM (Black Lives Matter)广场。11月5号，我们将关闭白宫。11月6号，我们将关闭华盛顿的大部分地区。然后在接下来的一周所有的主流团体将会来到华盛顿并在7号进行游行。
+第一份中文版[https://drive.google.com/file/d/1vZ0vbPJ9QAhGDjna9pkMxqUHhIdakODW/view?usp=sharing](https://drive.google.com/file/d/1vZ0vbPJ9QAhGDjna9pkMxqUHhIdakODW/view?usp=sharing)
 
-这是九月份所写的当时一群激进分子包括许多著名的民主党人聚集在一起讨论的战争场景。他们代表民主党、共和党、法院和军方等。最后他们决定如果川普赢了，他们希望发生一场街头斗争而不是法律斗争。
+第二份英文版[http://zenodo.org/record/4073131](https://zenodo.org/record/4073131)
 
-这里有一段ZOOM视频显示包括律师和情报人员在内的联邦雇员活动人士阴谋利用职权扰乱和破坏任何有利于川普总统的选举结果。这是暴动，他们都应该立即被解雇。永远不要让别人告诉你深层政府(deep state)不存在，因为这里有一些深层政府存在。
+第二份中文版[https://gnews.org/zh-hans/411364/](https://gnews.org/zh-hans/411364/)
 
-进步人士社区已经招募了一些关键人物包括丽萨·菲西安(Lisa Fithian)，她是一位长期的组织者和培训师，曾从事过“占领华尔街”和许多工会运动。在描述关闭华盛顿的工具和策略的视频中她说:“谁有枪谁就能赢，让我们接管大楼! 我们将陷入危机，但我们希望危机是我们自己制造的。我们要确保我们是在进攻而不是防守。我们希望他们回应我们，而不是我们回应他们。”
-我认为左翼分子在制造危机。我不知道他们会取得什么进展，但他们会伤害到一些人。你不能到处乱跑，这样会造成混乱，破坏和骚乱。特别是如果你要在街上制造麻烦，民众的安全会变成严重的问题。2016年选举结果后，我们看到了骚乱和抗议。但是相比今年夏天和全国所有城市即将发生的准备了数月的选举之夜开始的暴动，2016年的骚乱就像雪花和公园野餐一样轻微。
+2.上周五，世卫组织国际专家组与中共专家举行了新冠病毒溯源的首次视频交流会，标志着“中外联合专家组”正式启动了所谓的对中共病毒的溯源调查。据报道，世卫组织高层已与中共私下里达成协议，放弃了国际专家组在关键问题上的调查控制权。外界对中共把持下的调查组得出准确的结论不报希望。
 
-**简评**：这次美国大选不仅关乎美国，也关乎中国，甚至全人类的命运，是正义与邪恶的终极之战。邪恶势力会策划影响大选，他们无力扭转败局时不会坐以待毙。但是相信代表正义力量的川普总统一定会力挽狂澜，排干沼泽，乱中取胜，重掌白宫。川普总统会带领正义力量战胜以中共为首并与之勾结的一切邪恶势力。中国人民和世界人民将重获自由、民主、法治，人类将进入没有战争，和平永续发展的新纪元！
+二、新中国联邦新闻
 
-新闻来源：
+1.新中国联邦大决战：
 
-[Sunrise Exposed](http://www.sunriseexposed.com/)
+硬盘邮件解密新闻列表：
 
-[Federal Workers Caught on Leaked Zoom Calls Plotting to Shut Down Federal Government Including the White House If Trump Wins](https://djhjmedia.com/rich/federal-workers-caught-on-leaked-zoom-calls-plotting-to-shut-down-federal-government-including-the-white-house-if-trump-wins-video/)
+
+
+> [【2】Drug Abuser! Hunter Biden’s Corrupted Life Revealed by Cellphone Messages. Mechanic Covering Up For Him For Money as Police Found “Crack Pip” in Biden’s Truck](https://gnews.org/517853/)
+
+
+
+
+
+> [独家：鲍嘉琪与亨特·拜登、罗伯特·拜登、董功文、严莫文商讨液化天然气（LNG）项目](https://gnews.org/zh-hans/521322/)
+
+
+
+
+
+> [【3】第四波亨特拜登手机内容揭秘极其露骨的淫乱生活！——“有几个火辣的大学生”“都熟透了”](https://gnews.org/zh-hans/517942/)
+
+
+
+一切真相，尽在GNEWS。
+
+2.“路德时评”11/2/2020节目部分内容:
+
+a.据情报，布隆伯格执行中共策划的“红色幻影”Red Mirage大选夜将掀全美Antifa暴乱阻止川普总统连任；华盛顿 DC的市长（民主党人）不设防，故意让外围的Antifa进来市中心，围住从川普酒店到白宫这个区域；川普总统若于选举夜宣布获胜，中共将利用暴乱、股市、疫情搞乱美国；民主党已准备500余诉讼律师，利用邮寄选票造成的争端缠诉总统。主流媒体也将抹黑连任合法性。
+
+b.川普总统计划开除CIA局长、FBI局长和国防部长。
+
+c.南华早报企图利用政治化抹黑路德社揭露硬盘门，遭路德驳斥。
+
+d.2014年Wray任FBI局长前曾代理华信能源（亨特∙拜登为董事）收购俄罗斯国家石油公司股份的丑闻已曝光。王岐山当年授意姆努钦提名Wray任局长。
+
+e.亨特∙拜登与董功文在国泰银行开设共同账户的联名签署协议曝光，薄甜甜掌管该公司财务记录，将为指控拜登家族勾兑中共提供实锤证据。
+
+f.新中国联邦电台华盛顿DC演播厅加固提防大选夜暴乱。
+
+g.美国退休空军中将说：“如果川普输了，这将是最后一次自由选举”；经过中共长期渗透，美国沼泽地控制了媒体、大科技公司、华尔街资本、司法行政、情报、国防等几乎每一个行业、每一个层级、每一个角落，且隐藏极深，骗过了几乎所有善良的美国民众。幸亏有爆料革命横空出世，帮助世界一点一点看清真相。
+
+（“路德时评”早间节目[https://www.youtube.com/watch?v=ezQnl9O-r2I&list=PLt9WLG-do1atM5bjKoiSQuXncbmVnEESC&index=4](https://www.youtube.com/watch?v=ezQnl9O-r2I&amp;list=PLt9WLG-do1atM5bjKoiSQuXncbmVnEESC&amp;index=4)）
+
+（“路德时评”晚间节目[https://www.youtube.com/watch?v=PWXl4icSGRs&list=PLt9WLG-do1atM5bjKoiSQuXncbmVnEESC&index=3](https://www.youtube.com/watch?v=PWXl4icSGRs&amp;list=PLt9WLG-do1atM5bjKoiSQuXncbmVnEESC&amp;index=3)）
+
+3.中共于5月对原产澳洲的进口大麦课征80.5%的反倾销及反补贴税。中共上个星期拒绝了澳大利亚关于取消对澳课征高额关税的请求。另外11月2日，中共”崴脚部”发言人汪文斌证实，中方已禁止进口澳大利亚昆士兰州的原木。
+
+4.中共国中国银行和交通银行11月2日发布公告称，预计北京时间11月3日至4日贵金属、外汇市场市场风险可能加剧。如果市场波动加剧，可能会限制贵金属和外汇产品的交易。这正是美国大选结果落定的时间，中共很可能是这次波动的始作俑者。
+
+5.11月2日报道，爱尔兰有名的商人、电信巨头华为公司的企业传播副总裁乔·凯利（Joe Kelly）上周在中共国深圳突然去世，终年55岁。凯利专长危机处理，曾帮助华为驳斥指控。
+
+三、世界新闻
+
+1.川普总统否认在选举夜提前宣布胜选，但暗示共和党将寻求阻止在大选日之后继续清点选票。
+
+2.美国国家法律和政策中心周日（11月2日）向美国司法部提交一份长达12页的诉状，要求对亨特·拜登及几个相关机构进行调查，以确定它们代表中共利益从事政治活动时，是否遵守了外国代理人注册法（FARA）。
 
 0
