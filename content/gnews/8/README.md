@@ -1,57 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特和哈莉于2017年一起租用了海滨別墅
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/521075/)
+## 独家：亨特·拜登的邮件内容115
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/521136/)
 
-翻译：TCC；校对：Johnwallis；Page：拱卒
+2016年5月12日 上午11點33分
 
-## 亨特和哈莉于2017年一起租用了海滨別墅
-[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/41e8a52e-fbe6-4f3e-b760-28b82d949a39.jpg?asset_id=560fed7a-9ec2-4449-94e3-a5e78f15e1d1&amp;img_etag=%22826ae7c35a8beacf569b1790eb26bf3b%22&amp;size=2560)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/41e8a52e-fbe6-4f3e-b760-28b82d949a39.jpg?asset_id=560fed7a-9ec2-4449-94e3-a5e78f15e1d1&amp;img_etag=%22826ae7c35a8beacf569b1790eb26bf3b%22&amp;size=1024)
-本文档包含4个部分：
+（抄送自）一年佛斯瓶裝水供應
+謝麗爾·施耐德致凱瑟琳·拜登——
+早安凱瑟琳！恭喜成爲今年幸運獲獎者之一！我負責運水，需要以下信息：瓶种選擇，1，五百毫升PET硬塑料裝；2，三百七十五毫升硬質玻璃裝；3，三百七十五毫升碳酸玻璃裝。你可選擇一種或多種（後者也是我的推薦）。然後是套數統計，每套有二十四瓶。根據規定，所有貨品都是瓶裝水，並且將一次送達。以及送貨地址，聯係人姓名和電話。一旦提供上述信息，我會通知你送貨日期（一般在兩到三天後）如有任何問題，本人知無不言，悉聽尊便。
 
-1. 马里兰州房地产委员会”了解房地产经纪人的代表”文件（第1-2页）
-2. Anne Arundel县的住宅租赁协议（第3-12页）
-3. 租赁协议的附件（第13-14页）
-4. 合同的附件（第15页）
-5. 联邦和马里兰州的房东/租户披露关于含铅涂料和/或含铅涂料危害信息（第16-24页）
+2016年5月12日 下午2點13分，凱瑟琳·拜登寫道：
+一半碳酸水，一半普通水？一半是芬妮的，她只愛普通瓶裝水。你呢？
 
+2016年5月12日 下午2點31分，亨特·拜登寫道：
+這是一年的供應，所以一半一半。
 
-这是一项租赁协议，由房地产经纪人Coldwell Banker Residential Brokerage的Mary Beth Paganelli代表NAPA开发公司的房东Gladys Antezana（马里兰州房地产委员会”了解房地产经纪人代表”, 第2页）起草。在租赁协议中，它表明上市经纪人和租赁经纪人的名称和公司分别是Coldwell Banker Residential Broker的Mary Beth Paganelli和Long及Foster的Joe Bray。
+From: Hunter Biden [email protected]
+Subject: Re: One Year Supply of Voss Water
+Date: May 12, 2016 at 11:33 AM
+To: Kathleen Kathleen [email protected]
+Cc: Hunter Biden [email protected]
 
-这租约（图1）于2017年12月15日由房东Gladys Antezana与租户亨特拜登和 哈莉·拜登（图2）签订的。房屋的地址是马里兰州安那波利斯的1300 Emory Road（图3）。租赁期限为12个月零6天，自2017年12月26日至2018年12月31日止。
-[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/ae54039d-c60f-4920-b599-f54d097ea7c5.jpg?asset_id=5c75faf8-6e5f-41e5-abbf-d5f0f4a31f47&amp;img_etag=%22eb9e73712695418795dc6a495d5c0ec4%22&amp;size=3333)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/ae54039d-c60f-4920-b599-f54d097ea7c5.jpg?asset_id=5c75faf8-6e5f-41e5-abbf-d5f0f4a31f47&amp;img_etag=%22eb9e73712695418795dc6a495d5c0ec4%22&amp;size=1024)
-图1
+R. Hunter Biden Rosemont Seneca Partners Washington D.C. 202-333-1880
+On May 12, 2016, at 2:31 PM, Hunter Biden [\[email protected\]](/cdn-cgi/l/email-protection#f098929994959eb0829f83959d9f9e8483959e959391de939f9d) wrote:
+its a years supply so get half and half
+R. Hunter Biden Rosemont Seneca Partners Washington D.C. 202-333-1880
+On May 12, 2016, at 2:13 PM, Kathleen Biden [\[email protected\]](/cdn-cgi/l/email-protection#f992988d91959c9c979b909d9c97b994989ad79a9694) wrote:
+1/2 and 1/2 sparkling and flat?
+The one thing is Finny is the one who loves her bottled water and she only likes flat.
+What about you?
+Sent from my iPhone
 
-租金按月分期付款，为7,000美元，应在每月的第一天支付，应付给位于美国西北华盛顿特区5133 MacArthur 大道的NAPA Development Corp.（给 Gladys Antezana）。
-[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/b9b58ac1-cdc9-445f-9dfc-c19146a680b4.png?asset_id=411de07f-e4a2-47a4-a7fb-c50f237426d8&amp;img_etag=%2270a4cd68b5af46443b46b9f49630e935%22&amp;size=2560)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/b9b58ac1-cdc9-445f-9dfc-c19146a680b4.png?asset_id=411de07f-e4a2-47a4-a7fb-c50f237426d8&amp;img_etag=%2270a4cd68b5af46443b46b9f49630e935%22&amp;size=1024)
-图二、哈莉(左)、亨特(右)
+Begin forwarded message:
+From: Cheryl Snyder [\[email protected\]](/cdn-cgi/l/email-protection#1152427f68757463517b64767674637f7064657270613f727e7c)
+Date: 12 May 2016 2:06:35 pm GMT-4
+To: “[email protected]” [\[email protected\]](/cdn-cgi/l/email-protection#95fef4e1fdf9f0f0fbf7fcf1f0fbd5f8f4f6bbf6faf8)
+Subject: One Year Supply of Voss Water
+Good morning Kathleen,
+Congratulations on being the lucky winners of a year’s supply of VOSS!
+I am coordinating delivery of the water & need the following information from you:
+!Type & bottle size options are: (1) 500ml Still PET (plastic); (2) 375ml Still Glass or (3) 375ml Sparkling Glass bottles.
+You can get just one option or a variety of all three (which would be my recommendation).
+! The number of cases you would like . . . each case has 24 bottles of water; please note that under the terms of delivery, all cases will be water; please note that under the terms of delivery, all cases will be delivered at one time.
+! The delivery address as well as a contact name at the delivery address & their phone number.
+Once you let me know the information requested above, I will let you know the approximate delivery date (which will be a 2-3 day window).
+Please let me know if you have any questions.
+I look forward to hearing back from you at your convenience.
+Best, Cheryl
 
-授权住户的姓名包括亨特，哈莉，娜塔莉和亨特拜登。
+JUGGERNAUT CAPITAL PARTNERS
 
-保证金为一万四千美元，要求的责任保险为三十万美元，承租人自付额为两百美元。
-[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/8c3d19c9-c0d6-4e51-b3a3-3df253ea1717.jpg?asset_id=336eb961-1dfa-483e-8563-6a2d13c85f80&amp;img_etag=%2272c1b2cf8b4d37359300e8f5531b34a6%22&amp;size=2560)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/8c3d19c9-c0d6-4e51-b3a3-3df253ea1717.jpg?asset_id=336eb961-1dfa-483e-8563-6a2d13c85f80&amp;img_etag=%2272c1b2cf8b4d37359300e8f5531b34a6%22&amp;size=1024)
-图三、海濱別墅
+* * *
 
-众所周知，哈莉·拜登是亨特的嫂子，哥哥博的妻子（图4右）。亨特于2017年4月与凯瑟琳离婚（图4，左）。哈莉和亨特在博逝世两年后就在一起，并且在乔·拜登在2019年4月宣布2020年总统竞选之前就分手了。
-[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/384fdb96-eb4e-4ff1-b36d-b008e64fdab7.jpg?asset_id=93bbf5da-fe33-4925-801c-3a6a0869ac78&amp;img_etag=%229baec4424b27caf3fe373be89d58f1d7%22&amp;size=2560)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/384fdb96-eb4e-4ff1-b36d-b008e64fdab7.jpg?asset_id=93bbf5da-fe33-4925-801c-3a6a0869ac78&amp;img_etag=%229baec4424b27caf3fe373be89d58f1d7%22&amp;size=1024)
-图四、凯瑟琳與亨特(左)、哈莉與博(右)
+Cheryl C. Snyder Assistant to John D. Shulman & Ofﬁce Manager J U G G E R N A U T C A P I T A L P A R T N E R S 4445 Willard Avenue, Suite 1040 Chevy Chase, MD 20815-3694 301.476.4424 Phone 301.234.6320 Fax [email protected] www.juggernautcap.com
 
-娜塔莉拜登（图5），2004年8月4日生，是哈莉和博的女儿。在租赁期内，她的年龄约为13至14岁。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/c199fce3-c1f1-4f39-8c71-58ced1b7a0a2.jpg?asset_id=aaa4e846-284e-4323-b9f9-615c5b23a75d&amp;img_etag=%221470eefff29f6103d52f52b5aa25e9ab%22&amp;size=2560)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/c199fce3-c1f1-4f39-8c71-58ced1b7a0a2.jpg?asset_id=aaa4e846-284e-4323-b9f9-615c5b23a75d&amp;img_etag=%221470eefff29f6103d52f52b5aa25e9ab%22&amp;size=1024)
-
-图五、娜塔莉拜登(2020)
-
-租约于12月15日，也就是在2017年圣诞节前签署，并于2017年圣诞节后一天开始生效。这是对亨特与哈莉之间有染的确认。
-
-####  租赁合同全文
-[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/2a1b2748-4597-428a-9b12-4e3526fac962.jpg?asset_id=f2f47c96-4234-40e0-b78c-57e9ec549901&amp;img_etag=%22178a35c6de4f2b230a831533e6e8cd08%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/2a1b2748-4597-428a-9b12-4e3526fac962.jpg?asset_id=f2f47c96-4234-40e0-b78c-57e9ec549901&amp;img_etag=%22178a35c6de4f2b230a831533e6e8cd08%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/8650ecd2-c4c8-4d08-b9d2-605c1c60b62b.jpg?asset_id=80f32afc-c1c3-4078-b5bb-0f144aeb6b0d&amp;img_etag=%22e3ee76c2dba8b7736d55667f4eeba0da%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/8650ecd2-c4c8-4d08-b9d2-605c1c60b62b.jpg?asset_id=80f32afc-c1c3-4078-b5bb-0f144aeb6b0d&amp;img_etag=%22e3ee76c2dba8b7736d55667f4eeba0da%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/ccac0867-8aa8-4ed4-bf18-ee27a5f7c702.jpg?asset_id=2d048982-6c9f-4511-a627-584ce5823366&amp;img_etag=%22d36a3fc4975b0114aaeecd9371c85349%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/ccac0867-8aa8-4ed4-bf18-ee27a5f7c702.jpg?asset_id=2d048982-6c9f-4511-a627-584ce5823366&amp;img_etag=%22d36a3fc4975b0114aaeecd9371c85349%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/4cf70a93-58c1-4411-a6e6-428b3c58cc58.jpg?asset_id=77ebe811-2e2e-46cc-8590-9e26d93c3490&amp;img_etag=%224b7805899e39c758375174335839f21e%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/4cf70a93-58c1-4411-a6e6-428b3c58cc58.jpg?asset_id=77ebe811-2e2e-46cc-8590-9e26d93c3490&amp;img_etag=%224b7805899e39c758375174335839f21e%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/4bd7c4c3-ca03-41af-b48f-44912b9ddea2.jpg?asset_id=c6baf9c9-c6a9-49d9-92e8-f1b9f1a07ad6&amp;img_etag=%221cb655cd4547eddc26caa96d1bfc5e7c%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/4bd7c4c3-ca03-41af-b48f-44912b9ddea2.jpg?asset_id=c6baf9c9-c6a9-49d9-92e8-f1b9f1a07ad6&amp;img_etag=%221cb655cd4547eddc26caa96d1bfc5e7c%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/557a7465-567b-43bf-b231-ab0af8f34d02.jpg?asset_id=cfd7d0b8-575d-4884-99a2-15b3038f547d&amp;img_etag=%22935b86b142d966051bed4c8289e83f44%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/557a7465-567b-43bf-b231-ab0af8f34d02.jpg?asset_id=cfd7d0b8-575d-4884-99a2-15b3038f547d&amp;img_etag=%22935b86b142d966051bed4c8289e83f44%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/408bfb6a-73f1-4dc2-b2a0-46b9b547f840.jpg?asset_id=138231e8-9241-4eb0-bff3-c6b02a4bcfbd&amp;img_etag=%22f48a4df0912c6ee206c43c48e723243f%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/408bfb6a-73f1-4dc2-b2a0-46b9b547f840.jpg?asset_id=138231e8-9241-4eb0-bff3-c6b02a4bcfbd&amp;img_etag=%22f48a4df0912c6ee206c43c48e723243f%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/2af0acf8-da65-41f5-985e-36a5e813409e.jpg?asset_id=ca6e225e-ee35-4117-9153-b702a569e8e1&amp;img_etag=%2281efd70f6e7df0f68accbc7bdf92d8c5%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/2af0acf8-da65-41f5-985e-36a5e813409e.jpg?asset_id=ca6e225e-ee35-4117-9153-b702a569e8e1&amp;img_etag=%2281efd70f6e7df0f68accbc7bdf92d8c5%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/9472a701-d0c9-4c0c-8d25-5d062a648533.jpg?asset_id=28668790-1e55-4164-8b2a-3c23e1c9c5e4&amp;img_etag=%22332acb6a6674c905e65bdcd41d80ee91%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/9472a701-d0c9-4c0c-8d25-5d062a648533.jpg?asset_id=28668790-1e55-4164-8b2a-3c23e1c9c5e4&amp;img_etag=%22332acb6a6674c905e65bdcd41d80ee91%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/d0fe9faa-a687-4b31-b356-55569e4d5ddf.jpg?asset_id=ebef1900-647c-4f1f-9ee1-4e837ca99a52&amp;img_etag=%2295526626f154bb5440ee40149d679ebb%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/d0fe9faa-a687-4b31-b356-55569e4d5ddf.jpg?asset_id=ebef1900-647c-4f1f-9ee1-4e837ca99a52&amp;img_etag=%2295526626f154bb5440ee40149d679ebb%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/77fa48b8-db4d-422f-886d-7dae00d1761d.jpg?asset_id=47ead441-79d5-4c2a-a6fe-68bc8a68f015&amp;img_etag=%22aa4ff67ad1e88e35c14402f2298dbece%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/77fa48b8-db4d-422f-886d-7dae00d1761d.jpg?asset_id=47ead441-79d5-4c2a-a6fe-68bc8a68f015&amp;img_etag=%22aa4ff67ad1e88e35c14402f2298dbece%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/0ae63877-ff6a-4fdb-b1a4-23658030b412.jpg?asset_id=b424b932-b02e-42aa-a446-20e5471a0cf4&amp;img_etag=%2246eb3d5c0f15b015cc338c39d1a94225%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/0ae63877-ff6a-4fdb-b1a4-23658030b412.jpg?asset_id=b424b932-b02e-42aa-a446-20e5471a0cf4&amp;img_etag=%2246eb3d5c0f15b015cc338c39d1a94225%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/c319c9f2-ee3c-4619-84f9-2a26f31d09cc.jpg?asset_id=5edce3c8-1a8d-47c6-8735-302fd493a123&amp;img_etag=%22849eac91ce87bf0a58fb8e1a28736cf8%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/c319c9f2-ee3c-4619-84f9-2a26f31d09cc.jpg?asset_id=5edce3c8-1a8d-47c6-8735-302fd493a123&amp;img_etag=%22849eac91ce87bf0a58fb8e1a28736cf8%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/f23949d3-39f8-4583-8ae9-b5760086a6b8.jpg?asset_id=2e1f11b7-d8a7-4b05-8026-a304489628f7&amp;img_etag=%22ee9d4baa1ca8d0f2b12f8bb030050170%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/f23949d3-39f8-4583-8ae9-b5760086a6b8.jpg?asset_id=2e1f11b7-d8a7-4b05-8026-a304489628f7&amp;img_etag=%22ee9d4baa1ca8d0f2b12f8bb030050170%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/472d6646-0e9b-4d03-846c-27e061aba1a5.jpg?asset_id=905b8d1f-316d-443f-abee-66efe18e5da9&amp;img_etag=%22033d0f67a21236fa6d6fc17fcbb0602d%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/472d6646-0e9b-4d03-846c-27e061aba1a5.jpg?asset_id=905b8d1f-316d-443f-abee-66efe18e5da9&amp;img_etag=%22033d0f67a21236fa6d6fc17fcbb0602d%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/875472f9-6c11-4ee6-917d-48c95ad05a99.jpg?asset_id=9ecc3447-5a61-4845-8ecf-adb9a07b91f0&amp;img_etag=%2258eced519eb06b003014bcd4d2a685b3%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/875472f9-6c11-4ee6-917d-48c95ad05a99.jpg?asset_id=9ecc3447-5a61-4845-8ecf-adb9a07b91f0&amp;img_etag=%2258eced519eb06b003014bcd4d2a685b3%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/be4e28a9-8bf4-4ba0-b72e-4ef9ee125ecb.jpg?asset_id=d69c0e14-75d0-498b-8d58-6eaa6d2ab701&amp;img_etag=%224623b416d8a2c336276486801c924c99%22&amp;size=2560)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/be4e28a9-8bf4-4ba0-b72e-4ef9ee125ecb.jpg?asset_id=d69c0e14-75d0-498b-8d58-6eaa6d2ab701&amp;img_etag=%224623b416d8a2c336276486801c924c99%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/1391e053-0e10-40ee-981a-4b927fa89af2.jpg?asset_id=4d2a02c9-28b5-4847-a36c-504603b22b39&amp;img_etag=%227259fb8aa3c1f3473f44bc888461afab%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/1391e053-0e10-40ee-981a-4b927fa89af2.jpg?asset_id=4d2a02c9-28b5-4847-a36c-504603b22b39&amp;img_etag=%227259fb8aa3c1f3473f44bc888461afab%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/60b2de05-4e52-4840-a832-612fcd6a4787.jpg?asset_id=1ac2de64-c6d7-4a2e-8ea7-5a802776f022&amp;img_etag=%224902a749189a50b89c7edd06703a2a5d%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/60b2de05-4e52-4840-a832-612fcd6a4787.jpg?asset_id=1ac2de64-c6d7-4a2e-8ea7-5a802776f022&amp;img_etag=%224902a749189a50b89c7edd06703a2a5d%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/4afe366b-0855-497b-9b67-9305e5213073.jpg?asset_id=337a75be-b9ef-48e9-a7b6-b5b50dc0451d&amp;img_etag=%221979f15abf4629affdd2430013de38a3%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/4afe366b-0855-497b-9b67-9305e5213073.jpg?asset_id=337a75be-b9ef-48e9-a7b6-b5b50dc0451d&amp;img_etag=%221979f15abf4629affdd2430013de38a3%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/7e16d629-d6e6-42b9-8e92-e7a90038564d.jpg?asset_id=d89c7344-60f8-4567-8c12-03e4fdc5aff8&amp;img_etag=%22019e5e3dbdf7851ca524155c6cff89e5%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/7e16d629-d6e6-42b9-8e92-e7a90038564d.jpg?asset_id=d89c7344-60f8-4567-8c12-03e4fdc5aff8&amp;img_etag=%22019e5e3dbdf7851ca524155c6cff89e5%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/b2997e9d-5262-42c9-a050-634f8c280099.jpg?asset_id=6558b492-d188-443b-8a5e-188dc3eccd78&amp;img_etag=%2271b0fbe42728797200e5fbfd185eba9d%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/b2997e9d-5262-42c9-a050-634f8c280099.jpg?asset_id=6558b492-d188-443b-8a5e-188dc3eccd78&amp;img_etag=%2271b0fbe42728797200e5fbfd185eba9d%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/8e0a7a6a-1bdb-4a36-a77c-33e8d36d8135.jpg?asset_id=9d260cd5-2d98-4dc6-ab43-bfc9468eb875&amp;img_etag=%22932116b381eaeb6b0a489a794eb5659f%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/8e0a7a6a-1bdb-4a36-a77c-33e8d36d8135.jpg?asset_id=9d260cd5-2d98-4dc6-ab43-bfc9468eb875&amp;img_etag=%22932116b381eaeb6b0a489a794eb5659f%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/23758a13-3b28-45bd-91f2-b33496a62ab3.jpg?asset_id=60b5a788-59bd-496d-aa34-dcb83704d223&amp;img_etag=%2243f1fb06492cf8db9574ff92d7d97512%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/23758a13-3b28-45bd-91f2-b33496a62ab3.jpg?asset_id=60b5a788-59bd-496d-aa34-dcb83704d223&amp;img_etag=%2243f1fb06492cf8db9574ff92d7d97512%22&amp;size=1024)
-[Reference 请参考mail online 相关新闻](https://www.dailymail.co.uk/news/article-6978939/Hunter-Biden-splits-brother-Beaus-widow-Hallie-two-years-together.html)
-
-编辑：[【喜马拉雅战鹰团】](https://spark.adobe.com/page/rQy26oXYjdkv6/)点击Adobe Spark版
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

@@ -1,9 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## GNews独家重磅!!!Hunter 邮件四度曝光!!!
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/520500/)
+## 美国总统大选第一张选票开出16:10 川普总统领先
+` GM06` [轉載自GNews](https://gnews.org/zh-hans/520736/)
 
-3-126
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03034131/%E8%9E%A2%E5%B9%95%E6%93%B7%E5%8F%96%E7%95%AB%E9%9D%A2-2020-11-03-11.41.10.png)![](https://gnews.org/dc69a055-f652-442b-8602-2fb51e13ad10)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03034225/%E8%9E%A2%E5%B9%95%E6%93%B7%E5%8F%96%E7%95%AB%E9%9D%A2-2020-11-03-11.34.42.png)
-0
+作者：GM40
+
+美国总统大选投票正式展开，新罕布夏州北部城镇米尔斯菲（Millsfield）现已开出21张总统选票，川普获16票、拜登得5票，若再加上稍早12人小镇迪克斯维尔（Dixville Notch）所开出的5张拜登选票，目前两个小镇所开出的票数统计，川普目前获得16票暂时领先，而拜登现在为10票。
+
+美国今日（3日）正式开始进行总统大选投票，最早是由新罕布什尔州仅12人的小镇迪克斯维尔（Dixville Notch）开出「全美第一张总统选票」，是由民主党总统候选人拜登拿下全部5票。现在第二的小镇开出总统票，由川普暂时逆转领先６票，后续局面如何发展，世界各国正持续关注。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03041350/%E5%A4%A7%E9%80%89.jpg)
+1+

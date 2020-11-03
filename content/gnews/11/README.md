@@ -1,64 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## BHR是如何利用中共特色社会主义的“法律法规”盗取钱财的
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/519593/)
+## 亨特和哈莉于2017年一起租用了海滨別墅
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/521075/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/16220839/b49297b1-554a-4f03-92e3-8e907a905cff.jpg)
-渤海华美(上海)股权投资基金管理有限公司（以下简称BHR）第十三次董事会会议资料（以下简称资料）于2020年10月30日在Gnews上公开。[1]为了帮助读者理解中共国特色社会主义的邪恶本质，结合上市融资、投资尽职调查等方面的实务工作经验、墙内生活经历及中共国社会主义市场经济制度，分析BHR蓝金黄项目所体现的中共国特色社会主义制度丑恶面目。
+翻译：TCC；校对：Johnwallis；Page：拱卒
 
-**中共特色商业法律体系为侵占民脂民膏提供制度方便**
+## 亨特和哈莉于2017年一起租用了海滨別墅
+[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/41e8a52e-fbe6-4f3e-b760-28b82d949a39.jpg?asset_id=560fed7a-9ec2-4449-94e3-a5e78f15e1d1&amp;img_etag=%22826ae7c35a8beacf569b1790eb26bf3b%22&amp;size=2560)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/41e8a52e-fbe6-4f3e-b760-28b82d949a39.jpg?asset_id=560fed7a-9ec2-4449-94e3-a5e78f15e1d1&amp;img_etag=%22826ae7c35a8beacf569b1790eb26bf3b%22&amp;size=1024)
+本文档包含4个部分：
 
-BHR采用的是有限公司形式，中共国公司法规定除非出现了 “股东滥用公司法人独立地位、股东有限责任” （以下简称例外条款）的情况，股东以出资额为限对公司债务承担有限责任，司法不独立，实质上中国共产党说了算，因此例外情况的运用得具体考虑，正如墙内某税务干部所述的，不能从字面上理解中共法律的意思。那么具体情况会是怎么样的呢？见下表。
+1. 马里兰州房地产委员会”了解房地产经纪人的代表”文件（第1-2页）
+2. Anne Arundel县的住宅租赁协议（第3-12页）
+3. 租赁协议的附件（第13-14页）
+4. 合同的附件（第15页）
+5. 联邦和马里兰州的房东/租户披露关于含铅涂料和/或含铅涂料危害信息（第16-24页）
 
-**不同背景企业的例外条款适用差异**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02234344/Capture1-1.jpg)
-**中共特色社会主义方便国贼将掠夺所得转移到避税天堂，****隐藏资产**
 
-正如Gnews网站上的《[渤海华美税务问题浅析](https://gnews.org/zh-hans/453051/)》所述，BHR为了外国股东避税同时掩人耳目，方便拜登家族向IRS隐瞒海外资产，注册实体汇总表显示BHR在开曼、BVI（BVI就是英属维京群岛，British Virgin Islands）、香港等地注册了孙公司、壳基金、绩效分成实体、团队跟投实体。
+这是一项租赁协议，由房地产经纪人Coldwell Banker Residential Brokerage的Mary Beth Paganelli代表NAPA开发公司的房东Gladys Antezana（马里兰州房地产委员会”了解房地产经纪人代表”, 第2页）起草。在租赁协议中，它表明上市经纪人和租赁经纪人的名称和公司分别是Coldwell Banker Residential Broker的Mary Beth Paganelli和Long及Foster的Joe Bray。
 
-**几个境外避税地的主要特点**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02234905/Capture2-1.jpg)
-**已注册实体境外部分股权架构图**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03045552/JIm.jpg)
-**中共特色社会主义为国贼提供针对性的开发区优惠政策**
+这租约（图1）于2017年12月15日由房东Gladys Antezana与租户亨特拜登和 哈莉·拜登（图2）签订的。房屋的地址是马里兰州安那波利斯的1300 Emory Road（图3）。租赁期限为12个月零6天，自2017年12月26日至2018年12月31日止。
+[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/ae54039d-c60f-4920-b599-f54d097ea7c5.jpg?asset_id=5c75faf8-6e5f-41e5-abbf-d5f0f4a31f47&amp;img_etag=%22eb9e73712695418795dc6a495d5c0ec4%22&amp;size=3333)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/ae54039d-c60f-4920-b599-f54d097ea7c5.jpg?asset_id=5c75faf8-6e5f-41e5-abbf-d5f0f4a31f47&amp;img_etag=%22eb9e73712695418795dc6a495d5c0ec4%22&amp;size=1024)
+图1
 
-中共为了方便白手套避税、转移外汇资产，设立了各种开发区，制定了针对白手套的优惠政策，先由中共国务院制定总体政策后，然后地方政府、中共国务院各部门再根据国务院发布的上述总体方案制定具体方案。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02234428/Capture3.jpg)
-BHR是正是外资股权投资企业，在上海自贸区、深圳前海、江西共青城等开发区设立了子公司、孙公司、项目基金、绩效分成实体、团队跟投实体，如渤海华美瑞X（上海）投资管理有限公司。 中共国除了公司法，还有中外合资企业法（以下简称合资法）、中外合作企业法及外资企业法等中共法律。BHR公司由中外股东分别出资设立，外方投资比例大于25%，属于合资法规定的中外合资企业，中外合资企业是外资企业的一个类别。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02234646/Capture4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/02234655/Capture5.jpg)
-**杠杆收购**
+租金按月分期付款，为7,000美元，应在每月的第一天支付，应付给位于美国西北华盛顿特区5133 MacArthur 大道的NAPA Development Corp.（给 Gladys Antezana）。
+[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/b9b58ac1-cdc9-445f-9dfc-c19146a680b4.png?asset_id=411de07f-e4a2-47a4-a7fb-c50f237426d8&amp;img_etag=%2270a4cd68b5af46443b46b9f49630e935%22&amp;size=2560)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/b9b58ac1-cdc9-445f-9dfc-c19146a680b4.png?asset_id=411de07f-e4a2-47a4-a7fb-c50f237426d8&amp;img_etag=%2270a4cd68b5af46443b46b9f49630e935%22&amp;size=1024)
+图二、哈莉(左)、亨特(右)
 
-杠杆收购下，投资公司只提供一小部分资金，其中大部分来自债务，由被收购公司的资产和未来现金流及收入担保，用于偿还本金和利息。如果收购成功并实现了预期收益，贷款人不能分享公司资产增值带来的收益，如果收购后失败，投资人只承担很小风险，债务投资者承担多数风险。在中共国大多数购买者将被收购公司的股权作为抵押品，从银行借款来完成收购。能够这样做的，在中共国得有很大背景。在中共国，流行有限合伙制度来收购项目，由银行、信托或其他愿意提供借款资金的投资方作为有限合伙人，由本来的投资人担任普通合伙人，实际主宰合伙企业的经营活动，但是普通合伙人又是有限责任公司，普通合伙人的股东按上面提到的公司法承担有限责任。有限合伙企业里面有限合伙人又分为优先1级、2级或I级、II级、次级，在投资项目时又类似于资产支持证券（ABS、MBS）中的优先级、次级投资者之分，从字面上看都是优先级风险小、收益水平低，但实际上资产支持证券的次级投资者通常是所投资产品的出让人或是原始权益人，次级投资者和普通合伙人对项目的了解和参与高，考虑到信用风险，吃亏的一般是优先级投资者，优先级投资者一般就是各种资产管理计划、信托、证券投资基金。
+授权住户的姓名包括亨特，哈莉，娜塔莉和亨特拜登。
 
-法老项目整体交易对价2亿欧元，BHR实际用的是杠杆收购战略，联合一家上市公司收购，自己出资40-45%，相当于0.8-0.9亿欧元，自己为了投资从国新国际募集资金1亿欧元，相当于自己一分钱不花，还要收管理费。如果项目谈成了，由于BHR实际出资为0元，杠杆比例=投资金额÷0=无穷大，假如失败了，自己赚了管理费，国新国际的钱就赔掉了。而国新国际的资金通常来源于国企压榨、欺骗老百姓得到的钱（例如高速公路收费公司、电网、财政补贴、银行贷款、股票融资）。法老项目是境外项目，BHR当然也可能会找亨特或其他对住酒店感兴趣的人去项目所在地参与尽职调查，考察项目，联系联系项目所在地的新老朋友。资料中其他项目的合作方有上市公司、银行信托，考虑到内地上市公司、银行和国企的内部控制一样实际上形同虚设，肯定是坑股民、银行信托投资方的钱，墙内银行理财产品很少编制财务报表说明资金去向，某会计师事务所对上市公司的内部控制根本没有测试就出具无保留意见的内部控制审计报告，国企公司治理和内部控制对盗国贼没用，内部控制失效意味着资金盗国贼随便用都行，过往业绩、资产状况、资金使用效果、去向等可以随意说谎。
+保证金为一万四千美元，要求的责任保险为三十万美元，承租人自付额为两百美元。
+[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/8c3d19c9-c0d6-4e51-b3a3-3df253ea1717.jpg?asset_id=336eb961-1dfa-483e-8563-6a2d13c85f80&amp;img_etag=%2272c1b2cf8b4d37359300e8f5531b34a6%22&amp;size=2560)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/8c3d19c9-c0d6-4e51-b3a3-3df253ea1717.jpg?asset_id=336eb961-1dfa-483e-8563-6a2d13c85f80&amp;img_etag=%2272c1b2cf8b4d37359300e8f5531b34a6%22&amp;size=1024)
+图三、海濱別墅
 
-并购尽职调查通常是是律师事务所和会计师事务所赚钱的业务，业务底稿比财务报表审计的底稿简单很多。资料中提到了多个失败的项目，这些项目的尽职调查服务费或咨询费是少不了的。一边骗钱，一边对中介机构实施BGY计划，为进一步方便IPO圈钱、债券发行、增发做准备。最近看到ACCA加拿大（即英国特许公认会计师协会加拿大分会）的推特账号给蚂蚁集团做广告，也就不奇怪了。
+众所周知，哈莉·拜登是亨特的嫂子，哥哥博的妻子（图4右）。亨特于2017年4月与凯瑟琳离婚（图4，左）。哈莉和亨特在博逝世两年后就在一起，并且在乔·拜登在2019年4月宣布2020年总统竞选之前就分手了。
+[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/384fdb96-eb4e-4ff1-b36d-b008e64fdab7.jpg?asset_id=93bbf5da-fe33-4925-801c-3a6a0869ac78&amp;img_etag=%229baec4424b27caf3fe373be89d58f1d7%22&amp;size=2560)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/384fdb96-eb4e-4ff1-b36d-b008e64fdab7.jpg?asset_id=93bbf5da-fe33-4925-801c-3a6a0869ac78&amp;img_etag=%229baec4424b27caf3fe373be89d58f1d7%22&amp;size=1024)
+图四、凯瑟琳與亨特(左)、哈莉與博(右)
 
-并购尽职调查，尤其是跨国并购，少不了国际投行的参与，这时姆努钦之流就发现机会了，投行同时经常给会计师事务所、律师事务所介绍业务，投行就可以赚业务介绍费、顾问费等。
+娜塔莉拜登（图5），2004年8月4日生，是哈莉和博的女儿。在租赁期内，她的年龄约为13至14岁。
 
-材料中屡次提到项目估值，估值金额会影响到投资金额的估算，估值过程涉及很多假设和主观判断，比如可比公司是否为同行业、技术、产品、位置等多大程度类似，可比公司财务数据多大程度可信，折现比率多少合适，未来预期增长率是过高还是过低，如果做估值的公司不客观、独立或者一点不专业，内部质量控制无效，估值水分再高也不为过。
+[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/c199fce3-c1f1-4f39-8c71-58ced1b7a0a2.jpg?asset_id=aaa4e846-284e-4323-b9f9-615c5b23a75d&amp;img_etag=%221470eefff29f6103d52f52b5aa25e9ab%22&amp;size=2560)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/c199fce3-c1f1-4f39-8c71-58ced1b7a0a2.jpg?asset_id=aaa4e846-284e-4323-b9f9-615c5b23a75d&amp;img_etag=%221470eefff29f6103d52f52b5aa25e9ab%22&amp;size=1024)
 
-**2018****年财务报告**
+图五、娜塔莉拜登(2020)
 
-财政补贴收入80万元，离不开上文提到的中共各级政权制定的开发区优惠政策。
+租约于12月15日，也就是在2017年圣诞节前签署，并于2017年圣诞节后一天开始生效。这是对亨特与哈莉之间有染的确认。
 
-中共在项目建设项目过程中，强制拆迁，老百姓抗议将石化等污染项目建在居民区，老百姓不理解为何中共会动员所有力量参与打压，包括城管、警察、教育局等，看看资料里面的项目名称就知道是中共政权有组织犯罪从老百姓掠夺民脂民膏，拜登家族居然也从中分享带血的利益，例如中石化240.7万元、万达地产215.4万元。中石化污染项目在江苏、四川、广东等地都激起过巨大愤怒，万达地产的强拆抗议、豆腐渣工程抗议层出不穷，Gnews每日疫情播报不时会有中石化、万达地产相关的抗议画面。BHR还去收购海外项目，那么中共也会把墙内的强拆模式推广到全世界，这时对外国的媒体、立法、行政、司法的蓝金黄有了一个新的用途，那就是阻止维权，不许维权者发声。国外项目所在地的自由、法治就会受到中共、拜登家族、华尔街等的联合侵害。面部识别（Face++）项目收入74.8万元，这个符合在墙内生活时的猜测。在墙内想，为何全国到处都在安装监控摄像头，社区出入口、出租屋大门口、大厦里外出入口到处都是，就猜到是中共顶层有问题，能够调动全国力量用财政资金购买安装摄像器材，用老百姓的钱买监控设备来监控老百姓，再要求所有出租屋、建筑物进出搞实名登记（无论是去面试，还是去维修电脑手机），加上不时出现在人行道、天桥的移动式监控设备，墙内的现代奴役制更加全面。
+####  租赁合同全文
+[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/2a1b2748-4597-428a-9b12-4e3526fac962.jpg?asset_id=f2f47c96-4234-40e0-b78c-57e9ec549901&amp;img_etag=%22178a35c6de4f2b230a831533e6e8cd08%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/2a1b2748-4597-428a-9b12-4e3526fac962.jpg?asset_id=f2f47c96-4234-40e0-b78c-57e9ec549901&amp;img_etag=%22178a35c6de4f2b230a831533e6e8cd08%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/8650ecd2-c4c8-4d08-b9d2-605c1c60b62b.jpg?asset_id=80f32afc-c1c3-4078-b5bb-0f144aeb6b0d&amp;img_etag=%22e3ee76c2dba8b7736d55667f4eeba0da%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/8650ecd2-c4c8-4d08-b9d2-605c1c60b62b.jpg?asset_id=80f32afc-c1c3-4078-b5bb-0f144aeb6b0d&amp;img_etag=%22e3ee76c2dba8b7736d55667f4eeba0da%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/ccac0867-8aa8-4ed4-bf18-ee27a5f7c702.jpg?asset_id=2d048982-6c9f-4511-a627-584ce5823366&amp;img_etag=%22d36a3fc4975b0114aaeecd9371c85349%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/ccac0867-8aa8-4ed4-bf18-ee27a5f7c702.jpg?asset_id=2d048982-6c9f-4511-a627-584ce5823366&amp;img_etag=%22d36a3fc4975b0114aaeecd9371c85349%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/4cf70a93-58c1-4411-a6e6-428b3c58cc58.jpg?asset_id=77ebe811-2e2e-46cc-8590-9e26d93c3490&amp;img_etag=%224b7805899e39c758375174335839f21e%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/4cf70a93-58c1-4411-a6e6-428b3c58cc58.jpg?asset_id=77ebe811-2e2e-46cc-8590-9e26d93c3490&amp;img_etag=%224b7805899e39c758375174335839f21e%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/4bd7c4c3-ca03-41af-b48f-44912b9ddea2.jpg?asset_id=c6baf9c9-c6a9-49d9-92e8-f1b9f1a07ad6&amp;img_etag=%221cb655cd4547eddc26caa96d1bfc5e7c%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/4bd7c4c3-ca03-41af-b48f-44912b9ddea2.jpg?asset_id=c6baf9c9-c6a9-49d9-92e8-f1b9f1a07ad6&amp;img_etag=%221cb655cd4547eddc26caa96d1bfc5e7c%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/557a7465-567b-43bf-b231-ab0af8f34d02.jpg?asset_id=cfd7d0b8-575d-4884-99a2-15b3038f547d&amp;img_etag=%22935b86b142d966051bed4c8289e83f44%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/557a7465-567b-43bf-b231-ab0af8f34d02.jpg?asset_id=cfd7d0b8-575d-4884-99a2-15b3038f547d&amp;img_etag=%22935b86b142d966051bed4c8289e83f44%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/408bfb6a-73f1-4dc2-b2a0-46b9b547f840.jpg?asset_id=138231e8-9241-4eb0-bff3-c6b02a4bcfbd&amp;img_etag=%22f48a4df0912c6ee206c43c48e723243f%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/408bfb6a-73f1-4dc2-b2a0-46b9b547f840.jpg?asset_id=138231e8-9241-4eb0-bff3-c6b02a4bcfbd&amp;img_etag=%22f48a4df0912c6ee206c43c48e723243f%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/2af0acf8-da65-41f5-985e-36a5e813409e.jpg?asset_id=ca6e225e-ee35-4117-9153-b702a569e8e1&amp;img_etag=%2281efd70f6e7df0f68accbc7bdf92d8c5%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/2af0acf8-da65-41f5-985e-36a5e813409e.jpg?asset_id=ca6e225e-ee35-4117-9153-b702a569e8e1&amp;img_etag=%2281efd70f6e7df0f68accbc7bdf92d8c5%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/9472a701-d0c9-4c0c-8d25-5d062a648533.jpg?asset_id=28668790-1e55-4164-8b2a-3c23e1c9c5e4&amp;img_etag=%22332acb6a6674c905e65bdcd41d80ee91%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/9472a701-d0c9-4c0c-8d25-5d062a648533.jpg?asset_id=28668790-1e55-4164-8b2a-3c23e1c9c5e4&amp;img_etag=%22332acb6a6674c905e65bdcd41d80ee91%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/d0fe9faa-a687-4b31-b356-55569e4d5ddf.jpg?asset_id=ebef1900-647c-4f1f-9ee1-4e837ca99a52&amp;img_etag=%2295526626f154bb5440ee40149d679ebb%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/d0fe9faa-a687-4b31-b356-55569e4d5ddf.jpg?asset_id=ebef1900-647c-4f1f-9ee1-4e837ca99a52&amp;img_etag=%2295526626f154bb5440ee40149d679ebb%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/77fa48b8-db4d-422f-886d-7dae00d1761d.jpg?asset_id=47ead441-79d5-4c2a-a6fe-68bc8a68f015&amp;img_etag=%22aa4ff67ad1e88e35c14402f2298dbece%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/77fa48b8-db4d-422f-886d-7dae00d1761d.jpg?asset_id=47ead441-79d5-4c2a-a6fe-68bc8a68f015&amp;img_etag=%22aa4ff67ad1e88e35c14402f2298dbece%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/0ae63877-ff6a-4fdb-b1a4-23658030b412.jpg?asset_id=b424b932-b02e-42aa-a446-20e5471a0cf4&amp;img_etag=%2246eb3d5c0f15b015cc338c39d1a94225%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/0ae63877-ff6a-4fdb-b1a4-23658030b412.jpg?asset_id=b424b932-b02e-42aa-a446-20e5471a0cf4&amp;img_etag=%2246eb3d5c0f15b015cc338c39d1a94225%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/c319c9f2-ee3c-4619-84f9-2a26f31d09cc.jpg?asset_id=5edce3c8-1a8d-47c6-8735-302fd493a123&amp;img_etag=%22849eac91ce87bf0a58fb8e1a28736cf8%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/c319c9f2-ee3c-4619-84f9-2a26f31d09cc.jpg?asset_id=5edce3c8-1a8d-47c6-8735-302fd493a123&amp;img_etag=%22849eac91ce87bf0a58fb8e1a28736cf8%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/f23949d3-39f8-4583-8ae9-b5760086a6b8.jpg?asset_id=2e1f11b7-d8a7-4b05-8026-a304489628f7&amp;img_etag=%22ee9d4baa1ca8d0f2b12f8bb030050170%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/f23949d3-39f8-4583-8ae9-b5760086a6b8.jpg?asset_id=2e1f11b7-d8a7-4b05-8026-a304489628f7&amp;img_etag=%22ee9d4baa1ca8d0f2b12f8bb030050170%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/472d6646-0e9b-4d03-846c-27e061aba1a5.jpg?asset_id=905b8d1f-316d-443f-abee-66efe18e5da9&amp;img_etag=%22033d0f67a21236fa6d6fc17fcbb0602d%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/472d6646-0e9b-4d03-846c-27e061aba1a5.jpg?asset_id=905b8d1f-316d-443f-abee-66efe18e5da9&amp;img_etag=%22033d0f67a21236fa6d6fc17fcbb0602d%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/875472f9-6c11-4ee6-917d-48c95ad05a99.jpg?asset_id=9ecc3447-5a61-4845-8ecf-adb9a07b91f0&amp;img_etag=%2258eced519eb06b003014bcd4d2a685b3%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/875472f9-6c11-4ee6-917d-48c95ad05a99.jpg?asset_id=9ecc3447-5a61-4845-8ecf-adb9a07b91f0&amp;img_etag=%2258eced519eb06b003014bcd4d2a685b3%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/be4e28a9-8bf4-4ba0-b72e-4ef9ee125ecb.jpg?asset_id=d69c0e14-75d0-498b-8d58-6eaa6d2ab701&amp;img_etag=%224623b416d8a2c336276486801c924c99%22&amp;size=2560)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/be4e28a9-8bf4-4ba0-b72e-4ef9ee125ecb.jpg?asset_id=d69c0e14-75d0-498b-8d58-6eaa6d2ab701&amp;img_etag=%224623b416d8a2c336276486801c924c99%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/1391e053-0e10-40ee-981a-4b927fa89af2.jpg?asset_id=4d2a02c9-28b5-4847-a36c-504603b22b39&amp;img_etag=%227259fb8aa3c1f3473f44bc888461afab%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/1391e053-0e10-40ee-981a-4b927fa89af2.jpg?asset_id=4d2a02c9-28b5-4847-a36c-504603b22b39&amp;img_etag=%227259fb8aa3c1f3473f44bc888461afab%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/60b2de05-4e52-4840-a832-612fcd6a4787.jpg?asset_id=1ac2de64-c6d7-4a2e-8ea7-5a802776f022&amp;img_etag=%224902a749189a50b89c7edd06703a2a5d%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/60b2de05-4e52-4840-a832-612fcd6a4787.jpg?asset_id=1ac2de64-c6d7-4a2e-8ea7-5a802776f022&amp;img_etag=%224902a749189a50b89c7edd06703a2a5d%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/4afe366b-0855-497b-9b67-9305e5213073.jpg?asset_id=337a75be-b9ef-48e9-a7b6-b5b50dc0451d&amp;img_etag=%221979f15abf4629affdd2430013de38a3%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/4afe366b-0855-497b-9b67-9305e5213073.jpg?asset_id=337a75be-b9ef-48e9-a7b6-b5b50dc0451d&amp;img_etag=%221979f15abf4629affdd2430013de38a3%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/7e16d629-d6e6-42b9-8e92-e7a90038564d.jpg?asset_id=d89c7344-60f8-4567-8c12-03e4fdc5aff8&amp;img_etag=%22019e5e3dbdf7851ca524155c6cff89e5%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/7e16d629-d6e6-42b9-8e92-e7a90038564d.jpg?asset_id=d89c7344-60f8-4567-8c12-03e4fdc5aff8&amp;img_etag=%22019e5e3dbdf7851ca524155c6cff89e5%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/b2997e9d-5262-42c9-a050-634f8c280099.jpg?asset_id=6558b492-d188-443b-8a5e-188dc3eccd78&amp;img_etag=%2271b0fbe42728797200e5fbfd185eba9d%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/b2997e9d-5262-42c9-a050-634f8c280099.jpg?asset_id=6558b492-d188-443b-8a5e-188dc3eccd78&amp;img_etag=%2271b0fbe42728797200e5fbfd185eba9d%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/8e0a7a6a-1bdb-4a36-a77c-33e8d36d8135.jpg?asset_id=9d260cd5-2d98-4dc6-ab43-bfc9468eb875&amp;img_etag=%22932116b381eaeb6b0a489a794eb5659f%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/8e0a7a6a-1bdb-4a36-a77c-33e8d36d8135.jpg?asset_id=9d260cd5-2d98-4dc6-ab43-bfc9468eb875&amp;img_etag=%22932116b381eaeb6b0a489a794eb5659f%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/23758a13-3b28-45bd-91f2-b33496a62ab3.jpg?asset_id=60b5a788-59bd-496d-aa34-dcb83704d223&amp;img_etag=%2243f1fb06492cf8db9574ff92d7d97512%22&amp;size=3335)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/23758a13-3b28-45bd-91f2-b33496a62ab3.jpg?asset_id=60b5a788-59bd-496d-aa34-dcb83704d223&amp;img_etag=%2243f1fb06492cf8db9574ff92d7d97512%22&amp;size=1024)
+[Reference 请参考mail online 相关新闻](https://www.dailymail.co.uk/news/article-6978939/Hunter-Biden-splits-brother-Beaus-widow-Hallie-two-years-together.html)
 
-项目拓展费用497万元，内涵广泛，就是为了拓展项目发生的一切费用，可能包括项目期间的酒店住宿费、机票费、项目当事人黄色视频采集费用等。其他费用里面的咨询及SPV维护等费用196万元，包括上文所述尽职调查中发生的会计师、律师、投行的尽职调查费用等，差异解释提到新增极飞项目DD费用45万元，DD=Due Diligence（尽职调查），45万元的水平可能是付给会计师的尽职调查费用，因为墙内会计师的尽职调查收费水平大概也是这样。
+编辑：[【喜马拉雅战鹰团】](https://spark.adobe.com/page/rQy26oXYjdkv6/)点击Adobe Spark版
 
-人事费用中预算中的奖金700万元反映到了2017年报，但是2018年没有计提，有可能是BHR公司财务或人事部门判断2018年奖金很可能就没有。一般情况下在结账时，如果发现业绩符合奖金发放条件，财务通常会在当年计提应付职工的奖金。
-
-人事费用、瀚德项目的利息及募资代理费用分别2.89千万元、2.28千万元，为最大的两个运营成本项目
-
-公司合伙人费用36万元，有可能是美国股东享受特殊服务项目的费用。
-
-为了解决瀚德项目中行利息支付问题，从招商银行贷款，年化利息9%，比从个人借款利息8%高，可以发现BHR没打算自己付利息，招商银行可能发现了这个风险，但是又不能推脱，因此将风险考虑在利息价格里面。从这里可以发现中行、招行都参与了支持盗国贼的项目，并试图从中分享带血的收益。
-
-这里我们看到的只是单体报表，没有说清楚是基于中共国企业会计准则、企业会计制度还是国际财务报告准则编制基础编制的财务报表，由于BHR实际对各类投资基金、子公司、孙公司享有控制权，如果按国际财务报告准则编制财务报表，应编制合并财务报表，整体反映所有项目的收入、支出、资产状况，对盗国贼的整体盗国规模会有更全面的认知。
-
-作者： CPA Jim
-
-【秘翻组·金融法律组】
-
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+[!\[\]()!\[\](https://spark.adobe.com/page/rQy26oXYjdkv6/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/rQy26oXYjdkv6/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0
