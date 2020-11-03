@@ -1,71 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 至暗时刻 坚守光明 —— 扒皮撒谎成性的乔·拜登
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/523897/)
+## 重磅炸弹第六波之: 亨特·拜登与生意伙伴ERIC SCHWERIN之间的往来邮件 （2）
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/523892/)
 
-多伦多加喜农场 文文-自由法兰西🇫🇷
+*Page：拱卒*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03131806/74-%E4%B8%AD%E6%96%87PR-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03132831/74-%E4%B8%AD%E6%96%87PR-2-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03132857/74-%E4%B8%AD%E6%96%87PR-3-1.jpg)
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03131348/liar-scaled.jpeg)图片来自Medium
-2020年11月3日的美国大选，不光决定着美国未来的走向，还关系到全世界所有国家的命运。是最终光明战胜黑暗，社会发展重归正道？还是地球被黑暗笼罩，人类自此万劫不复？
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-正如维加诺大主教在2020年10月25日致美利坚合众国总统的公开信中所说：“一个名为‘伟大重置’的全球计划正在进行中。它的设计蓝图是征服全人类的地球精英，并强行采取胁迫措施，以极大地限制每个人乃至全人类的自由。……在这个历史时刻，邪恶势力与正义力量正在进行一场没有硝烟的战斗；邪恶势力蓄谋已久，在对抗光明的儿女时，仿佛占了上风，而光明的儿女却迷失了方向，失去了组织，被他们属世和属灵的领袖所抛弃。”
-
-因此，这场选举，不仅是代表共和党人的川普总统和代表民主党人的乔·拜登之间的竞争，还是光明之子和黑暗之子的终极对决，也是人类历史上的至暗时刻。
-
-川普总统并不完美，但同与中共勾兑的邪恶势力美国代言人乔·拜登相比，他堪称是受上天庇护的天使，关键时刻，肩负带领人类重归光明的重任。
-
-再看乔·拜登，纵观其近50年的从政历史，他不仅是一个失败的政客，还一直是一个骗子，而其30年来同中共巨大的利益勾兑，更让他成了出卖美国人民利益的叛国者，卖美贼！
-
-乔·拜登撒谎成性，历史悠久。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03131708/Joe.jpg)图片来自 Nature Gas Now
-在9月29日总统大选的第一场辩论中，面对川普总统对他儿子提出的质疑，拜登大义凛然、信誓旦旦，“我的儿子没有做错任何事。”
-
-在10月22日第二场辩论中，面对同样的再次质疑，拜登目光炯炯、言之凿凿，“我这辈子从来没有从任何外国渠道拿过一分钱。亨特在中（共）国和乌克兰的生意没有涉及不道德的因素，亨特没有在中（共）国生意中获利。我从未与亨特讨论过他的交易。“
-
-很快，亨特·拜登的前商业伙伴托尼·博布林斯基（Tony Bobulinski）就在公开采访中，指责拜登在其本人参与家人海外交易一事上撒谎——“那不是真的。我对此有第一手的了解，因为我直接与拜登一家打交道，包括与乔·拜登本人”。
-
-从此，乔·拜登“Big Guy”（大人物）“美名”天下扬。
-
-除了震惊其在同中共的勾兑中高达10%的巨额数目，估计很多读者同我一样，更惊讶于拜登在全世界面前公然撒谎的底气！
-
-除了上述，在其从政生涯中，拜登还有哪些可圈可点的公然挑衅大众智商的事迹呢？
-
-据华盛顿特区《国会山报》(The Hill）今年早些时候的一篇报道，拜登曾在1987年的一次集会中自豪地声称他就读于法学院并获得了全额奖学金……且成绩在班里名列前茅，还说自己“获得了3个大学本科的学位”，是“政治学系的杰出学生”。
-
-但正如新闻工作者后来所确认的，拜登的上述说法没有一个是真的。拜登在法学院学习时，在班里的85名学生中，毕业成绩排在第76名，且只获得了部分奖学金，当然这算不得杰出。
-
-乔·拜登1987年首次问鼎民主党总统候选人，最后竞选活动之所以失败，是因为他抄袭尼尔·金诺克（Neil Kinnock）- 英国工党领袖的一段演讲被抓了现行。乔·拜登照猫画虎地挪用了这位英国工党领袖的个人历史，说自己是家族”千秋万代”中第一个从大学毕业的人，并几乎一字不差地重复了关于他妻子的同样故事，就像金诺克本人一样。
-
-更令人震惊的是，乔·拜登还声称”我的祖先… …在宾夕法尼亚州东北部的煤矿工作过”，实际上，在拜登的家谱中从没有人在地下工作过，那是金诺克的家人！
-
-而这并不是乔·拜登第一次被抓住剽窃，在法学院读书时，他从一篇已发表的法律评论文章中 “借用 “了整整5页纸且没有注明出处，最后不得不苦苦哀求不被学校开除。
-
-还有离奇的事，乔·拜登声称自己在上世纪70年代被捕过，因为他试图去监狱探望纳尔逊·曼德拉。当然这也属于子虚乌有。
-
-1972年12月18日，乔·拜登的原配妻子Neilia和女儿在一场车祸中丧生，当时两岁多的亨特·拜登和他的哥哥也在车里受了重伤。警方最后判定是Neilia错误地将车驶入了卡车的道路，而这可能是因为当时她回了头并没有看到驶来的卡车。
-
-乔·拜登却在公开场合多次指称卡车司机柯蒂斯·邓恩（Curtis Dunn）事发当天喝酒，是酒驾导致了车祸的发生。司机的女儿Pamela要求乔·拜登为他的这些不实言论进行公开道歉。根据《纽瓦克邮报》（Newark Post）早先对此事进行过报道的编辑的最新声明：乔·拜登已经在2019年对他给Pamela女士的家庭所造成的伤害做出了道歉。无疑，所谓的酒驾又是拜登一个无端的指控和谎言！
-
-正如时事评论家埃弗里特·派珀（Everett Piper）2020年10月30日在《华盛顿时报》(The Washington Times)上撰文指出：
-
-“在超过47年的公共生涯中，乔·拜登显示出自己不可抗拒的撒谎倾向。他对他的教授撒谎，他对他的选民撒谎，他对他的学术工作撒谎，他在自己的演讲里撒谎，他在支持民权的问题上撒谎，他甚至在自己妻子和年幼女儿的死亡一事上撒谎。而今天，在他的儿子亨特.拜登，布里斯马公司(Burisma)，中共和他本人勾结的问题上，他在继续对我们撒谎。”
-
-消息来源：
-
-1.[https://gnews.org/zh-hans/511976/](https://gnews.org/zh-hans/511976/)
-
-2.[https://www.foxnews.com/opinion/trump-biden-election-david-bossie](https://www.foxnews.com/opinion/trump-biden-election-david-bossie)
-
-3.[https://www.washingtontimes.com/news/2020/oct/30/joe-biden-is-a-pathological-liar/](https://www.washingtontimes.com/news/2020/oct/30/joe-biden-is-a-pathological-liar/)
-
-4.[https://nypost.com/2020/10/22/hunter-ex-partner-tony-bobulinski-calls-joe-biden-a-liar/](https://nypost.com/2020/10/22/hunter-ex-partner-tony-bobulinski-calls-joe-biden-a-liar/)
-
-5.[https://thehill.com/opinion/campaign/499065-lies-damned-lies-and-the-truth-about-joe-biden](https://thehill.com/opinion/campaign/499065-lies-damned-lies-and-the-truth-about-joe-biden)
-
-6.[https://www.reuters.com/article/idCNChina-2737120081031](https://www.reuters.com/article/idCNChina-2737120081031)
-
-7.[https://gnews.org/zh-hans/515130/](https://gnews.org/zh-hans/515130/)
-
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/7HIeNJra2T8nA/)】
+[!\[\]()!\[\](https://spark.adobe.com/page/7HIeNJra2T8nA/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/7HIeNJra2T8nA/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

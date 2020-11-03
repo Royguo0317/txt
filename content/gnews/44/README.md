@@ -1,75 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家！更多证据表明亨特·拜登如何将公司财产转为私有
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/522676/)
+## 从水门事件到拜登门事件：主流媒体如何丑陋地掩盖真相
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/522675/)
 
-这两周亨特拜登的硬盘门事件越演越烈！牵扯出的各方大佬也层出不穷！今天我们就结合亨特拜登硬盘门中的两封电子邮件以及一份医疗账单来谈谈亨特拜登是如何索取费用的。在此之前，我们先简单解释一下以下三份文件中出现的相关人物之间的关系。罗伯特拜登(Robert Biden)也就是罗伯特亨特拜登(Robert Hunter Biden)，凯蒂道奇(Katie Dodge)是亨特拜登的私人秘书，梅西尔乔治(George.Mesires)是亨特拜登的律师，凯瑟琳(Kathleen)是亨特拜登的前妻，埃里克·史威林(Eric D. Schwerin)是亨特拜登的公司合作伙伴。
+*喜马拉雅联盟加拿大农场 文来
+原文作者 Liberte
+校对 文锦 上传 WJ*
 
-从以下三份文件结合近期路德访谈以及其他GNEWS的爆料报道，我们可以看到一点亨特拜登的索钱手法。他通过私人助理和律师，给他的公司合伙人压力，想要把支票从公司转移到他自己的私人账户上，相信这也是他和几个合作伙伴关系闹僵的原因之一，难怪已经有几个他之前的公司合作伙伴出来向FBI等政府部门指认拜登家族的犯罪证据！自古以来邪不压正，相信这次美国司法部门结合我们的爆料革命爆出的各种犯罪材料，一定可以把相关拜登家族以及其他犯罪大佬们绳之以法！
+据GNEWS11月2日报道，现在的美国已经达到了反乌托邦的境地，所谓的主流媒体决定丑闻何时成为丑闻。他们不再为公共利益服务，而是仅为在中共控制的中国以及他们狭义的马克思主义－全球主义议程中的经济利益服务。他们不知羞耻地封杀对可能对拜登当选有负面影响的故事。他们不再作为受信任的第四阶级服务于公共利益。
 
-**英文原文：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03094700/14-Gnews-1-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03094710/14-Gnews-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03094724/14-Gnews-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03094814/14-Gnews-4.jpg)
-**中文翻译**：
+正如托马斯·杰斐逊（Thomas Jefferson）著名的声明：“*没有比我们现在正在尝试的实验更有趣的事情了，那就是信任需要建立在理性和真相之上。因此，我们的首要目标应该是向它敞开一切通往真相的道路。迄今为止发现的最有效的方法是新闻自由。”*
 
-来自：罗伯特·拜登(Robert Biden) [email protected]
-日期：2019年3月5日上午7:16
-至：凯蒂·道奇(Katie Dodge) [email protected]
+上个月前中央情报局局长约翰·布伦南（John Brennan）解密的手写笔记被发布出来，表明他于2016年7月28日向时任总统奥巴马通报了情报证据，表明希拉里批准了一项针对川普的虚假指控的计划。这是俄罗斯串通骗局的起源。希拉里这样做是为了分散她的电子邮件丑闻。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01075959/3%E9%81%BF%E4%B8%AAname.jpg)
+几个月来，她通过在竞选演讲中指控特朗普是克里姆林宫的资产和“普京的玩偶”，为该计划做好了准备。当然，没有任何实际证据。这是一个无耻的谎言，可以从索尔·阿林斯基的《激进主义规则》或中共的《第9号文件》中得出。
 
-之前辛迪(Cindy)告诉我们的从Venmo转帐到USAA帐户的这笔钱是做什么的？为什么我们仍然有来自WF的自动扣款？为什么我们还没有设置新的帐户？ 更清楚一点地说，您为什么还不按照我在一月份说明的那样来设置新的帐户系统？我确定这是我该死的烂摊子-但这就像在问埃里克为什么他可以拿到并持有着从我公司开出的$ 896K支票13个工作日！这怎么可能发生的？
+当希拉里被揭露实施整个事件时，媒体报道的所謂的 “这是自水门事件以来最大的故事-俄罗斯串通川普总统丑闻的头条” 突然变得不值得报道。所谓的主流媒体不顾公共利益，完全掩盖事实。
 
-来自：罗伯特·拜登(Robert Biden) [email protected]
-主题：Fwd：
-日期：2019年3月5日上午6:47
-至：埃里克·史威林(Eric Schwerin) [email protected]
-抄送：George R. Mesires George.Mesires @ faegrebd.com，Edward Prewitt [\[email protected\]](/cdn-cgi/l/email-protection#2c49485b4d5e480249025c5e495b4558586c5b4940405f4a4d5e4b43024f4341)
+十月份，自从“爆炸性的” 关于乔·拜登（Joe Biden）声称自己对自己的儿子亨特（及其合伙人）在中国和乌克兰的业务往来一无所知的谎言被报道出来，《纽约邮报》（New York Post）如今已成为历史上唯一的一家捍卫新闻工作者的完整性和独立性的传统媒体组织之一。但是社交媒体巨头们，特别是推特，封锁了《纽约邮报》和所有的试图分享拜登故事的推特账号并删除了分享的有关拜登的故事，以迎合拜登和他的派系。
 
-埃里克请立即存入支票。自动扣款已经退还给NFS了，我现在无法继续付赡养款给凯瑟琳(Kathleen)，如您所知，这将使我的生活变得更加复杂。请给我支出费用清单，之后我会立即把款项发送给您。请马上存入支票，我已经耐心等待了13天了。
+《华盛顿邮报》没有向读者提供有关牵涉拜登一家的电子邮件的分析，而是宣称：“选举日前三周，特朗普盟友企图追究亨特和乔·拜登”。该标题的寓意是显而易见的，意味着故事源于特朗普的盟友，而不是笔记本电脑的电子邮件，或者最终是亨特·拜登及其撰写电子邮件的业务伙伴。此外，《纽约时报》和《洛杉矶时报》否认了有关乔·拜登的腐败行为的可信度（尽管多年来在华盛顿圈子中广为人知），认为是未经证实的虚假信息。他们称赞社交媒体平台采取了阻止虚假信息传播的政策，并声称现在这些努力终于“见成效”。
 
-开始转发消息：
+这种公然的双重标准引起广泛的警觉。媒体党派认为亨特·拜登笔记本电脑丑闻不值得关注，但却用头版不断宣传对特朗普的任何捏造丑闻。媒体党可以昧着良心来决定什么是丑闻，什么不是丑闻。假新闻变成真实的，真实卻变成假的。
 
-来自：“梅西尔，乔治·R” &lt;[email protected]&gt;
-日期：2019年3月5日，上午5:52(美国东部标准时间8点52分)
-发送至：“埃里克·史威林(Eric D. Schwerin)” &lt;[email protected]&gt;
-抄送：“ R.Hunter Biden” [\[email protected\]](/cdn-cgi/l/email-protection#3e4c565c5a5d7e575d52514b5a105d5153)
+本杰明·富兰克林（Benjamin Franklin）曾經对于有可能滥用新闻自由的言论发表了先见之明：“*在联邦宪法上已经撰写并发表了太多文章，并且对善政的所有其他部分进行检查的必要性也已经得到了清晰明确的了解，我发现自己很开明，以至于怀疑在这一部分也可以进行检查; 但我无所适从，想像不到任何可能被解释为侵犯新闻界神圣自由的行为。*”
 
-埃里克：
+法国政治思想家和历史学家托克维尔(Alexis do Tocqueville)明智地指出：“从*长远来看，当新闻界的众多机构前进时，它们的影响力几乎不可抗拒，而总是从同一侧来袭的公众舆论却因受到打击而屈服。”*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03100918/WhatsApp_Image_2020-11-02_at_14.43.35-1.jpg)
+对媒体的核实曾经是媒体本身，这是诚信和独立的新闻信条的专业性。现在，他们都以勾结狭义的财务和意识形态为目标，和黑帮集团没什么区别了。
 
-今天早上，我重申了亨特的要求，要求您立即将支票存入Skaneateles银行帐户。您表示将评估您拒绝存款并把支票归还给(Hunter)亨特的权利。请尽快评估。
+相关连接：
 
-我还指出，您应该提供所声称的支出费用清单。
-
-再说，我看不出有任何理由拒绝存入支票。如果您不同意，请指出在运营协议的何处有注明。
-
-乔治·R·梅斯
-
-合伙人
-
-[email protected]下载电子名片
-D：+1 312 356 5101 |手机：+1 312 972 4151
-Faegre Baker Daniels LLP
-311 S. Wacker Drive |套房4300 |美国伊利诺伊州芝加哥60606
-
-**参考资料：**
-
-
-
-> [EXCLUSIVE: Eric Schwerin emailed Hunter Biden on 1/16/2017 evidencing Hunter’s Phantom Income partly “borrowed” from RSB](https://gnews.org/518034/)
-
-
-
-
-
-> [亨特∙拜登合作伙伴埃里克∙史威林（Eric D. Schwerin）](https://gnews.org/zh-hans/450140/)
-
-
-
-https://gnews.org/ 514791/
-
-
-
-> [The Third Wave(Email 28 Declassification)：3/5/2019 Hunter Biden emailed Katie Dodge, his personal assistant regarding opening a new bank account](https://gnews.org/505582/)
-
-
+[Watergate to Bidengate: How the Media Party Scandalously Failed to Report the Biden Scandal](https://gnews.org/513454/)
 
 0

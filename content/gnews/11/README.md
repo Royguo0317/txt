@@ -1,21 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅炸弹第六波之: 亨特半夜多次发乔和吉尔的汽车保险卡给纽约警察局办事人员
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/523984/)
+## 邪恶势力策划关闭联邦机构 破坏美国大选结果
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/524021/)
 
-**简评：**
+*加拿大草原三省战友团 重生之鹰*
 
-这是亨特拜登把乔拜登和吉尔拜登夫妇的汽车保险卡的影印件转发给在的纽约警察局(NYPD) 芭芭拉\_塔维拉斯的邮件。原邮件是罗伯特\_亨特的名字从同一个电邮账户&lt;[email protected]&gt;送到罗伯特\_拜登。由此可见，当时汽车保险卡在亨特手中。介于汽车保险卡上明确表示保险卡需要被放置在车内，可见当时亨特在使用乔和吉尔拜登的车。这也从侧面可以看出，亨特的确是支付家里一切开支的那个人。最后，亨特在半夜将同一文件反复转发，也许这表示亨特的精神状态令人担忧。
+*校对 风云小哥 上传 WJ*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03142725/ZOOM.jpg)图片来源：Sunrise Exposed
+据DJHJ MEDIA11月2日报道，数十份被泄露的文件和ZOOM视频片段周日被公开。这些资料揭露了包括联邦工作人员在内的进步活动人士企图扰乱和破坏周二美国总统大选结果的计划。他们计划关闭包括白宫在内的联邦政府机构。
 
-深夜将汽车保险卡连续送往纽约市警局，这是 发生了什么状况？
+在网站上可以看到这些被泄露的信息，更多的信息将在接下来48小时内更新。所有的信息都已移交给执法部门。
 
-**The original document 原文件：**
-[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/60111cee-55f6-4a87-ba01-f0eec4f76b46.jpg?asset_id=3e7fe070-eb19-4066-8109-ab287905a451&amp;img_etag=%22b3f0e8ce74a0bb0ec095509f3efa596b%22&amp;size=2560)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/60111cee-55f6-4a87-ba01-f0eec4f76b46.jpg?asset_id=3e7fe070-eb19-4066-8109-ab287905a451&amp;img_etag=%22b3f0e8ce74a0bb0ec095509f3efa596b%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/41f74324-ffea-4837-9109-973af37d6e77.jpg?asset_id=cfacf352-9390-4abf-8852-0bed9078a02f&amp;img_etag=%220179f074c72d9a9cbb14bc5cbbb2741b%22&amp;size=2560)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/41f74324-ffea-4837-9109-973af37d6e77.jpg?asset_id=cfacf352-9390-4abf-8852-0bed9078a02f&amp;img_etag=%220179f074c72d9a9cbb14bc5cbbb2741b%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/34a86115-ec3c-4d4a-b836-9d7beb899a54.jpg?asset_id=d4c3eb63-d287-494f-9ec1-63abb4f3811a&amp;img_etag=%22cdee93afeb658cf25915d5da34768077%22&amp;size=3229)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/34a86115-ec3c-4d4a-b836-9d7beb899a54.jpg?asset_id=d4c3eb63-d287-494f-9ec1-63abb4f3811a&amp;img_etag=%22cdee93afeb658cf25915d5da34768077%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/508f583f-601b-4bd8-b81a-b091f18a2267.jpg?asset_id=b84cec8e-0d2e-4305-92fd-9d9f87b679cd&amp;img_etag=%22e656b2c564c0619797d1738bd5770713%22&amp;size=2560)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/508f583f-601b-4bd8-b81a-b091f18a2267.jpg?asset_id=b84cec8e-0d2e-4305-92fd-9d9f87b679cd&amp;img_etag=%22e656b2c564c0619797d1738bd5770713%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/67c7d8a1-ac32-4918-9879-a7551f50ff8e.jpg?asset_id=142e894f-aaf1-413c-97a1-e8376e41c7ff&amp;img_etag=%22d9803102e6bb972f70fa179ab1153d21%22&amp;size=2657)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/67c7d8a1-ac32-4918-9879-a7551f50ff8e.jpg?asset_id=142e894f-aaf1-413c-97a1-e8376e41c7ff&amp;img_etag=%22d9803102e6bb972f70fa179ab1153d21%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/034a6073-203f-41b6-9e9c-19ad816c3293.jpg?asset_id=cdbbb703-0a25-4d99-a7ca-6636fb199df6&amp;img_etag=%22363b0cfad53fb46985d1959a6fdb0537%22&amp;size=3457)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/034a6073-203f-41b6-9e9c-19ad816c3293.jpg?asset_id=cdbbb703-0a25-4d99-a7ca-6636fb199df6&amp;img_etag=%22363b0cfad53fb46985d1959a6fdb0537%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/12c67047-22d0-48f5-b407-9c005fa0e00a.jpg?asset_id=c273496f-510b-4780-8207-7002bc43a460&amp;img_etag=%226ae8251f2259a0368b3bcc998fbce02b%22&amp;size=2560)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/12c67047-22d0-48f5-b407-9c005fa0e00a.jpg?asset_id=c273496f-510b-4780-8207-7002bc43a460&amp;img_etag=%226ae8251f2259a0368b3bcc998fbce02b%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/e3084b73-f33d-4f94-88ee-c4abf49c981e.jpg?asset_id=90545237-1534-47ba-82fc-83dcd4efeb43&amp;img_etag=%227e79a47bb7f9d78c7c42192b48afb477%22&amp;size=3256)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/e3084b73-f33d-4f94-88ee-c4abf49c981e.jpg?asset_id=90545237-1534-47ba-82fc-83dcd4efeb43&amp;img_etag=%227e79a47bb7f9d78c7c42192b48afb477%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/76399ee2-831d-4be4-a81a-98c3374aedce.jpg?asset_id=e5471db8-b9a0-48b1-9812-0443b2db698e&amp;img_etag=%221a0c9694f5b0773fc30579e51d96d73d%22&amp;size=2560)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/76399ee2-831d-4be4-a81a-98c3374aedce.jpg?asset_id=e5471db8-b9a0-48b1-9812-0443b2db698e&amp;img_etag=%221a0c9694f5b0773fc30579e51d96d73d%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/e00aaeb4-541c-4ee2-b056-10edc9498476.jpg?asset_id=f5d09455-0840-4436-b279-bacc7aa4b8f1&amp;img_etag=%22481c10a5b6e0e30e4d713b9aebef1107%22&amp;size=3477)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/e00aaeb4-541c-4ee2-b056-10edc9498476.jpg?asset_id=f5d09455-0840-4436-b279-bacc7aa4b8f1&amp;img_etag=%22481c10a5b6e0e30e4d713b9aebef1107%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/8c8a8f87-50c2-4e06-9c2b-212c87daef18.jpg?asset_id=c8ab5aec-b799-432f-811e-e5ccaec44c12&amp;img_etag=%22db69b1281f09c63cd1ee01bfdb71238e%22&amp;size=2560)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/8c8a8f87-50c2-4e06-9c2b-212c87daef18.jpg?asset_id=c8ab5aec-b799-432f-811e-e5ccaec44c12&amp;img_etag=%22db69b1281f09c63cd1ee01bfdb71238e%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/1b2fef47-bc75-4a28-9789-5fe7eb45fbf9.jpg?asset_id=bc1217cc-b48d-48ef-b468-b7c2b79d79da&amp;img_etag=%22c778b844e413c702c94122789bdb713f%22&amp;size=3530)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/1b2fef47-bc75-4a28-9789-5fe7eb45fbf9.jpg?asset_id=bc1217cc-b48d-48ef-b468-b7c2b79d79da&amp;img_etag=%22c778b844e413c702c94122789bdb713f%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/41dc6f22-a9a7-491b-8255-fb4a2be77e06.jpg?asset_id=9955d8dc-fe0a-4e6b-9226-a07816434772&amp;img_etag=%221145497f6c1fcc443d457894a57bb108%22&amp;size=2560)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/41dc6f22-a9a7-491b-8255-fb4a2be77e06.jpg?asset_id=9955d8dc-fe0a-4e6b-9226-a07816434772&amp;img_etag=%221145497f6c1fcc443d457894a57bb108%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/9fbe973e-7c22-488d-ba90-0c1312965401.jpg?asset_id=34024b84-a0a6-4710-90bd-0a46df6d5207&amp;img_etag=%22811f6c96ba17c9c372bd786b6d16d418%22&amp;size=3342)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/9fbe973e-7c22-488d-ba90-0c1312965401.jpg?asset_id=34024b84-a0a6-4710-90bd-0a46df6d5207&amp;img_etag=%22811f6c96ba17c9c372bd786b6d16d418%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/eea7fd60-c994-4684-9fc9-f4db76cad4c8.jpg?asset_id=06a84c3e-a6da-4aa9-b1ca-faae0d152a0b&amp;img_etag=%22f891c9cfc2ca89023dad940d3d88e755%22&amp;size=2560)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/eea7fd60-c994-4684-9fc9-f4db76cad4c8.jpg?asset_id=06a84c3e-a6da-4aa9-b1ca-faae0d152a0b&amp;img_etag=%22f891c9cfc2ca89023dad940d3d88e755%22&amp;size=1024)
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+来自日出运动(Sunrise Movement)的吹哨人透露，由自由主义活动人士组成的网络已经在全国范围内动员起来，这些人企图在即将到来的政变中制造混乱、破坏甚至骚乱。详情可以回看9月初的关于川普看起来会赢得选举之夜的报道。
 
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+这些文件和视频片段讨论了一项组织很好的在选举结果开始时关闭包括白宫和国会在内的联邦建筑和关闭公共交通系统的行动。日出运动是由400个不同的左翼活动团体组成的活动中心的一部分。
 
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/vKdPRcwXIanPA/)】
-[!\[\]()!\[\](https://spark.adobe.com/page/vKdPRcwXIanPA/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/vKdPRcwXIanPA/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-1+
+在被称为关闭华盛顿DC（Shut Down DC）的ZOOM视频中，一位发言人说:
+我们已经讨论了几个月关于如何应对不同的有争议的选举场景。第一步我们认为在选举开始后的阶段需要出现在街道上，所以我们邀请每个人在选举之夜4点后的任何时间来到BLM (Black Lives Matter)广场。11月5号，我们将关闭白宫。11月6号，我们将关闭华盛顿的大部分地区。然后在接下来的一周所有的主流团体将会来到华盛顿并在7号进行游行。
+
+这是九月份所写的当时一群激进分子包括许多著名的民主党人聚集在一起讨论的战争场景。他们代表民主党、共和党、法院和军方等。最后他们决定如果川普赢了，他们希望发生一场街头斗争而不是法律斗争。
+
+这里有一段ZOOM视频显示包括律师和情报人员在内的联邦雇员活动人士阴谋利用职权扰乱和破坏任何有利于川普总统的选举结果。这是暴动，他们都应该立即被解雇。永远不要让别人告诉你深层政府(deep state)不存在，因为这里有一些深层政府存在。
+
+进步人士社区已经招募了一些关键人物包括丽萨·菲西安(Lisa Fithian)，她是一位长期的组织者和培训师，曾从事过“占领华尔街”和许多工会运动。在描述关闭华盛顿的工具和策略的视频中她说:“谁有枪谁就能赢，让我们接管大楼! 我们将陷入危机，但我们希望危机是我们自己制造的。我们要确保我们是在进攻而不是防守。我们希望他们回应我们，而不是我们回应他们。”
+我认为左翼分子在制造危机。我不知道他们会取得什么进展，但他们会伤害到一些人。你不能到处乱跑，这样会造成混乱，破坏和骚乱。特别是如果你要在街上制造麻烦，民众的安全会变成严重的问题。2016年选举结果后，我们看到了骚乱和抗议。但是相比今年夏天和全国所有城市即将发生的准备了数月的选举之夜开始的暴动，2016年的骚乱就像雪花和公园野餐一样轻微。
+
+**简评**：这次美国大选不仅关乎美国，也关乎中国，甚至全人类的命运，是正义与邪恶的终极之战。邪恶势力会策划影响大选，他们无力扭转败局时不会坐以待毙。但是相信代表正义力量的川普总统一定会力挽狂澜，排干沼泽，乱中取胜，重掌白宫。川普总统会带领正义力量战胜以中共为首并与之勾结的一切邪恶势力。中国人民和世界人民将重获自由、民主、法治，人类将进入没有战争，和平永续发展的新纪元！
+
+新闻来源：
+
+[Sunrise Exposed](http://www.sunriseexposed.com/)
+
+[Federal Workers Caught on Leaked Zoom Calls Plotting to Shut Down Federal Government Including the White House If Trump Wins](https://djhjmedia.com/rich/federal-workers-caught-on-leaked-zoom-calls-plotting-to-shut-down-federal-government-including-the-white-house-if-trump-wins-video/)
+
+0

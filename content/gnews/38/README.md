@@ -1,38 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 各种证据指证乔·拜登知情并参与亨特腐败案
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/522798/)
+## 重磅炸弹第六波之：哈萨克斯坦发展中国家职场的案例研究报告
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/522831/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03102703/1103-3.jpg)图片来源：[sputniknews](http://sputniknews.cn/politics/202004221031263270/)
-RealClearInvestigations调查网11月2日发表了一篇署名保罗·斯佩里（Paul Sperry）撰写的报道，该报道称，据一份未引起注意的法庭文件显示，一名联邦法官在去年将乔·拜登（Joe Biden）列为一宗与其儿子亨特·拜登（Hunter Biden）有关的欺诈案的可能性“证人”，该案最终将亨特·拜登的两个商业伙伴定罪。这位民主党总统候选人出现在证人名单上，无疑是对其之前声称对自己儿子的黑幕生意一无所知的说法的质疑。
+*翻译/简评：Johnwallis｜校对：John Wallis｜审核：John Wallis｜Page：玄天生；*
 
-这起与亨特·拜登相关的欺诈案于2019年1月11日立案。当时美国纽约州地方法院法官罗妮·阿布拉姆斯（Ronnie Abrams）向陪审团候选人发放了一份名单，要求陪审团候选人列明是否与该名单上的人有任何来往和关系，目的是确认陪审团成员与该案当事人没有利益冲突。在名单上，乔·拜登的名字赫然出现在“可能在审判期间出现或可能作为证人”一栏中。
+**简评：**
 
-2018年，艾布拉姆斯法庭的陪审员发现，亨特·拜登的长期合伙人德文·阿彻(Devon Archer)和其他两名被告非法将内布拉斯加州Oglala Sioux的债券发行收益消费于个人物品，阿彻因涉嫌串谋在债券发行中进行证券欺诈而被定罪，其骗的投资金额约6000万美元。2020年10月7日，联邦上诉法院恢复了陪审团对阿彻的欺诈判决，并定于明年1月宣判。
+这是一封由丹尼尔·若迪（Daniel F. Runde，CSIS高级副总裁）写给亨特拜登关于哈萨克斯坦发展中国家职场的案例研究报告的信件。
 
-从亨特·拜登遗弃的笔记本电脑中获得的47分钟长的音频文件中可以听到他在不安地抱怨他父亲的无数次来电，显然乔·拜登因他儿子的所做所为会影响到他的总统竞选而恼怒于其子。这段电话录音记录日期是2018年5月11日，应该是亨特与一不知名女子的通话录音，亨特在通话中说：“美国检察官办公室要打电话给我，因为我最好的朋友德文，在没有事先告诉我的情况下，把我和我父亲列为刑事案件的证人“。显然，亨特·拜登对阿彻将他和他父亲的名字列为潜在证人名单中很不满。
+[!\[\]()!\[\](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/cb9e2620-275c-4fc3-8176-1db2db9c33cc.png?asset_id=95f95ed4-4142-4b61-b77b-17eadad605cd&amp;img_etag=%22b8e36b2a610df1d0dcfbdf743979411d%22&amp;size=3060)](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/cb9e2620-275c-4fc3-8176-1db2db9c33cc.png?asset_id=95f95ed4-4142-4b61-b77b-17eadad605cd&amp;img_etag=%22b8e36b2a610df1d0dcfbdf743979411d%22&amp;size=1024)
 
-值得注意的是，作为阿彻的大学室友的亨特·拜登曾多次卷入该涉案计划。根据法庭记录显示，阿彻是亨特·拜登的长期业务合作伙伴，两人都与一家不透明的投资公司Rosemont Seneca Bohai LLC有关，而这家投资公司由亨特·拜登所有。法庭文件同时显示，拜登，这个具有政治影响力的名字，被用在了合法化这一欺诈性债券的销售上。
+![]()![](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/45defddf-63db-4ea5-9a9a-a7a7af4dbd9d.png?asset_id=baaad10e-25a9-4ff1-b7da-b6a24561482a&amp;img_etag=%228dc4624585cb81df456d9b5a72bbf049%22&amp;size=3484)
 
-报道进一步揭露，阿彻和亨特·拜登还以乌克兰能源公司Burisma的董事身份收取了数百万美元的报酬，而当时的副总统乔·拜登正是2014-2017年美乌政策的制定人。
+![]()![](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/9e85827d-5787-4eb4-b728-bfbdaeb4b981.png?asset_id=c7911113-33ac-4398-abb7-c44ff5c55910&amp;img_etag=%22d240aae07fef2c42a9195a74f80c5569%22&amp;size=3270)
 
-时至今日，乔·拜登还在反复强调，他不参与，也从未与儿子讨论过，甚至不了解儿子的生意。他在2019年8月告诉记者：“我从未与儿子或兄弟或其他人讨论过与他们业务有关的任何事情。” 但是，如果乔·拜登什么都不知道，法庭为什么要把他列为证人？虽然乔·拜登的竞选团队表示无可奉告，也没有对亨特笔记本电脑的电子邮件和其他消息的真实性提出任何异议，显然，乔·拜登的欺骗和抵赖正在被一步步揭露。
+![]()![](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/705f0d07-16d7-4ef5-aef1-324c69e24bfa.png?asset_id=2273420b-59f2-42c8-a329-b59eade40c4c&amp;img_etag=%22cc691c3c1a9250a06b029d25da2db264%22&amp;size=2560)
 
-报道进一步引用亨特·拜登前商业合伙人托尼·博布林斯基（Tony Bobulinski）的指证。博布林斯基说： “乔·拜登说他从未与亨特·拜登讨论过他的生意，那是错误的。我对此有第一手的了解，因为我直接与拜登一家打交道，包括乔·拜登。”这位美国海军退伍军人表示，他多次与乔·拜登会面，包括在2017年5月2日，在加州比佛利山庄一家酒吧内，亨特·拜登安排他向乔·拜登介绍了一项与中共国企业有关的生意。 而在2017年5月20日的一封邮件中，另一位合伙人詹姆斯·吉利亚尔（James Gilliar）警告博布林斯基不要提及民主党候选人乔·拜登参与了SinoHawk合资企业项目。博布林斯基说，吉利亚尔和他的搭档罗伯·沃克（Rob Walker ）始终极力掩盖乔·拜登参与其中的秘密。
+![]()![](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/2f86b37a-aec5-4323-bf94-b1fbc1f18b3b.png?asset_id=6e556cc9-f719-46fd-8bf3-bf69b0c8a9cf&amp;img_etag=%224221ed110ce88b4fb1562e25370c2b2e%22&amp;size=3614)
 
-根据从亨特·拜登的笔记本电脑中获得的信息，他在2015年4月安排了一位来自Burisma公司的官员在华盛顿与时任副总统的乔·拜登会面，而乔·拜登的竞选团队则称在乔·拜登正式议程记录中没有这次会议记录。
+![]()![](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/efffb130-25ca-4394-9f41-1329ea33f99d.png?asset_id=9130ae1a-8759-48a2-a2eb-098441652af9&amp;img_etag=%2286005f174730b6c404bca76be71e73ac%22&amp;size=3611)
 
-然而，更多的事实披露，2013年，亨特·拜登和父亲一起乘坐空军二号抵达北京，并将一位中国商人介绍给了这位当时的副总统，而这位中国商人帮助他的儿子成立一家拥有15亿美元的投资基金。这之前的2011年，白宫访客记录显示，与亨特·拜登有关的几名中国商人被护送进白宫与副总统见了面。
+![]()![](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/79aeec77-1b28-4dd8-95f2-1e5fd5b304b6.png?asset_id=f82d677c-7d34-426f-8440-0ec7ebbb058f&amp;img_etag=%22e586617c252974a6ed2002dc9021251a%22&amp;size=3413)
 
-尽管乔·拜登一再否认参与了他儿子的商业交易，但已有证据表明乔·拜登在亨特的交易中拥有秘密股份。 在2017年5月的一封关于SinoHawk合资企业股权分拆的电子邮件中，显示出四个合伙人各自获得了该公司20％的股份，其中10％归“吉姆”所有，其余10％则被一名“大佬”持有。博布林斯基已经确认，所谓“大佬”就是指乔·拜登。目前，博布林斯基已向参议院和联邦调查局调查人员移交了包括与乔·拜登会晤有关的同期通讯等证据。
+![]()![](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/06fb1b3d-df03-45f8-a563-6154999dd331.png?asset_id=a8a7dab1-8b37-4825-b778-309ba46b6194&amp;img_etag=%222811b79a9dca04b73ad9b14558213c1d%22&amp;size=3604)
 
+![]()![](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/ca0629be-23d7-42b0-b57b-1db6f64e7ee4.png?asset_id=3479830c-e094-48bf-9b12-b6e38d3a2bff&amp;img_etag=%225458f01c7ee39f9a9610f6b70e0c9dc7%22&amp;size=3602)
 
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-[原文链接](https://www.realclearinvestigations.com/articles/2020/11/02/court_file_shows_joe_biden_a_witness_with_son_in_fraud_case_125860.html)
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-翻译：Hanstyle88
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/jAArU5hnxAsbJ/)】
 
-校对：Sarathecat
+[!\[\]()!\[\](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/1e1f35f5-e9db-467b-8c1c-3e99e6024ecd.jpg?asset_id=411ff867-84ce-453e-b4b1-d4e07326d446&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/1e1f35f5-e9db-467b-8c1c-3e99e6024ecd.jpg?asset_id=411ff867-84ce-453e-b4b1-d4e07326d446&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
-0
+2+

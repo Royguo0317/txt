@@ -1,39 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅炸弹第六波之：哈萨克斯坦发展中国家职场的案例研究报告
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/522831/)
+## 独家：鲍嘉琪与拜登家族邮件，透露川普总统与中国石化贸易谈判
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/522889/)
 
-*翻译/简评：Johnwallis｜校对：John Wallis｜审核：John Wallis｜Page：玄天生；*
+翻译 多伦多加喜农场 坐看云起时
 
-**简评：**
+校对 XM 上传 HUH
+![]()![](https://media.discordapp.net/attachments/721388937553248396/773209947466235934/Snipaste_2020-11-03_23-30-13.png?width=353&amp;height=509)![]()![](https://media.discordapp.net/attachments/721388937553248396/773209976070996000/Snipaste_2020-11-03_23-39-14.png?width=397&amp;height=509)
+来自：**鲍嘉琪 **
 
-这是一封由丹尼尔·若迪（Daniel F. Runde，CSIS高级副总裁）写给亨特拜登关于哈萨克斯坦发展中国家职场的案例研究报告的信件。
+主题：新闻和项目清单
 
-[!\[\]()!\[\](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/cb9e2620-275c-4fc3-8176-1db2db9c33cc.png?asset_id=95f95ed4-4142-4b61-b77b-17eadad605cd&amp;img_etag=%22b8e36b2a610df1d0dcfbdf743979411d%22&amp;size=3060)](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/cb9e2620-275c-4fc3-8176-1db2db9c33cc.png?asset_id=95f95ed4-4142-4b61-b77b-17eadad605cd&amp;img_etag=%22b8e36b2a610df1d0dcfbdf743979411d%22&amp;size=1024)
+日期：2017年11月8日下午4:40分
 
-![]()![](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/45defddf-63db-4ea5-9a9a-a7a7af4dbd9d.png?asset_id=baaad10e-25a9-4ff1-b7da-b6a24561482a&amp;img_etag=%228dc4624585cb81df456d9b5a72bbf049%22&amp;size=3484)
+收件人：gongwen dong , Hunter Biden , Jim Biden, Mervyn Yan, Robert Biden。
 
-![]()![](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/9e85827d-5787-4eb4-b728-bfbdaeb4b981.png?asset_id=c7911113-33ac-4398-abb7-c44ff5c55910&amp;img_etag=%22d240aae07fef2c42a9195a74f80c5569%22&amp;size=3270)
+**科普斯基斯蒂(Corpus Christ)的Cheniere LNG还是Texas LNG和中国石化？**
 
-![]()![](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/705f0d07-16d7-4ef5-aef1-324c69e24bfa.png?asset_id=2273420b-59f2-42c8-a329-b59eade40c4c&amp;img_etag=%22cc691c3c1a9250a06b029d25da2db264%22&amp;size=2560)
+**“****请注意，科普斯基斯蒂(Corpus Christ)在20世纪70年代被飓风摧毁，最近又被飓风Harvey摧毁。**
 
-![]()![](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/2f86b37a-aec5-4323-bf94-b1fbc1f18b3b.png?asset_id=6e556cc9-f719-46fd-8bf3-bf69b0c8a9cf&amp;img_etag=%224221ed110ce88b4fb1562e25370c2b2e%22&amp;size=3614)
+**Cheniere****目前有2条生产线正在建设中，并计划在以后建设更多的液化生产线。**
 
-![]()![](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/efffb130-25ca-4394-9f41-1329ea33f99d.png?asset_id=9130ae1a-8759-48a2-a2eb-098441652af9&amp;img_etag=%2286005f174730b6c404bca76be71e73ac%22&amp;size=3611)
+**除了Cheniere和Texas LNG，Delfin Midstream是第三家随川普总统贸易代表团访华的德克萨斯LNG公司，第四家LNG/NG公司是阿拉斯加天然气公司。**
 
-![]()![](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/79aeec77-1b28-4dd8-95f2-1e5fd5b304b6.png?asset_id=f82d677c-7d34-426f-8440-0ec7ebbb058f&amp;img_etag=%22e586617c252974a6ed2002dc9021251a%22&amp;size=3413)
+川普政府目前正在谈判的最大交易之一是来自中国石油天然气巨头中国石油化工集团公司的数十亿美元的能源投资，这将为德克萨斯州和美属维尔京群岛的飓风肆虐地区带来数千个新的就业机会。许多交易，包括中国石油的投资，预计将以非约束性谅解备忘录的形式进行，没有合同。
 
-![]()![](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/06fb1b3d-df03-45f8-a563-6154999dd331.png?asset_id=a8a7dab1-8b37-4825-b778-309ba46b6194&amp;img_etag=%222811b79a9dca04b73ad9b14558213c1d%22&amp;size=3604)
+根据Bloomberg新闻社获得的一份政府文件，被初步列为与此行有关的中国相关交易的公司有：
 
-![]()![](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/ca0629be-23d7-42b0-b57b-1db6f64e7ee4.png?asset_id=3479830c-e094-48bf-9b12-b6e38d3a2bff&amp;img_etag=%225458f01c7ee39f9a9610f6b70e0c9dc7%22&amp;size=3602)
+通用电气公司（General Electric Co.）、霍尼韦尔国际公司（Honeywell International Inc）、西屋电气公司（Westinghouse Electric Co., ）、阿拉斯加天然气公司（Alaska Gasline Development Corp.）、波音公司（ Boeing Co.）和高通公司（Qualcomm Inc）。这些公司代表了从生命科学到重型机械的各个领域。根据该文件，其他可能正在进行交易的公司包括Cheniere Energy (钱尼尔能源)、特雷克斯公司（Terex Corp) 、赛默飞世尔科技公司（Thermo Fisher Scientific Inc. ）、美国应用材料公司（Applied Materials Inc.）、卡特彼勒（Caterpillar Inc.）和黑石集团(Blacestone Group)。
 
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+该项目在德克萨斯州和维尔京群岛的飓风区的细节尚未确定，但这家中国公司，即中国石化，预计将与位于波士顿的基础设施投资公司Arclight Capital和康涅狄格州的商品贸易公司Freepoint Commodities LLC合作。这笔交易预计在美国的投资价值将超过70亿美元。
 
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+**700-****英里管道**
 
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/jAArU5hnxAsbJ/)】
+该项目将包括建造一条700英里长的管道，从德克萨斯州西部的二叠纪油田到墨西哥湾沿岸，并在那里建造一个储存设施。另外，中国石化还将扩大圣克罗伊岛被称为石灰树的现有油储设施。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/1e1f35f5-e9db-467b-8c1c-3e99e6024ecd.jpg?asset_id=411ff867-84ce-453e-b4b1-d4e07326d446&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/jAArU5hnxAsbJ/images/1e1f35f5-e9db-467b-8c1c-3e99e6024ecd.jpg?asset_id=411ff867-84ce-453e-b4b1-d4e07326d446&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+据一位熟悉该提案的人士透露。
+
+该交易仍需得到美国和中共官员的最终批准。
+
+但所有这些开发交易都可能为美国总统提供政治助力，他在竞选活动中的大部分时间都在争辩说，他具有吸引就业和投资回美国的独特资格。
+
+美国商务部长威尔伯∙罗斯表示，上个月川普访华时，美国希望在川普访华期间能有 “非常好的可交付成果”。
 
 2+
