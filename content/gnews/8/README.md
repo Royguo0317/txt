@@ -1,11 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登硬盘里的照片【3】
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/520038/)
+## 【精华版粤语快报】【路德社】11.02：重磅爆光布隆伯格策划拜登败选后捣乱计划
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/520068/)
 
-编辑：io
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03010407/4-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03010443/5-4.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03010500/6-3.png)
-这三张照片是不是一个人？（个人猜测，如有雷同，纯属巧合）
+制作单位：战友之家·粤语频道
+
+制作团队：路德二组（文恩，Andy Su,文乔,剪刀手）
+
+
+
+摘要：
+
+如果川普总统宣布胜选，民主党就会以质疑大选结果合法性为借口，开始游行施压。民主党准备至少500个以上的诉讼律师专门针对邮寄选票问题进行法律超限战，准备司法大战。
+
+FBI局长雷被爆出持有亨特公司股权，深度参与拜登家族与华信能源在俄罗斯的交易。邮件门新披露出来的信息显示盗国贼与亨特既相互利用但是又相互不信任的关系。
+
+原视频链接:
+
+
 
 0
