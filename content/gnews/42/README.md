@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## GNews独家重磅!!!Hunter 邮件四度曝光!!!
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/520500/)
+## 独家：亨特·拜登乱伦的一家
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/521093/)
 
-3-126
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03034131/%E8%9E%A2%E5%B9%95%E6%93%B7%E5%8F%96%E7%95%AB%E9%9D%A2-2020-11-03-11.41.10.png)![](https://gnews.org/dc69a055-f652-442b-8602-2fb51e13ad10)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03034225/%E8%9E%A2%E5%B9%95%E6%93%B7%E5%8F%96%E7%95%AB%E9%9D%A2-2020-11-03-11.34.42.png)
-0
+**您申明，您已年满18周岁或在您访问以下视频的司法管辖区已达到成人年龄，并完全有能力和资格签订本服务条款中规定的条款、条件、义务、申明、陈述和保证，并遵守和履行本服务条款。如果您未满18岁或法定成年年龄，请不要观看以下的任何内容。**
+
+1+

@@ -1,45 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 决战13天：硬核！亨特·拜登的聊天记录（7）
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/520959/)
+## “硬盘门”显示亨特·拜登于2018年5月25日，由洛杉矶飞往华盛顿
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/521416/)
 
-- 编辑：文顺
-- 翻译：Ranting
+翻译：康州农场-任天行 
+校对：康州农场-DiDi
 
+编辑：康州农场-大飞机
 
-***更多真相，请关注：[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)***
+由“硬盘”中资料显示:亨特·拜登，在2018年5月25日（星期五）上午9点32分，搭乘UA 856次航班，从洛杉矶飞往华盛顿，登机信息显示该航班预计下午5点48分到达杜勒斯国际机场。
 
-看看亨特是如何勾引女性的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03050840/A1-1.jpg)
-**亨特：你真他妈幸运，你是方圆1000英里内最性感的女人。**
-**亨特：打算约她出去**
-**亨特：对了，你很漂亮**
-**亨特：而且我比你男朋友酷多了**
+亨特·拜登所乘飞机为联合航空(United Airlines)的航班，下图为UA-856次航班当日实际起降时间。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03063415/%E5%9B%BE%E7%89%871-1.png)
+信息中显示，UA-856次航班，机型为Boeing BBJ3（B739,737-900）亨特·拜登的座位为豪华商务舱8C座位，如下图：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03063431/%E5%9B%BE%E7%89%872-1.png)
+以亨特·拜登的身份，为什么订的是豪华商务舱8C这么普通的座位，或许订机票很仓促，到底是什么事情要在这个时间飞往盛顿去处理，有什么事情发生了？
 
-**X:1000英里？就这样吧**
-**X:拜拜**
+更多真相，请关注：GTV、GNEWS
 
-**亨特：半径的话真的很远啊**
-**亨特：这就像巴拉圭 冰岛 爱尔兰 亚利桑那**
-**亨特：好吧，5000英里**
-**亨特：因为我想起了哈萨克斯坦的一个辣妹子**
-**亨特：你见过我的纹身吗**
-**亨特：我现在要不要去取现金**
-**亨特：我在外面**
-**亨特：嘿，真的要检查一下**
+原登机信息：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03063529/%E5%9B%BE%E7%89%873-3.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03063535/%E5%9B%BE%E7%89%874.png)
+来源：
 
-**X: 他说15**
-**X: 让你的小弟弟冷静一下**
+1.亨特·拜登的“硬盘”
 
-**亨特：操**
-**亨特：你现在是3英里内最性感的女孩**
-**亨特：其实300码**
-**亨特：而你的15分钟已经过去两个月了**
-**亨特：顺便说一句，我的小弟弟是个美丽的东西，显然不是你能平息的。**
+2.起降情况：
 
-**亨特：那你说的是帮什么忙呢？你表哥卖给我六份饭，外卖盒里什么都没有。我点的东西都是假的。如果你认为这甚至是一种可能性，你为什么不告诉我，你的表哥不能被信任，就我所记得的数学工作方式而言，我现在已经给你了你1000顿饭，而零回报。还有额外的200，用于打一个电话，在外面走顶多两分钟，你太让我失望了。你的人情已经让我出了1000块钱，我就很奇怪，你怎么就不能对我这个混蛋说声对不起呢？**
+[https://www.airportia.com/flights/ua856/los\_angeles/washington/?date=2018-05-25](https://www.airportia.com/flights/ua856/los_angeles/washington/?date=2018-05-25)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25143553/image0-101.jpg)喜西农场官方Parler二维码，敬请关注！
+3.机型：
 
-1+
+[https://zh.flightaware.com/live/flight/UAL856/history/20180129/1840Z/KLAX/KIAD](https://zh.flightaware.com/live/flight/UAL856/history/20180129/1840Z/KLAX/KIAD)
+
+4.座位：
+
+[https://www.seatguru.com/airlines/United\_Airlines/United\_Airlines\_Boeing\_737-900\_E.php](https://www.seatguru.com/airlines/United_Airlines/United_Airlines_Boeing_737-900_E.php)
+
+0

@@ -1,17 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 10.23 路德时评：中共渗透美国主流媒体 意图洗脑全球人民【精华版粤语配音】
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/521497/)
+## 决战13天：独家！再爆亨特拜登邮件（2）
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/521721/)
 
-制作单位：战友之家·粤语频道
+- 编辑：文顺
+- 翻译：Ranting
 
-制作团队：Mrcc、一帘幽梦、wen fei、阿恩
-
-
-
-摘要：
-
-美国主流媒体掌握了大量的观众，却未尽职宣传真相，反而掩饰真相成为中共帮凶，认清邪恶的人们应该勇敢发声，与邪恶抗争！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03073749/2.1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03073800/2-5.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25143553/image0-101.jpg)喜西农场官方Parler二维码，敬请关注！
 
 0

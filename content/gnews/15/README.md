@@ -1,17 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 10.27 路德时评：中共在美间谍勾兑美国政要 拜登利用皮包公司吸金【精华版粤语配音】
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/521519/)
+## 决战13天：独家！再爆亨特拜登邮件（3）
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/521748/)
 
-制作单位：战友之家·粤语频道
-
-制作团队：crabheadman、一帘幽梦、文东、阿恩、哥啊
-
+- 编辑：文顺
+- 翻译：Ranting
 
 
-摘要：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03074346/3.2.jpg)
 
-拜登利用假律师事务所、假名收受中共的贿赂，海外欺民贼确实与美国政要勾兑极深。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03074402/3-9.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25143553/image0-101.jpg)喜西农场官方Parler二维码，敬请关注！
 
 0

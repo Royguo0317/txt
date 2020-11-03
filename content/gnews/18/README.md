@@ -1,23 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 10.17 路德时评：路德英文频道的重要性【精华版粤语配音】
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/521402/)
+## 决战13天：独家！再爆亨特拜登邮件（1）
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/521601/)
 
-制作单位：战友之家·粤语频道
-
-制作团队：Mrcc、文雀、打杂的、wen fei、阿恩
-
+- 编辑：文顺
+- 翻译：Ranting
 
 
-摘要：
+亨特·拜登与其父在2010年6月到非洲与Shell公司勾兑可再生能源方面的合作。
 
-中文频道已经为国内外同胞认可，致力在华人圈传递真相，现在需要将真相传递给外国人，向全球揭露中共真相。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03070633/1.1.jpg)
 
-川普总统积极进行选举宣传，目的是测试民意。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03070701/1-13.jpg)
 
-路德社英文频道：
-
-[https://www.youtube.com/c/Ludepress](https://www.youtube.com/c/Ludepress)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25143553/image0-101.jpg)喜西农场官方Parler二维码，敬请关注！
 
 0
