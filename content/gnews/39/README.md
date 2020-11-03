@@ -1,20 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 决战13天：硬核！亨特·拜登的聊天记录（2）
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/520210/)
+## 决战13天：硬核！亨特·拜登的聊天记录（3）
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/520290/)
 
 - 编辑：文顺
 - 翻译：Ranting
 
 
-Allie是谁，爱哭的孩子又是谁？此时的亨特又在干什么？
+亨特有几个情人？恐怕连他自己也不知道了！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03020427/A12.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03020306/A2.jpg)
 
-**Allie：相信那个可怜的小爱哭鬼吧 我觉得你应该爬回你家 你属于那里
-Allie：我不想和你们这两个哭哭啼啼的孩子有任何瓜葛，你们应该和她断绝关系，继续前进，但你们却让一个连脱衣舞娘的位置都拿不到的孩子控制了你们的思想
-Allie：我不是为这个来的**
+**X：如果你还没睡，就打电话给我。英国#**
+
+**H：？**
+
+**X：伦敦请致电＃**
+
+**H：你是谁**
+
+**X：Hal我在伦敦-宝贝打给我**
+
+**H：你是谁**
+
+**H：快点！告诉我你是谁？**
+
+**X：你在开玩笑吧Hal, 请打电话给我**
+
+**H：除非你告诉我你是谁?!!**
+
+**X：你会以为谁是我的爱人？ 你有多少个情人？**
 
 ***更多真相，请关注：[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)***
 

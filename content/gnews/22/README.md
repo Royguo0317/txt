@@ -1,18 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【匪共再次欺压台湾】土耳其将中华民国国旗從感谢各国救助名单上移除
-` G-NEWS Taiwan` [轉載自GNews](https://gnews.org/zh-hans/520651/)
+## GNews独家重磅!!!Hunter 邮件四度曝光!!!No 2！!
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/520628/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03041231/%E5%9C%96%E7%89%87-1-1.png) (图面来源：[https://tw.news.yahoo.com/%E6%88%91%E5%9C%8B%E6%97%97%E6%85%98%E8%A2%AB%E6%B6%88%E5%A4%B1-%E5%9C%9F%E8%80%B3%E5%85%B6%E7%B8%BD%E7%B5%B1%E8%AC%9D%E5%8F%B0%E7%81%A3-%E8%88%89%E5%8B%95-%E5%8F%B0%E4%BA%BA%E6%84%A3%E4%BA%86-184247303.html](https://tw.news.yahoo.com/%E6%88%91%E5%9C%8B%E6%97%97%E6%85%98%E8%A2%AB%E6%B6%88%E5%A4%B1-%E5%9C%9F%E8%80%B3%E5%85%B6%E7%B8%BD%E7%B5%B1%E8%AC%9D%E5%8F%B0%E7%81%A3-%E8%88%89%E5%8B%95-%E5%8F%B0%E4%BA%BA%E6%84%A3%E4%BA%86-184247303.html))
-根据台北时报(Taipei Times)报导，土耳其总统雷杰普·塔伊普·埃尔多安（Recep Tayyip Erdogan）决定在周五大地震后提供救助的感谢各国推文中，移除台湾的中华民国国旗。原本埃尔多安总统在推特张贴了星期六发生7级地震后到达土耳其的国家和组织的名字和其国旗照片，但他后来删除了该推文，并用移除中华民国国旗后的新推文代替。
+3-129
 
-据报导，台湾外交部部长吴钊燮表示“根据我们在土耳其的代表处获得的信息，这是由于中共的干预和压力。”他表示尽管中国采取了镇压措施，台湾仍将在需要时继续向其他国家提供帮助。吴钊燮接着说：“我们谴责中共在人道主义援助问题上的令人遗憾的干预和镇压，这没有任何政治意义。”行政院长苏贞昌（Su Tseng-chang）表示 “中共所做的是试图限制台湾的国际空间。”他说，面对这种镇压，台湾人应该认识到，台湾只能站在自己的脚上，才能在国际社会中占据一席之地。
+**From**: **Inspiration **\*\*\*\*\*\*\*@inspirationcommunity.org
 
-（原文出处: [https://www.taipeitimes.com/News/front/archives/2020/11/03/2003746257](https://www.taipeitimes.com/News/front/archives/2020/11/03/2003746257)）
+**Subject**: to Hunter from Jessica
 
-译评:
+**Date**: August 27, 2016 at 5:02 AM
 
-中共的作法就是在任何方面压迫台湾的国际空间，尽管是国际人道救援这样人性最光辉的行为，中共也是一律封杀。台湾表示尽管被移除在感谢名单里，仍然表示将会给需要的国家提供协助。台湾这样坚持人道关怀的行为，绝对会在国际社会上走出自己的一片天。就像冠状病毒，台湾靠着官员组织和医护体系的努力，还有国人的团结，合力让国内的确诊率降到最低。这样的杰出表现，就像钻石一样闪亮。任何抹黑也掩盖不了的。
+**To**: [email protected]
 
+**Cc: **Jessica Dibb \*\*\*\*\*@inspirationcommunity.org
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+亲爱的亨特,
+
+我经常这样想你，并总是发送爱与祈祷。我衷心希望您的旅程充满深度，优雅，美丽，智慧和喜悦。
+
+门是敞开的，供您明天上课，时间长短不限。我们明天27日星期六从12点到8点上课。这是一群非常真诚和愿意的旅行者, 能够邀请您到那里来真是太好了。
+
+我知道您非常忙碌，忙于处理所有事情。我非常期待与您联系。请让我知道是否有一些适合您的时间。
+
+我看到你被转变的爱和治愈的金光所包围，很受上帝的爱。还有很多其他…
+
+永远的爱与祝福，杰西卡
+
+附言：我正在上面复制我的个人电子邮件，所以你可以写给我。
+
+Inspiration Consciousness School
+
+[\[email protected\]](/cdn-cgi/l/email-protection#c9acbabaaca7aaac89a0a7bab9a0bba8bda0a6a7aaa6a4a4bca7a0bdb0e7a6bbae)
+
+9721 Sherwood Farm Road
+
+Owings Mills, MD 21117
+
+410-998-9777
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03040543/%E8%9E%A2%E5%B9%95%E6%93%B7%E5%8F%96%E7%95%AB%E9%9D%A2-2020-11-03-12.05.21.png)
 0

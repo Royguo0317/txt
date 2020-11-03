@@ -1,54 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年11月03日面具先生直播速记
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/521196/)
+## 独家：亨特·拜登的邮件内容115
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/521136/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/28095013/990a25d674bf0097.jpg)
-**文稿整理：64喜马拉雅 & Antsee**
+2016年5月12日 上午11點33分
 
-一、今天是个历史的日子，也将是个即将鉴证历史的时刻。首先恭喜川普总统即将赢得这次大选。而他的对手，那些和CCP勾兑的民主党或者其它黑暗势力，正酝酿着最后的疯狂，很可能导致大选出现荒诞的情形。三年起文贵先生发起的爆料革命，是一场救世革命，美国人民、伊朗、土耳其、北朝鲜、中国人民，乃至世界人民的命运，都将随着大选的结果，被深刻改变。每个人在世界迈向新时代的过程中，都承担着自己的历史使命，我们正在用自己或多或少的行动，铸就着历史。
+（抄送自）一年佛斯瓶裝水供應
+謝麗爾·施耐德致凱瑟琳·拜登——
+早安凱瑟琳！恭喜成爲今年幸運獲獎者之一！我負責運水，需要以下信息：瓶种選擇，1，五百毫升PET硬塑料裝；2，三百七十五毫升硬質玻璃裝；3，三百七十五毫升碳酸玻璃裝。你可選擇一種或多種（後者也是我的推薦）。然後是套數統計，每套有二十四瓶。根據規定，所有貨品都是瓶裝水，並且將一次送達。以及送貨地址，聯係人姓名和電話。一旦提供上述信息，我會通知你送貨日期（一般在兩到三天後）如有任何問題，本人知無不言，悉聽尊便。
 
-二、特别声明：面具先生的节目只有本账号和之前在战友之家的频道，其余网络上任何其它涉及面具先生的，都是假的，希望战友们擦亮眼睛。
+2016年5月12日 下午2點13分，凱瑟琳·拜登寫道：
+一半碳酸水，一半普通水？一半是芬妮的，她只愛普通瓶裝水。你呢？
 
-三、马云被（CCP）约谈，预示着其代孕功能已经结束。
+2016年5月12日 下午2點31分，亨特·拜登寫道：
+這是一年的供應，所以一半一半。
 
-（郭先生2019年10月前后的一个视频中提到CCP有多个计划，其中之一就是共产天下财富，掌控中南坑之外所有的钱。）
+From: Hunter Biden [email protected]
+Subject: Re: One Year Supply of Voss Water
+Date: May 12, 2016 at 11:33 AM
+To: Kathleen Kathleen [email protected]
+Cc: Hunter Biden [email protected]
 
-四、川普总统竞选集会时，台下支持者们高喊：排干沼泽！
+R. Hunter Biden Rosemont Seneca Partners Washington D.C. 202-333-1880
+On May 12, 2016, at 2:31 PM, Hunter Biden [\[email protected\]](/cdn-cgi/l/email-protection#f098929994959eb0829f83959d9f9e8483959e959391de939f9d) wrote:
+its a years supply so get half and half
+R. Hunter Biden Rosemont Seneca Partners Washington D.C. 202-333-1880
+On May 12, 2016, at 2:13 PM, Kathleen Biden [\[email protected\]](/cdn-cgi/l/email-protection#f992988d91959c9c979b909d9c97b994989ad79a9694) wrote:
+1/2 and 1/2 sparkling and flat?
+The one thing is Finny is the one who loves her bottled water and she only likes flat.
+What about you?
+Sent from my iPhone
 
-（郭先生2018揭示过川普总统目标是清除共产主义，而CCP也深知突破第一、二岛链的意义。从突破第一岛链的角度来说，台湾、香港，非常危险，尤其在大选最关键的时刻。）
+Begin forwarded message:
+From: Cheryl Snyder [\[email protected\]](/cdn-cgi/l/email-protection#1152427f68757463517b64767674637f7064657270613f727e7c)
+Date: 12 May 2016 2:06:35 pm GMT-4
+To: “[email protected]” [\[email protected\]](/cdn-cgi/l/email-protection#95fef4e1fdf9f0f0fbf7fcf1f0fbd5f8f4f6bbf6faf8)
+Subject: One Year Supply of Voss Water
+Good morning Kathleen,
+Congratulations on being the lucky winners of a year’s supply of VOSS!
+I am coordinating delivery of the water & need the following information from you:
+!Type & bottle size options are: (1) 500ml Still PET (plastic); (2) 375ml Still Glass or (3) 375ml Sparkling Glass bottles.
+You can get just one option or a variety of all three (which would be my recommendation).
+! The number of cases you would like . . . each case has 24 bottles of water; please note that under the terms of delivery, all cases will be water; please note that under the terms of delivery, all cases will be delivered at one time.
+! The delivery address as well as a contact name at the delivery address & their phone number.
+Once you let me know the information requested above, I will let you know the approximate delivery date (which will be a 2-3 day window).
+Please let me know if you have any questions.
+I look forward to hearing back from you at your convenience.
+Best, Cheryl
 
-五、郭先生2019年视频，揭露CCP“三大战役”：
+JUGGERNAUT CAPITAL PARTNERS
 
-1）第一战役：控制中南坑之外所有的社会财富，包括诸如马云、许家印等以任何形式转移到海外的财富，财富归为党有。
+* * *
 
-2）第二战役：六个月内彻底实现战略第二岛链军事扩张，把军队派到中东、非洲、东欧，到达5000公里之外，8000公里（范围），亚洲彻底拿下。打破不结盟的规则，对外实现战略派兵兵力直达美国、欧洲（家门口）。CCP雄心如梦，准备当世界老大了。随着军事扩张，RMB国际化，与六十个国家实现货币兑换和国家货币储备，以金、银本位的货币外汇储备
+Cheryl C. Snyder Assistant to John D. Shulman & Ofﬁce Manager J U G G E R N A U T C A P I T A L P A R T N E R S 4445 Willard Avenue, Suite 1040 Chevy Chase, MD 20815-3694 301.476.4424 Phone 301.234.6320 Fax [email protected] www.juggernautcap.com
 
-六、第三战役：对香港、台湾改变现有格局。将香港变为行政区，结束所谓的一国两制。
-
-七、（所以）现在支持川普总统的，就是支持人类未来，支持爆料革命新中国联邦，传播真相，就是拯救世界，只有支持川普总统彻底干掉CCP、共产主义，人类才有未来，选择被CCP蓝金黄，将陷入无尽的黑暗。
-
-八、二战期间毛泽东就曾多次发动对台作战，最终都铩羽而归，CCP做梦都想拿下台湾。（所以）当CCP最后一张底牌拜登大选失败，垂死挣扎之下试图搞乱美国，搞政变、搞乱世界都是有可能的，台湾也因此变得更加危及。
-
-九、路德先生早前节目和GNEWS欧有文章揭露，民主党大佬布隆伯格，计划在川普总统胜选连任之际，发动名为“RED MIRAGE”的计划，搞乱美国。
-
-十、大选之际，美国前空军中将接受班农先生war room采访说到，美国的情报机构被“政治化”，美国正在被推向极权专制、社会主义、共产主义的黑暗（深渊）。并指出这些转变，始于克林顿政府，至奥巴马政府时期，愈演愈烈。（这些人）为了追求自己的利益，背叛了国家。周二大选将决定是维护（美国）的民主共和体制还是成为共产主义社会。如果我们（川普总统）输了，这将是美国最后一次自由民主选。
-
-十一、2019年4月22日：郭先生谈到北朝鲜在极权集团中的角色，一边向俄罗斯要石油，要武器，同时向CCP要钱、粮食…准确说什么都要，扮演着独裁政权流氓小兄弟的角色，CCP则是独裁政权的主要经济支持，（现在美国）制裁伊朗就是制裁CCP，金融制裁一旦开始，就不会停。
-
-十二、（CCP为首的）共产独裁政权计划2049统治世界，美国已经明确“say no”，制裁伊朗，意味着（争夺）亚洲话语权以及战略能源
-
-十三、2018年郭先生视频点评“川金会”本质：
-
-本质一：川普总统目标解体共产主义，如能解决北朝鲜，下一步会加强对CCP的制裁、围剿；如解决不了，转而先从伊朗入手，回头再对付CCP。除非川普总统政权有所改变（今天看来，郭先生预测神准）
-
-本质二：CCP及其一带一路将和西方世界较量，甚至发生战争，没有任何力量能改变这样的局面。
-
-十四、郭先生在贸易谈判达成之后的一次视频中揭示：CCP在美国大选之前（应对川普总统的强势贸易谈判压力）习、王二人会以“事缓则圆”的战术拖延川普总统，挑动美国内部的种族矛盾，造成美国内部的混乱，（不兑现贸易谈判）毁坏川普总统信誉。同时各有自己的好哥们布隆伯格和拜登形成2vs1的竞选态势，动用一切力量影响美国总统选举。（今天看来，郭先生预测完全应验）
-
-战友们，我们所有人在阻止共产主义席卷全球的过程中，应努力行动、行动、行动，传播真相，支持正义，（历史的）时刻即将到来！请大家关注新中国联邦电视台的GTV直播，在大选最关键的时刻，或许会有一剑封喉的猛料爆出，
-
-
-
-1+
+0
