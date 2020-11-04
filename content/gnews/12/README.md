@@ -1,28 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆炸揭秘第六波(41)中共与拜登家族幕后的资本运作-Burnham Financial Group Inc.
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/524383/)
+## 中國共產黨的真正身分- 從地獄來的魔鬼
+` VOH欧洲战友团` [轉載自GNews](https://gnews.org/zh-hans/525097/)
 
-Stranger
+撰稿: 牛小妹 校對: 菲野
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03191529/G40-1.jpg)圖片: 曬太陽的貓
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03164426/biden-family-corruption_edit-1.jpg)
+
+中國共產黨從來就不是人類，他們真正身分就是從地獄來的魔鬼！自從地球上有了中國共產黨，他們的所作所為就是盡其所能的泯滅人性、破壞人类珍貴的宗教、文化資產，並且用盡各種方式想辦法奴役人民、鉗制人民的思想。
+
+1951年毛澤東在朝鮮戰爭的同時也入侵了西藏和新疆，然而全世界並沒有注意到這場摧毀佛教的惡行，摧毀宗教其實就是中共的目的之一。 在這場浩劫中,6000座佛教寺院，千年佛教文明寶庫被摧毀，約600萬人口被逮捕，至少120萬人被殺害。
+
+被採訪的年老藏人评价毛澤東就是惡魔，習近平就是梵文的阿修羅。中國共產黨的文化大革命运动，是一場自1966至1976年的長達十年的中華文化的浩劫。據各方估計，文革期間中國大陸非正常死亡人數超過2000萬。 文革期間的批鬥、抄家及告密等過激行為，使中國傳統文化與道德淪亡，整體經濟也受到嚴重影響。大量文物古蹟在「破四舊」中被紅衛兵破壞，中國人的宗教信仰自由被剝奪。許多名勝古蹟沒有在戰爭中毀滅，卻在文革被破四舊砸毀了。
+
+在中國，中共恣意破壞人們的文明遗產，損壞地球的環境，摧毀人們自由思想的意志。在世界各地，中共利用藍金黃鉗制意志薄弱貪婪的人們，讓他們甘心匍匐在黑暗的沼澤地裡為共產黨服務。拜登家族的亂倫，吸毒，虐童等超越人類道德底線的行為就是一個很好的例子。
+
+2019年爆發至今的CCP病毒，是中共的生化武器，對全世界發動的第三次世界大戰,目前全世界的CCP病毒感染者達4000萬，死亡人數即將超過120萬，美國死亡人數已超過20萬，連美國總統都被感染！有人甚至預測未來世界各國感染人數將超過2億，死於病毒者也將超過500萬。這種病毒具有超強的傳染力，一旦無法控制，將造成與人類歷史上發生過人口災難的黑死病、西班牙大流感齊名。
+
+這些種種絕不可能是單單一個政黨可以做出來的事, 中共就是一群從地獄出來的妖魔鬼怪, 企圖用各種邪惡的手段想要剝奪人類自由的宗教信仰、剷除人類文化的遺產, 達到奴役人類、毀滅地球的目的。而這群在地球的妖魔鬼怪, 要靠爆料革命的”真善狠”中的”狠”字訣, 讓這群魔鬼徹底滾出地球!
 
 
-根据Hunter电脑泄露的文件资料，本文将揭露中共与拜登家族是如何通过资本运作收购Burnham，并以此种方式收购其它企业。
 
-Burnham & Co. 由华尔街传奇I.W. “Tubby” Burnham 于1935年创立，现已是全球金融界最知名的公司之一。
-
-现今Burnham Financial Group Inc. 的业务主要通过2家子公司开展：Burnham Asset Management Corporation and Burnham Securities Inc.。Burnham Asset Management是美国证券交易委员会（SEC）的注册投资顾问。Burnham Securities是一家提供全方位服务的投资银行，向投资银行和经纪业提供与JP Morgan的长期稳定的机构间结算关系。
-
-2012年COR Fund Advisors LLC.（CORFA）与Burnham的股东和持票人达成协议，并于次年成功全资收购Burnham。
-
-这家神秘的CORFA如何有实力收购Burnham这样优秀的企业？现有资料表明，Harvest Global Investments Ltd.通过 Hunter掌控的公司 RSPI（RSP INVESTMENTS, LLC.）协助，成功投资CORFA。同时还有一家中国公司Cathay Kylin International Investment Holding Group（Beijing）也参与投资CORFA。Harvest Global Investments Ltd.是中国嘉实基金管理公司的全资子公司。嘉实基金的主要股东之一是一家名为中诚信托有限责任公司（ “CCT“或“中诚信托“）的金融公司。中诚信托（ CCT） 是一家由省级和国家级煤炭和矿业公司等组成的团所拥有的非存款性金融公司，包括中煤集团、中国人保、中国五矿等实力雄厚的国资委直属企业。嘉实基金实质是中共控制的国有企业。
-
-在Burnham Financial Group Inc.的领导人名单中发现了一位熟悉的身影-担任管理合伙人兼董事的DEVON ARCHER, 他是Hunter亲密的商业伙伴之一。深入调查DEVON ARCHER后发现，他曾经既是Rosemont Seneca Partner的管理合伙人，也是CORFA的联合创始人，还出任Bohai Harvest RST (Shenzhen) EQUITY INVESTMENT FUND MANAGEMENT CO., LTD.的副董事长和投资委员会成员。
-
-Rosemont Seneca Partner由Hunter实际控制，并且占有Bohai Harvest RST (Shanghai)20%股份。而Bohai Harvest RST (Shen zhen)是Bohai Harvest RST (Shanghai)的全资子公司。
-
-结合以上的信息，中共与拜登家族幕后资本运作收购Burnham的脉络图呈现在眼前。首先由DEVON ARCHER成立COR Fund Advisors LLC.，然后中共通过Harvest Global Investments Ltd.和Cathay Kylin International Investment Holding Group投资CORFA，最后CORFA利用这些资本完成收购Burnham。通过这套运作方式，中共可以隐秘且合法地收购或控制美国优秀企业，同时拜登家族亦能获得惊人的财富。
-
-0
+1+
