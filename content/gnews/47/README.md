@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家‼️亨特·拜登睁眼就是乳房，过着“性艺术”的糜烂生活
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/524183/)
+## 亨特包养多名在校女孩的邮件往来被曝
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/524488/)
 
-**您申明，您已年满18周岁或在您访问以下视频的司法管辖区已达到成人年龄，并完全有能力和资格签订本服务条款中规定的条款、条件、义务、申明、陈述和保证，并遵守和履行本服务条款。如果您未满18岁或法定成年年龄，请不要观看以下的任何内容**。
-
+该邮件往来记录了亨特拜登通过私人助理来负责数名年轻女性的生活和消费支出。从邮件表面看来其中大多皆为美国高中生或者大学在校学生，不排除有未成年少女，在2018年亨特的一张美国银行卡停用。并且其私人助理与他失去联系。，其时间与2018年叶简明出事相呼应。可以另一方面证实其与中共代理人之间密不可分的联系，
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03170239/WhatsApp-Image-2020-11-03-at-10.32.21-PM-1-1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03170254/WhatsApp-Image-2020-11-03-at-10.32.21-PM-2.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03170305/WhatsApp-Image-2020-11-03-at-10.32.22-PM-1-1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03170314/WhatsApp-Image-2020-11-03-at-10.32.22-PM-2.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03170328/WhatsApp-Image-2020-11-03-at-10.32.23-PM-2.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03170339/WhatsApp-Image-2020-11-03-at-10.32.23-PM-1-2.jpeg)
 0

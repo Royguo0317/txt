@@ -1,29 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 快讯：美国多个州布署国民警卫队应对选举之夜混乱
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/525173/)
+## 硬盘门内容泄露：亨特·拜登的自卑感来自他的父亲乔·拜登
+` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/525586/)
 
-作者：加拿大草原三省战友团 重生之鹰
+翻译：为子孙爱七哥农场翻译组
 
-校对：风云小哥 上传 HUH
-![]()![](https://media.discordapp.net/attachments/721388937553248396/773349980802515014/Snipaste_2020-11-04_08-55-53.png)图片来源： Twitter
-据ZeroHedge 11月3日报道，美国几个州为了应对周二晚间选举结果揭晓后出现的紧急情况，甚至可能出现的大范围社会动荡，布署了国民警卫队。
-
-选举之夜混乱的担忧一直困扰着各州政府，马萨诸塞州州长查理·贝克(Charlie Baker)在周一“激活”了1000名马萨诸塞州国民警卫队成员。
-
-俄勒冈州州长凯特·布朗(Kate Brown)两个月来第二次以选举可能引发社会动荡为理由宣布波特兰都市区进入紧急状态。
-
-德克萨斯州、阿拉巴马州和亚利桑那州的州长们也调动了国民警卫部队前往各自州的主要城市以防发生暴力事件。
-
-宾夕法尼亚州国民警卫队上周被派往费城地铁地区应对因警察枪杀一名黑人而引发的连续几夜的社会动荡。警卫部队已经布署应对周二晚间可能出现的骚乱。
-
-据美国全国广播公司（NBC)消息，白宫周围从明天开始将竖起一个不可伸缩的围墙，并有250名警卫部队成员待命。截至周一下午，警卫部队已经布署在美国的几个城市准备应对周二晚上的混乱。例如警卫部队已经出现在费城南部的百思买（Best Buy）。
-
-**简评：**相信国民警卫队和正义民兵力量已经未雨绸缪，做好了一切应对大选可能的动荡和混乱的准备，确保川普总统连任。正义必将赢得最后的胜利！
-
-**新闻来源：**
-
-https://www.zerohedge.com/political/watch-national-guard-troops-arrive-multiple-us-cities-ahead-election-night-chaos C
-
+邮件英文原件：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03211214/Conf-call-on-Sunday-124-400-p-01.jpg)
+邮件中文翻译：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03211419/16-5-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03211438/16-5-2.png)
 0

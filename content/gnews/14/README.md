@@ -1,21 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020美国大选川普总统再下一城——弗罗里达州!
-` 快慢机` [轉載自GNews](https://gnews.org/zh-hans/525548/)
+## 硬盘门内容泄露：亨特·拜登关于乌克兰天然气公司的邮件
+` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/525656/)
 
-内军事:快慢机
+翻译：为子孙爱七哥农场翻译组
 
-素材:新中国联邦华盛顿直播
-
-2020年11月3日,美国总统大选投票日.
-
-选举计票正在紧张激烈角逐之中.
-
-据新中国联邦电视台,华盛顿前方直播平台最新讯息——本次大选之中的摇摆重镇“佛罗里达州”,已被川普总统顺利拿下!
-
-关注G-NEWS,我们会持续更新本次美国大选的最新进展!
-
-祝贺川普总统再下一城!
-
+邮件英文原件：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03212900/Burisma.jpg)
+邮件中文翻译：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03212818/Screen-Shot-2020-11-04-at-10.27.27-AM.png)
 0
