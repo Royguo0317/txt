@@ -1,63 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 硬盘门内容泄露：亨特·拜登与王昕、李祥生的2017年6月30日借款协议的第1号补充协议
-` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/526357/)
+## 【香草诗词汇】狗赋
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/526363/)
 
-翻译：为子孙爱七哥农场翻译组
+作者：香草山写作组  木白
 
-邮件英文原件：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04001155/AMENDMENT-NO.1-TO-THE-LOAN-AGREEMENT-SKANEATELES-2019-FULLY-EXECUTED-01.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04001207/AMENDMENT-NO.1-TO-THE-LOAN-AGREEMENT-SKANEATELES-2019-FULLY-EXECUTED-02.jpg)
-邮件中文翻译：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/01003406/WhatsApp-Image-2020-11-01-at-11.33.40.jpeg)
 
-2017年6月30日借款协议的第1号补充协议。
 
-本修订协议第1号（本 “修订”）于2018年10月31日由以下各方（各为 “缔约方”，合称 “各方”）共同制定。
 
-(a)李祥生先生（香港居民，身份证号码P160302（0），”原贷款人”）。
 
-(b)罗伯特-亨特-拜登先生（美国居民，护照号488667055，”拜登先生”）。
 
-(c) Eric D.Schwerin先生（美国居民，护照号472523370，”Schwerin先生”）。
+很多时候，我们连狗都不如
 
-(d)Skaneateles，LLC（一家根据美国哥伦比亚特区法律注册的有限责任公司，”Skaneateles”与拜登先生和Schwerin先生合称 “借款人”，并单独称为 “借款人”）。
+它们会对陌生人吼
 
-(e)王昕女士（加拿大护照号AC745165，”新贷款人”）。
+而我们面对陌生的领导照样点头哈腰
 
-鉴于：
+把声音埋在尘埃里
 
-1. 原贷款人与借款人于2017年6月30日订立贷款协议（”贷款协议”），据此同意原贷款人将向Skaneateles提供若干垫款，以便为其对BHR的注册资本义务提供资金；
 
-2. 原贷款人没有足够资金按贷款协议的规定支付全部贷款，新贷款人于2017年12月4日直接向借款人提供158，000美元的贷款（即 “新贷款”）。
 
-因此，各方达成如下协议：
+很多时候，我们和狗差不多
 
-1. 各方同意对《贷款协议》进行如下修改：
+它们会被无良的主人抛弃
 
-(a) 《贷款协议》第1段应全部删除，改为： “贷款本金：新贷款人同意向借款人提供而借款人同意接受新贷款人提供的总额为158，000美元的定期贷款（简称 “贷款”）。
+这个世上，总有女孩会被他们的父母抛弃
 
-(b)贷款协议中所有提及 “贷款人 “的地方均应删除，改为 “新贷款人”。
+这不仅仅是因为贫穷
 
-签名页：
 
-原贷款人
 
-李祥生
+很多时候，我们比狗强一点
 
-新贷款人
+街上到处是流浪狗，街上很少有流浪汉
 
-王昕
+流浪汉不流浪的时候爱吃的是狗肉
 
-借款人
+流浪汉流浪的时候正被更高级的动物吃着
 
-罗伯特·亨特·拜登
 
-借款人
 
-Eric D. Schwerin
+一个单身女性朋友叫我一首关于狗的诗
 
-借款人
+因为，她捡来的小狗曾被主人开膛破肚
 
-Skaneateles, LLC
+因为，这奄奄一息的狗被找来的主人再次抛弃
+
+因为，我想起了那个被送给亲戚，下体被烟头烫坏的女童
+
+
+
+还有那么多大龄女青年愁嫁
+
+还有那么多流浪狗无家可归
+
+山河依然壮烈，只是雾霾也更汹涌
+
+这是我每天爱并疼痛着的理由
+
+11月3日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04002425/214-%E3%80%90%E9%A6%99%E8%8D%89%E8%AF%97%E8%AF%8D%E6%B1%87%E3%80%91%E7%8B%97%E8%B5%8B.jpg)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
