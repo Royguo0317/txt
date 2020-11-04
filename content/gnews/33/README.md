@@ -1,31 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 惊！一起失败的收购牵出FBI现任局长雷
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/524767/)
+## 硬盘门内容泄露：亨特·拜登拒绝支付前妻子女抚养费
+` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/524817/)
 
-草原三省战友团 文静
+翻译：为子孙爱七哥农场翻译组
 
-校对 上传小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03175548/%E6%96%87.jpg)图片来自战友创作
-10月27日，拜登家族前商业伙伴托尼·博布林斯基在接受福克斯新闻著名节目主持人塔克·卡尔森专访时除了指认那个Big Guy就是乔·拜登外，还说到了一个令人震惊的消息，那就是亨特·拜登还曾担任CEFC华信能源董事长叶简明的“个人律师”，代表该公司收购一家面临美国制裁的俄罗斯国有股达51%的石油公司14%的股份，现任FBI局长克里斯托弗·亚瑟·雷（Christopher Asher Wray）也牵涉其中。
-
-博布林斯基（Bobulinski）解释说，当时他将担任一家新公司Sinohawk的首席执行官，该公司将由“中共国的资本方” 华信能源CEFC和拜登家族合资。他说他在2017年与乔·拜登会面时讨论了这项安排。乔·拜登在竞选活动中却对此否认。但是交易失败了，他解释说，部分原因是CEFC试图购买俄罗斯石油公司Rosneft 14％的股份，而当时，俄罗斯因2014年入侵乌克兰和占领克里米亚正受到美国制裁。《金融时报》报道称，CEFC旨在“随着与西方的关系恶化”，帮助俄罗斯石油公司寻找新市场。由于中共国和其他国家也对CEFC进行了腐败调查，因此该交易最终失败了。
-
-这里说中共国也对CEFC进行了腐败调查，按GTV、GNews现在对三块硬盘拜登家族丑闻的连续揭露，我们已经知道其真实目的欲盖弥彰。当时拜登家族和中共国军企所进行的暗箱交易违反了美国对俄罗斯的制裁令，并且因为此交易的败露面临美国的调查，当时的能源巨头华信总裁叶简明会完全浮出水面。叶简明是中共国和拜登家族勾兑的直接参与者和重要棋子，中共国担心叶简明知道得太多了，就以腐败调查为名抓捕了叶简明，随后还让他多次“心脏病”发作，最后年纪轻轻就喂了鱼。所有事实真相又一次被中共成功地隐瞒下来，这是中共国惯用的伎俩，和王健之死有着异曲同工之妙。
-
-2017年7月，中共习近平在莫斯科与俄罗斯总统普京会晤。据博布林斯基回顾说，他很震惊地获悉CEFC对俄罗斯的生意感兴趣。
-
-2017年9月，当CEFC宣布收购Rosneft股份交易后，CEFC本应投资的1 000万美元却从未实现，博布林斯基就更加关注此交易的内幕。
-
-10月，他说，“我确实联系到亨特·拜登……问他，‘嘿，听着，他们没有出资1000万美元，你做了一些我不知道的事情吗？ 你绕过我们吗？ 你与叶简明讨论过吗？’”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03175750/%E6%96%871.jpg)
-博布林斯基说，亨特·拜登通过短信告诉他“我担任叶简明的个人律师”。博布林克西回忆道，他亲自在纽约的五千万美元的公寓里会见了叶简明。博布林斯基说， “你(亨特·拜登）担任叶简明个人代理，而叶简明正在投标14%的俄罗斯能源公司，价值90亿美元的交易？” 据悉，亨特·拜登在康涅狄格州有律师执业执照。
-
-另据10月31日路德社报道，FBI现任局长，克里斯托弗·亚瑟·雷（Christopher Asher Wray）涉及亨特·拜登邮件里隐藏的非法交易。当时叶简明的CEFC能源公司准备收购俄罗斯石油公司的14%的股份，而2014年克里斯托弗·亚瑟·雷的律师事务所是叶简明公司的代理律师，雷的个人律师费达900多万美元，若参与收购这家俄罗斯石油公司的14%股份，其律师费可达到几千万美元。亨特·拜登的邮件中表明，当时他们指定雷做为中间人，而雷的律师事务所就是帮亨特·拜登收钱的。另外需得到美国政府的首肯，叶简明的公司才能合法收购俄罗斯石油公司。看起来这起大买卖牵涉到拜登家族、克里斯托弗·亚瑟·雷（Christopher Asher Wray）、叶简明，或许还有俄罗斯总统普京！
-
-参考链接：
-
-**https://www.breitbart.com/economy/2020/10/27/collusion-hunter-biden-allegedly-represented-chinese-ceo-in-deal-to-help-russias-state-oil-company/**
-
+邮件英文原件：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03181229/612-Hunt-transferred-2000-01.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03181200/612-Hunt-transferred-2000-02.jpg)
+邮件中文翻译：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03184018/Screen-Shot-2020-11-04-at-7.08.30-AM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03184036/Screen-Shot-2020-11-04-at-7.08.42-AM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03184334/Screen-Shot-2020-11-04-at-7.43.18-AM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03184051/Screen-Shot-2020-11-04-at-7.37.46-AM.png)
 0

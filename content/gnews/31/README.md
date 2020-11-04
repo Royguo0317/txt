@@ -1,13 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 硬盘门内容泄露：亨特·拜登拒绝支付前妻子女抚养费
-` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/524817/)
+## 今天，美国人民将用手中的选票，选出美国的未来
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/525021/)
 
-翻译：为子孙爱七哥农场翻译组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03185423/1-9.png)图片来源： The independent
+拜登在2020年的大多数时间里都在对公众撒谎。从伊拉克战争投票到他受教育史，再到幻想在南非与纳尔逊 曼德拉一起被捕。过去因这些荒唐行为封杀他的媒体，这次却对这些胡言乱语视而不见。少女们和竞选政客也在想，为什么副总统要闻她们的头发，或者镜头上永远都存在着他那挥之不去的噁心亲吻。拜登竞选总统的论据整体看上去是有力的，但实际上，他的竞争对手川普总统更加有力。本周的选举本质上就是在光明与黑暗之间做选择，不仅关乎到川普是否能赢得大选，更重要的是川普的当选决定了人类的未来，决定了不会让中共傀儡拜登将红色共产政权席卷美国。
 
-邮件英文原件：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03181229/612-Hunt-transferred-2000-01.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03181200/612-Hunt-transferred-2000-02.jpg)
-邮件中文翻译：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03184018/Screen-Shot-2020-11-04-at-7.08.30-AM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03184036/Screen-Shot-2020-11-04-at-7.08.42-AM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03184334/Screen-Shot-2020-11-04-at-7.43.18-AM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03184051/Screen-Shot-2020-11-04-at-7.37.46-AM.png)
+从川普总统任职那一天开始，中共以及极左势力就开始对他进行无休止的弹劾和诽谤，他们把他的名字与“法西斯”， “叛徒”和“独裁者“相提并论。甚至《华盛顿邮报》等媒体发表评论：川普可能成为俄罗斯资产的18种方式。在过去的四年中，主流媒体向广大民众隐瞒了一个真实的川普, 他并不是一个暴君，而且事实一再证明川普总统从来不会滥用总统特权，即使为自己辩护。
+
+今天将是决定未来人类文明重要的一天。拜登作为一名政客47年在美国毫无作为，美国人民并没有因为美国政坛有他的存在有任何受益及民生方面积极的发展，相反他与他的家族组成国际犯罪集团与中共勾结里应外合为虎作伥，用 3F计划搞乱美国。拜登当选将是中共的胜利。川普总统作为一名“华盛顿的外来者”与“带着使命的神选之子”，他将正义重新带回白宫，并发誓让美国重新伟大。在民意大过天的美国，人们对他的支持不是没有根据的，他们知道谁才是真正爱这个国家和人民的总统，他们一定会用自己手中的选票选出美国的未来。
+
+**[原文链接](https://www.zerohedge.com/political/taibbi-worst-choice-ever)**
+
+翻译报道：Hakunamatata
+
 0

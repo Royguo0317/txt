@@ -1,28 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆炸揭秘第六波(41)中共与拜登家族幕后的资本运作-Burnham Financial Group Inc.
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/524383/)
+## 决战13天：拜登家族与共碟合作牟利
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/524961/)
 
-Stranger
+- 作者：Víctor Torres
+- 资料：七白石
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03164426/biden-family-corruption_edit-1.jpg)
 
+***更多真相，请关注：[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)***
 
-根据Hunter电脑泄露的文件资料，本文将揭露中共与拜登家族是如何通过资本运作收购Burnham，并以此种方式收购其它企业。
+朱利安尼先生透露，在拜登硬盘中一段长达3-4小时的对话中，亨特·拜登自述他和他的父亲跟中共国间谍做生意，合同金3000万美元，10%属于” Big Guy”乔·拜登。《国家脉搏》公布的通话录音中，亨特·拜登对他的合作伙伴和老爸充满了抱怨，并亲口承认：“我的合作伙伴何志平是他妈的中国间谍头子！”何志平于17年11月在纽约被捕，叶简明要求亨特担任何志平代理律师，并于18年3月汇给亨特1百万美元律师费。另外，其生意伙伴Archer曾将他和乔·拜登列为纽约南区联邦地区法院一桩刑事案件证人。
 
-Burnham & Co. 由华尔街传奇I.W. “Tubby” Burnham 于1935年创立，现已是全球金融界最知名的公司之一。
+叶简明系中国最大的非国有能源公司中国华信能源有限公司董事局主席。2018年，因中共不同派系权斗，在中共中央总书记习近平的亲自授意下被拘留审问，目前有消息称其已死亡。
 
-现今Burnham Financial Group Inc. 的业务主要通过2家子公司开展：Burnham Asset Management Corporation and Burnham Securities Inc.。Burnham Asset Management是美国证券交易委员会（SEC）的注册投资顾问。Burnham Securities是一家提供全方位服务的投资银行，向投资银行和经纪业提供与JP Morgan的长期稳定的机构间结算关系。
+何志平曾任香港民政事务局局長和港区全国政协委员，因在美行贿塞内加尔外长和乍德总统而被判囚三年并罚款40万美元。2020年6月8日出狱后被驱逐回香港。
 
-2012年COR Fund Advisors LLC.（CORFA）与Burnham的股东和持票人达成协议，并于次年成功全资收购Burnham。
+另外值得关注的是，2010年在香港成立的中华能源基金委员会，何志平任基金会秘书长，路祥安任副秘书长。2017年11月，何志平在美国被捕。2018年2月12日，路疑似感染流感入住玛丽医院，但在两日间病情急剧转差病逝。两者间的联系不禁引人遐想。
 
-这家神秘的CORFA如何有实力收购Burnham这样优秀的企业？现有资料表明，Harvest Global Investments Ltd.通过 Hunter掌控的公司 RSPI（RSP INVESTMENTS, LLC.）协助，成功投资CORFA。同时还有一家中国公司Cathay Kylin International Investment Holding Group（Beijing）也参与投资CORFA。Harvest Global Investments Ltd.是中国嘉实基金管理公司的全资子公司。嘉实基金的主要股东之一是一家名为中诚信托有限责任公司（ “CCT“或“中诚信托“）的金融公司。中诚信托（ CCT） 是一家由省级和国家级煤炭和矿业公司等组成的团所拥有的非存款性金融公司，包括中煤集团、中国人保、中国五矿等实力雄厚的国资委直属企业。嘉实基金实质是中共控制的国有企业。
-
-在Burnham Financial Group Inc.的领导人名单中发现了一位熟悉的身影-担任管理合伙人兼董事的DEVON ARCHER, 他是Hunter亲密的商业伙伴之一。深入调查DEVON ARCHER后发现，他曾经既是Rosemont Seneca Partner的管理合伙人，也是CORFA的联合创始人，还出任Bohai Harvest RST (Shenzhen) EQUITY INVESTMENT FUND MANAGEMENT CO., LTD.的副董事长和投资委员会成员。
-
-Rosemont Seneca Partner由Hunter实际控制，并且占有Bohai Harvest RST (Shanghai)20%股份。而Bohai Harvest RST (Shen zhen)是Bohai Harvest RST (Shanghai)的全资子公司。
-
-结合以上的信息，中共与拜登家族幕后资本运作收购Burnham的脉络图呈现在眼前。首先由DEVON ARCHER成立COR Fund Advisors LLC.，然后中共通过Harvest Global Investments Ltd.和Cathay Kylin International Investment Holding Group投资CORFA，最后CORFA利用这些资本完成收购Burnham。通过这套运作方式，中共可以隐秘且合法地收购或控制美国优秀企业，同时拜登家族亦能获得惊人的财富。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0

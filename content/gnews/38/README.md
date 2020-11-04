@@ -1,48 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## War Room 469-470 摘要：从不同角度谈这次选举投票的重大意义
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/524549/)
+## 拜登与多名女性调情信息被曝
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/524554/)
 
-- 作者：Jenny Ball
+翻译:康州农场—任天行
 
+校对:康州农场—大飞机
 
-***更多真相，请关注：[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)***
+编辑：康州农场—残夜听雨声
 
-今天的作战室邀请了许多重磅嘉宾从不同角度谈这次选举投票的重大意义。
-
-开始的场面非常令人兴奋：支持川普的车队延绵数十英里；排队等候投票的人们也是一望无际；每到一处川普竞选活动现场处都是人山人海。人们还专程回到家乡宾夕法尼亚去投票，不仅仅是为了高压水开采石油的利好政策，更是为了惩治拜登家族的腐败。
-
-朱利安尼对起诉拜登犯罪集团信心满满，主要调查他担任副总统的8年犯下的许多违反外国人登记法FARA的间谍罪，亨特·拜登自己的声音就是最铁的证据，他说他的商业伙伴叶简明是“中国间谍头子”。
-
-律师西德尼·鲍威尔说，左派严重低估了美国人民，与川普叫板就是与希望真相和自由的真正的美国爱国者叫板，正义必将胜利。
-
-拉希姆在寒冷的斯克兰顿（Scranton）室外和支持川普的当地民众一起，人们都知道亨特拜登的硬盘和腐败的拜登家族，坚信川普总统必胜。
-
-麦金纳尼将军：绝望的民主党将竭尽所能将美国带入一个极权国家。 民主党人已经将网络战从反情报的目的转移到了政治目的。
-
-他提醒人们为什么要关注“干扰器”？这个苏联的干扰器或阻止器软件非常复杂而且能够在某个阶段改变投票的信号，奥巴马在2012年使用过。每个人都应该意识到，计票至关重要。 所以我们要弄清楚记分卡和干扰器，让他们阴谋不能得逞。
-
-英国脱欧党领袖奈杰尔·法拉格（Nigel Farage）表示：美国人民不仅仅是在投票支持总统， 他们是在为自由世界的领袖投票。当今世界，除了川普总统，还有谁敢于对抗中共？ 谁能够用传统道德来对抗按体罚和马克思主义？川普总统本人就像是超人，有着超凡的精力，他用自己的行动表明他是自由世界的领袖：作出承诺，并兑现诺言。他一定会赢！
-
-沃格尔集团的负责人比尔·麦金利预期：选票激烈的战场在中西部，宾夕法尼亚州，密歇根州和北卡罗来纳州的战场。 为了防止人们去投票，民主党人一直在散布谣言，什么投票站的问题，机器故障，一些工作人员没到，等等，这些都可能会导致排队时间过长。
-
-因此，记者和其他所有人在选举日都需要负起责任。如果还未提前投票，则明天需要去投票。如果尚未筹划投票，请制定好明天的投票计划，一定要有足够的时间，确保排队等候的时间和投票合格。我不知道还要说的多明白，请务必投票！投票！并确保投票合格！
-
-班农先生：这是在为人类历史上最伟大的共和国，地球上最强大的国家而战！这个国家给予自由的人口比人类历史上任何国家都要多。 这是你一生的最后抗争。正如麦金纳尼将军所说：如果我们输了，一切都完了！
-
-无论如何我们绝不能让他们从老百姓手中盗取这次选举的胜利。
-
-班农先生还宣布了两个好消息：
-
-联邦调查局局长克里斯·雷将被解雇，西德尼·鲍威尔律师将替代他成为终身FBI局长，她曾是弗林将军的律师。
-
-福奇也将被解雇。
-
-最后，班农先生的女儿莫琳提醒：如果还没有投票的计划，请访问网站[http://IWillVote.com](http://IWillVote.com)
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25143553/image0-101.jpg)喜西农场官方Parler二维码，敬请关注！
-
+其信息往来具体身份未名，其中一位女士在信息往来中谈到了戒毒治疗，并且亨特对其有安慰与调情，怀疑其为吸毒的嫂子。另一位名女士在其中谈到自己的孩子，怀疑为已婚妇人。其中有一段剧情一位已婚女士去亨特家中怕被拍到因此改为披萨店相会
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173036/0001-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173044/0002-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173052/0003-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173059/0004-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173106/0005-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173116/0006-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173126/0007-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173138/0008-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173220/0009-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173224/0010-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173238/0011-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173315/0012-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173327/0013-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173340/0014-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173342/0015-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173349/0016-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173357/0017-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173410/0018-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173439/0019-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173443/0020-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173444/0021-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173443/0022-scaled.jpg)
 0
