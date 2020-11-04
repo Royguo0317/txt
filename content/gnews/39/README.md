@@ -1,19 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统拿下佛罗里达州帝吧官微开始推送白宫外的黑命贵视频
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/525655/)
+## 环球网与布伦伯格策划红色火焰骚乱同步推送白宫外黑命贵活动
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/525768/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03214546/xkSCnF_Y_N_IQl2-jJxVRTlxmTWihcq-i9gqDovYKg4_%E5%89%AF%E6%9C%AC.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03220258/1586016670599_gC2gKiTB4_%E5%89%AF%E6%9C%AC.png)
 撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-据[**帝吧官微**](https://weibo.com/CHINAD8) [2020年11月4日9：56](https://weibo.com/7010131150/JsjoSk11U?from=page_1005057010131150_profile&amp;wvr=6&amp;mod=weibotime) 来自 [中华有为Android](http://vip.weibo.com/prividesc?priv=1006&amp;from=feed)
+据[环球网](https://weibo.com/1686546714?refer_flag=1001030103_) [2020年11月4日10:04](https://weibo.com/1686546714/JsjrZDqEo?refer_flag=1001030103_) 来自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)
 
-特朗普赢得了关键摇摆州佛罗里达的选票，目前双方在另一大州德克萨斯州鏖战，但这并不能改变什么。白宫外新建的围栏开始起到作用了——“黑命贵（BLM）”团体在华盛顿特区闹起来了，选票有用谁上街嗷
-[#美国大选#](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E5%A4%A7%E9%80%89%23&amp;from=default)[#吃瓜美利坚#](https://s.weibo.com/weibo?q=%23%E5%90%83%E7%93%9C%E7%BE%8E%E5%88%A9%E5%9D%9A%23&amp;from=default) [L帝吧官微的微博视频](http://t.cn/A6Gba0aG)
+【美国大选选举日 白宫北门外发生抗议活动】当地时间11月3日晚，美国大选逐渐进入计票阶段，首都华盛顿特区高度紧张。目前，白宫北门外拉法耶广场发生抗议活动，已有上千人聚集。其中，示威者展示了“特朗普一直在撒谎”等标题，并高喊反种族主义等口号。 随着美国大选进入最终阶段，不少人担心，鉴于美国社会分歧日益扩大、极端情绪持续蔓延，任何不确定性都可能给大选造成混乱局面，甚至引发暴力冲突。由于担心选后可能发生动荡，华盛顿特区市中心的许多建筑物和店铺都被木板封了起来，以防“打砸抢”等暴力事件发生。（央视新闻）[O美国大选选举日 白宫北门外发生抗议活动](http://t.cn/A6GbSoqA)[@环视频](https://weibo.com/n/%E7%8E%AF%E8%A7%86%E9%A2%91)[L环视频的微博视频](http://t.cn/A6GbCPGZ)[收起全文](void%280%29;)
 
 我们不要忘了，美国的这场大选并不是民主党和共和党的选举，而是川普总统和中国共产党的选举，而是正义与邪恶的对战，所以我们一定要盯着邪恶的中共如何对这场关乎人类前途的选举进行暗中操控和误导！
 
+我们为什么要把这场关键大选中的中共媒体推送黑命贵视频？因为这就是中共暗中操控美国大选的最直接的证据！让我们一起盯紧这些邪恶媒体！
+
 （文章内容仅代表作者个人观点）
 
-0
+1+
