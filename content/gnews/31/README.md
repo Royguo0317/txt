@@ -1,13 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 硬盘门内容泄露：王昕邀请亨特·拜登参加北京活动
-` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/526253/)
+## 正义必胜！！！全球喜讯：川普总统宣布选举胜利
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/526846/)
 
-翻译：为子孙爱七哥农场翻译组
+编辑：玫瑰天空
 
-邮件英文原件：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03235730/Management-Catchup-Call.jpg)
-邮件中文翻译：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04000452/Screen-Shot-2020-11-04-at-1.03.28-PM.png)
-0
+决战时候：
+
+川普总统宣布大选胜利✌️✌️✌️！！！![]()
+
+他说：“这是个悲伤的时刻却因为出现了国家舞弊行为。但是可以高兴的告诉大家，我们已经赢得了选举！”
+
+
+
+1+

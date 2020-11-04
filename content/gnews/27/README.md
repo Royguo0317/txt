@@ -1,13 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 硬盘门内容泄露：乔·拜登给李祥生儿子写大学推荐信
-` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/526421/)
+## 川普总统宣佈大选胜利
+` GM06` [轉載自GNews](https://gnews.org/zh-hans/526987/)
 
-翻译：为子孙爱七哥农场翻译组
+作者：GM40
 
-邮件英文原件：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04004637/ReChristopher-Li-Recommendation-Letter-01.jpg)
-邮件中文翻译：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04004710/Screen-Shot-2020-11-04-at-1.45.39-PM.png)
-0
+美国总统川普4日凌晨在白宫发表演说，感谢美国人民「热烈支持」，有「数百万又数百万」人出来投票给他，「今晚的选举结果非常棒」，他宣称已赢得乔治亚和北卡州，「他们（民主党）追不上我们」，「最重要的是在宾州大赢69万票」。
+
+他说：「这是个悲伤的时刻却因为出现了国家舞弊行为。但是可以高兴的告诉大家，我们已经赢得了选举！」
+
+川普总统说，正常情况下我们应该庆祝胜利了，因为我们已拉开距离地赢了那些摇摆州，大赢俄亥俄和佛州。但民主党不承认败选，早就预料他们会这麽干，最后只能法院解决。
+
+其实从佩洛西说无论大选之夜什麽结果都是拜登当总统就已决定左派要耍赖。大选结果一定是川普赢，民主党闹，只是再展露一次丑陋而已。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04033016/%E5%A4%A7%E9%80%89-1.jpg)
+新闻引用:
+
+[https://udn.com/news/story/121687/4988479](https://udn.com/news/story/121687/4988479)
+
+3+

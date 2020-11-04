@@ -1,71 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】狗赋
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/526363/)
+## 胜利已然在握,接下来川普总统将以法律捍卫胜利、守护正义
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/526949/)
 
-作者：香草山写作组  木白
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04031722/%E6%8D%95%E8%8E%B7_%E5%89%AF%E6%9C%AC-1.png)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/01003406/WhatsApp-Image-2020-11-01-at-11.33.40.jpeg)
-
-
-
-
-
-很多时候，我们连狗都不如
-
-它们会对陌生人吼
-
-而我们面对陌生的领导照样点头哈腰
-
-把声音埋在尘埃里
+在[WarRoom: Global Election Night Special 2020](https://www.youtube.com/watch?v=ZVWvZFWBE9Y)时间点[8：06：46](https://youtu.be/ZVWvZFWBE9Y?t=29206)
 
 
 
-很多时候，我们和狗差不多
+川普总统携第一夫人、彭斯副总统携第二夫人依次入场，对竞选团队发表了讲话，讲话中文大意据[**记者王冠**](https://weibo.com/u/1907319731) [2020年11月4日15：34PM](https://weibo.com/1907319731/JslC1s2gu?from=page_1005051907319731_profile&amp;wvr=6&amp;mod=weibotime) 来自 [iPhone客户端](http://vip.weibo.com/prividesc?priv=1006&amp;from=feed) 已编辑
 
-它们会被无良的主人抛弃
+突发! 特朗普称已经获得美国总统大选胜利！并要求最高法院介入，停止所有计票工作，并将凌晨4点后统计的票数宣布无效。称这是一场选举舞弊！( “It’s a fraud on the American public”…”we’ll be going to the US Supreme Court. We want all voting to stop. We don’t want them to find any ballots at four o’clock in the morning and add them to the mess.” ) [#美国大选#](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E5%A4%A7%E9%80%89%23&amp;from=default) [#V光计划#](https://s.weibo.com/weibo?q=%23V%E5%85%89%E8%AE%A1%E5%88%92%23&amp;from=default)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04031815/1-20.jpg)
+看到川普总统一脸严峻地表情，我们的心情也依然轻松不起来，由于沼泽的力量、由于中共的操控，虽然胜利已然在握，但仍需以法律来捍卫，如果法律捍卫不了这场胜利，那么法律也将无法守护正义！愿上帝保佑川普总统，我们的心也与川普总统在一起，对于我们来说，这与美国大选无关，我们与川普总统站在一起，是因为我们选择与正义同行！
 
-这个世上，总有女孩会被他们的父母抛弃
+（文章内容仅代表作者个人观点）
 
-这不仅仅是因为贫穷
-
-
-
-很多时候，我们比狗强一点
-
-街上到处是流浪狗，街上很少有流浪汉
-
-流浪汉不流浪的时候爱吃的是狗肉
-
-流浪汉流浪的时候正被更高级的动物吃着
-
-
-
-一个单身女性朋友叫我一首关于狗的诗
-
-因为，她捡来的小狗曾被主人开膛破肚
-
-因为，这奄奄一息的狗被找来的主人再次抛弃
-
-因为，我想起了那个被送给亲戚，下体被烟头烫坏的女童
-
-
-
-还有那么多大龄女青年愁嫁
-
-还有那么多流浪狗无家可归
-
-山河依然壮烈，只是雾霾也更汹涌
-
-这是我每天爱并疼痛着的理由
-
-11月3日
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04002425/214-%E3%80%90%E9%A6%99%E8%8D%89%E8%AF%97%E8%AF%8D%E6%B1%87%E3%80%91%E7%8B%97%E8%B5%8B.jpg)
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-0
+1+
