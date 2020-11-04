@@ -1,61 +1,305 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭爆料串珠（六十一 &#8211; 1/2）爆料革命最核心的价值——唯真不破，同时干干净净的做人、做事
-` GM99` [轉載自GNews](https://gnews.org/zh-hans/527593/)
+## 川普获胜！289选举人票！《每日快报 &#8212; 2020.11.4》
+` 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hans/527772/)
 
-#### **整理：文珠**
+**作者： 星空无垠**
 
-*郭爆料串珠系列文章，都是从700多篇郭文贵先生直播听写文字版精选而成，具有文献价值，由文珠按时间、主题整理。感谢战友听写！*
 
-**标题简述：
-2020年4月22日，郭先生说：亲爱的兄弟姐妹们，什么叫G-TV？这就是爆料革命最核心价值——唯真不破。
-2020年6月20日，郭先生说：大家你们想想，如果当年《路德访谈》、战友之家、卡丽熙、英国大卫，还有我们N个已经砸郭的战友，小皮匠，日本所有的战友，木兰传奇，我们的澳洲最早的木兰传奇，还有安红全都当时搞募捐，天天靠打赏，天天让大家捐款，今天的爆料革命早就成骗子党了。我们把大家这个尊严搂住，大家集体去赚钱。有尊严的去赚钱，能赚天大的钱。这是多好的事儿啊。非要那样吗？不要看那么近，不要看着你平常家里边是吧，吃的牛肉吃啥的，一看到桌子上来了点免费的什么好东西你就想抓一把。你会失掉桌子上所有的东西。看得稍微远一点，可以合法的挣大钱，挣上亿的钱。干嘛为了几万块钱失去一切呢？不要短视，这就是爆料革命，唯真不破。同时干干净净的做人、做事，完全透明的。我们所有战友之间没有一件事不透明的，对吧？**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04083122/61_Cover.jpg)
 
-**2019年8月12日**
-你们感受的比我晚很多，任何事情，因为你们不在第一线。你们没办法感受我们获得了多么大的尊重和信用。爆料革命现在，没有任何人敢说我们是造谣的。没有任何人，因为他举不出一个例子我们是造谣的。没有任何人敢说我们爆料革命是牟利的，是骗钱的。咱们完全没有一个人去拿著捐款（的名）去骗钱，从来没有。而且我们爆料革命到今天，可以说，不仅获得了西方人的信任和支持，获得了国内同胞的信任和支持，香港、台湾以及海外六千万华人的支持和信任，更重要的事情，我们受到了西方这些国家、政府高度的信任和支持。这个不是开玩笑的，这个可不是开半点玩笑的。是我们多少战友用血汗、时间，甚至花了眼，打造出来的今天这个环境，大家务必珍惜。任何人的作用和我们爆料革命坚持的原则，唯真不破，真善狠。就是真善狠，必须是以真对他的恶，对他的假。以善对它的恶，以我们决绝、决心灭共，来对待我们所有的敌人。郭文贵从小就有个哲学，我最讨厌别人跟我说，干啥事留点后路，留点后手。当年我小时候，很多老人都这么说。我从小就说，我做事儿就要不留后路。慎重决定，一旦决定绝不留后路，留后路就是给自己留了绝路。留后路就是留绝路，不可能有成功。所以我做事情从来不留后路。我也不喜欢留后路的做事方式，而且我做事情从来不后悔，做过的事情，做过的决定，都是成年人。承担责任有什么后悔的？后悔对事情有什么帮助？没半点帮助，而且会失去自己。我做事情从来不抱怨，因为你抱怨没任何用。抱怨是一个失败者最具体的一个表现。我希望总结教训而不是抱怨。我不需要任何人为我负责任。另外一个我从来不推责，做错了事情敢于承担责任。做任何事情的时候，它都会重蹈你的覆辙，让你犯同样错误。这就像这几天我做很多决定，做很多事儿一样，很多人都问我，你做这些事情不后悔么？你不害怕么？成本太高了吧？我都告诉他们，我活这么大岁数了，经历那么多事情，如果我还考虑这些东西，那我就白活了。所以说，战友们，做人呐，除了要有底线，还得要有我们做人的一个基本的手段，这个非常地重要。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01081922/%E6%AF%8F%E6%97%A5%E5%BF%AB%E6%8A%A5.png)
 
-**2019年11月10日**
-这就是为啥我给路德先生说，我说路德一定别着急，一定要搂住，一定要真。唯真不破，这是爆料革命的本质。对待战友不管发生什么事情，不放弃、不抛弃、不背弃，永远不能挑战战友。谁主动挑战的战友，谁必须要受到惩罚。谁主动挑战战友，谁必须受惩罚，不管你过去做了什么。这个“三不原则”是我们衡量战友一切的原则。
 
-**2019年12月8日**
-我们是太看不起自己了，原来我们有这么大的能量，有这么多人来关注爆料革命。原来有这么多人和我们站在一起，我们真要珍惜。唯真不破呀。一定要真实。就是这些人的信任让我看到了，当我们把两个企业放一起的时候，我说我们就不管了，我们就不管了。我们就把这两个企业放一起，剩下的就是你们的事儿了。
 
-**2019年12月30日**
-只有我们爆料革命，让中国人在西方真正地站起来，让中国人在西方，团结起来。唯真不破，讲真话，维护中华民族的尊严，灭掉邪恶的共产党。中共不等于中国，中国人民不是那样。我们受到了世界的尊敬，这爆料革命的意义，哪仅仅是灭共那么简单呐？我们现在全力维护海外的华人形象，竟然有些海外华人不要脸到什么程度，把骗子和伟大的爆料革命用鲜血铸成的，几百亿美元，几千亿美元铸成的爆料革命相提并论。你脑子是真进了狗屎了。永远我不会原谅你们这帮人。
 
-**2020年1月6日**
-现在国内战友看到了，到底鸡腿潘成立基金是想干啥？为什么他要骂香港人勇武派都是小混混？为什么他打着西藏人身份他不是西藏人，河北保定人？他为什么不是医生他打着医生的名义？为什么他有老婆孩子，他在那块儿天天勾搭其他女性，眉眼儿飞来飞去？国内战友看明白了。这些人要是一旦窜进来被我们以各种美好的理由放他进来，这就真的把我们爆料革命给毁了。而且被害的就是我们战友，危害不可限量，不可预估。所以说亲爱的兄弟姐妹们，我们绝对要记住，唯真不破是我们爆料革命最重要的东西。我们不但不抛弃、不放弃、不忘记，我们更不允许让我们的队伍里面有这种沙子掺进来，那会要了我们的命的，我们太脆弱了。保持我们爆料革命的纯洁性，高尚性，才能给我们下一代的孩子带来一个美好的国际生存环境。
+**今日摘要**
 
-**2020年1月11日**
-我们是第一个提出来“灭共”的，在全人类到现在为止，就我们一个，独此一家，原创。这个谁也别跟我们争，到现在还是独家门户生意。灭共，不图赚钱。我们是公主开窑子，不图赚钱图快活。就是图舒服，就是想灭共。战友们，我们从这些事情再分析回来。往回看三年，我们的爆料革命的“郭七条”和“唯真不破”、“正道主义”、“以美灭共”、“把灭共的战场拉向国际”，最后要“以共灭共”，追求的目标是“实现喜马拉雅”。就是一个真正的受权力监督和制衡的，由人民选举出来的一个政治的、正确的、光明的、真实的一个政权，是由法来治的，依法治理的国家。和一个国家人民有信仰的自由，不光信钱、不光信拳头、不光信谎言。信仰的自由，相信因缘轮回、相信上帝、相信天主、相信耶稣、相信穆哈穆德、相信释迦摩尼、相信菩萨，这多好啊。
-……
-海航事件他们造假，给我们的搏斗，他们输了，我们赢了。只有让共产党输，我们才能赢，我们赢是不可能的。我们要赢，第一、要坚信我们的信仰，就是唯真不破，灭共是我们的使命。只有让中国人有一个法治的、信仰自由的社会，中国人才能成为世界上受欢迎的族群。我们的子女才能在全世界得到公平的、受尊重的和对等的待遇。我们的子女、妻儿老小不被陈峰、王岐山等双修党双修。我们的子女不会像香港陈彦霖母女一样被强奸、被杀害。我们的钱财不会像郭文贵一样，和马云及马化腾一样，和N个中国企业家一样随便被掠夺，被国有化后再私有化，以国有化的名义再私有化。只有这样，战友们相信这个的时候，没事儿的时候，你抓抓身上的虱子、打打欺民贼，是不是？把身上的皮肤病咱抹抹，别恶心人，太恶心人啦。别影响华人的形象。你说这族群，中国人出来了，脸上带着一脸皮肤病，长一脸牛皮癣，人家谁待见你，谁跟我们拥抱呀？谁愿意跟我们在一个桌子吃饭呐？这就是海外欺民贼，代表了中国人，一脸牛皮癣。然后，还有那个代表我们的政权，裤衩里面顶了个擀面杖，人家不觉得我们是笑话吗？所以，我们必须把代表我们的那几座大山，共产主义大山，海外华人被欺民贼给代理的这种大山，彻底给他移掉。这种虚假主义必须给他灭掉。我们把欺民贼、共产党，把这几个问题解决了，把脸上的皮肤病拿掉，人家就会待见我们。把裤衩里面别着的擀面杖拿掉，太笑话了，给他拿下去，自信地面对别人，我们会得到尊重。这就是在海外维护华人的形象，在海外维护华人的形象是相当的重要，事关我们的子女和海外华人的未来。在洛杉矶我更加感受到，共产党的渗透即将造成我们海外华人的巨大灾难，我们必须制止。所以，亲爱的战友们，说实话我们从台湾的赢上，我们该树立信心，我们应该更加谦虚、更加低调，更加有效地行动，别变成口炮党。既抓虱子又治皮肤病，又打欺民贼。同时，关键的是要让共产党在我们的唯真不破、郭七条，反对共产党以黑治国、以警治国、以假治国、以贪治国的，这种战略、行动下，让全世界看清共产党。
+1. 推特删除川普总统推文引发巨大反响，审查制度遭网友批
+2. FBI调查摇摆州80万选民被电话语音通知“待在家里”事件
+3. 博彩市场的押注信息显示特朗普获胜概率大增!
+4. “地狱硬盘“继续爆出中共与亨特拜拜登、国际组织、哥伦比亚计划的关系
 
-**2020年1月22日**
-对了说到这，这个Js牧羊子我这昨天到今天啊，我没跟你联系牧羊子，你对路德先生为啥又开始挑战？我就纳闷了，你到底是咋回事？我最后一次我给Js牧羊子说啊，你再挑战路德，那这事我就要出手了，你不应当这个样子的。这个就不像战友了，有啥事你可以直接给我说，你给路德先生直接说，你给大家说，你不必要推上挑战路德先生。现在中共的反映就证明了路德先生的节目打中了他的要害了。所以我告诉老领导，我绝不同意他所定义的路德先生的节目，传播了虚假信息，恰恰是路德先生提前提出了警告，我相信会有利于这个事情的解决，减少扩散、减少伤亡。这也是为什么我们战友们要相信 “唯真不破”。为什么我们要相信爆料革命他可以真的救命。
 
-**2020年2月1日**
-鉴于此啊，我们要传播所有的国际上有关中国疫情发出的各种声音。我们要再把国内的，所有有关疫情的真实声音发到国际上来，同时要让发出的声音绝对真实，唯真不破。
+重要事件
 
-**2020年3月4日**
-G-news这几天有的文章质量太差。希望国际秘密翻译组和G-news、Gpost翻译组，还有我们战友之家的所有的我们这些编辑们，还有这些战友们，作者们一定要慎重。一定要真，唯真不破。一定要新，是新才能成为News，新闻。再一个一定要直接有证据。最好录音、录像、文件、视频，不要有个人观点。
+###### 
 
-**2020年3月7日**
-这美国的战友，纯美国战友。现在看爆料革命的纯美国战友，用英文我发信息啊真是。好好，谢谢了，谢谢了。收到了，收到了，收到了。我再重申一遍，刚才的被停下直播跟共产党半毛钱关系没有。是咱的直播盒子是用的备用电，就没插电池。就是咱们孩子没给我插电池，是没电了。没电了，手机相机也没电了。我刚才又换了个小相机啊。所以说跟人家共产党没关系，跟共产党没关系。你看我马上把这个换掉了，是吧。然后呢，我就换了个新的。咱不是有东西嘛。该是共产党的事，就是共产党的事。不是共产党的事，坚决不是共产党的事。咱不栽赃陷害，唯真不破。
+- 11.4. Breitbart [众议院共和党夺取民主党席位 House GOP Picks up Democrat Seats](https://www.breitbart.com/2020-election/2020/11/04/house-gop-picks-up-seats/)
+- 11.4. Breitbart [宾夕法尼亚州州长汤姆-沃尔夫：”仍有超过100万张选票需要计算“ Pennsylvania Gov. Tom Wolf: ‘Still over 1 Million Ballots to Count’](https://www.breitbart.com/politics/2020/11/04/pa-governor-pledges-to-count-one-million-outstanding-ballots/)
+- 11.3. 纽约邮报 [联邦调查局（FBI）调查机器人通话，该通话告诉80万摇摆州人“待在家里” FBI investigating robocalls that told 800,000 swing-staters to ‘stay home’](https://nypost.com/2020/11/03/fbi-investigating-robocalls-that-told-800k-swing-staters-stay-home/)
+- 11.3. Trish Intel [博彩市场押注特朗普获胜! Betting Markets Bank On Trump Win! 跟着钱走，真正的钱。博彩市场将特朗普总统再次获胜的概率调高到70%以上。](https://trishintel.com/betting-markets-bank-on-trump-win/)
+- 11.3. GNEWS [系列邮件揭示了中共、亨特拜登、国际组织、哥伦比亚计划之间的关系 Email Strings  Reveal  the relationships among CCP, Hunter Biden, International Organization, Plan Columbia](https://gnews.org/523491/)
 
-**2020年3月12日**
-这位组织GTV这位战友太牛了，绝对牛，人品还特别好。这位战友最大的优点是说话算话。我这一辈子最恨的就是说话不算话，说话不算话的人我最恨的就是。我有一个表弟，从小跟我特别好。但是这个人就有一个毛病就是说话不算话。后来我告诉他，我说你千万不要在我人生中叫我发现你说话不算话。不要给我解释，我也不想解释。你离了我也能活。但是你说话不算话，你玩我，那这绝对不可以。这个战友你不是说你没有拍嘛？挑战你七哥，从来是百分之百的真诚，唯真不破。
 
-**2020年3月14日**
-我们爆料革命会起什么作用？今天大家可以看的到，我可以告诉大家，我们的爆料革命我们的GTV，就我们战友们干的事他都自己都不知道有多重要。每天战友之家放出的GTV、中国疫情、武汉疫情、战情报，和上天造灭疫组的每天早上的这种GTV报道和G-news上我们无数个战友写的这些文章和真相，包括香港运动和新疆事件，西藏整个的种族的歧视和宗教歧视打压，严重地、深深地，而且是唯一地影响着全世界的政治力量和政府的决策。我可以告诉大家，我们是唯一一个现在不在政府、官方，平等的所谓官方合法的权利内，是唯一一个可以分享政府决策的机构，没有第二个。历史会告诉大家的，我们参与着全人类上，一系列大事件的制定，和对他们产生巨大的影响。这就为什么我说战友们，你们一定要记住要搂住，唯真不破。不要把这三年和现在全人类的生命与重大的挑战的历史时刻，我们换来的这些重要的机会，因为一句话，一句假话而失去。为那点小毛毛钱，为那个内裤钱，一个胸罩钱，一个冰淇淋钱而失去。
+文贵直播和盖特
 
-**2020年3月18日**
-郭文贵用爆料革命证实是“郭三邪”还是“郭三正”，还是“郭多正”。我们是正道主义，就是正道主义。郭文贵从爆料到现在被定为“郭骗子”，到现在郭文贵为战友们从战服、战帽、口罩、捐款，背后支持（和）资金咱看得见的，全人类上中国有史以来中国文贵第一人。文贵拿着几千亿的资产和全家人生命来灭一个共产党，文贵第一人。文贵也是第一人没有向任何人伸手要一分钱的，没有一口水是来自这个革命和战友的，反而我给了这么多。是我开启了、设计了革命。我这叫“郭骗子”，你说我骗你啥了？除了是共产党能拿出来我骗他女儿，我骗他老婆，跟他家人睡觉了。王岐山、孟建柱、孙立军、杨娘娘。我骗色了有没有？然后“郭骗”、“郭三邪”、“郭三秒”，这个是“郭三秒”我希望跟他们很好（的）试试，非常好试试，可以站着两小时，谁要蹲下来立马枪毙他。等哪天喜马拉雅之后我给大家好好讲讲什么叫站着双修。很简单，所有的双修的一切来这（脑子），不是心，是这。这控制住了，体能控制住了，你想怎么着就怎么着。“郭三邪”，还有啥呀？我们用时间证明给他看。现在金融市场郭文贵证明给他们看，郭文贵对国际经济、国际政治、国际金融、民生、社会（判断）。我们不是预测，我们是情报。我告诉大家，爆料革命在这个时候的“正道主义”，“真、善、狠”，“郭七条”，“唯真不破”，“对战友们不放弃、不抛弃、不忘记”，我们一定要坚持住。一定要把华人形象要维持住，坚决不能放弃。一定要让海外的华人不能成为印尼“反华事件”，叫人家从阴道里拿个棍子戳上去，像烤鸡一样烤了。华人（在）大街上被杀了、被轮奸、被强奸、被烤掉，共产党希望这事情会发生。
+#### 直播：无
 
-**2020年3月25日**
-还有，我绝对不接受不诚实。郭宝胜第一次当我知道他不诚实的时候，和袁红冰他俩那个通话，他不诚实的时候，他在我心里已经死了。因为爆料革命最忌讳的就是造假，因为我们的哲学，赢的方式叫“唯真不破”。
+#### 盖特：
+
+#### PARLER:
+
+班农战斗室 War Room
+
+WarRoom: Global Election Night Special 2020
+
+
+
+War Room: Pandemic Ep 471 – GameDay (w/ John Fredericks, Rudy Giuliani, and Bill McGinley)
+
+
+
+War Room: Pandemic Ep 472 – Do Not Falter
+
+
+
+SteveBannon: Covfefe is for Closers
+
+@realDonaldTrump is the greatest closer in American history — Big League
+
+
+
+> [#SteveBannon](https://twitter.com/hashtag/SteveBannon?src=hash&amp;ref_src=twsrc%5Etfw): Covfefe is for Closers[@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) is the greatest closer in American history — Big League[#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [@WarRoom2020](https://twitter.com/WarRoom2020?ref_src=twsrc%5Etfw) [#HardDriveFromHell](https://twitter.com/hashtag/HardDriveFromHell?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/La0SZo2TwX](https://t.co/La0SZo2TwX)
+> — Steve Bannon’s War Room (@WarRoomPandemic) [November 2, 2020](https://twitter.com/WarRoomPandemic/status/1323290139897090049?ref_src=twsrc%5Etfw)
+
+
+
+2012 “Please find attached dinner invitation from Dennis and Karen in honor of #GeorgeVenizelos , the new #FBI Director for #NewYork ”
+
+Nobody knew . . . not even the “friends”?
+
+
+
+> 2012
+> "Please find attached dinner invitation from Dennis and Karen in honor of [#GeorgeVenizelos](https://twitter.com/hashtag/GeorgeVenizelos?src=hash&amp;ref_src=twsrc%5Etfw) , the new [#FBI](https://twitter.com/hashtag/FBI?src=hash&amp;ref_src=twsrc%5Etfw) Director for [#NewYork](https://twitter.com/hashtag/NewYork?src=hash&amp;ref_src=twsrc%5Etfw) " 
+> 
+> Nobody knew . . . not even the "friends"?[#BidenCrimeSyndicate](https://twitter.com/hashtag/BidenCrimeSyndicate?src=hash&amp;ref_src=twsrc%5Etfw) [#LaptopFromHell](https://twitter.com/hashtag/LaptopFromHell?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/7rqQ140n1u](https://t.co/7rqQ140n1u)
+> — Steve Bannon’s War Room (@WarRoomPandemic) [November 3, 2020](https://twitter.com/WarRoomPandemic/status/1323741743452282881?ref_src=twsrc%5Etfw)
+
+
+
+#LaptopFromHell Hudson West III LLC one of many pass throughs for #PatrickHo intel chief no more and #CCP /#CEFC $$$ to #BidenCrimeSyndicate for @JoeBiden ‘s office and #USA petroleum assets. Owned by China, clear Nat Sec risk. #Owasco
+
+
+
+> [#LaptopFromHell](https://twitter.com/hashtag/LaptopFromHell?src=hash&amp;ref_src=twsrc%5Etfw) Hudson West III LLC one of many pass throughs for [#PatrickHo](https://twitter.com/hashtag/PatrickHo?src=hash&amp;ref_src=twsrc%5Etfw) intel chief no more and [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) /[#CEFC](https://twitter.com/hashtag/CEFC?src=hash&amp;ref_src=twsrc%5Etfw) $$$ to [#BidenCrimeSyndicate](https://twitter.com/hashtag/BidenCrimeSyndicate?src=hash&amp;ref_src=twsrc%5Etfw) for [@JoeBiden](https://twitter.com/JoeBiden?ref_src=twsrc%5Etfw) 's office and [#USA](https://twitter.com/hashtag/USA?src=hash&amp;ref_src=twsrc%5Etfw) petroleum assets. Owned by China, clear Nat Sec risk. [#Owasco](https://twitter.com/hashtag/Owasco?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/GU2J0vfzPR](https://t.co/GU2J0vfzPR)
+> — Steve Bannon’s War Room (@WarRoomPandemic) [November 3, 2020](https://twitter.com/WarRoomPandemic/status/1323733592099475456?ref_src=twsrc%5Etfw)
+
+
+
+路德社节目：
+
+#### 11/3/2020 早 路德时评（博艾冠谈）： 
+
+畅想美国大选
+
+
+
+#### 11/3/2020 晚 路德时评（路博艾冠康胡谈嘉宾闫丽梦博士伊安先）：
+
+大选夜分析！
+
+
+
+- 得佛罗里达必胜，得俄亥俄大胜！
+- 推特宣布最终结果出来前，谁宣布赢，封谁账号
+- 川普佛罗里达胜！
+- 川普的新冠，之后还落后，硬盘门出现后，选情反转。
+- 主流媒体打压闫丽梦博士的疫情真相
+- 拜登胜选会和WHO合作
+- 灭共全面开始
+
+
+#### 11/3/2020  新中国联邦电视台
+
+川普总统2020大选新中国联邦电视台华盛顿多频道24小时直播
+
+[https://gtv.org/web/#/UserInfo/5f8c1da97de25667c0f4228c](https://gtv.org/web/#/UserInfo/5f8c1da97de25667c0f4228c)
+
+每日文贵说
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04095959/Picture1-5.png)
+推特文摘
+
+
+
+闫博士在战斗室说1 为啥新冠病毒应该叫CCP virus2 硫酸羟氯喹有效3 病毒存在变异，下一波疫情可能更糟。如果不干掉中共，中共可能还会释放其他更致命病毒战斗室的大选直播节目收视率极高，在这个节目上继续传播真相，继续喊出Take down the CCP，绝对震撼
+
+
+
+
+
+> 闫博士在战斗室说
+> 1 为啥新冠病毒应该叫CCP virus
+> 2 硫酸羟氯喹有效
+> 3 病毒存在变异，下一波疫情可能更糟。如果不干掉中共，中共可能还会释放其他更致命病毒
+> 
+> 战斗室的大选直播节目收视率极高，在这个节目上继续传播真相，继续喊出Take down the CCP，绝对震撼✊✊✊ [https://t.co/b5m4P3xEMg](https://t.co/b5m4P3xEMg)
+> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [November 4, 2020](https://twitter.com/jsdfposjpqyuee1/status/1323851563496960000?ref_src=twsrc%5Etfw)
+
+
+
+###### 
+
+
+
+
+
+再转一遍被推特删掉的川普推文！这条推文太有价值了，它将会载入美国历史的史册里
+
+
+
+
+
+> 再转一遍被推特删掉的川普推文！
+> 这条推文太有价值了，它将会载入美国历史的史册里🙏🙏🙏 [pic.twitter.com/jB2DvZ8ENb](https://t.co/jB2DvZ8ENb)
+> — Jay Yates (@lazydjay) [November 4, 2020](https://twitter.com/lazydjay/status/1323889910697308166?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+瞧见了吧，为啥拜登说要等几天才算数，他要耍赖作弊
+
+
+
+
+
+> 瞧见了吧，为啥拜登说要等几天才算数，他要耍赖作弊🤣🤣🤣 [pic.twitter.com/XnlEyqUdpE](https://t.co/XnlEyqUdpE)
+> — Jay Yates (@lazydjay) [November 4, 2020](https://twitter.com/lazydjay/status/1323890923093282816?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+SteveBannon: Covfefe is for [email protected] is the greatest closer in American history — Big League
+
+
+
+
+
+> [#SteveBannon](https://twitter.com/hashtag/SteveBannon?src=hash&amp;ref_src=twsrc%5Etfw): Covfefe is for Closers[@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) is the greatest closer in American history — Big League[#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [@WarRoom2020](https://twitter.com/WarRoom2020?ref_src=twsrc%5Etfw) [#HardDriveFromHell](https://twitter.com/hashtag/HardDriveFromHell?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/La0SZo2TwX](https://t.co/La0SZo2TwX)
+> — Steve Bannon’s War Room (@WarRoomPandemic) [November 2, 2020](https://twitter.com/WarRoomPandemic/status/1323290139897090049?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+Why was GA not called?
+
+
+
+
+
+> Why was GA not called? [pic.twitter.com/Vv8fjCrjCr](https://t.co/Vv8fjCrjCr)
+> — Veronica Birkenstock (@vtbirkenstock) [November 4, 2020](https://twitter.com/vtbirkenstock/status/1323892041890385922?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+川普总统发表获胜演讲！川普总统没有戴他标志的红领带，而是换了一条新中国联邦蓝领带！！
+
+
+
+
+
+> 川普总统发表获胜演讲！
+> 川普总统没有戴他标志的红领带，而是换了一条新中国联邦蓝领带！！ [pic.twitter.com/iBmaQp7qnA](https://t.co/iBmaQp7qnA)
+> — 地郎中（文海） (@dilangzhong) [November 4, 2020](https://twitter.com/dilangzhong/status/1323893130865856514?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+11/3 目前北卡和乔治亚的选票已经99%以上都已经数完。但是这两个州川普的领先已经完全超过 1%。 乔治亚州川普领先2.52%， 北卡1.4%。所有主流媒体和社交媒体，都拒绝宣布川普获胜。这些州长都是民主党，接下来他们就要作弊。川普总统说绝不后退！一定不能让民主党偷去这次美国人的选票！
+
+
+
+
+
+> 11/3 目前北卡和乔治亚的选票已经99%以上都已经数完。
+> 但是这两个州川普的领先已经完全超过 1%。 乔治亚州川普领先2.52%， 北卡1.4%。所有主流媒体和社交媒体，都拒绝宣布川普获胜。这些州长都是民主党，接下来他们就要作弊。川普总统说绝不后退！一定不能让民主党偷去这次美国人的选票！ [pic.twitter.com/Hr3VDBJh8c](https://t.co/Hr3VDBJh8c)
+> — 西行小宝(Parler: RuldophW @JoyofFreedom) (@htommy998) [November 4, 2020](https://twitter.com/htommy998/status/1323894923750383616?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+看看人家新浪已经迫不及待的宣布川普连任了
+
+
+
+
+
+> 看看人家新浪
+> 已经迫不及待的宣布川普连任了😂😂😂 [pic.twitter.com/qVHbsQsVF0](https://t.co/qVHbsQsVF0)
+> — CICI.2020 (@USACICI) [November 4, 2020](https://twitter.com/USACICI/status/1323863776375046145?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+川普在宾州领先了70万票。拜登必须以大约2:1的优势赢得剩下的选票才能赢得这个州。这将是艰难的。这就是他们今晚提早关闭费城的原因——这是他们以防万一需要一些额外的操作。2016年费城投票总数约为70万张。今年川普领先70万张。
+
+
+
+
+
+> 川普在宾州领先了70万票。拜登必须以大约2:1的优势赢得剩下的选票才能赢得这个州。这将是艰难的。这就是他们今晚提早关闭费城的原因——这是他们以防万一需要一些额外的操作。
+> 2016年费城投票总数约为70万张。今年川普领先70万张。 [https://t.co/hck2t9KHJO](https://t.co/hck2t9KHJO)
+> — Angel (@Sarah98643912) [November 4, 2020](https://twitter.com/Sarah98643912/status/1323898476237742082?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+
+
+墙内咨讯
+
+- **11.4. 环球网 外媒问如何评价“特朗普将再次获胜”传闻，外交部回应**
+
+
+当地时间11月3日晚开始，美国大选逐渐进入计票阶段，有外媒在4日举行的中国外交部例行记者会上向发言人汪文斌提问称，虽然大选结果还未公布，但有些说法认为特朗普将再次获胜。请问中方对此有何评论？对此，汪文斌表示， 我们注意到美国的总统选举正在举行之中，结果尚未确定。
+
+汪文斌在回答另一个外媒记者有关美国大选的问题时称，美国大选是美国的内政，中方在这个问题上不持立场。
+
+***简评：真没有立场吗？媒体就曾经报道过，北京希望拜登能赢。在幕后捣乱、影响大选的就是中共。***
+
+- **11.4. 新华网 （受权发布）习近平：关于《中共中央关于制定国民经济和社会发展第十四个五年规划和二〇三五年远景目标的建议》的说明**
+
+
+“十四五”时期是我国在全面建成小康社会、实现第一个百年奋斗目标之后，乘势而上开启全面建设社会主义现代化国家新征程、向第二个百年奋斗目标进军的第一个五年。
+
+今年3月，中央政治局决定，党的十九届五中全会审议“十四五”规划建议，成立文件起草组，由我担任组长，李克强同志、王沪宁同志、韩正同志担任副组长，有关部门和地方负责同志参加，在中央政治局常委会领导下承担建议稿起草工作。
+
+3月30日，党中央发出《关于对党的十九届五中全会研究“十四五”规划建议征求意见的通知》，在党内外一定范围征求意见。4月13日，文件起草组召开第一次全体会议，建议稿起草工作正式启动。
+
+从各方面反馈的意见看，大家一致认为，在“两个一百年”历史交汇点上，党的十九届五中全会重点研究“十四五”规划问题并提出建议，将“十四五”规划与2035年远景目标统筹考虑，对动员和激励全党全国各族人民，战胜前进道路上各种风险挑战，为全面建设社会主义现代化国家开好局、起好步，具有十分重要的意义。(以下省略)
+
+***简评：一言堂的模式，怎么定都是你说了算。况且，画个大饼，到时间你控制的媒体，就一个声音，如同十三五要消灭贫困人口一样，就是嘴上达到目标了，有谁能说没有呢？***
+
+- **11.3. 环球时报 胡锡进：规则是民主的根基。美国对国内外的规则不像以前那样重视了，谎言说得和真理一样有把握。这些变化最终将侵蚀美国的选举制度**
+
+
+***简评：*****全世界都知道中共国的不公平行为，也知道中共国不遵守任何规则。中共国事实上才是一个需要被处理的流氓国家。**
 
 0

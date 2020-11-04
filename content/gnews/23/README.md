@@ -1,54 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 决战13天：亨特·拜登的“地狱硬盘”与中共的“三桶油”
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/527493/)
+## 朱利安尼 推文系列 1
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/527896/)
 
-- 编辑：文顺
-- 作者：Free monkey、年糕
-- 素材：老师傅
+*翻译/简评：Beicy老師；校对：TCC；审核：TCC；Page：草根 文人*
 
+朱利安尼(Rudy Giuliani)是前任纽约市长，川普总统的私人律师，更是最了解RICO法案的人。美国大选投票截止日，就是今天了。我们看看朱老爷子，如何犀利的发推帮川普总统助选。
 
-爆料革命“秘密翻译组”在Gtv爆出亨特·拜登“地狱硬盘”中的邮件，涉及到克兰、哈萨克斯坦和墨西哥等地的石油产业，与中共国的“三桶油”，也就是中石化、中石油和中海油，有相当的关系。
+## 朱利安尼: 撒谎的拜登正叫得血管都快爆了!
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04084010/24-2.jpeg)
+[02/11/2020](https://twitter.com/RudyGiuliani/status/1323086550138298368)
 
-2015年2月28日，中国对外承包工程商会发文《乌克兰石油燃气公司将获得中国36亿贷款》称，乌克兰石油燃气公司与中国国家开发银行签署了贷款协议。国开行是中共国三大政策银行（中共国三大政策银行：国家开发银行、进出口银行 、农业发展银行，都是非商业银行）之一，由人民银行和财政部共同出资，也就是说老百姓的钱不用过财政部，可直接发批文入资。据《路德社》披露，国开行由张博等太子党控制。另据硬盘邮件信息，亨特·拜登14年就到乌克兰进行勾兑，可见此时已经开始布局。
+![]()![](https://spark.adobe.com/page/PVpw5AImNin1L/images/ed29fb71-acde-4bb2-b4d9-cb0cfd06f36e.png?asset_id=8b5b3167-69f6-4d34-be19-08868742f52f&amp;img_etag=%2263876c821509f2b8512f7cc0415a9256%22&amp;size=2560)
 
-根据该文，在政府担保下，2016年已经完成了几个项目融资，总额的60%用于购买中国设备，40%投向乌克兰工业。2014年的时候，亨特·拜登和这群卖国贼开始布局了。根据他的邮件的日期，就在2014年的时候，为什么亨特拜登他们要去乌克兰，为什么他们要勾兑，为什么在这时候变成国家贷款？谁在控制这一切？
+你是否意识到#科技，#MSM和#腐败的民主党人试图以牺牲美国人民的利益为代价来进行腐败的骗局。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04082925/1-13.png)
+正如川普所言，他们的”铁幕审查”，就证明他们是”人民的敌人”。
 
-CGA在2014年12月发表题为《风暴之地的能源独立梦》的文章称，为摆脱对俄罗斯天然气的依赖，乌克兰政府将目光投向了国内丰富的煤炭资源。乌克兰是有大量的煤，据统计乌克兰煤煤炭探明储量341.443亿吨。占整个全球煤炭资源8.3%，占据世界第8位。而第一位呢？第一位的是中国，虽然山西的胶原煤不太好，但它是储藏量最多。
+[01/11/2020](https://twitter.com/RudyGiuliani/status/1323019798046015488)
 
-乌克兰决定借助中国贷款发展燃煤发电，同时引进中国的煤气化技术。中国那时候五大电力都在搞媒体计划，其中神华做的最早。
+[!\[\]()!\[\](https://spark.adobe.com/page/PVpw5AImNin1L/images/e862d8bd-efd6-4515-adc9-c0cdd0126df3.png?asset_id=1493b383-6b65-42be-b18f-21fe78567fde&amp;img_etag=%22090912394d6ea91be627dfd5199c72c0%22&amp;size=2560)](https://spark.adobe.com/page/PVpw5AImNin1L/images/e862d8bd-efd6-4515-adc9-c0cdd0126df3.png?asset_id=1493b383-6b65-42be-b18f-21fe78567fde&amp;img_etag=%22090912394d6ea91be627dfd5199c72c0%22&amp;size=1024)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04083435/3-14.png)
+“中共国不是一个问题，也不是一个威胁。”
 
-2012年11月的时候，习近平十八大第一次上任，开始正式接班。据CGA报道，《乌克兰生意人报》载文指出，乌克兰国家石油天然气公司与中国国家开发银行签署了总额36.5亿美元，限期十五年的贷款协议，用于乌克兰热力系统的煤制气改造。
+谁说的？
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04083525/2-13.png)
+傻子？
 
-中国石油新闻中心在2020年4月30号报道，乌克兰扩大了天然气开采。乌克兰有限公司宣布了2020年4月30号将扩大乌克兰西北部的天然气开采程度。跨国企业ExpertPetroleum公司签署了为期15年的合同，可延续10年，投资近10亿格里夫拉，约3000万美元，这是乌克兰在天然气开采领域近5年来吸引到的最大一笔外国投资。ExpertPetroleum的创始人兼总经理是德韦特·马尔金，该公司是在欧洲的小型跨国公司，包括在全世界作为一个油气服务公司服务。
+一个共产党员？
 
-中共国很多太子党都在油气公司任过职务，他们都服务于这些这些小国家，例如中欧中东欧国家，因为它们好控制，可以把总统搞定。
+或者某人，他的家人从中国共产党人那里得到了几百万的钱？
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04085211/5-8.png)
+絕不是川普
 
-中国日报，中共党报的党宣外文版的财经头条：“墨西哥能源改革落地，欢迎中企投资”。发布时间又是2014年8月14号 。这里提到的墨西哥国家石油公司，亨特·拜登也在其中。
+是北京拜登
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04085333/6-8.png)
+[01/11/2020](https://twitter.com/RudyGiuliani/status/1323010860583948288)
 
-所有亨特·拜登勾兑的各个国家、各个项目，也几乎全部牵涉到中共。这就是在每个国家的背后，盗国贼们的庞大集团。
+[!\[\]()!\[\](https://spark.adobe.com/page/PVpw5AImNin1L/images/ce832486-3fa5-44b9-9c1c-7951550c0107.png?asset_id=ca8e85a0-6f10-4588-a51f-3bed4c316159&amp;img_etag=%2253f5bf799b12a0e111f73ecd1b5040f0%22&amp;size=2560)](https://spark.adobe.com/page/PVpw5AImNin1L/images/ce832486-3fa5-44b9-9c1c-7951550c0107.png?asset_id=ca8e85a0-6f10-4588-a51f-3bed4c316159&amp;img_etag=%2253f5bf799b12a0e111f73ecd1b5040f0%22&amp;size=1024)
 
-2012年7月2号，人民网驻墨西哥记者邹志鹏的报道《60后“政坛新星”培尼亚.·涅托当选为墨西哥总统”》中介绍了现年46岁的培尼亚·涅托于1984年加入了革命制度党开始从政。
+撒谎的拜登正在大叫著，血管都快爆了。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04085421/8-3.png)
+[30/10/2020](https://twitter.com/RudyGiuliani/status/1322307812274393089)
 
-墨西哥这些家族，也都是中共培养和拉拢的对象，共产党考察干部有一套的体系，他对这些外国领导人也一样。看他们有没有政治素养、政治资本，还有政治嗅觉。
+[!\[\]()!\[\](https://spark.adobe.com/page/PVpw5AImNin1L/images/6cc0809c-5126-4dac-8cc0-fd57886076fc.png?asset_id=dd6899cf-04b1-4b12-b1d5-974d62b7f186&amp;img_etag=%22bddac2f730ae217bda789800d45cbb29%22&amp;size=2560)](https://spark.adobe.com/page/PVpw5AImNin1L/images/6cc0809c-5126-4dac-8cc0-fd57886076fc.png?asset_id=dd6899cf-04b1-4b12-b1d5-974d62b7f186&amp;img_etag=%22bddac2f730ae217bda789800d45cbb29%22&amp;size=1024)
 
-通过之前的邮件和新闻记录我们已经了解到波兰前总统跟中共国的关系。现在再通过亨特·拜登新的邮件，又可以挖出乌克兰、哈萨克斯坦，还有墨西哥，他们利用石油和共产党在这些地方进行所谓的“扶植”活动，当地的盗国贼们在这几个国家之内进行利益的勾兑，然后分赃。这也就是中共国利益往来勾兑的全球化 — 中共全球利益集团。
+朱利安尼幫你解析:那些被他們审查的罪行
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)[原文链接](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/PVpw5AImNin1L/)】-点击spark adobe版
+
+[!\[\]()!\[\](https://spark.adobe.com/page/PVpw5AImNin1L/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/PVpw5AImNin1L/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

@@ -1,13 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 硬盘门内容泄露：亨特·拜登收到前妻发来的Naomi的账单
-` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/527686/)
+## 伟大的美国选民们，选票投给谁？
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/527957/)
 
-翻译：为子孙爱七哥农场翻译组
+*作者：桂花酒｜校对：宁缺｜审核：海阔天空｜Page：玄天生；*
 
-邮件英文原件：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04090535/Bill-for-Naomi-01.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04090544/Bill-for-Naomi-02.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04090554/Bill-for-Naomi-03.jpg)
-邮件中文翻译：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04091931/16-4-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04091947/16-4-2.png)
+**上帝与你们同在！**
+
+亲爱的美国选民！今天你们即将改写历史。不仅是美国，还包括全世界。
+
+你们的两位总统竞选人，川普和拜登。年龄相仿，一位确诊中共病毒，三天后奇迹般康复。一位在集会上把对手说成乔治，对，他不是瞌睡虫。
+
+川普总统儿女们都有各自的工作，家庭和睦。拜登儿子亨特毒瘾缠身，滥交乱伦。拜登说，我要像对待我的家人一样对待你们，亲爱的选民！难道你们和他一样打瞌睡？
+
+四年来，你们的税负少了，工作机会多了，生活改善了。但是自从中共放出病毒之后，你们面临更多威胁，工作机会少了，平静的生活毁了。想想自从中共病毒在美国传播开来，你们为什么呆在家里？为什么口罩成了必需品？为什么要保持社交距离？又为什么不能像从前那样自由自在到酒吧里休闲放松？
+
+一个多月前，美国多个部门、官员包括媒体都有拜登的神秘邮件，对，硬盘。目前曝光的邮票证明，亨特.拜登家族乱伦，娈童虐童。亨特还到中国，到乌克兰，担任了一堆公司高管、合伙人、董事。这是个被海军部队开除的瘾君子！他的父亲说他对亨特的事情一无所知。是的，他一无所知，可为什么动辄几千万、几亿、几十亿美元的金钱源源不断进入了拜登家的腰包？是谁在那些协议合同上签的字？是谁和中共一起偷走了美国的科技？ 是谁出卖了美国的国家利益？是谁允许中共在南海岛礁军事化？是谁把偷走了美国人的工作机会？
+
+可是为什么硬盘出现之后，全美国的新闻媒体都在沉默？除了Fox、纽约邮报、Gtv、Gnews等少数几家传媒公司勇敢地发声，为什么其他的新闻媒体都默不作声？难道他们不知道硬盘信息吗？难道他们不知道拜登是总统竞选人？还是他们害怕了？被人捂住了嘴？
+
+伟大的选民们！你们心明眼亮，你们热爱自由，你们热爱美国！
+
+伟大的选民们！该出手投出你最伟大的选票，去告诉所有美国人，谁也不能人前假装君子，而背地却偷偷卖国。谁也不能控制舆论掩盖真相。腐败的罪犯不能做美国的总统！人民需要自由，美国需要再次伟大！世界将因为你的选票改变，天佑美国！
+
+编辑 【[喜马拉雅战鹰团](https://spark.adobe.com/page/AytinuCWiMqSn/)】-点击spark adobe版
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)[原文链接](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/AytinuCWiMqSn/images/e8fc6b81-69f8-4773-9d65-5cd3a50cb29a.jpg?asset_id=6563820d-3fcb-42e2-b35e-ff4a43779319&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/AytinuCWiMqSn/images/e8fc6b81-69f8-4773-9d65-5cd3a50cb29a.jpg?asset_id=6563820d-3fcb-42e2-b35e-ff4a43779319&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
 0

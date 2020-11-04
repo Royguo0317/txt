@@ -1,11 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国大选最新消息|川普总统在公开声明中宣布胜选2020年美国大选
-` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/526804/)
+## 2020年11月3日CCP冠状病毒大流行第283集
+` GM30` [轉載自GNews](https://gnews.org/zh-hans/525606/)
 
-内新闻：背靠背
+中共利用数字人民币加强控制人民；中共党卫军渤海军演；中共继续掩埋病毒真相；中共党课公然感谢本拉登；揭开蚂蚁金服的骗局……
 
-2020年11月4日2:30，据新中国联邦电视七台报道，川普总统在公开声明中宣布胜选2020年美国大选！恭喜川普总统！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04023129/image-79.png)
+
+
 0
