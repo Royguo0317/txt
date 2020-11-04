@@ -13,26 +13,26 @@
 
 
 
-### [亨特·拜登与其合伙人Eric Schwerin撕破脸皮后的续集：空手套白狼](/content/gnews/1/README.md)
+### [视频郭文贵先生于9月23日对美国大选做出了预测，并谈到了即将到来的灭共之战](/content/gnews/1/README.md)
  ` 秘密翻译组G-Translators`
 
-### [川普总统连任系列五:突发，拜登密歇根州投票造假被抓现行！](/content/gnews/2/README.md)
+### [亨特·拜登与其合伙人Eric Schwerin撕破脸皮后的续集：空手套白狼](/content/gnews/2/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [川普总统连任系列五:突发，拜登密歇根州投票造假被抓现行！](/content/gnews/3/README.md)
  ` GM101`
 
-### [滑稽的2020年美国总统大选！](/content/gnews/3/README.md)
+### [滑稽的2020年美国总统大选！](/content/gnews/4/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [独家【3-35】亨特拜登定期收到的汇款单曝光](/content/gnews/4/README.md)
+### [独家【3-35】亨特拜登定期收到的汇款单曝光](/content/gnews/5/README.md)
  ` 康州喜马拉雅农场`
 
-### [独家【3-31】亨特拜登与嫂子赫莉•拜登的邮件曝光](/content/gnews/5/README.md)
+### [独家【3-31】亨特拜登与嫂子赫莉•拜登的邮件曝光](/content/gnews/6/README.md)
  ` 康州喜马拉雅农场`
 
-### [独家：荒唐的拜登儿童保护基金](/content/gnews/6/README.md)
+### [独家：荒唐的拜登儿童保护基金](/content/gnews/7/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
-
-### [视频【文字版】11/3/2020 路德时评（路博艾冠康胡谈嘉宾闫丽梦博士伊安先生）：大选夜分析！灭共已全面开始！](/content/gnews/7/README.md)
- ` 喜马拉雅-华盛顿DC站`
 
 ### [视频10.28 路德时评：亨特·拜登硬碟曝光中共白手套；拜登与习的神秘关系【精华版粤语配音】](/content/gnews/8/README.md)
  ` GM42`
