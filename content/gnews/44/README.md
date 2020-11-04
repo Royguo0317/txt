@@ -1,15 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登与多名女性调情信息被曝
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/524554/)
+## 川普总统的贸易政策为北卡罗来纳州带来的机会
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/525071/)
 
-翻译:康州农场—任天行
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03191426/1-10.png)*图片来自： twitter.com*
+北卡罗来纳州州报(North State Journal)10月30日报道了来自白宫贸易与制造业政策办公室彼得-纳瓦罗（Peter Navarro）提供的一份报告：《北卡罗来纳州就业计划报告》，这篇文章指出，川普总统的贸易政策为北卡罗来纳州各行业带来机会。
 
-校对:康州农场—大飞机
+2009年，奥巴马-拜登政府违背了对美国人民的承诺，宣布不会寻求重新谈判北美自由贸易协定，这是美国历史上最糟糕的贸易协定之一。特朗普总统兑现了他的承诺，签订了新的《美国-墨西哥-加拿大协定》（USMCA）， 并于2020年7月1日正式生效。
 
-编辑：康州农场—残夜听雨声
+USMCA对于北卡罗来纳州从罗利（ Raleigh）到格林斯博罗（Greensboro）再到夏洛特（Charlotte）的近500家汽车零部件公司来说是个好消息。新协议要求将国产汽车的占比从62.5%提高到75%，其中大部分将在北卡罗来纳州制造。这是因为严格的劳工条件要求有助于达成美墨之间的公平竞争环境。
 
-其信息往来具体身份未名，其中一位女士在信息往来中谈到了戒毒治疗，并且亨特对其有安慰与调情，怀疑其为吸毒的嫂子。另一位名女士在其中谈到自己的孩子，怀疑为已婚妇人。其中有一段剧情一位已婚女士去亨特家中怕被拍到因此改为披萨店相会
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173036/0001-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173044/0002-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173052/0003-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173059/0004-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173106/0005-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173116/0006-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173126/0007-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173138/0008-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173220/0009-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173224/0010-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173238/0011-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173315/0012-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173327/0013-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173340/0014-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173342/0015-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173349/0016-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173357/0017-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173410/0018-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173439/0019-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173443/0020-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173444/0021-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03173443/0022-scaled.jpg)
+USMCA认为，北卡罗莱纳州一度繁荣的纺织和家具业也值得庆幸，由于北美自由贸易协定(NAFTA)和共产主义中国加入世界贸易组织(WTO)使其元气大伤。从北美采购纱线和外套面料的修订规定，将为北卡罗来纳州的生产商扩大市场。作为一项额外的“购买美国货”措施，使北卡罗莱纳州的纺织品制造商受益，所有的美国运输安全管理局的TSA制服现在必须在美国生产，这符合基塞尔（Kissell）修正案的规定。
+
+USMCA还为北卡罗来纳州强大的医疗器械制造业和公共卫生产业基地提供更多的知识产权保护。这个关键部门雇佣了9000名员工，在全州范围内拥有超过1200项专利。
+
+在农业方面，北卡罗来纳州在烟草、猪肉和火鸡生产方面处于全国领先地位；农业是北卡罗来纳州的第一大产业，每年创造近920亿美元的收入。通过USMCA增加进入加拿大家禽和鸡蛋市场的机会，将使北卡罗来纳州价值370亿美元的家禽业受益，该行业由15万名员工组成。该州价值106亿美元的乳制品行业由威斯维尔（Waynesville）、希尔斯堡（Hillsborough）和斯泰茨维尔（Statesville）等城镇的500多名奶农组成，同样将受益于加拿大贸易壁垒的降低。
+
+我们也不要忘记2019年10月签署的新的美日贸易协定带来的实质性好处。按数量计算，日本是美国最大的猪肉进口国。与日本的协议降低了美国猪肉产品的关税，最终将关税逐步降至零。这将为北卡罗莱纳州的生产商，比如史密斯菲尔德（Smithfield）、伊丽莎白镇（Elizabethtown）和戈德斯伯勒（Goldsboro），提供额外的市场准入。
+
+北卡罗来纳州的48.5万农民也受惠于川普总统的放松管制措施。 例如，川普政府废除了奥巴马-拜登2015年的灾难性美国水域规则，该规则对北卡罗来纳州的沟渠、坑洞和农场池塘进行了过度监管。放松管制措施给予来自威尔明顿（ Wilmington）、杰克逊维尔（ Jacksonville）和阿什维尔（Asheville）等社区的农民大量额外的使用其水域的机会。
+
+最后，如果说从中共国的致命CCP病毒中学到了什么的话，那就是美国必须把基本药品、医疗用品和设备的生产转移到美国本土。为此，川普总统的基本药物行政命令对政府机构实施严格的“购买美国货”规则，这将刺激北卡罗来纳州对国内制药生产的额外投资。北卡州已经是美国生物和药物制造业的领导者，拥有超过6.1万名员工和600多家公司。
+
+应该清楚的是，川普总统支持制造业的政策和强硬的贸易谈判是为北卡罗来纳州的农民、制造商和科学家服务的。同样应该清楚的是，川普总统认为所有的就业机会都应在本地创造。
+
+[阅读完整的《北卡罗来纳州就业计划报告》](https://www.whitehouse.gov/wp-content/uploads/2020/10/OTMP-North-Carolina-Report.pdf)
+
+[文章链接](https://nsjonline.com/article/2020/10/navarro-president-trumps-trade-policies-working-for-north-carolina/)
+
+翻译整理： Alton
+
 0

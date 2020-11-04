@@ -1,13 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 硬盘门内容泄露：亨特·拜登拒绝支付前妻子女抚养费
-` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/524817/)
+## 川普竞选声明——关于民主党计划使选举日的结果非法化
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/525169/)
 
-翻译：为子孙爱七哥农场翻译组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03195208/1-11.png)
+“民主党人感到恐慌，因为乔·拜登在摇摆州的早期投票中没有取得足够大的领先优势，他们知道，川普总统在选举日的个人投票将弥补差距，促使他取得胜利。拜登的政治工作人员已经在散布舆论，并通过指导代理人将总统在选举日的成功称为”红色海市蜃楼”，以研究选举日结果的不合法性。“工作人员建议代理人和媒体通过到处推卸责任来制造烟幕——想象邮政延误或谎称根本没有被退回的邮寄选票应被视为需要计算的合法选票。这些都是假的，但他们却打算当作川普总统的胜利是所谓“红色海市蜃楼”的证据。
 
-邮件英文原件：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03181229/612-Hunt-transferred-2000-01.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03181200/612-Hunt-transferred-2000-02.jpg)
-邮件中文翻译：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03184018/Screen-Shot-2020-11-04-at-7.08.30-AM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03184036/Screen-Shot-2020-11-04-at-7.08.42-AM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03184334/Screen-Shot-2020-11-04-at-7.43.18-AM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03184051/Screen-Shot-2020-11-04-at-7.37.46-AM.png)
+“ 我们都不该上当。他说:“我们知道，为了进一步巩固’红色海市蜃楼’的错误信息，民主党人已经削减了他们准备部署的电视广告，他们试图让人们相信，只要有远超选举日的足够时间，乔-拜登就能取得胜利。与此同时，我们完全可以推测，民主党人将在法庭上辩论，延长接受和点票的最后期限，他们要求的最后期限将远远超过各州法律规定的最后期限。
+
+美国人应该记住，拜登组建了一个庞大的律师团队，他们将试图削弱选举的公正性，以便窃取这次选举。美国人还应该记住，希拉里•克林顿(Hillary Clinton)曾建议拜登“在任何情况下”都不要承认失败。他说，拜登竞选的最后一搏将是丑陋的，也是无情的。
+
+他说:“实际情况是，民主党派出了一个几乎无法让任何人兴奋的乔-拜登作为候选人，他的潜在选民也没有动力亲自去投票。民主党人还犯了一个错误，因为冠状病毒，他们花了几个月的时间吓唬他们的支持者，让他们不要亲自投票，现在他们意识到，他们的提前投票领先优势是不够的。拜登的竞选团队也犯了政治错误，没有建立一个切实可行的游戏规则，也没有实际行动，现在他们付出的代价是，他们争取不到支持者。拜登知道，根据提前投票来看，现已获得的选票来自他们已经拥有的支持者，所以他吞噬了自己选举日的投票率。由于拜登的困境，我们提防着民主党人试图破坏各州收票和计票的最后期限，我们将努力确保他们遵守法律。川普总统希望每一个有资格的选民都能投票，投一张统计一张。”
+
+-贾斯汀·克拉克（Justin Clark），川普2020竞选副经理
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03195228/2-10.jpg)
+翻译：Alton
+
 0
