@@ -1,11 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家‼️镜中人、怀中人岂知亨特·拜登是生活糜烂与中共魔鬼做交易的那个人?
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/524033/)
+## 硬盘门内容泄露：亨特·拜登2016年11月-12月的通话记录
+` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/524618/)
 
-**您申明，您已年满18周岁或在您访问以下视频的司法管辖区已达到成人年龄，并完全有能力和资格签订本服务条款中规定的条款、条件、义务、申明、陈述和保证，并遵守和履行本服务条款。如果您未满18岁或法定成年年龄，请不要观看以下的任何内容**。
+为子孙爱七哥农场翻译组
 
+[亨特·拜登2016年11月-12月的通话记录](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03175540/%E4%BA%A8%E7%89%B9%C2%B7%E6%8B%9C%E7%99%BB2016%E5%B9%B411%E6%9C%88-12%E6%9C%88%E7%9A%84%E9%80%9A%E8%AF%9D%E8%AE%B0%E5%BD%95.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03175540/%E4%BA%A8%E7%89%B9%C2%B7%E6%8B%9C%E7%99%BB2016%E5%B9%B411%E6%9C%88-12%E6%9C%88%E7%9A%84%E9%80%9A%E8%AF%9D%E8%AE%B0%E5%BD%95.pdf)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03175720/Screen-Shot-2020-11-04-at-6.56.58-AM.png)文件第一页截图
 
 
 0

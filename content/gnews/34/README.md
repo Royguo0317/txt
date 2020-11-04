@@ -1,29 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “美好的仗我打了，当跑的路我跑了” 求上天赐福
-` 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hans/524032/)
+## 爆炸揭秘第六波(41)中共与拜登家族幕后的资本运作-Burnham Financial Group Inc.
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/524383/)
 
-**祈祷者： Faller**
+Stranger
 
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03143243/Picture1-3.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03164426/biden-family-corruption_edit-1.jpg)
 
 
+根据Hunter电脑泄露的文件资料，本文将揭露中共与拜登家族是如何通过资本运作收购Burnham，并以此种方式收购其它企业。
 
+Burnham & Co. 由华尔街传奇I.W. “Tubby” Burnham 于1935年创立，现已是全球金融界最知名的公司之一。
 
-#### 祈祷：
+现今Burnham Financial Group Inc. 的业务主要通过2家子公司开展：Burnham Asset Management Corporation and Burnham Securities Inc.。Burnham Asset Management是美国证券交易委员会（SEC）的注册投资顾问。Burnham Securities是一家提供全方位服务的投资银行，向投资银行和经纪业提供与JP Morgan的长期稳定的机构间结算关系。
 
-我们祖宗的神，主宰宇宙万物的上天。感谢你让我认识你的全能和伟大，信实和爱。你教导我们说：“你要吃劳碌得来的，你就享福，凡事顺利”[\[i\]](//5E34D260-79A2-44F6-B7F3-0AD3E3488937#_edn1)。我领受了。是的，一切的假骗黑抢是你厌恶的。神啊，你怜悯软弱的为奴的。你曾经带领以色列人出为奴之地埃及，你也再次听见你儿女的呼求：你的神州儿女不愿为奴。不管是100年，30年，3年，还是13天24小时，你看见你的儿女为自由而拼搏。就像使徒保罗所说“那美好的仗，我已经打过了，当跑的路我已经跑尽了，所信的道我已经守住了”[\[ii\]](//5E34D260-79A2-44F6-B7F3-0AD3E3488937#_edn2)。你以天光显现见证你一直庇护真实、公义与良善，告诉我们你一直在前头亲自带领走义路的人。
+2012年COR Fund Advisors LLC.（CORFA）与Burnham的股东和持票人达成协议，并于次年成功全资收购Burnham。
 
-今日，美国大选，求你赐福华夏儿女，求你赐福美国，求你赐福这世界！你亲自成就你的话语，这些都是真的!
+这家神秘的CORFA如何有实力收购Burnham这样优秀的企业？现有资料表明，Harvest Global Investments Ltd.通过 Hunter掌控的公司 RSPI（RSP INVESTMENTS, LLC.）协助，成功投资CORFA。同时还有一家中国公司Cathay Kylin International Investment Holding Group（Beijing）也参与投资CORFA。Harvest Global Investments Ltd.是中国嘉实基金管理公司的全资子公司。嘉实基金的主要股东之一是一家名为中诚信托有限责任公司（ “CCT“或“中诚信托“）的金融公司。中诚信托（ CCT） 是一家由省级和国家级煤炭和矿业公司等组成的团所拥有的非存款性金融公司，包括中煤集团、中国人保、中国五矿等实力雄厚的国资委直属企业。嘉实基金实质是中共控制的国有企业。
 
-* * *
+在Burnham Financial Group Inc.的领导人名单中发现了一位熟悉的身影-担任管理合伙人兼董事的DEVON ARCHER, 他是Hunter亲密的商业伙伴之一。深入调查DEVON ARCHER后发现，他曾经既是Rosemont Seneca Partner的管理合伙人，也是CORFA的联合创始人，还出任Bohai Harvest RST (Shenzhen) EQUITY INVESTMENT FUND MANAGEMENT CO., LTD.的副董事长和投资委员会成员。
 
-[\[i\]](//5E34D260-79A2-44F6-B7F3-0AD3E3488937#_ednref1) 圣经 诗篇 128：2
+Rosemont Seneca Partner由Hunter实际控制，并且占有Bohai Harvest RST (Shanghai)20%股份。而Bohai Harvest RST (Shen zhen)是Bohai Harvest RST (Shanghai)的全资子公司。
 
-[\[ii\]](//5E34D260-79A2-44F6-B7F3-0AD3E3488937#_ednref2) 圣经 提摩太后书 4：7
+结合以上的信息，中共与拜登家族幕后资本运作收购Burnham的脉络图呈现在眼前。首先由DEVON ARCHER成立COR Fund Advisors LLC.，然后中共通过Harvest Global Investments Ltd.和Cathay Kylin International Investment Holding Group投资CORFA，最后CORFA利用这些资本完成收购Burnham。通过这套运作方式，中共可以隐秘且合法地收购或控制美国优秀企业，同时拜登家族亦能获得惊人的财富。
 
 0

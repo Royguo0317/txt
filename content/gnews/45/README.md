@@ -1,8 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月发票表格1177号
-` JP007` [轉載自GNews](https://gnews.org/zh-hans/523817/)
+## 独家‼️亨特·拜登的9.5寸擀面杖子还不够用？
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/524150/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03130308/5%E6%9C%88%E5%8F%91%E7%A5%A8%E8%A1%A8%E6%A0%BC1177%E5%8F%B7.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03130315/5%E6%9C%88%E5%8F%91%E7%A5%A8%E8%A1%A8%E6%A0%BC1177%E5%8F%B7-E1.png)
+**您申明，您已年满18周岁或在您访问以下视频的司法管辖区已达到成人年龄，并完全有能力和资格签订本服务条款中规定的条款、条件、义务、申明、陈述和保证，并遵守和履行本服务条款。如果您未满18岁或法定成年年龄，请不要观看以下的任何内容**。
+
+
+
 0
