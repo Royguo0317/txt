@@ -1,13 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 硬盘门内容泄露：亨特·拜登的自卑感来自他的父亲乔·拜登
-` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/525586/)
+## 美国大选|新中国联邦电视台路德先生爆料据班农先生消息川普已拿下宾州
+` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/525706/)
 
-翻译：为子孙爱七哥农场翻译组
+内新闻：背靠背
 
-邮件英文原件：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03211214/Conf-call-on-Sunday-124-400-p-01.jpg)
-邮件中文翻译：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03211419/16-5-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03211438/16-5-2.png)
+【持续更新】美东时间2020年11月3日，新中国联邦电视台七台直播节目中，路德先生爆料，班农先生昨天透露川普总统拿下宾夕法尼亚州！
+
+美国宾夕法尼亚PA是重要的摇摆州之一，拥有20张选举人票。
+
+俄亥俄OH摇摆州之一，拥有18张选举人票。
+
+据新中国联邦电视台关于美国总统大选最新消息：俄亥俄州，川普得票已经反超，如果23点前川普总统拿下佛罗里达和俄亥俄，就会今晚宣布胜选！
+
 0

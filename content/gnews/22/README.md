@@ -1,13 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 硬盘门内容泄露：亨特·拜登关于乌克兰天然气公司配套基金的邮件
-` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/525684/)
+## 新中国联邦电视台七台报道：关于美国大选的计票数据最真实是来自GTV，关注GTV!
+` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/525865/)
 
-翻译：为子孙爱七哥农场翻译组
+内新闻：背靠背
 
-邮件英文原件：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03214149/Matching-funds-.jpg)
-邮件中文翻译：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03214211/Screen-Shot-2020-11-04-at-10.40.10-AM.png)
+美东时间2020年11月3日，新中国联邦电视台七台直播，路德先生声明，关于美国大选的计票数据最真实是来自GTV，GTV会采用班农先生WARROOM数据，而WARROOM数据来自美国政府，因此保证数据真实性。很多主流媒体会控制数据，并传播虚假数据消息。
+
+关注GTV真实数据，传播美国大选真相。
+
+这是一场媒体战，11月2日，美国社交网络媒体推特表示将在大选结果正式公布以前，限制总统候选人、竞选团队等用户私自发布胜选信息，否则将被推特官方封账号。
+
 1+

@@ -1,17 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国大选|新中国联邦电视台路德先生爆料据班农先生消息川普已拿下宾州
-` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/525706/)
+## 硬盘门内容泄露：中石化与亨特·拜登的交易邮件
+` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/525907/)
 
-内新闻：背靠背
+翻译：为子孙爱七哥农场翻译组
 
-【持续更新】美东时间2020年11月3日，新中国联邦电视台七台直播节目中，路德先生爆料，班农先生昨天透露川普总统拿下宾夕法尼亚州！
-
-美国宾夕法尼亚PA是重要的摇摆州之一，拥有20张选举人票。
-
-俄亥俄OH摇摆州之一，拥有18张选举人票。
-
-据新中国联邦电视台关于美国总统大选最新消息：俄亥俄州，川普得票已经反超，如果23点前川普总统拿下佛罗里达和俄亥俄，就会今晚宣布胜选！
-
+邮件英文原件：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03225528/%E5%9B%9E%E5%A4%8D-The-Notice-of-Sinopec-Deal-copy-01.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03225547/%E5%9B%9E%E5%A4%8D-The-Notice-of-Sinopec-Deal-copy-02.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03225559/%E5%9B%9E%E5%A4%8D-The-Notice-of-Sinopec-Deal-copy-03.jpg)
+邮件中文翻译：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03225959/Screen-Shot-2020-11-04-at-11.59.30-AM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03230004/Screen-Shot-2020-11-04-at-11.52.51-AM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03230013/Screen-Shot-2020-11-04-at-11.53.01-AM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03230023/Screen-Shot-2020-11-04-at-11.53.13-AM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03230031/Screen-Shot-2020-11-04-at-11.53.24-AM.png)
 0
