@@ -1,11 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统推特称即将公开发表声明
-` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/526454/)
+## 川普总统宣布大选获胜
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/526890/)
 
-内新闻：背靠背
+多伦多加喜农场 熊妈妈
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04031818/756044760042879.jpg)图片来源：RBC
+11月4日，美国2020年总统大选候选人、现任总统川普在大选投票结束后发表讲话，宣布他赢得了大选。
 
-2020年11月4日川普推特称即将公开发表声明。大赢。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04005105/image-73.png)
-0
+川普总统表示，“目前的结果。 这就是胜利。 我们赢得了那些我们没想到会赢的州。”
+
+川普总统还强调，他的主要竞争对手、民主党候选人乔·拜登将不会步履蹒跚的在摇摆州追赶上他。
+
+川普总统说，“我们将赢得这场选举，我敢肯定，我们已经做到了。”
+
+川普总统还表示，“由于通过邮寄选票而导致的投票计数延迟是乔·拜登的”大骗局”。川普总统相信，如果他的对手乔·拜登输了大选，乔·拜登会挑战最终选举结果。
+
+“他们知道自己无法获胜，因此提前决定提起诉讼。 我知道，”川普总统说。
+
+参考链接：[https://twitter.com/TeamTrump/status/1323888133390348288](https://twitter.com/TeamTrump/status/1323888133390348288)
+
+5+

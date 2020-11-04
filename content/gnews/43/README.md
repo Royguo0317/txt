@@ -1,13 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 硬盘门内容泄露：乔·拜登给李祥生儿子写大学推荐信
-` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/526421/)
+## 重磅快讯！川普总统白宫宣布已赢得2020美国大选，将进入下一届连任任期
+` GM77` [轉載自GNews](https://gnews.org/zh-hans/526865/)
 
-翻译：为子孙爱七哥农场翻译组
+编撰：WLQF
 
-邮件英文原件：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04004637/ReChristopher-Li-Recommendation-Letter-01.jpg)
-邮件中文翻译：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04004710/Screen-Shot-2020-11-04-at-1.45.39-PM.png)
+「美国东部时间2020年11月4日凌晨2点30分」美国总统川普携副总统彭斯先生在白宫召开新闻发布简会，向全球宣布，其已击败拜登，赢得了美国2020年的总统大选。这表明川普总统即将进入下一届为期四年的连任任期。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04025251/%E6%88%AA%E5%B1%8F2020-11-04-%E4%B8%8B%E5%8D%883.52.27.png)
+在发布会期间，川普总统宣布已赢得宾州、密歇根、威斯康星、乔治亚州、德州、俄亥俄 、北卡罗来纳等州。川普总统表示，他在竞选前就知道有些州看到计票不利于拜登他们，他们就要打官司。但川普总统誓言决定打到最高法！法律一定要保护投票的严谨性！
+
+小编这里祝贺川普总统赢得2020美国总统选举盛宴，因为正义必胜！
+
 0

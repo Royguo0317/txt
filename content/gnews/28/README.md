@@ -1,23 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统宣布大选获胜
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/526890/)
+## Google报告显示对美国大选最感兴趣的来自中文世界
+` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/527530/)
 
-多伦多加喜农场 熊妈妈
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04031818/756044760042879.jpg)图片来源：RBC
-11月4日，美国2020年总统大选候选人、现任总统川普在大选投票结束后发表讲话，宣布他赢得了大选。
+喜马拉雅的文雅 （雅典娜农场）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04082430/trends-removebg-preview-2.jpg)
+2020美国总统大选把全世界的目光都聚焦在美国上，Google趋势报告列出了过去24小时内与美国大选相关的搜索来自中文世界。接着是土耳其语和“波斯语”（伊朗），英语搜索排在第四位，其次是德语。
 
-川普总统表示，“目前的结果。 这就是胜利。 我们赢得了那些我们没想到会赢的州。”
+热搜“ 2020年美国总统大选”关键词排名靠前的国家和地区依次是古巴，海地，德国，埃塞俄比亚和加纳。热搜词还包括“实时选举结果”，“ Dixville Notch”和“退出投票”。
 
-川普总统还强调，他的主要竞争对手、民主党候选人乔·拜登将不会步履蹒跚的在摇摆州追赶上他。
+以上内容出自https://www.9news.com.au/world/us-election-2020-what-countries-are-most-interested-in-results/df2df136-eea3-4aaf-a8a5-6a5a37959688，鉴于很多媒体被“审查”，对部分内容请开放式理解。
 
-川普总统说，“我们将赢得这场选举，我敢肯定，我们已经做到了。”
 
-川普总统还表示，“由于通过邮寄选票而导致的投票计数延迟是乔·拜登的”大骗局”。川普总统相信，如果他的对手乔·拜登输了大选，乔·拜登会挑战最终选举结果。
 
-“他们知道自己无法获胜，因此提前决定提起诉讼。 我知道，”川普总统说。
-
-参考链接：[https://twitter.com/TeamTrump/status/1323888133390348288](https://twitter.com/TeamTrump/status/1323888133390348288)
-
-5+
+0
