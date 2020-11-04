@@ -1,57 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国批准向台湾出售MQ-9 &#8220;死神&#8221;无人机
-` VOH欧洲战友团` [轉載自GNews](https://gnews.org/zh-hans/525921/)
+## 硬盘门内容泄露：王昕和亨特·拜登的邮件往来
+` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/526075/)
 
-**编译: 莫黎**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03223844/IMG_2991.jpg)***MQ-9B SeaGuardian GA-ASI image ***
+翻译：为子孙爱七哥农场翻译组
 
-
-美国国务院本周二宣布，美国已批准向台湾出售四架MQ-9 “死神” 无人机，随着中国日益增长的威胁，这项军售将极大增强台湾的防御能力。国务院表示，这笔价值6亿美元的军售有助于维持台湾的政治稳定和军事平衡。这是自川普政府放宽美国出口尖端和严密保护的无人机技术的政策以来的首笔交易。
-
-此次军售包括四架无人机、地面站以及相关的监视和通信设备，但不包含与之相关的炸弹或导弹。该交易是在最近几周宣布的其他几项价值42亿美元的对台军售后批准的。
-
-据路透社近几周的报道，随着美国加大对中国的施压力度，以及对北京进攻台湾的担忧升温，川普政府正在努力推进对台尖端军事装备的销售，总价值为50亿美元。美国务院给了国会30天的时间反对这项对台军售，但是鉴于两党对台湾防务的广泛支持，投反对票的可能性几乎没有。
-
-10月21日，国务院向国会发出了第一批对台武器销售的通知。其中包括洛克希德·马丁公司生产的移动式火箭发射器，波音公司生产的火箭系统(HIMARS) 防区外攻击导弹扩展反应(SLAM-ER)导弹及相关设备，以及F-16喷气式飞机的外部传感器吊舱。10月26日又推进了对台出售100个巡航导弹站和400枚波音公司生产的的陆基 “鱼叉 “反舰导弹的提议。
-
-MQ-9 “死神 “无人机由加州圣地亚哥的通用原子航空系统公司制造, 美国军方曾使用”死神”执行远距离、高空侦察任务，并在中东和阿富汗对圣战分子进行精确打击和暗杀。
-
-美国认为台湾是一个重要的民主前哨，所以在法律要求下美国须向台湾提供必要的自卫的手段。针对美国加大对台军售，中国国防部曾在10月27日表示，”中方强烈敦促美方立即撤销对台军售计划，停止美台军事接触，停止向台湾出售武器。”
-
-
-
-
-
-
-
-
-
-注:
-
-MQ-9B”死神”系列在原系列的基础上升级了硬件和软件。如改进了结构疲劳和损伤的耐受性，该系列拥有更强大的飞行控制软件，以及在包括结冰条件在内的恶劣天气下执行任务的增强功能，而且能够经受飞鸟的攻击和雷击。
-
-该系列目前具有多种有效载荷以满足不同任务要求。能够携带多种任务有效载荷，包括一个最先进的探测和回避 (DAA) 系统，以便能够加装机载正视雷达 (DRR) 在非合作领空执行任务。
-
-MQ-9B可配置跨域功能以用于广泛的海上监视行动: 反水面战 (AsuW), 反潜战(ASW), 搜索和救援, 海事安全 (OMSI), 发展型机载反雷能力等。
-
-
-
-新闻来源:
-
-In latest arms deal, U.S. approves sale of MQ-9 Reaper drones to Taiwan
-
-[https://www.japantimes.co.jp/news/2020/11/04/asia-pacific/us-drones-taiwan-china/](https://www.japantimes.co.jp/news/2020/11/04/asia-pacific/us-drones-taiwan-china/)
-
-
-
-相关文章:
-
-
-
-> [中共是否会趁美国大选期间攻打台湾?](https://gnews.org/459294/)
-
-
-
+邮件英文原件：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03231622/ReRe-%E7%AD%94%E5%A4%8D-Project-status-update-call-April-13-2015-9am-NYC-9pm-BJ-01.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03231633/ReRe-%E7%AD%94%E5%A4%8D-Project-status-update-call-April-13-2015-9am-NYC-9pm-BJ-02.jpg)
+邮件中文翻译：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03233534/Screen-Shot-2020-11-04-at-12.34.47-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03233542/Screen-Shot-2020-11-04-at-12.35.02-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03233048/Screen-Shot-2020-11-04-at-12.30.01-PM.png)
 0

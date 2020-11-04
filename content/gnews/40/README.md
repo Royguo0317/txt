@@ -1,23 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 『热点播报』中共国移民管理局提醒公民继续尽量减少跨境旅行，为川普当选准备自己的后事
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/525925/)
+## 金灿荣:若川普总统上台逼中国在台湾动手美国必败拜登则不一样
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/525888/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/01003406/WhatsApp-Image-2020-11-01-at-11.33.40.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03225926/%E6%8D%95%E8%8E%B7_%E5%89%AF%E6%9C%AC.png)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-作者：香草山写作组 程万里
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03224404/messageImage_1604461256909.jpg)
-北京11月3日中共国移民管理局提醒公民继续尽量减少跨境旅行。其提醒，为有效降低染疫风险，公民应尽量减少不必要非急需跨境旅行，取消或推迟出国旅游行程安排。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03224457/messageImage_1604461335500.jpg)
-中共国移民管理局说是提醒，实际是护照停办，海关关闭，开始明面上把 14亿人民的关进事实上的监狱。更可笑的是中共移民管理局提醒是在中国大陆不存在的公民，而我们只是居民（我们每个人的身份证写的都是居民身份证）。闭关锁国开始了，中共国已经开始川普当选后为自己的后事做准备了。
+据[政委灿荣](https://weibo.com/7264589101?refer_flag=1001030103_) [2020年11月4日11：09AM](https://weibo.com/7264589101/JsjSudAck?from=page_1005057264589101_profile&amp;wvr=6&amp;mod=weibotime) 来自 [军事 · 视频社区](https://weibo.com/)
 
-审核：浪迹天涯
+【金灿荣教授答日本NHK记者：美国大选会如何影响台湾问题】
+如果是特朗普先生连任，那么我刚才讲，他还是很激进，台湾问题就会很尖锐。如果是拜登，情况会好一些，因为他比较温和，另外他会愿意跟中国对话。我个人推算，就算特朗普上台，他也不至于走得那么远，你真走得这么远，他就逼着中国大陆动手了。动手的结果美国是必败无疑，对美国来讲是很蠢的一个事情。[#美国大选#](https://s.weibo.com/weibo/%23%E7%BE%8E%E5%9B%BD%E5%A4%A7%E9%80%89%23) [#微博公开课#](https://s.weibo.com/weibo?q=%23%E5%BE%AE%E5%8D%9A%E5%85%AC%E5%BC%80%E8%AF%BE%23) [#v光计划#](https://s.weibo.com/weibo?q=%23v%E5%85%89%E8%AE%A1%E5%88%92%23) [L政委灿荣的微博视频](http://t.cn/A6Gb0Isl) [收起全文d](void%280%29;)
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+美国的这场大选并不是民主党和共和党的选举，而是川普总统和中国共产党的对决，是正义与邪恶的对决。
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+对于即将揭晓的美国总统选举，中共正在拼命要把拜登扶上马，与此相伴的是中共各种媒体对川普总统的一如既往抹黑，中共相关媒体已经开始对布隆伯格策划和资助的白宫外面的红色火焰骚乱进行舆论预热，与此同时，中共的御用战狗金灿荣也开始对美国的大选结果进行意淫。
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/01003406/WhatsApp-Image-2020-11-01-at-11.33.40.jpeg)
+川普总统必胜无疑，红色火焰骚乱、黑命贵、拜登和所有这些背后的中共都是在川普总统胜选路上的妖魔鬼怪，川普总统赢得并不轻松，因为邪恶的力量正在试图统治全人类。在未来回看历史时，人类是否能够从今天的正义与邪恶的对战中吸取教训？
+
+（文章内容仅代表作者个人观点）
+
 0

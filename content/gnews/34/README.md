@@ -1,13 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 硬盘门内容泄露：王昕和亨特·拜登的邮件往来
-` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/526075/)
+## 2020美国总统大选日——按提法已经在华盛顿不断聚集!
+` 快慢机` [轉載自GNews](https://gnews.org/zh-hans/526203/)
 
-翻译：为子孙爱七哥农场翻译组
+内军事:快慢机
 
-邮件英文原件：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03231622/ReRe-%E7%AD%94%E5%A4%8D-Project-status-update-call-April-13-2015-9am-NYC-9pm-BJ-01.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03231633/ReRe-%E7%AD%94%E5%A4%8D-Project-status-update-call-April-13-2015-9am-NYC-9pm-BJ-02.jpg)
-邮件中文翻译：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03233534/Screen-Shot-2020-11-04-at-12.34.47-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03233542/Screen-Shot-2020-11-04-at-12.35.02-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03233048/Screen-Shot-2020-11-04-at-12.30.01-PM.png)
+素材:新中国联邦华盛顿直播平台
+
+2020年11月3日,美国总统大选日夜间,“按提法”组织成员,已经开始大量在华盛顿区聚集.
+
+现场传回的视频显示,在聚集人群中,有人高举“按提法”的标志旗子.
+
+从新中国联邦华盛顿前方,2020年美国大选直播平台获取的即时讯息,川普总统已经几乎毫无悬念的赢得了本次大选.
+
+而据前不久的“爆料革命”提前获取的情报显示,如果川普总统获得连任,那么,“按提法”等将会在美国发起暴力运动.
+
+如今,“按提法”已经开始准时在华盛顿区大量集结,也从侧面印证了川普总统已经完胜.
+
+同时也再一次的用事实,验证了爆料革命的精准情报!
+
 0
