@@ -1,40 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/4 财经快讯: 大麻和赌球合法,美国大选悬而未决,习总亚洲自立山头
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/529644/)
+## 我们为什么如此关心美国大选
+` VOH欧洲战友团` [轉載自GNews](https://gnews.org/zh-hans/530611/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05044836/Picture4-2.png)图片来源：[https://image.cnbcfm.com/](https://image.cnbcfm.com/api/v1/image/105536998-1540826210277img_0345.jpg?v=1540826343&amp;w=630&amp;h=354)
-### **财经快讯**
+**撰稿: G吉**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05124305/090.jpg)/*Getty Image*
+当地时间11月4日凌晨3点，美国现任总统、共和党总统候选人唐纳德·特朗普在白宫东翼发表投票日之后的首次演讲。在最终计票结果尚未公布的情况下，宣布“我们正准备赢下这场选举，说实话，我们确实赢了”。而民主党候选人乔·拜登并未就此公开表态。预计此次围绕大选结果的斗争将会持续一段时间。
 
-1，尽管总统大选的结果并不明确，但美国股市周三仍在上涨。道琼斯工业平均指数上涨367.63点或1.3％，至27,847.66。 蓝筹基准在盘中高点飙升了800多点，随后收盘时有所回落。 标准普尔500指数上涨2.2％，至743.42点，至3,443.44点，此前该股一度上涨了3.5％。 纳斯达克综合指数上涨了3.9％，或430.21点，至11,590.78点。
+大选前随着“三块硬盘”的横空出世，向2020年美国大选投下了一枚超级重磅核弹。特别是路德社9月24日首次爆出硬盘内容，可以说郭文贵先生领导的爆料革命不仅改变着中国，也在改变着美国，影响着世界的政治走向。两位候选人的总统席位之争还在激烈进行中，这里面有诸多不确定性和政治暗箱操作。从某种意义上说，跌宕起伏的美国大选尚未结束，短期内也不会出现最终结果。
 
-[https://www.cnbc.com/2020/11/03/stock-futures-open-flat-after-tuesdays-rally-as-traders-await-us-election-results.html](https://www.cnbc.com/2020/11/03/stock-futures-open-flat-after-tuesdays-rally-as-traders-await-us-election-results.html)
+大选投票前随着“三块硬盘”内容的逐步曝光，广大战友们积极参与翻译和传播工作，我们转战推特、GAB、PARLER等战场积极传播硬盘相关内容，在唤醒美国民众的同时，也在为爆料革命、新中国联邦摇旗呐喊。我也有幸参与其中，见证着十三天来我们共同创造的各种奇迹，同时我也在不断思考，为什么我们如此关心此次美国大选。
 
-2，CNBC的吉姆·克莱默（Jim Cramer）在谈到大麻，体育博彩和乘车共享公司时说： “对于这三个具有市场影响力的行业来说，这是一个美好的夜晚。” 大麻在美国多州已经合法化。 [https://www.cnbc.com/2020/11/04/cramer-big-wins-for-cannabis-sports-betting-and-gig-companies.html](https://www.cnbc.com/2020/11/04/cramer-big-wins-for-cannabis-sports-betting-and-gig-companies.html)
+以前常听人说起，中国人是经济动物，只对赚钱感兴趣，对政治不感兴趣。但此次美国大选强有力地驳斥了这种观点。很多人对于美国大选在华人世界掀起的巨浪始料未及，我们可能从未想过，为什么我们会对大洋彼岸陌生国度的选举如此牵挂？朋友圈不断有人转发着与美国大选的各种信息，朋友们之间也在不断分享和探讨大选走势，仿佛大家都置身于这场世纪选战之中。
 
-3，在美国总统选举投票结束大约12小时内，中共国家主席习近平在第三届中国国际进口博览会开幕式上用中文通过视频讲话说，该国将加快与欧盟，日本和韩国的贸易谈判。但他并没有提及美国。
+那么，为什么在此之前有人颜之凿凿地宣称，或坚信中国人对政治不感兴趣呢？我始终认为，不是我们中国人不关心政治，而是我们被剥夺了关心政治的权力！
 
-[https://www.cnbc.com/2020/11/04/chinas-xi-says-country-will-speed-up-trade-talks-with-eu-japan-rok.html](https://www.cnbc.com/2020/11/04/chinas-xi-says-country-will-speed-up-trade-talks-with-eu-japan-rok.html)
+当我们每五年只能通过电视屏幕，看着主席台上“隔代指定”或“自我指定”的候选人，面无表情地念着秘书拟好的稿件； 看着主席台下密密麻麻，或奋笔疾书，或故作认真的代表们；看着投票显示屏上毫无悬念的零反对票，以及扳着脚趾头都能知道的选举结果。这样的选举和投票不看也罢！！我想大多数中国人已经对这种情况感到麻木。广大中国人只好把这份激情奉献给美国和美国人民，奉献给年届八旬依然需要竞争上岗的两位老人。这其实是中国人的最大悲哀！
 
-4，中共意外地取消了蚂蚁集团（Ant Group）创纪录的370亿美元的上市活动。蚂蚁金服的联合子公司华北和捷北也将不再被允许出售理财产品。分析人士称这个举措意味着证监会正试图缩减马云金融帝国规模， 这和上个月马云和证监会冲突有关。
+虽然有不少中国人以一种”看热闹”的心态看待美国大选，但实际上，我们也在不知不觉中学习着美国的民主选举制度。比如，共和党和民主党如何完成党内初选？选举人制度是如何发挥作用的？摇摆州意味着什么？总统候选人需要多少张选票才能当选美国总统？可能部分中国人对于美国大选机制的了解，远远超过了普通美国人。究其原因，要归功于美国政治体制的开放性和透明度。我承认美国选举制度并不是无懈可击、堪称完美的选举制度，否则怎么会有如此多的漏洞和瑕疵，让试图操纵选举的人，寻找各种影响最终选举结果。这也是此次大选过后，美国政府与人民亟需进行修补和矫正的地方。但美国选举的公开性和透明度，让全世界的人都可以参与讨论，发表自己的见解，对于从未体验过民主选举，不曾拥有过选票中国人来说，在某种程度上无异于一堂生动的选举公开课，这也是民主体制最具魅力的地方。
 
-[https://www.reuters.com/article/us-ant-group-ipo-suspension/ants-ipo-fiasco-set-to-clip-its-wings-and-dent-its-value-idUSKBN27K046](https://www.reuters.com/article/us-ant-group-ipo-suspension/ants-ipo-fiasco-set-to-clip-its-wings-and-dent-its-value-idUSKBN27K046)
+另外，此次美国大选与中国人无法割裂的密切关系，也是中国人如此关注的另外一个重要原因。且不说“三块硬盘”已经部分曝光的亨特拜登与中共勾兑的信息，若隐若现但已让人大跌眼镜的中南海的“建筑艺术项目“，以及尚未全面曝光的CCP病毒真相信息。但凡关心中国未来走向的中国人都很清楚，历史上从来没有一次国外选举，像2020年美国大选这样与中国人如此息息相关。但凡关注爆料革命的中国人都知道，特朗普总统成功连任将意味着什么。很多战友和媒体已就此做过详尽的分析和阐述，我就不在这里一一赘述。我只想说无数已经开智的，善良正直的中国人在追随郭文贵先生，追随爆料革命三年历程，已经站在了影响中国命运甚至世界命运发展的最前沿，且正在发挥着不可估量的历史作用。
 
-### **大选特集**
+由于我们的字典中不曾出现民主自由，我们才会如此关注美国大选，由于我们的字典中不曾出现法治公平，我们才会如此渴求获得真正属于我们自己的选举。我们已经厌倦了被代表，已经厌倦了主席台上的表演，已经厌倦了黑箱政治，让这一切尽早走入历史垃圾堆，热切期待属于新中国联邦和新中国人的真正民主选举。
 
-1，民主党亿万富翁迈克尔·布隆伯格（Michael Bloomberg）捐助超过1亿美元，以帮助民主党总统候选人乔·拜登在佛罗里达州，俄亥俄州和德克萨斯州获胜，尽管他偏爱的候选人将这三个州全部输给了川普总统。
-
-[https://www.breitbart.com/2020-election/2020/11/04/michael-bloomberg-blew-100-million-to-help-joe-biden-win-florida/](https://www.breitbart.com/2020-election/2020/11/04/michael-bloomberg-blew-100-million-to-help-joe-biden-win-florida/)
-
-2，今天，针对川普总统以及众多保守派记者和评论员的账户， 推特进行了又一次审查闪电战。Twitter在竞选期间对特朗普和特朗普竞选活动进行了65次审查，却对拜登账户保持不变，几个小时内审查了川普总统发表的三条推文。
-
-[https://www.breitbart.com/tech/2020/11/04/twitter-censors-trump-conservative-journalists-as-election-disputes-continue/](https://www.breitbart.com/tech/2020/11/04/twitter-censors-trump-conservative-journalists-as-election-disputes-continue/)
-
-3，川普竟选团包括前纽约市长朱利安尼先生，对已经对拜登选举造假提出诉讼。朱利安尼说，费城以选民欺诈，死人投票以及从新泽西州卡姆登赶来的宾客在宾夕法尼亚州投票而闻名，邮寄选票体现了民主党人所未有的选民欺诈水平。朱利安尼还提到了凌晨4:00在威斯康星州以及亚利桑那州，内华达州和密歇根州突然出现的120,000场投票。他说一场可能的全国性诉讼。
-
-[https://www.breitbart.com/politics/2020/11/04/rudy-giuliani-launches-trump-campaign-claim-of-democrat-voting-fraud-in-philadelphia/](https://www.breitbart.com/politics/2020/11/04/rudy-giuliani-launches-trump-campaign-claim-of-democrat-voting-fraud-in-philadelphia/)
-
-#### **By：【秘翻组·金融法律组】**
-
-0
+2+

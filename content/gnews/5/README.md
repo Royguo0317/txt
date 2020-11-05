@@ -1,15 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆料革命终极之战系列十一：拜登等卖美贼照抄中共作业，阻止底特律人民监督投票过程公开造假
-` GM101` [轉載自GNews](https://gnews.org/zh-hans/529060/)
+## 【热点播报】突发：大选幽灵又添一城！川普竞选团队将要求威斯康星州立刻重新计票！
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/528740/)
 
-美东时间11月4号，美国总统大选经过一番激烈角逐，川普总统以压倒性优势获胜。在此背景下，拜登等卖美贼采用了一系列造假手段企图阻止川普总统连任，以掩盖其罪行并继续向中共出卖美国国家利益，奴役美国及世界人民。
+**作者：纽约香草山写作组 正道主义联盟**
 
-继拜登密歇根州投票造假被抓现行后，底特律再曝拜登丑闻。拜登及其背后势力长期与中共勾兑后，继承了中共造假思维和模式，居然在美国人民眼皮底下造假，底特律为民主党执政城市，该市警察把守住投票入口阻止监督员进入，并派出工作人员将投票区的透明玻璃隔断外围增加了不透明类似泡沫的遮挡物，以阻止美国选民监督。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04165600/logo-1.jpg)
 
-底特律市的行为让世人震惊，其阻止公民监督的行为严重破坏了美国民主法治等立国之本。纽约王者朱利安尼及其团队已完成选票造假证据收集，启动了司法程序以维护美国公民权利。卖美贼咎由自取，其把美国人民当猪狗的行为会进一步激怒民意，恐难以善终。
 
-爆料革命作为正义力量将与美国镇国之力一并排干沼泽后清算中共，中共在劫难逃，当习总加速师破坏帮规的那天起就注定了中共的灭亡，因为爆料革命的存在和习本人的“努力”让这一天提前到来而已。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04200903/Picture1-7.png)
+川普竞选经理称，有报告显示多个威斯康星州的县存在违规问题，让人不得不怀疑当地的计票结果是否合法，鉴于川普和拜登的选情截止至今在当地非常接近，只有0.6%，川普有权要求当地重新计票并立刻处理！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04200911/Picture2-5.png)
+而诡异的是，威斯康星州此前凌晨两点左右已经开出79%选票数据时，川普总统还是遥遥领先！多出拜登十几万张票！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04200914/Picture3-3.png)
+**审核：悟空**
 
-0
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04165600/logo-1.jpg)
+1+

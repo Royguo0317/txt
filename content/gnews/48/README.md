@@ -1,25 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国职业学校 以 “毕业实习为名” 学校与企业联手 强制剥削学生
-` shangshang` [轉載自GNews](https://gnews.org/zh-hans/528817/)
+## 11/4 财经快讯: 大麻和赌球合法,美国大选悬而未决,习总亚洲自立山头
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/529644/)
 
-作者：小妍说
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05044836/Picture4-2.png)图片来源：[https://image.cnbcfm.com/](https://image.cnbcfm.com/api/v1/image/105536998-1540826210277img_0345.jpg?v=1540826343&amp;w=630&amp;h=354)
+### **财经快讯**
 
-16岁的李致材坠楼了，李致材是山东省沂水县职业学校电气工程系2019级学生。2019年，李致材没考上高中，报读沂水县职业学校电气技术应用专业，5年学制，前3年在本校学习，后2年转入对接高职院校，毕业后发专科毕业证书。2020年6月29日，在学校安排下，他和同学前往江苏省昆山市的恒源精密机械制造有限公司实习。实习期内，16岁的李致材每天主要是在车间里加工汽车零件。他日均工作8小时以上，要在白班和夜班之间切换，周末也常常加班。他曾跟父母倾诉“太累了”，并两次想回家。令父母懊悔的是，他们一直鼓励孩子坚持，直到悲剧发生。据李致材母亲回忆，9月30日中午12点多，李致材还曾跟姐姐打电话，称“不干了”，想回家。当天中午1点33分，李刚给儿子发了一条很长的微信，鼓励儿子继续坚持，称他是全家人的骄傲。紧接着，他又宽慰儿子，“遇到什么委屈跟爸妈说清楚，爸爸不会怪你。”25分钟后，李致材坠楼。夫妻两人最后在殡仪馆里看到孩子的遗体。家人后来从李致材的手机里发现，他上网搜索过第二天回家的车票信息。这对夫妇怀疑，儿子在实习期间“受了委屈”。他们至今不知道，儿子坠楼那天经历了什么？最后李致材的母亲说：李致材坠楼后，学校与他们签订了一份协议，赔偿了他们数十万元，告知他们，若将此事传出，将承担法律责任。　并且学校老师还说：学校已跟家长协商好，“家长非常满意”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04205432/902C6A16-5DF8-48A1-9DC6-C9DAED492255.png)
-一条鲜活的年轻生命就这样没了，真是可惜，最奇葩的是最后的结果学校老师却说“家长非常满意”。家长的满意在哪里呢？一对中年丧子的夫妻，失去了养老送终的儿子，怎么可能非常满意？孩子坠楼后，还和其母亲说是孩子自己闹情绪，结果最后父母连孩子的最后一面都没看到，我想知道，孩子真的是坠亡吗？真实的死因到底是什么呢？而且人死后，赔偿是理所当然。可是为什么要签订协议，不允许家人把事情说出去，否则就要承担法律责任。如果不是心中有鬼，为什么这样心虚呢？李致材2019年没有考上高中，那也就是15，16岁的孩子，这么小就被安排实习，美其名曰的“实习”，其实就是学校勾结工厂搞强制剥削罢了，一天十二小时，俩班倒，一个月休息两天，成年人都未必承受的劳动强度，却让未成年的孩子承受。让学生在血汗工厂干四五个月，发一张什么用途都没有的毕业证，这就是学校把学生当个货物卖给工厂，学校按人头收钱，工厂使用远低于市场价的劳动力，学生干着普工的活拿着比普工低得多的工资。如果不是出了人命，这个学校的这类违规实习，可能还是无法被曝光。像这种情况，背后是否隐藏着一条利益链？
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04205445/15F8CE09-3416-47EE-ADAC-E69DBE381834.png)
-在中共国，类似事件早已成为常态，学校为了就业率和一些“吸血鬼”企业合作，出了事就无下限的踢皮球，从来都没有学校和老师认真去听听学生内心的想法！一遇到问题只有“压迫”，说一些“你到时候毕不了业”、“都是成年人了要对自己的行为负责”、“签了实习协议的违约要赔钱的”“你有什么想法跟学校说不要动不动就找教育局和社会媒体”，现如今中共国的教育早已变得越来越“追名逐利”，要就业率，要省排名第一，要应付好检查，要送钱送礼考试、升学包无忧，教书批改作业也不再是老师的职责，而学生却成了一批又一批的“包身工”！所有的欲望堆积成扼杀学生的“刽子手”！
+1，尽管总统大选的结果并不明确，但美国股市周三仍在上涨。道琼斯工业平均指数上涨367.63点或1.3％，至27,847.66。 蓝筹基准在盘中高点飙升了800多点，随后收盘时有所回落。 标准普尔500指数上涨2.2％，至743.42点，至3,443.44点，此前该股一度上涨了3.5％。 纳斯达克综合指数上涨了3.9％，或430.21点，至11,590.78点。
 
-GNEWS之前文章：
+[https://www.cnbc.com/2020/11/03/stock-futures-open-flat-after-tuesdays-rally-as-traders-await-us-election-results.html](https://www.cnbc.com/2020/11/03/stock-futures-open-flat-after-tuesdays-rally-as-traders-await-us-election-results.html)
 
-4 岁女童被邻居砍成重伤  [https://gnews.org/zh-hans/521204/](https://gnews.org/zh-hans/521204/)
+2，CNBC的吉姆·克莱默（Jim Cramer）在谈到大麻，体育博彩和乘车共享公司时说： “对于这三个具有市场影响力的行业来说，这是一个美好的夜晚。” 大麻在美国多州已经合法化。 [https://www.cnbc.com/2020/11/04/cramer-big-wins-for-cannabis-sports-betting-and-gig-companies.html](https://www.cnbc.com/2020/11/04/cramer-big-wins-for-cannabis-sports-betting-and-gig-companies.html)
 
-中山三院一男子持刀杀医 [https://gnews.org/zh-hans/520829/](https://gnews.org/zh-hans/520829/)
+3，在美国总统选举投票结束大约12小时内，中共国家主席习近平在第三届中国国际进口博览会开幕式上用中文通过视频讲话说，该国将加快与欧盟，日本和韩国的贸易谈判。但他并没有提及美国。
 
-发黑腐烂再次暴露中共国食品安全隐患 [https://gnews.org/zh-hans/513758/](https://gnews.org/zh-hans/513758/)
+[https://www.cnbc.com/2020/11/04/chinas-xi-says-country-will-speed-up-trade-talks-with-eu-japan-rok.html](https://www.cnbc.com/2020/11/04/chinas-xi-says-country-will-speed-up-trade-talks-with-eu-japan-rok.html)
 
-新闻链接：[http://edu.people.com.cn/n1/2020/1104/c1053-31918280.html](http://edu.people.com.cn/n1/2020/1104/c1053-31918280.html)
+4，中共意外地取消了蚂蚁集团（Ant Group）创纪录的370亿美元的上市活动。蚂蚁金服的联合子公司华北和捷北也将不再被允许出售理财产品。分析人士称这个举措意味着证监会正试图缩减马云金融帝国规模， 这和上个月马云和证监会冲突有关。
 
-1+
+[https://www.reuters.com/article/us-ant-group-ipo-suspension/ants-ipo-fiasco-set-to-clip-its-wings-and-dent-its-value-idUSKBN27K046](https://www.reuters.com/article/us-ant-group-ipo-suspension/ants-ipo-fiasco-set-to-clip-its-wings-and-dent-its-value-idUSKBN27K046)
+
+### **大选特集**
+
+1，民主党亿万富翁迈克尔·布隆伯格（Michael Bloomberg）捐助超过1亿美元，以帮助民主党总统候选人乔·拜登在佛罗里达州，俄亥俄州和德克萨斯州获胜，尽管他偏爱的候选人将这三个州全部输给了川普总统。
+
+[https://www.breitbart.com/2020-election/2020/11/04/michael-bloomberg-blew-100-million-to-help-joe-biden-win-florida/](https://www.breitbart.com/2020-election/2020/11/04/michael-bloomberg-blew-100-million-to-help-joe-biden-win-florida/)
+
+2，今天，针对川普总统以及众多保守派记者和评论员的账户， 推特进行了又一次审查闪电战。Twitter在竞选期间对特朗普和特朗普竞选活动进行了65次审查，却对拜登账户保持不变，几个小时内审查了川普总统发表的三条推文。
+
+[https://www.breitbart.com/tech/2020/11/04/twitter-censors-trump-conservative-journalists-as-election-disputes-continue/](https://www.breitbart.com/tech/2020/11/04/twitter-censors-trump-conservative-journalists-as-election-disputes-continue/)
+
+3，川普竟选团包括前纽约市长朱利安尼先生，对已经对拜登选举造假提出诉讼。朱利安尼说，费城以选民欺诈，死人投票以及从新泽西州卡姆登赶来的宾客在宾夕法尼亚州投票而闻名，邮寄选票体现了民主党人所未有的选民欺诈水平。朱利安尼还提到了凌晨4:00在威斯康星州以及亚利桑那州，内华达州和密歇根州突然出现的120,000场投票。他说一场可能的全国性诉讼。
+
+[https://www.breitbart.com/politics/2020/11/04/rudy-giuliani-launches-trump-campaign-claim-of-democrat-voting-fraud-in-philadelphia/](https://www.breitbart.com/politics/2020/11/04/rudy-giuliani-launches-trump-campaign-claim-of-democrat-voting-fraud-in-philadelphia/)
+
+#### **By：【秘翻组·金融法律组】**
+
+0

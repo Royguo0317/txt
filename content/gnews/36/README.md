@@ -1,43 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## An Open Letter to the American People
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/529033/)
+## 国内时评 | 墙内上演现实版《1984》：“积分制”试点推进社区“监狱化”管理
+` 公民之聲` [轉載自GNews](https://gnews.org/zh-hans/529957/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04165600/logo-1.jpg)
+内新闻/素材：一碗兰州（文远） 校对：老白
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05083548/111111111.jpg)
 
+南方周末 2020年10月24日 报道《基层治理“积分制”试验：举报违法犯罪加分，越级上访扣分》，文中写道：“2020年以来，一张张印有积分管理清单的表格，派发到浙江桐乡老百姓手中。表格列举了老百姓日常生活中可能遇到的各种事项，有‘加分’和‘扣分’两部分，加分项既包括举报违法犯罪等‘突出表现’，也包括积极参与垃圾分类等日常琐事。扣分项实际上就是告诉老百姓‘哪些情况不能出现’，如邻里关系不和谐、违反计划生育政策、无理上访、越级上访等。每季度结束，村里会公示一次排名，得分超过100分的村民可以兑换卡券、服务，或享受相关优惠政策。在桐乡市委书记盛勇军看来，积分管理是在‘三治’融合基础上的又一次尝试。2013年，桐乡开始探索自治、法治、德治‘三治合一’的基层治理模式，2017年，‘三治融合’被正式写进十九大报告。”
 
-Author: Warrior     Contributors: Brain Sanitizer;  Magnum 44;  Quentin G
+说到桐乡市大家可能不熟悉，要说它是隶属于浙江省嘉兴市的县级市，很多人就有概念了，是的，祸根中共的诞生地就在嘉兴南湖，那条最著名的贼船上召开了共党一大会议。
 
-I am writing as a Chinese student living and studying in the United States. I, along with millions of other Chinese in the US and around the world, have faith in the Whistleblower Movement led by Mr. Miles Guo and I am ready to take down the Chinese Communist Party at all costs.
+文中提到的“三治融合”被称为是新时代的“枫桥经验”，而所谓“枫桥经验”，背景是：在毛泽东极左政策“三面红旗”（总路线、大跃进、人民公社）仅三年时间就给国民经济造成严重伤害、饿殍遍野、易子相食的情况下，毛威信大跌，“七千人大会”（1962年在北京召开的中共中央扩大工作会议）后，毛退居二线，中央日常工作由刘少奇、邓小平等人主持，全国重心转移至经济建设。权威受到挑战的毛开始重提阶级斗争，绕开官方体系，四处视察、批示，直接对各级地方传达自己的思想，仰仗个人权威对各地方“恩威并施”，不遗余力地推动全国各地开展社会主义教育运动，明面上“反修防修、防止和平演变”，实则挑起阶级斗争以打击政治对手从而重夺权力，这场争斗最终发展成为文化大革命。
 
-2020 has been a rough year for every one of us. We have been through a lot due to the SARS-CoV-2 which has claimed more than 200,000 lives in America. We can no longer live our daily life. With no social life, no fun with friends, and no traveling ahead of us, I am sure that we all would like to ask: Why?
+“枫桥经验”便是毛在文革前推进社教运动过程中，从众多潜在典型中脱颖而出的地方斗争经验。“枫桥经验”提出的“依靠群众、少捕人、矛盾不上交”被极左批评是“纵容包庇敌人”，但实际上这种“问题原地解决”的做法连司法程序过场都省去了，直接施行所谓的“群众专政”，操纵群众暴力，挑起群众互斗。
 
-There is no doubt that our lives have been deeply affected by SARS-CoV-2. On the other hand, the chaos in many cities before, during, and after the American presidential election is no coincidence. Let’s explore how we ended up with SARS-CoV-2 and why violence is increasing amid the election in the year 2020.
+文革后，由于“摘帽”、“平反”的新政治形势需要，所谓“相对不那么左”的、“为阶级敌人留有余地”的“枫桥经验”有了新的舞台。后在江泽民“稳定压倒一切”的保政权安危为第一要务的方针指导下，“依靠群众斗群众”、“把矛盾化解在基层”、“把隐患消除于萌芽”的“枫桥经验”再一次得到发展和推广，成为“改革开放”、“全面建设小康社会”（实质是共产党权贵资本主义勾结外国资本出卖国家人民利益盗国殃民）过程中的防民、控民、驭民的手段。
 
-Regarding SARS-CoV-2, more than 9 million people in America have been infected with the virus, and more than 233,000 people have died from it. The rest of us have been deprived of our daily routines. SARS-CoV-2 is still spreading among people and the second wave is on the way! Our way of life has been forever changed. For the past 10 months, we have been living uncomfortably by doing all of the following things that we never had to do before: wearing masks all the time, keeping social distancing wherever we go, and staying at home as required by the government officials. Since the beginning of the pandemic, we have found ourselves increasingly wishing for the simplest things like chatting with friends at a big party, visiting family members like our parents or grandparents, walking down the street in a metropolitan city such as New York, lying on the beach with the ocean in front of us, and breathing fresh air in a park without our face being covered. As a result, drug abuse, domestic violence, depression, and suicides are on the rise, all because of SARS-CoV-2! We have been so buried in problems cause by the virus that we have forgotten to pursue the truth about the origin of this virus, i.e., whether it came from nature or was manufactured in a lab.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04224952/11052.png)
-Dr. Li-Meng Yan, a heroic Chinese scientist who escaped to the US blew the whistle on the origin of [SARS-CoV-2](https://zenodo.org/record/4073131#.X6MS_y9h2CU) in an article posted on Zenodo. Soon after, she posted another article, demonstrating that the CCP (Chinese Communist Party) [manufactured](https://zenodo.org/record/4073131#.X6MUty9h2CV) the virus in the CCP military lab and then unleashed it to the world population. The CCP has been lying about the origin of this virus. Unfortunately, the mainstream media and the scientific field have been suppressing Dr. Yan and her whistleblowing efforts to let the truth out. As a result, the American people do not seem to be waking up from this nightmare.
+所谓“三治融合”，打着“乡村振兴”、“基层群众自治”、“宣扬正能量”、“化解矛盾”、“加强治安”等等幌子，实则加强共产党伪政权对社区基层的控制，把“维稳”触角伸向每家每户，精细化愚民洗脑，剔除一切质疑、反对共产党恶行的观点看法。通过“网格化管理”，从最基层的社区层面开始，防微杜渐，消灭一切反对声音。由此可见，“三治融合”也好，“枫桥经验”也罢，都是共产党伪政权在维护其腐败统治当中总结形成的奴役老百姓、防止百姓反抗的管理体系。
 
-To the many Chinese who have been following the Whistleblower Movement, the SARS-COVID-2 is the CCP virus and a bioweapon. The CCP has launched unrestricted warfare against America and the rest of Western civilization. It has turned this country upset down. What many American people failed to see is that the CCP is behind all the bad things that have been happening in this country this year: the violence on the streets, the BLM and Antifa protests, and election frauds.
+在桐乡开始的“积分制”试验，对包括居民日常生活在内的行为进行监狱般的奖惩式管理。家庭和睦、赡养老幼、垃圾分类、安全生产、文明养犬、房屋出租、无偿献血、违法举报、遵守交通法规、违章搭建、信用卡逾期、非法上访等统统在列，真应了那句“共产党上管天下管地中间管生殖器”。虽然南方周末在文章中称“不到100分的目前无惩罚措施”，但积分已经与金融惠民、个人诚信、先进评比、子女入学等挂钩，形成了一张“积分网”，积分少者会在生活工作中处处受限，基本权利因积分少而被剥夺，遭到实实在在的“惩罚”。
 
-Yes, the CCP has laid its hand on the presidential election. It shipped [fake IDs](https://www.bettergov.org/news/fact-check-no-link-between-fake-ids-seized-at-ohare-and-voter-fraud/) to cities like Chicago so that illegal immigrants could vote. It printed election ballots from China, according to Lu De in his most recent webcast, which is being interpreted into English. Presidential candidate Joe Biden and his family members have been so heavily involved in the shared interests with CCP owned companies, as released from his son Hunter’s laptop, a.k.a. “the laptop from hell” as President Trump calls it, that it became impossible for Biden to defend American values if he were elected.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04225019/11051-1.png)
-America: We need President Donald J. Trump to take down the CCP. We witnessed a US President who had made his promises to the American people and kept his words for the past four years. President Trump defends American core values, the American spirit, and will MAKE AMERICA GREAT AGAIN! The United States is now at the crossroad, and the path it takes will determine if the human civilization will survive, since the fight between the Western civilization and the Chinese Communist Party is a fight between justice and Satan’s spirit, i.e., the specter of the communism [haunt](https://www.marxists.org/archive/marx/works/1848/communist-manifesto/ch01.htm)ing Europe about 170 years ago is now haunting the God-blessed country of United States of America.
+共产党伪政权对人民的恐惧和防范几乎到了无以复加的地步，只要它存在一天，就不断地想方设法奴役人民，用各种办法去物化每个人，控制人的思想和行为，让人民只做统治者允许的事情，成为一颗毫无怨言的、自认幸福的螺丝钉，心甘情愿服务于“体制”。
 
-Without any doubt, as shown from the documents released from Hunter’s hard drive, Joe Biden has become a CCP agent in the United States and his gang of criminals has sold out the United States to the CCP. The swamp which President Trump found so hard to drain is directly related to the Chinese Communist Party. For God-loving American citizens, draining the swamp should start with Joe Biden. With God’s blessing, justice will prevail. To MAKE AMERICA GREAT AGAIN AGAIN, Donald J. Trump is the chosen one!
+唯有灭掉共产党，让人民享有真正的言论自由，推行正道主义与法治民主，每个人才能活得像个人而不是如同猪狗，只有每个个人有了安全、尊严与幸福的生活，民族才会有未来，国家才能真正的繁荣富强！
 
-Reviewer: Ivy
+[新闻来源：基层治理“积分制”试验：举报违法犯罪加分，越级上访扣分](http://www.infzm.com/contents/194252)
 
-**Reference — **Lude Press:
-
-[https://www.youtube.com/c/Ludepress](https://www.youtube.com/c/Ludepress)
-
-11/4/2020
-
-[Lu-An-Mo Talk： All the Possibilities May Happen to The Election](https://www.youtube.com/watch?v=IunhkbzB4Yg)
-
-# 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04165600/logo-1.jpg)
-0
+2+

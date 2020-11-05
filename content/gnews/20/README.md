@@ -1,15 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11月4日费城新闻发布会：莱万多夫斯基宣布宾州为川普获胜州
-` GM31` [轉載自GNews](https://gnews.org/zh-hans/529377/)
+## 川普总统2020年选举之夜演讲
+` GM31` [轉載自GNews](https://gnews.org/zh-hans/530410/)
 
-[科里·莱万多夫斯基](https://en.wikipedia.org/wiki/Corey_Lewandowski)在费城说道：“邦迪检察长和我将一直在这里，直到最后一张选票被统计，我们已经公开地宣布了宾夕法尼亚州为川普获胜州。”
+唐纳德·川普总统和副总统迈克·彭斯在2020年总统大选之夜发表演讲。川普总统谈到了他在关键州的领先选情，并表示：“坦率地说，我们确实赢得了这次选举。”可是并不能马上得到选举的最后结果，因为在那些暂时领先的关键州，他们突然停止了计票。对此川普响应说“这是对美国公众的欺诈。我们国家因此蒙羞。”为“确保投票的公正性”，他将诉诸法律，提请“美国最高法院裁决”。
 
-出处：[https://www.youtube.com/watch?v=mFkNGyiu2Co](https://www.youtube.com/watch?v=mFkNGyiu2Co)
+视频出处: [https://youtu.be/W1ZFAP85aec](https://youtu.be/W1ZFAP85aec)
 
-*翻译: 【Rock小哥】 校对: 【Key】 字幕: 【Pamila（文明）】 编辑：【GM31】*
+*听写 & 翻译：【一花一世界】校对：【石头】字幕：【Robin】编辑：【GM31】*
 
-*战友之家玫瑰园小队制作*
+*战友之家玫瑰园小队出品*
 
-1+
+2+

@@ -1,25 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】突发：大选幽灵又添一城！川普竞选团队将要求威斯康星州立刻重新计票！
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/528740/)
+## 11月4日费城反选举作弊新闻发布会：佛州前检察长邦迪女士发言
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/530755/)
 
-**作者：纽约香草山写作组 正道主义联盟**
+视频来源：[https://www.youtube.com/watch?v=yJk42SbwET0&feature=emb\_logo](https://www.youtube.com/watch?v=yJk42SbwET0&amp;feature=emb_logo)
+佛罗里达州前检察长帕梅拉·乔·邦迪女士（Pamela Jo Bondi）在发言中揭露费城计票点有一位市政专员的助手，叫塞斯·布魯斯坦（Seth Bluestein），不具备执法的资格却恐吓和阻止监票人员靠近，这本身就属违法行为。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04165600/logo-1.jpg)
+这场发布会是2020年11月4日朱利安尼先生，在宾夕法尼亚州的费城召集的，关于选举作弊的重大新闻发布会。 会上朱利安尼先生和其他四位发言人就民主党在这次美国总统大选过程中的种种造假舞弊行为给予了痛斥。指出民主党为了赢得大选，不惜在宾夕法尼亚州进行选票造假以赢得大选， 他们阻止共和党观察员检票、 丢弃合法选票、在投票点做非法宣传等， 除了该州以外， 还有维斯康新州、 亚利桑那州、内华达州和密西根州。朱利安尼先生说已经有视频等实锤证据， 会起诉民主党的欺诈行为，真正揭露民主党的腐败，捍卫美国的自由选举制度。
 
+以下是在新闻发布会上发言的与会者名单：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04200903/Picture1-7.png)
-川普竞选经理称，有报告显示多个威斯康星州的县存在违规问题，让人不得不怀疑当地的计票结果是否合法，鉴于川普和拜登的选情截止至今在当地非常接近，只有0.6%，川普有权要求当地重新计票并立刻处理！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04200911/Picture2-5.png)
-而诡异的是，威斯康星州此前凌晨两点左右已经开出79%选票数据时，川普总统还是遥遥领先！多出拜登十几万张票！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04200914/Picture3-3.png)
-**审核：悟空**
+1：埃里克·川普（Eric Frederick Trump）是美国商人，前真人秀节目主持人。他是唐纳德·川普总统的第二个儿子。
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+2：科里·R·莱万多夫斯基（Corey R. Lewandowski）是美国政治活动家、说客、政治评论员和作家。2015年1月至2016年6月，他曾担任美国一线新闻网、福克斯新闻网和CNN的政治评论员，以及唐纳德·川普2016年竞选美国总统的竞选经理。
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+3：鲁道夫·威廉·路易斯·朱利安尼（Rudy Giuliani）是美国律师、网络安全顾问和政治家，1994年至2001年担任纽约市第107任市长，因其在打击纽约黑帮和“911”事件中的杰出贡献， 被喻为“美国市长”。
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04165600/logo-1.jpg)
-1+
+4: 帕梅拉·乔·邦迪（Pamela Jo Bondi）是美国律师、游说者和政治家。她是共和党人，2011年至2019年担任佛罗里达州第37任司检察长。
+
+5: 杰里米·默瑟（Jeremy Mercer）是一位作家和记者，他的著作包括《时间在那里很柔软》和《当断头台倒下时》。他还为新英格兰大学出版社将罗伯特·巴丁特的《废止》翻译成英文。他是巴黎艺术团体 “零公里 ”的创始成员之一。
+
+相关新闻 1：[https://gnews.org/zh-hans/530277/](https://gnews.org/zh-hans/530277/)
+
+相关新闻 2： [https://gnews.org/zh-hans/529377/](https://gnews.org/zh-hans/529377/)
+
+相关新闻 3：[https://gnews.org/zh-hans/530594/](https://gnews.org/zh-hans/530594/)
+
+翻译：【流浪者】校对：【萌萌的朋克 】总结：【key】字幕：【Pamila（文明）】编辑：【Isaiah4031】
+
+战友之家玫瑰园小队出品
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01145114/GNEWS-GTV-VOG.png)
+2+
