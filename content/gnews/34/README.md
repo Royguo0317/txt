@@ -1,35 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 伟大的美国选民们，选票投给谁？
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/527957/)
+## 脸书和推特继续作恶 不肯直面乔·拜登的选举失败
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/528397/)
 
-*作者：桂花酒｜校对：宁缺｜审核：海阔天空｜Page：玄天生；*
+多伦多加喜农场 熊妈妈
 
-**上帝与你们同在！**
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04151449/%E6%AD%A3%E4%B9%89.jpg)图片来自战友创作
+脸书和推特要求不能单方面宣布自己赢得大选。脸书将美国总统候选人的声明作标记，用以提醒人们投票仍在进行中。相应的声明是由脸书管理层在其投票信息中心进行公布。
 
-亲爱的美国选民！今天你们即将改写历史。不仅是美国，还包括全世界。
+脸书在声明中表示，“我们开始在脸书和Instagram上发布提醒信息，投票仍在进行中，获胜者尚未最终确定。我们自动将带有此信息的注释附到两位候选人的账号上。
 
-你们的两位总统竞选人，川普和拜登。年龄相仿，一位确诊中共病毒，三天后奇迹般康复。一位在集会上把对手说成乔治，对，他不是瞌睡虫。
+脸书解释说，之所以推出提醒机制，是因为现任总统、共和党候选人川普过早发表有关竞选获胜的言论。
 
-川普总统儿女们都有各自的工作，家庭和睦。拜登儿子亨特毒瘾缠身，滥交乱伦。拜登说，我要像对待我的家人一样对待你们，亲爱的选民！难道你们和他一样打瞌睡？
+11月4日，川普总统发推，“我们已经大声疾呼，但他们正试图窃取选举。我们永远不会让他们这样做。投票结束后将无法投票！”此推竟被审核，提示这条推文会对选民产生误导。
 
-四年来，你们的税负少了，工作机会多了，生活改善了。但是自从中共放出病毒之后，你们面临更多威胁，工作机会少了，平静的生活毁了。想想自从中共病毒在美国传播开来，你们为什么呆在家里？为什么口罩成了必需品？为什么要保持社交距离？又为什么不能像从前那样自由自在到酒吧里休闲放松？
+11月4日，川普总统在美国2020年大选投票结束后凌晨3点左右发表讲话，宣布他赢得了大选。川普总统表示，“目前的结果。 这就是胜利。 我们赢得了那些我们没想到会赢的州。”川普总统还强调，他的主要竞争对手、民主党候选人乔·拜登将不会步履蹒跚地在摇摆州追赶上他。
 
-一个多月前，美国多个部门、官员包括媒体都有拜登的神秘邮件，对，硬盘。目前曝光的邮票证明，亨特.拜登家族乱伦，娈童虐童。亨特还到中国，到乌克兰，担任了一堆公司高管、合伙人、董事。这是个被海军部队开除的瘾君子！他的父亲说他对亨特的事情一无所知。是的，他一无所知，可为什么动辄几千万、几亿、几十亿美元的金钱源源不断进入了拜登家的腰包？是谁在那些协议合同上签的字？是谁和中共一起偷走了美国的科技？ 是谁出卖了美国的国家利益？是谁允许中共在南海岛礁军事化？是谁把偷走了美国人的工作机会？
+到11月4日美东时间下午3点前，推特标记了三次川普总统发的推“该推文包含有争议的内容，可能会误导您如何参加选举或其他公民活动”。
 
-可是为什么硬盘出现之后，全美国的新闻媒体都在沉默？除了Fox、纽约邮报、Gtv、Gnews等少数几家传媒公司勇敢地发声，为什么其他的新闻媒体都默不作声？难道他们不知道硬盘信息吗？难道他们不知道拜登是总统竞选人？还是他们害怕了？被人捂住了嘴？
 
-伟大的选民们！你们心明眼亮，你们热爱自由，你们热爱美国！
 
-伟大的选民们！该出手投出你最伟大的选票，去告诉所有美国人，谁也不能人前假装君子，而背地却偷偷卖国。谁也不能控制舆论掩盖真相。腐败的罪犯不能做美国的总统！人民需要自由，美国需要再次伟大！世界将因为你的选票改变，天佑美国！
+> Last night I was leading, often solidly, in many key States, in almost all instances Democrat run & controlled. Then, one by one, they started to magically disappear as surprise ballot dumps were counted. VERY STRANGE, and the “pollsters” got it completely & historically wrong!
+> — Donald J. Trump (@realDonaldTrump) [November 4, 2020](https://twitter.com/realDonaldTrump/status/1324004491612618752?ref_src=twsrc%5Etfw)
 
-编辑 【[喜马拉雅战鹰团](https://spark.adobe.com/page/AytinuCWiMqSn/)】-点击spark adobe版
 
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)[原文链接](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/AytinuCWiMqSn/images/e8fc6b81-69f8-4773-9d65-5cd3a50cb29a.jpg?asset_id=6563820d-3fcb-42e2-b35e-ff4a43779319&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/AytinuCWiMqSn/images/e8fc6b81-69f8-4773-9d65-5cd3a50cb29a.jpg?asset_id=6563820d-3fcb-42e2-b35e-ff4a43779319&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
-0
+> WHAT IS THIS ALL ABOUT? [https://t.co/6487pYLZnL](https://t.co/6487pYLZnL)
+> — Donald J. Trump (@realDonaldTrump) [November 4, 2020](https://twitter.com/realDonaldTrump/status/1324012341458075648?ref_src=twsrc%5Etfw)
+
+
+
+近日，爆料革命战友们通过GTV、GNEWS不断爆出乔·拜登的工具儿子亨特·拜登的性丑闻以及拜登家族与中共深度勾兑的实锤证据。通过推特、脸书等媒体向世人传播真相，遭到了推特、脸书的全力禁杀，成百万的推特账号被封。可见推特、脸书为支持乔·拜登获选，已经充分暴露与中共的深度勾结，撕下了所谓中立媒体人的虚假面皮，裸体上阵直接厮杀，全力阻止揭露拜登家族丑闻及一切对民主党他们不利的言论。
+
+现在，川普总统以压倒性的优势赢得了美国2020总统大选，虽然乔·拜登在阴暗处垂死挣扎，企图用卑劣的手段反败，但是阴沟里的诡计最终将化为云烟，正义力量已全面显现。脸书和推特还在做虚幻的梦，为了维持已有的名誉地位及利益，彻底摒弃了所有做为人应该有的良知，已经不配称呼为有职业道德的媒体。他们不肯直面乔·拜登的失败，乔·拜登的失败将引发他们自己丑行的败露，但假的就是假的，在真相面前他们很快就将尝到彻底失败的滋味。
+
+参考链接：[https://www.facebook.com/votinginfocenter](https://www.facebook.com/votinginfocenter)
+
+2+

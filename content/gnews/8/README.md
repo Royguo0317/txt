@@ -1,35 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】“幽灵”选票现形！司法观察宣布：美国29个州的353个县的选民登记率超过100%，180万“额外”违法注册选民！其中包含密歇根州！
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/528755/)
+## An Open Letter to the American People
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/529033/)
 
-作者：香草山写作组 正道主义联盟
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04201051/7-6.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04165600/logo-1.jpg)
 
 
-摘要：“司法观察”今天宣布：研究显示在29个州的353个县，有180万多余选民，或者说‘幽灵’选民，”司法观察主席汤姆·菲顿说。“这些数据突出了盲目向选民登记名单邮寄选票和选票申请的鲁莽行为。肮脏的投票名册意味着肮脏的选举。”
 
-(华盛顿特区)——司法观察今天宣布，2020年9月的一项研究显示，美国353个县的注册选民比符合投票年龄的公民多180万。换句话说，这些县的登记率超过了合格选民的100%。研究发现，有8个州的全州注册率超过100%:阿拉斯加、科罗拉多、缅因州、马里兰州、密歇根州、新泽西州、罗德岛州和佛蒙特州。
+Author: Warrior     Contributors: Brain Sanitizer;  Magnum 44;  Quentin G
 
-2020年9月的研究收集了各州发布在网上的最新登记数据。然后，这一数据与人口普查局最近五年的人口估计数据进行了对比，后者是由美国社区调查(ACS)从2014年到2018年收集的。ACS的调查每个月发送到350万个地址，它的五年估计被认为是十年一次的人口普查之外最可靠的估计。
+I am writing as a Chinese student living and studying in the United States. I, along with millions of other Chinese in the US and around the world, have faith in the Whistleblower Movement led by Mr. Miles Guo and I am ready to take down the Chinese Communist Party at all costs.
 
-司法观察的最新研究仅限于37个定期更新注册数据的州。某些州的选民登记名单甚至可能比报道的还要多，因为他们可能已经把“不活跃的选民”从数据中排除了。不活跃的选民，他们可能已经搬到其他地方，但仍然是注册选民，他们可以在选举日出现并投票和/或要求邮寄选票。
+2020 has been a rough year for every one of us. We have been through a lot due to the SARS-CoV-2 which has claimed more than 200,000 lives in America. We can no longer live our daily life. With no social life, no fun with friends, and no traveling ahead of us, I am sure that we all would like to ask: Why?
 
-司法观察依靠其选民登记研究来警告各州，它们没有遵守1993年《全国选民登记法案》的规定，该法案要求各州作出合理努力，清理其选民名册。司法观察可以并且已经提起诉讼来强制执行联邦法律。
+There is no doubt that our lives have been deeply affected by SARS-CoV-2. On the other hand, the chaos in many cities before, during, and after the American presidential election is no coincidence. Let’s explore how we ended up with SARS-CoV-2 and why violence is increasing amid the election in the year 2020.
 
-本月早些时候，司法观察起诉科罗拉多州未能遵守《全国选民登记法案》。在司法观察的新研究中，42个科罗拉多州的县——即该州三分之二的县——登记率超过了100%。国家的具体数据证实了这一普遍情况。正如诉状所解释的那样，将ACS的五年调查期间与科罗拉多州自己在同一月份的登记数字进行逐月比较，可以发现科罗拉多州大部分县的登记率都超过了100%。今年早些时候，司法观察起诉了宾夕法尼亚州和北卡罗来纳州，因为他们没有按照联邦法律的要求，做出合理的努力，将没有资格的选民从名册上除名。这些诉讼声称，这两个州的选民登记名册上有近200万个不活跃的名字。司法观察还起诉伊利诺伊州拒绝披露选民名册数据，违反了联邦法律。
+Regarding SARS-CoV-2, more than 9 million people in America have been infected with the virus, and more than 233,000 people have died from it. The rest of us have been deprived of our daily routines. SARS-CoV-2 is still spreading among people and the second wave is on the way! Our way of life has been forever changed. For the past 10 months, we have been living uncomfortably by doing all of the following things that we never had to do before: wearing masks all the time, keeping social distancing wherever we go, and staying at home as required by the government officials. Since the beginning of the pandemic, we have found ourselves increasingly wishing for the simplest things like chatting with friends at a big party, visiting family members like our parents or grandparents, walking down the street in a metropolitan city such as New York, lying on the beach with the ocean in front of us, and breathing fresh air in a park without our face being covered. As a result, drug abuse, domestic violence, depression, and suicides are on the rise, all because of SARS-CoV-2! We have been so buried in problems cause by the virus that we have forgotten to pursue the truth about the origin of this virus, i.e., whether it came from nature or was manufactured in a lab.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04224952/11052.png)
+Dr. Li-Meng Yan, a heroic Chinese scientist who escaped to the US blew the whistle on the origin of [SARS-CoV-2](https://zenodo.org/record/4073131#.X6MS_y9h2CU) in an article posted on Zenodo. Soon after, she posted another article, demonstrating that the CCP (Chinese Communist Party) [manufactured](https://zenodo.org/record/4073131#.X6MUty9h2CV) the virus in the CCP military lab and then unleashed it to the world population. The CCP has been lying about the origin of this virus. Unfortunately, the mainstream media and the scientific field have been suppressing Dr. Yan and her whistleblowing efforts to let the truth out. As a result, the American people do not seem to be waking up from this nightmare.
 
-“新的研究显示，在29个州的353个县，有180万多余选民，或者说‘幽灵’选民，”司法观察主席汤姆·菲顿说。“这些数据突出了盲目向选民登记名单邮寄选票和选票申请的鲁莽行为。肮脏的投票名册意味着肮脏的选举。”
+To the many Chinese who have been following the Whistleblower Movement, the SARS-COVID-2 is the CCP virus and a bioweapon. The CCP has launched unrestricted warfare against America and the rest of Western civilization. It has turned this country upset down. What many American people failed to see is that the CCP is behind all the bad things that have been happening in this country this year: the violence on the streets, the BLM and Antifa protests, and election frauds.
 
-司法观察的研究更新了去年一项类似研究的结果。2019年8月，司法观察分析了各州向联邦选举援助委员会(EAC)提交的登记数据，以回应每两年进行的一项关于各州如何维持选民名册的调查。该注册数据与ACS 2013年至2017年的最新五年调查进行了对比。研究显示，美国有378个县的注册率超过100%。
+Yes, the CCP has laid its hand on the presidential election. It shipped [fake IDs](https://www.bettergov.org/news/fact-check-no-link-between-fake-ids-seized-at-ohare-and-voter-fraud/) to cities like Chicago so that illegal immigrants could vote. It printed election ballots from China, according to Lu De in his most recent webcast, which is being interpreted into English. Presidential candidate Joe Biden and his family members have been so heavily involved in the shared interests with CCP owned companies, as released from his son Hunter’s laptop, a.k.a. “the laptop from hell” as President Trump calls it, that it became impossible for Biden to defend American values if he were elected.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04225019/11051-1.png)
+America: We need President Donald J. Trump to take down the CCP. We witnessed a US President who had made his promises to the American people and kept his words for the past four years. President Trump defends American core values, the American spirit, and will MAKE AMERICA GREAT AGAIN! The United States is now at the crossroad, and the path it takes will determine if the human civilization will survive, since the fight between the Western civilization and the Chinese Communist Party is a fight between justice and Satan’s spirit, i.e., the specter of the communism [haunt](https://www.marxists.org/archive/marx/works/1848/communist-manifesto/ch01.htm)ing Europe about 170 years ago is now haunting the God-blessed country of United States of America.
 
-司法观察是一个国家领导人的廉洁选举的保障！
+Without any doubt, as shown from the documents released from Hunter’s hard drive, Joe Biden has become a CCP agent in the United States and his gang of criminals has sold out the United States to the CCP. The swamp which President Trump found so hard to drain is directly related to the Chinese Communist Party. For God-loving American citizens, draining the swamp should start with Joe Biden. With God’s blessing, justice will prevail. To MAKE AMERICA GREAT AGAIN AGAIN, Donald J. Trump is the chosen one!
 
-2018年，最高法院支持一项选民名册清理计划，该计划是司法观察与俄亥俄州达成的一项联邦诉讼和解协议的结果。加州与司法观察组织就NVRA的诉讼达成和解，并于去年开始从洛杉矶县的选民名册上删除160万个不活跃的名字。肯塔基州也开始清理成千上万的旧登记去年进入同意法令结束另一个司法观察诉讼。
+Reviewer: Ivy
 
-2020年9月，司法观察起诉伊利诺伊州拒绝披露选民名册数据，违反了联邦法律。
+**Reference — **Lude Press:
 
-据了解，司法观察的律师罗伯特·波普尔是司法观察的廉洁选举倡议的负责人。而最新消息是川普团队已经根据以上“幽灵”选票违法事件要求在密西根州进行司法程序诉讼！相信来自地狱的幽灵终究无法逃过司法的审判！
+[https://www.youtube.com/c/Ludepress](https://www.youtube.com/c/Ludepress)
 
+11/4/2020
+
+[Lu-An-Mo Talk： All the Possibilities May Happen to The Election](https://www.youtube.com/watch?v=IunhkbzB4Yg)
+
+# 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04165600/logo-1.jpg)
 0
