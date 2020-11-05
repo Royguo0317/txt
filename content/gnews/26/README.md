@@ -1,43 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## An Open Letter to the American People
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/529033/)
+## 川普总统大选获胜中共你做好准备了吗？
+` GM08` [轉載自GNews](https://gnews.org/zh-hans/529158/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04165600/logo-1.jpg)
+作者：文茗
 
+昨日经历了激动人心的大选日之后，美东时间4日早间9时左右，原本川普总统大票数领先的威斯康星州和密歇根州先后“由红翻蓝”，败灯的得票数“反超”川普总统造假的痕迹以及大量选票造假舞弊等被揭露出来。在美国这样的民主国家公然造假已经决定了败灯已经彻底失败了。我相信美国的法律会给出这个世界一个公平合理的答案。可以肯定川普总统已经胜选，成功连任下一届美国总统，请大家记住这个伟大的时刻。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04235325/20201105071953403.png)
+川普总统连任后，美国必然会回归传统保守主义的道路之上，退出WHO、WTO等众多国际被中共渗透的组织，重新组建联合国，必然会针对中共罪责病毒真相。那么接下来的美国将会具体怎样针对中共呢？
 
+1、首先将有中共和美国在西太平洋，乃至印度洋发生军事冲突可能性大大增加，尤其是加强西太平洋军事部署。2、针对中共如此巨幅的贸易顺差，美国必然会维持现有的关税的同时，大大增加中共对美出口征收的关税，彻底干掉中共的钱袋子。3、同时一定会针对中共在香港、新疆、西藏等地的反人类罪行施加更多的法律制裁；4、必然会针对中共在美颠覆、渗透和情报活动展开法律行动，尤其是这次大选彻底暴露了中共在美国“蓝金黄”的违法行为。5、针对中共这么多年通过间谍行为盗窃美国高科技技术，美国也必然会与中共“脱钩”，同时会通过法律手段大量抓捕、遣返中共的这些科技间谍。6、美国一定会全面开始与台湾的军事和外交全面开始展开合作，彻底改变1979年之后针对台湾的错误政策。7、美国也会退出所有过去那些与中共之间错误的全球多边主义合作。8、一定会针对中共的高层在美国的资金、产业和他们的家属实施制裁，归还给中国人民。9、最为重要的就是一定会针对这次中共的CCP病毒真相追责中共，把中共定为恐怖组织，斩首中共恐怖组织匪首必将实施。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04235347/d5242966.jpg)
+面对如此境地，中共会如何应对这些问题。中共必然会开始全面加速实施“闭关锁国”，战略和军事都必然会开始收缩，而南海、台湾中共只是“口炮”式的军事威胁也必然会回缩。一旦中共为了转移内部矛盾侵略台湾，那必然会引来美国毁灭式的军事打击。但如果中共领导人看不清这一点，穷兵黩武的结果就是他真的会变成“包子馅”。之前那些恐怖组织头目，一个个不都被美国的导弹制作成了包子馅吗！接下来美国必然会和中共全面对抗，那么中共为了避免孤立，必然会出卖更多人民的利益去讨好欧洲和亚非拉的“穷哥们”。总结之下，中共接下来必然会收缩战略纵深重走闭关锁国；同时会更加全力的去扩大自己的政治影响力。
 
-Author: Warrior     Contributors: Brain Sanitizer;  Magnum 44;  Quentin G
+但这一切都已经是过去式，美国已经醒了，拿掉中共的钱，彻底孤立中共，让中共用他的生命来为CCP病毒负责。中共的领导人们，如果还有那么一点点的智商，放下屠刀立地成佛。如若真的是智障，那我只能奉劝你一句：“好自为之，多行不义必自毙！”最后一句，我们普通百姓切记赶紧做好应对海啸的准备，因为中共垂死挣扎必然会把我们百姓推在前面，最惨的都是百姓。重要的话说三遍：“存粮、存物资！存粮、存物资！存粮、存物资！”冬天来了，春天不远了！
 
-I am writing as a Chinese student living and studying in the United States. I, along with millions of other Chinese in the US and around the world, have faith in the Whistleblower Movement led by Mr. Miles Guo and I am ready to take down the Chinese Communist Party at all costs.
+（文章内容仅代表作者观点）
 
-2020 has been a rough year for every one of us. We have been through a lot due to the SARS-CoV-2 which has claimed more than 200,000 lives in America. We can no longer live our daily life. With no social life, no fun with friends, and no traveling ahead of us, I am sure that we all would like to ask: Why?
-
-There is no doubt that our lives have been deeply affected by SARS-CoV-2. On the other hand, the chaos in many cities before, during, and after the American presidential election is no coincidence. Let’s explore how we ended up with SARS-CoV-2 and why violence is increasing amid the election in the year 2020.
-
-Regarding SARS-CoV-2, more than 9 million people in America have been infected with the virus, and more than 233,000 people have died from it. The rest of us have been deprived of our daily routines. SARS-CoV-2 is still spreading among people and the second wave is on the way! Our way of life has been forever changed. For the past 10 months, we have been living uncomfortably by doing all of the following things that we never had to do before: wearing masks all the time, keeping social distancing wherever we go, and staying at home as required by the government officials. Since the beginning of the pandemic, we have found ourselves increasingly wishing for the simplest things like chatting with friends at a big party, visiting family members like our parents or grandparents, walking down the street in a metropolitan city such as New York, lying on the beach with the ocean in front of us, and breathing fresh air in a park without our face being covered. As a result, drug abuse, domestic violence, depression, and suicides are on the rise, all because of SARS-CoV-2! We have been so buried in problems cause by the virus that we have forgotten to pursue the truth about the origin of this virus, i.e., whether it came from nature or was manufactured in a lab.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04224952/11052.png)
-Dr. Li-Meng Yan, a heroic Chinese scientist who escaped to the US blew the whistle on the origin of [SARS-CoV-2](https://zenodo.org/record/4073131#.X6MS_y9h2CU) in an article posted on Zenodo. Soon after, she posted another article, demonstrating that the CCP (Chinese Communist Party) [manufactured](https://zenodo.org/record/4073131#.X6MUty9h2CV) the virus in the CCP military lab and then unleashed it to the world population. The CCP has been lying about the origin of this virus. Unfortunately, the mainstream media and the scientific field have been suppressing Dr. Yan and her whistleblowing efforts to let the truth out. As a result, the American people do not seem to be waking up from this nightmare.
-
-To the many Chinese who have been following the Whistleblower Movement, the SARS-COVID-2 is the CCP virus and a bioweapon. The CCP has launched unrestricted warfare against America and the rest of Western civilization. It has turned this country upset down. What many American people failed to see is that the CCP is behind all the bad things that have been happening in this country this year: the violence on the streets, the BLM and Antifa protests, and election frauds.
-
-Yes, the CCP has laid its hand on the presidential election. It shipped [fake IDs](https://www.bettergov.org/news/fact-check-no-link-between-fake-ids-seized-at-ohare-and-voter-fraud/) to cities like Chicago so that illegal immigrants could vote. It printed election ballots from China, according to Lu De in his most recent webcast, which is being interpreted into English. Presidential candidate Joe Biden and his family members have been so heavily involved in the shared interests with CCP owned companies, as released from his son Hunter’s laptop, a.k.a. “the laptop from hell” as President Trump calls it, that it became impossible for Biden to defend American values if he were elected.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04225019/11051-1.png)
-America: We need President Donald J. Trump to take down the CCP. We witnessed a US President who had made his promises to the American people and kept his words for the past four years. President Trump defends American core values, the American spirit, and will MAKE AMERICA GREAT AGAIN! The United States is now at the crossroad, and the path it takes will determine if the human civilization will survive, since the fight between the Western civilization and the Chinese Communist Party is a fight between justice and Satan’s spirit, i.e., the specter of the communism [haunt](https://www.marxists.org/archive/marx/works/1848/communist-manifesto/ch01.htm)ing Europe about 170 years ago is now haunting the God-blessed country of United States of America.
-
-Without any doubt, as shown from the documents released from Hunter’s hard drive, Joe Biden has become a CCP agent in the United States and his gang of criminals has sold out the United States to the CCP. The swamp which President Trump found so hard to drain is directly related to the Chinese Communist Party. For God-loving American citizens, draining the swamp should start with Joe Biden. With God’s blessing, justice will prevail. To MAKE AMERICA GREAT AGAIN AGAIN, Donald J. Trump is the chosen one!
-
-Reviewer: Ivy
-
-**Reference — **Lude Press:
-
-[https://www.youtube.com/c/Ludepress](https://www.youtube.com/c/Ludepress)
-
-11/4/2020
-
-[Lu-An-Mo Talk： All the Possibilities May Happen to The Election](https://www.youtube.com/watch?v=IunhkbzB4Yg)
-
-# 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04165600/logo-1.jpg)
-0
+1+
