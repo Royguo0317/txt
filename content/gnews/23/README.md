@@ -1,59 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 朱利安尼 推文系列 1
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/527896/)
+## 【再加控发表煽动文字】快必被控共14项罪代表律师戴启思指滥用司法程序
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/528203/)
 
-*翻译/简评：Beicy老師；校对：TCC；审核：TCC；Page：草根 文人*
+整撰：文燕
 
-朱利安尼(Rudy Giuliani)是前任纽约市长，川普总统的私人律师，更是最了解RICO法案的人。美国大选投票截止日，就是今天了。我们看看朱老爷子，如何犀利的发推帮川普总统助选。
+覆核：文非
 
-## 朱利安尼: 撒谎的拜登正叫得血管都快爆了!
+人民力量副主席谭得志（快必）自9 月起还押至今近2 个月，谭被控7 项发表煽动文字、煽惑他人参与未经批准集结、在公众地方内扰乱秩序行为罪等13 条罪，涉及3 宗案件。全部案件今早（4日）在西九龙裁判法院再提堂。
 
-[02/11/2020](https://twitter.com/RudyGiuliani/status/1323086550138298368)
+据港媒报道，控方今就谭得志3 月至7 月多次街站的案件，申请加控一项「串谋发表煽动文字罪」及将所有案件转至区域法院审理，获总裁判官苏惠德批准。案件将在本月 17 日再审理，谭得志期间继续还押在荔枝角收押所。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04123814/image001-7.png)人民力量副主席谭得志涉摆街站时叫政治口号，被指意图引起对政府憎恨及藐视等，被控发表煽动文字等罪。 （图片来源：立场新闻）
+就加控的一项串谋发表煽动文字罪，谭得志（48岁）被指于今年7月4日，在旺角西洋菜街及亚皆老街一带，与不知名人士串谋发表煽动文字，即意图引起憎恨、藐视政府或激起对其的离叛，激起香港居民企图不循合法途径，促使改变其他在香港的依法制定的事项，引起香港居民间的不满或离叛，或怂恿他人不守法，或不服从合法命令的文字。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04123757/image002.png)控方早前就谭得志发表煽动文字的指控。 （图片来源：众新闻）
+谭涉及三宗案件、共13项控罪，包括7项发表煽动文字，其余为举行或召集未经批准公众集会、煽惑他人参与未经批准集结等罪，涉及本年3月至7月的多个街站。
 
-![]()![](https://spark.adobe.com/page/PVpw5AImNin1L/images/ed29fb71-acde-4bb2-b4d9-cb0cfd06f36e.png?asset_id=8b5b3167-69f6-4d34-be19-08868742f52f&amp;img_etag=%2263876c821509f2b8512f7cc0415a9256%22&amp;size=2560)
+控方申请将案件转介至区域法院，并就所有发表煽动文字罪，增加激起本港居民不法改变香港依法制订事项。据称，相关修订对控罪刑期无影响，但或扩大入罪机会。
 
-你是否意识到#科技，#MSM和#腐败的民主党人试图以牺牲美国人民的利益为代价来进行腐败的骗局。
+资深大律师戴启思反对申请，质疑控方现阶段才新增控罪，只为将案件转介至更高法院。戴续指，串谋发表煽动文字罪可于区域法院审理，一旦加控，整宗原本可在裁判法院处理的案件便可转至区院，批评控方滥用司法程序。
 
-正如川普所言，他们的”铁幕审查”，就证明他们是”人民的敌人”。
+点评：
 
-[01/11/2020](https://twitter.com/RudyGiuliani/status/1323019798046015488)
+根据香港法律，裁判法院（ Magistrates’ Courts）是最初级的刑事法院，较严重的可移交区域法院或高等法院原讼法庭审理。区域法院（District Court）又称地方法院，处理由裁判法院移交的公诉罪行，可审理除谋杀、误杀和强奸外的所有严重刑事案件，可判处的最长监禁刑期是七年。法官是在没有陪审团的情况下单独进行审讯。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/PVpw5AImNin1L/images/e862d8bd-efd6-4515-adc9-c0cdd0126df3.png?asset_id=1493b383-6b65-42be-b18f-21fe78567fde&amp;img_etag=%22090912394d6ea91be627dfd5199c72c0%22&amp;size=2560)](https://spark.adobe.com/page/PVpw5AImNin1L/images/e862d8bd-efd6-4515-adc9-c0cdd0126df3.png?asset_id=1493b383-6b65-42be-b18f-21fe78567fde&amp;img_etag=%22090912394d6ea91be627dfd5199c72c0%22&amp;size=1024)
+【港版国安法】被强行通过后，香港完全处于中共的魔爪之下。在这样极端恶劣的政治压迫下，中共极力打压自由言论、企图用强权盖住港人嘴巴，在社会制造白色恐慌。黄之锋曾指出【国安法】根本就是以言入罪的工具，凡是公开说出中共不爱听的话，就会被扣上「涉嫌煽动颠覆国家政权」的帽子。
 
-“中共国不是一个问题，也不是一个威胁。”
+以上观点仅代表笔者本人
 
-谁说的？
+资料来源：众新闻 ；立场新闻
 
-傻子？
+[https://www.hkcnews.com/article/35321/%E8%AD%9A%E5%BE%97%E5%BF%97-%E7%85%BD%E5%8B%95%E6%96%87%E5%AD%97-%E6%88%B4%E5%95%9F%E6%80%9D-35321/%E3%80%90%E5%86%8D%E5%8A%A0%E6%8E%A7%E7%99%BC%E8%A1%A8%E7%85%BD%E5%8B%95%E6%96%87%E5%AD%97%E3%80%91%E5%BF%AB%E5%BF%85%E8%A2%AB%E6%8E%A7%E5%85%B114%E9%A0%85%E7%BD%AA-%E4%BB%A3%E8%A1%A8%E5%BE%8B%E5%B8%AB%E6%88%B4%E5%95%9F%E6%80%9D%E6%8C%87%E6%BF%AB%E7%94%A8%E5%8F%B8%E6%B3%95%E7%A8%8B%E5%BA%8F](https://www.hkcnews.com/article/35321/%E8%AD%9A%E5%BE%97%E5%BF%97-%E7%85%BD%E5%8B%95%E6%96%87%E5%AD%97-%E6%88%B4%E5%95%9F%E6%80%9D-35321/%E3%80%90%E5%86%8D%E5%8A%A0%E6%8E%A7%E7%99%BC%E8%A1%A8%E7%85%BD%E5%8B%95%E6%96%87%E5%AD%97%E3%80%91%E5%BF%AB%E5%BF%85%E8%A2%AB%E6%8E%A7%E5%85%B114%E9%A0%85%E7%BD%AA-%E4%BB%A3%E8%A1%A8%E5%BE%8B%E5%B8%AB%E6%88%B4%E5%95%9F%E6%80%9D%E6%8C%87%E6%BF%AB%E7%94%A8%E5%8F%B8%E6%B3%95%E7%A8%8B%E5%BA%8F)
 
-一个共产党员？
-
-或者某人，他的家人从中国共产党人那里得到了几百万的钱？
-
-絕不是川普
-
-是北京拜登
-
-[01/11/2020](https://twitter.com/RudyGiuliani/status/1323010860583948288)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/PVpw5AImNin1L/images/ce832486-3fa5-44b9-9c1c-7951550c0107.png?asset_id=ca8e85a0-6f10-4588-a51f-3bed4c316159&amp;img_etag=%2253f5bf799b12a0e111f73ecd1b5040f0%22&amp;size=2560)](https://spark.adobe.com/page/PVpw5AImNin1L/images/ce832486-3fa5-44b9-9c1c-7951550c0107.png?asset_id=ca8e85a0-6f10-4588-a51f-3bed4c316159&amp;img_etag=%2253f5bf799b12a0e111f73ecd1b5040f0%22&amp;size=1024)
-
-撒谎的拜登正在大叫著，血管都快爆了。
-
-[30/10/2020](https://twitter.com/RudyGiuliani/status/1322307812274393089)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/PVpw5AImNin1L/images/6cc0809c-5126-4dac-8cc0-fd57886076fc.png?asset_id=dd6899cf-04b1-4b12-b1d5-974d62b7f186&amp;img_etag=%22bddac2f730ae217bda789800d45cbb29%22&amp;size=2560)](https://spark.adobe.com/page/PVpw5AImNin1L/images/6cc0809c-5126-4dac-8cc0-fd57886076fc.png?asset_id=dd6899cf-04b1-4b12-b1d5-974d62b7f186&amp;img_etag=%22bddac2f730ae217bda789800d45cbb29%22&amp;size=1024)
-
-朱利安尼幫你解析:那些被他們审查的罪行
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)[原文链接](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/PVpw5AImNin1L/)】-点击spark adobe版
-
-[!\[\]()!\[\](https://spark.adobe.com/page/PVpw5AImNin1L/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/PVpw5AImNin1L/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+[https://www.thestandnews.com/court/%E9%81%AD%E5%8A%A0%E6%8E%A7%E4%B8%80%E9%A0%85%E4%B8%B2%E8%AC%80%E7%99%BC%E8%A1%A8%E7%85%BD%E5%8B%95%E6%96%87%E5%AD%97%E7%BD%AA-%E8%AD%9A%E5%BE%97%E5%BF%97%E7%BA%8C%E9%82%84%E6%8A%BC-%E5%85%B1-14-%E6%8E%A7%E7%BD%AA%E8%BD%89%E5%8D%80%E9%99%A2%E5%AF%A9/](https://www.thestandnews.com/court/%E9%81%AD%E5%8A%A0%E6%8E%A7%E4%B8%80%E9%A0%85%E4%B8%B2%E8%AC%80%E7%99%BC%E8%A1%A8%E7%85%BD%E5%8B%95%E6%96%87%E5%AD%97%E7%BD%AA-%E8%AD%9A%E5%BE%97%E5%BF%97%E7%BA%8C%E9%82%84%E6%8A%BC-%E5%85%B1-14-%E6%8E%A7%E7%BD%AA%E8%BD%89%E5%8D%80%E9%99%A2%E5%AF%A9/)
 
 0

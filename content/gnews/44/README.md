@@ -1,145 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《亲爱的妈妈, 我正在终结中共 》MV
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/527221/)
+## 川普总统称 &#8220;一群悲哀的人&#8221; 正试图 &#8220;剥夺&#8221; 选民权利
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/527644/)
 
-### **亲爱的妈妈, 我正在终结中共
-Dear Mamma,I Am Ending the CCP**
+**翻译：Bruce**
 
-### **歌手：郭文贵
-Singer：Miles Guo**
+**校对：DiDi**
 
-妈妈 我们的哭泣
-Mamma Our cries
-已经感动了天地
-have moved the world
-感动了天地
-have touched the world
-妈妈 我们的哭泣
-Mamma Our cries
-已经感动了天地
-have moved the world
-感动了天地
-have touched the world
-亲爱的妈妈
-Dear Mamma
-您在那边儿还好吗？
-Are you ok over there?
-您的儿子在哭泣 很想您
-Your son is crying and missing you
-他一直在梦里遇见您
-and sees you in his dreams
-您说过 让我灭掉中国共产党
-You said take down the CCP
-因为这是上天的旨意
-cause it’s God’s will
-为了您我要赢
-So I’ll win for you
-当我们终结了中国共产党 我们再相见
-and I’ll see you when We end the CCP
-为什么？ 他们要剥夺我们的生命？
-So why, do they take our lives?
-一遍又一遍
-Over and over and over and over again
-我, 我将与他们战斗!
-So I, I’m putting another fight!
-来保护我们的家人
-To protect my family
-让我们来一起灭掉中国共产党
-Let’s Take down the CCP
-他们也许制做了病毒
-They might have made a virus
-但是 其实病毒就是他们
-But the virus is them
-呐喊 不要再有死亡
-Screaming no more death
-因为我们站在一起
-cause together we stand
-你与我一起
-it’s just you and me
-灭掉中国共产党
-Taking down the CCP
-他们也许剥夺了我们父母的生命
-They might have taken our parents
-但是他们夺不走我们的心
-But they can’t take our hearts
-因为我们的爱如此闪耀
-Cause the love we have shines so
-光明在那黑暗中
-Bright in the dark
-你与我一起
-It’s just you and me
-灭掉中国共产党
-Taking down the CCP
-妈妈 我们的哭泣
-Mamma Our cries
-已经感动了天地
-have moved the world
-感动了天地
-have touched the world
-妈妈 我们的哭泣
-Mamma Our cries
-已经感动了天地
-have moved the world
-感动了天地
-have touched the world
-嗨！ 儿子
-Hey son
-我有千万件事儿 想对你说
-I got a million things I wish i could say to you
-但首先我很自豪
-but I’ll start with I’m so proud
-你做的事情早就应该在很多年前完成了
-Yeah You’re doing things that should
-have been done a long time ago
-我知道 我知道 你一定会把他们灭掉的
-And I know and I know you’re gonna take them down
-为什么？ 他们要剥夺我们的生命？
-So why, do they take our lives?
-一遍又一遍
-Over and over and over and over again
-我, 我将与他们战斗!
-So I, I’m putting another fight!
-来保护我们的家人
-To protect my family
-让我们来一起灭掉中国共产党
-Let’s Take down the CCP
-他们也许制做了病毒
-They might have made a virus
-但是 其实病毒就是他们
-But the virus is them
-呐喊 不要再有死亡
-Screaming no more death
-因为我们站在一起
-cause together we stand
-你与我一起
-it’s just you and me
-灭掉中国共产党
-Taking down the CCP
-他们也许剥夺了我们父母的生命
-They might have taken our parents
-但是他们夺不走我们的心
-But they can’t take our hearts
-因为我们的爱如此闪耀
-Cause the love we have shines so
-光明在那黑暗中
-Bright in the dark
-你与我一起
-It’s just you and me
-灭掉中国共产党
-Taking down the CCP
-妈妈 我们的哭泣
-Mamma Our cries
-已经感动了天地
-have moved the world
-感动了天地
-have touched the world
-妈妈 我们的哭泣
-Mamma Our cries
-已经感动了天地
-have moved the world
-感动了天地
-have touched the world
+川普总统在周三早些时候的演讲中宣布自己很可能是总统大选的胜利者，并发誓要到最高法院阻止民主党人利用 “欺诈 “帮助乔-拜登获胜。
 
-3+
+川普总统，在没有证据的情况下，于凌晨2点21分开始在白宫东厅发表讲话：”今晚有数百万人投票给我们。而一群非常悲哀的人正试图剥夺这群人的投票权，我们不会容忍。”。
+
+川普总统说：”这是对美国公众的欺诈，是对我们国家的羞辱。我们正准备赢得这场选举。坦率地说，我们确实赢得了这次选举。所以我们现在的目标是确保诚信。”。
+
+“我们会去美国最高法院。我们希望所有的投票都停止。我们不希望他们在凌晨4点钟还找到任何一张选票，并将其添加到名单里，好吗？”
+
+“我们会赢的，就我而言，我们已经赢了。”
+
+川普总统说：”我们正准备大肆庆祝。我们正在赢得一切。突然之间，这个就被叫停了。”
+
+在发言之前，川普总统在推特上写道：”我们“大幅度”领先，但他们正试图“窃取”选举。我们绝不会让他们这么做。投票站关闭后不能投票！” 推特和脸书队这一说法都做了标记。
+
+川普总统是在选举日表现出乎意料的强势，让民主党对拜登获得压倒性优势的希望破灭，并推翻了许多民调后，发表讲话的。
+
+川普总统与拜登的选战，在中西部战场宾夕法尼亚州、密执安州和威斯康星州仍未决出胜负，川普总统2016年在这些地方以微弱优势的破局，让他后来问鼎总统。
+
+在COVID-19疫情中，大量的邮寄选票使这三个州的结果延迟。在宾夕法尼亚州，即使没有清晰的邮戳，在周五之前到达选举办公室的邮寄选票，州最高法院依然允许其纳入统计。
+
+如果宾夕法尼亚州对全国结果至关重要，而该结果又很接近，加之共和党人认为州法院有错误。那将很可能会有一场激烈的法律斗争。美国最高法院拒绝了大选前的干预请求。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04084316/%E5%9B%BE%E7%89%872-4.jpg)*选举之夜，川普总统在白宫东厅发表讲话
+法新社 Getty图片*
+“我们正在以巨大的优势赢得宾夕法尼亚州，”川普总统在凌晨的演讲中辩称。”想想看，我们在宾夕法尼亚州增加了69万票，这是投票量的64%。 这几乎是不可能被追上的。而且我们正在进入宾夕法尼亚州的票仓区域，他们恰好喜欢你们的的总统，所以我们可能会扩大这个数字。”
+
+据美联社估计，宾夕法尼亚州64%的选票已经统计完毕，但在拜登大本营费城，只有49%的选区被报导。邮寄的选票仍在统计中，预计将有利于拜登。
+
+截至周三早些时候，根据福克斯新闻的预测，川普总统似乎唯一会失去的，是亚利桑那州。他在2016年赢得过该州。共和党人说，现在宣布胜出还为时过早，因为美联社说，有五分之一的选票尚未统计。福克斯新闻还推算，拜登将从内布拉斯加州第一国会选区赢得一张选举人票，川普总统在2016年曾在该选区进行过投票。
+
+不过，川普总统在佛罗里达州赢得了巨大的胜利。川普发言时，在乔治亚州和北卡罗来纳州，还保持领先。
+
+“佛罗里达州是一个巨大的胜利，”川普总统在白宫对聚集在一起的少量支持者说。”北卡罗来纳州，与北卡罗来纳州取得了巨大的胜利。所以我们在那里赢了，我们在那里几乎什么都没有的情况下领先了7.6万票，突然间一切都停止了。”
+
+川普总统还宣称：”我们正在赢得密歇根….，差不多30万票，65%的选票已经到手。而且我们正在赢得威斯康星州”。
+
+他对福克斯新闻关于他失去亚利桑那州的预测提出质疑，后来美联社的预测与此相符。
+
+“亚利桑那州，我们还有很多生机，”川普总统说。”我们现在刚刚进入他们所谓的川普领地。无论你怎么定义，这些都是友好的川普选民。”
+
+川普总统说，民主党人 “知道他们赢不了。所以他们说，’咱们法庭见’。而我是否预测到了这点呢？……从我听说他们要发出几千万张选票的那天起，我就一直这么说。”
+
+拜登在德尔福州威尔明顿的一次午夜后的演讲中给出了自己的乐观预测。他说：”我们对自己的处境感到很好。我们真的很高兴。今晚我在这里告诉大家，我们相信我们有望赢得这次选举。”
+
+0

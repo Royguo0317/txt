@@ -1,35 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 伟大的美国选民们，选票投给谁？
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/527957/)
+## 美国总统大选期间，加拿大政府在做什么
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/528211/)
 
-*作者：桂花酒｜校对：宁缺｜审核：海阔天空｜Page：玄天生；*
+多伦多加喜农场 文锦
 
-**上帝与你们同在！**
+校对上传 XM
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04130209/%E5%9B%BE%E7%89%875-3.jpg)图片来源：nbc
+美国2020年总统大选吸引了全世界的眼球，然而，邻国加拿大自由党政府正在一直推进它的左倾政策。
 
-亲爱的美国选民！今天你们即将改写历史。不仅是美国，还包括全世界。
+1.禁枪
 
-你们的两位总统竞选人，川普和拜登。年龄相仿，一位确诊中共病毒，三天后奇迹般康复。一位在集会上把对手说成乔治，对，他不是瞌睡虫。
+自中共病毒疫情以来，自由党政府闭口不谈病毒真相，却赶忙借新斯科舍省枪击案通过禁枪令。11月3日，加政府批准了竞标政府回购1500件违禁枪支的公司名单。
 
-川普总统儿女们都有各自的工作，家庭和睦。拜登儿子亨特毒瘾缠身，滥交乱伦。拜登说，我要像对待我的家人一样对待你们，亲爱的选民！难道你们和他一样打瞌睡？
+在政府采购网站，可以看到11月3日发布的“最近被禁止的火器的潜在回购计划的补偿模式和方案设计选择”页面。
 
-四年来，你们的税负少了，工作机会多了，生活改善了。但是自从中共放出病毒之后，你们面临更多威胁，工作机会少了，平静的生活毁了。想想自从中共病毒在美国传播开来，你们为什么呆在家里？为什么口罩成了必需品？为什么要保持社交距离？又为什么不能像从前那样自由自在到酒吧里休闲放松？
+根据政府采购网站上发布的通知，已邀请15家公司提交该计划的提案。中标承包商必须在明年2月初之前提供，用以确定每支受影响枪支的拟议赔偿结构；分析与每个补偿模型有关的收益和风险；和确定可能影响每种方法和/或模型的可行性的其他考虑因素。
 
-一个多月前，美国多个部门、官员包括媒体都有拜登的神秘邮件，对，硬盘。目前曝光的邮票证明，亨特.拜登家族乱伦，娈童虐童。亨特还到中国，到乌克兰，担任了一堆公司高管、合伙人、董事。这是个被海军部队开除的瘾君子！他的父亲说他对亨特的事情一无所知。是的，他一无所知，可为什么动辄几千万、几亿、几十亿美元的金钱源源不断进入了拜登家的腰包？是谁在那些协议合同上签的字？是谁和中共一起偷走了美国的科技？ 是谁出卖了美国的国家利益？是谁允许中共在南海岛礁军事化？是谁把偷走了美国人的工作机会？
+禁枪令对犯罪率和消除暴力并不能产生有效的影响，只是令政府的权利更加扩大，侵犯了公民的自由权和保护个人的权利。委内瑞拉从昔日富国沦落为今日惨状，实施禁枪令是其中不可缺少的环节。
 
-可是为什么硬盘出现之后，全美国的新闻媒体都在沉默？除了Fox、纽约邮报、Gtv、Gnews等少数几家传媒公司勇敢地发声，为什么其他的新闻媒体都默不作声？难道他们不知道硬盘信息吗？难道他们不知道拜登是总统竞选人？还是他们害怕了？被人捂住了嘴？
+2.黑命贵（ BLM）
 
-伟大的选民们！你们心明眼亮，你们热爱自由，你们热爱美国！
+据反叛者新闻Rebel News11月3日报道，卡尔加里警察委员会议员因不支持黑命贵口号而被撤职。
 
-伟大的选民们！该出手投出你最伟大的选票，去告诉所有美国人，谁也不能人前假装君子，而背地却偷偷卖国。谁也不能控制舆论掩盖真相。腐败的罪犯不能做美国的总统！人民需要自由，美国需要再次伟大！世界将因为你的选票改变，天佑美国！
+卡尔加里警察委员会是该市警察部门的文职监督机构，负责任命下一任警察局长，管理公众投诉程序，包括对警察局长的投诉，听取对卡尔加里警察部门政策或服务的上诉。卡尔加里的治安文化直接来自警察委员会。
 
-编辑 【[喜马拉雅战鹰团](https://spark.adobe.com/page/AytinuCWiMqSn/)】-点击spark adobe版
+委员会中唯一的保守派市议员法卡斯（Jeromy Farkas，他同时也在竞选卡尔加里市长，对抗长期以来的进步派现任议员Naheed Nenshi），周一上午被市议会解除了在委员会的职务。根据Farkas的说法，他被从监督小组中踢出，因为他拒绝认可黑命贵的反警察口号，以及他反对议会大幅和进一步削减卡尔加里警察服务预算的计划。
 
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+“通过取缔废止和退款的警察运动，市议会正在玩火，其卡尔加里人也被烧死。世界上没有任何位置或头衔值得使我的家人，邻居和选民陷入危险。我宁愿被炒鱿鱼，也不愿做某事或说些会使卡尔加里人处于危险之中的事情，”法卡斯说。在法卡斯的推下，大部分留言支持他的正义做法。
 
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)[原文链接](https://gnews.org/zh-hans/author/himalaya_hawk/)
+卡尔加里是传统保守党省份——阿省的最大城市，法卡斯的遭遇凸显了左派政府对社会秩序的侵蚀。加拿大的现实是，学校在宣扬BLM的含义，连教堂也会举行关于BLM的祈祷。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/AytinuCWiMqSn/images/e8fc6b81-69f8-4773-9d65-5cd3a50cb29a.jpg?asset_id=6563820d-3fcb-42e2-b35e-ff4a43779319&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/AytinuCWiMqSn/images/e8fc6b81-69f8-4773-9d65-5cd3a50cb29a.jpg?asset_id=6563820d-3fcb-42e2-b35e-ff4a43779319&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+3.对美国总统大选态度
+
+在讨论美国总统大选时，11月3日，加拿大新民主党领袖贾格米特∙辛格（Jagmeet Singh）在渥太华告诉记者，对川普在总统任期内的行为发表意见是 “道德上的需要”。”我认为，如果川普输了，对世界会更好，我希望他今天输了。”
+
+中共病毒疫情以来，加国民众越来越看清现任自由党政府的丑恶嘴脸，要求自由党下台的呼声越来越高。几个月前，最大反对党保守党党领选举的投票人数创历史记录。但是由于新民主党支持自由党，令今秋大选无望。这次通过新民主党对美国总统大选的态度，更是让人看清，其到底是什么货色。
+
+加拿大的左派政客自嗨到看不到现实，如果美国乔∙拜登当选，美国就会一步步被中共所侵蚀、控制，加拿大的今天，可能就是美国的明天。庆幸的是，随着三块硬盘里的内容抛出，美国民众用手中的选票做出了正义的选择。
+
+参考链接：
+
+UPDATE: Liberals approve list of companies to bid on gov’t buyback of 1,500 prohibited firearms
+
+[https://www.rebelnews.com/private\_sector\_will\_design\_government\_buyback\_of\_1500\_prohibited\_firearms](https://www.rebelnews.com/private_sector_will_design_government_buyback_of_1500_prohibited_firearms)
+
+Compensation Model and Program Design Options for a Potential Buyback Program for Recently Prohibited Firearms (202101502-1)
+
+[https://buyandsell.gc.ca/procurement-data/tender-notice/PW-20-00930144](https://buyandsell.gc.ca/procurement-data/tender-notice/PW-20-00930144)
+
+
+
+> Discussing the U.S. election, NDP Leader Jagmeet Singh tells reporters in Ottawa that there is a "moral imperative" to speak out on Donald Trump's actions during his presidency: "I think it would be better for the world if Trump loses, and I hope he loses today." [#cdnpoli](https://twitter.com/hashtag/cdnpoli?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/7PIfSkoODf](https://t.co/7PIfSkoODf)
+> — CPAC (@CPAC\_TV) [November 3, 2020](https://twitter.com/CPAC_TV/status/1323711648155258884?ref_src=twsrc%5Etfw)
+
+
 
 0

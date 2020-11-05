@@ -1,37 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国总统大选选票造假早有预谋 中共CCP是这一切幕后黑手
-` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/528057/)
+## 美国开始排干医药行业沼泽？临床试验数据造假被判罪
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/528453/)
 
-内新闻：背靠背
+美国司法部11月2日宣布，佛罗里达州一人因合谋伪造一种哮喘药物的临床试验数据而认罪。 司法部官员说说，“司法部会继续与食品和药物管理局（FDA）携手合作，调查和起诉那些把个人利益凌驾于公众健康之上的欺诈者。”
 
-美东时间2020年11月3日，美国总统大选，密歇根州近140,000个连续计数的选票中100%全是拜登。选票造假痕迹相当明显，这是有组织有计划伪造的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04111119/image-80.png)
-据国家脉搏（The National Pulse）8月3日报道，Transition Integrity Project（TIP）项目致力于即使川普总统大选获胜连任，也能帮助乔拜登夺取川普总统权力。
+临床研究资料关系到新药的审批和上市，背后存在巨大的利益角逐，药品的上市背后可能存在不同程度的灰色地带。本次美国司法部的行动是否象征着开始着手排干医药行业的沼泽，让我们拭目以待。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04155020/DOJ_20201102_conspiracy_falsify_clinical_trial_data_photo169.png)图片来源：[National Cancer Institute](https://unsplash.com/@nci?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/clinical-trials?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText)
+[阅读司法部英文原文](https://www.justice.gov/opa/pr/florida-resident-pleads-guilty-conspiracy-falsify-clinical-trial-data)
 
-Transition Integrity Project（TIP）这个从2020年6月开始的项目（中共CCP蓝金黄预算是通过按项目开展），涉及超过100位现任和前任高级政府官员和竞选领袖、学者、记者、民调专家和前联邦和州政府官员。
+**Florida Resident Pleads Guilty to Conspiracy to Falsify Clinical Trial Data**
 
-该项目目的与公开网站表面宣传的严重不符，并且它与中共CCP有着千丝万缕的密切关系，旨在操控美国2020年总统大选。项目直接或间接的资金资助机构是由乔治·索罗斯（GEORGE SOROS）的开放社会基金会董事会，与中共挂钩的伯格格鲁恩研究所（BERGGRUEN INSTITUTE）。通过基金会和研究所实施蓝金黄计划，控制美国媒体，政府官员，科技界，科学界等。
+**佛罗里达居民承认共谋伪造临床试验资料**
 
-最初由罗莎·布鲁克斯和尼尔斯·吉尔曼于2019年底组织。
+FOR IMMEDIATE RELEASE
 
-前者罗莎·布鲁克斯曾是奥巴马时期的国防部副部长政策顾问、法治和人道主义政策特别协调员，以及比尔-克林顿的国务院高级顾问。她还曾在开放社会研究所担任总统特别顾问，现在是该基金会的顾问委员会成员，该基金会的巨额捐赠者是乔治-索罗斯。
+Monday, November 2, 2020
 
-布鲁克斯还在新美国基金会（NAF）担任研究员，该基金会享有比尔和梅琳达-盖茨基金会和谷歌的资金支持。NAF的首席执行官安妮-玛丽-斯劳特（Anne Marie Slaughter）曾在奥巴马政府中担任政策规划主任。
+2020年11月2日即时公布
 
-该基金会的董事会成员包括法利德-扎卡里亚（Fareed Zakaria）等人，扎卡里亚是美国有线电视新闻网（CNN）的主持人，也是《华盛顿邮报》的撰稿人。近期《国家脉搏》曾曝光他与中共资助的 “马克思主义新闻 “学校合作。
+A Florida resident pleaded guilty to conspiring to falsify clinical trial data regarding an asthma medication, the Department of Justice announced today. The clinical trial was designed to investigate the safety and efficacy of an asthma medication in children between the ages of four and eleven.
 
-后者尼尔斯·吉尔曼是贝格鲁恩研究所的项目副总裁，该研究所是贝格鲁恩中国中心的主办方，并向北京大学等中共办大学输送了数千万美元，这只是与中共交易的冰山一角。
+(美国) 司法部今天宣布，一名佛罗里达州居民承认串谋伪造有关一种哮喘药物的临床试验资料。该临床试验旨在调查一种哮喘药物在4至11岁儿童中的安全性和有效性。
 
-贝格鲁恩研究院的中共国合作计划，包括北京人工智能研究院、中国创新与发展战略研究院、中国科学院、中国社会科学院和中国人工智能协会。
+Lisett Raventos, 46, of Miami, Florida, pleaded guilty today in the U.S. District Court for the Southern District of Florida today to one count of conspiracy to commit wire fraud.  Raventos was the site director, the director of clinical operations, and a study coordinator at a medical clinic named Unlimited Medical Research (UM Research) in Miami, Florida.  In pleading guilty, Raventos admitted that from approximately 2013 to 2016, she participated in a scheme to defraud an unnamed pharmaceutical company by fabricating the data and participation of subjects in a clinical trial at UM Research.  The clinical trial was designed to investigate the safety and efficacy of an asthma medication in children between the ages of four and eleven. Raventos admitted that she falsified medical records to make it appear as though pediatric subjects made scheduled visits to UM Research, took study drugs as required, and received checks as payment.
 
-该研究院的21世纪理事会旨在挫败 “反全球化的反弹，这种反弹使民族主义和民粹主义运动在主要国家上台”，其成员包括Twitter创始人杰克-多西（Jack Dorsey）和Facebook负责审查审查制度的监督委员会成员海尔-索宁-施密特（Helle Thorning-Schmidt）等科技大佬。
+来自佛罗里达州迈阿密的 46 岁的 Lisett Raventos 今天在美国佛罗里达州南区地方法院承认一项串谋进行电信欺诈的罪名。Raventos 是位于佛罗里达州迈阿密的一家名为无限医疗研究 (Unlimited Medical Research，UM Research) 的医疗诊所的主任、临床操作主任和研究协调员。在认罪中，Raventos 承认，大约在 2013 年至 2016 年期间，她参与了一项计划，通过伪造 UM Research 临床试验的资料和受试者的参与情况，欺骗一家未命名的制药公司, 该临床试验旨在调查一种哮喘药物在 4 至 11 岁儿童中的安全性和有效性。Raventos 承认，她伪造了医疗记录，使儿童受试者看起来像是按计划到 UM Research 就诊，按要求服用研究药物，并收到支票作为付款。
 
-另一位成员是胡佛瑞德（Fred Hu），他的简历上写着他在金融方面为中国政府 “出谋划策”，目前是香港政府战略发展委员会和香港证监会咨询委员会的成员。前国营中国银行副行长朱民和香港金融服务发展局成员、中美交流基金会（由中共资助的宣传活动，由中共高官董建华担任主席）理事会成员张磊也在该理事会任职。
+“Clinical trials help ensure that new drugs are safe and effective for the public, and this defendant undermined that process,” said Acting Assistant Attorney General Jeffrey Bossert Clark of the Justice Department’s Civil Division.  “The Department of Justice will continue to work hand-in-hand with the Food and Drug Administration (FDA) to investigate and prosecute fraudsters who put personal profit before public health.”
 
-最后，阿里安娜-赫芬顿（Arianna Huffington）、美国有线电视新闻网（CNN）的法利德-扎卡里亚（Fareed Zakaria）和皮埃尔-奥米迪亚（Pierre Omidyar）–人们普遍认为他是比尔-克里斯托尔（Bill Kristol）和为建立 “共和党反对川普总统 “而成立的新保守主义 “林肯计划 “团队的关键支持者之一–等仇视川普的常客也出现在名单上。
+“临床试验有助于确保新药对公众安全有效，而这名被告破坏了这一过程，” 司法部民事部代理助理总检察长 Jeffrey Bossert Clark 说，“司法部会继续与食品和药物管理局（FDA）携手合作，调查和起诉那些把个人利益凌驾于公众健康之上的欺诈者。”
 
-新闻来源：https://thenationalpulse.com/politics/establishment-election-interference/
+“Fraud in the conduct of clinical trials is simply unacceptable, especially where the drug under investigation was meant to serve children and other vulnerable populations,” said U.S. Attorney Ariana Fajardo Orshan for the Southern District of Florida.  “I thank our partners at the FDA’s Office of Criminal Investigations, Miami Field Office, for their work in investigating this scheme.”
 
-0
+“临床试验中的欺诈行为是完全不可接受的，特别是对于被调查的药物是为了服务于儿童和其他弱势群体的情况，” 佛罗里达州南部地区的美国检察官 Ariana Fajardo Orshan 说，“我感谢 FDA 迈阿密分局刑事调查办公室的合作伙伴，感谢他们为调查这一计划所做的工作。”
+
+“Reliable clinical trial data is a foundation for FDA drug approval. Falsifying that data leaves consumers at risk of taking drugs that are neither safe nor effective,” said Special Agent in Charge Justin C. Fielder, FDA Office of Criminal Investigations Miami Field Office.  “We will continue to investigate and bring to justice those who endanger the public health when they engage in conduct that might subvert the FDA approval process.”
+
+美国食品和药物管理局（FDA）刑事调查办公室迈阿密现场办公室特别负责人 Justin C. Fielder 说：“可靠的临床试验数据是 FDA 药物审批的基础。伪造这些数据会使消费者面临服用既不安全也非有效的药物的风险。”， “我们将继续调查那些危害公众健康的人，并将他们绳之以法，因为他们的行为可能破坏 FDA 的审批程序。”
+
+Raventos pleaded guilty before U.S. District Judge Beth Bloom. Raventos is the first defendant to plead guilty in connection with the scheme.  Three other defendants were charged along with Raventos, and they are presumed innocent until proven guilty beyond a reasonable doubt. When sentenced, Raventos faces a maximum penalty of up to 20 years in prison.
+
+Raventos 在美国地区法官 Beth Bloom 面前认罪。Raventos 是第一个承认与该阴谋有关的被告。和 Raventos 一起被起诉的还有其他三名被告，在排除合理怀疑证明有罪之前，他们被假定无罪。一旦被判刑，Raventos 将面临最高 20 年的监禁。
+
+Assistant Director Clint L. Narver and Trial Attorneys Joshua Rothman, Jocelyn Hines, and Kara M. Traster of the Department of Justice’s Consumer Protection Branch are prosecuting the case.  The U.S. Food and Drug Administration’s Office of Criminal Investigations, Miami Field Office, investigated the case, and the U.S. Attorney’s Office of the Southern District of Florida has provided critical assistance.
+
+司法部消费者保障部副部长 Clint L. Narver 和出庭律师 Joshua Rothman、Jocelyn Hines 和 Kara M. Traster 正在起诉此案。(美国)食品和药物管理局的犯罪调查办公室，迈阿密外勤办公室调查了此案，美国佛罗里达州南区检察官办公室提供了关键的援助。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/01001426/DOJ.jpeg)
+翻译【Naomi】校对【重生】编辑【Isaiah4031】
+
+战友之家玫瑰园小队出品
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01145114/GNEWS-GTV-VOG.png)
+1+

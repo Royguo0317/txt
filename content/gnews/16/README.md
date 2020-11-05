@@ -1,29 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】被指参与刑毁湾仔新华社　15 岁少年事隔一年被控暴动
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/528117/)
+## 亨特拜登的淫乱生活
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/528455/)
 
-搜集：卡西欧 文粤
+亨特拜登为嫂子的妹妹租房，同时与嫂子和其妹妹保持不正当关系
 
-编撰：心听见
+文/DongDong   审/青椒文喜 文璟 拉丁boy  图/YYZ
 
-审核：MY
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04113510/%E8%A2%AB%E6%8C%87%E5%8F%83%E8%88%87%E5%88%91%E6%AF%80%E7%81%A3%E4%BB%94%E6%96%B0%E8%8F%AF%E7%A4%BE.png)图片：立场新闻
-据(香港新闻报道)去年11 月2 日，有网民发起港岛多个「流水式」集会，期间有示威者怀疑以喷漆、锤仔及投掷汽油弹等方式破坏位于皇后大道东、内地官方新闻机构新华社香港分社办公室大楼。事隔近一年，警方拘捕一名 15 岁少年，控以一项暴动罪，案件今（3 日）在东区裁判法院少年庭提堂。少年下周二再提讯，届时需答辩，期间准保释。
+Elizabeth Secundy 也称为 Liz，是 Hallie Biden 的姐妹。 Hallie 是Hunter哥哥的遗孀，与 Hunter长期保持了不正当关系。 与此同时，Hunter还痴迷于与Liz 保持肉体上的交往，而 Liz 也会从Hunter那里“借”一些钱，因为似乎 Liz 的老公Joel 还在为找工作发愁。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04160046/0661F3AE-D17B-44B8-85FF-8FD04BABA65E.jpeg)
+从已经曝光的两人短信记录来看，Liz 早在2016年就已经与Hunter幽会了[1]。两人经常神神秘秘的通话，Liz 的老公难免会心生疑虑。
 
-15 岁少年被控去年 11 月 2 日，在跑马地皇后大道东新华社香港分社大楼外参与暴动。被告今日毋需答辩，押后至 11 月 10 日答辩，其间准保释，但不得离港，须居住报称地址，以及每星期到警署报到一次。
+*2016/8/9 23:23*
 
-据了解，控方指控被告出现在现场，与破坏新华社大楼的人士走得非常贴近，并无实质行为。警方事后翻查闭路电视片段拘捕被告。
+*Hunter: Wow re-reading that I can see how*​*Joel*​*might have some doubts. . . . . .*
 
-战友点评：
+亨特：哇，重新读一下，我可以看到为什么乔尔可能会怀疑*……*
 
-継之前两14岁男女被港共报复性的复核定罪，又一名青少年被邪恶的港共盯上，邪恶的中共贼心不死，香港被恶法笼罩之下没有安定日子，港人被剥夺自由言论抗义的权利，每天面临着只有港共狼狈为奸层出不穷的打压手段。法治曾经是香港的核心价值，而现在“一国一制”下，司法制度已死，都是政治判刑。司法里仅存的良知也被压制了。只有消灭邪恶中共才能还香港一个民主自由法治社会。
+这条短信可能意味着Joel已经怀疑到了Liz在外边有情人了吧，但似乎Hunter有种隐约的兴奋在其中，是不是他认为“偷情”是一种非常刺激的行为？
 
-以上观点仅代表笔者本人
+在另一条 08-20-2016 发给 Liz 短信中Hunter写到
 
-新闻来源：立场新闻
+“在​ 过去的*15*个月中，我在威*​*尔明顿（*​**Wilmington*​）的*​*旅行超过*300*次往返，我一次又一次地要求你们与我一起住。*…*但在过去的*15*个月中*… ​**Hallie​*和你（*​**Liz​*）可能是第*8*位*​*”
 
-https://www.thestandnews.com/court/%E8%A2%AB%E6%8C%87%E5%8F%83%E8%88%87%E5%88%91%E6%AF%80%E7%81%A3%E4%BB%94%E6%96%B0%E8%8F%AF%E7%A4%BE-15-%E6%AD%B2%E5%B0%91%E5%B9%B4%E4%BA%8B%E9%9A%94%E4%B8%80%E5%B9%B4%E8%A2%AB%E6%8E%A7%E6%9A%B4%E5%8B%95-%E6%8A%BC%E5%BE%8C%E4%B8%80%E5%91%A8%E7%AD%94%E8%BE%AF%E5%87%86%E4%BF%9D%E9%87%8B/
+Liz过去就住在威​ 尔明顿​Wilmington，同​ 时Hunter不断强调了2次过去15个月，说明早在2015 年底左右Hunter就已经与Liz秘密交往了。注意到，Hunter的哥哥 Beau Biden 是于2015年6月
 
-1+
+6日下葬。而2015年底是其哥哥去世不久，Hunter就已经与哥哥的遗孀有“交集”了。
+
+在发给 Liz 的短信中 Hunter 提到了哥哥的遗孀Hallie，这说明 Liz 知道 Hallie 与 Hunter保持着不正当关系，但 Liz 是如何与 Hunter 发展到肉体关系呢？谁是介绍人？是她的姐妹 Hallie 么？
+
+![]()Hunter同时带两人出去游玩（​ 嘿，昨晚很有趣，感谢你带我*​*们出*​*去*​**08-20-2016 17:00:05*） ，这个我​ 们是否就指的是**​ **Hallie + Liz + Hunter呢？三个人在一起玩什么呢，这么高兴？回忆一下所曝光出2018年以后Hunter手机中同时出现两个裸体女人的情况，您是否会有一些猜测呢？
+
+结合上述分析，Liz应该是在2015年底通过 Hallie 与 Hunter 走近的。 Hunter很有钱，通过向 Liz 送钱的方式将 Liz 拉下水，满足了Liz对金钱的需求，而Liz并不是真心喜欢Hunter，可
+
+Hunter却不依不饶。Liz 和 Hallie 同时与 Hunter 保持这种不正当关系， 而且相互知情。
+
+Hunter 希望 Liz 来到自己身边， 但 Liz 并没有同意。  Hunter在2018年7月为Liz租了一套公寓地点在 117​ Carpenters Road Greenville, DE 19807
+
+（绿色），而 Liz 的家就在728​     Nottingham Road, Wilmington, DE 19805（紫色），两个地​
+
+点的车程不到10分钟。这说明两人的关系又近了一步，偷情更方便了？从前面 Liz 丈夫可能怀疑 Liz 有出轨行为来看，Hunter不仅仅是在玩火，更是明目张胆的破坏别人的家庭。．
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04160108/image-3.jpeg)
+再来看另外一张有趣图片上的地址：Wilmington Delaware!  Delaware的缩写就是DE。是不是发现些什么有趣的事情，注意时间为 2019年3月12日。 图片中的女人是 Hallie 还是 Liz 呢？为什么是在家里做这种事情而不担心被发现呢？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04160152/image-4.jpeg)
+Hunter同时与两位家族内部的女性，而且是姐妹保持不正当关系，这种人还会信仰上帝么？还有道德底线么？破坏族内的家庭关系的人，还会在乎族外人的利益么？Hunter如此行为只能说明他的父亲Joe Biden对其言传身教所导致的，猜测Joe Biden只能更甚之。
+
+更多惊人爆料，请阅读GNews其他有关亨特家族的系列文章。
+
+参考：[1] ​ [硬](https://gnews.org/zh-hans/516149/)[盘](https://gnews.org/zh-hans/516149/)[揭秘第四期](https://gnews.org/zh-hans/516149/)[|](https://gnews.org/zh-hans/516149/)[手机短信内容曝光，亨特](https://gnews.org/zh-hans/516149/)[·](https://gnews.org/zh-hans/516149/)[拜登](https://gnews.org/zh-hans/516149/)[约](https://gnews.org/zh-hans/516149/)[炮篇，嫂子姐妹在中](https://gnews.org/zh-hans/516149/)[间](https://gnews.org/zh-hans/516149/)[？](https://gnews.org/zh-hans/516149/)
+
+2+
