@@ -1,45 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】「私隐」为名收紧多项查册要求　香港媒体监督权还存在吗？
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/529592/)
+## 11/4 财经快讯: 大麻和赌球合法,美国大选悬而未决,习总亚洲自立山头
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/529644/)
 
-整撰：文燕
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05044836/Picture4-2.png)图片来源：[https://image.cnbcfm.com/](https://image.cnbcfm.com/api/v1/image/105536998-1540826210277img_0345.jpg?v=1540826343&amp;w=630&amp;h=354)
+### **财经快讯**
 
-覆核：文白
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05033431/20201104-2320copy_EkrTk_1200x0.png)吕秉权
-香港媒体报导，参与制作港台《铿锵集》7.21 专题报道的编导蔡玉玲11月3日被捕，指她在节目中运用查阅车牌所得资料，涉嫌作出虚假陈述。港媒体指出，事件除令公众续关注 7.21 事件，亦相信港府要借该案继续收紧查册。
+1，尽管总统大选的结果并不明确，但美国股市周三仍在上涨。道琼斯工业平均指数上涨367.63点或1.3％，至27,847.66。 蓝筹基准在盘中高点飙升了800多点，随后收盘时有所回落。 标准普尔500指数上涨2.2％，至743.42点，至3,443.44点，此前该股一度上涨了3.5％。 纳斯达克综合指数上涨了3.9％，或430.21点，至11,590.78点。
 
-香港政府正逐步收紧多项公开资料查册：
+[https://www.cnbc.com/2020/11/03/stock-futures-open-flat-after-tuesdays-rally-as-traders-await-us-election-results.html](https://www.cnbc.com/2020/11/03/stock-futures-open-flat-after-tuesdays-rally-as-traders-await-us-election-results.html)
 
-1）选民登记册
+2，CNBC的吉姆·克莱默（Jim Cramer）在谈到大麻，体育博彩和乘车共享公司时说： “对于这三个具有市场影响力的行业来说，这是一个美好的夜晚。” 大麻在美国多州已经合法化。 [https://www.cnbc.com/2020/11/04/cramer-big-wins-for-cannabis-sports-betting-and-gig-companies.html](https://www.cnbc.com/2020/11/04/cramer-big-wins-for-cannabis-sports-betting-and-gig-companies.html)
 
-警察队员佐级协会去年 10 月，曾入禀司法覆核，要求禁止披露选民登记册中载列的姓名及地址资料。当时员佐级协会曾指，是为了避免警员及家人被「起底」。虽然其后高院上诉庭裁决可供候选人、新闻机构和政党查阅，但同时表明公开登记册会侵犯私隐。
+3，在美国总统选举投票结束大约12小时内，中共国家主席习近平在第三届中国国际进口博览会开幕式上用中文通过视频讲话说，该国将加快与欧盟，日本和韩国的贸易谈判。但他并没有提及美国。
 
-2）出生及死亡登记、婚姻登记
+[https://www.cnbc.com/2020/11/04/chinas-xi-says-country-will-speed-up-trade-talks-with-eu-japan-rok.html](https://www.cnbc.com/2020/11/04/chinas-xi-says-country-will-speed-up-trade-talks-with-eu-japan-rok.html)
 
-律政司司长郑若骅于 2018 年 1 月上任，但旋即被指在屯门海诗别墅的独立屋僭建，更被揭发与「邻居」，工程师学会前会长潘乐陶事实上是夫妇。当时传媒翻阅婚姻登记资料，发现 2 人于 2016 年 12 月 29 日登记结婚，进一步发现主婚人可能是前律政司司长梁爱诗，男方见证人则是运输及房屋局局长陈帆。
+4，中共意外地取消了蚂蚁集团（Ant Group）创纪录的370亿美元的上市活动。蚂蚁金服的联合子公司华北和捷北也将不再被允许出售理财产品。分析人士称这个举措意味着证监会正试图缩减马云金融帝国规模， 这和上个月马云和证监会冲突有关。
 
-现职侦查记者 Kyle（化名）解释，查阅出生死亡登记、婚姻登记，有助核实公职人员配偶及子女的身份，特别在监察官员处理政策时会否与家属有利益冲突。他举例，当政府出招压抑楼价措施，记者通常会调查处理政策的官员、行会成员，其本人及亲属在出招前会否有物业买卖。
+[https://www.reuters.com/article/us-ant-group-ipo-suspension/ants-ipo-fiasco-set-to-clip-its-wings-and-dent-its-value-idUSKBN27K046](https://www.reuters.com/article/us-ant-group-ipo-suspension/ants-ipo-fiasco-set-to-clip-its-wings-and-dent-its-value-idUSKBN27K046)
 
-但入境处于 2019 年 10 月收紧查阅，若要查阅出生证明需获当事人同意，或向入境主任申请，入境处表示，改动是基于保障私隐。而新闻机构并不属豁免范围之列。 Kyle 认为，如果官员没有公开配偶、子女的身份，传媒再难以透过查册，核查其亲属的身份，变相阻碍调查官员亲属财产、以及持有什么公司股权等利益状况。
+### **大选特集**
 
-3）车牌
+1，民主党亿万富翁迈克尔·布隆伯格（Michael Bloomberg）捐助超过1亿美元，以帮助民主党总统候选人乔·拜登在佛罗里达州，俄亥俄州和德克萨斯州获胜，尽管他偏爱的候选人将这三个州全部输给了川普总统。
 
-蔡玉玲因查册车牌时涉及虚假陈述被捕，是首名因查册被捕的新闻工作者。现时查阅车牌必须声明用途，三项用途分别为「进行法律程序」、「买卖车辆」及「其他有关交通运输事宜」，没有与学术研究或新闻报道有关的选项。翻阅资料，车辆登记的查册申请表在去年曾改动，把原有的「其他」一项改为「其他有关交通运输事宜」。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05033438/20201104-2220copy_cTZ4J_1200x0.png)图片来源：立场新闻
-战友点评：
+[https://www.breitbart.com/2020-election/2020/11/04/michael-bloomberg-blew-100-million-to-help-joe-biden-win-florida/](https://www.breitbart.com/2020-election/2020/11/04/michael-bloomberg-blew-100-million-to-help-joe-biden-win-florida/)
 
-政府以「私隐」之名收紧各项查册要求，然各查册系统均受《个人资料私隐条例》规管，不过条例列明，新闻工作可获豁免。蔡玉玲是次的案件与《私隐条例》无关，而是「虚假陈述」。
+2，今天，针对川普总统以及众多保守派记者和评论员的账户， 推特进行了又一次审查闪电战。Twitter在竞选期间对特朗普和特朗普竞选活动进行了65次审查，却对拜登账户保持不变，几个小时内审查了川普总统发表的三条推文。
 
-我们都知道，香港新闻界过往不少「重磅」调查报道，都是透过查册找出线索。正如浸大新闻系高级讲师吕秉权所言，表面上是私隐问题，更多的是中共因素，例如「巴拿马文件（Panama papers）事件，香港传媒透过查册，抖出好多中共领导人的家产问题。可见传媒查册已经触及当权者利益。
+[https://www.breitbart.com/tech/2020/11/04/twitter-censors-trump-conservative-journalists-as-election-disputes-continue/](https://www.breitbart.com/tech/2020/11/04/twitter-censors-trump-conservative-journalists-as-election-disputes-continue/)
 
-港共政府继续收紧查册，传媒的监督角色，也在日渐被削弱。
+3，川普竟选团包括前纽约市长朱利安尼先生，对已经对拜登选举造假提出诉讼。朱利安尼说，费城以选民欺诈，死人投票以及从新泽西州卡姆登赶来的宾客在宾夕法尼亚州投票而闻名，邮寄选票体现了民主党人所未有的选民欺诈水平。朱利安尼还提到了凌晨4:00在威斯康星州以及亚利桑那州，内华达州和密歇根州突然出现的120,000场投票。他说一场可能的全国性诉讼。
 
-以上观点仅代表笔者本人
+[https://www.breitbart.com/politics/2020/11/04/rudy-giuliani-launches-trump-campaign-claim-of-democrat-voting-fraud-in-philadelphia/](https://www.breitbart.com/politics/2020/11/04/rudy-giuliani-launches-trump-campaign-claim-of-democrat-voting-fraud-in-philadelphia/)
 
-资料来源：立场新闻
-
-[https://www.thestandnews.com/media/ab-%E7%89%B9%E7%A8%BF-%E7%A7%81%E9%9A%B1-%E7%82%BA%E5%90%8D%E6%94%B6%E7%B7%8A%E5%A4%9A%E9%A0%85%E6%9F%A5%E5%86%8A%E8%A6%81%E6%B1%82-%E9%A6%99%E6%B8%AF%E6%9C%AA%E4%BE%86%E9%82%84%E6%9C%89%E5%81%B5%E6%9F%A5%E5%A0%B1%E9%81%93%E5%97%8E/](https://www.thestandnews.com/media/ab-%E7%89%B9%E7%A8%BF-%E7%A7%81%E9%9A%B1-%E7%82%BA%E5%90%8D%E6%94%B6%E7%B7%8A%E5%A4%9A%E9%A0%85%E6%9F%A5%E5%86%8A%E8%A6%81%E6%B1%82-%E9%A6%99%E6%B8%AF%E6%9C%AA%E4%BE%86%E9%82%84%E6%9C%89%E5%81%B5%E6%9F%A5%E5%A0%B1%E9%81%93%E5%97%8E/)
+#### **By：【秘翻组·金融法律组】**
 
 0

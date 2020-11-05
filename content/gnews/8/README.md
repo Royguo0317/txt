@@ -1,61 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 密歇根 UPS 员工举报分局主管组织人员非法变更选票邮戳使选票被接受
-` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/529596/)
+## 【世界多语言图文】2020/10/24-25 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/529722/)
 
-内新闻：背靠背
+战友之家图文摘要及多语种组
 
-2020年11月5日，记者Jame O’keefe推出一段录音，内容是密歇根 UPS 举报人详述上级指令：将2020年11月3日收到的迟来的邮寄选票的日期推迟，以便它们被接受，纳入计票范围。
+[273-274\_English\_1024-1025\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05061007/273-274_English_1024-1025_CCP_Virus_Updates-2.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05061007/273-274_English_1024-1025_CCP_Virus_Updates-2.pdf)
 
-举报人称今早收到主管指令，”把它们与标准信件分开，这样他们就可以在上面盖上昨天日期的邮戳，然后把它们放进去。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05035353/image-96.png)
-记者：您在哪里工作？
+[273-274\_German\_1024-1025\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04224145/273-274_German_1024-1025_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04224145/273-274_German_1024-1025_CCP_Virus_Updates.pdf)
 
-举报人：我在特拉弗斯市（Traverse City）邮寄工作，具体是巴洛分局（Barlow branch）。
+[273-274\_Japanese\_1024-1025\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04224145/273-274_Japanese_1024-1025_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04224145/273-274_Japanese_1024-1025_CCP_Virus_Updates.pdf)
 
-记者：你的老板今天早上告诉你和你的同事一些让你震惊的事情，它是什么？
+[273-274\_Spanish\_1024-1025\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04224145/273-274_Spanish_1024-1025_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04224145/273-274_Spanish_1024-1025_CCP_Virus_Updates.pdf)
 
-举报人：我们今早接到一个指令，到信箱和收集箱里收集我们能找到的任何选票。只是一般的外发邮件，在当天结束前将他们分开，以便他们可以手工给它们（邮件）盖上前一天日期的邮戳，今天是11月4日，以示澄清。
-
-记者：你的老板是谁？何职？
-
-举报人：乔纳森（Johnathan）是直接主管。是的，目前他是巴洛分局（Barlow branch）主管。那么，我有，这只是一个道听途说，另一个邮局的邮递员说，他们看到邮政局长在做这件事。如果放在平常的一天，这事情会是配送中心文员们处理。
-
-记者：那么，11月3日选举日晚8点，上诉法院裁定选票必须在那个时候。你被告知了什么？
-
-举报人：今天把它们分开，这样他们就可以用昨天的日期标记它们（选票）了。然后通过快递系统把选票送到他们需要去的地方。
-
-记者：这显然室试图规避密歇根州法律允许延迟投票。你说有一个篮子，送信的人应该把选票放在哪里。选票现在在哪里？
-
-举报人：他们把它们装进快递袋，送到配送中心了。关于篮子，有个标准篮子，所有的新建都应该放那里，旁边还有一个盆子，我们应该把今天收集到的所有选票都放进去。
-
-记者：什么驱使你站出来？
-
-举报人：我不喜欢草草了事，，那是腐败，还有我知道邮局政治倾向，这看起来不太对。
-
-记者：你对其他看到这种情况的邮递员有什么忠告？
-
-举报人：举报这样的事情。我们在这个国家怎么可能有诚信？如果我们对这样事情视而不见。基于一个规模的问题。
-
-记者：你担心被打击报复吗？
-
-举报人：我过去有过举报者政策对我不利的情况，所以，是的。
-
-记者：我们必须联系乔纳森克拉克（Jhnathan Clarke）来发表评论。
-
-（记者拨通乔纳森电话）
-
-记者：嘿，请问是乔纳森吗？
-
-乔纳森：是的。
-
-记者：嘿，我是Vertas项目的记者，Jame O’keefe。我们得知你们一直在给选票加盖以前日期邮戳，11月3日。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05035612/image-97.png)
-（乔纳森挂断记者电话）
-
-记者：他刚刚挂断我电话。他刚刚挂断我电话。 （视频结束）
-
-稍早前川普总统推文指出密歇根州选票造假行为。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05040123/image-98.png)
-1+
+0
