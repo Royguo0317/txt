@@ -13,26 +13,26 @@
 
 
 
-### [【文字版】11/4/2020 路德时评（路安墨谈）：川普凌晨视频宣布大选获胜；全美各地骚乱游行聚集；大选会出现的各种结局分析](/content/gnews/1/README.md)
+### [拜登竞选造假系列一：荒唐！美国亚特兰大市开票现场惊现中共国顺丰快递包](/content/gnews/1/README.md)
+ ` GM101`
+
+### [【文字版】11/4/2020 路德时评（路安墨谈）：川普凌晨视频宣布大选获胜；全美各地骚乱游行聚集；大选会出现的各种结局分析](/content/gnews/2/README.md)
  ` 喜马拉雅-华盛顿DC站`
 
-### [爆料革命终极之战系列十一：拜登等卖美贼照抄中共作业，阻止底特律人民监督投票过程公开造假](/content/gnews/2/README.md)
+### [爆料革命终极之战系列十一：拜登等卖美贼照抄中共作业，阻止底特律人民监督投票过程公开造假](/content/gnews/3/README.md)
  ` GM101`
 
-### [【热点播报】突发：大选幽灵又添一城！川普竞选团队将要求威斯康星州立刻重新计票！](/content/gnews/3/README.md)
+### [【热点播报】突发：大选幽灵又添一城！川普竞选团队将要求威斯康星州立刻重新计票！](/content/gnews/4/README.md)
  ` 纽约香草山农场`
 
-### [独家‼️亨特·拜登疑似参与叶简明收购美国科文](/content/gnews/4/README.md)
+### [独家‼️亨特·拜登疑似参与叶简明收购美国科文](/content/gnews/5/README.md)
  ` 秘密翻译组G-Translators`
 
-### [视频郭文贵先生于9月23日对美国大选做出了预测，并谈到了即将到来的灭共之战](/content/gnews/5/README.md)
+### [视频郭文贵先生于9月23日对美国大选做出了预测，并谈到了即将到来的灭共之战](/content/gnews/6/README.md)
  ` 秘密翻译组G-Translators`
 
-### [亨特·拜登与其合伙人Eric Schwerin撕破脸皮后的续集：空手套白狼](/content/gnews/6/README.md)
+### [亨特·拜登与其合伙人Eric Schwerin撕破脸皮后的续集：空手套白狼](/content/gnews/7/README.md)
  ` 秘密翻译组G-Translators`
-
-### [川普总统连任系列五:突发，拜登密歇根州投票造假被抓现行！](/content/gnews/7/README.md)
- ` GM101`
 
 ### [网爆底特律计票现场共和党计票监督员被驱离 不让进入计票房间](/content/gnews/8/README.md)
  ` vog_dongdong_vog`
