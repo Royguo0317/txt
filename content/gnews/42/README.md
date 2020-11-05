@@ -1,13 +1,113 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 硬盘门内容泄露：亨特·拜登收到牙科、眼科账单
-` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/526639/)
+## 川普获胜歌
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/527758/)
 
-翻译：为子孙爱七哥农场翻译组
+*原创：桂花酒｜审核：海阔天空｜引言、PAGE：玄天生；*
 
-邮件英文原件：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04012749/Dental-Vision-01.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04012831/Dental-Vision-02.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04083711/Dental-Vision-03.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04083730/Dental-Vision-04.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04083741/Dental-Vision-05.jpg)
-邮件中文翻译：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04090117/16-6-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04090127/16-6-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04090200/16-6-3.png)
+**引言：**
+
+美国大选、作为副总统的拜登能如此出卖美国人民的利益、未来；能出卖自己对美国的忠城、保护；能出卖自己的灵魂，甘愿成为中共邪魔的工具，无耻不足以形容。一场大选，能看得出谁才是真正爱国、真正为了美国、为了美国人民付出一生而奋斗的男人，对信仰的坚定，让他能得到神的眷顾，自选者，神必助之。接下来由战友–桂花酒创作的原创诗歌送上祝福。
+
+**川普获胜歌**
+
+——-原创
+
+川普确诊，输赢几何？
+
+或有人云，拜登不错。
+
+彬彬有礼，悲情良多。
+
+家庭和美，众人相贺。
+
+儿子从军，老子登科。
+
+少有不凡，长者谦和。
+
+吾儿聪慧，我爸总统。
+
+前后八载，暗通中共。
+
+孔子学院，遍地硕果。
+
+千人计划，泱泱大国。
+
+偷卖科技，损美肥我。
+
+内外勾结，王八真多。
+
+纽约 D C，邮报日报。
+
+推特脸书，只留颂歌。
+
+电视网络，都得趴窝。
+
+病毒真相？全凭我说。
+
+贸易谈判，忽悠美国。
+
+全部撒谎，谁敢点破？
+
+霹雳年始，川普封国。
+
+世卫站台，佩洛西喝！
+
+源自自然，人造胡说。
+
+有闫丽梦，报告病毒。
+
+推特封号，让你能说。
+
+彼闫丽梦，抑郁症者。
+
+饲养仓鼠，诱骗从郭。
+
+期民伪类，摇唇鼓舌。
+
+胆敢报告，病毒人造，
+
+抓走老母，威胁恐吓。
+
+前后四次，不如牲畜！
+
+地狱魔鬼，没我邪恶。
+
+天降硬盘，讯如海啸。
+
+刺破谎言，江湖笑傲。
+
+乱伦虐童，言为己悼。
+
+渤海华美，多方围剿。
+
+文贵出手，封喉一笑！
+
+决战两周，胜负分晓。
+
+自建平台，发声渠道。
+
+战友云集，以笔代刀。
+
+天翻地覆，民意倒戈。
+
+真相在手，共党奈何？
+
+苦共久矣，为真不破！
+
+爆料革命，灭共有我。
+
+正义集结，铲除假恶。
+
+土共尚在，不可骄奢！
+
+编辑 【[喜马拉雅战鹰团](https://spark.adobe.com/page/47IOHn6K0g22A/)】-点击spark adobe版
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+![]()![](https://spark.adobe.com/page/47IOHn6K0g22A/images/a6647fe9-2abf-4f7f-915a-552b85d4bd6b.jpg?asset_id=d3fb3edf-3341-4c61-add4-dcefe289b343&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
 0

@@ -1,17 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家【3-31】亨特拜登与嫂子赫莉•拜登的邮件曝光
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/527723/)
+## 独家【3-35】亨特拜登定期收到的汇款单曝光
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/527762/)
 
-翻译：robensenna
-校对：Feiyi
-编辑：Feiyi
+**翻译：挺郭大刺猬
+校对：黎明的光芒
+编辑：自由中华**
 
-以下四封邮件（#31）是在前副总统乔•拜登的老友弗瑞德•希尔斯，乔•拜登的次子亨特•拜登，以及亨特•拜登的嫂子赫莉•拜登（已故乔•拜登长子博•拜登之妻）之间传递的。时间锁定在2018年12月6日。邮件话题主要围绕博•拜登基金会的首席运营官乔希（Josh）的工资进行讨论。
+表格是一个定期汇款授权书，汇款人是owasco pc公司，收款人信息是Roberta
 
-博•拜登2015年因病去世后，博•拜登基金会的财务签字权看来掌握在亨特•拜登和赫莉•拜登手中。弗瑞德•希尔斯询问亨特•拜登是否可以帮助乔希（Josh）的私人有限责任公司找一些生意，以弥补博•拜登基金会2017年秋天给乔希减薪2500美元。在与弗瑞德•希尔斯以及赫莉•拜登共同交流的邮件中，亨特•拜登表现了生意场上成熟老练的一面，强调之前减薪是因为公司的艰难时期不得已而为之，并且表达了对乔希的理解，更不忘说出对拜登家族其他人在哥哥去世后口蜜腹剑的不满，最后大度地表示如果其他人不帮忙，他会想办法弥补乔希的损失。
-
-耐人寻味的是，亨特•拜登在给嫂子赫莉•拜登私下的邮件中却对她的工作能力和人格极尽讽刺挖苦，表现出零尊重。对此，赫莉似乎习以为常，并没有回邮件捍卫尊严，而是轻描淡写地只回复了弗瑞德•希尔斯：“谢谢你，弗瑞德！”从这些邮件中，我们可以看到拜登家族成员之间的扭曲变态关系，弟弟在哥哥去世后（也可能是去世前）和嫂子乱伦，几年之后却看不到他对嫂子的一点点关爱与尊重。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04092137/0001-1-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04092138/0002-1-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04092151/0003-1-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04092232/0004-1-scaled.jpg)
+以下是汇款单与翻译：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04094803/WhatsApp-Image-2020-11-04-at-17.50.20-1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04094821/WhatsApp-Image-2020-11-04-at-17.50.20-2.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04094828/WhatsApp-Image-2020-11-04-at-17.50.20.jpeg)
 0

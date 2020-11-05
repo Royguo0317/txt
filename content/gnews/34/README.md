@@ -1,59 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 朱利安尼 推文系列 1
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/527896/)
+## 伟大的美国选民们，选票投给谁？
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/527957/)
 
-*翻译/简评：Beicy老師；校对：TCC；审核：TCC；Page：草根 文人*
+*作者：桂花酒｜校对：宁缺｜审核：海阔天空｜Page：玄天生；*
 
-朱利安尼(Rudy Giuliani)是前任纽约市长，川普总统的私人律师，更是最了解RICO法案的人。美国大选投票截止日，就是今天了。我们看看朱老爷子，如何犀利的发推帮川普总统助选。
+**上帝与你们同在！**
 
-## 朱利安尼: 撒谎的拜登正叫得血管都快爆了!
+亲爱的美国选民！今天你们即将改写历史。不仅是美国，还包括全世界。
 
-[02/11/2020](https://twitter.com/RudyGiuliani/status/1323086550138298368)
+你们的两位总统竞选人，川普和拜登。年龄相仿，一位确诊中共病毒，三天后奇迹般康复。一位在集会上把对手说成乔治，对，他不是瞌睡虫。
 
-![]()![](https://spark.adobe.com/page/PVpw5AImNin1L/images/ed29fb71-acde-4bb2-b4d9-cb0cfd06f36e.png?asset_id=8b5b3167-69f6-4d34-be19-08868742f52f&amp;img_etag=%2263876c821509f2b8512f7cc0415a9256%22&amp;size=2560)
+川普总统儿女们都有各自的工作，家庭和睦。拜登儿子亨特毒瘾缠身，滥交乱伦。拜登说，我要像对待我的家人一样对待你们，亲爱的选民！难道你们和他一样打瞌睡？
 
-你是否意识到#科技，#MSM和#腐败的民主党人试图以牺牲美国人民的利益为代价来进行腐败的骗局。
+四年来，你们的税负少了，工作机会多了，生活改善了。但是自从中共放出病毒之后，你们面临更多威胁，工作机会少了，平静的生活毁了。想想自从中共病毒在美国传播开来，你们为什么呆在家里？为什么口罩成了必需品？为什么要保持社交距离？又为什么不能像从前那样自由自在到酒吧里休闲放松？
 
-正如川普所言，他们的”铁幕审查”，就证明他们是”人民的敌人”。
+一个多月前，美国多个部门、官员包括媒体都有拜登的神秘邮件，对，硬盘。目前曝光的邮票证明，亨特.拜登家族乱伦，娈童虐童。亨特还到中国，到乌克兰，担任了一堆公司高管、合伙人、董事。这是个被海军部队开除的瘾君子！他的父亲说他对亨特的事情一无所知。是的，他一无所知，可为什么动辄几千万、几亿、几十亿美元的金钱源源不断进入了拜登家的腰包？是谁在那些协议合同上签的字？是谁和中共一起偷走了美国的科技？ 是谁出卖了美国的国家利益？是谁允许中共在南海岛礁军事化？是谁把偷走了美国人的工作机会？
 
-[01/11/2020](https://twitter.com/RudyGiuliani/status/1323019798046015488)
+可是为什么硬盘出现之后，全美国的新闻媒体都在沉默？除了Fox、纽约邮报、Gtv、Gnews等少数几家传媒公司勇敢地发声，为什么其他的新闻媒体都默不作声？难道他们不知道硬盘信息吗？难道他们不知道拜登是总统竞选人？还是他们害怕了？被人捂住了嘴？
 
-[!\[\]()!\[\](https://spark.adobe.com/page/PVpw5AImNin1L/images/e862d8bd-efd6-4515-adc9-c0cdd0126df3.png?asset_id=1493b383-6b65-42be-b18f-21fe78567fde&amp;img_etag=%22090912394d6ea91be627dfd5199c72c0%22&amp;size=2560)](https://spark.adobe.com/page/PVpw5AImNin1L/images/e862d8bd-efd6-4515-adc9-c0cdd0126df3.png?asset_id=1493b383-6b65-42be-b18f-21fe78567fde&amp;img_etag=%22090912394d6ea91be627dfd5199c72c0%22&amp;size=1024)
+伟大的选民们！你们心明眼亮，你们热爱自由，你们热爱美国！
 
-“中共国不是一个问题，也不是一个威胁。”
+伟大的选民们！该出手投出你最伟大的选票，去告诉所有美国人，谁也不能人前假装君子，而背地却偷偷卖国。谁也不能控制舆论掩盖真相。腐败的罪犯不能做美国的总统！人民需要自由，美国需要再次伟大！世界将因为你的选票改变，天佑美国！
 
-谁说的？
-
-傻子？
-
-一个共产党员？
-
-或者某人，他的家人从中国共产党人那里得到了几百万的钱？
-
-絕不是川普
-
-是北京拜登
-
-[01/11/2020](https://twitter.com/RudyGiuliani/status/1323010860583948288)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/PVpw5AImNin1L/images/ce832486-3fa5-44b9-9c1c-7951550c0107.png?asset_id=ca8e85a0-6f10-4588-a51f-3bed4c316159&amp;img_etag=%2253f5bf799b12a0e111f73ecd1b5040f0%22&amp;size=2560)](https://spark.adobe.com/page/PVpw5AImNin1L/images/ce832486-3fa5-44b9-9c1c-7951550c0107.png?asset_id=ca8e85a0-6f10-4588-a51f-3bed4c316159&amp;img_etag=%2253f5bf799b12a0e111f73ecd1b5040f0%22&amp;size=1024)
-
-撒谎的拜登正在大叫著，血管都快爆了。
-
-[30/10/2020](https://twitter.com/RudyGiuliani/status/1322307812274393089)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/PVpw5AImNin1L/images/6cc0809c-5126-4dac-8cc0-fd57886076fc.png?asset_id=dd6899cf-04b1-4b12-b1d5-974d62b7f186&amp;img_etag=%22bddac2f730ae217bda789800d45cbb29%22&amp;size=2560)](https://spark.adobe.com/page/PVpw5AImNin1L/images/6cc0809c-5126-4dac-8cc0-fd57886076fc.png?asset_id=dd6899cf-04b1-4b12-b1d5-974d62b7f186&amp;img_etag=%22bddac2f730ae217bda789800d45cbb29%22&amp;size=1024)
-
-朱利安尼幫你解析:那些被他們审查的罪行
+编辑 【[喜马拉雅战鹰团](https://spark.adobe.com/page/AytinuCWiMqSn/)】-点击spark adobe版
 
 [点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
 [点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)[原文链接](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/PVpw5AImNin1L/)】-点击spark adobe版
-
-[!\[\]()!\[\](https://spark.adobe.com/page/PVpw5AImNin1L/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/PVpw5AImNin1L/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/AytinuCWiMqSn/images/e8fc6b81-69f8-4773-9d65-5cd3a50cb29a.jpg?asset_id=6563820d-3fcb-42e2-b35e-ff4a43779319&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/AytinuCWiMqSn/images/e8fc6b81-69f8-4773-9d65-5cd3a50cb29a.jpg?asset_id=6563820d-3fcb-42e2-b35e-ff4a43779319&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

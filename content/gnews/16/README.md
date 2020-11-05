@@ -1,53 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特拜登的淫乱生活
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/528455/)
+## 渤海华美的原始注册资本从何而来
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/528511/)
 
-亨特拜登为嫂子的妹妹租房，同时与嫂子和其妹妹保持不正当关系
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04162344/D893CE4A-8670-474E-AAE7-122E202C5A32.png)
+文宣 YYZ
 
-文/DongDong   审/青椒文喜 文璟 拉丁boy  图/YYZ
+2017年9月至12月期间王昕跟亨特，埃里克，詹姆斯（吉米） ，德文的一系列主题为渤海华美的注册资金支付的邮件。
 
-Elizabeth Secundy 也称为 Liz，是 Hallie Biden 的姐妹。 Hallie 是Hunter哥哥的遗孀，与 Hunter长期保持了不正当关系。 与此同时，Hunter还痴迷于与Liz 保持肉体上的交往，而 Liz 也会从Hunter那里“借”一些钱，因为似乎 Liz 的老公Joel 还在为找工作发愁。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04160046/0661F3AE-D17B-44B8-85FF-8FD04BABA65E.jpeg)
-从已经曝光的两人短信记录来看，Liz 早在2016年就已经与Hunter幽会了[1]。两人经常神神秘秘的通话，Liz 的老公难免会心生疑虑。
+1. 王昕，渤海华美投资合伙人
+2. Hunter Biden，2019年卸任渤海华美董事
+3. James Bulger,也称作吉米，代表Throntons Group（桑顿公司）渤海华美董事
+4. Devon Acher，代表Ulysse & Skaneateles 公司分拆前，渤海华美副董事长
+5. Eric Schwerin，Rosemont Seneca Bohai 公司主席
+6. 李祥生，渤海华美总裁，投委会主席，董事
+7. 余飞强，渤海华美法务总监
+8. 叶桐，未知
 
-*2016/8/9 23:23*
 
-*Hunter: Wow re-reading that I can see how*​*Joel*​*might have some doubts. . . . . .*
+根据渤海华美官网介绍，贷款人王昕目前是渤海华美7个投资伙伴中的一员。王昕贷款给Hunter、 James、Devon、Eric总额158,000美元，用来支付渤海华美的原始注册资金，并教会他们怎样操作才能符合中国的注册法规，使他们顺理成章的不拿一分钱而拥有了渤海华美的原始股权，成为了董事。
 
-亨特：哇，重新读一下，我可以看到为什么乔尔可能会怀疑*……*
+这四位身后代表着，亨特-美国前副总统乔.拜登；Devon-亨特前生意伙伴，前国务卿约翰克里的竞选顾问；James-前马萨诸塞州参议院议长的威廉.布尔格之子；Eric- 他目前担任美国海外保 护美国遗产委员会成员，2015 年 4 月奥巴马总统任命。曾在美国政府担任商务部长的 高 级政策顾问，并在白宫担任商务联络部主任和中国贸易关系工作组的政策和外联协调员 。
 
-这条短信可能意味着Joel已经怀疑到了Liz在外边有情人了吧，但似乎Hunter有种隐约的兴奋在其中，是不是他认为“偷情”是一种非常刺激的行为？
+渤海的股东包括中国银行、泰达控股、全国社保基金、国家开发银行、中国人寿、中国邮储银行等领先金融和实业机构。
 
-在另一条 08-20-2016 发给 Liz 短信中Hunter写到
+已投资的项目有世界汽车密封和减震系统领域的全球龙头企业美国瀚德汽车控股有限公司（Henniges Automotive）等。国内已投资的项目有中国石化销售有限公司，滴滴打车、中广核电力、三生制药等诸多项目。
 
-“在​ 过去的*15*个月中，我在威*​*尔明顿（*​**Wilmington*​）的*​*旅行超过*300*次往返，我一次又一次地要求你们与我一起住。*…*但在过去的*15*个月中*… ​**Hallie​*和你（*​**Liz​*）可能是第*8*位*​*”
+王昕-渤海华美-渤海产业投资（中银国际控股）-渤海租赁-渤海金控-海航集团-王岐山
 
-Liz过去就住在威​ 尔明顿​Wilmington，同​ 时Hunter不断强调了2次过去15个月，说明早在2015 年底左右Hunter就已经与Liz秘密交往了。注意到，Hunter的哥哥 Beau Biden 是于2015年6月
+随着邮件的陆续曝光，做为渤海华美的合作投资公司之一Rosemont Seneca公司的主席，Eric Schwerin关闭了他自己的社交媒体账号。至今没有任何相关人站出来做任何声明。
 
-6日下葬。而2015年底是其哥哥去世不久，Hunter就已经与哥哥的遗孀有“交集”了。
+引用：[http://www.bhrpe.com/](http://www.bhrpe.com/)
 
-在发给 Liz 的短信中 Hunter 提到了哥哥的遗孀Hallie，这说明 Liz 知道 Hallie 与 Hunter保持着不正当关系，但 Liz 是如何与 Hunter 发展到肉体关系呢？谁是介绍人？是她的姐妹 Hallie 么？
 
-![]()Hunter同时带两人出去游玩（​ 嘿，昨晚很有趣，感谢你带我*​*们出*​*去*​**08-20-2016 17:00:05*） ，这个我​ 们是否就指的是**​ **Hallie + Liz + Hunter呢？三个人在一起玩什么呢，这么高兴？回忆一下所曝光出2018年以后Hunter手机中同时出现两个裸体女人的情况，您是否会有一些猜测呢？
 
-结合上述分析，Liz应该是在2015年底通过 Hallie 与 Hunter 走近的。 Hunter很有钱，通过向 Liz 送钱的方式将 Liz 拉下水，满足了Liz对金钱的需求，而Liz并不是真心喜欢Hunter，可
+> [People](https://africa-bd.com/people/)
 
-Hunter却不依不饶。Liz 和 Hallie 同时与 Hunter 保持这种不正当关系， 而且相互知情。
 
-Hunter 希望 Liz 来到自己身边， 但 Liz 并没有同意。  Hunter在2018年7月为Liz租了一套公寓地点在 117​ Carpenters Road Greenville, DE 19807
 
-（绿色），而 Liz 的家就在728​     Nottingham Road, Wilmington, DE 19805（紫色），两个地​
-
-点的车程不到10分钟。这说明两人的关系又近了一步，偷情更方便了？从前面 Liz 丈夫可能怀疑 Liz 有出轨行为来看，Hunter不仅仅是在玩火，更是明目张胆的破坏别人的家庭。．
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04160108/image-3.jpeg)
-再来看另外一张有趣图片上的地址：Wilmington Delaware!  Delaware的缩写就是DE。是不是发现些什么有趣的事情，注意时间为 2019年3月12日。 图片中的女人是 Hallie 还是 Liz 呢？为什么是在家里做这种事情而不担心被发现呢？
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04160152/image-4.jpeg)
-Hunter同时与两位家族内部的女性，而且是姐妹保持不正当关系，这种人还会信仰上帝么？还有道德底线么？破坏族内的家庭关系的人，还会在乎族外人的利益么？Hunter如此行为只能说明他的父亲Joe Biden对其言传身教所导致的，猜测Joe Biden只能更甚之。
-
-更多惊人爆料，请阅读GNews其他有关亨特家族的系列文章。
-
-参考：[1] ​ [硬](https://gnews.org/zh-hans/516149/)[盘](https://gnews.org/zh-hans/516149/)[揭秘第四期](https://gnews.org/zh-hans/516149/)[|](https://gnews.org/zh-hans/516149/)[手机短信内容曝光，亨特](https://gnews.org/zh-hans/516149/)[·](https://gnews.org/zh-hans/516149/)[拜登](https://gnews.org/zh-hans/516149/)[约](https://gnews.org/zh-hans/516149/)[炮篇，嫂子姐妹在中](https://gnews.org/zh-hans/516149/)[间](https://gnews.org/zh-hans/516149/)[？](https://gnews.org/zh-hans/516149/)
-
-2+
+1+

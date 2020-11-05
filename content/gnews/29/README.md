@@ -1,67 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特拜登邮件泄露拜登对其子商业活动知情
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/528015/)
+## 【香港要闻】被指参与刑毁湾仔新华社　15 岁少年事隔一年被控暴动
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/528117/)
 
-*新闻来源：《国家脉动》（The National Pulse）；作者：拉希姆·卡萨姆 （RAHEEM KASSAM ）、娜塔莉·温特斯 （NATALIE WINTERS）；发布时间：2020年10月30日*
+搜集：卡西欧 文粤
 
-*翻译/简评：Dreamer文童；校对：Beicy-数学老师；审核：海阔天空 ；Page：草根 文人*
+编撰：心听见
 
-**简评：**
+审核：MY
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04113510/%E8%A2%AB%E6%8C%87%E5%8F%83%E8%88%87%E5%88%91%E6%AF%80%E7%81%A3%E4%BB%94%E6%96%B0%E8%8F%AF%E7%A4%BE.png)图片：立场新闻
+据(香港新闻报道)去年11 月2 日，有网民发起港岛多个「流水式」集会，期间有示威者怀疑以喷漆、锤仔及投掷汽油弹等方式破坏位于皇后大道东、内地官方新闻机构新华社香港分社办公室大楼。事隔近一年，警方拘捕一名 15 岁少年，控以一项暴动罪，案件今（3 日）在东区裁判法院少年庭提堂。少年下周二再提讯，届时需答辩，期间准保释。
 
-亨特·拜登（Hunter Biden）硬盘里的电子邮件显示了，2011年他将时任副总统的父亲乔·拜登（Joe Biden）作为筹码，安排他人与副总统会面，从中收取10%的中介费。乔·拜登（Joe Biden）多次在公众面前声称，其从不与儿子讨论生意方面的事情，以表示其对儿子的商业活动并不知晓。然而，此次曝光出来的电子邮件清楚显示，亨特·拜登（Hunter Biden）与其商业伙伴合伙谋划安排他人与时任副总统乔·拜登（Joe Biden）会面，并且邮件也明确提到中介费的比例是10%。虽然目前未知会面是否安排成功，以及会面商谈的内容，但是这些电子邮件已经可以证明，亨特·拜登（Hunter Biden）和副总统的行为涉嫌犯罪，美国相关司法部门一定会介入调查。
+15 岁少年被控去年 11 月 2 日，在跑马地皇后大道东新华社香港分社大楼外参与暴动。被告今日毋需答辩，押后至 11 月 10 日答辩，其间准保释，但不得离港，须居住报称地址，以及每星期到警署报到一次。
 
-**独家：亨特邮件要求 “与父亲正式会面”，以确保数十亿美金的交易**
+据了解，控方指控被告出现在现场，与破坏新华社大楼的人士走得非常贴近，并无实质行为。警方事后翻查闭路电视片段拘捕被告。
 
-《国家脉动》（The National Pulse）确认了亨特·拜登（Hunter Biden）硬盘里的电子邮件，这些邮件显示他和他的商业伙伴正在协调向时任副总统乔·拜登（Joe Biden）做介绍，以巩固一笔涉及数十亿美金的债券交易。
+战友点评：
 
-2011年6月份的一封主题为“会面”的电子邮件，显示亨特·拜登（Hunter Biden）的商业伙伴肖恩·康伦（Sean Conlon）告诉前副总统的儿子，“我们需要安排这些人参加一个活动或者什么事情，可以让他们与你父亲正式会面。后续他们可以与幕僚长谈谈”。
+継之前两14岁男女被港共报复性的复核定罪，又一名青少年被邪恶的港共盯上，邪恶的中共贼心不死，香港被恶法笼罩之下没有安定日子，港人被剥夺自由言论抗义的权利，每天面临着只有港共狼狈为奸层出不穷的打压手段。法治曾经是香港的核心价值，而现在“一国一制”下，司法制度已死，都是政治判刑。司法里仅存的良知也被压制了。只有消灭邪恶中共才能还香港一个民主自由法治社会。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/BcAO93almWomx/images/a6a6279f-9f08-4534-9090-4e763a5d2080.png?asset_id=ff57baeb-3dad-493b-b1a1-881c6ecd16ca&amp;img_etag=%2284bdb7593429ce616ce5a075d305d8be%22&amp;size=2560)](https://spark.adobe.com/page/BcAO93almWomx/images/a6a6279f-9f08-4534-9090-4e763a5d2080.png?asset_id=ff57baeb-3dad-493b-b1a1-881c6ecd16ca&amp;img_etag=%2284bdb7593429ce616ce5a075d305d8be%22&amp;size=1024)
+以上观点仅代表笔者本人
 
-![]()![](https://spark.adobe.com/page/BcAO93almWomx/images/d69cd1df-cc80-481c-acd6-facc0a6d6a7a.png?asset_id=2fcea06a-84fc-4785-8b17-a99fbec8920e&amp;img_etag=%226adf090b6fc57ce2bf7f35af1c80f325%22&amp;size=2560)
+新闻来源：立场新闻
 
-一封发送给亨特·拜登（Hunter Biden）的电子邮件，试图接近副总统进行可能价值数十亿美元的商业交易。
+https://www.thestandnews.com/court/%E8%A2%AB%E6%8C%87%E5%8F%83%E8%88%87%E5%88%91%E6%AF%80%E7%81%A3%E4%BB%94%E6%96%B0%E8%8F%AF%E7%A4%BE-15-%E6%AD%B2%E5%B0%91%E5%B9%B4%E4%BA%8B%E9%9A%94%E4%B8%80%E5%B9%B4%E8%A2%AB%E6%8E%A7%E6%9A%B4%E5%8B%95-%E6%8A%BC%E5%BE%8C%E4%B8%80%E5%91%A8%E7%AD%94%E8%BE%AF%E5%87%86%E4%BF%9D%E9%87%8B/
 
-在全文中，这封利用与乔·拜登（Joe Biden）会面以换取“更多债券的交易”的电子邮件写道：
-
-如果他们得到其他票面价值100亿美元的10个债券（交易），我们将获得委托书。虽然有些牵强，德文（Devon）说他与他的教授谈过并且这些已经交易。我们得到10%的费用。我们需要安排这些人参加一个活动或者什么事情，可以让他们与你父亲正式会面。后续他们可以与幕僚长谈谈。让我知道我们什么时候可以做到。简言之，如果纳吉（Nagi）能做到，我们能得到更多可以动用的债券。问候您在波西塔诺（Positano）努力工作的伙伴！肖恩（Sean）
-
-[!\[\]()!\[\](https://spark.adobe.com/page/BcAO93almWomx/images/54ea4b36-47ba-4916-9592-6620480d97ff.jpg?asset_id=4c54bea8-bffc-4a4e-9eb2-4cbb164e2ae9&amp;img_etag=%22d2ac8dab2961ac29afd524909544357c%22&amp;size=1024)](https://spark.adobe.com/page/BcAO93almWomx/images/54ea4b36-47ba-4916-9592-6620480d97ff.jpg?asset_id=4c54bea8-bffc-4a4e-9eb2-4cbb164e2ae9&amp;img_etag=%22d2ac8dab2961ac29afd524909544357c%22&amp;size=1024)
-
-根据随后的电子邮件，“每笔债券价值超过21亿美元”。
-
-![]()![](https://spark.adobe.com/page/BcAO93almWomx/images/080acce1-dbe6-426d-b14a-8de59a4f0117.png?asset_id=1cc418c9-be9a-4f30-b9ab-21733d228913&amp;img_etag=%22e50f633489a4d89bb43a668dfa973218%22&amp;size=2560)
-
-![]()![](https://spark.adobe.com/page/BcAO93almWomx/images/b8442ee6-ce41-44ec-9289-750c41fbf9f7.png?asset_id=350268c8-4a4c-4cfd-b721-7c7d6ff76e5c&amp;img_etag=%22c2cf323656588c9dc5b7b949427b75ff%22&amp;size=2560)
-
-亨特（Hunter）特别问到他能做什么以确保交易。
-
-该电子邮件是在亨特·拜登（Hunter Biden）询问“我们需要做些什么来向前推进”不到30分钟后发出的 – 他对康伦（Conlon）转发带有付款配置的电子邮件的回复，该交易附带 “需要讨论”的要求。
-
-亨特·拜登（Hunter Biden）的长期商业伙伴德文·阿彻（Devon Archer）之后对康伦（Conlon）转发他的电子邮件的回应，坚称他“参与”该笔“有趣的”交易，尽管他发现这个事情“很难想象会实现”。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/BcAO93almWomx/images/7d07726f-3595-4fbb-a3b1-0c35cabc806d.png?asset_id=16b161d5-bd7c-4b77-a234-e9b82b3a93ed&amp;img_etag=%22a069382e1470c22b3676eec1234c362f%22&amp;size=2560)](https://spark.adobe.com/page/BcAO93almWomx/images/7d07726f-3595-4fbb-a3b1-0c35cabc806d.png?asset_id=16b161d5-bd7c-4b77-a234-e9b82b3a93ed&amp;img_etag=%22a069382e1470c22b3676eec1234c362f%22&amp;size=1024)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/BcAO93almWomx/images/2eba3bbb-9f45-4981-94bb-dd06b3d31a7c.png?asset_id=61df5f27-3742-471a-ab13-6c31fa788524&amp;img_etag=%2251de0c60846e1502fea8093a67d7ea44%22&amp;size=2560)](https://spark.adobe.com/page/BcAO93almWomx/images/2eba3bbb-9f45-4981-94bb-dd06b3d31a7c.png?asset_id=61df5f27-3742-471a-ab13-6c31fa788524&amp;img_etag=%2251de0c60846e1502fea8093a67d7ea44%22&amp;size=1024)
-
-虽然尚不清楚与拜登（Biden）和其幕僚长的会面和后续安排是否得以实现，已发掘的电子邮件显示了副总统如何在其儿子的商业交易中充当筹码。再一次。
-
-**阅读电子邮件原文：**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/BcAO93almWomx/images/470e43de-a3e6-45ae-ba6b-041c3e222347.png?asset_id=abde493d-aae0-448b-9938-7fadbdf8019a&amp;img_etag=%229b1bb1cd7c151cf4e55d947bcdb35e68%22&amp;size=2560)](https://spark.adobe.com/page/BcAO93almWomx/images/470e43de-a3e6-45ae-ba6b-041c3e222347.png?asset_id=abde493d-aae0-448b-9938-7fadbdf8019a&amp;img_etag=%229b1bb1cd7c151cf4e55d947bcdb35e68%22&amp;size=1024)
-
-![]()![](https://spark.adobe.com/page/BcAO93almWomx/images/026ff189-8e8a-4e8b-a7e1-a17ae49130ec.png?asset_id=ecf82f20-ee98-4177-9a73-e87866aacee6&amp;img_etag=%22c11cbd17174913bd9c9ab35f6dfe023f%22&amp;size=2560)
-
-[原文链接](https://thenationalpulse.com/politics/biden-biz-partner-leverages-joe)
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)[原文链接](https://thenationalpulse.com/politics/biden-biz-partner-leverages-joe)
-
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/BcAO93almWomx/)】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/BcAO93almWomx/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/BcAO93almWomx/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
-0
+1+

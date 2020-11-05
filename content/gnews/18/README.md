@@ -1,43 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 脸书和推特继续作恶 不肯直面乔·拜登的选举失败
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/528397/)
+## 亨特拜登的淫乱生活
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/528455/)
 
-多伦多加喜农场 熊妈妈
+亨特拜登为嫂子的妹妹租房，同时与嫂子和其妹妹保持不正当关系
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04151449/%E6%AD%A3%E4%B9%89.jpg)图片来自战友创作
-脸书和推特要求不能单方面宣布自己赢得大选。脸书将美国总统候选人的声明作标记，用以提醒人们投票仍在进行中。相应的声明是由脸书管理层在其投票信息中心进行公布。
+文/DongDong   审/青椒文喜 文璟 拉丁boy  图/YYZ
 
-脸书在声明中表示，“我们开始在脸书和Instagram上发布提醒信息，投票仍在进行中，获胜者尚未最终确定。我们自动将带有此信息的注释附到两位候选人的账号上。
+Elizabeth Secundy 也称为 Liz，是 Hallie Biden 的姐妹。 Hallie 是Hunter哥哥的遗孀，与 Hunter长期保持了不正当关系。 与此同时，Hunter还痴迷于与Liz 保持肉体上的交往，而 Liz 也会从Hunter那里“借”一些钱，因为似乎 Liz 的老公Joel 还在为找工作发愁。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04160046/0661F3AE-D17B-44B8-85FF-8FD04BABA65E.jpeg)
+从已经曝光的两人短信记录来看，Liz 早在2016年就已经与Hunter幽会了[1]。两人经常神神秘秘的通话，Liz 的老公难免会心生疑虑。
 
-脸书解释说，之所以推出提醒机制，是因为现任总统、共和党候选人川普过早发表有关竞选获胜的言论。
+*2016/8/9 23:23*
 
-11月4日，川普总统发推，“我们已经大声疾呼，但他们正试图窃取选举。我们永远不会让他们这样做。投票结束后将无法投票！”此推竟被审核，提示这条推文会对选民产生误导。
+*Hunter: Wow re-reading that I can see how*​*Joel*​*might have some doubts. . . . . .*
 
-11月4日，川普总统在美国2020年大选投票结束后凌晨3点左右发表讲话，宣布他赢得了大选。川普总统表示，“目前的结果。 这就是胜利。 我们赢得了那些我们没想到会赢的州。”川普总统还强调，他的主要竞争对手、民主党候选人乔·拜登将不会步履蹒跚地在摇摆州追赶上他。
+亨特：哇，重新读一下，我可以看到为什么乔尔可能会怀疑*……*
 
-到11月4日美东时间下午3点前，推特标记了三次川普总统发的推“该推文包含有争议的内容，可能会误导您如何参加选举或其他公民活动”。
+这条短信可能意味着Joel已经怀疑到了Liz在外边有情人了吧，但似乎Hunter有种隐约的兴奋在其中，是不是他认为“偷情”是一种非常刺激的行为？
 
+在另一条 08-20-2016 发给 Liz 短信中Hunter写到
 
+“在​ 过去的*15*个月中，我在威*​*尔明顿（*​**Wilmington*​）的*​*旅行超过*300*次往返，我一次又一次地要求你们与我一起住。*…*但在过去的*15*个月中*… ​**Hallie​*和你（*​**Liz​*）可能是第*8*位*​*”
 
-> Last night I was leading, often solidly, in many key States, in almost all instances Democrat run & controlled. Then, one by one, they started to magically disappear as surprise ballot dumps were counted. VERY STRANGE, and the “pollsters” got it completely & historically wrong!
-> — Donald J. Trump (@realDonaldTrump) [November 4, 2020](https://twitter.com/realDonaldTrump/status/1324004491612618752?ref_src=twsrc%5Etfw)
+Liz过去就住在威​ 尔明顿​Wilmington，同​ 时Hunter不断强调了2次过去15个月，说明早在2015 年底左右Hunter就已经与Liz秘密交往了。注意到，Hunter的哥哥 Beau Biden 是于2015年6月
 
+6日下葬。而2015年底是其哥哥去世不久，Hunter就已经与哥哥的遗孀有“交集”了。
 
+在发给 Liz 的短信中 Hunter 提到了哥哥的遗孀Hallie，这说明 Liz 知道 Hallie 与 Hunter保持着不正当关系，但 Liz 是如何与 Hunter 发展到肉体关系呢？谁是介绍人？是她的姐妹 Hallie 么？
 
+![]()Hunter同时带两人出去游玩（​ 嘿，昨晚很有趣，感谢你带我*​*们出*​*去*​**08-20-2016 17:00:05*） ，这个我​ 们是否就指的是**​ **Hallie + Liz + Hunter呢？三个人在一起玩什么呢，这么高兴？回忆一下所曝光出2018年以后Hunter手机中同时出现两个裸体女人的情况，您是否会有一些猜测呢？
 
+结合上述分析，Liz应该是在2015年底通过 Hallie 与 Hunter 走近的。 Hunter很有钱，通过向 Liz 送钱的方式将 Liz 拉下水，满足了Liz对金钱的需求，而Liz并不是真心喜欢Hunter，可
 
-> WHAT IS THIS ALL ABOUT? [https://t.co/6487pYLZnL](https://t.co/6487pYLZnL)
-> — Donald J. Trump (@realDonaldTrump) [November 4, 2020](https://twitter.com/realDonaldTrump/status/1324012341458075648?ref_src=twsrc%5Etfw)
+Hunter却不依不饶。Liz 和 Hallie 同时与 Hunter 保持这种不正当关系， 而且相互知情。
 
+Hunter 希望 Liz 来到自己身边， 但 Liz 并没有同意。  Hunter在2018年7月为Liz租了一套公寓地点在 117​ Carpenters Road Greenville, DE 19807
 
+（绿色），而 Liz 的家就在728​     Nottingham Road, Wilmington, DE 19805（紫色），两个地​
 
-近日，爆料革命战友们通过GTV、GNEWS不断爆出乔·拜登的工具儿子亨特·拜登的性丑闻以及拜登家族与中共深度勾兑的实锤证据。通过推特、脸书等媒体向世人传播真相，遭到了推特、脸书的全力禁杀，成百万的推特账号被封。可见推特、脸书为支持乔·拜登获选，已经充分暴露与中共的深度勾结，撕下了所谓中立媒体人的虚假面皮，裸体上阵直接厮杀，全力阻止揭露拜登家族丑闻及一切对民主党他们不利的言论。
+点的车程不到10分钟。这说明两人的关系又近了一步，偷情更方便了？从前面 Liz 丈夫可能怀疑 Liz 有出轨行为来看，Hunter不仅仅是在玩火，更是明目张胆的破坏别人的家庭。．
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04160108/image-3.jpeg)
+再来看另外一张有趣图片上的地址：Wilmington Delaware!  Delaware的缩写就是DE。是不是发现些什么有趣的事情，注意时间为 2019年3月12日。 图片中的女人是 Hallie 还是 Liz 呢？为什么是在家里做这种事情而不担心被发现呢？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/04160152/image-4.jpeg)
+Hunter同时与两位家族内部的女性，而且是姐妹保持不正当关系，这种人还会信仰上帝么？还有道德底线么？破坏族内的家庭关系的人，还会在乎族外人的利益么？Hunter如此行为只能说明他的父亲Joe Biden对其言传身教所导致的，猜测Joe Biden只能更甚之。
 
-现在，川普总统以压倒性的优势赢得了美国2020总统大选，虽然乔·拜登在阴暗处垂死挣扎，企图用卑劣的手段反败，但是阴沟里的诡计最终将化为云烟，正义力量已全面显现。脸书和推特还在做虚幻的梦，为了维持已有的名誉地位及利益，彻底摒弃了所有做为人应该有的良知，已经不配称呼为有职业道德的媒体。他们不肯直面乔·拜登的失败，乔·拜登的失败将引发他们自己丑行的败露，但假的就是假的，在真相面前他们很快就将尝到彻底失败的滋味。
+更多惊人爆料，请阅读GNews其他有关亨特家族的系列文章。
 
-参考链接：[https://www.facebook.com/votinginfocenter](https://www.facebook.com/votinginfocenter)
+参考：[1] ​ [硬](https://gnews.org/zh-hans/516149/)[盘](https://gnews.org/zh-hans/516149/)[揭秘第四期](https://gnews.org/zh-hans/516149/)[|](https://gnews.org/zh-hans/516149/)[手机短信内容曝光，亨特](https://gnews.org/zh-hans/516149/)[·](https://gnews.org/zh-hans/516149/)[拜登](https://gnews.org/zh-hans/516149/)[约](https://gnews.org/zh-hans/516149/)[炮篇，嫂子姐妹在中](https://gnews.org/zh-hans/516149/)[间](https://gnews.org/zh-hans/516149/)[？](https://gnews.org/zh-hans/516149/)
 
 2+
