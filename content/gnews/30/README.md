@@ -1,67 +1,94 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日新闻看点-2020年11月4日
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/530406/)
+## 粮食短缺将重创中共国
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/530413/)
 
-多伦多加喜农场 大地鲲鹏
+作者： Tyler Durden｜新闻来源：zerohedge 零对冲｜发布日期： 10/20/2020；
 
-校对上传 XM
+*翻译、简评：Cathy r｜校对：感恩｜审核：海阔天空｜PAGE：玄天生；*
 
-一、疫情真相
+**简评：**
 
-1.闫丽梦博士论文：
+世界粮食计划署经济学家估计今年全球有2.7亿人会遭受饥饿之苦，是去年的两倍多。该数字还不包括中共国、美国和欧洲，因为它们都被认为是粮食安全国家。但鉴于目前中共国开展的“光盘行动”，作者对中共国的粮食安全问题深深怀疑。由于疫情导致的经济停摆已经严重影响到了全球的供应链，遭受洪水灾害的中共国更是面临粮食问题的困扰。自然灾难之外是更大的政治灾难，我们只能祈求中共早日归西，不要再有更多的次生人道灾难发生。
 
-第一份英文版[https://zenodo.org/record/4028830#.X1\_lwj-SlPa](https://zenodo.org/record/4028830#.X1_lwj-SlPa)
+## **粮食短缺重创中共国：“没有足够的新鲜食物用来发放”**
 
-第一份中文版[https://drive.google.com/file/d/1vZ0vbPJ9QAhGDjna9pkMxqUHhIdakODW/view?usp=sharing](https://drive.google.com/file/d/1vZ0vbPJ9QAhGDjna9pkMxqUHhIdakODW/view?usp=sharing)
+[罗伯特·惠勒Robert Wheeler）在“有机预备者”（Organic Prepper）博客写道，](https://www.theorganicprepper.com/food-shortages-china/)
 
-第二份英文版[http://zenodo.org/record/4073131](https://zenodo.org/record/4073131)
+在过去的几周中，我一直在撰写有关即将到来的[粮食短缺](https://www.theorganicprepper.com/grocery-stores-prepping-second-wave-holiday/)的文章。我一直在指出，粮食短缺将给美国带来沉重打击，但同时也将影响到世界其它地区。
 
-第二份中文版[https://gnews.org/zh-hans/411364/](https://gnews.org/zh-hans/411364/)
+[!\[\]()!\[\](https://spark.adobe.com/page/Kza9tJNb4uIzH/images/0d389920-a075-45c9-9130-4ec0fe7d8f3e.jpg?asset_id=c7965808-7741-4136-b5cd-cd2e6b89a943&amp;img_etag=%221d8b31efe95f34f65f05a1429795dc61%22&amp;size=2560)](https://spark.adobe.com/page/Kza9tJNb4uIzH/images/0d389920-a075-45c9-9130-4ec0fe7d8f3e.jpg?asset_id=c7965808-7741-4136-b5cd-cd2e6b89a943&amp;img_etag=%221d8b31efe95f34f65f05a1429795dc61%22&amp;size=1024)
 
-2.新疆喀什新增中共肺炎病例数又创新高。中共官方公布称，喀什单日新增无症状感染者已达3位数.外界普遍认为实际情况比中共官方公布出来的要严重。
+全球范围内因新冠疫情引起的歇斯底里症，导致世界经济关停、[供应链中断](https://www.theorganicprepper.com/supply-chain-food-shortages/)、食品破坏、国际贸易战和自然灾害将彼此碰撞，并使这个冬季成为有记录以来最艰难的一年之一。
 
-二、新中国联邦希望
+**中共国公开承认即将到来的粮食短缺**
 
-1.新中国联邦大决战：
+但是，尽管许多人都否认了我的主张，但我想提请您注意以下事实：中共国现在公开承认即将到来的粮食短缺。（[正如本文所述](https://www.theorganicprepper.com/a-quick-reminder-of-how-venezuela-ran-out-of-food-does-this-look-familiar/)，当他们承认存在问题时，这是一个大问题。）事实上，中共国甚至在此刻在全国范围内开展了一项反食品浪费运动，鼓励人们吃一半食物或至少要确保把盘子里的食物都吃光。
 
-硬盘邮件解密新闻列表：
+10月5日《纽约时报》标题为“[在担忧粮食供应的情况下，中共国的进餐请求：吃多少拿多少，请不要多拿](https://www.washingtonpost.com/world/asia_pacific/china-food-shortage-clean-plate/2020/10/02/578daa0e-0223-11eb-b92e-029676f9ebec_story.html)”的一篇文章中， 窦伊文（Eva Dou）写道：
 
-[亨特∙拜登定期收到的汇款单曝光](https://gnews.org/zh-hans/527762/)
+*从表面上看，中共国鼓励节食的运动是一件愉快的事情，（宣传海报）展示士兵、工厂工人和学童都吃光盘子里的食物。*
 
-[亨特∙拜登与嫂子哈莉•拜登的邮件曝光](https://gnews.org/zh-hans/527723/)
+[!\[\]()!\[\](https://spark.adobe.com/page/Kza9tJNb4uIzH/images/caba0ecd-0637-4287-8803-9a419ea068e9.jpg?asset_id=6529e961-7a61-43d9-b067-1aa8ebc1af09&amp;img_etag=%224795fefd9783fc5579e26aae75353a8b%22&amp;size=2560)](https://spark.adobe.com/page/Kza9tJNb4uIzH/images/caba0ecd-0637-4287-8803-9a419ea068e9.jpg?asset_id=6529e961-7a61-43d9-b067-1aa8ebc1af09&amp;img_etag=%224795fefd9783fc5579e26aae75353a8b%22&amp;size=1024)
 
-[亨特∙拜登和他嫂子的姐姐的共同租房协议](https://gnews.org/zh-hans/524879/)
+*但运动背后是一个残酷的现实。中共国没有足够的新鲜食物来发放，世界上大部分地区也没有。*
 
-一切真相，尽在GNEWS。
+*疫情和极端天气扰乱了农业供应链，使[也门](https://www.unicef.org/press-releases/yemen-sees-return-alarming-levels-food-insecurity-unicef-wfp-fao-ocha)、[苏丹](https://www.theguardian.com/global-development/2020/sep/17/staple-food-prices-rise-by-50-in-sudan-amid-economic-strife-floods-and-covid)、[墨西哥](https://www.bloomberg.com/news/articles/2020-09-09/mexico-inflation-quickens-beyond-target-curbs-room-for-rate-cut)和[韩国](http://www.koreaherald.com/view.php?ud=20200916000782)等国家的粮食价格急剧上涨。联合国6月警告说，世界正处于50年来最严重的粮食危机的边缘。*
 
-2.“路德时评”11/4/2020节目部分内容:
+*联合国世界粮食计划署首席经济学家阿里夫·侯赛因（Arif Husain）在接受采访时说“这很可怕，而且势不可挡。我认为我们从未见过这样的事情。”*
 
-a.川普总统对预防乔∙拜登造假早有准备。乔∙拜登团队通过邮寄选票的争议来拖延大选结果，大法官将做最终裁决。中共在美国社会制造了病毒疫情、股市施压、邮寄选票和媒体造假等方面的混乱局面，以帮助乔∙拜登胜选。
+[!\[\]()!\[\](https://spark.adobe.com/page/Kza9tJNb4uIzH/images/96cfc26c-7926-48a7-a14d-759e40ccf8d5.png?asset_id=963c2411-aefa-4694-8755-666cfe6f3abe&amp;img_etag=%22ede1c33d4e325268b436e270a35316e8%22&amp;size=2560)](https://spark.adobe.com/page/Kza9tJNb4uIzH/images/96cfc26c-7926-48a7-a14d-759e40ccf8d5.png?asset_id=963c2411-aefa-4694-8755-666cfe6f3abe&amp;img_etag=%22ede1c33d4e325268b436e270a35316e8%22&amp;size=1024)
 
-b.川普总统将会解雇FBI、CIA、国防部长和福奇。
+至少可以说，这些话很强硬。
 
-c.美国社会通过此次大选充分了解中共的邪恶，会达成灭共共识。
+目前，中共国面临最严峻形势的食品是玉米和猪肉。非洲猪瘟给中共国的猪肉业带来了沉重打击（至少他们告诉我们），洪水毁了中共国的大部分玉米作物。但是，不仅仅这两种产品面临风险。由于与美国相同的原因，即疯狂的停产政策，各种新鲜食物都供不应求。
 
-（“路德时评”早间节目[https://www.youtube.com/watch?v=KzalMnNyoAA&list=PLt9WLG-do1atM5bjKoiSQuXncbmVnEESC&index=3](https://www.youtube.com/watch?v=KzalMnNyoAA&amp;list=PLt9WLG-do1atM5bjKoiSQuXncbmVnEESC&amp;index=3)）
+中共国声称自己目前没有发生粮食危机，并试图向民众保证其有足够的小麦储备来供所有人食用一年。但是现实与宣称不同，因为2月份中共国猪肉价格上涨了135％，洪水毁了如此多的蔬菜作物。
 
-（“路德时评”晚间节目[https://www.youtube.com/watch?v=-aTwwb23aRE&list=PLt9WLG-do1atM5bjKoiSQuXncbmVnEESC&index=2](https://www.youtube.com/watch?v=-aTwwb23aRE&amp;list=PLt9WLG-do1atM5bjKoiSQuXncbmVnEESC&amp;index=2)）
+您可能想知道中共国的短缺对我们有何影响。
 
-3.10月3日，美国国务院正式批准售台四架“海上卫士”无人机，总金额约6亿美元，并正式通知国会。这是美国国务院今年度第五次对台军售，也是川普总统任内的第十次。更是放宽无人机技术出口以来，首度对外出售“海上卫士”。
+具有讽刺意味的是，中共国依靠美国来弥补其玉米缺口。尽管据称我们正与中共国进行贸易战，而且美国人很快将面临自己的食物短缺，但美国好人们可能会告诉其公民再次勇于承担，帮助稳定残酷的共产主义独裁统治，而这个独裁政权是美国人通过自由贸易将他们的工作机会转移到海外帮忙建立的。
 
-4.中共财政部部长肖捷日前在《党的十九大报告辅导读本》中谈及房地产税，明确房地产税将按照房屋评估值征收谈话中透露中共拟使用房产税因地制宜地弥补地方财政收入亏空。
+**政治动荡与粮食不安全同时发生**
 
-5. 11月4日，第三届中共国国际进口博览会开幕式在上海举办。但中共党魁习近平并未出席开幕式，而是通过影片的方式发表主旨演讲。据悉，这是习近平首次未亲自出席进博会开幕式。路德社评论，中共在全力支持乔∙拜登的总统选举，习已无暇顾及其他。
+的确，中共国政府可能不会将粮食危机视为最大的担忧。相反，它认为政治动荡是最大的威胁。不幸的是，对中共国共产党而言，政治动荡是粮食不安全的直接结果，尤其是在中共国。
 
-三、世界新闻
+[!\[\]()!\[\](https://spark.adobe.com/page/Kza9tJNb4uIzH/images/6be4134d-807a-49b9-85ea-d409bc4e44d8.jpg?asset_id=11e0ce4e-5744-46f9-ad8d-209de5062199&amp;img_etag=%2237d9d2e0147f2c96695a252a5cec6c88%22&amp;size=2560)](https://spark.adobe.com/page/Kza9tJNb4uIzH/images/6be4134d-807a-49b9-85ea-d409bc4e44d8.jpg?asset_id=11e0ce4e-5744-46f9-ad8d-209de5062199&amp;img_etag=%2237d9d2e0147f2c96695a252a5cec6c88%22&amp;size=1024)
 
-1.11月4日，一位来自密歇根州的美国邮政服务的员工爆料，他的主管指示邮递员专门收集选举截止后收到的选票信封，并欺诈性地将其邮戳日期改至11月3日（选举有效日期）。11月3日午夜和4日凌晨在密歇根和威斯康辛州出现了大量的支持拜登的选票，却没有 一张支持川普总统的选票，而川普总统在11月3日晚上在这两个州都处于领先地位。如乔∙拜登对选票造假，恐面对美司法审判。
+1950年代和1980年代，两个主要的政治动荡都发生在粮食供应短缺的时候。
 
-当地时间11月4日下午报道，川普总统阵营发表声明，称将要求威斯康星州立刻重新计票。
+但是，就目前而言，中共国正试图说服其国民自愿并通过社会羞辱（如美国的口罩）接受紧缩政策，以度过更长的危机。窦通过文章描述“光盘”行动时写道，
 
-2.斯洛文尼亚总理亚内兹·扬沙11月4日发文，祝贺川普总统连任。他或许已成为世界上第一个祝贺川普总统连任的外国官员。
+*北京的解决方案是在八月份发起了一个阳光明媚的“光盘行动”，目的是在不引起公众警觉的情况下减少食物使用。像第二次世界大战的美国胜利花园（American Victory Gardens）一样（注：二战期间美国、英国、加拿大和德国都推行过该运动以减轻战时的食品供给压力），这场运动与在确保粮食供应方面的努力一样，也是在困难时期以爱国主义使命试图使国家团结起来。*
 
-3.美国将于11月4日正式退出《巴黎协定》。退出该协定并不代表川普总统在应对全球环境恶化上保持非积极态度，实际上在其任期采取了更多有效的环境政策。此举主要粉碎了中共利用环境课题强迫美国产业链向中共国转移的企图。
+*全国各地的餐馆都在按照这种运动提供“半餐”。其中一些，例如高档的北京烤鸭连锁店全聚德，已指示服务员提醒食客不要浪费。其它餐馆因人们在盘子里剩太多食物而对他们罚款。*
 
+[![](https://spark.adobe.com/page/Kza9tJNb4uIzH/images/d4f463a4-d83c-46ee-a30c-1fc405664dd3?asset_id=227807bf-f8c6-4398-a0d0-a7b510684ffe&amp;img_etag=%22e4bc50222ae43d743bfedccdbaccafe0%22&amp;size=2560)](https://spark.adobe.com/page/Kza9tJNb4uIzH/images/d4f463a4-d83c-46ee-a30c-1fc405664dd3?asset_id=227807bf-f8c6-4398-a0d0-a7b510684ffe&amp;img_etag=%22e4bc50222ae43d743bfedccdbaccafe0%22&amp;size=1024)
+
+*据官方的《人民日报》报道，在中共国南方的一所小学，学生必须每晚向老师发送晚餐的小视频，以证实他们正在执行光盘行动。许多大学食堂正在向吃光饭的学生赠送水果和其它小礼物。*
+
+*甚至是在线零售巨头阿里巴巴的创始人亿万富翁马云（JackMa），都被拍摄到试图节约食物。最近一段疯传的视频显示，他要求将未吃完的螃蟹和龙虾装盒带走。*
+
+*“打包，打包，打包！”他在视频中说。 “我会在飞机上吃。”*
+
+*在此期间，当然禁止政府官员举行盛大的宴会。*
+
+**这是一个全球性的问题**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/Kza9tJNb4uIzH/images/cb3dda25-2f80-44a4-a456-604bda73b141.jpg?asset_id=6f8849e3-7769-45aa-8c91-19ef33ea8345&amp;img_etag=%2267a70493fa0d49534dfb5ac48466bd59%22&amp;size=2560)](https://spark.adobe.com/page/Kza9tJNb4uIzH/images/cb3dda25-2f80-44a4-a456-604bda73b141.jpg?asset_id=6f8849e3-7769-45aa-8c91-19ef33ea8345&amp;img_etag=%2267a70493fa0d49534dfb5ac48466bd59%22&amp;size=1024)
+
+世界粮食计划署经济学家已经估计，今年全球有2.7亿人遭受饥饿之苦，是去年的两倍多。该数字不包括中共国、美国和欧洲，因为它们都被认为是粮食安全国家。
+
+鉴于[每个人都可以亲眼看到美国的货架](https://www.theorganicprepper.com/grocery-stores-prepping-second-wave-holiday/)，以及最近在中共国开展的“光盘”行动，如今，“食品安全”一词被广泛使用。
+
+尽管我们可能会很幸运并躲过一劫，但我们强烈建议您在可能的时候[做好准备](https://www.theorganicprepper.com/things-to-buy-every-time-store/)。即使没有出现严重的短缺，您将对冲针对在未来几年[几乎肯定会急剧上升的食品价格](https://www.theorganicprepper.com/simulation-400-increase-food-prices-2030/)的赌注。
+
+[原文链接](https://www.zerohedge.com/geopolitical/food-shortages-hit-china-there-notenough-fresh-food-go-around?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+
+编辑 [【喜马拉雅战鹰团】](https://spark.adobe.com/page/Kza9tJNb4uIzH/)-点击Adobe Spark版
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+[!\[\]()!\[\](https://spark.adobe.com/page/Kza9tJNb4uIzH/images/a51bbdf7-ece0-4796-8b62-b4a9835a1de8.jpg?asset_id=80732a5a-98f2-4ef4-958f-086719f7f202&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/Kza9tJNb4uIzH/images/a51bbdf7-ece0-4796-8b62-b4a9835a1de8.jpg?asset_id=80732a5a-98f2-4ef4-958f-086719f7f202&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 1+

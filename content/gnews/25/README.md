@@ -1,24 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 倘若美国成功废除“230法案”，对爆料革命有什么积极影响
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/530511/)
+## 朱利安尼 推文系列 2
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/530593/)
 
-*作者：Dreamer文童｜校对：宁缺｜审核：海阔天空｜PAGE：玄天生；*
+作者：朱利安尼
 
-**美国《通讯规范法案》（Communications Decency Act，“CDA”）**是1996年制定的旨在对网络进行监管的一部法律，其中至今依然有效部分是为网络平台提供免责保护的第230条款，亦被称为“CDA230”。该条款规定，互联网服务供应商无需为第三方用户的言行负法律责任，同时也保护了互联网服务供应商出于善意考虑，而对冒犯性内容进行限制的行为，或者赋予他人采取技术手段来限制冒犯性内容的权力。该条款可以概括为两部分，一是第三方用户在互联网平台发布的任何言论，其自行承担法律后果，与互联网平台无任何关联。二是如果互联网平台出于善意考虑，主观认为某些言论有冒犯性，互联网平台可以对相关冒犯性内容进行限制，也可以授权第三方采取技术手段进行限制。
-[![](https://spark.adobe.com/page/Y6b153OGlLzx0/images/95bb460e-78a6-4002-b953-cabf7626772f?asset_id=9f940a4e-d07b-4d9f-b4c9-e5a00c8ec318&amp;img_etag=%225e78124ea67c871b3710623765951744%22&amp;size=2560)](https://spark.adobe.com/page/Y6b153OGlLzx0/images/95bb460e-78a6-4002-b953-cabf7626772f?asset_id=9f940a4e-d07b-4d9f-b4c9-e5a00c8ec318&amp;img_etag=%225e78124ea67c871b3710623765951744%22&amp;size=1024)
-第一部分内容是目前世界各国的通行惯例。目前争议最大的是第二部分内容，互联网平台无需出示任何初步证据，仅凭主观意图，就能够限制网络用户的言论。例如，早期郭文贵先生推特账户被封，许多参与爆料革命战友的账户也被大批封锁。今年九月份，病毒学家闫丽梦博士在其个人推特发布的病毒真相报告，一经推出就被推特公司删除账户。还有近期被公众热议的美国民主党总统候选人乔.拜登家族丑闻，许多转发《纽约邮报》报道的推特账户被封锁，甚至包括白宫官方发言人凯莉女士。网络用户越来越感受到互联网平台拥有过大的审查权，已经严重干涉个人用户的言论自由。民众以及美国参议员，比如霍利参议员，一直在呼吁废除CDA230条款，网络平台不应拥有过大的审查权。
+翻译:Beicy-数学老师 简评/校对/审核: TCC；Page：拱卒
 
-这三年多以来，爆料革命一直坚持“唯真不破”的原则，向世界传递CCP邪恶的真相，以达到最终推翻CCP，实现喜马拉雅的目标。所爆料的真相包括CCP盗国贼家族如何在墙内以黑治国、以警治国和以假治国；如何盗取中国老百姓的财富并向海外转移；如何蓝金黄世界各国政界、商界、学术界、新闻媒体界等；如何向世界发起超限战（包括目前的CCP病毒超限生化战争）；如何利用被蓝金黄的人士掩盖真相等。爆料革命所爆出来的信息一一得到验证，并且已经得到世界各国正义人士的认可和支持，包括已公开站出来支持爆料革命的班农先生和朱利安尼先生。
-[!\[\]()!\[\](https://spark.adobe.com/page/Y6b153OGlLzx0/images/3eb6d552-1845-489c-bd42-d744b40a8d71.jpg?asset_id=8d349017-0863-4023-adb9-e17192c02a5f&amp;img_etag=%2214f6bebecd60820eb26f10090a8c2611%22&amp;size=2560)](https://spark.adobe.com/page/Y6b153OGlLzx0/images/3eb6d552-1845-489c-bd42-d744b40a8d71.jpg?asset_id=8d349017-0863-4023-adb9-e17192c02a5f&amp;img_etag=%2214f6bebecd60820eb26f10090a8c2611%22&amp;size=1024)
-但是，由于绝大多数主流媒体已被深度蓝金黄，至今不敢正面报道爆料革命，甚至很多媒体在故意扭曲事实，抹黑爆料革命，使得世界上大多数民众仍然对爆料革命不甚了解，或者存在误解。爆料革命的战友们在自媒体网络平台，比如推特、脸书或油管，自行发布传播爆料革命的信息，但是一直被这些网络平台进行打压，删贴封号已是常态。这一切的根源皆因CDA230条款的存在，使得网络平台科技公司有权随意删贴封号，而无需给出任何理由，或者仅提示简单一句“已被独立事实核查机构认定为虚假信息”。被删贴的用户只能自认倒霉，而无处申诉。被封号的用户也只能另开新帐户，却无权为自己主张权利。如果某些用户已经发布多篇原创帖子，若尚未备份，就被封号，将遭受重大损失。
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05123912/a862becdb8649d5e.png)
 
-传播真相，让被虚假信息蒙蔽双眼的世界民众醒悟，认清CCP是世界上一切邪恶的根源，进而形成世界灭共联盟极其重要。如果美国最终审议通过取消CDA230条款，无疑对爆料革命有积极的促进作用。坚持“唯真不破”的爆料革命真战友在传播真相时，将不再受到网络平台的压制，使得更多人了解真相。抹黑爆料革命的虚假信息，在言论自由的网络平台将很会被揭穿。丧失CDA230条款保护伞的网络平台将无法再对爆料革命的真相发布进行任何限制。假如网络平台强行删贴封号，那么网络用户直接可以提起诉讼进行维权，并追索赔偿金。总之，传播真相对爆料革命极其重要，民众需要了解真相，才能做出正确选择。废除CDA230条款将极大帮助爆料革命通过网络平台将真相在全世界广泛传播。
 
-编辑[【喜马拉雅战鹰团】](https://spark.adobe.com/page/Y6b153OGlLzx0/)-点击Adobe Spark版
+## 朱利安尼 推文系列 2
 
+美国大选投票结束第一天，朱利安尼(Rudy Giuliani) 不仅推文报道了川普总统在宾夕法尼亚州(Pennsylvania) 等地方 的绝对领先结果，更抨击虚假媒体和拜登家族同样腐败，对选举结果进行欺诈性报道。
+
+4日，朱利安尼和法律团队一起，赶往费城(Philadelphia) ，反击民主党选票作弊非法行为。
+
+投票结束。战斗， 却刚刚开始。
+
+- [朱利安尼正在反击: 民主党人竭尽所能窃取这次选举!](https://twitter.com/DineshDSouza/status/1324113203794759680)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/on6BmfPgVjdiq/images/2f5c63cf-529a-4b3f-a316-4e16f7fcd9a0.jpg?asset_id=aa44569c-3098-4084-a365-26e65b6b4397&amp;img_etag=%22fcec0c9beae097b5cad8b12acd69cd10%22&amp;size=2560)](https://spark.adobe.com/page/on6BmfPgVjdiq/images/2f5c63cf-529a-4b3f-a316-4e16f7fcd9a0.jpg?asset_id=aa44569c-3098-4084-a365-26e65b6b4397&amp;img_etag=%22fcec0c9beae097b5cad8b12acd69cd10%22&amp;size=1024)
+2020/11/04 朱利安尼转推: 民主党人正在竭尽所能窃取这次选举。 朱利安尼是不会允许它发生的，现在他在反击。必须看。
+
+- [(我)和法律团队一起, 在去费城(Philadelphia)的路上。](https://twitter.com/RudyGiuliani/status/1324062078731231233)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/on6BmfPgVjdiq/images/98a1306a-e7d8-4f62-add0-3185e48ea8b0.jpg?asset_id=835ffd29-2059-4d18-acec-8dd632e268b7&amp;img_etag=%2202a161ffe33c03276ebe65d8d1c42d56%22&amp;size=2560)](https://spark.adobe.com/page/on6BmfPgVjdiq/images/98a1306a-e7d8-4f62-add0-3185e48ea8b0.jpg?asset_id=835ffd29-2059-4d18-acec-8dd632e268b7&amp;img_etag=%2202a161ffe33c03276ebe65d8d1c42d56%22&amp;size=1024)
+2020/11/04 (我)和法律团队一起, 在去费城(Philadelphia)的路上。(民主党)大规模作弊。唐纳德・川普， 在75%開票時，以55万张票领先。不会让费城民主党的黑客偷走(胜利)!
+
+- [川普现在在宾夕法尼亚州(Pennsylvania)在74%的投票中领先70万票。](https://twitter.com/RudyGiuliani/status/1323911716720226310)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/on6BmfPgVjdiq/images/9089445e-23ba-45af-9a53-c0d3eecbe777.jpg?asset_id=984b743d-7012-4a00-ac0f-a10ce4075ae9&amp;img_etag=%22baaa08db38aa48a81c722528a68cd62b%22&amp;size=2560)](https://spark.adobe.com/page/on6BmfPgVjdiq/images/9089445e-23ba-45af-9a53-c0d3eecbe777.jpg?asset_id=984b743d-7012-4a00-ac0f-a10ce4075ae9&amp;img_etag=%22baaa08db38aa48a81c722528a68cd62b%22&amp;size=1024)
+2020/11/04 川普现在在宾夕法尼亚州(Pennsylvania)在74%的投票中领先70万票。说(双方得票数)是太接近了，这是个谎言。这就是作弊。
+
+- [虚假媒体拒绝宣告佛罗里达州(Florida)、俄亥俄州(Ohio)和喬治亚州(Georgia)的(开票) 结果，这样他们就可以保持拜登的虚假领先优势。](https://twitter.com/RudyGiuliani/status/1323834239067004928)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/on6BmfPgVjdiq/images/b42dba4d-cca5-49da-aa50-e3b1a7db9ec3.jpg?asset_id=443478be-e2a0-4513-9389-73a4e992f708&amp;img_etag=%229fb5e61d4d7611e6b6e15938208d524a%22&amp;size=2560)](https://spark.adobe.com/page/on6BmfPgVjdiq/images/b42dba4d-cca5-49da-aa50-e3b1a7db9ec3.jpg?asset_id=443478be-e2a0-4513-9389-73a4e992f708&amp;img_etag=%229fb5e61d4d7611e6b6e15938208d524a%22&amp;size=1024)
+虚假媒体拒绝宣告佛罗里达州(Florida)、俄亥俄州(Ohio)和喬治亚州(Georgia)的(开票) 结果，这样他们就可以保持拜登的虚假领先优势。就像支持腐败的弹劾門和实施美国历史上第一次(新闻)审查一样。他们(这些媒体)和拜登犯罪家族一样腐败。
+
+编辑：[【喜马拉雅战鹰团】](https://spark.adobe.com/page/on6BmfPgVjdiq/)-点击Adobe Spark版
 [点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 [点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-[!\[\]()!\[\](https://spark.adobe.com/page/Y6b153OGlLzx0/images/15bccca1-e755-42a5-86be-e60d1249f8ea.jpg?asset_id=272beffe-3f8d-40c3-8bef-73538dceb5a7&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/Y6b153OGlLzx0/images/15bccca1-e755-42a5-86be-e60d1249f8ea.jpg?asset_id=272beffe-3f8d-40c3-8bef-73538dceb5a7&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-1+
+[!\[\]()!\[\](https://spark.adobe.com/page/on6BmfPgVjdiq/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/on6BmfPgVjdiq/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+2+

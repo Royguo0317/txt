@@ -1,7 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加州在宣布投票结果之后，洛杉矶县所谓的工作人员还在大量收集“邮寄选票”
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/530808/)
+## 惊爆!!密歇根州邮局内部人士爆料，主管命令他们将11月4号拿到的邮寄选票都盖上3号的邮戳,冒充有效选票
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/530901/)
 
-0
+#### **By: 【秘密翻译组G-Translators】**
+
+1+
