@@ -1,19 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒(新冠肺炎)疫情的平行时空
-` G-NEWS Taiwan` [轉載自GNews](https://gnews.org/zh-hans/531721/)
+## 路德社精选 2020/11月/5日 美国大选分析
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/531768/)
 
-台灣農場 文旦
+听写校对：加非 文宣图：艾伦
 
-參考新聞：[https://tw.news.yahoo.com/台灣在疫情中成-角落生物-急診醫狂讚-帥到沒朋友-050003386.html](https://tw.news.yahoo.com/台灣在疫情中成-角落生物-急診醫狂讚-帥到沒朋友-050003386.html)
+1 总统大选之后就是法律战，由朱利安尼带领。
 
-截止到今天全球超过4500万人以上感染，及120万人以上死亡于中共病毒(新冠肺炎)，这个病毒让全世界的生活与经济完全的破坏，让大家过的与去年完全不同的生活，也在过着胆战心惊的生活，在这个疫情之下，只有中华民国”台湾”过的不一样…..染疫数最低，经济又没有影响等….不一样。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06034921/7a7ed0a7268c7884e959113d530d3f4a.jpg)
-所有在疫情期间到访台湾的世界各地的朋友，只有震惊，只有觉得不可思议，为什么”台湾”完全没有受到疫情的伤害，这才是所有国家要思考的。
+2 俄亥俄州/佛罗里达州/宾州是此次大选的关键州。
 
-那”台湾”为什么可以做到呢?
+3 朱利安尼说要在总统任期内，最大程度的60天内让乔拜登伏法。
 
-只有最初的原因，最初的起点，2019年12月31号的”不相信中共的言语”，这才是重点。疫情至今，各国被中共的言语所骗，也被中共市场绑架，都被利益绑架，导致牺牲更多利益，才使疫情跨大，也因极度的自信，小看了这个特殊的疫情，疫情发生至今，没有追源、没有追责、没有将正确的资讯告知社会，到现在都为了利益，抢着疫苗、抢着经费、抢着市场。当你要先把利益斩断，才能真正的有效防疫，才能真正的抢到市场。将中共病毒(新冠肺炎)看重，才能真的防疫，只有相信真正的资讯，你才能防疫，中共病毒(新冠肺炎)的真相，在阎丽梦的论文当中，被世界屏蔽的论文，被利益屏蔽的预防方式，当这些不想取舍，这个人为的中共病毒(新冠肺炎)，将变本加厉地出现在你生活中，将永无止境的变化出现….直到了解”真相”的人多到影响所有利益，所以请大家中共病毒(新冠肺炎)传播”真相”吧。
+4 中共希望美国大乱，ANTIFA上街。
 
+5 美国两党合作是灭共的关键。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06045633/ld1105a1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06045703/ld1105a2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06045712/ld1105a3.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06045718/ld1105a4.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06045724/ld1105a5.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06045734/ld1105a6.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06045742/ld1105a7.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06045748/ld1105a8.png)
 0
