@@ -1,13 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11月5日要闻同声传译: 福克斯玛丽亚采访班农
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/532574/)
+## 11/05/2020 每日快訊
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/532630/)
 
-2020年11月5日要闻同声传译: 福克斯玛丽亚采访班农
-
-
-
-#### **By：【秘密翻译组G-Translators】**
-
-1+
+2020年11月5日 每日快訊 制作：戰友之家粵語頻道
+主播：【安妮】 資料收集：【Cathy】【閃電】【Ruby】【文靜】【文縐縐】 視頻制作：【鹹魚】
+0
