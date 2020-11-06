@@ -1,86 +1,166 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 焦点观察：底特律缺席选举计票混乱，工作人员封锁窗口，禁止观察员进入
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/530929/)
+## 【深度报道】烧选票,僵尸票,幽灵票…民主党造假已陷入癫狂
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/530935/)
 
-翻译：康州农场-霹雳忍者蛙
+作者：Giselle
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05200831/image-101.png)
+美国2020总统大选自11月3日开始投票以来，剧情跌宕起伏。一开始川普的选票遥遥领先，无论是选举人票数，还是总得票数，都与民主党候选人拜登拉开了一段距离。事情在3日晚间开始逆转，3日晚上11时至凌晨时分，拜登突然反超川普，短短数小时就把川普远远甩在背后。就在笔者发稿之时，拜登的选举人票仍然是253张，川普214。
 
-校对：康州农场-Freeearth，Bruce
-![Covering Windows in Detroit]()![Covering Windows in Detroit](https://media.breitbart.com/media/2020/11/Covering-Windows-in-Detroit-640x480.jpg)
-周三，数百名担心舞弊的非官方共和党观察员聚集在计票点，底特律的缺席选票计票工作陷入混乱。
+就在大选之前的十几天，美国主流媒体《纽约邮报》曝光了拜登硬盘门丑闻，内容涉及拜登家族贪腐、乱伦、出卖国家利益等重大犯罪行为，据传FBI已介入调查。而拜登本人在丑闻期间却潜伏于地下室，既不回应，也不澄清。
 
-底特律市正在使用TCF中心–原科博大厅–来统计该市所有的缺席选票。
+此前，拜登的竞选活动现场也都是冷冷清清，门可罗雀。反观川普，所到之处人山人海，旌旗招展，欢呼声此起彼伏。明眼人都可以轻易看出，谁会赢得最终大选。
 
-共和党人和川普的支持者越来越警觉，因为在周二晚间的早期计票过程中，川普在该州保持着强大的领先优势，但随着历史意义上的民主党地区的邮寄选票被计算出来，这种领先优势就蒸发了。
+11月4日，密西根州和宾州开票，川普分别领先9.6%和14.9%，在威斯康星、北卡和乔治亚州，开票也接近尾声，川普胜选几无悬念。然而，就在一夜之间，确切地说，就在短短的几个小时内，大量的选票涌向拜登。根据川普11月4日上午发布的推特截图显示，密歇根州突然新增的12.8万多张选票，全部投给了民主党候选人乔.拜登，这种在统计学上相当于火星撞地球的概率，就这样奇迹般地发生了！这一波的操作，直接促使密歇根州和威斯康星州一夜之间由红变蓝，密西根州有16张选举人票，威斯康星州有10张选举人票，形势瞬间逆转，将川普置于败境。
 
-社交媒体上发布的几段视频显示，工作人员试图限制透明度，不允许外面的人观察计票区内部的情况。
+这些短时间内突然暴增的选票是怎么来的？背后是谁在操控？11月5日，特朗普午间通过推特宣布，将向所有拜登最新逆转获胜或处于领先的州发起法律诉讼。他称媒体已报道了这些州大量有关选民欺诈及选举违规的证据。
+
+美国选举自1787年制宪会议以来，迄今已有233年历史。1800年美国总统选举时，政党登上美国政治舞台，奠定了美国选举团制度。美国总统选举所采取的选举人团制度，是美国独立以来的选举制度，一直有效运作，虽然不是百分百完美，但也得到了大多数人的认可，没有出现大的纰漏，更没有出现过像今年美国民主党如此大规模明目张胆、集体造假的疯狂。
+
+### **偷窃焚毁川普选票**
+
+11月5日，推特账号Politics发布了一则视频，一个疑似黑人的男子，将一袋子投给川普的选票点火烧毁。从视频中可以听到，这位男子说：“你看，全是川普（的选票）。如果你在邮局或者投票站工作，你知道应该怎么做。”视频中男子对着一堆燃烧的川普的选票竖中指，并且辱骂“F…川普”。
+
+推友Jackie p回复：从来没有见过这样的行为，这个人偷了一箱选票就这样毁掉了，如此多的欺诈行为，实在令人恐惧。
+
+投票开始之后，不断传出投给川普的选票，被工作人员丢弃、焚烧的新闻。宾州伊利（Erie）市一投票站员工公开承认，一个早上就扔掉了过百张选川普的选票；此外，亚利桑那州公路边的石头下，也曾发现被偷并被丢弃的选票。
+
+### **公然把选票扔进垃圾桶**
+
+推友达城11月4日发布推文称：昨晚美国电视直播时，意外记录了计票站的工作人员拆开选票，把其中的一些扔进垃圾桶的镜头。这则推文后来被推特删除。
+
+美媒10月25日也曾报道，此前，美国宾夕法尼亚州一选举委员会办公室外的垃圾桶里，发现了9张被扔掉的邮寄选票，司法部24日称，选票中有7张是投给特朗普的，此后FBI介入调查。
+
+11月3日当天，还有人在一辆货车里面，发现大批被撕毁的投给川普的选票。
+
+### **死人投票**
+
+还有网友在推特上曝光了7个已经被确认的密歇根州缺席选票名单，其中年纪最大的1850年出生，已经170岁了。据大纪元报道，美国大选期间密西根州出现了很多“幽灵票”，比如一个叫William Bradley的人生于1894年，1984年已经去世了，但有人用他的名字申请了一张缺席选票，于10月2日送达选举局。
+
+据美媒11月3日报道，纽约市至少揭发了2宗“死人邮寄投票”事件，2张选票被人用邮寄投票方式进行投票，但事后被发现2张选票，分别属于2012年及2016年离世的长者。
+
+报道指，选举委员会今年9月24日收到选民雷克豪的要求，将其缺席选票寄到其住址，该张选票在上月6日寄回，并在同月8日确认选票有效。雷克豪其实在2012年已经离世，当时他的亲人也在地区传媒刊登讣闻，证实其死讯。
+
+另外一宗“死人邮寄投票”则发生在布鲁克林，选举委员会9月收到尼扎尔要求，将选票寄往其住址，并于10月13日收回选票，2日后确认选票有效，但随后当局发现尼扎尔于2016年已离世。
+
+### **密西根发现大量“幽灵票”**
+
+华裔共和党选民杨盖瑞在接受大纪元采访时说，他们家曾经住过一个留学生，既不是绿卡持有者也不是公民，而且已经于2006年离开美国了，然而，这个朋友家却收到了来自州务卿办公室的官方邮寄选票。
+
+另外一个朋友是美国公民，早于2005年就离开密西根州了，也在曾经的住址收到了邮寄选票。
+
+“根据这些可疑的现象，我推测，民主党准备了一大批非法选票，当看到川普领先30万张的时候，觉得有必要拿出来了。他们为什么不敢让共和党进入监票呢？完全是欲盖弥彰、肆无忌惮地作弊，这是对民主制度的摧残。”盖瑞说。“如果选举靠这种欺诈来获胜，那这个选举就成了一个笑话了！”
+
+### **计票现场公开舞弊**
+
+11月3日夜晚，在[密西根](https://www.epochtimes.com/gb/tag/%E5%AF%86%E8%A5%BF%E6%A0%B9.html)州底特律市的一个最大点票中心TCF Center中，在场[监票](https://www.epochtimes.com/gb/tag/%E7%9B%91%E7%A5%A8.html)的共和党义工发现，从晚上十点到早晨五点的一个班次的数票工人数出来的票数应该在7000张到1万张之间。但是，工作结束时广播中却说：我们今晚数出来5万张选票。
+
+当晚在现场监票的华裔共和党选民杨盖瑞还看到、听到了很多匪夷所思的诡异现象。“密西根华裔保守联盟”（Michigan Chinese Conservatives Alliance，简写为MICCA）是2016年以后成立起来的华人共和党挺川政治组织。11月3日，该组织派出了14人，承担了最艰苦的夜班监票工作，即从晚上十点钟工作到早晨5点钟。
+
+盖瑞的值班地点是底特律集中了全部邮寄选票的数票站——TCF center会展中心。他发现他负责的那桌数票工人的工作出奇地慢。
+
+“他们简直是在磨洋工，这是很反常的现象。”盖瑞说。“他们一直到11点才开始正式数票，一晚上才数了150张票。”
+
+盖瑞环顾四周其它的数票桌子，速度都差不多，按照这个速度计算，全场130多桌，当天晚上只能数出来1万多张票。一个监督汇总处的扫描机的共和党人说，他数出来的票数也只有差不多7000张。
+
+但是，在这一班快结束的时候，广播里却宣布说：“我们今晚数出来5万张票！”
+
+这5万张票的数字是从哪里来的呢？盖瑞看了一下电视，当时拜登在底特律所在地的韦恩县（Wayne County）领先6万多张票；川普在密西根领先30万张票。
+
+当盖瑞到家的时候是早晨六点，他在休息前看了一眼电视，赫然发现：韦恩县拜登领先20多万张了！
+
+### **民主党不让监票员进入点票大厅**
+
+盖瑞说：“更加诡异的是，4日早晨听说监票员不够了，我又动员了十几个人去帮忙，但是民主党却不让我们的人进入点票大厅了，最后连大楼都进不去了，他们用白板、披萨盒子把窗子挡上了。理由就是：疫情对社交距离有要求，而实际上里面的人很少。”
+
+盖瑞澄清，他监票的地方并不是那个往选票数字加一个零的夏厄沃西县（Shiawassee County）。“我认为这种事情不是小打小闹弄出来的，是一个系统性的操作。”
+
+盖瑞爆料说，在底特律还出现很多形式的作弊现象。比如，在投票率上做假。即民主党派人去敲那些不出来投票的人的门，给他们27美元出来投票，至于是叫本人出来，还是邮寄投票就不清楚了。
+
+“从一开始这个程序就没有监督环节，都存在舞弊的可能性。”他说，“另外，如果计票机都是连到网上的，那么一旦使用了电子的手段，就更容易作弊了。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05200817/Screen-Shot-2020-11-06-at-11.07.49-am.png)
+### **民主党丑陋作弊手法曝光**
+
+**【注水票】**威斯康辛州注册投票人口312万9000人，但总投票数达323万9920人，投票率竟为103.5%！注票如此严重，多出的选票哪里来的？此外，在宾州、北卡也发现了高达200万张的“黑民”选票。
+
+**【一人投出19万张票】**莫林·班农（Maureen Bannon）发推曝光：亚利桑那州、威斯康辛州共发现19万张选票，居然都是一个人在凌晨2天发出来的，这个人名叫简·杜（Jane Doe），而这些票全部投给了拜登。
+
+**【拖延关键州计票】**由于宾州先计算邮寄选票，因此一开始拜登在该州遥遥领先。但当宾州开始统计投票日当天在投票站的选票后，川普快马加鞭追上并超越了拜登。孰料就在川普开始一路领先之后，宾州突然宣布暂停计票，并称由于法官要求寻找回丢失的30万张选票，该州要等到周五才能出计票结果。
+
+**【买选票】**美国青年争取自由组织（ Young Americans for Freedom）全国主席施特勒布尔（Grant Strobl）3日发推，揭露密歇根州收买选票的违法行为：刚自朋友处获悉，密歇根州马科姆县（Macomb）的国际电气工人兄弟会（IBEW）告诉其会员，如果他们当天投给拜登，并提供选票照片作为证据，就可以获得100美元奖励。
+
+**【机器作弊】**宾州、纽约都出现投票机临时故障，投票站员工要求选民先将选票交给他们，机器修好后他们会手动输入选票。
+
+死人票、僵尸票、幽灵票……民主党的造假已经到了癫狂状态，连稍微掩饰一下都不需要了。看看这场举世瞩目的闹剧：在美国，连死去了几十年的死人也能从坟墓里爬出来投票，而在中共国，活着的14亿民众却没有投票权。在共产病毒的侵蚀之下，美国的民主已经病入膏肓。两者都在用不同的方式，剥夺公民的选举权，都是对公民天赋人权的践踏。这场大规模的选举造假，如果不能得到有效遏制，邪恶势力今后将会更加肆意妄为，美国人民珍视的民主、自由、法治将名存实亡，形同虚设。
+
+目前川普竞选团队已经在密西根州、乔治亚州、宾夕法尼亚州和内华达州等地发起法律诉讼，要求暂停计票或对当地选票重新进行统计。2020年美国总统大选，注定将成为人类文明的分水岭。人类是走向独裁统治，还是民主自由？造假真能胜过民意吗？让我们拭目以待。
+
+（文章内容仅代表作者个人观点）
+
+#### **【相关链接/推文】**
+
+- [https://www.epochtimes.com/gb/20/11/5/n12528082.htm](https://www.epochtimes.com/gb/20/11/5/n12528082.htm)
+- [https://weareunited.com.my/11495538/](https://weareunited.com.my/11495538/)
 
 
 
-> The scene at Detroit’s absentee ballot counting center is growing more heated. The windows now being covered up. Allegations of violations. Sec. of State says she welcomes challenges. [pic.twitter.com/oUL4A0h3Ku](https://t.co/oUL4A0h3Ku)
-> — Matt Finn (@MattFinnFNC) [November 4, 2020](https://twitter.com/MattFinnFNC/status/1324084637010976769?ref_src=twsrc%5Etfw)
 
-
-*推文翻译：*
-*马特·芬恩（Matt·Finn）@MattFinnFNC：底特律缺席票计票中心现场局势正在升温。窗户正在被遮挡起来。对于违规的指控，州务卿表示，她欢迎挑战。（2020年11月5日上午4:22）*
-福克斯新闻制片人马特·芬恩写道：”一些窗户仍然被封着。我问了几个人谁把它们贴起来，为什么，没有明确的答案。几位民调异议人士或是工作人员告诉我们，他们觉得这个房间里的（共和党人和民主党人）人数不成公允比例。”
-
-川普竞选团队已经提起诉讼，认为他们没有被允许参与计票过程，因此要求停止投票，直到获得充分的行动自由。
-
-一名工人用大块硬纸板遮住窗户，阻止外面的人看见里面正在发生的事情。其他工人用披萨包装盒挡住门窗。与此同时，场地外的一些人高喊着： “停止投票”。
+> "190,000 people named Jane Doe showing up to vote for Biden at 2am, shows the beauty of our democracy” in Arizona and Wisconsin😄
+> — Maureen Bannon (@maureen\_bannon) [November 4, 2020](https://twitter.com/maureen_bannon/status/1324088350685433856?ref_src=twsrc%5Etfw)
 
 
 
-> Election challengers chanting “stop the vote” outside of TCF Center in [#Detroit](https://twitter.com/hashtag/Detroit?src=hash&amp;ref_src=twsrc%5Etfw) [#Michigan](https://twitter.com/hashtag/Michigan?src=hash&amp;ref_src=twsrc%5Etfw) [#Elections2020](https://twitter.com/hashtag/Elections2020?src=hash&amp;ref_src=twsrc%5Etfw) 
+
+
+> 宾夕法尼亚州丢失三十万张选票，视频显示在一辆货车里面和附近发现大量被撕毁的投川普的选票。😡
 > 
-> Source: [@annalise\_frank](https://twitter.com/annalise_frank?ref_src=twsrc%5Etfw) [pic.twitter.com/fcj41iRPFJ](https://t.co/fcj41iRPFJ)
-> — Global News (@GlbBreakNews) [November 4, 2020](https://twitter.com/GlbBreakNews/status/1324090524060495874?ref_src=twsrc%5Etfw)
-
-
-*推文翻译：*
-*环球新闻（Global [email protected] ）*
-*选举异议人士在TCF中心外高喊 “停止计票 “。#底特律#密歇根*
-*#2020大选*
-*源自：@源自：@annalise——frank*
-*推文翻译：*
-*环球新闻（Global [email protected] ）*
-*TCF中心为阻止观察员，将窗户关闭。*
-*源自：@ericjgibbs*
-其他视频显示，底特律警察保护着大门，阻止监督员进入。
+> The Democrats are shameless criminals! They can’t lead this country! They are evil ! [pic.twitter.com/Jfut9zJj0Z](https://t.co/Jfut9zJj0Z)
+> — Don’t stop fighting 🇺🇸 ✊💪✌️ (@crystal78243104) [November 4, 2020](https://twitter.com/crystal78243104/status/1323986081881169920?ref_src=twsrc%5Etfw)
 
 
 
-> Poll watchers try to get into the ballot counting area in [#Detroit](https://twitter.com/hashtag/Detroit?src=hash&amp;ref_src=twsrc%5Etfw) [#Michigan](https://twitter.com/hashtag/Michigan?src=hash&amp;ref_src=twsrc%5Etfw) [#Elections2020](https://twitter.com/hashtag/Elections2020?src=hash&amp;ref_src=twsrc%5Etfw) 
+
+
+> 昨晚电视报道的镜头意外的录下了计票站工作人员拆开选票，把其中一些扔进垃圾桶画面 [pic.twitter.com/h1N0y2Awac](https://t.co/h1N0y2Awac)
+> — luoshang (@luoshang1) [November 5, 2020](https://twitter.com/luoshang1/status/1324319888643534858?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> BREAKING: Hundreds of Trump Ballots destroyed and burnt [pic.twitter.com/WQDs9U5b5R](https://t.co/WQDs9U5b5R)
+> — Politics24 (@politics\_24) [November 4, 2020](https://twitter.com/politics_24/status/1324082163260792832?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> 大家看一下，密歇根州和威斯康辛州的民主党选票造假曲线，也就是某个瞬间民主党选票的突然激增，和石正丽的假蝙蝠病毒RaTG13序列，假穿山甲病毒RmYN02序列里的突然激增的同义突变/非同义突变比例多么像啊！ [pic.twitter.com/raP2CwJ6pM](https://t.co/raP2CwJ6pM)
+> — 孔博士\_Ph.D.\_history2020 (@history20201) [November 4, 2020](https://twitter.com/history20201/status/1324002435669610502?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> 以下であるリストをよく見ると、バイデンに投票した人達の中で1850年生まれの人もいます。
+> その人は今年170歳ということですね。😂😂
+> 詐欺だね。 [pic.twitter.com/7BuywbkjJl](https://t.co/7BuywbkjJl)
+> — TaRanChi (@AboutUyghurs) [November 5, 2020](https://twitter.com/AboutUyghurs/status/1324350760822300675?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Turns out 118 year old “William Bradley” voted via absentee ballot in Wayne County, Michigan. William Bradley died in 1984. 
 > 
-> Source: [@TheInsiderPaper](https://twitter.com/TheInsiderPaper?ref_src=twsrc%5Etfw) [pic.twitter.com/ZQJoYYGarU](https://t.co/ZQJoYYGarU)
-> — Global News (@GlbBreakNews) [November 4, 2020](https://twitter.com/GlbBreakNews/status/1324089825998315521?ref_src=twsrc%5Etfw)
-
-
-*推文翻译：*
-*环球新闻（Global [email protected] ）*
-*在#底特律 #密歇根，投票监督员试图进入计票区域#2020大选）*
-*源自：@TheInsiderPaper*
-随着紧张局势的加剧，底特律卫生部门的一名代表试图清理计票区的大厅，这进一步激怒了监督者。
-
-
-
-> [#BREAKING](https://twitter.com/hashtag/BREAKING?src=hash&amp;ref_src=twsrc%5Etfw): Large, animated crush of “stop the count” protestors trying to push their way into TCF hall in [#Detroit](https://twitter.com/hashtag/Detroit?src=hash&amp;ref_src=twsrc%5Etfw) where ballots are being counted.
+> How long has this been going on? 
 > 
-> They’re being blocked by guards at the door. 
-> 
-> Pizza boxes are pushed against the window to obstruct view. It’s tense. [@NBCNews](https://twitter.com/NBCNews?ref_src=twsrc%5Etfw) [pic.twitter.com/zFhzd88skX](https://t.co/zFhzd88skX)
-> — Steve Patterson (@PattersonNBC) [November 4, 2020](https://twitter.com/PattersonNBC/status/1324086177885003778?ref_src=twsrc%5Etfw)
+> Try it for yourself: [https://t.co/UWupRTi0Rw](https://t.co/UWupRTi0Rw) [pic.twitter.com/aOLSe1DXJo](https://t.co/aOLSe1DXJo)
+> — Essential Fleccas 🇺🇸 (@fleccas) [November 5, 2020](https://twitter.com/fleccas/status/1324216584219623424?ref_src=twsrc%5Etfw)
 
 
-*推文翻译：*
-*史蒂夫·帕特森（@PattersonNBC*
-*突發：
-大量憤怒的抗議者們高喊“停止記票”，并試圖進入已經記票的T C F大廳。*
-*他们被门口的警卫挡住了。
-披萨包装盒被放在窗户上用来遮挡视线。很紧张。（@NBC新闻）（2020年11月5日上午4:28）*
-州务卿乔塞琳·本森（Jocelyn Benson）此前表示，计票工作可能要到周五才能完成。她在周三曾经估计今晚可以完成。
 
-据《底特律新闻》报道，随着99%的选票统计完毕，拜登领先川普超过6万票。
 
-1+
+
+2+

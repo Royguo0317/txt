@@ -1,32 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11月4日费城反选举作弊新闻发布会：监票志愿者杰里米·默瑟先生发言
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/530594/)
+## 朱利安尼 推文系列 2
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/530593/)
 
-视频来源：[https://www.youtube.com/watch?v=yJk42SbwET0&feature=emb\_logo](https://www.youtube.com/watch?v=yJk42SbwET0&amp;feature=emb_logo)
-志愿者和监票人杰瑞米·默瑟先生（Jeremy Mercer）在发言中披露费城计票人员阻挠监票观察员的工作，仅根据他一人的观察，就有12萬5千張选票在这种无监督的情况下被计入到总票数中。朱利安尼先生当即指出“这些选票是在违反法律的情况下计票的”，“所以那些选票应该从计数中扣除”。
+作者：朱利安尼
 
-这场发布会是2020年11月4日朱利安尼先生，在宾夕法尼亚州的费城召集的，关于选举作弊的重大新闻发布会。 会上朱利安尼先生和其他四位发言人就民主党在这次美国总统大选过程中的种种造假舞弊行为给予了痛斥。指出民主党为了赢得大选，不惜在宾夕法尼亚州进行选票造假以赢得大选， 他们阻止共和党观察员检票、 丢弃合法选票、在投票点做非法宣传等， 除了该州以外， 还有维斯康新州、 亚利桑那州、内华达州和密西根州。朱利安尼先生说已经有视频等实锤证据， 会起诉民主党的欺诈行为，真正揭露民主党的腐败，捍卫美国的自由选举制度。
+翻译:Beicy-数学老师 简评/校对/审核: TCC；Page：拱卒
 
-以下是在新闻发布会上发言的与会者名单：
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05123912/a862becdb8649d5e.png)
 
-1：埃里克·川普（Eric Frederick Trump）是美国商人，前真人秀节目主持人。他是唐纳德·川普总统的第二个儿子。
 
-2：科里·R·莱万多夫斯基（Corey R. Lewandowski）是美国政治活动家、说客、政治评论员和作家。2015年1月至2016年6月，他曾担任美国一线新闻网、福克斯新闻网和CNN的政治评论员，以及唐纳德·川普2016年竞选美国总统的竞选经理。
+## 朱利安尼 推文系列 2
 
-3：鲁道夫·威廉·路易斯·朱利安尼（Rudy Giuliani）是美国律师、网络安全顾问和政治家，1994年至2001年担任纽约市第107任市长，因其在打击纽约黑帮和“911”事件中的杰出贡献， 被喻为“美国市长”。
+美国大选投票结束第一天，朱利安尼(Rudy Giuliani) 不仅推文报道了川普总统在宾夕法尼亚州(Pennsylvania) 等地方 的绝对领先结果，更抨击虚假媒体和拜登家族同样腐败，对选举结果进行欺诈性报道。
 
-4: 帕梅拉·乔·邦迪（Pamela Jo Bondi）是美国律师、游说者和政治家。她是共和党人，2011年至2019年担任佛罗里达州第37任检察长。
+4日，朱利安尼和法律团队一起，赶往费城(Philadelphia) ，反击民主党选票作弊非法行为。
 
-5: 杰里米·默瑟（Jeremy Mercer）是一位作家和记者，他的著作包括《时间在那里很柔软》和《当断头台倒下时》。他还为新英格兰大学出版社将罗伯特·巴丁特的《废止》翻译成英文。他是巴黎艺术团体 “零公里 ”的创始成员之一。
+投票结束。战斗， 却刚刚开始。
 
-相关新闻 1：[https://gnews.org/zh-hans/530277/](https://gnews.org/zh-hans/530277/)
+- [朱利安尼正在反击: 民主党人竭尽所能窃取这次选举!](https://twitter.com/DineshDSouza/status/1324113203794759680)
 
-相关新闻 2： [https://gnews.org/zh-hans/529377/](https://gnews.org/zh-hans/529377/)
+[!\[\]()!\[\](https://spark.adobe.com/page/on6BmfPgVjdiq/images/2f5c63cf-529a-4b3f-a316-4e16f7fcd9a0.jpg?asset_id=aa44569c-3098-4084-a365-26e65b6b4397&amp;img_etag=%22fcec0c9beae097b5cad8b12acd69cd10%22&amp;size=2560)](https://spark.adobe.com/page/on6BmfPgVjdiq/images/2f5c63cf-529a-4b3f-a316-4e16f7fcd9a0.jpg?asset_id=aa44569c-3098-4084-a365-26e65b6b4397&amp;img_etag=%22fcec0c9beae097b5cad8b12acd69cd10%22&amp;size=1024)
+2020/11/04 朱利安尼转推: 民主党人正在竭尽所能窃取这次选举。 朱利安尼是不会允许它发生的，现在他在反击。必须看。
 
-翻译：【Naomi】校对：【Isaiah4031】总结：【key】字幕：【罗宾 Robin (文宾)】编辑：【Isaiah4031】
+- [(我)和法律团队一起, 在去费城(Philadelphia)的路上。](https://twitter.com/RudyGiuliani/status/1324062078731231233)
 
-战友之家玫瑰园小队出品
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01145114/GNEWS-GTV-VOG.png)
-1+
+[!\[\]()!\[\](https://spark.adobe.com/page/on6BmfPgVjdiq/images/98a1306a-e7d8-4f62-add0-3185e48ea8b0.jpg?asset_id=835ffd29-2059-4d18-acec-8dd632e268b7&amp;img_etag=%2202a161ffe33c03276ebe65d8d1c42d56%22&amp;size=2560)](https://spark.adobe.com/page/on6BmfPgVjdiq/images/98a1306a-e7d8-4f62-add0-3185e48ea8b0.jpg?asset_id=835ffd29-2059-4d18-acec-8dd632e268b7&amp;img_etag=%2202a161ffe33c03276ebe65d8d1c42d56%22&amp;size=1024)
+2020/11/04 (我)和法律团队一起, 在去费城(Philadelphia)的路上。(民主党)大规模作弊。唐纳德・川普， 在75%開票時，以55万张票领先。不会让费城民主党的黑客偷走(胜利)!
+
+- [川普现在在宾夕法尼亚州(Pennsylvania)在74%的投票中领先70万票。](https://twitter.com/RudyGiuliani/status/1323911716720226310)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/on6BmfPgVjdiq/images/9089445e-23ba-45af-9a53-c0d3eecbe777.jpg?asset_id=984b743d-7012-4a00-ac0f-a10ce4075ae9&amp;img_etag=%22baaa08db38aa48a81c722528a68cd62b%22&amp;size=2560)](https://spark.adobe.com/page/on6BmfPgVjdiq/images/9089445e-23ba-45af-9a53-c0d3eecbe777.jpg?asset_id=984b743d-7012-4a00-ac0f-a10ce4075ae9&amp;img_etag=%22baaa08db38aa48a81c722528a68cd62b%22&amp;size=1024)
+2020/11/04 川普现在在宾夕法尼亚州(Pennsylvania)在74%的投票中领先70万票。说(双方得票数)是太接近了，这是个谎言。这就是作弊。
+
+- [虚假媒体拒绝宣告佛罗里达州(Florida)、俄亥俄州(Ohio)和喬治亚州(Georgia)的(开票) 结果，这样他们就可以保持拜登的虚假领先优势。](https://twitter.com/RudyGiuliani/status/1323834239067004928)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/on6BmfPgVjdiq/images/b42dba4d-cca5-49da-aa50-e3b1a7db9ec3.jpg?asset_id=443478be-e2a0-4513-9389-73a4e992f708&amp;img_etag=%229fb5e61d4d7611e6b6e15938208d524a%22&amp;size=2560)](https://spark.adobe.com/page/on6BmfPgVjdiq/images/b42dba4d-cca5-49da-aa50-e3b1a7db9ec3.jpg?asset_id=443478be-e2a0-4513-9389-73a4e992f708&amp;img_etag=%229fb5e61d4d7611e6b6e15938208d524a%22&amp;size=1024)
+虚假媒体拒绝宣告佛罗里达州(Florida)、俄亥俄州(Ohio)和喬治亚州(Georgia)的(开票) 结果，这样他们就可以保持拜登的虚假领先优势。就像支持腐败的弹劾門和实施美国历史上第一次(新闻)审查一样。他们(这些媒体)和拜登犯罪家族一样腐败。
+
+编辑：[【喜马拉雅战鹰团】](https://spark.adobe.com/page/on6BmfPgVjdiq/)-点击Adobe Spark版
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+[!\[\]()!\[\](https://spark.adobe.com/page/on6BmfPgVjdiq/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/on6BmfPgVjdiq/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+2+
