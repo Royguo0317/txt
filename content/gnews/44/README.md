@@ -1,86 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 焦点观察：底特律缺席选举计票混乱，工作人员封锁窗口，禁止观察员进入
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/530929/)
+## 民主党要求Twitter暂停特朗普的帐户—直到计票完成，推特标记在宾夕法尼亚州总统获胜的推文为：不实
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/530937/)
 
-翻译：康州农场-霹雳忍者蛙
+**翻译****: ****蜗牛先生**
 
-校对：康州农场-Freeearth，Bruce
-![Covering Windows in Detroit]()![Covering Windows in Detroit](https://media.breitbart.com/media/2020/11/Covering-Windows-in-Detroit-640x480.jpg)
-周三，数百名担心舞弊的非官方共和党观察员聚集在计票点，底特律的缺席选票计票工作陷入混乱。
+**校正****:Wen Y. W**
 
-底特律市正在使用TCF中心–原科博大厅–来统计该市所有的缺席选票。
+民主党议员敦促 Twitter暂停特朗普总统的账户，并且建议在2020年总统大选计票完成之前，不得发布他的任何推文。
 
-共和党人和川普的支持者越来越警觉，因为在周二晚间的早期计票过程中，川普在该州保持着强大的领先优势，但随着历史意义上的民主党地区的邮寄选票被计算出来，这种领先优势就蒸发了。
+弗吉尼亚州众议员格里·康诺利（Gerry Connolly）在社交媒体声言：川普总统星期三在Twitter上抱怨民主党竞选者者乔·拜登（Joe Biden）在邮寄选票中的领先地位，并在尚未完成计票前声称自己在宾夕法尼亚州，佐治亚州和北卡罗来纳州获胜的行为是“纯粹的虚假信息”。
 
-社交媒体上发布的几段视频显示，工作人员试图限制透明度，不允许外面的人观察计票区内部的情况。
+“暂停他的帐户，@ Twitter，” 康诺利写道，“这是美国，而不是俄罗斯。”
 
+罗德岛州众议员大卫·西西林（David Cicilline）说，特朗普星期三的推文“对我们的民主构成威胁”。
 
+据《 The Verge》周三报道，总部位于旧金山的平台之前曾删除或标记过川普总统的推文，但尚未暂停其帐户。但是，这家 社交媒体巨头的确在选举日临近之前收紧了其针对错误信息进行审查的政策。
 
-> The scene at Detroit’s absentee ballot counting center is growing more heated. The windows now being covered up. Allegations of violations. Sec. of State says she welcomes challenges. [pic.twitter.com/oUL4A0h3Ku](https://t.co/oUL4A0h3Ku)
-> — Matt Finn (@MattFinnFNC) [November 4, 2020](https://twitter.com/MattFinnFNC/status/1324084637010976769?ref_src=twsrc%5Etfw)
+举例来说，总部位于旧金山的推特公司[周一](https://twitter.com/TwitterSupport/status/1323265835738320900)发推说：“例如，当用户尝试转发带有误导性信息标签的推文时，用户会看到提示，提示他们先确认信息的可靠，然后再继续传播。”
 
+推特公司补充说：“如果我们看到煽动干涉选举，鼓励采取暴力行动或其他人身伤害的内容，我们可能会采取其他措施，例如添加警告或要求删除推文。”
 
-*推文翻译：*
-*马特·芬恩（Matt·Finn）@MattFinnFNC：底特律缺席票计票中心现场局势正在升温。窗户正在被遮挡起来。对于违规的指控，州务卿表示，她欢迎挑战。（2020年11月5日上午4:22）*
-福克斯新闻制片人马特·芬恩写道：”一些窗户仍然被封着。我问了几个人谁把它们贴起来，为什么，没有明确的答案。几位民调异议人士或是工作人员告诉我们，他们觉得这个房间里的（共和党人和民主党人）人数不成公允比例。”
+推特公司表示，在 同一天更新的博客文章中，还将标记或删除虚假宣称任何候选人获胜的推文，并在来自美国政治人物 或拥有超过100,000个关注者的美国账户的误导性推文中添加警告 。
 
-川普竞选团队已经提起诉讼，认为他们没有被允许参与计票过程，因此要求停止投票，直到获得充分的行动自由。
+周三推文称特朗普总统在宾夕法尼亚州赢得了胜利，消息来源于白宫 新闻秘书凯利·麦肯尼（Kayleigh McEnany）和总统儿子埃里克·特朗普（Eric Trump）的发布，此推文也被添加了未证实的标签。
 
-一名工人用大块硬纸板遮住窗户，阻止外面的人看见里面正在发生的事情。其他工人用披萨包装盒挡住门窗。与此同时，场地外的一些人高喊着： “停止投票”。
+标签上写道：“在发推文时，官方消息人士可能没有正式宣布。”并附有判断结果依据页面的链接。
 
+推特公司写道：“推特在保护选举对话的完整性方面可发挥至关重要的作用，我们鼓励候选人，竞选活动，新闻媒体和选民尊重推特，并承认我们对选民的集体责任，以确保11月选举安全，公平和合法的民主进程。”
 
+截至11月4日，总统的14条推文和转推中有6条被标记或隐藏。有人声称民主党人正在选举中偏袒民主党竞选人乔·拜登。
 
-> Election challengers chanting “stop the vote” outside of TCF Center in [#Detroit](https://twitter.com/hashtag/Detroit?src=hash&amp;ref_src=twsrc%5Etfw) [#Michigan](https://twitter.com/hashtag/Michigan?src=hash&amp;ref_src=twsrc%5Etfw) [#Elections2020](https://twitter.com/hashtag/Elections2020?src=hash&amp;ref_src=twsrc%5Etfw) 
-> 
-> Source: [@annalise\_frank](https://twitter.com/annalise_frank?ref_src=twsrc%5Etfw) [pic.twitter.com/fcj41iRPFJ](https://t.co/fcj41iRPFJ)
-> — Global News (@GlbBreakNews) [November 4, 2020](https://twitter.com/GlbBreakNews/status/1324090524060495874?ref_src=twsrc%5Etfw)
+特朗普写道：“昨晚，我在很多关键州处于领先地位，这些州几乎都是由民主党人控制的。然后，随着令人诧异的选票计数增加，领先优势开始神奇地消失了。非常奇怪，“民意测验”完全被颠倒了！”
 
-
-*推文翻译：*
-*环球新闻（Global [email protected] ）*
-*选举异议人士在TCF中心外高喊 “停止计票 “。#底特律#密歇根*
-*#2020大选*
-*源自：@源自：@annalise——frank*
-*推文翻译：*
-*环球新闻（Global [email protected] ）*
-*TCF中心为阻止观察员，将窗户关闭。*
-*源自：@ericjgibbs*
-其他视频显示，底特律警察保护着大门，阻止监督员进入。
+Twitter，白宫和特朗普竞选活动没有立即回应FOX Business的置评请求。
 
 
 
-> Poll watchers try to get into the ballot counting area in [#Detroit](https://twitter.com/hashtag/Detroit?src=hash&amp;ref_src=twsrc%5Etfw) [#Michigan](https://twitter.com/hashtag/Michigan?src=hash&amp;ref_src=twsrc%5Etfw) [#Elections2020](https://twitter.com/hashtag/Elections2020?src=hash&amp;ref_src=twsrc%5Etfw) 
-> 
-> Source: [@TheInsiderPaper](https://twitter.com/TheInsiderPaper?ref_src=twsrc%5Etfw) [pic.twitter.com/ZQJoYYGarU](https://t.co/ZQJoYYGarU)
-> — Global News (@GlbBreakNews) [November 4, 2020](https://twitter.com/GlbBreakNews/status/1324089825998315521?ref_src=twsrc%5Etfw)
-
-
-*推文翻译：*
-*环球新闻（Global [email protected] ）*
-*在#底特律 #密歇根，投票监督员试图进入计票区域#2020大选）*
-*源自：@TheInsiderPaper*
-随着紧张局势的加剧，底特律卫生部门的一名代表试图清理计票区的大厅，这进一步激怒了监督者。
-
-
-
-> [#BREAKING](https://twitter.com/hashtag/BREAKING?src=hash&amp;ref_src=twsrc%5Etfw): Large, animated crush of “stop the count” protestors trying to push their way into TCF hall in [#Detroit](https://twitter.com/hashtag/Detroit?src=hash&amp;ref_src=twsrc%5Etfw) where ballots are being counted.
-> 
-> They’re being blocked by guards at the door. 
-> 
-> Pizza boxes are pushed against the window to obstruct view. It’s tense. [@NBCNews](https://twitter.com/NBCNews?ref_src=twsrc%5Etfw) [pic.twitter.com/zFhzd88skX](https://t.co/zFhzd88skX)
-> — Steve Patterson (@PattersonNBC) [November 4, 2020](https://twitter.com/PattersonNBC/status/1324086177885003778?ref_src=twsrc%5Etfw)
-
-
-*推文翻译：*
-*史蒂夫·帕特森（@PattersonNBC*
-*突發：
-大量憤怒的抗議者們高喊“停止記票”，并試圖進入已經記票的T C F大廳。*
-*他们被门口的警卫挡住了。
-披萨包装盒被放在窗户上用来遮挡视线。很紧张。（@NBC新闻）（2020年11月5日上午4:28）*
-州务卿乔塞琳·本森（Jocelyn Benson）此前表示，计票工作可能要到周五才能完成。她在周三曾经估计今晚可以完成。
-
-据《底特律新闻》报道，随着99%的选票统计完毕，拜登领先川普超过6万票。
-
-1+
+0
