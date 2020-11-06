@@ -1,34 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11月4日费城反选举作弊新闻发布会：佛州前检察长邦迪女士发言
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/530755/)
+## 川普竞选团队11月5日声明 在宾州诉讼中取得 &#8220;重大胜利&#8221;
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/530856/)
 
-视频来源：[https://www.youtube.com/watch?v=yJk42SbwET0&feature=emb\_logo](https://www.youtube.com/watch?v=yJk42SbwET0&amp;feature=emb_logo)
-佛罗里达州前检察长帕梅拉·乔·邦迪女士（Pamela Jo Bondi）在发言中揭露费城计票点有一位市政专员的助手，叫塞斯·布魯斯坦（Seth Bluestein），不具备执法的资格却恐吓和阻止监票人员靠近，这本身就属违法行为。
+*喜马拉雅联盟加拿大农场 忠勇无双
+校对 文锦 上传 WJ*
 
-这场发布会是2020年11月4日朱利安尼先生，在宾夕法尼亚州的费城召集的，关于选举作弊的重大新闻发布会。 会上朱利安尼先生和其他四位发言人就民主党在这次美国总统大选过程中的种种造假舞弊行为给予了痛斥。指出民主党为了赢得大选，不惜在宾夕法尼亚州进行选票造假以赢得大选， 他们阻止共和党观察员检票、 丢弃合法选票、在投票点做非法宣传等， 除了该州以外， 还有维斯康新州、 亚利桑那州、内华达州和密西根州。朱利安尼先生说已经有视频等实锤证据， 会起诉民主党的欺诈行为，真正揭露民主党的腐败，捍卫美国的自由选举制度。
+法官对川普竞选团队最初的部分诉讼做出了有利的裁决。川普竞选团队声明如下：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05175238/Nov-5-1.jpg)图片来源：www.donaldjtrump.com
+-2020年11月5日-
+**川普竞选团队在费城赢得重大选举诚信胜利**
 
-以下是在新闻发布会上发言的与会者名单：
+唐纳德·J·川普总统竞选公司宣布关于川普竞选战役在宾夕法尼亚州费城的重大选举诚信胜利声明：
 
-1：埃里克·川普（Eric Frederick Trump）是美国商人，前真人秀节目主持人。他是唐纳德·川普总统的第二个儿子。
+“为了竞选诚信，竞选透明度，所有宾夕法尼亚州选民，和法治规则，川普竞选活动已经赢得了我们的诉讼 – 关于我共和党监票人完全缺失任何有效接触选票过程和计票过程的挑战（申诉）。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05175445/Nov5-2.jpg)图片来源：donaldjtrump.com
+“全国的目光都集中在宾夕法尼亚州，但宾夕法尼亚州的民主党人在他们的激进左派州务卿的领导下，他们的唯一目标是从川普总统手中窃取这次选举，有意忽视缺席选票（邮寄选票）的计算过程。现在这一切在费城结束了。
 
-2：科里·R·莱万多夫斯基（Corey R. Lewandowski）是美国政治活动家、说客、政治评论员和作家。2015年1月至2016年6月，他曾担任美国一线新闻网、福克斯新闻网和CNN的政治评论员，以及唐纳德·川普2016年竞选美国总统的竞选经理。
+“由于这场令人难以置信的法律胜利，下级法院的命令已经被推翻。现在，根据宾夕法尼亚州联邦法院的规定，’所有候选人、监票人或候选人代表’应’被准许在验票过程中在场’，并’被准许在6英尺范围内观察验票过程的所有方面，同时遵守所有中共病毒协议，包括，戴上口罩并保持社交距离。
 
-3：鲁道夫·威廉·路易斯·朱利安尼（Rudy Giuliani）是美国律师、网络安全顾问和政治家，1994年至2001年担任纽约市第107任市长，因其在打击纽约黑帮和“911”事件中的杰出贡献， 被喻为“美国市长”。
+“为了国家的利益，宾夕法尼亚州的每个县都应该效仿这位法官的做法，为观察员提供通道，以确保宾夕法尼亚州的透明度和诚信。这是确保公平、透明选举的唯一途径，让所有宾夕法尼亚州的选民都能相信自己的选票会被计算在内。”
 
-4: 帕梅拉·乔·邦迪（Pamela Jo Bondi）是美国律师、游说者和政治家。她是共和党人，2011年至2019年担任佛罗里达州第37任司检察长。
+—-川普2020年副竞选经理兼高级顾问贾斯汀-克拉克(Justin Clark)
 
-5: 杰里米·默瑟（Jeremy Mercer）是一位作家和记者，他的著作包括《时间在那里很柔软》和《当断头台倒下时》。他还为新英格兰大学出版社将罗伯特·巴丁特的《废止》翻译成英文。他是巴黎艺术团体 “零公里 ”的创始成员之一。
+**跟进新闻**：
 
-相关新闻 1：[https://gnews.org/zh-hans/530277/](https://gnews.org/zh-hans/530277/)
+川普竞选官员11月5日下午抱怨道，尽管州上诉法院下达了命令，但他们的观察员仍被当地官员阻挡在费城的计票现场。作为回应，竞选活动向联邦法院提出新诉讼，要求立即颁布禁令，允许其投票观察员进入。这份长达两页的诉讼书被分配给美国地方法院法官保罗-戴蒙德（Paul Diamond），他是乔治·布什总统任命的。
 
-相关新闻 2： [https://gnews.org/zh-hans/529377/](https://gnews.org/zh-hans/529377/)
+相关链接：
 
-相关新闻 3：[https://gnews.org/zh-hans/530594/](https://gnews.org/zh-hans/530594/)
+[TRUMP CAMPAIGN SCORES MAJOR ELECTION INTEGRITY VICTORY IN PHILADELPHIA](https://www.donaldjtrump.com/media/trump-campaign-scores-major-election-integrity-victory-in-philadelphia/)
 
-翻译：【流浪者】校对：【萌萌的朋克 】总结：【key】字幕：【Pamila（文明）】编辑：【Isaiah4031】
+[Trump’s legal team scores small win, small losses in election fight](https://www.politico.com/news/2020/11/05/trumps-legal-team-win-loss-election-434360)
 
-战友之家玫瑰园小队出品
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01145114/GNEWS-GTV-VOG.png)
-2+
+4+

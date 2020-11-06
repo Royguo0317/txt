@@ -1,55 +1,86 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普竞选团队在几个摇摆州起诉 以法律寻求计票的公平性
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/530893/)
+## 焦点观察：底特律缺席选举计票混乱，工作人员封锁窗口，禁止观察员进入
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/530929/)
 
-蒙特利尔战友团 laotou
+翻译：康州农场-霹雳忍者蛙
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05190127/%E7%A5%A8.jpg)图片来自 Sky News
-《生活新闻》11月5日下午报道，费城目前正面临接踵而至的混乱局面，尽管州法院发出法庭命令，允许川普竞选团队的官员在与统计选票的工作人员保持6英尺的距离，以监控潜在的舞弊行为，但该市选举总部拒绝让川普竞选团队官员观看计票过程。
+校对：康州农场-Freeearth，Bruce
+![Covering Windows in Detroit]()![Covering Windows in Detroit](https://media.breitbart.com/media/2020/11/Covering-Windows-in-Detroit-640x480.jpg)
+周三，数百名担心舞弊的非官方共和党观察员聚集在计票点，底特律的缺席选票计票工作陷入混乱。
 
-当天早些时候，美国总统川普的竞选取得了巨大胜利，宾夕法尼亚州上诉法院裁定，川普阵营可以在这个竞争激烈的摇摆州监督计票情况。川普竞选团队官员此前曾在费城被推开，有时甚至有100英尺远，他们无法正确观察计票的公平性和准确性。
+底特律市正在使用TCF中心–原科博大厅–来统计该市所有的缺席选票。
 
-川普竞选团队副经理兼高级律师贾斯汀·克拉克（Justin Clark）对宾州法院的裁决作出回应，他称这是一次重大胜利，“（州法院的裁决）是在选举诚信、选举透明度、所有宾夕法尼亚州选民以及法治方面的重大胜利，川普竞选团队在诉讼中的获胜，挑战了将我们的共和党计票观察员被完全排除在外的企图，（他们试图阻止我们）进入选票处理和计票过程的观察渠道。“
+共和党人和川普的支持者越来越警觉，因为在周二晚间的早期计票过程中，川普在该州保持着强大的领先优势，但随着历史意义上的民主党地区的邮寄选票被计算出来，这种领先优势就蒸发了。
 
-“全国的目光都集中在宾夕法尼亚州，但宾夕法尼亚州民主党人，由激进的左翼州官员领导，他们的唯一目标是从川普总统手中抢走这次选举，他们一直对缺席计票过程（的舞弊）视而不见。现在这一切在费城该结束了。
+社交媒体上发布的几段视频显示，工作人员试图限制透明度，不允许外面的人观察计票区内部的情况。
 
-由于这一令人难以置信的法律胜利，下级法院的命令被推翻。现在，根据宾夕法尼亚州联邦法院的规定，“所有候选人、观察者或候选人代表‘应’被允许出席计票过程”，并“被允许在6英尺内观察计票过程的所有方面，同时遵守所有COVID-19协议，包括戴着面具，保持社交距离。
 
-为了国家的利益，宾夕法尼亚州的每个县都应该听从这位法官的指导，并为观察员提供进入的机会，以确保宾夕法尼亚州的透明度和完整性。这是确保公正、透明选举的唯一途径，在这场选举中，所有宾夕法尼亚州的选民都有信心自己的选票会算数。“
 
-与此同时，川普总统竞选团队又在一个有争议的摇摆州提起诉讼，寻求确保总统选举的完整性。川普阵营为确保佐治亚州选举的诚信而提起诉讼，此前在密歇根州进行了类似诉讼和宾夕法尼亚州采取的法律行动。
+> The scene at Detroit’s absentee ballot counting center is growing more heated. The windows now being covered up. Allegations of violations. Sec. of State says she welcomes challenges. [pic.twitter.com/oUL4A0h3Ku](https://t.co/oUL4A0h3Ku)
+> — Matt Finn (@MattFinnFNC) [November 4, 2020](https://twitter.com/MattFinnFNC/status/1324084637010976769?ref_src=twsrc%5Etfw)
 
-川普竞选团队希望确保只有在选举日投票的合法选票才被统计，这样最终的投票就反映了一个遵循法律的公平程序。
 
-“川普总统和他的团队为维护法治而为国家利益而战，佐治亚州的法律非常明确，要合法点票，必须是在选举日晚上7点前收到邮寄选票。这仍然是法律，即使在民主党今年早些时候起诉延长最后期限和推迟选举日之后，川普总统和共和党人奋力维护佐治亚州法律，我们还是赢了。”副竞选经理兼高级律师贾斯汀·克拉克（Justin Clark）在一份声明中说。
+*推文翻译：*
+*马特·芬恩（Matt·Finn）@MattFinnFNC：底特律缺席票计票中心现场局势正在升温。窗户正在被遮挡起来。对于违规的指控，州务卿表示，她欢迎挑战。（2020年11月5日上午4:22）*
+福克斯新闻制片人马特·芬恩写道：”一些窗户仍然被封着。我问了几个人谁把它们贴起来，为什么，没有明确的答案。几位民调异议人士或是工作人员告诉我们，他们觉得这个房间里的（共和党人和民主党人）人数不成公允比例。”
 
-“但今天，佐治亚州的一位共和党计票观察员目睹了查塔姆县53张迟到的缺席选票被非法添加到一堆准时缺席的选票上。我们不会允许民主党选举官员用迟来的非法选票从川普总统手中窃取这次选举。川普总统和佐治亚共和党已提出诉讼，要求佐治亚州所有县将按时、迟交的选票，以及所有合法的投票分开，以确保自由、公平的选举，只有合法的选票才算有效选票。”
+川普竞选团队已经提起诉讼，认为他们没有被允许参与计票过程，因此要求停止投票，直到获得充分的行动自由。
 
-他接着说，“我们期待法院迅速解决这一问题，并期待川普总统在佐治亚州再次获胜。”
+一名工人用大块硬纸板遮住窗户，阻止外面的人看见里面正在发生的事情。其他工人用披萨包装盒挡住门窗。与此同时，场地外的一些人高喊着： “停止投票”。
 
-昨天，川普阵营在宾夕法尼亚州提起诉讼，以确保当地合法计票程序的完整性，在与记者的通话中，竞选经理比尔·斯特皮恩说：“我们宣布了宾夕法尼亚州的胜利。”
 
-川普阵营已采取法律行动，以确保合法的计票程序不受损害，川普2020年竞选副经理贾斯汀·克拉克（Justin Clark）表示，川普竞选团队已提起诉讼，以获得司法来干预该州目前（的点票情况），确定哪些选票可以点票，以及计票过程是否诚实。
 
-“这是我们有生之年最重要的选举，川普总统昨晚明确了我们的前进道路，为了国家的利益，确保这次选举的真实完整性。宾夕法尼亚州正在发生坏事，民主党人正密谋剥夺共和党人的选举权并稀释共和党人的选票，川普总统和他的团队正在努力制止这一事件。
+> Election challengers chanting “stop the vote” outside of TCF Center in [#Detroit](https://twitter.com/hashtag/Detroit?src=hash&amp;ref_src=twsrc%5Etfw) [#Michigan](https://twitter.com/hashtag/Michigan?src=hash&amp;ref_src=twsrc%5Etfw) [#Elections2020](https://twitter.com/hashtag/Elections2020?src=hash&amp;ref_src=twsrc%5Etfw) 
+> 
+> Source: [@annalise\_frank](https://twitter.com/annalise_frank?ref_src=twsrc%5Etfw) [pic.twitter.com/fcj41iRPFJ](https://t.co/fcj41iRPFJ)
+> — Global News (@GlbBreakNews) [November 4, 2020](https://twitter.com/GlbBreakNews/status/1324090524060495874?ref_src=twsrc%5Etfw)
 
-宾夕法尼亚州神经错乱、激进的左翼联邦书记凯西·布克瓦尔（Kathy Boockvar）与党派性的州最高法院（State supreme court）串通，在幕后为乔·拜登助威。美国宪法在这个问题上是明确的，立法机关规定了美国选举的时间、地点和方式，而不是州法院或行政官员。正如总统正确地说的那样，最高法院必须解决这一关键的有争议的法律问题，因此川普总统的竞选团队正着手提出诉讼，要求最高法院干预宾夕法尼亚州最高法院非法延长邮寄选票接收截止日期的作法。法律站在川普总统这边，正如第八巡回法院刚才所说，改变选票接收截止日期，实际上就是改变选举的时间、地点和方式，根据宪法，只有州议会或美国国会才能这样做。
 
-川普阵营除了在“宾夕法尼亚州共和党诉布克瓦尔”要求司法干预的动议外，我们今天还将采取两项重要的法律行动，以确保宾夕法尼亚州选举的完整性。我们起诉是为了阻止民主党计票官员对共和党计票观察员的隐瞒，包括选票、计票和处理过程，他们的唯一工作就是确保每一张有效选票都被清点，并且一次清点一次。全国的目光都集中在宾夕法尼亚州，但宾夕法尼亚州一直对缺席计票过程视而不见，今天必须停止。在费城和其他地方，民主党官员强迫我们的观察员离计票过程保持25英尺或更多的距离，使我们的观察员无法进行他们的监督计票工作。我们的诉讼包括暂时停止计票，直到有了真正的透明度，共和党人可以确保所有的计票都是在公开和依法进行的。“
+*推文翻译：*
+*环球新闻（Global [email protected] ）*
+*选举异议人士在TCF中心外高喊 “停止计票 “。#底特律#密歇根*
+*#2020大选*
+*源自：@源自：@annalise——frank*
+*推文翻译：*
+*环球新闻（Global [email protected] ）*
+*TCF中心为阻止观察员，将窗户关闭。*
+*源自：@ericjgibbs*
+其他视频显示，底特律警察保护着大门，阻止监督员进入。
 
-川普阵营还起诉要求停止宾夕法尼亚州民主党人旨在违反法律本身的“帮助美国人投票法”（HAVA），虽然HAVA法要求各州确保某些首次投票的选民提供身份证明以便投票，但（这位激进的左翼女狂人——译者加注）布克瓦尔（Boockvar）三天前重新编写了宾夕法尼亚州选举法，滥用其单方面的行政法令，并将缺席和邮寄选民的截止日期改为在截止日期之后提供缺失的身份证明。如果我们不采取行动，宾夕法尼亚州的人，可能还有所有的美国人，可能会被迫再等上几天，等待选举结果——这一切都是因为布克瓦尔荒谬的最后时刻指导直接违反了选举法。
 
-“通过这些关键行动，川普总统告诉所有美国人，为了国家利益，他将不惜一切代价确保这次选举的真实性和完整性。”
 
-美国总统川普的竞选团队已在密歇根州提起诉讼，称那里的计票官员阻止川普竞选团队人员观察计票过程，竞选团队希望确保关键战场州选票的真实性和完整性，该州是决定选举结果的几个州之一。
+> Poll watchers try to get into the ballot counting area in [#Detroit](https://twitter.com/hashtag/Detroit?src=hash&amp;ref_src=twsrc%5Etfw) [#Michigan](https://twitter.com/hashtag/Michigan?src=hash&amp;ref_src=twsrc%5Etfw) [#Elections2020](https://twitter.com/hashtag/Elections2020?src=hash&amp;ref_src=twsrc%5Etfw) 
+> 
+> Source: [@TheInsiderPaper](https://twitter.com/TheInsiderPaper?ref_src=twsrc%5Etfw) [pic.twitter.com/ZQJoYYGarU](https://t.co/ZQJoYYGarU)
+> — Global News (@GlbBreakNews) [November 4, 2020](https://twitter.com/GlbBreakNews/status/1324089825998315521?ref_src=twsrc%5Etfw)
 
-此前，川普团队表示将要求威斯康星州重新计票。
 
-由于2020年总统大选的结果仍然非常令人怀疑，重新计票、调查和潜在诉讼可能迫在眉睫，美国总统川普竞选团队负责人昨天上午表示，根据他们对剩余摇摆州的估计，他相信总统能最终赢得大选。
+*推文翻译：*
+*环球新闻（Global [email protected] ）*
+*在#底特律 #密歇根，投票监督员试图进入计票区域#2020大选）*
+*源自：@TheInsiderPaper*
+随着紧张局势的加剧，底特律卫生部门的一名代表试图清理计票区的大厅，这进一步激怒了监督者。
 
-原文链接：https://www.lifenews.com/2020/11/05/philadelphia-election-center-refuses-to-let-trump-officials-watch-vote-counting-despite-court-order/
 
-2+
+
+> [#BREAKING](https://twitter.com/hashtag/BREAKING?src=hash&amp;ref_src=twsrc%5Etfw): Large, animated crush of “stop the count” protestors trying to push their way into TCF hall in [#Detroit](https://twitter.com/hashtag/Detroit?src=hash&amp;ref_src=twsrc%5Etfw) where ballots are being counted.
+> 
+> They’re being blocked by guards at the door. 
+> 
+> Pizza boxes are pushed against the window to obstruct view. It’s tense. [@NBCNews](https://twitter.com/NBCNews?ref_src=twsrc%5Etfw) [pic.twitter.com/zFhzd88skX](https://t.co/zFhzd88skX)
+> — Steve Patterson (@PattersonNBC) [November 4, 2020](https://twitter.com/PattersonNBC/status/1324086177885003778?ref_src=twsrc%5Etfw)
+
+
+*推文翻译：*
+*史蒂夫·帕特森（@PattersonNBC*
+*突發：
+大量憤怒的抗議者們高喊“停止記票”，并試圖進入已經記票的T C F大廳。*
+*他们被门口的警卫挡住了。
+披萨包装盒被放在窗户上用来遮挡视线。很紧张。（@NBC新闻）（2020年11月5日上午4:28）*
+州务卿乔塞琳·本森（Jocelyn Benson）此前表示，计票工作可能要到周五才能完成。她在周三曾经估计今晚可以完成。
+
+据《底特律新闻》报道，随着99%的选票统计完毕，拜登领先川普超过6万票。
+
+1+
