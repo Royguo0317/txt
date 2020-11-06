@@ -1,64 +1,86 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## War Room 476-477 摘要：川普总统在113日月赢得连任选举是自发组织力量的流露; 是人民对人类命运共同体的大觉醒。
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/530909/)
+## 焦点观察：底特律缺席选举计票混乱，工作人员封锁窗口，禁止观察员进入
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/530929/)
 
-- 作者：Jenny Ball
+翻译：康州农场-霹雳忍者蛙
 
+校对：康州农场-Freeearth，Bruce
+![Covering Windows in Detroit]()![Covering Windows in Detroit](https://media.breitbart.com/media/2020/11/Covering-Windows-in-Detroit-640x480.jpg)
+周三，数百名担心舞弊的非官方共和党观察员聚集在计票点，底特律的缺席选票计票工作陷入混乱。
 
-***更多真相，请关注：[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)***
+底特律市正在使用TCF中心–原科博大厅–来统计该市所有的缺席选票。
 
-班农：川普总统在113日月赢得连任选举是自发组织力量的流露; 是人民对人类命运共同体的大觉醒。
+共和党人和川普的支持者越来越警觉，因为在周二晚间的早期计票过程中，川普在该州保持着强大的领先优势，但随着历史意义上的民主党地区的邮寄选票被计算出来，这种领先优势就蒸发了。
 
-川普在道义上有义务和责任执行人民的意愿和道德义务告慰诺曼底牺牲的孩子们。
-
-每个在11月3日投票的人都对在诺曼底死去而无法投票的孩子负有道义上的义务，
-
-他们发牢骚吗？他们是哭泣吗？没有，他们知道他们将为共和国而战斗到死。
-
-如果您允许这样的事情发生：将人民选举的胜利拱手让给盗窃选举的人，让给南希佩洛西的阴谋，我希望您向在D天死亡的孩子们解释。
-
-我们不能成为香蕉共和国那样的懦夫，如果我们允许进行一场无法核实，无法核查的非法投票，那么我们应该为自己感到羞耻。我们必须捍卫创始人遗赠给我们的珍宝。让乔·拜登1月20日进了白宫的唯一途径就是让左派窃取选举胜利，因为左派获胜的唯一途径就是我们将胜利拱手让给他们。
-
-2021年1月20日中午，唐纳德·J·川普将举起《特朗普家庭圣经》，并宣誓就任第二任总统。我们赢得了这次选举,我们需要像胜利者一样行事。川普已经连任，今天他应该开始执行连任四年美国总统的议程。民主党以为共和党人会像以往那样任其为所欲为，他们大错特错了。川普赢了选举，他即将开始第二任期，我们要开始工作。
-
-众议长佩洛西将不得不自食其果，因为她要去计算所有50个州的选票。
-
-福奇博士和联邦调查局局长雷今天都应被解雇。福奇必须揭露他与中共和世卫组织的每封电子邮件。
-
-华尔街希望平民主义者退出，他们希望与CCP重新开展业务。
-
-人民权威人士：宾夕法尼亚州的75万缺席选票是12％的选票。
-
-尽管昨天我们的投票率超过了92％，但左派现在正将退回到88％，以试图窃取胜利。
-
-所罗门报道：在费城这样的地方，我们看到了选举官员对选民的不同对待, 这种两级投票制是违反宪法的问题。我们正在对亚利桑那州，密歇根州，宾夕法尼亚州和威斯康星州进行全面的法律检查，查看每个选票数高于选民登记数选区的报告。
-
-12月6日，8月14日是我们在选举学院获得投票的关键日期, 现在该站起来了。
-
-12月6日就已经完成了；12月8日是安全港/
-
-12月14日选举学院。 如果我们错过这些，没什么大不了的，我们控制了议会，我知道纽约时报，CNN，MSNBC这些个“主流媒体”不喜欢，所以他们不谈论，但是这是现实，我们赢得了这场胜利，我们控制着每个机构，我们控制着法院，我们控制着州立法机关 ，我们控制了参议院。现在该大声说出来了，我们为此感到自豪，我们为控制这些机构感到自豪，因为我们赢得了选举。
-
-班农先生说关键时刻勇者胜，川普总统在就职日之前有很多牌可以出，我们有四个杀手锏：
-
-1.第二任总统
-
-2.国家立法机关
-
-3.众议院和参议院
-
-4.美国人民的意志
-
-我们将回到表明拜登犯罪集团出卖美国的“地狱硬盘”，检察长巴尔今天应该任命起诉乔·拜登的特别检察官。拉希姆·说希望见到川普政府资深的行政官员巴尔检察长捍卫选举的胜利成果，这样，我们不需要处于紧急状态，而需要通过交流的形式解决。宾夕法尼亚州在法律上的重大胜利为共和党人提供了更多的计票机会。Twitter现在正在审查阻止该信息的发布。
-
-班农告诫我们要迎击所有敌人-外国的和国内的。
-
-War Room 476：[https://podcasts.google.com/feed/aHR0cHM6Ly9saXN0ZW4ud2Fycm9vbS5vcmcvZmVlZC54bWw/episode/d2Fycm9vbWltcGVhY2htZW50LnBvZGJlYW4uY29tL2NjZTBhNTQ0LWIyZjAtM2E3NC05OGM2LTU0ZWFkZjVhZTU5OQ](https://podcasts.google.com/feed/aHR0cHM6Ly9saXN0ZW4ud2Fycm9vbS5vcmcvZmVlZC54bWw/episode/d2Fycm9vbWltcGVhY2htZW50LnBvZGJlYW4uY29tL2NjZTBhNTQ0LWIyZjAtM2E3NC05OGM2LTU0ZWFkZjVhZTU5OQ)
+社交媒体上发布的几段视频显示，工作人员试图限制透明度，不允许外面的人观察计票区内部的情况。
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+> The scene at Detroit’s absentee ballot counting center is growing more heated. The windows now being covered up. Allegations of violations. Sec. of State says she welcomes challenges. [pic.twitter.com/oUL4A0h3Ku](https://t.co/oUL4A0h3Ku)
+> — Matt Finn (@MattFinnFNC) [November 4, 2020](https://twitter.com/MattFinnFNC/status/1324084637010976769?ref_src=twsrc%5Etfw)
+
+
+*推文翻译：*
+*马特·芬恩（Matt·Finn）@MattFinnFNC：底特律缺席票计票中心现场局势正在升温。窗户正在被遮挡起来。对于违规的指控，州务卿表示，她欢迎挑战。（2020年11月5日上午4:22）*
+福克斯新闻制片人马特·芬恩写道：”一些窗户仍然被封着。我问了几个人谁把它们贴起来，为什么，没有明确的答案。几位民调异议人士或是工作人员告诉我们，他们觉得这个房间里的（共和党人和民主党人）人数不成公允比例。”
+
+川普竞选团队已经提起诉讼，认为他们没有被允许参与计票过程，因此要求停止投票，直到获得充分的行动自由。
+
+一名工人用大块硬纸板遮住窗户，阻止外面的人看见里面正在发生的事情。其他工人用披萨包装盒挡住门窗。与此同时，场地外的一些人高喊着： “停止投票”。
+
+
+
+> Election challengers chanting “stop the vote” outside of TCF Center in [#Detroit](https://twitter.com/hashtag/Detroit?src=hash&amp;ref_src=twsrc%5Etfw) [#Michigan](https://twitter.com/hashtag/Michigan?src=hash&amp;ref_src=twsrc%5Etfw) [#Elections2020](https://twitter.com/hashtag/Elections2020?src=hash&amp;ref_src=twsrc%5Etfw) 
+> 
+> Source: [@annalise\_frank](https://twitter.com/annalise_frank?ref_src=twsrc%5Etfw) [pic.twitter.com/fcj41iRPFJ](https://t.co/fcj41iRPFJ)
+> — Global News (@GlbBreakNews) [November 4, 2020](https://twitter.com/GlbBreakNews/status/1324090524060495874?ref_src=twsrc%5Etfw)
+
+
+*推文翻译：*
+*环球新闻（Global [email protected] ）*
+*选举异议人士在TCF中心外高喊 “停止计票 “。#底特律#密歇根*
+*#2020大选*
+*源自：@源自：@annalise——frank*
+*推文翻译：*
+*环球新闻（Global [email protected] ）*
+*TCF中心为阻止观察员，将窗户关闭。*
+*源自：@ericjgibbs*
+其他视频显示，底特律警察保护着大门，阻止监督员进入。
+
+
+
+> Poll watchers try to get into the ballot counting area in [#Detroit](https://twitter.com/hashtag/Detroit?src=hash&amp;ref_src=twsrc%5Etfw) [#Michigan](https://twitter.com/hashtag/Michigan?src=hash&amp;ref_src=twsrc%5Etfw) [#Elections2020](https://twitter.com/hashtag/Elections2020?src=hash&amp;ref_src=twsrc%5Etfw) 
+> 
+> Source: [@TheInsiderPaper](https://twitter.com/TheInsiderPaper?ref_src=twsrc%5Etfw) [pic.twitter.com/ZQJoYYGarU](https://t.co/ZQJoYYGarU)
+> — Global News (@GlbBreakNews) [November 4, 2020](https://twitter.com/GlbBreakNews/status/1324089825998315521?ref_src=twsrc%5Etfw)
+
+
+*推文翻译：*
+*环球新闻（Global [email protected] ）*
+*在#底特律 #密歇根，投票监督员试图进入计票区域#2020大选）*
+*源自：@TheInsiderPaper*
+随着紧张局势的加剧，底特律卫生部门的一名代表试图清理计票区的大厅，这进一步激怒了监督者。
+
+
+
+> [#BREAKING](https://twitter.com/hashtag/BREAKING?src=hash&amp;ref_src=twsrc%5Etfw): Large, animated crush of “stop the count” protestors trying to push their way into TCF hall in [#Detroit](https://twitter.com/hashtag/Detroit?src=hash&amp;ref_src=twsrc%5Etfw) where ballots are being counted.
+> 
+> They’re being blocked by guards at the door. 
+> 
+> Pizza boxes are pushed against the window to obstruct view. It’s tense. [@NBCNews](https://twitter.com/NBCNews?ref_src=twsrc%5Etfw) [pic.twitter.com/zFhzd88skX](https://t.co/zFhzd88skX)
+> — Steve Patterson (@PattersonNBC) [November 4, 2020](https://twitter.com/PattersonNBC/status/1324086177885003778?ref_src=twsrc%5Etfw)
+
+
+*推文翻译：*
+*史蒂夫·帕特森（@PattersonNBC*
+*突發：
+大量憤怒的抗議者們高喊“停止記票”，并試圖進入已經記票的T C F大廳。*
+*他们被门口的警卫挡住了。
+披萨包装盒被放在窗户上用来遮挡视线。很紧张。（@NBC新闻）（2020年11月5日上午4:28）*
+州务卿乔塞琳·本森（Jocelyn Benson）此前表示，计票工作可能要到周五才能完成。她在周三曾经估计今晚可以完成。
+
+据《底特律新闻》报道，随着99%的选票统计完毕，拜登领先川普超过6万票。
 
 1+

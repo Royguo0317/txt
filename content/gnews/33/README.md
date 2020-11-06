@@ -1,31 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11月4日凌晨4点有人将手提箱和便携式冷藏箱带入底特律点票区
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/531263/)
+## 2020.11.04上午内蒙通辽、辽宁阜新、沈阳多地出现三个太阳
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/531252/)
 
-喜马拉雅联盟加拿大农场 ctt
-校对 MyWay 上传 WJ
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05222058/5464646.jpg)图片来源：thegatewaypundit.com
-据GATEWAY PUNDIT报道，在选举日过后(11月4日) 的凌晨4点, 一位民意观察员于在底特律的一个计票中心拍摄到了非常可疑的画面，一辆白色货车上的人，将一个红色箱子带到选票计数点现场。拍摄人凯利·索莱尔(Kellye SoRelle)是德克萨斯州律师，也是川普律师协会成员。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05223250/%E5%B0%81%E9%9D%A2-22.jpg)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-索莱尔将视频发给了德克萨斯州点票处，因为她觉得看到的箱子可能是一个投票箱，并且箱子是在所有选票都到了点票处后才到达的。
+据[**人民日报**](https://weibo.com/2803301701?refer_flag=1001030103_) [11月04日 11:30](https://weibo.com/2803301701/Jsk1c5uxU?refer_flag=1001030103_) 来自 [微博视频](https://app.weibo.com/t/feed/19DcdW)
 
-据选票观察员描述，一共有三辆车， 载有至少有13万张投给拜登的选票，在夜深人静时抵达底特律。
+【[#内蒙古通辽现*幻日*现象#](https://s.weibo.com/weibo?q=%23%E5%86%85%E8%92%99%E5%8F%A4%E9%80%9A%E8%BE%BD%E7%8E%B0%E5%B9%BB%E6%97%A5%E7%8E%B0%E8%B1%A1%23)】11月4日10时30分许，内蒙古通辽市科左后旗甘旗卡镇上空出现了“三个太阳”。当地气象部门表示，天空同时出现三个太阳的一种奇异的光学现象，由整齐排列在空中的冰柱折射所形成，称为*幻日*。[#通辽天空出现三个太阳#](https://s.weibo.com/weibo?q=%23%E9%80%9A%E8%BE%BD%E5%A4%A9%E7%A9%BA%E5%87%BA%E7%8E%B0%E4%B8%89%E4%B8%AA%E5%A4%AA%E9%98%B3%23)（张枨、王婷、刘强） [L人民日报的微博视频](http://t.cn/A6GbWs1O) ​
 
-一段在脸书发布的视频报告中显示，有人拿着手提箱和便携式冷藏箱进出安全区域，此时在这个区域 邮寄选票正在计算中, 这一切发生 在凌晨4点换班时”。
+据[**沸点天际线**](https://weibo.com/7307157206?refer_flag=1001030103_) [2020年11月6日05:56](https://weibo.com/7307157206/Jsk2jhpVk?refer_flag=1001030103_)
 
-据索莱尔描述，点票工作人员可以自由进出正在点票的地方，而无需任何身份核查。 这些工作人员显然是六个小时轮班，这意味着他们不需要拿行李包。”
+【“*幻日*”奇观！[#辽宁彰武上空现三个太阳#](https://s.weibo.com/weibo?q=%23%E8%BE%BD%E5%AE%81%E5%BD%B0%E6%AD%A6%E4%B8%8A%E7%A9%BA%E7%8E%B0%E4%B8%89%E4%B8%AA%E5%A4%AA%E9%98%B3%23)空中遥相对望】11月4日上午8点多，辽宁阜新。彰武县市民拍到空中同时出现了三个太阳。从视频中看到，三个太阳在天空两侧遥遥相望。这应该是大气的光学现象——*幻日*，在天空中分布着大量微小的六角冰晶，在一定条件下，受日光照射就会发生折射现象，就有可能出现“多个太阳“的奇观。[2阜新](https://weibo.com/p/1001018008621090000000000)
+[O视频|辽宁彰武上空现“*幻日*”三个太阳空中遥相对望](http://t.cn/A6Gblf85) [L沸点天际线的微博视频](http://t.cn/A6GblxWb) [收起全文d](void%280%29;)
 
-川普的竞选团队今天已向密歇根州法院提起诉讼，要求暂停计票，直到有竞选团队监管人员在场，确保没有作弊行为为止。同时川普竞选团队还要求审查那些在无监管人员在场的情况下已计数的选票。
+据[**北京头条**](https://weibo.com/1644948230?refer_flag=1001030103_) [11月04日 11:40](https://weibo.com/1644948230/Jsk4V9Xqg?refer_flag=1001030103_) 来自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)
 
-评论：
-这箱子到底是做什么的呢？为什么箱子是在所选票都到了点票处后才到达的？深夜里，有三辆车载有至少有13万张选票，为什么这些选票都是投给拜登的？近日在选战中，民主党舞弊不断，以上不得不令人深思！
+【[#沈阳上空出现3个太阳#](https://s.weibo.com/weibo?q=%23%E6%B2%88%E9%98%B3%E4%B8%8A%E7%A9%BA%E5%87%BA%E7%8E%B03%E4%B8%AA%E5%A4%AA%E9%98%B3%23) 网友：呼叫后羿！】11月4日上午，不少网友表示，辽宁沈阳出现奇妙景观：天空中出现了“三个太阳”。据悉，此现象名为“*幻日*”，是大气的一种光学现象↓↓↓（北青-北京头条编辑 常伟琦）[L青流视频的秒拍视频](http://t.cn/A6GbOWtj) ​
 
-文章链接：
+据**天无二日，民无二王- 教育百科：［**天上不可能同时出现两个太阳，一国之内不能同时有两个君主存在。比喻事物不能同时有两大。《孟子．万章上》：「孔子曰：『天无二日，民无二王。』舜既为天子矣，又帅天下诸侯，以为尧三年丧是二天子矣！」《三国演义．第八○回》：「华歆奏曰：『天无二日，民无二王。』汉帝既禅天下，理宜退就藩服。」也作「天无二日，土无二王」。**］**
 
-[WATCH: Suitcases and Coolers Rolled Into Detroit Voting Center at 4 AM, Brought Into Secure Counting Area](https://www.thegatewaypundit.com/2020/11/watch-suitcases-coolers-rolled-detroit-voting-center-4-brought-secure-counting-area/)
+中国内蒙通辽、辽宁阜新、辽宁沈阳多地于同日上午出现三个太阳，这个时间点其实也是美国总统大选开票之日，由于中共的渗透和破坏，在美国总统大选的开票之夜做憋候选人拜登拒绝承认败选，胜利已然在握的川普总统正在通过法律捍卫胜利、守护正义，而在这一切乱相的幕后推手中共治下的多地同时天现三日，是否喻示着变天在即？天降异相，驱除邪共！
 
-[WATCH: Ballot Count Watcher Describes At Least 130,000 Ballots ALL FOR BIDEN Arriving in Three Vehicles in Detroit in Dead of Night](https://www.thegatewaypundit.com/2020/11/watch-ballot-count-watcher-describes-least-130000-ballots-biden-arriving-three-vehicles-detroit-dead-night/)
+（文章内容仅代表作者个人观点）
 
 2+
