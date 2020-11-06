@@ -13,26 +13,26 @@
 
 
 
-### [如果中共代理人乔·拜登当选 美国民主与法治将就此终结](/content/gnews/1/README.md)
+### [美大选扑朔迷离，中共国背后操纵](/content/gnews/1/README.md)
  ` 秘密翻译组G-Translators`
 
-### [视频班农:11月3日大选的结果是川普总统在连任竞选中大获全胜。现在发生的一切诡计,都是那些一直在对川普总统发动信息战的人蓄意所为](/content/gnews/2/README.md)
+### [如果中共代理人乔·拜登当选 美国民主与法治将就此终结](/content/gnews/2/README.md)
  ` 秘密翻译组G-Translators`
 
-### [惊爆！！民主党党员揭发正发生在费城计票中心和费城最高层的腐败](/content/gnews/3/README.md)
+### [视频班农:11月3日大选的结果是川普总统在连任竞选中大获全胜。现在发生的一切诡计,都是那些一直在对川普总统发动信息战的人蓄意所为](/content/gnews/3/README.md)
  ` 秘密翻译组G-Translators`
 
-### [视频独家!!亨特拜登为何会将自己吸毒和滥交的生活分享给他嫂子？又为何以“给孩子们看新爸爸”来威胁他嫂子？](/content/gnews/4/README.md)
+### [惊爆！！民主党党员揭发正发生在费城计票中心和费城最高层的腐败](/content/gnews/4/README.md)
  ` 秘密翻译组G-Translators`
 
-### [视频惊爆!!密歇根州邮局内部人士爆料，主管命令他们将11月4号拿到的邮寄选票都盖上3号的邮戳,冒充有效选票](/content/gnews/5/README.md)
+### [视频独家!!亨特拜登为何会将自己吸毒和滥交的生活分享给他嫂子？又为何以“给孩子们看新爸爸”来威胁他嫂子？](/content/gnews/5/README.md)
  ` 秘密翻译组G-Translators`
 
-### [视频加州在宣布投票结果之后，洛杉矶县所谓的工作人员还在大量收集“邮寄选票”](/content/gnews/6/README.md)
+### [视频惊爆!!密歇根州邮局内部人士爆料，主管命令他们将11月4号拿到的邮寄选票都盖上3号的邮戳,冒充有效选票](/content/gnews/6/README.md)
  ` 秘密翻译组G-Translators`
 
-### [拜登的篡权网站和调查拜登犯罪的白宫请愿](/content/gnews/7/README.md)
- ` Wenya Himalaya`
+### [视频加州在宣布投票结果之后，洛杉矶县所谓的工作人员还在大量收集“邮寄选票”](/content/gnews/7/README.md)
+ ` 秘密翻译组G-Translators`
 
 ### [美国大选大戏刚刚开始中共已按耐不住内斗加剧](/content/gnews/8/README.md)
  ` GM08`
