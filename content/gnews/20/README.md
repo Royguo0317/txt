@@ -1,33 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 像9.5一样坚挺，数学家根据本福德定律发现，拜登的选票曲线不符合自然规律
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/532111/)
+## 文贵说｜系列图片连载（三十七）
+` GM98` [轉載自GNews](https://gnews.org/zh-hans/532483/)
 
-**作者：康州农场-大飞机**
+## 253.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06085113/02-3.jpg)
+中国的上访和中国的强拆，是共产党未来最大的罪责之一，是人类的人道灾难之一，是公开抢劫惨案之一，是必须要受到审判的。
 
-今天，有数学家发现，把本次大选的数据套入本福德定律公式，发现拜登的选票曲线不符合正常的自然规律走势，也就是说拜登的选票增加是异常的，有外力干预的。
+——郭文贵先生2020年4月27日
 
-咱先简单科普下本福德定律，本福德定律中自然生成的数字首位为1的概率为30.10%，2的概率为17.61%，依次递减，首位为9的概率仅为4.58%。。推论下来，数字越大，以其为首几位的数字的出现概率就越低。把很多从实际生活中得出的数据套进公式中，得出的都是如下图一样的平滑曲线，一般这个公式都用来检查各种数据是否造假。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06063551/%E5%9B%BE%E7%89%871-6.jpg)
-根据上面的公式把本次大选每人各选区的得票总数的首位数字，输入计算，得出以下曲线：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06063726/%E5%9B%BE%E7%89%872-6.jpg)
-由上图看出，川普各区选票数字，在图表中呈现出自然平滑的曲线，并且通过测试，它符合自然规律。而拜登的数据，在3、4、5、6开头的数字中出现率突然增加，这不符合自然规律，它没有通过测试，这样异常的曲线只有“人工干预”才可能出现，图表完美的解释了突然增加的邮寄选票。
+## 254.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06085132/01-3.jpg)
+少一点我，多一点儿他，少一点给我，多一点儿给他。这就好，那就是我追求的佛教的境界。利他。真善。因此你就会爱很多事情。
 
-从图表一眼就能看出数据的真假，还有现在不断出现的各种“舞弊”证据，拜登团伙不断的在挑战美国人民的底线，美国自由民主的底线，很快全美国就会掀起保卫民主自由的大浪，缉拿真区，他们很快要“罪有应得”。
+——郭文贵先生2018年9月12日
 
-参考资料：
+## 255.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06091353/04-2.jpg)
+这个世界上最可怕的是，信你不信的东西，而嘴上说，你不信的东西说你相信，那是悲剧，那是折磨，那是痛苦。
 
-Github源码：
+——郭文贵先生2020年5月5日
 
-[https://github.com/cjph8914/2020\_benfords/blob/main/Chicago\_Wards\_Precincts\_Benfords\_Data.ipynb](https://github.com/cjph8914/2020_benfords/blob/main/Chicago_Wards_Precincts_Benfords_Data.ipynb)
+## 256.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06091419/03-3.jpg)
 
-信息来源：
-
-[https://threadreaderapp.com/thread/1324620849337552896.html](https://threadreaderapp.com/thread/1324620849337552896.html)
-
-本福德定律说明（Benford’s Law）
-
+```
+我们决不允许再有一次比共产党更坏的政党，和政治家再绑架中国人民，让中国人挣钱要玩命，花钱连玩命都玩不了的这种王八蛋经济。
+```
 
 
-2+
+——郭文贵先生2020年5月5日
+
+## 257.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06091450/023.jpg)
+杨英的故事告诉我们，中国人有多么单纯，既信谣还传谣，而且一说就信。
+
+——郭文贵先生2020年5月5日
+
+## 258.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06091510/011.jpg)
+说真的我在爆料革命以前我没发现，中国人花钱比挣钱还难！
+
+——郭文贵先生2020年5月5日
+
+## 259.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06091534/001.jpg)
+共产党在它嗝屁之前，我们面临着几个大的问题，如何让更多的人、更多的精英认识到让家人和孩子安全的躲起来，到海外。一个叫安全的方式，让更多的精英和下一代不要受到震荡前的影响，甚至遭受厄运，这叫人才安全。
+
+——郭文贵先生2020年5月5日
+
+0

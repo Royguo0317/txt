@@ -1,11 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年11月5日CCP冠状病毒大流行第285集
-` GM30` [轉載自GNews](https://gnews.org/zh-hans/531083/)
+## 11月5日要闻同声传译: 福克斯玛丽亚采访班农
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/532574/)
 
-美国正式推出世卫组织；党媒罔顾劳动法：双休与8小时工作是遏制中国的枷锁；中共内斗激烈，阿里开盘跌8%；CCP制度就是让百姓互相残害……
+2020年11月5日要闻同声传译: 福克斯玛丽亚采访班农
 
 
+
+#### **By：【秘密翻译组G-Translators】**
 
 1+
