@@ -1,34 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11月4日费城反选举作弊新闻发布会：佛州前检察长邦迪女士发言
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/530755/)
+## 【热点播报】首战告捷！川普总统竞选团队宾州诉讼获胜！其它可疑翻蓝州诉讼继续乘胜追击！
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/530854/)
 
-视频来源：[https://www.youtube.com/watch?v=yJk42SbwET0&feature=emb\_logo](https://www.youtube.com/watch?v=yJk42SbwET0&amp;feature=emb_logo)
-佛罗里达州前检察长帕梅拉·乔·邦迪女士（Pamela Jo Bondi）在发言中揭露费城计票点有一位市政专员的助手，叫塞斯·布魯斯坦（Seth Bluestein），不具备执法的资格却恐吓和阻止监票人员靠近，这本身就属违法行为。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05173212/logo-2.jpg)
 
-这场发布会是2020年11月4日朱利安尼先生，在宾夕法尼亚州的费城召集的，关于选举作弊的重大新闻发布会。 会上朱利安尼先生和其他四位发言人就民主党在这次美国总统大选过程中的种种造假舞弊行为给予了痛斥。指出民主党为了赢得大选，不惜在宾夕法尼亚州进行选票造假以赢得大选， 他们阻止共和党观察员检票、 丢弃合法选票、在投票点做非法宣传等， 除了该州以外， 还有维斯康新州、 亚利桑那州、内华达州和密西根州。朱利安尼先生说已经有视频等实锤证据， 会起诉民主党的欺诈行为，真正揭露民主党的腐败，捍卫美国的自由选举制度。
+香草山写作组：正道主义联盟
 
-以下是在新闻发布会上发言的与会者名单：
 
-1：埃里克·川普（Eric Frederick Trump）是美国商人，前真人秀节目主持人。他是唐纳德·川普总统的第二个儿子。
 
-2：科里·R·莱万多夫斯基（Corey R. Lewandowski）是美国政治活动家、说客、政治评论员和作家。2015年1月至2016年6月，他曾担任美国一线新闻网、福克斯新闻网和CNN的政治评论员，以及唐纳德·川普2016年竞选美国总统的竞选经理。
+随着越来越多的民主党大选舞弊行为被爆出，川普总统的竞选团队已在正在计票的摇摆州发起了一系列法律诉讼。而自周三凌晨起就没有出现在公众场合的川普总统，则继续在推特上愤怒地呼吁停止所有的计票工作。总统在推特称：“所有拜登声称胜出的州，都会接受我们法律团队的挑战：选民欺诈和州选举舞弊。去查看媒体的消息吧，那里提供了大量证据。我们会赢！美国优先！”
 
-3：鲁道夫·威廉·路易斯·朱利安尼（Rudy Giuliani）是美国律师、网络安全顾问和政治家，1994年至2001年担任纽约市第107任市长，因其在打击纽约黑帮和“911”事件中的杰出贡献， 被喻为“美国市长”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05173045/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E9%A6%96%E6%88%98%E5%91%8A%E6%8D%B7%EF%BC%81%E5%B7%9D%E6%99%AE%E6%80%BB%E7%BB%9F%E7%AB%9E%E9%80%89%E5%9B%A2%E9%98%9F%E5%AE%BE%E5%B7%9E%E8%AF%89%E8%AE%BC%E8%8E%B7%E8%83%9C%EF%BC%81%E5%85%B6%E5%AE%83%E5%8F%AF%E7%96%91%E7%BF%BB%E8%93%9D%E5%B7%9E%E8%AF%89%E8%AE%BC%E7%BB%A7%E7%BB%AD%E4%B9%98%E8%83%9C%E8%BF%BD%E5%87%BB%EF%BC%811.jpg)
 
-4: 帕梅拉·乔·邦迪（Pamela Jo Bondi）是美国律师、游说者和政治家。她是共和党人，2011年至2019年担任佛罗里达州第37任司检察长。
+周三，川普的竞选团队在宾夕法尼亚州提起诉讼，要求暂停计票，直至其竞选团队进入投票站监督，并指责民主党试图从川普手中“偷走”该州。周四上午，我们可喜的看到，宾州联邦法院法官克里斯汀·费赞诺·坎农下达命令，允许川普的竞选观察员站在距任何正在进行点票的桌子6英尺以内监督计票过程，这推翻了费城下级法院先前的一项裁决。总统竞选经理比尔·斯特皮恩与记者通电话，称费赞诺·坎农的裁决是一个“重大胜利”，并表示，该命令还允许竞选团队重新审查已进行完毕的计票工作。周三，川普总统在宾州的选票领先拜登多达40万张，但随着邮寄选票的增多，差距正逐步缩小至13.5万张。
 
-5: 杰里米·默瑟（Jeremy Mercer）是一位作家和记者，他的著作包括《时间在那里很柔软》和《当断头台倒下时》。他还为新英格兰大学出版社将罗伯特·巴丁特的《废止》翻译成英文。他是巴黎艺术团体 “零公里 ”的创始成员之一。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05173125/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E9%A6%96%E6%88%98%E5%91%8A%E6%8D%B7%EF%BC%81%E5%B7%9D%E6%99%AE%E6%80%BB%E7%BB%9F%E7%AB%9E%E9%80%89%E5%9B%A2%E9%98%9F%E5%AE%BE%E5%B7%9E%E8%AF%89%E8%AE%BC%E8%8E%B7%E8%83%9C%EF%BC%81%E5%85%B6%E5%AE%83%E5%8F%AF%E7%96%91%E7%BF%BB%E8%93%9D%E5%B7%9E%E8%AF%89%E8%AE%BC%E7%BB%A7%E7%BB%AD%E4%B9%98%E8%83%9C%E8%BF%BD%E5%87%BB%EF%BC%812.png)
 
-相关新闻 1：[https://gnews.org/zh-hans/530277/](https://gnews.org/zh-hans/530277/)
+“多年来，纽约的媒体和内部人士一直试图把川普排除在外” 斯特皮恩在一次电话采访中告诉记者。“我们将赢得宾夕法尼亚州。今天，我和昨天一样充满信心。今早我们在宾州赢得的重大胜利将有助于确保宾州的选举保持应有的透明度和公开性。”他继续说道。
 
-相关新闻 2： [https://gnews.org/zh-hans/529377/](https://gnews.org/zh-hans/529377/)
+据《费城问询报》(Philadelphia Inquirer)报道，费城市政府官员立即向宾州最高法院(Pennsylvania Supreme Court)提出上诉。由于诉讼仍在进行，周四下午的投票计数暂时暂停。
 
-相关新闻 3：[https://gnews.org/zh-hans/530594/](https://gnews.org/zh-hans/530594/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05173140/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E9%A6%96%E6%88%98%E5%91%8A%E6%8D%B7%EF%BC%81%E5%B7%9D%E6%99%AE%E6%80%BB%E7%BB%9F%E7%AB%9E%E9%80%89%E5%9B%A2%E9%98%9F%E5%AE%BE%E5%B7%9E%E8%AF%89%E8%AE%BC%E8%8E%B7%E8%83%9C%EF%BC%81%E5%85%B6%E5%AE%83%E5%8F%AF%E7%96%91%E7%BF%BB%E8%93%9D%E5%B7%9E%E8%AF%89%E8%AE%BC%E7%BB%A7%E7%BB%AD%E4%B9%98%E8%83%9C%E8%BF%BD%E5%87%BB%EF%BC%813.jpg)
 
-翻译：【流浪者】校对：【萌萌的朋克 】总结：【key】字幕：【Pamila（文明）】编辑：【Isaiah4031】
+目前为止，川普总统竞选团队在官方计票结束前已经宣布了在该州取得了胜利。出票率达到88%，川普总统依然领先10万张选票！但选举委员会的网站依然没有真正显示出川普赢得了该州。川普竞选团队刚刚公布了一个竞选活动选民欺诈报告网站，网址：[defendyourballot.formstack.com/forms/voter\_fr…](https://defendyourballot.formstack.com/) 期待更多民众提交选举欺诈证据，保障美国大选应有的公正廉洁！让每一个守法公民的意愿得到切实体现！
 
-战友之家玫瑰园小队出品
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01145114/GNEWS-GTV-VOG.png)
-2+
+审核：jamie(文胤)
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+
+更多文章，欢迎浏览[美东香草山农场GNEWS](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05173212/logo-2.jpg)
+1+

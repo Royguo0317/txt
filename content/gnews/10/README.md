@@ -1,48 +1,86 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【揭秘】民主党选票造假六大招数
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/529291/)
+## 焦点观察：底特律缺席选举计票混乱，工作人员封锁窗口，禁止观察员进入
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/530929/)
 
-作者：时雨濛濛
-编辑：Giselle
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05005843/Picture3-4.png)
-写这篇文章的时候，笔者不知道该用什么样的调调，调侃？诙谐？严肃？觉得都不适合，只能混合杂糅着行进了。
+翻译：康州农场-霹雳忍者蛙
 
-造假在中共国有着悠久的历史，且分布在各行各业，大到圣旨造假，中有银钱造假，小到古玩字画造假。同时造假在很多时候也需要跨行业、跨专业的分工合作。最主要的是，造假这门技艺基本是私相传授，轻易不外泄的，用现在的话说，也算是个商业秘密或者专利了。造假和做贼可以说是半个同行，都怕见光，最好是月黑风高夜动手。
+校对：康州农场-Freeearth，Bruce
+![Covering Windows in Detroit]()![Covering Windows in Detroit](https://media.breitbart.com/media/2020/11/Covering-Windows-in-Detroit-640x480.jpg)
+周三，数百名担心舞弊的非官方共和党观察员聚集在计票点，底特律的缺席选票计票工作陷入混乱。
 
-在这次关乎人类命运的美国大选中，几个川普大幅领先的摇摆州相继宣布停止计票。此举是否违宪我不确定，但是绝对震惊美国和世界。看到社交媒体上好多老人说，我活了这么多年，从来没见过在选举结果出来之前停止计票的，从来没有。更夸张的是，就在全美国人民睡觉的时候，民主党祭出了杀手锏——偷盗和造假！在这里造假是手段，偷盗是目的，目标是要窃取总统大选。你没看错，就这么夸张！就这么玄幻！
+底特律市正在使用TCF中心–原科博大厅–来统计该市所有的缺席选票。
 
-大家都心知肚明，民主党造假的背后是CCP在传授技艺，出谋划策，甚至不排除越俎代庖的嫌疑。那么我们就来点评点评这次造假的手段和水准。
+共和党人和川普的支持者越来越警觉，因为在周二晚间的早期计票过程中，川普在该州保持着强大的领先优势，但随着历史意义上的民主党地区的邮寄选票被计算出来，这种领先优势就蒸发了。
 
-第一招，从白天开始使用，给川普选民的铅笔存在问题。内华达州支持川普的选民反应，投票站的工作人员给他们发的用来投票的铅笔有问题，填过的选票无法被机器识别。在CCP文宣部旗下的推特和脸书里，没有看到任何支持拜登的选民遇到类似情况。可能CNN又要跳出来说了，支持川普的都是低等、没受过良好教育的蠢蛋，连填写选票都不会。
+社交媒体上发布的几段视频显示，工作人员试图限制透明度，不允许外面的人观察计票区内部的情况。
 
-第二招，直接将川普的选票扔进垃圾箱。推特上不止一个视频和图片可以清晰的看到投票站的工作人员在拆开看完邮寄的选票之后，直接扔进垃圾桶。简单粗暴，而且效率也不低。唯一遗憾的是留下了好多视频作为证据。倘若日后东窗事发，那就铁证如山了。
 
-第三招，好多选民反应自己收到的选票上面只有拜登名字，没有川普的名字。换句话说，决定已经替你做了，选民只需要签字。真想说这种客服体验还不如中共国百姓的选举体验。中共国提供一站式服务，中间无需选民插手，绝不劳您过目选票和签字。在这一点上，民主党还需跟恩师请教，多多改进才是。
 
-第四招，投票器停摆。相比基本盘稳定的红州带，摇摆州选民挺川的意志是相对薄弱的。凑巧，就在摇摆州，接二连三的投票器宕机。投票延误，加之有社交疏远要求，选民队伍那叫浩浩荡荡！时值初冬，虽无瀚海阑干百丈冰，但已是北风吹雁雪纷纷。民主党的策略很明确，真心挺川你就冻着、等着。等不了的就人回去票留下，待会“我们的人”来给你统计。具体怎么统计，参见第二招。切记，这几个摇摆州可都是民主党掌控的。
+> The scene at Detroit’s absentee ballot counting center is growing more heated. The windows now being covered up. Allegations of violations. Sec. of State says she welcomes challenges. [pic.twitter.com/oUL4A0h3Ku](https://t.co/oUL4A0h3Ku)
+> — Matt Finn (@MattFinnFNC) [November 4, 2020](https://twitter.com/MattFinnFNC/status/1324084637010976769?ref_src=twsrc%5Etfw)
 
-第五招，科技造假。这一招也只是臆测。不过以民主党的恩师CCP的套路，不在技术上造假，说出来鬼都不信。技术上造假的方式就多了，比如数据库篡改、投票器作弊等等。推特上好多完成投票的川普支持者在网上居然查不到自己的注册选票，系统故障？还是篡改记录？不过技术造假要想做得不留痕迹，可是很有难度的。人外有人，天外有天，行家可能一眼就能看出来，造假者日后当多多祈祷，希望别罪行败露。
 
-第六招，邮寄假选票。第三招还有个底线，说白了就是选民坚持的话可以再要一份正常的选票来投川普。邮寄假选票可以说是终极大杀器。这一招的厉害地方有两点：
+*推文翻译：*
+*马特·芬恩（Matt·Finn）@MattFinnFNC：底特律缺席票计票中心现场局势正在升温。窗户正在被遮挡起来。对于违规的指控，州务卿表示，她欢迎挑战。（2020年11月5日上午4:22）*
+福克斯新闻制片人马特·芬恩写道：”一些窗户仍然被封着。我问了几个人谁把它们贴起来，为什么，没有明确的答案。几位民调异议人士或是工作人员告诉我们，他们觉得这个房间里的（共和党人和民主党人）人数不成公允比例。”
 
-第一是无需麻烦选民，直接用假的ID填写假的选票，可操作性强，效率高，批量生产见效快，而且可以提前准备。
+川普竞选团队已经提起诉讼，认为他们没有被允许参与计票过程，因此要求停止投票，直到获得充分的行动自由。
 
-根据司法观察的报道，本次大选一共出现了数百万张幽灵选票，遍布29个州的353个投票点。可不可以这样臆测，民主党不单是在摇摆州，在好多有希望的州都邮寄假的选票，并且这些选票已经被计入了系统。如果是这样，那真是神不知鬼不觉。策略就是有希望的地方我就寄点，赢了算运气，输了不遗憾。
+一名工人用大块硬纸板遮住窗户，阻止外面的人看见里面正在发生的事情。其他工人用披萨包装盒挡住门窗。与此同时，场地外的一些人高喊着： “停止投票”。
 
-第二就是可以定向投放，最直接的例子就是威斯康辛州。当地时间早上4:30分的时候，共有94%的选票已统计，川普看似安全的领先近11万张。结果就在全美都睡觉的时候，拜登突然增加了13万张选票，反超川普。总结起来四个字，快、准、狠、蠢。
 
-快体现在从4:30 到4:44，民主党仅仅用了14分钟完成了翻盘，这一壮举是前无古人，估计也不会有后来者。
 
-投放在威斯康辛的假选票不管是数量还是地点都极其精准。不多也不少，刚刚翻盘。估计最后的结果拜登在这个州的领先也不会超过1%。而拜登如果假胜选，一定需要将威斯康辛收入囊中。
+> Election challengers chanting “stop the vote” outside of TCF Center in [#Detroit](https://twitter.com/hashtag/Detroit?src=hash&amp;ref_src=twsrc%5Etfw) [#Michigan](https://twitter.com/hashtag/Michigan?src=hash&amp;ref_src=twsrc%5Etfw) [#Elections2020](https://twitter.com/hashtag/Elections2020?src=hash&amp;ref_src=twsrc%5Etfw) 
+> 
+> Source: [@annalise\_frank](https://twitter.com/annalise_frank?ref_src=twsrc%5Etfw) [pic.twitter.com/fcj41iRPFJ](https://t.co/fcj41iRPFJ)
+> — Global News (@GlbBreakNews) [November 4, 2020](https://twitter.com/GlbBreakNews/status/1324090524060495874?ref_src=twsrc%5Etfw)
 
-不得不说民主党人下手真狠啊，十几万张票，给川普留点也行，真的就是全部搜哈，一个不留。就这概率比被雷劈都低，说句大不敬的话，跟见到上帝的概率谁高谁低都有得一比了。
 
-重点来说这个蠢。在4:30分的时候显示有94%的选票统计完毕。到了4:44分，拜登领先的时候，显示有95% 的选票统计完毕。十三万张选票只占该州注册选民的1%。那该州注册选民保守的说也得有一千三百多万吧。而官方实际注册选民不到三百二十万。可以说这个造假团队其他的都挺专业，起码现在看没看出什么马脚，不过这数学真是体育老师教的。我觉得他们当初是不是在看注册选民人数的时候少数了一个零。可以说此次的选举窝案，威斯康辛绝对是重灾区，也将成为日后调查的重点。
+*推文翻译：*
+*环球新闻（Global [email protected] ）*
+*选举异议人士在TCF中心外高喊 “停止计票 “。#底特律#密歇根*
+*#2020大选*
+*源自：@源自：@annalise——frank*
+*推文翻译：*
+*环球新闻（Global [email protected] ）*
+*TCF中心为阻止观察员，将窗户关闭。*
+*源自：@ericjgibbs*
+其他视频显示，底特律警察保护着大门，阻止监督员进入。
 
-陈词滥调一大堆，总结起来说，此次民主党大选造假开了美国历史的先河，也体现出了极高的水准。从打印假选票，投递，统计，整个流水线作业相当高效。同时也可以看出上到州政府、社交媒体、大型电台同时多点开花，配合默契、节奏完美。可以说CCP和民主党这对师徒真是给大家带来了一出好戏。要不是有爆料革命提前报出来的真相，普通看客真的要怀疑一下人生了。但是假的终究是假的，走过路过就一定会有痕迹。既然爆料革命和战斗室可以在大选前说出选票造假，怎么可能没有后手。只不过跟以往一样，先放下诱饵，等鱼上钩。既然已经咬钩了，浮出水面只是时间的问题。
 
-（文章内容仅代表作者个人观点）
 
-2+
+> Poll watchers try to get into the ballot counting area in [#Detroit](https://twitter.com/hashtag/Detroit?src=hash&amp;ref_src=twsrc%5Etfw) [#Michigan](https://twitter.com/hashtag/Michigan?src=hash&amp;ref_src=twsrc%5Etfw) [#Elections2020](https://twitter.com/hashtag/Elections2020?src=hash&amp;ref_src=twsrc%5Etfw) 
+> 
+> Source: [@TheInsiderPaper](https://twitter.com/TheInsiderPaper?ref_src=twsrc%5Etfw) [pic.twitter.com/ZQJoYYGarU](https://t.co/ZQJoYYGarU)
+> — Global News (@GlbBreakNews) [November 4, 2020](https://twitter.com/GlbBreakNews/status/1324089825998315521?ref_src=twsrc%5Etfw)
+
+
+*推文翻译：*
+*环球新闻（Global [email protected] ）*
+*在#底特律 #密歇根，投票监督员试图进入计票区域#2020大选）*
+*源自：@TheInsiderPaper*
+随着紧张局势的加剧，底特律卫生部门的一名代表试图清理计票区的大厅，这进一步激怒了监督者。
+
+
+
+> [#BREAKING](https://twitter.com/hashtag/BREAKING?src=hash&amp;ref_src=twsrc%5Etfw): Large, animated crush of “stop the count” protestors trying to push their way into TCF hall in [#Detroit](https://twitter.com/hashtag/Detroit?src=hash&amp;ref_src=twsrc%5Etfw) where ballots are being counted.
+> 
+> They’re being blocked by guards at the door. 
+> 
+> Pizza boxes are pushed against the window to obstruct view. It’s tense. [@NBCNews](https://twitter.com/NBCNews?ref_src=twsrc%5Etfw) [pic.twitter.com/zFhzd88skX](https://t.co/zFhzd88skX)
+> — Steve Patterson (@PattersonNBC) [November 4, 2020](https://twitter.com/PattersonNBC/status/1324086177885003778?ref_src=twsrc%5Etfw)
+
+
+*推文翻译：*
+*史蒂夫·帕特森（@PattersonNBC*
+*突發：
+大量憤怒的抗議者們高喊“停止記票”，并試圖進入已經記票的T C F大廳。*
+*他们被门口的警卫挡住了。
+披萨包装盒被放在窗户上用来遮挡视线。很紧张。（@NBC新闻）（2020年11月5日上午4:28）*
+州务卿乔塞琳·本森（Jocelyn Benson）此前表示，计票工作可能要到周五才能完成。她在周三曾经估计今晚可以完成。
+
+据《底特律新闻》报道，随着99%的选票统计完毕，拜登领先川普超过6万票。
+
+1+
