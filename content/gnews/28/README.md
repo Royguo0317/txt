@@ -1,13 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11月05日紧急同声传译: 朱利安尼最新重磅讲话
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/532542/)
+## 11/05/2020 每日快讯
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/532627/)
 
-2020年11月05日紧急同声传译: 朱利安尼最新重磅讲话
-
-
-
-#### **By：【秘密翻译组G-Translators】**
-
-1+
+2020年11月5日 每日快讯 制作：战友之家粤语频道
+主播：【安妮】 资料收集：【Cathy】【闪电】【Ruby】【文静】【文绉绉】 视频制作：【咸鱼】
+0
