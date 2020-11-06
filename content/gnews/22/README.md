@@ -1,43 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 司法机构：过去五年从未有海外法官拒绝接受终院非常任法官任命 【跟踪报道】
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/530369/)
+## 朱利安尼 推文系列 2
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/530593/)
 
-搜集：诸水响声、8848喜马拉雅
+作者：朱利安尼
 
-整撰：文燕
+翻译:Beicy-数学老师 简评/校对/审核: TCC；Page：拱卒
 
-覆核：文非
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05104639/13b35f6b787fe6634253bf3a70431d0e.png)图片：香港终审法院
-来自澳洲的终审法院非常任法官施觉民（James Spigelman）早前请辞，并向传媒表明请辞与国安法有关，其后政府公布来自英国的贺知义（Lord Patrick Hodge）接任，惟英国32 名跨党派国会议员10 月时曾联名反对，认为贺接受任命，将损害司法制度声誉。
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05123912/a862becdb8649d5e.png)
 
-据香港媒体报道，司法机构于11月4 日以书面回覆立法会议员梁继昌的提问，指出过去五年，从未有海外法官拒绝接受终院非常任法官的任命。而现时 13 名非常任法官中，有 7 人的任期明年届满，其中 3 人在明年 2 月即届满。
 
-司法机构表示，7 名来自澳洲、加拿大及英国的非常任法官，任期将于明年届满，而其中 3 人任期明年 2 月 28 日即届满，包括来自澳洲的纪立信法官。
+## 朱利安尼 推文系列 2
 
-根据法例，每宗上诉需由终审法院审判庭聆讯及裁决，审判庭由 5 名成员组成，当中包括一名海外非常任法官。司法机构称，自1997 年7 月1 日至今，终审法院审理共约700宗实质上诉案件，除了约10 宗的例外情况外，终院均从非常任普通法地区法官的名单，选出一名法官出庭聆讯。
+美国大选投票结束第一天，朱利安尼(Rudy Giuliani) 不仅推文报道了川普总统在宾夕法尼亚州(Pennsylvania) 等地方 的绝对领先结果，更抨击虚假媒体和拜登家族同样腐败，对选举结果进行欺诈性报道。
 
-机构续指，例外情况主要是终院邀请的非常任法官在时间上未能配合，或临时出现一些无法预计的情况，以致未能按计划参与相关案件的审判工作。
+4日，朱利安尼和法律团队一起，赶往费城(Philadelphia) ，反击民主党选票作弊非法行为。
 
-终审法院海外非常任法官施觉民（James Spigelman）今年9 月 2 日辞职，他曾向传媒表明请辞与 7 月 1 日实施的《港区国安法》有关。政府上月（10 月）宣布，行政长官林郑月娥接纳司法人员推荐委员会推荐，任命来自英国的贺知义勋爵（Lord Patrick Hodge）为终审法院非常任法官；同月英国32 名跨党派国会议员联名致函大法官、司法大臣反对，认为因应国安法在港实施，贺知义接受任命将有损司法制度声誉。
+投票结束。战斗， 却刚刚开始。
 
-战友点评：
+- [朱利安尼正在反击: 民主党人竭尽所能窃取这次选举!](https://twitter.com/DineshDSouza/status/1324113203794759680)
 
-根据司法机构资料，7名来自澳洲、加拿大及英国的非常任法官，任期将于明年届满，其中3人任期明年2月28日即届满。换句话说，港府为了填补这7位即将离任的非常任法官，在国际上制造假相：香港有海外非常任法官，香港司法独立仍在。
+[!\[\]()!\[\](https://spark.adobe.com/page/on6BmfPgVjdiq/images/2f5c63cf-529a-4b3f-a316-4e16f7fcd9a0.jpg?asset_id=aa44569c-3098-4084-a365-26e65b6b4397&amp;img_etag=%22fcec0c9beae097b5cad8b12acd69cd10%22&amp;size=2560)](https://spark.adobe.com/page/on6BmfPgVjdiq/images/2f5c63cf-529a-4b3f-a316-4e16f7fcd9a0.jpg?asset_id=aa44569c-3098-4084-a365-26e65b6b4397&amp;img_etag=%22fcec0c9beae097b5cad8b12acd69cd10%22&amp;size=1024)
+2020/11/04 朱利安尼转推: 民主党人正在竭尽所能窃取这次选举。 朱利安尼是不会允许它发生的，现在他在反击。必须看。
 
-但实际上，终审法院海外非常任法官施觉民于9月份辞职，施向传媒表明请辞与国安法有关。 【港版国安法】严重地侵蚀了香港司法的三权分立，林郑月娥亲口否定了香港的司法独立性，所以施才愤而辞职。英联邦国家法官，如美国、英国、加拿大、澳洲这些国家的法官未必愿意来港任职。
+- [(我)和法律团队一起, 在去费城(Philadelphia)的路上。](https://twitter.com/RudyGiuliani/status/1324062078731231233)
 
-何君尧早前认为，终审法院海外非常任法官不一定要从美国、英国、加拿大等国家聘请，港府应考虑委任新加坡、印度、马来西亚、汶莱及南非等地的法官，将眼光扩阔至其他地方，不应嫌其他地区司法水准低。
+[!\[\]()!\[\](https://spark.adobe.com/page/on6BmfPgVjdiq/images/98a1306a-e7d8-4f62-add0-3185e48ea8b0.jpg?asset_id=835ffd29-2059-4d18-acec-8dd632e268b7&amp;img_etag=%2202a161ffe33c03276ebe65d8d1c42d56%22&amp;size=2560)](https://spark.adobe.com/page/on6BmfPgVjdiq/images/98a1306a-e7d8-4f62-add0-3185e48ea8b0.jpg?asset_id=835ffd29-2059-4d18-acec-8dd632e268b7&amp;img_etag=%2202a161ffe33c03276ebe65d8d1c42d56%22&amp;size=1024)
+2020/11/04 (我)和法律团队一起, 在去费城(Philadelphia)的路上。(民主党)大规模作弊。唐纳德・川普， 在75%開票時，以55万张票领先。不会让费城民主党的黑客偷走(胜利)!
 
-从这件事情中可以看出，港共政府是有计划地部署。从明年二月份开始，法官任期届满后，港府将会陆续从非英联邦的国家，或其他国家聘请海外非常任法官。到时候他们便可以聘请有共产国际理念的法官来填补空缺。这将是港府在司法方面进一步的部署：香港从民主社会转向极权社会的演变。
+- [川普现在在宾夕法尼亚州(Pennsylvania)在74%的投票中领先70万票。](https://twitter.com/RudyGiuliani/status/1323911716720226310)
 
-以上观点仅代表笔者本人
+[!\[\]()!\[\](https://spark.adobe.com/page/on6BmfPgVjdiq/images/9089445e-23ba-45af-9a53-c0d3eecbe777.jpg?asset_id=984b743d-7012-4a00-ac0f-a10ce4075ae9&amp;img_etag=%22baaa08db38aa48a81c722528a68cd62b%22&amp;size=2560)](https://spark.adobe.com/page/on6BmfPgVjdiq/images/9089445e-23ba-45af-9a53-c0d3eecbe777.jpg?asset_id=984b743d-7012-4a00-ac0f-a10ce4075ae9&amp;img_etag=%22baaa08db38aa48a81c722528a68cd62b%22&amp;size=1024)
+2020/11/04 川普现在在宾夕法尼亚州(Pennsylvania)在74%的投票中领先70万票。说(双方得票数)是太接近了，这是个谎言。这就是作弊。
 
-资料来源：立场新闻、头条日报
+- [虚假媒体拒绝宣告佛罗里达州(Florida)、俄亥俄州(Ohio)和喬治亚州(Georgia)的(开票) 结果，这样他们就可以保持拜登的虚假领先优势。](https://twitter.com/RudyGiuliani/status/1323834239067004928)
 
-[https://www.thestandnews.com/politics/%E5%8F%B8%E6%B3%95%E6%A9%9F%E6%A7%8B-%E8%BF%91%E4%BA%94%E5%B9%B4%E7%84%A1%E6%B5%B7%E5%A4%96%E6%B3%95%E5%AE%98%E6%8B%92%E6%8E%A5%E5%8F%97%E7%B5%82%E9%99%A2%E4%BB%BB%E5%91%BD/](https://www.thestandnews.com/politics/%E5%8F%B8%E6%B3%95%E6%A9%9F%E6%A7%8B-%E8%BF%91%E4%BA%94%E5%B9%B4%E7%84%A1%E6%B5%B7%E5%A4%96%E6%B3%95%E5%AE%98%E6%8B%92%E6%8E%A5%E5%8F%97%E7%B5%82%E9%99%A2%E4%BB%BB%E5%91%BD/)
+[!\[\]()!\[\](https://spark.adobe.com/page/on6BmfPgVjdiq/images/b42dba4d-cca5-49da-aa50-e3b1a7db9ec3.jpg?asset_id=443478be-e2a0-4513-9389-73a4e992f708&amp;img_etag=%229fb5e61d4d7611e6b6e15938208d524a%22&amp;size=2560)](https://spark.adobe.com/page/on6BmfPgVjdiq/images/b42dba4d-cca5-49da-aa50-e3b1a7db9ec3.jpg?asset_id=443478be-e2a0-4513-9389-73a4e992f708&amp;img_etag=%229fb5e61d4d7611e6b6e15938208d524a%22&amp;size=1024)
+虚假媒体拒绝宣告佛罗里达州(Florida)、俄亥俄州(Ohio)和喬治亚州(Georgia)的(开票) 结果，这样他们就可以保持拜登的虚假领先优势。就像支持腐败的弹劾門和实施美国历史上第一次(新闻)审查一样。他们(这些媒体)和拜登犯罪家族一样腐败。
 
-[https://hd.stheadline.com/news/realtime/hk/1908632/%E5%8D%B3%E6%99%82-%E6%B8%AF%E8%81%9E-%E8%B3%80%E7%9F%A5%E7%BE%A9%E4%BB%BB%E5%91%BD-%E9%83%AD%E6%A6%AE%E9%8F%97%E7%A8%B1%E7%82%BA%E5%90%88%E9%81%A9%E4%BA%BA%E9%81%B8-%E4%BD%95%E5%90%9B%E5%A0%AF-%E5%8F%AF%E8%80%83%E6%85%AE%E5%8D%B0%E5%BA%A6%E5%8D%97%E9%9D%9E%E7%AD%89%E5%9C%B0%E6%B3%95%E5%AE%98](https://hd.stheadline.com/news/realtime/hk/1908632/%E5%8D%B3%E6%99%82-%E6%B8%AF%E8%81%9E-%E8%B3%80%E7%9F%A5%E7%BE%A9%E4%BB%BB%E5%91%BD-%E9%83%AD%E6%A6%AE%E9%8F%97%E7%A8%B1%E7%82%BA%E5%90%88%E9%81%A9%E4%BA%BA%E9%81%B8-%E4%BD%95%E5%90%9B%E5%A0%AF-%E5%8F%AF%E8%80%83%E6%85%AE%E5%8D%B0%E5%BA%A6%E5%8D%97%E9%9D%9E%E7%AD%89%E5%9C%B0%E6%B3%95%E5%AE%98)
-
-1+
+编辑：[【喜马拉雅战鹰团】](https://spark.adobe.com/page/on6BmfPgVjdiq/)-点击Adobe Spark版
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+[!\[\]()!\[\](https://spark.adobe.com/page/on6BmfPgVjdiq/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/on6BmfPgVjdiq/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+2+
