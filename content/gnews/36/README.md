@@ -1,67 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日新闻看点-2020年11月4日
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/530406/)
+## 在美国扩张的中共国监控巨头因可能针对维吾尔人而引来审查
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/530970/)
 
-多伦多加喜农场 大地鲲鹏
+![CCTV cameras made by surveillance equipment maker Dahua Technology at the Security China 2018 exhibition. Photo: Reuters]()![CCTV cameras made by surveillance equipment maker Dahua Technology at the Security China 2018 exhibition. Photo: Reuters](https://cdn.i-scmp.com/sites/default/files/styles/1200x800/public/d8/images/methode/2020/11/05/c2a72212-1e5b-11eb-99d6-deeedd63f648_image_hires_183741.jpeg?itok=EmlupBy6&amp;v=1604572672)
+翻译：康州农场-Truemanman
 
-校对上传 XM
+校对：康州农场-云韵
 
-一、疫情真相
+*在网络安全研究人员发现带有维吾尔族称谓的代码后，大华公司迅速在网站上撤下并更新了代码*。
 
-1.闫丽梦博士论文：
+*继今年与亚马逊达成1000万美元的交易后，**中共国**第二大监控公司大华在北美重塑了其产品线。*
 
-第一份英文版[https://zenodo.org/record/4028830#.X1\_lwj-SlPa](https://zenodo.org/record/4028830#.X1_lwj-SlPa)
+在研究人员发现软件代码似乎可以利用人工智能对中共国维吾尔族少数民族进行种族侧写后，一家着眼于美国市场的中共国监控公司陷入了审查。
 
-第一份中文版[https://drive.google.com/file/d/1vZ0vbPJ9QAhGDjna9pkMxqUHhIdakODW/view?usp=sharing](https://drive.google.com/file/d/1vZ0vbPJ9QAhGDjna9pkMxqUHhIdakODW/view?usp=sharing)
+浙江大华科技是中共国人工智能和监控公司之一，因其在监控维吾尔族（该国西部新疆地区主要的穆斯林少数民族）方面发挥的作用而被禁止进口美国技术。尽管如此，大华今年一直在推动在美国的扩张，上个月进行了品牌重塑，并在4月份与亚马逊达成协议。
 
-第二份英文版[http://zenodo.org/record/4073131](https://zenodo.org/record/4073131)
+根据软件安全工程师Serge Bazanski（又名q3k）的发现，代码的功能之一似乎是视频源中的人工智能识别，其中包括识别人和相关属性。代码中的可识别特征包括种族识别部分，维吾尔族是唯一一个以名字被分类的种族。
 
-第二份中文版[https://gnews.org/zh-hans/411364/](https://gnews.org/zh-hans/411364/)
 
-2.新疆喀什新增中共肺炎病例数又创新高。中共官方公布称，喀什单日新增无症状感染者已达3位数.外界普遍认为实际情况比中共官方公布出来的要严重。
 
-二、新中国联邦希望
+> thisisfine.jpg
+> 
+> (found in 'dahua-netsdk') [pic.twitter.com/fGTtYwF2Nm](https://t.co/fGTtYwF2Nm)
+> — q3k (@q3k) [November 1, 2020](https://twitter.com/q3k/status/1322943395497680897?ref_src=twsrc%5Etfw)
 
-1.新中国联邦大决战：
 
-硬盘邮件解密新闻列表：
 
-[亨特∙拜登定期收到的汇款单曝光](https://gnews.org/zh-hans/527762/)
+当被问及该代码时，大华科技否认自己在出售按种族识别的能力。
 
-[亨特∙拜登与嫂子哈莉•拜登的邮件曝光](https://gnews.org/zh-hans/527723/)
+“大华科技并没有销售具有[特定]民族识别功能的产品，”该公司通过电子邮件回复。
 
-[亨特∙拜登和他嫂子的姐姐的共同租房协议](https://gnews.org/zh-hans/524879/)
+虽然代码可能没有被出售，但它是开源的，并作为软件开发工具包（SDK）在网上免费提供。软件手册解释说，开发包是用来编写可以与大华的监控产品（包括摄像头）交互的软件。
 
-一切真相，尽在GNEWS。
+“通常当你写这些工具包的时候，你就像把他们刻在石头上，你不会偶然的把代码放在那里，也不会是不小心。”Bazanski说。
+![]()![](https://cdn.i-scmp.com/sites/default/files/d8/images/methode/2020/11/05/05904e40-1f3e-11eb-99d6-deeedd63f648_972x_183741.jpg)
+在周一公布调查结果后，GitHub网站上的SDK在周二被删除。随后，大华公司从其官方网站上将其下架。周三，SDK文件重新出现在网站上，但删除了民族识别的部分。
 
-2.“路德时评”11/4/2020节目部分内容:
+另外两名网络安全研究人员Ran Locar和Victor Gevers独立向《邮报》证实，该软件可能允许根据面部识别识别出的特征进行种族特征分析。
 
-a.川普总统对预防乔∙拜登造假早有准备。乔∙拜登团队通过邮寄选票的争议来拖延大选结果，大法官将做最终裁决。中共在美国社会制造了病毒疫情、股市施压、邮寄选票和媒体造假等方面的混乱局面，以帮助乔∙拜登胜选。
+Gevers表示，他的研究团队去年发现了具有这种功能的面部识别系统。面部识别被用于识别维吾尔族人的可能性引起了开发者的担忧。
 
-b.川普总统将会解雇FBI、CIA、国防部长和福奇。
+“如果在面部识别的背景下，代码中没有提到’维吾尔人’，而是提到’犹太人’或’阿拉伯人’，那么现在所有人都会发疯的。”Locar 说。
+![]()![](https://cdn.i-scmp.com/sites/default/files/d8/images/methode/2020/11/05/4314e614-1e5c-11eb-99d6-deeedd63f648_1320x770_183741.png)在发现似乎可以对维吾尔族人进行特征分析的代码后，大华官网删除了不同编码语言的软件开发包（SDK）。图为 浙江大华科技
+总部位于杭州的大华公司在世界大部分地区并不知名。但在中共国，它是第二大监控设备制造商。根据路透社4月份的报道，对于亚马逊来说，这使得该公司成为提供1500台热成像摄像机的首选，价值1000万美元。这些摄像头旨在帮助监控工人的温度，防止COVID-19的传播。
 
-c.美国社会通过此次大选充分了解中共的邪恶，会达成灭共共识。
+尽管大华公司被美国商务部列入限制从美国进口产品和技术的实体名单，但这笔交易还是发生了。该名单并不排除大华向美国公司销售其产品。
 
-（“路德时评”早间节目[https://www.youtube.com/watch?v=KzalMnNyoAA&list=PLt9WLG-do1atM5bjKoiSQuXncbmVnEESC&index=3](https://www.youtube.com/watch?v=KzalMnNyoAA&amp;list=PLt9WLG-do1atM5bjKoiSQuXncbmVnEESC&amp;index=3)）
+其他中共国公司也因其技术被用于新疆维吾尔自治区而被列入美国实体名单。
 
-（“路德时评”晚间节目[https://www.youtube.com/watch?v=-aTwwb23aRE&list=PLt9WLG-do1atM5bjKoiSQuXncbmVnEESC&index=2](https://www.youtube.com/watch?v=-aTwwb23aRE&amp;list=PLt9WLG-do1atM5bjKoiSQuXncbmVnEESC&amp;index=2)）
+近年来，该地区一直受到国家针对少数民族的严密监控。中共国政府一直将维吾尔人关进拘留营，根据联合国2018年的一项估计，被拘留的维吾尔人多达100万。
 
-3.10月3日，美国国务院正式批准售台四架“海上卫士”无人机，总金额约6亿美元，并正式通知国会。这是美国国务院今年度第五次对台军售，也是川普总统任内的第十次。更是放宽无人机技术出口以来，首度对外出售“海上卫士”。
+批评者指责中共试图抹去维吾尔人和该地区其他穆斯林少数民族的文化，有报道指责中共当局实施酷刑和强制绝育。中共一再驳斥这些说法，称其设施为再教育营，并称这些设施是为了就业培训和打击极端主义。
+![]()![](https://cdn.i-scmp.com/sites/default/files/d8/images/methode/2020/11/05/ca0b09e2-1e5b-11eb-99d6-deeedd63f648_1320x770_183741.jpeg)*大华是中国第二大监控设备制造商，仅次于海康威视。这两家公司都已被美国列入黑名单。图片来源：网络*
+大华的代码事件发生在该公司的敏感时期，该公司在北美一直在增长。这使得大华在10月份将其在该地区的产品线重新命名为WizSense和WizMind。
 
-4.中共财政部部长肖捷日前在《党的十九大报告辅导读本》中谈及房地产税，明确房地产税将按照房屋评估值征收谈话中透露中共拟使用房产税因地制宜地弥补地方财政收入亏空。
+亚马逊已经因为与大华的交易而面临一些批评，原因是大华落入了美国实体名单。在新的争议下，大华迅速做出回应，更换了SDK文件。不过，该公司并没有回应有关其代码的其他询问。
 
-5. 11月4日，第三届中共国国际进口博览会开幕式在上海举办。但中共党魁习近平并未出席开幕式，而是通过影片的方式发表主旨演讲。据悉，这是习近平首次未亲自出席进博会开幕式。路德社评论，中共在全力支持乔∙拜登的总统选举，习已无暇顾及其他。
+Bazanski表示，要想更详细地了解该软件的情况，还需要进一步调查。在新的更新中，仍有一些可能被认为是敏感的代码部分，基于肤色的种族指定仍然存在。还有许多其他不太敏感的个人属性，如某人是否戴眼镜和衣服的颜色，也是可用的。
 
-三、世界新闻
+开发者可以选择他们希望实现哪些功能，这意味着大华的客户不一定会对维吾尔族人进行定性。然而，ChinaFile（研究中共国问题的在线杂志）最近的一份分析采购文件缓存的报告显示，中共地方政府已经在寻求种族的面部识别系统的采购。
 
-1.11月4日，一位来自密歇根州的美国邮政服务的员工爆料，他的主管指示邮递员专门收集选举截止后收到的选票信封，并欺诈性地将其邮戳日期改至11月3日（选举有效日期）。11月3日午夜和4日凌晨在密歇根和威斯康辛州出现了大量的支持拜登的选票，却没有 一张支持川普总统的选票，而川普总统在11月3日晚上在这两个州都处于领先地位。如乔∙拜登对选票造假，恐面对美司法审判。
+除了北美，大华的产品还销往欧洲、亚洲、非洲和南美洲。但其最大的客户可能是在中共国。
 
-当地时间11月4日下午报道，川普总统阵营发表声明，称将要求威斯康星州立刻重新计票。
+根据澳大利亚战略政策研究所收集的公开数据，大华与新疆各地的市政府达成了价值数亿美元的交易，包括用于监控、治安和反恐项目。
 
-2.斯洛文尼亚总理亚内兹·扬沙11月4日发文，祝贺川普总统连任。他或许已成为世界上第一个祝贺川普总统连任的外国官员。
+原文链接：
 
-3.美国将于11月4日正式退出《巴黎协定》。退出该协定并不代表川普总统在应对全球环境恶化上保持非积极态度，实际上在其任期采取了更多有效的环境政策。此举主要粉碎了中共利用环境课题强迫美国产业链向中共国转移的企图。
-
-1+
+[https://www.scmp.com/tech/policy/article/3108380/chinese-surveillance-giant-expanding-us-attracts-scrutiny-over-possible](https://www.scmp.com/tech/policy/article/3108380/chinese-surveillance-giant-expanding-us-attracts-scrutiny-over-possible)
+![]()
+0

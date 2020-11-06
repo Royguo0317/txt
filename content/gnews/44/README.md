@@ -1,32 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11月4日费城反选举作弊新闻发布会：埃里克·川普先生的发言
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/530277/)
+## 美国防部长埃斯珀准备辞职
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/530869/)
 
-视频来源：[https://www.youtube.com/watch?v=mBj6JrbqvWs&feature=youtu.be](https://www.youtube.com/watch?v=mBj6JrbqvWs&amp;feature=youtu.be)
-埃里克·川普（Eric Trump）先生在发言中指出：“民主党人知道他们赢得这场选举的唯一方法就是在宾夕法尼亚州作弊”，民主党的行为“简直是在嘲弄这个国家的选举制度。”
+多伦多加喜农场 熊妈妈
 
-这场发布会是2020年11月4日朱利安尼先生，在宾夕法尼亚州的费城召集的，关于选举作弊的重大新闻发布会。 会上朱利安尼先生和其他四位发言人就民主党在这次美国总统大选过程中的种种造假舞弊行为给予了痛斥。指出民主党为了赢得大选，不惜在宾夕法尼亚州进行选票造假以赢得大选， 他们阻止共和党观察员检票、 丢弃合法选票、在投票点做非法宣传等， 除了该州以外， 还有维斯康新州、 亚利桑那州、内华达州和密西根州。朱利安尼先生说已经有视频等实锤证据， 会起诉民主党的欺诈行为，真正揭露民主党的腐败，捍卫美国的自由选举制度。
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05180545/ESPER.jpg)图片来自Foreign Policy
+11月5日，有媒体援引五角大楼三名官员的信息表示，美国国防部长埃斯珀（Mark Esper）准备辞职。
 
-以下是在新闻发布会上发言的与会者名单：
+媒体指出，为使国家元首可以连任第二任期，部长们通常在总统选举期间写辞职信，信中不会指定具体日期。总统通常在知道选举结果之后决定是否接受辞职。
 
-1：埃里克·川普（Eric Frederick Trump）是美国商人，前真人秀节目主持人。他是唐纳德·川普总统的第二个儿子。
+但是，有消息人士指出，埃斯珀的处境实际上可能以辞职而告终，因为他是那些在很久之前就被期望接替其职位的部长之一，特别是在选举后。
 
-2：科里·R·莱万多夫斯基（Corey R. Lewandowski）是美国政治活动家、说客、政治评论员和作家。2015年1月至2016年6月，他曾担任美国一线新闻网、福克斯新闻网和CNN的政治评论员，以及唐纳德·川普2016年竞选美国总统的竞选经理。
+埃斯珀与川普总统长期处于紧张关系。特别是在今年6月，他们在使用军队协助抵抗骚乱活动方面存在分歧。川普总统主张引入军队以恢复秩序。五角大楼认为不存在骚乱活动。
 
-3：鲁道夫·威廉·路易斯·朱利安尼（Rudy Giuliani）是美国律师、网络安全顾问和政治家，1994年至2001年担任纽约市第107任市长，因其在打击纽约黑帮和“911”事件中的杰出贡献， 被喻为“美国市长”。
+美国总统大选于11月3日举行。11月4日，川普在大选投票结束后发表讲话，宣布他赢得了大选。但是川普总统的竞争对手乔∙拜登目前靠延迟计票和虚假的邮寄选票逐渐占了上风，川普总统已要求停止计票并宣布挑战所有乔∙拜登目前取得优势州的投票结果。
 
-4: 帕梅拉·乔·邦迪（Pamela Jo Bondi）是美国律师、游说者和政治家。她是共和党人，2011年至2019年担任佛罗里达州第37任检察长。
+如果川普总统获胜，他将解雇美国国家过敏和传染病研究所所长安东尼·福奇（Anthony Fauci）、中央情报局局长吉娜·哈斯佩尔(Gina Haspel)、美国联邦调查局(FBI)局长克里斯托弗·雷（Christopher Wray），埃斯珀也将面临解雇。
 
-5: 杰里米·默瑟是一位作家和记者，他的著作包括《时间在那里很柔软》和《当断头台倒下时》。他还为新英格兰大学出版社将罗伯特·巴丁特的《废止》翻译成英文。他是巴黎艺术团体 “零公里 ”的创始成员之一。
 
-相关新闻 1：[https://gnews.org/zh-hans/529377/](https://gnews.org/zh-hans/529377/)
 
-相关新闻 2：[https://gnews.org/zh-hans/530594/](https://gnews.org/zh-hans/530594/)
+参考链接：[https://www.nbcnews.com/politics/donald-trump/long-odds-trump-defense-secretary-esper-has-prepared-resignation-letter-n1245846](https://www.nbcnews.com/politics/donald-trump/long-odds-trump-defense-secretary-esper-has-prepared-resignation-letter-n1245846)
 
-翻译：【一花一世界】校对：【XO小粉红】总结：【key】字幕：【Vinzo】【Rock小哥】编辑：【Isaiah4031】
+[https://www.rbc.ru/politics/06/11/2020/5fa466589a7947aab66a5749](https://www.rbc.ru/politics/06/11/2020/5fa466589a7947aab66a5749)
 
-战友之家玫瑰园小队出品
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01145114/GNEWS-GTV-VOG.png)
-0
+4+

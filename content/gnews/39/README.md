@@ -1,43 +1,86 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 司法机构：过去五年从未有海外法官拒绝接受终院非常任法官任命 【跟踪报道】
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/530369/)
+## 焦点观察：底特律缺席选举计票混乱，工作人员封锁窗口，禁止观察员进入
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/530929/)
 
-搜集：诸水响声、8848喜马拉雅
+翻译：康州农场-霹雳忍者蛙
 
-整撰：文燕
+校对：康州农场-Freeearth，Bruce
+![Covering Windows in Detroit]()![Covering Windows in Detroit](https://media.breitbart.com/media/2020/11/Covering-Windows-in-Detroit-640x480.jpg)
+周三，数百名担心舞弊的非官方共和党观察员聚集在计票点，底特律的缺席选票计票工作陷入混乱。
 
-覆核：文非
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05104639/13b35f6b787fe6634253bf3a70431d0e.png)图片：香港终审法院
-来自澳洲的终审法院非常任法官施觉民（James Spigelman）早前请辞，并向传媒表明请辞与国安法有关，其后政府公布来自英国的贺知义（Lord Patrick Hodge）接任，惟英国32 名跨党派国会议员10 月时曾联名反对，认为贺接受任命，将损害司法制度声誉。
+底特律市正在使用TCF中心–原科博大厅–来统计该市所有的缺席选票。
 
-据香港媒体报道，司法机构于11月4 日以书面回覆立法会议员梁继昌的提问，指出过去五年，从未有海外法官拒绝接受终院非常任法官的任命。而现时 13 名非常任法官中，有 7 人的任期明年届满，其中 3 人在明年 2 月即届满。
+共和党人和川普的支持者越来越警觉，因为在周二晚间的早期计票过程中，川普在该州保持着强大的领先优势，但随着历史意义上的民主党地区的邮寄选票被计算出来，这种领先优势就蒸发了。
 
-司法机构表示，7 名来自澳洲、加拿大及英国的非常任法官，任期将于明年届满，而其中 3 人任期明年 2 月 28 日即届满，包括来自澳洲的纪立信法官。
+社交媒体上发布的几段视频显示，工作人员试图限制透明度，不允许外面的人观察计票区内部的情况。
 
-根据法例，每宗上诉需由终审法院审判庭聆讯及裁决，审判庭由 5 名成员组成，当中包括一名海外非常任法官。司法机构称，自1997 年7 月1 日至今，终审法院审理共约700宗实质上诉案件，除了约10 宗的例外情况外，终院均从非常任普通法地区法官的名单，选出一名法官出庭聆讯。
 
-机构续指，例外情况主要是终院邀请的非常任法官在时间上未能配合，或临时出现一些无法预计的情况，以致未能按计划参与相关案件的审判工作。
 
-终审法院海外非常任法官施觉民（James Spigelman）今年9 月 2 日辞职，他曾向传媒表明请辞与 7 月 1 日实施的《港区国安法》有关。政府上月（10 月）宣布，行政长官林郑月娥接纳司法人员推荐委员会推荐，任命来自英国的贺知义勋爵（Lord Patrick Hodge）为终审法院非常任法官；同月英国32 名跨党派国会议员联名致函大法官、司法大臣反对，认为因应国安法在港实施，贺知义接受任命将有损司法制度声誉。
+> The scene at Detroit’s absentee ballot counting center is growing more heated. The windows now being covered up. Allegations of violations. Sec. of State says she welcomes challenges. [pic.twitter.com/oUL4A0h3Ku](https://t.co/oUL4A0h3Ku)
+> — Matt Finn (@MattFinnFNC) [November 4, 2020](https://twitter.com/MattFinnFNC/status/1324084637010976769?ref_src=twsrc%5Etfw)
 
-战友点评：
 
-根据司法机构资料，7名来自澳洲、加拿大及英国的非常任法官，任期将于明年届满，其中3人任期明年2月28日即届满。换句话说，港府为了填补这7位即将离任的非常任法官，在国际上制造假相：香港有海外非常任法官，香港司法独立仍在。
+*推文翻译：*
+*马特·芬恩（Matt·Finn）@MattFinnFNC：底特律缺席票计票中心现场局势正在升温。窗户正在被遮挡起来。对于违规的指控，州务卿表示，她欢迎挑战。（2020年11月5日上午4:22）*
+福克斯新闻制片人马特·芬恩写道：”一些窗户仍然被封着。我问了几个人谁把它们贴起来，为什么，没有明确的答案。几位民调异议人士或是工作人员告诉我们，他们觉得这个房间里的（共和党人和民主党人）人数不成公允比例。”
 
-但实际上，终审法院海外非常任法官施觉民于9月份辞职，施向传媒表明请辞与国安法有关。 【港版国安法】严重地侵蚀了香港司法的三权分立，林郑月娥亲口否定了香港的司法独立性，所以施才愤而辞职。英联邦国家法官，如美国、英国、加拿大、澳洲这些国家的法官未必愿意来港任职。
+川普竞选团队已经提起诉讼，认为他们没有被允许参与计票过程，因此要求停止投票，直到获得充分的行动自由。
 
-何君尧早前认为，终审法院海外非常任法官不一定要从美国、英国、加拿大等国家聘请，港府应考虑委任新加坡、印度、马来西亚、汶莱及南非等地的法官，将眼光扩阔至其他地方，不应嫌其他地区司法水准低。
+一名工人用大块硬纸板遮住窗户，阻止外面的人看见里面正在发生的事情。其他工人用披萨包装盒挡住门窗。与此同时，场地外的一些人高喊着： “停止投票”。
 
-从这件事情中可以看出，港共政府是有计划地部署。从明年二月份开始，法官任期届满后，港府将会陆续从非英联邦的国家，或其他国家聘请海外非常任法官。到时候他们便可以聘请有共产国际理念的法官来填补空缺。这将是港府在司法方面进一步的部署：香港从民主社会转向极权社会的演变。
 
-以上观点仅代表笔者本人
 
-资料来源：立场新闻、头条日报
+> Election challengers chanting “stop the vote” outside of TCF Center in [#Detroit](https://twitter.com/hashtag/Detroit?src=hash&amp;ref_src=twsrc%5Etfw) [#Michigan](https://twitter.com/hashtag/Michigan?src=hash&amp;ref_src=twsrc%5Etfw) [#Elections2020](https://twitter.com/hashtag/Elections2020?src=hash&amp;ref_src=twsrc%5Etfw) 
+> 
+> Source: [@annalise\_frank](https://twitter.com/annalise_frank?ref_src=twsrc%5Etfw) [pic.twitter.com/fcj41iRPFJ](https://t.co/fcj41iRPFJ)
+> — Global News (@GlbBreakNews) [November 4, 2020](https://twitter.com/GlbBreakNews/status/1324090524060495874?ref_src=twsrc%5Etfw)
 
-[https://www.thestandnews.com/politics/%E5%8F%B8%E6%B3%95%E6%A9%9F%E6%A7%8B-%E8%BF%91%E4%BA%94%E5%B9%B4%E7%84%A1%E6%B5%B7%E5%A4%96%E6%B3%95%E5%AE%98%E6%8B%92%E6%8E%A5%E5%8F%97%E7%B5%82%E9%99%A2%E4%BB%BB%E5%91%BD/](https://www.thestandnews.com/politics/%E5%8F%B8%E6%B3%95%E6%A9%9F%E6%A7%8B-%E8%BF%91%E4%BA%94%E5%B9%B4%E7%84%A1%E6%B5%B7%E5%A4%96%E6%B3%95%E5%AE%98%E6%8B%92%E6%8E%A5%E5%8F%97%E7%B5%82%E9%99%A2%E4%BB%BB%E5%91%BD/)
 
-[https://hd.stheadline.com/news/realtime/hk/1908632/%E5%8D%B3%E6%99%82-%E6%B8%AF%E8%81%9E-%E8%B3%80%E7%9F%A5%E7%BE%A9%E4%BB%BB%E5%91%BD-%E9%83%AD%E6%A6%AE%E9%8F%97%E7%A8%B1%E7%82%BA%E5%90%88%E9%81%A9%E4%BA%BA%E9%81%B8-%E4%BD%95%E5%90%9B%E5%A0%AF-%E5%8F%AF%E8%80%83%E6%85%AE%E5%8D%B0%E5%BA%A6%E5%8D%97%E9%9D%9E%E7%AD%89%E5%9C%B0%E6%B3%95%E5%AE%98](https://hd.stheadline.com/news/realtime/hk/1908632/%E5%8D%B3%E6%99%82-%E6%B8%AF%E8%81%9E-%E8%B3%80%E7%9F%A5%E7%BE%A9%E4%BB%BB%E5%91%BD-%E9%83%AD%E6%A6%AE%E9%8F%97%E7%A8%B1%E7%82%BA%E5%90%88%E9%81%A9%E4%BA%BA%E9%81%B8-%E4%BD%95%E5%90%9B%E5%A0%AF-%E5%8F%AF%E8%80%83%E6%85%AE%E5%8D%B0%E5%BA%A6%E5%8D%97%E9%9D%9E%E7%AD%89%E5%9C%B0%E6%B3%95%E5%AE%98)
+*推文翻译：*
+*环球新闻（Global [email protected] ）*
+*选举异议人士在TCF中心外高喊 “停止计票 “。#底特律#密歇根*
+*#2020大选*
+*源自：@源自：@annalise——frank*
+*推文翻译：*
+*环球新闻（Global [email protected] ）*
+*TCF中心为阻止观察员，将窗户关闭。*
+*源自：@ericjgibbs*
+其他视频显示，底特律警察保护着大门，阻止监督员进入。
+
+
+
+> Poll watchers try to get into the ballot counting area in [#Detroit](https://twitter.com/hashtag/Detroit?src=hash&amp;ref_src=twsrc%5Etfw) [#Michigan](https://twitter.com/hashtag/Michigan?src=hash&amp;ref_src=twsrc%5Etfw) [#Elections2020](https://twitter.com/hashtag/Elections2020?src=hash&amp;ref_src=twsrc%5Etfw) 
+> 
+> Source: [@TheInsiderPaper](https://twitter.com/TheInsiderPaper?ref_src=twsrc%5Etfw) [pic.twitter.com/ZQJoYYGarU](https://t.co/ZQJoYYGarU)
+> — Global News (@GlbBreakNews) [November 4, 2020](https://twitter.com/GlbBreakNews/status/1324089825998315521?ref_src=twsrc%5Etfw)
+
+
+*推文翻译：*
+*环球新闻（Global [email protected] ）*
+*在#底特律 #密歇根，投票监督员试图进入计票区域#2020大选）*
+*源自：@TheInsiderPaper*
+随着紧张局势的加剧，底特律卫生部门的一名代表试图清理计票区的大厅，这进一步激怒了监督者。
+
+
+
+> [#BREAKING](https://twitter.com/hashtag/BREAKING?src=hash&amp;ref_src=twsrc%5Etfw): Large, animated crush of “stop the count” protestors trying to push their way into TCF hall in [#Detroit](https://twitter.com/hashtag/Detroit?src=hash&amp;ref_src=twsrc%5Etfw) where ballots are being counted.
+> 
+> They’re being blocked by guards at the door. 
+> 
+> Pizza boxes are pushed against the window to obstruct view. It’s tense. [@NBCNews](https://twitter.com/NBCNews?ref_src=twsrc%5Etfw) [pic.twitter.com/zFhzd88skX](https://t.co/zFhzd88skX)
+> — Steve Patterson (@PattersonNBC) [November 4, 2020](https://twitter.com/PattersonNBC/status/1324086177885003778?ref_src=twsrc%5Etfw)
+
+
+*推文翻译：*
+*史蒂夫·帕特森（@PattersonNBC*
+*突發：
+大量憤怒的抗議者們高喊“停止記票”，并試圖進入已經記票的T C F大廳。*
+*他们被门口的警卫挡住了。
+披萨包装盒被放在窗户上用来遮挡视线。很紧张。（@NBC新闻）（2020年11月5日上午4:28）*
+州务卿乔塞琳·本森（Jocelyn Benson）此前表示，计票工作可能要到周五才能完成。她在周三曾经估计今晚可以完成。
+
+据《底特律新闻》报道，随着99%的选票统计完毕，拜登领先川普超过6万票。
 
 1+

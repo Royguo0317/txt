@@ -1,86 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 焦点观察：底特律缺席选举计票混乱，工作人员封锁窗口，禁止观察员进入
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/530929/)
+## 人类呼唤美国英雄
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/531525/)
 
-翻译：康州农场-霹雳忍者蛙
+作者：香草山金融部  三票先生 校对/发稿：飞虹
 
-校对：康州农场-Freeearth，Bruce
-![Covering Windows in Detroit]()![Covering Windows in Detroit](https://media.breitbart.com/media/2020/11/Covering-Windows-in-Detroit-640x480.jpg)
-周三，数百名担心舞弊的非官方共和党观察员聚集在计票点，底特律的缺席选票计票工作陷入混乱。
-
-底特律市正在使用TCF中心–原科博大厅–来统计该市所有的缺席选票。
-
-共和党人和川普的支持者越来越警觉，因为在周二晚间的早期计票过程中，川普在该州保持着强大的领先优势，但随着历史意义上的民主党地区的邮寄选票被计算出来，这种领先优势就蒸发了。
-
-社交媒体上发布的几段视频显示，工作人员试图限制透明度，不允许外面的人观察计票区内部的情况。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05173212/logo-2.jpg)
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06003612/%E5%9B%BE%E7%89%874-5.png)
+本次美国大选，中共用明显漏洞百出、毫不掩饰的造假，甚至可能不仅帮拜登造假，还在川普的选票中造假并用于栽赃，成功把美国大选拖入无休止的诉讼之中，造成美国前所未有的危机。
 
-> The scene at Detroit’s absentee ballot counting center is growing more heated. The windows now being covered up. Allegations of violations. Sec. of State says she welcomes challenges. [pic.twitter.com/oUL4A0h3Ku](https://t.co/oUL4A0h3Ku)
-> — Matt Finn (@MattFinnFNC) [November 4, 2020](https://twitter.com/MattFinnFNC/status/1324084637010976769?ref_src=twsrc%5Etfw)
+从目前的情况看，川普和拜登都不认输，都在寻找证据诉诸法律，最后不可避免地要到联邦最高法院对簿公堂。如果最高法院判川普胜，拜登和民主党已经准备好了“按提法”和“黑命贵”等组织上街闹事，不排除背后有中共的支持。如果最高法院判拜登胜，支持川普的民众也不会善罢甘休，大家看到川普在各州竞选集会的热烈场面，美国民众是可以合法持枪的，不排除各地民众武装起来保卫大选成果引发内战！这个绝不是危言耸听，当初独立战争就是民兵打起来的！美国的社会割裂将引发前所未有的内乱。
 
+还有一种情况就是最高法院久拖不决，或者有人弃权形成平局，到2021年1月20日本届总统任期结束还没有结果，美国将进入前所未有的宪政危机。按美国宪法，出现这种情况，由众议院按每州一票选举总统，参议院每人一票选举副总统。但是本届参众两院任期到2021年1月3日结束，新总统和副总统由新一届国会选举，但是因为选票造假的缘故，很可能国会无法组成，无法选出新总统和副总统，也无法选出众议长代理总统，美国将出现群龙无首的局面，行政系统和立法系统瘫痪，司法系统不作为，美国军队谁管？核按钮谁管？美国乱了，世界也就乱了，唯一得利的就是中共。
 
-*推文翻译：*
-*马特·芬恩（Matt·Finn）@MattFinnFNC：底特律缺席票计票中心现场局势正在升温。窗户正在被遮挡起来。对于违规的指控，州务卿表示，她欢迎挑战。（2020年11月5日上午4:22）*
-福克斯新闻制片人马特·芬恩写道：”一些窗户仍然被封着。我问了几个人谁把它们贴起来，为什么，没有明确的答案。几位民调异议人士或是工作人员告诉我们，他们觉得这个房间里的（共和党人和民主党人）人数不成公允比例。”
+美国历史上曾出现过大选僵持不下，由议会选举总统或者最高法院干预产生总统的情况，如杰斐逊、海斯以及小布什的当选就是这样产生的。但是那时候这些都是美国的内部矛盾，没有到你死我活的地步。这次情况很不一样，由于邪恶的中共深度渗透，拜登家族以及奥巴马、克林顿夫妇等民主党大佬深陷与中共勾兑的经济、政治上的腐败和卖国案件，面临牢狱之灾。而川普如果落选，很可能面临被民主党和中共陷害而入罪，班农先生被陷害就是先例。所以这次选举变得你死我活水火不容。而中共由于制造和故意传播中共病毒，致使全球近5000万人感染，123万人死亡，美国近1000万人感染，24万人死亡。中共自知罪孽深重，如果川普当选，会面临被全球围剿而政权崩塌的局面，所以尽全力扶持其代理人拜登当选。由于郭文贵先生领导的爆料革命连续13天对拜登家族贪腐的爆料，拜登民意大跌，中共转而采取拜登当选不成就引发美国内乱的计策，以逃避清算和惩罚。文明遇到了野蛮，这是美国先贤们没有想到的，制度上出现了漏洞。正如美国第二任总统亚当斯所说的： “我们的政府不具备能力去对付不受伦理和宗教约束的人类情感，我们的宪法只是为有道德和宗教信仰的民族制定的，它远远不足以管理任何其他民族。此宪法只适合于有道德与信仰的人民。”
 
-川普竞选团队已经提起诉讼，认为他们没有被允许参与计票过程，因此要求停止投票，直到获得充分的行动自由。
+从目前的民意和最高法院的组成来看，最高法院不可能判决拜登胜。如果最高法院在2021年1月20日前判决川普胜选，当可化解宪政危机。另一个办法就是川普以中共制造和释放病毒进行生化战为由宣布成为战时总统。无论上述哪种情况，美国分裂都不可避免。但是美国不能分裂，世界上不能没有一个强大的美国。有一个可行的办法就是，川普宣布或者承诺，涉及刑事犯罪的民主党（包括共和党）高层在被起诉并认罪后均可得到不同程度的赦免，罪行轻微的可以免于刑事起诉。美国需要和解，摈弃前嫌团结一致对外，美国才能获得新生！
 
-一名工人用大块硬纸板遮住窗户，阻止外面的人看见里面正在发生的事情。其他工人用披萨包装盒挡住门窗。与此同时，场地外的一些人高喊着： “停止投票”。
+从过往的为人看，川普总统应该是一个真诚和善良的人，他上任后放弃薪水任劳任怨为美国人民服务，忠实履行竞选时许下的诺言，成效显著有目共睹，这是美国历任总统所绝无仅有的。但川普的真诚和善良一次次被愚弄。上任之初就一直生活在子虚乌有的通俄们的阴影中，遭遇了美国历史上第一次弹劾总统（最后被参议院以微弱多数否决）的羞辱，任上始终被主流媒体丑化。在中美贸易谈判中多次被中共的出尔反尔所愚弄，最后签署协议墨水未干，中共就释放了中共病毒。在病毒初期，习近平，一个被川普口口声声说成是好朋友的中共党魁，对川普谎称这个病毒就是普通流感，天气热了就消失了，中共代理人福奇也这么误导，于是善良的川普又被愚弄了，疏于防范，背上了抗疫不力的骂名，差一点被二次弹劾，推荐一个硫酸羟氯喹还被迫当众改口，最后一家三口感染病毒，川普还一度病情严重有生命危险。
 
+如果说上面发生的事更多的是针对川普个人，但这次大选，中共和民主党肆无忌惮地公然做假，视美国人民的智商为玩物，推特公然封掉川普的言论，政治对手明显的腐败案件被司法部和FBI隐瞒十个月之久。大选是美国人政治生活中最重要的事，选举公平、言论自由、司法独立是美国的立国之本，美国人的生活方式遭到彻底颠覆，这不仅是在世人面前公开愚弄川普，更是愚弄美国两党和美国人民！这还是美国吗？
 
+耻辱啊！堂堂美国总统一次又一次被公然愚弄，这不仅是川普个人的耻辱，更是美国的耻辱，全人类的耻辱！过分的善良和忍让就是懦弱，我们从川普病愈出院后的眼神中看到了不一样的力量！美国是一片英雄辈出的热土，华盛顿、林肯、罗斯福、巴顿、麦克阿瑟、里根，美国在呼唤一个新的英雄！人类在呼唤美国英雄！灭共不只是中国人民的事，更是美国人民的事、全人类的事！相信美国两党领袖都有超凡的勇气和政治智慧，消弭分裂，清理沉疴，实现和解。而郭文贵先生的爆料也留有余地，为两党和解提供了充分的可能。美国两党只有团结一致对外灭共，才能化解美国危机，美国才有未来，人类才有未来！
 
-> Election challengers chanting “stop the vote” outside of TCF Center in [#Detroit](https://twitter.com/hashtag/Detroit?src=hash&amp;ref_src=twsrc%5Etfw) [#Michigan](https://twitter.com/hashtag/Michigan?src=hash&amp;ref_src=twsrc%5Etfw) [#Elections2020](https://twitter.com/hashtag/Elections2020?src=hash&amp;ref_src=twsrc%5Etfw) 
-> 
-> Source: [@annalise\_frank](https://twitter.com/annalise_frank?ref_src=twsrc%5Etfw) [pic.twitter.com/fcj41iRPFJ](https://t.co/fcj41iRPFJ)
-> — Global News (@GlbBreakNews) [November 4, 2020](https://twitter.com/GlbBreakNews/status/1324090524060495874?ref_src=twsrc%5Etfw)
+天降大任于川普，天选之子，当仁不让！
 
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
 
-*推文翻译：*
-*环球新闻（Global [email protected] ）*
-*选举异议人士在TCF中心外高喊 “停止计票 “。#底特律#密歇根*
-*#2020大选*
-*源自：@源自：@annalise——frank*
-*推文翻译：*
-*环球新闻（Global [email protected] ）*
-*TCF中心为阻止观察员，将窗户关闭。*
-*源自：@ericjgibbs*
-其他视频显示，底特律警察保护着大门，阻止监督员进入。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-
-> Poll watchers try to get into the ballot counting area in [#Detroit](https://twitter.com/hashtag/Detroit?src=hash&amp;ref_src=twsrc%5Etfw) [#Michigan](https://twitter.com/hashtag/Michigan?src=hash&amp;ref_src=twsrc%5Etfw) [#Elections2020](https://twitter.com/hashtag/Elections2020?src=hash&amp;ref_src=twsrc%5Etfw) 
-> 
-> Source: [@TheInsiderPaper](https://twitter.com/TheInsiderPaper?ref_src=twsrc%5Etfw) [pic.twitter.com/ZQJoYYGarU](https://t.co/ZQJoYYGarU)
-> — Global News (@GlbBreakNews) [November 4, 2020](https://twitter.com/GlbBreakNews/status/1324089825998315521?ref_src=twsrc%5Etfw)
-
-
-*推文翻译：*
-*环球新闻（Global [email protected] ）*
-*在#底特律 #密歇根，投票监督员试图进入计票区域#2020大选）*
-*源自：@TheInsiderPaper*
-随着紧张局势的加剧，底特律卫生部门的一名代表试图清理计票区的大厅，这进一步激怒了监督者。
-
-
-
-> [#BREAKING](https://twitter.com/hashtag/BREAKING?src=hash&amp;ref_src=twsrc%5Etfw): Large, animated crush of “stop the count” protestors trying to push their way into TCF hall in [#Detroit](https://twitter.com/hashtag/Detroit?src=hash&amp;ref_src=twsrc%5Etfw) where ballots are being counted.
-> 
-> They’re being blocked by guards at the door. 
-> 
-> Pizza boxes are pushed against the window to obstruct view. It’s tense. [@NBCNews](https://twitter.com/NBCNews?ref_src=twsrc%5Etfw) [pic.twitter.com/zFhzd88skX](https://t.co/zFhzd88skX)
-> — Steve Patterson (@PattersonNBC) [November 4, 2020](https://twitter.com/PattersonNBC/status/1324086177885003778?ref_src=twsrc%5Etfw)
-
-
-*推文翻译：*
-*史蒂夫·帕特森（@PattersonNBC*
-*突發：
-大量憤怒的抗議者們高喊“停止記票”，并試圖進入已經記票的T C F大廳。*
-*他们被门口的警卫挡住了。
-披萨包装盒被放在窗户上用来遮挡视线。很紧张。（@NBC新闻）（2020年11月5日上午4:28）*
-州务卿乔塞琳·本森（Jocelyn Benson）此前表示，计票工作可能要到周五才能完成。她在周三曾经估计今晚可以完成。
-
-据《底特律新闻》报道，随着99%的选票统计完毕，拜登领先川普超过6万票。
-
-1+
+2+

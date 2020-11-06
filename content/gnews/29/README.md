@@ -1,46 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 朱利安尼 推文系列 2
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/530593/)
+## 2020.11.04上午内蒙通辽、辽宁阜新、沈阳多地出现三个太阳
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/531252/)
 
-作者：朱利安尼
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05223250/%E5%B0%81%E9%9D%A2-22.jpg)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-翻译:Beicy-数学老师 简评/校对/审核: TCC；Page：拱卒
+据[**人民日报**](https://weibo.com/2803301701?refer_flag=1001030103_) [11月04日 11:30](https://weibo.com/2803301701/Jsk1c5uxU?refer_flag=1001030103_) 来自 [微博视频](https://app.weibo.com/t/feed/19DcdW)
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05123912/a862becdb8649d5e.png)
+【[#内蒙古通辽现*幻日*现象#](https://s.weibo.com/weibo?q=%23%E5%86%85%E8%92%99%E5%8F%A4%E9%80%9A%E8%BE%BD%E7%8E%B0%E5%B9%BB%E6%97%A5%E7%8E%B0%E8%B1%A1%23)】11月4日10时30分许，内蒙古通辽市科左后旗甘旗卡镇上空出现了“三个太阳”。当地气象部门表示，天空同时出现三个太阳的一种奇异的光学现象，由整齐排列在空中的冰柱折射所形成，称为*幻日*。[#通辽天空出现三个太阳#](https://s.weibo.com/weibo?q=%23%E9%80%9A%E8%BE%BD%E5%A4%A9%E7%A9%BA%E5%87%BA%E7%8E%B0%E4%B8%89%E4%B8%AA%E5%A4%AA%E9%98%B3%23)（张枨、王婷、刘强） [L人民日报的微博视频](http://t.cn/A6GbWs1O) ​
 
+据[**沸点天际线**](https://weibo.com/7307157206?refer_flag=1001030103_) [2020年11月6日05:56](https://weibo.com/7307157206/Jsk2jhpVk?refer_flag=1001030103_)
 
-## 朱利安尼 推文系列 2
+【“*幻日*”奇观！[#辽宁彰武上空现三个太阳#](https://s.weibo.com/weibo?q=%23%E8%BE%BD%E5%AE%81%E5%BD%B0%E6%AD%A6%E4%B8%8A%E7%A9%BA%E7%8E%B0%E4%B8%89%E4%B8%AA%E5%A4%AA%E9%98%B3%23)空中遥相对望】11月4日上午8点多，辽宁阜新。彰武县市民拍到空中同时出现了三个太阳。从视频中看到，三个太阳在天空两侧遥遥相望。这应该是大气的光学现象——*幻日*，在天空中分布着大量微小的六角冰晶，在一定条件下，受日光照射就会发生折射现象，就有可能出现“多个太阳“的奇观。[2阜新](https://weibo.com/p/1001018008621090000000000)
+[O视频|辽宁彰武上空现“*幻日*”三个太阳空中遥相对望](http://t.cn/A6Gblf85) [L沸点天际线的微博视频](http://t.cn/A6GblxWb) [收起全文d](void%280%29;)
 
-美国大选投票结束第一天，朱利安尼(Rudy Giuliani) 不仅推文报道了川普总统在宾夕法尼亚州(Pennsylvania) 等地方 的绝对领先结果，更抨击虚假媒体和拜登家族同样腐败，对选举结果进行欺诈性报道。
+据[**北京头条**](https://weibo.com/1644948230?refer_flag=1001030103_) [11月04日 11:40](https://weibo.com/1644948230/Jsk4V9Xqg?refer_flag=1001030103_) 来自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)
 
-4日，朱利安尼和法律团队一起，赶往费城(Philadelphia) ，反击民主党选票作弊非法行为。
+【[#沈阳上空出现3个太阳#](https://s.weibo.com/weibo?q=%23%E6%B2%88%E9%98%B3%E4%B8%8A%E7%A9%BA%E5%87%BA%E7%8E%B03%E4%B8%AA%E5%A4%AA%E9%98%B3%23) 网友：呼叫后羿！】11月4日上午，不少网友表示，辽宁沈阳出现奇妙景观：天空中出现了“三个太阳”。据悉，此现象名为“*幻日*”，是大气的一种光学现象↓↓↓（北青-北京头条编辑 常伟琦）[L青流视频的秒拍视频](http://t.cn/A6GbOWtj) ​
 
-投票结束。战斗， 却刚刚开始。
+据**天无二日，民无二王- 教育百科：［**天上不可能同时出现两个太阳，一国之内不能同时有两个君主存在。比喻事物不能同时有两大。《孟子．万章上》：「孔子曰：『天无二日，民无二王。』舜既为天子矣，又帅天下诸侯，以为尧三年丧是二天子矣！」《三国演义．第八○回》：「华歆奏曰：『天无二日，民无二王。』汉帝既禅天下，理宜退就藩服。」也作「天无二日，土无二王」。**］**
 
-- [朱利安尼正在反击: 民主党人竭尽所能窃取这次选举!](https://twitter.com/DineshDSouza/status/1324113203794759680)
+中国内蒙通辽、辽宁阜新、辽宁沈阳多地于同日上午出现三个太阳，这个时间点其实也是美国总统大选开票之日，由于中共的渗透和破坏，在美国总统大选的开票之夜做憋候选人拜登拒绝承认败选，胜利已然在握的川普总统正在通过法律捍卫胜利、守护正义，而在这一切乱相的幕后推手中共治下的多地同时天现三日，是否喻示着变天在即？天降异相，驱除邪共！
 
-[!\[\]()!\[\](https://spark.adobe.com/page/on6BmfPgVjdiq/images/2f5c63cf-529a-4b3f-a316-4e16f7fcd9a0.jpg?asset_id=aa44569c-3098-4084-a365-26e65b6b4397&amp;img_etag=%22fcec0c9beae097b5cad8b12acd69cd10%22&amp;size=2560)](https://spark.adobe.com/page/on6BmfPgVjdiq/images/2f5c63cf-529a-4b3f-a316-4e16f7fcd9a0.jpg?asset_id=aa44569c-3098-4084-a365-26e65b6b4397&amp;img_etag=%22fcec0c9beae097b5cad8b12acd69cd10%22&amp;size=1024)
-2020/11/04 朱利安尼转推: 民主党人正在竭尽所能窃取这次选举。 朱利安尼是不会允许它发生的，现在他在反击。必须看。
+（文章内容仅代表作者个人观点）
 
-- [(我)和法律团队一起, 在去费城(Philadelphia)的路上。](https://twitter.com/RudyGiuliani/status/1324062078731231233)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/on6BmfPgVjdiq/images/98a1306a-e7d8-4f62-add0-3185e48ea8b0.jpg?asset_id=835ffd29-2059-4d18-acec-8dd632e268b7&amp;img_etag=%2202a161ffe33c03276ebe65d8d1c42d56%22&amp;size=2560)](https://spark.adobe.com/page/on6BmfPgVjdiq/images/98a1306a-e7d8-4f62-add0-3185e48ea8b0.jpg?asset_id=835ffd29-2059-4d18-acec-8dd632e268b7&amp;img_etag=%2202a161ffe33c03276ebe65d8d1c42d56%22&amp;size=1024)
-2020/11/04 (我)和法律团队一起, 在去费城(Philadelphia)的路上。(民主党)大规模作弊。唐纳德・川普， 在75%開票時，以55万张票领先。不会让费城民主党的黑客偷走(胜利)!
-
-- [川普现在在宾夕法尼亚州(Pennsylvania)在74%的投票中领先70万票。](https://twitter.com/RudyGiuliani/status/1323911716720226310)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/on6BmfPgVjdiq/images/9089445e-23ba-45af-9a53-c0d3eecbe777.jpg?asset_id=984b743d-7012-4a00-ac0f-a10ce4075ae9&amp;img_etag=%22baaa08db38aa48a81c722528a68cd62b%22&amp;size=2560)](https://spark.adobe.com/page/on6BmfPgVjdiq/images/9089445e-23ba-45af-9a53-c0d3eecbe777.jpg?asset_id=984b743d-7012-4a00-ac0f-a10ce4075ae9&amp;img_etag=%22baaa08db38aa48a81c722528a68cd62b%22&amp;size=1024)
-2020/11/04 川普现在在宾夕法尼亚州(Pennsylvania)在74%的投票中领先70万票。说(双方得票数)是太接近了，这是个谎言。这就是作弊。
-
-- [虚假媒体拒绝宣告佛罗里达州(Florida)、俄亥俄州(Ohio)和喬治亚州(Georgia)的(开票) 结果，这样他们就可以保持拜登的虚假领先优势。](https://twitter.com/RudyGiuliani/status/1323834239067004928)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/on6BmfPgVjdiq/images/b42dba4d-cca5-49da-aa50-e3b1a7db9ec3.jpg?asset_id=443478be-e2a0-4513-9389-73a4e992f708&amp;img_etag=%229fb5e61d4d7611e6b6e15938208d524a%22&amp;size=2560)](https://spark.adobe.com/page/on6BmfPgVjdiq/images/b42dba4d-cca5-49da-aa50-e3b1a7db9ec3.jpg?asset_id=443478be-e2a0-4513-9389-73a4e992f708&amp;img_etag=%229fb5e61d4d7611e6b6e15938208d524a%22&amp;size=1024)
-虚假媒体拒绝宣告佛罗里达州(Florida)、俄亥俄州(Ohio)和喬治亚州(Georgia)的(开票) 结果，这样他们就可以保持拜登的虚假领先优势。就像支持腐败的弹劾門和实施美国历史上第一次(新闻)审查一样。他们(这些媒体)和拜登犯罪家族一样腐败。
-
-编辑：[【喜马拉雅战鹰团】](https://spark.adobe.com/page/on6BmfPgVjdiq/)-点击Adobe Spark版
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-[!\[\]()!\[\](https://spark.adobe.com/page/on6BmfPgVjdiq/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/on6BmfPgVjdiq/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 2+
