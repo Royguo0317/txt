@@ -1,14 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/5内华达州记者会：投票工作人员监督计票受阻
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/533684/)
+## 美国海军选票投给川普总统选票在垃圾堆被找回
+` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/534273/)
 
-视频来源：[https://www.youtube.com/watch?v=4X2V5hPPp6w](https://www.youtube.com/watch?v=4X2V5hPPp6w)
-川普竞选团队11月5日在内华达州召开记者会。一名随竞选团队来到投票站进行监督计票的工作人员，讲述他在选举之夜计票结束之前，就被无端驱赶的经历。然而滑稽的是，其它媒体却可以自由地进入计票现场。
+内新闻：背靠背
 
-翻译：【萌萌的朋克】校对：【木木ANNA】【Isaiah4031】【BruhM】字幕：【XO小粉紅】编辑：【Isaiah4031】
-
-战友之家玫瑰园小队出品
-
-0
+2020年11月7日 3时，推特号StevenfromGloucester发文称，在乔治亚州格里芬，他的朋友从垃圾中找回海军投给川普总统的选票。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07010211/image-112.png)视频来自StevenfromGloucester推特![Image](https://pbs.twimg.com/media/EmKYdttWoAAG6F2?format=jpg&amp;name=large)图片来自StevenfromGloucester推特![Image](https://pbs.twimg.com/media/EmKYdtvWMAQRir9?format=jpg&amp;name=large)图片来自StevenfromGloucester推特![Image](https://pbs.twimg.com/media/EmKYdtuW0AIfqlH?format=jpg&amp;name=large)图片来自StevenfromGloucester推特
+同日稍早前，川普总统发推称，乔治亚州失踪的军方选票去哪里？他们怎么了？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07011517/image-113.png)
+2+

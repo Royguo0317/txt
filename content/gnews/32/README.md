@@ -1,37 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】『荒唐』邓炳强：须防范暴力死灰复燃 警队有望成世界最优秀执法队伍之一
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/532903/)
+## 美国司法部批准使用武装人员调查选民欺诈指控
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/533753/)
 
-搜集：文卡西欧、文燕
+![In this Thursday, April 18, 2019, file photo, a sign for the Department of Justice hangs in the press briefing room at the Justice Department, in Washington. (AP Photo/Patrick Semansky, File)  **FILE**]()![In this Thursday, April 18, 2019, file photo, a sign for the Department of Justice hangs in the press briefing room at the Justice Department, in Washington. (AP Photo/Patrick Semansky, File)  **FILE**](https://twt-thumbs.washtimes.com/media/image/2019/07/23/tech_regulation_99971_c0-334-5363-3460_s885x516.jpg?73b2db6a54bdfe14fa2712393d7dc15724af226a)
+翻译：康州农场-Truemanman
 
-整撰：文燕
+校对：康州农场-文韵
 
-覆核：MY
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06112322/image001-9.png)图片：立场新闻
-据【立场新闻】11月6日讯，警务处处长邓炳强在警总出席警队纪念日，他表示，警队无惧持续一时的暴力，成功为恢复香港秩序的愿景「带来曙光」 ，又强调警队不能松懈，「必须防范暴力死灰复燃」。他深信警队的优良传统会薪火相传，「成为世界上其中一支最优秀的执法队伍」。
+司法部已批准使用武装人员在计票中心调查潜在的选民舞弊行为，绕过了长期以来禁止在投票站使用联邦武装人员的禁令。
 
-今日是警队纪念日，邓炳强出席仪式，悼念殉职警员。他指警员在执勤期间经常身处险境，生命随时受到威胁，但从不畏缩，并一直以以民为本的精神，竭尽所能维护香港安全和稳定。邓炳强又指，「每位警队成员心系家国的情操」，无惧持续一时的暴力，「成功为恢复香港秩序的愿景带来曙光」；他又表示警队不能松懈，「必须防范暴力死灰复燃」，把握逐渐回复平稳的局面，凝聚社会对警队的支持，并继续与市民携手抗疫。他深信警队的「优良传统」将薪火相传，「成为世界上其中一支最优秀的执法队伍」。
+司法部官员在一份备忘录中告诉全国的联邦检察官，这项禁令只适用于选举日，而不适用于选举日之后的几天。
 
-点评：
+该法规 “并不妨碍联邦武装执法人员在封闭的投票站或其他计票地点应对、调查甚至防止联邦犯罪，”Richard P. Donoghue在周三凌晨1:30左右发送的电子邮件中写道。
 
-特首林郑月娥日前接受《凤凰卫视》访问时表示，港区国安法实施往后，起了震慑作用，香港已恢复平静。林郑指的「香港已恢复平静」，应该是邓炳强口中所说的，在港版国安恶法下香港「逐渐回复平稳的局面」吧！
+《纽约时报》周四首次报道了这封邮件。
 
-7.21是白衣人无差别袭击市民，去年白衣人在西铁元朗站内外，手持木棍、藤枝，袭击市民，警方接报后39分钟才到达现场。警务处处长邓炳强其后见记者以「官员不应评论事件」了结。
+Donoghue先生没有说部署特工是否需要司法部批准，但建议如果采取任何行动，司法部应该知道。
 
-8.31太子站事件速龙「无差别」暴打在候车月台、行人电梯及车厢内的市民。邓炳强将「打死人」谣言归咎有「势力想危害国家及香港安全」，却提不出任何证据是什么势力、如何散播谣言。
+他写道：”如果需要向这些地点派遣联邦执法人员，请立即通知该部门”。
 
-反而是对竭而不舍追查乡黑暴力、揭露警察黑暗面的港台《铿锵集》女记者蔡玉玲，在找到接应白衣人的车主身分后，竟然被香港警署出动重案组上门执行拘捕。
+一名司法部官员告诉《华盛顿时报》，发送该备忘录是为了预计选票计算会受到任何干扰。该官员说，司法部希望确保州和地方官员知道联邦政府可以提供帮助。
 
-在警务处处长邓炳强的带领下，坐拥庞大警力物力的港警，至今仍没有给出任何7.21当晚的线索，至今也没有出具8.31太子站当晚的录影。
+该官员告诉《泰晤士报》，司法部没有向任何地方派遣联邦特工。
 
-「成为世界上其中一支最优秀的执法队伍」只是邓炳强一句自欺欺人的空话，香港警察俨然已成为名副其实的用来震慑民众的政府机器。
+川普总统几个月来一直发誓要动用联邦官员打击他所说的广泛的选民欺诈行为。今年早些时候，他威胁要在选举日使用执法部门巡逻投票站。
 
-资料来源：立场新闻 众新闻
+“我们将拥有一切，”川普总统在接受福克斯新闻采访时说。”我们将有警长，我们将有执法部门，我们希望有美国检察官，我们将有每个人，还有检察长。但这是非常困难的。”
 
-[https://www.thestandnews.com/politics/%E9%84%A7%E7%82%B3%E5%BC%B7-%E9%A0%88%E9%98%B2%E7%AF%84%E6%9A%B4%E5%8A%9B%E6%AD%BB%E7%81%B0%E5%BE%A9%E7%87%83-%E8%AD%A6%E9%9A%8A%E6%9C%89%E6%9C%9B%E6%88%90%E4%B8%96%E7%95%8C%E6%9C%80%E5%84%AA%E7%A7%80%E5%9F%B7%E6%B3%95%E9%9A%8A%E4%BC%8D%E4%B9%8B%E4%B8%80/?fbclid=IwAR1Z5za3PQm9JXrYxsYtrc6HCgzC2UZivGdbin5Z-gFlaMJz](https://www.thestandnews.com/politics/%E9%84%A7%E7%82%B3%E5%BC%B7-%E9%A0%88%E9%98%B2%E7%AF%84%E6%9A%B4%E5%8A%9B%E6%AD%BB%E7%81%B0%E5%BE%A9%E7%87%83-%E8%AD%A6%E9%9A%8A%E6%9C%89%E6%9C%9B%E6%88%90%E4%B8%96%E7%95%8C%E6%9C%80%E5%84%AA%E7%A7%80%E5%9F%B7%E6%B3%95%E9%9A%8A%E4%BC%8D%E4%B9%8B%E4%B8%80/?fbclid=IwAR1Z5za3PQm9JXrYxsYtrc6HCgzC2UZivGdbin5Z-gFlaMJz)
+使用武装联邦特工很可能会激怒民主党人，他们担心司法部在已经紧张的选举中使用高压手段煽风点火。在川普先生和民主党提名人乔·拜登之间的微弱差距中，一些州还没有完成计票。
 
-[https://www.hkcnews.com/article/35300/%E8%94%A1%E7%8E%89%E7%8E%B2-%E9%8F%97%E9%8F%98%E9%9B%86-721%E5%85%83%E6%9C%97%E6%81%90%E8%A5%B2-35300/%E3%80%90%E8%BF%BD%E6%9F%A5%E7%9C%9F%E7%9B%B8%E8%A2%AB%E6%8D%95%E3%80%91%E8%AD%A6%E6%96%B9%E7%A8%B1%E6%8E%A5%E7%8D%B2%E6%8A%95%E8%A8%B4-%E9%87%8D%E7%B5%84%E3%80%8A%E9%8F%97%E9%8F%98%E9%9B%86%E3%80%8B%E6%86%91%E6%9F%A5%E5%86%8A%E6%8F%AD%E8%BC%89%E7%99%BD%E8%A1%A3%E4%BA%BA%E8%BB%8A%E4%B8%BB%E6%B6%89%E6%9D%91%E4%BB%A3%E8%A1%A8-%E4%BD%95%E5%90%9B%E5%A0%AF%E6%9B%BE%E5%8E%BB%E4%BF%A1%E4%BF%83%E8%BF%BD%E7%A9%B6%E7%B7%A8](https://www.hkcnews.com/article/35300/%E8%94%A1%E7%8E%89%E7%8E%B2-%E9%8F%97%E9%8F%98%E9%9B%86-721%E5%85%83%E6%9C%97%E6%81%90%E8%A5%B2-35300/%E3%80%90%E8%BF%BD%E6%9F%A5%E7%9C%9F%E7%9B%B8%E8%A2%AB%E6%8D%95%E3%80%91%E8%AD%A6%E6%96%B9%E7%A8%B1%E6%8E%A5%E7%8D%B2%E6%8A%95%E8%A8%B4-%E9%87%8D%E7%B5%84%E3%80%8A%E9%8F%97%E9%8F%98%E9%9B%86%E3%80%8B%E6%86%91%E6%9F%A5%E5%86%8A%E6%8F%AD%E8%BC%89%E7%99%BD%E8%A1%A3%E4%BA%BA%E8%BB%8A%E4%B8%BB%E6%B6%89%E6%9D%91%E4%BB%A3%E8%A1%A8-%E4%BD%95%E5%90%9B%E5%A0%AF%E6%9B%BE%E5%8E%BB%E4%BF%A1%E4%BF%83%E8%BF%BD%E7%A9%B6%E7%B7%A8)
+今年早些时候，民主党人和自由派团体抨击川普总统和司法部长威廉-巴尔授权联邦特工在今年夏天的种族正义抗议活动中清除白宫附近的拉斐特广场公园。
+
+川普总统还部署了联邦特工来平息全国各城市的抗议活动，包括西雅图和俄勒冈州波特兰市。
+
+原文：
+
+[https://www.washingtontimes.com/news/2020/nov/5/justice-department-approves-use-armed-agents-inves/?utm\_campaign=shareaholic&utm\_medium=twitter&utm\_source=socialnetwork](https://www.washingtontimes.com/news/2020/nov/5/justice-department-approves-use-armed-agents-inves/?utm_campaign=shareaholic&amp;utm_medium=twitter&amp;utm_source=socialnetwork)
 
 0

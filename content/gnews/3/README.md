@@ -1,22 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 快讯：周六全美举行挺川“阻止偷走大选”（Stop The Steal）和平抗议，（不要脸）的脸书关闭该活动主页
-` GM65` [轉載自GNews](https://gnews.org/zh-hans/532904/)
+## 拜登竞选造假系列二：福克斯重磅曝光密西根州47郡使用投票软件造假,该软件由佩洛西前任幕僚长DOMINION公司中标, 中共国量产
+` GM101` [轉載自GNews](https://gnews.org/zh-hans/534057/)
 
-11月6日，据班农先生战斗室消息，#StopTheSteal 宣布，11月7日，本周六中午12点，全美将在各州议会大厦前举行“阻止偷走大选”和平抗议游行，号召所有支持川普总统，寻求正义的人们参加。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06115018/EmJsG-WU0AId-mB.jpeg)
-11月5日，据名为Cindy\*StopTheDamnSteal\* Chafian的推特账号消息，脸书强行关闭了一个名为“阻止偷走大选”（Stop The Steal）的川普支持者主页。该主页目的是组织民众到各州投票工作地点监督选举计票工作，并发起全美范围内的支持川普游行集会。页面在不到24小时内有36.5万人加入，平均每10秒就有1000人加入。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06113701/Screen-Shot-2020-11-06-at-11.25.25.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06113712/EmFMRuXWoAENXw-.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06113739/EmFMRuXXEAA_9K1.jpeg)
+美东时间11月6号，福克斯重磅曝光密西根州47郡使用投票系统造假,将原本投给川普总统的选票自动变更给了拜登,该软件由美国众议院委员会负责招标,最终由众议院议长佩洛西前任幕僚长控制的DOMINION公司中标,并由中共国量产.
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06113745/EmFMRuXWkAIjwSv.jpeg)
+拜登及背后势力造假并不罕见,此前密歇根州投票拜登造假被抓现行，底特律半夜突然增加近十四万投票全部计入拜登名下后，亚特兰大市大选开票现场惊现中共国顺丰快递包裹等数不胜数。在各种造假助攻的背景下,拜登票数增幅于半夜人类睡眠时段实现了垂直跳跃,卖美贼刷新了美国大选得票记录。
 
-
-> Facebook just silenced over 365,000 American voices who were coming together to [#StopTheSteal](https://twitter.com/hashtag/StopTheSteal?src=hash&amp;ref_src=twsrc%5Etfw). 365k in less than 24 hours! We were organizing people to go to the states to oversee election counting and for rallies and they silenced us!! [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) [@AmyKremer](https://twitter.com/AmyKremer?ref_src=twsrc%5Etfw) [pic.twitter.com/6GP5Wy77o7](https://t.co/6GP5Wy77o7)
-> — Cindy \*StopTheDamnSteal\* Chafian (@CynCity\_USA) [November 5, 2020](https://twitter.com/CynCity_USA/status/1324423636552396802?ref_src=twsrc%5Etfw)
-
-
-
-脸书以“有号召暴力危险”和“对民主党的指责无根据”为由将该主页关闭，其自欺欺人、打压民意已近乎疯狂。
+福克斯本次曝光密西根州投票造假事件意义重大,牵涉到卖美贼与中共的利益深度勾兑,破坏美国自由民主立国之本的同时,已经严重危害到国家安全,美国危在旦夕,世界危在旦夕.所有爆料革命战友必须坚定信念,以破釜沉舟的勇气充分发挥个人能力,助力一切灭共行动.
 
 0
