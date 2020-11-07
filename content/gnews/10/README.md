@@ -1,27 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普必胜 ———- 爆料革命必胜 CCP必灭
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/534390/)
+## 庆丰帝邪恶巧设计，美利坚正义有天知
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/534204/)
 
-编辑：喜马拉雅农场联盟新西兰奥克兰伊甸农场 编者：Xwan249(石聪）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24064746/WhatsApp-Image-2020-10-24-at-15.08.49.jpeg)
+作者：康州农场-GTalk心语堂
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07002103/image2-2.png)
+庆丰八年，庚子年九月十九，庆丰帝一边用膳，一边看着大洋彼岸发生的一切，嘴角挂着一丝微笑。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07002114/image3-1.jpeg)
+一旁侍立的党公公不失时机的谄媚道：“您看这美利坚这通折腾，俩老头都掐急眼了，多乱啊，还是咱天朝好，您一道圣谕，天下太平。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07002123/image4-3.png)
+庆丰帝放下送到嘴边的包子，正色道：“你懂个球啊，那美利坚人分左右，朝分三鼎，大家互相瞅着，想多吃口包子都难。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07002133/image5-2.png)
+党公公道：“圣上英明，我说那个川老头，手里有枪有炮的，怎么连个 话都说不利索的主儿 都搞不定，原来是有人盯着。 还是咱这儿好，普天之下，莫非王土，哪个奴才敢盯着您吃包子。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07002139/image6-1.jpeg)
+庆丰帝抹一把嘴边的油，笑骂道：“你脑袋被驴踢了吧，光有人盯着有个鸟用，人家是有律法的，整不明白了就击鼓鸣冤，堂上走一遭。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07002156/image7-2.png)
+党公公谄笑道：“咱天朝不也有大清律吗，还不就是圣上您一夜壶，没事儿谁屌它啊。”
 
+庆丰帝正色道：“你个没卵的东西哪知道夜壶的妙用，那里面装的是雨露君恩，老百姓喝一口感恩戴德。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07002206/image8.jpeg)
+党公公惶然道：“吾皇圣明，君恩浩荡，可是您瞅着美利坚那儿的人掐架的掐架，得病的得病，咱就不能让他们也雨露均沾？”
 
+庆丰帝阴恻恻道：“枉你随朕多年，美利坚那庙堂之上……嘿嘿嘿。”
+Source from:GTalk
+Pictures from:
+https://pbs.twimg.com/media/D7YcjBHUEAAVnot.jpg:large 
+https://i.insider.com/5b98032c2be4ab1c008b5d51?width=1100&format=jpeg&auto=webp 
+https://02.imgmini.eastday.com/mobile/20180805/b4dc33c6cf0eb0a0dfa310c4e6bec8eb\_wmk.jpeg 
+https://app-usa-modeast-prod-a01239f-ecas.s3.amazonaws.com/USA\_Government\_Branches\_Infographic.png 
+https://pbs.twimg.com/profile\_images/1086049245583466496/trNNR1nk\_400x400.jpg 
+https://kansaspress.ku.edu/images/publications/raw/9780700617074.jpg 
+https://qqpublic.qpic.cn/qq\_public/0/0-2934563891-DCFC261E74316218A23C0D1CD4C9C1B9/0?fmt=jpg&size=54&h=636&w=900&ppv=1 
+https://cdn.hk01.com/di/media/images/1142868/org/962de590da536d44fdb625cdf903e542.jpg/qHD25hzdcCfaXV3FRb2Ht3knWn\_LqEAjhy6Is4cuiLM?v=w1920r16\_9 
+https://mma.prnewswire.com/media/1027641/American\_Deep\_State\_Movie\_Infographic.jpg?p=publish
 
-今天就是举世瞩目的美国总统大选投票日，我们新中国联帮新成立的电视台 和我们全体战友一样，共同期盼着川普当选！希望智慧的选民把票投给您， 因为我们知道，您是正直、诚实、公义的，您可以让那些贪财枉法的人下台， 您的连任会排干一切中共沼泽，使美国再次伟大！我们相信文贵三年爆料 就等今天了！
-
-1.您是美国总统历史上唯一一个不拿总统工资，只为美国人民夜以即日工作 的好总统，我们敬佩您！在古稀之年，您有足够的资金，完全可以享受富足 自在的晚年生活，四年的繁忙还不能泯灭您的初心！还要竞选连任！
-
-2.您是抗压能力最强的总统！多少人能理解您，那些居心叵测的小人捏造“ 通俄门”事件，弹劾您三年，耗费巨额资金来证明您的清白！在10月初，您 忙碌于竞选活动期间，感染了新冠病毒，不排除CCP对您和您的家人下的毒手， 可您绝不畏惧，与医生配合，几天就转阴出院，继续您的竞选日程！这充分证明了 您超人的坚强！
-
-3.几十年来，您是最英明的领导，是唯一一个看清中共邪恶本质的人。与爆料革命 一起战胜CCP对美国及西方世界的政治、经济的威胁、渗透和蓝金黄，搞垮搞乱 美国的狼子野心，您连任后，一定会对中共采取严厉措施和行动！追纠他们对 世界释放生化武器，发动第三次世界大战，致使120万人感染病毒的危险，灭共就是 切段病毒感染来源，及时挽救人民生命，这是多么义意重大呀！川普胜，美国胜！ 世界胜！
-
-4.爆料革命助川普胜. 文贵三年来下的棋就是为了今天.他长期潜伏在中共内部，卧薪尝胆，深知他们的 套路，用视频爆料来钓鱼，引诱敌人上勾，获得了美国的信任，也使美国看清了CCP 的本质.文贵总能料敌先机，布下天罗地网，等着收网！
-
-特别是就在大选前13天，每天 都有重磅消息推出，硬盘门事件，让美国人民知道了拜登家族和CCP勾兑，不惜出卖 美国国家利益来换取钱财的坑脏违法行为，一定会打败之前领先川普的民主党竟争对手 乔拜登的，选择这个时候爆料，就是为了让民主党戳手不及，来不及換人，而败下阵来 也就是在此时打败敌手，助川普胜出！
-
-可见文贵的灭共大棋，布局之深，手腕之很，无 处不显示其智慧，所以一切都是在文贵先生的掌控之中，他是中共培养的最完美的掘墓人- 川普必胜！
-
-你看川普的辛苦绝不会白费，在他的每天几场演讲中，获得了良知美国人民的支持和信赖 支持度越来越高，战友们，我们衷心祝愿川普当选，我们欢呼，我们歌唱，拜登必败，CCP 必灭，祝愿美国更伟大，消灭病毒，世界更美好，重新走向自由民主和平的新时代！因为这是我们 最最期待的时代变迁的历史关键时刻！
-
-0
+1+
