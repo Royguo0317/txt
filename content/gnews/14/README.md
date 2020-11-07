@@ -1,36 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发新闻：前联邦检察官、迈克尔-弗林（Michael Flynn）将军的律师西德尼-鲍威尔（Sidney Powell）声称选举软件遭 “黑客入侵”
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/534276/)
+## 美国海军选票投给川普总统选票在垃圾堆被找回
+` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/534273/)
 
-![BREAKING: Sidney Powell alleges election software was 'hacked']()![BREAKING: Sidney Powell alleges election software was 'hacked'](https://d3n8a8pro7vhmx.cloudfront.net/therebel/pages/49229/features/original/Screen_Shot_2563-11-06_at_9.02.22_PM.png?1604714744)
-翻译：康州农场-烟波浩淼
+内新闻：背靠背
 
-校对：康州农场- 黎明的光芒
-
-在今晚福克斯新闻 《今晚鲁道布斯（Lou Dobbs Tonight）》节目中，前联邦检察官、迈克尔-弗林（Michael Flynn）将军的律师西德尼-鲍威尔（Sidney Powell）和美国保守主义者激进组织司法监督总裁汤姆-菲顿 （Tom Fitton），讨论了全国范围内潜在的选举违规行为，以及法院和州议会是否会维护法治的话题。
-
-西德尼-鲍威尔呼吁有必要调查选举舞弊的可能性，舞弊可能是通过两款名为 “锤子 ”和 “记分卡 ”的软件完成的。
-
-她指出，由于“锤子 ”程序以数字方式收集了提前投票的选票，其中至少有3％的选票可能已经被更改。
-
-“我认为他们需要调查的事情有很多，包括在选举前的投票选票中，有3%的选票被改变的可能性，这些选票是通过 “锤子” 和 “记分卡 ” 软件，以数字方式收集的。这将会导致全国范围内的投票发生巨大变化，这解释了很多我们看到的事情。”
-
-鲍威尔补充道  “此外，他们还运用了一个算法来计算他们可能需要在特定地区为拜登先生拿出的选票数量， “
-
-“我认为这解释了在密歇根州发生的事情，那里的计算机故障导致大约5500票支持川普总统的选票记给了拜登，这还仅仅只是在47个地区中的一个地区。所有这些地区使用了同款软件的都需要检查这一故障，这将大大改变密歇根州的选举结果。同样的事情也发生在其他州。我们已经有成千上万张选票神秘地只投给了拜登先生，无论从统计学还是数学上讲都是不可能的。”
-
-鲍威尔说 “我认为它们是非常广泛使用的软件，但不是给计票员使用的。它们被民主党特工势力所利用，他们通过政府的专有访问权限使用了这些程序，”他们非法利用它来改变这个国家的选票。”
-
-鲍威尔接着说 “这可能要由总统最信任的军事情报官员来进行调查，他们可以进入系统并查看那些人都做了些什么。但是我们确实有确凿的证据知道发生了什么。他们用它用来对付其他机构和其他国家。”
-
-“只是最近被用来对付我们自己的公民，改变选举结果。这绝对是令人震惊的，怎么可以这样做，”她说。”而且不管它是所谓的’电脑故障’还是其他什么，有人真的进入了系统，改变了投票结果。这就叫干预我们的选举。”
-
-鲍威尔补充说，川普团队必须将这一指控写入联邦诉讼，他们在这个问题上有 “出色的 “证人。
-
-**原文链接：**
-
-[https://www.rebelnews.com/breaking\_sidney\_powell\_alleges\_election\_software\_was\_hacked](https://www.rebelnews.com/breaking_sidney_powell_alleges_election_software_was_hacked)
-
+2020年11月7日 3时，推特号StevenfromGloucester发文称，在乔治亚州格里芬，他的朋友从垃圾中找回海军投给川普总统的选票。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07010211/image-112.png)视频来自StevenfromGloucester推特![Image](https://pbs.twimg.com/media/EmKYdttWoAAG6F2?format=jpg&amp;name=large)图片来自StevenfromGloucester推特![Image](https://pbs.twimg.com/media/EmKYdtvWMAQRir9?format=jpg&amp;name=large)图片来自StevenfromGloucester推特![Image](https://pbs.twimg.com/media/EmKYdtuW0AIfqlH?format=jpg&amp;name=large)图片来自StevenfromGloucester推特
+同日稍早前，川普总统发推称，乔治亚州失踪的军方选票去哪里？他们怎么了？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07011517/image-113.png)
 2+
