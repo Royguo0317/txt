@@ -1,28 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/6财经快讯: 受美国大选影响，人民币汇率上演过山车,中共“出尔反尔”对澳贸易违背公开承诺
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/532458/)
+## 【香港要闻】脸书持续政审挺川言论，港艺人被封账号
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/532966/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06084414/Picture5-3.png)图片来源：[https://www.globaltimes.cn/](https://www.globaltimes.cn/content/1133693.shtml)
-1.美股三大指数集体收涨，道指涨1.95%，纳指涨2.59%，标普500指数涨近2%。美联储一如预期维持利率不变；阿里巴巴公布财报后收跌2.7%，受蚂蚁集团11月4日被暂缓A股上市影响，阿里巴巴累计跌幅8.13%；航空、芯片板块表现抢眼，高通公司收涨12.75%，应用材料涨7.85%，美联航涨6.03%，美国航空涨5.41%。
-[https://kuaixun.stcn.com/egs/202011/t20201106\_2508297.html](https://kuaixun.stcn.com/egs/202011/t20201106_2508297.html)
+收集：诸水响声
 
-2.最近多方消息来源显示，中共正在通过多种方法扰乱澳大利亚与中共国的正常贸易关系，中共进口商已经停止向澳大利亚葡萄酒、龙虾出口商下订单。澳中贸易陷入混乱，澳大利亚政府敦促中共国不要违背习近平作出的让全球分享中共市场的公开承诺。
-[https://www.voachinese.com/a/Australian-exporters-scramble-as-fears-of-more-China-trade-bans-grow-20201105/5649439.html](https://www.voachinese.com/a/Australian-exporters-scramble-as-fears-of-more-China-trade-bans-grow-20201105/5649439.html)
+编撰：点苍山
 
-3.南美：智利、哥伦比亚、厄瓜多尔和秘鲁四国联手发表声明对抗中共渔船在太平洋海域专属经济区附近的非法捕捞活动。专家表示，大量中共远洋船队从事“非法、不报告和不受管制（IUU）”的渔业活动，这不仅威胁沿岸各国主权，还危害全球食品安全和海洋生态。
-[https://www.voachinese.com/a/china-fishing-south-american-economy-20201105/5649804.html](https://www.voachinese.com/a/china-fishing-south-american-economy-20201105/5649804.html)
+审核：MY
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06114820/1234_5e0b26dc5b1b5.jpg)香港歌手：阮民安
+【看中国2020年11月6日讯】美国总统大选尚在点算选票，香港人非常关注此次选举，不时在社交媒体上表态。而多次参与反送中运动的艺人阮民安，4日晚于脸书“阮民安-Tommy”专页发布支持川普的言论，发帖后约一小时就遭到封锁账号，再也搜索不到发帖内容。 《看中国》记者实测，目前无法再进入该账号专页。阮民安向港媒表示：“现在是不是明摆着的政治审查呢？”脸书回复港媒查询指，因该专页重复地发布了违反仇恨言论政策的内容，因此移除有关内容并取消该专页的发布。此言遭网友们痛批。
 
-4.美国大选胶着，冻资高达万亿的中共金融科技巨头蚂蚁集团暂缓上市，对市场上人民币的资金需求带来影响，增加了对中共投资的不确定性，人民币汇率如坐过山车。
-[https://www.voachinese.com/a/rmb-election-china-economy-trade-20201104/5648248.html](https://www.voachinese.com/a/rmb-election-china-economy-trade-20201104/5648248.html)
+阮民安已就封锁专页向脸书提出申诉，但目前仍无法进入该专页。他暂时转到后备专页继续发帖。他表示，“之前一直都听到在脸书上写挺川言论，轻则会被警告、删帖，重则被封锁账号，原来是真的”，又质疑脸书做法是政治审查。他希望脸书可以尽快交代事件，以及解封其账号。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06114814/20201105-0420copy_4xf6Z_1200x0.png)图片：立场新闻
+战友点评：
 
-5.11月5日，蚂蚁集团发布A股暂缓发行相关事项的公告，经与主承销商协商，蚂蚁集团决定暂缓本次发行程序并同步披露了相关退款安排，及时返还冻结申购资金并加算同期银行存款利息。且考虑到监管环境的变化，蚂蚁集团短期内能否重新启动发行程序具有较大不确定性。
-[https://news.stcn.com/sd/202011/t20201106\_2508279.html](https://news.stcn.com/sd/202011/t20201106_2508279.html)
+美国2020年总统大选牵动着美国人民的心，也时刻影响着华人群体，川普总统在这场选举中被社交媒体，主流媒体打压的事实让很多人对西方民主下的新闻自由产生了极其负面的看法，尤其脸书的表现一直是排头兵和马前卒，民主自由对于他们这样的社交媒体来说就像是一扇防君子不防小人的门，随时把君子关在门外，而让小人横行屋内。
 
-6.美国一家信息公司发现确凿证据显示，中共人工智能公司浙江大华科技参与了中共政府迫害新疆维族人的活动。中共许多人工智能公司都参与了这一巨大“天网”的建造工程。大华科技就是其中之一。它使用人工智能技术针对维族人的脸型特征设计出人脸识别软件，帮助警察完成了对维族人的全方位控制。维族人无论逃到什么地方，都会被警方迅速发现和锁定，然后遭到拘押或者遣返。
-[https://www.voachinese.com/a/Dahua-racist-Uyghur-tracking-revealed-20201105/5649563.html](https://www.voachinese.com/a/Dahua-racist-Uyghur-tracking-revealed-20201105/5649563.html)
+面对这些横行霸道的社交平台，我们该以怎样的态度去面对，笔者认为，首先必须坚定信心，被删帖和封号肯定会很沮丧，但是我们不能丧失信念，怀疑人生；其次，应该更加坚定地支持川普总统，可以开辟新的发声频道比如Parler或者Gab，同时继续保持在脸书、推特上原有的舆论阵地的发声，不能完全放弃传播真相。若我们失望和放弃，才中了他们的诡计。
 
-By 【秘翻组 – 金融法律团队-Tracy】
+以上观点仅代表笔者本人
+
+新闻来源：香港媒体
+
+[https://m.secretchina.com/news/gb/2020/11/06/951636.html](https://m.secretchina.com/news/gb/2020/11/06/951636.html)
 
 0
