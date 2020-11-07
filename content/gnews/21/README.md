@@ -1,13 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国海军选票投给川普总统选票在垃圾堆被找回
-` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/534273/)
+## 最高法院下命令，要求宾夕法尼亚州对迟到的选票进行单独计票
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/534666/)
 
-内新闻：背靠背
+蒙特利尔战友团 laotou
 
-2020年11月7日 3时，推特号StevenfromGloucester发文称，在乔治亚州格里芬，他的朋友从垃圾中找回海军投给川普总统的选票。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07010211/image-112.png)视频来自StevenfromGloucester推特![Image](https://pbs.twimg.com/media/EmKYdttWoAAG6F2?format=jpg&amp;name=large)图片来自StevenfromGloucester推特![Image](https://pbs.twimg.com/media/EmKYdtvWMAQRir9?format=jpg&amp;name=large)图片来自StevenfromGloucester推特![Image](https://pbs.twimg.com/media/EmKYdtuW0AIfqlH?format=jpg&amp;name=large)图片来自StevenfromGloucester推特
-同日稍早前，川普总统发推称，乔治亚州失踪的军方选票去哪里？他们怎么了？
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07011517/image-113.png)
-2+
+校对上传 XM
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07044809/laotou-1.jpg)
+11月6日，美国最高法院命令宾夕法尼亚州选举委员会将选举日（11月3日）后送达的邮寄选票分开，并与该州的总体选票计票结果分开计票，法官们有可能在随后的裁决中排除迟交的选票。
+
+这份由保守党大法官大法官塞缪尔·阿利托(Samuel Alito)签署的命令，只批准了宾夕法尼亚州共和党人向法院提出的部分要求，其中包括要求停止对迟到的选票进行清点。
+
+俄亥俄州立大学（Ohio State University）法学教授奈德·福利（Ned Foley）说：“这将维持现状，直到法院有可能做出回应后再下命令。”，“这一点也很重要，因为它并没有停止计票，而是要求分开计票——这是一个明智的方法，可以防止任何以后无法撤销的选票混在一起。”
+
+原文链接：https://thehill.com/regulation/court-battles/524900-supreme-court-orders-separate-count-of-late-arriving-pa-ballots
+
+0

@@ -1,37 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】重磅：德州州长Abbott证实：德州选举作弊者面临134项选举作弊罪起诉！
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/533924/)
+## 突发新闻：前联邦检察官、迈克尔-弗林（Michael Flynn）将军的律师西德尼-鲍威尔（Sidney Powell）声称选举软件遭 “黑客入侵”
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/534276/)
 
-**作者：纽约香草山写作组 正道主义联盟 **
+![BREAKING: Sidney Powell alleges election software was 'hacked']()![BREAKING: Sidney Powell alleges election software was 'hacked'](https://d3n8a8pro7vhmx.cloudfront.net/therebel/pages/49229/features/original/Screen_Shot_2563-11-06_at_9.02.22_PM.png?1604714744)
+翻译：康州农场-烟波浩淼
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05173212/logo-2.jpg)
+校对：康州农场- 黎明的光芒
 
+在今晚福克斯新闻 《今晚鲁道布斯（Lou Dobbs Tonight）》节目中，前联邦检察官、迈克尔-弗林（Michael Flynn）将军的律师西德尼-鲍威尔（Sidney Powell）和美国保守主义者激进组织司法监督总裁汤姆-菲顿 （Tom Fitton），讨论了全国范围内潜在的选举违规行为，以及法院和州议会是否会维护法治的话题。
 
+西德尼-鲍威尔呼吁有必要调查选举舞弊的可能性，舞弊可能是通过两款名为 “锤子 ”和 “记分卡 ”的软件完成的。
 
-11月6日下午，德州州长Abbott推文表示：
+她指出，由于“锤子 ”程序以数字方式收集了提前投票的选票，其中至少有3％的选票可能已经被更改。
 
-“选举作弊真实存在！在德州，我们正在调查和起诉！
+“我认为他们需要调查的事情有很多，包括在选举前的投票选票中，有3%的选票被改变的可能性，这些选票是通过 “锤子” 和 “记分卡 ” 软件，以数字方式收集的。这将会导致全国范围内的投票发生巨大变化，这解释了很多我们看到的事情。”
 
-今天，Limestone县的一名社会工作者，因为134项选举作弊重罪被起诉！所有州都应该严肃对待作弊行为，以确保选举信心”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06215734/Picture6-5.png)
-据消息称：于国家扶持生活中心工作的布伦纳被指控在没有得到67名居民签名或有效同意的情况下为他们提交了选民登记申请，同时声称自己是他们的代理人。
+鲍威尔补充道  “此外，他们还运用了一个算法来计算他们可能需要在特定地区为拜登先生拿出的选票数量， “
 
-根据德克萨斯州法律，只有在该县有资格的选民的父母、配偶或孩子，在被该人指定后，才可以作为代理人登记投票。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06215741/Picture7-1.png)
-（德州ABC新闻网站做了详细报道）
+“我认为这解释了在密歇根州发生的事情，那里的计算机故障导致大约5500票支持川普总统的选票记给了拜登，这还仅仅只是在47个地区中的一个地区。所有这些地区使用了同款软件的都需要检查这一故障，这将大大改变密歇根州的选举结果。同样的事情也发生在其他州。我们已经有成千上万张选票神秘地只投给了拜登先生，无论从统计学还是数学上讲都是不可能的。”
 
-根据帕克斯顿办公室的一份新闻稿，没有一个SSLC患者有效地同意登记，而且他们中的一些人已经被法院宣布完全精神上无行为能力，因此他们没有资格在德克萨斯州投票。
+鲍威尔说 “我认为它们是非常广泛使用的软件，但不是给计票员使用的。它们被民主党特工势力所利用，他们通过政府的专有访问权限使用了这些程序，”他们非法利用它来改变这个国家的选票。”
 
-国家扶持的生活中心是为有智力和发育障碍的人服务的！这个工作人员利用职务便利做了严重违法行为！
+鲍威尔接着说 “这可能要由总统最信任的军事情报官员来进行调查，他们可以进入系统并查看那些人都做了些什么。但是我们确实有确凿的证据知道发生了什么。他们用它用来对付其他机构和其他国家。”
 
-审核： 悟空
+“只是最近被用来对付我们自己的公民，改变选举结果。这绝对是令人震惊的，怎么可以这样做，”她说。”而且不管它是所谓的’电脑故障’还是其他什么，有人真的进入了系统，改变了投票结果。这就叫干预我们的选举。”
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+鲍威尔补充说，川普团队必须将这一指控写入联邦诉讼，他们在这个问题上有 “出色的 “证人。
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+**原文链接：**
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05173212/logo-2.jpg)
+[https://www.rebelnews.com/breaking\_sidney\_powell\_alleges\_election\_software\_was\_hacked](https://www.rebelnews.com/breaking_sidney_powell_alleges_election_software_was_hacked)
+
 2+

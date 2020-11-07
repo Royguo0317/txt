@@ -1,44 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 仿佛这世界都是他们几家人的
-` JP007` [轉載自GNews](https://gnews.org/zh-hans/534428/)
+## 美国最高法院令原稿（要求宾夕法尼亚州对迟到的选票进行单独计票）
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/534836/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07024945/%E4%BB%BF%E4%BD%9B%E8%BF%99%E4%B8%96%E7%95%8C%E9%83%BD%E6%98%AF%E4%BB%96%E4%BB%AC%E5%87%A0%E5%AE%B6%E4%BA%BA%E7%9A%84.png)
-作者：日本富士会 待命（文晓）
+蒙特利尔战友团 laotou
 
-总攻第11天，在以文贵先生为首的爆料革命战友们的奋力拼搏下，中美盗国贼的胆大妄为之事实越来越清晰的展现在世人面前。
+校对上传 XM
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07055522/%E5%9B%BE%E7%89%871-8.jpg)图片来源：yaizakon.com.ua
+美国最高法院
 
-每一封电子邮件的答问呼应，都那么肆无忌惮、都那么理所当然、都那么旁若无人，仿佛这世界都是他们几家人的。像我们这些被文贵先生一直放在心上，不离弃、不放弃的战友们，也许在他们眼里，根本连做人的资格都没有。
+20A84号
 
-这些被曝光的相关邮件，其中心人物就是亨特拜登。
+宾夕法尼亚州共和党
 
-那呼风唤雨的势头，俨然他就是美国总统。
+申请人
 
-狐假虎威，不可一世，其父的权力在他身上得到了充分的延申。
+宾西法尼亚州布克瓦尔部长等。
 
-难怪其父亲大人，也是那么自信，好像已稳操总统大选的胜券。
+命令
 
-是谁？给了他们如此底气？
+现命令所有县选举委员会在法院作出进一步命令之前，遵守共同财富部长在10月8日和11月1日提供的以下指导，即：（1）11月3日晚8:00以后通过邮件收到的所有选票应隔离并“妥善保管”，与其他已投票选票分开的安全密封容器，以及（2）所有此类选票，如已点票，则应分开计算。宾夕法尼亚州州政府部门，2020年11月3日星期二（2020年10月28日）晚上8:00后从美国邮政局收到的邮寄选票和缺席选票：宾夕法尼亚州行政部，在晚上8:00后通过邮件收集独立邮寄和平民缺席选票。2020年11月3日星期二至2020年11月6日（2020年11月1日）星期五下午5:00之前。直到今天。本法院未获悉，10月8日发布的指导意见对是否下令特别处理有关选票的问题有重要影响，但该指南已被修改。今天恢复的申请书还告知法院，申请人和部长都无法核实所有董事会都暗示部长的指导，据称，这对他们没有法律约束力。
 
-谁？是他们父子的后盾？
+我立即将此申请提交大会，并指示尽快提交任何答复，但无论如何不得迟于明天，2020年11月7日下午2点。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07055554/%E8%80%81%E5%A4%B41.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07055601/%E8%80%81%E5%A4%B42.jpg)
+原文：Supreme Court of the United States
 
-能够串起来的链条只能是中共。
+No. 20A84
 
-不然，请告诉世界，为什么那么积极主动地给拜登送钱？
+REPUBLICAN PARTY OF PENNSYLVANIAKATHY
 
-自以为无所不能的中共万万没想到遇上个猪队友，
+Applicant
 
-还没等成事儿就露了马脚，
+V
 
-自己把自己连头带腚的曝光于世人面前。
+BOOCKVAR SECRETARY OF PENNSYLVANIA, ET AL.
 
-相信多数美国人民是清醒的，
+ORDER
 
-他们一定会在11月3日投上正义的一票。
+All county boards of election are hereby ordered , pending further order of the Court , to comply with the following guidance provided by the Secretary of the Common wealth on October 8 and November 1, namely, (1) that all ballots received by mail after 8:00 p.m. on November 3 be segregated and kept ” in a secure , safe and sealed container separate from other voted ballots , and (2) that all such ballots, if counted, be counted separately. Pa. Dep’t of State, Pennsylvania Guidance or Mail-in and Absentee Ballots Received from the United States Postal Service After 8:00 p.m. on Tuesday, November 3, 2020 (Oct. 28, 2020): Pa. Dep’t of State, Canvassing Segregated Mail-in and Civilian Absentee Ballots Received by Mail after 8:00pm. on Tuesday, November 3, 2020 and Before 5:00pm on Friday, November 6, 2020 (Nov. 1, 2020). Until today. this Court was not informed that the guidance issued on October 8, which had an important bearing on the question whether to order special treatment of the ballots in question, had been modified. The application revived today also informs the Court that neither applicant nor the Secretary has been able to verify that all boards an implying with the Secretary’s guidance, which, it is alleged, is not legally binding on them.
 
-川普必胜！
+I am immediately referring this application to the Conference and direct that any response be filed as soon as possible but in any event no later than 2 pm, tomorrow, November 7, 2020.
 
-正义必胜！
+Samuel A. Alito. Jr.
+
+Associate Justice of the Supreme Court of the United States
+
+Dated this 6th
+
+day of Nov 2020
+
+参考链接：https://twitter.com/GregStohr/status/1324877435414994945?ref\_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Etweet
 
 2+
