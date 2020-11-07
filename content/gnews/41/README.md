@@ -1,20 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## November 6, 2020 Updates On CCP Virus Pandemic
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/534879/)
+## 【香草诗词汇】冬之歌
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/535091/)
 
-**Key Points:**
+作者：香草山农场  木白
 
-- Various chaos erupting increasingly after the U.S. election: Republican “observers” were driven out of the vote counting center in Detroit;
-- Mayor Giuliani: legal actions against the fraud voting will be taken across the country!
-- Cheap lives! The maximum compensation for victims of the Lanzhou bacteria leakage incident is 50,000 RMB;
-- The Xinjiang epidemic is still severe! Urumqi city is recruiting 1,300 nucleic acid testing personnel.
-- The CCP forces truck drivers to install Beidou navigation equipment to surveil them and make money through fines.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06235914/GNEW-GTV-MOS-LOGO.jpeg)
 
 
 
 
-#### **By: 【秘密翻译组G-Translators】**
 
-3+
+如果寒冷是一种植物
+
+我体内的液体该流向何方
+
+如果寒冷是一种动物
+
+我们该怎样驯养它
+
+在这正凋零的世界
+
+打开那朵属于我们的野性之花
+
+也用温暖的水把你扶起吧
+
+尽管，河流还在干枯
+
+尽管，我不再有泪水
+
+此刻我们就是那升起的泥土
+
+此刻我们正孕育着春天
+
+2020年11月7日
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+0
