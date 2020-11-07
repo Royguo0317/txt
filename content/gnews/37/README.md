@@ -1,42 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国司法部批准使用武装人员调查选民欺诈指控
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/533753/)
+## 11月4日费城新闻发布会：朱利安尼市长痛斥民主党的欺诈行为
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/533764/)
 
-![In this Thursday, April 18, 2019, file photo, a sign for the Department of Justice hangs in the press briefing room at the Justice Department, in Washington. (AP Photo/Patrick Semansky, File)  **FILE**]()![In this Thursday, April 18, 2019, file photo, a sign for the Department of Justice hangs in the press briefing room at the Justice Department, in Washington. (AP Photo/Patrick Semansky, File)  **FILE**](https://twt-thumbs.washtimes.com/media/image/2019/07/23/tech_regulation_99971_c0-334-5363-3460_s885x516.jpg?73b2db6a54bdfe14fa2712393d7dc15724af226a)
-翻译：康州农场-Truemanman
+视频来源：[https://www.youtube.com/watch?v=yJk42SbwET0&feature=emb\_logo](https://www.youtube.com/watch?v=yJk42SbwET0&amp;feature=emb_logo)
+这场发布会是2020年11月4日朱利安尼先生，在宾夕法尼亚州的费城召集的，关于选举作弊的重大新闻发布会。 会上朱利安尼先生和其他四位发言人就民主党在这次美国总统大选过程中的种种造假舞弊行为给予了痛斥。指出民主党为了赢得大选，不惜在宾夕法尼亚州进行选票造假以赢得大选， 他们阻止共和党观察员检票、 丢弃合法选票、在投票点做非法宣传等， 除了该州以外， 还有维斯康新州、 亚利桑那州、内华达州和密西根州。朱利安尼先生说已经有视频等实锤证据， 会起诉民主党的欺诈行为，真正揭露民主党的腐败，捍卫美国的自由选举制度。
 
-校对：康州农场-文韵
+以下是在新闻发布会上发言的与会者名单：
 
-司法部已批准使用武装人员在计票中心调查潜在的选民舞弊行为，绕过了长期以来禁止在投票站使用联邦武装人员的禁令。
+1：埃里克·川普（Eric Frederick Trump）是美国商人，前真人秀节目主持人。他是唐纳德·川普总统的第二个儿子。
 
-司法部官员在一份备忘录中告诉全国的联邦检察官，这项禁令只适用于选举日，而不适用于选举日之后的几天。
+2：科里·R·莱万多夫斯基（Corey R. Lewandowski）是美国政治活动家、说客、政治评论员和作家。2015年1月至2016年6月，他曾担任美国一线新闻网、福克斯新闻网和CNN的政治评论员，以及唐纳德·川普2016年竞选美国总统的竞选经理。
 
-该法规 “并不妨碍联邦武装执法人员在封闭的投票站或其他计票地点应对、调查甚至防止联邦犯罪，”Richard P. Donoghue在周三凌晨1:30左右发送的电子邮件中写道。
+3：鲁道夫·威廉·路易斯·朱利安尼（Rudy Giuliani）是美国律师、网络安全顾问和政治家，1994年至2001年担任纽约市第107任市长，因其在打击纽约黑帮和“911”事件中的杰出贡献， 被喻为“美国市长”。
 
-《纽约时报》周四首次报道了这封邮件。
+4: 帕梅拉·乔·邦迪（Pamela Jo Bondi）是美国律师、游说者和政治家。她是共和党人，2011年至2019年担任佛罗里达州第37任司检察长。
 
-Donoghue先生没有说部署特工是否需要司法部批准，但建议如果采取任何行动，司法部应该知道。
+5: 杰里米·默瑟（Jeremy Mercer）是一位作家和记者，他的著作包括《时间在那里很柔软》和《当断头台倒下时》。他还为新英格兰大学出版社将罗伯特·巴丁特的《废止》翻译成英文。他是巴黎艺术团体 “零公里 ”的创始成员之一。
 
-他写道：”如果需要向这些地点派遣联邦执法人员，请立即通知该部门”。
+翻译：【信正】校对：【Cyndi】总结：【key】字幕：【Pamila（文明）】【班仔】编辑：【Isaiah4031】
 
-一名司法部官员告诉《华盛顿时报》，发送该备忘录是为了预计选票计算会受到任何干扰。该官员说，司法部希望确保州和地方官员知道联邦政府可以提供帮助。
+战友之家玫瑰园小队出品
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01145114/GNEWS-GTV-VOG.png)
+相关新闻：
 
-该官员告诉《泰晤士报》，司法部没有向任何地方派遣联邦特工。
+[1] [https://gnews.org/zh-hans/530277/](https://gnews.org/zh-hans/530277/)
 
-川普总统几个月来一直发誓要动用联邦官员打击他所说的广泛的选民欺诈行为。今年早些时候，他威胁要在选举日使用执法部门巡逻投票站。
+[2] [https://gnews.org/zh-hans/529377/](https://gnews.org/zh-hans/529377/)
 
-“我们将拥有一切，”川普总统在接受福克斯新闻采访时说。”我们将有警长，我们将有执法部门，我们希望有美国检察官，我们将有每个人，还有检察长。但这是非常困难的。”
+[3] [https://gnews.org/zh-hans/530594/](https://gnews.org/zh-hans/530594/)
 
-使用武装联邦特工很可能会激怒民主党人，他们担心司法部在已经紧张的选举中使用高压手段煽风点火。在川普先生和民主党提名人乔·拜登之间的微弱差距中，一些州还没有完成计票。
+[4] [https://gnews.org/zh-hans/530755/](https://gnews.org/zh-hans/530755/)
 
-今年早些时候，民主党人和自由派团体抨击川普总统和司法部长威廉-巴尔授权联邦特工在今年夏天的种族正义抗议活动中清除白宫附近的拉斐特广场公园。
-
-川普总统还部署了联邦特工来平息全国各城市的抗议活动，包括西雅图和俄勒冈州波特兰市。
-
-原文：
-
-[https://www.washingtontimes.com/news/2020/nov/5/justice-department-approves-use-armed-agents-inves/?utm\_campaign=shareaholic&utm\_medium=twitter&utm\_source=socialnetwork](https://www.washingtontimes.com/news/2020/nov/5/justice-department-approves-use-armed-agents-inves/?utm_campaign=shareaholic&amp;utm_medium=twitter&amp;utm_source=socialnetwork)
-
-0
+2+

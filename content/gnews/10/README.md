@@ -1,39 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 庆丰帝邪恶巧设计，美利坚正义有天知
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/534204/)
+## 揭穿中共疫苗宣传谎言：国药集团灭活疫苗三期入组人数成谜
+` Ronald` [轉載自GNews](https://gnews.org/zh-hans/534484/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24064746/WhatsApp-Image-2020-10-24-at-15.08.49.jpeg)
-作者：康州农场-GTalk心语堂
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07002103/image2-2.png)
-庆丰八年，庚子年九月十九，庆丰帝一边用膳，一边看着大洋彼岸发生的一切，嘴角挂着一丝微笑。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07002114/image3-1.jpeg)
-一旁侍立的党公公不失时机的谄媚道：“您看这美利坚这通折腾，俩老头都掐急眼了，多乱啊，还是咱天朝好，您一道圣谕，天下太平。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07002123/image4-3.png)
-庆丰帝放下送到嘴边的包子，正色道：“你懂个球啊，那美利坚人分左右，朝分三鼎，大家互相瞅着，想多吃口包子都难。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07002133/image5-2.png)
-党公公道：“圣上英明，我说那个川老头，手里有枪有炮的，怎么连个 话都说不利索的主儿 都搞不定，原来是有人盯着。 还是咱这儿好，普天之下，莫非王土，哪个奴才敢盯着您吃包子。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07002139/image6-1.jpeg)
-庆丰帝抹一把嘴边的油，笑骂道：“你脑袋被驴踢了吧，光有人盯着有个鸟用，人家是有律法的，整不明白了就击鼓鸣冤，堂上走一遭。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07002156/image7-2.png)
-党公公谄笑道：“咱天朝不也有大清律吗，还不就是圣上您一夜壶，没事儿谁屌它啊。”
+内新闻：Stephen（文文） 校对:天蓝色独角色
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07031547/Screenshot_2020-11-07-14-08-20-982_Discord.png)
+中共一直都把CCP疫苗作为政治宣传资本，以及要挟一带一路国家的筹码，但究竟其落后技术的“灭活”疫苗三期临床究竟情况如何，中共从来都是报喜不报忧。其三期海外临床入组数据上都有明显作假成分和夸大宣传。
 
-庆丰帝正色道：“你个没卵的东西哪知道夜壶的妙用，那里面装的是雨露君恩，老百姓喝一口感恩戴德。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07002206/image8.jpeg)
-党公公惶然道：“吾皇圣明，君恩浩荡，可是您瞅着美利坚那儿的人掐架的掐架，得病的得病，咱就不能让他们也雨露均沾？”
+11月4日，国药集团宣称其两个新冠灭活疫苗目前正在多个国家推进Ⅲ期临床试验，入组人数5万，而5万的入组人数与其其他宣传口径不一致。
 
-庆丰帝阴恻恻道：“枉你随朕多年，美利坚那庙堂之上……嘿嘿嘿。”
-Source from:GTalk
-Pictures from:
-https://pbs.twimg.com/media/D7YcjBHUEAAVnot.jpg:large 
-https://i.insider.com/5b98032c2be4ab1c008b5d51?width=1100&format=jpeg&auto=webp 
-https://02.imgmini.eastday.com/mobile/20180805/b4dc33c6cf0eb0a0dfa310c4e6bec8eb\_wmk.jpeg 
-https://app-usa-modeast-prod-a01239f-ecas.s3.amazonaws.com/USA\_Government\_Branches\_Infographic.png 
-https://pbs.twimg.com/profile\_images/1086049245583466496/trNNR1nk\_400x400.jpg 
-https://kansaspress.ku.edu/images/publications/raw/9780700617074.jpg 
-https://qqpublic.qpic.cn/qq\_public/0/0-2934563891-DCFC261E74316218A23C0D1CD4C9C1B9/0?fmt=jpg&size=54&h=636&w=900&ppv=1 
-https://cdn.hk01.com/di/media/images/1142868/org/962de590da536d44fdb625cdf903e542.jpg/qHD25hzdcCfaXV3FRb2Ht3knWn\_LqEAjhy6Is4cuiLM?v=w1920r16\_9 
-https://mma.prnewswire.com/media/1027641/American\_Deep\_State\_Movie\_Infographic.jpg?p=publish
+以下是中共明确报道的国药灭活疫苗在他国的入组人数/计划招募数据：
+
+阿根廷 3万
+
+阿联酋 1.5万
+
+秘鲁 0.6万
+
+仅以上报道的入组人数已经达到5.1万。除此之外，据中共国药集团宣传，其在更多国家也在进行临床三期试验：巴西、摩洛哥、印度尼西亚、约旦、巴基斯坦等。
+
+以上各国的具体入组/计划招募人数未公布，
+临床三期试验的入组规模通常需要比较大的基数才具有实际意义，即使按照最少每国2000人的入组人数来估算，总数也应在1万人以上。
+
+所以粗略按照中共的宣传统计也应大于6.1万人，而中共宣传的入组人数却为5万人。
+
+数据出现矛盾的原因无非有两种可能性：
+
+1. 中共夸大宣传，编的太多了，各个口径出来的数据相互打架；
+2. 篡改了真正的入组人数，由于一些入组人员出现了不良反应，而被中共从总入组人数中“剔除”出去，导致了总人数少于各国的入组人数之和。
+
+
+新闻来源：
+[https://m.thepaper.cn/newsDetail\_forward\_9846780](https://m.thepaper.cn/newsDetail_forward_9846780)
+[https://xw.qq.com/amphtml/20201019A0HHPQ00](https://xw.qq.com/amphtml/20201019A0HHPQ00)
+[https://baijiahao.baidu.com/s?id=1672927224791041099&wfr=spider&for=pchttp://www.ccpit.org/contents/channel\_4212/2020/0828/1287579/content\_1287579.htm](https://baijiahao.baidu.com/s?id=1672927224791041099&amp;wfr=spider&amp;for=pchttp://www.ccpit.org/contents/channel_4212/2020/0828/1287579/content_1287579.htm)
 
 1+
