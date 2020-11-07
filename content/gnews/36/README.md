@@ -1,16 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 在韦恩县（底特律）投票的1.4万多名死者
-` Ronald` [轉載自GNews](https://gnews.org/zh-hans/534752/)
+## 【精华版粤语快报】【路德社】11.06：乔治亚州居然可以翻盘；社交媒体平台继续对大选信息封锁；
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/534943/)
 
-内新闻：文心 校对：老白
+制作单位：战友之家·粤语频道
 
-2020年11月6日上午9:58 ，推特号Phocaean Dionysius发文称，有1.4万多名死者，被注册到了韦恩县（底特律）参与投票。
+制作团队：路德二组（wen fei、心安、文恩）
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07051850/unknown-8.png)
 
-名单：[http://pastebin.com/zjz6nm6Q](https://pastebin.com/zjz6nm6Q)
-核实信息的网站：[http://mvic.sos.state.mi.us/Voter/Index](http://mvic.sos.state.mi.us/Voter/Index)
 
-3+
+摘要：
+
+乔治亚州州大比数的领先票数，居然可以被邮寄选票翻盘。推特利用垄断地位对真实信息进行封锁，并引导舆论走向。终极之战将在政治、经济、军事、网络和媒体等领域全面开战。
+
+原视频链接:
+
+
+
+0

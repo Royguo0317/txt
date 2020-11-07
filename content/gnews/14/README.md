@@ -1,37 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】香港电台被要求 早间新闻前播放《义勇军进行曲》 污染大气电波
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/535182/)
+## 朱利安尼 推文系列 3
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/535454/)
 
-整撰：文燕
+作者：朱利安尼 (Rudy Giuliani)
 
-审核：MY
+*简评/翻译: Beicy-数学老师； 校对/审核: TCC；Page：拱卒*
 
-【立场新闻】11月7日讯，《香港电台》证实，会由本月16 日起，每日早上8 时在辖下7 个电台频道新闻报道前播中国国歌《义勇军进行曲》；商业电台今日亦证实，11 月中开始亦会按既定政府宣传声带（API）机制，每天早上8 时新闻简报前播国歌。
+[!\[\]()!\[\](https://spark.adobe.com/page/DCnPeVNdWH4Q1/images/07130d78-a4e0-4f31-a445-9d5d623b8ac1.jpg?asset_id=c6bcd125-d48f-4919-879d-6aeabc4d200d&amp;img_etag=%22b8a38e928ee3ecdbe3da409965fb283b%22&amp;size=1024)](https://spark.adobe.com/page/DCnPeVNdWH4Q1/images/07130d78-a4e0-4f31-a445-9d5d623b8ac1.jpg?asset_id=c6bcd125-d48f-4919-879d-6aeabc4d200d&amp;img_etag=%22b8a38e928ee3ecdbe3da409965fb283b%22&amp;size=1024)
 
-新城电台亦指，暂定会于早上 8 时新闻报导前播义勇军进行曲，实施日期未定。
+**大选投票结束, 战斗才刚刚开始。**
 
-昨夜政府发言人回复《立场》，指在《国歌条例》生效后，持牌声音广播机构会透过既定的政府宣传声带（API）机制在其电台频道播放国歌。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07093930/image001-13.png)图片来源：立场新闻
-港台机构传讯组总监伍曼仪回复传媒查询时证实消息。伍曼仪表示，《香港电台约章》规定，港台有责任令市民认同公民身分、增加市民对「一国两制」的认识，形容播国歌是「有需要」。
+厚颜无耻的推特公司不仅在11月5日一夜间将班农先生的推特帐号关闭, 还在朱利安尼先生的推文中插入威胁性广告—-“本推特分享的部分或全部内容存在争议，可能会对如何参与选举或其他公民程序产生误导”, 或者“此推文违反了推特公司规则”, 甚至直接删除朱利安尼先生推文。
 
-伍曼仪续指，港台电视部早已像其他电视台一样，在播放新闻前播国歌，强调电台每日播国歌并没有特别原因，并称「要做的始终有个日子开始」。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07093911/image003-6.png)图片来源：852邮报
-战友点评：
+但正如朱利安尼先生所说, 我们必须为”保护我们公平和自由选举的权利而斗争”。
 
-中国「大外宣」是其治国的手段之一。习近平在 2013 年的全国宣传思想工作会议上指出宣传工作的方针是「讲好中国故事，传播好中国声音」。
+战友们, 加油传播真相!
 
-伍曼仪认为港台有责任令市民认同公民身分、增加市民对「一国两制」的认识。事实上，港人早就认识到「一国两制」是个谎言，中共政府不断地利用香港的媒体来洗港人的脑，洗掉香港的殖民地色采，洗掉本地色采，使港媒成为北京的喉舌。然后操纵媒体，控制言论，这些都是中共政府的惯用手法。
+**推文1: 2020年11月6日 12点45分发布**
+[!\[\]()!\[\](https://spark.adobe.com/page/DCnPeVNdWH4Q1/images/e5d7c0ab-a2a3-473f-ae1a-bf2334bef671.jpg?asset_id=994cd593-b2b2-418d-9745-59d431b438cd&amp;img_etag=%22a4ab22a56fb94446127b20f62916e3a3%22&amp;size=2560)](https://spark.adobe.com/page/DCnPeVNdWH4Q1/images/e5d7c0ab-a2a3-473f-ae1a-bf2334bef671.jpg?asset_id=994cd593-b2b2-418d-9745-59d431b438cd&amp;img_etag=%22a4ab22a56fb94446127b20f62916e3a3%22&amp;size=1024)
+“推特已经失控了，(推特敢这么做)完全是通过政府“赠送”的第230条款！” [email protected]真正的唐纳德-川普([https://twitter.com/RudyGiuliani/status/1324696592285339648](https://twitter.com/RudyGiuliani/status/1324696592285339648))
 
-在《国歌条例》生效后，持牌声音广播机构会透过既定的政府宣传声带（API）机制在其电台频道播放中共国歌。 2.0版的文革式红色宣传，即将在香港各电台展开。香港各电台正式沦为党国的宣传工具。
+**推文2: 2020年11月6日 4点48分发布**
+[!\[\]()!\[\](https://spark.adobe.com/page/DCnPeVNdWH4Q1/images/43e4bc59-61f7-48e8-a5df-3d384d5d158e.jpg?asset_id=5cb78ba9-9efa-410d-9b56-46dcb220b443&amp;img_etag=%22352d920081813e31ae0a989e1fd55d6e%22&amp;size=2560)](https://spark.adobe.com/page/DCnPeVNdWH4Q1/images/43e4bc59-61f7-48e8-a5df-3d384d5d158e.jpg?asset_id=5cb78ba9-9efa-410d-9b56-46dcb220b443&amp;img_etag=%22352d920081813e31ae0a989e1fd55d6e%22&amp;size=1024)
+(推特公司:) 本推特分享的部分或全部内容存在争议，可能会对如何参与选举或其他公民程序产生误导。了解更多信息随着大老党（美国共和党）(GOP: Grand Old Party)在参议院的把持和在众议院的胜利，显然川普 赢了。这场选举作弊是很明显的，也让我们(美国)的声誉在全世界扫地。([https://twitter.com/RudyGiuliani/status/1324574318861406208](https://twitter.com/RudyGiuliani/status/1324574318861406208))
 
-以上观点仅代表笔者本人
+**推文3: 2020年11月5日 21点48分发布**
+[!\[\]()!\[\](https://spark.adobe.com/page/DCnPeVNdWH4Q1/images/e6573c3d-51b3-4de4-b939-8541e7857566.jpg?asset_id=2f3f5994-bf3b-4d37-8b35-31a195eb0707&amp;img_etag=%22fb0f728503b9af6c088e506eaa7d1a2c%22&amp;size=2560)](https://spark.adobe.com/page/DCnPeVNdWH4Q1/images/e6573c3d-51b3-4de4-b939-8541e7857566.jpg?asset_id=2f3f5994-bf3b-4d37-8b35-31a195eb0707&amp;img_etag=%22fb0f728503b9af6c088e506eaa7d1a2c%22&amp;size=1024)
+必须观看。”来自注册民主党人和民意观察者的惊人视频” [https://twitter.com/phillygodfather/status/1324423447158661120](https://twitter.com/phillygodfather/status/1324423447158661120)。(推特公司:)此推文违反了推特公司规则。了解更多 （[https://twitter.com/RudyGiuliani/status/1324468701953986562](https://twitter.com/RudyGiuliani/status/1324468701953986562)）
 
-资料来源：立场新闻 852邮报
+**推文4: 2020年11月5日 20点28分发布**
+[!\[\]()!\[\](https://spark.adobe.com/page/DCnPeVNdWH4Q1/images/d13f5694-d991-440e-97ce-3420734f1d45.jpg?asset_id=35ae702f-7bcf-4816-8890-587ee24fd73c&amp;img_etag=%222bff57bf3126901e3fc35f06ebab7f11%22&amp;size=2560)](https://spark.adobe.com/page/DCnPeVNdWH4Q1/images/d13f5694-d991-440e-97ce-3420734f1d45.jpg?asset_id=35ae702f-7bcf-4816-8890-587ee24fd73c&amp;img_etag=%222bff57bf3126901e3fc35f06ebab7f11%22&amp;size=1024)
+停止偷窃(选票) [https://twitter.com/erictrump/status/1324423268229664769](https://twitter.com/erictrump/status/1324423268229664769)(推特公司:)这条推特无法使用。（[https://twitter.com/RudyGiuliani/status/1324448508942917634](https://twitter.com/RudyGiuliani/status/1324448508942917634)）
 
-[https://www.thestandnews.com/politics/%E5%95%86%E5%8F%B0-11-%E6%9C%88%E4%B8%AD%E8%B5%B7%E6%99%A8%E6%97%A9%E6%96%B0%E8%81%9E%E5%89%8D-%E6%92%AD-%E7%BE%A9%E5%8B%87%E8%BB%8D%E9%80%B2%E8%A1%8C%E6%9B%B2/?fbclid=IwAR3xuuY6GwDa3dLnIrJnwlLz58A95\_jLhMMimB1URd5fYLGp18zrcjuJTG4](https://www.thestandnews.com/politics/%E5%95%86%E5%8F%B0-11-%E6%9C%88%E4%B8%AD%E8%B5%B7%E6%99%A8%E6%97%A9%E6%96%B0%E8%81%9E%E5%89%8D-%E6%92%AD-%E7%BE%A9%E5%8B%87%E8%BB%8D%E9%80%B2%E8%A1%8C%E6%9B%B2/?fbclid=IwAR3xuuY6GwDa3dLnIrJnwlLz58A95_jLhMMimB1URd5fYLGp18zrcjuJTG4)
+**推文5: 2020年11月5日 20点28分发布**
+[!\[\]()!\[\](https://spark.adobe.com/page/DCnPeVNdWH4Q1/images/8fd02cee-5a0e-4b8f-b168-9a18ab1bb41d.jpg?asset_id=da5cc0e2-619a-4b0d-8e63-ae0fd635867e&amp;img_etag=%22d8336a34bda215eb380c26597ff40126%22&amp;size=2560)](https://spark.adobe.com/page/DCnPeVNdWH4Q1/images/8fd02cee-5a0e-4b8f-b168-9a18ab1bb41d.jpg?asset_id=da5cc0e2-619a-4b0d-8e63-ae0fd635867e&amp;img_etag=%22d8336a34bda215eb380c26597ff40126%22&amp;size=1024)
+这种情况正在全国范围内发生，而不仅仅是在宾夕法尼亚州的费城！我们必须为保护我们公平和自由选举的权利而奋斗。（[https://twitter.com/RudyGiuliani/status/1324434565423923201](https://twitter.com/RudyGiuliani/status/1324434565423923201)）
 
-[https://www.post852.com/316971/%e4%bc%8d%e6%9b%bc%e5%84%80%e8%ad%89%e5%af%a6%e6%b8%af%e5%8f%b0%e6%9c%88%e4%b8%ad%e8%b5%b7%e6%96%b0%e8%81%9e%e5%89%8d%e6%92%ad%e5%9c%8b%e6%ad%8c%e3%80%80%e3%80%8c%e8%a6%81%e5%81%9a%e7%9a%84%e5%a7%8b/](https://www.post852.com/316971/%e4%bc%8d%e6%9b%bc%e5%84%80%e8%ad%89%e5%af%a6%e6%b8%af%e5%8f%b0%e6%9c%88%e4%b8%ad%e8%b5%b7%e6%96%b0%e8%81%9e%e5%89%8d%e6%92%ad%e5%9c%8b%e6%ad%8c%e3%80%80%e3%80%8c%e8%a6%81%e5%81%9a%e7%9a%84%e5%a7%8b/)
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/DCnPeVNdWH4Q1/)】
 
-0
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+[!\[\]()!\[\](https://spark.adobe.com/page/DCnPeVNdWH4Q1/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/DCnPeVNdWH4Q1/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+1+

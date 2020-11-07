@@ -1,39 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 庆丰帝邪恶巧设计，美利坚正义有天知
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/534204/)
+## G-TV流量10月份跳升98名,访问次数上升到1.2亿次
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/534753/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24064746/WhatsApp-Image-2020-10-24-at-15.08.49.jpeg)
-作者：康州农场-GTalk心语堂
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07002103/image2-2.png)
-庆丰八年，庚子年九月十九，庆丰帝一边用膳，一边看着大洋彼岸发生的一切，嘴角挂着一丝微笑。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07002114/image3-1.jpeg)
-一旁侍立的党公公不失时机的谄媚道：“您看这美利坚这通折腾，俩老头都掐急眼了，多乱啊，还是咱天朝好，您一道圣谕，天下太平。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07002123/image4-3.png)
-庆丰帝放下送到嘴边的包子，正色道：“你懂个球啊，那美利坚人分左右，朝分三鼎，大家互相瞅着，想多吃口包子都难。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07002133/image5-2.png)
-党公公道：“圣上英明，我说那个川老头，手里有枪有炮的，怎么连个 话都说不利索的主儿 都搞不定，原来是有人盯着。 还是咱这儿好，普天之下，莫非王土，哪个奴才敢盯着您吃包子。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07002139/image6-1.jpeg)
-庆丰帝抹一把嘴边的油，笑骂道：“你脑袋被驴踢了吧，光有人盯着有个鸟用，人家是有律法的，整不明白了就击鼓鸣冤，堂上走一遭。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07002156/image7-2.png)
-党公公谄笑道：“咱天朝不也有大清律吗，还不就是圣上您一夜壶，没事儿谁屌它啊。”
+作者：小黑黑
+编辑：Giselle
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07051145/Picture7-2.png)
+### **截至目前，G-TV网站在世界网络中的信息如下：**
 
-庆丰帝正色道：“你个没卵的东西哪知道夜壶的妙用，那里面装的是雨露君恩，老百姓喝一口感恩戴德。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07002206/image8.jpeg)
-党公公惶然道：“吾皇圣明，君恩浩荡，可是您瞅着美利坚那儿的人掐架的掐架，得病的得病，咱就不能让他们也雨露均沾？”
+- 访问流量排名从9月的357 上升到10月的259，上升 98名。
+- 同类网站排名从9月的55名上升到10月的43名。
+- 访问次数从9月的8911万上升到10月的1.2239亿次 。
+- 应用率从9月的 1.58% 上升到10月的 17.33%。
+- 自然搜索从9月的4.18 上升到10月的8.62%。
+- 社交媒体的访问从9月的6.35% 上升到10月的7.242%。
+- 用户增长9月主要来自中国37.33%，10月主要来自美国，占45.51%。
 
-庆丰帝阴恻恻道：“枉你随朕多年，美利坚那庙堂之上……嘿嘿嘿。”
-Source from:GTalk
-Pictures from:
-https://pbs.twimg.com/media/D7YcjBHUEAAVnot.jpg:large 
-https://i.insider.com/5b98032c2be4ab1c008b5d51?width=1100&format=jpeg&auto=webp 
-https://02.imgmini.eastday.com/mobile/20180805/b4dc33c6cf0eb0a0dfa310c4e6bec8eb\_wmk.jpeg 
-https://app-usa-modeast-prod-a01239f-ecas.s3.amazonaws.com/USA\_Government\_Branches\_Infographic.png 
-https://pbs.twimg.com/profile\_images/1086049245583466496/trNNR1nk\_400x400.jpg 
-https://kansaspress.ku.edu/images/publications/raw/9780700617074.jpg 
-https://qqpublic.qpic.cn/qq\_public/0/0-2934563891-DCFC261E74316218A23C0D1CD4C9C1B9/0?fmt=jpg&size=54&h=636&w=900&ppv=1 
-https://cdn.hk01.com/di/media/images/1142868/org/962de590da536d44fdb625cdf903e542.jpg/qHD25hzdcCfaXV3FRb2Ht3knWn\_LqEAjhy6Is4cuiLM?v=w1920r16\_9 
-https://mma.prnewswire.com/media/1027641/American\_Deep\_State\_Movie\_Infographic.jpg?p=publish
 
-1+
+G-TV是在世界范围内主流媒体和社交媒体全部被共产党蓝金黄的情况下，应运产生的媒体。G-TV 是由以郭文贵先生领导的爆料革命创建的媒体平台。这个平台给所有想表达真实、自由声音的民众提供发声渠道，平台不会对发表的观点进行审查。G-TV 的产生与其他媒体不同，G-TV媒体有着伟大的使命，消灭共产党、拯救处在危险边缘的现代人类文明。
+
+G-TV 已经上线一段时间，随着开发人员和用户的不断努力，G-TV 也越来越完善，特别是在惩贼运动和爆料拜登家族与CCP 勾兑的违法犯罪活动中，起到了历史性的作用。
+
+在CCP 的围追堵截下，G-TV以上数据是9月和10月的对比。通过数据我们可以看到G-TV 的惊人数据增长，也体现了我们战友的力量。到目前位置，中国大陆的访问需要VPN，VPN使用也大大限制了G-TV 的真实数据。
+
+### **G-TV 网站在世界网络排名中的几个关键信息如下：**
+
+**1 . G-TV 世界访问量排357位 ，截止到10月底，总访问量为1.2239亿次，而9月末是8911万。同类相比上升12名，世界排名上升98名。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07051215/Picture8-1.png)图一 10月末数据
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07051240/Picture9-1.png)图二 9月末数据
+
+
+**2 . G-TV 的访客主要来自北美和中国，最快增长的是美国，贡献率为37.33%，而9月末增长最快的是中国大陆45.51%。随着网站上有越来越多的英文内容，越来越多的美国用户加入了G-TV。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07051303/Picture10-1.png) 图三 10月末数据
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07051329/Picture11.png)图四 9月末数据
+
+
+**3 . 直接访问的主要来源比率占65.92%。9月直接访问率(87.79)，其次是社交媒体。这说明越来越多的社交媒体新人访问了G-TV。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07051346/Picture12.png)图五 10月末数据
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07051403/Picture13.png)图六 9月末数据
+
+
+**4 . 在被CCP 打压的情况下，9月份被引用的数量还是很低，主要被Twitter 引用，多数为战友的转发。在10月份，G-TV的内容更多地被其他媒体转发，推特只占86.97%。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07051421/Picture14.png)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07051437/Picture15.png)图八 9月数据
+
+
+**5 . 被免费搜索的比率较低，主要来自G-TV。前期由于注册问题，曾使用gtv1.org 域名。同9月数据相比，被搜索比率上升4.44%。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07051459/Picture16.png)图九 10月数据
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07051520/Picture17.png)图 十 9月数据
+
+
+**6 . G-TV 的内容主要被分享到了推特和油管，9月微博内容也有少量引用，一般是在路德爆料后没有被屏蔽之前的引用。10月主要被Reddit 、Facebook 、4chan 引用。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07051545/Picture18-1.png)图十一 10月数据
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07051616/Picture19-1.png)图十二 9月数据
+
+
+**7 .  访问这个网站的主要目的是获取咨询。此外访问G-TV的用户也访问了Gnews，livestream，动态网等。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07051632/Picture20-1.png)
+**总结:** G-TV 从成立到目前位置，已经创下了骄人的成绩，相信承载民意的G-TV一定会令人震惊，从1个月世界排名上升98位的涨势来看，更是令人震惊。随着新的APP 上线，和世界灭共大潮的形成，G-TV 一定会取代所有虚假媒体，成为人类文明的翘楚，G-TV 作为行业第一的目标，也会很快实现。
+
+（数据来源：Similar Web）
+
+4+
