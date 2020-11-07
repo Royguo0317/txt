@@ -1,55 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国最高法院令原稿（要求宾夕法尼亚州对迟到的选票进行单独计票）
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/534836/)
+## 【香港要闻】香港电台被要求 早间新闻前播放《义勇军进行曲》 污染大气电波
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/535182/)
 
-蒙特利尔战友团 laotou
+整撰：文燕
 
-校对上传 XM
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07055522/%E5%9B%BE%E7%89%871-8.jpg)图片来源：yaizakon.com.ua
-美国最高法院
+审核：MY
 
-20A84号
+【立场新闻】11月7日讯，《香港电台》证实，会由本月16 日起，每日早上8 时在辖下7 个电台频道新闻报道前播中国国歌《义勇军进行曲》；商业电台今日亦证实，11 月中开始亦会按既定政府宣传声带（API）机制，每天早上8 时新闻简报前播国歌。
 
-宾夕法尼亚州共和党
+新城电台亦指，暂定会于早上 8 时新闻报导前播义勇军进行曲，实施日期未定。
 
-申请人
+昨夜政府发言人回复《立场》，指在《国歌条例》生效后，持牌声音广播机构会透过既定的政府宣传声带（API）机制在其电台频道播放国歌。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07093930/image001-13.png)图片来源：立场新闻
+港台机构传讯组总监伍曼仪回复传媒查询时证实消息。伍曼仪表示，《香港电台约章》规定，港台有责任令市民认同公民身分、增加市民对「一国两制」的认识，形容播国歌是「有需要」。
 
-宾西法尼亚州布克瓦尔部长等。
+伍曼仪续指，港台电视部早已像其他电视台一样，在播放新闻前播国歌，强调电台每日播国歌并没有特别原因，并称「要做的始终有个日子开始」。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07093911/image003-6.png)图片来源：852邮报
+战友点评：
 
-命令
+中国「大外宣」是其治国的手段之一。习近平在 2013 年的全国宣传思想工作会议上指出宣传工作的方针是「讲好中国故事，传播好中国声音」。
 
-现命令所有县选举委员会在法院作出进一步命令之前，遵守共同财富部长在10月8日和11月1日提供的以下指导，即：（1）11月3日晚8:00以后通过邮件收到的所有选票应隔离并“妥善保管”，与其他已投票选票分开的安全密封容器，以及（2）所有此类选票，如已点票，则应分开计算。宾夕法尼亚州州政府部门，2020年11月3日星期二（2020年10月28日）晚上8:00后从美国邮政局收到的邮寄选票和缺席选票：宾夕法尼亚州行政部，在晚上8:00后通过邮件收集独立邮寄和平民缺席选票。2020年11月3日星期二至2020年11月6日（2020年11月1日）星期五下午5:00之前。直到今天。本法院未获悉，10月8日发布的指导意见对是否下令特别处理有关选票的问题有重要影响，但该指南已被修改。今天恢复的申请书还告知法院，申请人和部长都无法核实所有董事会都暗示部长的指导，据称，这对他们没有法律约束力。
+伍曼仪认为港台有责任令市民认同公民身分、增加市民对「一国两制」的认识。事实上，港人早就认识到「一国两制」是个谎言，中共政府不断地利用香港的媒体来洗港人的脑，洗掉香港的殖民地色采，洗掉本地色采，使港媒成为北京的喉舌。然后操纵媒体，控制言论，这些都是中共政府的惯用手法。
 
-我立即将此申请提交大会，并指示尽快提交任何答复，但无论如何不得迟于明天，2020年11月7日下午2点。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07055554/%E8%80%81%E5%A4%B41.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07055601/%E8%80%81%E5%A4%B42.jpg)
-原文：Supreme Court of the United States
+在《国歌条例》生效后，持牌声音广播机构会透过既定的政府宣传声带（API）机制在其电台频道播放中共国歌。 2.0版的文革式红色宣传，即将在香港各电台展开。香港各电台正式沦为党国的宣传工具。
 
-No. 20A84
+以上观点仅代表笔者本人
 
-REPUBLICAN PARTY OF PENNSYLVANIAKATHY
+资料来源：立场新闻 852邮报
 
-Applicant
+[https://www.thestandnews.com/politics/%E5%95%86%E5%8F%B0-11-%E6%9C%88%E4%B8%AD%E8%B5%B7%E6%99%A8%E6%97%A9%E6%96%B0%E8%81%9E%E5%89%8D-%E6%92%AD-%E7%BE%A9%E5%8B%87%E8%BB%8D%E9%80%B2%E8%A1%8C%E6%9B%B2/?fbclid=IwAR3xuuY6GwDa3dLnIrJnwlLz58A95\_jLhMMimB1URd5fYLGp18zrcjuJTG4](https://www.thestandnews.com/politics/%E5%95%86%E5%8F%B0-11-%E6%9C%88%E4%B8%AD%E8%B5%B7%E6%99%A8%E6%97%A9%E6%96%B0%E8%81%9E%E5%89%8D-%E6%92%AD-%E7%BE%A9%E5%8B%87%E8%BB%8D%E9%80%B2%E8%A1%8C%E6%9B%B2/?fbclid=IwAR3xuuY6GwDa3dLnIrJnwlLz58A95_jLhMMimB1URd5fYLGp18zrcjuJTG4)
 
-V
+[https://www.post852.com/316971/%e4%bc%8d%e6%9b%bc%e5%84%80%e8%ad%89%e5%af%a6%e6%b8%af%e5%8f%b0%e6%9c%88%e4%b8%ad%e8%b5%b7%e6%96%b0%e8%81%9e%e5%89%8d%e6%92%ad%e5%9c%8b%e6%ad%8c%e3%80%80%e3%80%8c%e8%a6%81%e5%81%9a%e7%9a%84%e5%a7%8b/](https://www.post852.com/316971/%e4%bc%8d%e6%9b%bc%e5%84%80%e8%ad%89%e5%af%a6%e6%b8%af%e5%8f%b0%e6%9c%88%e4%b8%ad%e8%b5%b7%e6%96%b0%e8%81%9e%e5%89%8d%e6%92%ad%e5%9c%8b%e6%ad%8c%e3%80%80%e3%80%8c%e8%a6%81%e5%81%9a%e7%9a%84%e5%a7%8b/)
 
-BOOCKVAR SECRETARY OF PENNSYLVANIA, ET AL.
-
-ORDER
-
-All county boards of election are hereby ordered , pending further order of the Court , to comply with the following guidance provided by the Secretary of the Common wealth on October 8 and November 1, namely, (1) that all ballots received by mail after 8:00 p.m. on November 3 be segregated and kept ” in a secure , safe and sealed container separate from other voted ballots , and (2) that all such ballots, if counted, be counted separately. Pa. Dep’t of State, Pennsylvania Guidance or Mail-in and Absentee Ballots Received from the United States Postal Service After 8:00 p.m. on Tuesday, November 3, 2020 (Oct. 28, 2020): Pa. Dep’t of State, Canvassing Segregated Mail-in and Civilian Absentee Ballots Received by Mail after 8:00pm. on Tuesday, November 3, 2020 and Before 5:00pm on Friday, November 6, 2020 (Nov. 1, 2020). Until today. this Court was not informed that the guidance issued on October 8, which had an important bearing on the question whether to order special treatment of the ballots in question, had been modified. The application revived today also informs the Court that neither applicant nor the Secretary has been able to verify that all boards an implying with the Secretary’s guidance, which, it is alleged, is not legally binding on them.
-
-I am immediately referring this application to the Conference and direct that any response be filed as soon as possible but in any event no later than 2 pm, tomorrow, November 7, 2020.
-
-Samuel A. Alito. Jr.
-
-Associate Justice of the Supreme Court of the United States
-
-Dated this 6th
-
-day of Nov 2020
-
-参考链接：https://twitter.com/GregStohr/status/1324877435414994945?ref\_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Etweet
-
-2+
+0
