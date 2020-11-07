@@ -1,65 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班农疫情作战室467/468期
-` GM47` [轉載自GNews](https://gnews.org/zh-hans/534383/)
+## 庆丰帝邪恶巧设计，美利坚正义有天知
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/534204/)
 
-战友之家新闻译制组制作
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24064746/WhatsApp-Image-2020-10-24-at-15.08.49.jpeg)
+作者：康州农场-GTalk心语堂
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07002103/image2-2.png)
+庆丰八年，庚子年九月十九，庆丰帝一边用膳，一边看着大洋彼岸发生的一切，嘴角挂着一丝微笑。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07002114/image3-1.jpeg)
+一旁侍立的党公公不失时机的谄媚道：“您看这美利坚这通折腾，俩老头都掐急眼了，多乱啊，还是咱天朝好，您一道圣谕，天下太平。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07002123/image4-3.png)
+庆丰帝放下送到嘴边的包子，正色道：“你懂个球啊，那美利坚人分左右，朝分三鼎，大家互相瞅着，想多吃口包子都难。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07002133/image5-2.png)
+党公公道：“圣上英明，我说那个川老头，手里有枪有炮的，怎么连个 话都说不利索的主儿 都搞不定，原来是有人盯着。 还是咱这儿好，普天之下，莫非王土，哪个奴才敢盯着您吃包子。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07002139/image6-1.jpeg)
+庆丰帝抹一把嘴边的油，笑骂道：“你脑袋被驴踢了吧，光有人盯着有个鸟用，人家是有律法的，整不明白了就击鼓鸣冤，堂上走一遭。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07002156/image7-2.png)
+党公公谄笑道：“咱天朝不也有大清律吗，还不就是圣上您一夜壶，没事儿谁屌它啊。”
 
+庆丰帝正色道：“你个没卵的东西哪知道夜壶的妙用，那里面装的是雨露君恩，老百姓喝一口感恩戴德。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07002206/image8.jpeg)
+党公公惶然道：“吾皇圣明，君恩浩荡，可是您瞅着美利坚那儿的人掐架的掐架，得病的得病，咱就不能让他们也雨露均沾？”
 
+庆丰帝阴恻恻道：“枉你随朕多年，美利坚那庙堂之上……嘿嘿嘿。”
+Source from:GTalk
+Pictures from:
+https://pbs.twimg.com/media/D7YcjBHUEAAVnot.jpg:large 
+https://i.insider.com/5b98032c2be4ab1c008b5d51?width=1100&format=jpeg&auto=webp 
+https://02.imgmini.eastday.com/mobile/20180805/b4dc33c6cf0eb0a0dfa310c4e6bec8eb\_wmk.jpeg 
+https://app-usa-modeast-prod-a01239f-ecas.s3.amazonaws.com/USA\_Government\_Branches\_Infographic.png 
+https://pbs.twimg.com/profile\_images/1086049245583466496/trNNR1nk\_400x400.jpg 
+https://kansaspress.ku.edu/images/publications/raw/9780700617074.jpg 
+https://qqpublic.qpic.cn/qq\_public/0/0-2934563891-DCFC261E74316218A23C0D1CD4C9C1B9/0?fmt=jpg&size=54&h=636&w=900&ppv=1 
+https://cdn.hk01.com/di/media/images/1142868/org/962de590da536d44fdb625cdf903e542.jpg/qHD25hzdcCfaXV3FRb2Ht3knWn\_LqEAjhy6Is4cuiLM?v=w1920r16\_9 
+https://mma.prnewswire.com/media/1027641/American\_Deep\_State\_Movie\_Infographic.jpg?p=publish
 
-
-
-467/468.摘要
-
-10月31日
-
-班农：
-
-主流媒体开始报导有利川普的消息。亨特拜登会让许多美国人面临起诉。联邦调查局局长在周二晚上将被解雇。特别检察官将被任命调查「笔电门」。
-
-马修特曼(波美政治活动家，记者)：
-
-中共企图经过经济帝国主义实行独裁，渤海华美是个渠道；他们利用拜登的名字进入美国和西方，布局资本，网络，和公司收购。
-
-拜登集团几十年来在华盛顿建立的政治网络和资金，不断协助中共打造经济帝国，控制西方欧美发达国家。
-
-渤海华美是一个得到中共15亿美金的商业运作平台，任务是进行政治公关和游说，
-
-代表中共国有企业的商业利益，收购中共想要的欧美公司，包括一些生产军工材料的公司，然后转手，非常的危害国家安全。
-
-泰德伍(创意破坏媒体网媒负责人)
-
-我们有网上有100多篇关于拜登家族犯罪的文章，主要有关乌克兰，现在看了电邮，才知道这事有多大。奥巴马曾告诉乔拜登不要参选总统。
-
-看到乌克兰的事，联邦调查局和中情局的腐败，奥巴马没理由不知道发生的事。
-
-班农：
-
-中国5000年来一直用「猎捕精英」的概念，采东印度公司的模式，把一些国家变成附庸国；他们把精英收到旗下，让精英成为合伙人，然后统领一切。
-
-拜登把其他被统治的人称为丑陋的草根，老百姓，这是他们的基础观念。
-
-比尔麦金利(律师，Vogel Group首席顾问)：
-
-举出数种民主党可能采取选务诉讼的状况。
-
-从1(极冷)到10 (极热)来描述民主党在筹备未来法律战的热度，有9分。
-
-理察巴瑞(大数据民调主任)：
-
-宾州人不喜欢提早投票。在选民「极度热情」的类别，川普以8个点的优势领先。拜登目前的领先是因为媒体夸大了他早期投票的结果。不同意宾州主流媒体说拜登的民调落后7个点。认为在大选日当天，川普的票数会遥遥领先，只是拜登输多少的问题。
-
-根据一组选民数据，确定拜登的赢面不到 50%，但超过30。
-
-法兰安德鲁 (WILK广播员)：
-
-宾州东北部的人主要是保守派，重视家庭，珍惜家人，去教堂，爱国；这里是狩猎区，尊重拥枪权，是一个传统且保守的爱国小区。
-
-鉴于近来时事的发展，人们觉得这次不仅只是选举，还关系到美国的未来，所以投入的程度是从所未见的。
-
-布莱恩·伯奇(「天主教投票」负责人)：
-
-作为天主教徒需要明白这次选举的大背景，这是关于国家，关于美国天主教徒是否可以存在的问题。
-
-0
+1+

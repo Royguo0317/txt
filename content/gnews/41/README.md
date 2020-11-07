@@ -1,23 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登爆量邮寄选票-中国国民党史记
-` G-NEWS Taiwan` [轉載自GNews](https://gnews.org/zh-hans/533710/)
+## 美国司法部批准使用武装人员调查选民欺诈指控
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/533753/)
 
-台灣農場 Amitofu
+![In this Thursday, April 18, 2019, file photo, a sign for the Department of Justice hangs in the press briefing room at the Justice Department, in Washington. (AP Photo/Patrick Semansky, File)  **FILE**]()![In this Thursday, April 18, 2019, file photo, a sign for the Department of Justice hangs in the press briefing room at the Justice Department, in Washington. (AP Photo/Patrick Semansky, File)  **FILE**](https://twt-thumbs.washtimes.com/media/image/2019/07/23/tech_regulation_99971_c0-334-5363-3460_s885x516.jpg?73b2db6a54bdfe14fa2712393d7dc15724af226a)
+翻译：康州农场-Truemanman
 
-川普在密西根州星期二傍晚保持着强大领先优势的计票中，随着拜登爆量的邮寄选票突然出现，领先优势忽然不见。点票中更发现大规模选民欺诈的证据。让笔者想到1970年代中国国民党想达到一党专政的目的，开始操作选擧，透过地方基层党支部即民众服务站，由特定公务员担任选务人员，进行做票和买票，其中可分为:
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06201606/%E5%9C%96%E7%89%87-1-9.png)
-选票黑箱作业法:投票前，票匦箱内已有特定候选人之选票。当时因选务人员都由公务人员担任，且大部分是国民党地方党员，甚至开票所的管理人及监察人，都有间接关联。
+校对：康州农场-文韵
 
-欲盖弥彰作业法: 事先收集在外地谋生、服役、或同意收贿的投票人印章，迳行于选举名册盖章，完成手续。或事先收集可能未领票选民名册，由选务人员领票“补盖”，完成领票数和开票数相符。由于开票完后，选票和选举名册皆密封非有法院之命令不得开封。
+司法部已批准使用武装人员在计票中心调查潜在的选民舞弊行为，绕过了长期以来禁止在投票站使用联邦武装人员的禁令。
 
-重复投票作业法:在地方帮派逼迫下，事先设法搜集未能到场投票人之身份证和印章，在选务人员的配合多次进出投票。。
+司法部官员在一份备忘录中告诉全国的联邦检察官，这项禁令只适用于选举日，而不适用于选举日之后的几天。
 
-抹红废票作业法: 早期投开票所多由国民党支部即民众服务站，会同地方派系选务人员手指抹红印泥，只要拿到对手的选票，在圈盖处附近抹红当“废票”处理。
+该法规 “并不妨碍联邦武装执法人员在封闭的投票站或其他计票地点应对、调查甚至防止联邦犯罪，”Richard P. Donoghue在周三凌晨1:30左右发送的电子邮件中写道。
 
-偷天换日作业法: 早期由于各类选举同一天投票，投票截止时间订为下午五点，又在冬令期间，故开票时均要挑灯夜战。最常听闻的是开票中途遇到“停电”，整个票箱更换或偷塞选票。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06201642/%E5%9C%96%E7%89%87-1-10.png)2016年起開票所開放攝錄影，不少民眾自備手機、相機拍照紀錄。圖片來源:自由時報
-随着民主时代的进步与法治社会的健全，台湾随着改朝换代促成选举制度相当严谨，需要在地设立户籍6个月以上，并加上身分证与印章。自2016年起全国投开票所，开放全民在开票时，可以全程照相录影。全民直播监票，也在同一个时间观看报票、亮票与计票过程，希望可以让台湾所有人，共同参与台湾的民主与进步。也希望借由更公开透明的过程，让选民珍惜手上的民主价值，期望台湾成为民主国家的典范。
+《纽约时报》周四首次报道了这封邮件。
+
+Donoghue先生没有说部署特工是否需要司法部批准，但建议如果采取任何行动，司法部应该知道。
+
+他写道：”如果需要向这些地点派遣联邦执法人员，请立即通知该部门”。
+
+一名司法部官员告诉《华盛顿时报》，发送该备忘录是为了预计选票计算会受到任何干扰。该官员说，司法部希望确保州和地方官员知道联邦政府可以提供帮助。
+
+该官员告诉《泰晤士报》，司法部没有向任何地方派遣联邦特工。
+
+川普总统几个月来一直发誓要动用联邦官员打击他所说的广泛的选民欺诈行为。今年早些时候，他威胁要在选举日使用执法部门巡逻投票站。
+
+“我们将拥有一切，”川普总统在接受福克斯新闻采访时说。”我们将有警长，我们将有执法部门，我们希望有美国检察官，我们将有每个人，还有检察长。但这是非常困难的。”
+
+使用武装联邦特工很可能会激怒民主党人，他们担心司法部在已经紧张的选举中使用高压手段煽风点火。在川普先生和民主党提名人乔·拜登之间的微弱差距中，一些州还没有完成计票。
+
+今年早些时候，民主党人和自由派团体抨击川普总统和司法部长威廉-巴尔授权联邦特工在今年夏天的种族正义抗议活动中清除白宫附近的拉斐特广场公园。
+
+川普总统还部署了联邦特工来平息全国各城市的抗议活动，包括西雅图和俄勒冈州波特兰市。
+
+原文：
+
+[https://www.washingtontimes.com/news/2020/nov/5/justice-department-approves-use-armed-agents-inves/?utm\_campaign=shareaholic&utm\_medium=twitter&utm\_source=socialnetwork](https://www.washingtontimes.com/news/2020/nov/5/justice-department-approves-use-armed-agents-inves/?utm_campaign=shareaholic&amp;utm_medium=twitter&amp;utm_source=socialnetwork)
 
 0
