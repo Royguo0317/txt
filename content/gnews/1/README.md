@@ -1,30 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 参议员林赛·格拉汉姆发表声明：“总统先生，不要屈服，战斗到底”
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/538317/)
+## 【热点播报】重磅新闻：FBI介入密西根州大选舞弊案调查！
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/539080/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/08121101/IMG-8533.jpg)
-翻译、编辑：引力波
+**作者：纽约香草山写作组  正道主义联盟**
 
-引用：[https://www.mediaite.com/election-2020/lindsey-graham-says-trump-has-not-lost-the-election-do-not-concede-mr-president-fight-hard/](https://www.mediaite.com/election-2020/lindsey-graham-says-trump-has-not-lost-the-election-do-not-concede-mr-president-fight-hard/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06235914/GNEW-GTV-MOS-LOGO.jpeg)
 
-近日，关于美国总统大选的结果纷争不断，川普总统表示自己已经赢得了大选，并指控此次选举存在严重欺诈。对此，美国参议员林赛•格拉汉姆（Lindsey Graham）表示支持。
 
-林赛•格拉汉姆（Lindsey Graham）是现任南卡罗来纳州的联邦参议员，他是在美东时间11月9日早上与福克斯新闻台的玛丽亚•巴蒂罗莫（Maria Bartiromo）的采访连线中发表评论的：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/08184813/%E5%8F%91.png)
+民主党选票欺诈案证据不断在社交媒体被曝光, FBI内部的相关执法部门正在介入调查。
 
-他说：“这是一场有争议的选举，媒体不能决定谁来当总统。如果媒体能决定，那么你永远不会再有共和党总统（暗指美国媒体几乎都由左派控制），所以我们不会理睬媒体的说法。
+密歇根州底特律市的一名市府员工6日称,选举工作人员被要求,将选举选举时间之后收到的选票日期提前,以作为合法选票计算入内。
 
-同时，他也支持川普团队指控此次选举存在舞弊的说法。他表示：“如果共和党不去挑战和改变美国的选举制度，那么以后再也不会有另一个共和党总统当选。”
+密歇根州共和党官员要求对此事进行调查,华盛顿高级执法官员帕特里克·豪利表示,FBI联邦调查局已经开启针对此案的调查,拜登于德克萨斯州政治总监达拉斯.琼斯因涉及大选欺诈正在被立案调查！
 
-格拉汉姆说：“特朗普总统不应该让步，甚至对于密歇根这个早就宣布拜登获胜的州也不应该放弃。”他还告诉共和党候选人约翰·詹姆斯不要让步，因为“这些计票机没有通过测试。”
+审核：悟空
 
-他宣称“我们不能让媒体统治美国”，并且他对于乔·拜登（Joe Biden）是如何在决胜州获得比奥巴马还要多的选票感到困惑。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
 
-上周被Twitter标记为错误信息的福克斯新闻主持人玛丽亚说：“您提出了一个很好的观点，您看到了这一点，他比奥巴马总统获得了更多的选票。您也做的很好，虽然您的对手（民主党人）仅在第三季度就筹集了5700万美元，打破了参议院的纪录，但选民们还是投票赞成你连任，而我们刚刚从凯文·麦卡锡（Kevin McCarthy）（众议院共和党领袖）那里听到的选票也是如此（成功连任）。我感到奇怪的是，在这种情况下（参众两院共和党都保持优势），特朗普总统仍然输掉了大选。”
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-格拉汉姆问道：“你如何在参众两院占席，而让川普总统败北？”
-
-他在采访结束时表示：“川普没有输。总统先生，请不要让步，战斗到底。”
-
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，纽约时间周日至周四晚上8:00，美国志愿者在纽约香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06235914/GNEW-GTV-MOS-LOGO.jpeg)
 0

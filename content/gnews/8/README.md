@@ -1,62 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发：班农作战室被推特和油管同时封号
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/538396/)
+## 媒体宣布当选不具法律效力 确认美国总统当选的具体法律流程环环相扣
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/539052/)
 
-*新闻来源：the gateway pundit《评论家》；作者：卡桑德拉·费尔班克斯（Cassandra Fairbanks）；发布时间： 2020年11月5日*
+多伦多加喜农场 Spirit
+校对 坐看云起时 上传 WJ
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/08183911/687-2020-US-presidential-Election-Voting-FAQs-Expats.jpg)图片来源：brighttax.com
+被沼泽地所控制的各大所谓主流媒体，新闻报社等迫不及待地宣布乔-拜登是2020年总统选举的赢家。事实上，媒体对拜登胜出的 “宣告 “根本不具有法律效力，只是他们根据网络的数据计算做出的一种预测估计，而这种预测有多么的虚假，大家在这几天已然看清楚了。以下才是按照法律进行确认最终胜出总统的具体步骤。
 
-*翻译/简评：Dreamer文童；校对：1818；审核：InAHurry；Page：拱卒*
+据TampaBay11月7日报道，各州必须在12月8日之前确定结果。12月14日，选举人在各州举行会议，1月6日在美国国会大厦计票。总统于1月20日宣誓就职。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/9tVa7OOTfywPd/images/021071c9-a3df-41eb-8b9c-da9c2513c863.jpg?asset_id=c20e9a19-ab2e-4c67-9fa0-a46f54c886cc&amp;img_etag=%229233feac01ecf820ccf241b762d809d3%22&amp;size=2560)](https://spark.adobe.com/page/9tVa7OOTfywPd/images/021071c9-a3df-41eb-8b9c-da9c2513c863.jpg?asset_id=c20e9a19-ab2e-4c67-9fa0-a46f54c886cc&amp;img_etag=%229233feac01ecf820ccf241b762d809d3%22&amp;size=1024)
+具体来说，媒体的 “决策台 “会查看各州已统计的票数和尚待统计的票数。每当他们认为落后的候选人已经没有办法增加足够的选票来获胜时，他们就会宣布。
 
-**简评：**
+媒体的号召力在公众对谁胜出的看法中很有分量，可以促使某位候选人宣布胜利，也可以促使落后的候选人让步，從而進一步塑造人們的看法。如果占据白宫的党派发生了变化，这个媒体宣告可能会加速过渡进程。
 
-周四，战斗室节目在推特和油管几乎同一时间被封账号。前些日子，战斗室对亨特·拜登（Hunter Biden）硬盘曝光出来的深度家族腐败丑闻，进行了持续的大篇幅报道。此次该节目账号在推特和油管同时间段被封，似乎是幕后力量协调安排的结果。
+**我们要多久才能知道正式结果？**
 
-近期，推特、油管以及其他社交媒体平台肆意限制或封锁账户的势头愈显嚣张。在此次美国大选期间，甚至川普总统的账户亦被限制发推。社交媒体平台不顾后果“自杀式”地限制或封锁账户的行为，已经引起网络用户的强烈不满。推特股票单日暴跌20%只是刚刚开始。最终，选择与邪恶为伍的社交媒体平台将被民众彻底抛弃。言论自由是基本人权，决不能被任何人所剥夺。GTV和GNEWS作为自由发声的平台，将成为社交媒体界一股新生力量。
+联邦法律允许各州在大选后一个多月的时间来最终确定结果。今年，这个 “安全港 “日期是12月8日。这就给选举官员留下了确定临时选票是否有效的时间。而在许多州，海外军人的选票有一个宽限期可以晚到。
 
-## 突发：史蒂夫·班农作战室几乎在同一时间被推特和油管封号
+到12月8日，如果各州已经完成了结果的认证，国会承诺不会对结果提出异议。不过，法律专家表示，这里面有一些法律上的歧义。
 
-推特和油管均在数小时内对史蒂夫·班农作战室(War Room)进行审查，这似乎是明显的协调努力以使他噤声。
+落后的候选人也可以通过要求付费重新计票（如果差额不够接近自动的，州政府资助的重新计票）或到法院挑战某些州的结果来争取时间。事实上，川普总统的竞选活动的诉讼攻势已经开始了。
 
-该节目是极左翼反言论自由极端分子“媒体很重要”（Media Matters）的审查运动攻击的目标，其两个账户在周四被关闭。
+在接下来的几周里，这些努力–最终确定和认证选票计数，裁定任何重新计票，以及在法庭上进行斗争–将发挥作用。
 
+**选举人投票的过程是如何进行的？**
 
+一旦各州的选举人阵容确定后，最重要的日期是12月14日，即这些选举人投票的日子。
 
-> Looks permanent. Time to bring [@WarRoom2020](https://twitter.com/WarRoom2020?ref_src=twsrc%5Etfw) back! [pic.twitter.com/UDC88bGqLu](https://t.co/UDC88bGqLu)
-> — Raheem Kassam (@RaheemKassam) [November 5, 2020](https://twitter.com/RaheemKassam/status/1324494295030730760?ref_src=twsrc%5Etfw)
+在這一天，选举人要在六份证明书上签名和盖章，列出他們对总统和副总统的投票。一张证书寄給国会，兩张寄給所在州的州務卿，兩张寄給国家档案館，一张寄給选举人聚集的地区法院。(如果在12月23日之前没有收到这些证书，美国现任副总统或档案馆馆长 “应派专人送信给地区法官”，他必须亲自交出原件。如不交，将被罚款1000美元)。
 
+**什么是 “失信 “选举人？**
 
-Raheem Kassam (Twitter account)拉希姆·卡萨姆（推特账户）@RaheemKassam Looks permanent. Time to bring @WarRoom back! 看起来是永久（封号）的。是时候让战斗室回来了！
+如果 “失信 “的选举人决定投票给其党派候选人以外的人，那么每个候选人所获得的选举人票数可能会与他们似乎赢得的选举人票数有所不同。近几十年来，这种情况偶尔也会发生，数量不多（最近的一次是2016年，两名得克萨斯州共和党选举人没有投票给川普，一名夏威夷州选举人和四名华盛顿州选举人没有投票给希拉里-克林顿）。但这始终不足以改变结果。（译者注：这种情况在历史上时有发生，到目前为止，所有失信选举人的行为都没有改变大选的最终结果，也没有选举人因为失信而受法律制裁。）
 
+今年，最高法院允许各州在要求选举人投出指定选票方面有更大的影响力。
 
-> YouTube just took down Steve Bannon War Room. [pic.twitter.com/q2bAE7CcGY](https://t.co/q2bAE7CcGY)
-> — Silent Majority has to speak now! WE ARE @ WAR! (@LAOFAS) [November 5, 2020](https://twitter.com/LAOFAS/status/1324497797417238536?ref_src=twsrc%5Etfw)
+**是否可以在某州的普选票之外的其他基础上选择选举人？**
 
+有潜在的可能性。如果拜登（译者注：靠造假）赢得亚利桑那州、佐治亚州、密歇根州、威斯康星州或宾夕法尼亚州的选票，而共和党控制的一个或多个州的立法机构可能会否决其选举人，从而向国会提交一份川普的选举人名单。(宾夕法尼亚州的议员们已经承诺放弃这种选择)。
 
+如果任何一个州这样做，情况就必须由国会来解决。但这将是一个激烈的举动，目前还没有迹象表明会发生这种情况。
 
-当该节目掌握亨特·拜登（Hunter Biden）硬盘副本，并揭露其家族根深蒂固的腐败时，该节目在大选前掀起一阵媒体热潮。
+**什么时候选举结果真正成为正式结果？**
 
+1月6日下午1点，国会在联席会议上正式统计选举人票数。
 
+参议院主席–这个职位由现任副总统担任–主持。选举证书拆封后，按字母顺序由各州统计。可以以书面形式提出反对意见，立法者需要整理反对意见是否合理。
 
-> The totalitarian left [@mmfa](https://twitter.com/mmfa?ref_src=twsrc%5Etfw), specifically [@peltzmadeline](https://twitter.com/peltzmadeline?ref_src=twsrc%5Etfw), has pushed a campaign to have [@WarRoomPandemic](https://twitter.com/WarRoomPandemic?ref_src=twsrc%5Etfw) removed from Twitter and YouTube.
-> 
-> Ok… we'll just use another service? LOL [pic.twitter.com/FYe3TaYTDz](https://t.co/FYe3TaYTDz)
-> — Raheem Kassam (@RaheemKassam) [November 5, 2020](https://twitter.com/RaheemKassam/status/1324497386518028293?ref_src=twsrc%5Etfw)
+最终，由副总统宣布胜出者。至此，选举正式决定，只待就职典礼。
 
+**就职典礼是什么时候？**
 
-Raheem Kassam (Twitter account)拉希姆·卡萨姆（推特账户）@RaheemKassamThe totalitarian left @mmfa, specifically @peltzmadeline, has pushed a campaign to have @WarRoomPandemic removed from Twitter and YouTube.极权主义左派@mmfa，尤其是@peltzmadeline，已推动一项活动使@WarRoomPandemic被从推特和油管移除。Ok…we’ll just use another service? LOL那好吧…我们将使用其他服务？大笑
-战斗室共同主持人拉希姆·卡萨姆（Raheem Kassam）发推称，他们将转而使用其他服务。
+1月20日中午，卸任总统任期届满，胜出的候选人在美国国会大厦西线宣誓就职。至此，2020年的总统大选终于要结束了。
 
-你可以在Parler关注战斗室的最新信息。
+美国总统选举的确认程序如此繁复，环环相扣，是为了能够尽可能公平公正地选出代表民意的真实的民选总统，虽然迂回曲折，但非常值得学习。
 
-[原文链接](https://www.thegatewaypundit.com/2020/11/breaking-steve-bannons-war-room-banned-youtube-twitter-nearly-time/)
+*参考链接：*
+[The media called the election for Joe Biden. Here’s what’s next | PolitiFact](https://www.tampabay.com/news/florida-politics/elections/2020/11/07/the-media-called-the-election-for-joe-biden-heres-whats-next-politifact/)
 
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-编辑：[【喜马拉雅战鹰团】](https://spark.adobe.com/page/9tVa7OOTfywPd/)-点击Adobe Spark版
-[!\[\]()!\[\](https://spark.adobe.com/page/9tVa7OOTfywPd/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/9tVa7OOTfywPd/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0
