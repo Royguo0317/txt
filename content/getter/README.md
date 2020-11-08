@@ -18,6 +18,11 @@
 **郭文贵MILES** `2020-11-05T21:15:44`
 ##
 
+[ 11月8日：尊敬的战友们好．文贵喝完下午茶……抽雪茄抽醉了，在此……和战友聊聊……到底美国大选谁能赢？？为什么？我们为什么支持川普总统？](/content/getter/content/2020/11/5fa84cabad3f0f61d2be6dd9.md)
+
+**郭文贵MILES** `2020-11-08T19:53:15`
+##
+
 [11月8号：共产党吹牛．已经吹到宇宙去了。【Was done.  America president.  Trump.  Now come to China. ...](/content/getter/content/2020/11/5fa84940ad3f0f61d2be6d55.md)
 
 **郭文贵MILES** `2020-11-08T19:38:40`
@@ -156,10 +161,5 @@
 [10月22日 拜登家族与中国活动的报告 Report on Biden Activities with China  https://www.baldingsw...](/content/getter/content/2020/10/5f91bebb06847a4c65189cb1.md)
 
 **郭文贵MILES** `2020-10-22T17:17:47`
-##
-
-[10月21号：尊敬的战友们好！转眼三年过去了，世界已经巨变……还正在不确定中……这是我们的战友雅吉娜．作为一个最了解文贵爆料过去所有历史的人之一，发给我的关于文...](/content/getter/content/2020/10/5f90579406847a4c6517cf8a.md)
-
-**郭文贵MILES** `2020-10-21T15:45:24`
 ##
 
