@@ -1,28 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 民主党员领导的福克斯顾问团队预报拜登胜选总统
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/535729/)
+## 郭文贵先生起诉瑞银（UBS）
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/535815/)
 
-*喜马拉雅联盟加拿大农场 Cran
-校对文锦 上传 WJ*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07174335/Picture21-1.png)图片来源：（finance.sina.com）
+彭博社（Bloomberg）11月6日的报道说，近日，一位富有的中国商人郭文贵加强了向瑞银集团（UBS Group AG）索赔5亿美元的力度。起诉讼的理由是，由于银行无理要求追缴保证金给郭文贵造成了巨额损失。
 
-11 月7日上午福克斯的即时新闻报道“福克斯预计拜登击败川普将成为第46位美国总统”。 这是福克斯在过早预计了拜登胜选亚利桑那州之后的另一个预报。这也是对大选的终极预报。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07152029/arnon-mishkin.jpg)图片来源：Fox News
-这些预报来自民主党员，阿农·米什金（Arnon Mishkin）领导的福克斯竞选决策团队。此团队由统计和计算人员以及政治科学家们组成，他们负责分析和预测未来的总统和参众两院的最佳候选人。
+郭先生在纽约居住超过五年，他是在伦敦对瑞银提起诉讼的，称该银行向他施加压力，要求他同意借入与购买中国海通证券有限公司股票相关的资金。郭先生说，他并不知道瑞银已经在合约中加入了追缴保证金的协议。之后，由于市场崩溃和海通证券在在香港上市的股票暴跌45％，瑞银将其股票强行平仓，从而造成了巨额损失。
 
-米什金自己的咨询公司还为媒体公司提供营销和数字策略方面的建议。米什金是民主党员，曾投票给希拉里·克林顿和捐款给民主党。至于他所做出的预测和策略方面的建议是否基于中立的立场，不妨略微了解一下他的政治背景。
+报道援引的瑞银集团的声明表示，“强烈反对这一说法，并将捍卫其权利。”瑞银同时在一份法律文件中解释说，瑞银建议郭先生通过中介机构进行这笔交易，以避免违反要求他披露持股情况的规定。
 
-据《国家档案》揭示，米什金的夫人苏珊·芬（Susan Fine）曾任NBC 新闻的编辑。夫妇二人很低调，他们的名字不出现在维基百科里。米什金曾与著名的民主党人物密切合作，其中包括汤姆·布拉德利（洛杉矶市长），埃德·科赫（纽约市长）和迈克尔·布隆伯格（纽约市长）。
+另外，尽管郭先生同意海通的股票将首先由中国国有的投资基金收购。但是在抛售股票之后，瑞银将全部损失转嫁给了郭先生。而随着中国基金在海通损失了4.45亿美元，瑞银成了赢家。
 
-鲁迪·朱利安尼（Rudy Giuliani) 在最近的视频中谈到，福克斯新闻作为第一个媒体过早做出了拜登胜选亚利桑那州的预报，这是米什金团队对选民的“心理操纵”。
+郭先生的律师则表示，瑞银的做法有违常规，因为根据瑞银内部政策的规定，像郭先生这样的大客户一般不会被要求追缴保证金。该律师还举例，在一宗涉及中国平安保险集团的融资交易中，瑞银就同意不会追缴保证金。
 
-福克斯的这篇即时新闻报道体现了中共对美国媒体发动超限战的一个侧面。
+此外，该报道还简略提及了郭文贵先生对中共政府的揭露以及与班农先生的良好关系。并节外生枝的提到了班农先生涉及的所谓建墙贪污案。
 
-相关链接：
+译评：
 
-[Joe Biden defeats Donald Trump to become 46th president of the US, Fox News projects](https://www.youtube.com/watch?v=KravPVeqTCc)
+彭博社的这篇报道可谓是一篇质量低劣的带风向文章。首先，该报道对案件事实陈述语焉不详，完全违背了对司法案件报道的基本原则，既没有案件背景的介绍，也没有案件内容的基本逻辑关系，更缺乏案件进程的描述。
 
-[Meet Arnon Mishkin: Democrat Political Consultant Who Will Determine Next President for Fox News](https://nationalfile.com/meet-arnon-mishkin-democrat-political-consultant-who-will-determine-next-president-for-fox-news/)
+其次，该报道几次提及与本案毫无关系的班农先生以及他与郭先生之间的友谊，并刻意指出班农先生涉及司法案件，其用意不就是暗指郭先生与一名涉案人员过从甚密吗？众所周知，班农先生的案件是一起明显的政治构陷，而且尚未了结，这种污名化的手法可谓司马昭之心，路人皆知。
+
+最后，不难看出，这篇文章报道案件是假，对郭文贵先生和班农先生进行污名化是真。从布隆伯格称中共最大的贪污犯王岐山“是中国与世界上最有影响力的政治人物〞时起，彭博社与中共沆瀣一起的嘴脸早已昭然若揭。
+
+原文：[https://www.bloomberg.com/news/articles/2020-11-06/ubs-sued-for-500-million-by-chinese-tycoon-over-deal-gone-awry](https://www.bloomberg.com/news/articles/2020-11-06/ubs-sued-for-500-million-by-chinese-tycoon-over-deal-gone-awry)
+
+翻译：Hanstyle
+校对：文旺
 
 1+

@@ -1,53 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 朱利安尼独家揭密拜登家族罪行（系列一）
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/530653/)
+## 拜登用 &#8220;记分卡&#8221; 和 &#8220;锤子&#8221; 剽窃另一场美国总统大选，就像奥巴马和拜登在2012年所做的一样
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/536502/)
 
-**简评：**大卫
+**翻译：Lan
+校对：烟波浩渺**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/08003324/%E5%9B%BE%E7%89%871-10.png)
+2009年2月，奥巴马政府征用了功能强大的超级计算机 系统，被称为 “锤子” （THE HAMMER）。根据设计和制造该设备的中情局承包商之后转变为 举报人的丹尼斯·蒙哥马利（Dennis Montgomery）说，”锤子 “包含一个名为”记分卡 “的漏洞应用程序，能够入侵选举并窃取选票。
 
-策划：九宸；文章编辑/文字整理：Julia Win
+美国地⽅法官G.默里·斯诺（G. Murray Snow）于2015年11⽉ 在法庭上公布的“告密录音带”显示，”记分卡” 被奥巴马团队部署在佛罗里达州的选举计算机上，代表总统奥巴马和副总统拜登窃取2012年的总统选举。
 
+现在，”锤子” 再次被激活，代表乔-拜登盗取选票。拜登在2012年竞选副总统时，就使用了 “锤子 “和 “记分卡”。在乔-拜登竞选2020年美国总统时，再次用同样的手段盗取选票。
 
-> **民主党和主流媒体将竭尽全力进行审查，阻止真相传播！部分最高权力的政府权力来掩盖事实！**
+蒙哥马利称，这次，”记分卡”正在佛罗⾥达，乔治亚州，德克萨斯州，宾 ⼣法尼亚州，威斯康星州，密歇根州，内华 达州和亚利桑那州窃取选票。
 
+“记分卡” 通过篡改州选举计算机系统转接点的计算机，以及在传输选票时篡改外部第三方的选举数据库来窃取选票。
 
-**（EP77-1）**
+“记分卡” 使用蒙哥马利创造的棱镜式评分算法，通过控制 “锤子 ” 和 “记分卡” 的算法来获得所需的结果。
 
-视频字幕：文俊；/ 听写：文人草根；/ 翻译：ROBERTS；校对：TCC
+在佛罗里达州，其中一个转移点是位于塔拉哈西的VR系统公司。
 
-***大卫简评：***
+软件供应商VR系统在美国八个州开展业务。
 
-***美国沼泽势力竭尽全力审查和阻止拜登家族犯罪新闻的揭露； 中共国拥有拜登家族犯罪证据，这是对美国国家安全的巨大威胁； 每次乔拜登外交谈判都失败，但拜登家族获得大量资金/资产！！！***
+民主党在初选期间就测试了他们的技 术。否则伯尼·桑德斯（Bernie Sanders）将赢得2020年民主党总统候选人提 名。在2020年民主党初选期间，乔-拜登对阵伯尼-桑德斯时，”记分卡”被用于乔-拜登，民主党初选伯尼·桑德斯的选票被盗窃，从而让乔-拜登成为民主党总统候选人。
 
+中央情报局（CIA）举报⼈丹尼斯·蒙哥马利移交了⼤量⾮法收集的监控和选举信息。 根据美国助理检察官黛博拉-柯蒂斯（Deborah Curtis）和联邦调查局（FBI）总法律顾问詹姆斯-贝克（James Baker）授予蒙哥马利的两项豁 免协议，他分别于2015年8⽉和2015年12⽉向 联邦调查局和中央情报局提供了数据。
 
+蒙哥马利在宣誓后就 “记分卡” 和 “锤子”作证，并在联邦调查局安全的华盛顿特区现场办公室的敏感隔间信息设施中进行了录像。如果中央情报局的举报⼈蒙哥马利撒 谎，他今天就会因为对联邦调查局撒谎而入狱。蒙哥马利没有进监狱。
 
-由民主党和主流媒体将竭尽全力进行审查、阻挠和停止你们在社交媒体上听到这些新闻。非常悲哀地，他们已经封锁这些新闻至少2年，以最高级别的政府权力来掩盖事实。我现在要给大家说的拜登家族的罪行，就是美国和乌克兰政府最高级别人士的犯罪。我们有的照片，中共国都有。这就意味着他（亨特）是对美国国家安全的巨大威胁。这个应该在川普之前的奥巴马/拜登政府就发现了的。但是事实却非如此，当你看到这些短信、这些照片时，你会问自己：我们还有国家安全机构吗？如果他们（CIA/FBI）没有这些档案，为什么没有呢？可以这么总结，每次奥巴马指派乔·拜登代表美国谈判，每次谈判他都失败，每次谈判拜登犯罪家族都从对方国家获得大量现金，伊拉克是第一个例子。
+国家情报局局长约翰·内格罗蓬特（John Negroponte）援引《国 家秘密特权》和《政府针对蒙哥马利的保护 法》，目的是为了堵住蒙哥马利的嘴，防止他揭露政府的非法行为。
 
+⾃1990年代起担任美国司法部诉讼官兼美国 司法部助理主任的卡洛塔·威尔斯（Carlotta Wells）告诉蒙哥马利，政府官员不能为了掩盖政府的渎职行为而援引国家机密特权和州长保护令。威尔斯还告诉蒙哥马利，如果掩盖政府的渎职行为是政府的意图，那么口令是无效的。
 
-> **拜登家族在伊拉克和乌克兰的巨量贪腐！**
+奥巴马⾮法夺取了”锤子” 和 “记分卡”。他们于2009年2⽉3⽇将”锤子” 转移到了马⾥兰州的华盛顿堡市。
 
+奥巴马在白宫拥有⼀个加密的VPN，可以随意访问”锤子”。
 
-**（EP77-2）**
+2015年12⽉20⽇，作为“举报摘要”中披露信息摘要的⼀部分,《美国报道》([**https://theamericanreport.org/2019/08/08/hours-after-trump-tweet-accused-obama-of-wiretapping-trump-the-american-report-tweet-warned-trump-brennan-and-clapper-wiretapped-you-a-zillion-times**](https://theamericanreport.org/2019/08/08/hours-after-trump-tweet-accused-obama-of-wiretapping-trump-the-american-report-tweet-warned-trump-brennan-and-clapper-wiretapped-you-a-zillion-times)** **) 在《美国报 道》的官⽅脸书页⾯上披露了以下信 息： 佛罗⾥达州选民注册磁盘被移除，新磁盘插 ⼊以通过马⾥兰州华盛顿堡市的 “锤子” 计算机系统进⾏重新分区，并通 过华盛顿海军英特尔网掩护……（它们通过在 佛罗⾥达州重新划分分区⽽偷⾛了佛罗⾥达⼤选？布伦南和克拉珀又在多少个州做过同样的事情？）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/08003719/%E5%9B%BE%E7%89%872-8.png)*图像来源: https://theamericanreport.org/wp-content/uploads/2020/10/THE-HAMMER-THE-AMERICAN-REPORT-FACEBOOK-THE-AMERICAN-REPORT-1280-1024×733.jpg*
+联邦调查局总法律顾问詹姆斯·贝克 （[**https://theamericanreport.org/2019/05/29/hammertime-baker-buried-whistleblower-montgomerys-trump-surveillance-evidence-then-suddenly-remembered-fbi-had-it/**](https://theamericanreport.org/2019/05/29/hammertime-baker-buried-whistleblower-montgomerys-trump-surveillance-evidence-then-suddenly-remembered-fbi-had-it/)** **），在国会联合委员会宣誓作证时表示，他拥有丹尼 斯·蒙哥马利的证据。贝克于2015年8⽉将 联邦调查局特⼯沃尔特-贾迪纳（Walter Giardina）和威廉-巴内特（William Barnett）派 往联邦调查局迈阿密外地办事处，以接管蒙哥马利 的计算机硬盘。
 
-视频字幕：文府； 听写：文人草根； 翻译：ROBETS；校对：TCC
+贝克于2018年10⽉在国会作证：([**https://theamericanreport.org/2019/05/29/hammertime-baker-buried-whistleblower-montgomerys-trump-surveillance-evidence-then-suddenly-remembered-fbi-had-it/**](https://theamericanreport.org/2019/05/29/hammertime-baker-buried-whistleblower-montgomerys-trump-surveillance-evidence-then-suddenly-remembered-fbi-had-it/) ) 我可以吗？我要向无线电通信局描述一下。他的委托人是一个叫丹尼斯-蒙哥马利的人，我相信，据我回忆，他说他曾是美国政府的承包商，在工作过程中，发现了政府对美国人（包括政府官员）进行非法监控的证据。希望将这些信息提供给无线电通信局，最终确实得以实现。
 
-***大卫简评：***
+贝克证实，蒙哥马利向联邦调查局特工提供了证据，证明政府官员对包括其他政府官员在内的美国人进行了非法的国内监控。
 
-***乔拜登负责伊拉克外交事务，其弟 詹姆斯拜登 直接参与伊拉克房地产业务； 拜登家族获得15亿美元住房合同的三分之一； 亨特拜登从乌克兰Burisma公司拿到1400万美元，其中一部分用于贿赂乔拜登； 乔拜登一直撒谎说不知情！！！***
+蒙哥马利认为，最重要的是要认识到罗伯特 ·穆勒（Robert Mueller）的联邦调查局为 “锤子” 提供 了计算机。([**https://theamericanreport.org/2017/07/13/cia-whistleblower-muellers-fbi-computers-spied-trump-scotus/**](https://theamericanreport.org/2017/07/13/cia-whistleblower-muellers-fbi-computers-spied-trump-scotus/)** **),
 
+苏联独裁者约瑟夫·斯⼤林有句名⾔指出： “我认为党内谁投票或如何投票完全不重 要，但是最重要的是谁来计算票数以及如何计票。”
 
-
-每次乔·拜登受奥巴马委托，代表美国和其它国家谈判，其结果都是失败。然而每次几百万美金的现金，却从对方国家流入拜登犯罪家族，伊拉克是第一个国家。很多年来，他弟弟詹姆士经营一家非法的游说公司，钱进入詹姆士的公司，除了他自己用，还有一部分被乔·拜登使用。这回詹姆士可风光了，当乔拜登负责伊拉克事务时，詹姆士直接参与承包一项伊拉克房地产业务，大约获得15亿的合同的三分之一。和亨特一样，詹姆士从来没有房产经验，居然拿到15亿的合同。你们都知道了，在乌克兰，亨特拜登受雇于一个乌克兰的骗子，亨特拿到800万到1400万。有文件可以显示，其中一部分被用来洗钱。问题是，为什么乔拜登对此撒谎说不知情。纽约邮报的头版登出来亨特·拜登的短信，证明乔·拜登完全知情，然而七年来他却一直撒谎！你只有犯了罪才会撒下如此多的谎言！乔·拜登当然是犯罪了！因为一些来自乌克兰的非法资金，用于贿赂乔·拜登。
-
-最后轮到说中共国了。亨特·拜登与中共国的各种资金往来，不花一个星期也得花好几天理清楚，不过我们已经全部掌握，基本上这些钱都去了亨特·拜登、詹姆士·拜登、莎拉·拜登和拜登家族，或者说拜登犯罪家族。
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-编辑：【喜马拉雅战鹰团】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/omFITzW4LCfAV/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/omFITzW4LCfAV/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+**版权所有: COPYRIGHT 2020 MARY FANNING AND ALAN JONES**
 
 0

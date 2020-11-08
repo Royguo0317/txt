@@ -1,35 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【台风巨眼】世界的真相在GTV,Gnews-英德加领导人纷纷发推祝贺拜登有感
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/535760/)
+## 加拿大主要政党党领及众多主流媒体齐齐祝贺拜登当选
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/535823/)
 
-**作者：香草山写作组 Kathy（文艺）**
+*喜马拉雅联盟加拿大农场 文锦、剑出鞘
+上传 WJ*
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06235914/GNEW-GTV-MOS-LOGO.jpeg)
+2020年美国大选牵动着全世界的心。11月7日，加拿大主要政党党领及主流媒体齐齐祝贺拜登当选美国总统。
 
+**加拿大总理、自由党党领小特鲁多**(Justin Trudeau)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07174848/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE624.png)图片來源：Twitter
+推文：恭喜乔·拜登（@JoeBiden）和贺锦丽 (@KamalaHarris). 我们两国是亲密的朋友、伙伴和盟友。我们有着在世界舞台上独一无二的关系。我真的期待着与你们双方共同努力，在此基础上再接再厉。
 
+**加拿大保守党党领艾琳·奥图尔**(Erin O’Toole)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07174924/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE625.png)图片來源：Twitter
+推文：恭喜乔·拜登（@JoeBiden）和贺锦丽 (@KamalaHarris)。加拿大和美国有历史性的联盟。加拿大保守党将始终与美国合作，以促进我们的共同价值观和密切的经济关系。
 
+新民主党党领驵勉诚(Jagmeet Singh)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07174956/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE626.png)图片來源：Twitter
+推文：恭喜乔·拜登（@JoeBiden）当选总统 。随着川普总统任期的结束，我想起了杰克的最后一句话。
+“爱比愤怒好。
+希望胜过恐惧。
+乐观胜过绝望。
+所以让我们充满爱，充满希望和乐观。
+我们将改变世界。”
 
+加拿大众多主流媒体也是延续以往支持拜登的论调，祝贺其当选，如CBC, CTV, 《环球邮报》（THE GLOBE AND MAIL）, Global NEWS , 《星报》（THE STAR）, 《国家邮报》（National Post）, CITY NEWS……
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07175024/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE627.png)图片来源：GTV
+2020这一年来，许多加拿大人的心情像坐过山车。
 
-**美国大选已过去四天，川普总统正在展开司法调查，准备下周开始启动司法程序捍卫选举法。朱利安尼先生已在宾州召开揭露选票作弊的记者会，美国民意也开始觉醒，民众纷纷走上街头，到各州政府抗议偷票行为“Stop stealing”。令人诧异的是，大部分的所谓主流媒体却都不予报道。**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07161426/image21.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07161535/image14.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07161515/image13.jpg)
-**而另一边，各大报刊包括CNN,美联社，Fox等都已宣布拜登胜选。此时几个州包括宾州，内华达州，密西根州还在计票，且这几个州被指控有大选舞弊行为，正在寻求司法程序。**
+年初，中共病毒疫情在中共国内蔓延，即使1月27日加国出现首例确诊病人，但还是隔岸观火的感觉，生活照常。中共病毒刚在加拿大传播，人们希望政府及时提供防护用品、封关、调查病毒真相、开放羟氯喹为非处方药、让WHO走狗—-加拿大首席卫生官谭咏诗下台……可盼望一个个落空，疫情越来越严重，人口仅三千七百多万的加拿大目前中共病毒感染人数已超二十六万。
 
-**国际上，据New york post 报道，川普的好哥们儿，英国首相Boris Johnson已于11月7日率先发推，祝贺拜登胜选，并表示希望与拜登政府密切合作。**
+疫情在加拿大的肆虐蔓延，让很多人看清了自由党政府，为扭转局面加入在野第一大党保守党，参加今秋的保守党党领投票，令保守党今年录得破历史纪录的269,469名党员。
 
-**德国总理默克尔也不甘人后，也已于今天发推祝贺拜登，极为迫切地表示不会有任何不愿向拜登政府公开的秘密。**
+在期待大选时，9月新民主党决定支持自由党，令今年加拿大大选落空。以前不关心政治的人们开始注意到这位包头的党领，美国大选前几日他发表了支持拜登的言论。
 
-**加拿大特鲁多作为美国最近的邻居，今天也是快马加鞭地向拜登谄媚，作为好朋友，好伙伴，好帮友，要更加亲密有好的团结合作。**
+如今保守党党领祝贺拜登，令很多保守党员都怒了，更有甚者，剪断党员卡，以示割席！今天加拿大的众多新闻令人心情跌到谷底，但细想起来，也许是塞翁失马。
 
-**今天郭文贵先生27天出山后的第一次直播指出，美国大选所反映出来的四权（立法，行政，司法，媒体）旁落，令人惊叹；世界各国政要的不明真相与黑暗妥协的现象大跌眼镜。受到最大伤害的美国人民，台湾人民，中国人民，将会渐渐苏醒，捍卫他们的权利。当真相只能在极少数人的手里时，那也就是希望之光所在。爆料革命的平台GTV,Gnews，就是此次大选的最大赢家，因为它坚持唯真不破，正道主义，揭露真相，匡扶正义。**
+本来中共就是在保守党哈珀执政时期在加拿大做大的。哈珀2006年起任总理，在他任期中：2009年加拿大北方电讯破产；2010年4月，华为在安省渥太华成立了首家加拿大研发中心；2011年华为在加拿大建立总部……
 
-**审核：悟空**
+我们不能因为总理小特鲁多亲共就误以为保守党是反共的，加拿大无党不与中共勾兑，蓝金黄渗透严重，不然怎么可能汇款买Gclub会员跟在中共国一样难？真要有个党出来说话，证监会及各银行敢这么封杀G系列投资吗？
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+执政党不提病毒真相的也就罢了，在野党大喊反共但绝不提病毒真相的，和伪类有什么区别？加拿大政客、主流媒体对待中共病毒真相和美国大选的态度，一次次让人刷新三观、放弃幻想。
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+黑暗势力末路狂奔了，当初选择支持加拿大保守党就是在两堆蛆里挑那堆稍微干净一点的，其实本质都是蛆! 这些职业政客，过几天共和党胜选后，又会翻脸了。传统政客的好日子希望会随着人类世界这次变革而消失。
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06235914/GNEW-GTV-MOS-LOGO.jpeg)
-1+
+爆料革命战友们是这个世界的一股清流，终将改变一切!文贵先生说的好，资本控制了政治、媒体、宗教!爆料革命要在经济上有实力，然后才有实力改变政治! 大家认清现实、继续前行！
+
+参考链接：
+
+[Conservative Party sets new membership record](https://www.conservative.ca/conservative-party-sets-new-membership-record/)
+
+[Huawei opens new Canadian headquarters](https://www.lightwaveonline.com/business/article/16660796/huawei-opens-new-canadian-headquarters)
+
+0
