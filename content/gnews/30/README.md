@@ -1,7 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 广播:2020/11/7郭文贵先生直播第二段
-` GM07` [轉載自GNews](https://gnews.org/zh-hans/536115/)
+## 同声传译班农战斗室【第476-481期】
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/536264/)
 
-3+
+同声传译班农战斗室【第476+477期】
+
+
+
+同声传译班农战斗室【第478期】
+
+
+
+同声传译班农战斗室【第479+480期】
+
+
+
+同声传译班农战斗室【第481期】
+
+
+
+#### **By：【秘密翻译组G-Translators】**
+
+0
