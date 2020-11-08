@@ -1,26 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 什么是影响美国大选的“第二层次”计划？谁是它的始作俑者和执行者？
-` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/537943/)
+## 突发：班农作战室被推特和油管同时封号
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/538396/)
 
-**作者：为子孙爱七哥农场 烛阴之子**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/08095350/%E7%AC%AC%E4%BA%8C%E5%B1%82%E6%AC%A1%E8%AE%A1%E5%88%92-1.jpg)
-中共己在美国、在全世界开始了3F计划、蓝金黄计划的“第二层次”！这是郭文贵先生隐居深山二十七天后首播给全体战友和数百万在线网友最重要的信息之一。
+*新闻来源：the gateway pundit《评论家》；作者：卡桑德拉·费尔班克斯（Cassandra Fairbanks）；发布时间： 2020年11月5日*
 
-第二层次行动是什么？那就是郭先生直播中说，这次美国大选过程中出现的一些具体细节：摄像头坏了、硬碟坏了、半夜里边停止计票了、软体被篡改了、软体是中国造，以及现场的人员所有采取的做票手段。你去看一看，哪里没有中国共产党的影子？哪里没有共产党情报系统的影子？但凡在中国有一点政治经验的人、了解中国历史和中国情报机构的人，你都能知道这就是共产党的手段、一贯的手段。不但如此，战友们，你们还能看到什么？具体的执行者、操纵者都是共产党的影子，大家你们更能看到，这是共产党情报机构一直以来在中国普遍实施的手段，一点都不新鲜，一点都不高明。 实际上，郭先生在五十天前的9月24日直播已明确说过中共对这次美国大选有行动：共产党内部的政治斗争和共产党玩火的事情变得太大了！ 共产党这次又发布了另一个潘多拉魔盒！ 我无法以任何一种快乐的心情告诉你过去48个小时里发生了什么！ 它与我们无关，但确实决定了我们的命运……共产党在玩火。
+*翻译/简评：Dreamer文童；校对：1818；审核：InAHurry；Page：拱卒*
 
-到底谁在执行这一玩火计划呢？郭先生昨天的直播也给出了谜底：我可以告诉大家，当在六个月以前，我知道从秦城监狱放出那三个人的时候，当我在五个月以前知道有两个人已经到加拿大的时候，我就非常清楚共产党的蓝金黄计划（BGY）、3F计划的创造者、执行者已经全面地开始在美国、在世界开始了全面计划的第二层次。 ……这几个人所执行的计划和这几个关键的人，也是孟健柱和孙力军以及上海帮很多实力派被逮捕的根本原因，也是王岐山被软禁的根本原因，也是王岐山、董宏一系列的人被抓的原因，就是这些人，把这几个人全给抓到秦城去了。（现在）这些人放出来了，因为习近平需要他们、共产党需要他们，他们是蓝金黄、3F方案的创造者、制订者、执行者。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/08095337/Screen-Shot-2020-11-08-at-10.44.18-PM-1.png)
-9月24日直播中郭先生还说：共产党在玩那种流氓手段，这回帮了美国……它想帮的那个人没帮上，结果帮了另一边。 ……共产党玩了一招，它想玩蒋干的故事呢。结果蒋干到那里来真的了，这一来真的帮了对方。
+[!\[\]()!\[\](https://spark.adobe.com/page/9tVa7OOTfywPd/images/021071c9-a3df-41eb-8b9c-da9c2513c863.jpg?asset_id=c20e9a19-ab2e-4c67-9fa0-a46f54c886cc&amp;img_etag=%229233feac01ecf820ccf241b762d809d3%22&amp;size=2560)](https://spark.adobe.com/page/9tVa7OOTfywPd/images/021071c9-a3df-41eb-8b9c-da9c2513c863.jpg?asset_id=c20e9a19-ab2e-4c67-9fa0-a46f54c886cc&amp;img_etag=%229233feac01ecf820ccf241b762d809d3%22&amp;size=1024)
 
-结合昨天直播所说：“他们是蓝金黄、3F方案的创造者、制订者、执行者……这些人就是文贵当初知道潘朵拉盒子和3F方案、蓝金黄方案根本的来源。 ”以及路德社前些日子放出的亨特.拜登身边的蒋干故事，这“第二层次”始作俑者和执行者不就呼之欲出了吗？
+**简评：**
 
-**更多精彩资讯请关注：**
+周四，战斗室节目在推特和油管几乎同一时间被封账号。前些日子，战斗室对亨特·拜登（Hunter Biden）硬盘曝光出来的深度家族腐败丑闻，进行了持续的大篇幅报道。此次该节目账号在推特和油管同时间段被封，似乎是幕后力量协调安排的结果。
 
-- [为子孙爱七哥农场官方推特](https://twitter.com/wzsaqg)
-- [为子孙爱七哥农场官方GTV号](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
-- [欢迎加入农场discord官方群](https://discord.gg/mZG9MtM)
+近期，推特、油管以及其他社交媒体平台肆意限制或封锁账户的势头愈显嚣张。在此次美国大选期间，甚至川普总统的账户亦被限制发推。社交媒体平台不顾后果“自杀式”地限制或封锁账户的行为，已经引起网络用户的强烈不满。推特股票单日暴跌20%只是刚刚开始。最终，选择与邪恶为伍的社交媒体平台将被民众彻底抛弃。言论自由是基本人权，决不能被任何人所剥夺。GTV和GNEWS作为自由发声的平台，将成为社交媒体界一股新生力量。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20123101/%E5%86%9C%E5%9C%BA%E5%B9%BF%E5%91%8Av7-3.jpg)
+## 突发：史蒂夫·班农作战室几乎在同一时间被推特和油管封号
+
+推特和油管均在数小时内对史蒂夫·班农作战室(War Room)进行审查，这似乎是明显的协调努力以使他噤声。
+
+该节目是极左翼反言论自由极端分子“媒体很重要”（Media Matters）的审查运动攻击的目标，其两个账户在周四被关闭。
+
+
+
+> Looks permanent. Time to bring [@WarRoom2020](https://twitter.com/WarRoom2020?ref_src=twsrc%5Etfw) back! [pic.twitter.com/UDC88bGqLu](https://t.co/UDC88bGqLu)
+> — Raheem Kassam (@RaheemKassam) [November 5, 2020](https://twitter.com/RaheemKassam/status/1324494295030730760?ref_src=twsrc%5Etfw)
+
+
+Raheem Kassam (Twitter account)拉希姆·卡萨姆（推特账户）@RaheemKassam Looks permanent. Time to bring @WarRoom back! 看起来是永久（封号）的。是时候让战斗室回来了！
+
+
+> YouTube just took down Steve Bannon War Room. [pic.twitter.com/q2bAE7CcGY](https://t.co/q2bAE7CcGY)
+> — Silent Majority has to speak now! WE ARE @ WAR! (@LAOFAS) [November 5, 2020](https://twitter.com/LAOFAS/status/1324497797417238536?ref_src=twsrc%5Etfw)
+
+
+
+当该节目掌握亨特·拜登（Hunter Biden）硬盘副本，并揭露其家族根深蒂固的腐败时，该节目在大选前掀起一阵媒体热潮。
+
+
+
+> The totalitarian left [@mmfa](https://twitter.com/mmfa?ref_src=twsrc%5Etfw), specifically [@peltzmadeline](https://twitter.com/peltzmadeline?ref_src=twsrc%5Etfw), has pushed a campaign to have [@WarRoomPandemic](https://twitter.com/WarRoomPandemic?ref_src=twsrc%5Etfw) removed from Twitter and YouTube.
+> 
+> Ok… we'll just use another service? LOL [pic.twitter.com/FYe3TaYTDz](https://t.co/FYe3TaYTDz)
+> — Raheem Kassam (@RaheemKassam) [November 5, 2020](https://twitter.com/RaheemKassam/status/1324497386518028293?ref_src=twsrc%5Etfw)
+
+
+Raheem Kassam (Twitter account)拉希姆·卡萨姆（推特账户）@RaheemKassamThe totalitarian left @mmfa, specifically @peltzmadeline, has pushed a campaign to have @WarRoomPandemic removed from Twitter and YouTube.极权主义左派@mmfa，尤其是@peltzmadeline，已推动一项活动使@WarRoomPandemic被从推特和油管移除。Ok…we’ll just use another service? LOL那好吧…我们将使用其他服务？大笑
+战斗室共同主持人拉希姆·卡萨姆（Raheem Kassam）发推称，他们将转而使用其他服务。
+
+你可以在Parler关注战斗室的最新信息。
+
+[原文链接](https://www.thegatewaypundit.com/2020/11/breaking-steve-bannons-war-room-banned-youtube-twitter-nearly-time/)
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+编辑：[【喜马拉雅战鹰团】](https://spark.adobe.com/page/9tVa7OOTfywPd/)-点击Adobe Spark版
+[!\[\]()!\[\](https://spark.adobe.com/page/9tVa7OOTfywPd/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/9tVa7OOTfywPd/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0
