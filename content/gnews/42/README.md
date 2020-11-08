@@ -1,33 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【台风巨眼】川普总统您不再孤独-美参议院议员集体声明挺川
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/535072/)
+## 民主党员领导的福克斯顾问团队预报拜登胜选总统
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/535729/)
 
-作者：香草山写作组 Kathy（文艺）
+*喜马拉雅联盟加拿大农场 Cran
+校对文锦 上传 WJ*
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06235914/GNEW-GTV-MOS-LOGO.jpeg)
+11 月7日上午福克斯的即时新闻报道“福克斯预计拜登击败川普将成为第46位美国总统”。 这是福克斯在过早预计了拜登胜选亚利桑那州之后的另一个预报。这也是对大选的终极预报。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07152029/arnon-mishkin.jpg)图片来源：Fox News
+这些预报来自民主党员，阿农·米什金（Arnon Mishkin）领导的福克斯竞选决策团队。此团队由统计和计算人员以及政治科学家们组成，他们负责分析和预测未来的总统和参众两院的最佳候选人。
 
+米什金自己的咨询公司还为媒体公司提供营销和数字策略方面的建议。米什金是民主党员，曾投票给希拉里·克林顿和捐款给民主党。至于他所做出的预测和策略方面的建议是否基于中立的立场，不妨略微了解一下他的政治背景。
 
+据《国家档案》揭示，米什金的夫人苏珊·芬（Susan Fine）曾任NBC 新闻的编辑。夫妇二人很低调，他们的名字不出现在维基百科里。米什金曾与著名的民主党人物密切合作，其中包括汤姆·布拉德利（洛杉矶市长），埃德·科赫（纽约市长）和迈克尔·布隆伯格（纽约市长）。
 
+鲁迪·朱利安尼（Rudy Giuliani) 在最近的视频中谈到，福克斯新闻作为第一个媒体过早做出了拜登胜选亚利桑那州的预报，这是米什金团队对选民的“心理操纵”。
 
+福克斯的这篇即时新闻报道体现了中共对美国媒体发动超限战的一个侧面。
 
-四年来，看见川普总统以70多岁高龄之躯，在为这个国家奋战，心生疼惜。但此刻大选后的真相，假票，封推，逼得老人转战各自媒体，真的忍不住想对那些不顾美国利益的卖美贼们大喝一声，够了。
+相关链接：
 
-今天，全美将发起在各州府的联合抗议假票偷票等群众自发游行活动。令人欣慰的是，美国民众已醒悟，并站出来挺川普了。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07080113/221-%E3%80%90%E5%8F%B0%E9%A3%8E%E5%B7%A8%E7%9C%BC%E3%80%91%E5%B7%9D%E6%99%AE%E6%80%BB%E7%BB%9F%E6%82%A8%E4%B8%8D%E5%86%8D%E5%AD%A4%E7%8B%AC-%E7%BE%8E%E5%8F%82%E8%AE%AE%E9%99%A2%E8%AE%AE%E5%91%98%E9%9B%86%E4%BD%93%E5%A3%B0%E6%98%8E%E6%8C%BA%E5%B7%9D-2.jpg)
-11月5日，一篇发自美国参议院共和党议员的集体声明，出现于推特，瞬间被置顶。这份发给川普总统的声明表示，总统在以往四年间为美国而战，所有共和党参议员，将无条件的与总统站在一起，支持川普总统。这篇声明背后的意义非常重大，我们将拭目以待。
+[Joe Biden defeats Donald Trump to become 46th president of the US, Fox News projects](https://www.youtube.com/watch?v=KravPVeqTCc)
 
-11月7日，据{英国广播公司}报道，美国众议院共和党领袖麦康奈尔表示，如果民主党总统候选人拜登胜选，政权肯定会顺利移交。但问题是选票都不是真的，该怎样鉴别谁赢大选呢？
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07080052/221-%E3%80%90%E5%8F%B0%E9%A3%8E%E5%B7%A8%E7%9C%BC%E3%80%91%E5%B7%9D%E6%99%AE%E6%80%BB%E7%BB%9F%E6%82%A8%E4%B8%8D%E5%86%8D%E5%AD%A4%E7%8B%AC-%E7%BE%8E%E5%8F%82%E8%AE%AE%E9%99%A2%E8%AE%AE%E5%91%98%E9%9B%86%E4%BD%93%E5%A3%B0%E6%98%8E%E6%8C%BA%E5%B7%9D-1.jpg)
-正如Fox电视主持人Tucker Carlson所说，川普总统现在是并且一直是美国民意谁能领导美国的风向标。四年已经可以证明了，现在的民意更加说明了川普总统是美国最适合的领导人。
-
-黑暗当前，但希望就在前面。敬爱的川普总统，您已不是孤军奋战，听，此刻大地就回响着您的老朋友，麦克·杰克森的美妙歌声，“You are not alone”.
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+[Meet Arnon Mishkin: Democrat Political Consultant Who Will Determine Next President for Fox News](https://nationalfile.com/meet-arnon-mishkin-democrat-political-consultant-who-will-determine-next-president-for-fox-news/)
 
 1+

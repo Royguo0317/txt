@@ -13,8 +13,8 @@
 
 
 
-### [【Giselle专栏】澳洲总理恭喜拜登当选, 川普总统啥时候动手?](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
+### [【热点播报】重磅：6名宾夕法尼亚州国会议员联名公开信：严厉谴责州政府官员对选举的不当处理！](/content/gnews/1/README.md)
+ ` 纽约香草山农场`
 
 ### [【热点播报】“左疯”冲击亚特兰大 非裔民主党议员琼斯倒戈挺川普](/content/gnews/2/README.md)
  ` 纽约香草山农场`
@@ -34,126 +34,126 @@
 ### [三周后美国对新西兰大选表示祝贺](/content/gnews/7/README.md)
  ` Wenya Himalaya`
 
-### [视频郭先生：美国大选中所有扭曲的行为都让人想到CCP的惯用策略](/content/gnews/8/README.md)
+### [视频朱利安尼独家揭密拜登家族罪行（系列一）](/content/gnews/8/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [美国总统大选滑稽结果之我见](/content/gnews/9/README.md)
+ ` erzun250`
+
+### [2020年美国大选的历史意义 ——正义与邪恶的终极之战](/content/gnews/10/README.md)
+ ` Ronald`
+
+### [【文石专栏】电影《盲山》: 当恶行成为习俗](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [视频共产主义要利用资本主义统治全世界，民主是为有信仰的人准备的](/content/gnews/12/README.md)
  ` Isaiah4031`
 
-### [GTV大型音乐活动《我是音雄》第一季第十期 暨第二场复赛 精彩回顾](/content/gnews/9/README.md)
- ` GMusic`
+### [中共国的高压硬性教育 让多少孩子丧了命？陕西高三女生写13个对不起后自杀](/content/gnews/13/README.md)
+ ` shangshang`
 
-### [加拿大主要政党党领及众多主流媒体齐齐祝贺拜登当选](/content/gnews/10/README.md)
- ` gnewscanada`
-
-### [GTV大型音乐活动《我是音雄》第一季第十一期 暨第三场复赛 精彩回顾](/content/gnews/11/README.md)
- ` GMusic`
-
-### [主流社交媒体平台成现实版1984“真理部”中共审查制度已覆盖全球](/content/gnews/12/README.md)
+### [视频11月6日要闻同声传译:福克斯玛丽亚采访川普竞选顾问, Lou Dobbs重磅采访, 朱利安尼Radio节目 &amp; NEWSMAX大选专题](/content/gnews/14/README.md)
  ` 秘密翻译组G-Translators`
 
-### [郭文贵先生起诉瑞银（UBS）](/content/gnews/13/README.md)
+### [【漫画专栏】美国总统大选真正的较量刚刚开始](/content/gnews/15/README.md)
+ ` 首尔喜韩农场`
+
+### [视频同声传译班农战斗室【第476-481期】](/content/gnews/16/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【台风巨眼】世界的真相在GTV,Gnews-英德加领导人纷纷发推祝贺拜登有感](/content/gnews/14/README.md)
- ` 纽约香草山农场`
+### [视频11月5日要闻同声传译： 福克斯采访班农, 凯文议员, NEWSMAX大选专题](/content/gnews/17/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [加拿大总理“竟然”祝贺乔∙拜登赢得美国总统大选](/content/gnews/15/README.md)
- ` gnewscanada`
+### [郭先生11.7直播：六个月前秦城放出三人执行了全面计划第二层次](/content/gnews/18/README.md)
+ ` NewFOC`
 
-### [中共经由选票机威胁美国民主](/content/gnews/16/README.md)
- ` 倫敦英喜莊園 Himalaya UK`
+### [视频2020年11月7日CCP冠状病毒大流行第287集](/content/gnews/19/README.md)
+ ` GM30`
 
-### [民主党员领导的福克斯顾问团队预报拜登胜选总统](/content/gnews/17/README.md)
- ` gnewscanada`
+### [视频2020年11月7日中共病毒疫情要闻快报](/content/gnews/20/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [爆革星评： 川普总统发表声明“永远不会放弃”](/content/gnews/18/README.md)
- ` gnewscanada`
-
-### [郭文贵先生美国大选后直播关于新中国联邦接下来要做什么](/content/gnews/19/README.md)
- ` vog_dongdong_vog`
-
-### [视频班农战斗室 419期：中共有计划在大选前用生化武器企图杀死川普总统和他的家人【精华版国粤语配音】](/content/gnews/20/README.md)
- ` GM42`
-
-### [讓子彈飛一會兒，大鱷們就要從沼澤爬出来了！](/content/gnews/21/README.md)
- ` VOH欧洲战友团`
-
-### [我们为什么如此关心美国大选 (2)](/content/gnews/22/README.md)
- ` VOH欧洲战友团`
-
-### [视频【精华版粤语快报】【路德社】11.06：密西根州发现点票机软体造假证据；国防部长埃斯柏正式辞职](/content/gnews/23/README.md)
- ` GM42`
-
-### [朱利安尼 推文系列 3](/content/gnews/24/README.md)
- ` 倫敦英喜莊園 Himalaya UK`
-
-### [选举战大捷！](/content/gnews/25/README.md)
- ` 温哥华加喜农场🇨🇦`
-
-### [可耻的大选](/content/gnews/26/README.md)
- ` 温哥华加喜农场🇨🇦`
-
-### [以色列部长警告若拜登胜选将引发中东战争](/content/gnews/27/README.md)
- ` 康州喜马拉雅农场`
-
-### [【军事快讯】美撤销对东突厥斯坦伊斯兰运动的恐怖组织认定，或为制裁CCP做准备](/content/gnews/28/README.md)
- ` 纽约香草山农场`
-
-### [视频11.1 路德时评：拜登家族究竟卖什么获能巨额收入；裙带、权钱交易重创美国体制 【精华版粤语配音】](/content/gnews/29/README.md)
- ` GM42`
-
-### [拜登惨败已成定局 灭共才是生死大考](/content/gnews/30/README.md)
- ` 纽约香草山农场`
-
-### [民主党特工登入美国政府机密软件HAMMER和SCORECARD篡改大选结果 《每日快报 &#8212; 2020.11.7》](/content/gnews/31/README.md)
- ` 喜马拉雅-华盛顿DC站`
-
-### [川普总统组建“全明星”法律团队挑战摇摆州的选举：报告](/content/gnews/32/README.md)
- ` 倫敦英喜莊園 Himalaya UK`
-
-### [【香港要闻】香港电台被要求 早间新闻前播放《义勇军进行曲》 污染大气电波](/content/gnews/33/README.md)
- ` GM42`
-
-### [无论谁当总统，搞乱、搞垮美国才是中共的最终目的—总结《2020年11月5日早上路安墨谈》](/content/gnews/34/README.md)
- ` gnewscanada`
-
-### [《司法观察》:180万“额外”注册选民](/content/gnews/35/README.md)
- ` 倫敦英喜莊園 Himalaya UK`
-
-### [YouTube 加强打压真相传播](/content/gnews/36/README.md)
- ` gnewscanada`
-
-### [致美国朋友的信 &#8211; 大选后，请坚守阵地](/content/gnews/37/README.md)
- ` Wenya Himalaya`
-
-### [宾夕法尼亚州爆出选民名单上有2.1万已故者](/content/gnews/38/README.md)
- ` gnewscanada`
-
-### [民主党人胜选的“秘密武器”-行贿选举官员](/content/gnews/39/README.md)
+### [11月7日文贵先生对爆料革命战友发表重要演讲](/content/gnews/21/README.md)
  ` JPHIMALAYA`
 
-### [中共空军除了规模航空战力究竟几何?](/content/gnews/40/README.md)
+### [视频到底是谁赢得了这次美国大选？（玫瑰看新闻视频版-20201108第十五期）](/content/gnews/22/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [视频广播:2020/11/7郭文贵先生直播第二段](/content/gnews/23/README.md)
+ ` GM07`
+
+### [视频广播:2020/11/7郭文贵先生直播第一段](/content/gnews/24/README.md)
+ ` GM07`
+
+### [川普总统高尔夫球场闲庭信步.左媒借机发布拜登获选虚假讯息!](/content/gnews/25/README.md)
  ` 快慢机`
 
-### [【香草诗词汇】冬之歌](/content/gnews/41/README.md)
+### [视频朱利安尼独家揭密拜登家族罪行（系列六）](/content/gnews/26/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [彭斯会是下一任美国总统吗](/content/gnews/27/README.md)
  ` 纽约香草山农场`
 
-### [【台风巨眼】川普总统您不再孤独-美参议院议员集体声明挺川](/content/gnews/42/README.md)
+### [【热点播报】共和党主席：选民才能决定谁赢得选举，而不是媒体。四州已经部署了法律小组！](/content/gnews/28/README.md)
  ` 纽约香草山农场`
 
-### [【香港要闻】香港民众为移民卖房 待售房屋大增44% 【跟踪报导】](/content/gnews/43/README.md)
+### [主流媒体配合中共在全球杀掉了超过124万的人](/content/gnews/29/README.md)
+ ` shangshang`
+
+### [朱利安尼独家揭密拜登家族罪行（系列五）](/content/gnews/30/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [朱利安尼独家揭密拜登家族罪行（系列四）](/content/gnews/31/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [【Giselle专栏】澳洲总理恭喜拜登当选, 川普总统啥时候动手?](/content/gnews/32/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [视频郭先生：美国大选中所有扭曲的行为都让人想到CCP的惯用策略](/content/gnews/33/README.md)
+ ` Isaiah4031`
+
+### [GTV大型音乐活动《我是音雄》第一季第十期 暨第二场复赛 精彩回顾](/content/gnews/34/README.md)
+ ` GMusic`
+
+### [加拿大主要政党党领及众多主流媒体齐齐祝贺拜登当选](/content/gnews/35/README.md)
+ ` gnewscanada`
+
+### [GTV大型音乐活动《我是音雄》第一季第十一期 暨第三场复赛 精彩回顾](/content/gnews/36/README.md)
+ ` GMusic`
+
+### [主流社交媒体平台成现实版1984“真理部”中共审查制度已覆盖全球](/content/gnews/37/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [郭文贵先生起诉瑞银（UBS）](/content/gnews/38/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【台风巨眼】世界的真相在GTV,Gnews-英德加领导人纷纷发推祝贺拜登有感](/content/gnews/39/README.md)
+ ` 纽约香草山农场`
+
+### [加拿大总理“竟然”祝贺乔∙拜登赢得美国总统大选](/content/gnews/40/README.md)
+ ` gnewscanada`
+
+### [中共经由选票机威胁美国民主](/content/gnews/41/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [民主党员领导的福克斯顾问团队预报拜登胜选总统](/content/gnews/42/README.md)
+ ` gnewscanada`
+
+### [爆革星评： 川普总统发表声明“永远不会放弃”](/content/gnews/43/README.md)
+ ` gnewscanada`
+
+### [郭文贵先生美国大选后直播关于新中国联邦接下来要做什么](/content/gnews/44/README.md)
+ ` vog_dongdong_vog`
+
+### [视频班农战斗室 419期：中共有计划在大选前用生化武器企图杀死川普总统和他的家人【精华版国粤语配音】](/content/gnews/45/README.md)
  ` GM42`
 
-### [2020唤醒行动](/content/gnews/44/README.md)
- ` Ronald`
+### [讓子彈飛一會兒，大鱷們就要從沼澤爬出来了！](/content/gnews/46/README.md)
+ ` VOH欧洲战友团`
 
-### [【香港要闻】教育局向学校发通告就「国家宪法日」提供活动建议](/content/gnews/45/README.md)
+### [我们为什么如此关心美国大选 (2)](/content/gnews/47/README.md)
+ ` VOH欧洲战友团`
+
+### [视频【精华版粤语快报】【路德社】11.06：密西根州发现点票机软体造假证据；国防部长埃斯柏正式辞职](/content/gnews/48/README.md)
  ` GM42`
-
-### [视频【精华版粤语快报】【路德社】11.06：乔治亚州居然可以翻盘；社交媒体平台继续对大选信息封锁；](/content/gnews/46/README.md)
- ` GM42`
-
-### [民主、自由、法治制度下的总统大选](/content/gnews/47/README.md)
- ` Ronald`
-
-### [民主法治社会与社会主义社会的区别](/content/gnews/48/README.md)
- ` Ronald`
 
