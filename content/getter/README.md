@@ -18,6 +18,11 @@
 **郭文贵MILES** `2020-11-05T21:15:44`
 ##
 
+[11月8号：记得文贵去过亚利桑娜州吧，我们今天将等来亚利桑娜州的重大利好信息！](/content/getter/content/2020/11/5fa84e53ad3f0f61d2be6e09.md)
+
+**郭文贵MILES** `2020-11-08T20:00:19`
+##
+
 [ 11月8日：尊敬的战友们好．文贵喝完下午茶……抽雪茄抽醉了，在此……和战友聊聊……到底美国大选谁能赢？？为什么？我们为什么支持川普总统？](/content/getter/content/2020/11/5fa84cabad3f0f61d2be6dd9.md)
 
 **郭文贵MILES** `2020-11-08T19:53:15`
@@ -156,10 +161,5 @@
 [10月22日 亨特拜登，这是在哪里吸毒？谁在帮他吸毒？请战友们稍后看路德访谈](/content/getter/content/2020/10/5f91d12606847a4c6518a4bc.md)
 
 **郭文贵MILES** `2020-10-22T18:36:22`
-##
-
-[10月22日 拜登家族与中国活动的报告 Report on Biden Activities with China  https://www.baldingsw...](/content/getter/content/2020/10/5f91bebb06847a4c65189cb1.md)
-
-**郭文贵MILES** `2020-10-22T17:17:47`
 ##
 
