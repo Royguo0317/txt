@@ -1,36 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/9 财经快讯: 美国政府或许分裂? 数字货币新兴市场成为投资热点
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/540802/)
+## [自述文章】主心骨-郭先生
+` JP007` [轉載自GNews](https://gnews.org/zh-hans/540300/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09090742/Picture28-1.png)
-1, 摩根大通(JPMorgan Chase & Co.)称，由于全球利率较低、美元走软以及美国总统的对抗性可能降低，新兴市场资产在未来几个月都是投资最佳点
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09095319/%E4%B8%BB%E5%BF%83%E9%AA%A8-%E9%83%AD%E5%85%88%E7%94%9F.png)作者：京都富士会清风明月来、神的带领
+郭先生进山了，不在有直播了。就感觉没有了主心骨一样。3年来每天都差不多能听见郭先生直播，从中能知道自己该干什么能做什么，我说的可不是对咱新中国联邦不信任或对郭先生不信任，我坚信郭先生进山之前所说的。一切都会象郭先生说的那样发生的。
 
-[https://www.newsmax.com/finance/markets/jpmorgan-sweet-spot-emerging-markets-weak-dollar/2020/11/08/id/996033/](https://www.newsmax.com/finance/markets/jpmorgan-sweet-spot-emerging-markets-weak-dollar/2020/11/08/id/996033/)
+在推特转推，转着转着就被封号啦，怎么办呢  ？该去哪继续传播呢？听有战友说去 菲丝布克  ，我马上去，还没发两个就被封了。推特只好等12小时后解封接着转。等待时间太长该怎么办呢？多亏我们有G-TV、有盖特。我们才有地方传播真相。才不会被封。到了唱票当天  紧张的心就别提了，但是听到川普总统宣布我们赢了，我心一下就放下，开心、高兴  。
 
-2, 中国人民银行(PBOC)数据显示，截至10月底，中国的外汇储备为3.128万亿美元，低于9月份的3.143万亿美元，低于路透社对分析师调查所预测的3.150万亿美元。
-
-[https://www.newsmax.com/finance/markets/china-october-foreign-exchange-reserves/2020/11/07/id/995916/](https://www.newsmax.com/finance/markets/china-october-foreign-exchange-reserves/2020/11/07/id/995916/)
-
-3, 贝莱德（BLACKROCK）基金投资研究所称，如果美国最终出现一个分裂的政府，这可能意味着有限的财政刺激、债券收益率涨幅受限、通胀预期受到抑制，而风险资产则会得到提振。
-
-[https://www.newsmax.com/finance/streettalk/blackrock-growth-stocks-divided/2020/11/08/id/996028/](https://www.newsmax.com/finance/streettalk/blackrock-growth-stocks-divided/2020/11/08/id/996028/)
-
-4, 美国英特尔的成功来自于自己制造芯片。然而，受中共病毒影响，这家硅谷的先锋企业正考虑将其最先进的一些芯片的生产外包, 这是美国失去其制造业首要地位的故事中的一个里程碑。
-
-[https://www.wsj.com/articles/intel-chips-cpu-factory-outsourcing-semiconductor-manufacturing-11604605618?redirect=amp#click=https://t.co/hrpPvDdihA](https://www.wsj.com/articles/intel-chips-cpu-factory-outsourcing-semiconductor-manufacturing-11604605618?redirect=amp#click=https://t.co/hrpPvDdihA)
-
-5, 重要的世界贸易航线被 “黑天鹅 “-集装箱短缺所破坏：半个世纪以来为全球经济服务的带肋钢箱的短缺尤其困扰着泛太平洋航线。这种短缺使新集装箱的购买价格和租赁费率提高了50%，使港口交通陷入瘫痪，增加了附加费用，并减缓了进入假期的交货速度。
-
-[https://www.newsmax.com/finance/streettalk/world-trade-route-black-swan/2020/11/08/id/996035/](https://www.newsmax.com/finance/streettalk/world-trade-route-black-swan/2020/11/08/id/996035/)
-
-6, 在拜登单方宣布其赢得美国总统大选后，中共媒体乐观回应： “中美关系将变得缓和和可控” ， “中国必须成为美国无法打压或破坏稳定的国家，并使其认识到与中国合作是美国实现国家利益的最佳选择。
-
-[https://www.reuters.com/article/worldNews/idUSKBN27P00K](https://www.reuters.com/article/worldNews/idUSKBN27P00K)
-
-7,摩根大通称比特币正在蚕食黄金ETF的需求，机构弃黄金ETF转投比特币。[https://u.today/jpmorgan-says-institutions-ditching-gold-etfs-for-bitcoin](https://u.today/jpmorgan-says-institutions-ditching-gold-etfs-for-bitcoin)
-
-By【秘翻组 – 金融法律团队】
+我立马去超市买了一沓啤酒庆祝起来。由于高兴过头不知不觉喝多了 。等第二天睡醒了 赶紧看看还有什么大事 没有，这一看可不得了，拜登反超了，当时唯一的的想法就是怀疑自己喝多了？看错了？柔柔眼睛顿时醒酒了。原来拜登的假选票满天飞，怪不得急忙宣布自己赢了。很是为川普总统担心……直到郭先生出来直播，我才淡定。川普总统一定赢。等待最后举手就职的那一刻。
 
 0

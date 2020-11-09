@@ -1,38 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 乔治亚州的重磅新闻–佐治亚州富尔顿县的132,000票选票被确定为不合格选票
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/540325/)
+## 惊爆:佐治亚州富尔顿县的132,000个选票被识别为不合格！
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/540456/)
 
-翻译: 康州农场-蜗牛先生
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09074702/IMG-8556.jpg)
+翻译、编辑：引力波
 
-校对：康州农场-Truemanman
-![]()![](https://www.thegatewaypundit.com/wp-content/uploads/Georgia-Vote-11-8-600x344.jpg)
-今晚重磅新闻。据报道，佐治亚州富尔顿县的选票中有132,000个地址标记发生了变化。这些选票可能为不合格选票。
+引用：[https://www.thegatewaypundit.com/2020/11/huge-breaking-news-georgia-132000-ballots-fulton-county-georgia-identified-likely-ineligible/](https://www.thegatewaypundit.com/2020/11/huge-breaking-news-georgia-132000-ballots-fulton-county-georgia-identified-likely-ineligible/)
 
-凯尔·贝克尔（Kyle Becker）和人民专家（People’s Pundit）不久前在推特上宣布，佐治亚州富尔顿乡村地区的132,000张选票可能不符合资格。
+据报道，佐治亚州富尔顿县的选票中有132,000个地址标记发生了变化。 这些选票可能不符合资格。
 
+凯尔·贝克尔（Kyle Becker）和民间权威人士不久前在推特上宣布，佐治亚州富尔顿乡村地区的132,000张选票可能不符合资格。
 
+如上所述，特朗普总统与乔·拜登之间的票差在左派收集了数天选票后约为10,000票。
 
-> GEORGIA. 
-> 
-> 132,000 "Change of Address" RED FLAGS in Fulton County, GA. These votes are "highly likely ineligible to vote and have moved," per source. 
-> 
-> Biden leads Georgia by 10K votes as of last update.
-> 
-> It's enough to be a \*gamechanger.\* 🚨🚨🔽[https://t.co/J2X7VoEFkR](https://t.co/J2X7VoEFkR)
-> — Kyle Becker (@kylenabecker) [November 8, 2020](https://twitter.com/kylenabecker/status/1325585740059856898?ref_src=twsrc%5Etfw)
-
-
-
-乔治亚州富尔顿县的132,000个“地址更改”红色标志。这些消息人士称，这些选票“极有可能没有资格投票并已经改动过”。
-
-截至上次更新，拜登以1万票领先佐治亚州。
-
-正如上面所指出的，选票收获由左天后川普总统和拜登之间的电流差是10000左右的选票。
-
-如果认为这些选票不合格，那么川普总统肯定会赢得佐治亚州的选票，而此事发生在解决最近几天非法选民的投票之前。
-
-原文链接：*[https://www.thegatewaypundit.com/2020/11/huge-breaking-news-georgia-132000-ballots-fulton-county-georgia-identified-likely-ineligible/](https://www.thegatewaypundit.com/2020/11/huge-breaking-news-georgia-132000-ballots-fulton-county-georgia-identified-likely-ineligible/)*
-
-1+
+如果这些选票不合格，那么特朗普总统肯定会赢得佐治亚州的选票。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09074419/%E6%9C%AA%E6%A0%87%E9%A2%98-1-1.jpg)
+0

@@ -1,30 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 政府是基于被管理者同意而设立的
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/540927/)
+## 【每日摘要】路德时评 &#8212; 2020.11.8
+` 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hans/541362/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24064746/WhatsApp-Image-2020-10-24-at-15.08.49.jpeg)
-作者：康州农场-GTalk心语堂
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09094425/image2-4.jpeg)
-2020年11月8日，南达科他州（South Dakota）女州长Kristi Noem接受ABC采访和发推特都提到了关于政府本质的问题，即，政府是基于被管理者同意而设立的。 她说“We the people choose our government by consent of the governed.” 她同时指出，当年戈尔和布什的选举，戈尔对选举结果有异议，可以上法庭，那么川普总统和他的7000万选民也应该给予同样的机会。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09094433/image3-2.jpeg)
-Kristi是一位真正的爱国者，她所秉承的是John Locke（约翰洛克）早在1689年匿名出版的《政府论》中提出的民主思想。约翰洛克被称作民主之父，美国国父们的建国理念就来源于他的启发。今天Kristi的一番话，可以说是在二十一世纪的今天，再一次举起了启蒙运动的旗帜。它必将再一次唤起美国人民捍卫民主权利的决心。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09094441/image4-1.jpeg)
-同样是女性，反观台湾总统蔡英文，却迫不及待的向窃取选票，而且尚未获胜的乔拜登发出贺电。请问，菜总统，你有没有问问两千三百万台湾人民同不同意你这样做？台湾人民和美国人民一样，遭受了一次赤裸裸的被代表。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09094455/image5-3.png)
-“政府是基于被管理者同意而设立的”，这是美国政体的基石，这次民主党选举肆无忌惮的舞弊真正触碰的是这一民主基石。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09094511/image6-3.png)
-康州农场心语堂从今天每天发布一篇Gnews的文章，帮助大家了解改变人类历史的民主主张是哪些先贤的智慧结晶？提出的背景和基础是什么？对美国乃至世界民主进程产生的影响是什么？我们相信，当我们真正了解了这段历史，我们就真正了解了为什么这次选举是人类历史的又一次重大变革。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09094520/image7.jpeg)
-我们反复强调新中国联邦人不参与美国政治，但是了解美国民主制度的根基对新中国联邦每个公民都是一种必须，我们希望通过对于什么是“政府是基于被管理者同意而设立的” ,这一民主精神的讲解，开启新中国联邦人的思想启蒙，帮助我们去思考新中国联邦需要什么样的民主制度，如何实现属于中国人的民主。敬请期待。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09115404/11.08.2020.jpg)
 
-Pictures from:
-https://i0.wp.com/www.positivelynaperville.com/wp-content/uploads/2020/09/we-the-people-constitution.jpg?fit=1200%2C867&ssl=1
-https://upload.wikimedia.org/wikipedia/commons/b/b8/John\_Locke.jpg
-https://cdn.i-scmp.com/sites/default/files/styles/1200×800/public/d8/images/methode/2019/04/16/316b3c66-5da0-11e9-bbcc-84176f6dd1e7\_image\_hires\_093015.JPG?itok=lDXWq1zC&v=1555378220
-https://i.ytimg.com/vi/II8Ob3dKm6s/maxresdefault.jpg
-https://www.historyonthenet.com/wp-content/uploads/2017/01/HISTORY-unplugged-1400×1400-1024×1024.jpg
-https://i.ytimg.com/vi/v9VERBPU6\_c/maxresdefault.jpg
+
+
+
+关键词：Warroom 平民主义 朱利安尼 大选欺诈 新共和党  爆料革命
+
+视频链接：[https://youtu.be/kjluD-yHTQE](https://youtu.be/kjluD-yHTQE)
+
+摘要：Faller
+
+摘要：
+
+1. 简讯：澳大利亚总理发贺电, 澳大利亚Sky News说川普是被抢了的；香港大学生周子乐先生去世一周年，市民悼念；墨西哥总统发表讲话最终证据公布之前不承认是拜登当选。
+2. 疫情官宣世界突破5000万，美国疫情连续四天每天超10万。
+3. 美总统大选程序：11月10号-12月11号：各州认证选举结果
+
+
+12月8号：确定结果统计选票，确定选举人票归属，州长做确认书
+
+12月14号：选举人投票日
+
+12月23号：选举人票到达国会山
+
+2020年1月3号： 新任国会宣誓就职
+
+2020年1月6号：计算第二轮选举人票直到1月20号宣誓就职典礼
+
+- 朱利安尼：川普总统大选夜80万领先，在没有共和党观察员见证下被成千上万的邮寄选票超过，为什么共和党人被排除在外？费城掌握着死人投票的秘密。法律规定：监督员在1.8米内监督。
+- 真心真意投票川普七八千万大活人，投票拜登的有很多死人。当真相披露，美国人会怎么做？联邦选举委员会主席Trey Trainor：大选中存在选民欺诈。如不遵守法律，这次选举是“非法的”，川普竞选活动提起的诉讼是非常有效的指控。
+- 老派建制派共和党不支持川普，铁杆川粉是新共和党。新共和党割席建制派，7100万支持班农平民主义，看见主流媒体在撒谎，唤醒民意。川普总统发现最关键时刻是朱利安尼挺身而出。
+- 美国“引狼入室”，所有的民主党共和党大佬发现不能控制中共黑势力时，会看清中共是乱的根源。
+- Warroom连上45位，排名第27。7100万的声音和需求会成为主流。班农先生作战室的影响力验证爆料革命的强大。行动，继续宣传真相，拜登硬盘的真假最终会验证。
+- 蔡英文代表不了华人。病毒人工还是自然，看到世界媒体的真相；是否支持闫博士区分了科学家；给拜登发贺电，看清所有国家和政客。中国北韩俄罗斯没发贺电原因是什么？
+
 
 0
