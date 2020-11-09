@@ -1,51 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新中国联邦接下来要做什么?
-` GM31` [轉載自GNews](https://gnews.org/zh-hans/540299/)
+## 郭爆料串珠（九十四）石油神人叶简明的人、钱、房都去哪了？
+` GM99` [轉載自GNews](https://gnews.org/zh-hans/540622/)
 
-在11月8日的郭先生G-TV节目直播中，他详细阐述了接下来新中国联邦在七个方面的发展方向，详见如下内容。
+#### **整理：战友之家文迅等**
 
-#### **What is the Next Step of the New Federal State of China?**
+*郭爆料串珠系列文章，都是从700多篇郭文贵先生直播听写文字版、盖特精选而成，具有文献价值。由战友之家文迅等按时间、主题整理。感谢战友听写！*
 
-#### **新中国联邦接下来要做什么?**
+**标题简述：
+2017年9月4日，郭先生说：叶简明是是石油神人。
+2018年11月20日，郭先生说：CCP对人类的威胁，对我们每个人将带来的威胁，我是用语言无法形容的。看看你们周围吧，这个刚才屏幕上显示的死人，和被抓的人，被丢失的人。叶简明就在隔壁的432号，王健先生就在旁边的157号。所有这些官员里边有安邦，华尔道夫酒店，在中央公园这边有上千套属于他们的资产和房子，他们都消失了。谁敢保证说下一个不是美国人？**
 
-Since starting our Whistleblower Movement 3 years ago, we are now facing a problem. What is the next step for the New Federal State of China? Just like what we stated previously, our New Federal State of China’s declaration is our pursuit. What should we do next?
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09083347/94_Cover.png)
 
-我们爆料革命三年来，现在面临着一个问题。新中国联邦下一步追求什么？就像我刚才看的一样，我们的宣言，就是我们的追求。我们接下来做什么？
+**2017年9月4日**
+叶简明是石油神人。
 
-**Statement 1: **Strengthen the development of GTV, GNEWS, GClubs, GFASHION —— we must comprehensively link the various investment series and the interests of various investors and shareholders. Through the New Federal State of China and Whistleblower Movement and my own experience, we allow investors to make large returns; our brothers-in-arms can gain large returns; the financial investment institution can gain large returns. Relying on large financial institution investors’ resources as well as our brothers-in-arms’ individual investments, we allow everyone to gain a good profit. We must be strong economically. The best national defense, the strongest national defense. Therefore all institutional investors of GCOIN, GDOLLAR are now fully prepared. This is completely independent from us. GFASHION is completely independent. GTV and GNEWS are completely independent. A safe and powerful economy is the fundamental foundation for our future development. The Whistleblower Movement and the New Federal State of China will allow the Chinese people to move towards the rule of law, faith, and freedom.
+**2018年5月24日**
+你们查查，中国的前50个大企业家最近谁在国外晃荡。您找找，头一段时间有一个中国出的企业家在纽约买的房子432 5TH AVE。叶简明也住那儿。房子办完手续没多长时间，就有不明人士通过中间商，以及各种关系开始了解这个房子。这个人曾经问我是怎么回事，我说你可能该倒霉了。他说是不是查叶简明查到我这来了？我说你去想想吧，这不正常，肯定是盗国贼海外的沉默力量在了解你。你的钱有什么问题？没问题啊，我的钱都是合法挣得。你有没有得罪当官的啊，有没有其他原因啊？最后这哥们也不能出境了，说他的转汇有问题。在国内给了某企业家钱，某企业家在海外有出口的外汇给他了，一对冲，说这叫非法转汇。完了，房子给撩这了。然后叫他签一系列的我委托书，那你必须签，在公安局签。到美国找中介商，把这房子卖了。多少呢，先打个8折，不行再往下减。跟当年的许多企业家一样。所以我们现在整个国内高压锅的形势，整个内部的环境，就是一纸老虎，一点就完，这就是为什么王岐山先生他留下来他伟大啊，太伟大了。大家去看看这个政治形势是什么，我不方便说。有多方面的信息证明，栗战书的秘书被抓跟王岐山有重要的关系。栗战书的秘书其中掺乎的三个事，其中曲龙被放出来。因为曲龙跟人家吹牛说华泰案子，股票啊上百个亿，就许诺给了一个中间人。是曾庆红原来的其中一个宋秘书，跟曾的太太很好。找了河北的政法委书记，院长通过栗战书的秘书把曲龙找理由放出来。然后他们拿走50%的钱，这是其一。
 
-**第一条、**加大力量发展GTV、GNEWS、GCLUB、GFASHION，我们全面的要把投资的各种系列，把各个投资者和股东利益紧紧联系一起。通过新中国（联邦）、爆料革命（和）文贵的经验，让投资者能赚大钱，战友们能赚大钱和背后的投资机构者能投大钱，利用投资机构者的巨大资源和战友们一点一滴凝聚的力量，让大家赚大钱的时候，第一个实力，经济实力。最好的国防，最厉害的国防，第一个力量，经济力量。这就是为什么GCOIN、GDOLLAR所有的机构投资者现在全力准备着，这是完全和我们独立的，GCLUB股东完全独立的。GFASHION完全独立的。GTV、GNEWS完全独立的。安全，强大的经济是我们未来发展，爆料革命，新中国联邦，让中国人走向法治、信仰、自由的根本性基础，这是第一条。
+**2018年11月20日**
+现在请开始。我今天在这里演讲的时候，请看到这个屏幕上，这里的每一个人都是中国的精英或者官员。他包含了中国最有名的国际上的演艺人员，范冰冰。最大的石油国际公司，叶简明。虽大的国际NGO组织，国际刑警组织（主席），孟宏伟，给我发红通的孟宏伟先生。还有在美国最大的上市公司，Jack Ma（马云）。还有最大的网络公司，在线商业公司，京东。还有我们大家知道的中国网络沙皇，鲁炜。还有这里中国的几个军委的最高层，张洋，徐才厚，郭伯雄。还有当时的安邦，吴小晖。还有当时中国最牛的明天产业的被消失的肖建华。这些人，要么丢失了，要么找不着了，要么被抓了，要么进了监狱里，要么自杀了。而且绝大多数人都有一个共同的死法，叫“坠落死”。而且官方在过去的六年里公布的被所谓的反腐运动抓捕的人达一百万。仅仅在这里贴出来的是极少的一部分，冰山一角。我今天能站在这里，我感谢上天，我感谢美国。我应该是很早就被挂在这个墙上的人，而且一定可能也是坠落死的人。今天站在这里有很多我们来自中国的战友受迫害的华人，这里的很多人可能都应该被挂在这个墙上，坠落死，躲猫猫死，打飞机死。这是共产党给新时代赋予的一个新的死法。我没办法今天一一地给大家讲所有人的故事。但是我今天我要告诉大家的事情，这么多的在国际上投资的成功企业家，和成功的演艺界文化人士，和所有在世界上进行合作多年的官员，军方人士。为什么他们都是在短短的六年里面，被消失，被自杀，坠落死？
+……
+我们已经正式的向FBI申请，让FBI介入这个调查。接下来我们可以看到以上王健之死的相关人员和利益，给了我们一个很好的，一个非常重要的答案。王健到底是怎么死的。王健是怎么死的，对我们大家来讲，都很重要。否则我们每一个人都可能成为下一个王健。我们还会面对着一个个海航在美国发生。我们可以看到，我们下一步会怎么做，同时我告诉大家我为什么站在这里。亲爱的朋友们，海航的事情，绝对不是单一的。安邦、叶简明、马云还有明天系。上千个上万个中国企业，以及美国在中国投资的企业，都有可能成为下一个海航和下一个王健。我们要问的是，所有王健的这些事情，在美国所有的行动是否合法，是否伤害了美国利益。海航在美国到底有没有代表中共，布下了天罗地网，伤害美国的安全，对美国构成了威胁。海航的王健，如果说他的死亡不能让我们警醒，我们都很可能成为下一个王健。这是为什么我要在这里，为那200多个，还有上万个中国被冤枉的、被抓的、被消失的人。我要为他们呼吁，让他们有真相，有公平，受到法律公平的对待。我要在美国为他们呼吁。为他们争取法律的公平对待。保护他们的家人安全，保护他们的资产安全。我们必须要问，海航我刚才说过，在中国内部，以及在各个方面，我都可以证明，海航是代表中国共产党，在西方的一个间谍平台、洗钱平台和对西方政治进行“蓝金黄”的渗透平台。接下来我们将起诉它，采取一系列的法律行动。否则海航的事件会在西方一个一个的重演。这是为什么我郭文贵要站在这里，为他们争取公平，为我们的孩子、子子孙孙和十四亿中国人，以及现在坐在这里的每个人的安全，我才站在这里。这是我奋斗的根本原因。
 
-**Statement 2: **Connecting the Chinese people throughout the world all together at the fastest speed. Allowing the Himalayan Farm Union Committee to grow at a rapid speed, to become internationalized, standardized, and governed by law.
+**2018年11月20日**
+CCP对人类的威胁，对我们每个人将带来的威胁，我是用语言无法形容的。看看你们周围吧，这个刚才屏幕上显示的死人，和被抓的人，被丢失的人。叶简明就在隔壁的432号，王健先生就在旁边的157号。所有这些官员里边有安邦，华尔道夫酒店，在中央公园这边有上千套属于他们的资产和房子。他们都消失了。谁敢保证说下一个不是美国人？谁敢保证说下一个不是英国人？谁敢保证不是台湾人？你见台湾媒体有一个敢站出来说句真话的吗？有一个吗？今天的会议为什么台湾人不敢来？他是不想来还是不敢来？他是不敢来。
 
-**第二条、**把全世界的华人，已最快的速度，绝对化的连在一起。让喜马拉雅农场联盟委员会，以最快的速度成长，国际化、标准化、法治化。
+**2018年12月29日**
+这就像安邦吴小晖，还有肖建华还有N个N个老板多了去了，那钱都去哪了？都上哪了？叶简明的钱是不是，都去哪了？所以说整个大家通过我，可以看到中国这个所谓的私人企业家的林子里面，你们的政府就是一个强盗集团。我郭文贵说的以警治国以黑治国，我就是最好的案例。通过这个你也看到中国人的善良，我的员工的善良和勤劳。在这种被抓被审被判的情况下，还给国家创造了这么多的财富，天真的一毛钱都不敢动。还相信专案组，还相信中共党中央，还相信比爹和娘还亲的中国政府，一切听党的，一切都是党的。以前的员工吓的饭都没有吃了。然后盘古也好政泉也好，判的是政泉，盘古也没了。所以他对付的不是你政泉，用的也不是法律，他是黑道的厚黑学。这个事情对中国的私人企业家和对中国所有拥有财富的人都是一个最好的警醒。别听郭文贵说，别听郭文贵讲，你看事实。根据事实，根据发生的事实来判断，来找到有利于自己的和对你的家族对你的财产对下一步决定的事情。郭文贵被打了一枪，落了一地肛毛被跑到美国来了。你们就不一定能这么侥幸，打你一枪落一腚肛毛了。估计就像肖建华、吴小晖等等等千千万万的老板一样，估计就撂到监狱了，就像王健一样被拍照死了，这是一个很好的案例。我很荣幸我能成为中国私营企业家一个很好的案例。通过辽宁的案子，所有的过程跟文件，我们所有的战友都要每天讲每天说。让中国的私营企业家，我们的兄弟姐妹，同胞们，不要再上这个流氓集团共产党的当，不要再上他们的当。你看他们又开始说了，现在要保护私营企业家的个人安全财产安全，这个罗圈屁放的太大了，放的太大了，又来骗了。这是一个核心的利益，今天的节目中这是一个核心的，我希望大家广泛传播。
 
-**Statement 3:** Establishing a political quasi-alliance in the world rapidly. This is the best opportunity.
-
-**第三条、**已最快的速度，绝对的速度，建立世界上政治准联盟关系。这是最好的机会。
-
-**Statement 4:** Preparing to representative of the new China without the Communist Party to the world. Striving for recognition from more world organizations.
-
-**第四条、**做好没有共产党的新中国在国际上的绝对代表的力量。争取更多的国际机构承认我们。
-
-**Statement 5:** Linking and securing our brothers-in-arms’ interests, safety, and resources, and to standardize, legalize, and stabilize these pathways at the fastest speed. Therefore, we strive to the strongest loyalty alliance between our brothers-in-arms.
-
-**第五条、**绝对化的把战友们的利益、战友们的安全，战友们的资源以最快速度标准化、法治化、固定化联系在一起。形成战友和大家之间最强大的忠诚联盟。
-
-**Statement 6:** From various fields, we must increase our media influence efforts through the largest media channels. ***I am A Sing-Ro***. This is one of our best programs, is making a huge domestic impact in mainland China. Our Tang Ping, our William Wang– working hard to make their music program bigger and better. All our Himalaya farms in countries such as Japan, Taiwan, Russia, Italy, France, New Zealand, South Korea, Canada, various places, and the Phoenix City base, we must act in unison to increase media publicity. From music, fashion, lifestyle, the entire online business, all kinds of connections through the Internet. The core, brothers-in-arms should remember, in the United States, especially in the most critical part of our G series, we must establish good relations with the American media and financial communities. Now we should not make more enemies. We should reduce our enemies and increase the number of partners– we already have too many enemies.
-
-**第六条、**从各个领域，要加大最大的媒体的宣传力度，“*我是音雄*”我们这个节目越干越好，国内影响巨大。我们的唐平，我们的威廉王，要把他们这个节目做大做强——音乐。我们的各个农场，像日本的、台湾的、各国的，俄罗斯的、意大利的、法国的、新西兰的、韩国的、加拿大的，各个地方，凤凰城的基地，加大媒体宣传力度，一致行动。从音乐、时尚、生活方式、整个网上商业、网络上的各种联系在一起。核心的，战友们要记住的，在美国，特别是在我们G系列最关键的地方，我们要和美国的媒体界，金融界，建立良好的关系，现在我们不是要在增加敌人了，要减少敌人，增加合作伙伴，我们的敌人真的不少了。
-
-**Statement 7. **Dear brothers and sisters, next, for our rule of law foundation, rule of law society, GClubs, GFASHION, and the launched GCOIN, GDOLLAR, all the partners and institutional investors of the global alliance, people are using our platform of the  Whistleblower Movement. They are using our resources: GTV, GNEWS. We must share the benefits to those who utilize this platform. Not only should our brothers-in-arms get rich, but also more international forces get rich too. Through this U.S. election has caused more American capitalists and big capitalists in the Middle East, Asia, Russia, and China in staying with us more firmly.
-
-**第七条、**亲爱的兄弟姐妹们，接下来，对我们法治基金、法治社会、GCLUB、GFASHION和推出的GCOIN、GDOLLAR，所有的全球的联盟的合作者和机构投资者，人家是使用咱爆料革命这个平台，使用我们这个资源，GTV、GNEWS都使用这个资源，咱要分成分利益给人家。不但要战友致富，让更多的国际上的各种势力和我们致富。这次美国大选让更多的美国资本家和中东、亚洲、俄罗斯、中国内部的大的资本家更加坚信跟我么在一起。
-
-出处：[https://gtv.org/video/id=5fa6b7eabd0d464fadf5a5f8](https://gtv.org/video/id=5fa6b7eabd0d464fadf5a5f8)
-
-*翻译：【Key】校对: 【Clouds】【Isaiah4031】 字幕:【盘古开天】 编辑:【GM31】*
-
-*战友之家玫瑰园小队出品*
+**2019年2月4日**
+这个头两天，昨天有人发王岐山在党内说，如果是按照中国法律，共产党员都得被枪毙。你们20万块钱就会被枪毙，我们党就是因为控制了法律才拯救了你们那么多党员。你这是放这个罗圈屁，王岐山这个大流氓，孟建柱这个大流氓，孙力军这个大流氓，你共产党这些畜生们。要按照你这个说法，二十万被枪毙你们党员。那你王岐山那你被枪毙一兆次，你全家都要被枪毙一兆次。一个海航飞机一小时就是7万美元，你有5、6架飞机，你不被枪毙吗？你在全党内的讲话听着有道理，是我拯救了全党。是你让刚才那500人消失的，你这些人消失是没有依法让他们消失。中国还有更多的人在消失中，上百万的新疆人，几万的西藏人，各个民族人士，私营企业家去哪了？他犯法了，为啥不能让他独立请律师，就像我的关于我们盘古政泉和我的案子一样，为什么你律师都要被你们威胁？为什么这个案子法庭按照你们每个字都商量好的，你有一件事是按着你们的法律办的吗？你用了党法，你用了你的家法，来对付共产党员，来对付9000万党员，对付所有的中国的精英，你这个流氓王八蛋党，你说你能存在吗？上天不灭你共产党哪有天理呀，天理何在呀。所以说班农先生他每次研究是这500个精英，他是跟世界有交流的，他事关世界的利益。就像安邦的华尔道夫的酒店在纽约。叶简明的石油跟美国跟中东有巨大的关系，它咋就消失了呢，咋就没人说话呢，他的钱去哪了？他的企业去哪了？这是重点是不是，为啥不能公开呀，就现在美国那么多川普总统那么多法律诉讼。中国共产党天天报道，说川普总统麻烦了，川普总统麻烦了，中国可以让你中国王岐山有麻烦吗？你王岐山的海航竟然造出了一个假孙瑶、假贯君、假刘呈杰，这个流氓骗子。
 
 0

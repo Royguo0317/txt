@@ -1,20 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德社精选11/5/2020 早间节目
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/540309/)
+## 中共病毒 | 上海出现一例CCP病毒本土阳性病例，所居住地已封村，感染途径不明
+` 公民之聲` [轉載自GNews](https://gnews.org/zh-hans/540654/)
 
-听写：加非 校对：加非 文宣图：艾伦 出品：首尔喜韩农场
+内新闻/素材：Stephen（文文） 校对：老白
 
-简介：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09084558/image0-51.jpg)
 
-1.朱利安尼先生和团队已经去往费城进行大选法律诉讼战。
-2.宾州还有几百万张选票还在路上。
-3.川普总统任期还有70天，朱利安尼先生说60天就可定罪大选造假。
-4.现在不管谁赢，美国都将进入混乱，这正是中共希望的。
-5.中共造假选票里也有川普总统，目的是浑水摸鱼搞乱美国。
-6.不管谁获得大选胜利，中共想做美国大选的庄家。
-7.21年1月20日之前都无法选出，美国就会瘫痪，必须进入战时状态。
-8.相信美国定海神针一定有后手，两党合作灭共是关键。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09070956/1-26.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09071329/2-46.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09071659/3-37.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09071829/4-15.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09071935/5-14.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09072119/6-14.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09072214/7-8.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09072326/8-7.png)
-0
+上海11月9日报告一例本土阳性病例，目前救治于上海市公共卫生中心。患者51岁，男，11月8日13点45分因发热、鼻塞、乏力等症状至浦东新区人民医院发热门诊就诊，入院体温37.5度，肺CT显示双肺多发磨玻璃样，经核酸检测为阳性CCP病毒患者。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09084717/Snipaste_2020-11-09_21-44-46.png)
+
+该病例在浦东机场西区从事搬运工作，至今未曾离沪，发病前14天内无中高风险地区旅居史，无新冠病毒感染者接触史，近3个月内无其他医疗机构就诊史。
+
+目前该病例所居住的祝桥镇江镇社区营前村已经封村，进行全员核酸检测。浦东机场附近的佛罗伦萨小镇（奥特莱斯）也处于封闭状态。
+
+截至11月9日17时，该患者家庭成员、单位同事等26名密切接触者已全部集中隔离医学观察，其中23名核酸检测结果为阴性，另外3名市场相关人员核酸检测结果未出。
+
+该病例近期没有接触过冷冻食品，也未曾离开过上海，其感染途径尚不明确。但事实上该病例只是众多潜伏在人群中的感染者被偶然发现了而已。CCP病毒的无症状感染者所占比例高于70%，所以很多具备传染能力的阳性无症状感染者一直“隐藏”在人群中，并不断传播。而在中共保经济、吹抗疫的政策下老百姓放松了对病毒的防护。
+
+随着秋冬季节的来临，无症状感染者很有可能因普通感冒/流感产生发热、咳嗽症状从而去医院就医而被检测出来。
+
+[新闻来源：上海新增1例本土病例，一乡镇调为中风险地区](https://xw.qq.com/amphtml/20201109A0EO7E00)
+
+1+

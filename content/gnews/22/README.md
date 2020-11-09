@@ -1,13 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【文贵盖特】11月8号: 记得文贵去过亚利桑娜州吧, 我们今天将等来亚利桑娜州的重大利好信息!
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/540710/)
+## 【粤语配音精华版】11/07/2020文贵：这次大选谁是赢家？
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/540937/)
 
-【文贵盖特】2020年11月8号: 记得文贵去过亚利桑娜州吧, 我们今天将等来亚利桑娜州的重大利好信息!
-
-
-
-#### **By: 【秘密翻译组G-Translators】**
-
-1+
+制作：战友之家粵語頻道
+统筹：【文武全才】 剪輯：【文萊】 【文桥】 配音：【John Chen】 文本：【KEN 】 字幕：【文桥】
+0

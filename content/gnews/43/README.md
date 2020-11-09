@@ -1,43 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 数学定律揭示，拜登在密歇根州的数据有99%的缺陷
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/540348/)
+## 国际时评 | 中共外交部冷淡回应美国大选是何心理?
+` 公民之聲` [轉載自GNews](https://gnews.org/zh-hans/540612/)
 
-蒙特利尔战友团 laotou
+内新闻/素材：翻上墙头的猪 校对：老白
 
-校对 不动之光 上传 XM
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09071427/%E5%9B%BE%E7%89%877-3.jpg)图片来源：politinform.su
-《门道专家》最新的消息揭示了拜登造假。他的统计得票数曲线很异常，符合“舞弊”的数学模型，文章题目是：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09083434/image0-50.jpg)
 
-本福德定律过去曾被用来证明选举舞弊——乔·拜登在密歇根州的数据有99%的缺陷——科技巨头禁止这些信息也就不足为奇了！
+北京时间9号下午，在多家美媒和乔.拜登本人宣布赢得大选后近两天时间过去了，中共终于通过外交部发言人之口对美国的这次总统选举结果作出回应。
 
-全文如下：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09071846/21.jpg)
-拜登在密歇根州的得票数与本福德定律的不符程度高达99.999%。
+然而中共并没有像日本、台湾以及英、法、德、澳等国那样送上祝贺，而是仅用一句“按照国际惯例办理”非常审慎地应付了一下。这与之前中共对美国大选的关注热度形成鲜明对比。中共之前对于乔.拜登的当选充满了信心，而在媒体及拜登本人宣布胜出之后中共却为何如此矜持呢？
 
-本福德定律在很多场合被用来证明选举舞弊（2000年和2004年选举，2003年加州州长选举，等等）。
+在美国时间11月3日总统选举日之后，陆续被曝出多种选举作弊行为。包括：在美没有业务的中共国顺风快递投递选票；中共国生产的计票机神奇地将川普的票变成了拜登的票；死人复活参与投票；不计算美国军人的选票；不是美国公民的也参与投票；花钱雇人抄写选票；给邮寄选票盖假戳；假期选票……上演了美国两百多年选举史上从未出现过的荒诞闹剧！
 
-请告诉我，如果你愿意详细说明，这些数字可以在电子表格中计算，使用的数据来自密歇根州各个选区的选举数据跟踪器，以此计算，拜登得了0.0000017分，特朗普得了0.58分。
+中共国的顺风快递怎么参与到美国大选投票邮递中的？世界第一大国的民主选举为何处处充满中共的影子？
 
-虽然本福德定律并不能百分之百地证明民主党伪造选举数据，但“在美国，基于本福德定律的判据已经在联邦、州和地方各级的刑事案件中得到承认。”
+之前中共大力宣传拜登的民调支持率领先川普，如今拜登自己都宣布自己当选了，中共为何要保持如此克制审慎？中共在等什么呢？
 
-它也被用来确定2000年和2004年美国大选中的舞弊行为。我做了一个Chi测试，将密歇根州选区的选票数与本福德定律进行了比较，发现拜登/哈里斯的投票结果为0.000017%（统计上显著，尤其是样本量非常大的时候），而特朗普/彭斯的投票结果为53.059791%，在查看我的数据集时，我注意到密歇根州还有0填写投票。
-
-非常奇怪的现象
-
-这是我的数据的来源：[https://detroitmi.gov/webapp/election-results](https://detroitmi.gov/webapp/election-results)
-
-下面是一些电子表格的图片，用图表比较了预期结果和实际发生的情况。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09071923/22-1.jpg)
-川普总统的数据符合定律
-
-（非人工计票）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09071926/23.jpg)
-拜登的数据与本福德定律差别很大（假数据）
-
-突出显示的百分比告诉你，你有怎样的确信欺诈行为的发生，通常低于0.05的分数在统计学上是显著的，而拜登的得分是0.00000017。
-
-原文链接：[https://www.thegatewaypundit.com/2020/11/update-benfords-law-used-prove-election-fraud-past-joe-bidens-numbers-michigan-99-flawed-no-surprise-tech-giants-banning-information/](https://www.thegatewaypundit.com/2020/11/update-benfords-law-used-prove-election-fraud-past-joe-bidens-numbers-michigan-99-flawed-no-surprise-tech-giants-banning-information/)
-
-0
+2+
