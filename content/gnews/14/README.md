@@ -1,19 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 坚定不怀疑的信仰
-` G-NEWS Taiwan` [轉載自GNews](https://gnews.org/zh-hans/540507/)
+## 11/9 财经快讯: 美国政府或许分裂? 数字货币新兴市场成为投资热点
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/540802/)
 
-台湾农场 Amitofu
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09090742/Picture28-1.png)
+1, 摩根大通(JPMorgan Chase & Co.)称，由于全球利率较低、美元走软以及美国总统的对抗性可能降低，新兴市场资产在未来几个月都是投资最佳点
 
-如金刚般坚定不怀疑的叫信，生生不息真实的性德叫仰。文贵先生灭共计画准备30年，不论财力智力，不惜生命甚至于家人生命、财产受到威胁。 30年间自爱自重不接受共产党BGY的利诱，习近平更倾我党一国之力也不能撼动文贵先生的坚定信仰。信仰按照世俗理解的是宗教派别对神的敬意与劝人向善的价值观。天主教、基督教、伊斯兰教、犹太教、印度教、佛教乃至各宗各派，所有的宗教加起来，好比是一颗千年大树，有着不可分别的根基和同样的天地滋养，五大枝干就如同五大洲，依照文化差异分布在各个方向和各个领域的枝干，分枝的树木就如同各宗各派的分支。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09080511/%E5%9C%96%E7%89%87-1-18.png)
-因为有着相同的太阳、月亮、土地、阳光和水，并按照着天地日月星辰规律的变换而长养万物。任何枝干都是大树组成的一部分，如果东方的树枝(佛教道教印度教等)认为祂是整棵大树的全部，是唯一的真理，那会徒增大家的困惑和不必要的纷扰，相同的道理，西方、南方、北方乃至四维上下虚空的树枝也是如此，甚至于是各宗各派如同经论般的叶片，都不能称为是唯一的真理。只能勉强说是全部真理的一部分。
+[https://www.newsmax.com/finance/markets/jpmorgan-sweet-spot-emerging-markets-weak-dollar/2020/11/08/id/996033/](https://www.newsmax.com/finance/markets/jpmorgan-sweet-spot-emerging-markets-weak-dollar/2020/11/08/id/996033/)
 
-就如同我所认识七哥每次直播中带大家祈祷的万佛万神，万佛万神代表着全部真理的根基，应当尊重各种宗教和各地文化习俗上的差异和信仰的自由。明白地球、太阳系、银河系、整个宇宙，乃至于已知、未知的三千大千世界都是一体的真理。没有分别、妄想、执着，谦卑地对待一切人事物，因敬畏万佛万神慈悲而战战兢兢的进行灭共事业。
+2, 中国人民银行(PBOC)数据显示，截至10月底，中国的外汇储备为3.128万亿美元，低于9月份的3.143万亿美元，低于路透社对分析师调查所预测的3.150万亿美元。
 
-CCPVirus说明了这个道理，如地球般的大树染上了前所未有的病虫害，病毒正蔓延整棵大树，乃至于主干枝末，甚至侵蚀着大树坚固的根本，不论哪个国家，哪种信仰都深深受影响。 CCPVirus不仅仅只是恐怖的生化病毒，更是信仰上的病毒。中共长期对美国政坛的侵略和对各阶层菁英的渗透，11月7日文贵先生直播中提到，美国资本主义下，资本在前民主在后，民主是可以买卖的，此次美国总统大选，中共帮助拜登爆增选票，暴露了民主信仰受到资本BGY，西方媒体超限战，让我们看清楚人性的丑陋，和对民主自由的践踏，唯有文贵先生带领爆料革命战友们，GTV、 GNEWS在黑暗的媒体中点燃烛光，譬如一灯能除千年暗，一智能灭万年愚。
+[https://www.newsmax.com/finance/markets/china-october-foreign-exchange-reserves/2020/11/07/id/995916/](https://www.newsmax.com/finance/markets/china-october-foreign-exchange-reserves/2020/11/07/id/995916/)
 
-唯真不破，唤醒众人的信仰与追求自由民主法治的种子，让每个信仰的枝干因为病虫害的侵害而激起免疫的系统，并在自然原始森林的生态系统下，大树将展现自我疗愈的能力。期待文贵先生带领爆料革命战友们与西方盟友，一同实现新中国联邦宣言的信仰之星。祈请万佛万神护佑文贵先生与新中国联邦战友们。阿弥陀佛☷☶。
+3, 贝莱德（BLACKROCK）基金投资研究所称，如果美国最终出现一个分裂的政府，这可能意味着有限的财政刺激、债券收益率涨幅受限、通胀预期受到抑制，而风险资产则会得到提振。
+
+[https://www.newsmax.com/finance/streettalk/blackrock-growth-stocks-divided/2020/11/08/id/996028/](https://www.newsmax.com/finance/streettalk/blackrock-growth-stocks-divided/2020/11/08/id/996028/)
+
+4, 美国英特尔的成功来自于自己制造芯片。然而，受中共病毒影响，这家硅谷的先锋企业正考虑将其最先进的一些芯片的生产外包, 这是美国失去其制造业首要地位的故事中的一个里程碑。
+
+[https://www.wsj.com/articles/intel-chips-cpu-factory-outsourcing-semiconductor-manufacturing-11604605618?redirect=amp#click=https://t.co/hrpPvDdihA](https://www.wsj.com/articles/intel-chips-cpu-factory-outsourcing-semiconductor-manufacturing-11604605618?redirect=amp#click=https://t.co/hrpPvDdihA)
+
+5, 重要的世界贸易航线被 “黑天鹅 “-集装箱短缺所破坏：半个世纪以来为全球经济服务的带肋钢箱的短缺尤其困扰着泛太平洋航线。这种短缺使新集装箱的购买价格和租赁费率提高了50%，使港口交通陷入瘫痪，增加了附加费用，并减缓了进入假期的交货速度。
+
+[https://www.newsmax.com/finance/streettalk/world-trade-route-black-swan/2020/11/08/id/996035/](https://www.newsmax.com/finance/streettalk/world-trade-route-black-swan/2020/11/08/id/996035/)
+
+6, 在拜登单方宣布其赢得美国总统大选后，中共媒体乐观回应： “中美关系将变得缓和和可控” ， “中国必须成为美国无法打压或破坏稳定的国家，并使其认识到与中国合作是美国实现国家利益的最佳选择。
+
+[https://www.reuters.com/article/worldNews/idUSKBN27P00K](https://www.reuters.com/article/worldNews/idUSKBN27P00K)
+
+7,摩根大通称比特币正在蚕食黄金ETF的需求，机构弃黄金ETF转投比特币。[https://u.today/jpmorgan-says-institutions-ditching-gold-etfs-for-bitcoin](https://u.today/jpmorgan-says-institutions-ditching-gold-etfs-for-bitcoin)
+
+By【秘翻组 – 金融法律团队】
 
 0
