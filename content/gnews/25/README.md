@@ -1,30 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】重磅：美参议院司法调查启动！将调查“所有有关投票违规和不当行为的可信指控”！
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/538672/)
+## 【热点播报】突发：百万美国民众发动白宫请愿：要求重新核票否则重新选举！
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/538873/)
 
-**作者：纽约香草山写作组  正道主义联盟**
+**作者：香草山写作组  正道主义联盟**
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06235914/GNEW-GTV-MOS-LOGO.jpeg)
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/08150145/1-24.png)
-在美联社等多家美国主流媒体宣布“拜登胜选”后不到两小时，据美国《国会山报》7日报道，美国参议院司法委员会主席林赛·格雷厄姆表示，他将调查“所有有关投票违规和不当行为的可信指控”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/08150203/5-12.png)
-格雷厄姆在一份新闻稿中表示，他收到了来自川普团队的宣誓证词，证词由宾夕法尼亚州伊利市邮政人员理查德·霍普金斯（Richard Hopkins）提供。
 
-据报道，霍普金斯在宣誓证词中称，伊利邮政局长罗伯特·魏森巴赫（Robert Weisenbach）告诉工人们，他“将选票上的邮戳倒填日期，以使这些选票看起来像是在2020年11月3日收集的，尽管事实上，这些选票是在11月4日或以后收集的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/08150610/1111111-2.png)
-对此，格雷厄姆在声明中写道，“当务之急是调查所有有关投票违规和不当行为的可信指控，以确保2020年选举的公正性。”
+面对大选荒唐结果出炉！美国民众自愿于7日发动白宫请愿签名活动，现正在火热进行中！短短不到两天，过百万民众签名白宫请愿，要求重新数票或者取消整个选举！截稿已经有超过127多万人签名！活动主题是
 
-他还表示：“在多个州，总统选举仍然势均力敌，作为参议院司法委员会主席，所有有关投票违规和不当行为的可信指控都将受到严肃对待。我不会允许有关投票违规或不当行为的可信指控被掩盖。”
+Recount or revote the entire 2020 presidential election!
 
-川普总统8日继续在推特上连续发文，引述法律分析师、乔治华盛顿大学公共利益法主任乔纳山·特利（Jonathan Turley）的话，再谈“选举欺诈”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/08150328/1111-1.png)
-“我们应该看看选票。我们刚刚开始制表阶段。我们应该看看这些指控。我们看到有很多宣誓书说这是选举欺诈。我们这个国家有选举问题的历史。在宾夕法尼亚，你接到了最高法院法官强迫他们分开在立法截止日期后收到的选票。它需要阿里托法官的介入。这可是一大笔选票。当你谈到系统性问题时，它是关于这些选票是如何通过认证的，因为如果认证系统出现问题，将严重影响整个选举，令我担忧的是，我们在Philladelphia等地有超过一亿张邮寄选票，还有底特律一连串的选举问题。”
+重新核票否则重新投票2020总统选举！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/08163931/h.png)
+网站请愿声明如下：
 
-就在7日，川普总统的支持者举行全美大型抗议活动拒绝接受结果，而拜登的支持者则上街庆祝。双方在多地发生对峙。
+在最近的选举中，我们目睹了对美国选民最大的不公正。我们的目标是重新叙述整个选举或重新投票，更好地监督选票是如何收到和计数的。美利坚合众国的选民已经厌倦了媒体对选举的歪曲报道。我们确实认为，最近这次选举将得到和平解决。我们认为，某些州在选票来自何处以及如何处理这些选票方面缺乏透明度的情况下采取了违反宪法的行动。我们还要求，在100%的选票已收到、清点和核实之前，任何媒体均不得报道对某一候选人的投票情况。我们要求所有地方、州和联邦的选举活动都必须遵守这一规定。
 
-川普团队誓言将会对不公结果及选票舞弊事件一查到底！由此可见，拜登急于宣布胜选就是一场可笑的泡沫剧！实际上，决定谁将入主白宫的法庭大战才刚刚开始！
+连日来，面对选举欺诈，美国民众真的是无法抑制内心的怒火了，除了昨日的全美大规模抗议选举欺诈游行，除了川普团队成员进行司法一系列上诉，更多的民众开始自发以各种方式维护大选公正！民意觉醒，盗贼难逃！美国人民的智商不能如此受辱！拜登急于宣布当选，可是大选花落谁家，选票是否合法公正，民众对大选的舞弊追责远远没有结束！
+
+签名网站链接：
+
+[https://www.change.org/p/the-supreme-court-of-the-united-states-recount-or-revote-the-entire-2020-presidential-](https://www.change.org/p/the-supreme-court-of-the-united-states-recount-or-revote-the-entire-2020-presidential-)
 
 **审核：悟空**
 
@@ -32,6 +32,6 @@
 
 更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上8:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06235914/GNEW-GTV-MOS-LOGO.jpeg)
 1+

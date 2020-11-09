@@ -1,43 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 盘古相聚 1： 同一个世界、同一片沼泽——南北战争和两党的溯源
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/530565/)
+## 突发：班农作战室被推特和油管同时封号
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/538396/)
 
-作者：香草山文艺组 Tiffany 的早餐 校对/发稿：飞虹
+*新闻来源：the gateway pundit《评论家》；作者：卡桑德拉·费尔班克斯（Cassandra Fairbanks）；发布时间： 2020年11月5日*
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/01003406/WhatsApp-Image-2020-11-01-at-11.33.40.jpeg)
+*翻译/简评：Dreamer文童；校对：1818；审核：InAHurry；Page：拱卒*
 
+[!\[\]()!\[\](https://spark.adobe.com/page/9tVa7OOTfywPd/images/021071c9-a3df-41eb-8b9c-da9c2513c863.jpg?asset_id=c20e9a19-ab2e-4c67-9fa0-a46f54c886cc&amp;img_etag=%229233feac01ecf820ccf241b762d809d3%22&amp;size=2560)](https://spark.adobe.com/page/9tVa7OOTfywPd/images/021071c9-a3df-41eb-8b9c-da9c2513c863.jpg?asset_id=c20e9a19-ab2e-4c67-9fa0-a46f54c886cc&amp;img_etag=%229233feac01ecf820ccf241b762d809d3%22&amp;size=1024)
 
+**简评：**
 
-2020美国大选民主党系统性舞弊，民主党所有官僚绝口不提冠状病毒是CCP投毒，我们可以判定，现今的美国民主党，已经沦为CCP美国分部。我们将从南北战争和蓄奴的问题开始，回顾两党的历史。
+周四，战斗室节目在推特和油管几乎同一时间被封账号。前些日子，战斗室对亨特·拜登（Hunter Biden）硬盘曝光出来的深度家族腐败丑闻，进行了持续的大篇幅报道。此次该节目账号在推特和油管同时间段被封，似乎是幕后力量协调安排的结果。
 
-初看美国驴象两党之争，很容易得出一个误判，似乎民主党注重人权、政治正确，共和党注重资本家利益、简单粗暴。又或有白左一词，感觉民主党充满善心和社会理想，只是做事方式幼稚。这些误判其实都是长期媒体操作的结果。从2020美国大选民主党系统性的舞弊，从民主党所有官僚绝口不提冠状病毒是CCP投毒，任何明眼人都能感觉到，民主党已经烂透了。
+近期，推特、油管以及其他社交媒体平台肆意限制或封锁账户的势头愈显嚣张。在此次美国大选期间，甚至川普总统的账户亦被限制发推。社交媒体平台不顾后果“自杀式”地限制或封锁账户的行为，已经引起网络用户的强烈不满。推特股票单日暴跌20%只是刚刚开始。最终，选择与邪恶为伍的社交媒体平台将被民众彻底抛弃。言论自由是基本人权，决不能被任何人所剥夺。GTV和GNEWS作为自由发声的平台，将成为社交媒体界一股新生力量。
 
-大选和疫情前，爆料革命出于战略考虑，不攻击美国的政党。到了2020大选投票后，我们可以判定，现今的美国民主党，已经沦为CCP美国分部。接下来的系列文章，我们将回顾两党的历史，让读者能够对今日的美国党争有更清晰的认识。
+## 突发：史蒂夫·班农作战室几乎在同一时间被推特和油管封号
 
-美国南北战争之前，联邦和州之间长期以来在蓄奴问题上谋求平衡，其政策体现在1820年通过的密苏里折衷案(Missouri Compromise)，规定北纬36度30分以北的州一律为自由州(密苏里州除外)，以南为蓄奴州。
+推特和油管均在数小时内对史蒂夫·班农作战室(War Room)进行审查，这似乎是明显的协调努力以使他噤声。
 
-1828年种族主义者安德鲁·杰克逊(Andrew Jackson)创建美国民主党。民主党在建立之初主要代表美国南部和中西部农场主的利益，强制驱逐印第安人，发动美墨战争，获得土地以供农耕。在美国内战中则支持奴隶制。杰克逊是印地安人排除政策倡导者，在1829～1837年任美国第七任总统，并于1830年签署《印地安人排除法案》(Indian Removal Act)。
-
-1854年民主党参议员史蒂芬·道格拉斯(Stephen A. Douglas)提出堪萨斯-内布拉斯加法案(Kansas-Nebraska Act)，由新加入的堪萨斯州和内布拉斯加州当地居民自由选择是否蓄奴。这一法案推翻了长期保持南北势力平衡的密苏里折衷案，并导致了共和党的创立和南北战争。
-
-亚伯拉罕·林肯(Abraham Lincoln)是堪萨斯-内布拉斯加法案的强烈反对者。1854年，反对扩张奴隶制、前辉格党(Whig Party)和前自由农民的力量在北部各州成立共和党。共和党的命名是为了向美国第三任总统托马斯·杰弗逊(Thomas Jefferson)的共和党致敬。1856年共和党全国代表大会通过了一个全国纲领，反对将奴隶制扩大到美国领土。
-
-民主党和共和党，从各自诞生之初，就在蓄奴问题上产生了不可调和的矛盾。如今每每以人权自居的民主党，不过是当年欺世盗名的蓄奴党。
-
-在1856年大选中，共和党落败给詹姆斯·布坎南(James Buchanan)。1860年，林肯获得共和党的总统提名。虽然林肯生平坎坷，多次失败，并在参议员选举中曾输给宿敌、堪萨斯-内布拉斯加法案的提出者道格拉斯，但终于在大选中击败道格拉斯成为总统。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05120928/6a00d83451d6a669e201b8d22a3318970c.png)林肯、里根、川普 图片来源：GOP
-林肯的当选导致美国蓄奴州决定独立，最终导致南北战争的爆发。南北战争结束后，蓄奴制成为民主党臭名昭著的劣迹。美国是西方近现代史上宗教氛围最浓厚的国家。信仰所带来的道德感、纯净的心灵和坚韧的性格，让美国取得了巨大的成功。在美国强大的历程中，从种族主义发展出的民主党并未扮演什么正面角色。民主党践踏人权，发动内战，又因为好大喜功输掉了战争。
-
-自林肯1860年大选到1932年大选的72年间，民主党只赢得了三次大选，分别是1884年和1892年葛洛夫·克利夫兰(Grover Cleveland)、1912年伍德罗·威尔逊(Woodrow Wilson)。
-
-1929年到1933年在赫伯特·胡佛(Herbert C. Hoover)的任期发生了大萧条，纽约州州长富兰克林·罗斯福(Franklin D. Roosevelt)登上了总统宝座，一直干到1945年任上，以战争的名义干了四个任期，颇有终生制的意味。二战前后，借着全世界左转的风潮、苏联强大的势力，民主党从罗斯福时代开始做大，真正的全球化沼泽开始了。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05121426/Yalta_summit_1945_with_Churchill_Roosevelt_Stalin.jpg)雅尔塔会议三巨头罗斯福、斯大林、丘吉尔
-（待续）
+该节目是极左翼反言论自由极端分子“媒体很重要”（Media Matters）的审查运动攻击的目标，其两个账户在周四被关闭。
 
 
 
-相关链接：
+> Looks permanent. Time to bring [@WarRoom2020](https://twitter.com/WarRoom2020?ref_src=twsrc%5Etfw) back! [pic.twitter.com/UDC88bGqLu](https://t.co/UDC88bGqLu)
+> — Raheem Kassam (@RaheemKassam) [November 5, 2020](https://twitter.com/RaheemKassam/status/1324494295030730760?ref_src=twsrc%5Etfw)
 
-1+
+
+Raheem Kassam (Twitter account)拉希姆·卡萨姆（推特账户）@RaheemKassam Looks permanent. Time to bring @WarRoom back! 看起来是永久（封号）的。是时候让战斗室回来了！
+
+
+> YouTube just took down Steve Bannon War Room. [pic.twitter.com/q2bAE7CcGY](https://t.co/q2bAE7CcGY)
+> — Silent Majority has to speak now! WE ARE @ WAR! (@LAOFAS) [November 5, 2020](https://twitter.com/LAOFAS/status/1324497797417238536?ref_src=twsrc%5Etfw)
+
+
+
+当该节目掌握亨特·拜登（Hunter Biden）硬盘副本，并揭露其家族根深蒂固的腐败时，该节目在大选前掀起一阵媒体热潮。
+
+
+
+> The totalitarian left [@mmfa](https://twitter.com/mmfa?ref_src=twsrc%5Etfw), specifically [@peltzmadeline](https://twitter.com/peltzmadeline?ref_src=twsrc%5Etfw), has pushed a campaign to have [@WarRoomPandemic](https://twitter.com/WarRoomPandemic?ref_src=twsrc%5Etfw) removed from Twitter and YouTube.
+> 
+> Ok… we'll just use another service? LOL [pic.twitter.com/FYe3TaYTDz](https://t.co/FYe3TaYTDz)
+> — Raheem Kassam (@RaheemKassam) [November 5, 2020](https://twitter.com/RaheemKassam/status/1324497386518028293?ref_src=twsrc%5Etfw)
+
+
+Raheem Kassam (Twitter account)拉希姆·卡萨姆（推特账户）@RaheemKassamThe totalitarian left @mmfa, specifically @peltzmadeline, has pushed a campaign to have @WarRoomPandemic removed from Twitter and YouTube.极权主义左派@mmfa，尤其是@peltzmadeline，已推动一项活动使@WarRoomPandemic被从推特和油管移除。Ok…we’ll just use another service? LOL那好吧…我们将使用其他服务？大笑
+战斗室共同主持人拉希姆·卡萨姆（Raheem Kassam）发推称，他们将转而使用其他服务。
+
+你可以在Parler关注战斗室的最新信息。
+
+[原文链接](https://www.thegatewaypundit.com/2020/11/breaking-steve-bannons-war-room-banned-youtube-twitter-nearly-time/)
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+编辑：[【喜马拉雅战鹰团】](https://spark.adobe.com/page/9tVa7OOTfywPd/)-点击Adobe Spark版
+[!\[\]()!\[\](https://spark.adobe.com/page/9tVa7OOTfywPd/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/9tVa7OOTfywPd/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+0

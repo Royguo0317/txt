@@ -1,62 +1,96 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发：班农作战室被推特和油管同时封号
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/538396/)
+## 盘古相聚 3. 同一个世界、同一片沼泽——从麦卡锡主义到里根政府
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/530686/)
 
-*新闻来源：the gateway pundit《评论家》；作者：卡桑德拉·费尔班克斯（Cassandra Fairbanks）；发布时间： 2020年11月5日*
+作者：香草山文艺组 Tiffany 的早餐 校对/发稿：飞虹
 
-*翻译/简评：Dreamer文童；校对：1818；审核：InAHurry；Page：拱卒*
-
-[!\[\]()!\[\](https://spark.adobe.com/page/9tVa7OOTfywPd/images/021071c9-a3df-41eb-8b9c-da9c2513c863.jpg?asset_id=c20e9a19-ab2e-4c67-9fa0-a46f54c886cc&amp;img_etag=%229233feac01ecf820ccf241b762d809d3%22&amp;size=2560)](https://spark.adobe.com/page/9tVa7OOTfywPd/images/021071c9-a3df-41eb-8b9c-da9c2513c863.jpg?asset_id=c20e9a19-ab2e-4c67-9fa0-a46f54c886cc&amp;img_etag=%229233feac01ecf820ccf241b762d809d3%22&amp;size=1024)
-
-**简评：**
-
-周四，战斗室节目在推特和油管几乎同一时间被封账号。前些日子，战斗室对亨特·拜登（Hunter Biden）硬盘曝光出来的深度家族腐败丑闻，进行了持续的大篇幅报道。此次该节目账号在推特和油管同时间段被封，似乎是幕后力量协调安排的结果。
-
-近期，推特、油管以及其他社交媒体平台肆意限制或封锁账户的势头愈显嚣张。在此次美国大选期间，甚至川普总统的账户亦被限制发推。社交媒体平台不顾后果“自杀式”地限制或封锁账户的行为，已经引起网络用户的强烈不满。推特股票单日暴跌20%只是刚刚开始。最终，选择与邪恶为伍的社交媒体平台将被民众彻底抛弃。言论自由是基本人权，决不能被任何人所剥夺。GTV和GNEWS作为自由发声的平台，将成为社交媒体界一股新生力量。
-
-## 突发：史蒂夫·班农作战室几乎在同一时间被推特和油管封号
-
-推特和油管均在数小时内对史蒂夫·班农作战室(War Room)进行审查，这似乎是明显的协调努力以使他噤声。
-
-该节目是极左翼反言论自由极端分子“媒体很重要”（Media Matters）的审查运动攻击的目标，其两个账户在周四被关闭。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/01003406/WhatsApp-Image-2020-11-01-at-11.33.40.jpeg)
 
 
 
-> Looks permanent. Time to bring [@WarRoom2020](https://twitter.com/WarRoom2020?ref_src=twsrc%5Etfw) back! [pic.twitter.com/UDC88bGqLu](https://t.co/UDC88bGqLu)
-> — Raheem Kassam (@RaheemKassam) [November 5, 2020](https://twitter.com/RaheemKassam/status/1324494295030730760?ref_src=twsrc%5Etfw)
+摘要：冷战的压力和美国的传统，让美国自动走向了纠错的道路。麦卡锡主义虽然失败，但共产主义在美国已是过街老鼠。里根主导了美国重回传统价值观，共和党和民主党的基本盘延续至今。
 
+约瑟夫·麦卡锡(Joseph McCarthy)自1947年起任威斯康星州参议员，直至1957年在任内去世。1950年2月，他宣称手头有一份雇于美国国务院的共产党员和间谍的名单，清理美国共产分子的麦卡锡主义运动开始，首要指向的就是时任民主党总统哈利·杜鲁门(Harry Truman)的内阁，特别是国务院、美国之音、美国军队。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05133952/joseph-McCarthy.jpg)1954年麦卡锡在参议院听证会 图片来源：Getty
+轰轰烈烈的麦卡锡主义让共产主义如过街老鼠般在美国人人喊打。在清理苏联渗透在美国的特务的同时，难免也打击到无辜的人和善意的左派。美国的自愈机制，又一次发挥作用。1954年12月2日，参议院以67对22票通过对麦卡锡的谴责，麦卡锡主义式微。之后的沃伦法院又通过几项判例来打压麦卡锡主义([世纪大案 20：最高法院](https://gnews.org/zh-hans/461127/) )。
 
-Raheem Kassam (Twitter account)拉希姆·卡萨姆（推特账户）@RaheemKassam Looks permanent. Time to bring @WarRoom back! 看起来是永久（封号）的。是时候让战斗室回来了！
+麦卡锡主义的风头过去后，共产主义在美国的日子稍微好过点了，但苏联越来越力不从心。从1952年大选开始，民主党和共和党八年一次轮换，分别是：
 
+– 德怀特·艾森豪威尔(Dwight Eisenhower)-理查德·尼克松(Richard Nixon)
 
-> YouTube just took down Steve Bannon War Room. [pic.twitter.com/q2bAE7CcGY](https://t.co/q2bAE7CcGY)
-> — Silent Majority has to speak now! WE ARE @ WAR! (@LAOFAS) [November 5, 2020](https://twitter.com/LAOFAS/status/1324497797417238536?ref_src=twsrc%5Etfw)
+– 约翰·肯尼迪(John F. Kennedy)-林登·约翰逊(Lyndon Johnson)
 
+– 尼克松-杰拉德·福特(Gerald Ford)
 
+以及民主党一个任期就政绩不佳而下课的吉米·卡特(Jimmy Carter)。
 
-当该节目掌握亨特·拜登（Hunter Biden）硬盘副本，并揭露其家族根深蒂固的腐败时，该节目在大选前掀起一阵媒体热潮。
+对未来影响最深远的事件是中苏交恶。毛泽东不满于尼基塔·谢尔盖耶维奇·赫鲁晓夫(Никита Сергеевич Хрущёв)把斯大林拉下神坛，这意味着将来毛泽东的后人可以有样学样。中苏关系就此恶化。美国的外交政策开始走向分化中苏，打老大拉老二。
 
+在中苏关系紧张时期，亨利·基辛格(Henry Kissinger)主导了尼克松政府对华关系的重大变化，导致了之后一系列的后果，包括：
 
+– 1971年7月和10月基辛格两度秘密访问中国大陆
 
-> The totalitarian left [@mmfa](https://twitter.com/mmfa?ref_src=twsrc%5Etfw), specifically [@peltzmadeline](https://twitter.com/peltzmadeline?ref_src=twsrc%5Etfw), has pushed a campaign to have [@WarRoomPandemic](https://twitter.com/WarRoomPandemic?ref_src=twsrc%5Etfw) removed from Twitter and YouTube.
-> 
-> Ok… we'll just use another service? LOL [pic.twitter.com/FYe3TaYTDz](https://t.co/FYe3TaYTDz)
-> — Raheem Kassam (@RaheemKassam) [November 5, 2020](https://twitter.com/RaheemKassam/status/1324497386518028293?ref_src=twsrc%5Etfw)
+– 1971年10月25日美国放任大陆取代台湾成为联合国安理会常任理事国
 
+– 1972年2月尼克松访华
 
-Raheem Kassam (Twitter account)拉希姆·卡萨姆（推特账户）@RaheemKassamThe totalitarian left @mmfa, specifically @peltzmadeline, has pushed a campaign to have @WarRoomPandemic removed from Twitter and YouTube.极权主义左派@mmfa，尤其是@peltzmadeline，已推动一项活动使@WarRoomPandemic被从推特和油管移除。Ok…we’ll just use another service? LOL那好吧…我们将使用其他服务？大笑
-战斗室共同主持人拉希姆·卡萨姆（Raheem Kassam）发推称，他们将转而使用其他服务。
+– 1979年美国放弃承认中华民国，与共产中国建交
 
-你可以在Parler关注战斗室的最新信息。
+– 邓小平主政时期的改革开放，伴随着外资进入，共产中国的廉价劳动力、市场和跨国资本开始结合
 
-[原文链接](https://www.thegatewaypundit.com/2020/11/breaking-steve-bannons-war-room-banned-youtube-twitter-nearly-time/)
+美国数十年的对华政策以基辛格为基调，这使共产中国的政权没有像苏联和东欧一样被高度遏制，给了中共相当大的生路，也为日后中国发展经济和美国进一步和平发展，并最终反噬美国留下了可能。
 
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+冷战末期，罗纳德·里根(Ronald Reagon)和当时欧洲的保守主义阵营，包括撒切尔夫人(Margaret Thatcher)、教皇约翰·保罗二世(Pope John Paul II)一道，不仅推翻了共产主义盘踞的苏联-东欧政权，也在意识形态上相当成功地清除了共产主义的心魔。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05134521/90.jpg)里根在柏林墙演讲 图片来源：AP
+里根执政时期，共和党和民主党的基本盘完成了翻转。大体上以民主党代表左，以共和党代表右而论，主要的区别包括：
 
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+– 族裔：白人偏右，少数族裔偏左
 
-编辑：[【喜马拉雅战鹰团】](https://spark.adobe.com/page/9tVa7OOTfywPd/)-点击Adobe Spark版
-[!\[\]()!\[\](https://spark.adobe.com/page/9tVa7OOTfywPd/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/9tVa7OOTfywPd/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+– 年龄：中老年偏右，青年偏左
+
+– 产业：农业偏右，工商业偏左
+
+– 学历：低学历偏右，学术精英偏左
+
+– 宗教：虔诚的基督教/天主教徒偏右，无神论偏左
+
+– 地域：南方、山地、中部偏右，沿海偏左
+
+政策上而言：
+
+– 税收：共和党支持低税收，民主党支持高税收高福利
+
+– 商业：共和党支持放松管制，民主党支持增加管制
+
+– 劳工：共和党限制工会，民主党支持工会
+
+– 军事：共和党支持增加军费，民主党支持和平接触
+
+– 持枪权：共和党支持持枪权，民主党反对持枪权
+
+– 堕胎：共和党反对堕胎，民主党支持堕胎
+
+– 非异性婚姻：共和党反对，民主党支持同性及LGBT
+
+– 移民：共和党偏严厉，民主党偏宽松
+
+这基本上形成了冷战后美国的政治光谱。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05134741/16300ccb266d4a72833072b4e2dc5b09.jpg)1974年老布什夫妇骑自行车经过北京天安门 
+图片来源：Photo Associates News Servic/REX/Shutterstock (151807g) 
+里根两个任期后，里根政府在外交、军事、经济和意识形态上的巨大成功，让里根的副总统、“中国人民的老朋友”老布什轻松胜选。1974到1975年，也就是尼克松访华后，老布什任第二任美国驻中国代办(Chief of the U.S. Liaison Office to the People’s Republic of China)，老布什和中国的眉来眼去从那时候开始。之后他主掌中情局，继而任副总统、总统。1989年的六四本来应当是共产中国政权崩溃的机会，也顺应着东欧剧变、苏联解体的国际潮流。然而老布什当局对共产中国小骂大帮忙，让中共逃过一个大劫，并开始了长达30年的反噬美国的进程。
+
+**审核：悟空**
+
+（待续）
+
+相关链接：[盘古相聚 0：引子](https://gnews.org/zh-hans/530411/)，[盘古相聚 1](https://gnews.org/zh-hans/530565/)，[盘古相聚 2.](https://gnews.org/zh-hans/530585/)
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06235914/GNEW-GTV-MOS-LOGO.jpeg)
 0
