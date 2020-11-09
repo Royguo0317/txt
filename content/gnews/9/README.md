@@ -1,93 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国大选，围猎行动
-` erzun250` [轉載自GNews](https://gnews.org/zh-hans/541385/)
+## 三大独裁国家嘲笑美国大选
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/541625/)
 
-HTS-02C-202011-002
+*新闻来源：华盛顿自由灯塔（The Washington Free Beacon）；作者：杰克•贝勒 （Jack Beyrer ）；发布时间：2020年11月5日*
 
-**作者：易恩（喜马拉雅东京樱花团）**
+*翻译/简评：Marialu；校对：感恩；审核：InAHurry；Page：Eric8848*
 
-Tom Graham，自称美国第82空降老兵，推特发布重磅信息：
+**简评：**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09121145/1-44.jpg)
+俄罗斯、中国和伊朗三大独裁国家嘲笑美国民主大选，他们各尽所能利用散布虚假信息、网络黑客行为、造假选票等，企图达到其破坏干预美国大选的目的。
 
-上图英文意思是：在2020年美国总统选举之夜，特朗普及其竞选团队聚集在白宫西侧的艾森豪威尔大厦。
+文中提到俄罗斯嘲笑美国两百多年的民主选举制度；伊朗认为乔•拜登是“更有希望的”候选人；中共国声称“所谓的美国式民主已沦为一个笑话。” 一个没有民主选举的独裁国家对美国民主法制国家的选举，评头论足。这正应了那句：光脚的嘲笑穿鞋的。
 
-据悉，艾森豪威尔大厦是美国的SCIF
+此次美国选举是一场正邪之战，以川普总统为代表的正义力量一定会战胜以乔•拜登为代表的民主党的邪恶势力+外国干预势力，如同圣经《启示录》中记载：世界末日之时善恶正邪对决的终极决战——哈米吉多顿（Armageddon) 大战，不论魔鬼撒但多么会利用谎言及各种手段欺骗世人，最终会被抛进硫磺火湖里。因为“ 耶和华坐着为王，祂要按公正审判众民⋯”
 
-什么是SCIF？（请看下图）
+# **俄罗斯、中国、伊朗嘲笑美国大选结果**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09121419/WhatsApp-Image-2020-11-09-at-22.05.15.jpeg)
+[!\[\]()!\[\](https://spark.adobe.com/page/HOttrU3LqUZX9/images/694fb188-5789-47da-b0df-0e717ffab26f.jpg?asset_id=d58b990a-ff0f-4f4b-8704-082feac2d4ea&amp;img_etag=%226f1188eb4b05089adcfffd37f3058e83%22&amp;size=1024)](https://spark.adobe.com/page/HOttrU3LqUZX9/images/694fb188-5789-47da-b0df-0e717ffab26f.jpg?asset_id=d58b990a-ff0f-4f4b-8704-082feac2d4ea&amp;img_etag=%226f1188eb4b05089adcfffd37f3058e83%22&amp;size=1024)俄罗斯总统弗拉基米尔•普京与伊朗最高领导人阿亚图拉•阿里•哈梅内伊/美联社
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09121430/WhatsApp-Image-2020-11-09-at-22.05.16.jpeg)
+俄罗斯和伊朗官员以及中国媒体继续嘲笑美国总统大选的不确定性。
 
-第二张图片使用百度搜索结果：“敏感信息隔离设施”，我们知道共匪不想让人知道太多，故用词柔和、委婉，但其解释可作为参考。
+俄罗斯外交部发言人玛利亚•扎卡罗娃（ Maria Zakharova）在接受哥伦比亚广播公司(CBS) 采访时说：“美国选举制度明显存在缺陷。” 她说，这些缺点“部分是由于相关立法的陈旧性以及在一些基本点上缺乏监管。”
 
-第一张是维基百科搜索结果：“机密情报隔离设施”。
+俄罗斯已作出严肃认真而广泛的努力（竭尽所能）来破坏美国公众对选举的信心。今年9月，美国联邦调查局（FBI）制裁了一群干预2016年和2018年选举的俄罗斯黑客集团，联邦当局继续严厉打击俄罗斯散布虚假信息的行为。
 
-也就是说SCIF是美国的机密情报隔离设施，这是美国陆军情报网络安全部门使用的一种设施。
+伊朗最高领导人阿里•哈梅内伊（Ali Khamenei）也嘲笑美国大选。
 
-大选之夜，为何川普选择在这个布满机密情报隔离设施的艾森豪威尔大厦？
+哈梅内伊说：“本应举行选举的现任总统说，这是美国历史上最受操纵的选举，”显然他没有意识到美国总统不负责投票。“这样的帝国不会持续太久。”
 
-笔者分析：因川普及其竞选团队正在实时监控欺诈行为，但川普总统的行为是机密，不能泄密，让民主党投票造假暴露无遗，尽收眼底，做实证据，所以需要到艾森豪威尔大厦，以免川普总统的计划被中共和民主党看穿。
+选举前夕，伊朗外交部长穆罕默德•贾瓦德•扎里夫（ Mohammad Javad Zarif）告诉美国媒体，德黑兰（伊朗）认为乔•拜登是“更有希望的”候选人。伊朗还参与了一场虚假信息的宣传活动，以破坏美国对以色列和沙特阿拉伯的外交政策。
 
-下述链接里内容已翻译成中文，大致如下，是关于艾森豪威尔大厦的相关情况及特点：
+彭博新闻社周四报道说，美国当局关闭了92个与伊朗伊斯兰革命卫队有关联的网站，因为这些网站散布虚假信息。
 
-CROFT及其设计团队进行了设施调查，设计章程，完整的建筑/工程设计，规格和RFP准备，以支持将常规行政大楼转变为美国陆军智能化和安全性的敏感分区信息设施（SCIF）指挥中心。佐治亚州戈登堡司令部。内部和外部饰面修改，声音控制，反恐部队保护措施以及电子通信保护。
+尽管中共没有就选举模棱两可的结果发表任何正式声明，但与北京有关联的机构也参与其中。
 
-详情见链接1：[http://www.croftandassociates.com/work-blog/cybercommand-secure-communications-facility](http://www.croftandassociates.com/work-blog/cybercommand-secure-communications-facility)
+一家国有的中共国期刊得出的结论是，“所谓的美国式民主已沦为一个笑话”，隶属中共国的《环球时报》 声称中共国公民观看美国大选报道是为了“嘲笑”和“看滑稽”。
 
-详情见链接2：
+[原文链接](https://freebeacon.com/national-security/russia-china-iran-mock-american-election-returns/)
 
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-> [Eisenhower Executive Office Building – Modernization](https://www.singletonelectric.com/project/eisenhower-executive-office-building-modernization/)
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/HOttrU3LqUZX9/)】-点击spark adobe版
 
-
-
-为进一步证实笔者观点，下述是Tom Graham美国第82空降老兵转发福克斯推特：民主党和中共知道哪个州正在使用装有HAMMER＆SCORECARD的投票机。（HAMMER＆SCORECARD为CIA开发的软件可以在选举中，身处第三国的间谍和黑客可远程操纵选民的选票记帐）
-
-HAMMER＆SCORECARD这种设施只是针对美国人民而部署的。
-
-
-
-查理·沃德（Charlie Ward）博士是川普的货币经纪人和酒店承包商，描述了该“ 大选之夜窃听行动”的部署，以诱捕取证参选举造假人员。
-
-
-
-根据美国军事时报报道，得悉：联邦国民警卫队大选之夜，在至少16个州全天候执行任务，监控网络流量并提供建议，任务范围包括协助网络防御、开展民意调查以及在选举后发生内乱时待命。以此准备，来诱捕取证参选举造假人员，当前涉及盗窃的所有动态都在国民警卫队列表中。
-
-美国军事时报：[https://t.co/BSOplzrmrU?amp=1](https://t.co/BSOplzrmrU?amp=1)
-
-美国最高法院Samuel A.Akito大法官命令,将在宾夕法尼亚州选举截止日期之后，将收到的所有选票和按时收到的选票区分开，将进行选票审核。重新计票由与第一次计票相同的人员/选举委员会进行。审计由武装欺诈调查员进行审计。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09121623/WhatsApp-Image-2020-11-09-at-22.37.41.jpeg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09121644/WhatsApp-Image-2020-11-09-at-22.37.41-1.jpeg)
-
-
-
-
-
-如此巧妙的是，共和党控制着宾夕法尼亚州议会的参、众两院。
-
-更巧妙的是，据下述信息，共和党人控制着其他选举关键摇摆州的参、众两院。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09121931/WhatsApp-Image-2020-11-09-at-22.40.05.jpeg)
-
-![]()
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09121953/WhatsApp-Image-2020-11-09-at-22.40.11.jpeg)
-
-**大****选之夜:**
-
-- 总统在布满机密情报隔离设施的艾森豪威尔大厦
-- 监控网络，协助网络防御
-- Samuel A.Akito大法官命令,将在宾夕法尼亚州选举截止日期之后，将收到的所有选票和按时收到的选票区分开，将进行选票审核
-- 共和党多数议员控制着大选关键摇摆州的参、众两院
-
-
-**种种迹象表面，这是精心策划，缜密安排的一场围猎行动。相信爆料革命的智慧，更相信赋予历史使命的川普总统一方的正义力量，一定会胜利，在恰当的时候，恰当的火候下，中共勾结民主党，伪造投票数据、造假票的行为一定会被揭露，只是时间的问题，我们耐心等待。**
+[!\[\]()!\[\](https://spark.adobe.com/page/HOttrU3LqUZX9/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/HOttrU3LqUZX9/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

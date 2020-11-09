@@ -1,45 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】12港人送中 77 日家属要求公开官派律师资料被拒
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/541074/)
+## 政府是基于被管理者同意而设立的
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/540927/)
 
-搜集：文卡西欧、文燕
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24064746/WhatsApp-Image-2020-10-24-at-15.08.49.jpeg)
+作者：康州农场-GTalk心语堂
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09094425/image2-4.jpeg)
+2020年11月8日，南达科他州（South Dakota）女州长Kristi Noem接受ABC采访和发推特都提到了关于政府本质的问题，即，政府是基于被管理者同意而设立的。 她说“We the people choose our government by consent of the governed.” 她同时指出，当年戈尔和布什的选举，戈尔对选举结果有异议，可以上法庭，那么川普总统和他的7000万选民也应该给予同样的机会。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09094433/image3-2.jpeg)
+Kristi是一位真正的爱国者，她所秉承的是John Locke（约翰洛克）早在1689年匿名出版的《政府论》中提出的民主思想。约翰洛克被称作民主之父，美国国父们的建国理念就来源于他的启发。今天Kristi的一番话，可以说是在二十一世纪的今天，再一次举起了启蒙运动的旗帜。它必将再一次唤起美国人民捍卫民主权利的决心。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09094441/image4-1.jpeg)
+同样是女性，反观台湾总统蔡英文，却迫不及待的向窃取选票，而且尚未获胜的乔拜登发出贺电。请问，菜总统，你有没有问问两千三百万台湾人民同不同意你这样做？台湾人民和美国人民一样，遭受了一次赤裸裸的被代表。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09094455/image5-3.png)
+“政府是基于被管理者同意而设立的”，这是美国政体的基石，这次民主党选举肆无忌惮的舞弊真正触碰的是这一民主基石。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09094511/image6-3.png)
+康州农场心语堂从今天每天发布一篇Gnews的文章，帮助大家了解改变人类历史的民主主张是哪些先贤的智慧结晶？提出的背景和基础是什么？对美国乃至世界民主进程产生的影响是什么？我们相信，当我们真正了解了这段历史，我们就真正了解了为什么这次选举是人类历史的又一次重大变革。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09094520/image7.jpeg)
+我们反复强调新中国联邦人不参与美国政治，但是了解美国民主制度的根基对新中国联邦每个公民都是一种必须，我们希望通过对于什么是“政府是基于被管理者同意而设立的” ,这一民主精神的讲解，开启新中国联邦人的思想启蒙，帮助我们去思考新中国联邦需要什么样的民主制度，如何实现属于中国人的民主。敬请期待。
 
-编撰：文燕
-
-审核: MY
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09103127/image001-16.png)图片：立场新闻
-据【立场新闻】报道，12 港人送中第 77 日，消息人士指，有港人家属今日收到深圳市公安局盐田分局书面回复，拒绝公开当事人「官派律师」资料。盐田分局回复指，相关数据不符规定下「政府信息」定义，因此申请不属该条例适用范围。
-
-据消息人士透露，其中 6 名港人家属早前向盐田当局提出申请，要求公开各人「官派律师」信息。今日各家属接获当局回复，盐田分局指，根据《政府信息公开条例》，政府信息是指行政机关在履行行政管理职能过程中制作或获取，以一定形式记录及保存的信息，家属申请公开刑事案件信息，并非政府信息，因此申请并不适用。
-
-盐田分局又表示，家属如对答复不服，可以在 60 日内向深圳市公安局或盐田区政府申请行政复议，或在 6 个月内依法向盐田区人民法院提出行政诉讼。
-
-由家属自行委托的内地律师，早前多次前往盐田看守所要求会见当事人，惟当局一直以 12 人已各另聘 2 名律师为由，拒绝家属律师会见。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09103135/image003.jpg)有港人家属收到深圳市公安局盐田分局书面回复，拒绝公开当事人「官派律师」资料。 （消息人士提供）
-另外，【看中国】记者指出，官派律师是要防止案件当事人获得真正辩护所产生的，它是由办案单位指定或委讬司法行政机关，依办案单位的要求指派，后续将完成对刑事案件被告人的刑事指控、定罪的律师。
-
-内地律师吴有水认为，官派律师具有“帮助弥补定罪上的证据不足”、“说明办案单位隐瞒非法行为”及“说明办案单位诱骗或者威胁当事人主动认罪”作用。
-
-一名于2020年4月获释的709律师王全璋告诉香港苹果日报，这次12名港人无法与家属及受委讬律师会面，与自己当年的经历很像。
-
-王全璋强调，自己在被拘留期间，官方一共安排了五名律师，“到现在我都不知道名字。”王全璋全部都拒绝了，但当局当时对他说“不管你认不认罪，我算你认罪”，配合就能够“得到一个所谓好的结果。”
-
-战友点评：
-
-在盐田分局给家属的回复信中指“家属如对答复不服，可以在60 日内向深圳市公安局或盐田区政府申请行政复议，或在6 个月内依法向盐田区人民法院提出行政诉讼。”这明显就是当局拒绝向家属提供“官派律师”信息的借口。
-
-据香港电台10月28日报道，至少5家内地律师事务所收到中国司法部通知，禁止律师代理“深圳12港人案”，已经代理的律师必须退出。
-
-709律师王全璋的亲生经历告诉我们，中共利用这种肮脏的手法去压制异见人士，完全没有法律概念，更谈不上尊重法律，旨在以黑箱操作来维持其极权政党
-
-以上观点仅代表笔者本人
-
-资料来源：立场新闻、看中国
-
-[https://www.thestandnews.com/politics/%E9%80%81%E4%B8%AD-77-%E6%97%A5-%E5%AE%B6%E5%B1%AC%E8%A6%81%E6%B1%82%E5%85%AC%E9%96%8B%E5%AE%98%E6%B4%BE%E5%BE%8B%E5%B8%AB%E8%B3%87%E6%96%99%E8%A2%AB%E6%8B%92-%E5%85%AC%E5%AE%89%E5%88%86%E5%B1%80-%E4%B8%8D%E5%B1%AC%E6%94%BF%E5%BA%9C%E4%BF%A1%E6%81%AF/](https://www.thestandnews.com/politics/%E9%80%81%E4%B8%AD-77-%E6%97%A5-%E5%AE%B6%E5%B1%AC%E8%A6%81%E6%B1%82%E5%85%AC%E9%96%8B%E5%AE%98%E6%B4%BE%E5%BE%8B%E5%B8%AB%E8%B3%87%E6%96%99%E8%A2%AB%E6%8B%92-%E5%85%AC%E5%AE%89%E5%88%86%E5%B1%80-%E4%B8%8D%E5%B1%AC%E6%94%BF%E5%BA%9C%E4%BF%A1%E6%81%AF/)
-
-[https://www.secretchina.com/news/gb/2020/09/28/947542.html](https://www.secretchina.com/news/gb/2020/09/28/947542.html)
+Pictures from:
+https://i0.wp.com/www.positivelynaperville.com/wp-content/uploads/2020/09/we-the-people-constitution.jpg?fit=1200%2C867&ssl=1
+https://upload.wikimedia.org/wikipedia/commons/b/b8/John\_Locke.jpg
+https://cdn.i-scmp.com/sites/default/files/styles/1200×800/public/d8/images/methode/2019/04/16/316b3c66-5da0-11e9-bbcc-84176f6dd1e7\_image\_hires\_093015.JPG?itok=lDXWq1zC&v=1555378220
+https://i.ytimg.com/vi/II8Ob3dKm6s/maxresdefault.jpg
+https://www.historyonthenet.com/wp-content/uploads/2017/01/HISTORY-unplugged-1400×1400-1024×1024.jpg
+https://i.ytimg.com/vi/v9VERBPU6\_c/maxresdefault.jpg
 
 0

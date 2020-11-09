@@ -1,14 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [自述文章】主心骨-郭先生
-` JP007` [轉載自GNews](https://gnews.org/zh-hans/540300/)
+## 天网恢恢！大选之夜川普总统的团队目睹了拜登作弊全过程
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/540546/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09095319/%E4%B8%BB%E5%BF%83%E9%AA%A8-%E9%83%AD%E5%85%88%E7%94%9F.png)作者：京都富士会清风明月来、神的带领
-郭先生进山了，不在有直播了。就感觉没有了主心骨一样。3年来每天都差不多能听见郭先生直播，从中能知道自己该干什么能做什么，我说的可不是对咱新中国联邦不信任或对郭先生不信任，我坚信郭先生进山之前所说的。一切都会象郭先生说的那样发生的。
+编辑：文顺
 
-在推特转推，转着转着就被封号啦，怎么办呢  ？该去哪继续传播呢？听有战友说去 菲丝布克  ，我马上去，还没发两个就被封了。推特只好等12小时后解封接着转。等待时间太长该怎么办呢？多亏我们有G-TV、有盖特。我们才有地方传播真相。才不会被封。到了唱票当天  紧张的心就别提了，但是听到川普总统宣布我们赢了，我心一下就放下，开心、高兴  。
+11月7日，据推友Tom Graham披露，在选举之夜，特朗普与其竞选团队聚集在艾森豪威尔大楼西边观看选举结果进程，并透露该处是一个SCIF。
 
-我立马去超市买了一沓啤酒庆祝起来。由于高兴过头不知不觉喝多了 。等第二天睡醒了 赶紧看看还有什么大事 没有，这一看可不得了，拜登反超了，当时唯一的的想法就是怀疑自己喝多了？看错了？柔柔眼睛顿时醒酒了。原来拜登的假选票满天飞，怪不得急忙宣布自己赢了。很是为川普总统担心……直到郭先生出来直播，我才淡定。川普总统一定赢。等待最后举手就职的那一刻。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09100023/image0-54.jpg)
+
+据维基百科信息，SCIF是指敏感**隔离信息设施**，在英美军事、国家安全/国防和情报用法中，是建筑物内的封闭区域，[用于处理敏感](https://en.wikipedia.org/wiki/Sensitive_Compartmented_Information)隔离信息（SCI）类型的[机密信息](https://en.wikipedia.org/wiki/Classified_information)。SCIF可以是永久性的，也可以是临时性的，可以在政府的官方建筑（如白宫的情况[室](https://en.wikipedia.org/wiki/White_House)）、船上、官员私人住宅或酒店房间和其他官员旅行的必需品场所设立。在紧急情况下，在紧急情况下，还可以在紧急情况下快速设置便携式SCIF。
+
+美《军事时报》11月2日刊文《国民警卫队选举日更新：3600多名部队在16个州活动》称，国民警卫队正准备在全国范围内启动，以若干身份支持11月3日大选。这些任务包括协助网络防御、进行民意调查，以及在选举后发生内乱时进行一些支持。并称至少有3 671名警卫队士兵投入这一努力。
+
+原文链接：[https://www.militarytimes.com/news/election-2020/2020/11/02/national-guard-election-day-update-more-than-3000-troops-active-in-14-states/](https://www.militarytimes.com/news/election-2020/2020/11/02/national-guard-election-day-update-more-than-3000-troops-active-in-14-states/)
+
+这也许是大选以来最好的消息之一，原来川普总统早有部署，真可谓“天网恢恢，疏而不漏”。拜登之流企图窃取大选结果而偷盗世界的真相相信很快就会大白于天下。
 
 0

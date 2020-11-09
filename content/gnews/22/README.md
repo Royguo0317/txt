@@ -1,30 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 政府是基于被管理者同意而设立的
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/540927/)
+## 这是假新闻！&#8212;-CNN发布有关川普女婿和夫人劝他认输的消息
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/541218/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24064746/WhatsApp-Image-2020-10-24-at-15.08.49.jpeg)
-作者：康州农场-GTalk心语堂
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09094425/image2-4.jpeg)
-2020年11月8日，南达科他州（South Dakota）女州长Kristi Noem接受ABC采访和发推特都提到了关于政府本质的问题，即，政府是基于被管理者同意而设立的。 她说“We the people choose our government by consent of the governed.” 她同时指出，当年戈尔和布什的选举，戈尔对选举结果有异议，可以上法庭，那么川普总统和他的7000万选民也应该给予同样的机会。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09094433/image3-2.jpeg)
-Kristi是一位真正的爱国者，她所秉承的是John Locke（约翰洛克）早在1689年匿名出版的《政府论》中提出的民主思想。约翰洛克被称作民主之父，美国国父们的建国理念就来源于他的启发。今天Kristi的一番话，可以说是在二十一世纪的今天，再一次举起了启蒙运动的旗帜。它必将再一次唤起美国人民捍卫民主权利的决心。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09094441/image4-1.jpeg)
-同样是女性，反观台湾总统蔡英文，却迫不及待的向窃取选票，而且尚未获胜的乔拜登发出贺电。请问，菜总统，你有没有问问两千三百万台湾人民同不同意你这样做？台湾人民和美国人民一样，遭受了一次赤裸裸的被代表。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09094455/image5-3.png)
-“政府是基于被管理者同意而设立的”，这是美国政体的基石，这次民主党选举肆无忌惮的舞弊真正触碰的是这一民主基石。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09094511/image6-3.png)
-康州农场心语堂从今天每天发布一篇Gnews的文章，帮助大家了解改变人类历史的民主主张是哪些先贤的智慧结晶？提出的背景和基础是什么？对美国乃至世界民主进程产生的影响是什么？我们相信，当我们真正了解了这段历史，我们就真正了解了为什么这次选举是人类历史的又一次重大变革。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09094520/image7.jpeg)
-我们反复强调新中国联邦人不参与美国政治，但是了解美国民主制度的根基对新中国联邦每个公民都是一种必须，我们希望通过对于什么是“政府是基于被管理者同意而设立的” ,这一民主精神的讲解，开启新中国联邦人的思想启蒙，帮助我们去思考新中国联邦需要什么样的民主制度，如何实现属于中国人的民主。敬请期待。
+*多伦多加喜农场 金不換
+校对 文锦 上传 WJ*
 
-Pictures from:
-https://i0.wp.com/www.positivelynaperville.com/wp-content/uploads/2020/09/we-the-people-constitution.jpg?fit=1200%2C867&ssl=1
-https://upload.wikimedia.org/wikipedia/commons/b/b8/John\_Locke.jpg
-https://cdn.i-scmp.com/sites/default/files/styles/1200×800/public/d8/images/methode/2019/04/16/316b3c66-5da0-11e9-bbcc-84176f6dd1e7\_image\_hires\_093015.JPG?itok=lDXWq1zC&v=1555378220
-https://i.ytimg.com/vi/II8Ob3dKm6s/maxresdefault.jpg
-https://www.historyonthenet.com/wp-content/uploads/2017/01/HISTORY-unplugged-1400×1400-1024×1024.jpg
-https://i.ytimg.com/vi/v9VERBPU6\_c/maxresdefault.jpg
+周日，高级竞选顾问杰森·米勒（Jason Miller）在他的推特（Twitter）主页上转推CNN的凯特兰·柯林斯（Kaitlan Collins）的八卦。凯特兰星期六晚上在推特上说川普总统向女婿贾里德·库什纳（Jared Kushner）征求意见，是否应该承认败选。这种说法并不属实。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09110812/1-43.jpg)
+为川普工作的人也说，这则八卦不属实。“这个故事是不正确的。 鉴于多个州的选举结果不确定，其他州严重的选举违规以及缺乏透明度，库什纳建议川普寻求所有可用的法律补救措施以确保准确性。”米勒写道。米勒是川普的长期合伙人，以 “高级沟通顾问及过渡团队沟通总监“ 的身份否认了CNN发布的不实信息。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09110818/2-24.jpg)
+在CNN发布的故事中，一群“新闻工作者”报道了以下内容：
+
+“有两方资源为美国有线电视新闻网提供信息：“唐纳德·川普总统的女婿兼高级顾问贾里德·库什纳已经与总统讨论过放弃大选。
+
+以下是川普的竞选声明中的内容- CNN猜测乔·拜登将成为美国第46届总统后，拜登即刻 “上赶着伪装成赢家”，而比赛 “远未结束。”
+
+川普在声明中说：“在美国人民拿到民主要求应有的真实投票数之前，我不会休息，”该声明说，竞选活动的法律斗争将于周一开始。
+
+拜登和哈里斯（Biden-Harris）的竞选副经理凯特·贝丁菲尔德（Kate Bedingfield）周六晚说 ”正如CNN报道的那样，拜登和川普之间，或者任何竞选代表之间都没有交流，因为当天早些时候拜登已经宣布胜选了。”
+
+民主党人及其媒体盟友积极推动着有关2020年选举状况的不实报道，声称大局已定，并且试图施压川普，在某种程度上有责任向其对手民主党人乔·拜登（Joe Biden）承认败选。
+
+凯特琳·柯林斯（Kaitlin Collins）前天晚上（星期六晚上）曾在推特上发帖上散布八卦。 另有报道称科林斯正在传播另一则八卦：与川普关系密切的人试图劝他承认败选，以及库什纳曾与川普谈过让步的故事。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09110840/3-22.jpg)
+柯林斯有明显的偏向，推特却允许她发布八卦，对她的审查要比对美国总统宽松得多。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09110851/4-14.jpg)
+CNN在众多头条新闻中发表了同样的故事：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09110909/5-12.jpg)
+柯林斯在看似纯粹的宣传中散布错误信息，她为CNN写道：
+
+“总统唐纳德·川普的小圈子因为他继续拒绝接受2020年选举的结果而开始分裂，贾里德·库什纳和第一夫人梅拉尼亚·川普劝他来与总统当选人拜登交好，而他成年的儿子们劝他和同盟一起继续战斗。两方资源给美国有线电视新闻网提供消息：总统的女婿兼高级顾问库什纳已劝他屈服。 另一方资源称：第一夫人私下里说他应该接受选举失败的结果。同时，川普的两个已成年的儿子小唐纳德（Donald Jr.）和埃里克（Eric）敦促盟友继续加紧努力，他们甚至让共和党人和支持者们公开拒绝这一结果，尽管CNN和其他新闻机构预计拜登将在周六胜选。”
+
+主持人布莱恩·斯泰特（Brian Stelter）重复了这个消息：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09110934/6-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09110942/7-9.jpg)
+柯林斯和斯泰特显然给CNN赋予了新名字：“假新闻”。CNN目的只有一个，给人一种川普就是不认输，要从白宫把他赶出去的印象。千万不要上当，这就是他们宣传战的一部分！先说川普女婿劝他认输，现在又是说第一夫人劝他认输，百分之百都是假消息！
+
+*参考链接：*
+
+[BUSTED: Trump Advisor Posts Update to CNN Stories About Jared and Melania Intervention-It’s Fake News](https://djhjmedia.com/kari/busted-trump-advisor-posts-update-to-cnn-stories-about-jared-and-melania-intervention-its-fake-news/)
+
+*图片来源：Twitter*
 
 0

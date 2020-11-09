@@ -1,36 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/9 财经快讯: 美国政府或许分裂? 数字货币新兴市场成为投资热点
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/540802/)
+## 德国沉沦的主流媒体们——谎话连篇的报道里嗅得出浓浓的CCP味道
+` GM06` [轉載自GNews](https://gnews.org/zh-hans/540850/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09090742/Picture28-1.png)
-1, 摩根大通(JPMorgan Chase & Co.)称，由于全球利率较低、美元走软以及美国总统的对抗性可能降低，新兴市场资产在未来几个月都是投资最佳点
+作者：月朗阁
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09092458/image-148.png)
+德国人是个相对实在内敛和谨慎的民族，做事一板一眼，对于新闻的接受度和接受渠道也更倾向于墨守成规。一些当地的主流媒体如Tagsschau（每日新闻）和Spiegel（明镜报）、Bild（图片报）等在德国占有绝对的新闻话语权，大部分老百姓天真的认为他们获得的官方讯息都是真实的。
 
-[https://www.newsmax.com/finance/markets/jpmorgan-sweet-spot-emerging-markets-weak-dollar/2020/11/08/id/996033/](https://www.newsmax.com/finance/markets/jpmorgan-sweet-spot-emerging-markets-weak-dollar/2020/11/08/id/996033/)
+自从加入爆料革命得知了很多中共和世界的真相，我会常常拿来和德国各主流媒体报道做对比，看看德国整体在真相面前是如何作出反应的。今年疫情大爆发以来，中共和美国 以及世界最深层的邪恶势力的阴谋和操控一点点被曝光出来，但德国主流媒体往往一片静默，大家或是装聋作哑，或是完全站在支持中共的立场，不断抨击病毒真相，不断发表各种带风向的吹嘘中共国抗疫得力，打击川普 抬高拜登等荒唐无耻的报道。香港每天被中共蹂躏，您只能在网页的小角落里找到一篇不痛不痒的评论；美国Antifa骚乱，您可以在各大报纸的主版面看到配图火光冲天 一片末日景象的多篇重磅报道；拜登硬盘门这么大的料爆出来，德国媒体竟然也失声了，偶有媒体提到，也不忘发文初衷—在结尾几段又把调调引向了有利拜登和中共的一面。
 
-2, 中国人民银行(PBOC)数据显示，截至10月底，中国的外汇储备为3.128万亿美元，低于9月份的3.143万亿美元，低于路透社对分析师调查所预测的3.150万亿美元。
+最近美国大选是个重要的话题，从9月份开始便明显感觉到德国各大新闻媒体在帮助中共和拜登造势，不可思议的观点常常出现，时刻跟随美国的形势变化做出相应的配合，加大力度误导德国民众。前阵子当美国两党达成反共共识、民意大多转向川普时，德媒居然有文章评论川普当选才是真正让中共心花怒放的，因为川普是商人容易收买，而拜登有原则会更多考虑美国的利益…… 总之，万变不离其宗的是用尽所有手段污蔑川普、美化拜登。
 
-[https://www.newsmax.com/finance/markets/china-october-foreign-exchange-reserves/2020/11/07/id/995916/](https://www.newsmax.com/finance/markets/china-october-foreign-exchange-reserves/2020/11/07/id/995916/)
+11月3日至今美国大选因民主党疯狂的选票造假出现戏剧性变化，全球媒体几乎一致行动掩盖真相、试图用既成事实和假新闻来达到目的。这丑陋中当然少不了德国各主流媒体，大篇幅、主版头条宣布拜登胜利，每天大量文章展望拜登和贺锦丽新政府未来和德国的合作，默克尔第一时间祝贺拜登当选、并表达想要认识贺锦丽的急切心情……恍惚间，一场荒诞的黑色幽默大剧开演……
 
-3, 贝莱德（BLACKROCK）基金投资研究所称，如果美国最终出现一个分裂的政府，这可能意味着有限的财政刺激、债券收益率涨幅受限、通胀预期受到抑制，而风险资产则会得到提振。
+作为了解真相的爆料革命的一份子，虽然之前已经有了足够的心里准备，面对眼前这铺天盖地的恶和猖獗仍然感到目瞪口呆。世界怎么走到了今天如此黑暗的一步，西方民主国家们是一直徒有其表，还是仅仅被中共侵蚀的体无完肤了？！中共集权和对规则、法律的无视，是不是西方顶层所谓精英们一直梦寐以求的最高权利？ 二战以后，共产主义毒瘤是否从没离开过西方世界，只是在暗中不断酝酿发酵、伺机而动？ 这是不是以中共、国际共产联盟、美国沼泽大鳄索罗斯等世界邪恶轴心共同谋划、深耕几十年的颠覆世界文明、奴役全世界百姓的暗黑计划？而郭先生和爆料革命的出现打破他们长久以来的布局，起到了扭转乾坤的作用，在遮天蔽日的黑暗中让世界看到了一束明亮的光，看到了正义最终一定战胜邪恶的希望！
 
-[https://www.newsmax.com/finance/streettalk/blackrock-growth-stocks-divided/2020/11/08/id/996028/](https://www.newsmax.com/finance/streettalk/blackrock-growth-stocks-divided/2020/11/08/id/996028/)
+这次美国大选不是两党大选，而是美国和中共的大选，是正邪力量生死对决的关键阶段。无法想象如果没有爆料革命，以西方人对邪恶轴心中共的无知，如何形成高效的反制策略。如果美国的民主体制一旦被颠覆，其他如德国英国等一众西方国家很难再有力量守住民主阵营，被中共逐一摧毁是早晚的事。我们很庆幸是爆料革命中的一员，能亲眼见证这历史性的时刻，也能通过直播和转推真相等行动成为压死中共和邪恶势力的最后一根稻草！
 
-4, 美国英特尔的成功来自于自己制造芯片。然而，受中共病毒影响，这家硅谷的先锋企业正考虑将其最先进的一些芯片的生产外包, 这是美国失去其制造业首要地位的故事中的一个里程碑。
-
-[https://www.wsj.com/articles/intel-chips-cpu-factory-outsourcing-semiconductor-manufacturing-11604605618?redirect=amp#click=https://t.co/hrpPvDdihA](https://www.wsj.com/articles/intel-chips-cpu-factory-outsourcing-semiconductor-manufacturing-11604605618?redirect=amp#click=https://t.co/hrpPvDdihA)
-
-5, 重要的世界贸易航线被 “黑天鹅 “-集装箱短缺所破坏：半个世纪以来为全球经济服务的带肋钢箱的短缺尤其困扰着泛太平洋航线。这种短缺使新集装箱的购买价格和租赁费率提高了50%，使港口交通陷入瘫痪，增加了附加费用，并减缓了进入假期的交货速度。
-
-[https://www.newsmax.com/finance/streettalk/world-trade-route-black-swan/2020/11/08/id/996035/](https://www.newsmax.com/finance/streettalk/world-trade-route-black-swan/2020/11/08/id/996035/)
-
-6, 在拜登单方宣布其赢得美国总统大选后，中共媒体乐观回应： “中美关系将变得缓和和可控” ， “中国必须成为美国无法打压或破坏稳定的国家，并使其认识到与中国合作是美国实现国家利益的最佳选择。
-
-[https://www.reuters.com/article/worldNews/idUSKBN27P00K](https://www.reuters.com/article/worldNews/idUSKBN27P00K)
-
-7,摩根大通称比特币正在蚕食黄金ETF的需求，机构弃黄金ETF转投比特币。[https://u.today/jpmorgan-says-institutions-ditching-gold-etfs-for-bitcoin](https://u.today/jpmorgan-says-institutions-ditching-gold-etfs-for-bitcoin)
-
-By【秘翻组 – 金融法律团队】
-
-0
+1+

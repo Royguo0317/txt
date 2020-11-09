@@ -1,31 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西德尼·鲍威尔律师证实有45万张选票仅投给拜登 非常可疑
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/540748/)
+## 11/9 财经快讯: 美国政府或许分裂? 数字货币新兴市场成为投资热点
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/540802/)
 
-*喜马拉雅联盟加拿大农场 文来*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09090742/Picture28-1.png)
+1, 摩根大通(JPMorgan Chase & Co.)称，由于全球利率较低、美元走软以及美国总统的对抗性可能降低，新兴市场资产在未来几个月都是投资最佳点
 
-*校对 文锦 上传 WJ*
+[https://www.newsmax.com/finance/markets/jpmorgan-sweet-spot-emerging-markets-weak-dollar/2020/11/08/id/996033/](https://www.newsmax.com/finance/markets/jpmorgan-sweet-spot-emerging-markets-weak-dollar/2020/11/08/id/996033/)
 
-据The Post Millennial 11月8日报道， 西德尼·鲍威尔（Sidney Powell）律师声称，她的团队发现了450,000张选票，仅给乔·拜登（Joe Biden）投票，未给选票中的任何参议员投标。鲍威尔认为，这种单票投票是可疑的，这已部分地证明了将大选结果反转给拜登的“欺诈行为”是真实的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09090242/Sidney-Powell.jpg)图片来源：law.com
-鲍威尔是迈克尔·弗林（Michael Flynn）的辩护律师，她一直在对大选结果提出质疑。她认为，大选中充斥着“通过大规模，有预谋的方法窃取这次选举”的证据，其中包括通过各种手段删除和销毁唐纳德·特朗普的选票，并为乔·拜登制造额外的选票。
+2, 中国人民银行(PBOC)数据显示，截至10月底，中国的外汇储备为3.128万亿美元，低于9月份的3.143万亿美元，低于路透社对分析师调查所预测的3.150万亿美元。
 
-鲍威尔对福克斯的玛丽亚·巴蒂罗莫说：“他们以各种可以想像的方式做到了这一点，从让死人大量投票到绝对欺诈性地制造只为拜登投票的选票” ， “我们已经确定在关键州至少有450,000个选票，这些选票奇迹般地只为乔·拜登留下了印记，没有其他候选人。”
+[https://www.newsmax.com/finance/markets/china-october-foreign-exchange-reserves/2020/11/07/id/995916/](https://www.newsmax.com/finance/markets/china-october-foreign-exchange-reserves/2020/11/07/id/995916/)
 
-鲍威尔指出只有佛罗里达州的选举是遵照法律执行的，美国其他地区应该像他们一样执行选举。
+3, 贝莱德（BLACKROCK）基金投资研究所称，如果美国最终出现一个分裂的政府，这可能意味着有限的财政刺激、债券收益率涨幅受限、通胀预期受到抑制，而风险资产则会得到提振。
 
-鲍威尔指出那些作弊者“使用一种算法来计算他们需要翻转的选票数量，然后使用计算机将那些选票从特朗普转换到拜登，再从其他候选人转换到竞争对手。”
+[https://www.newsmax.com/finance/streettalk/blackrock-growth-stocks-divided/2020/11/08/id/996028/](https://www.newsmax.com/finance/streettalk/blackrock-growth-stocks-divided/2020/11/08/id/996028/)
 
-鲍威尔说：“不仅仅是特朗普总统，还有很多人受到了影响” ， “坦率地说，我们必须在联邦法院努力抗争，以揭露这种严重的欺诈行为和其背后的阴谋，并在每个需要的地方进行重新计数和审计，事实上这在美国大部分地区都是如此。”
+4, 美国英特尔的成功来自于自己制造芯片。然而，受中共病毒影响，这家硅谷的先锋企业正考虑将其最先进的一些芯片的生产外包, 这是美国失去其制造业首要地位的故事中的一个里程碑。
 
-自选举日以来，可疑的实例不断出现，最近的一次发现是佐治亚州富尔顿县。佐治亚州州长周六宣布，他們有“调查员在现场”。特朗普总统在周日下午发布了一篇关于调查的布雷特巴特文章。
+[https://www.wsj.com/articles/intel-chips-cpu-factory-outsourcing-semiconductor-manufacturing-11604605618?redirect=amp#click=https://t.co/hrpPvDdihA](https://www.wsj.com/articles/intel-chips-cpu-factory-outsourcing-semiconductor-manufacturing-11604605618?redirect=amp#click=https://t.co/hrpPvDdihA)
 
-评论：至十一月四日美国总统选举日以来，拜登和他的民主党派支持者使出全部招数操纵和篡改选举结果，各主流媒体也推波助澜，企图跨越宪法之上，非法宣布拜登当选，他们的目的似乎已经得逞了。要知道中共才是这一切的始作俑者，中共在控制了中国人70年后，把魔爪伸向全世界。经过多年的 “蓝金黄“ ，已收买和控制了美国的许多金融、政要和媒体大佬们。至今年一月，中共又通过投放中共生化武器病毒搞乱美国经济，操纵美国大选，企图用拜登代替川普上位，从而控制美国和全世界。庆幸的是郭文贵先生和他的爆料革命的战友们及时地揭露中共的阴谋和拜登家族和中共勾兑的事实，让美国人民及时觉醒。美国的正义力量和七千万川普的支持者正以前所未有的力量行动起来和邪恶的势力抗争，相信曙光就在前面，川普必胜，爆料革命必胜，没有共产党的新中国很快就会到来。
+5, 重要的世界贸易航线被 “黑天鹅 “-集装箱短缺所破坏：半个世纪以来为全球经济服务的带肋钢箱的短缺尤其困扰着泛太平洋航线。这种短缺使新集装箱的购买价格和租赁费率提高了50%，使港口交通陷入瘫痪，增加了附加费用，并减缓了进入假期的交货速度。
 
-*参考连接：*
+[https://www.newsmax.com/finance/streettalk/world-trade-route-black-swan/2020/11/08/id/996035/](https://www.newsmax.com/finance/streettalk/world-trade-route-black-swan/2020/11/08/id/996035/)
 
-[Sidney Powell claims there are 450,000 ballots that voted only for Biden, left the rest blank](https://thepostmillennial.com/sydney-powell-claims-there-are-450-000-ballots-that-voted-only-for-biden-left-the-rest-blank)
+6, 在拜登单方宣布其赢得美国总统大选后，中共媒体乐观回应： “中美关系将变得缓和和可控” ， “中国必须成为美国无法打压或破坏稳定的国家，并使其认识到与中国合作是美国实现国家利益的最佳选择。
 
-2+
+[https://www.reuters.com/article/worldNews/idUSKBN27P00K](https://www.reuters.com/article/worldNews/idUSKBN27P00K)
+
+7,摩根大通称比特币正在蚕食黄金ETF的需求，机构弃黄金ETF转投比特币。[https://u.today/jpmorgan-says-institutions-ditching-gold-etfs-for-bitcoin](https://u.today/jpmorgan-says-institutions-ditching-gold-etfs-for-bitcoin)
+
+By【秘翻组 – 金融法律团队】
+
+0
