@@ -1,22 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 宣言后的拜登应该比川普更痛苦
-` JP007` [轉載自GNews](https://gnews.org/zh-hans/540205/)
+## 路德社精选11/5/2020 早间节目
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/540309/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09060025/%E5%AE%A3%E8%A8%80%E5%90%8E%E7%9A%84%E6%8B%9C%E7%99%BB%E5%BA%94%E8%AF%A5%E6%AF%94%E5%B7%9D%E6%99%AE%E6%9B%B4%E7%97%9B%E8%8B%A6.png)
-昨天，拜登阵营发表了竞选“胜利宣言”。表面看上去风光无限，内心绝对是五味杂陈。无论拜登品行如何，他毕竟在政界混了那么多年，应该比谁都明白自己已经被驾到火炉上了。
+听写：加非 校对：加非 文宣图：艾伦 出品：首尔喜韩农场
 
-其原因如下：
+简介：
 
-1、总统的交接日是1月20日，也就是说，川普总统执政期还有两个多月时间。以川普总统的工作效率，应该会改变很多东西。而且，通过本次竞选暴露出来的人、机构，就更容易处理了。
-
-2、毕竟选举作弊已经暴露并传播出去，川普总统可不是软柿子，一定会彻查到底。所谓没做亏心事儿不怕鬼叫门，那么做了亏心事儿的人，是不是要时时提心吊胆鬼来叫门呢？
-
-3、有人要非正常的把你举到台上，就一定有其所图。那么，已经被举起来的拜登就需要兑现承诺，欠债还钱。而CCP要的应该不是钱那么简单！
-
-4、退一万步说，就算是川普总统真的需要离开白宫，那也是到届离任。而拜登如果不能顺利就任的话，“胜利宣言”已发表，献媚贺电也收了。该放哪儿？那张老脸……
-
-唉～ 新中国联邦的全体爆料革命战友们都替你愁啊！老拜同志，接下来你可咋办
-
+1.朱利安尼先生和团队已经去往费城进行大选法律诉讼战。
+2.宾州还有几百万张选票还在路上。
+3.川普总统任期还有70天，朱利安尼先生说60天就可定罪大选造假。
+4.现在不管谁赢，美国都将进入混乱，这正是中共希望的。
+5.中共造假选票里也有川普总统，目的是浑水摸鱼搞乱美国。
+6.不管谁获得大选胜利，中共想做美国大选的庄家。
+7.21年1月20日之前都无法选出，美国就会瘫痪，必须进入战时状态。
+8.相信美国定海神针一定有后手，两党合作灭共是关键。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09070956/1-26.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09071329/2-46.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09071659/3-37.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09071829/4-15.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09071935/5-14.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09072119/6-14.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09072214/7-8.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09072326/8-7.png)
 0
