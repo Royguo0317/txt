@@ -1,20 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 惊爆:佐治亚州富尔顿县的132,000个选票被识别为不合格！
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/540456/)
+## 重磅！川普团队监控了整个投票作弊过程
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/540534/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09074702/IMG-8556.jpg)
-翻译、编辑：引力波
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09082904/IMG-8560-1.jpg)
+编辑：引力波
 
-引用：[https://www.thegatewaypundit.com/2020/11/huge-breaking-news-georgia-132000-ballots-fulton-county-georgia-identified-likely-ineligible/](https://www.thegatewaypundit.com/2020/11/huge-breaking-news-georgia-132000-ballots-fulton-county-georgia-identified-likely-ineligible/)
+引用：Tom Graham的推文 @tom2badcat
 
-据报道，佐治亚州富尔顿县的选票中有132,000个地址标记发生了变化。 这些选票可能不符合资格。
+在选举之夜，川普及其竞选团队聚集艾森豪威尔大厦。知道那里有什么？ SCIF。 敏感信息隔离设施。 SCIF是陆军情报网络安全部门使用的一种设备。 他们正在实时监控欺诈行为。 他们知道哪个州正在使用装有锤子&积分卡（HAMMER＆SCORECARD）的投票机。 （这是为CIA开发的软件，可以在外国选举中远程操纵选民的投票。）
 
-凯尔·贝克尔（Kyle Becker）和民间权威人士不久前在推特上宣布，佐治亚州富尔顿乡村地区的132,000张选票可能不符合资格。
-
-如上所述，特朗普总统与乔·拜登之间的票差在左派收集了数天选票后约为10,000票。
-
-如果这些选票不合格，那么特朗普总统肯定会赢得佐治亚州的选票。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09074419/%E6%9C%AA%E6%A0%87%E9%A2%98-1-1.jpg)
+川普总统内幕人士查理·沃德（Charlie Ward）博士介绍了此次“小规模行动”的部署，以诱捕参与选举盗窃的人员。 联邦国民警卫队正在至少16个州全天候执行任务，以诱捕这些怪物。 当前涉及选票欺诈的所有摇摆州都在列表中。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09082631/IMG-8560.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09082640/IMG-8561.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09082659/IMG-8562.jpg)
 0

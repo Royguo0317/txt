@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/9/2020 Kevin McCarthy: 每一张选票都应该被计票，每一次重新计票都应该得到响应，每一个质疑都应该得到回答。只有如此美国人才能决定谁赢得了选举
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/541299/)
+## 11/07/2020 每日快讯
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/541339/)
 
-By: 【秘密翻译组G-Translators】
-
+制作：战友之家粤语频道
+主播：【美国小李】 资料收集：【Cathy】【Ruby】【文静】【极寒将至】 视频制作：【咸鱼】
 0

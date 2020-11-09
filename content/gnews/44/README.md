@@ -1,36 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/9 财经快讯: 美国政府或许分裂? 数字货币新兴市场成为投资热点
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/540802/)
+## 斯潘伯格Spanberger在核心会议上批评民主党的策略
+` GM30` [轉載自GNews](https://gnews.org/zh-hans/540812/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09090742/Picture28-1.png)
-1, 摩根大通(JPMorgan Chase & Co.)称，由于全球利率较低、美元走软以及美国总统的对抗性可能降低，新兴市场资产在未来几个月都是投资最佳点
+**作者：tang 777**
 
-[https://www.newsmax.com/finance/markets/jpmorgan-sweet-spot-emerging-markets-weak-dollar/2020/11/08/id/996033/](https://www.newsmax.com/finance/markets/jpmorgan-sweet-spot-emerging-markets-weak-dollar/2020/11/08/id/996033/)
+民主党众议员阿比盖尔·斯潘伯格（Abigail Spanberger）（民主党-Va）在民主党核心小组会议上批评了该党的战略，称这次选举对众议院民主党人来说是“一次失败”。
 
-2, 中国人民银行(PBOC)数据显示，截至10月底，中国的外汇储备为3.128万亿美元，低于9月份的3.143万亿美元，低于路透社对分析师调查所预测的3.150万亿美元。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09091210/1-27.png)
 
-[https://www.newsmax.com/finance/markets/china-october-foreign-exchange-reserves/2020/11/07/id/995916/](https://www.newsmax.com/finance/markets/china-october-foreign-exchange-reserves/2020/11/07/id/995916/)
+根据一次核心会议的呼吁，众议员阿比盖尔·斯潘伯格（Abigail Spanberger）（民主党-Va）周四(11/5/20) 对民主党同胞说：“我们不再需要再使用’社会主义者’或’社会主义’一词。”她补充说：“因为如此, 我们失去了优秀成员，她预测民主党将“在2022年分崩离析”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09091930/2-48.png)
+众议院议长南希·佩洛西（D-Calif。）在电话会议上和当天的新闻发布会上淡化了民主党的遭遇。“我们失去了一些席位，但是正如我所说，我们在特朗普的地区赢得了这些席位。 当被问及是否需要更正该党的信息时，她说：“不，我确实认为我们应该始终在评估和尊重人们所说的话。”
 
-3, 贝莱德（BLACKROCK）基金投资研究所称，如果美国最终出现一个分裂的政府，这可能意味着有限的财政刺激、债券收益率涨幅受限、通胀预期受到抑制，而风险资产则会得到提振。
 
-[https://www.newsmax.com/finance/streettalk/blackrock-growth-stocks-divided/2020/11/08/id/996028/](https://www.newsmax.com/finance/streettalk/blackrock-growth-stocks-divided/2020/11/08/id/996028/)
 
-4, 美国英特尔的成功来自于自己制造芯片。然而，受中共病毒影响，这家硅谷的先锋企业正考虑将其最先进的一些芯片的生产外包, 这是美国失去其制造业首要地位的故事中的一个里程碑。
 
-[https://www.wsj.com/articles/intel-chips-cpu-factory-outsourcing-semiconductor-manufacturing-11604605618?redirect=amp#click=https://t.co/hrpPvDdihA](https://www.wsj.com/articles/intel-chips-cpu-factory-outsourcing-semiconductor-manufacturing-11604605618?redirect=amp#click=https://t.co/hrpPvDdihA)
 
-5, 重要的世界贸易航线被 “黑天鹅 “-集装箱短缺所破坏：半个世纪以来为全球经济服务的带肋钢箱的短缺尤其困扰着泛太平洋航线。这种短缺使新集装箱的购买价格和租赁费率提高了50%，使港口交通陷入瘫痪，增加了附加费用，并减缓了进入假期的交货速度。
-
-[https://www.newsmax.com/finance/streettalk/world-trade-route-black-swan/2020/11/08/id/996035/](https://www.newsmax.com/finance/streettalk/world-trade-route-black-swan/2020/11/08/id/996035/)
-
-6, 在拜登单方宣布其赢得美国总统大选后，中共媒体乐观回应： “中美关系将变得缓和和可控” ， “中国必须成为美国无法打压或破坏稳定的国家，并使其认识到与中国合作是美国实现国家利益的最佳选择。
-
-[https://www.reuters.com/article/worldNews/idUSKBN27P00K](https://www.reuters.com/article/worldNews/idUSKBN27P00K)
-
-7,摩根大通称比特币正在蚕食黄金ETF的需求，机构弃黄金ETF转投比特币。[https://u.today/jpmorgan-says-institutions-ditching-gold-etfs-for-bitcoin](https://u.today/jpmorgan-says-institutions-ditching-gold-etfs-for-bitcoin)
-
-By【秘翻组 – 金融法律团队】
+[https://www.washingtonpost.com/video/politics/spanberger-criticizes-democrats-strategy-in-caucus-call/2020/11/05/6ec2b368-258a-4061-9738-d83ee8971c3c\_video.html?itid=lk\_inline\_manual\_7](https://www.washingtonpost.com/video/politics/spanberger-criticizes-democrats-strategy-in-caucus-call/2020/11/05/6ec2b368-258a-4061-9738-d83ee8971c3c_video.html?itid=lk_inline_manual_7)
 
 0
