@@ -1,133 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美空袭无人机售往台湾
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/538431/)
+## 朱利安尼 推文系列 4 （2020年11月6-7日）
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/538738/)
 
-*新闻来源：The Washington Times《华盛顿时报》；作者：Bill Gertz；发布时间： 2020年11月4日*
+*新闻来源：朱利安尼 推文；作者：朱利安尼；发布时间：2020年11月6-7日*
 
-*翻译/简评：萝卜丝小姐；校对：Beicy-数学老师；审核：InAHurry；Page：拱卒*
+*翻译/简评：Beicy-数学老师；校对/审核：TCC；Page：拱卒*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/PHjE3sWbnj4eK/images/16536b73-6c51-433c-8f1f-023c750b9eb2.jpg?asset_id=169b6bcb-5cc9-46a0-8d9d-8f235623ab5e&amp;img_etag=%22d3e213c28baa29b2e474f4d72a0a7aae%22&amp;size=2560)](https://spark.adobe.com/page/PHjE3sWbnj4eK/images/16536b73-6c51-433c-8f1f-023c750b9eb2.jpg?asset_id=169b6bcb-5cc9-46a0-8d9d-8f235623ab5e&amp;img_etag=%22d3e213c28baa29b2e474f4d72a0a7aae%22&amp;size=1024)MQ-9天际守护者无人机。图片：通用原子公司
+[!\[\]()!\[\](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/e40d3aaf-eb82-4a0b-9487-4a1a7b366622.jpg?asset_id=6a26c8d9-1842-43c9-8f76-97da10054248&amp;img_etag=%22739babda53d62f0e4c232732eadd0148%22&amp;size=1024)](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/e40d3aaf-eb82-4a0b-9487-4a1a7b366622.jpg?asset_id=6a26c8d9-1842-43c9-8f76-97da10054248&amp;img_etag=%22739babda53d62f0e4c232732eadd0148%22&amp;size=1024)
 
-**简评：**
+# **大选投票结束, 战斗才刚刚开始。**
 
-比尔. 格兹先生一如既往地清醒，一针见血地指出了中共威胁世界稳定与和平，世界面临进入专制时代的风险。如果中共取得胜利，那我们的生活将会像奥威尔在小说1984中描述一样，活在监控下，彻底失去民主和自由。这是切切实实存在的风险。川普政府正是意识到中共威胁，才出售如此高端的武器给台湾。虽然我们只是小蚂蚁，但其实国际政治跟我们每个人息息相关，希望大家可以尽一份力，加入爆料革命，加入新中国联邦，消灭共产党。
+“停止偷窃”组织是川普总统的支持者自发成立的网站, 在成立后的24小时, 就有30多万美国选民加入。朱利安尼先生和”停止偷窃”组织一起, 发布了针对大选中舞弊造假事实的举报电话, 准备下一步的诉讼战。
 
-## 空袭无人机售往台湾
+郭文贵先生早就警告: 美国大选会是”荒唐滑稽的结果”。朱利安尼先生日前的推文, 也报道了其中一个荒唐的事情: 至少有两万一千多名死者参加了宾夕法尼亚州的投票!
 
-[!\[\]()!\[\](https://spark.adobe.com/page/PHjE3sWbnj4eK/images/03c0a70c-f11e-4f3a-9c98-a52086cd3305.jpg?asset_id=29272d6d-ea5c-4a5d-8bb2-fe36b5c80169&amp;img_etag=%2285c01a6031fda5942a51d2542d90e163%22&amp;size=2560)](https://spark.adobe.com/page/PHjE3sWbnj4eK/images/03c0a70c-f11e-4f3a-9c98-a52086cd3305.jpg?asset_id=29272d6d-ea5c-4a5d-8bb2-fe36b5c80169&amp;img_etag=%2285c01a6031fda5942a51d2542d90e163%22&amp;size=1024)美国国会被通知对台出售无人机
+朱利安尼先生能否将”世纪选举盗窃案”的犯罪集团绳之以法?
 
-川普政府正在加紧努力，以加强台湾的防御，这周宣布其最新的军售方案包括高级的能够发射导弹的第一传输“收割者”无人机。美国国务院批准向台湾出售四架MQ-9 “收割者”无人机的计划，价值约6亿美元。
+**爆料革命的战友们, 加油传播真相!**
 
-五角大楼宣布，国务院已经审查并批准了最新的交易，称“收割机”是“准备好的武器”。
+- **推文1: 2020年11月6日 20点44分发布**
 
-“收割者”是美国最有效的猎人杀手无人驾驶飞机之一，可以进行长时间的高空飞行。这个著名的武器已在中东用于突袭，包括定点清除恐怖主义领导人。
 
-无人机最多可装备四枚AGM-114“地狱火”空对地导弹或两枚500磅重的GBU-12 “铺路者”二型激光制导炸弹。“收割者”还可以发射联合直接攻击炸弹，即JDAM。
+![]()![](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/5bf3c996-40f7-4574-85b3-046b6b8b3c6e.jpg?asset_id=ef033b6b-0bce-40be-bfc8-fd5f05f3fa1d&amp;img_etag=%222800bd7ebe59f4a3a768e82bc40285e0%22&amp;size=1024)
 
-未来卖往台湾的武器套餐中可能包括“毒刺”空空导弹和反导拦截器。
+(置顶信息) 世纪选举盗窃案 (https://twitter.com/RudyGiuliani)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/PHjE3sWbnj4eK/images/4f7e028c-f193-4287-90b4-21cad4a19cad.jpg?asset_id=80b17fcd-1da0-4d32-a06c-78b2471a5686&amp;img_etag=%22462f7b67ca9caec230495b61681db1d5%22&amp;size=2560)](https://spark.adobe.com/page/PHjE3sWbnj4eK/images/4f7e028c-f193-4287-90b4-21cad4a19cad.jpg?asset_id=80b17fcd-1da0-4d32-a06c-78b2471a5686&amp;img_etag=%22462f7b67ca9caec230495b61681db1d5%22&amp;size=1024)
+鲁迪-朱利安尼的分析在这里:
 
-台湾在2005年购买的400架“地狱火”导弹来配备这次的无人机是完全没问题的。
 
-国防安全合作局已于周二将批准书发送给国会。
 
-熟悉此项转让的一位高级政府官员说：“这次出售将提高台湾的自卫能力。” “台湾是MQ9 ‘收割者’ 的第一个非北约+5接受国。这是向前迈出的重要一步。”
+- **推文2: 2020年11月7日 12点07分发布**
 
-交易中未包括导弹，交易包括两个地面站，一个瞄准系统以及海上巡逻雷达和电子监视系统。
 
-五角大楼在一份声明中说，这次出售“符合美国的国家、经济和安全利益，支持接收方继续努力，使其武装部队现代化并保持可信的防御能力。”
+[!\[\]()!\[\](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/34093325-b796-41e6-93d3-4298e3e41e94.jpg?asset_id=70a381ca-73d2-4854-9dc2-e635c3a80c81&amp;img_etag=%22852b680f789eae0838025739e13b41fa%22&amp;size=1024)](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/34093325-b796-41e6-93d3-4298e3e41e94.jpg?asset_id=70a381ca-73d2-4854-9dc2-e635c3a80c81&amp;img_etag=%22852b680f789eae0838025739e13b41fa%22&amp;size=1024)
 
-这些无人机将提高台湾”应对当前和未来威胁的能力，提供及时的情报、监视和侦察（ISR）、目标获取以及反陆、反海和反潜攻击能力，以保障台湾的安全和防御。这种能力威慑了区域性威胁，并将加强[台湾]的自卫。”
+美国人给我们提供了这么多选举不当行为的证据，多得需要个“全职工＂夠时间跟进。一些有力证据的案件很快就会被判下来了。(https://twitter.com/RudyGiuliani/status/1324865945395994628)
 
-这些无人机是由位于圣地亚哥的通用原子航空系统公司制造的。
+- **推文3: 2020年11月6日 23点24分发布**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/PHjE3sWbnj4eK/images/91802ec0-db87-42b9-afd9-8f1f21120614.jpg?asset_id=e1029534-8556-4505-b921-6ed3851dcf22&amp;img_etag=%22d1c0eeda4de81a424fed411f2d0ff86e%22&amp;size=2560)](https://spark.adobe.com/page/PHjE3sWbnj4eK/images/91802ec0-db87-42b9-afd9-8f1f21120614.jpg?asset_id=e1029534-8556-4505-b921-6ed3851dcf22&amp;img_etag=%22d1c0eeda4de81a424fed411f2d0ff86e%22&amp;size=1024)MQ-9B-SeaGuardian的概念图。通用原子公司图片
 
-在宣布无人驾驶飞机销售之前，（美国）宣布了对台湾的价值约42亿美金的其他武器销售，包括鱼叉反舰导弹和空射陆攻飞弹远程巡航导弹。
+[!\[\]()!\[\](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/38082f8a-b679-4aa6-88ea-1414cd377fff.jpg?asset_id=9460bb9e-64e4-4759-be22-96a07e15259f&amp;img_etag=%22a19a512c7af1f0984f8e43f9704e6c6e%22&amp;size=3055)](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/38082f8a-b679-4aa6-88ea-1414cd377fff.jpg?asset_id=9460bb9e-64e4-4759-be22-96a07e15259f&amp;img_etag=%22a19a512c7af1f0984f8e43f9704e6c6e%22&amp;size=1024)
 
-“这是川普总统领导下向台湾进行的第十次武器销售，也是美国政府两周内第三次向我国提供主要防御武器，这将使台湾更有能力和信心捍卫台湾海峡的和平。”台北外交部在一份声明中说。
+＃停止偷窃。告诉我们你所看到的。图片：帮忙停止压制选举人不正常之事与诈欺（告诉我们你正看到的）报告案例：http://djt45.co/stopfraud拨打电话：(888) 503-3526 (888) 503-3526(https://twitter.com/RudyGiuliani/status/1324855288604831745)
 
-最近的武器出售引来了来自中共国的愤怒谴责以及北京对三个早前向台湾出售过武器的美国国防承包商实施制裁。
+- **推文4: 2020年11月6日 16点17分发布**
 
-国务卿迈克·蓬佩奥（Mike Pompeo）在最近的一次采访中说，正在密切关注中共国对台湾的猛烈(外交)攻击。
 
-他说：“最主要的担忧来自于这样一个事实：，[中共国]已表明它无力履行自己的承诺。”
+![]()![](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/01b47ad3-217d-4adc-a3cb-08bd4c75b17e.jpg?asset_id=ce392fae-52f5-4dd7-bf6a-3b3a80417142&amp;img_etag=%22ccdb682b3b8035903be25b9e4367c3aa%22&amp;size=1024)
 
-中共国外交部发言人汪文斌谴责“收割者”的出售，并敦促美国政府取消出售。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/PHjE3sWbnj4eK/images/89f2d6c9-d296-44c6-92ca-e85dc93170b8.jpg?asset_id=8c1da21e-f53f-414f-84fb-6390f48df2e2&amp;img_etag=%22c645a32e3c244fe3778fe6b294ddda3b%22&amp;size=2560)](https://spark.adobe.com/page/PHjE3sWbnj4eK/images/89f2d6c9-d296-44c6-92ca-e85dc93170b8.jpg?asset_id=8c1da21e-f53f-414f-84fb-6390f48df2e2&amp;img_etag=%22c645a32e3c244fe3778fe6b294ddda3b%22&amp;size=1024)
-
-他说：“中共国将采取合理和必要的措施，坚定维护国家主权和安全利益。”
-
-自从美国政府改变1987导弹技术控制制度的政策以来，这是首次销售“收割机” 。 在7月份之前，限制像“收割机”这样的无人机的出口。
-
-国际评估与战略中心的中国专家里克·费舍尔(Rick Fisher)说，无人机的销售为台湾提供了关键的瞄准能力，以支持最近出售的短程导弹，陆攻飞弹和“鱼叉”导弹。
-
-他说：“需要MQ-9来确保导弹找到并达到目标，无论是人民解放军的入侵船或是在福建省聚集入侵台湾海峡的部队。”
-
-**史迪威(Stilwell)关于中共国恶性影响的(演讲)**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/PHjE3sWbnj4eK/images/5f67be85-6c76-46d5-846d-07bff9f5d7ce.jpg?asset_id=36235155-e77d-431e-9b60-c4b1591caf5a&amp;img_etag=%22602bd10fc3b0cf65e2d4cdcbbca27190%22&amp;size=2560)](https://spark.adobe.com/page/PHjE3sWbnj4eK/images/5f67be85-6c76-46d5-846d-07bff9f5d7ce.jpg?asset_id=36235155-e77d-431e-9b60-c4b1591caf5a&amp;img_etag=%22602bd10fc3b0cf65e2d4cdcbbca27190%22&amp;size=1024)
-
-东亚和太平洋事务助理国务卿戴维·史迪威（David Stilwell）在最近的一次讲话中说，中国共产党参与了大规模的腐败、胁迫和秘密行动计划，这些计划对美国安全构成威胁，必须予以制止。
-
-史迪威在东京网络研讨会上对胡佛研究所说：“中国共产党在挑战我们的自由开放社会。” “美国人民和世界各地朋友的繁荣，自由和安全受到威胁，这取决于我们如何应对这一挑战。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/PHjE3sWbnj4eK/images/0bc3757b-efa1-41a0-9940-c884ad255d4b.jpg?asset_id=afc1978f-6f95-406b-a8ba-86793f509844&amp;img_etag=%22eab6e94bdfa7d1925eb484e633849318%22&amp;size=2560)](https://spark.adobe.com/page/PHjE3sWbnj4eK/images/0bc3757b-efa1-41a0-9940-c884ad255d4b.jpg?asset_id=afc1978f-6f95-406b-a8ba-86793f509844&amp;img_etag=%22eab6e94bdfa7d1925eb484e633849318%22&amp;size=1024)David Stilwell
-
-曾在中国担任公务员的已退休的空军旅长史迪威（Stilwell）表示，在世界范围内开展一项重大的全球防御计划以应对北京的恶性影响，是一项艰巨而重大的任务。
-
-他认为，中国共产党正在进行 “敌视我们的民主、开放和个人尊严等基本政治原则” 的行动。
-
-他补充说，中共国在影响力活动中同时采纳了私营部门和政府的目标，因此，所有社会机构都需要了解中共国的战略并采取相应的步骤来应对威胁。
-
-他说，中国的影响力运作是该政权如何以对抗性方式与世界互动的基础。
-
-史迪威说：“我们可能更愿意简单地将中国视为贸易伙伴或伟大文明的故乡，但今天的[共产党]对邻国采取了敌对姿态。” “不仅仅是今天。这是一个长期的过程。我们今天意识到了。”
-
-史迪威说，中共国的目标是反对稳定或尊重法治，而北京的战略是咄咄逼人的，是侵入性的。
-
-他说：“中共国不仅拒绝我们的民主政治原则，并且将其视为可以利用的主要突破口。”
-
-对抗中共国行动和减轻风险的关键是寻求互惠关系，这是川普政府一直试图做的。
-
-“互惠是国际关系中的基础。你必须付出努力，”史迪威先生说。
-
-另一个工具是更好地协调与盟友（的关系）。中共国方面说的是，这是美国与中共国的斗争，但是川普总统政府通过寻求来自亚洲和欧洲的国家的支持来（与中共）对抗。
-
-史迪威说：“世界越来越意识到中共如何利用其外国活动来影响，干涉和胁迫(世界)。这种认识令许多人感到不安，甚至震惊，因为数十年来，美国和其他国家基于对我们的外交，贸易和投资的共同繁荣与信任的乐观诚意期望，与中共国建立了联系。过去这多次成功了。”
-
-可是，中共领导人选择了“武器化”安排。他说，北京的活动不是互惠互利，而是“系统地掠夺和霸权”。
-
-史迪威说：“中共想要控制，至少要在世界范围内在公共言论和政治决策上拥有否决权，” 他指出中共国国家主席习近平将这些活动称为执政党的“法宝”。
-
-他说，北京已经利用其经济实力欺负了万豪和梅赛德斯-奔驰等公司，迫使这些公司要么鹦鹉学舌，要么面临国家支持的抵制。
-
-他指出，共产党还使用了有关冠状病毒(COVID-19)的虚假信息。这些活动由另外40,000名工人在一个称为“统一战线工作部”的部门进行。
-
-其他部门包括外交部、中央宣传部、国家安全部、教育部、国际联络部、政治工作部、中宣局和人民解放军。
-
-美国官员说，这些实体被用来指导其他准官方阵线团体，例如孔子学院。
-
-史迪威说：“总的来说，我们面临着大量故意遮掩身份的中国共产党官员、代理人和联络员在我们的社会中占便宜。”
-
-他说，中共国的统治者希望为全世界制定规则，并将自由开放的社会视为威胁。
-
-史迪威说：“(我们要) 意识到未来的中华治世完全是侵略性的，这是对人类自由的蔑视和践踏。”
-
-“以共产党为领导的世界将会需要世界服从于一个北京的非民选集团，而不是一个以规则为基础的国际秩序，和平解决争端，尊重主权和法制的国家。同时，加上监控技术的进步，[并]有可能使整个世界面临进入专制时代的危险。”
-
-[原文链接](https://m.washingtontimes.com/news/2020/nov/4/mq-9-reaper-drones-sold-taiwan/?fbclid=IwAR3KII25Wt6N7qPWXq6214hNSPlLg67b7a9TVgG0kuv99Wt8nAIxMOcdIis)
+宾夕法尼亚州选民名册上至少有2万１千名死者”至少有9212名登记人已死亡5年，至少有1990名登记人已死亡10年，至少有197名登记人已死亡20年”。(https://twitter.com/RudyGiuliani/status/1324747799641100288)
 
 [点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
 [点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-编辑：[【喜马拉雅战鹰团】](https://spark.adobe.com/page/PHjE3sWbnj4eK/)
+编辑：【喜马拉雅战鹰团】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/PHjE3sWbnj4eK/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/PHjE3sWbnj4eK/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

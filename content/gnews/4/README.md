@@ -1,27 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 选票调查进行时
-` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/537960/)
+## 参议员林赛·格拉汉姆发表声明：“总统先生，不要屈服，战斗到底”
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/538317/)
 
-喜马拉雅的文雅 （雅典娜农场）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/08100242/1541268-investigation-1508951940-400x230-removebg-preview.jpg)
-11月8日早，川普总统发推文：“我们应该看看选票。我们才刚刚开始制表阶段。我们应该看看这些指控。我们看到许多宣誓书涉及选民欺诈行为。我们国家有了选举问题的历史。在宾夕法尼亚州，最高法院大法官命令，要求他们把截止日期之后收到的选票分开。阿里託大法官的会介入。那是一大批选票。再说系统问题，这是关于如何对这些选票进行身份验证的，因为如果系统中存在有关身份验证的问题，那将严重影响整个选举，而且让我担心的是，费城这样的城市收到了一亿多封邮寄选票。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/08121101/IMG-8533.jpg)
+翻译、编辑：引力波
 
+引用：[https://www.mediaite.com/election-2020/lindsey-graham-says-trump-has-not-lost-the-election-do-not-concede-mr-president-fight-hard/](https://www.mediaite.com/election-2020/lindsey-graham-says-trump-has-not-lost-the-election-do-not-concede-mr-president-fight-hard/)
 
+近日，关于美国总统大选的结果纷争不断，川普总统表示自己已经赢得了大选，并指控此次选举存在严重欺诈。对此，美国参议员林赛•格拉汉姆（Lindsey Graham）表示支持。
 
-> “We should look at the votes. We’re just beginning the tabulation stage. We should look at these allegations. We’re seeing a number of affidavits that there has been voter fraud. We have a history in this country of election problems. In Pennsylvania you had an order by a…
-> — Donald J. Trump (@realDonaldTrump) [November 8, 2020](https://twitter.com/realDonaldTrump/status/1325432465415163904?ref_src=twsrc%5Etfw)
+林赛•格拉汉姆（Lindsey Graham）是现任南卡罗来纳州的联邦参议员，他是在美东时间11月9日早上与福克斯新闻台的玛丽亚•巴蒂罗莫（Maria Bartiromo）的采访连线中发表评论的：
 
+他说：“这是一场有争议的选举，媒体不能决定谁来当总统。如果媒体能决定，那么你永远不会再有共和党总统（暗指美国媒体几乎都由左派控制），所以我们不会理睬媒体的说法。
 
+同时，他也支持川普团队指控此次选举存在舞弊的说法。他表示：“如果共和党不去挑战和改变美国的选举制度，那么以后再也不会有另一个共和党总统当选。”
 
-随后川普总统继续发推，“我们相信这些人是小偷。大城市的机器损坏了。这是一次偷窃的选举。英国最好的民意调查专家今天早上写道，这显然是一次被盗取的选举，无法想像拜登能在一些州甚至超过了奥巴马。重要的是，他们偷走了他们一定要偷的东西。底特律选票则存在一系列问题。”
+格拉汉姆说：“特朗普总统不应该让步，甚至对于密歇根这个早就宣布拜登获胜的州也不应该放弃。”他还告诉共和党候选人约翰·詹姆斯不要让步，因为“这些计票机没有通过测试。”
 
+他宣称“我们不能让媒体统治美国”，并且他对于乔·拜登（Joe Biden）是如何在决胜州获得比奥巴马还要多的选票感到困惑。
 
+上周被Twitter标记为错误信息的福克斯新闻主持人玛丽亚说：“您提出了一个很好的观点，您看到了这一点，他比奥巴马总统获得了更多的选票。您也做的很好，虽然您的对手（民主党人）仅在第三季度就筹集了5700万美元，打破了参议院的纪录，但选民们还是投票赞成你连任，而我们刚刚从凯文·麦卡锡（Kevin McCarthy）（众议院共和党领袖）那里听到的选票也是如此（成功连任）。我感到奇怪的是，在这种情况下（参众两院共和党都保持优势），特朗普总统仍然输掉了大选。”
 
-> “We believe these people are thieves. The big city machines are corrupt. This was a stolen election. Best pollster in Britain wrote this morning that this clearly was a stolen election, that it’s impossible to imagine that Biden outran Obama in some of these states.
-> — Donald J. Trump (@realDonaldTrump) [November 8, 2020](https://twitter.com/realDonaldTrump/status/1325442336957018112?ref_src=twsrc%5Etfw)
+格拉汉姆问道：“你如何在参众两院占席，而让川普总统败北？”
 
-
+他在采访结束时表示：“川普没有输。总统先生，请不要让步，战斗到底。”
 
 0
