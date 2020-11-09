@@ -1,30 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆革星评：川普总统将在战场州举行全国性集会
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/541646/)
+## 爱沙尼亚内政部长因批评美国总统大选“存在造假”而辞职
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/541934/)
 
-多伦多加喜农场 文星（一号）
+多伦多加喜农场 熊妈妈
 
-校对上传 XM
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09135658/%E5%9B%BE%E7%89%878.jpg)图片来源：amp.topwar
-在11月3日这个美国传统的大选结束日之后，美国社会揭露拜登集团大选造假作弊的信息此起彼伏。川普总统不仅立即组成了朱利安尼、布林·鲍威尔律师为代表的法律团队开始在多州进行大规模的法律行动，据称还将举行全国性的大型集会，揭露大选舞弊，还原选票真相。
+校对上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09172710/%E7%88%B1.jpg)图片来自 US News & World Report
+11月9日，爱沙尼亚Delfi报报道，爱沙尼亚内政部部长马尔特·赫尔姆（Mart Helme）因为批评美国大选的声明而辞职。
 
-据人气很旺的瑞安·弗尼尔（Ryan·Fournier）11月8日发推披露：“川普即将在战场州进行全国性的大型集会。川普总统真是一个不可思议的强人”。其中提到的战场州，可能是指宾州、亚利桑那、乔治亚、内华达州等摇摆州，是这些州的选票后来畸形、不正常的变化导致川普总统落后。瑞安·弗尼尔是美国政治评论员和年轻的共和党战略家，以协助川普竞选总统而闻名。
+赫尔姆表示，“我没有做任何会破坏爱沙尼亚国防的事情。我没有说任何美国主流媒体没有说的话，特别是自由的美国媒体。爱沙尼亚媒体从来不告诉人民真相，但我说了，那就是选举存在造假！”
 
-众所周知，此前全国已有Stop the steal 的7100多万人集会声援川普总统，民意强大。而川普总统再次举行全国性集会，无疑更会带动美国社会的民意觉醒，唤醒美国精神，让美国的民主、自由、法治真正名至实归。果真集会起来，一定又是撼动天地。
+赫尔姆补充说，获得必要选票的乔∙拜登还不是美国总统，只有在所有法律程序完成后，他的权力才会得到确认。
 
-集会的目的，也会影响更多的参与人积极出来作证，进一步揭露出拜登集团大选过程中舞弊造假的违法犯罪行为，推动尽快还原选票真相。目前，川普法律团队正在全国范围内调查取证，已有几十个证人和录像证明大选中的各种违法行为，并且将于11月9日在宾州提起第一个选票欺诈案诉讼。
+早些时候，在接受TRE 广播电台采访时，赫尔姆和财政部长马丁·海尔姆（Martin Helme）表示，他们怀疑美国选举的完整性。
 
-参考链接：
+财政部长海尔姆表示，“在我看来，毫无疑问，这些选举是被操纵的。”
 
+内政部长赫尔姆补充说，“深蓝州及其背后的力量使乔∙拜登取得了胜利。”
 
+爱沙尼亚总理朱里·拉塔斯（Juri Ratas）批评他们的话，指出基于”假新闻”对美国选举过程进行批评的言论对于部长来说不合时宜。
 
-> President Trump is going to be holding rallies in battleground states across the country.
-> 
-> This man is incredible!
-> — Ryan Fournier (@RyanAFournier) [November 9, 2020](https://twitter.com/RyanAFournier/status/1325625005661696000?ref_src=twsrc%5Etfw)
+目前，美国主流媒体和多国政要都大肆宣传乔∙拜登在美国2020总统大选中获胜，甚至一边倒地对民众进行洗脑灌输。但是，现任美国川普总统表示，选举“还没有结束，在过去的选举中，有许多与邮寄选票有关的违法行为。” 自11月9日以来，川普总统已承诺就此展开法律斗争。
 
+世界目前都处于对乔∙拜登所谓的赢得美国大选的虚假宣传中，所有的权力、舆论都把真话掩埋，甚至对说真话的人进行迫害，爱沙尼亚内政部长的遭遇就是最明显的实例。但是，真相、民意不会总被掩盖，在每天与恶魔的斗争中这些都将浮出水面。
 
+参考链接：[https://rus.delfi.ee/daily/estonia/video-ya-syt-po-gorlo-mart-helme-podaet-v-otstavku-s-posta-ministra-vnutrennih-del?id=91615331](https://rus.delfi.ee/daily/estonia/video-ya-syt-po-gorlo-mart-helme-podaet-v-otstavku-s-posta-ministra-vnutrennih-del?id=91615331)
 
 0

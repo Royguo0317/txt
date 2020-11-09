@@ -1,36 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/9 财经快讯: 美国政府或许分裂? 数字货币新兴市场成为投资热点
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/540802/)
+## 美国内华达州选票签名和选民欺诈丑闻爆出
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/541026/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09090742/Picture28-1.png)
-1, 摩根大通(JPMorgan Chase & Co.)称，由于全球利率较低、美元走软以及美国总统的对抗性可能降低，新兴市场资产在未来几个月都是投资最佳点
+*作者：草原三省战友团 重生之鹰
+校对：风云小哥 上传 WJ*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09102709/321.jpg)图片来源： REUTERS
+据WJ NEWS 11月8日报道，内华达州共和党周六在推特上写道，一名吹哨人在克拉克县声称选举官员有意违反了处理邮寄选票的规则，他们目睹了邮寄选票在没有签名的情况下被计票。
 
-[https://www.newsmax.com/finance/markets/jpmorgan-sweet-spot-emerging-markets-weak-dollar/2020/11/08/id/996033/](https://www.newsmax.com/finance/markets/jpmorgan-sweet-spot-emerging-markets-weak-dollar/2020/11/08/id/996033/)
+福克斯新闻周六的一段视频也报道称，吹哨人已经完成了宣誓证词，将被转交给司法部，选举官员可能会遭到起诉。根据这段视频，这名员工称他被告知忽略地址不匹配的情况。该报道援引川普竞选团队的一名律师的话说，证词清楚表明这不是工作疏忽或马虎的行为，而是故意的犯罪行为。
 
-2, 中国人民银行(PBOC)数据显示，截至10月底，中国的外汇储备为3.128万亿美元，低于9月份的3.143万亿美元，低于路透社对分析师调查所预测的3.150万亿美元。
+内华达州是自投票结束以来几个主要的战场州之一。尽管新闻媒体在周六宣布民主党人乔·拜登获胜，但美国总统唐纳德·川普的竞选团队一直在挑战邮寄投票，称这些投票扭曲了总票数。
 
-[https://www.newsmax.com/finance/markets/china-october-foreign-exchange-reserves/2020/11/07/id/995916/](https://www.newsmax.com/finance/markets/china-october-foreign-exchange-reserves/2020/11/07/id/995916/)
+内华达州共和党人表示，不当行为在该州非常普遍。内华达州共和党在其网站上的一份声明中说，“内华达州共和党已经收到了数千份有关大选中出现问题的投诉。”
 
-3, 贝莱德（BLACKROCK）基金投资研究所称，如果美国最终出现一个分裂的政府，这可能意味着有限的财政刺激、债券收益率涨幅受限、通胀预期受到抑制，而风险资产则会得到提振。
+该党上周表示:“由于选举结果仍在统计中，我们正在调查每一位选民的投诉，确保每一位选民都有机会合法投票。”
 
-[https://www.newsmax.com/finance/streettalk/blackrock-growth-stocks-divided/2020/11/08/id/996028/](https://www.newsmax.com/finance/streettalk/blackrock-growth-stocks-divided/2020/11/08/id/996028/)
+该党指出包括拉斯维加斯在内的克拉克县是违规行为的中心。有一些邮寄的选票被交到克拉克县的选举部门后，选票一直在没有合理观察的情况下进行处理。内华达州川普竞选团队的联合主席亚当·拉克萨尔特说，“缺乏透明度令人恐惧。”他在声明中说:“事实是克拉克县已经清点了数十万张选票。法官和州务卿已经证实，我们不被允许观察或质疑一张签名匹配的选票。”该党还列举了Twitter上的多起违规事件。
 
-4, 美国英特尔的成功来自于自己制造芯片。然而，受中共病毒影响，这家硅谷的先锋企业正考虑将其最先进的一些芯片的生产外包, 这是美国失去其制造业首要地位的故事中的一个里程碑。
+周四，内华达州共和党人表示，他们在该州发现了3000多起选民欺诈事件，已要求司法部长威廉·巴尔展开调查。“选民欺诈犯罪属于严重的联邦重罪，它触及了代议制民主的核心。我们明白这些都是严重的指控，我们不会轻易做出回应。”
 
-[https://www.wsj.com/articles/intel-chips-cpu-factory-outsourcing-semiconductor-manufacturing-11604605618?redirect=amp#click=https://t.co/hrpPvDdihA](https://www.wsj.com/articles/intel-chips-cpu-factory-outsourcing-semiconductor-manufacturing-11604605618?redirect=amp#click=https://t.co/hrpPvDdihA)
+评论：11月3日大选中断后，在内华达州和其他几个州陆续暴露出来的海量选民欺诈犯罪的证据表明，大选的公正性遭到了严重破坏。美国选民需要捍卫一个公正、合法的选举，选民的选举权必须得到尊重，此次大选远没有结束，直到剔除掉所有的非法选票为止。
 
-5, 重要的世界贸易航线被 “黑天鹅 “-集装箱短缺所破坏：半个世纪以来为全球经济服务的带肋钢箱的短缺尤其困扰着泛太平洋航线。这种短缺使新集装箱的购买价格和租赁费率提高了50%，使港口交通陷入瘫痪，增加了附加费用，并减缓了进入假期的交货速度。
-
-[https://www.newsmax.com/finance/streettalk/world-trade-route-black-swan/2020/11/08/id/996035/](https://www.newsmax.com/finance/streettalk/world-trade-route-black-swan/2020/11/08/id/996035/)
-
-6, 在拜登单方宣布其赢得美国总统大选后，中共媒体乐观回应： “中美关系将变得缓和和可控” ， “中国必须成为美国无法打压或破坏稳定的国家，并使其认识到与中国合作是美国实现国家利益的最佳选择。
-
-[https://www.reuters.com/article/worldNews/idUSKBN27P00K](https://www.reuters.com/article/worldNews/idUSKBN27P00K)
-
-7,摩根大通称比特币正在蚕食黄金ETF的需求，机构弃黄金ETF转投比特币。[https://u.today/jpmorgan-says-institutions-ditching-gold-etfs-for-bitcoin](https://u.today/jpmorgan-says-institutions-ditching-gold-etfs-for-bitcoin)
-
-By【秘翻组 – 金融法律团队】
+原文链接：
+[Nevada Whistleblower Says He Was Told To Process Ballots Without Signature Verification](https://www.westernjournal.com/nevada-whistleblower-says-told-process-ballots-without-signature-verification/?ff_source=push&amp;ff_medium=westernjournalism&amp;ff_campaign=pushtraffic&amp;ff_content=2020-10-25)
 
 0
