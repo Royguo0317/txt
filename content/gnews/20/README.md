@@ -1,49 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵说｜系列图片连载（四十）
-` GM98` [轉載自GNews](https://gnews.org/zh-hans/539907/)
+## 重磅消息：日本群马大学教授成功地合成了中共病毒
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/540105/)
 
-## 274.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09033746/04-3.jpg)
-爆料革命我们最盼望的是什么？美国官方灭共，官方灭共这才是以美灭共的所有的核心目的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09050921/2-42.png)
+据日本雅虎新闻2020年11月5日记者庄司哲也报道，日本群马大学研究生院的神谷亘教授（病毒学）已经成功地合成了中共病毒。因此，这对于解析约为3万个左右的碱基RNA（核糖核酸）非常有帮助。
 
-——郭文贵先生2020年4月28日
+神谷教授将从国立传染病研究所获得的病毒遗传基因嵌进细菌人工染色体（BAC）里，遗传信息在细胞内进行复制，他用这种方法人工制造出了中共病毒。
 
-## 275.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09033751/042.jpg)
-千万别忘了香港，千万别忘了香港。香港在流血，香港在为我们奋斗。
+神谷教授将中共病毒和与基因相似度约为80%的SARS病毒（严重急性呼吸综合症）进行了比较。他发现与免疫细胞活化作用相关“ORF3”的遗传基因长度有明显的差异。
 
-——郭文贵先生2020年4月29日
+另外，据神谷教授说，如果对基因进行改造，将绿色的荧光蛋白质（GFP）嵌入后就会发光，容易观察。
 
-## 276.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09033850/01-5.jpg)
-喜马拉雅的实现，法治自由民主的中国让中国要有法治，任何人要是不提中国有法治，谁的良心就是黑了。
+神谷教授认为“人工合成病毒是解析中共病毒的基本手段。可以再现感染，繁殖，有可能探明病毒治病性的病理结构。”
 
-——郭文贵先生 2018年3月27日
+评论：神谷教授的新发现，无疑离中共病毒的真相又近了一大步。“爆料革命”闫丽梦博士冒死向世界传递了病毒的真相。虽然病毒真相遭受了世界主流媒体，暗黑势力的拼命打压，但是真相就是黑暗里的一盏明灯。我坚信世界上愈来愈多的有良知的科学家，会更加勇敢地站出来说出真相。
 
-## 277.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09034031/02-5.jpg)
-一念之差就是佛魔之别，心生一善念你立地成佛。
+翻译报道：阿丽塔Alita（㊙️翻Gnews组）
 
-——郭文贵先生2020年4月29日
+校对：白夜
 
-## 278.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09034635/023-1.jpg)
-感恩之核心——是感父母给你生命的这个养育之恩！还要感谢众生！因为众生是你存在的一切的未来，那叫因缘之机。
+[原文链接](https://search.yahoo.co.jp/amp/s/news.livedoor.com/lite/article_detail_amp/19171943/%3Fusqp%3Dmq331AQRKAGYAeK1tI-Q5vzk1AGwASA%253D)
 
-——郭文贵先生2019年12月7日
 
-## 279.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09034753/014.jpg)
-香港，她本身就伟大，他是我的恩港。
 
-——郭文贵先生2020年4月28日
-
-## 280.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09034829/0143.jpg)
-在香港大家都看到了，只有消灭共产党！没有共产党的新中国，中国人才真正的有人权，有自由有公平有真相。
-
-——郭文贵先生2019年11月24日
-
-0
+7+
