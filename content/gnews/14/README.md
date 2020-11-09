@@ -1,29 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国内华达州选票签名和选民欺诈丑闻爆出
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/541026/)
+## 政府是基于被管理者同意而设立的
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/540927/)
 
-*作者：草原三省战友团 重生之鹰
-校对：风云小哥 上传 WJ*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09102709/321.jpg)图片来源： REUTERS
-据WJ NEWS 11月8日报道，内华达州共和党周六在推特上写道，一名吹哨人在克拉克县声称选举官员有意违反了处理邮寄选票的规则，他们目睹了邮寄选票在没有签名的情况下被计票。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24064746/WhatsApp-Image-2020-10-24-at-15.08.49.jpeg)
+作者：康州农场-GTalk心语堂
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09094425/image2-4.jpeg)
+2020年11月8日，南达科他州（South Dakota）女州长Kristi Noem接受ABC采访和发推特都提到了关于政府本质的问题，即，政府是基于被管理者同意而设立的。 她说“We the people choose our government by consent of the governed.” 她同时指出，当年戈尔和布什的选举，戈尔对选举结果有异议，可以上法庭，那么川普总统和他的7000万选民也应该给予同样的机会。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09094433/image3-2.jpeg)
+Kristi是一位真正的爱国者，她所秉承的是John Locke（约翰洛克）早在1689年匿名出版的《政府论》中提出的民主思想。约翰洛克被称作民主之父，美国国父们的建国理念就来源于他的启发。今天Kristi的一番话，可以说是在二十一世纪的今天，再一次举起了启蒙运动的旗帜。它必将再一次唤起美国人民捍卫民主权利的决心。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09094441/image4-1.jpeg)
+同样是女性，反观台湾总统蔡英文，却迫不及待的向窃取选票，而且尚未获胜的乔拜登发出贺电。请问，菜总统，你有没有问问两千三百万台湾人民同不同意你这样做？台湾人民和美国人民一样，遭受了一次赤裸裸的被代表。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09094455/image5-3.png)
+“政府是基于被管理者同意而设立的”，这是美国政体的基石，这次民主党选举肆无忌惮的舞弊真正触碰的是这一民主基石。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09094511/image6-3.png)
+康州农场心语堂从今天每天发布一篇Gnews的文章，帮助大家了解改变人类历史的民主主张是哪些先贤的智慧结晶？提出的背景和基础是什么？对美国乃至世界民主进程产生的影响是什么？我们相信，当我们真正了解了这段历史，我们就真正了解了为什么这次选举是人类历史的又一次重大变革。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09094520/image7.jpeg)
+我们反复强调新中国联邦人不参与美国政治，但是了解美国民主制度的根基对新中国联邦每个公民都是一种必须，我们希望通过对于什么是“政府是基于被管理者同意而设立的” ,这一民主精神的讲解，开启新中国联邦人的思想启蒙，帮助我们去思考新中国联邦需要什么样的民主制度，如何实现属于中国人的民主。敬请期待。
 
-福克斯新闻周六的一段视频也报道称，吹哨人已经完成了宣誓证词，将被转交给司法部，选举官员可能会遭到起诉。根据这段视频，这名员工称他被告知忽略地址不匹配的情况。该报道援引川普竞选团队的一名律师的话说，证词清楚表明这不是工作疏忽或马虎的行为，而是故意的犯罪行为。
-
-内华达州是自投票结束以来几个主要的战场州之一。尽管新闻媒体在周六宣布民主党人乔·拜登获胜，但美国总统唐纳德·川普的竞选团队一直在挑战邮寄投票，称这些投票扭曲了总票数。
-
-内华达州共和党人表示，不当行为在该州非常普遍。内华达州共和党在其网站上的一份声明中说，“内华达州共和党已经收到了数千份有关大选中出现问题的投诉。”
-
-该党上周表示:“由于选举结果仍在统计中，我们正在调查每一位选民的投诉，确保每一位选民都有机会合法投票。”
-
-该党指出包括拉斯维加斯在内的克拉克县是违规行为的中心。有一些邮寄的选票被交到克拉克县的选举部门后，选票一直在没有合理观察的情况下进行处理。内华达州川普竞选团队的联合主席亚当·拉克萨尔特说，“缺乏透明度令人恐惧。”他在声明中说:“事实是克拉克县已经清点了数十万张选票。法官和州务卿已经证实，我们不被允许观察或质疑一张签名匹配的选票。”该党还列举了Twitter上的多起违规事件。
-
-周四，内华达州共和党人表示，他们在该州发现了3000多起选民欺诈事件，已要求司法部长威廉·巴尔展开调查。“选民欺诈犯罪属于严重的联邦重罪，它触及了代议制民主的核心。我们明白这些都是严重的指控，我们不会轻易做出回应。”
-
-评论：11月3日大选中断后，在内华达州和其他几个州陆续暴露出来的海量选民欺诈犯罪的证据表明，大选的公正性遭到了严重破坏。美国选民需要捍卫一个公正、合法的选举，选民的选举权必须得到尊重，此次大选远没有结束，直到剔除掉所有的非法选票为止。
-
-原文链接：
-[Nevada Whistleblower Says He Was Told To Process Ballots Without Signature Verification](https://www.westernjournal.com/nevada-whistleblower-says-told-process-ballots-without-signature-verification/?ff_source=push&amp;ff_medium=westernjournalism&amp;ff_campaign=pushtraffic&amp;ff_content=2020-10-25)
+Pictures from:
+https://i0.wp.com/www.positivelynaperville.com/wp-content/uploads/2020/09/we-the-people-constitution.jpg?fit=1200%2C867&ssl=1
+https://upload.wikimedia.org/wikipedia/commons/b/b8/John\_Locke.jpg
+https://cdn.i-scmp.com/sites/default/files/styles/1200×800/public/d8/images/methode/2019/04/16/316b3c66-5da0-11e9-bbcc-84176f6dd1e7\_image\_hires\_093015.JPG?itok=lDXWq1zC&v=1555378220
+https://i.ytimg.com/vi/II8Ob3dKm6s/maxresdefault.jpg
+https://www.historyonthenet.com/wp-content/uploads/2017/01/HISTORY-unplugged-1400×1400-1024×1024.jpg
+https://i.ytimg.com/vi/v9VERBPU6\_c/maxresdefault.jpg
 
 0

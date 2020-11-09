@@ -1,13 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【文贵盖特】11月8日: 尊敬的战友们好, 文贵喝完下午茶…抽雪茄抽醉了, 在此…和战友聊聊…到底美国大选谁能赢? 为什么? 我们为什么支持川普总统?
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/540683/)
+## 军事时评 | 军工材料公司——中天东方氟硅发生火灾
+` 公民之聲` [轉載自GNews](https://gnews.org/zh-hans/540696/)
 
-【文贵盖特】2020年11月8日: 尊敬的战友们好, 文贵喝完下午茶…抽雪茄抽醉了, 在此…和战友聊聊…到底美国大选谁能赢? 为什么? 我们为什么支持川普总统?
+内新闻：庚子 校对：老白
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09085712/image0-1-8.jpg)
 
+11月9日11时25分左右，浙江衢州中天东方氟硅材料有限公司发生火灾事故。
 
-#### **By: 【秘密翻译组G-Translators】**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09090001/image0-52.jpg)
+
+中天东方氟硅总投资约20.8亿元，在高新片区建设年产29万吨有机硅下游系列产品及年增产15万吨有机硅单体技改项目。该项目于2020年6月23日签约完成，建成达产后，预计中天东方氟硅年主营业务收入可增加约20.4亿元，年税收增加1.1亿元。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09090200/image0-53.jpg)
+
+有机硅主要用于航空、尖端技术、军事技术部门等。
 
 1+

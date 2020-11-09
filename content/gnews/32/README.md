@@ -1,21 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 军事时评 | 军工材料公司——中天东方氟硅发生火灾
-` 公民之聲` [轉載自GNews](https://gnews.org/zh-hans/540696/)
+## 斯潘伯格Spanberger在核心会议上批评民主党的策略
+` GM30` [轉載自GNews](https://gnews.org/zh-hans/540812/)
 
-内新闻：庚子 校对：老白
+**作者：tang 777**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09085712/image0-1-8.jpg)
+民主党众议员阿比盖尔·斯潘伯格（Abigail Spanberger）（民主党-Va）在民主党核心小组会议上批评了该党的战略，称这次选举对众议院民主党人来说是“一次失败”。
 
-11月9日11时25分左右，浙江衢州中天东方氟硅材料有限公司发生火灾事故。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09091210/1-27.png)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09090001/image0-52.jpg)
+根据一次核心会议的呼吁，众议员阿比盖尔·斯潘伯格（Abigail Spanberger）（民主党-Va）周四(11/5/20) 对民主党同胞说：“我们不再需要再使用’社会主义者’或’社会主义’一词。”她补充说：“因为如此, 我们失去了优秀成员，她预测民主党将“在2022年分崩离析”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09091930/2-48.png)
+众议院议长南希·佩洛西（D-Calif。）在电话会议上和当天的新闻发布会上淡化了民主党的遭遇。“我们失去了一些席位，但是正如我所说，我们在特朗普的地区赢得了这些席位。 当被问及是否需要更正该党的信息时，她说：“不，我确实认为我们应该始终在评估和尊重人们所说的话。”
 
-中天东方氟硅总投资约20.8亿元，在高新片区建设年产29万吨有机硅下游系列产品及年增产15万吨有机硅单体技改项目。该项目于2020年6月23日签约完成，建成达产后，预计中天东方氟硅年主营业务收入可增加约20.4亿元，年税收增加1.1亿元。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09090200/image0-53.jpg)
 
-有机硅主要用于航空、尖端技术、军事技术部门等。
 
-1+
+
+[https://www.washingtonpost.com/video/politics/spanberger-criticizes-democrats-strategy-in-caucus-call/2020/11/05/6ec2b368-258a-4061-9738-d83ee8971c3c\_video.html?itid=lk\_inline\_manual\_7](https://www.washingtonpost.com/video/politics/spanberger-criticizes-democrats-strategy-in-caucus-call/2020/11/05/6ec2b368-258a-4061-9738-d83ee8971c3c_video.html?itid=lk_inline_manual_7)
+
+0
