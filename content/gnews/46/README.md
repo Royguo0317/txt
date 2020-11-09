@@ -1,63 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 朱利安尼 推文系列 4 （2020年11月6-7日）
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/538738/)
+## 朱利安尼明确指出多个州的选举结果被盗
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/538860/)
 
-*新闻来源：朱利安尼 推文；作者：朱利安尼；发布时间：2020年11月6-7日*
+多伦多加喜农场 熊妈妈
 
-*翻译/简评：Beicy-数学老师；校对/审核：TCC；Page：拱卒*
+校对上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/08163325/NEWYORKTIMES.jpg)图片来自 The New York Times
+11月8日，现任美国总统川普的私人律师鲁道夫·朱利安尼（Rudolph Giuliani）在福克斯新闻上讲道，可能有十几个州的选举结果被“盗窃”。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/e40d3aaf-eb82-4a0b-9487-4a1a7b366622.jpg?asset_id=6a26c8d9-1842-43c9-8f76-97da10054248&amp;img_etag=%22739babda53d62f0e4c232732eadd0148%22&amp;size=1024)](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/e40d3aaf-eb82-4a0b-9487-4a1a7b366622.jpg?asset_id=6a26c8d9-1842-43c9-8f76-97da10054248&amp;img_etag=%22739babda53d62f0e4c232732eadd0148%22&amp;size=1024)
+朱利安尼表示：“有强有力的证据表明，这次选举至少在三个或四个州（可能是十个州）的结果被盗。”
 
-# **大选投票结束, 战斗才刚刚开始。**
+朱利安尼说，“有超过50名可证明选举违规的证人，川普总统的代表将于11月9日向法院提起民事侵权诉讼。”
 
-“停止偷窃”组织是川普总统的支持者自发成立的网站, 在成立后的24小时, 就有30多万美国选民加入。朱利安尼先生和”停止偷窃”组织一起, 发布了针对大选中舞弊造假事实的举报电话, 准备下一步的诉讼战。
+朱利安尼强调，川普总统的团队有足够的证据可以”改变宾夕法尼亚州”，并指出有数十万票”完全无效”。”
 
-郭文贵先生早就警告: 美国大选会是”荒唐滑稽的结果”。朱利安尼先生日前的推文, 也报道了其中一个荒唐的事情: 至少有两万一千多名死者参加了宾夕法尼亚州的投票!
+美国2020总统大选于11月3日举行，在当晚投票结束后，总统候选人、现任总统川普发表讲话，宣布赢得了大选，而且在“关键州”取得了创纪录的胜利。虽然目前计票还在进行中，但是，美国大部分主流媒体撕破了所有的面皮，在11月7日宣布了总统大选的获胜者是民主党候选人乔·拜登。
 
-朱利安尼先生能否将”世纪选举盗窃案”的犯罪集团绳之以法?
+川普总统拒绝承认大选失败，明确指出，在一些州，在点票过程中有违规行为。 他的团队声称民主党人对共和党观察员隐藏了选票处理程序，并要求在佐治亚州，密歇根州和宾夕法尼亚州重新计票。
 
-**爆料革命的战友们, 加油传播真相!**
+目前，在加拿大总理贾斯廷·特鲁多（Justin Trudeau）第一个跳出来祝贺乔·拜登和贺锦丽赢得美国2020总统大选之后，包括乌克兰总统、以色列总理、以色列总统、土耳其反对派领袖、白俄罗斯反对派领袖、委内瑞拉总统、斐济总理、摩尔多瓦前总理、法国总统、哈萨克斯坦总统、比利时总理、英国首相、德国总理、格鲁吉亚总理、北约秘书长、澳大利亚总理、约旦国王、希腊政府首脑、伦敦市长、台湾总统都对乔·拜登所谓的当选表示祝贺。
 
-- **推文1: 2020年11月6日 20点44分发布**
+还有克林顿、希拉里、奥巴马、小布什纷纷跳出来对乔·拜登的虚假当选表示祝贺。
 
+俄罗斯总统普京未表态，只是之前明确表示过，俄罗斯要与美国人民选出的总统合作。
 
-![]()![](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/5bf3c996-40f7-4574-85b3-046b6b8b3c6e.jpg?asset_id=ef033b6b-0bce-40be-bfc8-fd5f05f3fa1d&amp;img_etag=%222800bd7ebe59f4a3a768e82bc40285e0%22&amp;size=1024)
+美国主流媒体、这些见风使舵的各国领袖以及和乔·拜登沆瀣一气的美国政客们，当川普总统靠法律、靠真正的民意和正义赢得最后胜利的时候，你们的脸就会被扇得啪啪作响。
 
-(置顶信息) 世纪选举盗窃案 (https://twitter.com/RudyGiuliani)
+参考链接：https://www.foxnews.com/politics/trump-legal-moves-top-republicans-mum-projected-biden-win
 
-鲁迪-朱利安尼的分析在这里:
-
-
-
-- **推文2: 2020年11月7日 12点07分发布**
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/34093325-b796-41e6-93d3-4298e3e41e94.jpg?asset_id=70a381ca-73d2-4854-9dc2-e635c3a80c81&amp;img_etag=%22852b680f789eae0838025739e13b41fa%22&amp;size=1024)](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/34093325-b796-41e6-93d3-4298e3e41e94.jpg?asset_id=70a381ca-73d2-4854-9dc2-e635c3a80c81&amp;img_etag=%22852b680f789eae0838025739e13b41fa%22&amp;size=1024)
-
-美国人给我们提供了这么多选举不当行为的证据，多得需要个“全职工＂夠时间跟进。一些有力证据的案件很快就会被判下来了。(https://twitter.com/RudyGiuliani/status/1324865945395994628)
-
-- **推文3: 2020年11月6日 23点24分发布**
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/38082f8a-b679-4aa6-88ea-1414cd377fff.jpg?asset_id=9460bb9e-64e4-4759-be22-96a07e15259f&amp;img_etag=%22a19a512c7af1f0984f8e43f9704e6c6e%22&amp;size=3055)](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/38082f8a-b679-4aa6-88ea-1414cd377fff.jpg?asset_id=9460bb9e-64e4-4759-be22-96a07e15259f&amp;img_etag=%22a19a512c7af1f0984f8e43f9704e6c6e%22&amp;size=1024)
-
-＃停止偷窃。告诉我们你所看到的。图片：帮忙停止压制选举人不正常之事与诈欺（告诉我们你正看到的）报告案例：http://djt45.co/stopfraud拨打电话：(888) 503-3526 (888) 503-3526(https://twitter.com/RudyGiuliani/status/1324855288604831745)
-
-- **推文4: 2020年11月6日 16点17分发布**
-
-
-![]()![](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/01b47ad3-217d-4adc-a3cb-08bd4c75b17e.jpg?asset_id=ce392fae-52f5-4dd7-bf6a-3b3a80417142&amp;img_etag=%22ccdb682b3b8035903be25b9e4367c3aa%22&amp;size=1024)
-
-宾夕法尼亚州选民名册上至少有2万１千名死者”至少有9212名登记人已死亡5年，至少有1990名登记人已死亡10年，至少有197名登记人已死亡20年”。(https://twitter.com/RudyGiuliani/status/1324747799641100288)
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-编辑：【喜马拉雅战鹰团】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
-0
+2+

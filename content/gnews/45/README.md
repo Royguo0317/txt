@@ -1,25 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆革星评 &#8211; 联邦选举委员会主席：大选涉嫌欺诈舞弊 媒体不能确定大选输赢
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/538758/)
+## 【热点播报】突发：百万美国民众发动白宫请愿：要求重新核票否则重新选举！
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/538873/)
 
-多伦多加喜农场 文星（一号）
+**作者：香草山写作组  正道主义联盟**
 
-校对上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/08152611/trey-trainor.jpg)图片来自 The Intercept
-11月7日，拜登自淫胜选，忙不迭地庆祝自己成了总统。各主流媒体突然满血复活一反禁言川普之态，近似癫狂地一股脑起哄拜登胜选，一些外国政要也电话庆祝拜登当选。其实，这是一帮没有权力宣布大选输赢的人，这么一闹更让大选增添了戏剧性。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06235914/GNEW-GTV-MOS-LOGO.jpeg)
 
-按照美国法律，一般而言，最后由美国联邦选举委员会宣布哪位竞选人胜出。11月6日，美国联邦选举委员会（the Federal Election Commission）主席Trey Trainor 批评媒体，并明确说明，各州最后的选举结果尚未正式公布，媒体不能确定大选输赢。
 
-而且，大选过程不透明，还存在大量舞弊行为。譬如宾州，按照州法律应该许可监督人员入场监督，但宾州禁止监督员入场，相信其中存在舞弊行为。其它各州也存在违规的问题。
 
-特别是，即使法院下发命令要求宾州允许共和党监督员入场，宾州仍然不予允许，这就违法了选举法，使大选过程不透明、不正当。川普总统竞选团队提起法律诉讼是“非常有效的指控“，需要由法院系统 “充分审核“。他预测，一些法律挑战很可能最终会进入最高法院。
+面对大选荒唐结果出炉！美国民众自愿于7日发动白宫请愿签名活动，现正在火热进行中！短短不到两天，过百万民众签名白宫请愿，要求重新数票或者取消整个选举！截稿已经有超过127多万人签名！活动主题是
 
-这是联邦委员会主席 Trey Trainor 在Newsmax TV的 National Report 频道中发表的上述观点，是真正权威机构的权威人士发表的权威观点。随着大选过程存在大量欺诈舞弊的证据被揭露出来，有理由相信大选很大可能由法院确定输赢，川普总统极大可能继续连任。
+Recount or revote the entire 2020 presidential election!
 
-所以说，尽管谎言如虾蟹满笼，正义不会泥牛入海。按目前形势，大选结果会由法律说了算。媒体不要肤浅地拿点钱就瞎说，否则一旦查证违背事实、违规报道，可能与欺诈作弊者同罪。 ﻿
+重新核票否则重新投票2020总统选举！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/08163931/h.png)
+网站请愿声明如下：
 
-参考链接： [https://www.newsmax.com/newsmax-tv/trey-trainor-fec-trump-2020-election/2020/11/06/id/995772/](https://www.newsmax.com/newsmax-tv/trey-trainor-fec-trump-2020-election/2020/11/06/id/995772/)
+在最近的选举中，我们目睹了对美国选民最大的不公正。我们的目标是重新叙述整个选举或重新投票，更好地监督选票是如何收到和计数的。美利坚合众国的选民已经厌倦了媒体对选举的歪曲报道。我们确实认为，最近这次选举将得到和平解决。我们认为，某些州在选票来自何处以及如何处理这些选票方面缺乏透明度的情况下采取了违反宪法的行动。我们还要求，在100%的选票已收到、清点和核实之前，任何媒体均不得报道对某一候选人的投票情况。我们要求所有地方、州和联邦的选举活动都必须遵守这一规定。
 
-2+
+连日来，面对选举欺诈，美国民众真的是无法抑制内心的怒火了，除了昨日的全美大规模抗议选举欺诈游行，除了川普团队成员进行司法一系列上诉，更多的民众开始自发以各种方式维护大选公正！民意觉醒，盗贼难逃！美国人民的智商不能如此受辱！拜登急于宣布当选，可是大选花落谁家，选票是否合法公正，民众对大选的舞弊追责远远没有结束！
+
+签名网站链接：
+
+[https://www.change.org/p/the-supreme-court-of-the-united-states-recount-or-revote-the-entire-2020-presidential-](https://www.change.org/p/the-supreme-court-of-the-united-states-recount-or-revote-the-entire-2020-presidential-)
+
+**审核：悟空**
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上8:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06235914/GNEW-GTV-MOS-LOGO.jpeg)
+1+

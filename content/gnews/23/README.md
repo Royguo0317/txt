@@ -1,13 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11月8日要闻同声传译: 福克斯周日采访金里奇
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/539240/)
+## 2020年11月8日CCP冠状病毒大流行第288集
+` GM30` [轉載自GNews](https://gnews.org/zh-hans/539306/)
 
-2020年11月8日要闻同声传译: 福克斯周日采访金里奇
+中共国粮食大幅减产；房企巨额债券违约潮；政府没有救济，中共治下悲惨的百姓生活；重庆公民高喊：支持川普，结束专制！民主之火，可以燎原……
 
 
-
-#### **By: 【秘密翻译组G-Translators】**
 
 0
