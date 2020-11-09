@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【字幕】11/08/2020：到底美国大选谁能赢？为什么？我们为什么支持川普总统？
-` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/539191/)
+## 11/8/2020 Graham参议员：要为每一张合法选票而战斗；媒体无权决定谁赢得了总统大选
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/539178/)
 
-制作： 【彩虹桥】
+By: 【秘密翻译组G-Translators】
 
 0

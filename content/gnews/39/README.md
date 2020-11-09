@@ -1,37 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】突发：百万美国民众发动白宫请愿：要求重新核票否则重新选举！
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/538873/)
+## 爆革星评：墨西哥总统认为祝贺乔·拜登胜选为时尚早
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/538853/)
 
-**作者：香草山写作组  正道主义联盟**
+多伦多加喜农场 文星（一号）
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06235914/GNEW-GTV-MOS-LOGO.jpeg)
+校对上传 XM
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/08163735/%E5%9B%BE%E7%89%871-11.jpg)图片来源：dev-web.independent.co.uk
+11月8日，墨西哥总统安德烈斯·曼努埃尔·洛佩斯·奥夫拉多尔（Andres Manuel Lopez Obrador）在首都墨西哥城向媒体表示：目前祝贺乔·拜登胜选为时尚早，川普团队已经开始法律行动，最后谁将胜出由美国法律决定。
+
+安德烈斯总统表示，他将等待解决美国总统大选中的“所有法律问题”。 “我们不要变得莽撞， 我们不想轻易采取行动，我们希望尊重人们的自决权利”。
+
+这位总统还说，川普总统一直非常尊重我们，我们两国之前达成了很好的协议，我们感谢他，因为他没有干涉并且尊重我们。我们与两位候选人之间都有着很好的关系。
+
+从这些言论可以看出，这是一位比较理性的总统。当前美国总统大选的程序尚未结束，鹿死谁手还不确定，一些外国领导人过早向乔·拜登祝贺属于轻率之举，加拿大的特鲁多就是一例，他们可能会被接下来的法律裁决结果打脸。
+
+参考链接：
 
 
 
-面对大选荒唐结果出炉！美国民众自愿于7日发动白宫请愿签名活动，现正在火热进行中！短短不到两天，过百万民众签名白宫请愿，要求重新数票或者取消整个选举！截稿已经有超过127多万人签名！活动主题是
+> [Mexican president says too soon to congratulate Biden](https://tribune.net.ph/index.php/2020/11/08/mexican-president-says-too-soon-to-congratulate-biden/)
 
-Recount or revote the entire 2020 presidential election!
 
-重新核票否则重新投票2020总统选举！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/08163931/h.png)
-网站请愿声明如下：
 
-在最近的选举中，我们目睹了对美国选民最大的不公正。我们的目标是重新叙述整个选举或重新投票，更好地监督选票是如何收到和计数的。美利坚合众国的选民已经厌倦了媒体对选举的歪曲报道。我们确实认为，最近这次选举将得到和平解决。我们认为，某些州在选票来自何处以及如何处理这些选票方面缺乏透明度的情况下采取了违反宪法的行动。我们还要求，在100%的选票已收到、清点和核实之前，任何媒体均不得报道对某一候选人的投票情况。我们要求所有地方、州和联邦的选举活动都必须遵守这一规定。
-
-连日来，面对选举欺诈，美国民众真的是无法抑制内心的怒火了，除了昨日的全美大规模抗议选举欺诈游行，除了川普团队成员进行司法一系列上诉，更多的民众开始自发以各种方式维护大选公正！民意觉醒，盗贼难逃！美国人民的智商不能如此受辱！拜登急于宣布当选，可是大选花落谁家，选票是否合法公正，民众对大选的舞弊追责远远没有结束！
-
-签名网站链接：
-
-[https://www.change.org/p/the-supreme-court-of-the-united-states-recount-or-revote-the-entire-2020-presidential-](https://www.change.org/p/the-supreme-court-of-the-united-states-recount-or-revote-the-entire-2020-presidential-)
-
-**审核：悟空**
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上8:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06235914/GNEW-GTV-MOS-LOGO.jpeg)
-1+
+3+

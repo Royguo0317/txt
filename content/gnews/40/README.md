@@ -1,33 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 朱利安尼明确指出多个州的选举结果被盗
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/538860/)
+## 【热点播报】突发：百万美国民众发动白宫请愿：要求重新核票否则重新选举！
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/538873/)
 
-多伦多加喜农场 熊妈妈
+**作者：香草山写作组  正道主义联盟**
 
-校对上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/08163325/NEWYORKTIMES.jpg)图片来自 The New York Times
-11月8日，现任美国总统川普的私人律师鲁道夫·朱利安尼（Rudolph Giuliani）在福克斯新闻上讲道，可能有十几个州的选举结果被“盗窃”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06235914/GNEW-GTV-MOS-LOGO.jpeg)
 
-朱利安尼表示：“有强有力的证据表明，这次选举至少在三个或四个州（可能是十个州）的结果被盗。”
 
-朱利安尼说，“有超过50名可证明选举违规的证人，川普总统的代表将于11月9日向法院提起民事侵权诉讼。”
 
-朱利安尼强调，川普总统的团队有足够的证据可以”改变宾夕法尼亚州”，并指出有数十万票”完全无效”。”
+面对大选荒唐结果出炉！美国民众自愿于7日发动白宫请愿签名活动，现正在火热进行中！短短不到两天，过百万民众签名白宫请愿，要求重新数票或者取消整个选举！截稿已经有超过127多万人签名！活动主题是
 
-美国2020总统大选于11月3日举行，在当晚投票结束后，总统候选人、现任总统川普发表讲话，宣布赢得了大选，而且在“关键州”取得了创纪录的胜利。虽然目前计票还在进行中，但是，美国大部分主流媒体撕破了所有的面皮，在11月7日宣布了总统大选的获胜者是民主党候选人乔·拜登。
+Recount or revote the entire 2020 presidential election!
 
-川普总统拒绝承认大选失败，明确指出，在一些州，在点票过程中有违规行为。 他的团队声称民主党人对共和党观察员隐藏了选票处理程序，并要求在佐治亚州，密歇根州和宾夕法尼亚州重新计票。
+重新核票否则重新投票2020总统选举！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/08163931/h.png)
+网站请愿声明如下：
 
-目前，在加拿大总理贾斯廷·特鲁多（Justin Trudeau）第一个跳出来祝贺乔·拜登和贺锦丽赢得美国2020总统大选之后，包括乌克兰总统、以色列总理、以色列总统、土耳其反对派领袖、白俄罗斯反对派领袖、委内瑞拉总统、斐济总理、摩尔多瓦前总理、法国总统、哈萨克斯坦总统、比利时总理、英国首相、德国总理、格鲁吉亚总理、北约秘书长、澳大利亚总理、约旦国王、希腊政府首脑、伦敦市长、台湾总统都对乔·拜登所谓的当选表示祝贺。
+在最近的选举中，我们目睹了对美国选民最大的不公正。我们的目标是重新叙述整个选举或重新投票，更好地监督选票是如何收到和计数的。美利坚合众国的选民已经厌倦了媒体对选举的歪曲报道。我们确实认为，最近这次选举将得到和平解决。我们认为，某些州在选票来自何处以及如何处理这些选票方面缺乏透明度的情况下采取了违反宪法的行动。我们还要求，在100%的选票已收到、清点和核实之前，任何媒体均不得报道对某一候选人的投票情况。我们要求所有地方、州和联邦的选举活动都必须遵守这一规定。
 
-还有克林顿、希拉里、奥巴马、小布什纷纷跳出来对乔·拜登的虚假当选表示祝贺。
+连日来，面对选举欺诈，美国民众真的是无法抑制内心的怒火了，除了昨日的全美大规模抗议选举欺诈游行，除了川普团队成员进行司法一系列上诉，更多的民众开始自发以各种方式维护大选公正！民意觉醒，盗贼难逃！美国人民的智商不能如此受辱！拜登急于宣布当选，可是大选花落谁家，选票是否合法公正，民众对大选的舞弊追责远远没有结束！
 
-俄罗斯总统普京未表态，只是之前明确表示过，俄罗斯要与美国人民选出的总统合作。
+签名网站链接：
 
-美国主流媒体、这些见风使舵的各国领袖以及和乔·拜登沆瀣一气的美国政客们，当川普总统靠法律、靠真正的民意和正义赢得最后胜利的时候，你们的脸就会被扇得啪啪作响。
+[https://www.change.org/p/the-supreme-court-of-the-united-states-recount-or-revote-the-entire-2020-presidential-](https://www.change.org/p/the-supreme-court-of-the-united-states-recount-or-revote-the-entire-2020-presidential-)
 
-参考链接：https://www.foxnews.com/politics/trump-legal-moves-top-republicans-mum-projected-biden-win
+**审核：悟空**
 
-2+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上8:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06235914/GNEW-GTV-MOS-LOGO.jpeg)
+1+

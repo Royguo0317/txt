@@ -1,63 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 朱利安尼 推文系列 4 （2020年11月6-7日）
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/538738/)
+## 爆革星评 &#8211; 联邦选举委员会主席：大选涉嫌欺诈舞弊 媒体不能确定大选输赢
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/538758/)
 
-*新闻来源：朱利安尼 推文；作者：朱利安尼；发布时间：2020年11月6-7日*
+多伦多加喜农场 文星（一号）
 
-*翻译/简评：Beicy-数学老师；校对/审核：TCC；Page：拱卒*
+校对上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/08152611/trey-trainor.jpg)图片来自 The Intercept
+11月7日，拜登自淫胜选，忙不迭地庆祝自己成了总统。各主流媒体突然满血复活一反禁言川普之态，近似癫狂地一股脑起哄拜登胜选，一些外国政要也电话庆祝拜登当选。其实，这是一帮没有权力宣布大选输赢的人，这么一闹更让大选增添了戏剧性。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/e40d3aaf-eb82-4a0b-9487-4a1a7b366622.jpg?asset_id=6a26c8d9-1842-43c9-8f76-97da10054248&amp;img_etag=%22739babda53d62f0e4c232732eadd0148%22&amp;size=1024)](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/e40d3aaf-eb82-4a0b-9487-4a1a7b366622.jpg?asset_id=6a26c8d9-1842-43c9-8f76-97da10054248&amp;img_etag=%22739babda53d62f0e4c232732eadd0148%22&amp;size=1024)
+按照美国法律，一般而言，最后由美国联邦选举委员会宣布哪位竞选人胜出。11月6日，美国联邦选举委员会（the Federal Election Commission）主席Trey Trainor 批评媒体，并明确说明，各州最后的选举结果尚未正式公布，媒体不能确定大选输赢。
 
-# **大选投票结束, 战斗才刚刚开始。**
+而且，大选过程不透明，还存在大量舞弊行为。譬如宾州，按照州法律应该许可监督人员入场监督，但宾州禁止监督员入场，相信其中存在舞弊行为。其它各州也存在违规的问题。
 
-“停止偷窃”组织是川普总统的支持者自发成立的网站, 在成立后的24小时, 就有30多万美国选民加入。朱利安尼先生和”停止偷窃”组织一起, 发布了针对大选中舞弊造假事实的举报电话, 准备下一步的诉讼战。
+特别是，即使法院下发命令要求宾州允许共和党监督员入场，宾州仍然不予允许，这就违法了选举法，使大选过程不透明、不正当。川普总统竞选团队提起法律诉讼是“非常有效的指控“，需要由法院系统 “充分审核“。他预测，一些法律挑战很可能最终会进入最高法院。
 
-郭文贵先生早就警告: 美国大选会是”荒唐滑稽的结果”。朱利安尼先生日前的推文, 也报道了其中一个荒唐的事情: 至少有两万一千多名死者参加了宾夕法尼亚州的投票!
+这是联邦委员会主席 Trey Trainor 在Newsmax TV的 National Report 频道中发表的上述观点，是真正权威机构的权威人士发表的权威观点。随着大选过程存在大量欺诈舞弊的证据被揭露出来，有理由相信大选很大可能由法院确定输赢，川普总统极大可能继续连任。
 
-朱利安尼先生能否将”世纪选举盗窃案”的犯罪集团绳之以法?
+所以说，尽管谎言如虾蟹满笼，正义不会泥牛入海。按目前形势，大选结果会由法律说了算。媒体不要肤浅地拿点钱就瞎说，否则一旦查证违背事实、违规报道，可能与欺诈作弊者同罪。 ﻿
 
-**爆料革命的战友们, 加油传播真相!**
+参考链接： [https://www.newsmax.com/newsmax-tv/trey-trainor-fec-trump-2020-election/2020/11/06/id/995772/](https://www.newsmax.com/newsmax-tv/trey-trainor-fec-trump-2020-election/2020/11/06/id/995772/)
 
-- **推文1: 2020年11月6日 20点44分发布**
-
-
-![]()![](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/5bf3c996-40f7-4574-85b3-046b6b8b3c6e.jpg?asset_id=ef033b6b-0bce-40be-bfc8-fd5f05f3fa1d&amp;img_etag=%222800bd7ebe59f4a3a768e82bc40285e0%22&amp;size=1024)
-
-(置顶信息) 世纪选举盗窃案 (https://twitter.com/RudyGiuliani)
-
-鲁迪-朱利安尼的分析在这里:
-
-
-
-- **推文2: 2020年11月7日 12点07分发布**
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/34093325-b796-41e6-93d3-4298e3e41e94.jpg?asset_id=70a381ca-73d2-4854-9dc2-e635c3a80c81&amp;img_etag=%22852b680f789eae0838025739e13b41fa%22&amp;size=1024)](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/34093325-b796-41e6-93d3-4298e3e41e94.jpg?asset_id=70a381ca-73d2-4854-9dc2-e635c3a80c81&amp;img_etag=%22852b680f789eae0838025739e13b41fa%22&amp;size=1024)
-
-美国人给我们提供了这么多选举不当行为的证据，多得需要个“全职工＂夠时间跟进。一些有力证据的案件很快就会被判下来了。(https://twitter.com/RudyGiuliani/status/1324865945395994628)
-
-- **推文3: 2020年11月6日 23点24分发布**
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/38082f8a-b679-4aa6-88ea-1414cd377fff.jpg?asset_id=9460bb9e-64e4-4759-be22-96a07e15259f&amp;img_etag=%22a19a512c7af1f0984f8e43f9704e6c6e%22&amp;size=3055)](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/38082f8a-b679-4aa6-88ea-1414cd377fff.jpg?asset_id=9460bb9e-64e4-4759-be22-96a07e15259f&amp;img_etag=%22a19a512c7af1f0984f8e43f9704e6c6e%22&amp;size=1024)
-
-＃停止偷窃。告诉我们你所看到的。图片：帮忙停止压制选举人不正常之事与诈欺（告诉我们你正看到的）报告案例：http://djt45.co/stopfraud拨打电话：(888) 503-3526 (888) 503-3526(https://twitter.com/RudyGiuliani/status/1324855288604831745)
-
-- **推文4: 2020年11月6日 16点17分发布**
-
-
-![]()![](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/01b47ad3-217d-4adc-a3cb-08bd4c75b17e.jpg?asset_id=ce392fae-52f5-4dd7-bf6a-3b3a80417142&amp;img_etag=%22ccdb682b3b8035903be25b9e4367c3aa%22&amp;size=1024)
-
-宾夕法尼亚州选民名册上至少有2万１千名死者”至少有9212名登记人已死亡5年，至少有1990名登记人已死亡10年，至少有197名登记人已死亡20年”。(https://twitter.com/RudyGiuliani/status/1324747799641100288)
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-编辑：【喜马拉雅战鹰团】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
-0
+2+
