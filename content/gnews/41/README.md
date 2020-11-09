@@ -1,63 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 朱利安尼 推文系列 4 （2020年11月6-7日）
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/538738/)
+## 【热点播报】恐怖！美大选上演时空穿越！滨州新闻发布会：死人复活！
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/538859/)
 
-*新闻来源：朱利安尼 推文；作者：朱利安尼；发布时间：2020年11月6-7日*
+**作者：纽约香草山写作组  正道主义联盟**
 
-*翻译/简评：Beicy-数学老师；校对/审核：TCC；Page：拱卒*
-
-[!\[\]()!\[\](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/e40d3aaf-eb82-4a0b-9487-4a1a7b366622.jpg?asset_id=6a26c8d9-1842-43c9-8f76-97da10054248&amp;img_etag=%22739babda53d62f0e4c232732eadd0148%22&amp;size=1024)](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/e40d3aaf-eb82-4a0b-9487-4a1a7b366622.jpg?asset_id=6a26c8d9-1842-43c9-8f76-97da10054248&amp;img_etag=%22739babda53d62f0e4c232732eadd0148%22&amp;size=1024)
-
-# **大选投票结束, 战斗才刚刚开始。**
-
-“停止偷窃”组织是川普总统的支持者自发成立的网站, 在成立后的24小时, 就有30多万美国选民加入。朱利安尼先生和”停止偷窃”组织一起, 发布了针对大选中舞弊造假事实的举报电话, 准备下一步的诉讼战。
-
-郭文贵先生早就警告: 美国大选会是”荒唐滑稽的结果”。朱利安尼先生日前的推文, 也报道了其中一个荒唐的事情: 至少有两万一千多名死者参加了宾夕法尼亚州的投票!
-
-朱利安尼先生能否将”世纪选举盗窃案”的犯罪集团绳之以法?
-
-**爆料革命的战友们, 加油传播真相!**
-
-- **推文1: 2020年11月6日 20点44分发布**
-
-
-![]()![](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/5bf3c996-40f7-4574-85b3-046b6b8b3c6e.jpg?asset_id=ef033b6b-0bce-40be-bfc8-fd5f05f3fa1d&amp;img_etag=%222800bd7ebe59f4a3a768e82bc40285e0%22&amp;size=1024)
-
-(置顶信息) 世纪选举盗窃案 (https://twitter.com/RudyGiuliani)
-
-鲁迪-朱利安尼的分析在这里:
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06235914/GNEW-GTV-MOS-LOGO.jpeg)
 
 
 
-- **推文2: 2020年11月7日 12点07分发布**
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/08163312/e.png)
+政治评论员科里·莱万多夫斯基在氚普新闻发布会上举了一个宾夕法尼亚州选民欺诈的具体例子，这个人十月二十二日去世，结果第二天申请邮寄选票，选票从选举办公室寄出后，此人的选票于十一月二日寄回到选举办公室。现在州务卿网站显示此人在死后投过票了。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/34093325-b796-41e6-93d3-4298e3e41e94.jpg?asset_id=70a381ca-73d2-4854-9dc2-e635c3a80c81&amp;img_etag=%22852b680f789eae0838025739e13b41fa%22&amp;size=1024)](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/34093325-b796-41e6-93d3-4298e3e41e94.jpg?asset_id=70a381ca-73d2-4854-9dc2-e635c3a80c81&amp;img_etag=%22852b680f789eae0838025739e13b41fa%22&amp;size=1024)
+此前据布赖特巴特新闻网（Breitbart）消息，由“公众利益法律基金会”（PILF）提起的诉讼称，宾州的选民名单上至少有21,000人是去世的人，宾州在本次大选中未能根据联邦和州法律及时“合理维护”选民的登记记录。
 
-美国人给我们提供了这么多选举不当行为的证据，多得需要个“全职工＂夠时间跟进。一些有力证据的案件很快就会被判下来了。(https://twitter.com/RudyGiuliani/status/1324865945395994628)
+本次出席发布会的朱利安尼也曾经发推写道，“截至2020年10月7日，至少有9,212名注册人已经死亡5年以上，至少1,990名注册人已经死亡10年以上，还有至少197名注册人已经死亡20年以上。”
 
-- **推文3: 2020年11月6日 23点24分发布**
+此外，在这2.1万名死亡选民中，大约有92%在2019年10月之前去世；大约216名死者在2016年和2018年去世后，还显示有投票记录。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/08163322/r.png)
+不只是宾州出现幽灵票，长岛萨福克郡和史坦顿岛都出现类似的选票。史坦顿岛共和党委员（SIGOP）会曝料，选举局9月24日收到了一个名叫莱克豪（Ranes M.Reckhow）的注册民主党人的申请，要求选举局寄发缺席选票。
 
+这个人于10月6日寄回了选票，选举局于10月8日宣布该选票为有效选票。但是，史坦顿岛共和党委员会却发现，这个莱克豪出生于1915年，早在2012年就去世了。他的女儿住在邮寄选票申请中发出的地址。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/38082f8a-b679-4aa6-88ea-1414cd377fff.jpg?asset_id=9460bb9e-64e4-4759-be22-96a07e15259f&amp;img_etag=%22a19a512c7af1f0984f8e43f9704e6c6e%22&amp;size=3055)](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/38082f8a-b679-4aa6-88ea-1414cd377fff.jpg?asset_id=9460bb9e-64e4-4759-be22-96a07e15259f&amp;img_etag=%22a19a512c7af1f0984f8e43f9704e6c6e%22&amp;size=1024)
+而真实的情况一定更糟！当然无一例外，这些死人都把票投给了拜登！可以说，如果拜登真实当选，那么这些都是来自地狱的亡灵所赐！真是荒唐至极！
 
-＃停止偷窃。告诉我们你所看到的。图片：帮忙停止压制选举人不正常之事与诈欺（告诉我们你正看到的）报告案例：http://djt45.co/stopfraud拨打电话：(888) 503-3526 (888) 503-3526(https://twitter.com/RudyGiuliani/status/1324855288604831745)
+正如网友非常幽默的说：有些人死了，可是大选又活过来了！
 
-- **推文4: 2020年11月6日 16点17分发布**
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
 
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-![]()![](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/01b47ad3-217d-4adc-a3cb-08bd4c75b17e.jpg?asset_id=ce392fae-52f5-4dd7-bf6a-3b3a80417142&amp;img_etag=%22ccdb682b3b8035903be25b9e4367c3aa%22&amp;size=1024)
-
-宾夕法尼亚州选民名册上至少有2万１千名死者”至少有9212名登记人已死亡5年，至少有1990名登记人已死亡10年，至少有197名登记人已死亡20年”。(https://twitter.com/RudyGiuliani/status/1324747799641100288)
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-编辑：【喜马拉雅战鹰团】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/2iqb7gUo3Peq9/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
-0
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上8:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06235914/GNEW-GTV-MOS-LOGO.jpeg)
+1+
