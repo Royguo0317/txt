@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/8/2020 Graham参议员喊话：媒体无视民主党在选举过程中的各种欺诈行为，公然“宣布”乔拜登当选美国总统，我们需要反击，不能让媒体掌控美国
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/539241/)
+## 11/8/2020 Graham参议员：明年1月的佐治亚州决胜选举至关重要，并给川普总统打气、战斗到底
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/539413/)
 
 By: 【秘密翻译组G-Translators】
 
-0
+1+

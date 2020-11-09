@@ -1,49 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵说｜系列图片连载（四十）
-` GM98` [轉載自GNews](https://gnews.org/zh-hans/539907/)
+## 【热点播报】中共通过提线木偶宣言定要把川普送进监狱，川普已被逼进墙角，到了反击的时候了
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/540217/)
 
-## 274.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09033746/04-3.jpg)
-爆料革命我们最盼望的是什么？美国官方灭共，官方灭共这才是以美灭共的所有的核心目的。
+作者：香草山写作组 程万里 校对/发稿：飞虹
 
-——郭文贵先生2020年4月28日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06235914/GNEW-GTV-MOS-LOGO.jpeg)
 
-## 275.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09033751/042.jpg)
-千万别忘了香港，千万别忘了香港。香港在流血，香港在为我们奋斗。
 
-——郭文贵先生2020年4月29日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09061058/%E5%9B%BE%E7%89%8714-3.png)
+美东时间12月8日，曾经获得过普利策奖的Laurie Garrett转推路透社文章《川普在失去总统豁免权后面临诉讼》，其还表示要发动如何防止川普赦免自己的讨论并发动法律战送川普进监狱。之前路德社就说过，中共一定会举全国之力对付川普总统，现在果然他们已经开始行动了。之前CNN还造谣说第一夫人劝川普总统承认败选，伊万卡也在劝。这种指鹿为马的无耻行径是新闻对事实的侮辱，更是对7000万美国选民的蔑视和羞辱。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09061113/%E5%9B%BE%E7%89%8715-3.png)
+![]()川普已被逼入墙角，是可忍，孰不可忍，川普可以忍，7000多万的选民能忍得了吗？能不清醒吗？川普再不行动，就真对不起这7000多万的选票和民意了。
 
-## 276.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09033850/01-5.jpg)
-喜马拉雅的实现，法治自由民主的中国让中国要有法治，任何人要是不提中国有法治，谁的良心就是黑了。
 
-——郭文贵先生 2018年3月27日
 
-## 277.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09034031/02-5.jpg)
-一念之差就是佛魔之别，心生一善念你立地成佛。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
 
-——郭文贵先生2020年4月29日
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-## 278.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09034635/023-1.jpg)
-感恩之核心——是感父母给你生命的这个养育之恩！还要感谢众生！因为众生是你存在的一切的未来，那叫因缘之机。
-
-——郭文贵先生2019年12月7日
-
-## 279.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09034753/014.jpg)
-香港，她本身就伟大，他是我的恩港。
-
-——郭文贵先生2020年4月28日
-
-## 280.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09034829/0143.jpg)
-在香港大家都看到了，只有消灭共产党！没有共产党的新中国，中国人才真正的有人权，有自由有公平有真相。
-
-——郭文贵先生2019年11月24日
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上8:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
