@@ -1,13 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生寄语GTV和GNews制作人员
-` GM31` [轉載自GNews](https://gnews.org/zh-hans/539929/)
+## 文贵说｜系列图片连载（四十）
+` GM98` [轉載自GNews](https://gnews.org/zh-hans/539907/)
 
-郭先生在11月8日G TV直播中特别强调：“G TV, G News, 我再次呼吁所有战友们，用最高的标准，最严肃的态度，最高效的手段，最真实负责任的专业的手段，来多发一些G News的文章，多做一些有意思的G TV的直播，好吧。”
+## 274.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09033746/04-3.jpg)
+爆料革命我们最盼望的是什么？美国官方灭共，官方灭共这才是以美灭共的所有的核心目的。
 
-*视频制作：【duojia】【V%】 翻译：【Isaiah4031】校对：【Connor54】编辑：【GM31】*
+——郭文贵先生2020年4月28日
 
-*战友之家玫瑰园小队出品*
+## 275.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09033751/042.jpg)
+千万别忘了香港，千万别忘了香港。香港在流血，香港在为我们奋斗。
+
+——郭文贵先生2020年4月29日
+
+## 276.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09033850/01-5.jpg)
+喜马拉雅的实现，法治自由民主的中国让中国要有法治，任何人要是不提中国有法治，谁的良心就是黑了。
+
+——郭文贵先生 2018年3月27日
+
+## 277.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09034031/02-5.jpg)
+一念之差就是佛魔之别，心生一善念你立地成佛。
+
+——郭文贵先生2020年4月29日
+
+## 278.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09034635/023-1.jpg)
+感恩之核心——是感父母给你生命的这个养育之恩！还要感谢众生！因为众生是你存在的一切的未来，那叫因缘之机。
+
+——郭文贵先生2019年12月7日
+
+## 279.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09034753/014.jpg)
+香港，她本身就伟大，他是我的恩港。
+
+——郭文贵先生2020年4月28日
+
+## 280.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09034829/0143.jpg)
+在香港大家都看到了，只有消灭共产党！没有共产党的新中国，中国人才真正的有人权，有自由有公平有真相。
+
+——郭文贵先生2019年11月24日
 
 0
