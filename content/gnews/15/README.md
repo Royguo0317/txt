@@ -1,21 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【精华版粤语快报】【路德社】11.08：亚利桑那即将属于川普，民主党正在失去民心，佩洛西议长位置不保
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/542380/)
+## 推特咏叹调
+` GISELLE` [轉載自GNews](https://gnews.org/zh-hans/542646/)
 
-制作单位：战友之家-粤语组
-
-制作团队：路德二组（文东、一帘幽梦、麻辣汤）
-
-
-
-摘要：
-
-亚利桑那州45万张选票只投拜登，其他选项空白，核查后即将翻盘。民主党正在失去民心，佩洛西议长位置可危。中共各种攻击，反而让美国人看清中共邪恶本质。
-
-原视频链接:
-
-
+作者：Giselle
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09224708/freepress-01.png)
+日落粉丝二三十，
+月关黑屋四五次。
+年封账号六七个，
+死磕推特两三年。
 
 0

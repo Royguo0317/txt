@@ -1,33 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】一切只是刚刚开始：美重要政治媒体之一《Real Clear Politics》第一个将宾州从拜登的取胜州名单中取消
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/542138/)
+## 司法部为什么不确保选票，警察投票站或执行法院命令的安全？美国353个县的登记选民比合格投票年龄的公民多180万
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/542401/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
-
-
-
-香草山写作组：村北
-
-前纽约市警察总长 Bernard B. Kerik 以及多个推特大V刚刚发出消息告知公众，美国重要的媒体及民意统计机构之一“Real Clear Politics”成为第一家将宾州从拜登的获胜州名单中取消的媒体。Kerik先生在推中表示，“这一切只是刚刚开始，后续还将有更多此类消息”。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09202546/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E4%B8%80%E5%88%87%E5%8F%AA%E6%98%AF%E5%88%9A%E5%88%9A%E5%BC%80%E5%A7%8B%EF%BC%9A%E7%BE%8E%E9%87%8D%E8%A6%81%E6%94%BF%E6%B2%BB%E5%AA%92%E4%BD%93%E4%B9%8B%E4%B8%80%E3%80%8AReal-Clear-Politics%E3%80%8B%E7%AC%AC%E4%B8%80%E4%B8%AA%E5%B0%86%E5%AE%BE%E5%B7%9E%E4%BB%8E%E6%8B%9C%E7%99%BB%E7%9A%84%E5%8F%96%E8%83%9C%E5%B7%9E%E5%90%8D%E5%8D%95%E4%B8%AD%E5%8F%96%E6%B6%881.png)
+编辑：玫瑰天空
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09202606/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E4%B8%80%E5%88%87%E5%8F%AA%E6%98%AF%E5%88%9A%E5%88%9A%E5%BC%80%E5%A7%8B%EF%BC%9A%E7%BE%8E%E9%87%8D%E8%A6%81%E6%94%BF%E6%B2%BB%E5%AA%92%E4%BD%93%E4%B9%8B%E4%B8%80%E3%80%8AReal-Clear-Politics%E3%80%8B%E7%AC%AC%E4%B8%80%E4%B8%AA%E5%B0%86%E5%AE%BE%E5%B7%9E%E4%BB%8E%E6%8B%9C%E7%99%BB%E7%9A%84%E5%8F%96%E8%83%9C%E5%B7%9E%E5%90%8D%E5%8D%95%E4%B8%AD%E5%8F%96%E6%B6%882.png)
+最新获悉，司法观察宣布，2020年9月的一项研究显示，美国353个县的登记选民比合格投票年龄的公民多180万。换句话说，这些县的登记率超过了合格选民的100％。该研究发现八个州的州注册率超过100％：阿拉斯加，科罗拉多州，缅因州，马里兰州，密歇根州，新泽西州，罗德岛州和佛蒙特州。
 
-在大选日的第二天凌晨，拜登获得的选票在几乎所有摇摆州都呈现出离奇的直线上升态势，选票数量反超川普总统。虽然川普竞选团队及民众在发现拜登选票有造假嫌疑后提出质疑，但绝大多数主流媒体如同事先商量好一样，纷纷压制质疑声，不顾一切地宣布拜登获胜。
+Judicial Watch announced that a September 2020 study revealed that 353 U.S. counties had 1.8 million more registered voters than eligible voting-age citizens. In other words, the registration rates of those counties exceeded 100% of eligible voters. The study found eight states showing state-wide registration rates exceeding 100%: Alaska, Colorado, Maine, Maryland, Michigan, New Jersey, Rhode Island, and Vermont.
 
-仅仅在宾州，至少有68万多张邮寄选票的计票过程并未在有效的监督下进行。随着拜登一方在大选中大规模造假的证据逐渐被民众和川普总统团队掌握，拜登一方似乎也已嗅到大势已去。而罔顾法律流程宣布拜登获胜的媒体也开始出现树倒猢狲散的苗头。 “Real Clear Politics” 不得不率先取消将最重要摇摆州宾州的获胜归属于拜登的声明。
 
-审核：jamie(文胤)
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+本次美国大选的白宫之站还未结束，民主党人拜登过早庆祝了他的“胜利”。世界各方急于想向拜登投送橄榄枝的队伍越来越多的付出水面。多方政要不顾网络媒体铺天盖地爆出关于拜登父子的腐败信息，急着战队拜登并庆祝其“胜选”，不免令人瞠目结舌。
 
-更多文章，欢迎浏览[美东香草山农场GNEWS](https://gnews.org/zh-hans/author/changdao/)！
+这场美国选票大战之中，让我们看到了政治背后各方人士的勇气与背叛！截然不同的良知与底线！舞台之上，谢幕之时，鹿死谁手还未可知！一过对于新中国联邦人一切可期！终有一壶酒，敬天敬地敬战友！
 
-圣经故事背景，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
 0

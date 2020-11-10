@@ -1,35 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】重磅消息：参议院共和党领袖麦康奈尔表示:“川普总统100%有权利调查违规指控，并权衡他的法律选择！”
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/542000/)
+## 川普总统发推：总检察长威廉·巴尔授权司法部调查违规行为
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/542273/)
 
-**作者：香草山写作组  正道主义联盟**
+编译：玫瑰天空
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05173212/logo-2.jpg)
+司法部长威廉·巴尔在周一发布的备忘录中授权司法部（DOJ）调查2020年总统大选的投票违规行为。
+
+川普总统发推传递了相关消息：
 
 
 
+> [https://t.co/kSjq4ye9EO](https://t.co/kSjq4ye9EO)
+> — Donald J. Trump (@realDonaldTrump) [November 10, 2020](https://twitter.com/realDonaldTrump/status/1325973224522473475?ref_src=twsrc%5Etfw)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09180555/Picture1-18.png)
-自从拜登上周六宣称自己获得总统大选，麦康奈尔和国会的共和党领导人一直没有对选举结果表示祝贺或承认。
 
-这次是麦康奈尔在大选后的首次公开亮相，麦康奈尔周一在参议院表示“尽管共和党人在参议院和众议院的竞争中获胜。没有一个州确认了选举的结果。我们有适当的系统来考虑这些担忧，川普总统100%有权利查看违规指控并权衡他的法律选择。他没有义务接受基于拜登赢得的计票结果的预测。”
 
-据了解，许多共和党人都认为，特朗普仍然对共和党有着强大的影响力，在他执政之后，这种影响力将会持续下去。根据盖洛普(Gallup)的调查，在选举开始时，95%的共和党人表示他们对他作为总统的表现表示认可，而根据民调显示，有高达93%的共和党人投票支持他连任。川普竞选总统连任得到了几乎所有共和党人的支持！
+该备忘录已由Barr处理并签署给美国检察官，美国司法部刑事司，民权司，国家安全司助理检察长，以及联邦调查局（FBI）局长克里斯托弗·雷（Christopher Wray）。
 
-继大选舞弊事件发生后，共和党人迅速团结起来支持川普总统，最让人难忘的是周日，参议院司法委员会主席格雷厄姆接受《福克斯新闻》周日节目采访时，支持川普对不公平的选举进行全力反击。“如果共和党人不发起挑战，改变美国选举体系，就不会再有共和党总统当选，川普总统不应该认输。”
+备忘录写道：“现在投票已经结束，当务之急是美国人民可以相信我们的选举以这样的方式进行，即选举结果能准确反映选民的意愿。”
 
-还有在美国民主党总统候选人拜登宣布获胜后，面对媒体一边倒不顾事实宣布拜登当选的行为，共和党全国委员会主席罗娜·罗姆尼·麦克丹尼尔（Ronna Romney McDaniel）迅速召开新闻发布会表示，“选民才能决定谁赢得选举，而不是媒体。”
+巴尔的备忘录是在39名众议院共和党人[周五在一封信中敦促巴尔](https://www.breitbart.com/politics/2020/11/08/39-house-republicans-ask-bill-barr-to-ensure-integrity-of-voting-and-counting-process/)让美国司法部可用资源调查全国几个主要战场州投票不当行为的指控之后发表的。特朗普竞选活动在其中一些州提起了许多诉讼。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09212927/%E5%B7%B4%E5%B0%94%E4%BF%A11-1.jpg)*[巴尔备忘录对司法部的投票违规行为](https://www.scribd.com/document/483622101/Barr-Memo-to-DOJ-on-voting-irregularities#from_embed)由
+[克里斯蒂娜·黄](https://www.scribd.com/user/294756797/Kristina-Wong#from_embed)在Scribd*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09212939/%E5%B7%B4%E5%B0%94%E4%BF%A12-1.jpg)*[巴尔备忘录对司法部的投票违规行为](https://www.scribd.com/document/483622101/Barr-Memo-to-DOJ-on-voting-irregularities#from_embed)由
+[克里斯蒂娜·黄](https://www.scribd.com/user/294756797/Kristina-Wong#from_embed)在Scribd*
 
-麦康奈尔在华盛顿政坛影响力非法凡，作为共和党老大同时兼任参议院主席出来为川普总统亲自站台，意义重大！可以看到，川普团队的法律行动已经集结了党内所有高层力量，对于即将到来的法律大战，空前团结协作，齐齐亮相对民主党选举的舞弊坚决反击说不！今天麦康奈尔的讲话，对川普总统未来能逆转选情绝对是起到了定海神针的作用。
 
-审核：悟空
+巴尔在备忘录中说，尽管各州负有进行和监督选举的主要责任，但司法部“有义务确保以这种方式进行联邦选举，以使美国人民对其选举过程充满信心。他们的政府。”
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+他补充说，尽管所谓的“多数指控”涉及选举不当行为，其规模如此之大，以至于不会影响选举结果，因此可以推迟进行调查，“并非总是如此。”
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+他说，由于投票已经结束，因此担心司法部在这种情况下采取的公开行动将大大减少。
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，纽约时间周日至周四晚上8:00，美国志愿者在纽约香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05173212/logo-2.jpg)
-4+
+他还说，他已经授权司法部对具体情况下的投票和投票制表违规行为进行大量指控。
+
+他说：“鉴于此，并且鉴于我们当前的选举已经结束，因此我授权您在某些情况下在您的辖区进行选举认证之前对大量的投票指控和制表不当行为进行指控，就像我在特定情况下所做的那样。”
+
+他说，如果存在明显的，显然可信的违规指控，如果确实如此，可能会影响单个州联邦选举的结果，则可以进行调查和审查。
+
+他说：“虽然美国检察官保持其固有的权力，可以进行适当的调查和调查，但审慎开始任何与选举有关的事项作为初步调查，以评估现有证据是否值得采取进一步的调查步骤，” 。
+
+他还敦促美国司法部采取“极为谨慎和判断”的态度，不要对“似是而非，投机性，虚构或牵强附会的主张进行询问”。
+
+他指出，他的调查授权不应该表示司法部已得出结论，投票违规行为已影响选举结果，而是要确保对投票过程的信任。
+
+他说：“我提供这种权威和指导，以强调必须及时，妥善处理有关选举不当行为的指控，以便所有美国人，无论其首选的候选人或政党如何，都对我们的选举结果充满信心。” 。
+
+他说：“美国人民和他们自由选举产生的领导人应得的就是更多。”
+
+
+
+[原文](https://www.breitbart.com/2020-election/2020/11/09/attorney-general-william-barr-authorizes-doj-look-voting-irregularities/)：由[克里斯蒂娜·王（KRISTINA WONG）](https://www.breitbart.com/author/kristina-wong/)2020年11月9日发布
+
+0

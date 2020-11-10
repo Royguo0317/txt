@@ -1,25 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆革星评：麦康奈尔公开支持川普总统重新计票
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/542078/)
+## 路德社精选11/5/2020 晚间节目
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/542341/)
 
-多伦多加喜农场 文星（一号）
+听写：叮叮当 校对：明台 简介：恩真 文宣图：艾伦 出品：首尔喜韩农场
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09192838/CNN.jpg)图片来自 CNN
-11月9日，据Zerohedge的Tyler Darden 报道，参议院多数党领袖麦康奈尔公开表示，媒体无权决定大选结果，川普总统有权无视媒体的评论而去接受最后的结果，有权要求重新计票，有权采取法律行动排除违法行为。大选程序必须公开透明。
+简介：
 
-早在大选投票之前，这位资深的、极具权势的共和党大佬也曾表示，“必须对所有合法选票进行计数，应该排除非法选票”。
+1.国防部长艾斯博被辞退。
+2.美国体系已经感染了CCP病毒。
+3.川普总统作为权力最大的人都寸步难行，可见灭共有多难。
+4.川普总统家产几十亿不拿一分工资对资产无所求，只求灭共。
+5.川普总统会大赢！
+6.左媒说赢了，没人把你当总统。
+7.川普总统背后是美国平民主义精英，代表美国利益优先。
+8.更多的美国人会觉醒！
+9.川普团队正在汇总证据。
+10.这次要一石多鸟，把选举存在的问题都解决掉。
+11.美国密歇根州有僵尸投票给拜登。
 
-麦康奈尔是最有影响力的共和党人，他的这一表态对川普总统扭转大选形势应该有着巨大影响。麦康奈尔是来自卡耐基州的最资深参议员，前几天，他刚刚在肯塔基州新一届参议员选举中胜出连任。
-
-此前，林赛·格雷厄姆（Lindsey Graham），特德·克鲁兹（Ted Cruz）等共和党参议员都对本次总统大选的违规行为提出了质疑。格雷厄姆是参议院现任司法委员会主席，还赞助50万美元支持川普总统的法律行动。另外，负责总统权力交接的现任官员，也拒绝了乔·拜登要求进行权力过渡交接的要求。
-
-参考链接：
-
-[https://www.zerohedge.com/political/mcconnnell-backs-trump-push-recounts-says-shouldnt-accept-election-results-media](https://www.zerohedge.com/political/mcconnnell-backs-trump-push-recounts-says-shouldnt-accept-election-results-media)
-
+文宣图：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09215119/1-29.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09215321/2-51.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09215435/3-38.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09215704/4-16.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09215754/5-15.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09215803/6-15.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09215849/7-9.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09215927/8-8.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09215930/9-4.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09215938/10-4.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09215949/11-5.png)
 
 
 0
