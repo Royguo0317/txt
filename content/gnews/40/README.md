@@ -1,15 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 快讯！亚利桑那州马里科帕县的选票结果出炉，川普总统领先于拜登140票
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/543497/)
+## 不能被遗忘的民主前线&quot;香港
+` G-NEWS Taiwan` [轉載自GNews](https://gnews.org/zh-hans/544386/)
 
-![]()![](https://www.thegatewaypundit.com/wp-content/uploads/Trump-and-Biden-Perspectives-Inside-and-Outside-Venezuela-600x338.jpg)
-作者：康州农场-残夜听雨声
+文旦
 
-亚利桑那州马里科帕县的选票结果出炉，川普总统领先于拜登140票，因此川普总统赢得马里科帕县的选票，目前川普总统在亚利桑那州的选票目前距离拜登只有1%的差距，而在亚利桑那州，目前仍有大约76,000-78,000票需要计数。因此川普总统赢得该州选票的机会还很大。
-评：这场大选表面是滑稽的，但是它最终会让美国真正意义上觉醒，美国的自由民主根基即将被魔鬼给挖开，香港的今天就是他们的明天！自由的火种已经被魔鬼掐住脖子，要么世界回到黑暗，要么，自由的火种把这魔鬼彻底吞没。
+参考资料[https://www.epochtimes.com/b5/20/11/9/n12537153.htm](https://www.epochtimes.com/b5/20/11/9/n12537153.htm)
 
-原文链接：[https://www.thegatewaypundit.com/2020/11/bidens-lead-arizona-shrinks-latest-ballot-dump-maricopa-county-favors-president-trump/?ff\_source=Twitter&ff\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/11/bidens-lead-arizona-shrinks-latest-ballot-dump-maricopa-county-favors-president-trump/?ff_source=Twitter&amp;ff_campaign=websitesharingbuttons)
+香港，这个东方明珠，在2019年6月6号开始，陷入一片黑暗，一场反送中，告知了全世界中共的黑暗，中共的手段，中共的邪恶，及中共的真面目，这场大游行至今，不管是中国人民，香港人民，大量的失踪，大量的被自杀，这个被操控的香港政府变本加厉，在今年7月出了香港国安法，打算控制权世界的言语，将中共的恶法延伸到全世界，只要在他们的操控下，没有人能幸免。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10093425/%E5%9C%96%E7%89%87-1-20.png)
+在这个黑暗时刻中，各国开始对香港进行制裁，不承认香港是”独立的地区”，在中共病毒疫情之下，在美国大选之下，各个国家还是没有忘记”香港”这个地方的人民，继续的制裁，这些中共黑暗的帮手，让这些中共的帮手，胆战心惊，让他们为了做这些的目的，有权，有钱，能照顾好家人，能让家人千秋万代的梦想，随即破灭。
 
-1+
+香港这个曾经的亚洲金融之心，看看曾经，看看现在，在中共的恶，中共的扩张，让这个东方明珠变得如此残破不堪，所有的资讯，媒体，数据….开始造假，利用香港之名欺骗全世界的投资者，欺骗全世界的信任，帮中共的权贵们输血，让他们更加变本加厉的，去达到更多的阴谋。
+
+相信这一次这制裁不是结束，因为黑暗之手，越来越高，越来越深，香港需要你我继续传播真相，因为这些方式的对待香港，也正在你我身边慢慢地发生，贪婪的人，没有限制住她，没有将他揭开，没有将它消灭，他只会更加贪婪，更何况，中共这些贪婪的家族，正用着一切力量来将全世界慢慢地和他一样，你发现了吗?，想一想是不是正在进行中….
+
+0

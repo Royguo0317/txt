@@ -1,26 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/10 财经快讯: 中共掩盖疫苗副作用, 反对腐败需要所有人参与
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/544281/)
+## 路德记 美东11/06/2020 晚间节目
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/544437/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10085257/Picture37-2.png)图片：国家脉动
-1.腐败无国界，反对腐败需要所有人的参与，无论你是政府部门、私营部门，还是非盈利组织、媒体，全体公民。无论是揭露选票舞弊，还是揭露财务造假，揭露对病毒真相的掩盖，灭掉中国共产党，都离不开所有人的参与
-[https://www.accaglobal.com/uk/en/member/member/accounting-business/2019/10/insights/corruption-americas.html](https://www.accaglobal.com/uk/en/member/member/accounting-business/2019/10/insights/corruption-americas.html)
+听写校对：brandnew 简介：恩真 文宣图：艾伦 出品：首尔喜韩农场
 
-2.《国家脉动》解释舞弊的来龙去脉，遭遇推特封锁，继续坚持战斗，国家脉动油管账号上传最新一期视频，期待大家关注。
-[https://youtu.be/eBoYVUqO2m0](https://youtu.be/eBoYVUqO2m0)
+简介：
 
-3.《财富》杂志11月10日报道，巴西暂停了中共国公司的中共病毒疫苗第三期临床试验，而该公司的疫苗已经在中共国通过紧急使用项目把数万中国人当小白鼠使用，不报道使用效果，掩盖真相。
-[https://fortune.com/2020/11/10/china-covid-vaccine-early-approval-sinovac-delay-safety/](https://fortune.com/2020/11/10/china-covid-vaccine-early-approval-sinovac-delay-safety/)
+1.美国有十多个州用了黑客软件计票，系统由佩洛西前幕僚长公司提供。
+2.大法官要求宾夕法尼亚州隔离选举日后抵达的选票并逐一检查。
+3.对滨州最高法官的裁决就是判例法的先例。
+4.美国正义民众将在50个州和平游行抗议拜登偷票。
+5.主流媒体都是造势，就是打心理战。
+6.美国制度是为好人设计的 容易被恶人钻空子。
+7.川普总统给民主党时间表演造假。
+8.造假证据收集好然后就可以收网了。
+9.民主党找安提法撑场面，与真正的民意对抗。
+10.美国司法部绕过了禁止在投票中使用武装人员。
+11.强大的民意让拜登们使出了最后所有招数。
+12.真正的民意可能让众议院和参议院都由共和党主掌。
+13.在过去的三个月期间，中国暗网上可以买到对折的美国救济支票和prepaid信用卡。
 
-4.11月10日，华尔街日报报道软银和谷歌公司支持的中共国的卡车优步公司估值100亿美元，正在募集资金17亿美元，打算明年上市。
-[https://www.wsj.com/articles/chinas-uber-for-trucks-raising-1-7-billion-ahead-of-ipo-next-year-11604996654](https://www.wsj.com/articles/chinas-uber-for-trucks-raising-1-7-billion-ahead-of-ipo-next-year-11604996654)
-
-5.腾讯购买英国增长最快的基因研究公司之一康吉尼亚（Congenica），其开发的软件分析数据的速度快于行业平均值的20倍。该公司是英国少见病与遗传性癌症基因研究方面的先驱。本次融资将用于基因分析活动的国际扩张和与制药巨头结伙。
-[https://news.sky.com/story/british-genomics-start-up-congenica-sells-stake-to-chinas-tencent-12127498](https://news.sky.com/story/british-genomics-start-up-congenica-sells-stake-to-chinas-tencent-12127498)
-
-CPA Jim 整理
-By 【秘翻组 – 金融法律团队】
-
+文宣图：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10095923/1-42.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10100308/2-56.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10100242/3-44.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10102907/4-20.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10103801/5-18.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10103952/6-19.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10105319/7-12.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10105332/8-11.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10110228/9-8.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10110634/10-8.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10111020/11-10.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10111442/12-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10111705/13-3.png)
 0
