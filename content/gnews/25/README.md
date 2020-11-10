@@ -1,35 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】重磅消息：参议院共和党领袖麦康奈尔表示:“川普总统100%有权利调查违规指控，并权衡他的法律选择！”
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/542000/)
+## 密歇根州民主党工作者在脸书发布“我们扔掉了所有川普的选票”后说“这只是个玩笑”
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/541999/)
 
-**作者：香草山写作组  正道主义联盟**
+*多伦多加喜农场 Kent
+校对 文锦 上传 WJ*
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05173212/logo-2.jpg)
+据Gateway Pundit11月8日报道，基尔-福克斯顿（Kiel Fauxton）被发现在脸书上承认民主党选票造假的事。基尔拥有三个脸书账户，并在账号上注明了他的居住地以及为谁工作。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09182952/K2.jpg)
+“我在密歇根州韦恩县工作， 所有我看到的川普的选票都被我们扔掉了，成千上万张， 我的同事也全都这么做。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09183011/K3.jpg)
+网友评价说：“他应该被立刻逮捕！” 也有人说： “ 一个自称是马克思主义者所谓的公平选举“。而他的回应则是：“他们为什么总说‘自称马克思主义者’？ 你可以直接说我是‘马克思主义者’”。
 
+这已经不是第一次有民主党选举工作者公开承认他们在为拜登作假, 此前有竞选团队的工作者发布推文说自己所在的整个团队都对自己为拜登工作感到羞愧， 并主动退出。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09183041/Kent.jpg)
+随后基尔用另外一个名字与媒体取得联系并请求媒体更正这个消息，他说这只是一个玩笑，他从来没有当过选票员，还说他希望弥补这个大错。目前他的三个脸书账号已经有两个消失了，只剩下一个仍然活跃。
 
+而在另一边，在一项新的宣誓书中，内华达州克拉克县选举部的举报人称：内华达州的民意调查人员为非法选民捏造了居住数据的证据。
 
+越来越多的民主党派选举工作者开始向人们传播拜登“胜选”的“真相”，尽管多家媒体乃至多个国家元首已迫不及待地提前向拜登发表祝贺表忠心， 但公平公正的大选的结果仍然需要我们耐心的等待。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09180555/Picture1-18.png)
-自从拜登上周六宣称自己获得总统大选，麦康奈尔和国会的共和党领导人一直没有对选举结果表示祝贺或承认。
+参考链接：
+[又一位吹哨人站出来！指控内华达州的民意调查员捏造居住数据](https://gnews.org/zh-hans/540932/)-Gnews
 
-这次是麦康奈尔在大选后的首次公开亮相，麦康奈尔周一在参议院表示“尽管共和党人在参议院和众议院的竞争中获胜。没有一个州确认了选举的结果。我们有适当的系统来考虑这些担忧，川普总统100%有权利查看违规指控并权衡他的法律选择。他没有义务接受基于拜登赢得的计票结果的预测。”
+原文链接：
 
-据了解，许多共和党人都认为，特朗普仍然对共和党有着强大的影响力，在他执政之后，这种影响力将会持续下去。根据盖洛普(Gallup)的调查，在选举开始时，95%的共和党人表示他们对他作为总统的表现表示认可，而根据民调显示，有高达93%的共和党人投票支持他连任。川普竞选总统连任得到了几乎所有共和党人的支持！
+[UPDATE: Self-Described Dem Party Worker, MI Resident Who Bragged On Facebook: “I work for Wayne Co, MI and I threw out every Trump ballot I saw. Tens of thousands of them and so did all of my co-workers” Now Says “It was a joke”](https://www.thegatewaypundit.com/2020/11/self-described-dem-party-worker-detroit-resident-brags-facebook-work-wayne-co-mi-threw-every-trump-ballot-saw-tens-thousands-co-worke/)
 
-继大选舞弊事件发生后，共和党人迅速团结起来支持川普总统，最让人难忘的是周日，参议院司法委员会主席格雷厄姆接受《福克斯新闻》周日节目采访时，支持川普对不公平的选举进行全力反击。“如果共和党人不发起挑战，改变美国选举体系，就不会再有共和党总统当选，川普总统不应该认输。”
-
-还有在美国民主党总统候选人拜登宣布获胜后，面对媒体一边倒不顾事实宣布拜登当选的行为，共和党全国委员会主席罗娜·罗姆尼·麦克丹尼尔（Ronna Romney McDaniel）迅速召开新闻发布会表示，“选民才能决定谁赢得选举，而不是媒体。”
-
-麦康奈尔在华盛顿政坛影响力非法凡，作为共和党老大同时兼任参议院主席出来为川普总统亲自站台，意义重大！可以看到，川普团队的法律行动已经集结了党内所有高层力量，对于即将到来的法律大战，空前团结协作，齐齐亮相对民主党选举的舞弊坚决反击说不！今天麦康奈尔的讲话，对川普总统未来能逆转选情绝对是起到了定海神针的作用。
-
-审核：悟空
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，纽约时间周日至周四晚上8:00，美国志愿者在纽约香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05173212/logo-2.jpg)
-4+
+3+

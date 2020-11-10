@@ -1,51 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 三大独裁国家嘲笑美国大选
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/541625/)
+## 突发！川普总统宣布国防部长由克里斯托弗·米勒代理
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/541535/)
 
-*新闻来源：华盛顿自由灯塔（The Washington Free Beacon）；作者：杰克•贝勒 （Jack Beyrer ）；发布时间：2020年11月5日*
+- 编辑：文顺
+- 素材：Ranting
+- 翻译：Ranting
 
-*翻译/简评：Marialu；校对：感恩；审核：InAHurry；Page：Eric8848*
 
-**简评：**
+11月9日，川普总统发推，宣布国家反恐中心主任克里斯托弗-米勒(Christopher C. Miller)将担任代理国防部长，立即生效。
 
-俄罗斯、中国和伊朗三大独裁国家嘲笑美国民主大选，他们各尽所能利用散布虚假信息、网络黑客行为、造假选票等，企图达到其破坏干预美国大选的目的。
 
-文中提到俄罗斯嘲笑美国两百多年的民主选举制度；伊朗认为乔•拜登是“更有希望的”候选人；中共国声称“所谓的美国式民主已沦为一个笑话。” 一个没有民主选举的独裁国家对美国民主法制国家的选举，评头论足。这正应了那句：光脚的嘲笑穿鞋的。
 
-此次美国选举是一场正邪之战，以川普总统为代表的正义力量一定会战胜以乔•拜登为代表的民主党的邪恶势力+外国干预势力，如同圣经《启示录》中记载：世界末日之时善恶正邪对决的终极决战——哈米吉多顿（Armageddon) 大战，不论魔鬼撒但多么会利用谎言及各种手段欺骗世人，最终会被抛进硫磺火湖里。因为“ 耶和华坐着为王，祂要按公正审判众民⋯”
+> I am pleased to announce that Christopher C. Miller, the highly respected Director of the National Counterterrorism Center (unanimously confirmed by the Senate), will be Acting Secretary of Defense, effective immediately..
+> — Donald J. Trump (@realDonaldTrump) [November 9, 2020](https://twitter.com/realDonaldTrump/status/1325859406349799424?ref_src=twsrc%5Etfw)
 
-# **俄罗斯、中国、伊朗嘲笑美国大选结果**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/HOttrU3LqUZX9/images/694fb188-5789-47da-b0df-0e717ffab26f.jpg?asset_id=d58b990a-ff0f-4f4b-8704-082feac2d4ea&amp;img_etag=%226f1188eb4b05089adcfffd37f3058e83%22&amp;size=1024)](https://spark.adobe.com/page/HOttrU3LqUZX9/images/694fb188-5789-47da-b0df-0e717ffab26f.jpg?asset_id=d58b990a-ff0f-4f4b-8704-082feac2d4ea&amp;img_etag=%226f1188eb4b05089adcfffd37f3058e83%22&amp;size=1024)俄罗斯总统弗拉基米尔•普京与伊朗最高领导人阿亚图拉•阿里•哈梅内伊/美联社
 
-俄罗斯和伊朗官员以及中国媒体继续嘲笑美国总统大选的不确定性。
+***推文翻译：**我很高兴地宣布，备受尊敬的国家反恐中心主任克里斯托弗-米勒(Christopher C. Miller)将担任代理国防部长，立即生效。 Chris（克里斯）会做得很好！马克-埃斯佩尔已经被解雇了，我很感谢他的服务。*
 
-俄罗斯外交部发言人玛利亚•扎卡罗娃（ Maria Zakharova）在接受哥伦比亚广播公司(CBS) 采访时说：“美国选举制度明显存在缺陷。” 她说，这些缺点“部分是由于相关立法的陈旧性以及在一些基本点上缺乏监管。”
+据美国国防部官网介绍，克里斯托弗·米勒先生曾任负责特别行动和打击恐怖主义的副助理国防部长， 负责监督特种作战部队的反恐、军事信息支援行动 （MISO）、信息行动、非常规战争、非正规战争、直接行动、特种侦察、外国内部防御、反扩散、敏感特种作战以及国防部长指定的人员恢复/人质问题。1987年，米勒先生受命担任步兵军官，于1983年开始在陆军预备役中当步兵，并在哥伦比亚特区国民警卫队担任军事警察，1993年调到特种部队。在其职业生涯中，Miller先生参加了2001年在阿富汗和2003年在伊拉克的最初作战行动，此外还多次在两个战区进行后续部署。 2014 年从陆军退役后，米勒先生作为一名国防承包商工作了两年多，直接向负责情报和政策的国防副部长提供秘密特种行动和情报专业知识。
 
-俄罗斯已作出严肃认真而广泛的努力（竭尽所能）来破坏美国公众对选举的信心。今年9月，美国联邦调查局（FBI）制裁了一群干预2016年和2018年选举的俄罗斯黑客集团，联邦当局继续严厉打击俄罗斯散布虚假信息的行为。
+就在数小时前，美驻华使领馆发推，敦促伙伴国家抵制中国对外干涉:中国共产党正在以它的种种活动威胁全球的自由开放社会。川普总统紧随其后任命这样一位有着丰富的作战部署经验和情报经验的国防部长，再联系拜登窃取大选背后中共的身影，川普总统剑指何方不问可知。
 
-伊朗最高领导人阿里•哈梅内伊（Ali Khamenei）也嘲笑美国大选。
 
-哈梅内伊说：“本应举行选举的现任总统说，这是美国历史上最受操纵的选举，”显然他没有意识到美国总统不负责投票。“这样的帝国不会持续太久。”
 
-选举前夕，伊朗外交部长穆罕默德•贾瓦德•扎里夫（ Mohammad Javad Zarif）告诉美国媒体，德黑兰（伊朗）认为乔•拜登是“更有希望的”候选人。伊朗还参与了一场虚假信息的宣传活动，以破坏美国对以色列和沙特阿拉伯的外交政策。
+> 美国敦促伙伴国家抵制中国对外干涉:中国共产党正在以它的种种活动威胁全球的自由开放社会 [@ShareAmerica](https://twitter.com/ShareAmerica?ref_src=twsrc%5Etfw) [https://t.co/y3EOrN4X0B](https://t.co/y3EOrN4X0B)
+> — 美国驻华使领馆 US MissionCN (@USA\_China\_Talk) [November 9, 2020](https://twitter.com/USA_China_Talk/status/1325758823940952067?ref_src=twsrc%5Etfw)
 
-彭博新闻社周四报道说，美国当局关闭了92个与伊朗伊斯兰革命卫队有关联的网站，因为这些网站散布虚假信息。
 
-尽管中共没有就选举模棱两可的结果发表任何正式声明，但与北京有关联的机构也参与其中。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09134212/%E6%8D%95%E8%8E%B7.jpg)
+**原文翻译：**克里斯托弗·米勒先生负责执行国防部助理部长职务，曾任负责特别行动和打击恐怖主义的副助理国防部长。DASD Miller 负责监督特种作战部队的反恐、军事信息支援行动 （MISO）、信息行动、非常规战争、非正规战争、直接行动、特种侦察、外国内部防御、反扩散、敏感特种作战以及国防部长指定的人员恢复/人质问题。米勒先生于2020年1月6日宣誓就任SOCT的DASD。
 
-一家国有的中共国期刊得出的结论是，“所谓的美国式民主已沦为一个笑话”，隶属中共国的《环球时报》 声称中共国公民观看美国大选报道是为了“嘲笑”和“看滑稽”。
+2018年3月至2019年12月，Miller先生担任总统特别助理和国家安全委员会反恐和跨国威胁事务高级主任。在这个职位上，米勒先生负责战略层面的决策和执行，并支持国家安全委员会和白宫的高级领导层。
 
-[原文链接](https://freebeacon.com/national-security/russia-china-iran-mock-american-election-returns/)
+米勒先生在爱荷华州爱荷华市长大，是一名退休的美国陆军军官。1987年，他受命担任步兵军官，获得乔治华盛顿大学历史学学士学位。Miller先生于1983年开始在陆军预备役中当步兵，并在哥伦比亚特区国民警卫队担任军事警察。1993年，他调到特种部队，在第五特种部队（空降）的许多指挥和参谋职位上任职。
 
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+在他的整个职业生涯中，他曾在其他特种作战组织任职，最后指挥第2营，第5 SFG（A）。Miller先生参加了2001年在阿富汗和2003年在伊拉克的最初作战行动，此外还多次在两个战区进行后续部署，并具有广泛的机构间和联合特别行动经验。Miller 先生于 2014 年从陆军退役后，作为一名国防承包商工作了两年多，直接向负责情报和政策的国防副部长提供秘密特种行动和情报专业知识。
 
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+Miller 先生拥有海军战争学院国家安全研究硕士学位，毕业于海军指挥与参谋学院和陆军战争学院。米勒先生和他的妻子住在弗吉尼亚州。他们有两个成年的女儿和一个儿子在上大学。
 
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/HOttrU3LqUZX9/)】-点击spark adobe版
-
-[!\[\]()!\[\](https://spark.adobe.com/page/HOttrU3LqUZX9/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/HOttrU3LqUZX9/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0
