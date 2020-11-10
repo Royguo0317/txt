@@ -1,13 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆料革命终极之战系列十三：彭佩奥国务卿官方宣布冻结执行《国家安全法》四名中共官员在美资产并禁止入境
-` GM101` [轉載自GNews](https://gnews.org/zh-hans/543197/)
+## 快讯！亚利桑那州马里科帕县的选票结果出炉，川普总统领先于拜登140票
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/543497/)
 
-美东时间11月9号，美国国务院官方发布“关于制裁四名中共官员”的声明，彭佩奥表示中华人民共和国和驻香港官员继续通过出于政治动机的逮捕，破坏香港所承诺的自治和自由，因此美国国务院根据13936号行政命令，制裁四名中国和香港官员，以执行中国实施的《国家安全法》。
+![]()![](https://www.thegatewaypundit.com/wp-content/uploads/Trump-and-Biden-Perspectives-Inside-and-Outside-Venezuela-600x338.jpg)
+作者：康州农场-残夜听雨声
 
-四名中国和香港官员为中共国家安全局下属的国家安全维护办公室副主任李江洲，香港警务处国家安全部门的负责人刘德华和高级警司李桂华，香港澳门事务办公室（HKMAO）副主任邓中华。
+亚利桑那州马里科帕县的选票结果出炉，川普总统领先于拜登140票，因此川普总统赢得马里科帕县的选票，目前川普总统在亚利桑那州的选票目前距离拜登只有1%的差距，而在亚利桑那州，目前仍有大约76,000-78,000票需要计数。因此川普总统赢得该州选票的机会还很大。
+评：这场大选表面是滑稽的，但是它最终会让美国真正意义上觉醒，美国的自由民主根基即将被魔鬼给挖开，香港的今天就是他们的明天！自由的火种已经被魔鬼掐住脖子，要么世界回到黑暗，要么，自由的火种把这魔鬼彻底吞没。
 
-彭佩奥指出以上四人为实体的中共领导人或官员，以执行中国实施的《国家安全法》，并威胁香港的和平、安全与自治。因此禁止以上四人前往美国，并冻结其在美国资产（包括代理人持有资产）。彭佩奥强调美国制裁执行《国家安全法》中共官员的决心，并呼吁中共遵守在联合国备案的《中英联合声明》。
+原文链接：[https://www.thegatewaypundit.com/2020/11/bidens-lead-arizona-shrinks-latest-ballot-dump-maricopa-county-favors-president-trump/?ff\_source=Twitter&ff\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/11/bidens-lead-arizona-shrinks-latest-ballot-dump-maricopa-county-favors-president-trump/?ff_source=Twitter&amp;ff_campaign=websitesharingbuttons)
 
-0
+1+

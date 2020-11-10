@@ -1,56 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统发推：总检察长威廉·巴尔授权司法部调查违规行为
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/542273/)
+## 【热点播报】重磅！美司法部部长巴尔开始着手刑事调查民主党的大选舞弊
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/542624/)
 
-编译：玫瑰天空
+作者：香草山写作组 村北
 
-司法部长威廉·巴尔在周一发布的备忘录中授权司法部（DOJ）调查2020年总统大选的投票违规行为。
-
-川普总统发推传递了相关消息：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
 
 
 
-> [https://t.co/kSjq4ye9EO](https://t.co/kSjq4ye9EO)
-> — Donald J. Trump (@realDonaldTrump) [November 10, 2020](https://twitter.com/realDonaldTrump/status/1325973224522473475?ref_src=twsrc%5Etfw)
+
+
+美国司法部长巴尔是川普总统提名就任的司法部长，但最近多次被川普批评行动慢，不作为。但据今天Daily Wire突发新闻报道，巴尔终于授权联邦公诉人开始着手处理此次有关大选舞弊的海量指控。表明司法部已获得充足的证据。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09223648/231-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E9%87%8D%E7%A3%85%EF%BC%81%E7%BE%8E%E5%8F%B8%E6%B3%95%E9%83%A8%E9%83%A8%E9%95%BF%E5%B7%B4%E5%B0%94%E5%BC%80%E5%A7%8B%E7%9D%80%E6%89%8B%E5%88%91%E4%BA%8B%E8%B0%83%E6%9F%A5%E6%B0%91%E4%B8%BB%E5%85%9A%E6%95%B4%E4%B8%AA%E6%94%BF%E5%85%9A%E7%9A%84%E5%A4%A7%E9%80%89%E8%88%9E%E5%BC%8A.png)
+在公开文件中，巴尔表示，大选主要由各州负责监督和执行，但联邦司法部有责任保证联邦大选的过程得到美国民众的绝对信任。巴尔同时指示司法部高层要绝对秉承对无党派、中立、公平的承诺，即使要快速处理此类严重指控，也不可捕风捉影。
+
+路德时评分析，这次司法部的调查，意味着大选舞弊已上升到刑事犯罪的调查层面。巴尔发布的授权决定，意味着司法部已经得到大选舞弊的实锤证据。司法部的93名检察官，皆为川普总统任命，如果川普总统落选，这些检察官的工作也会受影响。联邦司法部的检察官的介入使川普团队如虎添翼，还将大大减轻川普竞选团队的资金压力。
+
+路德指出，司法部将进行选举违规调查。参与竞选的一方违规才能称为违规。司法部的介入，意味着司法部已经掌握民主党大选违规的确凿的证据。民主党整个政党将会面临刑事指控。
+
+审稿：雪梨
 
 
 
-该备忘录已由Barr处理并签署给美国检察官，美国司法部刑事司，民权司，国家安全司助理检察长，以及联邦调查局（FBI）局长克里斯托弗·雷（Christopher Wray）。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
 
-备忘录写道：“现在投票已经结束，当务之急是美国人民可以相信我们的选举以这样的方式进行，即选举结果能准确反映选民的意愿。”
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-巴尔的备忘录是在39名众议院共和党人[周五在一封信中敦促巴尔](https://www.breitbart.com/politics/2020/11/08/39-house-republicans-ask-bill-barr-to-ensure-integrity-of-voting-and-counting-process/)让美国司法部可用资源调查全国几个主要战场州投票不当行为的指控之后发表的。特朗普竞选活动在其中一些州提起了许多诉讼。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09212927/%E5%B7%B4%E5%B0%94%E4%BF%A11-1.jpg)*[巴尔备忘录对司法部的投票违规行为](https://www.scribd.com/document/483622101/Barr-Memo-to-DOJ-on-voting-irregularities#from_embed)由
-[克里斯蒂娜·黄](https://www.scribd.com/user/294756797/Kristina-Wong#from_embed)在Scribd*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09212939/%E5%B7%B4%E5%B0%94%E4%BF%A12-1.jpg)*[巴尔备忘录对司法部的投票违规行为](https://www.scribd.com/document/483622101/Barr-Memo-to-DOJ-on-voting-irregularities#from_embed)由
-[克里斯蒂娜·黄](https://www.scribd.com/user/294756797/Kristina-Wong#from_embed)在Scribd*
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-
-巴尔在备忘录中说，尽管各州负有进行和监督选举的主要责任，但司法部“有义务确保以这种方式进行联邦选举，以使美国人民对其选举过程充满信心。他们的政府。”
-
-他补充说，尽管所谓的“多数指控”涉及选举不当行为，其规模如此之大，以至于不会影响选举结果，因此可以推迟进行调查，“并非总是如此。”
-
-他说，由于投票已经结束，因此担心司法部在这种情况下采取的公开行动将大大减少。
-
-他还说，他已经授权司法部对具体情况下的投票和投票制表违规行为进行大量指控。
-
-他说：“鉴于此，并且鉴于我们当前的选举已经结束，因此我授权您在某些情况下在您的辖区进行选举认证之前对大量的投票指控和制表不当行为进行指控，就像我在特定情况下所做的那样。”
-
-他说，如果存在明显的，显然可信的违规指控，如果确实如此，可能会影响单个州联邦选举的结果，则可以进行调查和审查。
-
-他说：“虽然美国检察官保持其固有的权力，可以进行适当的调查和调查，但审慎开始任何与选举有关的事项作为初步调查，以评估现有证据是否值得采取进一步的调查步骤，” 。
-
-他还敦促美国司法部采取“极为谨慎和判断”的态度，不要对“似是而非，投机性，虚构或牵强附会的主张进行询问”。
-
-他指出，他的调查授权不应该表示司法部已得出结论，投票违规行为已影响选举结果，而是要确保对投票过程的信任。
-
-他说：“我提供这种权威和指导，以强调必须及时，妥善处理有关选举不当行为的指控，以便所有美国人，无论其首选的候选人或政党如何，都对我们的选举结果充满信心。” 。
-
-他说：“美国人民和他们自由选举产生的领导人应得的就是更多。”
-
-
-
-[原文](https://www.breitbart.com/2020-election/2020/11/09/attorney-general-william-barr-authorizes-doj-look-voting-irregularities/)：由[克里斯蒂娜·王（KRISTINA WONG）](https://www.breitbart.com/author/kristina-wong/)2020年11月9日发布
-
-0
+1+
