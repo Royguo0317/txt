@@ -1,35 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 报告称美国国内登记选民数比合格选民数多出了180万
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/543961/)
+## 11/10 财经快讯: 中共掩盖疫苗副作用, 反对腐败需要所有人参与
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/544281/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10072820/Picture36-1.png)
-《每日连线》(Daily Wire) 记者汉克·贝里恩(Hank Berrien)10日的报道，本周一司法观察（Judicial Watch）透露了他们2020年研究的报告结果，指出在美国353个县中，登记的选民数可能比有合法投票的公民数多出180万。该结果解释了有些县的登记人数超过了合格选民，注册率超过100％。涉及注册率超过100％的州，包括阿拉斯加，科罗拉多州，缅因州，马里兰州，密歇根州，新泽西州，罗德岛州和佛蒙特州。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10085257/Picture37-2.png)图片：国家脉动
+1.腐败无国界，反对腐败需要所有人的参与，无论你是政府部门、私营部门，还是非盈利组织、媒体，全体公民。无论是揭露选票舞弊，还是揭露财务造假，揭露对病毒真相的掩盖，灭掉中国共产党，都离不开所有人的参与
+[https://www.accaglobal.com/uk/en/member/member/accounting-business/2019/10/insights/corruption-americas.html](https://www.accaglobal.com/uk/en/member/member/accounting-business/2019/10/insights/corruption-americas.html)
 
-### **司法观察搜集数据的方法**
+2.《国家脉动》解释舞弊的来龙去脉，遭遇推特封锁，继续坚持战斗，国家脉动油管账号上传最新一期视频，期待大家关注。
+[https://youtu.be/eBoYVUqO2m0](https://youtu.be/eBoYVUqO2m0)
 
-司法观察解释，“2020年9月的研究收集了各州自己在线发布的最新注册数据。然后将该数据与美国人口普查局(Census Bureau)从2014年到2018年公布的最新五年人口估计值进行比较。美国社群调查(American Community Survey ,ACS)每月会将问卷调查发送到350万个地址，其五年期估计值是十年一次的人口普查以外最可靠的估算。”
+3.《财富》杂志11月10日报道，巴西暂停了中共国公司的中共病毒疫苗第三期临床试验，而该公司的疫苗已经在中共国通过紧急使用项目把数万中国人当小白鼠使用，不报道使用效果，掩盖真相。
+[https://fortune.com/2020/11/10/china-covid-vaccine-early-approval-sinovac-delay-safety/](https://fortune.com/2020/11/10/china-covid-vaccine-early-approval-sinovac-delay-safety/)
 
-### **发现180万不活跃的选民**
+4.11月10日，华尔街日报报道软银和谷歌公司支持的中共国的卡车优步公司估值100亿美元，正在募集资金17亿美元，打算明年上市。
+[https://www.wsj.com/articles/chinas-uber-for-trucks-raising-1-7-billion-ahead-of-ipo-next-year-11604996654](https://www.wsj.com/articles/chinas-uber-for-trucks-raising-1-7-billion-ahead-of-ipo-next-year-11604996654)
 
-司法观察接着指出，某些州可能从其数据中发现并且移除了“不活跃选民”。司法观察社主席汤姆•菲顿（Tom Fitton）总结说：“这项新研究表明，在总共29个州的353个县中，有180万名“幽灵”选民。数据突显了邮寄选票申请以及递送程序中的严重造假程度，肮脏的投票可能意味着肮脏的选举结果。”
+5.腾讯购买英国增长最快的基因研究公司之一康吉尼亚（Congenica），其开发的软件分析数据的速度快于行业平均值的20倍。该公司是英国少见病与遗传性癌症基因研究方面的先驱。本次融资将用于基因分析活动的国际扩张和与制药巨头结伙。
+[https://news.sky.com/story/british-genomics-start-up-congenica-sells-stake-to-chinas-tencent-12127498](https://news.sky.com/story/british-genomics-start-up-congenica-sells-stake-to-chinas-tencent-12127498)
 
-在司法观察与洛杉矶县达成和解协议之后的2019年6月，该县向多达150万不活跃的选民发布了通知。其中协议指出，在洛杉矶县的不活跃的选民，如未依规定回应第8（d）（2）节通知，将在第二次会议之日起90天内被取消投票权。
-
-司法观察指出，洛杉矶县有超过1000万居民，超过了美国现有50个州中的41个州的人口数，并且洛杉矶县允许维持超过20％的不活跃选民在选民名单中。司法观察发现，加州已经消极地看待移除不活跃选民的行动，并不是强制性的行动，并且加州至少在20年内未清理其选民登记册。”
-
-菲顿当时说：“这项和解将导致加利福尼亚州和洛杉矶县立即并持续清理选民名册。加利福尼亚这次干净的选举将为其他州树立另一个全国先例，以使其他州采取合理步骤，确保将死者和其他不合格选民从名册中剔除。”
-
-司法观察还指出，“在2018年，最高法院支持一项清除选民名册的计划，该计划是司法观察与俄亥俄州达成的一项联邦诉讼和解协议的结果 ……肯塔基州在与司法观察达成一项同意令以终止另一项诉讼后，去年也开始清理数十万个无效注册。2020年9月，司法监督（Judicial Watch）起诉伊利诺伊州，因为其拒绝披露违反联邦法律的选民名册数据。”
-
-**译评:**
-
-沼泽的真相不堪卒睹，超过180万的选票可能是已经过世的人或者不明确的名单。这次选票欺骗大潮将袭卷全美。更多确凿的证据与真相将会一个一个地被揭露出来。不管是高级政客、媒体大亨、科技巨头，美国内部与中共一起作恶的人都将被审判，这一次美国大选将会让美国选民更加深刻体会到中共共产主义的邪恶。黑暗之后，美国的民主制度将会重生。
-
-[原文链接](https://www.dailywire.com/news/report-in-353-u-s-counties-1-8-million-more-voters-registered-than-eligible-citizens)
-
-翻译：william
-校对：文投
+CPA Jim 整理
+By 【秘翻组 – 金融法律团队】
 
 0
