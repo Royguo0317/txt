@@ -1,32 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 司法部介入表明对大选舞弊的调查升至国家层面
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/544587/)
+## 几乎同时，普京声明俄罗斯的两款疫苗有效
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/545182/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10105047/1110-3pic1.jpg)图片来自： aljazeera.com
-据布赖特巴特网（Breitbart）11月9日报道，司法部长威廉·巴尔（William Barr）在周一发布的一份备忘录中授权司法部（DOJ）调查2020年总统选举中的投票违规行为。
+文/青椒文喜
 
-这份备忘录由巴尔签发给司法部刑事司、民权司、国家安全司的检察官和助理检察长们，以及联邦调查局（FBI）局长克里斯托弗·雷（Christopher Wray）。备忘录中写道:  “既然投票已经结束，当务之急是要美国人民相信，我们的选举是以准确反映选民意愿的方式进行的。”
+今天，俄罗斯总统普京就新冠病毒的疫苗一事发表声明。他在参加上海合作组织（SCO）峰会时说：“俄罗斯已经有2种注册疫苗。此外，研究表明，这些疫苗首先是安全的，使用后不会造成严重后果，其次，它们都是有效的，”普京还补充说“已经接种疫苗并且遇到病毒携带者的人没有生病，或者有最轻微症状的症状。”
 
-上周五，39名众议院共和党人向巴尔施压，要求动用司法部资源对全美几个关键州的投票违规行为展开调查，巴尔随后在周一发布了该备忘录。川普的竞选团队已经在其中一些州提起了多项诉讼。
+[https://ria.ru/20201110/vaktsina-1583919540.html](https://ria.ru/20201110/vaktsina-1583919540.html)
 
-巴尔在他的备忘录中说，虽然各州对选举的进行和监督负有主要责任，但司法部有“义务确保联邦选举的进行方式能够让美国人民对他们的选举过程和政府有充分的信心。” 巴尔还补充说，虽然对于“大多数所谓的选举不当行为的指控“来说，其规模不会影响选举结果，司法部的调查也可以有所延迟，但也不排除有例外情况出现。由于投票已经结束，人们对司法部在此案中采取公开行动的关切度也大大降低。
-
-巴尔表示，他已授权司法部对某些特殊案例的投票和投票制表中违规行为进行实质性指控。他说：”有鉴于此，并考虑到本次选举投票现已结束，我授权你们在某些情况下，在你们辖区内的选举认证之前，对投票和投票制表的违规行为进行实质性指控，我已经在具体个案中这样做了。” 他还称，如果存在明确和明显可信的对违规的指控，而且这些指控如果属实的话，会影响到该州的联邦选举结果，质询和审查就可以予以展开。
-
-巴尔还说道：”尽管美国检察官有其固有的权力，即可以在他们认为合适的情况下进行查询和调查，但为保险起见，可以对任何与选举有关的事宜展开初步查询，以便评估现有证据是否支持进一步的调查。” 他还敦促司法部要 “非常谨慎和下判断”，不要对 “似是而非、猜测性、幻想性或牵强的说法 “展开调查。
-
-他特别指出，他授权进行调查不应被视为司法部已经得出投票违规行为影响了选举结果的结论，而是为了确保人们对投票过程的信任。”我提供这一授权和指导，是为了强调必须及时和适当地处理有关投票违规的指控，以便所有美国人民，无论他们喜欢哪位候选人或政党，都能对我们的选举结果有充分的信心，这是美国人民和他们自由选出的领导人应得的。”
-
-**评**：路德说得好，司法部的正式介入表明了对大选舞弊的调查已上升到了国家层面，改变了原来只有朱力安尼老爷子辛苦各地奔走干“私”活的局面。现在巴尔在众议院的施压下终于出面表态，也算是识时务者为俊杰，我们期待司法部最后的公正判决。
+无独有偶，昨天美国辉瑞公司宣布他们与Biontech 公司合作的基于mRNA技术的疫苗已经获得重要成功。
 
 
 
-[原文链接](https://www.breitbart.com/2020-election/2020/11/09/attorney-general-william-barr-authorizes-doj-look-voting-irregularities/)
+> UPDATE: We are proud to announce, along with [@BioNTech\_Group](https://twitter.com/BioNTech_Group?ref_src=twsrc%5Etfw), that our mRNA-based [#vaccine](https://twitter.com/hashtag/vaccine?src=hash&amp;ref_src=twsrc%5Etfw) candidate has, at an interim analysis, demonstrated initial evidence of efficacy against [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) in participants without prior evidence of SARS-CoV-2 infection.
+> — Pfizer Inc. (@pfizer) [November 9, 2020](https://twitter.com/pfizer/status/1325767629890592771?ref_src=twsrc%5Etfw)
 
-翻译：Alton
 
-校对：Sarathecat
 
-0
+而在今天，川普总统也对此进行了回应中说FDA将批准辉瑞的疫苗。
+
+
+
+> “President Trump told us for some time we would be getting a Vaccine by the end of the year and people laughed at him, and here we are with Pfizer getting FDA approval by the end of this month. He was right.” [@MariaBartiromo](https://twitter.com/MariaBartiromo?ref_src=twsrc%5Etfw)
+> — Donald J. Trump (@realDonaldTrump) [November 10, 2020](https://twitter.com/realDonaldTrump/status/1326147913542668291?ref_src=twsrc%5Etfw)
+
+
+
+普京总统在八月宣布，俄罗斯是世界上第一个注册新冠病毒疫苗（Sputnik V）的国家。许多公众人物接种了疫苗，其中包括国防部长谢尔盖·绍伊古和普京的女儿。
+
+尽管如此，国际社会对有关疫苗出现的信息仍保持警惕。从COVID-19的统计数据和官员的声明来看，没有关于在俄罗斯大量使用疫苗的消息。此前，巴西总统Bolsonaro 宣布，巴西卫生监管部门以严重的不良事件为由暂停了中国科兴公司的疫苗。
+
+上周以来，俄罗斯连续几天出现疫情以来单日染病人数破2万的峰值，不知这是否与普京宣布俄产疫苗情况有关。不论怎样，俄罗斯第一时间封锁与中国的边境，也完全不买中共“大国战疫”的单。结合最近克里姆林宫的一些列声明，可以揣测到俄罗斯政府对中共的态度。中共在实验室改造病毒并以超限生化武器的形式释放到全球，具体情况已经由闫丽梦博士和她的团队进行了揭露。当下，除了疫苗研发，最有效的防疫手段就是找到病毒来源的真相，问责中国共产党。
+
+1+
