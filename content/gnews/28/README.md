@@ -1,19 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 快讯：汤姆·科顿（Tom Cotton）：“毫无疑问，北京快报会邀请了拜登”
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/544616/)
+## 中共病毒围城 上海行程码翻红
+` Ronald` [轉載自GNews](https://gnews.org/zh-hans/544630/)
 
-编辑：玫瑰天空
+内新闻/材料/翻上墙头的猪 校对:天蓝色独角色
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10110103/Screenshot_2020-11-10-23-54-05-886_Discord.png)
+北京时间2020年11月10日上午十点，中共国行程码官方通报：新疆维吾尔自治区喀什地区、天津市、上海市出行码标记为红色。
 
-在周一在福克斯新闻频道（Fox News Channel）的“故事”中露面时，参议员汤姆·卡顿（Tom Cotton）（R-AR）回答了一个有关在潜在的拜登政府统治下美中关系将如何发展的问题。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10110421/%E6%88%AA%E5%B1%8F2020-11-11-04.58.23.png)
-阿肯色州共和党人坚持拜登白宫将对中国有利，并敦促观众考虑到这一点，因为这涉及对美国参议院的控制。
+昨天11月9日上海浦东新区曝出一例本地感染中共病毒确诊病例。截止10号傍晚，上海市官方仅公布相关核酸检测机构及宣传市民加强自身防护，并未出现像青岛市一样被要求强制检疫，城市运行基本正常。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10112415/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2020-11-11-002351.jpg)上海进博会–图片来源于网络
+上海市常住人口有2400多万，算上流动人口要近3千万，差不多相当东南亚国家马来西亚一个国家的人口数量。上海市还是目前中共国唯一一个财政收支维持余额正数的地区。
 
-他说：“我们可能仍在等待从佐治亚州和北卡罗来纳州等地获得认证和最终结果。” “但是我认为毫无疑问，乔·拜登与北京有关联。在整个竞选活动中，中国一直支持乔·拜登，因为乔·拜登已有48年的历史，向北京出售美国工人和美国工作，更不用说儿子在中国的黑幕交易了。因此，这就是为什么我们需要选出大卫·珀杜（David Perdue）和凯利·洛夫勒（Kelly Loeffler）的另一个原因，他们从一开始就对中国共产党很强硬。
+相比于青岛市的全城检疫和当初北京的强行封门堵小区，上海市的处理方式要低调得多。
 
-援引：
+尽管目前为止仅有一例被通报的确诊病例，也没有找到感染源，但这位并没有风险接触史的病人到底是从哪里感染到的中共病毒呢？
 
-[https://www.breitbart.com/clips/2020/11/10/tom-cotton-theres-no-doubt-that-the-beijing-box-came-in-for-joe-biden/](https://www.breitbart.com/clips/2020/11/10/tom-cotton-theres-no-doubt-that-the-beijing-box-came-in-for-joe-biden/)
+中共的一贯作风是能瞒则瞒。上海市是中共国的经济和金融中心，就算病毒暴发，中共也一定会大事化小小事化了的。
+
+新闻来源：[https://www.sohu.com/a/430839048\_614812](https://www.sohu.com/a/430839048_614812)
 
 0

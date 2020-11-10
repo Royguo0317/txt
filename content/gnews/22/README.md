@@ -1,32 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 司法部介入表明对大选舞弊的调查升至国家层面
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/544587/)
+## 路德记 美东11/06/2020 晚间节目
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/544437/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10105047/1110-3pic1.jpg)图片来自： aljazeera.com
-据布赖特巴特网（Breitbart）11月9日报道，司法部长威廉·巴尔（William Barr）在周一发布的一份备忘录中授权司法部（DOJ）调查2020年总统选举中的投票违规行为。
+听写校对：brandnew 简介：恩真 文宣图：艾伦 出品：首尔喜韩农场
 
-这份备忘录由巴尔签发给司法部刑事司、民权司、国家安全司的检察官和助理检察长们，以及联邦调查局（FBI）局长克里斯托弗·雷（Christopher Wray）。备忘录中写道:  “既然投票已经结束，当务之急是要美国人民相信，我们的选举是以准确反映选民意愿的方式进行的。”
+简介：
 
-上周五，39名众议院共和党人向巴尔施压，要求动用司法部资源对全美几个关键州的投票违规行为展开调查，巴尔随后在周一发布了该备忘录。川普的竞选团队已经在其中一些州提起了多项诉讼。
+1.美国有十多个州用了黑客软件计票，系统由佩洛西前幕僚长公司提供。
+2.大法官要求宾夕法尼亚州隔离选举日后抵达的选票并逐一检查。
+3.对滨州最高法官的裁决就是判例法的先例。
+4.美国正义民众将在50个州和平游行抗议拜登偷票。
+5.主流媒体都是造势，就是打心理战。
+6.美国制度是为好人设计的 容易被恶人钻空子。
+7.川普总统给民主党时间表演造假。
+8.造假证据收集好然后就可以收网了。
+9.民主党找安提法撑场面，与真正的民意对抗。
+10.美国司法部绕过了禁止在投票中使用武装人员。
+11.强大的民意让拜登们使出了最后所有招数。
+12.真正的民意可能让众议院和参议院都由共和党主掌。
+13.在过去的三个月期间，中国暗网上可以买到对折的美国救济支票和prepaid信用卡。
 
-巴尔在他的备忘录中说，虽然各州对选举的进行和监督负有主要责任，但司法部有“义务确保联邦选举的进行方式能够让美国人民对他们的选举过程和政府有充分的信心。” 巴尔还补充说，虽然对于“大多数所谓的选举不当行为的指控“来说，其规模不会影响选举结果，司法部的调查也可以有所延迟，但也不排除有例外情况出现。由于投票已经结束，人们对司法部在此案中采取公开行动的关切度也大大降低。
-
-巴尔表示，他已授权司法部对某些特殊案例的投票和投票制表中违规行为进行实质性指控。他说：”有鉴于此，并考虑到本次选举投票现已结束，我授权你们在某些情况下，在你们辖区内的选举认证之前，对投票和投票制表的违规行为进行实质性指控，我已经在具体个案中这样做了。” 他还称，如果存在明确和明显可信的对违规的指控，而且这些指控如果属实的话，会影响到该州的联邦选举结果，质询和审查就可以予以展开。
-
-巴尔还说道：”尽管美国检察官有其固有的权力，即可以在他们认为合适的情况下进行查询和调查，但为保险起见，可以对任何与选举有关的事宜展开初步查询，以便评估现有证据是否支持进一步的调查。” 他还敦促司法部要 “非常谨慎和下判断”，不要对 “似是而非、猜测性、幻想性或牵强的说法 “展开调查。
-
-他特别指出，他授权进行调查不应被视为司法部已经得出投票违规行为影响了选举结果的结论，而是为了确保人们对投票过程的信任。”我提供这一授权和指导，是为了强调必须及时和适当地处理有关投票违规的指控，以便所有美国人民，无论他们喜欢哪位候选人或政党，都能对我们的选举结果有充分的信心，这是美国人民和他们自由选出的领导人应得的。”
-
-**评**：路德说得好，司法部的正式介入表明了对大选舞弊的调查已上升到了国家层面，改变了原来只有朱力安尼老爷子辛苦各地奔走干“私”活的局面。现在巴尔在众议院的施压下终于出面表态，也算是识时务者为俊杰，我们期待司法部最后的公正判决。
-
-
-
-[原文链接](https://www.breitbart.com/2020-election/2020/11/09/attorney-general-william-barr-authorizes-doj-look-voting-irregularities/)
-
-翻译：Alton
-
-校对：Sarathecat
-
+文宣图：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10095923/1-42.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10100308/2-56.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10100242/3-44.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10102907/4-20.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10103801/5-18.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10103952/6-19.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10105319/7-12.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10105332/8-11.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10110228/9-8.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10110634/10-8.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10111020/11-10.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10111442/12-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10111705/13-3.png)
 0

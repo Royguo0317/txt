@@ -1,24 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德社精选 11/6/2020 早间节目
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/544198/)
+## 郭文贵先生今日动态（2020年11月10日）
+` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/544447/)
 
-听写：明台 校对：明台 简介：恩真 文宣图：艾伦 出品：首尔喜韩农场
+战友之家摘要组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10095844/image-161.png)
+【持续更新】不仅爆中南坑料还要爆村长料，新中国联邦和爆料革命要开始对整个中国共产党对中国人民的洗脑，和无处不在的共产病毒进行清理。因为共产党马上就完了。勿忘健身！
 
-简介：
+00:01 尊敬的战友们好，今天是10号。这本来我是想去锻炼去了，结果叽一电话，说有重大事，重大事，我说，“咋办呐”，他说，“先通个话”。很热闹。亚利桑那州的事情，虽然现在结果还没出来是吧。着急是吧。咱有时候，爆料革命就是爆太早。太早。但是兄弟姐妹们，记住啊，有些事情有点耐心，都会来的。川普总统100%赢。这是一个。
 
-1.现在重要的是在法律上给民主党和中共定罪。
-2.中共用各种方式捏造川普不会连任。
-3.这次选举有多滑稽，死人也来投票。
-4.川普总统一定会找到真相。
-5.朱利安尼在很多法庭都提起了诉讼，只要 一个法庭赢了其他地方都会作废。
-6.这个法律战一定可以改变全部战局。
-7.很多州长同意继续邮寄选票。
-8.邮寄选票会造成了竞争不公平，不会受到大家认可。
-9.当美国被束缚的时候，就会有一群人站出来。
-10.美国科学家的科技成果就是因为打破规则的精神。
+00:45 另外一个。昨天我讲了很多关于小时候看黄片的事，看直播。大家要明白我的意思，为啥这时候文贵要说这话，我们老爆中南坑的料。咱也得让中国人知道知道这个乡村的故事。乡村的故事。到底发生了什么事情？让大家知道知道乡村发生了啥事呢？也就是现在让全中国人民都要明白共产党。咱就要爆爆村长的料。不仅仅爆国长的料，还要爆爆村长的料。这就是咱现在要做的，兄弟姐妹们。
 
-文宣图：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10085453/1-41.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10091652/2-55.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10091841/3-43.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10092215/4-18.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10092317/5-17.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10092414/6-17.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10092620/7-11.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10092726/8-10.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10092742/9-6.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10092817/10-6.png)
+01:29 也就是昨天文贵希望通过爆村长的料，文贵儿时的成长能掀起，哎哟这旗子真好看，能掀起真正的全民爆料，全民认清共产党。从村长，到现在共产党无处不在的在中国的各个地方，都要认清楚共产党，以共灭共。最终灭了共是给谁，是给人民，人民得想明白。为啥要灭共。
+
+02:05 所以我们新中国联邦和爆料革命要开始对整个中国共产党对中国人民的洗脑，和无处不在的共产病毒进行清理。因为共产党马上就完了。共产党完了，老百姓不明白为啥让它完，那能行吗？兄弟姐妹们，所以说有些话，我先不说，我的赶快去。刚刚起来，我得上香去。我七点钟才睡觉，唔该晒了兄弟姐妹们。别忘了健身啊。
+
+（视频结束）
+
+更多信息请点：https://gtv.org/getter/5faa9cd4ad3f0f61d2bf0b2f
+
 0
