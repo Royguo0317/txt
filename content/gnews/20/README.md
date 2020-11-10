@@ -1,21 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 司法部为什么不确保选票，警察投票站或执行法院命令的安全？美国353个县的登记选民比合格投票年龄的公民多180万
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/542401/)
+## 美国大选前, “选举舞弊惩罚”“监狱”等词谷歌搜索率飙升
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/542664/)
 
-编辑：玫瑰天空
+作者：翼族
+编辑：Giselle
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09224802/Picture31-1.png)
+该篇文章翻译自2020年11月9日娜塔莉·温特斯(Natalie Winters)的报道。娜塔莉·温特斯是[《国家脉动》](https://thenationalpulse.com/news/election-punishment-searches-skyrocket/)的高级记者。2020年8月15日，郭文贵先生曾在盖特上特意推荐了这位美丽的女孩。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09224818/Picture32-1.png)图片来源：郭文贵先生盖特截图
+娜塔莉在11月9日的报道中写道：
+
+2020年总统大选之前，“选举舞弊惩罚”、“选举舞弊坐牢”和“如何出售投票”等词出现高人气的搜索量。根据Google趋势所做的数据分析，“选举欺诈惩罚”，“选举欺诈坐牢”，“选举欺诈监狱”和“如何出售选票”这四个词语的搜索量激增（如下图）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09224826/Picture33-1.png)图片来源：谷歌截图
+例如，在选举的前一个月，“如何出售选票”一词开始流行，增幅徘徊在50％左右，并在10月30日达到顶峰。
+
+选举前几天，“选举欺诈坐牢”的搜索量也飙升，而其他关于“选举欺诈”处罚的搜索查询也是如此。
+
+Google趋势还揭示了这些搜索词在美国一些特定的地区（尤其是宾夕法尼亚和亚利桑那等摇摆州）达到相当流行的程度。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09224833/Picture34-1.png)图片来源：谷歌截图
+例如，“选举欺诈惩罚”在亚利桑那州和宾夕法尼亚州搜索量最高，而“选举欺诈坐牢”在亚利桑那州和德克萨斯州非常盛行。
+
+此外，“如何出售选票”在加利福尼亚州最受欢迎，其次是亚利桑那州和宾夕法尼亚州。而“选举欺诈监狱”在亚利桑那州和宾夕法尼亚州最受欢迎。
+
+谷歌的搜索趋势表明在本次大选之前，和选举舞弊相关的搜索词就一度非常流行，这再一次印证了本次大选中存在大量的舞弊行为。而拜登竞选团队在竞选委员会没有公布最后结果之前，就在无良媒体的帮助下匆匆宣告自己赢得了大选，这只是作弊后掩盖自己心虚的丑陋行径。随着真相的一步步揭示，美国人民会看到作弊者只是光着身子假装穿着华丽的衣服，上演一出《皇帝的新装》的丑剧而已。
+
+（文章内容仅代表作者个人观点）
+
+**相关链接：**
+
+- [*https://thenationalpulse.com/news/election-punishment-searches-skyrocket/*](https://thenationalpulse.com/news/election-punishment-searches-skyrocket/)
 
 
-
-最新获悉，司法观察宣布，2020年9月的一项研究显示，美国353个县的登记选民比合格投票年龄的公民多180万。换句话说，这些县的登记率超过了合格选民的100％。该研究发现八个州的州注册率超过100％：阿拉斯加，科罗拉多州，缅因州，马里兰州，密歇根州，新泽西州，罗德岛州和佛蒙特州。
-
-Judicial Watch announced that a September 2020 study revealed that 353 U.S. counties had 1.8 million more registered voters than eligible voting-age citizens. In other words, the registration rates of those counties exceeded 100% of eligible voters. The study found eight states showing state-wide registration rates exceeding 100%: Alaska, Colorado, Maine, Maryland, Michigan, New Jersey, Rhode Island, and Vermont.
-
-
-
-本次美国大选的白宫之站还未结束，民主党人拜登过早庆祝了他的“胜利”。世界各方急于想向拜登投送橄榄枝的队伍越来越多的付出水面。多方政要不顾网络媒体铺天盖地爆出关于拜登父子的腐败信息，急着战队拜登并庆祝其“胜选”，不免令人瞠目结舌。
-
-这场美国选票大战之中，让我们看到了政治背后各方人士的勇气与背叛！截然不同的良知与底线！舞台之上，谢幕之时，鹿死谁手还未可知！一过对于新中国联邦人一切可期！终有一壶酒，敬天敬地敬战友！
-
-0
+1+

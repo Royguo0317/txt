@@ -1,9 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/08/2020 每日快讯
-` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/542491/)
+## 推特咏叹调
+` GISELLE` [轉載自GNews](https://gnews.org/zh-hans/542646/)
 
-2020年11月8日 每日快讯 制作：战友之家粤语频道
-主播：【美国小李】 资料收集：【安妮】【文依】【文静】【星星】 视频制作：【咸鱼】
+作者：Giselle
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09224708/freepress-01.png)
+日落粉丝二三十，
+月关黑屋四五次。
+年封账号六七个，
+死磕推特两三年。
+
 0
