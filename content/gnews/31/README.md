@@ -1,37 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 有关总统大选系列：川普总统获得的非白人选票，比60年中的任何共和党候选人都要多
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/541659/)
+## 川普总统宣布解雇国防部长马克·埃斯珀
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/541683/)
 
-简评：大卫；策划：九宸；文字整理/编辑：Julia Win；Page：拱卒
+多伦多加喜农场 ctt
 
-**议员 Kevin Mccarthy 在FOX 接受 Maria Bartiro 的采访**
+校对上传 XM
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09141628/%E5%9B%BE%E7%89%879.jpg)图片来源：rtvi.com
+11月9日，美国川普总统表示：”我很高兴地宣布，备受尊敬的美国国家反恐中心主任克里斯托弗·米勒(Christopher Miller)将担任代理国防部长（经参议院确认）立即生效。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/RPMTLgtt8ChQy/images/b902439a-86aa-477c-b159-dd4881b756c2.jpg?asset_id=f34a3195-ead9-4d7a-b821-9fd5a281b513&amp;img_etag=%22ced86af749783627b09883a8429a2567%22&amp;size=1024)](https://spark.adobe.com/page/RPMTLgtt8ChQy/images/b902439a-86aa-477c-b159-dd4881b756c2.jpg?asset_id=f34a3195-ead9-4d7a-b821-9fd5a281b513&amp;img_etag=%22ced86af749783627b09883a8429a2567%22&amp;size=1024)
+Chris（克里斯）会做得很好！马克·埃斯珀(Mark Esper)已经被解雇了。我很感谢他的服务。”
+
+近日, 埃斯珀将离任的消息一直闹得沸沸扬扬，五角大楼负责人甚至起草了辞职信。11月5日，有媒体援引美国五角大楼三名官员的信息表示，国防部长埃斯珀准备辞职。有消息人士指出，埃斯珀的处境实际上可能以辞职而告终，因为他是那些在很久之前就被期望接替其职位的部长之一，特别是在选举后。
+
+埃斯珀与川普总统长期处于紧张关系。特别是在今年6月，他们在使用军队协助抵抗骚乱活动方面存在分歧。川普总统主张引入军队以恢复秩序。五角大楼认为不存在骚乱活动。
+
+埃斯珀还一直试图重命名所有以邦联领导人的名字命名的美国军事基地，例如布拉格堡，胡德堡和其他八个陆军哨所，此举遭到川普总统的反对。
+
+川普总统的支持者对解雇埃斯珀的决定表示欢迎。
+
+参考链接：
+
+[https://www.zerohedge.com/political/trump-fires-defense-secretary-mark-esper](https://www.zerohedge.com/political/trump-fires-defense-secretary-mark-esper)
 
 
-> **大卫锐评：**
+
+> [美国防部长埃斯珀准备辞职](https://gnews.org/zh-hans/530869/)
 
 
-Fox是玩平衡的高高手！但也是最好的风向标！🎯🎯川普总统的反击和反转不靠这些媒体而是实力！👍👍是共和党强大的国会胜利和60多年来取得的非白种人新生力量！这就是川普总统带给美国的最宝贵政治财富！新生力量恰恰代表了主流民意！民主党的亲共卖国已经被唾弃了！而选举舞弊作假，窃取总统更是严重刑事犯罪！想啥呢？😈😈 请记住：共和党没有失去参议院！没有失去任何立法院的控制权！民主党的“政治保护伞”佩洛西 也不会再轻易拿到218张选举票了！众议院VS参议院 将是经典之战！ 现在不是选谁是总统了？而是谁是罪犯！是什么会引爆参众两院的核弹！😎😎我们拭目以待！Fox继续使劲吧！👊👊🦁️🦁️🦄️🦄️🦅🦅
-
-
-
-**MariaBartiro：**欢迎回到节目中。早期数字显示，共和党获得2020年国会选举的重大胜利。共和党至少赢得了四百万新选民，而川普总统获得的非白人选票，比60年中的任何共和党候选人都要多。众议院共和党人还期望获得过超过13个新席位。这些新胜利是属于妇女、退伍军人和少数民族。
-
-**Kevin Mccarthy：**现在就加入我们。
-
-**MariaBartiro：**早上好，很高兴见到你麦卡锡议员，非常感谢你的到来。今天早上我们听到另一个胜利，加州第50区的达雷……。在为我们评估这个情况之前，也许你可就明天鲁迪朱利安尼提起主动上诉及法律诉讼这件事，发表一下评论。
-
-**Kevin Mccarthy：**在总统大选中，我们需要确保计数每一张合法的选票，完成每一次重新计票，听取每一个法律挑战。只有这样做之后，美国才能决定谁赢得了选举。玛丽亚，请记住，我们只差不到2万1千票就可以赢得众议院多数仍少十个席位，共和党领先其中三个席位。他们还没宣布任何结果呢。那么，为什么要先宣布总统大选的结果呢？请记住宪法框架流程。在大选前的星期日，我曾在你的节目上提过的，他们在众议院预测共和党将失去15至20个席位。每个民调都说，议长佩洛西和坦尼霍尔，他们还说我们会输掉这个，也会失去参议院。
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/RPMTLgtt8ChQy/)】-点击spark adobe版
-
-[!\[\]()!\[\](https://spark.adobe.com/page/RPMTLgtt8ChQy/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/RPMTLgtt8ChQy/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 1+

@@ -1,22 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美军抵达高雄日何以没出现共匪驻美公使李克新叫嚣的武统时
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/542116/)
+## 【热点播报】一切只是刚刚开始：美重要政治媒体之一《Real Clear Politics》第一个将宾州从拜登的取胜州名单中取消
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/542138/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09203251/timg_%E5%89%AF%E6%9C%AC.jpg)
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
 
-据[霸气亮剑! 中国驻美公使称美军抵高雄日就是“武统”时](http://video.tudou.com/v/XMzIxNzg5MjMyNA==.html?from=s1.8-1-1.2)（来源：土豆 发布时间：2017-12-09）
 
-另据[台媒：台海军证实美国海军陆战队抵台，将教授台军突击舟等作战课程](https://www.sohu.com/a/430510633_162758)（2020-11-09 09:17）：
 
-［报道称，台海军司令部证实美国海军陆战队抵台，今天（9 日）起连续 4 周，将在高雄左营军区教授海军陆战队、两栖特勤中队有关突击舟、快艇渗透作战课程。这是台湾与美军军事互动因新冠肺炎疫情管制中断七八个月后，首度恢复运作，预料美军各项在台小部队操演可望据此模式渐次恢复举行。］
+香草山写作组：村北
 
-［今年 6 月，国防部新闻发言人任国强曾表示，台湾是中国不可分割的一部分，任何”以台制华”和挟洋自重的做法都是没有出路的。中国人民解放军有坚定的意志、充分的信心和足够的能力维护国家主权和领土完整、维护两岸同胞共同利益、维护台海地区和平稳定，坚决挫败任何制造”一中一台”的图谋。］
+前纽约市警察总长 Bernard B. Kerik 以及多个推特大V刚刚发出消息告知公众，美国重要的媒体及民意统计机构之一“Real Clear Politics”成为第一家将宾州从拜登的获胜州名单中取消的媒体。Kerik先生在推中表示，“这一切只是刚刚开始，后续还将有更多此类消息”。
 
-美军已经抵达高雄，说好的可以立即触发的反国家分裂法却没有触发，李克新公使食言而肥事小，反国家分裂法儿戏事大。李克新公使和一众多年来用口炮无数次统一台湾、扫平日本、吞下宇宙的共匪阿Q们，接下来，这武统台湾的口炮该往哪个方向打？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09202546/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E4%B8%80%E5%88%87%E5%8F%AA%E6%98%AF%E5%88%9A%E5%88%9A%E5%BC%80%E5%A7%8B%EF%BC%9A%E7%BE%8E%E9%87%8D%E8%A6%81%E6%94%BF%E6%B2%BB%E5%AA%92%E4%BD%93%E4%B9%8B%E4%B8%80%E3%80%8AReal-Clear-Politics%E3%80%8B%E7%AC%AC%E4%B8%80%E4%B8%AA%E5%B0%86%E5%AE%BE%E5%B7%9E%E4%BB%8E%E6%8B%9C%E7%99%BB%E7%9A%84%E5%8F%96%E8%83%9C%E5%B7%9E%E5%90%8D%E5%8D%95%E4%B8%AD%E5%8F%96%E6%B6%881.png)
 
-（文章内容仅代表作者个人观点）
 
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09202606/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E4%B8%80%E5%88%87%E5%8F%AA%E6%98%AF%E5%88%9A%E5%88%9A%E5%BC%80%E5%A7%8B%EF%BC%9A%E7%BE%8E%E9%87%8D%E8%A6%81%E6%94%BF%E6%B2%BB%E5%AA%92%E4%BD%93%E4%B9%8B%E4%B8%80%E3%80%8AReal-Clear-Politics%E3%80%8B%E7%AC%AC%E4%B8%80%E4%B8%AA%E5%B0%86%E5%AE%BE%E5%B7%9E%E4%BB%8E%E6%8B%9C%E7%99%BB%E7%9A%84%E5%8F%96%E8%83%9C%E5%B7%9E%E5%90%8D%E5%8D%95%E4%B8%AD%E5%8F%96%E6%B6%882.png)
+
+在大选日的第二天凌晨，拜登获得的选票在几乎所有摇摆州都呈现出离奇的直线上升态势，选票数量反超川普总统。虽然川普竞选团队及民众在发现拜登选票有造假嫌疑后提出质疑，但绝大多数主流媒体如同事先商量好一样，纷纷压制质疑声，不顾一切地宣布拜登获胜。
+
+仅仅在宾州，至少有68万多张邮寄选票的计票过程并未在有效的监督下进行。随着拜登一方在大选中大规模造假的证据逐渐被民众和川普总统团队掌握，拜登一方似乎也已嗅到大势已去。而罔顾法律流程宣布拜登获胜的媒体也开始出现树倒猢狲散的苗头。 “Real Clear Politics” 不得不率先取消将最重要摇摆州宾州的获胜归属于拜登的声明。
+
+审核：jamie(文胤)
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+
+更多文章，欢迎浏览[美东香草山农场GNEWS](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
 0
