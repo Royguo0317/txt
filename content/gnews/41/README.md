@@ -1,33 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】重磅！美司法部部长巴尔开始着手刑事调查民主党的大选舞弊
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/542624/)
+## 中共媒体负责人庆祝拜登 &#8220;胜利&#8221;，称这让中共成为这次选举的赢家
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/542856/)
 
-作者：香草山写作组 村北
+翻译：康州农场-烟波浩淼
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
+校对：康州农场-MikeLi
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09235328/%E5%9B%BE%E7%89%875-4.png)
+中共媒体《中国日报》的一位负责人针对主流媒体对乔***–***比登的胜利预测，暗示中国共产党是美国总统选举的赢家。
 
+中共喉舌的欧洲局局长，常年批评川普总统的陈卫华先生于11月8日在推特上发消息。《中国日报》由中共自己的宣传部拥有和运营。
 
+在斥责《卫报》一篇题为 “各国领导人祝贺拜登当选美国总统时，俄罗斯和中国的沉默不言”的文章时，陈建华似乎反驳了中共没有向拜登提供支持的说法。
 
+他称这篇文章是 “垃圾“，并质疑 “中国很可能是川普败选的输家” 的说法。在中共媒体工作的陈先生也对《卫报》关于中国没有 “祝贺 “拜登的说法进行了反击，他质问 “你是不是没有关注我的推特？”。
 
-
-美国司法部长巴尔是川普总统提名就任的司法部长，但最近多次被川普批评行动慢，不作为。但据今天Daily Wire突发新闻报道，巴尔终于授权联邦公诉人开始着手处理此次有关大选舞弊的海量指控。表明司法部已获得充足的证据。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09223648/231-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E9%87%8D%E7%A3%85%EF%BC%81%E7%BE%8E%E5%8F%B8%E6%B3%95%E9%83%A8%E9%83%A8%E9%95%BF%E5%B7%B4%E5%B0%94%E5%BC%80%E5%A7%8B%E7%9D%80%E6%89%8B%E5%88%91%E4%BA%8B%E8%B0%83%E6%9F%A5%E6%B0%91%E4%B8%BB%E5%85%9A%E6%95%B4%E4%B8%AA%E6%94%BF%E5%85%9A%E7%9A%84%E5%A4%A7%E9%80%89%E8%88%9E%E5%BC%8A.png)
-在公开文件中，巴尔表示，大选主要由各州负责监督和执行，但联邦司法部有责任保证联邦大选的过程得到美国民众的绝对信任。巴尔同时指示司法部高层要绝对秉承对无党派、中立、公平的承诺，即使要快速处理此类严重指控，也不可捕风捉影。
-
-路德时评分析，这次司法部的调查，意味着大选舞弊已上升到刑事犯罪的调查层面。巴尔发布的授权决定，意味着司法部已经得到大选舞弊的实锤证据。司法部的93名检察官，皆为川普总统任命，如果川普总统落选，这些检察官的工作也会受影响。联邦司法部的检察官的介入使川普团队如虎添翼，还将大大减轻川普竞选团队的资金压力。
-
-路德指出，司法部将进行选举违规调查。参与竞选的一方违规才能称为违规。司法部的介入，意味着司法部已经掌握民主党大选违规的确凿的证据。民主党整个政党将会面临刑事指控。
-
-审稿：雪梨
+垃圾《卫报》。中国很可能是川普败选的输家？你是不是没有关注我的推特？
 
 
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+> Russia and China silence speaks volumes as leaders congratulate Biden [https://t.co/q1FA0xKvzv](https://t.co/q1FA0xKvzv)
+> — The Guardian (@guardian) [November 8, 2020](https://twitter.com/guardian/status/1325502299112878082?ref_src=twsrc%5Etfw)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-1+
+因此，针对媒体预言拜登获胜，陈卫华认为中国是赢家并不意外。
+
+前副总统拜登在执政期间，经常拥护把美国的制造业基地、知识产权和经济实力出卖给中共。
+
+更重要的是，他的家族成员已经从与中共从能源到制造业等各个行业的数十亿美元的商业交易中获利。
+
+原文链接：
+
+
+
+> [China State Media Chief Celebrates Biden ‘Victory’, Says It Makes The CCP A Winner](https://thenationalpulse.com/news/china-wins-biden-victory/)
+
+
+
+2+
