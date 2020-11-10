@@ -1,19 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 不能被遗忘的民主前线&quot;香港
-` G-NEWS Taiwan` [轉載自GNews](https://gnews.org/zh-hans/544386/)
+## 路德社精选 11/6/2020 早间节目
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/544198/)
 
-文旦
+听写：明台 校对：明台 简介：恩真 文宣图：艾伦 出品：首尔喜韩农场
 
-参考资料[https://www.epochtimes.com/b5/20/11/9/n12537153.htm](https://www.epochtimes.com/b5/20/11/9/n12537153.htm)
+简介：
 
-香港，这个东方明珠，在2019年6月6号开始，陷入一片黑暗，一场反送中，告知了全世界中共的黑暗，中共的手段，中共的邪恶，及中共的真面目，这场大游行至今，不管是中国人民，香港人民，大量的失踪，大量的被自杀，这个被操控的香港政府变本加厉，在今年7月出了香港国安法，打算控制权世界的言语，将中共的恶法延伸到全世界，只要在他们的操控下，没有人能幸免。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10093425/%E5%9C%96%E7%89%87-1-20.png)
-在这个黑暗时刻中，各国开始对香港进行制裁，不承认香港是”独立的地区”，在中共病毒疫情之下，在美国大选之下，各个国家还是没有忘记”香港”这个地方的人民，继续的制裁，这些中共黑暗的帮手，让这些中共的帮手，胆战心惊，让他们为了做这些的目的，有权，有钱，能照顾好家人，能让家人千秋万代的梦想，随即破灭。
+1.现在重要的是在法律上给民主党和中共定罪。
+2.中共用各种方式捏造川普不会连任。
+3.这次选举有多滑稽，死人也来投票。
+4.川普总统一定会找到真相。
+5.朱利安尼在很多法庭都提起了诉讼，只要 一个法庭赢了其他地方都会作废。
+6.这个法律战一定可以改变全部战局。
+7.很多州长同意继续邮寄选票。
+8.邮寄选票会造成了竞争不公平，不会受到大家认可。
+9.当美国被束缚的时候，就会有一群人站出来。
+10.美国科学家的科技成果就是因为打破规则的精神。
 
-香港这个曾经的亚洲金融之心，看看曾经，看看现在，在中共的恶，中共的扩张，让这个东方明珠变得如此残破不堪，所有的资讯，媒体，数据….开始造假，利用香港之名欺骗全世界的投资者，欺骗全世界的信任，帮中共的权贵们输血，让他们更加变本加厉的，去达到更多的阴谋。
-
-相信这一次这制裁不是结束，因为黑暗之手，越来越高，越来越深，香港需要你我继续传播真相，因为这些方式的对待香港，也正在你我身边慢慢地发生，贪婪的人，没有限制住她，没有将他揭开，没有将它消灭，他只会更加贪婪，更何况，中共这些贪婪的家族，正用着一切力量来将全世界慢慢地和他一样，你发现了吗?，想一想是不是正在进行中….
-
+文宣图：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10085453/1-41.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10091652/2-55.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10091841/3-43.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10092215/4-18.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10092317/5-17.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10092414/6-17.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10092620/7-11.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10092726/8-10.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10092742/9-6.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10092817/10-6.png)
 0

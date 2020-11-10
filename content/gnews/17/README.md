@@ -1,39 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】湾仔8.31事件案八被告全获判无罪 律政司提上诉
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/544236/)
+## 11/10 财经快讯: 中共掩盖疫苗副作用, 反对腐败需要所有人参与
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/544281/)
 
-搜集：卡西欧 文粤
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10085257/Picture37-2.png)图片：国家脉动
+1.腐败无国界，反对腐败需要所有人的参与，无论你是政府部门、私营部门，还是非盈利组织、媒体，全体公民。无论是揭露选票舞弊，还是揭露财务造假，揭露对病毒真相的掩盖，灭掉中国共产党，都离不开所有人的参与
+[https://www.accaglobal.com/uk/en/member/member/accounting-business/2019/10/insights/corruption-americas.html](https://www.accaglobal.com/uk/en/member/member/accounting-business/2019/10/insights/corruption-americas.html)
 
-编撰：心听见
+2.《国家脉动》解释舞弊的来龙去脉，遭遇推特封锁，继续坚持战斗，国家脉动油管账号上传最新一期视频，期待大家关注。
+[https://youtu.be/eBoYVUqO2m0](https://youtu.be/eBoYVUqO2m0)
 
-覆核：MY
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10084533/20201031-0420copy_ZiNOM_1200x0.png)图片：立场新闻
-据(香港新闻报道)「阵地社工」成员陈虹秀等八人被指参与8.31湾仔所谓暴动，案件早前经审讯后，陈虹秀中途获撤控，余下七名被告亦获判罪名不成立。裁决后不足两星期，律政司表明将会针对八名被告的脱罪裁决，以案件呈述形式提出上诉。
+3.《财富》杂志11月10日报道，巴西暂停了中共国公司的中共病毒疫苗第三期临床试验，而该公司的疫苗已经在中共国通过紧急使用项目把数万中国人当小白鼠使用，不报道使用效果，掩盖真相。
+[https://fortune.com/2020/11/10/china-covid-vaccine-early-approval-sinovac-delay-safety/](https://fortune.com/2020/11/10/china-covid-vaccine-early-approval-sinovac-delay-safety/)
 
-第六被告简家康回应本报时指，今早收到律师通知律政司上诉的消息，他指完全不担心，他认为「明显就是要整我们」，认为自己清白，面对上诉也不怕。
+4.11月10日，华尔街日报报道软银和谷歌公司支持的中共国的卡车优步公司估值100亿美元，正在募集资金17亿美元，打算明年上市。
+[https://www.wsj.com/articles/chinas-uber-for-trucks-raising-1-7-billion-ahead-of-ipo-next-year-11604996654](https://www.wsj.com/articles/chinas-uber-for-trucks-raising-1-7-billion-ahead-of-ipo-next-year-11604996654)
 
-律政司指出，区域法院法官沉小民裁定七名被告暴动罪名不成立，皆因未能合理而全面考虑及分析案中整体证据、或未能处理针对各被告的证据，并且考虑了不相关的元素。
+5.腾讯购买英国增长最快的基因研究公司之一康吉尼亚（Congenica），其开发的软件分析数据的速度快于行业平均值的20倍。该公司是英国少见病与遗传性癌症基因研究方面的先驱。本次融资将用于基因分析活动的国际扩张和与制药巨头结伙。
+[https://news.sky.com/story/british-genomics-start-up-congenica-sells-stake-to-chinas-tencent-12127498](https://news.sky.com/story/british-genomics-start-up-congenica-sells-stake-to-chinas-tencent-12127498)
 
-社工陈虹秀早在9月底无罪获释，惟律政司早前未待沉官宣读或颁下任何裁决理由，便于五天后急急表明将会以案件呈述方式提出上诉，直指原审法官法律观点出错。若上诉庭最终接纳律政司申请，便须推翻裁决，重新审讯。
-
-沉官上月31日颁下判词，指控方没证据显示众被告被捕前的作为未能在毫无合理疑点下举证，宣布全部被告罪名不成立。沉官于判词指，不排除当日有人希望到场见证历史时刻，不应将现场穿黑衣的人随意视为参与暴动者，否则有机会冤枉无辜；至于被告逃跑或有清白理由，例如因当时社会环境而对警方产生恐惧。
-
-陈虹秀今在fb贴文谓：「刚刚知道律政又对831同我同案的7名被告提出上诉。律政是不是要这么明显的对某些人就批不提证供起诉，某些人就死都要上诉追打？」陈又谓：「我最不开心他要令无辜的年青人承受不必要的压力。他们这种无理据又要追打的做法，只会令香港人更不信任司法部门。」
-
-根据《区域法院条例》第84条，律政司司长可针对某项裁定无罪的裁决或命令而提出诉讼，向上诉庭提出上诉，惟该上诉只可关于法律事宜。上诉庭可驳回上诉，亦可推翻有关裁决或命令，指示恢复审讯或重新审讯，或判其有罪。
-
-战友点评：
-
-831事件8名人士被判无罪，再次证明黑暗之处还有正义力量存在，恶法压制了人民言行举止，但是改变不了港人原有的良知。而律政司二星期之后就提出上诉，显然邪共不会就此罢休，然而也看到邪共的邪恶力量深入无处不在，为了使压制一切反对声音，连穿什么颜色衣服戴口罩，在哪里走动或者停留都会成为黑警控诉的理由。
-
-用恶法不断追击政治立场不同的人士，然而为了打击不同政见人士针对性执法，也不会击倒港人继续捍卫民主法治追求，反而使人民看到的是傀儡政府官员无耻嘴脸，只会使市民更加对律法失去信心，对无能政府失去信任，对邪恶中共的痛恨。
-
-以上观点仅代表笔者个人
-
-新闻来源：香港新闻
-
-[https://hk.appledaily.com/local/20201109/EI253FX3ZVELHCBPU5NJ7KRTWM/](https://hk.appledaily.com/local/20201109/EI253FX3ZVELHCBPU5NJ7KRTWM/)
+CPA Jim 整理
+By 【秘翻组 – 金融法律团队】
 
 0

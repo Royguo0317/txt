@@ -1,18 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅！美国参议院多数党领袖麦康奈尔不承认拜登为总统当选人或哈里斯担任副总统当选人
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/543296/)
+## 密歇根州诉讼：乔·拜登的大量未密封选票被计入
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/543309/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10010458/RPoJRMB6n94Tqj.jpg)
-作者：蜗牛先生
+多伦多加喜农场 大地鲲鹏
 
-9日, 美国参议院多数党领袖麦康奈尔发表讲话，宣布不承认拜登为总统当选人或哈里斯担任副总统当选人。麦康奈尔称，特朗普总统有权在上周的美国大选中调查可能存在的违规行为。
+校对上传 XM
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10023026/%E5%9B%BE%E7%89%871-14.jpg)图片来源：static2.vesti
+根据底特律投票观察员Sitto的签署证词显示11月4日（选举有效日期为11月3日）凌晨4：30装有数以万计的箱子从外州运抵TCF中心。与其他选票不同，这些箱子是从房间后部带进来的。 证词强调”我特别注意到我观察到的每一张选票都是投给乔·拜登的”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10022935/445.jpg)
+以上证词显示在11月3日之后仍然有大量来源不明的乔·拜登选票被登记，并且选票本身并未按照规定有效密封。
 
-会议中麦康奈尔表示，美国人民似乎已对众议院民主党的激进主义和阻挠做出了反应，减少了民主党议长的多数席位，选举了更多的共和党人。关于总统选举，还未有任何州对选举结果进行认证，目前已有一到两个州已经在进行重新计票中，未来总统可能会在至少五个州提起法律诉讼。
+Sitto的证人证词是川普总统团队周一在密歇根州大湖区司法中心所提诉讼中引用的六点之一。该诉讼指控民意调查人员在选举过程忽略选票签名不匹配、回溯超有效日期选票，以及使用不确定有效性的选票。
 
-麦康奈尔坚定的表示，所有的合法选票都必须在计算内，非法选票必须被排除，过程应当透明化或在监督下执行，法院会来协助解决其中涉及的相关问题。同时表示,在权力范围之内，川普总统百分之百拥有关于违规指控而采取法律手段的权利。
+共和党发言人伊丽莎白·哈灵顿（Elizabeth Harrington）已经把这一讯息在推特公布。
 
-编辑来源：[https://twitter.com/disclosetv/status/1325906428389896197](https://twitter.com/disclosetv/status/1325906428389896197)
+参考链接（第42页）：https://greatlakesjc.org/wp-content/uploads/Complaint-Costantino-FINAL-With-Exhibits.pdf?x44644
 
-3+
+0

@@ -1,15 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 快讯！亚利桑那州马里科帕县的选票结果出炉，川普总统领先于拜登140票
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/543497/)
+## 参议院掌门人,共和党大佬麦康奈尔发声支持川普!
+` VOH欧洲战友团` [轉載自GNews](https://gnews.org/zh-hans/543551/)
 
-![]()![](https://www.thegatewaypundit.com/wp-content/uploads/Trump-and-Biden-Perspectives-Inside-and-Outside-Venezuela-600x338.jpg)
-作者：康州农场-残夜听雨声
+撰稿: BoLu文龍
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10040409/1aa9726241170297.jpg)图片: 昆仑竹
 
-亚利桑那州马里科帕县的选票结果出炉，川普总统领先于拜登140票，因此川普总统赢得马里科帕县的选票，目前川普总统在亚利桑那州的选票目前距离拜登只有1%的差距，而在亚利桑那州，目前仍有大约76,000-78,000票需要计数。因此川普总统赢得该州选票的机会还很大。
-评：这场大选表面是滑稽的，但是它最终会让美国真正意义上觉醒，美国的自由民主根基即将被魔鬼给挖开，香港的今天就是他们的明天！自由的火种已经被魔鬼掐住脖子，要么世界回到黑暗，要么，自由的火种把这魔鬼彻底吞没。
 
-原文链接：[https://www.thegatewaypundit.com/2020/11/bidens-lead-arizona-shrinks-latest-ballot-dump-maricopa-county-favors-president-trump/?ff\_source=Twitter&ff\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/11/bidens-lead-arizona-shrinks-latest-ballot-dump-maricopa-county-favors-president-trump/?ff_source=Twitter&amp;ff_campaign=websitesharingbuttons)
+11月9日, 在民主党竞选团队及其美国主流媒体先后宣布乔拜登已经赢得此次大选情况下,川普总统的连任选情面临紧张的局势。虽然以朱利安尼先生为首的川普团队正在对外揭示拜登团队所作的诸多匪夷所思的选票舞弊行为, 但时间在一分一秒的过去,显然共和党阵营需要有更多有力的声音, 来增加选民的信心。
 
-1+
+当然, 这样的声音即使有,你也很难在纽约时报或华盛顿邮报上看到，事实上，对川普总统要求重新计算票数或对上周大选结果提出异议的支持和呼吁正在增加。包括 林赛·格雷厄姆（Lindsey Graham）和泰德·克鲁兹（Ted Cruz）参议员在内的共和党政要都在不同场合提出了上述要求, 而今天,也就是11月9日，参议员多数党领袖米奇·麦康奈尔（Mitch McConnell）终于在参议院发表了讲话支持川普总统的诉求, 称川普总统有权无视媒体报道而不接受所谓最终结果，有权要求重新计票并提出法律诉讼以调查大选中的违规舞弊行为!
+
+米奇·麦康奈尔是肯塔基州历史上任职最长的联邦参议员, 自2016年11月起连任国会参议院多数党领袖至今,他的现任夫人是前劳工部部长赵小兰。同时他也是参议院中第七位资历最深的参议员和第四位资历最深的共和党参议员。在共和党内，他的地位和影响日益提高。在华盛顿,麦康奈尔参议员可以说是最有影响和权力的的政要大佬,坊间认为作为参议院”掌门人”, 他的权力甚至超越川普总统.而他的这次发声,可以说是对川普总统最有力的支持, 预示着对民主党及拜登竞选团队的选票舞弊证据展开调查已不可避免，也为接下来的几十天内选情的随时翻盘埋下了可能和伏笔。
+
+0
