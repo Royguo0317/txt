@@ -1,51 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 三大独裁国家嘲笑美国大选
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/541625/)
+## 威斯康星州议长鼓励志愿者参与重新计票 确保选举公平
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/541715/)
 
-*新闻来源：华盛顿自由灯塔（The Washington Free Beacon）；作者：杰克•贝勒 （Jack Beyrer ）；发布时间：2020年11月5日*
+多伦多加喜农场 老熊
 
-*翻译/简评：Marialu；校对：感恩；审核：InAHurry；Page：Eric8848*
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09142205/%E9%87%8D%E6%96%B0%E8%AE%A1%E7%A5%A8.jpg)图片来自 KOTA
+《戴维德哈里斯》（DAVID HARRIS JR）网站上11月9日发表文章，题为：威斯康星州议会议长罗宾·沃斯（Robin Vos）指示委员会审查整个州的选举，因为人们担心乔·拜登会在午夜大量倒票。
 
-**简评：**
+全文如下：
 
-俄罗斯、中国和伊朗三大独裁国家嘲笑美国民主大选，他们各尽所能利用散布虚假信息、网络黑客行为、造假选票等，企图达到其破坏干预美国大选的目的。
+威斯康星州议会议长罗宾·沃斯已指示议会竞选和选举委员会调查在（选举日）午夜出现的巨多的选票投向拜登的情况，以确定这是否合理。
 
-文中提到俄罗斯嘲笑美国两百多年的民主选举制度；伊朗认为乔•拜登是“更有希望的”候选人；中共国声称“所谓的美国式民主已沦为一个笑话。” 一个没有民主选举的独裁国家对美国民主法制国家的选举，评头论足。这正应了那句：光脚的嘲笑穿鞋的。
+在同一天晚上，密歇根州也发生了类似的拜登选票的“票涌”事件。
 
-此次美国选举是一场正邪之战，以川普总统为代表的正义力量一定会战胜以乔•拜登为代表的民主党的邪恶势力+外国干预势力，如同圣经《启示录》中记载：世界末日之时善恶正邪对决的终极决战——哈米吉多顿（Armageddon) 大战，不论魔鬼撒但多么会利用谎言及各种手段欺骗世人，最终会被抛进硫磺火湖里。因为“ 耶和华坐着为王，祂要按公正审判众民⋯”
+“我想他们会被允许进入那些任何可能出现违规行为的地区进行调查。“ 沃斯说，“我指示委员会根据威斯康星州SS 13.31的规定，利用其调查权，立即审查选举是如何进行的。随着人们对邮寄选票和选民舞弊的担忧浮出水面，威斯康星州的公民理应知道他们的选票是否已被计算在内，投票是否公平和合法，这些是毫无疑问的。必须绝对肯定的是，若发现任何的违规行为都必须进行重新计票。”
 
-# **俄罗斯、中国、伊朗嘲笑美国大选结果**
+“我鼓励公民自愿参加各自社区的重新计票，并在确保公平选举方面发挥积极作用。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/HOttrU3LqUZX9/images/694fb188-5789-47da-b0df-0e717ffab26f.jpg?asset_id=d58b990a-ff0f-4f4b-8704-082feac2d4ea&amp;img_etag=%226f1188eb4b05089adcfffd37f3058e83%22&amp;size=1024)](https://spark.adobe.com/page/HOttrU3LqUZX9/images/694fb188-5789-47da-b0df-0e717ffab26f.jpg?asset_id=d58b990a-ff0f-4f4b-8704-082feac2d4ea&amp;img_etag=%226f1188eb4b05089adcfffd37f3058e83%22&amp;size=1024)俄罗斯总统弗拉基米尔•普京与伊朗最高领导人阿亚图拉•阿里•哈梅内伊/美联社
+“威斯康星州的选举制度是全国最好的，我们有训练有素的工作人员，他们在大多数其他州之前就完成了计票工作。然而，我们总是可以寻找方法来改进它。我希望委员会调查密尔沃基集中计票缺席选票的低效率，以及将不再居住在这里的选民从名册上删除的情况。”
 
-俄罗斯和伊朗官员以及中国媒体继续嘲笑美国总统大选的不确定性。
+川普总统的选票压垮拜登时，该州突然停止了计票，这是一个发生在所有摇摆州的事件。
 
-俄罗斯外交部发言人玛利亚•扎卡罗娃（ Maria Zakharova）在接受哥伦比亚广播公司(CBS) 采访时说：“美国选举制度明显存在缺陷。” 她说，这些缺点“部分是由于相关立法的陈旧性以及在一些基本点上缺乏监管。”
+就在《福克斯新闻》呼吁亚利桑那州支持拜登之后，其他州停止了计票。
 
-俄罗斯已作出严肃认真而广泛的努力（竭尽所能）来破坏美国公众对选举的信心。今年9月，美国联邦调查局（FBI）制裁了一群干预2016年和2018年选举的俄罗斯黑客集团，联邦当局继续严厉打击俄罗斯散布虚假信息的行为。
+然后突然间，在半夜超过10万张密歇根州的选票被投下，100%地投给了乔·拜登。
 
-伊朗最高领导人阿里•哈梅内伊（Ali Khamenei）也嘲笑美国大选。
+就在同一天晚上，威斯康星州有将近10万人的票也被这样投入。
 
-哈梅内伊说：“本应举行选举的现任总统说，这是美国历史上最受操纵的选举，”显然他没有意识到美国总统不负责投票。“这样的帝国不会持续太久。”
+川普总统怎么可能在这两个州的这批票里没有拿到一张选票？
 
-选举前夕，伊朗外交部长穆罕默德•贾瓦德•扎里夫（ Mohammad Javad Zarif）告诉美国媒体，德黑兰（伊朗）认为乔•拜登是“更有希望的”候选人。伊朗还参与了一场虚假信息的宣传活动，以破坏美国对以色列和沙特阿拉伯的外交政策。
+另一件让人感到怀疑的事情是，川普总统有民众拥戴，而拜登没有。
 
-彭博新闻社周四报道说，美国当局关闭了92个与伊朗伊斯兰革命卫队有关联的网站，因为这些网站散布虚假信息。
+民主党可能会获得一个参议院席位，但在计票完成时已经失去了多达12个席位。
 
-尽管中共没有就选举模棱两可的结果发表任何正式声明，但与北京有关联的机构也参与其中。
+你能回忆起任何一次选举中失败者都有“沾光者”吗？拜登获得的选票比威斯康星州、密歇根州和佐治亚州的民主党参议员候选人多出数万张，然而共和党参议员候选人获得的票数却与川普总统几乎相同。
 
-一家国有的中共国期刊得出的结论是，“所谓的美国式民主已沦为一个笑话”，隶属中共国的《环球时报》 声称中共国公民观看美国大选报道是为了“嘲笑”和“看滑稽”。
+原文链接：
 
-[原文链接](https://freebeacon.com/national-security/russia-china-iran-mock-american-election-returns/)
 
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/HOttrU3LqUZX9/)】-点击spark adobe版
+> [Wisconsin Assembly Speaker Robin Vos Directs Committee to Review Statewide Election Amid Concerns Over Massive Midnight Ballot Dump For Joe Biden](https://davidharrisjr.com/steven/wisconsin-assembly-speaker-robin-vos-directs-committee-to-review-statewide-election-amid-concerns-over-massive-midnight-ballot-dump-for-joe-biden/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/HOttrU3LqUZX9/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/HOttrU3LqUZX9/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

@@ -1,31 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爱沙尼亚内政部长因批评美国总统大选“存在造假”而辞职
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/541934/)
+## 爆革星评：麦康奈尔公开支持川普总统重新计票
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/542078/)
 
-多伦多加喜农场 熊妈妈
+多伦多加喜农场 文星（一号）
 
-校对上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09172710/%E7%88%B1.jpg)图片来自 US News & World Report
-11月9日，爱沙尼亚Delfi报报道，爱沙尼亚内政部部长马尔特·赫尔姆（Mart Helme）因为批评美国大选的声明而辞职。
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09192838/CNN.jpg)图片来自 CNN
+11月9日，据Zerohedge的Tyler Darden 报道，参议院多数党领袖麦康奈尔公开表示，媒体无权决定大选结果，川普总统有权无视媒体的评论而去接受最后的结果，有权要求重新计票，有权采取法律行动排除违法行为。大选程序必须公开透明。
 
-赫尔姆表示，“我没有做任何会破坏爱沙尼亚国防的事情。我没有说任何美国主流媒体没有说的话，特别是自由的美国媒体。爱沙尼亚媒体从来不告诉人民真相，但我说了，那就是选举存在造假！”
+早在大选投票之前，这位资深的、极具权势的共和党大佬也曾表示，“必须对所有合法选票进行计数，应该排除非法选票”。
 
-赫尔姆补充说，获得必要选票的乔∙拜登还不是美国总统，只有在所有法律程序完成后，他的权力才会得到确认。
+麦康奈尔是最有影响力的共和党人，他的这一表态对川普总统扭转大选形势应该有着巨大影响。麦康奈尔是来自卡耐基州的最资深参议员，前几天，他刚刚在肯塔基州新一届参议员选举中胜出连任。
 
-早些时候，在接受TRE 广播电台采访时，赫尔姆和财政部长马丁·海尔姆（Martin Helme）表示，他们怀疑美国选举的完整性。
+此前，林赛·格雷厄姆（Lindsey Graham），特德·克鲁兹（Ted Cruz）等共和党参议员都对本次总统大选的违规行为提出了质疑。格雷厄姆是参议院现任司法委员会主席，还赞助50万美元支持川普总统的法律行动。另外，负责总统权力交接的现任官员，也拒绝了乔·拜登要求进行权力过渡交接的要求。
 
-财政部长海尔姆表示，“在我看来，毫无疑问，这些选举是被操纵的。”
+参考链接：
 
-内政部长赫尔姆补充说，“深蓝州及其背后的力量使乔∙拜登取得了胜利。”
+[https://www.zerohedge.com/political/mcconnnell-backs-trump-push-recounts-says-shouldnt-accept-election-results-media](https://www.zerohedge.com/political/mcconnnell-backs-trump-push-recounts-says-shouldnt-accept-election-results-media)
 
-爱沙尼亚总理朱里·拉塔斯（Juri Ratas）批评他们的话，指出基于”假新闻”对美国选举过程进行批评的言论对于部长来说不合时宜。
 
-目前，美国主流媒体和多国政要都大肆宣传乔∙拜登在美国2020总统大选中获胜，甚至一边倒地对民众进行洗脑灌输。但是，现任美国川普总统表示，选举“还没有结束，在过去的选举中，有许多与邮寄选票有关的违法行为。” 自11月9日以来，川普总统已承诺就此展开法律斗争。
-
-世界目前都处于对乔∙拜登所谓的赢得美国大选的虚假宣传中，所有的权力、舆论都把真话掩埋，甚至对说真话的人进行迫害，爱沙尼亚内政部长的遭遇就是最明显的实例。但是，真相、民意不会总被掩盖，在每天与恶魔的斗争中这些都将浮出水面。
-
-参考链接：[https://rus.delfi.ee/daily/estonia/video-ya-syt-po-gorlo-mart-helme-podaet-v-otstavku-s-posta-ministra-vnutrennih-del?id=91615331](https://rus.delfi.ee/daily/estonia/video-ya-syt-po-gorlo-mart-helme-podaet-v-otstavku-s-posta-ministra-vnutrennih-del?id=91615331)
 
 0

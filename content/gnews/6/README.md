@@ -1,20 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 被抓包了！弗吉尼亚州在选举日丢失了16万9千张选票数
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/541122/)
+## 突发！美驻华使领馆发文，宣告全球灭共的开始
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/541219/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09110333/%E6%9C%AA%E6%A0%87%E9%A2%98-1-2.jpg)
-采编: 引力波
+- 编辑：文顺
+- 素材：七白石
 
-引用：[https://www.thegatewaypundit.com/2020/11/captured-real-time-moment-virginia-512-took-169000-votes-off-state-totals/](https://www.thegatewaypundit.com/2020/11/captured-real-time-moment-virginia-512-took-169000-votes-off-state-totals/)
 
-现场抓包：弗吉尼亚州在美东时间11月4日上午5:12分那一刻，他们从选票总数中拿走了169,000票！
-数据科学家Sarah Eaglesfield在选举之夜和次日早晨实时跟踪弗吉尼亚州的选票计数。她在Virgina的点票中注意到一个问题：11月4日，从上午5:07到上午5:12这短短5分钟之内丢失了169,000票。
-原本川普总统在选举之夜已经粉碎了弗吉尼亚州的政客们和主流媒体对于拜登当选的预测。然而凌晨5点丢失的这些选票将问题解决了。
+11月9日，美国驻华使领馆发表推文称，美国敦促伙伴国家抵制中国对外干涉:中国共产党正在以它的种种活动威胁全球的自由开放社会。
 
-还会有更多选票欺诈的方式被曝光出来，也许以前你们这些DEEP STATE靠着大选舞弊已经成功过很多次了，但这次不会了，所有的爱国者已经觉醒，我们会将你们彻底结束。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09110314/data-virginia-.jpg)
+拜登操纵大选的证据刚刚披露，美驻华使领馆就向伙伴国家发推喊话，所用图片上的1949-2020，预示着中共的执政将终于2020年，宣告了全球灭共的开始。中共，你完了！
+
+
+
+> 美国敦促伙伴国家抵制中国对外干涉:中国共产党正在以它的种种活动威胁全球的自由开放社会 [@ShareAmerica](https://twitter.com/ShareAmerica?ref_src=twsrc%5Etfw) [https://t.co/y3EOrN4X0B](https://t.co/y3EOrN4X0B)
+> — 美国驻华使领馆 US MissionCN (@USA\_China\_Talk) [November 9, 2020](https://twitter.com/USA_China_Talk/status/1325758823940952067?ref_src=twsrc%5Etfw)
+
 
 
 0
