@@ -1,49 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵说｜系列图片连载（四十一）
-` GM98` [轉載自GNews](https://gnews.org/zh-hans/543447/)
+## 快讯！亚利桑那州马里科帕县的选票结果出炉，川普总统领先于拜登140票
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/543497/)
 
-## 281.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10033633/02-6.jpg)
-我们可以站在一起平等的说话，允许对方发脾气，允许对方犯错误，允许对方给你说实话，甚至说错误的实话。
+![]()![](https://www.thegatewaypundit.com/wp-content/uploads/Trump-and-Biden-Perspectives-Inside-and-Outside-Venezuela-600x338.jpg)
+作者：康州农场-残夜听雨声
 
-——郭文贵先生2020年4月27日
+亚利桑那州马里科帕县的选票结果出炉，川普总统领先于拜登140票，因此川普总统赢得马里科帕县的选票，目前川普总统在亚利桑那州的选票目前距离拜登只有1%的差距，而在亚利桑那州，目前仍有大约76,000-78,000票需要计数。因此川普总统赢得该州选票的机会还很大。
+评：这场大选表面是滑稽的，但是它最终会让美国真正意义上觉醒，美国的自由民主根基即将被魔鬼给挖开，香港的今天就是他们的明天！自由的火种已经被魔鬼掐住脖子，要么世界回到黑暗，要么，自由的火种把这魔鬼彻底吞没。
 
-## 282.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10033703/03-5.jpg)
-体面，富有、健康、安全的生活….是任何人都应该有的基本权利，这叫人权，这叫基本的尊严。
+原文链接：[https://www.thegatewaypundit.com/2020/11/bidens-lead-arizona-shrinks-latest-ballot-dump-maricopa-county-favors-president-trump/?ff\_source=Twitter&ff\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/11/bidens-lead-arizona-shrinks-latest-ballot-dump-maricopa-county-favors-president-trump/?ff_source=Twitter&amp;ff_campaign=websitesharingbuttons)
 
-——郭文贵先生2020年4月27日
-
-## 283.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10033734/04-4.jpg)
-一个民族，一个国家，把教育当成你的工具的时候，你注定必将灭亡，是民族的灾难。
-
-——郭文贵先生2020年4月27日
-
-## 284.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10033854/021-1.jpg)
-一人一票，决定中国人的命运。权力是大家的，财富是个人的。
-
-——郭文贵先生2020年2月1日
-
-## 285.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10033942/01-6.jpg)
-香港的战友们我可以告诉大家你们一定会赢，一定会赢！我可以为这句话承担一切后果，一定会赢。赢回22年前属于你们的法治和自由。
-
-——郭文贵先生2019年6月13日
-
-## 286.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10034111/215.jpg)
-有一个政权，有一个政党，不希望老百姓好，不希望老百姓活着，希望你死！——这就叫共产党！
-
-——郭文贵先生2020年2月1日
-
-## 287.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10034307/041-1.jpg)
-如果你真的希望中国没有共产党，真正的拥有法治、拥有信仰的自由、亲人能团聚、让中华民族这个民族强大 起来的话，那么你做你力所能及的事。
-
-——郭文贵先生2020年2月1日
-
-0
+1+

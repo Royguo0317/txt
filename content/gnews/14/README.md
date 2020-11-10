@@ -1,26 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/10 财经快讯: 中共掩盖疫苗副作用, 反对腐败需要所有人参与
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/544281/)
+## 不能被遗忘的民主前线&quot;香港
+` G-NEWS Taiwan` [轉載自GNews](https://gnews.org/zh-hans/544386/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10085257/Picture37-2.png)图片：国家脉动
-1.腐败无国界，反对腐败需要所有人的参与，无论你是政府部门、私营部门，还是非盈利组织、媒体，全体公民。无论是揭露选票舞弊，还是揭露财务造假，揭露对病毒真相的掩盖，灭掉中国共产党，都离不开所有人的参与
-[https://www.accaglobal.com/uk/en/member/member/accounting-business/2019/10/insights/corruption-americas.html](https://www.accaglobal.com/uk/en/member/member/accounting-business/2019/10/insights/corruption-americas.html)
+文旦
 
-2.《国家脉动》解释舞弊的来龙去脉，遭遇推特封锁，继续坚持战斗，国家脉动油管账号上传最新一期视频，期待大家关注。
-[https://youtu.be/eBoYVUqO2m0](https://youtu.be/eBoYVUqO2m0)
+参考资料[https://www.epochtimes.com/b5/20/11/9/n12537153.htm](https://www.epochtimes.com/b5/20/11/9/n12537153.htm)
 
-3.《财富》杂志11月10日报道，巴西暂停了中共国公司的中共病毒疫苗第三期临床试验，而该公司的疫苗已经在中共国通过紧急使用项目把数万中国人当小白鼠使用，不报道使用效果，掩盖真相。
-[https://fortune.com/2020/11/10/china-covid-vaccine-early-approval-sinovac-delay-safety/](https://fortune.com/2020/11/10/china-covid-vaccine-early-approval-sinovac-delay-safety/)
+香港，这个东方明珠，在2019年6月6号开始，陷入一片黑暗，一场反送中，告知了全世界中共的黑暗，中共的手段，中共的邪恶，及中共的真面目，这场大游行至今，不管是中国人民，香港人民，大量的失踪，大量的被自杀，这个被操控的香港政府变本加厉，在今年7月出了香港国安法，打算控制权世界的言语，将中共的恶法延伸到全世界，只要在他们的操控下，没有人能幸免。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10093425/%E5%9C%96%E7%89%87-1-20.png)
+在这个黑暗时刻中，各国开始对香港进行制裁，不承认香港是”独立的地区”，在中共病毒疫情之下，在美国大选之下，各个国家还是没有忘记”香港”这个地方的人民，继续的制裁，这些中共黑暗的帮手，让这些中共的帮手，胆战心惊，让他们为了做这些的目的，有权，有钱，能照顾好家人，能让家人千秋万代的梦想，随即破灭。
 
-4.11月10日，华尔街日报报道软银和谷歌公司支持的中共国的卡车优步公司估值100亿美元，正在募集资金17亿美元，打算明年上市。
-[https://www.wsj.com/articles/chinas-uber-for-trucks-raising-1-7-billion-ahead-of-ipo-next-year-11604996654](https://www.wsj.com/articles/chinas-uber-for-trucks-raising-1-7-billion-ahead-of-ipo-next-year-11604996654)
+香港这个曾经的亚洲金融之心，看看曾经，看看现在，在中共的恶，中共的扩张，让这个东方明珠变得如此残破不堪，所有的资讯，媒体，数据….开始造假，利用香港之名欺骗全世界的投资者，欺骗全世界的信任，帮中共的权贵们输血，让他们更加变本加厉的，去达到更多的阴谋。
 
-5.腾讯购买英国增长最快的基因研究公司之一康吉尼亚（Congenica），其开发的软件分析数据的速度快于行业平均值的20倍。该公司是英国少见病与遗传性癌症基因研究方面的先驱。本次融资将用于基因分析活动的国际扩张和与制药巨头结伙。
-[https://news.sky.com/story/british-genomics-start-up-congenica-sells-stake-to-chinas-tencent-12127498](https://news.sky.com/story/british-genomics-start-up-congenica-sells-stake-to-chinas-tencent-12127498)
-
-CPA Jim 整理
-By 【秘翻组 – 金融法律团队】
+相信这一次这制裁不是结束，因为黑暗之手，越来越高，越来越深，香港需要你我继续传播真相，因为这些方式的对待香港，也正在你我身边慢慢地发生，贪婪的人，没有限制住她，没有将他揭开，没有将它消灭，他只会更加贪婪，更何况，中共这些贪婪的家族，正用着一切力量来将全世界慢慢地和他一样，你发现了吗?，想一想是不是正在进行中….
 
 0
