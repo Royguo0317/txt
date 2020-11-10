@@ -1,35 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】重磅消息：参议院共和党领袖麦康奈尔表示:“川普总统100%有权利调查违规指控，并权衡他的法律选择！”
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/542000/)
+## 【热点播报】一切只是刚刚开始：美重要政治媒体之一《Real Clear Politics》第一个将宾州从拜登的取胜州名单中取消
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/542138/)
 
-**作者：香草山写作组  正道主义联盟**
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05173212/logo-2.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
 
 
 
+香草山写作组：村北
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09180555/Picture1-18.png)
-自从拜登上周六宣称自己获得总统大选，麦康奈尔和国会的共和党领导人一直没有对选举结果表示祝贺或承认。
+前纽约市警察总长 Bernard B. Kerik 以及多个推特大V刚刚发出消息告知公众，美国重要的媒体及民意统计机构之一“Real Clear Politics”成为第一家将宾州从拜登的获胜州名单中取消的媒体。Kerik先生在推中表示，“这一切只是刚刚开始，后续还将有更多此类消息”。
 
-这次是麦康奈尔在大选后的首次公开亮相，麦康奈尔周一在参议院表示“尽管共和党人在参议院和众议院的竞争中获胜。没有一个州确认了选举的结果。我们有适当的系统来考虑这些担忧，川普总统100%有权利查看违规指控并权衡他的法律选择。他没有义务接受基于拜登赢得的计票结果的预测。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09202546/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E4%B8%80%E5%88%87%E5%8F%AA%E6%98%AF%E5%88%9A%E5%88%9A%E5%BC%80%E5%A7%8B%EF%BC%9A%E7%BE%8E%E9%87%8D%E8%A6%81%E6%94%BF%E6%B2%BB%E5%AA%92%E4%BD%93%E4%B9%8B%E4%B8%80%E3%80%8AReal-Clear-Politics%E3%80%8B%E7%AC%AC%E4%B8%80%E4%B8%AA%E5%B0%86%E5%AE%BE%E5%B7%9E%E4%BB%8E%E6%8B%9C%E7%99%BB%E7%9A%84%E5%8F%96%E8%83%9C%E5%B7%9E%E5%90%8D%E5%8D%95%E4%B8%AD%E5%8F%96%E6%B6%881.png)
 
-据了解，许多共和党人都认为，特朗普仍然对共和党有着强大的影响力，在他执政之后，这种影响力将会持续下去。根据盖洛普(Gallup)的调查，在选举开始时，95%的共和党人表示他们对他作为总统的表现表示认可，而根据民调显示，有高达93%的共和党人投票支持他连任。川普竞选总统连任得到了几乎所有共和党人的支持！
 
-继大选舞弊事件发生后，共和党人迅速团结起来支持川普总统，最让人难忘的是周日，参议院司法委员会主席格雷厄姆接受《福克斯新闻》周日节目采访时，支持川普对不公平的选举进行全力反击。“如果共和党人不发起挑战，改变美国选举体系，就不会再有共和党总统当选，川普总统不应该认输。”
 
-还有在美国民主党总统候选人拜登宣布获胜后，面对媒体一边倒不顾事实宣布拜登当选的行为，共和党全国委员会主席罗娜·罗姆尼·麦克丹尼尔（Ronna Romney McDaniel）迅速召开新闻发布会表示，“选民才能决定谁赢得选举，而不是媒体。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09202606/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E4%B8%80%E5%88%87%E5%8F%AA%E6%98%AF%E5%88%9A%E5%88%9A%E5%BC%80%E5%A7%8B%EF%BC%9A%E7%BE%8E%E9%87%8D%E8%A6%81%E6%94%BF%E6%B2%BB%E5%AA%92%E4%BD%93%E4%B9%8B%E4%B8%80%E3%80%8AReal-Clear-Politics%E3%80%8B%E7%AC%AC%E4%B8%80%E4%B8%AA%E5%B0%86%E5%AE%BE%E5%B7%9E%E4%BB%8E%E6%8B%9C%E7%99%BB%E7%9A%84%E5%8F%96%E8%83%9C%E5%B7%9E%E5%90%8D%E5%8D%95%E4%B8%AD%E5%8F%96%E6%B6%882.png)
 
-麦康奈尔在华盛顿政坛影响力非法凡，作为共和党老大同时兼任参议院主席出来为川普总统亲自站台，意义重大！可以看到，川普团队的法律行动已经集结了党内所有高层力量，对于即将到来的法律大战，空前团结协作，齐齐亮相对民主党选举的舞弊坚决反击说不！今天麦康奈尔的讲话，对川普总统未来能逆转选情绝对是起到了定海神针的作用。
+在大选日的第二天凌晨，拜登获得的选票在几乎所有摇摆州都呈现出离奇的直线上升态势，选票数量反超川普总统。虽然川普竞选团队及民众在发现拜登选票有造假嫌疑后提出质疑，但绝大多数主流媒体如同事先商量好一样，纷纷压制质疑声，不顾一切地宣布拜登获胜。
 
-审核：悟空
+仅仅在宾州，至少有68万多张邮寄选票的计票过程并未在有效的监督下进行。随着拜登一方在大选中大规模造假的证据逐渐被民众和川普总统团队掌握，拜登一方似乎也已嗅到大势已去。而罔顾法律流程宣布拜登获胜的媒体也开始出现树倒猢狲散的苗头。 “Real Clear Politics” 不得不率先取消将最重要摇摆州宾州的获胜归属于拜登的声明。
+
+审核：jamie(文胤)
 
 更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+更多文章，欢迎浏览[美东香草山农场GNEWS](https://gnews.org/zh-hans/author/changdao/)！
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，纽约时间周日至周四晚上8:00，美国志愿者在纽约香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05173212/logo-2.jpg)
-4+
+圣经故事背景，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
+0
