@@ -13,26 +13,26 @@
 
 
 
-### [视频11/9/2020 【文贵先生直播】过几天一位来自武汉火葬场的战友可能会上路德节目，大家要练好心脏](/content/gnews/1/README.md)
+### [川普总统连任系列六:美司法部长巴尔正式授权司法部调查选票违规行为](/content/gnews/1/README.md)
+ ` GM101`
+
+### [视频11/9/2020 【文贵先生直播】过几天一位来自武汉火葬场的战友可能会上路德节目，大家要练好心脏](/content/gnews/2/README.md)
  ` 秘密翻译组G-Translators`
 
-### [视频媒体控制一切！白宫发言人凯莉发表关于选票欺诈的声明被福克斯主持人尼尔打断！](/content/gnews/2/README.md)
+### [视频媒体控制一切！白宫发言人凯莉发表关于选票欺诈的声明被福克斯主持人尼尔打断！](/content/gnews/3/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [【热点播报】上海浦东江镇疫情突发（续）](/content/gnews/3/README.md)
+### [【热点播报】上海浦东江镇疫情突发（续）](/content/gnews/4/README.md)
  ` 纽约香草山农场`
 
-### [突发！川普总统宣布国防部长由克里斯托弗·米勒代理](/content/gnews/4/README.md)
+### [突发！川普总统宣布国防部长由克里斯托弗·米勒代理](/content/gnews/5/README.md)
  ` 巴塞罗那喜西农场`
 
-### [【热点播报】上海浦东江镇疫情突发](/content/gnews/5/README.md)
+### [【热点播报】上海浦东江镇疫情突发](/content/gnews/6/README.md)
  ` 纽约香草山农场`
 
-### [持续攻击，病毒仍在白宫肆虐](/content/gnews/6/README.md)
+### [持续攻击，病毒仍在白宫肆虐](/content/gnews/7/README.md)
  ` HimalayaRussia`
-
-### [突发！美驻华使领馆发文，宣告全球灭共的开始](/content/gnews/7/README.md)
- ` 巴塞罗那喜西农场`
 
 ### [罗斯在美中贸易战期间仍担任中共国合资企业董事会成员](/content/gnews/8/README.md)
  ` 纽约香草山农场`
@@ -154,6 +154,6 @@
 ### [这是假新闻！&#8212;-CNN发布有关川普女婿和夫人劝他认输的消息](/content/gnews/47/README.md)
  ` gnewscanada`
 
-### [路德社解析习为何至今未向拜登发贺电](/content/gnews/48/README.md)
- ` GM06`
+### [突发！美驻华使领馆发文，宣告全球灭共的开始](/content/gnews/48/README.md)
+ ` 巴塞罗那喜西农场`
 
