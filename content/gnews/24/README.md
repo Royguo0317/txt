@@ -1,16 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登能出卖什么？这场大选的输家是谁？
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/543305/)
+## 文贵说｜系列图片连载（四十一）
+` GM98` [轉載自GNews](https://gnews.org/zh-hans/543447/)
 
-视频来源：[https://gtv.org/video/id=5fa6b7eabd0d464fadf5a5f8](https://gtv.org/video/id=5fa6b7eabd0d464fadf5a5f8)
-摘要：郭文贵先生在11月7日的 G|TV 直播中提到亨特·拜登和乔·拜登跟 CCP 签约的协议出卖了14亿中国人民的未来和台湾。这场大选的输家第一是全美国人民，他们失去了所有的尊严、民主、和在世界灯塔的价值。包括拜登家族、华尔街、美国媒体、华盛顿，他们的本质就是不想改变14亿人民这个奴役的现实。所有的较量， 包括美国两党的较量都本质最终都回到如何更好的奴役和利用14亿中国人民这个奴才。
+## 281.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10033633/02-6.jpg)
+我们可以站在一起平等的说话，允许对方发脾气，允许对方犯错误，允许对方给你说实话，甚至说错误的实话。
 
-*“为什么这么做？华尔街、硅谷他们要卖东西给中国人民，他们要造便宜的东西给中国人民，他们可以换肝换肾来自中国。他们可以换心脏，移植器官在中国。说白了，就是不想改变14亿人民这个奴役的现实。”* – 郭文贵
+——郭文贵先生2020年4月27日
 
-翻译：【班仔】 校对：【noraTina】字幕：【Rock小哥】听写：【Naomi (文花开)】视频解码：【恒久忍耐】剪辑视频：【小螺号】编辑：【Isaiah4031】
+## 282.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10033703/03-5.jpg)
+体面，富有、健康、安全的生活….是任何人都应该有的基本权利，这叫人权，这叫基本的尊严。
 
-战友之家玫瑰园小队出品
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01145114/GNEWS-GTV-VOG.png)
-2+
+——郭文贵先生2020年4月27日
+
+## 283.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10033734/04-4.jpg)
+一个民族，一个国家，把教育当成你的工具的时候，你注定必将灭亡，是民族的灾难。
+
+——郭文贵先生2020年4月27日
+
+## 284.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10033854/021-1.jpg)
+一人一票，决定中国人的命运。权力是大家的，财富是个人的。
+
+——郭文贵先生2020年2月1日
+
+## 285.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10033942/01-6.jpg)
+香港的战友们我可以告诉大家你们一定会赢，一定会赢！我可以为这句话承担一切后果，一定会赢。赢回22年前属于你们的法治和自由。
+
+——郭文贵先生2019年6月13日
+
+## 286.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10034111/215.jpg)
+有一个政权，有一个政党，不希望老百姓好，不希望老百姓活着，希望你死！——这就叫共产党！
+
+——郭文贵先生2020年2月1日
+
+## 287.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10034307/041-1.jpg)
+如果你真的希望中国没有共产党，真正的拥有法治、拥有信仰的自由、亲人能团聚、让中华民族这个民族强大 起来的话，那么你做你力所能及的事。
+
+——郭文贵先生2020年2月1日
+
+0

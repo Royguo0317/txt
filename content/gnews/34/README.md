@@ -1,23 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新闻快报：Parler,Newsmax超过Twitter和CNN
-` xbwen7m` [轉載自GNews](https://gnews.org/zh-hans/543106/)
+## 亚利桑那、乔治亚和密歇根等州官员纷纷表态 支持合法计票 抵制大选作弊
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/543216/)
 
-HTS-01C-202011-001
+作者：喜马拉雅 编辑:李小甜KR
 
-**作者：勇气（喜马拉雅东京樱花团）**
+眼下，美国的总统大选舞弊行为，花样百出，各式刷新认知的作假让人瞠目结舌，什么重复计票、幽灵票让全球瞩目。政府各层官员也在动荡之中，美国防部长正式被川普总统解雇，参议院领袖麦康纳尔和司法部巴尔正式宣布支持川普重新计票查清选票合法性。那么，各摇摆州或发现计票反常州的官员分别都是持何态度？
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10011158/%E7%94%BB%E5%83%8F1-63.jpg)
+让我们看看目前民主党、共和党双方胶着的亚利桑那、乔治亚和密歇根各州：
+
+乔治亚州州长Brian Kemp发推简短而有力：“乔治亚洲的选举结果将计入合法选票-而且**只能**是合法投票。句号！”从措辞可以看出他维护美国选举工作的合法性及民众投票权的态度非常坚定。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10015511/%E5%9B%BE%E7%89%871-13.jpg)
+
+David Bossie 在亚利桑那州的讲话也是字句铿锵：“当选举结果结束的时候，亚利桑那州的11票是属于川普总统的！我们保障每一张合法选票都会计数。因为我们科学计票，亚利桑那州应该属于川普总统的！”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10015757/%E5%9B%BE%E7%89%872-10.jpg)
+据《每日日报》报道，密歇根州众议院议长李-查特菲尔德（Lee Chatfield）推特：”每一张合法的选票都需要被计算在内，不管是谁投的，也不管他投给谁。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10015915/%E5%9B%BE%E7%89%873-8.jpg)
+“赢得这些选票最多的候选人将赢得密歇根州的选举人票，就像一直以来一样。2020年，这个不会有任何改变。”他说。
+
+周二选举结束后，有多个关于选举舞弊、打字错误和故障的指控。
+
+“安特里姆县的一个软件故障导致将大约5000张投给唐纳德-特朗普总统的票给了前副总统乔-拜登后，问题随之而来，”该报说。
+
+“我们需要让我们现有的制度来解决这些问题。这将需要时间，并涉及律师和争论：这是确定的，以前在有争议的选举中已经证明有效”，麦克布鲁姆指出。
+
+密歇根州共和党主席劳拉-考克斯在周三的声明：”今天早上报道的违规行为令人难以置信，特别是考虑到密歇根州的选举结果如此接近。”
+
+“目前，还不清楚这些问题是否是由无能或腐败造成的，但它们存在的事实令人非常担忧，密歇根共和党将不遗余力揭露选举中发生的真相，”她总结道。
+
+短评：美国此次的2020大选，不仅仅是美国一国之总统大选，恰如川普总统战略师班农先生的新兴媒体War Room在大选之夜打出的标题Global Election 2020一样，这次是世界上几十亿人同样关切的全球大选，是人类正义与邪恶之间的较量，是自由法治文明和破坏规则的共产主义之间的较量。从各州官员在这历史关头的表现来看，他们选择站在法律、正义一边，向挑战法律尊严、破坏民主自由的邪恶势力宣战，保障国民神圣的投票权。无论谁最后当选，美利坚合众国头顶的乌云终将被一扫而光，曙光重新照亮自由女神雕像。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10020043/%E5%9B%BE%E7%89%874-8.jpg)
+**参考：**[https://www.realclearpolitics.com/elections/live\_results/2020/president/](https://www.realclearpolitics.com/elections/live_results/2020/president/)
+
+[Tweets by LeeChatfield](https://twitter.com/LeeChatfield?ref_src=twsrc%5Etfw)
+
+[https://www.breitbart.com/2020-election/2020/11/07/republican-led-michigan-legislature-to-hold-hearings-on-election-fraud-claims/](https://www.breitbart.com/2020-election/2020/11/07/republican-led-michigan-legislature-to-hold-hearings-on-election-fraud-claims/)
 
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10011124/%E7%94%BB%E5%83%8F2-24.jpg)
-
-
-***图片内容：截至纽约时间2020年11月9日8：00AM，Parler和Newsmax超过Twitter和CNN跃居苹果美国区下载总榜第一和第七名，新闻类应用第一和第二名***
-
-【Gnews2020年11月09日讯】倡导言论自由的新款社交媒体Parler近日受到美国用户追捧，超过Twitter和Facebook等传统社交平台，占据苹果美国区下载总榜和新闻应用下载第一名。这与美国大选日以来，Twitter等传统社交平台不断传出封锁用户有关大选的自由言论等丑闻有直接关系。Twitter甚至疑似删除了特朗普总统关于大选的若干条推文，引起特朗普支持者诸多不满，纷纷转移至倡导言论自由的社交平台Parler。
-
-另外一家成立于1998年的新闻电视台Newsmax，近日受到美国观众持续关注，于今日跃居苹果美国区新闻类应用下载第二名，超过CNN等传统电视台。有分析人士指出，近期有关美国大选舞弊假票等问题，引起美国民众高度关注，但美国传统新闻媒体报道有失新闻平衡原则，集体偏向民主党阵营，对舞弊假票等美国选民关心的关键信息报道缺失。让大量美国观众转向Newsmax新闻台，Newsmax由前纽约邮报记者克里斯托弗.鲁迪(Christopher Ruddy)创办于1998年，Newsmax在今年美国总统选举期间报道了大量真实选情新闻,特别是有关舞弊和假票等关键信息，引起追求真相的美国选民广泛关注。
 
 2+
