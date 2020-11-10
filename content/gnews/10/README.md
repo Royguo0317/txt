@@ -1,42 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共媒体负责人庆祝拜登 &#8220;胜利&#8221;，称这让中共成为这次选举的赢家
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/542856/)
+## 【热点播报】美司法部总检察长巴尔宣布全面调查各州的选举舞弊案，说明司法部已掌握实锤证据
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/542991/)
 
-翻译：康州农场-烟波浩淼
+作者：香草山写作组 程万里 校对/发稿：飞虹
 
-校对：康州农场-MikeLi
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09235328/%E5%9B%BE%E7%89%875-4.png)
-中共媒体《中国日报》的一位负责人针对主流媒体对乔***–***比登的胜利预测，暗示中国共产党是美国总统选举的赢家。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
 
-中共喉舌的欧洲局局长，常年批评川普总统的陈卫华先生于11月8日在推特上发消息。《中国日报》由中共自己的宣传部拥有和运营。
 
-在斥责《卫报》一篇题为 “各国领导人祝贺拜登当选美国总统时，俄罗斯和中国的沉默不言”的文章时，陈建华似乎反驳了中共没有向拜登提供支持的说法。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10004321/%E5%9B%BE%E7%89%8716-3.png)
+美东时间2020年11月9日司法部总检察长威廉·巴尔授权司法部调查2020年选举中选民欺诈的任何“重大指控”。 其说明：“如果存在关于不正常行为的明确和明显可信的指控，可以进行调查，如果这些指控属实，则可能会影响单个州甚至联邦选举的结果。”
 
-他称这篇文章是 “垃圾“，并质疑 “中国很可能是川普败选的输家” 的说法。在中共媒体工作的陈先生也对《卫报》关于中国没有 “祝贺 “拜登的说法进行了反击，他质问 “你是不是没有关注我的推特？”。
-
-垃圾《卫报》。中国很可能是川普败选的输家？你是不是没有关注我的推特？
+美国的刑事案件是FBI或者调查公司先行调查，掌握证据，司法部检察官看到实质证据并审核后才会开始立案，进入司法程序，司法部的介入说明刑事调查已经结束，司法部已经看到并审核了实质证据。两党政治问题已经上升到司法程序问题，选举造假已经触动了美国的立国之本。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10004338/%E5%9B%BE%E7%89%8717-3.png)
+而这重磅实锤的证据从哪里来的？还记得文贵先生27天后与大卫连线的直播吗：“当他发现这场假造的留有后门的时候，就像你代表新中国联邦到意大利考察去了，到那里扔了几包海洛因，会是啥结果？还能会有合作吗？执行任务时，执行了反任务了。”文贵先生这么说就是证明实锤证据已经新中国联邦手中，相信现在已经在司法部了，这就是文贵先生所说的新中国联邦改变了美国选举，改变了世界。
 
 
 
-> Russia and China silence speaks volumes as leaders congratulate Biden [https://t.co/q1FA0xKvzv](https://t.co/q1FA0xKvzv)
-> — The Guardian (@guardian) [November 8, 2020](https://twitter.com/guardian/status/1325502299112878082?ref_src=twsrc%5Etfw)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
 
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上8:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-因此，针对媒体预言拜登获胜，陈卫华认为中国是赢家并不意外。
-
-前副总统拜登在执政期间，经常拥护把美国的制造业基地、知识产权和经济实力出卖给中共。
-
-更重要的是，他的家族成员已经从与中共从能源到制造业等各个行业的数十亿美元的商业交易中获利。
-
-原文链接：
-
-
-
-> [China State Media Chief Celebrates Biden ‘Victory’, Says It Makes The CCP A Winner](https://thenationalpulse.com/news/china-wins-biden-victory/)
-
-
-
-2+
+1+
