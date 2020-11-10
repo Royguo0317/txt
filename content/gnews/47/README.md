@@ -1,31 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 密歇根州民主党工作者在脸书发布“我们扔掉了所有川普的选票”后说“这只是个玩笑”
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/541999/)
+## 美军抵达高雄日何以没出现共匪驻美公使李克新叫嚣的武统时
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/542116/)
 
-*多伦多加喜农场 Kent
-校对 文锦 上传 WJ*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09203251/timg_%E5%89%AF%E6%9C%AC.jpg)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-据Gateway Pundit11月8日报道，基尔-福克斯顿（Kiel Fauxton）被发现在脸书上承认民主党选票造假的事。基尔拥有三个脸书账户，并在账号上注明了他的居住地以及为谁工作。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09182952/K2.jpg)
-“我在密歇根州韦恩县工作， 所有我看到的川普的选票都被我们扔掉了，成千上万张， 我的同事也全都这么做。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09183011/K3.jpg)
-网友评价说：“他应该被立刻逮捕！” 也有人说： “ 一个自称是马克思主义者所谓的公平选举“。而他的回应则是：“他们为什么总说‘自称马克思主义者’？ 你可以直接说我是‘马克思主义者’”。
+据[霸气亮剑! 中国驻美公使称美军抵高雄日就是“武统”时](http://video.tudou.com/v/XMzIxNzg5MjMyNA==.html?from=s1.8-1-1.2)（来源：土豆 发布时间：2017-12-09）
 
-这已经不是第一次有民主党选举工作者公开承认他们在为拜登作假, 此前有竞选团队的工作者发布推文说自己所在的整个团队都对自己为拜登工作感到羞愧， 并主动退出。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09183041/Kent.jpg)
-随后基尔用另外一个名字与媒体取得联系并请求媒体更正这个消息，他说这只是一个玩笑，他从来没有当过选票员，还说他希望弥补这个大错。目前他的三个脸书账号已经有两个消失了，只剩下一个仍然活跃。
+另据[台媒：台海军证实美国海军陆战队抵台，将教授台军突击舟等作战课程](https://www.sohu.com/a/430510633_162758)（2020-11-09 09:17）：
 
-而在另一边，在一项新的宣誓书中，内华达州克拉克县选举部的举报人称：内华达州的民意调查人员为非法选民捏造了居住数据的证据。
+［报道称，台海军司令部证实美国海军陆战队抵台，今天（9 日）起连续 4 周，将在高雄左营军区教授海军陆战队、两栖特勤中队有关突击舟、快艇渗透作战课程。这是台湾与美军军事互动因新冠肺炎疫情管制中断七八个月后，首度恢复运作，预料美军各项在台小部队操演可望据此模式渐次恢复举行。］
 
-越来越多的民主党派选举工作者开始向人们传播拜登“胜选”的“真相”，尽管多家媒体乃至多个国家元首已迫不及待地提前向拜登发表祝贺表忠心， 但公平公正的大选的结果仍然需要我们耐心的等待。
+［今年 6 月，国防部新闻发言人任国强曾表示，台湾是中国不可分割的一部分，任何”以台制华”和挟洋自重的做法都是没有出路的。中国人民解放军有坚定的意志、充分的信心和足够的能力维护国家主权和领土完整、维护两岸同胞共同利益、维护台海地区和平稳定，坚决挫败任何制造”一中一台”的图谋。］
 
-参考链接：
-[又一位吹哨人站出来！指控内华达州的民意调查员捏造居住数据](https://gnews.org/zh-hans/540932/)-Gnews
+美军已经抵达高雄，说好的可以立即触发的反国家分裂法却没有触发，李克新公使食言而肥事小，反国家分裂法儿戏事大。李克新公使和一众多年来用口炮无数次统一台湾、扫平日本、吞下宇宙的共匪阿Q们，接下来，这武统台湾的口炮该往哪个方向打？
 
-原文链接：
+（文章内容仅代表作者个人观点）
 
-[UPDATE: Self-Described Dem Party Worker, MI Resident Who Bragged On Facebook: “I work for Wayne Co, MI and I threw out every Trump ballot I saw. Tens of thousands of them and so did all of my co-workers” Now Says “It was a joke”](https://www.thegatewaypundit.com/2020/11/self-described-dem-party-worker-detroit-resident-brags-facebook-work-wayne-co-mi-threw-every-trump-ballot-saw-tens-thousands-co-worke/)
-
-3+
+0

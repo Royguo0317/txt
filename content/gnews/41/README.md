@@ -1,33 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】一切只是刚刚开始：美重要政治媒体之一《Real Clear Politics》第一个将宾州从拜登的取胜州名单中取消
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/542138/)
+## 川普总统发推：总检察长威廉·巴尔授权司法部调查违规行为
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/542273/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
+编译：玫瑰天空
 
+司法部长威廉·巴尔在周一发布的备忘录中授权司法部（DOJ）调查2020年总统大选的投票违规行为。
 
-
-香草山写作组：村北
-
-前纽约市警察总长 Bernard B. Kerik 以及多个推特大V刚刚发出消息告知公众，美国重要的媒体及民意统计机构之一“Real Clear Politics”成为第一家将宾州从拜登的获胜州名单中取消的媒体。Kerik先生在推中表示，“这一切只是刚刚开始，后续还将有更多此类消息”。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09202546/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E4%B8%80%E5%88%87%E5%8F%AA%E6%98%AF%E5%88%9A%E5%88%9A%E5%BC%80%E5%A7%8B%EF%BC%9A%E7%BE%8E%E9%87%8D%E8%A6%81%E6%94%BF%E6%B2%BB%E5%AA%92%E4%BD%93%E4%B9%8B%E4%B8%80%E3%80%8AReal-Clear-Politics%E3%80%8B%E7%AC%AC%E4%B8%80%E4%B8%AA%E5%B0%86%E5%AE%BE%E5%B7%9E%E4%BB%8E%E6%8B%9C%E7%99%BB%E7%9A%84%E5%8F%96%E8%83%9C%E5%B7%9E%E5%90%8D%E5%8D%95%E4%B8%AD%E5%8F%96%E6%B6%881.png)
+川普总统发推传递了相关消息：
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09202606/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E4%B8%80%E5%88%87%E5%8F%AA%E6%98%AF%E5%88%9A%E5%88%9A%E5%BC%80%E5%A7%8B%EF%BC%9A%E7%BE%8E%E9%87%8D%E8%A6%81%E6%94%BF%E6%B2%BB%E5%AA%92%E4%BD%93%E4%B9%8B%E4%B8%80%E3%80%8AReal-Clear-Politics%E3%80%8B%E7%AC%AC%E4%B8%80%E4%B8%AA%E5%B0%86%E5%AE%BE%E5%B7%9E%E4%BB%8E%E6%8B%9C%E7%99%BB%E7%9A%84%E5%8F%96%E8%83%9C%E5%B7%9E%E5%90%8D%E5%8D%95%E4%B8%AD%E5%8F%96%E6%B6%882.png)
+> [https://t.co/kSjq4ye9EO](https://t.co/kSjq4ye9EO)
+> — Donald J. Trump (@realDonaldTrump) [November 10, 2020](https://twitter.com/realDonaldTrump/status/1325973224522473475?ref_src=twsrc%5Etfw)
 
-在大选日的第二天凌晨，拜登获得的选票在几乎所有摇摆州都呈现出离奇的直线上升态势，选票数量反超川普总统。虽然川普竞选团队及民众在发现拜登选票有造假嫌疑后提出质疑，但绝大多数主流媒体如同事先商量好一样，纷纷压制质疑声，不顾一切地宣布拜登获胜。
 
-仅仅在宾州，至少有68万多张邮寄选票的计票过程并未在有效的监督下进行。随着拜登一方在大选中大规模造假的证据逐渐被民众和川普总统团队掌握，拜登一方似乎也已嗅到大势已去。而罔顾法律流程宣布拜登获胜的媒体也开始出现树倒猢狲散的苗头。 “Real Clear Politics” 不得不率先取消将最重要摇摆州宾州的获胜归属于拜登的声明。
 
-审核：jamie(文胤)
+该备忘录已由Barr处理并签署给美国检察官，美国司法部刑事司，民权司，国家安全司助理检察长，以及联邦调查局（FBI）局长克里斯托弗·雷（Christopher Wray）。
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+备忘录写道：“现在投票已经结束，当务之急是美国人民可以相信我们的选举以这样的方式进行，即选举结果能准确反映选民的意愿。”
 
-更多文章，欢迎浏览[美东香草山农场GNEWS](https://gnews.org/zh-hans/author/changdao/)！
+巴尔的备忘录是在39名众议院共和党人[周五在一封信中敦促巴尔](https://www.breitbart.com/politics/2020/11/08/39-house-republicans-ask-bill-barr-to-ensure-integrity-of-voting-and-counting-process/)让美国司法部可用资源调查全国几个主要战场州投票不当行为的指控之后发表的。特朗普竞选活动在其中一些州提起了许多诉讼。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09212927/%E5%B7%B4%E5%B0%94%E4%BF%A11-1.jpg)*[巴尔备忘录对司法部的投票违规行为](https://www.scribd.com/document/483622101/Barr-Memo-to-DOJ-on-voting-irregularities#from_embed)由
+[克里斯蒂娜·黄](https://www.scribd.com/user/294756797/Kristina-Wong#from_embed)在Scribd*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09212939/%E5%B7%B4%E5%B0%94%E4%BF%A12-1.jpg)*[巴尔备忘录对司法部的投票违规行为](https://www.scribd.com/document/483622101/Barr-Memo-to-DOJ-on-voting-irregularities#from_embed)由
+[克里斯蒂娜·黄](https://www.scribd.com/user/294756797/Kristina-Wong#from_embed)在Scribd*
 
-圣经故事背景，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
+
+巴尔在备忘录中说，尽管各州负有进行和监督选举的主要责任，但司法部“有义务确保以这种方式进行联邦选举，以使美国人民对其选举过程充满信心。他们的政府。”
+
+他补充说，尽管所谓的“多数指控”涉及选举不当行为，其规模如此之大，以至于不会影响选举结果，因此可以推迟进行调查，“并非总是如此。”
+
+他说，由于投票已经结束，因此担心司法部在这种情况下采取的公开行动将大大减少。
+
+他还说，他已经授权司法部对具体情况下的投票和投票制表违规行为进行大量指控。
+
+他说：“鉴于此，并且鉴于我们当前的选举已经结束，因此我授权您在某些情况下在您的辖区进行选举认证之前对大量的投票指控和制表不当行为进行指控，就像我在特定情况下所做的那样。”
+
+他说，如果存在明显的，显然可信的违规指控，如果确实如此，可能会影响单个州联邦选举的结果，则可以进行调查和审查。
+
+他说：“虽然美国检察官保持其固有的权力，可以进行适当的调查和调查，但审慎开始任何与选举有关的事项作为初步调查，以评估现有证据是否值得采取进一步的调查步骤，” 。
+
+他还敦促美国司法部采取“极为谨慎和判断”的态度，不要对“似是而非，投机性，虚构或牵强附会的主张进行询问”。
+
+他指出，他的调查授权不应该表示司法部已得出结论，投票违规行为已影响选举结果，而是要确保对投票过程的信任。
+
+他说：“我提供这种权威和指导，以强调必须及时，妥善处理有关选举不当行为的指控，以便所有美国人，无论其首选的候选人或政党如何，都对我们的选举结果充满信心。” 。
+
+他说：“美国人民和他们自由选举产生的领导人应得的就是更多。”
+
+
+
+[原文](https://www.breitbart.com/2020-election/2020/11/09/attorney-general-william-barr-authorizes-doj-look-voting-irregularities/)：由[克里斯蒂娜·王（KRISTINA WONG）](https://www.breitbart.com/author/kristina-wong/)2020年11月9日发布
+
 0
