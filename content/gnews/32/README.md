@@ -1,93 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国大选，围猎行动
-` erzun250` [轉載自GNews](https://gnews.org/zh-hans/541385/)
+## 爆革星评：川普总统将在战场州举行全国性集会
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/541646/)
 
-HTS-02C-202011-002
+多伦多加喜农场 文星（一号）
 
-**作者：易恩（喜马拉雅东京樱花团）**
+校对上传 XM
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09135658/%E5%9B%BE%E7%89%878.jpg)图片来源：amp.topwar
+在11月3日这个美国传统的大选结束日之后，美国社会揭露拜登集团大选造假作弊的信息此起彼伏。川普总统不仅立即组成了朱利安尼、布林·鲍威尔律师为代表的法律团队开始在多州进行大规模的法律行动，据称还将举行全国性的大型集会，揭露大选舞弊，还原选票真相。
 
-Tom Graham，自称美国第82空降老兵，推特发布重磅信息：
+据人气很旺的瑞安·弗尼尔（Ryan·Fournier）11月8日发推披露：“川普即将在战场州进行全国性的大型集会。川普总统真是一个不可思议的强人”。其中提到的战场州，可能是指宾州、亚利桑那、乔治亚、内华达州等摇摆州，是这些州的选票后来畸形、不正常的变化导致川普总统落后。瑞安·弗尼尔是美国政治评论员和年轻的共和党战略家，以协助川普竞选总统而闻名。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09121145/1-44.jpg)
+众所周知，此前全国已有Stop the steal 的7100多万人集会声援川普总统，民意强大。而川普总统再次举行全国性集会，无疑更会带动美国社会的民意觉醒，唤醒美国精神，让美国的民主、自由、法治真正名至实归。果真集会起来，一定又是撼动天地。
 
-上图英文意思是：在2020年美国总统选举之夜，特朗普及其竞选团队聚集在白宫西侧的艾森豪威尔大厦。
+集会的目的，也会影响更多的参与人积极出来作证，进一步揭露出拜登集团大选过程中舞弊造假的违法犯罪行为，推动尽快还原选票真相。目前，川普法律团队正在全国范围内调查取证，已有几十个证人和录像证明大选中的各种违法行为，并且将于11月9日在宾州提起第一个选票欺诈案诉讼。
 
-据悉，艾森豪威尔大厦是美国的SCIF
-
-什么是SCIF？（请看下图）
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09121419/WhatsApp-Image-2020-11-09-at-22.05.15.jpeg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09121430/WhatsApp-Image-2020-11-09-at-22.05.16.jpeg)
-
-第二张图片使用百度搜索结果：“敏感信息隔离设施”，我们知道共匪不想让人知道太多，故用词柔和、委婉，但其解释可作为参考。
-
-第一张是维基百科搜索结果：“机密情报隔离设施”。
-
-也就是说SCIF是美国的机密情报隔离设施，这是美国陆军情报网络安全部门使用的一种设施。
-
-大选之夜，为何川普选择在这个布满机密情报隔离设施的艾森豪威尔大厦？
-
-笔者分析：因川普及其竞选团队正在实时监控欺诈行为，但川普总统的行为是机密，不能泄密，让民主党投票造假暴露无遗，尽收眼底，做实证据，所以需要到艾森豪威尔大厦，以免川普总统的计划被中共和民主党看穿。
-
-下述链接里内容已翻译成中文，大致如下，是关于艾森豪威尔大厦的相关情况及特点：
-
-CROFT及其设计团队进行了设施调查，设计章程，完整的建筑/工程设计，规格和RFP准备，以支持将常规行政大楼转变为美国陆军智能化和安全性的敏感分区信息设施（SCIF）指挥中心。佐治亚州戈登堡司令部。内部和外部饰面修改，声音控制，反恐部队保护措施以及电子通信保护。
-
-详情见链接1：[http://www.croftandassociates.com/work-blog/cybercommand-secure-communications-facility](http://www.croftandassociates.com/work-blog/cybercommand-secure-communications-facility)
-
-详情见链接2：
+参考链接：
 
 
 
-> [Eisenhower Executive Office Building – Modernization](https://www.singletonelectric.com/project/eisenhower-executive-office-building-modernization/)
+> President Trump is going to be holding rallies in battleground states across the country.
+> 
+> This man is incredible!
+> — Ryan Fournier (@RyanAFournier) [November 9, 2020](https://twitter.com/RyanAFournier/status/1325625005661696000?ref_src=twsrc%5Etfw)
 
 
-
-为进一步证实笔者观点，下述是Tom Graham美国第82空降老兵转发福克斯推特：民主党和中共知道哪个州正在使用装有HAMMER＆SCORECARD的投票机。（HAMMER＆SCORECARD为CIA开发的软件可以在选举中，身处第三国的间谍和黑客可远程操纵选民的选票记帐）
-
-HAMMER＆SCORECARD这种设施只是针对美国人民而部署的。
-
-
-
-查理·沃德（Charlie Ward）博士是川普的货币经纪人和酒店承包商，描述了该“ 大选之夜窃听行动”的部署，以诱捕取证参选举造假人员。
-
-
-
-根据美国军事时报报道，得悉：联邦国民警卫队大选之夜，在至少16个州全天候执行任务，监控网络流量并提供建议，任务范围包括协助网络防御、开展民意调查以及在选举后发生内乱时待命。以此准备，来诱捕取证参选举造假人员，当前涉及盗窃的所有动态都在国民警卫队列表中。
-
-美国军事时报：[https://t.co/BSOplzrmrU?amp=1](https://t.co/BSOplzrmrU?amp=1)
-
-美国最高法院Samuel A.Akito大法官命令,将在宾夕法尼亚州选举截止日期之后，将收到的所有选票和按时收到的选票区分开，将进行选票审核。重新计票由与第一次计票相同的人员/选举委员会进行。审计由武装欺诈调查员进行审计。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09121623/WhatsApp-Image-2020-11-09-at-22.37.41.jpeg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09121644/WhatsApp-Image-2020-11-09-at-22.37.41-1.jpeg)
-
-
-
-
-
-如此巧妙的是，共和党控制着宾夕法尼亚州议会的参、众两院。
-
-更巧妙的是，据下述信息，共和党人控制着其他选举关键摇摆州的参、众两院。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09121931/WhatsApp-Image-2020-11-09-at-22.40.05.jpeg)
-
-![]()
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09121953/WhatsApp-Image-2020-11-09-at-22.40.11.jpeg)
-
-**大****选之夜:**
-
-- 总统在布满机密情报隔离设施的艾森豪威尔大厦
-- 监控网络，协助网络防御
-- Samuel A.Akito大法官命令,将在宾夕法尼亚州选举截止日期之后，将收到的所有选票和按时收到的选票区分开，将进行选票审核
-- 共和党多数议员控制着大选关键摇摆州的参、众两院
-
-
-**种种迹象表面，这是精心策划，缜密安排的一场围猎行动。相信爆料革命的智慧，更相信赋予历史使命的川普总统一方的正义力量，一定会胜利，在恰当的时候，恰当的火候下，中共勾结民主党，伪造投票数据、造假票的行为一定会被揭露，只是时间的问题，我们耐心等待。**
 
 0
