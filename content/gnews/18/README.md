@@ -1,24 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德社精选】11/7/2020早间节目
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/546923/)
+## 【路德社精选】11/7/2020 晚间节目
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/547494/)
 
-听写/校对：瓦者 摘要：恩真
+听写:加非 校对：加非 简介：恩真 文宣图：艾伦 出品：首尔喜韩农场
 
-文宣图：艾伦 出品：首尔喜韩农场
+简介：
 
-摘要：
-
-1.美国有很多家庭妇女在买枪。
-2.Powell女士呼吁川普总统彻查Scorecard。
-3.硬盘不早爆让民主党措手不及。
-4.丑闻这条大鱼钓出了Scorecard这小鱼暗招。
-5.拜登选票瞬间增加彻底暴露。
-6.八年前南方公园动漫讲述过造假选票。
-7.美国大选阶段在疫情防护方面很脆弱。
-8.当你受考验时候还信才叫信仰。
+1.川普总统将彻查选票合法性。
+2.川普总统支持者在各地游行。
+3.美国民意已经觉醒。
+4.游行将对最高法庭产生重要影响。
+5.左派媒体没有宪法赋予权力。
+6.7100万民意已被唤醒。
+7.形势会转向川普总统。
+8.如果1月20之前确定不下来则由彭斯代理总统。
+9.参众两院可以自行选择谁成为总统。
 
 文宣图：
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11033940/1-43.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11034531/2-58.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11034942/3-45.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11034930/4-21.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11035459/5-19.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11035506/6-20.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11035803/7-13.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11035806/8-12.png)
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11073142/1-45.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11074443/2-66.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11073353/3-49.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11073340/4-25.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11074002/5-23.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11075708/6-26.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11075730/7-15.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11075733/8-14.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11075728/9-10.png)
 0

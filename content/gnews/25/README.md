@@ -1,34 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 活动人士呼吁在11月14日举行「MAGA（让美国再次伟大）百万人大集会
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/546860/)
+## 美军陆战队精锐公开赴台训练国军两栖作战
+` VOH欧洲战友团` [轉載自GNews](https://gnews.org/zh-hans/547470/)
 
-翻译：康州农场-Mike li
+撰稿: BoLu文龍 校对: G吉
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11061832/g51-1.jpg)图片: 阿喵
+11月9日, 台湾海军司令部公布一则消息，应台湾军方邀请，一支美国海军陆战队精锐力量近日抵台，将在国军相关部队开展为期4周的两栖作战科目培训。这是自1979年以来台湾方面首次在公开场合承认美军与国军的军事协作。
 
-校对：康州农场-V
+据该消息称,这支美军海军陆战队精锐将在位于高雄县曹营的海军基地，指导和培训国军进行突击艇和快艇两栖渗透攻击等科目演练。台湾海军司令部表示，这是台湾与美国开展的日常军事交流合作活动，旨在通过与美国海军陆战队的交流，提高国军专项作战能力,旨在“维护地区和平与稳定.”
 
-审核：康州农场-Turemanman
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11020751/%E5%9B%BE%E7%89%876-6.png)
-*美国总统唐纳德-川普（Donald Trump）在参加 “让美国再次伟大 “竞选集会时，向人群抛出一顶帽子。(图片：Drew Angerer/Getty Images)*
-川普总统的支持者呼吁所有美国爱国者加入即将于本周二在华盛顿举行的集会， 几个保守派团体宣布将于本周六在首都举行示威活动。
-
-
-
-> See you all this Saturday at the Freedom Plaza at noon. 
-> 
-> This election is not over until every legal vote is counted & audited. [#StopTheSteal](https://twitter.com/hashtag/StopTheSteal?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/ukfdyHPPpA](https://t.co/ukfdyHPPpA)
-> — #ThePersistence (@ScottPresler) [November 11, 2020](https://twitter.com/ScottPresler/status/1326345137694367749?ref_src=twsrc%5Etfw)
+值得注意的是，虽然美军每年都派遣精锐部队秘密赴台开展训练指导, 但这次是通过台湾海军司令部公布这一消息,并确认现役美军进入台湾训练国军。这也标志着自1979年台湾与美国在法理上”停止外交关系” 以来，美国首次公开承认与台湾的军事交流合作。特别是在中美关系持续恶化,美国大选结果未卜,台海局势动荡不安的情况下, 这一具有强烈信号的消息,预示着美军的什么态度?会引发中共怎样的反应?又会给美国大选带来何种潜在的影响?
 
 
 
-本周六中午在自由广场见。
-在每张合法的选票被清点和审计之前，这次选举还没有结束。#StopTheSteal 
-– 2020年11月11日，#坚持不懈（@ScottPresler）。
-第一场活动名为“MAGA百万人游行”，它将把川普总统的支持者聚集起来，大规模展示共和党的力量。
-![]()![](https://d2pggiv3o55wnc.cloudfront.net/oann/wp-content/uploads/2020/11/EmRfkwXXEAIdPYZ-373x183.jpg)
-第二场集会名为 “停止偷窃选举”，旨在揭露和谴责民主党控制下的各州选民舞弊行为。两场活动都将于11月14日中午在华盛顿特区的自由广场开始。
-![]()![](https://d2pggiv3o55wnc.cloudfront.net/oann/wp-content/uploads/2020/11/EmacU9UW4AEwlvn-373x210.jpg)
-原文链接：*[https://www.oann.com/president-trump-calls-million-maga-rally-on-nov-14/](https://www.oann.com/president-trump-calls-million-maga-rally-on-nov-14/)*
+
+
+新闻来源:
+
+[https://www.taiwannews.com.tw/en/news/4049035](https://www.taiwannews.com.tw/en/news/4049035)
 
 0
