@@ -1,61 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 脸书审查了拥有30多万成员的草根组织 &#8220;停止偷窃 &#8220;
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/545357/)
+## 【热点播报】Take down the CCP，就是揭示中共病毒真相和追究生化战罪责！
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/545397/)
 
-*新闻来源：Breitbart《布赖特巴特》；作者：博拉姆-博哈里(ALLUM BOKHARI)；发布时间：2020年11月5日*
+**作者：纽约香草山写作组 Daxia 编辑 Wilson**
 
-*翻译/简评：Victory；校对：Beicy-数学老师；审核：InAHurry；Page：拱卒*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ntUGLp4l0F8nd/images/180d6106-86ce-4f4b-8a69-ae5dd5800d30.jpg?asset_id=10c34e35-dfd4-4e08-b92d-921ddb6bbac9&amp;img_etag=%22ea726f5de3f7e8ad308bb44bd02ff056%22&amp;size=1024)](https://spark.adobe.com/page/ntUGLp4l0F8nd/images/180d6106-86ce-4f4b-8a69-ae5dd5800d30.jpg?asset_id=10c34e35-dfd4-4e08-b92d-921ddb6bbac9&amp;img_etag=%22ea726f5de3f7e8ad308bb44bd02ff056%22&amp;size=1024)
 
-**简评：**
 
-脸书，推特等社交媒体利用230法案漏洞肆无忌惮地作恶。和它们谈自由言论都是天真的想法，法律行动才是唯一解决方案。川普总统已经被审查到不能自由发声，相信他的团队会推进弥补法案漏洞的。
 
-美国大选是一场正邪力量之间的角力。关注爆料革命的战友很早就知道大量的世界主流媒体，包括脸书，推特，谷歌等社交媒体已经站到了邪恶阵营。在本次大选之前，大部分普通美国人是不相信美国自由民主的根基已经处于极度危险之中。而现在邪恶沼泽力量已经展现给更多的美国人。这是对所有美国民众的当头棒喝，该觉醒了。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10160710/image%E4%B8%8D0.jpg)
+全世界到了最危险的时刻，要团结一切可以团结的力量，推翻我们共同的敌人，共产主义Ccp魔头！
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ntUGLp4l0F8nd/images/bf29519d-fab8-4807-8774-293ca8ce03a2.jpg?asset_id=ab19e642-a676-475d-8a01-ee17c679ab4e&amp;img_etag=%22aee140ff983a3f610b87163cf13be22a%22&amp;size=2560)](https://spark.adobe.com/page/ntUGLp4l0F8nd/images/bf29519d-fab8-4807-8774-293ca8ce03a2.jpg?asset_id=ab19e642-a676-475d-8a01-ee17c679ab4e&amp;img_etag=%22aee140ff983a3f610b87163cf13be22a%22&amp;size=1024)盖蒂图片
+中共发动超限生化战至今已近一年，在爆料革命战友众志成城，利用GTV等爆料革命创办的媒体作为宣传武器，对来自郭先生和众多冒着生命危险取得的大量情报，进行了连续的公开报道，尤其是在美国大选日到来前13天的台风式的爆料风暴，把拜登家族等美奸的伪面具全部揭下，为美国政府反犯罪、反恐部门打击中共及其同盟提供了有力的证据和线索，更为重要的是，因此美国的选民掌握了大量中共和拜登团伙勾兑的罪证及搞死美国的企图，唤醒了美国民众。
+中共在窃取政权后的70多年里，就一直在破坏中国的自然生态和传统文化，对中国人民的财富明抢暗偷，中国人民赖以生存的生存资源被破坏和掠夺，这种极端反人类方式的治理，造成的失败和政治高压已经无形中把中国变成一个威力巨大的火药桶，它们知道一旦网络防火墙被打开，当中国人民普遍知道一直活在中共的谎言之下时，这个火药桶随时会被点燃和爆炸，所以中共自2005年国防部长迟洁田开始就把病毒计划具体化，作随时对西方国家进行生化攻击的准备。中共当时目的就是要转移国内矛盾，向外争夺“生存空间”，用病毒袭击美国，扫清以美国为首的外部“敌人”，到了更加邪恶的习近平上台时，中共变本加厉，不但要搞死美国，还要向全世界输出被历史多次验证是极端邪恶和残暴的共产主义。
+我们秉持“唯真不破”推理一下，为什么极权中共把重心放在完全有可能毁灭文明甚至人类的病毒研究，甚至悍然发动生化战呢？而民主西方却研制出把误伤无辜降到最低的精准斩首无人机呢？答案无疑是：由恶和善两个戴然不同的力量向完全相反的方向推动，必定产生不同的结果。班农先生说，“邪恶”之所以得逞，是因为正直的人无所事事。当今，我们竭尽所能、勇敢地揭露中共病毒真相，就是为了日后彻底清算中共及中共放毒的罪责。
+因此，爆料革命战友充分利用我们的媒体平台GTV、GNews和路德社宣传中共病毒真相，尽可能团结坚持正义的媒体，共亨新闻资源甚至情报，在匡扶正义消灭中共的同时，和我们的中国同胞、世界人民共建太平盛世，同享文明成果。
 
-**脸书已经对 “[停止偷窃](https://stopthesteal.us/) “网页进行了审查，这是一个由川普选民创建的迅速发展的脸书页面，他们在投票地点组织现场集会，要求计票过程的公正性。**
+审核：悟空
 
-随着选民对关键摇摆州投票地点违规活动的担忧升级，该网页最近刚创建，并在24小时内迅速增长到30多万名会员。“[停止偷窃](https://stopthesteal.us/)”也在通过自己的网站进行组织(活动)。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ntUGLp4l0F8nd/images/0667673e-bfa3-48ec-b2b3-24a7db58853e.jpg?asset_id=d3f92e6b-5d4a-4fea-af4a-60d487362a27&amp;img_etag=%222e4711c66179fb79db60dca436f6d328%22&amp;size=1024)](https://spark.adobe.com/page/ntUGLp4l0F8nd/images/0667673e-bfa3-48ec-b2b3-24a7db58853e.jpg?asset_id=d3f92e6b-5d4a-4fea-af4a-60d487362a27&amp;img_etag=%222e4711c66179fb79db60dca436f6d328%22&amp;size=1024)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-10月，脸书创始人马克-扎克伯格向奥巴马前竞选经理大卫-普鲁夫(David Plouffe)组织的 “安全选举 “项目捐款超过1亿美元。
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，纽约时间周日至周四晚上8:00，美国志愿者在纽约香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-但现在，普通的共和党选民似乎不被允许利用脸书的平台组织起来捍卫选举的公正性。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
 
-主流媒体刊登了多篇关于 “停止偷窃 “的文章，(这些文章)攻击”停止偷窃 “成员是 “错误信息 “的传播者，并批评脸书没有足够及时地对该页面进行审查。
 
-一位记者甚至离奇地声称，允许共和党选民利用脸书组织集会以捍卫公平选举，某种程度上会导致暴力。
 
-“在遏制与选举相关的虚假信息和暴力言论方面，脸书又一次做得绝对糟糕，”滚石记者EJ迪克森(EJ Dickson)在推特上说。
 
-“脸书被动而非主动的历史，很可能让此平台手上沾满鲜血。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/ntUGLp4l0F8nd/images/964ee7d9-a374-4610-8fb9-befc884f2b39.jpg?asset_id=26c9e314-7413-4aa2-b96f-424469736062&amp;img_etag=%22628d84d5c825c9352545033ef67ac257%22&amp;size=3013)](https://spark.adobe.com/page/ntUGLp4l0F8nd/images/964ee7d9-a374-4610-8fb9-befc884f2b39.jpg?asset_id=26c9e314-7413-4aa2-b96f-424469736062&amp;img_etag=%22628d84d5c825c9352545033ef67ac257%22&amp;size=1024)
-
-位于英国的非政府组织 “反数字仇恨中心”向社交媒体公司们施压，要求其对保守派进行审查，该中心也要求脸书下架该页面。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/ntUGLp4l0F8nd/images/d139ab34-d2a6-4535-90a6-f3396fe08c9a.jpg?asset_id=7d72b57c-945d-4a84-ab33-617fe0ee17b3&amp;img_etag=%22f7c16ce43d5d18d8e7611b31e52c3c59%22&amp;size=3037)](https://spark.adobe.com/page/ntUGLp4l0F8nd/images/d139ab34-d2a6-4535-90a6-f3396fe08c9a.jpg?asset_id=7d72b57c-945d-4a84-ab33-617fe0ee17b3&amp;img_etag=%22f7c16ce43d5d18d8e7611b31e52c3c59%22&amp;size=1024)
-
-脸书发言人在给媒体的评论中指责该组织试图将选举过程 “非法化”，并称该组织的一些成员 “号召使用暴力”，但没有给出任何解释为什么该页面要为这些人的帖子集体负责。
-
-“根据我们在这一紧张局势加剧时期采取的特殊措施，我们已经删除了正在制造现实事件的’停止偷窃’团体。”这位脸书发言人说。
-
-“这个团体是围绕着选举进程的非法化而组织起来的，我们看到该团体的一些成员发出了令人担忧的暴力呼吁。”
-
-[原文链接](https://www.breitbart.com/tech/2020/11/05/facebook-censors-grassroots-stop-the-steal-group-with-300000-members/)
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/ntUGLp4l0F8nd/)】-点击spark adobe版
-
-[!\[\]()!\[\](https://spark.adobe.com/page/ntUGLp4l0F8nd/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/ntUGLp4l0F8nd/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

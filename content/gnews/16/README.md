@@ -1,9 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/9/2020 要闻同传:福克斯玛丽亚采访川普竞选团队JASON MILLER
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/545766/)
+## 2020年11月10日中共病毒疫情要闻快报
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/545866/)
 
-#### **By: 【秘密翻译组G-Translators】**
+**重点内容：**
+
+- 美国辉瑞疫苗测试90%有效，提振股市；
+- 川普总统：全面启动诉讼迎战大选舞弊；
+- 美国选民愤怒喊出『北京拜登』！
+- 文贵先生揭晓为何中共未向拜登道贺；
+- 天津与上海浦东再曝中共病毒。
+
+
+
+
+#### **By：【秘翻组-上天造灭疫组】**
 
 0
