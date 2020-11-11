@@ -1,31 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 『热点播报』河北大午农牧集团孙大午午夜凌晨被抓，被涉嫌寻衅滋事、破坏生产经营罪
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/545995/)
+## 突发：【英喜庄园/战鹰团】文宣作品惊现网易
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/546144/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
+简评/编辑：Julia Win；图片：Charles S；
 
+**简评：**
 
+今天，美东11月10日，晚间10点左右，有战友发现，【英喜庄园/战鹰团】文宣作品惊现网易！
 
+中共国的《网易视频频道》，转载了【英喜庄园/战鹰团】关于“内华达州前司法部长亚当·拉沙特的讲话：民主党在90天内单方面从根本上改变了我们投票系统！”在YouTube上的文宣作品。网易题为：《突发：内华达州前司法部长揭露，民主党私自改变投票系统》。
 
+这在管控言论的中共国、在新闻审查严格的墙内、在美国大选尚未尘埃落定的今天、在乔·拜登选票欺诈屡屡被揭露、川普总統所代表的正义力量反攻之际，竟现如此现象！
 
+这是中共要与拜登切割、为自己洗地？还是中南坑里哪股势力占了上风？抑或是《网易新闻》有我们的战友？我们不得而知，总之，颇有些耐人寻味！
 
+**图1:左图为网易视频频道截图，英喜庄园/战鹰团YouTube频道**
 
-作者：香草山写作组 程万里![]()
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10212529/11111.jpg)
-北京时间2020年11月1日，凌晨1时左右，有大批警察进入河北大午农牧集团的小区，带走包括孙大午在内的集团多名高层负责人。随后河北公安官方微博发布警情通报，称孙大午等人涉嫌寻衅滋事、破坏生产经营等违法犯罪，依法对其采取了刑事强制措施。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10212731/11112.jpg)
-之前2020年8月6日大纪元报道：徐水国营农场在公安庇护下偷拆大午集团建筑，遭大午工人和村民抵制后，公安对抗议的工人大打出手，有人肋骨被打断。大午集团百余人到公安局门口请愿，再有39人被拘。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10212625/11113.jpg)
-私企国有化进程一直在有条不紊的进行，私人企业怎会有能力与中共党国抗衡，连王建、叶简明、马云这样为中共服务的走狗们都要斩立决何况是私企呢？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10223407/1-%E7%BD%91%E6%98%931.png)
 
-审核：浪迹天涯
+**图2:** 左图为《网易视频频道》的【英喜庄园战鹰团】片尾；右图：【英喜庄园/战鹰团】YouTube频道片尾。
 
-更多资讯，欢迎订阅美东香草山农场官方推特账号！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10223646/2-%E7%BD%91%E6%98%93%E6%88%98%E9%B9%B0%E5%9B%A2%E8%A7%86%E9%A2%91%E5%AF%B9%E6%AF%94.png)
 
-更多文稿，欢迎浏览美东香草山GNEWS官方链接！
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上8:00，美国志愿者在美东香草山农场Discord群Richard English版块和 chat-room与您相约！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+编辑：【喜马拉雅战鹰团】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/VxxfUeYQQNCwP/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/VxxfUeYQQNCwP/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
 0

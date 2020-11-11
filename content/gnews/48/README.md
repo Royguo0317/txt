@@ -1,71 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 辉瑞葫芦里卖的什么疫苗？
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/545279/)
+## 总统大选系列（八）：共和党没有失去参众两院席位，也没有失去任何立法院的控制权
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/545520/)
 
-多伦多加喜农场 文锦
-校对 小鸥 上传 WJ
+简评：势不可挡；策划：九宸；文字整理/编辑：Julia Win；Page：拱卒
 
-11月9日，微信朋友圈和许多中共国网站、大外宣媒体上疯传着“辉瑞释放重大疫苗消息，有效率超90%，欧美狂欢“类似的消息，福奇博士也在与记者进行的电话会上表示，辉瑞候选疫苗有效性超过90%，”很出色”。一时间，不少人好似服用了精神伟哥，信心爆棚。
+[!\[\]()!\[\](https://spark.adobe.com/page/gsFc1NTCIisDv/images/c4d78c1f-caca-44d3-8f7a-5f4af8fd74a1.jpg?asset_id=ff73123e-8490-4b52-a97d-bd9181deb216&amp;img_etag=%2237b14dda0e5261579a9c7707ccd41e9c%22&amp;size=1024)](https://spark.adobe.com/page/gsFc1NTCIisDv/images/c4d78c1f-caca-44d3-8f7a-5f4af8fd74a1.jpg?asset_id=ff73123e-8490-4b52-a97d-bd9181deb216&amp;img_etag=%2237b14dda0e5261579a9c7707ccd41e9c%22&amp;size=1024)
 
-可是，事实真如这些新闻所说吗？
+**简评：**
 
-**让我们跟着钱走，一窥制药巨头辉瑞**。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10150147/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE640.png)图片来源：Reuters
-辉瑞（Pfizer）公司是美国跨国制药公司，全球最大的制药公司之一，按总收入计算，它在2018年《财富》美国500强公司中排名第57位。辉瑞拥有立普妥、络活喜、左洛复、万艾可等众多产品。辉瑞是在华最大的外资制药企业，在中共国有一万多名员工，业务覆盖全国250余个城市。11月10日早间路德访谈提到，大魔头裴伟士（Malik）等人是辉瑞的顾问。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10150722/Screen-Shot-2020-10-10-at-6.03.23-pm-768x534-1.png)图片来源：[https://www.abc.es/](https://www.abc.es/ciencia/abci-diez-cientificos-asiaticos-pueden-cambiar-mundo-201806280138_noticia.html)
-辉瑞最大的投资者是共同基金。以下为公司截至2018年10月29日的四大机构股东：先锋总股市指数基金（Vanguard Total Stock Market Index Fund ），先锋500指数基金（Vanguard 500 Index Fund)、标准普尔500指数（SPDR S&P 500 ETF）、先锋机构指数基金（Vanguard Institutional Index Fund )
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10152259/unnamed-1.jpg)图片来源：ft.com
-辉瑞股票的前四大共同基金持有人拥有该公司近7％的股份。先锋总股票市场指数是辉瑞股票的最大共同基金持有者，占2.8％。 辉瑞公司的四大主要共同基金持有人都公布了三年年化收益率达到或超过12％的收益。贝莱德（黑岩）公司（BlackRock Inc.）披露拥有辉瑞7.7%的股份（2020年2月5日）。
+11月9日周一，美国众议员少数党领袖凯文·麦卡锡（Kevin McCarthy）在FOXNEWS接受了Maria的采访。Maria提到共和党至少赢得了四百万新选民，而川普总统获得的非白人选票比60年中的任何共和党候选人都要多。麦卡锡表示美国总统大选需要确保计数每一张合法的选票，完成每一次重新计票，听取每一个法律挑战，只有这样做之后，美国才能决定谁赢得了最终的选举。他明确指出，民调不可信，共和党并没有失去参众两院的任何一个席位，也没有失去任何立法院的控制权，事实上，共和党获得了三个新的控制立法小组。
 
-11月9日放出疫苗问世的消息使得标普500指数和道指双双刷新纪录高位，辉瑞股价跳涨逾11%，创去年7月以来最高，其德国合作伙伴BioNTech股价触及纪录高位。这款疫苗暂定名“复必泰”，其中共国合作方复星医药（负责此款疫苗在中共国及港澳台地区的独家开发、注册、商业化）11月10日早盘一字涨停，成交额2.01亿元。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10151202/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE642.png)图片来源：Google![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10151259/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE644.png)图片来源：Google
-**利好消息满天飞，这款疫苗效果如何呢？**
+Maria在采访中提到众议院现任议长南希·佩洛西（Nancy Pelosi）已致函议员，要求他们的支持，希望连任。麦卡锡指出，只有到一月份才能知道选举结果，因为要成为议长，候选人必须在众议院获得218票。两年前，当佩洛西参选时，有15名民主党人投票反对了她。他还提到，川普总统已经成功做了很多事情，扩大了共和党，为共和党带来了多样性，也增加了共和党的力量，这等于为美国带来了力量。最后，麦卡锡表示，共和党人尽早成为议长对美国来说会更好。
 
-辉瑞CEO Albert Bourla在一份声明中说”还需要更多的安全性数据，我们正在继续积累这些安全性数据，作为我们正在进行的临床研究的一部分。”而且，这款疫苗的研究数据本身完整性，后期量产和运输冷藏等环节中都存在不确定因素。最重要的是，连中共病毒源头都没研究清楚，何来有效的疫苗？
+## 众议员少数党领袖Kevin McCarthy在FOXNEWS接受Maria的采访
 
-郭文贵先生在11月10日简短的直播中重申：疫苗不管用！这是整个黑暗势力的控制。千万别染上病，千万不要相信这个疫苗！
 
-**辉瑞的此番运作至少一石二鸟。**
 
-辉瑞选择在乔·拜登过渡团队公布将在其过渡期任职中共病毒咨询委员会人员名单的同一天发布此消息。这难道是巧合吗？辉瑞公司作为美国政界最大的游说利益集团之一，是美国全球领导力联盟（U.S. Global Leadership Coalition，简称USGLC）的主要成员，该联盟与亨特·拜登任董事会主席的美国世界粮食计划署（World Food Program USA）有关联。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10150513/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE647.png)图片来源：USGLC![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10150317/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE645.png)图片来源：美国世界粮食计划署
-在《纽约时报》最新一篇报道中，辉瑞方面负责疫苗研发的高级副总裁凯瑟琳·詹森（Dr. Kathrin Jansen）表示，辉瑞研发出的这款疫苗与川普政府没有关系，辉瑞没有在研发疫苗的过程中拿过川普政府的任何资助。
+**Maria：**欢迎回到节目，早期数字显示共和党获得2020年国会选举的重大胜利，共和党至少赢得了四百万新选民，而川普总统获得的非白人选票比60年中的任何共和党候选人都要多。众议院共和党人还期望获得超过13个新席位，这些新胜利是属于妇女、退伍军人和少数民族。
 
-詹森还对该报表示，虽然在今年7月川普政府曾经找过辉瑞，并提出要出资19.5亿美元预购该公司的1亿剂新冠疫苗，然后再免费发放给美国人，但她因为不想卷入川普的政治之中，便没有像其他美国药厂那样参与这个项目，辉瑞疫苗的研发因此没有任何川普政府的资金参与其中。“我们从来不是‘超高速项目’计划的一份子”，詹森对《纽约时报》说，“我们从来没有从美国政府那里拿到过任何钱”。
+众议员少数党领袖凯文·麦卡锡（Kevin McCarthy）现在就加入我们的节目。
 
-但她说的并不是事实。该公司有一项重要协议，即向联邦政府出售至少1亿剂疫苗，辉瑞公司在周一向CNN发表的声明中承认，它实际上是通过这项协议 “参与 ““超高速项目”的。
+早上好，很高兴见到你，议员，非常感谢你的到来。今天早上，我们听到另一个胜利。加州第50区的达雷(Darrell Issa)在为我们评估这个情况之前，也许你可就明天将提起主动上诉及法律诉讼的鲁迪·朱利安尼这事，发表评论。
 
-好吧，至此大家应该已经能看出，辉瑞在此时发布此消息，不仅是给拜登站队，还要打击川普总统政府及他的竞选团队，继续给指责川普政府抗击中共病毒无力的一方增添实据。但罔顾事实的言论都将是站不住脚的。
+**Kevin McCarthy：**在总统大选，我们需要确保计数每一张合法的选票，完成每一次重新计票，听取每一个法律挑战，只有这样做之后，美国才能决定谁赢得了选举。玛利亚，请记住：我们只差不到2万1千票就可赢得众议院多数。仍少十个席位。共和党领先其中三个席位，他们还没宣布任何结果呢? 那么，为什么要先宣布总统大选的结果呢？请记住宪法框架流程，在大选前的星期日，我曾在你的节目上提过的。他们在众议院预测，共和党将失去15至20个席位。每个民调都说议长佩洛西（佩洛西）和坦尼·霍尔（Steny Hoyer）。他们还说我们会输掉这个，也会失去参议院。发生了什么？我们没有失去任何一个席位。
 
-辉瑞制药的第一大股东先锋基金，第二大股东贝莱德（黑岩）基金，以及其它大股东，如北信、德意志银行、高盛等的背后全是中共控股。以中共一贯的套路，放出所谓的“利好“消息其实又是一场利用疫苗炒作的金融骗局。一茬茬韭菜又要在自我感觉良好中被割去。利用病毒疫情这个关乎人类生死的大事件，又通过疫苗来割全世界普通民众的韭菜，这是中共与这些大制药公司、金融大佬、政商医疗等各界联合行动布下的一个大局。
+我们希望获得每个席位，仍有一席空缺。我们赢得了29个席位中的28个，引发内特·希尔弗（内特·银）所计划的。我们只差2万1千张的选票就可完成。我们没有失去参议院。我们没有失去任何立法院的控制权。实际上，共和党获得了三个新的控制立法小组，而且我们获得了现代史上最有竞争力的总统选举。这就是为什么应该计算每一次投票，每一次重新计票，应该听到每一个向法律挑战的原因，因为仍需在这些国会席位上持续计票直到结果出来。我认为我们实际上也应该为美国总统做这件事。
 
-笔者有位故交寒窗苦读十几年，当年入职辉瑞时，众人听到这个感觉高大上的外资药企，都羡慕不已，家长也扬眉吐气。后来他工作、供房、养娃，精神紧张、压力大，许久没有消息。再看此时，他正在朋友圈兴奋地转发这条辉瑞疫苗的消息，想想昔日共处的点滴，与此时我们接收信息的不对称，着实令人唏嘘不已。
+**Maria：**好的，我认为你提出了一个很好的观点，尤其是在媒体让我们失望之后。之前有很多“兔子洞”，比如通俄门，干涉司法，无罪可循的弹劾门及随后的民主蓝色浪潮和现在的（选举诈欺）。
 
-*参考链接：*
-[华尔街利益集团仍对中国市场垂涎欲滴](https://gnews.org/zh-hans/441394/)-Gnews
+让我问一下你有关南希·佩洛西的事情。她已致函议员，要求他们的支持。她希望再次当选众议院议长。这对你意味着什么？在你看来，她会不会连任议长？
 
-[中共又高潮-辉瑞公司疫苗出现副反应](https://gnews.org/zh-hans/366368/)-Gnews
+**Kevin McCarthy：**只有到一月份才能知道结果，因为要成为议长，你必须在众议院获得218票。 两年前，当她参加参选时，有15名民主党人投票反对了她。这些民主党人中有十个被选进国会了。那10个人会再次投票反对。她不会成为众议院的议长，由于这次共和党获得更多的席位，她不会获得218票。现在我们(两党)已经相当接近，加上几位民主党人一起，我们可控制众议院。记住美国人的声音，他们拒绝了社会主义。从迈阿密到纽约，从明尼苏达州到加利福尼亚，我们都赢了。我们在国会中有更多共和党女性获胜，女性人数将是国会史上最多数的。让我们说说川普总统已经成功做到的事情，他扩大了共和和党，为共和党带来了多样性也增加了力量，这等于为美国带来了力量。共和党现在也是多样性了。
 
-[大魔头Malik裴伟士](https://gnews.org/zh-hans/414775/)-Gnews
+**Maria：**这是个好消息。佩洛西在执政方面是否面临极端左派？也许你两年后再成为议长会更好，如果她可连任的话。请告诉我（民主党）党内发生的斗争情况。
 
-[11/10/2020 路德时评（路安墨谈）](https://www.youtube.com/watch?v=MQAGrVv_Cmo)
+**Kevin McCarthy: **我认为共和党人尽早成为议长对美国来说会更好，但是她有内部的支持，因为她向议员保证会赢得足够的席位，这样他们将在这次和下次中保持多个席位。现在，天不从人愿。 他们只击败一个共和党人，现在在他们自己的电话会议中，他们都在互相大喊大叫，不管他们是否称自己为社会主义者。再想想谁输了，卫生局前局长自已就是一个食古不变的人，再看看，我们打败了现任委员会主席。
 
-[Pfizer -Wikipedia](https://en.wikipedia.org/wiki/Pfizer)
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/gsFc1NTCIisDv/)】-点击spark adobe版
 
-[Top 4 Mutual Fund Holders of Pfizer](https://www.investopedia.com/articles/company-insights/082316/top-10-shareholders-pfizer-pfe.asp?utm_campaign=quote-yahoo&amp;utm_source=yahoo&amp;utm_medium=referral&amp;yptr=yahoo)
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-[BlackRock Inc. discloses 7.70% ownership in PFE / Pfizer, Inc.](https://fintel.io/so/us/pfe/blackrock)
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-[综述：抗疫之战取得重大胜利 辉瑞宣布新冠疫苗有效性超90%](https://www.reuters.com/article/pfizer-1109-mon-idCNKBS27Q026)
-
-[复星医药一字涨停 辉瑞宣布BNT162b2疫苗有效性高达90%](https://finance.sina.com.cn/stock/gujiayidong/2020-11-10/doc-iiznezxs0982928.shtml)
-
-[U.S. GLOBAL EADERSHIP COALITION](https://www.usglc.org/about-us/coalition-members/)
-
-[Pfizer’s Early Data Shows Vaccine Is More Than 90% Effective](https://www.nytimes.com/2020/11/09/health/covid-vaccine-pfizer.html)
-
-[Fact-checking the battle for credit over Pfizer’s vaccine announcement](https://www.cnn.com/2020/11/10/politics/fact-check-pfizer-warp-speed-pence/index.html)
+[!\[\]()!\[\](https://spark.adobe.com/page/gsFc1NTCIisDv/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/gsFc1NTCIisDv/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0
