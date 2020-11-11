@@ -1,9 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 同声传译: 班农战斗室美东11/10/2020 晚间节目
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/545953/)
+## 2020年11月10日CCP冠状病毒大流行第290集
+` GM30` [轉載自GNews](https://gnews.org/zh-hans/545987/)
 
-#### **By: 【秘密翻译组G-Translators】**
+A股又炸雷，580亿光伏龙头董事长“出事”；中共外汇储备减少965亿；美台军事因疫情中断首次恢复；天津疫情爆发，进入战时状态……
+
+
 
 0
