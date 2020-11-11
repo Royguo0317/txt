@@ -1,43 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】港台编导蔡玉玲被控两项虚假陈述　准保释押后再讯【跟踪报导】
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/547601/)
+## 【突发】【独家】：选举之夜数据分析显示，Dominion机票系统作弊，偷走或删除掉川普的选票多达几百万
+` The voice of San Francisco` [轉載自GNews](https://gnews.org/zh-hans/547848/)
 
-搜集：卡西欧 文粤
+**【作者】Joe Hoft 来自11月10日的theGatewayPundit**
 
-编撰：恩典
+**【编辑翻译】：**Summer 喜马拉雅金喜农场
 
-覆核：文粤
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11074504/124071683_10164170635975265_468060957019038874_o_L1jY9_1200x0.png)
-有份参与《铿锵集》元朗 7.21 专题制作的香港电台编导蔡玉玲，上周遭警方上门拘捕，指控她申请车牌查册时涉虚假陈述。蔡被控 2 项「明知而作出在要项上虚假的陈述」罪，违反《道路交通条例》第 111 条第 3 (a) 条，今（10 日）在粉岭裁判法院应讯。案件按控方要求押后至明年 1 月 14 日再讯，以让警方完成调查，期间蔡获准继续保释。
+2020年大选以来，我们已经报道了数不清的媒体口中所谓的系统“小故障”。
 
-37 岁蔡玉玲被控2 项明知而作出在要项上虚假的陈述罪，控罪指，蔡分别于2020 年5 月17 日及6 月10 日在香港，为着取得私家车LV 755 的车辆登记细节证明书（「证明书」），明知而作出在要项上虚假的陈述，即表示申请证明书以作以下与交通及运输事宜有关的用途，即进行法律程序和买卖车辆以外的其他有关交通及运输事宜。
+昨晚，我们报道了威斯康星州的洛克县的一个所谓的系统“小故障”。证据表明，洛克县的似乎在川普和拜登之间的投票总数看起来被呼唤了。 川普总统被拿走了9,516票，给了拜登。 这样19,032票的区别，抹平了拜登在威斯康星州的领先优势。
 
-控方要求押后待警方完成调查
+在昨天的帖子中，我们还发现在密歇根州，宾夕法尼亚州和乔治亚州也出现过类似“故障”问题。
 
-蔡今日毋须答辩，案件按控方要求，押后至明年1 月14 日再讯，以让警方完成调查，包括向运输署索取输入资料、查册时使用的电子认证及向律政司索取法律意见。辩方有保释申请，控方不反对。主任裁判官苏文隆批准蔡以原有现金 1,000 元保释。
+今天我们得到的一份未经审计的数据分析表明，在所能找到的50州的数据中，寻找只跟总统角逐相关的系统故障和其他异常情况。
 
-案件涉及今年 7 月播出、讲述去年 7.21 元朗袭击事件的《铿锵集》节目《谁主真相》。节目中，记者在镜头前进行网上车辆查册，查找闭路电视拍摄到去年 7.21 当晚曾接载白衣人车辆的车牌，查出车主身份，并找车主访问。
+在这个网站上（https://thedonald.win/p/11Q8O2wesk/happening-calling-every-pede-to-/），一个网名叫蜈蚣（PEDE）的人看到了the GatewayPundit的帖子后决定自己进行分析。
 
-根据《道路交通条例》，第111 条第3 (a) 条属于文件伪造罪行，任何人为着取得该条例下的任何驾驶执照、车辆牌照、许可证、证明书、证书或其他文件，明知而作出在要项上虚假的陈述，即属犯罪，可处罚款5,000元及监禁6 个月。
+作者说他列举的是从川普换成拜登的选票，以及是Dominion（全美国许多州使用的投票机）删除掉的选票。他特别提醒我们：这里的数据并没有考虑那以十万计的被销毁，燃烧和撕碎的的选票，和那成千上万的只标注了拜登的作假选票。作者声称他的工作已经过验证，但我们尚未验证结果，因此我们目前将他的结果称为“未经审计”。
 
-战友点评：
+作者获得的数据是在选举之夜被《纽约时报》拿到后来被传播的数据。通过检查数据，作者找到了一处选票从川普改为拜登的实例，因此他决定对整个数据集进行分析，首先是使用了Dominion投票机的州。作者声称，这些数据来自Edison Research，并且至少被ABC新闻，CBS新闻，CNN和NBC新闻使用来报道选举。它也用于纽约时报的网站，可能还用于其他网站。
 
-中共香港奴才们以运输署的查询汽车登记号码表格「虚假声明」的名义，如此的大事铺张，以国际犯罪规格『抓捕』有份参与《铿锵集》元朗7.21 专题制作的香港电台编导蔡玉玲。
+各州的数据（未审计）如下：
+![](https://lh5.googleusercontent.com/wFaHlDWl3-wXc7xPOmXK2_ke12NlAX1FvNQnOHGsuCkALd_DXbCLjQCLKrvRMWFX_Zyrk1g8x7v5jESuk5EQdvTsn8y-1A7eeIM8XJzQld3sVMbPx5p6sQZDzzW5glyAVIWMK6Y)![](https://lh4.googleusercontent.com/4IXafR0LEuunNsyMrxqToNpuBABqqRsgzDE9BDUbM67iq42Vorim28D4NnkTGjgAcZYpKcIGWHj76Nu2H7Mhc2n0NatsMjdaKV3I4MdzfrwkbtdprjNjfl6qKrbz1uKtzT07iWg)
+据此初步分析，可以确定了超过50万张选票，已从川普总统转给了乔·拜登。除此之外，还删除了2,865,757票。请注意，这些数字我们并没有审核。
 
-虽然案件按控方要求押后至明年 1 月 14 日再讯，以让警方完成调查，期间蔡获准继续保释。
+在这些州，我们还没有在县级的选举做类似的分析，其也可能会影响全国的投票总数。还有更多工作要做。但是很明显，投票机和应用程序都产生了一些非常可疑的交易，需要进一步审查。
 
-我们看看运输署的查询汽车登记号码表格有什么陷阱，栏目上只有「买卖车辆」、「进行与运输相关法律程序」、「有关交通及运输的事宜」填写，没有「传媒采访」或「其他」的选项填写。
+我们很明确2020年选举中存在大量的欺诈行为。
 
-一目了然今天港奸政府为了完成中共主子的任务，不顾一切的将香港推向死亡之路，这张表格很明显就是一个陷阱，如果按照香港公安条例谁都是罪人。
+没什么人粉乔·拜登，没什么人挺他，但他的投票数超过了川普总统带领的的美国历史上最伟大的竞选活动。我们还要相信乔·拜登击败了川普总统的同时，却失去了美国众议院和州议会的席位。极为不可能。
 
-而且党报《大公报》8月有调查过汽车登记册，与蔡玉玲的方法完全一样，但是一个为真相良知报导的记者，反而被抓捕，而一个为党服务的喉舌反而香港政府保护起来，就有如此的天渊之别，这就是活生生的发生在所谓与世界接轨的今天香港。
+看起来民主党人竭尽所能企图窃取这次选举。
 
-以上观点仅代表笔者本人
+问题是，他们没想到川普总统的竞选活动创纪录的成功，没想到他们被抓住了。
 
-新闻来源：立场新闻
+更多内幕还在继续。
 
-[https://www.thestandnews.com/court/%E6%9F%A5%E8%BB%8A%E7%89%8C%E8%A3%BD%E4%BD%9C-%E9%8F%97%E9%8F%98%E9%9B%86-7-21-%E5%B0%88%E9%A1%8C-%E6%B8%AF%E5%8F%B0%E7%B7%A8%E5%B0%8E%E8%94%A1%E7%8E%89%E7%8E%B2%E8%A2%AB%E6%8E%A7%E5%85%A9%E9%A0%85%E8%99%9B%E5%81%87%E9%99%B3%E8%BF%B0-%E5%87%86%E4%BF%9D%E9%87%8B%E6%8A%BC%E5%BE%8C%E5%86%8D%E8%A8%8A/](https://www.thestandnews.com/court/%E6%9F%A5%E8%BB%8A%E7%89%8C%E8%A3%BD%E4%BD%9C-%E9%8F%97%E9%8F%98%E9%9B%86-7-21-%E5%B0%88%E9%A1%8C-%E6%B8%AF%E5%8F%B0%E7%B7%A8%E5%B0%8E%E8%94%A1%E7%8E%89%E7%8E%B2%E8%A2%AB%E6%8E%A7%E5%85%A9%E9%A0%85%E8%99%9B%E5%81%87%E9%99%B3%E8%BF%B0-%E5%87%86%E4%BF%9D%E9%87%8B%E6%8A%BC%E5%BE%8C%E5%86%8D%E8%A8%8A/)
+**关于投票机：**
+
+2020大选中摇摆州使用的投票机叫Dominion，据报道称是丹佛的公司，是占美国市场88%的三家公司之一。南希·佩洛西（Nancy Pelosi）的前参谋长Nadeam Elshami是该公司（雇用的游说公司）的主要高管。 Feinstein参议员的丈夫Richard Blum是该公司的重要股东。
+
+Dominion Voting Systems首席执行官John Poulos确认Dominion制造的机器包括中国制造的部件，并指出使用外国供应商的问题并非投票设备行业独有。
+
+2014年，Dominion在《华盛顿邮报》表中列出，向克林顿基金会捐赠了$ 25,001- $ 50,000。
+![](https://lh3.googleusercontent.com/iOnRSGxgst_aVfMGXZQN8ujS-YU-nRXa_-ojsM_oqULNuVkbZbeFMYgCgYBof5B2FDk4ydky3wNLJ_sl-wNdGozXoCFEcDLBcrsBopMPlgSkJA0iQdlqM_irpUKoSxkmiVxtCak)制造Dominion 投票机的丹佛公司，是占美国市场88%的三家公司之一。 
+Feinstein参议员的丈夫Richard Blum是该公司的重要股东
+
+参考：
+
+11月9日: [https://www.thegatewaypundit.com/2020/11/breaking-exclusive-analysis-election-night-data-states-shows-millions-votes-either-switched-president-trump-biden-lost/](https://www.thegatewaypundit.com/2020/11/breaking-exclusive-analysis-election-night-data-states-shows-millions-votes-either-switched-president-trump-biden-lost/)
+
+11月10日: [https://www.thegatewaypundit.com/2020/11/breaking-exclusive-system-glitch-also-uncovered-wisconsin-reversal-19032-votes-removes-lead-joe-biden/](https://www.thegatewaypundit.com/2020/11/breaking-exclusive-system-glitch-also-uncovered-wisconsin-reversal-19032-votes-removes-lead-joe-biden/)
+
+投票机：[https://www.thegatewaypundit.com/2020/11/dominion-voting-machines-center-material-data-manipulation-concerns-2020-election-reasons/](https://www.thegatewaypundit.com/2020/11/dominion-voting-machines-center-material-data-manipulation-concerns-2020-election-reasons/)
+
+投票机：https://www.worldtribune.com/dominion-voting-systems-tied-to-clintons-widely-used-in-battleground-states/
 
 0
