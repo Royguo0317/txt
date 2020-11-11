@@ -1,39 +1,83 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 醒 醒 吧! 美 国
-` The voice of San Francisco` [轉載自GNews](https://gnews.org/zh-hans/546188/)
+## 总检察长威廉·巴尔授权司法部调查投票违规行为
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/546647/)
 
-作者：Jin Wang 翻译：Rosemary，Bingo
+编译：TS2020相聚盘古
 
-11月3日, 美国大选当晚, 东海岸午夜，特朗普在所有战场州都以大幅优势领先。赌注赔率超过了75%，特朗普获胜。掀起一片共和党的红浪（Red Waves），覆盖了民主党的蓝潮。一切进展顺利。突然，出于某种难以解释的原因，威斯康星州、密歇根州、宾夕法尼亚州、北卡罗来纳州和内华达州都同时停止了计票……一致地… 一切 “暂停 “了。从凌晨1点左右之后的3个小时里，这些州没有一个州计算了任何额外选票。那么，在这3个小时，他们做了什么？
+2020年11月9日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09211419/IMG-8572.jpg)
+司法部长威廉·巴尔在周一发布的备忘录中，授权司法部（DOJ）调查2020年总统大选的投票违规行为。
 
-在东海岸的选票结果还未最终确定时，亚利桑那州就过早地被宣布为“蓝州“。福克斯新闻（Fox News）的评论员多次质疑（刚接到的）这通 “电话”……鲁珀特-默多克（万能的、不可挑战的媒体沙皇，他擅于将所有新闻两极分化并进行政治操纵）给福克斯新闻的“高层”們鸣了一枪，并扣动了扳机，令他们开始实施一个既定计划，以窃取这次选举。佩洛西是幕后主脑，她在2年前就召集左派激进暴徒，筹划窃取这次大选…… “决不交出 “白宫下一个4年！以种族主义和恐惧为筹码，来分裂这个国家。令米雪尔-奥巴马打出种族牌……枉然辜负了美国人们（We The People) 选举了她的丈夫连任两届美国总统–8年主宰白宫。她情何堪？！
+备忘录已由Barr致函并签署给美国检察官，美国司法部刑事司，民权司，国家安全司助理检察长，以及联邦调查局（FBI）局长克里斯托弗·雷（Christopher Wray）。
 
-让我們看看以下几点事实。
-1. 这五个（兵家必争之地的）摇摆州，都是民主党人担任州长。
-2.在 3 个小时的突然关闭中， 在大多数人已入睡觉的深夜， 所有这些州都找到了足够的选票 （他们不断打印选票 / 切换号码）， 让拜登赶超了川普总统。五个州全都是如此!!!
+备忘录中写道：“现在投票已经结束，当务之急是美国人民可以相信我们的选举以这样的方式进行，即选举结果能准确反映选民的意愿。”
 
-密歇根州的午夜时分：当计票已过八成，川普领先5%后，随后统计的整个县40万张选票几乎100%投给了拜登
+巴尔的备忘录是在39名众议院共和党人周五在一封信中敦促巴尔让美国司法部可用资源调查全国几个主要战场州投票不当行为的指控之后的。特朗普竞选活动在其中一些州提起了许多诉讼。
 
-在密歇根州，午夜时分，80%的选票已经统计完毕。特朗普领先5%，以超过40万张选票的优势领先拜登。接下来，是计算Wayne 韦恩县(底特律)约40万张的选票，这些选票占总选票的10%。然而这40万选票的90%都投给了拜登！ 在10%的选票的计票过程中，拜登突然追上了川普。以总票数的10%一举补上与川普的5%落差！这意味着韦恩县的所有选票（接近100%）都给了拜登。这也意味着，几乎所有的登记选民都在韦恩县投票。有人相信这有可能吗？
-同样的事情发生在威斯康星州的麦迪逊，北卡罗来纳州的罗利，内华达州的拉斯维加斯，周五之前很可能也会发生在宾夕法尼亚州的菲尔。那么，明白了为什么那些民主党的据点城市都要 “暂停 “计票了吗？
+巴尔备忘录（Barr Memo）就投票违规行为向司法部致辩
 
-3. 没有任何一位专业人士质疑，为什么所有这些州同时发生了暂停计票的情况。一个也没有。甚至在福克斯电视台也没有。没有一个人质疑，为什么那些摇摆州的新到选票几乎都投给了拜登。只有NewsMax指出了这 5 个州的州长都是民主党人的巧合。 在 “暂停 “之前，这5州都是川普领先。
+巴尔在备忘录中说，尽管各州负有进行和监督选举的主要责任，但司法部“有义务确保以这种方式进行联邦选举，以使美国人民对其选举过程和对他们的政府充满信心。”
 
-4. 威斯康星州目前确认的投票数是3,239,920票，而登记在册的选民只有3,129,000人。投票的人比实际登记的选民多。当被问到时，民主党国家委员会说,有360万选民是迟到登记的。加上这360万登记选民，就意味着达到了90%的选民投票律。而美国平均投票率是55%至60%。为什么麦迪逊县的选票怎么几乎都投给了拜登？ 而且几乎100%的登记选民，不仅仅是选票？ 是否发生了选票作弊？在其他那些摇摆州（战地州）又发生了什么？
+他补充说，尽管所谓的“多数指控”涉及选举不当行为，其规模如此之大，以至于不会影响选举结果，因此可以推迟进行调查，“并非总是如此。”
 
-5. CNN、FOX、NBC、ABC、CBS在德州和佛罗里达州几乎所有选票统计完毕之前均拒绝宣布川普获胜。然而在亚利桑那州投票结束后仅30分钟，福克斯新闻FOX 就给宣布拜登胜出。当时亚利桑那州刚刚数了不到50%的选票；而且该州共和党的马里科帕县仍有100万张未完成的选票，应属于共和党。拜登仅领先10万张就宣布拜登得胜。 
-如果说在过去 4四年，所有主流媒体均极力妖魔化川普总统，以致关于川普总统的报道有94% 是负面的。然而，在大选夜他们却火力全开地去袒护那些摇摆州的民主党人州长。
+他说，由于投票已经结束，因此对司法部在这种情况下采取的公开行动大大减少的担忧。
 
-大家想想看： 从川普当选的第一天起， 民主党人就开始 “抵制” （resist)， 重新计票， 没有和平的权力交接， 弹骇案， 3 年来关于特朗普与俄罗斯勾结影响 2016 年选举的虚假指控， 穆勒， 科米 / 克拉珀 / 布伦南与 FISA 的请求，和希拉里 支付的斯蒂尔档案， 22名FBI探员因为监视特朗普而失业，暴乱/抢劫/暴力、持续民调被证明是错误的、索罗斯和布隆伯格为拜登提供4亿美元、华尔街4比1向拜登捐款、禁止媒体对拜登夫妇与中国/俄罗斯/乌克兰/布利斯玛的关系做报道，以及随后媒体就昼夜不停的做病毒、病毒、病毒的报道…几乎没有提到特朗普创纪录的经济和国际成果……这超出了任何人最疯狂的想象……
-即使在这重重围困下，川普依然做出了惊人而巨大的成就，超越了历史上 “任何一位” 共和党或民主党总统。川普知道，他从就任第一天起，就走进毒蛇的巢穴…不管怎样， 川普他做到了他承诺为我们做的事。
+他还说，他已经授权司法部对具体情况下的投票和投票制表不当行为提出重大指控。
 
-病毒成为民主党州长启用邮寄选票的最大借口。病毒被用来吓唬选民， 分散选民对川普总统成就的关注度。CCP病毒被用作民主党执政的州关闭经济的理由。现在民主党和媒体不再需要病毒了，让我们看看病毒是怎么来的？事实上，Covid病毒是中共在他们的武汉P4实验室创造出来的，目的是摧毁共和党，窃取总统职位，杀死美国人，然后暗地里继续着他们控制和统治世界的阴谋计划。
-那么，那些由民主党人管治下的”战场州“ （摇摆州）是否使用了激增选票的舞弊或其他类型的选举欺诈？在那些民主党州长在深夜 “暂停” 选举计票结果之后， 选票数量发生了如此巨大的变化？在所有 5 个民主党控制的战场州？ 很明显，媒体、民主党和暗势力（deep state）勾结 四 年来对抗川普， 那么无容疑问，这些民主党州长昨晚（11/3）在计票中是串通一气地作弊了。怎么可能，所有的选举民意调查都错得一无是处？
+“鉴于此，并且鉴于我们当前的选举已经结束，我授权您在某些情况下在您的辖区进行选举之前对大量的投票指控和制表不当行为进行指控，就像我在特定情况下所做的那样，“ 他说。
 
-他们不停地印选票，直到得到了他们需要的数字，将拜登推到270选举人票得门槛之上并宣布胜利。这显然是明目张胆且规模化的选举舞弊。作弊手法五花八门，枚不胜举。在许多投票站里，共和党人监票员不被允许监督选民合法的投票过程，数以万计来自已故选民的选票被计算为合法选票，民主党人预先填写的选票经过机器盖章后也被纳入合法选票来计算；成千上万的假身份证从中国涌入美国，非法外国人的选票被计算，川普的选票被丢弃或篡改，多处投票机”同时”出现软件故障 。而这些投票机是在中国制造的。佩洛西家族则参与投资了这批投票机器。
-CNN启动了一个 “急刹车”……电视画面上，拜登的选票数字瞬间加速，而川普的选票数却闲置了几个小时，下跌并翻盘了领先的红浪。当川普正在轻松赢得大选胜利之时，遍布多个州的投票机里隐藏的软件被悄然启动了（来自中共/佩洛西），瞬时间就改变了选举结果的轨迹，然后他们把这一切归咎于软件故障（神奇的是，所有的故障都是同时发生的）。完全不符合数学逻辑的计算结果，漏洞百出，根本无法凑齐数 !!! 多个州出现最终统计的票数大幅超过了 “合法 “登记选民人数，差额达数十万票。
-算一算…..醒醒吧，美国！
+他说，如果存在明显的，显然可信的违规指控，可能会进行查询和审查，这些指控如果属实，可能会影响单个州联邦选举的结果。
+
+他说：“虽然美国检察官保持其固有的权力，可以进行适当的调查和调查，但在进行任何与选举有关的事项作为初步调查时，可能会比较谨慎，以评估现有证据是否值得采取进一步的调查步骤。” 。
+
+他还敦促美国司法部采取“极为谨慎和判断”的态度，不要对“似是而非的，投机性的，虚构的或牵强附会的要求进行询问”。
+
+他指出，他的调查授权不应该表示司法部已得出结论，投票违规行为已影响选举结果，而是要确保对投票过程的信任。
+
+他说：“我提供这种权威和指导，以强调必须及时，妥善处理有关选举不当行为的指控，以便所有美国人民，无论其偏爱的候选人或政党如何，都对我们的选举结果充满信心。” 。
+
+他说：“美国人民和他们自由选举产生的领导人应得的就是更多。”
+
+原文如下：
+
+Attorney General William Barr Authorizes DOJ to Look into Voting Irregularities
+
+Attorney General William Barr in a memo issued on Monday authorized the Justice Department (DOJ) to look into voting irregularities in the 2020 presidential election.
+
+The memo was addressed and signed from Barr to U.S. Attorneys, the assistant attorneys general for the DOJ’s criminal division, civil rights division, the national security division, and the director of the Federal Bureau of Investigation (FBI), Christopher Wray.
+
+“Now that the voting has concluded, it is imperative that the American people can trust that our elections were conducted in such a way that the outcomes accurately reflect the will of the voters,” the memo read.
+
+Barr’s memo comes after 39 House Republicans pressed Barr in a letter on Friday to allow available DOJ resources to look into allegations of voting irregularities across the country in several key battleground states. The Trump campaign has filed a number of lawsuits in some of those states.
+
+Barr Memo to DOJ on voting irregularities by Kristina Wong on Scribd
+
+Barr said in his memo that, although the states have the primary responsibility to conduct and supervise elections, the DOJ has “an obligation to ensure that federal elections are conducted in such a way that the American people can have full confidence in their electoral process and their government.”
+
+He added that while “most allegations” of purported election misconduct are of such a scale that they would not impact the outcome of an election that their investigation can be deferred, “that is not always the case.”
+
+He said concerns that overt actions taken by the DOJ in this case are greatly minimized, since the voting has concluded.
+
+He also said he has already authorized the DOJ to pursue substantial allegations of voting and voting tabulation irregularities in specific instances.
+
+“Given this, and given that voting in our current elections has now concluded, I authorize you to pursue substantial allegations of voting and vote tabulation irregularities prior to the certification of elections in your jurisdictions in certain cases, as I have already done in specific instances,” he said.
+
+He said inquiries and reviews may be conducted if there are clear and apparently-credible allegations of irregularities that, if true, could potentially impact the outcome of a federal election in an individual state.
+
+“While U.S. Attorneys maintain their inherent authority to conduct inquiries and investigations as they deem appropriate, it will likely be prudent to commence any election-related matters as a preliminary inquiry, so as to assess whether available evidence warrants further investigative steps,” he said.
+
+He also urged for the DOJ to exercise “great care and judgment’ and not launch inquiries on “specious, speculative, fanciful or far-fetched claims.”
+
+He noted that his authorization of investigations should not be taken as an indication that the DOJ has concluded that voting irregularities have impacted the outcome of the election, but to ensure trust in the voting process.
+
+“I provide this authority and guidance to emphasize the need to timely and appropriately address allegations of voting irregularities so that all of the American people, regardless of their preferred candidate or party, can have full confidence in the results of our elections,” he said.
+
+“The American people and the leaders they freely elect deserve nothing less,” he said.
+
+Follow Breitbart News’s Kristina Wong on Twitter or on Facebook.
+
+https://www.breitbart.com/2020-election/2020/11/09/attorney-general-william-barr-authorizes-doj-look-voting-irregularities/?\_\_twitter\_impression=true
 
 0

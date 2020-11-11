@@ -1,34 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 活动人士呼吁在11月14日举行「MAGA（让美国再次伟大）百万人大集会
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/546860/)
+## 五角大楼接任防长履新被中共党媒借题发挥,秦城里那些个陨落的将星们都还好吗!
+` 快慢机` [轉載自GNews](https://gnews.org/zh-hans/546975/)
 
-翻译：康州农场-Mike li
+内军事:快慢机
 
-校对：康州农场-V
+素材:文朝汗
 
-审核：康州农场-Turemanman
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11020751/%E5%9B%BE%E7%89%876-6.png)
-*美国总统唐纳德-川普（Donald Trump）在参加 “让美国再次伟大 “竞选集会时，向人群抛出一顶帽子。(图片：Drew Angerer/Getty Images)*
-川普总统的支持者呼吁所有美国爱国者加入即将于本周二在华盛顿举行的集会， 几个保守派团体宣布将于本周六在首都举行示威活动。
+被川普总统刚刚解职的前美国防长埃斯珀,被中共党媒形容为与川普八字不合的出局者.
 
+而新晋继任防长米勒,则被中共讽刺为,紧张到去五角大楼当天,险些被台阶绊倒的尴尬一幕.
 
+当年中英就香港回归问题进行谈判后,时任英国首相的撒切尔夫人,在步出会场时,也险些在台阶上摔倒.
 
-> See you all this Saturday at the Freedom Plaza at noon. 
-> 
-> This election is not over until every legal vote is counted & audited. [#StopTheSteal](https://twitter.com/hashtag/StopTheSteal?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/ukfdyHPPpA](https://t.co/ukfdyHPPpA)
-> — #ThePersistence (@ScottPresler) [November 11, 2020](https://twitter.com/ScottPresler/status/1326345137694367749?ref_src=twsrc%5Etfw)
+而这一幕同样也被中共党媒大肆嘲讽了一番.
 
+无独有偶,如此熟悉的一幕,再次被中共故技重施.
 
+中共口口声声、道貌岸然的标榜自己,从来不去干涉他国内政.
 
-本周六中午在自由广场见。
-在每张合法的选票被清点和审计之前，这次选举还没有结束。#StopTheSteal 
-– 2020年11月11日，#坚持不懈（@ScottPresler）。
-第一场活动名为“MAGA百万人游行”，它将把川普总统的支持者聚集起来，大规模展示共和党的力量。
-![]()![](https://d2pggiv3o55wnc.cloudfront.net/oann/wp-content/uploads/2020/11/EmRfkwXXEAIdPYZ-373x183.jpg)
-第二场集会名为 “停止偷窃选举”，旨在揭露和谴责民主党控制下的各州选民舞弊行为。两场活动都将于11月14日中午在华盛顿特区的自由广场开始。
-![]()![](https://d2pggiv3o55wnc.cloudfront.net/oann/wp-content/uploads/2020/11/EmacU9UW4AEwlvn-373x210.jpg)
-原文链接：*[https://www.oann.com/president-trump-calls-million-maga-rally-on-nov-14/](https://www.oann.com/president-trump-calls-million-maga-rally-on-nov-14/)*
+事实上,却一刻也未曾停止过,对别国的渗透与操纵.
+
+中共的大外宣与党媒喉舌,开足马力,全天候的进行虚假宣传、诋毁攻击,北京方面认为的敌对势力.
+
+大陆防火墙内的一切公众平台,无一例外的,通篇充斥着海量的,有关美国的严重虚假负面讯息.
+
+而这些垃圾讯息,则成了不明真相的普通民众,茶余饭后的热点谈资.
+
+以假治国,在此被体现的淋漓尽致!
+
+美国的防长被现任总统解职,是再正常不过的,美国政府内部人事变动问题.
+
+人本家都没说过二话,你一个外者,义愤填膺的跟个什么似得,是不是显得有点过于激动了?
+
+再者说,人家不过就是被解职而已.
+
+哪像你中共的军方高层,又有几个是善始善终,没有在秦城高端四合院内养老的呢?
+
+背后议人是非者,其必定也为是非之人!
+
+笑人亦笑己,物极必反之! 相信如今已陨落在秦城内的那些个昔日将星们,也未必都能“恪守本分”的“安度余生”吧?
 
 0
