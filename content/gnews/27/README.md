@@ -1,79 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 联邦探员胁迫USPS举报人要求息事宁人
-` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/547798/)
+## 国殇纪念日 孩子我想对你说……
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/548567/)
 
-内新闻：背靠背
+*多伦多加喜农场 匿名
+上传 WJ*
 
-2020年11月11日，记者詹姆斯·奥基夫（James O’Keefe）公布一段录音，显示因举报选票倒签（非法向前变更邮戳日期）而被联邦探员胁迫，要求他淡化这件事，做到息事宁人。
+今天11月11日，是加拿大的国殇纪念日（英语：Remembrance Day），是为了一战、二战和其他战争中牺牲的军人与平民而设立的纪念日。国殇纪念日在加拿大的民间受到高度重视，从国殇纪念日的一周前民众就开始佩戴虞美人花，在11月11日11点钟，人们会为在战争中牺牲的英灵默哀两分钟。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11122514/remembance2017-950x475-1.jpg)图片来源：bridgewaterunited.ca
+加拿大本土在一战、二战以及以前的其他常规战争中并未严重波及。初到加拿大，每年在和平的环境中看到人们都是怀着那样崇敬的心情对待这个日子，再对比在国内时只知道淘宝刻意造出来的双十一 购物狂欢节，有些惭愧、也感到自己很无知，于是逐渐入乡随俗，一起去纪念这个庄严肃穆的日子。
 
-联邦探员 “胁迫 “美国邮政举报人霍普金斯淡化故事。霍普金斯加倍…
+可是，今年今日，感受却完全不同了。
 
-探员Strasser。”我试图扭曲你一点点”
+由于疫情严重，孩子只能在家上网课，我照例陪着孩子上课。老师提到今天是国殇日，谈到怎样拥有和平的话题。有同学说，美国乱，乔·拜登会当选，老师说，是的，庆幸的是，我们有特鲁多总理，带给我们和平。
 
-“我是在吓唬你”…… “我们有参议员参与……司法部参与…… “他们叫我来的原因是试图利用。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11085252/image-170.png)视频来自记者James O’Keefe推特
-Richard Hopkins（USPS举报人）：他们是烤出来的地狱我
+听到这个，我差点从椅子上蹦起来，恨不得跟老师理论几句。换做几年前，我肯定漠不关心，还为加拿大有这样一位比美国总统帅的总理而窃喜。然而，通过加拿大政府对中共病毒疫情的态度，让人逐渐认清现实，放弃了幻想。
 
-James O’Keefe：你现在感觉如何？我有点生气，我觉得我只是去玩。
+当初移民加拿大，就是为了孩子能有好的生活环境，可现在，由于疫情，不仅正常生活被打乱，还时时因为病毒的威胁而精神紧绷。为了舒缓心情，我准备了不少书陪孩子一起读。他最喜欢的故事就是《Temptation for Adam and Eve》 (《亚当和夏娃的诱惑》)。故事里讲到虽然上帝告诫过亚当和夏娃，但夏娃还是受不住撒旦化身的蛇的谎言和诱惑，偷食了禁果，还拉上亚当一起吃，结果被逐出了伊甸园。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11122700/snake.jpg)图片来源：studyprayserve.com
+这个故事讲的是上帝说真话，但亚当和夏娃不听，却相信了谎言、接受了诱惑，导致酿成苦果。结论是：要听从上帝，听从神的话语。
 
-（2020年11月5日视频）
+这是个经典的故事，但此情此景读来，特别有启发。政府、媒体、老师甚至父母都不是上帝、不是神，说的话并不一定是真的。只有追寻真相、捍卫真相才能让心怀鬼胎的邪魔暴露在阳光下，拥有真正的和平。
 
-Richard Hopkins：我听到他对主管说，他们昨天搞砸了。在他们搞砸了昨天，我当时，所以，我很喜欢，哦，他们搞砸了什么？他告诉主管，他们把其中一张选票的邮戳是11月4日而不是3日，因为他们应该把它们放在11月3日。
-
-（宾夕法尼亚州伊利市邮局的举报人在联邦调查局的审讯中被骗了。）
-
-（联邦探员录音, Russell Strasser美国邮政总局办公室）
-
-Russell Strasser：所以，让我，让我兑现这个承诺的时候了。越来越疯狂了，对吧？叫我来是为了控制暴风雨，在它变得疯狂之前把它收回来。
-
-Richard Hopkins：我明白了。
-
-Russell Strasser：因为我们有参议员参与，我们有司法部门参与，我们有。
-
-Richard Hopkins：特朗普的律师团队找到了我。
-
-Russell Strasser：我不是，其实我是想扭曲你一下，因为不管你相信与否你的头脑会踢。
-
-Richard Hopkins：好吧。
-
-Russell Strasser：我们喜欢控制自己的思想，当我们这样做的时候，我们可以说服自己的记忆，但是，当我们这样做的时候，我们可以说服自己的记忆。你有一点压力，这就是我对你做的事，你的头脑可以更清醒一点，也可以更有信心。我们也要做一个不同的练习，让你的头脑更清晰一点，所以，这都是故意的。
-
-Richard Hopkins：明白。
-
-Russell Strasser：我不是在吓唬你，而是在吓唬你。
-
-（联邦探员录音结束）
-
-Richard Hopkins：似乎他们想让我不信任你们（Veritas项目）。同时，它，有点影响。我当时想是这些人(Veritas项目)从一开始就支持我，所以这就是我为什么要继续下去的原因。
-
-James O’Keefe：你认为这些联邦探员会支持你吗？
-
-Richard Hopkins：在这一点上，没有。
-
-James O’Keefe：你认为这些联邦探员真的有兴趣调查欺诈吗？
-
-Richard Hopkins：老实说，我不认为他们有兴趣。
-
-James O’Keefe：事实上,你听到我们Rob Weisenbach告诉一个主管,他们在回溯选票的时间。让他们看起来会在11月3日领到选票,你还坚持这个说法吗？
-
-RICHARD HOPKING:是的。
-
-James O’Keefe: 是的。
-
-（视频结束）
-
-USPS举报人Richard Hopkins不仅被联邦探员胁迫，稍早前，他还因为举报而被USPS打压，无薪休假。
-![Image](https://pbs.twimg.com/media/Emg0eu0XYAMi3Km?format=jpg&amp;name=900x900)图片来自记者James O’Keefe推特
-Richard Hopkins是一名有家室的退伍军人，被美国邮政停职，于是他成立了一个GoFundme来养活女儿。GoFundme页面被停用了。他不会看到1美元的13万筹集。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11111707/image-175.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11111744/image-176.png)
-川普总统称他是一位勇敢的爱国者。越来越多的人站出来揭露这个被操纵的选举!
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112601/image-179.png)
-这还没完，尽管举报人Richard Hopkins视频声明自己没有撤诉。但CNN，Washingtonpost等媒体公开撒谎，关于Richard Hopkins的假消息满天飞。
-
-美国众议院监督与改革委员会报道也失实。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11114034/image-180.png)
-这与中共CCP惯用路数如出一辙，搞坏意见者名声，断财路，最后肉体摧毁。
+孩子，虽然咱们的生活因为无数精心编造的谎言而毁成这样，连基本的生命健康都受到威胁，但越来越多的叔叔阿姨因为了解到真相而觉醒，在为你们守护着未来。也许我们这一代就像出埃及记中被摩西带出的奴隶，今生无法去到流淌着奶与蜜之地，但请你们无论以后遇到多少艰难险阻，请记得：生命满希望，前路由我创！
 
 0

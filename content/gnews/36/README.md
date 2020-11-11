@@ -1,46 +1,97 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 贼喊捉贼：拜登发言人呼吁Facebook对川普及其支持者进行进一步言论审查
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/548128/)
+## 朱利安尼 推文系列 5（2020年11月8-9日）
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/548278/)
 
-*多伦多加喜农场 香江小哥
-校对 文锦 上传 WJ*
+*新闻来源：朱利安尼 推文；作者：朱利安尼；发布时间： 2020年11月6-9日*
 
-拜登（Biden）竞选团队人员要求在网上进行进一步的言论审查，声称Facebook在大选后的几天“在破坏我们的民主结构”。
+*翻译/简评：Beicy-数学老师；校对/审核：TCC；Page：拱卒*
 
-本周一，比尔·鲁索（Bill Russo），拜登竞选活动的媒体副总监，在一系列推文中批评Facebook处理虚假信息的方式并呼吁采取进一步的激进行动。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11101403/F1.jpg)
-“如果你认为在选举期间Facebook上的虚假信息是一个问题，请静静等待，你将看到我们民主的外衣将在接下去的日子里被撕得粉碎”
+[![](https://spark.adobe.com/page/eWXogcpEkAfai/images/db13a5b6-8e57-41a0-8c49-5fcec8a71666.jpg?asset_id=1d8a0949-651e-4d1b-821d-5e2d04174fcb&amp;img_etag=%226813ecc631b2588a3b3cac6b8b7faaad%22&amp;size=2560)](https://spark.adobe.com/page/eWXogcpEkAfai/images/db13a5b6-8e57-41a0-8c49-5fcec8a71666.jpg?asset_id=1d8a0949-651e-4d1b-821d-5e2d04174fcb&amp;img_etag=%226813ecc631b2588a3b3cac6b8b7faaad%22&amp;size=1024)
 
-他首先提到了史蒂夫·班农（Steve Bannon）的一段视频，他在视频中呼吁斩首（裁撤职位）国家过敏与传染病研究所所长安东尼·福奇（Anthony Fauci）和联邦调查局局长克里斯托弗·雷（Christopher Wray）。
+**简评：**
 
-据《商业内幕》报道，班农先生曾说：“我实际上想回到英格兰的都铎时代，我可以用矛头挑起他们的头颅，对，把它们悬挂在白宫的两个角落，作为对联邦官僚人员的警告，”
+**朱利安尼: “拜登主导了这个造假集团”**
 
-现在，班农先生已经被禁止使用Twitter，但鲁索认为，过了很长时间，Facebook都没有对班农先生采取行动，他的Facebook页面仍然还在。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11101454/F2.jpg)
-鲁索还转推了路透社的一篇文章，以显示Facebook群组“充斥着太多的网络暴力。”
+朱利安尼先生最新推文，明确指出拜登是选票造假这一”世纪选举盗窃案”的知情者和制造者。朱利安尼先生还进一步给出”幽灵选民”的具体例子—- 美国知名人士、前重量级冠军乔-弗雷泽在2011年11月7日去世，却参加了2018年的(中期)选举投票！
 
-他说：“其中一些被Facebook撤下，但是，许多帖子不会存在几天，也可以存在几个小时。”
+川普总统的选民在虚假媒体声称拜登获胜后，自发聚会各州投票站，抗议计票造假。这样正义的行为，却被拜登方抹黑为意欲暴乱。朱利安尼先生不仅驳斥了这一谎言，并质问对手: ”如果重新计票和挑战使川普成为赢家，将会发生什么?”
 
-据路透社报道，Facebook不得不在11月5日关闭迅速成长的“Stop the Steal” （“停止盗取选举”）的群组，因为该群组成员呼吁在川普总统输掉选举后“准备武器”。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11101512/F3.jpg)
-鲁索还批评Facebook没有因为“多次的虚假信息”和传播选民欺诈指控的阴谋论对Breitbart 新闻网采取限制措施。
+朱利安尼先生确切地宣布: 已经掌握几个关键州的非法选票证据。加上最近司法院长及共和党员站出来支持调查选举违规，这表明选举结果将被纠正过来。
 
-他在推特上说：“后果是什么？在Facebook的支持下，“ Stop The Steal”群组的人数在最终关闭该群组前已经超过了30万，。
+大选投票结束。 战斗才刚刚开始。
 
-“在Facebook删除最初的小组之后，形成的多个新“ Stop The Steal”小组又开始迅速发展。”
+爆料革命的战友们, 我们加油传播真相!
 
-据NBC新闻报道，在有人指控Facebook平台上存在针对保守派的偏见之后，Facebook已经在“虚假信息规则”和“警示”上对保守派放宽了一些。
+[原文链接](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-鲁索表示，这只会导致“选民欺诈”和“川普相关的虚假选举信息”的内容在整个平台上迅速传播。
+- **推文1: 2020年11月9日 7点11分发布**
 
-“我们知道这会发生。我们恳求Facebook在一年多的时间里认真对待这些问题，尽管他们还没有。” 鲁索总结道。
 
-简评：
-在美国大选点票工作还未完结的情况下，美国主流媒体和社交媒体（Twitter，Facebook）营造舆论环境，宣称民主党候选人拜登率先当选。然而，根据选举爆料人信息，美国已经出现大规模的选民欺诈和计票欺诈事件。目前，川普竞选团队已经在密西根州、宾夕法尼亚州、佐治亚州等多州采取了法律行动。在主流媒体对该事件集体失声的情况下，川普总统的支持者通过社交媒体广泛传播“Stop the Steal” （“停止盗取选举”）的信息。同时，美国参议院多数党领袖和美国司法部都对川普团队采取法律手段表示了支持。在这样的背景下，拜登竞选团队人员竟然直接喊话社交媒体Facebook，要求对川普及其支持者进行进一步言论审查，这无异于“贼喊捉贼”。
 
-原文链接：
-[Biden Spokesman Calls for Further Censorship of Trump and His Supporters](https://www.westernjournal.com/biden-spokesman-calls-censorship-trump-supporters/?utm_source=push&amp;utm_medium=westernjournalism&amp;utm_content=2020-11-10&amp;utm_campaign=pushtraffic)
 
+> NYC,DC,Philly were all boarded up for riots.
+> 
+> All of a sudden no riots by Trump supporters.
+> 
+> They don’t riot.
+> 
+> What happens if recounts and challenges make [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) the winner.
+> 
+> The Biden supporters do riot because they are lawless.
+> — Rudy W. Giuliani (@RudyGiuliani) [November 9, 2020](https://twitter.com/RudyGiuliani/status/1325697527367274497?ref_src=twsrc%5Etfw)
+
+
+纽约，华盛顿，费城(的商家)都钉上板子以防暴动。突然间，川普的支持者是不暴动的。他们不会暴动。如果重新计票和(司法)挑战使川普赢得大选，将会发生什么? 拜登的支持者一定会暴动，因为他们无法无天。
+- **推文2: 2020年11月9日 14点16分发布**
+
+
+
+
+> The Biden selection by the Crooked Media is based on unlawful votes in PA, Mich, GA, Wisc, Nevada et al.
+> 
+> We will prove it all.
+> — Rudy W. Giuliani (@RudyGiuliani) [November 9, 2020](https://twitter.com/RudyGiuliani/status/1325695405917663234?ref_src=twsrc%5Etfw)
+
+
+那些歪曲事实的媒体对拜登的选举支持是基于宾夕法尼亚州、密歇根州、佐治亚州、威斯康星州、内华达州等地的非法选票。我们将证明这一切。
+- **推文3: 2020年11月8日 13点56分发布**
+
+
+
+
+> Just an example of how brazen the Philadelphia Democrat machine is.
+> 
+> Former heavyweight champion Joe Frazier voted in the 2018 election. He died on 11/7/2011!!!
+> 
+> Will Smith’s grandfather voted in 2017, 2018. He died in 2016.
+> 
+> I bet Biden dominated this group.
+>  
+> We will find out.
+> — Rudy W. Giuliani (@RudyGiuliani) [November 8, 2020](https://twitter.com/RudyGiuliani/status/1325437154575704065?ref_src=twsrc%5Etfw)
+
+
+这只是一个例子，(来看看)多么厚颜无耻的费城民主党(操纵计票)机器。前重量级冠军乔-弗雷泽在2018年的(中期)选举中投票。他于2011年11月7日去世！!威尔-史密斯的祖父在2017年、2018年都投了票。他在2016年去世。我敢打赌，拜登主导了这个造假集团。 我们会找到答案。
+- **推文4: 2020年10月6日 14点16分发布**
+
+
+
+
+> [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Rudy W. Giuliani (@RudyGiuliani) [October 6, 2020](https://twitter.com/RudyGiuliani/status/1313468197446746117?ref_src=twsrc%5Etfw)
+
+
+中共病毒(CCP Virus) 
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105818/11222.png)战争行为；是的，是这样的。
+
+
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[编辑：【喜马拉雅战鹰团】](https://spark.adobe.com/page/eWXogcpEkAfai/)
+[![](https://spark.adobe.com/page/eWXogcpEkAfai/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/eWXogcpEkAfai/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0
