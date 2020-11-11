@@ -1,83 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 总检察长威廉·巴尔授权司法部调查投票违规行为
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/546647/)
+## 美国大选正在逆转——川普竞选团队提起法律诉讼
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/546839/)
 
-编译：TS2020相聚盘古
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11015857/2-57.png)
+来自美国威斯康星州麦迪逊的报道：川普总统的竞选团队向联邦法院提起诉讼，试图阻止密歇根州在选票得到重新审核之前宣布选举结果。
 
-2020年11月9日
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09211419/IMG-8572.jpg)
-司法部长威廉·巴尔在周一发布的备忘录中，授权司法部（DOJ）调查2020年总统大选的投票违规行为。
+该诉讼将于周二晚间向美国密歇根州西区地方法院提起，距离选举正好一周。川普总统竞选团队的总顾问马特-摩根（Matt Morgan）在新闻发布会上表示，这次诉讼指控了几起选举舞弊事件。
 
-备忘录已由Barr致函并签署给美国检察官，美国司法部刑事司，民权司，国家安全司助理检察长，以及联邦调查局（FBI）局长克里斯托弗·雷（Christopher Wray）。
+在选举日的第二天，川普总统竞选团队在密歇根州法院提起诉讼，声称一名“经认证并受训成为选举监察员”的原告“在缺席选票审查过程中被排除在计票委员会之外”。密歇根州的一名法官在周四驳回了该诉讼。
 
-备忘录中写道：“现在投票已经结束，当务之急是美国人民可以相信我们的选举以这样的方式进行，即选举结果能准确反映选民的意愿。”
+新的联邦诉讼称，底特律韦恩县的许多共和党投票观察员被排除在缺席计票过程之外，并遭到了恐吓和骚扰。它还寻求有关全州使用的投票技术的信息，因为安特里姆县的软件更新失败导致了一个故障，导致6000张选票被错误地算进总统候选人乔-拜登（Joe Biden）的票数。
 
-巴尔的备忘录是在39名众议院共和党人周五在一封信中敦促巴尔让美国司法部可用资源调查全国几个主要战场州投票不当行为的指控之后的。特朗普竞选活动在其中一些州提起了许多诉讼。
+“指定的选举监察员投诉者发誓绝无虚言，他说他被剥夺了法律规定的权力。” 川普总统竞选团队的总顾问马特-摩根（Matt Morgan）说，在TCF中心有对共和党人使用“贬损性语言”的证词，该中心是韦恩县缺席选票的制表中心。
 
-巴尔备忘录（Barr Memo）就投票违规行为向司法部致辩
+密歇根州选举官员否认选举期间有任何欺诈行为，密歇根州国务卿本森(Jocelyn Benson)对今年的投票过程表示肯定。他说:“” 我可以自豪地说，密歇根州所有有效的选票都得到了安全、准确的统计，我们的选举结果反映了人民的意愿。”
 
-巴尔在备忘录中说，尽管各州负有进行和监督选举的主要责任，但司法部“有义务确保以这种方式进行联邦选举，以使美国人民对其选举过程和对他们的政府充满信心。”
+川普总统竞选团队的法律顾问托尔·赫恩(Thor Hearne)在电话中表示，韦恩县的违规行为“普遍存在”。川普总统竞选团队的总顾问马特-摩根（Matt Morgan）说，投诉将要求密歇根州的州务卿不确认选举结果，”直到我们能够核实并确认所投的选票合法有效”。
 
-他补充说，尽管所谓的“多数指控”涉及选举不当行为，其规模如此之大，以至于不会影响选举结果，因此可以推迟进行调查，“并非总是如此。”
+总统候选人乔.拜登（Joe Biden）在密歇根州以146123票领先川普总统，得票率为50.6%，而川普总统为47.9%。“我们相信诉讼有价值，因为相信我们会赢，” 川普总统竞选团队传播总监蒂姆·默陶(Tim Murtaugh)说。“我们采取的每一项申请和每一项行动，[都]离川普总统连任的目标更加接近……我们坚定地认为，川普总统最终将被宣布为本次选举的获胜者。”
 
-他说，由于投票已经结束，因此对司法部在这种情况下采取的公开行动大大减少的担忧。
+评：美国伟大的核心原因不在于繁荣的经济及良好的生活环境，在于三权分立的制度，尤其是独立的法律系统，巧妙的设计避免了像独裁国家的政治混战，这次美国大选正在验证着美国制度的伟大。即使在选票出现严重问题的情况下，仍有渠道能进行申诉，得到相对公正的结果。
 
-他还说，他已经授权司法部对具体情况下的投票和投票制表不当行为提出重大指控。
+翻译报道：文非
 
-“鉴于此，并且鉴于我们当前的选举已经结束，我授权您在某些情况下在您的辖区进行选举之前对大量的投票指控和制表不当行为进行指控，就像我在特定情况下所做的那样，“ 他说。
+[原文链接](https://www.washingtonexaminer.com/news/trump-campaign-files-federal-lawsuit-in-michigan-over-fraud-allegations)
 
-他说，如果存在明显的，显然可信的违规指控，可能会进行查询和审查，这些指控如果属实，可能会影响单个州联邦选举的结果。
 
-他说：“虽然美国检察官保持其固有的权力，可以进行适当的调查和调查，但在进行任何与选举有关的事项作为初步调查时，可能会比较谨慎，以评估现有证据是否值得采取进一步的调查步骤。” 。
-
-他还敦促美国司法部采取“极为谨慎和判断”的态度，不要对“似是而非的，投机性的，虚构的或牵强附会的要求进行询问”。
-
-他指出，他的调查授权不应该表示司法部已得出结论，投票违规行为已影响选举结果，而是要确保对投票过程的信任。
-
-他说：“我提供这种权威和指导，以强调必须及时，妥善处理有关选举不当行为的指控，以便所有美国人民，无论其偏爱的候选人或政党如何，都对我们的选举结果充满信心。” 。
-
-他说：“美国人民和他们自由选举产生的领导人应得的就是更多。”
-
-原文如下：
-
-Attorney General William Barr Authorizes DOJ to Look into Voting Irregularities
-
-Attorney General William Barr in a memo issued on Monday authorized the Justice Department (DOJ) to look into voting irregularities in the 2020 presidential election.
-
-The memo was addressed and signed from Barr to U.S. Attorneys, the assistant attorneys general for the DOJ’s criminal division, civil rights division, the national security division, and the director of the Federal Bureau of Investigation (FBI), Christopher Wray.
-
-“Now that the voting has concluded, it is imperative that the American people can trust that our elections were conducted in such a way that the outcomes accurately reflect the will of the voters,” the memo read.
-
-Barr’s memo comes after 39 House Republicans pressed Barr in a letter on Friday to allow available DOJ resources to look into allegations of voting irregularities across the country in several key battleground states. The Trump campaign has filed a number of lawsuits in some of those states.
-
-Barr Memo to DOJ on voting irregularities by Kristina Wong on Scribd
-
-Barr said in his memo that, although the states have the primary responsibility to conduct and supervise elections, the DOJ has “an obligation to ensure that federal elections are conducted in such a way that the American people can have full confidence in their electoral process and their government.”
-
-He added that while “most allegations” of purported election misconduct are of such a scale that they would not impact the outcome of an election that their investigation can be deferred, “that is not always the case.”
-
-He said concerns that overt actions taken by the DOJ in this case are greatly minimized, since the voting has concluded.
-
-He also said he has already authorized the DOJ to pursue substantial allegations of voting and voting tabulation irregularities in specific instances.
-
-“Given this, and given that voting in our current elections has now concluded, I authorize you to pursue substantial allegations of voting and vote tabulation irregularities prior to the certification of elections in your jurisdictions in certain cases, as I have already done in specific instances,” he said.
-
-He said inquiries and reviews may be conducted if there are clear and apparently-credible allegations of irregularities that, if true, could potentially impact the outcome of a federal election in an individual state.
-
-“While U.S. Attorneys maintain their inherent authority to conduct inquiries and investigations as they deem appropriate, it will likely be prudent to commence any election-related matters as a preliminary inquiry, so as to assess whether available evidence warrants further investigative steps,” he said.
-
-He also urged for the DOJ to exercise “great care and judgment’ and not launch inquiries on “specious, speculative, fanciful or far-fetched claims.”
-
-He noted that his authorization of investigations should not be taken as an indication that the DOJ has concluded that voting irregularities have impacted the outcome of the election, but to ensure trust in the voting process.
-
-“I provide this authority and guidance to emphasize the need to timely and appropriately address allegations of voting irregularities so that all of the American people, regardless of their preferred candidate or party, can have full confidence in the results of our elections,” he said.
-
-“The American people and the leaders they freely elect deserve nothing less,” he said.
-
-Follow Breitbart News’s Kristina Wong on Twitter or on Facebook.
-
-https://www.breitbart.com/2020-election/2020/11/09/attorney-general-william-barr-authorizes-doj-look-voting-irregularities/?\_\_twitter\_impression=true
 
 0
