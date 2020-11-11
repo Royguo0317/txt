@@ -1,34 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 前密歇根州副检察长指控底特律利用非选民投票舞弊
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/547880/)
+## 【热点播报】中共教育部发布奇葩准则：研究生导师不得侮辱研究生人格，不得与研究生发生不正当关系
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/548059/)
 
-*多伦多加喜农场 杰克*
+作者：香草山写作组 程万里
 
-*校对 云起时 上传 WJ*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11091548/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE662.png)图片来源：NBC News
-BREITBART 11月9日的报道指出，密歇根州的一名前副检察长在周日的一份宣誓书中对选举欺诈提出了一系列令人震惊的指控，其中包括底特律选票员犯下的投票欺诈行为。文中说道：
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
 
-曾在比尔-舒伊特（Bill Schuette）和达纳-内塞尔（Dana Nessel）两届政府任职的扎卡里-拉尔森（Zachary Larsen）是共和党选举观察员，上周抵达底特律TCF中心观察缺席计票过程。
 
-拉尔森在宣誓书中说，在整个计票过程中，”选票的保密性没有得到尊重”。他观察到有官员多次将手指放进保密套筒中分离信封，并以一种可以直接观察选票并识别选民所投的部分选票的方式来窥视信封。拉尔森的宣誓书是大湖区司法中心提起诉讼的一部分。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11095543/238-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E4%B8%AD%E5%85%B1%E6%95%99%E8%82%B2%E9%83%A8%E5%A5%87%E8%91%A9%E5%8F%91%E5%B8%83%E5%87%86%E5%88%99%EF%BC%9A%E7%A0%94%E7%A9%B6%E7%94%9F%E5%AF%BC%E5%B8%88%E4%B8%8D%E5%BE%97%E4%BE%AE%E8%BE%B1%E7%A0%94%E7%A9%B6%E7%94%9F%E4%BA%BA%E6%A0%BC%EF%BC%8C%E4%B8%8D%E5%BE%97%E4%B8%8E%E7%A0%94%E7%A9%B6%E7%94%9F%E5%8F%91%E7%94%9F%E4%B8%8D%E6%AD%A3%E5%BD%93%E5%85%B3%E7%B3%BB-1.jpg)
+2020年11月11日，教育部发布了奇葩的研究生指导行为准则：坚持正确思想引领、科学公正参与招生、尽心尽力投入指导，正确履行指导职责、严格遵守学术规范、把关学位论文质量、严格经费使用管理、构建和谐师生关系。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11095604/238-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E4%B8%AD%E5%85%B1%E6%95%99%E8%82%B2%E9%83%A8%E5%A5%87%E8%91%A9%E5%8F%91%E5%B8%83%E5%87%86%E5%88%99%EF%BC%9A%E7%A0%94%E7%A9%B6%E7%94%9F%E5%AF%BC%E5%B8%88%E4%B8%8D%E5%BE%97%E4%BE%AE%E8%BE%B1%E7%A0%94%E7%A9%B6%E7%94%9F%E4%BA%BA%E6%A0%BC%EF%BC%8C%E4%B8%8D%E5%BE%97%E4%B8%8E%E7%A0%94%E7%A9%B6%E7%94%9F%E5%8F%91%E7%94%9F%E4%B8%8D%E6%AD%A3%E5%BD%93%E5%85%B3%E7%B3%BB-2.jpg)
+看来中共的教育部终于曝光了研究生导师的恶，老师已经没了思想引领，招生投机倒把，把学生当奴隶，无私德，无规范，无伦理，乱经费，更糟蹋学生。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11095633/238-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E4%B8%AD%E5%85%B1%E6%95%99%E8%82%B2%E9%83%A8%E5%A5%87%E8%91%A9%E5%8F%91%E5%B8%83%E5%87%86%E5%88%99%EF%BC%9A%E7%A0%94%E7%A9%B6%E7%94%9F%E5%AF%BC%E5%B8%88%E4%B8%8D%E5%BE%97%E4%BE%AE%E8%BE%B1%E7%A0%94%E7%A9%B6%E7%94%9F%E4%BA%BA%E6%A0%BC%EF%BC%8C%E4%B8%8D%E5%BE%97%E4%B8%8E%E7%A0%94%E7%A9%B6%E7%94%9F%E5%8F%91%E7%94%9F%E4%B8%8D%E6%AD%A3%E5%BD%93%E5%85%B3%E7%B3%BB-3.jpg)
+但也暴露了教育部的无能：以行政手段发布禁止导师侮辱研究生人格，禁止和研究生发生不正当关系，学生和老师们就想问一句：侮辱人格这个怎么鉴定，不正当关系的禁令怎么执行？难道是教育部官方说了算：“老子说你侮辱就是侮辱，不正当关系也是老子说了算。”无耻、下流、可恨、可悲，这就是中共国的教育，有这样的教育部怎可能不会有邪恶的老师，怎么能培养的出正确价值观的学生。十年树木，百年树人，七十一年的毁人不倦，国早已不国，只剩下满目疮痍。中共的管天管地管人的生殖器，真的已经做到了极致。
 
-拉尔森说，计票过程中的其他人员也会 “偷看观察选票”，其他观察者也确认，看到了类似的行为。他担心通过违反保密规定，工作人员的个人政治偏好可能会影响选票是否会被放入 “问题选票 “箱。
+审核：雪梨
 
-在另一项指控中，拉森指出，计票员统计选票时 “不确认选民是投票名单上的合格选民”。他观察到第一张被扫描的选票与合格选民相匹配，但接下来扫描的几张选票与投票名单上的任何合格选民都不匹配。當扫描結果为空時，一位官員就输入 “Pope “這個名字，系统显示出姓“Pope”的选民。拉森注意到该选民在电脑中显示为已投票。然后，这位官员输入一个号码，于是一个完全不同的名字就被添加到屏幕右侧已处理选票下方的选民名单中。然后，该官员就在她的 “补充投票名单 “上用手写记录。
 
-拉尔森在宣誓书中说：”根据我对电脑屏幕的观察，这些选民肯定不在正式的投票册上。此外，我亲眼观察到大多数选民的选票被扫描的情况也是如此。”
 
-拉尔森曾试图走近一些以便更好地观察，但他被命令向后站到6英尺外，理由是预防中共病毒，尽管他戴着口罩。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
 
-拉尔森的指控是韦恩县居民Cheryl A. Constatino 和 Edward P. McCall Jr.对底特律市和底特律选举委员会、底特律市书记员Janice M. Winfrey及韦恩县检查员委员会提起的诉讼的一部分。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-密歇根州广播节目主持人史蒂夫-格鲁伯（Steve Gruber)指出，这起舞弊案是 “在底特律和韦恩县官员的授意下实施的，包括更改选票上的合法姓名和日期、收集选票、恐吓选民等。”节目同时指出，这种欺骗选民的种种努力从9月初就已经开始了。
-
-评：今年美国大选，由于中共的直接介入，作弊方式五花八门，令美国人民大开眼界。底特律的这起选举作弊起诉案是由民众自发提诉的，这说明了此次大选的严重舞弊现象正在唤醒越来越多的美国民众。
-
-*原文链接：*
-[Ex-Michigan Deputy Attorney General Alleges Detroit Counters Assigned Fraudulent Ballots to Non-Voters](https://www.breitbart.com/politics/2020/11/09/ex-michigan-deputy-attorney-general-alleges-detroit-counters-assigned-fraudulent-ballots-to-non-voters/)
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

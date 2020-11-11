@@ -1,23 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德社精选】11/7/2020 晚间节目
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/547494/)
+## 拜登对家族参与中共交易完全知情
+` GM64` [轉載自GNews](https://gnews.org/zh-hans/547691/)
 
-听写:加非 校对：加非 简介：恩真 文宣图：艾伦 出品：首尔喜韩农场
+供稿：电视台后援团新闻中心供稿
 
-简介：
+10月27日晚，福克斯新闻频道塔克·卡尔森秀节目对托尼·鲍布林斯基进行了采访，在采访中，鲍布林斯基直接了当地说，他与拜登曾多次会面，拜登对家族参与中共交易的情况完全知情，而且，拜登对于这种商业往来关系可能对他的总统竞选产生的风险也早已有应对方案，即用谎言进行搪塞！
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11081855/image4-4.png)
+托尼·鲍布林斯基是亨特·拜登的前生意合伙人，也是第一个站出来来为硬盘门爆料内容作证的证人。
 
-1.川普总统将彻查选票合法性。
-2.川普总统支持者在各地游行。
-3.美国民意已经觉醒。
-4.游行将对最高法庭产生重要影响。
-5.左派媒体没有宪法赋予权力。
-6.7100万民意已被唤醒。
-7.形势会转向川普总统。
-8.如果1月20之前确定不下来则由彭斯代理总统。
-9.参众两院可以自行选择谁成为总统。
+鲍布林斯基说，他与前副总统乔·拜登的多次会面，均是由亨特·拜登和吉姆·拜登主动牵线引见。当主持人问道：“在你看来乔·拜登的儿子显然已经把这桩生意告诉了他”？鲍布林斯基回答说：“毫无疑问”。鲍布林斯基在谈到他与乔·拜登的会面时说，在见面之前，亨特·拜登和吉姆·拜登曾专门嘱咐“不要（与拜登）讨论生意的更多细节”。
 
-文宣图：
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11073142/1-45.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11074443/2-66.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11073353/3-49.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11073340/4-25.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11074002/5-23.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11075708/6-26.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11075730/7-15.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11075733/8-14.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11075728/9-10.png)
+鲍布林斯基说，拜登家族很清楚他们在与有中共背景的公司做生意，并以此为傲，因为这可以获得中共强大的金融和政策支持。鲍布林斯基谈到了《纽约邮报》10月15日爆出的亨特·拜登与华信能源的电子邮件，他说邮件中出现的“由代号为H的大人物代持10%的股权”，“我百分百确认这个大人物就是乔·拜登”。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11081929/image5-4.png)
+鲍布林斯基曾经担心与中共的商业往来可能会对乔·拜登未来的总统竞选带来风险，他把这种担心告诉了吉姆·拜登，而吉姆的回答非常干脆：“我们可以合理的否认”。
+
+拜登此前一直声称，自己从未与儿子或弟弟或任何其他人讨论过与之业务有关的任何事情，而且自己从未从任何外国来源获得过一分钱。现在看来，这是他早已预谋好的应对答案。鲍布林斯基作为亨特的生意合伙人，曾经深度参与了与中共的合作，他在这次访谈中爆料的这些信息，充分证明拜登完全了解自己的家族在与中共背景的公司做生意，也知道中共看中的正是拜登家族在美国的政治资源，更明白必须出卖美国的利益才能换取中共的“青睐”。
+
+新闻参考：
+
+FOX采访：[https://www.foxnews.com/media/lapdog-press-blacks-out-explosive-tony-bobulinski-claims](https://www.foxnews.com/media/lapdog-press-blacks-out-explosive-tony-bobulinski-claims)
+
+秘密翻译组翻译：
+
+
+
+新闻参考：
+
+
+
+> [爆料革命终极之战系列三：路德社重磅曝光奥巴马被拜登绑架默许南海军事化后，亨特26小时内收取中共十亿美元](https://gnews.org/zh-hans/457406/)
+
+
+
 0

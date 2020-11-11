@@ -1,53 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 费城的律师: 我亲眼见证了选票造假的过程
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/547730/)
+## 【突发】【独家】：选举之夜数据分析显示，Dominion机票系统作弊，偷走或删除掉川普的选票多达几百万
+` The voice of San Francisco` [轉載自GNews](https://gnews.org/zh-hans/547848/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11082532/Picture55.png)
-身处费城的私人执业律师杰罗姆·马库斯（Jerome M. Marcus） 11月10日在《联邦主义者》（The Federalist）发文称，他在费城亲眼见证了选票造假的过程。
+**【作者】Joe Hoft 来自11月10日的theGatewayPundit**
 
-文章称，近来CNN报道川普总统“输掉了选举”是错误，事实是他赢了;很多传统媒体也声称川普总统关于选举欺诈的所有指控都是毫无根据，其实是他们在撒谎，因为作者本人在费城联邦法院代表总统辩护此案，他将告诉人们真正发生了什么。
+**【编辑翻译】：**Summer 喜马拉雅金喜农场
 
-## **川普总统就两个问题向法院起诉：**
+2020年大选以来，我们已经报道了数不清的媒体口中所谓的系统“小故障”。
 
-1 .只有少数共和党观察员被接纳，进入费城会展中心进行检查，并且共和党在现场的观察员人数明显少于民主党观察员的人数。
+昨晚，我们报道了威斯康星州的洛克县的一个所谓的系统“小故障”。证据表明，洛克县的似乎在川普和拜登之间的投票总数看起来被呼唤了。 川普总统被拿走了9,516票，给了拜登。 这样19,032票的区别，抹平了拜登在威斯康星州的领先优势。
 
-2. 少数共和党观察员能进入，但却不被允许靠近以了解实际情况。
+在昨天的帖子中，我们还发现在密歇根州，宾夕法尼亚州和乔治亚州也出现过类似“故障”问题。
 
-## **他们为什么有这些举动？究竟隐藏了什么？**
+今天我们得到的一份未经审计的数据分析表明，在所能找到的50州的数据中，寻找只跟总统角逐相关的系统故障和其他异常情况。
 
-### **初见端倪：**
+在这个网站上（https://thedonald.win/p/11Q8O2wesk/happening-calling-every-pede-to-/），一个网名叫蜈蚣（PEDE）的人看到了the GatewayPundit的帖子后决定自己进行分析。
 
-在会展中心点票地点，作者观察到数十名川普竞选志愿者被禁止进入点票室，即使他们已经是注册的观察员。于是，作者敦促在场的帕姆·邦迪（Pam Bondi) 和科里·莱万多夫斯基 (Corey Lewandowski) ,让他们授权提出要求,使联邦法院下令选举委员会制止这种不正当的行为。
+作者说他列举的是从川普换成拜登的选票，以及是Dominion（全美国许多州使用的投票机）删除掉的选票。他特别提醒我们：这里的数据并没有考虑那以十万计的被销毁，燃烧和撕碎的的选票，和那成千上万的只标注了拜登的作假选票。作者声称他的工作已经过验证，但我们尚未验证结果，因此我们目前将他的结果称为“未经审计”。
 
-### **事情发展：**
+作者获得的数据是在选举之夜被《纽约时报》拿到后来被传播的数据。通过检查数据，作者找到了一处选票从川普改为拜登的实例，因此他决定对整个数据集进行分析，首先是使用了Dominion投票机的州。作者声称，这些数据来自Edison Research，并且至少被ABC新闻，CBS新闻，CNN和NBC新闻使用来报道选举。它也用于纽约时报的网站，可能还用于其他网站。
 
-尽管该州联邦法院下达了有约束力的命令，但少数能进入会议室的共和党观察员仍然未被允许接近计票工作的桌子，而是在六英尺外的障碍物后。因此，即使他们在计票大厅，他们也无法告诉正在发生的事情。如果没有欺诈行为，为什么民主党控制的选举委员会不愿意让人们离得足够近以实际看到其他们在做什么？
+各州的数据（未审计）如下：
+![](https://lh5.googleusercontent.com/wFaHlDWl3-wXc7xPOmXK2_ke12NlAX1FvNQnOHGsuCkALd_DXbCLjQCLKrvRMWFX_Zyrk1g8x7v5jESuk5EQdvTsn8y-1A7eeIM8XJzQld3sVMbPx5p6sQZDzzW5glyAVIWMK6Y)![](https://lh4.googleusercontent.com/4IXafR0LEuunNsyMrxqToNpuBABqqRsgzDE9BDUbM67iq42Vorim28D4NnkTGjgAcZYpKcIGWHj76Nu2H7Mhc2n0NatsMjdaKV3I4MdzfrwkbtdprjNjfl6qKrbz1uKtzT07iWg)
+据此初步分析，可以确定了超过50万张选票，已从川普总统转给了乔·拜登。除此之外，还删除了2,865,757票。请注意，这些数字我们并没有审核。
 
-### **应对措施：**
+在这些州，我们还没有在县级的选举做类似的分析，其也可能会影响全国的投票总数。还有更多工作要做。但是很明显，投票机和应用程序都产生了一些非常可疑的交易，需要进一步审查。
 
-因此，作者在选举日下午2:00左右使用借来的笔记本电脑，打了一个很短的文件，开始进行联邦诉讼，并要求联邦法院进行干预以禁止这些不正当行为。大约下午4:30，该文件已获得竞选机构的授权。
+我们很明确2020年选举中存在大量的欺诈行为。
 
-### **上诉成果：**
+没什么人粉乔·拜登，没什么人挺他，但他的投票数超过了川普总统带领的的美国历史上最伟大的竞选活动。我们还要相信乔·拜登击败了川普总统的同时，却失去了美国众议院和州议会的席位。极为不可能。
 
-联邦法官下令于下午5:30开始听证会，持续两个小时。在公开法庭上，法官强制要求选举委员会同意共和党在会议室中最多可以有60名代表。这不仅对共和党人是巨大的胜利，对任何希望拥有值得信任的投票结果的人来说也是胜利。
+看起来民主党人竭尽所能企图窃取这次选举。
 
-法官还命令选举委员会同意所有观察员，包括民主党人或共和党人，都可以到达离围栏6英尺的距离。当然，尽管民主党人声称，他们一直允许人们进入,并允许他们靠近围栏，但作者有很多证人准备作证这是虚假的。法官明确地告诉被告，如果他们没有履行在法庭上应许的承诺，法庭将有足够的权力让他们信守诺言。
+问题是，他们没想到川普总统的竞选活动创纪录的成功，没想到他们被抓住了。
 
-在获得选举委员会的同意后，法院驳回了总统动议（法院在达成当事方之间的协议时通常会这样做，这意味着法院不必发出可上诉，批准或拒绝该动议的命令，也意味着法院不必发表意见）。但这并不是意味着川普总统提出的制止选举欺诈的请求没有根据，然而美国有线电视新闻网（CNN）和其他主流媒体对此进行了虚假宣传。所有这些都是川普总统和所有相信开明政府的人的胜利。
+更多内幕还在继续。
 
-### **事后思考：**
+**关于投票机：**
 
-作者已经不再对来自CNN之类的反川普新闻消息而感到惊讶。但是他无法理解为什么宾夕法尼亚州的共和党领导人也表示,对于计算宾夕法尼亚州的选票时发生了错误或欺诈的想法是毫无根据的。
+2020大选中摇摆州使用的投票机叫Dominion，据报道称是丹佛的公司，是占美国市场88%的三家公司之一。南希·佩洛西（Nancy Pelosi）的前参谋长Nadeam Elshami是该公司（雇用的游说公司）的主要高管。 Feinstein参议员的丈夫Richard Blum是该公司的重要股东。
 
-如果一切都是真实的，究竟为什么民主党控制的政府会如此努力地将共和党人排除在统计选票的房门外？在当今世界上，每辆行驶在街道上的汽车都在录像，为什么不能在监督下，进行所有这些选票计数呢？他们到底需要隐藏什么？其他人已经收集了大量证据，表明确实有事情要隐藏，包括[这段视频](https://www.youtube.com/watch?v=g9_SgYJnbKo&amp;feature=youtu.be&amp;ab_channel=OneAmericaNewsNetwork)所显示的镜头，戴着印有乔·拜登口罩的政府官员在已经提交的邮寄投票中填写选票。
+Dominion Voting Systems首席执行官John Poulos确认Dominion制造的机器包括中国制造的部件，并指出使用外国供应商的问题并非投票设备行业独有。
 
-任何人都希望有一个合法的票数，不应让观察员离开计票的房间。但是由于某种原因，费城市派了三名律师参加听证会并试图说服一名联邦法官让他甚至不应该为川普总统的要求而费心，其中包括市律师本人。幸运的是，联邦法官没有采纳该建议，并要求选举委员会做正确的事。这是每个人的坚实胜利，除了那些想隐藏事实的人，这些隐藏工作都是由民主党人为拜登做的。
+2014年，Dominion在《华盛顿邮报》表中列出，向克林顿基金会捐赠了$ 25,001- $ 50,000。
+![](https://lh3.googleusercontent.com/iOnRSGxgst_aVfMGXZQN8ujS-YU-nRXa_-ojsM_oqULNuVkbZbeFMYgCgYBof5B2FDk4ydky3wNLJ_sl-wNdGozXoCFEcDLBcrsBopMPlgSkJA0iQdlqM_irpUKoSxkmiVxtCak)制造Dominion 投票机的丹佛公司，是占美国市场88%的三家公司之一。 
+Feinstein参议员的丈夫Richard Blum是该公司的重要股东
 
-[原文链接](https://thefederalist.com/2020/11/10/i-was-in-philadelphia-watching-fraud-happen-heres-how-it-went-down/)
+参考：
 
-翻译：Hope.N
-校对：文投
+11月9日: [https://www.thegatewaypundit.com/2020/11/breaking-exclusive-analysis-election-night-data-states-shows-millions-votes-either-switched-president-trump-biden-lost/](https://www.thegatewaypundit.com/2020/11/breaking-exclusive-analysis-election-night-data-states-shows-millions-votes-either-switched-president-trump-biden-lost/)
+
+11月10日: [https://www.thegatewaypundit.com/2020/11/breaking-exclusive-system-glitch-also-uncovered-wisconsin-reversal-19032-votes-removes-lead-joe-biden/](https://www.thegatewaypundit.com/2020/11/breaking-exclusive-system-glitch-also-uncovered-wisconsin-reversal-19032-votes-removes-lead-joe-biden/)
+
+投票机：[https://www.thegatewaypundit.com/2020/11/dominion-voting-machines-center-material-data-manipulation-concerns-2020-election-reasons/](https://www.thegatewaypundit.com/2020/11/dominion-voting-machines-center-material-data-manipulation-concerns-2020-election-reasons/)
+
+投票机：https://www.worldtribune.com/dominion-voting-systems-tied-to-clintons-widely-used-in-battleground-states/
 
 0

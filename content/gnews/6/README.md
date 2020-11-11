@@ -1,61 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【突发】【独家】：选举之夜数据分析显示，Dominion机票系统作弊，偷走或删除掉川普的选票多达几百万
-` The voice of San Francisco` [轉載自GNews](https://gnews.org/zh-hans/547848/)
+## 【突发】林郑请求人大常委DQ议员 即宣布杨岳桥郭荣铿郭家麒梁继昌失议员资格【追踪报道】
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/547953/)
 
-**【作者】Joe Hoft 来自11月10日的theGatewayPundit**
+整撰：文燕
 
-**【编辑翻译】：**Summer 喜马拉雅金喜农场
+覆核：文非
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11093413/image001-20.png)图片来源：苹果日报
+新华社报道，**全国人大常委通过，宣扬或支持「港独」主张、拒绝承认国家主权、寻求外国势力干预特区事务、或俱有其他危害国家安全行为的立法会议员，将不符合拥护《基本法》、效忠香港特别行政区的法定要求和条件，「一经依法认定，即时丧失立法会议员的资格。」**该决定同时适用于原定今年九月举行的立法会换届选举中，遭选举主任DQ 的立法会议员，以及今后参选或者出任立法会议员者。
 
-2020年大选以来，我们已经报道了数不清的媒体口中所谓的系统“小故障”。
+据香港多家新闻指，继新华社报道后，政府随即发稿宣布，根据人大常委会决定，公民党杨岳桥、郭荣铿、郭家麒及专业议政梁继昌，即时丧失立法会议员的资格。特区政府又指出，稍后会将全国人大常委会的决定刊宪。特首林郑月娥将于今日下午 2 点半会见传媒。
 
-昨晚，我们报道了威斯康星州的洛克县的一个所谓的系统“小故障”。证据表明，洛克县的似乎在川普和拜登之间的投票总数看起来被呼唤了。 川普总统被拿走了9,516票，给了拜登。 这样19,032票的区别，抹平了拜登在威斯康星州的领先优势。
+**据新华社刊出的人大决定全文，当中提及「上述议案是应香港特别行政区行政长官的请求而提出的」，即今次人大 DQ 非效忠议员决定，源于特首林郑月娥向人大提出请求。**
 
-在昨天的帖子中，我们还发现在密歇根州，宾夕法尼亚州和乔治亚州也出现过类似“故障”问题。
+全国人大常委会委员长栗战书在会议后表示，立法会议员是特区公职人员的重要组成部分，常委会一致认为作出决定是必要及适当，亦「符合包括香港同胞在内的全体中国人民的根本利益」，能够完善一国两制，维护国家安全及特区宪制秩序，有利于香港社会凝聚正能量、齐心协力提振经济、保障民生。
 
-今天我们得到的一份未经审计的数据分析表明，在所能找到的50州的数据中，寻找只跟总统角逐相关的系统故障和其他异常情况。
+前立法会议员朱凯迪在FB 上发文分析，决定提及「一经依法认定（不拥护《基本法》及效忠特区），即时丧失立法会议员的资格」，即意味着今次的人大常委「决定」和特首DQ「宣布」，都不能在香港法庭挑战，并且直接「绕过香港法庭和立法会按法例DQ 议员的权力」，只要任何一个行政官员，包括选举主任，「依法认定」相关人士不拥护《基本法》及效忠特区，就可直接宣布DQ。
 
-在这个网站上（https://thedonald.win/p/11Q8O2wesk/happening-calling-every-pede-to-/），一个网名叫蜈蚣（PEDE）的人看到了the GatewayPundit的帖子后决定自己进行分析。
+**人大常委会决定全文：**
 
-作者说他列举的是从川普换成拜登的选票，以及是Dominion（全美国许多州使用的投票机）删除掉的选票。他特别提醒我们：这里的数据并没有考虑那以十万计的被销毁，燃烧和撕碎的的选票，和那成千上万的只标注了拜登的作假选票。作者声称他的工作已经过验证，但我们尚未验证结果，因此我们目前将他的结果称为“未经审计”。
+全国人民代表大会常务委员会关于香港特别行政区立法会议员资格问题的决定
 
-作者获得的数据是在选举之夜被《纽约时报》拿到后来被传播的数据。通过检查数据，作者找到了一处选票从川普改为拜登的实例，因此他决定对整个数据集进行分析，首先是使用了Dominion投票机的州。作者声称，这些数据来自Edison Research，并且至少被ABC新闻，CBS新闻，CNN和NBC新闻使用来报道选举。它也用于纽约时报的网站，可能还用于其他网站。
+（2020年11月11日第十三届全国人民代表大会常务委员会第二十三次会议通过）
 
-各州的数据（未审计）如下：
-![](https://lh5.googleusercontent.com/wFaHlDWl3-wXc7xPOmXK2_ke12NlAX1FvNQnOHGsuCkALd_DXbCLjQCLKrvRMWFX_Zyrk1g8x7v5jESuk5EQdvTsn8y-1A7eeIM8XJzQld3sVMbPx5p6sQZDzzW5glyAVIWMK6Y)![](https://lh4.googleusercontent.com/4IXafR0LEuunNsyMrxqToNpuBABqqRsgzDE9BDUbM67iq42Vorim28D4NnkTGjgAcZYpKcIGWHj76Nu2H7Mhc2n0NatsMjdaKV3I4MdzfrwkbtdprjNjfl6qKrbz1uKtzT07iWg)
-据此初步分析，可以确定了超过50万张选票，已从川普总统转给了乔·拜登。除此之外，还删除了2,865,757票。请注意，这些数字我们并没有审核。
+第十三届全国人民代表大会常务委员会第二十三次会议审议了《国务院关于提请就香港特别行政区立法会议员资格问题作出决定的议案》。上述议案是应香港特别行政区行政长官的请求而提出的。会议认为，为了全面准确贯彻落实“一国两制”方针和《中华人民共和国香港特别行政区基本法》，维护国家主权、安全和发展利益，维护香港长期繁荣稳定，必须确保香港特别行政区有关公职人员包括立法会议员符合拥护中华人民共和国香港特别行政区基本法、效忠中华人民共和国香港特别行政区的法定要求和条件。为此，全国人民代表大会常务委员会同意国务院2020年11月7日提出的议案，根据《中华人民共和国宪法》第五十二条、第五十四条、第六十七条第一项的规定和《中华人民共和国香港特别行政区基本法》、《全国人民代表大会关于建立健全香港特别行政区维护国家安全的法律制度和执行机制的决定》、《中华人民共和国香港特别行政区维护国家安全法》的有关规定以及《全国人民代表大会常务委员会关于〈中华人民共和国香港特别行政区基本法〉第一百零四条的解释》、《全国人民代表大会常务委员会关于香港特别行政区第六届立法会继续履行职责的决定》 ，作出如下决定：
 
-在这些州，我们还没有在县级的选举做类似的分析，其也可能会影响全国的投票总数。还有更多工作要做。但是很明显，投票机和应用程序都产生了一些非常可疑的交易，需要进一步审查。
+一、香港特别行政区立法会议员，因宣扬或者支持“港独”主张、拒绝承认国家对香港拥有并行使主权、寻求外国或者境外势力干预香港特别行政区事务，或者俱有其他危害国家安全等行为，不符合拥护中华人民共和国香港特别行政区基本法、效忠中华人民共和国香港特别行政区的法定要求和条件，一经依法认定，即时丧失立法会议员的资格。
 
-我们很明确2020年选举中存在大量的欺诈行为。
+二、本决定适用于在原定于2020年9月6日举行的香港特别行政区第七届立法会选举提名期间，因上述情形被香港特别行政区依法裁定提名无效的第六届立法会议员。
 
-没什么人粉乔·拜登，没什么人挺他，但他的投票数超过了川普总统带领的的美国历史上最伟大的竞选活动。我们还要相信乔·拜登击败了川普总统的同时，却失去了美国众议院和州议会的席位。极为不可能。
+今后参选或者出任立法会议员的，如遇有上述情形，均适用本决定。
 
-看起来民主党人竭尽所能企图窃取这次选举。
+三、依据上述规定丧失立法会议员资格的，由香港特别行政区政府宣布。
 
-问题是，他们没想到川普总统的竞选活动创纪录的成功，没想到他们被抓住了。
+**战友点评：**
 
-更多内幕还在继续。
+2019年的送中条例，2020年国安法的颁布，在制度上，中央政府对于香港民选的立法会议员用尽一切方法进行打击。
 
-**关于投票机：**
+对于人大常委会通过有关香港特区立法会议员资格问题的决定，**港大法律学院公法讲座教授陈文敏**形容有关决定是无法无天，指出即使有人违反《港区国安法》亦要经法庭审讯。他强调是中央行使武断权力作决定，不顾香港法律及《基本法》，便突然取消议员资格，质疑选举制度还有什么意思。
 
-2020大选中摇摆州使用的投票机叫Dominion，据报道称是丹佛的公司，是占美国市场88%的三家公司之一。南希·佩洛西（Nancy Pelosi）的前参谋长Nadeam Elshami是该公司（雇用的游说公司）的主要高管。 Feinstein参议员的丈夫Richard Blum是该公司的重要股东。
+据新华社刊出的人大决定全文，清清楚楚地写明「上述议案是应香港特别行政区行政长官的请求而提出的」，即今次人大DQ非效忠议员决定，源于特首林郑月娥向人大提出请求。
 
-Dominion Voting Systems首席执行官John Poulos确认Dominion制造的机器包括中国制造的部件，并指出使用外国供应商的问题并非投票设备行业独有。
+林郑一手把香港司法制度拱手献给中共，出卖了香港民选的立法会议员，林郑必须向历史和所有的香港人做出交代。
 
-2014年，Dominion在《华盛顿邮报》表中列出，向克林顿基金会捐赠了$ 25,001- $ 50,000。
-![](https://lh3.googleusercontent.com/iOnRSGxgst_aVfMGXZQN8ujS-YU-nRXa_-ojsM_oqULNuVkbZbeFMYgCgYBof5B2FDk4ydky3wNLJ_sl-wNdGozXoCFEcDLBcrsBopMPlgSkJA0iQdlqM_irpUKoSxkmiVxtCak)制造Dominion 投票机的丹佛公司，是占美国市场88%的三家公司之一。 
-Feinstein参议员的丈夫Richard Blum是该公司的重要股东
+以上观点仅代表笔者本人
 
-参考：
+资料来源：立场新闻、香港电台网站
 
-11月9日: [https://www.thegatewaypundit.com/2020/11/breaking-exclusive-analysis-election-night-data-states-shows-millions-votes-either-switched-president-trump-biden-lost/](https://www.thegatewaypundit.com/2020/11/breaking-exclusive-analysis-election-night-data-states-shows-millions-votes-either-switched-president-trump-biden-lost/)
+[https://www.thestandnews.com/politics/%E4%BA%BA%E5%A4%A7%E5%B8%B8%E5%A7%94%E6%8E%88%E6%AC%8A-dq-%E9%9D%9E%E6%95%88%E5%BF%A0%E8%AD%B0%E5%93%A1-%E6%B8%AF%E5%BA%9C%E5%8D%B3%E5%AE%A3%E5%B8%83%E6%A5%8A%E5%B2%B3%E6%A9%8B%E9%83%AD%E6%A6%AE%E9%8F%97%E9%83%AD%E5%AE%B6%E9%BA%92%E6%A2%81%E7%B9%BC%E6%98%8C%E5%A4%B1%E8%AD%B0%E5%93%A1%E8%B3%87%E6%A0%BC/](https://www.thestandnews.com/politics/%E4%BA%BA%E5%A4%A7%E5%B8%B8%E5%A7%94%E6%8E%88%E6%AC%8A-dq-%E9%9D%9E%E6%95%88%E5%BF%A0%E8%AD%B0%E5%93%A1-%E6%B8%AF%E5%BA%9C%E5%8D%B3%E5%AE%A3%E5%B8%83%E6%A5%8A%E5%B2%B3%E6%A9%8B%E9%83%AD%E6%A6%AE%E9%8F%97%E9%83%AD%E5%AE%B6%E9%BA%92%E6%A2%81%E7%B9%BC%E6%98%8C%E5%A4%B1%E8%AD%B0%E5%93%A1%E8%B3%87%E6%A0%BC/)
 
-11月10日: [https://www.thegatewaypundit.com/2020/11/breaking-exclusive-system-glitch-also-uncovered-wisconsin-reversal-19032-votes-removes-lead-joe-biden/](https://www.thegatewaypundit.com/2020/11/breaking-exclusive-system-glitch-also-uncovered-wisconsin-reversal-19032-votes-removes-lead-joe-biden/)
-
-投票机：[https://www.thegatewaypundit.com/2020/11/dominion-voting-machines-center-material-data-manipulation-concerns-2020-election-reasons/](https://www.thegatewaypundit.com/2020/11/dominion-voting-machines-center-material-data-manipulation-concerns-2020-election-reasons/)
-
-投票机：https://www.worldtribune.com/dominion-voting-systems-tied-to-clintons-widely-used-in-battleground-states/
+[https://news.rthk.hk/rthk/ch/component/k2/1559448-20201111.htm](https://news.rthk.hk/rthk/ch/component/k2/1559448-20201111.htm)
 
 0
