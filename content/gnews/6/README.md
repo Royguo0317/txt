@@ -1,59 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福克斯收视巨人塔克·卡尔森怒斥尼尔·卡夫图断播可耻
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/547315/)
+## 【突发】【独家】：选举之夜数据分析显示，Dominion机票系统作弊，偷走或删除掉川普的选票多达几百万
+` The voice of San Francisco` [轉載自GNews](https://gnews.org/zh-hans/547848/)
 
-编译：玫瑰天空
+**【作者】Joe Hoft 来自11月10日的theGatewayPundit**
 
-在周一与选举有关的新闻发布会上，福克斯[新闻主持人尼尔·卡夫图（Neil Cavuto）](https://bigleaguepolitics.com/fox-news-cuts-off-white-house-press-secretary-kayleigh-mcenany-when-addressing-fraud-allegations/)切断了川普选举阵营 [白宫新闻秘书凯里·麦卡尼（Kayleigh McEnany）](https://bigleaguepolitics.com/fox-news-cuts-off-white-house-press-secretary-kayleigh-mcenany-when-addressing-fraud-allegations/)的新闻稿播出。收视巨人塔克·卡尔森（Tucker Carlson）抨击了卡夫图和及其黄金时段节目。
+**【编辑翻译】：**Summer 喜马拉雅金喜农场
 
-卡尔森说：“在民主国家，您不能忽视公民提出的诚实问题。你不准 您不能随意地将他们视为疯狂和不道德的询问。您不能仅仅摆脱自己不喜欢的报道。您不能简单地告诉人们接受结果，因为武力在民主国家是行不通的。那是专政。”
+2020年大选以来，我们已经报道了数不清的媒体口中所谓的系统“小故障”。
 
-他还总结道：“在自由社会中，您必须让公众相信自己的合法性。您必须有理由赢得他们。民主永远是自愿的安排。告诉选民闭嘴是远远不够的。”
+昨晚，我们报道了威斯康星州的洛克县的一个所谓的系统“小故障”。证据表明，洛克县的似乎在川普和拜登之间的投票总数看起来被呼唤了。 川普总统被拿走了9,516票，给了拜登。 这样19,032票的区别，抹平了拜登在威斯康星州的领先优势。
 
-整个卡尔森真的很生气，他的怒斥可以在这里看到：
+在昨天的帖子中，我们还发现在密歇根州，宾夕法尼亚州和乔治亚州也出现过类似“故障”问题。
 
+今天我们得到的一份未经审计的数据分析表明，在所能找到的50州的数据中，寻找只跟总统角逐相关的系统故障和其他异常情况。
 
+在这个网站上（https://thedonald.win/p/11Q8O2wesk/happening-calling-every-pede-to-/），一个网名叫蜈蚣（PEDE）的人看到了the GatewayPundit的帖子后决定自己进行分析。
 
-> TUCKER takes aim at Neil Cavuto for cutting away from the Trump campaign's press conference today:
-> 
-> "You can't just cut away from coverage you don't like. Force doesn't work in a democracy. That's a dictatorship. Telling voters to shut up is never enough." [pic.twitter.com/uxFbxdIJFR](https://t.co/uxFbxdIJFR)
-> — August Takala (@AugustTakala) [November 10, 2020](https://twitter.com/AugustTakala/status/1325976743786799104?ref_src=twsrc%5Etfw)
+作者说他列举的是从川普换成拜登的选票，以及是Dominion（全美国许多州使用的投票机）删除掉的选票。他特别提醒我们：这里的数据并没有考虑那以十万计的被销毁，燃烧和撕碎的的选票，和那成千上万的只标注了拜登的作假选票。作者声称他的工作已经过验证，但我们尚未验证结果，因此我们目前将他的结果称为“未经审计”。
 
+作者获得的数据是在选举之夜被《纽约时报》拿到后来被传播的数据。通过检查数据，作者找到了一处选票从川普改为拜登的实例，因此他决定对整个数据集进行分析，首先是使用了Dominion投票机的州。作者声称，这些数据来自Edison Research，并且至少被ABC新闻，CBS新闻，CNN和NBC新闻使用来报道选举。它也用于纽约时报的网站，可能还用于其他网站。
 
+各州的数据（未审计）如下：
+![](https://lh5.googleusercontent.com/wFaHlDWl3-wXc7xPOmXK2_ke12NlAX1FvNQnOHGsuCkALd_DXbCLjQCLKrvRMWFX_Zyrk1g8x7v5jESuk5EQdvTsn8y-1A7eeIM8XJzQld3sVMbPx5p6sQZDzzW5glyAVIWMK6Y)![](https://lh4.googleusercontent.com/4IXafR0LEuunNsyMrxqToNpuBABqqRsgzDE9BDUbM67iq42Vorim28D4NnkTGjgAcZYpKcIGWHj76Nu2H7Mhc2n0NatsMjdaKV3I4MdzfrwkbtdprjNjfl6qKrbz1uKtzT07iWg)
+据此初步分析，可以确定了超过50万张选票，已从川普总统转给了乔·拜登。除此之外，还删除了2,865,757票。请注意，这些数字我们并没有审核。
 
-他指出，Cavuto和福克斯新闻在当天早些时候剪切并决定审查McEnany的言论 ，
+在这些州，我们还没有在县级的选举做类似的分析，其也可能会影响全国的投票总数。还有更多工作要做。但是很明显，投票机和应用程序都产生了一些非常可疑的交易，需要进一步审查。
 
+我们很明确2020年选举中存在大量的欺诈行为。
 
-```
-为了跟随诡计说拜登当选总统，这种行为是可耻的。
-```
+没什么人粉乔·拜登，没什么人挺他，但他的投票数超过了川普总统带领的的美国历史上最伟大的竞选活动。我们还要相信乔·拜登击败了川普总统的同时，却失去了美国众议院和州议会的席位。极为不可能。
 
+看起来民主党人竭尽所能企图窃取这次选举。
 
+问题是，他们没想到川普总统的竞选活动创纪录的成功，没想到他们被抓住了。
 
+更多内幕还在继续。
 
-> FOX NEWS' NEIL CAVUTO CUTS TRUMP CAMPAGIN PRESSER: "Whoa, whoa, whoa. I just think we have to be very clear…She's charging the other side as welcoming fraud and illegal voting, unless she has more details to back that up, I can't in good countenance continue to show you this." [pic.twitter.com/SE9BGKdh75](https://t.co/SE9BGKdh75)
-> — Breaking911 (@Breaking911) [November 9, 2020](https://twitter.com/Breaking911/status/1325918520107028481?ref_src=twsrc%5Etfw)
+**关于投票机：**
 
+2020大选中摇摆州使用的投票机叫Dominion，据报道称是丹佛的公司，是占美国市场88%的三家公司之一。南希·佩洛西（Nancy Pelosi）的前参谋长Nadeam Elshami是该公司（雇用的游说公司）的主要高管。 Feinstein参议员的丈夫Richard Blum是该公司的重要股东。
 
+Dominion Voting Systems首席执行官John Poulos确认Dominion制造的机器包括中国制造的部件，并指出使用外国供应商的问题并非投票设备行业独有。
 
-卡尔森正在启发美国爱国者觉醒的时期，在这个时代，美国正被文明的敌人包围。
+2014年，Dominion在《华盛顿邮报》表中列出，向克林顿基金会捐赠了$ 25,001- $ 50,000。
+![](https://lh3.googleusercontent.com/iOnRSGxgst_aVfMGXZQN8ujS-YU-nRXa_-ojsM_oqULNuVkbZbeFMYgCgYBof5B2FDk4ydky3wNLJ_sl-wNdGozXoCFEcDLBcrsBopMPlgSkJA0iQdlqM_irpUKoSxkmiVxtCak)制造Dominion 投票机的丹佛公司，是占美国市场88%的三家公司之一。 
+Feinstein参议员的丈夫Richard Blum是该公司的重要股东
 
-如果福克斯新闻公司因为这类事件抛弃卡尔森，那可能是自创办人鲁珀特·默多克（Rupert Murdoch）退休以来，这家陷入困境的媒体自身的致命打击。
+参考：
 
-因为就卡尔森而言，他可能对Fox News并不留恋。他是一个媒体巨人，一个迅速成长为以自己为品牌核心基础的媒体人。
+11月9日: [https://www.thegatewaypundit.com/2020/11/breaking-exclusive-analysis-election-night-data-states-shows-millions-votes-either-switched-president-trump-biden-lost/](https://www.thegatewaypundit.com/2020/11/breaking-exclusive-analysis-election-night-data-states-shows-millions-votes-either-switched-president-trump-biden-lost/)
 
-《福克斯新闻》主持人塔克·卡尔森（Tucker Carlson）带来了数十个百万级别福克斯新闻。
+11月10日: [https://www.thegatewaypundit.com/2020/11/breaking-exclusive-system-glitch-also-uncovered-wisconsin-reversal-19032-votes-removes-lead-joe-biden/](https://www.thegatewaypundit.com/2020/11/breaking-exclusive-system-glitch-also-uncovered-wisconsin-reversal-19032-votes-removes-lead-joe-biden/)
 
-[根据MediaPost的数据](https://www.mediapost.com/publications/article/355372/cable-tv-news-nets-grow-31-in-may-july-ad-revenue.html?dg)，黄金时段有线电视新闻节目的广告收入在过去三个月中增长了31.5％。由于卡尔森的主导以及肖恩·汉尼提和劳拉·英格拉汉姆的成功，福克斯新闻在这段时间表现尤其出色，上升了44.3％，达到7970万美元。
+投票机：[https://www.thegatewaypundit.com/2020/11/dominion-voting-machines-center-material-data-manipulation-concerns-2020-election-reasons/](https://www.thegatewaypundit.com/2020/11/dominion-voting-machines-center-material-data-manipulation-concerns-2020-election-reasons/)
 
-标准媒体指数（Standard Media Index）的Accu-TV说，“塔克·卡尔森（Tucker Carlson Tonight）”的时段收入为3,720万美元，仅次于“英格拉姆角”和“汉妮”。在此期间，随着总统选举成为焦点，公众越来越关注新闻，其他更多左倾新闻媒体也出现了增长。
+投票机：https://www.worldtribune.com/dominion-voting-systems-tied-to-clintons-widely-used-in-battleground-states/
 
-近期的类似事件引发福克斯新闻（Fox News）正在迅速减少其传统上保守的观众。美国人民仍然怀疑媒体所宣布的获得选举胜利的任何候选人，而法律上的挑战行动 仍有待被越来越多地通过Newsmax和OANN电视等渠道传播更多的新闻。
-
-新中国联邦的GTV和GNEWS平台也是近期媒体届冉冉升起的一颗新星。但是，GTV和GNEWS平台向世界民众传播新闻和真相的巨量最新文章，视频都受到来自于传统浊流媒体平台比如推特，脸书之流的严重打击。几乎所有文章都被屏蔽和拒绝发布，发布相关文章的大量账号被野蛮无理的关闭和限制使用。推特脸书采取的此类新闻自由压制行为助长了试图掩盖真相的邪恶势力，但是，所有事件和时间的曲折并不能改变一切最终的结局。心存迷茫和疑问的民众终究会开始探寻真相，并最终找到真相！
-
-[引用原文：](https://bigleaguepolitics.com/tucker-carlson-accuses-fox-news-of-perpetrating-a-dictatorship-for-censoring-white-house-press-secretary/)
-
-2+
+0
