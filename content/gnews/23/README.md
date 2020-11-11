@@ -1,91 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 乔治·索罗斯（George Soros）是否正在操纵投票机？
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/546678/)
+## 爆料革命大讲堂～遇见你我是如此幸运
+` JP007` [轉載自GNews](https://gnews.org/zh-hans/546833/)
 
-译者：TS2020相聚盘古
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11015420/%E7%88%86%E6%96%99%E9%9D%A9%E5%91%BD%E5%A4%A7%E8%AE%B2%E5%A0%82%EF%BD%9E%E9%81%87%E8%A7%81%E4%BD%A0%E6%88%91%E6%98%AF%E5%A6%82%E6%AD%A4%E5%B9%B8%E8%BF%90.png)
+**作者：日本京都富士会华夏的文丽**
 
-原文来源美国自由报告：
+知道爆料革命是在今年的二月份，那一艘豪华邮轮钻石公主号到达日本，之后才知道了什么是新型冠状病毒疫情爆发，从传统媒体上了解的信息不能满足我对探索真相的欲望之后就不断地在社交媒体软件上寻求真相，于是知道了爆料革命大讲堂。
 
+爆料课堂主讲教授文贵先生、路德先生、面具先生、大卫先生，开启了我人生的爆料革命大学堂课程网课人生。他们讲述的内容颠覆了我的认知，于是我开始重新思索人生，寻找一些以前一直想要寻找的答案。听懂什么是蓝金黄，什么是双修，也明白了中国共产党不等于祖国，中国共产党不能代表广大人民老百姓。于是恍然大悟，也庆幸自己从此不再待在他们造好的井里只做一只相互疏离的青蛙。
 
+也渐渐明白现在有很多国家虚有民主之名并无民主之实。连之前我一直很信任的日本政府，也一直在欺骗和误导普通老百姓，接近10个月的爆料革命讲堂让我收获了很多，也让我明白了从现在开始自己应该要去追求什么，明白了现在当前世界各地的混乱局面，罪魁祸首其实是在自己的祖国那片我热爱的土地上放肆的作威作福的靠虚假谎言骗取人民信任的邪恶政权。但是在爆料革命队伍里，却有很多正义和良善的华人，现居在五湖四海却都是曾经拥有过同一个母亲，现在因为同一个信念，同一个目标各自在努力令人感动，也受到了鼓舞。
 
-> [Are the Voting Machines Being Rigged By George Soros?](https://www.americanlibertyreport.com/articles/are-the-voting-machines-being-rigged-by-george-soros/)
+就像一个大家庭的孩子们，因为追逐各自的梦想奔向五湖四海，但因母亲受难又重新凝聚在一起。爆料革命就像飞鸽传书，当散落在世界各地的姐妹兄弟彼此取得联系的时候，每一个人都觉得自己不再孤单了，充满了力量，当然我也是其中之一。所以我感觉幸运，当我们都为同一个目标努力奋斗的时候，发现原来我们还有些潜能是未知的，一起描绘美好的未来实现心中美好的喜马拉雅。
 
+爆料革命大讲堂，拓宽了我的视野，凝聚了华人力量，大家亲如手足，让我重新体会到了大爱，爱手足爱故土珍惜朋友伙伴和志同道合的朋友，也重新审视自己的人生，我不再害羞，我要诚实地地表达，我爱你，爆料革命队伍，遇见你我是如此幸运。感谢，爱，给予，珍惜。也期待共同的喜马拉雅。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11011656/d1efe6df-99b1-414b-9f69-6ec660a21fe7.jpg)
-在所有可能改变即将举行的总统大选结果的邪恶计划和特技中，也许没有一个威胁或后果如此严重，以至于可能操纵多达15个州的电子投票机来确保民主党候选人希拉里克林顿是赢家。
-
-有问题的许多机器是由一家名为Smartmatic Corporation的私人公司生产的，该公司声称总部位于英国，但通过委内瑞拉，巴巴多斯和荷兰的控股公司来控制。
-
-该公司的创始人是委内瑞拉，这是不是巧合，因为该机器是在一些在该国大规模山体滑坡选举时，总统查韦斯在该国被重选在2000年使用。
-
-当Smartmatic的机器（其中许多是后来改装的赌博设备）于2004年在南美国家举行的全民投票中使用时，Smartmatic便开始引起人们的关注。
-
-Smartmatic机器通过独立地对结果进行制表，然后将这些结果通过加密的消息传递到中央服务器来工作。
-
-举行全民公决后，独立监督员声称存在广泛的欺诈行为，学术期刊上的同行评审文章指出，这种欺诈行为确实确实发生了，并且这种欺诈行为很可能是由远程控制实施的。
-
-尽管有这些指控，来自欧洲联盟和美洲国家组织（OAS）的国际选举监督员不同意这些相同的独立分析家，并且政府允许其结果（查韦斯总统的政府任职）维持不变。
-
-Smartmatic随后与委内瑞拉政府赢得了数百万美元的合同，该合同的机器见证了社会主义领导人在2013年因癌症去世之前的巨大胜利。
-
-Smartmatic于2000年在美国特拉华州正式注册成立，2004年之后，其投票机被用于巴西（在现任被驱逐和腐败的总统迪尔玛·罗塞夫总统的选举中），墨西哥（在非常不受欢迎的总统恩里克·佩尼亚·涅托），阿根廷（腐败色彩的总统克里斯蒂娜·费尔南德斯·基什内尔当选的选举）和菲律宾（在有争议的新总统罗德里戈·达特选举）。
-
-应当指出，Smartmatic在美国的首批部署之一是在库克县，当时是伊利诺伊州参议员的巴拉克·奥巴马（Barack Obama）的故乡。 2006年3月，发现传输结果的Smartmatic软件存在问题。事情变得如此糟糕，以至于当地的一名der木匠将这件事称为“国际阴谋”。尽管如此，伊利诺伊州仍在使用这些机器。
-
-在2016年美国大选中，Smartmatic的机器可能会在伊利诺伊州，威斯康星州，华盛顿州，俄勒冈州，新泽西州，密苏里州，路易斯安那州，加利福尼亚州，哥伦比亚特区，弗吉尼亚州，宾夕法尼亚州，内华达州，密歇根州，佛罗里达州，科罗拉多州和亚利桑那。后七个州至关重要，因为它们是摇摆州，这将大大影响每个总统候选人的选举团总数。
-
-Smartmatic的网站指出，在2006年至2015年的上一次美国大选中，已经部署了约57,000台机器，登记了307个县的多达3500万公民的投票。
-
-在2006年之前，前身公司Sequoia Voting Systems在美国大选中使用了其机器。2005年，Smartmatic收购了Sequoia，然后在两年后为公司的机器赋予了Smartmatic的许多技术后，将其卖给了一群投资者。
-
-红杉资本的投资者是否也是Smartmatic的所有者还不得而知。但是，2008年发布的法院文件证实，Smartmatic在红杉公司中仍然拥有重大的财务利益。实际上，红杉资本的首席执行官兼总裁是Smartmatic前高管杰克·布莱恩（Jack Blaine），两家公司之间拥有重要的共享知识产权。
-
-根据Wikipedia的说法，2005年以后，“ Smartmatic分配了很大一部分的开发和管理团队，致力于改造红杉的一些老式的老式投票机，并用前卫的专有功能和开发替换其技术，从而新的高科技产品。”
-
-维基百科报道，在2000年有争议的总统选举中，红杉的较旧机器造成了佛罗里达州的“悬吊乍得”问题，一名红杉工人推测这是有目的的-“目的是抹黑打孔卡选票。从而促进电子投票机的销售。”他说。
-
-原文链接：
-
-
-
-> [Are the Voting Machines Being Rigged By George Soros?](https://www.americanlibertyreport.com/articles/are-the-voting-machines-being-rigged-by-george-soros/)
-
-
-
-Are the Voting Machines Being Rigged By George Soros?
-
-Of all of the nefarious schemes and stunts with the potential to change the outcome of the upcoming presidential election, perhaps none is so threatening or consequential as the possibility that electronic voting machines in as many as 15 states could be rigged to ensure that Democratic nominee Hillary Clinton is the winner.
-
-Many of the machines in question are made by a private company called Smartmatic Corporation, a company that claims to be based in the United Kingdom but is controlled through holding companies in Venezuela, Barbados and the Netherlands.
-
-The founders of the company are Venezuelan, which is not a coincidence, given that the machines were used in a number of massive landslide elections in that country when President Hugo Chavez was reelected in that country in the 2000s.
-
-Smartmatic first came to prominence when its machines (many of which were then retrofitted gambling devices) were used in a referendum held in the South American country in 2004.
-
-Smartmatic machines work by tabulating results independently and then communicating those results to a central server via encrypted messages.
-
-In the wake of the referendum, independent monitors claimed widespread fraud, and peer-reviewed articles in academic journals stated that it was likely fraud had indeed taken place and that it was possible that this fraud had been committed by remote control.
-
-Despite these accusations, international election monitors from the European Union and the Organization of American States (OAS) disagreed with these same independent analysts, and the government allowed the result (the administration of President Chavez staying in office) to stand.
-
-Smartmatic then won a multimillion-dollar contract with the Venezuelan government that saw its machines tabulate huge victories for the Socialist leader before his death from cancer in 2013.
-
-Smartmatic was officially incorporated in 2000 in Delaware in the U.S., and after 2004, its voting machines were used in a number of controversial leadership races in Brazil (in the election of now ousted [and corrupt] President Dilma Rousseff), Mexico (in the election of highly unpopular president Enrique Peña Nieto), Argentina (in the election of corruption-tinged President Christina Fernández de Kirchner) and the Philippines (in the election of controversial new President Rodrigo Duterte).
-
-It should be noted that one of Smartmatic’s first deployments in the United States was in Cook County, the home of Barack Obama when he was a Senator from Illinois. In March 2006, it was discovered that a problem existed with the Smartmatic software that transferred the results. Things got so bad that one local alderman called the affair an “international conspiracy.” Despite this, the state of Illinois continued to use the machines.
-
-In the 2016 general U.S. election, Smartmatic’s machines potentially could be used in parts of Illinois, Wisconsin, Washington, Oregon, New Jersey, Missouri, Louisiana, California, the District of Columbia, Virginia, Pennsylvania, Nevada, Michigan, Florida, Colorado and Arizona. These latter seven states are crucial because they’re swing states that will significantly affect the electoral college totals for each presidential candidate.
-
-Smartmatic’s website notes that some 57,000 of its machines have been deployed in past U.S. elections between 2006 and 2015, registering the vote of as many as 35 million citizens in 307 counties.
-
-Prior to 2006, a predecessor company, Sequoia Voting Systems, had its machines used in U.S. elections, and in 2005, Smartmatic acquired Sequoia and then sold it to a group of investors two years later after endowing the firm’s machines with much of Smartmatic’s technology.
-
-Whether Sequoia’s investors also are owners of Smartmatic is unknown; however, court documents released in 2008 confirmed that Smartmatic still had a significant financial interest in Sequoia. In fact, the CEO and President of Sequoia is a former Smartmatic executive, Jack Blaine, and there is significant shared intellectual property between the companies.
-
-According to Wikipedia, after 2005, “Smartmatic assigned a major portion of its development and managerial teams, dedicated to revamping some of Sequoia’s old-fashioned, legacy voting machines, and replacing their technology with avant-garde proprietary features and developments, which resulted in new, high-tech products.”
-
-Wikipedia reports that Sequoia’s older machines were responsible for the “hanging chad” problems in the state of Florida in the contested presidential election of 2000 and that one Sequoia worker speculated that this was done on purpose — “the object was to discredit punch-card ballots and thus promote sales of electronic voting machines,” he stated.
-
-0
+1+

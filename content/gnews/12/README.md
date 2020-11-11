@@ -1,15 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 优酷总裁——一个民营企业老总被认定受贿罪，何其荒唐！
-` Ronald` [轉載自GNews](https://gnews.org/zh-hans/546925/)
+## 【路德社精选】11/7/2020早间节目
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/546923/)
 
-内新闻/素材：庚子 校对：老白
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11030112/image0-57.jpg)
-《南方都市报》消息，受贿855万、包养情人，原优酷总裁杨伟东一审被判刑七年。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11025814/Screenshot_20201111_100832.jpg)
-近日，杭州市余杭区人民法院公布《杨某非国家工作人员受贿罪一审刑事判决书》，据媒体报道，经多方证实，该判决书中的杨某即指向原阿里大文娱优酷事业群总裁、阿里音乐CEO杨伟东。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11025955/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2020-11-11-155935.jpg)
-文章观点：荒唐无耻的社会主义“法律”，这等同于任何私人企业接受合作伙伴的赠送属于违法。之所以小微企业的“受贿”行为不被追究，是你的体量不配被“国有化”。私人企业连“婊子”都不如，随时随地被“强奸”。
+听写/校对：瓦者 摘要：恩真
 
-2+
+文宣图：艾伦 出品：首尔喜韩农场
+
+摘要：
+
+1.美国有很多家庭妇女在买枪。
+2.Powell女士呼吁川普总统彻查Scorecard。
+3.硬盘不早爆让民主党措手不及。
+4.丑闻这条大鱼钓出了Scorecard这小鱼暗招。
+5.拜登选票瞬间增加彻底暴露。
+6.八年前南方公园动漫讲述过造假选票。
+7.美国大选阶段在疫情防护方面很脆弱。
+8.当你受考验时候还信才叫信仰。
+
+文宣图：
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11033940/1-43.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11034531/2-58.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11034942/3-45.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11034930/4-21.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11035459/5-19.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11035506/6-20.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11035803/7-13.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11035806/8-12.png)
+0

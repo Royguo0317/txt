@@ -1,34 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 活动人士呼吁在11月14日举行「MAGA（让美国再次伟大）百万人大集会
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/546860/)
+## 川普总统对宾夕法尼亚州的“双层”投票系统提起诉讼
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/546961/)
 
-翻译：康州农场-Mike li
+多伦多加喜农场 大地鲲鹏
 
-校对：康州农场-V
+校对上传 XM
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11032825/%E5%9B%BE%E7%89%871-15.jpg)图片来源：blog.sololaki
+11月9日（UPI）-川普总统的竞选团队星期一在宾夕法尼亚州提起诉讼（[PDF](https://cdn.donaldjtrump.com/public-files/press_assets/2020-11-09-complaint-as-filed.pdf)），反对该州使用邮寄选票，声称它在大选中创建了“两层”（双标准）投票系统。
 
-审核：康州农场-Turemanman
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11020751/%E5%9B%BE%E7%89%876-6.png)
-*美国总统唐纳德-川普（Donald Trump）在参加 “让美国再次伟大 “竞选集会时，向人群抛出一顶帽子。(图片：Drew Angerer/Getty Images)*
-川普总统的支持者呼吁所有美国爱国者加入即将于本周二在华盛顿举行的集会， 几个保守派团体宣布将于本周六在首都举行示威活动。
+此次在宾夕法尼亚州中部地区提起的诉讼中，州务卿凯西·博克瓦尔（Kathy Boockvar）和七个县的选举委员会成为被告，指控他们对待现场选民与通过邮寄方式提交的选民持不同标准。
 
+诉讼还指控被告只向候选人提供“没有有意义的机会或没有实际的机会来审查和评估邮寄选票”，从而使选举处于“隐秘”状态。阿勒格尼和费城因邮寄和缺席选票的计票过程被指控，“本应该进行公开、透明的流程以增强宾夕法尼亚州全新投票系统的信誉，但实际上682479张选票接收、审核、开封和制表的流程被隐藏了起来。“
 
+川普总统的竞选团队表示，观察员被安排在远离点票和计票工作区域的房间。主要的几个民主党县，在选票截止日之前检查了邮寄选票存在的瑕疵，并通知这些选民通过亲自投票或取消其先前邮寄的选票的方式来修复选票有效性。
 
-> See you all this Saturday at the Freedom Plaza at noon. 
-> 
-> This election is not over until every legal vote is counted & audited. [#StopTheSteal](https://twitter.com/hashtag/StopTheSteal?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/ukfdyHPPpA](https://t.co/ukfdyHPPpA)
-> — #ThePersistence (@ScottPresler) [November 11, 2020](https://twitter.com/ScottPresler/status/1326345137694367749?ref_src=twsrc%5Etfw)
+川普总统的竞选团队要求法院下达紧急命令，禁止该州对选举结果进行认证。竞选总法律顾问马特·摩根（Matt Morgan）在接受采访时说：“我们认为，这种双标准的选举制度会导致在没有适当核实或监督的情况下，对潜在的欺诈性选票进行计数，而且许多选民只是因为选择当面投票而被剥夺了选举权。”
 
+宾夕法尼亚州司法部长乔什·夏皮罗（Josh Shapiro）在一份声明中暂时拒绝了该诉讼。
 
+该诉讼是川普总统竞选团队“反对该州在中共病毒流行期间使用邮寄投票“的最新举措。
 
-本周六中午在自由广场见。
-在每张合法的选票被清点和审计之前，这次选举还没有结束。#StopTheSteal 
-– 2020年11月11日，#坚持不懈（@ScottPresler）。
-第一场活动名为“MAGA百万人游行”，它将把川普总统的支持者聚集起来，大规模展示共和党的力量。
-![]()![](https://d2pggiv3o55wnc.cloudfront.net/oann/wp-content/uploads/2020/11/EmRfkwXXEAIdPYZ-373x183.jpg)
-第二场集会名为 “停止偷窃选举”，旨在揭露和谴责民主党控制下的各州选民舞弊行为。两场活动都将于11月14日中午在华盛顿特区的自由广场开始。
-![]()![](https://d2pggiv3o55wnc.cloudfront.net/oann/wp-content/uploads/2020/11/EmacU9UW4AEwlvn-373x210.jpg)
-原文链接：*[https://www.oann.com/president-trump-calls-million-maga-rally-on-nov-14/](https://www.oann.com/president-trump-calls-million-maga-rally-on-nov-14/)*
+新闻原址:[https://www.breitbart.com/news/trump-files-lawsuit-against-pennsylvanias-two-tier-voting-system/](https://www.breitbart.com/news/trump-files-lawsuit-against-pennsylvanias-two-tier-voting-system/)
 
-0
+1+
