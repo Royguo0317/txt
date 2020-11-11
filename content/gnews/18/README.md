@@ -1,18 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓝金重灾区下的岛国华人～日本能信吗？
-` JP007` [轉載自GNews](https://gnews.org/zh-hans/546905/)
+## 【路德社精选】11/7/2020早间节目
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/546923/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11023910/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2020-11-11-163837.png)
-**作者：日本京都富士会华夏的文丽**
+听写/校对：瓦者 摘要：恩真
 
-今天早上的日本报纸每日新闻发表了美国医药公司开发的新冠疫苗的报导。路德社节目也提过这个华瑞疫苗开发公司。报纸里提到了，临床试验的结果，疫苗的有效性是九成。还说，如果顺利的话在11月中旬在美国就可以申请生产许可，可以给民众使用。报导还说今年年内可以在世界上提供500,00000支疫苗，明年2021年六月份可以给全世界60,000,0000人提供疫苗，美国的医药协会说，没有副作用。看到这个报导，觉得很可笑，自从听爆料革命以来就知道了，日本的报业和电视业的消息来源是来自美国的左派。美国的左派就是代表虚假信息。也代表了被中国共产党和美国民主党所收买的媒体宣传机器。包括美国的医药协会，会长就是福奇博士，都在跟C C P和高度合作。
+文宣图：艾伦 出品：首尔喜韩农场
 
-再来看看日本的电视台行业，富士电视台，朝日电视台，日本电视台，东京电视台和日本的国营NHK电视台。关于新冠疫情的报导，都是参考中国共产党的新华社通稿。就意味着没有真实的数据。对于病毒来源只字不提，现在却提倡日本国民，到处去旅游，到处去聚餐拉动经济。这是极度的误导日本民众和对日本民众的健康不负责的行为。
+摘要：
 
-但是还是有少数日本人会通过社交媒体去了解真相。我在推特上就发现有一些在美国的日本人。他们了解真相的方式可能除了电视广播，报纸以外，也会通过社交媒体。比如推特，parler和gab。通过在世界各地的日本人，把真相传递给在日本国内的日本人。日本人也会慢慢接受日本媒体不可信的事实。
+1.美国有很多家庭妇女在买枪。
+2.Powell女士呼吁川普总统彻查Scorecard。
+3.硬盘不早爆让民主党措手不及。
+4.丑闻这条大鱼钓出了Scorecard这小鱼暗招。
+5.拜登选票瞬间增加彻底暴露。
+6.八年前南方公园动漫讲述过造假选票。
+7.美国大选阶段在疫情防护方面很脆弱。
+8.当你受考验时候还信才叫信仰。
 
-纵观世界媒体，在中文的世界可以信任的有大纪元新唐人，当然首屈一指的是我们的GTV和Gnews。我们要珍惜这个平台。在信息的大海里，只有传播真相的平台，可以带给人们真实的信息。看似平凡的信息却跟我们的生活息息相关。一个小小的选择，就可以改变人的一生。让我们珍惜GtvGnews吧。为我们自己选择了真实的平台，而感到庆幸吧。在信息的大海里，GTVGnews就是那一艘诺亚方舟。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11024502/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2020-11-11-163855.png)
-3+
+文宣图：
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11033940/1-43.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11034531/2-58.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11034942/3-45.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11034930/4-21.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11035459/5-19.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11035506/6-20.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11035803/7-13.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11035806/8-12.png)
+0

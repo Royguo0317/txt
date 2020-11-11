@@ -1,30 +1,91 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP治下你的车永远别想完全用上原厂配件（包括4S店）——— 一个从业人员不好听但诚实的大白话
-` HAIKUOTIANKONG` [轉載自GNews](https://gnews.org/zh-hans/546497/)
+## 乔治·索罗斯（George Soros）是否正在操纵投票机？
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/546678/)
 
-内新闻：灭毒战疫 校对：文迹~见证神迹
+译者：TS2020相聚盘古
 
-战友们都向往着CCP倒台后自己和家人过上幸福的生活，开上自己心仪的豪车。今天结合笔者多年的行业从业经历，和大家聊一聊关于汽车保养及维修时必须要用到的零配件里的大乾坤。
+原文来源美国自由报告：
 
-笔者进入到这个行业时正是中国汽车产业蓬勃发展的前夜，上海大众的帕萨特B5和一汽-大众的奥迪A6刚刚来到客户面前，上海通用的别克还在路试，当时拥有一辆私家车在中国人的概念里绝对是身份的象征，一台自家的天津夏利绝对是小伙子的征婚利器。汽车修理行业也正处于从以修理工艺为主的综合维修体系向以4S店为主的汽车厂家主导的品牌售后服务体系过渡阶段。
 
-随着行业的飞速发展，汽车厂家、配件生产厂、4S店、综合汽修厂、汽配商、保险公司以及CCP的政府监管部门围绕着汽车配件这块行业蛋糕，在掏着你兜里钞票的同时演绎着绚丽离奇又扭曲魔幻的行业画面。
 
-你的爱车在任何地方修理时，所使用的配件的来源渠道、是什么样的配件，你自己甚至给你修车的师傅和他所在维修企业的任何人可能都不知道。
+> [Are the Voting Machines Being Rigged By George Soros?](https://www.americanlibertyreport.com/articles/are-the-voting-machines-being-rigged-by-george-soros/)
 
-因为CCP权力的主导，一切行业政策及规章制度都是强奸正常市场商业行为的权力寻租工具。从政府部门自上而下的指导到企业自下而上的进贡，多年来已经形成了一个庞杂扭曲的利益网络。这些利益的来源具体到你的车上，就是你用的每一滴机油、每个滤芯、每片刹车片甚至每个螺丝。这些配件后面可能联系到某位省部级大员的亲戚，或是这个辖区派出所的片警，或者辖区内消防、安监、修管处等部门人员等等。
 
-回到配件本身，大家都知道有原厂件和副厂件。以为在4S店里换原厂件多花点钱买个踏实，殊不知4S店为了利益和生存，主动或被动地都要采购汽车厂家渠道以外的配件。而且原厂件和副厂件这种概念太过笼统，行内一般以正品配件和非正品配件区分。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11011656/d1efe6df-99b1-414b-9f69-6ec660a21fe7.jpg)
+在所有可能改变即将举行的总统大选结果的邪恶计划和特技中，也许没有一个威胁或后果如此严重，以至于可能操纵多达15个州的电子投票机来确保民主党候选人希拉里克林顿是赢家。
 
-以国内的合资车举例，正品配件出处大概包含：车辆品牌原装进口配件、车辆品牌合资厂自产配件、合资厂认证的国内配套厂家生产的配件、合资厂认证再制造配件。这些配件就是我们所说的原厂件，都有车辆品牌标志。这些配件流通的主渠道大部分都是厂家售后服务系统。
-除了正品配件其它配件大概包括：配套厂家自有品牌配件（无车辆品牌标志）、无合资厂认证的再制造配件、假冒正品配件等。
+有问题的许多机器是由一家名为Smartmatic Corporation的私人公司生产的，该公司声称总部位于英国，但通过委内瑞拉，巴巴多斯和荷兰的控股公司来控制。
 
-汽车配件在生产环节、流通渠道、监管环节及使用环节上都套裹着层层利益。好的配套厂家生产的合格配件未必能得到合资厂认证，汽配城也有厂家缺货的正品配件，仓库里的轮胎刚刚更改了生产日期，4S店给你换的几万元的大灯可能是前天刚在乡下农舍里组装的……这一切都真实的发生在过去的每一天里，CCP不灭，经商环境就好不了，还只会越来越差，商家为了生存就会被迫丧失诚信，最后的羊毛只能是各位无辜的车主。
+该公司的创始人是委内瑞拉，这是不是巧合，因为该机器是在一些在该国大规模山体滑坡选举时，总统查韦斯在该国被重选在2000年使用。
 
-我们常说国内的老百姓吃的都是有毒的食品，其实车又何尝不是呢？
+当Smartmatic的机器（其中许多是后来改装的赌博设备）于2004年在南美国家举行的全民投票中使用时，Smartmatic便开始引起人们的关注。
 
-爆料革命进行到今天，正邪之战已经到了关键时刻。郭先生倡导的唯真不破是我们和CCP以及所有邪恶势力作战的最大杀器。爆出邪恶的假，人们在看清了真相的同时，也激发了人们内心深处正义的力量，当这种力量被唤醒时，正道主义必然战胜一切见不得光的邪恶势力，各行各业内部的行业爆料会使一切假恶丑都大白于天下，CCP这个当今世界最大的邪恶组织也必然灭在咱的手。
+Smartmatic机器通过独立地对结果进行制表，然后将这些结果通过加密的消息传递到中央服务器来工作。
 
-1+
+举行全民公决后，独立监督员声称存在广泛的欺诈行为，学术期刊上的同行评审文章指出，这种欺诈行为确实确实发生了，并且这种欺诈行为很可能是由远程控制实施的。
+
+尽管有这些指控，来自欧洲联盟和美洲国家组织（OAS）的国际选举监督员不同意这些相同的独立分析家，并且政府允许其结果（查韦斯总统的政府任职）维持不变。
+
+Smartmatic随后与委内瑞拉政府赢得了数百万美元的合同，该合同的机器见证了社会主义领导人在2013年因癌症去世之前的巨大胜利。
+
+Smartmatic于2000年在美国特拉华州正式注册成立，2004年之后，其投票机被用于巴西（在现任被驱逐和腐败的总统迪尔玛·罗塞夫总统的选举中），墨西哥（在非常不受欢迎的总统恩里克·佩尼亚·涅托），阿根廷（腐败色彩的总统克里斯蒂娜·费尔南德斯·基什内尔当选的选举）和菲律宾（在有争议的新总统罗德里戈·达特选举）。
+
+应当指出，Smartmatic在美国的首批部署之一是在库克县，当时是伊利诺伊州参议员的巴拉克·奥巴马（Barack Obama）的故乡。 2006年3月，发现传输结果的Smartmatic软件存在问题。事情变得如此糟糕，以至于当地的一名der木匠将这件事称为“国际阴谋”。尽管如此，伊利诺伊州仍在使用这些机器。
+
+在2016年美国大选中，Smartmatic的机器可能会在伊利诺伊州，威斯康星州，华盛顿州，俄勒冈州，新泽西州，密苏里州，路易斯安那州，加利福尼亚州，哥伦比亚特区，弗吉尼亚州，宾夕法尼亚州，内华达州，密歇根州，佛罗里达州，科罗拉多州和亚利桑那。后七个州至关重要，因为它们是摇摆州，这将大大影响每个总统候选人的选举团总数。
+
+Smartmatic的网站指出，在2006年至2015年的上一次美国大选中，已经部署了约57,000台机器，登记了307个县的多达3500万公民的投票。
+
+在2006年之前，前身公司Sequoia Voting Systems在美国大选中使用了其机器。2005年，Smartmatic收购了Sequoia，然后在两年后为公司的机器赋予了Smartmatic的许多技术后，将其卖给了一群投资者。
+
+红杉资本的投资者是否也是Smartmatic的所有者还不得而知。但是，2008年发布的法院文件证实，Smartmatic在红杉公司中仍然拥有重大的财务利益。实际上，红杉资本的首席执行官兼总裁是Smartmatic前高管杰克·布莱恩（Jack Blaine），两家公司之间拥有重要的共享知识产权。
+
+根据Wikipedia的说法，2005年以后，“ Smartmatic分配了很大一部分的开发和管理团队，致力于改造红杉的一些老式的老式投票机，并用前卫的专有功能和开发替换其技术，从而新的高科技产品。”
+
+维基百科报道，在2000年有争议的总统选举中，红杉的较旧机器造成了佛罗里达州的“悬吊乍得”问题，一名红杉工人推测这是有目的的-“目的是抹黑打孔卡选票。从而促进电子投票机的销售。”他说。
+
+原文链接：
+
+
+
+> [Are the Voting Machines Being Rigged By George Soros?](https://www.americanlibertyreport.com/articles/are-the-voting-machines-being-rigged-by-george-soros/)
+
+
+
+Are the Voting Machines Being Rigged By George Soros?
+
+Of all of the nefarious schemes and stunts with the potential to change the outcome of the upcoming presidential election, perhaps none is so threatening or consequential as the possibility that electronic voting machines in as many as 15 states could be rigged to ensure that Democratic nominee Hillary Clinton is the winner.
+
+Many of the machines in question are made by a private company called Smartmatic Corporation, a company that claims to be based in the United Kingdom but is controlled through holding companies in Venezuela, Barbados and the Netherlands.
+
+The founders of the company are Venezuelan, which is not a coincidence, given that the machines were used in a number of massive landslide elections in that country when President Hugo Chavez was reelected in that country in the 2000s.
+
+Smartmatic first came to prominence when its machines (many of which were then retrofitted gambling devices) were used in a referendum held in the South American country in 2004.
+
+Smartmatic machines work by tabulating results independently and then communicating those results to a central server via encrypted messages.
+
+In the wake of the referendum, independent monitors claimed widespread fraud, and peer-reviewed articles in academic journals stated that it was likely fraud had indeed taken place and that it was possible that this fraud had been committed by remote control.
+
+Despite these accusations, international election monitors from the European Union and the Organization of American States (OAS) disagreed with these same independent analysts, and the government allowed the result (the administration of President Chavez staying in office) to stand.
+
+Smartmatic then won a multimillion-dollar contract with the Venezuelan government that saw its machines tabulate huge victories for the Socialist leader before his death from cancer in 2013.
+
+Smartmatic was officially incorporated in 2000 in Delaware in the U.S., and after 2004, its voting machines were used in a number of controversial leadership races in Brazil (in the election of now ousted [and corrupt] President Dilma Rousseff), Mexico (in the election of highly unpopular president Enrique Peña Nieto), Argentina (in the election of corruption-tinged President Christina Fernández de Kirchner) and the Philippines (in the election of controversial new President Rodrigo Duterte).
+
+It should be noted that one of Smartmatic’s first deployments in the United States was in Cook County, the home of Barack Obama when he was a Senator from Illinois. In March 2006, it was discovered that a problem existed with the Smartmatic software that transferred the results. Things got so bad that one local alderman called the affair an “international conspiracy.” Despite this, the state of Illinois continued to use the machines.
+
+In the 2016 general U.S. election, Smartmatic’s machines potentially could be used in parts of Illinois, Wisconsin, Washington, Oregon, New Jersey, Missouri, Louisiana, California, the District of Columbia, Virginia, Pennsylvania, Nevada, Michigan, Florida, Colorado and Arizona. These latter seven states are crucial because they’re swing states that will significantly affect the electoral college totals for each presidential candidate.
+
+Smartmatic’s website notes that some 57,000 of its machines have been deployed in past U.S. elections between 2006 and 2015, registering the vote of as many as 35 million citizens in 307 counties.
+
+Prior to 2006, a predecessor company, Sequoia Voting Systems, had its machines used in U.S. elections, and in 2005, Smartmatic acquired Sequoia and then sold it to a group of investors two years later after endowing the firm’s machines with much of Smartmatic’s technology.
+
+Whether Sequoia’s investors also are owners of Smartmatic is unknown; however, court documents released in 2008 confirmed that Smartmatic still had a significant financial interest in Sequoia. In fact, the CEO and President of Sequoia is a former Smartmatic executive, Jack Blaine, and there is significant shared intellectual property between the companies.
+
+According to Wikipedia, after 2005, “Smartmatic assigned a major portion of its development and managerial teams, dedicated to revamping some of Sequoia’s old-fashioned, legacy voting machines, and replacing their technology with avant-garde proprietary features and developments, which resulted in new, high-tech products.”
+
+Wikipedia reports that Sequoia’s older machines were responsible for the “hanging chad” problems in the state of Florida in the contested presidential election of 2000 and that one Sequoia worker speculated that this was done on purpose — “the object was to discredit punch-card ballots and thus promote sales of electronic voting machines,” he stated.
+
+0
