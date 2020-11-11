@@ -1,42 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 陈薇:希望有更多的正确舆论导向让我们有更好的一个科研环境
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/544631/)
+## 几乎同时，普京声明俄罗斯的两款疫苗有效
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/545182/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10112124/%E5%B0%81%E9%9D%A2-10.png)
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+文/青椒文喜
 
-据[**老板联播**](https://weibo.com/5994003317?refer_flag=1001030103_) [2020年9月18日12:44](https://weibo.com/5994003317/JlbpBk0r6?refer_flag=1001030103_) 来自 [微博视频](https://app.weibo.com/t/feed/19DcdW) 【陈薇：病毒变异对新冠疫苗影响很小】9月18日，陈薇院士在[#2020中关村论坛#](https://s.weibo.com/weibo?q=%232020%E4%B8%AD%E5%85%B3%E6%9D%91%E8%AE%BA%E5%9D%9B%23)上表示，目前国内外基因工程疫苗都关注病毒序列中的S基因，在一段变异中可以看到只有一个处在614氨基酸位置的有一个相对稳定的变异。从推测来说，它对疫苗的影响是微乎其微的。 [L老板联播的微博视频](http://t.cn/A64RMcee)
+今天，俄罗斯总统普京就新冠病毒的疫苗一事发表声明。他在参加上海合作组织（SCO）峰会时说：“俄罗斯已经有2种注册疫苗。此外，研究表明，这些疫苗首先是安全的，使用后不会造成严重后果，其次，它们都是有效的，”普京还补充说“已经接种疫苗并且遇到病毒携带者的人没有生病，或者有最轻微症状的症状。”
 
-［视频概要：大家非常关心的是病毒变异对疫苗效率的影响，其实我们有一个生物信息的团队天天在刷这些全世界提交上来的基因序列，昨天晚上我们看的数据，现在全球数据库上能获取的数据大概有十万多条的全病毒序列，但是并不是所有的序列都是高质量的，有六万多条我们是可以用的，我们的疫苗包括国外的疫苗，我说的是基因工程疫苗，我们都用新冠病毒的毒刺的S基因的那一段，所以我们就关注了这一段的变异，在这一段变异里我们看只有一个是比较相对稳定的变异，就是在S基因的614个氨基酸这个位置，他们有一个单点的氨基酸脱变，从推测来说，它对疫苗的影响是微乎其微的。］
+[https://ria.ru/20201110/vaktsina-1583919540.html](https://ria.ru/20201110/vaktsina-1583919540.html)
 
-重要的话说三遍——
+无独有偶，昨天美国辉瑞公司宣布他们与Biontech 公司合作的基于mRNA技术的疫苗已经获得重要成功。
 
-**从推测来说，S基因变异对疫苗的影响是微乎其微的。**
 
-**从推测来说，S基因变异对疫苗的影响是微乎其微的。**
 
-**从推测来说，S基因变异对疫苗的影响是微乎其微的。**
+> UPDATE: We are proud to announce, along with [@BioNTech\_Group](https://twitter.com/BioNTech_Group?ref_src=twsrc%5Etfw), that our mRNA-based [#vaccine](https://twitter.com/hashtag/vaccine?src=hash&amp;ref_src=twsrc%5Etfw) candidate has, at an interim analysis, demonstrated initial evidence of efficacy against [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) in participants without prior evidence of SARS-CoV-2 infection.
+> — Pfizer Inc. (@pfizer) [November 9, 2020](https://twitter.com/pfizer/status/1325767629890592771?ref_src=twsrc%5Etfw)
 
-另据[**中新经纬**](https://weibo.com/5993531560?refer_flag=1001030103_) [2020年9月18日15:24](https://weibo.com/5993531560/JlcsK8k8O?refer_flag=1001030103_) 来自 [财经 · 视频社区](https://weibo.com/)
 
-【[#陈薇呼吁媒体谨慎解读疫苗新闻#](https://s.weibo.com/weibo?q=%23%E9%99%88%E8%96%87%E5%91%BC%E5%90%81%E5%AA%92%E4%BD%93%E8%B0%A8%E6%85%8E%E8%A7%A3%E8%AF%BB%E7%96%AB%E8%8B%97%E6%96%B0%E9%97%BB%23)：多读原文，客观报道】9月18日，军事科学院军事医学院陈薇院士在[#2020中关村论坛#](https://s.weibo.com/weibo?q=%232020%E4%B8%AD%E5%85%B3%E6%9D%91%E8%AE%BA%E5%9D%9B%23)上呼吁，媒体应该客观报道新冠疫苗，谨慎解读，发新闻多读读原文。疫苗这个路还很长，希望有更多正确的舆论导向，让我们有个更好的科研环境。[L老板联播的微博视频](http://t.cn/A64Rc5IH) ​
 
-［视频概要：媒体应该客观报道新冠疫苗，谨慎解读，比如我刚才说的这个mRNA疫苗，它们公司说了，是个轻微的反应，但你如果看看真实的数据，其实不是那样的，你看他们全身和局部的不良反应率还是比较高的，所以国外的报道一来以后，中国就翻译成中文就成了现在的报道，很多是选择性的解读，所以我觉得要么就不发新闻，要发新闻希望能够读原文，更谨慎地解读这个，疫苗路还是很长，希望有更多的正确的舆论导向，让我们有更好的一个科研环境，来继续全世界团结来往前走。］
+而在今天，川普总统也对此进行了回应中说FDA将批准辉瑞的疫苗。
 
-在这里陈薇院士说的是——** 媒体应该客观报道新冠疫苗，谨慎解读**。
 
-就在2020年11月10日中国科兴公司的疫苗在巴西被暂停临床，目前我们无法对科兴公司疫苗与陈薇团队闭门造的疫苗有什么具体关联，但是中共媒体及中共咬部对于中共疫苗的“客观报道“已经出炉——
 
-据[**中国日报**](https://weibo.com/1663072851?refer_flag=1001030103_) [2020年11月10日16:13](https://weibo.com/1663072851/Jtgr3uj2d?refer_flag=1001030103_) 来自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)
+> “President Trump told us for some time we would be getting a Vaccine by the end of the year and people laughed at him, and here we are with Pfizer getting FDA approval by the end of this month. He was right.” [@MariaBartiromo](https://twitter.com/MariaBartiromo?ref_src=twsrc%5Etfw)
+> — Donald J. Trump (@realDonaldTrump) [November 10, 2020](https://twitter.com/realDonaldTrump/status/1326147913542668291?ref_src=twsrc%5Etfw)
 
-[#外交第一现场#](https://s.weibo.com/weibo?q=%23%E5%A4%96%E4%BA%A4%E7%AC%AC%E4%B8%80%E7%8E%B0%E5%9C%BA%23)【[#外交部回应巴西暂停对中国疫苗的实验#](https://s.weibo.com/weibo?q=%23%E5%A4%96%E4%BA%A4%E9%83%A8%E5%9B%9E%E5%BA%94%E5%B7%B4%E8%A5%BF%E6%9A%82%E5%81%9C%E5%AF%B9%E4%B8%AD%E5%9B%BD%E7%96%AB%E8%8B%97%E7%9A%84%E5%AE%9E%E9%AA%8C%23)：有关的事件同疫苗无关】11月10日，在外交部例行记者会上有记者提问，[#巴西卫生机构下令暂停对中国疫苗的实验#](https://s.weibo.com/weibo?q=%23%E5%B7%B4%E8%A5%BF%E5%8D%AB%E7%94%9F%E6%9C%BA%E6%9E%84%E4%B8%8B%E4%BB%A4%E6%9A%82%E5%81%9C%E5%AF%B9%E4%B8%AD%E5%9B%BD%E7%96%AB%E8%8B%97%E7%9A%84%E5%AE%9E%E9%AA%8C%23)，中方对此有何评论？汪文斌表示，我们注意到北京*科兴生物*有限公司已经就有关的报道做出了回应。据*科兴*公司在巴西合作伙伴布坦坦研究所判定，有关的事件同疫苗无关。*科兴*公司将继续就此同巴方保持沟通。（记者 孟哲 侯俊杰）[L中报视频的秒拍视频](http://t.cn/A6GiAFpJ)[收起全文d](void%280%29;)
 
-看门狗胡锡进也开始狂吠——
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10112519/13-4.png)
-对于自己研发的疫苗，陈薇院士从推测来说就得出结论，S基因变异对疫苗的影响是微乎其微的，对于境外关于疫苗的文章，陈薇院士又主张“**希望有更多的正确的舆论导向，让我们有更好的一个科研环境**”，所以今天我们看到了在中共疫苗出现问题时，舆论导向又出马了。
 
-（文章内容仅代表作者个人观点）
+普京总统在八月宣布，俄罗斯是世界上第一个注册新冠病毒疫苗（Sputnik V）的国家。许多公众人物接种了疫苗，其中包括国防部长谢尔盖·绍伊古和普京的女儿。
 
-0
+尽管如此，国际社会对有关疫苗出现的信息仍保持警惕。从COVID-19的统计数据和官员的声明来看，没有关于在俄罗斯大量使用疫苗的消息。此前，巴西总统Bolsonaro 宣布，巴西卫生监管部门以严重的不良事件为由暂停了中国科兴公司的疫苗。
+
+上周以来，俄罗斯连续几天出现疫情以来单日染病人数破2万的峰值，不知这是否与普京宣布俄产疫苗情况有关。不论怎样，俄罗斯第一时间封锁与中国的边境，也完全不买中共“大国战疫”的单。结合最近克里姆林宫的一些列声明，可以揣测到俄罗斯政府对中共的态度。中共在实验室改造病毒并以超限生化武器的形式释放到全球，具体情况已经由闫丽梦博士和她的团队进行了揭露。当下，除了疫苗研发，最有效的防疫手段就是找到病毒来源的真相，问责中国共产党。
+
+1+

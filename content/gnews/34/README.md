@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音精华版】11/07/2020文贵：中共静等蓝金黄在美国发酵
-` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/544997/)
+## 11/9/2020 凯莉·麦肯内妮: 宾夕法尼亚州的投票舞弊已经成为了一个司法案例
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/545420/)
 
-制作：战友之家粵語頻道
-统筹：【文武全才】 剪輯：【文萊】 【文桥】 配音：【一帘幽梦】 文本：【一帘幽梦】 字幕：【文桥】
+By: 【秘密翻译组G-Translators】
+
 1+

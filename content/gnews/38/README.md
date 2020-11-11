@@ -1,35 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】新闻界多人声援编导蔡玉玲 查册被控「虚假陈述」提堂 望港台展现道德勇气和风骨
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/544918/)
+## 脸书审查了拥有30多万成员的草根组织 &#8220;停止偷窃 &#8220;
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/545357/)
 
-整撰：文燕
+*新闻来源：Breitbart《布赖特巴特》；作者：博拉姆-博哈里(ALLUM BOKHARI)；发布时间：2020年11月5日*
 
-覆核：文粤
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10115619/image001-1.jpg)图片来源：【大纪元香港】
-《铿锵集》编导蔡玉玲涉因车牌查册，被控两项作「虚假陈述」罪。案件今天（10日）在粉岭裁判法院提堂，多名新闻工作者到场声援。蔡玉玲在开庭前表示「今次诉讼会历时一段时间，但我知道唔系自己一个人走落去。」
+*翻译/简评：Victory；校对：Beicy-数学老师；审核：InAHurry；Page：拱卒*
 
-蔡玉玲（37岁）被指违反《交通条例》第111(3)(a)条，涉两项「明知而作出在要项上虚假的陈述」，案件暂时毋须答辩，押后至明年1月14日再讯，蔡玉玲获准以原有1000元现金保释。
+[!\[\]()!\[\](https://spark.adobe.com/page/ntUGLp4l0F8nd/images/180d6106-86ce-4f4b-8a69-ae5dd5800d30.jpg?asset_id=10c34e35-dfd4-4e08-b92d-921ddb6bbac9&amp;img_etag=%22ea726f5de3f7e8ad308bb44bd02ff056%22&amp;size=1024)](https://spark.adobe.com/page/ntUGLp4l0F8nd/images/180d6106-86ce-4f4b-8a69-ae5dd5800d30.jpg?asset_id=10c34e35-dfd4-4e08-b92d-921ddb6bbac9&amp;img_etag=%22ea726f5de3f7e8ad308bb44bd02ff056%22&amp;size=1024)
 
-新闻界数十人到庭声援，包括港台工会、前署理广播副处长（节目）陈敏娟、多名港台节目部监制和同事等。蔡玉玲开庭前见记者，先感激各方鼓励令她不感孤单，并表示「警方高调用虚假陈述拘捕查册记者，唔再系我个人的事」，指坊间学者、法律界人士、传媒行家都提出担心，质疑「香港仲有无资讯流通慨自由呢？」
+**简评：**
 
-就公务员事务局日前表示，不能为服务提供者（即自雇人士）提供任何法律支缓，蔡玉玲回应指明白港台作为传媒机构和政府部门的两难，但亦希望港台管理层能在制度内继续争取；在制度外展现他们的「道德勇气」，表示他们愿意承担事件，认为这样才「有效振作港台士气，展现港台作为传媒机构的风骨。」
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10115603/image004-1.jpg)港台顾问团成员、港台工会，现职《铿锵集》员工及民主派人士，数十人今早11时许在庭外声援蔡玉玲。图片来源：【大纪元香港】
-战友点评：
+脸书，推特等社交媒体利用230法案漏洞肆无忌惮地作恶。和它们谈自由言论都是天真的想法，法律行动才是唯一解决方案。川普总统已经被审查到不能自由发声，相信他的团队会推进弥补法案漏洞的。
 
-欧盟驻港澳办事处下午在twitter表示，密切关注蔡玉玲进行侦查报道而被警方控告案件，并强调「新闻自由是基本权利（#PressFreedom is a #FundamentalRight）」。没错，新闻自由本来就是社会的基本权利，而社会也有了解真相的知情力。
+美国大选是一场正邪力量之间的角力。关注爆料革命的战友很早就知道大量的世界主流媒体，包括脸书，推特，谷歌等社交媒体已经站到了邪恶阵营。在本次大选之前，大部分普通美国人是不相信美国自由民主的根基已经处于极度危险之中。而现在邪恶沼泽力量已经展现给更多的美国人。这是对所有美国民众的当头棒喝，该觉醒了。
 
-前港台《头条新闻》主持人曾志豪接受专访时表示，这次事件标志着香港「第四权末日」，香港记者俨然已从出生入死的「战地记者」变成「游走于钢丝的特技人」，在钢丝上左摇右摆前进，随时面临生命危险。曾声援蔡玉玲，表示她的报道左右平衡，并无主观结论，仅是在陈述，而非指控。
+[!\[\]()!\[\](https://spark.adobe.com/page/ntUGLp4l0F8nd/images/bf29519d-fab8-4807-8774-293ca8ce03a2.jpg?asset_id=ab19e642-a676-475d-8a01-ee17c679ab4e&amp;img_etag=%22aee140ff983a3f610b87163cf13be22a%22&amp;size=2560)](https://spark.adobe.com/page/ntUGLp4l0F8nd/images/bf29519d-fab8-4807-8774-293ca8ce03a2.jpg?asset_id=ab19e642-a676-475d-8a01-ee17c679ab4e&amp;img_etag=%22aee140ff983a3f610b87163cf13be22a%22&amp;size=1024)盖蒂图片
 
-传媒为了核实新闻，经常使用网上查车牌制度，党媒喉舌如『大公报』、『星岛日报』等，都高调宣称其报道内容使用了查车牌制度，警方对他们视而不见，唯独针对港台，控告港台编导用虚假资料查车牌，这种带有政治目的选择性执法，只有在极权国家才会使用，完全漠视了法律应有的公平性。
+**脸书已经对 “[停止偷窃](https://stopthesteal.us/) “网页进行了审查，这是一个由川普选民创建的迅速发展的脸书页面，他们在投票地点组织现场集会，要求计票过程的公正性。**
 
-以上观点仅代表笔者本人
+随着选民对关键摇摆州投票地点违规活动的担忧升级，该网页最近刚创建，并在24小时内迅速增长到30多万名会员。“[停止偷窃](https://stopthesteal.us/)”也在通过自己的网站进行组织(活动)。
 
-资料来源：大纪元香港、众新闻
+[!\[\]()!\[\](https://spark.adobe.com/page/ntUGLp4l0F8nd/images/0667673e-bfa3-48ec-b2b3-24a7db58853e.jpg?asset_id=d3f92e6b-5d4a-4fea-af4a-60d487362a27&amp;img_etag=%222e4711c66179fb79db60dca436f6d328%22&amp;size=1024)](https://spark.adobe.com/page/ntUGLp4l0F8nd/images/0667673e-bfa3-48ec-b2b3-24a7db58853e.jpg?asset_id=d3f92e6b-5d4a-4fea-af4a-60d487362a27&amp;img_etag=%222e4711c66179fb79db60dca436f6d328%22&amp;size=1024)
 
-[https://hk.epochtimes.com/news/2020-11-10/50325460](https://hk.epochtimes.com/news/2020-11-10/50325460)
+10月，脸书创始人马克-扎克伯格向奥巴马前竞选经理大卫-普鲁夫(David Plouffe)组织的 “安全选举 “项目捐款超过1亿美元。
 
-[https://www.hkcnews.com/article/35481/%E8%94%A1%E7%8E%89%E7%8E%B2-%E8%BB%8A%E7%89%8C%E6%9F%A5%E5%86%8A-%E9%8F%97%E9%8F%98%E9%9B%86-35481/%E3%80%90%E6%96%B0%E8%81%9E%E7%95%8C%E5%A4%9A%E4%BA%BA%E8%81%B2%E6%8F%B4%E3%80%91%E3%80%8A%E9%8F%97%E9%8F%98%E9%9B%86%E3%80%8B%E7%B7%A8%E5%B0%8E%E8%94%A1%E7%8E%89%E7%8E%B2%E6%9F%A5%E5%86%8A%E8%A2%AB%E6%8E%A7%E3%80%8C%E8%99%9B%E5%81%87%E9%99%B3%E8%BF%B0%E3%80%8D%E6%8F%90%E5%A0%82-%E6%9C%9B%E6%B8%AF%E5%8F%B0%E5%B1%95%E7%8F%BE%E9%81%93%E5%BE%B7%E5%8B%87%E6%B0%A3%E5%92%8C%E9%A2%A8%E9%AA%A8](https://www.hkcnews.com/article/35481/%E8%94%A1%E7%8E%89%E7%8E%B2-%E8%BB%8A%E7%89%8C%E6%9F%A5%E5%86%8A-%E9%8F%97%E9%8F%98%E9%9B%86-35481/%E3%80%90%E6%96%B0%E8%81%9E%E7%95%8C%E5%A4%9A%E4%BA%BA%E8%81%B2%E6%8F%B4%E3%80%91%E3%80%8A%E9%8F%97%E9%8F%98%E9%9B%86%E3%80%8B%E7%B7%A8%E5%B0%8E%E8%94%A1%E7%8E%89%E7%8E%B2%E6%9F%A5%E5%86%8A%E8%A2%AB%E6%8E%A7%E3%80%8C%E8%99%9B%E5%81%87%E9%99%B3%E8%BF%B0%E3%80%8D%E6%8F%90%E5%A0%82-%E6%9C%9B%E6%B8%AF%E5%8F%B0%E5%B1%95%E7%8F%BE%E9%81%93%E5%BE%B7%E5%8B%87%E6%B0%A3%E5%92%8C%E9%A2%A8%E9%AA%A8)
+但现在，普通的共和党选民似乎不被允许利用脸书的平台组织起来捍卫选举的公正性。
+
+主流媒体刊登了多篇关于 “停止偷窃 “的文章，(这些文章)攻击”停止偷窃 “成员是 “错误信息 “的传播者，并批评脸书没有足够及时地对该页面进行审查。
+
+一位记者甚至离奇地声称，允许共和党选民利用脸书组织集会以捍卫公平选举，某种程度上会导致暴力。
+
+“在遏制与选举相关的虚假信息和暴力言论方面，脸书又一次做得绝对糟糕，”滚石记者EJ迪克森(EJ Dickson)在推特上说。
+
+“脸书被动而非主动的历史，很可能让此平台手上沾满鲜血。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/ntUGLp4l0F8nd/images/964ee7d9-a374-4610-8fb9-befc884f2b39.jpg?asset_id=26c9e314-7413-4aa2-b96f-424469736062&amp;img_etag=%22628d84d5c825c9352545033ef67ac257%22&amp;size=3013)](https://spark.adobe.com/page/ntUGLp4l0F8nd/images/964ee7d9-a374-4610-8fb9-befc884f2b39.jpg?asset_id=26c9e314-7413-4aa2-b96f-424469736062&amp;img_etag=%22628d84d5c825c9352545033ef67ac257%22&amp;size=1024)
+
+位于英国的非政府组织 “反数字仇恨中心”向社交媒体公司们施压，要求其对保守派进行审查，该中心也要求脸书下架该页面。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/ntUGLp4l0F8nd/images/d139ab34-d2a6-4535-90a6-f3396fe08c9a.jpg?asset_id=7d72b57c-945d-4a84-ab33-617fe0ee17b3&amp;img_etag=%22f7c16ce43d5d18d8e7611b31e52c3c59%22&amp;size=3037)](https://spark.adobe.com/page/ntUGLp4l0F8nd/images/d139ab34-d2a6-4535-90a6-f3396fe08c9a.jpg?asset_id=7d72b57c-945d-4a84-ab33-617fe0ee17b3&amp;img_etag=%22f7c16ce43d5d18d8e7611b31e52c3c59%22&amp;size=1024)
+
+脸书发言人在给媒体的评论中指责该组织试图将选举过程 “非法化”，并称该组织的一些成员 “号召使用暴力”，但没有给出任何解释为什么该页面要为这些人的帖子集体负责。
+
+“根据我们在这一紧张局势加剧时期采取的特殊措施，我们已经删除了正在制造现实事件的’停止偷窃’团体。”这位脸书发言人说。
+
+“这个团体是围绕着选举进程的非法化而组织起来的，我们看到该团体的一些成员发出了令人担忧的暴力呼吁。”
+
+[原文链接](https://www.breitbart.com/tech/2020/11/05/facebook-censors-grassroots-stop-the-steal-group-with-300000-members/)
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/ntUGLp4l0F8nd/)】-点击spark adobe版
+
+[!\[\]()!\[\](https://spark.adobe.com/page/ntUGLp4l0F8nd/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/ntUGLp4l0F8nd/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

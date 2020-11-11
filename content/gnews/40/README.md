@@ -1,82 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 扒一扒闫丽梦博士第一份报告参考文献中列举的李放的11篇论文
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/544896/)
+## 拜登们明目张胆舞弊，联邦党人要出手！
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/545281/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10115527/%E5%86%85%E6%96%87%E5%8F%8A%E5%B0%81%E9%9D%A2%E5%9B%BE%E7%89%87.png)
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+作者：宁缺；校对/审核：海阔天空；Page：拱卒
 
-在闫丽梦博士科学家团队发布的《Molecular Mechanism for Antibody-Dependent Enhancement of Coronavirus Entry》（中文名称：S ARS- – CoV- -2 2 基因组的不寻常特征表明 其经过 复杂的实验室改造而非自然进化，以及对其可能的合成）报告结尾部分的参考文献部分是非常重要的关于中共冠状病毒的相关论文索引，由于专业方面的限制，对于闫丽梦博士的报告理解力不强，但是对于其参考文献部分的每一篇文章作者进行考证倒不是太难，在参考文献中有李放的论文有以下11篇：
+[!\[\]()!\[\](https://spark.adobe.com/page/yYjV6bBBiHdPn/images/2bc2774d-d2c9-42a0-bdc0-72daefd89b4c.jpg?asset_id=8e4f6a41-ce98-4859-a6ce-e31ec0df6286&amp;img_etag=%22bbe0a1ae6b07a87143412e88f8fe34f5%22&amp;size=1024)](https://spark.adobe.com/page/yYjV6bBBiHdPn/images/2bc2774d-d2c9-42a0-bdc0-72daefd89b4c.jpg?asset_id=8e4f6a41-ce98-4859-a6ce-e31ec0df6286&amp;img_etag=%22bbe0a1ae6b07a87143412e88f8fe34f5%22&amp;size=1024)
 
-1、[Structure of SARS coronavirus spike receptor-binding domain complexed with receptor](https://science.sciencemag.org/content/309/5742/1864)（SARS冠状病毒刺突受体结合域与受体复合的结构）
+2020年的美国大选光怪陆离，见证了在资本金钱的腐蚀诱惑下，有太多美国人丧失道德、丧失原则。有多少人为了区区蝇头小利，出卖了上帝赐予的选举权，才有多少人能站出来指证华尔街、假媒体、徇私舞弊拜登们的罪行？金钱资本就像智慧树上的毒蛇，勾引着贪婪、丧失信仰的罪人吃下有毒的聪明果。这些罪人忘记了，美国这么多年来能占据世界金字塔顶尖地位，利用军事、政治、资本、科技优势躺着接受全世界的供养，民众的潇洒自由、放飞自我，一切都来自于其对信仰的坚持、对法律的敬畏。现在，为了一点残羹冷炙出卖自己的灵魂，出卖自己的信仰，将来必然会受到上天的惩罚。
 
-这篇论文的作者是：**Fang Li**[1](https://science.sciencemag.org/content/309/5742/1864#aff-1)**（李放）,****Wenhui Li**[3](https://science.sciencemag.org/content/309/5742/1864#aff-3)**, ****Michael Farzan**[3](https://science.sciencemag.org/content/309/5742/1864#aff-3)**, ****Stephen C.Harrison**[1](https://science.sciencemag.org/content/309/5742/1864#aff-1)**,**[2](https://science.sciencemag.org/content/309/5742/1864#aff-2)**,**[\*](https://science.sciencemag.org/content/309/5742/1864#corresp-1)；这篇论文依据谷哥翻译的概要内容是——［SARS冠状病毒（SARS-CoV）的刺突蛋白（S）使病毒附着于其细胞受体血管紧张素转化酶2（ACE2）。S上定义的受体结合结构域（RBD）介导这种相互作用。与人ACE2的肽酶结构域结合的RBD的2.9埃分辨率的晶体结构表明，RBD呈现出一个凹入的表面，该表面形成了肽酶的N端叶。两种蛋白质之间的界面上的原子细节阐明了残基变化的重要性，因为残基变化有利于有效的跨物种感染和人与人之间的传播。RBD的结构提示了制造用于设计冠状病毒疫苗的截短的二硫键稳定的RBD变体的方法。］,这篇论文发表过程的时间线是——
+拜登家族只是沉默的黑暗资本的马前卒，拜登家族能有这么大的能力调动如此多的新闻、社交媒体、企业、社会资源？如果拜登家族这么有本事，哪里需要跑到中共国祈求狗粮？这一切都是美国资本“精英”、媒体“精英”、科技“精英”、“政治”精英，一句话，美国顶级权贵在幕后操作发力的结果，拜登家族只是一个在前台演戏的提线木偶。别说拜登是瞌睡虫、是个低能、肮脏龌龊的政客，就算他是头猪，箭在弦上，这些勾结起来的黑暗力量都会想方设法把他的双手搭到领奖台上。当然，此次大选，或明或暗，都能看到中共的鬼影重重，都能看到中共作恶的影子。那些金玉其外、败絮其中的卖美贼，与邪恶中共联手，企图联合熄灭世界自由灯塔。
 
-Received for publication June 22, 2005（接收日期2005年6月22日）Accepted for publication August 11, 2005（接受日期2005年8月11日）
+中共国1979改革开放、特别是加入世贸组织之后，国际资本、华尔街与中共国水乳交融，你中有我的产业链、绑架了14亿肉票的巨大市场、极其廉价的奴隶劳动力、割不完的资本韭菜、无数量上限的女人、儿童、器官等等，所有这些在中共国享受到的上帝特权待遇都让这些黑暗势力像染上毒瘾一般欲罢不能。一旦中美脱钩，一切利益就像毒品药效过时一样，幻梦破灭，会让这些黑暗力量异常痛苦。对此，黑暗力量自然是万分恐惧，彻底丧失了理智，所以就出现了此次选举中各种舞弊的闹剧。
 
-2、[Structural basis of receptor recognition by SARS-CoV-2](https://www.nature.com/articles/s41586-020-2179-y)（SARS-CoV-2识别受体的结构基础）
+[!\[\]()!\[\](https://spark.adobe.com/page/yYjV6bBBiHdPn/images/74006292-93ac-41ff-8e78-2604d25660e6.jpg?asset_id=94deb5c8-bc65-4b53-9cc6-8c5ca1c090e0&amp;img_etag=%22e3ae5b4bbc9e3e348d17397f0e8d477d%22&amp;size=1024)](https://spark.adobe.com/page/yYjV6bBBiHdPn/images/74006292-93ac-41ff-8e78-2604d25660e6.jpg?asset_id=94deb5c8-bc65-4b53-9cc6-8c5ca1c090e0&amp;img_etag=%22e3ae5b4bbc9e3e348d17397f0e8d477d%22&amp;size=1024)战鹰团 海报突击队作品
 
-这篇论文的作者是：[Yuxuan Hou](;), [Cheng Peng](;), [Meng Yu](;), [Yan Li](;), [Zhenggang Han](;), [Fang Li](;)（李放）,[Lin-Fa Wang](;) & [Zhengli Shi](;)（石正丽） ，病毒结构专家李放是石正丽的合作伙伴；这篇论文依据谷哥翻译的概要内容是——［蝙蝠中发现了SARS样冠状病毒，这表明蝙蝠可能是SARS-CoV的自然宿主。但是，先前的研究表明，来自马蹄蝠的血管紧张素转换酶2（ACE2）蛋白（一种已知的SARS-CoV受体）无法充当SARS-CoV的功能性受体。在这里，我们将先前的研究扩展到了另外七个蝙蝠物种的ACE2分子，并使用基于HIV的假型和实时SARS-CoV感染检测方法测试了它们与人SARS-CoV病毒S蛋白的相互作用。结果表明，Myotis daubentoni和Rhinolophus sinicus的 ACE2s支持SARS-CoV S蛋白介导的病毒进入，尽管与人类ACE2相比具有不同的效率。此外，如从不同蝙蝠ACE2分子的结构模型研究预测的那样，几个关键残基的改变降低或增强了蝙蝠ACE2受体的效率。这些数据表明M. daubentoni和R. sinicus可能会感染SARS-CoV，并且有可能成为SARS-CoV祖病毒的天然宿主。此外，我们目前的研究还表明，蝙蝠之间ACE2的遗传多样性要比已知的SARS-CoV易感哺乳动物中观察到的更大，这突显出可能存在更多更多的非蝙蝠物种可以充当SARS-CoV或其祖细胞病毒。这要求继续和扩大不同蝙蝠种群之间的野外监视研究，以最终确定SARS-CoV的真正自然宿主。］,这篇论文发表过程的时间线是——
+民主国家总统候选人接受公众质疑，承受丑闻爆料的攻击是选举的常规动作。拜登一方如果对拜登被攻击表示不服，可以按游戏规则来，同样拿出川普总统勾结国外贪污腐败、吸毒淫乱、出卖国家的实锤证据进行选举的对垒。当然，面对身为亿万富翁的川、甘心不拿任何回报只为美国强大的川普总统，他们无计可施，只有使出操纵选举、造假舞弊这些下三滥的手段，彻底破坏游戏规则，毫无廉耻地在众目睽睽之下盗窃选举。这些暗黑势力要是打量着川普总统拥有正直企业家的好脾气，想这么就蒙混过关，那就太年轻、太天真了。
 
-Received21 April 2010（接收日期2010年4月21日）Accepted12 June 2010（接受日期2010年6月12日）Published22 June 2010（印刷日期2010年6月22日）Issue DateOctober 2010（发行日期2010年10月）
+美国除了民主党、共和党，还有一个不被人经常提起的党派，那就是联邦党，这是美利坚当年打败英国，建立政权的中坚力量。美国真正的军事贵族联邦党人在建国后逐渐隐退幕后，但从未消失。他们捍卫美国建国之初的价值观，保持对上帝最虔诚的信仰，坚守美国宪法，奉行保守主义政策。联邦党人是美利坚真正的国家柱石，掌握着美国最硬的枪杆子。爆料革命最忠诚的战友班农先生，对中国共产党态度最强硬的美国国务卿蓬培奥都来自于西点军校。仔细翻看西点军校的历史就知道，西点军校就是由建国的联邦党人一手打造的。再想想那么多被民主党丢进垃圾堆销毁的军人选票都是投给川普总统的，就可以知道，军方是川普总统的坚定支持者。而西点帮只是联邦党人的下属组织之一。
 
-3、[Angiotensin-converting enzyme 2 (ACE2) proteins of different bat species confer variable susceptibility to SARS-CoV entry](https://link.springer.com/article/10.1007/s00705-010-0729-6)（不同蝙蝠物种的血管紧张素转化酶2（ACE2）蛋白赋予SARS-CoV进入的易感性）：
+此次美国黑暗势力蛮横无理、超越规则的行为，作为美国信仰和规则守护者的联邦党人绝不会坐视不管、任凭小人气焰嚣张。既然华尔街不遵守桌面上的游戏规则，那就别怪联邦党人发起火来把牌桌掀了。现在，媒体和拜登假模假样地庆祝选举的胜利，世界上一些华尔街的走狗附属国领导人也惺惺作态地祝贺拜登当选。它们自己很清楚，这是在走黑道吹口哨，给自己壮胆。
 
-这篇论文的作者是：[Yuxuan Hou](;), [Cheng Peng](;), [Meng Yu](;), [Yan Li](;), [Zhenggang Han](;), [Fang Li](;)（李放）,[Lin-Fa Wang](;) & [Zhengli Shi](;)（石正丽） ，病毒结构专家李放是石正丽的合作伙伴；这篇论文依据谷哥翻译的概要内容是——［蝙蝠中发现了SARS样冠状病毒，这表明蝙蝠可能是SARS-CoV的自然宿主。但是，先前的研究表明，来自马蹄蝠的血管紧张素转换酶2（ACE2）蛋白（一种已知的SARS-CoV受体）无法充当SARS-CoV的功能性受体。在这里，我们将先前的研究扩展到了另外七个蝙蝠物种的ACE2分子，并使用基于HIV的假型和实时SARS-CoV感染检测方法测试了它们与人SARS-CoV病毒S蛋白的相互作用。结果表明，Myotis daubentoni和Rhinolophus sinicus的 ACE2s支持SARS-CoV S蛋白介导的病毒进入，尽管与人类ACE2相比具有不同的效率。此外，如从不同蝙蝠ACE2分子的结构模型研究预测的那样，几个关键残基的改变降低或增强了蝙蝠ACE2受体的效率。这些数据表明M. daubentoni和R. sinicus可能会感染SARS-CoV，并且有可能成为SARS-CoV祖病毒的天然宿主。此外，我们目前的研究还表明，蝙蝠之间ACE2的遗传多样性要比已知的SARS-CoV易感哺乳动物中观察到的更大，这突显出可能存在更多更多的非蝙蝠物种可以充当SARS-CoV或其祖细胞病毒。这要求继续和扩大不同蝙蝠种群之间的野外监视研究，以最终确定SARS-CoV的真正自然宿主。］,这篇论文发表过程的时间线是——
+估计现在这些黑暗势力和拜登的真实内心已经忐忑不安，焦急地等待联邦党人出招。现在美国这些金钱资本势力看起来神秘，背后也不过是历史上几个著名财团家族的混合体，换再多的马甲，也别觉得自己藏得很深，你们从起家那天起做过的龌龊事上天都看在眼里，要抖有得是料。不要站在信仰的对立面（可以参考中共国出版书籍中对财团的介绍）。
 
-Received21 April 2010（接收日期2010年4月21日）Accepted12 June 2010（接受日期2010年6月12日）Published22 June 2010（印刷日期2010年6月22日）Issue DateOctober 2010（发行日期2010年10月）
+既然联邦党人具有掀桌子的实力和能力，同时又有我们亿万战友支持的新中国联邦为正义而战，那么牌局上的特殊玩家，躲在阴暗角落使坏的中国共产党，接下来请准备好灭顶之灾。
 
-4、[Two Mutations Were Critical for Bat-to-Human Transmission of Middle East Respiratory Syndrome Coronavirus](https://jvi.asm.org/content/89/17/9119)（两个突变对于中东呼吸综合征冠状病毒从蝙蝠到人的传播至关重要）：
+（注：联邦党英语：Federalist Party）
 
-这篇论文的作者是：Yang Yang, Chang Liu, Lanying Du, Shibo Jiang, Zhengli Shi（石正丽）, Ralph S. Baric, Fang Li（李放）S. Perlman, Editor ，病毒结构学专家李放又一次与石正丽同框，这篇论文依据谷哥翻译的概要内容是——［为了了解中东呼吸综合征冠状病毒（MERS-CoV）如何从蝙蝠传播给人类，我们比较了MERS-CoV和相关蝙蝠冠状病毒HKU4的病毒表面S蛋白。尽管HKU4的S蛋白不能介导病毒进入人细胞，但有两个突变使它能够被人蛋白酶激活，从而使其得以实现。这些突变存在于MERS-CoV病毒的S蛋白中，解释了为什么MERS-CoV会感染人类细胞。因此，这些突变在直接或通过中间宿主的MERS-CoV从蝙蝠到人的传播中起关键作用。］,这篇论文发表过程的时间线是——
+【文章仅代表作者观点】
 
-Received May 15, 2015（接收日期2015年5月15日）Accepted June 7, 2015（接受日期2015年6月7日）Published online August 3, 2015（线上发布日期2015年8月3日）.
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/yYjV6bBBiHdPn/)】
 
-5、[Discovery of Novel Bat Coronaviruses in South China That Use the Same Receptor as Middle East Respiratory Syndrome Coronavirus](https://jvi.asm.org/content/92/13/e00116-18)（在华南地区发现与中东呼吸综合征冠状病毒使用相同受体的新型蝙蝠冠状病毒）：
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-这篇论文的作者是：[Chu-Ming Luo](https://pubmed.ncbi.nlm.nih.gov/?term=Luo+CM&amp;cauthor_id=29669833) [1](https://pubmed.ncbi.nlm.nih.gov/29669833/#affiliation-1) [2](https://pubmed.ncbi.nlm.nih.gov/29669833/#affiliation-2) [3](https://pubmed.ncbi.nlm.nih.gov/29669833/#affiliation-3), [Ning Wang](https://pubmed.ncbi.nlm.nih.gov/?term=Wang+N&amp;cauthor_id=29669833) [1](https://pubmed.ncbi.nlm.nih.gov/29669833/#affiliation-1) [2](https://pubmed.ncbi.nlm.nih.gov/29669833/#affiliation-2), [Xing-Lou Yang](https://pubmed.ncbi.nlm.nih.gov/?term=Yang+XL&amp;cauthor_id=29669833) [1](https://pubmed.ncbi.nlm.nih.gov/29669833/#affiliation-1), [Hai-Zhou Liu](https://pubmed.ncbi.nlm.nih.gov/?term=Liu+HZ&amp;cauthor_id=29669833) [1](https://pubmed.ncbi.nlm.nih.gov/29669833/#affiliation-1), [Wei Zhang](https://pubmed.ncbi.nlm.nih.gov/?term=Zhang+W&amp;cauthor_id=29669833) [1](https://pubmed.ncbi.nlm.nih.gov/29669833/#affiliation-1), [Bei Li](https://pubmed.ncbi.nlm.nih.gov/?term=Li+B&amp;cauthor_id=29669833) [1](https://pubmed.ncbi.nlm.nih.gov/29669833/#affiliation-1), [Ben Hu](https://pubmed.ncbi.nlm.nih.gov/?term=Hu+B&amp;cauthor_id=29669833) [1](https://pubmed.ncbi.nlm.nih.gov/29669833/#affiliation-1), [Cheng Peng](https://pubmed.ncbi.nlm.nih.gov/?term=Peng+C&amp;cauthor_id=29669833) [1](https://pubmed.ncbi.nlm.nih.gov/29669833/#affiliation-1), [Qi-Bin Geng](https://pubmed.ncbi.nlm.nih.gov/?term=Geng+QB&amp;cauthor_id=29669833) [3](https://pubmed.ncbi.nlm.nih.gov/29669833/#affiliation-3), [Guang-Jian Zhu](https://pubmed.ncbi.nlm.nih.gov/?term=Zhu+GJ&amp;cauthor_id=29669833) [4](https://pubmed.ncbi.nlm.nih.gov/29669833/#affiliation-4), [Fang Li](https://pubmed.ncbi.nlm.nih.gov/?term=Li+F&amp;cauthor_id=29669833)（李放） [5](https://pubmed.ncbi.nlm.nih.gov/29669833/#affiliation-5), [Zheng-Li Shi](https://pubmed.ncbi.nlm.nih.gov/?term=Shi+ZL&amp;cauthor_id=29669833)（石正丽） [6](https://pubmed.ncbi.nlm.nih.gov/29669833/#affiliation-6) ，病毒结构专家李放是石正丽的合作伙伴，在这里二人又同框登场；这篇论文依据谷哥翻译的概要内容是——［自2012年以来，中东呼吸综合征冠状病毒（MERS-CoV）一直对人类健康构成威胁。尽管从蝙蝠中鉴定出了几种与MERS-CoV属于同一物种的与MERS相关的CoV，但它们并未使用MERS-CoV受体，二肽基肽酶4（DPP4）。在这里，我们从华南不同地区收集的至少30种蝙蝠物种中筛选了1,059个蝙蝠样品，并鉴定了89株谱系Cβ 冠状病毒，其中包括长毛忍冬冠状病毒冠状病毒HKU4，Pipistrellus pipistrellus 冠状病毒HKU5以及与MERS相关的CoV。我们对从大蝙蝠Ia io收集的两个阳性样品的全长基因组进行了测序，来自广东省。这两个基因组高度相似，并且显示出与其他谱系Cβ冠状病毒相同的基因组结构。尽管它们与其他与MERS相关的冠状病毒显示的全基因组核苷酸同一性仅为75.3％至81.2％，但它们的基因编码区与它们的对应物高度相似，除了S蛋白的情况。进一步的蛋白质相互作用实验证明，这些与MERS相关的CoV的S蛋白与受体DPP4结合。重组分析表明，新发现的与MERS相关的冠状病毒已从识别DPP4的蝙蝠冠状病毒HKU4中获得了其S蛋白基因。我们的研究提供了进一步的证据，表明蝙蝠代表了MERS-CoV的进化起源。重要性先前的研究表明，MERS-CoV起源于蝙蝠。但是，其从蝙蝠到人类的进化路径仍不清楚。在这项研究中，我们发现了八种蝙蝠中的89种新颖的C系冠状病毒。我们提供了证据，证明它与大晚蝙蝠派生的与MERS相关的冠状病毒，该蝙蝠使用与人类MERS-CoV相同的宿主受体。该病毒还为蝙蝠MERS相关冠状病毒和另一种蝙蝠冠状病毒HKU4之间的自然重组事件提供了证据。我们的研究扩大了与MERS相关的CoV的宿主范围，代表了将蝙蝠确立为MERS-CoV自然宿主的重要一步。这些发现可能导致改善的MERS-CoV流行病学监测以及预防和控制MERS-CoV向人类的传播。］,这篇论文发表过程的时间线是——
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-Received January 22，2018（接收日期2018年1月22日）, Accepted April 3，2018（接受日期2018年4月3日）, Published online June 13, 2018（线上发布日期2018年6月3日）.
-
-6、[Origin and evolution of pathogenic coronaviruses](https://www.nature.com/articles/s41579-018-0118-9)（致病性冠状病毒的起源和进化）：
-
-这篇论文的作者是：[Jie Cui](;), [Fang Li](;) （李放）& [Zheng-Li Shi](;)（石正丽），病毒结构专家李放作为石正丽的合作伙伴，两人又一次同框登场；这篇论文依据谷哥翻译的概要内容是——［严重急性呼吸综合症冠状病毒（SARS-CoV）和中东呼吸综合症冠状病毒（MERS-CoV）是21世纪初在人类中出现的两种高度可传播和致病性病毒。两种病毒都可能起源于蝙蝠，并且在全世界的蝙蝠中发现了与SARS-CoV和MERS-CoV相关的遗传多样的冠状病毒。在这篇综述中，我们总结了关于这两种病原体冠状病毒的起源和进化的当前知识，并讨论了它们的受体用法。我们还强调了蝙蝠传播的冠状病毒的多样性和潜力，最近的猪急性腹泻综合征冠状病毒（SADS-CoV）向猪的传播证明了这一点。］,这篇论文发表过程的时间线是——
-
-Published10 December 2018（印刷日期2018年12月10日）Issue DateMarch 2019（发行日期2019年3月）
-
-7、[Molecular Mechanism for Antibody-Dependent Enhancement of Coronavirus Entry](https://jvi.asm.org/content/94/5/e02015-19)（冠状病毒进入抗体依赖性增强的分子机制）：
-
-这篇论文的作者是：Yushun Wan, Jian Shang, Shihui Sun, Wanbo Tai, Jing Chen, Qibin Geng, Lei He, Yuehong Chen, Jianming Wu, Zhengli Shi（石正丽）, Yusen Zhou（周育森）, Lanying Du（杜兰英）, Fang Li（李放） ，在2020年5月份已经莫名死亡的周育森、周育森的妻子杜兰英、石正丽的合作伙伴病毒结构专家李放与石正丽再一次同框登场，周育森已经被见马克思去了，其他作者们在将来可会安好？中共不杀他们，这个世界能饶了他们吗？这篇论文依据谷哥翻译的概要内容是——［病毒进入的抗体依赖性增强（ADE）一直是流行病学，疫苗开发和基于抗体的药物治疗的主要关注点。但是，ADE背后的分子机制仍然难以捉摸。冠状病毒S蛋白首先结合宿主细胞表面的受体，然后融合病毒膜和宿主膜，从而介导病毒进入细胞。在这项研究中，我们调查了针对中东呼吸综合征（MERS）冠状病毒峰值的受体结合域（RBD）的中和性单克隆抗体（MAb）如何通过伪病毒进入和生化分析介导病毒进入。我们的结果表明，MAb结合病毒表面S蛋白，使其经历构象变化并易于发生蛋白水解激活。同时，MAb与细胞表面IgG Fc受体结合，通过规范的病毒受体依赖性途径指导病毒进入。我们的数据表明抗体/ Fc-受体复合物在介导病毒进入中功能上模拟病毒受体。此外，我们在病毒受体依赖性，Fc受体依赖性和两种受体依赖性病毒进入途径中表征了单克隆抗体的剂量，勾勒出在治疗病毒感染中单克隆抗体用法的指南。我们的研究揭示了抗体增强病毒进入的新型分子机制，并可以指导未来的疫苗接种和抗病毒策略。关于治疗病毒感染的单克隆抗体用法的指导原则。我们的研究揭示了抗体增强病毒进入的新型分子机制，并可以指导未来的疫苗接种和抗病毒策略。关于治疗病毒感染的单克隆抗体用法的指导原则。我们的研究揭示了抗体增强病毒进入的新型分子机制，并可以指导未来的疫苗接种和抗病毒策略。］,这篇论文发表过程的时间线是——
-
-Received November 27, 2019（接收日期2019年11月27日）Accepted December 4, 2019（接受日期2019年12月4日）Published online February 14, 2020（线上发布日期2020年2月14日）.
-
-8、[Receptor Recognition Mechanisms of Coronaviruses: a Decade of Structural Studies](https://jvi.asm.org/content/89/4/1954)（冠状病毒的受体识别机制：十年的结构研究）
-
-这篇论文的唯一作者是：Fang Li（李放）；这篇论文依据谷哥翻译的概要内容是——［病毒识别受体是宿主细胞病毒感染的第一步，也是必不可少的步骤。它是病毒宿主范围和跨物种感染的重要决定因素，也是抗病毒干预的主要目标。冠状病毒可识别多种宿主受体，感染许多宿主，对人类和动物健康构成威胁。冠状病毒刺突蛋白的受体结合S1亚基包含两个独特的结构域，即N末端结构域（S1-NTD）和C末端结构域（S1-CTD），两者都可以充当受体结合结构域（RBD） 。来自三个主要冠状病毒属的S1-NTD和S1-CTD识别至少四个蛋白质受体和三个糖受体，并表现出复杂的受体识别模式。例如，同一属内高度相似的冠状病毒S1-CTD可以识别不同的受体，而不同属的非常不同的冠状病毒S1-CTD可以识别相同的受体。此外，冠状病毒S1-NTD可以识别蛋白质或糖受体。在过去的十年中，结构研究阐明了许多与冠状病毒-受体相互作用有关的难题。本文回顾了有关冠状病毒受体识别机制的最新知识，并讨论了冠状病毒如何发展其复杂的受体识别模式。它还总结了控制病毒一般识别受体的重要原理。冠状病毒S1-NTDs可以识别蛋白质或糖受体。在过去的十年中，结构研究阐明了许多与冠状病毒-受体相互作用有关的难题。本文回顾了有关冠状病毒受体识别机制的最新知识，并讨论了冠状病毒如何发展其复杂的受体识别模式。它还总结了控制病毒一般识别受体的重要原理。冠状病毒S1-NTDs可以识别蛋白质或糖受体。在过去的十年中，结构研究阐明了许多与冠状病毒-受体相互作用有关的难题。本文回顾了有关冠状病毒受体识别机制的最新知识，并讨论了冠状病毒如何发展其复杂的受体识别模式。它还总结了控制病毒一般识别受体的重要原理。它还总结了控制病毒一般识别受体的重要原理。它还总结了控制病毒一般识别受体的重要原理。］这篇论文发表过程的时间线是——
-
-Published online January 26, 2015（线上发表日期2015年1月26日）.
-
-9、Structure, Function, and Evolution of Coronavirus Spike Proteins（冠状病毒刺突蛋白的结构，功能和进化）
-
-这篇论文的唯一作者是 [Fang Li](;) （李放）；这篇论文依据谷哥翻译的概要内容是——［冠状病毒S蛋白是介导冠状病毒进入宿主细胞的多功能分子机器。它首先通过其S1亚基与宿主细胞表面的受体结合，然后通过其S2亚基融合病毒膜和宿主膜。来自不同冠状病毒的S1中的两个域识别多种宿主受体，从而导致病毒附着。刺突蛋白以两种结构上不同的构象存在，即融合前和融合后。必须触发刺突蛋白从融合前构象到融合后构象的转变，从而导致膜融合。本文回顾了有关冠状病毒刺突蛋白的结构和功能的最新知识，阐明了两个S1域如何识别不同的受体，以及如何调节刺突蛋白进行构象转变。在其他病毒和宿主细胞的相应功能的背景下，我进一步讨论了冠状病毒刺突蛋白这两个关键功能的进化，受体识别和膜融合。］,这篇论文发表过程的时间线是——
-
-First published online as a Review in Advance on August 25, 2016（首先作为预印本线上发表于2016年8月25日）
-
-10、[Cell entry mechanisms of SARS-CoV-2](https://www.pnas.org/content/117/21/11727)（SARS-CoV-2进入细胞的机制）
-
-这篇论文的作者是：[View ORCID Profile](https://orcid.org/0000-0003-2600-6059)Jian Shang, Yushun Wan, Chuming Luo, Gang Ye, Qibin Geng, [View ORCID Profile](https://orcid.org/0000-0001-8505-5905)Ashley Auerbach, and [View ORCID Profile](https://orcid.org/0000-0002-1958-366X)Fang Li（李放）；这篇论文依据谷哥翻译的概要内容是——［一种新型的严重急性呼吸综合征（SARS）样冠状病毒（SARS-CoV-2）正在引起2019年全球冠状病毒病（COVID-19）大流行。了解SARS-CoV-2如何进入人体细胞是解密其奥秘并遏制其传播的高度优先事项。病毒表面刺突蛋白介导SARS-CoV-2进入细胞。为了实现其功能，SARS-CoV-2刺突通过其受体结合结构域（RBD）与其受体人类ACE2（hACE2）结合，并被人类蛋白酶蛋白水解激活。在这里，我们使用生化和假病毒进入试验研究了SARS-CoV-2的S蛋白的受体结合和白酶激活。我们的发现确定了SARS-CoV-2的关键细胞进入机制。首先，SARS-CoV-2 RBD具有比SARS-更高hACE2结合亲和力，冠状病毒RBD，支持有效的小区进入。第二，矛盾的是，在整个SARS-CoV-2的S蛋白hACE2结合亲和力相当或比SARS冠状病毒S蛋白低，这表明SARS-CoV-2的RBD，虽然更有效，比SARS-较少暴露冠状病毒RBD。第三，与SARS- CoV不同的是，SARS-CoV-2是由前蛋白转化酶预活化的细胞进入弗林蛋白酶，减少其对靶细胞蛋白酶为条目依赖性。RBD的高hACE2结合亲和力，弗林蛋白酶预激活 S蛋白和S蛋白中隐藏的RBD可能使SARS-CoV-2在逃避免疫监视的同时保持有效的细胞进入。这些功能可能有助于病毒的广泛传播。成功的干预策略必须同时针对SARS-CoV-2的效力及其回避性。］,这篇论文发表过程的时间线是——
-
-Published in issue May 26, 2020.（印刷发行日期2020年5月26日）Published first May 6, 2020（首次印刷日期2020年5月6日）.
-
-11、[Mechanisms of host receptor adaptation by severe acute respiratory syndrome coronavirus](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3308800/)（严重急性呼吸系统综合症冠状病毒对宿主受体适应的机制）
-
-这篇论文的作者是：[Kailang Wu](https://www.ncbi.nlm.nih.gov/pubmed/?term=Wu%20K%5BAuthor%5D&amp;cauthor=true&amp;cauthor_uid=22291007),‡,1 [Guiqing Peng](https://www.ncbi.nlm.nih.gov/pubmed/?term=Peng%20G%5BAuthor%5D&amp;cauthor=true&amp;cauthor_uid=22291007),‡,1 [Matthew Wilken](https://www.ncbi.nlm.nih.gov/pubmed/?term=Wilken%20M%5BAuthor%5D&amp;cauthor=true&amp;cauthor_uid=22291007),‡,1 [Robert J. Geraghty](https://www.ncbi.nlm.nih.gov/pubmed/?term=Geraghty%20RJ%5BAuthor%5D&amp;cauthor=true&amp;cauthor_uid=22291007),§ and [Fang Li](https://www.ncbi.nlm.nih.gov/pubmed/?term=Li%20F%5BAuthor%5D&amp;cauthor=true&amp;cauthor_uid=22291007)（李放）‡,2；这篇论文依据谷哥翻译的概要内容是——［来自棕榈果子狸科的严重急性呼吸系统综合症冠状病毒（SARS- CoV ）通过获得对人类受体血管紧张素转化酶2（ACE2）的结合亲和力，已经两次进化出感染人类的​​能力。在从人或动物身上分离出的不同SARS- CoV 毒株的受体结合域（RBD）中，已经鉴定出许多突变。为什么自然选择这些突变或SARS- CoV 如何进化以适应不同的宿主受体，人们对此知之甚少，呈现出进化和流行难题。在这项研究中，我们调查了这些突变对受体识别（SARS- CoV 的重要决定因素）的影响感染和发病机理。通过结合使用生化，功能和晶体学方法，我们阐明了这些天然选择的RBD突变的分子和结构机理。这些突变增强了与ACE2上两个病毒结合热点的有利相互作用或减少了不利的相互作用，通过这样做，它们增强了与人（hACE2）或灵猫（cACE2）ACE2的病毒相互作用。因此，这些突变是病毒对hACE2或cACE2的适应。为了证实上述分析，我们设计并表征了两个优化的RBD。经过人类优化的RBD包含所有hACE2适应残基（Phe-442，Phe-472，Asn-479，Asp-480和Thr-487），并且对hACE2的亲和力极高，而对cACE2的亲和力却相对较低。果子狸优化的RBD包含所有cACE2适应残基（Tyr-442，Pro-472，Arg-479，Gly-480和Thr-487），并且对cACE2的亲和力极高，对hACE2的亲和力也很高。这些结果不仅说明了SARS-适应宿主受体的详细机制冠状病毒也为追踪动物未来SARS- CoV的进化提供了分子和结构基础。］,这篇论文发表过程的时间线是——
-
-Published online 2012 Jan 30（线上发布日期2012年1月30日）
-
-在互联网上可以基本搜索不到病毒结构专家李放的资料，通过李放的论文汇总，作为非专业人士，我们依然可以读懂李放的研究目的，那就是如何把本来对人类无害的病毒改造成可以侵入人体的病毒，作为专业小白鼠的我们跟随爆料革命一路走来，渐渐明白RBM、S蛋白、ORF8等一个一个生僻词汇，不是因为我们多好学，而是因为我们以前不知道原来人类还会有这样一批科学家终其一生都在研究如何消灭人类，没有条件创造条件也要上，李放就是这其中之一，他，能等到终极审判的那一天吗？
-
-（文章内容仅代表作者个人观点）
+[!\[\]()!\[\](https://spark.adobe.com/page/yYjV6bBBiHdPn/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/yYjV6bBBiHdPn/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 1+

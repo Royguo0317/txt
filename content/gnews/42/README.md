@@ -1,27 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德记 美东11/06/2020 晚间节目
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/544437/)
+## 2020大选，你选什么？
+` 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hans/545248/)
 
-听写校对：brandnew 简介：恩真 文宣图：艾伦 出品：首尔喜韩农场
+作者： 紫楝花开
 
-简介：
 
-1.美国有十多个州用了黑客软件计票，系统由佩洛西前幕僚长公司提供。
-2.大法官要求宾夕法尼亚州隔离选举日后抵达的选票并逐一检查。
-3.对滨州最高法官的裁决就是判例法的先例。
-4.美国正义民众将在50个州和平游行抗议拜登偷票。
-5.主流媒体都是造势，就是打心理战。
-6.美国制度是为好人设计的 容易被恶人钻空子。
-7.川普总统给民主党时间表演造假。
-8.造假证据收集好然后就可以收网了。
-9.民主党找安提法撑场面，与真正的民意对抗。
-10.美国司法部绕过了禁止在投票中使用武装人员。
-11.强大的民意让拜登们使出了最后所有招数。
-12.真正的民意可能让众议院和参议院都由共和党主掌。
-13.在过去的三个月期间，中国暗网上可以买到对折的美国救济支票和prepaid信用卡。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10144836/7-12.jpg)Source: www.neoskosmos.com
 
-文宣图：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10095923/1-42.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10100308/2-56.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10100242/3-44.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10102907/4-20.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10103801/5-18.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10103952/6-19.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10105319/7-12.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10105332/8-11.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10110228/9-8.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10110634/10-8.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10111020/11-10.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10111442/12-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10111705/13-3.png)
+
+
+
+
+
+**目前已经释放出的证据已显示出民主党在这次大选中使用的作弊手段花样繁多、无所不用其及，如：在多地重复使用同一选民的资料对拜登进行投票，午夜后神秘递送几十万拜登的幽灵票，直接丢弃川普选票，分发马克笔给川普选民导致选票作废，安装病毒软件直接将川普选票改为拜登选票，点票员直接改票，将过期选票邮戳直接覆盖为选举日邮戳，拒绝共和党监票员进场监督，木板遮窗黑屋点票，不计**
+
+**回顾川普四年任期所为，他是在带领美国人民从偏离的方向重回信仰的道路。今天川普总统请求所有基督徒为其在下午5pm 上诉至最高法院祈祷，我当仁不让。**
+
+**拜登一方**则**做贼心虚，迫不及待借媒体宣布获胜，罔顾联邦选举委员会尚未对选举结果进行认证**， **企图以舆论压力，造成既成事实。但司法部长巴尔就已掌握的犯罪证据已公布要彻查选举舞弊。犯罪者终将自食恶果，得到应有的惩罚。**
+
+**在这个黑暗即将过去，曙光就要来临之际，让我们再来回顾以为指着在大选前振聋发聩的心声，“2020大选，你选什么？”（萧笙客博客）**
+
+#### “***2020大选，你选什么？***
+
+*我在11 月份投票选举的不是一个人*
+
+*而是要支持哪一些政纲*
+
+*我投票支持的是能够敬拜上帝的权力*
+
+*我投票支持的是第二修正案*
+
+*我投票支持的是一个能够追逐美国梦的资本主义社会*
+
+*我投票支持的是警察得到足够的经费能维持法制和秩序*
+
+*我投票支持的是我们的军队，还有那些为保卫祖囯献身的将士*
+
+*我投票支持的是制止儿童性贩卖的罪行*
+
+*我投票支持的是我们的教会可以自由敬拜我们的神*
+
+*我要投票支持的是美国继续是以色列的坚定盟友*
+
+*我投票支持的是我自由发声不被禁言的权力*
+
+*我投票支持的是安全的边境*
+
+*我投票代言的是每一个没有出生的生命*
+
+*我投票支持的是我们的国旗*
+
+*我投票支持的是正义抵制邪恶*
+
+*我投票支持的是神佑之下的一囯*
+
+*我们唯一的选择是川普总统*
+
+*你必须为此祈祷，也必须投出你的一票”*
+
+让我们在此为川普祈祷，相信他是被拣选的美国下一任总统。他将重塑美国。
+
 0
