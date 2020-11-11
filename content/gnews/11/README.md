@@ -1,45 +1,97 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班农疫情作战室463/464期
-` GM47` [轉載自GNews](https://gnews.org/zh-hans/548277/)
+## 朱利安尼 推文系列 5（2020年11月8-9日）
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/548278/)
 
-战友之家新闻译制组制作
+*新闻来源：朱利安尼 推文；作者：朱利安尼；发布时间： 2020年11月6-9日*
+
+*翻译/简评：Beicy-数学老师；校对/审核：TCC；Page：拱卒*
+
+[![](https://spark.adobe.com/page/eWXogcpEkAfai/images/db13a5b6-8e57-41a0-8c49-5fcec8a71666.jpg?asset_id=1d8a0949-651e-4d1b-821d-5e2d04174fcb&amp;img_etag=%226813ecc631b2588a3b3cac6b8b7faaad%22&amp;size=2560)](https://spark.adobe.com/page/eWXogcpEkAfai/images/db13a5b6-8e57-41a0-8c49-5fcec8a71666.jpg?asset_id=1d8a0949-651e-4d1b-821d-5e2d04174fcb&amp;img_etag=%226813ecc631b2588a3b3cac6b8b7faaad%22&amp;size=1024)
+
+**简评：**
+
+**朱利安尼: “拜登主导了这个造假集团”**
+
+朱利安尼先生最新推文，明确指出拜登是选票造假这一”世纪选举盗窃案”的知情者和制造者。朱利安尼先生还进一步给出”幽灵选民”的具体例子—- 美国知名人士、前重量级冠军乔-弗雷泽在2011年11月7日去世，却参加了2018年的(中期)选举投票！
+
+川普总统的选民在虚假媒体声称拜登获胜后，自发聚会各州投票站，抗议计票造假。这样正义的行为，却被拜登方抹黑为意欲暴乱。朱利安尼先生不仅驳斥了这一谎言，并质问对手: ”如果重新计票和挑战使川普成为赢家，将会发生什么?”
+
+朱利安尼先生确切地宣布: 已经掌握几个关键州的非法选票证据。加上最近司法院长及共和党员站出来支持调查选举违规，这表明选举结果将被纠正过来。
+
+大选投票结束。 战斗才刚刚开始。
+
+爆料革命的战友们, 我们加油传播真相!
+
+[原文链接](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+- **推文1: 2020年11月9日 7点11分发布**
 
 
 
 
+> NYC,DC,Philly were all boarded up for riots.
+> 
+> All of a sudden no riots by Trump supporters.
+> 
+> They don’t riot.
+> 
+> What happens if recounts and challenges make [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) the winner.
+> 
+> The Biden supporters do riot because they are lawless.
+> — Rudy W. Giuliani (@RudyGiuliani) [November 9, 2020](https://twitter.com/RudyGiuliani/status/1325697527367274497?ref_src=twsrc%5Etfw)
 
-463/464.摘要
 
-10月29日
-班农：
-FBI局长，中情局局长，国防部长，会在周二被免职。
-问脸书祖克伯：是哪个FBI人员警告你要对某些档案高度预警？给个名字！
-日后会在推特全天候放送有关拜登家族腐败的财务文件。
-拜登家族向腐败的全面妥协，把美国卖给中共，我想也包括俄罗斯，和每个人。
-征求视频片段，拜登亲口说：亨特是我认识的最聪明的人。
+纽约，华盛顿，费城(的商家)都钉上板子以防暴动。突然间，川普的支持者是不暴动的。他们不会暴动。如果重新计票和(司法)挑战使川普赢得大选，将会发生什么? 拜登的支持者一定会暴动，因为他们无法无天。
+- **推文2: 2020年11月9日 14点16分发布**
 
-山姆费迪斯(前中情局官员，「CIA浮沉录」作者)：
-FBI持有「笔电门」硬盘数月，确知发生何事却无行动，显然有人吃案。情治单位无疑汇集数据向上呈报，谁吃案是个问题，科米，克莱本，布莱顿，海登，雷和海森伯这些人全知情。
-乔拜登未通过安全检查，因为他为北京工作，因为他收了中共多年的钱，有大量证据证明。未来总统办公室里将有一名中共代理人。
-把德行差的高层开除，办公室的人会在走廊上欢呼，他们想要做正事，尽职尽责。
 
-波索必(前美海军情报官)：
-拜登家族的工作基本是建立一个三合会类型的组织，乔是武林高手，亨特、其余的人都是他的弟子，彼此有紧密的关系，联合人际关系、声誉，和影响力一切。
-三合会，中国黑社会，有龙头老大，有堂口小主，类似黑手党罗马式的组织架构，极其残暴。中共引入黑社会文化，开始长征，内战，毛把创党人纷纷斗倒等等，最终黑社会文化改变了中共，这一点知识界从未提起。
 
-班农：
-播出亨特拜登与何志平带签名的契约信，与早先曝光的亨特电话录音节录，证明1. 亨特拜登知道何志平的间谍身份，2. 他收了钱。
-呼吁庞佩奥释出拜登与习近平25小时一对一谈话记录。
-过去48小时看到社交媒体、硅谷被中共收买，自从「笔电门」开始，拜登们安静了，川普声势起，时机刚刚好，黑人劳动阶级，西裔，白人，妇女界的支持开始小幅转移。
-麦克西在推特公布拜登家族犯罪的证明文件，一次爆一料。到目前为止没有相关人出面否认。现场念宣读有关Burisma的信件一份。
 
-朱利亚尼(前纽约市长，川普私人律师)：
-这明显不只是商业交易，这是间谍案，罪名很大，阴谋反美国，阴谋间谍行动，非商业诈骗，可以有违反Rico法案5至6项的控罪。
-清扫体制内有如癌细胞的违法行为，唯一途径就是起诉。
-国会以川普弹劾案来阻止拜登腐败案的调查，有些人非常积极推动弹劾案，因为有利益，普劳西的丈夫和儿子在乌克兰参与相关业务。
-硬盘包含非常危害儿童信息，亨特拜登对孩子制造了危险的环境，证据确凿，所以我举报，然后案子由德拉瓦州警局去了联邦调查局，在官僚部门中游走。
-联邦调查局的腐败来自高层，不是从底层开始的。要换掉整个总部，建立一个全新的。
+> The Biden selection by the Crooked Media is based on unlawful votes in PA, Mich, GA, Wisc, Nevada et al.
+> 
+> We will prove it all.
+> — Rudy W. Giuliani (@RudyGiuliani) [November 9, 2020](https://twitter.com/RudyGiuliani/status/1325695405917663234?ref_src=twsrc%5Etfw)
 
+
+那些歪曲事实的媒体对拜登的选举支持是基于宾夕法尼亚州、密歇根州、佐治亚州、威斯康星州、内华达州等地的非法选票。我们将证明这一切。
+- **推文3: 2020年11月8日 13点56分发布**
+
+
+
+
+> Just an example of how brazen the Philadelphia Democrat machine is.
+> 
+> Former heavyweight champion Joe Frazier voted in the 2018 election. He died on 11/7/2011!!!
+> 
+> Will Smith’s grandfather voted in 2017, 2018. He died in 2016.
+> 
+> I bet Biden dominated this group.
+>  
+> We will find out.
+> — Rudy W. Giuliani (@RudyGiuliani) [November 8, 2020](https://twitter.com/RudyGiuliani/status/1325437154575704065?ref_src=twsrc%5Etfw)
+
+
+这只是一个例子，(来看看)多么厚颜无耻的费城民主党(操纵计票)机器。前重量级冠军乔-弗雷泽在2018年的(中期)选举中投票。他于2011年11月7日去世！!威尔-史密斯的祖父在2017年、2018年都投了票。他在2016年去世。我敢打赌，拜登主导了这个造假集团。 我们会找到答案。
+- **推文4: 2020年10月6日 14点16分发布**
+
+
+
+
+> [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Rudy W. Giuliani (@RudyGiuliani) [October 6, 2020](https://twitter.com/RudyGiuliani/status/1313468197446746117?ref_src=twsrc%5Etfw)
+
+
+中共病毒(CCP Virus) 
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105818/11222.png)战争行为；是的，是这样的。
+
+
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[编辑：【喜马拉雅战鹰团】](https://spark.adobe.com/page/eWXogcpEkAfai/)
+[![](https://spark.adobe.com/page/eWXogcpEkAfai/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/eWXogcpEkAfai/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0
