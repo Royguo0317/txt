@@ -1,59 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福克斯收视巨人塔克·卡尔森怒斥尼尔·卡夫图断播可耻
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/547315/)
+## 【突发】林郑请求人大常委DQ议员 即宣布杨岳桥郭荣铿郭家麒梁继昌失议员资格【追踪报道】
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/547953/)
 
-编译：玫瑰天空
+整撰：文燕
 
-在周一与选举有关的新闻发布会上，福克斯[新闻主持人尼尔·卡夫图（Neil Cavuto）](https://bigleaguepolitics.com/fox-news-cuts-off-white-house-press-secretary-kayleigh-mcenany-when-addressing-fraud-allegations/)切断了川普选举阵营 [白宫新闻秘书凯里·麦卡尼（Kayleigh McEnany）](https://bigleaguepolitics.com/fox-news-cuts-off-white-house-press-secretary-kayleigh-mcenany-when-addressing-fraud-allegations/)的新闻稿播出。收视巨人塔克·卡尔森（Tucker Carlson）抨击了卡夫图和及其黄金时段节目。
+覆核：文非
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11093413/image001-20.png)图片来源：苹果日报
+新华社报道，**全国人大常委通过，宣扬或支持「港独」主张、拒绝承认国家主权、寻求外国势力干预特区事务、或俱有其他危害国家安全行为的立法会议员，将不符合拥护《基本法》、效忠香港特别行政区的法定要求和条件，「一经依法认定，即时丧失立法会议员的资格。」**该决定同时适用于原定今年九月举行的立法会换届选举中，遭选举主任DQ 的立法会议员，以及今后参选或者出任立法会议员者。
 
-卡尔森说：“在民主国家，您不能忽视公民提出的诚实问题。你不准 您不能随意地将他们视为疯狂和不道德的询问。您不能仅仅摆脱自己不喜欢的报道。您不能简单地告诉人们接受结果，因为武力在民主国家是行不通的。那是专政。”
+据香港多家新闻指，继新华社报道后，政府随即发稿宣布，根据人大常委会决定，公民党杨岳桥、郭荣铿、郭家麒及专业议政梁继昌，即时丧失立法会议员的资格。特区政府又指出，稍后会将全国人大常委会的决定刊宪。特首林郑月娥将于今日下午 2 点半会见传媒。
 
-他还总结道：“在自由社会中，您必须让公众相信自己的合法性。您必须有理由赢得他们。民主永远是自愿的安排。告诉选民闭嘴是远远不够的。”
+**据新华社刊出的人大决定全文，当中提及「上述议案是应香港特别行政区行政长官的请求而提出的」，即今次人大 DQ 非效忠议员决定，源于特首林郑月娥向人大提出请求。**
 
-整个卡尔森真的很生气，他的怒斥可以在这里看到：
+全国人大常委会委员长栗战书在会议后表示，立法会议员是特区公职人员的重要组成部分，常委会一致认为作出决定是必要及适当，亦「符合包括香港同胞在内的全体中国人民的根本利益」，能够完善一国两制，维护国家安全及特区宪制秩序，有利于香港社会凝聚正能量、齐心协力提振经济、保障民生。
 
+前立法会议员朱凯迪在FB 上发文分析，决定提及「一经依法认定（不拥护《基本法》及效忠特区），即时丧失立法会议员的资格」，即意味着今次的人大常委「决定」和特首DQ「宣布」，都不能在香港法庭挑战，并且直接「绕过香港法庭和立法会按法例DQ 议员的权力」，只要任何一个行政官员，包括选举主任，「依法认定」相关人士不拥护《基本法》及效忠特区，就可直接宣布DQ。
 
+**人大常委会决定全文：**
 
-> TUCKER takes aim at Neil Cavuto for cutting away from the Trump campaign's press conference today:
-> 
-> "You can't just cut away from coverage you don't like. Force doesn't work in a democracy. That's a dictatorship. Telling voters to shut up is never enough." [pic.twitter.com/uxFbxdIJFR](https://t.co/uxFbxdIJFR)
-> — August Takala (@AugustTakala) [November 10, 2020](https://twitter.com/AugustTakala/status/1325976743786799104?ref_src=twsrc%5Etfw)
+全国人民代表大会常务委员会关于香港特别行政区立法会议员资格问题的决定
 
+（2020年11月11日第十三届全国人民代表大会常务委员会第二十三次会议通过）
 
+第十三届全国人民代表大会常务委员会第二十三次会议审议了《国务院关于提请就香港特别行政区立法会议员资格问题作出决定的议案》。上述议案是应香港特别行政区行政长官的请求而提出的。会议认为，为了全面准确贯彻落实“一国两制”方针和《中华人民共和国香港特别行政区基本法》，维护国家主权、安全和发展利益，维护香港长期繁荣稳定，必须确保香港特别行政区有关公职人员包括立法会议员符合拥护中华人民共和国香港特别行政区基本法、效忠中华人民共和国香港特别行政区的法定要求和条件。为此，全国人民代表大会常务委员会同意国务院2020年11月7日提出的议案，根据《中华人民共和国宪法》第五十二条、第五十四条、第六十七条第一项的规定和《中华人民共和国香港特别行政区基本法》、《全国人民代表大会关于建立健全香港特别行政区维护国家安全的法律制度和执行机制的决定》、《中华人民共和国香港特别行政区维护国家安全法》的有关规定以及《全国人民代表大会常务委员会关于〈中华人民共和国香港特别行政区基本法〉第一百零四条的解释》、《全国人民代表大会常务委员会关于香港特别行政区第六届立法会继续履行职责的决定》 ，作出如下决定：
 
-他指出，Cavuto和福克斯新闻在当天早些时候剪切并决定审查McEnany的言论 ，
+一、香港特别行政区立法会议员，因宣扬或者支持“港独”主张、拒绝承认国家对香港拥有并行使主权、寻求外国或者境外势力干预香港特别行政区事务，或者俱有其他危害国家安全等行为，不符合拥护中华人民共和国香港特别行政区基本法、效忠中华人民共和国香港特别行政区的法定要求和条件，一经依法认定，即时丧失立法会议员的资格。
 
+二、本决定适用于在原定于2020年9月6日举行的香港特别行政区第七届立法会选举提名期间，因上述情形被香港特别行政区依法裁定提名无效的第六届立法会议员。
 
-```
-为了跟随诡计说拜登当选总统，这种行为是可耻的。
-```
+今后参选或者出任立法会议员的，如遇有上述情形，均适用本决定。
 
+三、依据上述规定丧失立法会议员资格的，由香港特别行政区政府宣布。
 
+**战友点评：**
 
+2019年的送中条例，2020年国安法的颁布，在制度上，中央政府对于香港民选的立法会议员用尽一切方法进行打击。
 
-> FOX NEWS' NEIL CAVUTO CUTS TRUMP CAMPAGIN PRESSER: "Whoa, whoa, whoa. I just think we have to be very clear…She's charging the other side as welcoming fraud and illegal voting, unless she has more details to back that up, I can't in good countenance continue to show you this." [pic.twitter.com/SE9BGKdh75](https://t.co/SE9BGKdh75)
-> — Breaking911 (@Breaking911) [November 9, 2020](https://twitter.com/Breaking911/status/1325918520107028481?ref_src=twsrc%5Etfw)
+对于人大常委会通过有关香港特区立法会议员资格问题的决定，**港大法律学院公法讲座教授陈文敏**形容有关决定是无法无天，指出即使有人违反《港区国安法》亦要经法庭审讯。他强调是中央行使武断权力作决定，不顾香港法律及《基本法》，便突然取消议员资格，质疑选举制度还有什么意思。
 
+据新华社刊出的人大决定全文，清清楚楚地写明「上述议案是应香港特别行政区行政长官的请求而提出的」，即今次人大DQ非效忠议员决定，源于特首林郑月娥向人大提出请求。
 
+林郑一手把香港司法制度拱手献给中共，出卖了香港民选的立法会议员，林郑必须向历史和所有的香港人做出交代。
 
-卡尔森正在启发美国爱国者觉醒的时期，在这个时代，美国正被文明的敌人包围。
+以上观点仅代表笔者本人
 
-如果福克斯新闻公司因为这类事件抛弃卡尔森，那可能是自创办人鲁珀特·默多克（Rupert Murdoch）退休以来，这家陷入困境的媒体自身的致命打击。
+资料来源：立场新闻、香港电台网站
 
-因为就卡尔森而言，他可能对Fox News并不留恋。他是一个媒体巨人，一个迅速成长为以自己为品牌核心基础的媒体人。
+[https://www.thestandnews.com/politics/%E4%BA%BA%E5%A4%A7%E5%B8%B8%E5%A7%94%E6%8E%88%E6%AC%8A-dq-%E9%9D%9E%E6%95%88%E5%BF%A0%E8%AD%B0%E5%93%A1-%E6%B8%AF%E5%BA%9C%E5%8D%B3%E5%AE%A3%E5%B8%83%E6%A5%8A%E5%B2%B3%E6%A9%8B%E9%83%AD%E6%A6%AE%E9%8F%97%E9%83%AD%E5%AE%B6%E9%BA%92%E6%A2%81%E7%B9%BC%E6%98%8C%E5%A4%B1%E8%AD%B0%E5%93%A1%E8%B3%87%E6%A0%BC/](https://www.thestandnews.com/politics/%E4%BA%BA%E5%A4%A7%E5%B8%B8%E5%A7%94%E6%8E%88%E6%AC%8A-dq-%E9%9D%9E%E6%95%88%E5%BF%A0%E8%AD%B0%E5%93%A1-%E6%B8%AF%E5%BA%9C%E5%8D%B3%E5%AE%A3%E5%B8%83%E6%A5%8A%E5%B2%B3%E6%A9%8B%E9%83%AD%E6%A6%AE%E9%8F%97%E9%83%AD%E5%AE%B6%E9%BA%92%E6%A2%81%E7%B9%BC%E6%98%8C%E5%A4%B1%E8%AD%B0%E5%93%A1%E8%B3%87%E6%A0%BC/)
 
-《福克斯新闻》主持人塔克·卡尔森（Tucker Carlson）带来了数十个百万级别福克斯新闻。
+[https://news.rthk.hk/rthk/ch/component/k2/1559448-20201111.htm](https://news.rthk.hk/rthk/ch/component/k2/1559448-20201111.htm)
 
-[根据MediaPost的数据](https://www.mediapost.com/publications/article/355372/cable-tv-news-nets-grow-31-in-may-july-ad-revenue.html?dg)，黄金时段有线电视新闻节目的广告收入在过去三个月中增长了31.5％。由于卡尔森的主导以及肖恩·汉尼提和劳拉·英格拉汉姆的成功，福克斯新闻在这段时间表现尤其出色，上升了44.3％，达到7970万美元。
-
-标准媒体指数（Standard Media Index）的Accu-TV说，“塔克·卡尔森（Tucker Carlson Tonight）”的时段收入为3,720万美元，仅次于“英格拉姆角”和“汉妮”。在此期间，随着总统选举成为焦点，公众越来越关注新闻，其他更多左倾新闻媒体也出现了增长。
-
-近期的类似事件引发福克斯新闻（Fox News）正在迅速减少其传统上保守的观众。美国人民仍然怀疑媒体所宣布的获得选举胜利的任何候选人，而法律上的挑战行动 仍有待被越来越多地通过Newsmax和OANN电视等渠道传播更多的新闻。
-
-新中国联邦的GTV和GNEWS平台也是近期媒体届冉冉升起的一颗新星。但是，GTV和GNEWS平台向世界民众传播新闻和真相的巨量最新文章，视频都受到来自于传统浊流媒体平台比如推特，脸书之流的严重打击。几乎所有文章都被屏蔽和拒绝发布，发布相关文章的大量账号被野蛮无理的关闭和限制使用。推特脸书采取的此类新闻自由压制行为助长了试图掩盖真相的邪恶势力，但是，所有事件和时间的曲折并不能改变一切最终的结局。心存迷茫和疑问的民众终究会开始探寻真相，并最终找到真相！
-
-[引用原文：](https://bigleaguepolitics.com/tucker-carlson-accuses-fox-news-of-perpetrating-a-dictatorship-for-censoring-white-house-press-secretary/)
-
-2+
+0

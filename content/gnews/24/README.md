@@ -1,23 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德社精选】11/7/2020 晚间节目
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/547494/)
+## 新中国联邦绝不屈服
+` GM31` [轉載自GNews](https://gnews.org/zh-hans/547677/)
 
-听写:加非 校对：加非 简介：恩真 文宣图：艾伦 出品：首尔喜韩农场
+郭文贵先生在[11月8日的Getter](https://gtv.org/getter/5fa84cabad3f0f61d2be6dd9)中和战友们分享了在他的直播之后收到了很多电话，劝他识时务者为俊杰。但郭先生都断然拒绝！在大是大非前，新中国联邦人岂能有半分退让！
 
-简介：
+因为西方世界对中共的无知，它们如今开始尝到了苦果，川普总统、大半个美国，共和党被媒体噤声了。不论外界形势如何，我们新中国联邦人，因为别人拿不走的良知、人性、勇气，将战斗到最后一刻，维护美国的战斗精神，维护世界的公义！
 
-1.川普总统将彻查选票合法性。
-2.川普总统支持者在各地游行。
-3.美国民意已经觉醒。
-4.游行将对最高法庭产生重要影响。
-5.左派媒体没有宪法赋予权力。
-6.7100万民意已被唤醒。
-7.形势会转向川普总统。
-8.如果1月20之前确定不下来则由彭斯代理总统。
-9.参众两院可以自行选择谁成为总统。
+*听写* *&**翻译：【石头】* *校对：【茶奶奶】* *字幕：【**Pamila**（文明）】* *视频转码：【恒久忍耐】* *编辑**：【**GM31**】*
 
-文宣图：
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11073142/1-45.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11074443/2-66.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11073353/3-49.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11073340/4-25.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11074002/5-23.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11075708/6-26.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11075730/7-15.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11075733/8-14.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11075728/9-10.png)
-0
+*战友之家玫瑰园小队出品*
+
+1+

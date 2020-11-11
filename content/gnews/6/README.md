@@ -1,41 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】【香港要闻】人大常委会在北京召开会议 要求香港公务员要由「爱国者」出任
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/546864/)
+## 福克斯收视巨人塔克·卡尔森怒斥尼尔·卡夫图断播可耻
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/547315/)
 
-整撰：文燕
+编译：玫瑰天空
 
-覆核：文仁
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11020603/photo_2020-11-11_14-59-59.jpg)图片：立场新闻
-据【Now新闻台】人大常委会在北京召开，会议加插议程，要求香港的公职人员要由「爱国者」出任，并就「爱国者」作出定义，是要拥护宪法及基本法，预料民主派议员最受影响，而具体方案未曝光，民主派已表明会「齐上齐落」，人大一旦出手，将义无反顾总辞。
+在周一与选举有关的新闻发布会上，福克斯[新闻主持人尼尔·卡夫图（Neil Cavuto）](https://bigleaguepolitics.com/fox-news-cuts-off-white-house-press-secretary-kayleigh-mcenany-when-addressing-fraud-allegations/)切断了川普选举阵营 [白宫新闻秘书凯里·麦卡尼（Kayleigh McEnany）](https://bigleaguepolitics.com/fox-news-cuts-off-white-house-press-secretary-kayleigh-mcenany-when-addressing-fraud-allegations/)的新闻稿播出。收视巨人塔克·卡尔森（Tucker Carlson）抨击了卡夫图和及其黄金时段节目。
 
-人大常委会一连两天开会，香港唯一代表、人大常委谭耀宗指，大会不容许周三闭幕前透露会议内容细节。政圈普遍相信，人大常委会会为议员有否违誓定下准则，但由特区政府「落刀」。究竟新准则具追溯力？还是既往不咎？几时「落刀」？仍未有权威答案
+卡尔森说：“在民主国家，您不能忽视公民提出的诚实问题。你不准 您不能随意地将他们视为疯狂和不道德的询问。您不能仅仅摆脱自己不喜欢的报道。您不能简单地告诉人们接受结果，因为武力在民主国家是行不通的。那是专政。”
 
-虽然政圏普遍相信，人大常委会的决定，不会指名道姓DQ谁，但认为杨岳桥﹑郭家麒、郭荣铿及梁继昌，四名曾被取消参选资格的议员无得留低的机会最大，只是有人质疑，人大常委会8月决定全体续任，事隔几个月，为何要「推翻」决定，要四人「弹入弹出」?
+他还总结道：“在自由社会中，您必须让公众相信自己的合法性。您必须有理由赢得他们。民主永远是自愿的安排。告诉选民闭嘴是远远不够的。”
 
-多名建制派核心都分析，8月的决定是因应押后选举而延续议会运作，四名已被DQ的民主派，并非中央关注的事，趁机「下手」更会令人觉得乘机清除异己，而民主派续任后「拉布」变本加厉，令中央决定针对议员行为作清晰解释，是基本法第104条议员宣誓释法的延续，进一步规范议员的行为，影响更为深远。
+整个卡尔森真的很生气，他的怒斥可以在这里看到：
 
-有抗争派认为，全体续任是中央的圏套，质疑「主留派」中了计，有「主留派」认为，DQ议员是严重干预认为枪头应集中向北京，而非自己人。
 
-战友点评：
 
-何谓爱国者？中共的定义是：先拥护中共，再拥护宪法及基本法。
+> TUCKER takes aim at Neil Cavuto for cutting away from the Trump campaign's press conference today:
+> 
+> "You can't just cut away from coverage you don't like. Force doesn't work in a democracy. That's a dictatorship. Telling voters to shut up is never enough." [pic.twitter.com/uxFbxdIJFR](https://t.co/uxFbxdIJFR)
+> — August Takala (@AugustTakala) [November 10, 2020](https://twitter.com/AugustTakala/status/1325976743786799104?ref_src=twsrc%5Etfw)
 
-但是,中共并不等于中国，除了党员和舔共的港官，14亿中国人民爱的是中国，决不是中共。
 
-林郑政府第4份《施政报告》，原定于11月14发表。后因「深圳经济特区建立40周年庆祝大会」，习近平南下发表重要讲话而延后发布；林郑月娥其后称，部分《施政报告》政策需寻求中央政府支持，遂把《施政报告》押后至11月底前出炉。
 
-上星期林郑月娥上京述职，这次亲共港官谭耀宗参加北京人大常委会，会议加插议程，要求香港的公职人员要由「爱国者」出任，是要拥护宪法及基本法，预料民主派议员最受影响。
+他指出，Cavuto和福克斯新闻在当天早些时候剪切并决定审查McEnany的言论 ，
 
-人大常委会为议员有否违誓定下准则，并由特区政府「落刀」。笔者估计中央将会以民主派议员没有「拥护宪法及基本法」、不是「爱国者」等名目把他们从立法会扫地出门。为林郑月娥即将公布的《施政报告》铺路，使立法会只剩下「应声虫」，再不会有代表香港市民的民主派议员反对声音。
 
-对于林郑2020年所说的「《施政报告》政策需寻求中央政府支持」，我们要准备好心脏，接受一份即将公布的『卖港』施政报告。
+```
+为了跟随诡计说拜登当选总统，这种行为是可耻的。
+```
 
-以上观点仅代表笔者本人
 
-资料来源：Now新闻台
 
-[https://news.now.com/home/local/player?newsId=412406](https://news.now.com/home/local/player?newsId=412406)
 
-0
+> FOX NEWS' NEIL CAVUTO CUTS TRUMP CAMPAGIN PRESSER: "Whoa, whoa, whoa. I just think we have to be very clear…She's charging the other side as welcoming fraud and illegal voting, unless she has more details to back that up, I can't in good countenance continue to show you this." [pic.twitter.com/SE9BGKdh75](https://t.co/SE9BGKdh75)
+> — Breaking911 (@Breaking911) [November 9, 2020](https://twitter.com/Breaking911/status/1325918520107028481?ref_src=twsrc%5Etfw)
+
+
+
+卡尔森正在启发美国爱国者觉醒的时期，在这个时代，美国正被文明的敌人包围。
+
+如果福克斯新闻公司因为这类事件抛弃卡尔森，那可能是自创办人鲁珀特·默多克（Rupert Murdoch）退休以来，这家陷入困境的媒体自身的致命打击。
+
+因为就卡尔森而言，他可能对Fox News并不留恋。他是一个媒体巨人，一个迅速成长为以自己为品牌核心基础的媒体人。
+
+《福克斯新闻》主持人塔克·卡尔森（Tucker Carlson）带来了数十个百万级别福克斯新闻。
+
+[根据MediaPost的数据](https://www.mediapost.com/publications/article/355372/cable-tv-news-nets-grow-31-in-may-july-ad-revenue.html?dg)，黄金时段有线电视新闻节目的广告收入在过去三个月中增长了31.5％。由于卡尔森的主导以及肖恩·汉尼提和劳拉·英格拉汉姆的成功，福克斯新闻在这段时间表现尤其出色，上升了44.3％，达到7970万美元。
+
+标准媒体指数（Standard Media Index）的Accu-TV说，“塔克·卡尔森（Tucker Carlson Tonight）”的时段收入为3,720万美元，仅次于“英格拉姆角”和“汉妮”。在此期间，随着总统选举成为焦点，公众越来越关注新闻，其他更多左倾新闻媒体也出现了增长。
+
+近期的类似事件引发福克斯新闻（Fox News）正在迅速减少其传统上保守的观众。美国人民仍然怀疑媒体所宣布的获得选举胜利的任何候选人，而法律上的挑战行动 仍有待被越来越多地通过Newsmax和OANN电视等渠道传播更多的新闻。
+
+新中国联邦的GTV和GNEWS平台也是近期媒体届冉冉升起的一颗新星。但是，GTV和GNEWS平台向世界民众传播新闻和真相的巨量最新文章，视频都受到来自于传统浊流媒体平台比如推特，脸书之流的严重打击。几乎所有文章都被屏蔽和拒绝发布，发布相关文章的大量账号被野蛮无理的关闭和限制使用。推特脸书采取的此类新闻自由压制行为助长了试图掩盖真相的邪恶势力，但是，所有事件和时间的曲折并不能改变一切最终的结局。心存迷茫和疑问的民众终究会开始探寻真相，并最终找到真相！
+
+[引用原文：](https://bigleaguepolitics.com/tucker-carlson-accuses-fox-news-of-perpetrating-a-dictatorship-for-censoring-white-house-press-secretary/)
+
+2+
