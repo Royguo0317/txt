@@ -1,37 +1,83 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】教育局正研究教师扣粮　逾七成受访校长认为不合理
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/546484/)
+## 总检察长威廉·巴尔授权司法部调查投票违规行为
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/546647/)
 
-整撰：文燕
+编译：TS2020相聚盘古
 
-审核：MY
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11002121/image001-19.png)教协调查显示，逾七成受访校长认为取消小学教师注册不合理。 （图片来源：众新闻）
-据【众新闻】11月10日报道，九龙塘宣道小学一名教师，早前被指利用教材有计划地散播港独，遭当局以「严重专业失德」为由取消其注册。教育专业人员协会（教协）于上月底至昨日，以问卷访问了125名中小学校长。超过7成受访校长认为，取消该教师注册的决定并不合理；有7成2受访校长认为，教育局判决主观、提供的理据没有足够说服力，未有清晰明确定义何为「散播港独言论」，当局现行的处事手法亦不符程序公义；有8成2校长不同意当局公开该教师姓名和任教学校，认为只会加强威吓效果，但无助完善制度。
+2020年11月9日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09211419/IMG-8572.jpg)
+司法部长威廉·巴尔在周一发布的备忘录中，授权司法部（DOJ）调查2020年总统大选的投票违规行为。
 
-另外，有近7成受访校长认为，事件对教师的日常工作带来负面或极负面的影响；超过七成人认为对本港的教育发展带来负面影响；近五成人则指，学校曾接获匿名人士投诉教师。
+备忘录已由Barr致函并签署给美国检察官，美国司法部刑事司，民权司，国家安全司助理检察长，以及联邦调查局（FBI）局长克里斯托弗·雷（Christopher Wray）。
 
-教协副会长、 教育界立法会议员叶建源称，现时对教师的调查制度并不公道，除接受匿名投诉，调查亦未有聆讯安排，导致涉事教师没有辩解机会，强调教案当中涉及大量参考数据，未必与实际教学情况相同。他又指，事件可能令老师的教学质素降低：「红线到底在哪，大家非常担心，有不肯定的地方时，甚至肯定时，但因怕惹祸上身，宁愿不说了。最后就照本宣科，拿着课本照教，我们的教学最后变得非常沉闷、单调和单薄，对教育的影响非常大和深远。」
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11002047/image003-9.png)杨润雄指，正研究修例容许对教师钉牌一段时间、扣粮或不出粮。 （图片来源：众新闻）
-教育局局长杨润雄称，局方自去年六月至八月期间，一共收到247宗有关教师专业操守的投诉，当中73宗不成立、71宗成立，约60宗仍在跟进。
+备忘录中写道：“现在投票已经结束，当务之急是美国人民可以相信我们的选举以这样的方式进行，即选举结果能准确反映选民的意愿。”
 
-成立的个案当中，除了取消九龙塘宣道小学一名教师的注册，指其利用教材散播港独外，亦另向21名教师发出谴责信、向12名发出警告信、向19名教师发书面劝谕，以及向18名发出口头警示。
+巴尔的备忘录是在39名众议院共和党人周五在一封信中敦促巴尔让美国司法部可用资源调查全国几个主要战场州投票不当行为的指控之后的。特朗普竞选活动在其中一些州提起了许多诉讼。
 
-杨润雄补充，现时法律的最严重处分为取消教师注册，但现时常任秘书长中间没有法定权力做其他事，发警告及谴责信都只是行政决定，故认为可研究修改法例，容许对投诉成立的教师取消资格一段时间、扣粮或不出粮等。
+巴尔备忘录（Barr Memo）就投票违规行为向司法部致辩
 
-战友点评：
+巴尔在备忘录中说，尽管各州负有进行和监督选举的主要责任，但司法部“有义务确保以这种方式进行联邦选举，以使美国人民对其选举过程和对他们的政府充满信心。”
 
-教育局局长杨润雄称要修改教育条例，赋予教育局更大的权力，取消教师的注册，杨润雄的这一番言论，印证了教育局已经在共产党面前跪下。
+他补充说，尽管所谓的“多数指控”涉及选举不当行为，其规模如此之大，以至于不会影响选举结果，因此可以推迟进行调查，“并非总是如此。”
 
-港共政府为了达到政治目的，用尽一切卑鄙手段，企图更改从港英殖民政府沿用的政策。问卷调查结果显示「超过7成受访校长认为，取消该教师注册的决定并不合理」。你说不合理，那我就重新立法。用这种卑鄙的手法去扭曲教育条例，以后便可以「名正言顺」地严惩老师。
+他说，由于投票已经结束，因此对司法部在这种情况下采取的公开行动大大减少的担忧。
 
-教育是一份爱的工作，共产党满口仁义道德、尊师重道，却没有对这班用心教育社会下一代的教育工作者一点尊重。我们都认同教育的重要性，但是取消教师的注册，甚至以涉嫌“宣传港独”威胁和恐吓教师等就是赤裸裸地践踏为师的尊严。
+他还说，他已经授权司法部对具体情况下的投票和投票制表不当行为提出重大指控。
 
-以上观点仅代表笔者本人
+“鉴于此，并且鉴于我们当前的选举已经结束，我授权您在某些情况下在您的辖区进行选举之前对大量的投票指控和制表不当行为进行指控，就像我在特定情况下所做的那样，“ 他说。
 
-资料来源：众新闻
+他说，如果存在明显的，显然可信的违规指控，可能会进行查询和审查，这些指控如果属实，可能会影响单个州联邦选举的结果。
 
-[https://www.hkcnews.com/article/35480/%E6%95%99%E8%82%B2%E5%B1%80-%E6%B8%AF%E7%8D%A8-%E6%95%99%E5%B8%AB%E9%87%98%E7%89%8C-35480/%E6%95%99%E8%82%B2%E5%B1%80%E6%AD%A3%E7%A0%94%E7%A9%B6%E6%95%99%E5%B8%AB%E6%89%A3%E7%B3%A7-%E6%95%99%E5%8D%94%E6%8C%87%E9%80%BE%E4%B8%83%E6%88%90%E5%8F%97%E8%A8%AA%E6%A0%A1%E9%95%B7%E8%AA%8D%E7%82%BA%E5%8F%96%E6%B6%88%E5%B0%8F%E5%AD%B8%E6%95%99%E5%B8%AB%E8%A8%BB%E5%86%8A%E4%B8%8D%E5%90%88%E7%90%86](https://www.hkcnews.com/article/35480/%E6%95%99%E8%82%B2%E5%B1%80-%E6%B8%AF%E7%8D%A8-%E6%95%99%E5%B8%AB%E9%87%98%E7%89%8C-35480/%E6%95%99%E8%82%B2%E5%B1%80%E6%AD%A3%E7%A0%94%E7%A9%B6%E6%95%99%E5%B8%AB%E6%89%A3%E7%B3%A7-%E6%95%99%E5%8D%94%E6%8C%87%E9%80%BE%E4%B8%83%E6%88%90%E5%8F%97%E8%A8%AA%E6%A0%A1%E9%95%B7%E8%AA%8D%E7%82%BA%E5%8F%96%E6%B6%88%E5%B0%8F%E5%AD%B8%E6%95%99%E5%B8%AB%E8%A8%BB%E5%86%8A%E4%B8%8D%E5%90%88%E7%90%86)
+他说：“虽然美国检察官保持其固有的权力，可以进行适当的调查和调查，但在进行任何与选举有关的事项作为初步调查时，可能会比较谨慎，以评估现有证据是否值得采取进一步的调查步骤。” 。
+
+他还敦促美国司法部采取“极为谨慎和判断”的态度，不要对“似是而非的，投机性的，虚构的或牵强附会的要求进行询问”。
+
+他指出，他的调查授权不应该表示司法部已得出结论，投票违规行为已影响选举结果，而是要确保对投票过程的信任。
+
+他说：“我提供这种权威和指导，以强调必须及时，妥善处理有关选举不当行为的指控，以便所有美国人民，无论其偏爱的候选人或政党如何，都对我们的选举结果充满信心。” 。
+
+他说：“美国人民和他们自由选举产生的领导人应得的就是更多。”
+
+原文如下：
+
+Attorney General William Barr Authorizes DOJ to Look into Voting Irregularities
+
+Attorney General William Barr in a memo issued on Monday authorized the Justice Department (DOJ) to look into voting irregularities in the 2020 presidential election.
+
+The memo was addressed and signed from Barr to U.S. Attorneys, the assistant attorneys general for the DOJ’s criminal division, civil rights division, the national security division, and the director of the Federal Bureau of Investigation (FBI), Christopher Wray.
+
+“Now that the voting has concluded, it is imperative that the American people can trust that our elections were conducted in such a way that the outcomes accurately reflect the will of the voters,” the memo read.
+
+Barr’s memo comes after 39 House Republicans pressed Barr in a letter on Friday to allow available DOJ resources to look into allegations of voting irregularities across the country in several key battleground states. The Trump campaign has filed a number of lawsuits in some of those states.
+
+Barr Memo to DOJ on voting irregularities by Kristina Wong on Scribd
+
+Barr said in his memo that, although the states have the primary responsibility to conduct and supervise elections, the DOJ has “an obligation to ensure that federal elections are conducted in such a way that the American people can have full confidence in their electoral process and their government.”
+
+He added that while “most allegations” of purported election misconduct are of such a scale that they would not impact the outcome of an election that their investigation can be deferred, “that is not always the case.”
+
+He said concerns that overt actions taken by the DOJ in this case are greatly minimized, since the voting has concluded.
+
+He also said he has already authorized the DOJ to pursue substantial allegations of voting and voting tabulation irregularities in specific instances.
+
+“Given this, and given that voting in our current elections has now concluded, I authorize you to pursue substantial allegations of voting and vote tabulation irregularities prior to the certification of elections in your jurisdictions in certain cases, as I have already done in specific instances,” he said.
+
+He said inquiries and reviews may be conducted if there are clear and apparently-credible allegations of irregularities that, if true, could potentially impact the outcome of a federal election in an individual state.
+
+“While U.S. Attorneys maintain their inherent authority to conduct inquiries and investigations as they deem appropriate, it will likely be prudent to commence any election-related matters as a preliminary inquiry, so as to assess whether available evidence warrants further investigative steps,” he said.
+
+He also urged for the DOJ to exercise “great care and judgment’ and not launch inquiries on “specious, speculative, fanciful or far-fetched claims.”
+
+He noted that his authorization of investigations should not be taken as an indication that the DOJ has concluded that voting irregularities have impacted the outcome of the election, but to ensure trust in the voting process.
+
+“I provide this authority and guidance to emphasize the need to timely and appropriately address allegations of voting irregularities so that all of the American people, regardless of their preferred candidate or party, can have full confidence in the results of our elections,” he said.
+
+“The American people and the leaders they freely elect deserve nothing less,” he said.
+
+Follow Breitbart News’s Kristina Wong on Twitter or on Facebook.
+
+https://www.breitbart.com/2020-election/2020/11/09/attorney-general-william-barr-authorizes-doj-look-voting-irregularities/?\_\_twitter\_impression=true
 
 0
