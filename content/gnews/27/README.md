@@ -1,41 +1,79 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## John Locke（约翰洛克）自由主义之父
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/547936/)
+## 联邦探员胁迫USPS举报人要求息事宁人
+` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/547798/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24064746/WhatsApp-Image-2020-10-24-at-15.08.49.jpeg)
-作者：康州农场-GTalk心语堂
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092251/image2-7.jpeg)
-被后世誉为自由主义之父的约翰洛克，在他1689年匿名出版的《政府论》中的主张，今天听来依然振聋发聩，他说: 政府只有在取得被统治者的同意，并且能够有效保障被统治的生命，自由和财产，其统治才有正当性。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092304/image3-4.jpeg)
-约翰洛克的主张直接激励了18世纪最伟大的一次政治实验—美国政府的建立。可以毫不夸张的说，没有约翰洛克，就没有美国的独立宣言和宪法。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092317/image4-2.jpeg)
-约翰洛克在他的《政府论》中提出，人类历史上最大的课题不是这个世界上是否应该有权力，或者权力是从哪里来的，而是谁应该拥有权力。
-他指出想要弄明白为什么要建立政府和如何建立，必须要首先承认，人人生而平等，都有与生俱来的上帝给予的生命权，自由权，财产权。
-他指出，人们是为了保护彼此的这些权利而组建在一起，并形成社会，制定契约的。是在彼此同意的前提下建立政府，并履行彼此的意愿。 政府没有权力要求拥有自由意志的人民服从他们不认可的一切行为。如果政府虐待，欺骗，压迫人民，人民有权收回他们对政府的许可，并把权力交给能够维护他们权利的政府。也就是说，政府是基于被管理者的同意而设立的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092327/image5-2.jpeg)
-一个世纪以后，约翰洛克的哲学主张和自由主义思想，在北美大陆被人类第一次践行。美国独立宣言和之后的美国宪法中无不闪耀着约翰洛克的思想光辉。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092345/image6-6.png)
-他的这些主张包括:天赋人权，民选政府，权力制约，政教分离，人民有权力而且有义务推翻独裁政府，等等。
+内新闻：背靠背
 
-美国的先贤们忠实的奉行着这些主张，在人类历史上建立了第一个旨在保护人民权利的政府。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092404/image7-3.png)
-2020年的这次选举是对美国民主制度的一次历史性考验。我们相信，有200余年历史积淀的自由，民主，法治的精神会战胜所有黑暗势力，那些违背民意的政客，那些掩盖真相，压制真实声音的媒体，还有那些幕后的利益集团和ccp的黑手都将灰飞烟灭。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092448/image8-1.png)
-在中共国，防火墙再高也无法抵挡人民要求民主，自由，平等的呼声。70年来，中共独裁政府把人民的生命，自由和财产权紧紧的握在自己的手里并美其名曰以人民的名义，
-然而其实质是至高无上的皇权又一次借尸还魂。中国人民又一次站在了历史的十字路口，请14亿中国同胞在夜深人静的时候扪心自问，你有同意中共政府向全世界散播病毒，威胁人类生命吗？你有同意中共政府建立集中营关押那些有独立，民主思想的同胞吗？你有同意中共政府通过操纵股市，非法集资，恶意强拆来霸占你的财产吗？还有，你的选票在哪里？
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092523/image9-1.png)
-请记住，“政府是基于被管理者同意而设立的。”
-Source from:GTalk
-Pictures from:
-https://i.ytimg.com/vi/SzgZJ9JTk4U/maxresdefault.jpg 
-https://cdn.britannica.com/21/143621-050-D0409B47/Declaration-of-Independence-canvas-rotunda-John-Trumbull-July-4-1776.jpg 
-https://www.quotemaster.org/images/30/30dd83af87146565745e1325891fbb3c.jpg 
-https://lawliberty.org/app/uploads/2020/03/Declaration-and-Constitution-Flag.jpg 
-https://slideplayer.com/slide/12223394/72/images/3/John+Locke+Core+beliefs%3A.jpg 
-https://media.vanityfair.com/photos/5b15798b76ca49160fe5479f/master/pass/donald-trump-fbi.jpg 
-https://cdn.i-scmp.com/sites/default/files/d8/images/methode/2019/09/22/03154a68-dc54-11e9-80eb-3aa57b6d2433\_image\_hires\_101052.JPG 
-https://upload.wikimedia.org/wikipedia/commons/9/9d/American\_Revolution\_Bicentennial\_Deriving\_Their\_Just\_Powers…\_10c\_1974\_issue\_U.S.\_stamp.jpg
+2020年11月11日，记者詹姆斯·奥基夫（James O’Keefe）公布一段录音，显示因举报选票倒签（非法向前变更邮戳日期）而被联邦探员胁迫，要求他淡化这件事，做到息事宁人。
+
+联邦探员 “胁迫 “美国邮政举报人霍普金斯淡化故事。霍普金斯加倍…
+
+探员Strasser。”我试图扭曲你一点点”
+
+“我是在吓唬你”…… “我们有参议员参与……司法部参与…… “他们叫我来的原因是试图利用。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11085252/image-170.png)视频来自记者James O’Keefe推特
+Richard Hopkins（USPS举报人）：他们是烤出来的地狱我
+
+James O’Keefe：你现在感觉如何？我有点生气，我觉得我只是去玩。
+
+（2020年11月5日视频）
+
+Richard Hopkins：我听到他对主管说，他们昨天搞砸了。在他们搞砸了昨天，我当时，所以，我很喜欢，哦，他们搞砸了什么？他告诉主管，他们把其中一张选票的邮戳是11月4日而不是3日，因为他们应该把它们放在11月3日。
+
+（宾夕法尼亚州伊利市邮局的举报人在联邦调查局的审讯中被骗了。）
+
+（联邦探员录音, Russell Strasser美国邮政总局办公室）
+
+Russell Strasser：所以，让我，让我兑现这个承诺的时候了。越来越疯狂了，对吧？叫我来是为了控制暴风雨，在它变得疯狂之前把它收回来。
+
+Richard Hopkins：我明白了。
+
+Russell Strasser：因为我们有参议员参与，我们有司法部门参与，我们有。
+
+Richard Hopkins：特朗普的律师团队找到了我。
+
+Russell Strasser：我不是，其实我是想扭曲你一下，因为不管你相信与否你的头脑会踢。
+
+Richard Hopkins：好吧。
+
+Russell Strasser：我们喜欢控制自己的思想，当我们这样做的时候，我们可以说服自己的记忆，但是，当我们这样做的时候，我们可以说服自己的记忆。你有一点压力，这就是我对你做的事，你的头脑可以更清醒一点，也可以更有信心。我们也要做一个不同的练习，让你的头脑更清晰一点，所以，这都是故意的。
+
+Richard Hopkins：明白。
+
+Russell Strasser：我不是在吓唬你，而是在吓唬你。
+
+（联邦探员录音结束）
+
+Richard Hopkins：似乎他们想让我不信任你们（Veritas项目）。同时，它，有点影响。我当时想是这些人(Veritas项目)从一开始就支持我，所以这就是我为什么要继续下去的原因。
+
+James O’Keefe：你认为这些联邦探员会支持你吗？
+
+Richard Hopkins：在这一点上，没有。
+
+James O’Keefe：你认为这些联邦探员真的有兴趣调查欺诈吗？
+
+Richard Hopkins：老实说，我不认为他们有兴趣。
+
+James O’Keefe：事实上,你听到我们Rob Weisenbach告诉一个主管,他们在回溯选票的时间。让他们看起来会在11月3日领到选票,你还坚持这个说法吗？
+
+RICHARD HOPKING:是的。
+
+James O’Keefe: 是的。
+
+（视频结束）
+
+USPS举报人Richard Hopkins不仅被联邦探员胁迫，稍早前，他还因为举报而被USPS打压，无薪休假。
+![Image](https://pbs.twimg.com/media/Emg0eu0XYAMi3Km?format=jpg&amp;name=900x900)图片来自记者James O’Keefe推特
+Richard Hopkins是一名有家室的退伍军人，被美国邮政停职，于是他成立了一个GoFundme来养活女儿。GoFundme页面被停用了。他不会看到1美元的13万筹集。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11111707/image-175.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11111744/image-176.png)
+川普总统称他是一位勇敢的爱国者。越来越多的人站出来揭露这个被操纵的选举!
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112601/image-179.png)
+这还没完，尽管举报人Richard Hopkins视频声明自己没有撤诉。但CNN，Washingtonpost等媒体公开撒谎，关于Richard Hopkins的假消息满天飞。
+
+美国众议院监督与改革委员会报道也失实。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11114034/image-180.png)
+这与中共CCP惯用路数如出一辙，搞坏意见者名声，断财路，最后肉体摧毁。
 
 0

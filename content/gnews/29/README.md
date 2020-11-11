@@ -1,97 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 朱利安尼 推文系列 5（2020年11月8-9日）
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/548278/)
+## John Locke（约翰洛克）自由主义之父
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/547936/)
 
-*新闻来源：朱利安尼 推文；作者：朱利安尼；发布时间： 2020年11月6-9日*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24064746/WhatsApp-Image-2020-10-24-at-15.08.49.jpeg)
+作者：康州农场-GTalk心语堂
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092251/image2-7.jpeg)
+被后世誉为自由主义之父的约翰洛克，在他1689年匿名出版的《政府论》中的主张，今天听来依然振聋发聩，他说: 政府只有在取得被统治者的同意，并且能够有效保障被统治的生命，自由和财产，其统治才有正当性。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092304/image3-4.jpeg)
+约翰洛克的主张直接激励了18世纪最伟大的一次政治实验—美国政府的建立。可以毫不夸张的说，没有约翰洛克，就没有美国的独立宣言和宪法。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092317/image4-2.jpeg)
+约翰洛克在他的《政府论》中提出，人类历史上最大的课题不是这个世界上是否应该有权力，或者权力是从哪里来的，而是谁应该拥有权力。
+他指出想要弄明白为什么要建立政府和如何建立，必须要首先承认，人人生而平等，都有与生俱来的上帝给予的生命权，自由权，财产权。
+他指出，人们是为了保护彼此的这些权利而组建在一起，并形成社会，制定契约的。是在彼此同意的前提下建立政府，并履行彼此的意愿。 政府没有权力要求拥有自由意志的人民服从他们不认可的一切行为。如果政府虐待，欺骗，压迫人民，人民有权收回他们对政府的许可，并把权力交给能够维护他们权利的政府。也就是说，政府是基于被管理者的同意而设立的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092327/image5-2.jpeg)
+一个世纪以后，约翰洛克的哲学主张和自由主义思想，在北美大陆被人类第一次践行。美国独立宣言和之后的美国宪法中无不闪耀着约翰洛克的思想光辉。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092345/image6-6.png)
+他的这些主张包括:天赋人权，民选政府，权力制约，政教分离，人民有权力而且有义务推翻独裁政府，等等。
 
-*翻译/简评：Beicy-数学老师；校对/审核：TCC；Page：拱卒*
+美国的先贤们忠实的奉行着这些主张，在人类历史上建立了第一个旨在保护人民权利的政府。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092404/image7-3.png)
+2020年的这次选举是对美国民主制度的一次历史性考验。我们相信，有200余年历史积淀的自由，民主，法治的精神会战胜所有黑暗势力，那些违背民意的政客，那些掩盖真相，压制真实声音的媒体，还有那些幕后的利益集团和ccp的黑手都将灰飞烟灭。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092448/image8-1.png)
+在中共国，防火墙再高也无法抵挡人民要求民主，自由，平等的呼声。70年来，中共独裁政府把人民的生命，自由和财产权紧紧的握在自己的手里并美其名曰以人民的名义，
+然而其实质是至高无上的皇权又一次借尸还魂。中国人民又一次站在了历史的十字路口，请14亿中国同胞在夜深人静的时候扪心自问，你有同意中共政府向全世界散播病毒，威胁人类生命吗？你有同意中共政府建立集中营关押那些有独立，民主思想的同胞吗？你有同意中共政府通过操纵股市，非法集资，恶意强拆来霸占你的财产吗？还有，你的选票在哪里？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092523/image9-1.png)
+请记住，“政府是基于被管理者同意而设立的。”
+Source from:GTalk
+Pictures from:
+https://i.ytimg.com/vi/SzgZJ9JTk4U/maxresdefault.jpg 
+https://cdn.britannica.com/21/143621-050-D0409B47/Declaration-of-Independence-canvas-rotunda-John-Trumbull-July-4-1776.jpg 
+https://www.quotemaster.org/images/30/30dd83af87146565745e1325891fbb3c.jpg 
+https://lawliberty.org/app/uploads/2020/03/Declaration-and-Constitution-Flag.jpg 
+https://slideplayer.com/slide/12223394/72/images/3/John+Locke+Core+beliefs%3A.jpg 
+https://media.vanityfair.com/photos/5b15798b76ca49160fe5479f/master/pass/donald-trump-fbi.jpg 
+https://cdn.i-scmp.com/sites/default/files/d8/images/methode/2019/09/22/03154a68-dc54-11e9-80eb-3aa57b6d2433\_image\_hires\_101052.JPG 
+https://upload.wikimedia.org/wikipedia/commons/9/9d/American\_Revolution\_Bicentennial\_Deriving\_Their\_Just\_Powers…\_10c\_1974\_issue\_U.S.\_stamp.jpg
 
-[![](https://spark.adobe.com/page/eWXogcpEkAfai/images/db13a5b6-8e57-41a0-8c49-5fcec8a71666.jpg?asset_id=1d8a0949-651e-4d1b-821d-5e2d04174fcb&amp;img_etag=%226813ecc631b2588a3b3cac6b8b7faaad%22&amp;size=2560)](https://spark.adobe.com/page/eWXogcpEkAfai/images/db13a5b6-8e57-41a0-8c49-5fcec8a71666.jpg?asset_id=1d8a0949-651e-4d1b-821d-5e2d04174fcb&amp;img_etag=%226813ecc631b2588a3b3cac6b8b7faaad%22&amp;size=1024)
-
-**简评：**
-
-**朱利安尼: “拜登主导了这个造假集团”**
-
-朱利安尼先生最新推文，明确指出拜登是选票造假这一”世纪选举盗窃案”的知情者和制造者。朱利安尼先生还进一步给出”幽灵选民”的具体例子—- 美国知名人士、前重量级冠军乔-弗雷泽在2011年11月7日去世，却参加了2018年的(中期)选举投票！
-
-川普总统的选民在虚假媒体声称拜登获胜后，自发聚会各州投票站，抗议计票造假。这样正义的行为，却被拜登方抹黑为意欲暴乱。朱利安尼先生不仅驳斥了这一谎言，并质问对手: ”如果重新计票和挑战使川普成为赢家，将会发生什么?”
-
-朱利安尼先生确切地宣布: 已经掌握几个关键州的非法选票证据。加上最近司法院长及共和党员站出来支持调查选举违规，这表明选举结果将被纠正过来。
-
-大选投票结束。 战斗才刚刚开始。
-
-爆料革命的战友们, 我们加油传播真相!
-
-[原文链接](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-- **推文1: 2020年11月9日 7点11分发布**
-
-
-
-
-> NYC,DC,Philly were all boarded up for riots.
-> 
-> All of a sudden no riots by Trump supporters.
-> 
-> They don’t riot.
-> 
-> What happens if recounts and challenges make [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) the winner.
-> 
-> The Biden supporters do riot because they are lawless.
-> — Rudy W. Giuliani (@RudyGiuliani) [November 9, 2020](https://twitter.com/RudyGiuliani/status/1325697527367274497?ref_src=twsrc%5Etfw)
-
-
-纽约，华盛顿，费城(的商家)都钉上板子以防暴动。突然间，川普的支持者是不暴动的。他们不会暴动。如果重新计票和(司法)挑战使川普赢得大选，将会发生什么? 拜登的支持者一定会暴动，因为他们无法无天。
-- **推文2: 2020年11月9日 14点16分发布**
-
-
-
-
-> The Biden selection by the Crooked Media is based on unlawful votes in PA, Mich, GA, Wisc, Nevada et al.
-> 
-> We will prove it all.
-> — Rudy W. Giuliani (@RudyGiuliani) [November 9, 2020](https://twitter.com/RudyGiuliani/status/1325695405917663234?ref_src=twsrc%5Etfw)
-
-
-那些歪曲事实的媒体对拜登的选举支持是基于宾夕法尼亚州、密歇根州、佐治亚州、威斯康星州、内华达州等地的非法选票。我们将证明这一切。
-- **推文3: 2020年11月8日 13点56分发布**
-
-
-
-
-> Just an example of how brazen the Philadelphia Democrat machine is.
-> 
-> Former heavyweight champion Joe Frazier voted in the 2018 election. He died on 11/7/2011!!!
-> 
-> Will Smith’s grandfather voted in 2017, 2018. He died in 2016.
-> 
-> I bet Biden dominated this group.
->  
-> We will find out.
-> — Rudy W. Giuliani (@RudyGiuliani) [November 8, 2020](https://twitter.com/RudyGiuliani/status/1325437154575704065?ref_src=twsrc%5Etfw)
-
-
-这只是一个例子，(来看看)多么厚颜无耻的费城民主党(操纵计票)机器。前重量级冠军乔-弗雷泽在2018年的(中期)选举中投票。他于2011年11月7日去世！!威尔-史密斯的祖父在2017年、2018年都投了票。他在2016年去世。我敢打赌，拜登主导了这个造假集团。 我们会找到答案。
-- **推文4: 2020年10月6日 14点16分发布**
-
-
-
-
-> [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Rudy W. Giuliani (@RudyGiuliani) [October 6, 2020](https://twitter.com/RudyGiuliani/status/1313468197446746117?ref_src=twsrc%5Etfw)
-
-
-中共病毒(CCP Virus) 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105818/11222.png)战争行为；是的，是这样的。
-
-
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[编辑：【喜马拉雅战鹰团】](https://spark.adobe.com/page/eWXogcpEkAfai/)
-[![](https://spark.adobe.com/page/eWXogcpEkAfai/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/eWXogcpEkAfai/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

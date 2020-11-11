@@ -1,29 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】朱利安尼市长确认美国Dominion投票机公司内部人员出来爆料证明大选舞弊
-` GM65` [轉載自GNews](https://gnews.org/zh-hans/548774/)
+## 深蓝区变色，两院机构持续翻红
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/548813/)
 
-11月11日，The Gateway Pundit网站引用班农先生作战室节目，说朱利安尼市长确认，除了民主党内部人士站出来指证民主党大选舞弊的行为外，另有名为Coleman的人士，收集到来自社区和Dominion公司内部的证人和证据。社区计票监督员证实，计票当天，民主党人将共和党监督员排除在外，并撒谎。在大部分监督员离开后，其中两人留了下来，看到10万张选票被送到计票中心，拍下照片留作证据。另有Dominion公司的人出来作证人，但未说明细节。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143246/Capture-32.jpg)新罕布什尔州众议院议长史蒂夫·瑟尔特夫（*Steve Shurtleff*）
+*图片来自：wmur.com*
+据《布伦巴特》（Breitbart）网站11月10日报道，美国新英格兰地区的民主党重镇在2020年选举中意外失利，其强势地位被削弱，包括州的立法机构都翻红，此外两名州众议院议长也被共和党人赶下台。
 
+报道指出，新罕布什尔州（New Hampshire）民主党遭到巨大的挫折，在州立法机构和行政委员会都失去了多数席位。在联邦层面，尽管前副总统乔-拜登以7个百分点的优势拿下该州，民主党参议员珍妮·沙欣（Jeanne Shaheen）轻松保住了自己的席位，两个国会选区也仍然是蓝色的，然而，州一级选举并没有类似的跟进。
 
+该州参议院从民主党14比10的多数变成了共和党14比10的多数，400个席位的众议院原来有157名共和党人，现在将有213名，共和党以4比1控制了强大的行政委员会。行政会议是花岗岩州新罕布什尔特有的，它任命政府官员，控制财政部的资金发放，并可以进行特赦。
 
-> From Rudy Giuliani. [pic.twitter.com/xh25ALQSeE](https://t.co/xh25ALQSeE)
-> — Carmine Sabia (@CarmineSabia) [November 11, 2020](https://twitter.com/CarmineSabia/status/1326560738413056000?ref_src=twsrc%5Etfw)
+报道称，截至发稿时，还有14个选票接近的竞选正在重新计票中。连任三届的共和党州长苏努努（Chris Sununu）在选举日结束后，在社交媒体上庆祝了这场席卷性胜利。新罕布什尔州公共广播电台高级政治记者乔什·罗杰斯（Josh Rogers）将共和党的胜利部分归功于他们在竞选活动中注重与选民的亲切接触，而民主党人则更害怕冠状病毒。罗杰斯说，“共和党人真的试图维持传统的面对面竞选活动。”“他们敲门，举行公开活动，亲手投递竞选传单等等。而民主黨人却決定有意識地控制這種做法，他们省略了很多亲临现场的竞选活动。”
 
+据该报道，民主党人的坚固地盘罗德岛州（Rhode Island）也受到了冲击，其众议院议长尼古拉斯·马蒂耶罗（Nicholas Mattiello）被克兰斯顿市长夫人、共和党人芭芭拉·安·芬顿·冯（Barbara Ann Fenton-Fung）以59%对41%，18个百分点的悬殊差距夺走席位。《普罗维登斯日报》（Providence Journal ）的马克·帕廷金（Mark Patinkin）在选举后的一篇评论文章中说，现任众议院议长的失利是海洋州（罗德岛州的别称）一个多世纪以来的第一次。帕廷金指出了一些可能导致这次失败的原因，包括马蒂耶罗放弃了罗德岛的波塔基特红袜队（PawSox,该州自1970年以来的小联盟棒球队，今年搬到马萨诸塞州伍斯特市），以及他竞选团队工作人员的丑闻。帕廷金写道，马蒂耶罗“是一个民主党人，来自一个共和党人占多数的地区。他的对手在这场宣战中提高了知名度。工会仍然对失去红袜队很生气，因为是他置红袜队于死地，因而（让工会成员）失去了一个新体育场可会带来的工作机会。” 帕廷金还称，“马蒂耶罗也因他的一名竞选助手被控有违规行为而受到牵连。”
 
+报道说，罗德岛州立法机构的其他部分大体上没有受到影响，民主党在众议院以65-10的票数和在参议院以33-5的票数保持了明显的多数。
 
-美国广播网主持人Wayne Allyn Root发推说，“朱利安尼确认Dominion内部有人出来爆料。他们偷了大选。将川普的选票调换…史上最大丑闻。已将他们逮个正着！”
+在佛蒙特州（Vermont），报道说，2003年当选为众议员，自2017年起担任议长的米齐·约翰逊（Mitzi Johnson），以微弱的票数输给了一名共和党人。共和党总体上拿下了3个众议院席位，让民主党失去了超级多数，并拿下了一个参议院席位
 
+参议院少数党领袖乔·本宁(Joe Benning)告诉VTDigger（佛蒙特州的新闻媒体）说，“我认为现在的趋势是，佛蒙特州人越来越认定一个有超级多数的议会并没有更好地为该州服务。而一位像[共和党州长]菲尔·斯科特（Phil Scott）那样稳重沉着的人，是人们所期待的。”
 
+参议院多数党领袖贝卡·巴林特Becca Balint (D-Windham)观察到，该州共和党人和民主党人之间的分歧要小于农村和城市居民之间的分歧，她认为共和党的得利，就是在呼吁民主党要去 “更深入地倾听我们农村社区的需求”。
 
-> BREAKING NEWS: [@RudyGiuliani](https://twitter.com/RudyGiuliani?ref_src=twsrc%5Etfw) has confirmed whistleblowers from Dominion have come forward. OMG. They stole election. Switched votes from [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw). What did he really get? 81 MM votes? 91 MM? But they stole it. Biggest scandal in world history. Got ‘em!
-> — Wayne Allyn Root (@RealWayneRoot) [November 11, 2020](https://twitter.com/RealWayneRoot/status/1326555434405097477?ref_src=twsrc%5Etfw)
+报道说，缅因州（Maine）的苏珊·柯林斯（Susan Collins），新英格兰地区唯一的共和党联邦参议员，遇到了州众议院议长萨拉·吉迪恩（Sara Gideon）的挑战。报道指出，这一次似乎是柯林斯职业生涯中遇到的最艰难的挑战，吉迪恩从竞选活动和外部委员会筹集了至少1亿美元，比柯林斯的所筹经费翻了一番，所有的民调也不看好柯林斯，尽管如此，报道认为柯林斯最终肯定会赢得竞选。
 
+缅因州的立法机构也有出乎意料的有大量共和党人获胜。尽管在35个席位的参议院席位中，共和党人从14人减少到13人，但在151个席位的众议院中，共和党代表净增11人，共有67名共和党代表人。
 
+缅因州本地的政治战略家布伦特·利特尔菲尔德（Brent Littlefield）向《布伦巴特》谈到了共和党的收获。他说，“我对共和党取得的全部成果，尤其是在新英格兰地区的州立法层面的收获，真正感到无比兴奋。”利特尔菲尔德是2010年和2014年帮助前缅因州共和党州长保罗·勒佩奇（Paul LePage）成功竞选的负责人，他形容松树州（缅因州的别称）的结果是惊人的，“当时所有的专家和民调机构以及现金流都表明共和党人将被打垮。”利特尔菲尔德说，“我认为这是一个强烈的信号，选民们希望候选人具有理性，能提出合理的政策，支持小企业，而不是惩罚他们。我认为人们在州一级对极左派的极端政策进行反击，在新英格兰地区看到这一点非常好。”
 
-Dominion Voting System 是一家美国公司，承担此次美国大选多数摇摆州的投票服务。11月10日 The Gateway Pundit曾发文章，根据数据分析，指出其所谓的系统“故障”，实为作弊嫌疑。
+[原文链接](https://www.breitbart.com/2020-election/2020/11/10/deeply-blue-new-england-disrupted-by-republican-wins-in-down-ballot-races/#)
 
-[【突发】【独家】：选举之夜数据分析显示，Dominion机票系统作弊，偷走或删除掉川普的选票多达几百万](https://gnews.org/zh-hans/547848/)
+翻译：文彩
+
+校对：文旺
 
 0

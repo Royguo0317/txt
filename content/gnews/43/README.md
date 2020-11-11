@@ -1,61 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【突发】【独家】：选举之夜数据分析显示，Dominion机票系统作弊，偷走或删除掉川普的选票多达几百万
-` The voice of San Francisco` [轉載自GNews](https://gnews.org/zh-hans/547848/)
+## 违背科学逻辑的数据再一次证明选举中舞弊现象的存在
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/547948/)
 
-**【作者】Joe Hoft 来自11月10日的theGatewayPundit**
+*多伦多加喜农场  天使在人间*
 
-**【编辑翻译】：**Summer 喜马拉雅金喜农场
+*校对 文锦 上传 WJ*
 
-2020年大选以来，我们已经报道了数不清的媒体口中所谓的系统“小故障”。
+据Zerohedge11月9日报道，11月8日，一位不愿透露姓名的数据分析科学家在Twitter上公布了他非常有趣的研究结果，从对邮寄选票的数据分析看，这些数据强烈的暗示了在选举之夜的凌晨发生了舞弊行为，当时川普总统在几个摇摆州对拜登保持了相当的领先优势， 而计票工作被莫名其妙地停止了下来。
 
-昨晚，我们报道了威斯康星州的洛克县的一个所谓的系统“小故障”。证据表明，洛克县的似乎在川普和拜登之间的投票总数看起来被呼唤了。 川普总统被拿走了9,516票，给了拜登。 这样19,032票的区别，抹平了拜登在威斯康星州的领先优势。
+这些数据使引自《纽约时报》网站，其中比较了几个州（包括摇摆州和非摇摆州）的数据，清楚地说明了有无舞弊行为的区别，以及当拜登在摇摆州反超川普总统时出现的异常情况如何留下了清晰的作假痕迹。
 
-在昨天的帖子中，我们还发现在密歇根州，宾夕法尼亚州和乔治亚州也出现过类似“故障”问题。
+这些数据是基于他们（纽约时报）专有的”Edison”数据库，通常这些数据无法被该报以外的人访问。 我们看到的是投票数据时间序列分析，你会看到创建令人信服的合成时间序列数据是极其困难的。通过查看全国计票过程的时间序列分析数据，我们可以很容易地发现欺诈行为的存在。
 
-今天我们得到的一份未经审计的数据分析表明，在所能找到的50州的数据中，寻找只跟总统角逐相关的系统故障和其他异常情况。
+在研究数据时注意到的第一件事是，数据图形显示在新增的拜登选票和川普选票之间有明显的规律可循。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11093546/1-48.png)
+上面是一张横轴和纵轴均为对数-对数的图形， 正如我们在此图中看到的， 随着机票进度的不断更新，我们看到是拜登票数与川普选票间的比例几乎是恒定的。这种规律几乎完美的符合线性回归模型与，除了少数异常值。 这怎么可能？这是作假的结果吗？令人惊讶的是，正相反，这实际上是预料中的结果。 我们可以利用这种看似奇怪的图形来发现计票中的舞弊行为！
 
-在这个网站上（https://thedonald.win/p/11Q8O2wesk/happening-calling-every-pede-to-/），一个网名叫蜈蚣（PEDE）的人看到了the GatewayPundit的帖子后决定自己进行分析。
+这里是佛罗里达、德克萨斯、南达科他几乎相同的图形。我们再次看到这种线性规律。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11093701/2-72.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11093558/Teaxs.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11093609/South-Dakota.png)
+在全国各地，直线上的点实际上是邮寄选票。
+在投给拜登的选票与投给川普的选票的比例上，它们是如此相似，它们像一副洗过的牌一样。由于选票在运输过程中随机混合在一起，跨越多个选区。 我们可以预期，在一段时间内每次更新计票数量上，拜登和川普的选票的比例将保持相对恒定。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11093728/California.png)
+让我们更深入地了解一下：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11093747/florida.png)
+这里是相同的佛罗里达州投票数据，但这次是直接纪录拜登选票与川普选票的的比例随着时间的变化。我们看到，开始的计票结果非常随时间的变化差异很大，这些代表的是亲自到投票站投票的人。这些计票有如此巨大的差异 是因为 亲自投票发生在不同选区。我们可以看到这种分散的亲自投票模式，在那之后在几乎所有情况下都可以看到类似的邮寄选票计票结果。我们在全国各地几乎都可以看到，邮寄的民主党与共和党的选票之比例在一段时间里非常一致。 随着时间的推移， 共和党的选票会略有增加， 很可能是由于郊区有更多的共和党选票票。这些偏远地区需要更长的时间才能将选票运送到投票中心。
+现在，我们进入真正的关键。我们看到随着邮寄选票点票的进程，共和党的选票会略多于民主党的选票。 我们有一些例外！例外本身不一定是舞弊，但它们可以帮助我们更轻松地发现舞弊行为。
+现在，让我们看一些不正常的例子：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11093802/Wisconsin.png)
+这是威斯康星州计票数据。同样，在 Y纵轴上是民主党与共和党 选票的比率，在 横 轴上是时间。凌晨4点左右，邮寄选票的比例发生了明显变化。对比其他图形，这不应该发生。这是一个反常现象，虽然异常并不总是作假，但它们通常可能发现作假。
 
-作者说他列举的是从川普换成拜登的选票，以及是Dominion（全美国许多州使用的投票机）删除掉的选票。他特别提醒我们：这里的数据并没有考虑那以十万计的被销毁，燃烧和撕碎的的选票，和那成千上万的只标注了拜登的作假选票。作者声称他的工作已经过验证，但我们尚未验证结果，因此我们目前将他的结果称为“未经审计”。
+到凌晨 4 点， 民主党选票和共和党选票的比例发生了异常。这是因为这些选票不是从威斯康星州实际选民中选取的，而且它们没有随机分布在邮寄选票中。这个比例的异常变化，很可是能通过修改日期或人为篡改选票或软件篡改选票而将额外的选票加入计票数据中。
 
-作者获得的数据是在选举之夜被《纽约时报》拿到后来被传播的数据。通过检查数据，作者找到了一处选票从川普改为拜登的实例，因此他决定对整个数据集进行分析，首先是使用了Dominion投票机的州。作者声称，这些数据来自Edison Research，并且至少被ABC新闻，CBS新闻，CNN和NBC新闻使用来报道选举。它也用于纽约时报的网站，可能还用于其他网站。
+让我们看看另一个异常（宾夕法尼亚州） ：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11093817/Pennsylvania.png)
+这里是宾夕法尼亚州的计票数据。在计票过程的前半部分，我们看到在其他所有州看到的邮寄选票变化规律，这是相对稳定的民主-共和两党选票比率，但随着计票的继续，邮寄选票中的民主党与共和党选票的比例莫名其妙地开始”增加”。同样，这种情况不应该发生，在其他大部分地方没有看到类似的情形，因为所有的选票都是随机在邮件系统中选择的，在点票时应该是规律的。这可能又是篡改日期、软件造假的证据。
+让我们看看另一个异常：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11093834/Georgia.png)
+在佐治亚州，我们看到与宾夕法尼亚州几乎相同的情形：随着时间的推移，邮寄选票中投给民主党的数量不断增加，这并不符合逻辑，我们看到这种模式没有其他地方的国家。
 
-各州的数据（未审计）如下：
-![](https://lh5.googleusercontent.com/wFaHlDWl3-wXc7xPOmXK2_ke12NlAX1FvNQnOHGsuCkALd_DXbCLjQCLKrvRMWFX_Zyrk1g8x7v5jESuk5EQdvTsn8y-1A7eeIM8XJzQld3sVMbPx5p6sQZDzzW5glyAVIWMK6Y)![](https://lh4.googleusercontent.com/4IXafR0LEuunNsyMrxqToNpuBABqqRsgzDE9BDUbM67iq42Vorim28D4NnkTGjgAcZYpKcIGWHj76Nu2H7Mhc2n0NatsMjdaKV3I4MdzfrwkbtdprjNjfl6qKrbz1uKtzT07iWg)
-据此初步分析，可以确定了超过50万张选票，已从川普总统转给了乔·拜登。除此之外，还删除了2,865,757票。请注意，这些数字我们并没有审核。
+在密西根州，我们看到混合了威斯康星州，佐治亚，以及宾夕法尼亚的怪异情形。选票比率在不应该向民主党倾斜。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11093902/Michigan.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11093911/Virginia.png)
+现在公平地说， 弗吉尼亚州是 50 个州中唯一一个有异常， 但还没有对选举欺诈进行的指控。
 
-在这些州，我们还没有在县级的选举做类似的分析，其也可能会影响全国的投票总数。还有更多工作要做。但是很明显，投票机和应用程序都产生了一些非常可疑的交易，需要进一步审查。
+让我们总结一下： 似乎民主党搬起石头砸了自己的脚， 因为让每个人都邮寄选票实际上使得邮寄选票作弊更容易被抓到。 所有的选票都通过邮政系统， 他们像一副洗过的牌， 所以计票过程中民主党与共和党的比例应该有高度的连贯性，而且随着时间的推移， 会稍稍偏向共和党一方， 因为共和党选民在郊区占多数， 而郊区的选票需要更长的时间到达投票站。 这种数据模型证明了存在舞弊行为，甚至可以发现舞弊行为发生的时间。
 
-我们很明确2020年选举中存在大量的欺诈行为。
+简评： 此次美国大选中的舞弊行为实在是不太高明， 被人们从不同的角度， 不同的层面发现了种种痕迹。 想掩盖如此大规模的， 明目张胆的造假几乎是不可能的。 这只能让人们看到造假者的邪恶面目。 而在这背后， 中共的身影不断出现。 中共自成立以来， 就是靠着假和骗窃取了中国的政权， 进而奴役了中国人半个多世纪， 现在他们又将魔爪伸向了国际。 而勇敢地挡在这个恶魔身前的是我们亿万战友组成的爆料革命和新中国联邦， 而对真相的追求就是斩断魔爪的利剑。
 
-没什么人粉乔·拜登，没什么人挺他，但他的投票数超过了川普总统带领的的美国历史上最伟大的竞选活动。我们还要相信乔·拜登击败了川普总统的同时，却失去了美国众议院和州议会的席位。极为不可能。
+*原文链接：*
+[“It Defies Logic”: Scientist Finds Telltale Signs Of Election Fraud After Analyzing Mail-In Ballot Data](https://www.zerohedge.com/political/it-defies-logic-scientist-finds-telltale-signs-election-fraud-after-analyzing-mail-ballot)
 
-看起来民主党人竭尽所能企图窃取这次选举。
-
-问题是，他们没想到川普总统的竞选活动创纪录的成功，没想到他们被抓住了。
-
-更多内幕还在继续。
-
-**关于投票机：**
-
-2020大选中摇摆州使用的投票机叫Dominion，据报道称是丹佛的公司，是占美国市场88%的三家公司之一。南希·佩洛西（Nancy Pelosi）的前参谋长Nadeam Elshami是该公司（雇用的游说公司）的主要高管。 Feinstein参议员的丈夫Richard Blum是该公司的重要股东。
-
-Dominion Voting Systems首席执行官John Poulos确认Dominion制造的机器包括中国制造的部件，并指出使用外国供应商的问题并非投票设备行业独有。
-
-2014年，Dominion在《华盛顿邮报》表中列出，向克林顿基金会捐赠了$ 25,001- $ 50,000。
-![](https://lh3.googleusercontent.com/iOnRSGxgst_aVfMGXZQN8ujS-YU-nRXa_-ojsM_oqULNuVkbZbeFMYgCgYBof5B2FDk4ydky3wNLJ_sl-wNdGozXoCFEcDLBcrsBopMPlgSkJA0iQdlqM_irpUKoSxkmiVxtCak)制造Dominion 投票机的丹佛公司，是占美国市场88%的三家公司之一。 
-Feinstein参议员的丈夫Richard Blum是该公司的重要股东
-
-参考：
-
-11月9日: [https://www.thegatewaypundit.com/2020/11/breaking-exclusive-analysis-election-night-data-states-shows-millions-votes-either-switched-president-trump-biden-lost/](https://www.thegatewaypundit.com/2020/11/breaking-exclusive-analysis-election-night-data-states-shows-millions-votes-either-switched-president-trump-biden-lost/)
-
-11月10日: [https://www.thegatewaypundit.com/2020/11/breaking-exclusive-system-glitch-also-uncovered-wisconsin-reversal-19032-votes-removes-lead-joe-biden/](https://www.thegatewaypundit.com/2020/11/breaking-exclusive-system-glitch-also-uncovered-wisconsin-reversal-19032-votes-removes-lead-joe-biden/)
-
-投票机：[https://www.thegatewaypundit.com/2020/11/dominion-voting-machines-center-material-data-manipulation-concerns-2020-election-reasons/](https://www.thegatewaypundit.com/2020/11/dominion-voting-machines-center-material-data-manipulation-concerns-2020-election-reasons/)
-
-投票机：https://www.worldtribune.com/dominion-voting-systems-tied-to-clintons-widely-used-in-battleground-states/
+*文中图片来源： Zerohedeg.com*
 
 0

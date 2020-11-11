@@ -1,39 +1,97 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共和党检察长在最高法院的支持川普大选的行动
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/548232/)
+## 朱利安尼 推文系列 5（2020年11月8-9日）
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/548278/)
 
-*多伦多加喜农场 Spirit
-校对 文锦 上传 WJ*
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11103515/Trump123.jpg)图片来源 Businessinsider
-根据Westernjournal 11月10日的报道，一组共和党总检察长说，宾夕法尼亚州成为2020年选举的焦点，川普总统对这里计票缺陷和不准确的现象进行抨击。
+*新闻来源：朱利安尼 推文；作者：朱利安尼；发布时间： 2020年11月6-9日*
 
-民主党人乔-拜登（Joe Biden）已被宣布为宾夕法尼亚州的胜利者，但川普竞选活动对如何计票提出了严重质疑。 川普的律师鲁迪-朱利安尼(Rudy Giuliani)周日表示，受到质疑的选票数量非常多，可能会使结果发生翻转。
+*翻译/简评：Beicy-数学老师；校对/审核：TCC；Page：拱卒*
 
-最高法院法官塞缪尔-阿利托 （Samuel Alito）上周下令州政府官员在投票结束后单独保留宾夕法尼亚州选举办公室收到的邮寄选票。
+[![](https://spark.adobe.com/page/eWXogcpEkAfai/images/db13a5b6-8e57-41a0-8c49-5fcec8a71666.jpg?asset_id=1d8a0949-651e-4d1b-821d-5e2d04174fcb&amp;img_etag=%226813ecc631b2588a3b3cac6b8b7faaad%22&amp;size=2560)](https://spark.adobe.com/page/eWXogcpEkAfai/images/db13a5b6-8e57-41a0-8c49-5fcec8a71666.jpg?asset_id=1d8a0949-651e-4d1b-821d-5e2d04174fcb&amp;img_etag=%226813ecc631b2588a3b3cac6b8b7faaad%22&amp;size=1024)
 
-以此为背景，密苏里州司法部长埃里克-施密特(Eric Schmitt)向美国最高法院提交了非当事人意见书，要求川普竞选团队确保选举日之后到达的邮寄选票不被计算在内。
+**简评：**
 
-与施密特一起的还有来自阿拉巴马州、阿肯色州、佛罗里达州、肯塔基州、路易斯安那州、密西西比州、南卡罗来纳州、南达科他州和德克萨斯州的共和党总检察长。
+**朱利安尼: “拜登主导了这个造假集团”**
 
-川普的竞选团队正在起诉，要求推翻宾夕法尼亚州最高法院的一项裁决:允许在选举日之前邮寄的选票以邮戳为准，只要在周五之前到达即可计算。
+朱利安尼先生最新推文，明确指出拜登是选票造假这一”世纪选举盗窃案”的知情者和制造者。朱利安尼先生还进一步给出”幽灵选民”的具体例子—- 美国知名人士、前重量级冠军乔-弗雷泽在2011年11月7日去世，却参加了2018年的(中期)选举投票！
 
-试图阻止迟来的选票被计算的总检察长认为，”该裁决允许在选举后几天收到并计算没有邮戳或没有清晰邮戳的邮递选票，从而加剧了邮递选票欺诈的风险。”
+川普总统的选民在虚假媒体声称拜登获胜后，自发聚会各州投票站，抗议计票造假。这样正义的行为，却被拜登方抹黑为意欲暴乱。朱利安尼先生不仅驳斥了这一谎言，并质问对手: ”如果重新计票和挑战使川普成为赢家，将会发生什么?”
 
-“这项决定在选举日之后，即初步结果公布之后，提供了一个时间窗口，在这段时间里，不法分子可以影响宾夕法尼亚州和其他地方的激烈的总统选举。所以要求选举委员会对迟来的选票进行统计，没有证据表明这些选票是在选举日之前投出的，因为它们没有可辨认的邮戳，从而增加了舞弊的机会。”意见书中写道。
+朱利安尼先生确切地宣布: 已经掌握几个关键州的非法选票证据。加上最近司法院长及共和党员站出来支持调查选举违规，这表明选举结果将被纠正过来。
 
-宾夕法尼亚州法院的裁决 “引起了对非法投票的两个关注。首先，在宾夕法尼亚州立法机构制定的规则之外所投的选票是非法的。 第二，宾夕法尼亚州最高法院的裁决加剧了舞弊的风险。延迟票不仅是非法的，而且是彻头彻尾的舞弊。”施密特和他的盟友认为。
+大选投票结束。 战斗才刚刚开始。
 
-该起诉书提出了两个问题：一是法院超越了其管辖权，这种决定属于州议会，而不是法院。 二是”宾夕法尼亚州最高法院的决定超越了其宪法权限，侵犯了授予宾夕法尼亚州立法机构的权力“。
+爆料革命的战友们, 我们加油传播真相!
 
-检察长们指出，利用邮寄选票进行舞弊的历史非常悠久。”数十年来，负责任的观察家们一直在告诫通过邮寄投票的严重欺诈风险，”该文件补充道，”压倒性的公开证据表明，通过邮寄投票为欺诈和滥用提供了独特的机会。”结论是，”邮寄投票中的欺诈行为经常涉及拦截、更改和欺诈性地提交缺席或邮寄的选票。”
+[原文链接](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-“因此，宾夕法尼亚州法院的决定加剧了欺诈性投票的风险。”
+- **推文1: 2020年11月9日 7点11分发布**
 
-民主党一直在给选民“推销”邮寄选票，这样他们有“操作”的空间。宾夕法尼亚的法院裁决给作假邮寄选票提供了良好的作案环境。但是共和党的检察长不会让这些明显作假的邮寄选票计算在内，在向最高法院的提出意见或上诉，通过法律战来得出真正的选票结果。同时我们也期待作假方能够得到应有的惩罚。
 
-参考链接：
-[Republican Attorneys Make Supreme Court Move in Support of Trump’s Election Challenge](https://www.westernjournal.com/republican-attorneys-make-supreme-court-move-support-trumps-election-challenge/)
 
+
+> NYC,DC,Philly were all boarded up for riots.
+> 
+> All of a sudden no riots by Trump supporters.
+> 
+> They don’t riot.
+> 
+> What happens if recounts and challenges make [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) the winner.
+> 
+> The Biden supporters do riot because they are lawless.
+> — Rudy W. Giuliani (@RudyGiuliani) [November 9, 2020](https://twitter.com/RudyGiuliani/status/1325697527367274497?ref_src=twsrc%5Etfw)
+
+
+纽约，华盛顿，费城(的商家)都钉上板子以防暴动。突然间，川普的支持者是不暴动的。他们不会暴动。如果重新计票和(司法)挑战使川普赢得大选，将会发生什么? 拜登的支持者一定会暴动，因为他们无法无天。
+- **推文2: 2020年11月9日 14点16分发布**
+
+
+
+
+> The Biden selection by the Crooked Media is based on unlawful votes in PA, Mich, GA, Wisc, Nevada et al.
+> 
+> We will prove it all.
+> — Rudy W. Giuliani (@RudyGiuliani) [November 9, 2020](https://twitter.com/RudyGiuliani/status/1325695405917663234?ref_src=twsrc%5Etfw)
+
+
+那些歪曲事实的媒体对拜登的选举支持是基于宾夕法尼亚州、密歇根州、佐治亚州、威斯康星州、内华达州等地的非法选票。我们将证明这一切。
+- **推文3: 2020年11月8日 13点56分发布**
+
+
+
+
+> Just an example of how brazen the Philadelphia Democrat machine is.
+> 
+> Former heavyweight champion Joe Frazier voted in the 2018 election. He died on 11/7/2011!!!
+> 
+> Will Smith’s grandfather voted in 2017, 2018. He died in 2016.
+> 
+> I bet Biden dominated this group.
+>  
+> We will find out.
+> — Rudy W. Giuliani (@RudyGiuliani) [November 8, 2020](https://twitter.com/RudyGiuliani/status/1325437154575704065?ref_src=twsrc%5Etfw)
+
+
+这只是一个例子，(来看看)多么厚颜无耻的费城民主党(操纵计票)机器。前重量级冠军乔-弗雷泽在2018年的(中期)选举中投票。他于2011年11月7日去世！!威尔-史密斯的祖父在2017年、2018年都投了票。他在2016年去世。我敢打赌，拜登主导了这个造假集团。 我们会找到答案。
+- **推文4: 2020年10月6日 14点16分发布**
+
+
+
+
+> [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Rudy W. Giuliani (@RudyGiuliani) [October 6, 2020](https://twitter.com/RudyGiuliani/status/1313468197446746117?ref_src=twsrc%5Etfw)
+
+
+中共病毒(CCP Virus) 
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105818/11222.png)战争行为；是的，是这样的。
+
+
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[编辑：【喜马拉雅战鹰团】](https://spark.adobe.com/page/eWXogcpEkAfai/)
+[![](https://spark.adobe.com/page/eWXogcpEkAfai/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/eWXogcpEkAfai/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0
