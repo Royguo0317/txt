@@ -1,17 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【精華版粵語配音】11.8 路德時評：蔡英文政治投機，將臺灣帶入災難
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/550612/)
+## 每日政要Twitter播报(中文) 11/11期(视频+ PDF下载)
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/550707/)
 
-【精华版粤语配音】11.8 路德时评：蔡英文政治投机，将台湾带入灾难
+撰稿记者:CYC⽂颖、本來、尘凡3、⽯头、喜⻢拉雅2020
+校对:Magician⽂⼼
+播⾳:⼤脚印
 
-制作单位：战友之家-粤语组
-制作团队：剪刀手、一帘幽梦、阿恩、wen fei
-
-
-
-摘要：
-蔡英文政治投机祝贺拜登当选，美国共和党人员和川普很不高兴；中美贸易战台湾得利；蔡英文不能代表中国人，只有新中国联邦才能代表中国人；7000万美国人民支援川普，灭共进程将加快。
+[每日政要推文11-11.pdf](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12071236/11-11-1done-1.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12071236/11-11-1done-1.pdf)
 
 0

@@ -1,28 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/12 财经快讯: 贝莱德 (Black Rock) 提前布局美国大选, 中共抖音逃窜欧洲
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/551066/)
+## 佐治亚州宣布将人工方式重新计票
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/551195/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12085439/Picture59.png)图片来源：[https://web.whatsapp.com](https://web.whatsapp.com/02c46c52-1474-42ea-b6ec-6bd80f3b2021)
-1, 标普500指数和纳斯达克指数上涨，投资者买入的科技股本周被打压，道指收平。大盘指数收涨0.8%，报3,572.66点，纳斯达克指数跳涨2%，报11,786.43点。道琼斯工业平均指数–本周初的中坚力量–陷入困境，下跌23.29点或0.1%，至29,397.63点。
-[https://www.cnbc.com/2020/11/10/stock-market-futures-open-to-close-news.html](https://www.cnbc.com/2020/11/10/stock-market-futures-open-to-close-news.html)
+*多伦多加喜农场 文𤦍(Manpui)
+校对 MyWay* *上传 WJ*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12092914/sdkaf.jpg)图片来源： wsj.com
+据WJ News11月11日报道，佐治亚州州务卿布拉德·拉芬斯佩格（Brad Raffensperger）周三表示，他们将采用人工方式对本次大选重新计票。
 
-2, 欧佩克周三表示，由于冠状病毒病例上升，全球石油需求在2021年的反弹速度将比之前想象的要慢，阻碍了该组织及其盟友支持市场的努力。
-[https://mobile.reuters.com/article/amp/idUSKBN27R1S9?\_\_twitter\_impression=true](https://mobile.reuters.com/article/amp/idUSKBN27R1S9?__twitter_impression=true)
+目前民主党总统候选人乔·拜登获得该州总投票的的49.5％，比现任总统川普（得票率49.2％）的得票数多出大约14,000张，但该州部分地区的计票过程饱受质疑。
 
-3, 顶级资产管理公司贝莱德BlackRock Inc 周一在美国大选前下调了美国国债的评级，并上调了与通胀挂钩的同类债券。并在一份研究报告中说, 采取这一步骤是出于战术上的原因。
-[https://www.oann.com/blackrock-downgrades-u-s-treasuries-ahead-of-election/](https://www.oann.com/blackrock-downgrades-u-s-treasuries-ahead-of-election/)
+州官员表示由于佐治亚州还在使用有争议的Dominion 计票系统软件，至少造成一个县的计票结果延迟。该软件将川普的数千张选票翻转到拜登手中，使得民主党在密歇根州安特里姆县取得明显胜利，之后该软件受到了质疑。最终经查证后川普以56％的得票率赢得了该县的选举。
 
-4, 巴西政府周二支持美国的清洁网络的建议，建立一个全球数字联盟。美国政府认为中共政府操纵的技术，巴西将其排除在联盟之外。
-[https://www.oann.com/brazil-backs-u-s-clean-network-proposal-for-transparent-5g-technology/](https://www.oann.com/brazil-backs-u-s-clean-network-proposal-for-transparent-5g-technology/)
+目前尚不清楚该软件是否可能影响了其他地区的选举结果，但该软件已在所有有争议的州使用，其中密歇根州的其他64个县就在使用该软件。
 
-5, 中资社交媒体TikTok要求联邦上诉法院废除特朗普政府要求该公司剥离在美业务的命令，TikTok的中国母公司声称该命令侵犯了其宪法权利。
-[https://www.breitbart.com/tech/2020/11/11/tiktok-requests-court-block-trump-order-forcing-sale-of-u-s-operations/](https://www.breitbart.com/tech/2020/11/11/tiktok-requests-court-block-trump-order-forcing-sale-of-u-s-operations/)
+由于在大选后的几天内不断发现收到新的选票，最终选票结果将佐治亚州从特朗普翻转到拜登一方，因此人们对佐治亚州的选举结果提出了质疑。拉芬斯佩格表示，“由于差额如此接近，我们需要在每个县进行全面的人工重新计票，这将有助于建立信任。这次将是稽核、重算和复核的结合，这是一个艰巨的任务，但我们将与各县合作，会及时及时完成工作并得到州认证”。
 
-6, TikTok周三表示，到2021年初，其在爱尔兰的员工数量将从1月份的仅20人增加到1100人，爱尔兰外国投资机构表示，这一扩张速度是有记录以来最快的之一。
-[https://mobile.reuters.com/article/amp/idUSKBN27R1D7?\_\_twitter\_impression=true](https://mobile.reuters.com/article/amp/idUSKBN27R1D7?__twitter_impression=true)
+拉芬斯佩格还保证会严肃处理所有选票违规或者选票舞弊，他说，“我的办公室将继续调查每一次非法投票事件。对于双重投票，罪犯投票，外州投票等，如果接到您的举报，我们将进行调查，每张合法选票都将被计在内。“
 
-By 【秘翻组 – 金融法律团队】
+评论：
+随著大选舞弊丑闻的逐渐曝光，美国人民开始觉醒，越来越多的人站了出来。这一刻就像爆料革命文贵先生所言，每一个人都必须行动，站在正义的一方！
+
+*参考链接：*
+
+[Battleground State Announces It Will Conduct a Full Recount of Presidential Votes by Hand](https://www.westernjournal.com/battleground-state-announces-will-conduct-full-recount-presidential-votes-hand/?utm_source=push&amp;utm_medium=westernjournalism&amp;utm_content=2020-11-10&amp;utm_campaign=pushtraffic)
 
 0

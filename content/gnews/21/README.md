@@ -1,29 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《酒灭中共》全球首发！郭文贵先生最新单曲荣登iTunes音乐平台多个国家榜单第一,再创全球音乐史奇迹🎉
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/550753/)
+## 韩国总统与拜登首次通话
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/551015/)
 
-2020年11月12日（EST），郭文贵先生最新灭共单曲《酒灭中共》（“Drinking Down The CCP”）首次在iTunes上线可供下载。这首歌由郭文贵先生主创，G Music音乐团队联合制作，在短短十几个小时内就已登上iTunes音乐平台多个国家的榜单前列，再创全球音乐史奇迹。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12075204/Screen-Shot-2020-11-12-at-10.51.39-pm.png)
-## **香港 iTunes排名第一**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12072522/Screen-Shot-2020-11-12-at-10.24.57-pm.png)2020年11月12日 @7am（EST）的排名截图
-## **澳门 iTunes排名第一**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12072713/Screen-Shot-2020-11-12-at-10.26.41-pm.png)2020年11月12日 @7am（EST）的排名截图
-## **新西兰 iTunes排名第一**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12073444/Screen-Shot-2020-11-12-at-10.34.18-pm.png)2020年11月12日 @7am（EST）的排名截图
-## **匈牙利 iTunes排名第二**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12073320/Screen-Shot-2020-11-12-at-10.33.00-pm.png)2020年11月12日 @7am（EST）的排名截图
-## **新加坡 iTunes排名第二**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12073606/Screen-Shot-2020-11-12-at-10.35.34-pm.png)2020年11月12日 @7am（EST）的排名截图
-## **阿联酋 iTunes排名第二**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12073654/Screen-Shot-2020-11-12-at-10.36.32-pm.png)2020年11月12日 @7am（EST）的排名截图
-## **台湾 iTunes排名第二**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12073802/Screen-Shot-2020-11-12-at-10.37.47-pm.png)2020年11月12日 @7am（EST）的排名截图
-## **澳大利亚 iTunes排名第三**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12074636/Screen-Shot-2020-11-12-at-10.45.49-pm.png)2020年11月12日 @7:30am（EST）的排名截图
-## **苹果音乐🎵下载：**
+编译：肌肉猫
 
-[https://music.apple.com/au/album/%E9%85%92%E7%81%AD%E4%B8%AD%E5%85%B1-single/1537745677](https://music.apple.com/au/album/%E9%85%92%E7%81%AD%E4%B8%AD%E5%85%B1-single/1537745677)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12074012/517f978c-126c-410a-a0d9-78080aff26c9.jpg)
+韩国总统与拜登首次通话 2020年11月9日，韩国文在寅总统明确表示，将与拜登当选人进行多方面的沟通，使韩美同盟更加牢固。文在寅总统首次使用拜登”当选人”的称呼，再次祝贺他在大选中获胜。美国民主党政府有和韩国的民主党政府紧密合作和平进程的经验。另一方面，文在寅总统表示“将竭尽全力发展与特朗普政府所取得的宝贵成果，使与连任失败的特朗普总统的美好离别成为既定事实。”
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12081352/image-20.jpeg)
+2020年11月12日，韩国总统文在寅和拜登首次通话。在通话中，就韩美同盟、北核问题、日冕19及应对气候变化等问题进行了14分钟的对话。
+
+首先向拜登表示祝贺，今天提到了拜登为韩国战争参战纪念碑献花，强调了韩美同盟的坚固性。对于（拜登）对韩美关系发展和韩半岛和平稳定的高度关注和意志表示了谢意。
+
+” 对此拜登表示:”韩国在印度、太平洋地区的安保和繁荣方面是’核心轴’，并承诺进行合作。
+
+“并表示会坚定地维持对韩国的防卫公约，为解决朝核问题紧密合作。 文在寅和拜登决定，在拜登当选总统就任后尽快见面，进行直接对话。
+[![](https://media.discordapp.net/attachments/719005046075031663/776339881332178984/image0.jpg)](https://cdn.discordapp.com/attachments/719005046075031663/776339881332178984/image0.jpg)
+青瓦台解释称，今天的电话会谈，文总统提到了拜登和前总统金大中的缘分等，始终保持着友好的气氛。 韩国主流媒体大部分宣称，拜登已经赢得美国总统大选。韩国民众也不得不接受这一信息。但，普通民众更希望川普获得大选，因此前在川普政府执政期间，对韩政策利好。
+
+参考来源：MBC news
+
 0
