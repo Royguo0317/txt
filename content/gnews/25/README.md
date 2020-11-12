@@ -1,41 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统在共产主义受害者纪念日的致辞
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/548678/)
+## FearCity2.0朱利安尼大战黑帮2.0
+` GM06` [轉載自GNews](https://gnews.org/zh-hans/548681/)
 
-摘要：11月7日川普总统在白宫发布关于共产主义受害者纪念日的致辞，并郑重地缅怀在20世纪被共产主义夺走了生命的1亿多世界人口。他说：在这个“共产主义受害者国庆日”上，我们承诺反对这种阴险的意识形态，并自豪地承诺美国将永远不会成为社会主义国家。我们缅怀所有为共产主义牺牲生命的人，并致力于促进自由，以便子孙后代能够繁荣昌盛。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01141526/WH_20201031_-Hostage-Rescue169.png)图片来源：[https://www.whitehouse.gov/](https://www.whitehouse.gov/)
-英汉对照全文如下：
+作者：战友金不换
 
-**Presidential Message on the National Day for the Victims of Communism**
+为了更好理解目前局势，前一阵特地在Netflix 上看了3集纪录片《Fear City》恐惧之城。讲述80年代初FBI和朱利安尼等如何运用 RICO 法案清除纽约黑帮。
 
-**川普总统在共产主义受害者纪念日上致辞**
+纽约黑帮在当时可不是一般的牛。5大家族编织了以纽约曼哈顿为中心蔓延全国的一张犯罪之网。FBI疲于奔命，千头万绪却无从下手。“一年抓到一两个喽啰就谢天谢地了” 。。基本原因有二：1。没有证人。没人敢站出来。敢站出来的就让你跳楼死以及各种死。2。抓不到大头目，无法根本斩断犯罪。抓走两个喽啰，后面排队上岗得还多着呢。这些意大利黑手党家族组织严密，党羽众多，加入时要发誓永不叛党，一旦叛变会遭到血洗。从街头喽啰到大头目之间有5个层级，大头目都是社会上有头有脸的人物，有企业家商业家慈善家等等，要抓住他们成功定罪几乎是不可能的事情。
 
-Issued on: November 7, 2020
+这时有人想到了利用RICO法案（当时法案虽出，但从未用过，没人会用），顺藤摸瓜，不但要抓小的，还要抓住最大的一锅端。FBI为此制定了周密计划，用了几年时间，分成5大行动组对付5大家族，互通信息互为佐证，秘密监听秘密跟踪，诸多桥段犹如电影，比如让人假装电话和有线电视维修工，或月黑风高之夜直接闯入，安装窃听器。通过破解电话录音加其它情报，获取充分罪证，做实5大家族联合犯罪的事实。
 
-发布日期：2020年11月7日
+预计的秘密大抓捕泄露了风声，好在提前行动还是把人都抓到了。检察官需要通过证据说服全部12名陪审员才能定罪，而辩方律师只需说服一两个陪审员即可推翻。。。最后陪审团一致裁定有罪。好像每个大头目都判了大概100年，盘踞几十年的纽约黑帮从此轰然倒塌。
 
-On National Day for the Victims of Communism, we solemnly remember the more than 100 million lives claimed by communism in the 20th century.  We commit ourselves to stopping the spread of this oppressive ideology that, without fail, leaves in its wake misery, destruction, and death.  As proud Americans who cherish the blessings of freedom and democracy, we promise to support the more than one billion people currently captive within communist regimes and denied their unalienable rights to life and liberty.
+在此受到威胁的不光是证人，还有参与调查与指控的所有人。身为检察官的朱利安尼当时刚刚结婚生子，FBI的警官们到他家教他和妻子如何开枪自卫。朱利安尼没说这个事为什么会轮到他这个年青的检察官，而不是当时更资深更大牌的检察官。只说了一个故事。他的爷爷和外公都是移民美国的意大利小手工业者。爷爷的铺子刚开张，黑帮就来了，要每天盈利的30%。他爷爷问，为什么我要给你30%，对方说，因为要不然我就出门找到你的孩子，打断他的腿。
 
-在共产主义受害者国庆日，我们郑重地缅怀20世纪被共产主义夺走了的1亿多人的生命。我们承诺要制止这种压迫性意识形态的传播，这种意识形态无休止地造成苦难、破坏和死亡。作为以珍惜自由和民主福祉为自豪的美国人，我们承诺要支持当下被共产主义政权俘虏并被剥夺了他们本不该被剥夺的生命权和自由权的十亿多人民。
+朱利安尼经此一役名声大震，奠定江湖地位。在里根政府曾任司法部副部长。两次成功选为纽约市长，并由于在911期间的有力领导，被称为“美国市长”，还被《时代杂志》评为2001年度人物，及次年被英国女王封爵。
 
-This year marks the 100th anniversary of the decisive Polish victory against Vladimir Lenin’s Bolsheviks in the Battle of Warsaw.  Known as the Miracle on the Vistula, the Polish heroes of this battle halted the spread of communism in Europe for decades.  Sadly, the Soviet Union erected an Iron Curtain around Poland and spread communism to neighboring countries and around the world.  Since then, the United States and the free world have borne witness to the horrors of communism, including Chinese prison camps and Soviet gulags.  Over the last century, communist regimes from Cambodia’s Khmer Rouge to Ethiopia’s Derg have confirmed the soul-crushing oppression inherent in Karl Marx’s philosophy.
+Fear City有三集，《Mob Rule》，《Godfather Tapes》，《Judgement Day》。现在重点来了。假如，假如，时隔40年，朱利安尼运气好，再次面临相似的情况，Fear City 2.0， 还是几个黑帮，只不过这次是国家黑帮国际黑帮，实力超过一万倍，他会怎样做呢？如何早早布局，设下圈套，诱敌深入，以弱胜强，依法办事，一举全歼呢？而且这些套中套和坑中坑，是你不干坏事就没事，坏事越大越倒霉。假如真有这样一个故事在上演，那么现在演到了第几集呢？令人遐想。
 
-今年是波兰在华沙战役中战胜弗拉基米尔·列宁的布尔什维克的决定性胜利100周年。被称为维斯瓦奇迹的波兰英雄们在这场战斗中阻止了共产主义在欧洲的传播长达几十年。令人遗憾的是，苏联在波兰周围竖起了铁幕，并将共产主义传播到邻国和世界各地。自那时起，美国和自由世界见证了共产主义的恐怖，包括中国的监狱集中营和苏联的古拉格人。上个世纪以来，从柬埔寨的红色高棉到埃塞俄比亚的德尔格的共产主义政权都证实了卡尔·马克思哲学固有的灵魂压迫。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11125546/WH_20201107_Victims_of_Communism-figure1-scaled.jpg)图片来源：Photo by [Nick Fewings](https://unsplash.com/@jannerboy62?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/victims-of-communism?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText)
-Still today, we observe the irony of “People’s Republics” that belong not to the people, but to one-party and that exist only for the benefit of a select few.  Over and over, communism and socialism have proven to be irreconcilable with the unalienable and fundamental rights of life, liberty, and the pursuit of happiness.  While Marxism promises equality, peace, and happiness, in practice it results only in inequality, violence, and despair.
-
-时至今日，我们仍然看到“人民共和国”的讽刺意味，这些“共和国”不属于人民，而是属于一党制，只为少数人的利益而存在。共产主义和社会主义一次又一次被证明与不可剥夺的基本权利——生命、自由和追求幸福——是不可调和的。马克思主义虽然承诺平等、和平与幸福，但实际上只会导致不平等、暴力和绝望。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11125612/WH_20201107_Victims_of_Communism-figure2-scaled.jpg)图片来源：Photo by [Steve Harvey](https://unsplash.com/@trommelkopf?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/victims-of-communism?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText)
-On this National Day for the Victims of Communism, we commit to standing against this insidious ideology, and pledge with great pride that the United States will never be a socialist nation.  We memorialize all those who have lost their lives to communism and recommit to promoting freedom so that future generations can flourish.
-
-在这个“共产主义受害者纪念日”上，我们承诺反对这种阴险的意识形态，并自豪地承诺美国将永远不会成为社会主义国家。我们缅怀所有为共产主义牺牲生命的人，并致力于促进自由，以便子孙后代能够繁荣昌盛。
-
-[阅读白宫原文](https://www.whitehouse.gov/briefings-statements/presidential-message-national-day-victims-communism-110720/)
-
-翻译：【木木ANNA】校对：【重生】编辑：【Isaiah4031】
-
-战友之家玫瑰园小队出品
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01145114/GNEWS-GTV-VOG.png)
 0

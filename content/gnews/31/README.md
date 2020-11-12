@@ -1,28 +1,85 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国殇纪念日 孩子我想对你说……
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/548567/)
+## 英国人民又做冤大头，花十亿英镑购买中共防护品！
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/548590/)
 
-*多伦多加喜农场 匿名
-上传 WJ*
+*新闻来源：英国每日邮报（Daily Mail）｜作者：[杰玛·卡尔](https://www.dailymail.co.uk/home/search.html?s=&amp;authornamef=Jemma+Carr+For+Mailonline)（[Jemma Carr](https://www.dailymail.co.uk/home/search.html?s=&amp;authornamef=Jemma+Carr+For+Mailonline)）；*
 
-今天11月11日，是加拿大的国殇纪念日（英语：Remembrance Day），是为了一战、二战和其他战争中牺牲的军人与平民而设立的纪念日。国殇纪念日在加拿大的民间受到高度重视，从国殇纪念日的一周前民众就开始佩戴虞美人花，在11月11日11点钟，人们会为在战争中牺牲的英灵默哀两分钟。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11122514/remembance2017-950x475-1.jpg)图片来源：bridgewaterunited.ca
-加拿大本土在一战、二战以及以前的其他常规战争中并未严重波及。初到加拿大，每年在和平的环境中看到人们都是怀着那样崇敬的心情对待这个日子，再对比在国内时只知道淘宝刻意造出来的双十一 购物狂欢节，有些惭愧、也感到自己很无知，于是逐渐入乡随俗，一起去纪念这个庄严肃穆的日子。
+*翻译、简评： MikeHua｜校对： 随波逐流｜审核：海阔天空｜PAGE：玄天生；*
 
-可是，今年今日，感受却完全不同了。
+**简评：**
 
-由于疫情严重，孩子只能在家上网课，我照例陪着孩子上课。老师提到今天是国殇日，谈到怎样拥有和平的话题。有同学说，美国乱，乔·拜登会当选，老师说，是的，庆幸的是，我们有特鲁多总理，带给我们和平。
+中共病毒袭来，英国首相约翰逊面对疫情毫无头绪，对病毒真相来源只字不提，只能大量花费英国民众的纳税钱，而现在的疫情没有丝毫缓解的迹象。更令人匪夷所思的是，英国竟然高价大量从中国采购医疗器械和防护设备，合同金额竟然高达十亿英镑！约翰逊个人深受CCP病毒之苦，却依然对CCP采取绥靖政策，甚至在美国大选结果并没正式出台之际，就慌不迭地地恭喜与中共深度勾结的拜登，约翰逊的短视、软弱令人不齿！、
 
-听到这个，我差点从椅子上蹦起来，恨不得跟老师理论几句。换做几年前，我肯定漠不关心，还为加拿大有这样一位比美国总统帅的总理而窃喜。然而，通过加拿大政府对中共病毒疫情的态度，让人逐渐认清现实，放弃了幻想。
+随着美国关键权力部门的表态和亚利桑那州的反转，共产党和拜登大势已去，拜登当选必然成为滑稽的闹剧，川普总统必会连任，届时中共想要统治世界的美梦彻底灰飞烟灭！中共的丧钟已经敲响！
 
-当初移民加拿大，就是为了孩子能有好的生活环境，可现在，由于疫情，不仅正常生活被打乱，还时时因为病毒的威胁而精神紧绷。为了舒缓心情，我准备了不少书陪孩子一起读。他最喜欢的故事就是《Temptation for Adam and Eve》 (《亚当和夏娃的诱惑》)。故事里讲到虽然上帝告诫过亚当和夏娃，但夏娃还是受不住撒旦化身的蛇的谎言和诱惑，偷食了禁果，还拉上亚当一起吃，结果被逐出了伊甸园。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11122700/snake.jpg)图片来源：studyprayserve.com
-这个故事讲的是上帝说真话，但亚当和夏娃不听，却相信了谎言、接受了诱惑，导致酿成苦果。结论是：要听从上帝，听从神的话语。
+## 英国纳税人的将近十亿税款被花在了来自中共国的中共病毒个人防护用具上—包括来自武汉的防护用具
 
-这是个经典的故事，但此情此景读来，特别有启发。政府、媒体、老师甚至父母都不是上帝、不是神，说的话并不一定是真的。只有追寻真相、捍卫真相才能让心怀鬼胎的邪魔暴露在阳光下，拥有真正的和平。
+**英国政府和中共国签署了大概90个价值9亿英镑的合同。**
 
-孩子，虽然咱们的生活因为无数精心编造的谎言而毁成这样，连基本的生命健康都受到威胁，但越来越多的叔叔阿姨因为了解到真相而觉醒，在为你们守护着未来。也许我们这一代就像出埃及记中被摩西带出的奴隶，今生无法去到流淌着奶与蜜之地，但请你们无论以后遇到多少艰难险阻，请记得：生命满希望，前路由我创！
+**后续合同将使合同金额增至十亿英镑。**
 
-0
+**医用罩袍、手套和围裙的采购均来自共产主义超级大国。**
+
+**救命的呼吸机来自武汉，中共病毒的发源地。**
+
+**批评人士对这一数字进行了猛烈抨击，因为中共国正面临越来越多的审查**
+
+纳税人已经把将近十亿英镑的巨款花在中共国提供的个人防护用具（PPE）上—包括一些来自武汉的呼吸机。
+
+英国政府和中共国签署了将近90份值9亿英镑的合同，分析指出，这是因为部长们纷纷适应了在今年初像闪电一样快速传播的病毒。
+
+后续合同—目前尚未公布—预计将把采购额提高至10亿英镑。
+
+医用罩袍、手套和围裙采购自共产主义强权—一些呼吸机来自武汉，中共病毒发源地。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/WyK6qbN4xlT4o/images/2aff8435-bb49-439b-8fa8-eb4e49eb4cea.jpg?asset_id=7bb7c531-4f65-459c-b042-932c103b4276&amp;img_etag=%225e48af26a66ed9d01ee1b2e8521f5dce%22&amp;size=2560)](https://spark.adobe.com/page/WyK6qbN4xlT4o/images/2aff8435-bb49-439b-8fa8-eb4e49eb4cea.jpg?asset_id=7bb7c531-4f65-459c-b042-932c103b4276&amp;img_etag=%225e48af26a66ed9d01ee1b2e8521f5dce%22&amp;size=1024)纳税人已经把将近十亿英镑的巨款花在中共国提供的个人防护用具上，包括一些来自武汉的呼吸机（图片中的设备来源未知。）
+[!\[\]()!\[\](https://spark.adobe.com/page/WyK6qbN4xlT4o/images/b53269dc-34c7-4c7d-9b4d-878d6251fa79.jpg?asset_id=29c2bf7c-be75-4e53-a0f1-7fa740d95692&amp;img_etag=%223a4e1a191bf4b97de37aaf97706a0f1b%22&amp;size=2560)](https://spark.adobe.com/page/WyK6qbN4xlT4o/images/b53269dc-34c7-4c7d-9b4d-878d6251fa79.jpg?asset_id=29c2bf7c-be75-4e53-a0f1-7fa740d95692&amp;img_etag=%223a4e1a191bf4b97de37aaf97706a0f1b%22&amp;size=1024)
+昨天的官方数据显示，又有413人在测试阳性后死于病毒，英国的总死亡人数达到48888.
+[!\[\]()!\[\](https://spark.adobe.com/page/WyK6qbN4xlT4o/images/efbfbbe8-c1e5-4427-8b95-9f7ad1b505c0.jpg?asset_id=4d7f8c5d-23ae-42f2-97b3-cc224391b7cd&amp;img_etag=%228d1a46eca76c16f1fdf6f62aed964f66%22&amp;size=2560)](https://spark.adobe.com/page/WyK6qbN4xlT4o/images/efbfbbe8-c1e5-4427-8b95-9f7ad1b505c0.jpg?asset_id=4d7f8c5d-23ae-42f2-97b3-cc224391b7cd&amp;img_etag=%228d1a46eca76c16f1fdf6f62aed964f66%22&amp;size=1024)
+英国确诊了24957例阳性，昨天一天确诊数量就是上周的13.9%。
+
+批评人士抨击了这个庞大的数字，因为中共国在控制疫情方面的作用正面临越来越多的审查。
+
+两个与深圳和北京的协议—价值9200万英镑和约1亿英镑—是PPE采购中最大的交易。
+
+在圣汤姆斯(St Thomas’s)英国国民医疗服务体系(NHS)基金的工作人员—在四月治疗了约翰逊新冠肺炎—购买了价值300万英镑的呼吸机，眼罩，可重复使用口罩和手套，这些都来自一个和北京有关联的公司。
+
+克莱格·泰德曼（Craig Tiedman）–外交政策智库亨利·杰克逊协会研究人员—告诉太阳报：“考虑到中共国在此次疫情大爆发中的角色，许多纳税人感觉这是不平等交易，中共国公司将从数百万份政府合同中获利。”
+
+“在中共国正在全球舞台上施展影响力之际，这种对中共国关键医疗物资的依赖，是一个明显的安全风险。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/WyK6qbN4xlT4o/images/81de9cb3-3103-48ce-bf0d-2f701aa8899d.jpg?asset_id=a84ef13c-470f-4895-8bb3-bde43a485852&amp;img_etag=%223fd628e7b925f7c6af9337c1b27936e6%22&amp;size=2560)](https://spark.adobe.com/page/WyK6qbN4xlT4o/images/81de9cb3-3103-48ce-bf0d-2f701aa8899d.jpg?asset_id=a84ef13c-470f-4895-8bb3-bde43a485852&amp;img_etag=%223fd628e7b925f7c6af9337c1b27936e6%22&amp;size=1024)英国政府和中共国签署了将近90份值9亿英镑的合同，分析指出，这是因为部长们纷纷适应了在今年初像闪电一样快速传播的病毒。（图片中的设备来源未知。）
+
+“我们急需新的关键物资供应链策略。”
+
+今年八月，政府部门花费超过65亿英镑纳税人的钱用于在紧急外部援助合同上，其中很多是给私人公司的。
+
+超过1200个交易已经完成，许多都没有投标。
+
+数据都在政府采购分析数据库图塞尔(Tussell)上一览无余。
+
+他们涵盖了广泛的行业和各种需求，从夜莺急救医院、呼吸机到免费学校用品和食物运输盒。
+
+分析显示，1262个合约被发放出去，总价值66.1亿英镑。仅在6月就有签订了约26亿英镑的合同。
+
+在圣汤姆斯(St Thomas’s)英国国民医疗服务体系(NHS)基金的工作人员—在四月治疗了约翰逊的新冠肺炎—购买了价值300万英镑的呼吸机，眼罩，重复使用口罩和手套，这些都来自一个和北京有关的公司。
+
+英国卫生部（Department of Health）作为这次危机的领导部门，已经在334份合同上花了36亿英镑。
+[!\[\]()!\[\](https://spark.adobe.com/page/WyK6qbN4xlT4o/images/e04b7b5f-cd0c-4930-bfaf-4e7ba2d386d5.jpg?asset_id=82c1b0b3-08c8-4411-8dc5-94cab4ab8318&amp;img_etag=%220fbb31c5d877a6aeded11aca14d6d696%22&amp;size=2560)](https://spark.adobe.com/page/WyK6qbN4xlT4o/images/e04b7b5f-cd0c-4930-bfaf-4e7ba2d386d5.jpg?asset_id=82c1b0b3-08c8-4411-8dc5-94cab4ab8318&amp;img_etag=%220fbb31c5d877a6aeded11aca14d6d696%22&amp;size=1024)
+最大的合同是和国家数据办公室(ONS)签订的，该部门将7亿5000万英镑花费在中共病毒感染调查（CIS）上，该调查提供病毒如何影响整个国家的数据。
+
+英国卫生和社会福利部的一名发言人说:“我们已经尽了一切努力，从零开始建立起强大而有弹性的供应链。由于英国企业的非凡努力，英国制造商将很快满足近四分之三的个人防护装备需求。”
+
+“迄今我们已经交付了超过44亿件PPE用具，还有320亿件的订单需要持续提供给前线工作者，确保他们未来数月的健康。”
+
+[新闻链接](https://www.dailymail.co.uk/news/article-8926043/Almost-1BILLION-British-taxpayers-cash-spent-coronavirus-PPE-China.html)
+
+[**点击阅读英喜庄园在G-News 的更多精彩文章**](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[**点击观看英喜庄园在G-TV的精彩视频**](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+编辑 [【喜马拉雅战鹰团】](https://spark.adobe.com/page/WyK6qbN4xlT4o/)-点击Adobe Spark版
+[!\[\]()!\[\](https://spark.adobe.com/page/WyK6qbN4xlT4o/images/346c910b-ac44-484e-948b-e0e9f22ae111.jpg?asset_id=0b47d6f7-a604-4b55-ab67-289da2e31a3c&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/WyK6qbN4xlT4o/images/346c910b-ac44-484e-948b-e0e9f22ae111.jpg?asset_id=0b47d6f7-a604-4b55-ab67-289da2e31a3c&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+1+

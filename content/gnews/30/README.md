@@ -1,85 +1,85 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英国人民又做冤大头，花十亿英镑购买中共防护品！
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/548590/)
+## 国际社会敦促世卫组织邀请台湾参加世界卫生大会
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/548626/)
 
-*新闻来源：英国每日邮报（Daily Mail）｜作者：[杰玛·卡尔](https://www.dailymail.co.uk/home/search.html?s=&amp;authornamef=Jemma+Carr+For+Mailonline)（[Jemma Carr](https://www.dailymail.co.uk/home/search.html?s=&amp;authornamef=Jemma+Carr+For+Mailonline)）；*
+*新闻来源：香港自由报（Hong Kong Free Press）｜作者：妮娜·拉森（Nina Larson）来自法新社(AFP)；*
 
-*翻译、简评： MikeHua｜校对： 随波逐流｜审核：海阔天空｜PAGE：玄天生；*
+*翻译、简评：Marialu｜PR: 感恩｜审核：海阔天空｜PAGE：玄天生；*
 
 **简评：**
 
-中共病毒袭来，英国首相约翰逊面对疫情毫无头绪，对病毒真相来源只字不提，只能大量花费英国民众的纳税钱，而现在的疫情没有丝毫缓解的迹象。更令人匪夷所思的是，英国竟然高价大量从中国采购医疗器械和防护设备，合同金额竟然高达十亿英镑！约翰逊个人深受CCP病毒之苦，却依然对CCP采取绥靖政策，甚至在美国大选结果并没正式出台之际，就慌不迭地地恭喜与中共深度勾结的拜登，约翰逊的短视、软弱令人不齿！、
+台湾因迅速控制中共病毒而受到国际赞誉。国际上有十多个国家已经提议支持台湾以观察员身份参与世界卫生大会。台湾政府也积极争取至世界卫生大会交流相关经验。世界医学协会主席致信给世卫组织总干事谭德塞，表示“继续排斥台湾卫生代表参加世界卫生大会既愤世嫉俗又适得其反。” 而在中共病毒在全球范围内继续肆虐之际，这种呼吁变得越来越紧迫。然而世卫组织总干事谭德塞表示：台湾的参与只能在“有关政府”同意的情况下才决定——即指北京，而不是由成员国决定。
 
-随着美国关键权力部门的表态和亚利桑那州的反转，共产党和拜登大势已去，拜登当选必然成为滑稽的闹剧，川普总统必会连任，届时中共想要统治世界的美梦彻底灰飞烟灭！中共的丧钟已经敲响！
+从中再次看出谭德塞就是中共的一条狗。他们要让台湾承认台湾是中共国的一部分才能参加世界卫生大会，而蔡英文政府拒绝这样
 
-## 英国纳税人的将近十亿税款被花在了来自中共国的中共病毒个人防护用具上—包括来自武汉的防护用具
+我们坚决抗议世界卫生组织及谭德塞之流漠视2300万台湾人民的健康人权，以及配合中共继续作恶。
 
-**英国政府和中共国签署了大概90个价值9亿英镑的合同。**
+我们也相信当中共倒台之日，也就是谭德塞及中共帮凶的末日。
 
-**后续合同将使合同金额增至十亿英镑。**
+## 敦促世界卫生组织邀请台湾参加重要会议
 
-**医用罩袍、手套和围裙的采购均来自共产主义超级大国。**
+世界卫生组织（World Health Organization）收到新请求，允许台湾参加一个重要的国际会议。如果将台湾排除在外，可能危及全球遏制中共病毒大流行的努力。
 
-**救命的呼吸机来自武汉，中共病毒的发源地。**
+世界上许多地区正因中共病毒的感染和死亡人数激增而心有余悸，世卫组织定于周一恢复其主要的年会，该年会在5月份被缩短。
 
-**批评人士对这一数字进行了猛烈抨击，因为中共国正面临越来越多的审查**
+[![](https://spark.adobe.com/page/4zyUvEM4ssE9S/images/d0557f1d-cc29-4bc7-a5f9-49f767c01385.png?asset_id=066aa691-5009-4936-9b7c-7efccd3f4d29&amp;img_etag=%2213541c181ecab122d55f68ad63eb1780%22&amp;size=2560)](https://spark.adobe.com/page/4zyUvEM4ssE9S/images/d0557f1d-cc29-4bc7-a5f9-49f767c01385.png?asset_id=066aa691-5009-4936-9b7c-7efccd3f4d29&amp;img_etag=%2213541c181ecab122d55f68ad63eb1780%22&amp;size=1024)*世卫组织总部主要会议室。照片：世卫组织。*
 
-纳税人已经把将近十亿英镑的巨款花在中共国提供的个人防护用具（PPE）上—包括一些来自武汉的呼吸机。
+但是，尽管预期世界卫生大会（WHA）将把重点放在应对大瘟疫的国际协调上，某个国际角色（参与者）将不会出席。
 
-英国政府和中共国签署了将近90份值9亿英镑的合同，分析指出，这是因为部长们纷纷适应了在今年初像闪电一样快速传播的病毒。
+在中共国的施压下，台湾已被排除在世卫组织和其他一些国际组织之外，（因为）中共国将这个拥有2300万人口的自治的民主岛国视为自己的领土。
 
-后续合同—目前尚未公布—预计将把采购额提高至10亿英镑。
+但批评人士坚称，这没有道理。
 
-医用罩袍、手套和围裙采购自共产主义强权—一些呼吸机来自武汉，中共病毒发源地。
+他们指出，该地区在抗击中共病毒方面取得了非凡的成功，自大瘟疫开始以来，只有7人死亡，感染人数不足600。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/WyK6qbN4xlT4o/images/2aff8435-bb49-439b-8fa8-eb4e49eb4cea.jpg?asset_id=7bb7c531-4f65-459c-b042-932c103b4276&amp;img_etag=%225e48af26a66ed9d01ee1b2e8521f5dce%22&amp;size=2560)](https://spark.adobe.com/page/WyK6qbN4xlT4o/images/2aff8435-bb49-439b-8fa8-eb4e49eb4cea.jpg?asset_id=7bb7c531-4f65-459c-b042-932c103b4276&amp;img_etag=%225e48af26a66ed9d01ee1b2e8521f5dce%22&amp;size=1024)纳税人已经把将近十亿英镑的巨款花在中共国提供的个人防护用具上，包括一些来自武汉的呼吸机（图片中的设备来源未知。）
-[!\[\]()!\[\](https://spark.adobe.com/page/WyK6qbN4xlT4o/images/b53269dc-34c7-4c7d-9b4d-878d6251fa79.jpg?asset_id=29c2bf7c-be75-4e53-a0f1-7fa740d95692&amp;img_etag=%223a4e1a191bf4b97de37aaf97706a0f1b%22&amp;size=2560)](https://spark.adobe.com/page/WyK6qbN4xlT4o/images/b53269dc-34c7-4c7d-9b4d-878d6251fa79.jpg?asset_id=29c2bf7c-be75-4e53-a0f1-7fa740d95692&amp;img_etag=%223a4e1a191bf4b97de37aaf97706a0f1b%22&amp;size=1024)
-昨天的官方数据显示，又有413人在测试阳性后死于病毒，英国的总死亡人数达到48888.
-[!\[\]()!\[\](https://spark.adobe.com/page/WyK6qbN4xlT4o/images/efbfbbe8-c1e5-4427-8b95-9f7ad1b505c0.jpg?asset_id=4d7f8c5d-23ae-42f2-97b3-cc224391b7cd&amp;img_etag=%228d1a46eca76c16f1fdf6f62aed964f66%22&amp;size=2560)](https://spark.adobe.com/page/WyK6qbN4xlT4o/images/efbfbbe8-c1e5-4427-8b95-9f7ad1b505c0.jpg?asset_id=4d7f8c5d-23ae-42f2-97b3-cc224391b7cd&amp;img_etag=%228d1a46eca76c16f1fdf6f62aed964f66%22&amp;size=1024)
-英国确诊了24957例阳性，昨天一天确诊数量就是上周的13.9%。
+[![](https://spark.adobe.com/page/4zyUvEM4ssE9S/images/b321d391-138a-4e74-a256-ecfe26fe6433.jpg?asset_id=0bae5c23-66e1-473e-82e6-f18825e5ee7b&amp;img_etag=%22fc135117f2d6777c4e988a7019069479%22&amp;size=2560)](https://spark.adobe.com/page/4zyUvEM4ssE9S/images/b321d391-138a-4e74-a256-ecfe26fe6433.jpg?asset_id=0bae5c23-66e1-473e-82e6-f18825e5ee7b&amp;img_etag=%22fc135117f2d6777c4e988a7019069479%22&amp;size=1024)*电子显微镜下的中共病毒（Covid-19）。档案照片：美国落基山实验室（NIAID-RML）*
 
-批评人士抨击了这个庞大的数字，因为中共国在控制疫情方面的作用正面临越来越多的审查。
+世界医学协会（WMA）是一个由全国医学协会组成的联合会，联合代表了1000多万名医生，该组织周四呼吁改变这种状况。
 
-两个与深圳和北京的协议—价值9200万英镑和约1亿英镑—是PPE采购中最大的交易。
+世界医学协会（WMA）主席弗兰克·蒙哥马利（Frank Montgomery）在致世卫组织总干事谭德塞·阿达诺姆·盖布雷耶苏（Tedros Adhanom Ghebreyesus）的一封公开信中说：“新冠（Covid-19）大瘟疫证明，与全世界所有卫生保健系统进行合作是必要的。”
 
-在圣汤姆斯(St Thomas’s)英国国民医疗服务体系(NHS)基金的工作人员—在四月治疗了约翰逊新冠肺炎—购买了价值300万英镑的呼吸机，眼罩，可重复使用口罩和手套，这些都来自一个和北京有关联的公司。
+“我们认为，继续排斥/拒绝台湾卫生代表参加世界卫生大会，既愤世嫉俗，又适得其反。”
 
-克莱格·泰德曼（Craig Tiedman）–外交政策智库亨利·杰克逊协会研究人员—告诉太阳报：“考虑到中共国在此次疫情大爆发中的角色，许多纳税人感觉这是不平等交易，中共国公司将从数百万份政府合同中获利。”
+**很大的差距**
 
-“在中共国正在全球舞台上施展影响力之际，这种对中共国关键医疗物资的依赖，是一个明显的安全风险。”
+中共病毒（新型冠状病毒）自去年年底首次在中共国出现以来，在全球已造成120多万人死亡，4800多万人感染，就在这种情况下，会议将在下周召开。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/WyK6qbN4xlT4o/images/81de9cb3-3103-48ce-bf0d-2f701aa8899d.jpg?asset_id=a84ef13c-470f-4895-8bb3-bde43a485852&amp;img_etag=%223fd628e7b925f7c6af9337c1b27936e6%22&amp;size=2560)](https://spark.adobe.com/page/WyK6qbN4xlT4o/images/81de9cb3-3103-48ce-bf0d-2f701aa8899d.jpg?asset_id=a84ef13c-470f-4895-8bb3-bde43a485852&amp;img_etag=%223fd628e7b925f7c6af9337c1b27936e6%22&amp;size=1024)英国政府和中共国签署了将近90份值9亿英镑的合同，分析指出，这是因为部长们纷纷适应了在今年初像闪电一样快速传播的病毒。（图片中的设备来源未知。）
+长期以来，美国和其他国家一直呼吁联合国卫生署至少让台湾恢复其在2016年之前享有的观察员身份，而在中共病毒（冠状病毒）危机时刻，这种呼吁变得越来越紧迫。
 
-“我们急需新的关键物资供应链策略。”
+由于2020年世界卫生大会的第一部分仅持续了两天，而不是通常的三周，因此成员国早在5月就同意将有争议的台湾问题的讨论推迟到11月。
 
-今年八月，政府部门花费超过65亿英镑纳税人的钱用于在紧急外部援助合同上，其中很多是给私人公司的。
+[![](https://spark.adobe.com/page/4zyUvEM4ssE9S/images/f1ba27fa-b7cd-4393-8a63-0e2ae95fbb7e.jpg?asset_id=1c312e80-b00d-47d9-875f-ec29aa785a74&amp;img_etag=%22f713e248be2f6f30f8be660e85ec0e7f%22&amp;size=2560)](https://spark.adobe.com/page/4zyUvEM4ssE9S/images/f1ba27fa-b7cd-4393-8a63-0e2ae95fbb7e.jpg?asset_id=1c312e80-b00d-47d9-875f-ec29aa785a74&amp;img_etag=%22f713e248be2f6f30f8be660e85ec0e7f%22&amp;size=1024)*照片：奥拉尔（Olaer） /埃尔默·安东尼（Ella Anthony）通过Flickr提供。*
 
-超过1200个交易已经完成，许多都没有投标。
+包括伯利兹、危地马拉、马绍尔群岛和洪都拉斯在内的十多个国家已经提议讨论是否允许台湾作为观察员参加，但目前尚不清楚该问题是否会被允许列入议程。
 
-数据都在政府采购分析数据库图塞尔(Tussell)上一览无余。
+台湾及其盟友认为，将台湾纳入讨论，国际社会将从中获益良多。
 
-他们涵盖了广泛的行业和各种需求，从夜莺急救医院、呼吸机到免费学校用品和食物运输盒。
+他们还警告说，如果将台湾置于冷漠之中,不能直接获取信息，这可能会威胁到遏制疫情的努力。
 
-分析显示，1262个合约被发放出去，总价值66.1亿英镑。仅在6月就有签订了约26亿英镑的合同。
+台湾驻日内瓦大使王良玉上周对法新社说：“当涉及此次大瘟疫时，我们需要全力合作、消除差距，然而我们看到很大的差距。”
 
-在圣汤姆斯(St Thomas’s)英国国民医疗服务体系(NHS)基金的工作人员—在四月治疗了约翰逊的新冠肺炎—购买了价值300万英镑的呼吸机，眼罩，重复使用口罩和手套，这些都来自一个和北京有关的公司。
+世卫组织总干事谭德塞（Tedros）表示，台湾的参与只能由成员国在“有关政府”同意的情况下决定——即指北京。
 
-英国卫生部（Department of Health）作为这次危机的领导部门，已经在334份合同上花了36亿英镑。
-[!\[\]()!\[\](https://spark.adobe.com/page/WyK6qbN4xlT4o/images/e04b7b5f-cd0c-4930-bfaf-4e7ba2d386d5.jpg?asset_id=82c1b0b3-08c8-4411-8dc5-94cab4ab8318&amp;img_etag=%220fbb31c5d877a6aeded11aca14d6d696%22&amp;size=2560)](https://spark.adobe.com/page/WyK6qbN4xlT4o/images/e04b7b5f-cd0c-4930-bfaf-4e7ba2d386d5.jpg?asset_id=82c1b0b3-08c8-4411-8dc5-94cab4ab8318&amp;img_etag=%220fbb31c5d877a6aeded11aca14d6d696%22&amp;size=1024)
-最大的合同是和国家数据办公室(ONS)签订的，该部门将7亿5000万英镑花费在中共病毒感染调查（CIS）上，该调查提供病毒如何影响整个国家的数据。
+但王良玉坚称，世卫组织本身“确实有权邀请台湾作为观察员”
 
-英国卫生和社会福利部的一名发言人说:“我们已经尽了一切努力，从零开始建立起强大而有弹性的供应链。由于英国企业的非凡努力，英国制造商将很快满足近四分之三的个人防护装备需求。”
+[![](https://spark.adobe.com/page/4zyUvEM4ssE9S/images/5f8b2ddf-533a-4fb8-b16a-f55bff5d2518.jpg?asset_id=4854f2ff-f7e2-4c07-84a6-f00863af8506&amp;img_etag=%222176eda3e7b7c86ae748573b9a3feaa8%22&amp;size=2560)](https://spark.adobe.com/page/4zyUvEM4ssE9S/images/5f8b2ddf-533a-4fb8-b16a-f55bff5d2518.jpg?asset_id=4854f2ff-f7e2-4c07-84a6-f00863af8506&amp;img_etag=%222176eda3e7b7c86ae748573b9a3feaa8%22&amp;size=1024)*谭德塞（Tedros Adhanom Ghebreyesus）（左）。档案照片：联合国。*
 
-“迄今我们已经交付了超过44亿件PPE用具，还有320亿件的订单需要持续提供给前线工作者，确保他们未来数月的健康。”
+台湾——官方称为“中华民国”——在1948年全球卫生组织成立时是世卫组织的创始成员。
 
-[新闻链接](https://www.dailymail.co.uk/news/article-8926043/Almost-1BILLION-British-taxpayers-cash-spent-coronavirus-PPE-China.html)
+但当“中华民国”在联合国把“中国”席位输给 “中华人民共和国”一年后，于1972年就被开除出世卫组织。
+
+在2009年至2016年之间，北京允许台湾以“中华台北”的名义以观察员身份出席世界卫生大会。
+
+随着台湾总统蔡英文的当选，台湾失去了这一地位。蔡英文认为台湾是一个事实上的独立国家，不认同北京关于台湾属于“一个中国”的主张。
+
+[新闻链接](https://hongkongfp.com/2020/11/06/who-urged-to-invite-taiwan-to-key-meeting/)
 
 [**点击阅读英喜庄园在G-News 的更多精彩文章**](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
 [**点击观看英喜庄园在G-TV的精彩视频**](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-编辑 [【喜马拉雅战鹰团】](https://spark.adobe.com/page/WyK6qbN4xlT4o/)-点击Adobe Spark版
-[!\[\]()!\[\](https://spark.adobe.com/page/WyK6qbN4xlT4o/images/346c910b-ac44-484e-948b-e0e9f22ae111.jpg?asset_id=0b47d6f7-a604-4b55-ab67-289da2e31a3c&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/WyK6qbN4xlT4o/images/346c910b-ac44-484e-948b-e0e9f22ae111.jpg?asset_id=0b47d6f7-a604-4b55-ab67-289da2e31a3c&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-1+
+编辑 [【喜马拉雅战鹰团】](https://spark.adobe.com/page/4zyUvEM4ssE9S/)-点击Adobe Spark版
+[![](https://spark.adobe.com/page/4zyUvEM4ssE9S/images/64c12a4f-101f-4f6d-ba92-db7b5c47e8fc.jpg?asset_id=be92a11b-7c66-4af5-9357-e7a2df1e1cbb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/4zyUvEM4ssE9S/images/64c12a4f-101f-4f6d-ba92-db7b5c47e8fc.jpg?asset_id=be92a11b-7c66-4af5-9357-e7a2df1e1cbb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+0

@@ -1,39 +1,79 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## War Room 487 总结
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/548344/)
+## 联邦探员胁迫USPS举报人要求息事宁人
+` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/547798/)
 
-作者：Jenny Ball
+内新闻：背靠背
 
-班农先生：7100万投票支持TRUMP的美国人民不会退缩。我们也不会反向动员。
+2020年11月11日，记者詹姆斯·奥基夫（James O’Keefe）公布一段录音，显示因举报选票倒签（非法向前变更邮戳日期）而被联邦探员胁迫，要求他淡化这件事，做到息事宁人。
 
-支持美国第一的人们，选民和民选官员满怀热情，现在正在进行的运动称为“唤醒”。 有些会在以后醒来，而我们现在已经醒了。一切都在发生，人们可以感觉到，可以看到变化，可以感觉到人们一起发生的变化。现在是美国危机时刻，正如立国之父托马斯·潘恩神父所说：“这是检验男人灵魂的时代。”
+联邦探员 “胁迫 “美国邮政举报人霍普金斯淡化故事。霍普金斯加倍…
 
-这将是一场战斗，我们要战斗到底。他们调动的律师事务所，他们要让人们感到困惑，还有林肯项目，我们要面对很多领域的困难。我们是在为最大的国家而战，这样是保护美国人民的权利。
+探员Strasser。”我试图扭曲你一点点”
 
-从现在到知道下一任总统是谁，需要一个漫长的过程。当法律计数完成后，将确定川普总统当选连任。
+“我是在吓唬你”…… “我们有参议员参与……司法部参与…… “他们叫我来的原因是试图利用。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11085252/image-170.png)视频来自记者James O’Keefe推特
+Richard Hopkins（USPS举报人）：他们是烤出来的地狱我
 
-如果拜登公开透明，那么我们就不会在亚利桑那州的宾夕法尼亚州出现这些问题，在费城及周边县，民主党允许数小时监督计票，却不允许共和党人，这是违反法律的。将未监督的选票与监督的选票混合在一起，这又污染了500,000张选票。但随着选区的投票表决，川普总统不断获得更多选票。
+James O’Keefe：你现在感觉如何？我有点生气，我觉得我只是去玩。
 
-最终决定获胜总统的是符合宪法的美国人民，不是主流媒体和推特脸书。
+（2020年11月5日视频）
 
-Twitter现在甚至在拿米奇的帐户欺骗她的铁杆支持者。不封她的号，但是除了查看该帐户外，她无法执行任何其他操作。她的20万追随者以为她已经退缩并放弃了，这会让很多人沮丧，但她没有放弃，而是一直在更加努力的战斗着。
+Richard Hopkins：我听到他对主管说，他们昨天搞砸了。在他们搞砸了昨天，我当时，所以，我很喜欢，哦，他们搞砸了什么？他告诉主管，他们把其中一张选票的邮戳是11月4日而不是3日，因为他们应该把它们放在11月3日。
 
-现在，即使提“选民欺诈”一词都能让某些人紧张去删帖封号。
+（宾夕法尼亚州伊利市邮局的举报人在联邦调查局的审讯中被骗了。）
 
-米奇说她的朋友，支持川普妇女联合创始人艾美的账号更可疑，推特在艾美不知情情况下会用艾美的账号通知追随者组织的活动已经取消，但是活动根本没有取消。
+（联邦探员录音, Russell Strasser美国邮政总局办公室）
 
-亨特·拜登自己说的话录音，说他的中国合作伙伴是中共间谍最高头领，推特把这样的推也标注为不真实！他们正在起哄把拜登家族推到白宫里，但詹姆斯·拜登和亨特·拜登都未注册为外国代理呢。
+Russell Strasser：所以，让我，让我兑现这个承诺的时候了。越来越疯狂了，对吧？叫我来是为了控制暴风雨，在它变得疯狂之前把它收回来。
 
-疫苗炒得政客和大人物到股票大涨，但推出疫苗的过程绝对是不对的。该病毒是武汉军事P4实验室制造的生物武器，他们没有批准黄金级药物羟氯喹，而是在没有完成试验程序的情况下批准疫苗的使用，该疫苗更像是是政治案件，完全靠媒体炒作。
+Richard Hopkins：我明白了。
 
-11月14日将有声势浩大的支持川普总统的大游行，展示美国民众的力量。
+Russell Strasser：因为我们有参议员参与，我们有司法部门参与，我们有。
 
+Richard Hopkins：特朗普的律师团队找到了我。
 
+Russell Strasser：我不是，其实我是想扭曲你一下，因为不管你相信与否你的头脑会踢。
 
-> [Ep 487- Pandemic: Ghost in the Machine (w/ Fog City Midge, Joe Hoft and John Fredericks)](https://pandemic.warroom.org/2020/11/10/ep-487-pandemic-ghost-in-the-machine-w-joe-hoft-and-john-fredericks/)
+Richard Hopkins：好吧。
 
+Russell Strasser：我们喜欢控制自己的思想，当我们这样做的时候，我们可以说服自己的记忆，但是，当我们这样做的时候，我们可以说服自己的记忆。你有一点压力，这就是我对你做的事，你的头脑可以更清醒一点，也可以更有信心。我们也要做一个不同的练习，让你的头脑更清晰一点，所以，这都是故意的。
 
+Richard Hopkins：明白。
+
+Russell Strasser：我不是在吓唬你，而是在吓唬你。
+
+（联邦探员录音结束）
+
+Richard Hopkins：似乎他们想让我不信任你们（Veritas项目）。同时，它，有点影响。我当时想是这些人(Veritas项目)从一开始就支持我，所以这就是我为什么要继续下去的原因。
+
+James O’Keefe：你认为这些联邦探员会支持你吗？
+
+Richard Hopkins：在这一点上，没有。
+
+James O’Keefe：你认为这些联邦探员真的有兴趣调查欺诈吗？
+
+Richard Hopkins：老实说，我不认为他们有兴趣。
+
+James O’Keefe：事实上,你听到我们Rob Weisenbach告诉一个主管,他们在回溯选票的时间。让他们看起来会在11月3日领到选票,你还坚持这个说法吗？
+
+RICHARD HOPKING:是的。
+
+James O’Keefe: 是的。
+
+（视频结束）
+
+USPS举报人Richard Hopkins不仅被联邦探员胁迫，稍早前，他还因为举报而被USPS打压，无薪休假。
+![Image](https://pbs.twimg.com/media/Emg0eu0XYAMi3Km?format=jpg&amp;name=900x900)图片来自记者James O’Keefe推特
+Richard Hopkins是一名有家室的退伍军人，被美国邮政停职，于是他成立了一个GoFundme来养活女儿。GoFundme页面被停用了。他不会看到1美元的13万筹集。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11111707/image-175.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11111744/image-176.png)
+川普总统称他是一位勇敢的爱国者。越来越多的人站出来揭露这个被操纵的选举!
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112601/image-179.png)
+这还没完，尽管举报人Richard Hopkins视频声明自己没有撤诉。但CNN，Washingtonpost等媒体公开撒谎，关于Richard Hopkins的假消息满天飞。
+
+美国众议院监督与改革委员会报道也失实。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11114034/image-180.png)
+这与中共CCP惯用路数如出一辙，搞坏意见者名声，断财路，最后肉体摧毁。
 
 0
