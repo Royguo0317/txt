@@ -1,57 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统连任后，对CCP病毒追责须雷霆出击—留给世界的时间不多了！
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/551284/)
+## 独家！《拜登大选作弊》系列（1）
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/551585/)
 
-编撰：文W、WENJUN、WLQF
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12101425/%E5%9B%BE%E7%89%87-1-7.png)图片来自网络
-
-**美国累计新冠感染者超****1000****万，居世界之首**
-
-美国已确认超过1000万例CCP新冠病毒感染者，过去两周每日感染人数激增60%，住院人数已接近7月高峰期的6万人规模。据最新数据显示，美国11月1日至10日间，新增CCP冠状病毒感染者达到了惊人的100万例。约翰·霍普金斯大学新冠病毒资源中心（Johns Hopkins Coronavirus Resource Center）表示，迄今为止，美国累积新冠感染者超过了1000万，居世界之首。
-
-美国周日新增105,927例新冠报告病例，另有56,768人因感染入院，这使得美国成为世界上第一个单日新增确诊规模超10万例的国家。自9月下旬以来，新冠病毒患者住院人数一直在稳步增加，并正在逼近7月份出现的高峰时刻。 今年2月以来，至少有23.7万美国人死于冠状病毒。
-
-明尼苏达大学传染病研究与政策中心主任迈克尔·奥斯特霍尔姆被任命为拜登新冠顾问委员会的成员。他周一说：“如果在接下来的几周中每天有超过20万例新增病例发生，这不会令我感到惊讶。”
-
-据美国全国广播公司财经频道Emily De Ciccio报道，斯科特·戈特利布博士表示，随着周一美国确诊的冠状病毒病例超过1000万，新冠病毒大流行“即将在全美大暴发”。
-
-戈特利布说：“现在的挑战是，这种病毒在全国各地都有分布。我们将在整个国家出现一波真正意义上的疫情。不幸的是，在我们能够进行这种治疗性反击之前，它将导致大量死亡和疾病。不仅仅是用疫苗，还有这些治疗性抗体。”拜登作为中共在美代理人，在此次美大选中可谓是表现的淋漓尽致。此时此刻，被任命为拜登新冠顾问委员会的成员迈克尔·奥斯特霍尔姆站出来表示「未来美国将有可能出现病毒更大爆发的可能性」不是无源之水，确实存在这种可能性。
-
-**路德社载入史册的119访谈首提“人传人，大爆发”，挽救了美国和世界亿万苍生**
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12101532/%E5%9B%BE%E7%89%87-2-6.png)图片来自GNEWS 截图
-
-在全世界只有几十个中共新冠病毒确诊病例时，基于闫博士的信息，2020年1月19日路德社在节目中指出中共病毒“人传人、大爆发”，后来也逐步验证。班农在后来的一次路德访谈中亲口证实了如果没有爆料革命的「路德119访谈」，美国封关至少推迟两到三个月，那就会死更多的人。所以路德119访谈将写入人类历史！爆料革命拯救了世界上无数的生命并书写了历史。
-
-**世界应尽快查明中共制毒投毒真相并彻底追责，留给世界的时间不多了**
-
-闫丽梦博士于2020年9月14日在Zenodo、Research Gate等知名科学网站发布关于中共病毒的科学报告，证实冠状病毒SARS-CoV-2是一种经实验室复杂改造的增强型病毒，这个病毒来自舟山蝙蝠病毒骨架，而舟山蝙蝠病毒骨架系中共军方某病毒研究所独家拥有。同时美国疫情的忽高忽低似乎也很讲政治，当美国对中共施加压力和影响时，疫情就会快速升高，这一现象不止美国出现，印度，欧洲国家也是如此，以上属于编者猜测，但编者强烈认为美国等政府情报部门应该有中共投毒的情报和实锤证据。
-
-中共一直有统治奴役世界的野心，中共“2035，2049规划”以及“一带一路”计划无不显露其扩张的野心和路线图。中共要实现其野心绕不过美国这一世界重要的一极，中共多年一直在酝酿实施其处心积虑设计的蓝金黄、3F方案，其已经基本拿下了美国大部分的精英和机构。我们从川普总统上台后同中共的较量包括这次正在进行的极不寻常的总统大选中可以看出中共的影响力以及美国沼泽水有多深。但美国的伟大之处是他的法制以及其体制纠正能力，当然也是因为没有被中共勾兑或勾兑成功的川普总统的存在。
-
-随着美国大选川普总统的连任，世界多方开始独立调查病毒的真相以及病毒的追责必将提上日程，不然美国将无宁日，世界将无宁日。正如闫博士日前几次推文中分别提到：我们用“与虎谋皮问老虎”来形容“ WHO-CCP合作调查病毒真相。在许多访谈中，我被问到为什么中共制造并发布了COVID-19病毒，事实很简单：“你只能从凶手身上知道动机。即使如此，我们大多数人也无法理解他的动机。 现在，中共不受限制的生物武器造成的混乱比您想象的要多得多。
-
-2020年11月3日，在班农战斗室大选特别节目中闫博士直言：如果不听从中共，他们会散播更多其他种类的致命病原体。所以只有消灭中共，别无选择。
-
-參考链接:
+- 编辑：文顺
+- 作者：小木头
 
 
+***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-> [BREAKING NEWS: US Coronavirus Cases Surpass 10 MILLION](https://www.euroweeklynews.com/2020/11/09/breaking-news-us-coronavirus-cases-surpass-10-million/)
+拜登大选作弊已浮出水面，根据多方报道，我们整理出拜登大选作弊所用的手段。
+
+**死人票**
+
+11月12日，据Parler用户TeamTrump披露，去世17年的乔治亚州尼科尔森居民琳达·凯斯勒夫人在选举中投票。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12123915/cheat3.jpg)
+原文链接：[https://parler.com/post/a46501d3fa874fc48d12e95dcc93dae6](https://parler.com/post/a46501d3fa874fc48d12e95dcc93dae6)
+
+**过期选票盖选举邮戳**
+
+11月9日，据Veritas 项目披露，密西根州邮递员实名揭发其主管要求以假邮戳处理不符合资格的过期选票。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12124351/cheat9.jpg)
+原文链接：[https://www.projectveritas.com/news/project-veritas-offers-usd25k-reward-for-tips-related-to-election-voter-and/](https://www.projectveritas.com/news/project-veritas-offers-usd25k-reward-for-tips-related-to-election-voter-and/)
+
+**拒绝共和党监票员入场监督**
+
+11月10日，费城私人执业律师杰罗姆·马库斯披露，在费城会议中心亲自看到有十名特朗普竞选志愿者被禁止进入计票室。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12124403/cheat10.jpg)
+原文链接：[https://thefederalist.com/2020/11/10/i-was-in-philadelphia-watching-fraud-happen-heres-how-it-went-down/](https://thefederalist.com/2020/11/10/i-was-in-philadelphia-watching-fraud-happen-heres-how-it-went-down/)
+
+**点票软件频出错 把川普票变成拜登票**
+
+11月11日，据推友转推，前联邦检察官和现任律师Sidney Powell在FOX中披露，投票软件Dominion系统里面有中共软件，出现的问题可能是故意设置的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12124504/cheat1.jpg)
+原文链接：
+
+- [https://www.washingtonexaminer.com/news/trump-campaign-files-federal-lawsuit-in-michigan-over-fraud-allegations](https://www.washingtonexaminer.com/news/trump-campaign-files-federal-lawsuit-in-michigan-over-fraud-allegations)
+- [https://twitter.com/M2Madness/status/1326526096221802498?s=20](https://twitter.com/M2Madness/status/1326526096221802498?s=20)
 
 
+**午夜幽灵票**
 
-[https://www.voachinese.com/a/us-covid-20201111/5656394.html](https://www.voachinese.com/a/us-covid-20201111/5656394.html)
+11月10日，据《DAILY WIRE》报道，在美国353个县，登记的选民比合格公民多180万。报道称，司法观察主席汤姆·菲顿总结道：”新的研究表明，在29个州的353个县中，有180万选民超额，或’幽灵’选民。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12124609/cheat15.jpg)
+原文链接：[https://www.dailywire.com/news/report-in-353-u-s-counties-1-8-million-more-voters-registered-than-eligible-citizens](https://www.dailywire.com/news/report-in-353-u-s-counties-1-8-million-more-voters-registered-than-eligible-citizens)
 
-[https://www.fx168.ca/news/2011/4385576.shtml](https://www.fx168.ca/news/2011/4385576.shtml)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
 
-
-
-> [中共投毒原因浅析](https://gnews.org/zh-hans/357545/)
-
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0

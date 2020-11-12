@@ -1,13 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登第二笔中国敛财交易曝光
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/551548/)
+## 【粤语配音精华版】11/07/2020文贵：习近平曾经强硬的5条不见了
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/551919/)
 
-多伦多加喜农场 视频组 制作
+制作：战友之家粵語頻道
 
-上传 小鸥
-
-
+统筹：【文武全才】 剪輯：【文萊】 【文桥】 配音：【Nobody】 文本：【Jacky】 字幕：【文桥】
 
 0
