@@ -1,23 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 韩国总统与拜登首次通话
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/551015/)
+## 11/12 财经快讯: 贝莱德 (Black Rock) 提前布局美国大选, 中共抖音逃窜欧洲
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/551066/)
 
-编译：肌肉猫
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12085439/Picture59.png)图片来源：[https://web.whatsapp.com](https://web.whatsapp.com/02c46c52-1474-42ea-b6ec-6bd80f3b2021)
+1, 标普500指数和纳斯达克指数上涨，投资者买入的科技股本周被打压，道指收平。大盘指数收涨0.8%，报3,572.66点，纳斯达克指数跳涨2%，报11,786.43点。道琼斯工业平均指数–本周初的中坚力量–陷入困境，下跌23.29点或0.1%，至29,397.63点。
+[https://www.cnbc.com/2020/11/10/stock-market-futures-open-to-close-news.html](https://www.cnbc.com/2020/11/10/stock-market-futures-open-to-close-news.html)
 
-韩国总统与拜登首次通话 2020年11月9日，韩国文在寅总统明确表示，将与拜登当选人进行多方面的沟通，使韩美同盟更加牢固。文在寅总统首次使用拜登”当选人”的称呼，再次祝贺他在大选中获胜。美国民主党政府有和韩国的民主党政府紧密合作和平进程的经验。另一方面，文在寅总统表示“将竭尽全力发展与特朗普政府所取得的宝贵成果，使与连任失败的特朗普总统的美好离别成为既定事实。”
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12081352/image-20.jpeg)
-2020年11月12日，韩国总统文在寅和拜登首次通话。在通话中，就韩美同盟、北核问题、日冕19及应对气候变化等问题进行了14分钟的对话。
+2, 欧佩克周三表示，由于冠状病毒病例上升，全球石油需求在2021年的反弹速度将比之前想象的要慢，阻碍了该组织及其盟友支持市场的努力。
+[https://mobile.reuters.com/article/amp/idUSKBN27R1S9?\_\_twitter\_impression=true](https://mobile.reuters.com/article/amp/idUSKBN27R1S9?__twitter_impression=true)
 
-首先向拜登表示祝贺，今天提到了拜登为韩国战争参战纪念碑献花，强调了韩美同盟的坚固性。对于（拜登）对韩美关系发展和韩半岛和平稳定的高度关注和意志表示了谢意。
+3, 顶级资产管理公司贝莱德BlackRock Inc 周一在美国大选前下调了美国国债的评级，并上调了与通胀挂钩的同类债券。并在一份研究报告中说, 采取这一步骤是出于战术上的原因。
+[https://www.oann.com/blackrock-downgrades-u-s-treasuries-ahead-of-election/](https://www.oann.com/blackrock-downgrades-u-s-treasuries-ahead-of-election/)
 
-” 对此拜登表示:”韩国在印度、太平洋地区的安保和繁荣方面是’核心轴’，并承诺进行合作。
+4, 巴西政府周二支持美国的清洁网络的建议，建立一个全球数字联盟。美国政府认为中共政府操纵的技术，巴西将其排除在联盟之外。
+[https://www.oann.com/brazil-backs-u-s-clean-network-proposal-for-transparent-5g-technology/](https://www.oann.com/brazil-backs-u-s-clean-network-proposal-for-transparent-5g-technology/)
 
-“并表示会坚定地维持对韩国的防卫公约，为解决朝核问题紧密合作。 文在寅和拜登决定，在拜登当选总统就任后尽快见面，进行直接对话。
-[![](https://media.discordapp.net/attachments/719005046075031663/776339881332178984/image0.jpg)](https://cdn.discordapp.com/attachments/719005046075031663/776339881332178984/image0.jpg)
-青瓦台解释称，今天的电话会谈，文总统提到了拜登和前总统金大中的缘分等，始终保持着友好的气氛。 韩国主流媒体大部分宣称，拜登已经赢得美国总统大选。韩国民众也不得不接受这一信息。但，普通民众更希望川普获得大选，因此前在川普政府执政期间，对韩政策利好。
+5, 中资社交媒体TikTok要求联邦上诉法院废除特朗普政府要求该公司剥离在美业务的命令，TikTok的中国母公司声称该命令侵犯了其宪法权利。
+[https://www.breitbart.com/tech/2020/11/11/tiktok-requests-court-block-trump-order-forcing-sale-of-u-s-operations/](https://www.breitbart.com/tech/2020/11/11/tiktok-requests-court-block-trump-order-forcing-sale-of-u-s-operations/)
 
-参考来源：MBC news
+6, TikTok周三表示，到2021年初，其在爱尔兰的员工数量将从1月份的仅20人增加到1100人，爱尔兰外国投资机构表示，这一扩张速度是有记录以来最快的之一。
+[https://mobile.reuters.com/article/amp/idUSKBN27R1D7?\_\_twitter\_impression=true](https://mobile.reuters.com/article/amp/idUSKBN27R1D7?__twitter_impression=true)
+
+By 【秘翻组 – 金融法律团队】
 
 0

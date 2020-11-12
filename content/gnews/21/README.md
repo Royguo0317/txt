@@ -1,29 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 鲁迪·朱利安尼称在费城和匹兹堡 非法计数了650,000张选票
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/551045/)
+## 朱利安尼：诉讼已提交，川普总统将赢下密歇根和宾夕法尼亚
+` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/551183/)
 
-编译：玫瑰天空
+**为子孙爱七哥农场翻译组** **翻译： zz17 校对： jiasen**
 
-### 特朗普总统的私人律师鲁迪·朱利安尼先生与2020年11月12日在接受福克斯“今晚的路易斯·多布斯”访谈时揭示了：选举违规诉讼的最新消息。
+原文链接：[Giuliani: Suits Filed, President Trump To Win Mich. And Pa.](https://www.oann.com/giuliani-suits-filed-president-trump-to-win-mich-and-pa/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12095344/GettyImages-1284440578.jpg)(新闻来源：oann.com 图片来源：Chris McGrath/Getty Images)
+川普总统的私人律师，鲁迪·朱利安尼先生，声称将会发布全国投票欺诈的重要证据。
 
-特朗普总统的私人律师鲁迪·朱利安尼（Rudy Giuliani）声称，宾夕法尼亚州两个最大的城市非法计数了65万张选票。
+在周三的一条推文中，朱利安尼先生说川普竞选团队已对在密歇根和宾夕法尼亚成百上千的欺诈选票提出法律诉讼使之无效。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12095039/Screen-Shot-2020-11-12-at-10.24.36-PM.png)
+最新的诉讼是向密歇根西区提出，朱利安尼先生将在周四发布从双方诉讼中的证词文件。
 
-他在接受Fox Business的Lou Dobbs采访时说：“我们现在最多有大约65万张选票是在费城和匹兹堡进行的非法选票。” “毫无疑问，他们是非法的。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12085435/%E6%88%AA%E5%B1%8F2020-11-13-02.49.12-1.png)
-朱利安尼补充说，共和党人观察不到“几乎没有”选票。该评论不清楚他指的是哪个特定地区。他没有提供证据支持他的主张。
+川普总统的律师说他的团队已经从底特律、密尔沃基、费城收集了令人震惊的投票欺诈的证据。
 
-朱利亚尼说：“在媒体上，我们没有证据表明，这是一个完全的，绝对的谎言，就像他们已经说谎多年一样。” 多布斯笑了起来。
+前任纽约市市长声称：“并不是说宾夕法尼亚不会去做弊，而是州长沃尔夫会。但是我们将在一切可能的法庭上，因为我们不能让民主党偷走宾夕法尼亚”，“现在是共和党和总统在为你们战斗，因为他们（民主党）想偷走你的选票”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12095205/Screen-Shot-2020-11-12-at-10.24.50-PM.png)
+朱利安尼先生补充道，已提交的关于欺诈证据将会对案件起到强有力的支撑，这意味着川普总统很有可能赢下密歇根和宾夕法尼亚。
 
-州长汤姆·沃尔夫（Tom Wolf）的办公室[在周一的](https://apnews.com/article/election-2020-joe-biden-donald-trump-pennsylvania-harrisburg-4ffb65405cf23356da03339b78225822)一份[声明中](https://apnews.com/article/election-2020-joe-biden-donald-trump-pennsylvania-harrisburg-4ffb65405cf23356da03339b78225822)说，允许所有各方遵守这一程序，并且“否则任何暗示都是骗人的。”
+**更多精彩内容请关注：**
 
-特朗普竞选活动还表示，该州为死难者投下了大量选票，但它只列举了一些他们认为被非法计数的人。
+- [为子孙爱七哥农场官方推特](https://twitter.com/wzsaqg)
+- [为子孙爱七哥农场官方GTV号](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
+- [欢迎加入农场discord官方群](https://discord.gg/2vXAV6G)
 
-宾夕法尼亚州州长办公室补充说：“宾夕法尼亚州将竭尽全力剥夺选民的权利。” “我们将保护这次选举和民主进程。宾夕法尼亚州将数一票，我们将保护每一票。”
-
-朱利安尼在周日接受福克斯新闻采访时表示，特朗普竞选活动提起的诉讼可能会揭示整个宾夕法尼亚州多达[90万张无效选票](https://www.washingtonexaminer.com/news/rudy-giuliani-trump-campaign-has-enough-evidence-to-change-pennsylvania-election-results)。他周三没有明确表示他自己提到的费城和匹兹堡的人数是否会影响该州的数字。
-
-鲁迪·朱利安尼先生的访谈视频可以在这里观看👇👇👇：[https://www.foxbusiness.com/shows/lou-dobbs-tonight](https://www.foxbusiness.com/shows/lou-dobbs-tonight)
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20123101/%E5%86%9C%E5%9C%BA%E5%B9%BF%E5%91%8Av7-3.jpg)
 0

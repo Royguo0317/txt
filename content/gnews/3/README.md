@@ -1,61 +1,174 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统助手私下策划最后10周的一连串动作
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/551290/)
+## Dominion 投票机的秘密 —— 另一条执行线路
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/551234/)
 
-**翻译：康州农场-Bruce
-校对：康州农场-TrueSky
-审核：康州农场-文韵**
+新闻来源：推特；作者：President Elect Kanekoa；
 
-白宫正在关注有关移民、贸易、医保、中国和择校的行政命令和法规。
+翻译/简评：文明明；PR/审阅： johnwallis
 
-周一，白宫幕僚长马克·梅多斯(Mark Meadows)召集高级助手们进行了一次通话。
+**简评：**
 
-他的目标之一是：策划他们在最后10周内可以在移民、贸易、医保、中国和择校等方面推动的保守政策行动。
+在Dominion投票机在多处被发现存在问题后，多名知情者纷纷在网上爆料有关Dominion投票机的秘密。根据President Elect Kanekoa （@KanekoaTheGreat）推友在推特上发表的15条推文，我们看到了似乎有一只无形的手在操控着该投票机系统：从它的技术可能性、Dominion公司的资本到Dominion公司的主要领导层。同时，该推友也提出该投票机可能运用软件程序控制了第二条执行线路，在必要时，投票机会执行不同的指令，导致计票错误。
 
-据两位知情人士透露，即使唐纳德·川普总统拒绝向当选总统乔-拜登让步，梅多斯也在电话中要求助手们在本周结束前给他三个目标，这些目标可以在拜登就职前完成。此后，根据对三名政府官员的采访，工作人员已经编制了一份清单，列出了他们计划在未来几天内通过行政命令、行政动作或敲定机构规则可能采取的大约15项行动。
+这位推友的指证是否属实，有识之士可以自己进一步验证。我们也期待未来的法律诉讼能揭开迷底。
 
-在移民问题上，他们正寻求敲定一项规则，围绕H-1B签证制定更严格的标准，该签证允许美国雇主临时雇佣特殊职业的外国工人。而一项潜在的与学校有关的行政命令将寻求向因冠状病毒而关闭的公立学区的家长提供Covid-19(新冠病毒)救济金，允许他们将资金用于私立或教会学校。
 
-助手们说，总统打算尽快开始发布命令，而卫生与公众服务部或国土安全部等机构正急于完成已经酝酿的规则。目前还不清楚每项行政命令可能具有多大的法律约束力–川普总统在担任总统的四年时间里，以利用夸大大部分象征性行政命令的权力而赢得声誉。
 
-该规划是白宫助手私下承认选举结果并最终将权力移交给民主党人的最新迹象，而川普总统竞选活动公开继续在少数几个州就选票计数和未经证实的选民欺诈指控进行法律斗争。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092404/image7-3.png)
-“这会给拜登带来压力，因为很多想法都是受欢迎的东西”，白宫非正式经济顾问斯蒂芬-摩尔说。”如果拜登进入白宫，取消它们，在政治上会有点艰难。”
+## Dominion 投票机的秘密 
 
-拜登团队已经计划在1月20日签署自己的一套行政命令，以撤销川普总统四年来的一些政策制定。撤销川普总统对大多数穆斯林占多数的国家的旅行禁令，恢复对小时候被带到美国的无证移民的保护，重新加入巴黎气候协议，并修改川普总统拒绝的几十项公共卫生和环境法规。
+## —— 另一条执行线路
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12105647/dominian.png)
 
-直到大选前，川普总统的助手们还没有为跛脚期做出明确的计划。尽管几位助手都知道，巴拉克·奥巴马总统(Barack Obama)利用他在任上的最后几个月完成了大量的法规和行政命令。这样做就相当于承认了可能会输掉选举，这明显不是川普总统的立场。
+> 1、软件执行线路
+> 
+> 2016年，普林斯顿大学计算机科学教授安德鲁·阿佩尔（Andrew Appel）博士和一名选举安全专家在《福克斯新闻》（Fox News）上演示了如何在Dominion Voting Machine（投票机）上将选票从一个候选人转换为另一个候选人。
 
-川普总统的助手们希望确保保守的政策和川普总统在移民和贸易方面打破常规的观点尽可能地保持下去。在川普总统白宫内部，梅多斯(Meadows)、高级顾问库什纳(Jared Kushner)和白宫法律顾问西波隆(Pat Cipollone)正在领导关于最后时刻政策制定的各种讨论。
 
-一位前政府高级官员说：”那些想确保他们的对华政策持续下去的人，会试图及时的利用这个时间点。” 他列举了可能采取的包括对中国应用程序和媒介的行动和强化制裁。
 
-白宫副新闻秘书贾德·迪尔(Judd Deere)说:”自上任以来，川普总统从不避讳使用其合法的行政权力来推进大胆的政策，履行他对美国人民的承诺，但我不会猜测或评论潜在的行政行动。”
 
-即便是拜登公布了一个过渡网站，开始审核潜在的白宫工作人员和内阁成员，并宣布一旦正式过渡进程开始，将有助手和志愿者团队在机构内部工作。白宫的这些讨论就好像川普总统和他的一些助手在开始第二个任期。
+> 1/ THREAD
+> 
+> Dr. Andrew Appel, a Princeton Professor of Computer Science, and an election security expert demonstrated in 2016 on Fox News how a Dominion Voting Machine could be hacked to switch votes from one candidate to another. [pic.twitter.com/NazIXBlMDq](https://t.co/NazIXBlMDq)
+> — President Elect Kanekoa (@KanekoaTheGreat) [November 12, 2020](https://twitter.com/KanekoaTheGreat/status/1326695508950183938?ref_src=twsrc%5Etfw)
 
-川普总统的捐款人，能源公司Canary的CEO，丹·埃伯哈特(Dan Eberhart)说:”无论1月20日谁当总统，今年还有很多工作要做，川普总统政府应该在其优先事项上一丝不苟，注重细节。总统专注于选票统计是可以理解的，但在不久的某个时间点，他需要将注意力转回议会会议，并为自己的前四年画上一个句号。”
 
-除了推出行政命令和行动，川普总统未来几周的计划还包括解雇那些让他不爽或拒绝跟随他调查的内阁官员。他周一通过推特解雇国防部长马克·埃斯伯(Mark Esper)，拉开了裁员的序幕。未来几周，川普总统还可能解雇中情局局长吉娜·哈斯佩尔(Gina Haspel)和联邦调查局局长克里斯托弗·雷(Christopher Wray)。哈斯佩尔周二下午被发现在参议院多数党领袖米奇·麦康奈尔(Mitch McConnell)的办公室。
 
-长期以来，两党总统都利用跛脚期(注解#1)来巩固他们的议程，并为下届政府制造麻烦。2008年，当乔治·W·布什总统(George W. Bush)的政府接近尾声时，联邦政府完成了105项法规。根据乔治-华盛顿大学法规研究中心的数据，2016年，奥巴马政府着手完成了127项。
 
-苏珊·杜德利(Susan Dudley)，曾在乔治·W·布什时期领导监管研究中心同时监督信息和监管事务办公室。她说，在通常情况下，推翻一项不受欢迎的法规至少需要一年时间，而撤销一项行政行动则可以通过签字来完成。
+> 2、他描述要做的这些很简单，只要编写一个略有不同的程序，在投票结束前将选票从一个候选人切换到另一个候选人。然后，他可以用螺丝刀和USB在几分钟内黑客一台机器。
 
-“并不是每一个午夜监管都是不恰当的，但如果它们在没有充分分析审查参与的情况下匆忙进行，就会变得更加麻烦，” 杜德利说，”在不攻击动机的前提下，这也束缚了下一届政府的手脚。这意味着下一届政府将不得不投入资源来决定是否要改变它。”
 
-*原文链接：*[*https://www.politico.com/news/2020/11/12/trump-lame-duck-concession-436146*](https://www.politico.com/news/2020/11/12/trump-lame-duck-concession-436146)
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12101838/J2.png)
 
-*注解#1*
 
-*参考美国参议院词汇表| Lame-duck period跛脚期*
 
-*在11月大选后的偶数年国会（或任何参议院）重新召开会议，审议各种事务。一些返回本届会议的议员将不在下一届国会中。因此，他们被非正式地称为”跛脚鸭”（lame duck）成员，参加“跛脚鸭”会议。*
 
-*“lame duck” session – When Congress (or either chamber) reconvenes in an even-numbered year following the November general elections to consider various items of business. Some lawmakers who return for this session will not be in the next Congress. Hence, they are informally called “lame duck” members participating in a “lame duck” session.*
+> 3、阿佩尔 （Appel）博士警告说Dominion投票机存在特定的安全漏洞，称这些投票机正在欢迎并“允许作弊”。
 
-[https://www.senate.gov/reference/glossary\_term/lame\_duck\_session.htm](https://www.senate.gov/reference/glossary_term/lame_duck_session.htm)
 
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12101944/J3.png)
+
+
+> 4、Dominion投票系统是美国第二大投票机公司。他们为40％的美国选民提供服务，并在目前备受争议的摇摆州中使用：
+
+
+- Nevada – 内华达州
+
+
+- Arizona – 亚利桑那州
+
+
+- Minnesota – 明尼苏达州
+
+
+- Michigan – 密歇根州
+
+
+- Wisconsin – 威斯康星州
+
+
+- Georgia – 佐治亚州
+
+
+- Pennsylvania – 宾夕法尼亚州
+
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12102151/J4.png)
+
+
+> 5、2018年，Dominion Voting Systems （投票机）被Staple Street Capital收购。 Staple Street Capital董事会主席威廉·肯纳德（William Kennard）曾经是奥巴马任职期间的欧盟大使，克林顿任职期间美国联邦通讯委员会 （FCC）负责人。
+
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12102439/J5.png)
+
+
+
+
+> 6、联邦选举委员会的记录显示，Dominion Voting Systems 投票机公司的员工在2020年选举中的捐赠几乎全部给了民主党人，其中大部分捐赠给了ActBlue（ActBlue 是为民主党候选人助选的非盈利机构）。
+
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12102543/J6.png)
+
+
+> 7、除了威廉·肯纳德（William Kennard）之外，Staple Street Capital 的其他联合创始人斯蒂芬·欧文斯（Stephen Owens）和胡丹·雅格布扎德（Hootan Yaghoobzadeh）之前还曾担任凯雷投资集团（Carlyle Group）的高层领导。乔治·索罗斯（George Soros）是凯雷投资集团的原始投资者之一。
+
+
+[![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12102806/J7-1.png)](https://www.washingtonpost.com/gdpr-consent/?next_url=https%3a%2f%2fwww.washingtonpost.com%2farchive%2fbusiness%2f1993%2f12%2f08%2fsoros-pledges-100-million-in-carlyle-fund%2fc679195a-cb3c-45fb-a5f2-4ba0cbf8a583%2f)https://www.washingtonpost.com/gdpr-consent/?next\_url=https%3a%2f%2fwww.washingtonpost.com%2farchive%2fbusiness%2f1993%2f12%2f08%2fsoros-pledges-100-million-in-carlyle-fund%2fc679195a-cb3c-45fb-a5f2-4ba0cbf8a583%2f
+
+
+> 8、克林顿基金会还通过DELIAN项目向Dominion Voting Systems投票机公司捐赠了225万美元。该项目旨在支持自动投票机在选举技术中的创新应用。
+
+
+- ![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12102953/J8.png)
+
+
+
+> 9、在密歇根州（Michigan）安特里姆郡（Antrim County）发生的所谓计算机“小故障”导致了川普总统的6,000张选票被转换成乔·拜登。
+
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12103051/J9.png)
+
+
+
+
+> 10、在佐治亚州（Georgia ），Dominion投票机公司向其机器发出“更新”指令后，投票系统暂停了两个小时。选举主管玛西娅·里德利（Marcia Ridley）说，Dominion Voting Systems投票机公司在“昨天晚上传了一些东西，这是不正常的，并导致了故障”。
+
+
+[![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12103133/J10.png)](https://www.politico.com/news/2020/11/04/georgia-election-machine-glitch-434065)https://www.politico.com/news/2020/11/04/georgia-election-machine-glitch-434065
+
+
+> 11、在亚利桑那州(Arizona)，马里科帕县（Maricopa County)是唯一使用自治领投票系统的县。马里科帕县共和党主席因未能在其所在县签署《 Dominion投票机准确性认证书》而辞职。
+
+
+[![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12103225/J11.png)](https://nationalfile.com/arizona-maricopa-county-gop-chair-resigns-following-failure-to-check-voting-machines/)https://nationalfile.com/arizona-maricopa-county-gop-chair-resigns-following-failure-to-check-voting-machines/
+
+
+> 12、美国公民应享有透明和公开的选举程序。 Dominion Voting Machines投票机公司的举报人现在正挺身而出，但是必须对这些政治党派拥有的机器进行全面的调查和审核。
+
+
+[![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12103322/J12.png)](https://app.thebl.com/post/482723)https://app.thebl.com/post/482723
+
+
+> 13 、如果Dominion Voting Systems投票机因重大安全漏洞在得克萨斯州（Texas）进行的认证中被否决了三次，那么，为什么在其他州却被允许使用这些机器？如果还有更多的“故障”怎么办？
+> 
+> 必须进行全面的调查和审核。
+
+
+[![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12103414/J13.png)](https://www.sos.texas.gov/elections/laws/dominion.shtml)https://www.sos.texas.gov/elections/laws/dominion.shtml
+
+
+> 14、获得麻省理工学院博士学位的Shiva Ayyadurai博士（@va\_shiva）在分析选民数据时，详细说明了Dominion Voting Systems投票机系统如何编程，将川普（Donald Trump）的选票转换为乔·拜登（Joe Biden）的。
+
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12103553/J14.png)
+
+
+
+> This is an excellent analysis of how "the glitch" worked by [@va\_shiva](https://twitter.com/va_shiva?ref_src=twsrc%5Etfw) and team.
+> 
+> 1/4 [pic.twitter.com/jDSY8azs5m](https://t.co/jDSY8azs5m)
+> — TheSharpEdge (@TheSharpEdge1) [November 11, 2020](https://twitter.com/TheSharpEdge1/status/1326522681978597378?ref_src=twsrc%5Etfw)
+
+
+
+
+> 15、软件开发商（@CodeMonkeyZ）在Dominion投票系统上安装了另外的执行线路。他列举了可能导致这些机器发生故障的许多方式。
+
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12103712/J15.png)
+
+
+
+> What we have learned so far from reading the Dominion Voting System manual:
+> — Ron (@CodeMonkeyZ) [November 12, 2020](https://twitter.com/CodeMonkeyZ/status/1326715838850764802?ref_src=twsrc%5Etfw)
+
+
+
+编辑**【喜马拉雅战鹰团】**-点击Adobe Spark版
+
+**[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)**
+
+**[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/user/5ee680a45bd6f123dd104807)**
+![This image has an empty alt attribute; its file name is 95fbaeeb-2e63-4d42-be22-17a046ec6c89.jpg](https://spark.adobe.com/page/vbnZ4endqPkBJ/images/95fbaeeb-2e63-4d42-be22-17a046ec6c89.jpg?asset_id=f3201883-b9ed-4816-9435-d630eb0771f8&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=2560)
 0
