@@ -1,118 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共明修栈道暗度陈仓的影响力渗透
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/551666/)
+## 从媒体圈洗牌到世界秩序的重构
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/551699/)
 
-*新闻来源：《NBC 全国广播公司》；作者：Olivia Solon and Ken Dilanian；发布时间： 2020年11月11日*
+作者：freedust；校对：Julia Win；审核：海阔天空；Page：拱卒
 
-*翻译/简评：Cathy r；校对：TCC；Page：Connor54*
+[!\[\]()!\[\](https://spark.adobe.com/page/1ABuOxHbIwZrp/images/74bc273e-d5df-4825-827c-ac28db7cb163.jpg?asset_id=7f2980fe-3929-40ad-a3f1-5bbbc98f5a42&amp;img_etag=%22874b2c7a8856a870a6a1ba8eeaa5186e%22&amp;size=1024)](https://spark.adobe.com/page/1ABuOxHbIwZrp/images/74bc273e-d5df-4825-827c-ac28db7cb163.jpg?asset_id=7f2980fe-3929-40ad-a3f1-5bbbc98f5a42&amp;img_etag=%22874b2c7a8856a870a6a1ba8eeaa5186e%22&amp;size=1024)
 
-**简评：**
+。
 
-当美国民间的研究人员分析中共企图影响美国大选的网络信息战时，他们只发现了成员总数少于1,500人的三个小组和散布笨拙的攻击美国政策和川普政府的英语视频的名为“垃圾变色龙”的网站。但官方的情报人员“已经知道，针对国会议员的中共国影响力行动的比率大约是俄罗斯的六倍，是伊朗的十二倍”。中共的战略是针对有影响力的个人和机构，平时隐藏在暗处，让人无法辨别出来，就像现在已被川普开除的联邦调查局局长雷才是真正中共的潜藏力量。
+七哥曾在早前的直播中说过，媒体可能是第一权力，那时候我还并未认识到媒体有如斯力量，时至今日，始知当初见识的浅薄。让我们从几个方面看看主流媒体和社交媒体在病毒超限战发动之初到现在，近一年时间起到的作用：
 
-![]()![](https://spark.adobe.com/page/jNq9AT6kUHMF7/images/e02a11ff-af2a-4763-be06-56db866cecdc.png?asset_id=83527a0e-a6bb-4504-90e4-789e9a2fff1f&amp;img_etag=%22016dc207e9392eda77bd4b6373eacf96%22&amp;size=1024)
+根据一篇对中共的情报公司——深圳振华数据信息技术有限公司的披露文章，我们可以看出社交媒体的数据收集对中共的超限战提供了强有力的支撑。深圳振华数据成立于2017年，合作伙伴有拓尔思、致力于军民融合的华融公司及中宣部持有企业的控股子公司中译语通科技股份有限公司。2020年9月13日，曾在深圳工作的美国学者、原北京大学经济学教授鲍尔丁（Christopher Balding）揭露称该公司通过设立巨大境外个人数据库，为中国军方收集了世界各地240万人的个人资料。
 
-**中共国的影响力行动让我们瞥见了未来的信息战**
+该公司不仅有通过图表显示的全球危险事件追踪，如大规模破坏武器、气象风险、网络攻击
 
-情报专家正在监视“政府的民主制度与专制制度之间的竞争”
+[!\[\]()!\[\](https://spark.adobe.com/page/1ABuOxHbIwZrp/images/411a79d5-f1c4-4d31-9821-b5e51ebc991c.jpg?asset_id=88f6e51c-bcbd-4453-9f3c-e4300764ed8b&amp;img_etag=%22e9fcad8765c37390334e69ef0f73f6e1%22&amp;size=1024)](https://spark.adobe.com/page/1ABuOxHbIwZrp/images/411a79d5-f1c4-4d31-9821-b5e51ebc991c.jpg?asset_id=88f6e51c-bcbd-4453-9f3c-e4300764ed8b&amp;img_etag=%22e9fcad8765c37390334e69ef0f73f6e1%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/jNq9AT6kUHMF7/images/d04e45f9-4f05-410d-827e-029fff198d35.jpg?asset_id=097b2817-a0f5-412d-ae51-248745297a79&amp;img_etag=%22c363d78c12096fb1b68179276b0333f2%22&amp;size=1024)](https://spark.adobe.com/page/jNq9AT6kUHMF7/images/d04e45f9-4f05-410d-827e-029fff198d35.jpg?asset_id=097b2817-a0f5-412d-ae51-248745297a79&amp;img_etag=%22c363d78c12096fb1b68179276b0333f2%22&amp;size=1024)学者说，中共国人变得越来越大胆和厚脸皮，经常从常常被视为俄罗斯的”腳本”中抄袭。
+也有实时作战舰艇监控
 
+[!\[\]()!\[\](https://spark.adobe.com/page/1ABuOxHbIwZrp/images/e8e5f930-b994-4ad1-8abc-ffd2cdf32d67.jpg?asset_id=b4c011ab-8e75-4c96-8acd-3e678e0d1817&amp;img_etag=%2218d4988ce13569689375d73d0160670c%22&amp;size=1024)](https://spark.adobe.com/page/1ABuOxHbIwZrp/images/e8e5f930-b994-4ad1-8abc-ffd2cdf32d67.jpg?asset_id=b4c011ab-8e75-4c96-8acd-3e678e0d1817&amp;img_etag=%2218d4988ce13569689375d73d0160670c%22&amp;size=1024)
 
-尽管美国情报专家普遍认为，俄罗斯在传播虚假信息，破坏选举前的选民信心方面比任何其它国家都要强，但安全专家却正专注于一个长期威胁。他们担心中共国政府的虚假信息战会对民主产生更阴险的威胁，这种威胁会延续即使到选举日之后。
+甚至有舰艇上海军人员的具体信息
 
-研究这些的学者说，中共国人变得越来越大胆和厚脸皮，经常抄袭过去被视为俄罗斯抹黑美国的剧本。这种模式令全球情报官员感到不安，以至于上周，英国国内安全局军情五处（MI5）新任情报局长肯•麦卡勒姆（Ken McCallum）表示，如果把俄罗斯的影响力行动比喻恶劣的天气，中共国不断发展的行动就像气候变化一样更具破坏性。
+[!\[\]()!\[\](https://spark.adobe.com/page/1ABuOxHbIwZrp/images/34e51cc6-2cb4-47a1-8a7a-9e5bb023129d.jpg?asset_id=64e87101-8cbb-4889-8723-2c9d4f141e53&amp;img_etag=%220e4dabc21a94e6a730470cb7317e8127%22&amp;size=1024)](https://spark.adobe.com/page/1ABuOxHbIwZrp/images/34e51cc6-2cb4-47a1-8a7a-9e5bb023129d.jpg?asset_id=64e87101-8cbb-4889-8723-2c9d4f141e53&amp;img_etag=%220e4dabc21a94e6a730470cb7317e8127%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/jNq9AT6kUHMF7/images/a15a0beb-7225-43a5-bf5f-0024938359b8.jpg?asset_id=71b5b620-ff41-4657-9327-520fdf9348d5&amp;img_etag=%22e26fca7e33f7800d42fd05bf31ecdf81%22&amp;size=1024)](https://spark.adobe.com/page/jNq9AT6kUHMF7/images/a15a0beb-7225-43a5-bf5f-0024938359b8.jpg?asset_id=71b5b620-ff41-4657-9327-520fdf9348d5&amp;img_etag=%22e26fca7e33f7800d42fd05bf31ecdf81%22&amp;size=1024)英国军情五处局长Ken MCcallum说：中国、俄罗斯和伊朗对人民、经济、基础设施、学术研究和民主构成威胁
+当这些信息和军人的社交信息相结合，就可以掌握该舰艇相关人员的活动踪迹，如果在可以进行定点病毒投送的情况下，我们就可以解释美国海军向太平洋派出的巡弋航母为何屡屡出现船员新冠病毒阳性症状的情形。这种非常规的战术，竟然能撼动全球实力最强的美第七舰队航母对太平洋的控制力量，不能不让我们瞠目结舌。
 
-美国非营利性德国马歇尔基金会（German Marshall Fund ）的支部，安全民主联盟（Alliance for Securing Democracy）的负责人劳拉•罗森伯格（Laura Rosenberger）关切动态的变化说，“我们正处在政府的民主制度与专制制度的竞争之间。中共国在地缘政治和经济影响力方面不断发展，并试图将自己描绘成和民主施政同样的合法制度。这从根本上和美国利益是相反的。”
+社交媒体的数据是超限战的重要的组成部分，仅有贴近每个用户的实时生活数据，才能在时效性、精确性上满足情报分析的需求，才有可能对多变的战局产生影响。从这个方面来说，加上社交媒体一向对自由真实声音的封杀，对真相的枉顾，乃至对美国自由、民主价值体系的不屑，我们有理由相信，它们就是全球化利益集团的受益者或者仆人，是为中共情报分析企业提供数据的勾兑者。
 
-中共国政府官员坚决否认自己正在干涉总统大选，他们同时强调，他们计划在全球舞台上维护自己的声誉。
+基于这些数据做出的舆情分析与干预，对言论自由的干预和政治丑闻的掩盖，相信我们战友也深有体会了。社交媒体就像一个被操纵的扩音器，当出现它们不想要的声音的时候，就缩小音量，甚至加入杂音；当他们想向公众灌输、洗脑的时候，就将音量放大。由于社交媒体已经紧密地和我们的日常生活相结合，那么这些无处不在的声音就有了巨大的能量。对疫情和选情的操控，已经给了我们很深的印象，发人深省。
 
-(中共)外交部发言人汪文彬在9月23日的新闻发布会上说：“我们不感兴趣，也从未干涉美国总统大选。”相反地，世界清楚看到，是谁已经在肆意干涉其它国家的内政。
+在大选这些天，美国主流媒体的表现也让人失望。包括美联社、美国有线电视新闻网、福克斯新闻等多家主流媒体，在拜登竞选团队明显假造选票、贿选的情况下，居然高调宣布拜登当选下任美国总统。在新闻飞速传播的当代，在选票造假的视频、照片、证人等等这些证据昭然天下时，主流媒体的选择已经很难用无耻二字来形容了。他们清楚，美国所秉承的自由、民主价值观，是美国成为维护世界秩序力量的基石，如此大的丑闻将导致美国在影响力、外交、政治乃至经济等等方面的被动，也会让一直以自由、民主为追寻方向的人类社会陷入迷惘，这种影响之深刻无法通过简单的几个场景来展现。
 
-** 不断变化的领跑者**
+但主流媒体依然自私而短视的选择了引爆这个丑闻，妄图通过众口铄金的方式，在沸反盈天中扶正这个腐败集团的统治权。可悲的是，以色列总理内塔尼亚胡、日本首相菅义伟、甚至台湾总统蔡英文，竟然已经抢着发推来恭喜拜登的“当选“。不管这是不是因为规避政治风险，惯于美国政治钟摆效应中的政治投机，这对国家间有着非正式外交行为的互访产生了恶劣影响。这将对川普团队施加很大的压力，可能引来更多类似的“恭贺”信息，把谎言变成现实。
 
-专家说，数十年来，俄罗斯一直使用虚假信息方法秘密地在美国播撒分裂和阴谋论。在互联网时代，这已转化为付费操作，通过社交媒体操纵舆论。
+现在，我们这个社会真的走到了一个关键的路口。中共和与之勾兑的腐败集团，不仅用病毒超限战剥夺了人的生命权，甚至正在进一步利用它做为抓手，利用媒体的诓骗，欲让整个世界都囚囿于它们编造好的谎言牢笼中，就像乔治·奥威尔小说中那个充满欺骗和监视的冰冷世界。
 
-它还包括一个庞大的英语宣传网络，其中包括俄罗斯电视台和相关网站。这些网站强调暴力抗议，种族冲突以及描绘的政府无能的故事来加剧美国政治紧张局势又使美国对世界其它地区产生不利影响。
+在曾经秉持的价值观一再被践踏的时候，在基本权利和诉求一再被剥夺的时候，在经历了这些黑暗和谎言的时候，我们想要的是什么，是光明与真相、尊严和希望！我们要去建设一个透明的、属于普罗大众的、能传递真实自由声音的媒体。现存媒体的模式必将被打破，它们所霸占的权力必须还给世人，时间充斥的谎言和污秽需要被涤荡。我们坚持着七哥唯真不破的信条，我们用和假恶磨砺出的灵魂中的真善去感召旁人，我们用向往光明的心去传递希望，会有很多追寻的真相的媒体和GTV一起，他们将是人类重塑价值观的领军人。
 
-从历史上看，中共的信息战更多地集中于提高中共国的全球地位，而不是攻击美国和西方。专家说，随着全球贸易关系的增加，中共国不想成为离群经营者，它希望确保其全球同等国认识到其地缘政治实力。
+【文章仅代表作者观点】
 
-一位听取情报信息情况，没有被授权公开发言并要求不透露姓名的国会高级官员说“基本上，我们与俄罗斯之间唯一的交集是军备控制和购买苏联红牌伏特加酒（Stolichnaya vodka）。俄罗斯人想让我们和他们一样失敗。中共国人不愿看到我们在混乱中，因为我们是他们最大的市场。他们正在努力加速相对的美国衰落和自己上升至首要地位。”
-
-为此，中共国共产党一直在通过树立其政府模式优于民主政府结构的说法来建立所谓“话语权”。专家们说，其目标是在海外发展更大的影响力，特别是在被唐纳德•川普总统已经疏远了的美国在东南亚的政治和军事盟友，并最终取代美国成为世界主导力量。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/jNq9AT6kUHMF7/images/563c7674-b15b-4e52-b4ec-39171aac9e87.jpg?asset_id=8356bbbd-74f4-4d81-b405-8c133b460043&amp;img_etag=%2233623bd3c9a1f53bcd6c73c66b2b18f4%22&amp;size=1024)](https://spark.adobe.com/page/jNq9AT6kUHMF7/images/563c7674-b15b-4e52-b4ec-39171aac9e87.jpg?asset_id=8356bbbd-74f4-4d81-b405-8c133b460043&amp;img_etag=%2233623bd3c9a1f53bcd6c73c66b2b18f4%22&amp;size=1024)菲律宾总统罗德里戈·杜特尔特（Rodrigo Duterte）在2017年6月在克拉克空军基地举行的标志着中国免费向菲律宾提供军事援助的仪式上，检查了步枪的范围。ROMEO RANOCO / 路透社
-
-非营利性国际事务智囊团大西洋理事会（AtlanticCouncil）数字取证研究实验室（Digital Forensic Research Lab）的代理总监兼执行编辑格雷厄姆•布基（Graham Bookie）说，“来自中共国的基础设施和官僚机构更多被设计来表达自己的观点，并说服世界各地潜在的同情（中共国）的听众，尤其是海外的移民社区。”
-
-**改变策略**
-
-然而，在过去的18个月中，中共国人已经开始抄袭俄罗斯的剧本。布基说，他们一直在使用秘密和公开策略来操纵公众舆论，包括彻头彻尾的虚假信息。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/jNq9AT6kUHMF7/images/d23bfa9f-cff7-4427-a73b-2413d70efcf5.jpg?asset_id=3209c195-8422-45e5-b4fc-6f1aa8b11776&amp;img_etag=%2234da688d98931cc2a5893c9063828af0%22&amp;size=4551)](https://spark.adobe.com/page/jNq9AT6kUHMF7/images/d23bfa9f-cff7-4427-a73b-2413d70efcf5.jpg?asset_id=3209c195-8422-45e5-b4fc-6f1aa8b11776&amp;img_etag=%2234da688d98931cc2a5893c9063828af0%22&amp;size=1024)
-
-布基说：“我们看到了更多愿意参与更具侵略性的影响力行动的意愿，包括一些我们将与俄罗斯联系一起的东西。”
-
-例如，在冠状病毒大瘟疫的早期，中共国特工创建了虚假的社交媒体帐户，以在推特和文本中发布虚假信息，如：川普政府计划在美国封城。3月中旬，美国国家安全委员会（National Security Council）驳斥了这些谣言，在推特上说它们是假的。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/jNq9AT6kUHMF7/images/0c643250-613a-402b-8bcd-cd272e1c8f2b.png?asset_id=79da36b8-f49b-42f0-a441-fc43f23b789f&amp;img_etag=%22e7a032f1af9c57c5ef95bd83039eecec%22&amp;size=2560)](https://spark.adobe.com/page/jNq9AT6kUHMF7/images/0c643250-613a-402b-8bcd-cd272e1c8f2b.png?asset_id=79da36b8-f49b-42f0-a441-fc43f23b789f&amp;img_etag=%22e7a032f1af9c57c5ef95bd83039eecec%22&amp;size=1024)
-
-联邦调查局局长克里斯托弗•雷（ChristopherWray）在7月份向华盛顿智囊团哈德森研究所（HudsonInstitute）发表讲话时说：“最终，中共国会毫不犹豫地使用烟雾弹，反光镜和误导来影响美国人。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/jNq9AT6kUHMF7/images/29e25b0f-1754-4530-95a0-d0f5cb7560ce.jpg?asset_id=e34a5be5-6ef5-4ea8-8a2b-d435fe4374f1&amp;img_etag=%223fa93ada9bf0e71fb7c07b07a04b54ab%22&amp;size=1024)](https://spark.adobe.com/page/jNq9AT6kUHMF7/images/29e25b0f-1754-4530-95a0-d0f5cb7560ce.jpg?asset_id=e34a5be5-6ef5-4ea8-8a2b-d435fe4374f1&amp;img_etag=%223fa93ada9bf0e71fb7c07b07a04b54ab%22&amp;size=1024)
-
-中共国已将新策略扩展到其它国家。社交媒体研究公司Graphika在题为“海军注视行动”（Operation Naval Gazing）的报告中识别出脸书帖子，帖子称赞中共国慷慨地向菲律宾提供冠状病毒疫苗，并在菲律宾总统罗德里戈•杜特尔特（Rodrigo Duterte）称中共国“拥有”南海之后，赞扬他。
-
-**糟糕的联盟**
-
-中共国的虚假宣传活动显然仍然需要改进。2019年8月，推特删除了936个与中共国国家行为者相关联的钓鱼账户。这些帐户其中一些声称来自美国城市，推动了有关香港民主抗议者的阴谋论。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/jNq9AT6kUHMF7/images/a2d316fc-0091-4210-a94d-629346e03b91.jpg?asset_id=dea3b504-a838-4847-b9a7-10e733d4d5d4&amp;img_etag=%2248bbce82884b1e394af0d5a18f9171b4%22&amp;size=1024)](https://spark.adobe.com/page/jNq9AT6kUHMF7/images/a2d316fc-0091-4210-a94d-629346e03b91.jpg?asset_id=dea3b504-a838-4847-b9a7-10e733d4d5d4&amp;img_etag=%2248bbce82884b1e394af0d5a18f9171b4%22&amp;size=1024)
-
-根据大西洋理事会数字取证研究实验室的分析，几乎没有任何努力使这些帐户看起来像是真实的人类角色。以前，许多这样的帐户都曾用于向公司推送类似垃圾邮件的促销链接，并且会以多种语言发布推文，包括中文、印尼文、阿拉伯文、英文和西班牙文。
-
-Graphika的研究人员发现了一个虚假的亲中共国人网络，名为“ 垃圾变色龙” （Spamouflage Dragon），该网络在整个夏天在推特，油管和脸书上发布了笨拙的攻击美国政策和川普政府的英语视频。这些视频用英语进行了机械式旁白，在诸如警察如何对待反种族主义抗议者等问题上批评了美国。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/jNq9AT6kUHMF7/images/fc54200c-49b5-44c7-8e2e-9f10fab73076.png?asset_id=2ead91b0-4162-4d84-9081-5f454a2bd31f&amp;img_etag=%22fe7b8345b72aa1ec717c6d553dea254b%22&amp;size=3158)](https://spark.adobe.com/page/jNq9AT6kUHMF7/images/fc54200c-49b5-44c7-8e2e-9f10fab73076.png?asset_id=2ead91b0-4162-4d84-9081-5f454a2bd31f&amp;img_etag=%22fe7b8345b72aa1ec717c6d553dea254b%22&amp;size=1024)
-
-但是这些视频未能吸引任何观众。
-
-Graphika的调查主管本•尼莫（BenNimmo）说：“我还没有找到一个垃圾变色龙视频，可以可靠地证明有一个真实的人参与其中。所有参与行为都是来自该行动的其他成员。”
-
-**有限的干扰**
-
-中共国影响总统选举的直接努力是有限的。Graphika在其“海军注视”研究中，分析了一系列虚假的属于中共国个人的脸书和Instagram群组、页面和个人资料，其上发布了许多议题，包括美国大选。但是，这些账户更多地集中在诸如南海的海上安全等主题上。
-
-实际上只有三个小组直接讨论了美国大选，其中一个小组于2019年4月成立，名为“2020支持彼特 •布塔朱吉” （Go for Pete Buttigieg 2020），到上个月只有两个成员。到2020年中，该行动创建了一个名为“川普冒险游戏2020”（Trump KAG 2020）的小组，该小组发布了亲川普的消息，另一个小组名为“拜登•贺锦丽2020”（Biden Harris 2020）。当脸书上个月初撤下该页面时“拜登•贺锦丽”的页面上有1,400名成员，川普的小组有3名。
-
-尼莫说：“我怀疑其目标是否是干扰选举。成员总数少于1,500人的三个小组，不会在美国互联网产生任何影响。”
-
-**演习**
-
-一些专家建议将选举视为中共信息战的试验场。伦敦一所反极端主义政策研究所，战略对话研究所（Institute for Strategic Dialogue）数字政策和战略负责人克洛伊•科利弗（Chloe Colliver）表示：“这是’散弹打鸟’的方法。”
-
-国家情报局长约翰•拉特克利夫（John Ratcliffe）在上个月向国会情报委员会作简报时说，数十名立法者已成为中共影响力运动的更广泛的目标，《国会山报》（Hill newspaper）首先报道了这一事实。
-
-一位未经授权发表公开讲话并要求不透露姓名的情报官员说，情报界“已经知道，针对国会议员的中共国影响力行动的比率大约是俄罗斯的六倍，是伊朗的十二倍”。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/jNq9AT6kUHMF7/images/44f497b7-029c-4aea-82d7-78a49b52e27c.jpg?asset_id=f4f7e7fb-c859-442c-8f38-0d27e89c4558&amp;img_etag=%22d4d4b16053b5664eaf2b429c4793d813%22&amp;size=2560)](https://spark.adobe.com/page/jNq9AT6kUHMF7/images/44f497b7-029c-4aea-82d7-78a49b52e27c.jpg?asset_id=f4f7e7fb-c859-442c-8f38-0d27e89c4558&amp;img_etag=%22d4d4b16053b5664eaf2b429c4793d813%22&amp;size=1024)
-
-获悉情报情况的国会高级官员继续说，中共国努力影响立法者的意图不是要影响一位候选人的选举，而是要广泛地暴露美国的缺陷。国家安全官员说，这种方法只会越来越发展，它将超越宣传攻势和社交媒体。
-
-联邦调查局局长雷（Wray）于7月份表示：“中共国参与了一场高度复杂的恶性外国势力战略，其手段包括贿赂、勒索和秘密交易。中共国外交官还利用公开、赤裸裸的经济压力和看似独立的中间人来推动中共国对美国官员的偏好。”
-
-[原文链接](https://www.nbcnews.com/business/business-news/china-s-influence-operations-offer-glimpse-future-information-warfare-n1244065)
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/1ABuOxHbIwZrp/)】点击spark adobe版
 
 [点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
 [点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/jNq9AT6kUHMF7/)】-点击spark adobe版
+[!\[\]()!\[\](https://spark.adobe.com/page/1ABuOxHbIwZrp/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/1ABuOxHbIwZrp/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/jNq9AT6kUHMF7/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/jNq9AT6kUHMF7/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
-1+
+0

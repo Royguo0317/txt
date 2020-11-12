@@ -1,71 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统同意朱利安尼：这数十万张欺诈选票不应被计算！
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/551799/)
+## 独家！《拜登大选作弊》系列（1）
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/551585/)
 
-多伦多加喜农场 老熊
-
-校对上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12131305/Biden-Steal.jpg)图片来自 Stationgossip
-11月11日，《门道专家》刊文，“川普总统同意鲁迪·朱利安尼的观点：宾夕法尼亚州和密歇根州的数十万张选票不应允许计算”。
-
-文章说川普总统周三晚再次用“假新闻媒体”字眼呐喊。
-
-川普总统指出，假新闻媒体并没有报道底特律和费城大规模的选票舞弊事件，在那里共和党的观察员被禁止参与监督计票过程。
-
-文章引用了川普总统当晚的推文，“没有人想报告宾夕法尼亚州和密歇根州不允许我们的投票观察员和/或投票监督员观看或监督，这导致了数十万张不应被允许计票的选票计入，否则，我很容易赢得这两个州。把真实的新闻报出去！”
-
-文章接着说，正如我们早些时候所报道的那样，数十万张选票被清点，没有一个共和党观察员在场。
-
-文章回放了一周前的报道，底特律计票工作人员欢呼共和党监督员和共和党律师被赶出TCF中心！【1】
-
-他们以CCP病毒为由，州选举领导层正在阻止底特律TCF中心的共和党民计票监察员进入计票中心。
-
-……
-
-接近中午的时候，计票中心几乎每一张桌子都有一名共和党观察员的位子。
-
-但午休后一切都变了，共和党计票监察员去吃午饭后，底特律官员阻止他们进入计票中心。
-
-（这是个很有争议的举动）……
-
-警察被叫来了。
-
-我们的联系人说，民主党的勤护人员非常敌对和威胁。
-
-戴着黑命贵口罩和种族正义着装的人员被允许进入计票中心，但共和党观察员被阻止进入。
-
-警察封锁入口！
-
-……
-
-我们之前发布了一段视频，一名选票监督员无法获得CCP病毒防护装备，民主党人以此为由，阻止共和党计票观察员进入计票室监督计票。
-
-……
-
-再看这个……
-
-一段视频显示底特律计票工作人员每一次从TCF中心驱走共和党计票监督员时都会欢呼。
-
-他们在欢呼！
-
-还有一段视频，计票工作人员在驱赶共和党律师离开会议室时的欢呼。
-
-我妻子刚发了一段底特律选举工作人员每次@米果
-
-律师被赶出TCF中心，那里正在进行缺席计票。她说，他们每次驱赶一个共和党选票观察员时都会这样做，而民主党观察员的人数比共和党多三分之一。
-
-如此猖獗地舞弊，如此明目张胆地窃取，人们不禁要问，这是美国吗？
-
-是的，没有文贵先生，没有爆料革命，这一切不但会发生，也将会无人过问，无人敢过问。
-
-但是，上苍有眼，下凡了文贵，文贵先生引领了爆料革命，挽狂澜于既倒，扶大厦于将倾！
+- 编辑：文顺
+- 作者：小木头
 
 
+***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-参考链接：【1】https://www.thegatewaypundit.com/2020/11/video-detroit-election-workers-cheer-gop-election-monitor-gop-lawyer-removed-tcf-center/
+拜登大选作弊已浮出水面，根据多方报道，我们整理出拜登大选作弊所用的手段。
 
-原文链接：https://www.thegatewaypundit.com/2020/11/president-trump-agrees-rudy-giuliani-hundreds-thousands-votes-pennsylvania-michigan-not-allowed-count/
+**死人票**
+
+11月12日，据Parler用户TeamTrump披露，去世17年的乔治亚州尼科尔森居民琳达·凯斯勒夫人在选举中投票。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12123915/cheat3.jpg)
+原文链接：[https://parler.com/post/a46501d3fa874fc48d12e95dcc93dae6](https://parler.com/post/a46501d3fa874fc48d12e95dcc93dae6)
+
+**过期选票盖选举邮戳**
+
+11月9日，据Veritas 项目披露，密西根州邮递员实名揭发其主管要求以假邮戳处理不符合资格的过期选票。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12124351/cheat9.jpg)
+原文链接：[https://www.projectveritas.com/news/project-veritas-offers-usd25k-reward-for-tips-related-to-election-voter-and/](https://www.projectveritas.com/news/project-veritas-offers-usd25k-reward-for-tips-related-to-election-voter-and/)
+
+**拒绝共和党监票员入场监督**
+
+11月10日，费城私人执业律师杰罗姆·马库斯披露，在费城会议中心亲自看到有十名特朗普竞选志愿者被禁止进入计票室。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12124403/cheat10.jpg)
+原文链接：[https://thefederalist.com/2020/11/10/i-was-in-philadelphia-watching-fraud-happen-heres-how-it-went-down/](https://thefederalist.com/2020/11/10/i-was-in-philadelphia-watching-fraud-happen-heres-how-it-went-down/)
+
+**点票软件频出错 把川普票变成拜登票**
+
+11月11日，据推友转推，前联邦检察官和现任律师Sidney Powell在FOX中披露，投票软件Dominion系统里面有中共软件，出现的问题可能是故意设置的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12124504/cheat1.jpg)
+原文链接：
+
+- [https://www.washingtonexaminer.com/news/trump-campaign-files-federal-lawsuit-in-michigan-over-fraud-allegations](https://www.washingtonexaminer.com/news/trump-campaign-files-federal-lawsuit-in-michigan-over-fraud-allegations)
+- [https://twitter.com/M2Madness/status/1326526096221802498?s=20](https://twitter.com/M2Madness/status/1326526096221802498?s=20)
+
+
+**午夜幽灵票**
+
+11月10日，据《DAILY WIRE》报道，在美国353个县，登记的选民比合格公民多180万。报道称，司法观察主席汤姆·菲顿总结道：”新的研究表明，在29个州的353个县中，有180万选民超额，或’幽灵’选民。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12124609/cheat15.jpg)
+原文链接：[https://www.dailywire.com/news/report-in-353-u-s-counties-1-8-million-more-voters-registered-than-eligible-citizens](https://www.dailywire.com/news/report-in-353-u-s-counties-1-8-million-more-voters-registered-than-eligible-citizens)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0
