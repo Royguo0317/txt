@@ -1,50 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统美国海军陆战队245周年致辞
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/549141/)
+## 辉瑞疫苗真的有效吗？路德社易博士爆料至少2021年底不会有疫苗上市！
+` GM77` [轉載自GNews](https://gnews.org/zh-hans/549193/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11191119/WH_20201110_Marine_Corps-photo.jpg)图片来源：[https://www.whitehouse.gov/wp-content/uploads/2020/11/32876361654\_d1bec5b46e\_o-1024×576.jpg](https://www.whitehouse.gov/wp-content/uploads/2020/11/32876361654_d1bec5b46e_o-1024x576.jpg)
-**Presidential Message on the 245th Birthday of the United States Marine Corps**
+整理：七角星；审核：WLQF
 
-**美国海军陆战队245周年总统致辞**
+**临床试验显示辉瑞新冠疫苗有效性超过90%**
 
-November 10, 2020
+辉瑞及其合作伙伴BioNTech研发的一种疫苗在保护人体免受2019冠状病毒病伤害方面的效果好于预期，这是在寻找阻止这场全球大流行的疫苗方面的一个里程碑。
 
-2020年11月10日
+一项关键研究显示，辉瑞公司(Pfizer Inc., PFE)及其合作伙伴BioNTech SE (BNTX)开发的疫苗在避免人体感染新冠病毒方面的效果好于预期，这是开发疫苗抗击全球疫情相关行动的一个里程碑。
 
-As Commander in Chief, I proudly join our Nation in wishing the United States Marine Corps a happy 245th birthday.
+两家公司周一表示，在感染新冠病毒并出现至少一种症状的首批94名受试者中，该疫苗的有效性被证明超过90%。
 
-作为总司令，我自豪地和我们的国家一同祝美国海军陆战队245岁生日快乐。
+辉瑞公司称，如果待公布的数据显示疫苗是安全的，该公司有望在本月底前向卫生监管机构申请销售疫苗的许可。
 
-Officially established by the Second Continental Congress on November 10, 1775, the Marine Corps has protected our sovereignty in the air, on land, and at sea. Our Marines have led the charge for freedom and justice in defense of our constitutional republic and its founding principles.
+**辉瑞公司的疫苗需要零下60度的超低温存储运输**
 
-海军陆战队于1775年11月10日在第二次大陆会议上正式成立，它保护了我们空中、陆地和海上的主权。我们的海军陆战队捍卫了我们宪政共和国及其建国原则，为自由和正义冲锋陷阵。
+不过，随着市场情绪缓和，欧美流行病专家纷纷出来“泼冷水”，由于美国辉瑞公司的疫苗需要零下60度的超低温存储运输——远低于其他美国药企所研发疫苗所需存储温度，这导致辉瑞运输能力、储存能力不足问题突出，目前很难让足够多的人接种新疫苗。
 
-Since they first shed blood for the cause of freedom during the Revolutionary War, Marines, true to their creed, have never wavered in their faithfulness. The distinct scarlet and gold Battle Colors of the United States Marine Corps symbolize its history of both unmatched prowess on the battlefield and solemn sacrifice in service to our Nation. Every brave man and woman who dons the Marine Corps uniform carries this legacy forward.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11194855/%E5%9B%BE%E7%89%87-1-6.png)
 
-自从他们在独立战争中首次为自由事业流血牺牲以来，海军陆战队始终忠于自己的信条，从未动摇过他们的忠诚。美国海军陆战队独特的鲜红色和金色的战斗颜色象征着它在战场上无与伦比的威力和为国家作出庄严牺牲的历史。穿上海军陆战队制服的每个勇敢的男士和女士都将这一遗产发扬光大。
+为了确保将新冠病毒疫苗冷冻且有效地送到医院和诊所，辉瑞公司专门制作了特定的集装箱来运输这些疫苗。这种可以控制温度的集装箱可以在零下60摄氏度的环境下储存1000到5000剂疫苗，可以存放10天，然后需要重新冷冻。
 
-With steadfast honor, courage, and commitment, Marines have swiftly and decisively risen to the occasion to secure victory, no matter the task.  This January marks the 30th anniversary of Operation Desert Storm, in which Marines successfully carried out one of the most consequential offensive attacks in the history of modern warfare.  Throughout the Gulf War, these brave warriors never faltered, a reflection of their long-standing devotion to pressing forward until every battle is won.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11194901/%E5%9B%BE%E7%89%87-2-5.png)
 
-凭藉坚定的荣誉、勇气和承诺，海军陆战队迅速而果断地挺身而出，无论任务如何，都能确保胜利。今年1月是“沙漠风暴行动”30周年纪念日，海军陆战队在这次行动中成功地开展了现代战史上最具影响的进攻性袭击之一。在整个海湾战争中，这些勇敢的战士从未动摇，这反映了他们长期致力于向前推进，直到赢得每一场战斗。
+瑞惠公司运输疫苗用的冷冻集装箱（上图）
 
-Today, as we celebrate the men and women who valiantly defend our country as United States Marines, we also honor our heroic Marine veterans, and we solemnly remember those Marines who made the ultimate sacrifice in defense of our freedom.  We will always cherish and honor their memory.
+这些问题意味着，即使一种新冠疫苗很快获得批准，也可能需要好几个月的时间才能让足够多的人接种。而在此之前，西方国家重新实施的封锁措施都是有必要性的。
 
-今天，当我们赞誉勇敢保卫我们国家的美国海军陆战队的男女官兵时，我们也向英勇的海军退伍军人致敬，我们庄严地纪念那些为捍卫我们的自由而做出最后牺牲的海军陆战队军人。我们将永远珍惜和纪念他们。
+**路德社嘉宾易博士爆料：至少在2021年底都不会有疫苗上市**
 
-The First Lady and I send our thoughts and prayers to all members of our Armed Forces and their families. May God bless the Marine Corps, and may He continue to bless the United States of America.
+底下内容来自易博士点评总结：辉瑞公司新冠病毒疫苗研究有四万人参与，虽然它对外宣称疫苗有90%有效率，但是辉瑞并未对外公布完整临床研究数据，更未经同行评议；
 
-第一夫人和我向我们所有的军人和他们的家人送上我们的思念和祈祷。愿上帝保佑海军陆战队，愿他继续保佑美利坚合众国。
+众所周知，新冠病毒对老年人，尤其是有基础疾病的老年人危害极大，辉瑞疫苗研究未公布给老年重症患者注射疫苗后的实际疗效。由于疫苗作为预防病毒感染使用，注射后要继续观察感染率，随机性较大，因此需要上万人的样本量，这无疑给临床研究增加难度。
 
-Semper Fidelis!
+新冠病毒会产生ADE效应，此前全球只有路德社多次提醒该病毒会产生ADE效应（简单理解：新冠肺炎患者接种疫苗后，更易出现二次感染和更严重的临床症状）。该疫苗临床研究未针对ADE效应开展研究，其临床研究终点只观察患者接种后短期的有效性和安全性。
 
-永远忠诚！
+易博士透露重磅信息：FDA跟美国生物制药公司再生元（Regeneron）沟通抗体治疗时，建议他们对治疗药物的安全性要跟踪观察两年，FDA对疫苗研发企业建议要对新冠疫苗安全性追踪5-10年或更长时间。欧洲相关机构也要求疫苗研发企业要多年追踪疫苗安全性，这就是新冠病毒ADE效应导致的。易博士及多位该领域研究人员都表态：由于对新冠病毒ADE效应研究尚未取得突破性进展，至少在2021年底不会有新冠疫苗上市。
 
-[阅读白宫原文](https://www.whitehouse.gov/briefings-statements/presidential-message-245th-birthday-united-states-marine-corps/)
+编者点评：我们需要知道的是，这次辉瑞还尚未公开完整的三期临床数据，90%的有效防护率是由外部独立数据监测委员会对其三期试验进行首次中期分析得来的，说人话意思就是这个90%有效防护性是有其他公司分析得出的，也就是第三方数据监控机构分析得出来的，并不是这家制造新冠疫苗的公司辉瑞发布的。
 
-翻译：【重生】 编辑：【Isaiah4031】
+而本次所谓的中期分析是指，辉瑞评估了受试者中94个新冠确诊病例后发现，只有不到10%（9个）的感染病例是接种疫苗的受试者，超过90%（85个）病例来自于安慰剂组，从而得到该候选疫苗可以有效阻止90%新冠病毒感染的结论，这一说法存在一定的问题，实际上，这一中期分析只能证明，BNT162b2 让接种者避免成为有症状感染者的有效率为90%，但并不足以证明能有效阻断新冠病毒传播，尤其是由无症状感染者造成的传播（说人话意思是尽管我们接种了辉瑞的疫苗，但是我们还是有可能成为无症状感染者，还是有继续传播病毒的可能，也就是只能预防那些能成为有症状的新冠病毒感染者，不能预防那些成为无症状的新冠病毒感染者，总之言，这个疫苗还不完全，还没有真正的研制成功，可以预防所有的新冠病毒毒株，也是到目前为止，世界上还没有一款真正意义上的新冠疫苗，其中最重要的一环就是三期的临床试验需要足够多的试验体，还有有足够长的时间来观察是否有副作用或者说有严重的副作用）。
 
-战友之家玫瑰园小队出品
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01145114/GNEWS-GTV-VOG.png)
-0
+更何况，这项新冠疫苗的研究还存在很多未知数，一方面，辉瑞虽然强调全球受试者中约有三分之一具备不同种族和背景，但并未透露该疫苗对不同年龄段及特殊人群的保护作用是否存在区别，例如儿童、孕妇、免疫力低下的人群和老年人。”
+
+另一方面，关于之前患有新冠病毒的人是否会因该疫苗免于再次感染、保护的有效期能有多久，是一个月、两个月、半年，还是一年、甚至终生，目前数据均不能给出答案，这个也是易博士跟我们提到当前科学界ADE效应开展研究，即使开展研究，也是需要很长一段时间跟踪研究副作用。
+
+尤其是此前世界上并没有以mRNA技术开发的疫苗上市，辉瑞的候选疫苗缺乏安全性与保护时效的有力参照，接下来很可能需要更长时间的试验来确定其效果，其完成的试验数据及结果也需要经过同行评议才行。
+
+辉瑞这款疫苗需要在约零下60摄氏度左右的环境中运输及储存，一旦离开超级冷库很容易出现变质失效的后果。要把疫苗真正送到大众手中，辉瑞不得不考虑另一个问题——物流，即便辉瑞曾表示，他们已经开发了一种特殊设计、温度可控的运输包装，但如果送出后，或者运送10天内尚未到达目的地呢？更何况，辉瑞的疫苗需要患者间隔28天注射两次，也会让情况变得更为复杂，要知道，零下60摄氏度的温度相当于家用冰箱四倍的冷度，并非每个国家的每个疫苗接种点都有这样的冷链储存能力，因此，几千万剂的运输和储存尚且是个挑战，遑论超过十亿剂。
+
+**最后引用郭先生盖特的话“疫苗不管用，这就是整个黑暗势力控制，千万不要相信那个疫苗。” 况且易博士跟我们爆料了很多重要的信息，就这个ADE效应现在都没有开展研究，就不要谈什么疫苗，现在谈疫苗都是瞎扯淡，况且这个总统大选阶段才出现这个疫苗消息，而且这家瑞辉公司表示跟川普总统无关，是为打川普总统的脸，替拜登站台的，可见这个疫苗就如同郭先生说的被黑暗势力控制着。**
+
+原文链接
+
+[https://gnews.org/zh-hans/545133/](https://gnews.org/zh-hans/545133/) 11/10/2020郭先生盖特：辉瑞疫苗是否管用？
+
+[http://www.guancha.cn/internation/2020\_11\_11\_571105.shtml](http://www.guancha.cn/internation/2020_11_11_571105.shtml)
+
+[https://youtu.be/eaAkzcD6GCU](https://youtu.be/eaAkzcD6GCU) 路德时评 视频最后 1:14:50 易博士谈辉瑞疫苗
+
+[https://cn.wsj.com/articles/%E8%BE%89%E7%91%9E%E5%8F%8Abiontech%E7%A0%94%E5%8F%91%E7%9A%84%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E6%95%88%E6%9E%9C%E5%A5%BD%E4%BA%8E%E9%A2%84%E6%9C%9F-11604964315](https://cn.wsj.com/articles/%E8%BE%89%E7%91%9E%E5%8F%8Abiontech%E7%A0%94%E5%8F%91%E7%9A%84%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E6%95%88%E6%9E%9C%E5%A5%BD%E4%BA%8E%E9%A2%84%E6%9C%9F-11604964315)
+
+1+

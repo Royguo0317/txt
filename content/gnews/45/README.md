@@ -1,30 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 辉瑞公司首席执行官对其公司研发的COVID疫苗没信心，在疫苗公告后出售其名下62％的股份趁机敛财
-` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/548872/)
+## 重大发现：数万宾夕法尼亚州选票的返回日期早于发出日期
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/549068/)
 
-翻译：为子孙爱七哥农场 文火，紫丁香；校正：为子孙爱七哥农场 虹陵
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11223358/CDB1E870-C030-4AF1-8E23-8D23FCCF5E6D.jpeg)
-周一，辉瑞股价大涨16%，此前该公司的COVID-19疫苗在初步实验结果中显示出90%的有效性。然而在周二，根据美国证券交易委员会的文件，辉瑞公司首席执行官阿尔伯特.布尔拉(Albert Bourla)出售了他名下的62%的辉瑞股票。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11153723/pfizer_cn-1.png)
-美国证券交易委员会4号文件显示，布尔拉以每股41.94美元的平均价格售出132,508股，相当于560万美元–几乎卖出52周以来的最高价。
+*多伦多加喜农场 文𤦍(Manpui)*
 
-布尔拉的股票出售是根据美国证券交易委员会制定的10b5-1条例进行的，该条例允许公司内部人员在预定的时间出售预定数量的股票。辉瑞发言人告诉阿克塞斯（Axios），首席执行官的预定交易计划是在8月份拟定的。
+*校对 文锦 上传 WJ*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11183840/99239-pennsylvania-is-a-mess-tens-of-thousands-of-pennsylvania-ballots-were-returned-before-they-were-sent-out-780x470-1.jpg)图片来源：newsla.localad.com
+根据大纪元11月10日报道，研究人员对宾州选民数据库的分析，该州超过20,000张缺席选票的返回日期是不可能的，另有超过80,000万张的返回日期引发了质疑。
 
-同样生产COVID-19疫苗的摩登拿（Moderna）等其他制药公司，也在夏天围绕疫苗新闻经历了类似的内部人员股票抛售–内部人员抛售了数千万美元的股票。 尽管根据10b5-1条例，出售完全合法，避免了内幕交易的指控，但对于布尔拉来说，并不光彩，他仍然在新闻日设法在52周的最高点售出了手中的股票。人们可以说，他不可能提前几个月就知道疫苗试验的结果。尽管所有这些都是在美国关键的大选后几天才公布的，仍不知道大选是否是触发因素。
+在发出选票后的第二天，就收回超过51,000张被标记为返回的选票，鉴于美国邮政服务（USPS）的交付时间，这是极快的速度，而在发出选票的同一天，就返回了近35,000张选票。 另超过23,000张的返回日期早于发出日期。 超过9,000张选票没有发出日期。
 
-在10b5-1条例的掩护下，一些医药公司的企业内部人士已经在通过抛售股票来跑路了。当然，当你知道只要发布新闻就可以推高股价时，就更容易做出预先计划来出售股票。
+川普竞选活动团队指称，民主党无效的选票被计算了，而共和党的有效选票则被扔掉了。这显示出用虚假手段获得选票的前副总统乔.拜登不再尊重选民，宾夕法尼亚州选民应正视其结果，使造假者受到审查！
 
-（原文和图片摘自[https://www.zerohedge.com/markets/pfizers-ceo-dumps-60-his-stock-covid-vaccine-announcement](https://www.zerohedge.com/markets/pfizers-ceo-dumps-60-his-stock-covid-vaccine-announcement)）
+另据研究人员分析的数据，至少有31名看上去比该州已知的最老者年龄更大的人返回了选票。 根据该州的数据，他们全都出生于1900年至1907年之间。（死者也爱上乔·拜 登了）该州知名最老的人是113岁的Ardith Grose。
 
-**更多精彩资讯请关注：**
+大约有20位选民是用了1900年1月1日为出生日期。这一日期与密歇根州的一项指控相对应。民意调查员说，他看到工作人员在盘点邮寄选票的同时将他们添加到选民登记册中， 担心这些选民没有正确登记，而因此有资格投票。 根据民意调查员的宣誓誓章，工作人员输入的姓名带有虚假的出生日期，例如1900年1月1日。
 
-- [为子孙爱七哥农场官方推特](https://twitter.com/wzsaqg)
-- [为子孙爱七哥农场官方GTV号](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
-- [欢迎加入农场discord官方群](https://discord.gg/2vXAV6G)
+对宾夕法尼亚州数据的另一分析显示，年龄极高的选民大多是注册的民主党人。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20123101/%E5%86%9C%E5%9C%BA%E5%B9%BF%E5%91%8Av7-3.jpg)
+真是骇人听闻啊！一人一票的美国选举如今民主党派想用各种虚假手段作假，美国人真的同意吗？
 
+原文链接：
+
+[Tens of Thousands of Pennsylvania Ballots Returned Earlier Than Sent Date: Researcher](https://www.theepochtimes.com/pennsylvania-100000-ballots-with-implausible-return-dates_3572942.html/)
 
 0

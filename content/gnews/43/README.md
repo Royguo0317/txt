@@ -1,52 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普在密歇根州申请紧急禁令 要求重新清点有故障的Dominion机器的计票
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/548939/)
+## 川普总统美国海军陆战队245周年致辞
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/549141/)
 
-*多伦多加喜农场 Spirit
-校对 文锦 上传 WJ*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11160733/Ballot.jpg)图片来源：News of America
-川普竞选团队在联邦诉讼中申请了一项紧急禁令，旨在阻止密歇根州认证上周的选举结果，要求选举官员能够证明只有合法投下的、按时投下的、合法观察到的选票才被纳入统计。竞选活动指控了几种类型的舞弊、不当行为和无效选票，原因有很多–包括Dominion Voting Systems公司制造的计票机出现 “故障”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11191119/WH_20201110_Marine_Corps-photo.jpg)图片来源：[https://www.whitehouse.gov/wp-content/uploads/2020/11/32876361654\_d1bec5b46e\_o-1024×576.jpg](https://www.whitehouse.gov/wp-content/uploads/2020/11/32876361654_d1bec5b46e_o-1024x576.jpg)
+**Presidential Message on the 245th Birthday of the United States Marine Corps**
 
-周二晚间提交给美国密歇根州西区地方法院的文件指控，选举官员阻止共和党观察员监督计票，多次扫描 “同一批次的选票”，非法接受和预先确定迟到的选票，包括来自不受监控的投递箱，以及选举工作人员非法重复选票，”根据竞选活动的声明，诉讼要求法院移除所有未被共和党观察员观察到的选票，他们监督选票的处理和计算过程的工作是有意义的。
+**美国海军陆战队245周年总统致辞**
 
-申诉中包括 “一百多名有资质的选举质疑者”，他们提供了 “宣誓书”，证明他们被阻止审查选票计数，或验证缺席选票的合法性。密歇根州州务卿Jocelyn Benson在诉讼中被指责没有遵守州选举法,导致欺诈破坏了2020年大选。
+November 10, 2020
 
-**共和党的质疑者受到了阻挠和恐吓**
+2020年11月10日
 
-许多质疑者作证说 他们查看选票处理和计票时被选举官员有意地阻挠。至少有三名挑戰者說，他们被选举官員推推离票桌，距离太远，无法观察点票情況。离开计票中心的共和党质疑者不被允许返回，而民主党人则可以，导致 “更多的民主党观察员被允许观察缺席选民选票的处理和计算”。
+As Commander in Chief, I proudly join our Nation in wishing the United States Marine Corps a happy 245th birthday.
 
-“许多质疑者作证说，他们在选票处理和计票过程中受到选举官员的恐吓、威胁和骚扰。
-作为参考，这里有一段视频，在底特律计票中心统计缺席选票时，人们欢呼雀跃，因为共和党的观察者被赶出了计票中心。
+作为总司令，我自豪地和我们的国家一同祝美国海军陆战队245岁生日快乐。
 
-**多批选票多次重复计票**
+Officially established by the Second Continental Congress on November 10, 1775, the Marine Corps has protected our sovereignty in the air, on land, and at sea. Our Marines have led the charge for freedom and justice in defense of our constitutional republic and its founding principles.
 
-多名共和党质疑者证实 “一批批的选票在计票机上被反复计算” 其中一名质疑者说她观察到 “一叠大约50张选票被多次送入计票机” 另一名质疑者称，他们 “观察到一个站点的选举工作人员正在处理扫描后的选票，这些选票存在问题，需要人工纠正”，并补充说，”我相信其中一些工作人员正在改变投给唐纳德-川普和其他共和党候选人的选票”。
+海军陆战队于1775年11月10日在第二次大陆会议上正式成立，它保护了我们空中、陆地和海上的主权。我们的海军陆战队捍卫了我们宪政共和国及其建国原则，为自由和正义冲锋陷阵。
 
-根据申诉书，当质疑者确实提出选票的问题被忽视和无视，其中一个人声称 “投给川普的选票与其他选票分开”，当他们对与信封不符的选票号码提出质疑时，他们 “被选举官员无视和忽视”，这些选票照样被处理和计算。
+Since they first shed blood for the cause of freedom during the Revolutionary War, Marines, true to their creed, have never wavered in their faithfulness. The distinct scarlet and gold Battle Colors of the United States Marine Corps symbolize its history of both unmatched prowess on the battlefield and solemn sacrifice in service to our Nation. Every brave man and woman who dons the Marine Corps uniform carries this legacy forward.
 
-“申请书还称，无法用机器读取的选票在质疑者的视野之外被非法复制，而且不是由两党的选举检查员监督下进行的。
+自从他们在独立战争中首次为自由事业流血牺牲以来，海军陆战队始终忠于自己的信条，从未动摇过他们的忠诚。美国海军陆战队独特的鲜红色和金色的战斗颜色象征着它在战场上无与伦比的威力和为国家作出庄严牺牲的历史。穿上海军陆战队制服的每个勇敢的男士和女士都将这一遗产发扬光大。
 
-**有问题的制表软件**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11161138/voting.jpg)Dominion Voting logo (PRNewsfoto/Dominion Voting Systems)
-诉讼指出在密歇根州安特里姆县，Dominion投票系统公司生产的投票机 “存在缺陷”， 错误地将6000多张川普的选票投给了前副总统拜登。这个 “错误”可能影响到韦恩县使用的同一台机器，被州务卿本森归咎于一名县委书记没有更新某些 “媒体驱动器”。
+With steadfast honor, courage, and commitment, Marines have swiftly and decisively risen to the occasion to secure victory, no matter the task.  This January marks the 30th anniversary of Operation Desert Storm, in which Marines successfully carried out one of the most consequential offensive attacks in the history of modern warfare.  Throughout the Gulf War, these brave warriors never faltered, a reflection of their long-standing devotion to pressing forward until every battle is won.
 
-同时指出的还有密歇根州奥克兰县的Dominion机器错误，导致一名民主党人以104票的优势被错误地宣布为委员选举的获胜者，只是在错误被发现后，他们的席位又翻回到了合法的共和党候选人手中。
+凭藉坚定的荣誉、勇气和承诺，海军陆战队迅速而果断地挺身而出，无论任务如何，都能确保胜利。今年1月是“沙漠风暴行动”30周年纪念日，海军陆战队在这次行动中成功地开展了现代战史上最具影响的进攻性袭击之一。在整个海湾战争中，这些勇敢的战士从未动摇，这反映了他们长期致力于向前推进，直到赢得每一场战斗。
 
-“这些选票制表机存在故障，根据MCL 168.831-168.839，需要在受影响的选区进行 “特别选举”，文件中写道。
+Today, as we celebrate the men and women who valiantly defend our country as United States Marines, we also honor our heroic Marine veterans, and we solemnly remember those Marines who made the ultimate sacrifice in defense of our freedom.  We will always cherish and honor their memory.
 
-**逾期的缺席选票**
+今天，当我们赞誉勇敢保卫我们国家的美国海军陆战队的男女官兵时，我们也向英勇的海军退伍军人致敬，我们庄严地纪念那些为捍卫我们的自由而做出最后牺牲的海军陆战队军人。我们将永远珍惜和纪念他们。
 
-申诉书还指控选票日期逾期，律师和共和党质疑者杰西卡-康纳恩说，一名投票站工作人员说 “他们被告知更改选票上的日期，以反映出选票是在较早的日期收到的“。康纳恩提供了一张投票工作人员递给她的纸条照片，作为他们被指示更改日期的证据，以便在选举日晚上8点后收到的缺席选票将被计算在内。
+The First Lady and I send our thoughts and prayers to all members of our Armed Forces and their families. May God bless the Marine Corps, and may He continue to bless the United States of America.
 
-川普竞选团队还表示，选票被存放在偏远的无人看管的投递箱中，这些投递箱 “本质上相当于一个人可以存放选票的投票站”，但 “没有验证在投递箱中存放选票的人是一个有资格投票或合法交付合法选民所投选票的人”。申诉书称，根据密歇根州的法律，远程投票箱 “必须使用视频监控该投票箱，以确保有效”。
+第一夫人和我向我们所有的军人和他们的家人送上我们的思念和祈祷。愿上帝保佑海军陆战队，愿他继续保佑美利坚合众国。
 
-现在我们等着看100多份宣誓书和川普竞选律师托尔-赫恩是否能够说服密歇根州的法官停止认证乔-拜登胜出该州。
+Semper Fidelis!
 
-与此同时，在费城和其他城市同样的把戏在上演，这次民主党的作假行为让广大民众看到真相后，拜登按照正常合法计票不能当选总统，民主党的声誉扫地，估计需要长时间才能挽回。
+永远忠诚！
 
-参考链接：
-[Trump Files Emergency Injunction In Michigan Alleging Fraud; Demands Recounts Over ‘Malfunctioning’ Dominion Machines](https://www.zerohedge.com/political/trump-files-emergency-injunction-michigan-demands-recount-over-fraud-malfunctioning)
+[阅读白宫原文](https://www.whitehouse.gov/briefings-statements/presidential-message-245th-birthday-united-states-marine-corps/)
 
+翻译：【重生】 编辑：【Isaiah4031】
+
+战友之家玫瑰园小队出品
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01145114/GNEWS-GTV-VOG.png)
 0

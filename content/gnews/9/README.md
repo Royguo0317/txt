@@ -1,28 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 投票软件公司爆料人站出来，声称他们的软件改变了3800万张选票&#8211;窃取了选举
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/549727/)
+## 【军事快讯】P-1反潜机亮相，日军反潜能力大增
+` HAIKUOTIANKONG` [轉載自GNews](https://gnews.org/zh-hans/549880/)
 
-![Georgia receives bids for $150 million voting system](https://www.ajc.com/resizer/gFzwDmx0E4w0CmtpeONLKkYcSv8=/1066x600/cloudfront-us-east-1.images.arcpublishing.com/ajc/K53XPA2QFDNWYD5F5VDZJGLDKU.jpg)
-翻译：康州农场-郑彬
+内军事：鹰(文言) 素材：文朝汗（部落） 校对：雅典娜的圣斗士(沙加)
 
-校对：康州农场-MikeLi
+环球网11月12日转载“防务博客”网站11日报道，日本海上自卫队当天公开了其5架最新国产P-1反潜机。
 
-审核：康州农场-Truemanman
+P-1反潜机于2007年9月首飞，最大起飞重量达79.7吨，是世界上飞行性能最好的巡逻机，最大速度可达996km/h，最大航程可达8000km，实用升限达到13520米，配备HPS-106主动电子扫描相控阵雷达（可提供360度覆盖，可在高空发现潜艇潜望镜），多基阵声纳（可探测大深度目标），HQA-7型音响处理装置（具备很好的应对静音潜艇能力，有助于应对中共商级、元级潜艇），其多雷达警报接收器更可全方位感知来袭导弹威胁，并自动防御。
 
-投票软件公司 “Dominion “的三名员工（其产品在近期选举过程中在美国多个州被广泛使用。）已经站出来，并揭发了其公司通过投票软件进行的公然的选举欺骗行为。
+除先进的反潜反舰探测外，其战斗力也得到了很大提升：可携带9吨左右的炸弹，机腹内8个弹仓，外挂12个载点，携带AGM-84鱼叉反舰弹（射程约220-315km）、ASM-1C九一式反舰弹、AGM-65小牛空地弹（射程约48km）、MK 46鱼雷（最大射程11km）、水雷深水炸弹等反潜反舰武器。
 
-他们证词的关键：软件调换了或直接删除了3800万张选票。
+美制P-3C空重35吨，最大起飞重量61.4吨，最大速度750km/h，实用升限10400米，搭载9吨水雷等炸弹，并携带MK 6鱼雷、AGM-84鱼叉反舰弹、AGM-65小牛空地弹。与之对比，中共的运8反潜巡逻机，有效载荷20吨，巡航速度600km/h，满油航程4500km，实用升限8000米，机身雷达可实现360度对海搜索，机身下方的光电吊舱可用于对海的红外探测，机身未设武器挂件，可携带鹰击-83反舰弹（射程120-150km）。
 
-根据情报部门的消息，通过Dominion软件调换选票是民主党选择的第一件武器。邮寄选票是他们的第二件武器。这就是为什么他们暂停了选举当晚的所有计票工作，因为软件没有给他们带来预期的结果， 于是他们在凌晨4点钟让货车送来整车的预先填好的选票。
+运8反潜巡逻机在飞行性能和侦测能力上较美P-3C反潜机有差距，而P-1反潜机相比P-3C在速度、航程以及侦测静音潜艇等方面又有较大提升，所以运8反潜机和P-1之间的性能和战力差距更大。而随着P-1反潜机的入列，日军在其周边海域的反潜能力无疑会得到极大提升，与此同时对中共前出潜艇的包围和钳制也将更加激烈。
 
-总统的私人律师鲁迪-朱利安尼说，三名爆料人已经站出来，愿意宣誓作证，说明到底发生了什么。
-![Giuliani Says Dominion Voting Software Whistleblowers Soon To Reveal Mass  Election Fraud – \[your\]NEWS](https://yournews.com/wp-content/uploads/2020/11/Screen-Shot-2020-11-11-at-12.24.56-PM-1024x577.png?x98855)
-我们即将看到的是美国历史上最大的丑闻的证据：企图窃取总统职位，并使数以百万计的公民选票作废的犯罪行为。
-
-原文链接：
-
-[https://halturnerradioshow.com/index.php/en/news-page/news-nation/voting-software-company-whistleblowers-come-forward-claim-their-software-changed-38-million-votes-stole-election](https://halturnerradioshow.com/index.php/en/news-page/news-nation/voting-software-company-whistleblowers-come-forward-claim-their-software-changed-38-million-votes-stole-election)
+新闻来源：
+[https://mil.huanqiu.com/article/40fNyxeXSPs](https://mil.huanqiu.com/article/40fNyxeXSPs)
 
 0

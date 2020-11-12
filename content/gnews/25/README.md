@@ -1,45 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德社精选】11/8/2020 晚间节目
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/548274/)
+## 辉瑞首席执行官在中共病毒疫苗消息公布后将其62％股份售出
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/549409/)
 
-听写：坤哥 校对:瓦者 简介：恩真 文宣图：艾伦 出品：首尔喜韩农场
+*多倫多加喜農場 文来
+校对 文锦 上传 WJ*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11214255/saupload_pfizer-inc-logo-scaled.jpg)
+据Zerohedge 11月11日报道，辉瑞（Pfizer）公司在11月9日周一宣布它的中共病毒疫苗初步实验结果显示有90％的有效性之后，其股价飙升16％。然而周二辉瑞公司首席执行官阿尔伯特·布尔拉（Bourla）马上出售了个人62％的股票。他的这一行为非常令人费解和怀疑。
 
-简介：
+根据证券交易委员会的文件显示，布尔拉出售132,508股，平均每股价格为41.94美元，折合560万美元，几乎创下52周新高。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11214611/2020-11-11_07-17-34.png)图片来源：Zerohedge
+布尔拉的出售是根据证券交易委员会制定的第10b5-1条进行的，该法令允许公司内部人员在预定时间出售预定数量的股票。辉瑞公司的一位发言人告诉记者，首席执行官的预定交易计划是在8月制定的。而疫苗的消息在美国大选之后几天才公布，这绝对不是巧合。
 
-1.各州法律行动将让大选反转。
+其他制药公司，例如也生产中共病毒疫苗的Moderna，在夏季围绕疫苗新闻发布了类似的内部人销售记录，内部人倾销了数千万美元的股票。在细则10b5-1的掩盖下，一些制药公司的内部人员已经通过抛售股票来争相退出， 因为他们已经预感到自己的产品前景堪忧。
 
-2.选票作假是刑事犯罪。
+评论：今年1月19日，科学家闫丽梦博士冒着生命危险，向全世界传递中共病毒的真相。她陆续发表了两篇科学报告，用大量科学的证据证明中共病毒是来至中国武汉实验室的超限生化武器。由于病毒的基因序列有很多种类，短期之内任何疫苗都是无效的。闫博士和很多医生用充分的临床数据证实羟氯喹搭配锌可以预防病毒的感染，且是目前唯一安全有效的药物。但是以福奇为首的医学界人士和一些医药巨头为了个人的政治野心和经济利益，极力阻挠羟氯喹的使用，从而造成全球更多的人感染中共病毒。现在他们又借用无效的疫苗上市来骗取老百姓的钱财。这些黑心之人的手上沾满了鲜血，真心希望他们最终会遭到上天的惩罚。
 
-3.大选造假非常明显川普翻盘很容易。
+参考链接：
+[Pfizer’s CEO Dumps 62% Of His Stock On COVID Vaccine Announcement](https://www.zerohedge.com/markets/pfizers-ceo-dumps-60-his-stock-covid-vaccine-announcement)
 
-4.川普没有退路只能灭共。
+相关新闻：
+[郭先生11.11：病毒是武器,辉瑞研发中心在中国别信它的疫苗](https://gnews.org/zh-hans/549339/)
 
-5.大选时中共把蓝金黄都放了出来。
+[辉瑞葫芦里卖的什么疫苗？](https://gnews.org/zh-hans/545279/)
 
-6.现在是社会主义与自由民主法治的决战。
-
-7.川普总统彻底看清必须灭共。
-
-8.这次大选如果被窃取未来都不会有公正的大选。
-
-9.如果拜登当选一定会默认中共打台湾。
-
-10.不管怎样新中国联邦始终和台湾人民在一起。
-
-11.我们要坚定的和川普总统在一起。
-
-12.爆料革命走在历史前面影响世界。
-
-13.美国民众忍受不了选票造假。
-
-14.如果更多州翻盘中共会做出刺激性反应。
-
-15.亚利桑那州计票软件修复后选情反转。
-
-文宣图：
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105347/1-50.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105431/2-80.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105314/3-53.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105340/4-28.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105339/5-26.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11111028/6-29.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11111109/7-16.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112456/8-16.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112517/9-12.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112517/10-11.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112839/11-11.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112848/12-3.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11211826/13-6.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11211827/14-3.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11211841/15-7.png)
-
+[辉瑞疫苗真的有效吗？路德社易博士爆料至少2021年底不会有疫苗上市！](https://gnews.org/zh-hans/549193/)
 
 0
