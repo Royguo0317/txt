@@ -1,41 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 关于Dominion选票系统公司身后的Smartmatic
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/550304/)
+## 民主党和主流媒体再次制造谎言，声称美国邮政署的告密者撤回欺诈指控
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/550779/)
 
-作者：NewZealandOldShen
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12072455/2-89.png)
+**《**纽约邮报**》**（New York Post）11月11日报道，国会民主党人和美国一家大报社宣称，宾夕法尼亚州的一名邮政工作人员已经撤回了他关于在选票中篡改邮件的指控，现在此人否认了上述谣言，强调自己没有撤回指控的言论。
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12035255/Capture-11.png)
+在周二晚间发布的一段视频中，美国邮政服务人员理查德-霍普金斯（Richard Hopkins）是宾夕法尼亚州的工作人员，他在与当局交谈时否认收回自己的声明。
 
-Dominion投票系统造假的事情近日热度居高不下，更是有Dominion[内部工作人员带着宣誓书](https://twitter.com/RealAmVoice/status/1326704136323272709)愿意为朱利安尼市长爆料，在等待更多线索出现的时候我们就稍微挖一下这家Dominion公司。
+“我在这里要说的是，我没有收回我的声明，事实并非如此。”32岁的霍普金斯说。
 
-立刻进入整体，在[维基百科](https://en.wikipedia.org/wiki/Dominion_Voting_Systems)上可以看到Dominion是有两家子公司的，分别是Premier Election Solutions和Sequoia Voting Systems。
+就在几个小时前，众议院监督委员会的民主党人在一系列推特上写道，美国邮政监察长办公室的调查人员告诉工作人员，霍普金斯在周一的一次采访中收回了他的指控。据该委员会称，霍普金斯 “没有解释为什么他签署了一份虚假的宣誓书”。
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12035419/Capture-12.png)
+同一天，《华盛顿邮报》(the Washington Post)报道称，霍普金斯已向调查人员承认，他的指控是编造的，并引述了三位了解调查情况的人士的话。
 
-其中这家Sequoia Voting Systems，进入其[页面](https://en.wikipedia.org/wiki/Sequoia_Voting_Systems)后会发现它曾在2005被一家叫做Smartmatic的公司收购。在2007年它曾美国的外国投资委员会判决其出售Sequoia，随后Smartmatic出售给自己家的一个高层执行人员Jack Blaine，本质是相当于左手倒右手了一番。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12035531/Capture-13.png)
-为什么要提Smartmatic呢？
+川普总统在推特上发表评论，称这名邮政工人是“勇敢的爱国者”。他在推特上发布了霍普金斯的视频，称他没有撤回声明。”越来越多的人站出来揭露这场被操纵的选举！”第45任总统写道。
 
-首先是Smartmatic的老板，[Mark Malloch-Brown](https://en.wikipedia.org/wiki/Mark_Malloch_Brown,_Baron_Malloch-Brown#cite_note-52)，此人能量大到出乎想象，曾在安南下任联合国二把手，英国议会成员，世界银行副主席，并且和索罗斯有着千丝万缕的联系，他曾任索罗斯波斯尼亚咨询委员会成员，[在纽约从事联合国工作时租用索罗斯的公寓](https://www.nysun.com/foreign/annan-deputy-is-a-soros-tenant/15593/)，并且是索罗斯的基金管理公司的副主席。
+上周六，参议员林赛-格雷厄姆(Lindsey Graham)呼吁司法部调查一份宣誓书，在宾夕法尼亚州伊利工作的霍普金斯说，他的主管们计划根据宾夕法尼亚州法律，将太晚邮寄的选票改期，以便进行统计。
 
-他的照片和经历曾被放于Smartmatic的首要位置，[如今已被撤下不见。](https://www.smartmatic.com/us/about/leadership/detail/lord-mark-malloch-brown/)
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12035628/Capture-14.png)
-而Dominion这次的造假问题，其中有一部分被归结于中国制造上，早在2019年包括左媒在内的多家媒体曾表达过[Dominion的部件来自中国的担忧](https://www.nbcnews.com/news/all/chinese-parts-hidden-ownership-growing-scrutiny-inside-america-s-biggest-n1104516)，巧合的是，就在Smartmatic的官网上，曾经就其未能及时向菲律宾交付投票机器作出了如下解释
+霍普金斯的指控首先由保守派活动组织的项目Project Veritas报道，并被列入了星期一由川普竞选团队提起的联邦诉讼中。该诉讼称，宾州州政府官员创建了 “非法的’双层’投票系统”，不公平地偏袒邮寄选票，并 “鼓励选票欺诈或篡改”。
 
-[“因为一些因素，诸如航运条件和高昂运费，导致了过去从中国苏州运出的一些机器的送货延误”](https://www.smartmatic.com/media/article/gma-newstv-smartmatic-completes-delivery-of-poll-machines/)
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12035733/Capture-15.png)//显示其苏州运出的机器被延误
-同样在2009年12月31日，Smartmatic在其[官网表示](https://www.smartmatic.com/media/article/the-philstar-full-delivery-of-poll-machines-vowed/)3200台投票机已经从苏州出货。
+在霍普金斯撤回证词的消息最初被报道后，川普竞选团队发言人蒂姆·莫塔夫(Tim Murtaugh)也发表了看法，称霍普金斯“提交了一份非常详细的宣誓书”。他点出了人名。他明确地描述了他的经历。”
 
-另外Smartmatic曾负责处理多个国家的电子计票其中就包括大家都熟悉的委内瑞拉，2017年，[委内瑞拉爆出选举结果造假](https://www.rti.org.tw/news/view/id/360548)，当时所使用的计票系统就是Smartmatic。有趣的是Smartmatic本身也是在委内瑞拉创办的，被人指出与查韦斯关系密切。
+莫塔夫还表示，霍普金斯的撤诉可能并非完全出于自愿。”今天早些时候，我们看到我们自己的律师被骚扰，有时在使用推特情况下被doxxed（泄露个人信息），这些律师们正在通过法律途径保障总统竞选的公正性，争取以合法的选票重新计票，”他说。”所以我们不知道这位公民受到了什么样的压力。”
 
-另外菲律宾败选的候选人也指控Smartmatic的投票系统存在欺诈行为。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12035909/Capture-16.png)
-巧合不断发生，曾经在2016年的邮件门中有一封Smartmatic的工作人员Todd Macklerr曾给[Donna Brazile](https://en.wikipedia.org/wiki/Donna_Brazile)和[John Podesta](https://en.wikipedia.org/wiki/John_Podesta)写信，被维基解密爆出后其中描述了“这周之后我会就预先设计好的机器见索罗斯”。其中Donna曾任美国民主党委员会主席，Podesta曾在克林顿期间担任幕僚长。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12040010/Capture-17.png)
-另外，Dominion的这套系统亦是克林顿基金下[DELIAN计划](https://www.clintonfoundation.org/clinton-global-initiative/commitments/delian-project-democracy-through-technology)的一环，通过技术来掌握民主。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12040052/Capture-18.png)
-班农先生曾经说过，“不要相信阴谋论，也不要相信巧合”，这些细碎的证据最后都指向了西方左派的索罗斯，克林顿基金，这些全球精英主义分子还有CCP，他们多少年来用高科技手段来控制着其他国家的虚幻的民主，而对于中国他们则连民主的梦想都不会分享给我们，他们几乎控制了一切，我们别无选择只有战斗。
+在“伊利邮政时报”（Erie Post-Times）看到的一篇Facebook帖子中，伊利邮政局长罗伯-韦森巴赫（Rob Weisenbach)否认了霍普金斯的指控，称其为“100%的错误”，并将霍普金斯描述为“最近多次受到纪律处分的员工”。“伊利邮局没有修改任何选票的日期，”韦森巴赫写道。
+
+评论：
+
+这篇文章的后半部分是《华盛顿邮报》编造的谣言，无中生有的声称霍普金斯收回指控，并引出川普竞选团队发言人蒂姆·莫塔夫的一段话。现在的左翼主流媒体早已忘记新闻媒体的职业操守，为了欺骗不明真相的读者，可以随心所欲的编写任何“故事”。
+
+正好，霍普金斯周二晚间在Twitter上发布了一段视频，他说：“此时此刻，我正在看《华盛顿邮报》的一篇文章。它捏造说我收回对选票的指控，”“我在这里要说的是，我没有收回我的声明。事实并非如此。”
+
+[原文链接](https://nypost.com/2020/11/11/usps-whistleblower-denies-wapo-claim-he-recanted-allegations/)
+
+翻译报道: Alton
 
 0

@@ -1,18 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 致敬！那些蒙面人
-` JP007` [轉載自GNews](https://gnews.org/zh-hans/550761/)
+## 《酒灭中共》全球首发！郭文贵先生最新单曲荣登iTunes音乐平台多个国家榜单第一,再创全球音乐史奇迹🎉
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/550753/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12072230/%E8%87%B4%E6%95%AC%EF%BC%81%E9%82%A3%E4%BA%9B%E8%92%99%E9%9D%A2%E4%BA%BA.png)
-**作者：日本京都富士会 待命（文晓）**
+2020年11月12日（EST），郭文贵先生最新灭共单曲《酒灭中共》（“Drinking Down The CCP”）首次在iTunes上线可供下载。这首歌由郭文贵先生主创，G Music音乐团队联合制作，在短短十几个小时内就已登上iTunes音乐平台多个国家的榜单前列，再创全球音乐史奇迹。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12075204/Screen-Shot-2020-11-12-at-10.51.39-pm.png)
+## **香港 iTunes排名第一**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12072522/Screen-Shot-2020-11-12-at-10.24.57-pm.png)2020年11月12日 @7am（EST）的排名截图
+## **澳门 iTunes排名第一**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12072713/Screen-Shot-2020-11-12-at-10.26.41-pm.png)2020年11月12日 @7am（EST）的排名截图
+## **新西兰 iTunes排名第一**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12073444/Screen-Shot-2020-11-12-at-10.34.18-pm.png)2020年11月12日 @7am（EST）的排名截图
+## **匈牙利 iTunes排名第二**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12073320/Screen-Shot-2020-11-12-at-10.33.00-pm.png)2020年11月12日 @7am（EST）的排名截图
+## **新加坡 iTunes排名第二**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12073606/Screen-Shot-2020-11-12-at-10.35.34-pm.png)2020年11月12日 @7am（EST）的排名截图
+## **阿联酋 iTunes排名第二**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12073654/Screen-Shot-2020-11-12-at-10.36.32-pm.png)2020年11月12日 @7am（EST）的排名截图
+## **台湾 iTunes排名第二**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12073802/Screen-Shot-2020-11-12-at-10.37.47-pm.png)2020年11月12日 @7am（EST）的排名截图
+## **澳大利亚 iTunes排名第三**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12074636/Screen-Shot-2020-11-12-at-10.45.49-pm.png)2020年11月12日 @7:30am（EST）的排名截图
+## **苹果音乐🎵下载：**
 
-何时起，蒙面人已不再是影视剧的专利，世界各地的大街小巷、社交媒体，出现了越来越多的蒙面人。是什么，让他（她）们不得不蒙面行走？是什么，使他（她）们不得不蒙面发声？
-
-观其行，他（她）们坐如钟、站如松、行如风。他（她）们不惧酷暑严冬，走街窜巷传递光明。他（她）们为了同一个信仰，呐喊着同一种声音。他（她）们互不相识，却相互拥有、相互关爱、彼此尊重。他（她）们互称战友，共树一面旗，统一战装，一致讨共。他（她）们无私无畏，说真话、揭丑恶，实乃当世另类群雄。
-
-问他（她）们是谁？他（她）们是否就是我们心中敬仰的那些济世英雄？
-
-他（她）们答曰：来自新中国联邦，还在黎明前的黑暗中，不得不蒙面前行。他（她）们已历时三年，在共同演绎一部历史巨作，叫做“爆料革命”。
-
+[https://music.apple.com/au/album/%E9%85%92%E7%81%AD%E4%B8%AD%E5%85%B1-single/1537745677](https://music.apple.com/au/album/%E9%85%92%E7%81%AD%E4%B8%AD%E5%85%B1-single/1537745677)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12074012/517f978c-126c-410a-a0d9-78080aff26c9.jpg)
 0

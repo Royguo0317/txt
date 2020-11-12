@@ -1,29 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 鲁迪·朱利安尼称在费城和匹兹堡 非法计数了650,000张选票
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/551045/)
+## 佐治亚州宣布将人工方式重新计票
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/551195/)
 
-编译：玫瑰天空
+*多伦多加喜农场 文𤦍(Manpui)
+校对 MyWay* *上传 WJ*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12092914/sdkaf.jpg)图片来源： wsj.com
+据WJ News11月11日报道，佐治亚州州务卿布拉德·拉芬斯佩格（Brad Raffensperger）周三表示，他们将采用人工方式对本次大选重新计票。
 
-### 特朗普总统的私人律师鲁迪·朱利安尼先生与2020年11月12日在接受福克斯“今晚的路易斯·多布斯”访谈时揭示了：选举违规诉讼的最新消息。
+目前民主党总统候选人乔·拜登获得该州总投票的的49.5％，比现任总统川普（得票率49.2％）的得票数多出大约14,000张，但该州部分地区的计票过程饱受质疑。
 
-特朗普总统的私人律师鲁迪·朱利安尼（Rudy Giuliani）声称，宾夕法尼亚州两个最大的城市非法计数了65万张选票。
+州官员表示由于佐治亚州还在使用有争议的Dominion 计票系统软件，至少造成一个县的计票结果延迟。该软件将川普的数千张选票翻转到拜登手中，使得民主党在密歇根州安特里姆县取得明显胜利，之后该软件受到了质疑。最终经查证后川普以56％的得票率赢得了该县的选举。
 
-他在接受Fox Business的Lou Dobbs采访时说：“我们现在最多有大约65万张选票是在费城和匹兹堡进行的非法选票。” “毫无疑问，他们是非法的。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12085435/%E6%88%AA%E5%B1%8F2020-11-13-02.49.12-1.png)
-朱利安尼补充说，共和党人观察不到“几乎没有”选票。该评论不清楚他指的是哪个特定地区。他没有提供证据支持他的主张。
+目前尚不清楚该软件是否可能影响了其他地区的选举结果，但该软件已在所有有争议的州使用，其中密歇根州的其他64个县就在使用该软件。
 
-朱利亚尼说：“在媒体上，我们没有证据表明，这是一个完全的，绝对的谎言，就像他们已经说谎多年一样。” 多布斯笑了起来。
+由于在大选后的几天内不断发现收到新的选票，最终选票结果将佐治亚州从特朗普翻转到拜登一方，因此人们对佐治亚州的选举结果提出了质疑。拉芬斯佩格表示，“由于差额如此接近，我们需要在每个县进行全面的人工重新计票，这将有助于建立信任。这次将是稽核、重算和复核的结合，这是一个艰巨的任务，但我们将与各县合作，会及时及时完成工作并得到州认证”。
 
-州长汤姆·沃尔夫（Tom Wolf）的办公室[在周一的](https://apnews.com/article/election-2020-joe-biden-donald-trump-pennsylvania-harrisburg-4ffb65405cf23356da03339b78225822)一份[声明中](https://apnews.com/article/election-2020-joe-biden-donald-trump-pennsylvania-harrisburg-4ffb65405cf23356da03339b78225822)说，允许所有各方遵守这一程序，并且“否则任何暗示都是骗人的。”
+拉芬斯佩格还保证会严肃处理所有选票违规或者选票舞弊，他说，“我的办公室将继续调查每一次非法投票事件。对于双重投票，罪犯投票，外州投票等，如果接到您的举报，我们将进行调查，每张合法选票都将被计在内。“
 
-特朗普竞选活动还表示，该州为死难者投下了大量选票，但它只列举了一些他们认为被非法计数的人。
+评论：
+随著大选舞弊丑闻的逐渐曝光，美国人民开始觉醒，越来越多的人站了出来。这一刻就像爆料革命文贵先生所言，每一个人都必须行动，站在正义的一方！
 
-宾夕法尼亚州州长办公室补充说：“宾夕法尼亚州将竭尽全力剥夺选民的权利。” “我们将保护这次选举和民主进程。宾夕法尼亚州将数一票，我们将保护每一票。”
+*参考链接：*
 
-朱利安尼在周日接受福克斯新闻采访时表示，特朗普竞选活动提起的诉讼可能会揭示整个宾夕法尼亚州多达[90万张无效选票](https://www.washingtonexaminer.com/news/rudy-giuliani-trump-campaign-has-enough-evidence-to-change-pennsylvania-election-results)。他周三没有明确表示他自己提到的费城和匹兹堡的人数是否会影响该州的数字。
-
-鲁迪·朱利安尼先生的访谈视频可以在这里观看👇👇👇：[https://www.foxbusiness.com/shows/lou-dobbs-tonight](https://www.foxbusiness.com/shows/lou-dobbs-tonight)
+[Battleground State Announces It Will Conduct a Full Recount of Presidential Votes by Hand](https://www.westernjournal.com/battleground-state-announces-will-conduct-full-recount-presidential-votes-hand/?utm_source=push&amp;utm_medium=westernjournalism&amp;utm_content=2020-11-10&amp;utm_campaign=pushtraffic)
 
 0

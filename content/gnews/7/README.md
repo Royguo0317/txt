@@ -1,168 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发独家报道：通过多米尼和其它系统，全美选举夜数据分析显示，数百万张川普总统的选票不是被改投拜登，就是被消失
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/549925/)
+## 关于Dominion选票系统公司身后的Smartmatic
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/550304/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12021531/%E6%9C%AA%E6%A0%87%E9%A2%98-4-1.jpg)
-翻译：康州农场-烟波浩淼
+作者：NewZealandOldShen
 
-校对：康州农场- Dr. X
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12035255/Capture-11.png)
 
-审核：康州农场-Truemanman
+Dominion投票系统造假的事情近日热度居高不下，更是有Dominion[内部工作人员带着宣誓书](https://twitter.com/RealAmVoice/status/1326704136323272709)愿意为朱利安尼市长爆料，在等待更多线索出现的时候我们就稍微挖一下这家Dominion公司。
 
-我们已报道了2020美国大选中的海量事件，此类事件被媒体称为系统’故障’。昨晚我们又提及了发生在威斯康星州的另一’故障’，本次’故障’一旦被修正，将消除拜登在该州的票数领先优势。今晚，我们对全美各州的可用数据进行了未经审计的分析，以搜寻系统故障及其它与总统选举票数异常的相关情况。
+立刻进入整体，在[维基百科](https://en.wikipedia.org/wiki/Dominion_Voting_Systems)上可以看到Dominion是有两家子公司的，分别是Premier Election Solutions和Sequoia Voting Systems。
 
-昨夜，威斯康星州的一个郡报道了另一个所谓的系统“故障”。证据显示，罗克郡的选票数似乎在川普总统和乔·拜登之间变更。 9,516张选票从川普总统转移到乔·拜登的名下。这19,032张票的差距在修正后将消除拜登在威斯康星州的领先优势。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12035419/Capture-12.png)
 
-在昨晚的帖子中，我们发现密歇根州、宾夕法尼亚州和佐治亚州也曾报告过类似 的”故障 “。接下来，我们将尝试获取相关问题的更多数据，以便确认这个问题可能存在的广泛度，及对此事发生的合理解释。
+其中这家Sequoia Voting Systems，进入其[页面](https://en.wikipedia.org/wiki/Sequoia_Voting_Systems)后会发现它曾在2005被一家叫做Smartmatic的公司收购。在2007年它曾美国的外国投资委员会判决其出售Sequoia，随后Smartmatic出售给自己家的一个高层执行人员Jack Blaine，本质是相当于左手倒右手了一番。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12035531/Capture-13.png)
+为什么要提Smartmatic呢？
 
-今晚，我们被吸引到了的一个互联网站上（[https://thedonald.win/p/11Q8O2wesk/happening-calling-every-pede-to-/](https://thedonald.win/p/11Q8O2wesk/happening-calling-every-pede-to-/)），因为那里有人看过我们的帖子后，决定做自己的分析。
+首先是Smartmatic的老板，[Mark Malloch-Brown](https://en.wikipedia.org/wiki/Mark_Malloch_Brown,_Baron_Malloch-Brown#cite_note-52)，此人能量大到出乎想象，曾在安南下任联合国二把手，英国议会成员，世界银行副主席，并且和索罗斯有着千丝万缕的联系，他曾任索罗斯波斯尼亚咨询委员会成员，[在纽约从事联合国工作时租用索罗斯的公寓](https://www.nysun.com/foreign/annan-deputy-is-a-soros-tenant/15593/)，并且是索罗斯的基金管理公司的副主席。
 
-此帖的作者声称他要把川普总统被改投拜登的选票数以及被多米尼（全美多州使用的投票机）消失的选票数列出一个完整的清单。（作者声称他的工作已被查验，但因我们尚未亲自验证，所以目前将他的结论标为“未经审核”。）
+他的照片和经历曾被放于Smartmatic的首要位置，[如今已被撤下不见。](https://www.smartmatic.com/us/about/leadership/detail/lord-mark-malloch-brown/)
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12035628/Capture-14.png)
+而Dominion这次的造假问题，其中有一部分被归结于中国制造上，早在2019年包括左媒在内的多家媒体曾表达过[Dominion的部件来自中国的担忧](https://www.nbcnews.com/news/all/chinese-parts-hidden-ownership-growing-scrutiny-inside-america-s-biggest-n1104516)，巧合的是，就在Smartmatic的官网上，曾经就其未能及时向菲律宾交付投票机器作出了如下解释
 
-此作者决定通过自己获取的数据，在全国范围内对川普被改投的选票和被消失的选票（该票数是在整个计票过程中减少了的数量）进行分析。他的数据来自选举当晚的《纽约时报》。通过检查数据，作者找到了一个选票从川普改成拜登的实例，所以，他决定从使用多米尼投票机的州开始，对全部数据进行分析。
+[“因为一些因素，诸如航运条件和高昂运费，导致了过去从中国苏州运出的一些机器的送货延误”](https://www.smartmatic.com/media/article/gma-newstv-smartmatic-completes-delivery-of-poll-machines/)
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12035733/Capture-15.png)//显示其苏州运出的机器被延误
+同样在2009年12月31日，Smartmatic在其[官网表示](https://www.smartmatic.com/media/article/the-philstar-full-delivery-of-poll-machines-vowed/)3200台投票机已经从苏州出货。
 
-作者还声称，此数据来自爱迪生研究公司，至少ABC新闻，CBS新闻，CNN和NBC新闻选举报道使用了该数据。《纽约时报》和其它网站可能也使用了同样的数据。
+另外Smartmatic曾负责处理多个国家的电子计票其中就包括大家都熟悉的委内瑞拉，2017年，[委内瑞拉爆出选举结果造假](https://www.rti.org.tw/news/view/id/360548)，当时所使用的计票系统就是Smartmatic。有趣的是Smartmatic本身也是在委内瑞拉创办的，被人指出与查韦斯关系密切。
 
-以下是各州（未经审核）的结果：
-
-表格列出了从川普改选为拜登的投票以及川普被丢失的选票。
-
-**多米尼克系统 ** ** 选票 改票**
-
-宾夕法尼亚州                                           220,883             941,248
-
-新泽西州                                             80,242               20
-
-佛罗里达州                                             21,422               456
-
-密歇根州                                                    20,213               21,882
-
-纽约                                                             18,124               623,213
-
-佐治亚                                                         17,407              33,574
-
-俄亥俄州                                                    14,965               5,102
-
-弗吉尼亚州                                                12,163              789,023
-
-加州                                                             7,701                10,989
-
-亚利桑那州                                                4,492                0
-
-明尼苏达州                                                2,766               195,650
-
-田纳西州                                                    2,330                0
-
-路易斯安那州                                           2 322                0
-
-伊利诺伊州                                               2,166                54,730
-
-威斯康星州                                               2,078                3,408
-
-科罗拉多州                                               1,809                0
-
-犹他州                                                        1,627               0
-
-新罕布什尔州                                            973                  116
-
-爱荷华州                                                    938                 477
-
-新墨西哥州                                                268                4,610
-
-密苏里州                                                   0                    20,730
-
-内华达州                                                    0                    0
-
-阿拉斯加州                                                0                    0
-
-华盛顿 州                                                0                  0
-
-夏威夷州                                                0                  0
-
-**434,889      2,705,228**
-
-**堪萨斯州和德克萨斯州使用了多米尼公司拥有的Premier选举解决方案**
-
-德德克萨斯州                                       14,954        30,557
-
-堪萨斯州                                           1,674          2,154
-
-**16,628        32,711**
-
-**选举系统和软件**** **
-
-内布拉斯加                                      30,086        50
-
-肯塔基州                                          8,129          23,849
-
-阿肯色州                                          3,664           20,748
-
-南卡罗来纳州                                 2,779           2,119
-
-蒙大拿州                                         2,330           1,276
-
-南达科他州                                   1,347           1
-
-北达科他州                                     234               681
-
-马里兰州                                         203               0
-
-北卡罗来纳州                                 0                   15
-
-哥伦比亚特区                                 0                   0
-
-**总计        ****48,772         48,739**
-
-**未知系统**** **
-
-康涅狄格州                                      3,834         272
-
-马萨诸塞州                                    3,613         51
-
-俄勒冈州                                          2,557          0
-
-阿拉巴马州                                     1,170        408
-
-密西西比州                                      355            0
-
-缅因州                                              271           35
-
-罗德岛州                                          6               13
-
-西弗吉尼亚州                                 0               78,300
-
-爱达荷州                                          0               0
-
-俄克拉荷马州                                 0               0
-
-印第安纳州                                     0               0
-
-特拉华州                                         0               0
-
-佛蒙特州                                         0               0
-
-**                                               **** ****     11,806      79,079**
-
-**总计：                                       512,095   2,865,757**
-
-**据此初步分析，有超过50多万张选票从川普总统处改换到了乔·拜登名下。**
-
-除此之外，还有2,865,757张选票被删除了。
-
-请注意，这些数字尚未经过我们的审核。
-
-我们还没在每个州的每个郡进行此项工作，一旦进行，可能会影响全国的投票总数。 我们还有很多的工作要做， 但显而易见，投票机和应用程序中发生了一些非常可疑的数据交易，对于报告中存在的明显问题，需要作进一步审核。
-
-我们知道在2020年选举中存在大量的欺诈行为。
-
-没人关注乔·拜登，他的支持率为零，但他的得票数却超过了川普总统领导的美国历史上最伟大的竞选活动。想让我们相信乔·拜登击败了川普总统，同时民主党却失去了美国众议院和各州议会的席位，这是根本不可能的。
-
-看来民主党人竭尽所能想窃取这次选举，可问题是他们万万没有料到川普总统领导了一场破纪录的竞选活动，他们被逮个正着。
-
-曝光持续中。
-
-原文链接：*[https://www.thegatewaypundit.com/2020/11/breaking-exclusive-analysis-election-night-data-states-shows-millions-votes-either-switched-president-trump-biden-lost/](https://www.thegatewaypundit.com/2020/11/breaking-exclusive-analysis-election-night-data-states-shows-millions-votes-either-switched-president-trump-biden-lost/)*
+另外菲律宾败选的候选人也指控Smartmatic的投票系统存在欺诈行为。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12035909/Capture-16.png)
+巧合不断发生，曾经在2016年的邮件门中有一封Smartmatic的工作人员Todd Macklerr曾给[Donna Brazile](https://en.wikipedia.org/wiki/Donna_Brazile)和[John Podesta](https://en.wikipedia.org/wiki/John_Podesta)写信，被维基解密爆出后其中描述了“这周之后我会就预先设计好的机器见索罗斯”。其中Donna曾任美国民主党委员会主席，Podesta曾在克林顿期间担任幕僚长。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12040010/Capture-17.png)
+另外，Dominion的这套系统亦是克林顿基金下[DELIAN计划](https://www.clintonfoundation.org/clinton-global-initiative/commitments/delian-project-democracy-through-technology)的一环，通过技术来掌握民主。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12040052/Capture-18.png)
+班农先生曾经说过，“不要相信阴谋论，也不要相信巧合”，这些细碎的证据最后都指向了西方左派的索罗斯，克林顿基金，这些全球精英主义分子还有CCP，他们多少年来用高科技手段来控制着其他国家的虚幻的民主，而对于中国他们则连民主的梦想都不会分享给我们，他们几乎控制了一切，我们别无选择只有战斗。
 
 0
