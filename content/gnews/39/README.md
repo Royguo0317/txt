@@ -1,13 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日政要Twitter播报(中文) 11/11期(视频+ PDF下载)
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/550707/)
+## 致敬！那些蒙面人
+` JP007` [轉載自GNews](https://gnews.org/zh-hans/550761/)
 
-撰稿记者:CYC⽂颖、本來、尘凡3、⽯头、喜⻢拉雅2020
-校对:Magician⽂⼼
-播⾳:⼤脚印
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12072230/%E8%87%B4%E6%95%AC%EF%BC%81%E9%82%A3%E4%BA%9B%E8%92%99%E9%9D%A2%E4%BA%BA.png)
+**作者：日本京都富士会 待命（文晓）**
 
-[每日政要推文11-11.pdf](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12071236/11-11-1done-1.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12071236/11-11-1done-1.pdf)
+何时起，蒙面人已不再是影视剧的专利，世界各地的大街小巷、社交媒体，出现了越来越多的蒙面人。是什么，让他（她）们不得不蒙面行走？是什么，使他（她）们不得不蒙面发声？
+
+观其行，他（她）们坐如钟、站如松、行如风。他（她）们不惧酷暑严冬，走街窜巷传递光明。他（她）们为了同一个信仰，呐喊着同一种声音。他（她）们互不相识，却相互拥有、相互关爱、彼此尊重。他（她）们互称战友，共树一面旗，统一战装，一致讨共。他（她）们无私无畏，说真话、揭丑恶，实乃当世另类群雄。
+
+问他（她）们是谁？他（她）们是否就是我们心中敬仰的那些济世英雄？
+
+他（她）们答曰：来自新中国联邦，还在黎明前的黑暗中，不得不蒙面前行。他（她）们已历时三年，在共同演绎一部历史巨作，叫做“爆料革命”。
 
 0

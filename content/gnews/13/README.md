@@ -1,29 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 佐治亚州宣布将人工方式重新计票
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/551195/)
+## 朱利安尼：诉讼已提交，川普总统将赢下密歇根和宾夕法尼亚
+` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/551183/)
 
-*多伦多加喜农场 文𤦍(Manpui)
-校对 MyWay* *上传 WJ*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12092914/sdkaf.jpg)图片来源： wsj.com
-据WJ News11月11日报道，佐治亚州州务卿布拉德·拉芬斯佩格（Brad Raffensperger）周三表示，他们将采用人工方式对本次大选重新计票。
+**为子孙爱七哥农场翻译组** **翻译： zz17 校对： jiasen**
 
-目前民主党总统候选人乔·拜登获得该州总投票的的49.5％，比现任总统川普（得票率49.2％）的得票数多出大约14,000张，但该州部分地区的计票过程饱受质疑。
+原文链接：[Giuliani: Suits Filed, President Trump To Win Mich. And Pa.](https://www.oann.com/giuliani-suits-filed-president-trump-to-win-mich-and-pa/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12095344/GettyImages-1284440578.jpg)(新闻来源：oann.com 图片来源：Chris McGrath/Getty Images)
+川普总统的私人律师，鲁迪·朱利安尼先生，声称将会发布全国投票欺诈的重要证据。
 
-州官员表示由于佐治亚州还在使用有争议的Dominion 计票系统软件，至少造成一个县的计票结果延迟。该软件将川普的数千张选票翻转到拜登手中，使得民主党在密歇根州安特里姆县取得明显胜利，之后该软件受到了质疑。最终经查证后川普以56％的得票率赢得了该县的选举。
+在周三的一条推文中，朱利安尼先生说川普竞选团队已对在密歇根和宾夕法尼亚成百上千的欺诈选票提出法律诉讼使之无效。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12095039/Screen-Shot-2020-11-12-at-10.24.36-PM.png)
+最新的诉讼是向密歇根西区提出，朱利安尼先生将在周四发布从双方诉讼中的证词文件。
 
-目前尚不清楚该软件是否可能影响了其他地区的选举结果，但该软件已在所有有争议的州使用，其中密歇根州的其他64个县就在使用该软件。
+川普总统的律师说他的团队已经从底特律、密尔沃基、费城收集了令人震惊的投票欺诈的证据。
 
-由于在大选后的几天内不断发现收到新的选票，最终选票结果将佐治亚州从特朗普翻转到拜登一方，因此人们对佐治亚州的选举结果提出了质疑。拉芬斯佩格表示，“由于差额如此接近，我们需要在每个县进行全面的人工重新计票，这将有助于建立信任。这次将是稽核、重算和复核的结合，这是一个艰巨的任务，但我们将与各县合作，会及时及时完成工作并得到州认证”。
+前任纽约市市长声称：“并不是说宾夕法尼亚不会去做弊，而是州长沃尔夫会。但是我们将在一切可能的法庭上，因为我们不能让民主党偷走宾夕法尼亚”，“现在是共和党和总统在为你们战斗，因为他们（民主党）想偷走你的选票”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12095205/Screen-Shot-2020-11-12-at-10.24.50-PM.png)
+朱利安尼先生补充道，已提交的关于欺诈证据将会对案件起到强有力的支撑，这意味着川普总统很有可能赢下密歇根和宾夕法尼亚。
 
-拉芬斯佩格还保证会严肃处理所有选票违规或者选票舞弊，他说，“我的办公室将继续调查每一次非法投票事件。对于双重投票，罪犯投票，外州投票等，如果接到您的举报，我们将进行调查，每张合法选票都将被计在内。“
+**更多精彩内容请关注：**
 
-评论：
-随著大选舞弊丑闻的逐渐曝光，美国人民开始觉醒，越来越多的人站了出来。这一刻就像爆料革命文贵先生所言，每一个人都必须行动，站在正义的一方！
+- [为子孙爱七哥农场官方推特](https://twitter.com/wzsaqg)
+- [为子孙爱七哥农场官方GTV号](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
+- [欢迎加入农场discord官方群](https://discord.gg/2vXAV6G)
 
-*参考链接：*
-
-[Battleground State Announces It Will Conduct a Full Recount of Presidential Votes by Hand](https://www.westernjournal.com/battleground-state-announces-will-conduct-full-recount-presidential-votes-hand/?utm_source=push&amp;utm_medium=westernjournalism&amp;utm_content=2020-11-10&amp;utm_campaign=pushtraffic)
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20123101/%E5%86%9C%E5%9C%BA%E5%B9%BF%E5%91%8Av7-3.jpg)
 0

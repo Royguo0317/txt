@@ -1,30 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 朱利安尼：诉讼已提交，川普总统将赢下密歇根和宾夕法尼亚
-` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/551183/)
+## 明面“会谈”、暗修隧道——中共流氓的两面三刀
+` Ronald` [轉載自GNews](https://gnews.org/zh-hans/551246/)
 
-**为子孙爱七哥农场翻译组** **翻译： zz17 校对： jiasen**
+内军事：鹰(文言) 素材：文朝汗（部落） 校对：雅典娜的圣斗士(沙加)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12100513/image0-1-10.jpg)
+新浪网11月12日转载印度新德里电视台（ndtv）网站10日报道，中共10月份已在洞朗地区修建了一条长500米的隧道。
 
-原文链接：[Giuliani: Suits Filed, President Trump To Win Mich. And Pa.](https://www.oann.com/giuliani-suits-filed-president-trump-to-win-mich-and-pa/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12095344/GettyImages-1284440578.jpg)(新闻来源：oann.com 图片来源：Chris McGrath/Getty Images)
-川普总统的私人律师，鲁迪·朱利安尼先生，声称将会发布全国投票欺诈的重要证据。
+在中印边境对峙以来，双方接连磋商交流，在11月6日举行了第八轮军长级会谈。
 
-在周三的一条推文中，朱利安尼先生说川普竞选团队已对在密歇根和宾夕法尼亚成百上千的欺诈选票提出法律诉讼使之无效。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12095039/Screen-Shot-2020-11-12-at-10.24.36-PM.png)
-最新的诉讼是向密歇根西区提出，朱利安尼先生将在周四发布从双方诉讼中的证词文件。
+根据《印度时报》12日援引消息人士的说法，双方就军队撤离逐渐达成共识，中共军将撤回到“第8指”以东的阵地，而印军西撤至“第2指”和“第3指”之间据点，每阶段撤离1/3部队，分阶段进行。
 
-川普总统的律师说他的团队已经从底特律、密尔沃基、费城收集了令人震惊的投票欺诈的证据。
+但中方并未对此“可能方案”进行反驳，为保颜面也仅评价其为不准确。
 
-前任纽约市市长声称：“并不是说宾夕法尼亚不会去做弊，而是州长沃尔夫会。但是我们将在一切可能的法庭上，因为我们不能让民主党偷走宾夕法尼亚”，“现在是共和党和总统在为你们战斗，因为他们（民主党）想偷走你的选票”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12095205/Screen-Shot-2020-11-12-at-10.24.50-PM.png)
-朱利安尼先生补充道，已提交的关于欺诈证据将会对案件起到强有力的支撑，这意味着川普总统很有可能赢下密歇根和宾夕法尼亚。
+虽然撤离方案及中印会谈有可能往脱离接触方向发展，但根据过去三年在中印边境附近的空军、防空阵地和直升机机场的总数翻倍事实，以及双方“会谈”期间，中共依旧对洞朗地区大建隧道等行为看，中印边界问题依旧最终会是长期对峙的局面。
 
-**更多精彩内容请关注：**
+结合前期印度对拉达克地区的大举增兵，兵力达到35万，且通过大型运输机等增援大批地面武器装备和过冬油料物资；
 
-- [为子孙爱七哥农场官方推特](https://twitter.com/wzsaqg)
-- [为子孙爱七哥农场官方GTV号](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
-- [欢迎加入农场discord官方群](https://discord.gg/2vXAV6G)
+反观中共方一是兵力悬殊，仅6万余人，二是西藏高原海拔因素造成后勤补给线长，物资补给困难，再加上中共未增派先进战机、装甲坦克支援，而是不断利用高原部队实弹射击和军演造势，两方相较，无疑中共方的缓和紧张局势意图更甚。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20123101/%E5%86%9C%E5%9C%BA%E5%B9%BF%E5%91%8Av7-3.jpg)
+印方对中共的首鼠两端和外强中干的流氓嘴脸已司空见惯，一方面利用舆论透露中共“求和”意图，另一方面又爆出其大兴“土木”违背缓和会谈初衷；
+
+同时为应对中共的反复无常以及在会谈中占据主动，印度又增派大量战机、军事装备及“大兵压境”等对中共形成军力碾压。
+
+印度的兵力调度（对中共为主，对巴为辅）以及不断配合美日澳等国海上联合作战等诸多措施均透露其最终目标实为灭共。
+
+新闻来源：
+[https://mil.news.sina.com.cn/china/2020-11-12/doc-iiznctke1043769.shtml
+https://news.ifeng.com/c/81KviVz3sXR](https://mil.news.sina.com.cn/china/2020-11-12/doc-iiznctke1043769.shtml
+https://news.ifeng.com/c/81KviVz3sXR)
+
 0
