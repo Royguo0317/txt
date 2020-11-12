@@ -1,97 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 朱利安尼 推文系列 5（2020年11月8-9日）
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/548278/)
+## “系统故障”将数百万投给川普的选票划给了拜登
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/548601/)
 
-*新闻来源：朱利安尼 推文；作者：朱利安尼；发布时间： 2020年11月6-9日*
+草原三省战友团 晨熹
 
-*翻译/简评：Beicy-数学老师；校对/审核：TCC；Page：拱卒*
+校对 风云小哥  上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11123916/%E6%AF%94.jpg)图片来自 Tampa Bay Times
+据美国政论博客网站《门户专家》（The Gateway Pundit）11月10日报道，他们之前报道了大量有关2020年大选事件，被媒体称为是“系统故障“。他们又在威斯康辛州找到了另一个”故障“。排除这个”故障“后，拜登在该州的得票优势将完全丧失。
 
-[![](https://spark.adobe.com/page/eWXogcpEkAfai/images/db13a5b6-8e57-41a0-8c49-5fcec8a71666.jpg?asset_id=1d8a0949-651e-4d1b-821d-5e2d04174fcb&amp;img_etag=%226813ecc631b2588a3b3cac6b8b7faaad%22&amp;size=2560)](https://spark.adobe.com/page/eWXogcpEkAfai/images/db13a5b6-8e57-41a0-8c49-5fcec8a71666.jpg?asset_id=1d8a0949-651e-4d1b-821d-5e2d04174fcb&amp;img_etag=%226813ecc631b2588a3b3cac6b8b7faaad%22&amp;size=1024)
+他们获得了一组未经审核分析的数据，可以用来寻找仅与总统选票计数相关的所有州的系统故障和怪象。
 
-**简评：**
+《门户专家》报道了另一个所谓的“系统故障”，这次发生在威斯康辛州的一个县。有证据显示洛克县的投票总数似乎在川普总统和乔•拜登间被调换了。投给川普总统的9516张选票被抹掉转移到乔•拜登。当19032票的差错被纠正后，拜登将不再在威斯康辛州领先。《门户专家》确认在密歇根州、宾夕法尼亚州和乔治亚州都发生了类似的“故障”问题。
 
-**朱利安尼: “拜登主导了这个造假集团”**
+《门户专家》尝试获取有关这个问题的更多数据，以便可以确定此问题可能波及的广度或者对发生的问题是否有合理的解释。《门户专家》推荐大家看互联网上的一则贴文，希望大家看后自己分析判定（原贴文链接[https://thedonald.win/p/11Q8O2wesk/happening-calling-every-pede-to-/](https://thedonald.win/p/11Q8O2wesk/happening-calling-every-pede-to-/)）。
 
-朱利安尼先生最新推文，明确指出拜登是选票造假这一”世纪选举盗窃案”的知情者和制造者。朱利安尼先生还进一步给出”幽灵选民”的具体例子—- 美国知名人士、前重量级冠军乔-弗雷泽在2011年11月7日去世，却参加了2018年的(中期)选举投票！
+文章的作者声称这是一份投票机上抹掉的把投给川普的选票转移给拜登的完整选票明细。该Dominion投票机在美国大选很多州使用。作者决定自己获取数据并分析把川普改为拜登和被抹掉的全国选票，作者获得的数据是在选举之夜被《纽约时报》截获报道的。通过对数据的检查，作者锁定了一个那些州把投给川普的选票被转移给拜登的实证，于是他从使用投票机的州开始对整套数据进行分析。
 
-川普总统的选民在虚假媒体声称拜登获胜后，自发聚会各州投票站，抗议计票造假。这样正义的行为，却被拜登方抹黑为意欲暴乱。朱利安尼先生不仅驳斥了这一谎言，并质问对手: ”如果重新计票和挑战使川普成为赢家，将会发生什么?”
+作者还声称，这些数据来自爱迪生研究（Edison Research），这些数据至少与ABC、CBS、CNN和NBC等新闻媒体用于选举报道的数据相同。它被NYT网站使用，其他网站可能也用过。
 
-朱利安尼先生确切地宣布: 已经掌握几个关键州的非法选票证据。加上最近司法院长及共和党员站出来支持调查选举违规，这表明选举结果将被纠正过来。
+作者随后列出了川普总统在各州的选票被转移给了拜登的数量和被抹掉的选票数量详细清单，并汇总后得出结论：川普总统有超过50万张有效选票被转移给了乔•拜登。另外有2,865,757张选票被抹掉。
 
-大选投票结束。 战斗才刚刚开始。
+《门户专家》对此声明：这些数据并未经核实，他们在这些州的县尚没有实际经验。此类情况必将对全国投票总数产生冲击，且还会有更多问题需要处理。但很明显的是，在投票机使用过程中确实发生了非常令人质疑的情况，有待重新进一步核查，因为作者所反映的上述问题不仅仅是表面上的。
 
-爆料革命的战友们, 我们加油传播真相!
+随着调查的不断深入，有关2020年竞选结果舞弊的更多细节被逐渐曝光。本报道引自一位曾经参与选票统计工作人员的贴文，他也是一位选票舞弊过程中奉命行事的被动参与者和目击证人。他用详实的选票统计分析数据，告诉读者在整个投票计票过程中川普总统共有将近340万张选票被投票机和计票应用程序强行转移给了乔•拜登或者直接了当地被抹掉。如果这些选票被正确计算，那么大选结果无疑将会翻转。
 
-[原文链接](https://gnews.org/zh-hans/author/himalaya_hawk/)
+该贴文贴出12小时内就吸引了500多位民众留言。很多美国民众认同贴文作者的观点，他们均表示不相信大选结果，对选举结果极度愤怒，要通过各种渠道转发此文并就贴文反映的问题向政府部门举报。
 
-- **推文1: 2020年11月9日 7点11分发布**
+留言写道：
 
+“我们都认为川普理所当然的赢得了大选，当拜登宣布胜利时，我们都要崩溃了”；
 
+“我们都知道选举过程中存在欺诈，拜登将让我们变得更加糟糕”；
 
+“已经有大量视频和音频显示选举过程中存在欺诈，我们不接受这样的选举结果”；
 
-> NYC,DC,Philly were all boarded up for riots.
-> 
-> All of a sudden no riots by Trump supporters.
-> 
-> They don’t riot.
-> 
-> What happens if recounts and challenges make [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) the winner.
-> 
-> The Biden supporters do riot because they are lawless.
-> — Rudy W. Giuliani (@RudyGiuliani) [November 9, 2020](https://twitter.com/RudyGiuliani/status/1325697527367274497?ref_src=twsrc%5Etfw)
+“这很邪恶，他们这么做是有目的的“；
 
+”这是要抢夺控制权，想完全控制这个国家，不是简单的统计数字和选举公平的问题“；
 
-纽约，华盛顿，费城(的商家)都钉上板子以防暴动。突然间，川普的支持者是不暴动的。他们不会暴动。如果重新计票和(司法)挑战使川普赢得大选，将会发生什么? 拜登的支持者一定会暴动，因为他们无法无天。
-- **推文2: 2020年11月9日 14点16分发布**
+… …
 
+字里行间，能真切地感受到美国民众对此的愤怒。他们中的大多数人都很清楚地知道选举期间发生了什么，他们绝不会接受被愚弄、被欺诈、被操纵的命运。
 
+在本次总统选举过程中使用的投票机和计票程序已有消息证实是来自中共国，同时被证实的还有，中共确实从中做了手脚。而本篇报道是中共干预美国总统大选，染指美国政治的又一有力佐证。对于中共来说，接下来的日子恐怕会让他们越来越寝食难安。因为来自美国民众的反击才刚刚开始。
 
+新闻来源：[https://www.thegatewaypundit.com/2020/11/breaking-exclusive-analysis-election-night-data-states-shows-millions-votes-either-switched-president-trump-biden-lost/?utm\_source=Twitter&utm\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/11/breaking-exclusive-analysis-election-night-data-states-shows-millions-votes-either-switched-president-trump-biden-lost/?utm_source=Twitter&amp;utm_campaign=websitesharingbuttons)
 
-> The Biden selection by the Crooked Media is based on unlawful votes in PA, Mich, GA, Wisc, Nevada et al.
-> 
-> We will prove it all.
-> — Rudy W. Giuliani (@RudyGiuliani) [November 9, 2020](https://twitter.com/RudyGiuliani/status/1325695405917663234?ref_src=twsrc%5Etfw)
-
-
-那些歪曲事实的媒体对拜登的选举支持是基于宾夕法尼亚州、密歇根州、佐治亚州、威斯康星州、内华达州等地的非法选票。我们将证明这一切。
-- **推文3: 2020年11月8日 13点56分发布**
-
-
-
-
-> Just an example of how brazen the Philadelphia Democrat machine is.
-> 
-> Former heavyweight champion Joe Frazier voted in the 2018 election. He died on 11/7/2011!!!
-> 
-> Will Smith’s grandfather voted in 2017, 2018. He died in 2016.
-> 
-> I bet Biden dominated this group.
->  
-> We will find out.
-> — Rudy W. Giuliani (@RudyGiuliani) [November 8, 2020](https://twitter.com/RudyGiuliani/status/1325437154575704065?ref_src=twsrc%5Etfw)
-
-
-这只是一个例子，(来看看)多么厚颜无耻的费城民主党(操纵计票)机器。前重量级冠军乔-弗雷泽在2018年的(中期)选举中投票。他于2011年11月7日去世！!威尔-史密斯的祖父在2017年、2018年都投了票。他在2016年去世。我敢打赌，拜登主导了这个造假集团。 我们会找到答案。
-- **推文4: 2020年10月6日 14点16分发布**
-
-
-
-
-> [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Rudy W. Giuliani (@RudyGiuliani) [October 6, 2020](https://twitter.com/RudyGiuliani/status/1313468197446746117?ref_src=twsrc%5Etfw)
-
-
-中共病毒(CCP Virus) 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105818/11222.png)战争行为；是的，是这样的。
-
-
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[编辑：【喜马拉雅战鹰团】](https://spark.adobe.com/page/eWXogcpEkAfai/)
-[![](https://spark.adobe.com/page/eWXogcpEkAfai/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/eWXogcpEkAfai/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

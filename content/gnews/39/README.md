@@ -1,41 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## John Locke（约翰洛克）自由主义之父
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/547936/)
+## FearCity2.0朱利安尼大战黑帮2.0
+` GM06` [轉載自GNews](https://gnews.org/zh-hans/548681/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24064746/WhatsApp-Image-2020-10-24-at-15.08.49.jpeg)
-作者：康州农场-GTalk心语堂
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092251/image2-7.jpeg)
-被后世誉为自由主义之父的约翰洛克，在他1689年匿名出版的《政府论》中的主张，今天听来依然振聋发聩，他说: 政府只有在取得被统治者的同意，并且能够有效保障被统治的生命，自由和财产，其统治才有正当性。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092304/image3-4.jpeg)
-约翰洛克的主张直接激励了18世纪最伟大的一次政治实验—美国政府的建立。可以毫不夸张的说，没有约翰洛克，就没有美国的独立宣言和宪法。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092317/image4-2.jpeg)
-约翰洛克在他的《政府论》中提出，人类历史上最大的课题不是这个世界上是否应该有权力，或者权力是从哪里来的，而是谁应该拥有权力。
-他指出想要弄明白为什么要建立政府和如何建立，必须要首先承认，人人生而平等，都有与生俱来的上帝给予的生命权，自由权，财产权。
-他指出，人们是为了保护彼此的这些权利而组建在一起，并形成社会，制定契约的。是在彼此同意的前提下建立政府，并履行彼此的意愿。 政府没有权力要求拥有自由意志的人民服从他们不认可的一切行为。如果政府虐待，欺骗，压迫人民，人民有权收回他们对政府的许可，并把权力交给能够维护他们权利的政府。也就是说，政府是基于被管理者的同意而设立的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092327/image5-2.jpeg)
-一个世纪以后，约翰洛克的哲学主张和自由主义思想，在北美大陆被人类第一次践行。美国独立宣言和之后的美国宪法中无不闪耀着约翰洛克的思想光辉。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092345/image6-6.png)
-他的这些主张包括:天赋人权，民选政府，权力制约，政教分离，人民有权力而且有义务推翻独裁政府，等等。
+作者：战友金不换
 
-美国的先贤们忠实的奉行着这些主张，在人类历史上建立了第一个旨在保护人民权利的政府。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092404/image7-3.png)
-2020年的这次选举是对美国民主制度的一次历史性考验。我们相信，有200余年历史积淀的自由，民主，法治的精神会战胜所有黑暗势力，那些违背民意的政客，那些掩盖真相，压制真实声音的媒体，还有那些幕后的利益集团和ccp的黑手都将灰飞烟灭。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092448/image8-1.png)
-在中共国，防火墙再高也无法抵挡人民要求民主，自由，平等的呼声。70年来，中共独裁政府把人民的生命，自由和财产权紧紧的握在自己的手里并美其名曰以人民的名义，
-然而其实质是至高无上的皇权又一次借尸还魂。中国人民又一次站在了历史的十字路口，请14亿中国同胞在夜深人静的时候扪心自问，你有同意中共政府向全世界散播病毒，威胁人类生命吗？你有同意中共政府建立集中营关押那些有独立，民主思想的同胞吗？你有同意中共政府通过操纵股市，非法集资，恶意强拆来霸占你的财产吗？还有，你的选票在哪里？
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092523/image9-1.png)
-请记住，“政府是基于被管理者同意而设立的。”
-Source from:GTalk
-Pictures from:
-https://i.ytimg.com/vi/SzgZJ9JTk4U/maxresdefault.jpg 
-https://cdn.britannica.com/21/143621-050-D0409B47/Declaration-of-Independence-canvas-rotunda-John-Trumbull-July-4-1776.jpg 
-https://www.quotemaster.org/images/30/30dd83af87146565745e1325891fbb3c.jpg 
-https://lawliberty.org/app/uploads/2020/03/Declaration-and-Constitution-Flag.jpg 
-https://slideplayer.com/slide/12223394/72/images/3/John+Locke+Core+beliefs%3A.jpg 
-https://media.vanityfair.com/photos/5b15798b76ca49160fe5479f/master/pass/donald-trump-fbi.jpg 
-https://cdn.i-scmp.com/sites/default/files/d8/images/methode/2019/09/22/03154a68-dc54-11e9-80eb-3aa57b6d2433\_image\_hires\_101052.JPG 
-https://upload.wikimedia.org/wikipedia/commons/9/9d/American\_Revolution\_Bicentennial\_Deriving\_Their\_Just\_Powers…\_10c\_1974\_issue\_U.S.\_stamp.jpg
+为了更好理解目前局势，前一阵特地在Netflix 上看了3集纪录片《Fear City》恐惧之城。讲述80年代初FBI和朱利安尼等如何运用 RICO 法案清除纽约黑帮。
+
+纽约黑帮在当时可不是一般的牛。5大家族编织了以纽约曼哈顿为中心蔓延全国的一张犯罪之网。FBI疲于奔命，千头万绪却无从下手。“一年抓到一两个喽啰就谢天谢地了” 。。基本原因有二：1。没有证人。没人敢站出来。敢站出来的就让你跳楼死以及各种死。2。抓不到大头目，无法根本斩断犯罪。抓走两个喽啰，后面排队上岗得还多着呢。这些意大利黑手党家族组织严密，党羽众多，加入时要发誓永不叛党，一旦叛变会遭到血洗。从街头喽啰到大头目之间有5个层级，大头目都是社会上有头有脸的人物，有企业家商业家慈善家等等，要抓住他们成功定罪几乎是不可能的事情。
+
+这时有人想到了利用RICO法案（当时法案虽出，但从未用过，没人会用），顺藤摸瓜，不但要抓小的，还要抓住最大的一锅端。FBI为此制定了周密计划，用了几年时间，分成5大行动组对付5大家族，互通信息互为佐证，秘密监听秘密跟踪，诸多桥段犹如电影，比如让人假装电话和有线电视维修工，或月黑风高之夜直接闯入，安装窃听器。通过破解电话录音加其它情报，获取充分罪证，做实5大家族联合犯罪的事实。
+
+预计的秘密大抓捕泄露了风声，好在提前行动还是把人都抓到了。检察官需要通过证据说服全部12名陪审员才能定罪，而辩方律师只需说服一两个陪审员即可推翻。。。最后陪审团一致裁定有罪。好像每个大头目都判了大概100年，盘踞几十年的纽约黑帮从此轰然倒塌。
+
+在此受到威胁的不光是证人，还有参与调查与指控的所有人。身为检察官的朱利安尼当时刚刚结婚生子，FBI的警官们到他家教他和妻子如何开枪自卫。朱利安尼没说这个事为什么会轮到他这个年青的检察官，而不是当时更资深更大牌的检察官。只说了一个故事。他的爷爷和外公都是移民美国的意大利小手工业者。爷爷的铺子刚开张，黑帮就来了，要每天盈利的30%。他爷爷问，为什么我要给你30%，对方说，因为要不然我就出门找到你的孩子，打断他的腿。
+
+朱利安尼经此一役名声大震，奠定江湖地位。在里根政府曾任司法部副部长。两次成功选为纽约市长，并由于在911期间的有力领导，被称为“美国市长”，还被《时代杂志》评为2001年度人物，及次年被英国女王封爵。
+
+Fear City有三集，《Mob Rule》，《Godfather Tapes》，《Judgement Day》。现在重点来了。假如，假如，时隔40年，朱利安尼运气好，再次面临相似的情况，Fear City 2.0， 还是几个黑帮，只不过这次是国家黑帮国际黑帮，实力超过一万倍，他会怎样做呢？如何早早布局，设下圈套，诱敌深入，以弱胜强，依法办事，一举全歼呢？而且这些套中套和坑中坑，是你不干坏事就没事，坏事越大越倒霉。假如真有这样一个故事在上演，那么现在演到了第几集呢？令人遐想。
 
 0

@@ -1,81 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 奥巴马的前中央情报局间谍局长约翰·布伦南（John Brennan）煽动对特朗普总统发动政变亲自敦促副总统迈克·彭斯夺权
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/549077/)
+## 川普总统呼吁：宾夕法尼亚州和密歇根州不允许投票观察员观看或观察将导致数十万张不应计数的选票
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/549220/)
 
-编译：玫瑰天空
+作者：玫瑰天空
 
-奥巴马的中央情报局局长敦促对特朗普总统发动政变，这样他就不会“解密一切”。
+2020年11月12日，川普总统发推再次被推特官方作出⚠️标志。川普总统身在美国总统之位确被沼泽困顿其中，要亲自敦促呼吁媒体报告和传播真相！可见媒体腐败和虚假乱想之深重。
 
-巴拉克**·**奥巴马（**Barack Obama**）的前中央情报局局长约翰**·**布伦南（**John Brennan**）呼吁特朗普总统内阁成员罢免总统职务，以防止他解密敏感材料。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11185918/%E6%88%AA%E5%B1%8F2020-11-12-12.58.57.png)
-几天前，小唐纳德·特朗普（Donald Trump Jr.）敦促他的父亲释放核选择权：“一切都解密！！”  他在Twitter上大写。“我们不能让坏演员摆脱它。”
-
+川普总统呼吁：“没有人想报告宾夕法尼亚州和密歇根州不允许我们的民意观察员和/或投票观察员观看或观察。这将导致数十万张不应计数的选票。因此，我很容易赢得这两个州。报告新闻！”
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11210857/%E6%88%AA%E5%B1%8F2020-11-12-15.08.30.png)
 
 
-> DECLASSIFY EVERYTHING!!! 
-> 
-> We can’t let the bad actors get away with it.
-> — Donald Trump Jr. (@DonaldJTrumpJr) [November 8, 2020](https://twitter.com/DonaldJTrumpJr/status/1325524657802522624?ref_src=twsrc%5Etfw)
+> Nobody wants to report that Pennsylvania and Michigan didn’t allow our Poll Watchers and/or Vote Observers to Watch or Observe. This is responsible for hundreds of thousands of votes that should not be allowed to count. Therefore, I easily win both states. Report the News!
+> — Donald J. Trump (@realDonaldTrump) [November 12, 2020](https://twitter.com/realDonaldTrump/status/1326679385966047236?ref_src=twsrc%5Etfw)
 
 
 
-其他人也 随声附和[煽动](https://libertarianinstitute.org/foreign-policy/declassify-the-russiagate-papers/)这样做，专栏作家谢尔登·里奇曼写。：“这是特朗普在1月20日中午离职前可以做的事情： 他可以命令-要求，坚持-将所有与俄罗斯/选举调查起源有关的机密情报和其他文件解密，并向公众发布”。
-
-[Zerohedge.com的](https://www.zerohedge.com/political/ex-cia-chief-under-obama-urges-palace-coup-against-trump-so-he-doesnt-declassify)报道：这种独特的可能性很快就吸引了主流媒体和情报机构的注意，而这种情报与总统之间长期存在分歧（甚至是“战争”）。在周一对被驱逐的国防部长马克·埃斯珀（Mark Esper）做出特别反应之前，奥巴马政府下任前中央情报局间谍局长约翰·布伦南（John Brennan）本质上 敦促 在1月20日之前对特朗普进行 宫廷政变，以确保他不会将任何敏感或过于暴露的东西解密：
-
-解密：
+川普总统还说：“每个人都在问为什么最近的总统选举对我来说如此不准确。因为它们是假的，就像Lamestream Media一样！”
 
 
 
-> Pres. Trump is "like a cornered cat…he's going to lash out and the fact…that he has the powers of the presidency in his hands is quite worrisome."
-> 
-> Former CIA dir. John Brennan calls on VP Pence and the cabinet to invoke the 25th Amendment and strip Pres. Trump of his powers. [pic.twitter.com/CyqFoSIoux](https://t.co/CyqFoSIoux)
-> — Cuomo Prime Time (@CuomoPrimeTime) [November 10, 2020](https://twitter.com/CuomoPrimeTime/status/1325998334037864450?ref_src=twsrc%5Etfw)
+> Everyone is asking why the recent presidential polls were so inaccurate when it came to me. Because they are FAKE, just like much of the Lamestream Media!
+> — Donald J. Trump (@realDonaldTrump) [November 11, 2020](https://twitter.com/realDonaldTrump/status/1326673298692972544?ref_src=twsrc%5Etfw)
 
 
 
-*前中央情报局局长约翰·布伦南（John Brennan）呼吁副总统彭斯（Pence）和内阁*
-*援引《第二十五条修正案》，并剥除Pres特朗普的权力。*
-在令人难以置信的周一CNN访谈中，布伦南（Brennan）亲自敦促副总统迈克**·**彭斯（**Mike Pence**）夺权，布伦南本人从特朗普总统任期开始就负责煽动如今被广泛揭穿的俄罗斯门的主张 。
+众多媒体平台推特，脸书，华尔街日报……包括福克斯在这次美国大选期间都扮演着极其不光彩的角色，他们一直忙着掩盖真相和夸大传播虚假新闻。他们正在因此失去更多追求真相和渴望发现真相的民众。从某种程度上来说，掩盖事实实际上就是邪恶犯罪者的帮凶甚至可以说是同谋者。其行为背后的腐败交易也终将会慢慢浮出水面。
 
-他断言，尽管拜登准备在就职典礼当天（距离他们还有两个月的路程）过渡到白宫，但在这一点上，特朗普对国家安全构成威胁：
+“掩耳盗铃”“纸包不住火”“若想人不知除非己莫为”都是中国家喻户晓的俗语，川普总统称作“浊流媒体”的腐败媒体集团正在实施着这样令人不齿的行为。他们的媒体自由是可以被金钱和幕后资本购买和操控的。华盛顿邮报页面标注着“民主在黑暗中死亡”貌似敦促自己秉承媒体中立捍卫民主的座右铭变得如此滑稽可笑。看看他们的一行行文章标题，就知道在这些媒体当中“民主在黑暗中死亡”才是他们说出的唯一真相。他们的文章几乎无一例外的抹黑和污名化美国现任总统特朗普👇👇👇
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11204352/%E6%88%AA%E5%B1%8F2020-11-12-14.28.36.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11203928/%E6%88%AA%E5%B1%8F2020-11-12-14.36.01.png)
+正如新中国联邦发起人文贵先生所说这是一场现代媒体超限战。各大媒体平台几乎都卷入了这场战争，以讹传讹成了媒体的专利。此外，他们还决定代替和抢先美国法律来宣布谁当选来美国总统。以此同时，否认和屏蔽所有可能出现的和正在出现的对于选票欺诈的证据和消息成了他们的首要任务。美国人民也许迟早会开始思考，谁在为这些处心积虑忙于掩盖真相的腐败媒体集团支付账单？他们在为谁工作？
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11212720/%E7%99%BD%E5%AE%AB%E5%A3%B0%E6%98%8E.jpg)
+选票大战之外，大选期间，与总统或白宫有联系的四十多人被感染，包括总统，他的妻子梅拉尼亚和他的小儿子巴伦。副总统迈克·彭斯（Mike Pence）的参谋长马克·肖特（Marc Short）和其他助手在上个月底选举前不久对该病毒检测也呈现阳性。
 
-布伦南在周一《 *Cuomo Prime Time*》刊物上说：*“*我非常担心他在任职的剩余*70*天会做什么。*” “*他会采取某种军事行动吗？ 他是否要发布某种实际上可能威胁到我们国家安全利益的信息？*”*
+根据约翰·霍普金斯大学（Johns Hopkins University）数据显示，美国全国范围内周二报告了135,290例新的COVID-19病例，使7天的平均值达到创纪录的123,448例。有1,393例死亡，这是自8月20日以来的7天平均死亡人数首次超过1,000。在整个大流行中，近24万美国人死于冠状病毒。
 
-布伦南将事情做得更进一步，并增加了关于这位前长期间谍首长希望发生的事情的细节：“如果彭斯副总统和内阁有一点坚毅，脊柱和爱国主义， 我认为他们将认真考虑援引《第二十五条修正案》。并把唐纳德**·**特朗普赶出去，因为他现在已经很难预测了，”他补充说。
+这莫名增长的疫情数据和媒体集团袭来的重拳都指向来川普总统，交相呼应，彼此“合作”，其背后到底是怎样的力量在操控一切？相信有一天川普总统以及站在他身边的正义力量会揭开他们的假面具，彻底清洗和排干这庞大的肮脏的沼泽！而在此期间，身怀良善和正义之心的人类也会在这次劫难中捍卫世界的文明达到最终的人类进步。正如新中国联邦旗下的GTV和GNEWS媒体平台秉承的唯真不破的座右铭一样，一切真理和真相都会被验证，这些腐败媒体集团利欲熏心的丑恶嘴脸终究会被民众唾弃！一切还没有结束，但是，我们会赢！这是一场马列主义的中国共产党与全世界热爱自由的人民的斗争。
 
 
 
-> I love this idea!!!! [https://t.co/oA2WvIEaLe](https://t.co/oA2WvIEaLe)
-> — Jake Tapper (@jaketapper) [November 9, 2020](https://twitter.com/jaketapper/status/1325670157658755073?ref_src=twsrc%5Etfw)
+> WE WILL WIN! [pic.twitter.com/rkd8vK6id7](https://t.co/rkd8vK6id7)
+> — Donald J. Trump (@realDonaldTrump) [November 11, 2020](https://twitter.com/realDonaldTrump/status/1326662184403865602?ref_src=twsrc%5Etfw)
 
 
 
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11185544/%E6%88%AA%E5%B1%8F2020-11-12-12.52.50.png)
-布伦南提到，自上周四以来，尽管有数票，但自多名联邦机构高级官员被赶出或辞职以来，似乎是选举后的清除和外流，布伦南表示这是特朗普串谋破坏国家安全的一部分。
-
-“如果马克·埃斯珀因为不听唐纳德·特朗普执行这些命令而被推到一边，他知道他的继任者是什么，那么如果唐纳德·特朗普确实做出某种与他相反的命令，这位代理秘书克里斯·米勒将去做。我认为我们的国家安全利益必须是这样。”布伦南说。
-
-但值得庆幸的是，实际上几乎没有掌权者可能听约翰·布伦南（John Brennan）的话，因为他的尖酸刻薄和对特朗普的愤怒 显然早已是** **个人的私愤。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11185625/%E6%88%AA%E5%B1%8F2020-11-12-12.52.41-1.png)
-
-
-> Senior civilians so far not affected by the recent purge include the Deputy Secretary of Defense Norquist and the Service Secretaries
-> — Ryan Browne (@rabrowne75) [November 10, 2020](https://twitter.com/rabrowne75/status/1326301901772763136?ref_src=twsrc%5Etfw)
-
-
-
-毕竟，曾经上演过的一幕还没有被忘记：
-
-巴拉克*·*奥巴马（*Barack Obama*）总统下属的中央情报局局长约翰*·*奥*·*布伦南（*John O. Brennan*）周四对特朗普总统进行 了罢工，要求撤销他的安全检查，称总统对与俄罗斯*“*不串通*”*以影响*2016*年大选的说法大行其道， 并争辩说这位指挥官总的来说，他试图让任何敢于挑战他的人保持沉默。
-
-布伦南现在公开地，字面意义上呼吁非法推翻美国现任总统。** **这也是美国大选发生的众多令人震惊事件其中的一幕。可见，试图支持拜登并且利用一切手段想把他推上美国总统之位的幕后力量已经处心积虑穷凶极恶到了疯狂的地步！
-
-目前的国际局势之中人类面临很多危险。这更像是一场世纪之战。正邪交战，如果我们做对了，世界将会得到拯救。
-
-[援引原文](https://newspunch.com/obamas-cia-chief-urges-coup-against-president-trump-so-he-doesnt-declassify-everything/)
 
 0

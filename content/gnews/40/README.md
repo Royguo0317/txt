@@ -1,53 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班农疫情作战室473/474期
-` GM47` [轉載自GNews](https://gnews.org/zh-hans/548347/)
+## 川普总统在共产主义受害者纪念日的致辞
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/548678/)
 
-战友之家新闻译制组制作
+摘要：11月7日川普总统在白宫发布关于共产主义受害者纪念日的致辞，并郑重地缅怀在20世纪被共产主义夺走了生命的1亿多世界人口。他说：在这个“共产主义受害者国庆日”上，我们承诺反对这种阴险的意识形态，并自豪地承诺美国将永远不会成为社会主义国家。我们缅怀所有为共产主义牺牲生命的人，并致力于促进自由，以便子孙后代能够繁荣昌盛。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01141526/WH_20201031_-Hostage-Rescue169.png)图片来源：[https://www.whitehouse.gov/](https://www.whitehouse.gov/)
+英汉对照全文如下：
 
+**Presidential Message on the National Day for the Victims of Communism**
 
+**川普总统在共产主义受害者纪念日上致辞**
 
+Issued on: November 7, 2020
 
+发布日期：2020年11月7日
 
-473/474.摘要
+On National Day for the Victims of Communism, we solemnly remember the more than 100 million lives claimed by communism in the 20th century.  We commit ourselves to stopping the spread of this oppressive ideology that, without fail, leaves in its wake misery, destruction, and death.  As proud Americans who cherish the blessings of freedom and democracy, we promise to support the more than one billion people currently captive within communist regimes and denied their unalienable rights to life and liberty.
 
-2020年11月4日
-班农：在川普总统午夜说话之后，神秘选票到了计票站，结果情势反转。
-停止计票到凌晨四点钟，在威斯康星州发现灌票，138000票里有3000张投给川普。
+在共产主义受害者国庆日，我们郑重地缅怀20世纪被共产主义夺走了的1亿多人的生命。我们承诺要制止这种压迫性意识形态的传播，这种意识形态无休止地造成苦难、破坏和死亡。作为以珍惜自由和民主福祉为自豪的美国人，我们承诺要支持当下被共产主义政权俘虏并被剥夺了他们本不该被剥夺的生命权和自由权的十亿多人民。
 
-班农、巴瑞、朱利安尼讨论「停止计票-灌票-覆计」案。
-朱利安尼：
-事实是，川普确实赢，按照每个州的预测来看，基本上拜登没有胜算。他们不做算术。
-现在应该停止计票，直到有法庭委任独立的观察员，向法庭证明每一张票都是合法选票， 这是唯一阻止偷窃选举的方法。
-班农：
-斯大林说过：
-「我不在乎谁投票 我只在乎谁计票」。我们可能为半夜两点半的宣布停止计票付出重大代价， 历史会告诉我们。
-巴瑞：
-在凌晨4点，乔拜登在某些选区的得票比其他选区大得多。
-一个晚上，他没在任何地方达到自己的目标，但是凌晨4点，神奇又正确的数字出现，完全不成比例的高， 里面95％的票投给了乔拜登。
-在我职业生涯中，见没见过这么大的规模，在这么高的级层，出现这样的情节。
-他们告诉我们第二天继续开票，但凌晨4点不是第二天。计票必须公开地做。
+This year marks the 100th anniversary of the decisive Polish victory against Vladimir Lenin’s Bolsheviks in the Battle of Warsaw.  Known as the Miracle on the Vistula, the Polish heroes of this battle halted the spread of communism in Europe for decades.  Sadly, the Soviet Union erected an Iron Curtain around Poland and spread communism to neighboring countries and around the world.  Since then, the United States and the free world have borne witness to the horrors of communism, including Chinese prison camps and Soviet gulags.  Over the last century, communist regimes from Cambodia’s Khmer Rouge to Ethiopia’s Derg have confirmed the soul-crushing oppression inherent in Karl Marx’s philosophy.
 
-班农：郭文贵说过：「社交媒体绝对是一种武器」，基本上川普总统发的每条推文都被推特限制了，美国的防火墙比中国的还狠。总统现在就应该给司法部长巴尔打电话，今天就逮捕推特老板杰克多西。我知道会有这么一天，一些像杰克多西这样的流氓，要压制总统的言论自由。
+今年是波兰在华沙战役中战胜弗拉基米尔·列宁的布尔什维克的决定性胜利100周年。被称为维斯瓦奇迹的波兰英雄们在这场战斗中阻止了共产主义在欧洲的传播长达几十年。令人遗憾的是，苏联在波兰周围竖起了铁幕，并将共产主义传播到邻国和世界各地。自那时起，美国和自由世界见证了共产主义的恐怖，包括中国的监狱集中营和苏联的古拉格人。上个世纪以来，从柬埔寨的红色高棉到埃塞俄比亚的德尔格的共产主义政权都证实了卡尔·马克思哲学固有的灵魂压迫。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11125546/WH_20201107_Victims_of_Communism-figure1-scaled.jpg)图片来源：Photo by [Nick Fewings](https://unsplash.com/@jannerboy62?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/victims-of-communism?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText)
+Still today, we observe the irony of “People’s Republics” that belong not to the people, but to one-party and that exist only for the benefit of a select few.  Over and over, communism and socialism have proven to be irreconcilable with the unalienable and fundamental rights of life, liberty, and the pursuit of happiness.  While Marxism promises equality, peace, and happiness, in practice it results only in inequality, violence, and despair.
 
-卡森宣读3封川普被禁推文：
-1：昨晚我还在很多州领先，都是民主党主政的州，然后我的优势一个个神奇地消失了，令人惊奇的选票也算进去了，非常奇怪。 民调机构完全弄错了，而且是历史性的错误。
-2：为什么每次统计邮寄选票时，它们的百分比和破坏性都如此之大？
-3：这是怎么回事？拜登突然多出12.8万多票，昨晚从密歇根扔进来的。
+时至今日，我们仍然看到“人民共和国”的讽刺意味，这些“共和国”不属于人民，而是属于一党制，只为少数人的利益而存在。共产主义和社会主义一次又一次被证明与不可剥夺的基本权利——生命、自由和追求幸福——是不可调和的。马克思主义虽然承诺平等、和平与幸福，但实际上只会导致不平等、暴力和绝望。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11125612/WH_20201107_Victims_of_Communism-figure2-scaled.jpg)图片来源：Photo by [Steve Harvey](https://unsplash.com/@trommelkopf?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/victims-of-communism?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText)
+On this National Day for the Victims of Communism, we commit to standing against this insidious ideology, and pledge with great pride that the United States will never be a socialist nation.  We memorialize all those who have lost their lives to communism and recommit to promoting freedom so that future generations can flourish.
 
-麦金利：
-川普阵营需要提出精准的数据和分析支持计票异常的存在；所有陈述必须具备高度可信度，否则会让拜登阵营翻桌。好的数据很重要，否则是盲目飞行。
-费城已经停止计票，应该邀请第三方人士保护选票，这是信心问题，让我们确信重新点的票与停止计票时的票，是相同的一批。
+在这个“共产主义受害者纪念日”上，我们承诺反对这种阴险的意识形态，并自豪地承诺美国将永远不会成为社会主义国家。我们缅怀所有为共产主义牺牲生命的人，并致力于促进自由，以便子孙后代能够繁荣昌盛。
 
-突发：宾州改变截止收件的时间底线。
-巴瑞：
-同意麦金利，没有原始数据，任何努力都是无用的。我们的数据显示川普有相当大的优势，差距会浮动。川普能在大约30万至50万之间获胜。总体川普赢得61% 以上。
-川普昨晚整晚表现出色，展现了赢得优势的能力，在关闭计票程序前， 在马里科帕，川普赢了， 得了超过了61％的选票。
-希拉莉当年在费城获得58.4万，拜登在投票结束前就获得了60万，这里有内情。
-我认为福克斯，一个所谓的右翼组织，一个保守的新闻媒体， 利用亚利桑那州提早宣布结果，来终止计数；中西部陷入僵局，没人再报导任何事，最后出现灌票，直到凌晨4点，我们才得到剩余的选票。这就是他们怎么赢的，这就是整个的玩法。
+[阅读白宫原文](https://www.whitehouse.gov/briefings-statements/presidential-message-national-day-victims-communism-110720/)
 
-班农：
-现在进行全面进攻模式。一定要稳住宾州，亚利桑那州可赢，可行，内华达州艰难，也可行。把计算选票里面的数学做好。行动，行动，行动。
+翻译：【木木ANNA】校对：【重生】编辑：【Isaiah4031】
 
+战友之家玫瑰园小队出品
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01145114/GNEWS-GTV-VOG.png)
 0

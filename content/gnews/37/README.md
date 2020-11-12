@@ -1,79 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 联邦探员胁迫USPS举报人要求息事宁人
-` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/547798/)
+## 【热点播报】乔治亚州务卿宣布该州将重计选票！川普律师强调还需审计！
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/548739/)
 
-内新闻：背靠背
+作者：香草山写作组 正道主义联盟 校对/发稿：飞虹
 
-2020年11月11日，记者詹姆斯·奥基夫（James O’Keefe）公布一段录音，显示因举报选票倒签（非法向前变更邮戳日期）而被联邦探员胁迫，要求他淡化这件事，做到息事宁人。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
 
-联邦探员 “胁迫 “美国邮政举报人霍普金斯淡化故事。霍普金斯加倍…
 
-探员Strasser。”我试图扭曲你一点点”
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11133842/%E5%9B%BE%E7%89%8726.png)
+乔治亚州州务卿布拉德·拉芬斯珀格(Brad Raffensperger)刚刚宣布，该州将对总统大选进行重新计票。他表示，目前仍有4169票未计算完毕，还有8000多张驻外士兵的缺席投票仍在邮递的路上。
 
-“我是在吓唬你”…… “我们有参议员参与……司法部参与…… “他们叫我来的原因是试图利用。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11085252/image-170.png)视频来自记者James O’Keefe推特
-Richard Hopkins（USPS举报人）：他们是烤出来的地狱我
+原本拜登在该州领先川普超过12000票。但该州富尔顿县的13万2000张选票是不合格选票，而这种情况或将直接导致川普在该州翻盘。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11133823/%E5%9B%BE%E7%89%8727.png)
+支持川普的大律师林肯伍德认为， 仅仅在乔治亚州进行手工重新点票是不够的 ！他推文强调：必须要进行审计确保只有合法选票可以被计算。
 
-James O’Keefe：你现在感觉如何？我有点生气，我觉得我只是去玩。
 
-（2020年11月5日视频）
 
-Richard Hopkins：我听到他对主管说，他们昨天搞砸了。在他们搞砸了昨天，我当时，所以，我很喜欢，哦，他们搞砸了什么？他告诉主管，他们把其中一张选票的邮戳是11月4日而不是3日，因为他们应该把它们放在11月3日。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
 
-（宾夕法尼亚州伊利市邮局的举报人在联邦调查局的审讯中被骗了。）
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-（联邦探员录音, Russell Strasser美国邮政总局办公室）
-
-Russell Strasser：所以，让我，让我兑现这个承诺的时候了。越来越疯狂了，对吧？叫我来是为了控制暴风雨，在它变得疯狂之前把它收回来。
-
-Richard Hopkins：我明白了。
-
-Russell Strasser：因为我们有参议员参与，我们有司法部门参与，我们有。
-
-Richard Hopkins：特朗普的律师团队找到了我。
-
-Russell Strasser：我不是，其实我是想扭曲你一下，因为不管你相信与否你的头脑会踢。
-
-Richard Hopkins：好吧。
-
-Russell Strasser：我们喜欢控制自己的思想，当我们这样做的时候，我们可以说服自己的记忆，但是，当我们这样做的时候，我们可以说服自己的记忆。你有一点压力，这就是我对你做的事，你的头脑可以更清醒一点，也可以更有信心。我们也要做一个不同的练习，让你的头脑更清晰一点，所以，这都是故意的。
-
-Richard Hopkins：明白。
-
-Russell Strasser：我不是在吓唬你，而是在吓唬你。
-
-（联邦探员录音结束）
-
-Richard Hopkins：似乎他们想让我不信任你们（Veritas项目）。同时，它，有点影响。我当时想是这些人(Veritas项目)从一开始就支持我，所以这就是我为什么要继续下去的原因。
-
-James O’Keefe：你认为这些联邦探员会支持你吗？
-
-Richard Hopkins：在这一点上，没有。
-
-James O’Keefe：你认为这些联邦探员真的有兴趣调查欺诈吗？
-
-Richard Hopkins：老实说，我不认为他们有兴趣。
-
-James O’Keefe：事实上,你听到我们Rob Weisenbach告诉一个主管,他们在回溯选票的时间。让他们看起来会在11月3日领到选票,你还坚持这个说法吗？
-
-RICHARD HOPKING:是的。
-
-James O’Keefe: 是的。
-
-（视频结束）
-
-USPS举报人Richard Hopkins不仅被联邦探员胁迫，稍早前，他还因为举报而被USPS打压，无薪休假。
-![Image](https://pbs.twimg.com/media/Emg0eu0XYAMi3Km?format=jpg&amp;name=900x900)图片来自记者James O’Keefe推特
-Richard Hopkins是一名有家室的退伍军人，被美国邮政停职，于是他成立了一个GoFundme来养活女儿。GoFundme页面被停用了。他不会看到1美元的13万筹集。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11111707/image-175.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11111744/image-176.png)
-川普总统称他是一位勇敢的爱国者。越来越多的人站出来揭露这个被操纵的选举!
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112601/image-179.png)
-这还没完，尽管举报人Richard Hopkins视频声明自己没有撤诉。但CNN，Washingtonpost等媒体公开撒谎，关于Richard Hopkins的假消息满天飞。
-
-美国众议院监督与改革委员会报道也失实。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11114034/image-180.png)
-这与中共CCP惯用路数如出一辙，搞坏意见者名声，断财路，最后肉体摧毁。
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上8:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
