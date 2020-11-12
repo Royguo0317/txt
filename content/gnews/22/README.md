@@ -1,26 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 此酒必能灭中共！
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/551108/)
+## 11/12 财经快讯: 贝莱德 (Black Rock) 提前布局美国大选, 中共抖音逃窜欧洲
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/551066/)
 
-作者：喜相逢
-编辑：Giselle
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12085106/9a4f32a7-be15-4604-9b9d-85ad2c8a0d9d-1.jpg)
-文贵先生最近推出的几首单曲，无疑是高效“洗涤剂”，每一个音调、每一个字节、每一秒钟，都在洗刷着人们大脑深处隐藏的CCP毒素。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12085439/Picture59.png)图片来源：[https://web.whatsapp.com](https://web.whatsapp.com/02c46c52-1474-42ea-b6ec-6bd80f3b2021)
+1, 标普500指数和纳斯达克指数上涨，投资者买入的科技股本周被打压，道指收平。大盘指数收涨0.8%，报3,572.66点，纳斯达克指数跳涨2%，报11,786.43点。道琼斯工业平均指数–本周初的中坚力量–陷入困境，下跌23.29点或0.1%，至29,397.63点。
+[https://www.cnbc.com/2020/11/10/stock-market-futures-open-to-close-news.html](https://www.cnbc.com/2020/11/10/stock-market-futures-open-to-close-news.html)
 
-文贵先生的每一首歌声里面，都是不断迸发的火花和肆意绽放的画面。这首《酒灭中共》让我第一次感受到，中华传统音乐里激情澎湃、对生活充满热爱的一面，感受到了中华传统音乐的魅力。
+2, 欧佩克周三表示，由于冠状病毒病例上升，全球石油需求在2021年的反弹速度将比之前想象的要慢，阻碍了该组织及其盟友支持市场的努力。
+[https://mobile.reuters.com/article/amp/idUSKBN27R1S9?\_\_twitter\_impression=true](https://mobile.reuters.com/article/amp/idUSKBN27R1S9?__twitter_impression=true)
 
-这首歌初听的感觉就是“真辣”！开头的击鼓唢呐，让人想起黎明刺破黑暗，在黄土地上，在高原刺眼的阳光里，在湍急的黄河边，这一口酒下喉，那种“燃爆”的感觉。撕下皇帝愚蠢的新衣，撕下这帮“天天搞双休”孙子的邪恶面纱，撕开人民心中不断增长的心霾，撕掉“和谐小康社会”假恶丑的外衣……这些歌词，揭露了被中共强奸71年的中国人民的痛苦，当这些真相被唱出来的时候，就像喝酒上头的人，感觉到脸上是火辣辣的，就像这三年来，每一次知道真相，都像是狠狠打在脑袋上的一巴掌。
+3, 顶级资产管理公司贝莱德BlackRock Inc 周一在美国大选前下调了美国国债的评级，并上调了与通胀挂钩的同类债券。并在一份研究报告中说, 采取这一步骤是出于战术上的原因。
+[https://www.oann.com/blackrock-downgrades-u-s-treasuries-ahead-of-election/](https://www.oann.com/blackrock-downgrades-u-s-treasuries-ahead-of-election/)
 
-这首歌再听的感觉就是“真香”。可以聚集五湖四海的英雄，把民众内心深处最“真”的一部分激发出来。这碗酒喝得辣乎乎以后，才真正可以体会到第一段歌词的醇香之处，“看破中共假恶丑”， “豪气涌上心头”，心霾一扫而光， 酒里面的自由，带着所有的人在莘县、阳谷田野里尽情地奔跑！
+4, 巴西政府周二支持美国的清洁网络的建议，建立一个全球数字联盟。美国政府认为中共政府操纵的技术，巴西将其排除在联盟之外。
+[https://www.oann.com/brazil-backs-u-s-clean-network-proposal-for-transparent-5g-technology/](https://www.oann.com/brazil-backs-u-s-clean-network-proposal-for-transparent-5g-technology/)
 
-英雄一曲《酒灭中共》，让斑白头发的人知道激情在世仍有人懂，战友们从不孤独。滴酒未沾人已醉，身心的双重震撼无以言表。文贵先生鏖战邪魔恶党，送所有人这碗酒，干了它，一起战斗！全曲充满了战斗的力量。让我们所有的战友一起舍去爱恨情仇，抛掉过去，传播真相，为自由， 为子孙，为未来，敬天，敬地， 敬战友，灭中共， 不赢不休！
+5, 中资社交媒体TikTok要求联邦上诉法院废除特朗普政府要求该公司剥离在美业务的命令，TikTok的中国母公司声称该命令侵犯了其宪法权利。
+[https://www.breitbart.com/tech/2020/11/11/tiktok-requests-court-block-trump-order-forcing-sale-of-u-s-operations/](https://www.breitbart.com/tech/2020/11/11/tiktok-requests-court-block-trump-order-forcing-sale-of-u-s-operations/)
 
-《酒灭中共》下载链接：
+6, TikTok周三表示，到2021年初，其在爱尔兰的员工数量将从1月份的仅20人增加到1100人，爱尔兰外国投资机构表示，这一扩张速度是有记录以来最快的之一。
+[https://mobile.reuters.com/article/amp/idUSKBN27R1D7?\_\_twitter\_impression=true](https://mobile.reuters.com/article/amp/idUSKBN27R1D7?__twitter_impression=true)
 
-[https://music.apple.com/au/album/drinking-down-the-ccp/1537745677?i=1537745678](https://music.apple.com/au/album/drinking-down-the-ccp/1537745677?i=1537745678)
-
-(文章内容仅代表作者观点)
+By 【秘翻组 – 金融法律团队】
 
 0
