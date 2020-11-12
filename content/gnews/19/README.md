@@ -1,45 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】朱利安尼：多州愿出庭证人成千上万！密西根州数据再爆大选欺诈罪证！
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/549302/)
+## 【路德社精选】11/8/2020 晚间节目
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/548274/)
 
-**作者：香草山写作组  正道主义联盟**
+听写：坤哥 校对:瓦者 简介：恩真 文宣图：艾伦 出品：首尔喜韩农场
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
+简介：
 
+1.各州法律行动将让大选反转。
 
+2.选票作假是刑事犯罪。
 
+3.大选造假非常明显川普翻盘很容易。
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11205429/cc.png)
-川普总统私人律师朱利安尼先生11日视频证实：已经有充分证据证明大选舞弊，有成千上万名证人愿意宣誓作证！里面有各种舞弊情况存在，比如死人幽灵票，比如更改邮件日期等等，其中密西根州就有多达200人已经宣誓愿意出庭作证！
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11205436/xxx.png)
-而据网媒统计，爆出密西根注册的选票数量多出243933张，超过100%！
+4.川普没有退路只能灭共。
 
-根据现在密西根州人口总数是1,045,000，超过18岁有选票资格的是78.5%，按照比例核算，投票注册人数最多为7,885,325人！可是实际投票人数据出来的是8,129,280人！
+5.大选时中共把蓝金黄都放了出来。
 
-可见多出可疑选票：243，933张！
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11205446/zzz.png)
-根据此前《福克斯新闻》报导，密西根州安特里姆郡（Antrim）的一位官员发现了计票系统出现异常，依照过去经验，当地居民川普的支持者较多，但拜登的票数却异常窜升，经手动计票发现，有6000张投给川普的选票竟都被计到了拜登的得票数，当地也提出新数据，最后川普以以9783票击败获得7289票的拜登。
+6.现在是社会主义与自由民主法治的决战。
 
-对此，密西根州共和党主席考克斯（Laura Cox）表示，虽然安特里姆郡已更新了最新数据，但至少还有其他47个郡都是使用同一套计票系统，目前已找来软体的制作公司配合查明，但尚未找出原因，同时也将对选举结果提出质疑，盼能重新检视。
+7.川普总统彻底看清必须灭共。
 
-此外，据《福克斯新闻》记者调查发现，除了密西根州有在使用这套“Dominion”计票系统，全美至少有30州也在使用，就连主要的摇摆州的部分郡县都包括在内，因此选举结果的正确性也遭到质疑。
+8.这次大选如果被窃取未来都不会有公正的大选。
 
-另外，依据各州政府官网统计，在美国29州353个县，注册选票人数均超过100%！全美共多出选票180万张的巨大假选票欺诈嫌疑，至今没人能够给出合理解释！
+9.如果拜登当选一定会默认中共打台湾。
 
-审核：悟空
+10.不管怎样新中国联邦始终和台湾人民在一起。
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+11.我们要坚定的和川普总统在一起。
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+12.爆料革命走在历史前面影响世界。
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，纽约时间周日至周四晚上9:00，美国志愿者在纽约香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+13.美国民众忍受不了选票造假。
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
+14.如果更多州翻盘中共会做出刺激性反应。
 
+15.亚利桑那州计票软件修复后选情反转。
 
-
+文宣图：
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105347/1-50.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105431/2-80.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105314/3-53.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105340/4-28.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105339/5-26.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11111028/6-29.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11111109/7-16.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112456/8-16.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112517/9-12.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112517/10-11.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112839/11-11.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112848/12-3.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11211826/13-6.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11211827/14-3.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11211841/15-7.png)
 
 
 0
