@@ -1,20 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 警惕中共用假疫苗圈钱
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/549710/)
+## 这些国家居然敢在人权问题上抨击美国
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/549820/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11235559/vaccin.jpg)
-昨日路德社爆出辉瑞公司这个时候宣布研制出预防中共病毒的疫苗，其中肯定有猫腻。今天早上文贵先生也确切地说，疫苗没有用。
+翻译：康州农场-黎明的光芒
 
-其实大家都知道辉瑞公司，福奇是里面的投资顾问之一，此人为了给公司创造更大利益，他和中共早就勾兑在一起，明眼人一看就是他们利用全世界人们对中共病毒的恐慌，病急乱投医的心理，会花巨资购买他们的所谓疫苗，这样达到他们圈钱的目的。
+校对：康州农场-Mike Li
 
-我们的英雄科学家闫博士几个月前就说过，中共病毒没有解药，它的毒株不断在变异，研究出疫苗要很长时间，就算你好不容易研究出初期的疫苗，后面毒株又变异了，你根本就赶不上它的速度。而且闫博士说目前早期预防和控制的最有效的药非羟氯喹莫属。为什么没有人站出来大力宣扬和制造，就是因为价格便宜，无利可图。如果全世界的人都用便宜的药，那么中共及其勾兑者他们花大代价制出来的药就失去了价值，更谈不上他们达到圈钱的目的。
+审核：康州农场-Truemanman
+![Chinese leader Xi Jinping is holding more than a million Uighurs in &quot;re-education camps,&quot; yet China's UN envoy accused the US of human rights abuses.]()![Chinese leader Xi Jinping is holding more than a million Uighurs in &quot;re-education camps,&quot; yet China's UN envoy accused the US of human rights abuses.](https://nypost.com/wp-content/uploads/sites/2/2020/11/Election_2020_Anxious_Leaders_Xi-Jinping.jpg?quality=90&amp;strip=all&amp;w=618&amp;h=410&amp;crop=1)
+中共国领导人习近平将超过一百万维吾尔人关押在 “再教育营”，然而中共国的联合国特使却指责美国侵犯人权。
 
-所以我们的战友要不断说出真相，让世人知道这是中共和与其勾兑的美国黑暗势力的又一阴谋，我们坚决不能让他们得逞。建议英文好的战友要快快地向全世界说出事实以免更多的人受骗。
+在星期一的联合国人权理事会会议中，来自世界上一些最严重侵犯人权的国家的联合国特使应该好好照照镜子，因为他们把美国的侵犯人权行为炒得沸沸扬扬，认为这种现象比他们自己国家更为普遍，更为恶劣。
 
-by 金色苹果
+中共国（是的，中共国）滔滔不绝地提出了涉及一系列主题的话题，包括宗教歧视和对“人民生命和健康的权利”的尊重。
 
-【以上内容只代表作者个人观点】
+这是中共国的黑色幽默吗？北京把超过一百万维吾尔人关在 “再教育营 “里，那里出现了酷刑、强迫妇女绝育和其他控制人口方法的证据。中共国人听起来像是在《反面世界》里。
 
-0
+他们还要求政客们停止 “将COVID-19政治化和污名化”，虽然这个可以理解: 中共国一直在隐瞒关于冠状病毒(起源于中共国)及其在全球传播病毒中的作用的关键信息，它肯定是想转移世界的注意力，而不是被追究责任。
+
+俄罗斯也提出了一个贻笑大方的提议。他要求美国 “保证媒体的言论自由” 并停止 “干涉国际内部事务”。这是从一个毒害过记者和干涉过许多其他国家政治的政权，特别是包括2016年美国大选的政权口中说出的。
+
+同时，巴基斯坦也抨击美国的宗教不够宽容，经常迫害少数宗教群体。部分由哈马斯恐怖分子控制的黎巴嫩抨击美国的 “武装暴力”。支持恐怖主义的伊朗发言反对 “任意杀戮”。
+
+还有人认为川普总统退出这个理事会是错误的吗？
+
+原文链接：
+
+[https://nypost.com/2020/11/11/these-nations-have-some-nerve-to-bash-america-on-human-rights/](https://nypost.com/2020/11/11/these-nations-have-some-nerve-to-bash-america-on-human-rights/)
+
+1+

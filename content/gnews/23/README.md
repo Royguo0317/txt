@@ -1,31 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 武汉肺炎的歧视
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/549632/)
+## 投票软件公司爆料人站出来，声称他们的软件改变了3800万张选票&#8211;窃取了选举
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/549727/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
+![Georgia receives bids for $150 million voting system](https://www.ajc.com/resizer/gFzwDmx0E4w0CmtpeONLKkYcSv8=/1066x600/cloudfront-us-east-1.images.arcpublishing.com/ajc/K53XPA2QFDNWYD5F5VDZJGLDKU.jpg)
+翻译：康州农场-郑彬
 
+校对：康州农场-MikeLi
 
+审核：康州农场-Truemanman
 
-作者：香草山写作组 程万里
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11225522/11124.png)
-笔者不是太喜欢讨论歧视这个话题，如果别人歧视我，那是他的问题，我感受到了歧视那是我的问题了，而有人却不那么想，他们想的就是：“你歧视我，有没有考虑到我的感受，我很受伤哎，我难受你不知道吗？你该给我道歉！”。
+投票软件公司 “Dominion “的三名员工（其产品在近期选举过程中在美国多个州被广泛使用。）已经站出来，并揭发了其公司通过投票软件进行的公然的选举欺骗行为。
 
-但这件事还是发生了：笔者做了一个关于新冠肺炎防疫研究报告，突然发现一帮同学认为歧视他们，说什么身为一名中华人民共和国公民，失去了做人良心，要我向他们和老师道歉。理由就是不能使用武汉病毒这个词，更不能讲别国防疫做的好？我就不明白了，武汉病毒叫歧视，非洲猪瘟叫不叫歧视，大陆人天天骂日本鬼子，美国鬼子，韩国棒子叫不叫歧视？只准予你骂别人骂全世界，不许别人说句实话？总以为站在了道德的制高点，殊不知别人怎么看你，受歧视是自己找的，他人哪有时间和精力浪费在歧视你身上。
+他们证词的关键：软件调换了或直接删除了3800万张选票。
 
-身为博士被阉割了思想分不清是非，上帝给你开了扇窗却感受不到民主自由之珍贵，井底之蛙到了全世界还背着井？收到你们的威胁我感受不到一点点的害怕和恐惧，感受的却是悲凉和憎恨。我悲凉的是你们阉割的思想，悲凉的是拥有了学历却还是草包；我憎恨CCP怎么把你们洗成这样，憎恨CCP把控着14亿却意欲绑架全世界，更憎恨CCP的滥杀无辜并制造病毒撒向全世界。房贷车贷压迫的还不够，病毒，蝗虫，洪水，天灾人祸接踵而至，还有时间来研究下自己有没有被歧视，玻璃心都碎了一地还不知道怎么找回吗？
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11225606/11125.png)
-TAKE DOWN CCP 的声音已经响彻了在中华大地上了，听不到吗？新中国联邦的旗帜已经在世界迎风飘扬，看不到吗？我们的国民啊，唤醒你们比消灭CCP 还难！我的兄弟姐们，你们就不能睁开眼睛看下外面的世界吗？亲爱的博士生们，醒醒吧别再沉睡了，用你们的逻辑来推导下真实是什么吧！
+根据情报部门的消息，通过Dominion软件调换选票是民主党选择的第一件武器。邮寄选票是他们的第二件武器。这就是为什么他们暂停了选举当晚的所有计票工作，因为软件没有给他们带来预期的结果， 于是他们在凌晨4点钟让货车送来整车的预先填好的选票。
 
-审核：浪迹天涯
+总统的私人律师鲁迪-朱利安尼说，三名爆料人已经站出来，愿意宣誓作证，说明到底发生了什么。
+![Giuliani Says Dominion Voting Software Whistleblowers Soon To Reveal Mass  Election Fraud – \[your\]NEWS](https://yournews.com/wp-content/uploads/2020/11/Screen-Shot-2020-11-11-at-12.24.56-PM-1024x577.png?x98855)
+我们即将看到的是美国历史上最大的丑闻的证据：企图窃取总统职位，并使数以百万计的公民选票作废的犯罪行为。
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+原文链接：
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-
+[https://halturnerradioshow.com/index.php/en/news-page/news-nation/voting-software-company-whistleblowers-come-forward-claim-their-software-changed-38-million-votes-stole-election](https://halturnerradioshow.com/index.php/en/news-page/news-nation/voting-software-company-whistleblowers-come-forward-claim-their-software-changed-38-million-votes-stole-election)
 
 0

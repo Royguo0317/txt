@@ -1,45 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德社精选】11/8/2020 晚间节目
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/548274/)
+## “政治动物”福奇推出的疫苗，你敢用吗？
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/549404/)
 
-听写：坤哥 校对:瓦者 简介：恩真 文宣图：艾伦 出品：首尔喜韩农场
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11214154/2-83.png)
+根据安德鲁·特兰斯基（Andrew Trunsky）在《每日传讯》 (The Daily Caller)的报道，川普政府的中共病毒工作组成员斯科特·阿特拉斯 (Scott Atlas)博士，作为团队具有很大影响力的人物之一，他与安东尼·福奇 (Anthony Fauci)的资历有很大不同。
 
-简介：
+斯科特博士周二晚上公开批评福奇，称他是 “政治动物”，指责他在CCP病毒问题上的态度前后不一，而他恰恰选择在大选日推出疫苗改变对疫情的看法，其真实目的是为了打击川普总统。
 
-1.各州法律行动将让大选反转。
+对疫苗面市时间以及辉瑞 (Pfizer)公司所谓疫苗90%以上有效，斯科特博士表示，这些言论都是针对总统的，这些政治动物为了利益已毫无信誉可言。
 
-2.选票作假是刑事犯罪。
+斯科特博士的言论与川普总统不谋而合，上周川普总统批评了福奇，并希望在大选日后解雇福奇。
 
-3.大选造假非常明显川普翻盘很容易。
+评论： 福奇在有证据证明羟氯喹对中共病毒有效的情况下，仍故意管控打压羟氯喹草菅人命。大选日后却突然传出疫苗问世的消息，然而该疫苗的有效性非常令人怀疑，因为疫苗选择在这个时候问世的本质是帮拜登作势，目的还是冲着总统来的，让川普总统难堪。福奇和辉瑞公司为了各自的目的，联手推出所谓的疫苗，导致大量人群对病毒防护掉以轻心。
 
-4.川普没有退路只能灭共。
+大家不要上当受骗，不要成为政治的牺牲品，相信闫丽梦博士用生命发出的忠告：治疗和预防中共病毒的最有效最廉价的药品就是羟氯喹。
 
-5.大选时中共把蓝金黄都放了出来。
+翻译报道： Chris
 
-6.现在是社会主义与自由民主法治的决战。
-
-7.川普总统彻底看清必须灭共。
-
-8.这次大选如果被窃取未来都不会有公正的大选。
-
-9.如果拜登当选一定会默认中共打台湾。
-
-10.不管怎样新中国联邦始终和台湾人民在一起。
-
-11.我们要坚定的和川普总统在一起。
-
-12.爆料革命走在历史前面影响世界。
-
-13.美国民众忍受不了选票造假。
-
-14.如果更多州翻盘中共会做出刺激性反应。
-
-15.亚利桑那州计票软件修复后选情反转。
-
-文宣图：
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105347/1-50.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105431/2-80.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105314/3-53.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105340/4-28.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105339/5-26.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11111028/6-29.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11111109/7-16.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112456/8-16.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112517/9-12.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112517/10-11.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112839/11-11.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112848/12-3.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11211826/13-6.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11211827/14-3.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11211841/15-7.png)
-
+[原文链接](https://dailycaller.com/2020/11/11/scott-atlas-attacks-fauci-raising-tensions-coronavirus-task-force/)
 
 0

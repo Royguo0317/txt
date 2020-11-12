@@ -1,21 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 墙倒众人推，开启全民爆料万箭齐发共产党！
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/549189/)
+## 【路德社精选】11/8/2020 晚间节目
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/548274/)
 
-作者：楼兰古城
+听写：坤哥 校对:瓦者 简介：恩真 文宣图：艾伦 出品：首尔喜韩农场
 
-我们生活在一个极权的时代，一个社会主义乌托邦！当年俄国列宁时期还属于中央集权专制官僚集团，最高权力在党内官僚手中。他想拿但是一些性格原因，才能原因，也没什么马克思魔性，毕竟马克思只是夺权的幌子，极权在在社会上并没有成型，但是他干了哪些坏事，我们来盘点一下：第一他搞了打土豪分田地，第二构建少数民族提高民族意识。这个时候就是多了一个官僚阶级，阶级斗争并不一定产生，而阶级斗争是过去欧洲资本主义的特征。
+简介：
 
-搞极权主义是从斯大林开始的，清除有产者，搞阶级斗争，用农民阶级干掉其它阶级最后反手对付农民阶级，对付农民也是最狠的，比如制造灾荒，驱逐出境等，在30年代初完成了清除中产阶级和农民阶级，秘密警察随时执行效忠领袖的刺杀威胁执政的人员，死亡不计其数，你的生命存活只是斯大林的兴致而已！他们信奉一条：任何一个阶级，只要它的成员被杀害的数字足够到一定程度．它就可以被消灭。因为没人敢反抗了，因为他们只能被奴役。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11195352/%E4%BD%A0%E5%87%86%E5%A4%87%E5%A5%BD%E4%BA%86%E5%90%97.jpg)
-当斯大林要深化极权的时候，估计苍天开眼了，斯大林的生命被终结了，更大的杀人和没收资产的计划没有实现，他也看不到了，一代魔头魂归地狱！
+1.各州法律行动将让大选反转。
 
-中国共产党集合天下至邪之力，一个怪胎。所以他必须用假丑恶去构建一个乌托邦式的国家。它的出生是假的，日期是假的，堪比一个杂种说自己出身名门望族；三年大丰收说成三年饥荒就是为了杀人，亩产万斤更是天方夜谭，共产党喜欢撒下弥天大谎，如果你不信就进行关押和杀害，留下的都是待宰的羔羊，不是被双修就是被奴役，盗国贼永远想的是自己在外面的野种如何得到更多的钱和如何压榨剥削到最后一个铜板！从毛的价值取向来看，凡被毛说成革命的，也必然都是伪革命，真实目的就是杀人夺权并且诛心！
+2.选票作假是刑事犯罪。
 
-“消灭AB团“，“富田事件”，“红军长征”以及子虚乌有的“飞夺泸定桥”，什么十里山路扛200斤麦子不换肩，我看2克都没有。邓小平的猫论，习近平的鞋论，江的三个婊，胡的不科学观，都是巩固权利，控制奴役百姓的抓手，海外蓝金黄的资金往来，公开和私下活动的交集，
+3.大选造假非常明显川普翻盘很容易。
 
-迫害和灭口的罪证，盗国贼的狂妄和傲慢必然逃不过达摩克利斯之剑的宰杀！  盘根错节的共产党里面有多少黑暗，知道的或者经历的都把它挖出来，扫盲一样让文盲识字，让无知的知道共产党的真相，全民爆料，打破防火墙，开启中国人人爆料的海洋，把共产党埋葬到海底深处。墙倒众人推，移动互联网时代，让共产党起于湖上小船，亡于爆料大海。
+4.川普没有退路只能灭共。
 
-2+
+5.大选时中共把蓝金黄都放了出来。
+
+6.现在是社会主义与自由民主法治的决战。
+
+7.川普总统彻底看清必须灭共。
+
+8.这次大选如果被窃取未来都不会有公正的大选。
+
+9.如果拜登当选一定会默认中共打台湾。
+
+10.不管怎样新中国联邦始终和台湾人民在一起。
+
+11.我们要坚定的和川普总统在一起。
+
+12.爆料革命走在历史前面影响世界。
+
+13.美国民众忍受不了选票造假。
+
+14.如果更多州翻盘中共会做出刺激性反应。
+
+15.亚利桑那州计票软件修复后选情反转。
+
+文宣图：
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105347/1-50.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105431/2-80.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105314/3-53.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105340/4-28.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105339/5-26.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11111028/6-29.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11111109/7-16.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112456/8-16.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112517/9-12.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112517/10-11.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112839/11-11.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112848/12-3.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11211826/13-6.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11211827/14-3.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11211841/15-7.png)
+
+
+0

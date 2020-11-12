@@ -1,57 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 习江利刃对准了彼此
-` Wenxiu` [轉載自GNews](https://gnews.org/zh-hans/549151/)
+## TIKTOK用户恶搞川普开设的选民欺诈热线
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/549245/)
 
-作者：Afra
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11192531/%E6%8D%85%E5%88%80169.jpg)
-中共10日开始大张旗鼓宣扬遏制“互联网垄断”，实质是习江战已经白热化，进入到金融这个核心领域。 习派掌权集团通过对现有互联网巨头的一系列调查制裁，给江氏集团断血，最终绞杀江氏集团。而马云马化腾这些“白手套”们很快将迎来“王健”的命运。
+*新闻来源：《布赖特巴特》BREITBART；作者：卢卡斯•诺兰（LUCAS NOLAN）；发布时间：2020年11月11日*
 
-习江战白热化早有端倪。10月24日，马云外滩演讲称中国金融没有“系统性风险”， 因为中国金融就没有“系统”，直接反驳当日王岐山的讲话。 然后当地时间11月3日晚蚂蚁金服香港、A股上市被紧急叫停，紧接着中共国家市场监管总局在11月10日早间发布了《关于平台经济领域的反垄断指南（征求意见稿）》，声称是为预防和制止平台经济领域垄断行为，引导平台经济领域经营者依法合规经营，促进线上经济持续健康发展针对互联网平台的反垄断指南出台。
+*翻译/简评：Dreamer文童；校对：感恩；审核：海阔天空 ；Page：Connor54*
 
-众所周知，中共国互联网巨头都是通过中共政府授意的垄断地位才得以迅速发展壮大的。这一出“贼喊捉贼”的新把戏，其实是习派掌权集团需要江派让利。虽然大多互联网巨头早已与新集团暗通款曲，但江派的力量仍然掌控核心利益。
+[!\[\]()!\[\](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/9296be5f-2378-4d0b-ad3e-72d829e47d29.jpg?asset_id=5442cc63-f022-4775-b7e4-07487443853d&amp;img_etag=%22cf1f861023d9827e5dd013a72d27d605%22&amp;size=1024)](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/9296be5f-2378-4d0b-ad3e-72d829e47d29.jpg?asset_id=5442cc63-f022-4775-b7e4-07487443853d&amp;img_etag=%22cf1f861023d9827e5dd013a72d27d605%22&amp;size=1024)
 
-此外，本次美国大选中所有互联网平台在华尔街的控制下，站到现有政府的对立面，也让中共掌权者不寒而栗，整治“独占鳌头”和握有话事权的互联网平台成为迫在眉睫的大事。
+**简评：**
 
-“反垄断”外衣掩盖下的财富掠夺大戏
+此次美国大选投票和计票过程中出现各式各样光怪陆离的舞弊现象，川普总统竞选团队因此而设立选民欺诈热线，以搜集舞弊证据，用于后续调查。然而， Tiktok用户几乎在热线号码公布的同时，就已经开始恶作剧地拨打热线电话，并将恶作剧拨打热线的视频发布在Tiktok上，暗示其他用户也都拨打类似恶作剧电话，其目的就是阻塞线路，使得真正想举报选举欺诈的人们无法接通热线。
 
-中国拥有世界上最多的互联网用户（拥有9.04亿网民），但并未将市场开放给全球互联网企业，而是通过构建防火墙，将美国知名互联网公司挡在国门之外从而扶植内部企业崛起并迅速发展壮大。在中共国从来没有企业的垄断，只有中共党的专制独裁垄断。
+Tiktok是被来自中共资本所控制的应用程序。此前出于国家安全因素考虑，川普政府签署一项行政命令禁止在美国使用Tiktok，但后来被美国地区法院授予临时禁令而被叫停。目前，Tiktok用户这种戏弄选民欺诈热线的恶作剧，严重影响了川普总统竞选团队调查选民欺诈的程序，这是对美国大选的公然挑衅，也是中共干涉美国内部选举的又一例证。
 
-为什么互联网行业在此时成为“反垄断”对象？
+![]()![](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/ae969cad-4719-4424-a8f9-327b7b8d0fe3.jpg?asset_id=a42284da-da78-457f-b6f7-4d0a66c642f2&amp;img_etag=%2212b35e063ba2632cdc01b754d04597f1%22&amp;size=1024)
 
-根本的原因在于现有习派掌权集团，并不掌握互联网行业的核心利益。习近平近年来通过一系列“反腐”手段，通过党内清洗，扶植“自己人”，有消息称，自去年年底习近平已将多名多年栽培的新人提升至部级待遇，这些“自己人”需要新的利益来“供养”；
+**Tiktok用户恶搞川普开设的选民欺诈热线**
 
-其次，自中美贸易战以来，国内经济受到严重打击，尤其在“中共病毒”疫情爆发以来，互联网行业已成为最后一块“肉骨头”，成为利益集团争抢的对象；
+![]()![](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/2c1b131a-c297-4026-9d3c-90a910fb173f.png?asset_id=f2812726-60e6-4c1a-984b-b25d0800ad4f&amp;img_etag=%22ad2b23222ce239e112195f2b16ed2405%22&amp;size=2560)
 
-第三，近年来，针对微信、抖音的问题海外市场已开始对中共互联网巨头有所防范，这些巨头“树大招风”，从海外盗取技术和资本已越来越困难；
+抖音（TikTok）用户已经开始在中资社交媒体平台发布视频，展示他们恶作剧地拨打唐纳德•川普总统（Donald Trump）设立的选民欺诈热线，试图堵塞线路。
 
-第四，即便掌权集团无意去争夺这些互联网巨头，也很难在国内扶植新的经济体，这些巨头的触角早已深入到国内民众生活的方方面面。
+NBC新闻报道称，中资社交媒体应用程序抖音（TikTok）上的用户，已经开始恶作剧地拨打川普总统（Trump）连任竞选团队启动的选民欺诈热线，进行虚假陈述和举报，试图堵塞线路。川普总统（Trump）连任竞选团队设立该热线，让人们举报在他们投票站附近的任何可疑活动。
 
-如此看来，所谓的“反垄断”绝非真的“反垄断”，只是新的掌权集团需要建立自己新的“垄断”利益。
+总统的儿子埃里克•川普（Eric Trump）在推特上发布关于该热线的推文，称“帮助阻止压制选民、违规和欺诈行为”。
 
-内斗升级 “马云”们丧钟敲响
+[!\[\]()!\[\](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/66a386e0-6f0c-490d-9e3c-9f2ad28aa192.jpg?asset_id=5133c7fa-4ec1-42c6-a4d4-85953edeedb0&amp;img_etag=%2215de8cf4d1af46876f35032e5df93aea%22&amp;size=3058)](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/66a386e0-6f0c-490d-9e3c-9f2ad28aa192.jpg?asset_id=5133c7fa-4ec1-42c6-a4d4-85953edeedb0&amp;img_etag=%2215de8cf4d1af46876f35032e5df93aea%22&amp;size=1024)
 
-郭文贵先生曾多次提到“马云”们的结局，一定会比“王健”更惨。根据目前外界盛传的“习江斗”日益升级，以及越来越紧迫的“反垄断”形势，不难推断：“马云”们的丧钟已经敲响！
+几乎在抖音（TikTok）用户开始拨打热线举报错误信息的同时，亚历克斯•赫希（Alex Hirsch），迪士尼频道系列剧《地心引力瀑布》（Gravity Falls）制作人，也发布了自己以剧中不同角色的身份拨打热线的视频“我不想告诉任何人该做什么，但如果你想要拨打这个号码，比如说，举报汉堡大盗，我可以根据个人经验确认，这将非常有趣”。
 
-结合马云、马化腾等近两年逐步卸任各自原有职位的情形分析，在未来一段时间，这些互联网企业和大佬们的命运，大概有以下几种可能：
+[!\[\]()!\[\](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/571f0d62-1971-4e90-8e6a-6892f3b50d17.png?asset_id=86b4fa57-f3a6-4318-8bd5-90f5bb945838&amp;img_etag=%2206ed2d53af6b5d7a1c35bec70a33e8f6%22&amp;size=3268)](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/571f0d62-1971-4e90-8e6a-6892f3b50d17.png?asset_id=86b4fa57-f3a6-4318-8bd5-90f5bb945838&amp;img_etag=%2206ed2d53af6b5d7a1c35bec70a33e8f6%22&amp;size=1024)
 
-一、中央迅速启动反垄断调查，各大互联网巨头因行业“垄断”面临巨额罚款和一系列处罚，甚至罚没资产，掏空利益；
+![]()![](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/ef601268-8ae1-4178-9d55-2d49cd16e02a.png?asset_id=96199a33-a1b4-4012-999a-f1a01f2270be&amp;img_etag=%22956d36bcb63a7f1df879413584f901ca%22&amp;size=2560)
 
-二、互联网大佬们认罪伏法，或者畏罪潜逃（自杀），没收资产，家人受牵连锒铛入狱；
+![]()![](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/60d64117-29d3-4db8-b59b-92c4dbaea8e2.png?asset_id=960eb614-b2d9-4b00-997b-164db429e0c8&amp;img_etag=%22a66cc4ac16515173651ceeec1025df8c%22&amp;size=3153)
 
-三、上述所有资产迅速进入掌权派“白手套”们的新兴经济体，国内经济内循环萌发出勃勃生机……
+在一个视频中，赫希（Hirsch）告诉接线员，“我走进去，手里拿着一个大袋子，我就开始从箱子里拿出选票，并且你知道，我甚至没有试图隐藏它”。
 
-如此以来，因微信、抖音、阿里巴巴们长期以来所做的“恶事”使得中共在国际环境下面临的舆论压力也可以得以缓解。而中共将互联网企业进行“化整为零”的整治后，又可以以新的“马甲”进入硅谷偷盗技术，进入华尔街骗取资本。
+在用户cheesecaseacita发布的抖音（TikTok）视频中，这位年轻女士拨打热线告诉接线员说她叫“玛丽（Mary）”。当一名自称为里卡多（Ricardo）的川普（Trump）国家战斗室（National War Room）工作人员接听电话，并询问她看到哪种选民欺诈行为时，抖音（TikTok）用户回答“我看到人们在选票上撒满大便”。
 
-在爆料革命的一再打击之下，中共集团已进入最后的疯狂，这些互联网巨头的财富也许会被进一步打散、伪装，新中国联邦需要警惕原有邪恶集团的资本渗透、腐蚀新经济体。
+另一位名为caitlynjk95的用户发布视频，在视频中她好像拨打了热线，自称为佐治亚州的选民，然后告诉接线员：“我在排队投票，好像有一个家伙在那里，我不知道这被认为是欺诈或什么事情，但他在那里挑战我的小提琴比赛”，提到查理•丹尼斯乐队（Charlie Daniels Band）的歌曲《恶魔降临佐治亚州》（The Devil Went Down to Georgia）。接线员回答这种情况“非常有趣”。
 
-相关链接：
+拉拉•川普（Lara Trump）之后发推文公布新的热线号码，挑战恶作剧拨打热线的人“继续拨打垃圾信息电话吧。我们将不断更换号码”。“另一个新号码，致那些给我们其他号码拨打垃圾信息电话的人们：你们不认为在我们的选举中保持公正是很重要的，这是可耻的。这是我们共和国的根本。继续拨打垃圾信息电话吧。我们将不断更换号码”。
 
-1. http://www.xinhuanet.com/politics/2020-10/24/c\_1126651818.htm
-2. https://m.21jingji.com/article/20201025/herald/6bbdf0612aa1263d3dd5a2826454450d.html
-3. https://new.qq.com/rain/a/20201105A0CWF200
-4. https://m.nbd.com.cn/articles/2020-11-10/1544423.html
+[!\[\]()!\[\](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/57ca5d3d-1816-4a77-81b3-120ac72dafd2.png?asset_id=bb95dad3-283d-4fac-8b32-4cc3e452df85&amp;img_etag=%224e90b7be0b8869551b6f5f4bc932296d%22&amp;size=3274)](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/57ca5d3d-1816-4a77-81b3-120ac72dafd2.png?asset_id=bb95dad3-283d-4fac-8b32-4cc3e452df85&amp;img_etag=%224e90b7be0b8869551b6f5f4bc932296d%22&amp;size=1024)
 
+布赖特巴特新闻（Breitbart News）本月早些时候报道称，美国地区法院法官裁决，川普政府的行政命令还不能关闭中资视频分享应用程序抖音（TikTok）。该法官针对美国商务部原定于11月12日生效的多项禁令授予了临时禁令。
 
-2+
+如果禁令生效，该应用程序通过限制网络托管、内容传输或其他方式，似乎将无法使用。抖音（TikTok）正在起诉川普政府和商务部，试图阻止禁令，但最新的裁决来自另一场诉讼。
+
+[原文链接](https://www.breitbart.com/tech/2020/11/09/users-of-china-owned-tiktok-troll-trump-voter-fraud-hotline/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+breitbart+%28Breitbart+News%29)
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/RD8qVjsN5pBd9/)】-点击spark adobe版
+
+[!\[\]()!\[\](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
+0
