@@ -1,65 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## TIKTOK用户恶搞川普开设的选民欺诈热线
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/549245/)
+## 【台风巨眼】爆料革命在美国的影响力-谷歌搜索趋势的分析
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/549248/)
 
-*新闻来源：《布赖特巴特》BREITBART；作者：卢卡斯•诺兰（LUCAS NOLAN）；发布时间：2020年11月11日*
+**作者： 香草山写作组  直截了当**
 
-*翻译/简评：Dreamer文童；校对：感恩；审核：海阔天空 ；Page：Connor54*
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/9296be5f-2378-4d0b-ad3e-72d829e47d29.jpg?asset_id=5442cc63-f022-4775-b7e4-07487443853d&amp;img_etag=%22cf1f861023d9827e5dd013a72d27d605%22&amp;size=1024)](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/9296be5f-2378-4d0b-ad3e-72d829e47d29.jpg?asset_id=5442cc63-f022-4775-b7e4-07487443853d&amp;img_etag=%22cf1f861023d9827e5dd013a72d27d605%22&amp;size=1024)
 
-**简评：**
 
-此次美国大选投票和计票过程中出现各式各样光怪陆离的舞弊现象，川普总统竞选团队因此而设立选民欺诈热线，以搜集舞弊证据，用于后续调查。然而， Tiktok用户几乎在热线号码公布的同时，就已经开始恶作剧地拨打热线电话，并将恶作剧拨打热线的视频发布在Tiktok上，暗示其他用户也都拨打类似恶作剧电话，其目的就是阻塞线路，使得真正想举报选举欺诈的人们无法接通热线。
 
-Tiktok是被来自中共资本所控制的应用程序。此前出于国家安全因素考虑，川普政府签署一项行政命令禁止在美国使用Tiktok，但后来被美国地区法院授予临时禁令而被叫停。目前，Tiktok用户这种戏弄选民欺诈热线的恶作剧，严重影响了川普总统竞选团队调查选民欺诈的程序，这是对美国大选的公然挑衅，也是中共干涉美国内部选举的又一例证。
 
-![]()![](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/ae969cad-4719-4424-a8f9-327b7b8d0fe3.jpg?asset_id=a42284da-da78-457f-b6f7-4d0a66c642f2&amp;img_etag=%2212b35e063ba2632cdc01b754d04597f1%22&amp;size=1024)
 
-**Tiktok用户恶搞川普开设的选民欺诈热线**
 
-![]()![](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/2c1b131a-c297-4026-9d3c-90a910fb173f.png?asset_id=f2812726-60e6-4c1a-984b-b25d0800ad4f&amp;img_etag=%22ad2b23222ce239e112195f2b16ed2405%22&amp;size=2560)
+- ![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11204428/%E6%83%B3.png)
 
-抖音（TikTok）用户已经开始在中资社交媒体平台发布视频，展示他们恶作剧地拨打唐纳德•川普总统（Donald Trump）设立的选民欺诈热线，试图堵塞线路。
 
-NBC新闻报道称，中资社交媒体应用程序抖音（TikTok）上的用户，已经开始恶作剧地拨打川普总统（Trump）连任竞选团队启动的选民欺诈热线，进行虚假陈述和举报，试图堵塞线路。川普总统（Trump）连任竞选团队设立该热线，让人们举报在他们投票站附近的任何可疑活动。
+背景：谷歌搜索趋势可访问未经过滤的对谷歌的实际搜索请求样本。它是匿名的（没有个人身份），分类的（确定搜索查询的主题）和汇总的（分组在一起）。这样一来，我们就可以展示来自全球乃至城市地理的特定主题的兴趣。
 
-总统的儿子埃里克•川普（Eric Trump）在推特上发布关于该热线的推文，称“帮助阻止压制选民、违规和欺诈行为”。
+这里，我们通过研究与爆料革命有关的一些近期谷歌搜索趋势数据，说明了爆料革命，GTV和GNEWS在美国的影响。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/66a386e0-6f0c-490d-9e3c-9f2ad28aa192.jpg?asset_id=5133c7fa-4ec1-42c6-a4d4-85953edeedb0&amp;img_etag=%2215de8cf4d1af46876f35032e5df93aea%22&amp;size=3058)](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/66a386e0-6f0c-490d-9e3c-9f2ad28aa192.jpg?asset_id=5133c7fa-4ec1-42c6-a4d4-85953edeedb0&amp;img_etag=%2215de8cf4d1af46876f35032e5df93aea%22&amp;size=1024)
+1. GTV和GNEWS
 
-几乎在抖音（TikTok）用户开始拨打热线举报错误信息的同时，亚历克斯•赫希（Alex Hirsch），迪士尼频道系列剧《地心引力瀑布》（Gravity Falls）制作人，也发布了自己以剧中不同角色的身份拨打热线的视频“我不想告诉任何人该做什么，但如果你想要拨打这个号码，比如说，举报汉堡大盗，我可以根据个人经验确认，这将非常有趣”。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/571f0d62-1971-4e90-8e6a-6892f3b50d17.png?asset_id=86b4fa57-f3a6-4318-8bd5-90f5bb945838&amp;img_etag=%2206ed2d53af6b5d7a1c35bec70a33e8f6%22&amp;size=3268)](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/571f0d62-1971-4e90-8e6a-6892f3b50d17.png?asset_id=86b4fa57-f3a6-4318-8bd5-90f5bb945838&amp;img_etag=%2206ed2d53af6b5d7a1c35bec70a33e8f6%22&amp;size=1024)
+自10月22日“决斗的13天”开始以来，爆料革命一直在GTV和GNEWS上披露有关拜登家族的丑闻和腐败行为的爆炸性信息。郭文贵先生在最近的直播中提到，这些照片，视频和新闻报道已经被上亿次观看。
 
-![]()![](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/ef601268-8ae1-4178-9d55-2d49cd16e02a.png?asset_id=96199a33-a1b4-4012-999a-f1a01f2270be&amp;img_etag=%22956d36bcb63a7f1df879413584f901ca%22&amp;size=2560)
+以下Google趋势图显示了特定关键字随时间的兴趣，例如“ 亨特拜登笔记本电脑”，“ 亨特拜登性爱录像带”，“ GTV”，“ GNEWS”。我们可以看到，自10月14日纽约邮报披露了在亨特拜登的笔记本电脑中发现的电子邮件以来，“ 亨特拜登笔记本电脑”这个关键词就引起了很多关注。相比之下，“ GTV”和“ GNEWS”在10月20日之前并没有引起太多兴趣。爆料革命在10月22日展开“决战13天”后，“ GTV”和“ GNEWS”的搜索量急剧增加。在10月23日至10月31日之间的谷歌搜索“ 亨特笔记本电脑”和“ 亨特拜登性爱录像带”中，也可以看到几乎吻合的搜索高峰。值得注意的是，最近所有这些谷歌搜索的趋势似乎都在下降。一个原因可能是当前主要媒体关注于2020年美国大选，另一个可能的原因是Twitter和Facebook对“ GTV”和“ GNEWS”链接的审查。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11204514/%E6%83%B3%E7%9A%84%E6%98%AF.png)
+- 路德媒体
 
-![]()![](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/60d64117-29d3-4db8-b59b-92c4dbaea8e2.png?asset_id=960eb614-b2d9-4b00-997b-164db429e0c8&amp;img_etag=%22a66cc4ac16515173651ceeec1025df8c%22&amp;size=3153)
 
-在一个视频中，赫希（Hirsch）告诉接线员，“我走进去，手里拿着一个大袋子，我就开始从箱子里拿出选票，并且你知道，我甚至没有试图隐藏它”。
+谷歌趋势图显示，自10月中旬以来，由于爆料亨特拜登的笔记本电脑和三块硬盘，路德媒体受到了广泛关注。更有趣的是按次区域划分的关注情况。许多的关注度来自与摇摆州（例如密歇根州，俄亥俄州，宾夕法尼亚州，北卡罗来纳州，乔治亚州，亚利桑那州，佛罗里达州），这些州在美国2020年大选中起着非常重要的作用。排名第一和第五的州是马里兰州和弗吉尼亚州，而大量的华盛顿政治人物居住于此。这个谷歌趋势数据也与路德先生之前在节目的说法一致，华盛顿政客一直在关注路德的节目。从这些数据中，我们可以明显看到路德媒体和爆料革命对华盛顿政客和美国2020年大选的巨大影响。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11204549/Picture1%E6%9C%AA%E5%AE%8C%E6%88%90.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11204559/Picture1%E6%AC%A1-1.png)
+- 闫丽梦博士
 
-在用户cheesecaseacita发布的抖音（TikTok）视频中，这位年轻女士拨打热线告诉接线员说她叫“玛丽（Mary）”。当一名自称为里卡多（Ricardo）的川普（Trump）国家战斗室（National War Room）工作人员接听电话，并询问她看到哪种选民欺诈行为时，抖音（TikTok）用户回答“我看到人们在选票上撒满大便”。
 
-另一位名为caitlynjk95的用户发布视频，在视频中她好像拨打了热线，自称为佐治亚州的选民，然后告诉接线员：“我在排队投票，好像有一个家伙在那里，我不知道这被认为是欺诈或什么事情，但他在那里挑战我的小提琴比赛”，提到查理•丹尼斯乐队（Charlie Daniels Band）的歌曲《恶魔降临佐治亚州》（The Devil Went Down to Georgia）。接线员回答这种情况“非常有趣”。
+CCP病毒（SARS-CoV-2）引起的新冠状病毒大流行可能是2020年最受欢迎的话题之一。我们的英雄闫丽梦博士第一个向世界发出“CCP病毒可以人传人以及可能发生的大流行”，时间点在2020年1月19日的路德节目。根据Google的趋势分析，在7月接受福克斯采访后，对闫丽梦博士的兴趣开始增加。然后在9月中旬，对严博士的谷歌搜索出现了一个尖峰，当时严博士在Zonodo发表了有关SARS-CoV-2起源的第一份科学报告。 这个谷歌趋势图现实，当时人们对闫博士第一份报告的搜索热度甚至超过了SARS-CoV-2。次区域图还显示了严丽梦博士在美国各地的受欢迎程度。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11204615/Picture1%E5%88%86.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11204623/Picture1vv.png)
+最近，由于2020年美国大选，有关CCP病毒的讨论并未引起足够的重视。郭文贵现实在直播中多次提到，中共病毒将是未来摧毁中共的最重要手段。爆料革命将继续向世界传播真相，并积极宣传我们的GTV和GNEWS。
 
-拉拉•川普（Lara Trump）之后发推文公布新的热线号码，挑战恶作剧拨打热线的人“继续拨打垃圾信息电话吧。我们将不断更换号码”。“另一个新号码，致那些给我们其他号码拨打垃圾信息电话的人们：你们不认为在我们的选举中保持公正是很重要的，这是可耻的。这是我们共和国的根本。继续拨打垃圾信息电话吧。我们将不断更换号码”。
+审核： 悟空
 
-[!\[\]()!\[\](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/57ca5d3d-1816-4a77-81b3-120ac72dafd2.png?asset_id=bb95dad3-283d-4fac-8b32-4cc3e452df85&amp;img_etag=%224e90b7be0b8869551b6f5f4bc932296d%22&amp;size=3274)](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/57ca5d3d-1816-4a77-81b3-120ac72dafd2.png?asset_id=bb95dad3-283d-4fac-8b32-4cc3e452df85&amp;img_etag=%224e90b7be0b8869551b6f5f4bc932296d%22&amp;size=1024)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
 
-布赖特巴特新闻（Breitbart News）本月早些时候报道称，美国地区法院法官裁决，川普政府的行政命令还不能关闭中资视频分享应用程序抖音（TikTok）。该法官针对美国商务部原定于11月12日生效的多项禁令授予了临时禁令。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-如果禁令生效，该应用程序通过限制网络托管、内容传输或其他方式，似乎将无法使用。抖音（TikTok）正在起诉川普政府和商务部，试图阻止禁令，但最新的裁决来自另一场诉讼。
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，纽约时间周日至周四晚上9:00，美国志愿者在纽约香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-[原文链接](https://www.breitbart.com/tech/2020/11/09/users-of-china-owned-tiktok-troll-trump-voter-fraud-hotline/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+breitbart+%28Breitbart+News%29)
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
 
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/RD8qVjsN5pBd9/)】-点击spark adobe版
 
-[!\[\]()!\[\](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
+
 
 0

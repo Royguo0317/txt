@@ -1,29 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重大发现：数万宾夕法尼亚州选票的返回日期早于发出日期
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/549068/)
+## 突发！总统大选系列（十二）：前联邦检察官称中共利用Dominion计票软件干涉和操控美国大选
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/549107/)
 
-*多伦多加喜农场 文𤦍(Manpui)*
+视频字幕：文府；听写/翻译：势不可挡；翻译校正：Wade
 
-*校对 文锦 上传 WJ*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11183840/99239-pennsylvania-is-a-mess-tens-of-thousands-of-pennsylvania-ballots-were-returned-before-they-were-sent-out-780x470-1.jpg)图片来源：newsla.localad.com
-根据大纪元11月10日报道，研究人员对宾州选民数据库的分析，该州超过20,000张缺席选票的返回日期是不可能的，另有超过80,000万张的返回日期引发了质疑。
+简评：势不可挡；文字整理/编辑：Julia Win ；Page：拱卒
 
-在发出选票后的第二天，就收回超过51,000张被标记为返回的选票，鉴于美国邮政服务（USPS）的交付时间，这是极快的速度，而在发出选票的同一天，就返回了近35,000张选票。 另超过23,000张的返回日期早于发出日期。 超过9,000张选票没有发出日期。
+**简评：**
 
-川普竞选活动团队指称，民主党无效的选票被计算了，而共和党的有效选票则被扔掉了。这显示出用虚假手段获得选票的前副总统乔.拜登不再尊重选民，宾夕法尼亚州选民应正视其结果，使造假者受到审查！
+11月11日周三，迈克尔·弗林（Michael Flynn）将军的律师、前联邦检察官悉尼·鲍威尔（Sidney Powell）在FOXNEWS接受Maria采访表示，数百张用相同墨水填写的选票明显是伪造的，大量证据表明数十万造假选票给了拜登，将被作废。大选选票通过Dominion软件系统（由Hammer程序和一个称为”计分卡”的软件组成）进行计票，但是Dominion系统存在着实质性的问题和缺陷，这些系统内有中共的软件和其他组件。南希-佩洛西的家族可能在Dominion软件公司有利益。鲍威尔认为很有可能是中共为了乔拜登的利益而操控选举，影响到国家安全，并指出国家安全局（NSA）以及国防情报局（DIA）应该对此进行独立调查。
 
-另据研究人员分析的数据，至少有31名看上去比该州已知的最老者年龄更大的人返回了选票。 根据该州的数据，他们全都出生于1900年至1907年之间。（死者也爱上乔·拜 登了）该州知名最老的人是113岁的Ardith Grose。
 
-大约有20位选民是用了1900年1月1日为出生日期。这一日期与密歇根州的一项指控相对应。民意调查员说，他看到工作人员在盘点邮寄选票的同时将他们添加到选民登记册中， 担心这些选民没有正确登记，而因此有资格投票。 根据民意调查员的宣誓誓章，工作人员输入的姓名带有虚假的出生日期，例如1900年1月1日。
 
-对宾夕法尼亚州数据的另一分析显示，年龄极高的选民大多是注册的民主党人。
+**Sidney: **我们认为数百张用相同墨水填写的选票明显是伪造的，并且有大量证据表明数十万的造假选票将不得不作废，这些选票都是给拜登的。
 
-真是骇人听闻啊！一人一票的美国选举如今民主党派想用各种虚假手段作假，美国人真的同意吗？
+**Maria:** 那里有几十万张造假选票。在你离开前，我想问你关于计票使用的这个软件。它是我们周日节目中提到的Dominion软件。我们还讨论了南希-佩洛西的家族可能在Dominion软件公司有利益。你能告诉我们什么？
 
-原文链接：
+**Sidney: **我们还在调查这些事情并把这些点联系起来。Dominion系统存在着实质性的问题，因为德州三次拒绝采用和使用这些系统，因为这些系统有内在的缺陷。我们的一个理论是，这些缺陷是处于某种原因故意设置的，这些系统内有中共的软件和其他组件。当然中共有，我的意思是在全世界，中共可以从破坏美国大选中获得最多利益。我认为，出于国家安全的原因，国家安全局（NSA）以及弗林将军曾经领导的国防情报局（DIA）应该对此进行独立调查，因为我认为很有可能是中共为了乔拜登的利益而操控选举。
 
-[Tens of Thousands of Pennsylvania Ballots Returned Earlier Than Sent Date: Researcher](https://www.theepochtimes.com/pennsylvania-100000-ballots-with-implausible-return-dates_3572942.html/)
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+编辑：【喜马拉雅战鹰团】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/LsCR24v7xgjvt/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/LsCR24v7xgjvt/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

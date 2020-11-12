@@ -1,81 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 奥巴马的前中央情报局间谍局长约翰·布伦南（John Brennan）煽动对特朗普总统发动政变亲自敦促副总统迈克·彭斯夺权
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/549077/)
+## 习江利刃对准了彼此
+` Wenxiu` [轉載自GNews](https://gnews.org/zh-hans/549151/)
 
-编译：玫瑰天空
+作者：Afra
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11192531/%E6%8D%85%E5%88%80169.jpg)
+中共10日开始大张旗鼓宣扬遏制“互联网垄断”，实质是习江战已经白热化，进入到金融这个核心领域。 习派掌权集团通过对现有互联网巨头的一系列调查制裁，给江氏集团断血，最终绞杀江氏集团。而马云马化腾这些“白手套”们很快将迎来“王健”的命运。
 
-奥巴马的中央情报局局长敦促对特朗普总统发动政变，这样他就不会“解密一切”。
+习江战白热化早有端倪。10月24日，马云外滩演讲称中国金融没有“系统性风险”， 因为中国金融就没有“系统”，直接反驳当日王岐山的讲话。 然后当地时间11月3日晚蚂蚁金服香港、A股上市被紧急叫停，紧接着中共国家市场监管总局在11月10日早间发布了《关于平台经济领域的反垄断指南（征求意见稿）》，声称是为预防和制止平台经济领域垄断行为，引导平台经济领域经营者依法合规经营，促进线上经济持续健康发展针对互联网平台的反垄断指南出台。
 
-巴拉克**·**奥巴马（**Barack Obama**）的前中央情报局局长约翰**·**布伦南（**John Brennan**）呼吁特朗普总统内阁成员罢免总统职务，以防止他解密敏感材料。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11185918/%E6%88%AA%E5%B1%8F2020-11-12-12.58.57.png)
-几天前，小唐纳德·特朗普（Donald Trump Jr.）敦促他的父亲释放核选择权：“一切都解密！！”  他在Twitter上大写。“我们不能让坏演员摆脱它。”
+众所周知，中共国互联网巨头都是通过中共政府授意的垄断地位才得以迅速发展壮大的。这一出“贼喊捉贼”的新把戏，其实是习派掌权集团需要江派让利。虽然大多互联网巨头早已与新集团暗通款曲，但江派的力量仍然掌控核心利益。
 
+此外，本次美国大选中所有互联网平台在华尔街的控制下，站到现有政府的对立面，也让中共掌权者不寒而栗，整治“独占鳌头”和握有话事权的互联网平台成为迫在眉睫的大事。
 
+“反垄断”外衣掩盖下的财富掠夺大戏
 
-> DECLASSIFY EVERYTHING!!! 
-> 
-> We can’t let the bad actors get away with it.
-> — Donald Trump Jr. (@DonaldJTrumpJr) [November 8, 2020](https://twitter.com/DonaldJTrumpJr/status/1325524657802522624?ref_src=twsrc%5Etfw)
+中国拥有世界上最多的互联网用户（拥有9.04亿网民），但并未将市场开放给全球互联网企业，而是通过构建防火墙，将美国知名互联网公司挡在国门之外从而扶植内部企业崛起并迅速发展壮大。在中共国从来没有企业的垄断，只有中共党的专制独裁垄断。
 
+为什么互联网行业在此时成为“反垄断”对象？
 
+根本的原因在于现有习派掌权集团，并不掌握互联网行业的核心利益。习近平近年来通过一系列“反腐”手段，通过党内清洗，扶植“自己人”，有消息称，自去年年底习近平已将多名多年栽培的新人提升至部级待遇，这些“自己人”需要新的利益来“供养”；
 
-其他人也 随声附和[煽动](https://libertarianinstitute.org/foreign-policy/declassify-the-russiagate-papers/)这样做，专栏作家谢尔登·里奇曼写。：“这是特朗普在1月20日中午离职前可以做的事情： 他可以命令-要求，坚持-将所有与俄罗斯/选举调查起源有关的机密情报和其他文件解密，并向公众发布”。
+其次，自中美贸易战以来，国内经济受到严重打击，尤其在“中共病毒”疫情爆发以来，互联网行业已成为最后一块“肉骨头”，成为利益集团争抢的对象；
 
-[Zerohedge.com的](https://www.zerohedge.com/political/ex-cia-chief-under-obama-urges-palace-coup-against-trump-so-he-doesnt-declassify)报道：这种独特的可能性很快就吸引了主流媒体和情报机构的注意，而这种情报与总统之间长期存在分歧（甚至是“战争”）。在周一对被驱逐的国防部长马克·埃斯珀（Mark Esper）做出特别反应之前，奥巴马政府下任前中央情报局间谍局长约翰·布伦南（John Brennan）本质上 敦促 在1月20日之前对特朗普进行 宫廷政变，以确保他不会将任何敏感或过于暴露的东西解密：
+第三，近年来，针对微信、抖音的问题海外市场已开始对中共互联网巨头有所防范，这些巨头“树大招风”，从海外盗取技术和资本已越来越困难；
 
-解密：
+第四，即便掌权集团无意去争夺这些互联网巨头，也很难在国内扶植新的经济体，这些巨头的触角早已深入到国内民众生活的方方面面。
 
+如此看来，所谓的“反垄断”绝非真的“反垄断”，只是新的掌权集团需要建立自己新的“垄断”利益。
 
+内斗升级 “马云”们丧钟敲响
 
-> Pres. Trump is "like a cornered cat…he's going to lash out and the fact…that he has the powers of the presidency in his hands is quite worrisome."
-> 
-> Former CIA dir. John Brennan calls on VP Pence and the cabinet to invoke the 25th Amendment and strip Pres. Trump of his powers. [pic.twitter.com/CyqFoSIoux](https://t.co/CyqFoSIoux)
-> — Cuomo Prime Time (@CuomoPrimeTime) [November 10, 2020](https://twitter.com/CuomoPrimeTime/status/1325998334037864450?ref_src=twsrc%5Etfw)
+郭文贵先生曾多次提到“马云”们的结局，一定会比“王健”更惨。根据目前外界盛传的“习江斗”日益升级，以及越来越紧迫的“反垄断”形势，不难推断：“马云”们的丧钟已经敲响！
 
+结合马云、马化腾等近两年逐步卸任各自原有职位的情形分析，在未来一段时间，这些互联网企业和大佬们的命运，大概有以下几种可能：
 
+一、中央迅速启动反垄断调查，各大互联网巨头因行业“垄断”面临巨额罚款和一系列处罚，甚至罚没资产，掏空利益；
 
-*前中央情报局局长约翰·布伦南（John Brennan）呼吁副总统彭斯（Pence）和内阁*
-*援引《第二十五条修正案》，并剥除Pres特朗普的权力。*
-在令人难以置信的周一CNN访谈中，布伦南（Brennan）亲自敦促副总统迈克**·**彭斯（**Mike Pence**）夺权，布伦南本人从特朗普总统任期开始就负责煽动如今被广泛揭穿的俄罗斯门的主张 。
+二、互联网大佬们认罪伏法，或者畏罪潜逃（自杀），没收资产，家人受牵连锒铛入狱；
 
-他断言，尽管拜登准备在就职典礼当天（距离他们还有两个月的路程）过渡到白宫，但在这一点上，特朗普对国家安全构成威胁：
+三、上述所有资产迅速进入掌权派“白手套”们的新兴经济体，国内经济内循环萌发出勃勃生机……
 
-布伦南在周一《 *Cuomo Prime Time*》刊物上说：*“*我非常担心他在任职的剩余*70*天会做什么。*” “*他会采取某种军事行动吗？ 他是否要发布某种实际上可能威胁到我们国家安全利益的信息？*”*
+如此以来，因微信、抖音、阿里巴巴们长期以来所做的“恶事”使得中共在国际环境下面临的舆论压力也可以得以缓解。而中共将互联网企业进行“化整为零”的整治后，又可以以新的“马甲”进入硅谷偷盗技术，进入华尔街骗取资本。
 
-布伦南将事情做得更进一步，并增加了关于这位前长期间谍首长希望发生的事情的细节：“如果彭斯副总统和内阁有一点坚毅，脊柱和爱国主义， 我认为他们将认真考虑援引《第二十五条修正案》。并把唐纳德**·**特朗普赶出去，因为他现在已经很难预测了，”他补充说。
+在爆料革命的一再打击之下，中共集团已进入最后的疯狂，这些互联网巨头的财富也许会被进一步打散、伪装，新中国联邦需要警惕原有邪恶集团的资本渗透、腐蚀新经济体。
 
+相关链接：
 
-
-> I love this idea!!!! [https://t.co/oA2WvIEaLe](https://t.co/oA2WvIEaLe)
-> — Jake Tapper (@jaketapper) [November 9, 2020](https://twitter.com/jaketapper/status/1325670157658755073?ref_src=twsrc%5Etfw)
-
-
-
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11185544/%E6%88%AA%E5%B1%8F2020-11-12-12.52.50.png)
-布伦南提到，自上周四以来，尽管有数票，但自多名联邦机构高级官员被赶出或辞职以来，似乎是选举后的清除和外流，布伦南表示这是特朗普串谋破坏国家安全的一部分。
-
-“如果马克·埃斯珀因为不听唐纳德·特朗普执行这些命令而被推到一边，他知道他的继任者是什么，那么如果唐纳德·特朗普确实做出某种与他相反的命令，这位代理秘书克里斯·米勒将去做。我认为我们的国家安全利益必须是这样。”布伦南说。
-
-但值得庆幸的是，实际上几乎没有掌权者可能听约翰·布伦南（John Brennan）的话，因为他的尖酸刻薄和对特朗普的愤怒 显然早已是** **个人的私愤。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11185625/%E6%88%AA%E5%B1%8F2020-11-12-12.52.41-1.png)
+1. http://www.xinhuanet.com/politics/2020-10/24/c\_1126651818.htm
+2. https://m.21jingji.com/article/20201025/herald/6bbdf0612aa1263d3dd5a2826454450d.html
+3. https://new.qq.com/rain/a/20201105A0CWF200
+4. https://m.nbd.com.cn/articles/2020-11-10/1544423.html
 
 
-> Senior civilians so far not affected by the recent purge include the Deputy Secretary of Defense Norquist and the Service Secretaries
-> — Ryan Browne (@rabrowne75) [November 10, 2020](https://twitter.com/rabrowne75/status/1326301901772763136?ref_src=twsrc%5Etfw)
-
-
-
-毕竟，曾经上演过的一幕还没有被忘记：
-
-巴拉克*·*奥巴马（*Barack Obama*）总统下属的中央情报局局长约翰*·*奥*·*布伦南（*John O. Brennan*）周四对特朗普总统进行 了罢工，要求撤销他的安全检查，称总统对与俄罗斯*“*不串通*”*以影响*2016*年大选的说法大行其道， 并争辩说这位指挥官总的来说，他试图让任何敢于挑战他的人保持沉默。
-
-布伦南现在公开地，字面意义上呼吁非法推翻美国现任总统。** **这也是美国大选发生的众多令人震惊事件其中的一幕。可见，试图支持拜登并且利用一切手段想把他推上美国总统之位的幕后力量已经处心积虑穷凶极恶到了疯狂的地步！
-
-目前的国际局势之中人类面临很多危险。这更像是一场世纪之战。正邪交战，如果我们做对了，世界将会得到拯救。
-
-[援引原文](https://newspunch.com/obamas-cia-chief-urges-coup-against-president-trump-so-he-doesnt-declassify-everything/)
-
-0
+2+
