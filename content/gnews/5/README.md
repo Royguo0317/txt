@@ -1,29 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】朱利安尼市长确认美国Dominion投票机公司内部人员出来爆料证明大选舞弊
-` GM65` [轉載自GNews](https://gnews.org/zh-hans/548774/)
+## 重磅！总统大选系列（十一）：国务卿蓬佩奥称中共绝对是全球的主要威胁
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/548978/)
 
-11月11日，The Gateway Pundit网站引用班农先生作战室节目，说朱利安尼市长确认，除了民主党内部人士站出来指证民主党大选舞弊的行为外，另有名为Coleman的人士，收集到来自社区和Dominion公司内部的证人和证据。社区计票监督员证实，计票当天，民主党人将共和党监督员排除在外，并撒谎。在大部分监督员离开后，其中两人留了下来，看到10万张选票被送到计票中心，拍下照片留作证据。另有Dominion公司的人出来作证人，但未说明细节。
+视频字幕：塔奇克马；听写/翻译：TCC；校正：Roberts
+简评：大卫/势不可挡；文字整理/编辑：Julia Win；Page：拱卒
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11164020/1-1-1.jpeg)
 
+**简评：**
 
-> From Rudy Giuliani. [pic.twitter.com/xh25ALQSeE](https://t.co/xh25ALQSeE)
-> — Carmine Sabia (@CarmineSabia) [November 11, 2020](https://twitter.com/CarmineSabia/status/1326560738413056000?ref_src=twsrc%5Etfw)
+继昨天在国务院发表讲话之后，美国国务卿迈克·蓬佩奥（Mike Pompeo）于11月11日周三接受FOXNEWS采访表示，任何人介入美国政治都是想试图影响美国的外交政策，希望美国政府官员与外国政府的谈话都没有违反《洛根法》。他还指出美国人对拜登最大的担忧是回到绥靖的外交政策，而川普政府恰好相反，40年来首次认定中共对美国人民的安全和工作机会以及对美国经济构成巨大威胁。最后他强调，中共绝对是未来5至10年全球的主要威胁，中共正在影响我们的世界观，利用非常强大的技术盗取全球的知识产权。
 
-
-
-美国广播网主持人Wayne Allyn Root发推说，“朱利安尼确认Dominion内部有人出来爆料。他们偷了大选。将川普的选票调换…史上最大丑闻。已将他们逮个正着！”
-
-
-
-> BREAKING NEWS: [@RudyGiuliani](https://twitter.com/RudyGiuliani?ref_src=twsrc%5Etfw) has confirmed whistleblowers from Dominion have come forward. OMG. They stole election. Switched votes from [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw). What did he really get? 81 MM votes? 91 MM? But they stole it. Biggest scandal in world history. Got ‘em!
-> — Wayne Allyn Root (@RealWayneRoot) [November 11, 2020](https://twitter.com/RealWayneRoot/status/1326555434405097477?ref_src=twsrc%5Etfw)
+昨天，蓬佩奥就表示，川普政府通过选举人合法的投票以及计票之后将会成功连任，第二届川普政府将会有一个平稳的交接过渡。继美国参议院多数党领袖麦康奈尔（McConnell）、美国副总统彭斯（Pence）和美国司法部长巴尔（Barr）表态支持川普政府之后，国务卿蓬佩奥也发表了力挺川普政府的讲话。这样就形成了国会、司法和行政三权合力支持川普总统的格局，再加上已经形成的民意（比如支持川普总统的大游行），万事俱备！爆料革命和美国正义的力量正在创造历史，谱写新的传奇！
 
 
 
-Dominion Voting System 是一家美国公司，承担此次美国大选多数摇摆州的投票服务。11月10日 The Gateway Pundit曾发文章，根据数据分析，指出其所谓的系统“故障”，实为作弊嫌疑。
+**Bret：**在川普政府成立之初，所有关注焦点都集中在即将上任的国家安全顾问麦克·弗林（Michael Flynn）和他的＂电话门＂上，并谈论《洛根法案》？你对目前正在发生这事情有担忧吗？
 
-[【突发】【独家】：选举之夜数据分析显示，Dominion机票系统作弊，偷走或删除掉川普的选票多达几百万](https://gnews.org/zh-hans/547848/)
+**Pompeo**：当任何人介入某些事物的时候我总是担忧，比如国外领导人的陈述也许不是事实，或是在符合法律要求的情况下试图影响美国的外交政策。你知道《洛根法》，我也知道《洛根法》。我希望那些进行的谈话都没有违反此法。我确信，司法部将为我们密切注意这一点。
 
-0
+**Bret：**你对拜登（Joe Biden）外交政策最大的担忧是什么？
+
+**Pompeo**：我认为美国人最大的担忧应该是我们将回到绥靖的外交政策。政府官员使用这个词＂垂帘听政＂，我认为总统川普所做的正好相反。我们非常现实地将使馆移至耶路撒冷，斩首了卡西姆索莱马尼（伊朗恐怖分子）减少了来自伊朗的威胁，40年来首次认定中国共产党对美国人民的安全和工作机会以及对美国经济构成巨大威胁。我认为奥巴马政府所做的事情使美国人处境更糟。奥巴马政府期间人们的工作和生命都比（川普政府）过去的4年差。相对于（奥巴马政府）的8年，我希望明年1月中旬上任的总统会有一个更强大，更有保障，更有信心的国家安全体系。
+
+**Bret：**目前，伊朗，俄罗斯和中共国，哪个是迫在眉睫的威胁？
+
+**Pompeo**：布雷特，这些都是很难回答的问题。当我思考美国人在未来5至10年所面临的挑战时，中共绝对是主要威胁。它们已经在我们身边了；它们正在影响我们的世界观；它们拥有非常强大的技术盗取我们的知识产权；它们在像堪萨斯州、爱荷华州或密歇根州等我们的重要省份，偷走我们数百万份的工作。我们不能让这种事情继续发生。在让全世界意识到中共的威胁上，川普总统已取得了实质性进展。
+
+编辑：【喜马拉雅战鹰团】-点击spark adobe版
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/cX7wG2w4udEKv/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/cX7wG2w4udEKv/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
+1+

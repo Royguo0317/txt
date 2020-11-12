@@ -1,81 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 奥巴马的前中央情报局间谍局长约翰·布伦南（John Brennan）煽动对特朗普总统发动政变亲自敦促副总统迈克·彭斯夺权
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/549077/)
+## 拜登家族和中共合谋共同掠夺世界人民血汗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/549164/)
 
-编译：玫瑰天空
+作者：Rianna
+校对：文一乐
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11192946/Picture56.png)图片来源：[https://kknews.cc/](https://kknews.cc/finance/pgxybpp.html)
+中共在世界布局掠夺乌克兰、非洲刚果能源和矿产。2013年12月亨特和拜登访问中共国，此时乌克兰总统维克托亚努科维奇也在中共国正式访问。这个时间不能不说太巧合了，因为亨特参与董事的乌克兰布利斯玛公司（乌克兰天然气公司）也和中共国有商业交易往来，而亨特作为合作方Boies Schiller律师事务所的法律顾问可为布利斯玛公司改制提供建议。根据市场管理总局（SMRA）记录显示，2017年10月23日亨特拜登收购了10%的渤海华美股份，并担任董事直到2020年4月20日。渤海华美用中共国的矿业公司作为白手套兼并非洲资源。在2016年9月8日中国洛阳钼业公司收购了自由港—麦克莫兰公司（Freepor tMcMoran）56%的股权，而该公司拥有刚果民主共和国一处正在运营的矿业所有权，渤海华美收购了它另外的24%股权，中国钼业主要股东是国务院国有资产监督管理委员会（国资委），等于说中共国拥有该公司的80%股权。同年中国钼业和渤海华美也分别56%和24%股权收购了刚果Tenke Fungurume铜钴矿， 达到80%的控制权。
 
-奥巴马的中央情报局局长敦促对特朗普总统发动政变，这样他就不会“解密一切”。
+拜登家族与中国政府经济交易采用了循序渐进、套娃模式。2012年2月19日亨特作为Seneca 环球咨询顾问公司顾问，代表美国能源技术公司“巨点能源”（Great Point）与万向集团在新疆西部合作开发一个煤制天然气厂，双方就4.2亿美元股权投资和12.5亿美元项目融资进行洽谈。习近平等中美两国高官都出席了该活动，那么这就明显是一个政府之间的生意往来，乔拜登说是他不知情的一个私人活动，那是说不过去的。
 
-巴拉克**·**奥巴马（**Barack Obama**）的前中央情报局局长约翰**·**布伦南（**John Brennan**）呼吁特朗普总统内阁成员罢免总统职务，以防止他解密敏感材料。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11185918/%E6%88%AA%E5%B1%8F2020-11-12-12.58.57.png)
-几天前，小唐纳德·特朗普（Donald Trump Jr.）敦促他的父亲释放核选择权：“一切都解密！！”  他在Twitter上大写。“我们不能让坏演员摆脱它。”
+渤海华美在2019年投资了FACE++公司，这是一家中国监控器材公司，为中共国方便监视人民给执法部门开发面部识别软件，这包括对新疆少数民族穆斯林的大规模监控。以及一位美国州立法领袖基金会（SLLF）代表在2017年中国参观考察活动后在其网站上发表的一篇题为《来自中国的观察》文章中还大加赞赏中国的监控技术。
 
+综上所述，拜登家族通过掠夺新疆矿产和贩卖监控软件发财，依赖剥削新疆人而获得巨额利润，那么乔拜登在政治舞台是不会真心实意反对中共压迫新疆穆斯林，他是乐见中共国剥削维族穆斯林的血汗。所以，乔拜登是个贪婪十足的伪君子，政治小丑罢了。
 
+根据市场管理总局（SMRA）记录显示，2017年10月23日亨特拜登收购了10%的渤海华美股份，并担任董事直到2020年4月20日。而这笔购买款还是渤海基金管理公司贷款给亨特，之后以股权盈利的利润来偿还这笔贷款，等于空手套白狼。亨特作为Rosemont Seneca Partners董事长于 2010年4月8日访问过几个重要的几个金融机构：全国社会保障基金理事会、高瓴资本、太平洋国际交流基金会、中国投资有限责任公司、中国人寿保险（集团）公司、中国邮政储蓄银行、北大方正集团。他在2013年6月21日和渤海华美正式签署协议。渤海华美网站上现在已经找不到亨特拜登的介绍，但在2015年11月16日的一个存档网页中他被列为董事之一。渤海华美其中一个重要股东拥有30%的股权即渤海产业基金（Bohai Capital），渤海从法律上来讲是一家国有企业（SOE），因为天津泰达投资控股有限公司（TEDA Investment Holding Co Ltd）拥有渤海华美中方合作伙伴渤海产业基金（Bohai Capital）22%的股权，天津城市基础设施投资集团有限公司占渤海华美的2.5%股权， 天津金能投资有限公司占2.5%股权。这就是天津市政府通过一家地方国有企业直接持有渤海华美股权。渤海的资金来源于国有金融机构组合，包括中国银行、中国邮政银行、国家开发银行和社会保障基金，这几个金融机构共同运作着近8万亿美元的金融资产，这相当于中共国的金融体系的20%。而且全国社会保障基金股权资产部主任是冀国强，现在是天津市委常委和天津市统战部部长。天津虽然在国际上不太出名，但它毗邻北京的优越位置，中共国的很多重要行业和金融机构都在这里设办事处。
 
-> DECLASSIFY EVERYTHING!!! 
-> 
-> We can’t let the bad actors get away with it.
-> — Donald Trump Jr. (@DonaldJTrumpJr) [November 8, 2020](https://twitter.com/DonaldJTrumpJr/status/1325524657802522624?ref_src=twsrc%5Etfw)
+第一，这些都是中共国最具有政治意义的国有企业和金融机构；第二，渤海华美的最终投资项目实际上全是中共国国家支持项目，《渤海华美伙伴关系文件》披露本来是让中共国资本投资海外，但大多数投资都在国内进行，投资对象也是政府支持项目。这些投资有效保证了投资者回报的国际和中共国的国家政策项目。证明了无论在金融资金还是项目内容上，渤海华美都和中共政府紧密联系。
 
+由此可见，中共国政府给现在的总统候选人乔拜登儿子所共同拥有的企业提供资金支持，中共蓄意与美国政府高层的亲属合作，执行BGY和3F计划。但是爆料革命给了CCP和美国卖国贼们致命一击，他们的妄想注定是黄粱一梦。
 
-
-其他人也 随声附和[煽动](https://libertarianinstitute.org/foreign-policy/declassify-the-russiagate-papers/)这样做，专栏作家谢尔登·里奇曼写。：“这是特朗普在1月20日中午离职前可以做的事情： 他可以命令-要求，坚持-将所有与俄罗斯/选举调查起源有关的机密情报和其他文件解密，并向公众发布”。
-
-[Zerohedge.com的](https://www.zerohedge.com/political/ex-cia-chief-under-obama-urges-palace-coup-against-trump-so-he-doesnt-declassify)报道：这种独特的可能性很快就吸引了主流媒体和情报机构的注意，而这种情报与总统之间长期存在分歧（甚至是“战争”）。在周一对被驱逐的国防部长马克·埃斯珀（Mark Esper）做出特别反应之前，奥巴马政府下任前中央情报局间谍局长约翰·布伦南（John Brennan）本质上 敦促 在1月20日之前对特朗普进行 宫廷政变，以确保他不会将任何敏感或过于暴露的东西解密：
-
-解密：
-
-
-
-> Pres. Trump is "like a cornered cat…he's going to lash out and the fact…that he has the powers of the presidency in his hands is quite worrisome."
-> 
-> Former CIA dir. John Brennan calls on VP Pence and the cabinet to invoke the 25th Amendment and strip Pres. Trump of his powers. [pic.twitter.com/CyqFoSIoux](https://t.co/CyqFoSIoux)
-> — Cuomo Prime Time (@CuomoPrimeTime) [November 10, 2020](https://twitter.com/CuomoPrimeTime/status/1325998334037864450?ref_src=twsrc%5Etfw)
-
-
-
-*前中央情报局局长约翰·布伦南（John Brennan）呼吁副总统彭斯（Pence）和内阁*
-*援引《第二十五条修正案》，并剥除Pres特朗普的权力。*
-在令人难以置信的周一CNN访谈中，布伦南（Brennan）亲自敦促副总统迈克**·**彭斯（**Mike Pence**）夺权，布伦南本人从特朗普总统任期开始就负责煽动如今被广泛揭穿的俄罗斯门的主张 。
-
-他断言，尽管拜登准备在就职典礼当天（距离他们还有两个月的路程）过渡到白宫，但在这一点上，特朗普对国家安全构成威胁：
-
-布伦南在周一《 *Cuomo Prime Time*》刊物上说：*“*我非常担心他在任职的剩余*70*天会做什么。*” “*他会采取某种军事行动吗？ 他是否要发布某种实际上可能威胁到我们国家安全利益的信息？*”*
-
-布伦南将事情做得更进一步，并增加了关于这位前长期间谍首长希望发生的事情的细节：“如果彭斯副总统和内阁有一点坚毅，脊柱和爱国主义， 我认为他们将认真考虑援引《第二十五条修正案》。并把唐纳德**·**特朗普赶出去，因为他现在已经很难预测了，”他补充说。
-
-
-
-> I love this idea!!!! [https://t.co/oA2WvIEaLe](https://t.co/oA2WvIEaLe)
-> — Jake Tapper (@jaketapper) [November 9, 2020](https://twitter.com/jaketapper/status/1325670157658755073?ref_src=twsrc%5Etfw)
-
-
-
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11185544/%E6%88%AA%E5%B1%8F2020-11-12-12.52.50.png)
-布伦南提到，自上周四以来，尽管有数票，但自多名联邦机构高级官员被赶出或辞职以来，似乎是选举后的清除和外流，布伦南表示这是特朗普串谋破坏国家安全的一部分。
-
-“如果马克·埃斯珀因为不听唐纳德·特朗普执行这些命令而被推到一边，他知道他的继任者是什么，那么如果唐纳德·特朗普确实做出某种与他相反的命令，这位代理秘书克里斯·米勒将去做。我认为我们的国家安全利益必须是这样。”布伦南说。
-
-但值得庆幸的是，实际上几乎没有掌权者可能听约翰·布伦南（John Brennan）的话，因为他的尖酸刻薄和对特朗普的愤怒 显然早已是** **个人的私愤。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11185625/%E6%88%AA%E5%B1%8F2020-11-12-12.52.41-1.png)
-
-
-> Senior civilians so far not affected by the recent purge include the Deputy Secretary of Defense Norquist and the Service Secretaries
-> — Ryan Browne (@rabrowne75) [November 10, 2020](https://twitter.com/rabrowne75/status/1326301901772763136?ref_src=twsrc%5Etfw)
-
-
-
-毕竟，曾经上演过的一幕还没有被忘记：
-
-巴拉克*·*奥巴马（*Barack Obama*）总统下属的中央情报局局长约翰*·*奥*·*布伦南（*John O. Brennan*）周四对特朗普总统进行 了罢工，要求撤销他的安全检查，称总统对与俄罗斯*“*不串通*”*以影响*2016*年大选的说法大行其道， 并争辩说这位指挥官总的来说，他试图让任何敢于挑战他的人保持沉默。
-
-布伦南现在公开地，字面意义上呼吁非法推翻美国现任总统。** **这也是美国大选发生的众多令人震惊事件其中的一幕。可见，试图支持拜登并且利用一切手段想把他推上美国总统之位的幕后力量已经处心积虑穷凶极恶到了疯狂的地步！
-
-目前的国际局势之中人类面临很多危险。这更像是一场世纪之战。正邪交战，如果我们做对了，世界将会得到拯救。
-
-[援引原文](https://newspunch.com/obamas-cia-chief-urges-coup-against-president-trump-so-he-doesnt-declassify-everything/)
+(文章内容仅代表作者观点)
 
 0

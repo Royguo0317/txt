@@ -1,50 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统美国海军陆战队245周年致辞
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/549141/)
+## 习江利刃对准了彼此
+` Wenxiu` [轉載自GNews](https://gnews.org/zh-hans/549151/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11191119/WH_20201110_Marine_Corps-photo.jpg)图片来源：[https://www.whitehouse.gov/wp-content/uploads/2020/11/32876361654\_d1bec5b46e\_o-1024×576.jpg](https://www.whitehouse.gov/wp-content/uploads/2020/11/32876361654_d1bec5b46e_o-1024x576.jpg)
-**Presidential Message on the 245th Birthday of the United States Marine Corps**
+作者：Afra
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11192531/%E6%8D%85%E5%88%80169.jpg)
+中共10日开始大张旗鼓宣扬遏制“互联网垄断”，实质是习江战已经白热化，进入到金融这个核心领域。 习派掌权集团通过对现有互联网巨头的一系列调查制裁，给江氏集团断血，最终绞杀江氏集团。而马云马化腾这些“白手套”们很快将迎来“王健”的命运。
 
-**美国海军陆战队245周年总统致辞**
+习江战白热化早有端倪。10月24日，马云外滩演讲称中国金融没有“系统性风险”， 因为中国金融就没有“系统”，直接反驳当日王岐山的讲话。 然后当地时间11月3日晚蚂蚁金服香港、A股上市被紧急叫停，紧接着中共国家市场监管总局在11月10日早间发布了《关于平台经济领域的反垄断指南（征求意见稿）》，声称是为预防和制止平台经济领域垄断行为，引导平台经济领域经营者依法合规经营，促进线上经济持续健康发展针对互联网平台的反垄断指南出台。
 
-November 10, 2020
+众所周知，中共国互联网巨头都是通过中共政府授意的垄断地位才得以迅速发展壮大的。这一出“贼喊捉贼”的新把戏，其实是习派掌权集团需要江派让利。虽然大多互联网巨头早已与新集团暗通款曲，但江派的力量仍然掌控核心利益。
 
-2020年11月10日
+此外，本次美国大选中所有互联网平台在华尔街的控制下，站到现有政府的对立面，也让中共掌权者不寒而栗，整治“独占鳌头”和握有话事权的互联网平台成为迫在眉睫的大事。
 
-As Commander in Chief, I proudly join our Nation in wishing the United States Marine Corps a happy 245th birthday.
+“反垄断”外衣掩盖下的财富掠夺大戏
 
-作为总司令，我自豪地和我们的国家一同祝美国海军陆战队245岁生日快乐。
+中国拥有世界上最多的互联网用户（拥有9.04亿网民），但并未将市场开放给全球互联网企业，而是通过构建防火墙，将美国知名互联网公司挡在国门之外从而扶植内部企业崛起并迅速发展壮大。在中共国从来没有企业的垄断，只有中共党的专制独裁垄断。
 
-Officially established by the Second Continental Congress on November 10, 1775, the Marine Corps has protected our sovereignty in the air, on land, and at sea. Our Marines have led the charge for freedom and justice in defense of our constitutional republic and its founding principles.
+为什么互联网行业在此时成为“反垄断”对象？
 
-海军陆战队于1775年11月10日在第二次大陆会议上正式成立，它保护了我们空中、陆地和海上的主权。我们的海军陆战队捍卫了我们宪政共和国及其建国原则，为自由和正义冲锋陷阵。
+根本的原因在于现有习派掌权集团，并不掌握互联网行业的核心利益。习近平近年来通过一系列“反腐”手段，通过党内清洗，扶植“自己人”，有消息称，自去年年底习近平已将多名多年栽培的新人提升至部级待遇，这些“自己人”需要新的利益来“供养”；
 
-Since they first shed blood for the cause of freedom during the Revolutionary War, Marines, true to their creed, have never wavered in their faithfulness. The distinct scarlet and gold Battle Colors of the United States Marine Corps symbolize its history of both unmatched prowess on the battlefield and solemn sacrifice in service to our Nation. Every brave man and woman who dons the Marine Corps uniform carries this legacy forward.
+其次，自中美贸易战以来，国内经济受到严重打击，尤其在“中共病毒”疫情爆发以来，互联网行业已成为最后一块“肉骨头”，成为利益集团争抢的对象；
 
-自从他们在独立战争中首次为自由事业流血牺牲以来，海军陆战队始终忠于自己的信条，从未动摇过他们的忠诚。美国海军陆战队独特的鲜红色和金色的战斗颜色象征着它在战场上无与伦比的威力和为国家作出庄严牺牲的历史。穿上海军陆战队制服的每个勇敢的男士和女士都将这一遗产发扬光大。
+第三，近年来，针对微信、抖音的问题海外市场已开始对中共互联网巨头有所防范，这些巨头“树大招风”，从海外盗取技术和资本已越来越困难；
 
-With steadfast honor, courage, and commitment, Marines have swiftly and decisively risen to the occasion to secure victory, no matter the task.  This January marks the 30th anniversary of Operation Desert Storm, in which Marines successfully carried out one of the most consequential offensive attacks in the history of modern warfare.  Throughout the Gulf War, these brave warriors never faltered, a reflection of their long-standing devotion to pressing forward until every battle is won.
+第四，即便掌权集团无意去争夺这些互联网巨头，也很难在国内扶植新的经济体，这些巨头的触角早已深入到国内民众生活的方方面面。
 
-凭藉坚定的荣誉、勇气和承诺，海军陆战队迅速而果断地挺身而出，无论任务如何，都能确保胜利。今年1月是“沙漠风暴行动”30周年纪念日，海军陆战队在这次行动中成功地开展了现代战史上最具影响的进攻性袭击之一。在整个海湾战争中，这些勇敢的战士从未动摇，这反映了他们长期致力于向前推进，直到赢得每一场战斗。
+如此看来，所谓的“反垄断”绝非真的“反垄断”，只是新的掌权集团需要建立自己新的“垄断”利益。
 
-Today, as we celebrate the men and women who valiantly defend our country as United States Marines, we also honor our heroic Marine veterans, and we solemnly remember those Marines who made the ultimate sacrifice in defense of our freedom.  We will always cherish and honor their memory.
+内斗升级 “马云”们丧钟敲响
 
-今天，当我们赞誉勇敢保卫我们国家的美国海军陆战队的男女官兵时，我们也向英勇的海军退伍军人致敬，我们庄严地纪念那些为捍卫我们的自由而做出最后牺牲的海军陆战队军人。我们将永远珍惜和纪念他们。
+郭文贵先生曾多次提到“马云”们的结局，一定会比“王健”更惨。根据目前外界盛传的“习江斗”日益升级，以及越来越紧迫的“反垄断”形势，不难推断：“马云”们的丧钟已经敲响！
 
-The First Lady and I send our thoughts and prayers to all members of our Armed Forces and their families. May God bless the Marine Corps, and may He continue to bless the United States of America.
+结合马云、马化腾等近两年逐步卸任各自原有职位的情形分析，在未来一段时间，这些互联网企业和大佬们的命运，大概有以下几种可能：
 
-第一夫人和我向我们所有的军人和他们的家人送上我们的思念和祈祷。愿上帝保佑海军陆战队，愿他继续保佑美利坚合众国。
+一、中央迅速启动反垄断调查，各大互联网巨头因行业“垄断”面临巨额罚款和一系列处罚，甚至罚没资产，掏空利益；
 
-Semper Fidelis!
+二、互联网大佬们认罪伏法，或者畏罪潜逃（自杀），没收资产，家人受牵连锒铛入狱；
 
-永远忠诚！
+三、上述所有资产迅速进入掌权派“白手套”们的新兴经济体，国内经济内循环萌发出勃勃生机……
 
-[阅读白宫原文](https://www.whitehouse.gov/briefings-statements/presidential-message-245th-birthday-united-states-marine-corps/)
+如此以来，因微信、抖音、阿里巴巴们长期以来所做的“恶事”使得中共在国际环境下面临的舆论压力也可以得以缓解。而中共将互联网企业进行“化整为零”的整治后，又可以以新的“马甲”进入硅谷偷盗技术，进入华尔街骗取资本。
 
-翻译：【重生】 编辑：【Isaiah4031】
+在爆料革命的一再打击之下，中共集团已进入最后的疯狂，这些互联网巨头的财富也许会被进一步打散、伪装，新中国联邦需要警惕原有邪恶集团的资本渗透、腐蚀新经济体。
 
-战友之家玫瑰园小队出品
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01145114/GNEWS-GTV-VOG.png)
-0
+相关链接：
+
+1. http://www.xinhuanet.com/politics/2020-10/24/c\_1126651818.htm
+2. https://m.21jingji.com/article/20201025/herald/6bbdf0612aa1263d3dd5a2826454450d.html
+3. https://new.qq.com/rain/a/20201105A0CWF200
+4. https://m.nbd.com.cn/articles/2020-11-10/1544423.html
+
+
+2+
