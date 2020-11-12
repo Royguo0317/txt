@@ -1,85 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国际社会敦促世卫组织邀请台湾参加世界卫生大会
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/548626/)
+## 川普总统在共产主义受害者纪念日的致辞
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/548678/)
 
-*新闻来源：香港自由报（Hong Kong Free Press）｜作者：妮娜·拉森（Nina Larson）来自法新社(AFP)；*
+摘要：11月7日川普总统在白宫发布关于共产主义受害者纪念日的致辞，并郑重地缅怀在20世纪被共产主义夺走了生命的1亿多世界人口。他说：在这个“共产主义受害者国庆日”上，我们承诺反对这种阴险的意识形态，并自豪地承诺美国将永远不会成为社会主义国家。我们缅怀所有为共产主义牺牲生命的人，并致力于促进自由，以便子孙后代能够繁荣昌盛。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01141526/WH_20201031_-Hostage-Rescue169.png)图片来源：[https://www.whitehouse.gov/](https://www.whitehouse.gov/)
+英汉对照全文如下：
 
-*翻译、简评：Marialu｜PR: 感恩｜审核：海阔天空｜PAGE：玄天生；*
+**Presidential Message on the National Day for the Victims of Communism**
 
-**简评：**
+**川普总统在共产主义受害者纪念日上致辞**
 
-台湾因迅速控制中共病毒而受到国际赞誉。国际上有十多个国家已经提议支持台湾以观察员身份参与世界卫生大会。台湾政府也积极争取至世界卫生大会交流相关经验。世界医学协会主席致信给世卫组织总干事谭德塞，表示“继续排斥台湾卫生代表参加世界卫生大会既愤世嫉俗又适得其反。” 而在中共病毒在全球范围内继续肆虐之际，这种呼吁变得越来越紧迫。然而世卫组织总干事谭德塞表示：台湾的参与只能在“有关政府”同意的情况下才决定——即指北京，而不是由成员国决定。
+Issued on: November 7, 2020
 
-从中再次看出谭德塞就是中共的一条狗。他们要让台湾承认台湾是中共国的一部分才能参加世界卫生大会，而蔡英文政府拒绝这样
+发布日期：2020年11月7日
 
-我们坚决抗议世界卫生组织及谭德塞之流漠视2300万台湾人民的健康人权，以及配合中共继续作恶。
+On National Day for the Victims of Communism, we solemnly remember the more than 100 million lives claimed by communism in the 20th century.  We commit ourselves to stopping the spread of this oppressive ideology that, without fail, leaves in its wake misery, destruction, and death.  As proud Americans who cherish the blessings of freedom and democracy, we promise to support the more than one billion people currently captive within communist regimes and denied their unalienable rights to life and liberty.
 
-我们也相信当中共倒台之日，也就是谭德塞及中共帮凶的末日。
+在共产主义受害者国庆日，我们郑重地缅怀20世纪被共产主义夺走了的1亿多人的生命。我们承诺要制止这种压迫性意识形态的传播，这种意识形态无休止地造成苦难、破坏和死亡。作为以珍惜自由和民主福祉为自豪的美国人，我们承诺要支持当下被共产主义政权俘虏并被剥夺了他们本不该被剥夺的生命权和自由权的十亿多人民。
 
-## 敦促世界卫生组织邀请台湾参加重要会议
+This year marks the 100th anniversary of the decisive Polish victory against Vladimir Lenin’s Bolsheviks in the Battle of Warsaw.  Known as the Miracle on the Vistula, the Polish heroes of this battle halted the spread of communism in Europe for decades.  Sadly, the Soviet Union erected an Iron Curtain around Poland and spread communism to neighboring countries and around the world.  Since then, the United States and the free world have borne witness to the horrors of communism, including Chinese prison camps and Soviet gulags.  Over the last century, communist regimes from Cambodia’s Khmer Rouge to Ethiopia’s Derg have confirmed the soul-crushing oppression inherent in Karl Marx’s philosophy.
 
-世界卫生组织（World Health Organization）收到新请求，允许台湾参加一个重要的国际会议。如果将台湾排除在外，可能危及全球遏制中共病毒大流行的努力。
+今年是波兰在华沙战役中战胜弗拉基米尔·列宁的布尔什维克的决定性胜利100周年。被称为维斯瓦奇迹的波兰英雄们在这场战斗中阻止了共产主义在欧洲的传播长达几十年。令人遗憾的是，苏联在波兰周围竖起了铁幕，并将共产主义传播到邻国和世界各地。自那时起，美国和自由世界见证了共产主义的恐怖，包括中国的监狱集中营和苏联的古拉格人。上个世纪以来，从柬埔寨的红色高棉到埃塞俄比亚的德尔格的共产主义政权都证实了卡尔·马克思哲学固有的灵魂压迫。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11125546/WH_20201107_Victims_of_Communism-figure1-scaled.jpg)图片来源：Photo by [Nick Fewings](https://unsplash.com/@jannerboy62?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/victims-of-communism?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText)
+Still today, we observe the irony of “People’s Republics” that belong not to the people, but to one-party and that exist only for the benefit of a select few.  Over and over, communism and socialism have proven to be irreconcilable with the unalienable and fundamental rights of life, liberty, and the pursuit of happiness.  While Marxism promises equality, peace, and happiness, in practice it results only in inequality, violence, and despair.
 
-世界上许多地区正因中共病毒的感染和死亡人数激增而心有余悸，世卫组织定于周一恢复其主要的年会，该年会在5月份被缩短。
+时至今日，我们仍然看到“人民共和国”的讽刺意味，这些“共和国”不属于人民，而是属于一党制，只为少数人的利益而存在。共产主义和社会主义一次又一次被证明与不可剥夺的基本权利——生命、自由和追求幸福——是不可调和的。马克思主义虽然承诺平等、和平与幸福，但实际上只会导致不平等、暴力和绝望。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11125612/WH_20201107_Victims_of_Communism-figure2-scaled.jpg)图片来源：Photo by [Steve Harvey](https://unsplash.com/@trommelkopf?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/victims-of-communism?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText)
+On this National Day for the Victims of Communism, we commit to standing against this insidious ideology, and pledge with great pride that the United States will never be a socialist nation.  We memorialize all those who have lost their lives to communism and recommit to promoting freedom so that future generations can flourish.
 
-[![](https://spark.adobe.com/page/4zyUvEM4ssE9S/images/d0557f1d-cc29-4bc7-a5f9-49f767c01385.png?asset_id=066aa691-5009-4936-9b7c-7efccd3f4d29&amp;img_etag=%2213541c181ecab122d55f68ad63eb1780%22&amp;size=2560)](https://spark.adobe.com/page/4zyUvEM4ssE9S/images/d0557f1d-cc29-4bc7-a5f9-49f767c01385.png?asset_id=066aa691-5009-4936-9b7c-7efccd3f4d29&amp;img_etag=%2213541c181ecab122d55f68ad63eb1780%22&amp;size=1024)*世卫组织总部主要会议室。照片：世卫组织。*
+在这个“共产主义受害者纪念日”上，我们承诺反对这种阴险的意识形态，并自豪地承诺美国将永远不会成为社会主义国家。我们缅怀所有为共产主义牺牲生命的人，并致力于促进自由，以便子孙后代能够繁荣昌盛。
 
-但是，尽管预期世界卫生大会（WHA）将把重点放在应对大瘟疫的国际协调上，某个国际角色（参与者）将不会出席。
+[阅读白宫原文](https://www.whitehouse.gov/briefings-statements/presidential-message-national-day-victims-communism-110720/)
 
-在中共国的施压下，台湾已被排除在世卫组织和其他一些国际组织之外，（因为）中共国将这个拥有2300万人口的自治的民主岛国视为自己的领土。
+翻译：【木木ANNA】校对：【重生】编辑：【Isaiah4031】
 
-但批评人士坚称，这没有道理。
-
-他们指出，该地区在抗击中共病毒方面取得了非凡的成功，自大瘟疫开始以来，只有7人死亡，感染人数不足600。
-
-[![](https://spark.adobe.com/page/4zyUvEM4ssE9S/images/b321d391-138a-4e74-a256-ecfe26fe6433.jpg?asset_id=0bae5c23-66e1-473e-82e6-f18825e5ee7b&amp;img_etag=%22fc135117f2d6777c4e988a7019069479%22&amp;size=2560)](https://spark.adobe.com/page/4zyUvEM4ssE9S/images/b321d391-138a-4e74-a256-ecfe26fe6433.jpg?asset_id=0bae5c23-66e1-473e-82e6-f18825e5ee7b&amp;img_etag=%22fc135117f2d6777c4e988a7019069479%22&amp;size=1024)*电子显微镜下的中共病毒（Covid-19）。档案照片：美国落基山实验室（NIAID-RML）*
-
-世界医学协会（WMA）是一个由全国医学协会组成的联合会，联合代表了1000多万名医生，该组织周四呼吁改变这种状况。
-
-世界医学协会（WMA）主席弗兰克·蒙哥马利（Frank Montgomery）在致世卫组织总干事谭德塞·阿达诺姆·盖布雷耶苏（Tedros Adhanom Ghebreyesus）的一封公开信中说：“新冠（Covid-19）大瘟疫证明，与全世界所有卫生保健系统进行合作是必要的。”
-
-“我们认为，继续排斥/拒绝台湾卫生代表参加世界卫生大会，既愤世嫉俗，又适得其反。”
-
-**很大的差距**
-
-中共病毒（新型冠状病毒）自去年年底首次在中共国出现以来，在全球已造成120多万人死亡，4800多万人感染，就在这种情况下，会议将在下周召开。
-
-长期以来，美国和其他国家一直呼吁联合国卫生署至少让台湾恢复其在2016年之前享有的观察员身份，而在中共病毒（冠状病毒）危机时刻，这种呼吁变得越来越紧迫。
-
-由于2020年世界卫生大会的第一部分仅持续了两天，而不是通常的三周，因此成员国早在5月就同意将有争议的台湾问题的讨论推迟到11月。
-
-[![](https://spark.adobe.com/page/4zyUvEM4ssE9S/images/f1ba27fa-b7cd-4393-8a63-0e2ae95fbb7e.jpg?asset_id=1c312e80-b00d-47d9-875f-ec29aa785a74&amp;img_etag=%22f713e248be2f6f30f8be660e85ec0e7f%22&amp;size=2560)](https://spark.adobe.com/page/4zyUvEM4ssE9S/images/f1ba27fa-b7cd-4393-8a63-0e2ae95fbb7e.jpg?asset_id=1c312e80-b00d-47d9-875f-ec29aa785a74&amp;img_etag=%22f713e248be2f6f30f8be660e85ec0e7f%22&amp;size=1024)*照片：奥拉尔（Olaer） /埃尔默·安东尼（Ella Anthony）通过Flickr提供。*
-
-包括伯利兹、危地马拉、马绍尔群岛和洪都拉斯在内的十多个国家已经提议讨论是否允许台湾作为观察员参加，但目前尚不清楚该问题是否会被允许列入议程。
-
-台湾及其盟友认为，将台湾纳入讨论，国际社会将从中获益良多。
-
-他们还警告说，如果将台湾置于冷漠之中,不能直接获取信息，这可能会威胁到遏制疫情的努力。
-
-台湾驻日内瓦大使王良玉上周对法新社说：“当涉及此次大瘟疫时，我们需要全力合作、消除差距，然而我们看到很大的差距。”
-
-世卫组织总干事谭德塞（Tedros）表示，台湾的参与只能由成员国在“有关政府”同意的情况下决定——即指北京。
-
-但王良玉坚称，世卫组织本身“确实有权邀请台湾作为观察员”
-
-[![](https://spark.adobe.com/page/4zyUvEM4ssE9S/images/5f8b2ddf-533a-4fb8-b16a-f55bff5d2518.jpg?asset_id=4854f2ff-f7e2-4c07-84a6-f00863af8506&amp;img_etag=%222176eda3e7b7c86ae748573b9a3feaa8%22&amp;size=2560)](https://spark.adobe.com/page/4zyUvEM4ssE9S/images/5f8b2ddf-533a-4fb8-b16a-f55bff5d2518.jpg?asset_id=4854f2ff-f7e2-4c07-84a6-f00863af8506&amp;img_etag=%222176eda3e7b7c86ae748573b9a3feaa8%22&amp;size=1024)*谭德塞（Tedros Adhanom Ghebreyesus）（左）。档案照片：联合国。*
-
-台湾——官方称为“中华民国”——在1948年全球卫生组织成立时是世卫组织的创始成员。
-
-但当“中华民国”在联合国把“中国”席位输给 “中华人民共和国”一年后，于1972年就被开除出世卫组织。
-
-在2009年至2016年之间，北京允许台湾以“中华台北”的名义以观察员身份出席世界卫生大会。
-
-随着台湾总统蔡英文的当选，台湾失去了这一地位。蔡英文认为台湾是一个事实上的独立国家，不认同北京关于台湾属于“一个中国”的主张。
-
-[新闻链接](https://hongkongfp.com/2020/11/06/who-urged-to-invite-taiwan-to-key-meeting/)
-
-[**点击阅读英喜庄园在G-News 的更多精彩文章**](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[**点击观看英喜庄园在G-TV的精彩视频**](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-编辑 [【喜马拉雅战鹰团】](https://spark.adobe.com/page/4zyUvEM4ssE9S/)-点击Adobe Spark版
-[![](https://spark.adobe.com/page/4zyUvEM4ssE9S/images/64c12a4f-101f-4f6d-ba92-db7b5c47e8fc.jpg?asset_id=be92a11b-7c66-4af5-9357-e7a2df1e1cbb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/4zyUvEM4ssE9S/images/64c12a4f-101f-4f6d-ba92-db7b5c47e8fc.jpg?asset_id=be92a11b-7c66-4af5-9357-e7a2df1e1cbb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+战友之家玫瑰园小队出品
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01145114/GNEWS-GTV-VOG.png)
 0

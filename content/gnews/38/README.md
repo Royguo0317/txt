@@ -1,39 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共和党检察长在最高法院的支持川普大选的行动
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/548232/)
+## John Locke（约翰洛克）自由主义之父
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/547936/)
 
-*多伦多加喜农场 Spirit
-校对 文锦 上传 WJ*
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11103515/Trump123.jpg)图片来源 Businessinsider
-根据Westernjournal 11月10日的报道，一组共和党总检察长说，宾夕法尼亚州成为2020年选举的焦点，川普总统对这里计票缺陷和不准确的现象进行抨击。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24064746/WhatsApp-Image-2020-10-24-at-15.08.49.jpeg)
+作者：康州农场-GTalk心语堂
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092251/image2-7.jpeg)
+被后世誉为自由主义之父的约翰洛克，在他1689年匿名出版的《政府论》中的主张，今天听来依然振聋发聩，他说: 政府只有在取得被统治者的同意，并且能够有效保障被统治的生命，自由和财产，其统治才有正当性。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092304/image3-4.jpeg)
+约翰洛克的主张直接激励了18世纪最伟大的一次政治实验—美国政府的建立。可以毫不夸张的说，没有约翰洛克，就没有美国的独立宣言和宪法。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092317/image4-2.jpeg)
+约翰洛克在他的《政府论》中提出，人类历史上最大的课题不是这个世界上是否应该有权力，或者权力是从哪里来的，而是谁应该拥有权力。
+他指出想要弄明白为什么要建立政府和如何建立，必须要首先承认，人人生而平等，都有与生俱来的上帝给予的生命权，自由权，财产权。
+他指出，人们是为了保护彼此的这些权利而组建在一起，并形成社会，制定契约的。是在彼此同意的前提下建立政府，并履行彼此的意愿。 政府没有权力要求拥有自由意志的人民服从他们不认可的一切行为。如果政府虐待，欺骗，压迫人民，人民有权收回他们对政府的许可，并把权力交给能够维护他们权利的政府。也就是说，政府是基于被管理者的同意而设立的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092327/image5-2.jpeg)
+一个世纪以后，约翰洛克的哲学主张和自由主义思想，在北美大陆被人类第一次践行。美国独立宣言和之后的美国宪法中无不闪耀着约翰洛克的思想光辉。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092345/image6-6.png)
+他的这些主张包括:天赋人权，民选政府，权力制约，政教分离，人民有权力而且有义务推翻独裁政府，等等。
 
-民主党人乔-拜登（Joe Biden）已被宣布为宾夕法尼亚州的胜利者，但川普竞选活动对如何计票提出了严重质疑。 川普的律师鲁迪-朱利安尼(Rudy Giuliani)周日表示，受到质疑的选票数量非常多，可能会使结果发生翻转。
-
-最高法院法官塞缪尔-阿利托 （Samuel Alito）上周下令州政府官员在投票结束后单独保留宾夕法尼亚州选举办公室收到的邮寄选票。
-
-以此为背景，密苏里州司法部长埃里克-施密特(Eric Schmitt)向美国最高法院提交了非当事人意见书，要求川普竞选团队确保选举日之后到达的邮寄选票不被计算在内。
-
-与施密特一起的还有来自阿拉巴马州、阿肯色州、佛罗里达州、肯塔基州、路易斯安那州、密西西比州、南卡罗来纳州、南达科他州和德克萨斯州的共和党总检察长。
-
-川普的竞选团队正在起诉，要求推翻宾夕法尼亚州最高法院的一项裁决:允许在选举日之前邮寄的选票以邮戳为准，只要在周五之前到达即可计算。
-
-试图阻止迟来的选票被计算的总检察长认为，”该裁决允许在选举后几天收到并计算没有邮戳或没有清晰邮戳的邮递选票，从而加剧了邮递选票欺诈的风险。”
-
-“这项决定在选举日之后，即初步结果公布之后，提供了一个时间窗口，在这段时间里，不法分子可以影响宾夕法尼亚州和其他地方的激烈的总统选举。所以要求选举委员会对迟来的选票进行统计，没有证据表明这些选票是在选举日之前投出的，因为它们没有可辨认的邮戳，从而增加了舞弊的机会。”意见书中写道。
-
-宾夕法尼亚州法院的裁决 “引起了对非法投票的两个关注。首先，在宾夕法尼亚州立法机构制定的规则之外所投的选票是非法的。 第二，宾夕法尼亚州最高法院的裁决加剧了舞弊的风险。延迟票不仅是非法的，而且是彻头彻尾的舞弊。”施密特和他的盟友认为。
-
-该起诉书提出了两个问题：一是法院超越了其管辖权，这种决定属于州议会，而不是法院。 二是”宾夕法尼亚州最高法院的决定超越了其宪法权限，侵犯了授予宾夕法尼亚州立法机构的权力“。
-
-检察长们指出，利用邮寄选票进行舞弊的历史非常悠久。”数十年来，负责任的观察家们一直在告诫通过邮寄投票的严重欺诈风险，”该文件补充道，”压倒性的公开证据表明，通过邮寄投票为欺诈和滥用提供了独特的机会。”结论是，”邮寄投票中的欺诈行为经常涉及拦截、更改和欺诈性地提交缺席或邮寄的选票。”
-
-“因此，宾夕法尼亚州法院的决定加剧了欺诈性投票的风险。”
-
-民主党一直在给选民“推销”邮寄选票，这样他们有“操作”的空间。宾夕法尼亚的法院裁决给作假邮寄选票提供了良好的作案环境。但是共和党的检察长不会让这些明显作假的邮寄选票计算在内，在向最高法院的提出意见或上诉，通过法律战来得出真正的选票结果。同时我们也期待作假方能够得到应有的惩罚。
-
-参考链接：
-[Republican Attorneys Make Supreme Court Move in Support of Trump’s Election Challenge](https://www.westernjournal.com/republican-attorneys-make-supreme-court-move-support-trumps-election-challenge/)
+美国的先贤们忠实的奉行着这些主张，在人类历史上建立了第一个旨在保护人民权利的政府。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092404/image7-3.png)
+2020年的这次选举是对美国民主制度的一次历史性考验。我们相信，有200余年历史积淀的自由，民主，法治的精神会战胜所有黑暗势力，那些违背民意的政客，那些掩盖真相，压制真实声音的媒体，还有那些幕后的利益集团和ccp的黑手都将灰飞烟灭。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092448/image8-1.png)
+在中共国，防火墙再高也无法抵挡人民要求民主，自由，平等的呼声。70年来，中共独裁政府把人民的生命，自由和财产权紧紧的握在自己的手里并美其名曰以人民的名义，
+然而其实质是至高无上的皇权又一次借尸还魂。中国人民又一次站在了历史的十字路口，请14亿中国同胞在夜深人静的时候扪心自问，你有同意中共政府向全世界散播病毒，威胁人类生命吗？你有同意中共政府建立集中营关押那些有独立，民主思想的同胞吗？你有同意中共政府通过操纵股市，非法集资，恶意强拆来霸占你的财产吗？还有，你的选票在哪里？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11092523/image9-1.png)
+请记住，“政府是基于被管理者同意而设立的。”
+Source from:GTalk
+Pictures from:
+https://i.ytimg.com/vi/SzgZJ9JTk4U/maxresdefault.jpg 
+https://cdn.britannica.com/21/143621-050-D0409B47/Declaration-of-Independence-canvas-rotunda-John-Trumbull-July-4-1776.jpg 
+https://www.quotemaster.org/images/30/30dd83af87146565745e1325891fbb3c.jpg 
+https://lawliberty.org/app/uploads/2020/03/Declaration-and-Constitution-Flag.jpg 
+https://slideplayer.com/slide/12223394/72/images/3/John+Locke+Core+beliefs%3A.jpg 
+https://media.vanityfair.com/photos/5b15798b76ca49160fe5479f/master/pass/donald-trump-fbi.jpg 
+https://cdn.i-scmp.com/sites/default/files/d8/images/methode/2019/09/22/03154a68-dc54-11e9-80eb-3aa57b6d2433\_image\_hires\_101052.JPG 
+https://upload.wikimedia.org/wikipedia/commons/9/9d/American\_Revolution\_Bicentennial\_Deriving\_Their\_Just\_Powers…\_10c\_1974\_issue\_U.S.\_stamp.jpg
 
 0

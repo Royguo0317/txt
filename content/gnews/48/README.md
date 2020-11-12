@@ -1,13 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆料革命终极之战系列十四：彭佩奥重磅声明，中共是世界自由头号威胁，美国需要军事力量挑战其暴行
-` GM101` [轉載自GNews](https://gnews.org/zh-hans/548042/)
+## 【路德社精选】11/8/2020早间节目 中共造假过头，川普一定会赢的大选，但是需要大家一起行动，传播真相。
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/547164/)
 
-美东时间11月10号，彭佩奥在里根研究所发表了重磅讲话，指出中共是专制、残暴、反对人类基本尊严和自由的政权，美国与中共之间的关系是专制独裁、野蛮和自由之间的斗争。
+听写：明台 校对：明台 简介：李小甜 恩真 文宣图：艾伦 出品:喜韩文宣部
 
-彭佩奥表示从美日印澳四边机制（QUAD）到东盟（ASEAN）、北约（NATO），川普政府为美国国家安全乃至全人类自由做出了重要的转变。不再允许中共肆虐全球的暴行，包括非法抢占南中国海、利用使馆窝藏间谍、盗窃知识产权、侵犯基本人权、对新疆和西藏等地的暴行。
+简介：
 
-彭佩奥重申挑战中共暴行，不仅需要外交方面的努力，更需要军事力量维持和平，川普政府启动并强化了实现该目标等一系列机制
+1.2020美国大选存在大量舞弊，媒体宣布选举效果无效。
 
+2.中共造假过头，拜登领先，反而让川普获得主动权。
+
+3.川普代表的是新兴的共和党，共和党建制派已经彻底结束。
+
+4.习近平因为心虚紧张，不敢给拜登贺电。
+
+5.蔡英文代表不了中国人，川普总统一定会赢的大选。
+
+文宣图：
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11101105/1-49.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11050725/2-63.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11102057/3-52.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11102016/4-27.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11102032/5-25.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11102043/6-28.png)
 0
