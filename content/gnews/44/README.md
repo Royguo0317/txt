@@ -1,9 +1,7 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【字幕】11/11/2020文贵：共产党干坏事不会招告天下的
-` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/551601/)
-
-制作： 【彩虹桥】
+## 数百挺川普的志愿者正在清洗选票数据
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/551645/)
 
 0

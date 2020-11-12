@@ -1,33 +1,103 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 谈一谈2020年美国大选期间发生的怪事
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/552322/)
+## 《骑龙》揭秘了拜登家族和中共的关系
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/552311/)
 
-*多伦多加喜农场 红叶
-校对 文锦 上传 WJ*
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12173651/114788990_polltracker_index_promo976_v2.png)图片来源：BBC
-看完2020年大选, 你是否会有好多的问题？也许之前会有人说你是一个阴谋论者， 可是这次你不必是个疯子就能提出好几百个问题。
+*新闻来源：《华盛顿时报 (The Washington Times）》；作者：詹姆斯•瓦尼（James Varney）；发布时间： 2020年11月8日*
 
-暂且不说从社交媒体上看到的民主党选民舞弊的惯常技俩，如非法收票、让非法移民和死人投票、以及让迁出本州的人填写选票等等，大选11月3号当晚发生的一些怪异的事情，是左派新闻媒体无法推脱的。
+*翻译/简评：Cathy r；校对：随波逐流；审核：freedust；Page：Connor54*
 
-大选中关键的两个州俄亥俄州和佛罗里达州是决定选举人最终得胜的州。 自1904年以来候选人谁赢得了俄亥俄州，谁就赢得了总统选举。 美国历史上只有两次例外—-今年就是一个例外。
+[!\[\]()!\[\](https://spark.adobe.com/page/BFGZ6TRI6edrB/images/8cf7d071-b427-4268-a501-5ba82675cc17.jpg?asset_id=b8c59136-455b-4b03-ae39-b3ce270d7b01&amp;img_etag=%22ff9f5e2f6b6114f0c1b46f0e4f66a7d9%22&amp;size=1024)](https://spark.adobe.com/page/BFGZ6TRI6edrB/images/8cf7d071-b427-4268-a501-5ba82675cc17.jpg?asset_id=b8c59136-455b-4b03-ae39-b3ce270d7b01&amp;img_etag=%22ff9f5e2f6b6114f0c1b46f0e4f66a7d9%22&amp;size=1024)
 
-另外，没有一个共和党总统候选人在没有赢得佛罗里达州的情况下赢得了选举， 而历史上只有两次民主党人在没有赢得佛罗里达州的情况下赢得了选举。川普赢得了这两个关键州的选票。 但是左派媒体告诉我们他输给了拜登？你相信吗？
+**简评：**
 
-川普不仅赢得了这两个关键州，而且在纽约等纯蓝州也就是民主党州也获得了多数支持。大选当晚左派媒体显示川普赢得了密歇根州 、宾夕法尼亚州、 威斯康星州和佐治亚州。可是第二天早上这些州就又变成了蓝色，一夜之间在点票结束后川普的选票数量从高于拜登就变成了少于拜登。 这些选票从哪里出来的呢？
+《骑龙》的电影已在网络上获得200万次的观看量，导演MA泰勒在接受《华盛顿时报》的采访中谈到了他对拍摄反映拜登家族腐败的纪录片时的看法。正值好似拜登要成为美国政策的负责人，他对美国政治环境非常关注，他认为快速发展的技术和“公民新闻”将解决一些问题，也就是要唤醒美国民众，“事情在不断发展。只要对真相持续挖掘，真相就会出来。”，毕竟真相”太吓人了“，沼泽太深，没有民众的觉醒，谁也不能保证一定能把沼泽排干。21世纪人类最该作的就是觉醒，面对世界被精英腐败政治所控制的真相。
 
-左派新闻媒体一直预测的所谓 “蓝潮”，就是参众两院会被民主党所把持。那么就是说共和党人在其他州地表现的不尽人意吗？事实告诉我们共和党人至今守住了参议院的席位并且在众议院的席位也有所提升。
+# “骑龙”电影制片人将为您揭秘拜登家族与中共国政府的关系
 
-如果民主党人没有操纵选举让拜登胜出， 那么拜登在表现优异的几个关键州，国会投票候选人本应顺理成章当选， 可是为什么没有呢？ 难道是在组织选民舞弊关键几个州里共和党人的表现并不好吗？ 还是因为像媒体报道的那样， 这些关键州的45万张选票都是只投给拜登的，根本没有一张投给对方的选票？民主党人将如何应对那些关键州的45万张选票只投给拜登，而选票上没有其他人的选项？
+[!\[\]()!\[\](https://spark.adobe.com/page/BFGZ6TRI6edrB/images/4d9e6c7d-113e-492e-a3a1-9b8e0e614405.jpg?asset_id=d44b2b10-14ff-44f0-9a8d-616e2d4db6fe&amp;img_etag=%22568bca785532852d7080c52e2b535e75%22&amp;size=1024)](https://spark.adobe.com/page/BFGZ6TRI6edrB/images/4d9e6c7d-113e-492e-a3a1-9b8e0e614405.jpg?asset_id=d44b2b10-14ff-44f0-9a8d-616e2d4db6fe&amp;img_etag=%22568bca785532852d7080c52e2b535e75%22&amp;size=1024)
 
-并不是说100%不可能会发生在选票上只标明了拜登，但从那些州以往的规律来看从来没有出现过有那么多选票只标明了头号候选人，而没有其他候选人的选项。 这是不可能的，但的的确确发生在这次选举中。难道是巧合吗？违背规律的蹊跷让人产生诸多疑问。
+重要谈话
 
-评论：2020美国大选让我们看的目瞪口呆，这是发生在一个健全的民主国家吗？选举舞弊是对每一个选民权益的亵渎。相信美国的法律会给每个选民一个公正交代，这不是哪位选举人胜出的问题，而是世界自由民主灯塔的法治被践踏的严重问题。
+特殊系列采访那些挑战现状的美国人
+
+如果约瑟夫•拜登（Joseph R. Biden）入主白宫，MA•泰勒（MATaylor）认为，美国人比以往更需要了解他的家族与中共国及其共产党政府之间的财务往来是什么样的。
+
+他说，他的电影《骑龙：拜登的中共国秘密》已经获得了超过200万的在线观看量，但这仅仅是个开始。
+
+他说“这部纪录片比以前更具有全新的意义，这部电影有一个新的使命。”
+
+总统大选前两个月，《骑龙》首次亮相。大幕拉开几周前，一本被认为属于拜登先生儿子亨特的笔记本电脑浮出水面，里面有一些电子邮件和文件，概述了他在国外的许多商业交易。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/BFGZ6TRI6edrB/images/ee698b6f-4336-4c7f-b901-ed33a3dbe2e6.jpg?asset_id=8cdca29d-9641-4abd-81ba-82a66b11d6eb&amp;img_etag=%22421c54228bbf0c7e0c7e32cc791e490d%22&amp;size=1024)](https://spark.adobe.com/page/BFGZ6TRI6edrB/images/ee698b6f-4336-4c7f-b901-ed33a3dbe2e6.jpg?asset_id=8cdca29d-9641-4abd-81ba-82a66b11d6eb&amp;img_etag=%22421c54228bbf0c7e0c7e32cc791e490d%22&amp;size=1024)
+
+拜登批评者说，最令人震惊的是电子邮件详细描述了亨特•拜登与一家中共国公司的交易，当时他的父亲担任副总统并作为奥巴马政府大吹大擂的“亚洲枢纽”的代理人。
+
+泰勒先生说，如果可能，拜登在一月份入主白宫，这些交易的线索必须暴露出来。
+
+他说：“乔•拜登表示选举是品格问题，我绝对同意。”
+
+这张关系网可能会令人困惑。
+
+在北京方面有中国航空工业集团有限公司（AVIC），中国广核集团（China General Nuclear Power Corp. ），渤海华美公司（Bohai Harvest）和其它公司。在美国方面与罗斯蒙特•塞内卡伙伴公司（ Rosemont Seneca Partners），罗斯蒙特•现实公司（Rosemont Realty）， 伯纳姆资产管理公司（Burnham Asset Management）等相关。
+
+纪录片将所有这些联系在一起，用一个匿名的链接将主要参与者的照片和便签卡之间在软木板上连接起来。它还有的一个特色是将章节以翻滚的云状尘埃和烟雾隔断并配以有时不祥的音轨。
+
+泰勒先生说：“这是一部电影。”
+
+然而，它的主题决不轻松愉快。主持人是彼得•史威哲（Peter Schweizer），他是作家兼政治顾问，他也许最出名的是他的2015年著作《克林顿•金钱》（Clinton Cash），该书揭露了流经比尔和希拉里•克林顿的慈善组织的大量资金。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/BFGZ6TRI6edrB/images/ce6ae9ac-aca3-43f3-b56d-cacfb74abd29.jpg?asset_id=13bc6943-1b2f-4dec-9e97-00965589ea93&amp;img_etag=%227c87967902c10fcabebd4ebb2dc7ab34%22&amp;size=2560)](https://spark.adobe.com/page/BFGZ6TRI6edrB/images/ce6ae9ac-aca3-43f3-b56d-cacfb74abd29.jpg?asset_id=13bc6943-1b2f-4dec-9e97-00965589ea93&amp;img_etag=%227c87967902c10fcabebd4ebb2dc7ab34%22&amp;size=1024)
+
+这部电影没有涉及中共国的交易，仅提及亨特•拜登与乌克兰公司的安排。他的父亲也曾担任奥巴马政府在乌克兰的重要人物，而亨特•拜登在与父亲一起到那里旅行后得到了盆满钵满的交易。
+
+所有这些以及和长期与保守派挑衅者格伦•贝克（Glenn Beck）相关联的“火焰电视”（Blaze TV）的联系，足以使自由派媒体视这部电影为党派构陷。
+
+泰勒先生承认肯定将会被提出指责，但他说《骑龙》内容会证明它们是虚假的。
+
+他说：“我们在任何地方都没有说‘为唐纳德•川普投票或‘不要为乔•拜登投票‘。相反，它只是问，‘他为什么这样做？’他们所做的决定，他们的促进和他们的时机都令人怀疑，这些都是应该审查的东西。”
+
+泰勒先生说，在总统投票结束后，这部电影为媒体和执法部门提供了可借鉴的路线图。他说，鉴于中共国是竞争的超级大国，与涉嫌盗窃美国敏感和受版权保护的美国技术有关的逮捕和调查，以及现在拜登先生已明显升任美国政策负责人，无视这些问题将是轻率的。
+
+泰勒先生说：“在接下来的几个月或几年里，我们应该对所发生的事情有一个清晰的视野，确切地说是’麒麟全球企业有限公司’到底是什么，我的问题是腐败。电影中没有什么是特别违法的。担任董事或为你的服务获得报酬不是违法的。”
+
+“但渤海投资（Bohair Investments）和中航工业公司并未投资迪士尼。他们投资了具有双重用途技术的美国公司。”他针对他们在2015年收购瀚德汽车控股有限公司（Henniges Automotive）时说道。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/BFGZ6TRI6edrB/images/cb50683c-ba8e-44c6-bd4d-27de7a0035aa.png?asset_id=3baec8e5-6081-4e11-930f-1e1de73b037d&amp;img_etag=%229cbfb0bf5b6359c18e3597d62481cd2c%22&amp;size=1024)](https://spark.adobe.com/page/BFGZ6TRI6edrB/images/cb50683c-ba8e-44c6-bd4d-27de7a0035aa.png?asset_id=3baec8e5-6081-4e11-930f-1e1de73b037d&amp;img_etag=%229cbfb0bf5b6359c18e3597d62481cd2c%22&amp;size=1024)
+
+41岁的泰勒先生与制片人妻子米歇尔（Michelle）一起制作了这部电影。制作这部电影所需的钱是私人筹集的。他说，好莱坞越来越依赖私人部门的巨额贷款，这意味“骑龙就像其它电影一样制作”。
+
+尽管司法部追查 中共国、乌克兰和其它国家与拜登家族的交易的可能性很低，但泰勒先生仍然保持乐观。
+
+他坚信应任命一名特别检察官调查此事。他说，即使没有特别检察官，快速发展的技术和“公民新闻”也将解决一些剩余的问题。
+
+他的其它纪录片也像他现在这样，如与史威哲先生的另一次合作的《克林顿•金钱》（Clinton Cash），还有关于社交媒体巨头审查令民主党人不满意的内容的《恐怖的路线》（The Creepy Line）。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/BFGZ6TRI6edrB/images/d3d455ce-4fea-4f81-9ac3-8f6845c5919a.jpg?asset_id=87062acc-5d14-4e88-b9ca-367d8db43895&amp;img_etag=%229ade0d894d31e7bce0540652ac4b8ade%22&amp;size=1024)](https://spark.adobe.com/page/BFGZ6TRI6edrB/images/d3d455ce-4fea-4f81-9ac3-8f6845c5919a.jpg?asset_id=87062acc-5d14-4e88-b9ca-367d8db43895&amp;img_etag=%229ade0d894d31e7bce0540652ac4b8ade%22&amp;size=1024)
+
+“我对美国感到乐观。我不认为，’哦，如果这家伙被选为（总统）世界就毁灭了，”他说。 “事情在不断发展。只要创新持续存在，真相就会出来。”
+
+他说，这里的真相使他感到恐惧。
+
+泰勒先生比较了外国实体在克林顿各种非营利组织中进行的无数投资，以及向拜登家族成员建立的组织支付的数十亿美元。
+
+他说：“这太肮脏太吓人了。如果你注意克林顿基金会（Clinton Foundation）或克林顿全球倡议（Clinton Global Initiative），那是一个更优雅的设计，更聪明。如果你愿意（认为），克林顿的交易好像不太危险。无论是新型战斗机的技术，还是在南中共国海助他们一臂之力，中共国的发展都没有威胁。”
+
+《骑龙》详细介绍了亨特•拜登而不是乔•拜登在中共国达成的可疑交易。而他们的交易之间有关连吗？
+
+“这甚至是个问题吗？”泰勒先生说。“乔•拜登说，这次选举是关于品格的，我绝对同意。归根结底，这一切由乔•拜登提供了便利，而亨特是他的代理人。这一切都是在乔•拜登担任亚洲要员时发生的，所以他要么是一个糟糕的外交官，要么他知道。”
 
 
 
-参考链接：
-[Odd Things That Happened During 2020 Election That Need Explanations](https://djhjmedia.com/rich/odd-things-that-happened-during-2020-election-that-need-explanations/)
+[原文链接](https://www.washingtontimes.com/news/2020/nov/8/m-taylor-riding-dragon-filmmaker-connects-biden-fa/?utm_source=RSS_Feed&amp;utm_medium=RSS)
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/BFGZ6TRI6edrB/)】-点击spark adobe版
+
+[!\[\]()!\[\](https://spark.adobe.com/page/BFGZ6TRI6edrB/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/BFGZ6TRI6edrB/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

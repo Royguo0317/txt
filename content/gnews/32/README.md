@@ -1,53 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家！《拜登大选作弊》系列（1）
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/551585/)
+## 川普最新推文：数百万川普的选票被选票系统删除或转移给拜登
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/551851/)
 
-- 编辑：文顺
-- 作者：小木头
+草原三省战友团     文静
 
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12135319/WBUR-Trump.jpg)图片来自 WBUR
+快讯：11月12日中午最新川普总统推文，根据有关报告得悉Dominion 选票系统，删除了270万川普选票，全美国数据系统分析发现有22万1千张宾州的选票从川普名下转给了拜登，有94万1千川普选票被删除，相关的各州有43万5千川普选票用Dominion 选票系统转给了拜登！
 
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-拜登大选作弊已浮出水面，根据多方报道，我们整理出拜登大选作弊所用的手段。
-
-**死人票**
-
-11月12日，据Parler用户TeamTrump披露，去世17年的乔治亚州尼科尔森居民琳达·凯斯勒夫人在选举中投票。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12123915/cheat3.jpg)
-原文链接：[https://parler.com/post/a46501d3fa874fc48d12e95dcc93dae6](https://parler.com/post/a46501d3fa874fc48d12e95dcc93dae6)
-
-**过期选票盖选举邮戳**
-
-11月9日，据Veritas 项目披露，密西根州邮递员实名揭发其主管要求以假邮戳处理不符合资格的过期选票。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12124351/cheat9.jpg)
-原文链接：[https://www.projectveritas.com/news/project-veritas-offers-usd25k-reward-for-tips-related-to-election-voter-and/](https://www.projectveritas.com/news/project-veritas-offers-usd25k-reward-for-tips-related-to-election-voter-and/)
-
-**拒绝共和党监票员入场监督**
-
-11月10日，费城私人执业律师杰罗姆·马库斯披露，在费城会议中心亲自看到有十名特朗普竞选志愿者被禁止进入计票室。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12124403/cheat10.jpg)
-原文链接：[https://thefederalist.com/2020/11/10/i-was-in-philadelphia-watching-fraud-happen-heres-how-it-went-down/](https://thefederalist.com/2020/11/10/i-was-in-philadelphia-watching-fraud-happen-heres-how-it-went-down/)
-
-**点票软件频出错 把川普票变成拜登票**
-
-11月11日，据推友转推，前联邦检察官和现任律师Sidney Powell在FOX中披露，投票软件Dominion系统里面有中共软件，出现的问题可能是故意设置的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12124504/cheat1.jpg)
-原文链接：
-
-- [https://www.washingtonexaminer.com/news/trump-campaign-files-federal-lawsuit-in-michigan-over-fraud-allegations](https://www.washingtonexaminer.com/news/trump-campaign-files-federal-lawsuit-in-michigan-over-fraud-allegations)
-- [https://twitter.com/M2Madness/status/1326526096221802498?s=20](https://twitter.com/M2Madness/status/1326526096221802498?s=20)
+从以上川普公布的数据来看，非常让人震惊，现实触目惊心！这是一场世纪盗窃，这是美国有史以来最大、最丑恶的总统选举选票欺诈。有新中国联邦、爆料革命之前所揭示的拜登家族与中共狼狈为奸的罪恶勾当在先，很容易让人联想到，这次美国总统大选出现的各地、多种欺诈行径的背后黑手就是中共！随着大量实锤证据被公示和诉讼于法律，有关选票的欺诈做案人一定会被绳之以法。我们坚信，美国的司法体系一定会很快修复，中共的邪恶企图一定会破产，川普必赢！
 
 
-**午夜幽灵票**
 
-11月10日，据《DAILY WIRE》报道，在美国353个县，登记的选民比合格公民多180万。报道称，司法观察主席汤姆·菲顿总结道：”新的研究表明，在29个州的353个县中，有180万选民超额，或’幽灵’选民。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12124609/cheat15.jpg)
-原文链接：[https://www.dailywire.com/news/report-in-353-u-s-counties-1-8-million-more-voters-registered-than-eligible-citizens](https://www.dailywire.com/news/report-in-353-u-s-counties-1-8-million-more-voters-registered-than-eligible-citizens)
+> “REPORT: DOMINION DELETED 2.7 MILLION TRUMP VOTES NATIONWIDE. DATA ANALYSIS FINDS 221,000 PENNSYLVANIA VOTES SWITCHED FROM PRESIDENT TRUMP TO BIDEN. 941,000 TRUMP VOTES DELETED. STATES USING DOMINION VOTING SYSTEMS SWITCHED 435,000 VOTES FROM TRUMP TO BIDEN.” [@ChanelRion](https://twitter.com/ChanelRion?ref_src=twsrc%5Etfw) [@OANN](https://twitter.com/OANN?ref_src=twsrc%5Etfw)
+> — Donald J. Trump (@realDonaldTrump) [November 12, 2020](https://twitter.com/realDonaldTrump/status/1326926226888544256?ref_src=twsrc%5Etfw)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0

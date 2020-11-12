@@ -1,77 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】川普总统发推证实“dominion”软件严重造假！13种川普胜选组合显示：赢下三州可达284票！
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/551957/)
+## “错误”捂不住了！多地民主党席位翻转
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/552019/)
 
-作者：纽约香草山写作组 正道主义联盟
+*多伦多加喜农场 卢比肯
+校对 文锦 上传 W*J
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
+据《西方日报》11月11日报道，越来越多的电脑故障和其他计票错误在这个选举周期中发生，而且这些“错误”总是不利于共和党。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12152619/jdhasdK.jpg)图片来源：Kamil Krzaczyński/AFP/Getty Images
+据《康涅狄格州镜报》报道，该州发现在州选举报告系统中并没有录入来自耶鲁镇小学的选票，该小学是柴郡和沃林福德第90区的九个投票站之一，经过修正后的数据显示，该州共和党州众议员克雷格-菲什宾（Craig Fishbein) 以7,058票VS 7,037票领先他的民主党挑战者吉姆-金克斯(Jim Jinks)。因为这个结果非常接近，所以将重新计票。
 
+佐治亚州州务卿布拉德-拉芬斯佩尔（Brad Raffensperger)周三宣布，将对该州的总统选举结果进行人工重新计票。由于该州至少有两个郡使用的Dominion投票系统软件都在选举日出现故障。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12150412/unnamed-file-3.png)
-目前川普总统连续扳回北卡，内华达州，已达232票，距离总统赢出大选270票至少还需38张选票！
+此外，密歇根州安特里姆郡（Antrim County）的选举官员指责Dominion 投票系统软件出现故障，错误地认定前副总统拜登在该县以超过3000票的优势击败了川普总统。更新错误后的数据显示，川普以近2500票的优势获胜。 与此同时，密歇根州共和党人奥克兰（Oakland County）郡郡长亚当-科切德弗(Adam Kochenderfer) 在发现计票错误后，得知自己在竞选连任中胜出，而不是失败。
 
-目前为止，川普竞选团队已经至少在密歇根州、佐治亚州、内华达州，宾夕法尼亚州，亚利桑那州，威斯康星州提起了许多诉讼。以下是这些摇摆州选举人票清单：
+我们不得不质疑在选举日投票结束后不到10天的日子里，各地报出的种种错误是纯粹的巧合吗？中间是否存在着某种联系？
 
-PA：宾夕法尼亚州20票
+其实早在4月份就有选举网络专家告知《西部日报》，投票软件系统是可以被黑客入侵并重新编程，以歪曲选票的统计。
+其中一位著名选举安全专家亨瑞-胡斯蒂（Harri Hursti），HBO纪录片《杀链：美国选举的网络战争》的主演就曾解释说，“所有这些设备都是经过编程的，并将数据组织起来并传达给中央数据库。存储卡实际上是有编程的一面，编程可以有很多逻辑。因此，程序可以动态地监视正在发生的事情，并当场决定在这个选区的这台机器需要做什么，从而成为改变整体结果的一部分。”这些专家认为，验证投票是否准确的最好办法是对选举结果进行限制错误风险的随机审计，无论胜出的比率。
 
-GA：乔治亚州16票
+评论：这是巧合吗？多地出现的各种“错误”状况都是向着利于民主党及民主党候选人乔·拜登。在这个网络科技的时代，无论“造假者”的技术是多么高超，手段是多么高明，始终逃不过“唯真不破”， 始作佣者太小看这大量的有良知有正义感的美国选民了。
 
-MI：密西根州16票
-
-WI：威斯康辛州10票
-
-NV：内华达州（已扳回）6票
-
-AZ：亚利桑那州11票
-
-接下来，川普总统要赢得大选，我们可按照下面13种组合的任何一种核算，川普将会获胜连任。也就是说，如果川普总统大选需要获胜，至少需要获得以下3个州以上的大翻盘。而其中宾州将是8大组合里面的必选州！
-
-而最漂亮的组合当然是赢下PA州20票、GA州16票、MI州16票，即可达到284张绝对胜出组合！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12150427/unnamed-file-4.png)
-截止11日，最新报道显示以上摇摆州选票舞弊状况令人发指，川普团队至少已经获得上万选民对舞弊事实的作证指控！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12150438/unnamed-file-5.png)
-宾州严重违规竞选法，黑箱操作，有视频证据宾州诉讼请求是违宪选举处理邮局选票日期不限时！
-
-乔治亚重新点票开始，已经清理了一万多票，只要这次共和党竞选团队执行监票得力，肯定翻红！
-
-威斯康辛及密西根两州结果接近，按法律本可重新计票，还有非常多的选票舞弊诉讼已经提交，赢回一州就胜出！
-
-而仅仅在内华达州，就有20多万人邮寄选票记错地址！川普说：法律诉讼才刚刚开始！一位吹哨人站出来！指控内华达州的民意调查员捏造居住数据！
-
-亚利桑那州；媒体提前慌报结果，造假信息，干涉选举！
-
-密歇根州仅一个县工作人员发现计票软件出了问题，于是手工重计。结果发现六千多张投给川普的票一输入就成拜登的了。密歇根有47个投票站使用了这个软件！
-
-11月11日，网媒报道Dominion计票软件公司员工爆料：公司操纵选票达3800万张！川普总统12日上午发推证实确有其事！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12150600/unnamed-file-7.png)
-“报告：“dominion”在全国范围内删除了270万张川普选票！数据分析发现221,000宾夕法尼亚州投票从川普选票转变为拜登。已删除941,000张川普选票投票。使用此软件投票系统的州将435,000票的投票权从川普转换为拜登！”
-
-按照目前已经查明“dominion”软件的大范围造假事实！司法部部长巴尔已经下令各检察长必须严惩选举舞弊，海量人证物证正在接受司法鉴定！拜登团伙再想耍赖显然已经无力回天！川普总统胜出铁板钉钉！
-
-审核：悟空
-
-最新大选资讯链接：
-
-[https://wordpress.org/support/article/embeds/](https://wordpress.org/support/article/embeds/)
-
-
-
-> [【热点播报】核爆重磅！投票软件公司三名爆料人挺身作证：他们的软件“dominion”更改了3800万票——拜登偷窃了选举！](https://gnews.org/zh-hans/549908/)
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，纽约时间周日至周四晚上9:00，美国志愿者在纽约香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
-
-
-
-
+参考链接：
+[Major Vote Count ‘Error’ Discovered, Flips Seat from Dem to GOP](https://www.westernjournal.com/major-vote-count-error-discovered-flips-seat-dem-gop/?utm_source=push&amp;utm_medium=westernjournalism&amp;utm_content=2020-11-12&amp;utm_campaign=pushtraffic)
 
 0
