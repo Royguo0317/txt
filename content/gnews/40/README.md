@@ -1,33 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 这些国家居然敢在人权问题上抨击美国
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/549820/)
+## 【军事快讯】P-1反潜机亮相，日军反潜能力大增
+` HAIKUOTIANKONG` [轉載自GNews](https://gnews.org/zh-hans/549880/)
 
-翻译：康州农场-黎明的光芒
+内军事：鹰(文言) 素材：文朝汗（部落） 校对：雅典娜的圣斗士(沙加)
 
-校对：康州农场-Mike Li
+环球网11月12日转载“防务博客”网站11日报道，日本海上自卫队当天公开了其5架最新国产P-1反潜机。
 
-审核：康州农场-Truemanman
-![Chinese leader Xi Jinping is holding more than a million Uighurs in &quot;re-education camps,&quot; yet China's UN envoy accused the US of human rights abuses.]()![Chinese leader Xi Jinping is holding more than a million Uighurs in &quot;re-education camps,&quot; yet China's UN envoy accused the US of human rights abuses.](https://nypost.com/wp-content/uploads/sites/2/2020/11/Election_2020_Anxious_Leaders_Xi-Jinping.jpg?quality=90&amp;strip=all&amp;w=618&amp;h=410&amp;crop=1)
-中共国领导人习近平将超过一百万维吾尔人关押在 “再教育营”，然而中共国的联合国特使却指责美国侵犯人权。
+P-1反潜机于2007年9月首飞，最大起飞重量达79.7吨，是世界上飞行性能最好的巡逻机，最大速度可达996km/h，最大航程可达8000km，实用升限达到13520米，配备HPS-106主动电子扫描相控阵雷达（可提供360度覆盖，可在高空发现潜艇潜望镜），多基阵声纳（可探测大深度目标），HQA-7型音响处理装置（具备很好的应对静音潜艇能力，有助于应对中共商级、元级潜艇），其多雷达警报接收器更可全方位感知来袭导弹威胁，并自动防御。
 
-在星期一的联合国人权理事会会议中，来自世界上一些最严重侵犯人权的国家的联合国特使应该好好照照镜子，因为他们把美国的侵犯人权行为炒得沸沸扬扬，认为这种现象比他们自己国家更为普遍，更为恶劣。
+除先进的反潜反舰探测外，其战斗力也得到了很大提升：可携带9吨左右的炸弹，机腹内8个弹仓，外挂12个载点，携带AGM-84鱼叉反舰弹（射程约220-315km）、ASM-1C九一式反舰弹、AGM-65小牛空地弹（射程约48km）、MK 46鱼雷（最大射程11km）、水雷深水炸弹等反潜反舰武器。
 
-中共国（是的，中共国）滔滔不绝地提出了涉及一系列主题的话题，包括宗教歧视和对“人民生命和健康的权利”的尊重。
+美制P-3C空重35吨，最大起飞重量61.4吨，最大速度750km/h，实用升限10400米，搭载9吨水雷等炸弹，并携带MK 6鱼雷、AGM-84鱼叉反舰弹、AGM-65小牛空地弹。与之对比，中共的运8反潜巡逻机，有效载荷20吨，巡航速度600km/h，满油航程4500km，实用升限8000米，机身雷达可实现360度对海搜索，机身下方的光电吊舱可用于对海的红外探测，机身未设武器挂件，可携带鹰击-83反舰弹（射程120-150km）。
 
-这是中共国的黑色幽默吗？北京把超过一百万维吾尔人关在 “再教育营 “里，那里出现了酷刑、强迫妇女绝育和其他控制人口方法的证据。中共国人听起来像是在《反面世界》里。
+运8反潜巡逻机在飞行性能和侦测能力上较美P-3C反潜机有差距，而P-1反潜机相比P-3C在速度、航程以及侦测静音潜艇等方面又有较大提升，所以运8反潜机和P-1之间的性能和战力差距更大。而随着P-1反潜机的入列，日军在其周边海域的反潜能力无疑会得到极大提升，与此同时对中共前出潜艇的包围和钳制也将更加激烈。
 
-他们还要求政客们停止 “将COVID-19政治化和污名化”，虽然这个可以理解: 中共国一直在隐瞒关于冠状病毒(起源于中共国)及其在全球传播病毒中的作用的关键信息，它肯定是想转移世界的注意力，而不是被追究责任。
+新闻来源：
+[https://mil.huanqiu.com/article/40fNyxeXSPs](https://mil.huanqiu.com/article/40fNyxeXSPs)
 
-俄罗斯也提出了一个贻笑大方的提议。他要求美国 “保证媒体的言论自由” 并停止 “干涉国际内部事务”。这是从一个毒害过记者和干涉过许多其他国家政治的政权，特别是包括2016年美国大选的政权口中说出的。
-
-同时，巴基斯坦也抨击美国的宗教不够宽容，经常迫害少数宗教群体。部分由哈马斯恐怖分子控制的黎巴嫩抨击美国的 “武装暴力”。支持恐怖主义的伊朗发言反对 “任意杀戮”。
-
-还有人认为川普总统退出这个理事会是错误的吗？
-
-原文链接：
-
-[https://nypost.com/2020/11/11/these-nations-have-some-nerve-to-bash-america-on-human-rights/](https://nypost.com/2020/11/11/these-nations-have-some-nerve-to-bash-america-on-human-rights/)
-
-1+
+0

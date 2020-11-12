@@ -1,45 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法治私用铸就了中共制下互联网销售平台的霸权
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/550706/)
+## 《酒灭中共》全球首发！郭文贵先生最新单曲荣登iTunes音乐平台多个国家榜单第一,再创全球音乐史奇迹🎉
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/550753/)
 
-多伦多加喜农场农场 Dsn
+2020年11月12日（EST），郭文贵先生最新灭共单曲《酒灭中共》（“Drinking Down The CCP”）首次在iTunes上线可供下载。这首歌由郭文贵先生主创，G Music音乐团队联合制作，在短短十几个小时内就已登上iTunes音乐平台多个国家的榜单前列，再创全球音乐史奇迹。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12075204/Screen-Shot-2020-11-12-at-10.51.39-pm.png)
+## **香港 iTunes排名第一**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12072522/Screen-Shot-2020-11-12-at-10.24.57-pm.png)2020年11月12日 @7am（EST）的排名截图
+## **澳门 iTunes排名第一**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12072713/Screen-Shot-2020-11-12-at-10.26.41-pm.png)2020年11月12日 @7am（EST）的排名截图
+## **新西兰 iTunes排名第一**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12073444/Screen-Shot-2020-11-12-at-10.34.18-pm.png)2020年11月12日 @7am（EST）的排名截图
+## **匈牙利 iTunes排名第二**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12073320/Screen-Shot-2020-11-12-at-10.33.00-pm.png)2020年11月12日 @7am（EST）的排名截图
+## **新加坡 iTunes排名第二**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12073606/Screen-Shot-2020-11-12-at-10.35.34-pm.png)2020年11月12日 @7am（EST）的排名截图
+## **阿联酋 iTunes排名第二**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12073654/Screen-Shot-2020-11-12-at-10.36.32-pm.png)2020年11月12日 @7am（EST）的排名截图
+## **台湾 iTunes排名第二**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12073802/Screen-Shot-2020-11-12-at-10.37.47-pm.png)2020年11月12日 @7am（EST）的排名截图
+## **澳大利亚 iTunes排名第三**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12074636/Screen-Shot-2020-11-12-at-10.45.49-pm.png)2020年11月12日 @7:30am（EST）的排名截图
+## **苹果音乐🎵下载：**
 
-校对上传 XM
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12072708/%E5%9B%BE%E7%89%871-19.jpg)图片来源：highlandernews.org
-中共国国内新浪网鼓吹，11月1日至11日0点30分，2020年天猫双11全球狂欢季实时成交额突破3723亿人民币！天猫宣传，今年天猫双11吸引超过8亿消费者、25万品牌、500万商家共同参与，是覆盖面最广、参与度最高的一届。
-
-许多人在对比了欧美国家的互联网现状后会发现，表面看，中共国互联网发展不论是普及程度和便利程度均大大的超前。并且各类销售平台屡屡创造新高，各类媒体反复宣传互联网创造就业动辄几百万个岗位。
-
-对于这个在其他国家无法想象的现象在中共国竟然发生了，我们该如何理解？
-
-1. 中共国互联网的兴盛来自于对原有实体经济的掠夺。
-
-中共国法律从来是保护当权者，而不是维护公平。自2005年以来，大批掌握权力的代言人均将资本瞄准互联网。稍有了解就会知道，关于知识产权、假冒伪劣、税收、公平竞争、融资上市等等各个方面都对互联网行业给予支持甚至极为袒护。
-
-中共国国内大多数传统行业资产一跌再跌，就业岗位一减再减。大部分与互联网无交集的中小城市除了出售土地和发行地方债以外，来自于企业的税收少到可怜，完全无法支撑城市的运行。
-
-2. 中共国互联网是权力的意志在资本市场的体现。
-
-在资本加持和司法袒护下，中共国互联网势如破竹。互联网行业毫无节制的拿到几乎中共国全部的资源，无数次突破正常人的想象，而持有这些高增长互联网企业都是各种各样的掌握权力的人，他们以很低的价格买入股票，而后以权力促成各种“奇迹”，凭此叱咤深证、上证、香港、纽约股市而大赚特赚、盆满钵满。
-
-3. 企业和品牌完全没有议价能力在重大活动中被迫充当血包。
-
-中共国互联网企业和品牌面对寡头平台没有其他选项，只能竭尽所能为寡头平台提供更多的赞助或者几近亏损的促销方案，以博取一次露面的机会。导致正价销售比例极度萎缩，毛利迅速下降。而大多数中小型企业和品牌则完全被隔绝在外。他们只能付费购买一些浏览量，不明就里的亏损得一塌糊涂。
-
-另有，格兰仕2019年618与天猫互怼事件，另外，2018年包括屈臣氏Macy’s、Marionnaud、LuLuLun等海外品牌相继发出公告撤出天猫国际，此类矛盾之激烈可见一斑。
-
-中共国互联网的“兴盛”完全没有考虑到民生的持续发展、企业的转型成本、和在表面繁荣之下普通人的感受。可以说，中共国互联网的“兴盛”是中共国法治为私权所用的最好注释。
-
-几百万外卖送餐小哥中竟有数万本科学历，现在中共国普通家庭出身的年轻人的茫然和生存艰难，也许就是中共国互联网“兴盛”的后遗症。
-
-这是对国民经济和人权的肆意践踏！
-
-参考链接：[https://finance.sina.com.cn/tech/2020-11-11/doc-iiznctke0732591.shtml](https://finance.sina.com.cn/tech/2020-11-11/doc-iiznctke0732591.shtml)
-
-[https://www.cifnews.com/article/40099](https://www.cifnews.com/article/40099)
-
-[https://tech.sina.com.cn/i/2019-06-18/doc-ihvhiews9598464.shtml](https://tech.sina.com.cn/i/2019-06-18/doc-ihvhiews9598464.shtml)
-
+[https://music.apple.com/au/album/%E9%85%92%E7%81%AD%E4%B8%AD%E5%85%B1-single/1537745677](https://music.apple.com/au/album/%E9%85%92%E7%81%AD%E4%B8%AD%E5%85%B1-single/1537745677)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12074012/517f978c-126c-410a-a0d9-78080aff26c9.jpg)
 0

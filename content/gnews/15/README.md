@@ -1,9 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/11/2020 要闻同声传译: NEWSMAX采访朱利安尼,蓬佩奥重要讲话, 福克斯Hannity&amp;Ingraham Angle重磅节目, 以及Luo Dubbs采访
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/550680/)
+## 每日政要Twitter播报(中文) 11/11期(视频+ PDF下载)
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/550707/)
 
-#### **By: 【秘密翻译组G-Translators】**
+撰稿记者:CYC⽂颖、本來、尘凡3、⽯头、喜⻢拉雅2020
+校对:Magician⽂⼼
+播⾳:⼤脚印
+
+[每日政要推文11-11.pdf](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12071236/11-11-1done-1.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12071236/11-11-1done-1.pdf)
 
 0
