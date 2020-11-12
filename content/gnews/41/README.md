@@ -1,45 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德社精选】11/8/2020 晚间节目
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/548274/)
+## 警惕中共用假疫苗圈钱
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/549710/)
 
-听写：坤哥 校对:瓦者 简介：恩真 文宣图：艾伦 出品：首尔喜韩农场
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11235559/vaccin.jpg)
+昨日路德社爆出辉瑞公司这个时候宣布研制出预防中共病毒的疫苗，其中肯定有猫腻。今天早上文贵先生也确切地说，疫苗没有用。
 
-简介：
+其实大家都知道辉瑞公司，福奇是里面的投资顾问之一，此人为了给公司创造更大利益，他和中共早就勾兑在一起，明眼人一看就是他们利用全世界人们对中共病毒的恐慌，病急乱投医的心理，会花巨资购买他们的所谓疫苗，这样达到他们圈钱的目的。
 
-1.各州法律行动将让大选反转。
+我们的英雄科学家闫博士几个月前就说过，中共病毒没有解药，它的毒株不断在变异，研究出疫苗要很长时间，就算你好不容易研究出初期的疫苗，后面毒株又变异了，你根本就赶不上它的速度。而且闫博士说目前早期预防和控制的最有效的药非羟氯喹莫属。为什么没有人站出来大力宣扬和制造，就是因为价格便宜，无利可图。如果全世界的人都用便宜的药，那么中共及其勾兑者他们花大代价制出来的药就失去了价值，更谈不上他们达到圈钱的目的。
 
-2.选票作假是刑事犯罪。
+所以我们的战友要不断说出真相，让世人知道这是中共和与其勾兑的美国黑暗势力的又一阴谋，我们坚决不能让他们得逞。建议英文好的战友要快快地向全世界说出事实以免更多的人受骗。
 
-3.大选造假非常明显川普翻盘很容易。
+by 金色苹果
 
-4.川普没有退路只能灭共。
-
-5.大选时中共把蓝金黄都放了出来。
-
-6.现在是社会主义与自由民主法治的决战。
-
-7.川普总统彻底看清必须灭共。
-
-8.这次大选如果被窃取未来都不会有公正的大选。
-
-9.如果拜登当选一定会默认中共打台湾。
-
-10.不管怎样新中国联邦始终和台湾人民在一起。
-
-11.我们要坚定的和川普总统在一起。
-
-12.爆料革命走在历史前面影响世界。
-
-13.美国民众忍受不了选票造假。
-
-14.如果更多州翻盘中共会做出刺激性反应。
-
-15.亚利桑那州计票软件修复后选情反转。
-
-文宣图：
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105347/1-50.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105431/2-80.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105314/3-53.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105340/4-28.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105339/5-26.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11111028/6-29.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11111109/7-16.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112456/8-16.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112517/9-12.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112517/10-11.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112839/11-11.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112848/12-3.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11211826/13-6.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11211827/14-3.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11211841/15-7.png)
-
+【以上内容只代表作者个人观点】
 
 0

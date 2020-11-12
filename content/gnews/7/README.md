@@ -1,17 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 纽约市市长的女儿在采访中不小心承认了乔·拜登“有能力窃取”选举
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/549572/)
+## 【热点播报】重磅消息：共和党委员会主席麦克丹尼尔确认：她已经掌握1.1万起选民欺诈事件
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/549643/)
 
-编辑：引力波
+**作者：香草山写作组  正道主义联盟**
 
-引用：[https://www.thegatewaypundit.com/2020/11/oops-verbal-slip-de-blasios-street-activist-daughter-admits-joe-biden-able-steal-election/](https://www.thegatewaypundit.com/2020/11/oops-verbal-slip-de-blasios-street-activist-daughter-admits-joe-biden-able-steal-election/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
 
-纽约市市长白思豪的女儿，年轻的街头激进分子基亚拉·德布拉西奥（Chiara De Blasio）本周在一次采访中承认，乔·拜登（Joe Biden）“能够窃取”选举，“窃取”这个词她重复了两遍。
 
-虽然很快她就改口说应该是“赢得”选举，但显然她不小心说出了真相。
 
-Chiara De Blasio今年5月30日因参加ANTIFA组织的BLM暴力抗议活动，且拒绝按照警察的要求离开而被捕。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11225545/%EF%BC%9B%EF%BC%9B%EF%BC%9B.png)
+周二晚上，共和党全国委员会(RNC)主席罗娜•麦克丹尼尔(Ronna McDaniel)对福克斯新闻评论员肖恩•汉尼提(Sean Hannity)表示，她有234页文件，其中包括500份宣誓证词，指控证实有1.1万起各类选民欺诈事件。
+
+采访中她举例说,密西根州韦恩县的一个人,声称一批选民中60%的选票有相同的签名,另一份宣誓书声称有35张选票被清点，尽管不是由登记选民投票，还有50张选票在其他地方的制表机中被多次清点，一位妇女死去的儿子不知怎么在一次选举中投了票，民主党人分发文件，告诉他们如何分散共和党人的选票挑战者。
+
+麦克丹尼尔对汉尼提说:“选举从一开始就被操纵了，以考维德的名义通过的法律造成了选举的漏洞，从某种意义上说，他们被操纵了，把共和党人踢出了监督和观察投票的舞台……现在又有媒体在操纵，他们说我们甚至不会去听这些故事。”
+
+麦克丹尼尔说:“这就是为什么共和党全国委员会要追查到底。”“我们不能让这种事再次发生……这些男人和女人很重要，他们的声音将被听到。”
+
+麦克丹尼尔称，共和党领导的“数据团队”仍需要时间对各种指控进行调查。
+
+星期一，司法部长威廉·巴尔开始要求联邦检察官调查任何有关选举舞弊的指控。民主党国会领导人批评他的决定毫无根据，而且腐败。
+
+作为对巴尔决定的回应，美国司法部负责监督选举舞弊调查的选举犯罪部门负责人理查德·皮尔格在几个小时后辞职。
+
+参议院多数党领袖、共和党人米奇·麦康奈尔在周一上午的一次讲话中说，“特朗普总统有100%的权利调查违规指控，权衡他的法律选择。”
+
+审核：悟空
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，纽约时间周日至周四晚上9:00，美国志愿者在纽约香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
+
+
+
+
 
 0
