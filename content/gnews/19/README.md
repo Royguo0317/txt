@@ -1,26 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登家族和中共合谋共同掠夺世界人民血汗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/549164/)
+## TIKTOK用户恶搞川普开设的选民欺诈热线
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/549245/)
 
-作者：Rianna
-校对：文一乐
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11192946/Picture56.png)图片来源：[https://kknews.cc/](https://kknews.cc/finance/pgxybpp.html)
-中共在世界布局掠夺乌克兰、非洲刚果能源和矿产。2013年12月亨特和拜登访问中共国，此时乌克兰总统维克托亚努科维奇也在中共国正式访问。这个时间不能不说太巧合了，因为亨特参与董事的乌克兰布利斯玛公司（乌克兰天然气公司）也和中共国有商业交易往来，而亨特作为合作方Boies Schiller律师事务所的法律顾问可为布利斯玛公司改制提供建议。根据市场管理总局（SMRA）记录显示，2017年10月23日亨特拜登收购了10%的渤海华美股份，并担任董事直到2020年4月20日。渤海华美用中共国的矿业公司作为白手套兼并非洲资源。在2016年9月8日中国洛阳钼业公司收购了自由港—麦克莫兰公司（Freepor tMcMoran）56%的股权，而该公司拥有刚果民主共和国一处正在运营的矿业所有权，渤海华美收购了它另外的24%股权，中国钼业主要股东是国务院国有资产监督管理委员会（国资委），等于说中共国拥有该公司的80%股权。同年中国钼业和渤海华美也分别56%和24%股权收购了刚果Tenke Fungurume铜钴矿， 达到80%的控制权。
+*新闻来源：《布赖特巴特》BREITBART；作者：卢卡斯•诺兰（LUCAS NOLAN）；发布时间：2020年11月11日*
 
-拜登家族与中国政府经济交易采用了循序渐进、套娃模式。2012年2月19日亨特作为Seneca 环球咨询顾问公司顾问，代表美国能源技术公司“巨点能源”（Great Point）与万向集团在新疆西部合作开发一个煤制天然气厂，双方就4.2亿美元股权投资和12.5亿美元项目融资进行洽谈。习近平等中美两国高官都出席了该活动，那么这就明显是一个政府之间的生意往来，乔拜登说是他不知情的一个私人活动，那是说不过去的。
+*翻译/简评：Dreamer文童；校对：感恩；审核：海阔天空 ；Page：Connor54*
 
-渤海华美在2019年投资了FACE++公司，这是一家中国监控器材公司，为中共国方便监视人民给执法部门开发面部识别软件，这包括对新疆少数民族穆斯林的大规模监控。以及一位美国州立法领袖基金会（SLLF）代表在2017年中国参观考察活动后在其网站上发表的一篇题为《来自中国的观察》文章中还大加赞赏中国的监控技术。
+[!\[\]()!\[\](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/9296be5f-2378-4d0b-ad3e-72d829e47d29.jpg?asset_id=5442cc63-f022-4775-b7e4-07487443853d&amp;img_etag=%22cf1f861023d9827e5dd013a72d27d605%22&amp;size=1024)](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/9296be5f-2378-4d0b-ad3e-72d829e47d29.jpg?asset_id=5442cc63-f022-4775-b7e4-07487443853d&amp;img_etag=%22cf1f861023d9827e5dd013a72d27d605%22&amp;size=1024)
 
-综上所述，拜登家族通过掠夺新疆矿产和贩卖监控软件发财，依赖剥削新疆人而获得巨额利润，那么乔拜登在政治舞台是不会真心实意反对中共压迫新疆穆斯林，他是乐见中共国剥削维族穆斯林的血汗。所以，乔拜登是个贪婪十足的伪君子，政治小丑罢了。
+**简评：**
 
-根据市场管理总局（SMRA）记录显示，2017年10月23日亨特拜登收购了10%的渤海华美股份，并担任董事直到2020年4月20日。而这笔购买款还是渤海基金管理公司贷款给亨特，之后以股权盈利的利润来偿还这笔贷款，等于空手套白狼。亨特作为Rosemont Seneca Partners董事长于 2010年4月8日访问过几个重要的几个金融机构：全国社会保障基金理事会、高瓴资本、太平洋国际交流基金会、中国投资有限责任公司、中国人寿保险（集团）公司、中国邮政储蓄银行、北大方正集团。他在2013年6月21日和渤海华美正式签署协议。渤海华美网站上现在已经找不到亨特拜登的介绍，但在2015年11月16日的一个存档网页中他被列为董事之一。渤海华美其中一个重要股东拥有30%的股权即渤海产业基金（Bohai Capital），渤海从法律上来讲是一家国有企业（SOE），因为天津泰达投资控股有限公司（TEDA Investment Holding Co Ltd）拥有渤海华美中方合作伙伴渤海产业基金（Bohai Capital）22%的股权，天津城市基础设施投资集团有限公司占渤海华美的2.5%股权， 天津金能投资有限公司占2.5%股权。这就是天津市政府通过一家地方国有企业直接持有渤海华美股权。渤海的资金来源于国有金融机构组合，包括中国银行、中国邮政银行、国家开发银行和社会保障基金，这几个金融机构共同运作着近8万亿美元的金融资产，这相当于中共国的金融体系的20%。而且全国社会保障基金股权资产部主任是冀国强，现在是天津市委常委和天津市统战部部长。天津虽然在国际上不太出名，但它毗邻北京的优越位置，中共国的很多重要行业和金融机构都在这里设办事处。
+此次美国大选投票和计票过程中出现各式各样光怪陆离的舞弊现象，川普总统竞选团队因此而设立选民欺诈热线，以搜集舞弊证据，用于后续调查。然而， Tiktok用户几乎在热线号码公布的同时，就已经开始恶作剧地拨打热线电话，并将恶作剧拨打热线的视频发布在Tiktok上，暗示其他用户也都拨打类似恶作剧电话，其目的就是阻塞线路，使得真正想举报选举欺诈的人们无法接通热线。
 
-第一，这些都是中共国最具有政治意义的国有企业和金融机构；第二，渤海华美的最终投资项目实际上全是中共国国家支持项目，《渤海华美伙伴关系文件》披露本来是让中共国资本投资海外，但大多数投资都在国内进行，投资对象也是政府支持项目。这些投资有效保证了投资者回报的国际和中共国的国家政策项目。证明了无论在金融资金还是项目内容上，渤海华美都和中共政府紧密联系。
+Tiktok是被来自中共资本所控制的应用程序。此前出于国家安全因素考虑，川普政府签署一项行政命令禁止在美国使用Tiktok，但后来被美国地区法院授予临时禁令而被叫停。目前，Tiktok用户这种戏弄选民欺诈热线的恶作剧，严重影响了川普总统竞选团队调查选民欺诈的程序，这是对美国大选的公然挑衅，也是中共干涉美国内部选举的又一例证。
 
-由此可见，中共国政府给现在的总统候选人乔拜登儿子所共同拥有的企业提供资金支持，中共蓄意与美国政府高层的亲属合作，执行BGY和3F计划。但是爆料革命给了CCP和美国卖国贼们致命一击，他们的妄想注定是黄粱一梦。
+![]()![](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/ae969cad-4719-4424-a8f9-327b7b8d0fe3.jpg?asset_id=a42284da-da78-457f-b6f7-4d0a66c642f2&amp;img_etag=%2212b35e063ba2632cdc01b754d04597f1%22&amp;size=1024)
 
-(文章内容仅代表作者观点)
+**Tiktok用户恶搞川普开设的选民欺诈热线**
+
+![]()![](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/2c1b131a-c297-4026-9d3c-90a910fb173f.png?asset_id=f2812726-60e6-4c1a-984b-b25d0800ad4f&amp;img_etag=%22ad2b23222ce239e112195f2b16ed2405%22&amp;size=2560)
+
+抖音（TikTok）用户已经开始在中资社交媒体平台发布视频，展示他们恶作剧地拨打唐纳德•川普总统（Donald Trump）设立的选民欺诈热线，试图堵塞线路。
+
+NBC新闻报道称，中资社交媒体应用程序抖音（TikTok）上的用户，已经开始恶作剧地拨打川普总统（Trump）连任竞选团队启动的选民欺诈热线，进行虚假陈述和举报，试图堵塞线路。川普总统（Trump）连任竞选团队设立该热线，让人们举报在他们投票站附近的任何可疑活动。
+
+总统的儿子埃里克•川普（Eric Trump）在推特上发布关于该热线的推文，称“帮助阻止压制选民、违规和欺诈行为”。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/66a386e0-6f0c-490d-9e3c-9f2ad28aa192.jpg?asset_id=5133c7fa-4ec1-42c6-a4d4-85953edeedb0&amp;img_etag=%2215de8cf4d1af46876f35032e5df93aea%22&amp;size=3058)](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/66a386e0-6f0c-490d-9e3c-9f2ad28aa192.jpg?asset_id=5133c7fa-4ec1-42c6-a4d4-85953edeedb0&amp;img_etag=%2215de8cf4d1af46876f35032e5df93aea%22&amp;size=1024)
+
+几乎在抖音（TikTok）用户开始拨打热线举报错误信息的同时，亚历克斯•赫希（Alex Hirsch），迪士尼频道系列剧《地心引力瀑布》（Gravity Falls）制作人，也发布了自己以剧中不同角色的身份拨打热线的视频“我不想告诉任何人该做什么，但如果你想要拨打这个号码，比如说，举报汉堡大盗，我可以根据个人经验确认，这将非常有趣”。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/571f0d62-1971-4e90-8e6a-6892f3b50d17.png?asset_id=86b4fa57-f3a6-4318-8bd5-90f5bb945838&amp;img_etag=%2206ed2d53af6b5d7a1c35bec70a33e8f6%22&amp;size=3268)](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/571f0d62-1971-4e90-8e6a-6892f3b50d17.png?asset_id=86b4fa57-f3a6-4318-8bd5-90f5bb945838&amp;img_etag=%2206ed2d53af6b5d7a1c35bec70a33e8f6%22&amp;size=1024)
+
+![]()![](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/ef601268-8ae1-4178-9d55-2d49cd16e02a.png?asset_id=96199a33-a1b4-4012-999a-f1a01f2270be&amp;img_etag=%22956d36bcb63a7f1df879413584f901ca%22&amp;size=2560)
+
+![]()![](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/60d64117-29d3-4db8-b59b-92c4dbaea8e2.png?asset_id=960eb614-b2d9-4b00-997b-164db429e0c8&amp;img_etag=%22a66cc4ac16515173651ceeec1025df8c%22&amp;size=3153)
+
+在一个视频中，赫希（Hirsch）告诉接线员，“我走进去，手里拿着一个大袋子，我就开始从箱子里拿出选票，并且你知道，我甚至没有试图隐藏它”。
+
+在用户cheesecaseacita发布的抖音（TikTok）视频中，这位年轻女士拨打热线告诉接线员说她叫“玛丽（Mary）”。当一名自称为里卡多（Ricardo）的川普（Trump）国家战斗室（National War Room）工作人员接听电话，并询问她看到哪种选民欺诈行为时，抖音（TikTok）用户回答“我看到人们在选票上撒满大便”。
+
+另一位名为caitlynjk95的用户发布视频，在视频中她好像拨打了热线，自称为佐治亚州的选民，然后告诉接线员：“我在排队投票，好像有一个家伙在那里，我不知道这被认为是欺诈或什么事情，但他在那里挑战我的小提琴比赛”，提到查理•丹尼斯乐队（Charlie Daniels Band）的歌曲《恶魔降临佐治亚州》（The Devil Went Down to Georgia）。接线员回答这种情况“非常有趣”。
+
+拉拉•川普（Lara Trump）之后发推文公布新的热线号码，挑战恶作剧拨打热线的人“继续拨打垃圾信息电话吧。我们将不断更换号码”。“另一个新号码，致那些给我们其他号码拨打垃圾信息电话的人们：你们不认为在我们的选举中保持公正是很重要的，这是可耻的。这是我们共和国的根本。继续拨打垃圾信息电话吧。我们将不断更换号码”。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/57ca5d3d-1816-4a77-81b3-120ac72dafd2.png?asset_id=bb95dad3-283d-4fac-8b32-4cc3e452df85&amp;img_etag=%224e90b7be0b8869551b6f5f4bc932296d%22&amp;size=3274)](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/57ca5d3d-1816-4a77-81b3-120ac72dafd2.png?asset_id=bb95dad3-283d-4fac-8b32-4cc3e452df85&amp;img_etag=%224e90b7be0b8869551b6f5f4bc932296d%22&amp;size=1024)
+
+布赖特巴特新闻（Breitbart News）本月早些时候报道称，美国地区法院法官裁决，川普政府的行政命令还不能关闭中资视频分享应用程序抖音（TikTok）。该法官针对美国商务部原定于11月12日生效的多项禁令授予了临时禁令。
+
+如果禁令生效，该应用程序通过限制网络托管、内容传输或其他方式，似乎将无法使用。抖音（TikTok）正在起诉川普政府和商务部，试图阻止禁令，但最新的裁决来自另一场诉讼。
+
+[原文链接](https://www.breitbart.com/tech/2020/11/09/users-of-china-owned-tiktok-troll-trump-voter-fraud-hotline/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+breitbart+%28Breitbart+News%29)
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/RD8qVjsN5pBd9/)】-点击spark adobe版
+
+[!\[\]()!\[\](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/RD8qVjsN5pBd9/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

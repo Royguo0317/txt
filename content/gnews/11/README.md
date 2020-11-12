@@ -1,45 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德社精选】11/8/2020 晚间节目
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/548274/)
+## “台美经济繁荣伙伴对话”——令台美关系更好,让中共更恼!
+` 快慢机` [轉載自GNews](https://gnews.org/zh-hans/549401/)
 
-听写：坤哥 校对:瓦者 简介：恩真 文宣图：艾伦 出品：首尔喜韩农场
+内军事:快慢机
 
-简介：
+台美双方11日共同对外宣布,将于本月20日,在华盛顿及台北两地,同步举行首届“台美经济繁荣伙伴对话”,高级别会谈.
 
-1.各州法律行动将让大选反转。
+美方将由副国务卿克拉奇带队;
 
-2.选票作假是刑事犯罪。
+台方由经济部次长陈正祺率团赴华盛顿.
 
-3.大选造假非常明显川普翻盘很容易。
+台经济部部长王美花、以及台行政院政务委员邓振中等,将以远程视频会议方式,在台北同步参与会谈.
 
-4.川普没有退路只能灭共。
+消息一出,立即引起岛内国民党、以及中共党媒的一片声讨.
 
-5.大选时中共把蓝金黄都放了出来。
+国民党方面质疑,为何台美经济对话会谈,不是与美方的贸易部团队对接,而要选择与“旧政府”特朗普团队的副国务卿去谈?
 
-6.现在是社会主义与自由民主法治的决战。
+另外,本次会谈所涉及的范围主要集中在医疗、科技、供应链和能源方面.
 
-7.川普总统彻底看清必须灭共。
+而不久前才刚刚率团访问台湾的,美国副国务卿,也并未就有关半导体、5G等产业供应链议题与台方进行讨论.
 
-8.这次大选如果被窃取未来都不会有公正的大选。
+而这次会谈又能谈出什么?
 
-9.如果拜登当选一定会默认中共打台湾。
+中共党媒则抛出其一贯的,坚决反对台美之间任何接触的不满言论.
 
-10.不管怎样新中国联邦始终和台湾人民在一起。
+并以台海稳定可能由此被破坏相威胁!
 
-11.我们要坚定的和川普总统在一起。
+说归说,做归做!
 
-12.爆料革命走在历史前面影响世界。
+任你国民党还是中共,如何讥讽与反对.
 
-13.美国民众忍受不了选票造假。
+台美双方的这次高级别会谈也已板上钉钉,非开不可.
 
-14.如果更多州翻盘中共会做出刺激性反应。
+与美国副国务卿谈,难道不比与商务部谈更直接吗?
 
-15.亚利桑那州计票软件修复后选情反转。
+虽然商务部是接洽此类会谈的本家.但看看之前中美贸易谈判的例子,相信但凡有点脑子的,也不会再与现任的这个部门进行实质性的接触与沟通了.
 
-文宣图：
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105347/1-50.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105431/2-80.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105314/3-53.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105340/4-28.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11105339/5-26.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11111028/6-29.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11111109/7-16.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112456/8-16.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112517/9-12.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112517/10-11.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112839/11-11.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11112848/12-3.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11211826/13-6.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11211827/14-3.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11211841/15-7.png)
+其次,与更高级别的美副国务卿直接对接,省去了诸多中间繁琐环节,不论从效率还是结果上,都会更加事半功倍的.
 
+至于暗讽川普总统的政府是“旧政府”.
+
+只能证明抛出此番荒谬言论者的无知,以及其必定100%的与中共勾结的结果.
+
+否则但凡了解并持续关注“爆料革命”的,是绝对不会认为川普总统会输掉本次美国大选的.
+
+相反,只有与中共勾结的,才会不遗余力的,在当下不断捏造谎言,肆意攻击川普总统的一切.
+
+孰是孰非,自有真相会证明一切!
+
+台美关系能够进一步加强,台湾民众能够更加认清,中共与岛内亲共势力的阴险用心,台湾才能避免重蹈香港的覆辙!
 
 0
