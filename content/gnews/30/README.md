@@ -1,50 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统美国海军陆战队245周年致辞
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/549141/)
+## 爆革星评：为什么川普总统这次大选将大赢？
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/549218/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11191119/WH_20201110_Marine_Corps-photo.jpg)图片来源：[https://www.whitehouse.gov/wp-content/uploads/2020/11/32876361654\_d1bec5b46e\_o-1024×576.jpg](https://www.whitehouse.gov/wp-content/uploads/2020/11/32876361654_d1bec5b46e_o-1024x576.jpg)
-**Presidential Message on the 245th Birthday of the United States Marine Corps**
+多伦多加喜农场 文星（一号）
 
-**美国海军陆战队245周年总统致辞**
+校对 上传 小鸥
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11200257/%E8%B5%A2-1.jpg)图片来自 BBC
+美国总统大选选票的作弊造假持续被揭露出来，作弊造假的手段低劣粗暴，一看就是中共的嫡传。除了点票机器、软件的固定比例删减川普支持者的选票外，竟然还出现了众多的死人投票、超注册人口投票、只投拜登的选票等等匪夷所思的选情，让人怀疑美国是不是已经被中共占领了？
 
-November 10, 2020
+11月10日，本文链接的媒体报道了选票被大规模盗取的事实，目前在美国8个州支持川普总统的389万张选票被盗取，具体是：宾夕法尼亚州1,383,014张，弗吉尼亚813,349张，纽约659,461张，新泽西160,504张，西弗吉尼亚 78,300张，乔治亚 68,388张，密歇根62,308张，亚利桑那8,984张。谁也不会想到，仅仅8个州，就有389万被盗取！
 
-2020年11月10日
+注意我没用窃取这个词，用的是盗取，因为这种偷窃近400万选票的明目张胆的犯罪行为，是无法用偷偷摸摸的窃取来说明的，这是只有江洋大盗才能实施的盗票行为，这个江洋大盗就是中共。只有中共这种惯偷惯盗才能做到这一点。更不可思议的是，乔治亚州的州务卿竟然还提前在3月20日未经州立法机构等法律程序批准，提前篡改了州投票法。如此低劣粗暴，何其嚣张之举？也不知道这位州务卿直接或间接拿了中共多少钱？
 
-As Commander in Chief, I proudly join our Nation in wishing the United States Marine Corps a happy 245th birthday.
+但是，魔高一尺，道高一丈，美国的民主法治自由是有守护神的，中共企图颠覆美国大选的阴谋不会得逞。不用说川普总统是否事前安排了国民警卫队检控大选，川普团队已经采取了法律行动而且卓有成效，有效证据越来越多，其效果就是盗取的选票必须复归返还，法律上讲就是复原真相，其结果就是川普大赢胜选。
 
-作为总司令，我自豪地和我们的国家一同祝美国海军陆战队245岁生日快乐。
+大选确实正在被逆转。北卡已经胜出，乔治亚正在重新手工计票，几个摇摆州都在向川普胜出倾斜。此前，麦康奈尔、格雷厄姆等政界大佬也纷纷表态支持川普，而且据Newsmax报道，众议院共和党领袖凯文·麦卡锡认为，南希·佩洛西不够法定票数连任无望，即将卸任众议院议长，恐怕她面对镜头手撕川普讲稿的丑态要成为“绝唱”了。
 
-Officially established by the Second Continental Congress on November 10, 1775, the Marine Corps has protected our sovereignty in the air, on land, and at sea. Our Marines have led the charge for freedom and justice in defense of our constitutional republic and its founding principles.
+更重要的是，民意滔滔，唯真不破。爆料革命在最关键的时候爆出了经得起检验的猛料，这就是拜登集团与中共勾兑、腐败腐朽的事实。大批量的视频照片等影像，经过 GTV、GNEWS 和 WARROOM等媒体的报道，震惊了美国社会。美国人民知道了拜登家族与中共勾兑卖国的真相，民意沸腾，这应该是选票大量投向川普的关键原因之一。这支持川普的大量选票，也是拜登集团始料未及，从而慌不择路，低劣粗暴造假，由此彻底暴露。
 
-海军陆战队于1775年11月10日在第二次大陆会议上正式成立，它保护了我们空中、陆地和海上的主权。我们的海军陆战队捍卫了我们宪政共和国及其建国原则，为自由和正义冲锋陷阵。
+无论如何，美国是由神佑护的法治社会，被盗取的选票最终会复归川普，川普总统会大赢而连任。11月11日凌晨，川普总统又发推指出，新的国家广播通信主任正在参议院听证，将很快任命。那么接下来，可能就是由换了新主管的美国媒体来宣布合法的美国总统川普连任，而不是假冒伪劣的拜登。媒体只能宣布，不能决定谁成美国总统。您看这些媒体自己打脸打得，记住以后要向G TV、GNEWS学习——唯真不破。
 
-Since they first shed blood for the cause of freedom during the Revolutionary War, Marines, true to their creed, have never wavered in their faithfulness. The distinct scarlet and gold Battle Colors of the United States Marine Corps symbolize its history of both unmatched prowess on the battlefield and solemn sacrifice in service to our Nation. Every brave man and woman who dons the Marine Corps uniform carries this legacy forward.
+参考链接：
 
-自从他们在独立战争中首次为自由事业流血牺牲以来，海军陆战队始终忠于自己的信条，从未动摇过他们的忠诚。美国海军陆战队独特的鲜红色和金色的战斗颜色象征着它在战场上无与伦比的威力和为国家作出庄严牺牲的历史。穿上海军陆战队制服的每个勇敢的男士和女士都将这一遗产发扬光大。
 
-With steadfast honor, courage, and commitment, Marines have swiftly and decisively risen to the occasion to secure victory, no matter the task.  This January marks the 30th anniversary of Operation Desert Storm, in which Marines successfully carried out one of the most consequential offensive attacks in the history of modern warfare.  Throughout the Gulf War, these brave warriors never faltered, a reflection of their long-standing devotion to pressing forward until every battle is won.
 
-凭藉坚定的荣誉、勇气和承诺，海军陆战队迅速而果断地挺身而出，无论任务如何，都能确保胜利。今年1月是“沙漠风暴行动”30周年纪念日，海军陆战队在这次行动中成功地开展了现代战史上最具影响的进攻性袭击之一。在整个海湾战争中，这些勇敢的战士从未动摇，这反映了他们长期致力于向前推进，直到赢得每一场战斗。
+> 4 ᴍᴏʀᴇ ʏᴇᴀʀs! [#MAGA](https://twitter.com/hashtag/MAGA?src=hash&amp;ref_src=twsrc%5Etfw) 
+> 
+> 3,889,947 Votes for [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) Stolen in Forensic Data Analysis! 8 States.[#Pennsylvania](https://twitter.com/hashtag/Pennsylvania?src=hash&amp;ref_src=twsrc%5Etfw) 1,383,014[#Virginia](https://twitter.com/hashtag/Virginia?src=hash&amp;ref_src=twsrc%5Etfw) 813,349[#NewYork](https://twitter.com/hashtag/NewYork?src=hash&amp;ref_src=twsrc%5Etfw) 659,461[#NewJersey](https://twitter.com/hashtag/NewJersey?src=hash&amp;ref_src=twsrc%5Etfw) 160,504[#WestVirginia](https://twitter.com/hashtag/WestVirginia?src=hash&amp;ref_src=twsrc%5Etfw) 78,300[#Georgia](https://twitter.com/hashtag/Georgia?src=hash&amp;ref_src=twsrc%5Etfw) 68,388[#Michigan](https://twitter.com/hashtag/Michigan?src=hash&amp;ref_src=twsrc%5Etfw) 62,308[#Arizona](https://twitter.com/hashtag/Arizona?src=hash&amp;ref_src=twsrc%5Etfw) 8,984
+>  [pic.twitter.com/Ra8usnhtrn](https://t.co/Ra8usnhtrn)
+> — 🇺🇸★ᴍɪᴄʜᴀᴇʟ★🇺🇸 (@MichaelT\_45) [November 11, 2020](https://twitter.com/MichaelT_45/status/1326326175254401025?ref_src=twsrc%5Etfw)
 
-Today, as we celebrate the men and women who valiantly defend our country as United States Marines, we also honor our heroic Marine veterans, and we solemnly remember those Marines who made the ultimate sacrifice in defense of our freedom.  We will always cherish and honor their memory.
 
-今天，当我们赞誉勇敢保卫我们国家的美国海军陆战队的男女官兵时，我们也向英勇的海军退伍军人致敬，我们庄严地纪念那些为捍卫我们的自由而做出最后牺牲的海军陆战队军人。我们将永远珍惜和纪念他们。
 
-The First Lady and I send our thoughts and prayers to all members of our Armed Forces and their families. May God bless the Marine Corps, and may He continue to bless the United States of America.
-
-第一夫人和我向我们所有的军人和他们的家人送上我们的思念和祈祷。愿上帝保佑海军陆战队，愿他继续保佑美利坚合众国。
-
-Semper Fidelis!
-
-永远忠诚！
-
-[阅读白宫原文](https://www.whitehouse.gov/briefings-statements/presidential-message-245th-birthday-united-states-marine-corps/)
-
-翻译：【重生】 编辑：【Isaiah4031】
-
-战友之家玫瑰园小队出品
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01145114/GNEWS-GTV-VOG.png)
-0
+1+

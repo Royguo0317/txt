@@ -1,59 +1,81 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】前议长金里奇：美国正处于历史的关键决策点，事关美国命运！这群骗子应该去监狱!
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/549019/)
+## 奥巴马的前中央情报局间谍局长约翰·布伦南（John Brennan）煽动对特朗普总统发动政变亲自敦促副总统迈克·彭斯夺权
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/549077/)
 
-**作者：香草山写作组  正道主义联盟**
+编译：玫瑰天空
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
+奥巴马的中央情报局局长敦促对特朗普总统发动政变，这样他就不会“解密一切”。
+
+巴拉克**·**奥巴马（**Barack Obama**）的前中央情报局局长约翰**·**布伦南（**John Brennan**）呼吁特朗普总统内阁成员罢免总统职务，以防止他解密敏感材料。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11185918/%E6%88%AA%E5%B1%8F2020-11-12-12.58.57.png)
+几天前，小唐纳德·特朗普（Donald Trump Jr.）敦促他的父亲释放核选择权：“一切都解密！！”  他在Twitter上大写。“我们不能让坏演员摆脱它。”
 
 
 
+> DECLASSIFY EVERYTHING!!! 
+> 
+> We can’t let the bad actors get away with it.
+> — Donald Trump Jr. (@DonaldJTrumpJr) [November 8, 2020](https://twitter.com/DonaldJTrumpJr/status/1325524657802522624?ref_src=twsrc%5Etfw)
 
 
-摘要：金里奇表示：“从政60年从未如此愤怒过。这帮腐虫藐视美国人民，以为我们没有脊梁骨，胆大妄为触犯联邦法律、干预大选，从我们手中偷走总统职位。难道我们只会搓搓双手就算了？美国最大的危机到了，等同于圣诞夜的华盛顿，葛底斯堡的林肯，关系美国存亡…！”
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11173540/%E7%94%BB.png)
-重量级政治人物、前共和党籍众议院议长金里奇（Newt Gingrich）发表评论文章。他认为目前美国正处于历史的关键决策点，事关美国命运；当左翼精英组成的体制在破坏美国民主时，美国人是否还要对此睁一只眼闭一只眼。
 
-金里奇在文中表示，周三凌晨三时与妻子离开白宫时，发生的太多事情令自己一时不知如何从理性及情感上去面对。今次选举事件困扰了他几日，思考后他做出如下的总结。
+其他人也 随声附和[煽动](https://libertarianinstitute.org/foreign-policy/declassify-the-russiagate-papers/)这样做，专栏作家谢尔登·里奇曼写。：“这是特朗普在1月20日中午离职前可以做的事情： 他可以命令-要求，坚持-将所有与俄罗斯/选举调查起源有关的机密情报和其他文件解密，并向公众发布”。
 
-金里奇认为美国人应该愤怒，因为系统性的选举舞弊确实存在，贯彻始终。从拜登家族勾结中国、俄罗斯和乌克兰事件可见，整个美国的媒体都在回避，亦不去着手调查。
+[Zerohedge.com的](https://www.zerohedge.com/political/ex-cia-chief-under-obama-urges-palace-coup-against-trump-so-he-doesnt-declassify)报道：这种独特的可能性很快就吸引了主流媒体和情报机构的注意，而这种情报与总统之间长期存在分歧（甚至是“战争”）。在周一对被驱逐的国防部长马克·埃斯珀（Mark Esper）做出特别反应之前，奥巴马政府下任前中央情报局间谍局长约翰·布伦南（John Brennan）本质上 敦促 在1月20日之前对特朗普进行 宫廷政变，以确保他不会将任何敏感或过于暴露的东西解密：
 
-科技巨头公司则一直在政治审查社交媒体账号发放的信息。在周四，保守派人士拉什·林博 (Rush Limbaugh)账户发布的六条信息，其中四条被屏蔽。金里奇自己的推文亦被屏蔽，甚至连美国总统川普的推文也遭此对待。
+解密：
 
-脸书（Facebook）聘请六名中国专家帮助公司，对用户开展中共极权式的政治审查。
 
-超级富豪捐赠大量政治献金予民主党，以在竞选中击败共和党，虽然他们并未得逞。比如，他们花费750万美金试图打败参议院多数党领袖麦康奈尔（Mitch McConnell），使用1,050万美金对付参议员格雷厄姆（Lindsey Graham），以及据称430万美金对抗参议员恩斯特（Joni Ernst），最后都以失败告终。
 
-左翼媒体在过去五年中处处针对川普总统，今次更竭尽所能地试图说服美国人，大选中将出现“蓝潮”，惟蓝潮并未出现，因为它们在说谎，在欺骗美国人。
+> Pres. Trump is "like a cornered cat…he's going to lash out and the fact…that he has the powers of the presidency in his hands is quite worrisome."
+> 
+> Former CIA dir. John Brennan calls on VP Pence and the cabinet to invoke the 25th Amendment and strip Pres. Trump of his powers. [pic.twitter.com/CyqFoSIoux](https://t.co/CyqFoSIoux)
+> — Cuomo Prime Time (@CuomoPrimeTime) [November 10, 2020](https://twitter.com/CuomoPrimeTime/status/1325998334037864450?ref_src=twsrc%5Etfw)
 
-在点票日，在好多州，明明川普总统处于领先地位，却发现拜登在民主党控制的地区迅速奇怪的后来居上，这些地区包括亚特兰大、萨凡纳、费城等。
 
-金里奇认为，现在美国处于历史的关键决策点，这已不再关乎总统或任何当选的领导者，而是关乎美国的命运，不容有失！这也关乎当左翼精英组成的体制在破坏美国民主时，美国人是否还要对此睁一只眼闭一只眼。
 
-过去五年中，左翼媒体和政客也在打压认同川普核心价值的美国人。那些向国旗敬礼，坚守效忠誓言，深信美国价值的人；那些要求给予美国人工作和机会的人，那些希望政府首先关心美国人利益的人，在过去五年中一直被媒体灭声。
+*前中央情报局局长约翰·布伦南（John Brennan）呼吁副总统彭斯（Pence）和内阁*
+*援引《第二十五条修正案》，并剥除Pres特朗普的权力。*
+在令人难以置信的周一CNN访谈中，布伦南（Brennan）亲自敦促副总统迈克**·**彭斯（**Mike Pence**）夺权，布伦南本人从特朗普总统任期开始就负责煽动如今被广泛揭穿的俄罗斯门的主张 。
 
-如果要继续维护美国价值，那么每一个张合法的选票必须被点算，并且核查；非法选票必须被剔除。美国人有资格为下一任美国总统做出他们的选择。
+他断言，尽管拜登准备在就职典礼当天（距离他们还有两个月的路程）过渡到白宫，但在这一点上，特朗普对国家安全构成威胁：
 
-他最后表示：“从政60年从未如此愤怒过。这帮腐虫藐视美国人民，以为我们没有脊梁骨，胆大妄为触犯联邦法律、干预大选，从我们手中偷走总统职位。难道我们只会搓搓双手就算了” ?
+布伦南在周一《 *Cuomo Prime Time*》刊物上说：*“*我非常担心他在任职的剩余*70*天会做什么。*” “*他会采取某种军事行动吗？ 他是否要发布某种实际上可能威胁到我们国家安全利益的信息？*”*
 
-他说美国最大的危机到了，等同于圣诞夜的华盛顿，葛底斯堡的林肯，关系美国存亡…！
+布伦南将事情做得更进一步，并增加了关于这位前长期间谍首长希望发生的事情的细节：“如果彭斯副总统和内阁有一点坚毅，脊柱和爱国主义， 我认为他们将认真考虑援引《第二十五条修正案》。并把唐纳德**·**特朗普赶出去，因为他现在已经很难预测了，”他补充说。
 
-他称应该送这群骗子去监狱!
 
-审核：悟空
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，纽约时间周日至周四晚上8:00，美国志愿者在纽约香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
-
+> I love this idea!!!! [https://t.co/oA2WvIEaLe](https://t.co/oA2WvIEaLe)
+> — Jake Tapper (@jaketapper) [November 9, 2020](https://twitter.com/jaketapper/status/1325670157658755073?ref_src=twsrc%5Etfw)
 
 
 
 
-1+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11185544/%E6%88%AA%E5%B1%8F2020-11-12-12.52.50.png)
+布伦南提到，自上周四以来，尽管有数票，但自多名联邦机构高级官员被赶出或辞职以来，似乎是选举后的清除和外流，布伦南表示这是特朗普串谋破坏国家安全的一部分。
+
+“如果马克·埃斯珀因为不听唐纳德·特朗普执行这些命令而被推到一边，他知道他的继任者是什么，那么如果唐纳德·特朗普确实做出某种与他相反的命令，这位代理秘书克里斯·米勒将去做。我认为我们的国家安全利益必须是这样。”布伦南说。
+
+但值得庆幸的是，实际上几乎没有掌权者可能听约翰·布伦南（John Brennan）的话，因为他的尖酸刻薄和对特朗普的愤怒 显然早已是** **个人的私愤。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11185625/%E6%88%AA%E5%B1%8F2020-11-12-12.52.41-1.png)
+
+
+> Senior civilians so far not affected by the recent purge include the Deputy Secretary of Defense Norquist and the Service Secretaries
+> — Ryan Browne (@rabrowne75) [November 10, 2020](https://twitter.com/rabrowne75/status/1326301901772763136?ref_src=twsrc%5Etfw)
+
+
+
+毕竟，曾经上演过的一幕还没有被忘记：
+
+巴拉克*·*奥巴马（*Barack Obama*）总统下属的中央情报局局长约翰*·*奥*·*布伦南（*John O. Brennan*）周四对特朗普总统进行 了罢工，要求撤销他的安全检查，称总统对与俄罗斯*“*不串通*”*以影响*2016*年大选的说法大行其道， 并争辩说这位指挥官总的来说，他试图让任何敢于挑战他的人保持沉默。
+
+布伦南现在公开地，字面意义上呼吁非法推翻美国现任总统。** **这也是美国大选发生的众多令人震惊事件其中的一幕。可见，试图支持拜登并且利用一切手段想把他推上美国总统之位的幕后力量已经处心积虑穷凶极恶到了疯狂的地步！
+
+目前的国际局势之中人类面临很多危险。这更像是一场世纪之战。正邪交战，如果我们做对了，世界将会得到拯救。
+
+[援引原文](https://newspunch.com/obamas-cia-chief-urges-coup-against-president-trump-so-he-doesnt-declassify-everything/)
+
+0

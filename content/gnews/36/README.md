@@ -1,41 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统领先总选举人票 胜利在望
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/549001/)
+## 川普总统美国海军陆战队245周年致辞
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/549141/)
 
-多伦多加喜农场  文静
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11191119/WH_20201110_Marine_Corps-photo.jpg)图片来源：[https://www.whitehouse.gov/wp-content/uploads/2020/11/32876361654\_d1bec5b46e\_o-1024×576.jpg](https://www.whitehouse.gov/wp-content/uploads/2020/11/32876361654_d1bec5b46e_o-1024x576.jpg)
+**Presidential Message on the 245th Birthday of the United States Marine Corps**
 
-校对上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11170624/%E5%B7%9D.jpeg)图片来自 slate.com
-据《门道专家》11月10日报道，依据目前仍在计票、重新计算、调查或审计的州的实际计票结果，或目前在法院有选举问题的州的计票结果，川普总统正在赢得2020年总统选举。
+**美国海军陆战队245周年总统致辞**
 
-一些州已经被确定，但一些州仍然存在疑问。 这里是一份有关问题的事例清单：
+November 10, 2020
 
-宾夕法尼亚： 尽管目前的统计数字显示，拜登领先，但是这一州的腐败现象很多。川普总统在选举之夜以70万票获胜，但之后又增加了100多万票，最终拜登夺走了选举。 一旦非法投票得到处理，总统就有了通向胜利的明确途径。
+2020年11月10日
 
-分析各州选举在夜间的数据，显示出川普总统的几百万选票被切换到了拜登的名下，使用的是多米尼安和其他系统。
+As Commander in Chief, I proudly join our Nation in wishing the United States Marine Corps a happy 245th birthday.
 
-威斯康星：这个州现在也是拜登领先，但在选举日后的清晨，10万多张选票魔术般地出现在密尔沃基， 拜登目前仅仅领先2万张选票。如果这些选票或石克县数目的意外情况得到处理，川普总统将以非常大的幅度赢得这个州。
+作为总司令，我自豪地和我们的国家一同祝美国海军陆战队245岁生日快乐。
 
-密歇根州：这个州也充满了欺诈，有关诉讼已经到位。 此外，在底特律也投了10万多张票，而且川普的领先选票数也被盗。 据信一旦非法投票被取消，川普总统也就会取得这个州的胜利。
+Officially established by the Second Continental Congress on November 10, 1775, the Marine Corps has protected our sovereignty in the air, on land, and at sea. Our Marines have led the charge for freedom and justice in defense of our constitutional republic and its founding principles.
 
-乔治亚：这个州也存在很多欺诈。 总统在选举之夜以10万票赢得了这个州， 但是在选举日后，一个程序的进入拜登就收获了选票。 现在拜登处于领先的状态， 一旦他收获的选票被清除，这个州也一定属于川普。
+海军陆战队于1775年11月10日在第二次大陆会议上正式成立，它保护了我们空中、陆地和海上的主权。我们的海军陆战队捍卫了我们宪政共和国及其建国原则，为自由和正义冲锋陷阵。
 
-内华达州：这里也有很多欺诈，几十万选票未核实签字。 如果在这里取消任何无资格的选票，川普总统很可能会赢得这个州。
+Since they first shed blood for the cause of freedom during the Revolutionary War, Marines, true to their creed, have never wavered in their faithfulness. The distinct scarlet and gold Battle Colors of the United States Marine Corps symbolize its history of both unmatched prowess on the battlefield and solemn sacrifice in service to our Nation. Every brave man and woman who dons the Marine Corps uniform carries this legacy forward.
 
-亚利桑那：没有人知道这里到底发生了什么。 由于推迟计票，川普总统的选票领先成果很可能被偷走了， 真是很糟糕！
+自从他们在独立战争中首次为自由事业流血牺牲以来，海军陆战队始终忠于自己的信条，从未动摇过他们的忠诚。美国海军陆战队独特的鲜红色和金色的战斗颜色象征着它在战场上无与伦比的威力和为国家作出庄严牺牲的历史。穿上海军陆战队制服的每个勇敢的男士和女士都将这一遗产发扬光大。
 
-阿拉斯加：这里还没有结束，但显然是一个红色的状态。毫无疑问，应该在选举之夜就被确认红色的， 但是有一个“猴子摘桃”的事件在继续。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11175724/%E5%9B%BE.jpg)
-尽管发生了各种欺诈，川普总统目前赢得选举的途径比拜登多。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11170518/%E6%AF%94-1.jpg)
-编译者语：综上所述，随着多地区的大量的举报和揭露，现在可以确认，许多本来川普领先甚至原始红州都出现了各种选票欺诈行为！以上文章所列的州都将重新审核假选票，川普团队已经在上列各州开始法律诉讼，同时得到了司法部的强力支持。
+With steadfast honor, courage, and commitment, Marines have swiftly and decisively risen to the occasion to secure victory, no matter the task.  This January marks the 30th anniversary of Operation Desert Storm, in which Marines successfully carried out one of the most consequential offensive attacks in the history of modern warfare.  Throughout the Gulf War, these brave warriors never faltered, a reflection of their long-standing devotion to pressing forward until every battle is won.
 
-其实在选举前通过亨特·拜登的“邮件门“以及”三块硬盘“，拜登家族和中共勾结的各种腐败丑恶行径，新中国联邦、爆料革命已经有了大量揭示和预警，乔·拜登的背后就是中共。只要是中共插手的事情必出奇门怪事与混乱。
+凭藉坚定的荣誉、勇气和承诺，海军陆战队迅速而果断地挺身而出，无论任务如何，都能确保胜利。今年1月是“沙漠风暴行动”30周年纪念日，海军陆战队在这次行动中成功地开展了现代战史上最具影响的进攻性袭击之一。在整个海湾战争中，这些勇敢的战士从未动摇，这反映了他们长期致力于向前推进，直到赢得每一场战斗。
 
-正如郭文贵先生所指出的，此次美国大选必将以滑稽的结果收场，而此时正是各种滑稽、跳梁小丑和各种暗黑势力卖力表演和暴露的时候。他们的违法行为必将受到美国法律的严惩，而新中国联邦此次做出的努力为川普赢得最后胜利，为正义战胜邪恶奠定了基础，也成为与中共决战、正邪决战的最大赢家！
+Today, as we celebrate the men and women who valiantly defend our country as United States Marines, we also honor our heroic Marine veterans, and we solemnly remember those Marines who made the ultimate sacrifice in defense of our freedom.  We will always cherish and honor their memory.
 
-参考链接：[https://www.thegatewaypundit.com/2020/11/current-actual-election-result-update-president-trump-leading-electoral-college-paths-victory-biden/](https://www.thegatewaypundit.com/2020/11/current-actual-election-result-update-president-trump-leading-electoral-college-paths-victory-biden/)
+今天，当我们赞誉勇敢保卫我们国家的美国海军陆战队的男女官兵时，我们也向英勇的海军退伍军人致敬，我们庄严地纪念那些为捍卫我们的自由而做出最后牺牲的海军陆战队军人。我们将永远珍惜和纪念他们。
 
-1+
+The First Lady and I send our thoughts and prayers to all members of our Armed Forces and their families. May God bless the Marine Corps, and may He continue to bless the United States of America.
+
+第一夫人和我向我们所有的军人和他们的家人送上我们的思念和祈祷。愿上帝保佑海军陆战队，愿他继续保佑美利坚合众国。
+
+Semper Fidelis!
+
+永远忠诚！
+
+[阅读白宫原文](https://www.whitehouse.gov/briefings-statements/presidential-message-245th-birthday-united-states-marine-corps/)
+
+翻译：【重生】 编辑：【Isaiah4031】
+
+战友之家玫瑰园小队出品
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01145114/GNEWS-GTV-VOG.png)
+0
