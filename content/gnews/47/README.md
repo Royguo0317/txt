@@ -1,30 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 朱利安尼：诉讼已提交，川普总统将赢下密歇根和宾夕法尼亚
-` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/551183/)
+## 【快讯】中俄伙同吹嘘Sputnik-V，暴露挟疫苗“称霸”世界野心
+` Ronald` [轉載自GNews](https://gnews.org/zh-hans/551403/)
 
-**为子孙爱七哥农场翻译组** **翻译： zz17 校对： jiasen**
+内新闻/素材：鹰(文言) 校对：雅典娜的圣斗士(沙加)
+![此图像的alt属性为空；文件名为image1-6.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12100521/image1-6.jpg)
+澎湃网11月11日报道，西藏诺迪康药业股份有限公司的旗下子公司与俄罗斯一公司Sputnik-Vvaccine（新冠肺炎腺病毒疫苗）开展合作，分期支付900万美元以获得该疫苗在大陆及港澳台生产、研发等相关权益许可权。
 
-原文链接：[Giuliani: Suits Filed, President Trump To Win Mich. And Pa.](https://www.oann.com/giuliani-suits-filed-president-trump-to-win-mich-and-pa/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12095344/GettyImages-1284440578.jpg)(新闻来源：oann.com 图片来源：Chris McGrath/Getty Images)
-川普总统的私人律师，鲁迪·朱利安尼先生，声称将会发布全国投票欺诈的重要证据。
+Sputnik-V vaccine是由俄罗斯伽马勒研究所研发，经历前两期临床试验后于8月在俄罗斯卫生部注册，而普京也曾为此疫苗站台，称其一个女儿已接种，11月的公开数据显示该疫苗预防新冠有效率达92%，当前该疫苗在俄罗斯已进入商业化市场销售阶段。
 
-在周三的一条推文中，朱利安尼先生说川普竞选团队已对在密歇根和宾夕法尼亚成百上千的欺诈选票提出法律诉讼使之无效。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12095039/Screen-Shot-2020-11-12-at-10.24.36-PM.png)
-最新的诉讼是向密歇根西区提出，朱利安尼先生将在周四发布从双方诉讼中的证词文件。
+此次合作的俄罗斯公司为LIMITED LIABILITY COMPANY “HUMAN VACCINE”公司（由俄罗斯政府控制的RDIF Asset Management LLC所持有100%“HV”股权），是俄罗斯伽马勒研究所的合作伙伴，于2020年9月4日注册成立。
 
-川普总统的律师说他的团队已经从底特律、密尔沃基、费城收集了令人震惊的投票欺诈的证据。
+无论是俄罗斯政府控股因素和普京的站台还是Sputnik-V过高“虚假”的有效率，无不反映了该疫苗只是俄罗斯抢占疫苗市场、妄图以疫苗要挟世界的衍生物，根本无关防控CCP病毒和拯救人类。
 
-前任纽约市市长声称：“并不是说宾夕法尼亚不会去做弊，而是州长沃尔夫会。但是我们将在一切可能的法庭上，因为我们不能让民主党偷走宾夕法尼亚”，“现在是共和党和总统在为你们战斗，因为他们（民主党）想偷走你的选票”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12095205/Screen-Shot-2020-11-12-at-10.24.50-PM.png)
-朱利安尼先生补充道，已提交的关于欺诈证据将会对案件起到强有力的支撑，这意味着川普总统很有可能赢下密歇根和宾夕法尼亚。
+此次西藏诺迪康药业引进该疫苗，预计Ⅰ、Ⅱ期临床在国内开展（费用约6000万元），第Ⅲ期在国外开展，并通过其子公司上海海脊生物医药工程有限公司及其他关联公司筹建腺病毒疫苗生产线。
 
-**更多精彩内容请关注：**
+西藏诺迪康药业成立于1999年7月，是西藏第一家高新技术制药上市企业，注册资本1.77亿元，其控股子公司西藏诺迪康医药是全国规模最大的中外药品、医疗器械销售配送枢纽，西藏诺迪康药业19年营收12.56亿元，截至2020年上半年总资产28.2亿元。
 
-- [为子孙爱七哥农场官方推特](https://twitter.com/wzsaqg)
-- [为子孙爱七哥农场官方GTV号](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
-- [欢迎加入农场discord官方群](https://discord.gg/2vXAV6G)
+西藏诺迪康药业的成立和发展壮大背后都有着当地政府的扶植，一定程度上讲西藏诺迪康药业的此次引进Sputnik-V实质是中共政府伙同俄罗斯吹嘘“假疫苗”效果，营造疫苗即将上市假象，继续哄骗全世界。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20123101/%E5%86%9C%E5%9C%BA%E5%B9%BF%E5%91%8Av7-3.jpg)
+无论是Sputnik-V的接种人数过少及数据造假，接种疫苗后的ADE效应，还是郭文贵先生和闫丽梦英雄科学家的爆料，都表明疫苗“抗疫”只是短期妄想，更何况主导者是中共这一放毒者和普京独裁政权，所以此时中俄炒作疫苗更加暴露其挟疫苗“称霸”世界的险恶用心。
+
+新闻来源：
+[https://www.thepaper.cn/newsDetail\_forward\_9947576](https://www.thepaper.cn/newsDetail_forward_9947576)
+
 0

@@ -1,16 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港真相】【紀實】2019年 『中大保衛戰』
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/551860/)
+## 中共国要有严重的粮食危机了 &#8211; 解放军批判战士浪费粮食是个表演
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/551908/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12134405/Ehw-IypVoAEHdPf.jpg)
-感謝: Movistory HK 製作視頻
+郭文贵先生在11月11日的GTV“吃播”中谈到中共面临的巨大粮食危机。解放军在批判粮食浪费大会上的表演正说明了危机的严重性。
 
-[https://www.youtube.com/channel/UCNJLkyS-CZ3cp6JWpe\_B9Ug](https://www.youtube.com/channel/UCNJLkyS-CZ3cp6JWpe_B9Ug)
+【视频来源： [https://gtv.org/video/id=5fabf508bd0d464fadfebbf7](https://gtv.org/video/id=5fabf508bd0d464fadfebbf7)】
 
-視頻鏈接：
+“亲爱的兄弟姐们，当你们看到我吃的这么好的时候，特别是国内的战友们，你一定要想到你没吃的时候你咋办？太可怕了就。所以说兄弟姐妹们，现在今天这个某武装部队，昨天因为所谓的战士们浪费粮食，进行了惩罚，还昨天还通报了全军。那不是说这个战士啊，这个战士是个牺牲品，不是说他浪费了粮食。是这个战友，当成了时代的牺牲品，就像当年时代造了个假雷锋一样。就是让部队少吃东西，所谓的不浪费粮食。共产党的粮食将是大问题！更夸张的是什么，战友？这位战友说，他们的高两级的军事领导，亲自指挥、亲自批评、亲自出席这个严肃的所谓批判大会。这都是共产党演戏呢，杀鸡给猴看、杀一儆百。当我看到他给我说这消息时候，我说完了，中国要出粮食大问题啦。解放军开始，就开始禁粮、省粮、演戏，那就要出大事儿了。”
 
+听写：【Embracer\_牙牙】翻译：【九九颠覆一个是一个】校对：【Isaiah4031】字幕：【V%】视频解码：【恒久忍耐】编辑：【Isaiah4031】
 
+战友之家玫瑰园小队出品
 
 0

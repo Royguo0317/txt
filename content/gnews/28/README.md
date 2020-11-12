@@ -1,39 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## &#8220;自由&#8221;泛滥，举国遭罪
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/551781/)
+## 独家！《拜登大选作弊》系列（1）
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/551585/)
 
-作者：文护念；校对/审核：海阔天空；Page：拱卒
+- 编辑：文顺
+- 作者：小木头
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ISzvR0LkuvMhi/images/84550f7e-6c8c-4f7b-8339-82a795a91f99.jpg?asset_id=f70ec873-eb46-45d8-b325-76378b1a9625&amp;img_etag=%22c3c0fdbccc0904bb11207314ceaaebd0%22&amp;size=1024)](https://spark.adobe.com/page/ISzvR0LkuvMhi/images/84550f7e-6c8c-4f7b-8339-82a795a91f99.jpg?asset_id=f70ec873-eb46-45d8-b325-76378b1a9625&amp;img_etag=%22c3c0fdbccc0904bb11207314ceaaebd0%22&amp;size=1024)
 
-在人类历史长河当中，纵观古今中外，上下数千载，经历了多次变迁，无论封建时代，还是资本主义时期，抑或所谓的社会主义时代，贵少贱多、不平等现象日益明显，因而“自由平等”的呐喊，一人呼之，千人诺之，在很长时间成为了众人最高的追求，甚至成为很多人毕生的目标。
+***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-随着科技的昌明，人类获得资讯的途径越来越多，各种观点的碰撞亦越来越激烈，可谓当代的百家争鸣，自由思想得到喷泉式发展。老罗斯福当年提出四大自由，即言论自由、宗教自由、免于匮乏的自由、免于恐惧的自由。自由无疑是当下主旋律之一，亦是人类进步的基石。
+拜登大选作弊已浮出水面，根据多方报道，我们整理出拜登大选作弊所用的手段。
 
-但是，人类的活动不间断地处于动态过程，日月交替，苟日新、日日新、又日新。今天适用的条文法案，明日不一定合适。自由亦如此，在压迫的时代，自由显得弥足珍贵。但如今自由泛滥，特别是不负责任的自由、不自律的自由、过度自由的弊端显露无疑，如若不能及时修补，其危害不容小觑。
+**死人票**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ISzvR0LkuvMhi/images/76896abc-7513-4c6b-a22b-c105f210461b.jpg?asset_id=b5e30668-47c3-41f6-930b-f22bac6a3444&amp;img_etag=%22dcc1c59e7b81f719281162e7be4f8e76%22&amp;size=1024)](https://spark.adobe.com/page/ISzvR0LkuvMhi/images/76896abc-7513-4c6b-a22b-c105f210461b.jpg?asset_id=b5e30668-47c3-41f6-930b-f22bac6a3444&amp;img_etag=%22dcc1c59e7b81f719281162e7be4f8e76%22&amp;size=1024)
+11月12日，据Parler用户TeamTrump披露，去世17年的乔治亚州尼科尔森居民琳达·凯斯勒夫人在选举中投票。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12123915/cheat3.jpg)
+原文链接：[https://parler.com/post/a46501d3fa874fc48d12e95dcc93dae6](https://parler.com/post/a46501d3fa874fc48d12e95dcc93dae6)
 
-这段时间，在美国的总统大选期间，无论是主流媒体CNN、纽约时报，还是社交媒体寡头推特、Facebook想钳口封号就钳口封号，想屏蔽川普总统的相关消息就屏蔽，想删除GTV、Gnews的信息就删除，把自由泛滥发挥得“淋漓尽致”。这些被左派控制的媒体甚至还来一个“媒体宣”，宣布民主党参选人乔拜登成为美国总统，滑天下之大稽。这些不负责任的“言论自由”，不仅严重失实，而且还干扰了美国大选，属于犯罪行为。但是由于美国法律的特殊性，有美国第一修正案的“保护伞”，不能剥夺言论自由、不能侵犯新闻自由，以及230法案的“如虎添翼”，使得“fake news”简直如入无人之境，“言论自由”俨然泛滥成灾，法久弊深。
+**过期选票盖选举邮戳**
 
-媒体的报道大致可分两大板块。第一，现场采访类型的报道。如果这些报道出现了某些客观性的错误，例如事发的时间写错，或者当事人的名字有误，这些可以及时更正，与其报道的内容本质上无大差异，真实性值得参考。第二种报告是深度报告。美国大选期间左媒报道的新闻，基本都是运用社会科学的方法，量化研究，再加上大数据分析，显然属于深度的调查报告。但是在利益动机的驱使下，虚假媒体一边倒报道乔拜登当选美国总统的虚假消息，完全扭曲了新闻媒体应该承担的社会责任。这些都是经过精的设计的虚假报道，令美国蒙羞、举国遭罪。
+11月9日，据Veritas 项目披露，密西根州邮递员实名揭发其主管要求以假邮戳处理不符合资格的过期选票。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12124351/cheat9.jpg)
+原文链接：[https://www.projectveritas.com/news/project-veritas-offers-usd25k-reward-for-tips-related-to-election-voter-and/](https://www.projectveritas.com/news/project-veritas-offers-usd25k-reward-for-tips-related-to-election-voter-and/)
 
-庚子年以来，中共病毒肆虐全球，大部分主流媒体仍旧没有“自由”报道过一次真相，反而变本加厉，造谣攻击传播真相的人。如果没有爆料革命，如果没有新中国联邦，没有GTV、没有Gnews ，世界会变成哪般模样，细思极恐。
+**拒绝共和党监票员入场监督**
 
-毫无疑问，没有新闻自由就没有免于恐惧的自由。传媒作为第四权力，是指在行政权、立法权、司法权之外的第四种制衡的权力，其本职是为了监督制衡政府。新闻媒体如发挥其应有的功能，整个社会的运转就是良性的。如今大部分的媒体，集体陨落，这个社会出现了巨大问题。
+11月10日，费城私人执业律师杰罗姆·马库斯披露，在费城会议中心亲自看到有十名特朗普竞选志愿者被禁止进入计票室。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12124403/cheat10.jpg)
+原文链接：[https://thefederalist.com/2020/11/10/i-was-in-philadelphia-watching-fraud-happen-heres-how-it-went-down/](https://thefederalist.com/2020/11/10/i-was-in-philadelphia-watching-fraud-happen-heres-how-it-went-down/)
 
-自由而负责的新闻，自由是前提，但不能不负责。自由无疑重要，但事到如今，迫切需要的是负责任的自由，每个人都有自己言论的自由，但是必须对自己的自由负责，负责任的自由才是生命之深义。
+**点票软件频出错 把川普票变成拜登票**
 
-【文章仅代表作者观点】
+11月11日，据推友转推，前联邦检察官和现任律师Sidney Powell在FOX中披露，投票软件Dominion系统里面有中共软件，出现的问题可能是故意设置的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12124504/cheat1.jpg)
+原文链接：
 
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/ISzvR0LkuvMhi/)】-点击spark adobe版
+- [https://www.washingtonexaminer.com/news/trump-campaign-files-federal-lawsuit-in-michigan-over-fraud-allegations](https://www.washingtonexaminer.com/news/trump-campaign-files-federal-lawsuit-in-michigan-over-fraud-allegations)
+- [https://twitter.com/M2Madness/status/1326526096221802498?s=20](https://twitter.com/M2Madness/status/1326526096221802498?s=20)
 
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+**午夜幽灵票**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ISzvR0LkuvMhi/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/ISzvR0LkuvMhi/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+11月10日，据《DAILY WIRE》报道，在美国353个县，登记的选民比合格公民多180万。报道称，司法观察主席汤姆·菲顿总结道：”新的研究表明，在29个州的353个县中，有180万选民超额，或’幽灵’选民。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12124609/cheat15.jpg)
+原文链接：[https://www.dailywire.com/news/report-in-353-u-s-counties-1-8-million-more-voters-registered-than-eligible-citizens](https://www.dailywire.com/news/report-in-353-u-s-counties-1-8-million-more-voters-registered-than-eligible-citizens)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0

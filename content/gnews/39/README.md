@@ -1,13 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登第二笔中国敛财交易曝光
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/551548/)
+## 【字幕】11/11/2020文贵：共产党干坏事不会招告天下的
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/551601/)
 
-多伦多加喜农场 视频组 制作
-
-上传 小鸥
-
-
+制作： 【彩虹桥】
 
 0

@@ -1,32 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅！总统律师连续发推警醒美国人对抗中共威胁
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/552100/)
+## 共和党籍新晋众议员阿什利•辛森(Ashley Hinson)中共病毒检测呈阳性
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/552288/)
 
-- 编辑：Victor Torres
+编辑：Victor Torres
 
+11月12日，据《Fox News》报道，来自爱荷华州的新一届美国众议院议员阿什利•辛森(Ashley Hinson)，在美国时间周三晚间，被检测出中共病毒阳性，其团队在周四公布了这一信息。
 
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+阿什利•辛森(Ashley Hinson)年仅37岁，现任爱荷华州州议员，刚刚在今年的选举中击败现任民主党籍众议员艾比•芬克瑙尔(Abby Finkenauer)，为共和党在众议院拿下关键一席。
 
-11月12日，川普阵营的著名维权大律师林肯•伍德连续发推警醒美国来自共产中国的威胁。
+阿什利•辛森(Ashley Hinson)目前感觉良好，根据医生的嘱咐，正在位于爱荷华州马里昂的家中隔离。
 
-他说，在过去的20年里，中共渗透了美国。许多地方、州和国家的政府官员及政治家或被中国的金钱所腐蚀，或成为中共敲诈的对象。另一些人单纯信奉共产主义。
+说起当选的原因，她说: “它就这么来了，当我开着自己的小货车走遍了竞选的地区。我是一个开小货车的母亲，我们有贷款。我是一个再平常不过的爱荷华人，是努力的工作和在车上的历程为我赢得了它。”
 
-战争的首要原则是认清敌人。美国正处于与中共的正邪大战之中，中共用生化武器冠状病毒共攻击美国，控制美国人的生活方式。他们还使用Dominion投票系统控制美国大选。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
 
-2016年，民主党声称俄罗斯实质上干预了美国大选，通过调查被发现是一个谎言。2020年，中共事实上干涉了大选，这即将被证实。他说，每个谎言都将被揭穿。参与欺诈阴谋妄图颠覆合法当选总统的美国人都是叛国者，而中共精心安排了这一切。美国在正义的上帝庇佑下，必将发起反击。
-
-他表示，共产主义思想主导了好莱坞、主流媒体，还有诸如Twitter、Facebook 等社交媒体。美国人被玩弄，他们必须为自己着想，为自由而战，不再被操纵。
-
-林肯•伍德律师认为，几十年来共产主义一直在悄悄侵蚀美国，进入学校、电影、电视、互联网，影响政府官员和政客，共产党人吹嘘他们将不费一枪一弹接管美国。只有美国人民才能阻止它。
-
-他还调侃: “问问受中共压迫的人民有多喜欢共产主义暴政下的生活?” “哦，我忘了。他们面对监禁和死亡的威胁无法自由发声。我的错。”
-
-参考信息：[https://twitter.com/LLinWood?s=08](https://twitter.com/LLinWood?s=08)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0

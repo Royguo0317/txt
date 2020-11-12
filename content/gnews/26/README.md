@@ -1,71 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统同意朱利安尼：这数十万张欺诈选票不应被计算！
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/551799/)
+## 川普最新推文：数百万川普的选票被选票系统删除或转移给拜登
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/551851/)
 
-多伦多加喜农场 老熊
+草原三省战友团     文静
 
-校对上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12131305/Biden-Steal.jpg)图片来自 Stationgossip
-11月11日，《门道专家》刊文，“川普总统同意鲁迪·朱利安尼的观点：宾夕法尼亚州和密歇根州的数十万张选票不应允许计算”。
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12135319/WBUR-Trump.jpg)图片来自 WBUR
+快讯：11月12日中午最新川普总统推文，根据有关报告得悉Dominion 选票系统，删除了270万川普选票，全美国数据系统分析发现有22万1千张宾州的选票从川普名下转给了拜登，有94万1千川普选票被删除，相关的各州有43万5千川普选票用Dominion 选票系统转给了拜登！
 
-文章说川普总统周三晚再次用“假新闻媒体”字眼呐喊。
-
-川普总统指出，假新闻媒体并没有报道底特律和费城大规模的选票舞弊事件，在那里共和党的观察员被禁止参与监督计票过程。
-
-文章引用了川普总统当晚的推文，“没有人想报告宾夕法尼亚州和密歇根州不允许我们的投票观察员和/或投票监督员观看或监督，这导致了数十万张不应被允许计票的选票计入，否则，我很容易赢得这两个州。把真实的新闻报出去！”
-
-文章接着说，正如我们早些时候所报道的那样，数十万张选票被清点，没有一个共和党观察员在场。
-
-文章回放了一周前的报道，底特律计票工作人员欢呼共和党监督员和共和党律师被赶出TCF中心！【1】
-
-他们以CCP病毒为由，州选举领导层正在阻止底特律TCF中心的共和党民计票监察员进入计票中心。
-
-……
-
-接近中午的时候，计票中心几乎每一张桌子都有一名共和党观察员的位子。
-
-但午休后一切都变了，共和党计票监察员去吃午饭后，底特律官员阻止他们进入计票中心。
-
-（这是个很有争议的举动）……
-
-警察被叫来了。
-
-我们的联系人说，民主党的勤护人员非常敌对和威胁。
-
-戴着黑命贵口罩和种族正义着装的人员被允许进入计票中心，但共和党观察员被阻止进入。
-
-警察封锁入口！
-
-……
-
-我们之前发布了一段视频，一名选票监督员无法获得CCP病毒防护装备，民主党人以此为由，阻止共和党计票观察员进入计票室监督计票。
-
-……
-
-再看这个……
-
-一段视频显示底特律计票工作人员每一次从TCF中心驱走共和党计票监督员时都会欢呼。
-
-他们在欢呼！
-
-还有一段视频，计票工作人员在驱赶共和党律师离开会议室时的欢呼。
-
-我妻子刚发了一段底特律选举工作人员每次@米果
-
-律师被赶出TCF中心，那里正在进行缺席计票。她说，他们每次驱赶一个共和党选票观察员时都会这样做，而民主党观察员的人数比共和党多三分之一。
-
-如此猖獗地舞弊，如此明目张胆地窃取，人们不禁要问，这是美国吗？
-
-是的，没有文贵先生，没有爆料革命，这一切不但会发生，也将会无人过问，无人敢过问。
-
-但是，上苍有眼，下凡了文贵，文贵先生引领了爆料革命，挽狂澜于既倒，扶大厦于将倾！
+从以上川普公布的数据来看，非常让人震惊，现实触目惊心！这是一场世纪盗窃，这是美国有史以来最大、最丑恶的总统选举选票欺诈。有新中国联邦、爆料革命之前所揭示的拜登家族与中共狼狈为奸的罪恶勾当在先，很容易让人联想到，这次美国总统大选出现的各地、多种欺诈行径的背后黑手就是中共！随着大量实锤证据被公示和诉讼于法律，有关选票的欺诈做案人一定会被绳之以法。我们坚信，美国的司法体系一定会很快修复，中共的邪恶企图一定会破产，川普必赢！
 
 
 
-参考链接：【1】https://www.thegatewaypundit.com/2020/11/video-detroit-election-workers-cheer-gop-election-monitor-gop-lawyer-removed-tcf-center/
+> “REPORT: DOMINION DELETED 2.7 MILLION TRUMP VOTES NATIONWIDE. DATA ANALYSIS FINDS 221,000 PENNSYLVANIA VOTES SWITCHED FROM PRESIDENT TRUMP TO BIDEN. 941,000 TRUMP VOTES DELETED. STATES USING DOMINION VOTING SYSTEMS SWITCHED 435,000 VOTES FROM TRUMP TO BIDEN.” [@ChanelRion](https://twitter.com/ChanelRion?ref_src=twsrc%5Etfw) [@OANN](https://twitter.com/OANN?ref_src=twsrc%5Etfw)
+> — Donald J. Trump (@realDonaldTrump) [November 12, 2020](https://twitter.com/realDonaldTrump/status/1326926226888544256?ref_src=twsrc%5Etfw)
 
-原文链接：https://www.thegatewaypundit.com/2020/11/president-trump-agrees-rudy-giuliani-hundreds-thousands-votes-pennsylvania-michigan-not-allowed-count/
+
 
 0
