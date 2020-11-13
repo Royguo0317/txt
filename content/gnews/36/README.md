@@ -1,22 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普最新推文：数百万川普的选票被选票系统删除或转移给拜登
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/551851/)
+## 快讯！《War Room》 披露大选期前民调显示拜登落选的马里科帕县更换选票机
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/551999/)
 
-草原三省战友团     文静
-
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12135319/WBUR-Trump.jpg)图片来自 WBUR
-快讯：11月12日中午最新川普总统推文，根据有关报告得悉Dominion 选票系统，删除了270万川普选票，全美国数据系统分析发现有22万1千张宾州的选票从川普名下转给了拜登，有94万1千川普选票被删除，相关的各州有43万5千川普选票用Dominion 选票系统转给了拜登！
-
-从以上川普公布的数据来看，非常让人震惊，现实触目惊心！这是一场世纪盗窃，这是美国有史以来最大、最丑恶的总统选举选票欺诈。有新中国联邦、爆料革命之前所揭示的拜登家族与中共狼狈为奸的罪恶勾当在先，很容易让人联想到，这次美国总统大选出现的各地、多种欺诈行径的背后黑手就是中共！随着大量实锤证据被公示和诉讼于法律，有关选票的欺诈做案人一定会被绳之以法。我们坚信，美国的司法体系一定会很快修复，中共的邪恶企图一定会破产，川普必赢！
+- 编辑：文顺
+- 作者：Jennyball
 
 
+***更多真相请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-> “REPORT: DOMINION DELETED 2.7 MILLION TRUMP VOTES NATIONWIDE. DATA ANALYSIS FINDS 221,000 PENNSYLVANIA VOTES SWITCHED FROM PRESIDENT TRUMP TO BIDEN. 941,000 TRUMP VOTES DELETED. STATES USING DOMINION VOTING SYSTEMS SWITCHED 435,000 VOTES FROM TRUMP TO BIDEN.” [@ChanelRion](https://twitter.com/ChanelRion?ref_src=twsrc%5Etfw) [@OANN](https://twitter.com/OANN?ref_src=twsrc%5Etfw)
-> — Donald J. Trump (@realDonaldTrump) [November 12, 2020](https://twitter.com/realDonaldTrump/status/1326926226888544256?ref_src=twsrc%5Etfw)
+11月12日，《War Room》披露大选期前马里科帕县更换选票机，而该县民调显示拜登将败选。
 
+据《War Room》嘉宾川普2020顾问委员会成员鲍里斯·埃普什泰恩披露，根据马里科帕县民意记录，拜登将在这次选举中失败，所以决定使用新机器。据鲍里斯介绍，这些机器的作用是自动拒绝任何有问题的选票，比如墨迹模糊的选票被退出，就像信用卡被拒退出的情景。原本工作人员应该按下红色按钮将不合格选票推出，重新填写后再投入机器。 但是工作人员实际的操作（并非一定是故意的）是一直按绿色按钮以强制将损坏的选票卷入。
 
+另外，据鲍里斯·埃普什泰恩透露，仅马里科帕县一天就有多达9万9千到10万张这中票，经查，在马里科帕县使用了许多这种新机器。
+
+视频链接：[https://pandemic.warroom.org/2020/11/12/ep-495-pandemic-ready-on-the-gun-decks-w-david-kallman-and-rudy-giuliani/](https://pandemic.warroom.org/2020/11/12/ep-495-pandemic-ready-on-the-gun-decks-w-david-kallman-and-rudy-giuliani/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0

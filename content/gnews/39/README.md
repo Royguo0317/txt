@@ -1,30 +1,76 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 华盛顿挺川大游行正在集结
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/551820/)
+## 【热点播报】川普总统发推证实“dominion”软件严重造假！13种川普胜选组合显示：赢下三州可达284票！
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/551957/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12132048/1112_GNEWS_3.jpg)图片来源：[orlandosentinel.com](https://www.orlandosentinel.com/politics/2020-election/os-ne-2020-stop-the-steal-rally-orlando-20201106-mkr5rzyl4vgbjmtvrcy65yxqnm-story.html)
-据《华盛顿观察家报》（Washington Examiner）11月11日报道，随着川普总统继续对乔·拜登（Joe Biden）声称的选举胜利加大质疑力度，一系列声援川普总统的行动计划在整个华盛顿特区如雨后春笋般涌现。其中最引人瞩目的是定于本周六（11月14日）的“百万人大游行”（Million MAGA March），川普的支持者们将从最高法院步行到白宫，来表示对川普此次选举的支持。
+作者：纽约香草山写作组 正道主义联盟
 
-这次活动组织者的推特帐户本周吸引了多达一万多追随者，组织者声称此次活动将“在美国人站起来反对腐败制度的那一刻被载入史册！”众多线上右翼人物也对此次游行进行了宣传推动。
-
-而为了抵制挺川的“百万人大游行”，被川普总统定义为恐怖组织的安提法（ANTIFA）属下的当地组织“特区全民上街”（Everybody Out D.C.）则宣布了名为“F–MAGA 游行”（F– MAGA March）的反抗议活动。
-
-在推广另一项也是定于本周六的 “为川普行军”（The March for Trump）的挺川活动时，组织者在网上也遭受到了阻力。“女性挺川组织”联合创始人艾米·克雷默（Amy Kremer）在周二称，美国活动管理与票务服务商Eventbrite以包含“潜在有害的错误信息”为由，禁止所有试图在其网站上宣传此次游行内容。克雷默说，尽管表面上游行被取消了，但实际活动仍会进行，“我们不能让他们阻止我们的脚步。”组织者没对预计游行人数的问题给与回应。
-
-此外，推特一系列帖子也显示，周六还将有另一个口号为“停止窃选”（stop the steal）的活动，该活动可以视为此前一整周的在全美50个州同时举行的“停止窃选”集会活动的延续。“停止窃选”游行由前密苏里州共和党主席埃德·马丁（Ed Martin）在全国范围内推动，旨在呼吁共和党人“加强”并支持川普总统对民主党选举舞弊的指控。
-
-上周当着共和党全国委员会的面，马丁呼吁参议院多数党领袖米奇·麦康奈尔（Mitch McConnell）和众议院少数党领袖凯文·麦卡锡（Kevin McCarthy），要他们更加坚定地表达对川普总统的支持。周三，他在福克斯新闻频道（Fox News）华盛顿办公室门前举行了一次类似的呼吁，要求媒体网络在报道选举时能够更多支持川普总统。马丁告诉《华盛顿观察家报》，他将在周六的集会中继续宣扬他的主张。
-
-**评**：主流媒体现在对川普总统的报道呈现一面倒的不支持态度，真实的声音只能通过有限的渠道传到民众的耳朵。正如川普总统推特中说的：“从何时开始，下一任总统由蹩脚媒体（Lamestream Media）来宣布？” 共和党必须借助支持川普总统的选民们来发声，让全美国看到支持川普总统的民众们的力量。众多美国主流媒体对支持川普的力量一直视而不见，挺川民众只有通过不屈不挠的抗争，跟随总统，永不妥协，用实际行动将自己的声音传播出去！我们爆料革命更要利用GTV, Gnews的独立媒体力量，加入到挺川大军中，为正义的斗争添砖加瓦！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12150412/unnamed-file-3.png)
+目前川普总统连续扳回北卡，内华达州，已达232票，距离总统赢出大选270票至少还需38张选票！
 
-[原文报道](https://www.washingtonexaminer.com/news/trump-supporters-and-detractors-set-to-clash-in-a-series-of-weekend-demonstrations)
+目前为止，川普竞选团队已经至少在密歇根州、佐治亚州、内华达州，宾夕法尼亚州，亚利桑那州，威斯康星州提起了许多诉讼。以下是这些摇摆州选举人票清单：
 
-翻译者署名：Tracy
-校对：沙拉猫
+PA：宾夕法尼亚州20票
+
+GA：乔治亚州16票
+
+MI：密西根州16票
+
+WI：威斯康辛州10票
+
+NV：内华达州（已扳回）6票
+
+AZ：亚利桑那州11票
+
+接下来，川普总统要赢得大选，我们可按照下面13种组合的任何一种核算，川普将会获胜连任。也就是说，如果川普总统大选需要获胜，至少需要获得以下3个州以上的大翻盘。而其中宾州将是8大组合里面的必选州！
+
+而最漂亮的组合当然是赢下PA州20票、GA州16票、MI州16票，即可达到284张绝对胜出组合！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12150427/unnamed-file-4.png)
+截止11日，最新报道显示以上摇摆州选票舞弊状况令人发指，川普团队至少已经获得上万选民对舞弊事实的作证指控！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12150438/unnamed-file-5.png)
+宾州严重违规竞选法，黑箱操作，有视频证据宾州诉讼请求是违宪选举处理邮局选票日期不限时！
+
+乔治亚重新点票开始，已经清理了一万多票，只要这次共和党竞选团队执行监票得力，肯定翻红！
+
+威斯康辛及密西根两州结果接近，按法律本可重新计票，还有非常多的选票舞弊诉讼已经提交，赢回一州就胜出！
+
+而仅仅在内华达州，就有20多万人邮寄选票记错地址！川普说：法律诉讼才刚刚开始！一位吹哨人站出来！指控内华达州的民意调查员捏造居住数据！
+
+亚利桑那州；媒体提前慌报结果，造假信息，干涉选举！
+
+密歇根州仅一个县工作人员发现计票软件出了问题，于是手工重计。结果发现六千多张投给川普的票一输入就成拜登的了。密歇根有47个投票站使用了这个软件！
+
+11月11日，网媒报道Dominion计票软件公司员工爆料：公司操纵选票达3800万张！川普总统12日上午发推证实确有其事！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12150600/unnamed-file-7.png)
+“报告：“dominion”在全国范围内删除了270万张川普选票！数据分析发现221,000宾夕法尼亚州投票从川普选票转变为拜登。已删除941,000张川普选票投票。使用此软件投票系统的州将435,000票的投票权从川普转换为拜登！”
+
+按照目前已经查明“dominion”软件的大范围造假事实！司法部部长巴尔已经下令各检察长必须严惩选举舞弊，海量人证物证正在接受司法鉴定！拜登团伙再想耍赖显然已经无力回天！川普总统胜出铁板钉钉！
+
+审核：悟空
+
+最新大选资讯链接：
+
+[https://wordpress.org/support/article/embeds/](https://wordpress.org/support/article/embeds/)
+
+
+
+> [【热点播报】核爆重磅！投票软件公司三名爆料人挺身作证：他们的软件“dominion”更改了3800万票——拜登偷窃了选举！](https://gnews.org/zh-hans/549908/)
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，纽约时间周日至周四晚上9:00，美国志愿者在纽约香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
+
+
 
 
 

@@ -1,33 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 谈一谈2020年美国大选期间发生的怪事
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/552322/)
+## 美国之殇
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/551547/)
 
-*多伦多加喜农场 红叶
-校对 文锦 上传 WJ*
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12173651/114788990_polltracker_index_promo976_v2.png)图片来源：BBC
-看完2020年大选, 你是否会有好多的问题？也许之前会有人说你是一个阴谋论者， 可是这次你不必是个疯子就能提出好几百个问题。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24064746/WhatsApp-Image-2020-10-24-at-15.08.49.jpeg)
+作者：康州农场-GTalk心语堂
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12194934/image2-9.jpeg)
+在美国历史上，从未有过一次总统选举与一个东方古国有着如此息息相关的联系，更没有过一个国家领导人的产生会牵动全世界的神经。 川普与拜登，他们之间竞争的意义早已超出了对总统之位的争夺，实际上，他们之间的战争是人类文明史上，又一次正义与邪恶，文明与野蛮的较量，而他们个人也成为了这场较量中的两个历史符号。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12110935/image3-5.jpeg)
+骄傲的美国人从未意识到，世界第一强国已经在不知不觉中被中共侵蚀，这其中最严重的是对其思想和价值观的侵蚀。人类文明从来不是线性前进的，在欧洲，古希腊灿烂的文明之后，有蒙昧（妹 ）千年的中世纪，而古老的东方古国也没有继承先秦光芒万丈的思想家园，而是进入了两千年的王朝更替。人类津津乐道，并为之骄傲的“思想”，其实是如此脆弱。人类用了几千年的时间忙于权谋，厮杀和党争，至今未休。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12110950/image4-5.png)
+现在，这场争斗仍在持续，庙堂之上刀光剑影。沉睡多年的美国人仿佛一夜之间看到了所有的丑恶：舞弊，腐败，通共，卖国，不一而足。然而，这一切还不足以使美国丧失国本，美国的国之根本就是权利在民，就是政府是基于被管理者同意而设立的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12111001/image5-3.jpeg)
+然而，在这次大选中，我们看到丑闻缠身，犯罪证据确凿的拜登仍然获得了相当数量的选票，这是一个极其危险的信号。这预示着一部分人已经丧失人类本应拥有的基本判断力，这种基本判断力的丧失意味着非理性行为的开始，意味着公民权利滥用的开始。
 
-暂且不说从社交媒体上看到的民主党选民舞弊的惯常技俩，如非法收票、让非法移民和死人投票、以及让迁出本州的人填写选票等等，大选11月3号当晚发生的一些怪异的事情，是左派新闻媒体无法推脱的。
+面对拜登家族及其党派的种种犯罪嫌疑，我们听到了一种异常统一的声音，那就是：这是政治构陷，没有司法认定。这种论断说明：法律已经被政治侵蚀，政治正在干预司法；另外，本应远远高于法律标准的道德准绳和对正义的持守，已经沦落到需要用法律来勉强维持。法律变成了最后一块遮羞布。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12111010/image6-3.jpeg)
+面对美国民众的分裂，我们不仅看到了价值观的对立，政客的卑鄙，以及中共的黑手，更看到了人性之中那朵被催生的恶之花正在悄然生长。这朵恶之花使得拜登的造假已经到了几乎公开的程度，因为他知道，被他操控的媒体会为他掩盖，中共也会给他输血，而最重要的，就是那些不明真相的民众的选票会为他背书。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12111020/image7-2.jpeg)
+美国第二任总统约翰亚当斯说过:“我们的政府不具备能力去应付不受伦理和宗教约束的人类情感，我们的宪法只为有道德和宗教信仰的人制定，远远不足以管理其他民族，此宪法只适合于有道德和信仰的人民.”
 
-大选中关键的两个州俄亥俄州和佛罗里达州是决定选举人最终得胜的州。 自1904年以来候选人谁赢得了俄亥俄州，谁就赢得了总统选举。 美国历史上只有两次例外—-今年就是一个例外。
+美国的先贤们为后世打造了一个坚实的以道德信仰为基石的国家体制，迄今两百四十余年， 国势强盛，并为世界文明做出了卓越的贡献。然而，美国现在已经退守到需要依靠法律的手段来维护总统选举了​，这是否意味着现代文明世界的秩序不足以抗衡邪恶与野蛮势力的入侵? 如同古代的蛮族对文明世界的征服，比如宋朝亡于蒙古。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12111026/image8-1.jpeg)
+诞生于十八世纪启蒙运动的光辉思想，历经三百余年传承至今，仍然像一束微弱的烛光，
 
-另外，没有一个共和党总统候选人在没有赢得佛罗里达州的情况下赢得了选举， 而历史上只有两次民主党人在没有赢得佛罗里达州的情况下赢得了选举。川普赢得了这两个关键州的选票。 但是左派媒体告诉我们他输给了拜登？你相信吗？
-
-川普不仅赢得了这两个关键州，而且在纽约等纯蓝州也就是民主党州也获得了多数支持。大选当晚左派媒体显示川普赢得了密歇根州 、宾夕法尼亚州、 威斯康星州和佐治亚州。可是第二天早上这些州就又变成了蓝色，一夜之间在点票结束后川普的选票数量从高于拜登就变成了少于拜登。 这些选票从哪里出来的呢？
-
-左派新闻媒体一直预测的所谓 “蓝潮”，就是参众两院会被民主党所把持。那么就是说共和党人在其他州地表现的不尽人意吗？事实告诉我们共和党人至今守住了参议院的席位并且在众议院的席位也有所提升。
-
-如果民主党人没有操纵选举让拜登胜出， 那么拜登在表现优异的几个关键州，国会投票候选人本应顺理成章当选， 可是为什么没有呢？ 难道是在组织选民舞弊关键几个州里共和党人的表现并不好吗？ 还是因为像媒体报道的那样， 这些关键州的45万张选票都是只投给拜登的，根本没有一张投给对方的选票？民主党人将如何应对那些关键州的45万张选票只投给拜登，而选票上没有其他人的选项？
-
-并不是说100%不可能会发生在选票上只标明了拜登，但从那些州以往的规律来看从来没有出现过有那么多选票只标明了头号候选人，而没有其他候选人的选项。 这是不可能的，但的的确确发生在这次选举中。难道是巧合吗？违背规律的蹊跷让人产生诸多疑问。
-
-评论：2020美国大选让我们看的目瞪口呆，这是发生在一个健全的民主国家吗？选举舞弊是对每一个选民权益的亵渎。相信美国的法律会给每个选民一个公正交代，这不是哪位选举人胜出的问题，而是世界自由民主灯塔的法治被践踏的严重问题。
-
-
-
-参考链接：
-[Odd Things That Happened During 2020 Election That Need Explanations](https://djhjmedia.com/rich/odd-things-that-happened-during-2020-election-that-need-explanations/)
+仍然需要人类用良知，正义和勇气，甚至鲜血去维护。
+Source from:GTalk
+Pictures from:
+https://onefocusmedical.com/wp-content/uploads/sad.jpg 
+https://www.ctwant.com/article/75916 
+https://sinoinsider.com/wp-content/uploads/2018/09/How-the-CCP-Can-Interfere-in-US-Elections.jpg 
+https://imageproxy.themaven.net//https%3A%2F%2Fwww.history.com%2F.image%2FMTY1MTc1MTk3ODI0MDAxNjA5%2Ftopic-statue-of-liberty-gettyimages-960610006-promo.jpg 
+https://www.usnews.com/news/politics/articles/2019-02-21/poll-most-americans-think-country-is-divided-have-unfavorable-view-of-trump 
+https://www.nytimes.com/article/what-antifa-trump.html 
+https://cdn.hswstatic.com/gif/john-adams.jpg 
+https://www.forbes.com/sites/davechase/2014/10/21/health-cares-age-of-enlightenment/?sh=49a26832add1
 
 0
