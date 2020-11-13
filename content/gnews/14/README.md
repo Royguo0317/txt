@@ -1,39 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发：川普总统宣布国家进入紧急状态
-` GM107` [轉載自GNews](https://gnews.org/zh-hans/553086/)
+## 立即解雇他！马克-米利（Mark Milley）将军威胁川普总统： &#8220;我们不向国王或皇后、暴君或独裁者宣誓&#8221;
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/553246/)
 
-美东时间11月12日，美国总统川普宣布进入国家紧急状态，并援引「国际紧急经济权力法」（International Emergency Economic Powers Act，IEEPA）、「国家紧急法」（National Emergencies Act）与 301 条款发布行政命令，禁止美国人投资与中国解放军有关的企业，以应对中共对美国威胁：
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12224149/30020836983_a0a9495ef2_k-e1560916645721.jpg)
-根据《宪法》和美利坚合众国法律赋予我的权力，包括《国际紧急经济权力法》（《美国法典》第50篇第1701条及以后各条）、《国家紧急状态法》（《美国法典》第50篇第1601条及以后各条）和《美国法典》第3篇第301条。
+翻译: 康州农场 – 烟波浩淼
 
-我，美利坚合众国总统唐纳德-J-川普，发现中华人民共和国(中国)正越来越多地利用美国资本，为其军事、情报和其他安全机构的发展和现代化提供资源和便利，这继续使中国能够直接威胁美国本土和海外美军，包括**开发和部署大规模毁灭性武器、先进的常规武器以及针对美国及其人民的恶意网络行动**。
+校对: 康州农场 – Mike Li
 
-中国军事、情报和其他安全机构发展的关键是中国庞大的、表面上的私营经济。 通过 “军民融合 “的国家战略，中国通过迫使中国的民用公司支持其军事和情报活动，扩大了国家军工综合体的规模。 **这些公司虽然表面上仍是私营和民用企业，但却直接支持中国的军事、情报和安全机构，并帮助其发展和现代化。**
+审核：康州农场-Truemanman
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13000954/https___cdn.cnn_.com_cnnnext_dam_assets_201006130844-gen-mark-milley-file.jpg)
+川普总统周一上午解雇了国防部长马克-埃斯珀（Mark Esper ）。
 
-同时，这些公司通过向在国内外公开交易所交易的美国投资者出售证券来筹集资金，游说美国指数提供商和基金将这些证券纳入市场发行，并从事其他行为以确保获得美国资本。 通过这种方式，中国利用美国投资者为其军事发展和现代化提供资金。
+由担任国家反恐中心主任的克里斯托弗-米勒（Christopher Miller）取代了埃斯珀。
 
-因此，我进一步发现，中国的军工联合体通过直接支持中国的军事、情报和其他安全机构的努力，对美国的国家安全、外交政策和经济构成了不寻常的、非同寻常的威胁，而这种威胁在很大程度上来自美国境外。 **为了保护美国的国土和美国人民，我在此宣布就这一威胁进入国家紧急状态。**
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12224300/11-15.png)
-在川普总统签署的行政令中，主要禁止内容如下：
+紧接着，周二川普总统又任命卡什-帕特尔（Kash Patel）担任克里斯托弗-米勒的参谋长。
 
-1、自2021年1月11日东部标准时间上午9时30分起，任何美国人不得进行任何中共军事公司的公开交易证券，或任何衍生证券，或旨在为此类证券提供投资风险的证券的交易；以及确定某人为中共军工公司后60天开始，任何美国人对该人的公开交易证券，或任何衍生证券，或旨在为该证券提供投资风险的证券进行任何交易。
+卡什-帕特尔是国家安全委员会的助手，他是协助众议院情报委员会最高级别成员德文-努内斯（Devin Nunes）的关键人物。
 
-2、为了从中共军事公司的证券中全部或部分剥离，允许在2021年11月11日11:59分或之前进行价值购买或出售。
 
-3、被确定为中共军事公司的人，允许在自该确定之日起365天或之前进行价值购买或销售，仅仅是为了剥离任何美国人在自该确定之日起60天内持有的该人的全部或部分证券。
 
-4、禁止美国人或在美国境内进行任何逃避或避免、以逃避或避免为目的、导致违反或企图违反本命令规定的禁令的交易。
+> .[@ckubeNBC](https://twitter.com/ckubeNBC?ref_src=twsrc%5Etfw) reports that Trump loyalists Kash Patel, Ezra Cohen-Watnick and Anthony Tata are taking on top posts at the Pentagon today
+> — Allan Smith (@akarl\_smith) [November 10, 2020](https://twitter.com/akarl_smith/status/1326290578372501507?ref_src=twsrc%5Etfw)
 
-5、禁止为违反本命令规定的任何禁令而形成的任何阴谋。
 
-6、授权财政部长在与国务卿、国防部长、国家情报局局长以及财政部长认为适当的其他行政部门和机构的负责人协商后，采取包括颁布规则和条例在内的行动，并行使IEEPA授予总统的一切权力，以实现本命令的目的。 财政部长可在符合适用法律的情况下，将这些职能转交给财政部。 所有机构应在其权限范围内采取一切适当措施，以执行本命令的规定。
 
-7、在根据本命令颁发任何许可证之前，财政部长应与国务卿、国防部长和国家情报局局长协商。
+这些最新的举动让华盛顿特区沼泽地陷入了恐慌!
 
-新闻来源：美国白宫网站
-原文链接：[https://www.whitehouse.gov/presidential-actions/executive-order-addressing-threat-securities-investments-finance-communist-chinese-military-companies/](https://www.whitehouse.gov/presidential-actions/executive-order-addressing-threat-securities-investments-finance-communist-chinese-military-companies/)
-相关新闻：[川普总统签署行政令:禁止美国人投资与中国解放军有关的企业](https://gnews.org/zh-hans/552401/)
+另一位反川普总统的将军、参谋长联席会议主席马克-米利（Mark Milley）将军在周三的一次演讲中向川普总统发出警告。
+
+源引CNN报道
+
+这位美国最高将军马克·米利，在国防部的全面变革中明确表示了对宪法的奉献。 “我们不对国王或王后，暴君或独裁者宣誓。我们不对个人宣誓…我们对宪法宣誓”
+
+米尔利在美军博物馆开幕式上的讲话中说： “与世界上其他军队相比我们是独一无二的。我们不向国王或女王、暴君或独裁者宣誓。我们不向个人宣誓。不，我们不向一个国家、一个部落或宗教宣誓。我们向宪法宣誓， 这所博物馆里所代表的每一位士兵，每一位水兵、空军、海军陆战队、海岸警卫队队员，每一个人都会不计个人得失地保护和捍卫宪法。”。
+
+
+
+> The top US General, Mark Milley made clear his dedication to the constitution amid sweeping changes at DoD. "We do not take an oath to a king or a queen, a tyrant or a dictator. We do not take an oath to an individual…We take an oath to the Constitution" [https://t.co/ZKAI0pVB7O](https://t.co/ZKAI0pVB7O)
+> — CNN NationalSecurity (@NatSecCNN) [November 12, 2020](https://twitter.com/NatSecCNN/status/1326953583615545347?ref_src=twsrc%5Etfw)
+
+
+
+编者评论：川普总统从解雇国防部长埃斯珀起，开启了在五角大楼的新变革，肯定使高级国防官员们感到震惊，他们似乎也开始选边站。在总统选举民主党严重违宪试图破坏公平竞选盗取总统选举，且海量证据已被呈堂供证的时候，米利将军不在这个时刻维护宪法公正，站在正义一边，相反却在五角大楼高级文职领导层大调整后的首次公开讲话中，发出对川普总统的威胁，这很难让人不把这个事件跟华盛顿的沼泽联系在一起，米利将军将何去何从，我们拭目以待。
+
+原文链接：
+
+[https://www.thegatewaypundit.com/2020/11/fire-now-rogue-general-mark-milley-threatens-president-not-take-oath-king-queen-tyrant-dictator/](https://www.thegatewaypundit.com/2020/11/fire-now-rogue-general-mark-milley-threatens-president-not-take-oath-king-queen-tyrant-dictator/)
 
 0

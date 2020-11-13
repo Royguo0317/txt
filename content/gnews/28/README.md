@@ -1,38 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅！总统大选系列（十三）：奥斯卡金像奖得主乔恩·沃伊特称总统选举是正义与撒旦的战斗
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/552763/)
+## 【热点播报】选举舞弊众谜之一：投票机如何变成偷票机？
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/552882/)
 
-视频字幕：文府；听写/翻译：势不可挡；翻译校正：TCC；配乐：500 Miles
-简评：势不可挡；文字整理/编辑：Julia Win ；Page：拱卒
+作者：纽约香草山商业部  Nanfeng99
 
-**简评：**
-
-乔恩·沃伊特（Jon Voight）曾获得一项奥斯卡金像奖，并获得了4项提名。他还获得了4项金球奖，并获得了11项提名。他是女演员安吉丽娜·朱莉和演员詹姆斯·黑文的父亲。近日，沃伊特公开表示对“拜登当选”这个谎言感到厌恶，那些为喜悦而跳出的人正朝着将要到来的恐惧跳去，左派给美国人民的承诺将永远不会实现。他还表示，这次美国大选是自南北战争以来的最大战役，这是正义对撒旦的终极之战。他明确指出这次选票计数就像左派一样腐败。最后，他引用拳王穆罕默德·阿里（Muhammad Ali）的名言，“直到你击出最后一拳才算结束”，以呼吁为川普的胜利而战。沃伊特作为影视明星站出来为正义发声，表明了好莱坞正义人士的觉醒。
-
-**奥斯卡金像奖和全球奖获得者Jon Voight的讲话**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
 
 
 
-我的同胞们，我带着所有这些感受站在这里：我对＂拜登当选＂这个谎言感到厌恶，好像我们都不知道背后的真相。当一个人试图欺骗时，我们知道他无法摆脱这个谎言，会付出代价的。
 
-现在，那些为喜悦而跳出的人正朝着将要到来的恐惧跳去，因为我知道，左派给美国人民所做出的承诺将永远不会实现。
 
-我的各个种族和宗教信仰的朋友：这是自南北战争以来的最大战役，这是正义对撒旦的战斗，
+#  
 
-是的，撒旦。因为这些左派是邪恶的，腐败的，他们想推翻这个国家。
+##### 
 
-我们绝不允许这样，我们必须与已经发生的腐败战争，并为似乎已经丧失的正义而战。
+# 
 
-让我们信任上帝，现在就为川普的胜利而战，因为我们都知道这次选票计数就像左派一样腐败。因此，我们不要退缩，让我们为这场战斗而战，当作这是我们在地球上的最后一搏。就像穆罕默德·阿里所说的那样，直到你击出最后一拳才算结束。上帝保佑。
 
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+11月10号，Dr. Shiva Ayyadurai发了一则推文，推文含有一段长达1个多小时的视频，很快引起众人关注。当然，这则推文随即被推特标注。推文视频题目为“MIT PhD analysis of Michigan votes reveals unfortunate truth of U.S.voting
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12214130/unnamed-file-28.png)
+systems”，即麻省理工博士对密歇根州选票的分析揭露了美国选举系统的不幸真相。其中，Dr. Ayyadurai 介绍了他如何设计算法来对2020美国大选中密歇根州的数据进行分析模拟。他的结论是，投票机在偷票，即把川普的票偷偷算成拜登的票！而且偷票算法他也找到了！
 
-编辑：【喜马拉雅战鹰团】-点击spark adobe版
+Dr. Ayyadurai设计的算法对选举数据模拟得很好，但拟合曲线发现一个现象：越红的区，反川的比例越高！这个奇怪的结论只有一个合理的解释：这是算法操纵的数据！而这个算法很简单**：**（1）在蓝区，共和党选票本来就少，偷票容易露馅，所以不改动；（2）稍微泛红的地区，开始偷票，把川普的选票自动算成拜登选票；（3）越红的地区，偷票比例越高。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/BFGZ6TRI6edrB/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/BFGZ6TRI6edrB/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+Dr.
+
+
+|  |
+| --- |
+|  |  |
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12214624/unnamed-file-29.png)
+Ayyadurai的发现同时表明，从机器偷票角度来看，选票舞弊盯着民主党大城市来查的做法可能是不对的。因为机器偷票是越红的选区越严重，所以共和党传统红区更要查。深蓝大城市则要盯紧人工偷票等问题，因为这些地方有可能机器偷票都没有启动。
+
+#  
+
+###### Dr. Ayyadurai算法的详细解读请见网名“千里走单骑”的网文“投票机变成偷票机，MIT博士图解选举舞弊”（ [https://callvoter.com/dr-shiva-dominion-votes-stealing-michigan-election-fraud/](https://callvoter.com/dr-shiva-dominion-votes-stealing-michigan-election-fraud/)）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12215153/unnamed-file-31.png)更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，纽约时间周日至周四晚上9:00，美国志愿者在纽约香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和
+ [chat-room](https://discord.gg/NVAqpNj)与您相约！
+ 
+ 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
+
+
+
+
 
 0
