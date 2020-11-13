@@ -1,49 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵说｜系列图片连载（四十四）
-` GM98` [轉載自GNews](https://gnews.org/zh-hans/553726/)
+## 川普总统在连任后首度颁布行政命命制裁中共,禁止美国投资军企一共有31加入列
+` GM06` [轉載自GNews](https://gnews.org/zh-hans/554042/)
 
-## 302.
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13023902/F3F66EAD-ADD2-4062-B299-820F24BF25CC.jpeg)
-只要是信仰和理想和追求实现成功，财富那是必然的。
+作者：gm40
 
-——郭文贵先生2020年4月22日
+美国总统川普12日颁布行政命令，将禁止美国投资者再将资金挹注至中国军方拥有或控制共31家企业，为美国大选后白宫对中关系加压最新行动。
 
-## 303.
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13024000/79D3EEA2-6767-4673-B081-C8BFE5DAAEAB.jpeg)
-我们一定会赢。这是上天的旨意，上天在公平的分配着一切，包括正义。
+美方此次动作，将使美国投资公司、养老基金等机构，不能再购入中企股票或进行证券交易，将危及中国电信、中国移动、监控设备制造商海康威视，也包含中国航空、船舶与核工业，以及华为技术等31家企业。
 
-——郭文贵先生2018年08月24日
+这些企业先前便已被美国国防部与财政部盯上、认定其受中国军方支持的「中国军事企业」，当前投资者也得在2021年11月全数撤出资金，同时禁止国人再买卖这些企业证券。川普表示，中国正利用美国资金协助国内军事、情报与安全机构朝现代化发展，表示这些遭制裁企业以私有、民营乔装，实则获中国当局军事支持，企图扩大军工综合体规模。
 
-## 304.
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13024000/29ECE30D-879B-4D14-AD3C-3BC99EF7CD61.jpeg)
-只做唯一，不当第一！
+对于中方企图开发部属大规模杀伤力、先进常规武器，以及对美实施恶意网路攻击，皆严重威胁美国国安、外交经济与海外美军，便提出制裁。
 
-——郭文贵先生2020年4月22日
+而此项政策基于「国际紧急经济权力法」（IEEPA）、「国家紧急法」（National Emergencies Act）与301条款颁布，将于2021年1月11日，上午9时30分起正式生效。
 
-## 305.
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13024008/779891F5-C80F-4BB1-989E-F70D0C0F8977.jpeg)
-被共产党洗脑就是讲概念，所有人总是说话有个习惯——“我”！
 
-——郭文贵先生2020年04月22日
 
-## 306.
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13024021/DC4BA562-0291-4F3C-BFE0-DA5473461258.jpeg)
-G – TV平台、G – News平台，它永远属于爆料革命的孩子。我就是要把它创造成一个中国之外和世界上全中国人和全世界可相信的，捍卫中国人尊严，捍卫中国人安全，捍卫中国人信仰和法治的一个核心的第三方力量。
+来源：https://today.line.me/tw/v2/article/qK7m2D?utm\_source=copyshare
 
-——郭文贵先生2020年4月22日
-
-## 307.
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13024032/BD70126E-9DEF-40D6-9C19-FD8E40F80CAD.jpeg)
-G – TV、G – News必须去中心化。
-
-——郭文贵先生2020年4月22日
-
-## 308.
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13024042/48CBF46A-7C2D-47F0-8B06-2C7421F450C5.jpeg)
-中国过去这些年，从来没有一个为国家、为民族、为尊严、为法治、为自由诞生过一个群体，只有我们爆料革命。
-
-——郭文贵先生2020年4月22日
-
-0
+1+
