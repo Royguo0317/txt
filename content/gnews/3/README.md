@@ -1,72 +1,99 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家重磅深挖：收购计票公司Dominion的私募基金Staple Street Capital 牵扯出巨大的政治背景
-` 恩典农场` [轉載自GNews](https://gnews.org/zh-hans/552604/)
+## 川普总统预计赢得311张选举人票
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/552816/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11011851/%E6%81%A9%E5%85%B8Gnews-logo.jpg)
-作者：α-Vega
+作者：Giselle/翼族
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12205609/2-92.png)[图片来源](https://www.realclearpolitics.com/elections/live_results/2020/president/)
+在密歇根州、内华达州、威斯康星州存在法律诉讼的情况下，美国主流媒体、网站，不顾基本事实，把这些州的选举人票，一厢情愿地投给了拜登，造成一个拜登遥遥领先的假象，为民主党大规模选票造假打掩护。
 
-11月4日大选日过后的凌晨，密歇根州的安特里姆县，原本是投给共和党人的6,000张选票，因为软件的错误计算，票数都转移给民主党。出错的设备是由计票公司Dominion Voting Systems提供。而密歇根州还有47个县也使用了该公司的软件，占密歇根州83个县的一半以上。
+根据美国政治数据聚合网站Realclearpolitics11月12日早上最新数据，川普总统得到选举人票217，拜登259。这个网站同样把未确定的密歇根州（16）、内华达州（6）、威斯康星州（10），一共32张选举人票，计入了拜登名下。如果去掉这32张选票，拜登目前的得票总数是227。
 
-不仅在密西根州，Dominion Voting Systems 已在美国28个州的1300多个司法管辖区使用，占美国选举计票的40%。同时Dominion也是加拿大最大的选举系统提供商。
+目前最新的数据显示，川普已拿下阿拉斯加州的3张选举人票，加上北卡罗来纳州15张，实际票数是232；而川普团队已经要求威斯康辛州（10），和乔治亚州（16）重新计票，并在宾州（20）、密西根州（16）、亚历桑那州（11）提起法律诉讼，加上内华达州（6），至少还有79票悬而未决。
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12192300/1-54.png)
+那么，在这7个悬而未决的州里，川普还能拿到多少张选票？
 
-图片来源Dominion官网：其中灰色部分为使用的州，蓝色圈为重点使用的州
+1.乔治亚州：宣布手动验票
 
-2018年，Dominion宣布已被其管理团队和Staple Street Capital收购。Staple Street Capital是一家美国的私募股权投资公司。其执行董事威廉·肯纳德（William E. Kennard）1997年被比尔·克林顿任命为联邦通信委员会主席。2009年由前总统奥巴马任命为驻欧盟大使，他还是前国务卿约翰·克里（John Kerry）的外交政策顾问委员会成员。
+美国时间11日，乔治亚州州务卿拉芬斯伯格（Brad Raffensperger）宣布，由于现任总统川普与民主党候选人拜登，两人得票总数差距过小，将手动重新计算总统大选的所有选票。乔治亚州是大选的关键摇摆州，握有16张选举人票。这也是本次选举中第一个主动要求重新计票的州。
 
-目前Staple Street Capital官网已改版，删除了团队介绍，以下是笔者之前留的截图。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12193236/2-36.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12192528/3-32.jpg)
-肯纳德目前是AT＆T，杜克能源，福特汽车和大都会人寿公司的董事会成员。他此前曾在纽约时报董事会、Sprint Nextel公司以及凯雷投资集团（Carlyle Group）旗下多家公司的董事会任职。值得一提的是，AT＆T是华纳传媒的母公司，华纳传媒旗下是CNN。
+本次大选中，拜登在乔治亚州略微领先，仅超出逾1.4万张选票，大约0.3个百分点。乔治亚州是南方的一个州，自1992年以来，民主党从未在该州获胜。
 
-在被任命为美国驻欧盟大使之前，肯纳德曾担任凯雷投资集团（Carlyle Group）的董事总经理，负责投资和传播媒体领域。而Staple Street Capital的两位联合创始人，Stephen D. Owens和Hootan Yaghoobzadeh也曾在凯雷集团就职。
+11月4日，川普竞选团队宣布，乔治亚州的计票存在问题。一名共和党观察员看到一名投票站工作人员，从后面的房间里将未处理的邮寄选票，混入已处理过、准备制表的邮寄选票中。目前川普竞选团队已在该州提起诉讼，要求暂停清点选票。
 
-Stephen D. Owens曾是凯雷集团（Carlyle Group）的董事总经理，是该公司的全球通信和媒体集团的高级成员，并执行和监督了在商业服务和运输领域的投资。Hootan Yaghoobzadeh在凯雷担任收购工作，负责通信和媒体，航空航天与国防，商业服务以及工业领域的杠杆收购交易。
+综合以上因素，川普拿下乔治亚州的概率相当大。
 
-令人震惊的是凯雷集团（Carlyle Group）强大政府的背景。以下内容摘自wikipedia、wikispook、wikicorporates的介绍。
+2.密歇根州：大量造假证据被掌握
 
-凯雷投资集团是一家美国跨国私募股权，另类资产管理和金融服务公司。管理着超过2030亿美元的资产，涵盖126个基金和139个基金工具。凯雷成立于1987年，根据PEI 300指数的数据，凯雷是前五年全球募集资金最多的私募股权公司，尽管到2020年，它已滑落至第二位。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12192555/4-31.png)
-据报道，2003年4月，凯雷投资集团由美国前政府人员组成的团队管理，其中包括其总统弗兰克·卡鲁奇（Frank Carlucci），他曾担任中央情报局副局长，之后成为国防部长。他的副手是詹姆斯•贝克三世（James Baker III），他是乔治•布什（George Bush）任职期间的美国国务卿。沙特本拉登公司（SBC）的金融资产也由凯雷投资集团管理。2001年10月，即9月11日袭击发生后，本·拉登（Bin Laden）家族清算了其在凯雷集团基金中的股份，当时他们的姓氏与凯雷集团（Carlyle Group）的名字联系起来是不礼貌的。
+由于密歇根州拥有16张选举人票，民主党在该州的造假行为已经到了疯狂的地步，导致大量的造假证据落到了川普竞选团队的手里。
 
-许多有影响力的人物都为该集团工作或投资，包括前英国首相约翰·梅杰（John Major）；菲德尔·拉莫斯（Fidel Ramos），菲律宾前总统；韩国前首相朴泰俊; 沙特王子阿尔瓦利德；前国务卿柯林鲍威尔; 前国务卿詹姆斯•贝克三世; 前国防部长卡斯珀温伯格（Caspar Weinberger） ; 理查德·达尔曼（Richard Darman），前白宫预算主任；亿万富翁乔治·索罗斯（George Soros） 和本·拉登的一些家庭成员。您可以加上前国务卿玛德琳•奥尔布赖特的女儿爱丽丝•奥尔布赖特; SEC前负责人Arthur Lewitt；FCC前负责人William Kennard进入了这份名单。最后，加上欧洲人：前德国央行行长Karl OttoPöhl；航空航天公司前总裁亨利玛特; 和彼尔德伯格俱乐部指导委员会成员艾蒂安达维南。
+11月4日，川普发布推特称，密州突然新增的12.8万多张选票，全部投给了拜登，这不符合统计学概率。11月10日，美籍印度裔科学家、马赛诸塞州参议员候选人Shiva博士，在他的个人YouTube频道直播了他对美国大选数据分析过程。
 
-凯雷善于国防工业领域的投资，例如军事电子系统、飞机制造等，其中最著名的是在1997年10月收购了美国联合国防工业公司（United Defense Industries）。凯雷集团被指在铁三角市场中占有一席之地，铁三角市场即军事-工业-国会综合体，其变化还有军事-工业-媒体综合体、军事-工业-情报综合体等。
+Shiva博士和他的团队采用[密西根州](https://www.epochtimes.com/gb/tag/%2525E5%2525AF%252586%2525E8%2525A5%2525BF%2525E6%2525A0%2525B9%2525E5%2525B7%25259E.html)的[选票](https://www.epochtimes.com/gb/tag/%2525E9%252580%252589%2525E7%2525A5%2525A8.html)结果作为数据来源。密西根州有八十多个县，Shiva博士的团队分析了四个最大的县，其中Oakland、Macomb、Kent这三个县的选票结果呈现出非正常的散点分布，有明显的[软件](https://www.epochtimes.com/gb/tag/%2525E8%2525BD%2525AF%2525E4%2525BB%2525B6.html)修改痕迹。并且对共和党支持率越高的选区，被软件篡改的比例越高。
 
-其中一条关于中国的投资，在2011年，凯雷集团-凯雷亚洲成长伙伴IV和云峰资本获得了GDC科技有限公司约80％的股份。云峰资本成立于2010年4月，由阿里巴巴董事长马云（云）和Target Media创办人俞国峰先生（冯）的名字命名。
+Shiva博士团队的分析结果表明，至少6.9万支持川普的选票被Dominion软件修改成支持拜登，即川普的选票被削减6.9万，同时拜登的选票被软件额外增加6.9万。这相当于川普原有的领先票数（margin）被软件砍掉了13.8万票。
 
-凯雷集团收购的公司还包括Dex Media、尼尔森公司、福特汽车等，凯雷公司的投资历史请参考wikipedia和官网信息。
+此外，密州还出现了大量的死人票、幽灵票。由于民主党造假证据确凿，如果官司打下去，拜登的这16张选票毫无疑问要吐出来还给川普。
 
-凯雷成立后的25年间，一直是由投资伙伴控制的私人合伙企业。加利福尼亚公共雇员退休系统（CalPERS）自1996年以来一直是凯雷管理基金的投资者，2001年，该公司以1.75亿美元的价格收购了凯雷管理公司5.5％的股份。
+3.内华达州：60万选票无效
 
-2007年9月，Mubadala发展公司是政府投资车辆公司，属于阿联酋阿布扎比，以$ 13.5亿美元购买了7.5％的股份。
+11月8日下午，川普竞选团队在内华达州克拉克县拉斯维加斯竞选总部前宣布，民主党选举舞弊调查一事有了最新进展。他们发现该州有六十多万邮寄选票的选民签名没有得到有效确认，同时还存在死人投票、未成年人收到选票以及搬离该州已不符合投票资格的选民仍然投票等情况。
 
-2012年5月，凯雷（Carlyle）完成了公司的首次公开募股，股票代码CG在纳斯达克上市。该公司当时管理着约1,470亿美元的资产，通过此次发行筹集了6.71亿美元。
+前内华达州大法官亚当·拉斯卡特（Adam Laxalt）在接受福克斯新闻台主持人香农·布雷姆（Shannon Bream）采访时说，“我们已经就此与人工智能和计算机视觉专家进行了沟通，他们告诉我们，注册人将签名验证标准降低到了40%。控制读取签名机器的人把设置调低，以便更容易接受选票上的签名。”主持人问大法官：“这是你的指控吗？”亚当大法官回答：“这不是指控，而是事实。已经在公开的法庭被接受。”
 
-2017年6月，凯雷（Carlyle）在2014年以来首次商业开发公司IPO中将其未交易的BDC TCG BDC，Inc.公开上市。
+亚当法官的这翻言论，证实了民主党在内华达州的作弊行为，川普在该州的赢面应该会很大。
 
-更多真相请查阅：
+4.亚利桑那州：差距在缩小
 
-GNews/G-TV /路德社
+亚利桑那州曾发生过投票给川普的选民签字无法被机器识别导致选票作废的新闻。根据最新非官方消息，在亚利桑那州，川普的票数已经逐渐追上了拜登，现在差距不到1%。根据亚利桑那州法，得票差距在0.1%以下，将自动重新计票。截至11月9日晚，川普获得163万张选票，拜登为164万张。双方差距为0.45%。
 
-资料来源：
+随着开票持续进行，拜登的领先优势慢慢减少。福克斯新闻在选举当晚称，亚利桑那州选情对拜登有利，但当时还有几十万张选票没有被计入。
 
-Carlyle Group维基
+川普的竞选团队预计会赢得该州，就像2016年的结果，拿下亚利桑那州11张选举人票。川普竞选团队上周向亚利桑那州的马里科帕县（Maricopa County）提起诉讼，指控投票站工作人员错误拒绝了选民投票。据了解，在选举日当天，到现场投票的部分选民，被机器错误地拒绝了投票资格。
 
-[https://wikispooks.com/wiki/Carlyle\\_Group](https://wikispooks.com/wiki/Carlyle\_Group)
+马里科帕县9日晚上报告了进一步的开票结果，显示拜登的领先优势缩小到14,476张。州政府官员估计，还有大约61,500张选票待统计。亚利桑那州州长道格·杜西（Doug Ducey）在声明中表示，“我们的期望是完成计票，我们在（选举）前就经历过演习，让投票变得容易，让作弊难以得逞，这虽然让我们选举耗费更多时间，但能确保它的公正性。”
 
-[https://www.wikicorporates.org/wiki/Carlyle\\_Group\\_Inc](https://www.wikicorporates.org/wiki/Carlyle\_Group\_Inc)
+亚利桑那州目前已完成98%的点票，川普暂时只落后11635票。由于计票系统的漏洞已被堵上，即使不用重新手工点票，川普翻转的可能性也非常大。
 
-[https://en.wikipedia.org/wiki/The\\_Carlyle\\_Group](https://en.wikipedia.org/wiki/The\_Carlyle\_Group)
+5.宾夕法尼亚州：蓝转灰
 
-Dominion Voting官网新闻
+11月9日，美国大选地图realclearpolitics的颜色悄悄发生了变化，宾州从蓝色又变成了灰色，这意味着宾州撤回了归在拜登名下的20张选票。
 
-[https://www.dominionvoting.com/dominion-voting-systems-acquired-by-its-management-team-and-staple-street-capital/](https://www.dominionvoting.com/dominion-voting-systems-acquired-by-its-management-team-and-staple-street-capital/)
+根据布拉特巴特网数据显示，在宾夕法尼亚州，选举日后的11月4日，川普总统曾经以数十万票的优势领先拜登。但是在11月5日，由​​于该州违反州法律继续计算选票，川普总统的领先减少到不足5万票。
 
-Staple Street Capital官网团队介绍
+此后，川普竞选团队提起了与选票有关的几项诉讼，质疑选票最后期限的有效性，并且由于共和党无法让该州至少25个县确认将选票放在安全和密封的容器中，而这些县已经违规进行了点票。共和党要求最高法院下达紧急命令停止计票。最高法院Alito大法官表示同意，并于6日签署了命令，要求将11月4日之后的选票单独放置以便检查。因此，最后川普总统赢得宾夕法尼亚州也是板上钉钉。
 
-[http://www.staplestreetcapital.com/Team/Board](http://www.staplestreetcapital.com/Team/Board)
+6.威斯康辛州：投票系统异常
 
-1+
+在引起巨大争议的威斯康辛州，目前两位候选人的票数差距只有20540票。
+
+然而奇怪的是，威斯康辛州众议员的选举，在该州的8个选区共和党赢得了5席，这说明支持共和党的选民明显多于民主党的选民。
+
+在福克斯新闻Sunday Morning节目中，Maria Bartiromo采访了弗林将军的律师席德尼·鲍威尔（Sidney Powell），在节目中Sidney谈到Dominion投票系统时说，有很大的可能有数十万张假选票，她说：“我们有证据表明，威斯康星州和密西根州的投票系统在三个不同的时期被注入了相同数量的（假）选票或票数。我认为，密西根州在两次不同的时间里注入了完全相同的选票，然后在密尔沃基发生了3次……有大量证据表明，有成千上万的选票将不得不被剔除，而这些选票都是拜登的。”
+
+Newsmax11月11日报道，即使是前民主党的战略师和白宫顾问的Dick Morris也表示，“在威斯康辛州有6个县的投票率超过了2008年和2016年的60%。而在其它的54个县，只有10%甚至更少，所以针对选票造假的指控，有可能是真的。”
+
+同时，根据一系列的报道，由于Dominion投票系统的问题，已经发现涉及本次选举中一些明显的差异。在密西根州的Antrim县，经过更正后的选举结果显示川普总统以2000多张选票赢得了该县。而在密西根州，有47个县在使用同样的投票系统。目前密歇根州共和党人在继续推动检查其它县郡的投票系统。
+
+综上所述，川普总统预计将在本次大选中赢得311张选举人票，大胜民主党拜登。
+
+相关链接：
+
+[1](https://www.realclearpolitics.com/elections/live_results/2020/president/)
+
+[2](https://www.theepochtimes.com/trump-gains-on-biden-in-arizona-in-latest-ballot-count_3574389.html)
+
+[3](https://www.breitbart.com/politics/2020/11/07/supreme-court-orders-separate-count-late-ballots-pennsylvania/)
+
+[4](https://www.breitbart.com/2020-election/2020/11/11/georgia-secretary-state-announces-full-hand-recount-each-county/)
+
+[5](https://www.realclearpolitics.com/elections/live_results/2020/state/wi/house/)
+
+[6](https://www.newsmax.com/t/newsmax/article/996625/1)
+
+[7](https://www.breitbart.com/politics/2020/11/06/michigan-county-flips-from-biden-to-trump-after-glitch-fixed/)
+
+[WATCH: Sidney Powell Very Confident “Hundreds of Thousand of Ballots” Will Be Thrown Out…All for Biden!](https://steadfastclash.com/the-latest/watch-sidney-powell-very-confident-hundreds-of-thousand-of-ballots-will-be-thrown-out-all-for-biden/)
+
+0

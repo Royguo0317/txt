@@ -1,34 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 宾州司法战传捷报！
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/552317/)
+## 贾瑞特：“目击证人和宣誓证词是法庭上的呈堂供证”
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/552474/)
 
-- 编辑：Victor Torres、文顺
+翻译：【一花一世界】校对：【挺郭大刺猬】
 
+审核：文韵
 
-刚刚，宾夕法尼亚州高等法院发布了一项命令，表示基于该州州务院缺乏法定权限推翻州选举法，命令相关郡的选举委员会禁止计票法院规定隔离的一切选票。此外，这一案件的终审权落在联邦最高法院。
+英文原文：[https://thegreggjarrett.com/jarrett-eyewitnesses-and-sworn-affidavits-are-evidence-in-a-court-of-law/](https://thegreggjarrett.com/jarrett-eyewitnesses-and-sworn-affidavits-are-evidence-in-a-court-of-law/)[https://www.google.com/amp/s/www.rev.com/blog/transcripts/donald-trump-2020-election-night-speech-transcript/amp](https://www.google.com/amp/s/www.rev.com/blog/transcripts/donald-trump-2020-election-night-speech-transcript/amp)
 
-另据川普推文表示，Dominion在全国范围内删除了 270 万张特朗普选票。数据分析发现，宾夕法尼亚州有22.1万张选票从特朗普总统转向拜登，9410 张特朗普选票被删除，使用Dominion投票系统的地区将43.5万张选票从特朗普换成了拜登。
+“如果乔拜登希望被视为合法总统，那么他应该欢迎这些来自宪政共和国所允许的法律挑战。”
 
+贾瑞特及全体员工写于2020年11月12日
 
+随着川普竞选活动在几个州掀起法律挑战，民主党和左翼媒体却继续质疑并冠以“毫无根据”或“误导”的说法企图扫平这些挑战。
 
-> BREAKING: Pennsylvania.🗳️
-> 
-> Judge orders segregated ballots should \*not\* be counted. It rules the PA Secretary of State "lacked statutory authority" to override election law. Critically, the state has a Republican state legislature.[#SCOTUS](https://twitter.com/hashtag/SCOTUS?src=hash&amp;ref_src=twsrc%5Etfw) may ultimately decide the case now. [pic.twitter.com/2VO6mkl66M](https://t.co/2VO6mkl66M)
-> — Kyle Becker (@kylenabecker) [November 12, 2020](https://twitter.com/kylenabecker/status/1326964979237597185?ref_src=twsrc%5Etfw)
+然而，福克斯新闻法律分析师格雷格·贾瑞特（Gregg Jarrett）敦促说这些指控都是合法的，证据也是如此。贾瑞特（Jarrett）在汉尼迪（Hannity）周三(节目中)说：“我们都已经看到了严重和合理的违法指控，这些指控不仅涉及投票上的违规行为， 更有彻底的欺诈行为。”
 
+他继续说道：“我们看到今天在密歇根州的韦恩县, 目击证人的宣誓证词已提交给底特律法庭的法官，但是我们还是不断听到（左媒）主播和记者们问，‘证据在哪里？’
 
+“这是一个非常无知的问话，因为目击证人和宣誓证词就是法庭上的呈堂供证。”
 
+贾瑞特还指出，乔拜登无视来自川普合法的法律挑战，这只会损害他被视为合法领导人的机会。他说：“如果乔拜登希望被视为合法总统，他应该欢迎这些在宪政共和国允许之下的法律挑战。” “否则，他将被视为非法总统，这将削弱他的执政能力。”
 
-
-> “REPORT: DOMINION DELETED 2.7 MILLION TRUMP VOTES NATIONWIDE. DATA ANALYSIS FINDS 221,000 PENNSYLVANIA VOTES SWITCHED FROM PRESIDENT TRUMP TO BIDEN. 941,000 TRUMP VOTES DELETED. STATES USING DOMINION VOTING SYSTEMS SWITCHED 435,000 VOTES FROM TRUMP TO BIDEN.” [@ChanelRion](https://twitter.com/ChanelRion?ref_src=twsrc%5Etfw) [@OANN](https://twitter.com/OANN?ref_src=twsrc%5Etfw)
-> — Donald J. Trump (@realDonaldTrump) [November 12, 2020](https://twitter.com/realDonaldTrump/status/1326926226888544256?ref_src=twsrc%5Etfw)
-
-
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+贾瑞特最后抨击了媒体，称他们结果未明前提早宣布。 “看起来，媒体急于推送他们所选择的候选人乔拜登并宣布他为获胜者，但是，这世界上谁会相信媒体？”他问。 “他们可能会为此失去一顿免费午餐。他们曾在大选前预测乔拜登将以排山倒海之势胜选总统，这件事就证明了他们是虚伪和充满偏见的家伙。”
 
 0
