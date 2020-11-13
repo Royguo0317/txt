@@ -13,25 +13,25 @@
 
 
 
-### [【每日摘要】路德时评 （早）：2020.11.13](/content/gnews/1/README.md)
+### [快讯！新中国联邦华盛顿DC挺川大游行明日举行](/content/gnews/1/README.md)
+ ` 巴塞罗那喜西农场`
+
+### [【每日摘要】路德时评 （早）：2020.11.13](/content/gnews/2/README.md)
  ` 喜马拉雅-华盛顿DC站`
 
-### [【每日摘要】路德时评 （晚）：2020.11.12](/content/gnews/2/README.md)
+### [【每日摘要】路德时评 （晚）：2020.11.12](/content/gnews/3/README.md)
  ` 喜马拉雅-华盛顿DC站`
 
-### [视频国务卿蓬佩奥11·10题为《美国的承诺》的演讲【英汉对照全文】](/content/gnews/3/README.md)
+### [视频国务卿蓬佩奥11·10题为《美国的承诺》的演讲【英汉对照全文】](/content/gnews/4/README.md)
  ` Isaiah4031`
 
-### [【热点播报】空洞的声明试图掩盖海量的证据——又一名白宫内鬼被川普总统开除](/content/gnews/4/README.md)
+### [【热点播报】空洞的声明试图掩盖海量的证据——又一名白宫内鬼被川普总统开除](/content/gnews/5/README.md)
  ` 纽约香草山农场`
 
-### [“儿戏”选举 美国选票机器竟不提前进行测试？](/content/gnews/5/README.md)
+### [“儿戏”选举 美国选票机器竟不提前进行测试？](/content/gnews/6/README.md)
  ` 秘密翻译组G-Translators`
 
-### [美国高级网络安全官员被白宫炒鱿鱼](/content/gnews/6/README.md)
- ` 秘密翻译组G-Translators`
-
-### [底特律记票现场欺诈行为被目击](/content/gnews/7/README.md)
+### [美国高级网络安全官员被白宫炒鱿鱼](/content/gnews/7/README.md)
  ` 秘密翻译组G-Translators`
 
 ### [美国总统大选上演的“农夫与蛇”的故事](/content/gnews/8/README.md)
