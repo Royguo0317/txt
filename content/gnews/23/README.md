@@ -1,25 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 快讯！《War Room》 披露大选期前民调显示拜登落选的马里科帕县更换选票机
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/551999/)
+## 密歇根州韦恩县被提起诉讼“选举舞弊”
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/552061/)
 
-- 编辑：文顺
-- 作者：Jennyball
+*多伦多加喜农场 文𤦍(Manpui)
+校对 文锦 上传 WJ*
+
+在班农先生的作战室和福克斯新闻上都可以看到，大湖区司法中心的戴维·卡尔曼（David Kallman )认为，他在密歇根州韦恩县的选民投票过程方面具掌握著强大的胜数。需要明白知道，这是独立的诉讼，而不是川普竞选诉讼。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12155824/wayne.jpg)图片来源：everycounty.org
 
 
-***更多真相请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+卡尔曼是大湖区司法中心（GLJC）的高级法律顾问，并声明：“在计算和处理选民投票中这种广泛的欺诈行为是不能容忍的。 密歇根州的公民有权知道他们的选举是否以公正和合法的方式进行，并且每次合法投票都应得到正当计算。 这种猖獗的欺诈行为已无法挽回。 我们要求法院责成这种欺诈性选举证明，使选举无效，并在韦恩县下令进行新的投票。”
 
-11月12日，《War Room》披露大选期前马里科帕县更换选票机，而该县民调显示拜登将败选。
+最近的举报吹哨人，梅利莎·卡隆（Melissa Carone），是Dominion Voting系统的雇员，由卡尔曼代表。她说：“我从早上6点开始工作到第二天早上6点。 ”卡隆说：“我们本来应该有食物供应，但只有三分之一的人有足够的食物，他们本应从食品车中获取食物，但我们从未见过任何食物从食品车中出来。”卡隆说：“我向Dominion讲述了我所看到的选票问题，并被告知他们不在乎。”
 
-据《War Room》嘉宾川普2020顾问委员会成员鲍里斯·埃普什泰恩披露，根据马里科帕县民意记录，拜登将在这次选举中失败，所以决定使用新机器。据鲍里斯介绍，这些机器的作用是自动拒绝任何有问题的选票，比如墨迹模糊的选票被退出，就像信用卡被拒退出的情景。原本工作人员应该按下红色按钮将不合格选票推出，重新填写后再投入机器。 但是工作人员实际的操作（并非一定是故意的）是一直按绿色按钮以强制将损坏的选票卷入。
+卡尔曼（David A. Kallman）拥有30多年的诉讼经验，并进行了300多次审判。 他的经验包括宪法，行政法，教会与国家之间的关系，家庭教育和教育法等。卡尔曼还是大湖区司法中心的高级法律顾问。
 
-另外，据鲍里斯·埃普什泰恩透露，仅马里科帕县一天就有多达9万9千到10万张这中票，经查，在马里科帕县使用了许多这种新机器。
+根据大湖司法中心的新闻稿：
+密歇根州兰辛市–正如史蒂夫·格鲁伯（Steve Gruber）在史蒂夫·格鲁伯（Steve Gruber）广播节目上首次报道的那样，大湖区司法中心向韦恩县巡回法院提起诉讼，指控在选举投票计数程序中存在大规模欺诈行为。 该诉讼称，韦恩县选举官员允许对上周二的选举进行的选票进行不合法，非法和欺诈处理。 许多证人宣誓，以证明他们直接观察到的欺诈活动。 这些行为剥夺了合法选民的选举权，并有可能改变选举结果。 投诉中详细列出了各种欺诈行为。
 
-视频链接：[https://pandemic.warroom.org/2020/11/12/ep-495-pandemic-ready-on-the-gun-decks-w-david-kallman-and-rudy-giuliani/](https://pandemic.warroom.org/2020/11/12/ep-495-pandemic-ready-on-the-gun-decks-w-david-kallman-and-rudy-giuliani/)
+投诉副本声称：
+· 违反原告的宪法规定的选举权和完整性权。
+· 违反原告的Quar Warranto权利进行无欺诈性选举。
+· 违反原告的宪法平等保护权。
+· 违反法定选举法。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
+原告的投诉指控被告采取了许多非法和欺诈行为。 例如：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+· 即使没有在正式的选民名册中出现选民的名字，也计入了选票。
+· 选举工作人员被责令不要核实选民在缺席选票上的签名，回溯对缺席选票的日期，并处理此类选票，不管其有效性如何。
+· 选举工作者处理了在选举截止日期之后出现的选票，并虚假报告说这些选票是在2020年11月日截止日期之前收到的。
+· 被告使用虚假信息来处理选票，例如使用不正确或错误的出生日期。很多时候，选举工作人员在QVF中插入了新名字，并记录了这些新选民的生日（1900年1月1日）。
+· 被告人指导选民投票给拜登和民主党。 选举工作者将与选民一起去投票站观看他们的投票并指导他们为谁投票。
+· 没安全监管的选票到达了TCF中心装货库，没有装在密封的投票箱中，没有任何监管链，也没有信封。
+· 被告拒绝记录对其流程的质疑并且如果他们礼貌地提出了挑战，则将挑战者从现场驱离。
+
+评论：美国”选举舞弊”让更多有良知的人走出来发声，相信在即定日子民意选出的总统会带领美国人走向真正的民主，不会再受到CCP的毒害！
+
+原文链接：
+
+
+
+> [MI: Lawsuit Filed in Michigan Claims “Election Fraud” in Wayne County Dominion Whistleblower](https://djhjmedia.com/kari/mi-lawsuit-filed-in-michigan-claims-election-fraud-in-wayne-county-dominion-whistleblower/)
+
+
+
+[投诉副本](https://greatlakesjc.org/cases/costantino_v_detroit/)
 
 0

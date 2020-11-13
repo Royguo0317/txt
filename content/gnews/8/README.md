@@ -1,36 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统签署行政令:禁止美国人投资与中国解放军有关的企业
-` pmzy-vog` [轉載自GNews](https://gnews.org/zh-hans/552401/)
+## 爆革星评：软件公司三证人自揭造假方案 盗取川普3800万选票
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/552509/)
 
-翻译：文章
+多伦多加喜农场 文星（一号）
 
-据【零对冲】最新报道，川普总统周四签署了一项行政命令，禁止美国人投资31家公司，这些公司涉嫌向中国解放军军队提供或支持。显然，川普总统将对中国科技和军事相关企业的战争直接推到任期结束。
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12190529/whistleblow.jpg)图片来自 Public Services International
+11月11日，据国家新闻平台报道，参与美国总统大选的计票软件公司Dominion，有三位职员挺身而出自揭内幕，声称他们的软件更改、盗取了川普总统3800万票。
 
-该行政令称，中国正在 “利用美国资本 “迅速实现军事和情报机构的现代化，这对美国本土和驻外部队构成重大威胁。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12182441/placos.png)
-川普在行政令中特别指责中华人民共和国 “越来越多地利用美国资本来资源化并使其军事、情报和其他安全机构得以发展和现代化，这继续让中国直接威胁美国本土和驻外美军”。
+据这些爆料人称，Dominion设计了操控软件进行选票切换使拜登超出，这是民主党人的第一方案，邮寄投送假票仅是他们备用的第二方案。 之所以在选举之夜临时停止点票，是因为没想到支持川普的选票太多，该软件无法按第一方案更改出拜登胜选的点票效果。而在停止点票期间，民主党人用货车将作假的选票运送到计票点填补空缺。
 
-消息一出，最先受到冲击的是在纽约证券交易所上市的中国移动和中国电信，市值分别接近1060亿美元和290亿美元。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12182729/2020-11-12_1.png)
-上市公司中的许多公司，今年早些时候被美国国防部指定为与解放军有关联的公司，在中国的证券交易所以及香港的证券交易所公开交易。包括养老基金在内的美国投资公司将从1月11日起被禁止买卖这些指定公司的股票。
+川普总统私人律师、原纽约市长和检察官朱利安尼（Rudy Giuliani）说，这三个勇敢站出来的吹哨人，愿意就所发生的事情宣誓作证。
 
-在去年6月公布初步名单时，五角大楼曾告诉立法者。”由于中华人民共和国试图模糊民用和军用部门的界限，’了解你的供应商’是至关重要的。”
+在最伟大的民主国家美国，我们看到了美国历史上最大造假丑闻案的越来越多的证据，这令数以千万计美国公民的合法选举权受到侵害。但拜登集团盗取的选票，最终会依法返回给川普总统，结果就是川普继续当总统，拜登开始蹲监狱。
 
-“我们设想，这份名单将成为美国政府、公司、投资者、学术机构和志同道合的合作伙伴就与这些实体的合作关系进行尽职调查的有用工具，特别是随着名单的增长，”五角大楼发言人当时表示。该命令还给予投资者在2021年11月之前从名单上的中国证券中剥离所有持股。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12182802/chinamobilefile.jpg)
-但鉴于许多公司的规模和跨国性质，正如《华尔街日报》所强调的那样，这将是说起来容易做起来难。
+参考链接：
 
-
-> 白宫官员说，有多少美国人拥有这些证券 甚至有多少钱在其中都不清楚。许多通过基金进行投资的母婴投资者并没有看清他们实际接触到的东西。一位金融分析师将投资者能否知道自己是否拥有这类证券，比喻为客人在餐馆里想知道他们所吃的菜的成分；只有向厨师，或者在这种情况下向证券投资基金经理核实，才能确定这些证券在哪里。
-
-
-名单中还包括华为技术有限公司、中国核电总公司、中国电子公司和监控设备制造商海康威视等著名企业。
-
-其中一些已经以国家安全为由被阻止在美国运营，但周四的行政命令将事情向前推进了一大步，主动拉开了美国公民与它们的任何金融关系。
-
-新闻来源：ZeroHedge
-原文链接：[https://www.zerohedge.com/markets/trump-bans-americans-investing-chinese-pla-linked-firms-executive-order](https://www.zerohedge.com/markets/trump-bans-americans-investing-chinese-pla-linked-firms-executive-order)
+[https://halturnerradioshow.com/index.php/en/news-page/news-nation/voting-software-company-whistleblowers-come-forward-claim-their-software-changed-38-million-votes-stole-election](https://halturnerradioshow.com/index.php/en/news-page/news-nation/voting-software-company-whistleblowers-come-forward-claim-their-software-changed-38-million-votes-stole-election)
 
 0
