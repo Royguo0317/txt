@@ -1,21 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 当你加入灭共，人民将会支持你
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/554360/)
+## 【路德社精选】 11/10/2020 晚间节目
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/554101/)
 
-文旦
+听写：叮叮当 校对：明台 简介：恩真 文宣图：艾伦 出品：首尔喜韩农场
 
-参考资料
-[https://www.epochtimes.com/b5/20/11/12/n12542998.htm](https://www.epochtimes.com/b5/20/11/12/n12542998.htm)
- [https://www.epochtimes.com/b5/20/11/12/n12543047.htm](https://www.epochtimes.com/b5/20/11/12/n12543047.htm)
+**简介：**
 
-在中共假经济突飞猛进到2020年，中共战狼外交泛滥，中共违反承诺依依现行，打压人权被揭露，侵阅香港，南海，打压他国言论，影响他国政治，这个邪恶的国家力量对个人，对企业侵袭，垄断市场，打乱市场，倾销市场，等各种行为，让各国民众讨厌中共大幅上升，最重要的是中还共恶意释放出了”中共病毒”，至今因为各国利益关系，不敢追究，不敢追查，世界组织也被收买影响，跟随中共并发言一至。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13044102/%E5%9C%96%E7%89%87-1-25.png)
-世界各国的人民怨声载道，因为中共的假大空，偷拐抢骗，傲慢，自大，野蛮，使人们的积怨持续上升，可是各国政府却只有声音，行动却少少。因为世界利益集团捆绑再一起，这些菁英被中共利益捆绑，被抓取把柄、被中共招待、被中共偷拍监控，导致各国政府行动力被干扰、被压制。
+1.中共渗透最严重的北卡被川普总统拿下。
 
-也随着各国媒体被大量利益收买，放出各种有利于中共消息，洗白中共，让人民分裂成两种群体，互相对抗。但是当真相慢慢扩散，反共灭共，将成为世界人民的主流，并不是想要推翻政府、并不是讨厌政客，而是想要切断这条和中共权贵连结的产业链，这个关系练，进而让人民所爱的国家能够回复正常，不被这个邪恶的中共干扰。
+2.川普还将继续赢得胜利。
 
-捷克参议院议长就是一个榜样，只要反共灭共，民意将会与你再一起，不管中共如何抹黑，发布假消息，造谣，真相都还回你清白，人民会站在他的背后支持，传播”真相”，将改变你所爱的国家，将改变你的未来，将消灭中共。
+3.国务院保存美国国玺。
+
+4.蓬佩奥发言支持川普总统。
+
+5.建制派与西点派一致支持川普总统。
+
+6.CIA如果不支持麦康奈尔可以进行质疑。
+
+7.想在众议院待下去就要与议长搞好关系。
+
+8.共和党会继续执掌参议院。
+
+9.佩洛西议长位置岌岌可危。
+
+10.众议院议长位置非常关键。
+
+11.佩洛西在民主党的影响力下降了。
+
+12.国务卿的言行是给其他国家听的。
+
+13.CIA局长今天会见麦康奈尔。
+
+14.弹劾总统时佩洛西起了很大作用。
+
+15.辉瑞疫苗是有问题的。
+
+16.疫苗安全性要追踪很长一段时间。
+
+**文宣图：**
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13030340/1-60.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13030743/2-103.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13031153/3-67.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13031734/4-37.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13033332/5-35.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13033510/6-38.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13033933/7-23.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13033932/8-20.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13035904/9-16.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13035909/10-15.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13035917/11-16.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13041050/12-5.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13041059/13-8.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13041137/14-5.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13041149/15-9.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13041151/16-6.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13041201/17-9.png)
+
 
 0

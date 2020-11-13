@@ -1,46 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共首批受禁军工企业名单
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/554283/)
+## 【热点播报】联邦选举委员会主席特雷纳指出：大选涉嫌违宪！可视为无效选举！
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/554308/)
 
-多伦多加喜农场 大地鲲鹏
+作者：香草山写作组 正道主义联盟 校对/发稿：飞虹
 
-校对上传 XM
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13043010/%E5%9B%BE%E7%89%871-20.jpg)图片来源：123ru.net
-美东时间11月12日，川普总统宣布进入国家紧急状态，并援引“国际紧急经济权力法”（International Emergency Economic Powers Act，IEEPA）、“国家紧急法”（National Emergencies Act）与301 条款发布行政命令，禁止美国人投资与中共解放军有关的企业，首批在列的31家企业名单如下：
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
 
-- 中国交通建设(CCCC)
-- 中国运载火箭技术研究院 (CALT)
-- 中国东方红卫星股份有限公司
-- 中国联通
-- 中国电子信息产业集团 (CEC)
-- 中国化学工程集团(CNCEC)
-- 中国化工集团 (ChemChina)
-- 中化集团
-- 中国建筑集团
-- 中国长江三峡集团公司
-- 中国核工业建设股份有限公司 (CNECC)
-- 中国航空工业集团（AVIC）
-- 中国航天科技集团（CASC）
-- 中国航天科工集团（CASIC）
-- 中国电子科技集团（CETC）
-- 中国兵器装备集团（CSGC）
-- 中国船舶重工集团（CSIC）
-- 中国船舶集团（CSSC）
-- 中国兵器工业集团（Norinco Group）
-- 海康威视（Hikvision）
-- 华为
-- 浪潮集团
-- 中国航空发动机集团
-- 中国铁建（CRCC）
-- 中国中车
-- 熊猫电子集团
-- 中科曙光（Sugon）
-- 中国移动
-- 中国广核集团
-- 中国核工业集团
-- 中国电信
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13042417/1-75.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13042345/2-39.jpg)
-1+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13043605/%E5%9B%BE%E7%89%8733.png)
+美国联邦选举委员会和联邦总务署（GSA）至今仍然拒绝就拜登当选发表声明——这是总统当选必须的最终“认证”机构。
+
+选举委员会主席（Trey Trainor）特雷·特雷纳接受Newsmax电视台采访时表示，禁止观察员监看计票过程显示，选举欺诈行为正在各州发生，“我确实相信在这些地方发生了选举欺诈”， “否则，他们会允许观察员进入（计票室）。”
+
+虽然共和党在宾夕法尼亚州赢得法院裁定，确保其观察员可以观看计票过程，但宾州州政府以防疫为名宣称监票员必须与其他人员保持6英尺的距离。
+
+特雷纳认为观察员以这种方式进入计票地点毫无意义。他说：“我们的整个政治制度都建立在透明的基础上，以避免腐败。”他指宾州和其他多个州都未能以透明的方式完成本次大选计票。
+
+特雷纳强调说，如果在过程中未能遵守法律，那么这次选举是“非法的”。
+
+特雷·特雷纳不仅是一名州选举官员，他还是一名联邦官员。作为整个委员会的主席，特雷纳不像那些急着为民主党争取州选举和为拜登争取总统职位的左翼媒体黑客，他知道选举公平的重要性。
+
+他认为，川普团队将要进行的诉讼是“非常有效的指控”，司法系统应进行“全面审查”。他预测，法律诉讼最终需要最高院来裁决！
+
+他直接表示，从他的专家观点来看，“全民投票未能开放”，“这次选举无效”。
+
+特雷纳指出：“简单地说，选举中几乎没有问责制。”
+
+特雷纳说：“我们的整个政治文化都注重问责，以防止腐败的出现。”州法律要求观察员在场。“如果不遵守这条规则，这次选举就是‘非法的’。”
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上8:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+0

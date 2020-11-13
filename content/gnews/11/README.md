@@ -1,47 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德社精选】 11/10/2020 晚间节目
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/554101/)
+## 填压、灌输、绑架14亿人民,论推翻中共防火墙的重要性
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/554286/)
 
-听写：叮叮当 校对：明台 简介：恩真 文宣图：艾伦 出品：首尔喜韩农场
+作者：康州农场-Truemanman
 
-**简介：**
+审核：康州农场-文韵
 
-1.中共渗透最严重的北卡被川普总统拿下。
+近日，蓬佩奥国务卿在里根在里根研究所发表演讲，表示将帮助中国人民推倒网络防火墙。中共官媒使尽全力咒骂这样一位帮助中国人民的国务卿，原因无非是蓬佩奥的这一举动戳到了中共的痛处，他们耐以生存的统治维稳工具-网络防火墙要被推翻了。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13043816/%E9%98%B2%E7%81%AB%E5%A2%99.jpg)
+**互联网一直被视为打开思维的新渠道，但随着防火墙的越来越高，随着信息的审查和封闭，人们吸取信息的渠道看似多样化，其实变成了只有一种，所有的媒体都由中共政府控制，而这些党媒传递的信息也更加的“民族主义”。**
 
-2.川普还将继续赢得胜利。
+在中共国的社交媒体上，越来越多人变得脆弱和敏感，他们“民族主义情绪”泛滥，尤其是涉及“主权”“领土”或“世界地位”等问题时，他们的敏感神经被集体挑动。这种情绪越来越多的蔓延到文化、技术等各个领域中。
 
-3.国务院保存美国国玺。
+但凡批判，就是不爱国，但凡评价指出真相，就是卖国贼。在CCP冠状病毒爆发以来，关于病毒的真相一直是网络上讨论的话题，尽管有石锤的报告，人证物证俱在，但在“民族主义”长期洗脑的情况下，大部分人是始终不信的。
 
-4.蓬佩奥发言支持川普总统。
+就算是已经透过VPN翻墙出来的人，他们依旧叫嚣着说：”西方抹黑我们，见不得中国好”，真相和事实在他们眼里成为了抹黑和嫉妒。
 
-5.建制派与西点派一致支持川普总统。
+过去10年以来，中共通过网络防火墙、宣传加码、和言论审查三驾马车，迅速和中共不断上升的全球野心打配合，把自尊和荣辱融入到中华民族伟大复兴的叙事中，形成一种强大的民族主义裹挟给爱国的人民，但人民不明白，爱国不等于爱党。
 
-6.CIA如果不支持麦康奈尔可以进行质疑。
+**在防火墙和言论审查的挤压下，他们所接触到的世界观是：**
 
-7.想在众议院待下去就要与议长搞好关系。
+外国对中国政府的批评往往被反射性地认为是美国政府的支持；
 
-8.共和党会继续执掌参议院。
+外国对中国政府有任何制裁或者行政动作时往往被认为是美国政府的嫉妒；
 
-9.佩洛西议长位置岌岌可危。
+当美国有任何社会混乱的事件时往往被认为这个国家是混乱不堪的，中共党媒对美国的描述方式–充斥着枪支暴力和警察暴力。
 
-10.众议院议长位置非常关键。
+这让我想起民间流传着关于中共新闻联播的段子“新闻联播三十分钟，前十分钟国家领导人很忙；中间十分钟人民过的十分幸福，稳步小康；最后十分钟，外国水深火热，混乱不堪”。
 
-11.佩洛西在民主党的影响力下降了。
+**防火墙的存在就是这样，一叶障目，大众看不见真相，看不清事实，在被中共打造的小小世界观里愤怒的内循环着。**
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13043632/%E6%9C%AA%E6%A0%87%E9%A2%98-9.jpg)
+中共很巧妙的操纵者这种“民族主义”，他们通过各种宣传手段，把对中国文明遗产的骄傲与对殖民时代遭受外国列强羞辱的恨结合起来，中共领导人也一直在熟练地塑造一种政治化的民族主义，用来强化党的至高无上地位，把独裁模式狡辩成维护社会稳定的最佳手段。
 
-12.国务卿的言行是给其他国家听的。
+同样的，在防火墙的作用下，很多中国国内的信息和老百姓真实的生活状况也无法被国际上真正了解，很多国外的人民和政府也被一叶障目，偏听中共的只有一种声音的宣传，认为中共国的领导下这种社会主义专制集权体制，经济发展很迅速、一派繁荣，这是一个巨大的误区。
 
-13.CIA局长今天会见麦康奈尔。
+**防火墙阻碍了中国人民和外界交流的渠道，14亿老百姓是任人宰割和绑架的。**
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13044423/%E6%9C%AA%E6%A0%87%E9%A2%98-10-1.jpg)
+这就是推翻防火墙的重要性，一旦防火墙倒塌了，通道两边的信息将会如潮水般涌入，很多人将会明白，什么才是最重要的。蓬佩奥国务卿曾经说过：本该自由生活的中国人民和中共是不同的，中国人民祈求和平与繁荣，与美国一样，是一个个用心经营的家庭。
 
-14.弹劾总统时佩洛西起了很大作用。
-
-15.辉瑞疫苗是有问题的。
-
-16.疫苗安全性要追踪很长一段时间。
-
-**文宣图：**
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13030340/1-60.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13030743/2-103.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13031153/3-67.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13031734/4-37.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13033332/5-35.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13033510/6-38.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13033933/7-23.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13033932/8-20.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13035904/9-16.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13035909/10-15.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13035917/11-16.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13041050/12-5.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13041059/13-8.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13041137/14-5.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13041149/15-9.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13041151/16-6.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13041201/17-9.png)
-
+洗脑和灌输我们不再需要，14亿同胞应该拥有知道真相的权利，14亿同胞应该拥有不按照中国共产党领导的方式用自己的方式生活的权利，全世界人民也有拥有知道真实的中国的权利。推翻防火墙、推翻中共，让自由和真相来的更猛烈一些！
 
 0
