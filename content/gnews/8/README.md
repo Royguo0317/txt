@@ -1,53 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Dominion投票系统造假揭开中美黑暗势力沆瀣一气
-` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/554602/)
+## &#8220;种族主义者 &#8221; 川普赢得的少数族裔选票比1960年以来任何一位共和党候选人都多
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/555838/)
 
-内新闻：背靠背
+*新闻来源：《零对冲(Zero Hedge)》；作者：泰勒-德登 (Tyler Durden)；发布时间： 2020年11月12日*
 
-2020年美国大选随着时间后移，Dominion投票系统对选民欺诈案例曝光越来越多，真相正慢慢被揭开。
+*翻译/简评：Beicy-数学老师；校对：感恩；审核：freedust；Page：Connor54*
 
-Dominion分别于2003年在加拿大和2009年在美国成立。John Poulos和James Hoover是联合创始人。Poulos仍担任公司首席执行官。
+[![](https://spark.adobe.com/page/cvpcZvPQ1BHtK/images/15c98a52-258c-45fa-99fc-688ef9e22c58.jpg?asset_id=1d959fca-f24a-4f89-a4b5-05d37af8e883&amp;img_etag=%22764b841dc2618e3952fac8973590d037%22&amp;size=1024)](https://spark.adobe.com/page/cvpcZvPQ1BHtK/images/15c98a52-258c-45fa-99fc-688ef9e22c58.jpg?asset_id=1d959fca-f24a-4f89-a4b5-05d37af8e883&amp;img_etag=%22764b841dc2618e3952fac8973590d037%22&amp;size=1024)
 
-在今年1月份的国会证词中，Poulos说：“我们的产品中确实含有来自中国的组件。我们的列表产品始终在美国制造。” 他说，中国组件包括“ LCD组件，接口上的实际玻璃屏幕，直到芯片组件级别……在美国制造这些组件都是没有选择的。我们欢迎准则和最佳做法。”
+**简评：**
 
-据Marketrelist报道，Dominion成立于2002年，是一家私有企业，并得到私募股权的支持。该公司于2018年7月被位于纽约的私募股权公司Staple Street Capital（及其自身的管理团队）收购。
+尽管川普总统被媒体抹黑，贴上种族主义者的标签，但民众是有独立思考能力的。美国少数族裔选民排除了反对川普的声音，在投票中作出了独立的选择。此篇新闻报道: 川普总统26%的投票份额来自非白人选民，这是1960年以来共和党总统候选人取得的最高少数族裔投票份额。
 
-根据PrivateFUNDData数据显示：
+这一事实反映了川普总统的支持者来自于非常广泛的美国各界民众。 尽管如此，在中共造假黑手的帮助下，乔-拜登还是已经获得了超过川普总统的选举人票数。而与此同时，选举中舞弊等荒唐滑稽的事实也被暴露出来，例如”幽灵选民”投票拜登、川普总统支持者的投票被扔掉，等等。
 
-斯台普街资本管理有限责任公司（Staple Street Capital Management LLC）持有斯台普街资本的所有权少于5％；
+[![](https://spark.adobe.com/page/cvpcZvPQ1BHtK/images/d3ffcca2-a10c-4cfc-a7c1-6c45e1696ab5.jpg?asset_id=8d36caca-e794-49a4-8d31-33a0ea7eba20&amp;img_etag=%22a0eecf4d26dc967dfdd72b780b5b542b%22&amp;size=2560)](https://spark.adobe.com/page/cvpcZvPQ1BHtK/images/d3ffcca2-a10c-4cfc-a7c1-6c45e1696ab5.jpg?asset_id=8d36caca-e794-49a4-8d31-33a0ea7eba20&amp;img_etag=%22a0eecf4d26dc967dfdd72b780b5b542b%22&amp;size=1024)
 
-斯蒂芬·道格拉斯·欧文斯（Stephen Douglas Owens）自2014年6月1日起担任董事总经理兼有限合伙人，在Staple Street Capital拥有25％至50％的所有权；
+![](https://spark.adobe.com/page/cvpcZvPQ1BHtK/images/90384a12-4421-4444-9500-d1da61199f9d.jpg?asset_id=48807296-215d-40cd-ad83-0c5a78d88786&amp;img_etag=%22d4fb8b86455bd3c8d8b26598b80c98bd%22&amp;size=2920)
 
-胡丹·雅格布扎德（Hootan Yaghoobzadeh）自2014年6月1日起担任董事总经理兼有限合伙人，在Staple Street Capital拥有25％至50％的所有权；
+中共企图以控制美国总统大选，来控制美国，统治世界。这一邪恶意图，在这次大选战中充分暴露出来。传播真相，消灭中共，始终是我们爆料革命的终极任务。
 
-Jisung Baek自2016年6月1日起担任首席合规官，拥有Staple Street Capital少于5％的所有权。
+[![](https://spark.adobe.com/page/cvpcZvPQ1BHtK/images/7afc59b8-8956-4a8f-b233-70b32283f9a5.png?asset_id=717fcf60-bb45-48f3-9725-04e7be5bb485&amp;img_etag=%22df8ee8f6e7a500c78f2860a8cd730943%22&amp;size=2560)](https://spark.adobe.com/page/cvpcZvPQ1BHtK/images/7afc59b8-8956-4a8f-b233-70b32283f9a5.png?asset_id=717fcf60-bb45-48f3-9725-04e7be5bb485&amp;img_etag=%22df8ee8f6e7a500c78f2860a8cd730943%22&amp;size=1024)
 
-据Staple Street Capital主页介绍，该公司还投资了Cyberlink（讯连科技）。Cyberlink于1995年台湾成立，拥有顶尖视讯与音讯技术的影音软件公司，总经理张华祯，曾任国际知名防毒软件公司－趋势科技执行副总经理一职。
+**“种族主义者 “川普赢得的少数族裔选票比1960年以来任何一位共和党候选人都多**
 
-此外，还涉猎精密金属产品公司提供航空航天金属组件，铁线压缩公司拥有液化天然气技术，中州公司负责供应石油天然气管道阀门等，常春藤技术，可以见全是中共这些年迫切需要的技术。
+大家都知道唐纳德-川普是个种族主义者。我们是怎么知道的？因为媒体这么说，这就是原因。川普的每一个声明或脱口而出的话语，都可能被故意曲解或断章取义，或被扭曲成完全不同的意思，都被用来将这位总统描绘成丑陋的种族主义形象。
 
-Staple Street Capital执行董事会成员威廉肯纳德（William  E. Kennard），1997-2001年曾在比尔克林顿时期担任联邦通信委员会主席，2009-2013年在奥巴马时期担任驻欧盟大使。在凯雷工作期间负责全球和媒体方面工作，执行凯雷中共国投资。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13062148/image-196.png)
-据Heavy报道，2014年的加利福尼亚州文件显示，Dominion当时的记录代理人是Wilmer Hale的波士顿律师Michael Bevilacqua。前特别检察官罗伯特·穆勒（Robert Mueller）在该公司工作。
+[![](https://spark.adobe.com/page/cvpcZvPQ1BHtK/images/9db96b39-d829-45fa-96be-894cb7e18ff2.jpg?asset_id=f5a2329a-afbe-438e-8553-7f736720ca73&amp;img_etag=%227c0959777d028dca6795dc5b4be3071c%22&amp;size=1024)](https://spark.adobe.com/page/cvpcZvPQ1BHtK/images/9db96b39-d829-45fa-96be-894cb7e18ff2.jpg?asset_id=f5a2329a-afbe-438e-8553-7f736720ca73&amp;img_etag=%227c0959777d028dca6795dc5b4be3071c%22&amp;size=1024)
 
-根据报表，Dominion在2012年的收入为4400万美元。它把制造和开发的地址列为多伦多。塞尔维亚贝尔格莱德，丹佛，德克萨斯州普莱诺和加利福尼亚的鲍德温公园。
+对美国黑人，这招很有效。今年早些时候的一项调查发现，83%的黑人认为川普是个种族主义者。每家媒体都在告诉他们(川普)是这样的，并且政治、娱乐和体育界的许多显赫黑人也是一有机会就强化这种说法，他们怎么能不相信呢？
 
-2020年的一份文件列出了其注册代理商为佛罗里达州的Cogency Global。其董事被列为Staple Street Capital的Hootan Yaghoobzadeh，Staple Street的Stephen Owens和Benjamin Humphreys。Yaghoobzadeh和Owens曾拥有在凯雷投资集团（Carlyle Group）多年工作经历。在成立Staple Street Capital之前，Yaghoobzadeh先生曾担任博龙资本管理公司（Cerberus Capital Management）的高级副总裁。
+少数民族社区的所谓 “领袖 “对唐纳德-川普的连任表示了强烈的反对。这几乎是一致的。有值得注意的例外，但任何黑人或西班牙裔知名人士公开支持川普都是勇敢的。
 
-博龙资本管理公司所有权75%属于斯蒂芬·芬伯格（Stephen Feinberg）控制的实体CRAIG COURT GP LLC。博龙资本管理公司大中华区总裁，董事总经理花醒鸿，北京大学国际关系专业毕业（极可能中共间谍专业），曾就职于中国银行总行，后赴美从事投融资工作。2008年加入博龙资本之前，曾任美国铝业亚太区副总裁，负责投资战略。在美铝与中铝的合作、收购力拓等项目中表现出色。
+但事实证明，许多少数族裔选民排除了反对川普的声音，做出了支持总统的独立决定。 《纽约邮报》报道:
 
-博龙资本管理公司成立于1992年，管理资产约600亿美元。该公司总部位于纽约，由斯蒂芬·芬伯格（Stephen Feinberg）经营。2006年10月19日，美国总统乔治·W·布什第二任美国财政部长约翰·W·斯诺被任命为主席。
+川普团队和全国范围的共和党人在黑人和西班牙裔选民中取得了前所未有的进展。在全国范围内，初步数据显示，川普26%的投票份额来自非白人选民，这是1960年以来共和党总统候选人(取得)的最高投票份额。
 
-根据Yahoo财经，凯雷投资集团前十大机构持有人：
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13062322/image-197.png)
-凯雷重点聚焦消费与零售、金融服务、电信、传媒和科技、医疗健康等领域，特别是近期IPO被暂停的蚂蚁金服。Staple Street Capital执行董事会成员威廉肯纳德正是执行的重要人物。1999年凯雷亚洲基金团队管理/曾经管理五支基金：凯雷亚洲1期基金（7.5亿美元）成立。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13062950/image-198.png)
-**Dominion与亚利桑那州的合作**
+在佛罗里达州的迈阿密-戴德县，古巴裔美国人的心脏地带，川普将2016年希拉里-克林顿30多个百分点的狂飙变成了乔-拜登的微弱个位数胜利。德克萨斯州的斯塔尔县，绝大多数是墨西哥裔美国人，定位在格兰德河谷的中心地带，几乎没有为民主党人提供支持。拜登在其他关键摇摆州，如俄亥俄州和佐治亚州的西班牙裔支持率与希拉里-克林顿2016年的基准相比有所下降。
 
-Dominion与Arizona的合同价值不菲。《太阳报》于2020年9月报道说：“自2016年首次建立合伙关系以来，该县已四次加入Dominion合同。加上本周的增值，与这家总部位于丹佛的公司的合同价值2870万美元。
+(虽然)自1980年代和罗纳德-里根强烈反对菲德尔-卡斯特罗以来，古巴裔美国人一直是忠实的共和党选民，但他们在2020年投票给川普的热情尤其高涨。相反，德克萨斯州的墨西哥裔美国人可能以前从未投票给共和党，但他们被川普的 “机会议程 “(计划)所吸引。
 
-综上所述，美国权力和资本通过Staple Street Capital将技术投向中共国，利用廉价被奴役中国人劳动力，获取利益，而中共利用美国资本、媒体、蓝金黄力量和美国技术（Dominion）影响操纵美国大选，架空民意。
+而令人惊讶的是，年轻的黑人男性(选民)以前所未有的人数投票给川普。几天内我们不会知道那场投票的具体细节，但看到资本主义美国未来的雄心勃勃的年轻人无疑被民主党的反资本主义议程所驱赶。他们也厌倦了被民主党人当作他们的道德戏弄的道具，也厌倦了(民主党人)没有兑现的承诺。
+
+[![](https://spark.adobe.com/page/cvpcZvPQ1BHtK/images/22b76555-0a0f-4703-bf72-0cda8df9a849.png?asset_id=77d2c92a-2c04-49b1-adf8-fa3acf23197e&amp;img_etag=%229f1137dad155e1273581755c48222eef%22&amp;size=1024)](https://spark.adobe.com/page/cvpcZvPQ1BHtK/images/22b76555-0a0f-4703-bf72-0cda8df9a849.png?asset_id=77d2c92a-2c04-49b1-adf8-fa3acf23197e&amp;img_etag=%229f1137dad155e1273581755c48222eef%22&amp;size=1024)
+
+但这对民主党和媒体的信息综合体有什么影响？看来有人”爆胎”。
+
+事实证明，少数族裔对民主党的亚历山大-奥卡西奥-科特兹一派现在兜售的不知悔改的进步 “觉醒主义(woke-ism) “品牌并不那么痴迷。政治、法律、媒体、企业和学术机构已经全身心地投入到 “觉醒议程 “中，兜售一种有毒的交叉性、简易社会主义和 “黑命贵 “无政府主义的混合物。拉美裔和许多黑人并不买账。正如一位推特智者所言，民主党可能赢得了 “拉丁裔选票”，但他们在真正的拉丁裔中表现不佳。
+
+我们的两个对立的统治阶级的认知失调令人震惊，在接下来的几个月里也将如此。统治精英们无法理解这样一个概念，即戴着MAGA帽子的 “坏橘子人 “事实上并不是种族主义白人的化身，也不是即将到来的法西斯主义的预兆。
+
+最重要的是，不只是白人选民不听媒体说川普的缺点。少数族裔社区的许多人可以自己判断川普以及他能为他们做什么，不需要那些真正不以他们的利益为重的人指导他们如何投票。
+
+在美国很多地方，做一个黑人或西班牙裔川普的支持者是需要勇气的。你会希望不会是这样，但事实如此。他们是少数族裔社区向共和党运动的预兆吗？时间会告诉你，但如果是这样的话，即使在沿海精英中也会感受到随之而来的选举地震。
+
+[原文链接](https://www.zerohedge.com/markets/racist-trump-won-more-minority-votes-any-gop-candidate-1960)
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/cvpcZvPQ1BHtK/)】-点击spark adobe版
+
+[![](https://spark.adobe.com/page/cvpcZvPQ1BHtK/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/cvpcZvPQ1BHtK/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

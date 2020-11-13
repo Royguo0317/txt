@@ -1,34 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国高级网络安全官员被白宫炒鱿鱼
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/554407/)
+## “儿戏”选举 美国选票机器竟不提前进行测试？
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/554506/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13045355/2-105.png)[图片来源](https://cgnet.com/blog/cisa-wants-you-to-improve-your-office-365-secure-score/)
-据《国会山》最新报道，国土安全部（DHS）所属的网络和结构安全局（CISA）高级官员布莱恩·韦尔（Bryan Ware）将在本周末离任。据消息人士透露，本周早些时候白宫已要求韦尔辞职。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13052743/2-106.png)
+马里科帕县共和党主席Rae Chornenky已经辞去职务，因为民主党人指责她在选举前没有对选举计票机器进行测试。测试是向公众开放的，在每次选举前后进行，以证明制表设备和投票设备的准确性。
 
-韦尔本人则表示：“我为自己今年所做的工作感到非常自豪。我们在保护选举中所做的工作非常出色。”
+Chornenky是一名律师，她得到了该州共和党的支持。但她与该州共和党内部的右翼分子长期存在冲突。
 
-报道进一步介绍，韦尔于去年履职，负责保护和加强关键网络基础架构免受外来攻击， 并在中共病毒大流行期间，负责保护医疗保健和基本服务免受网络攻击。帮助领导了与英国国家网络安全中心的合作。
+要求她下台的呼声始于马里科帕县民主党主席Stephen Slugocki，他在推特上提醒公众，Rae Chornenky10月份没有对选举设备进行相关测试。马里科帕县民主党主席Slugocki在Twitter上透露，她始终没有进行选票机器的测试。
 
-报道进一步分析，韦尔的离职可能只是刚刚开始，网络和结构安全局主任克里斯托弗·克雷布斯（Christopher Krebs）曾私下告诉多名员工，他本人也很可能被开除。
+设备软件出现故障，问题就出在这台Dominion Voting Systems的新选票制表机。一些共和党人声称该机器把川普总统的选票改成了拜登的。
 
-人们注意到，自大选以来的一周内，韦尔只是川普政府解雇的一系列国防与安全人员之一，国防部长马克·埃斯珀（Mark Esper）在本周初遭到解雇，被国家反恐中心主任克里斯托弗·米勒（Christopher Miller）接任，几天后国防部其他几名高级官员也相继辞职。而中央情报局局长吉娜·哈斯佩尔（Gina Haspel）似乎是下一个被解雇的对象。
+推特内容：
 
-大选期间，网络和结构安全局建立了一个24小时全天候运营中心，以帮助协调州政府，地方官员，社交媒体公司，选举点票机供应商和其他利益相关方之间的关系。值得注意的是，他们在此期间推出了一个“谣言控制”页面，并声称是为消除选举过程中的误导和虚假信息。
+Rep. Kelly [email protected]·11月10日
 
-简评：网络和结构安全局（CISA）高级官员布莱恩·韦尔的离任，相信是川普政府继续清理国防与安全领域“沼泽”的行动之一，正如本文提到的“国防部长马克·埃斯珀（Mark Esper）在本周初遭到解雇 …… 几天后国防部其他几名高级官员也相继辞职。”
+“我刚刚发现马里科帕县GOP主席Rae Chornenky的名字没有出现在Dominion/机器的认证上。 因此我要求她和她的第一副主席一起辞职。”
 
-另外，格外引人注目的是，本文提到的韦尔刚刚参与了大选网络安全协调中心的工作。 该中心的协调对象包括州政府，地方官员，社交媒体公司，选举点票机供应商等。 在大选舞弊被逐步揭露的情况下，人们不难看到，上述所有政府机构和私人公司都已牵涉其中。 而韦尔本人却宣称“我们在保护选举中所做的工作非常出色。”
+在10月6日的一则Twitter中，Slugocki和民主党国务卿Katie Hobbs坐在一张桌子旁。
 
-无独有偶的是网络和结构安全局今天在其官网发布声明，称：“没有证据表明任何投票系统删除，丢失或更改了选票，或以任何方式使选票受到损害。”
+“测试后的最终统计结果，”他在Twitter上写道。”我很高兴地报告，机器有100％的准确性。……马里科帕县的投票机已经准备好，明天就可以开始投票，我们都应该对结果充满信心！”
 
-人们知道，大规模在多个州篡改选票需要更高级别，甚至国家级别的网络协调，而网络和结构安全局隶属国土安全部，他们成立的网络协调中心竟然至今未发现舞弊问题，却发出了上述试图自证清白的声明，大有此地无银之嫌。
+他当时写道，共和党和自由党的官员被邀请，但最终并没有到场。
 
-同时，该中心推出的那个“谣言控制”页面又意欲何为呢？是不是一个国家级的舆论控制工具呢？继国防部部长被解职后，国土安全部会不会是另一个亟待清理的机构呢？我们拭目以待。
 
-[新闻链接](https://thehill.com/policy/cybersecurity/525721-senior-dhs-cybersecurity-official-to-step-down-at-end-of-week)
 
-翻译报道： hanstyle88
+> One of my legal responsibilities as County Chair is to conduct the accuracy tests of the voting machines and certify they are counting ballots correctly. I sat with Arizona Secretary of State [@SecretaryHobbs](https://twitter.com/SecretaryHobbs?ref_src=twsrc%5Etfw) and we verified 
+> 1/ [pic.twitter.com/zYeAq2LbUU](https://t.co/zYeAq2LbUU)
+> — Steven Slugocki (@Slugocki) [October 7, 2020](https://twitter.com/Slugocki/status/1313647249684004864?ref_src=twsrc%5Etfw)
+
+
+
+**评论**：4年一度的美国大选是美国政权交接的关键，每当此时便吸引了全世界的眼光。因此，选票机器的测试是极为重要的一项工作，但是却发现马里科帕县的共和党主席却如此不重视，大选最重要的机器竟然不测试。而这个案例也许只是个个例，其他州县的情况我们不得而知，但是美国大选在3号晚上出现了停止计票后，第二天呈现的滑稽结果已经严重影响了美国大选的正常进行。正巧选票机器也出现故障，让这一切都变得扑朔迷离。当前正在启动的法律程序，将在未来揭开谜底。
+
+翻译报道：文非
+
+[文章链接](https://www.azcentral.com/story/news/politics/elections/2020/11/12/maricopa-county-republican-party-chair-rae-chornenky-resigns-skipped-election-equipment-test/6263050002/)
 
 0

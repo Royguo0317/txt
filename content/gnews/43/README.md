@@ -1,51 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 立即解雇他！马克-米利（Mark Milley）将军威胁川普总统： &#8220;我们不向国王或皇后、暴君或独裁者宣誓&#8221;
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/553246/)
+## 《酒灭中共》重生反抗极权的酒神精神
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/554794/)
 
-翻译: 康州农场 – 烟波浩淼
+作者：Rianna
+校对：文一乐
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12085106/9a4f32a7-be15-4604-9b9d-85ad2c8a0d9d-1.jpg)
+郭文贵先生的《酒灭中共》这首歌前奏用中华传统乐器唢呐欢跃开场，似乎拉开序幕的感觉，主旨歌词点题，用美酒开启爆料革命的征程，烈酒凝聚了无数力量，让我们无所畏惧，勇往直前！
 
-校对: 康州农场 – Mike Li
+中间用短短地数行歌词，精炼地总结了中共恶灵邪党对中华儿女迫害的历史，让人们回忆过去，重燃复仇的火焰，团结一心开始战斗！
 
-审核：康州农场-Truemanman
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13000954/https___cdn.cnn_.com_cnnnext_dam_assets_201006130844-gen-mark-milley-file.jpg)
-川普总统周一上午解雇了国防部长马克-埃斯珀（Mark Esper ）。
+酒本来是我们勤劳善良的中华祖先发明，酿造的良饮，它是人们欢庆丰收、庆祝节日的礼物。
 
-由担任国家反恐中心主任的克里斯托弗-米勒（Christopher Miller）取代了埃斯珀。
+可是邪恶的共产党却把这么美好的东西变成龌龊的酒桌文化，变成腐败、升官发财、淫乱的必备工具，变为BGY计划必不可少的佐料！
 
-紧接着，周二川普总统又任命卡什-帕特尔（Kash Patel）担任克里斯托弗-米勒的参谋长。
+这恶党就这样糟蹋劳动人民的结晶、我们中华的民间文化！
 
-卡什-帕特尔是国家安全委员会的助手，他是协助众议院情报委员会最高级别成员德文-努内斯（Devin Nunes）的关键人物。
+再者七哥这首歌，很有尼采的酒神精神理念，反叛权力教会，反抗僵化体系，七哥如同酒神一般，带领大家抗争革命，找回人性的美好，重拾人类文明！
 
+这首歌曲旋律跳跃起伏，主副歌配合默契，最后，用七哥特有的家乡方言，常说的口头禅：“莘县阳谷县搭县，咱们走着看！” 成为我们爆料革命战友的号角！
 
-
-> .[@ckubeNBC](https://twitter.com/ckubeNBC?ref_src=twsrc%5Etfw) reports that Trump loyalists Kash Patel, Ezra Cohen-Watnick and Anthony Tata are taking on top posts at the Pentagon today
-> — Allan Smith (@akarl\_smith) [November 10, 2020](https://twitter.com/akarl_smith/status/1326290578372501507?ref_src=twsrc%5Etfw)
-
-
-
-这些最新的举动让华盛顿特区沼泽地陷入了恐慌!
-
-另一位反川普总统的将军、参谋长联席会议主席马克-米利（Mark Milley）将军在周三的一次演讲中向川普总统发出警告。
-
-源引CNN报道
-
-这位美国最高将军马克·米利，在国防部的全面变革中明确表示了对宪法的奉献。 “我们不对国王或王后，暴君或独裁者宣誓。我们不对个人宣誓…我们对宪法宣誓”
-
-米尔利在美军博物馆开幕式上的讲话中说： “与世界上其他军队相比我们是独一无二的。我们不向国王或女王、暴君或独裁者宣誓。我们不向个人宣誓。不，我们不向一个国家、一个部落或宗教宣誓。我们向宪法宣誓， 这所博物馆里所代表的每一位士兵，每一位水兵、空军、海军陆战队、海岸警卫队队员，每一个人都会不计个人得失地保护和捍卫宪法。”。
-
-
-
-> The top US General, Mark Milley made clear his dedication to the constitution amid sweeping changes at DoD. "We do not take an oath to a king or a queen, a tyrant or a dictator. We do not take an oath to an individual…We take an oath to the Constitution" [https://t.co/ZKAI0pVB7O](https://t.co/ZKAI0pVB7O)
-> — CNN NationalSecurity (@NatSecCNN) [November 12, 2020](https://twitter.com/NatSecCNN/status/1326953583615545347?ref_src=twsrc%5Etfw)
-
-
-
-编者评论：川普总统从解雇国防部长埃斯珀起，开启了在五角大楼的新变革，肯定使高级国防官员们感到震惊，他们似乎也开始选边站。在总统选举民主党严重违宪试图破坏公平竞选盗取总统选举，且海量证据已被呈堂供证的时候，米利将军不在这个时刻维护宪法公正，站在正义一边，相反却在五角大楼高级文职领导层大调整后的首次公开讲话中，发出对川普总统的威胁，这很难让人不把这个事件跟华盛顿的沼泽联系在一起，米利将军将何去何从，我们拭目以待。
-
-原文链接：
-
-[https://www.thegatewaypundit.com/2020/11/fire-now-rogue-general-mark-milley-threatens-president-not-take-oath-king-queen-tyrant-dictator/](https://www.thegatewaypundit.com/2020/11/fire-now-rogue-general-mark-milley-threatens-president-not-take-oath-king-queen-tyrant-dictator/)
+(文章内容仅代表作者观点)
 
 0

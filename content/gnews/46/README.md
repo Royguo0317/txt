@@ -1,25 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 『热点播报』中共国移民局：从严审批中国公民旅游等非必要事由出入境证件申请
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/553307/)
+## 中共祝贺乔∙拜登当选美国总统，已晚矣
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/554718/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
+多伦多加喜农场 熊妈妈
 
+上传 XM
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13072452/%E5%9B%BE%E7%89%876-5.jpg)图片来源：bitnovosti.com
+11月13日，彭博社报道，中共领导层祝贺乔∙拜登和贺锦丽在美国2020总统大选中获胜。
 
+11月13日，中共“崴脚部”发言人汪文斌在北京举行的新闻发布会上说：”我们一直在关注美国国内和国际社会对这次美国总统选举的反应，我们尊重美国人民的选择。。”“崴脚部”说的这些冠冕堂皇的话是多么的不要脸，你们是尊重美国人民的选择吗？你们是尊重你们中共既得利益者、和乔∙拜登深度勾兑，意图控制美国，进而控制全世界的盗国贼吧！
 
-作者：香草山写作组程万里
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12232655/11131.jpg)
-北京时间2020年11月12日，国新办召开国务院联防联控机制新闻发布会，移民局副局长尹成基指出，要严格控制不必要人员跨境活动，从严审批中国公民旅游等非必要事由的出入境证件申请，劝阻和限制内地居民旅游、探亲、访友等非必要、非急需出入境活动。疫情暴发以来，中共国已关停46个陆地口岸、66条边民通道。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12232752/11132.jpg)
-从严审批在中共国就是禁止的意思，在美国终于认清邪恶中共之际，中共国却打着疫情外防输入的幌子禁止中国人民的出入境申请，剥夺了其自由出入境的权利，这已经是明目张胆的闭关锁国了。中国人民已经成了中共的挡箭牌，成了奴隶，只有被鱼肉的份了。中共不倒，中国人民永无宁日！
+“我们向拜登先生和哈里斯女士表示祝贺，同时我们理解美国大选的结果会按照美国的法律和程序作出确定，”汪继续说道。是的，乔∙拜登涉嫌选票造假，美国司法系统已经介入，美国的民意也已经觉醒，随着选票造假真相不断的揭露，川普总统会赢得最终的胜利。
 
-审核：浪迹天涯
+中共的声明是在美国现任川普总统签署了一项法令。自2021年1月11日美东时间上午9时30分起，任何美国人不得进行任何中共军事背景相关公司的公开交易证券，或任何衍生证券，或旨在为此类证券提供投资风险的证券的交易；以及确定某人为中共军工公司后60天开始，任何美国人对该人的公开交易证券，或任何衍生证券，或旨在为该证券提供投资风险的证券进行任何交易。
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+川普总统指出，美国对中共解放军关联的公司的投资，是纵容中共加强其防御能力，这是对美国的威胁。
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+而乔∙拜登及其家族与中共深度勾兑，不断出卖美国国家和人民的利益。
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06235914/GNEW-GTV-MOS-LOGO.jpeg)
+在2020年8月中旬，川普总统在接受福克斯新闻采访时表示，“如果他赢得2020总统大选，可能会终止与中共国的业务。”
+
+2020年9月，川普总统承诺，如果他在未来四年赢得选举，美国将成为”世界制造业超级大国”，并补充说，”我们将一劳永逸地结束对中共国的依赖。”
+
+在美国2020总统大选如火如荼进行时，也是美国真正的民意与乔∙拜登选票造假激烈交锋之时，川普政府大锤终于砸向了邪恶的中共，迈着坚实的步伐向与中共脱钩的方向前进。中共知道自己命不久矣，终于跳了出来，但是，一切都晚了！
+
+参考链接：：[https://www.whitehouse.gov/presidential-actions/executive-order-addressing-threat-securities-investments-finance-communist-chinese-military-companies/](https://www.whitehouse.gov/presidential-actions/executive-order-addressing-threat-securities-investments-finance-communist-chinese-military-companies/)
+
+[https://www.bloomberg.com/europe](https://www.bloomberg.com/europe)
+
 0
