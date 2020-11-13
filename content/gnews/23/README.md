@@ -1,27 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评】11/10/2020 早间节目
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/553045/)
+## 没有川普总统和朱利安尼先生就不会有我们6.4在曼哈顿的成功举行
+` GM31` [轉載自GNews](https://gnews.org/zh-hans/554145/)
 
-听写：明台 校对：明台 简介：恩真 文宣图：艾伦 出品：首尔喜韩农场
+郭先生在其[11月11日的GTV直播](https://gtv.org/video/id=5fac3b6bbd0d464fadff36a4)中表达对川普总统和朱利安尼先生的感谢，他强调：“没有川普总统，我们的64 在曼哈顿不可能成功举行。大使馆来骚扰都没成功。人要有良心啊。川普总统不是神，他是个人，他有他的毛病，但是人家对我们太好了。那绝对是我们中国人的历史上最伟大的一天。全世界只有我们做出了正确的判断，我们不是投机主义者，现在我们得到了全世界，全美国人的尊重。未来要发生的事儿，你们想都不敢想。”
 
-简介：
+*听写：【宝宝】翻译：【noraTina】字幕：【Pamila（文明）】编辑：【GM31】视频编码：【恒久忍耐】*
 
-1.很多国家领导人还在沉默等最终结果。
+*战友之家玫瑰园小队出品*
 
-2.川普总统已经整合完共和党内部。
-
-3.宾州养老院25000投票是操作结果。
-
-4.第三方势力就是中共。
-
-5.参议院老大和小布什都反转站出来了。
-
-6.中共通过媒体逼拜登支持者走极端。
-
-7.辉瑞在给拜登站台。
-
-文宣图：
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13020811/1-59.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13022015/2-102.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13022050/3-64.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13023210/4-36.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13023213/5-34.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13023351/6-36.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13023342/7-22.png)
-0
+1+

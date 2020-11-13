@@ -1,26 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【国内快讯】中科院深理工聘归国学者，“千人计划”由明转暗
-` Ronald` [轉載自GNews](https://gnews.org/zh-hans/554282/)
+## 【路德社精选】 11/10/2020 晚间节目
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/554101/)
 
-内新闻/素材：鹰(文言) 校对：雅典娜的圣斗士(沙加)
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13042428/image0-2-4.jpg)
-澎湃网11月12日报道，近日中科院深圳理工大学公布了加拿大皇家科学院院士王玉田和美国宾夕法尼亚大学病理学终身教授陈有海的全职聘书。
+听写：叮叮当 校对：明台 简介：恩真 文宣图：艾伦 出品：首尔喜韩农场
 
-王玉田是加拿大不列颠哥伦比亚大学脑研究中心终身教授，在学习记忆障碍、脑中风、癫痫、药物成瘾等重大中枢神经系统疾病的特异性药物开发中有显著成果。今年9月份回国后，担任中科院深理工生命健康学院院长。
+**简介：**
 
-陈有海在免疫应答的调节、免疫性疾病的发病机制及治疗等诸多领域有显著成果，在《科学》、《细胞》、《自然》等国际顶尖杂志中发表论文150余篇，回国后担任中科院深理工药学院院长。
+1.中共渗透最严重的北卡被川普总统拿下。
 
-近年来，中共借由“千人计划”派遣大量学者出国“深造”，并大肆蓝金黄西方华裔资深人士，通过此方式将西方疾病研究、疫苗开发、AI、量子计算机等诸多领域的海量先进技术盗为私用。
+2.川普还将继续赢得胜利。
 
-借由“千人计划”，中共前沿科技飞速发展，但由于中共邪恶的本质，科技在其手中变成了谋害全人类的工具，不但石正丽的功能增强性实验“源自”美国，CCP病毒的大量技术源头均可回溯到西方技术中。
+3.国务院保存美国国玺。
 
-王玉田和陈有海的“回巢”可以看作中共在“千人计划”暴露后继续采取的“以聘为盗”，通过回国任职的方式继续唆使学者将身负的先进科学研究献于中共邪恶计划。
+4.蓬佩奥发言支持川普总统。
 
-其中陈有海主攻免疫性疾病的发病机制，所以不能排除其参与到“CCP病毒簇”或Plus病毒株开发以及假疫苗后续的可能，但“兔死狗烹”，无论是张首晟还是刘兵，卖命中共的下场只能是被灭口。
+5.建制派与西点派一致支持川普总统。
 
-新闻来源：
-[https://www.thepaper.cn/newsDetail\_forward\_9959854](https://www.thepaper.cn/newsDetail_forward_9959854)
+6.CIA如果不支持麦康奈尔可以进行质疑。
 
-1+
+7.想在众议院待下去就要与议长搞好关系。
+
+8.共和党会继续执掌参议院。
+
+9.佩洛西议长位置岌岌可危。
+
+10.众议院议长位置非常关键。
+
+11.佩洛西在民主党的影响力下降了。
+
+12.国务卿的言行是给其他国家听的。
+
+13.CIA局长今天会见麦康奈尔。
+
+14.弹劾总统时佩洛西起了很大作用。
+
+15.辉瑞疫苗是有问题的。
+
+16.疫苗安全性要追踪很长一段时间。
+
+**文宣图：**
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13030340/1-60.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13030743/2-103.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13031153/3-67.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13031734/4-37.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13033332/5-35.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13033510/6-38.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13033933/7-23.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13033932/8-20.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13035904/9-16.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13035909/10-15.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13035917/11-16.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13041050/12-5.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13041059/13-8.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13041137/14-5.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13041149/15-9.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13041151/16-6.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13041201/17-9.png)
+
+
+0
