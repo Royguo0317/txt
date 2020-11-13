@@ -1,79 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】醒来吧～我的同胞
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/553552/)
+## 【路德时评】11/10/2020 早间节目
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/553045/)
 
-作者 ：youyou
+听写：明台 校对：明台 简介：恩真 文宣图：艾伦 出品：首尔喜韩农场
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06235914/GNEW-GTV-MOS-LOGO.jpeg)
+简介：
 
+1.很多国家领导人还在沉默等最终结果。
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13012312/%E5%9B%BE%E7%89%8732.png)
-这个世界你不知道
+2.川普总统已经整合完共和党内部。
 
-每天被谎言笼罩
+3.宾州养老院25000投票是操作结果。
 
-从小我们被教
+4.第三方势力就是中共。
 
-共产党伟大把中国领导
+5.参议院老大和小布什都反转站出来了。
 
-后来发现
+6.中共通过媒体逼拜登支持者走极端。
 
-私产充公，土地收缴
+7.辉瑞在给拜登站台。
 
-百姓还要开心说党好
-
-从小我们被教
-
-主席伟大，领导重要
-
-后来发现
-
-孩子被娈，领导先跑
-
-百姓还要闭嘴不能吵
-
-从小我们被教
-
-好好学习把祖国建好
-
-后来发现
-
-国家姓党，人民徒劳
-
-百姓还要爱国是首要
-
-从小我们被教
-
-疫苗可以让我们远离病扰
-
-后来发现
-
-疫苗图财，无关病扰
-
-百姓还要有冤不能讨
-
-从小到大
-
-我们被谎言萦绕
-
-奴才一样，为党效劳
-
-爆料革命
-
-开启智慧
-
-战友们
-
-一起唤醒我们沉睡的同胞
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上8:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
+文宣图：
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13020811/1-59.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13022015/2-102.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13022050/3-64.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13023210/4-36.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13023213/5-34.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13023351/6-36.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13023342/7-22.png)
 0

@@ -1,32 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拒绝被审查 数以百万计用户逃离脸书和推特
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/552703/)
+## 【热点播报】选举舞弊众谜之一：投票机如何变成偷票机？
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/552882/)
 
-多伦多加喜农场 熊妈妈
+作者：纽约香草山商业部  Nanfeng99
 
-校对上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12195705/%E9%80%83.jpg)图片来自WSJ
-11月12日，媒体报道，因为在美国2020总统大选期间脸书和推特奉行的所谓审查政策，使得用户不断离开其社交网络。与此同时，其他公司社交网络的受众已经有着数百万用户增长量。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
 
-虽然脸书老总马克·扎克伯格（Mark Zuckerberg）否认他们存在审查，但是用户已经注意到脸书经常给川普总统打上政治偏见的标签。
 
-目前，数以百万计的用户转至到了社交网络Parler和Rumble。在11月3日美国总统大选后的一周，Parler用户的账户数量增至800万，Rumble的关注量高达7500万。 而在美国总统大选之前，这些社交网络 —— 脸书和推特的竞争对手只是拥有450万用户和大约1000万次关注量。
 
-用户对IT巨头的信息政策以及他们对政治家和活动家的”审查”感到不满。
 
-脸书和推特自己否认审查指控。与此同时，用户对推特公司在美国川普总统的推文和帖子下的”警告”政策非常不满，推特公司主观对川普总统的这些推文和帖子标注为信息不可靠。 讽刺的是，川普总统的竞争对手乔∙拜登却没有这样特殊的待遇。
 
-2020年6月，脸书管理删除了川普总统竞选总部许多人的帖子，指出这些帖子违反了其平台规则。此外，推特将川普总统的帖子之一标记为”包含捏造的内容”。在帖子中，川普总统斥责激进的安提法（Antifa）团体参与了美国一些州的骚乱。
+#  
 
-唯真不破是我们爆料革命战友坚持的准则，在美国2020总统大选前，战友们通过G-TV、GNEWS不断爆出乔·拜登的工具儿子亨特·拜登的性丑闻以及拜登家族与中共深度勾兑的事实，还通过脸书和推特向世人广传。战友们传播的是经法律认证的关于拜登家族罪恶的实锤证据，脸书和推特却无底线地禁封了成千上万个战友账号，无耻行径充分暴露其与中共的深度勾结，完全撕下了所谓中立媒体人的虚假面皮，直接上阵厮杀。
+##### 
 
-现在，川普总统及团队经过努力，不断揭露出乔·拜登选票造假的事实，美国民意已经觉醒，美国的司法部门也已介入彻查选票造假事件。相信川普总统一定可以赢得美国2020总统大选。届时，脸书和推特会从幻梦中惊醒吗？他们已经彻底摒弃了做人应有的良知，一定会为此付出法律的巨大代价。
+# 
 
-参考链接：
 
-[https://www.gazeta.ru/tech/2020/11/12/13358095/conservatives\_quit.shtml](https://www.gazeta.ru/tech/2020/11/12/13358095/conservatives_quit.shtml)
+
+11月10号，Dr. Shiva Ayyadurai发了一则推文，推文含有一段长达1个多小时的视频，很快引起众人关注。当然，这则推文随即被推特标注。推文视频题目为“MIT PhD analysis of Michigan votes reveals unfortunate truth of U.S.voting
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12214130/unnamed-file-28.png)
+systems”，即麻省理工博士对密歇根州选票的分析揭露了美国选举系统的不幸真相。其中，Dr. Ayyadurai 介绍了他如何设计算法来对2020美国大选中密歇根州的数据进行分析模拟。他的结论是，投票机在偷票，即把川普的票偷偷算成拜登的票！而且偷票算法他也找到了！
+
+Dr. Ayyadurai设计的算法对选举数据模拟得很好，但拟合曲线发现一个现象：越红的区，反川的比例越高！这个奇怪的结论只有一个合理的解释：这是算法操纵的数据！而这个算法很简单**：**（1）在蓝区，共和党选票本来就少，偷票容易露馅，所以不改动；（2）稍微泛红的地区，开始偷票，把川普的选票自动算成拜登选票；（3）越红的地区，偷票比例越高。
+
+Dr.
+
+
+|  |
+| --- |
+|  |  |
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12214624/unnamed-file-29.png)
+Ayyadurai的发现同时表明，从机器偷票角度来看，选票舞弊盯着民主党大城市来查的做法可能是不对的。因为机器偷票是越红的选区越严重，所以共和党传统红区更要查。深蓝大城市则要盯紧人工偷票等问题，因为这些地方有可能机器偷票都没有启动。
+
+#  
+
+###### Dr. Ayyadurai算法的详细解读请见网名“千里走单骑”的网文“投票机变成偷票机，MIT博士图解选举舞弊”（ [https://callvoter.com/dr-shiva-dominion-votes-stealing-michigan-election-fraud/](https://callvoter.com/dr-shiva-dominion-votes-stealing-michigan-election-fraud/)）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12215153/unnamed-file-31.png)更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，纽约时间周日至周四晚上9:00，美国志愿者在纽约香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和
+ [chat-room](https://discord.gg/NVAqpNj)与您相约！
+ 
+ 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
+
+
 
 
 

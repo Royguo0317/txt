@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【字幕】11/11/2020文贵：相信病毒是生化武器，就不会有疫苗
-` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/552552/)
+## 11/12/2020 每日快讯
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/552914/)
 
-制作： 【彩虹桥】
-
+2020年11月12日 每日快讯 制作：战友之家粤语频道
+主播：【闪电】 资料收集：【Elaine Lei 】【Cathy】【Ruby】【三鑫】【文静】 视频制作：【咸鱼】
 0
