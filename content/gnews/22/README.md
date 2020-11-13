@@ -1,23 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆革星评：软件公司三证人自揭造假方案 盗取川普3800万选票
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/552509/)
+## 重磅！总统大选系列（十三）：奥斯卡金像奖得主乔恩·沃伊特称总统选举是正义与撒旦的战斗
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/552763/)
 
-多伦多加喜农场 文星（一号）
+视频字幕：文府；听写/翻译：势不可挡；翻译校正：TCC；配乐：500 Miles
+简评：势不可挡；文字整理/编辑：Julia Win ；Page：拱卒
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12190529/whistleblow.jpg)图片来自 Public Services International
-11月11日，据国家新闻平台报道，参与美国总统大选的计票软件公司Dominion，有三位职员挺身而出自揭内幕，声称他们的软件更改、盗取了川普总统3800万票。
+**简评：**
 
-据这些爆料人称，Dominion设计了操控软件进行选票切换使拜登超出，这是民主党人的第一方案，邮寄投送假票仅是他们备用的第二方案。 之所以在选举之夜临时停止点票，是因为没想到支持川普的选票太多，该软件无法按第一方案更改出拜登胜选的点票效果。而在停止点票期间，民主党人用货车将作假的选票运送到计票点填补空缺。
+乔恩·沃伊特（Jon Voight）曾获得一项奥斯卡金像奖，并获得了4项提名。他还获得了4项金球奖，并获得了11项提名。他是女演员安吉丽娜·朱莉和演员詹姆斯·黑文的父亲。近日，沃伊特公开表示对“拜登当选”这个谎言感到厌恶，那些为喜悦而跳出的人正朝着将要到来的恐惧跳去，左派给美国人民的承诺将永远不会实现。他还表示，这次美国大选是自南北战争以来的最大战役，这是正义对撒旦的终极之战。他明确指出这次选票计数就像左派一样腐败。最后，他引用拳王穆罕默德·阿里（Muhammad Ali）的名言，“直到你击出最后一拳才算结束”，以呼吁为川普的胜利而战。沃伊特作为影视明星站出来为正义发声，表明了好莱坞正义人士的觉醒。
 
-川普总统私人律师、原纽约市长和检察官朱利安尼（Rudy Giuliani）说，这三个勇敢站出来的吹哨人，愿意就所发生的事情宣誓作证。
+**奥斯卡金像奖和全球奖获得者Jon Voight的讲话**
 
-在最伟大的民主国家美国，我们看到了美国历史上最大造假丑闻案的越来越多的证据，这令数以千万计美国公民的合法选举权受到侵害。但拜登集团盗取的选票，最终会依法返回给川普总统，结果就是川普继续当总统，拜登开始蹲监狱。
 
-参考链接：
 
-[https://halturnerradioshow.com/index.php/en/news-page/news-nation/voting-software-company-whistleblowers-come-forward-claim-their-software-changed-38-million-votes-stole-election](https://halturnerradioshow.com/index.php/en/news-page/news-nation/voting-software-company-whistleblowers-come-forward-claim-their-software-changed-38-million-votes-stole-election)
+我的同胞们，我带着所有这些感受站在这里：我对＂拜登当选＂这个谎言感到厌恶，好像我们都不知道背后的真相。当一个人试图欺骗时，我们知道他无法摆脱这个谎言，会付出代价的。
+
+现在，那些为喜悦而跳出的人正朝着将要到来的恐惧跳去，因为我知道，左派给美国人民所做出的承诺将永远不会实现。
+
+我的各个种族和宗教信仰的朋友：这是自南北战争以来的最大战役，这是正义对撒旦的战斗，
+
+是的，撒旦。因为这些左派是邪恶的，腐败的，他们想推翻这个国家。
+
+我们绝不允许这样，我们必须与已经发生的腐败战争，并为似乎已经丧失的正义而战。
+
+让我们信任上帝，现在就为川普的胜利而战，因为我们都知道这次选票计数就像左派一样腐败。因此，我们不要退缩，让我们为这场战斗而战，当作这是我们在地球上的最后一搏。就像穆罕默德·阿里所说的那样，直到你击出最后一拳才算结束。上帝保佑。
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+编辑：【喜马拉雅战鹰团】-点击spark adobe版
+
+[!\[\]()!\[\](https://spark.adobe.com/page/BFGZ6TRI6edrB/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/BFGZ6TRI6edrB/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0
