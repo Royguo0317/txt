@@ -1,33 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共祝贺乔∙拜登当选美国总统，已晚矣
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/554718/)
+## 11/13 财经快讯: 川普签发行政令, 中共军企被禁; 500亿芯片股“爆雷”信用债“风暴”来袭!
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/554761/)
 
-多伦多加喜农场 熊妈妈
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13072801/Picture60.png)图片来源：[http://www.szcifco.com/](http://www.szcifco.com/jrqh/llqh/27480.html)
+1.美股三大指数涨跌不一，欧洲股市集体下跌。道指跌0.52%，纳指涨0.34%，标普500指数跌0.36%。欧洲主要股市集体下跌，法国CAC40指数跌1.6%，德国DAX指数降1.23%，英国富时100指数跌1.28%。港股方面，恒生指数低开0.21%。港股中国电信低开4.81%、中国移动低开5.79%，中国联通跌3.38%。
+[https://kuaixun.stcn.com/cj/202011/t20201112\_2528796.html](https://kuaixun.stcn.com/cj/202011/t20201112_2528796.html)
 
-上传 XM
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13072452/%E5%9B%BE%E7%89%876-5.jpg)图片来源：bitnovosti.com
-11月13日，彭博社报道，中共领导层祝贺乔∙拜登和贺锦丽在美国2020总统大选中获胜。
+2.重磅！川普政府11月12日签行政令，禁止美国人投资中共军企。这项命令特别针对31家美国国防部在6月和8月认定为“共产主义中共军事公司”的中共国公司，其中包括华为、中国电信、中国移动以及生产监视设备的海康威视等。
+[https://www.voachinese.com/a/trump-executive-order-investment-ban-china-20201112/5658746.html](https://www.voachinese.com/a/trump-executive-order-investment-ban-china-20201112/5658746.html)
 
-11月13日，中共“崴脚部”发言人汪文斌在北京举行的新闻发布会上说：”我们一直在关注美国国内和国际社会对这次美国总统选举的反应，我们尊重美国人民的选择。。”“崴脚部”说的这些冠冕堂皇的话是多么的不要脸，你们是尊重美国人民的选择吗？你们是尊重你们中共既得利益者、和乔∙拜登深度勾兑，意图控制美国，进而控制全世界的盗国贼吧！
+3.澳中关系持续恶化，中共暂停进口澳大利亚原木。11月12日中共外交部证实了中共已经暂时停止从澳大利亚维多利亚州进口木材。在此之前，中共已经停止了进口澳大利亚昆士兰州的原木。这次又停止进口维多利亚州的原木，观察澳中关系发展的人士指出，这是中共对澳大利亚报复行动的又一次升级。
+[https://www.voachinese.com/a/China-confirms-ban-on-some-Australian-timber-imports-20201112/5658240.html](https://www.voachinese.com/a/China-confirms-ban-on-some-Australian-timber-imports-20201112/5658240.html)
 
-“我们向拜登先生和哈里斯女士表示祝贺，同时我们理解美国大选的结果会按照美国的法律和程序作出确定，”汪继续说道。是的，乔∙拜登涉嫌选票造假，美国司法系统已经介入，美国的民意也已经觉醒，随着选票造假真相不断的揭露，川普总统会赢得最终的胜利。
+4.11月10日，河南永城煤电控股集团有限公司（永煤集团）10亿元超短融“20永煤SCP003”到期未能兑付，构成实质性违约。永煤控股母公司——河南能源化工集团是河南最大国企之一，主体评级同样为AAA，存续期债券规模庞大；永煤控股的违约有可能引发起存续期债券交叉违约。“20永煤SCP003”违约后，中诚信国际已将两家公司主体信用评级从AAA瞬间降至BB。
+[https://jp.reuters.com/article/china-ym-bond-default-regs-1113-idCNKBS27T0GF](https://jp.reuters.com/article/china-ym-bond-default-regs-1113-idCNKBS27T0GF)
 
-中共的声明是在美国现任川普总统签署了一项法令。自2021年1月11日美东时间上午9时30分起，任何美国人不得进行任何中共军事背景相关公司的公开交易证券，或任何衍生证券，或旨在为此类证券提供投资风险的证券的交易；以及确定某人为中共军工公司后60天开始，任何美国人对该人的公开交易证券，或任何衍生证券，或旨在为该证券提供投资风险的证券进行任何交易。
+5.500亿市值的芯片龙头紫光国微突遭利空，公司债被降级，早盘触及跌停，半日蒸发市值55亿！11月10日至今，紫光国微累计跌幅近20%，蒸发市值超130亿。紫光集团债务隐忧是紫光系个股大跌主因。11月12日，中诚信国际决定将紫光集团有限公司主体信用等级由AAA调降至AA，并继续列入可能降级的观察名单。
+[http://www.nbd.com.cn/articles/2020-11-13/1547350.html](http://www.nbd.com.cn/articles/2020-11-13/1547350.html)
 
-川普总统指出，美国对中共解放军关联的公司的投资，是纵容中共加强其防御能力，这是对美国的威胁。
+6.千余股套现3300多亿，19股减持幅度超10%，25只绩差股遭重要股东密集减持金额超过20亿。海康威视以107.64亿元排名第一，宁波银行次之，减持金额为106.36亿元，此外减持金额居前的还有隆基股份、宁德时代、智飞生物、立讯精密等。减持金额较大的个股中，电子股、医药股扎堆，前30中多达14只属于电子或医药生物行业。
+[https://stock.stcn.com/gsdt/202011/t20201113\_2528932.html](https://stock.stcn.com/gsdt/202011/t20201113_2528932.html)
 
-而乔∙拜登及其家族与中共深度勾兑，不断出卖美国国家和人民的利益。
+By 【秘翻组 – 金融法律团队-Tracy】
 
-在2020年8月中旬，川普总统在接受福克斯新闻采访时表示，“如果他赢得2020总统大选，可能会终止与中共国的业务。”
-
-2020年9月，川普总统承诺，如果他在未来四年赢得选举，美国将成为”世界制造业超级大国”，并补充说，”我们将一劳永逸地结束对中共国的依赖。”
-
-在美国2020总统大选如火如荼进行时，也是美国真正的民意与乔∙拜登选票造假激烈交锋之时，川普政府大锤终于砸向了邪恶的中共，迈着坚实的步伐向与中共脱钩的方向前进。中共知道自己命不久矣，终于跳了出来，但是，一切都晚了！
-
-参考链接：：[https://www.whitehouse.gov/presidential-actions/executive-order-addressing-threat-securities-investments-finance-communist-chinese-military-companies/](https://www.whitehouse.gov/presidential-actions/executive-order-addressing-threat-securities-investments-finance-communist-chinese-military-companies/)
-
-[https://www.bloomberg.com/europe](https://www.bloomberg.com/europe)
-
-0
+3+

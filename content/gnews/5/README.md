@@ -1,30 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 底特律记票现场欺诈行为被目击
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/554379/)
+## “儿戏”选举 美国选票机器竟不提前进行测试？
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/554506/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13044806/2-104.png)图片来源：&lt;&lt;时代杂志&gt;&gt;
-据《大纪元》报道，多米尼克（Dominion）软件承包商梅利莎·卡隆（Melissa Carone），在一份新的宣誓书中指出，她于大选当日在底特律选票点亲眼目睹“欺诈性行为”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13052743/2-106.png)
+马里科帕县共和党主席Rae Chornenky已经辞去职务，因为民主党人指责她在选举前没有对选举计票机器进行测试。测试是向公众开放的，在每次选举前后进行，以证明制表设备和投票设备的准确性。
 
-在TCF中心从事IT工作的卡隆女士从11月3日从凌晨6:15工作到第二天凌晨4点，然后于11月4日再回去工作几个小时。卡隆女士在宣誓书中表示，她所看到的只有满眼的欺诈行为。
+Chornenky是一名律师，她得到了该州共和党的支持。但她与该州共和党内部的右翼分子长期存在冲突。
 
-她看到工作人员将某些选票记数了4，5次之多，甚至一位工作人员对一批选票记数了8次。卡隆女士也宣称，她看到工作人员收到字迹不清或撒有污渍的选票后，自己填写了空白选票。“他们填写的空白选票本应与收到的选票内容完全一致，但事实并非如此。记票人员还会在选票上代签选票所属人名字，这显然是非法的。”她说道。
+要求她下台的呼声始于马里科帕县民主党主席Stephen Slugocki，他在推特上提醒公众，Rae Chornenky10月份没有对选举设备进行相关测试。马里科帕县民主党主席Slugocki在Twitter上透露，她始终没有进行选票机器的测试。
 
-卡隆说：“我找到了我的经理尼克·伊科诺纳基斯（Nick Ikonornakis），告诉他这是个很大的问题。尼克回答我，他不想听到我们有一个大问题。 他说，我们是在这里协助IT工作，而不是举行选举。”卡隆补充说，她已就所见情况，联系了联邦调查局。
+设备软件出现故障，问题就出在这台Dominion Voting Systems的新选票制表机。一些共和党人声称该机器把川普总统的选票改成了拜登的。
 
-卡隆女士的宣誓书是对密歇根州有关选票欺诈行为法律诉讼的有力补充。
+推特内容：
 
-该诉讼是本周由大湖区司法中心代表谢丽尔·科斯坦蒂诺（Cheryl Costantino）和爱德华·麦考尔（Edward McCall）交出的。原告声称，由于多重违规行为，韦恩县的选举应作废。该中心高级顾问戴维·卡尔曼（David Kallman）告诉《大纪元时报》：“显然，主要的问题是，在韦恩县的记票过程中发生了明显的欺诈行为，甚至那里的工作人员是在制造投票方式。”
+Rep. Kelly [email protected]·11月10日
 
-另一方面，底特律市首席律师戴维·芬克（David Fink）在给《大纪元》的电子邮件声明中反驳该诉讼是“毫无根据的指控，试图破坏人们对一场大选的信心。”他补充说：“与之前两次诉讼相似，此案并非基于任何选举欺诈或不当行为的实际证据。”
+“我刚刚发现马里科帕县GOP主席Rae Chornenky的名字没有出现在Dominion/机器的认证上。 因此我要求她和她的第一副主席一起辞职。”
 
-该诉讼之所以引人注目，是因为其中包含来自民意观察员的五份宣誓书和来自底特律市一名工作人员的六份宣誓书，所有这些宣誓人都见证了选举欺诈。
+在10月6日的一则Twitter中，Slugocki和民主党国务卿Katie Hobbs坐在一张桌子旁。
 
-评论：中共原本企图利用释放病毒，控制媒体，来达到操纵美国大选，剥夺美国人民选举权利，最终控制整个世界的目的。然而当美国人民亲眼看到自己引以为豪的价值观，选举权被操纵践踏，无法视而不见，纷纷勇敢站出来，把各种欺诈公之于众。美国民意已觉醒，公正的大选结果一定会给人民一个满意的答案。
+“测试后的最终统计结果，”他在Twitter上写道。”我很高兴地报告，机器有100％的准确性。……马里科帕县的投票机已经准备好，明天就可以开始投票，我们都应该对结果充满信心！”
 
-[原文链接](https://www.theepochtimes.com/dominion-contractor-says-she-witnessed-fraudulent-actions-in-detroit-during-ballot-counting_3576395.html)
+他当时写道，共和党和自由党的官员被邀请，但最终并没有到场。
 
-翻译: Ronnie
+
+
+> One of my legal responsibilities as County Chair is to conduct the accuracy tests of the voting machines and certify they are counting ballots correctly. I sat with Arizona Secretary of State [@SecretaryHobbs](https://twitter.com/SecretaryHobbs?ref_src=twsrc%5Etfw) and we verified 
+> 1/ [pic.twitter.com/zYeAq2LbUU](https://t.co/zYeAq2LbUU)
+> — Steven Slugocki (@Slugocki) [October 7, 2020](https://twitter.com/Slugocki/status/1313647249684004864?ref_src=twsrc%5Etfw)
+
+
+
+**评论**：4年一度的美国大选是美国政权交接的关键，每当此时便吸引了全世界的眼光。因此，选票机器的测试是极为重要的一项工作，但是却发现马里科帕县的共和党主席却如此不重视，大选最重要的机器竟然不测试。而这个案例也许只是个个例，其他州县的情况我们不得而知，但是美国大选在3号晚上出现了停止计票后，第二天呈现的滑稽结果已经严重影响了美国大选的正常进行。正巧选票机器也出现故障，让这一切都变得扑朔迷离。当前正在启动的法律程序，将在未来揭开谜底。
+
+翻译报道：文非
+
+[文章链接](https://www.azcentral.com/story/news/politics/elections/2020/11/12/maricopa-county-republican-party-chair-rae-chornenky-resigns-skipped-election-equipment-test/6263050002/)
 
 0
