@@ -1,93 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统竞选律师Lin Wood指出：中共用COVID和Dominion攻击美国
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/555171/)
+## 路德社解析彭佩奥对台言论及中共限制公民出境
+` GM06` [轉載自GNews](https://gnews.org/zh-hans/554348/)
 
-整撰：文錦
-复核：文非
+文章撰写：【重生】
 
-随着选举欺诈和投票系统故障的证据大量浮出水面，川普政府在当地时间周四（12日）宣布进入紧急状态，颁布了《关于解决为中共军事公司融资的证券投资构成威胁》的行政命令。同日，川普总统在Twitter上发推声称，“ DOMINION夺走了全美国270万张川普的选票”。
+《路德时评》2020年11月13日早间节目继续跟进美国大选选票事件，朱利安尼先生接受采访时声称，有足够证据锁定川普总统胜利。路德社解析两条重磅新闻：1、彭佩奥国务卿接受媒体采访时声称台湾从来就不是中共国的一部分，2、中共国限制公民出境，即将发生大事。
 
-川普总统竞选律师林-伍德（Lin Wood）随即也发布了一系列推文，均剑指中共是美国选举欺诈行为的幕后推手。并警告说，中共以COVID19和Dominion袭击了美国。
+一、朱利安尼先生接受FOX采访时说
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13095033/2-109.png)川普总统和竞选律师林-伍德（Lin Wood）
+朱利安尼先生昨日接受FOX 著名主持人Lou Dobbs采访时说[1]：他已经在联邦州和密歇根州发现足够多的非法选票，逐步推翻现有选举结果，从而锁定川普总统。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13101929/image-22.jpeg)
+即昨天路德社分析宾州法官否决州务卿行政命令后，朱利安尼还关注到宾州和密歇根州有大量的非法选票，从朱利安尼先生本次采访内容可以看清他两方面表态：第一是他已有足够多的证据将这些选票定义为非法选票，第二是他有足够多的信心说服大法官将这些选票判为非法选票。
 
-*川普总统在推文中指出，DOMINION在全美范围内删除了270万张川普的选票。数据分析发现有221,000张宾夕法尼亚州的选票从川普总统转到拜登。941,000张川普选票被删除。使用DOMINION投票系统的州将435,000张选票从川普转到拜登。”*川普总统的该条推文已被推特公司标签为“有争议的内容”。
+现在所有涉及选票的官司都是民事诉讼，最终要进入最高法裁决，而美国司法部将走刑事裁决，一定会将此次选票事件和中共关联，最终将矛头直指中共。只要直指中共，这就不需要走司法程序，总统可以在“紧急状态”下依据情报信息直接针对中共采取行动。
 
+二、彭佩奥国务卿：台湾从来就不是中共国的一部分
 
+自由亚洲电台发推声称[2]：美国国务卿蓬佩奥周四接受美国一家电台采访，特别提到台湾蓬佩奥表示，台湾从来不是中国的一部分，里根政府制定对台政策时就已承认此事，且美国已经坚守了35年，两党都依循，也是跨党派的事实台湾总统府回应，中华民国是一个主权国家，这是不争的事实。
 
-> “REPORT: DOMINION DELETED 2.7 MILLION TRUMP VOTES NATIONWIDE. DATA ANALYSIS FINDS 221,000 PENNSYLVANIA VOTES SWITCHED FROM PRESIDENT TRUMP TO BIDEN. 941,000 TRUMP VOTES DELETED. STATES USING DOMINION VOTING SYSTEMS SWITCHED 435,000 VOTES FROM TRUMP TO BIDEN.” [@ChanelRion](https://twitter.com/ChanelRion?ref_src=twsrc%5Etfw) [@OANN](https://twitter.com/OANN?ref_src=twsrc%5Etfw)
-> — Donald J. Trump (@realDonaldTrump) [November 12, 2020](https://twitter.com/realDonaldTrump/status/1326926226888544256?ref_src=twsrc%5Etfw)
+此新闻重点在于昨日川普总统发布行政命令之后爆出的，该时间点意味深长。昨日川普总统宣布进入“紧急状态”并宣布要制裁有中共军方背景的中共实体，随即中共外交部发言人声称：祝贺拜登当选美国总统。
 
+彭佩奥国务卿此言明确美国政府对台政策，他发言中强调“中共国”，此处“中共国”是一政治词汇，也预示美国彻底推翻三个联合公报[3]。中共习总书记一定会就此作出强硬回应。
 
+三、中国移民局发文严控本国公民出境旅游
 
-川普总统竞选律师林-伍德（Lin Wood）随即也发布了一系列推文，声称中共已经渗透美国，他们就是选举舞弊的幕后黑手，并警告说中共用COVID19和Dominion攻击美国。
+中新网11月12日电 国家移民局副局长尹成基12日表示，为外防输入，国家移民管理局严格控制不必要人员跨境活动。从严审批中国公民旅游等非必要事由的出入境证件申请，劝阻和限制内地居民旅游、探亲、访友等非必要、非急需出入境活动。[4]
 
-*–**美国梦永远不会被中共破坏。*
-
-*–**我们的国家正在与中国共产党交战。他们用威权和统治攻击我们。.*
-
-*–**坚强点，爱国者。坚强点，爱国者们，救援已经在路上了。中国共产党永远不会夺走我们的自由。*
-
-*–**醒醒吧，美国人**醒醒吧，美国人，面对现实吧*
-
-*在过去的20**年里，共产党中国已经渗透到了美国。*
-
-*许多地方、州和国家的政府官员和政治家都被中共的金钱所腐蚀，并且/**或者是中共敲诈的对象。还有一些人只是相信共产主义。*
+该文件意味着中共将进入闭关锁国，旅游、探亲和访友都被禁止，这意味着普通百姓基本无法出境，只有中共认可的人才可以出境。这是否也意味着中共已意识到大战即将来临，此前爆料革命就多次提醒各位战友不要回国，回国后再出境将非常困难，现再次得到验证。
 
 
 
-> Wake up America. Face TRUTH.
-> 
-> Over last 2 decades, Communist China has infiltrated the United States.
-> 
-> Many local, state & national government officials & politicians have been corrupted by Chinese money &/or are subjects of extortion by China. Others simply believe in Communism.
-> — Lin Wood (@LLinWood) [November 12, 2020](https://twitter.com/LLinWood/status/1326891024610971653?ref_src=twsrc%5Etfw)
+参考文章：
 
+- [https://twitter.com/bonsandcake/status/1327035272891129858](https://twitter.com/bonsandcake/status/1327035272891129858)
+- [https://twitter.com/RFA\_Chinese/status/1327116605600382976](https://twitter.com/RFA_Chinese/status/1327116605600382976)
+- [https://zh.wikipedia.org/zh-hans/%E4%B8%AD%E7%BE%8E%E4%B8%89%E4%B8%AA%E8%81%94%E5%90%88%E5%85%AC%E6%8A%A5](https://zh.wikipedia.org/zh-hans/%E4%B8%AD%E7%BE%8E%E4%B8%89%E4%B8%AA%E8%81%94%E5%90%88%E5%85%AC%E6%8A%A5)
+- http://www.chinanews.com/gn/2020/11-12/9336996.shtml
 
-
-***–******基本的战争法则是识别敌人。***
-
-***我们的国家正在与共产主义中国交战。这是一场正义与邪恶的战争。。***
-
-***中共用 “Covid19******“******攻击了我们，这是一种生物武器。“Covid1******”是控制我们生活方式的借口。***
-
-***Dominion******是共产主义用来控制我们选举的投票系统。***
-
-
-
-> Fundamental rule of war is to identify enemy.
-> 
-> Our country is at war with Communist China. A war of good v. evil.
-> 
-> China attacked us with Covid – a biological weapon. 
-> 
-> Covid was excuse to control our lifestyles.
-> 
-> Dominion was Communist voting system used to control our election.
-> — Lin Wood (@LLinWood) [November 12, 2020](https://twitter.com/LLinWood/status/1326893420921675778?ref_src=twsrc%5Etfw)
-
-
-
-*-2016**年，民主党人声称俄罗斯对我们的选举产生了重大干涉。他们的主张被调查并认定为谎言。*
-
-***2020******年，中国共产党对我们的选举产生了重大干涉。经调查，该陈述将为真。***
-
-
-
-> In 2016, Democrats claimed Russia materially interfered with our election. Their claim was investigated & found to be a LIE.
-> 
-> In 2020, Communist China materially interfered with our election. When investigated, that statement will be found to be the TRUTH.[#FightBack](https://twitter.com/hashtag/FightBack?src=hash&amp;ref_src=twsrc%5Etfw) for TRUTH
-> — Lin Wood (@LLinWood) [November 12, 2020](https://twitter.com/LLinWood/status/1326899038445326337?ref_src=twsrc%5Etfw)
-
-
-
-这位成功代理少年[尼古拉斯-桑德曼（Nicholas Sandmann）](https://en.wikipedia.org/wiki/January_2019_Lincoln_Memorial_confrontation)对《华盛顿邮报》和CNN提起诽谤诉讼的律师，也是电影《理查德-朱维尔的哀歌》（又名《Richard Jewell》）中律师角色的原型， 1996年亚特兰大百年奥林匹克公园发生了爆炸案，林-伍德帮助被FBI和多个媒体错误指控的“小人物”保安人员理查德-朱维尔洗清污名。林-伍德先生的正义感和在诽谤案件中取得的卓越成就，应该是加入川普总统竞选律师团队的重要原因之一。
-
-而林-伍德先生作为一名经验丰富的律师，在此时明确指出“COVID”是中共投放的生物武器，Dominion投票系统也是中共在幕后的操控，想必是川普总统竞选的律师团队掌握了确凿证据，对打赢这场正义和邪恶的战争胜券在握，并为川普政府对中共即将发起的一系列制裁做出最后的铺垫。
-
-参考链接：
-[https://100percentfedup.com/trump-campaign-attorney-lin-wood-calls-out-china-for-dominion-voter-fraud-interfered-with-out-election/](https://100percentfedup.com/trump-campaign-attorney-lin-wood-calls-out-china-for-dominion-voter-fraud-interfered-with-out-election/)
 
 0
