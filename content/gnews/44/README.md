@@ -1,23 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Parler和Newsmax占领APP下载榜冠亚军，Twitter即将跌出前20
-` VOH欧洲战友团` [轉載自GNews](https://gnews.org/zh-hans/552115/)
+## 宾州司法战传捷报！
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/552317/)
 
-撰稿: 西联777
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12162056/image0-63.jpg)图片: 千鸟
+- 编辑：Victor Torres、文顺
 
 
-近日来，从网络爆出拜登硬盘门以及大选投票舞弊等等丑闻，但由于主流社交媒体Twitter, facebook等以及传统媒体（CNN,华尔街日报等）的报道持续失真，疑似删除特朗普推文，封锁账号和诋毁特朗普总统涉嫌造有利于拜登的舆论，限制言论自由，这导致美国民众对大选真相的渴求达到了前所未有的程度。媒体本应该站在公正客观的立场上，而本次大选，主流媒体似乎出现了倾向民主党一边倒的现象，对拜登硬盘门不报道，对大量选举舞弊的事实选择性失声。CNN美国有线新闻网甚至出现对特朗普总统的谩骂，叫人不禁思考这些所谓的主流媒体到底想做什么？
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12162650/IMG_3075.jpg)
-追求自由言论的新兴社交媒体平台Parler和Newsmax电视台目前受到美国民众的热捧，因为民众可以在这些平台了解到有关拜登邮件门和更多民主党涉嫌大选作弊的信息。Parler从本周开始就跃居iphone美国区APP下载总榜冠军, Newsmax目前也已经冲到第二，超过Facebook, Tiktok, Zoom，CNN等一众之前大热的社交和新闻类APP，而Twitter几乎快要跌出前20名。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12162736/IMG_3076.jpg)
-目前Parler和Newsmax如此受欢迎，可见越来越多的美国民众已经不再信任传统主流媒体。
+刚刚，宾夕法尼亚州高等法院发布了一项命令，表示基于该州州务院缺乏法定权限推翻州选举法，命令相关郡的选举委员会禁止计票法院规定隔离的一切选票。此外，这一案件的终审权落在联邦最高法院。
+
+另据川普推文表示，Dominion在全国范围内删除了 270 万张特朗普选票。数据分析发现，宾夕法尼亚州有22.1万张选票从特朗普总统转向拜登，9410 张特朗普选票被删除，使用Dominion投票系统的地区将43.5万张选票从特朗普换成了拜登。
 
 
 
+> BREAKING: Pennsylvania.🗳️
+> 
+> Judge orders segregated ballots should \*not\* be counted. It rules the PA Secretary of State "lacked statutory authority" to override election law. Critically, the state has a Republican state legislature.[#SCOTUS](https://twitter.com/hashtag/SCOTUS?src=hash&amp;ref_src=twsrc%5Etfw) may ultimately decide the case now. [pic.twitter.com/2VO6mkl66M](https://t.co/2VO6mkl66M)
+> — Kyle Becker (@kylenabecker) [November 12, 2020](https://twitter.com/kylenabecker/status/1326964979237597185?ref_src=twsrc%5Etfw)
 
 
 
+
+
+> “REPORT: DOMINION DELETED 2.7 MILLION TRUMP VOTES NATIONWIDE. DATA ANALYSIS FINDS 221,000 PENNSYLVANIA VOTES SWITCHED FROM PRESIDENT TRUMP TO BIDEN. 941,000 TRUMP VOTES DELETED. STATES USING DOMINION VOTING SYSTEMS SWITCHED 435,000 VOTES FROM TRUMP TO BIDEN.” [@ChanelRion](https://twitter.com/ChanelRion?ref_src=twsrc%5Etfw) [@OANN](https://twitter.com/OANN?ref_src=twsrc%5Etfw)
+> — Donald J. Trump (@realDonaldTrump) [November 12, 2020](https://twitter.com/realDonaldTrump/status/1326926226888544256?ref_src=twsrc%5Etfw)
+
+
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0

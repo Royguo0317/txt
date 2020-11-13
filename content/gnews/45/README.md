@@ -1,32 +1,81 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅！总统律师连续发推警醒美国人对抗中共威胁
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/552100/)
+## 【热点播报】共和党发言人公布密西根州诉讼文件细节：大选舞弊非常严重！
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/552167/)
 
-- 编辑：Victor Torres
+**作者：香草山写作组  正道主义联盟**
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
 
 
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-11月12日，川普阵营的著名维权大律师林肯•伍德连续发推警醒美国来自共产中国的威胁。
 
-他说，在过去的20年里，中共渗透了美国。许多地方、州和国家的政府官员及政治家或被中国的金钱所腐蚀，或成为中共敲诈的对象。另一些人单纯信奉共产主义。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12165227/unnamed-file-8.png)
+继在福克斯新闻怒怼主持人之后，共和党全国委员会发言人伊丽莎白.哈灵顿今日推特狂推大选诉讼细节：证人作证显示大选舞弊非常严重！以下是内容部分摘录：（翻译如跟原文有出入，请以原文为准）
 
-战争的首要原则是认清敌人。美国正处于与中共的正邪大战之中，中共用生化武器冠状病毒共攻击美国，控制美国人的生活方式。他们还使用Dominion投票系统控制美国大选。
+在密歇根州韦恩县提起的诉讼:
 
-2016年，民主党声称俄罗斯实质上干预了美国大选，通过调查被发现是一个谎言。2020年，中共事实上干涉了大选，这即将被证实。他说，每个谎言都将被揭穿。参与欺诈阴谋妄图颠覆合法当选总统的美国人都是叛国者，而中共精心安排了这一切。美国在正义的上帝庇佑下，必将发起反击。
+32. 至少有三名（共和党）观察员表示，他们被推开！选举官员把点票台挪到离点票太远而不能观察点票的地方。
 
-他表示，共产主义思想主导了好莱坞、主流媒体，还有诸如Twitter、Facebook 等社交媒体。美国人被玩弄，他们必须为自己着想，为自由而战，不再被操纵。
+据报道，他曾两次被选举工作人员推搡，第二次是在现场的共和党民调观察员“被选举官员从计票台上推了出去”
 
-林肯•伍德律师认为，几十年来共产主义一直在悄悄侵蚀美国，进入学校、电影、电视、互联网，影响政府官员和政客，共产党人吹嘘他们将不费一枪一弹接管美国。只有美国人民才能阻止它。
+当Pauline Montie告诉一名选举工作人员，她看不见监控器是因为监控器把她推得太远时，选举工作人员回答说:“太糟糕了。”
 
-他还调侃: “问问受中共压迫的人民有多喜欢共产主义暴政下的生活?” “哦，我忘了。他们面对监禁和死亡的威胁无法自由发声。我的错。”
+35、“许多挑战者目睹了韦恩县选举官员遮盖了TCF中心的窗户……以免让观察员看到选票过程。”
 
-参考信息：[https://twitter.com/LLinWood?s=08](https://twitter.com/LLinWood?s=08)
+他们作证说：“他们受到选举官员的恐吓，威胁和骚扰”
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12165236/unnamed-file-9.png)
+投票观察员被骚扰并被韦恩县选举工作人员称为“种族主义者”.
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
+另一个观察者被恶毒的称为“脓包”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+另一个更是成为严重种族歧视攻击的目标！其中攻击他们的包括一名选举工作人员，他问：“由于您不是美国人，是什么赋予了您来这里的权利？”而且威胁他们说“如果他们再提问就会被彻底赶走！”
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12165950/unnamed-file-17.png)
+投票观察员看到民主党人分发了题为“分散共和党监察员”的数据包。
+
+选举官员还试图恐吓他们说，“如果共和党观察员意见太多，一个警察特警队就在外面侯着”。（意思是再跟他们争吵就会被抓走！）
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12170325/unnamed-file-23.png)
+“底特律TCF中心的选举官员进行了对共和党观察员的恐吓行为！每当共和党观察员被从计数区逐出时，选举官员都会鼓掌，欢呼和大喊。”
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12170441/unnamed-file-24.png)
+“计算了非法和不合格的选票”
+
+“选票与投票之间是有区别的。选票是一张纸。选票是由已登记投票的公民完成的选票，该公民有权投票，并已遵照选举法执行。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12170534/unnamed-file-25.png)
+观察员在确保选举中的诚实和公平方面发挥着重要作用。
+
+许多观察员作证说，“他们对选票的异议被忽略和忽视。”
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12165316/unnamed-file-13.png)
+投票观察者：他们将“为川普投票的选票与其他选票分开。”
+
+“我亲眼目睹了选举人员以川普的票进行投票，并做出了回应，并向其他民意调查人员展示了这一点。”
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12165318/unnamed-file-14.png)
+另一人提出其中有35张在投票中属于没有选民记录的选票。
+
+但是“他的要求被忽略和忽视。”
+
+当另一个人试图更正选票时，一位选举工作者告诉她，意见不再被接受，因为“规则不再适用”。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12165340/unnamed-file-15.png)
+“计算不合格的选票有多次。”
+
+“通过投票制表机反复进行重复投票”
+
+“我相信其中一些工人正在改变为川普和其他共和党候选人投的票。”
+
+密西根州目前属于争夺大选的摇摆州，正是川普团队发现舞弊非常严重发起诉讼的几个大州之一！这些诉讼细节的披露，证明以上证人证词陈述已经得到立案确认。随着相关密西根州选票舞弊更多细节曝光，每天都能看到大选结果不断被逆转刷新！而舞弊团伙采用的各种破坏大选的诸多阴谋诡计，的确是令人眼花缭乱而震惊！
+
+审核 ：悟空
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，纽约时间周日至周四晚上9:00，美国志愿者在纽约香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
+
+
+
+
 
 0

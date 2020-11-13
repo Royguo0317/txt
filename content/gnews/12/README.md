@@ -1,69 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德社重磅：川普总统宣布进入紧急状态意味着什么？
-` GM31` [轉載自GNews](https://gnews.org/zh-hans/552928/)
+## 【选票数学打假系列】之二：乘坐时光机的选票 &amp; 巨大的热情落差
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/553162/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12223829/TRUMP-1.png)
-[《路德时评》2020年11月12日晚间节目](https://www.youtube.com/watch?v=8WCtppFlTQE)重磅分析川普总统颁布白宫行政命令，宣布进入“紧急状态”，将针对中共企业展开审查和制裁，这是绞杀中共的开始。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12225411/2-94.png)
+据数字媒体“红象”（The Red Elephant）持续报道，越来越多的数学统计证据表示本次大选拜登选票的不合理。本文节选两点：
 
-川普政府于12日突然发布题为《给众议院议长和参议院主席的信》的白宫文件[1]，信中提及：宣布国家进入紧急状态，以应对中共利用资本对美国的各种威胁和渗透，里面还谈到中共大规模杀伤性武器对美国的危害。
+**乘坐时光机的宾夕法尼亚州选票**
 
-[![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12220919/%E5%9B%BE%E7%89%87-9.png)](https://www.whitehouse.gov/briefings-statements/text-letter-speaker-house-representatives-president-senate-111220-4/)来源：白宫
+宾夕法尼亚州的许多选票有的在标注邮寄日期的一天以后即收到，有的当天就收到了，还有的甚至寄回日比寄出日早，显然不可能。一位数据分析师解释说，出现了所谓的“超快邮寄”选票。该分析师画了一个选票寄给选民的日期与选票寄回的日期对比散点图，并且画了一条对角线（易于读者理解）。所有对角线下方的选票都像坐了时光机一样从未来寄回到了过去。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12225350/3-60.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12225812/4-32.png)
+（译注：通过比较收件寄件的方式，该分析师发现了109421张可以选票。）
 
-该文件概括内容如下：
+这位推特名叫V\_C\_435的分析师推友发推：“如果读者光看这些（根据寄件收件时间推断出的）“可疑”的109421张邮寄选票，大约44%来自费城（Philadelphia）和里海郡（Lehigh）”。具体数据见下表，费城的可疑邮寄选票占22.78%，里海郡的占了21.16%。（[原推链接](https://twitter.com/VC4351/status/1325653978340683777)）
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12225821/5-31.png)
+此外，邮寄选票申请方式有两种：邮寄申请和在线申请。“可疑”的邮寄选票中邮寄申请的比例比正常选票高。在正常情况下，哪怕有对这些诡异寄出寄回日期的完美法律解释，邮寄速度怎么会因邮寄选票的申请方式而异呢？
 
-1. 该文件完全按照美国法律规定授权给总统的权力颁布的行政命令；
-2. 文中直言中共国威胁美国安全，中共国利用美国开发危险武器，开展恶意网络行动，军民融合项目等，并用资产证券化筹措资金发展中共国军事实力；
-3. 川普总统已授权财政部部长与国务卿，国防部长，国家情报局局长以及其他适当的行政部门和机构负责人共同协商；
-4. 制裁的实体清单由美国国防部和财政部列出；
-5. 该命令为紧急状态下的行政命令，被制裁实体无法通过法律诉讼予以申诉，该行政命令将直接越过国会等部门直接生效；
-6. 未来川普政府还将继续采取一系列制裁行动。
+**巨大的热情落差**
 
+选民对拜登的热情几乎创下历史新低，与2016年民主党总统候选人希拉里·克林顿相比，在许多大城市的表现都还不如后者。在纽约、芝加哥和迈阿密（此三个城市都偏民主党），投给他的选票与2016年投给希拉里的选票相比，分别减少了201,408、 260,835和6,945张。然而，在2020年总统大选中拜登需要超过川普的摇摆州，他获得了巨大的优势。根据美联社的投票数据，在佐治亚州的亚特兰大，威斯康星州的密尔沃基和宾夕法尼亚州的匹兹堡（均为摇摆州大城市），他反而分别增加了76,518、67,630和29,150票。
 
-前几天，路德社在节目中已提及川普政府一定会采取重大行动，再次验证爆料革命路德社拥有站在未来说历史的实力，路德社就川普总统宣布进入“紧急状态”事件的评论分析如下：
+根据某民意调查（[来源](https://www.theepochtimes.com/poll-biden-ahead-in-rust-belt-but-presidential-race-a-deadlock-among-likely-voters_3504575.html)），人们对两位候选人的热情差异很大。该民意调查显示，在回答“对投票给自己中意的候选人‘极其热情’”的51.2%铁锈区注册选民中，川普以52.9%对拜登45%领先。在可能为选民的样本中回答“极其热情”的受调查者，川普总统拥有两位数的优势——60.5%对44.9% （见下表）。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12225856/6-34.png)
+前副总统乔·拜登的支持者中，只有不到一半的人（46.9%）表示，他们投票给拜登是因为他们中意这名候选人。大约每10人中有8人（78.8%）是因为他们就是想要川普当总统而投票给他 （见下表）。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12225902/7-20.png)
+**（未完待续，敬请期待下期分析）**
 
-1. 川普总统已经彻底醒悟，终于开始出大招对付中共，该文件是行政通知文件，颁布后直接生效；
-2. 该行政命令将在1月生效，川普总统现在已经打破常规，直接针对中共命脉开炮，这将为中美“脱钩”迈出最重要的一步。
-3. 未来制裁名单将涉及大批中共国实体，包括中共军方公司，中共军民融合公司，中国拥有军方背景的民用公司，川普政府完全不需要举证，可直接进行制裁；
-4. 针对这些列入清单的企业的制裁不仅包括股票和金融产品，还涉及金融衍生品（指数、基金、债券等），这些在美国都无法交易，这就是最大杀招之一；
-5. 文中提及大规模杀伤性武器，新冠病毒就是大规模杀伤性生物武器，当国家进入紧急状态时，总统只需要通过情报，而不需要通过举证就可以颁布对外行政命令来维护国家安全。
-6. 这将针对所有在美国上市的中概股进行制裁，未来只等待财政部和国防部罗列名单，现任国防部代理部长是反恐、特殊情报专家，郭先生直播中说他是弗林将军的人，弗林将军是最恨中共的将军。因此，可以明白为何川普总统前几天要解雇现任国防部长，未来国防部和国务卿将全力协助川普总统围剿中共。
-7. 有些已经有实锤证据的例如中国银行、中国工商银行等公司肯定会被列入清单中，接下来就等待清单制裁明细和生效时间限文件出台。针对华为事件，川普总统当时根据《国家经济权力法》仅给10天时间就立即生效。现在，川普总统是根据《国家紧急状态法》、《紧急经济权力法》和《301法案》颁布国家行政命令，这是否意味着实施期限将大幅缩短，因为川普总统彻底看清扰乱美国背后的罪魁祸首就是中共。
-8. 目前，只是涉及到金融领域，肯定会对中共银行带来重创，未来肯定还将继续颁布制裁其他领域的行政命令，这只是一整套组合拳中一个而已。
-
-
-2019年被美国评为“Super Lawers”的著名律师Lin Wood在推特中直接写道[2]：共产主义时间表：1、向媒体以及地方，州和国家政府官员渗透（意识形态，金钱和勒索）超过20年；2、在2020年大选之前在美国部署Dominion投票系统，进行计算机欺诈；3、释放生物武器Covid-19及邮寄选票欺诈。
-
-[![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12221111/%E5%9B%BE%E7%89%87-10.png)](https://twitter.com/LLinWood/status/1327043099030327300)来源：https://twitter.com/LLinWood/status/1327043099030327300
+前一篇：【选票数学打假系列】投票比率前后相差极大 & 本福特定律：
 
 
 
-
-
-> Communist Timeline:
-> 
-> 1. Infiltrate media & local, state & national government officials (ideology, money & extortion). Over 2 decades.
-> 
-> 2. Dominion Voting Systems deployed in US prior to 2020 Election. Computer fraud. 
-> 
-> 3. Unleash biological weapon Covid-19. Mail ballot fraud. [pic.twitter.com/V8mXsfG4pG](https://t.co/V8mXsfG4pG)
-> — Lin Wood (@LLinWood) [November 13, 2020](https://twitter.com/LLinWood/status/1327043099030327300?ref_src=twsrc%5Etfw)
+> [【选票数学打假系列】投票比率前后相差极大 & 本福特定律](https://gnews.org/zh-hans/546490/)
 
 
 
-未来川普政府一定会就Lin Wood推特中提及的三件事中向中共追讨，再结合前两天麦康奈尔与CIA局长和司法部长会面等多方消息，我们可以非常清楚地看到美国民意已被唤起，美国国家机器已开始全面运作对付中共，未来必定有跟多对付中共的大招出台。
+[原文链接](https://theredelephants.com/there-is-undeniable-mathematical-evidence-the-election-is-being-stolen/)
 
-参考文章：
+翻译： Alton
 
-1. [https://www.whitehouse.gov/briefings-statements/text-letter-speaker-house-representatives-president-senate-111220-4/](https://www.whitehouse.gov/briefings-statements/text-letter-speaker-house-representatives-president-senate-111220-4/)
-2. [https://twitter.com/LLinWood/status/1327043099030327300](https://twitter.com/LLinWood/status/1327043099030327300)
+校对：卡拉马佐夫姐姐
 
-
-
-
-*作者：【重生】 编辑：【GM31】*
-
-*战友之家玫瑰园小队出品*
-
-1+
+0
