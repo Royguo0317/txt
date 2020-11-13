@@ -1,23 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Parler和Newsmax占领APP下载榜冠亚军，Twitter即将跌出前20
-` VOH欧洲战友团` [轉載自GNews](https://gnews.org/zh-hans/552115/)
+## 重磅！总统律师连续发推警醒美国人对抗中共威胁
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/552100/)
 
-撰稿: 西联777
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12162056/image0-63.jpg)图片: 千鸟
-
-
-近日来，从网络爆出拜登硬盘门以及大选投票舞弊等等丑闻，但由于主流社交媒体Twitter, facebook等以及传统媒体（CNN,华尔街日报等）的报道持续失真，疑似删除特朗普推文，封锁账号和诋毁特朗普总统涉嫌造有利于拜登的舆论，限制言论自由，这导致美国民众对大选真相的渴求达到了前所未有的程度。媒体本应该站在公正客观的立场上，而本次大选，主流媒体似乎出现了倾向民主党一边倒的现象，对拜登硬盘门不报道，对大量选举舞弊的事实选择性失声。CNN美国有线新闻网甚至出现对特朗普总统的谩骂，叫人不禁思考这些所谓的主流媒体到底想做什么？
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12162650/IMG_3075.jpg)
-追求自由言论的新兴社交媒体平台Parler和Newsmax电视台目前受到美国民众的热捧，因为民众可以在这些平台了解到有关拜登邮件门和更多民主党涉嫌大选作弊的信息。Parler从本周开始就跃居iphone美国区APP下载总榜冠军, Newsmax目前也已经冲到第二，超过Facebook, Tiktok, Zoom，CNN等一众之前大热的社交和新闻类APP，而Twitter几乎快要跌出前20名。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12162736/IMG_3076.jpg)
-目前Parler和Newsmax如此受欢迎，可见越来越多的美国民众已经不再信任传统主流媒体。
+- 编辑：Victor Torres
 
 
+***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
+11月12日，川普阵营的著名维权大律师林肯•伍德连续发推警醒美国来自共产中国的威胁。
 
+他说，在过去的20年里，中共渗透了美国。许多地方、州和国家的政府官员及政治家或被中国的金钱所腐蚀，或成为中共敲诈的对象。另一些人单纯信奉共产主义。
 
+战争的首要原则是认清敌人。美国正处于与中共的正邪大战之中，中共用生化武器冠状病毒共攻击美国，控制美国人的生活方式。他们还使用Dominion投票系统控制美国大选。
 
+2016年，民主党声称俄罗斯实质上干预了美国大选，通过调查被发现是一个谎言。2020年，中共事实上干涉了大选，这即将被证实。他说，每个谎言都将被揭穿。参与欺诈阴谋妄图颠覆合法当选总统的美国人都是叛国者，而中共精心安排了这一切。美国在正义的上帝庇佑下，必将发起反击。
+
+他表示，共产主义思想主导了好莱坞、主流媒体，还有诸如Twitter、Facebook 等社交媒体。美国人被玩弄，他们必须为自己着想，为自由而战，不再被操纵。
+
+林肯•伍德律师认为，几十年来共产主义一直在悄悄侵蚀美国，进入学校、电影、电视、互联网，影响政府官员和政客，共产党人吹嘘他们将不费一枪一弹接管美国。只有美国人民才能阻止它。
+
+他还调侃: “问问受中共压迫的人民有多喜欢共产主义暴政下的生活?” “哦，我忘了。他们面对监禁和死亡的威胁无法自由发声。我的错。”
+
+参考信息：[https://twitter.com/LLinWood?s=08](https://twitter.com/LLinWood?s=08)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0

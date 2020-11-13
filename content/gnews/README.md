@@ -13,56 +13,56 @@
 
 
 
-### [独家：特朗普政府准备打击美国对中国公司的投资-消息人士称](/content/gnews/1/README.md)
+### [正在发生：特朗普竞选律师指出多米尼克 (Dominion) 软件欺诈：“中国共产党严重干预了我们的选举–真相”](/content/gnews/1/README.md)
  ` 康州喜马拉雅农场`
 
-### [宾夕法尼亚州：法官裁定有利于川普竞选团队](/content/gnews/2/README.md)
+### [独家：特朗普政府准备打击美国对中国公司的投资-消息人士称](/content/gnews/2/README.md)
  ` 康州喜马拉雅农场`
 
-### [贾瑞特：“目击证人和宣誓证词是法庭上的呈堂供证”](/content/gnews/3/README.md)
+### [宾夕法尼亚州：法官裁定有利于川普竞选团队](/content/gnews/3/README.md)
  ` 康州喜马拉雅农场`
 
-### [【热点播报】重磅突发：川普宾州诉讼获胜！法官裁定州务卿无权改收票期限](/content/gnews/4/README.md)
+### [贾瑞特：“目击证人和宣誓证词是法庭上的呈堂供证”](/content/gnews/4/README.md)
+ ` 康州喜马拉雅农场`
+
+### [【热点播报】重磅突发：川普宾州诉讼获胜！法官裁定州务卿无权改收票期限](/content/gnews/5/README.md)
  ` 纽约香草山农场`
 
-### [宾州司法战传捷报！](/content/gnews/5/README.md)
+### [宾州司法战传捷报！](/content/gnews/6/README.md)
  ` 巴塞罗那喜西农场`
 
-### [共和党籍新晋众议员阿什利•辛森(Ashley Hinson)中共病毒检测呈阳性](/content/gnews/6/README.md)
- ` 巴塞罗那喜西农场`
-
-### [重磅！总统律师连续发推警醒美国人对抗中共威胁](/content/gnews/7/README.md)
+### [共和党籍新晋众议员阿什利•辛森(Ashley Hinson)中共病毒检测呈阳性](/content/gnews/7/README.md)
  ` 巴塞罗那喜西农场`
 
 ### [川普总统签署行政令:禁止美国人投资与中国解放军有关的企业](/content/gnews/8/README.md)
  ` pmzy-vog`
 
-### [【热点播报】密西根州软件公司“Dominion”员工宣誓作证：半夜有10万张拜登舞弊票送来](/content/gnews/9/README.md)
- ` 纽约香草山农场`
-
-### [289疫情直播简报](/content/gnews/10/README.md)
+### [289疫情直播简报](/content/gnews/9/README.md)
  ` GM62`
 
-### [《骑龙》揭秘了拜登家族和中共的关系](/content/gnews/11/README.md)
+### [《骑龙》揭秘了拜登家族和中共的关系](/content/gnews/10/README.md)
  ` 倫敦英喜莊園 Himalaya UK`
 
-### [【热点播报】共和党发言人公布密西根州诉讼文件细节：大选舞弊非常严重！](/content/gnews/12/README.md)
+### [【热点播报】共和党发言人公布密西根州诉讼文件细节：大选舞弊非常严重！](/content/gnews/11/README.md)
  ` 纽约香草山农场`
 
-### [谈一谈2020年美国大选期间发生的怪事](/content/gnews/13/README.md)
+### [谈一谈2020年美国大选期间发生的怪事](/content/gnews/12/README.md)
  ` gnewscanada`
 
-### [川普竞选团队提起重大选举诉讼 引用数十份宣誓证词](/content/gnews/14/README.md)
+### [川普竞选团队提起重大选举诉讼 引用数十份宣誓证词](/content/gnews/13/README.md)
  ` gnewscanada`
 
-### [参议员询问美国司法部: 亨特•拜登的中共国业务交易是否适用《外国代理人注册法》](/content/gnews/15/README.md)
+### [参议员询问美国司法部: 亨特•拜登的中共国业务交易是否适用《外国代理人注册法》](/content/gnews/14/README.md)
  ` 倫敦英喜莊園 Himalaya UK`
 
-### [视频【字幕】11/11/2020文贵：中国将出现粮食危机](/content/gnews/16/README.md)
+### [视频【字幕】11/11/2020文贵：中国将出现粮食危机](/content/gnews/15/README.md)
  ` Caihongqiao`
 
-### [Parler和Newsmax占领APP下载榜冠亚军，Twitter即将跌出前20](/content/gnews/17/README.md)
+### [Parler和Newsmax占领APP下载榜冠亚军，Twitter即将跌出前20](/content/gnews/16/README.md)
  ` VOH欧洲战友团`
+
+### [重磅！总统律师连续发推警醒美国人对抗中共威胁](/content/gnews/17/README.md)
+ ` 巴塞罗那喜西农场`
 
 ### [美国亲共团体“华人进步协会”资助BLM](/content/gnews/18/README.md)
  ` VOH欧洲战友团`
