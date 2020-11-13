@@ -1,23 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆革星评：软件公司三证人自揭造假方案 盗取川普3800万选票
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/552509/)
+## 拒绝被审查 数以百万计用户逃离脸书和推特
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/552703/)
 
-多伦多加喜农场 文星（一号）
+多伦多加喜农场 熊妈妈
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12190529/whistleblow.jpg)图片来自 Public Services International
-11月11日，据国家新闻平台报道，参与美国总统大选的计票软件公司Dominion，有三位职员挺身而出自揭内幕，声称他们的软件更改、盗取了川普总统3800万票。
+校对上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12195705/%E9%80%83.jpg)图片来自WSJ
+11月12日，媒体报道，因为在美国2020总统大选期间脸书和推特奉行的所谓审查政策，使得用户不断离开其社交网络。与此同时，其他公司社交网络的受众已经有着数百万用户增长量。
 
-据这些爆料人称，Dominion设计了操控软件进行选票切换使拜登超出，这是民主党人的第一方案，邮寄投送假票仅是他们备用的第二方案。 之所以在选举之夜临时停止点票，是因为没想到支持川普的选票太多，该软件无法按第一方案更改出拜登胜选的点票效果。而在停止点票期间，民主党人用货车将作假的选票运送到计票点填补空缺。
+虽然脸书老总马克·扎克伯格（Mark Zuckerberg）否认他们存在审查，但是用户已经注意到脸书经常给川普总统打上政治偏见的标签。
 
-川普总统私人律师、原纽约市长和检察官朱利安尼（Rudy Giuliani）说，这三个勇敢站出来的吹哨人，愿意就所发生的事情宣誓作证。
+目前，数以百万计的用户转至到了社交网络Parler和Rumble。在11月3日美国总统大选后的一周，Parler用户的账户数量增至800万，Rumble的关注量高达7500万。 而在美国总统大选之前，这些社交网络 —— 脸书和推特的竞争对手只是拥有450万用户和大约1000万次关注量。
 
-在最伟大的民主国家美国，我们看到了美国历史上最大造假丑闻案的越来越多的证据，这令数以千万计美国公民的合法选举权受到侵害。但拜登集团盗取的选票，最终会依法返回给川普总统，结果就是川普继续当总统，拜登开始蹲监狱。
+用户对IT巨头的信息政策以及他们对政治家和活动家的”审查”感到不满。
+
+脸书和推特自己否认审查指控。与此同时，用户对推特公司在美国川普总统的推文和帖子下的”警告”政策非常不满，推特公司主观对川普总统的这些推文和帖子标注为信息不可靠。 讽刺的是，川普总统的竞争对手乔∙拜登却没有这样特殊的待遇。
+
+2020年6月，脸书管理删除了川普总统竞选总部许多人的帖子，指出这些帖子违反了其平台规则。此外，推特将川普总统的帖子之一标记为”包含捏造的内容”。在帖子中，川普总统斥责激进的安提法（Antifa）团体参与了美国一些州的骚乱。
+
+唯真不破是我们爆料革命战友坚持的准则，在美国2020总统大选前，战友们通过G-TV、GNEWS不断爆出乔·拜登的工具儿子亨特·拜登的性丑闻以及拜登家族与中共深度勾兑的事实，还通过脸书和推特向世人广传。战友们传播的是经法律认证的关于拜登家族罪恶的实锤证据，脸书和推特却无底线地禁封了成千上万个战友账号，无耻行径充分暴露其与中共的深度勾结，完全撕下了所谓中立媒体人的虚假面皮，直接上阵厮杀。
+
+现在，川普总统及团队经过努力，不断揭露出乔·拜登选票造假的事实，美国民意已经觉醒，美国的司法部门也已介入彻查选票造假事件。相信川普总统一定可以赢得美国2020总统大选。届时，脸书和推特会从幻梦中惊醒吗？他们已经彻底摒弃了做人应有的良知，一定会为此付出法律的巨大代价。
 
 参考链接：
 
-[https://halturnerradioshow.com/index.php/en/news-page/news-nation/voting-software-company-whistleblowers-come-forward-claim-their-software-changed-38-million-votes-stole-election](https://halturnerradioshow.com/index.php/en/news-page/news-nation/voting-software-company-whistleblowers-come-forward-claim-their-software-changed-38-million-votes-stole-election)
+[https://www.gazeta.ru/tech/2020/11/12/13358095/conservatives\_quit.shtml](https://www.gazeta.ru/tech/2020/11/12/13358095/conservatives_quit.shtml)
+
+
 
 0

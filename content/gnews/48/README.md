@@ -1,53 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家！《拜登大选作弊》系列（1）
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/551585/)
+## 我们华人的两大传承寻根（六）
+` 温哥华加喜农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/544842/)
 
-- 编辑：文顺
-- 作者：小木头
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10114319/xungen6.jpeg)
+关于东西方文化他们之间的差异和关系 ，请看下面这张图。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10114358/%E9%85%8D%E5%9B%BE1.jpg)
+古今中外所有思想基本上都在这里，基本上就四个层面，神性理论 、人性理论 、动物性理论 、魔性理论。
 
+大家可以看一下竖着的左边就是中国的，右边的就西方的。西方的神性理论是犹太教、天主教、基督教 ，他的人性理论是人文主义， 就是欧洲文艺复兴思想， 美国立国理念， 但是还有一堆垃圾，社会达尔文主义、 撒旦教的邪教教义 、马克思列宁主义 ，这帮都是垃圾中的战斗机，斯大林主义 、马克思列宁主义、希特勒的纳粹思想、墨索里尼的法西斯主义 ，这堆东西。
 
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+从中国传统文化整个思想史来看也分成四个层次， 第一个神性理念， 神性理念里面首先是佛法 ，第二个先天易经， 先天易经不是周易， 周易已经是偏离了。 道家还是先天道家， 不是道教 ，道教是宗教 ，这都是上合天道的理论 。第二个降一级就到了人性理论 ，人性就讲儒家思想， 但儒家很快就被篡改了， 我们现在了解的儒家都是伪儒 。后来就是动物性思想和魔性思想，很多人对传统文化很有意见， 中国传统文化里面就是两个糟粕， 第一个就是伪儒思想 ，他是奴化教育的基础， 被篡改的儒家 。还有一个就是商鞅思想的《商君书》 。所以现在的中国共产党， 是暴政加邪教二合一 ，它是东邪西毒二合一 ！共产党是集古今中外邪恶之大成，古今中外没有超过他的。
 
-拜登大选作弊已浮出水面，根据多方报道，我们整理出拜登大选作弊所用的手段。
+我们现在正处在一个历史的十字路口， 未来新中国要集古今中外善之大成，这个叫法治中国 。但他只是人性理论，现在西方的也是人性理论， 光这个是不够的 ，必须要改变人心才行 ，还要德教中国 。上合天道，下合人心就是要恢复人性，回归神性，这样中华民族，就一定会变好的。
 
-**死人票**
+未来中国，要叫幸福中国！我们不能再以追求GDP，追求经济的指数作为国家施政和衡量的标准，这个是远远不够的， 这是很物质化的，很表面的。我们应该追求人民的幸福指数，这才叫符合天道，这才叫集古今中外善之大成。还是我老师的那句话， 一切的问题都是人的问题，人的一切问题都是人心的问题，改变了人心就改变了世界，而人心只有通过法治和德教（德行的教育）才能改变。其中法治是为了防止和消除人们行为上的恶 ，而唯有德教才能消除人们内心的恶，并教导人们如何以天道的智慧来经营幸福的人生。 两者相辅相成缺一不可。若能建立起法治中国及德教中国，那么千年的黑暗一灯可灭 ，中华神州必将会重现光芒。
 
-11月12日，据Parler用户TeamTrump披露，去世17年的乔治亚州尼科尔森居民琳达·凯斯勒夫人在选举中投票。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12123915/cheat3.jpg)
-原文链接：[https://parler.com/post/a46501d3fa874fc48d12e95dcc93dae6](https://parler.com/post/a46501d3fa874fc48d12e95dcc93dae6)
+作者：比卡丘，文也
 
-**过期选票盖选举邮戳**
+原创观点文章 – 2020/11/12
 
-11月9日，据Veritas 项目披露，密西根州邮递员实名揭发其主管要求以假邮戳处理不符合资格的过期选票。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12124351/cheat9.jpg)
-原文链接：[https://www.projectveritas.com/news/project-veritas-offers-usd25k-reward-for-tips-related-to-election-voter-and/](https://www.projectveritas.com/news/project-veritas-offers-usd25k-reward-for-tips-related-to-election-voter-and/)
-
-**拒绝共和党监票员入场监督**
-
-11月10日，费城私人执业律师杰罗姆·马库斯披露，在费城会议中心亲自看到有十名特朗普竞选志愿者被禁止进入计票室。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12124403/cheat10.jpg)
-原文链接：[https://thefederalist.com/2020/11/10/i-was-in-philadelphia-watching-fraud-happen-heres-how-it-went-down/](https://thefederalist.com/2020/11/10/i-was-in-philadelphia-watching-fraud-happen-heres-how-it-went-down/)
-
-**点票软件频出错 把川普票变成拜登票**
-
-11月11日，据推友转推，前联邦检察官和现任律师Sidney Powell在FOX中披露，投票软件Dominion系统里面有中共软件，出现的问题可能是故意设置的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12124504/cheat1.jpg)
-原文链接：
-
-- [https://www.washingtonexaminer.com/news/trump-campaign-files-federal-lawsuit-in-michigan-over-fraud-allegations](https://www.washingtonexaminer.com/news/trump-campaign-files-federal-lawsuit-in-michigan-over-fraud-allegations)
-- [https://twitter.com/M2Madness/status/1326526096221802498?s=20](https://twitter.com/M2Madness/status/1326526096221802498?s=20)
-
-
-**午夜幽灵票**
-
-11月10日，据《DAILY WIRE》报道，在美国353个县，登记的选民比合格公民多180万。报道称，司法观察主席汤姆·菲顿总结道：”新的研究表明，在29个州的353个县中，有180万选民超额，或’幽灵’选民。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12124609/cheat15.jpg)
-原文链接：[https://www.dailywire.com/news/report-in-353-u-s-counties-1-8-million-more-voters-registered-than-eligible-citizens](https://www.dailywire.com/news/report-in-353-u-s-counties-1-8-million-more-voters-registered-than-eligible-citizens)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+温哥华加喜农场
 
 0
