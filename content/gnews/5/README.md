@@ -1,32 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅！总统律师连续发推警醒美国人对抗中共威胁
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/552100/)
+## 宾州司法战传捷报！
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/552317/)
 
-- 编辑：Victor Torres
+- 编辑：Victor Torres、文顺
 
 
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+刚刚，宾夕法尼亚州高等法院发布了一项命令，表示基于该州州务院缺乏法定权限推翻州选举法，命令相关郡的选举委员会禁止计票法院规定隔离的一切选票。此外，这一案件的终审权落在联邦最高法院。
 
-11月12日，川普阵营的著名维权大律师林肯•伍德连续发推警醒美国来自共产中国的威胁。
+另据川普推文表示，Dominion在全国范围内删除了 270 万张特朗普选票。数据分析发现，宾夕法尼亚州有22.1万张选票从特朗普总统转向拜登，9410 张特朗普选票被删除，使用Dominion投票系统的地区将43.5万张选票从特朗普换成了拜登。
 
-他说，在过去的20年里，中共渗透了美国。许多地方、州和国家的政府官员及政治家或被中国的金钱所腐蚀，或成为中共敲诈的对象。另一些人单纯信奉共产主义。
 
-战争的首要原则是认清敌人。美国正处于与中共的正邪大战之中，中共用生化武器冠状病毒共攻击美国，控制美国人的生活方式。他们还使用Dominion投票系统控制美国大选。
 
-2016年，民主党声称俄罗斯实质上干预了美国大选，通过调查被发现是一个谎言。2020年，中共事实上干涉了大选，这即将被证实。他说，每个谎言都将被揭穿。参与欺诈阴谋妄图颠覆合法当选总统的美国人都是叛国者，而中共精心安排了这一切。美国在正义的上帝庇佑下，必将发起反击。
+> BREAKING: Pennsylvania.🗳️
+> 
+> Judge orders segregated ballots should \*not\* be counted. It rules the PA Secretary of State "lacked statutory authority" to override election law. Critically, the state has a Republican state legislature.[#SCOTUS](https://twitter.com/hashtag/SCOTUS?src=hash&amp;ref_src=twsrc%5Etfw) may ultimately decide the case now. [pic.twitter.com/2VO6mkl66M](https://t.co/2VO6mkl66M)
+> — Kyle Becker (@kylenabecker) [November 12, 2020](https://twitter.com/kylenabecker/status/1326964979237597185?ref_src=twsrc%5Etfw)
 
-他表示，共产主义思想主导了好莱坞、主流媒体，还有诸如Twitter、Facebook 等社交媒体。美国人被玩弄，他们必须为自己着想，为自由而战，不再被操纵。
 
-林肯•伍德律师认为，几十年来共产主义一直在悄悄侵蚀美国，进入学校、电影、电视、互联网，影响政府官员和政客，共产党人吹嘘他们将不费一枪一弹接管美国。只有美国人民才能阻止它。
 
-他还调侃: “问问受中共压迫的人民有多喜欢共产主义暴政下的生活?” “哦，我忘了。他们面对监禁和死亡的威胁无法自由发声。我的错。”
 
-参考信息：[https://twitter.com/LLinWood?s=08](https://twitter.com/LLinWood?s=08)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
+> “REPORT: DOMINION DELETED 2.7 MILLION TRUMP VOTES NATIONWIDE. DATA ANALYSIS FINDS 221,000 PENNSYLVANIA VOTES SWITCHED FROM PRESIDENT TRUMP TO BIDEN. 941,000 TRUMP VOTES DELETED. STATES USING DOMINION VOTING SYSTEMS SWITCHED 435,000 VOTES FROM TRUMP TO BIDEN.” [@ChanelRion](https://twitter.com/ChanelRion?ref_src=twsrc%5Etfw) [@OANN](https://twitter.com/OANN?ref_src=twsrc%5Etfw)
+> — Donald J. Trump (@realDonaldTrump) [November 12, 2020](https://twitter.com/realDonaldTrump/status/1326926226888544256?ref_src=twsrc%5Etfw)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0
