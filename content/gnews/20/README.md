@@ -1,17 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【精华版粤语配音】11.4 路德时评：川普总统举步维艰的原因
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/558636/)
+## 【世界多语言图文】2020/11/09 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/558714/)
 
-【精华版粤语配音】11.4 路德时评：川普总统举步举步维艰的原因
+战友之家图文摘要及多语组
 
-制作单位：战友之家-粤语组
-制作团队：麻辣汤、打杂的、阿恩、文东、wikim bao
+[289\_English\_1109\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14075641/289_English_1109_CCP_Virus_Updates.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14075641/289_English_1109_CCP_Virus_Updates.pdf)
+
+[289\_German\_1109\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14075641/289_German_1109_CCP_Virus_Updates.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14075641/289_German_1109_CCP_Virus_Updates.pdf)
+
+[289\_Japanese\_1109\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14110647/289_Japanese_1109_CCP_Virus_Updates.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14110647/289_Japanese_1109_CCP_Virus_Updates.pdf)
+
+[289\_Korean\_1109\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14075641/289_Korean_1109_CCP_Virus_Updates.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14075641/289_Korean_1109_CCP_Virus_Updates.pdf)
+
+[289\_Spanish\_1109\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14075641/289_Spanish_1109_CCP_Virus_Updates.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14075641/289_Spanish_1109_CCP_Virus_Updates.pdf)
 
 
 
-摘要：
-布伦伯格秘密谋作反， 民主党计划乘胜追击向川普发起诉讼战。
-
-1+
+0

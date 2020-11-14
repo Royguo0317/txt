@@ -1,45 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】共产党的末日，世纪挺川大游行！
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/557351/)
+## 【每日摘要】路德时评 （早）：2020.11.13 美众议员接受NEWSMAX采访透露美陆军法兰克福没收投票服务器，为川普团队赢得数据舞弊直接证据意味着什么？突袭行动的来龙去脉，更多内幕曝出；
+` 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hans/558900/)
 
-作者：**香草山写作组** Daxia 校对/发稿：飞虹
+*摘要：Gwiki*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10090837/Header-ZH-1-3.jpg)
+1，川普团队获重要且合法的选举舞弊证据数据。美众议员路易·戈默特爆料：美国陆军突袭在德国的软件公司Scytl，并没收Dominion服务器，获取美国大选作弊证据。
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
+2，接下来对软件公司Scytl的司法起诉，并揪出背后黑手—中共—是关键。Dominion程序的背后是中共，直指阿里巴巴和马云。用大数据和人工智能进行选票造假。并涉及多国选举舞弊。川普推特：Dominion系统删到270万张川普的选票。
 
+3，在情报支持下获取Dominion服务器的地址。秦城监狱放出的中共情报人员。（路德再此暗示爆料革命的情报力量）
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14005800/%E5%9B%BE%E7%89%8739.png)
-2020**年**11**月**14**日，世纪****百万大军挺川****普大游行，在华盛顿白宫拉开序幕！**
+4，美国情报界大换水逐步展开。川普解雇埃斯博，换上米勒和帕特尔，撇开CIA，就为这个大招。之后还会解雇FBI局长、国土安全局人员。
 
-七哥引领的爆料革命庄严宣誓：中国人永不为奴！怀揣GTV、GNEWS 世界唯真媒体平台，承载着智慧又勇敢的联邦新中国人新面貌，我们面向美国及全世界！
+[视频链接](https://www.youtube.com/watch?v=t4j_W-yfffY)
 
-美东香草山农场在长岛伟哥的带领下，数百战友再次出征，在韩梅梅战友主持的舞台上，小王子战友，以及本土美国人在激情演讲！
+相关链接：
 
-我们全程有专业的录播公司拍摄，在现场则有新中国联邦演播厅，全程现场直播，向世界传递的这一盛世游行盛况。我们的英雄郝海东夫妇也亲临现场助威，以崭新面貌，以新中国联邦人的新形象，面向全世界！
+1，[FISA法庭维基百科](https://en.wikipedia.org/wiki/United_States_Foreign_Intelligence_Surveillance_Court)
 
-新中国联邦国旗冉冉升起，随着乐队奏响乐曲，战友们唱着自由的赞歌，歌声嘹亮，传遍每一角落！
+2，[议员：美军在德国没收Dominion服务器 获作弊证据](http://cn.ntdtv.com/gb/2020/11/14/a102986785.html)
 
-穿着统一的新中国联邦海洋蓝色服装，戴着统一的帽子，战友们手挥国旗，举起牌语，随着喇叭的广播，喊出响亮的挺川口号，步伐整齐有序地前行！
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14095724/WhatsApp-Image-2020-11-14-at-18.55.51.jpeg)
-看，来啦！我们浩浩荡荡的60辆大广告车队播放着七哥震撼心底的灭共歌曲，缓缓驶来，大屏幕上依次滚动播放爆料革命的天使病毒报告等战友们的英勇事迹，及精彩的真相视频！
+3，[弗林将军的大律师鲍威尔接受鲁道博斯采访](https://parler.com/post/5a1daec0b8b9442fbb1b9b40ede14fb5)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10090758/Footer-ZH-2.jpg)
 
-战友们的车队，也紧随着广告车队，车上飘扬着新中国联邦旗帜，整齐有序地缓缓前行，捍卫我们新中国人的精神，和全新面貌，已势不可挡！
-
-再抬头看，直升飞机伴着悦耳的轰鸣声在上空盘旋，飘扬着美国旗帜与新中国联邦旗帜，硕大的挺川普横幅，在空中舞动，华盛顿已狂欢沸腾啦……**！**
-
-这是一场这种空前绝后的盛宴！世纪挺川大游行，它是一场正义与邪恶、真与假、黑与白、善与恶的战争与较量！
-
-它将改变人类命运，重塑社会秩序，改写人类历史，将被永远载入光辉的历史史册！
-
-**我们新联邦中国人是历史的见证者！没有共产党的世界，开启着世界文明，繁荣，昌盛！太平天下！**
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上8:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
