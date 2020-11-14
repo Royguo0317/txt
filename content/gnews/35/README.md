@@ -1,25 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/14/2020 财经快讯: 首付一折重现中共楼市; 纳瓦罗自信川普连任并着手第二任期计划
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/558305/)
+## 【深度报道】宾州选举分析: 大量无可争议的异常数据浮出水面
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/558357/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14083931/Picture70.png)图片来源：[https://propertyupdate.com.au/](https://propertyupdate.com.au/8-reasons-property-markets-crash/)
-1.中共国苏州楼市近期大幅下滑。9，10月至今，多个楼盘积极打折促销，甚至推出特价房，限时秒杀，首付1折等多重优惠。数据显示，10月苏州新房成交量骤降，共成交6732套，环比上月跌幅35.10%，同比2019年10月下降33.04%。
-[https://money.163.com/20/1114/08/FRCOFQNA002580S6.html?clickfrom=w\_money](https://money.163.com/20/1114/08/FRCOFQNA002580S6.html?clickfrom=w_money)
+作者：翼族 / Giselle
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14085721/Picture72.png)
+美国大选期间，调查记者柯丽·林恩（Corey Lynn）一直试图从繁杂的信息中寻找真相。柯丽在推特上有12万粉丝，油管上有3.9万订阅者。在柯丽建造的Corey’s Digs网站上，柯丽通过详细的数据分析、时间图表、文件文档，挖掘出大量的美国大选真相，印证了美国民主党疯狂造假的事实。
 
-2.美国证监会周五发布公告，前富国银行（Wells Fargo）首席执行官兼董事长约翰·斯托普夫（John G. Stumpf）同意支付250万美元罚款，因其“故意夸大富国银行在商业上的成功而误导投资者”
-[https://www.zerohedge.com/markets/sec-slaps-former-wells-fargo-ceo-25-million-fine-over-performance-metric-scandal](https://www.zerohedge.com/markets/sec-slaps-former-wells-fargo-ceo-25-million-fine-over-performance-metric-scandal)
+柯丽引用的数据信息都有据可查，这为她挖掘出的材料和观点提供了无法辩驳的事实支撑。
 
-3.现年49岁的特斯拉总裁马斯克周五发推表示：现阶段中共病毒测试十分不严谨。推文中说马斯克在一日之内进行过4次病毒测试，其中两次呈阳性，另外两次则现阴性。据悉，马斯克现不得不进行额外测试以确定其是否感染病毒。
-[https://www.washingtonexaminer.com/news/elon-musk-may-or-may-not-have-covid-19-after-split-rapid-test-results](https://www.washingtonexaminer.com/news/elon-musk-may-or-may-not-have-covid-19-after-split-rapid-test-results)
+美国时间11月13日，柯丽在推特上发表推文说：“坦白地说，在这一点上，唯一的事实就是乔.拜登不可能获得超过7800万张选票……”
 
-4.白宫首席经济顾问皮得·纳瓦罗周五正式表示：唐纳德·川普总统显而易见的赢得了本次选举，并且白宫已着手计划第二个4年计划。纳瓦罗先生同时表示，相关部门已经对非法选票开展全面调查。
-[https://www.dailymail.co.uk/news/article-8946405/Top-Donald-Trump-advisor-Peter-Navarro-claims-president-clearly-won-election.html](https://www.dailymail.co.uk/news/article-8946405/Top-Donald-Trump-advisor-Peter-Navarro-claims-president-clearly-won-election.html)
+11月13日，柯丽的网站推出了一篇关于宾夕法尼亚州的数据分析，这些数字庞大的异常数据，再次佐证了本次美国总统大选中，宾州的选票造假已经到了无以复加的地步。
 
-5.美国联邦选举委员会主席泰瑞·泰纳（Trey Train）上周发文明确表示：此次美国大选在多个摇摆州确实存在大规模选举舞弊现象。同时他赞同川普总统的竞选诉讼，并表示几个州的选举官员采取的可疑行动会使选举不合法。
-[https://www.zerohedge.com/political/fec-chairman-says-he-believes-there-voter-fraud-key-states](https://www.zerohedge.com/political/fec-chairman-says-he-believes-there-voter-fraud-key-states)
+（原文链接：[https://www.coreysdigs.com/u-s/pa-election-analysis-huge-anomalies-indisputable-data/](https://www.coreysdigs.com/u-s/pa-election-analysis-huge-anomalies-indisputable-data/)）
 
-By：【秘翻组·金融法律组】
+在全世界都对本次选举丑闻屏息的时侯，川普总统的法律团队正在加班加点，提起诉讼，收集证人誓词，与举报人交谈，收集那些并未参加投票但却显示投过票的选民，查询讣告中的死人票，将投票过程中的欺诈行为曝光给美国民众。种种迹象显示，民主党通过硬件、软件和算法，以及被称为“锤子”、“记分卡”、Dominion等的硬件系统，将数以百万计的选票从川普手里转移到了拜登名下。
+
+下面的分析代表了Corey’s Digs一直在努力寻找的数据点，以显示所有这些结果是如何累加的，有哪些概率是完全不可能发生的，以及那些所谓的“异常”实际上就是被人为控制或破坏的。数据采样来自于宾夕法尼亚州67个县中的18个，其中有10个民主党人的县，另外8个是共和党人的，以显示其一致的采样模式以及发现的异常情况。
+
+在这18个宾夕法尼亚州的县郡中，有17个县，拜登的支持率比2016年平均高出近2.5％至3.5％，甚至包括所有8个共和党的县，拜登的增幅都高于川普。（注：红色表示共和党县，蓝色表示民主党）
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14085747/Picture73.png)
+下图蓝框内显示的是拜登得到的实际票数，而绿框内则是登记的民主党选民人数。可以看到，在黄色标注出来的两个县（Chester和Montgomery），拜登得到的实际票数比注册的民主党投票人要多出数千张甚至数万张。这些多出来的选票是怎么凭空冒出来的？
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14085759/Picture74.png)
+从上图可以看到，拜登在Chester县得到的选票从141682增加到了179065，增加了37383票；在Montgomery县，拜登增加了313543 – 256082 = 57461票。然而根据下图，民主党在2020年新增的注册人数，Chester县增加了4740民主党人，Montgomery县增加了7362人，注册人数增加幅度很小，无法解释拜登选票突然增加的原因。而且，拜登在该州得到的选票数，已经超过了希拉里·克林顿，巴拉克·奥巴马，罗纳德·里根以及美国历史上所有的总统候选人。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14085810/Picture75.png)
+根据宾夕法尼亚州下述报告的截屏图片，在Lehigh县有8535名注册为“其它”党派的选民。根据注册名单显示，在11月3日有8332人已经投了票，这意味着只剩下203人没有去投票，然而奇怪的是，报告统计所有选民只完成了投票总数的37.74％。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14085826/Picture76.png)
+另外，以Allegheny县为例，在下面这张表格截屏中可以看到：11月3日，其它党派登记的人数是32590。而到了11月7日，点票总数为698288，其中川普得票274028，拜登415737，那么根据简单的数学算式，其它党派的得票只有698288 – 274028 – 415737 = 8523票，四天过去后，其他党派得到的选票反而减少了，几万张选票就这么不翼而飞了？
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14085833/Picture77.png)
+最后需要读者注意的是，所有这些数据都是在2020年11月7日提取的。自这个时间点以来，投票总数可能会有所变化，但它不会改变数据分析中已经发现的异常。而且所有的数据均摘自宾夕法尼亚州的官方网站Votes PA和elementreturns.pa.gov以及截至到2020年11月7日流出的最新选民登记表。根据这些公开的数据和科学的分析，可以看到大量毫无争议的不合理之处，这也正是为什么川普总统的法律团队在宾夕法尼亚州进行诉讼的基本依据。
+
+(文章内容仅代表作者观点)
 
 0

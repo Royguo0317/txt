@@ -1,29 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日摘要】路德时评 （早）：2020.11.13 美众议员接受NEWSMAX采访透露美陆军法兰克福没收投票服务器，为川普团队赢得数据舞弊直接证据意味着什么？突袭行动的来龙去脉，更多内幕曝出；
-` 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hans/558900/)
+## 独家！郭先生直播谈中共对美三宗罪
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/558885/)
 
-*摘要：Gwiki*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10090837/Header-ZH-1-3.jpg)
-1，川普团队获重要且合法的选举舞弊证据数据。美众议员路易·戈默特爆料：美国陆军突袭在德国的软件公司Scytl，并没收Dominion服务器，获取美国大选作弊证据。
+- 编辑：文顺
 
-2，接下来对软件公司Scytl的司法起诉，并揪出背后黑手—中共—是关键。Dominion程序的背后是中共，直指阿里巴巴和马云。用大数据和人工智能进行选票造假。并涉及多国选举舞弊。川普推特：Dominion系统删到270万张川普的选票。
 
-3，在情报支持下获取Dominion服务器的地址。秦城监狱放出的中共情报人员。（路德再此暗示爆料革命的情报力量）
+***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-4，美国情报界大换水逐步展开。川普解雇埃斯博，换上米勒和帕特尔，撇开CIA，就为这个大招。之后还会解雇FBI局长、国土安全局人员。
+11月14日，郭先生在[Gtv](https://gtv.org/)直播中细数中共对美三宗罪：操纵美国大选、释放冠状病毒、盗窃美国技术。
 
-[视频链接](https://www.youtube.com/watch?v=t4j_W-yfffY)
+郭先生说：“中共第一大罪恶操纵美国选举；第二，送来冠状病毒杀死美国人；第三，长期盗窃美国技术、美国工作。”郭先生还说：“潘多拉盒子打开，共产党就是倒数的时候。”
 
-相关链接：
+**视频链接**：[https://gtv.org/video/id=5fac5324bd0d464fadff4dfb](https://gtv.org/video/id=5fac5324bd0d464fadff4dfb)
 
-1，[FISA法庭维基百科](https://en.wikipedia.org/wiki/United_States_Foreign_Intelligence_Surveillance_Court)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10122733/1103-a-1-scaled.jpg)
 
-2，[议员：美军在德国没收Dominion服务器 获作弊证据](http://cn.ntdtv.com/gb/2020/11/14/a102986785.html)
+对于美国大选，郭先生认为：中共操纵美国选举，得罪美国一大半的人。据郭先生透露，无论民主党共和党，大家都知道邪恶力量就来自共产党，控制选举就是为了控制美国人。民主党很清楚，即使民主党赢了也是听共产党的未来，赢了一个选举，失去了美国的未来。
 
-3，[弗林将军的大律师鲍威尔接受鲁道博斯采访](https://parler.com/post/5a1daec0b8b9442fbb1b9b40ede14fb5)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10090758/Footer-ZH-2.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0
