@@ -1,64 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 大卫作战室观点 &#8211; 进退维谷
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/558951/)
+## 底特律与前市长腐败案涉案人公司签大选用工合同
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/559116/)
 
-[![](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/e3ede2ec-c107-4e56-84c2-2475379d2d5d.jpg?asset_id=efbb306a-372c-46ac-8fa7-e48d5b5f25df&amp;img_etag=%22ee30c1aa3aecdb61d55343d323d5192c%22&amp;size=2560)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/e3ede2ec-c107-4e56-84c2-2475379d2d5d.jpg?asset_id=efbb306a-372c-46ac-8fa7-e48d5b5f25df&amp;img_etag=%22ee30c1aa3aecdb61d55343d323d5192c%22&amp;size=1024)
-### 大卫作战室观点 Himalaya UK David’s War Room
+*多伦多加喜农场 文𤦍*
 
-#### 2020.11.05期
+*校对 文锦 上传WJ*
 
+据Just the News11月13日报道，底特律的选举工作人员是由前市长腐败案关键人物—-威廉·菲利普斯（William A. Phillips）拥有的公司P.I.E. Management LLC承包, 获市议会批准的100万美元合同。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14161147/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE7.png)图片来源：piemanagement.com
+该公司由前市长基尔·帕特里克（Keane Kilpatrick）创立 ，由菲利普斯操作。该公司的网站上显示菲利普斯为创始人和现任首席执行官兼总裁。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14155957/william_phillips.jpg)威廉·菲利普斯 图片来源lawyers.findlaw.com
+菲利普斯是一位长期的民主党忠实者，曾与帕特里克一起在卡斯技术高中上学，成为帕特里克政治行动中的关键人物，他俩有着千丝万缕的关纟。帕特里克市长因联邦腐败相关指控目前被判28年徒刑，已被监禁中。 菲利普斯的名字在帕特里克多次的法院诉讼中屡屡出现。
 
+9月22日，底特律市议会批准了菲利普斯员工配备公司（P.I.E.Management, LLC）的 100万美元合同。该公司雇用近2,000人从事选举工作，并为计票机配备人员。” 该公司为大选期间招工的广告显示，临时工每小时的收入至少为50美元。市议会吹嘘说：“根据与州政府达成的《 MiDeal合作协议》，他们将在选举日提供多达2,000名员工（底特律居民）为选举进行设备操作。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14160458/merlin_179571423_4dda0049-5d00-48ce-9e90-7c244ee8236b-mobileMasterAt3x.jpg)美国大选期间，底特律计票人员在工作 图片来源：The New York Times
+为该市提供投票设备和软件的Dominion Voting Systems在当天也获得了新资金，用于购买其他设置来计算缺席选票。
 
-#### 解读蚂蚁金服IPO叫停的背后逻辑！CCP央视告佐治亚州和密歇根州法官分别驳回川普总统两起选举诉讼！中共葫芦卖什么药…
-[![](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/2eb443a4-346b-422c-bf78-9de2ef846f09.png?asset_id=ff1d909c-9e9d-4cfe-a325-0ece53940cce&amp;img_etag=%22db6c708f1258917458e9c3d2a1f276d5%22&amp;size=1024)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/2eb443a4-346b-422c-bf78-9de2ef846f09.png?asset_id=ff1d909c-9e9d-4cfe-a325-0ece53940cce&amp;img_etag=%22db6c708f1258917458e9c3d2a1f276d5%22&amp;size=1024)
+在底特律以外，几乎没有注意到这种安排。 但是美国大选一个多星期后，由于被指控存在违规行为，该市的选举中心以及在那工作和观察的人员正在受到越来越严格的审查。
 
-> A. 解读蚂蚁金服IPO叫停的背后逻辑
+一位出来作证的女士在宣誓书中说：“在2020年11月4日，我被指示将不在QVF中的缺席选票的接收日期更改为在2020年11月3日或之前收到的日期。”“有人告诉我更改QVF中的信息，藉以显示收到的缺席选票是及时和有效的。我估计巳有数千张选票是这样做的。”
 
+当执法中心、法院或立法监督委员会开始调查时，她的声明会使在选举中心工作或观察的人成为证人。
 
-1.IPO造假：蚂蚁金服根本没有空间支撑市盈率96.48倍； 资金主要来源互联网金融手续费却谎称是科创型企业。
+评论：”不合法选票”岂能乱真,假的现象遮盖不了每一个美国人的良知，纷纷站出来宣誓作证、要求民事诉讼，将“非法选票”告上法庭。
 
-2.蚂蚁金服公开募股、联合记帐的机构包括巴克莱，以及唯利是图的华尔街和江泽民温家宝王岐山背后的影子，都等着在这个IPO里边捡钱。
+[原文链接](https://justthenews.com/politics-policy/elections/fridetroit-department-elections-granted-million-dollar-contracts-firms)
 
-3.马云和他背后的太子党知道了爆料革命的威力，都想抓住最后的捞钱机会，蚂蚁金服迫不及待IPO上市。
-
-4.蚂蚁金服紧急叫停，充分说明中共内部斗争，习与政治老人的斗争进入明面化。
-
-
-[![](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/d38daf67-4192-4c87-be1d-a87ed6439f59.png?asset_id=08d00849-e697-49d7-a918-bf01518ca368&amp;img_etag=%226405f4956ea2ba71549bcbab80171d50%22&amp;size=1024)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/d38daf67-4192-4c87-be1d-a87ed6439f59.png?asset_id=08d00849-e697-49d7-a918-bf01518ca368&amp;img_etag=%226405f4956ea2ba71549bcbab80171d50%22&amp;size=1024)
-
-> B. CCP报导佐治亚州和密歇根州法官分别驳回川普总统两起选举诉讼，中共葫芦卖的什么药？
-
-
-1.中共与贪婪的华尔街的勾兑吸血的行为，早引起美国当前危机委员会重视及警告。
-
-2.如果川普总统连任成功，按照《国际紧急经济权力法》在美国的一系列中资企业中概股都会受到围剿，叫停供应链转移。
-
-3.这是中共所有盗国贼都害怕的，所以CCP要千方百计破坏川普总统连任。
-
-
-[![](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/d5d54911-9c82-40c4-90cd-a27f9eaaafab.png?asset_id=e848b19b-b162-4087-8954-0ac6984ba19c&amp;img_etag=%22e7a8cd5e105167306e394fc0c8434b92%22&amp;size=1024)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/d5d54911-9c82-40c4-90cd-a27f9eaaafab.png?asset_id=e848b19b-b162-4087-8954-0ac6984ba19c&amp;img_etag=%22e7a8cd5e105167306e394fc0c8434b92%22&amp;size=1024)
-
-> C. 败登家族和中共陷入进退维谷的境地
-
-
-1.三块硬盘，暴露CCP蓝金黄败登家族以达到控制美国的阴谋。CCP和败登家族牢牢地绑在了一起。
-
-2.CCP花大量资金助选拜登，却不敢恭贺拜登 “当选”， 进退维谷。
-
-3.大量证据直指民主党造假和违规操作，最终川普总统一定会连任成功。
-
-
-
-
-
-编辑【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/5l9wjBHP5vTCq/)
-
-**[点击关注大卫作战室Parler](https://parler.com/profile/David008/posts)**
-
-**[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)**
-
-**[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/user/5ee680a45bd6f123dd104807)**
-[![](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/4b4b8dee-2539-4e6f-8402-d252f8bc7c26.jpg?asset_id=5e203867-2df9-4e0f-bf60-a58bfdf4444a&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=1024)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/4b4b8dee-2539-4e6f-8402-d252f8bc7c26.jpg?asset_id=5e203867-2df9-4e0f-bf60-a58bfdf4444a&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=1024)
 0

@@ -1,21 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/11/09 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/558714/)
+## 灭共在即：传播真相、唤醒同胞的反洗脑小技巧
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/558785/)
 
-战友之家图文摘要及多语组
+作者：康州农场-文韵
 
-[289\_English\_1109\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14075641/289_English_1109_CCP_Virus_Updates.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14075641/289_English_1109_CCP_Virus_Updates.pdf)
+审核：康州农场-Truemanman
 
-[289\_German\_1109\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14075641/289_German_1109_CCP_Virus_Updates.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14075641/289_German_1109_CCP_Virus_Updates.pdf)
+郭文贵先生在美东时间11月14日早上的直播中提到，中共国内许许多多高层战友、知识分子战友已经达成共识认可了新中国联邦，接下来我们爆料革命新中国联邦的行动将是唤醒众多的平民百姓。说起唤醒身边的同胞，相信每一位战友都深感不易。美国即将行动，灭共已经板上钉钉，这个时候传播CCP病毒真相、香港危机真相尤其重要。如何让大众更加认清真相，唤醒每一位同胞，这是我们接下来要思考的问题。
 
-[289\_Japanese\_1109\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14110647/289_Japanese_1109_CCP_Virus_Updates.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14110647/289_Japanese_1109_CCP_Virus_Updates.pdf)
+说起宣传，中共大外宣大内宣臭名昭著。郭先生曾经说过，共产党怎么洗脑老百姓的，咱们就怎么洗回来。看郭文贵先生、爆料革命战友的视频是最佳反洗脑的方法，除此之外让我们来看看，一些传播真相、唤醒同胞的小技巧。
 
-[289\_Korean\_1109\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14075641/289_Korean_1109_CCP_Virus_Updates.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14075641/289_Korean_1109_CCP_Virus_Updates.pdf)
+**方法一：直接传播最新时事、郭先生的最新直播。**
 
-[289\_Spanish\_1109\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14075641/289_Spanish_1109_CCP_Virus_Updates.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14075641/289_Spanish_1109_CCP_Virus_Updates.pdf)
+此方法战友们用的最广泛，但对于一些被深度洗脑、不愿意面对现实的同胞，直接传播有时候达不到想要的效果。既然直接传播不够力度，那咱们尝试间接传播之法。
 
+**方法二：借转发、转述之名传播真相。**
 
+根据笔者的观察，不少被洗脑的中年、老年同胞，对于直接告诉他们的事情，反而持怀疑的态度，却特别相信微信上一些标明 [转发]、[快转]等信息。我们可以试着采用这种转述方法，例如“听隔壁婶儿说刘亦菲居然……”，或者标明“快转，真相居然是这样……”，“看完秒删，你不知道的一些邪恶秘密……”引导他们去自己寻找真相。真相在哪里？GNEWS.ORG和GTV.ORG。
 
-0
+**方法三：向家人传播真相的小技巧之——传播给家人信赖的朋友。**
+
+不少战友发现，向家人传播真相有时候反而比向朋友传播真相更困难。自己的家庭成员是每一个人最亲近的人，但对于真相与见识，往往家庭成员都持有自己的看法。家里人听不进去怎么办呢？别急，我们知道，每一个人都有自己信赖的朋友和圈子。尽管家里人可能一时半会转不过弯来，但是家人信赖的朋友说出来，效果立竿见影。当我们将真相向家人那些有独立思考能力的朋友传播的时候，也相当于传播给了家人。有独立思考能力的朋友再结合方法二，传播效果更好。
+
+**方法四：多投稿Gnews和进行GTV直播、多撰写盖特。**
+
+笔者发现，身边有些朋友不爱交际，却喜欢看公众号、微信微博文章来增长知识。这种增长知识的初衷是好的，却被共产党利用了。共产党利用国家机器绑架了所有自媒体和平台，墙内的自媒体和平台成为共产党的宣传和洗脑机器。Gnews和GTV作为世界上唯一一家传播真相、为正义发声的自媒体平台，我们这些最先觉醒、被上天选中的战友们应该充分利用起来。只有我们战友们团结起来，多投稿、多发声，全世界都会看到我们的文字、听到我们维护正义的呼喊。
+
+**传播真相的方法还有很多，战友们多留心、多耐心、多观察，总能找到最好的传播方法。**作为全球最先醒来的战友们，传播真相是我们作为新中国联邦人的天赋使命。展望未来，当共匪倒下，我们还会有更多的办法传播真相，不让共产党再继续荼毒我们的子孙后代，彻底清除共产党余毒，拯救我们华人的未来。
+
+1+
