@@ -1,37 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【三票专栏】正告伪类书
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/556534/)
+## 选票欺诈：多方证据揭示Dominion与Smartmatic是计算还是决定选举结果
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/556533/)
 
-作者： **纽约香草山金融部  三票先生**
+编译：玫瑰天空
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
+1）朱利安尼说，Dominion与Smartmatic有联系，后者是委内瑞拉选举（包括雨果•查韦斯的“选举”）的主要技术供应商。
 
+2）朱利安尼说，自治领的说客是佐治亚州州长布莱恩·肯普的前参谋长。
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13201913/%E8%BF%87-1.png)
-今天看到网络上流传一组滑稽的截图，虽然貌似当事人随后辟谣，但如果是真的，那么说明大外宣《明镜》没钱了，居然拖欠陈小平的工资，陈小平与何频闹翻了，要离开明镜，还要去办公司搬物品抵工资，连骂街的语言都出来了。也许何频还有些银子，但是预计到后面主子不会再给狗粮了，故意不发工资为自己考虑。总之一叶知秋，中共的船要沉了，船上先知先觉的老鼠开始跳船逃生了。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13174512/%E5%8F%91%E5%8F%91%E5%8F%91.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13202117/%E7%8C%9C%E7%8C%9C%E7%8C%9C%E6%89%93.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13202142/%E7%82%B9%E7%82%B9%E6%BB%B4%E6%BB%B4.png)
-现在形势已经很明朗了，由于爆料革命对拜登家族与中共勾兑的爆料，美国人民已经觉醒，本次大选川普总统民意大增，中共不得不急忙造假，留下了明显的痕迹和证据。这种毫不遮掩明火执仗式的造假激怒了美国人民，也使共和党团结一致，川普总统一定会当选连任，而美国也肯定掌握了中共粗暴控制美国舆论干涉美国大选的确凿证据。加上中共故意制造和投放中共病毒致使美国1000多万人感染近30万人死亡，美国人民遭受了堪比二战的生命和财产损失。爆料革命使美国人民知道了中共病毒的真相，美国将就中共干预美国大选和中共病毒真相向中共问责。川普总统已经发布紧急状态令，禁止美国资金参与同中共军工企业包括军民融合企业有关的任何投资，这意味着美国对中共的金融战已经开始，中共的美元来源将逐步被断绝，蓬佩奥国务卿也公开就台湾问题和中共互联网防火墙问题发表强硬措辞，后面还会出手一系列重拳。中共也意识到末日将临，已经宣布限制公民出境，要闭关锁国了。灭共大战已经开始，中共的末日快到了！伪类们的狗粮也快断了！
-
-看看中共的历史就知道，与中共沆瀣一气狼狈为奸者从来都没有好下场。《智取威虎山》里有句台词“三爷最恨被共军抓住过的人”，共匪也一样，1949年中共刚篡政就对地下党有“降级安排控制使用就地消化逐步淘汰”的十六字方针。看看金无怠什么下场，看看傅作义的女儿傅冬菊、陈布雷的女儿陈琏什么下场，看看关露潘汉年郭汝瑰什么下场，就连被毛钦定为白区的党的领袖、贵为国家主席的刘少奇，最后也落了个“叛徒内奸工贼”的骂名，被迫害惨死，而贵为中共总理的周恩来临死前一直生活在“伍豪事件”的噩梦中，死不安宁，何况尔等鼠辈！
-
-伪类们，也许你们当初是迫于生计不得不和中共勾兑，也许你们是被一时的利益所诱惑所蒙蔽上了中共的贼船，也许你们有家人被中共挟持而不得不为虎作伥，anyway，不管是什么原因，现在是你们认清形势作出选择的时候了。有道是“放下屠刀立地成佛”、“浪子回头金不换”，郭文贵先生说过，如果王岐山宣布灭共，也是我们战友。爆料革命是有宽广胸怀的，比如陈小平先生应该属于被伪类蒙蔽的，当初无数战友就是看你采访郭先生的对谈而知道郭先生和爆料革命的，战友们会念你的好。如果伪类们能够迷途知返痛改前非，加入爆料革命，郭先生和战友们是会欢迎你们的。如果能够幡然悔悟反戈一击揭发中共的恶行，立功赎罪做污点证人，则善莫大焉。但是如果你们执迷不悟冥顽不化对抗到底，美国和西方社会会象清理垃圾一样清理你们，爆料革命战友和新中国联邦人民会清算你们，而中共（如果还能苟延残喘几天的话）也会象扔掉厕纸一样抛弃你们，等待你们的只能是监狱，你们将死无葬身之地！
-
-人在做天在看。伪类们，你们和中共这个恶魔为伍干着丧尽天良的坏事，上天在看着你们，良心会折磨你们（如果你们良心未泯的话），今后你们怎么面对祖先，怎么面对子孙后代！识时务者为俊杰，识正义者为豪杰，天下大势浩浩汤汤顺之者昌逆之者亡，在历史的十字路口面前，希望你们做出明智的、正确的选择，留给你们的时间已经不多了！
-
-发稿：悟空
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，纽约时间周日至周四晚上9:00，美国志愿者在纽约香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
+3）根据华盛顿考官的说法，Smartmatic的董事长是乔治·索罗斯（George Soros）投资基金前副主席马克·马洛赫·布朗勋爵（Lord Mark Malloch Brown）。
+![眼睛](https://abs-0.twimg.com/emoji/v2/svg/1f440.svg)
+越来越多的证据浮出水面，只需审慎观察和探究：
 
 
 
+> According to the Washington Examiner, Smartmatic’s chairman is Lord Mark Malloch Brown, a former vice-chairman of George Soros’ Investment Funds. [https://t.co/tZ4PbvCm2A](https://t.co/tZ4PbvCm2A)
+> — The Election Wizard🧙‍♂️ (@Wizard\_Predicts) [November 13, 2020](https://twitter.com/Wizard_Predicts/status/1327288694047387648?ref_src=twsrc%5Etfw)
 
+
+
+2020年上演的这一幕美国大选中的选票谜团似曾相识👇👇👇
+
+早在2016年，普林斯顿大学教授就确切地演示了如何入侵Dominion机器。“我想出了一种如何制作稍微不同的计算机程序的方法，该程序可以将某些选票从一个候选人转移到另一个候选人。” 等等，这不是我们所看到的吗？看：
+![指向下方的三角形](https://abs-0.twimg.com/emoji/v2/svg/1f53d.svg)
+
+
+> DOMINION.🚨
+> 
+> Back in 2016 a Princeton prof demonstrated exactly \*how\* to hack a Dominion machine.
+> 
+> "I figured out how to make a slightly different computer program that… shifts some votes around from one candidate to another."
+> 
+> Wait, isn't that what we've been seeing? WATCH:🔽 [pic.twitter.com/upnP7a69M0](https://t.co/upnP7a69M0)
+> — Kyle Becker (@kylenabecker) [November 12, 2020](https://twitter.com/kylenabecker/status/1326751429915238401?ref_src=twsrc%5Etfw)
+
+
+
+Dominion Security System的安全漏洞仅被称为保守派。好吧，这是\* DOMINION ITSELF \*，它在其用户手册中承认“中”和“高”风险。（H T[@JPMediaBoss](https://twitter.com/JPMediaBoss)）其建议的补救措施：“选举无效”。
+![指向下方的红色三角形](https://abs-0.twimg.com/emoji/v2/svg/1f53b.svg)
+
+
+> Dominion Security System's security vulnerabilities have been called nothing more than conservative prattle.
+> 
+> Well, here is \*DOMINION ITSELF\* admitting to "Medium" & "High" Risks in its user's manual. (H/T [@JPMediaBoss](https://twitter.com/JPMediaBoss?ref_src=twsrc%5Etfw))
+> 
+> Its recommended remedy: "Invalidation of the election."🔻 [pic.twitter.com/ydkQP0Tmmk](https://t.co/ydkQP0Tmmk)
+> — Kyle Becker (@kylenabecker) [November 13, 2020](https://twitter.com/kylenabecker/status/1327368214238597123?ref_src=twsrc%5Etfw)
+
+
+
+快速查看一下，看来Dominion Voting Systems和臭名昭著的Tides Foundation在加拿大的分支机构都位于同一多伦多办公大楼内。如果您不熟悉Tides，那么曾经有一个隶属关系的团体可能会响起：ACORN。
+
+
+
+> Dominion.🗳️
+> 
+> A quick check & it appears Dominion Voting Systems and a Canadian branch of the notorious Tides Foundation are based in the same Toronto office complex.
+> 
+> If you aren't familiar with Tides, maybe a once-affiliated group rings a bell: ACORN.🤔🔽[https://t.co/MI9pfsJvL9](https://t.co/MI9pfsJvL9) [pic.twitter.com/fAVaH00SEr](https://t.co/fAVaH00SEr)
+> — Kyle Becker (@kylenabecker) [November 13, 2020](https://twitter.com/kylenabecker/status/1327359975505670146?ref_src=twsrc%5Etfw)
+
+
+
+邪恶盛行的唯一条件就是善良者袖手旁观的沉默–埃德蒙.伯克
+
+通过近期层层递进不断爆出的选举欺诈证据美国民众也许已经逐渐意识到了这次美国大选的黑幕。大选还未尘埃落定，但是民众心中正在浮出面纱后的真相。追求真相是人类与生俱来的本性。尘埃落定之时，所有人最感兴趣和需要探寻的问题也许是：谁在幕后操纵了美国大选？他们的目的是什么？
+
+真相：光总是战胜黑暗。真理总是战胜谎言。“但是行真理的人露面了，他的事迹可以彰显出来，是在上帝里行的。” -约翰福音3:21
 
 0

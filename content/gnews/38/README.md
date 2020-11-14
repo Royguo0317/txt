@@ -1,37 +1,125 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11月14日 华盛顿DC 新中国联邦支持川普总统游行活动宣传片（一）
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/556607/)
+## 『香草诗词汇』觉醒的心
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/556763/)
 
-视频制作/简评：500miles；组稿/整理：Julia Win
-
-
-
-简评：
-
-这短短的2分钟视频表达了很多内容：
-
-我们新中国联邦人是和正义站在一起的！而川普总统说：在美国，我们不膜拜政府，我们膜拜上帝，这符合正义标准（有正确信仰的人，都不会太差）。
-
-从病毒起源来说，爆料革命很早说过，是CCP制造的病毒；蓬佩奥先生在尼克松图书馆演讲时，也说CCP欺骗了世界。闫丽梦博士第一次出场，是最震撼和经典的，她强调了：“这与政治无关，是与人类的生存有关！”这也印证了，爆料革命不参与美国政治，而是为了揭示真相，消灭CCP这个最大的恶魔！
-
-川普总统夫妇感染了病毒，战友们为他们祈福，愿他们尽快康复。这体现了新中国联邦人的善良、友好。
-
-视频中也表现出了拜登硬盘事件。
-
-我们新中国联邦人支持一切正义的力量！谁与我们的敌人-CCP勾结，我们就同他干到底！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
 
 
 
-编辑【喜马拉雅战鹰团】
+作者 youyou
 
-[**点击关注大卫作战室Parler**](https://parler.com/profile/David008/posts)
+天气真好
 
-**[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)**
+阳光普照
 
-**[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/user/5ee680a45bd6f123dd104807)**
+鸟儿鸣叫
 
-[!\[\]()!\[\](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/4b4b8dee-2539-4e6f-8402-d252f8bc7c26.jpg?asset_id=5e203867-2df9-4e0f-bf60-a58bfdf4444a&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=2560)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/4b4b8dee-2539-4e6f-8402-d252f8bc7c26.jpg?asset_id=5e203867-2df9-4e0f-bf60-a58bfdf4444a&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=1024)
+看着这美好的自然与生命
 
+却心涌忧伤和烦恼
+
+背着简单的行囊
+
+漂洋过海来到他乡
+
+陌生的城市、陌生的面庞
+
+一切都要从头开始
+
+辛劳
+
+但对自由的向往化解乡愁和彷徨
+
+无意中
+
+听到一个声音
+
+告诉我为什么墙国粉红如此多
+
+告诉我为什么人们相互猜疑不再有信任
+
+告诉我为什么百姓一生劳苦却无安身立命根
+
+告诉我为什么讲真话会被莫名成为待罪身
+
+告诉我………
+
+那时还庆幸自己高明
+
+逃离了那片被过度污染的地方
+
+自认知道了别人不知道的真相
+
+金刚护体
+
+百毒不伤
+
+但是硬盘门突然砸向我
+
+惊醒梦中人
+
+阴谋的泄露
+
+更是让我呼吸哽气难畅
+
+世界的黑暗不是常人能理解
+
+善良限制了我们的想象
+
+孩子可以随时成为噩魔的泄欲工具
+
+人已成为商品可以标价市场
+
+大逃难、假新闻、
+
+原来灾难都是假戏真唱
+
+战争、政客
+
+只为利益捆绑
+
+流行病肆虐只是为疫苗找买方
+
+还有、还有、还有
+
+………
+
+这时
+
+那声音告诉我
+
+至暗时刻已经降到这个充满贪欲的世界
+
+快醒来
+
+叫醒你的同伴
+
+保住你居住生活的地方
+
+这一次
+
+我已无处逃亡
+
+打起精神
+
+加入战场
+
+愤怒的人民已不再恐惧
+
+为自己、为子孙、为家人、
+
+为了世上不再有杨改兰式的卑微小民
+
+
+
+审核：浪迹天涯
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
 0

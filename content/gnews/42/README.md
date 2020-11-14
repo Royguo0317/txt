@@ -1,73 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 选票欺诈：多方证据揭示Dominion与Smartmatic是计算还是决定选举结果
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/556533/)
+## 2020年美国大选您是因为爱还是因为恨而投票？
+` GM30` [轉載自GNews](https://gnews.org/zh-hans/556694/)
 
-编译：玫瑰天空
+**作者：Lgp**
 
-1）朱利安尼说，Dominion与Smartmatic有联系，后者是委内瑞拉选举（包括雨果•查韦斯的“选举”）的主要技术供应商。
+不要去恨你的敌人，也不要把精力用在你敌人仇恨的人身上，而要去关注和寻找值得你爱和相信的人，如果你实在找不到让你爱的人，那就好好爱自己吧，千万不要因为恨而勉强试着去相信和爱敌人的敌人，因为你敌人的仇人并不等于是值得你爱的人，也不代表敌人仇恨的人不会仇恨你。
 
-2）朱利安尼说，自治领的说客是佐治亚州州长布莱恩·肯普的前参谋长。
+如果说2020年美国大选支持川普的选民与支持拜登的选民有什么本质的区别，那就是投票给川普的大多是因为爱川普而投票；而投票给拜登的大多是因为恨川普而投票。也就是说支持川普的人和支持拜登的人在这次大选中本质的区别是，一个是因为爱投票给川普，一个因为恨投票给拜登。这从川普与拜登举行的众多竞选集会上，前者人气爆棚后者冷冷清清就能得到证实。
 
-3）根据华盛顿考官的说法，Smartmatic的董事长是乔治·索罗斯（George Soros）投资基金前副主席马克·马洛赫·布朗勋爵（Lord Mark Malloch Brown）。
-![眼睛](https://abs-0.twimg.com/emoji/v2/svg/1f440.svg)
-越来越多的证据浮出水面，只需审慎观察和探究：
+在这里我们不去谈川普与拜登，到底谁值得爱和谁让人恨的问题。我们来分析下川普与拜登，这两种不同的赢的选票支持的结果是什么原因，而且我认为美国人民能认清这个原因比谁当美国第46任总统更有价值，毕竟每隔四年就要做一次事关我们命运的选择。
 
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13213343/AP20318003495031.webp_.jpg)
 
+因赢得选民的爱而获得支持，需要实实在在的去做让人信任和尊重的事，才会让选民对你产生爱。并且要赢得别人的爱，和你的敌人多么招人恨或你的朋友多么让人爱都无关，那是你自己的事。你必须努力让自己成为一个值得大家爱的人，这很难因为你不但要真干还要说到做到才行。而且人的爱很脆弱，说的多做得少或做的不够好，都会引起人们的疑虑从而对您由爱转恨，要知道获得几千万人的爱，尤其是在自由民主信息开放的美国是不容易的。
 
-> According to the Washington Examiner, Smartmatic’s chairman is Lord Mark Malloch Brown, a former vice-chairman of George Soros’ Investment Funds. [https://t.co/tZ4PbvCm2A](https://t.co/tZ4PbvCm2A)
-> — The Election Wizard🧙‍♂️ (@Wizard\_Predicts) [November 13, 2020](https://twitter.com/Wizard_Predicts/status/1327288694047387648?ref_src=twsrc%5Etfw)
+接下来再谈谈通过向选民塑造对手的仇恨，来赢的选民的支持。首先自己根本不需要做什么实际的事，只需要把对手描绘成一个让人憎恨的家伙，散布这个家伙将会给大家带来的灾难性后果就可以了。而且通过散播恐惧与仇恨相比赢得爱与信任而言，在获得民众支持的效率上高太多了。因为人们对逃避痛苦的行动力远远大于追求快乐的渴望，这就如在夜晚绚丽多彩的烟花不一定让人走出房间，但是地震警报却可以立竿见影一样。同样，我们要爱和真正相信一个人可能要长久的接触、观察与了解，而要恨一个人可能只需一句无心的话语伤害到我们就可以了。为什么遭到主流社会打压，传播色情暴力内容的网站点击率还是会排名第一？对不起，这就是人性。
 
+人性中阴暗负面的东西远远大于光明正面的东西，很多人不信神所讲的人天生具有原罪说。那我们就再说说人性中的爱恨情仇吧。人与人之间的爱转变为恨是常有的事，人们之间能够由恨转爱的事，大半只出现在电影里；人们如此热衷的讴歌持久相爱的故事无论是友谊还是爱情，大概就是因为世代相传的仇恨比比皆是，一生一世的相爱却少之又少吧。所以通过散播仇恨与恐惧而获得支持，通过暴力恐怖和仇恨教育来稳固自己的地位，就是在充分利用人性的弱点与阴暗面，这是每一个好话说尽却坏事做绝的政治骗子与残暴专横的独裁者达成目的的不二之选。
 
+所以不要因为恨而做出选择，我们有可能因为恨做出的选择，最终选择了一个真正恨我们的人。因此，你若爱谁就去投票给谁，你若谁都不爱，那就让我们为因爱而投票的人祈祷和祝福吧。爱会吸引爱，放弃仇恨才能不被仇恨所扰，虽然我们没有找到值得爱的人，那就让找到爱的人为我们吸引一个真正爱我们的人吧。
 
-2020年上演的这一幕美国大选中的选票谜团似曾相识👇👇👇
+通过我们谈川普与拜登的选举差别，似乎是让我们更多的了解了我们自己。为什么支持川普的人大都是信仰神的人？难道信神的人更懂得爱吗？是的，我们需要对神的信仰，因为人性更容易被被欲望所左右，被仇恨所鼓动，被谎言所欺骗，被傲慢所蒙蔽、被怀疑所影响，这就是东方的圣人佛陀，所说的人性与生俱来的五毒“贪、嗔、痴、慢、疑”。所以不信仰神的灵魂更容易走向堕落。好逸恶劳、急功近利、怨天尤人、欺软怕硬、自私自利这类人的性情有先天性，这从绝大多数不懂人情世故的孩子和拥有不受约束力量的成年人的所作所为就可以看出来。
 
-早在2016年，普林斯顿大学教授就确切地演示了如何入侵Dominion机器。“我想出了一种如何制作稍微不同的计算机程序的方法，该程序可以将某些选票从一个候选人转移到另一个候选人。” 等等，这不是我们所看到的吗？看：
-![指向下方的三角形](https://abs-0.twimg.com/emoji/v2/svg/1f53d.svg)
+所以在不信举头三尺有神明的前提下，人要做到“慎独”“自律”保持灵魂的纯洁犹如逆水行舟，而一放纵就堕落就如顺流直下。人只有在获得神的指引，才更有可能成为一个值得爱和懂得爱的人，一个拥有高贵灵魂的人；人也必须借助神的力量，才更容易能摆脱内心仇恨的困扰，获得心灵的安宁与自在。而容易恨别人的人也容易恨自己，反之亦然，懂得爱自己的人才才懂得爱别人，因为你永远无法给予别人你自己没有的东西。这就是所谓的一念天堂一念地狱，全在人心，自作自受。
 
+说了这么多人和神的事，接下来说说人和神的纽带宗教。宗教的失败之处尤其是东方的宗教，为了让人相信神的存在劝人向善，编了太多善意的谎言或者叫故事。因为这些谎言的确令很多人信了神，但是谎言终究是谎言，也让更多更聪明和专业的人识破谎言，而再也不相信神的话，哪怕那是真话。
 
-> DOMINION.🚨
-> 
-> Back in 2016 a Princeton prof demonstrated exactly \*how\* to hack a Dominion machine.
-> 
-> "I figured out how to make a slightly different computer program that… shifts some votes around from one candidate to another."
-> 
-> Wait, isn't that what we've been seeing? WATCH:🔽 [pic.twitter.com/upnP7a69M0](https://t.co/upnP7a69M0)
-> — Kyle Becker (@kylenabecker) [November 12, 2020](https://twitter.com/kylenabecker/status/1326751429915238401?ref_src=twsrc%5Etfw)
+至于那些因为编造的善恶有报的虚假故事而信仰神的人，不是因为恐惧而皱着眉头天天自我迷失，就是妄想通过贿赂神仙菩萨让自己过得好，信的根本不是神而是实用主义。相信神不是为了得到什么，而是为了不失去本就自性圆满的自己。当你编出一个好人有好报的故事劝人向善后，一定会有一百个杀人放火金腰带的故事反驳你。所以任何捏造真相的行为，无论出于什么用心，最终都会让你把靠谎言带来的收获最后加倍还回去。
 
+神无处不在，我们的存在就是对神存在的最好证明，用你的心体会，而不是用科学试验或是理论去证明。用造物主在我们认知范围之内创造的所谓科学规律，来判定远在我们认知范围之外的神不存在，可能是科学家做的最不科学的事了；而用捏造假象事实欺骗世人的方式，来让人相信神的存在，是人类最傲慢愚蠢自以为是的行为也是对神的亵渎，哪怕他是善意的。同样任何通过传播仇恨来实现的结果，无论这个仇恨是基于真实的认知还是虚假的捏造，最终都将会带来与你所期望的收获相背离的结果。谎言与仇恨，无论披上多么光鲜亮丽慷慨激昂的外衣，赋予多么大义凛然崇高无上的意义，总归是人性中阴暗的东西，用它所获得的，必将付出加倍的代价还回去。这与近代西方比较流行的吸引力法则有异曲同工之妙。
 
+用仇恨浇灌的花朵永远结不出爱的果实。所以基督耶稣被钉死在十字架上时，并没有去恨那些谋害和出卖他的人，而是临死前依旧充满爱的对上帝说到：“万能的天父，请原谅他们吧，因为他们不知道自己在做什么。”
 
-Dominion Security System的安全漏洞仅被称为保守派。好吧，这是\* DOMINION ITSELF \*，它在其用户手册中承认“中”和“高”风险。（H T[@JPMediaBoss](https://twitter.com/JPMediaBoss)）其建议的补救措施：“选举无效”。
-![指向下方的红色三角形](https://abs-0.twimg.com/emoji/v2/svg/1f53b.svg)
+因为爱所以爱，因为信所以信。有因之爱，必有因而不爱；有因之信，也必有因之不信。唯有爱是造物主赋予我们灵魂的本源，是造物主无条件给予我们的，也唯有我们用无条件的信才能享有这无条件的爱。祝福所有因爱而做出选择的人，愿爱与光明沐浴每一个渴望真理与幸福的灵魂，上帝与我们同在。
 
-
-> Dominion Security System's security vulnerabilities have been called nothing more than conservative prattle.
-> 
-> Well, here is \*DOMINION ITSELF\* admitting to "Medium" & "High" Risks in its user's manual. (H/T [@JPMediaBoss](https://twitter.com/JPMediaBoss?ref_src=twsrc%5Etfw))
-> 
-> Its recommended remedy: "Invalidation of the election."🔻 [pic.twitter.com/ydkQP0Tmmk](https://t.co/ydkQP0Tmmk)
-> — Kyle Becker (@kylenabecker) [November 13, 2020](https://twitter.com/kylenabecker/status/1327368214238597123?ref_src=twsrc%5Etfw)
-
-
-
-快速查看一下，看来Dominion Voting Systems和臭名昭著的Tides Foundation在加拿大的分支机构都位于同一多伦多办公大楼内。如果您不熟悉Tides，那么曾经有一个隶属关系的团体可能会响起：ACORN。
-
-
-
-> Dominion.🗳️
-> 
-> A quick check & it appears Dominion Voting Systems and a Canadian branch of the notorious Tides Foundation are based in the same Toronto office complex.
-> 
-> If you aren't familiar with Tides, maybe a once-affiliated group rings a bell: ACORN.🤔🔽[https://t.co/MI9pfsJvL9](https://t.co/MI9pfsJvL9) [pic.twitter.com/fAVaH00SEr](https://t.co/fAVaH00SEr)
-> — Kyle Becker (@kylenabecker) [November 13, 2020](https://twitter.com/kylenabecker/status/1327359975505670146?ref_src=twsrc%5Etfw)
-
-
-
-邪恶盛行的唯一条件就是善良者袖手旁观的沉默–埃德蒙.伯克
-
-通过近期层层递进不断爆出的选举欺诈证据美国民众也许已经逐渐意识到了这次美国大选的黑幕。大选还未尘埃落定，但是民众心中正在浮出面纱后的真相。追求真相是人类与生俱来的本性。尘埃落定之时，所有人最感兴趣和需要探寻的问题也许是：谁在幕后操纵了美国大选？他们的目的是什么？
-
-真相：光总是战胜黑暗。真理总是战胜谎言。“但是行真理的人露面了，他的事迹可以彰显出来，是在上帝里行的。” -约翰福音3:21
+（文章内容仅代表作者观点）
 
 0
