@@ -1,38 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普如何改变了共和党和这个国家？
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/556530/)
+## 选票欺诈：多方证据揭示Dominion与Smartmatic是计算还是决定选举结果
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/556533/)
 
-![](https://i1.wp.com/www.nationalreview.com/wp-content/uploads/2020/11/Donald-J-Trump-NC.jpg?fit=789%2C460&amp;ssl=1)
-翻译：康州农场-烟波浩渺
+编译：玫瑰天空
 
-校对：康州农场-光头波波
+1）朱利安尼说，Dominion与Smartmatic有联系，后者是委内瑞拉选举（包括雨果•查韦斯的“选举”）的主要技术供应商。
 
-审核：康州农场-Truemanman
+2）朱利安尼说，自治领的说客是佐治亚州州长布莱恩·肯普的前参谋长。
 
-虽然全世界有非常多的人都在庆祝他们认为的川普现象已经结束，但事实上，这位被左派媒体广泛唾弃为“怪胎、腐败、意外、不合法、几乎完全失败的总统”，却获得了近7200万张选票（当所有合法选票计算完成后，可能还会更多），继续担任总统，无论发生什么情况，川普已经将共和党从里根时代后重回的乡村俱乐部利他主义者，重新定位为一个稳健立足于中下层和工人阶级以及主要少数族裔的政治组织。
-
-川普在加强共和党人的资本主义信誉的同时，减少了贫困，并使最低20%收入者获得了可观的收益，这是一个相当大的成就。那种认为他在党内引起的变革和他的政策遭到拒绝的说法是胡说八道。这些在国会和州选举中以及在他获得的共和党总统选票数的巨大增长中得到了有效的证明。如果说川普真的输了，那是输给了一个庞大而狂热的亲共联盟，这个联盟几乎包括了整个国家媒体、集权国家政府、金融机构、充当媒体审查员的大科技公司、好莱坞所有的华而不实的舆论助力、中共的自私的美国朋友，以及学术界和所谓的知识分子几乎一致的意见，而这并不能抹杀甚至大大削弱川普的成就。
-
-如果他愿意，川普可以像安德鲁-杰克逊从1825年到1828年一样，在接下来的四年里，以某种合理的方式宣称自己的总统职位被抢走，同时磨平他公众性格中一些小瑕疵。但他不会就此认输。
-
-拜登总统将在一个深刻分裂的党派的领导下就职，试图将反白人的城市游击队和伪装成民权十字军的破坏者在传统的自由民主派中心地带与强大而根深蒂固的利益联合起来反对令人震惊的民粹主义川普先生。
-
-一项无党派民调虽然反映出拜登比川普有明显优势,  但认为领导力最重要的阿拉巴马州选民中，只有13%的人认为拜登是一位强有力的领导人。而无论是否喜欢他，川普的比例为86%。拜登从事立法工作近半个世纪，善于与其他政客进行个人接触，圆滑世故，因此他可能减轻政治讨论的强度，甚至可能成功地在某些问题上凑成执政多数。但是，他和中共勾兑、腐败，显然是人品、道德各种不济。他不太可能寻求连任，也不可能将一个充满威望和人气的政府传给下一个民主党提名人。唐纳德-川普，或者更有可能是他精心支持的人，可以扛起共和党民粹主义的大旗取得胜利，并恢复对根深蒂固的两党建制派的攻击，虽然相对文明，但该政党可能成功地化解了这个橙色食人魔。他的敌人认为川普的结束，可能恰恰是开始。
-
-如果美国已经投鼠忌器，拒绝了川普的大众资本主义，实际上是接受了拜登-桑德斯的统一方案，那么，无论对此感到高兴还是不满意的人们都承认，这将是对整个世界具有深远意义的历史性转折。所有那些在选举中宣称这次选举是最重要的，如果不是自1860年林肯当选以来的话，至少是自1940年富兰克林第三次当选以来，承诺大规模重整军备、通过实力实现和平，以及向英国和加拿大提供一切非战争的援助以来，都是正确的。民主党官方支持的拜登-桑德斯统一方案，赞同美国重新容忍无证移民，激进的生态政策相当于向石油工业开战，急剧的再分配所得税，全面的商业微观管制，暗中容忍伊朗、朝鲜的军事核化，对原住民和非裔美国人的大量赔偿，无限制和便利的堕胎，包括早期杀婴，部分没收枪支，一些重大的宪法变动，部分或普遍取消正宗教会和信仰的传统地位，以及官方认可美国传统爱国主义的基本道德败坏。
-
-在拜登的选票中，有相当一部分（虽然大概是少数）将支持上述大部分或全部激进政策和信仰。它们的实质性颁布将暗中把世界上主要的国家影响力拱手让给中华人民共和国。英国在温斯顿-丘吉尔和富兰克林-罗斯福的帮助下，成功地实现了从世界上最有影响力的国家到其继任者的主要盟友的相对容易的无缝过渡，英国与这个国家有着共同的语言和民主政治传统，所有这些都是在广泛的犹太-基督教框架内进行的，并且世俗组织和宗教组织分离。如果美国作为世界上最有影响力和最强大的国家，在勉强维持了一个世纪之后，即将放弃这一地位，那么它将预示着整个世界的主流政治风气将发生根本性的变化。
-
-当温斯顿-丘吉尔在1945年的英国大选中被克莱门特-阿特利击败时，斯大林对安德烈-葛罗米柯和维亚切斯拉夫-莫洛托夫说：”用阿特利这样的无名小卒来取代丘吉尔这样的伟人，民主制度一定是个可怜的制度。” 他有些低估了阿特利，当然川普也不是丘吉尔（不过他至少把自己的肖像从奥巴马放逐的炼狱中带回了椭圆形办公室）。而美国也不像英国在1945年那样，刚刚渡过了历史上最大的危机。但这些天有很多关于奥斯瓦尔德-斯宾格勒的谈话，这位阴郁的德国人在20世纪20年代写下了《西方的衰落》。他预见到民主会失败，因为群众缺乏自我管理的资格，自由的新闻界不可避免地不负责任和腐败。他的书在德国获得了极大的欢迎，作为一战后该国处于困境的理由，多年来经常被整个西方的习惯性悲观主义者所引用。其实斯宾格勒的预言是错误的。他预言两个世纪的 “凯撒主义”，即西方将由墨索里尼这样的人统治，这都是胡说八道（墨索里尼最后试图穿着德国军服逃离意大利，被共产党游击队处死，他的尸体被肢解倒挂在米兰的一个加油站）。
-
-而斯宾格勒的公众愚昧的基本前提在发达国家普遍没有得到验证，虽然他对媒体的观点（包括民调）的看法在川普时代的美国得到了充分说明。如果美国真的开始全面采用拜登-桑德斯方案，那么作为一个大国就完了。亚伯拉罕-林肯有句名言：“美国永远不可能被征服，没有侵略者会喝到俄亥俄河的水，也不会在蓝岭上留下足迹；美国将作为一个民主国家而繁荣，或者以自杀方式灭亡”。这种命运现在已经提供了。据说是为了完善它的否定美国的实验，是国家的自杀。如果美国倒下了，它将会在文艺复兴500年后，带着所有的西方文明一起倒下，而中共国将加入世界的领导地位。任何一个有思想的美国人或者有智慧的外国观察家都应该意识到这其中的利害关系。
-
-最后祝福川普总统，继续让美国伟大吧！
-
-参考原文链接：[https://www.nationalreview.com/2020/11/how-trump-changed-the-gop-and-the-nation/?utm\_source=recirc-desktop&utm\_medium=homepage&utm\_campaign=river&utm\_content=featured-content-trending&utm\_term=second&itm\_campaign=headline-testing-how-trump-changed-the-gop-and-the-nation&itm\_medium=headline&itm\_source=nationalreview&itm\_content=Trumpism%20Was%20Not%20Rejected%20%E2%80%94%20It%20Was%20Ratified&itm\_term=Trumpism%20Was%20Not%20Rejected%20%E2%80%94%20It%20Was%20Ratified](https://www.nationalreview.com/2020/11/how-trump-changed-the-gop-and-the-nation/?utm_source=recirc-desktop&amp;utm_medium=homepage&amp;utm_campaign=river&amp;utm_content=featured-content-trending&amp;utm_term=second&amp;itm_campaign=headline-testing-how-trump-changed-the-gop-and-the-nation&amp;itm_medium=headline&amp;itm_source=nationalreview&amp;itm_content=Trumpism%20Was%20Not%20Rejected%20%E2%80%94%20It%20Was%20Ratified&amp;itm_term=Trumpism%20Was%20Not%20Rejected%20%E2%80%94%20It%20Was%20Ratified)
+3）根据华盛顿考官的说法，Smartmatic的董事长是乔治·索罗斯（George Soros）投资基金前副主席马克·马洛赫·布朗勋爵（Lord Mark Malloch Brown）。
+![眼睛](https://abs-0.twimg.com/emoji/v2/svg/1f440.svg)
+越来越多的证据浮出水面，只需审慎观察和探究：
 
 
+
+> According to the Washington Examiner, Smartmatic’s chairman is Lord Mark Malloch Brown, a former vice-chairman of George Soros’ Investment Funds. [https://t.co/tZ4PbvCm2A](https://t.co/tZ4PbvCm2A)
+> — The Election Wizard🧙‍♂️ (@Wizard\_Predicts) [November 13, 2020](https://twitter.com/Wizard_Predicts/status/1327288694047387648?ref_src=twsrc%5Etfw)
+
+
+
+2020年上演的这一幕美国大选中的选票谜团似曾相识👇👇👇
+
+早在2016年，普林斯顿大学教授就确切地演示了如何入侵Dominion机器。“我想出了一种如何制作稍微不同的计算机程序的方法，该程序可以将某些选票从一个候选人转移到另一个候选人。” 等等，这不是我们所看到的吗？看：
+![指向下方的三角形](https://abs-0.twimg.com/emoji/v2/svg/1f53d.svg)
+
+
+> DOMINION.🚨
+> 
+> Back in 2016 a Princeton prof demonstrated exactly \*how\* to hack a Dominion machine.
+> 
+> "I figured out how to make a slightly different computer program that… shifts some votes around from one candidate to another."
+> 
+> Wait, isn't that what we've been seeing? WATCH:🔽 [pic.twitter.com/upnP7a69M0](https://t.co/upnP7a69M0)
+> — Kyle Becker (@kylenabecker) [November 12, 2020](https://twitter.com/kylenabecker/status/1326751429915238401?ref_src=twsrc%5Etfw)
+
+
+
+Dominion Security System的安全漏洞仅被称为保守派。好吧，这是\* DOMINION ITSELF \*，它在其用户手册中承认“中”和“高”风险。（H T[@JPMediaBoss](https://twitter.com/JPMediaBoss)）其建议的补救措施：“选举无效”。
+![指向下方的红色三角形](https://abs-0.twimg.com/emoji/v2/svg/1f53b.svg)
+
+
+> Dominion Security System's security vulnerabilities have been called nothing more than conservative prattle.
+> 
+> Well, here is \*DOMINION ITSELF\* admitting to "Medium" & "High" Risks in its user's manual. (H/T [@JPMediaBoss](https://twitter.com/JPMediaBoss?ref_src=twsrc%5Etfw))
+> 
+> Its recommended remedy: "Invalidation of the election."🔻 [pic.twitter.com/ydkQP0Tmmk](https://t.co/ydkQP0Tmmk)
+> — Kyle Becker (@kylenabecker) [November 13, 2020](https://twitter.com/kylenabecker/status/1327368214238597123?ref_src=twsrc%5Etfw)
+
+
+
+快速查看一下，看来Dominion Voting Systems和臭名昭著的Tides Foundation在加拿大的分支机构都位于同一多伦多办公大楼内。如果您不熟悉Tides，那么曾经有一个隶属关系的团体可能会响起：ACORN。
+
+
+
+> Dominion.🗳️
+> 
+> A quick check & it appears Dominion Voting Systems and a Canadian branch of the notorious Tides Foundation are based in the same Toronto office complex.
+> 
+> If you aren't familiar with Tides, maybe a once-affiliated group rings a bell: ACORN.🤔🔽[https://t.co/MI9pfsJvL9](https://t.co/MI9pfsJvL9) [pic.twitter.com/fAVaH00SEr](https://t.co/fAVaH00SEr)
+> — Kyle Becker (@kylenabecker) [November 13, 2020](https://twitter.com/kylenabecker/status/1327359975505670146?ref_src=twsrc%5Etfw)
+
+
+
+邪恶盛行的唯一条件就是善良者袖手旁观的沉默–埃德蒙.伯克
+
+通过近期层层递进不断爆出的选举欺诈证据美国民众也许已经逐渐意识到了这次美国大选的黑幕。大选还未尘埃落定，但是民众心中正在浮出面纱后的真相。追求真相是人类与生俱来的本性。尘埃落定之时，所有人最感兴趣和需要探寻的问题也许是：谁在幕后操纵了美国大选？他们的目的是什么？
+
+真相：光总是战胜黑暗。真理总是战胜谎言。“但是行真理的人露面了，他的事迹可以彰显出来，是在上帝里行的。” -约翰福音3:21
 
 0

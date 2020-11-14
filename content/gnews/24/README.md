@@ -1,39 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】纳瓦罗：白宫一切正常，正按照川普总统连任的方式运作！世界需要力量型总统！
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/556515/)
+## 中共国国家主席习近平决定停止蚂蚁集团金服的首次公开募股
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/556629/)
 
-**作者：纽约香草山写作组 正道主义联盟**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13210729/42232-1595104587699.jpeg)
+翻译：康州农场-黎明的光芒
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
+校正：康州农场-V
 
+审核：康州农场-Truemanman
 
+据《华尔街日报》周四援引中国知情官员的话报道，中共国国家主席习近平亲自决定终止蚂蚁金服集团370亿美元的首次公开募股。
 
+叫停本应成为全球有史以来最大的公开募股的决定，发生在几天前，这家金融科技巨头的亿万富翁创始人马云（Jack Ma）对该国的金融监管机构和银行发起了公开攻击的数天后，所以当局决定叫停本应成为全球有史以来最大的公开募股。
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13200705/vv.png)
-纳瓦罗在周五接受《福克斯新闻》采访时说：“我们认为川普总统将继续赢得连任，因此我们会按照川普连任的方式推进各项工作”他说：“我们认为总统赢得了大选，目前我认为对拜登可能做什么事情，都只是猜测。”
+报道说，习近平主席下令中共国监管机构调查并推迟蚂蚁金服的上市。
 
-纳瓦罗说，在选举日，川普总统看起来已经获胜了。然后，他说，11月3日之后，拜登居然有足够的选票“赶上总统”。他说：“但如果你看看统计上发生了什么，显然是总统赢得了这次选举，并在选举日领先；然后，在选举日之后，不知何故，在这些关键战场州，拜登他们竟刚好获得了足够的票数，赶上总统。”
+蚂蚁集团没有立即回应路透社的置评请求。 本社也无法立即联系到国务院新闻办公室（中共国国务院）请求发表评论。
 
-白宫贸易顾问彼得·纳瓦罗（Peter Navarro）曾经在采访中预测，选民将在11月大选时选择川普而不是前副总统拜登，因为他们希望白宫能由一位能够应对全球威胁的“强硬的人”来领导。
+马云曾在10月24日的上海峰会上表示，监管体系正在扼杀创新，必须进行改革以促进增长。本月早些时候，路透社报道，这一讲话引发了一连串事件，使蚂蚁集团金服的上市遭遇挫折。
 
-纳瓦罗之前在接受福克斯新闻节目中曾经表示：认为美中关系是川普秋季将在选民中比拜登占更多优势的一个领域。
+在马云发表严厉的讲话后不久，国家监管部门就开始编撰报告，其中包括一份关于蚂蚁如何利用虚拟信用卡服务商 “花呗华北 ” (Huabei)等数字金融产品，鼓励穷人和年轻人积累债务的报告。
 
-当被主持人问到“你对即将到来的共和党大会有何期待，以及为何你认为中国会更希望拜登入主白宫”时，纳瓦罗回答：“整场选举，无论是在中国还是在民主党大会，都被看做是一场好人与强硬的人之间的较量。我们喜欢这种对决，因为我认为美国人民总会选择让强硬的人而不是好人入主白宫，因为他们知道世界是一个危险的地方。”
+据路透社报道，国务院办公厅汇编了一份有关马云讲话的舆论报告，并提交给习近平等高层领导人。
 
-发稿：悟空
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，纽约时间周日至周四晚上9:00，美国志愿者在纽约香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
-
-
-
-
+原文链接*[https://www.reuters.com/article/uk-antgroup-ipo/chinese-president-xi-jinping-decided-to-halt-ants-ipo-wsj-idUSKBN27S31W](https://www.reuters.com/article/uk-antgroup-ipo/chinese-president-xi-jinping-decided-to-halt-ants-ipo-wsj-idUSKBN27S31W)*
 
 0

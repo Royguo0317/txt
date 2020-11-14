@@ -1,195 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 宾夕法尼亚州联邦法院命令译文、原文
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/555948/)
+## 也來說說村長作惡
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/556225/)
 
-翻译 蒙特利尔战友团 laotou
+撰稿：潜水艇2020
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13145342/order.png)图片来自 pennrecord.com
-宾夕法尼亚州联邦法院
+编辑：Jenny
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13170900/IMG_3563.jpg)截图自一起扣扣网
+看了七哥講當年村長作惡的故事，不禁感慨萬千，40年過去了，村長的惡行非但没減少，反而鳥槍換炮，從狗逼叨騷的欺負鄉村婦女的土流氓，升級到了公司董事長，從吃拿卡要的土耍到使用黑社會手段的“先進管理模式”。村長成了土皇帝基本是中共國鄉村不爭的事實。而且俺們農村的“村長競選”也比美利堅合眾國正在進行的這場選舉更加實惠。投票前“先領票子”的事屢禁不止，妳懂得。
 
-申诉人：
+下面我先來聊聊我表哥和他村長的那點兒事。
 
-唐纳德·J·川普竞选总统公司；                        编号 602 M D. 2020
+事情是這樣的，幾年前，表哥在村裏租了壹塊地建起了公司做點小生意，而在他的營業執照上，村長是公司的合夥人. 我曾經很納悶的問他: “妳做生意, 怎麽會和村長扯上關系的? 而且我從沒見村長來幫忙照顧妳的生意啊。 他解釋說：”因為公司租的是村裏的土地，拉村長合夥，其實就是給他壹個股份，村長什麽錢也不用出，什麽事情也不用做，就等到年底分錢。他得這些好處，他就不會找妳麻煩，還能幫妳解決點麻煩，也不會有小混混來敲詐勒索。但是，因為疫情的影響加上從去年開始生意已經越來越難以維系，這不，前幾天表哥不得不關門大吉。
 
-共和党全国委员会
+**昨天，我上百度搜了下“村長惡霸”，居然有286萬條結果，基本都是指控村長作惡的內容**。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13171713/IMG_3565-2.jpg)截图自一起扣扣网
+下面是我摘錄了鳳凰新聞2019.1.9日刊登的壹篇新聞稿，這是壹個非常典型的例子。
+關於天津市西青區大寺鎮李莊子村民網絡公開舉報該村村長嶽慶濤，舉報內容摘錄如下
 
-V
+- 利用職權將村民的換遷樓，總面積多達4-50000平方米，私自低價出售，私吞1億多人民幣。
+- 利用權力私搭亂蓋占用村民集體土地，多達數千畝。
+- 利用職權獲得5個商鋪，總價1500萬。
+- 利用職權非法占用村委土地，私蓋大量廠房等違章建築。
+- 利用職權非法占有村集體土地私蓋車間，私自占有高速路旁幾百畝土地。利用職權，改變土地使用性質260畝，獲利夥同村裏各領導瓜分。
+- 花2000多萬購買選票，賄賂村民選舉村長，勾結黑勢力，毆打村民。放火燒不給他選票的村民的養牛場。
+- 砍樹種樹，騙取國家修地鐵的補償款。
+- 利用職權擁有市場商鋪54個之多，每年每處收租金5萬元，共270多萬壹年，已經收了五六年的時間了，非法獲利1300多萬元。
+- 利用職權，把居民樓低價出售給相關利益人。
+- 1豢養黑社會作打手，養情婦。
+- 威脅恐嚇村民，給村民斷水斷電。
 
-被告人：
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13171149/IMG_3559-1.jpg)截图自凤凰网
+老外肯定搞不明白，為什麽在中共國，壹個小小的村長，怎麽會能隨隨便便就獲利幾個億？隨隨便便占有幾千畝土地？隨隨便便的養幾個情婦？隨隨便便的使喚黑社會毆打村民？隨隨便便的放火燒村民的養牛場？隨隨便便的不給村民用水和電？
+這個，必須要解釋下：在中共國，土地都是國有的，村裏的土地，是屬於村集體的，因為村長是這個村集體的頭頭，所以，村長就有了處置這個土地的權利。
 
-凯西·布克瓦尔（Kathy Boockvar），宾夕法尼亚州联邦州务卿；
+而隨著中共所謂“城市化”，很多靠近城鎮市區的農村都進行了開發，其本質就是把原本分散居住的農民都集中搬遷到壹處居住，而倒騰出來的大片的土地，政府就高價賣給他人蓋廠房，獲取利益。而村長在執行上級鎮府政策的這個過程中，就獲得了特權，往往就會以共謀私：
 
-亚当斯郡选举委员会；
+1. 村民集中居住以後騰空出來的大片土地，很多會被村長非法占有，或租或賣給別人蓋車間，蓋廠房，以謀取私利。結合上文摘錄的天津村民的投訴內容，好幾條都是指控村長非法私占土地的，而且面積驚人。
+2. 為了把村民集中在壹起居住，村裏會建造大量的高樓，除了分給村民的，還剩很多住宅。村長往往會把這些多余的住宅私自處置以換取利益。上文天津村民投訴的內容中有提到，村長把村民的樓，私自出售，非法獲利1億多。他也把村民的樓低價賣給相關利益人群。
+3. 中共國推行的所謂“城鎮化”，往往撥款給下面修路修地鐵，村長還會利用機會，騙取國家補償款。上面也有提到。
 
-阿勒格尼郡选举委员会；
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13171304/IMG_3564.jpg)截图自一起扣扣网
+中共國從上至下，所謂的民主選舉，都是笑話。村長的選舉也壹樣，都是用錢買的。上文也有提到，村長賄選。而壹旦得到村長寶座，就相當於得到了特權。這個特權可以保證村長隨隨便便就可以獲得巨額的財富。有了這個巨額的財富，就可以哄得上級領導開心，上頭有人罩著，村長位置自然坐得穩。有了這個財富，還可以豢養壹些黑社會充打手來欺壓村民，讓村民不敢吭聲。
 
-阿姆斯特朗郡选举委员会；
+最後的結果，往往是，村民在當地是有冤無處訴，而如果投訴到上壹級別的政府機關，往往也會被打壓。所以，有能力的，就在網絡上公開喊冤，希望能引起輿論反響，討個公道。沒有能力的，就只能啞巴吃黃連，坐以待斃。
 
-比弗郡选举委员会；
+而現在，中共國對於網絡言論的管制越來越嚴，老百姓最後的壹點申冤機會，也很快就會消失了。
+必須強調壹點，即使在此時此刻，在中共國的很多地方，村長還被稱為“土皇帝”，要風得風，要雨得雨。不推翻中共，這些“土皇帝”就會永遠的存在，中共的老百姓想要享受什麽民主，自由，平等，權力，那是不可能的了。只有徹底的推翻中共，引用班農先生的壹句話:中國的老百姓才能被當市民壹樣對待，而不是當奴隸。
 
-贝德福德郡选举委员会；
+潛水艇2020
 
-伯克斯郡选举委员会；
+引用的新聞來源 https://ishare.ifeng.com/c/s/7jKXsjULlqK
 
-布莱尔郡选举委员会；
-
-布拉德福德郡选举委员会；
-
-巴克斯郡选举委员会；
-
-巴特勒郡选举委员会；
-
-坎布里亚郡选举委员会；
-
-卡梅伦郡选举委员会；
-
-碳郡选举委员会；
-
-中部郡选举委员会；
-
-切斯特郡选举委员会；
-
-克拉里昂郡选举委员会；
-
-克利菲尔德郡选举委员会：
-
-克林顿郡选举委员会；
-
-哥伦比亚郡选举委员会；
-
-克劳福德郡选举委员会；
-
-坎伯兰郡选举委员会；
-
-多芬郡选举委员会；
-
-特拉华郡选举委员会；
-
-埃尔克郡选举委员会；
-
-伊利郡选举委员会；
-
-费耶特郡选举委员会；
-
-森林郡选举委员会；
-
-富兰克林郡选举委员会；
-
-富尔顿郡选举委员会；
-
-格林郡选举委员会；
-
-亨廷顿郡选举委员会；
-
-印第安纳州郡选举委员会；
-
-杰斐逊郡选举委员会；
-
-朱尼亚塔郡选举委员会；
-
-拉克瓦纳郡选举委员会；
-
-兰开斯特郡选举委员会；
-
-劳伦斯郡选举委员会；
-
-黎巴嫩郡选举委员会；
-
-利海郡选举委员会；
-
-卢塞恩郡选举委员会；
-
-莱康郡选举委员会；
-
-麦肯郡选举委员会；
-
-默瑟郡选举委员会；
-
-米夫林郡选举委员会；
-
-门罗郡选举委员会；
-
-蒙哥马利郡选举委员会；
-
-蒙托尔郡选举委员会；
-
-北安普敦郡选举委员会；
-
-诺森伯兰郡选举委员会；
-
-佩里郡选举委员会；
-
-费城郡选举委员会；
-
-派克郡选举委员会；
-
-波特郡选举委员会；
-
-舒伊尔基尔郡选举委员会；
-
-斯奈德郡选举委员会；
-
-萨默塞特郡选举委员会；
-
-沙利文郡委员会选举委员会；
-
-苏斯奎哈纳郡选举委员会；
-
-蒂奥加郡选举委员会；
-
-联合郡选举委员会；
-
-韦南戈郡选举委员会；
-
-沃伦郡选举委员会；
-
-华盛顿郡选举委员会；
-
-韦恩郡选举委员会；
-
-韦斯特莫兰郡选举委员会；
-
-怀俄明郡选举委员会；
-
-约克郡选举委员会
-
-**命令**
-
-而今，2020年11月12日，在审议了申诉人衡平法性质的复议请求，双方提交的法律备忘录，以及建议调查的干扰（大选的）被告人后，法院得出结论，被告人凯西·布克瓦尔（Kathy Boockvar）以联邦州务卿身份，向被告郡选举委员会发布了2020年11月1日的指导意见缺乏法定权力，因为该指导意见旨在改变《宾夕法尼亚州选举法》第1308（h）节（1937年6月3日法，P.L.1333，经修订）第25 P.S.§3146.8（h）条规定的某些选民核实身份证明的最后期限。根据布克瓦尔州务卿对宾夕法尼亚州最高法院在宾夕法尼亚州民主党诉布克瓦尔（第3版 宾夕法尼亚州，2020年9月17日提交，编号：133MM2020）一案中判决的解释与应用，某些选民需要核实身份证明。因此，法院特此命令，禁止被告郡选举委员会根据本院2020年11月5日发布的命令第一款规定的特别禁令对任何已隔离的选票进行计票。
-
-玛丽·汉娜·莱维特，审判长 （签字）
-
-法院命令原文链接：
-
-[https://static.foxbusiness.com/foxbusiness.com/content/uploads/2020/11/602-MD-2020-Order-Nov.-12.pdf](https://static.foxbusiness.com/foxbusiness.com/content/uploads/2020/11/602-MD-2020-Order-Nov.-12.pdf)
-
-原文文字版：
-
-IN THE COMMONWEALTH COURT OF PENNSYLVANIA
-
-Donald J. Trump For President, Inc.;
-
-and Republican National Committee
-
-Petitioners
-
-V
-
-Kathy Boockvar, in her capacity as Secretary of the Commonwealth of Pennsylvania;
-
-Adams County Board of Elections; Allegheny County Board of Elections; Armstrong County Board of Elections ; Beaver County Board of Elections; Bedford County Board of Elections; Berks County Board of Elections; Blair County Board of Elections; Bradford County Board of Elections; Bucks County Board of Elections; Butler County Board of Elections; Cambria County Board of Elections; Cameron County Board of Elections; Carbon County Board of Elections; Centre County Board of Elections; Chester County Board of Elections; Clarion County Board of Elections; Clearfield County Board of Elections: Clinton County Board of Elections; Columbia County Board of Elections; Crawford County Board of Elections; Cumberland County Board of Elections; Dauphin County Board of Elections; Delaware County Board of Elections; Elk County Board of Elections; Erie County Board of Elections; Fayette County Board of Elections; Forest County Board of Elections; Franklin County Board of Elections; Fulton County Board of Elections, Greene County Board of Elections; Huntingdon County Board of Elections; Indiana County Board of Elections; Jefferson County Board of Elections; Juniata County Board of Elections; Lackawanna County Board of Elections; Lancaster County Board of Elections; Lawrence County Board of Elections; Lebanon County Board of Elections; Lehigh County Board of Elections; Luzerne County Board of Elections; Lycoming County Board of Elections; McKean County Board of Elections; Mercer County Board of Elections; Mifflin County Board of Elections; Monroe County Board of Elections; Montgomery County Board of Elections; Montour County Board of Elections; Northampton County Board of Elections; Northumberland County Board of Elections; Perry County Board of Elections; Philadelphia County Board of Elections; Pike County Board of Elections; Potter County Board of Elections; Schuylkill County Board of Elections; Snyder County Board of Elections; Somerset County Board of Elections; Sullivan County Board of Elections; Susquehanna County Board of Elections; Tioga County Board of Elections; Union County Board of Elections; Venango County Board of Elections; Warren County Board of Elections; Washington County Board of Elections; Wayne County Board of Elections ; Westmoreland County Board of Elections; Wyoming County Board of Elections; and York County Board of Elections
-
-Respondents
-
-Order
-
-AND NOW this 12th day of November, 2020, upon consideration of Petitioners’ petition for Review in the Nature of a Complaint in Equity, and the memoranda of law filed by the parties and the proposed intervenor-respondent , the Court concludes that Respondent Kathy Boockvar, in her official capacity as Secretary of the Commonwealth, lacked statutory authority to issue the November 1, 2020, guidance to Respondents County Boards of Elections insofar as that guidance purported to change the deadline in Section 1308 (h) of the Pennsylvania Election Code, Act of June 3, 1937, P.L. 1333, as amended, 25 P.S. §3146.8 (h),for certain electors to verify proof of identification, based on Secretary Boockvar’s interpretation and application of the Pennsylvania Supreme Courts decision in Pennsylvania Democratic Party v Boockvar, \_A.3d\_(Pa, No. 133 MM 2020, filed September 17, 2020).
-
-Accordingly, the Court hereby ORDERS that Respondents County Boards of Elections are enjoined from counting any ballots that have been segregated pursuant to paragraph I of this Courts order dated November 5, 2020, granting a special injunction.
-
-MARY HANNAH LEAVITT, President Judge
-
-0
+1+

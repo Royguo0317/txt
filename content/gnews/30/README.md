@@ -1,47 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 阿利托大法官警告：美国言论与宗教自由面临降级危险
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/556296/)
+## 快讯：老魔头福奇称拜登为“当选总统”
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/556491/)
 
-蒙特利尔战友团 laotou
+多伦多加喜农场 老熊
 
 校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13180531/%E6%B3%95%E5%AE%98.jpg)图片来自 India Tour Tips
-11月13日各大媒体、网站在第一时间报道了美国最高法院大法官萨缪尔·阿利托（Samuel Alito）在联邦党人学会上发表的讲话，警告（在美国）言论自由、宗教自由正面临成为第二类权利的危险。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13194201/%E6%8B%9C%E7%99%BB-2.jpg)图片来自 The Hill
+暗势力的典型代表，老魔头福奇的獠牙终于显露，11月12日在华盛顿国家大教堂一群乌合之众的讲话中称拜登为“当选总统”。
 
-布雷特巴特新闻（Breitbart News）报道：
+在《左轮手枪》（revolver）网站，看到一句有关福奇的报道，点击后发现是极左媒体CNBC的文章，正想关闭，一段刺眼的描述进入视线“……总统当选人拜登……”（a member of President-Elect Joe Biden’s coronavirus taskforce……）。
 
-阿利托大法官说，“在某些方面，宗教自由正迅速成为一种不受欢迎的权利”，并被一些人视为“不是一种珍视的自由，它往往只是偏见的借口，是不能容忍的，即使没有证据表明有人受到伤害。”
+福奇不是在最后才捅刀子，而是一直与川普总统作对。疫情期间，他身为川普总统专业顾问，自始至终在竭尽全力地抵制使用羟氯喹，误导川普总统应对中共病毒大流行的政府决策，对于CCP病毒在美国的蔓延负有不可推卸的责任，他还高度赞赏过WHO对CCP病毒的应对措施等。
 
-大法官说，“CCP病毒增强了这个病毒袭击之前已经存在的令人不安的趋势。涉及CCP病毒限制的案件已经指出了个人权利评估的新兴趋势，这在宗教自由方面尤其明显。我很难说，但在某些方面，宗教自由正迅速成为不受欢迎的权利。”
+福奇深知，随着CCP恶行不断被揭露，自己与中共勾兑、沆瀣一气的事实将被揭穿，遭天谴、遭报应日子正在临近，还拼死一搏，与拜登站在一边，并为其背书，企图以此躲避正义的惩罚，真是痴心妄想！
 
-福克斯的文章称：
+新闻链接：
 
-大法官在演讲中提到了美国法学院和“更广泛的学术界”的现状，他们极度缺乏对对立观点的包容。
-
-许多法学院的毕业生声称，他们因为背离“法学院正统”的观点受到“骚扰”和“报复”。
-
-我们面临的问题是，我们的社会是否足够包容，能够容忍那些不受欢迎的宗教信仰的人……基督徒也应该得到与其他宗教少数群体同样的保护。
-
-阿利托大法官警告，宗教自由有可能成为二等权利。
-
-在CCP病毒大流行之前，人们对“不时髦的观点”有“敌意”……校园和一些公司的言论自由现在处于危险之中。
-
-“你不能说婚姻是一个男人和一个女人的结合”，阿利托大法官说，“直到最近，绝大多数美国人还是这么想的，现在这被认为是偏见。”
-
-法官致力于法治是义不容辞的，他们不能奉行折中原则，不能将任何背离他们义务的行为合理化。
-
-阿利托大法官最后说，捍卫宪法和自由是摆在所有美国人面前的工作。
-
-70岁的阿利托是前总统布什（George W. Bush）的提名人，2006年得到参议院的确认。
-
-从阿利托大法官的讲话中似乎读出了法律高层人士对CCP在美国渗透的警觉，表现在对不同意见的舆论管控、CCP病毒话题的禁言、个人权威对防止CCP病毒扩散的限制等，也隐晦地提出了法律界面临“超限战”的境况。
-
-参考链接：
-
-[https://www.breitbart.com/clips/2020/11/13/alito-religious-liberty-is-in-danger-of-becoming-a-second-class-right/](https://www.breitbart.com/clips/2020/11/13/alito-religious-liberty-is-in-danger-of-becoming-a-second-class-right/)
-
-[https://www.foxnews.com/politics/justice-alito-warns-of-dangers-to-free-speech-religious-liberty-in-federalist-society-address](https://www.foxnews.com/politics/justice-alito-warns-of-dangers-to-free-speech-religious-liberty-in-federalist-society-address)
+[https://www.cnbc.com/2020/11/12/fauci-says-us-has-independent-spirit-but-now-is-the-time-to-do-what-youre-told.html](https://www.cnbc.com/2020/11/12/fauci-says-us-has-independent-spirit-but-now-is-the-time-to-do-what-youre-told.html)
 
 0

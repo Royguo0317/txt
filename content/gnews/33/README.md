@@ -1,65 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共军队将信息战和超限战作为自己的行动理念
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/556064/)
+## 【大卫作战室观点】11/05期 Himalaya UK David&#8217;s War Room
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/556149/)
 
-*新闻来源：《兰德公司(Rand Corporation)》；作者：Edmund J. Burke, Kristen Gunness, Cortez A. Cooper III, Mark Cozad；发布时间： 2020年*
+[!\[\]()!\[\](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/e3ede2ec-c107-4e56-84c2-2475379d2d5d.jpg?asset_id=efbb306a-372c-46ac-8fa7-e48d5b5f25df&amp;img_etag=%22ee30c1aa3aecdb61d55343d323d5192c%22&amp;size=2560)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/e3ede2ec-c107-4e56-84c2-2475379d2d5d.jpg?asset_id=efbb306a-372c-46ac-8fa7-e48d5b5f25df&amp;img_etag=%22ee30c1aa3aecdb61d55343d323d5192c%22&amp;size=1024)
 
-*翻译/简评：MikeHua；校对：@Beicy-数学老师；审核：海阔天空；Page：Eric8848*
+## 大卫作战室观点 
 
-*编辑：【喜马拉雅战鹰团】*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13170001/55-1.jpg)
-**简评：**
+## Himalaya UK David’s War Room
 
-兰德公司是美国历史悠久的军方智库，其最近提交的一篇报告直指中共军方的作战纲领—信息战。中共解放军明白，要和美军火战只有死路一条，于是中共军队就开始搞 “混合战’’，在网络战场和信息战场捣乱美国。中共解放军的战略支援部队就是专门为信息控制建立的部队。中共的军队打仗不行，镇压中国百姓、搞蓝金黄世界一流。报告中提到，中共军队的三个作战纲领：（1）信息控制；（2）超限战，把一切都变成战场；（3）攻击主要目标。这和文贵先生的爆料内容完全吻合。现在美国军方已经认识到了这一点，想必时击成熟，正义之师一定重拳出击，一锤定音！
+## **2020.11.05期**
 
-**原文翻译：**
 
-## **中共人民解放军的行动理念**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13155853/11-25.jpg)
-***研究问题***
 
-1． 中共的军队策略如何与其领导层换代一并改变?
+#### 解读蚂蚁金服IPO叫停的背后逻辑！CCP央视告佐治亚州和密歇根州法官分别驳回川普总统两起选举诉讼！中共葫芦卖什么药…
+[!\[\]()!\[\](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/2eb443a4-346b-422c-bf78-9de2ef846f09.png?asset_id=ff1d909c-9e9d-4cfe-a325-0ece53940cce&amp;img_etag=%22db6c708f1258917458e9c3d2a1f276d5%22&amp;size=2560)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/2eb443a4-346b-422c-bf78-9de2ef846f09.png?asset_id=ff1d909c-9e9d-4cfe-a325-0ece53940cce&amp;img_etag=%22db6c708f1258917458e9c3d2a1f276d5%22&amp;size=1024)
 
-2． 中共人民解放军如何利用信息作为发动战争和赢得战争的工具？
+> **A. 解读蚂蚁金服IPO叫停的背后逻辑**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13160124/22-11.jpg) 图片来自网络
 
-在2017年，中共领导人习近平倡议中共人民解放军（PLA）在2035年前完成现军队现代化建设，建设世界一流军队，在2050年前可以在一切场景下打赢各种战争。虽然解放军在过去三十年之内完成了令人惊叹的现代化，但是从现在到习近平的2035年目标之间，这些努力如何在战场上表现，还不清楚。中共军队理论，战略和行动理念是理解解放军如何在其被征召时作战的关键。
+1.IPO造假：蚂蚁金服根本没有空间支撑市盈率96.48倍； 资金主要来源互联网金融手续费却谎称是科创型企业。
 
-在这篇报告中，作者评估了中共的当前军队理论、策略和指导原则，他们也描述了支撑解放军军队计划概念学说（也称为行动理念）。这篇报告中的评估来自对中共独裁政府、军队、媒体、学术来源和一些西方文献的分析。作者们分析了这些资料以从中共的角度来理解中共国的解放军长期发展政策和策略方向。这个报告是国防部战略家和计划制定者的入门必读，因为这些人要制定计划和构想针对中共国不断变化的军队策略和战略的应对措施。
+2.蚂蚁金服公开募股、联合记帐的机构包括巴克莱，以及唯利是图的华尔街和江泽民温家宝王岐山背后的影子，都等着在这个IPO里边捡钱。
 
-***主要发现***
+3.马云和他背后的太子党知道了爆料革命的威力，都想抓住最后的捞钱机会，蚂蚁金服迫不及待IPO上市。
 
-三个主要理念可以指导解放军完成现代化军队建设
+4.蚂蚁金服紧急叫停，充分说明中共内部斗争，习与政治老人的斗争进入明面化。
 
-三个互相关联的行动理念很有可能是中共解放军完成2035年既定任务的基本思想和指导准则：（1）战争控制（导致行动胜利）取决于信息主导；（2）作战空间在收缩，但是战争空间在扩大；（3）瞄准主战场可以击败敌人的行动系统。
 
-习近平和他的战略家们正在着眼2035年“全面现代化”的里程碑之外，为2050年的一支“世界一流军队” 而发展军事理论和概念。
+[!\[\]()!\[\](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/d38daf67-4192-4c87-be1d-a87ed6439f59.png?asset_id=08d00849-e697-49d7-a918-bf01518ca368&amp;img_etag=%226405f4956ea2ba71549bcbab80171d50%22&amp;size=2560)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/d38daf67-4192-4c87-be1d-a87ed6439f59.png?asset_id=08d00849-e697-49d7-a918-bf01518ca368&amp;img_etag=%226405f4956ea2ba71549bcbab80171d50%22&amp;size=1024)
 
-北京对使用大数据很感兴趣—并且最终使用人工智能（AI）–来提高解放军实力。
+> **B. CCP报导佐治亚州和密歇根州法官分别驳回川普总统两起选举诉讼，中共葫芦卖的什么药？**
 
-虽然大多数解放军学者目前不认为人工智能会完全取代人类作为作战指挥，但他们相信人工智能可以作为“数字员工长官”，识别敌人目的和监控作战行动。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13161831/33-2.jpg)图片来自网络
-最令人瞩目的是解放军建立的战略支援部队（Strategic Support Force）,该部门负责融合网络数据、电磁信息和太空战场信息。
 
-贯穿中共主要信息渠道的共同主题是，掌控大数据分析可以让中共在未来与强大力量的军事冲突中处于有利位置。
+1.中共与贪婪的华尔街的勾兑吸血的行为，早引起美国当前危机委员会重视及警告。
 
-网络战场似乎是中共解放军使用大数据的另一个主战场。
+2.如果川普总统连任成功，按照《国际紧急经济权力法》在美国的一系列中资企业中概股都会受到围剿，叫停供应链转移。
 
-***建议***
+3.这是中共所有盗国贼都害怕的，所以CCP要千方百计破坏川普总统连任。
 
-中共在创新军队战略和纲领的野心会实现多少，将主要取决于大数据和人工智能技术在军事上的应用，以及现存的在系统战中联合作战概念和随之而来的任何新兴技术的融合。
 
-中共共产党领导人明确优先并且提供资源发展必须的技术和系统，但是解放军是否会是第一个发展成功适合未来战场的作战体系，无论是在中共国周围还是在更大的全球范围，还有待观察。
+[!\[\]()!\[\](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/d5d54911-9c82-40c4-90cd-a27f9eaaafab.png?asset_id=e848b19b-b162-4087-8954-0ac6984ba19c&amp;img_etag=%22e7a8cd5e105167306e394fc0c8434b92%22&amp;size=2560)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/d5d54911-9c82-40c4-90cd-a27f9eaaafab.png?asset_id=e848b19b-b162-4087-8954-0ac6984ba19c&amp;img_etag=%22e7a8cd5e105167306e394fc0c8434b92%22&amp;size=1024)
 
-[原文链接](https://www.rand.org/pubs/research_reports/RRA394-1.html)
+> **C. 败登家族和中共陷入进退维谷的境地**
 
-[Spark adobe 英译中版链接](https://spark.adobe.com/page/FIekrt3g1bquW/)
 
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+1.三块硬盘，暴露CCP蓝金黄败登家族以达到控制美国的阴谋。CCP和败登家族牢牢地绑在了一起。
 
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13163752/44-1.jpg)
+2.CCP花大量资金助选拜登，却不敢恭贺拜登 “当选”， 进退维谷。
+
+3.大量证据直指民主党造假和违规操作，最终川普总统一定会连任成功。
+
+
+
+编辑**[【喜马拉雅战鹰团】](https://spark.adobe.com/page/5l9wjBHP5vTCq/)**-点击Adobe Spark版
+
+[**点击关注大卫作战室Parler**](https://parler.com/profile/David008/posts)
+
+**[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)**
+
+**[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/user/5ee680a45bd6f123dd104807)**
+[!\[\]()!\[\](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/4b4b8dee-2539-4e6f-8402-d252f8bc7c26.jpg?asset_id=5e203867-2df9-4e0f-bf60-a58bfdf4444a&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=2560)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/4b4b8dee-2539-4e6f-8402-d252f8bc7c26.jpg?asset_id=5e203867-2df9-4e0f-bf60-a58bfdf4444a&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=1024)
 0
