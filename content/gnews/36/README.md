@@ -1,27 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《美日安保条约》再次确认将共同协防钓鱼岛
-` 快慢机` [轉載自GNews](https://gnews.org/zh-hans/558342/)
+## 【世界多语言图文】2020/11/09 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/558714/)
 
-内军事:快慢机
+战友之家图文摘要及多语组
 
-2020年11月14日,日本防卫相岸信夫与美国代理国防部长米勒举行了电话会议.
+[289\_English\_1109\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14075641/289_English_1109_CCP_Virus_Updates.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14075641/289_English_1109_CCP_Virus_Updates.pdf)
 
-双方就中共当下在东海以及南海的极速军事扩张进行了深度的探讨.
+[289\_German\_1109\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14075641/289_German_1109_CCP_Virus_Updates.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14075641/289_German_1109_CCP_Virus_Updates.pdf)
 
-另外再次确认以《美日安保条约》共同协防钓鱼岛!
+[289\_Japanese\_1109\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14110647/289_Japanese_1109_CCP_Virus_Updates.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14110647/289_Japanese_1109_CCP_Virus_Updates.pdf)
 
-美国新任代理防长上任伊始,便把注意力投在了印太防区,与日本防卫相进行了深度的意见交换.
+[289\_Korean\_1109\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14075641/289_Korean_1109_CCP_Virus_Updates.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14075641/289_Korean_1109_CCP_Virus_Updates.pdf)
 
-日本是印太防区的重要组成节点.同样也是美国在亚太地区的坚定盟友.
+[289\_Spanish\_1109\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14075641/289_Spanish_1109_CCP_Virus_Updates.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14075641/289_Spanish_1109_CCP_Virus_Updates.pdf)
 
-《美日安保条约》是双方就地区安全等问题,所达成的双边协防战略合作.
 
-美日防长再次确认以《美日安保条约》共同协防钓鱼岛问题达成一致.
-
-此前的11月12日,美国2020总统竞选人拜登,在与日本首相菅义伟进行的电话会议中也同样强调并确认,钓鱼岛是符合《美日安保条约》第五条的使用对象.
-
-这也再次印证了“郭文贵”先生早前所说——美国不论两党之中的谁当选,都势必将“灭共行动”进行到底!
 
 0

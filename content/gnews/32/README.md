@@ -1,49 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家！《拜登大选作弊》系列（2）
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/556027/)
+## 灭共在即：传播真相、唤醒同胞的反洗脑小技巧
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/558785/)
 
-- 编辑：文顺
-- 作者：小木头
+作者：康州农场-文韵
 
+审核：康州农场-Truemanman
 
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+郭文贵先生在美东时间11月14日早上的直播中提到，中共国内许许多多高层战友、知识分子战友已经达成共识认可了新中国联邦，接下来我们爆料革命新中国联邦的行动将是唤醒众多的平民百姓。说起唤醒身边的同胞，相信每一位战友都深感不易。美国即将行动，灭共已经板上钉钉，这个时候传播CCP病毒真相、香港危机真相尤其重要。如何让大众更加认清真相，唤醒每一位同胞，这是我们接下来要思考的问题。
 
-拜登大选作弊已浮出水面，根据多方报道，我们整理出拜登大选作弊所用的手段。*《拜登大选作弊》系列（1）：[https://gnews.org/zh-hans/551585/](https://gnews.org/zh-hans/551585/)*
+说起宣传，中共大外宣大内宣臭名昭著。郭先生曾经说过，共产党怎么洗脑老百姓的，咱们就怎么洗回来。看郭文贵先生、爆料革命战友的视频是最佳反洗脑的方法，除此之外让我们来看看，一些传播真相、唤醒同胞的小技巧。
 
-**一人多票**
+**方法一：直接传播最新时事、郭先生的最新直播。**
 
-11月13日，据詹姆斯·伍德转推，密西根州有目击者指控，一批选票中有60%的有相同签名，有的票被扫描5次。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12123847/cheat2.jpg)
-参考链接：[https://twitter.com/RealJamesWoods/status/1327009008377466881?s=20](https://twitter.com/RealJamesWoods/status/1327009008377466881?s=20)
+此方法战友们用的最广泛，但对于一些被深度洗脑、不愿意面对现实的同胞，直接传播有时候达不到想要的效果。既然直接传播不够力度，那咱们尝试间接传播之法。
 
-**弃票于野**
+**方法二：借转发、转述之名传播真相。**
 
-11月5日，推友推文表示，电视报道的镜头意外录下了计票站工作人员拆开选票，把其中一些扔进垃圾桶画面。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12123943/cheat4.jpg)
-参考链接：[https://twitter.com/luoshang1/status/1324319888643534858](https://www.epochtimes.com/gb/20/11/10/n12539379.htm)
+根据笔者的观察，不少被洗脑的中年、老年同胞，对于直接告诉他们的事情，反而持怀疑的态度，却特别相信微信上一些标明 [转发]、[快转]等信息。我们可以试着采用这种转述方法，例如“听隔壁婶儿说刘亦菲居然……”，或者标明“快转，真相居然是这样……”，“看完秒删，你不知道的一些邪恶秘密……”引导他们去自己寻找真相。真相在哪里？GNEWS.ORG和GTV.ORG。
 
-**马克笔废票**
+**方法三：向家人传播真相的小技巧之——传播给家人信赖的朋友。**
 
-11月5日，据ABC报道，亚利桑那州部分选民因使用选举官提供的马克笔使选票无效。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12124249/cheat6.jpg)
-参考链接：[https://abc7ny.com/sharpiegate-sharpie-gate-voter-sharpies-trump-votes/7668517/](https://abc7ny.com/sharpiegate-sharpie-gate-voter-sharpies-trump-votes/7668517/)
+不少战友发现，向家人传播真相有时候反而比向朋友传播真相更困难。自己的家庭成员是每一个人最亲近的人，但对于真相与见识，往往家庭成员都持有自己的看法。家里人听不进去怎么办呢？别急，我们知道，每一个人都有自己信赖的朋友和圈子。尽管家里人可能一时半会转不过弯来，但是家人信赖的朋友说出来，效果立竿见影。当我们将真相向家人那些有独立思考能力的朋友传播的时候，也相当于传播给了家人。有独立思考能力的朋友再结合方法二，传播效果更好。
 
-**木板遮窗黑屋点票**
+**方法四：多投稿Gnews和进行GTV直播、多撰写盖特。**
 
-11月12日，据川普总统推文视频，宾夕法尼亚和密西根州有民主党人用木板遮住选票室窗户。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12124422/cheat11.jpg)
-参考链接：[https://t.co/WLoDapMLikhttps://twitter.com/TheRightMelissa/status/1326703816813719553?s=20](https://t.co/WLoDapMLikhttps://twitter.com/TheRightMelissa/status/1326703816813719553?s=20)
+笔者发现，身边有些朋友不爱交际，却喜欢看公众号、微信微博文章来增长知识。这种增长知识的初衷是好的，却被共产党利用了。共产党利用国家机器绑架了所有自媒体和平台，墙内的自媒体和平台成为共产党的宣传和洗脑机器。Gnews和GTV作为世界上唯一一家传播真相、为正义发声的自媒体平台，我们这些最先觉醒、被上天选中的战友们应该充分利用起来。只有我们战友们团结起来，多投稿、多发声，全世界都会看到我们的文字、听到我们维护正义的呼喊。
 
-**不计军人票**
+**传播真相的方法还有很多，战友们多留心、多耐心、多观察，总能找到最好的传播方法。**作为全球最先醒来的战友们，传播真相是我们作为新中国联邦人的天赋使命。展望未来，当共匪倒下，我们还会有更多的办法传播真相，不让共产党再继续荼毒我们的子孙后代，彻底清除共产党余毒，拯救我们华人的未来。
 
-11月7日，据推友推文显示，军人投给川普总统的选票被丢弃。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12124553/cheat14.jpg)
-参考链接：[https://t.co/H3Izj0VU8C https://twitter.com/EluuEmmanuelO1/status/1324994750827687942?s=20](https://t.co/H3Izj0VU8C%20https://twitter.com/EluuEmmanuelO1/status/1324994750827687942?s=20)
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
-
-0
+1+
