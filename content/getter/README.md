@@ -12,6 +12,26 @@
 
 
 
+[ 11月14号：你们太了不起了，亲爱的战友兄弟姐妹们！](/content/getter/content/2020/11/5fb02fb6ad3f0f61d2c06b46.md)
+
+**郭文贵MILES** `2020-11-14T19:27:50`
+##
+
+[ 11月14号：  我衷心感激和万分爱护的新中国联邦人，你们太了不起了，亲爱的战友兄弟姐妹们  ！](/content/getter/content/2020/11/5fb02f80ad3f0f61d2c06b3b.md)
+
+**郭文贵MILES** `2020-11-14T19:26:56`
+##
+
+[ 11月14号：我衷心感激和……亲爱的战友兄弟姐妹们！](/content/getter/content/2020/11/5fb02f3cad3f0f61d2c06b2f.md)
+
+**郭文贵MILES** `2020-11-14T19:25:48`
+##
+
+[ 11月14号：我衷心感激和万分爱护的新中国联邦人，你们太了不起了，亲爱的战友兄弟姐妹们！](/content/getter/content/2020/11/5fb02f00ad3f0f61d2c06b24.md)
+
+**郭文贵MILES** `2020-11-14T19:24:48`
+##
+
 [ 11月13号：尊敬的战友们好，明天11月14号上午9．30．文贵直播……没有任何爆料．纯粹乱聊，明天下午4:00文贵将与新中国联邦华盛顿大游行直播节目连线……...](/content/getter/content/2020/11/5faf3099ad3f0f61d2c026ef.md)
 
 **郭文贵MILES** `2020-11-14T01:19:21`
@@ -140,25 +160,5 @@
 [Oct 25,2020  Exclusive: Documents to reveal the relationships between Jia Yaotin...](/content/getter/content/2020/10/5f959a75e7d0c633dede5920.md)
 
 **郭文贵MILES** `2020-10-25T15:32:05`
-##
-
-[10 24日：乖乖呀……https://gtv.org//?videoid=5f94837c7de25667c0fe0c5e](/content/getter/content/2020/10/5f948ad806847a4c651a7e06.md)
-
-**郭文贵MILES** `2020-10-24T20:13:12`
-##
-
-[10月23日 《国家脉冲》独家报道: “彼得·亨德森”是乔·拜登的电邮化名吗？   https://gnews.org/zh-hans/443757/  Oct...](/content/getter/content/2020/10/5f93b1f906847a4c6519d282.md)
-
-**郭文贵MILES** `2020-10-24T04:47:53`
-##
-
-[10月23日   2017年6月30日亨特·拜登与渤海华美（上海）投资基金管理有限公司签署的巨额贷款协议 https://gnews.org/zh-hans/4...](/content/getter/content/2020/10/5f93b08606847a4c6519d147.md)
-
-**郭文贵MILES** `2020-10-24T04:41:42`
-##
-
-[10月23日 亨特·拜登向海航渤海金控借钱的目的是什么？ ](/content/getter/content/2020/10/5f93900906847a4c6519b483.md)
-
-**郭文贵MILES** `2020-10-24T02:23:05`
 ##
 
