@@ -1,36 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 科技脱钩，中共紫光崩溃。任正非信心表示：中国半导体制造世界第一…在台湾
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/558113/)
+## 11/14/2020 财经快讯: 首付一折重现中共楼市; 纳瓦罗自信川普连任并着手第二任期计划
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/558305/)
 
-台湾农场zhong
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14083931/Picture70.png)图片来源：[https://propertyupdate.com.au/](https://propertyupdate.com.au/8-reasons-property-markets-crash/)
+1.中共国苏州楼市近期大幅下滑。9，10月至今，多个楼盘积极打折促销，甚至推出特价房，限时秒杀，首付1折等多重优惠。数据显示，10月苏州新房成交量骤降，共成交6732套，环比上月跌幅35.10%，同比2019年10月下降33.04%。
+[https://money.163.com/20/1114/08/FRCOFQNA002580S6.html?clickfrom=w\_money](https://money.163.com/20/1114/08/FRCOFQNA002580S6.html?clickfrom=w_money)
 
-相关新闻「任正非：中国晶片制造世界第一…在台湾」:
- [https://www.inside.com.tw/article/21534-huawei-Ren-Zhengfei](https://www.inside.com.tw/article/21534-huawei-Ren-Zhengfei)
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14072532/%E8%9E%A2%E5%B9%95%E5%BF%AB%E7%85%A7-2020-11-14-%E4%B8%8B%E5%8D%888.08.28-2.png)
-经相关新闻报导，由中共半导体国家队紫光集团所发行的债券，在12日全面崩跌。 (详细情形请参阅此篇新闻报导： [https://udn.com/news/story/7333/5011822](https://udn.com/news/story/7333/5011822) )
+2.美国证监会周五发布公告，前富国银行（Wells Fargo）首席执行官兼董事长约翰·斯托普夫（John G. Stumpf）同意支付250万美元罚款，因其“故意夸大富国银行在商业上的成功而误导投资者”
+[https://www.zerohedge.com/markets/sec-slaps-former-wells-fargo-ceo-25-million-fine-over-performance-metric-scandal](https://www.zerohedge.com/markets/sec-slaps-former-wells-fargo-ceo-25-million-fine-over-performance-metric-scandal)
 
-该新闻报导内容，大抵为：紫光集团所发行的债券全面崩跌，但紫光集团对外声明、强调紫光集团旗下企业营运皆正常、稳健。
+3.现年49岁的特斯拉总裁马斯克周五发推表示：现阶段中共病毒测试十分不严谨。推文中说马斯克在一日之内进行过4次病毒测试，其中两次呈阳性，另外两次则现阴性。据悉，马斯克现不得不进行额外测试以确定其是否感染病毒。
+[https://www.washingtonexaminer.com/news/elon-musk-may-or-may-not-have-covid-19-after-split-rapid-test-results](https://www.washingtonexaminer.com/news/elon-musk-may-or-may-not-have-covid-19-after-split-rapid-test-results)
 
-（以下评论仅个人见解）
+4.白宫首席经济顾问皮得·纳瓦罗周五正式表示：唐纳德·川普总统显而易见的赢得了本次选举，并且白宫已着手计划第二个4年计划。纳瓦罗先生同时表示，相关部门已经对非法选票开展全面调查。
+[https://www.dailymail.co.uk/news/article-8946405/Top-Donald-Trump-advisor-Peter-Navarro-claims-president-clearly-won-election.html](https://www.dailymail.co.uk/news/article-8946405/Top-Donald-Trump-advisor-Peter-Navarro-claims-president-clearly-won-election.html)
 
-而紫光集团会有今天如此下场，必定是因为美国采取科技脱钩的手段，制裁中共。过去中共透过正常贸易，可以买其他国家产品来冒充自己生产的产品，蒙骗消费者。
+5.美国联邦选举委员会主席泰瑞·泰纳（Trey Train）上周发文明确表示：此次美国大选在多个摇摆州确实存在大规模选举舞弊现象。同时他赞同川普总统的竞选诉讼，并表示几个州的选举官员采取的可疑行动会使选举不合法。
+[https://www.zerohedge.com/political/fec-chairman-says-he-believes-there-voter-fraud-key-states](https://www.zerohedge.com/political/fec-chairman-says-he-believes-there-voter-fraud-key-states)
 
-但如今，各国、各大厂为配合美国科技制裁脚步，纷纷与中共科技业脱钩。这让中共科技业虚假的实力，暴露无遗。科技脱钩数月，中共已经面临缺乏先进晶片的窘况，而现在所有尖端科技，不论是普通的民用科技产品，或是军事使用的武器，都必须靠着品质优良、稳定、可靠的晶片来运作。因此，世界晶片大厂与中共脱钩，不在供应符合世界水准的晶片给中共，对中共造成极大的打击，从各种情况来看，都不难得出这结论。
-
-但面对被世界孤立，中共仍然执迷不误，不段做出错误选择，将自己置身于死地。中共灭亡固然是世界所乐见，但因为中共的执迷不误，在苟延残喘的期间，会有多少无辜的人民受到伤害，这无法估量。
-
-从本次紫光集团营运已经出现大问题，但仍然对外公布虚假讯息，声称公司营运皆正常这点，就可以知道现在中共在墙内还是处于自爽状态，认为人民还是一昧的相信中共说的话，因此紫光集团才会做出如此丢人现眼的声明。
-
-中共已经将以骗治国、以假治国，贯彻的淋漓尽致，但虚假发酵的结果，却成为砸死中共的关键。
-
-此外，华为创办人任正非对于中共企业面临到的科技寒冬，更无耻表示：「中国晶片制造全球第一…在台湾」等语。
-
-对于台湾多年来，力抗国际上中共多方面、大力的打压，依靠自身努力所得到的晶片制造能力成果。任正非只用无理由的一中原则，就将台湾的努力变成中国的努力。更将台湾的努力，变成中共的努力。
-
-根据任正非的谈话内容，任正非明确表示台湾晶片设计、制造，以达到世界领先地位。而大陆晶片产业确实存在许多问题，诸如：制造设备、化学药剂等。多方原因下来，导致「大陆」的晶片产业处于落后阶段。
-
-而从任正非老实陈述大陆晶片产业现况来看，也可以应证紫光集团还有其他半导体制造业会，如今会有公司营运不佳的情形绝对为真实。而中共政府过去劳民伤财，投入大量研发经费、补助，都已经成为盗国贼口袋中的财产。中共一贯以虚假治国的手段，过去可以透过正常贸易购入先进晶片，佯称国产的招数，已经破灭。而中共的老本也将因为科技、金融双脱钩，快速崩塌。
+By：【秘翻组·金融法律组】
 
 0

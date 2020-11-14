@@ -1,39 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】突发重磅：美国突袭了欧洲软件公司Scytl！并没收了他们在德国的服务器！
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/557778/)
+## 每日政要Twitter播报(中文) 11/12期(视频+ PDF下载)
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/557918/)
 
-作者：香草山写作组 正道主义联盟 校对/发稿：飞虹
+撰稿记者:本來、尘凡3、石頭
+校对:David XX
+播音:大脚印
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14052743/%E5%9B%BE%E7%89%8745.png)
-来自新闻网站GatewayPundit 的报道：今天早些时候，众议员路易·戈默特(Louie Gohmert)告诉新闻媒体记者克里斯·萨尔塞多(Chris Salcedo)，在德国的工作人员报告称，通过西班牙非法提供选举数据的Scytl遭到了美国军队的突袭，他们的服务器在法兰克福被查获。
-
-这段视频迅速在网上走红。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14052816/%E5%9B%BE%E7%89%8746.png)
-《美国思考者》的安德莉亚·威德伯格早些时候报道说，Scytl是一家总部位于巴塞罗那的公司，在全球范围内提供电子投票系统，其中许多系统已被证明容易受到电子操纵。Scytl有(或曾经有)索罗斯和民主党的关系。微软联合创始人保罗·艾伦(Paul Allen)的Vulcan Capital向Scytl投资了4000万美元。
-
-今晚我们从线人那里得知，比尔·盖茨也持有Scytl的股票。
-
-下面是众议员Louie Gohmert (R-TX)今天早些时候对这次所谓的突袭所作的评论：
-
-“今晚我们从我们的线人那里听到了更多关于德国突袭的消息。
-
-我们的消息来源：美国政府。他们先是确定这个多米尼恩服务器参与了交换选票，然后情报机构开始搜索服务器，发现服务器在德国。为了访问该服务器并使其能够合法使用，他们必须让国务院与司法部协同工作。他们不得不请求德国的政府合作，允许这个服务器被扣押。
-
-这种扣押到位需要适当的文件和签字批准，而且似乎美国军队也在这次行动中提供了支持。美国军方之前没有发挥主导作用，这有助于解释为什么埃斯珀被解雇，米勒和卡什·帕特尔被安置到位，这样军方就会以合适的方式干预行动。
-
-通过获得服务器，当被指示停止计数时，他们现在将有直接的证据他们还将发现是谁指示停止点票，以及是谁启动了转换选票的算法。中央情报局完全被排除在这次行动之外。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14053334/%E5%9B%BE%E7%89%8747.png)
-特朗普的律师林·伍德今天转发了这篇报道。
-
-
-
-
-
-
+[每日政要推文11-12\_pdf](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14061844/11-12_David_XX-1.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14061844/11-12_David_XX-1.pdf)
 
 0

@@ -1,49 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家！《拜登大选作弊》系列（2）
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/556027/)
+## 重磅独家：宾州数据实锤打脸偷·拜登
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/558460/)
 
-- 编辑：文顺
-- 作者：小木头
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14093038/1-79.jpg)
+11月4日，网关专家网站（the Gateway Pundit）一篇重磅博文披露了民主党盗取摇摆州的数据实锤。证实这是一场有组织的犯罪。宾州刚刚向民众报告的大选结果是虚假的，因为它们从统计学上根本就站不住脚。
 
+大选之夜，川普（Donald Trump）在宾夕法尼亚州（简称“宾州”）轻松获胜，他不可逆转地领先乔·拜登（Joe Biden）近70万票！第二天早上，川普总统在宾州依然以56%的投票率力压拜登的43%。川普总统以67.5万票的优势稳操胜券。尔后，民主党人罔顾道德和法律，对川普的战果上下其手，非法将其据为拜登所有。宾州选举结果网站显示，选举日，川普总统赢得了该州选票总数的近三分之二——他获得了270万张选票，比拜登的140万张多出了近一倍。
 
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+接下来，“精彩”了。宾州开始计算邮寄选票。“大选之夜结束时，还有多少未计选票？”没有报告。“有多少选票在选举之后计算的？“更没有报告。他们就一直计票。大选之后，宾州又为投票宽限三天。不言自明，这些全是邮寄选票。我们不知道这三天进来多少张邮寄选票。他们不允许共和党人看到这部分选票的计票过程，即使法院明令要求也不行。这些举动违反了宾州宪法，宪法规定投票过程由立法机关决定。行政和司法部门不按裁决行事，是川普竞选团队控告宾州的重要事项，他们要为宾州伸张正义。
 
-拜登大选作弊已浮出水面，根据多方报道，我们整理出拜登大选作弊所用的手段。*《拜登大选作弊》系列（1）：[https://gnews.org/zh-hans/551585/](https://gnews.org/zh-hans/551585/)*
+今天，宾州史无前例地上报了250多万张邮寄选票。当邮寄选票计票完毕，宾州开始侵吞川普总统的67.5万张领先选票，最终使拜登拔得头筹，他获得了250万张邮寄选票中的200万张。怎么可能川普总统在大选之日碾压拜登之后，只得到了五分之一的邮寄选票？答案是，决不可能。原因如下：
 
-**一人多票**
+当我们在一位匿名顶级数据专家的帮助下分析这份数据时，发现从统计学的角度这是不可能的。川普总统赢得了三分之二的选举日投票，但除了费城，川普总统在宾州每个县的得票率都在80%左右，费城的权重太高，导致这些数据被稀释，川普总统在宾州的选举日总得票率被拉低到65%左右。
 
-11月13日，据詹姆斯·伍德转推，密西根州有目击者指控，一批选票中有60%的有相同签名，有的票被扫描5次。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12123847/cheat2.jpg)
-参考链接：[https://twitter.com/RealJamesWoods/status/1327009008377466881?s=20](https://twitter.com/RealJamesWoods/status/1327009008377466881?s=20)
+而邮寄选票的“奇迹”正是不可能的所在。几乎在宾州的每个县，川普总统的邮寄选票得票率都比他在同县的选举日得票率低40%——如果川普以80%的选举日投票率拿下一个县，他会赢得该县40%的邮寄选票；如果川普在另一个县赢得了60%的选举日投票，他的邮寄选票得票率就是20%。几乎每个县的差距都是40%，费城是唯一一个明显的意外，在这里，川普总统只获得了30%的选举日投票。
 
-**弃票于野**
+这些数字简直假到不能再假，在统计学上根本站不住脚——这样的数据集根本就不存在。再者，邮寄选票数据和选举日选票数据互相打架也是事实——他们露馅了。很明显，腐败的宾州民主党人竭尽全力要把乔·拜登偷成本届总统。拜登的竞选团队一直都死气沉沉。共和党人坚信他作弊了。
 
-11月5日，推友推文表示，电视报道的镜头意外录下了计票站工作人员拆开选票，把其中一些扔进垃圾桶画面。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12123943/cheat4.jpg)
-参考链接：[https://twitter.com/luoshang1/status/1324319888643534858](https://www.epochtimes.com/gb/20/11/10/n12539379.htm)
+这就是我们得到的实锤！为宾夕法尼亚伸张正义是查清选举欺诈和2020年选举过程中民主党大规模造假的关键！
 
-**马克笔废票**
+**评：**
 
-11月5日，据ABC报道，亚利桑那州部分选民因使用选举官提供的马克笔使选票无效。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12124249/cheat6.jpg)
-参考链接：[https://abc7ny.com/sharpiegate-sharpie-gate-voter-sharpies-trump-votes/7668517/](https://abc7ny.com/sharpiegate-sharpie-gate-voter-sharpies-trump-votes/7668517/)
+既然拜登团队造假造到根本停不下来，正义人士就用可以作为呈堂证供的数据把这场滑稽的闹剧推向高潮。俨然裸奔的拜登，在接下来的司法战中能抗住几招？偷来的，总是要失去的。白宫归川普，监狱归拜登，各从其命，天下如愿。
 
-**木板遮窗黑屋点票**
+[原文链接](https://www.thegatewaypundit.com/2020/11/shocking-exclusive-caught-pennsylvania-results-show-statistically-impossible-pattern-behind-bidens-steal-caught/)
 
-11月12日，据川普总统推文视频，宾夕法尼亚和密西根州有民主党人用木板遮住选票室窗户。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12124422/cheat11.jpg)
-参考链接：[https://t.co/WLoDapMLikhttps://twitter.com/TheRightMelissa/status/1326703816813719553?s=20](https://t.co/WLoDapMLikhttps://twitter.com/TheRightMelissa/status/1326703816813719553?s=20)
-
-**不计军人票**
-
-11月7日，据推友推文显示，军人投给川普总统的选票被丢弃。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/12124553/cheat14.jpg)
-参考链接：[https://t.co/H3Izj0VU8C https://twitter.com/EluuEmmanuelO1/status/1324994750827687942?s=20](https://t.co/H3Izj0VU8C%20https://twitter.com/EluuEmmanuelO1/status/1324994750827687942?s=20)
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+翻译报道：萌萌的朋克
 
 0
