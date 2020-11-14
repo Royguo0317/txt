@@ -1,22 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 快讯！新中国联邦华盛顿DC挺川大游行明日举行
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/555921/)
+## Breaking News&#8211;REVEALED: Sworn Evidence Of Pervasive Voter Fraud | Rudy Giuliani （video&#8211;November 14, 2020, ）
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/556480/)
 
-- 编辑：文顺
+```
+Editor: Rose Sky
+```
 
 
-11月13日，新中国联邦举办的华盛顿DC挺川大游行将于14日举行，喜马拉雅美东香草山农场将在[GTV](https://gTV.org/)《美东香草山访谈》栏目全程直播，届时将连线全球各大喜马拉雅农场，并与现场战友和观众进行互动。
+Present the most direct evidence to Americans in pursuit of the truth!
 
-据悉，这次挺川大游行活动将会盛况空前，规模将达到百万之众，其中有数百名战友代表新中国联邦。这将是一场具有历史意义的盛会，我们将见证追求自由、民主的新中国联邦人与美国人民携手走上街头，向这个世界的黑恶势力展示正义的力量！
+Biden was declared “winner” of the 2020 election. (Note: The US media has \*zero\* legal authority).
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13141037/image0-1-11.jpg)
+Rudy Giuliani has enough evidence to lock Trump victory.
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13141012/image1-8.jpg)
+👇👇👇
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+
+
+
+我说西方，必须拔出中共在你们内部，植入的各个间谍系统。“蓝金黄” 系统，间谍媒体系统，各个网站、各个媒体。——郭文贵先生2018年10月04日
+
+I said that the West must pull out the various spy systems that the CCP has planted within you. “BGY” system, spy media system, various websites, various media– By Miles Guo，October 04, 2018
 
 0

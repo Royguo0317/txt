@@ -1,195 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 宾夕法尼亚州联邦法院命令译文、原文
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/555948/)
+## [史海今钩]魔高一尺，道高一丈-由彭佩奥声称“台湾从来不是中国的一部分”看美对中国政策
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/556093/)
 
-翻译 蒙特利尔战友团 laotou
+作者：香草山写作组 Kathy（文艺）
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13145342/order.png)图片来自 pennrecord.com
-宾夕法尼亚州联邦法院
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
 
-申诉人：
 
-唐纳德·J·川普竞选总统公司；                        编号 602 M D. 2020
 
-共和党全国委员会
 
-V
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13155845/%E5%95%A6%E5%95%A6%E5%95%A6.jpg)
+2020年11月13日，“美国之音”报道，美国国务卿彭佩奥周四（11月2日）在国务院记者招待会上讲话时，接受一家电台主持人Hugh Hewitt（休-修伊特）电话采访发出的惊人之语：“台湾一直不是中国的一部分。”
 
-被告人：
+**休在采访中问到川普政府对中共政府所采取的一系列措施，包括台湾时，彭佩奥说：“台湾一直不是中国的一部分，这在里根政府所做的政策制定工作中得到了承认，这些政策美国至今遵守了三十五年，而且两党都是这样做的”。“我确实认为，事实上这是两党性质的（笔者：一致性？）。我认为，核心的理解是，这是一个民主的模范，生活在台湾的人民，应当通过让中国信守他们作出的承诺而得到尊重，我认为这是两党都能够认同的。”**
 
-凯西·布克瓦尔（Kathy Boockvar），宾夕法尼亚州联邦州务卿；
+**彭佩奥说的是真的。华盛顿自79年与台北断交与北京建交。美国长期奉行“一个中国”的政策。今年8月31日，负责东亚事务的美国助理国务卿史达伟（David R Stiwell)，在华盛顿传统基金会举办的美台经济合作网络会议上表示：华盛顿的“一个中国”政策与北京的“一个中国原则”不同。他说,中共按照“一个中国原则”宣称对台湾拥有主权，而“美国对台湾主权不持立场.”**
 
-亚当斯郡选举委员会；
+**史达维的解释是，当初中共承诺，台湾问题必须在不受胁迫，并以海峡两岸人民都能接受的方式下和平解决。**
 
-阿勒格尼郡选举委员会；
+**中美关系自贸易战开打以来，一步步演变成今天的所谓“新冷战”。11月大选风暴，又将把中美关系推向决裂。彭佩奥讲话透漏了玄机。而据”路德社“透露，彭佩奥此讲话又是在川普总统发布行政命令后被发出，极有深意。13日，川普总统宣布进入”紧急状态“，并宣布对与中共军方背景的中共实体进行制裁。而另一边，哪怕世界各国领导人纷纷对拜登发贺推，而一直按“嘴”不动的中共，待川普发布“紧急状态”，随即由外交部发言人声称：祝贺拜登当选美国总统。**
 
-阿姆斯特朗郡选举委员会；
+**由美国对中国的政策尤其对台湾的政策，可见，美国两党是有共识的。历史上，对前苏联的冷战开始，美国的对外政策尤其遏制社会主义极权，就有着长远考虑。笔者尝试从第一次冷战来分析，把今天看来，两党之间冲突矛盾的乱象撇开，拨开迷雾，看看真正的美国对极权的态度与对策。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13155939/%E5%98%BF%E5%98%BF%E5%98%BF-1.jpg)
+**美国历史上有过很多优秀的职业外交家，如中共老朋友基辛格，还有{文明的冲突}一书的作者，名噪一时的塞缪尔-亨廷顿。但最伟大的外交家却是一位自称为是美国外交圈子的“局外人”–乔治-坎南。他被称为“冷战之父”，自杜鲁门总统之后，直到今天，美国的外交政策都受到他的影响。**
 
-比弗郡选举委员会；
+**乔治-坎南于1904年出生于威斯康辛州一个律师家庭，他本人也于普林斯顿大学毕业后考取了律师执照，但他放弃了从事律师职业而进了国务院，选择俄语和俄国事务方面的专门培训，派往欧洲。后又在日内瓦，汉堡，柏林和波罗的海沿岸国家，苏联境内各加盟国从事外交工作。直到1944年第二次大战接近尾声，坎南再次前往苏联任莫斯科大使级代办从事情报分析，为美国战后的外交政策提供情报依据。**
 
-贝德福德郡选举委员会；
+**1946年，坎南从莫斯科向美国国务院，发了一份长达8000字的电报，主题为{坎南就美国财政部询问苏联会否加入世界银行及世界货币基金组织一事回电}，这就是著名的“长电报”。**
 
-伯克斯郡选举委员会；
+**乔治-坎南在这份“长电报”中，分五个部分对苏联的状况，及美国应该采用什么政策应对做了分析： 1，苏联战后（战略）思维的基本特征；2，这一思维的背景；3，这一思维在政府政策层面的反映；4，这一思维在非政府层面的反映；5，从美国政策角度的可行性推断。1947年，以“长电报”为基础，杜鲁门总统的外交顾问提交的绝密报告的关键词-“遏制和包围”，就来自于此。同时，坎南也向美国国防部和国务院，提交了详细的情报分析报告，内容也是遏制，包围，同时加强交流，迫使苏联从内部垮台。**
 
-布莱尔郡选举委员会；
+**遏制是防止苏联思想扩散，让被包围内的人自己去尝试，绝望，从而放弃其极权统治思想；包围是以绝对的军事优势将苏联围在境内，不让其到处影响其他国家；交流是抓住任何机会与其交流，让苏联人民感受到个人主义（民主）和集体主义（极权）世界的差别，从而使其反思。同时建立稳定的欧洲和亚洲的外部环境，使苏联式的革命无从在别国产生。**
 
-布拉德福德郡选举委员会；
+**从此，美国的外交政策基本照此思路进行制定政策，也开始了美国担任世界警察的责任之路，冷战的序幕也由此拉开。对日本和欧洲援助计划，建立北约，英国作为同盟积极配合等。1988年，尼克松{1999：不战而胜}一书发表，91年底，苏联即解体。**
 
-巴克斯郡选举委员会；
+**美国对中国也是采取同样的政策。尼克松访华也是交流的开始，大门一旦打开，就会把自由思想带进来。当然中共很会搞宣传手腕，对内监控思想言论，对外建防火墙，不让老百姓接触外界。其他遏制和包围政策，我们可以从川普的一系列对华政策中可见一斑，对此笔者不做详述。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13155953/%E4%BD%A0%E5%A5%B6%E5%A5%B6.jpg)
+**总之，乔治-坎南的外交政策，主张保持美国的孤立主义，维持世界各国间的平衡，达到美国的利益和安全，而不应直接操纵或插手别国的事务。川普政府目前也是沿用这一思路对付中国。**
 
-巴特勒郡选举委员会；
+**从彭佩奥对台湾的态度，反映了美政府对中共的台湾政策其实就是在玩平衡，他发言里提到的“中共国”，是一个政治词汇，也预示着中美三个公报的岌岌可危的前景。台湾从来不是中国的一部分，这既是历史的事实，也是美国两党的公识。多么强硬的态度。CCP,这下有一壶喝的了。**
 
-坎布里亚郡选举委员会；
+**真可谓是，魔高一尺，道高一丈。CCP,你真的完了。**
 
-卡梅伦郡选举委员会；
+**参考：李家村言：{不知道乔治-坎南，怎么看懂美国的外交政策？}**
 
-碳郡选举委员会；
+审核：悟空
 
-中部郡选举委员会；
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
 
-切斯特郡选举委员会；
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-克拉里昂郡选举委员会；
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，纽约时间周日至周四晚上9:00，美国志愿者在纽约香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-克利菲尔德郡选举委员会：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
 
-克林顿郡选举委员会；
 
-哥伦比亚郡选举委员会；
 
-克劳福德郡选举委员会；
 
-坎伯兰郡选举委员会；
 
-多芬郡选举委员会；
-
-特拉华郡选举委员会；
-
-埃尔克郡选举委员会；
-
-伊利郡选举委员会；
-
-费耶特郡选举委员会；
-
-森林郡选举委员会；
-
-富兰克林郡选举委员会；
-
-富尔顿郡选举委员会；
-
-格林郡选举委员会；
-
-亨廷顿郡选举委员会；
-
-印第安纳州郡选举委员会；
-
-杰斐逊郡选举委员会；
-
-朱尼亚塔郡选举委员会；
-
-拉克瓦纳郡选举委员会；
-
-兰开斯特郡选举委员会；
-
-劳伦斯郡选举委员会；
-
-黎巴嫩郡选举委员会；
-
-利海郡选举委员会；
-
-卢塞恩郡选举委员会；
-
-莱康郡选举委员会；
-
-麦肯郡选举委员会；
-
-默瑟郡选举委员会；
-
-米夫林郡选举委员会；
-
-门罗郡选举委员会；
-
-蒙哥马利郡选举委员会；
-
-蒙托尔郡选举委员会；
-
-北安普敦郡选举委员会；
-
-诺森伯兰郡选举委员会；
-
-佩里郡选举委员会；
-
-费城郡选举委员会；
-
-派克郡选举委员会；
-
-波特郡选举委员会；
-
-舒伊尔基尔郡选举委员会；
-
-斯奈德郡选举委员会；
-
-萨默塞特郡选举委员会；
-
-沙利文郡委员会选举委员会；
-
-苏斯奎哈纳郡选举委员会；
-
-蒂奥加郡选举委员会；
-
-联合郡选举委员会；
-
-韦南戈郡选举委员会；
-
-沃伦郡选举委员会；
-
-华盛顿郡选举委员会；
-
-韦恩郡选举委员会；
-
-韦斯特莫兰郡选举委员会；
-
-怀俄明郡选举委员会；
-
-约克郡选举委员会
-
-**命令**
-
-而今，2020年11月12日，在审议了申诉人衡平法性质的复议请求，双方提交的法律备忘录，以及建议调查的干扰（大选的）被告人后，法院得出结论，被告人凯西·布克瓦尔（Kathy Boockvar）以联邦州务卿身份，向被告郡选举委员会发布了2020年11月1日的指导意见缺乏法定权力，因为该指导意见旨在改变《宾夕法尼亚州选举法》第1308（h）节（1937年6月3日法，P.L.1333，经修订）第25 P.S.§3146.8（h）条规定的某些选民核实身份证明的最后期限。根据布克瓦尔州务卿对宾夕法尼亚州最高法院在宾夕法尼亚州民主党诉布克瓦尔（第3版 宾夕法尼亚州，2020年9月17日提交，编号：133MM2020）一案中判决的解释与应用，某些选民需要核实身份证明。因此，法院特此命令，禁止被告郡选举委员会根据本院2020年11月5日发布的命令第一款规定的特别禁令对任何已隔离的选票进行计票。
-
-玛丽·汉娜·莱维特，审判长 （签字）
-
-法院命令原文链接：
-
-[https://static.foxbusiness.com/foxbusiness.com/content/uploads/2020/11/602-MD-2020-Order-Nov.-12.pdf](https://static.foxbusiness.com/foxbusiness.com/content/uploads/2020/11/602-MD-2020-Order-Nov.-12.pdf)
-
-原文文字版：
-
-IN THE COMMONWEALTH COURT OF PENNSYLVANIA
-
-Donald J. Trump For President, Inc.;
-
-and Republican National Committee
-
-Petitioners
-
-V
-
-Kathy Boockvar, in her capacity as Secretary of the Commonwealth of Pennsylvania;
-
-Adams County Board of Elections; Allegheny County Board of Elections; Armstrong County Board of Elections ; Beaver County Board of Elections; Bedford County Board of Elections; Berks County Board of Elections; Blair County Board of Elections; Bradford County Board of Elections; Bucks County Board of Elections; Butler County Board of Elections; Cambria County Board of Elections; Cameron County Board of Elections; Carbon County Board of Elections; Centre County Board of Elections; Chester County Board of Elections; Clarion County Board of Elections; Clearfield County Board of Elections: Clinton County Board of Elections; Columbia County Board of Elections; Crawford County Board of Elections; Cumberland County Board of Elections; Dauphin County Board of Elections; Delaware County Board of Elections; Elk County Board of Elections; Erie County Board of Elections; Fayette County Board of Elections; Forest County Board of Elections; Franklin County Board of Elections; Fulton County Board of Elections, Greene County Board of Elections; Huntingdon County Board of Elections; Indiana County Board of Elections; Jefferson County Board of Elections; Juniata County Board of Elections; Lackawanna County Board of Elections; Lancaster County Board of Elections; Lawrence County Board of Elections; Lebanon County Board of Elections; Lehigh County Board of Elections; Luzerne County Board of Elections; Lycoming County Board of Elections; McKean County Board of Elections; Mercer County Board of Elections; Mifflin County Board of Elections; Monroe County Board of Elections; Montgomery County Board of Elections; Montour County Board of Elections; Northampton County Board of Elections; Northumberland County Board of Elections; Perry County Board of Elections; Philadelphia County Board of Elections; Pike County Board of Elections; Potter County Board of Elections; Schuylkill County Board of Elections; Snyder County Board of Elections; Somerset County Board of Elections; Sullivan County Board of Elections; Susquehanna County Board of Elections; Tioga County Board of Elections; Union County Board of Elections; Venango County Board of Elections; Warren County Board of Elections; Washington County Board of Elections; Wayne County Board of Elections ; Westmoreland County Board of Elections; Wyoming County Board of Elections; and York County Board of Elections
-
-Respondents
-
-Order
-
-AND NOW this 12th day of November, 2020, upon consideration of Petitioners’ petition for Review in the Nature of a Complaint in Equity, and the memoranda of law filed by the parties and the proposed intervenor-respondent , the Court concludes that Respondent Kathy Boockvar, in her official capacity as Secretary of the Commonwealth, lacked statutory authority to issue the November 1, 2020, guidance to Respondents County Boards of Elections insofar as that guidance purported to change the deadline in Section 1308 (h) of the Pennsylvania Election Code, Act of June 3, 1937, P.L. 1333, as amended, 25 P.S. §3146.8 (h),for certain electors to verify proof of identification, based on Secretary Boockvar’s interpretation and application of the Pennsylvania Supreme Courts decision in Pennsylvania Democratic Party v Boockvar, \_A.3d\_(Pa, No. 133 MM 2020, filed September 17, 2020).
-
-Accordingly, the Court hereby ORDERS that Respondents County Boards of Elections are enjoined from counting any ballots that have been segregated pursuant to paragraph I of this Courts order dated November 5, 2020, granting a special injunction.
-
-MARY HANNAH LEAVITT, President Judge
-
-0
+3+

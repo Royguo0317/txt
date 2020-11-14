@@ -1,37 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日摘要】路德时评 （晚）：2020.11.12
-` 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hans/551633/)
+## 快讯！新中国联邦华盛顿DC挺川大游行明日举行
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/555921/)
 
-摘要：文小鹰
-
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10090837/Header-ZH-1-3.jpg)
+- 编辑：文顺
 
 
-路德：
+11月13日，新中国联邦举办的华盛顿DC挺川大游行将于14日举行，喜马拉雅美东香草山农场将在[GTV](https://gTV.org/)《美东香草山访谈》栏目全程直播，届时将连线全球各大喜马拉雅农场，并与现场战友和观众进行互动。
 
-1. 川普出了一个经济大招！代理国防部长给国会及总统报告，要求进入国家紧急状态；根据《国际紧急经济权力法》（International Emergency Economic Powers Act,IEEPA）（ 50 USC 1701 和1601等）以及《国家紧急法》（National Emergencies Act）3编301条，国防部长要求参院和总统发布行政命令，宣布美国进入经济紧急状态。由国防部和商务部提供制裁名单。
+据悉，这次挺川大游行活动将会盛况空前，规模将达到百万之众，其中有数百名战友代表新中国联邦。这将是一场具有历史意义的盛会，我们将见证追求自由、民主的新中国联邦人与美国人民携手走上街头，向这个世界的黑恶势力展示正义的力量！
 
-2. 林伍德 Lin Wood 大律师发推说病毒就是生化武器。要找到美国真正的敌人，美国的敌人，不是民主党也不是共和党，而是中共。主流媒体绝对是被中共控制。川普应该明白，如果推翻中共，他的总统目标已经达成，如果没有推翻，即使连任也没有用。一旦将矛头指向中共，人们就会意识到，这次美国选举所有的丑闻，并不是美国的选举制度问题，而是中共以国家机器的力量在搅乱美国的系统。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13141037/image0-1-11.jpg)
 
-【艾丽】紧急状态是川普打响了经济第一枪，针对中共经济衍生品，证券和各种金融产品（假的军民融合企业）。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13141012/image1-8.jpg)
 
-【博博士】紧急状态实施后，所有军事相关和各种中共背景证劵都会受到很大程度的制约和打击。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
 
-【冠博士】西弗吉尼亚州长拒绝承认拜登胜选举。
-
-【冠博士】内华达州用来验证的电脑被关闭，签名的选票无法验证，无法验证合法性。
-
-【胡博士】WHO居然鼓励调查病毒的科学家要与中共政府科学家搞好关系。
-
-【胡博士】闫博士揭露说，王林发表示病毒无法调查是因为川普不与中国搞好关系；这就像是要跟嫌疑犯搞好关系才能调查真相一样滑稽。Nature杂志仍然栽赃浣熊犬racoon dog是病毒来源，并呼吁科学不要有偏见。
-
-
-
-[视频链接](https://www.youtube.com/watch?v=8WCtppFlTQE)
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10090758/Footer-ZH-2.jpg)
-
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0

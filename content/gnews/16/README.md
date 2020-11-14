@@ -1,39 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】纳瓦罗：白宫一切正常，正按照川普总统连任的方式运作！世界需要力量型总统！
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/556515/)
+## 亨特·拜登违反川普总统关于禁止美国投资中共军方代理人的禁止令
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/556571/)
 
-**作者：纽约香草山写作组 正道主义联盟**
+翻译：Bruce
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
+校对：康州农场-V
 
-
-
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13200705/vv.png)
-纳瓦罗在周五接受《福克斯新闻》采访时说：“我们认为川普总统将继续赢得连任，因此我们会按照川普连任的方式推进各项工作”他说：“我们认为总统赢得了大选，目前我认为对拜登可能做什么事情，都只是猜测。”
-
-纳瓦罗说，在选举日，川普总统看起来已经获胜了。然后，他说，11月3日之后，拜登居然有足够的选票“赶上总统”。他说：“但如果你看看统计上发生了什么，显然是总统赢得了这次选举，并在选举日领先；然后，在选举日之后，不知何故，在这些关键战场州，拜登他们竟刚好获得了足够的票数，赶上总统。”
-
-白宫贸易顾问彼得·纳瓦罗（Peter Navarro）曾经在采访中预测，选民将在11月大选时选择川普而不是前副总统拜登，因为他们希望白宫能由一位能够应对全球威胁的“强硬的人”来领导。
-
-纳瓦罗之前在接受福克斯新闻节目中曾经表示：认为美中关系是川普秋季将在选民中比拜登占更多优势的一个领域。
-
-当被主持人问到“你对即将到来的共和党大会有何期待，以及为何你认为中国会更希望拜登入主白宫”时，纳瓦罗回答：“整场选举，无论是在中国还是在民主党大会，都被看做是一场好人与强硬的人之间的较量。我们喜欢这种对决，因为我认为美国人民总会选择让强硬的人而不是好人入主白宫，因为他们知道世界是一个危险的地方。”
-
-发稿：悟空
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，纽约时间周日至周四晚上9:00，美国志愿者在纽约香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
+审核：康州农场-Truemanman
 
 
 
+川普总统已经采取行动，禁止美国资本投资中共军方代理人。有一个人，可能会违反新规，就是乔·拜登的儿子亨特·拜登(Hunter Biden)。
 
+川普总统通过行政命令宣布，从2021年1月11日开始，对 “任何中共军方公司 “的投资将属于违法。
+
+根据1999财政年度《国防授权法》第1237条编制的资格实体清单(公共法105-261)
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13204425/FDD8365F-C9E6-4E38-970C-AA8942EDA86A-800x1035-1.png)
+AVIC中国航空工业集团有限公司
+
+CASC中国航天科技集团有限公司
+
+CASIC中国航天科工集团有限公司
+
+CETGC中国电子科技集团有限公司
+
+CSGC 中国兵器装备集团有限公司(又名中国南方工业集团公司)
+
+CSIC 中国船舶重工集团公司
+
+CSSC中国船舶集团有限公司
+
+Norinco Group 中国兵器工业集团公司
+
+Hikvision 杭州海康威视数字技术股份有限公司
+
+Huawei 华为技术有限公司
+
+Inspur Group 浪潮集团
+
+Aero Engine Corporation of China中国航空发动机集团有限公司
+
+CRCC 中国铁建股份有限公司
+
+CRRC Corp. 中国中车股份有限公司
+
+Panda Electronics Group 熊猫电子集团有限公司
+
+Dawning Information Industry Co (Sugon) 曙光信息产业有限公司
+
+China Mobile Communications Group 中国移动通信集团公司
+
+China General Nuclear Power Corp. 中国广核集团
+
+China National Nuclear Corp. 中国核工业集团公司
+
+China Telecommunications Corp. 中国电信股份有限公司
+
+中国广核集团（China General Nuclear Power Corp）就是这样一家公司，美国国防部最近将其列为中国军方数十年的合作伙伴。
+
+自2013年成立以来，亨特·拜登担任私募股权公司渤海华美（BHR Partners）的董事，而这家公司是中广核首次公开募股的1000万美元基石投资者。中广核在2014年的首次公开募资（IPO）是当年的第二大首次公募（IPO），估值超过30亿美元。
+
+这家与拜登有关联的公司仍然将中国核工业集团（GCN）列为其投资组合的一部分。
+
+更重要的是，中国核工业集团（CGN）在全公司范围内制定了一个窃取和转移美国核机密的计划，被司法部（DOJ）认定是 “我们的国家安全构成重大损害”。这导致司法部指控中国核工业集团（CGN）的顾问Allen Ho（注#2）在近二十年的时间里 “协助中国核工业集团CGN获取美国本土的核工程师来协助设计和制造核反应堆的某些部件”。
+
+BHR Partners是由亨特·拜登和奥巴马时代的国务卿约翰·克里的继子于2009年成立的投资基金Rosemont Seneca Partners与国有的中国银行的合资企业。这支价值数十亿美元的基金在亨特与其时任副总统的父亲一同前往中国后不到两周的时间里，就周所周知地诞生了。
+
+原文链接：*[https://thenationalpulse.com/breaking/biden-breaches-trump-pla-ban/](https://thenationalpulse.com/breaking/biden-breaches-trump-pla-ban/)*
 
 0
