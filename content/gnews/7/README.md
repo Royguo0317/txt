@@ -1,42 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “儿戏”选举 美国选票机器竟不提前进行测试？
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/554506/)
+## 【热点播报】空洞的声明试图掩盖海量的证据——又一名白宫内鬼被川普总统开除
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/553426/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13052743/2-106.png)
-马里科帕县共和党主席Rae Chornenky已经辞去职务，因为民主党人指责她在选举前没有对选举计票机器进行测试。测试是向公众开放的，在每次选举前后进行，以证明制表设备和投票设备的准确性。
+作者：香草山写作组 村北 校对/发稿：飞虹
 
-Chornenky是一名律师，她得到了该州共和党的支持。但她与该州共和党内部的右翼分子长期存在冲突。
-
-要求她下台的呼声始于马里科帕县民主党主席Stephen Slugocki，他在推特上提醒公众，Rae Chornenky10月份没有对选举设备进行相关测试。马里科帕县民主党主席Slugocki在Twitter上透露，她始终没有进行选票机器的测试。
-
-设备软件出现故障，问题就出在这台Dominion Voting Systems的新选票制表机。一些共和党人声称该机器把川普总统的选票改成了拜登的。
-
-推特内容：
-
-Rep. Kelly [email protected]·11月10日
-
-“我刚刚发现马里科帕县GOP主席Rae Chornenky的名字没有出现在Dominion/机器的认证上。 因此我要求她和她的第一副主席一起辞职。”
-
-在10月6日的一则Twitter中，Slugocki和民主党国务卿Katie Hobbs坐在一张桌子旁。
-
-“测试后的最终统计结果，”他在Twitter上写道。”我很高兴地报告，机器有100％的准确性。……马里科帕县的投票机已经准备好，明天就可以开始投票，我们都应该对结果充满信心！”
-
-他当时写道，共和党和自由党的官员被邀请，但最终并没有到场。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
 
 
 
-> One of my legal responsibilities as County Chair is to conduct the accuracy tests of the voting machines and certify they are counting ballots correctly. I sat with Arizona Secretary of State [@SecretaryHobbs](https://twitter.com/SecretaryHobbs?ref_src=twsrc%5Etfw) and we verified 
-> 1/ [pic.twitter.com/zYeAq2LbUU](https://t.co/zYeAq2LbUU)
-> — Steven Slugocki (@Slugocki) [October 7, 2020](https://twitter.com/Slugocki/status/1313647249684004864?ref_src=twsrc%5Etfw)
+（11/12/2020）Cyberscoop 网站今日发布消息称，美国国土安全局中负责网络安全的最高级官员Bryan S. Ware将于明天（周五）离职。它主要领导国土安全局下的网络安全和基础设施安全局（CISA）。Bryan因为他的部门参与发布一纸声明来挑战川普总统对此次大选的质疑而被川普总统开除。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13001420/%E5%9B%BE%E7%89%8730.png)
+众所周知，川普总统目前正处于美国总统大选的白热化争夺中。川普的胜选被拜登一方戏剧性地反转后，越来越多浮现出来的证据，指向拜登一方在选举中可能大肆舞弊。可能的舞弊行为之一，是多米尼因投票系统公司被发现利用软件算法，暗中将川普总统的选票改为拜登选票。据川普总统12日发推称，选举软件的恶意操控，使他损失了高达270万张选票。
+
+据朱利安尼先生同日在班农战斗室爆料，多米尼因公司是一家外国公司，其母公司及投资人同独裁政权委内瑞拉有着千丝万缕的联系。而该公司投票系统的软件由中国提供。投票数据也被即时送至西班牙进行统计和计算。美国的大选有这么多外国的机构参与计票，本身就是极大的国家安全隐患。
+
+德州政府的一份公开文件显示，多米尼因投票系统公司曾被德州政府的测试定为不合格，然而仍有大量的其他州在大选中使用了多米尼因公司的系统。在本次选举后对选票结果的核查测试中，的确也发现该软件将一定比例的选票从川普转至拜登名下。另一个证据来自麻省理工学院的天才教授Shiva Ayyadurai博士，他通过对选举结果进行数学建模，居然发现了该软件中可能的刻意将选票转给拜登的算法 （[https://gnews.org/zh-hans/552882/](https://gnews.org/zh-hans/552882/)）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13001558/%E5%9B%BE%E7%89%8731.png)
+在几乎所有主流媒体无视选举法定流程，极力帮助拜登一方掩盖事实的情况下，川普总统一方正在艰难但卓有成效地通过法律途径收复选票。而在此关键时刻，川普自己内阁中的CISA主管，同其他选举相关机构以及选举软件供应商却在12号早些时候共同发表了一个声明，声称这次选举 “是美国历史上最安全的选举”，还驳斥了 “毫无根据的说法”，并以黑体字强调：“没有证据表明任何投票系统删除或丢失选票，改变选票，或以任何方式受到损害。” 然而这样的做法更使人怀疑，在大量的舞弊证据出现的情况下，选举软件的安全性为何需要这么空洞的声明来维护。这个声明也无异于给川普总统背后的一次暗算，也就不难理解川普总统马上开除CISA负责人Bryan Ware的决定了。
+
+然而，爆料革命的战友们普遍明白，本次大选的多项舞弊，均是在中共的帮助、授意，甚至直接参与下进行的。川普今天开除的是自己的内阁成员，表明了中共的渗透和美国的沼泽的深入骨髓。希望选后的进一步调查，能够彻底揭出同中共勾结的所有美国内鬼，将中共在美国培养的沼泽清理干净。
 
 
 
-**评论**：4年一度的美国大选是美国政权交接的关键，每当此时便吸引了全世界的眼光。因此，选票机器的测试是极为重要的一项工作，但是却发现马里科帕县的共和党主席却如此不重视，大选最重要的机器竟然不测试。而这个案例也许只是个个例，其他州县的情况我们不得而知，但是美国大选在3号晚上出现了停止计票后，第二天呈现的滑稽结果已经严重影响了美国大选的正常进行。正巧选票机器也出现故障，让这一切都变得扑朔迷离。当前正在启动的法律程序，将在未来揭开谜底。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
 
-翻译报道：文非
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-[文章链接](https://www.azcentral.com/story/news/politics/elections/2020/11/12/maricopa-county-republican-party-chair-rae-chornenky-resigns-skipped-election-equipment-test/6263050002/)
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上8:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-0
+3+

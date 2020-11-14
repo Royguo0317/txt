@@ -1,28 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国家安全紧急状态白宮12938号行政命令全文
-` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/555093/)
+## 亩产万斤不是梦央视最新牛皮出炉——中共拿到了光刻机入场券
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/555354/)
 
-喜馬拉雅的文雅 （雅典娜農場）
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13090301/rawImage-removebg-preview.jpg)
-2020年11 月12日，美国川普总统颁布总统行政命令，宣布继续基于12938号行政命令的国家紧急状态，以应对核，生物和化学武器扩散对美国国家安全，外交政策和经济造成的异常和非同寻常的威胁武器（大规模毁灭性武器）以及运送此类武器的手段。命令中称，鉴于大规模毁灭性武器的扩散及其运载工具继续对美国的国家安全、外交政策和经济构成非同寻常的威胁，12938号行政命令中宣布的国家紧急状态必须延长至2020年11月14日之后。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13112342/%E5%B0%81%E9%9D%A2-50.jpg)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-紧接著，川普总统致信众议院主席裴洛西和参议员主席彭斯副总统，称如果在行政命令到期一週年之前90天没有宣布延期，将自动解除。
+据[**央视新闻**](https://weibo.com/cctvxinwen?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2020年11月13日22：58](https://weibo.com/2656274875/JtLmVeDDD?ref=home&amp;rid=3_0_8_3383633965184912916_0_0_0) 来自 [微博云剪](https://app.weibo.com/t/feed/4iDt6Q)
 
-该项国家紧急状态法令是目前美国政府正在实施的数十项紧急状态法令中之一。但是目前只有该法令与中共有关，而且针对中共释放并扩散超限生物病毒武器-中共病毒（SARS-COVID2, 被WHO冠名COVID-19）。我们有理由相信，白宫在该法令下的国家紧急状态到期前2天进行续延，是川普总统大选受到重创后，重新认识到中共对美国实施蓝金黄影响力和对美国操控力量的深重，痛定思痛后决定予以绝地反击，切实把这个法令付诸行动。接下来美国的重鎚必将落在对中共病毒来源的追查、生物病毒武器的定性、以及生物战追责上，这一方面是从侧面和根本上推进重新夺回大选胜利的果实，另一方面也是彻底排乾沼泽、重新让美国强大的必由之路。如何将这个法案落入实处，必然面临譬如来自财政部长的阻力，而法令中的条款给予财政部长的权力和职责重大，是阻力推动或巧力实施，这也是出给川普总统的考题。
+【曾被外国技术封锁的光刻机市场，中国拿到了“入场券”！】“哪怕把所有图纸给你们中国人，你们也未必能做出光刻机。”18年前，外方工程师的这番话，刺痛了贺荣明的心。当时，全球光刻机市场只有荷兰、美国、日本拥有“入场券”，并对中国实施技术封锁。但他没有退缩，带领团队，从维修零部件开始研发↓[#纪录片而立浦东#](https://s.weibo.com/weibo?q=%23%E7%BA%AA%E5%BD%95%E7%89%87%E8%80%8C%E7%AB%8B%E6%B5%A6%E4%B8%9C%23&amp;from=default) [L央视新闻的微博视频](http://t.cn/A6Go3mzn)[收起全文d](void%280%29;)
 
-当然，我们相信川普总统已经做好准备，因为白宫已经向世界发出了宣言：
-“*加强和重建美国威慑力，以维护和平，是我们国家的当务之急。 第二次世界大战之后前所未有的和平时代揭示出，只有在美国最强大的情况下，自由世界才最安全。 近年来，我们军队逐渐削减导致全球威胁升级，川普总统致力于扭转这一威胁。”*
+那么上海微电子装备(集团)股份有限公司生产的光刻机到底是什么水平呢？
 
-12938号行政命令是1994年11月14日克林顿（WILLIAM J. CLINTON ）政府颁布实施，在此基础上， 该政府于1998年7月28日颁布了13094号行政命令、布什（George W. Bush）政府于2005年6月28日颁布了13382号行政法令，均对原有法令进行了修改和补充，以便对更广泛的非常规武器採取进一步更有效的行动。
+据上海微电子装备(集团)股份有限公司官网[200系列光刻机 —— TFT曝光](http://www.smee.com.cn/eis.pub?service=homepageService&amp;method=indexinfo&amp;onclicknodeno=1_4_4_4)的产品特征是［高精度，分辨率可达1.5μm］，请注意1.5μm=1500纳米（据[纳米与微米换算关系](https://www.zybang.com/question/fcb8b36ac7cc0e674dd0ff9dc91bb3d5.html)）；[600系列光刻机 —— IC前道制造](http://www.smee.com.cn/eis.pub?service=homepageService&amp;method=indexinfo&amp;onclicknodeno=1_4_4_1)的产品特征是：
 
-本文将以上行政法令呈现如下，并尝试翻译以期对战友深入理解有所帮助，如有疑问请参考英文，并欢迎指正。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13091215/cp1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13091229/cp2.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13091244/cp3.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13091302/cp4.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13091325/cp5.png)
+**主要技术参数**
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13091851/cp11.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13091859/cp22.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13091920/cp33.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13091948/cp44.png)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13092050/p1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13092100/p2.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13092110/p3.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13092120/p4.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13092131/p5.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13092402/ep1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13092410/ep2.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13092419/ep3.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13092628/dp1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13092636/dp2.png)
+|  **型号** | ** SSA600/20** | ** SSC600/10** | ** SSB600/10** |
+| --- | --- | --- | --- |
+|  分辨率 |  90nm |  110nm |  280nm |
+|  曝光光源 |  ArF excimer laser |  KrF excimer laser |  i-line mercury lamp |
+|  镜头倍率 |  1:4 |  1:4 |  1:4 |
+|  硅片尺寸 |  200mm或300mm |  200mm或300mm |  200mm或300mm |
 
+
+最高精度是90纳米，也就是说央视新闻鼓吹的入场券最大精度是90nm。
+
+那么现在最流行的光刻机精度是多少呢？据[狂砸120多亿：台积电定了13台EUV光刻机](https://new.qq.com/rain/a/20201113A0AUYD00)（腾讯网2020年11月13日16:34）［台积电和三星均已投入5nm工艺的量产，前者代工的产品包括苹果A14、M1、华为麒麟9000等，后者则包括Exynos 1080以及传言中的骁龙875等。］、［其实从7nm开始，台积电和三星就开始引入EUV光刻，但过程层数较少。按照ASML（阿斯麦）的说法，迭代到5nm后，EUV的层数达到了14层，包括但不限于触点、过孔以及关键金属层等过程。未来的3nm、2nm，对EUV的依赖将更甚。作为目前唯一能生产EUV光刻机的荷兰ASML来说，自然成了台积电和三星争抢的香饽饽，即便单台价格达到了1.2亿欧元（约合9.4亿元人民币）。］、［另外，ASML定于明年中旬交付最新一代EUV光刻机TWINSCAN NXE:3600D，生产效率提升18%、机器匹配套准精度改进为1.1nm，不出意外的话，台积电应该是首批客户。］
+
+90nm是5nm的18倍，一个半径1米的圆面积是3.14平方米，一个半径18米的圆面积是1017.36平方米，一个半径18米的圆的面积相当于324个半径1米的圆面积。
+
+也就是说上海微电子装备(集团)股份有限公司生产光刻机的糙度比人家荷兰光刻机的324倍，荷兰光刻机的精度达到了上海微电子装备(集团)股份有限公司的1/324之一。
+
+让我们记住中央电视台这个最新出炉的牛皮吧！因为在未来回看历史的时候，你会发现当年人民日报曾经的亩产万斤从未曾离开我们，用牛皮吹出来的东西，在当年是粮食，在今天变成了光刻机，在未来它还会变成芯片等一切中共想要吹出来的东西。
+
+（文章内容仅代表作者个人观点）
 
 2+
