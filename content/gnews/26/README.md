@@ -1,64 +1,195 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩澳接受休•休伊特(Hugh Hewitt)电台采访文本翻译
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/556004/)
+## 宾夕法尼亚州联邦法院命令译文、原文
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/555948/)
 
-- 翻译：Ranting
+翻译 蒙特利尔战友团 laotou
 
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13145342/order.png)图片来自 pennrecord.com
+宾夕法尼亚州联邦法院
 
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+申诉人：
 
-**原文链接**：[https://hughhewitt.com/secretary-of-state-michael-pompeo-3/](https://hughhewitt.com/secretary-of-state-michael-pompeo-3/)
+唐纳德·J·川普竞选总统公司；                        编号 602 M D. 2020
 
-HH：我不想浪费时间去猜测你是否会像詹姆士二世把美国的大印章扔进泰晤士河一样，把美国的大印章扔进波托马克河。我想谈谈严肃的事情。查克-舒默（Chuck Schumer）为他地下室里的办公室 量过的窗帘比任何人都多。但很多人都在为你的办公室测量窗帘。他们中的一些人在谈论回到《联合全面行动计划》。这真是疯了。那个倒霉协议的守夜人已经变成了它幽灵的守望者。只要你是国务卿，在未来很长一段时间内，你会反对将伊朗政权正常化吗？
+共和党全国委员会
 
-议员：当然。与伊朗实现正常化的正确时机是伊朗政权遵守我们对每个民族国家所期望的一套基本规则和行为。他们继续加强其导弹计划，扩大其在全世界制造恐怖的能力。他们继续以不符合他们在《联合全面行动计划》下做出的承诺的方式行事，尽管这很疯狂。这是一个神权国家，一个贪污腐败的国家。他们摧毁了伊朗人民自己的大量财富和基本繁荣，而我们已经支持了他们四年。这是一个疯狂的想法，认为你会回到一个协议，允许伊朗人有一个干净的途径，以拥有核武器，他们可以借此恐吓整个世界。
+V
 
-HH：那么多花了四年时间妖魔化川普总统的人，其中很多是妖魔化你的人，不会对伊朗政权说一句坏话。现在我知道你经常思考国际关系问题。什么是国际关系？为什么他们不能搞好关系？你有没有想过美国左派的心理是什么，不让他们谴责一个残酷野蛮的政权？
+被告人：
 
-MP：有人可能会说是反犹主义的，而且这种做法会继续危及我们四年来在整个中东地区建立的基本谅解。不，我无法理解，之前奥巴马-拜登政府去争取《联合全面行动计划》，把伊朗作为他们中东外交政策的主轴时，我也无法理解。但回到这协议，会是疯狂的。瞧，我们已经建立起来了，我们已经对他们实施了制裁。我们已经让他们更难扩大他们的恐怖政权。我们已经明确表示，他们不会得到核武器。对他们来说根本不可能，把威慑力放回原位。然后，我们在整个中东建立了一系列战略联盟，带来了很多好处，当然包括《亚伯拉罕协议》。在过去的25年中，我们现在第一次在这两个国家中认识到以色列有权生存的简单事实。所以，不，我不能拿出一个理由。Hugh, 我记得那场辩论。要么是联合行动协定，要么是战争。这就是奥巴马 -拜登政府两年半以来的口号。好吧，没有《联合全面行动计划》，你可以看到，今天的中东比川普总统上任时更稳定。
+凯西·布克瓦尔（Kathy Boockvar），宾夕法尼亚州联邦州务卿；
 
-HH：国务卿先生，《亚伯拉罕协定》是否不仅会发展四年，而是四十年甚至更久？
+亚当斯郡选举委员会；
 
-议员：根本改变的是，川普总统基于他对像耶路撒冷这样的保守派现实主义的信念，做出了一些简单、大胆的决定，事实上，耶路撒冷是以色列的首都。戈兰高地实际上在那个国家内。每一个定居点的建立，本身并不违法。人们对海湾国家有基本的了解和承诺，对承认以色列的外交政策会更好。这是人类前进的方向。这是中东地区的行进方向。而川普总统带走了这种观念，即不解决以巴问题，你就不能增加中东的稳定、安全和繁荣。这一点现在已经消失了。没有人可能再相信这一点。我认为这与我们对伊朗施加的压力有很大的关系。如果你破坏了这种压力，如果你破坏了海湾国家对美国将成为中东和平伙伴的信心，我们将面临一段非常困难、漫长的时间。
+阿勒格尼郡选举委员会；
 
-HH：现在，国务卿先生，我想谈谈中国共产党，以及您和川普总统已明确表达和捍卫的保守主义现实。我们是否期望在12月和1月对华为等实体采取更多短期制裁？
+阿姆斯特朗郡选举委员会；
 
-MP：我不想在总统会做出什么决定之前就出面，但不要误会。我们为应对中共威胁所做的工作还在继续。所以仍有相当多的工作要做。国务院有工作要做。财政部还有一些事情要做，我相信白宫也会做出决定，每一项决定都是为了继续努力，这是历史性的，总统认识到屈膝、讨好中国，让他们对每条国际规则都有例外，这让美国的就业和繁荣面临风险。这是从贸易开始的。它转移到电信和基础设施，例如，与华为和VPE的合作，我们所做的工作建立了这个中心思想，即如果美国信息将在一些电信基础设施上传播，我们应该知道谁在接触它，接触它的人不能是中国军事机构的一部分。我们称它为 “干净网络”。Hugh，我们已经有了50个国家，50个国家。没有人给我们任何荣誉，与我们工作的世界各地的合作伙伴，50个国家，现在已经签署了，说是的，我们同意。你说对了，美国。我们不希望有中国的基础设施 在我们的电信系统内。这些都是我们迄今为止所取得的成就，只要美国人民给我们许可，给我们能力和权力，我们就会继续这样做。
+比弗郡选举委员会；
 
-HH：国务卿先生，当你担任中情局局长时，我在兰利采访你，以及你担任国务卿时，我在雾谷采访你，这两次你都说，我们对台湾的承诺是明确的，而且会坚持下去。我知道你经常和民主党人谈话。你是否认为这是中共必须实现的两党承诺，因为在中共最激进的分子中，有一些疯狂的言论，认为必要时应该用武力收回台湾？
+贝德福德郡选举委员会；
 
-议员：嗯，Hugh，记住当我们谈论时，正确使用语言总是很重要的。嗯，休，记住，当我们谈论， 它总是重要的得到正确的语言。台湾一直不是中国的一部分。而这一点在里根政府所做的工作中得到了承认，奠定了美国现在已经坚持了35年的政策，并且在两届政府下都是如此。不，实际上我认为这其实是两党的。我认为核心的理解是，这是一个民主的模式，生活在台湾的人民应该得到尊重，让中国人履行他们所做的承诺。我想这是双方都能同意的，只要是中国人和台湾人不确定的情况下，我希望这种情况会持续下去。我们应该履行已经做出的承诺。我们有一系列的义务。你们已经看到了我们关于向台湾出售武器的声明，以帮助他们提高防御能力。坦率地说所有这些事情都是为了履行中国和台湾人民之间的承诺。
+伯克斯郡选举委员会；
 
-HH：现在，部长先生，外交政策机构的小团体正在形成。就像我说的，他们正在到处测量窗帘。但我想知道，他们是否看到中共的现金已经渗透到他们的一些机构中去了？而如果这项工作在特区一度淡出，各州总检察长能否继续进行工作以找出哪些机构受到了中共现金的渗透？
+布莱尔郡选举委员会；
 
-MP：有很多工作要做。Hugh，你的观点很有道理。我希望在国家层面上继续做。我们已经做了一些工作来回击孔子学院，回击中共中央统一战线工作部，回击中共对美国的渗透和影响行动。我们已经踢走了在休斯顿活动的间谍。如果没有在美国这里注册为外国代理人，我们的宣传武器就更难以运作，这都是非常重要的事情。但是，是的，是这样的。全美国的州长、市议员、学校董事会领导都需要明白，中共正以他们可能不理解的方式来对付他们。他们需要了解这些风险。他们需要确定资金的流向。他们需要确保，如果有钱的话，他们需要了解钱的来源，目的是什么，他们需要充分了解接受中共或其附属机构提供的钱的成本。
+布拉德福德郡选举委员会；
 
-Hh： 现在川普总统的第一个任期在国内是由司法任命决定的，我认为在国外是由对中共的澄清决定的。而里根总统著名地警告说，树林里有一只熊。你和川普总统一直说天上有龙。大块头知道吗？
+巴克斯郡选举委员会；
 
-MP：越来越近了，Hugh。仍然有一些人想交易一点点业务，一些市场以换取美国国家安全。他们没有接受领导层附带的责任，即意识到可能存在短期成本。可能由于在中国存在的风险，一些企业也无法再在中国境内开展业务。但是，有一种觉醒。我谈到了潮流的转变，我在世界各地都看到了这一点。自20世纪70年代初以来，长期以来，世界一直拒绝向美国展示中国共产党的真实面目。我想我们现在可以在欧洲看到，在非洲看到，在东南亚也可以看到，这些国家已经认识到中共对他们国家的威胁。我认为越来越多的情况是，华盛顿这里的外交政策机构开始接受川普总统很长时间以来所知道的事情，就是我们对美国人民有责任确保他们不会继续骗我们，偷我们的东西，给美利坚合众国带来安全风险。
+巴特勒郡选举委员会；
 
-HH：现在具体来说，宗教自由对您很重要。这在奥巴马-拜登政府中并不重要。您是否相信未来的政府会承担起这一责任，特别是维吾尔人的困境？你认为现在每个人的议程上都有这个问题吗？
+坎布里亚郡选举委员会；
 
-议员：这是当务之急。具有讽刺意味的是，人们通常认为民主党政府认为人权和人类状况比其他事情更为重要。本届政府和川普总统对此非常重视。四年来，宗教自由一直是国务院领导的标志。我们已经举行了这些大型集会，国务院有史以来最大规模的人权集会，叫做部长级会议，我们把世界各地的宗教领袖带到美国来。他们真的是光荣的聚会。而维吾尔族的困境，这些人在中国西部的困境，那里的情况在全世界看来就像20世纪30年代在欧洲发生的事情。这些都是专制政权为了压制舆论，为了尝试和杜绝人类核心条件的本质而做的事情。我希望每一届政府，也希望每一位领导人，不管是在非政府组织工作，还是在美国政府内部工作，或者是考虑在中国内部做生意的企业，都要非常小心。我们不希望做任何有助于中共继续破坏中国西部地区个人中心人性的能力。
+卡梅伦郡选举委员会；
 
-HH：还有两个问题，部长先生。奥巴马-拜登时代的所谓支点只是说说而已。这不是现实。你和总统共同打造的四边形是真实的。是否已经足够坚固以承受上一代或更多一代人的上层建筑了？
+碳郡选举委员会；
 
-议员：是的，确实如此，这是因为不仅美国，而且澳大利亚人，日本人和印第安人都付出了艰辛的努力。我们都认识到，如果我们在南中国海共同努力，在印度洋共同努力，以四个伟大的民主国家能够继续努力的方式开展工作，我们将建立一套共识，为该地区的旅行、航行以及美国深切关注的所有事情提供更多的安全性。
+中部郡选举委员会；
 
-HH：最后，你，奥布赖恩大使，莱特希泽大使，你们都已经认证了几十名，甚至上百名年轻的国家安全专业人士。我希望硅谷和其他地方能尝试招募他们进来。你是否能把他们联系起来，并在他们四散而去的情况下保持联系？
+切斯特郡选举委员会；
 
-议员：Hugh，我有信心川普总统提出的想法以及我们立宪制宪中的现实主义这一中心思想将继续下去。所以我认为所有的团队，一起为美国人民提供那个增加安全和繁荣的团队会继续存在。我不认为这种对世界的理解会消失。
+克拉里昂郡选举委员会；
 
-HH：蓬佩奥国务卿，谢谢你今天早上来参加我的节目。祝你们好运，如果在感恩节之前我不能和你们说话，也祝你们感恩节快乐。
+克利菲尔德郡选举委员会：
 
-MP：谢谢你，Hugh。再见。
+克林顿郡选举委员会；
 
-采访结束。
+哥伦比亚郡选举委员会；
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
+克劳福德郡选举委员会；
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+坎伯兰郡选举委员会；
+
+多芬郡选举委员会；
+
+特拉华郡选举委员会；
+
+埃尔克郡选举委员会；
+
+伊利郡选举委员会；
+
+费耶特郡选举委员会；
+
+森林郡选举委员会；
+
+富兰克林郡选举委员会；
+
+富尔顿郡选举委员会；
+
+格林郡选举委员会；
+
+亨廷顿郡选举委员会；
+
+印第安纳州郡选举委员会；
+
+杰斐逊郡选举委员会；
+
+朱尼亚塔郡选举委员会；
+
+拉克瓦纳郡选举委员会；
+
+兰开斯特郡选举委员会；
+
+劳伦斯郡选举委员会；
+
+黎巴嫩郡选举委员会；
+
+利海郡选举委员会；
+
+卢塞恩郡选举委员会；
+
+莱康郡选举委员会；
+
+麦肯郡选举委员会；
+
+默瑟郡选举委员会；
+
+米夫林郡选举委员会；
+
+门罗郡选举委员会；
+
+蒙哥马利郡选举委员会；
+
+蒙托尔郡选举委员会；
+
+北安普敦郡选举委员会；
+
+诺森伯兰郡选举委员会；
+
+佩里郡选举委员会；
+
+费城郡选举委员会；
+
+派克郡选举委员会；
+
+波特郡选举委员会；
+
+舒伊尔基尔郡选举委员会；
+
+斯奈德郡选举委员会；
+
+萨默塞特郡选举委员会；
+
+沙利文郡委员会选举委员会；
+
+苏斯奎哈纳郡选举委员会；
+
+蒂奥加郡选举委员会；
+
+联合郡选举委员会；
+
+韦南戈郡选举委员会；
+
+沃伦郡选举委员会；
+
+华盛顿郡选举委员会；
+
+韦恩郡选举委员会；
+
+韦斯特莫兰郡选举委员会；
+
+怀俄明郡选举委员会；
+
+约克郡选举委员会
+
+**命令**
+
+而今，2020年11月12日，在审议了申诉人衡平法性质的复议请求，双方提交的法律备忘录，以及建议调查的干扰（大选的）被告人后，法院得出结论，被告人凯西·布克瓦尔（Kathy Boockvar）以联邦州务卿身份，向被告郡选举委员会发布了2020年11月1日的指导意见缺乏法定权力，因为该指导意见旨在改变《宾夕法尼亚州选举法》第1308（h）节（1937年6月3日法，P.L.1333，经修订）第25 P.S.§3146.8（h）条规定的某些选民核实身份证明的最后期限。根据布克瓦尔州务卿对宾夕法尼亚州最高法院在宾夕法尼亚州民主党诉布克瓦尔（第3版 宾夕法尼亚州，2020年9月17日提交，编号：133MM2020）一案中判决的解释与应用，某些选民需要核实身份证明。因此，法院特此命令，禁止被告郡选举委员会根据本院2020年11月5日发布的命令第一款规定的特别禁令对任何已隔离的选票进行计票。
+
+玛丽·汉娜·莱维特，审判长 （签字）
+
+法院命令原文链接：
+
+[https://static.foxbusiness.com/foxbusiness.com/content/uploads/2020/11/602-MD-2020-Order-Nov.-12.pdf](https://static.foxbusiness.com/foxbusiness.com/content/uploads/2020/11/602-MD-2020-Order-Nov.-12.pdf)
+
+原文文字版：
+
+IN THE COMMONWEALTH COURT OF PENNSYLVANIA
+
+Donald J. Trump For President, Inc.;
+
+and Republican National Committee
+
+Petitioners
+
+V
+
+Kathy Boockvar, in her capacity as Secretary of the Commonwealth of Pennsylvania;
+
+Adams County Board of Elections; Allegheny County Board of Elections; Armstrong County Board of Elections ; Beaver County Board of Elections; Bedford County Board of Elections; Berks County Board of Elections; Blair County Board of Elections; Bradford County Board of Elections; Bucks County Board of Elections; Butler County Board of Elections; Cambria County Board of Elections; Cameron County Board of Elections; Carbon County Board of Elections; Centre County Board of Elections; Chester County Board of Elections; Clarion County Board of Elections; Clearfield County Board of Elections: Clinton County Board of Elections; Columbia County Board of Elections; Crawford County Board of Elections; Cumberland County Board of Elections; Dauphin County Board of Elections; Delaware County Board of Elections; Elk County Board of Elections; Erie County Board of Elections; Fayette County Board of Elections; Forest County Board of Elections; Franklin County Board of Elections; Fulton County Board of Elections, Greene County Board of Elections; Huntingdon County Board of Elections; Indiana County Board of Elections; Jefferson County Board of Elections; Juniata County Board of Elections; Lackawanna County Board of Elections; Lancaster County Board of Elections; Lawrence County Board of Elections; Lebanon County Board of Elections; Lehigh County Board of Elections; Luzerne County Board of Elections; Lycoming County Board of Elections; McKean County Board of Elections; Mercer County Board of Elections; Mifflin County Board of Elections; Monroe County Board of Elections; Montgomery County Board of Elections; Montour County Board of Elections; Northampton County Board of Elections; Northumberland County Board of Elections; Perry County Board of Elections; Philadelphia County Board of Elections; Pike County Board of Elections; Potter County Board of Elections; Schuylkill County Board of Elections; Snyder County Board of Elections; Somerset County Board of Elections; Sullivan County Board of Elections; Susquehanna County Board of Elections; Tioga County Board of Elections; Union County Board of Elections; Venango County Board of Elections; Warren County Board of Elections; Washington County Board of Elections; Wayne County Board of Elections ; Westmoreland County Board of Elections; Wyoming County Board of Elections; and York County Board of Elections
+
+Respondents
+
+Order
+
+AND NOW this 12th day of November, 2020, upon consideration of Petitioners’ petition for Review in the Nature of a Complaint in Equity, and the memoranda of law filed by the parties and the proposed intervenor-respondent , the Court concludes that Respondent Kathy Boockvar, in her official capacity as Secretary of the Commonwealth, lacked statutory authority to issue the November 1, 2020, guidance to Respondents County Boards of Elections insofar as that guidance purported to change the deadline in Section 1308 (h) of the Pennsylvania Election Code, Act of June 3, 1937, P.L. 1333, as amended, 25 P.S. §3146.8 (h),for certain electors to verify proof of identification, based on Secretary Boockvar’s interpretation and application of the Pennsylvania Supreme Courts decision in Pennsylvania Democratic Party v Boockvar, \_A.3d\_(Pa, No. 133 MM 2020, filed September 17, 2020).
+
+Accordingly, the Court hereby ORDERS that Respondents County Boards of Elections are enjoined from counting any ballots that have been segregated pursuant to paragraph I of this Courts order dated November 5, 2020, granting a special injunction.
+
+MARY HANNAH LEAVITT, President Judge
 
 0

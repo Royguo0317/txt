@@ -1,33 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 有钱人的快乐你想象不到 而在中共国 穷苦人穷到什么地步你也想象不到
-` shangshang` [轉載自GNews](https://gnews.org/zh-hans/556344/)
+## 【大卫作战室观点】11/05期 Himalaya UK David&#8217;s War Room
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/556149/)
 
-作者：小妍说
+[!\[\]()!\[\](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/e3ede2ec-c107-4e56-84c2-2475379d2d5d.jpg?asset_id=efbb306a-372c-46ac-8fa7-e48d5b5f25df&amp;img_etag=%22ee30c1aa3aecdb61d55343d323d5192c%22&amp;size=2560)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/e3ede2ec-c107-4e56-84c2-2475379d2d5d.jpg?asset_id=efbb306a-372c-46ac-8fa7-e48d5b5f25df&amp;img_etag=%22ee30c1aa3aecdb61d55343d323d5192c%22&amp;size=1024)
 
-在中共国，很多处在社会底层的百姓生活生存压力最大，受到的“剥削”也最为严重，这不仅仅指物质上的，还有精神上的。他们往往在社会关系中处于被管理、被压迫、被欺负、被剥削的地位，虽然他们明白这一点，但是，也知道这些是无法改变的。在中共统治的这个国家，你会看到太多的贫困百姓没钱吃饭和穿衣，挣钱只能靠体力，起早贪黑钱又少，干到老没有退休，甚至是不敢生病不敢死。什么叫朱门狗肉臭，路有冻死骨。富家一席酒，穷汉半年粮，在这个国家随处可见，经常听到一句话，有钱人的快乐你想象不到，而在中共国，穷苦人穷到什么地步你也想象不到。今天分享3个我在网上看到的视频看了真是心酸！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13184918/88973D23-B2A0-4FFB-A341-63A9DB5478C0.png)
-第一个视频是：2020年11月5日，山东青岛。宋女士和女儿住在桥下一个临时搭建的帐篷里。宋女士称自己患有心脏病，已经一年没有工作，欠了8个月的房租，不想继续拖欠便搬了出来。宋女士说，10月22日搬出来，已经在这个简陋帐篷里住了小半个月了。从去年孩子放寒假她就病了，家里的药都过期了，没钱买药的宋女士，知道药过期了但还是吃了它。结果又因为吃了过期的药引发了肺病，去医院检查又检查出心脏病。因为居住条件简陋，女儿晚上只能靠手电筒写作业。虽然中共官方说目前已经对这对母女实行了救助，但是如果没有媒体报道，这对母女俩这个冬天也许就只能在桥底下挨冻，社区、村委会也不会帮助她们申请所谓的贫困补助、廉租房，中共妇联等部门更不会像她们伸出援手。很多人说这种情况完全可以住在公租房或是廉租房里，这种现象在中共国真是满大街都是，但是中共政府谁会考虑这些贫困百姓的困难呢？每天都在拆房建房，就是对百姓的困难完全没有关怀和包容，而且资源永远是掌握在有钱有权人的手里的。在中共国扶贫都能扶成村干部的家属，廉租房都是租给高收入的人，能住上廉租房的大都不是低保，能拿到助学金的大都不是贫困生，贫困县一般都不贫困，至于普通百姓只有自生自灭的命！这件事情不光看到了百姓的露宿街头，更看到因病返贫，当中共高层对外大撒币的时候，国内百姓看不起病，他们还上不起学，他们甚至连每月二百元的低保都拿不到手，却无人问津，这就是所谓的为人民服务，对外撒币跪舔，头头是道，对内刻薄压榨，心狠手辣。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13184938/345722BF-304F-48F4-9812-CC61AE52D8EF.png)
-第二个视频是：中共国一位90岁的孤寡老人，每天要独自上山砍柴，有人陪老奶奶聊了很久，她的一句话：我不想活，说哭了所有在场的人。在中共国所谓的盛世都是用美颜相机拍出来的，墙内的媒体哪一个敢走近真实的民众，拍拍他们的生活？说出他们的心里话？中国人如牲口一般每天为了生存用尽了全力，而那些打着为人民服务旗号的畜生们却已经远远不再是男盗女娼、醉生梦死那么简单，它们妄想吞并世界，让70亿人成为它们永远的奴隶。一位90岁的老人老无所居，老无所养，老无所安，老无所乐，生活在一个悲惨世界，活着都能看见地狱。为什么明明知道百姓的命要被一群畜牲掌控，却还是有人昧着良心在赞美！对底层老百姓来说中共统治下的中国就是地狱，数亿人生活在世界贫困线下，劳无所获、老无所养、病无所医、学无所教、居无所定。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13184956/40ED6F16-89B5-49F5-ADA9-663869249F8A.png)
-第三个视频是：11月10日，河北张家口，洋河南镇滨河幼儿园给孩子吃过期发臭的肉馅，并在食物里添加止泻药。幼儿园一学生家长表示，已经有52名学生出现呕吐、腹泻、发热等症状，家长在食堂两大塑料袋中发现发臭的肉馅以及庆大霉素的包装袋。这些刚刚开始做人的孩子，还没来得及看看这社会就已经被毒害，哪有中共一直宣称的幸福感，获得感，安全感前所未有？很难想象，给孩子吃这样的东西，这样的行为，还能称之为人吗？与禽兽有何分别？在中共的统治下，具有良心及良知的人少之又少,甚至全体受害者们贴心贴地支持施虐的当政者,这才是最可悲的。这种事情在中共国无论怎么整治都是无济于事的，不改变体制，不灭掉中共，任何手段都是治标不治本。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13184959/B37DCFB3-F7DE-4A26-9004-4E167327D2EC.png)
-中共统治下的中国，就是一个学无所教，老无所养，病无所医，死无所葬，居无所房，冤无所诉，理无所讲，食无所保，法无所用，民无所权，贪无所惩，官无所忌全面管制的社会。
+## 大卫作战室观点 
 
-GNEWS之前文章：
+## Himalaya UK David’s War Room
 
-玛莎拉蒂女撞宝马致2死4伤被判无期 [https://gnews.org/zh-hans/546137/](https://gnews.org/zh-hans/546137/)
+## **2020.11.05期**
 
-继996福报007协议后再现“自愿降薪”[https://gnews.org/zh-hans/540412/](https://gnews.org/zh-hans/540412/)
 
-中共国兰州布病重大安全群体感染事件[https://gnews.org/zh-hans/537455/](https://gnews.org/zh-hans/537455/)
 
-新闻链接1：[https://twitter.com/i/status/1325262024171991040](https://twitter.com/i/status/1325262024171991040)
+#### 解读蚂蚁金服IPO叫停的背后逻辑！CCP央视告佐治亚州和密歇根州法官分别驳回川普总统两起选举诉讼！中共葫芦卖什么药…
+[!\[\]()!\[\](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/2eb443a4-346b-422c-bf78-9de2ef846f09.png?asset_id=ff1d909c-9e9d-4cfe-a325-0ece53940cce&amp;img_etag=%22db6c708f1258917458e9c3d2a1f276d5%22&amp;size=2560)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/2eb443a4-346b-422c-bf78-9de2ef846f09.png?asset_id=ff1d909c-9e9d-4cfe-a325-0ece53940cce&amp;img_etag=%22db6c708f1258917458e9c3d2a1f276d5%22&amp;size=1024)
 
-新闻链接2：[https://twitter.com/i/status/1313341914561699841](https://twitter.com/i/status/1313341914561699841)
+> **A. 解读蚂蚁金服IPO叫停的背后逻辑**
 
-新闻链接3：[https://twitter.com/i/status/1326137853902909440](https://twitter.com/i/status/1326137853902909440)
 
+1.IPO造假：蚂蚁金服根本没有空间支撑市盈率96.48倍； 资金主要来源互联网金融手续费却谎称是科创型企业。
+
+2.蚂蚁金服公开募股、联合记帐的机构包括巴克莱，以及唯利是图的华尔街和江泽民温家宝王岐山背后的影子，都等着在这个IPO里边捡钱。
+
+3.马云和他背后的太子党知道了爆料革命的威力，都想抓住最后的捞钱机会，蚂蚁金服迫不及待IPO上市。
+
+4.蚂蚁金服紧急叫停，充分说明中共内部斗争，习与政治老人的斗争进入明面化。
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/d38daf67-4192-4c87-be1d-a87ed6439f59.png?asset_id=08d00849-e697-49d7-a918-bf01518ca368&amp;img_etag=%226405f4956ea2ba71549bcbab80171d50%22&amp;size=2560)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/d38daf67-4192-4c87-be1d-a87ed6439f59.png?asset_id=08d00849-e697-49d7-a918-bf01518ca368&amp;img_etag=%226405f4956ea2ba71549bcbab80171d50%22&amp;size=1024)
+
+> **B. CCP报导佐治亚州和密歇根州法官分别驳回川普总统两起选举诉讼，中共葫芦卖的什么药？**
+
+
+1.中共与贪婪的华尔街的勾兑吸血的行为，早引起美国当前危机委员会重视及警告。
+
+2.如果川普总统连任成功，按照《国际紧急经济权力法》在美国的一系列中资企业中概股都会受到围剿，叫停供应链转移。
+
+3.这是中共所有盗国贼都害怕的，所以CCP要千方百计破坏川普总统连任。
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/d5d54911-9c82-40c4-90cd-a27f9eaaafab.png?asset_id=e848b19b-b162-4087-8954-0ac6984ba19c&amp;img_etag=%22e7a8cd5e105167306e394fc0c8434b92%22&amp;size=2560)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/d5d54911-9c82-40c4-90cd-a27f9eaaafab.png?asset_id=e848b19b-b162-4087-8954-0ac6984ba19c&amp;img_etag=%22e7a8cd5e105167306e394fc0c8434b92%22&amp;size=1024)
+
+> **C. 败登家族和中共陷入进退维谷的境地**
+
+
+1.三块硬盘，暴露CCP蓝金黄败登家族以达到控制美国的阴谋。CCP和败登家族牢牢地绑在了一起。
+
+2.CCP花大量资金助选拜登，却不敢恭贺拜登 “当选”， 进退维谷。
+
+3.大量证据直指民主党造假和违规操作，最终川普总统一定会连任成功。
+
+
+
+编辑**[【喜马拉雅战鹰团】](https://spark.adobe.com/page/5l9wjBHP5vTCq/)**-点击Adobe Spark版
+
+[**点击关注大卫作战室Parler**](https://parler.com/profile/David008/posts)
+
+**[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)**
+
+**[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/user/5ee680a45bd6f123dd104807)**
+[!\[\]()!\[\](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/4b4b8dee-2539-4e6f-8402-d252f8bc7c26.jpg?asset_id=5e203867-2df9-4e0f-bf60-a58bfdf4444a&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=2560)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/4b4b8dee-2539-4e6f-8402-d252f8bc7c26.jpg?asset_id=5e203867-2df9-4e0f-bf60-a58bfdf4444a&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=1024)
 0
