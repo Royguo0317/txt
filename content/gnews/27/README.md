@@ -1,51 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 病毒超限戰 &#8211; CCP病毒偽裝成疫苗毒害台灣人民
-` VOH欧洲战友团` [轉載自GNews](https://gnews.org/zh-hans/556292/)
+## 【大卫作战室观点】11/05期 Himalaya UK David&#8217;s War Room
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/556149/)
 
-**撰稿: 牛小妹 校對: 莫黎**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13170323/0012-3.jpg)***Reuters***
+[!\[\]()!\[\](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/e3ede2ec-c107-4e56-84c2-2475379d2d5d.jpg?asset_id=efbb306a-372c-46ac-8fa7-e48d5b5f25df&amp;img_etag=%22ee30c1aa3aecdb61d55343d323d5192c%22&amp;size=2560)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/e3ede2ec-c107-4e56-84c2-2475379d2d5d.jpg?asset_id=efbb306a-372c-46ac-8fa7-e48d5b5f25df&amp;img_etag=%22ee30c1aa3aecdb61d55343d323d5192c%22&amp;size=1024)
 
+## 大卫作战室观点 
 
-據報導, 台灣的衛生福利部為了加速國內三家廠商新冠疫苗臨床試驗，中央流行疫情指揮中心在11月11日召開記者會，宣布啟用食品藥物管理署的「COVID-19疫苗臨床試驗意向登記平台」，鼓勵符合條件者且有意願當受試者的人登記，貢獻防疫。會上”承諾若未來疫苗若有效，對照組也能優先打；若疫苗組有不良反應，醫院會負責到底!” 左一聲「保證」, 右一聲「負責」, 聽起來就像中共的官方口吻。指揮官陳時中今公開說願意參加受試者, 而民眾則熱烈響應，24小時內逾萬人登記。
+## Himalaya UK David’s War Room
 
-依賴健保收入奄奄一息的台灣醫院用甚麼能力來負責不成熟疫苗帶來的嚴重後果?
-
-學者專家對此譴責不斷，食藥署曾發文通告全國臨床試驗單位「不得以記者會招募受試者」。衛福部現在卻帶頭違反此一規定，為不存在的臨床試驗招募受試者，此舉不僅打臉自己，罔顧受試者權益, 更嚴重忽略健康受試者對試驗的風險評估。
-
-衛福部疾管署人體研究倫理審查會委員、政大法律系副教授劉宏恩在臉書自嘲, 所有曾經相信「不得以記者會招募受試者」的人，都通通都成為笑話。這與美國總統大選一樣, 成為了一個荒謬滑稽的事件。
-
-台灣受試者保護協會理事長林綠紅強烈譴責衛福部。他認為受試者招募廣告內容及招募方式，本來都必須經過人體試驗審查委員會 (Institutional Review Board, IRB)審查，受試者招募廣告用字遣詞都有非常嚴格的規定，要提醒受試者優先思考是否能接受相關風險，並且不能明示或暗示有任何權威背書 (保證?醫院負責?)。
-
-而這次多家媒體大肆報導參與這次疫苗試驗可能獲得的補助金額，對經濟弱勢者是很大的誘因。林綠紅表示，疫苗試驗受試者都是健康人，會參加受試者的主要原因是因為”金錢誘惑”, 而”金錢誘惑使生活辛苦的人不顧風險地參加研究”。而這正是「倫理的不當影響」裡面，最常見的議題之一。
-
-據林綠紅表示，現在試驗計畫根本還不存在，更沒有通過IRB審查，政府卻急著開記者會宣傳招募。她甚至已從醫院內部消息得知，醫院必須加快此案的審查。顯示衛福部在記者會之後，會讓原本應該要層層把關的人，都暴露於巨大壓力中，嚴重影響為受試者安全把關的嚴謹度。
-
-台大醫院研究倫理委員會主任委員蔡甫昌也質疑，一般都是由試驗計劃主持單位來做正式招募，這次食藥署先找名單，其結果算不算正式招募？這種意向調查有沒有符合自己公告的遊戲規則?
-
-「平台只是做意向登記、記者會只是公布重大事項，」食藥署藥品組副組長吳明美強辯，正式的招募廣告內容非常詳細，現在只是請有意願的人來登記，不算廣告也不算招募。
-
-看看台灣衛福部官僚的嘴臉! 衛福部拿著納稅人的錢, 本應該為人民的健康福利把關, 如今試驗計畫八字還沒一撇，也沒有通過IRB審查, 不顧原本自己訂下的嚴謹程序, 如此火急火燎的趕著做CCP病毒疫苗的受試者實驗, 所為何來? 是為了民眾的健康? 還是為了疫苗大廠後面老闆的龐大利益? 誰能保證CCP病毒疫苗的安全性?
-
-文貴先生及閻博士早就公開說過CCP病毒疫苗的荒謬及不可靠, 難道台灣的衛福部及防疫單位對於閻博士所提供對於CCP病毒完整的訊息毫無所知?
-
-可怕的是, 如果不安全的CCP病毒疫苗造成受試者感染, 變成感染源, 以目前已報名的一萬名受試者來說, 台灣的民眾將陷於全民恐慌之中, 共產黨將不費吹灰之力就把台灣毀滅,「留島不留人」!
-
-在全世界都在關注美國總統大選之際, CCP或許已在台灣進行「病毒超限戰」，而台灣民眾的生命也岌岌可危!
-
-提早恭賀拜登當選美國總統的蔡英文, 有智慧看到台灣目前的處境嗎? 有像川普一樣的勇氣宣布台灣進入「緊急狀態」嗎? 衛福部的不作為者會叫停這個荒謬可笑的計畫嗎?
+## **2020.11.05期**
 
 
 
+#### 解读蚂蚁金服IPO叫停的背后逻辑！CCP央视告佐治亚州和密歇根州法官分别驳回川普总统两起选举诉讼！中共葫芦卖什么药…
+[!\[\]()!\[\](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/2eb443a4-346b-422c-bf78-9de2ef846f09.png?asset_id=ff1d909c-9e9d-4cfe-a325-0ece53940cce&amp;img_etag=%22db6c708f1258917458e9c3d2a1f276d5%22&amp;size=2560)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/2eb443a4-346b-422c-bf78-9de2ef846f09.png?asset_id=ff1d909c-9e9d-4cfe-a325-0ece53940cce&amp;img_etag=%22db6c708f1258917458e9c3d2a1f276d5%22&amp;size=1024)
+
+> **A. 解读蚂蚁金服IPO叫停的背后逻辑**
 
 
-新聞來源:
+1.IPO造假：蚂蚁金服根本没有空间支撑市盈率96.48倍； 资金主要来源互联网金融手续费却谎称是科创型企业。
 
-[https://udn.com/news/story/120940/5010651?from=udn\_ch2cate6638sub120940\_pulldownmenu\_v2](https://udn.com/news/story/120940/5010651?from=udn_ch2cate6638sub120940_pulldownmenu_v2)
+2.蚂蚁金服公开募股、联合记帐的机构包括巴克莱，以及唯利是图的华尔街和江泽民温家宝王岐山背后的影子，都等着在这个IPO里边捡钱。
+
+3.马云和他背后的太子党知道了爆料革命的威力，都想抓住最后的捞钱机会，蚂蚁金服迫不及待IPO上市。
+
+4.蚂蚁金服紧急叫停，充分说明中共内部斗争，习与政治老人的斗争进入明面化。
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/d38daf67-4192-4c87-be1d-a87ed6439f59.png?asset_id=08d00849-e697-49d7-a918-bf01518ca368&amp;img_etag=%226405f4956ea2ba71549bcbab80171d50%22&amp;size=2560)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/d38daf67-4192-4c87-be1d-a87ed6439f59.png?asset_id=08d00849-e697-49d7-a918-bf01518ca368&amp;img_etag=%226405f4956ea2ba71549bcbab80171d50%22&amp;size=1024)
+
+> **B. CCP报导佐治亚州和密歇根州法官分别驳回川普总统两起选举诉讼，中共葫芦卖的什么药？**
+
+
+1.中共与贪婪的华尔街的勾兑吸血的行为，早引起美国当前危机委员会重视及警告。
+
+2.如果川普总统连任成功，按照《国际紧急经济权力法》在美国的一系列中资企业中概股都会受到围剿，叫停供应链转移。
+
+3.这是中共所有盗国贼都害怕的，所以CCP要千方百计破坏川普总统连任。
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/d5d54911-9c82-40c4-90cd-a27f9eaaafab.png?asset_id=e848b19b-b162-4087-8954-0ac6984ba19c&amp;img_etag=%22e7a8cd5e105167306e394fc0c8434b92%22&amp;size=2560)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/d5d54911-9c82-40c4-90cd-a27f9eaaafab.png?asset_id=e848b19b-b162-4087-8954-0ac6984ba19c&amp;img_etag=%22e7a8cd5e105167306e394fc0c8434b92%22&amp;size=1024)
+
+> **C. 败登家族和中共陷入进退维谷的境地**
+
+
+1.三块硬盘，暴露CCP蓝金黄败登家族以达到控制美国的阴谋。CCP和败登家族牢牢地绑在了一起。
+
+2.CCP花大量资金助选拜登，却不敢恭贺拜登 “当选”， 进退维谷。
+
+3.大量证据直指民主党造假和违规操作，最终川普总统一定会连任成功。
 
 
 
+编辑**[【喜马拉雅战鹰团】](https://spark.adobe.com/page/5l9wjBHP5vTCq/)**-点击Adobe Spark版
 
+[**点击关注大卫作战室Parler**](https://parler.com/profile/David008/posts)
 
-2+
+**[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)**
+
+**[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/user/5ee680a45bd6f123dd104807)**
+[!\[\]()!\[\](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/4b4b8dee-2539-4e6f-8402-d252f8bc7c26.jpg?asset_id=5e203867-2df9-4e0f-bf60-a58bfdf4444a&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=2560)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/4b4b8dee-2539-4e6f-8402-d252f8bc7c26.jpg?asset_id=5e203867-2df9-4e0f-bf60-a58bfdf4444a&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=1024)
+0

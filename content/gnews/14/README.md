@@ -1,30 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国国家主席习近平决定停止蚂蚁集团金服的首次公开募股
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/556629/)
+## 11月14日 华盛顿DC 新中国联邦支持川普总统游行活动宣传片（一）
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/556607/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13210729/42232-1595104587699.jpeg)
-翻译：康州农场-黎明的光芒
+视频制作/简评：500miles；组稿/整理：Julia Win
 
-校正：康州农场-V
 
-审核：康州农场-Truemanman
 
-据《华尔街日报》周四援引中国知情官员的话报道，中共国国家主席习近平亲自决定终止蚂蚁金服集团370亿美元的首次公开募股。
+简评：
 
-叫停本应成为全球有史以来最大的公开募股的决定，发生在几天前，这家金融科技巨头的亿万富翁创始人马云（Jack Ma）对该国的金融监管机构和银行发起了公开攻击的数天后，所以当局决定叫停本应成为全球有史以来最大的公开募股。
+这短短的2分钟视频表达了很多内容：
 
-报道说，习近平主席下令中共国监管机构调查并推迟蚂蚁金服的上市。
+我们新中国联邦人是和正义站在一起的！而川普总统说：在美国，我们不膜拜政府，我们膜拜上帝，这符合正义标准（有正确信仰的人，都不会太差）。
 
-蚂蚁集团没有立即回应路透社的置评请求。 本社也无法立即联系到国务院新闻办公室（中共国国务院）请求发表评论。
+从病毒起源来说，爆料革命很早说过，是CCP制造的病毒；蓬佩奥先生在尼克松图书馆演讲时，也说CCP欺骗了世界。闫丽梦博士第一次出场，是最震撼和经典的，她强调了：“这与政治无关，是与人类的生存有关！”这也印证了，爆料革命不参与美国政治，而是为了揭示真相，消灭CCP这个最大的恶魔！
 
-马云曾在10月24日的上海峰会上表示，监管体系正在扼杀创新，必须进行改革以促进增长。本月早些时候，路透社报道，这一讲话引发了一连串事件，使蚂蚁集团金服的上市遭遇挫折。
+川普总统夫妇感染了病毒，战友们为他们祈福，愿他们尽快康复。这体现了新中国联邦人的善良、友好。
 
-在马云发表严厉的讲话后不久，国家监管部门就开始编撰报告，其中包括一份关于蚂蚁如何利用虚拟信用卡服务商 “花呗华北 ” (Huabei)等数字金融产品，鼓励穷人和年轻人积累债务的报告。
+视频中也表现出了拜登硬盘事件。
 
-据路透社报道，国务院办公厅汇编了一份有关马云讲话的舆论报告，并提交给习近平等高层领导人。
+我们新中国联邦人支持一切正义的力量！谁与我们的敌人-CCP勾结，我们就同他干到底！
 
-原文链接*[https://www.reuters.com/article/uk-antgroup-ipo/chinese-president-xi-jinping-decided-to-halt-ants-ipo-wsj-idUSKBN27S31W](https://www.reuters.com/article/uk-antgroup-ipo/chinese-president-xi-jinping-decided-to-halt-ants-ipo-wsj-idUSKBN27S31W)*
+
+
+编辑【喜马拉雅战鹰团】
+
+[**点击关注大卫作战室Parler**](https://parler.com/profile/David008/posts)
+
+**[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)**
+
+**[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/user/5ee680a45bd6f123dd104807)**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/4b4b8dee-2539-4e6f-8402-d252f8bc7c26.jpg?asset_id=5e203867-2df9-4e0f-bf60-a58bfdf4444a&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=2560)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/4b4b8dee-2539-4e6f-8402-d252f8bc7c26.jpg?asset_id=5e203867-2df9-4e0f-bf60-a58bfdf4444a&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=1024)
 
 0
