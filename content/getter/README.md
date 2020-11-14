@@ -12,6 +12,11 @@
 
 
 
+[ 11月14号：新中国联邦……今天在华盛顿展示中国人形象，将是新中国人和世界接轨……和走向世界真正的开始。](/content/getter/content/2020/11/5fb05c82ad3f0f61d2c0778a.md)
+
+**郭文贵MILES** `2020-11-14T22:38:58`
+##
+
 [ 11月14号：你们太了不起了，亲爱的战友兄弟姐妹们！](/content/getter/content/2020/11/5fb02fb6ad3f0f61d2c06b46.md)
 
 **郭文贵MILES** `2020-11-14T19:27:50`
@@ -155,10 +160,5 @@
 [10月25日  2015年，习近平访美期间与贾跃亭，王昕和拜登之间的关系的有关文件揭秘](/content/getter/content/2020/10/5f959afae7d0c633dede7470.md)
 
 **郭文贵MILES** `2020-10-25T15:34:18`
-##
-
-[Oct 25,2020  Exclusive: Documents to reveal the relationships between Jia Yaotin...](/content/getter/content/2020/10/5f959a75e7d0c633dede5920.md)
-
-**郭文贵MILES** `2020-10-25T15:32:05`
 ##
 
