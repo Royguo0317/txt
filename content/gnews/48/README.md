@@ -1,25 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法院裁定Kim Dotcom在52次《隐私法》申诉中胜诉，等待政府赔偿
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/556693/)
+## 中通快递称被坠楼男子砸中死亡快递员未签合同拒按工伤赔偿
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/556715/)
 
-崇尚蔚蓝
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13213149/Capture-21.png)
-德国企业家Kim Dotcom向52个政府机构提出《隐私法》的申诉被拒绝，在长达五年的斗争后，以他获得损害赔偿而告终。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13213610/%E5%B0%81%E9%9D%A2-51.jpg)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-Kim Dotcom和其他三个人-Finn Batato，Mathias Ortmann和Bram van der Kolk，是在FBI领导的一项全球行动中被捕，因通过Megaupload网站大量侵犯版权的受到指控，将面临引渡美国。如果引渡到美国并被定罪，这四人将面临几十年的监禁。
+据[**澎湃新闻**](https://weibo.com/thepapernewsapp?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2020年11月14日10：01](https://weibo.com/5044281310/JtPI0pHVr?ref=home&amp;rid=0_0_8_2632676267974707064_0_0_0) 来自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)
 
-Dotcom在2015年根据《隐私法》提出申诉，希望政府机构给予公正的答复。这一诉求是他在地区法院举行引渡听证会之前提出的，并寻找相关证据，以揭露将他引渡到美国的阴谋。
+【中通快递员被砸身亡，妻子：未签合同，公司拒按“工伤”赔偿】[#被砸身亡中通快递员妻子发声#](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E7%A0%B8%E8%BA%AB%E4%BA%A1%E4%B8%AD%E9%80%9A%E5%BF%AB%E9%80%92%E5%91%98%E5%A6%BB%E5%AD%90%E5%8F%91%E5%A3%B0%23&amp;from=default)11月6日13时许，东莞石龙镇华南花园一男子坠楼，砸中取件的中通快递员张某龙，两人均身亡。13日，被砸身亡快递员张某龙亲属在社交媒体发声称，6日意外发生后，中通快递总公司和石龙分部拒绝与家属面谈，只用电话敷衍、拖延，苦苦等待却没得来公正合理的赔偿。记者致电张某龙妻子邓女士，对方表示，丈夫为中通送件8个月，中通方面却一直未与丈夫签订劳动合同。事发后，中通快递不承认丈夫是中通快递的员工，也未按照“工伤”来协调赔偿。南方+[O中通快递员被砸身亡，妻子：未签合同，公司拒…](http://t.cn/A6GKJfyt)[收起全文d](void%280%29;)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13213608/005vnhZYly1gkogyqvuqrj60hs0btnes02.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13213622/005vnhZYly1gkogz47jt1j60hs0np1gx02.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13213640/005vnhZYly1gkogz883omj60hs0dctus02.jpg)
+啥叫合同？据[百度百科——合同](https://baike.baidu.com/item/%E5%90%88%E5%90%8C/20705?fr=aladdin#2_5)：［合同是[民事主体](https://baike.baidu.com/item/%E6%B0%91%E4%BA%8B%E4%B8%BB%E4%BD%93/4258085)之间设立、变更、终止民事法律关系的协议。］，合同的形式有哪些？据《[中华人民共和国民法典](https://baike.baidu.com/item/%E4%B8%AD%E5%8D%8E%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD%E6%B0%91%E6%B3%95%E5%85%B8/19435116)》［第四百六十九条　当事人订立合同，可以采用书面形式、口头形式或者其他形式。书面形式是合同书、信件、电报、电传、传真等可以有形地表现所载内容的形式。以电子数据交换、电子邮件等方式能够有形地表现所载内容，并可以随时调取查用的数据电文，视为书面形式。］ ，也就是说口头形式也是合同的一种。
 
-而政府答复理由是，Dotcom提出这一诉求是为了在引渡听证会上使用拖延的战术，否认有任何阴谋。 但上诉法院载定，John Key政府2015年在未对Dotcom进行引渡听证会答辨的情况下，就裁定将Dotcom引渡到美国，并且以司法部是与美国引渡条例合作最密切的机构，有最高的法律解释权为由，直接将该案移交给司法部长Chris Finlayson是错误的；同时，收到诉求的地区法院完全有责任做出公正判断，必须给予答复，直接移交给中央管理机构司法部也是不合法的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13213253/Capture-22.png)
-最后上诉法院将该案移交给人权法庭，法庭的证据对Dotcom有利，用于载定因侵犯其隐私而造成的伤害。
+在这起事件中被坠楼男子砸中离世的中通快递员，他生前为中通快递送快件8个月，在收发快递过程中他的签收和签发记录都是他与中通快递公司的劳动雇佣关系的证明。
 
-Dotcom刚刚在最高法院取得了初步的胜利，虽然他和其他三名在这次指控中有可能被判引渡美国，但在司法部长Kris Faafoi签署引渡令之前要经过的听证会，听取他们的答辨。即使引渡令是由Faafoi签署，按照惯例该案在新西兰的最后裁决也要经过好几年的时间。
+在中共国，因为没有书面的选票，所以每个公民与这个邪恶政权没有形成契约，由于契约的缺失，当每个公民需要维护权利的时候，会遇到各种荒唐，在这一起拒绝承认合同进行工伤赔偿的荒唐案例中，中通快递用最无耻的方式逃避责任，这一切都是我们的祖辈、父辈和我们自己容共的孳息！
 
-译者注：经过对Kim Dotcom案件的了解，政府侵犯了公民应有的权利，Dotcom不畏强权，努力抗争，为自己争取到辨论的机会，也侧面反应了政府强权不断侵蚀民主正义。所以，我们要勇敢的拿起法律武器捍卫我们应有的权利。
-
-[原文链接](https://www.nzherald.co.nz/business/news/article.cfm?c_id=3&amp;objectid=12378783)
+（文章内容仅代表作者个人观点）
 
 0
