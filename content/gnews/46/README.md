@@ -1,13 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日政要Twitter播报(中文) 11/12期(视频+ PDF下载)
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/557918/)
+## 重磅好消息
+` JP007` [轉載自GNews](https://gnews.org/zh-hans/558029/)
 
-撰稿记者:本來、尘凡3、石頭
-校对:David XX
-播音:大脚印
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14063830/%E9%87%8D%E7%A3%85%E5%A5%BD%E6%B6%88%E6%81%AF.png)
+作者：日本京都富士会神的带领
 
-[每日政要推文11-12\_pdf](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14061844/11-12_David_XX-1.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14061844/11-12_David_XX-1.pdf)
+重磅好消息昨天川普总统签署行政令，禁止美投资公司、社保基金等投资由中国解放军拥有或控制的中国企业。其中有华为、中国电信、中国移动、中船重工、海康等等31家公司。被美国防部认定为受中共军方控制的企业都将被禁。受此影响中国电信跌盘！跌盘！跌盘！8.15%接下来还会继续跌⚡️擀面杖子已无法控制。估计很快会跌停。看样子正如七哥所说，金融脱钩！脱钩！脱钩！已经全面开始了。
+
+另外德州哈里斯县卷入选票欺诈。这还不是重点，重点是拜登的第一马仔琼斯被FBI带走。估计一系列伪造投票手段将被一一挖出。据报道伪造选票、签名涉嫌违法，司法部的行动也已经全面开始。
+
+看样子急急忙忙站队并发贺电的要冒汗了。
 
 0
