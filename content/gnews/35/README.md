@@ -1,15 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 我们爆料革命拯救了美国！
-` GM31` [轉載自GNews](https://gnews.org/zh-hans/557920/)
+## 每日政要Twitter播报(中文) 11/12期(视频+ PDF下载)
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/557918/)
 
-郭文贵先生在[2020年11月11日上午的 GTV 直播](https://gtv.org/video/id=5fabf508bd0d464fadfebbf7)中分享他去圣乔治大教堂祈福的点滴时刻，教堂的一位牧师和神职人员说他们都在看郭先生的视频、G|TV 和GNews；而这位牧师原来是是民主党人士，就是因为看了G|TV，Gnews，他不再投拜登，而是投川普了。而且他不相信纽约的投票比例，他说他们教堂最后90%都投票给了川普。
+撰稿记者:本來、尘凡3、石頭
+校对:David XX
+播音:大脚印
 
-郭先生指出这场大选完了以后，全世界最牛的事情就是爆料革命、新中国联邦。郭先生还号召战友们参加新中国联邦14号在华盛顿的游行，支持川普总统。
+[每日政要推文11-12\_pdf](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14061844/11-12_David_XX-1.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14061844/11-12_David_XX-1.pdf)
 
-*听写:【重生】 翻译:【奔腾的长江】 校对:【GM80】字幕：【班仔】 编辑:【GM31】 视频解码：【恒久忍耐】*
-
-*战友之家玫瑰园小队出品*
-
-1+
+0

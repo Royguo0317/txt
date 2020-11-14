@@ -1,25 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/14/2020 财经快讯: 首付一折重现中共楼市; 纳瓦罗自信川普连任并着手第二任期计划
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/558305/)
+## 闫丽梦博士与Databaseitalia.it(意大利数据库网络媒体）携手并肩，揭示病毒真相的启示
+` GM99` [轉載自GNews](https://gnews.org/zh-hans/558335/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14083931/Picture70.png)图片来源：[https://propertyupdate.com.au/](https://propertyupdate.com.au/8-reasons-property-markets-crash/)
-1.中共国苏州楼市近期大幅下滑。9，10月至今，多个楼盘积极打折促销，甚至推出特价房，限时秒杀，首付1折等多重优惠。数据显示，10月苏州新房成交量骤降，共成交6732套，环比上月跌幅35.10%，同比2019年10月下降33.04%。
-[https://money.163.com/20/1114/08/FRCOFQNA002580S6.html?clickfrom=w\_money](https://money.163.com/20/1114/08/FRCOFQNA002580S6.html?clickfrom=w_money)
+#### **作者：郭帅、小C**
+**字幕翻译制作：VOG译制组**
 
-2.美国证监会周五发布公告，前富国银行（Wells Fargo）首席执行官兼董事长约翰·斯托普夫（John G. Stumpf）同意支付250万美元罚款，因其“故意夸大富国银行在商业上的成功而误导投资者”
-[https://www.zerohedge.com/markets/sec-slaps-former-wells-fargo-ceo-25-million-fine-over-performance-metric-scandal](https://www.zerohedge.com/markets/sec-slaps-former-wells-fargo-ceo-25-million-fine-over-performance-metric-scandal)
 
-3.现年49岁的特斯拉总裁马斯克周五发推表示：现阶段中共病毒测试十分不严谨。推文中说马斯克在一日之内进行过4次病毒测试，其中两次呈阳性，另外两次则现阴性。据悉，马斯克现不得不进行额外测试以确定其是否感染病毒。
-[https://www.washingtonexaminer.com/news/elon-musk-may-or-may-not-have-covid-19-after-split-rapid-test-results](https://www.washingtonexaminer.com/news/elon-musk-may-or-may-not-have-covid-19-after-split-rapid-test-results)
 
-4.白宫首席经济顾问皮得·纳瓦罗周五正式表示：唐纳德·川普总统显而易见的赢得了本次选举，并且白宫已着手计划第二个4年计划。纳瓦罗先生同时表示，相关部门已经对非法选票开展全面调查。
-[https://www.dailymail.co.uk/news/article-8946405/Top-Donald-Trump-advisor-Peter-Navarro-claims-president-clearly-won-election.html](https://www.dailymail.co.uk/news/article-8946405/Top-Donald-Trump-advisor-Peter-Navarro-claims-president-clearly-won-election.html)
+2020年11月9号，意大利媒体Databaseitalia.it，意大利首都罗马时间14:30，正式采访爆料革命、新中国联邦，闫丽梦博士，连线共进行了33分钟，非常成功。关于意大利媒体的介绍和相关文章链接已经附着在文章末尾，后续还会陆续更新。这里我们只想和战友们分享：通过意大利媒体成功专访闫博士，和在参与爆料革命新中国联邦，唯真不破、传播真相的过程中所得到的启示。如果这些启发能够增强战友们的信心、激发战友们的热情、能够开拓创新，发挥出战友们自身积极优势和巨大潜能，那就是我们小蚂蚁的心愿。但是这里不得不说，所有这一切源于信仰的根基要稳。在信仰坚定的基础上感恩万神万佛的指引，感恩爆料革命和新中国联邦！
 
-5.美国联邦选举委员会主席泰瑞·泰纳（Trey Train）上周发文明确表示：此次美国大选在多个摇摆州确实存在大规模选举舞弊现象。同时他赞同川普总统的竞选诉讼，并表示几个州的选举官员采取的可疑行动会使选举不合法。
-[https://www.zerohedge.com/political/fec-chairman-says-he-believes-there-voter-fraud-key-states](https://www.zerohedge.com/political/fec-chairman-says-he-believes-there-voter-fraud-key-states)
+意大利媒体成功采访闫博士，从2020年10月26号开始，意大利媒体正式发出邀请函，期间有11月初川普总统大选，所以都比较忙，因此历时两个星期，成功携手，目前视频还在后续制作之中。虽然看似两个星期，但是这确实是战友在过去的几个月里，信仰的坚定，一直保持着积极心态、一步一个脚印踏踏实实地做好每一件小事分不开。与战友们分享这个过程即供战友参考也是对我们的自身提出更高的标准，未来携手并肩、共同成长和努力。
 
-By：【秘翻组·金融法律组】
+第一个脚印是与所居住国的当地人保持连接，对当地人对世界的看法持续性关注，对他们的游行关注，并深入其中去了解，主动参与并持续发传单传播病毒真相、中共邪恶等。与当地的媒体记者（Databasitalia)尝试对接，并了解到他们的想法，比如支持川普总统、支持并参与Qanon。从9月份的持续不断合作爆料报道工作，对爆料革命新中国联邦支持。再一步脚印就是邀请Databasitalia.it参与新中国联邦爆料革命101全球联动罗马大游行。这一步非常关键重要，能够真正让正义力量在那一天成功面对面联合起来。接下来101罗马游行两位总指挥接受10月17号Databaseitalia.it的邀请，到当地人揭露真相的游行现场，这是又一次与该媒体携手并肩战斗。
+
+在全世界任何一个国家的人民都有权利知道真相，有权利知道病毒是什么来源于哪里。经路德社启发、看到10底欧洲各地比如西班牙、德国、意大利各地，反对政府一味封城的此起彼伏的大规模游行，再经过前面几次与意媒并肩战斗的历程，游行总指挥认为：可以牵线搭桥，让意大利人民知道真相，要让闫博士走进意大利，这是正义力量的召唤，因此，才有了10月26日意媒邀请函。
+
+在这里感谢在闫博士采访这个过程中付出努力的战友们！真诚向您们致敬！这就是短短几个月所经历的过程。虽然每一步最开始想到都觉得艰难，真正去践行，也确实需要勇气、智慧、耐心、毅力….。但是每一次的过程都是一次锻造的过程，每一步都是“大我”和“小我”“无私”“无我”之间不断地锤炼，人就会慢慢地长大，这就是爆料革命、新中国联邦给我们的礼物。未来路还很长，希望这点小小的经历能够像投入湖水中的一个小石子，哪怕激起一点点小涟漪，能给战友们带来更大的鼓舞和信心，这就是我们衷心的愿望。全世界都在大觉醒，全球正义力量如洪流，势不可挡，“这是正义的需要”、这是幸运的使命！愿和战友们共同携手同行，不枉此生！
+
+**附：**
+
+一、媒体简介
+Databaseitalia.it（意大利数据库）网络媒体平台，致力于通过互联网，揭露虚假、被压制的真相、揭露用于欺骗的阴谋、犯罪和丑恶等。该媒体支持并多次在意大利本地人游行时，举旗支持川普总统。认同美国更好世界就会更好，而要使美国和世界变好，必须支持正在与全球邪恶势力战斗的川普总统。该媒体支持并参与Qanon,认同世界大觉醒，共同并肩，对抗Deepstate（影子政府）揭露深层邪恶，重拾信仰、反抗臭名昭著的“世界新秩序”，防止世界被奴役。该媒体2020年9月初开始持续报道了爆料革命、新中国联邦，和Miles Guo、郝海东宣读新中国联邦宣言、英雄的闫丽梦博士、班农等。该媒体了解爆料革命是一场用事实真相来唤醒世界，开展的全球范围内防止世界被奴役的运动。了解新中国联邦人对自由、民主、法治的诉求、新中国联邦人消灭中共独裁、与世界人民一起对抗邪恶的决心！该媒体于2020年10月1日，受邀罗马游行总指挥，到游行现场亲自见证和支持了爆料革命！亲自参与见证和支持首次新中国联邦人在意大利的游行，一同并肩向意大利人民解释病毒真相、中共邪恶 香港真相！该媒体于2020年10月17号，邀请了10月1日历史性游行的两位总指挥，到该媒体参与举办的抗议意大利政府的不作为现场，传播病毒真相和中共邪恶！中共不等于中国人！
+
+二、相关文章链接
+[媒体推](https://twitter.com/databaseitalia?s=11)
+[作者卢卡•拉贝拉博士推](https://twitter.com/theqitalianpat1?s=11)
+[1）2020年9月4号：关于爆料革命新中国联邦综合报道](https://twitter.com/theqitalianpat1/status/1301826304363372544?s=21)
+[2）2020年9月5日:报道蒙古族为使用母语学习的权利遭到中共镇压](https://twitter.com/theqitalianpat1/status/1302000809048145924?s=21)
+[3）9月8日:报道接受班农采访的爆料革命创始人Miles Guo,两份秘密文件](https://twitter.com/theqitalianpat1/status/1303291819447459841?s=21)
+[4）9月25日:报道了爆料革命新中国联邦即将集结罗马，举行历史意义的重大游行](https://twitter.com/theqitalianpat1/status/1309461127311564801?s=21)
+[5）9月30日:报道全球灭共罗马大游行](https://www.databaseitalia.it/manifestazione-a-roma-take-down-the-ccp-eretici-cinesi-di-tutto-il-mondo-unitevi/)
+[6）10月2日:意大利“异议组织”在101罗马新中国联邦人游行现场进行支持的视频：](https://twitter.com/theqitalianpat1/status/1311980161022210048?s=21)
+[7）10月6号:报道闫丽梦博士：《漫漫玫瑰之路、开创美好未来》川普称闫博士“铿锵玫瑰”](https://twitter.com/theqitalianpat1/status/1313544384684662787?s=21)
+[8）10月2日: 报道101爆料革命新中国联邦人罗马游行和中共间谍](https://www.databaseitalia.it/spiati-dal-pcc-anche-a-casa-nostra-cronache-di-una-grande-manifestazione/)
 
 0

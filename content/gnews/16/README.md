@@ -1,33 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】检察官鲍威尔：我们手握大杀器：川普总统将会取得巨大胜利！犯罪集团将会被刑事起诉！
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/558275/)
+## 11/14/2020 财经快讯: 首付一折重现中共楼市; 纳瓦罗自信川普连任并着手第二任期计划
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/558305/)
 
-作者：香草山写作组 正道主义联盟 校对/发稿：飞虹
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14083931/Picture70.png)图片来源：[https://propertyupdate.com.au/](https://propertyupdate.com.au/8-reasons-property-markets-crash/)
+1.中共国苏州楼市近期大幅下滑。9，10月至今，多个楼盘积极打折促销，甚至推出特价房，限时秒杀，首付1折等多重优惠。数据显示，10月苏州新房成交量骤降，共成交6732套，环比上月跌幅35.10%，同比2019年10月下降33.04%。
+[https://money.163.com/20/1114/08/FRCOFQNA002580S6.html?clickfrom=w\_money](https://money.163.com/20/1114/08/FRCOFQNA002580S6.html?clickfrom=w_money)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
+2.美国证监会周五发布公告，前富国银行（Wells Fargo）首席执行官兼董事长约翰·斯托普夫（John G. Stumpf）同意支付250万美元罚款，因其“故意夸大富国银行在商业上的成功而误导投资者”
+[https://www.zerohedge.com/markets/sec-slaps-former-wells-fargo-ceo-25-million-fine-over-performance-metric-scandal](https://www.zerohedge.com/markets/sec-slaps-former-wells-fargo-ceo-25-million-fine-over-performance-metric-scandal)
 
+3.现年49岁的特斯拉总裁马斯克周五发推表示：现阶段中共病毒测试十分不严谨。推文中说马斯克在一日之内进行过4次病毒测试，其中两次呈阳性，另外两次则现阴性。据悉，马斯克现不得不进行额外测试以确定其是否感染病毒。
+[https://www.washingtonexaminer.com/news/elon-musk-may-or-may-not-have-covid-19-after-split-rapid-test-results](https://www.washingtonexaminer.com/news/elon-musk-may-or-may-not-have-covid-19-after-split-rapid-test-results)
 
+4.白宫首席经济顾问皮得·纳瓦罗周五正式表示：唐纳德·川普总统显而易见的赢得了本次选举，并且白宫已着手计划第二个4年计划。纳瓦罗先生同时表示，相关部门已经对非法选票开展全面调查。
+[https://www.dailymail.co.uk/news/article-8946405/Top-Donald-Trump-advisor-Peter-Navarro-claims-president-clearly-won-election.html](https://www.dailymail.co.uk/news/article-8946405/Top-Donald-Trump-advisor-Peter-Navarro-claims-president-clearly-won-election.html)
 
-继昨天传媒放出重磅消息美国军方突袭了欧洲软件公司Scytl！并于法兰克福没收了他们在德国控制大选造假的服务器！有网友随即贴出服务器获取的川普总统大选真正结果统计数据！显示总统将赢得410票！以压倒性优势赢得大选！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14082817/%E5%9B%BE%E7%89%8750.png)
-推文说：“非常重磅！刚刚美国军方一团队突袭了位于德国法兰克福的Scytl服务器设施，以恢复‘极有说服力’的数据，该数据详细展示了选票转换的过程。所有服务器已被控制！ Scytl为美国三分之一的选举辖区提供选举系统。”
+5.美国联邦选举委员会主席泰瑞·泰纳（Trey Train）上周发文明确表示：此次美国大选在多个摇摆州确实存在大规模选举舞弊现象。同时他赞同川普总统的竞选诉讼，并表示几个州的选举官员采取的可疑行动会使选举不合法。
+[https://www.zerohedge.com/political/fec-chairman-says-he-believes-there-voter-fraud-key-states](https://www.zerohedge.com/political/fec-chairman-says-he-believes-there-voter-fraud-key-states)
 
-川普律师团队，著名律师和检察官鲍威尔今日接受福克斯新闻采访时指出 ：我要释放“大杀器”。
-
-我们要彻底揭露黑幕，一个都跑不掉！我迫不及待地要把所有证据拿出来！拜登家族及各大社交媒体、硅谷、等高科技巨头公司甚至某些州领导人及选举委员会都被证明参与其中！我们总统将是压倒性优势取得大选胜利！这是一场有组织的系统性舞弊行为！
-
-昨天开始，有关大杀器的消息铺天盖地而来！大律师林·伍德也在推文里好几次重点提醒：拜登家族将会万劫不复！重罪入狱！
-
-好消息来得太迅猛！天罗地网在行动！我看到了川普总统团队雷霆出击，打击敌人的证据像千军万马一样呼啸而来！美国终于迎来了彻底重生的希望！世界终于呈现了黎明的曙光！川普必将大赢！世界文明必将得到救赎！一起都已经开始！这是一场真正的美国革命！
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上8:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+By：【秘翻组·金融法律组】
 
 0
