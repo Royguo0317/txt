@@ -1,39 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】纳瓦罗：白宫一切正常，正按照川普总统连任的方式运作！世界需要力量型总统！
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/556515/)
+## 11月14日 华盛顿DC 新中国联邦支持川普总统游行活动宣传片（一）
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/556607/)
 
-**作者：纽约香草山写作组 正道主义联盟**
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
+视频制作/简评：500miles；组稿/整理：Julia Win
 
 
 
+简评：
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13200705/vv.png)
-纳瓦罗在周五接受《福克斯新闻》采访时说：“我们认为川普总统将继续赢得连任，因此我们会按照川普连任的方式推进各项工作”他说：“我们认为总统赢得了大选，目前我认为对拜登可能做什么事情，都只是猜测。”
+这短短的2分钟视频表达了很多内容：
 
-纳瓦罗说，在选举日，川普总统看起来已经获胜了。然后，他说，11月3日之后，拜登居然有足够的选票“赶上总统”。他说：“但如果你看看统计上发生了什么，显然是总统赢得了这次选举，并在选举日领先；然后，在选举日之后，不知何故，在这些关键战场州，拜登他们竟刚好获得了足够的票数，赶上总统。”
+我们新中国联邦人是和正义站在一起的！而川普总统说：在美国，我们不膜拜政府，我们膜拜上帝，这符合正义标准（有正确信仰的人，都不会太差）。
 
-白宫贸易顾问彼得·纳瓦罗（Peter Navarro）曾经在采访中预测，选民将在11月大选时选择川普而不是前副总统拜登，因为他们希望白宫能由一位能够应对全球威胁的“强硬的人”来领导。
+从病毒起源来说，爆料革命很早说过，是CCP制造的病毒；蓬佩奥先生在尼克松图书馆演讲时，也说CCP欺骗了世界。闫丽梦博士第一次出场，是最震撼和经典的，她强调了：“这与政治无关，是与人类的生存有关！”这也印证了，爆料革命不参与美国政治，而是为了揭示真相，消灭CCP这个最大的恶魔！
 
-纳瓦罗之前在接受福克斯新闻节目中曾经表示：认为美中关系是川普秋季将在选民中比拜登占更多优势的一个领域。
+川普总统夫妇感染了病毒，战友们为他们祈福，愿他们尽快康复。这体现了新中国联邦人的善良、友好。
 
-当被主持人问到“你对即将到来的共和党大会有何期待，以及为何你认为中国会更希望拜登入主白宫”时，纳瓦罗回答：“整场选举，无论是在中国还是在民主党大会，都被看做是一场好人与强硬的人之间的较量。我们喜欢这种对决，因为我认为美国人民总会选择让强硬的人而不是好人入主白宫，因为他们知道世界是一个危险的地方。”
+视频中也表现出了拜登硬盘事件。
 
-发稿：悟空
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，纽约时间周日至周四晚上9:00，美国志愿者在纽约香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
+我们新中国联邦人支持一切正义的力量！谁与我们的敌人-CCP勾结，我们就同他干到底！
 
 
 
+编辑【喜马拉雅战鹰团】
 
+[**点击关注大卫作战室Parler**](https://parler.com/profile/David008/posts)
+
+**[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)**
+
+**[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/user/5ee680a45bd6f123dd104807)**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/4b4b8dee-2539-4e6f-8402-d252f8bc7c26.jpg?asset_id=5e203867-2df9-4e0f-bf60-a58bfdf4444a&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=2560)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/4b4b8dee-2539-4e6f-8402-d252f8bc7c26.jpg?asset_id=5e203867-2df9-4e0f-bf60-a58bfdf4444a&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=1024)
 
 0

@@ -1,47 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 阿利托大法官警告：美国言论与宗教自由面临降级危险
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/556296/)
+## 亨特·拜登违反川普总统关于禁止美国投资中共军方代理人的禁止令
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/556571/)
 
-蒙特利尔战友团 laotou
+翻译：Bruce
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13180531/%E6%B3%95%E5%AE%98.jpg)图片来自 India Tour Tips
-11月13日各大媒体、网站在第一时间报道了美国最高法院大法官萨缪尔·阿利托（Samuel Alito）在联邦党人学会上发表的讲话，警告（在美国）言论自由、宗教自由正面临成为第二类权利的危险。
+校对：康州农场-V
 
-布雷特巴特新闻（Breitbart News）报道：
+审核：康州农场-Truemanman
 
-阿利托大法官说，“在某些方面，宗教自由正迅速成为一种不受欢迎的权利”，并被一些人视为“不是一种珍视的自由，它往往只是偏见的借口，是不能容忍的，即使没有证据表明有人受到伤害。”
 
-大法官说，“CCP病毒增强了这个病毒袭击之前已经存在的令人不安的趋势。涉及CCP病毒限制的案件已经指出了个人权利评估的新兴趋势，这在宗教自由方面尤其明显。我很难说，但在某些方面，宗教自由正迅速成为不受欢迎的权利。”
 
-福克斯的文章称：
+川普总统已经采取行动，禁止美国资本投资中共军方代理人。有一个人，可能会违反新规，就是乔·拜登的儿子亨特·拜登(Hunter Biden)。
 
-大法官在演讲中提到了美国法学院和“更广泛的学术界”的现状，他们极度缺乏对对立观点的包容。
+川普总统通过行政命令宣布，从2021年1月11日开始，对 “任何中共军方公司 “的投资将属于违法。
 
-许多法学院的毕业生声称，他们因为背离“法学院正统”的观点受到“骚扰”和“报复”。
+根据1999财政年度《国防授权法》第1237条编制的资格实体清单(公共法105-261)
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13204425/FDD8365F-C9E6-4E38-970C-AA8942EDA86A-800x1035-1.png)
+AVIC中国航空工业集团有限公司
 
-我们面临的问题是，我们的社会是否足够包容，能够容忍那些不受欢迎的宗教信仰的人……基督徒也应该得到与其他宗教少数群体同样的保护。
+CASC中国航天科技集团有限公司
 
-阿利托大法官警告，宗教自由有可能成为二等权利。
+CASIC中国航天科工集团有限公司
 
-在CCP病毒大流行之前，人们对“不时髦的观点”有“敌意”……校园和一些公司的言论自由现在处于危险之中。
+CETGC中国电子科技集团有限公司
 
-“你不能说婚姻是一个男人和一个女人的结合”，阿利托大法官说，“直到最近，绝大多数美国人还是这么想的，现在这被认为是偏见。”
+CSGC 中国兵器装备集团有限公司(又名中国南方工业集团公司)
 
-法官致力于法治是义不容辞的，他们不能奉行折中原则，不能将任何背离他们义务的行为合理化。
+CSIC 中国船舶重工集团公司
 
-阿利托大法官最后说，捍卫宪法和自由是摆在所有美国人面前的工作。
+CSSC中国船舶集团有限公司
 
-70岁的阿利托是前总统布什（George W. Bush）的提名人，2006年得到参议院的确认。
+Norinco Group 中国兵器工业集团公司
 
-从阿利托大法官的讲话中似乎读出了法律高层人士对CCP在美国渗透的警觉，表现在对不同意见的舆论管控、CCP病毒话题的禁言、个人权威对防止CCP病毒扩散的限制等，也隐晦地提出了法律界面临“超限战”的境况。
+Hikvision 杭州海康威视数字技术股份有限公司
 
-参考链接：
+Huawei 华为技术有限公司
 
-[https://www.breitbart.com/clips/2020/11/13/alito-religious-liberty-is-in-danger-of-becoming-a-second-class-right/](https://www.breitbart.com/clips/2020/11/13/alito-religious-liberty-is-in-danger-of-becoming-a-second-class-right/)
+Inspur Group 浪潮集团
 
-[https://www.foxnews.com/politics/justice-alito-warns-of-dangers-to-free-speech-religious-liberty-in-federalist-society-address](https://www.foxnews.com/politics/justice-alito-warns-of-dangers-to-free-speech-religious-liberty-in-federalist-society-address)
+Aero Engine Corporation of China中国航空发动机集团有限公司
+
+CRCC 中国铁建股份有限公司
+
+CRRC Corp. 中国中车股份有限公司
+
+Panda Electronics Group 熊猫电子集团有限公司
+
+Dawning Information Industry Co (Sugon) 曙光信息产业有限公司
+
+China Mobile Communications Group 中国移动通信集团公司
+
+China General Nuclear Power Corp. 中国广核集团
+
+China National Nuclear Corp. 中国核工业集团公司
+
+China Telecommunications Corp. 中国电信股份有限公司
+
+中国广核集团（China General Nuclear Power Corp）就是这样一家公司，美国国防部最近将其列为中国军方数十年的合作伙伴。
+
+自2013年成立以来，亨特·拜登担任私募股权公司渤海华美（BHR Partners）的董事，而这家公司是中广核首次公开募股的1000万美元基石投资者。中广核在2014年的首次公开募资（IPO）是当年的第二大首次公募（IPO），估值超过30亿美元。
+
+这家与拜登有关联的公司仍然将中国核工业集团（GCN）列为其投资组合的一部分。
+
+更重要的是，中国核工业集团（CGN）在全公司范围内制定了一个窃取和转移美国核机密的计划，被司法部（DOJ）认定是 “我们的国家安全构成重大损害”。这导致司法部指控中国核工业集团（CGN）的顾问Allen Ho（注#2）在近二十年的时间里 “协助中国核工业集团CGN获取美国本土的核工程师来协助设计和制造核反应堆的某些部件”。
+
+BHR Partners是由亨特·拜登和奥巴马时代的国务卿约翰·克里的继子于2009年成立的投资基金Rosemont Seneca Partners与国有的中国银行的合资企业。这支价值数十亿美元的基金在亨特与其时任副总统的父亲一同前往中国后不到两周的时间里，就周所周知地诞生了。
+
+原文链接：*[https://thenationalpulse.com/breaking/biden-breaches-trump-pla-ban/](https://thenationalpulse.com/breaking/biden-breaches-trump-pla-ban/)*
 
 0

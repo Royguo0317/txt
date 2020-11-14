@@ -1,31 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共表态后 俄克里姆林宫马上官宣不会向乔∙拜登祝贺
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/556255/)
+## 快讯：川普总统推文确认赢得宾州！关注更多川普总统推文更新&#8230;
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/556510/)
 
-多伦多加喜农场 熊妈妈
+编译：玫瑰天空
 
-校对 上传
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13174451/%E6%97%97.jpg)图片来自 The Atlantic
-11月13日，中共领导层祝贺乔∙拜登和贺锦丽获胜美国2020总统大选之后，俄罗斯克里姆林宫马上官方宣布，克里姆林宫承诺只有在美国总统大选官方结果公布后才会祝贺当选的美国领导人。
+2020年11月14日川普总统发推确认赢得了宾夕法尼亚州！
 
-克里姆林宫强调不会与美国总统候选人乔∙拜登代表有任何接触。
+他说：“根据我们伟大的宪法，我们赢得了宾夕法尼亚州！”
 
-俄罗斯总统新闻秘书德米特里·佩斯科夫在被问及克里姆林宫在美国大选后是否与乔∙拜登的团队有联系时表示，“没有，完全没有。”
 
-佩斯科夫说，“在美国大选正式选举结果公布后，普京将向美国新总统发送贺电。”
 
-佩斯科夫补充说，”如果我们理解正确的话，截至目前，当选总统尚未公布。”
 
-11月13日，就在克里姆林宫发表声明之前，中共“崴脚部”发言人汪文斌在北京举行的新闻发布会上说，“我们向拜登先生和哈里斯女士表示祝贺，同时我们理解美国大选的结果会按照美国的法律和程序作出确定。” 土耳其总统雷杰普·塔伊普·埃尔多安（Recep Tayyip Erdogan）与中共同步，也向乔∙拜登表示了祝贺。
 
-克里姆林宫确信，选举的计票工作尚未完成，美国总统大选的获胜者尚未正式宣布。
+> 700,000 ballots were not allowed to be viewed in Philadelphia and Pittsburgh which means, based on our great Constitution, we win the State of Pennsylvania!
+> — Donald J. Trump (@realDonaldTrump) [November 14, 2020](https://twitter.com/realDonaldTrump/status/1327407964404260870?ref_src=twsrc%5Etfw)
 
-美国大选还在进行时，胜负未分，但是中共控制的大部分美国主流媒体已经宣布乔∙拜登胜选，紧接着全世界的国家元首和政党纷纷向所谓的乔∙拜登和贺锦丽胜选表示祝贺，在美国总统大选后的第十天，中共终于跳出来承认乔∙拜登获胜，土耳其也紧随其后表示了祝贺。
 
-俄罗斯从始至终是在世界上坚决不提前与乔∙拜登团队接触以及向其表示祝贺的国家之一，还有墨西哥。
 
-参考链接： https://www.rbc.ru/politics/13/11/2020/5faede239a794743d9dd865b
+“佐治亚州国务卿，所谓的共和党（RINO），不会让检查选票的人看到欺诈的签名。为什么？没有这一点，整个过程将非常不公平，几乎毫无意义。每个人都知道我们赢得了国家。”
 
-1+
+
+
+> Georgia Secretary of State, a so-called Republican (RINO), won’t let the people checking the ballots see the signatures for fraud. Why? Without this the whole process is very unfair and close to meaningless. Everyone knows that we won the state. Where is [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw)?
+> — Donald J. Trump (@realDonaldTrump) [November 14, 2020](https://twitter.com/realDonaldTrump/status/1327413534901350400?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+> [pic.twitter.com/m2yw7gTU5q](https://t.co/m2yw7gTU5q)
+> — Donald J. Trump (@realDonaldTrump) [November 14, 2020](https://twitter.com/realDonaldTrump/status/1327404099827093504?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> [pic.twitter.com/62pKj4IMnu](https://t.co/62pKj4IMnu)
+> — Donald J. Trump (@realDonaldTrump) [November 14, 2020](https://twitter.com/realDonaldTrump/status/1327403143626432514?ref_src=twsrc%5Etfw)
+
+
+
+“胜利者：克拉克县选举官员在8个投票信封上接受了我的签名”
+
+
+
+> “VICTOR JOECKS: Clark County election officials accepted my signature — on 8 ballot envelopes” [https://t.co/T6vTcb4k6k](https://t.co/T6vTcb4k6k)
+> — Donald J. Trump (@realDonaldTrump) [November 13, 2020](https://twitter.com/realDonaldTrump/status/1327390548844556288?ref_src=twsrc%5Etfw)
+
+
+
+
+
+0

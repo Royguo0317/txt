@@ -1,28 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Breaking News&#8211;REVEALED: Sworn Evidence Of Pervasive Voter Fraud | Rudy Giuliani （video&#8211;November 14, 2020, ）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/556480/)
+## 纳瓦罗表示，白宫的运作是在“将有第二个川普任期”的假设下进行的
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/556650/)
 
-```
-Editor: Rose Sky
-```
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13211428/200407004919-peter-navarro-march-27-01-full-169.jpg)
+翻译：康州农场-挺郭大刺猬、V
 
+校对：康州农场-V、黎明的光芒
 
-Present the most direct evidence to Americans in pursuit of the truth!
+审核：康州农场-Truemanman
 
-Biden was declared “winner” of the 2020 election. (Note: The US media has \*zero\* legal authority).
+白宫贸易顾问彼得·纳瓦罗（Peter Navarro）周五声称，尽管乔·拜登（Joe Biden）在总统大选中宣称获胜，但官员们的运作是在“将有第二个川普任期”的假设下进行的。
 
-Rudy Giuliani has enough evidence to lock Trump victory.
+纳瓦罗（Navarro）在接受福克斯商业（Fox Business）采访时说，“我们现在推进的工作是假设白宫将有第二个川普任期的情况下进行的”。 此前一天主流网络认为拜登赢得了亚利桑那。福克斯新闻已经将民主党视为该州的赢家。
 
-👇👇👇
+他说：“我认为目前非常重要的是明确我们在这里寻求的是可验证的选票，可认证的选票，以及调查那些越来越多的有目击者书面宣誓的欺诈指控，越早越好”。
 
+纳瓦罗继续将选举描述为“完美的欺骗”之一。
 
+纳瓦罗的言论使他成为川普盟友中的最新成员，这些盟友公开表示，他们期待川普总统在法律斗争后成为大选的胜利者–这一观点与现实严重不符。。
 
+也有报道称，川普的顾问们其实并不真正看好前景，甚至总统也意识到自己的任期将在1月结束。
 
+拜登赢得了宾夕法尼亚州、亚利桑那州、密歇根州和威斯康星州等关键战场，在全国范围内领先川普500多万票。
 
-我说西方，必须拔出中共在你们内部，植入的各个间谍系统。“蓝金黄” 系统，间谍媒体系统，各个网站、各个媒体。——郭文贵先生2018年10月04日
+然而这一切都没有阻止纳瓦罗等顾问认为川普将继续留任4年。
 
-I said that the West must pull out the various spy systems that the CCP has planted within you. “BGY” system, spy media system, various websites, various media– By Miles Guo，October 04, 2018
+国务卿迈克-蓬佩奥（Mike Pompeo）在本周早些时候的一次咄咄逼人的新闻发布会上对记者说，”将顺利过渡到第二个川普政府”。后来他在接受福克斯新闻采访时被问到是否是认真的，他不愿意说。
+
+川普拒绝向拜登让步，并在没有证据的情况下声称选举中存在广泛的舞弊。他最近宣扬了一个关于投票软件公司将选票从他手中转到拜登手中的理论，但却被一群从事选举安全工作的官员和利益相关者驳斥，他们坚称这次选举是 “美国历史上最安全的”。
+
+“没有证据表明任何投票系统删除或丢失选票、改变选票、或以任何方式受到损害，”由一个监督选举系统的政府协调委员会发布的声明，并由国土安全部于周四分发。
+
+纳瓦罗是几天来除了白宫新闻发言人凯莉-麦克纳尼（Kayleigh McEnany）之外，第一位出现在电视上的白宫官员，她以川普竞选顾问的身份参加采访，为总统在法庭上挑战选举结果进行辩护。
+
+在周四接受 “福克斯和朋友 “采访时，麦克纳尼在回答有关不允许拜登查阅情报报告的决定的问题时，暗示总统将连任。
+
+“关于预期的政府过渡在遵守所有的法律，尽管我们预计将继续作为川普政府，”麦克纳尼说。”我们将看看我们的诉讼如何进行。”
+
+麦肯尼说：“尽管预期的过渡政府还是川普政府，但所有有关过渡的法律都将得到遵守。” “我们将看看诉讼如何进行。”
+
+与此同时，据说因考虑到川普任期结束后拜登上任，所以政府官员都在忙着找工作。越来越多的共和党人也承认拜登是当选总统，要求他获得情报，不过像参议员米奇-麦康奈尔（Mitch McConnell）这样的重量级共和党高层在选举官司中公开支持川普。
+
+原文链接：***[https://thehill.com/homenews/administration/525859-despite-biden-win-navarro-says-white-house-operating-under-assumption](https://thehill.com/homenews/administration/525859-despite-biden-win-navarro-says-white-house-operating-under-assumption)***
 
 0

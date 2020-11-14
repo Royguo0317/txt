@@ -1,73 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 选票欺诈：多方证据揭示Dominion与Smartmatic是计算还是决定选举结果
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/556533/)
+## 留下真实的历史是我们的使命（之一）【战友们，快拿起笔！】
+` JP007` [轉載自GNews](https://gnews.org/zh-hans/557018/)
 
-编译：玫瑰天空
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13230342/%E7%95%99%E4%B8%8B%E7%9C%9F%E5%AE%9E%E7%9A%84%E5%8E%86%E5%8F%B2%E6%98%AF%E6%88%91%E4%BB%AC%E7%9A%84%E4%BD%BF%E5%91%BD.png)
+作者：日本京都富士会 待命(文晓)
 
-1）朱利安尼说，Dominion与Smartmatic有联系，后者是委内瑞拉选举（包括雨果•查韦斯的“选举”）的主要技术供应商。
+在郭文贵先生的发起和推动下，新中国联邦的G系列正在以惊人的速度赢得越来越多的公众认可。其中，GTV和G-news属于G系列中的宣传类项目。
 
-2）朱利安尼说，自治领的说客是佐治亚州州长布莱恩·肯普的前参谋长。
+在世界各地战友们夜以继日的努力下，尽管墙国的网络高墙遮云蔽日，GTV的视频、图片和文字已经时常出现在微信这个墙国人民必备的网络交流工具上，在推特“竭尽全力的配合”下，在战友们的不懈努力下，盖特取代推特已指日可待。G-news作为G系列的重要组成部分，在伟大的爆料革命进程中也正在发挥着举足轻重的作用。
 
-3）根据华盛顿考官的说法，Smartmatic的董事长是乔治·索罗斯（George Soros）投资基金前副主席马克·马洛赫·布朗勋爵（Lord Mark Malloch Brown）。
-![眼睛](https://abs-0.twimg.com/emoji/v2/svg/1f440.svg)
-越来越多的证据浮出水面，只需审慎观察和探究：
+媒体宣传工具在不同的历史时期，扮演着教育民众、愚弄民众，统治民众、唤起民众的不同角色。在互联网时代的当下，宣传媒体的功能更显得尤为重要。特别是本次美国总统大选，更是让全世界所有有良知的人们看清了媒体一旦被操纵，一旦失去了媒体应有的客观公正，是件多麽可怕的事情！
 
+以唯真不破为原则的新中国联邦的GTV和G-news这两大宣传媒体，诞生于被CCP的蓝金黄腌制得貌似正义凛然、实则满腹烂泥的著名媒体整体沦陷期，上天注定了它要肩负起传播真相、记录真相，为子孙后代留下最真实的历史记载之使命。三年的爆料革命全过程，已经充分证实了只有郭文贵先生发起和推动的GTV和G-news才有能力承担起这一重任。
 
+那么，要想不辱这个重大的历史使命，接下来我们该做什么呢？郭文贵先生及时的给我们指出了方向。他说过“G-news要即时的、真实的、绝对准确的进行传播关键州、摇摆州的即时动态”。郭文贵先生还在11月9日的视频中，反复强调各农场必须重视人才、挖掘人才，不得以自己的喜好以及关系远近决定人才的启用，要让人才得到充分的发挥。
 
-> According to the Washington Examiner, Smartmatic’s chairman is Lord Mark Malloch Brown, a former vice-chairman of George Soros’ Investment Funds. [https://t.co/tZ4PbvCm2A](https://t.co/tZ4PbvCm2A)
-> — The Election Wizard🧙‍♂️ (@Wizard\_Predicts) [November 13, 2020](https://twitter.com/Wizard_Predicts/status/1327288694047387648?ref_src=twsrc%5Etfw)
+为此，今日斗胆撰文，呼吁战友们拿起笔，我们一起学习共同提高，为GTV和G-news尽一份力。也许你会发现，写文章并没有那么难。也许你会发现，写文章你本来就可以。也许你会发现，你就是新中国联邦急需的人才。
 
-
-
-2020年上演的这一幕美国大选中的选票谜团似曾相识👇👇👇
-
-早在2016年，普林斯顿大学教授就确切地演示了如何入侵Dominion机器。“我想出了一种如何制作稍微不同的计算机程序的方法，该程序可以将某些选票从一个候选人转移到另一个候选人。” 等等，这不是我们所看到的吗？看：
-![指向下方的三角形](https://abs-0.twimg.com/emoji/v2/svg/1f53d.svg)
-
-
-> DOMINION.🚨
-> 
-> Back in 2016 a Princeton prof demonstrated exactly \*how\* to hack a Dominion machine.
-> 
-> "I figured out how to make a slightly different computer program that… shifts some votes around from one candidate to another."
-> 
-> Wait, isn't that what we've been seeing? WATCH:🔽 [pic.twitter.com/upnP7a69M0](https://t.co/upnP7a69M0)
-> — Kyle Becker (@kylenabecker) [November 12, 2020](https://twitter.com/kylenabecker/status/1326751429915238401?ref_src=twsrc%5Etfw)
-
-
-
-Dominion Security System的安全漏洞仅被称为保守派。好吧，这是\* DOMINION ITSELF \*，它在其用户手册中承认“中”和“高”风险。（H T[@JPMediaBoss](https://twitter.com/JPMediaBoss)）其建议的补救措施：“选举无效”。
-![指向下方的红色三角形](https://abs-0.twimg.com/emoji/v2/svg/1f53b.svg)
-
-
-> Dominion Security System's security vulnerabilities have been called nothing more than conservative prattle.
-> 
-> Well, here is \*DOMINION ITSELF\* admitting to "Medium" & "High" Risks in its user's manual. (H/T [@JPMediaBoss](https://twitter.com/JPMediaBoss?ref_src=twsrc%5Etfw))
-> 
-> Its recommended remedy: "Invalidation of the election."🔻 [pic.twitter.com/ydkQP0Tmmk](https://t.co/ydkQP0Tmmk)
-> — Kyle Becker (@kylenabecker) [November 13, 2020](https://twitter.com/kylenabecker/status/1327368214238597123?ref_src=twsrc%5Etfw)
-
-
-
-快速查看一下，看来Dominion Voting Systems和臭名昭著的Tides Foundation在加拿大的分支机构都位于同一多伦多办公大楼内。如果您不熟悉Tides，那么曾经有一个隶属关系的团体可能会响起：ACORN。
-
-
-
-> Dominion.🗳️
-> 
-> A quick check & it appears Dominion Voting Systems and a Canadian branch of the notorious Tides Foundation are based in the same Toronto office complex.
-> 
-> If you aren't familiar with Tides, maybe a once-affiliated group rings a bell: ACORN.🤔🔽[https://t.co/MI9pfsJvL9](https://t.co/MI9pfsJvL9) [pic.twitter.com/fAVaH00SEr](https://t.co/fAVaH00SEr)
-> — Kyle Becker (@kylenabecker) [November 13, 2020](https://twitter.com/kylenabecker/status/1327359975505670146?ref_src=twsrc%5Etfw)
-
-
-
-邪恶盛行的唯一条件就是善良者袖手旁观的沉默–埃德蒙.伯克
-
-通过近期层层递进不断爆出的选举欺诈证据美国民众也许已经逐渐意识到了这次美国大选的黑幕。大选还未尘埃落定，但是民众心中正在浮出面纱后的真相。追求真相是人类与生俱来的本性。尘埃落定之时，所有人最感兴趣和需要探寻的问题也许是：谁在幕后操纵了美国大选？他们的目的是什么？
-
-真相：光总是战胜黑暗。真理总是战胜谎言。“但是行真理的人露面了，他的事迹可以彰显出来，是在上帝里行的。” -约翰福音3:21
+爆料革命这部历史巨作里，谁不想留下自己的演绎、谁不想多几句精彩的台词，亲爱的战友们，快拿起你的笔！
 
 0

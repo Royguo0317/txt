@@ -1,23 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 快讯：老魔头福奇称拜登为“当选总统”
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/556491/)
+## 纳瓦罗称白宫积极准备“第二任川普任期”
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/556657/)
 
-多伦多加喜农场 老熊
+多伦多加喜农场 维京商人
 
 校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13194201/%E6%8B%9C%E7%99%BB-2.jpg)图片来自 The Hill
-暗势力的典型代表，老魔头福奇的獠牙终于显露，11月12日在华盛顿国家大教堂一群乌合之众的讲话中称拜登为“当选总统”。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13211639/%E7%BA%B3.jpg)图片来自 Forbes
+白宫贸易顾问彼得·纳瓦罗（Peter Navarro）在11月13日本周五接受福克斯商业（Fox Business）采访时说，尽管众多主流媒体宣布乔·拜登（Joe Biden）在总统大选中获胜，但白宫官员们的运作是在“将有第二个川普任期”的假设下进行着。在此之前，福克斯新闻网、CNN等主流媒体已经将诸多摇摆州的选举人团票划到拜登账下。
 
-在《左轮手枪》（revolver）网站，看到一句有关福奇的报道，点击后发现是极左媒体CNBC的文章，正想关闭，一段刺眼的描述进入视线“……总统当选人拜登……”（a member of President-Elect Joe Biden’s coronavirus taskforce……）。
+纳瓦罗说，“在人们的脑袋爆炸之前，我们每一个人需要明确，公平选举的基础是可验证的和可证明的选票。我们应该积极关注越来越多的针对选票欺诈的调查，这些调查都是有当事人签署的书面证言支持的。”纳瓦罗将此次选举描述为“完美的欺骗”之一。
 
-福奇不是在最后才捅刀子，而是一直与川普总统作对。疫情期间，他身为川普总统专业顾问，自始至终在竭尽全力地抵制使用羟氯喹，误导川普总统应对中共病毒大流行的政府决策，对于CCP病毒在美国的蔓延负有不可推卸的责任，他还高度赞赏过WHO对CCP病毒的应对措施等。
+很显然，纳瓦罗并不是现任政府核心团队中唯一持有这一想法的。美国现任国务卿迈克·蓬培奥（Mike Pompeo）在本周早些时候的一次国务院新闻发布会上对记者说，“本届政府将顺利过渡到第二届川普政府。”
 
-福奇深知，随着CCP恶行不断被揭露，自己与中共勾兑、沆瀣一气的事实将被揭穿，遭天谴、遭报应日子正在临近，还拼死一搏，与拜登站在一边，并为其背书，企图以此躲避正义的惩罚，真是痴心妄想！
+白宫新闻秘书凯利·麦卡纳尼（Kayleigh McEnany）在回答记者询问一个关于不准许拜登访问情报报告的问题时，也暗示川普总统将会顺利连任。麦卡纳尼说，“在有关此次选举的法律诉讼结果明确后，有关政府过渡的所有法律都会得到遵守，我们将顺利过渡到第二个川普政府任期。”
 
-新闻链接：
+迄今为止，川普总统明确指出所有的合法选票都应该被正确计入，所有不合法的选票都应该被拒绝。在众多存在争议的摇摆州，众多相关法律诉讼正在进行中。无论是传统红州亚利桑那和乔治亚，还是铁锈摇摆州密歇根、威斯康辛、宾夕法尼亚，甚至是内华达，越来越多的共和党人、中间派甚至是民主党内的有识之士都已经意识到，选举欺诈行为无关政党，它关乎宪法给予公民的选举权是否安全有保证。
 
-[https://www.cnbc.com/2020/11/12/fauci-says-us-has-independent-spirit-but-now-is-the-time-to-do-what-youre-told.html](https://www.cnbc.com/2020/11/12/fauci-says-us-has-independent-spirit-but-now-is-the-time-to-do-what-youre-told.html)
+我们有理由相信，美国的政治生态具有自我纠正的能力。在经历了这次选举舞弊事件后，随着川普总统的顺利连任，美国会很快恢复到抗击中共病毒疫情，提升经济的正确轨道上，并继续成为人类自由文明的灯塔。
+
+[https://thehill.com/homenews/administration/525859-despite-biden-win-navarro-says-white-house-operating-under-assumption](https://thehill.com/homenews/administration/525859-despite-biden-win-navarro-says-white-house-operating-under-assumption)
 
 0

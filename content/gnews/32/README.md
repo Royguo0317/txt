@@ -1,81 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## War Room 499 总结
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/556444/)
+## 选票欺诈：多方证据揭示Dominion与Smartmatic是计算还是决定选举结果
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/556533/)
 
-- 编辑：Ranting
-- 作者：Jenny Ball
+编译：玫瑰天空
 
+1）朱利安尼说，Dominion与Smartmatic有联系，后者是委内瑞拉选举（包括雨果•查韦斯的“选举”）的主要技术供应商。
 
-• 作战室可为您提供核心信息。 不要相信假新闻。
+2）朱利安尼说，自治领的说客是佐治亚州州长布莱恩·肯普的前参谋长。
 
-• 今天中午将在内华达举行听证会。
-
-**纳瓦罗先生**：现在在调查签署誓言的目击者指控越来越多的选举欺诈，我对这次选举的看法是，从某种意义上说这是一个完美无缺的欺骗。但是川普第二任期将没有问题。
-
-**参议员卢比奥**：总统所做的任何事情都没有违法或不在他的合法权利之内。
-
-如果候选人或任何人有欺诈行为或做错了事的证据，就有权诉诸法律并出示该证据。
-
-12月14日，选举学院将选举总统，这是我们的法律。这就是系统运作的方式，人们要对系统运作有信心，我们的共和国才可以继续前进。
-
-因此，请相信这个系统运作的过程，选举将在接下来的3-4周内确定。
-
-**班农先生**：我们有目击者，但主流媒体不理会，他们很紧张。
-
-莱特福德市长想让芝加哥成为新的武汉，她是要取消感恩节。
-
-亚利桑那州共和党内部内部发生内战； 马里科帕县主席一夜之间卸任。 AZ没有理由是蓝色的。 如果我们输掉了亚利桑那，那是我们自己没做好。 谁最努力，谁就会赢。我们发誓必须努力取得最后的胜利。 之所以我知道我们赢了，是看到他们开始变得局促不安，听他们说什么你就知道了。 班农先生概述了川普让美国再次伟大运动的必要后续步骤：
-
-1. 结束总统选举的胜利；
-2. 揭露并摧毁试图窃取本届选举的全球主义精英；
-3. 抓住这场火焰，支持川普的大觉醒。
-
-
-伟大的觉醒烈火熊熊燃烧，从南部的佛罗里达到拉美裔，再到反共产主义，从亚利桑那州的96英里望不见头的挺川普的车队，到54,000人的集会。
-
-**JF广播节目的约翰**：白宫必须要求对乔治亚州进行选票合法审核，采取如下办法确保结果：
-
-1. 我们需要审计员和观察员1-1 比例。
-2. 我们需要真正的审核，而不仅仅是重新数票。审核签名否？信封匹配吗？是否有重复的选票？
-
-
-乔治亚州州务卿拉芬斯珀格在进行伪造造假的虚假审核。他们在川普背后捅刀子，各种投票欺诈实在可悲。例如阻止共和党人监督选票，他们说没什么可看的。 如果没什么可看的，为什么不让我们看看？ 我们要求合法的程序。
-
-这场选举闹剧简直荒唐。
-
-**朱利安尼：**在宾夕法尼亚州和密歇根州，法院提起了诉讼，下周有望裁决。 我们有足够的材料可供法院裁定胜诉。
-
-还提到非法晚到的邮递投票，没有有效签名或验证就计入选票。 在密歇根州，情况更糟，他们在午夜用卡车送来数十万张选票。 在底特律，有一位民主党女监督员是培训过有着40年投票作弊的经验。 这些案件都将在下周审理。
-
-格鲁吉亚是个重新计票的问题。 匹兹堡一样有各种各样的舞弊情况，他们允许在前一个半小时都不工作，被法官在费城的决定吓倒。 当共和党人被多次拒绝监票后，他们提起申诉，但影响太小没引起反响，他们的代表团举行了两次新闻发布会，希望发出抗议的声音，但没有人去发布这些消息，他那天晚上上诉到法庭，第二天作为法庭和解，对他们伤害不小。
-
-多米尼投票机存在很多问题，实际上这不是加拿大公司，该软件旨在帮助窃取选举，与社会主义委内瑞拉和ANTIFA有联系。
-
-我们将证明在底特律的“选举之夜”凌晨4点的100,000个选票全是投拜登的，没有投选票上的其他候选人。那些选票都必须取消资格。
-
-**当前危险委员会主席布莱恩·肯尼迪**：
-
-亚利桑那负责点票的女士在2016年将川普总统称为“纳粹”； 有成千上万的邮寄选票，但我们没有适当的系统来验证那些选票的签名是否合规，扫描这些选票使用的扫描器的程序相对较新，又是中共组装，这本身就容易被骇客。
-
-- 选票通过机器运行，这些选票可能会从投票川普转移到拜登的票。
-- 我们还没有建立一个完全安全的系统，所以，这不是选民的欺诈，这是工业化的大型投票操控。
-- 这是选举欺诈，而不是选民欺诈。 他们操纵整个系统来窃取选票，该系统是为拜登配置的，是一整套系统来反川普总统。
-
-
-如果普通美国人听到这些，他们就会考虑这公平吗？绝不公平。这是选举欺诈，而不是选民欺诈。他们调整整个系统以窃取选票，无论是内华达州，亚利桑那州，宾夕法尼亚州还是乔治亚州，都会是一团糟。别想着神圣的一人一票制，这是一个政党在欺骗！
-
-如果一个政党决定要操纵系统，而另一方则完全照章办事，就像现在的共和党，而民主党确实希望加载欺骗系统，它很轻松就能改变这些地方的投票结果！现在没有任何机制可以解决这些问题。
-
-就说佐治亚州或亚利桑那州，是的，他们可能是共和党州长，但共和党州长有民主党的州务卿，即使是共和党州务卿，他们可能不是喜欢川普的人，而且自己可能并不十分关心系统会出有问题，听起来都匪夷所思。
-
-**拉希姆**：共和党人的林肯项目，他们对全面攻击指责的人们，他们叫喊的声音比我们响，他们的关系比我们广，他们能花的钱比我们多，他们的人脉比我们深。他们和民主党人站着一起反对川普，他们觉得他们已经取得了胜利。这些共和党人，如果不是川普总统力挺他们，他们能不能当选都难说。
-
-共和党已经分裂成建制派和川普运动，川普普竞选活动，他们做着截然不同的事情。林伍德是位出色的律师，他在Twitter上发布了中共操纵选举的推文，这个曝光影响巨大。还有悉尼.鲍威尔在谈论亚利桑那州不同地区的450,000选票问题。
-
-明天中午在自由大厦将举行支持川普总统的大规模游行集会。 朱利安尼想告诉人们，这是一次严重的选票欺诈，千万不要被主流媒体所误导，他们说选举没有问题。新中国联邦的许多中国人也将参加集会支持川普总统，揭露中共罪行。
+3）根据华盛顿考官的说法，Smartmatic的董事长是乔治·索罗斯（George Soros）投资基金前副主席马克·马洛赫·布朗勋爵（Lord Mark Malloch Brown）。
+![眼睛](https://abs-0.twimg.com/emoji/v2/svg/1f440.svg)
+越来越多的证据浮出水面，只需审慎观察和探究：
 
 
 
-1+
+> According to the Washington Examiner, Smartmatic’s chairman is Lord Mark Malloch Brown, a former vice-chairman of George Soros’ Investment Funds. [https://t.co/tZ4PbvCm2A](https://t.co/tZ4PbvCm2A)
+> — The Election Wizard🧙‍♂️ (@Wizard\_Predicts) [November 13, 2020](https://twitter.com/Wizard_Predicts/status/1327288694047387648?ref_src=twsrc%5Etfw)
+
+
+
+2020年上演的这一幕美国大选中的选票谜团似曾相识👇👇👇
+
+早在2016年，普林斯顿大学教授就确切地演示了如何入侵Dominion机器。“我想出了一种如何制作稍微不同的计算机程序的方法，该程序可以将某些选票从一个候选人转移到另一个候选人。” 等等，这不是我们所看到的吗？看：
+![指向下方的三角形](https://abs-0.twimg.com/emoji/v2/svg/1f53d.svg)
+
+
+> DOMINION.🚨
+> 
+> Back in 2016 a Princeton prof demonstrated exactly \*how\* to hack a Dominion machine.
+> 
+> "I figured out how to make a slightly different computer program that… shifts some votes around from one candidate to another."
+> 
+> Wait, isn't that what we've been seeing? WATCH:🔽 [pic.twitter.com/upnP7a69M0](https://t.co/upnP7a69M0)
+> — Kyle Becker (@kylenabecker) [November 12, 2020](https://twitter.com/kylenabecker/status/1326751429915238401?ref_src=twsrc%5Etfw)
+
+
+
+Dominion Security System的安全漏洞仅被称为保守派。好吧，这是\* DOMINION ITSELF \*，它在其用户手册中承认“中”和“高”风险。（H T[@JPMediaBoss](https://twitter.com/JPMediaBoss)）其建议的补救措施：“选举无效”。
+![指向下方的红色三角形](https://abs-0.twimg.com/emoji/v2/svg/1f53b.svg)
+
+
+> Dominion Security System's security vulnerabilities have been called nothing more than conservative prattle.
+> 
+> Well, here is \*DOMINION ITSELF\* admitting to "Medium" & "High" Risks in its user's manual. (H/T [@JPMediaBoss](https://twitter.com/JPMediaBoss?ref_src=twsrc%5Etfw))
+> 
+> Its recommended remedy: "Invalidation of the election."🔻 [pic.twitter.com/ydkQP0Tmmk](https://t.co/ydkQP0Tmmk)
+> — Kyle Becker (@kylenabecker) [November 13, 2020](https://twitter.com/kylenabecker/status/1327368214238597123?ref_src=twsrc%5Etfw)
+
+
+
+快速查看一下，看来Dominion Voting Systems和臭名昭著的Tides Foundation在加拿大的分支机构都位于同一多伦多办公大楼内。如果您不熟悉Tides，那么曾经有一个隶属关系的团体可能会响起：ACORN。
+
+
+
+> Dominion.🗳️
+> 
+> A quick check & it appears Dominion Voting Systems and a Canadian branch of the notorious Tides Foundation are based in the same Toronto office complex.
+> 
+> If you aren't familiar with Tides, maybe a once-affiliated group rings a bell: ACORN.🤔🔽[https://t.co/MI9pfsJvL9](https://t.co/MI9pfsJvL9) [pic.twitter.com/fAVaH00SEr](https://t.co/fAVaH00SEr)
+> — Kyle Becker (@kylenabecker) [November 13, 2020](https://twitter.com/kylenabecker/status/1327359975505670146?ref_src=twsrc%5Etfw)
+
+
+
+邪恶盛行的唯一条件就是善良者袖手旁观的沉默–埃德蒙.伯克
+
+通过近期层层递进不断爆出的选举欺诈证据美国民众也许已经逐渐意识到了这次美国大选的黑幕。大选还未尘埃落定，但是民众心中正在浮出面纱后的真相。追求真相是人类与生俱来的本性。尘埃落定之时，所有人最感兴趣和需要探寻的问题也许是：谁在幕后操纵了美国大选？他们的目的是什么？
+
+真相：光总是战胜黑暗。真理总是战胜谎言。“但是行真理的人露面了，他的事迹可以彰显出来，是在上帝里行的。” -约翰福音3:21
+
+0

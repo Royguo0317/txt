@@ -1,27 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 乔·拜登助手曾运作300万美元给亨特·拜登关联公司
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/555981/)
+## 阿利托大法官警告：美国言论与宗教自由面临降级危险
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/556296/)
 
-*多伦多加喜农场 Spirit
-校对 文锦 上传 WJ*
+蒙特利尔战友团 laotou
 
-据《布伦巴特(Brieitbart)》11月12日报道，前副总统乔·拜登的助手运作了300万美元的纳税人资金到一家与亨特·拜登有关的风险投资公司。
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13180531/%E6%B3%95%E5%AE%98.jpg)图片来自 India Tour Tips
+11月13日各大媒体、网站在第一时间报道了美国最高法院大法官萨缪尔·阿利托（Samuel Alito）在联邦党人学会上发表的讲话，警告（在美国）言论自由、宗教自由正面临成为第二类权利的危险。
 
-彭博社上周报道，高阶银行的高管唐·格雷夫斯（Don Graves）在奥巴马政府期间，曾经为前副总统拜登工作过，负责给拜登提供金融监管方面的建议。长期以来他一直是拜登家族圈内人士。Breitbart新闻撰稿人、政府责任研究所所长彼得·施韦泽在《腐败档案》中披露了格雷夫斯参与了亨特拜登关联的公司的交易。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13150132/Graves1-cropped-1024x759-1.jpg)唐·格雷夫斯与乔·拜登合影 图片来源：williams.edu
-2013年12月，亨特·拜登于商业伙伴Archer的公司Rosemont Seneca Technology (RST) Partners和夏威夷战略发展公司（HSDC）各自出资500万美元，投资了一家名为mbloom的专注于夏威夷的风险投资基金。HSDC一半以上的捐款（近300万美元）来自财政部的州小企业信贷计划，这个计划向各州经济发展机构支出超过15亿美元，当时任财政部副助理部长就是格雷夫斯。
+布雷特巴特新闻（Breitbart News）报道：
 
-格雷夫斯当时作为总统就业和竞争力委员会的执行主任，监督 “小企业信贷计划 “。mbloom从HSDC获得捐款后不久，他就离开了财政部，加入了副总统办公室效忠拜登。此后，两人的个人和职业生活不断交织在一起。格雷夫斯现在是KeyBank的企业责任和社区关系负责人，他还积极为拜登的2020年竞选活动捐款和参与其慈善事业。格雷夫斯利用与与拜登家族的关系获益，损失的是夏威夷州纳税人的钱。
+阿利托大法官说，“在某些方面，宗教自由正迅速成为一种不受欢迎的权利”，并被一些人视为“不是一种珍视的自由，它往往只是偏见的借口，是不能容忍的，即使没有证据表明有人受到伤害。”
 
-在HSDC与亨特·拜登的公司签订mbloom协议的几个月内，该基金就陷入了丑闻。负责管理该基金的是Arben Kryeziu和Nick Bicanic。Bicanic的个人公司无利润倒闭时，丑闻愈演愈烈。Kryeziu触犯了证券交易委员会的规定。HSDC 说是想为 mbloom 提供经济多样化的机会，所以介入希望稳固该基金。
+大法官说，“CCP病毒增强了这个病毒袭击之前已经存在的令人不安的趋势。涉及CCP病毒限制的案件已经指出了个人权利评估的新兴趋势，这在宗教自由方面尤其明显。我很难说，但在某些方面，宗教自由正迅速成为不受欢迎的权利。”
 
-这些说辞不能自圆其说，亨特拜登的商业伙伴Archer在2016年5月因欺诈一个美国原住民部落而被起诉。他和一位商业伙伴密谋利用他们控制的部落债券来推高Code Rebel的股价，Code Rebel也是一家由Kryeziu拥有的技术公司。在起诉之后，RST Partners同意将其在mbloom的股份让给HSDC的投资者。目前仍不清楚亨特·拜登的公司是否收回了最初的500万美元投资。2016年6月，HSDC关闭该基金，以防止浪费更多税款。
+福克斯的文章称：
 
-拜登竞选团队没有回应对这一报道的评论请求。虽然乔·拜登一直否认他与亨特·拜登的公司经济往来有关联，也不正面回答“硬盘门”的亨特参与中共的多家公司的持股关系，但类似这样的证据陆续曝光，这些事实不会因为不承认消失，早晚要承担法律责任。格雷夫斯是乔·拜登和亨特·拜登经济关联的中间环节，期望他能作为污点证人站出来指正拜登家族，让罪犯尽快得到应有的惩罚。
+大法官在演讲中提到了美国法学院和“更广泛的学术界”的现状，他们极度缺乏对对立观点的包容。
+
+许多法学院的毕业生声称，他们因为背离“法学院正统”的观点受到“骚扰”和“报复”。
+
+我们面临的问题是，我们的社会是否足够包容，能够容忍那些不受欢迎的宗教信仰的人……基督徒也应该得到与其他宗教少数群体同样的保护。
+
+阿利托大法官警告，宗教自由有可能成为二等权利。
+
+在CCP病毒大流行之前，人们对“不时髦的观点”有“敌意”……校园和一些公司的言论自由现在处于危险之中。
+
+“你不能说婚姻是一个男人和一个女人的结合”，阿利托大法官说，“直到最近，绝大多数美国人还是这么想的，现在这被认为是偏见。”
+
+法官致力于法治是义不容辞的，他们不能奉行折中原则，不能将任何背离他们义务的行为合理化。
+
+阿利托大法官最后说，捍卫宪法和自由是摆在所有美国人面前的工作。
+
+70岁的阿利托是前总统布什（George W. Bush）的提名人，2006年得到参议院的确认。
+
+从阿利托大法官的讲话中似乎读出了法律高层人士对CCP在美国渗透的警觉，表现在对不同意见的舆论管控、CCP病毒话题的禁言、个人权威对防止CCP病毒扩散的限制等，也隐晦地提出了法律界面临“超限战”的境况。
 
 参考链接：
-[Joe Biden’s Transition Aide Helped Steer $3M to Hunter Biden-Linked Firm](https://www.breitbart.com/2020-election/2020/11/12/joe-bidens-transition-aide-helped-steer-3m-to-hunter-biden-linked-firm/)
 
-4+
+[https://www.breitbart.com/clips/2020/11/13/alito-religious-liberty-is-in-danger-of-becoming-a-second-class-right/](https://www.breitbart.com/clips/2020/11/13/alito-religious-liberty-is-in-danger-of-becoming-a-second-class-right/)
+
+[https://www.foxnews.com/politics/justice-alito-warns-of-dangers-to-free-speech-religious-liberty-in-federalist-society-address](https://www.foxnews.com/politics/justice-alito-warns-of-dangers-to-free-speech-religious-liberty-in-federalist-society-address)
+
+0
