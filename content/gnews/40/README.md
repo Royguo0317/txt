@@ -1,11 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 林.伍德：中共想利用电脑和邮寄选票作弊来干扰我们的全民大选
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/557222/)
+## 内华达州邮寄选票的签名比对系统出错率高达89%
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/557404/)
 
-“中共想利用电脑和邮寄选票作弊来干扰我们的全民大选。他们妄想我们会被蒙蔽，并不费吹灰之力就可以废除我们的合法民选总统，简直是大错特错。”
+多伦多加喜农场 天使在人间
+校对 上传 云起时
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14022856/pittsburgh-post-gazette-2.jpg)图片来源：Pittsbrugh Post-Gazette
+Washington Examiner 11月13日报道指出：近日一项测试内华达州邮寄选票签名检测系统可靠性的实验引起了人们对该州匆忙实施的通用邮寄投票系统可靠性的担忧。
 
-——林.伍德
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14000819/1-67.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14000942/2-114.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14000907/3-72.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14000838/4-42.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14000859/5-38.png)
+《拉斯维加斯评论》的专栏作家Victor Joecks在周四的一篇文章中说，他进行了一次测试， 让九个不同的人使用他的笔迹来签署邮寄选票。”我用我正常的笔迹用草书写下了他们的名字。然后，他们把我的版本复制到他们的选票信封上。这个复制过程是必要的，为的是确保没有违反任何法律，”Victor Joecks说。
+
+内华达州官员曾保证对签名进行有效核查，将事先登记在系统中的选民签名与选票上的签名相比较， 以防止作假的选票被计算，但事实与承诺并不一致。 Joecks 说：”九张选票中，有八张通过了签名核查。换句话说，签名核查系统在发现不匹配签名时的错误率为 89%。”
+
+Victor Joecks没有透露选票上使用的签名照片参加投票者的姓名。内华达州立法者在8月修改法律，向所有登记在该州系统中的选民邮寄选票。这导致已经死亡的选民和已经搬离该州的选民也接收到邮寄选票。社交媒体上公布的照片显示，经常成堆的邮寄选票被放置在任何人都触手可及的公共场合。许多支持川普总统的抗议者上周告诉WashingtonExaminer，他们收到了属于其他人的邮寄选票。
+
+川普总统的竞选团队长期以来一直警告大家，邮寄选票非常容易发生欺诈行为。川普竞选团队在一项诉讼中指出，拥有内华达州大多数选民的Clark县的选举管理人员故意修改了签名核查系统的设置，使得签名只有40%的匹配度的选票可以被接受。
+
+Joecks写道：”县政府官员并没有采取积极措施以阻止别有用心的人利用这一漏洞。”只要罪犯不承认他犯有选举舞弊的罪行，Clark县当局就不会追究。这种明显的故意纵容显然不应该成为选举安全措施的一部分。”Joecks最后说，”目前还不清楚内华达州发生了多少选举舞弊事件。但很明显，选举管理者并没能提供安全可靠的签名验证系统。”
+
+简评： 在这次总统选举中， 舞弊现象层出不穷， 舞弊手段五花八门。 而选举的官方管理者不仅对作假行为视而不见， 有的更是舞弊行为的直接参与者。 这使得这次大选的计票结果的公正性和准确性备受质疑。 舞弊现象并不是这次选举才有， 为什么作假者如此肆无忌惮？ 以往对作弊行为的一次次无视和宽容只能让这种恶行愈演愈烈。 现在是时候对这些行为进行彻底的揭露，并利用法律对他们追究到底了。
+
+原文链接：
+ https://www.washingtonexaminer.com/news/eight-of-nine-mismatched-signatures-accepted-in-nevada-mail-in-ballot-experiment-report 
+
+
 0

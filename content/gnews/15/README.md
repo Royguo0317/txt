@@ -1,13 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日政要Twitter播报(中文) 11/12期(视频+ PDF下载)
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/557918/)
+## 夜游DC | 祈福川普总统和新中国联邦
+` 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hans/558202/)
 
-撰稿记者:本來、尘凡3、石頭
-校对:David XX
-播音:大脚印
+*作者：Faller*
 
-[每日政要推文11-12\_pdf](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14061844/11-12_David_XX-1.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14061844/11-12_David_XX-1.pdf)
+13日晚上来到华盛顿DC，夜晚的特区是美丽的。特别是不同的建筑，带着世界政治中心特有的沉稳大气。
+
+找酒店的路上经过川普大厦，感觉很近，登记好房间后就决定出去走一走。晚11点多的大堂热闹得很，很多从外地赶到人们在排队登记，有的背着大包，有的带着孩子，有的牵着大狗。
+出了酒店往川普酒店的方向走，秋天的银杏树叶子在灯光下呈现明亮的金黄色。过了一个十字路口，看到好多店面是用木板封上的。
+
+再过了一个街区，有五六个人站在一起大声喧哗，就下意识地绕到街道的另一边。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14080600/IMG_0687-1.jpg)
+街道上有公交车在运行，有警车鸣笛而过，有警察在街道执勤，还有不时擦身而过的三三两两的人们，还有的车子带着支持川普的装饰停在路边，车子里有人在聊天。华盛顿DC看起来是个不夜城。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14080611/IMG_0689-1.jpg)
+继续前行，看见一个建筑顶上有一个巨大的钟楼，整个建筑恢弘敦厚，就顺手拍了一张照片，
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14080622/IMG_2416.jpg)
+走近一看，原来是川普大厦，看一下时间，正好14号零点，好神奇的时间点。大家曾讨论为什么参与这次1114支持川普总统的活动。想到6月4日新中国联邦的国旗得以在纽约上空自由飘扬，背后一定有川普总统的默默支持。这就是原因。
+
+14日零点在川普大厦前，为川普总统竞选的公证公平祈祷！为新中国联邦人不愿为奴而祈祷：为了不为奴，我们聚集！祈愿上苍听见我们的呼求。神庇佑每一个在路上或在休息的精兵，我们把所求所愿放在你施恩的坛前，上帝亲自带领和保护每一个为人人生而平等去征战的人们！
+
+[更多DC农场文章](https://gnews.org/zh-hans/author/himalayadcgnews/)
 
 0

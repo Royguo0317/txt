@@ -1,26 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登叔侄有中共代理人之嫌
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/557080/)
+## 鲁迪·朱利安尼：&#8221;我从未见过一个选举案件有一半这样的舞弊证据”
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/557312/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13231904/2-40.jpg)[图片来源](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13231904/2-40.jpg)
-据每日电讯报（The Daily Wire）报道，星期一，参议院财政委员会（Senate Finance Committee）主席、爱荷华州共和党参议员查尔斯·格拉斯利（Charles Grassley）致信司法部长威廉姆·巴尔（William Barr），信中写道：“……亨特·拜登（Hunter Biden）和詹姆斯·拜登（James Biden）代表华信（全称“中国华信有限公司”）、叶简明（华信创始人、掌门人，已被中共迫害身亡）以及其他与华信有关的官员行事，证明他们有中共代理人之嫌。”
+*新闻来源：《JusttheNews》；发布时间：2020年11月 13日*
 
-格拉斯利开宗明义，“我供职过奥巴马和川普两任政府，负责监督司法部（Department of Justice)在实施《外国代理人登记法》（Foreign Agents Registration Act，简称 FARA）和与之相关的选择性执法问题上的疏漏”，他解释道，“FARA是一项重要法规，旨在规范外国代理人的活动，而非禁止，如果有人代表外国政府或企业对美国政策或民意施加影响，他们需要依法在司法部进行注册。这有助于确保公共政策领域的透明度和可追责性。FARA是一项内容中立的法规，任何实体或个人均享有言论或行动自由。”
+*翻译/简评：Dreamer文童；校对：感恩；审核：freedust；Page：Connor54*
 
-信中提到，“如果有人蓄意接近美国政府官员，以影响美国政策或民众，无论他是外国委托方（包括外国政党、政府或企业）的代理人、代表、雇员还是佣人，或者任何其他身份，哪怕通过中间人，都要按照FARA的规定在司法部注册”。
+[!\[\]()!\[\](https://spark.adobe.com/page/QJ27m7S8W5MA2/images/c9af163c-9b72-4675-bb9d-bd32e7733417.png?asset_id=a74cea1f-7ea2-4203-870d-d8b1e879835a&amp;img_etag=%227ca35f1180231df473a6d8fb126cb479%22&amp;size=1024)](https://spark.adobe.com/page/QJ27m7S8W5MA2/images/c9af163c-9b72-4675-bb9d-bd32e7733417.png?asset_id=a74cea1f-7ea2-4203-870d-d8b1e879835a&amp;img_etag=%227ca35f1180231df473a6d8fb126cb479%22&amp;size=1024)
 
-格拉斯利警告，“鉴于外国政府和企业为获取利益，不断把身在美国的代理人作为游说影响政策和参与公关活动的渠道，有效执行并遵守 FARA 仍然是我的第一要务。然而，有时，某些关系就是见不得光，反FARA而行之。例如，根据最近曝光的邮件、短信，以及我与强森（Ron Johnson）参议员共同撰写的报告——与亨特·拜登及其生意伙伴的财务活动有关的利益冲突——都使他和他叔叔，詹姆斯·拜登，与华信之间的关系看起来非同一般。记录还显示，华信是中共政府的外围，为谋利曾企图修改美国政策和影响民意，而中共政府正是这些活动的主要受益方。”
+**简评：**
 
-随后，格拉斯利直言不讳，“毋庸置疑，根据 FARA 的定义，华信就是一个外国委托机构，亨特·拜登和詹姆斯·拜登为华信工作直接使中共政府获利，因此他们是潜在的中共代理人”。他强调，叶简明和亨特·拜登之间“建立了一种回报丰厚的财务关系，亨特·拜登因此收取了数百万美元”，与此同时，叶简明和华信在美国获得了大量机会。“当有效证据化零为整时，可以清楚地看到华信为扩大业务是如何利用亨特·拜登及其生意伙伴侵犯美国利益的。为实现目标，成就自我，华信在影响美国政策和民意方面可能已经有所作为，为了潜在的商务交易，他们曲意逢迎，和好几位美国政客搭上了线”。
+前纽约市市长、川普总统私人律师鲁迪•朱利安尼（Rudy Giuliani）先生在近期接受采访时表示，他从未见过一个选举案件有如此之多的舞弊证据。此次美国大选舞弊不但涉及范围广，而且舞弊方式多样化，Dominion投票软件不但装有中共国软件程序，而且该软件公司与议长南希•佩洛西（Nancy Pelosi）的前幕僚长有利益关系。以上种种足以证明，此次大选舞弊是蓄谋已久的组织犯罪，而绝非偶然的软件漏洞。朱利安尼先生重点强调充足的证据，意在暗示目前进行的诉讼案件胜券在握。
 
-格拉斯利最后总结，“基于已有信息，华信是由外国政府控制并资助的公司，可能为中共政府的利益而参与过影响美国政府和民众的活动。因而，亨特·拜登和詹姆斯·拜登代表华信、叶简明以及其他与华信有关的官员行事，有中共代理人之嫌，这么久以来，这类信息都没有依法披露。当外国实体操纵和影响美国政策及民意时，美国民众有权知道。”
+**原文翻译：**
 
-评：形势比人强。盗美贼拜登家族覆灭倒计时，越来越多的人主动或被动地选择站到正义的一方，重锤如雨落，是天地间悲怆的诗意，更是爆料革命脚踏实地三年蓄势的结果。
+# 鲁迪•朱利安尼：”我从未见过一个选举案件有一半这样的舞弊证据”
 
-[原文链接](https://www.dailywire.com/news/grassleys-letter-to-doj-hunter-james-bidens-actions-potentially-make-them-agents-of-the-chinese-government)
+[!\[\]()!\[\](https://spark.adobe.com/page/QJ27m7S8W5MA2/images/8c657453-814c-4f98-afe3-ce753fb17b8e.jpg?asset_id=eecee1a7-67e2-45c9-b730-93f9cdf7ff79&amp;img_etag=%22654602ab8d9fc57dcdb23f2a7d9152dc%22&amp;size=1024)](https://spark.adobe.com/page/QJ27m7S8W5MA2/images/8c657453-814c-4f98-afe3-ce753fb17b8e.jpg?asset_id=eecee1a7-67e2-45c9-b730-93f9cdf7ff79&amp;img_etag=%22654602ab8d9fc57dcdb23f2a7d9152dc%22&amp;size=1024)
 
-翻译报道：萌萌的朋克
+前纽约市市长鲁迪•朱利安尼（Rudy Giuliani）周三在接受采访时，就川普总统在关键州挑战选举结果的法律案件状况表示，他 “从未见过一个选举案件有一半这样的舞弊证据”。
+
+在与海豹突击队队员（Navy SEAL）、前密苏里州州长埃里克•格雷腾斯（Eric Greitens）、《可行动情报》（Actionable Intelligence）电视节目主持人谈话时，朱利安尼（Giuliani）主要关注已经提起诉讼的密歇根州和宾夕法尼亚州。他还谈到占据美国三分之一以上投票机市场、在28个州开展业务的Dominion投票软件，并且Dominion投票软件在2019年聘请了议长南希•佩洛西（Nancy Pelosi）的前幕僚长作为说客。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/QJ27m7S8W5MA2/images/420fde33-f8ce-49db-9294-dbb372b60aa6.png?asset_id=c09cba55-9924-41a5-8b20-db8a493ad493&amp;img_etag=%229dbfc974aff0c6eb58c7f553e5349561%22&amp;size=1024)](https://spark.adobe.com/page/QJ27m7S8W5MA2/images/420fde33-f8ce-49db-9294-dbb372b60aa6.png?asset_id=c09cba55-9924-41a5-8b20-db8a493ad493&amp;img_etag=%229dbfc974aff0c6eb58c7f553e5349561%22&amp;size=1024)
+
+朱利安尼（Giuliani）表示，川普竞选团队的法律团队在密歇根州的诉讼中拥有一份来自Dominion员工的宣誓书，该员工称凌晨四点送来的100,000张选票全部是拜登的选票，没有一张是川普的选票。
+
+当她（Dominion员工）报告时，她被告知这与她无关，朱利安尼（Giuliani）说。他（朱利安尼）说，还有其他三四个证人可能准备对此进行互相印证。
+
+在宾夕法尼亚州，拜登减少了800,000张选票，由于数十万张迟到的选票在大选当晚到达，共和党在计票时没来得及审查这些选票。
+
+朱利安尼（Giuliani）称，这些案件可能最终被提交到最高法院，但是州立法机构选择投票总统的选举人，这些事情属于他们负责。他说，他“无法想象他们不做正确的事情”。
+
+[原文链接](https://justthenews.com/podcasts/rudy-guiliani-i-have-never-seen-election-case-half-evidence-fraud)
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/QJ27m7S8W5MA2/)】-点击spark adobe版
+
+[!\[\]()!\[\](https://spark.adobe.com/page/QJ27m7S8W5MA2/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/QJ27m7S8W5MA2/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0
