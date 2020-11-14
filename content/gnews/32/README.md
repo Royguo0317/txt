@@ -1,73 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 选票欺诈：多方证据揭示Dominion与Smartmatic是计算还是决定选举结果
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/556533/)
+## 美国2020总统大选最终以滑稽收场之三： 大选作弊手段之滑稽！
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/556839/)
 
-编译：玫瑰天空
+作者：星星点灯
 
-1）朱利安尼说，Dominion与Smartmatic有联系，后者是委内瑞拉选举（包括雨果•查韦斯的“选举”）的主要技术供应商。
-
-2）朱利安尼说，自治领的说客是佐治亚州州长布莱恩·肯普的前参谋长。
-
-3）根据华盛顿考官的说法，Smartmatic的董事长是乔治·索罗斯（George Soros）投资基金前副主席马克·马洛赫·布朗勋爵（Lord Mark Malloch Brown）。
-![眼睛](https://abs-0.twimg.com/emoji/v2/svg/1f440.svg)
-越来越多的证据浮出水面，只需审慎观察和探究：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
 
 
 
-> According to the Washington Examiner, Smartmatic’s chairman is Lord Mark Malloch Brown, a former vice-chairman of George Soros’ Investment Funds. [https://t.co/tZ4PbvCm2A](https://t.co/tZ4PbvCm2A)
-> — The Election Wizard🧙‍♂️ (@Wizard\_Predicts) [November 13, 2020](https://twitter.com/Wizard_Predicts/status/1327288694047387648?ref_src=twsrc%5Etfw)
+被中共渗透日益严重的美国各界，其做事行为模式越来越像中共。尤其在本次总统大选中，为终止川普政府抽干沼泽，将影子政府和暗黑力量一网打尽，民主党破釜沉舟，用尽各种作假作弊手段，欲翻盘拿下总统宝座，从而继续与中共沆瀣一气。迄今为止，本次的大选作弊手段有以下十几种：
+
+一，代人投票。住在内华达州一老年公寓的Jill Stokke女士，往年都是亲自去投票点投票，今年她去到投票点准备投票时却被告知“你已投过票了，你无权再投票”。类似的事情也发生在她室友身上。
+
+二，死人投票，即幽灵票。今年美国大选，多地出现“幽灵票”，仅宾州就有至少2.1万名已经去世的人“被投票“，而且都是投给拜登的票。在密歇根州的选票，就有7个人比今天活着的最年长的人年龄(出生于1903年的日本116岁女士田中加子Kane Tanaka )还大，其中包括一名1850年出生的人。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13222107/244-%E7%BE%8E%E5%9B%BD2020%E6%80%BB%E7%BB%9F%E5%A4%A7%E9%80%89%E6%9C%80%E7%BB%88%E4%BB%A5%E6%BB%91%E7%A8%BD%E6%94%B6%E5%9C%BA%E4%B9%8B%E4%B8%89%EF%BC%9A-%E5%A4%A7%E9%80%89%E4%BD%9C%E5%BC%8A%E6%89%8B%E6%AE%B5%E4%B9%8B%E6%BB%91%E7%A8%BD%EF%BC%81-1.jpg)
+三，死人投票，即幽灵票。今年美国大选，多地出现“幽灵票”，仅宾州就有至少2.1万名已经去世的人“被投票“，而且都是投给拜登的票。在密歇根州的选票，就有7个人比今天活着的最年长的人年龄(出生于1903年的日本116岁女士田中加子Kane Tanaka )还大，其中包括一名1850年出生的人。
+
+四，非公民投票。民主党给很多绿卡持有者提供选票。内华达州3600人无投票权，而参与投票的名单已经被公布在网上。
+
+五，马克笔废票。亚利桑那州的读票机只能读取圆珠笔涂的选票，但有些现场只提供马克笔，机器读不出来就成废票，或许选民用马克笔涂选后，转身工作人员就帮你用圆珠笔涂上他们想要的拜登的票。
+
+六，点票员改票。有些计票点甚至餐厅都出现工作人员改票的画面。
+
+七，动物选票。加州一条2岁半的母狗，通过邮寄投票选举了美国总统，记录显示她芳龄18岁，大学生，狗的安全注册号被用作社会安全号进行投票。
+
+八，逾期选票盖选举日邮戳。宾州伊利县邮局局长指示邮局员工将逾期邮寄到的选票盖上选举日11月3日的邮戳。密歇根州某邮局内部工作人员也爆料，其上司命令把11月4日才收到的邮寄选票手工盖上11月3日的邮戳，当记者打通该上司电话询问时，电话马上被挂断，心虚！
+
+九，拒绝共和党监票员入场检票。11月8日朱利安尼团队在宾州费城的新闻发布会上，共和党找到了大约50个证人，其中25人愿意到法庭作证，4人在发布会现场指证民主党人拒绝共和党监票员进入现场监票。还有密歇根州韦恩县共和党检票员被拦在遮住窗户的计票现场外。
+
+十，选区实际投票数超过合法选民总数。民主国家的选民投票率极少超过80%的，而今年很多州的投票率超过100%, 创造奇迹。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13222131/244-%E7%BE%8E%E5%9B%BD2020%E6%80%BB%E7%BB%9F%E5%A4%A7%E9%80%89%E6%9C%80%E7%BB%88%E4%BB%A5%E6%BB%91%E7%A8%BD%E6%94%B6%E5%9C%BA%E4%B9%8B%E4%B8%89%EF%BC%9A-%E5%A4%A7%E9%80%89%E4%BD%9C%E5%BC%8A%E6%89%8B%E6%AE%B5%E4%B9%8B%E6%BB%91%E7%A8%BD%EF%BC%81-2.jpg)
+十一，计票系统频出错。eMail的发明者MIT印度裔教授Shiva通过计算机算法发现计票系统转移川普选票给拜登。至少47个郡县验票机软件有后门操控将川普选票记成拜登的，密歇根州一次计票直接将拜登的票数加了个0，前内华达州前总检察长重磅宣布，20万选票的签名验证准确率被调低到出厂设置的40%。据称机票机器就来自于众议院议长佩洛西掌控的公司，其硬件和软件都有中共的影子。
+
+十二，大选之夜突然叫停计票并出现魔鬼曲线。11月3日大选之夜，一直翻红的多个摇摆州如威斯康辛州、密歇根州、宾州、亚利桑那州、佐治亚州等摇摆州突然断电停止计票，几个小时后重启计票时出现拜登选票剧增而川普选票是零的魔鬼曲线。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13222204/244-%E7%BE%8E%E5%9B%BD2020%E6%80%BB%E7%BB%9F%E5%A4%A7%E9%80%89%E6%9C%80%E7%BB%88%E4%BB%A5%E6%BB%91%E7%A8%BD%E6%94%B6%E5%9C%BA%E4%B9%8B%E4%B8%89%EF%BC%9A-%E5%A4%A7%E9%80%89%E4%BD%9C%E5%BC%8A%E6%89%8B%E6%AE%B5%E4%B9%8B%E6%BB%91%E7%A8%BD%EF%BC%81-3.jpg)
+十三，军人选票被废弃。众所周知，军队是支持川普总统的一个重要群体，可是在佐治亚州、内华达州、宾州等多个州发现大量来自军人的选票被丢弃在垃圾箱。
+
+十四，据报道在摇摆州北卡，选前民主党派出大量义工游说长期不投票的公民投票，并帮助填选票，此举虽然不违法，但此法律漏洞造成的后果可想而知。
+
+十五，不少选票只涂选了总统项，而没有涂选州长、州议员和州法官，这完全不和常理，因为对于公民本人，通常本州州长、议员和法官对自己利益的相关程度比总统还高。
+
+伊利诺伊州前民主党州长 Rod Blagojevich接受NEWSMAX采访时直说：“选票造假在民主党城市历史悠久，是他们值得荣耀的传统，大家都知道，很多人参与其中，我想整治这事，就被他们给整下来了，那里是大规模的系统性的作弊”。所以该州是永久性的民主党兰州，也是前总统奥巴马出道的地方。
+
+川普总统的当前的国内对手几乎是整个美国上层社会，包括白左民主党奥巴马、拜登、佩洛西、克林顿、希拉里等，共和党建制派，华尔街资本家，硅谷的科技巨头和几乎所有主流媒体建立的巨大沼泽阵营，一手遮天，以至于无视美国法律和美国传统价值观，视美国建国的基石宪法为摆设，本次总统大选民主党舞弊造假的规模空前，造假手段低劣得让人类蒙羞。
+
+正如美国顶级维权律师林肯伍德所说，本次总统大选美国遇到了建国200多年以来最大的宪政危机，川普总统在为人民孤军奋战，在与民主党、中共、伊朗、俄罗斯作战，现在到了我们为总统而战的时候了。林肯伍德同时指出，新冠病毒导致选票邮寄，绝不是一个巧合，而是一场早有的预谋！
 
 
 
-2020年上演的这一幕美国大选中的选票谜团似曾相识👇👇👇
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
 
-早在2016年，普林斯顿大学教授就确切地演示了如何入侵Dominion机器。“我想出了一种如何制作稍微不同的计算机程序的方法，该程序可以将某些选票从一个候选人转移到另一个候选人。” 等等，这不是我们所看到的吗？看：
-![指向下方的三角形](https://abs-0.twimg.com/emoji/v2/svg/1f53d.svg)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-
-> DOMINION.🚨
-> 
-> Back in 2016 a Princeton prof demonstrated exactly \*how\* to hack a Dominion machine.
-> 
-> "I figured out how to make a slightly different computer program that… shifts some votes around from one candidate to another."
-> 
-> Wait, isn't that what we've been seeing? WATCH:🔽 [pic.twitter.com/upnP7a69M0](https://t.co/upnP7a69M0)
-> — Kyle Becker (@kylenabecker) [November 12, 2020](https://twitter.com/kylenabecker/status/1326751429915238401?ref_src=twsrc%5Etfw)
-
-
-
-Dominion Security System的安全漏洞仅被称为保守派。好吧，这是\* DOMINION ITSELF \*，它在其用户手册中承认“中”和“高”风险。（H T[@JPMediaBoss](https://twitter.com/JPMediaBoss)）其建议的补救措施：“选举无效”。
-![指向下方的红色三角形](https://abs-0.twimg.com/emoji/v2/svg/1f53b.svg)
-
-
-> Dominion Security System's security vulnerabilities have been called nothing more than conservative prattle.
-> 
-> Well, here is \*DOMINION ITSELF\* admitting to "Medium" & "High" Risks in its user's manual. (H/T [@JPMediaBoss](https://twitter.com/JPMediaBoss?ref_src=twsrc%5Etfw))
-> 
-> Its recommended remedy: "Invalidation of the election."🔻 [pic.twitter.com/ydkQP0Tmmk](https://t.co/ydkQP0Tmmk)
-> — Kyle Becker (@kylenabecker) [November 13, 2020](https://twitter.com/kylenabecker/status/1327368214238597123?ref_src=twsrc%5Etfw)
-
-
-
-快速查看一下，看来Dominion Voting Systems和臭名昭著的Tides Foundation在加拿大的分支机构都位于同一多伦多办公大楼内。如果您不熟悉Tides，那么曾经有一个隶属关系的团体可能会响起：ACORN。
-
-
-
-> Dominion.🗳️
-> 
-> A quick check & it appears Dominion Voting Systems and a Canadian branch of the notorious Tides Foundation are based in the same Toronto office complex.
-> 
-> If you aren't familiar with Tides, maybe a once-affiliated group rings a bell: ACORN.🤔🔽[https://t.co/MI9pfsJvL9](https://t.co/MI9pfsJvL9) [pic.twitter.com/fAVaH00SEr](https://t.co/fAVaH00SEr)
-> — Kyle Becker (@kylenabecker) [November 13, 2020](https://twitter.com/kylenabecker/status/1327359975505670146?ref_src=twsrc%5Etfw)
-
-
-
-邪恶盛行的唯一条件就是善良者袖手旁观的沉默–埃德蒙.伯克
-
-通过近期层层递进不断爆出的选举欺诈证据美国民众也许已经逐渐意识到了这次美国大选的黑幕。大选还未尘埃落定，但是民众心中正在浮出面纱后的真相。追求真相是人类与生俱来的本性。尘埃落定之时，所有人最感兴趣和需要探寻的问题也许是：谁在幕后操纵了美国大选？他们的目的是什么？
-
-真相：光总是战胜黑暗。真理总是战胜谎言。“但是行真理的人露面了，他的事迹可以彰显出来，是在上帝里行的。” -约翰福音3:21
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

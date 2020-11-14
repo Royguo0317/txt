@@ -1,26 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登叔侄有中共代理人之嫌
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/557080/)
+## “绝顶聪明”的美国选票机
+` GM77` [轉載自GNews](https://gnews.org/zh-hans/557543/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13231904/2-40.jpg)[图片来源](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13231904/2-40.jpg)
-据每日电讯报（The Daily Wire）报道，星期一，参议院财政委员会（Senate Finance Committee）主席、爱荷华州共和党参议员查尔斯·格拉斯利（Charles Grassley）致信司法部长威廉姆·巴尔（William Barr），信中写道：“……亨特·拜登（Hunter Biden）和詹姆斯·拜登（James Biden）代表华信（全称“中国华信有限公司”）、叶简明（华信创始人、掌门人，已被中共迫害身亡）以及其他与华信有关的官员行事，证明他们有中共代理人之嫌。”
+整撰：JAY(杰伊)、文錦 、文非
 
-格拉斯利开宗明义，“我供职过奥巴马和川普两任政府，负责监督司法部（Department of Justice)在实施《外国代理人登记法》（Foreign Agents Registration Act，简称 FARA）和与之相关的选择性执法问题上的疏漏”，他解释道，“FARA是一项重要法规，旨在规范外国代理人的活动，而非禁止，如果有人代表外国政府或企业对美国政策或民意施加影响，他们需要依法在司法部进行注册。这有助于确保公共政策领域的透明度和可追责性。FARA是一项内容中立的法规，任何实体或个人均享有言论或行动自由。”
+11月12日，《国家脉动》报道了在美国总统选举中，被广泛关注的Dominion投票系统公司员工的政治捐款方向。在该公司提供的96笔政治捐款信息中，几乎96%的捐款都捐给了民主党候选人。
 
-信中提到，“如果有人蓄意接近美国政府官员，以影响美国政策或民众，无论他是外国委托方（包括外国政党、政府或企业）的代理人、代表、雇员还是佣人，或者任何其他身份，哪怕通过中间人，都要按照FARA的规定在司法部注册”。
+涉事公司Dominion Voting Systems在密歇根州安特里姆县对选票进行不当统计，造成乔-拜登“欺诈性”获胜，并造成其他一些 “小故障”，需要延长投票时间，延迟投票结果。
 
-格拉斯利警告，“鉴于外国政府和企业为获取利益，不断把身在美国的代理人作为游说影响政策和参与公关活动的渠道，有效执行并遵守 FARA 仍然是我的第一要务。然而，有时，某些关系就是见不得光，反FARA而行之。例如，根据最近曝光的邮件、短信，以及我与强森（Ron Johnson）参议员共同撰写的报告——与亨特·拜登及其生意伙伴的财务活动有关的利益冲突——都使他和他叔叔，詹姆斯·拜登，与华信之间的关系看起来非同一般。记录还显示，华信是中共政府的外围，为谋利曾企图修改美国政策和影响民意，而中共政府正是这些活动的主要受益方。”
+不过，联邦选举委员会（FEC）的记录显示，该公司的员工绝大多数是民主党的捐助者–或许这也是解释机器故障，如何专门为拜登谋利的原因。
 
-随后，格拉斯利直言不讳，“毋庸置疑，根据 FARA 的定义，华信就是一个外国委托机构，亨特·拜登和詹姆斯·拜登为华信工作直接使中共政府获利，因此他们是潜在的中共代理人”。他强调，叶简明和亨特·拜登之间“建立了一种回报丰厚的财务关系，亨特·拜登因此收取了数百万美元”，与此同时，叶简明和华信在美国获得了大量机会。“当有效证据化零为整时，可以清楚地看到华信为扩大业务是如何利用亨特·拜登及其生意伙伴侵犯美国利益的。为实现目标，成就自我，华信在影响美国政策和民意方面可能已经有所作为，为了潜在的商务交易，他们曲意逢迎，和好几位美国政客搭上了线”。
+从2014年到2020年，有9名将 “Dominion投票 “或 “Dominion投票系统 “列为雇主的人向包括2020年总统选举在内的全国性政治活动捐款。共计96笔捐款，员工之间的总和达到1241.15美元。
 
-格拉斯利最后总结，“基于已有信息，华信是由外国政府控制并资助的公司，可能为中共政府的利益而参与过影响美国政府和民众的活动。因而，亨特·拜登和詹姆斯·拜登代表华信、叶简明以及其他与华信有关的官员行事，有中共代理人之嫌，这么久以来，这类信息都没有依法披露。当外国实体操纵和影响美国政策及民意时，美国民众有权知道。”
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14025506/1-69.png)
 
-评：形势比人强。盗美贼拜登家族覆灭倒计时，越来越多的人主动或被动地选择站到正义的一方，重锤如雨落，是天地间悲怆的诗意，更是爆料革命脚踏实地三年蓄势的结果。
+员工职位涵盖了投票系统从设置到制表的整个流程，包括软件开发人员、网络工程师、软件生产专家和实施经理。
 
-[原文链接](https://www.dailywire.com/news/grassleys-letter-to-doj-hunter-james-bidens-actions-potentially-make-them-agents-of-the-chinese-government)
+在96笔捐款中，共有92笔–或95.8%–捐给了民主党候选人，主要是通过ActBlue。这意味着，在1,241.15美元中，共有1,154.90美元用于助推民主党人。
 
-翻译报道：萌萌的朋克
+例如，有一笔来自Dominion软件开发人员的捐款去了MoveOn.org–一个左派政治行动委员会，该委员会将自己描述为反川普 “抵抗 “运动的 “支柱 “和 “前沿”。
+
+相比之下，六年来只有四笔捐款–相当于86.25美元–捐给了共和党候选人，特别是川普总统。
+
+Dominion还雇佣了一大批与民主党有联系的说客，协助处理包括 “监督联邦立法 “和 “与选举安全有关的问题 “在内的问题。例如，南希-佩洛西的前幕僚长和奥巴马2012年竞选活动的选票保护主任目前都被该投票公司聘用。
+
+11日的《国家动脉》就揭露，该公司保留的游说者名单里，布莱恩•麦肯恩（BRIAN MCKEON）曾是巴拉克•奥巴马（BARACK OBAMA）2012年竞选活动投票保护总监。自2019年1月14日以来，麦肯恩已代表Dominion投票系统向国会游说 ，估计该公司从合同中赚了270,000美元。
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14025607/2-117.png)
+
+除此之外，不少网民还挖出Dominion曾向克林顿基金会捐款，一个美国总统选举投票机器公司做出这样的举动，如何体现选举的公正性令人生疑。以下出自网友的截图，这些信息在现有的网页中已消失。
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14025228/3-33.jpg)
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14025249/4-43.png)
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14025247/5-39.png)
+
+川普总统及其竞选律师林-伍德（Lin Wood）12日分别在Twitter上提出了危险信号，“ DOMINION夺走了全美国270万张川普的选举权”，“Dominion袭击了美国，中共是美国选举欺诈行为的幕后推手“。
+
+面对这些指责，[Dominion官网](https://www.dominionvoting.com/)上发表了反对意见，并强调2020年Dominion Voting Systems遍布全美28个州中投票都进展顺利，公司致力于确保选民对美国选举过程的信心。
+
+*（1**）关于Dominion**切换或删除投票的声明为100**％错误。自治系统继续可靠，准确地计算选票，州和地方选举当局以及事实检查员已经公开确认了程序的完整性。*
+
+*从数学上讲，宣称川普总统的270**万张选票被删除（包括宾夕法尼亚州的941,000**张选票）的说法是不可能的。在宾夕法尼亚州，Dominion**为14**个县提供了130**万张选票，选民投票率为76**％。这些投票中有百分之五十二投给了特朗普总统。计算得出，Dominion**为宾夕法尼亚州的总统处理了约676,000**张选票。从未有941,000**票赞成“删除”。*
+
+*（2**）Dominion**与Pelosi**家族，加利福尼亚州参议员Feinstein**家族或Clinton**的任何成员都没有公司所有权关系。Dominion**与所有政党合作；我们的客户群和我们的政府宣传实践都反映了这种无党派的做法。*
+
+*据美联社报道，”Dominion**在2014**年的克林顿全球倡议会议上做出了一次性的慈善承诺，但克林顿基金会在Dominion**的业务中没有任何利益或参与，该非营利组织向美联社证实。*
+
+本次美国总统选举中多个城市出现的舞弊行为，川普总统私人律师朱利安尼先生已证实，有多名Dominion计票软件的相关人员将站出来举报该系统对选举的破坏。同时，朱利安尼先生在13日的Warroom节目中还指出，有证据证明选举中这些大规模的在同一时刻采用同一技俩的操作，是系统性的、协调一致的行为，而绝非巧合。
+
+空洞的声明和媒体的宣传造势掩盖不了Dominion背后的沼泽和Dominion Voting Systems破坏选举结果留下的痕迹，一切交由法庭做出最终的审判。
+
+参考链接：
+[https://thenationalpulse.com/exclusive/dominion-dem-donors/](https://thenationalpulse.com/exclusive/dominion-dem-donors/)
+[https://thenationalpulse.com/politics/dominion-obama-lobbyist/](https://thenationalpulse.com/politics/dominion-obama-lobbyist/)
+[https://100percentfedup.com/can-trust-voting-machine-company-servicing-22-states-just-got-busted-making-donation-clintons/](https://100percentfedup.com/can-trust-voting-machine-company-servicing-22-states-just-got-busted-making-donation-clintons/)
 
 0
