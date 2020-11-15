@@ -12,147 +12,147 @@
 
 
 
-### [川普总统推特传递：拜登癌症慈善机构薪金数百万研究费为“零”，反衬百万挺川游行](/content/gnews/1/README.md)
+### [华尔街资本站队——黑石集团苏世民支持川普总统](/content/gnews/1/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [川普总统推特传递：拜登癌症慈善机构薪金数百万研究费为“零”，反衬百万挺川游行](/content/gnews/2/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [【路德社每日摘要】11月14日 （路博艾冠谈）：川普转推一个6秒视频暗藏重要对中共接下来的打击行动；蓬佩澳直接说中共是恐怖主义政权；前FBI官员和拜登团队人员刚刚被逮捕；新中国联邦挺川大游行影响巨大！](/content/gnews/2/README.md)
+### [【路德社每日摘要】11月14日 （路博艾冠谈）：川普转推一个6秒视频暗藏重要对中共接下来的打击行动；蓬佩澳直接说中共是恐怖主义政权；前FBI官员和拜登团队人员刚刚被逮捕；新中国联邦挺川大游行影响巨大！](/content/gnews/3/README.md)
  ` 喜马拉雅-华盛顿DC站`
 
-### [【文字版】11/12/2020 路德时评（路安墨谈）：关键摇摆州宾州各方面信息汇总，走向如何深入分析？蓬佩奥国务卿说要帮助中国人民推倒防火墙而被中共媒体攻击；](/content/gnews/3/README.md)
+### [【文字版】11/12/2020 路德时评（路安墨谈）：关键摇摆州宾州各方面信息汇总，走向如何深入分析？蓬佩奥国务卿说要帮助中国人民推倒防火墙而被中共媒体攻击；](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC站`
 
-### [宾西法尼亚州选举分析：巨额选票异常，证据确凿，揭露欺选盗国，无可推诿](/content/gnews/4/README.md)
+### [宾西法尼亚州选举分析：巨额选票异常，证据确凿，揭露欺选盗国，无可推诿](/content/gnews/5/README.md)
  ` 秘密翻译组G-Translators`
 
-### [爆料革命终极之决战：新中国联邦挺川大游行，与美国人民站在一起支持川普总统连任](/content/gnews/5/README.md)
+### [爆料革命终极之决战：新中国联邦挺川大游行，与美国人民站在一起支持川普总统连任](/content/gnews/6/README.md)
  ` GM101`
 
-### [视频重磅！总统大选系列（十五）：川普总统推文视频-多米尼恩（Dominion）投票系统](/content/gnews/6/README.md)
+### [视频重磅！总统大选系列（十五）：川普总统推文视频-多米尼恩（Dominion）投票系统](/content/gnews/7/README.md)
  ` 倫敦英喜莊園 Himalaya UK`
 
-### [重磅新闻：所有在美国的共产党企业资产（无论公司）都将被查封](/content/gnews/7/README.md)
- ` GM107`
+### [视频11/14/2020 朱利安尼: 拜登家族与中共间谍签署协议收受巨额利益, 这等同于间谍行为!](/content/gnews/8/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [视频2020年11月14日CCP冠状病毒大流行第294集](/content/gnews/8/README.md)
- ` GM30`
+### [视频11/14/2020 川普总统法律团队的成员有惊人的统计证据指控Dominion的软件和机器的欺诈行为并有外国勢力干预](/content/gnews/9/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [城区不让遛狗？中共的“一刀切”治国](/content/gnews/9/README.md)
- ` EWENFEI`
-
-### [路德社11/14:川普总统转推&amp;蓬佩奥国务卿讲话有啥重要意义](/content/gnews/10/README.md)
+### [包商银行减记65亿元二级资本债停付利息,盗走的财富能回来吗](/content/gnews/10/README.md)
  ` NewFOC`
 
-### [『香草诗词汇』铁汉柔情](/content/gnews/11/README.md)
+### [视频11/14/2020 Lou Dobbs采访前联邦检察官,川普总统法律团队律师Sidney Powell: 对Dominion投票机的调查也不能仰仗FBI, 任何想让这个国家保持自由的人都必须马上站出来](/content/gnews/11/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【香港要闻】马云好友遭突袭手脚被砍 同行助理危殆](/content/gnews/12/README.md)
+ ` GM42`
+
+### [视频11/13/2020 彼得·纳瓦罗接受玛丽亚·巴蒂罗摩采访: 美国资本不应用于资助中共军事化](/content/gnews/13/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频11/14/2020 要闻同传: 朱利安尼PODCAST重磅讲话, 福克斯 Lou Dobbs &amp; Hannity 采访精华](/content/gnews/14/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [中共防火墙摇摇欲坠，墙内民众正在觉醒。](/content/gnews/15/README.md)
+ ` Ronald`
+
+### [《门道专家》：我们抓到他们了！（第二部分）](/content/gnews/16/README.md)
+ ` gnewscanada`
+
+### [苛政猛虎：延迟退休来了！](/content/gnews/17/README.md)
+ ` Ronald`
+
+### [唤醒民众：你心里没B数吗](/content/gnews/18/README.md)
  ` 纽约香草山农场`
 
-### [2020-11-15 康州农场本日新闻热点](/content/gnews/12/README.md)
- ` 康州喜马拉雅农场`
-
-### [『热点播报』中共国回应：一派胡言的蓬佩奥还能蹦跶到几时](/content/gnews/13/README.md)
- ` 纽约香草山农场`
-
-### [视频战友不要在乎别人说什么，笑到最后的才是赢家](/content/gnews/14/README.md)
- ` TINALS`
-
-### [视频1114 圆成农场 &#8211; 温哥华挺川普游行](/content/gnews/15/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [视频2020年11月14日中共病毒疫情要闻快报](/content/gnews/16/README.md)
+### [视频11/14/2020 Lou Dobbs: 28个州,包括摇摆州亚利桑那,佐治亚,密歇根,内华达,宾夕法尼亚,威斯康星使用了Dominion投票机民主套件5.5A。这台机器已经在2019年1月被德州州务卿拒绝使用](/content/gnews/19/README.md)
  ` 秘密翻译组G-Translators`
 
-### [视频11/14日新闻纵览播报：中共想用“假骗偷”控制大选，控制世界](/content/gnews/17/README.md)
- ` 康州喜马拉雅农场`
-
-### [以防疫为借口实现中国特色闭关锁国](/content/gnews/18/README.md)
- ` VOH欧洲战友团`
-
-### [【深度报道】宾州的投票在统计学上是不可能的](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
-
-### [视频睿智美丽的闫丽梦博士生日快乐](/content/gnews/20/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [视频彭佩奥：中美关系的发展需要北京做到负责任、透明和互惠](/content/gnews/21/README.md)
+### [视频11月12日要闻同传: 朱利安尼接受Lou Dobbs采访，福克斯Hannity &amp; Tucker今日节目精选](/content/gnews/20/README.md)
  ` 秘密翻译组G-Translators`
 
-### [川普总统主导的国防部高层的人事变动引发猜测](/content/gnews/22/README.md)
+### [【快讯】紧急签署RCEP，中共妄图反击美制裁？](/content/gnews/21/README.md)
+ ` Ronald`
+
+### [文贵说｜系列图片连载（四十六）](/content/gnews/22/README.md)
+ ` GM98`
+
+### [视频奥巴马的前中央情报局间谍局长约翰·布伦南煽动彭斯副总统政变夺权（玫瑰看新闻视频版2020.11.15第十七期）](/content/gnews/23/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [视频同声传译: 班农战斗室美东2020年11月12日晚间节目](/content/gnews/24/README.md)
  ` 秘密翻译组G-Translators`
 
-### [新中国联邦华盛顿支持川普总统大游行](/content/gnews/23/README.md)
- ` vog_dongdong_vog`
-
-### [德克萨斯州众议员Louie Gohmert：政府内部有些人一直想把川普总统搞下台](/content/gnews/24/README.md)
+### [视频同声传译: 班农战斗室美东2020年11月12日早间节目](/content/gnews/25/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【路德社精选】11/11/2020 早间节目](/content/gnews/25/README.md)
+### [视频11月13日要闻同声传译: 福克斯Lou Dobbs重磅采访节目, Tucker, Hannity &amp; The Ingraham Angle 采访精华](/content/gnews/26/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频同声传译: 班农战斗室美东2020年11月13日早间节目](/content/gnews/27/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【路德社精选】11/11/2020 晚间节目](/content/gnews/28/README.md)
  ` 首尔喜韩农场`
 
-### [20201113面具先生直播文字稿（完整版）](/content/gnews/26/README.md)
+### [如海啸般的民意，使幕后黑手惧怕](/content/gnews/29/README.md)
+ ` G-NEWS TAIWAN`
+
+### [【军事快讯】红箭-10“不要动”射击，中共军力靠摆拍](/content/gnews/30/README.md)
+ ` HAIKUOTIANKONG`
+
+### [【军事快讯】中共航母出不来，护航编队来充数](/content/gnews/31/README.md)
+ ` HAIKUOTIANKONG`
+
+### [真正干涉美国大选的外国势力](/content/gnews/32/README.md)
+ ` G-NEWS TAIWAN`
+
+### [视频2020年11月14日CCP冠状病毒大流行第294集](/content/gnews/33/README.md)
+ ` GM30`
+
+### [城区不让遛狗？中共的“一刀切”治国](/content/gnews/34/README.md)
+ ` EWENFEI`
+
+### [路德社11/14:川普总统转推&amp;蓬佩奥国务卿讲话有啥重要意义](/content/gnews/35/README.md)
+ ` NewFOC`
+
+### [『香草诗词汇』铁汉柔情](/content/gnews/36/README.md)
+ ` 纽约香草山农场`
+
+### [2020-11-15 康州农场本日新闻热点](/content/gnews/37/README.md)
  ` 康州喜马拉雅农场`
 
-### [朱利安尼：民主党希望借本次大选颠覆川普总统](/content/gnews/27/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【热点播报】祝贺拜登当选：中共无奈着手准备后事](/content/gnews/28/README.md)
+### [『热点播报』中共国回应：一派胡言的蓬佩奥还能蹦跶到几时](/content/gnews/38/README.md)
  ` 纽约香草山农场`
 
-### [兴还是亡？取决美国对中共的行动](/content/gnews/29/README.md)
+### [视频战友不要在乎别人说什么，笑到最后的才是赢家](/content/gnews/39/README.md)
+ ` TINALS`
+
+### [视频1114 圆成农场 &#8211; 温哥华挺川普游行](/content/gnews/40/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [视频2020年11月14日中共病毒疫情要闻快报](/content/gnews/41/README.md)
  ` 秘密翻译组G-Translators`
 
-### [川普总统要求停止在乔治亚州的重新计票](/content/gnews/30/README.md)
- ` gnewscanada`
+### [视频11/14日新闻纵览播报：中共想用“假骗偷”控制大选，控制世界](/content/gnews/42/README.md)
+ ` 康州喜马拉雅农场`
 
-### [IT专家、数据分析师和统计学家分析发现大量非法选票](/content/gnews/31/README.md)
- ` gnewscanada`
+### [以防疫为借口实现中国特色闭关锁国](/content/gnews/43/README.md)
+ ` VOH欧洲战友团`
 
-### [爆革星评：闫丽梦博士生日快乐](/content/gnews/32/README.md)
- ` gnewscanada`
+### [【深度报道】宾州的投票在统计学上是不可能的](/content/gnews/44/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [11/12/2020 朱利安尼正在核查非法选票的数字,选举被窃取铁证如山](/content/gnews/33/README.md)
+### [视频睿智美丽的闫丽梦博士生日快乐](/content/gnews/45/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [重磅新闻：所有在美国的共产党企业资产（无论公司）都将被查封](/content/gnews/46/README.md)
+ ` GM107`
+
+### [视频彭佩奥：中美关系的发展需要北京做到负责任、透明和互惠](/content/gnews/47/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【 大卫作战室】 11/10 直播精要](/content/gnews/34/README.md)
- ` 倫敦英喜莊園 Himalaya UK`
-
-### [视频11/12/2020 朱利安尼揭秘Dominion控股公司创始人与委内瑞拉独裁者查韦斯关系密切](/content/gnews/35/README.md)
+### [川普总统主导的国防部高层的人事变动引发猜测](/content/gnews/48/README.md)
  ` 秘密翻译组G-Translators`
-
-### [澳喜昆省战友在ABC总部的抗议](/content/gnews/36/README.md)
- ` Himalaya Australia`
-
-### [郭先生：川普总统一定会胜选，没有任何悬念！](/content/gnews/37/README.md)
- ` 巴塞罗那喜西农场`
-
-### [视频中共欲将美国变成社会主义，这不是危言耸听！](/content/gnews/38/README.md)
- ` Isaiah4031`
-
-### [经济战开打，不止脱钩！](/content/gnews/39/README.md)
- ` 倫敦英喜莊園 Himalaya UK`
-
-### [媒体隐瞒亨特·拜登丑闻，企图抢走川普的胜选](/content/gnews/40/README.md)
- ` gnewscanada`
-
-### [【热点播报】今天，人民给川普加冕！](/content/gnews/41/README.md)
- ` 纽约香草山农场`
-
-### [宾州涉选举造假 司法会给予公正裁决](/content/gnews/42/README.md)
- ` gnewscanada`
-
-### [闫丽梦博士爆料中共病毒的真相正在西班牙发酵](/content/gnews/43/README.md)
- ` 巴塞罗那喜西农场`
-
-### [底特律与前市长腐败案涉案人公司签大选用工合同](/content/gnews/44/README.md)
- ` gnewscanada`
-
-### [中共对农村宅基地收费是在为全面开征房产税作准备](/content/gnews/45/README.md)
- ` GM08`
-
-### [捍卫宪法权力 拒绝选民欺诈](/content/gnews/46/README.md)
- ` gnewscanada`
-
-### [大卫作战室观点 &#8211; 进退维谷](/content/gnews/47/README.md)
- ` 倫敦英喜莊園 Himalaya UK`
-
-### [新中国联邦与美国正义力量一道挺川大游行](/content/gnews/48/README.md)
- ` gnewscanada`
 
