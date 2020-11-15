@@ -1,46 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德社11/14:川普总统转推&amp;蓬佩奥国务卿讲话有啥重要意义
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/560041/)
+## 【香港要闻】马云好友遭突袭手脚被砍 同行助理危殆
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/560655/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15001802/%E5%B0%81%E9%9D%A2-18.png)
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+搜集：文燕、诸水响声
 
-据[11/14/2020路德时评（路博艾冠谈）：川普转推一个6秒视频暗藏重要对中共接下来的打击行动；蓬佩澳把中共国与恐怖主义政权并列；前FBI官员和拜登团队人员刚刚被逮捕；新中国联邦挺川大游行影响巨大！](https://www.youtube.com/watch?v=oq8XDTjYIAc)提到的内容：
+编撰：文燕
 
-川普总统今天转推一个6秒钟的视频啊，这段视频里暗藏着非常重要的信息，川普总统转发的这段6秒钟的视频是2020年1月份的听证会的视频，这听证会是Dominion公司的CEO，在听证会上承认系统中有中国组件，他说虽然那不是我们Dominion公司啊，这个CEO承认，虽然那不是Dominion公司内部的报告啊，但Dominion的产品中确实有来自中国的组件。
+审核：MY
 
-随后蓬佩奥国务卿就转发了美国的国务院的网站转的一段他的视频，讲话说从中国到德黑兰的恐怖主义政权，美国将战胜任何挑战，那就是自由的人民所做的。一切我们齐心协力解决问题，推进我们的外交政策，相信我们就在山上照亮城市的灯塔，自由灯塔。
+据香港媒体11月14日报道，绰号「钱多多」的内地大慈善家钱峰雷（43岁），及其姓方（48岁）的私人助理，约凌晨零离开湾仔港湾道会展皇朝会，两人准备登上钱峰雷的七人车时，一辆私家车突然驶至，3名刀手下车追斩两人。方男左眼中一刀流血，事后跑回会展求助；钱峰雷亦大腿中刀，乘七人车前往香岛道寓所，由司机报案，两人事后转送东区医院。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15044214/image001-29.png)钱峰雷（左上）和姓方私人助理（右）被送院。
+「钱多多」出手豪爽 与马云私交甚笃
 
-路德社提到的川普总统转推和蓬佩奥国务卿的相关转发内容如下——
+钱峰雷为大陆浙江人，持有香港身份证，环球国际金融集团控股有限公司及环球国际控股（香港）有限公司董事长，与阿里巴巴创办人马云是多年好友。
 
-Donald J. Trump 转推了 Donald J. [email protected]于[2020年11月15日5：10AM](https://twitter.com/realDonaldTrump/status/1327720558193205255)发布的推文：
+2012年3月，据报他于内地出席表弟婚宴时，当场向每位宾客派1万元人民币，结果当晚共派出逾200万元人民币。同年5月，他在北京参加艺人李亚鹏及王菲主办的一个慈善晚宴，以2,000万元人民币，投得一件玉观音摆设，被李亚鹏称其为「钱多多」。
 
+2013年宁波水灾，钱峰雷向宁波市慈善总会一次性捐款1000万元，成为宁波地区已知个人捐款的最高纪录。
 
+2014年，他豪掷近7亿元向和黄（013）购入山顶白加道28号的其中一间洋房，但购入只约一年便按畀财仔做抵押品，换取高达四亿元按揭贷款。他当日在微博爆了句：「年底就发慌，钱到用时方恨少──你若懂我，该有多好 ! !」
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15044133/image003-13.png)钱峰雷(右)早年与阿里巴巴创办人马云一同出席阿里于美国上市仪式。
+皇朝会名流云集 曾为林郑竞选大本营
 
-> [pic.twitter.com/RV5obxT9aG](https://t.co/RV5obxT9aG)
-> — Donald J. Trump (@realDonaldTrump) [November 14, 2020](https://twitter.com/realDonaldTrump/status/1327720558193205255?ref_src=twsrc%5Etfw)
+位于湾仔会展的皇朝会，是香港知名的私人会所，历来都是本港政商云集之地。传闻前特首梁振英、本港富豪大刘与新世界创办人郑裕彤、杨受成、恒大集团创办人许家印、「重庆李嘉诚」张松桥等都经常到那聚餐。特首林郑月娥竞选特首时的大本营，亦选择在皇朝会，在会所约见各界人士拉票。林郑成功当选后，民主派与建制派的立法会「头目」，曾破天荒举行破冰饭局，聚脚地亦是在皇朝会。
 
+战友点评：
 
+众所周知，马云就是中共的白手套。钱峰雷「钱多多」与马云一伙，替中共在香港办事。钱峰雷当日在微博爆了一句：「年底就发慌，钱到用时方恨少──你若懂我，该有多好! !」这里不见得他有远见卓识，却令人联想到钱峰雷有份参与香港股市或金融背后的操控。明显「钱多多」并不是什么内地大慈善家，只不过是拿着14亿劳动人民的钱到处甩阔。
 
-Department of [email protected]（US government account）[@SecPompeo](https://twitter.com/SecPompeo)于[上午9:11 · 2020年11月13日](https://twitter.com/StateDept/status/1327056490113490953)·[Twitter Media Studio](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文: America will overcome any challenge, from Communist China to the terrorist regime in Tehran. That’s what free people do. We come together, we solve problems, and we execute our foreign policy, confident that we are that shining city on a hill.
+位于湾仔会展的皇朝会，向来是香港知名人士的私人会所。这里笔者并非要给大家介绍香港政界吃饭喝茶的好地方，而是从侧面看钱峰雷「约凌晨零离开湾仔港湾道会展皇朝会」，接着钱和他的私人助理就在皇朝会外面遇袭这件事，可看钱应该是这里的常客。所谓「近朱者赤」，香港有多少的政商界与中共的白手套走得非常近。官商勾结在人类历史，以及各国都上演着，眼下的香港就是最好的例子。
 
-中文大意：美利坚将战胜从共产主义中国到德黑兰恐怖主义极权的任何挑战，那就是自由的人民要做的事情。我们凝聚在一起、共克时艰，我们通过执行我们的外交政策确保我们的城市闪耀在山巅。
+以上观点仅代表笔者本人
 
+资料来源：苹果日报、看中国
 
+[https://hk.appledaily.com/breaking/20201114/NHJH2JICXJG5PMYBVOFMHEKGZU/](https://hk.appledaily.com/breaking/20201114/NHJH2JICXJG5PMYBVOFMHEKGZU/)
 
-> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): America will overcome any challenge, from Communist China to the terrorist regime in Tehran. That’s what free people do. We come together, we solve problems, and we execute our foreign policy, confident that we are that shining city on a hill. [pic.twitter.com/j97LkseZNZ](https://t.co/j97LkseZNZ)
-> — Department of State (@StateDept) [November 13, 2020](https://twitter.com/StateDept/status/1327056490113490953?ref_src=twsrc%5Etfw)
-
-
-
-这两起关联事件的发生是灭共史上的一个重要里程碑，因为它意味着中共试图渗透、干扰美国大选，并从根本上颠覆美国的证据早已经被美国国会掌握，而且至少在2020年1月份就已经掌握，Dominion公司CEO在听证会上的证词已经让Dominion公司和它背后的中共的犯罪行为板上钉钉。
-
-那么蓬佩奥国务卿的那一段讲话意味着什么？意味着在对中共犯罪行为板上钉钉之后，现在已经架好了对中共和德黑兰恐怖主义极权执行死刑的绞刑架。
-
-接下来会发生什么？把中共送上绞刑架；再接下来呢？把中共的尸体装在棺材里，盖上棺材再定上论；再接下来呢？全世界追杀清剿中国共产党的帮凶和爪牙；再接下来呢？我想全人类都要反思并且彻底铲除共产主义存在的土壤，并确保彻底埋葬共产主义。
-
-（文章内容仅代表作者个人观点）
+[https://m.secretchina.com/news/gb/2020/11/14/952581.html](https://m.secretchina.com/news/gb/2020/11/14/952581.html)
 
 0
