@@ -1,29 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统要求停止在乔治亚州的重新计票
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/559368/)
+## 【热点播报】祝贺拜登当选：中共无奈着手准备后事
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/559432/)
 
-多伦多加喜农场 熊妈妈
+作者：香草山 写作组 Wilson
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14193422/georgia-recount.jpg)图片来自 WTXL
-11月14日，美国川普总统要求停止在乔治亚州进行手动重新计票，直到选举委员会开始验证邮寄选票上的签名，并在登记过程中留下选民的签名。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
 
-川普总统说，”乔治亚州正在进行的手动重新计票是浪费时间，因为他们没有显示匹配的签名。”
 
-与此同时，Twitter公司继续不要脸地对川普总统的推文标记为”选举欺诈的这种说法是有争议的。”
 
-美国总统选举于11月3日举行，最终的选举结果将在12月份公布。然而，11月7日，美国主流媒体主观报道了民主党候选人乔∙拜登在大选中获胜，这只是被中共收买的主流媒体的一面之词。
 
-川普总统拒绝承认失败，并表示在一些州的计票存在违规行为。他呼吁在乔治亚州，密歇根州和宾夕法尼亚州重新计票。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06021019/https-d1e00ek4ebabms.cloudfront.net-production-d5916bba-cb59-4870-b867-854888d06d50.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/06021420/20201026033357639.png)
+中国外交部11月13日公开称，尊重美国人民的选择，并祝贺拜登先生和哈里斯女士分别当选为美国总统和副总统。但对拜登在大选中的舞弊行为只字不提。
+在各国政要争先恐后祝贺拜登当选时中共选择隐忍不发，而在拜登舞弊行为彻底败露而且败局已定的时候，中共却给拜登发来当选贺电，中共的反应确实有悖常理，其实稍为推敲就不难发现，中共给拜登发来的可不是贺电，而是为拜登敲响了丧钟。
+这个贺电的含意已经再清晰不过，就是中共非常清楚，川普胜选大局已定，浴火重生的川爷必然在鼎沸的民意推动下，和中共彻底翻脸，在各个领域寻求重击中共的机会，包括美国率先宣布中共为犯罪集团或恐怖组织，将很快靴子落地，这样的局面中共根本无法逆转，因此中共只能被动应付见招拆招，对应地宣布川普当选连任为非法，只承认拜登，在准备后事的同时继续愚弄绑架14亿中国人，作最后的顽抗。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11075845/%E5%9B%BE%E7%89%8723-1.png)
+最近逢佩奥强硬宣称，美国从来没有承认台湾属于中共，美国要帮助中国人民拆掉网络防火墙，表明西方和亚洲的盟友已经准备就绪，逢佩奥打响了“终极之战”的发令枪。
 
-宾夕法尼亚州的一个法院驳回了共和党的要求，共和党要求约9,300张选票无效。 在密歇根州，他们还拒绝了川普总统支持者的诉讼，他们要求禁止底特律市批准的投票结果。
+审核：悟空
 
-与此同时，宾夕法尼亚州的另一家法院对川普总统表示支持，裁定无法确认身份的选民通过邮件发送的选票在计票时不应该考虑在内。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
 
-美国2020总统大选中关于“选票造假”事件，正邪还在不断较量中，川普总统一定会赢得最终的胜利。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-参考链接：https://twitter.com/realDonaldTrump/status/1327715767916392449
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，纽约时间周日至周四晚上9:00，美国志愿者在纽约香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
+
+
+
+
 
 0
