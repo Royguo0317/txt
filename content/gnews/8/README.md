@@ -1,21 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共欲将美国变成社会主义，这不是危言耸听！
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/559234/)
+## 新中国联邦华盛顿支持川普总统大游行
+` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/559401/)
 
-摘要：郭文贵先生在11月11日的直播中警告他美国的朋友，中共在企图将美国变成社会主义。看看当下正在发生的事情，如果还不赶快行动予以反击，美国的教堂将改成社会主义的，美元将印上中国共产党，白宫前将升起中共的党旗。这一切都不是危言耸听，若还不赶快行动，这些将会成为现实！
-视频来源：[https://gtv.org/video/id=5fabf508bd0d464fadfebbf7](https://gtv.org/video/id=5fabf508bd0d464fadfebbf7)
-共产党那几个人想把美国也给颠覆了，变成跟他一样。很多美国人问我：“Miles，他们到底为什么这么干？”我说：“就想让你美国变的跟共产党一样，就想让你美国的政治体制实现社会主义。
+内新闻：背靠背
 
-啊，就是像这个共产党一样， 想把你女儿、把你老婆给双修了，就得给你双修了。”啊，美国人一听，“哇塞，fuck，我要干他”。就这么简单，还有多高尚吗？啊，没有多高尚，本质就这么简单。我说：“未来你们的教堂都要改成社会主义，啊，社会主义思想大教堂。啊，美金，你们要印上中国共产党。”我说：“白宫你们要升双面旗，中国共产党的党旗和你美国旗。”哎吆这美国人：“Miles, 不可能。”我说：“有啥不可能的，这不就在发生吗？”
+美国华盛顿DC时间2020年11月14日，新中国联邦华盛顿支持川普总统大游行，展现了新中国联邦人新形象，勇于表达诉求，支持正义，唯真不破，代表一个全新开始-新中国人与接轨世界，并走向世界。
 
-Excerpt:
+郭文贵先生盖特惊呼：“我衷心感激和万分爱护的新中国联邦人，你们太了不起了，亲爱的战友兄弟姐妹们！”
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14200533/image-230.png)
+华盛顿DC支持川普总统大游行现场传回来的图片。战友们服装统一，队伍整齐，秩序井然，节目丰富多彩。他们高举着美国国旗，新中国联邦旗帜，各种标语牌，甚至还有小朋友加入游行队伍。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14203436/image-238.png)
+旁边华盛顿纪念碑，白色大理石尖型纪念碑耸立直入云霄。犹如一把光明之剑刺破黑暗，揭示真相。它的东面是国会大厦，西面是林肯纪念堂，北门是白宫，南面是杰斐逊纪念堂。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14200109/image-229.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14201014/image-231.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14201714/image-234.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14202015/image-235.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14202457/image-236.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14203114/image-237.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14204825/image-240.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14204944/image-241.png)
+中共CCP统治和奴役中国人即将成为过去，中共CCP你完了！
 
-
-
-翻译：【石头】 校对：【雷鸣（文鸣）】字幕：【Rock小哥】听写：【Cyndi】总结：【闻所未闻】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-
-战友之家玫瑰园小队出品
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01145114/GNEWS-GTV-VOG.png)
-1+
+0

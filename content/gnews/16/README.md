@@ -1,64 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 大卫作战室观点 &#8211; 进退维谷
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/558951/)
+## IT专家、数据分析师和统计学家分析发现大量非法选票
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/559327/)
 
-[![](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/e3ede2ec-c107-4e56-84c2-2475379d2d5d.jpg?asset_id=efbb306a-372c-46ac-8fa7-e48d5b5f25df&amp;img_etag=%22ee30c1aa3aecdb61d55343d323d5192c%22&amp;size=2560)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/e3ede2ec-c107-4e56-84c2-2475379d2d5d.jpg?asset_id=efbb306a-372c-46ac-8fa7-e48d5b5f25df&amp;img_etag=%22ee30c1aa3aecdb61d55343d323d5192c%22&amp;size=1024)
-### 大卫作战室观点 Himalaya UK David’s War Room
+蒙特利尔战友团 雅典娜2020
+校对 MyWay 上传 云起时
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14200916/IT-Security-Guru-4.jpg)图片来源：IT Security Guru
+DJHJ MEDIA 近日报道，几个由IT专家们组成的团体，利用业余时间工作对大选数据进行分析，发现了很多选举舞弊和错误的证据，这些证据足够推翻四个摇摆州的选举结果，并让川普总统连任。其中数量最大也是最诡异的是有大量投给拜登的选票上没有其他候选人。他们分析得出的非法选票数量如下：
 
-#### 2020.11.05期
+宾夕法尼亚州–98,000张
+格鲁吉亚—-80-90,000张
+亚利桑那州-42,000张
+密歇根州—-69-115,000张
+威斯康星州–62,836张
 
+文中指出，这些专家们在不到一周的时间里就发现了这一切。如果他们发现的数据能被证实，将使选举结果发生彻底的翻转性变化，同时也说明选民舞弊不但确实存在而且还并不罕见。当总统选举的结果都能被轻易操纵和改变时，没有什么选举会是可信的。
 
+约瑟夫-斯大林（Joseph Stalin）曾说过：“重要的不是投票的人，而是计票的人。”这话说得再真实也没有了。民主党人计票本身就值得怀疑，尤其是当他们不允许共和党的监督员接近他们的工作时。
 
-#### 解读蚂蚁金服IPO叫停的背后逻辑！CCP央视告佐治亚州和密歇根州法官分别驳回川普总统两起选举诉讼！中共葫芦卖什么药…
-[![](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/2eb443a4-346b-422c-bf78-9de2ef846f09.png?asset_id=ff1d909c-9e9d-4cfe-a325-0ece53940cce&amp;img_etag=%22db6c708f1258917458e9c3d2a1f276d5%22&amp;size=1024)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/2eb443a4-346b-422c-bf78-9de2ef846f09.png?asset_id=ff1d909c-9e9d-4cfe-a325-0ece53940cce&amp;img_etag=%22db6c708f1258917458e9c3d2a1f276d5%22&amp;size=1024)
+新闻网站Gateway Pundit报道了许多选举舞弊问题，包括在亚特兰大谎称的水管破裂导致点票工作推迟，全国使用的电子投票机存在的系统控制缺陷，密尔沃基市的U盘丢失，和内华达州关闭签名防伪软件工具。不仅如此，新闻网站Gateway Pundit称，迄今为止发现的最大的潜在欺诈行为是与来自投票机本身的数据有关。
 
-> A. 解读蚂蚁金服IPO叫停的背后逻辑
+Gateway Pundit指出，他们发现川普总统的选票被有意地调换到了拜登名下。通过对选举日的数据进行分析，专家们发现数百万张选票被从川普总统名下移走，放到了拜登的栏下。同时指出，该数据正在审查之中。
 
+Gateway Pundit同时还指出，还有其他一些舞弊行为已经被发现并量化。 有一份报告称拜登在选举中的选票极不合理地，且未经签字审查地被单独分离出来，数量极大。同时目前的这些投票并未得到川普团队和各州的确认，所以不是最终的结果。此外，还有很多工作在进行中，比如调查死人投票、重罪犯非法投票等选民舞弊情况。民主党人有选举舞弊的历史，所以后面要做的工作会更多。
 
-1.IPO造假：蚂蚁金服根本没有空间支撑市盈率96.48倍； 资金主要来源互联网金融手续费却谎称是科创型企业。
+DJHJ MEDIA 在报道中呼吁美国再也不能采用邮寄选票，同时希望各州通过法律，严控欺诈行为。
 
-2.蚂蚁金服公开募股、联合记帐的机构包括巴克莱，以及唯利是图的华尔街和江泽民温家宝王岐山背后的影子，都等着在这个IPO里边捡钱。
+评论：在中共国普通老百姓从来没有投票的权利，小到厂长、村长，大到市长、国家领导人都轮不到老百姓选。在他们眼中：你们懂啥？让你们吃饱喝足的就不错了，选谁当头儿，是“上面”说了算，轮不到你们。所以，在中国人们的心目中，美国大选是神圣的、公平的、公正的、公开的、没有瑕疵。
 
-3.马云和他背后的太子党知道了爆料革命的威力，都想抓住最后的捞钱机会，蚂蚁金服迫不及待IPO上市。
+然而2020年大选却颠覆了大家对它的认知。民主党在选举中公然把假、骗、偷运用到投票、验票、点票的每一个环节，舞弊夸张到连傻子都看得出来。拜登能得逞吗？不可能！11月14日大批民众涌入首都华盛顿，抗议民主党选票作弊，力挺川普总统就是最好的证明。合法选民一人一票是美国民主政治根基，如被摧毁，美国将永远不再是全球热爱自由的人们仰望的灯塔。坚信美国在这次大选中正义必将战胜邪恶。
 
-4.蚂蚁金服紧急叫停，充分说明中共内部斗争，习与政治老人的斗争进入明面化。
+[原文链接](https://djhjmedia.com/steven/some-auditors-it-specialists-data-analysts-and-statisticians-claim-the-number-of-illegitimate-votes-identified-in-four-swing-states-could-be-enough-to-overturn-election/)
 
-
-[![](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/d38daf67-4192-4c87-be1d-a87ed6439f59.png?asset_id=08d00849-e697-49d7-a918-bf01518ca368&amp;img_etag=%226405f4956ea2ba71549bcbab80171d50%22&amp;size=1024)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/d38daf67-4192-4c87-be1d-a87ed6439f59.png?asset_id=08d00849-e697-49d7-a918-bf01518ca368&amp;img_etag=%226405f4956ea2ba71549bcbab80171d50%22&amp;size=1024)
-
-> B. CCP报导佐治亚州和密歇根州法官分别驳回川普总统两起选举诉讼，中共葫芦卖的什么药？
-
-
-1.中共与贪婪的华尔街的勾兑吸血的行为，早引起美国当前危机委员会重视及警告。
-
-2.如果川普总统连任成功，按照《国际紧急经济权力法》在美国的一系列中资企业中概股都会受到围剿，叫停供应链转移。
-
-3.这是中共所有盗国贼都害怕的，所以CCP要千方百计破坏川普总统连任。
-
-
-[![](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/d5d54911-9c82-40c4-90cd-a27f9eaaafab.png?asset_id=e848b19b-b162-4087-8954-0ac6984ba19c&amp;img_etag=%22e7a8cd5e105167306e394fc0c8434b92%22&amp;size=1024)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/d5d54911-9c82-40c4-90cd-a27f9eaaafab.png?asset_id=e848b19b-b162-4087-8954-0ac6984ba19c&amp;img_etag=%22e7a8cd5e105167306e394fc0c8434b92%22&amp;size=1024)
-
-> C. 败登家族和中共陷入进退维谷的境地
-
-
-1.三块硬盘，暴露CCP蓝金黄败登家族以达到控制美国的阴谋。CCP和败登家族牢牢地绑在了一起。
-
-2.CCP花大量资金助选拜登，却不敢恭贺拜登 “当选”， 进退维谷。
-
-3.大量证据直指民主党造假和违规操作，最终川普总统一定会连任成功。
-
-
-
-
-
-编辑【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/5l9wjBHP5vTCq/)
-
-**[点击关注大卫作战室Parler](https://parler.com/profile/David008/posts)**
-
-**[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)**
-
-**[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/user/5ee680a45bd6f123dd104807)**
-[![](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/4b4b8dee-2539-4e6f-8402-d252f8bc7c26.jpg?asset_id=5e203867-2df9-4e0f-bf60-a58bfdf4444a&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=1024)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/4b4b8dee-2539-4e6f-8402-d252f8bc7c26.jpg?asset_id=5e203867-2df9-4e0f-bf60-a58bfdf4444a&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=1024)
-0
+1+

@@ -1,41 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 普利策奖得主格伦·格林瓦尔德的痛心与愤慨
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/558869/)
+## 大卫作战室观点 &#8211; 进退维谷
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/558951/)
 
-多伦多加喜农场     文静
+[![](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/e3ede2ec-c107-4e56-84c2-2475379d2d5d.jpg?asset_id=efbb306a-372c-46ac-8fa7-e48d5b5f25df&amp;img_etag=%22ee30c1aa3aecdb61d55343d323d5192c%22&amp;size=2560)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/e3ede2ec-c107-4e56-84c2-2475379d2d5d.jpg?asset_id=efbb306a-372c-46ac-8fa7-e48d5b5f25df&amp;img_etag=%22ee30c1aa3aecdb61d55343d323d5192c%22&amp;size=1024)
+### 大卫作战室观点 Himalaya UK David’s War Room
 
-校对 上传 小鸥
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14125117/greenwald.jpeg)图片来自 The New Republic
-据福克斯11月13日的报道，《拦截》公司共同创始人格伦·格林瓦尔德(Glenn Greenwald) 辞职后，周四在新闻节目上流着眼泪痛心和愤概地揭露了某些民主党高层和前情报界人士阻碍他对亨特·拜登丑闻的曝光，他们将爆料真相视为“俄罗斯假信息”。
+#### 2020.11.05期
 
-曾获普利策奖的格林瓦尔德在亚塔克（Substack）发表的一篇文章中，猛烈抨击“无耻的说谎者”—— 亚当·施菲夫（Adam Schiff前情报界雇员）在10月16日CNN采访中对《纽约邮报》报道亨特·拜登的电子邮件做出的反应。这些邮件来自亨特·拜登的笔记本电脑，而这个亚当·施菲夫就是个信口雌黄的人。
 
-格林瓦尔德写道，沃尔夫·勃利兹（Wolf Blitzer）向他提出了一个毫无根据的假设的反问——“鲁迪•朱利安尼（Rudy Giuliani）提供的这些信息很可能与某种俄罗斯政府的虚假宣传活动有关，这让您感到惊讶吗？”而亚当·施菲夫明确表示是，“我们知道乔·拜登的整个诽谤都来自克里姆林宫，总统对拥有克里姆林宫的信息感到非常高兴，并帮助扩大它……在椭圆形办公室里，对普京的另一场精彩的宣传，美国总统举着报纸宣传克里姆林宫的消息。”
 
-施菲夫声称，“对于一些已经而且仍然没有证据的东西，俄罗斯人在收集和释放亨特·拜登的笔记本电脑内容方面发挥了作用。”这明显是施菲夫在说谎。
+#### 解读蚂蚁金服IPO叫停的背后逻辑！CCP央视告佐治亚州和密歇根州法官分别驳回川普总统两起选举诉讼！中共葫芦卖什么药…
+[![](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/2eb443a4-346b-422c-bf78-9de2ef846f09.png?asset_id=ff1d909c-9e9d-4cfe-a325-0ece53940cce&amp;img_etag=%22db6c708f1258917458e9c3d2a1f276d5%22&amp;size=1024)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/2eb443a4-346b-422c-bf78-9de2ef846f09.png?asset_id=ff1d909c-9e9d-4cfe-a325-0ece53940cce&amp;img_etag=%22db6c708f1258917458e9c3d2a1f276d5%22&amp;size=1024)
 
-在这之前《拦截》编辑爆料了“50多名前高级情报官员”，共同签署了一封信函，宣称亨特·拜登的电子邮件有“俄罗斯信息行动的所有经典专用标志”，格林瓦尔德提到了一份名单，其中包括前中央情报局局长约翰·布伦南，前国家情报局局长詹姆斯·克拉珀，他指责他们都是知名骗子。
+> A. 解读蚂蚁金服IPO叫停的背后逻辑
 
-格林瓦尔德说，这些前中央情报局官员及其雇员亚当·施菲夫（Adam Schiff）向美国公众传播了这一虚假信息，拜登竞选活动及其拥护的媒体就将这种虚假推断视为事实。格林瓦尔德说，“尽管我想报道的是事实，同时即使情报官员也足够谨慎地承认：’我们要强调……我们没有俄罗斯介入的证据’，这是一个非常关键的事实，许多媒体机构在清理中央情报局的宣传时都忽略了这一点，拜登（Biden）的竞选活动和亚当·希菲夫（Adam Schiff）将这些事实真相完全抹杀。”
 
-格林瓦尔德指出，“正如我宣布辞去《拦截》时候指出的，我对他们声称我在亨特·拜登电子邮件上的爆料没有满足他们所谓的高尚、严格编辑和事实检查的说法而感到愤慨，这也是因为同一份出版物只是反川普新闻网之一，以民主党的名义操纵选举结果，故意在没有任何对抗性的怀疑或更糟糕的在没有任何证据的情形下，故意洗刷了中情局和亚当·施菲夫的谎言。”
+1.IPO造假：蚂蚁金服根本没有空间支撑市盈率96.48倍； 资金主要来源互联网金融手续费却谎称是科创型企业。
 
-格林瓦尔德的结论是“这一虚假宣传活动已经完成了任务”，这“允许拜登通过选举，而不必回答关于这些电子邮件和家人在乌克兰和中共国工作的任何真相”。“不管怎样，我说的他们整个卑鄙的事情是真实的，没有证据显示俄罗斯人在任何事情中发挥过任何作用。 但他们以需要证据为借口，传播对核武大国俄罗斯的煽动性指控，他们的意图就是旨在诋毁和掩盖美国总统候选人拜登的丑恶行为。 他们所要的媒体只要有利于他们的党派，并推动他们所拥护的意识形态，就无需专业或名誉，可以在没有任何证据依据的情况下随意传播虚假信息。”
+2.蚂蚁金服公开募股、联合记帐的机构包括巴克莱，以及唯利是图的华尔街和江泽民温家宝王岐山背后的影子，都等着在这个IPO里边捡钱。
 
-“然而，我们再次发现，假新闻和虚假信息的传播者并不是美国主流媒体的敌人。 正是美国主流媒体本身，代表情报界和民主党联盟欺骗、宣传和传播虚假信息，远远超过任何其他派别或实体。”
+3.马云和他背后的太子党知道了爆料革命的威力，都想抓住最后的捞钱机会，蚂蚁金服迫不及待IPO上市。
 
-上个月，格林瓦尔德公开退出了他作为共同创始人的新闻机构《拦截》，因为他的编辑拒绝发表他的关于亨特·拜登的有争议的报道。
+4.蚂蚁金服紧急叫停，充分说明中共内部斗争，习与政治老人的斗争进入明面化。
 
-以上是根据福克斯新闻主播玛丽娅采访《拦截》共同创始人格伦·格林瓦尔德的新闻报道，从格林瓦尔德所揭示的有关信息可以看出，不仅《拦截》阻止他发表关于拜登家族丑闻的文章，他为此愤而辞职之后，发现某些民主党以及相关的情报官员为了掩盖拜登的罪恶将此类报道引向俄罗斯的虚假情报，以掩人耳目颠倒是非！对此他非常愤慨，他是正直善良的美国民众的代表。
 
-正在发生的美国总统大选，拜登勾结中共，收买大量媒体帮助他作假，大量人证物证已经揭示出这是一个早有预谋、有计划的大规模的系统欺诈与政变，而绝大多数媒体都成了他们的帮凶！
+[![](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/d38daf67-4192-4c87-be1d-a87ed6439f59.png?asset_id=08d00849-e697-49d7-a918-bf01518ca368&amp;img_etag=%226405f4956ea2ba71549bcbab80171d50%22&amp;size=1024)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/d38daf67-4192-4c87-be1d-a87ed6439f59.png?asset_id=08d00849-e697-49d7-a918-bf01518ca368&amp;img_etag=%226405f4956ea2ba71549bcbab80171d50%22&amp;size=1024)
 
-尽管格林瓦尔德从良知正义的立场希望揭露真相，也对某些民主党企图颠覆正义的美国意识形态表示愤慨，但他还没有体会到中共的邪恶。中共的目的就是千方百计推拜登上台，达到他们搞乱、渗透和颠覆美国的罪恶目的，最终让共产主义占领全球。
+> B. CCP报导佐治亚州和密歇根州法官分别驳回川普总统两起选举诉讼，中共葫芦卖的什么药？
 
-由郭文贵先生带领的新中国联邦用大量的事实真相唤醒了美国的正义力量，川普已经觉醒，由中共主导的这场世纪欺诈必招覆灭！正义力量必胜！
 
-原文链接：[https://www.foxnews.com/media/glenn-greenwald-tears-into-media-schiff-other-dems-for-dismissing-hunter-biden-controversy](https://www.foxnews.com/media/glenn-greenwald-tears-into-media-schiff-other-dems-for-dismissing-hunter-biden-controversy)
+1.中共与贪婪的华尔街的勾兑吸血的行为，早引起美国当前危机委员会重视及警告。
 
+2.如果川普总统连任成功，按照《国际紧急经济权力法》在美国的一系列中资企业中概股都会受到围剿，叫停供应链转移。
+
+3.这是中共所有盗国贼都害怕的，所以CCP要千方百计破坏川普总统连任。
+
+
+[![](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/d5d54911-9c82-40c4-90cd-a27f9eaaafab.png?asset_id=e848b19b-b162-4087-8954-0ac6984ba19c&amp;img_etag=%22e7a8cd5e105167306e394fc0c8434b92%22&amp;size=1024)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/d5d54911-9c82-40c4-90cd-a27f9eaaafab.png?asset_id=e848b19b-b162-4087-8954-0ac6984ba19c&amp;img_etag=%22e7a8cd5e105167306e394fc0c8434b92%22&amp;size=1024)
+
+> C. 败登家族和中共陷入进退维谷的境地
+
+
+1.三块硬盘，暴露CCP蓝金黄败登家族以达到控制美国的阴谋。CCP和败登家族牢牢地绑在了一起。
+
+2.CCP花大量资金助选拜登，却不敢恭贺拜登 “当选”， 进退维谷。
+
+3.大量证据直指民主党造假和违规操作，最终川普总统一定会连任成功。
+
+
+
+
+
+编辑【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/5l9wjBHP5vTCq/)
+
+**[点击关注大卫作战室Parler](https://parler.com/profile/David008/posts)**
+
+**[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)**
+
+**[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/user/5ee680a45bd6f123dd104807)**
+[![](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/4b4b8dee-2539-4e6f-8402-d252f8bc7c26.jpg?asset_id=5e203867-2df9-4e0f-bf60-a58bfdf4444a&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=1024)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/4b4b8dee-2539-4e6f-8402-d252f8bc7c26.jpg?asset_id=5e203867-2df9-4e0f-bf60-a58bfdf4444a&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=1024)
 0

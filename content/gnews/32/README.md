@@ -1,60 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Dominion公司主管承认投票数据可被操纵
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/558811/)
+## 联邦选举委员会主席投下炸弹：“本次选举违宪。”
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/559049/)
 
-*多伦多加喜农场 香江小哥
-校对 文锦 上传 WJ*
+*新闻来源：《Recentlyheard》；作者：Rajesh Khanna；发布时间：2020年11月 11日*
 
-据Gateway Pundit11月13日报道，在Dominion Voting Systems公司，埃里克·库默（Eric Coomer）博士是负责投票系统策略和安全性的主管。现在，如果搜索该公司，其个人资料已在公司董事页面中被删除。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14121903/EmqmQDrVoAArKVk.png)图片来源：threadreaderapp.com
-2020年11月12日，川普总统在Twitter上发推声称，“ DOMINION夺走了全美国270万张川普的选票”。川普总统竞选律师林-伍德（Lin Wood）随即也发布了一系列推文，均剑指中共是美国选举欺诈行为的幕后推手。并警告说，中共以CCP病毒和Dominion袭击了美国。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14121454/Dominion-1.jpg)
-深挖Dominion公司，根据该公司策略与安全主管埃里克·库默（Eric Coomer）在2016年的信息，该公司的投票软件系统存在漏洞，软件供应商和选举官员都可以绕过该选举系统软件直接操作选举数据表，从而操纵投票。在社交媒体Twitter平台，已经有正义感的美国人开始站出来调查Dominion公司，埃里克·库默的“Antifa”背景和该公司与Clinton Global Initiative的联系。然而，Twitter公司直接关闭了调查人（Joe Oltmann）的账号。
+*翻译/简评：MikeHua；校对：感恩；审核：freedust；Page：Eric8848*
 
-早在2016，库默就告诉了伊利诺伊州选举委员会（the Illinois States Board of Elections），Dominion投票系统存在绕过选举系统软件直接操作选举数据表的可能性。
+**简评：**
 
-以下是2016年电子邮件中的内容：
+继参议院多数党领袖麦康奈尔、国务卿彭培奥和诸多共和党建制派大佬表态支持川普总统之后，联邦选举委员会主席特雷纳投下重磅，宣布本次选举违宪。很明显是拜登竞选团队在违宪。选举委员会主席称许多州的地方法律和宪法冲突，如宾州法律规定观察员需要在6英尺以外观察，这就是违宪。联邦选举委员会如此说，再加上亚利桑那州已经反转，可见拜登大势已去，现在出来蹦跶还想要入主白宫而且声称自己已经组建了执政团队，真是荒唐可笑。
 
-*库默博士的声明暴露了一个非常严重的问题，所有选民都应该理解。每次更改硬件或软件时，都必须重新认证投票系统。重新认证是一个昂贵且耗时的过程。 Coomer博士告诉董事会的是，Dominion Voting不会在发现威胁到其代码的情况时再进行软件的重新认证。相反，他们依靠选举后的审计并向选举辖区提供有关安全的建议。我已经阅读了Dominion制作的所有重新认证文件，并且出于安全目的，我不记得进行任何软件调整。*
+即使在这种情况下，左派媒体仍然坚称拜登胜选，仍然还有大科技公司审查川普总统的言论，仍然有这么多被中共蓝金黄和控制的力量站出来和司法对抗，可见共产党对美国控制之深。如果没有爆料革命，没有新中国联邦，美国这次可就真的大事不好。相信在选举尘埃落定，在美国的规则下，拜登输的心服口服之后，灭共大锤一定如雨点般的砸向中南坑，美国一定会回归正轨，中国人民一定会得到自由！
 
-*这是您投票安全的现实。不会对在伊利诺伊州乃至整个美国进行计数和记录投票的软件系统进行更新，以解决安全问题，即使解决了这些问题，也可以通过访问驱动系统的数据表来完全绕开该软件。*
+# 联邦选举委员会主席投下炸弹：“本次选举违宪。”
 
-根据YouTube[视频](https://youtu.be/BbCmq0jPUxY)的信息，埃里克·库默同时承认，他们不会更新软件以防止选民欺诈。因此，该漏洞也在2020年的投票系统软件中存在。
+[!\[\]()!\[\](https://spark.adobe.com/page/dyiQW6sUXs7Jh/images/3f7d295e-af7b-4ac9-bc15-928ca9c140ed.jpg?asset_id=d4bc81e7-33c4-496a-b9ad-8057e8982c21&amp;img_etag=%229f422fb3df6a95a94fbbd6cd1e1a4cbd%22&amp;size=1024)](https://spark.adobe.com/page/dyiQW6sUXs7Jh/images/3f7d295e-af7b-4ac9-bc15-928ca9c140ed.jpg?asset_id=d4bc81e7-33c4-496a-b9ad-8057e8982c21&amp;img_etag=%229f422fb3df6a95a94fbbd6cd1e1a4cbd%22&amp;size=1024)
 
-在克林顿全球倡议（Clinton Global Initiative）中，有关于Dominion的介绍：Dominion的投票系统被认为可以令到选举更加安全，并通过DELIAN Project的慈善项目提供给了新兴民主国家。
+联邦选举委员会主席发表了重磅声明，声明中说根据他在宾州所见所闻，以及世界各地的新闻，他认为本次选举违宪。
 
-在美联社9月的文章中也提到了埃里克·库默。当时，Dominion 公司将投票系统以1亿美金的价格卖给州，然后州选举官员将159份软件驱动派发给了各个郡的选举官员，该软件被安装到了上百台的选举投票机器中。
+这是爆炸性的新闻。选举委员会主席特瑞•特雷钠（Trey Trainor）声明说，以他的专业知识所见，“公投不是公开的”并且“本次选举无效。”
 
-面对当前无法解释的计算机“故障”的消息，企业家乔·奥尔特曼（Joe Oltmann）本周研究了Dominion投票系统，他发现该故障在许多州神秘地将投向川普总统的票计给乔·拜登，或者完全抹掉了选票。同时，乔·奥尔特曼（Joe Oltmann）对埃里克·库默个人进行了深入调查。奥尔特曼在Twitter上贴出了库默六月份的Facebook帖子，这是一份他转推给川普总统的“Antifa”宣言信。很显然，库默博士不是川普的支持者！
+他在真正的自由媒体Newsmax上投下这个炸弹，他在节目上说：“在一些区域存在选举欺诈。”
 
-奥尔特曼还发布了库默在反川普方面的其他帖子，其中包括一段标题为“ Dead Prez”（死亡的总统）的YouTube视频。昨晚，Twitter出于不可描述的原因删除了奥尔特曼的账号，而他仅仅是调查了库默的极左背景以及他在Dominion的角色。
+没有任何正当理由拒绝观察者进入计票室。根据此事实，计票非法。这不是随便一个人说的。特雷钠不只是一个州属选举官员，他是联邦官员。
 
-在2020年大选中，竟然整个美国使用了这样一款存在已知漏洞的投票软件，并且完全不允许其他人公开质疑。Dominion和Twitter明明是两家各自独立的公司，Twitter为何要在社交媒体极力掩盖Dominion相关的信息，这背后的隐藏力量实在令人惊讶。
+不仅如此，他还是选举委员会主席。不像那些左派媒体人士急急忙忙宣布民主党赢得州选及拜登赢得总统选举，特雷钠对选举公正性还是有所了解的。
 
-*[原文链接](https://www.thegatewaypundit.com/2020/11/dominion-voting-systems-officer-strategy-security-eric-coomer-admitted-2016-vendors-election-officials-access-manipulate-vote/?utm_source=Twitter&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)*
+在Newsmax的节目上，特雷钠主席说：“在获得法院允许川普竞选团队派遣观察员到滨州计票点六英尺以外观察计票的命令之后，‘计票点实质上没有允许观察员进行观察。’”
 
-*相关文章：*
+特雷钠指出“就好像观察员可以看，但是投票点被拉的很远。”简单讲，“本次选举没有可靠性。”
 
-[川普总统竞选律师Lin Wood指出：中共用COVID和Dominion攻击美国](https://gnews.org/zh-hans/555171/)-Gnews
+“我们的政治文化就是关注于可靠性，以防止腐败的出现，”特雷钠说。“州法律要求观察员在场。如果该规则没人遵守，选举则是‘非法’。”
 
-[“Dominion”这个鬼将把它的主人引向何方？](https://gnews.org/zh-hans/553176/)-Gnews
+周日川普团队召开了新闻发布会发表了他们自己的声明。
 
-[独家重磅深挖：收购计票公司Dominion的私募基金Staple Street Capital 牵扯出巨大的政治背景](https://gnews.org/zh-hans/552604/)-Gnews
+他们同时宣布他们会在法庭上开启法律战。正如朱利安尼（Rudy Giuliani）所说，媒体不能决定谁胜选，法官决定。
 
-[Dominion投票系统造假揭开中美黑暗势力沆瀣一气](http://-	%20https://gnews.org/zh-hans/554602/)-Gnews
+被川普总统称为“老牌德州快枪手” 的特雷纳主席全程和他们在一起。他承认川普团队说的都是“可信的指控，”这些需要被司法系统“完全测试。”他预期这些指控严重到要“到最高法庭裁定。”
 
-[Dominion投票公司的员工, 96％的政治捐款投给了民主党](http://-	https://gnews.org/zh-hans/554768/)-Gnews
+[原文链接](https://recentlyheard.com/2020/11/11/president-of-the-federal-election-commission-drops-bombshell-this-election-is-unconstitutional/)
 
-[Dominion 投票机的秘密 —— 另一条执行线路](http://-	%20https://gnews.org/zh-hans/551234/)-Gnews
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-[深度分析：投票机Dominion 背后的大佬—凯雷基金和马云](https://gnews.org/zh-hans/550888/)！-Gnews
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-[员工爆料！Dominion选票软件重复计票！至少8-10次](https://gnews.org/zh-hans/553515/)-Gnews
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/dyiQW6sUXs7Jh/)
 
-[正在发生：川普竞选律师指出多米尼克 (Dominion) 软件欺诈：“中国共产党严重干预了我们的选举–真相”](https://gnews.org/zh-hans/552579/)-Gnews
+[!\[\]()!\[\](https://spark.adobe.com/page/dyiQW6sUXs7Jh/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/dyiQW6sUXs7Jh/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
-
-
-0
+3+

@@ -1,78 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 惩贼黄河边 来抹黑的都有谁？
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/558390/)
+## 【三票专栏】正道主义论（上）
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/557392/)
 
-*多伦多加喜农场 Athena
-校对 小鸥 上传 WJ*
+作者：纽约香草山金融部  三票先生 校对/发稿：飞虹
 
-10月29日，扫黄遛狗第46天，两个自称记者的人士来到抗议现场设套采访。这段时间，很多战友都想了解后续报道。来而不往非礼也，这次扒一扒。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
 
-《多伦多星报》（Toronto Star）于10月31日发表了香港裔Joanna Chiu抹黑战友的文章。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14090651/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE4.png)图片来源：Twitter
-Joanna Chiu曾为法新社、德国DPA新闻社驻中共国记者。在香港，她曾为《 南华早报》、《经济学人》 和 美联社报道。她是NüVoices编辑集体的创始人兼主席，曾为《卫报》、《外交政策》、《 BBC世界》、《半岛电视》和《 环球邮报》 等媒体出稿。
 
-Joanna Chiu在“Confessions of a ‘model minority’: How I’m learning to confront my own biases”（译为《对“模范少数民族”的自白：我如何学习面对自己的偏见》）一文中提到了在中共病毒疫情中宣扬仇华的话题，以及她自己对“黑命贵”的支持与研究。她曾写过“The most influential Canadian policy-maker of the year? Chinese president Xi Jinping”（《年度最有影响力的加拿大决策者？中共国主席习近平》）。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14011836/%E5%9B%BE%E7%89%8740.png)
+郭文贵先生倡导的正道主义的精神贯穿于6月4日发布的《新中国联邦宣言》之中，其主要核心就是：**信仰、正义、良知、宪政、尊严。**
 
-《多伦多星报》是加拿大发行量最大的报纸，由托斯塔公司（Torstar Corporation）拥有。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14090846/1200px-Torstar_Corporation_Logo.svg_.png)图片来源：Wikipedia
-托斯塔公司出版70多种报纸，并通过其主要业务部门——每日新闻品牌，社区品牌和数字风投（Digital Ventures）在加拿大经营数十家数字业务。该公司业务遍及加拿大和世界各地。托斯塔公司还投资了Blue Ant Media Inc.，Canadian Press Enterprises Inc.，Black Press Limited，Nest Wealth和TeamSnap。
+正道者，歪门邪道之对立面也。歪门邪道者，中共之道也。《新中国联邦宣言》对中共的邪恶本质已经做了非常深刻的阐述，笔者在5月3日GNEWS发表的《十权一统：看中共的极权统治》（ [https://gnews.org/zh-hans/193423/](https://gnews.org/zh-hans/193423/)）中也有论述。从本质上说，中共就是打着马列主义歪理邪说的幌子，披着儒家文化温情脉脉的外衣，实际上是一个集哲学上的辩证唯物主义、经济上的公有制和政治上的商鞅驭民五术为一体的邪魔怪胎，集古今中外邪恶之大成。他们以革命的名义杀人，以公有的名义掠财，以改革的名义分赃，又以开放和全球化的名义祸害全球。所以我们就从分析中共的邪道来阐述郭先生的正道。
 
-加拿大华人熟知的大外宣《加拿大星岛日报》就是由托斯塔公司与香港的星岛新闻集团有限公司共同拥有。
+**正道主义第一条：有信仰**
 
-2020年8月5日，托斯塔被NordStar Capital收购，该公司由多伦多商人乔丹·比托夫（Jordan Bitove）和保罗·瑞维特（Paul Rivett）拥有。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14094351/NordStar-Capital_logo-480x88-1.png)图片来源：nordstarcapital.ca
-马其顿裔比托夫家族在加拿大很有影响力。乔丹·比托夫的的父亲约翰·比托夫（John Bitove Sr.） 生前政商影响力巨大，目前比托夫家族活跃在加拿大体育、电信、医疗、金融等领域，其中小约翰·比托夫（John I. Bitove Jr.）是NBA成员多伦多猛龙队的创始人。
+辩证唯物主义是马克思主义的三个组成部分之首，它有唯物主义和辩证法两个层面。**唯物主义的核心就是无神论，中共在大陆篡政后干的最邪恶的事就是宣扬无神论，摧毁了中国人的信仰**。自汉武帝独尊儒术开始，中国帝王信奉的是商鞅的法术，但知识精英阶层和民间社会实际上有儒释道三大准宗教，后来伊斯兰教和基督教进入中土。中共出现后，经过延安整风和反右运动，彻底摧毁了知识分子的儒教信仰。之后的文革时代和“批林批孔”运动中，中共只许全民信奉马列主义和毛思想，彻底打烂封资修，禁止一切其他信仰，砸烂宗教场所。他们砸孔庙掘孔墓，逼喇嘛和尼姑媾合，逼维族穆斯林吃猪肉，藏区不断发生喇嘛因捍卫信仰而自焚的事件。他们残酷迫害和镇压法轮功，打压和抓捕民间自发的地下天主教会，屡次拆毁教堂，焚烧十字架，在教堂、寺庙和道观中悬挂中共党旗和习近平画像，有些寺庙早晨僧侣们要举行升国旗唱国歌仪式，学习习近平思想，唱红歌，甚至有寺庙悬挂“没有共产党就没有如来佛”的横幅。在新疆，中共拆毁众多清真寺，关押200万穆斯林。更有甚者，中共居然要修改《圣经》和《古兰经》的教义！令人瞠目结舌。
 
-《环球邮报》（The Global and Mail）在11月1日 出了抹黑战友的报道，记者为Xiao Xu，会普通话，进《环球邮报》前曾在加拿大中文电台Fairchild Radio工作。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14091117/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE676.png)图片来源：The Global and Mail
-Xiao Xu曾写让亚裔给中共放毒背锅的文章“Data shows an increase in anti-Asian hate incidents in Canada since onset of pandemic”（《数据显示，自疫情大流行以来，加拿大的反亚裔仇恨事件有所增加》），以及吹捧加拿大的WHO走狗谭咏诗及各级卫生官员的文章“Death threats among abuse reported by B.C. Provincial Health Officer Bonnie Henry, other officials”（《不列颠哥伦比亚省卫生官员Bonnie Henry和其他官员报告的受虐行为中含死亡威胁》）
-可笑的是，《环球邮报》在抹黑战友的文章下面跟着转推了“如果加拿大人可以投票，拜登将获压倒性胜利”。其立场一目了然。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14091225/WhatsApp_Image_2020-11-01_at_23.02.46.jpeg)图片来源：Twitter
-加拿大第二大媒体《环球邮报》由谁控制呢？
+文革后，马列主义毛思想在中国事实上破产，“8964”大屠杀后，中国人心中残存的最后一丝信仰被彻底打碎，中国进入了一个信仰真空时代。随之而来的经济改革让拜金主义、社会达尔文主义趁虚而入，官场信奉《商君书》，民间一本《厚黑学》，让人们变得没有敬畏，没有底线。于是官场贪腐横行，大官大贪小官小贪无官不贪，连救命的扶贫款、救灾款、低保款都敢贪，导致了杨改兰这样的人间惨剧。上层的贪腐更是触目惊心，仅海航一个公司就被王岐山家族贪腐了上万亿！堪比和珅，而具有讽刺意味的是王岐山是中共反腐败的最高官员。民间进入互害模式，毒奶粉、毒大米、地沟油、假酒假药假合同，连假造幼儿疫苗这样断子绝孙的事都敢做！一切向钱看，社会资源被掠夺式开发，人民赖以生存的土地、空气、水均被污染。可怜我大好河山、大好人民被中共的唯物主义无神论荼毒戕害！
 
-2010年底，汤森家族通过其总部位于多伦多的控股公司伍德布里奇（Woodbridge），获得了对《环球邮报》的直接控制权，持有其85％的股份。加拿大贝尔（Bell Canada Enterprises Inc简称BCE）持有15％的股份。2020年4月6日，汤森路透集团董事会主席——大卫·汤姆森(David Thomson)家族以2500亿元人民币财富名列《胡润全球百强企业家》第25位。
+《新中国联邦宣言》将“信仰自由”列入新中国联邦新宪法第一条“国家精神”之中，文贵先生的正道主义第一条就是：有信仰。
 
-汤姆森家族跟中共国的交情，在30多年前就开始了，肯尼斯·汤姆森（Kenneth Thomson）的父亲罗伊·汤姆森（Roy Thomson），曾受到周恩来总理的接见。有“加拿大默多克”之称的巨富肯尼斯·汤姆森从父亲手中继承了汤姆森公司，又把它传给了儿子大卫·汤姆森（David Thomson）。结识肯尼斯34年之久的加拿大TD银行董事长兼总裁查尔斯·贝利称，“汤姆森对投资哪些领域，具有非凡的判断力。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14093712/MW-GD847_David__20180215103214_ZQ.jpg)大卫·汤姆森 图片来源：marketwatch.com
-汤姆森公司由曾经单一的架构演变成两个互相独立的控股公司。其中汤姆森公司是一家公开上市的企业，总部位于美国威斯康星州的斯坦福市。而总部位于多伦多的伍德布里奇投资公司则是非上市公司，由汤姆森家族控股70％，旗下再控股40％的贝尔环球媒体，后者拥有《环球邮报》和加拿大最大的商业电视网络CTV。
+**正道主义第二条：明事理分是非辩善恶致良知**
 
-伍德布里奇是跨国媒体集团汤森路透公司（Thomson Reuters Corporation）的主要和控股股东（62.35％）。汤森路透(Thomson Reuters)成立于2008年4月17日，是由加拿大汤姆森公司(The Thomson Corporation)与英国路透集团(Reuters Group PLC)合并组成的商务和专业智能信息提供商。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14092501/justin-trudeau.jpg.size_.custom.crop_.1086x741.jpg)加拿大总理特鲁多在汤森路透会上讲话，2016年 图片来源：borndigital.com
-汤姆森公司除了《环球邮报》以外， 还拥有Westlaw、FirstCall、Medstat等品牌的世界上最大信息服务业务，通过互联网向各类专业人员，如医生、律师、金融家提供各种专业数据，收取高额的订阅费用。汤姆森公司同时经营学术出版业，出版多种教科书。
+辩证法原本是一个哲学思辨层面的逻辑判断工具，其主要思想在于“一分为二”和“对立统一”。但邪恶的中共把逻辑判断无限扩展到事实判断和价值判断，把人民的思维引向了他们需要的邪路。
 
-汤姆森集团的主要业务包括四个部分：法律法规、教育、金融、科技与健康。业务分布北美、欧洲及亚太各地。其中汤森路透旗下的汤姆森科技于1998年进入中共国，汤姆森科技是中共国国家知识产权局的合作伙伴，为专利审查提供关键工具。它还同中（共）国科学院合作主办了中（共）国科学引文数据库，是第一家用英文提供中（共）国实用新型专利注册信息全部内容的专利信息提供商；其客户包括中（共）国科学院和国家图书馆。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14091352/%E6%B1%A4%E6%A3%AE%E8%B7%AF%E9%80%8F.png)图片来源：tongxieyi.com
-目前，汤森路透在整个中共国雇用了超过1500名员工，在中共国大陆的雇员总人数超过900人，在北京、上海、深圳、广州、香港和台湾均设有办事处。与阿里巴巴、中国银行、黑石集团等均有关联。
+举个例子。同一张试卷，学生A考了80分，学生B考了30分，谁好谁坏一目了然。但是辩证法告诉你要辩证地看问题，学生B的成绩固然不好，但学生A也有错也没有满分，况且A上次90分这次退步了，B上次才20分这次进步了，得出A不比B好甚至B优于A的结论。从常识判断这个结论是荒唐的，但是我们经常发现中共把这个荒谬逻辑用在其他方面混淆视听。
 
-在摸完这些报纸的背景后，笔者已无力关注前台跳梁的小记者，而是对资本大佬如八爪鱼般控制各个领域感到后脊发凉。如果不是爆料革命，可能还在心甘情愿为读这些洗脑新闻而付费，并在生活中不知不觉被这些财团所影响、控制。像郭先生最近说的那样，旧的世界会被改变，新的世界即将到来，请在心底永远保有雅典娜送出的祝福——希望！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14091744/001-1-1.jpg)
-参考资料：
-[Joanna Chiu](https://joannachiu.com/about/)
+比如，有人批评中共的人权，中共就说你要辩证地看这个问题，美国的人权也很糟，经常出现黑人被白人警察暴打虐待甚至丧命，经常有枪击案抢劫案，云云。中国的人权在不断进步，人民生活水平在不断提高，前中共派驻联合国担任副秘书长的沙祖康甚至得出“中共的人权比美国好五倍”这样贻笑大方的结论，而中共人权恶劣的事实被掩盖了。
 
-[大卫·汤姆森-百度百科](https://baike.baidu.com/item/%E5%A4%A7%E5%8D%AB%C2%B7%E6%B1%A4%E5%A7%86%E6%A3%AE)
+比如，有人说民主国家人民有选票，比一党专制好。中共就说你要辩证地看这个问题，南美很多国家也是民主选举，但是经济落后社会混乱；美国的选举耗费大量社会资源，受财团控制，还会造假，你就只有一票有什么用。候选人之间公开互相攻击揭老底，暴露出很多丑闻。政府受议会制约，效率和公平都有问题，议会不给预算连公路和机场都很破旧没钱修。还是我们的中共领导下的多党合作制最好，我们可以集中力量办大事，经济发展和城市发展快，已经成了全球第二大经济体了，很快就要超过美国了，云云。常说的一句话就是“民主不能当饭吃”，得出的结论就是中共的极权制度是最好的，还要向全球输出中共治理模式，而民主制度优于专制制度的事实被遮掩了。这一点非常蛊惑人心。
 
-[大卫·汤姆森-西山书院](http://www.xssy.org/consultation/consultation01-38.html)
+比如，有人揭露中共做了很多坏事，中共就说你要辩证地看这个问题，要结合中国的具体国情。中共虽然做了很多错事，但中共还是为人民做了很多好事，同10年20年前比你们家的生活水平是不是有了很大提高和改善？况且中共能够不断自我改正错误，平反冤假错案，这需要多么大的勇气啊。所以要用辩证的发展的眼光看问题，在发展中解决问题，要提出建设性的建议而不要一味发牢骚，要看到发展是主要的问题是次要的，要唱响主旋律弘扬正能量。况且中国的国情复杂，没有中共的坚强领导就会天下大乱，苦的还是老百姓。得出的结论就是中国离不开中共，而中共作恶的事实被忽略了。这一点也非常能蛊惑人心。
 
-[汤森路透-百度百科](https://baike.baidu.com/item/%E6%B1%A4%E6%A3%AE%E8%B7%AF%E9%80%8F)
+由此可见辩证法是个筐，什么东西都可以往里装。**中共就是这样把辩证法这个逻辑判断工具上升到意识形态层面的价值判断的高度，用逻辑判断混淆和掩盖事实判断和价值判断，**于是事实被模糊或者掩盖，而是与非、善与恶、正与邪被一分为二而又对立统一，造成事理不明、是非不分、善恶不辨、正邪不清，最终丧失良知，加上没有信仰，剩下的就只有功利的算计。
 
-[Thomson Reuters-Wikipedia](https://en.wikipedia.org/wiki/Thomson_Reuters)
+这个问题在灭共这件事上表现得非常突出，很多人为了眼前的蝇头小利而罔顾中共作恶的事实和本性，企图维护中共保住既得利益，继续过岁月静好自欺欺人的生活。殊不知中共这个魔鬼既然能给你利益，也能轻易夺走你的利益，任何与魔鬼做交易的人都没有好下场，中共的魔爪会伸向所有人，做官如周永康薄熙来、商人象王健吴小晖这样的人物尚且无法逃脱凄惨的命运，遑论普通白丁。所以文贵的正道主义就是要我们明事理、分是非、辩善恶、致良知！
 
-[The Woodbridge Company- Wikipedia](https://en.wikipedia.org/wiki/The_Woodbridge_Company)
+（待续）
 
-[The Globe and Mail-Wikipedia](https://en.wikipedia.org/wiki/The_Globe_and_Mail)
 
-[Resources for China watchers to fight anti-Black racism](https://nuvoices.com/2020/06/07/resources-for-china-watchers-in-solidarity-with-anti-black-racism/)
 
-[Torstar](https://www.torstar.com/company/overview)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
 
-[JOHN LOUIS NICHOLAS BITOVE](https://www.legacy.com/obituaries/thestar/obituary.aspx?n=john-louis-nicholas-bitove&amp;pid=175452684)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-[汤森路透助力阿里巴巴法律科技峰会](https://bigdata.huanqiu.com/article/3wBdlfwl6sM)
-
-[中银香港采用汤森路透外汇平台FX Trading，以获取更多流动性](https://www.sohu.com/a/198320067_189372)
-
-[汤森路透将F&R部门55%股权售予黑石的交易已经完成](https://cn.reuters.com/article/thomsonreuters-blackstone-refinitiv-1002-idCNKCS1MC061)
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上8:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
