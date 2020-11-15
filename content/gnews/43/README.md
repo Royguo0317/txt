@@ -1,64 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 大卫作战室观点 &#8211; 进退维谷
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/558951/)
+## 捍卫宪法权力 拒绝选民欺诈
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/559102/)
 
-[![](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/e3ede2ec-c107-4e56-84c2-2475379d2d5d.jpg?asset_id=efbb306a-372c-46ac-8fa7-e48d5b5f25df&amp;img_etag=%22ee30c1aa3aecdb61d55343d323d5192c%22&amp;size=2560)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/e3ede2ec-c107-4e56-84c2-2475379d2d5d.jpg?asset_id=efbb306a-372c-46ac-8fa7-e48d5b5f25df&amp;img_etag=%22ee30c1aa3aecdb61d55343d323d5192c%22&amp;size=1024)
-### 大卫作战室观点 Himalaya UK David’s War Room
+草原三省战友团 重生之鹰
 
-#### 2020.11.05期
+校对 鹰嘴逗逗 上传 XM
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14155301/%E5%9B%BE%E7%89%874-13.jpg)图片来源：m.123ru.net
+据零对冲（ZeroHedge）11月12日报道，川普总统的私人律师鲁迪·朱利安尼(Rudy Giuliani)在11月11日声称：“在宾夕法尼亚州费城和匹兹堡大约有65万张非法选票。”
 
+在接受福克斯商业频道采访时，朱利安尼表示：“共和党的投票观察员几乎没有观察到数十万张选票中的任何一张。州选举法要求各党派的投票观察员在场。” 他说:“我们现在清点的是在费城和匹兹堡投出的大约65万张非法选票。大众媒体所说的那些我们没有证据完全是一个谎言，就像媒体多年来一直在撒谎一样。”
 
+几天前，朱利安尼表示，川普的竞选团队可能有足够的证据改变宾夕法尼亚州的选举结果。周日，他告诉福克斯新闻的玛丽亚.贝蒂洛姆（Maria Bartiromo)，川普连任竞选团队提起的诉讼可能表明, “战场州”有多达90万张无效选票。根据宾夕法尼亚州务院的非官方计票结果显示，拜登获得了335万张选票，川普获得了331万张选票。按百分比计算，拜登的支持率为49.7%，川普的支持率为49.1%。
 
-#### 解读蚂蚁金服IPO叫停的背后逻辑！CCP央视告佐治亚州和密歇根州法官分别驳回川普总统两起选举诉讼！中共葫芦卖什么药…
-[![](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/2eb443a4-346b-422c-bf78-9de2ef846f09.png?asset_id=ff1d909c-9e9d-4cfe-a325-0ece53940cce&amp;img_etag=%22db6c708f1258917458e9c3d2a1f276d5%22&amp;size=1024)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/2eb443a4-346b-422c-bf78-9de2ef846f09.png?asset_id=ff1d909c-9e9d-4cfe-a325-0ece53940cce&amp;img_etag=%22db6c708f1258917458e9c3d2a1f276d5%22&amp;size=1024)
+朱利安尼在回答主持人提出的证据是否足以改变总统选举命运的问题时说：“我想我们有足够的证据来改变宾州，宾州的选举是一场灾难。有人看到有些人被赶出投票站；有些人被建议使用另外一种方式投票，并被展示如何去做。我现在给你看个大概。”  “在邮寄选票统计期间，共和党匹兹堡的观察员被禁止进入投票室，或远离投票室24小时之久。”  “即使法院裁定，我们可以站在6英尺远近，民主党看守机器的人还是把点票台又移远了6英尺。这在录像带上有记录，并且有50多名目击证人。”
 
-> A. 解读蚂蚁金服IPO叫停的背后逻辑
+周一, 川普竞选团队推出了一个新诉讼，旨在阻止宾夕法尼亚州对选举结果的认证, 声称该州对有争议的邮寄选票在民主党县和共和党县采取双重标准；共和党观察员离计票台的距离，使得他们无法在真正意义上起到观察计票过程的作用。
 
+川普竞选团队的法律总顾问马特·摩根(Matt Morgan)在周一的新闻发布会上解释说：“如果你是费城的民主党人，你可以超出宾夕法尼亚州的法规修复破损的选票。“ “但如果你在宾夕法尼亚州的共和党县，你却不被允许这样做，他们严格地使用宾夕法尼亚州的法规来限制你。”
 
-1.IPO造假：蚂蚁金服根本没有空间支撑市盈率96.48倍； 资金主要来源互联网金融手续费却谎称是科创型企业。
+该诉讼还包括伊利县的一名邮政工人，他声称：“他听到他的上司谈到要非法地给迟到的选票盖上前几日邮戳，使选票看起来合法。” 参议员林赛·格雷厄姆(Lindsey Graham)在给司法部的一封信中也引用了这个邮政工人的说法，信中要求对此案进行联邦调查。
 
-2.蚂蚁金服公开募股、联合记帐的机构包括巴克莱，以及唯利是图的华尔街和江泽民温家宝王岐山背后的影子，都等着在这个IPO里边捡钱。
+简评：在主要的决战州宾州出现的65万张非法选票和其它严重违反选举法的行为，说明选票的造假行为已经到了疯狂的程度，他们光天化日下的违反选举法的行为瞒不过选民的眼睛，越来越多坚决捍卫美国宪政尊严的正义人士和目击证人将站出来。爆料革命将和美国人民一起揭露真相，深挖出背后的干预美国大选的魑魅魍魉。坚信那个一直承受着媒体和各方面暗势力狂风暴雨般攻击、陷害和羞辱的伟大的川普总统不会倒下！他终将唤醒和拯救美国人，为了共同的价值而战，坚决捍卫美国宪法的尊严，并带领世界人民一起走向民主、法治、自由之路！
 
-3.马云和他背后的太子党知道了爆料革命的威力，都想抓住最后的捞钱机会，蚂蚁金服迫不及待IPO上市。
+参考链接：
 
-4.蚂蚁金服紧急叫停，充分说明中共内部斗争，习与政治老人的斗争进入明面化。
+[https://www.zerohedge.com/political/giuliani-650000-votes-were-counted-unlawfully-philadelphia-and-pittsburgh](https://www.zerohedge.com/political/giuliani-650000-votes-were-counted-unlawfully-philadelphia-and-pittsburgh)
 
-
-[![](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/d38daf67-4192-4c87-be1d-a87ed6439f59.png?asset_id=08d00849-e697-49d7-a918-bf01518ca368&amp;img_etag=%226405f4956ea2ba71549bcbab80171d50%22&amp;size=1024)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/d38daf67-4192-4c87-be1d-a87ed6439f59.png?asset_id=08d00849-e697-49d7-a918-bf01518ca368&amp;img_etag=%226405f4956ea2ba71549bcbab80171d50%22&amp;size=1024)
-
-> B. CCP报导佐治亚州和密歇根州法官分别驳回川普总统两起选举诉讼，中共葫芦卖的什么药？
-
-
-1.中共与贪婪的华尔街的勾兑吸血的行为，早引起美国当前危机委员会重视及警告。
-
-2.如果川普总统连任成功，按照《国际紧急经济权力法》在美国的一系列中资企业中概股都会受到围剿，叫停供应链转移。
-
-3.这是中共所有盗国贼都害怕的，所以CCP要千方百计破坏川普总统连任。
-
-
-[![](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/d5d54911-9c82-40c4-90cd-a27f9eaaafab.png?asset_id=e848b19b-b162-4087-8954-0ac6984ba19c&amp;img_etag=%22e7a8cd5e105167306e394fc0c8434b92%22&amp;size=1024)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/d5d54911-9c82-40c4-90cd-a27f9eaaafab.png?asset_id=e848b19b-b162-4087-8954-0ac6984ba19c&amp;img_etag=%22e7a8cd5e105167306e394fc0c8434b92%22&amp;size=1024)
-
-> C. 败登家族和中共陷入进退维谷的境地
-
-
-1.三块硬盘，暴露CCP蓝金黄败登家族以达到控制美国的阴谋。CCP和败登家族牢牢地绑在了一起。
-
-2.CCP花大量资金助选拜登，却不敢恭贺拜登 “当选”， 进退维谷。
-
-3.大量证据直指民主党造假和违规操作，最终川普总统一定会连任成功。
-
-
-
-
-
-编辑【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/5l9wjBHP5vTCq/)
-
-**[点击关注大卫作战室Parler](https://parler.com/profile/David008/posts)**
-
-**[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)**
-
-**[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/user/5ee680a45bd6f123dd104807)**
-[![](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/4b4b8dee-2539-4e6f-8402-d252f8bc7c26.jpg?asset_id=5e203867-2df9-4e0f-bf60-a58bfdf4444a&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=1024)](https://spark.adobe.com/page/5l9wjBHP5vTCq/images/4b4b8dee-2539-4e6f-8402-d252f8bc7c26.jpg?asset_id=5e203867-2df9-4e0f-bf60-a58bfdf4444a&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=1024)
 0
