@@ -1,31 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 媒体隐瞒亨特·拜登丑闻，企图抢走川普的胜选
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/559105/)
+## 爆革星评：闫丽梦博士生日快乐
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/559354/)
 
-多伦多加喜农场 文静
+多伦多加喜农场 文星（一号）
 
-校对上传 HUH
-[![美国大选：当选总统拜登的八大关键政策立场- BBC News 中文](https://ichef.bbci.co.uk/news/640/cpsprodpb/1899/production/_115279260__114676281_dem_manifesto_biden_index_promo976.png)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fworld-54859067&amp;psig=AOvVaw0RhY3_7QLBGxzVZO24TUbP&amp;ust=1605474990145000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCKDRr9f6gu0CFQAAAAAdAAAAABAJ)BBC.com
-在一项新的调查中，4.6%的拜登选民表示，如果他们知道亨特.拜登在中共国的金钱关系，他们不会投票给乔.拜登。
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14185803/%E9%97%AB.jpg)图片来自战友创作
+爆料革命人才济济，其中天使闫姓丽梦，岛城平民，人民贵族，芳华正茂。她双料生物博士，一线病毒专家，有路德社之缘，得文贵先生神助，舍命求真，离港驻美。旨在揭露病毒真相，挽救无辜生命，且立志灭共，救同胞出水火。
 
-根据麦克劳林和美联社为媒体研究中心进行的一项民意调查，36%的拜登选民不知道这一丑闻。 而13%的人说，如果他们知道的话，他们将不会投票给拜登。如非媒体隐瞒亨特·拜登的金钱腐败丑闻，那麼乔·拜登的很多選民会改变他们的选择，将足以让川普总统获得明确的胜利。
+闫博士阐述中共病毒，双语流利，逻辑严密，一展新中国联邦形象，叹为观止。但念及其家，却似大禹治水三过家门而不入，大义高节，木讷少语。感慨中共恶魔治下，同悲同痛知多少？
 
-如此般拜登选民态度的转变，投票民调组表示：这意味着川普总统本来会以289选票赢得选举，该民调组为2016年和2020的川普竞选活动起了重要作用。
+GNEWS有文，称闫博士“ 学术界的良心，世界的英雄”。尚有“人类的天使“、“学术精英”、“天使科学家”、“人类拯救者”，云云赞美，不足其价值之万一。纵获诺贝尔大奖，也难表其可贵，只因良心无价。
 
-然而，除了主流媒体一片静默，没有对亨特.拜登丑闻进行报道，推特和其他社交媒体平台更是疯狂的禁止揭露真相的声音。
+“灭共者”郭先生语：中共送给爆料革命的大礼，是我们的闫博士！此乃调侃，意指“此女应从天上来”。忽见传言，今天乃闫博士生日，战友祝福者多，吾乃老乡，不能落后，恭祝天使生日快乐！又恰逢百万挺川者，集会首都华盛顿，正义滔滔，亦可谓生日大礼。
 
-
-```
-“现在，我们知道了这种掩盖的影响，” 媒体研究中心（MRC）主席布伦特·博泽尔（Brent Bozell）说道，“ 4.6％的拜登选民说，如果他们知道这一丑闻，他们就不会投票支持拜登。这个事实可能会改变选举的结果。媒体和硅谷都充分意识到了这一点，因此他们努力阻止美国公众知道真相。美国人民应该了解真相。然而现在为时已晚。”
-
-美国主流媒体的静默和社交媒体疯狂封锁传播真相的声音。暴露了美国的深度沼泽和中共蓝金黄深度腐蚀的力量。他们互相勾结试图控制媒体，影响美国选举结果，意图控制美国政权。GTV，GNEWS用唯真不破的态度认真传播真相，扭转乾坤，唤醒欺骗的美国民众，美国必然觉醒。正义永远不会迟到，11月14日百万民众汇集华盛顿支持川普总统，依循法律调查选票的真实性。川普总统一定会顺应民意成为新一任总统。
-```
-
-
-链接：[https://www.washingtonexaminer.com/washington-secrets/medias-hiding-of-hunter-biden-scandal-robbed-trump-of-clear-win-poll](https://www.washingtonexaminer.com/washington-secrets/medias-hiding-of-hunter-biden-scandal-robbed-trump-of-clear-win-poll)
-
-[https://youtu.be/t4j\_W-yfffY](https://youtu.be/t4j_W-yfffY)
+人类的天使——闫丽梦博士生日快乐！环球战友同贺！
 
 0

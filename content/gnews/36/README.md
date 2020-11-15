@@ -1,21 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新中国联邦与美国正义力量一道挺川大游行
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/559051/)
+## 媒体隐瞒亨特·拜登丑闻，企图抢走川普的胜选
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/559105/)
 
-多伦多加喜农场 大地鲲鹏
+多伦多加喜农场 文静
 
-校对上传 XM
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14151557/WhatsApp-Image-2020-11-14-at-14.13.17.jpeg)
-美东时间11月14日，支持川普总统的爱国者和友好团体将在华盛顿特区的自由广场举行示威活动。新中国联邦作为正义和真相的捍卫者，战友们积极参与了此次活动，早上7点钟就已经在现场集会完毕，9点钟举行了新中国联邦升旗仪式，战友们齐声高唱新中国联邦国歌，七芒星旗迎风飘舞，之后战友们整军出发。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14151612/WhatsApp-Image-2020-11-14-at-15.07.00.jpeg)
-川普总统的支持者从美国各地向华盛顿进发，通向华盛顿的各条道路上都是支持川普总统的卡车、吉普以及各式车队，大家都鸣笛表示对川普总统的支持和爱戴，希望川普总统能够连任，这些只是全美上下7500万人川普的支持者中的一部分，有的民众无法达到现场，但是都在自己的所在地或者家中以各种方式来支持川普总统。
+校对上传 HUH
+[![美国大选：当选总统拜登的八大关键政策立场- BBC News 中文](https://ichef.bbci.co.uk/news/640/cpsprodpb/1899/production/_115279260__114676281_dem_manifesto_biden_index_promo976.png)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fworld-54859067&amp;psig=AOvVaw0RhY3_7QLBGxzVZO24TUbP&amp;ust=1605474990145000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCKDRr9f6gu0CFQAAAAAdAAAAABAJ)BBC.com
+在一项新的调查中，4.6%的拜登选民表示，如果他们知道亨特.拜登在中共国的金钱关系，他们不会投票给乔.拜登。
 
-目前有大量证据显示民主党总统候选人乔·拜登涉嫌选票舞弊，中共全面操纵美国大选。在大选结果未正式公布情况下，美国主流媒体和各个国家大多数政商界人士频繁发布“拜登胜选”的不实消息、压制真相、引导民意，意图最终影响司法公正。
+根据麦克劳林和美联社为媒体研究中心进行的一项民意调查，36%的拜登选民不知道这一丑闻。 而13%的人说，如果他们知道的话，他们将不会投票给拜登。如非媒体隐瞒亨特·拜登的金钱腐败丑闻，那麼乔·拜登的很多選民会改变他们的选择，将足以让川普总统获得明确的胜利。
 
-此次支持川普总统大游行活动主旨为“MILLION MAGA MARCH”（让美国再次伟大百万人大游行）和“STOP the STEAL”（停止偷窃），美国中产阶级为主的支持力量通过这样的合法集会向不公正的舆论发起反击，向美国司法系统展现心声。
+如此般拜登选民态度的转变，投票民调组表示：这意味着川普总统本来会以289选票赢得选举，该民调组为2016年和2020的川普竞选活动起了重要作用。
 
-通过这次游行将向全世界展示真正的美国民意、美国中间力量的浩然正气，在世界行将被中共控制而陷入黑暗的关键时刻，新中国联邦将与美国正义力量团结一致，全力对抗中共为首的邪恶势力。
+然而，除了主流媒体一片静默，没有对亨特.拜登丑闻进行报道，推特和其他社交媒体平台更是疯狂的禁止揭露真相的声音。
 
-2+
+
+```
+“现在，我们知道了这种掩盖的影响，” 媒体研究中心（MRC）主席布伦特·博泽尔（Brent Bozell）说道，“ 4.6％的拜登选民说，如果他们知道这一丑闻，他们就不会投票支持拜登。这个事实可能会改变选举的结果。媒体和硅谷都充分意识到了这一点，因此他们努力阻止美国公众知道真相。美国人民应该了解真相。然而现在为时已晚。”
+
+美国主流媒体的静默和社交媒体疯狂封锁传播真相的声音。暴露了美国的深度沼泽和中共蓝金黄深度腐蚀的力量。他们互相勾结试图控制媒体，影响美国选举结果，意图控制美国政权。GTV，GNEWS用唯真不破的态度认真传播真相，扭转乾坤，唤醒欺骗的美国民众，美国必然觉醒。正义永远不会迟到，11月14日百万民众汇集华盛顿支持川普总统，依循法律调查选票的真实性。川普总统一定会顺应民意成为新一任总统。
+```
+
+
+链接：[https://www.washingtonexaminer.com/washington-secrets/medias-hiding-of-hunter-biden-scandal-robbed-trump-of-clear-win-poll](https://www.washingtonexaminer.com/washington-secrets/medias-hiding-of-hunter-biden-scandal-robbed-trump-of-clear-win-poll)
+
+[https://youtu.be/t4j\_W-yfffY](https://youtu.be/t4j_W-yfffY)
+
+0

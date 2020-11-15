@@ -1,29 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统要求停止在乔治亚州的重新计票
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/559368/)
+## 新中国联邦华盛顿支持川普总统大游行
+` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/559401/)
 
-多伦多加喜农场 熊妈妈
+内新闻：背靠背
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14193422/georgia-recount.jpg)图片来自 WTXL
-11月14日，美国川普总统要求停止在乔治亚州进行手动重新计票，直到选举委员会开始验证邮寄选票上的签名，并在登记过程中留下选民的签名。
+美国华盛顿DC时间2020年11月14日，新中国联邦华盛顿支持川普总统大游行，展现了新中国联邦人新形象，勇于表达诉求，支持正义，唯真不破，代表一个全新开始-新中国人与接轨世界，并走向世界。
 
-川普总统说，”乔治亚州正在进行的手动重新计票是浪费时间，因为他们没有显示匹配的签名。”
-
-与此同时，Twitter公司继续不要脸地对川普总统的推文标记为”选举欺诈的这种说法是有争议的。”
-
-美国总统选举于11月3日举行，最终的选举结果将在12月份公布。然而，11月7日，美国主流媒体主观报道了民主党候选人乔∙拜登在大选中获胜，这只是被中共收买的主流媒体的一面之词。
-
-川普总统拒绝承认失败，并表示在一些州的计票存在违规行为。他呼吁在乔治亚州，密歇根州和宾夕法尼亚州重新计票。
-
-宾夕法尼亚州的一个法院驳回了共和党的要求，共和党要求约9,300张选票无效。 在密歇根州，他们还拒绝了川普总统支持者的诉讼，他们要求禁止底特律市批准的投票结果。
-
-与此同时，宾夕法尼亚州的另一家法院对川普总统表示支持，裁定无法确认身份的选民通过邮件发送的选票在计票时不应该考虑在内。
-
-美国2020总统大选中关于“选票造假”事件，正邪还在不断较量中，川普总统一定会赢得最终的胜利。
-
-参考链接：https://twitter.com/realDonaldTrump/status/1327715767916392449
+郭文贵先生盖特惊呼：“我衷心感激和万分爱护的新中国联邦人，你们太了不起了，亲爱的战友兄弟姐妹们！”
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14200533/image-230.png)
+华盛顿DC支持川普总统大游行现场传回来的图片。战友们服装统一，队伍整齐，秩序井然，节目丰富多彩。他们高举着美国国旗，新中国联邦旗帜，各种标语牌，甚至还有小朋友加入游行队伍。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14203436/image-238.png)
+旁边华盛顿纪念碑，白色大理石尖型纪念碑耸立直入云霄。犹如一把光明之剑刺破黑暗，揭示真相。它的东面是国会大厦，西面是林肯纪念堂，北门是白宫，南面是杰斐逊纪念堂。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14200109/image-229.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14201014/image-231.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14201714/image-234.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14202015/image-235.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14202457/image-236.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14203114/image-237.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14204825/image-240.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14204944/image-241.png)
+中共CCP统治和奴役中国人即将成为过去，中共CCP你完了！
 
 0
