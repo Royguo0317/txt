@@ -1,45 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德社11/14:川普总统转推&amp;蓬佩奥国务卿讲话有啥重要意义
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/560041/)
+## 包商银行减记65亿元二级资本债停付利息,盗走的财富能回来吗
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/560680/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15001802/%E5%B0%81%E9%9D%A2-18.png)
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15044909/001NLe62gy1gkoipfg0hfj60m80go0v002_%E5%89%AF%E6%9C%AC.jpg)
 撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-据[11/14/2020路德时评（路博艾冠谈）：川普转推一个6秒视频暗藏重要对中共接下来的打击行动；蓬佩澳把中共国与恐怖主义政权并列；前FBI官员和拜登团队人员刚刚被逮捕；新中国联邦挺川大游行影响巨大！](https://www.youtube.com/watch?v=oq8XDTjYIAc)提到的内容：
+据[**21****世纪经济报道**](https://weibo.com/1651428902?refer_flag=1001030103_) [11月14日 11:00](https://weibo.com/1651428902/JtQ5G7gxu?refer_flag=1001030103_) 来自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)
 
-川普总统今天转推一个6秒钟的视频啊，这段视频里暗藏着非常重要的信息，川普总统转发的这段6秒钟的视频是2020年1月份的听证会的视频，这听证会是Dominion公司的CEO，在听证会上承认系统中有中国组件，他说虽然那不是我们Dominion公司啊，这个CEO承认，虽然那不是Dominion公司内部的报告啊，但Dominion的产品中确实有来自中国的组件。
+【史上首次！*包商银行*65亿二级资本债全额减记，因发生“无法生存触发事件”】有市场人士向21世纪经济报道记者表示，按照募集说明书，*包商银行*的这65亿二级资本债减记没有问题，因为条款设置很清楚。加上此前同业负债，大额的并未获得全额兑付，这期资本债减记是大概率事件。只是市场不愿意相信的是，减记的触发条件竟然真的发生了。有城*商*行高管认为，这一减记事件，或将影响中小*银行*的资本补充。[O史上首次！*包商银行*65亿二级资本债全额减记 因发生“无法生存触发事件”](http://t.cn/A6GKaAkI) [收起全文d](void%280%29;)
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15045319/001NLe62gy1gkoiotaunuj60b30ecdgf02.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15045329/001NLe62gy1gkoiotaj5rj60fk0g5aaw02.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15045336/001NLe62gy1gkoipfg0hfj60m80go0v002.jpg)
+包商银行公告中提到根据《商业银行资本管理办法（试行）》等规定，人民银行与银保监会认定包商银行发生“无法生存触发事件”云云云云，在对照[《商业银行资本管理办法（试行）》](https://baike.baidu.com/item/%E5%95%86%E4%B8%9A%E9%93%B6%E8%A1%8C%E8%B5%84%E6%9C%AC%E7%AE%A1%E7%90%86%E5%8A%9E%E6%B3%95/4757636?fr=aladdin) 从头看到尾之下，并未找到对“无法生存触发事件”的法律定义，既然法规中无此定义，那就意味着包商银行用一个无法查证的“因”公告了一个将要执行的“果”——对已发行的65亿元二级债本金实行全额减记，并对未支付的累积应付利息不再支付。按金融小白鼠的笔者理解就是原来发行的65亿二级资本债未偿还的部分，本金和利息都不用还了。
 
-随后蓬佩奥国务卿就转发了美国的国务院的网站转的一段他的视频，讲话说从中国到德黑兰的恐怖主义政权，美国将战胜任何挑战，那就是自由的人民所做的。一切我们齐心协力解决问题，推进我们的外交政策，相信我们就在山上照亮城市的灯塔，自由灯塔。
+这些钱是谁的钱？这些钱都是老百姓的钱，就这样包商银行一纸公文把应偿还的债务连本带息一笔勾销了。
 
-路德社提到的川普总统转推和蓬佩奥国务卿的相关转发内容如下——
+这65亿元二级资本债的持有者会以什么样的方式维权或者吞下这枚苦果，我们不得而知，但是我们不能忘记盗国贼围绕包商银行的盗国伎俩——
 
-Donald J. Trump 转推了 Donald J. [email protected]于[2020年11月15日5：10AM](https://twitter.com/realDonaldTrump/status/1327720558193205255)发布的推文：
+据**2018年1月15号郭文贵先生谈蓝金黄陈小平的夫人，孟建柱，王岐山一手策划假报习家财富**
 
+［肖建华的案子，肖建华进去不到一年，他的员工几乎全判完了，都是三五年五六年。就是三五年五六年你别出去说话，然后你就可以回家了。肖建华给他死缓，你甭出去了，在这儿养着你。但是肖建华的钱去哪儿了？习主席百分之百地不都清楚啊！就说这平安的股票，他买的时候四十块钱一股，是通过泰国正大来代持的，谢国敏，第一大股东。现在是八十六一股，仅此一样就赚了几百亿美元，更不用说包商行，哈尔滨商行，也不说中泰信托，更不要说新华信托，更不要说上海黄埔几十家上百家的企业，上万亿啊！王岐山孟建柱迅速地把肖建华的资产，在给习主席报告当中捶胸顿足说肖建华有多坏多危险，抓他抓对了；然后这些资产怎么没收怎么处理，怎么还贷款，怎么销毁金融票据，事实上好东西全被人家拿走了。］
 
+［所有的中国的战友们，所有的海内外战友们要明白一个道理，中国的金融股票危机，包括肖建华，是由海航王岐山孟建柱公检法护航的一项巨大的洗钱行为，被骗的只有股民，只有国家，你看看陈峰那些话你就看明白了，然后你看陈峰多年前接受西方采访，说我第一笔钱就骗了三亿多美元世界银行贷款，世界银行贷款去哪了，一笔一笔给你说来，中信什么什么。他就是一个国际金融骗子，国内的盗国贼，然后得到了王岐山孟建柱国内江家朱家的庇护，金融界一呼而应，洗劫了中国人民25万亿，他是全中国人民的公敌，所有金融危机损失钱的人都要找王岐山孟建柱江家曾家和海航陈峰来要。］
 
-> [pic.twitter.com/RV5obxT9aG](https://t.co/RV5obxT9aG)
-> — Donald J. Trump (@realDonaldTrump) [November 14, 2020](https://twitter.com/realDonaldTrump/status/1327720558193205255?ref_src=twsrc%5Etfw)
-
-
-
-Department of [email protected]（US government account）[@SecPompeo](https://twitter.com/SecPompeo)于[上午9:11 · 2020年11月13日](https://twitter.com/StateDept/status/1327056490113490953)·[Twitter Media Studio](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文: America will overcome any challenge, from Communist China to the terrorist regime in Tehran. That’s what free people do. We come together, we solve problems, and we execute our foreign policy, confident that we are that shining city on a hill.
-
-中文大意：美利坚将战胜从共产主义中国到德黑兰恐怖主义极权的任何挑战，那就是自由的人民要做的事情。我们凝聚在一起、共克时艰，我们通过执行我们的外交政策确保我们的城市闪耀在山巅。
-
-
-
-> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): America will overcome any challenge, from Communist China to the terrorist regime in Tehran. That’s what free people do. We come together, we solve problems, and we execute our foreign policy, confident that we are that shining city on a hill. [pic.twitter.com/j97LkseZNZ](https://t.co/j97LkseZNZ)
-> — Department of State (@StateDept) [November 13, 2020](https://twitter.com/StateDept/status/1327056490113490953?ref_src=twsrc%5Etfw)
-
-
-
-这两起关联事件的发生是灭共史上的一个重要里程碑，因为它意味着中共试图渗透、干扰美国大选，并从根本上颠覆美国的证据早已经被美国国会掌握，而且至少在2020年1月份就已经掌握，Dominion公司CEO在听证会上的证词已经让Dominion公司和它背后的中共的犯罪行为板上钉钉。
-
-那么蓬佩奥国务卿的那一段讲话意味着什么？意味着在对中共犯罪行为板上钉钉之后，现在已经架好了对中共和德黑兰恐怖主义极权执行死刑的绞刑架。
-
-接下来会发生什么？把中共送上绞刑架；再接下来呢？把中共的尸体装在棺材里，盖上棺材再定上论；再接下来呢？全世界追杀清剿中国共产党的帮凶和爪牙；再接下来呢？我想全人类都要反思并且彻底铲除共产主义存在的土壤，并确保彻底埋葬共产主义。
+所有金融危机损失的钱都要找王岐山、孟建柱、江家、曾家和海航陈峰来要，这钱能不能要回来，我相信很快就会要回来，因为就在2020年11月14日郭先生在[2020年11月14号 文贵直播](https://gtv.org/video/id=5fac5324bd0d464fadff4dfb)中提到：［关于美国总统川普总统宣布的国家紧急法，……事实上就是为脱钩准备法律的前提条件，而且是不受任何影响的、脱钩不需要任何人批准。大家不要忘了这一点，那么这个意味着什么？所有在美国的共产党企业资产即将被查封，一块钱都不会给它留！所有的、只要是中共管辖的企业，不管你什么公和私，也不存在什么你中石油、中石化，还有什么马云啊、什么陆金所啊，通通给你封了。］盗国贼盗取的财富即将被查封，自中共窃据政权以来盗取中国人民的财富即将被没收，属于中国人民的财富终将归还中国人民，让我们共同期待那一刻的到来。
 
 （文章内容仅代表作者个人观点）
 
