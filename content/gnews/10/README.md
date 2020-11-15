@@ -1,58 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020-11-15 康州农场本日新闻热点
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/560081/)
+## 路德社11/14:川普总统转推&amp;蓬佩奥国务卿讲话有啥重要意义
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/560041/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30033213/%E9%80%9F%E6%8A%A5.jpg)
-新闻采集：康州农场-台湾阿人
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15001802/%E5%B0%81%E9%9D%A2-18.png)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-新闻编辑：康州农场-轰炸机
+据[11/14/2020路德时评（路博艾冠谈）：川普转推一个6秒视频暗藏重要对中共接下来的打击行动；蓬佩澳把中共国与恐怖主义政权并列；前FBI官员和拜登团队人员刚刚被逮捕；新中国联邦挺川大游行影响巨大！](https://www.youtube.com/watch?v=oq8XDTjYIAc)提到的内容：
 
-审核：康州农场-文韵
+川普总统今天转推一个6秒钟的视频啊，这段视频里暗藏着非常重要的信息，川普总统转发的这段6秒钟的视频是2020年1月份的听证会的视频，这听证会是Dominion公司的CEO，在听证会上承认系统中有中国组件，他说虽然那不是我们Dominion公司啊，这个CEO承认，虽然那不是Dominion公司内部的报告啊，但Dominion的产品中确实有来自中国的组件。
 
-**一、前FBI特工，乔拜登德州工作人员达拉斯.琼斯被捕**
+随后蓬佩奥国务卿就转发了美国的国务院的网站转的一段他的视频，讲话说从中国到德黑兰的恐怖主义政权，美国将战胜任何挑战，那就是自由的人民所做的。一切我们齐心协力解决问题，推进我们的外交政策，相信我们就在山上照亮城市的灯塔，自由灯塔。
 
-拜登竞选团队的德州阵营负责人达拉斯·琼斯，卷入德州拥有250万张选票的“哈里斯”县选举欺诈丑闻，被联邦调查局扣押聆讯。FBI羁押琼斯后，他随后就被拜登团队开除。这与CCP的做法一样，过河拆桥。
+路德社提到的川普总统转推和蓬佩奥国务卿的相关转发内容如下——
 
-**二、国务卿蓬佩奥：[从中共国到德黑兰的恐怖主义政权，美国将战胜任何挑战 ]直接把中共与恐怖主义政权并列**
+Donald J. Trump 转推了 Donald J. [email protected]于[2020年11月15日5：10AM](https://twitter.com/realDonaldTrump/status/1327720558193205255)发布的推文：
 
-美国国务卿蓬佩奥（ Mike Pompeo ）于 11 月 14 日抵达法国首都巴黎，展开为期 10 天的欧洲、中东 7 国访问之旅，这次访问将聚焦反恐与宗教自由。本次蓬佩奥表示：[从中共国到德黑兰的恐怖主义政权，美国将战胜任何挑战 ]，直接把中共与恐怖主义放在一起。
 
-**三、川普总统推特发布，Dominion CEO在听证会上承认系统中有中共国组件的发言，暗示中共操纵大选**
 
-视频显示，在今年1月会的听证会上，Dominion CEO在听证会上承认系统中有中共国组件的发言，暗示中共操纵大选！其实美国一直在准备排干沼泽，最重要是证据与证人，因为美国是法制国家。
+> [pic.twitter.com/RV5obxT9aG](https://t.co/RV5obxT9aG)
+> — Donald J. Trump (@realDonaldTrump) [November 14, 2020](https://twitter.com/realDonaldTrump/status/1327720558193205255?ref_src=twsrc%5Etfw)
 
-**四、上百万川粉上街声援川普，抗议选举被偷窃**
 
-因为本次大选暗箱操作，周六（10月13日）中午在首府华盛顿，举行「百万人集会」，支持川普连任总统。民意沸腾，保卫美国，「Make America Great Again（让美国再次伟大）」
 
-**五、文贵先生直播中透露：川普总统感谢新中国联邦战友在华盛顿的声援活动**
+Department of [email protected]（US government account）[@SecPompeo](https://twitter.com/SecPompeo)于[上午9:11 · 2020年11月13日](https://twitter.com/StateDept/status/1327056490113490953)·[Twitter Media Studio](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文: America will overcome any challenge, from Communist China to the terrorist regime in Tehran. That’s what free people do. We come together, we solve problems, and we execute our foreign policy, confident that we are that shining city on a hill.
 
-新中国联邦数万战友在13日走上华盛顿街头，声援川普总统连任。我们站在正义的一方，坚信川普总统连任，浩荡的声援队伍深深的打动了美国人民与川普总统。据郭先生直播中透露，川普总统非常感谢我们战友在华盛顿的声援活动。
+中文大意：美利坚将战胜从共产主义中国到德黑兰恐怖主义极权的任何挑战，那就是自由的人民要做的事情。我们凝聚在一起、共克时艰，我们通过执行我们的外交政策确保我们的城市闪耀在山巅。
 
-**六、被指违反公平竞争法，土耳其开罚Google逾7亿元**
 
-土耳其主管竞争事务当局（CompetitionAuthority）今天发表声明说：「Google及其母公司Alphabet Inc让不能替Google创造广告营收的公司，难以出现在搜寻结果中。」其滥用网络搜寻垄断地位，违反土耳其公平竞争规定，处以1亿9670万土耳其里拉（约新台币7亿2679万元）罚款。
 
-**七、香港今天新增8例CCP病毒疾病确诊，其中一例本土病例源头不明，香港升高防疫措施**
+> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): America will overcome any challenge, from Communist China to the terrorist regime in Tehran. That’s what free people do. We come together, we solve problems, and we execute our foreign policy, confident that we are that shining city on a hill. [pic.twitter.com/j97LkseZNZ](https://t.co/j97LkseZNZ)
+> — Department of State (@StateDept) [November 13, 2020](https://twitter.com/StateDept/status/1327056490113490953?ref_src=twsrc%5Etfw)
 
-香港今天新增8例2019冠状病毒疾病（COVID-19）确诊，其中一例本土病例源头不明。香港食物及卫生局局长陈肇始则宣布，下周起将限缩餐厅及酒吧用餐人数，并计划限制旅馆房间最多住4人。
 
-**八、乌克兰增1万2524人染武汉肺炎创新高，卫生部长也中镖**
 
-乌克兰卫生部长史蒂巴诺夫今天说，他的2019冠状病毒疾病（COVID-19，武汉肺炎）检测呈阳性。史蒂巴诺夫稍早刚宣布，境内新增1万2524人确诊，改写昨天创下的单日1万1787人染疫纪录。
+这两起关联事件的发生是灭共史上的一个重要里程碑，因为它意味着中共试图渗透、干扰美国大选，并从根本上颠覆美国的证据早已经被美国国会掌握，而且至少在2020年1月份就已经掌握，Dominion公司CEO在听证会上的证词已经让Dominion公司和它背后的中共的犯罪行为板上钉钉。
 
-**九、马云好友在香港遇袭！中共国富豪「钱多多」当街遭砍伤送医**
+那么蓬佩奥国务卿的那一段讲话意味着什么？意味着在对中共犯罪行为板上钉钉之后，现在已经架好了对中共和德黑兰恐怖主义极权执行死刑的绞刑架。
 
-中国富豪钱峰雷，今天( 14 日)凌晨于香港湾仔，遭 3 至 4 名乘坐私家车的不明男子以刀攻击，受伤流血，钱忍痛搭上前来接应的车辆，待返回南区香岛道的豪宅后便报警、送医。引起香港媒体注意的是，钱峰雷不仅家财万贯，同时也与阿里巴巴创办人马云私交甚密，歹徒的确切犯案动机则仍由当地警方调查中。
+接下来会发生什么？把中共送上绞刑架；再接下来呢？把中共的尸体装在棺材里，盖上棺材再定上论；再接下来呢？全世界追杀清剿中国共产党的帮凶和爪牙；再接下来呢？我想全人类都要反思并且彻底铲除共产主义存在的土壤，并确保彻底埋葬共产主义。
 
-**十、据报道，AT&T打算出售CNN，因其贬低川普以来收视率一路狂跌**
-
-网络消息，因报道大选不实消息与长期贬低川普，自大选以来收视率一路狂跌，东家AT&T以收视率太低为由挂牌出售。
-
-**十一、日本、南韩签署中共国主导的《区域全面经济伙伴关系协定》前夕，美国呼吁两个盟友纵使与中共国贸易关系密切，仍要就中共对待少数穆斯林的手段，以及对香港、台湾的所作所为直斥其非**
-
-副助理国务卿纳珀（Marc Knapper），在南韩首尔出席华府智库「布鲁金斯研究所」（Brookings Institution）一项网上活动时，向盟友作出异常直率的评论。纳珀强调，南韩、日本、台湾及东南亚国家须与美国合作，确保公民资料免被中共国窃取。不管贸易及其他关系有多重要，我们看见中共国恶行时，都应挺身指出。我希望日韩及其他国家就这些事情挺身发声。
+（文章内容仅代表作者个人观点）
 
 0
