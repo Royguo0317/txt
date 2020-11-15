@@ -1,9 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 同声传译: 班农战斗室美东2020年11月13日早间节目
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/560364/)
+## 【快讯】紧急签署RCEP，中共妄图反击美制裁？
+` Ronald` [轉載自GNews](https://gnews.org/zh-hans/560366/)
 
-#### **By: 【秘密翻译组G-Translators】**
+内新闻/素材：鹰(文言) 校对：七哩香
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15031941/image0-79.jpg)
+新浪网11月15日转载新华社报道，《区域全面经济伙伴关系协定》（RCEP）15日在东亚合作领导人系列会议期间正式签署。
+
+东南亚区域全面经济伙伴协定（RCEP）是由东盟10国发起，其后中、日、韩、澳、信、印（基于保护国内劳工和农民于19年11月退出）参加，在2012年完成框架，在经历28轮正式谈判后，于今日正式签署协议。
+
+RCEP被外界广泛看作是中共主导的一经济合作组织。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15031833/image1-9.jpg)
+近期，随着以拜登为代表的Deep State深度勾兑中共和中共干预美国大选的证据不断被披露，美国政局翻转，且川普总统更是签署紧急状态法正式对中共展开经济战、网络战、科技战，中共选在此时签署RCEP也可看作是对中美经济战开打的一个应对，借RCEP绑架30多亿人口，妄想以此抗衡。
+
+国际合作的根本在于利益，全球灭共大形势下，RCEP也将徒有空壳，甚至被逐步瓦解。中共通过蓝金黄手段意欲控制全世界，各国互相利用，中共没有一个真正的盟友。
+
+因此当灭共有利可图后，中共的所谓“伙伴”反而会“背后捅刀”，待中共国经济彻底崩溃后，其他成员国只会“树倒猢狲散”。
+
+新闻来源：
+新华国际时评：签了！东亚经济一体化迎来重要里程碑
+[https://news.sina.com.cn/w/2020-11-15/doc-iiznctke1529655.shtml](https://news.sina.com.cn/w/2020-11-15/doc-iiznctke1529655.shtml)
 
 0
