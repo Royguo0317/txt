@@ -1,64 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新中国联邦积极响应华盛顿DC挺川大游行
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/561190/)
+## 【热点播报】赌徒也爱川！博彩公司拒绝承认拜登胜出，大部分赌徒投川普！
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/562274/)
 
-整撰：文錦,复核：WENJUN
+**作者：香草山写作组  正道主义联盟**
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15081938/%E5%9B%BE%E7%89%87-1-9.png)
-
-成千上万来自全美各地的川普总统支持者纷纷涌向华盛顿特区，参加在周六（14日）举行的主题为”百万MAGA大游行 “、 “停止偷窃 “的和平抗议活动。
-
-新中国联邦坚定地和川普总统站在一起，与支持川普总统的7300万民意方向一致，也加入到此次和平抗议活动的行列中了。今日，在华盛顿特区、洛杉矶、纽约、加拿大以及日本的新中国联邦人，遥相呼应地举行了抗议活动，共同支持川普总统、支持传播真相、支持消灭共产党。
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15081944/%E5%9B%BE%E7%89%87-2-8.png)
-
-本次抗议行动是为了促进美国总统的选举重新计票，对川普总统的拒绝让步表达支持。川普总统在周六上午突然驱车访问了示威活动。并在推特上表示感谢。”*假新闻媒体没有讨论成千上万的以自发形式从全国各地来到华盛顿DC**组成的抗议活动”*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
 
 
 
-> The Fake News Media hardly even discussed the tens of thousands of people that came to D.C. Formed organically, and in many parts of the Country! [https://t.co/wVsDx6GeGc](https://t.co/wVsDx6GeGc)
-> — Donald J. Trump (@realDonaldTrump) [November 15, 2020](https://twitter.com/realDonaldTrump/status/1327838908089069568?ref_src=twsrc%5Etfw)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15173557/dd.png)
+据《纽约邮报》报道川普总统并不是唯一一个坚决拒绝相信乔·拜登赢得2020年总统大选的人。世界各地的博彩网站的老板也拒绝称拜登为当选总统，尽管最后的暂时的点票结果对他有利。
+
+2020年总统大选被称为“历史上最不确定的选举”。这些网站赌徒们各自押注自己的选举结果。现在，赌客们数百万美元的输赢却悬而未决。
+
+仅在伦敦的必发博彩公司(Betfair)，就有近6亿美元的总统赌注悬而不决。
+
+当超级碗比赛失败或拳击比赛失败时，博彩公司通常会毫不犹豫地掏一大笔钱。1990年，伯斯特·道格拉斯击败了强大的迈克·泰森，震惊了世界。他不顾高达42比1的赔率，带领一名赌徒以1500美元的赌注赢得了57000美元(在差距达到峰值之前)。但这一次，在线赌博网站(提供的赌博模式在美国是非法的)在本月的“总统选举”僵局中保持了警惕。
+
+BetOnline的体育图书经理亚当·伯恩斯告诉《华盛顿邮报》:“我们还没有给获胜者评分。”
+
+伯恩斯表示，在特朗普用尽他的法律手段之前，他不会做出决定。
+
+“押注川普的人说，这还没有结束。打赌拜登的人会这么说。这就造成了一个棘手的情况，我们必须确定。这不像一场足球比赛，”因为有一个明显的胜利者，伯恩斯说。“
+
+就下注金额而言，这也不像一场足球比赛。伯恩斯说，他的网站为这次选举带来了七位数的收入。其他人得出了类似的总数。
+
+伯恩斯说:“总统选举比超级碗大赛要大，超级碗通常是我们一年里最盛大的赛事。”“选举后的几天里，我们一直在采取行动，可能性也在波动。但现在这个赌注(不再有效)，我们希望得到官方的决定。”
+
+据彭博财富(Bloomberg Wealth)称，博彩网站已经从过去的失误中吸取了教训。2016年，爱尔兰博彩平台PaddyPower在选举日之前向希拉里·克林顿支付了100多万美元的赌金。
+
+但是，即使总统竞选者们在等待时机，他们也不是完全被冷落了。博彩网站888正在对川普是否能完成任期进行预测(赌“否”的赔率为6比1)，
+
+博彩网站BetOnline的赌金是拜登2020年获胜的赔率为12比1，而卡玛拉·哈里斯(Kamala Harris) 2022年当选总统的赔率则更低。
+
+“我们可能会把比分定在7:1左右，”伯恩斯说。“年龄在其中起了作用，”他指的是77岁的拜登和56岁的哈里斯。
+
+不过，目前他最关注的是总统选举的最终结果。抛开个人政治不谈，伯恩斯承认他支持拜登。
+
+“如果拜登进来了，这对我们来说是一个巨大的胜利，”他说，并解释说该网站的客户更喜欢川普。“如果川普被宣布获胜，我们就该洗洗睡了！在这里将不会是愉快的一天
+
+审核发稿：悟空
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，纽约时间周日至周四晚上9:00，美国志愿者在纽约香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
 
 
 
-白宫新闻秘书Kayleigh McEnany在个人账户上发推文称，”超过一百万的游行者……排干沼泽 “。在被科技巨头删除之前，有超过30万人加入了Facebook上的 “停止偷窃 “组织小组。
 
-
-
-> AMAZING!
-> 
-> More than one MILLION marchers for President [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) descend on the swamp in support. 
-> 
-> Best base in political history — we LOVE you guys!!! ❤️🇺🇸 [pic.twitter.com/vU65nqCSns](https://t.co/vU65nqCSns)
-> — Kayleigh McEnany (@kayleighmcenany) [November 14, 2020](https://twitter.com/kayleighmcenany/status/1327646530103369728?ref_src=twsrc%5Etfw)
-
-
-
-而反对 “百万MAGA大游行 “的反示威者周六晚放火烧毁了MAGA帽子、旗帜和其他各种保守派符号。据《每日电讯报》记者Shelby Talcott报道，反抗议者还向在特区就餐的川普支持者投掷烟花。不少反抗议者向和平抗议的川普总统支持者实施了暴力的手段。
-
-
-
-> CNN will not play this footage of a politically motivated assassination attempt for a single second of broadcast. 
-> 
-> Nor will Fox News or any corporate media. 
-> 
-> So please share it NOW[pic.twitter.com/ydppNjjFG2](https://t.co/ydppNjjFG2)
-> — Benny (@bennyjohnson) [November 15, 2020](https://twitter.com/bennyjohnson/status/1327796111868899328?ref_src=twsrc%5Etfw)
-
-
-
-抗议集会上，大型音响系统轰出了皇后乐队的《压力之下》等经典流行歌曲，几百名早到的人在供应商的摊位上查看川普总统的旗帜和T恤，并将 “川普2020 “的巨大旗帜高高举过头顶。几位演讲者上台发言，包括佐治亚州的当选国会议员Marjorie Taylor Greene和保守派评论员Paris Dennard。
-
-明尼苏达州的枕头制造商迈克-林德尔（Mike Lindell）也发表了讲话，他是川普总统最大的支持者之一。”我向总统承诺，我们会赢得明尼苏达州，ANTIFA 和BLM的黑衣成员试图挤进川普支持者的人群，在演讲进行时与他们发生了争吵。当集会者将反抗议者从他们的队伍中推开，并朝试图维持秩序的警察走去时，双方发生了肢体冲突…
-
-川普总统的支持者在华盛顿纪念碑前高呼 “美国”，结束了当晚的活动。对于此次大规模的华盛顿DC挺川大游行，主流媒体不意外地选择了噤声和淡化处理。而混入到游行队伍中的ANTIFA 和BLM人员对和平抗议者的侮辱、挑衅甚至攻击却让人感到一丝不安。
-
-MAGA华盛顿DC大游行体现了支持川普总统令人惊叹的民意，人们能看到和平抗议者要的不是 美国人民之间互相伤害，或是政党之间的你死我活，川普支持者要的是真相，是7300万张选票的真实结果的体现，是对美国宪政神圣不容侵犯的捍卫。新中国联邦选择在美国最紧要的关头，坚定地与川普总统及7300万有正义感的美国民众站在一起守护美国、消灭邪恶。
-
-参考链接：
-
-[https://dailycaller.com/2020/11/14/counter-protesters-burn-trump-flags-million-maga-march/](https://dailycaller.com/2020/11/14/counter-protesters-burn-trump-flags-million-maga-march/)
 
 0

@@ -1,29 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 唤醒民众：中国人为啥活得那么艰难
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/560742/)
+## 美国国土安全部网络机构曾于2019年宣布投资选举审计工具
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/561873/)
 
-作者：香草山写作组 程万里 校对/发稿：飞虹
+*新闻来源：《国会山报》；作者：Maggie Miller；发布时间：2019年11月21日*
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09190948/GNEW-GTV-MOS-LOGO-1.jpeg)
+*翻译/简评：毛毛猫猫；校对：Beicy-数学老师；审核：海阔天空；Page：拱卒*
 
+[![](https://spark.adobe.com/page/nfxmlmNi1miad/images/8448f310-ad62-4065-92b1-bcfb0c24be18.jpg?asset_id=90cd6414-6847-442d-a498-a7e0e207db18&amp;img_etag=%222b9494e8d08a664676e2ae6b91fcda58%22&amp;size=1024)](https://spark.adobe.com/page/nfxmlmNi1miad/images/8448f310-ad62-4065-92b1-bcfb0c24be18.jpg?asset_id=90cd6414-6847-442d-a498-a7e0e207db18&amp;img_etag=%222b9494e8d08a664676e2ae6b91fcda58%22&amp;size=1024)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15051213/%E5%9B%BE%E7%89%8753.png)
-人性是自私的，几千年来一直没有改变，但为什么会有好人和坏人、自私和无私之分，这和体制有关系，南方的橘子移植到北方就变成枳，橘子没变，变得是土壤。人性也是如此，在台湾他是博爱的人，是充满善意的，可到大陆就变成了自私自利的诈骗犯，这是因为台湾这几十年已经有了自由民主的土壤，而大陆还在专制帝国中，专制集权把人性的恶充分暴露了出来。
+**简评：**
 
-假如有两个人一个面包，一个人吃了就能活，两个人肯定会拼命争抢？如果有两个面包呢，他们就会相互礼让。这就是制度使然，政府要做的是面包的分配，而不是把大部分面包都拿走，留下一点点让一群人来争抢。中共就是抓住了这一点，拿走了中国人民创造的大部分财富，只留下那么一点点让大家去争去抢。在墙内经常会看到的，做什么都要去抢去拼。为什么会这样呢？为了那点点生存，疲于奔命：我不努力怎么够吃得，我不努力怎么还房贷车贷，不努力怎么交得起罚款，看得起病，养得起孩子。那是因为我们被蒙住了双眼，捂住了耳朵，后面还有鞭子在抽，没选择只能蒙眼向前，被牵着鼻子，在哪里打转为不知是谁的主子拉磨。这是什么生活，这不就是拉磨的驴生活吗?
+这是一篇2019年11月21日发表于《国会上报》上的一篇旧闻。从这篇报道我们可以看到：为了确保今年大选的公平公正，国土安全部的网络安全和基础设施安全局(CISA)在一年前就开始与非盈利组织-“VotingWorks”合作开发一款名为Arlo的开源软件，并将免费提供给各州进行大选后的审计。现在大选已将接近尾声，全美有些州，特别是在传统民主党控制的州中，惊爆在大选中出现严重的投票、计票环节的舞弊行为，这款软件能否帮助相关部门给所有遵纪守法守法选民一个交代，还是形同虚设，我们拭目以待。
 
-中共是怎样拿走大部分财富的呢？税收！我们买房子的钱有近三分之二都交给了中共国。你买一台车实际买了三台，两台车给了政府（国内买进口车是国外价格的三倍）。之前看到一篇中国国政府的文章：《税收增长并不意味着税负的增加》，其以统计数字再到企业的直接感受为准。以统计数据为准的话，按照中共国官方网站公布的数据，基本每年税收的增长速度都超过国内生产总值（GDP）的增长速度。以企业的感受就更扯了，企业以增值税为主要税种，企业根据成本先加上增值税再加上利润才是最终价格，增值税多少都不会让企业有感受，而增值税却会体现在最终价格上，会让消费者感受到产品价格的波动。受害的是消费者，中共国却拿企业分析，这种无耻的欺骗没有下限，但消费者却不自知，因为中共国永远也不会向国外一样在消费清单上标注你交了多少的税（税隐藏在了价格里）。这里讲的税收还不包括行政性罚款，社保，等乱七八糟多如牛毛的税种和行政性收费，而这些基本都被藏了起来，让普通民众很难发现，即使发现了也很难查找，查找到你也无能为力，这就是体制之恶，每天都在那里张着血盆大口，吞噬着周围的一切。你无能为力，只能被他咬着，拼命挣扎为着那一口仅存的气拼命地活着。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15051300/%E5%9B%BE%E7%89%8754.png)
-中国人活得真的很艰难，这是体制之恶，我们想活得好唯一的选择就是推翻这个邪恶体制，否则你就被他咬着吧，永无宁日。
+**原文翻译：**
 
+# 国土安全部网络机构投资选举审计工具，以确保2020年选举安全
 
+[![](https://spark.adobe.com/page/nfxmlmNi1miad/images/0328a50b-3a0b-49b5-91dc-a9fb0536849d.jpg?asset_id=feefec11-c79a-4bef-b110-c9b4da0f4676&amp;img_etag=%22519a5c43f71332441385a94729258eaa%22&amp;size=1024)](https://spark.adobe.com/page/nfxmlmNi1miad/images/0328a50b-3a0b-49b5-91dc-a9fb0536849d.jpg?asset_id=feefec11-c79a-4bef-b110-c9b4da0f4676&amp;img_etag=%22519a5c43f71332441385a94729258eaa%22&amp;size=1024)
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+国土安全部(DHS)的网络安全分支机构在周四宣布，将与选举官员和私营部门团体合作，共同开发一种选举审计工具，用于帮助确保2020年投票的准确性。
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+国土安全部的网络安全和基础设施安全局(CISA)正在与非营利组织”投票工作” (VotingWorks)合作开发一款名为“阿罗” (Arlo)的开源软件工具，免费提供给州和地方选举官员使用。
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上8:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+根据国土安全部的网络安全和基础设施安全局（CISA）的规定，“阿罗” (Arlo)系统在进行选票审核时，要选择审核多少张选票和哪些选票，并将审核后的选票与原计票进行比较。
+
+这套系统已经被用于在全美各地进行选举后的审计工作，包括在最近的2019年选举期间。宾夕法尼亚州、密歇根州、弗吉尼亚州、俄亥俄州和佐治亚州的选举官员已经签署了与国土安全部的网络安全和基础设施安全局(CISA)在“阿罗” (Arlo)上的合作协议，并预计将会有更多州的官员加入。
+
+“进入2020年，我们正在探索所有可能的方法，以支持州和地方选举官员，同时也确保全国各地的美国人可以自信地投票”，国土安全部的网络安全和基础设施安全局(CISA)主任克里斯托弗-克雷布斯在一份声明中说。
+
+克雷布斯补充说：”在我们知道有些外国势力试图干涉并对我们的民主进程产生怀疑的时候，选举的安全、弹性和透明就显得非常重要。”
+
+[![](https://spark.adobe.com/page/nfxmlmNi1miad/images/6a9caa80-39c6-495d-83fa-d4a86e7a153c.jpg?asset_id=d38a4237-8aeb-444e-af15-4a50f08e93dd&amp;img_etag=%220d11682dfa7f52082fc309c502917d64%22&amp;size=1024)](https://spark.adobe.com/page/nfxmlmNi1miad/images/6a9caa80-39c6-495d-83fa-d4a86e7a153c.jpg?asset_id=d38a4237-8aeb-444e-af15-4a50f08e93dd&amp;img_etag=%220d11682dfa7f52082fc309c502917d64%22&amp;size=1024)
+
+在大选后进行审计工作已被专家广泛推荐为确保选举安全的重要步骤，特别是在2016年俄罗斯对大选的干预未遂之后。
+
+参议院情报委员会在其关于2016年俄罗斯试图干预两党选举的报告的第一卷中，建议使用审计作为确保选举安全的一个步骤。
+
+“统计学上的审计可能是确保对投票完整性的信心的最简单和最直接的方法，”该委员会在报告中写道。“各州应开始实施对选举结果的审计”。
+
+[原文链接](https://thehill.com/policy/cybersecurity/471577-dhs-cyber-agency-invests-in-election-auditing-tool-to-secure-2020)
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/nfxmlmNi1miad/)
+
+[![](https://spark.adobe.com/page/nfxmlmNi1miad/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/nfxmlmNi1miad/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0
