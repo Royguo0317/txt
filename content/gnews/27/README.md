@@ -1,59 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《门道专家》：我们抓到他们了！（第三部分）
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/562345/)
+## 威斯康星州一负责人在大选关键时期丢失选举闪存盘
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/562469/)
 
-多伦多加喜农场 老熊
+多伦多加喜农场 文𤦍(Manpui)
+校对 文锦 上传 WJ
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15195622/pjimage-18-1024x538-1.jpg)图片来源：wisconsinrightnow.com
+据威斯康星州立时报 （Wisconsin Right Now ）11月6日报道，密尔沃基（Milwaukee) 县选举负责人克莱尔·伍德·沃格（Claire Woodall-Vogg）声称她在11月4月清晨丢失选举闪存盘。含有2020年总统大选缺席选民关键信息的闪存盘，在全世界等待密尔沃基公布选票数结果时刚好短暂丢失。只要有了该闪存驱动器，谁都可以操纵投票计数。与此同时，拜登在该选区获得了12万张选票。
 
-校对 上传 小鸥
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15181936/%E5%81%B7.png)图片来自 The Atlantic
-《门道专家》（the gateway pundit）11月15日发表“我们抓到他们了！”系列报道第三部分，题目是：
+其间“密尔沃基市收集169,000多次缺席选票的结果”。摄像头拍到密尔沃基选举委员会执行主任沃格在没人监督时输入编号。
 
-我们抓到他们了！第三部分：密尔沃基郡（Milwaukee）同样的不可能的选票比例被发现 —— 改变了威斯康辛州选举结果 —— 3万张选票从川普总统那里转给了拜登。
+好多州通过这样操纵就增加了很多”非法”票数，费城也丢失了一些闪存驱动器。 安特里姆县的人手点票计数显示，有6000票从川普改成了拜登。
 
-原文如下：
+虽然密歇根州在选票托管方面有严格的法律。 使用闪存驱动器实属非法行为。然而他们不仅允许这样做而且还使其成为实在方式，这意味着我们应该检查其他县的点票和计数以确保正确。
 
-深入研究显示，密尔沃基的选举结果与《门户专家》（The Gateway Pundit）发现的宾夕法尼亚州，以及希瓦（Shiva）博士发现的密歇根州的选举结果有类似的模式，选区共和党人越多，川普总统的选票转移给拜登的比例就越高。
+评论：继川普总统竞选団队已经在宾夕法尼亚、密西根、佐治亚等多州提出了法律诉讼，现又被人挖出了密尔沃基、费城选票有猫腻，这能简单归咎于人为错误吗？
 
-我们之前也报道过密尔沃基的投票结果，投给乔·拜登的大量选票根本不符合“本福德分析”统计学原理。（原文附上了当时报道的链接【1】）
+原文链接：
 
-接下来，我们报道了来自马萨诸塞州的希瓦博士，在密歇根州的选举结果中发现的一种模式，即川普总统的选票被系统地、一致的方式转移到了乔·拜登那里，这种模式太过一致，无法在一组自然数字中找到，因此能够断定是“胡闹”或欺诈。
+[Developing: Milwaukee Elections Chief Reportedly Lost Elections Flash Drive in Morning Hours of November 4th When Dems Gained 120,000 Votes for Joe Biden](https://djhjmedia.com/steven/developing-milwaukee-elections-chief-reportedly-lost-elections-flash-drive-in-morning-hours-of-november-4th-when-dems-gained-120000-votes-for-joe-biden/)
 
-今天，我们根据希瓦博士对类似密尔沃基郡得票的分析来报道这些结果，通过对密尔沃基郡选区的分析，我们再次发现选票从川普总统手中转移到了乔·拜登的手里，这是一种不自然的模式，表明存在欺诈。
+参考链接：
 
-根据希瓦博士和其他人的说法，美国在当前的选举和以前的选举中使用的投票机，能够将选票存储为小数，而不是二项式特征，这使得这些机器能够为候选人权衡选票，并根据权重改变选举结果。
+[Milwaukee Elections Head Misplaced Crucial Voting Flash Drive](https://www.wisconsinrightnow.com/2020/11/06/milwaukee-election-flash-drive/?amp=1)
 
-没有道理在投票机上附加这个功能！
-
-在投票机上加入这个功能的原因只有一个——偷选举！
-
-例如，如果你喜欢一个候选人，他或她收到的每一张选票可以计算两次；如果你不喜欢一个候选人，你就将他的得票计算为0.5，然后设置投票机的权重，以便根据您的权重分配所有投票。在一天结束的时候，你清点选票，所有的选票都被计数了，但是第一个候选人的票数几乎是该候选人得票数的两倍，而第二个候选人得票仅是他应得数的一半。这是可以做到的，因为我们发现，在美国的投票机中，选票以小数形式存储，这就为操纵和欺诈选民提供了条件。
-
-希瓦博士与保守党脱口秀主持人拉里·埃尔德（Larry Elder）在上周的一次简短采访中解释了这一过程。
-
-希瓦博士关于2020年选举偷窃的演讲更长版本如下（原文附有视频）。在这段视频中，希瓦博士和两位同事讨论了密歇根州的选举，以及三个郡的至少138000张选票是如何从川普总统手中转移到乔·拜登手中的，是因为这些郡使用的投票机能够划拨选票的。
-
-这就导致了今天这样的情况。
-
-一位不愿透露姓名的数据科学家对密尔沃基地区的数据进行了复查，他的结论与希瓦博士在密歇根州的三个郡的结论非常相似。选区的组成越是共和党，从川普总统手中夺走、“转”给了乔·拜登的选票就越多。而且，具有讽刺意味的是，这些选票以一种非常令人不安、极不可能的线性方式移动。这种模式表明，这些选区受到操纵，川普总统的选票被取消，划拨给了乔·拜登。
-
-正如希瓦博士所说，“这太完美了”，我们对密尔沃基地区的分析显示出同样的曲棍球棒模式，这是极不可能的，与希瓦博士在密歇根州观察到的情况相似：
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15183415/%E5%9B%BE1.jpg)
-根据以上对密尔沃基郡选举结果的分析可以看出，共和党在国会的得票率越高，川普总统的得票率就越低，这没有道理的，而且极不可能。合理的预期是，投给共和党国会的票越多，川普总统的票数也就应该越多。
-
-事实上，这种模式发生在摇摆州的威斯康星州，与摇摆州的密歇根州完全相同，这一事实提供了有关2020年总统选举全国系统性舞弊的更多信息。
-
-我们比较了密尔沃基郡的结果和威斯康星州丹恩郡的结果，他们是非常不同的，在丹恩郡，川普总统在该郡的得票率与共和党的得票率非常相似，这是合乎情理的。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15183636/2-51.jpg)
-在密尔沃基，按统计学原理剔除那些极不可能和不可能（即舞弊）的选票时，可能的结果是川普总统多了30700张选票，而拜登相应少了30700票，总共是61400张交换选票。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15183744/3-42.jpg)
-由于拜登目前仅以2.1万票领先川普总统，通过对这一选区的分析修正后，应该将川普总统计作威斯康星州的获胜方。
-
-我们对数据挖掘得越多，我们就越能识别出更多的不合常规的模式，这些数字在统计学上不符合原理的原因，是因为有些事情正在发生，而且很可能是欺诈。
-
-【1】[https://www.thegatewaypundit.com/2020/11/using-audit-statistical-technique-known-benford-analysis-wisconsin-precincts-milwaukee-absolutely-investigate-fraud/](https://www.thegatewaypundit.com/2020/11/using-audit-statistical-technique-known-benford-analysis-wisconsin-precincts-milwaukee-absolutely-investigate-fraud/)
-
-原文链接：https://www.thegatewaypundit.com/2020/11/caught-part-3-impossible-ballot-ratio-found-milwaukee-results-change-wisconsin-election-30000-votes-switched-president-trump-biden/
+[Milwaukee election official given police escort to turn in absentee ballot info](https://thehill.com/homenews/state-watch/524415-milwaukee-election-official-given-police-escort-to-turn-in-absentee)
 
 0

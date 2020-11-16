@@ -1,65 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 电话网络现在是否正在审查选举舞弊的链接?
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/561931/)
+## 谁在施压各国，让他们承认拜登为“候任总统”？
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/561958/)
 
-*新闻来源：《InfoWars 《信息战争》》；作者：Paul Joseph Watson；发布时间：2020年11月 13日*
+郭文贵先生11月14日上午的 GTV 直播中称：某些巨大的利益集团都急切地向不同的国家及大家族施加压力，迫使他们承认拜登为下任总统。其意图很明显 —— 拜登与中共的紧密关系将使得他们能继续勾兑，并且让中共得以继续统治与压榨中国人民。
+视频来源：[https://gtv.org/video/id=5fac5324bd0d464fadff4dfb](https://gtv.org/video/id=5fac5324bd0d464fadff4dfb)
+全文：
 
-*翻译/简评：万人往；校对：感恩；审核：freedust；Page：Connor54*
+昨天和前天，这个在美国的几个所谓的中国人的老朋友，和以及欧洲的几个大的在中国长期投资的几个大家族，都纷纷和中共打电话，纷纷给伊朗，以及像土耳其、巴基斯坦这些真正有钱的大佬、政治家族打电话，包括给日本的家族施压，要求尽快承认美国新选出的总统——拜登政府。大家现在要起码常识应该知道，美国大选现在尘埃未定，为什么美国的所谓的中国老朋友都在安排着这种事情？他们意图为何？不就是现在的拜登政府和中共的关系好嘛。拜登家族，拜登的这派不就是跟中共有勾兑嘛，然后他们会继续支持他们，继续统治和压榨中国人民嘛。特别是在美国有一些巨大的利益集团，在不同的国家想尽一切办法威胁、利诱，让他们承认所谓的拜登总统选举。大家一定要擦亮眼睛，在这些事情上没有国界，在这些事情上没有真假，没有什么原则。
 
-[![](https://spark.adobe.com/page/xfhlCNN4meFmK/images/7c1db67d-ac7b-4831-9869-c83f27b1b869.jpg?asset_id=68158de5-3498-41a8-a71a-5d35270da093&amp;img_etag=%2288563df3104841be135d3abe98fedf2d%22&amp;size=1024)](https://spark.adobe.com/page/xfhlCNN4meFmK/images/7c1db67d-ac7b-4831-9869-c83f27b1b869.jpg?asset_id=68158de5-3498-41a8-a71a-5d35270da093&amp;img_etag=%2288563df3104841be135d3abe98fedf2d%22&amp;size=1024)
+就刚刚，今天，就刚刚这个两个小时前，我一个朋友，是欧洲的一个小国家的，小，很小的一个国家的朋友，给我打电话很客气，很客气说：“Miles 啊，我不希望你这个压力啊比过去几年大，不参与美国政治，美国政治也很黑暗。” 言外之意是什么，战友们说的？你听这话很简单，这就是威胁。啊，说什么“你要是再继续支持寻找真相，爆料革命和新中国联邦继续与共产党为敌，甚至是你这个有关的媒体上跟拜登这个这个和中共勾兑真相有关系的事情，你未来你比过去四年还痛苦，美国政治也很黑暗。”
 
-**简评：**
+那不意思就威胁吗？我非常客气地也回答了他，我说：“只因为你每天都活的很有压力，我说你看你的年龄和你的脸完全不成比例，因为你活的太龌龊了，太黑暗了。” 我说：“全人类在面临病毒这个问题上，每个人下一秒钟都可能染上病毒，甚至死亡。” 我说：“我的战友，当时十月一号在纽约曼哈顿游行的时候，我冲过去跟他们拥抱的风险和拥抱的带来的所谓的对我个人的生死的、安危的这个威胁，带来的危机远远大于所谓你说的未来四年的这个政治的这个压力。我照样就干。我过去几年干了很多次。在郭文贵的生命里边，在我的生命的字典里边，没有恐惧。存在什么威胁。” 我说：“就是你，你认为你自己，让自己活的没有恐惧、没有危险，我说你这个国家就穷的叮当响。你当了那么多国家那么多年的元首，你的人民是依旧穷破。” 我说：“你家还有游艇。你坐在那游艇里舒服吗？”
 
-文章提到，一名女士可以用安卓手机向苹果手机发送正常短信，但当她发送来源川普胜利网站（thedonald.win）一个关于拜登涉嫌选举舞弊的链接时，这条信息并没有发送到苹果手机上。诡异的是，在安卓手机显示信息已经发送了。
+这就是善和恶的区别。亲爱的兄弟姐妹们，我们不能蛇鼠两端，不能蛇鼠两端。
 
-信息审查的消息引起人们的担忧，电信公司是否可以根据信息内容来删除信息。在中共国每日都上演的信息审查、删帖，现在发生在自由、民主的美国，美国法治的基石已被中共的蓝金黄撼动。
+翻译：【RD16】字幕：【班仔】听写：【Cyndi】视频解码：【恒久忍耐】编辑：【Isaiah4031】
 
-[![](https://spark.adobe.com/page/xfhlCNN4meFmK/images/6caade05-2a1d-4642-ac9f-57448c470c8e.png?asset_id=9b59a02f-ea84-4890-8454-f8b25e1996c5&amp;img_etag=%2202c3249ee8eecdf1cc5ebbdb931c5b3b%22&amp;size=1024)](https://spark.adobe.com/page/xfhlCNN4meFmK/images/6caade05-2a1d-4642-ac9f-57448c470c8e.png?asset_id=9b59a02f-ea84-4890-8454-f8b25e1996c5&amp;img_etag=%2202c3249ee8eecdf1cc5ebbdb931c5b3b%22&amp;size=1024)
-
-如果让这些黑暗势力赢下大选，不难想象，《1984》中描绘的国家机器对公民无孔不入的监控会在美国上演，美国和中共成为命运共同体，美国人民也会丧失自由发声的权力。
-
-[![](https://spark.adobe.com/page/xfhlCNN4meFmK/images/ee977b59-66e7-4e3f-8eb3-7574c8b26d92.jpg?asset_id=15bbb6d4-ab34-411e-b58c-3642e4e39305&amp;img_etag=%22b8beeeaa8ca2bd509b2644fde6591318%22&amp;size=1024)](https://spark.adobe.com/page/xfhlCNN4meFmK/images/ee977b59-66e7-4e3f-8eb3-7574c8b26d92.jpg?asset_id=15bbb6d4-ab34-411e-b58c-3642e4e39305&amp;img_etag=%22b8beeeaa8ca2bd509b2644fde6591318%22&amp;size=1024)
-
-**原文翻译：**
-
-# 视频：电话网络现在是否正在审查有关选举舞弊的链接？
-
-[![](https://spark.adobe.com/page/xfhlCNN4meFmK/images/6910212c-d68b-4dfc-83f3-ef810d89513b.png?asset_id=8c7a9826-1f99-4239-9082-09cbd9f423b6&amp;img_etag=%22194080e67b0e95f82e93e34896606d9f%22&amp;size=1024)](https://spark.adobe.com/page/xfhlCNN4meFmK/images/6910212c-d68b-4dfc-83f3-ef810d89513b.png?asset_id=8c7a9826-1f99-4239-9082-09cbd9f423b6&amp;img_etag=%22194080e67b0e95f82e93e34896606d9f%22&amp;size=1024)图片来源:视频截图
-
-发布在推特上的一段视频显示，一名女子试图向一部苹果手机发送一个关于声称是选举舞弊的链接，但这条消息没有发送出去，引起了手机网络现在正在审查链接的说法。
-
-这位女士称:“爆炸性消息:有关选举舞弊的信息正在通过短信遭到审查。这是100%的证据！GEyesgle绿苹果、威瑞森无线（Verizon）或所有这些公司都是罪魁祸首。还需要更多的测试来找出哪些公司正在审查关于舞弊的短信! 我们已经达到审查的顶峰了！”
-
-视频显示，她用一部安卓手机向一部苹果手机发送正常短信，但当她试图发送来源川普胜利（thedonald.win）网站一个涉嫌选举舞弊的链接时，这条信息并没有发送到苹果手机上，尽管安卓手机显示已经发送了。
-
-然后，这位女士可以发送编辑过的非直接链接到这部苹果手机上，但当她试图在链接有效的情况下将信息从苹果手机发送回安卓手机时，信息没有被发送。
-
-[![](https://spark.adobe.com/page/xfhlCNN4meFmK/images/316592e3-578d-406e-8e63-0faa2a0fc689.png?asset_id=e27a5af1-1c27-4c1a-a976-6787b229f9d8&amp;img_etag=%2205a46a84e136dd912c6c4910fc5f89b8%22&amp;size=3330)](https://spark.adobe.com/page/xfhlCNN4meFmK/images/316592e3-578d-406e-8e63-0faa2a0fc689.png?asset_id=e27a5af1-1c27-4c1a-a976-6787b229f9d8&amp;img_etag=%2205a46a84e136dd912c6c4910fc5f89b8%22&amp;size=1024)
-
-
-**[视频链接](https://twitter.com/atma_shanti/status/1327040139613196288)**
-
-
-一名回复的人评论道：“想象一下，如果电信公司可以因为你的谈话内容而挂断你的电话!或者他们是否可以因为…而删除链接…哦…该死。”
-
-另一种解释是，电话公司或谷歌可能只是在审查来自川普胜利网站（donalde.win）的所有链接。
-
-[![](https://spark.adobe.com/page/xfhlCNN4meFmK/images/df6d1e43-9a4f-42df-8764-063e762028d0.png?asset_id=8533c457-03ad-440b-bea4-065a947fbe89&amp;img_etag=%223195da4a582eaeff0dd9c70fe1925771%22&amp;size=1024)](https://spark.adobe.com/page/xfhlCNN4meFmK/images/df6d1e43-9a4f-42df-8764-063e762028d0.png?asset_id=8533c457-03ad-440b-bea4-065a947fbe89&amp;img_etag=%223195da4a582eaeff0dd9c70fe1925771%22&amp;size=1024)网页截图
-
-正如我们之前报道的那样，早在8月份，共和党国会候选人劳拉•卢默（Laura Loomer）就指责康卡斯特公司（Comcast）及其子公司超无限（Xfinity）禁止她向选民发送短信和电子邮件。
-
-卢默（Loomer）解释了在棕榈滩县（Palm Beach County）的康卡斯特公司（Comcast）是如何禁止她的竞选团队向选民发送信息，给这些信息贴上“危险内容”的标签，并且不发送这些信息。
-
-[![](https://spark.adobe.com/page/xfhlCNN4meFmK/images/1f29eb9f-173a-4a07-91cd-78d3daf5259d.jpg?asset_id=fdbb3f48-a332-4ffb-929b-e4773b8929e1&amp;img_etag=%2252673a0ac442fd6f72e3df87d1c427ee%22&amp;size=1024)](https://spark.adobe.com/page/xfhlCNN4meFmK/images/1f29eb9f-173a-4a07-91cd-78d3daf5259d.jpg?asset_id=fdbb3f48-a332-4ffb-929b-e4773b8929e1&amp;img_etag=%2252673a0ac442fd6f72e3df87d1c427ee%22&amp;size=1024)
-
-[原文链接](https://www.infowars.com/posts/video-are-phone-networks-now-censoring-links-about-election-fraud/)
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/xfhlCNN4meFmK/)
-[![](https://spark.adobe.com/page/xfhlCNN4meFmK/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/xfhlCNN4meFmK/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-1+
+战友之家玫瑰园小队出品
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01145114/GNEWS-GTV-VOG.png)
+0
