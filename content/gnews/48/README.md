@@ -1,81 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 朱利安尼先生 推文系列6 : 人民用行动支持川普
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/561835/)
+## 一位非川普总统支持者的心声：我倡导选举诚信
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/561884/)
 
-*作者：鲁迪-朱利安尼(Rudy Giuliani)；发布时间：2020年11月 15日*
+蒙特利尔战友团 laotou
 
-*翻译/简评：Beicy-数学老师；校对：TCC；审核：TCC；Page：Connor54*
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15131315/%E8%AF%9A%E4%BF%A1-scaled.jpeg)图片来自 Medium
+“我不是共和党或川普总统的支持者，但我一直是选举诚信的倡导者！”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/5mFIdaxI0x6Kh/images/db4382f4-b0d2-499e-8cf4-c9c7387ba292.jpg?asset_id=f14f003e-cbfb-4ce6-b541-2a5b40418518&amp;img_etag=%226c22d491b69837cef3160c22dfb530b5%22&amp;size=1024)](https://spark.adobe.com/page/5mFIdaxI0x6Kh/images/db4382f4-b0d2-499e-8cf4-c9c7387ba292.jpg?asset_id=f14f003e-cbfb-4ce6-b541-2a5b40418518&amp;img_etag=%226c22d491b69837cef3160c22dfb530b5%22&amp;size=1024)
+随着中共恶行的败露，选举欺诈的曝光，越来越多的美国人开始觉醒，甚至包括那些非川普总统的支持者。面对一幕幕的选举怪相，负有正义感的人们开始质疑，他们不禁发问：我们的国家将走向何方？
 
-**简评：**
+《戴维·哈里斯媒体》（DJHJ Media）发文，题目是“佐治亚州选举观察员、IT专家、非川普总统支持者宣誓书：11月5日凌晨，拜登的邮寄选票突然激增2万张，而川普总统的约1000张选票消失”。
 
-朱利安尼先生推文，”感谢所有伟大的爱国者”。其中”所有”一词，包括了站在白宫对面、参加游行的我们新中国联邦人。此推文显示，11-14 华盛顿百万挺川大游行震撼了美国，震撼了世界。据郭文贵先生和游行战友视频时透露: 川普总统感谢新中国联邦人、 GNews和G-TV对他的支持。郭文贵先生发起、推动、引领的爆料革命，正在拯救美国，拯救世界。
+全文如下：
 
-朱利安尼先生最新置顶推文，再次申明 : 现在媒体公布的选举结果无效! 因为”未经核实的投票就会产生未经核实的选举结果”。在此，朱利安尼先生还发布了他对选民欺诈的分析视频。
+我越来越清楚地看到，好莱坞、新闻网络和主流社交媒体公司控制着美国。据报道，有五家公司拥有一切，它们的所有附属公司都在传递同样的信息（剧本）。
 
-朱利安尼先生10月推文，揭示拜登 是”属于中共国的”事实。我们选取出来, 因为:
+因此，当有来自摇摆州投票站、计票处理中心工作人员发出的有关选举舞弊的独立的报道、视频，和宣誓证词时，（他们会装聋作哑），发生了什么？什么都没有。
 
-大选投票结束。 战斗才刚刚开始。
+尽管目击者证实了非法选票是在没有共和党观察员的情况下被计入和处理的，但媒体在没有调查他们的指控的情况下，就给他们贴上了无关紧要的标签，媒体的报道也不真实。
 
-爆料革命的战友们, 我们加油传播真相!
+那么，我们的国家将走向何方？
 
-**原文翻译：**
+佐治亚州的情况，借助显微镜看一下里面所发生的邪恶活动的场景，就会导致人们出来大声疾呼。
 
-**推文1: 2020年11月13日 22点06分发布**
+事情变得如此糟糕，上周一，参议员大卫·珀杜（R-GA）和参议员凯利·洛弗勒（Kelly Loeffler）以佐治亚州2020年总统选举的管理（混乱）为由，要求佐治亚州州务卿布拉德·拉芬斯佩格（Brad Raffensperger）辞职。
 
-(https://twitter.com/RudyGiuliani/status/1327372367111335937)
+据《真实清明调查》（Real Clear Investigations）报道，一件奇怪的事情发生在佐治亚州富尔顿郡亚特兰大的国营农场官方的邮寄选票计票点。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/5mFIdaxI0x6Kh/images/cd57a291-ed39-4bb2-83bf-dc0632450d4e.png?asset_id=bcc7e4e4-5329-46f8-96fe-d3a0025cc738&amp;img_etag=%22da0697ed4a76cf9206a8576bda2064eb%22&amp;size=2901)](https://spark.adobe.com/page/5mFIdaxI0x6Kh/images/cd57a291-ed39-4bb2-83bf-dc0632450d4e.png?asset_id=bcc7e4e4-5329-46f8-96fe-d3a0025cc738&amp;img_etag=%22da0697ed4a76cf9206a8576bda2064eb%22&amp;size=1024)
+11月5日凌晨，突然出现了乔·拜登约2万张邮寄选票的激增，而在这个关键的摇摆州，川普总统的大约1000张选票神秘地从他自己的选票总数中消失，（导致了）拜登以微弱优势领先。
 
-揭秘：证人的宣誓证据（显示了）普遍性地存在着选民欺诈：
+一名选举观察员在佐治亚州州务卿网站上，在监视选举结果时注意到了这个选情的可疑变化。
 
-鲁迪-朱利安尼对此的分析视频
+“我从这些结果中得出结论，这是一个不正常的现象，因为没有明显的理由让川普总统的总数下降，而拜登的总数却大幅增加。” 选民GA联合创始人加兰·法弗罗维托（Garland Favorito）在本周提交给州务卿办公室的宣誓书中宣誓道。
+
+法弗罗维托怀疑有多种因素，包括在密歇根州安特里姆县（Antrim County）使用的同一款的多米尼加投票系统（Dominion Voting system），该系统能“人为夸大”拜登的选票，错误地将6000张选票从川普总统转移到了拜登身上。去年，佐治亚州与多米尼加签订合同，在其所有159个郡实现选票自动统计。
+
+他在接受《真实清明调查》的采访中说：“这个系统的软件似乎也把川普总统的选票投给了拜登”，“或者拜登的选票是伪造的”。
+
+“两位候选人获得的待遇差别如此之大，是我在多年的选举监督中从未见过的。” 法弗罗维托说，他是一名职业IT专业人士，在过去20年里一直是该州选举诚信的主要倡导者。他说他不是共和党或川普总统的支持者。
+
+住在亚特兰大地区的法弗罗维托说，富尔顿县的转变如此引人注目，似乎有人在一夜之间将大量拜登的邮寄选票“扔进”了系统。
+
+他断言，“一个候选人不能提高2万，另一个什么都不做——在富尔顿县或佐治亚州的任何一个县。那是不可能的。”
+
+法弗雷托补充，“我认为他们会发现，非常规（现象）的根本原因是某种电子设备，我认为它会极大地改变结果。”
+
+他认为这可能是由于软件或设备故障，甚至可能是选票交换“恶意软件”感染了系统。然而，最令人担忧的是选举官员或工作人员有可能故意不当的行为。
+
+“很有可能是内部人员干的。” 法弗罗维托说，不过该州的共和党和民主党官员都说，他们没有发现选举舞弊的可信证据。
+
+是的，“可信证据”还没有到让你们这类“爪牙”级人物看到的时候，第一步，你们先认可“数据有误”的事实，将有误的数据给予更改。示证据、“追责舞弊”将是下一步！
+
+原文链接：
+https://djhjmedia.com/eric/ga-poll-watcher-it-expert-non-trump-supporter-affidavit-sudden-surge-of-20000-mail-in-votes-for-biden-in-early-hours-on-nov-5-while-approx-1000-votes-for-trump-disappeared/
 
 
-
-
-
-
-
-**推文2: 2020年11月15日 凌晨2点10分发布**
-
-(https://twitter.com/RudyGiuliani/status/1327796051982610434)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/5mFIdaxI0x6Kh/images/77d87f87-b191-4420-815b-4c1e17c2f1b9.png?asset_id=5faad820-90bb-49e8-b80b-354f10bb6c67&amp;img_etag=%22a4dd842de789fdcc375503bcf0d20556%22&amp;size=2560)](https://spark.adobe.com/page/5mFIdaxI0x6Kh/images/77d87f87-b191-4420-815b-4c1e17c2f1b9.png?asset_id=5faad820-90bb-49e8-b80b-354f10bb6c67&amp;img_etag=%22a4dd842de789fdcc375503bcf0d20556%22&amp;size=1024)
-
-“未经核实的选票就是未经核实的投票。未经核实的投票就会产生未经核实的选举结果。未经核实的选举结果就会破坏了人们对民主本身的信心。
-
-**推文3: 2020年11月15日 凌晨2点06分发布**
-
-(https://twitter.com/RudyGiuliani/status/1327795026852786178)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/5mFIdaxI0x6Kh/images/7cb4e863-b9ce-4a1e-9739-10db70d15ddf.png?asset_id=ce59806d-eb21-4342-a19f-db699c98de11&amp;img_etag=%223eb80ddff8ef2c6ade1591b82cbd105d%22&amp;size=2700)](https://spark.adobe.com/page/5mFIdaxI0x6Kh/images/7cb4e863-b9ce-4a1e-9739-10db70d15ddf.png?asset_id=ce59806d-eb21-4342-a19f-db699c98de11&amp;img_etag=%223eb80ddff8ef2c6ade1591b82cbd105d%22&amp;size=1024)
-
-“感谢所有伟大的爱国者，他们今天站出来大声疾呼。上帝保佑你们! “
-
-**推文4: 2020年10月8日 凌晨2点56分发布**
-
-(https://twitter.com/RudyGiuliani/status/1314021786879700997)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/5mFIdaxI0x6Kh/images/cb7912b9-8b96-4ba3-9a16-b3cc969f44c5.png?asset_id=047cd28e-e412-4407-9d8d-fafd0ffc40e4&amp;img_etag=%22b24c03372729343d2cbdbb0331917e5e%22&amp;size=2560)](https://spark.adobe.com/page/5mFIdaxI0x6Kh/images/cb7912b9-8b96-4ba3-9a16-b3cc969f44c5.png?asset_id=047cd28e-e412-4407-9d8d-fafd0ffc40e4&amp;img_etag=%22b24c03372729343d2cbdbb0331917e5e%22&amp;size=1024)
-
-拜登无法与中共国抗衡。
-
-中共拥有他(拜登)。
-
-拜登的儿子、哥哥和嫂子现在与过去都一直是共产中共国国有企业和中共高层成员的合作伙伴。
-
-我所看到的记录显示，(中共)向拜登犯罪家族支付了超过3000万美元，而且还有更多其他的呢。
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/5mFIdaxI0x6Kh/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/5mFIdaxI0x6Kh/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/5mFIdaxI0x6Kh/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

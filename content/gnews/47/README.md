@@ -1,51 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 彼得·纳瓦罗：无需讨论拜登的执政方案
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/561859/)
+## 英国政府宣布中共国违反《中英联合声明》
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/561894/)
 
-*新闻来源：NewsMax｜作者：桑迪·菲茨杰拉德(Sandy Fitzgerald)；*
+*新闻来源：英国政府网站（GOV. UK)；作者：新闻稿（Press release ）来自FCDO通信团队（the FCDO Communication Team ）；发布时间：2020年11月12 日*
 
-*发布日期： 2020年11月14日15:30*
-
-*翻译、简评：Bob1203(文虓)｜校对：感恩｜审核：海阔天空｜PAGE：玄天生；*
+*翻译/简评：Marialu；校对：Beicy-数学老师；审核：johnwallis；Page：Eric8848*
 
 **简评：**
 
-川普总统周四签署了一项行政命令，禁止美国投资与中共国军方有联系的31家公司。白宫贸易顾问彼得·纳瓦罗（Peter Navarro）周五接受福克斯公司（Fox Business）的玛丽亚·巴蒂罗莫（Maria Bartiromo）采访时表示，相信川普总统将会连任，想知道乔·拜登（Joe Biden）会做什么没有实际意义。纳瓦罗暗示此次大选受到操纵，出现了大量不合法选票，坚定地支持川普总统连任。最后他表示美国资本不应该被“用于资助中国的军事化，特别是用于杀害美国人的武器”。纳瓦罗作为川普总统坚定的盟友，对川普总统给予了巨大的支持，同时也对川普总统赢得连任，深具信心。纳瓦罗们的表态与拜登团队的躲躲闪闪形成了巨大的反差，这背后是民意、民心的巨大差别。川普总统一定会赢！
+2020年11月11日，中共全国人大常委会决定：香港立法会议员因宣扬或者支持“港独”、拒绝承认中共国对香港拥有的主权、寻求外国干预香港事务或者危害国家安全等行为，一经依法认定，即时丧失议员资格。该决定导致立法会四名民选议员立即被罢免，英国政府宣布中共国违反《中英联合声明》。
 
-**原文翻译**：
+中共破坏了基本法和“一国两制”，公然违反在《中英联合声明》中作出的国际承诺以及对香港人民的承诺。那一天是香港黑暗的一天，证明一国两制已不复存在。我们坚决支持香港各界为民主抗争，抵制中共在香港实行一党独裁的专制统治。我们呼吁国际社会和正义力量与香港人民站在一起，向中共说不！
 
-# 彼得·纳瓦罗：担忧拜登会做什么，是没有意义的讨论
+**原文翻译：**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/muE0Ex9rNoso5/images/1a7a6a52-3347-4d07-a3db-047120245f37.jpg?asset_id=4da2a49c-8934-4928-9d79-4fe6e0eb8d12&amp;img_etag=%22cb31f7123eb2d6b5e6283238614b5e89%22&amp;size=2560)](https://spark.adobe.com/page/muE0Ex9rNoso5/images/1a7a6a52-3347-4d07-a3db-047120245f37.jpg?asset_id=4da2a49c-8934-4928-9d79-4fe6e0eb8d12&amp;img_etag=%22cb31f7123eb2d6b5e6283238614b5e89%22&amp;size=1024)*彼得·纳瓦罗（Peter Navarro）（Alex Wong / Getty Images）*
+**英国外交大臣宣布(中共)违反《中英联合声明》**
 
-*桑迪·菲茨杰拉德(Sandy Fitzgerald) | 2020年11月13日，星期五，上午11:44*
+继香港四名民主派议员被取消资格后，英国政府宣布中共国违反《中英联合声明》。
 
-白宫正在向前推进唐纳德·川普总统周四签署的一项[行政命令](https://www.newsmax.com/world/asia/china-us-investment-ban/2020/11/12/id/996852/)，禁止美国投资与中国军方有联系的31家公司。（白宫）贸易顾问彼得·纳瓦罗（Peter Navarro）周五表示，相信川普总统将会连任，想知道乔·拜登（Joe Biden）会做什么没有实际意义。
+[!\[\]()!\[\](https://spark.adobe.com/page/bCZwiZpddEeHc/images/1b3f6aa2-ae5e-45a1-9682-f4ad4b155896.jpg?asset_id=cc03a76c-fab3-40d6-a406-94a198df9a5b&amp;img_etag=%22399f6d7b13b5bd087bbe7a7008b29357%22&amp;size=1024)](https://spark.adobe.com/page/bCZwiZpddEeHc/images/1b3f6aa2-ae5e-45a1-9682-f4ad4b155896.jpg?asset_id=cc03a76c-fab3-40d6-a406-94a198df9a5b&amp;img_etag=%22399f6d7b13b5bd087bbe7a7008b29357%22&amp;size=1024)
 
-纳瓦罗（Navarro）告诉[福克斯公司（Fox Business）的玛丽亚·巴蒂罗莫（Maria Bartiromo）](https://video.foxbusiness.com/v/6209631520001/?playlist_id=3166411554001#sp=show-clips)说：“在人们的头脑爆炸之前，我认为这真的很重要，我们所寻求的是可核查的选票，法定的选票。” “从某种意义上说，我们受到了一种近乎完美的欺骗。”
+**外交大臣多米尼克•拉布（Dominic Raab）说：**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/muE0Ex9rNoso5/images/e7171e46-6e4e-4e56-8bae-fefdebbc159b.jpg?asset_id=29b74e90-ff94-4a41-be21-2cfba2b5247d&amp;img_etag=%22a6b246c1a8f96d204181926911b76171%22&amp;size=1024)](https://spark.adobe.com/page/muE0Ex9rNoso5/images/e7171e46-6e4e-4e56-8bae-fefdebbc159b.jpg?asset_id=29b74e90-ff94-4a41-be21-2cfba2b5247d&amp;img_etag=%22a6b246c1a8f96d204181926911b76171%22&amp;size=1024)
+“北京实施新规则以取消香港民选议员的资格，显然违反了具有法律约束力的《中英联合声明》。”
 
-纳瓦罗（Navarro）说，选举日川普在两个摇摆州领先，但拜登以“刚好足够的选票”赶上了他。
+“中共国再次违背了承诺，破坏了香港的高度自治。英国将站在香港人民的立场上，并谴责（中共）侵犯其权利和自由的行为。我们将与我们的国际伙伴一起，要求中共国履行它根据国际法自愿承担的义务。”
 
-纳瓦罗（Navarro）说：“我们有一套非常清晰的选举法，我们需要做的就是像布什诉戈尔案那样进行整个过程。” “我们认为他（川普）赢得了大选，我认为在此推测乔·拜登可能会做什么毫无实际意义。”
+**背景**
 
-当巴蒂罗莫（Bartiromo）询问在拜登（Biden）期待一月份就职白宫的情况下川普的新行政命令前景如何后，他发表了上述评论。
+• 2020年11月11日，中共国全国人大常委会决定：任何宣扬或者支持“港独”、拒绝承认中共国对香港拥有的主权、寻求外国干预香港事务或者危害（香港的）国家安全的香港立法会议员，将违反议会誓言，并且应被取消其香港立法会议员的资格。该决定导致立法会四名民选议员立即被罢免，他们当时正坐在会议厅。
 
-纳瓦罗（Navarro）还为这一命令辩护，并告诉巴蒂罗莫（Bartiromo），美国资本不应该被“用于资助中共国的军事化，特别是用于杀害美国人的武器”。我们正在对付那些有意伤害美国的中共国公司。”
+• 该决定是一种模式的一部分，显然是在恐吓和压制所有批评中共国政策的声音。取消资格的新规则在这次行动中提供了另一种手段，用模糊的标准让人可以进行广泛的解读。
 
-他补充说，中共国法律还允许共产党对在中国开设的任何公司提出所有权要求，从而使其“实际上成为中国政府的一个机构”，而这是“我们根本不能容忍的”。
+• 我们认为该决定违反了具有法律约束力的《中英联合声明》。这既违反了中共国关于香港享有“高度自治”的承诺，也违反了《宣言》第3款和附件 I 所保证的言论自由权。
 
-[原文链接](https://www.newsmax.com/politics/peter-navarro-executive-order-white-house-military/2020/11/13/id/996937/)
+• 这是自1997年以来中共国第三次违反具有法律约束力的《联合声明》。第一次是在2016年。第二次是在2020年6月，当时北京颁布了《香港国家安全法》。
 
-编辑 【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/muE0Ex9rNoso5/)
+[原文链接](https://www.gov.uk/government/news/foreign-secretary-declares-breach-of-sino-british-joint-declaration)
 
 [点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
 [点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/muE0Ex9rNoso5/images/dd715013-4616-45b3-a9f4-29facd34205b.jpg?asset_id=f84087aa-d1d8-4d9e-a721-52d5c441a76e&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/muE0Ex9rNoso5/images/dd715013-4616-45b3-a9f4-29facd34205b.jpg?asset_id=f84087aa-d1d8-4d9e-a721-52d5c441a76e&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/bCZwiZpddEeHc/)
 
-0
+[!\[\]()!\[\](https://spark.adobe.com/page/bCZwiZpddEeHc/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/bCZwiZpddEeHc/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
+2+

@@ -1,40 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 财经关键词: 中共生物武器病毒的财政预算
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/559995/)
+## 威斯康星州一负责人在大选关键时期丢失选举闪存盘
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/562469/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14233201/Picture84.png)图片來源： G-Talk
-我们从闫丽梦报告、路德节目得知，新型冠状病毒（COVID19）为中共的超限生物武器病毒，已经导致成千上万人感染死亡。武汉病毒研究所、武汉生物安全实验室参与作案。
+多伦多加喜农场 文𤦍(Manpui)
+校对 文锦 上传 WJ
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15195622/pjimage-18-1024x538-1.jpg)图片来源：wisconsinrightnow.com
+据威斯康星州立时报 （Wisconsin Right Now ）11月6日报道，密尔沃基（Milwaukee) 县选举负责人克莱尔·伍德·沃格（Claire Woodall-Vogg）声称她在11月4月清晨丢失选举闪存盘。含有2020年总统大选缺席选民关键信息的闪存盘，在全世界等待密尔沃基公布选票数结果时刚好短暂丢失。只要有了该闪存驱动器，谁都可以操纵投票计数。与此同时，拜登在该选区获得了12万张选票。
 
-**中共国科学院武汉病毒研究所自我介绍**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14233245/Picture85.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14233303/Picture86.png)图片來源：作者提供 （）
-组织架构：![]()
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14233322/Picture87.png)图片来源：作者提供
-**中共国科学院武****汉****国家****⽣****物安全****实验****室的完工**
+其间“密尔沃基市收集169,000多次缺席选票的结果”。摄像头拍到密尔沃基选举委员会执行主任沃格在没人监督时输入编号。
 
-2018年11月27日，中共国科学院武汉国家⽣物安全实验室（以下简称“武汉P4实验室”）建设项⽬通过验收。中共国科学院副院长、武汉P4实验室建设项⽬验收委员会主任张涛出席验收会并讲话，国家⾃然科学基⾦委员会陈宜瑜院⼠、华中农业⼤学陈焕春院⼠、中国军事科学院⾦宁⼀院⼠、中科院武汉物理与数学研究所叶朝辉院⼠等18位专家及中科院条件保障与财务局、前沿科学与教育局、国际合作局等相关负责同志参加了会议。会议由中科院条件保障与财务局局长郑晓年主持。依托实验室形成的安全稳定运⾏能⼒、⽣物资源保藏能⼒、科研⽀撑服务能⼒、公共卫⽣应急反应能⼒和服务国家⽣物安全战略能⼒，将在我国新发、突发烈性传染病的防控和⽣物防范⽅⾯发挥基础性、战略性、引领性的⽀撑作⽤。委员会专家⼀致同意武汉P4实验室建设项⽬通过此次验收。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14233333/Picture88.png)图片来源：作者提供
-**中共将武汉病毒研究所在“重点实验室及相关设施”项目预算列支**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14233444/Screen-Shot-2020-11-15-at-2.34.29-pm.png)图片来源：作者提供
-中共的财政预算分为基本支出预算和项目支出预算，项目支出反映为完成其特定行政工作任务或事业发展目标，在基本支出之外发生的支出，包括基本建设、有关事业发展专项计划、专项业务费、大型修缮、大型购置、大型会议等支出。
+好多州通过这样操纵就增加了很多”非法”票数，费城也丢失了一些闪存驱动器。 安特里姆县的人手点票计数显示，有6000票从川普改成了拜登。
 
-**武汉国家生物安全实验室在“重大科学工程”项目支出预算列支**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14233453/Picture90.png)图片来源：作者提供
-**中共国科学院2017年部门决算**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14233502/Picture91.png)图片来源：作者提供
-中共国科学院2018年决算
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14233509/Picture92.png)图片来源：作者提供
-中共国科学院2019年部门决算
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14233517/Picture93.png)图片来源：作者提供
-重点实验室及重大科学工程预算连续增加，2019年病毒完成，预算列支大幅增长，达到41亿元，具体如下：![]()
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14233612/Picture95.png)图片来源：作者提供
-经过搜寻，没有在中共的官网找到武汉病毒研究所和武汉国家生物安全实验室本身的财政预算信息，暂时以中科院的上述项目预算信息进行了分析。另外需要提醒的是，中共有时会故意或无意放错预算科目，上述数据只能参考。
+虽然密歇根州在选票托管方面有严格的法律。 使用闪存驱动器实属非法行为。然而他们不仅允许这样做而且还使其成为实在方式，这意味着我们应该检查其他县的点票和计数以确保正确。
 
-作者：CPA Jim
+评论：继川普总统竞选団队已经在宾夕法尼亚、密西根、佐治亚等多州提出了法律诉讼，现又被人挖出了密尔沃基、费城选票有猫腻，这能简单归咎于人为错误吗？
 
-By：【秘翻组·金融法律组】
+原文链接：
 
-(文章内容仅代表作者观点)
+[Developing: Milwaukee Elections Chief Reportedly Lost Elections Flash Drive in Morning Hours of November 4th When Dems Gained 120,000 Votes for Joe Biden](https://djhjmedia.com/steven/developing-milwaukee-elections-chief-reportedly-lost-elections-flash-drive-in-morning-hours-of-november-4th-when-dems-gained-120000-votes-for-joe-biden/)
+
+参考链接：
+
+[Milwaukee Elections Head Misplaced Crucial Voting Flash Drive](https://www.wisconsinrightnow.com/2020/11/06/milwaukee-election-flash-drive/?amp=1)
+
+[Milwaukee election official given police escort to turn in absentee ballot info](https://thehill.com/homenews/state-watch/524415-milwaukee-election-official-given-police-escort-to-turn-in-absentee)
 
 0
