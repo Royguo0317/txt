@@ -1,82 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Dominion投票系统公司安全主管曾参与Antifa电话并发布Antifa宣言给川普总统
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/563608/)
+## 2020.11.16 首尔喜韩农场每日新闻热点
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/563585/)
 
-整撰：JAY(杰伊)、文錦
-复核：WENJUN
+新闻整理：Lacey月宁、夏虫不可语冰
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16041322/1-91.png)
+审核：文泽 编辑：李小甜KR
 
-埃里克-库默（Eric Coomer）博士是Dominion Voting Systems负责战略和安全的投票系统官，2010年埃里克-库默加入Dominion。根据他的简历，库默毕业于加州大学伯克利分校，获得核物理学博士学位。但如果你搜索该公司的资料，库默后来已经从他们的董事页面上删除。
+1**–****全球疫情实时更新**
 
-2016年，库默告诉伊利诺伊州选举委员会，可以绕过选举系统软件。以下是2016年在《邮报》和《电子邮件》上的更多内容。
+截止北京时间2020年11月16日下午15时，全球累计CCP病毒确诊病例较前一日增加321649例，达到54792349例；死亡病例增加3662例，达到1324448例。
 
-**库默博士的讲话暴露出所有选民都应该理解的一个非常严重的问题**。投票系统每次对硬件或软件进行更改时，都必须重新认证。重新认证是一个昂贵和耗时的过程。**库默博士告诉委员会的是，****Dominion Voting****在发现他们的代码受到威胁时，不会再去重新认证软件**。相反，他们依靠选举后的审计，并向选举管辖区提供有关安全的建议。我已经审查了Dominion公司制作的所有重新认证文件，我不记得有任何出于安全目的的软件调整。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16035949/%E5%9B%BE%E7%89%871-22.png)
 
-**这就是你的选票安全的真实情况**。伊利诺伊州和全美国的计票和记录投票的软件系统没有更新以解决安全问题，即使更新了，只要进入驱动系统的数据表，软件也可以完全绕过。
+**2－详讯：韩国新增223例新冠确诊病例累计28769例**
 
-[https://www.youtube.com/2b4748c8-b55b-4331-bd82-47d14378db25](https://www.youtube.com/2b4748c8-b55b-4331-bd82-47d14378db25)
+韩联社首尔11月16日电 韩国中央防疫对策本部16日通报，截至当天0时，韩国较前一天0时新增感染新型冠状病毒（COVID-19）确诊病例223例，累计确诊2.8769万例。
 
-Dominion是由克林顿基金会倡议发展的。
+3**－消息：中国外长王毅月底或接连访问韩日**
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16041408/2-55.jpg)
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16040503/%E5%9B%BE%E7%89%872-14.png)
 
-美联社在9月份的文章中也提到了库姆售出了超过1亿美元的有潜在安全问题的Dominion投票设备。
+韩联社北京11月16日电 据北京消息人士16日透露，中国外交部长王毅将在以视频方式出席17日的金砖国家峰会、20日的亚太经合组织（APEC）峰会和21—22日的二十国集团（G20）峰会后，于本月最后一周接连对韩国和日本进行访问。
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16041446/3-84.png)
+4**-川普律师鲍威尔：我们的证据足以翻转多州大选结果**
 
-FEC（信仰教育商业）联合创始人乔-奥尔特曼（Joe Oltmann），在接受媒体人Michelle Malkin的采访中，透露了自己是如何渗透到Antifa，以及如何在与Antifa成员的对话中发现 “来自Dominion的埃里克 “据称是2020年9月27日一周内聊天的一部分。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16040539/%E5%9B%BE%E7%89%873-13.png)
 
-奥尔特曼解释说，”埃里克 “正在告诉Antifa成员，他们需要 “保持压力”。当其中一个打电话的人问：”谁是埃里克？”有人回答：”埃里克，他是Dominion的人。” 奥尔特曼说，当谈话继续进行时，有人问：”如果F\*cking Trump获胜，我们该怎么办？” 奥尔特曼转述了埃里克（Dominion的家伙）如何回答：”别担心选举，川普不会赢。我做了f\*cking确定！”
+川普团队律师、前联邦检察官西德尼．鲍威尔（Sidney Powell）15日表示，她已经掌握了足够的选举舞弊证据，可以发起广泛的刑事调查，“我们准备好翻转多个州的选举结果。”
 
-奥尔特曼承认，埃里克-库默会是电话中的Antifa成员是没有足够依据的，当时他对Dominion投票系统一无所知。直到大选结束后，他开始在新闻中听到关于Dominion投票系统的消息后，才想起 “Dominion的埃里克 “在与Antifa聊天中的言论。
+她还暗示，执法人员也涉嫌舞弊，不仅国土安全部的选举安全团队需要被解雇，就连联邦调查局（FBI）的局长克里斯托弗‧雷（Christopher Wray）也应该被开除。
 
-经营一家数据公司的乔-奥尔特曼研究了Dominion投票系统，因为有消息称，Dominion投票系统出现了无法解释的电脑 “故障”，神秘地从川普总统手中夺走了许多州的选票，并将这些选票给了乔-拜登，或者将选票完全抹去。
+鲍威尔表示，她就要放大招，把帮助拜登窃取大选的人一个个揭露出来。
 
-随后，奥尔特曼开始研究埃里克·库默，试图找到所能找到的任何东西。2020年11月12日，奥尔特曼在twitter帐户发布了库默在FB上转发 “Antifa”给川普总统的宣言信。
+5**–****媒体拒报川普支持者受袭击**** ****保守派严厉谴责**
 
-–这是Eric Coomer博士的FB帖子。这是Antifa给特朗普的 “宣言 “信。这是负责Dominion投票系统战略和安全的人。在接下来的几天里，我将在这里发布所有的帖子。分享和关注 pic.twitter.com/E2rK9TznVw
+周六（11月14日），美国民众在首都华盛顿发起大型集会游行，支持川普总统。但是活动结束后，有不少参与者遭到左翼极端分子袭击，而主流媒体却视而不见。对此，保守派人士纷纷发声，强烈谴责媒体对暴力的默认和偏袒。
 
-Twitter迅速删除了乔-奥尔特曼的账号。非常有趣的是，Twitter会删除一个正在调查库默、他的极左背景和他在Dominion的角色的账户。奥尔特曼表示，他透露了库默的这些信息，就等于把自己置于危险之中。
+周六，美国民众发起了被认为是美国数十年来最大的一次集会和游行，抗议大选舞弊，支持川普总统。活动期间，川普的支持者们既热情高涨，又和平理性。但在人群基本散去后，激进左翼组织“黑命贵”（BLM）和“安提法”（Antifa）的暴徒却趁机袭击落单的川普支持者，一些民众在攻击中受伤。
 
-毫无疑问，库默博士不是川普的支持者！以下就是那封信的截图：
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16040621/%E5%9B%BE%E7%89%874-10.png)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16041648/4-28.jpg)  Page 1
+然而，一向触角敏锐的美国主流媒体却对此默不作声，拒绝报导华盛顿发生的暴行。对此，保守派人士纷纷发声，谴责媒体违背行业道德和规范，失去了应有的公允和准则。
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16041804/5-23.jpg)  Page 2
+6**-美国宇航局和SpaceX公司准备将四名宇航员送往国际空间站**
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16041855/6-23.jpg)  Page 3
+美国太空探索技术公会司（ SpaceX）准备在周日晚上发射一枚运载四名宇航员的火箭到国际空间站。
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16041920/7-24.jpg)  Page 4
+SpaceX是高科技企业家埃隆·马斯克（Elon Musk）创办的火箭公司。该公司周日在推特上写道：“所有系统将于美国东部时间今晚7:27发射升空，这是“龙”飞船首次执行任务，机上有4名宇航员。” 另外，美国副总统彭斯在推特上表示，他期待与第二夫人凯伦·彭斯一起出席发射升空的观摩活动。
 
-乔-奥尔特曼还在Facebook上发布了库默博士的其他反川普总统的帖子 包括一个名为 “死了的总统 “的YouTube视频。
+7**-曾与新冠殊死搏斗的英国首相约翰逊再次自我隔离**
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16042054/8-26.png)
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16042636/%E5%9B%BE%E7%89%876-8.png)
 
-2017年，当库默在内华达州时，他在Facebook上嘲笑川普总统的选举诚信委员会。
+今年4月初，英国首相鲍里斯-约翰逊曾经因感染新冠病毒而入院接受治疗。与病毒进行激烈搏斗之后，他在全世界的关注之下好转并出院。11月15日，唐宁街一名发言人表示，约翰逊再次因新冠病毒而开始自我隔离.
 
-库默分享了[《华盛顿邮报》的一篇文章](https://www.washingtonpost.com/)，标题是：”投票委员会本身就是个骗子。把它关了吧”。这篇文章是由失去理智的川普总统仇敌詹妮弗-鲁宾（Jennifer Rubin）撰写的，是对 川普总统2017年5月11日[《关于成立总统选举诚信咨询委员会的行政命令》](https://www.whitehouse.gov/presidential-actions/presidential-executive-order-establishment-presidential-advisory-commission-election-integrity/)的攻击。
+8-**香港已领取BNO人数急增至50万人可移居英国但强积金未能同行**
 
-以下是库默2016年7月21日在脸书上曾对他的 “朋友 “说的话，这些朋友都是川普总统的支持者。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16042729/%E5%9B%BE%E7%89%877-6.png)
 
-如果你打算投票给这个专制的、自恋的、法西斯主义的、马屁精吹牛逼的人和他的基督教圣战者副总统，现在就把我取消好友吧! 不，我不是在开玩笑。我支持理性的政治对话和健康的辩论–我看着你（3个朋友的名字）。我不同意你们三个在很多哲学上的观点，但尊重你们的意见。只有绝对的白痴才会投票给那个他妈的白痴、法西斯种族主义者，他妈的！不废话，我才不管你是朋友，家人，还是什么熟人 –现在就把我取消好友。我一点也不想和你有任何互动。你是超越了希望，超越了理由，你被恐惧，反应，和废话所控制。让你和狗屎在一起。
+自英国宣布让合乎英国公民(海外)( BNO)资格人士一个新的移民途径后，申领BNO人士急剧增加，至10月已有近47万名港人持有有效BNO护照，他们现在已可利用特别途径提前到英国生活，以便正式申请永久居留权，但不少申请人发现，难以用「永久离开香港」的理由提前取回强制性公积金供款，引起不满。
 
-哦，这并不能说服你，你他妈的！说真的，这个该死的屁股小丑站在反对一切 ，这使得这个国家真棒！你也想加入吗？你应该得到的只有蔑视。
+9**–****上海防疫专家：预计中国人到****2022****才能出国玩**
 
-末了，库默澄清说： “这些观点是理性的，完全是我自己的观点 它们基于理性，可信度很高。虽然它们不一定是我雇主的想法，不过如果不是，我也许应该另找一份工作。谁愿意为完全的白痴工作？” 库默似乎在试图掩盖自己的行踪，”我的个人观点都不会影响我的职业操守和态度。”他还说，”我是无党派人士。”
+【看中国2020年11月16日讯】武汉肺炎疫情在中国各地复燃，当局紧急采取管制措施，不少民众的外出行程也告吹。对此，中国防疫专家指出，预测中国人到2022年的春天才能出国旅行。
 
-根据奥尔特曼的说法， 库默可能拥有核物理学博士学位，但在掩饰对川普总统、川普总统的支持者、执法者，甚至对德州人的仇恨时，Dominion的埃里克-库默并不聪明。
+10**-太湾东突厥斯坦协会座谈会专家指经济决定北京对新疆治理**
 
-这张由乔-奥尔特曼截获的图片 ，让人不禁怀疑埃里克是不是也不喜欢美国。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16042842/%E5%9B%BE%E7%89%878-5.png)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16042042/9-10.jpg)
-
-是什么让从厂家到各个监督和执法部门、甚至政客们明知Dominion选票系统存在问题却仍坚持向美国超过28个州销售？11月14日，Antifa和BLM人员伤害和挑衅聚集在华盛顿DC支持川普总统的和平抗议民众，是什么让Antifa和BLM如此血腥对待只是要真相和公平竞争的川普总统和支持川普总统的7300万手足？ 是什么让这位拥有核物理学博士学位的美国人和Antifa站在 一起仇视和竭力推翻川普总统？仇恨的心被人利用极易失去理智，这些人疯狂的行为组合在一起制造了美国的宪政危机。所幸美国仍有一批真正的爱国者会在7300万被唤醒的民意的支持下力挽狂澜，再一次让美国回归强大。
-
-参考链接：
-[https://www.thegatewaypundit.com/2020/11/report-anti-trump-dominion-voting-systems-security-chief-participating-antifa-calls-posted-antifa-manifesto-letter-trump-online/](https://www.thegatewaypundit.com/2020/11/report-anti-trump-dominion-voting-systems-security-chief-participating-antifa-calls-posted-antifa-manifesto-letter-trump-online/)
-[https://www.thegatewaypundit.com/2020/11/dominion-voting-systems-officer-strategy-security-eric-coomer-admitted-2016-vendors-election-officials-access-manipulate-vote/](https://www.thegatewaypundit.com/2020/11/dominion-voting-systems-officer-strategy-security-eric-coomer-admitted-2016-vendors-election-officials-access-manipulate-vote/)
+台湾东突厥斯坦协会今天举办座谈会，台湾有学者认为，中共将持续关切新疆问题，但受到美中贸易战接连冲击，中国经济能不能撑住，将决定中共对新疆维吾尔族的政策将如何发展。
 
 0
