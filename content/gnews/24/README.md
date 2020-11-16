@@ -1,49 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】加州法官裁定州长邮寄选票命令越权！重新点票可期！
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/562263/)
+## 财经关键词: 中共生物武器病毒的财政预算
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/559995/)
 
-**作者：香草山写作组.  正道主义联盟 **
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14233201/Picture84.png)图片來源： G-Talk
+我们从闫丽梦报告、路德节目得知，新型冠状病毒（COVID19）为中共的超限生物武器病毒，已经导致成千上万人感染死亡。武汉病毒研究所、武汉生物安全实验室参与作案。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
+**中共国科学院武汉病毒研究所自我介绍**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14233245/Picture85.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14233303/Picture86.png)图片來源：作者提供 （）
+组织架构：![]()
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14233322/Picture87.png)图片来源：作者提供
+**中共国科学院武****汉****国家****⽣****物安全****实验****室的完工**
 
+2018年11月27日，中共国科学院武汉国家⽣物安全实验室（以下简称“武汉P4实验室”）建设项⽬通过验收。中共国科学院副院长、武汉P4实验室建设项⽬验收委员会主任张涛出席验收会并讲话，国家⾃然科学基⾦委员会陈宜瑜院⼠、华中农业⼤学陈焕春院⼠、中国军事科学院⾦宁⼀院⼠、中科院武汉物理与数学研究所叶朝辉院⼠等18位专家及中科院条件保障与财务局、前沿科学与教育局、国际合作局等相关负责同志参加了会议。会议由中科院条件保障与财务局局长郑晓年主持。依托实验室形成的安全稳定运⾏能⼒、⽣物资源保藏能⼒、科研⽀撑服务能⼒、公共卫⽣应急反应能⼒和服务国家⽣物安全战略能⼒，将在我国新发、突发烈性传染病的防控和⽣物防范⽅⾯发挥基础性、战略性、引领性的⽀撑作⽤。委员会专家⼀致同意武汉P4实验室建设项⽬通过此次验收。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14233333/Picture88.png)图片来源：作者提供
+**中共将武汉病毒研究所在“重点实验室及相关设施”项目预算列支**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14233444/Screen-Shot-2020-11-15-at-2.34.29-pm.png)图片来源：作者提供
+中共的财政预算分为基本支出预算和项目支出预算，项目支出反映为完成其特定行政工作任务或事业发展目标，在基本支出之外发生的支出，包括基本建设、有关事业发展专项计划、专项业务费、大型修缮、大型购置、大型会议等支出。
 
+**武汉国家生物安全实验室在“重大科学工程”项目支出预算列支**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14233453/Picture90.png)图片来源：作者提供
+**中共国科学院2017年部门决算**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14233502/Picture91.png)图片来源：作者提供
+中共国科学院2018年决算
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14233509/Picture92.png)图片来源：作者提供
+中共国科学院2019年部门决算
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14233517/Picture93.png)图片来源：作者提供
+重点实验室及重大科学工程预算连续增加，2019年病毒完成，预算列支大幅增长，达到41亿元，具体如下：![]()
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14233612/Picture95.png)图片来源：作者提供
+经过搜寻，没有在中共的官网找到武汉病毒研究所和武汉国家生物安全实验室本身的财政预算信息，暂时以中科院的上述项目预算信息进行了分析。另外需要提醒的是，中共有时会故意或无意放错预算科目，上述数据只能参考。
 
+作者：CPA Jim
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15172915/Xx.png)
-据报道，加州一名法官裁定，州长加文·纽森(Gavin Newsom)于6月份要求通过邮寄方式向所有登记选民发送选票的命令超越了他的权限。
+By：【秘翻组·金融法律组】
 
-萨特县高等法院法官萨拉·赫克曼星期五裁定，纽森无权修改或改变现行选举法，即使在病毒大流行期间也是如此。
-
-据KCRA报道，该判决对纽森下达了永久禁令，禁止他更改加州紧急服务法案(CESA)下的现行法律。
-
-据此前报导，11月5日，加州第33选区联邦众议员共和党候选人詹姆斯・布拉德利（James P.Bradley）表示总统选举舞弊手段，最初就是从加州开始的，例如邮寄投票（Mail-in ballot）和收割选票（Ballet harvesting）。
-
-因邮寄选票可能被寄错、截获或者丢弃，所以向来被质疑是造假的温床。当你邮寄投票时，有更多的机会出错。自从今年发生中共病毒疫情后，加州就转向了邮寄选票的系统。
-
-加州立法机关通过一项类似的法律之前，纽森在6月3日擅自颁发了他的关于邮寄选票的一项命令。
-
-加州尤巴市共和党议员詹姆斯·加拉格尔（James Gallagher）和加州罗克林市共和党议员凯文·基利（Kevin Kiley）起诉纽森州长，认为改变法律是立法机关的职责，而不是州长的职责。
-
-有报道称，基利议员在10月份的证词中说：“我认为这是一件非常危险的事情。”“他履行了自己的诺言，下达了一个又一个命令。”
-
-随着大选舞弊案的暴露，越来越多令人震惊的消息及真相付出水面！邮寄选票由于可以手动人为更改，在多州爆发出了非常严重的选票偷窃行为！还有这些深蓝民主党州州长，临时下命令对大选做出错误性指导及命令，估计老早就知道是知法犯法！只不过他们侥幸希望不会被起诉，能瞒天过海罢了！
-
-所以川普总统大律师鲍威尔说：这次的美国总统大选舞弊案，范围之广，手段之恶劣，远远超出想象！是一个有组织有阴谋的大规模团伙作案！由于加州手握50人选举票，属于历届总统大选的最大票仓！如果彻查，加州肯定是案情的一个重灾区！案件取得胜利，我们期待进一步好消息核实，加州大选是否可以重新点票！
-
-发稿审核：悟空
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，纽约时间周日至周四晚上9:00，美国志愿者在纽约香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
-
-
-
-
+(文章内容仅代表作者观点)
 
 0
