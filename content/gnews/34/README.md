@@ -1,73 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】祝英雄科学家生日快乐
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/562774/)
+## 【Giselle专栏】虐待, 暴行…川普总统最新推文透露重大信息
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/562913/)
 
-作者：香草山写作组 youyou 编辑：木白
+作者：Giselle
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15231603/Picture103.png)图片来源：*Photo by Tasos Katopodis/Getty Images*
+美国时间周日（11月15日），川普总统在9小时之内发布的推特中，四次强调“这是一场被操控的选举”。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
+在这四条推特中，川普总统说，“我们绝不会让这场被操控的选举夺走我们的国家”，“他（乔.拜登）只是在虚假媒体的眼里赢了，我们还有很长的路要走，这是一场被操控的选举”，“被操控的选举，我们会赢”！“他（乔.拜登）之所以获胜，是因为选举被操控了。激进的左翼私营投票公司Dominion禁止投票观察员在场，这个投票系统口碑很差，器材有问题，不能鉴别德州的选票……”
 
+在最新的一则推文中，川普总统表示， 选票造假案很快将提起诉讼，“遍布全国的许多法院审理的案件都不是我们的，而是那些目睹了可怕的虐待人的案件。我们的大案子将很快提起诉讼，这些案子显示了2020年选举违宪以及为了改变选举结果而犯下的暴行。”
 
+这个推文提及“目睹了可怕的虐待人的案件”，很可能是指由前纽约州检察长、资深刑事律师朱利安尼提交给FBI的拜登硬盘材料中所涉及的一系列犯罪案件。经过爆料革命最近半个多月的连续爆料、传播，拜登家族虐童、乱伦、贪腐丑闻可谓人尽皆知。在大选的紧急关头，调查拜登家族犯罪事实，可谓釜底抽薪，多角度印证了拜登家族的犯罪前科。11月2日，朱利安尼在接受班农先生采访时说，对于检察官而言，这些证据多得令人尴尬，可谓铁证如山，证人、电邮、短信、音频、视频，应有尽有。从亨特.拜登和中共间谍叶简明、何志平、董功文之间的合同，就可以用《外国代理人登记法》将拜登定罪。
 
+亨特.拜登的后面是乔.拜登，乔.拜登的后面是中共，这几乎已经人尽皆知。川普总统的这则推文显示，美国的司法系统很可能会先从亨特.拜登虐童丑闻开始，进一步唤醒美国民众的良知与正义，激发民众的爱国热情。乔.拜登多年来就有娈童嫌疑，其在公众场合与女童种种不恰当的亲密接触，早就备受诟病。因此，一旦亨特被定罪，乔.拜登也很难洗脱嫌疑。
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15222605/MOS0361-%E3%80%90%E9%A6%99%E8%8D%89%E8%AF%97%E8%AF%8D%E6%B1%87%E3%80%91%E7%A5%9D%E8%8B%B1%E9%9B%84%E7%A7%91%E5%AD%A6%E5%AE%B6%E7%94%9F%E6%97%A5%E5%BF%AB%E4%B9%90-1.jpg)
-今日，正义在集结
+这则推文虽然只有短短的几句话，可是信息量巨大。联想起川普总统在9个小时内四次强调“这是一场被操控的选举”，就很清楚，川普总统接下来要对付谁。拜登是民主党的傀儡，民主党又是谁的傀儡？是谁在操控这场选举？答案不言而喻。
 
-挺川百万人大游行震撼着世界
+此外，在周六美国各州举行的“停止窃选”50州大游行中，川普也发表推文表示，此次选举是被操控的，从多米尼（Dominion）投票系统到高层人物都是。朱利安尼11月14日发表推特称，有68.2万选票在没有观察员在场的前提下，被计入了费城和阿勒格尼县的邮寄选票中，这直接违反了法院命令，违背了宪法，造成了无法挽回的损失。
 
-37年前的今日，一个天使坠落人间
+川普总统这则最新推文说“这些案子显示了2020年选举违宪以及为了改变选举结果而犯下的暴行”。联想起美国时间11月14日（周六）晚上，极左组织安提法和黑命贵运动的支持者，在华盛顿特区袭击了挺川普的普通民众。在这些暴徒的施暴过程中，警察视而不见，主流媒体也集体失声。但是，这不意味着事情就没有发生过，川普总统所指的暴行，无疑也包含了对这些暴徒提起的诉讼，同时还包括美国大选期间民主党阻挠观察员进场、撕毁选票等明显的违法暴力行为。
 
-她也一样震撼着
+（文章内容仅代表作者个人观点）
 
-这个尚未完全坠入黑暗的世界
-
-
-
-从内到外，心灵与美貌合一
-
-这上帝所眷顾的人呵
-
-总是美得让人惊叹
+**相关链接：**
 
 
 
-生命诚可贵
-
-自由价更高
-
-若为良知故
-
-两者皆可抛
+> Many of the court cases being filed all over the Country are not ours, but rather those of people that have seen horrible abuses. Our big cases showing the unconstitutionality of the 2020 Election, & the outrage of things that were done to change the outcome, will soon be filed!
+> — Donald J. Trump (@realDonaldTrump) [November 15, 2020](https://twitter.com/realDonaldTrump/status/1328100945570500608?ref_src=twsrc%5Etfw)
 
 
 
-若斯帖现世
+图片说明：图为2020年11月14日，挺川民众在华盛顿特区参加“百万MAGA游行”（Million MAGA March），从自由广场步行到最高法院，以抗议2020年总统选举的舞弊现象。（Tasos Katopodis/Getty Images）
 
-应该就是你的样子
-
-在人类毁灭的边缘
-
-一朵玫瑰在悬崖峭壁上悄然盛开
-
-
-
-而今天，我要大声地祝福你:
-
-生日快乐
-
-我知道，你把你的芳香长埋于心中
-
-只为这最后的胜利
-
-而哪一天，亿万战友将融化于同一颗心
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+[https://www.epochtimes.com/gb/20/11/15/n12550675.htm](https://www.epochtimes.com/gb/20/11/15/n12550675.htm)
 
 0
