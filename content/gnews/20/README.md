@@ -1,25 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 『热点播报』中共国农村宅基地超出规定面积的要缴费
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/562767/)
+## 川普总统五大律师之一鲍威尔发火了：CIA头儿应该立即被解雇
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/563026/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
+蒙特利尔战友团 laotou
 
+校对上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15235319/CIA.jpg)图为现任CIA局长 Gina Haspel ,来自 The Intercept
+川普总统任命的五大律师之一，西德尼·鲍威尔11月15日在福克斯玛丽亚·巴蒂罗莫（Maria Bartiromo）的《周日早间未来》栏目上接受采访时呼吁立即应解雇中情局局长吉娜·哈斯佩尔。
 
+鲍威尔说，哈斯佩尔和中情局肯定知道多米尼投票系统存在严重缺陷，但哈斯佩尔和中情局什么也没做。
 
-作者：香草山写作组 程万里
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15222529/11162.png)
-日前，墙内新闻播报为了落实农村“一户一宅”的宅基地政策，近两年对农村宅基地的清理工作也加大了力度。对于超出二分半的面积（0.25亩，也等于是167平方米）将收回村民组集体所有，或缴纳一定的土地占用费。费用由村集体经济组织或村民委员会收取，乡镇政府监督。没有积极主动缴纳超占费用的农户，对空庄空院的将依法收回。对宅院超出标准的那部分将收取占用费，对于拒缴费的将依法起诉到司法机关强制执行，并列入失信黑名单。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15222621/11164.jpg)
-近两年中共国打着为了保护农民的合法权益的名义，对农民的两块地，即：耕地和宅基地都进行了登记确权。然后又打着为了解决种粮食的耕地和国家建设用地的问题、保护耕地的名义，向农民征收费用。这一切的一切原来是为了割最后的一茬韭菜。终于到了最底层农民这里了，这是否会是最后的一根稻草呢？
+“这真是一个阴险、腐败的系统，我无法告诉你，我对我们的政府有多愤怒，因为他们不重视投诉，甚至是民主党人提出的投诉……我们政府中没有人注意到这一点，这让我怀疑中情局是否在不同的地方利用它为自己谋利。吉娜·哈斯佩尔为什么还留在中情局？我无法理解，她应该立即被解雇。”
 
-审核：浪迹天涯
+西德尼·鲍威尔发火了！
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+接下来的几周将会是爆炸性的！
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+从《门道专家》这篇文章可以解读出，多米尼投票系统存在严重缺陷已经是共识，接下来的就该是“纠错”，选票数字的重新确认，川普总统的选票“归位“，竞选获胜！然后（不排除同步），开始”追责”。
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
+当然，应该还有更快捷的办法，法官们看到如此之多，如此明显的证据后，比鲍威尔律师还愤怒，直接判川普总统赢得大选。
+
+在玛丽亚栏目寥寥的文字报道中，有这样一句，“证据来得如此之快”，她“甚至都无法处理”。
+
+（玛利亚一直是川普总统的支持者，在福克斯高层的压力下，能做这样的报道也实属不易）
+
+参见玛利亚的《周日早间未来》视频【1】
+
+【1】https://video.foxnews.com/v/6209930642001#sp=show-clips
+
+原文链接：https://www.thegatewaypundit.com/2020/11/sidney-powell-drops-bomb-sunday-morning-futures-cia-may-used-dominion-benefit-gina-haspel-fired-immediately-video/
+
 0

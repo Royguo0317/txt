@@ -1,122 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 黑命贵/Antifa暴徒在DC“百万MAGA游行”之后公然袭击包括儿童在内的川普支持者
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/562662/)
+## 11/15日康州农场新闻纵览播报，带您了解天下灭共大事-民意不可欺
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/562917/)
 
-翻译：康州农场 – 光头波波
+作者：康州农场-寒郁冰
 
 审核：康州农场-Truemanman
 
-周六，来自全国各地的爱国者汇集在华盛顿DC的自由广场， 举着标有“停止窃取”，“再次使美国公平”和“川普2020”的标语，高喊口号，要求“停止盗窃”，以表达对川普总统的支持，并强烈要求保证公平的选举过程和透明的选票统计。在同一天，约50个州有组织类似的活动。
 
-游行活动一切都非常和平，直到人群开始散布，黑命贵（BLM）和按提法（Antifa）激进分子团体开始出现，骚扰与会者，并最终转向暴力……视频显示，暴徒袭击、殴打一位小女孩，非常令人愤怒！
 
-这次骚乱，几乎完全是左翼暴徒对保守派的袭击。
+北京时间2020年11月15日华盛顿百万挺川大游行   成千上万的美国人和新中国联邦人在美国最高法门口。人们不停地高呼USA！人们希望美国还是那个美国，如果放任选举作弊，美国就不是原来的那个美国了，将踏上一条不归路。
 
-黑命贵/按提法引起的暴力活动屡屡发生，主流媒体何时会承认，在大选之前，商店/企业/房屋关门歇业，甚至为窗户钉上木板，并不是出于担心拜登胜利，而是担忧川普获胜以后，黑命贵/按提法实施的暴力袭击和抢劫。
+看了支持川普游行的图片和视频，我热泪盈眶， 即震撼又感动，古人云：“水能载舟亦能覆舟”、“得民心者得天下”，今天总算见识到了这种炸裂的场面，难怪硬汉川普会潸然泪下，古往今来，历史上任何一个国家，何曾有一个领导人会有这样的场面？试问谁看到会不感动、不落泪？作为一个不是美国人的人、没有身临其境的人都会被这种场面打动，更何况身在其中的当事人，经历了风风雨雨，被讽刺，被冤枉，被暗杀，其中的辛酸苦辣只有自己才能体会，但是看到今天的场面，川普总统一定会觉得值得，因为他是真正的为美国而生，为美国人民而战。他的所有付出在今天终于获得丰厚的回报，虽然有些迟到，但终究是来了！
 
+所有有良知的、善良的人们在疫情严重、生死攸关的时刻，不惧生命危险，不惧路途遥远，走上街头，支持他们心目中的人选-川普，一个并不完美，脾气倔强，不肯低头，不肯同流合污，甚至让好多人讨厌的怪老头，却赢得了所有人的心。其实，群众的眼睛是雪亮的，谁对谁错，孰是孰非，是好是坏，每个人心里都有一杆秤，虽然他们每个人都在说讨厌川普，但是华盛顿人潮涌动，人山人海，他们用行动证明了公道自在人心。
 
+人们从四面八方涌来，正如今日人们总结的金句一样：美国人们已经团结起来了 是惹不得的，惹翻了，是不好办的。是的，美国人民已经醒来，已经团结起来，他们走上街头，他们飞上天空，他们游进海洋，他们走出深山老林，为了川普总统，为了美国，为了自由，为了尊严，他们从任何一个地方走来，支持心之所向，必将披荆斩棘，所向披靡，这将成为见证历史的一刻，永远被刻进时光的里程碑！
 
-> Joe Biden voters attack an elderly American. 
-> 
-> We are not the same. 
-> 
-> Will Joe Biden denounce?
-> 
->  [pic.twitter.com/mK9mr3mkV1](https://t.co/mK9mr3mkV1)
-> — Benny (@bennyjohnson) [November 15, 2020](https://twitter.com/bennyjohnson/status/1327792715556335616?ref_src=twsrc%5Etfw)
+2020年美国总统大选黑幕即将被揭开，华尔街和各国精英政客操纵的经济一体化走向坟墓，中国5000多年的奴隶也将迎来解放，我们满怀激动，期待着这一刻的到来！
 
-
-
-
-
-> Antifa and Black Lives Matter activists vandalize a black man's MAGA merch stall. [pic.twitter.com/27bNiTzQ6P](https://t.co/27bNiTzQ6P)
-> — Ian Miles Cheong (@stillgray) [November 15, 2020](https://twitter.com/stillgray/status/1327783584791289856?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> This is disgraceful. [pic.twitter.com/8EN5UBVRZt](https://t.co/8EN5UBVRZt)
-> — Jack Posobiec 🇺🇸 (@JackPosobiec) [November 14, 2020](https://twitter.com/JackPosobiec/status/1327743144499273729?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> Antifa and BLM members attack people who are eating dinner near BLM Plaza. They threw projectiles and a large firework. [pic.twitter.com/w96nbZaJ8F](https://t.co/w96nbZaJ8F)
-> — Julio Rosas (@Julio\_Rosas11) [November 14, 2020](https://twitter.com/Julio_Rosas11/status/1327744558894026766?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> Here is a pro Trump marcher taking a knife from an apprehended BLM female protester. [pic.twitter.com/8NLwGy6uCC](https://t.co/8NLwGy6uCC)
-> — Matthew Miller (@mattmiller757) [November 15, 2020](https://twitter.com/mattmiller757/status/1327795071408885761?ref_src=twsrc%5Etfw)
-
-
-
-周六，来自全国各地的爱国者汇集在华盛顿DC的自由广场，表达对川普总统的支持，并强烈要求保证选举过程公平。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15213355/%E5%9B%BE%E7%89%871-20.png)
-正如大纪元时代的艾伦·钟（Allen Zhong）报道的那样（https://www.theepochtimes.com/trump-supporter-attacked-cut-in-head-amid-million-maga-march-in-dc\_3579067.html），参与者游行到美国最高法院，举着标有“停止窃取”，“再次使美国公平”和“川普2020”的标语，高喊口号，要求“停止盗窃”。组织者阿里·亚历山大（Ali Alexander）在上一次采访中对《大纪元》（The Epoch Times）表示，这些活动是表明“对特朗普总统的支持以及要求公平的选举和透明的计数”。在同一天，约50个州有组织类似的活动。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15213442/%E5%9B%BE%E7%89%872-13.png)
-游行活动一切都非常和平，直到人群开始散布，黑命贵（BLM）和按提法（Antifa）激进分子团体开始出现，骚扰与会者，并最终转向暴力……甚至有袭击儿童。
-
-如《千禧年邮报》报道的那样（https://thepostmillennial.com/breaking-antifa-assault-children-trump-supporters-in-washington-dc），一个小女孩遭到殴打，非常令人愤怒！
-
-
-
-> LIVE in DC: Posturing and heckling takes place on both sides of a barricade in front of SCOTUS. [@mattmiller757](https://twitter.com/mattmiller757?ref_src=twsrc%5Etfw) reporting for The Post Millennial[pic.twitter.com/IbCTCvju1s](https://t.co/IbCTCvju1s)
-> — The Post Millennial (@TPostMillennial) [November 14, 2020](https://twitter.com/TPostMillennial/status/1327719517720616961?ref_src=twsrc%5Etfw)
-
-
-
-录像片段描绘了一个人被殴打，导致头部受伤的情况。
-
-
-
-> DC: A man was physically assaulted in front of Union Station
-> 
-> His face is bloodied from the physical assault [pic.twitter.com/Dxz2BS1ytB](https://t.co/Dxz2BS1ytB)
-> — Drew Hernandez (@livesmattershow) [November 14, 2020](https://twitter.com/livesmattershow/status/1327718273648037888?ref_src=twsrc%5Etfw)
-
-
-
-其他镜头显示，年轻的川普支持者在被安提法追赶时逃离安全。
-
-
-
-> DC: A young Trump Supporter flees for his safety as Antifa militants threaten him away from their march towards BLM Plaza [pic.twitter.com/vcCSKyFvtK](https://t.co/vcCSKyFvtK)
-> — Drew Hernandez (@livesmattershow) [November 14, 2020](https://twitter.com/livesmattershow/status/1327724712894541824?ref_src=twsrc%5Etfw)
-
-
-
-最令人愤怒的片段是一个家庭正遭受安提法的袭击。视频中，一名母亲试图带着她的小女儿逃离该地区，但她的女儿在袭击中摔倒在地。
-
-
-
-> Black Lives Matter activists attack a family of Trump supporters. [pic.twitter.com/SvRSy8pBda](https://t.co/SvRSy8pBda)
-> — Ian Miles Cheong (@stillgray) [November 14, 2020](https://twitter.com/stillgray/status/1327720625457164288?ref_src=twsrc%5Etfw)
-
-
-
-Antifa踩在一位男士头上。
-
-
-
-> Black Lives Matter militants are now assaulting Trump supporters at random in DC. Be safe out there. [pic.twitter.com/RqZGZX4ZSV](https://t.co/RqZGZX4ZSV)
-> — Ian Miles Cheong (@stillgray) [November 14, 2020](https://twitter.com/stillgray/status/1327731532828577793?ref_src=twsrc%5Etfw)
-
-
-
-两位年轻人被黑命贵偷袭，追逐，一些视频显示警察逮捕了暴徒，但目前尚不清楚有多少人被捕。
-
-
-
-> Two men have been arrested by the DC police for assaulting Trump supporters at the march. [pic.twitter.com/jlhxThGwyk](https://t.co/jlhxThGwyk)
-> — Ian Miles Cheong (@stillgray) [November 14, 2020](https://twitter.com/stillgray/status/1327729241136381952?ref_src=twsrc%5Etfw)
-
-
-
-0
+1+

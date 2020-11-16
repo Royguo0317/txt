@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【字幕】11/15/2020文贵盖特：下一版的盖特上线会达到Twitter的80%
-` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/562951/)
+## 爆料革命灭共者
+` GM104` [轉載自GNews](https://gnews.org/zh-hans/563095/)
 
-制作： 【彩虹桥】
+爆料革命因郭先生而起，您三年的坚持和永不放弃唤醒了无数的中华儿女。身处大时代的历史的浪潮中，每一个人都是推动时代大改变的星星之火，为了中华民族的未来，为了世界的千年和平，我们永不妥协。
 
 0
