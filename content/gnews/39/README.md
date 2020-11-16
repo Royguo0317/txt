@@ -1,29 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【史海今钩】流泪撒种，欢呼收割——川普总统流泪有感
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/561644/)
+## 彼得·纳瓦罗：无需讨论拜登的执政方案
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/561859/)
 
-**作者：**香草山写作组  Kathy（文艺） 校对/发稿：飞虹
+*新闻来源：NewsMax｜作者：桑迪·菲茨杰拉德(Sandy Fitzgerald)；*
 
-11月的华盛顿DC，注定不平静。总统大选的余波，激起了千层浪。14日的百万大游行，美国民众自发聚集在白宫附近，将这波巨浪搅得滔天四溅，“川普，川普，再干四年”的呐喊声，淹没了一直不顾大选舞弊、颠倒黑白的挺拜黑川的主流媒体的叫嚣声。川普总统听见了我们的呼喊，也看见了我们的队伍，他流泪了。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15115436/7-18.jpg)
-《圣经·诗篇》126篇5-6节：流泪撒种的，必欢呼收割。那带种流泪出去的，必要欢欢乐乐的带禾捆回来。撒种就是与魔鬼征战，抢救被魔鬼占领的属地。这不是悲伤的泪，而是一种哀哭。
+*发布日期： 2020年11月14日15:30*
 
-《圣经·旧约》描写过一位流泪的先知耶利米，在犹太人的圣城耶路撒冷和圣殿被外族所毁后，为人民的苦难、国家的前途不明而哀哭。有诗云：一望锡安泪两行，三思悔愧两河趟。可见，先知流泪是对民族遭遇的哀痛与悲哭。以色列历史最强壮时期的大卫王，圣经也描写他不时为自己的罪行、为民族的命运前途哀哭。
+*翻译、简评：Bob1203(文虓)｜校对：感恩｜审核：海阔天空｜PAGE：玄天生；*
 
-今天的川普总统亦如先知耶利米，他秉持信仰及神对他的拣选与呼召，坚持着美国的宪法精神，持守着先贤们的理念，担忧着美国民主制度出现危机，宪政冲击，两党纷争，百姓被蒙蔽，媒体堕落，民意被强奸。川普的心在流泪，哀恸，哭泣。
+**简评：**
 
-我们总说男儿有泪不轻弹。不要忘了，魔鬼往往看起来比正义者更强大。大卫在做以色列王之先，与腓力斯巨人哥利亚争战的故事，为基督徒所熟悉。魔鬼就是巨人哥利亚。他力大无比，面目狰狞，刀枪炮仗，装备森严。大卫以十七岁少年放羊娃之躯，仅用五颗小石子，一颗一颗的玩耍般甩向哥利亚，最后巨人如软泥般瘫下。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15110836/3-39.jpg)
-捍卫真理者都是淳朴如少年，看起来弱小者，但它代表着力量与希望。黑暗永远掩不住真理的光辉，魔鬼就是纸老虎。川普总统和爆料革命的领头者郭文贵先生一样，都是如大卫一样的少年。我们新中国联邦与美国人民一起，向世界黑暗势力背后的巨人魔兽——CCP——一起宣战，CCP很快就会倒下。那是任何巨人也挡不住的巨浪。川普总统，您将会洒下喜悦的泪水，收获的泪水，不远了，就在1月20日！
+川普总统周四签署了一项行政命令，禁止美国投资与中共国军方有联系的31家公司。白宫贸易顾问彼得·纳瓦罗（Peter Navarro）周五接受福克斯公司（Fox Business）的玛丽亚·巴蒂罗莫（Maria Bartiromo）采访时表示，相信川普总统将会连任，想知道乔·拜登（Joe Biden）会做什么没有实际意义。纳瓦罗暗示此次大选受到操纵，出现了大量不合法选票，坚定地支持川普总统连任。最后他表示美国资本不应该被“用于资助中国的军事化，特别是用于杀害美国人的武器”。纳瓦罗作为川普总统坚定的盟友，对川普总统给予了巨大的支持，同时也对川普总统赢得连任，深具信心。纳瓦罗们的表态与拜登团队的躲躲闪闪形成了巨大的反差，这背后是民意、民心的巨大差别。川普总统一定会赢！
 
+**原文翻译**：
 
+# 彼得·纳瓦罗：担忧拜登会做什么，是没有意义的讨论
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+[!\[\]()!\[\](https://spark.adobe.com/page/muE0Ex9rNoso5/images/1a7a6a52-3347-4d07-a3db-047120245f37.jpg?asset_id=4da2a49c-8934-4928-9d79-4fe6e0eb8d12&amp;img_etag=%22cb31f7123eb2d6b5e6283238614b5e89%22&amp;size=2560)](https://spark.adobe.com/page/muE0Ex9rNoso5/images/1a7a6a52-3347-4d07-a3db-047120245f37.jpg?asset_id=4da2a49c-8934-4928-9d79-4fe6e0eb8d12&amp;img_etag=%22cb31f7123eb2d6b5e6283238614b5e89%22&amp;size=1024)*彼得·纳瓦罗（Peter Navarro）（Alex Wong / Getty Images）*
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+*桑迪·菲茨杰拉德(Sandy Fitzgerald) | 2020年11月13日，星期五，上午11:44*
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上8:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
-1+
+白宫正在向前推进唐纳德·川普总统周四签署的一项[行政命令](https://www.newsmax.com/world/asia/china-us-investment-ban/2020/11/12/id/996852/)，禁止美国投资与中国军方有联系的31家公司。（白宫）贸易顾问彼得·纳瓦罗（Peter Navarro）周五表示，相信川普总统将会连任，想知道乔·拜登（Joe Biden）会做什么没有实际意义。
+
+纳瓦罗（Navarro）告诉[福克斯公司（Fox Business）的玛丽亚·巴蒂罗莫（Maria Bartiromo）](https://video.foxbusiness.com/v/6209631520001/?playlist_id=3166411554001#sp=show-clips)说：“在人们的头脑爆炸之前，我认为这真的很重要，我们所寻求的是可核查的选票，法定的选票。” “从某种意义上说，我们受到了一种近乎完美的欺骗。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/muE0Ex9rNoso5/images/e7171e46-6e4e-4e56-8bae-fefdebbc159b.jpg?asset_id=29b74e90-ff94-4a41-be21-2cfba2b5247d&amp;img_etag=%22a6b246c1a8f96d204181926911b76171%22&amp;size=1024)](https://spark.adobe.com/page/muE0Ex9rNoso5/images/e7171e46-6e4e-4e56-8bae-fefdebbc159b.jpg?asset_id=29b74e90-ff94-4a41-be21-2cfba2b5247d&amp;img_etag=%22a6b246c1a8f96d204181926911b76171%22&amp;size=1024)
+
+纳瓦罗（Navarro）说，选举日川普在两个摇摆州领先，但拜登以“刚好足够的选票”赶上了他。
+
+纳瓦罗（Navarro）说：“我们有一套非常清晰的选举法，我们需要做的就是像布什诉戈尔案那样进行整个过程。” “我们认为他（川普）赢得了大选，我认为在此推测乔·拜登可能会做什么毫无实际意义。”
+
+当巴蒂罗莫（Bartiromo）询问在拜登（Biden）期待一月份就职白宫的情况下川普的新行政命令前景如何后，他发表了上述评论。
+
+纳瓦罗（Navarro）还为这一命令辩护，并告诉巴蒂罗莫（Bartiromo），美国资本不应该被“用于资助中共国的军事化，特别是用于杀害美国人的武器”。我们正在对付那些有意伤害美国的中共国公司。”
+
+他补充说，中共国法律还允许共产党对在中国开设的任何公司提出所有权要求，从而使其“实际上成为中国政府的一个机构”，而这是“我们根本不能容忍的”。
+
+[原文链接](https://www.newsmax.com/politics/peter-navarro-executive-order-white-house-military/2020/11/13/id/996937/)
+
+编辑 【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/muE0Ex9rNoso5/)
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/muE0Ex9rNoso5/images/dd715013-4616-45b3-a9f4-29facd34205b.jpg?asset_id=f84087aa-d1d8-4d9e-a721-52d5c441a76e&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/muE0Ex9rNoso5/images/dd715013-4616-45b3-a9f4-29facd34205b.jpg?asset_id=f84087aa-d1d8-4d9e-a721-52d5c441a76e&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
+0
