@@ -1,29 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇背叛美国独立精神 忽悠公民“现在是听话的时候”
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/562184/)
+## 威斯康星州一负责人在大选关键时期丢失选举闪存盘
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/562469/)
 
-*喜马拉雅联盟加拿大农场 文来*
+多伦多加喜农场 文𤦍(Manpui)
+校对 文锦 上传 WJ
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15195622/pjimage-18-1024x538-1.jpg)图片来源：wisconsinrightnow.com
+据威斯康星州立时报 （Wisconsin Right Now ）11月6日报道，密尔沃基（Milwaukee) 县选举负责人克莱尔·伍德·沃格（Claire Woodall-Vogg）声称她在11月4月清晨丢失选举闪存盘。含有2020年总统大选缺席选民关键信息的闪存盘，在全世界等待密尔沃基公布选票数结果时刚好短暂丢失。只要有了该闪存驱动器，谁都可以操纵投票计数。与此同时，拜登在该选区获得了12万张选票。
 
-*校对 不动之光 上传 WJ*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15165509/garrison.jpg)图片来源： Ben Garrison （注：”福奇“英文谐音”水龙头“）
-据Wester Journal 11月14日报道，安东尼·福奇（Anthony Fauci）博士说，美国人需要学习服从。
+其间“密尔沃基市收集169,000多次缺席选票的结果”。摄像头拍到密尔沃基选举委员会执行主任沃格在没人监督时输入编号。
 
-美国国家过敏与传染病研究所所长、白宫冠状病毒顾问福奇（Fauci）表示，美国“在应对疫情方面采取了太多个体行为”，“我们没有采取统一的行动”。他认为在大流行的最初几个月中，并没有采取足够的措施来限制病毒的传播。换句话说，福奇是想把中共病毒在美国大流行的责任推卸给川普总统。
+好多州通过这样操纵就增加了很多”非法”票数，费城也丢失了一些闪存驱动器。 安特里姆县的人手点票计数显示，有6000票从川普改成了拜登。
 
-在美国大选前期，川普总统的竞选团队一直强调中共病毒给美国国家经济和百姓生活造成了巨大的冲击，国家不能再继续关闭下去，否则经济会承受不了，各种社会问题也会越来越多，恢复正常生活和秩序已刻不容缓。但拜登团队却不顾一切地主张继续封锁国家至少一年。
+虽然密歇根州在选票托管方面有严格的法律。 使用闪存驱动器实属非法行为。然而他们不仅允许这样做而且还使其成为实在方式，这意味着我们应该检查其他县的点票和计数以确保正确。
 
-福奇虽然是川普总统聘请的顾问，但他却一直站在总统的对立面。他在大选前后又毫不遮掩地为拜登站队，赞成继续保持国家的戒严状态。福奇试图解释说，尽管总统竞选人拜登的团队坚持那样做，他并没有呼吁大规模的戒严，但应该严格服从戴口罩，保持社交距离和洗手的原则。
+评论：继川普总统竞选団队已经在宾夕法尼亚、密西根、佐治亚等多州提出了法律诉讼，现又被人挖出了密尔沃基、费城选票有猫腻，这能简单归咎于人为错误吗？
 
-福奇还建议美国人需要认真评估传统的多代家庭感恩节晚餐聚会的风险。福奇的建议在推特上引起了强烈反响。很多人发推回应说，对不起，福奇，我们不会因为你而放弃感恩节。
+原文链接：
 
-福奇还说，他不同意美国人所认为的科学家和健康专家是“专制主义者”，认为科学已经“融入了政治”。他声称，在一个非常分裂的社会中，科学才会成为政治观点的一部分。但是福奇博士的作法卻是赤裸裸地用他健康专家的头衔为民主党的政治立场服务。
-
-评论：福奇博士作为白宫冠状病毒顾问，在处理中共病毒问题上一直同川普总统的意见 相左。当川普总统决定关闭所有中国航线时，他极其不赞成，说川普排外。在疫情高发期，他曾提出戴口罩不能阻止病毒的传播。现在又强调必须带口罩。由于他的反对，廉价又有效的羟氯喹一直不能成为非处方药，使疫情至今无法得到缓解。现在他又赞成大规模戒严，使美国经济被疫情彻底瘫痪，让中共的搞弱美国、搞垮美国的计划得逞。种种跡象表明福奇一直和中共沆瀣一气，他不仅是美国人民的敌人，也是世界人民的敌人。现在美国上下要求罢免福奇的呼声越來越高，相信他的罪行会最终得到正义的审判。
+[Developing: Milwaukee Elections Chief Reportedly Lost Elections Flash Drive in Morning Hours of November 4th When Dems Gained 120,000 Votes for Joe Biden](https://djhjmedia.com/steven/developing-milwaukee-elections-chief-reportedly-lost-elections-flash-drive-in-morning-hours-of-november-4th-when-dems-gained-120000-votes-for-joe-biden/)
 
 参考链接：
 
-[Fauci Dismisses Americans’ Independent Spirit, Tells Citizens ‘Now Is the Time To Do What You’re Told’](https://www.westernjournal.com/fauci-dismisses-americans-independent-spirit-tells-citizens-now-time-told/?utm_source=push&amp;utm_medium=westernjournalism&amp;utm_content=2020-11-14&amp;utm_campaign=pushtraffic)
+[Milwaukee Elections Head Misplaced Crucial Voting Flash Drive](https://www.wisconsinrightnow.com/2020/11/06/milwaukee-election-flash-drive/?amp=1)
 
-2+
+[Milwaukee election official given police escort to turn in absentee ballot info](https://thehill.com/homenews/state-watch/524415-milwaukee-election-official-given-police-escort-to-turn-in-absentee)
+
+0
