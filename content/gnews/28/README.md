@@ -1,82 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Dominion投票系统公司安全主管曾参与Antifa电话并发布Antifa宣言给川普总统
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/563608/)
+## 中共魔爪伸向世界 秘鲁游行再现香港画面
+` Ronald` [轉載自GNews](https://gnews.org/zh-hans/563484/)
 
-整撰：JAY(杰伊)、文錦
-复核：WENJUN
+内新闻/素材：胜利之光 校对：老白
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16041322/1-91.png)
+2020年11月14日星期六，美国示威者在白宫前举行集会，以示对落选总统川普的声援，并谴责他们声称的“选举舞弊行为”。
 
-埃里克-库默（Eric Coomer）博士是Dominion Voting Systems负责战略和安全的投票系统官，2010年埃里克-库默加入Dominion。根据他的简历，库默毕业于加州大学伯克利分校，获得核物理学博士学位。但如果你搜索该公司的资料，库默后来已经从他们的董事页面上删除。
+与此同时，南美洲秘鲁也发生了历史性的民众游行，从而改变了新上任的秘鲁总统曼努埃尔·梅里诺（Manuel Merino）在上任仅五天后于2020年11月15日12点宣布辞职，相继身边国会内阁官员在14日游行发酵期间离职。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16034317/1-134.jpg)
+中共的渗透无孔不入，11月9日星期一，秘鲁国会在一场旋风审判中，罢免了受欢迎的总统马丁·维斯卡拉（MartínVizcarra），从而陷入了政治危机。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16033956/2-54.jpg)
+11月12日下午一点，由新任部长会议主席（内阁总理）Antero Flores -Araoz 领导的新内阁成员在政府官员宣称就职。前总统马丁·维斯卡拉（Martín Vizcarra）执政期间的18个部门部长均更换。
 
-2016年，库默告诉伊利诺伊州选举委员会，可以绕过选举系统软件。以下是2016年在《邮报》和《电子邮件》上的更多内容。
+针对59岁的新任梅里诺总统的抗议活动于星期一开始，星期六在安第斯山脉和亚马逊等主要城市举行。
 
-**库默博士的讲话暴露出所有选民都应该理解的一个非常严重的问题**。投票系统每次对硬件或软件进行更改时，都必须重新认证。重新认证是一个昂贵和耗时的过程。**库默博士告诉委员会的是，****Dominion Voting****在发现他们的代码受到威胁时，不会再去重新认证软件**。相反，他们依靠选举后的审计，并向选举管辖区提供有关安全的建议。我已经审查了Dominion公司制作的所有重新认证文件，我不记得有任何出于安全目的的软件调整。
+在首都利马，超过5,000名戴着口罩的抗议者举着标语，上面写着“梅里诺（Manuel Merino）不是我的总统”，“秘鲁，我爱你为此我保护你”，“妈妈，我出来保护我的祖国了，如果我没有回去，我便和她在一起”等；
 
-**这就是你的选票安全的真实情况**。伊利诺伊州和全美国的计票和记录投票的软件系统没有更新以解决安全问题，即使更新了，只要进入驱动系统的数据表，软件也可以完全绕过。
+场面感人，没有哪个国家的人民不爱自己的祖国，为此他们勇敢的站出来，为了自由、民主而发声。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16033958/5%E3%80%81.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16034212/7-23.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16034122/6-22.jpg)
+在采访中，记者问到新任总统，您对正在发生的游行怎么看？
 
-[https://www.youtube.com/2b4748c8-b55b-4331-bd82-47d14378db25](https://www.youtube.com/2b4748c8-b55b-4331-bd82-47d14378db25)
+梅里诺：现在发生的秘鲁人民游行不过是过度政府面临的正常情况，这么多人参与进来，也不过是因为疫情原因在家限制出行而已，情绪需要发泄，我不认为这是什么问题。
 
-Dominion是由克林顿基金会倡议发展的。
+记者：您不打算有什么回应吗？
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16041408/2-55.jpg)
+梅里诺：支持我的秘鲁人有成百万之多，之所以见不到他们在街上表达他们的观点，是因为他们都在家里安心防疫，我也不会要求他们出来说话，这是出于对他们安全负责。
 
-美联社在9月份的文章中也提到了库姆售出了超过1亿美元的有潜在安全问题的Dominion投票设备。
+记者：不认为这是对您上任秘鲁总统的抗议吗？
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16041446/3-84.png)
+梅里诺：就像我说的，发生这样的事情主要是由于遗留的、客观存在的新冠大流行问题。学生们失去读书机会，年轻人人失去工作机会，以及众多在疫情中出现的问题，政府将致力于改善并解决好社会问题这将是我们后面的主要重点。
 
-FEC（信仰教育商业）联合创始人乔-奥尔特曼（Joe Oltmann），在接受媒体人Michelle Malkin的采访中，透露了自己是如何渗透到Antifa，以及如何在与Antifa成员的对话中发现 “来自Dominion的埃里克 “据称是2020年9月27日一周内聊天的一部分。
+记者：那个……
 
-奥尔特曼解释说，”埃里克 “正在告诉Antifa成员，他们需要 “保持压力”。当其中一个打电话的人问：”谁是埃里克？”有人回答：”埃里克，他是Dominion的人。” 奥尔特曼说，当谈话继续进行时，有人问：”如果F\*cking Trump获胜，我们该怎么办？” 奥尔特曼转述了埃里克（Dominion的家伙）如何回答：”别担心选举，川普不会赢。我做了f\*cking确定！”
+梅里诺：好了，你问题到此为止吧。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16034333/8-25.png)
+秘鲁作家马里奥·瓦尔加斯·卢萨（Mario Vargas Llosa）要求解雇梅里诺，他在女儿摩根娜（Morgana）发行的一段视频中，对在抗议星期六晚上发生的警察袭击造成的两名大学生死亡一百人受伤表示愤慨。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16034343/9-9.jpg)
+14日当晚，进行第二次大规模游行示威活动中，一名25岁的男子受伤，在送往Almenara医院时已死亡。据RPP Noticias 报道，该死者被弹丸击中了面部，死者颅骨损伤，从伤势判断，可能是被散单袭击。
 
-奥尔特曼承认，埃里克-库默会是电话中的Antifa成员是没有足够依据的，当时他对Dominion投票系统一无所知。直到大选结束后，他开始在新闻中听到关于Dominion投票系统的消息后，才想起 “Dominion的埃里克 “在与Antifa聊天中的言论。
+医生表示，即便是散单，也能造成不可逆转的损伤。抗议者说，当他们试图走向国会时，警察投掷了催泪弹。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16034435/10-9.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16034530/12-10.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16034542/11-29.jpg)
+这一事件爆发，梅里诺总统下密令禁止电视台播报人员死亡。熟悉的手法再次上演，掩盖事实真相，禁止媒体发声。而在此之前，秘鲁国家广播电视学院（IRTP）的新闻经理Renzo Mazzei在谴责“意图审查和操纵”秘鲁电视台，并申请辞职。
 
-经营一家数据公司的乔-奥尔特曼研究了Dominion投票系统，因为有消息称，Dominion投票系统出现了无法解释的电脑 “故障”，神秘地从川普总统手中夺走了许多州的选票，并将这些选票给了乔-拜登，或者将选票完全抹去。
+这位记者在辞职信中指出，11月10日，在梅里诺宣誓就职期间，他接到了该机构“可信赖的合作者”电话，要求他停止通过国家电视台播放公民游行运动，停止报道当时发生的抗议活动。
 
-随后，奥尔特曼开始研究埃里克·库默，试图找到所能找到的任何东西。2020年11月12日，奥尔特曼在twitter帐户发布了库默在FB上转发 “Antifa”给川普总统的宣言信。
+他们会通过国家频道的信号进行现场直播，Mazzei强调说，在他近20年的新闻事业中，“我从未接受过操纵和审查新闻的报道。” 他说：“我一直以来都是以新闻信息自由的方向报道，不仅在我们国家而且在整个世界都享有基本权利。”
 
-–这是Eric Coomer博士的FB帖子。这是Antifa给特朗普的 “宣言 “信。这是负责Dominion投票系统战略和安全的人。在接下来的几天里，我将在这里发布所有的帖子。分享和关注 pic.twitter.com/E2rK9TznVw
+我在最后几个小时就意识到这一点，并回应了审查和操纵秘鲁电视台有关公民抗议活动的新闻报道而引起的关注 。他说，这与我国正在经历的政治局势以及我在接到指令发出的呼吁时目睹政治局势形成了鲜明的对比。
 
-Twitter迅速删除了乔-奥尔特曼的账号。非常有趣的是，Twitter会删除一个正在调查库默、他的极左背景和他在Dominion的角色的账户。奥尔特曼表示，他透露了库默的这些信息，就等于把自己置于危险之中。
+他还补充说，在他的新闻工作中，他的唯一目标是产生高质量的内容，并鼓励实践独立，平等，客观和高质量的新闻。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16034633/13-10.png)
+前总统维兹卡拉Vizcarra星期六晚在他的推特账号上说：“我对这个非法政府的镇压造成的死亡深感遗憾。” 他补充道：“他们将会受到惩罚，这个国家不会允许这些勇敢的年轻人就这样死去。”
 
-毫无疑问，库默博士不是川普的支持者！以下就是那封信的截图：
+“所有秘鲁人都非常关注，这就是为什么人们出来抗议的原因。因为民主受到了威胁”！
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16034711/14-4.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16034720/15-6.jpg)
+每个国家的人民为了捍卫自己国家的民主自由，不畏独裁者当权，冒着可能被CCP病毒感染、被棍棒打、被催泪弹熏等等危险，难道仅仅是为了发泄情绪吗？难道他们不畏惧死亡吗？
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16034910/16-5.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16042050/17-4.jpg)
+去年香港的示威运动使用了不少简单又实用的街头示威策略，再加上香港的示威行动产生了非常大的视觉效果，这让不少香港的示威策略能快速扩散至其他国家。
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16041648/4-28.jpg)  Page 1
+对于不少从2019年开始关注香港示威的人来说，看着今年世界多国爆发的示威行动，总会有种似曾相似的感觉。
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16041804/5-23.jpg)  Page 2
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16041855/6-23.jpg)  Page 3
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16041920/7-24.jpg)  Page 4
-
-乔-奥尔特曼还在Facebook上发布了库默博士的其他反川普总统的帖子 包括一个名为 “死了的总统 “的YouTube视频。
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16042054/8-26.png)
-
-2017年，当库默在内华达州时，他在Facebook上嘲笑川普总统的选举诚信委员会。
-
-库默分享了[《华盛顿邮报》的一篇文章](https://www.washingtonpost.com/)，标题是：”投票委员会本身就是个骗子。把它关了吧”。这篇文章是由失去理智的川普总统仇敌詹妮弗-鲁宾（Jennifer Rubin）撰写的，是对 川普总统2017年5月11日[《关于成立总统选举诚信咨询委员会的行政命令》](https://www.whitehouse.gov/presidential-actions/presidential-executive-order-establishment-presidential-advisory-commission-election-integrity/)的攻击。
-
-以下是库默2016年7月21日在脸书上曾对他的 “朋友 “说的话，这些朋友都是川普总统的支持者。
-
-如果你打算投票给这个专制的、自恋的、法西斯主义的、马屁精吹牛逼的人和他的基督教圣战者副总统，现在就把我取消好友吧! 不，我不是在开玩笑。我支持理性的政治对话和健康的辩论–我看着你（3个朋友的名字）。我不同意你们三个在很多哲学上的观点，但尊重你们的意见。只有绝对的白痴才会投票给那个他妈的白痴、法西斯种族主义者，他妈的！不废话，我才不管你是朋友，家人，还是什么熟人 –现在就把我取消好友。我一点也不想和你有任何互动。你是超越了希望，超越了理由，你被恐惧，反应，和废话所控制。让你和狗屎在一起。
-
-哦，这并不能说服你，你他妈的！说真的，这个该死的屁股小丑站在反对一切 ，这使得这个国家真棒！你也想加入吗？你应该得到的只有蔑视。
-
-末了，库默澄清说： “这些观点是理性的，完全是我自己的观点 它们基于理性，可信度很高。虽然它们不一定是我雇主的想法，不过如果不是，我也许应该另找一份工作。谁愿意为完全的白痴工作？” 库默似乎在试图掩盖自己的行踪，”我的个人观点都不会影响我的职业操守和态度。”他还说，”我是无党派人士。”
-
-根据奥尔特曼的说法， 库默可能拥有核物理学博士学位，但在掩饰对川普总统、川普总统的支持者、执法者，甚至对德州人的仇恨时，Dominion的埃里克-库默并不聪明。
-
-这张由乔-奥尔特曼截获的图片 ，让人不禁怀疑埃里克是不是也不喜欢美国。
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16042042/9-10.jpg)
-
-是什么让从厂家到各个监督和执法部门、甚至政客们明知Dominion选票系统存在问题却仍坚持向美国超过28个州销售？11月14日，Antifa和BLM人员伤害和挑衅聚集在华盛顿DC支持川普总统的和平抗议民众，是什么让Antifa和BLM如此血腥对待只是要真相和公平竞争的川普总统和支持川普总统的7300万手足？ 是什么让这位拥有核物理学博士学位的美国人和Antifa站在 一起仇视和竭力推翻川普总统？仇恨的心被人利用极易失去理智，这些人疯狂的行为组合在一起制造了美国的宪政危机。所幸美国仍有一批真正的爱国者会在7300万被唤醒的民意的支持下力挽狂澜，再一次让美国回归强大。
-
-参考链接：
-[https://www.thegatewaypundit.com/2020/11/report-anti-trump-dominion-voting-systems-security-chief-participating-antifa-calls-posted-antifa-manifesto-letter-trump-online/](https://www.thegatewaypundit.com/2020/11/report-anti-trump-dominion-voting-systems-security-chief-participating-antifa-calls-posted-antifa-manifesto-letter-trump-online/)
-[https://www.thegatewaypundit.com/2020/11/dominion-voting-systems-officer-strategy-security-eric-coomer-admitted-2016-vendors-election-officials-access-manipulate-vote/](https://www.thegatewaypundit.com/2020/11/dominion-voting-systems-officer-strategy-security-eric-coomer-admitted-2016-vendors-election-officials-access-manipulate-vote/)
-
+每一次游行示威都是全世界人民的一次觉醒，独裁政权将被瓦解，世界不允许存在共产主义，为了民主、自由、法治，我们必须站起来与邪恶势力抗衡，胜利永远属于正义的勇敢者！
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16035332/19-5.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16035335/20-1.jpg)
 0
