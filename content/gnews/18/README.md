@@ -1,75 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020.11.16 首尔喜韩农场每日新闻热点
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/563585/)
+## 川普总统更新推特：2020年大选违宪.选举专家揭示改票有多简单
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/563805/)
 
-新闻整理：Lacey月宁、夏虫不可语冰
+编译：玫瑰天空
 
-审核：文泽 编辑：李小甜KR
+虽然推特近期无理浑浊的媒体风格令人嗤之以鼻。可是，川老爷子的“永不放弃”风格彰显无遗，不放弃每一块战场，不放弃每一次召集爱国者的机会！不放弃在推特里保持用真实的声音传递真相。
 
-1**–****全球疫情实时更新**
+今天川普总统更新推文：
 
-截止北京时间2020年11月16日下午15时，全球累计CCP病毒确诊病例较前一日增加321649例，达到54792349例；死亡病例增加3662例，达到1324448例。
+“全国各地提起的许多法院案件都不属于我们的案件，而是那些遭受过严重虐待的人的案件。我们的大案件很快就会被提起，这些大案件显示2020年大选的违宪性，以及为改变选举结果而进行的各种行为的愤怒。”
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16035949/%E5%9B%BE%E7%89%871-22.png)
+“拥有的统治权投票系统（Dominion Voting Systems）被得克萨斯州（Texas）和其他许多人否决，因为它不好或没有安全性，那些负责维护我们宪法的人不能让2020年邮寄选举的假结果站得住脚。世界在观看！”
 
-**2－详讯：韩国新增223例新冠确诊病例累计28769例**
 
-韩联社首尔11月16日电 韩国中央防疫对策本部16日通报，截至当天0时，韩国较前一天0时新增感染新型冠状病毒（COVID-19）确诊病例223例，累计确诊2.8769万例。
 
-3**－消息：中国外长王毅月底或接连访问韩日**
+> Many of the court cases being filed all over the Country are not ours, but rather those of people that have seen horrible abuses. Our big cases showing the unconstitutionality of the 2020 Election, & the outrage of things that were done to change the outcome, will soon be filed!
+> — Donald J. Trump (@realDonaldTrump) [November 15, 2020](https://twitter.com/realDonaldTrump/status/1328100945570500608?ref_src=twsrc%5Etfw)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16040503/%E5%9B%BE%E7%89%872-14.png)
 
-韩联社北京11月16日电 据北京消息人士16日透露，中国外交部长王毅将在以视频方式出席17日的金砖国家峰会、20日的亚太经合组织（APEC）峰会和21—22日的二十国集团（G20）峰会后，于本月最后一周接连对韩国和日本进行访问。
 
-4**-川普律师鲍威尔：我们的证据足以翻转多州大选结果**
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16040539/%E5%9B%BE%E7%89%873-13.png)
 
-川普团队律师、前联邦检察官西德尼．鲍威尔（Sidney Powell）15日表示，她已经掌握了足够的选举舞弊证据，可以发起广泛的刑事调查，“我们准备好翻转多个州的选举结果。”
+> ….owned Dominion Voting Systems, turned down by Texas and many others because it was not good or secure, those responsible for the safeguarding of our Constitution cannot allow the Fake results of the 2020 Mail-In Election to stand. The World is watching!
+> — Donald J. Trump (@realDonaldTrump) [November 16, 2020](https://twitter.com/realDonaldTrump/status/1328152466752491526?ref_src=twsrc%5Etfw)
 
-她还暗示，执法人员也涉嫌舞弊，不仅国土安全部的选举安全团队需要被解雇，就连联邦调查局（FBI）的局长克里斯托弗‧雷（Christopher Wray）也应该被开除。
 
-鲍威尔表示，她就要放大招，把帮助拜登窃取大选的人一个个揭露出来。
 
-5**–****媒体拒报川普支持者受袭击**** ****保守派严厉谴责**
+本次美国大选引发了前所未有的宪政危机和选票大战，很多民众对于一夜巨变的选票数量一头雾水，心存疑惑。但是，随着美国一系列司法行动的展开，越来越多的证据可以证实修改选票数量对于选举设备的程序设计和操作是多么的简单容易。
 
-周六（11月14日），美国民众在首都华盛顿发起大型集会游行，支持川普总统。但是活动结束后，有不少参与者遭到左翼极端分子袭击，而主流媒体却视而不见。对此，保守派人士纷纷发声，强烈谴责媒体对暴力的默认和偏袒。
+看看美国选举专家就此话题是怎么说：👇👇👇
 
-周六，美国民众发起了被认为是美国数十年来最大的一次集会和游行，抗议大选舞弊，支持川普总统。活动期间，川普的支持者们既热情高涨，又和平理性。但在人群基本散去后，激进左翼组织“黑命贵”（BLM）和“安提法”（Antifa）的暴徒却趁机袭击落单的川普支持者，一些民众在攻击中受伤。
+“我们开始观察并意识到改变选票是多么容易。” 选举安全专家[@RussRamsland](https://twitter.com/RussRamsland)已经对美国的选举机器进行了许多调查。这次采访最令人震惊的是，一切发生在选举前几天。
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16040621/%E5%9B%BE%E7%89%874-10.png)
 
-然而，一向触角敏锐的美国主流媒体却对此默不作声，拒绝报导华盛顿发生的暴行。对此，保守派人士纷纷发声，谴责媒体违背行业道德和规范，失去了应有的公允和准则。
 
-6**-美国宇航局和SpaceX公司准备将四名宇航员送往国际空间站**
+> DOMINION.🗳️
+> 
+> "We began to look and realized how easy it is to change votes."
+> 
+> Election security expert [@RussRamsland](https://twitter.com/RussRamsland?ref_src=twsrc%5Etfw) has performed many investigations on US election machines.
+> 
+> The most \*shocking\* thing about this interview is it took place just days BEFORE the election. Watch🔻 [pic.twitter.com/53Kcxmne2e](https://t.co/53Kcxmne2e)
+> — Kyle Becker (@kylenabecker) [November 14, 2020](https://twitter.com/kylenabecker/status/1327511568993701888?ref_src=twsrc%5Etfw)
 
-美国太空探索技术公会司（ SpaceX）准备在周日晚上发射一枚运载四名宇航员的火箭到国际空间站。
 
-SpaceX是高科技企业家埃隆·马斯克（Elon Musk）创办的火箭公司。该公司周日在推特上写道：“所有系统将于美国东部时间今晚7:27发射升空，这是“龙”飞船首次执行任务，机上有4名宇航员。” 另外，美国副总统彭斯在推特上表示，他期待与第二夫人凯伦·彭斯一起出席发射升空的观摩活动。
 
-7**-曾与新冠殊死搏斗的英国首相约翰逊再次自我隔离**
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16042636/%E5%9B%BE%E7%89%876-8.png)
 
-今年4月初，英国首相鲍里斯-约翰逊曾经因感染新冠病毒而入院接受治疗。与病毒进行激烈搏斗之后，他在全世界的关注之下好转并出院。11月15日，唐宁街一名发言人表示，约翰逊再次因新冠病毒而开始自我隔离.
+*感谢喜马拉雅战鹰团战友精心翻译制作视频！*
 
-8-**香港已领取BNO人数急增至50万人可移居英国但强积金未能同行**
+美国选举的民主神圣性一夜之间灰飞烟灭！一切被精心隐藏在濒临破产的西班牙小公司伪装面具之下，其后，仅仅是一堆堆机器的操作，嵌入软件的调控，幕后黑手们轻而易举的改变了一切。他们在黑幕之下决定了美国总统是谁！但是揭示真相是人类的追求，从远古到现在，从无改变！越来越多的爱国者走在这条路上，不仅仅爱自己的“国”，是整个人类的未来之国！不分种族，党派，国界，觉醒的民众为了正义和真相而加入到这个队伍中来。压倒性的胜利，被拯救的世界的文明终将属于正义的队伍！
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16042729/%E5%9B%BE%E7%89%877-6.png)
+我们相信终有一天川普总统会出现在再次就职续任仪式上，他会宣布：我赢了选举！
 
-自英国宣布让合乎英国公民(海外)( BNO)资格人士一个新的移民途径后，申领BNO人士急剧增加，至10月已有近47万名港人持有有效BNO护照，他们现在已可利用特别途径提前到英国生活，以便正式申请永久居留权，但不少申请人发现，难以用「永久离开香港」的理由提前取回强制性公积金供款，引起不满。
 
-9**–****上海防疫专家：预计中国人到****2022****才能出国玩**
 
-【看中国2020年11月16日讯】武汉肺炎疫情在中国各地复燃，当局紧急采取管制措施，不少民众的外出行程也告吹。对此，中国防疫专家指出，预测中国人到2022年的春天才能出国旅行。
+> I WON THE ELECTION!
+> — Donald J. Trump (@realDonaldTrump) [November 16, 2020](https://twitter.com/realDonaldTrump/status/1328200072987893762?ref_src=twsrc%5Etfw)
 
-10**-太湾东突厥斯坦协会座谈会专家指经济决定北京对新疆治理**
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16042842/%E5%9B%BE%E7%89%878-5.png)
-
-台湾东突厥斯坦协会今天举办座谈会，台湾有学者认为，中共将持续关切新疆问题，但受到美中贸易战接连冲击，中国经济能不能撑住，将决定中共对新疆维吾尔族的政策将如何发展。
 
 0

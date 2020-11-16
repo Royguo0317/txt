@@ -1,13 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统宣布的国家紧急状态意味着两个核心目的
-` TINALS` [轉載自GNews](https://gnews.org/zh-hans/563203/)
+## 美国国会:到目前为止没有任何一方的候选人正式获选!
+` 快慢机` [轉載自GNews](https://gnews.org/zh-hans/563391/)
 
-在2020年11月14日的[直播](https://gtv.org/video/id=5fac5324bd0d464fadff4dfb)中，郭文贵先生阐述了川普总统宣布的国家紧急状态所意味的两个最核心的目的。第一个是打响与中共脱钩的经济战；第二个是经济战背后一个现代化网络战争的开始。没有了芯片和国际光缆，所有国内的软件平台和网络公司都将瘫痪。而在这场全面战争中，中国人民和新中国联邦人将是最大的受益者。
+内军事:快慢机
 
-听写：【Key】翻译：【雷鸣（文鸣）】校对：【Winston Jackson】字幕：【Rock小哥】视频解码：【恒久忍耐】编辑：【TINALS】
+近日,由美国国会资深议员乔伊斯.海斯代表国会,对外发表正式声明称:目前为止,没有任何一方候选人,正式获选.此前被媒体一致宣称的,所谓拜登获选,完全不具备任何的法律效力!
 
-战友之家玫瑰园小队出品
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14223659/footer-1.png)
-0
+此番声明,干脆利落的直接否定了拜登获选的虚假讯息.
+
+而拜登的社交媒体账号,也已余50几个小时没有任何更新讯息发出.
+
+拜登究竟在忙什么?
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16024803/Em7KgfZVcAAZua8-1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16024811/Em7KhSxUUAAgUnw.jpeg)
+1+
