@@ -1,73 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统为惩罚干扰美国选举的绞索早在2018年9月12日已备好
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/565986/)
+## 陆金所12天收割150亿美元 为拜登假“当选”收买华尔街？
+` GM77` [轉載自GNews](https://gnews.org/zh-hans/566299/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16234458/%E5%B0%81%E9%9D%A2-19.png)
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+作者：Afra(阿芙拉)
+审核：文錦
 
-据Trump fights for us, we fight for him @crystal78243104于[2020年11月17日1：03AM](https://twitter.com/crystal78243104/status/1328383174678900737)发布的推文：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17020604/11.17-1.png)
 
-2）行动。因此川普总统不仅能够成功连任，还将彻底摧毁所有涉嫌操纵大选的阴谋集团。 据Natural News网站11月14日报道，2018年9月12日特朗普总统曾经签署了一项鲜为人知的行政命令（可在白宫网站[http://Whitehouse.gov](https://t.co/0UpQSiXqkW?amp=1)找到），标题为 “关于在外国干涉美国大选的情况下实施某些制裁的行政命
+陆金所股价的反常表现，正是华尔街被中共收买的有力证据。如本次美国大选中，中共为了助推拜登当选敢于在选票上“明目张胆”作假一样，华尔街对于中共进献的“血馒头”更加贪婪和肆无忌惮。
 
+22天！陆金所（NYSE:LU ）以“光速”冲进了纽交所。这是2020年美国市场上最大的一次中概股IPO。在经历上市首日破发的尴尬境遇之后，公司股价迅速反转并节节攀升，一度创下20.17美元的高点，短短12个交易日，涨幅接近50%（发行价13.5美元），市值增加近150亿美元。
 
+这样“靓丽”的市场表现，是因为陆金所真的具有投资价值吗？当然不是。
 
-> 2）行动。因此川普总统不仅能够成功连任，还将彻底摧毁所有涉嫌操纵大选的阴谋集团。
-> 
-> 据Natural News网站11月14日报道，2018年9月12日特朗普总统曾经签署了一项鲜为人知的行政命令（可在白宫网站[https://t.co/0UpQSiXqkW](https://t.co/0UpQSiXqkW)找到），标题为 “关于在外国干涉美国大选的情况下实施某些制裁的行政命
-> 👇
-> — Trump fights for us, we fight for him 🇺🇸🇺🇸🇺🇸 (@crystal78243104) [November 16, 2020](https://twitter.com/crystal78243104/status/1328383174678900737?ref_src=twsrc%5Etfw)
+虽然陆金所在今年“中共病毒”肆虐的形势下，逆势赚的“盆满钵满”，上半年净利润达72.7亿元（约合近11亿美元），但其业务模式单一、核心借贷业务走进“死胡同”早已成为业界共识。那么陆金所核心的竞争力到底是什么？在美国资本市场大幅上涨的根本原因又是为何？
 
+在美国大选关键时期“光速”上市的陆金所，正是为中共布局华尔街操控媒体和资本市场缴纳的“贡金”，通过收割美国中产阶级投资者的财富，供养华尔街，进而操控美国大选，扰乱美国民主制度。
 
+陆金所是中共收买华尔街的“血馒头”
 
-根据这条推文提供的信息，在白宫的网站上找到了下面的内容，以下内容英文为白宫网站原文，中文为大体翻译，因英文水平有限， 如有纰漏，敬请指正——
+陆金所招股书显示，高盛、美银证券、瑞银、汇丰、摩根大腿等作为其纽交所上市的承销商总计享有2625万股的ADS超额配售权（以上市11日最高股价计算，约合5.3亿美元）。在美国大选之际，这显然是中共与华尔街谈好的“价码”。
 
-## [President Donald J. Trump Is Working to Protect Our Nation’s Elections from Foreign Interference](https://www.whitehouse.gov/briefings-statements/president-donald-j-trump-working-protect-nations-elections-foreign-interference/)（唐纳德·J·川普总统正在努力保护我们的国家选举不受外国干扰）
+事实上，陆金所并不像“蚂蚁金服”一样被美国投资者所熟知，然而这并未影响其上市后股价的节节攀升，中共及其收买的华尔街早已谋划好美国大选后的“拜登红包”行情，不只通过选票作假助推拜登假“当选”，更是通过华尔街资本操控主流媒体及互联网平台，使得美国民众言论自由被剥夺，支持川普的正义之声被打压。
 
-[Law & Justice](https://www.whitehouse.gov/issues/law-justice/)（法律和正义）Sep 12, 2018 （2018年9月12日）
+华尔街一向被喻为“嗜血的秃鹰”，在资本面前毫无信仰和立场，中共通过利益输送，彻底渗透和控制了华尔街。然而，别忘了宜人贷等同类公司以及瑞幸咖啡的前车之鉴，这些上市热炒后迅速跌至不足1美元的中概股已使得很多美国机构及投资人血本无归，吃“血馒头”的华尔街资本家向来都是生死一线，尤其在川普总统连任后必将剑指中共，华尔街与中共勾兑的“帮凶”必将会被清算。
 
-### *Quote**（引用）*
+陆金所是中共“以黑治国”本质的真实写照
 
-We’re going to take strong action to secure our election systems and the process.（我们将要采取强有力的行为保护我们的选举系统和选举过程）
+陆金所还有一个更隐秘的身份——中共现任常委们的“钱袋子”，事实上，核心利益主要掌控在习近平家族。
 
-President Donald J. Trump （唐纳德.J.川普总统）
+从陆金所的核心业务及收入来源来看，这是一家不折不扣的“高利贷”公司，以“钱”为中心，连接穷人和富人，向穷人借款收息，替富人管钱收佣。招股说明书透露，公司2020年上半年公司80.81%的营收来自零售信贷，而且其无抵押信贷年华利率平均达到28.6%，远高于蚂蚁金服的  13-14%。这样一家利率远高于行业巨头的企业怎么能够占据排名第三的位置呢？  答案不言而喻，在中共国从来没有市场规律可言，企业存活的根本在于背景是否“深厚”。
 
-**PROTECTING OUR ELECTIONS: President Donald J. Trump is issuing an Executive Order that will work to respond to and deter foreign attempts to interfere in our elections. ****（保护我们的选举：唐纳德·J·川普总统正在发布一项行政命令，该命令之目的在于应对和制止外部势力对我们选举的攻击企图。）**
+从陆金所股东结构来看，平安集团持有公司42.3%的股份，一家名为Tun Kung Company Limited 的公司才是公司最大股东，持有公司42.7%的股份。这家神秘的公司对外宣称是平安集团的几位高管所有，实际上所列股东均为代持，真实股东正是现任常委们。
 
-- President Trump’s Executive Order “Imposing Certain Sanctions in the Event of Foreign Interference in a United States Election” shows his commitment to protecting our elections.（川普总统的行政命令“在外国干预美国大选时实施某些制裁”表明了川普总统关于保护我们的选举的承诺）
-- President Trump is directing the Administration to develop a process, in coordination with State and local officials, for assessing and determining if interference in a United States election occurred.（川普总统指示政府与州和地方官员协调制定程序，以评估和确定是否发生了对美国大选的干涉）
-- The Executive Order authorizes action against those determined to have interfered in a United States election, including through: （该行政命令授权采取行动对抗那些确认为已经和正在干扰美国大选的行为：）
-    - Sanctions against those determined to have participated in foreign interference in our elections. （对那些确认已经参与过对我们选举实施的外国干扰的人或组织实施制裁。）
-    - Additional measures that would have wide-ranging impact on foreign governments, entities, and individuals who interfere in our elections.（对干预我们选举的外国政府，实体和个人产生广泛影响的附加手段。）（笔者注：此段的意思应该是对于参与干预美国选举的外国政府、实体和个人的制裁应该让他们知道疼，让他们终生铭记他们犯罪所带来的痛苦！）
-- President Trump’s Executive Order mandates interagency reporting of potential foreign interference following each Federal election.  （川普总统的行政命令要求在每次联邦大选后跨部门报告潜在的外国干涉）
-- This Executive Order builds on the Administration’s robust efforts to expose, disrupt, and impose costs on those responsible for election interference.（该行政命令为了让政府在揭露、扰乱、增加选举成本方面的工作更有成效，并且让这些外国干扰为他们的行为付出代价）
+爆料革命媒体《路德社》曾透露，陆金所母公司平安集团控制人马明哲与习近平胞弟习远平的离奇关系，实际上在中共国官僚体系内部，习家与平安集团及陆金所的关系早已不是秘密，“平安”的品牌被习近平认为是“习近平安”的吉祥符号。习派官员也通过平安集团及陆金所向企业收取“保护费”，并向上级官员“纳贡”。
 
+总之，陆金所实际上是中共最高层官僚体系建立起来的一家洗劫包括中小企业、富人和穷人财富的一套“黑道”体系，是郭文贵先生所说的“以黑治国”的真实写照。
 
-**WORKING ACROSS ALL LEVELS OF GOVERNMENT: The Trump Administration is working across all levels of government to help protect America’s elections from foreign interference.****（在各级政府层面上开展工作：川普政府正在各级政府之间开展工作，以帮助保护美国的选举不受外国干预。）**
+陆金所的命运掌握在爆料革命战友手中
 
-- The Department of Homeland Security (DHS) is working with State and local election officials and the private sector to coordinate a response to attempts at election interference.（国土安全部（DHS）正在与州和地方选举官员以及私营部门合作，以协调应对选举干扰的企图。）
-- DHS and election officials across 50 States and 1,100 local jurisdictions formed the Election Infrastructure Information Sharing and Analysis Center to share security information.（来自50个州和1,100个地方辖区的DHS和选举官员组成了选举基础设施信息共享和分析中心，以共享安全信息）
-- The Office of Director of National Intelligence (ODNI) is providing DHS with actionable intelligence so State and local officials can strengthen election security.（国家情报局局长办公室（ODNI）正在为DHS提供可行的情报，以便州和地方官员可以加强选举安全。）
-- These efforts build on the Administration’s support to States during past elections and the ongoing 2018 elections. （这些努力建立在政府在过去的选举和正在进行的2018年选举中对各州的支持之上。）
-    - During 2017, the Administration provided on-site cybersecurity support to States.（在2017年选举期间，政府当局向各州提供了现场网络安全支持）
-    - A pilot program was launched to help officials at all levels of government share information and rapidly respond to security issues.（推出了一项试点计划，以帮助各级政府官员共享信息并快速响应安全问题）
+在中共国有一个关于“背景深厚”的公司一定“大而不倒”的神话。与蚂蚁金服、京东数科在谋求上市的同时面临制裁命运不同的是，陆金所由于“大老板”习近平的偏爱顺利登陆纽交所并一路高歌猛进。这是否一定意味着其一定能够“大而不倒”？
 
+对陆金所寄予厚望的华尔街和中共一定会失望！
 
-**STRENGTHENING ELECTION SECURITY EFFORTS: The President and his Administration are working vigilantly to improve and strengthen the security of our elections.****（加强选举安全工作：总统及其政府正在努力工作，以改善和加强我们选举的安全性。）**
+首先，美国大选中中共一系列的阴谋已经败露，川普将连任总统，并对与中共勾兑的所有内部势力进行彻底的审判，陆金所作为中共盗国集团的资产将被查封和收缴；
 
-- President Trump recently held meetings with the National Security Council in May and July 2018 discussing the Administration’s whole-of-government approach to election security.（特朗普总统最近于2018年5月和2018年7月与国家安全委员会举行会议，讨论政府对选举安全的政府整体方针。）
-- In August 2018, DHS hosted the first-ever National Election Cybersecurity Table Top Exercise, focused on improving information sharing and the integration of election security efforts.（在2018年8月，国土安全部主持了有史以来首次全国选举网络安全沙盘推演，重点是改善信息共享和选举安全工作的整合。）（注：Table Top译为沙盘，不知道是否准确）
-- The Department of Justice (DOJ) and Federal Bureau of Investigation (FBI) are working to investigate and disrupt threats to our election systems and alert potential victims and targets.（司法部（DOJ）和联邦调查局（FBI）致力于调查和破坏对我们选举系统的威胁，并向潜在的受害者和目标发出警告。）
-- DOJ and FBI will host a live Election Day Watch at the FBI’s Strategic Information and Operations Center to monitor and coordinate election-related activities.( 美国司法部和联邦调查局将在联邦调查局的战略信息和运营中心对选举日现场进行观察，以监督和协调与选举有关的活动。)
+其次，陆金所在国内的贷款业务，年化利率4年合计超过100%，已经不在法律所保障的正常借贷业务利率范围内，在爆料革命战友们真相传播打击下，这类业务收入来源一定会被彻底摧毁。
 
+陆金所所代表的是中共邪恶集团独裁统治压榨国民的黑暗势力，反映的是中共“假、骗、偷”的本质。海航崩塌“殷鉴不远”，陆金所又岂能逃得过！
 
-\*\*\*\*\*原文引用完毕\*\*\*\*\*
+在郭文贵先生所发起的“爆料革命”追击下，陆金所的命运已经不可逆转的走向刑场！
 
-综述：我们相信，每一起事件的发生、发展都是有迹可循的，川普总统在2018年9月12日颁布的行政命令之后，发生了2018年的中期选举，据新浪网2018年11月07日 14:03 发布的[美国中期选举结果来了:全球经济10大影响看过来](https://finance.sina.com.cn/stock/usstock/c/2018-11-07/doc-ihmutuea7838549.shtml)：［美国时间11月6号，美国迎来2018年中期选举投票日。中期选举被认为是影响特朗普任期后半段政令推行的关键一役，不仅关乎下阶段美国政治格局，其结果对金融市场也将产生深远影响。］，那么在2018年的中期选举中，美国相关部门有没有监测到外国干扰选举的行为？
-
-图谋针对川普总统发动政变的中国共产党和与它沆瀣一气的美国政商名流、媒体及好莱坞大佬们，他们终将为他们的愚蠢付出代价，因为猎杀的绞索早在2018年2018年9月12日已经备好！
-
-（文章内容仅代表作者个人观点）
-
-2+
+0
