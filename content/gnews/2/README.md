@@ -1,40 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】劲爆！传闻费城黑帮老大将会出庭作证：数十万选票来自地下非法制造！
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/565808/)
+## 维基解密：目前在大多数战场州使用的与索罗斯有关的投票机曾被用于操纵2004年委内瑞拉大选
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/565828/)
 
-**作者：香草山写作组  正道主义联盟**
+翻译：康州农场-黎明的光芒
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
+校对：康州农场-Antsee-GTV
+
+审核：康州农场-Truemanman
+![wikileaks]()![wikileaks](https://www.thegatewaypundit.com/wp-content/uploads/wikileaks.jpg)
+约瑟夫-斯大林有句名言： “投票的人决定不了什么， 计票的人决定一切”。
+
+斯大林说的没错。
+
+今天这一幕正在美利坚合众国上演。
+
+Smartmatic是一家与乔治-索罗斯有关联的英国公司，在今年的美国总统大选中，已经为16个州提供投票技术，包括亚利桑那州、科罗拉多州、佛罗里达州、密歇根州、内华达州、宾夕法尼亚州和弗吉尼亚州等战场州。
+
+该公司成立于2000年，查韦斯的竞选顾问也被安排在董事会中。
+
+Smartmatic公司的董事长是马克-马洛赫-布朗勋爵，他是英国上议院议员，也是乔治-索罗斯的开放社会基金会的董事会成员。他曾是索罗斯投资基金的副主席，甚至在担任科菲-安南的幕僚长时还担任过联合国副秘书长。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16225910/%E5%BE%AE%E4%BF%A1%E6%88%AA%E5%9B%BE_20201117115657.png)
+根据维基解密的文件，Smartmatic机器被用来操纵2004年委内瑞拉选举，以支持马克思主义候选人乌戈-查韦斯。
+
+从更多来自维基解密的内容来看，Smartmatic是一个谜
+
+该公司不知从哪里突然冒出来，在选举过程中抢走了一份价值数百万美元的合同，助查韦斯再次当选，以摧枯拉朽之势击败他的政治对手。
+
+2004年6月，媒体谴责Smartmatic公司的所有者从委内瑞拉和玻利维亚共和国的一个名为FONCREI的合资基金获得了20万美元的股权投资，该基金隶属查韦斯的组织。 查韦斯的一名竞选顾问也被安排在董事会中。
+
+《泛美邮报》在上周报道了Smartmatic和Dominion之间的关联。
+
+Dominion是参与最近美国大选的公司名称。
+
+Dominion这个名字现与因电子系统故障导致的违规（计票）行为关联在了一起，据《美国思想者》透露，其技术是通过它的子公司Sequoria(红杉公司)向Smartmatic购买的。
+
+Dominion公司否认与此有关，不过，它曾一度允许Smartmatic在Dominion没有开展业务的海外地区销售同样的技术。
+
+Dominion 投票系统在亚利桑那州、佐治亚州、密歇根州、内华达州、北卡罗来纳州和宾夕法尼亚州使用。
+
+所有这些州在总统选举中的差距都微乎其微，目前官方还未认定（最终结果）。
+
+Gateway Pundit报道了在宾夕法尼亚州、密歇根州和威斯康星州的Dominion（投票）机器中，（两位候选人）选票比例几乎是不可能发生的。
+
+我们还有更多关于Dominion投票系统在这些州的确凿的疑点和不可能的（选票）比率的报告。
+
+原文链接：
 
 
 
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16225150/%E5%98%BF%E5%98%BF.png)
-有不愿透露姓名的消息人士向《纪事报》透露：绰号“瘦子乔伊”的费城黑帮老大梅利诺【‘Skinny Joey’ Merlino】和一支精干的团队以每张选票10美元的价格制造了这些选票。3天工作量达300万美元。然后他们把制作好的选票装在没有标记的纸板箱里，放到费城会议中心的外面。
-
-梅利诺属于费城意大利裔黑帮。
-
-他们在手工制作批量选票，通常每小时产生数千张选票，连续超过60个小时。
-
-梅利诺说：“选票是用现金购买的！”
-
-据称，11月3日投票结束前几个小时，费城选举办公室内的民主党人士向梅利诺提供了几箱原始选票。梅利诺把这些选票送到费城南部的两个私人住宅。晚上开始，梅利诺的人每小时制作速度是3,000多张选票，于凌晨到每小时生产6,000多张。
-
-今年早些时候，皮包骨的乔伊·梅里诺被判两年监禁，他被提前释放。传闻说如果川普总统愿意为他目前的罪行和过去的罪行提供全面赦免，梅利诺很可能会在国会就选举是如何被窃取做出令人震惊的证词！
-
-审核发稿：悟空
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，纽约时间周日至周四晚上9:00，美国志愿者在纽约香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
-
-
+> [Wikileaks: Soros-Linked Voting Machines Now Used in Most Battleground States Were Used to Rig the 2004 Venezuela Elections](https://www.thegatewaypundit.com/2020/11/wikileaks-soros-linked-voting-machines-now-used-battleground-states-used-rig-2004-venezuela-elections/)
 
 
 

@@ -1,31 +1,74 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 奥地利新《仇恨言论法》，是否是向垄断言论又迈进一步？
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/564563/)
+## “多猫腻” Dominion 计票系统本身设计的可疑之处 选举舞弊的犯罪远超想象力
+` 喜马拉雅凤凰农场–旧金山-金喜站` [轉載自GNews](https://gnews.org/zh-hans/565517/)
 
-作者：康州农场-大飞机
+**编译：平民游侠 H-Ranger****喜马拉雅凤凰农场**-旧金山站
 
-审核：康州农场-Truemanman
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16091532/%E5%9B%BE%E7%89%876-9.png)
-近日，奥地利政府提出了一项言论法草案，即《通信平台法》，该法案如果获得通过，将会限制该国的言论自由。
+民主党部分关键人员参与执行了2020美国总统选举造假和舞弊的行为相信已经不再是什么秘密了。从公众已经获知的消息来看这次总统选举的舞弊行为主要表现为以下几点：
 
-该法案导言写道：“制定该法案草案的主要原因是由于担忧互联网和社交媒体的高速发展，除了这些新技术和交流渠道所带来的优势之外，还形成了一种新的暴力形式，就是在互联网上散布攻击信息，以侮辱，虚假信息甚至暴力和死亡威胁为主的暴力形式不断增加，攻击动机主要基于种族主义，仇外心理，厌恶妇女和同性恋，需要采取从初期到全面预防的整体战略和一系列措施，平台管理责任和保护受害者为该战略的两大基本支柱，目前的法案草案指明了平台需要负担的责任”。
+- 丢弃或撕毁川普总统的选票。
+- 盗窃死人、老人的身份，以他们的名义寄出支持拜登的非法选票。
+- 盗用隐私被泄漏的合法选民的身份，在他们去现场投票之前寄出支持白登的邮寄选票。这导致部分合法选民现场投票时发现系统提示自己已经投过票了。
+- 硬造出不存在的人进行邮寄投票。这些选票甚至连签名都没有或者有数千张都是同一个人的名字。
+- 把迟到的不合格邮寄选票当作合格的选票计入。
+- 借助一些伪装手段将假选票在夜晚运到投票点。有的装在行李箱里，有的装在保温箱里。
+- 渗透或控制计票系统通过篡改数据或验票规则来影响结果。凭空增加拜登的选票，把川普总统的选票判定为不合格，把川普的选票错计为拜等的选票等等都可以通过操控计票系统和软件来实现。
 
-该法案以德国2018年1月生效的NetzDG《网络执行法》法律为蓝本，NetzDG法中要求社交媒体公司最多在24小时或7天内删除或阻止任何在线非法内容，或者面临高达5000万欧元的罚款。不过该法律一直存在争议，批评者从一开始就警告说，平台为了规避罚款的风险而会过度删除内容，这将限制表达自由。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16091337/%E5%9B%BE%E7%89%877-7.png)
-2020年5月，法国也采用了相似的法律《Avia law》,它也是参照德国NetzDG为蓝本，该法律要求在线平台在24小时之内删除举报的“仇恨内容”如煽动仇恨或歧视性侮辱种族，宗教，种族，性别，性取向或残疾等信息。否则，将被处以最高125万欧元的罚款
 
-本次奥地利法律要求在24小时内删除“明显”非法内容，并在7天内删除其他非法内容。否则，将面临最高1000万欧元罚款。介时如果通过了此法案，奥地利人的网络言论自由将由Twitter，Google和Facebook等实体公司任意决定
+**川普总统今早发推：Dominion 计票機在操纵着我们的大选！**
 
-从表面看，奥地利《新仇恨言论法》是欧洲朝着将网络审查制度化，为了控制仇恨言论而立法，又迈出了一步。但是根据1789年《人的权利和公民宣言》第11条：“思想和观点的自由交流是最宝贵的人权之一：因此，任何公民都可以自由发言，写作，印刷，从这些规定中可以推断出，鉴于通信手段的现状以及针对公众的在线通信服务的普遍发展，这些规定可以推论为：该宣言对于任何公民的民主生活以及思想表达和见解的重要性，这项权利意味着人们在这些服务中获得了表达自己的自由……”两个法律对比下来是相互矛盾的。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16091748/%E5%9B%BE%E7%89%878-6.png)
-网络言论攻击是需要控制，核心是谁来控制显的尤其重要，把权力全下放到Twitter，Google和Facebook这种公司，又如何保证这些媒体公司能公正的审查言论，这种媒体审查机制也需要第三方监督来防止“舆论垄断控制“，更甚者当”独裁国家“控制了”垄断媒体“，是不是又会变成如本次“美国大选”这样的媒体闹剧。
+![](https://lh4.googleusercontent.com/XOubgWfTFu208FOXDXhwfN33akNBkVeIVVU7p5SbTD9wdSVtExpSlrBYJvwJNQUs78HLKUnXbRNiiaV4wvHM5xSqQX-d4Mw1oKZUotim20FBGumNAJ4GlW5k1bYQpg)
 
-请不要以保护人民的名义来“垄断言论”，时代在进步，平民主义的去中心化已经开始，每一个人的发声都是很重要的，反对“独裁”与“垄断”， 请站出来,为保护你自己的权利而发声。
+最近有热心网友在研究了部分州所使用的Dominion计票系统的相关文档后提出了一系列疑问和系统设计的可疑之处。我们将这些内容翻译成了中文。联系到昨天爆出的Dominion中央服务器在德国法兰克福被美军查获的新闻。相信该系统的猫腻很快会大白于天下。
 
-参考内容：
+![](https://lh3.googleusercontent.com/zhrBAH_Z63Fd9Li1ebvcxneYzFPeV0DFkvS4Jvz-L6jLxS3fWyC2bG6LClGC5KSK85TQTWkvqS0LKc-hhegQgpOzsyS7b7_U7nxk_2ZTvP5n02ilpmfUbTKlYYpgYg)
 
-[https://www.zerohedge.com/geopolitical/austrias-new-hate-speech-law](https://www.zerohedge.com/geopolitical/austrias-new-hate-speech-law)
+1. 理论上系统可以将特定的“一条龙”（Straight Ticket Vote)选票判定为无效。“一条龙”选票的处理规则基于很多复杂的选项设置进行工作。这个设定可以利用例如“ Repubiican”之类的拼写错误来作弊。
 
-2+
+（Votes can theoretically be ignored for individuals if a straight ticket vote is selected. This setting could very well enable “Repubiican”-style typo fraud. Many complex rules decide how the “straight ticket” option works.）
+
+2. 所有的软件访问键值都使用由同一组密钥，这使得该软件在网络安全上显得非常薄弱。这种薄弱的防护措施不能有效防止别有用心的人进入投票系统篡改设置。而且因为所有人使用同一组密钥访问系统，就算发现系统设置被人篡改了也难以证明是被谁篡改的。
+
+（Network Security is very weak since all software access keys use the same cryptographic pair. This gives plausible deniability to whoever potentially decides to mess around with voting settings. It can’t be proven who changed a setting since everybody has the same key）
+
+3. Dominion的数字证书没有使用密码保护，而且Dominio的用户手册明确说明不需要输入密码。这使得不法分子有机会使用中间人攻击的方式威胁到终端设备和中央服务器之间的通信。
+
+（Digital certificates are not protected by password, and Dominion user manual explicitly says not to enter a password. This enables potential for bad actors to MITM attack data traveling over network between precinct tabulator and central tabulator.）
+
+4. Dominion系统有一个隐藏的“拆分旋转”（split rotation）功能用来限制最大误差。但是，这个功能没有明确的定义和说明，所以我们无法确定这个功能到底在这里起什么作用。
+
+（Cryptic “split rotation” function that features the ability to “force a maximum deviation”. There is no definition of a “split rotation”, so we cannot know what “force a maximum deviation” means in this instance.）
+
+5. 投票点本地的IT人员有权限调试系统或更改系统设置。这种权利没有任何监督和制衡。我们也不清楚IT人员对系统修改后会不会留下日志。这种不受限制的修改系统设置的权利足以让这些人有能力将选举颠倒黑白。（Local IT guys have ultimate power to clandestinely change settings, thus having the ability to potentially alter an entire election. There are no checks and balances or observers of the local IT guy when he accesses machine debug and admin settings. It‘s unclear if logs exist.）
+
+6. Dominio系统收集每个终端的投票数据然后传输到中央服务器。我们无法找到中央服务器及其包含的软件的使用说明和安全性验证报告。中央服务器对我们来讲是个无法看到内部工作原理的黑盒子。（Dominion is a black box with votes ultimately tabulated in a central server system. Who has access to the central server and where is the manual and security reviews of that server software?）
+
+7. 理论上系统设置可能在计票日当天晚上暂停计票的那段时间被修改。直接修改几百台计票设备的系统设置远比造几千张假选票容易得多。这只需要一两个人就能办到。（Settings could theoretically have been changed during evening downtime on first night of voting. Much easier to change settings on hundreds of machines than to forge thousands of ballots. A couple of people could have done it quickly.）
+
+8. 宾西法尼亚州对Dominion软件进行了文字语义的更改。“生效”（Cast）被改为“印制”（Print），这让投票者无法确切地知道自己的投票什么时候生效。宾西法尼亚并没有公布这个修改的原因。（State of Pennsylvania requested semantic changes to the Dominion voting software, possibly to aid in their lawfare efforts. The word “Cast” became “Print”, obfuscating the moment when your vote becomes officially cast. For what reason is currently unknown.
+
+9. There is an option to force the vote scanner to “overrun” a preset amount of ballots EVERY time anybody pauses the scan mid-batch. “Overrun” is undefined. Potential for abuse is high with this function, which was added shortly after 2018 mid-term elections.）
+
+Dominion有一个在2018年中期选举后不久被添加的“超额处理”(Overrun)选项。这个选项允许任何人只要中途暂停扫描就能强制选票扫描器处理超出原定限额的投票数量。这个功能极有可能被用来作弊。
+
+我们相信以上从公开信息中发现的疑点只是冰山一角。Deep State在整个投票舞弊案中的违法犯罪行为应该远远超出普通人想象能力。我们相信美国法律会让这些破坏美国民主法制的犯罪团伙付出应有的代价。美国的民主法制将继续成为全球文明的灯塔。
+
+
+
+![](https://lh5.googleusercontent.com/zTONqONK6lAVWRUIx-cr03juz9KhkYQdB83pdzoj3Xgqk2fF1ZVzvIxyKS2kc7duwUSy38sJTipmWHs2NVrWhYwK9m4RWAM0xABiWx6FKhYOIl-4ahESztASTt6lFg)
+
+英文参考资料链接：
+
+网友推文原文：**https://twitter.com/codemonkeyz/status/1326715838850764802?s=24**
+
+**Dominion选举计票系统相关的公开文档：**
+
+[https://www.dos.pa.gov/VotingElections/Documents/Voting%20Systems/Dominion%20Democracy%20Suite%205.5-A/Dominion%20Democracy%20Suite%20Final%20Report%20scanned%20with%20signature%20020119.pdf](https://www.dos.pa.gov/VotingElections/Documents/Voting%20Systems/Dominion%20Democracy%20Suite%205.5-A/Dominion%20Democracy%20Suite%20Final%20Report%20scanned%20with%20signature%20020119.pdf)
+
+[https://www.eac.gov/sites/default/files/voting\_system/files/Dominion\_Voting\_Systems\_D-Suite\_5.5\_Test\_Report\_Rev\_A.pdf](https://www.eac.gov/sites/default/files/voting_system/files/Dominion_Voting_Systems_D-Suite_5.5_Test_Report_Rev_A.pdf)
+
+[https://www.sos.texas.gov/elections/forms/sysexam/oct2019-mechler.pdf](https://www.sos.texas.gov/elections/forms/sysexam/oct2019-mechler.pdf)
+
+0
