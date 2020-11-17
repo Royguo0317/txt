@@ -1,41 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 290 期疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/563886/)
+## 美国人觉醒！明确区分中共和中国！将中共血旗比作拜登之旗！
+` GM01` [轉載自GNews](https://gnews.org/zh-hans/565288/)
 
-![]()**1.** 中共国网络高利贷行业兴盛，暴力催债导致学生自杀和精神异常的事件频发；政府不做监管。
+下面的视频可以看到很多美国人都踩在中共血旗上，人们喊着：”所有美国人都来踩这面拜登之旗（all Americans…step on Biden’s flag）”中共是纳粹集权（CCP is the Nazi Regime）“，“干倒中共！（F\*\*\* the CCP）”“消灭中国共产党（“take down the CCP”）
 
-**2. ****A**股市值**580**亿光伏组件龙头企业晶澳科技董事长靳保芳被调查，**3**万股东受波及，称**“**完蛋了**”**。
+2020年11月14日，华盛顿举行超过百万人参加挺川集会，视频展示了美国人就像许多中国人一样正在从CCP的阴影中觉醒。**他们明确使用CCP（中共）而非China（中国），中共不等于中国这个概念正在被世界接受。**
 
-**3. ****1**月**7**日国家外汇管理局公布的数据显示中共国外汇储备减少**965**亿** **。
+**下面的视频中，一位支持我们新中国联邦战友的意大利爱国者手举着“中共不等于中国”标语**
 
-**4. **阿里巴巴在粤成立新公司，主营人工智能软件开发和区块链等服务，被内行人视为旨在继续收割并奴役中国人。
 
-**5. **在中共邮寄假选票干预美国大选的同时，中共党媒环球网等多家媒体不顾选票造假已经暴露的事实，继续在国内发文宣传称拜登当选已成定局，误导国人。
 
-**6. **美国海军陆战队抵台湾赴台授课，传授国军**”**突击艇**”**突袭技巧。
+> 勇敢的新中国联邦战友11月15日在意大利罗马参加挺川集会！
+> 
+> PCC≠CINISI！
+> 中共不等于中国人！[#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#TakeDownTheCCP](https://twitter.com/hashtag/TakeDownTheCCP?src=hash&amp;ref_src=twsrc%5Etfw) [#TheNewFederalStateOfChina](https://twitter.com/hashtag/TheNewFederalStateOfChina?src=hash&amp;ref_src=twsrc%5Etfw) [#意大利](https://twitter.com/hashtag/%E6%84%8F%E5%A4%A7%E5%88%A9?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/GcH0D80syZ](https://t.co/GcH0D80syZ)
+> — VOG (@VOG20201) [November 16, 2020](https://twitter.com/VOG20201/status/1328372070074474497?ref_src=twsrc%5Etfw)
 
-**7. **香港民众昨晚纪念周梓乐，现场遭港共伪警包围挑衅。
 
-**8. ****(Sidney Powell**律师，福克斯，**11/8) **为乔**·**拜登制造选票，他们用了可以想像到的一切方式，从让众多死者**“**投票**”**，到制造绝对欺诈性的只投票给拜登的选票。
 
-我们在一些关键州已经确定了至少**45**万张选票上奇迹般地只有乔**·**拜登的选项，没有其他候选人。
+不论如何，新中国联邦战友在当天的活动中是一道无法忽视的风景线，受到了当地人非常非常热烈的欢迎，集会中许多美国人都认出了新中国联邦，Gnews和GTV的标志，有的甚至激动的上前拥抱我们的同胞。
 
-我们必须在联邦法院努力抗争揭露这种卑劣的欺诈行为及其背后的阴谋，并在每个需要的地方进行重新计票，坦率地说是在全国大多数地方。** **
 
-**9.**（**Corey Lewandowski**，川普竞选团队记者会，**11/7**）我举一个我们认为在宾州确认的选票欺诈的具体例子**: **死者是阿勒格尼镇的**Denise Ondish**，**1946**年**9**月**10**日生，** 2020**年**10**月**22**日卒。
 
-她的投票申请于**10**月**23**日也就是她去世的第二天收到。
+> 🤩隔着屏幕都可以感受到美国人民对新中国联邦战友的热情！
+> 
+> 现场战友：“美国游行的川普支持者看到新中国联邦的战友们特别热情，兴奋，有的激动的都要哭了！”
+> 
+> “很多美国人都知道Gnews，GTV，郭先生，班农先生！！！”[#Trump2020](https://twitter.com/hashtag/Trump2020?src=hash&amp;ref_src=twsrc%5Etfw) [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) [#TheNewFederalStateOfChina](https://twitter.com/hashtag/TheNewFederalStateOfChina?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/WkTFWLxhzM](https://t.co/WkTFWLxhzM)
+> — VOG (@VOG20201) [November 14, 2020](https://twitter.com/VOG20201/status/1327762154657902592?ref_src=twsrc%5Etfw)
 
-如果今天去访问宾州州务卿网站，上面说这位女士**2020**年**11**月**2**日大选投票有效，这距阿勒格尼镇的**Ondish**女士去世已经整整**9**天。
 
-这是铁证如山，而且如果你们做媒体该做的工作，我相信你们会找到其他例子。我们会把像这样的许多证据提交到法院。** **
 
-**10.**（**11/8**）**Arizona**州，我给战友们重大的宣布啊，**Arizona**州川普总统会赢回来。赢过来就是逆转，这是游戏的改变。
+未来的世界将会是中国人一人一票的世界；未来的世界将会是新中国联邦正道主义的世界。
 
-我们今天可以肯定地说，川普总统一定会因新中国联邦赢回他这一次选举，而且美国人因为新中国联邦这次会得救，绝对不是因为任何人。
+中共毫无未来可言。
 
-不管未来发生什么事情，我可以告诉大家，有些话是不能说的，是我们新中国联邦将拯救美国，拯救世界。
-
-0
+4+

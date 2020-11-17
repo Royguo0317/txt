@@ -1,25 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/16/2020  财经快讯: 黄金周零售业却入冬; 一带一路或借尸还
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/564599/)
+## 川普政府已开始为下一任期对中共制定新的强硬政策
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/565486/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16092327/Picture109.png)图片来源：Source: Bloomberg
-1.亚太15国15日签署全面经济伙伴协议（RCEP），或对石化，纺织，钢铁业产生影响。以中共国，日韩，东南亚等15国昨日签署RCEP，虽实际降税清单未公布，但初步估计与东协中国，东协日本等FTA内容差异不大。中共或借此机会强行给“一带一路”续命。
-[https://news.cnyes.com/news/id/4542965](https://news.cnyes.com/news/id/4542965)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16193351/1-99.png)
+美国新闻网“值得” (Axios) 11月15日报道，本文作者获得独家新闻，白宫内阁政府高级官员告诉Axios，川普总统将在第一任期的最后10周颁布一系列对共强硬政策，以巩固他在中共国问题上的遗产。
 
-2.美知名财经记者加斯帕里诺（Charlie Gasparino）昨日参加Tucker Show时表示CNN已陷破产危机。据报道，美电信巨头AT&T正考虑出售CNN来缓解其高达1500亿美元的巨额债务。传贝佐斯或有意收购
-[https://news.yahoo.com/charlie-gasparino-t-looking-sell-155226275.html](https://news.yahoo.com/charlie-gasparino-t-looking-sell-155226275.html)
+川普官员计划制裁或限制与更多中共国公司、政府实体和官员的贸易，因为他们侵犯了新疆和香港的人权，还对美国国家安全造成威胁。即将颁发的强硬政策是为川普总统的第二任政府工作制定的新政策。 因为中共从印度到香港再到台湾都采取了激进的行为， 疫情又引发了第二波全球停摆潮。但在台湾问题上，官员们说，美国不会有新的大动作，也大可能关闭更多的中国驻美领事馆。
 
-3.据零对冲报道，中共国零售业寒冬只是刚刚开始。尽管10月有黄金周助阵，中共国10月零售业销售额增幅竟不到5%。同比零售销售额增长仅4.3%，而市场预期为5%。
-[https://www.zerohedge.com/economics/china-0](https://www.zerohedge.com/economics/china-0)
+国家安全委员会发言人约翰-乌利奥特（John Ullyot）说：”除非北京扭转方向，成为全球舞台上一个负责任的角色，否则，想改变川普总统的历史性行动是政治自杀行为。”
 
-4. 赤字危机：中共国或面临9000亿流动性陷阱。人民银行近日对11家金融机构发放高达1055亿元中期借贷便利（MLF），期限为6个月，利率为3.35%。鉴于市场上已有超过6000亿MLF，央行此次放水使中共国面临流动性赤字高达近9000亿。
-[https://news.mingpao.com/ins/%E7%B6%93%E6%BF%9F/article/20151022/s00002/1445509286914/%E3%80%90%E8%B2%A1%E7%B6%93bb%E7%8F%AD%E3%80%91%E4%BA%BA%E8%A1%8C%E3%80%8C%E6%94%BE%E6%B0%B4%E3%80%8D-mlf%E5%8D%B3%E4%BF%82%E4%B9%9C](https://news.mingpao.com/ins/%E7%B6%93%E6%BF%9F/article/20151022/s00002/1445509286914/%E3%80%90%E8%B2%A1%E7%B6%93bb%E7%8F%AD%E3%80%91%E4%BA%BA%E8%A1%8C%E3%80%8C%E6%94%BE%E6%B0%B4%E3%80%8D-mlf%E5%8D%B3%E4%BF%82%E4%B9%9C)
+政府高级官员正在讨论扩大国防部的中国公司黑名单，这些公司被认为与中国军方有联系。上周发布的一项行政命令已禁止美国对31家此类公司的投资，任何新增的公司都可能面临类似的限制。政府还将打击中共在新疆强迫劳动营之外的劳工行为，计划将矛头对准在中国竞争激烈的捕鱼业中越来越多的强迫劳动问题。强迫和无偿劳动不仅是人权问题，还可以让中国渔业在具有地缘政治意义的行业中比竞争对手更有优势。川普官员还一直在寻求让更多鹰派中国专家在政府内部担任高级职位。
 
-5.据福克斯今日报道，美国总统候选人，美前副总统拜登名下的癌症非盈利机构2017，2018年税表显示该机构人工成本高达400万美元而其研究费用竟然是0.
-[https://www.foxbusiness.com/politics/tax-filings-reveal-biden-cancer-charity-spent-millions-on-salaries-zero-on-research](https://www.foxbusiness.com/politics/tax-filings-reveal-biden-cancer-charity-spent-millions-on-salaries-zero-on-research)
+评论：
 
-By：【秘翻组·金融法律组】
+与人们的普遍预期一致，川普总统在第二任期对中共国的政策将继续保持强硬。川普总统目前正面对选举欺诈的问题，种种迹象表明，中共有可能是其背后黑手，虽然我们确信川普的连任是板上钉钉的事，但竞选中出现的中共参与选票欺诈也是在川普连任之后必须面对的问题。按照路德的说法，中共最终可能会被用FISA法案制裁。邪恶中共对全世界发起的疯狂攻击，已经引起各国警惕。
+
+[原文链接](https://www.axios.com/scoop-trump-plans-last-minute-china-crackdown-fbac3d03-5901-4abd-822f-2a8956a666ad.html?utm_campaign=organic&amp;utm_medium=social&amp;utm_source=twitter)
+
+翻译报道： Alton
 
 0

@@ -1,24 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 观看战友挺川普总统游行有感
-` JP007` [轉載自GNews](https://gnews.org/zh-hans/563746/)
+## 川普总统：选举被操纵 存在前所未有的违宪
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/565176/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16045126/%E8%A7%82%E7%9C%8B%E6%88%98%E5%8F%8B%E6%8C%BA%E5%B7%9D%E6%99%AE%E6%80%BB%E7%BB%9F%E6%B8%B8%E8%A1%8C%E6%9C%89%E6%84%9F.png)
-**作者：京都富士会    华夏的文丽**
+多伦多加喜农场 熊妈妈
 
-华盛顿地区是民主党支持区。昨天有超过百万川普总统支持者从美国各地赶到华盛顿参加游行活动。投身爆料革命的新中国联邦战友们也从美国各地前去支援川普总统。战友们在华盛顿的草坪广场上升新中国联邦国旗，唱新中国联邦国歌，用中英文演讲。伊恩先生和另外一位美国籍新战友也来到现场，还用英文做了演讲。美国的战友们在整个活动中充分展示了新中国联邦人的干净、整齐、正义、礼貌的 新形象。
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16151411/%E8%BF%9D.jpg)图片来自 The Atlantic
+11月15日，川普总统表示，美国总统选举中违反宪法的行为达到了前所未有的程度。
 
-后来，战友们还和其他美国人一起上街游行了一段距离，亲眼看到了川普总统的支持者们用和平声援川普总统的游行，表达对川普总统的喜爱。
+川普总统说，“为什么假媒体不断假设乔∙拜登将成为总统，甚至不允许我们展示我们现在正在准备做的事，因为他们在2020选举中严重违反了我们伟大的宪法。这些违法的行为，可能，在过去从没有出现过没有类似的情况。”
 
-视频中可以看出，支持川普总统的美国中产阶级素质良好，沿街店铺的窗户也没有为防暴钉上木板。这次守法的民众活动并不仅仅是代表支持某个政党，而是支持公平公正的投票制度，对本次投票要求一个明确的答案。
+川普总统讲道，共和党的许多监票员在许多州不被允许到计票处。此外，总统说，民主党人为了帮助他们的候选人而改变了选票。此外，他称邮寄选票的结果”造假”。
 
-败登方面的作弊行为，其实是针对川普总统的一场政变，也是正义与邪恶、合法与非法、良知与虚伪 、诚实与舞弊的较量。美国人民是伟大的，他们在参与和书写伟大的历史。
+推特公司对川普总统的两条推文连续作了标记，“有关选举舞弊的说法存在争议”。
 
-本次爆料革命战友的参与，对新中国联邦将来在国际社会被认可必将起到推动作用。深深感谢战友们的付出！
+此前，在川普总统发表的另一篇文章中指出，他和他的团队正在准备“重大诉讼”，这将证明选举违宪和 “因为有人试图改变选举结果的愤怒”。
 
-蓝天下，新中国联邦的旗帜和美国国旗交相辉映，加上战友们蓝色的战服，成了华盛顿市区一道亮丽的风景线。
+川普总统坚定地表示，他拒绝承认民主党人乔∙拜登在总统大选中获胜。他认为，选举被操控。
 
-为川普总统祈祷，为新中国联邦祈祷，正义必胜。！
+11月16日，川普总统发表声明，“全国各地提起的诉讼案件中很多不是由我们（提起）的，而是由那些目睹了可怕舞弊事件的人（提起的）。我们的大案件会表明2020年选举违宪，而且（有人）为改变选举结果做了令人愤慨的事，（这些大案件）将很快就会被提交（诉讼）！”
+
+美国2020总统大选于11月3日举行，但由于创纪录的高投票率和近1亿人通过邮寄投票，导致选票的计数被所谓推迟。官方至今没有公布大选结果，但11月7日，美国主流媒体却主观宣布乔∙拜登在大选中获胜。
+
+11月15日，美国共和党总统候选人、现任美国总统川普表示 “我赢得了美国2020总统大选”。
+
+此次美国2020总统大选被中共深度操控，随着邮寄选票、投票机及计票软件系统、虚假选票等涉及选票造假的实锤证据公布于众，背后中共主导的暗势力也逐步浮出水面。可见，美国目前存在的主要问题的根源在中共，这是中共多年来布局美国，意图破坏美国的民主体制，摧毁自由世界对法治社会的信心，鼓吹和伪饰专制制度的所谓“优越性”，进而统治奴役全人类的超限战阴谋。
+
+只有消灭中共，美国和世界才会有未来。
+
+参考链接：
+
+
+
+> Why does the Fake News Media continuously assume that Joe Biden will ascend to the Presidency, not even allowing our side to show, which we are just getting ready to do, how badly shattered and violated our great Constitution has been in the 2020 Election. It was attacked,..
+> — Donald J. Trump (@realDonaldTrump) [November 16, 2020](https://twitter.com/realDonaldTrump/status/1328152462331699202?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Many of the court cases being filed all over the Country are not ours, but rather those of people that have seen horrible abuses. Our big cases showing the unconstitutionality of the 2020 Election, & the outrage of things that were done to change the outcome, will soon be filed!
+> — Donald J. Trump (@realDonaldTrump) [November 15, 2020](https://twitter.com/realDonaldTrump/status/1328100945570500608?ref_src=twsrc%5Etfw)
+
+
 
 0

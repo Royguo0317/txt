@@ -1,60 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 从美国国务卿推特重要信息：《马格尼茨基法治问责法》延伸看《全球马格尼茨基法》
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/563919/)
+## 川普总统推文喊话欺诈：“没门”再报涉嫌参与改变选举结果：Dominion，Scytl，ES＆S，Smartmatic
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/563993/)
 
 编辑：玫瑰天空
 
-美国国务卿蓬佩奥今日推文更新重要信息：
-
-迄今为止，根据《俄罗斯马格尼茨基法案》，已有55人受到制裁。美国将继续与合作伙伴合作，以促进责任追究，并对参与马格尼茨基案的人和实施侵犯人权行为的人增加费用。
-
-谢尔盖·马格尼茨基（Sergei Magnitsky）于11年前因涉嫌与政府有关的庞大税收欺诈计划而在莫斯科的监狱中服刑。美国颁布了《马格尼茨基法治问责法》，以促进对侵犯人权者的追责。
+这是一次：“历史上最欺诈的选举！”
 
 
 
-> To date, 55 people have been sanctioned under the Russia Magnitsky Act. The U.S. will continue to work with partners to promote accountability and impose costs on those involved in the Magnitsky case and those who commit violations and abuses of human rights.
-> — Secretary Pompeo (@SecPompeo) [November 16, 2020](https://twitter.com/SecPompeo/status/1328290222044540928?ref_src=twsrc%5Etfw)
+> Most fraudulent Election in history! [https://t.co/X2pRkTqWIS](https://t.co/X2pRkTqWIS)
+> — Donald J. Trump (@realDonaldTrump) [November 16, 2020](https://twitter.com/realDonaldTrump/status/1328325907401093121?ref_src=twsrc%5Etfw)
 
 
 
-谢尔盖・马格尼茨基（Sergei Magnitsky）是一位俄罗斯会计师，2009年遭酷刑、剥夺医疗照护，最后死于莫斯科监狱牢房。俄罗斯当局迫害他，是因为他参与揭发一起重大税务诈欺案，多名高级政府官员被指控涉案。
 
-2012年，美国国会通过以他命名的法律，制裁据信参与重大人权侵害的俄罗斯官员，冻结他们在美国的资产，禁止他们入境美国。
 
-作为全球问责的重要一步，国会以原本针对俄罗斯的马格尼茨基法为基础，在2016年制定《全球马格尼茨基法》，允许行政机关对世界任何地方犯下人权侵害或重大贪腐的人员实施签证禁令和个别制裁。该法普获两党支持。马里兰州民主党籍参议员班・卡定（Ben Cardin）提出草案版本，五名共和党参议员和五名民主党参议员共同联署，欧巴马总统于2016年12月23日签署完成立法。
+Dominion，Scytl，ES＆S，Smartmatic似乎参与了工程选举结果。美国有线电视新闻网（CNN）再次在有争议的2019年肯塔基州州长竞选中获得了\*精确\*的投票失败。观察选票从一个候选人转到另一个候选人的过程。令人震惊👇
 
-***《全球马格尼茨基法》有何作用？***
 
-《[全球马格尼茨基人权问责法](https://www.congress.gov/bill/114th-congress/senate-bill/284/text)》授权总统阻止或撤销特定“外国人”（包括人员与机构）的入境签证或对其实施财产制裁。以下对象得予制裁：**(a) **若其参与或代理他人参与“法外杀人、酷刑或其他对国际认可之人权的严重侵犯”，或 **(b) **若其身为政府官员或政府官员的高级助理并共谋实施“重大贪腐行为”。
 
-***为何《全球马格尼茨基法》是一种有效手段？***
 
-该法促进所有各级政府尊重人权，使美国行政机关有能力对任何参与侵犯人权的个人实施制裁，不分官阶高低，甚至包括非政府协力人员。**制裁的形式包括冻结其储存在美国银行的资产，和禁止发给入境美国的签证。**
 
-《马格尼茨基法》的作用在于吓阻，迫使外国各级官员在实施非法暴力或贪腐行为前，考虑来自美国政府的后果。该法并为外国政府提供诱因，促其改善国内问责机制。通过协助美国进行全球马格尼茨基调查，外国领导人将可展现其绝不纵容国内人权侵犯者的决心。
+> This was from the 2020 election. 
+> 
+> THE. EXACT. SAME. THING.🔽[https://t.co/dSzoA67QX5](https://t.co/dSzoA67QX5)
+> — Kyle Becker (@kylenabecker) [November 15, 2020](https://twitter.com/kylenabecker/status/1327906874948280322?ref_src=twsrc%5Etfw)
 
-***《全球马格尼茨基法》制裁能有多大效果？***
 
-*制裁*措施禁止相关人员入境美国，允许拘押其存在美国的任何财产，并有效防止其与大量银行、企业进行交易。凡是美国公司或在美国设有分支的跨国公司，只要和被制裁对象进行交易，都可能违反美国的制裁措施。事实上，曾和川普之子会面的俄罗斯律师娜塔莉娅・维塞尔尼斯卡娅（Natalia Veselnitskaya）至少有一名客户遭到《马格尼茨基法》制裁，因此她到美国国会来抗议该法。
 
-***川普总统对《全球马格尼茨基法》有何立场？***
+川普总统对于系列邪恶操纵大选盗窃总统位置的势力喊话：没门！！！
 
-川普总统在2017年4月20日[致函](https://www.whitehouse.gov/the-press-office/2017/04/20/letter-president-certain-congressional-committee-chairs)国会议员，确认其政府“支持这项重要立法”且将“致力于坚定、彻底执法”。川普并强调，他的政府正在搜寻应受该法制裁的个人和机构，并“收集适用该法所必需的证据”。川普上任迄今，促进人权的[纪录不佳](https://foreignpolicy.com/2017/04/06/trumps-damning-global-retreat-on-human-rights/)。若能妥善执行《全球马格尼茨基法》，他将有机会向世人证明美国外交政策仍旧以保护人权为基本成分。
+并称最近事态为“这太疯狂了！“
 
-***谁可以向总统建议制裁对象？***
 
-该法授权民主、人权与劳工事务助理国务卿，参酌国务院其他官员意见，向国务卿提出制裁对象的建议。参议院银行、住房与都市委员会和外交委员会，以及众议院金融委员会和外交委员会，也都可以向总统提交名单。总统在研议制裁决定时，还可以审阅其他国家或监督人权侵犯的非政府组织所提供的可靠信息。实际上，实施制裁与否的决策可能主要由国务院和财政部共同做成。
 
-***《全球马格尼茨基法》******目前实施进度？***
+> No way! [https://t.co/Dwvb57mgMz](https://t.co/Dwvb57mgMz)
+> — Donald J. Trump (@realDonaldTrump) [November 16, 2020](https://twitter.com/realDonaldTrump/status/1328325369267675141?ref_src=twsrc%5Etfw)
 
-参议院外交委员会副主席卡定和参议院军事委员会主席约翰・麦凯恩（John McCain）已于8月[致函](https://www.cardin.senate.gov/newsroom/press/release/cardin-mccain-prod-trump-administration-to-use-global-magnitsky-tools-to-punish-human-rights-violators-and-corrupt-officials-from-around-the-world)川普，提出他们认为应受《全球马格尼茨基法》制裁的**20**人名单。包括人权观察在内的一群人权组织也在**9**月向国务卿及财政部长提交一份来自世界各国的**15**人名单──以及详细的证据档案──即各组织认定应受全球马格尼茨基制裁的优先对象。
 
-前述名单包括参与实施酷刑、强迫失踪、谋杀、性侵和勒索的人员。9月8日，川普[正式授权](https://www.whitehouse.gov/the-press-office/2017/09/08/presidential-memorandum-secretary-state-and-secretary-treasury)财政部长实施经济制裁，授权国务卿实施签证禁令，为执行该法[制裁措施](https://www.congress.gov/bill/114th-congress/senate-bill/284/text)做好准备。
+*该推文称：一位名叫Peter Neffenger（已退休的海军上将）的人担任总裁，*
+*并在为Dominion创建软件的“ Smartmatic”的董事会中列出。
+Neffenger在拜登过渡队中。*
+在此起彼伏的欺诈事件和假新闻的充斥中，川普总统选择：“永不放弃！”支持川普总统的爱国者队伍也坚信，川普才是人民选出的美国总统！他会赢！选择站在真相一边的民众会越来越多。制造各种欺诈和社会骚乱以及违宪阴谋正在被挖掘和粉碎中！
 
-***其他国家有没有类似《全球马格尼茨基法》的法律？***
-
-几个欧洲国家、加拿大和欧洲议会都已通过法案，因谢尔盖・马格尼茨基之死而对俄罗斯官员实施制裁。近来，有几个国家已将制裁范围扩大，纳入不分国家的人权侵害者。2月21日，英国通过自己的《全球马格尼茨基法》。爱沙尼亚于2016年完成类似立法。加拿大国会和欧洲议会都在审议制裁国际人权侵犯者的法案。
+随着美国一系列司法行动的展开事态正在进入正邪大决战阶段！夜王和他的丧尸军团以及他们引领的黑暗力量正在面临全方位的围剿和歼灭战！
 
 0
