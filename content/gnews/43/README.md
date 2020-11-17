@@ -1,65 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】滚烫的岩浆，等着你熄灭他的呼吸
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/565082/)
+## 乔治亚计票中心在大选关键时刻“爆水管”
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/565184/)
 
-**作者：香草山写作组  木白** 发稿：飞虹
+*多伦多加喜农场 文焱
+校对 文锦 上传 WJ*
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16152834/0a5c4810-25cf-11eb-bbfd-51e6f00c83fa.jpg)图片来源： REUTERS/Chris Aluka Berry
+此次美国大选，假象频出，剧情比好莱坞大片还精彩。这是一次在大选夜投票截止前未分出胜负的一次选举。由于疫情原因，民主党提出通过邮寄选票来计票，这种堂而皇之的拖延战术也是历史首例。正如郭文贵先生之前所说，此次大选结果将非常具有戏剧性，而整个大选计票过程也同样如此。
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
+下面我们就来聊聊乔治亚州计票中心“爆水管”这件事。
 
+据新闻网站DJHJ MEDIA的一篇文章报道，在美国大选夜，川普总统一直保持领先并赢得了乔治亚州。而就在这个时候，突然传出州立农场体育馆（State Farm Arena）计票中心的一根管道爆裂的消息，导致约4万张缺席选票被推迟到本周晚些时候才能恢复统计。所谓的“爆水管”就是一种拖延战术，让数万张伪造的拜登选票在半夜被带入。而当计票活动重启后，乔·拜登（Joe Biden）的选票数就神奇地暴涨了。
 
+为了证明此事，当地的一名律师保罗·德兹科斯基（Paul Dzikowski）给州政府发了一封信，要求将“爆水管”的所有相关信息发给他。根据《乔治亚州公开记录法案》，他有权这么做。而最终他唯一收到的记录是一名国家工作人员和亚特兰大老鹰队高级副总裁杰弗里·斯蒂尔斯（Geoffrey Stiles）之间的短信，上面写道，小渗漏已经“被快速控制了”，整个事情“被高度夸大了”。各位，这似乎是民主党人的又一次轻描淡写的骗局。新闻网站Gateway Pundit的吉姆·霍福特（Jim Hoft）指出：“没有提供与‘爆水管’相关的水管工维修单、工作单或发票。什么都没有。”
 
-题记：诗是文字表达的最高境界，这些好的东西恰恰是中共最要破坏的。于是，你就看见如今诗歌在中华大地上的没落，各种假大空的艺术大行其道。如今，中国人越来越不懂得使用自己的语言了。能用好语言的人，一定是通过文化和自己经历的修炼而成为通透人性的人，这就是开智。因此，中共一定要打压真正的艺术，让人民活得粗糙、鄙陋、愚蠢。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16131050/%E5%9B%BE%E7%89%8760.png)
-这个世界的情爱
+与此相类似的事件还有很多，比如，费城的计票中心在大选后的第二天早上6点左右收到了装有数千张选票的快递箱。还有，大约12万张选票在凌晨4点左右“神奇地出现在”威斯康星州的一个计票中心。在其他各个州，也都有类似事件发生，而这些“迟到”的选票无一例外都投给了拜登。从而，川普总统团队得出的唯一结论是，他们从未停止计票，而是利用拖延战术，开始计算非法选票。
 
-无非是用孤独的心点燃的烟花
+当民主党人士打着“爆水管”的幌子，当计票中心说停止计票的，在这些被制造出来的自由时间里，他们都做了些什么呢？答案已经显而易见了。
 
-无非是一次次短暂的燃烧，但不悔
+短评：今年的美国大选，过程跌宕起伏，各种造假手段卑劣至极，不管是通过邮寄选票或者“爆水管”这种拖延战术来造假，还是通过Dominion、Scytl等计票软件明目张胆地造假，最终都会有实锤的证据来验证。那究竟是谁在背后导演这场大戏呢？种种迹象都表明，这就是中共的所作所为，想用共产主义毒瘤侵蚀全世界的野心昭然若揭。但我坚信，虽然这次大选过程曲折，但这很好地警醒了全世界人民，擦亮眼睛，排干沼泽，让他们原形毕露，正义终将战胜邪恶，川普总统必得连任！Take Down The CCP！
 
-无非是这燃烧的光和热捂住了冰冷的心
-
-这个世界的情爱
-
-无非是你要去爱一个人
-
-无非是你在一次次坠入爱河中确定是不是他
-
-无非是你终究会去爱一个人
-
-偌大的中国什么都在发生
-
-滚烫的岩浆
-
-熄灭的呼吸
-
-如果爱情也有自由
-
-请原谅那些不禁用力过猛
-
-把你拥抱得窒息的人
-
-也请原谅那些远远地看着你
-
-把你装进月光里散步的人
-
-这个世界总有遗憾
-
-但此生总执迷不悔
-
-这滚烫的岩浆
-
-一直等着你熄灭他的呼吸
-
-（2020年11月16日）
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上8:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+原文链接：
+[It Appears that Georgia Democrats Lied About a Water Main Leak to Stop ‘Officially’ Counting on Election Night](https://djhjmedia.com/rich/it-appears-that-georgia-democrats-lied-about-a-water-main-leak-to-stop-officially-counting-on-election-night/%20https://sarahwestall.com/trump-won-fraud-proven-analysis-of-voting-data-shows-exactly-what-happened/)
 
 1+

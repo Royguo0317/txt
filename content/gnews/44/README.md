@@ -1,44 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 译文参考：揭露拜登癌症慈善组织竟然没有向癌症研究方面捐赠过一分钱！
-` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/565010/)
+## 川普总统：选举被操纵 存在前所未有的违宪
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/565176/)
 
-**翻译：为子孙爱七哥农场翻译组 zz17**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16130636/%E6%8B%9C%E7%99%BB%E7%99%8C%E7%97%87.jpg)
-**新闻链接：[Report: Biden Cancer Initiative Donates No Money To Cancer Research](https://www.oann.com/report-biden-cancer-initiative-donates-no-money-to-cancer-research/)**
+多伦多加喜农场 熊妈妈
 
-## 译文：
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16151411/%E8%BF%9D.jpg)图片来自 The Atlantic
+11月15日，川普总统表示，美国总统选举中违反宪法的行为达到了前所未有的程度。
 
-报税单揭露乔·拜登的癌症慈善组织募集了上百万的美金，但是没有一分钱用来资助或者真正癌症课题研究。最新的联邦税务数据发现该慈善组织用在支付他的员工工资就达到3百万美元(募集资金才4百80万美元)。
+川普总统说，“为什么假媒体不断假设乔∙拜登将成为总统，甚至不允许我们展示我们现在正在准备做的事，因为他们在2020选举中严重违反了我们伟大的宪法。这些违法的行为，可能，在过去从没有出现过没有类似的情况。”
 
-拜登和他的妻子，吉尔·拜登（Jill Biden），在2017年成立该组织，致力于帮助发展癌症治疗。然而，据报道这个慈善组织没有向任何研究基金资助过一分钱。
+川普总统讲道，共和党的许多监票员在许多州不被允许到计票处。此外，总统说，民主党人为了帮助他们的候选人而改变了选票。此外，他称邮寄选票的结果”造假”。
 
-另外，一些前奥巴⻢政府卫生部⻔官员从这个慈善组织获取薪水，远远超过他们在政府任职时期的薪资。
+推特公司对川普总统的两条推文连续作了标记，“有关选举舞弊的说法存在争议”。
 
-该组织主席（格里高利·⻄蒙，Gregory Simon）是其中薪资最高的。在2018财年里，他赚取了43万美元，是将近2017年的两倍（22万4千美元）。
+此前，在川普总统发表的另一篇文章中指出，他和他的团队正在准备“重大诉讼”，这将证明选举违宪和 “因为有人试图改变选举结果的愤怒”。
 
-该组织发言人声称我们慈善组织主要的任务不是拨款资助。然而在他们模糊不清的任务说明中，申明会对癌症治疗和防治提供“紧急”解决方案。
+川普总统坚定地表示，他拒绝承认民主党人乔∙拜登在总统大选中获胜。他认为，选举被操控。
 
-随着拜登将更多的注意力集中在竞选总统上，这个慈善组织经历两年的运营后在2019年解散。
+11月16日，川普总统发表声明，“全国各地提起的诉讼案件中很多不是由我们（提起）的，而是由那些目睹了可怕舞弊事件的人（提起的）。我们的大案件会表明2020年选举违宪，而且（有人）为改变选举结果做了令人愤慨的事，（这些大案件）将很快就会被提交（诉讼）！”
 
-现在，该慈善组织已暂停运营，并且⻄蒙说如果没有拜登的掌管，这个组织将变得很难获得关注。
+美国2020总统大选于11月3日举行，但由于创纪录的高投票率和近1亿人通过邮寄投票，导致选票的计数被所谓推迟。官方至今没有公布大选结果，但11月7日，美国主流媒体却主观宣布乔∙拜登在大选中获胜。
 
-## **点评：**
+11月15日，美国共和党总统候选人、现任美国总统川普表示 “我赢得了美国2020总统大选”。
 
-根据IRS披露的具体数字，该组织在2017~18年两年内募集了$4,809,619；在工资花费上就高达$3,070,301。在2017年开会费用为$56,738,差旅费上$59,356；而2018年出差费用增⻓到$97,149，开会费用增⻓到$742,953。就针对差旅费用和开会费用两项在 2017~18年就达到$956,196，就占到募集款项的20%；员工工资支出占到64%。
+此次美国2020总统大选被中共深度操控，随着邮寄选票、投票机及计票软件系统、虚假选票等涉及选票造假的实锤证据公布于众，背后中共主导的暗势力也逐步浮出水面。可见，美国目前存在的主要问题的根源在中共，这是中共多年来布局美国，意图破坏美国的民主体制，摧毁自由世界对法治社会的信心，鼓吹和伪饰专制制度的所谓“优越性”，进而统治奴役全人类的超限战阴谋。
 
-不禁要提出疑问，到底“拜登癌症倡议慈善组织”是干什么的？根据先前三块硬盘所曝光的线索，拜登在2017年与托尼·波布林斯基（Tony Bobulinski）⻅面并将波布林斯基先生聘为中鹰控股（Sinohawk Holdings）的CEO。在与波布林斯基先生⻅面之前，拜登在洛杉矶举行的米尔肯会议（Milken conference）中畅谈他们家族为 癌症研究所做出的努力（Breitbart新闻网来源）。
+只有消灭中共，美国和世界才会有未来。
 
-这其中有没有关联? “拜登癌症倡议慈善组织”在拜登家族中起到什么样的作用？背后的资助者到底有谁？
+参考链接：
 
-这些林林总总会随着拜登硬盘的司法调查逐一曝光。
 
-**更多精彩内容请关注：**
 
-- [为子孙爱七哥农场官方推特](https://twitter.com/wzsaqg)
-- [为子孙爱七哥农场官方GTV号](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
-- [欢迎加入农场discord官方群](https://discord.gg/2vXAV6G)
+> Why does the Fake News Media continuously assume that Joe Biden will ascend to the Presidency, not even allowing our side to show, which we are just getting ready to do, how badly shattered and violated our great Constitution has been in the 2020 Election. It was attacked,..
+> — Donald J. Trump (@realDonaldTrump) [November 16, 2020](https://twitter.com/realDonaldTrump/status/1328152462331699202?ref_src=twsrc%5Etfw)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20123101/%E5%86%9C%E5%9C%BA%E5%B9%BF%E5%91%8Av7-3.jpg)
-2+
+
+
+
+
+> Many of the court cases being filed all over the Country are not ours, but rather those of people that have seen horrible abuses. Our big cases showing the unconstitutionality of the 2020 Election, & the outrage of things that were done to change the outcome, will soon be filed!
+> — Donald J. Trump (@realDonaldTrump) [November 15, 2020](https://twitter.com/realDonaldTrump/status/1328100945570500608?ref_src=twsrc%5Etfw)
+
+
+
+0

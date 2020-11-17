@@ -1,21 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【重磅新闻】新中国联邦人支持美国人民追求自由公正的选举
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/565298/)
+## 剧情反转！老牌亲共派基辛格转向支持川普！
+` GM01` [轉載自GNews](https://gnews.org/zh-hans/565326/)
 
-香草山综合报道
+2020年11月16日，彭博社消息，前美国国务卿基辛格表示，即将上任的拜登政府应迅速采取行动，恢复与中国在川普执政期间受损的沟通渠道，否则可能会引发升级为军事冲突。
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
+基辛格在彭博新经济论坛开幕式上说：“除非有采取某种合作行动的基础，否则世界将陷入一场类似于第一次世界大战的灾难。”，“今天可用的军事技术将使这场危机“比以前更难以控制”。
+
+作为老牌亲共派，基辛格的言论被认为是中共向美方和全世界发出的军事威胁的信号。 2020年11月14日，超过一百万川普支持者在华盛顿支持川普总统连任，朱利安尼所带领的法律团队捷报连连。美国选举软件Dominion的故事正被抽丝剥茧般的将拜登选举舞弊的真相展现给全世界。
+
+美国国会众议院近日也发表正式文件声明大选并没有结束，戳破了假新闻所制造拜登连任的谎言”。
+
+然而根据推特上流传郭先生的最新语音，基辛格已经被郭先生说服转向支持川普总统。
+
+“基辛格都转向了，兄弟姐妹们“郭先生说。
 
 
 
+> 郭文贵先生语音
+> 基辛格转向川普✊✊✊ [pic.twitter.com/NGc6c2zYOp](https://t.co/NGc6c2zYOp)
+> — 海狼（1） (@hailangwolf1) [November 16, 2020](https://twitter.com/hailangwolf1/status/1328469689194868736?ref_src=twsrc%5Etfw)
 
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+不论是否是战争威胁，中共对美国的超限战早已发动了几十年，截止2020年11月16日中共病毒已感染全世界超过5500万人，杀死了美国25万人。
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+[彭博社原文](https://www.bloomberg.com/news/articles/2020-11-16/kissinger-warns-biden-of-u-s-china-catastrophe-on-scale-of-wwi)
 
-0
+1+
