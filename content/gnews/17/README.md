@@ -1,36 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【国内快讯】中共吹嘘儿童医院进展，反暴露其鱼肉百姓本质
-` Ronald` [轉載自GNews](https://gnews.org/zh-hans/567059/)
+## 11月11日【大卫作战室观点】-英喜出品
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/567351/)
 
-内新闻/素材：鹰(文言) 校对：雅典娜的圣斗士(沙加)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17074024/201610200955458630.jpg)
-新浪网11月17日转载央视报道，据中共卫健委医政医管局披露，截至目前为止国内各级儿童医院228家，比2015年增加114家。
+[!\[\]()!\[\](https://spark.adobe.com/page/AoWNqbCH38gS0/images/e2fd3346-3328-41d4-9264-4ae2da9de8df.jpg?asset_id=b8fa095f-9c50-4160-8883-5bbe4b088740&amp;img_etag=%22ee30c1aa3aecdb61d55343d323d5192c%22&amp;size=2560)](https://spark.adobe.com/page/AoWNqbCH38gS0/images/e2fd3346-3328-41d4-9264-4ae2da9de8df.jpg?asset_id=b8fa095f-9c50-4160-8883-5bbe4b088740&amp;img_etag=%22ee30c1aa3aecdb61d55343d323d5192c%22&amp;size=1024)11.11.
 
-根据2015年中共统计局发布的《2015年中国儿童人口状况——事实与数据》，2015年国内0-17岁儿童共计2.71亿，其中46%约1.247亿儿童居住在城镇地区，16%约4400万儿童居于贫困农村地区。
+## 2020年11月11日【大卫作战室观点】
 
-根据2015年15-17岁高中学龄儿童中有630万不在校，而高中学龄儿童在校率86%，可知15-17岁儿童约4500万，则对儿童医院需求更高的14岁及以下儿童约有2.26亿。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17074210/image0-2-7.jpg)
+> **网易惊现英喜视频，川普总统势不可挡，辉瑞疫苗是不是病毒政治，恒大是不是又是中共内斗的牺牲品？**
 
-单以数据计算，2015年114家儿童医院要至少顾及2.26亿儿童，即平均每家医院对应约198万儿童（2020年99万/家），远远超过了一家医院所能承受的受诊量，也就是说中共国至今没有像样的能满足基本儿童就诊的医疗系统。
 
-以2020年的228家儿童医院计算，平均国内每个省6.7家（34个省级行政区），每个市0.68家（333个地级区），每个县0.08家（2844个县级区），即便刨除4400万居住在贫困农村地区的儿童，对于1.247亿居住在城镇地区的儿童而言，儿童医院也是严重匮乏的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17074252/image1-12.jpg)
-《2015年中国卫生和计划生育事业发展统计公报》中指出截至2015年末，国内医院共计27587个（相比14年增加了1727个）；
 
-《2019年我国卫生健康事业发展统计公报》显示从2016年至2019年国内医院分别比上年增加1553家、1916家、1953家、1345家。2019年的医院总数相较15年更是增加了6767家，儿童医院却在5年时间仅增加了114家，还不及医院增数的1.7%。
 
-5年时间不到1.7%的新增医院为专业的儿童医院，而且这还发生在中共放开生育限制、鼓吹二胎多胎政策扶持期间，何其荒谬。
+#### **[👉GTV精彩视频回看](https://gtv.org/video/id=5fac68aebd0d464fadff63e3)**
 
-5年的时间中共“没钱支持”儿童医院建设，却可以对外大撒币，军费开支逐年增加，大肆兴建军事装备，2019年的外交开支更是占据财政支出的绝大多数，几年时间维稳开支更是急剧上涨。
+### **网易惊现英喜视频？**
 
-所以说，中共统治下的国人真的是活得不如猪狗，不但生活在贫困线上下，疲于奔命，就连鼓励多生这一便于中共“收割韭菜”的政策扶持也是表面文章。
+- 墙内有人很多看到爆料革命、战鹰团的文宣被感染，并且成为了战友
+- 他们把灭共的思维在墙内传播普及，也会教育墙内的朋友
+- 我们的文宣要坚守郭先生的唯真不破，为善不败，严守正义、良知，潜移默化去改变人们看待事情的视觉和角度，反洗脑
 
-因此我们必须要灭共，必须要在我们这一代彻底灭共，不仅为了争取民主法治和自由，不再活在恐惧之中，更为了能让我们的子孙后代可以不再为奴，不再被人肆意欺凌剥削、生杀予夺。
+[!\[\]()!\[\](https://spark.adobe.com/page/AoWNqbCH38gS0/images/9b4c24c5-1275-4ecc-92a4-33ae5b3e8dd2.png?asset_id=750b9a04-092a-4199-bd9e-0203e451a3b7&amp;img_etag=%228fa74db07b6ddb0a0a6183a57471eb12%22&amp;size=2560)](https://spark.adobe.com/page/AoWNqbCH38gS0/images/9b4c24c5-1275-4ecc-92a4-33ae5b3e8dd2.png?asset_id=750b9a04-092a-4199-bd9e-0203e451a3b7&amp;img_etag=%228fa74db07b6ddb0a0a6183a57471eb12%22&amp;size=1024)
+### **川普总统势不可挡**
 
-新闻来源：
-[https://news.sina.com.cn/c/2020-11-17/doc-iiznezxs2221688.shtml](https://news.sina.com.cn/c/2020-11-17/doc-iiznezxs2221688.shtml)
+- 民主党在众议院得票最少的一年年，很多民主党州已经变成共和党州民意已起，民众组游行支持特朗普总统，抗议选举做假
+- 各州各界大量证人证据指证选举不公和造假
+- 退伍军人纪念日，展示了特朗普家庭和睦、共和党和新领导班子的团结
 
+[!\[\]()!\[\](https://spark.adobe.com/page/AoWNqbCH38gS0/images/db0a8a01-d799-4a24-9e28-755285ca0903.png?asset_id=f1c76302-df2d-488c-86d4-4e973ee59f7c&amp;img_etag=%22dc3bb4cce379fcb92e5030b12b384d2a%22&amp;size=2560)](https://spark.adobe.com/page/AoWNqbCH38gS0/images/db0a8a01-d799-4a24-9e28-755285ca0903.png?asset_id=f1c76302-df2d-488c-86d4-4e973ee59f7c&amp;img_etag=%22dc3bb4cce379fcb92e5030b12b384d2a%22&amp;size=1024)
+### **辉瑞疫苗是不是病毒政治？**
+
+- CNN与拜登互相配合把注意力转到病毒，又用病毒打击特朗普总统
+- 辉瑞宣布疫苗”有效”令股票大涨，让它背后的 股东中共、华尔街、黑石等财团敛财， 用资本去控制市场、媒体、民意
+- 将疫苗政治化，谁有疫苗谁有话语权，谁就是政治势力的蠃家
+
+[!\[\]()!\[\](https://spark.adobe.com/page/AoWNqbCH38gS0/images/9d6a3643-032e-4873-8af2-b83a39c4095b.png?asset_id=44d3a0f9-a4ca-4a43-85de-a4cc24a53c81&amp;img_etag=%22fd83e656a9de337957486bf6ca4dffdf%22&amp;size=2560)](https://spark.adobe.com/page/AoWNqbCH38gS0/images/9d6a3643-032e-4873-8af2-b83a39c4095b.png?asset_id=44d3a0f9-a4ca-4a43-85de-a4cc24a53c81&amp;img_etag=%22fd83e656a9de337957486bf6ca4dffdf%22&amp;size=1024)
+编辑**[【喜马拉雅战鹰团】](https://spark.adobe.com/page/AoWNqbCH38gS0/)**-点击Adobe Spark版
+
+**[点击关注大卫作战室Parler](https://parler.com/profile/David008/posts)**
+
+[**点击阅读英喜庄园在G-News 的更多精彩文章**](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[**点击观看英喜庄园在G-TV的精彩视频**](https://gtv.org/user/5ee680a45bd6f123dd104807)
+[!\[\]()!\[\](https://spark.adobe.com/page/AoWNqbCH38gS0/images/82b0438b-8f54-4bdc-b95b-ee44d0fed2c2.jpg?asset_id=1b8aef65-398c-446b-929d-8a3f711b5082&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=2560)](https://spark.adobe.com/page/AoWNqbCH38gS0/images/82b0438b-8f54-4bdc-b95b-ee44d0fed2c2.jpg?asset_id=1b8aef65-398c-446b-929d-8a3f711b5082&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=1024)
 0
