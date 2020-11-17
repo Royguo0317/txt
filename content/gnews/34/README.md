@@ -1,10 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/16/2020 挺川民众发声：我们要川普总统再任四年，让美国发扬光大；总统先生，我们全力支持您，您终将凯旋!
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/567585/)
+## 11/15/2020 西德尼·鲍威尔接受玛利亚采访: 他们从一开始就打算通过软件修改选票来确保拜登获胜。
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/567831/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17102605/Capture-42.jpg)
+11/15/2020 西德尼·鲍威尔接受玛利亚采访: 他们从一开始就打算通过软件修改选票来确保拜登获胜。这也是为什么拜登说他不需要你们现在投票给他，他稍后才会用到大家的选票。这可是大规模的选举欺诈，可以从根本上改变选举结果。
+
+
+
 #### **By: 【秘密翻译组G-Translators】**
 
 0

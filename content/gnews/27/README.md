@@ -1,17 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/17/2020 财经快讯：特斯拉即将纳入标普500指数，或推动其股价短期上涨
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/567648/)
+## 【军事快讯】国防部长主抓征兵，中共只是垂死挣扎
+` Ronald` [轉載自GNews](https://gnews.org/zh-hans/567895/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17104708/Capture-43.jpg)图片来源：英为财经 https://cn.investing.com/equities/tesla-motors
-1. [11月16日，美国司法部（DOJ）官网公布了旨在应对来自中共的科技和知识产权偷窃行为的“中国计划”在2019-2020年度所取得的成绩。该回顾报告显示，在过去的一年，“中国计划”在遏止中共以美国为代价增强其经济和军事实力方面取得了巨大进步，非常有助于打击中共对美国的敏感信息和科技的偷窃行为。FBI几乎每10个小时就会发起一个新的与中共有关的反间谍案件。该报告显示，“中国计划”成立于2018年，其主要目的为调查和起诉中共的商业机密偷窃和经济间谍活动，以更好地应对中共对美投资和美国脆弱的供应链系统带来的威胁。](https://www.justice.gov/opa/pr/china-initiative-year-review-2019-20)
-2. [据路透社11月16日报道，美国能源信息署在本周一的月度预测中称，美国页岩气的石油产量预计在12月下降约139,000桶/日，至751万桶/日，为6月以来的最低水平。除Haynesville地区的产能预计保持稳定，其他六个主要地层的产量都将下降](https://mobile.reuters.com/article/amp/idUSKBN27W2NK?__twitter_impression=true)。
-3. [路透社报道称，中国搜索引擎巨头百度（BIDU.O）本周一表示将以36亿美元的价格收购 JOYY Inc（YY.O）在中国的在线直播娱乐业务。百度表示，该交易预计将在2021年上半年完成，收购项目包括YY移动app，YY.com网站和PC YY等](https://mobile.reuters.com/article/amp/idUSKBN27W2UV?__twitter_impression=true)。
-4. [美国财经网站零对冲（Zerohedge）发文称， 受中国煤矿债券违约引发的债券抛售潮的影响，中国建设银行马来西亚纳闽分行暂缓区块链债券的发行。随着中国市场流动资金短缺的加剧和违约加剧，本就不透明的中国债券市场即将陷入困境](https://www.zerohedge.com/crypto/chinas-biggest-bank-pulls-massive-blockchain-backed-bond-issue-defaults-build?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)。
-5. [布赖特巴特网（Breitbart News Network）撰文称，中共官媒上周末欢天喜地庆祝中共与其他14个亚太国家（包括日本、韩国和澳大利亚等美国的主要盟友）达成了大规模贸易协议—区域全面经济伙伴关系（RCEP），认为这是 “美国在西太平洋霸权的终结”。中共官媒鼓吹，RCEP协定在covid-19 大流行病的背景下达成，表明亚太各国不愿意盲目跟从美国，也不愿将中国排除在亚太一体化进程之外。还将ECEP视为对抗美国经济的主要手段](https://www.zerohedge.com/crypto/chinas-biggest-bank-pulls-massive-blockchain-backed-bond-issue-defaults-build?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)。
+内军事：鹰(文言)  素材：文朝汗(部落) 校对：文迹～见证神迹
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17115604/PSX_20201118_002620.jpg)
+新浪网11月17日报道，中共国务院发布《国务院办公厅、中央军委办公厅关于同意建立全国征兵工作部际联席会议制度的函》，确定联席会议召集人即改革征兵工作负责人为国防部长魏凤和。
 
+此前2018年7月的征兵会议中，中共要求以提高兵员质量为主，加大对海空和东部地区部队在西部地区的征兵数量；
 
-By【秘翻组 – 金融法律组】
+2019年7月中共则要求继续加大征兵数量，并加大向高原部队补充新兵力；
+
+2020年1月中共更是将义务兵征集频率从一年一次征兵一次退役改成了一年两次征兵两次退役，根据中共国防部披露9月24日透露，本次应征报名人数达300万。
+
+此次成立联席会议更是专门针对全国征兵工作，由国防部长牵头主抓，直接完成中共军委对兵役征集的一系列举措，并督导检查各征兵政策措施的具体落实，将“义务征兵”提升到“国家安全”层次。
+
+自习包子掌权后，中共一改“韬光养晦”策略，不仅大肆建造军事武器装备，而且大力对外军事扩张，军事化南海岛礁，在亚洲耀武扬威后更是直接挑战美国。
+
+习包子“定于一尊”后更是撕掉前几任的“裁军外衣”，变本加厉地继续蛊惑底层人民的子女入伍献身。
+
+中共的“西兵东送”征兵策略，意图在将西部地区的青年男女通过军事教育、宣传洗脑收为己用的同时，减少西部地区“潜在有生抗争力量”，更方便了其对西藏、新疆、内蒙古等西部地区的任意残害。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17115635/PSX_20201118_002645.jpg)
+2020年以来，随着中美博弈加剧，美国引领全世界灭共力量的逐渐强大，中共也越发胆怯，更改“前制”加倍征兵频率，将上百万的底层人民的儿女诱骗到“党卫军”之中，继续为维护其政权稳定充当垫脚石。
+
+此次建立联席会议并由国防部长主抓，也反映出中共的确黔驴技穷，已经到了崩溃边缘，所以不惜力量征集“纳粹敢死队”，以图更好地威胁、绑架14亿人民来垂死挣扎。
+
+当今以美灭共已经成熟，美国已正式对中共开启超限战（涵盖科技战、金融战、经济战、网络战等诸多领域）；依法灭共也已进入快车道；同时中共内部有志之士团结一心，以共灭共也已具备条件。
+
+随着爆料革命唤醒越来越多的墙内民众和党内同胞，中共的统治基础也必将悄然倒塌，中共政权覆灭在即，再多的“党卫军”也无力挽回灭共的民心。
+
+新闻来源：
+国防部部长多了一项新任务
+[https://news.sina.com.cn/c/2020-11-17/doc-iiznezxs2224356.shtml](https://news.sina.com.cn/c/2020-11-17/doc-iiznezxs2224356.shtml)
 
 0
