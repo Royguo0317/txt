@@ -1,73 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统为惩罚干扰美国选举的绞索早在2018年9月12日已备好
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/565986/)
+## 拜登通共历程:2001年8月6日见阿扁表态不协防台湾后叩见江泽民
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/566266/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16234458/%E5%B0%81%E9%9D%A2-19.png)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17013448/%E5%B0%81%E9%9D%A2-61.jpg)
 撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-据Trump fights for us, we fight for him @crystal78243104于[2020年11月17日1：03AM](https://twitter.com/crystal78243104/status/1328383174678900737)发布的推文：
+据[美参院外委会主席拜登：美国不会“协防”台湾](https://news.sohu.com/16/75/news146247516.shtml)（2001年8月14日13:54　光明网-生活时报）：
 
-2）行动。因此川普总统不仅能够成功连任，还将彻底摧毁所有涉嫌操纵大选的阴谋集团。 据Natural News网站11月14日报道，2018年9月12日特朗普总统曾经签署了一项鲜为人知的行政命令（可在白宫网站[http://Whitehouse.gov](https://t.co/0UpQSiXqkW?amp=1)找到），标题为 “关于在外国干涉美国大选的情况下实施某些制裁的行政命
+［在8月6日对台湾进行的24小时短暂访问，拜登只会见了台湾地方领导人和台“外交部长”田弘茂。在台风多发的台湾，媒体形容拜登的来访犹如刮起一股强大的“拜登旋风”，“吹煞”台独分子的“独立梦想”。
 
+最引人关注的是拜登与陈水扁的会谈场面。拜登与热情迎接他的台湾地方领导人拥抱并寒暄几句后，便从自己文件包中取出了一份文件。台湾领导人还以为这是布什捎来的亲笔信，不料拜登却说，布什没有让他带来任何信息，这是一份美国1978年通过的《与台湾关系法》。然后，拜登逐字逐句、非常认真地念起《对台关系法》的法律条文来。
 
+事后，台湾媒体说拜登的上述做法“不够礼貌”，但拜登的理由很充足：礼节属于小事，“如果在大事上出了问题，造成麻烦可是要命的”。
 
-> 2）行动。因此川普总统不仅能够成功连任，还将彻底摧毁所有涉嫌操纵大选的阴谋集团。
-> 
-> 据Natural News网站11月14日报道，2018年9月12日特朗普总统曾经签署了一项鲜为人知的行政命令（可在白宫网站[https://t.co/0UpQSiXqkW](https://t.co/0UpQSiXqkW)找到），标题为 “关于在外国干涉美国大选的情况下实施某些制裁的行政命
-> 👇
-> — Trump fights for us, we fight for him 🇺🇸🇺🇸🇺🇸 (@crystal78243104) [November 16, 2020](https://twitter.com/crystal78243104/status/1328383174678900737?ref_src=twsrc%5Etfw)
+拜登为什么为台湾领导人“上课”？道理很简单，拜登是目前美参院尚在位的惟一一位《与台湾关系法》起草人。他深知台湾问题要和平解决，前提必须是台湾不能宣布独立。拜登认为，20年来美国、台湾换了好几任领导人，现当权者对它的历史背景和重要意义已经模糊，出现了一些偏离《与台湾关系法》轨道的做法，所以他要“正本清源”。因此，拜登多次批评小布什“协防台湾”的讲话，据他自己透露，他来之前还专门找布什、鲍威尔认真地谈过台湾问题，并曾语重心长地说：必须坚持一个中国政策，协防台湾这样的话今后不能再讲了。他担心小布什协防台湾的讲话和今年对台军售会对台湾领导人产生错误的理解，因而他认为必须把这个问题给台湾领导人讲清楚：美国历届政府包括布什政府都以《与台湾关系法》为依据，不会超越该法案而协防台湾。
 
+舆论指出，拜登通过访问对台湾领导人“打分不高”。除了“上课”外，拜登还利用各种场合“敲打”台湾领导人。拜登在记者会上直言，他对台湾领导人表达的北京“设置障碍、影响两岸和平谈判”的说法“不太赞同”，并对中国大陆威胁论进行驳斥。认为中国大陆军事力量构不成对美国的威胁，实际上是告诉台湾当局不要在此问题上借题发挥，从美国捞取更多的先进武器。在台湾“外交部长”田弘茂为其举行的宴会上，拜登又说，台湾领导人对两岸关系现状“是不是过于乐观了”，他对此“感到惊讶”。拜登意在暗示：因为没有搞清情况，所以才出现盲目的乐观。
 
+实地感受中国
 
-根据这条推文提供的信息，在白宫的网站上找到了下面的内容，以下内容英文为白宫网站原文，中文为大体翻译，因英文水平有限， 如有纰漏，敬请指正——
+访问中国是拜登此次亚洲之行的重头戏，时间多达4天，他先后访问了上海、北京等地。拜登被认为是美国自由派的代表人物，自视为“人权斗士”，长期以来对中国的人权问题说三道四。他通过此次访问，亲身感受到了中国改革开放取得的巨大成绩。他说：22年前来过中国，那时是中美刚刚建交；现在又来了，他看到了中国的变化，人民的生活水平得到了很大提高。舆论认为，拜登这番感想不可小视，可谓言之由衷，这有助改变他对中国一些固有的看法，减少在人权问题上对中国的指责。拜登声称其访华的最重要会谈议题是导弹技术扩散问题。他指责中方向巴基斯坦出售导弹技术，并称这为美国部署NMD提供了理由。中方重申了自己的一贯态度，导弹技术扩散不符合中国的利益，中国在防止导弹技术扩散方面严格履行了有关协议，美方不应依据不实的消息对中国妄加指责。会谈之后，拜登表示中方的态度是坦诚的，双方的会谈很有意义。在拜登访华之前，美国一些反华势力通过《华盛顿时报》造谣说，美国的侦察卫星发现，中国用集装箱通过汽车运输的方式向巴基斯坦运送了12批导弹部件。实际上，稍加推敲就不难发现这一报道有捏造的嫌疑，侦察卫星怎能发现探视到集装箱内的东西，更何况还是具体的某种零件？
 
-## [President Donald J. Trump Is Working to Protect Our Nation’s Elections from Foreign Interference](https://www.whitehouse.gov/briefings-statements/president-donald-j-trump-working-protect-nations-elections-foreign-interference/)（唐纳德·J·川普总统正在努力保护我们的国家选举不受外国干扰）
+有助增进了解
 
-[Law & Justice](https://www.whitehouse.gov/issues/law-justice/)（法律和正义）Sep 12, 2018 （2018年9月12日）
+舆论认为，拜登此次的中国之行，掌握了大量的感性情况，对其以后制定对华政策将会产生积极的影响。众所周知，在美国对外政策的形成中，美国参议院外交委员会的作用举足轻重，能对政府产生关键性影响。拜登在对华关系上一直积极呼吁实行克林顿时期的接触政策。
 
-### *Quote**（引用）*
+拜登访华是继不久前鲍威尔成功访问北京之后，中美之间又一次重要的外交接触，有利于推动正在走出低谷的中美关系的发展，并为10月布什总统访华创造一种更加宽松的政治氛围。他在台湾问题和NMD问题上的立场、对中美关系的定位比较开通。他说，中国不是美国潜在的敌人，“中国虽然不是美国的盟友，却可以成为美国的朋友”。最近，布什正在为如何定位中美关系发愁，虽然他公开声称放弃“中国是战争竞争对手”的竞选诺言，强调中国不是美国的敌人，但又不愿称中国为“朋友”或“伙伴”。拜登的快口直言无疑对布什政府将会产生推动作用。但也应看到，对拜登个人以及美国参院外交委员会的期待值不要过高。（吴言）］
 
-We’re going to take strong action to secure our election systems and the process.（我们将要采取强有力的行为保护我们的选举系统和选举过程）
+另据[江泽民在北戴河会见美参院外委会主席拜登(附图)](江泽民在北戴河会见美参院外委会主席拜登%28附图%29)（http://www.sina.com.cn 2001年08月08日17:55 中国新闻网）：
 
-President Donald J. Trump （唐纳德.J.川普总统）
+［中新社北戴河八月八日十六时三十八分电(记者朱大强)中国国家主席江泽民今天下午在北戴河会见了美国参议院外交关系委员会主席小约瑟夫-拜登，双方就发展中美关系等问题交换了意见。拜登是继鲍威尔国务卿访华之后，江泽民主席会见的又一位美国重要客人。拜登是美国资深的民主党议员，七十年代曾访华，他长期支持发展中美关系。拜登是应中国人民外交学会的邀请来华访问的。］
 
-**PROTECTING OUR ELECTIONS: President Donald J. Trump is issuing an Executive Order that will work to respond to and deter foreign attempts to interfere in our elections. ****（保护我们的选举：唐纳德·J·川普总统正在发布一项行政命令，该命令之目的在于应对和制止外部势力对我们选举的攻击企图。）**
-
-- President Trump’s Executive Order “Imposing Certain Sanctions in the Event of Foreign Interference in a United States Election” shows his commitment to protecting our elections.（川普总统的行政命令“在外国干预美国大选时实施某些制裁”表明了川普总统关于保护我们的选举的承诺）
-- President Trump is directing the Administration to develop a process, in coordination with State and local officials, for assessing and determining if interference in a United States election occurred.（川普总统指示政府与州和地方官员协调制定程序，以评估和确定是否发生了对美国大选的干涉）
-- The Executive Order authorizes action against those determined to have interfered in a United States election, including through: （该行政命令授权采取行动对抗那些确认为已经和正在干扰美国大选的行为：）
-    - Sanctions against those determined to have participated in foreign interference in our elections. （对那些确认已经参与过对我们选举实施的外国干扰的人或组织实施制裁。）
-    - Additional measures that would have wide-ranging impact on foreign governments, entities, and individuals who interfere in our elections.（对干预我们选举的外国政府，实体和个人产生广泛影响的附加手段。）（笔者注：此段的意思应该是对于参与干预美国选举的外国政府、实体和个人的制裁应该让他们知道疼，让他们终生铭记他们犯罪所带来的痛苦！）
-- President Trump’s Executive Order mandates interagency reporting of potential foreign interference following each Federal election.  （川普总统的行政命令要求在每次联邦大选后跨部门报告潜在的外国干涉）
-- This Executive Order builds on the Administration’s robust efforts to expose, disrupt, and impose costs on those responsible for election interference.（该行政命令为了让政府在揭露、扰乱、增加选举成本方面的工作更有成效，并且让这些外国干扰为他们的行为付出代价）
-
-
-**WORKING ACROSS ALL LEVELS OF GOVERNMENT: The Trump Administration is working across all levels of government to help protect America’s elections from foreign interference.****（在各级政府层面上开展工作：川普政府正在各级政府之间开展工作，以帮助保护美国的选举不受外国干预。）**
-
-- The Department of Homeland Security (DHS) is working with State and local election officials and the private sector to coordinate a response to attempts at election interference.（国土安全部（DHS）正在与州和地方选举官员以及私营部门合作，以协调应对选举干扰的企图。）
-- DHS and election officials across 50 States and 1,100 local jurisdictions formed the Election Infrastructure Information Sharing and Analysis Center to share security information.（来自50个州和1,100个地方辖区的DHS和选举官员组成了选举基础设施信息共享和分析中心，以共享安全信息）
-- The Office of Director of National Intelligence (ODNI) is providing DHS with actionable intelligence so State and local officials can strengthen election security.（国家情报局局长办公室（ODNI）正在为DHS提供可行的情报，以便州和地方官员可以加强选举安全。）
-- These efforts build on the Administration’s support to States during past elections and the ongoing 2018 elections. （这些努力建立在政府在过去的选举和正在进行的2018年选举中对各州的支持之上。）
-    - During 2017, the Administration provided on-site cybersecurity support to States.（在2017年选举期间，政府当局向各州提供了现场网络安全支持）
-    - A pilot program was launched to help officials at all levels of government share information and rapidly respond to security issues.（推出了一项试点计划，以帮助各级政府官员共享信息并快速响应安全问题）
-
-
-**STRENGTHENING ELECTION SECURITY EFFORTS: The President and his Administration are working vigilantly to improve and strengthen the security of our elections.****（加强选举安全工作：总统及其政府正在努力工作，以改善和加强我们选举的安全性。）**
-
-- President Trump recently held meetings with the National Security Council in May and July 2018 discussing the Administration’s whole-of-government approach to election security.（特朗普总统最近于2018年5月和2018年7月与国家安全委员会举行会议，讨论政府对选举安全的政府整体方针。）
-- In August 2018, DHS hosted the first-ever National Election Cybersecurity Table Top Exercise, focused on improving information sharing and the integration of election security efforts.（在2018年8月，国土安全部主持了有史以来首次全国选举网络安全沙盘推演，重点是改善信息共享和选举安全工作的整合。）（注：Table Top译为沙盘，不知道是否准确）
-- The Department of Justice (DOJ) and Federal Bureau of Investigation (FBI) are working to investigate and disrupt threats to our election systems and alert potential victims and targets.（司法部（DOJ）和联邦调查局（FBI）致力于调查和破坏对我们选举系统的威胁，并向潜在的受害者和目标发出警告。）
-- DOJ and FBI will host a live Election Day Watch at the FBI’s Strategic Information and Operations Center to monitor and coordinate election-related activities.( 美国司法部和联邦调查局将在联邦调查局的战略信息和运营中心对选举日现场进行观察，以监督和协调与选举有关的活动。)
-
-
-\*\*\*\*\*原文引用完毕\*\*\*\*\*
-
-综述：我们相信，每一起事件的发生、发展都是有迹可循的，川普总统在2018年9月12日颁布的行政命令之后，发生了2018年的中期选举，据新浪网2018年11月07日 14:03 发布的[美国中期选举结果来了:全球经济10大影响看过来](https://finance.sina.com.cn/stock/usstock/c/2018-11-07/doc-ihmutuea7838549.shtml)：［美国时间11月6号，美国迎来2018年中期选举投票日。中期选举被认为是影响特朗普任期后半段政令推行的关键一役，不仅关乎下阶段美国政治格局，其结果对金融市场也将产生深远影响。］，那么在2018年的中期选举中，美国相关部门有没有监测到外国干扰选举的行为？
-
-图谋针对川普总统发动政变的中国共产党和与它沆瀣一气的美国政商名流、媒体及好莱坞大佬们，他们终将为他们的愚蠢付出代价，因为猎杀的绞索早在2018年2018年9月12日已经备好！
+综述：亨特.拜登（详见[10/21路德社:亨特.拜登首次随父访华见到车峰立马要钱、要女人](https://gnews.org/zh-hans/439399/) ）在盘古四合院见面要钱要女人发生在什么时间目前不得而知，但是根据[百度百科——盘古七星酒店](https://baike.baidu.com/item/%E7%9B%98%E5%8F%A4%E4%B8%83%E6%98%9F%E9%85%92%E5%BA%97/9917059?fr=aladdin)：盘古七星酒店成立时间2008年，这意味着啥？乔.拜登出卖台湾、背叛美国并不自亨特.拜登被中共拉下马开始，在亨特.拜登被蓝金黄之前，乔.拜登这条老狐狸已经与中共暗通款曲，那么乔.拜登的小视频中共手里会缺吗？我相信不仅不缺而且不少！
 
 （文章内容仅代表作者个人观点）
 
-2+
+0

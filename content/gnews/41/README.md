@@ -1,127 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 揭露北京当权在美国统战中的机构：华美协进社
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/565726/)
+## 川普总统为惩罚干扰美国选举的绞索早在2018年9月12日已备好
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/565986/)
 
-翻译：康州农场-挺郭大刺猬
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16234458/%E5%B0%81%E9%9D%A2-19.png)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-校对：康州农场-Lan
+据Trump fights for us, we fight for him @crystal78243104于[2020年11月17日1：03AM](https://twitter.com/crystal78243104/status/1328383174678900737)发布的推文：
 
-审核：康州农场-Truemanman
+2）行动。因此川普总统不仅能够成功连任，还将彻底摧毁所有涉嫌操纵大选的阴谋集团。 据Natural News网站11月14日报道，2018年9月12日特朗普总统曾经签署了一项鲜为人知的行政命令（可在白宫网站[http://Whitehouse.gov](https://t.co/0UpQSiXqkW?amp=1)找到），标题为 “关于在外国干涉美国大选的情况下实施某些制裁的行政命
 
-本文探讨了位于纽约的华美协进社如何成为中国共产党统一战线组织的一部分。
 
-华美协进社（中文名华美）在主流社会中的角色与美国普通的亚洲机构不同。
 
-华美成立于1926年，是美国最古老的在美国社会推广中共国文化的基地。成立之初，该机构是由庚子赔款奖学金项目资助。
+> 2）行动。因此川普总统不仅能够成功连任，还将彻底摧毁所有涉嫌操纵大选的阴谋集团。
+> 
+> 据Natural News网站11月14日报道，2018年9月12日特朗普总统曾经签署了一项鲜为人知的行政命令（可在白宫网站[https://t.co/0UpQSiXqkW](https://t.co/0UpQSiXqkW)找到），标题为 “关于在外国干涉美国大选的情况下实施某些制裁的行政命
+> 👇
+> — Trump fights for us, we fight for him 🇺🇸🇺🇸🇺🇸 (@crystal78243104) [November 16, 2020](https://twitter.com/crystal78243104/status/1328383174678900737?ref_src=twsrc%5Etfw)
 
-华美起初的建筑物是位于纽约市曼哈顿上东区一座典雅的红砖建筑，内具一座美丽的中式花园。这栋别墅是1946年由时任时代公司总裁的亨利-R-卢斯（ Henry R. Luce）捐赠的。许多华人都喜欢这里优雅而考究的文化氛围。
 
-然而在1989年6月天安门大屠杀后，华美采用了不同的政治基调，享有充足的资金供应，并成为统战部控制的组织。
 
-**统战部**
+根据这条推文提供的信息，在白宫的网站上找到了下面的内容，以下内容英文为白宫网站原文，中文为大体翻译，因英文水平有限， 如有纰漏，敬请指正——
 
-在中美建交40年后，美国才意识到中共无孔不入的统战工作。最新一期的《新闻周刊》报导，有600多个美国团体被认定为统战组织。它们已经在美国联邦、州和地方各级建立了多种渠道，意在培养对中共国的正面印象，从而可以 “为北京争取利益”， 达到对美国施加影响的目的。
+## [President Donald J. Trump Is Working to Protect Our Nation’s Elections from Foreign Interference](https://www.whitehouse.gov/briefings-statements/president-donald-j-trump-working-protect-nations-elections-foreign-interference/)（唐纳德·J·川普总统正在努力保护我们的国家选举不受外国干扰）
 
-针对中共国利用统战部对他国进行渗透的指责，中共外交部发言人汪文斌于10月29日在记者会上表示：”蓬佩奥和博明试图诋毁中共国的政治制度，破坏中美两国的正常交流与合作。”
+[Law & Justice](https://www.whitehouse.gov/issues/law-justice/)（法律和正义）Sep 12, 2018 （2018年9月12日）
 
-那么，统战部到底是什么？华美作为一个致力于中美非政府交流的组织，怎么会成为统战机构呢？
+### *Quote**（引用）*
 
-《新闻周刊》在报道中称华美是一个统战组织，但没有提供更多细节。借此时机，我将试图揭开华美的历史，看看它在促进谁的利益。
+We’re going to take strong action to secure our election systems and the process.（我们将要采取强有力的行为保护我们的选举系统和选举过程）
 
-**什么是统一战线？**
+President Donald J. Trump （唐纳德.J.川普总统）
 
-“统一战线 “的意思是 “联合次要敌人打击主要敌人”。这是1949年共产党打败中共国执政的国民党，夺取政权的三大战略之一，也是最重要的战略。后来，中共决定对外开放，前领导人邓小平明确制定了 “爱国统一战线”，对海外华人施加影响，提升中共国的声誉和影响力。习近平上台后，中共国统一战线的目标是为 “中共国崛起 “服务。
+**PROTECTING OUR ELECTIONS: President Donald J. Trump is issuing an Executive Order that will work to respond to and deter foreign attempts to interfere in our elections. ****（保护我们的选举：唐纳德·J·川普总统正在发布一项行政命令，该命令之目的在于应对和制止外部势力对我们选举的攻击企图。）**
 
-事实上，统一战线的目标是随着外部环境的变化而不断变化的。比如，近年来，国际社会逐渐达成反共共识，美国率先与中共脱钩。现在，”构建人类命运共同体 “已经成为统一战线的旗帜，并列出了 “脱钩 “后的一系列后果。
+- President Trump’s Executive Order “Imposing Certain Sanctions in the Event of Foreign Interference in a United States Election” shows his commitment to protecting our elections.（川普总统的行政命令“在外国干预美国大选时实施某些制裁”表明了川普总统关于保护我们的选举的承诺）
+- President Trump is directing the Administration to develop a process, in coordination with State and local officials, for assessing and determining if interference in a United States election occurred.（川普总统指示政府与州和地方官员协调制定程序，以评估和确定是否发生了对美国大选的干涉）
+- The Executive Order authorizes action against those determined to have interfered in a United States election, including through: （该行政命令授权采取行动对抗那些确认为已经和正在干扰美国大选的行为：）
+    - Sanctions against those determined to have participated in foreign interference in our elections. （对那些确认已经参与过对我们选举实施的外国干扰的人或组织实施制裁。）
+    - Additional measures that would have wide-ranging impact on foreign governments, entities, and individuals who interfere in our elections.（对干预我们选举的外国政府，实体和个人产生广泛影响的附加手段。）（笔者注：此段的意思应该是对于参与干预美国选举的外国政府、实体和个人的制裁应该让他们知道疼，让他们终生铭记他们犯罪所带来的痛苦！）
+- President Trump’s Executive Order mandates interagency reporting of potential foreign interference following each Federal election.  （川普总统的行政命令要求在每次联邦大选后跨部门报告潜在的外国干涉）
+- This Executive Order builds on the Administration’s robust efforts to expose, disrupt, and impose costs on those responsible for election interference.（该行政命令为了让政府在揭露、扰乱、增加选举成本方面的工作更有成效，并且让这些外国干扰为他们的行为付出代价）
 
-毛泽东并不是第一个使用 “统一战线 “概念的共产党领导人，但他曾对 “统一战线 “进行过总结。”统一战线有两个原则。第一是团结，第二是批评、教育、改造。要改革，首先要团结”。换句话说，团结、沟通、邀请是为了改造、制服目的对象。
 
-中共国作家梁慕娴本人是前中共党员，曾写过一篇关于统一战线的文章。梁写道：”如果对象开始对是非、平等、正义保持沉默，停止批评中共，那就说明中共的统一战线已经成功了。”
+**WORKING ACROSS ALL LEVELS OF GOVERNMENT: The Trump Administration is working across all levels of government to help protect America’s elections from foreign interference.****（在各级政府层面上开展工作：川普政府正在各级政府之间开展工作，以帮助保护美国的选举不受外国干预。）**
 
-**掩护**
+- The Department of Homeland Security (DHS) is working with State and local election officials and the private sector to coordinate a response to attempts at election interference.（国土安全部（DHS）正在与州和地方选举官员以及私营部门合作，以协调应对选举干扰的企图。）
+- DHS and election officials across 50 States and 1,100 local jurisdictions formed the Election Infrastructure Information Sharing and Analysis Center to share security information.（来自50个州和1,100个地方辖区的DHS和选举官员组成了选举基础设施信息共享和分析中心，以共享安全信息）
+- The Office of Director of National Intelligence (ODNI) is providing DHS with actionable intelligence so State and local officials can strengthen election security.（国家情报局局长办公室（ODNI）正在为DHS提供可行的情报，以便州和地方官员可以加强选举安全。）
+- These efforts build on the Administration’s support to States during past elections and the ongoing 2018 elections. （这些努力建立在政府在过去的选举和正在进行的2018年选举中对各州的支持之上。）
+    - During 2017, the Administration provided on-site cybersecurity support to States.（在2017年选举期间，政府当局向各州提供了现场网络安全支持）
+    - A pilot program was launched to help officials at all levels of government share information and rapidly respond to security issues.（推出了一项试点计划，以帮助各级政府官员共享信息并快速响应安全问题）
 
-虽然习近平公开表示要加强统一战线，但统战部的实际运作是隐蔽的。
 
-中共通过资助、指导和支持大量的各种海外华人组织，间接影响着西方社会。但这些组织很少披露他们与北京的密切关系。因此，任何人都可能在不知情的情况下与统战部的团体或代表有联系。
+**STRENGTHENING ELECTION SECURITY EFFORTS: The President and his Administration are working vigilantly to improve and strengthen the security of our elections.****（加强选举安全工作：总统及其政府正在努力工作，以改善和加强我们选举的安全性。）**
 
-最近的例子是纽约市警察白马达杰·安旺（Baimadajie Angwang）被捕的案例。他被指控为中共的间谍。检察官指称，安旺将当地藏族社区的情报提供给他在中共国领事馆的上级，而上级是被指派到统战部中共国西藏文化保护与发展协会的人。但是，他从未告知司法部他与中共统战部结成联盟，与他打交道的记者们也被蒙在鼓里。他被控非法充当外国代理人。
+- President Trump recently held meetings with the National Security Council in May and July 2018 discussing the Administration’s whole-of-government approach to election security.（特朗普总统最近于2018年5月和2018年7月与国家安全委员会举行会议，讨论政府对选举安全的政府整体方针。）
+- In August 2018, DHS hosted the first-ever National Election Cybersecurity Table Top Exercise, focused on improving information sharing and the integration of election security efforts.（在2018年8月，国土安全部主持了有史以来首次全国选举网络安全沙盘推演，重点是改善信息共享和选举安全工作的整合。）（注：Table Top译为沙盘，不知道是否准确）
+- The Department of Justice (DOJ) and Federal Bureau of Investigation (FBI) are working to investigate and disrupt threats to our election systems and alert potential victims and targets.（司法部（DOJ）和联邦调查局（FBI）致力于调查和破坏对我们选举系统的威胁，并向潜在的受害者和目标发出警告。）
+- DOJ and FBI will host a live Election Day Watch at the FBI’s Strategic Information and Operations Center to monitor and coordinate election-related activities.( 美国司法部和联邦调查局将在联邦调查局的战略信息和运营中心对选举日现场进行观察，以监督和协调与选举有关的活动。)
 
-美国的《外国代理人登记法》（FARA）是出于国家安全的考虑，于1938年制定的。虽然 “外国势力 “可以在美国进行政治、文化宣传，但需要向美国司法部详细报告，并且在公开活动中也必须主动表明自己的外国代理人身份。
 
-**华美何时开始向中共下跪？**
+\*\*\*\*\*原文引用完毕\*\*\*\*\*
 
-中共国作家蔡克风（自音译：Cai Kefeng）说，以前华美很传统。但是，当他发现有越来越多的客座讲座由大陆人或亲共的人讲授、并且该机构越来越向共产主义意识形态转变时，他就不再去了。
+综述：我们相信，每一起事件的发生、发展都是有迹可循的，川普总统在2018年9月12日颁布的行政命令之后，发生了2018年的中期选举，据新浪网2018年11月07日 14:03 发布的[美国中期选举结果来了:全球经济10大影响看过来](https://finance.sina.com.cn/stock/usstock/c/2018-11-07/doc-ihmutuea7838549.shtml)：［美国时间11月6号，美国迎来2018年中期选举投票日。中期选举被认为是影响特朗普任期后半段政令推行的关键一役，不仅关乎下阶段美国政治格局，其结果对金融市场也将产生深远影响。］，那么在2018年的中期选举中，美国相关部门有没有监测到外国干扰选举的行为？
 
-中共国诗人李飞（自音译：Li Fei）表示，自从他发现华美被亲共分子控制，转而以商业为导向之后，他就拒绝去那里了。
+图谋针对川普总统发动政变的中国共产党和与它沆瀣一气的美国政商名流、媒体及好莱坞大佬们，他们终将为他们的愚蠢付出代价，因为猎杀的绞索早在2018年2018年9月12日已经备好！
 
-这一变化发生在1988年至1993年，当时王碚（Charles P. Wang）担任华美社长。当时，该会馆陷入了财务困境。这个财务状况在1989年天安门广场血腥的学生大屠杀后，中美关系跌入谷底的时候更加艰难。华美不得不与亚洲协会合并或关闭。
+（文章内容仅代表作者个人观点）
 
-据《星岛日报》2019年11月发表的报道，王碚筹集了50万美元，并在四年间支撑华美。
-
-**王碚在中美关系中的作用**
-
-2019年9月，王碚接受了北京喉舌新华社海外分社《华尔街时报》的采访。报道中列举了王碚的诸多成就和贡献，其中包括将华美变成中美双边文化交流机构的事情。
-
-王碚安排了北京故宫博物院和辽宁省博物馆有史以来第一次的文物艺术展。他还促成了一对中共国大熊猫借给纽约市动物园的项目。该项目为期半年。此外，王还是在史泰登岛植物园建造一座耗资700万美元的苏式园林（即纽约寄兴园）的主要筹款策划人。
-
-王还在国内担任中共国海外联谊会理事、辽宁省侨办顾问等公职。这两个组织都由统战部直接管理。
-
-王碚曾被美国前总统卡特任命为总统心理健康委员会/亚裔美国人小组的成员。他也是美国前总统杰拉尔德-福特和罗纳德-里根领导的亚洲和太平洋岛民咨询委员会的成员。
-
-1989年 “六四 “学生屠杀事件发生后，王参加了美国前国务卿亨利-基辛格领导的华裔组织 “百人委员会 “的成立，并担任创始秘书长。该协会在中美关系领域发挥着影响力。
-
-这些经历为王赢得了至少22个奖项和荣誉，其中包括被视为美国移民最高成就的埃利斯岛荣誉勋章。王被称为美国政府与华人社区之间的桥梁。华人认为，他是中美关系在关键时刻的关键人物。
-
-华美在美国社会中的角色
-
-2004年，维吉尼亚-卡姆斯基（Virginia Kamsky）作为美国公司在中共国市场的开拓者，成为华美的首席执行官和理事。她也是美国外交关系委员会的成员和美中关系全国委员会的董事。同年，华美还成功吸引了美国前总统理查德-尼克松的长女朱莉-尼克松-艾森豪威尔和前高盛CEO约翰-桑顿（John Thornton）加入董事会。
-
-2004年，卡姆斯基在接受海外华文媒体《中共国新闻》采访时谈到中美关系时表示，应该向政治和经济关系发展，华美可以在促进双边关系方面发挥更加积极的作用。
-
-事实上，华美通过与中共国文化部合作，已经在境外多地安排了中共国当代艺术展览。例如，2014年，文化和旅游部的一篇文章报道，时任驻纽约总领事孙国祥对华美新任社长托马斯-摩尔（Thomas Moore）说，领事馆内的文化处准备开展系列讲座，华美将是最佳场所。
-
-华美网站显示，中共国歌手李谷一、央视主持人倪萍、中共国外交官冀朝铸在华美做报告。
-
-2009年《今日中共国社会科学》的一篇文章谈到了1997年华美启动的一个 “教学中共国 “项目。该项目邀请15名美国学校教师每年暑假到中共国访问近一个月，华美会在行程结束后协调课程指导和教师报告，以确保教学 “与时俱进”。此外，该项目还为来自全美各地的高中生提供了为期7周的北京暑期班体验和教师教学经验。
-
-2004年，华美组织了经济高峰论坛。2009年，该论坛首次在北京举办。
-
-今年10月13日，华美举办了为期三天的 “在危机时代寻找成功 “峰会。峰会的四个 “知识伙伴 “中，有三个直接或间接隶属于统战部。
-
-2006年，经汉办（隶属于中共国教育部）批准，华美与华东师范大学合作成立了 “孔子学院美国中心”，又称华美协进社孔子课堂（[email protected]）。孔子学院只允许教师使用中共提供的教育资源，所以课堂上的学生只能接受经过中共筛选后的信息。
-![教育组参加华美协进社孔子学院“教师开放日”活动－首页－美国纽约留学服务网](https://lh3.googleusercontent.com/proxy/3Z-q0EbPZI4D1_15DTIRzTCmDIv4nYxaK-5YlsTCd_weYyU9WSEHTl-t0Tm542HYCg0zAbdkJg_aJCHkfROTRhANWAJEkQF6G8GuwzHyeHyW43cy)
-2009年，华美协进社启动了名为 “China360项目 “的第一阶段网络平台，为美国K-12年级学生（幼儿园到高中12年级）开设汉语课。
-
-孔子半身像，特洛伊大学校园内的孔子学院大楼， 于阿拉巴马州特洛伊市 2018年3月16日
-
-联合阵线通过[email protected]渗透到美国K-12课堂
-
-据华美协进社网站介绍，自2013年以来，[email protected]与纽约和马萨诸塞州的公立和独立学校合作，成功建立了孔子课堂。
-
-在纽约的学校包括三一学校、联合国国际学校（UNIS）和白原高中。
-
-在马萨诸塞州有环太平洋特许公立学校学院、波士顿学院高中、波士顿拉丁学院、波士顿拉丁学校、布罗克顿高中和斯诺登国际学校。
-
-**华美协进社的资金来源与亚洲一般机构不同**
-
-作为非营利组织，华美协进社2001年以后的990份财务报告在非营利数据网站Guidestar上公开。其中显示，自2001年以来，中共国研究院每年的运营资金为250万至920万美元，每年的支出为280万至660万美元。2015年，该研究所以2000多万美元的价格出售了位于纽约市上东区的房产，并于同年迁至曼哈顿下城。
-
-《新闻周刊》最近的一篇文章提到，”2019年国内外统战系统的预算超过26亿美元。……其中近6亿美元专门用于针对海外华人社区和外国人的工作”，”总预算超过了中共国外交部”。
-
-检索上海、温州、西藏等中共国部分省市统战部在网络上公布的年度预算显示，在 “统战组织专项工作经费 “类别下，有海外联络与考察、外宾接待、国有资本经营预算拨款、海外社团。上海还列出了留学人员统战工作经费。
-
-华美协进社的资金来源包括众多机构的固定捐赠、每年定期的募捐晚宴和会员会费。在众多的顾问委员会中，有许多中共国知名人士，包括诺贝尔奖得主何大一、中共国电视主持人靳羽西、陈国庆的哥哥陈峰是海航集团的创始人、SOHO中共国CEO张欣等。
-
-此外，华美协进会每年举办的展览或其他专项活动，如中共国铜镜展、艺术展等，也会从企业那里筹集赞助资金。2017年在其仁文社指定的网站上有一篇题为《76年而后的文化之窗》的文章，其中提到该机构因其声誉和对中美文化交流的贡献，享有充足的资金来源。
-
-华美协进会2018年的蓝云晚会就是一个例子。其现场拍卖在30分钟内就筹得25万余美金。
-
-至于中共在美国所谓的 “与各界进行文化交流”，熟悉统战工作的纽约唐人街社区的人都很清楚，它是为中共的利益服务的。
-
-本文观点仅代表作者个人观点，不一定代表《大纪元》的观点。
-
-原文链接：*[https://www.theepochtimes.com/exposing-beijings-united-front-work-organizations-in-the-us-china-institute\_3581185.html](https://www.theepochtimes.com/exposing-beijings-united-front-work-organizations-in-the-us-china-institute_3581185.html)*
-
-0
+2+
