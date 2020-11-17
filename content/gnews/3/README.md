@@ -1,15 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登竞选造假系列七：鲍威尔曝光中共资助的大选舞弊软件SMARTMATIC公司总裁内文格是拜登过渡小组成员
-` GM101` [轉載自GNews](https://gnews.org/zh-hans/567249/)
+## 基辛格及美代理防长接连发言，显示美中军事对抗箭在弦上
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/567288/)
 
-美东时间11月16号，鲍威尔接受了福克斯资深主持人卢道博关于拜登选票舞弊的采访。鲍威尔是前联邦检察官，现任朱利安尼律师团队核心成员。
+- 编辑：Victor Torres、文顺
+- 翻译：太阳花、Jennyball
 
-鲍威尔此前揭露的大选舞弊软件DOMINION为SMARTMATIC公司所开发。鲍威尔指出SMARTMATIC是一家外资公司，该公司的总裁内文格是拜登过度小组的成员，鲍威尔评价拜登的过度小组为专横并即将失败。
 
-鲍威尔表示包括部份民主党在类的正义人士多次向政府举报该软件漏洞和风险，但相关政府及部门对此无动于衷。鲍威尔明确根据已获取的宣誓证词证明DOMINION系统被用于操控改变美国大选结果，甚至包括委内瑞拉和古巴在内的世界多地选举结果，背后是共产党（中共）的金钱资助和操控。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-大量的证据即将公开，中共用蓝金黄渗透美国企图奴役世界的计划彻底失败，其利用国家机器对美国发动了第三次世界大战。川普政府将带领美国人民和世界正义力量对中共迎头痛击，中共及背后势力难逃正义审判！
+11月16日，据《Bloomberg》报道，美过前国务卿基辛格（Henry Alfred Kissinger）在彭博新经济论坛开幕式上说：“除非采取某种实际的合作行为，否则世界将陷入一场类似于第一次世界大战的灾难。”他说，今天可用的军事技术将使这场危机比以前更难以控制。
 
-0
+现年97岁的基辛格在接受彭博社新闻社社长约翰·米克勒斯怀特（John Micklethwait）采访时说：“中美两国现在正日益朝着对抗的方向发展，它们以对抗方式进行外交。危险是，这将发生某种危机，其危机将超出言辞而变成实际的军事冲突。”
+
+而就在基辛格接受采访的前两日，克里斯托弗·米勒（Christopher Miller）代理国防部长对中共发出警告，美军能够在72小时内、把中共所有军舰、伪装成商船的武装渔船，以及中共誉为长城的潜艇如数摧毁。
+
+数十年来，中共通过蓝金黄等手段深入渗透世界各国，利用人性之恶组成了一个巨大的盗国团体。今年以来，中共肆意播撒生化武器病毒，残害人类健康，破坏世界经济及稳定。在最近的美国大选中，更以令人瞠目结舌的方式多方位，全面干涉影响选举结果。将全世界带入至暗时刻。
+
+无论是病毒武器投放，还是破坏美国大选，都无异于宣战。这已经不是国与国之间的竞争，而是正义与邪恶的较量。基辛格代表美国左派亲共势力，克里斯托弗·米勒则是川普总统信任的鹰派代表。虽然基于不同意图和立场，这两人几乎在同时发出战争警告，说明他们都意识到，美中之间不是可以通过和平方式解决的普通争端，战争可能无法避免。
+
+**参考链接：**
+[https://www.bloomberg.com/news/articles/2020-11-16/kissinger-warns-biden-of-u-s-china-catastrophe-on-scale-of-wwi](https://www.bloomberg.com/news/articles/2020-11-16/kissinger-warns-biden-of-u-s-china-catastrophe-on-scale-of-wwi)
+[https://www.epochtimes.com/gb/20/11/16/n12553600.htm](https://www.epochtimes.com/gb/20/11/16/n12553600.htm)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+
+
+
+1+
