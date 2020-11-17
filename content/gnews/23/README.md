@@ -1,91 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 献给所有被CCP压迫的母亲
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/565274/)
+## 川普政府已开始为下一任期对中共制定新的强硬政策
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/565486/)
 
-*作者：桂花酒 ; 校对：宁缺 ;  Page: Connor54*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16193351/1-99.png)
+美国新闻网“值得” (Axios) 11月15日报道，本文作者获得独家新闻，白宫内阁政府高级官员告诉Axios，川普总统将在第一任期的最后10周颁布一系列对共强硬政策，以巩固他在中共国问题上的遗产。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16182747/Dear_MaMa-.jpg)
+川普官员计划制裁或限制与更多中共国公司、政府实体和官员的贸易，因为他们侵犯了新疆和香港的人权，还对美国国家安全造成威胁。即将颁发的强硬政策是为川普总统的第二任政府工作制定的新政策。 因为中共从印度到香港再到台湾都采取了激进的行为， 疫情又引发了第二波全球停摆潮。但在台湾问题上，官员们说，美国不会有新的大动作，也大可能关闭更多的中国驻美领事馆。
 
-妈妈，我还没哭泣
+国家安全委员会发言人约翰-乌利奥特（John Ullyot）说：”除非北京扭转方向，成为全球舞台上一个负责任的角色，否则，想改变川普总统的历史性行动是政治自杀行为。”
 
-你就已经离去
+政府高级官员正在讨论扩大国防部的中国公司黑名单，这些公司被认为与中国军方有联系。上周发布的一项行政命令已禁止美国对31家此类公司的投资，任何新增的公司都可能面临类似的限制。政府还将打击中共在新疆强迫劳动营之外的劳工行为，计划将矛头对准在中国竞争激烈的捕鱼业中越来越多的强迫劳动问题。强迫和无偿劳动不仅是人权问题，还可以让中国渔业在具有地缘政治意义的行业中比竞争对手更有优势。川普官员还一直在寻求让更多鹰派中国专家在政府内部担任高级职位。
 
-冰冷的世界，再也
+评论：
 
-唤不醒你！
+与人们的普遍预期一致，川普总统在第二任期对中共国的政策将继续保持强硬。川普总统目前正面对选举欺诈的问题，种种迹象表明，中共有可能是其背后黑手，虽然我们确信川普的连任是板上钉钉的事，但竞选中出现的中共参与选票欺诈也是在川普连任之后必须面对的问题。按照路德的说法，中共最终可能会被用FISA法案制裁。邪恶中共对全世界发起的疯狂攻击，已经引起各国警惕。
 
-妈妈，我还没想好
+[原文链接](https://www.axios.com/scoop-trump-plans-last-minute-china-crackdown-fbac3d03-5901-4abd-822f-2a8956a666ad.html?utm_campaign=organic&amp;utm_medium=social&amp;utm_source=twitter)
 
-把你爱听的
-
-越剧，下载好
-
-和你一起在午后
-
-悠悠的，看着你
-
-睡着，像个婴儿般的
-
-好像那睡着的
-
-是我，在你的怀里
-
-轻摇……
-
-多少夏夜，你几乎不眠的
-
-为我们，驱赶蚊子的
-
-叮咬。
-
-我们的每一个
-
-细胞，都因为你的
-
-双手和眼泪的
-
-浸泡。忽然会笑
-
-会跑。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16201157/22-19.jpg)
-
-轻轻的，你问我
-
-饿吗？冷吧
-
-树皮般的手摩挲着
-
-我的额头，看着我，仿佛我
-
-永远都在你的
-
-眼睛的湖水里，调皮
-
-想逃…
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16201222/thchhescqx-1.jpeg)
-
-妈妈，我还没哭泣
-
-你就不再等我
-
-冰冷的世界，再也
-
-不能与你相依。
-
-
-
-【文章仅代表作者观点】
-
-编辑：【喜马拉雅战鹰团】[–](https://spark.adobe.com/page/HkKoIbztSzT4F/)[点击spark adobe](https://spark.adobe.com/page/HkKoIbztSzT4F/)
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-![]()![](https://spark.adobe.com/page/Cyd4x0395ACjS/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)
+翻译报道： Alton
 
 0

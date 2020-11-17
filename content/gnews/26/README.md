@@ -1,40 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国人觉醒！明确区分中共和中国！将中共血旗比作拜登之旗！
-` GM01` [轉載自GNews](https://gnews.org/zh-hans/565288/)
+## 【热点播报】前检察官鲍威尔：足够证据即将推翻多个州的选举结果！要展开大规模刑事调查！
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/565443/)
 
-下面的视频可以看到很多美国人都踩在中共血旗上，人们喊着：”所有美国人都来踩这面拜登之旗（all Americans…step on Biden’s flag）”中共是纳粹集权（CCP is the Nazi Regime）“，“干倒中共！（F\*\*\* the CCP）”“消灭中国共产党（“take down the CCP”）
+**作者：香草山写作组  正道主义联盟**
 
-2020年11月14日，华盛顿举行超过百万人参加挺川集会，视频展示了美国人就像许多中国人一样正在从CCP的阴影中觉醒。**他们明确使用CCP（中共）而非China（中国），中共不等于中国这个概念正在被世界接受。**
-
-**下面的视频中，一位支持我们新中国联邦战友的意大利爱国者手举着“中共不等于中国”标语**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
 
 
 
-> 勇敢的新中国联邦战友11月15日在意大利罗马参加挺川集会！
-> 
-> PCC≠CINISI！
-> 中共不等于中国人！[#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#TakeDownTheCCP](https://twitter.com/hashtag/TakeDownTheCCP?src=hash&amp;ref_src=twsrc%5Etfw) [#TheNewFederalStateOfChina](https://twitter.com/hashtag/TheNewFederalStateOfChina?src=hash&amp;ref_src=twsrc%5Etfw) [#意大利](https://twitter.com/hashtag/%E6%84%8F%E5%A4%A7%E5%88%A9?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/GcH0D80syZ](https://t.co/GcH0D80syZ)
-> — VOG (@VOG20201) [November 16, 2020](https://twitter.com/VOG20201/status/1328372070074474497?ref_src=twsrc%5Etfw)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16184924/llll.png)
+前联邦检察官、特朗普竞选团队律师西德尼·鲍威尔(Sidney Powell)在周日接受福克斯新闻采访时表示，还有更多证据可以证明川普总统关于选民欺诈和违规行为的指控。
+
+鲍威尔说:“我们正准备推翻多个州的选举结果。” 她已拥有有足够的选举舞弊证据，可以对此展开大范围的刑事调查。“我不会在没有证据支持的情况下发表评论。” 她补充说，选举软件把“数百万张选票”从川普转向了民主党候选人乔·拜登(Joe Biden)。
+
+鲍威尔在2019年曾担任迈克尔·弗林(Michael Flynn)的律师。在过去几天里，她被任命为川普的法律团队成员。
+
+鲍威尔说，一个举报人站出来指认选举软件是为“操纵选举”而设计的。他说：其他国家也发生了这种事。指向投票系统Dominion和Smartmatic，亦或是其他软件和机器。
+
+鲍威尔说：“我们需要追问是谁胆大妄为批准决定购买了这些软件，他们购买这个软件的意义是什么？所有购买dominion的州都应该被刑事调查！所有购买州的相关官员都要被严肃调查！我们甚至发现有官员在这些交易中吃了回扣！我们正在收集更多证据！通过不同的爆料人爆料，在促成此项交易过程中，有大量现金用于行贿州政府官员的家属。这真是一个腐败阴险的政府，你无法想象我的愤怒！”
+
+“大量的证据像通过消防水管一样源源不断的向我们涌来。” 鲍威尔说，同时指出她不会透露她已经掌握的证据。
+
+她说:“他们可以在(投票)机中插入一个u盘，甚至可以从互联网上传软件……甚至可以在德国或委内瑞拉上传。”她补充说，操作机构“可以实时观看投票”、“可以实时转移投票”，行为不端者甚至可以“远程访问任何东西”。
+
+鲍威尔说：“我们已经从数学上确定了他们使用的以及从一开始就计划使用的精确算法”，据称该算法将选票转向了拜登。
+
+鲍威尔还提及，早些时间，有一些参议员一直写信向政府表达对投票系统安全的担忧。可政府丝毫没有理会这些质疑！这不禁让她感到诧异，CIA官员从中到底得到了什么样的利益，而哈佩尔竟然还能坐在中情局的局长位置上，这超出了她的认知。她认为哈佩尔应该被立即解雇！
+
+中情局，CIA及其它部门已经收到多份报告证实这个软件有问题，而采购者显然了解购买的原因！我们将会向人民展示这个国家有多么的腐败！
+
+“我们担心私募股权投资在许多经济领域的扩散和影响，包括选举技术行业，这是我们国家民主进程不可分割的一部分。”大约一年前，立法者在给这些公司的信中写道。“这些问题会威胁到我们选举的公正性，这从另一个角度证明了拥有强大、持久、不易受到攻击的选举制度有多么的重要。”
+
+“我们已掌握了大量的证据，我们还有熟知这场作假始末的宣誓证人。Dominion这个系统设计的意图就是操纵大选。他们可以从德国或委内瑞拉远程控制，还可以看到实时的选票数 ，可以实时篡改票数。”
+
+她还说：“无法证明的事情，我是绝对不会讲的。”
+
+从此次选举结果来看，共和党在众议院至少可以翻转11个席位，而共和党还将继续保持对参议院的控制。一些保守派人士质疑，这样的投票模式怎么可能令拜登赢得总统大选，更不用说他比美国历史上任何一位总统候选人获得的选票都多，包括2008年奥巴马总统的选票。这真是滑稽而荒唐的选举结果！
+
+审核发稿：悟空
+
+编辑：jamie(文胤)
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，纽约时间周日至周四晚上9:00，美国志愿者在纽约香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
 
 
 
-不论如何，新中国联邦战友在当天的活动中是一道无法忽视的风景线，受到了当地人非常非常热烈的欢迎，集会中许多美国人都认出了新中国联邦，Gnews和GTV的标志，有的甚至激动的上前拥抱我们的同胞。
 
 
 
-> 🤩隔着屏幕都可以感受到美国人民对新中国联邦战友的热情！
-> 
-> 现场战友：“美国游行的川普支持者看到新中国联邦的战友们特别热情，兴奋，有的激动的都要哭了！”
-> 
-> “很多美国人都知道Gnews，GTV，郭先生，班农先生！！！”[#Trump2020](https://twitter.com/hashtag/Trump2020?src=hash&amp;ref_src=twsrc%5Etfw) [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) [#TheNewFederalStateOfChina](https://twitter.com/hashtag/TheNewFederalStateOfChina?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/WkTFWLxhzM](https://t.co/WkTFWLxhzM)
-> — VOG (@VOG20201) [November 14, 2020](https://twitter.com/VOG20201/status/1327762154657902592?ref_src=twsrc%5Etfw)
 
-
-
-未来的世界将会是中国人一人一票的世界；未来的世界将会是新中国联邦正道主义的世界。
-
-中共毫无未来可言。
-
-4+
+2+
