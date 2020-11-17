@@ -1,31 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 请远离理财陷阱！3A评级国企开始债务违约，中共国虚假金融泡沫将破裂
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/567284/)
+## 网曝意大利关于中共病毒最新研究合作者与中共背后牵扯利益
+` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/567327/)
 
-作者：康州农场-轰炸机
+素材：西林 内新闻：背靠背
 
-审核：康州农场-Truemanman
+2020年11月17日，据中新网报道，意大利一项最新研究显示，新冠病毒在去年9月就开始在意大利传播。中共国外交部发言人赵立坚在答记者问时表示，这再次印证了病毒溯源是一个复杂的科学问题，应由科学家在全球范围开展国际科学研究与合作。
 
-近日有着3A评级的永成煤电控股集团（永煤控股）债券构成实质性违约，对债券市场造成巨大冲击，悲观情绪弥漫了整个市场。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17085059/%E5%9B%BE%E7%89%879-4.png)
-11月10日，永城煤电控股集团有限公司公告显示：2020年度第三期超短期融资券（2020永煤SCP003）不能按期足额偿付本息。该债券发行总额为10亿元，到期不能偿付，已构成实质性违约。随后该违约消息在各界引起了连锁反应，一时间，煤炭债券板块纷纷暴跌。
+意大利的这一项研究是发表在意大利米兰市国家癌症研究所(INT)的科学杂志《Tumori Journal》，该研究的合著者乔瓦尼·阿波罗内（Giovanni Apolone）。
 
-11月13日，永煤控股公告称，已将兑付利息3238.52万元支付至应收固定收益产品付息兑付资金户。16日，上清所称已经收到“20永煤SCP003“付息资金。
+据意大利《晚邮报》报道，当地时间11月15日，意大利米兰国家癌症研究所所长乔瓦尼·阿波罗内表示，在2019年9月参加肺癌研究的志愿者样本中，有一部分人具有对新冠病毒的抗体。
 
-本日（17日）传出消息永煤通过主承与“20永煤SCP003”的持有者沟通“20永煤SCP003”的本金展期事宜。如果能和投资者谈妥“20永煤SCP003”的展期事宜，后续还会再商谈“20永煤SCP004”、“20永煤SCP007”的展期，两只债券将于下周一到期。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17085310/%E5%9B%BE%E7%89%8710-3.png)
-永煤控股只是众多国企的一个，在这个时候连3A评级的企业都出现资金运转问题，相信其它国企日子也不会好过多少。他们多是“虚假经营“，“拆东墙补西墙“，不断的从银行、投资者套取资金，按照CCP的数路这些资金都进了”某些人“的腰包。但是缺口是越来越大的，现在已经到了不能掩饰的阶段了。
+网络广传一份关于乔瓦尼·阿波罗内与中共的合同《支持中意学习交流活动的合作合约》，日期是2020年上半年，署名包括Giovanni Apolone。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17091836/image-249.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17091013/image-248.png)
+据worldometer数据，截止2020年11月17日，意大利中共病毒累计感染者1,205,881例，死亡45,733例。
 
-随着美国金融制裁、“脱钩“，当造假都不能粉饰太平的时候，此类违约事件会频繁爆发，银行会形成巨大的资金缺口。请远离所谓P2P、理财产品等”陷阱“，金融泡沫破裂时，不只是你收不到本金，介时连银行的生存都是问题。
+CCP LIE, ITALIAN DIE!
 
-资料参考：
+附上合同复印件（意大利语）：
 
-[https://www.zerohedge.com/markets/chinas-bond-market-turmoil-worsens-more-state-owned-companies-default](https://www.zerohedge.com/markets/chinas-bond-market-turmoil-worsens-more-state-owned-companies-default)
+[2020-279DG](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17090607/2020-279DG.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17090607/2020-279DG.pdf)
 
-[https://www.sohu.com/a/432262580\_115362](https://www.sohu.com/a/432262580_115362)
-
-[https://finance.sina.com.cn/stock/s/2020-11-17/doc-iiznezxs2342090.shtml](https://finance.sina.com.cn/stock/s/2020-11-17/doc-iiznezxs2342090.shtml)
-
-3+
+2+

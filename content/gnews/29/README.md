@@ -1,36 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【国内快讯】中共吹嘘儿童医院进展，反暴露其鱼肉百姓本质
-` Ronald` [轉載自GNews](https://gnews.org/zh-hans/567059/)
+## 【路德社精选 】11/12/2020 早间节目
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/566787/)
 
-内新闻/素材：鹰(文言) 校对：雅典娜的圣斗士(沙加)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17074024/201610200955458630.jpg)
-新浪网11月17日转载央视报道，据中共卫健委医政医管局披露，截至目前为止国内各级儿童医院228家，比2015年增加114家。
+听写：加非 校对：瓦者 简介：恩真 文宣图：艾伦 出品：首尔喜韩农场
 
-根据2015年中共统计局发布的《2015年中国儿童人口状况——事实与数据》，2015年国内0-17岁儿童共计2.71亿，其中46%约1.247亿儿童居住在城镇地区，16%约4400万儿童居于贫困农村地区。
+**简介：**
 
-根据2015年15-17岁高中学龄儿童中有630万不在校，而高中学龄儿童在校率86%，可知15-17岁儿童约4500万，则对儿童医院需求更高的14岁及以下儿童约有2.26亿。
+1.乔治亚州重新计票。
+2.川普通过重新计票赢得大选的话就不用走法律程序。
+3.重新计票肯定对川普有利。
+4.密西根州10万人以上的票没被计入。
+5.拜登们因民意都向川普就海量作假。
+6.这次选举关乎到美国民众尊严和宪法权威。
+7.选票造假调查工作已付诸实施。
+8.全美各方面部门都要求大选合法公正。
+9.福克斯记者采访联邦调查官了解作假情况。
+10.以法灭共指日可待。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17074210/image0-2-7.jpg)
-
-单以数据计算，2015年114家儿童医院要至少顾及2.26亿儿童，即平均每家医院对应约198万儿童（2020年99万/家），远远超过了一家医院所能承受的受诊量，也就是说中共国至今没有像样的能满足基本儿童就诊的医疗系统。
-
-以2020年的228家儿童医院计算，平均国内每个省6.7家（34个省级行政区），每个市0.68家（333个地级区），每个县0.08家（2844个县级区），即便刨除4400万居住在贫困农村地区的儿童，对于1.247亿居住在城镇地区的儿童而言，儿童医院也是严重匮乏的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17074252/image1-12.jpg)
-《2015年中国卫生和计划生育事业发展统计公报》中指出截至2015年末，国内医院共计27587个（相比14年增加了1727个）；
-
-《2019年我国卫生健康事业发展统计公报》显示从2016年至2019年国内医院分别比上年增加1553家、1916家、1953家、1345家。2019年的医院总数相较15年更是增加了6767家，儿童医院却在5年时间仅增加了114家，还不及医院增数的1.7%。
-
-5年时间不到1.7%的新增医院为专业的儿童医院，而且这还发生在中共放开生育限制、鼓吹二胎多胎政策扶持期间，何其荒谬。
-
-5年的时间中共“没钱支持”儿童医院建设，却可以对外大撒币，军费开支逐年增加，大肆兴建军事装备，2019年的外交开支更是占据财政支出的绝大多数，几年时间维稳开支更是急剧上涨。
-
-所以说，中共统治下的国人真的是活得不如猪狗，不但生活在贫困线上下，疲于奔命，就连鼓励多生这一便于中共“收割韭菜”的政策扶持也是表面文章。
-
-因此我们必须要灭共，必须要在我们这一代彻底灭共，不仅为了争取民主法治和自由，不再活在恐惧之中，更为了能让我们的子孙后代可以不再为奴，不再被人肆意欺凌剥削、生杀予夺。
-
-新闻来源：
-[https://news.sina.com.cn/c/2020-11-17/doc-iiznezxs2221688.shtml](https://news.sina.com.cn/c/2020-11-17/doc-iiznezxs2221688.shtml)
-
+**文宣图：**
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17062400/1-102.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17073214/2-159.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17075715/3-87.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17080040/4-50.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17080315/5-45.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17080618/6-46.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17080744/7-29.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17080914/8-28.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17081221/9-20.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17081551/10-20.png)
 0
