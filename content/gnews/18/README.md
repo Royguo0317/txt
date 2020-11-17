@@ -1,91 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 献给所有被CCP压迫的母亲
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/565274/)
+## 剧情反转！老牌亲共派基辛格转向支持川普！
+` GM01` [轉載自GNews](https://gnews.org/zh-hans/565326/)
 
-*作者：桂花酒 ; 校对：宁缺 ;  Page: Connor54*
+2020年11月16日，彭博社消息，前美国国务卿基辛格表示，即将上任的拜登政府应迅速采取行动，恢复与中国在川普执政期间受损的沟通渠道，否则可能会引发升级为军事冲突。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16182747/Dear_MaMa-.jpg)
+基辛格在彭博新经济论坛开幕式上说：“除非有采取某种合作行动的基础，否则世界将陷入一场类似于第一次世界大战的灾难。”，“今天可用的军事技术将使这场危机“比以前更难以控制”。
 
-妈妈，我还没哭泣
+作为老牌亲共派，基辛格的言论被认为是中共向美方和全世界发出的军事威胁的信号。 2020年11月14日，超过一百万川普支持者在华盛顿支持川普总统连任，朱利安尼所带领的法律团队捷报连连。美国选举软件Dominion的故事正被抽丝剥茧般的将拜登选举舞弊的真相展现给全世界。
 
-你就已经离去
+美国国会众议院近日也发表正式文件声明大选并没有结束，戳破了假新闻所制造拜登连任的谎言”。
 
-冰冷的世界，再也
+然而根据推特上流传郭先生的最新语音，基辛格已经被郭先生说服转向支持川普总统。
 
-唤不醒你！
-
-妈妈，我还没想好
-
-把你爱听的
-
-越剧，下载好
-
-和你一起在午后
-
-悠悠的，看着你
-
-睡着，像个婴儿般的
-
-好像那睡着的
-
-是我，在你的怀里
-
-轻摇……
-
-多少夏夜，你几乎不眠的
-
-为我们，驱赶蚊子的
-
-叮咬。
-
-我们的每一个
-
-细胞，都因为你的
-
-双手和眼泪的
-
-浸泡。忽然会笑
-
-会跑。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16201157/22-19.jpg)
-
-轻轻的，你问我
-
-饿吗？冷吧
-
-树皮般的手摩挲着
-
-我的额头，看着我，仿佛我
-
-永远都在你的
-
-眼睛的湖水里，调皮
-
-想逃…
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16201222/thchhescqx-1.jpeg)
-
-妈妈，我还没哭泣
-
-你就不再等我
-
-冰冷的世界，再也
-
-不能与你相依。
+“基辛格都转向了，兄弟姐妹们“郭先生说。
 
 
 
-【文章仅代表作者观点】
+> 郭文贵先生语音
+> 基辛格转向川普✊✊✊ [pic.twitter.com/NGc6c2zYOp](https://t.co/NGc6c2zYOp)
+> — 海狼（1） (@hailangwolf1) [November 16, 2020](https://twitter.com/hailangwolf1/status/1328469689194868736?ref_src=twsrc%5Etfw)
 
-编辑：【喜马拉雅战鹰团】[–](https://spark.adobe.com/page/HkKoIbztSzT4F/)[点击spark adobe](https://spark.adobe.com/page/HkKoIbztSzT4F/)
 
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+不论是否是战争威胁，中共对美国的超限战早已发动了几十年，截止2020年11月16日中共病毒已感染全世界超过5500万人，杀死了美国25万人。
 
-![]()![](https://spark.adobe.com/page/Cyd4x0395ACjS/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)
+[彭博社原文](https://www.bloomberg.com/news/articles/2020-11-16/kissinger-warns-biden-of-u-s-china-catastrophe-on-scale-of-wwi)
 
-0
+1+

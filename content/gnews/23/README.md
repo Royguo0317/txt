@@ -1,23 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国战略反击 中共屠宰民企
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/565233/)
+## 美国人觉醒！明确区分中共和中国！将中共血旗比作拜登之旗！
+` GM01` [轉載自GNews](https://gnews.org/zh-hans/565288/)
 
-多伦多加喜农场 丁过
+下面的视频可以看到很多美国人都踩在中共血旗上，人们喊着：”所有美国人都来踩这面拜登之旗（all Americans…step on Biden’s flag）”中共是纳粹集权（CCP is the Nazi Regime）“，“干倒中共！（F\*\*\* the CCP）”“消灭中国共产党（“take down the CCP”）
 
-校对 上传 小鸥
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16163042/crash.jpg)图片来自Business Korea
-11月13日，川普总统宣布进入国家紧急状态，表明中共发动的“超限战”，尤其是中共最近全面操纵美国大选，直接导致美国陷入宪政危机和面临国家分裂的危险。此前人们普遍预期，川普将于明年元月20日连任之后，对中共发起战略反击，目前由于形势危急，川普总统提前发起了对中共的反攻。
+2020年11月14日，华盛顿举行超过百万人参加挺川集会，视频展示了美国人就像许多中国人一样正在从CCP的阴影中觉醒。**他们明确使用CCP（中共）而非China（中国），中共不等于中国这个概念正在被世界接受。**
 
-过去几天，美国高层集中对中共强硬发声，和川普总统形成强烈呼应，一贯措词严谨的国务卿蓬培奥，把中共和伊朗并列统称为无恶不作的“恐怖组织”，是“马克思列宁主义妖怪”，“美国从来不承认台湾属于中共国”，“美国将帮助中国人民拆掉中共的网络防火墙，让中国人民有自由选择的权利”。
+**下面的视频中，一位支持我们新中国联邦战友的意大利爱国者手举着“中共不等于中国”标语**
 
-班农先生也公开传达了同样明确的讯息，他说：中共是美国和世界的敌人，我们将在金融经济、信息媒体、政治外交等方面主动寻找打击中共的机会，但不希望军事冲突；我们和爆料革命肩并肩为平民主义而战，新中国联邦将在中国掀起全世界最大的平民主义运动。
 
-号称代表无产阶级的中国共产党，70年前就剥夺并控制了包括土地在内的、本应属于中国人民的所有生存资源，长期实行反人类的毛泽东式社会主义制度。当彻底失败时为了维持政权，权宜性地进行“改革开放”，在推进全球化浪潮中，中共成了最大的“资本家”，由他们主导的国家资本主义摧生了贪婪无度的“达沃斯党”。中共盗国贼们通过控制国际资本、西方腐败统治精英和大媒体，疯狂破坏国际秩序和掠夺平民财富，在把强取豪夺的上千亿甚至上万亿美元的财富放进自己腰包的同时，却将中国和世界弄得满目疮痍，埋下冲突甚至战乱的祸根。
 
-根据任泽平提供的资料，中共国的平均税负是美国的5倍还多一点，这还不包括由货币贬值和油气、电力等国家垄断行业形成的铸币税及隐形税收，再加上各级贪官污吏的层层盘剥，这些必然导致中共国的商业环境在逐渐恶化、经济系统趋于崩盘。中共国财政枯竭，叠加美国对中共金融经济领域的打击，比如把中共逐出美元结算系统，没收中共海外资产等，事实上中共今年的财政状况已经迅速恶化，其中央财政赤字或超10万亿元，地方债和银行坏债则数倍于中央财政赤字。在这样的情况下，几十年来被“养肥”的民企，无论如何都逃脱不了被屠宰的厄运。
+> 勇敢的新中国联邦战友11月15日在意大利罗马参加挺川集会！
+> 
+> PCC≠CINISI！
+> 中共不等于中国人！[#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#TakeDownTheCCP](https://twitter.com/hashtag/TakeDownTheCCP?src=hash&amp;ref_src=twsrc%5Etfw) [#TheNewFederalStateOfChina](https://twitter.com/hashtag/TheNewFederalStateOfChina?src=hash&amp;ref_src=twsrc%5Etfw) [#意大利](https://twitter.com/hashtag/%E6%84%8F%E5%A4%A7%E5%88%A9?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/GcH0D80syZ](https://t.co/GcH0D80syZ)
+> — VOG (@VOG20201) [November 16, 2020](https://twitter.com/VOG20201/status/1328372070074474497?ref_src=twsrc%5Etfw)
 
-2020年9月16日，“中共中央”印发《关于加强新时代民营经济统战工作的意见》，和1951年《统一战线的指示》的内容和用意极其相似，都是为“共产”打一下政策招呼而已。2020年11月4日，“中央电视台”新闻联播节目，罕见地由平常的30分钟延长到66分钟，其中有一段话主持人是这样说的，我们搞改革开放让部分人先富起来，目的是让这部分先富起来的人，来帮扶还没有富起来的人，但是，有那么一部分先富起来的人却不愿意这么做，我们会让他们愿意的！
 
-5+
+
+不论如何，新中国联邦战友在当天的活动中是一道无法忽视的风景线，受到了当地人非常非常热烈的欢迎，集会中许多美国人都认出了新中国联邦，Gnews和GTV的标志，有的甚至激动的上前拥抱我们的同胞。
+
+
+
+> 🤩隔着屏幕都可以感受到美国人民对新中国联邦战友的热情！
+> 
+> 现场战友：“美国游行的川普支持者看到新中国联邦的战友们特别热情，兴奋，有的激动的都要哭了！”
+> 
+> “很多美国人都知道Gnews，GTV，郭先生，班农先生！！！”[#Trump2020](https://twitter.com/hashtag/Trump2020?src=hash&amp;ref_src=twsrc%5Etfw) [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) [#TheNewFederalStateOfChina](https://twitter.com/hashtag/TheNewFederalStateOfChina?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/WkTFWLxhzM](https://t.co/WkTFWLxhzM)
+> — VOG (@VOG20201) [November 14, 2020](https://twitter.com/VOG20201/status/1327762154657902592?ref_src=twsrc%5Etfw)
+
+
+
+未来的世界将会是中国人一人一票的世界；未来的世界将会是新中国联邦正道主义的世界。
+
+中共毫无未来可言。
+
+4+

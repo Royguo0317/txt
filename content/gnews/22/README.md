@@ -1,11 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 291疫情直播-短视频
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/565261/)
+## 【重磅新闻】新中国联邦人支持美国人民追求自由公正的选举
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/565298/)
 
-輝瑞CEO称：疫苗90%有效，将改变一切，相信美国患者可免费获得疫苗。辉瑞与中共关系密切，更有研发中心设立在上海；疫苗不可信。
+香草山综合报道
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
 
 
 
-1+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+0

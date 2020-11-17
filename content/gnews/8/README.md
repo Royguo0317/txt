@@ -1,74 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “多猫腻” Dominion 计票系统本身设计的可疑之处 选举舞弊的犯罪远超想象力
-` 喜马拉雅凤凰农场–旧金山-金喜站` [轉載自GNews](https://gnews.org/zh-hans/565517/)
+## 媒体人：鲍威尔和伍德大律师为川普背书，会有大量的选民舞弊行为被揭发
+` GM107` [轉載自GNews](https://gnews.org/zh-hans/565618/)
 
-**编译：平民游侠 H-Ranger****喜马拉雅凤凰农场**-旧金山站
+（Breitbart News）特约编辑约翰‧诺尔特（John Nolte）11月16日发文称，在2020年的重新计票大漩涡中，有两位在全国享有盛名的律师以自己的声誉承诺，大量的选民舞弊即将被揭发，足以为川普总统赢得第二个任期。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16204320/121-1.png)
+西德尼-鲍威尔可不是开玩笑的。她曾担任联邦检察官十年，并赢得了全国性的声誉。因为她是突袭的律师，说服退役将军迈克尔-弗林撤回他的选票。迈克尔-弗林将军撤回了他的认罪书，并成功地迫使司法部撤销了指控，赢得了全国声誉。她是揭露俄罗斯勾结骗局的坚定支持者和常客，根据我的统计，她所说的一切将要发生的事情都发生了。
 
-民主党部分关键人员参与执行了2020美国总统选举造假和舞弊的行为相信已经不再是什么秘密了。从公众已经获知的消息来看这次总统选举的舞弊行为主要表现为以下几点：
+这是一个严肃的女人。她身边没有马戏团的气氛。她承诺，正如她周末在玛丽亚-巴尔蒂罗莫的《周日早间期货》节目中所做的那样，他们有货，他们可以证明有足够的选民舞弊来推翻乔-拜登的领先优势。
 
-- 丢弃或撕毁川普总统的选票。
-- 盗窃死人、老人的身份，以他们的名义寄出支持拜登的非法选票。
-- 盗用隐私被泄漏的合法选民的身份，在他们去现场投票之前寄出支持白登的邮寄选票。这导致部分合法选民现场投票时发现系统提示自己已经投过票了。
-- 硬造出不存在的人进行邮寄投票。这些选票甚至连签名都没有或者有数千张都是同一个人的名字。
-- 把迟到的不合格邮寄选票当作合格的选票计入。
-- 借助一些伪装手段将假选票在夜晚运到投票点。有的装在行李箱里，有的装在保温箱里。
-- 渗透或控制计票系统通过篡改数据或验票规则来影响结果。凭空增加拜登的选票，把川普总统的选票判定为不合格，把川普的选票错计为拜等的选票等等都可以通过操控计票系统和软件来实现。
+她说：”有一个大规模和协调的努力，从我们美利坚合众国的人民手中窃取这次选举，使川普的选票非法化和破坏，为乔-拜登制造选票”。
 
-
-**川普总统今早发推：Dominion 计票機在操纵着我们的大选！**
-
-![](https://lh4.googleusercontent.com/XOubgWfTFu208FOXDXhwfN33akNBkVeIVVU7p5SbTD9wdSVtExpSlrBYJvwJNQUs78HLKUnXbRNiiaV4wvHM5xSqQX-d4Mw1oKZUotim20FBGumNAJ4GlW5k1bYQpg)
-
-最近有热心网友在研究了部分州所使用的Dominion计票系统的相关文档后提出了一系列疑问和系统设计的可疑之处。我们将这些内容翻译成了中文。联系到昨天爆出的Dominion中央服务器在德国法兰克福被美军查获的新闻。相信该系统的猫腻很快会大白于天下。
-
-![](https://lh3.googleusercontent.com/zhrBAH_Z63Fd9Li1ebvcxneYzFPeV0DFkvS4Jvz-L6jLxS3fWyC2bG6LClGC5KSK85TQTWkvqS0LKc-hhegQgpOzsyS7b7_U7nxk_2ZTvP5n02ilpmfUbTKlYYpgYg)
-
-1. 理论上系统可以将特定的“一条龙”（Straight Ticket Vote)选票判定为无效。“一条龙”选票的处理规则基于很多复杂的选项设置进行工作。这个设定可以利用例如“ Repubiican”之类的拼写错误来作弊。
-
-（Votes can theoretically be ignored for individuals if a straight ticket vote is selected. This setting could very well enable “Repubiican”-style typo fraud. Many complex rules decide how the “straight ticket” option works.）
-
-2. 所有的软件访问键值都使用由同一组密钥，这使得该软件在网络安全上显得非常薄弱。这种薄弱的防护措施不能有效防止别有用心的人进入投票系统篡改设置。而且因为所有人使用同一组密钥访问系统，就算发现系统设置被人篡改了也难以证明是被谁篡改的。
-
-（Network Security is very weak since all software access keys use the same cryptographic pair. This gives plausible deniability to whoever potentially decides to mess around with voting settings. It can’t be proven who changed a setting since everybody has the same key）
-
-3. Dominion的数字证书没有使用密码保护，而且Dominio的用户手册明确说明不需要输入密码。这使得不法分子有机会使用中间人攻击的方式威胁到终端设备和中央服务器之间的通信。
-
-（Digital certificates are not protected by password, and Dominion user manual explicitly says not to enter a password. This enables potential for bad actors to MITM attack data traveling over network between precinct tabulator and central tabulator.）
-
-4. Dominion系统有一个隐藏的“拆分旋转”（split rotation）功能用来限制最大误差。但是，这个功能没有明确的定义和说明，所以我们无法确定这个功能到底在这里起什么作用。
-
-（Cryptic “split rotation” function that features the ability to “force a maximum deviation”. There is no definition of a “split rotation”, so we cannot know what “force a maximum deviation” means in this instance.）
-
-5. 投票点本地的IT人员有权限调试系统或更改系统设置。这种权利没有任何监督和制衡。我们也不清楚IT人员对系统修改后会不会留下日志。这种不受限制的修改系统设置的权利足以让这些人有能力将选举颠倒黑白。（Local IT guys have ultimate power to clandestinely change settings, thus having the ability to potentially alter an entire election. There are no checks and balances or observers of the local IT guy when he accesses machine debug and admin settings. It‘s unclear if logs exist.）
-
-6. Dominio系统收集每个终端的投票数据然后传输到中央服务器。我们无法找到中央服务器及其包含的软件的使用说明和安全性验证报告。中央服务器对我们来讲是个无法看到内部工作原理的黑盒子。（Dominion is a black box with votes ultimately tabulated in a central server system. Who has access to the central server and where is the manual and security reviews of that server software?）
-
-7. 理论上系统设置可能在计票日当天晚上暂停计票的那段时间被修改。直接修改几百台计票设备的系统设置远比造几千张假选票容易得多。这只需要一两个人就能办到。（Settings could theoretically have been changed during evening downtime on first night of voting. Much easier to change settings on hundreds of machines than to forge thousands of ballots. A couple of people could have done it quickly.）
-
-8. 宾西法尼亚州对Dominion软件进行了文字语义的更改。“生效”（Cast）被改为“印制”（Print），这让投票者无法确切地知道自己的投票什么时候生效。宾西法尼亚并没有公布这个修改的原因。（State of Pennsylvania requested semantic changes to the Dominion voting software, possibly to aid in their lawfare efforts. The word “Cast” became “Print”, obfuscating the moment when your vote becomes officially cast. For what reason is currently unknown.
-
-9. There is an option to force the vote scanner to “overrun” a preset amount of ballots EVERY time anybody pauses the scan mid-batch. “Overrun” is undefined. Potential for abuse is high with this function, which was added shortly after 2018 mid-term elections.）
-
-Dominion有一个在2018年中期选举后不久被添加的“超额处理”(Overrun)选项。这个选项允许任何人只要中途暂停扫描就能强制选票扫描器处理超出原定限额的投票数量。这个功能极有可能被用来作弊。
-
-我们相信以上从公开信息中发现的疑点只是冰山一角。Deep State在整个投票舞弊案中的违法犯罪行为应该远远超出普通人想象能力。我们相信美国法律会让这些破坏美国民主法制的犯罪团伙付出应有的代价。美国的民主法制将继续成为全球文明的灯塔。
+这是完整的片段。
 
 
 
-![](https://lh5.googleusercontent.com/zTONqONK6lAVWRUIx-cr03juz9KhkYQdB83pdzoj3Xgqk2fF1ZVzvIxyKS2kc7duwUSy38sJTipmWHs2NVrWhYwK9m4RWAM0xABiWx6FKhYOIl-4ahESztASTt6lFg)
+以下是更重要的引文….
 
-英文参考资料链接：
+“他们以各种可以想象的方式做到了这一点，从让死人大量投票，到绝对的、欺诈性的、制造只存在投票给拜登的选票，”鲍威尔说。”他们还用算法计算出他们需要翻转的选票，他们用电脑将这些选票从……特朗普翻转到拜登。”
 
-网友推文原文：**https://twitter.com/codemonkeyz/status/1326715838850764802?s=24**
+“我们已经确定，”她补充说，”在关键州，至少有45万张选票奇迹般地只标明了乔-拜登，没有其他候选人。”
 
-**Dominion选举计票系统相关的公开文档：**
+“他们都计划好了，玛丽亚。”鲍威尔继续说。”他们有算法。他们有纸质选票，等待在需要时插入。而值得注意的是，特朗普总统在蓝色州的选票大幅上升。这时他们不得不停止计票。他们不得不去替换拜登的选票 夺走特朗普的选票”
 
-[https://www.dos.pa.gov/VotingElections/Documents/Voting%20Systems/Dominion%20Democracy%20Suite%205.5-A/Dominion%20Democracy%20Suite%20Final%20Report%20scanned%20with%20signature%20020119.pdf](https://www.dos.pa.gov/VotingElections/Documents/Voting%20Systems/Dominion%20Democracy%20Suite%205.5-A/Dominion%20Democracy%20Suite%20Final%20Report%20scanned%20with%20signature%20020119.pdf)
+我告诉你，如果说大选之夜有什么让我最烦恼的话，那就是密尔沃基、费城、底特律和亚特兰大的计票暂停。
 
-[https://www.eac.gov/sites/default/files/voting\_system/files/Dominion\_Voting\_Systems\_D-Suite\_5.5\_Test\_Report\_Rev\_A.pdf](https://www.eac.gov/sites/default/files/voting_system/files/Dominion_Voting_Systems_D-Suite_5.5_Test_Report_Rev_A.pdf)
+我这辈子都没见过这样的事情。甚至从未听说过这样的事情。
 
-[https://www.sos.texas.gov/elections/forms/sysexam/oct2019-mechler.pdf](https://www.sos.texas.gov/elections/forms/sysexam/oct2019-mechler.pdf)
+巴蒂罗莫对此表示赞同，他说：”我从未见过投票机在选举中停止，停下来、评估一下情况。”
+
+不管怎么样 ，鲍威尔的指控很有说服力。毫无疑问她是在赌自己的名声，要拿出货来。
+
+还有林-伍德，乔治亚州的律师，最著名的是在90年代代表理查德-朱厄尔成功起诉了假媒体，去年又代表科文顿天主教高中的学生尼克-桑德曼。
+
+伍德要求大家耐心等待，但直接承诺：”我已经看到了大量证据，证明除了邮寄选票之外，电脑投票系统中也存在大规模的舞弊行为”。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16204650/122-2.png)
+他说他有能力推翻拜登在乔治亚州的领先优势。
+
+他还在谈到鲍威尔出席周日早间期货节目时说：”西德尼-鲍威尔是一个真相的提供者。当西德尼-鲍威尔讲话时，请仔细聆听”。
+
+围绕着这次有争议的选举，有很多的废话。很多理论和指责。还有来自假媒体的空洞的愤怒，绝望地让我们不要仔细看选举结果。
+
+但在马戏团的中心是两位律师 他们花了几十年的时间建立了诚实和正直的名声 他们说他们有证据。
+
+“这就是我所关注的。”约翰‧诺尔特说。
+
+而美国联邦选举委员会主席Trey Trainer刚刚发推表示，**如果西德尼-鲍威尔（Sidney Powell）说2020大选存在疯狂的选票舞弊，他选择相信西德尼-鲍威尔（Sidney Powell）。**
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16204716/123-1.png)
+新闻来源：BREITBART NEWS
+原文链接：https://www.breitbart.com/politics/2020/11/16/sidney-powell-lin-wood-promise-theres-ton-voter-fraud/
 
 0
