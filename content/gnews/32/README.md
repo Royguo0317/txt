@@ -1,65 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】滚烫的岩浆，等着你熄灭他的呼吸
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/565082/)
+## 川普总统：选举被操纵 存在前所未有的违宪
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/565176/)
 
-**作者：香草山写作组  木白** 发稿：飞虹
+多伦多加喜农场 熊妈妈
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16151411/%E8%BF%9D.jpg)图片来自 The Atlantic
+11月15日，川普总统表示，美国总统选举中违反宪法的行为达到了前所未有的程度。
 
+川普总统说，“为什么假媒体不断假设乔∙拜登将成为总统，甚至不允许我们展示我们现在正在准备做的事，因为他们在2020选举中严重违反了我们伟大的宪法。这些违法的行为，可能，在过去从没有出现过没有类似的情况。”
 
+川普总统讲道，共和党的许多监票员在许多州不被允许到计票处。此外，总统说，民主党人为了帮助他们的候选人而改变了选票。此外，他称邮寄选票的结果”造假”。
 
-题记：诗是文字表达的最高境界，这些好的东西恰恰是中共最要破坏的。于是，你就看见如今诗歌在中华大地上的没落，各种假大空的艺术大行其道。如今，中国人越来越不懂得使用自己的语言了。能用好语言的人，一定是通过文化和自己经历的修炼而成为通透人性的人，这就是开智。因此，中共一定要打压真正的艺术，让人民活得粗糙、鄙陋、愚蠢。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16131050/%E5%9B%BE%E7%89%8760.png)
-这个世界的情爱
+推特公司对川普总统的两条推文连续作了标记，“有关选举舞弊的说法存在争议”。
 
-无非是用孤独的心点燃的烟花
+此前，在川普总统发表的另一篇文章中指出，他和他的团队正在准备“重大诉讼”，这将证明选举违宪和 “因为有人试图改变选举结果的愤怒”。
 
-无非是一次次短暂的燃烧，但不悔
+川普总统坚定地表示，他拒绝承认民主党人乔∙拜登在总统大选中获胜。他认为，选举被操控。
 
-无非是这燃烧的光和热捂住了冰冷的心
+11月16日，川普总统发表声明，“全国各地提起的诉讼案件中很多不是由我们（提起）的，而是由那些目睹了可怕舞弊事件的人（提起的）。我们的大案件会表明2020年选举违宪，而且（有人）为改变选举结果做了令人愤慨的事，（这些大案件）将很快就会被提交（诉讼）！”
 
-这个世界的情爱
+美国2020总统大选于11月3日举行，但由于创纪录的高投票率和近1亿人通过邮寄投票，导致选票的计数被所谓推迟。官方至今没有公布大选结果，但11月7日，美国主流媒体却主观宣布乔∙拜登在大选中获胜。
 
-无非是你要去爱一个人
+11月15日，美国共和党总统候选人、现任美国总统川普表示 “我赢得了美国2020总统大选”。
 
-无非是你在一次次坠入爱河中确定是不是他
+此次美国2020总统大选被中共深度操控，随着邮寄选票、投票机及计票软件系统、虚假选票等涉及选票造假的实锤证据公布于众，背后中共主导的暗势力也逐步浮出水面。可见，美国目前存在的主要问题的根源在中共，这是中共多年来布局美国，意图破坏美国的民主体制，摧毁自由世界对法治社会的信心，鼓吹和伪饰专制制度的所谓“优越性”，进而统治奴役全人类的超限战阴谋。
 
-无非是你终究会去爱一个人
+只有消灭中共，美国和世界才会有未来。
 
-偌大的中国什么都在发生
-
-滚烫的岩浆
-
-熄灭的呼吸
-
-如果爱情也有自由
-
-请原谅那些不禁用力过猛
-
-把你拥抱得窒息的人
-
-也请原谅那些远远地看着你
-
-把你装进月光里散步的人
-
-这个世界总有遗憾
-
-但此生总执迷不悔
-
-这滚烫的岩浆
-
-一直等着你熄灭他的呼吸
-
-（2020年11月16日）
+参考链接：
 
 
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+> Why does the Fake News Media continuously assume that Joe Biden will ascend to the Presidency, not even allowing our side to show, which we are just getting ready to do, how badly shattered and violated our great Constitution has been in the 2020 Election. It was attacked,..
+> — Donald J. Trump (@realDonaldTrump) [November 16, 2020](https://twitter.com/realDonaldTrump/status/1328152462331699202?ref_src=twsrc%5Etfw)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上8:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-1+
+
+
+> Many of the court cases being filed all over the Country are not ours, but rather those of people that have seen horrible abuses. Our big cases showing the unconstitutionality of the 2020 Election, & the outrage of things that were done to change the outcome, will soon be filed!
+> — Donald J. Trump (@realDonaldTrump) [November 15, 2020](https://twitter.com/realDonaldTrump/status/1328100945570500608?ref_src=twsrc%5Etfw)
+
+
+
+0
