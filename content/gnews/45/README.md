@@ -1,76 +1,74 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵先生接受新中国联邦电视台韩梅梅采访 旧金山战友分享视频观感及采访的精彩片段
-` 喜马拉雅凤凰农场–旧金山-金喜站` [轉載自GNews](https://gnews.org/zh-hans/565297/)
+## “多猫腻” Dominion 计票系统本身设计的可疑之处 选举舞弊的犯罪远超想象力
+` 喜马拉雅凤凰农场–旧金山-金喜站` [轉載自GNews](https://gnews.org/zh-hans/565517/)
 
-撰文：文心GiGi **喜马拉雅凤凰农场**-旧金山站
+**编译：平民游侠 H-Ranger****喜马拉雅凤凰农场**-旧金山站
 
-**2020年11月14日将是川普总统赢得连任的一个重要的日子，百万美国选民自发地聚集在美国首都华盛顿，参加为我们喜爱的川普总统连任助威，反对民主党选举作弊的大游行。**
+民主党部分关键人员参与执行了2020美国总统选举造假和舞弊的行为相信已经不再是什么秘密了。从公众已经获知的消息来看这次总统选举的舞弊行为主要表现为以下几点：
 
-**这一天也是新中国联邦的一个里程碑的日子。数百名爆料革命战友，以新中国联邦人的身份站在了高耸入云的华盛顿纪念碑傍，亲眼见证我們蔚蓝的七芒星国旗，在新中国联邦的国歌声中冉冉升起，高高地飘扬在美国首府华盛顿的自由廣场上。**
-
-**新中国联邦人举着新中国联邦的信仰之星的国旗，和美国人民站在一起！为了维护正义，民主与法制而团结灭共！**
-
-这个特殊的日子让人感想颇多。郭文贵先生就是在这特殊的一天 接受了新中国联邦电视台记者韩梅梅女士的采访。文贵先生感慨地说： 当看到新中国联邦的舞台是以美国自由的独立之塔为背景，面对着白宫，面对着一个自由广场的时候，感慨特别多：三年前我们即使想要这样，即使只是说一说都会被人骂死。那叫自由广场，那叫自由之塔，而她正面对的是一个大家心知肚明，但却又说不出来的一个共产主义红色恶魔正要毁灭的这一切。正在这个时候，新中国联邦代表着新的中国人站出来啦，而且这场灾难的来源地就是中国。此情此景让我感到：冥冥之中，上天是有安排的。这场世界之最大的灾难，可能是人类无法想象的，它对民主，法治，人道最大的一场威胁，就是来源于中国，我们的国家~中国共产党和中国的共产主义。那么此时此刻我们又能看到来自新中国的这么多有良知的，追求自由的，信仰上帝的，信仰善良的，信仰真实的，有勇气的好儿好女们，勇敢地站在了前面。
-
-战友們举着新中国联邦的信仰之星的国旗，和美国人民站在一起…
-
-![](https://lh5.googleusercontent.com/PaT80fuJuY1qeVgSrkELHEkxhrSLwnjua25KkaoFCXAfl8Oe7QohvbXuVFHlhqTBhT1YHUYkuOTyj1UZ6V_JwnYxzPxakHAezR1yduvmOuPfG7gCC5nHAuCppUO0ag)
-
-**11.14清晨，来自旧金山的新中国联邦人，迎着朝阳走向华盛顿纪念碑 **
-
-![](https://lh3.googleusercontent.com/WPFczEbexlhY-MbbqR30VD7Pi9Xw7IvUbIzT7llJikDDz7pI0vj4r_8wo06f9qiz2yZpwtnUWsYwn8_FCUgrTaVDEy44_5YOClARMk8n2gJi_BYE3spyOA-FnX2d7A)
-
-**喜马拉雅凤凰农场三队在明道战友的带来下，走向华府的自由廣场**
+- 丢弃或撕毁川普总统的选票。
+- 盗窃死人、老人的身份，以他们的名义寄出支持拜登的非法选票。
+- 盗用隐私被泄漏的合法选民的身份，在他们去现场投票之前寄出支持白登的邮寄选票。这导致部分合法选民现场投票时发现系统提示自己已经投过票了。
+- 硬造出不存在的人进行邮寄投票。这些选票甚至连签名都没有或者有数千张都是同一个人的名字。
+- 把迟到的不合格邮寄选票当作合格的选票计入。
+- 借助一些伪装手段将假选票在夜晚运到投票点。有的装在行李箱里，有的装在保温箱里。
+- 渗透或控制计票系统通过篡改数据或验票规则来影响结果。凭空增加拜登的选票，把川普总统的选票判定为不合格，把川普的选票错计为拜等的选票等等都可以通过操控计票系统和软件来实现。
 
 
+**川普总统今早发推：Dominion 计票機在操纵着我们的大选！**
 
-如果没有文贵先生，没有爆料革命，美国将经历更多的磨难。细思极恐啊，我们已看到了勾结中共的特殊势力团体把持权力，美国到处暴乱，宪政危机，媒体颠倒黑白，黑警瞒天过海 ~  看看德州Midland小城的黑警如何对待我们的战友就可以看到中共式执法已经来到了美国。试想，就算美国在经历了漫长艰辛的无数年后， 终于自我纠正，把中共做的恶一一查究出，那我们海内外的华人将承受怎么样的灾难啊？看看日本裔美国人在珍珠岛事件后的遭遇就可以略微知晓，而华人面临的绝对可能有过之而无不及。所以我们必须跟着文贵先生，必须要勇敢地站出来，为我们自己，为我们中华民族的未来，为我们的子孙后代站出来！
+![](https://lh4.googleusercontent.com/XOubgWfTFu208FOXDXhwfN33akNBkVeIVVU7p5SbTD9wdSVtExpSlrBYJvwJNQUs78HLKUnXbRNiiaV4wvHM5xSqQX-d4Mw1oKZUotim20FBGumNAJ4GlW5k1bYQpg)
 
-当回答韩梅梅女士的提问，关于新中国联邦初见雏形，在建设新中国联邦的过程中，如何能够借鉴美国的宪法，提取其优势，摒弃其劣势，如何来制定依靠系统而不是人力减少错误这个提问时，郭先生肯定了这个问题并指出：这也是我们新中国联邦需要思考的。即使在非洲大草原的动物世界，狮子，猎狗，长颈鹿还有豹子，鳄鱼，各有各的生存的游戏规则，这叫做狮林法则。那么人和动物最大的差别就是我们有信仰 – 上帝；我们有人类的游戏规则 – 法律；我们有人与人之间的关系的准则那叫道德；  我们人与人之间，和国家之间防止大规模死忙，人与畜生不一样， 尽量增加公平，和让人道在世界上发挥更多的力量那就是一个国家的宪法。
+最近有热心网友在研究了部分州所使用的Dominion计票系统的相关文档后提出了一系列疑问和系统设计的可疑之处。我们将这些内容翻译成了中文。联系到昨天爆出的Dominion中央服务器在德国法兰克福被美军查获的新闻。相信该系统的猫腻很快会大白于天下。
 
-在人类几千年的文明中，英国大陆法是人类的最高文明，也就是约束人的法律。它成就了美利坚共和国， 它有言论自由的权力还有第二修正法案。 这就是为什么中国共产党的所有常委和政治局的家人把子女和私生子女全部送到美国和英国来， 就是因为他们相信这个法律，他们相信第二修正法案， 相信言论自由，相信上帝是对的。
+![](https://lh3.googleusercontent.com/zhrBAH_Z63Fd9Li1ebvcxneYzFPeV0DFkvS4Jvz-L6jLxS3fWyC2bG6LClGC5KSK85TQTWkvqS0LKc-hhegQgpOzsyS7b7_U7nxk_2ZTvP5n02ilpmfUbTKlYYpgYg)
 
-郭先生回顾了爆料三年多的历程，也一针见血指出当今美国精英阶层和中共多年的勾兑就是造成目前美国史上最大违宪危机的核心：中共用蓝金黄计划，3F计划，把美国的所有严肃媒体全部蓝金黄掉，把美国所有科技大佬全部用市场和蓝金黄计划收买掉，同时在全世界各地进行网络科技大规模超限战。而 华尔街的贪婪，硅谷的贪婪和好莱坞的贪婪，造成了这些所谓的精英政策正在侵蚀着人类上生存最基本的生存底线 。他们要1%的人合法而且永远地控制着99% 人的财富，要掌握所有人的尊严和人权，然后还要把大家变成撒哈拉沙漠和非洲坦桑尼亚连像动物一样相处都没有的狮林时代， 那就是要毁灭美国宪法，毁掉美国的言论自由。
+1. 理论上系统可以将特定的“一条龙”（Straight Ticket Vote)选票判定为无效。“一条龙”选票的处理规则基于很多复杂的选项设置进行工作。这个设定可以利用例如“ Repubiican”之类的拼写错误来作弊。
 
-美国今天走到这一步，和自身的做法也脱离不了干系。文贵先生慷慨激昂地说：美国面对共产主义红魔，就是我们过去70年来每天都在过的日子。那我们中国人那70年那样糟糕的日子是谁弄的？是美国的华尔街弄的！是好莱坞弄的！是科技大佬们弄的！是华盛顿弄的！美国人应该明白美国今天得到这些也是报应！美国精英阶级应该明白，美国欠中国的民主法治应该还给中国人啦。你们在中国宣传民主法治那么多年，8964我们死了那么多人，有很多有良知的人跟美国CIA合作，又被美国人出卖。香港永远和美国站在一起，结果又被你们出卖了。台湾跟着美国很有可能变成炮灰。
+（Votes can theoretically be ignored for individuals if a straight ticket vote is selected. This setting could very well enable “Repubiican”-style typo fraud. Many complex rules decide how the “straight ticket” option works.）
 
-美国的同胞们，只有消灭共产主义，你才能维护美国在世界的尊严，才能维持美国的大国地位，才能让美国更加安全。这次美国人一定会明白，如果不去维护跟随你们的台湾人，香港人，西藏人和中国人，让中国人付出了７０年失去自由和人权的代价，那么美国人就会变得比现在还要糟糕。
+2. 所有的软件访问键值都使用由同一组密钥，这使得该软件在网络安全上显得非常薄弱。这种薄弱的防护措施不能有效防止别有用心的人进入投票系统篡改设置。而且因为所有人使用同一组密钥访问系统，就算发现系统设置被人篡改了也难以证明是被谁篡改的。
 
-我们新中国联邦还告诉了美国，新中国联邦人和共产党不一样！中国共产党不能代表14亿中国人民，而且14亿中国人民是被美国的华尔街和所谓的严肃媒体以及极少数的精英们奴役了70年，他们现在要来奴役你们来啦：看看像推特，像Youtube， 像CNN，像福克斯，像纽约时报，像华尔街日报这帮流氓媒体吧。如果美国人像我们中国人那样生活70年，再加上不让说话，不让上街，同时还要拿走你们的权力， 美国人会怎样过？这就是美国人最后一次机会要做出选择啦。
+（Network Security is very weak since all software access keys use the same cryptographic pair. This gives plausible deniability to whoever potentially decides to mess around with voting settings. It can’t be proven who changed a setting since everybody has the same key）
 
-在回答“新中国联邦会有怎样的选举制度”的时候，文贵先生说：新中国人追求的一定是一人一票的选举，就是美国人享受了200年的选举。国家的权力应该属于人民的。新中国一定要有独立的司法体系，最终一定走向三权分立。还要有第四权力－媒体自由的客观监督。我们新中国联邦一定要吸取美国人的教训，不能有资本就可以胡作非为！要把现在的后资本主义转变为正道主义。人活在世上，资本不能排在第一，因为资本可以强奸人民的意志， 还要偷走美国的总统。看看Twitter，CNN，Google还有纽约日报 竟然宣布拜登当选，参选者作弊了还不让人民说。2016年川普当选，Nancy Pelosi 和Biden说是俄罗斯操纵。现在他们作弊当选了，还不让老百姓说话，不让怀疑，这是人民起码的权力啊。
+3. Dominion的数字证书没有使用密码保护，而且Dominio的用户手册明确说明不需要输入密码。这使得不法分子有机会使用中间人攻击的方式威胁到终端设备和中央服务器之间的通信。
 
-我们不关心美国政治，我们关心的是谁是中国共产党的朋友，谁是在美国的共产党。连话都不让说的一定是做了什么见不得人的鬼事。这就是为什么中国，北朝鲜和伊朗都有防火墙的原因。而防火墙又是美国科技大佬帮助建立的，这是多么可悲啊。最后郭先生表示：相信强大的美国有自己纠错的能力。相信美国人的勇敢，勤劳和法律能把美国最大的宪政危机和自由选举的危机变成最大的机会。
+（Digital certificates are not protected by password, and Dominion user manual explicitly says not to enter a password. This enables potential for bad actors to MITM attack data traveling over network between precinct tabulator and central tabulator.）
 
-郭先生还分享了他对于川普总统连任后的担忧和政策方面的看法。郭先生很担心川普总统的个人安全，因为他最了解共产党的邪恶，知道他们敢做什么，想做什么。 **郭先生对川普总统在第二任期有几点希望：**
+4. Dominion系统有一个隐藏的“拆分旋转”（split rotation）功能用来限制最大误差。但是，这个功能没有明确的定义和说明，所以我们无法确定这个功能到底在这里起什么作用。
 
-1. 全面整治卖国媒体，犯罪媒体，完善美国宪政的，挖出干涉选举的犯罪团体， 并全面恢复美国的经济。 找出病毒的真相，查出不良媒体，不良医疗界人士。让世界人相信美国的国家和民主制度是可信的。
-2. 希望在川普第二届政府的四年中，代表中国人民的新中国联邦会尽早得到美国政府的官方的承认。因为新中国联邦是唯一有能力代表14亿中国人的机构。
-3. 希望尽快打掉美国为中国人民筑造的防火墙。
+（Cryptic “split rotation” function that features the ability to “force a maximum deviation”. There is no definition of a “split rotation”, so we cannot know what “force a maximum deviation” means in this instance.）
 
+5. 投票点本地的IT人员有权限调试系统或更改系统设置。这种权利没有任何监督和制衡。我们也不清楚IT人员对系统修改后会不会留下日志。这种不受限制的修改系统设置的权利足以让这些人有能力将选举颠倒黑白。（Local IT guys have ultimate power to clandestinely change settings, thus having the ability to potentially alter an entire election. There are no checks and balances or observers of the local IT guy when he accesses machine debug and admin settings. It‘s unclear if logs exist.）
 
-郭先生还强调要让G系列做强做大，GTV，Gnews，GCLUB，GCoin　GDolla将成为西方和中国人民链接友谊和文明的桥梁。新中国联邦不会辜负美国人民的希望，新中国联邦的宣言就是我们的承诺，打造新中国和世界的千年和平协议是新中国联邦的终极目标。要让世界变得更和平，更文明。新中国联邦以最快的速度让世界各国承认，并且得到欢迎和合作。这就是未来四年没人能改变的。
+6. Dominio系统收集每个终端的投票数据然后传输到中央服务器。我们无法找到中央服务器及其包含的软件的使用说明和安全性验证报告。中央服务器对我们来讲是个无法看到内部工作原理的黑盒子。（Dominion is a black box with votes ultimately tabulated in a central server system. Who has access to the central server and where is the manual and security reviews of that server software?）
 
-采访的最后，郭先生表示：
+7. 理论上系统设置可能在计票日当天晚上暂停计票的那段时间被修改。直接修改几百台计票设备的系统设置远比造几千张假选票容易得多。这只需要一两个人就能办到。（Settings could theoretically have been changed during evening downtime on first night of voting. Much easier to change settings on hundreds of machines than to forge thousands of ballots. A couple of people could have done it quickly.）
 
-共产党不灭，美国没有安全；
+8. 宾西法尼亚州对Dominion软件进行了文字语义的更改。“生效”（Cast）被改为“印制”（Print），这让投票者无法确切地知道自己的投票什么时候生效。宾西法尼亚并没有公布这个修改的原因。（State of Pennsylvania requested semantic changes to the Dominion voting software, possibly to aid in their lawfare efforts. The word “Cast” became “Print”, obfuscating the moment when your vote becomes officially cast. For what reason is currently unknown.
 
-共产党不灭，人类没有未来；
+9. There is an option to force the vote scanner to “overrun” a preset amount of ballots EVERY time anybody pauses the scan mid-batch. “Overrun” is undefined. Potential for abuse is high with this function, which was added shortly after 2018 mid-term elections.）
 
-**共产党不灭，我们所有人都不可能有明天**。
+Dominion有一个在2018年中期选举后不久被添加的“超额处理”(Overrun)选项。这个选项允许任何人只要中途暂停扫描就能强制选票扫描器处理超出原定限额的投票数量。这个功能极有可能被用来作弊。
 
-这就是CCP大病毒和美国选举危机，宪政危机，街头暴力背后的真相。只有灭共，美国才不会沦落为下一个香港，才不会像台湾一样，哆哆嗦嗦生活了几十年，只有灭共，你的家人和孩子才不会被Hunter Biden那样的人强奸，轮奸或被被折磨死。这是所有人所面临的选择，只有灭共！
-
-文贵先生说：没有共产党的新中国追求的一定是一人一票的选举，就是美国人享受了200年的选举。国家的权力必须属于人民！
-![](https://lh6.googleusercontent.com/MIthLickvB7J6AMU4jlHWxvOAZLEMnznese07_hdkTb0YaZp2E_Izj-iW2v__zs_mq8IZCu9hvEPl7P6P_-meZ3q1gxcK3GrX7YDhVGX4R2nbLISmndC67_VHSznFw)**“感谢郭先生！您主导的爆料革命，我们共同建造的新中国联邦，我们一定会一起走。我们会团结下去，一起灭共。” **韩梅梅女士结束采访时，眼中闪着泪花。她激动的心情我完全能体会，我心亦然。
-**“感谢郭先生！您主导的爆料革命，我们共同建造的新中国联邦，我们一定会一起走。我们会团结下去，一起灭共。” **韩梅梅女士结束采访时，眼中闪着泪花。她激动的心情我完全能体会，我心亦然。
-
-** 收看韩梅梅采访文贵先生的视频，请到 GTV.org**
-
-###
+我们相信以上从公开信息中发现的疑点只是冰山一角。Deep State在整个投票舞弊案中的违法犯罪行为应该远远超出普通人想象能力。我们相信美国法律会让这些破坏美国民主法制的犯罪团伙付出应有的代价。美国的民主法制将继续成为全球文明的灯塔。
 
 
+
+![](https://lh5.googleusercontent.com/zTONqONK6lAVWRUIx-cr03juz9KhkYQdB83pdzoj3Xgqk2fF1ZVzvIxyKS2kc7duwUSy38sJTipmWHs2NVrWhYwK9m4RWAM0xABiWx6FKhYOIl-4ahESztASTt6lFg)
+
+英文参考资料链接：
+
+网友推文原文：**https://twitter.com/codemonkeyz/status/1326715838850764802?s=24**
+
+**Dominion选举计票系统相关的公开文档：**
+
+[https://www.dos.pa.gov/VotingElections/Documents/Voting%20Systems/Dominion%20Democracy%20Suite%205.5-A/Dominion%20Democracy%20Suite%20Final%20Report%20scanned%20with%20signature%20020119.pdf](https://www.dos.pa.gov/VotingElections/Documents/Voting%20Systems/Dominion%20Democracy%20Suite%205.5-A/Dominion%20Democracy%20Suite%20Final%20Report%20scanned%20with%20signature%20020119.pdf)
+
+[https://www.eac.gov/sites/default/files/voting\_system/files/Dominion\_Voting\_Systems\_D-Suite\_5.5\_Test\_Report\_Rev\_A.pdf](https://www.eac.gov/sites/default/files/voting_system/files/Dominion_Voting_Systems_D-Suite_5.5_Test_Report_Rev_A.pdf)
+
+[https://www.sos.texas.gov/elections/forms/sysexam/oct2019-mechler.pdf](https://www.sos.texas.gov/elections/forms/sysexam/oct2019-mechler.pdf)
 
 0
