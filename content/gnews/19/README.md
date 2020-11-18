@@ -1,56 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统又调兵，鹰派专家上任商务部
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/568160/)
+## 加独立企业联合会警告 逾22万家小企业将因疫情封锁倒闭
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/568295/)
 
-*新闻来源：《路透社》**(**Reuters)**；作者：**Karen Freifeld**；发布时间：* *2020**年**11**月**17**日*
+*多伦多加喜农场 ctt
+校对 文锦 上传 WJ*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17153514/Screen-Shot-2020-04-16-at-12.07.01-PM.png)图片来源：Flickr Creative Commons
+随着北半球冬季的来临，加拿大第二波疫情也到来了, 被中共病毒感染的人数激增，面临此困境，政府重新提出要重新实行封闭管理的措施。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17154420/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE23-1.png)加拿大中共病毒实时疫情 图片来源：一亩三分地
+加拿大独立企业联合会（CFIB）郑重警告，在重新实行封锁的城市和省份, 需要为受影响的企业提供财务支持, 这种支持应该是全面、即时和持续的, 因为这些企业不应承担因封锁而带来的经济损失，否则将有多达225,000家小型企业被迫永久关闭。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17153305/cfib_large.jpg)图片来源：ckfm
+CFIB指出联邦工资补贴已从75％降至65％, 并且新的加拿大紧急租金补贴（CERS）仍未得到参议院的批准。它希望各省为一些企业提供“追溯租金支持”, 这些企业是因为房东的原因而不能参加CECRA（加拿大紧急商业租金援助）。
 
-*翻译/简评：TCC；校对/审核：海阔天空；Page：拱卒*
+联邦政府希望对因疫情而下架的商品，采取一个公平的原则, 例如，如果服装店被关闭，则沃尔玛或Costco的服装部门也应关闭，这样可以避免大型商店出售“非必需品”。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17142611/11-35.jpg)
+上周五，曼省总理道格·福特表示，一旦他的首席医疗官告诉他需重新采取封锁行动，他将毫不犹豫地这样做。迄今为止，曼尼托巴省是唯一一个全面实行封锁的省。
 
-#### **简评：**
+评论：随着冬季的来临，第二波疫情也到来了。加拿大政府及一些协会忙于如何进行区域封锁及对企业的补贴问题，没有人讨论病毒的真正来源是在哪里，如何切断病毒来源。要知道病毒的真正来源于CCP，要切断病毒的来源，就要消灭CCP，这才是加拿大和世界人民首先应该做的事。
 
-川普政府又一大行动！灭共分秒必争! 如今美国商务部换了鹰派国际法专家，这又掐紧了中共咽喉，让其别再想妄想染指美国的高科技产品出口。这是美国围剿中共的重大人事布局，这是美国开启经济战的又一实发炮弹！中共的虚假画皮就要被揭开，中共的重大经济危机不日即会出现！
+文章链接:
+[CFIB warns more lockdowns could kill 225,000 Canadian small businesses](https://thepostmillennial.com/cfib-warns-more-lockdowns-could-kill-225-000-small-businesses)
 
-#### **原文翻译：**
-
-## 消息人士称，川普支持者获聘商务部职位， 将推强硬对中共国政策至明年元月
-
-## 川普的支持者被聘为商务部职位，以继续推进强硬的对中共国政策直到明年一月份
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17142802/22-20.jpg)文件图片：2018年10月30日，美国参议院前共和党候选人科里·斯图尔特 (Corey Steward)在美国弗吉尼亚州安嫩代尔的比萨店举行的竞选活动中与选民讲话. 路透社/乔纳森·恩斯特/文件照片
-
-(路透社）-根据熟悉此事的人称，川普总统的忠诚支持者科里·斯图尔特（Corey Stewart）已被任命为美国商务部新设的高级职位，他可以在这届政府到期前协助推动对中共的强硬政策。
-
-尽管川普此（第45）任快要结束，川普政府已经表示打算继续努力加强对中共国的限制。消息人士称，预计斯图尔特（Stewart）的任命将会强化更严格的政策。
-
-消息人士称，在2018年美国参议院弗吉尼亚州竞选中败北的国际贸易律师斯图尔特（Stewart）将担任出口管理首席代理副局长。
-
-商务部发言人拒绝就此人事问题发表评论，白宫代表拒绝发表评论。斯图尔特也拒绝置评。
-
-消息人士说，斯图尔特（Stewart）是由总统人事办公室指派的。该办公室由约翰·麦肯特（John McEntee）领导，约翰·麦肯特（John McEntee）受川普的委托，负责确保内阁机构高级助手的忠诚。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17142934/33-5.jpg)照片：迈克尔·S·威廉姆森/«华盛顿邮报》采自盖蒂图片社
-斯图尔特在2016年弗吉尼亚州共和党参议院初选获胜
-
-预计斯图尔特（Stewart）将继续担任此新职务，直到1月20日第45届川普政府结束。
-
-斯图尔特（Stewart）的职位高过出口管理局代理副局长Matthew Borman。曾在川普政府的大部分时间里担任美国出口管理局副局长的理查德·阿斯胡（Richard Ashooh）于7月辞职。 Ashooh被称为在中共国问题上的温和派。
-
-斯图尔特（Stewart）在2018年与弗吉尼亚州的民主党参议员蒂姆·凯恩（Tim Kaine）竞选。他直言不讳地批评非法移民，并反对拆除联邦纪念碑。
-
-共和党川普拒绝接受民主党前副总统乔·拜登宣布的选举结果，并对可能的选举舞弊发起了一系列法律挑战。
-
-[原文链接](https://www.reuters.com/article/us-usa-commerce-post-idINKBN27W2P7)
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-编辑：【喜马拉雅战鹰团】[-点击spark adobe](https://spark.adobe.com/page/ffU61rDCmW2Nb/)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16143917/44-8.jpg)
-
-0
+3+

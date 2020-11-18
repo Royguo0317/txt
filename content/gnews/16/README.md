@@ -1,9 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【字幕】11/14/2020文贵：未来新中国联邦和G系列是了解美国和西方的桥梁
-` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/568348/)
+## 法国遗传学家亚历山大 亨瑞翁-克劳德对新冠疫苗持谨慎态度
+` VOH欧洲战友团` [轉載自GNews](https://gnews.org/zh-hans/568405/)
 
-制作： 【彩虹桥】
+听写：Ikonic 翻译：Lina
+
+校对：Marie / Ikonic
 
 0
