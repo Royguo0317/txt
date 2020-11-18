@@ -1,56 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美军用绝对硬实力回怼中共的军事挑衅及威胁!
-` 快慢机` [轉載自GNews](https://gnews.org/zh-hans/568612/)
+## 爆革星评：美国“72小时”灭共行动可能即将开始
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/568627/)
 
-内军事:快慢机
+多伦多加喜农场 文星（一号）
 
-据以下社交媒体讯息引述——
+校对上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17194508/%E5%80%92.jpg)图片来自 VOX
+川普总统一向重于行动，之前斩首伊朗二号人物苏莱曼尼、突然飞抵阿富汗基地、促成以色列与中东签订和平协议等重大事件，事前均无特别说明。而目前，种种迹象显示，路德社提过多次的美军72小时行动，似乎就开始了。
+
+第一个迹象是，基于可以认定中共对美投放生化病毒和干预大选两种战争行为，美国开战，师出有据。此前，美国已经可以认定中共向美国投放了生化病毒，发动了生化战争。针对大选，尽管检控结果尚未公布，但法律层面上美国在向着认定中共与拜登集团操控大选的犯罪方向发展，干预美总统大选也是特别性质的战争行为。美国是法治国家，法律层面解决了，一切手段都可以实施。
+
+这不，继朱利安尼、鲍威尔律师多次申明中共犯罪事实后，11月17日林·伍德律师又特别发推说，“ 共产党操控了美国大选，破坏了川普总统压倒性胜利的大选。拜登将会入狱，沼泽将会彻底排干”，这些声明背后都有充分的证据支持。那么，既然认定中共发动了不义战争，就要以正义战争消灭非正义的战争，现在美国开战，师出有据。
+
+第二个迹象是，拜登“皇帝的新装”似的总统身份被国会否定，川普总统任命反恐专家担任代理国防部长，开战目标明确。国会众议院15日正式发布声明，目前的大选还没有正式产生总统，这实际上直接否定了乔拜登被左媒单方推上胜选总统的闹剧，意思是说拜登“剃头刀子一头热”，国会不承认。反而川普总统这几天几次发推称“结束游戏”、事实上“我已经赢得大选”，反而获得了广泛的民意支持。
+
+而即使连任还未最后确认，川普作为现任总统面对选票大幅领先被恶性反转的残酷现实，已经完成了灭共的心理准备，加上已经有证据证明中共对美发动了生化战争，美国也有实力和条件对中共釜底抽薪，促其早亡。于是撤换了国防部长，任命主导反恐的米勒担任代理国防部长，其意应该是以反恐行动对付中共，譬如72小时军事行动。
+
+第三个迹象是，美国政府可能认定中共为恐怖组织。蓬培奥国务卿此前讲话，直接将中共政权与伊朗恐怖组织相提并论，实际视同中共为恐怖组织。莫非接下来美国政府会如盛传的那样，把中共定为恐怖组织？定了恐怖组织，就可以对其采取斩首头脑、南海拆除、网络瘫痪等闪电行动，这些有的可以在72小时内轻松完成。
+
+特别是，刚上任的代理国防部长米勒，以官方身份直接对中共喊话给予警告或通牒：“美国有能力在72小时之内对中共进行雷霆行动”。其意思就像向日本投放原子弹之前的发放传单，一旦行动，有言在先，勿谓言之不预。想起来脊梁发冷，可别扔原子弹，那墙内同胞就惨了，这种可能性不大，其它可能性都有。
+
+总之，中共投放了生物武器、干预了大选，其实已经向美国发动了恐怖的超限战。美国任命了具有反恐经验的代理国防部长，这位部长直接喊话中共说，美国有能力采取72小时军事行动消灭中共。那么接下来可能采取72小时军事行动，逻辑上是成立的，拭目以待。
+
+参考链接：
 
 
 
-> PHOTOS: A SM-3 Block IIA is launched from the USS John Finn, an Aegis Ballistic Missile Defense System-equipped destroyer, Nov. 16, 2020, as part of Flight Test Aegis Weapons System-44 (FTM-44) [pic.twitter.com/jHNbIwceca](https://t.co/jHNbIwceca)
-> — Missile Defense Advocacy Alliance (@MissileDefAdv) [November 17, 2020](https://twitter.com/MissileDefAdv/status/1328706114880462851?ref_src=twsrc%5Etfw)
+> PAY CAREFUL ATTENTION
+> 
+> Go to [@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw) home page & read her messages.
+> 
+> Every lie will be revealed.
+> 
+> Communists are involved in trying to steal landslide re-election of our President.
+> 
+> Joe Biden is going to end up in prison. Many others too.
+> 
+> SWAMP WILL BE DRAINED. [https://t.co/7pnHS3yDGm](https://t.co/7pnHS3yDGm)
+> — Lin Wood (@LLinWood) [November 17, 2020](https://twitter.com/LLinWood/status/1328738501576302594?ref_src=twsrc%5Etfw)
 
 
 
-美军于2020年11月16日夜间,在位于南太平洋夸贾林环礁水域,凭借宙斯盾驱逐舰上所搭载的标准-3型拦截弹,成功对来袭的远程洲际弹道导弹实施了拦截并予以摧毁.
 
-执行本次拦截任务的是,隶属于美军太平洋第三舰队的,阿利伯克级宙斯盾导弹驱逐舰“约翰.芬恩”号-(DDG-113).
 
-美军此举一方面是在对最新的“FTM-44”——代号为“恒星蓝瑟”的新型宙斯盾武器防御系统进行测试.
+> And BIG TECH & [#Facebook](https://twitter.com/hashtag/Facebook?src=hash&amp;ref_src=twsrc%5Etfw) [#Google](https://twitter.com/hashtag/Google?src=hash&amp;ref_src=twsrc%5Etfw) [#Twitter](https://twitter.com/hashtag/Twitter?src=hash&amp;ref_src=twsrc%5Etfw) are all into suppressing our freedom of speech to challenge this outrageous [#Election](https://twitter.com/hashtag/Election?src=hash&amp;ref_src=twsrc%5Etfw) [email protected]! Wonder who all funding the [#Communist](https://twitter.com/hashtag/Communist?src=hash&amp;ref_src=twsrc%5Etfw) efforts for [#Biden](https://twitter.com/hashtag/Biden?src=hash&amp;ref_src=twsrc%5Etfw)
+> Read the sworn testimony yourself! See below![@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) [@LinWood](https://twitter.com/linwood?ref_src=twsrc%5Etfw) [https://t.co/qt4QzgbXdD](https://t.co/qt4QzgbXdD) [pic.twitter.com/jpOFZODCIs](https://t.co/jpOFZODCIs)
+> — Sidney Powell 🇺🇸⭐⭐⭐ (@SidneyPowell1) [November 17, 2020](https://twitter.com/SidneyPowell1/status/1328495485007646720?ref_src=twsrc%5Etfw)
 
-另一方面则以此强势回应中共军方,此前所进行的针对南海方向的,中远程陆基反舰弹道导弹试射行动.
 
-前不久,中共军方对外有限公布了一则,其火箭军所进行的中远程陆基反舰弹道导弹试射的消息.
-
-以此暗示并威胁美军近来巡弋于南海附近水域的太平洋舰队海上打击力量!
-
-中共军方公布了相当有限并模糊不清的有关导弹试射信息.只说从内陆某地发射的中远程反舰导弹,经过长程飞行,准确命中了南海水域的移动靶船.
-
-以此展示中共军方有绝对能力可以将任何来犯之敌,消灭在远离大陆海岸线的深海水域之内!
-
-但实际对比美军所进行的追踪监视结果来看.
-
-中共所进行的这次导弹试射,只有2枚弹头最终落在了海南岛与西沙群岛之间的广阔水域内,根本没有中共所说的什么移动靶船.
-
-另外两枚弹头则在飞行期间就由于技术故障,偏离预定航迹失速坠毁于广西境内.
-
-明明试射了4枚,其中只有两枚勉强落在了预定海域,这种不足50%的命中率的“杀手锏”级武器系统.
-
-竟能被中共吹嘘到“无以匹敌”的程度.
-
-中共的口炮战力倒是真正达到武器级标准了.
-
-实战时要是这些武器系统真都掉链子了,中共就把这些党媒喉舌都派上去,估计能把对手都吹死!
-
-美军现役的宙斯盾海基弹道导弹防御系统,是目前全球首屈一的战区立体导弹防御体系.
-
-这次的成功拦截测试,再次证明了这套反导防御系统强大稳定的优良性能!
-
-美军也以如此无懈可击的硬实力,完美回怼了中共军方的“虚张声势”!
-
-美军毫无畏惧中共所带来的军事挑衅与威胁!
 
 0
