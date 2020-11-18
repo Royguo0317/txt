@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【字幕】11/14/2020文贵：1月20日川普总统一定是美国的总统
-` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/567988/)
+## 【字幕】11/17/2020文贵盖特：72小时会不会发生啊？
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/568203/)
 
 制作： 【彩虹桥】
 

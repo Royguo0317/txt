@@ -1,102 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德语新闻翻译：危险的发展：德国电视一台今日新闻推动中国共产党式的病毒独裁
-` Himalaya Friends Germany` [轉載自GNews](https://gnews.org/zh-hans/568416/)
+## 美国联邦选举委员会负责人：我相信鲍威尔关于大范围选举舞弊的说法
+` GM107` [轉載自GNews](https://gnews.org/zh-hans/568697/)
 
-**原文来自**：[德国大纪元报](https://www.epochtimes.de/)
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17201635/Sidney-Powell-EpochTimes_510A8666-1-1-700x420-1.jpg)
+美国联邦选举委员会(FEC)负责人特雷-柴纳(Trey Trainor)周二在推特上表示，他相信特朗普竞选律师西德尼-鲍威尔(Sidney Powell)关于大范围选举舞弊的说法。
 
-**作者：**STEFFEN MUNTER
+前联邦检察官鲍威尔最近声称，总统的法律团队已经收到了大量有关选民舞弊和其他违规行为的证据，她告诉福克斯商业公司，她有足够的证据发起广泛的刑事调查，而且，”我们已经准备好推翻多个州的选举结果”。
 
-**发表时间：**2020年11月17日 更新时间：2020年11月17日 13:04
+虽然她拒绝详细说明自己可能掌握了哪些证据，但她坚持说：”在没有证据支持的情况下，我不会发表评论。”
 
-**原文**[**链接**](https://www.epochtimes.de/politik/deutschland/gefaehrliche-entwicklung-tagesschau-promotet-corona-diktatur-von-chinas-kp-a3381688.html)**，**此链接在文章发表的当天下午已经不能访问。德语原文在译文的下面
+美国联邦选举委员会(FEC)负责人柴纳(Trey Trainor)在推特中**称鲍威尔 “在她接手的每一个案件中都直率而诚实”**，并补充说，”**如果她说#Election2020中存在猖獗的选民欺诈，我相信她**“。
 
-**中文翻译：**文大石 DE，德国灭共战友团
+与此同时，川普竞选顾问科里-莱万多夫斯基（Corey Lewandowski）在 “水酷 “播客节目中表示，他也相信鲍威尔所说的有系统性选举舞弊的证据。
 
-**编辑：**Mild Seven, Himalaya Friends Germany, [Telegram Channel](https://t.me/HimalayaFriendsGermany)
+莱万多夫斯基（Corey Lewandowski）对播客主持人大卫-布罗迪说，他称鲍威尔是一位 “执着的专业律师”，并表示 “如果她说她有这个证据，我完全没有理由怀疑她。”
 
-**题目：**危险的发展：德国电视一台”Tagesschau”（今日新闻）推动中国共产党式的病毒独裁
+“现在要开始提出这些证据，并将其呈现在法庭上，”他补充说。
 
-中国压制了其国内医生所发出的各种警告，掩盖了新冠病毒疫情的爆发，并让数百万潜在的病毒超级传播者从武汉 “逃 “到世界各地后，独裁政府实行了严厉的封锁，并进一步加强了控制、监视和审查。与此同时，被欺骗和毫无准备的西方世界经历了一次凶猛的大爆发。现在各国政府都想在现行法律的临界范围，复制疫情中中共国的管控。
+鲍威尔的说法核心是选举软件将 “数百万张选票 “从总统唐纳德-川普（Donald Trump）手中转到民主党总统候选人乔-拜登手中。她说，一名举报人站出来指称，投票软件是为了 “操纵选举”。
 
-几天前，经理人、企业管理顾问和畅销书作家马库斯-克拉尔博士 (Dr. Markus Krall)（&lt;&lt;人民的革命&gt;&gt; Die bürgerliche Revolution，2020）在Twitter上警告说，一种危险即将到来。不过，这位经济学家并没有提到新冠病毒感染数字的上升，而是提到了另一个外来威胁。
+她说：”他看到这种情况发生在其他国家。”显然，她指的是Dominion Voting Systems和Smartmatic公司的选举硬件和软件，或者可能是其他软件和机器。
 
+鲍威尔说：”他们可以在[投票]机器中插入一个拇指驱动器，他们甚至可以从互联网……甚至从德国或委内瑞拉向它上传软件。”鲍威尔补充说，操作 “可以实时观察选票”，”可以实时转移选票”，或者所谓的不良行为者可以 “远程访问任何东西”。
 
+鲍威尔说，”我们已经从数学上确定了他们使用的确切算法–而且从一开始就计划使用”，据称是将选票转给拜登。
 
-> Die eigentliche Gefahr der sogenannten "Pandemie" ist nicht die Ansteckung mit einem Virus, das aus China kommt, sondern mit dem totalitären System, das aus China kommt.
-> — Dr. Markus Krall (@Markus\_Krall) [November 11, 2020](https://twitter.com/Markus_Krall/status/1326621421951455234?ref_src=twsrc%5Etfw)
+Dominion投票系统公司多次向媒体否认其软件和设备不安全，也否认它们被用来调换选票。”Dominion Voting Systems公司在一份声明中说：”Dominion Voting Systems公司断然否认关于我们的投票系统存在选票切换问题的错误说法。”该公司表示。”选票删除/切换的说法是完全错误的。”
 
+“没有任何可信的报告或证据表明存在任何软件问题，”该公司表示，”在一些县，包括一些使用Dominion设备的县，出现了与报告制表结果有关的人为错误，但在拉票过程之前，该县已经采取了适当的程序性行动来解决这些错误。”
 
+荒唐的是，在出现对Dominion Voting Systems公司生产的投票机的完整性提出质疑的指控后，国土安全部下属的网络安全和基础设施安全局（CISA）于11月12日发表声明，对这些指控提出质疑，称 “11月3日的选举是美国历史上最安全的一次”。**不过，该机构没有披露的是，Dominion Voting Systems是CISA的选举基础设施部门协调委员会的成员，是CISA发布声明的两个实体之一。**
 
-**所谓’****大流行病’****的真正危险，不是感染了来自中共国的病毒，而是感染了来自中共国的极权制度。(****马库斯-****克拉尔博士)**
+**此外，一直受到更多关注的独立投票机公司Smartmatic也是成员。**该机构没有立即回应关于Dominion和Smartmatic是否参与了CISA 11月12日声明的评论请求。
 
-对于中共病毒的危害性，科学界仍有不同的意见和争议，这里不做讨论。更值得注意的是：在全球病毒大流行的过程中，有一个隐蔽的潜行者和病毒一起从中国传到了德国。
+美国联邦选举委员会(FEC)负责人柴纳，在早些时候对Newsmax发表的讲话中表示，他认为那些不允许投票监督员 “有意义地进入 “观察选票制表的地点可能涉及选民欺诈。
 
-*标注：《大纪元》把这种引发**COVID-19**疾病的新型冠状病毒称为中共病毒，因为中国共产党对疫情的掩盖和无能的管理，使得这种病毒首先在中国爆发，然后传播到全球成为大流行病。阅读更多：*[*编辑部：* *为病毒正名*](https://www.epochtimes.de/politik/ausland/leitartikel-dem-virus-den-richtigen-namen-geben-a3192536.html)*】*
+“我确实相信这些地方存在选民欺诈行为，”柴纳告诉该媒体。”否则他们会允许观察员进去。”
 
-**为独裁统治做广告？**
+这名官员提到了宾夕法尼亚州的一个案例，法院命令他们允许川普竞选团队让投票观察员在6英尺外观看，但这一命令遭到了违抗。
 
-“中国官方的新冠病毒数据已经连续数周走低–没有死亡病例，新发感染人数大多为两位数”。这是11月2日德国电视一台ARD媒体节目 “Tagesschau “报道的开场白，它想解释为什么中国没有出现第二波病毒，“相应地在德国不得不采取更强硬的措施来对抗新冠疫情”。
+柴纳说：”他们没有被允许这种有意义的访问。”他补充说，如果在这方面违反了法律，**选举就是 “不合法的”**。
 
-在威权主义的中国，政府部门有控制和干预的可能性，而这些在西方民主国家是不可想象的。个人自由权利或数据保密将被无视–例如在追踪感染者的问题上”。
+新闻来源：the epoch times
+原文链接：[https://www.theepochtimes.com/mkt\_app/fec-chairman-if-sidney-powell-says-there-was-rampant-voter-fraud-i-believe-her\_3582495.html?v=ul](https://www.theepochtimes.com/mkt_app/fec-chairman-if-sidney-powell-says-there-was-rampant-voter-fraud-i-believe-her_3582495.html?v=ul)
 
-(德国电视一台今日新闻ARD-“Tagesschau”)
-
-**有效人口**
-
-带有个人轨迹追踪的新冠病毒app将会成为日常生活的一部分。每个人进入商店、咖啡馆和餐馆时，必须扫描二维码进行登记。一旦发生感染疫情，将进行大规模检测，实行封锁，严格隔离感染者和病人。
-
-健康比自由或数据保密更重要，这是Kirchner的观点。在这个人民的共和国内，将再不可能用法律行动反对政府政策，甚至反政府的示威游行。
-
-从年初以来，系统性地扩大了病毒检测能力，共产党的居委会一直是社会严密控制的一部分。此外，”Tagesschau “还指出了监视状态下民众的服从：”关于口罩的利弊讨论，在中国是没有的。“ 目前逗留在柏林的RBB记者，德国电视一台ARD驻北京记者Ruth Kirchner写道，国家的 “保护措施 “通常不会受到质疑，”对政府的信任度很高”。
-
-**信任问题**
-
-大体上，针对德国电视一台ARD的这篇文章，在评论区中产生了两种对立的意见–有些人相信中国官方信息的准确性，有些人则对其持批评态度–这一面在德国电视一台ARD报告中完全没有体现。
-
-其中一篇以 “向中国学习 “为题的评论说：”那么，现在可能是向中国（以及其他亚洲国家）学习的时候了，这些国家现在已经很好地控制了疫情。趁现在还来得及。” 另一位读者在 “我从不相信中国 “的标题下写道：”很遗憾，我只能说这是一个不人道的独裁国家，到目前为止，中国并不是以真实和开放著称的国家，而是恰恰相反。因此，中国政权的所谓“报道”对我来说毫无价值。”
-
-—
-
-德语原文：
-
-**Gefährliche Entwicklung: „Tagesschau“ promotet Corona-Diktatur von Chinas KP**
-
-VON [STEFFEN MUNTER](https://www.epochtimes.de/autor?q=Steffen%20Munter)17. NOVEMBER 2020 Aktualisiert: 17. November 2020 13:04
-
-Nachdem China die warnenden Stimmen seiner Ärzte zum Schweigen gebracht, den Corona-Ausbruch vertuscht und Millionen von potenziellen Superspreadern aus Wuhan in alle Welt “entkommen” gelassen hatte, verordnete die Diktatur einen harten Lockdown und verschärfte Kontrolle, Überwachung und Zensur noch weiter. Währenddessen erlebte die getäuschte und unvorbereitete westliche Welt ein böses Erwachen. Nun versuchen verschiedene Regierungen den Weg der KP Chinas in der Pandemie zu kopieren, soweit es die aktuell geltenden Gesetze gerade noch zulassen.
-
-Vor einigen Tagen warnte der Manager, Unternehmensberater und Bestsellerautor Dr. Markus Krall (Die bürgerliche Revolution, 2020) [auf Twitter](https://twitter.com/Markus_Krall/status/1326621421951455234) vor einer drohenden Gefahr. Allerdings verwies der Volkswirt nicht auf ansteigende Corona-Zahlen, sondern auf eine andere importierte Bedrohung:
-
-*Die eigentliche Gefahr der sogenannten ‚Pandemie‘ ist nicht die Ansteckung mit einem Virus, das aus China kommt, sondern mit dem totalitären System, das aus China kommt.“*
-
-*(Dr. Markus Krall)*
-
-Über die unterschiedlichen und kontrovers diskutierten wissenschaftlichen Meinungen zur Gefährlichkeit des KPC-Virus\* soll an dieser Stelle jedoch nicht eingegangen werden. Vielmehr soll Bezug genommen werden auf einen verborgenen Faktor, der aus China im Zuge der globalen Pandemie zusammen mit dem Virus nach Deutschland kam.
-
-*[\*Anmerkung der Red.: Die Epoch Times bezeichnet das neuartige Coronavirus, das die Krankheit COVID-19 verursacht, auch als KPC-Virus, weil die Vertuschung und das Missmanagement der Kommunistischen Partei Chinas es dem Virus erst ermöglichten, sich zunächst in ganz China auszubreiten und anschließend eine globale Pandemie zu verursachen. Mehr dazu:*[*Leitartikel: Dem Virus den richtigen Namen geben*](https://www.epochtimes.de/china/china-politik/leitartikel-der-richtige-name-fuer-das-virus-das-zur-pandemie-fuehrte-a3192536.html)*]*
-
-Werbung für die Diktatur?
-
-„Chinas offizielle Corona-Zahlen sind seit Wochen niedrig – keine Toten, die Zahl der Neuinfektionen zumeist im zweistelligen Bereich“. Mit diesen Worten begann am 2. November ein Bericht der ARD-Mediensendung „Tagesschau“, der erklären wollte, warum es in China keine zweite Welle gebe, während „hierzulande erneut härtere Maßnahmen im Kampf gegen das Coronavirus ergriffen werden mussten“.
-
-*Im autoritär regierten China haben die Behörden Kontroll- und Durchgriffsmöglichkeiten, die in westlichen Demokratien undenkbar wären. Persönliche Freiheitsrechte oder Datenschutz spielen dabei keine Rolle – etwa bei der Nachverfolgung von Kontakten.“*
-
-*(*[*ARD-„Tagesschau“*](https://www.tagesschau.de/ausland/china-corona-137.html)*)*
-
-Funktionierende Bevölkerung
-
-Corona-Apps mit Bewegungsprofilen der Menschen würden schon zum Alltag gehören und beim Betreten von Geschäften, Cafés und Restaurants müsse ein QR-Code zur Registrierung gescannt werden. Bei auftretenden Infektionsherden würden Massentests gemacht, Lockdowns verhängt, Infizierte und Erkrankte strikt isoliert.
-
-Gesundheit sei schließlich wichtiger als Freiheit oder Datenschutz, sei die gängige Meinung laut Kirchner und gegen staatliche Maßnahmen vor Gericht zu klagen oder gar zu demonstrieren sei in der Volksrepublik ohnehin nicht möglich.
-
-Ohnehin seien die Testkapazitäten seit dem Frühjahr systematisch ausgebaut worden und die Nachbarschaftskomitees der Kommunistischen Partei seien seit jeher Teil der engmaschigen sozialen Kontrolle. Zudem verweist die „Tagesschau“ auf die Gehorsamkeit der Bevölkerung im Überwachungsstaat: „Diskussionen über das Für und Wider von Masken sind in China unbekannt.“ Die staatlichen „Schutzmaßnahmen“ würden in der Regel nicht infrage gestellt und das „Vertrauen in die Regierung ist hoch“, schreibt die derzeit in Berlin verweilende RBB-Journalistin Ruth Kirchner vom Pekinger ARD-Studio.
-
-Eine Frage des Vertrauens
-
-Der ARD-Beitrag brachte im Großen und Ganzen zwei gegensätzliche Meinungen in den Kommentaren hervor – die einen vertrauen auf die Richtigkeit der offiziellen Informationen aus China, die anderen stehen diesen kritisch gegenüber – eine Seite, die in dem ARD-Bericht überhaupt nicht aufgegriffen wurde:
-
-In einem der Kommentare unter dem Titel [„Von China lernen“](https://meta.tagesschau.de/id/147453/coronavirus-warum-gibt-es-in-china-keine-zweite-welle#comment-4320000) heißt es: „Dann wird es wohl Zeit von China (und anderen asiatischen Ländern die die Pandemie inzwischen gut im Griff haben) zu lernen. Bevor es zu spät ist.“ Ein anderer Leser schrieb unter der Überschrift [„Ich traue China niemals“](https://meta.tagesschau.de/id/147453/coronavirus-warum-gibt-es-in-china-keine-zweite-welle#comment-4319999): „es ist eine – sorry – menschenverachtende Diktatur. Und China ist bisher nicht für Wahrheit und Offenheit bekannt. Sondern immer nur das exakte Gegenteil. Es ist für mich von daher völlig irrelevant, welche ‚Meldungen‘ das Regime in China verbreitet.“
-
-1+
+0

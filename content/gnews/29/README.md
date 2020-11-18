@@ -1,53 +1,102 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 为什么人民币汇率只可能突然脆断
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/568234/)
+## 德语新闻翻译：危险的发展：德国电视一台今日新闻推动中国共产党式的病毒独裁
+` Himalaya Friends Germany` [轉載自GNews](https://gnews.org/zh-hans/568416/)
 
-文/Dong Dong  审/青椒文禧 图/YYZ
+**原文来自**：[德国大纪元报](https://www.epochtimes.de/)
 
-日前，中美大战进入白热化阶段，中共国经济也已进入内循环，外资大量撤资，美国在政治和经济上不断施压，种种迹象表明中共国经济已经千疮百孔。可汇率无丝毫贬值迹象，反而不断上涨，从两个月前的7.1逆势上涨到现在的6.8，表面坚挺的汇率似乎表明CCP经济尚能长时间支撑。或许3个月灭共只是美好希望，果真如像班农先生所说的那样，需要2年才可完成大业？就此问题，拉下人民币汇率的伪装，进一步给战友们树立灭共的信心。
+**作者：**STEFFEN MUNTER
 
-若要解释这种现象，就需知道人民币从未成为一种真正货币。货币必须能自由兑换，必须能体现商品的内在价值。1949年红色帝国建立，但50-60年代物资匮乏，手持人民币并不能自由购买商品。在计划经济时代，为控制物资分配，帝国开始发行各种“票证”，如粮票、油票、布票、月饼票等等。市场中商品价格统一定价，不可随市场需求涨跌，家庭凭票证获得购买资格。那时，为严控商品物资流动，出台“投机倒把”罪，法律禁止在异地间贩卖紧缺物资。票证更有价值，随之催生出票贩子，到外地之前常需用人民币从票贩子手中购买流动性强的票证。例如，全国粮票就比地市级粮票价格高。因此，商品价格无法体现市场的供需关系，人民币失去了货币为商品定价功能，它不是经济学所定义的货币。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17144609/%E5%9C%96%E7%89%87-1-37.png)
-图 1 各种粮票![]()
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17144740/%E5%9C%96%E7%89%87-1-38.png)
-图 2 1976年布票
+**发表时间：**2020年11月17日 更新时间：2020年11月17日 13:04
 
-1992年起，粮票开始逐步退出历史舞台。全国各省城乡逐步放开粮油销价，农产品全面推向市场，人民币逐渐脱离票证体系，但仍不是一种独立货币，人民币无法自由兑换其他货币。此时，汇率只对权贵和外国人有意义，对个人只是一种摆设，没有任何意义，因此汇率高低并不能反映人民手中实际财富的价值。为方便境外人士在境内消费，1979年央行推出了外汇劵，直到1995年才正式停止流通。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17145304/%E5%9C%96%E7%89%87-1-39.png)
-图 3 1块钱外汇劵
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17145246/%E5%9C%96%E7%89%87-2.png)
-图 4 100元外汇券
+**原文**[**链接**](https://www.epochtimes.de/politik/deutschland/gefaehrliche-entwicklung-tagesschau-promotet-corona-diktatur-von-chinas-kp-a3381688.html)**，**此链接在文章发表的当天下午已经不能访问。德语原文在译文的下面
 
-![]()从1955-1971年，人民币根本就不能自由兑换，但当时人民币的兑换汇率却是最高的，近16年时间内维持在平均2.4元水平（1美元兑换）。从1973年-1979年间，人民币汇率只做过几次调整，到1978年，人民币对美元汇率中间价为1.6元（1美元兑换）。因此，人民币汇率高并不意味着人民生活好，中共国经济繁荣。恰恰相反，在黑白颠倒的中共国，人民生活反而可能更为艰辛。例如，1959-1962年就发生了震惊中外所谓的三年自然灾害事件，而当年的人民币汇兑美元的价格是2.6元（1美元兑换）。现在，人民币汇率在7左右上下浮动，可以说远没有上世纪50-80年代值钱。但2.6只是账面上的数字，百姓无法获得外汇券，就根本没有兑换外汇的资格，更没有现在每年官方宣称的5万美元的自由兑换权。所以，需要纠正的错误观点是，“人民币汇率间接反应老百姓生活水平的高低，反应了中共国经济水平”。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17145338/%E5%9C%96%E7%89%87-3.png)
-图 5 人民币历年汇率
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17145429/%E5%9C%96%E7%89%87-4.png)
-图 6 1960年大饥荒汇率2.6
+**中文翻译：**文大石 DE，德国灭共战友团
 
-现在市场化的人民币汇率机制是从1992年邓小平南巡讲话后开始设计的。为了实现社会主义特色的市场经济，要允许自由贸易和放开外汇市场。从1994年1月1号开始外汇券也停止了流通，经济学专家经过加权计算，将汇率从一美元兑换5.8人民币，一次性贬到一美元兑换8.7人民币。汇率对于出口企业有很重要的意义，但是对于普通人来说，没有任何意义。90年代，国人几乎没有海外资产的概念，国内甚至还是分配房产，大部分人在国内都没有不动产。
+**编辑：**Mild Seven, Himalaya Friends Germany, [Telegram Channel](https://t.me/HimalayaFriendsGermany)
 
-中共国权贵清楚知道，美元才是真金白银。为垄断全国人民赚取的外汇，采用的是强制结汇措施。例如，东莞鞋厂以10美金售卖一双鞋子，政府收取美国客户的10美金，然后增发87人民币给企业。企业只能拿到人民币，而美金上交给了中共政府。
+**题目：**危险的发展：德国电视一台”Tagesschau”（今日新闻）推动中国共产党式的病毒独裁
 
-西方政府如何购买企业手中的外汇？正常情况下应该由财政部门拿国库中的钱从自由的经济市场回收外汇，国库中的钱类似于经济学中的存量货币，这种方法的好处是不会导致通货膨胀。但在中共国的强制结汇制度下，是央行直接印发钞票，即动用增量货币，而且是基础货币，来购买企业手中的外汇。当央行超发可加信用杠杆的基础货币后，一定会导致严重的通货膨胀。之所以老百姓在短时间内并没有明显感受到生活必须品的物价上涨，是因为中共国用房子吸纳了大多数的超发货币。
+中国压制了其国内医生所发出的各种警告，掩盖了新冠病毒疫情的爆发，并让数百万潜在的病毒超级传播者从武汉 “逃 “到世界各地后，独裁政府实行了严厉的封锁，并进一步加强了控制、监视和审查。与此同时，被欺骗和毫无准备的西方世界经历了一次凶猛的大爆发。现在各国政府都想在现行法律的临界范围，复制疫情中中共国的管控。
 
-众所周知，低价商品具有竞争力。为降低商品价格，就要降低生产资料价格。中共国将14亿人民当做为权贵赚取美金的工具，通过压榨劳动者的劳动力变相降低生产物资的价格，提高商品在国际市场上的竞争力，因此才成就了“中国制造”，但也是全世界最著名的“高税收 低福利”国家。所谓“解放生产力”是一种美丽的谎言，真正的目的是奴隶人民为权贵家族创造财富。中共国人民所体会到的是，超长工作时间和低薪酬，糟糕的医疗保障体系。中共国为了能降低产品价格，无视空气、水资源和大好河山的污染，在环保上鲜有资金投入，因为这会间接导致出口商品价格的上涨，影响到所谓的出口创汇的百年大计。试问，除了美国之外，还有哪个国家敢于和这种邪恶的国家竞争？西方民主国家政府绝不敢这样对待他们的人民和朋友，而中共国就敢光明正大的这样做！
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17145451/%E5%9C%96%E7%89%87-5.png)
-图 7 人民币汇改历程
+几天前，经理人、企业管理顾问和畅销书作家马库斯-克拉尔博士 (Dr. Markus Krall)（&lt;&lt;人民的革命&gt;&gt; Die bürgerliche Revolution，2020）在Twitter上警告说，一种危险即将到来。不过，这位经济学家并没有提到新冠病毒感染数字的上升，而是提到了另一个外来威胁。
 
-1994-2005年很长一段时间中共国的汇率没有任何变化。2001年加入WTO后，国外对人民币低汇率批评声音很大。迫于美国的压力，2005年进行了汇率改革，开始实行所谓有管理的浮动汇率。可以看出，美国人非常厌恶中共国政府这种没有底线的商品倾销战略，虽然人民币汇率仍旧受政府操纵，但自此之后美国政府的政策也能影响到人民币汇率的变化。2008年金融危机之后，中共国的出口逐渐疲软。但此时，中共国第一批依靠炒房炒股成长起来的韭菜已经逐渐成熟，收割时间已到！
 
-权贵与华尔街相互勾兑，拉高人民币汇率，开启一波收割韭菜的盛宴。拉高房地产价格，制造房地产虚假繁荣，新闻报道及时跟进，忽悠韭菜们入场。让银行提供优惠的贷款利率，鼓励贷款，掏空韭菜的钱包，再让其背上人民币债务。限制二手房交易时间为5年，将增发货币锁定到房产中，短时间内不会造成物价上涨。此时，权贵和境外资本将手中数年前低价购买的国内房产以超高价格抛售给韭菜们接盘。拉抬二级股市，造成虚假繁荣，散户前仆后继入场，直至韭菜占据了大半壁江山，权贵们手握原始股相视而笑，举刀收割。有眼光的人会像权贵家族一样，卖房卖股，在人民币汇率高位时，换成美金离开这个中共国建造的大赌场，到民主国家购买受西方法律保护的不动产和有信用的股票，安全上岸。但，悲惨的韭菜们，就这样被收割而不自知。因此，中共国的经济总是三年好，两年坏，循环割韭菜。汇率在国内经济最坏的时候突然出现上扬，那是权贵们离场的信号。
 
-中共国如此操纵汇率，令美国人越来越恼怒，2019年美国政府将中共国判定为汇率操纵国，但权贵们并未收敛。红色政权控制了人民的一切，他们有着极强的控制能力。为防止经济崩溃，将天量的超发货币和债务锁定到房产中，拉抬汇率后，从世界各国抓紧时间进口国内所需要的物资。按照常识，国家经济繁荣，汇率升高，股市上涨；国家经济低迷，汇率下降，股市下挫。中共国的怪事是，股市低迷，但汇率升高！人民币汇率已经成为一种政治操作下的经济现象，他的高低是为了服务于共产极权，而不是为市场经济服务。
+> Die eigentliche Gefahr der sogenannten "Pandemie" ist nicht die Ansteckung mit einem Virus, das aus China kommt, sondern mit dem totalitären System, das aus China kommt.
+> — Dr. Markus Krall (@Markus\_Krall) [November 11, 2020](https://twitter.com/Markus_Krall/status/1326621421951455234?ref_src=twsrc%5Etfw)
 
-在历史上，可比较的国家就是前苏联，同样也是共产主义集权国家，对汇率也实行的是国家管控。1991年苏共倒台之前，卢布对美元是1.6。虽然当年苏联的GDP增长是负数约-5%，但苏共仍保持着汇率不变，表现的无比之坚挺。苏共倒台后三天，俄罗斯银行直接将汇率调整到了黑市价格约27.6，这就是脆断！但，其实这还不是最糟糕的。1994年，白俄罗斯等加盟国独立成国家，决定发行自己的货币，放弃使用卢布。卢布需求量大大减少，俄罗斯需通过发行新版卢布替换旧版卢布，回收超发货币。新旧卢布兑换是1000:1，此事直接导致卢布卢布跌了1000倍，这才是暴跌！
 
-因此，在中共国未解体之前，红色政权依靠行政力量管控汇率，令其只会小幅波动。一旦红色政权濒临失控或已经解体，汇率就会在两三天内急速下挫，迅速冲击1:10，甚至是现在真实的1:20汇率。与苏联不同的是，苏共时期房产尚未实行市场化，居民住房依靠的国家分配，因此房地产没有泡沫化。这也就是为什么，苏共解体后，房产没有贬值，起到保值作用，俄罗斯的房价反倒是一飞冲天。中共国的房产已经实行了20多年的市场化，产生了天量的货币，如果中共国解体，
 
-房地产市场必定全面崩溃，所有人都会先后抛售以人民币计价的大宗商品，用以换取有信用的美金。到那时，虚假的经济泡沫被刺破，被红色政权隐藏的天量货币会如洪水猛兽一般冲击整个金融市场，数月内直接击穿1:100。甚至，人民币会在数月内从市场上消失。有投资眼光的人也可以适当保留一些精美的人民币，因为10年后它会成为一种像邮票一样具有珍藏价值的收藏品。
+**所谓’****大流行病’****的真正危险，不是感染了来自中共国的病毒，而是感染了来自中共国的极权制度。(****马库斯-****克拉尔博士)**
 
-应对这场危机最好的策略就是将手中人民币马上转换成G系列资产！倘若错过10月16日时间节点，在未来两年内就会直接中产变赤贫。即将消亡的红色政权，必定会挟持你们的生命和财产，不论你是否愿意，他都会在灭亡时带走你累积半生的财富。诺亚方舟即将启航，各位战友抓紧最后窗口期，行动起来，你就是整个家族唯一的守护者。
+对于中共病毒的危害性，科学界仍有不同的意见和争议，这里不做讨论。更值得注意的是：在全球病毒大流行的过程中，有一个隐蔽的潜行者和病毒一起从中国传到了德国。
 
-0
+*标注：《大纪元》把这种引发**COVID-19**疾病的新型冠状病毒称为中共病毒，因为中国共产党对疫情的掩盖和无能的管理，使得这种病毒首先在中国爆发，然后传播到全球成为大流行病。阅读更多：*[*编辑部：* *为病毒正名*](https://www.epochtimes.de/politik/ausland/leitartikel-dem-virus-den-richtigen-namen-geben-a3192536.html)*】*
+
+**为独裁统治做广告？**
+
+“中国官方的新冠病毒数据已经连续数周走低–没有死亡病例，新发感染人数大多为两位数”。这是11月2日德国电视一台ARD媒体节目 “Tagesschau “报道的开场白，它想解释为什么中国没有出现第二波病毒，“相应地在德国不得不采取更强硬的措施来对抗新冠疫情”。
+
+在威权主义的中国，政府部门有控制和干预的可能性，而这些在西方民主国家是不可想象的。个人自由权利或数据保密将被无视–例如在追踪感染者的问题上”。
+
+(德国电视一台今日新闻ARD-“Tagesschau”)
+
+**有效人口**
+
+带有个人轨迹追踪的新冠病毒app将会成为日常生活的一部分。每个人进入商店、咖啡馆和餐馆时，必须扫描二维码进行登记。一旦发生感染疫情，将进行大规模检测，实行封锁，严格隔离感染者和病人。
+
+健康比自由或数据保密更重要，这是Kirchner的观点。在这个人民的共和国内，将再不可能用法律行动反对政府政策，甚至反政府的示威游行。
+
+从年初以来，系统性地扩大了病毒检测能力，共产党的居委会一直是社会严密控制的一部分。此外，”Tagesschau “还指出了监视状态下民众的服从：”关于口罩的利弊讨论，在中国是没有的。“ 目前逗留在柏林的RBB记者，德国电视一台ARD驻北京记者Ruth Kirchner写道，国家的 “保护措施 “通常不会受到质疑，”对政府的信任度很高”。
+
+**信任问题**
+
+大体上，针对德国电视一台ARD的这篇文章，在评论区中产生了两种对立的意见–有些人相信中国官方信息的准确性，有些人则对其持批评态度–这一面在德国电视一台ARD报告中完全没有体现。
+
+其中一篇以 “向中国学习 “为题的评论说：”那么，现在可能是向中国（以及其他亚洲国家）学习的时候了，这些国家现在已经很好地控制了疫情。趁现在还来得及。” 另一位读者在 “我从不相信中国 “的标题下写道：”很遗憾，我只能说这是一个不人道的独裁国家，到目前为止，中国并不是以真实和开放著称的国家，而是恰恰相反。因此，中国政权的所谓“报道”对我来说毫无价值。”
+
+—
+
+德语原文：
+
+**Gefährliche Entwicklung: „Tagesschau“ promotet Corona-Diktatur von Chinas KP**
+
+VON [STEFFEN MUNTER](https://www.epochtimes.de/autor?q=Steffen%20Munter)17. NOVEMBER 2020 Aktualisiert: 17. November 2020 13:04
+
+Nachdem China die warnenden Stimmen seiner Ärzte zum Schweigen gebracht, den Corona-Ausbruch vertuscht und Millionen von potenziellen Superspreadern aus Wuhan in alle Welt “entkommen” gelassen hatte, verordnete die Diktatur einen harten Lockdown und verschärfte Kontrolle, Überwachung und Zensur noch weiter. Währenddessen erlebte die getäuschte und unvorbereitete westliche Welt ein böses Erwachen. Nun versuchen verschiedene Regierungen den Weg der KP Chinas in der Pandemie zu kopieren, soweit es die aktuell geltenden Gesetze gerade noch zulassen.
+
+Vor einigen Tagen warnte der Manager, Unternehmensberater und Bestsellerautor Dr. Markus Krall (Die bürgerliche Revolution, 2020) [auf Twitter](https://twitter.com/Markus_Krall/status/1326621421951455234) vor einer drohenden Gefahr. Allerdings verwies der Volkswirt nicht auf ansteigende Corona-Zahlen, sondern auf eine andere importierte Bedrohung:
+
+*Die eigentliche Gefahr der sogenannten ‚Pandemie‘ ist nicht die Ansteckung mit einem Virus, das aus China kommt, sondern mit dem totalitären System, das aus China kommt.“*
+
+*(Dr. Markus Krall)*
+
+Über die unterschiedlichen und kontrovers diskutierten wissenschaftlichen Meinungen zur Gefährlichkeit des KPC-Virus\* soll an dieser Stelle jedoch nicht eingegangen werden. Vielmehr soll Bezug genommen werden auf einen verborgenen Faktor, der aus China im Zuge der globalen Pandemie zusammen mit dem Virus nach Deutschland kam.
+
+*[\*Anmerkung der Red.: Die Epoch Times bezeichnet das neuartige Coronavirus, das die Krankheit COVID-19 verursacht, auch als KPC-Virus, weil die Vertuschung und das Missmanagement der Kommunistischen Partei Chinas es dem Virus erst ermöglichten, sich zunächst in ganz China auszubreiten und anschließend eine globale Pandemie zu verursachen. Mehr dazu:*[*Leitartikel: Dem Virus den richtigen Namen geben*](https://www.epochtimes.de/china/china-politik/leitartikel-der-richtige-name-fuer-das-virus-das-zur-pandemie-fuehrte-a3192536.html)*]*
+
+Werbung für die Diktatur?
+
+„Chinas offizielle Corona-Zahlen sind seit Wochen niedrig – keine Toten, die Zahl der Neuinfektionen zumeist im zweistelligen Bereich“. Mit diesen Worten begann am 2. November ein Bericht der ARD-Mediensendung „Tagesschau“, der erklären wollte, warum es in China keine zweite Welle gebe, während „hierzulande erneut härtere Maßnahmen im Kampf gegen das Coronavirus ergriffen werden mussten“.
+
+*Im autoritär regierten China haben die Behörden Kontroll- und Durchgriffsmöglichkeiten, die in westlichen Demokratien undenkbar wären. Persönliche Freiheitsrechte oder Datenschutz spielen dabei keine Rolle – etwa bei der Nachverfolgung von Kontakten.“*
+
+*(*[*ARD-„Tagesschau“*](https://www.tagesschau.de/ausland/china-corona-137.html)*)*
+
+Funktionierende Bevölkerung
+
+Corona-Apps mit Bewegungsprofilen der Menschen würden schon zum Alltag gehören und beim Betreten von Geschäften, Cafés und Restaurants müsse ein QR-Code zur Registrierung gescannt werden. Bei auftretenden Infektionsherden würden Massentests gemacht, Lockdowns verhängt, Infizierte und Erkrankte strikt isoliert.
+
+Gesundheit sei schließlich wichtiger als Freiheit oder Datenschutz, sei die gängige Meinung laut Kirchner und gegen staatliche Maßnahmen vor Gericht zu klagen oder gar zu demonstrieren sei in der Volksrepublik ohnehin nicht möglich.
+
+Ohnehin seien die Testkapazitäten seit dem Frühjahr systematisch ausgebaut worden und die Nachbarschaftskomitees der Kommunistischen Partei seien seit jeher Teil der engmaschigen sozialen Kontrolle. Zudem verweist die „Tagesschau“ auf die Gehorsamkeit der Bevölkerung im Überwachungsstaat: „Diskussionen über das Für und Wider von Masken sind in China unbekannt.“ Die staatlichen „Schutzmaßnahmen“ würden in der Regel nicht infrage gestellt und das „Vertrauen in die Regierung ist hoch“, schreibt die derzeit in Berlin verweilende RBB-Journalistin Ruth Kirchner vom Pekinger ARD-Studio.
+
+Eine Frage des Vertrauens
+
+Der ARD-Beitrag brachte im Großen und Ganzen zwei gegensätzliche Meinungen in den Kommentaren hervor – die einen vertrauen auf die Richtigkeit der offiziellen Informationen aus China, die anderen stehen diesen kritisch gegenüber – eine Seite, die in dem ARD-Bericht überhaupt nicht aufgegriffen wurde:
+
+In einem der Kommentare unter dem Titel [„Von China lernen“](https://meta.tagesschau.de/id/147453/coronavirus-warum-gibt-es-in-china-keine-zweite-welle#comment-4320000) heißt es: „Dann wird es wohl Zeit von China (und anderen asiatischen Ländern die die Pandemie inzwischen gut im Griff haben) zu lernen. Bevor es zu spät ist.“ Ein anderer Leser schrieb unter der Überschrift [„Ich traue China niemals“](https://meta.tagesschau.de/id/147453/coronavirus-warum-gibt-es-in-china-keine-zweite-welle#comment-4319999): „es ist eine – sorry – menschenverachtende Diktatur. Und China ist bisher nicht für Wahrheit und Offenheit bekannt. Sondern immer nur das exakte Gegenteil. Es ist für mich von daher völlig irrelevant, welche ‚Meldungen‘ das Regime in China verbreitet.“
+
+1+
