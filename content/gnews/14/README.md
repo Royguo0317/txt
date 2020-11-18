@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【字幕】11/17/2020文贵盖特：72小时会不会发生啊？
-` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/568203/)
+## 【字幕】11/14/2020文贵：共党不灭，世界没有安宁
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/568391/)
 
 制作： 【彩虹桥】
 
-1+
+0
