@@ -1,33 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 联邦选举委员会主席认定舞弊，美国“九层妖塔”中真相难觅
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/568144/)
+## 参与做假选票的费城黑帮老大或将反水自保
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/568225/)
 
-文/青椒文喜、拉丁boylatin              审核/文璟、YYZ
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17144313/capture-48.jpg)*图片来源：twitter.com*
+据美国保守派网站《网关评论家》（The Gateway Pundit）11月16日报道，川普总统团队的律师，也是社会活动家组织“美国法律与司法中心（The American Center for Law & Justice）”的执行董事乔丹·塞库洛（Jordan Sekulow），在推特上转发了《布法罗纪事报》（Buffalo Chronicle）的独家文章。该文章称，据说是费城黑帮头领、外号叫“瘦猴”的乔伊·梅利诺（Skinny Joey’ Merlino）有可能会揭发民主党特工的舞弊行为，以换取彻底抹消自己几十年的犯罪记录。
 
-早在上周五，联邦选举委员会主席Trey Trainor接受Newsmax采访就表明，仍在计票的各州存在选民舞弊现象，大选仍在走司法程序。
+《网关评论家》的报道指出，根据《布法罗纪事报》一名副编的消息，梅利诺很可能会愿意供出乔·拜登（Joe Biden）和宾州的政治特工，这些特工以每张10美元的价格向梅利诺订购了约30万张投给拜登的选票。
 
-[https://www.newsmax.com/newsmax-tv/trey-trainor-fec-trump-2020-election/2020/11/06/id/995772/](https://www.newsmax.com/newsmax-tv/trey-trainor-fec-trump-2020-election/2020/11/06/id/995772/)
+据匿名消息人士向《布法罗纪事报》透露，在大选日，当投票即将结束之时，一伙梅利诺信得过的人在费城南部的两处私人住所里专门用Sharpie笔填写选票。空白的原始选票据信是在投票结束几小时前，由费城选举办公室的民主党特工向梅利诺整箱提供的。晚上10点 左右，梅利诺的人马每小时能完成3,000多张选票，到了午夜，他们加快了速度，每小时可以完成6000多张。梅利诺给他“高效团”的时薪超过1000美元， 他们马不停蹄地连干了60多个小时，完成的假选票被装在无标记的纸箱里，放到了费城会展中心的外面。三天的工作量使他们爆敛了300万美元，而且全部是现金
 
-在参加” National Report “节目时，Trainor表示，不允许观察员观看计票过程的地方均可能涉及选民舞弊。尽管在法院的裁定下，特朗普竞选团队被允许派遣观察员在宾州从6英尺外观察计票，但柴纳说，选票观察者 “没有被允许以有效的方式进入投票点”。
+《布法罗纪事报》推测，事到如今，如果川普总统同意抹消梅里诺几十年的犯罪记录，包括豁免这次参与选举舞弊的罪行，这个家伙很可能会愿意在国会作证，揭发拜登的罪行。
 
-他指出，宾夕法尼亚州和其他州没有以透明的方式进行计票，”州法律允许这些观察员在那里。如果法律没有得到遵守，那么这次选举就是‘不合法的’”！
+《网关评论家》的报道最后指出，虽然无法证实《布法罗纪事》这篇文章的内容，但塞库洛作为川普总统团队的律师，推发这篇文章不会是没有依据的。塞库洛16日还在美国《极度新闻》（Newsmax）早上的电视节目里讨论了宾州非法选票的最新动态。
 
-尽管联邦选举委员会主席早已将确定拜登在竞选中存在舞弊。美国的主流媒体通过各种方式充当“言论打手”一层又一层地剥夺民众如实获得真相的权力。这一点像极了爆料革命提出的中共的宣传机器为中国人制造的“九层妖塔”。而这场举世瞩目的选战中，美国的“主流媒体”从曾经“第四权力”彻底堕落为“九层妖塔”。
+译评：为一己私利而走在一起的乌合之众，在危变时刻都会人人先求自保，所以最终永将是邪不压正。只有跟随爆料革命，坚持正道主义，追求真相，才能无坚不摧。我们奉劝还在魔道上徘徊的人：早下决心找寻正道。
 
-其中低层的误导如鼓吹“尽早投票”、“邮寄选票”利大于弊，以此诱导民众以邮寄选票这种易于舞弊操作的方式进行投票。更高一些的“妖塔”则在选举后有意不报对拜登选情不利的消息；例如纽约时报在今天的头版头条仍在说与选举委员会完全相反的言论。
+[原报道链接](https://www.thegatewaypundit.com/2020/11/trump-lawyer-tweets-article-alleging-philly-mob-boss-may-reveal-stole-election-exchange-full-expungement-criminal-record/)
 
-
-
-> Check out the statement from the chairman of the Federal Election Commission.
->  [pic.twitter.com/FBdZCGp5y9](https://t.co/FBdZCGp5y9) [https://t.co/wHlscfN1Xk](https://t.co/wHlscfN1Xk)
-> — Hans Mahncke (@HansMahncke) [November 11, 2020](https://twitter.com/HansMahncke/status/1326557113502535684?ref_src=twsrc%5Etfw)
+翻译报道：致敬香港！
+校对：文旺
 
 
-
-更具迷糊性的是如FOXnews这样的长期“挺川普”的“右翼”媒体。福克斯新闻先是抢先为拜登宣称拿下关键的亚利桑那州，接着不断播报拜登已经胜选的假消息。那最高一层的妖塔可能已经长期潜伏在川普的竞选团队身边，制造虚假情报……
-
-可喜的是，仍有说相的媒体如爆料革命的GTV/GNEWS，如Newsmax、The National Pulse。更为重要的是，正在进行的司法程序只认证据，不考媒体提供情报。Trainor说，川普竞选团队提出的诉讼是 “非常有效的指控”，需要法院系统 “充分审核”。他预测，一些法律程序很可能最终会进入最高法院裁决。
 
 0
