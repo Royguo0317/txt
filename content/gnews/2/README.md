@@ -1,15 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发！美国参议院社交媒体审查听证会中，两党多数立法者同意修改《通信规范法案》230条款
-` GM101` [轉載自GNews](https://gnews.org/zh-hans/569200/)
+## 震惊！选举安全专家发现密歇根州的票选结果完全是欺诈-当前的机器根本无法统计出报告时间段内大量飙升的拜登选票
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/569245/)
 
-美东时间11月17号，据大纪元报道美国参议院司法委员会举行的关于[社交媒体](https://www.epochtimes.com/gb/tag/%E7%A4%BE%E4%BA%A4%E5%AA%92%E4%BD%93.html)[审查](https://www.epochtimes.com/gb/tag/%E5%86%85%E5%AE%B9%E5%AE%A1%E6%9F%A5.html)[听证会](https://www.epochtimes.com/gb/tag/%E5%90%AC%E8%AF%81%E4%BC%9A.html)上，参议员们对推特（Twitter）和脸书（Facebook）的首席执行官提出了质疑，这两家公司审查并封闭了川普总统本人及其他保守派人士的有关美国大选的言论。
+翻译：康州农场- Antsee-GTV
 
-本次听证会的主题是“爆料新闻、审查制度、压制和2020年美国大选”。此前，共和党议员一致投票表决，如果这两个巨头公司的首席执行官不愿前来作证，就会传唤强制他们出庭作证。尽管个别民主党议员对本次听证会持有异议，但绝大多数两党议员一致认为应该改革《通信规范法案》[第230条](https://www.epochtimes.com/gb/tag/%E7%AC%AC230%E6%9D%A1.html)款，甚至应该将其完全废除。
+校对：康州农场- Robensenna
 
-《通信规范法》第230条，该法规保护科技公司免于对用户及其在线服务上发布的内容承担责任，同时允许他们对用户及相关内容进行审核，立法初衷为了保护社交言论自由，维护美国自由民主的立国之本。
+审核：康州农场-Truemanman
 
-推特和脸书等社交媒体利用了该法规对言论审查并打压，违法了立法初衷。推特此前无理由封停了英雄科学家闫丽梦博士的账号，试图阻止闫博士关于“中共超限生物武器”报告的公开，配合背后势力继续掩盖病毒真相。随后在大选期间封停了包括《纽约邮报》在内的媒体，关于民主党总统候选人乔·拜登犯罪事实的报道。后续更是对川普总统进行审查，大量查封川普总统言论，其背后是中共的蓝金黄控制，已经严重危害美国国家安全，川普总统将带领正义力量绝地反击！
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/18004536/russ-ramsland-wisconsin.jpg)
+拉斯·拉姆斯兰德，作为联合安全行动小组成员，参加鲁·道夫斯周二晚上的节目，讨论在密歇根州的总统选举。
+
+拉姆斯兰德确认投票是欺诈性的并且他握有证据！
+
+选举被盗窃了！
+
+拉斯·拉姆斯兰德说：我们之前一直在主要关注密歇根州。目前开始着眼于宾夕法尼亚州和佐治亚州。在密歇根州发现的简直太不可思议了。（该州）有超过3000个总统选举的投票选区，然而比较州务卿估计的选民数，比例从99％一路飙升到到350％。这些数字在现实世界中是不存在的。那么所有这些选票从哪里来？请看事实，当我们回过头来查看这些垃圾选票时发现，其中绝大部分都是拜登的选票，我们称之为选票飙升。回看追踪这些飙升的选票，我们已经发现选票被放到了哪里？主要是在四个县，我们已经看到投票用了多长时间。同时我们查看了所有在这些地区的投票设备，检查了设备序列号。
+
+**真实的情况是，以现有设备数量，在那个有限时间段里，没有任何物理途径的可能性，可以投出这样异常数目的选票。**
+
+原文链接：
+
+
+
+> [HUGE! Elections Security Expert Finds Michigan Results a COMPLETE FRAUD — Current Machines Do Not Have Capability to Count the Mass Dumps for Biden in Reported Time Period (VIDEO)](https://www.thegatewaypundit.com/2020/11/huge-elections-security-expert-finds-wisconsin-results-complete-fraud-current-machines-not-capability-count-mass-dumps-biden-reported-time-period-video/)
+
+
 
 0
