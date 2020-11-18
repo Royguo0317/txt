@@ -1,11 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法国遗传学家亚历山大 亨瑞翁-克劳德对新冠疫苗持谨慎态度
-` VOH欧洲战友团` [轉載自GNews](https://gnews.org/zh-hans/568405/)
+## 【字幕】11/14/2020文贵：没有你们爆料革命不行！没有你们灭不了共！
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/568434/)
 
-听写：Ikonic 翻译：Lina
-
-校对：Marie / Ikonic
+制作： 【彩虹桥】
 
 0

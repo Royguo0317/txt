@@ -1,28 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 华为出售旗下荣耀品牌意欲何为？
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/568283/)
+## 加独立企业联合会警告 逾22万家小企业将因疫情封锁倒闭
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/568295/)
 
-- 编辑：Victor Torres、文顺
-- 作者：神奇四侠
-- 素材：信心满满
+*多伦多加喜农场 ctt
+校对 文锦 上传 WJ*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17153514/Screen-Shot-2020-04-16-at-12.07.01-PM.png)图片来源：Flickr Creative Commons
+随着北半球冬季的来临，加拿大第二波疫情也到来了, 被中共病毒感染的人数激增，面临此困境，政府重新提出要重新实行封闭管理的措施。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17154420/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE23-1.png)加拿大中共病毒实时疫情 图片来源：一亩三分地
+加拿大独立企业联合会（CFIB）郑重警告，在重新实行封锁的城市和省份, 需要为受影响的企业提供财务支持, 这种支持应该是全面、即时和持续的, 因为这些企业不应承担因封锁而带来的经济损失，否则将有多达225,000家小型企业被迫永久关闭。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17153305/cfib_large.jpg)图片来源：ckfm
+CFIB指出联邦工资补贴已从75％降至65％, 并且新的加拿大紧急租金补贴（CERS）仍未得到参议院的批准。它希望各省为一些企业提供“追溯租金支持”, 这些企业是因为房东的原因而不能参加CECRA（加拿大紧急商业租金援助）。
 
+联邦政府希望对因疫情而下架的商品，采取一个公平的原则, 例如，如果服装店被关闭，则沃尔玛或Costco的服装部门也应关闭，这样可以避免大型商店出售“非必需品”。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+上周五，曼省总理道格·福特表示，一旦他的首席医疗官告诉他需重新采取封锁行动，他将毫不犹豫地这样做。迄今为止，曼尼托巴省是唯一一个全面实行封锁的省。
 
-11月17日，华为因无法持续获得产业技术，出售其旗下荣耀品牌相关业务。
+评论：随着冬季的来临，第二波疫情也到来了。加拿大政府及一些协会忙于如何进行区域封锁及对企业的补贴问题，没有人讨论病毒的真正来源是在哪里，如何切断病毒来源。要知道病毒的真正来源于CCP，要切断病毒的来源，就要消灭CCP，这才是加拿大和世界人民首先应该做的事。
 
-今晨，华为在官网发布声明表示，在产业技术要素不可持续获得、消费者业务受到巨大压力的艰难时刻，为让荣耀渠道和供应商能够得以延续，华为投资控股有限公司决定整体出售荣耀业务资产，收购方为深圳市智信新信息技术有限公司。对于交割后的荣耀，华为不占有任何股份，也不参与经营管理与决策。
+文章链接:
+[CFIB warns more lockdowns could kill 225,000 Canadian small businesses](https://thepostmillennial.com/cfib-warns-more-lockdowns-could-kill-225-000-small-businesses)
 
-据《新浪科技》报道，多家企业在《深圳特区报》发布联合声明，深圳市智信新信息技术有限公司已与华为投资控股有限公司签署了收购协议，完成对荣耀品牌相关业务资产的全面收购。接盘的深圳智信于2020年9月27日成立，由深圳国资委全资控股的深圳智慧城市科技发展集团持股98.6%，深圳国资协同发展私募基金合伙企业持股1.4%，该基金的出资人包括北京松联科技有限公司等在内的30余家荣耀代理商、经销商。
-
-12日川普总统发布行政命令，禁止美国投资者对中国军方拥有或控制的企业进行投资。此外，美國商務部在去年5月正式將華為列入“實體清單”，禁止美企向華為出售相關技術和產品。实际上华为已经举步维艰。 此次收购并不能转变相关产业的颓势，更大的意义在于给华为背后的权贵资本解套变现，而由深圳国资委出面利用财政和地方债等形式让老百姓消化承担损失。
-
-**参考链接：**[https://finance.sina.com.cn/tech/2020-11-17/doc-iiznctke1804290.shtml](https://finance.sina.com.cn/tech/2020-11-17/doc-iiznctke1804290.shtml)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
-
-0
+3+
