@@ -1,20 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国防部长米勒宣布特种部队向他汇报
-` GM99` [轉載自GNews](https://gnews.org/zh-hans/573003/)
+## 拜登过渡小组成员赞扬中共处理CCP病毒透明度，暴露双方勾结关系
+` GM77` [轉載自GNews](https://gnews.org/zh-hans/573079/)
 
-#### **战友之家新闻译制组**
+素材搜集：Lily
+翻译：喜马拉雅
+编辑：童谣 
+审核：WENJUN
 
-I am here to today to announce I directed special operation civilian leadership to report directly to me, instead of through the current bureaucratic channels.
-今天我宣布我命令特种作战的文官领导直接向我汇报，而不是通过目前的官僚渠道。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19083737/8-17.jpg)
 
-This historic step finalizes what Congress has authorized and directed, and will put special operations command on par with the military services for the first time.
-这个历史性的一步最终确定了国会授权和指示的内容，会第一次把特种作战指挥部和服役的军队结合起来。
+MASFIN照片来自网络
 
-This reform will immediately improve agility to the department and the command. And will enable us to streamline information flow, enhance decision making, and adaptly and adeptly support the command and their superb soldiers, sailors, airmen, and marines.
-这项改革会立刻改善国防部和指挥部的灵活性，会让我们能简化信息流程，增强决策，更熟练的支持指挥部和他们极棒的士兵、水手、飞行员和海军陆战队员。
+前奥巴马政府科学技术政策办公室的国家安全与国际事务处同僚，梅斯芬加入了拜登过渡团队，领导人文艺术机构审查小组。
 
-*来源：https://twitter.com/dachengnrc/status/1329102344831856641?s=12*
+梅斯芬主张中国共产党和美国之间建立更紧密的科学联系，并撰写了题为「为什么诺贝尔奖表明美中需要在基因编辑方面共同努力」的专栏文章。
+
+文章不把病毒起源归咎于中共，却认为「关于新冠病毒起源和传播的政治性主张」导致了美中「紧张的双边关系」。
+
+梅斯芬赞扬中共国处理新冠病毒的透明度，坚称「12月份中国研究人员公布了新冠病毒的基因序列」，「这些数据让国际科学界得以开发诊断测试和探索治疗方案」。实际上，即使到了12月下旬，中共官员仍在压制、恐吓试图传播病毒真相的医生。
+
+梅斯芬还感叹，”这场大流行是在全世界民族主义抬头的时候发生的”，她指出，”孤立无援和仇外心理不可能对这场全球危机产生有效的回应”。
+
+更重要的是，她似乎不同意「美国对中共国间谍活动和技术转让的担忧」，因为她坚持认为这些担忧 “限制了高层交往, 同时中国和美国之间的紧张关系进一步威胁到冠状病毒研究的进展。近年来，美国对中国间谍活动和技术转让的担忧阻碍了中美科学合作，美国高层学者因涉嫌秘密参与发展中国科学事业的项目而被起诉或解雇就是证明。这些紧张关系也限制了高层的接触，科技政策办公室没有让中国官员参与与外国同行的讨论就证明了这一点。
+
+2020美国总统大选并未在11月3日落幕，大选中出现了前所未有的大范围舞弊包括犯罪。总统人选还未合法宣布，但拜登过渡小组已经紧锣密鼓地成立，其组员也开始聒噪发声。做为前奥巴马政府科学技术政策办公室的国家安全与国际事务处同僚，梅斯芬加入过渡组成员后的言论可以看出其政策主张并未跳出奥巴马政府的执政思维。
+
+梅斯芬的言论主张明显地暴露出其与中共眉来眼去的轻佻，奥巴马政府包括过往与中共交往的美国各界政府大多是与中共接触甚至拥抱政策，这种接触和拥抱政策背后大致存在着明暗两种逻辑：希望中共国能够在经济发展之后政治上变得开化文明起来；希望拥抱中共能够获取巨大的个人、家族和集团的利益。
+
+中共国40年的改革开放并没有让其政治上走向开化文明，反而与政治文明渐行渐远。40年来华尔街却赚得盆满钵满并且越来越享受“拥有中国”这种奴隶主的感觉。这40年中共统治家族和华尔街及利益集团无疑是受益者，对立面的受害者是中国的老百姓，美国的老百姓，庚子年CCP病毒在美国和世界的肆虐，美国这次大选中前所未有的宪政危机就是这40年美国绥靖主义所结出的恶果！
+
+原文链接：
+[https://thenationalpulse.com/exclusive/biden-transition-china-science-collaboration/](https://thenationalpulse.com/exclusive/biden-transition-china-science-collaboration/)
 
 0

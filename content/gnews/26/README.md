@@ -1,33 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】工贼狗吠：逾 60 区议员涉「黑金黑暴」被捕　DQ 外亦要负法律责任
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/572891/)
+## 国防部长米勒宣布特种部队向他汇报
+` GM99` [轉載自GNews](https://gnews.org/zh-hans/573003/)
 
-搜集：卡西欧 文粤
+#### **战友之家新闻译制组**
 
-编撰：恩典
+I am here to today to announce I directed special operation civilian leadership to report directly to me, instead of through the current bureaucratic channels.
+今天我宣布我命令特种作战的文官领导直接向我汇报，而不是通过目前的官僚渠道。
 
-覆核：文粤
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19073906/jpg-ok-3.jpg)
-全国人大早前通过决定，授权港府DQ 4 名民主派议员，港澳办副主任张晓明昨日表明，人大决定后，「爱国爱港者治港、反中乱港者出局」已成法律，外界关注这「爱国」要求会否扩展至由民主派主导的区议会。工联会会长、全国人大吴秋北在FB 发文，列举63 名被捕或被控的区议员名单，指陆续有区议员因为「黑金黑暴」被捕，质疑「区议会不成了贼窝？ 」形容政府DQ 4 名民主派议员「大快人心」，紧接人们就「关心」区议员，但不是「DQ 了就万事大吉了」，他们亦要承担法律责任。
+This historic step finalizes what Congress has authorized and directed, and will put special operations command on par with the military services for the first time.
+这个历史性的一步最终确定了国会授权和指示的内容，会第一次把特种作战指挥部和服役的军队结合起来。
 
-吴秋北指，按人大的新规定，政府DQ 了四名立法会议员，之后外界就「关心」区议员，他认为公职人员必须以「爱国者为主体」，但这些「违法达义、违法上位」的区议员，并不单是DQ 就完事，「他们要承担的法律责任，个个不能少，件件都要算！」他的FB 帖文亦附有《文汇报》今日的报道「今年逾60 揽炒区员被捕被控」。
+This reform will immediately improve agility to the department and the command. And will enable us to streamline information flow, enhance decision making, and adaptly and adeptly support the command and their superb soldiers, sailors, airmen, and marines.
+这项改革会立刻改善国防部和指挥部的灵活性，会让我们能简化信息流程，增强决策，更熟练的支持指挥部和他们极棒的士兵、水手、飞行员和海军陆战队员。
 
-张晓明昨日出席《基本法》颁布30 周年法律研讨会，爱表「爱国论」，指爱国爱港者治港、反中乱港者出局是「天经地义」，已经是「一国两制」下的法律规范；全国港澳研究会副会长刘兆佳接受传媒访问时指出，张晓明讲话确立了「爱国者治港」的法律框架，相信将来「爱国」要求会扩展至区议会和选举委员会。
-
-战友点评：
-
-2019年11月24日的区议员选举打破回归中共以来所有选举的纪录，区议会选举中，逾294万名选民投票，累积投票率约71.2%，而且泛民主派、香港本土派高投票率顺利取得全港过半数民选议席，合共赢到388个民选议席，而亲中共派这次落选惨重，这次是香港人站起来向港奸林郑政府的不信任投票。
-
-通过2019年6月，逃犯条例修订草案掀起社会极大反对浪潮，1个月内出现两场超过100万人和200万人游行，香港人全面进入反共使命，中共最害怕民意选票，因此将今年9月份的立法会选举，借用中共病毒，不惜一切延迟立法会议员选举。
-
-这次中共派奴才放出信息，中共要全面管治香港，而《基本法》成中共的幌子，一国两制只不过是中共遮羞布，更明显下一步通过香港公安『武装』对区议员＂大开杀戒＂，无所不用其极地滥捕滥诉民选区议员，将不肯臣服中共的香港人全面打压，这是共产党政权的本性恶毒，容不下任何人对中共的任何批评和看法，自由民主法治信仰对于共产集团政权来讲就是恶梦。
-
-以上观点仅代表笔者本人
-
-新闻来源：立场新闻
-
-[https://www.thestandnews.com/politics/%E6%84%9B%E5%9C%8B%E8%80%85%E6%B2%BB%E6%B8%AF-%E5%85%A8%E5%9C%8B%E4%BA%BA%E5%A4%A7%E5%90%B3%E7%A7%8B%E5%8C%97-%E9%80%BE-60-%E5%8D%80%E8%AD%B0%E5%93%A1%E6%B6%89-%E9%BB%91%E9%87%91%E9%BB%91%E6%9A%B4-%E8%A2%AB%E6%8D%95-dq-%E5%A4%96%E4%BA%A6%E8%A6%81%E8%B2%A0%E6%B3%95%E5%BE%8B%E8%B2%AC%E4%BB%BB/](https://www.thestandnews.com/politics/%E6%84%9B%E5%9C%8B%E8%80%85%E6%B2%BB%E6%B8%AF-%E5%85%A8%E5%9C%8B%E4%BA%BA%E5%A4%A7%E5%90%B3%E7%A7%8B%E5%8C%97-%E9%80%BE-60-%E5%8D%80%E8%AD%B0%E5%93%A1%E6%B6%89-%E9%BB%91%E9%87%91%E9%BB%91%E6%9A%B4-%E8%A2%AB%E6%8D%95-dq-%E5%A4%96%E4%BA%A6%E8%A6%81%E8%B2%A0%E6%B3%95%E5%BE%8B%E8%B2%AC%E4%BB%BB/)
+*来源：https://twitter.com/dachengnrc/status/1329102344831856641?s=12*
 
 0
