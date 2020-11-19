@@ -1,13 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美英加澳新五国联合声明：中共强推国安法破坏香港自治并违法，中共当局必须尊重香港民意
-` GM101` [轉載自GNews](https://gnews.org/zh-hans/571601/)
+## 【聚焦】美国宪法律师 Ivan Raiklin: 270票不是必须的!
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/571760/)
 
-美东时间11月18号，美国国务院官网发布了一条关于香港的联合声明。该声明由澳大利亚、加拿大、新西兰、英国外交部长和美国国务卿联合发布，指出中共国在实施《国家安全法》和推迟9月份的立法会选举后，进一步损害了香港的高度自治、自由民主等权利。
+作者：Giselle / 文泓
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/18220526/Picture2-16.png)图片来源：墨尔本雅典娜农场设计组
+美国宪法律师 Ivan Raiklin 11月17日在推特上发文称，如果法律战、审计和调查，仍不能解决美国大选竞争问题，那么州议会可能会拒绝安排选举人的席位，最后获得最多选举人票的候选人将获胜， 270票不是必须的。
 
-声明指出在部分香港民选立法者提出指控后，中共及其控制的香港当局推迟了原定9月份的立法会选举，该行为是其破坏香港媒体自由行动的一部分。中共的行为违反了在联合国备案且具有法律约束力的《中英联合声明》，既违反了关于香港将享有“高度自治”的承诺，也破坏了香港的言论自由权。
+Ivan Raiklin在这条推文中说，截至美国时间11月17日，无争议的选票结果为：川普232票，拜登227票，有争议的票数是79张。
 
-声明敦促中共停止对香港合法权利的破坏，重新考虑针对香港民选立法机关的行动，并立即恢复立法会议员的席位。声明强调为保证香港的稳定与繁荣，中共国和香港当局必须尊重香港人民表达其合理关切和观点的渠道。
+Ivan Raiklin与早期技术初创公司合作，此外，他还在美国国家安全领域工作，为涉及投票权和第1、第14修正案索赔的人身安全案件和宪法诉讼案件提供咨询。
+在这条推文之下，摄影师Kevin Scott提问道：如果双方都没有拿到270张选票，是不是就不交给各州投票了？或者按每州一票计算？
 
+Ivan Raiklin：只需要大多数被委任的选举人。如果这79个选举人没有被任命，川普就会以232：227获胜，因为他拥有明显的多数被委任的选举人。
+笔者分析，美国选举制度规定，如果所有候选人都未能获得半数以上的270张选举人票，则由众议院从得票最多的前三名候选人中选出总统。1824年，约翰·昆西·亚当斯即在此种情况下，最后由众议院投票选举为总统（参见“权变选举”）。
+
+**【相关文章】国会可以在有争议的选举中选出总统
+**[https://theconversation.com/congress-could-select-the-president-in-a-disputed-election-149580](https://theconversation.com/congress-could-select-the-president-in-a-disputed-election-149580)
+
+**【相关美国宪法】
+**[https://www.senate.gov/civics/constitution\_item/constitution.htm](https://www.senate.gov/civics/constitution_item/constitution.htm)
+
+**【国家宪法解释条款】
+**[https://constitutioncenter.org/interactive-constitution/interpretation/article-ii/clauses/347](https://constitutioncenter.org/interactive-constitution/interpretation/article-ii/clauses/347)
+
+**国家宪法解释条款中的第二条的第1款中提到：**行政权应赋予美利坚合众国总统一人，总统任期四年，并与在同一任期内选出的副总统一起，按以下方式选举产生：
+
+- 每一州应按其立法机关可能指示的方式，任命与该州在国会中有权获得的参议员和众议员总数相等的选举人，但不得任命参议员或众议员；
+- 或在美国担任信托或营利职务的人为选举人。
+
+
+**附图：2020年总统大选互动地图**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/18220953/Screen-Shot-2020-11-19-at-1.09.07-pm.png)图片来源：[https://www.270towin.com/maps/jOP82](https://www.270towin.com/maps/jOP82) （截图于 EST 11/18/2020 @10pm ）
 0
