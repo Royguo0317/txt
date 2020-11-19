@@ -1,49 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “海妖”释放 人类自由
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/572848/)
+## 闫丽梦走进意大利——意媒YOUTUBE频道发布闫博士专访
+` GM10` [轉載自GNews](https://gnews.org/zh-hans/573173/)
 
-多伦多加喜农场 文𤦍(Manpui）
+**文/郭帅**
 
-校对 不动之光 上传 XM
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19070211/%E5%9B%BE%E7%89%871-28.jpg)图片来源：nymag.com
-据Humans are Free 2020年11月18日的报道,美国总统川普的法律团队成员西德尼·鲍威尔（Sidney Powell）称“海妖”已经释放出来了。
+（图片中：中共国政府和摧毁世界经济） 2020年11月9日，意大利网络媒体Databaseitalia 对英雄闫丽梦博士进行了专访。
 
-我们之前曾报道说，川普已任命他人取代马克·埃斯珀（Mark Esper）担任国防部长。川普一直在美国国防部（DoD）清理门户，不仅罢免了埃斯珀，而且还更换了许多其他官员，在五角大楼内创建了一个爱国特遣队，可以想象这会对国内叛徒执行大规模逮捕令（即试图通过与外国敌人合谋窃取选举），用捍卫美国的爱国者取代腐败的沼泽生物。
+在经过一系列的工作后，11月19日00:00，专门用于意媒Databaseitalia 的YOUTUBE频道，进行了意大利语和英语双在线直播，并报道了此次采访
 
-关于民主党与中共合谋进行的大规模、叛国性的选票盗窃和选举欺诈事件的揭露进程，在华盛顿特区乃至全国范围内正在发生巨大变化。
+以下为意媒意大利语频道文章： 
 
-鲍威尔说，“‘海妖’已被释放，您看到的仅仅是刚刚开始。”
+**标题：《闫丽梦博士—中共生物武器摧毁世界经济》**
 
-她在福克斯商业网络（ Fox Business Network ）加入鲁·道布斯（Lou Dobbs）节目的最新采访，详细解释了民主党人如何试图窃取选举而被抓获的。
+ “历史见证比访谈更重要。 闫博士她是一个伟大的人，冒着一切风险说出真相，因为她的令中共不爽的揭露，中共多次企图威胁她的生命，她被迫不得不逃到美国。
 
-到底什么是“海妖”？我们不确定，但是在过去的两天内，军事方面的空中运输出现了爆炸性增长，监视航空交通状况作为重大政治事件发生的前兆的专家芒克·韦克斯（Monkey Werx）对此进行了记录。
+（闫博士）这些言论使今天的许多人都清醒认清世卫组织和中国政府制造和传播病毒中的角色。 这是对所有人的警告，其中有充分记录的事实和证据，它警告每个国家和民族这一邪恶计划，剥夺我们所有人的自由和所有人健康的危险。 闫博士是现代女英雄的经典典范，她站在真理一边，并由明确提到了她在美国的支持者，新中国联邦的发起人Miles Guo先生。川普总统称她为‘铿锵玫瑰’。
 
-多个消息来源向我们证实，国防部的一个部门确实对德国法兰克福的Scytl服务器进行了突袭，获得了中央情报局（CIA）毫无保留的叛国性操纵票证。
+Take down the CCP, (打倒中国共产党）是所有人唯一的真正希望。” 
 
-还有昨晚从韦克斯拍摄的视频中，详细介绍了昨天和昨晚空中数量惊人的军用飞机（超过1,000架），其中包括从华盛顿特区到GITMO(关塔那摩湾拘押中心)的至少一次航班。韦克斯解释说，他认为可能发生“空中引渡”，这意味着全国各地的叛国分子被放到飞机上并在空中或在各个黑场（秘密监狱）进行盘问 。
+**策划/监制：郭帅
+编辑翻译：Civility（小C）**
+**采访：卢卡·拉贝拉（Luca La Bella） 
+翻译：乔治·法吉亚诺（Giorgio Faggiano） 
+配音：大卫·多纳托（Davide Donateo）** 
+[https://databaseitalia.it/](https://databaseitalia.it/) 
+**英文字幕： 战友之家译制组**
+Telegram: https：T.me/databaseitalia Databaseitalia
 
-这很可能被用来盘问和指证许多高层人士，他们现在意识到他们要么作为政府的证人作证，要么会被终身监禁（或更糟）。这些黑暗势力（deep state）抓住了诱饵，就掉入了川普的陷阱。川普拥有所有针对他们的证据，击落他们并捍卫美国。
+在此感谢G-News的合作! 感谢Steve Bennon和Miles Guo 所做的（几年来的）重要工作。 
 
-用著名的林·伍德律师（Attorney Lin Wood ）所言来做结束语：
-
-相信我，川普总统于11月3日在全国范围内赢得了历史性的压倒性胜利。请耐心等待。乔·拜登永远不会成为我们国家的总统。相反，乔·拜登将与许多其他人一起成为囚犯。
-
-请耐心等待！
-
-信任川普总统！
-
-这不仅表明我为此付出了时间和精力，而且实际上也反映了很多法律专业人士和普通人的全天候工作。我们国家的人民，坚定不移地揭露真相。
-
-众所周知，我100％确信川普将在美国总统职位上再待四年，而我也充满信心——乔·拜登和像他这样的人一直在试图窃取这次选举和犯罪多年。
-
-乔·拜登将入狱， 他们都将入狱。
-
-”这是一场新的美国革命”
-
-参考连接：[https://humansarefree.com/2020/11/sidney-powell-the-kraken-has-been-released.html](https://humansarefree.com/2020/11/sidney-powell-the-kraken-has-been-released.html)
-
-[https://www.distributednews.com/475151.html](https://www.distributednews.com/475151.html)
+意大利语配音版： [https://youtu.be/UOme3G-cGzg](https://youtu.be/UOme3G-cGzg) 
+英文版 [https://youtu.be/x\_pjKC-VuWU](https://youtu.be/x_pjKC-VuWU) 
+媒体： [https://www.databaseitalia.it/dr-li-meng-yan-il-ccp-un-arma-biologica-per-distruggere-le-economie-mondiali/](https://www.databaseitalia.it/dr-li-meng-yan-il-ccp-un-arma-biologica-per-distruggere-le-economie-mondiali/) 
+作者推特： [https://twitter.com/theqitalianpat1/status/1329348897895014400?s=21](https://twitter.com/theqitalianpat1/status/1329348897895014400?s=21)
 
 0

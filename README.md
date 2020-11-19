@@ -12,8 +12,8 @@
 
 
 
-### [郭先生盖特里面的神秘新加坡汇款人透露了什么玄机？](/content/gnews/1/README.md)
- ` 秘密翻译组G-Translators`
+### [快讯：特朗普检察官珍娜·埃利斯（Jenna Ellis）与鲁迪·朱利安尼（Rudy Giuliani）和迈克尔·弗林将军深夜合影开心聊什么？](/content/gnews/1/README.md)
+ ` 喜马拉雅农场新西兰站`
 
 ### [【文字版】路德时评2020.11.18晚间（路博艾冠谈）：美代理国防部长宣布“所有特种作战部队及情报部门直接向他汇报意味着什么？乔治亚州发现计票错误9626票给拜登意味着什么？密西根州川普发推最终还是没有签。](/content/gnews/2/README.md)
  ` 喜马拉雅-华盛顿DC站`
@@ -33,126 +33,126 @@
 ### [【聚焦】美国宪法律师 Ivan Raiklin: 270票不是必须的!](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【香港要闻】工贼狗吠：逾 60 区议员涉「黑金黑暴」被捕　DQ 外亦要负法律责任](/content/gnews/8/README.md)
- ` GM42`
+### [292期疫情战报](/content/gnews/8/README.md)
+ ` GM62`
 
-### [“海妖”释放 人类自由](/content/gnews/9/README.md)
+### [闫丽梦走进意大利——意媒YOUTUBE频道发布闫博士专访](/content/gnews/9/README.md)
+ ` GM10`
+
+### [川普行政令，叫停华尔街为中共军工融资](/content/gnews/10/README.md)
  ` gnewscanada`
 
-### [【路德社精选】11/12/2020 晚间节目](/content/gnews/10/README.md)
- ` 首尔喜韩农场`
-
-### [【热点播报】武则天他妈研究工作组是对中国历史文化的强奸](/content/gnews/11/README.md)
- ` 纽约香草山农场`
-
-### [2020年11月19日面具先生直播速记](/content/gnews/12/README.md)
- ` 康州喜马拉雅农场`
-
-### [全球化科技奴役的幕后神秘组织](/content/gnews/13/README.md)
- ` 墨尔本雅典娜农场`
-
-### [传染频发，打脸中共“无症状可防可控”](/content/gnews/14/README.md)
- ` Ronald`
-
-### [【军事快讯】防空拦截“对演”，中共只作“儿戏”](/content/gnews/15/README.md)
- ` Ronald`
-
-### [文贵说｜系列图片连载（五十）](/content/gnews/16/README.md)
- ` GM98`
-
-### [青海省西宁市列车将大面积停运，意欲何为？](/content/gnews/17/README.md)
- ` 首尔喜韩农场`
-
-### [【热点播报】印度拒绝RCEP，不会迫于全球压力，签署无用协议](/content/gnews/18/README.md)
- ` 纽约香草山农场`
-
-### [【香港新闻】中共加速掏空香港 立会工务小组会议　建制派仅用1个多小时通过6项拨款](/content/gnews/19/README.md)
- ` GM42`
-
-### [川普团队著名律师林伍德：最近收到大量死亡威胁（玫瑰看新闻2020.11.19）](/content/gnews/20/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [加国总理放奇言：大瘟疫提供机会 世界＂大重置＂上推特热搜](/content/gnews/21/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [黎明前夜：不灭共，没有人是安全的丨连载系列（完结）](/content/gnews/22/README.md)
- ` 康州喜马拉雅农场`
-
-### [【文雍漫谈】 中共国学生自杀与杀人案件频发，其背后的深层原因是什么？](/content/gnews/23/README.md)
- ` 为子孙爱七哥农场`
-
-### [黎明前夜：走出战友圈丨连载系列（三）](/content/gnews/24/README.md)
- ` 康州喜马拉雅农场`
-
-### [台军F-16战机失踪时段——中共“海大号”科考船一直在相关海域游弋!](/content/gnews/25/README.md)
- ` 快慢机`
-
-### [黑手党帮助拜登舞弊，消息引爆俄媒](/content/gnews/26/README.md)
- ` HimalayaRussia`
-
-### [黎明前夜：反洗脑 vs 再教育丨连载系列（二）](/content/gnews/27/README.md)
- ` 康州喜马拉雅农场`
-
-### [俄媒报道美国大选舞弊实况](/content/gnews/28/README.md)
- ` HimalayaRussia`
-
-### [黎明前夜：信仰丨连载系列（一）](/content/gnews/29/README.md)
- ` 康州喜马拉雅农场`
-
-### [数据显示：中共国粮食危机四伏](/content/gnews/30/README.md)
- ` GM77`
-
-### [视频11/19/2020 同声传译班农战斗室【EP515+EP516】](/content/gnews/31/README.md)
- ` 秘密翻译组G-Translators`
-
-### [新证据显示：亨特-拜登的生意与中共、俄罗斯能源有关](/content/gnews/32/README.md)
- ` GM77`
-
-### [【香港新闻】今年逾60 区议员被DQ 方便中共进一步在香港「捞」钱](/content/gnews/33/README.md)
- ` GM42`
-
-### [联合西方高校进行反洗脑和正道主义教育](/content/gnews/34/README.md)
- ` 纽约香草山农场`
-
-### [朱利安尼访谈：多米尼公司内部人员挺身爆料，十万张假选票被计算给拜登](/content/gnews/35/README.md)
- ` 康州喜马拉雅农场`
-
-### [视频11/18/2020 美国代理国防部长命令特种作战部队领导层直接向他汇报, 而不必通过现行官僚渠道](/content/gnews/36/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【香港要闻】邓炳强物业上周突还清贷款　前银行业人士：或政治原因被追款【美国制裁】](/content/gnews/37/README.md)
- ` GM42`
-
-### [两名男子伪造8,000名假选民登记申请遭41项指控](/content/gnews/38/README.md)
+### [美国卫生部在美国2020总统选举结果正式公布之前拒绝与乔∙拜登合作](/content/gnews/11/README.md)
  ` gnewscanada`
 
-### [视频11/14/2020 挺川大游行战友接受采访: 新中国联邦的中国人就是要打倒中共, 支持川普总统再任4年](/content/gnews/39/README.md)
- ` 秘密翻译组G-Translators`
+### [郭文贵先生今日动态（2020年11月18日）](/content/gnews/12/README.md)
+ ` vog_dongdong_vog`
 
-### [视频11/17/2020 川普发推: 乔·拜登被乌克兰列为A级重罪通缉名单!](/content/gnews/40/README.md)
- ` 秘密翻译组G-Translators`
+### [王岐山罕见露面彭博经济论坛 向拜登阵营喊话](/content/gnews/13/README.md)
+ ` GM77`
 
-### [佩洛西坏事做尽失民意，民主党江湖内讧罢免她！](/content/gnews/41/README.md)
- ` 喜马拉雅农场新西兰站`
+### [拜登过渡小组成员赞扬中共处理CCP病毒透明度，暴露双方勾结关系](/content/gnews/14/README.md)
+ ` GM77`
 
-### [视频【精华版粤语快报】【路德社】11.18：中共粮食危机爆发在即 川普获得大量选票体现民意支持](/content/gnews/42/README.md)
- ` GM42`
-
-### [中共拿起了镰刀再次挥向“有产者”消费税、个人所得税、房地产税](/content/gnews/43/README.md)
- ` GM08`
-
-### [重温武汉天河机场2019年9月18日举行的新型冠状病毒实战演练](/content/gnews/44/README.md)
- ` NewFOC`
-
-### [安徽郎溪护士在副院长家楼顶死亡 官方通告该院长已被免职 其他信息不便透漏](/content/gnews/45/README.md)
+### [山东一女子因无法怀孕被丈夫、公婆殴打致死 被告一审获刑二到三年](/content/gnews/15/README.md)
  ` GM108`
 
-### [中共科学家另一篇非结构蛋白nsp14论文与中共病毒有无关联](/content/gnews/46/README.md)
- ` NewFOC`
+### [【香草诗词汇】戴三个表](/content/gnews/16/README.md)
+ ` 纽约香草山农场`
 
-### [司法部报告：加强打击中共对美国的国安威胁](/content/gnews/47/README.md)
+### [美议员提法案 要求严审美中“姊妹城市”项目](/content/gnews/17/README.md)
+ ` GM77`
+
+### [【香草诗词汇】一个深度贫困村的纪实（四）](/content/gnews/18/README.md)
+ ` 纽约香草山农场`
+
+### [Dominion工程师作证选票站工作人员为拜登篡改投票记录](/content/gnews/19/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [视频国防部长米勒宣布特种部队向他汇报](/content/gnews/20/README.md)
+ ` GM99`
+
+### [民主制度绝不能亡于中共，正义终将战胜邪恶！](/content/gnews/21/README.md)
+ ` 首尔喜韩农场`
+
+### [凯尔·贝克尔先生称投票机公司是“乱伦”](/content/gnews/22/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [郭爆料串珠（103 &#8211; 2/2）惩贼行动之九：民主诈骗集团之吴建民，骂着共产党，微信要打赏](/content/gnews/23/README.md)
+ ` GM99`
+
+### [郭爆料串珠（103 &#8211; 1/2）惩贼行动之九：民主诈骗集团之吴建民，骂着共产党，微信要打赏](/content/gnews/24/README.md)
+ ` GM99`
+
+### [家人受到威胁， 密西根共和党人被迫承认选举结果](/content/gnews/25/README.md)
  ` gnewscanada`
 
-### [说人话解读中共暂停护照办理！从严审批公民出境意味着什么？](/content/gnews/48/README.md)
+### [【香港要闻】工贼狗吠：逾 60 区议员涉「黑金黑暴」被捕　DQ 外亦要负法律责任](/content/gnews/26/README.md)
+ ` GM42`
+
+### [“海妖”释放 人类自由](/content/gnews/27/README.md)
+ ` gnewscanada`
+
+### [【路德社精选】11/12/2020 晚间节目](/content/gnews/28/README.md)
+ ` 首尔喜韩农场`
+
+### [【热点播报】武则天他妈研究工作组是对中国历史文化的强奸](/content/gnews/29/README.md)
+ ` 纽约香草山农场`
+
+### [2020年11月19日面具先生直播速记](/content/gnews/30/README.md)
+ ` 康州喜马拉雅农场`
+
+### [全球化科技奴役的幕后神秘组织](/content/gnews/31/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [传染频发，打脸中共“无症状可防可控”](/content/gnews/32/README.md)
+ ` Ronald`
+
+### [【军事快讯】防空拦截“对演”，中共只作“儿戏”](/content/gnews/33/README.md)
+ ` Ronald`
+
+### [文贵说｜系列图片连载（五十）](/content/gnews/34/README.md)
+ ` GM98`
+
+### [青海省西宁市列车将大面积停运，意欲何为？](/content/gnews/35/README.md)
+ ` 首尔喜韩农场`
+
+### [【热点播报】印度拒绝RCEP，不会迫于全球压力，签署无用协议](/content/gnews/36/README.md)
+ ` 纽约香草山农场`
+
+### [【香港新闻】中共加速掏空香港 立会工务小组会议　建制派仅用1个多小时通过6项拨款](/content/gnews/37/README.md)
+ ` GM42`
+
+### [川普团队著名律师林伍德：最近收到大量死亡威胁（玫瑰看新闻2020.11.19）](/content/gnews/38/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [加国总理放奇言：大瘟疫提供机会 世界＂大重置＂上推特热搜](/content/gnews/39/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [黎明前夜：不灭共，没有人是安全的丨连载系列（完结）](/content/gnews/40/README.md)
+ ` 康州喜马拉雅农场`
+
+### [【文雍漫谈】 中共国学生自杀与杀人案件频发，其背后的深层原因是什么？](/content/gnews/41/README.md)
+ ` 为子孙爱七哥农场`
+
+### [黎明前夜：走出战友圈丨连载系列（三）](/content/gnews/42/README.md)
+ ` 康州喜马拉雅农场`
+
+### [台军F-16战机失踪时段——中共“海大号”科考船一直在相关海域游弋!](/content/gnews/43/README.md)
+ ` 快慢机`
+
+### [黑手党帮助拜登舞弊，消息引爆俄媒](/content/gnews/44/README.md)
+ ` HimalayaRussia`
+
+### [黎明前夜：反洗脑 vs 再教育丨连载系列（二）](/content/gnews/45/README.md)
+ ` 康州喜马拉雅农场`
+
+### [俄媒报道美国大选舞弊实况](/content/gnews/46/README.md)
+ ` HimalayaRussia`
+
+### [黎明前夜：信仰丨连载系列（一）](/content/gnews/47/README.md)
+ ` 康州喜马拉雅农场`
+
+### [数据显示：中共国粮食危机四伏](/content/gnews/48/README.md)
  ` GM77`
 
