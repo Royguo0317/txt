@@ -1,34 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普律师林·伍德收到大量死亡威胁
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/571481/)
+## 美英加澳新五国联合声明：中共强推国安法破坏香港自治并违法，中共当局必须尊重香港民意
+` GM101` [轉載自GNews](https://gnews.org/zh-hans/571601/)
 
-- 编辑：文顺
-- 翻译：Ranting
+美东时间11月18号，美国国务院官网发布了一条关于香港的联合声明。该声明由澳大利亚、加拿大、新西兰、英国外交部长和美国国务卿联合发布，指出中共国在实施《国家安全法》和推迟9月份的立法会选举后，进一步损害了香港的高度自治、自由民主等权利。
 
+声明指出在部分香港民选立法者提出指控后，中共及其控制的香港当局推迟了原定9月份的立法会选举，该行为是其破坏香港媒体自由行动的一部分。中共的行为违反了在联合国备案且具有法律约束力的《中英联合声明》，既违反了关于香港将享有“高度自治”的承诺，也破坏了香港的言论自由权。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+声明敦促中共停止对香港合法权利的破坏，重新考虑针对香港民选立法机关的行动，并立即恢复立法会议员的席位。声明强调为保证香港的稳定与繁荣，中共国和香港当局必须尊重香港人民表达其合理关切和观点的渠道。
 
-西班牙2020年11月19日电/喜西社/——川普总统的律师林·伍德（Lin Wood）18日发推表示，收到比正常数量更多的亵渎性电子邮件、侮辱和死亡威胁。
-
-林·伍德在推文中写道：“在过去的几天里，我收到了比正常数量更多的亵渎性电子邮件、侮辱和死亡威胁。我说了什么让任何一群人不高兴了吗？ 由于现在是我们国家的特殊时期，我不得不让我的贴身警卫处于高度警戒状态!”
-
-
-
-> I am receiving more than the normal number of profane emails, insults, & death threats in the last couple of days. Have I said something that has upset any group of people???
-> 
-> Since these are unique times in our country I have had to put my personal security guards on high alert! [pic.twitter.com/mZdDCgLUaw](https://t.co/mZdDCgLUaw)
-> — Lin Wood (@LLinWood) [November 17, 2020](https://twitter.com/LLinWood/status/1328829707048071170?ref_src=twsrc%5Etfw)
-
-
-
-林·伍德是当代美国知名维权律师，接过许多社会影响巨大的案子，最著名的是替17岁高中生尼克·山德曼（ Nicholas Sandmann）诉讼华盛顿邮报诽谤，最终获得高额庭外和解。日前，他加入了川普的法律团队，并开始反击本次美国大选中的选举舞弊和诈欺。
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
-
-4+
+0

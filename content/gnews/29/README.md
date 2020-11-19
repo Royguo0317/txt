@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/15/2020 郭先生直播：因为有信仰，班农先生在GTV、战斗室不取分文；音乐可以启智，爆料革命战友们要去唤醒每一个人
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/571861/)
+## 【粤语】11/14/2020文贵：没有你，爆料革命不行，没有你，灭不了共
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/571981/)
 
-By: 【秘密翻译组G-Translators】
-
+制作：战友之家粤语频道
+统筹：【文武全才】 剪輯：【文德】 【文桥】 配音：【John Chen】 文本 字幕：【文桥】
 1+

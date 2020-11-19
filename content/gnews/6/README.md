@@ -1,33 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国内粮食危机悄然逼近，请务必屯粮！
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/571454/)
+## 川普律师林·伍德收到大量死亡威胁
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/571481/)
 
-- 编辑：Victor Torres 、文顺
-- 作者：神奇四侠
+- 编辑：文顺
+- 翻译：Ranting
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-西班牙2020年11月18日电/喜西社/——中共中央11月17日发布《关于防止耕地“非粮化”稳定粮食生产的意见》（以下简称意见），以防止耕地“非粮化”来应对即将面临的粮食安全问题。
+西班牙2020年11月19日电/喜西社/——川普总统的律师林·伍德（Lin Wood）18日发推表示，收到比正常数量更多的亵渎性电子邮件、侮辱和死亡威胁。
 
-《意见》明确表示，受疫情影响，当前国际农产品市场供给不确定性增加，必须以稳定国内粮食生产来应对国际形势变化带来的不确定性。另据“中国产业海外发展协会“9月11日刊文，北京市粮食和物资储备局与黑龙江等8个粮食主产省（区）粮食和物资储备局，签署粮食产销合作协议，北京、天津和河北三地粮食和物资储备局还签署重大危机粮食安全协同互助协议。此外，中共干预美国大选导致中美关系急剧恶化，可能爆发冲突，这对中共国的粮食安全问题无疑是雪上加霜。
-
-面对种种困境，中共《意见》中却提出了要把粮田建成“一季千斤、两季一吨”的高标准粮田。但是根据中共统计局夏粮数据，中共国夏粮年平均亩产365公斤左右，算上冬粮每亩至少还有270公斤左右的缺口。历史总是惊人的相似，1958年-1961年“大跃进”时期，中共的“亩产万斤”言犹在耳，但后果是什么呢？
-
-据《大纪元》报道，安斯利·科尔(Ansley J. Coale)撰写的《从1952年到1982年中国人口的急剧变化》一书中统计，中国1958年到1963年的死亡人数大约是4,180万，但科尔认为这个数字含有水分；杨继绳撰写的《墓碑：中国六十年代大饥荒纪实》一书揭示，从1958年到1962年，中国饿死3,600万人，因饥饿少出生人数4,000万人，两者共计7,600万人；1993年，金辉以中共国家统计局发布的人口统计数字为依据得出结论：“仅仅中国农村的非正常死亡人数，就可能达4,040万。”
-
-爆料革命一直在提醒大家提放粮食危机，国内战友请做好准备手中有粮，心中不慌。
-
-**参考链接：**
-
-- [http://www.ciodpa.org.cn/index.php?m=content&c=index&a=show&catid=40&id=3507](http://www.ciodpa.org.cn/index.php?m=content&amp;c=index&amp;a=show&amp;catid=40&amp;id=3507)
-- [http://www.stats.gov.cn/tjsj/zxfb/201612/t20161208\_1439012.html](http://www.stats.gov.cn/tjsj/zxfb/201612/t20161208_1439012.html)
-- [https://www.epochtimes.com/gb/17/2/8/n8788821.htm](https://www.epochtimes.com/gb/17/2/8/n8788821.htm)
-- [http://www.gov.cn/zhengce/content/2020-11/17/content\_5562053.htm](http://www.gov.cn/zhengce/content/2020-11/17/content_5562053.htm)
+林·伍德在推文中写道：“在过去的几天里，我收到了比正常数量更多的亵渎性电子邮件、侮辱和死亡威胁。我说了什么让任何一群人不高兴了吗？ 由于现在是我们国家的特殊时期，我不得不让我的贴身警卫处于高度警戒状态!”
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
-0
+> I am receiving more than the normal number of profane emails, insults, & death threats in the last couple of days. Have I said something that has upset any group of people???
+> 
+> Since these are unique times in our country I have had to put my personal security guards on high alert! [pic.twitter.com/mZdDCgLUaw](https://t.co/mZdDCgLUaw)
+> — Lin Wood (@LLinWood) [November 17, 2020](https://twitter.com/LLinWood/status/1328829707048071170?ref_src=twsrc%5Etfw)
+
+
+
+林·伍德是当代美国知名维权律师，接过许多社会影响巨大的案子，最著名的是替17岁高中生尼克·山德曼（ Nicholas Sandmann）诉讼华盛顿邮报诽谤，最终获得高额庭外和解。日前，他加入了川普的法律团队，并开始反击本次美国大选中的选举舞弊和诈欺。
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+
+4+
