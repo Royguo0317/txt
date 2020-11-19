@@ -1,53 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】戴三个表
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/573064/)
+## 【精华版粤语快报】【路德社】11.18：特种部队直接受命于川普 法律战正义必赢 两党同意修改230法案
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/573302/)
 
-作者：香草山农场写作组   木白
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
-
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19083305/MOS0402-%E3%80%90%E9%A6%99%E8%8D%89%E8%AF%97%E8%AF%8D%E6%B1%87%E3%80%91%E6%88%B4%E4%B8%89%E4%B8%AA%E8%A1%A8.png)
-
-
-乌鸦代表喜鹊
-
-王八代表池塘
-
-拳头代表手，膝盖代表腿
+制作单位：战友之家-粤语组
+制作团队：路德二组（文雀、心安、文恩）
 
 
 
-拍马屁的代表不拍马屁的
+美代理国防部长宣布“所有特种作战部队及情报部门直接向他汇报”；乔治亚州发现计错9626票给拜登；川普亲证密揭根州未认证选举结果：美两党同意修改230法案
 
-不拍马屁代表沉默
-
-沉默代表笼中窒息的鸟
+原视频链接:
 
 
-
-书记代表、领导代表、大会代表
-
-党代表、军代表、人民代表
-
-将要死的想代表整个世界而活
-
-
-
-人们戴上三个表，数着钟声
-
-韭菜不爱镰刀，锤子砸下重磅的痛
-
-人民的怒吼是埋葬中共的丧钟
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
