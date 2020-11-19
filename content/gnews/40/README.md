@@ -1,49 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵说｜系列图片连载（五十）
-` GM98` [轉載自GNews](https://gnews.org/zh-hans/572640/)
+## 【军事快讯】防空拦截“对演”，中共只作“儿戏”
+` Ronald` [轉載自GNews](https://gnews.org/zh-hans/572598/)
 
-## 344.
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19041802/4-37.jpg)
-全世界去中国化的时候，香港是最好的证据、最好的抓手、最好的借口，这就是为什么说香港是我们的耶路撒冷，香港是我们的圣地。
+内军事：鹰(文言) 素材：文朝汗(部落) 校对：文迹～见证神迹
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19042445/image1-44-1.jpg)
+新浪网11月19日转载央视军事视频，称近日中共第71集团军在黄海滩头开展新型防空导弹实弹演练。但相比美军的标准-3拦截洲际弹道导弹，中共的此次演练无论是拦截能力和效果都只是“儿戏”水准。
 
-——郭文贵先生2020年4月11日
+根据此前中共军网2月14日的新闻，可以确定此次参与实弹射击的是红旗-16中程防空弹。
 
-## 345.
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19041852/3-54.jpg)
-共产党是给钱给命、给“双修”、给钱还给“乌纱帽”，没人干活。我们的爆料革命啥也不给，战友们抢着干活，还以此为荣。这就是今天的民心！民意！
+红旗-16使用垂直发射技术，海陆通用，红旗-16A作为陆军部队野战防空武器，由行军状态转为开火需12分钟，拦截距离约40km（改进型HQ-16B射程达70km），最大速度为4马赫，飞行高度为10-15000米。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19040628/image0-222.jpg)
+对比美军16日的防空拦截试验，靶弹为洲际弹道导弹，飞行达5500km，速度接近20马赫，而防空弹“标准”-3 2A速度达8马赫，拦截高度500km，拦截半径2500km。
 
-——郭文贵先生2020年2月18日
+此次中共的“反击”可谓是石投大海，不但拦截高度、速度等性能参数仅够后者的零头，而且12分钟的“拦截反应时间”更是毫无战力，以4马赫速度计算12分钟可达980km，远超HQ-16的最大拦截距离，换句话说实战情况，HQ-16根本无力拦截同速度等级的目标。
 
-## 346.
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19041938/2-68.jpg)
-爆料革命不会忘掉一个！为爆料革命付出的战友们！
+本想借此吹嘘军力，反而“自曝家丑”，更加证实了中美军力无异于鸡蛋与导弹的差距。
 
-——郭文贵先生2020年2月18日
-
-## 347.
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19042639/Screen-Shot-2020-11-19-at-5.26.10-PM.png)
-我们在前进的路上既要享受前进的快乐和愉悦，也要经常的低下头来扭过头去反思观察自己，总结过去走的路，让自己接下来要走的路更加愉悦快乐、更加的安全，更加欢快地、愉悦地走向成功。
-
-——郭文贵先生2018年9月16日
-
-## 348.
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19042016/5-31.jpg)
-没有粮食了，中国人就将输出贫穷，输出人道灾难。一定的！这不是谁意志为转移。
-
-——郭文贵先生2020年4月11日
-
-## 349.
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19042041/6-29.jpg)
-去中共化！已成全世界的一个共同的全人类的一个共同的声音。
-
-——郭文贵先生2020年4月11日
-
-## 350.
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19042028/1213.jpg)
-“病毒起源美国论”“全球感谢中国论”、“集体免疫不尊重人权论” “中国体制优越论”这是中国有史以来将在人类历史上留下最丑陋的篇章！
-
-——郭文贵先生2020年4月11日
+新闻来源：
+美媒认为：中国防空武器正超越俄罗斯
+[https://mil.eastday.com/a/200214121613320-4.html](https://mil.eastday.com/a/200214121613320-4.html)
+国产某新型防空导弹亮相，命中！
+[https://china.huanqiu.com/article/40lDSWSAREa](https://china.huanqiu.com/article/40lDSWSAREa)
 
 1+

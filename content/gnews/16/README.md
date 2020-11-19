@@ -1,37 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普行政令，叫停华尔街为中共军工融资
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/573180/)
+## 闫丽梦走进意大利——意媒YOUTUBE频道发布闫博士专访
+` GM10` [轉載自GNews](https://gnews.org/zh-hans/573173/)
 
-多伦多加喜农场 JSDL
+**文/郭帅**
 
-校对 不动之光 上传 XM
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19091003/%E5%9B%BE%E7%89%875-8.jpg)图片来源：ps4france.com
-美国资本不应该被用于支持中共的军事武器构建与发展，它们显而易见地被用于伤害美国人，并将美国军事力量驱赶出亚洲地区。川普总统最近签署的一个行政令，对华尔街的这种癫狂行为叫停。
+（图片中：中共国政府和摧毁世界经济） 2020年11月9日，意大利网络媒体Databaseitalia 对英雄闫丽梦博士进行了专访。
 
-多年来，中共在 “军民融合 “的国家战略下，强迫所有在中共国经营的公司，无论外国公司或者中共国公司，都去支持国家的军事和情报活动。该战略目的是确保任何科研技术类企业，从半导体、5G通信、航空航天及核技术、到人工智能和量子计算，都能推进中共的军事目标。
+在经过一系列的工作后，11月19日00:00，专门用于意媒Databaseitalia 的YOUTUBE频道，进行了意大利语和英语双在线直播，并报道了此次采访
 
-众多中共国公司构成了中共军工综合体，通过在美国和外国交易所，公开售卖股权和债券等筹集资金。因而美元资金被用来制造弹药，令PLA （中国人民解放军）的陆、海、空、导弹、太空和网络部队，如喷气式战斗机一般转动起螺旋桨来准备起飞。
+以下为意媒意大利语频道文章： 
 
-由于华尔街输送了巨额美元资金给中共国库，数百万美国人却面对自己辛辛苦苦所得的积蓄被置于危险境地而无能为力。许多州，包括阿拉斯加、俄亥俄州、新泽西州、加利福尼亚州和德克萨斯州的养老基金，都被用于资助中共国的快速军事动员。这些必须停止。
+**标题：《闫丽梦博士—中共生物武器摧毁世界经济》**
 
-根据1999年的《国防授权法》，国防部需要编制一份在美经营的公司名单，列出那些与中共军方有关系的企业。当时国会明智地担心，中共国加入世界贸易组织将使中共能够获得增强中共国军事力量、威胁美国及其盟友的国防技术。20多年后，名单还没有制定出来，而国会的担心已经成为可怕的现实。
+ “历史见证比访谈更重要。 闫博士她是一个伟大的人，冒着一切风险说出真相，因为她的令中共不爽的揭露，中共多次企图威胁她的生命，她被迫不得不逃到美国。
 
-在川普总统的领导下，2020年6月，国防部终于公布了一份名单，列出直接或间接在美国经营的中共军工企业。该名单在8月份进行了增补，列示的31家企业涵盖了涉及中共军事冒险的所有行业。
+（闫博士）这些言论使今天的许多人都清醒认清世卫组织和中国政府制造和传播病毒中的角色。 这是对所有人的警告，其中有充分记录的事实和证据，它警告每个国家和民族这一邪恶计划，剥夺我们所有人的自由和所有人健康的危险。 闫博士是现代女英雄的经典典范，她站在真理一边，并由明确提到了她在美国的支持者，新中国联邦的发起人Miles Guo先生。川普总统称她为‘铿锵玫瑰’。
 
-例如中国航空工业集团（中航工业）制造的第五代战斗机成都歼-20，它正是基于从五角大楼窃取的F-22 和F-35的设计。华为是人工智能之战的尖兵。海康威视如集中营的奥威尔之眼，数字卫星实时监控。
+Take down the CCP, (打倒中国共产党）是所有人唯一的真正希望。” 
 
-例如中国船舶工业公司。它正在酝酿制造用于击沉我们的航母，并将美国驱赶出太平洋的设施。这真是十分荒诞，美国养老金领取者和投资人去支持这类行动。
+**策划/监制：郭帅
+编辑翻译：Civility（小C）**
+**采访：卢卡·拉贝拉（Luca La Bella） 
+翻译：乔治·法吉亚诺（Giorgio Faggiano） 
+配音：大卫·多纳托（Davide Donateo）** 
+[https://databaseitalia.it/](https://databaseitalia.it/) 
+**英文字幕： 战友之家译制组**
+Telegram: https：T.me/databaseitalia Databaseitalia
 
-川普总统的新行政令，叫停了美国对这些现在是以及任何将来要成为中共国军工企业的这类掠夺性企业的投资。因为它们被CCP利用来伤害美国人的生命和损害美国人的积蓄。
+在此感谢G-News的合作! 感谢Steve Bennon和Miles Guo 所做的（几年来的）重要工作。 
 
-在未来，不仅这些中共国公司将失去为中共军力发展提供动力的资金流入，更重要的是美国人的储蓄将不再被华尔街的逐利者输送到国外。
-
-川普总统一次又一次勇敢地站出来，反对中共对美国经济和金融体系的恶意操纵。他强调的两个简单准则：买美国货，雇美国人。 这项新的行政命令只是其中一项，在过去四年川普总统采取了数十项大胆行动清单，以保护美国人和我们的家园。
-
-参考链接：
-
-[https://thehill.com/blogs/congress-blog/foreign-policy/526531-trumps-order-puts-a-halt-to-america-financing-chinas](https://thehill.com/blogs/congress-blog/foreign-policy/526531-trumps-order-puts-a-halt-to-america-financing-chinas)
+意大利语配音版： [https://youtu.be/UOme3G-cGzg](https://youtu.be/UOme3G-cGzg) 
+英文版 [https://youtu.be/x\_pjKC-VuWU](https://youtu.be/x_pjKC-VuWU) 
+媒体： [https://www.databaseitalia.it/dr-li-meng-yan-il-ccp-un-arma-biologica-per-distruggere-le-economie-mondiali/](https://www.databaseitalia.it/dr-li-meng-yan-il-ccp-un-arma-biologica-per-distruggere-le-economie-mondiali/) 
+作者推特： [https://twitter.com/theqitalianpat1/status/1329348897895014400?s=21](https://twitter.com/theqitalianpat1/status/1329348897895014400?s=21)
 
 0
