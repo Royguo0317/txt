@@ -1,70 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Dominion掩饰身份 利用CISA声明回避指控
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/569053/)
+## 川普律师林·伍德收到大量死亡威胁
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/571481/)
 
-收集：JAY 
-编撰: WENJUN 
-复核：文非
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/17232021/3-49.jpg)图为一名选民抵达明尼苏达州明尼阿波利斯市的一个投票点。 (Stephen Maturen/Getty Images)
-**网络安全和基础设施安全局（****CISA****）声明该次总统选举是美国历史上最安全的选举**
+- 编辑：文顺
+- 翻译：Ranting
 
-在Dominion投票机疑成为[选举舞弊](https://www.epochtimes.com/gb/tag/%E9%80%89%E4%B8%BE%E8%88%9E%E5%BC%8A.html)的工具，备受公众质疑后，美国国土安全部（DHS）下属的“网络安全和基础设施安全局”（CISA）却于11月12日发表声明，针对这些指控提出异议，称“11月3日的选举，是美国历史上最安全的选举”。
 
-然而，该机构却没有披露，实际上Dominion公司正是CISA的“选举基础设施部门协调委员会”（Election Infrastructure Sector Coordinating Council，简称SCC）的成员，该委员会即是发布本次CISA声明的两个单位之一。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-此外，受到大量关注的独立投票机公司Smartmatic，也是该委员会的成员。
+西班牙2020年11月19日电/喜西社/——川普总统的律师林·伍德（Lin Wood）18日发推表示，收到比正常数量更多的亵渎性电子邮件、侮辱和死亡威胁。
 
-针对Dominion、Smartmatic是否涉入发布CISA声明一事，该机构没有回应置评的要求。
+林·伍德在推文中写道：“在过去的几天里，我收到了比正常数量更多的亵渎性电子邮件、侮辱和死亡威胁。我说了什么让任何一群人不高兴了吗？ 由于现在是我们国家的特殊时期，我不得不让我的贴身警卫处于高度警戒状态!”
 
-CISA有关11月3日选举完整性的联合声明，是由“选举基础设施政府协调委员会”（Election Infrastructure Government Coordinating Council，简称GCC）和“选举基础设施部门协调委员会”（SCC）一同发布。前者是地方政府官员和政府机构组成的执行委员会，后者是投票系统制造商组成，其中还包括“民主工作组织”（Democracy Works），该组织致力于运用科技提高选民的政治参与。
 
-声明称：“没有证据表明，任何投票系统曾删除、丢失或篡改选票，或以任何方式让选票受到损害。”“虽然我们知道，有许多毫无根据的说法，以及有关我们选举过程的错误信息，但我们可以向你们保证，我们对选举安全性和完整性有极大的信心，你们也应该如此。”声明中说。
 
-包括川普总统的法律团队在内，一些有关选举完整性的指控，都集中在Dominion公司和Smartmatic公司的投票系统上。这两间公司都否认了公众对其系统的担忧。
+> I am receiving more than the normal number of profane emails, insults, & death threats in the last couple of days. Have I said something that has upset any group of people???
+> 
+> Since these are unique times in our country I have had to put my personal security guards on high alert! [pic.twitter.com/mZdDCgLUaw](https://t.co/mZdDCgLUaw)
+> — Lin Wood (@LLinWood) [November 17, 2020](https://twitter.com/LLinWood/status/1328829707048071170?ref_src=twsrc%5Etfw)
 
-两家公司都是SCC的成员，且似乎积极参与，它们都是SCC的“组织委员”（Organizing Members）。SCC的主要目标之一是“担任选举各子部门，包含：联邦、州和地方机构、国土安全部（DHS）等之间的主要联络人，以及关注私人选举部门的安全性和紧急应变措施”。
 
-委员会的章程指出，该单位的主要任务是“根据美国现行法律，提高国家选举基础设施的物理安全性、网络安全性和应急应变能力。这一任务将由委员会里的基础设施拥有者和运营商自愿完成”。
 
-**CISA****仅充当商业供应商与政府的接口，依赖商业供应商，**** Dominion****公司利用****CISA****否认指控。**
+林·伍德是当代美国知名维权律师，接过许多社会影响巨大的案子，最著名的是替17岁高中生尼克·山德曼（ Nicholas Sandmann）诉讼华盛顿邮报诽谤，最终获得高额庭外和解。日前，他加入了川普的法律团队，并开始反击本次美国大选中的选举舞弊和诈欺。
 
-CISA说，它“致力于确保支持国家选举系统的物理安全和网络安全”，包括选民登记数据库、管理选举的IT基础系统、投票系统、选票存储设施、提前投票的场所等。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
 
-实际上，CISA似乎仅充当了商业供应商与州和地方政府之间的接口。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
 
-“CISA致力于与州政府、地方政府、选举官员、联邦合作伙伴和供应商合作，以管理国家选举基础设施的风险。”该机构在网站上表示。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
-正如CISA指出的那样，他们没有直接监督或负责管理美国的选举，这个责任在于州和地方政府。
-
-11月12日，有媒体详细介绍了投票观察者、知名电子投票安全专家哈里·赫斯蒂（Harri Hursti）在8月24日的宣誓声明（sworn statement）中，对Dominion投票系统完整性的担忧。
-
-赫斯蒂的观察是于今年6月9日乔治亚州的全州初选，以及8月11日的复选期间进行的，主要围绕着Dominion系统和设备。
-
-赫斯蒂将他的发现总结如下。
-
-1. 目前采用的扫描和制表软件设置，在判读手工标记的选票时，很可能致使某些选票，有意地不被计算。
-
-2. 富尔顿县投票系统的运行方式，让安全风险提升到了极高的水平。
-
-3. 选民没有检查填票机打印的选票，然而经过统计，填票机打印出的结果并不可靠，这将导致选票无法采计。
-
-作为文章的一部分，我们于11月11日联系了Dominion公司，就赫斯蒂宣誓声明中的指控发表评论，该公司没有回应。我们的文章是在11月12日上午发表的。当天下午，CISA发表声明，否认投票系统有任何问题。
-
-第二天，也就是11月13日，Dominion公司给我们发来一封题为“澄清事实：事实与谣言”（SETTING THE RECORD STRAIGHT: FACTS & RUMORS）的电子邮件，其中引用了CISA发表的联合声明。
-
-Dominion在邮件中，丝毫没有透露它与CISA有任何联系，也没有透露它是SCC的活跃成员。尽管，Dominion本身即是发布声明委员会的成员之一，该邮件却以第三方的方式，引用了CISA声明。
-
-Dominion在给《大纪元时报》的邮件中称，“根据负责美国选举安全的联邦政府机构，国土安全部网络安全与基础设施安全局（CISA）的联合声明：没有证据表明，任何投票系统曾删除、丢失或篡改选票，或以任何方式让选票受到损害。支持这项任务的政府&私营部门委员会称，2020年的选举是‘美国历史上最安全的选举’。”
-
-**纸里终将包不住火，****FISA****法庭或将一锤定罪相关方**
-
-根据路德社11.15日直播节目中的信息，朱利安尼披露Dominon母公司为SmartMatic—查韦斯创建、中共红杉资本投资，选票信息均发送到国外远程操控，该行为适用FISA法庭（外国情报监控）。既然路德社能够公开披露该信息，相信Dominion犯罪证据已经实锤，其罪责难逃！
-
-同时，美国大选所牵涉出来的中共黑手也是无处遁形，川普总统将绕开两党政治，对准中共干涉大选，结合情报优势，FISA法庭无需陪审团秘密判决，该判决与最高法平行，中共将会被一击毙命！
-
-参考链接：
-[https://www.epochtimes.com/gb/20/11/17/n12555512.htm](https://www.epochtimes.com/gb/20/11/17/n12555512.htm)
-
-0
+4+
