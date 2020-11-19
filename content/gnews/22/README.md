@@ -1,74 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共科学家另一篇非结构蛋白nsp14论文与中共病毒有无关联
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/572088/)
+## 联合西方高校进行反洗脑和正道主义教育
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/572370/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19001330/%E5%B0%81%E9%9D%A2-23.png)
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19024426/12345-3.jpg)
 
-据新华网2009年02月17日10:30发布的[武汉大学科研人员发现SARS冠状病毒致命点](https://www.baidu.com/link?url=fHZWytHyUN70PLarGnybCAdf_FPqFwo6J-ksaBJRz2jVY01Wr0ijwe4O4XYoYFSQYk18q8CbptsB-qMr65lCV_&amp;wd=&amp;eqid=a144684f00004d8f000000025fb5cce4)：
 
-［参与攻关的科研人员陈宇解释，**“非结构蛋白nsp14”为病毒遗传信息“乔装打扮”，让免疫系统识别不出，不知不觉中将大量病毒送入了要袭击的地方，并为病毒传递起到保护作用。此外，它还是将其基因变成病毒生病蛋白的核心，没有这组编码，再多基因也变不成病毒。**郭德银教授则表示，可通过这个系统，找出某种对SARS病毒这一功能有害、但对人体无害的物质，进而研发成小分子药物。］
 
-根据这条信息笔者扒出了郭德银的[Functional screen reveals SARS coronavirus nonstructural protein nsp14 as a novel cap N7 methyltransferase](https://www.pnas.org/content/106/9/3484.short)（功能筛选显示SARS冠状病毒非结构蛋白nsp14为新型帽N7甲基转移酶）发表信息是： PNAS March 3, 2009 106 (9) 3484-3489; [https://doi.org/10.1073/pnas.0808790106（2009年3月3](https://doi.org/10.1073/pnas.0808790106（2009年3月3)日发表）。
+作者：香草山写作组 妖刀
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19025025/11191.jpg)
+随着以美国为首的西方各国在郭先生所倡导的爆料革命的影响下，开始逐渐认清CCP的邪恶本质。各国政府开始要求其本国的教学和研究机构逐渐关闭CCP对西方年轻人洗脑的触角之一“孔子学院”，减轻CCP对西方年轻人的毒害，并开始排查CCP的资本对西方学术机构的影响。更进一步开始严格限制中国留学生的人数，因为无法从中辨别其中谁是CCP的间谍。CCP对中国人从幼儿园就开始的洗脑教育，以及现在更加强调的“课程思政”，要把洗脑巧妙的融入大学生所有的课程学习中，要把CCP恶毒意志的注入中国人尤其是年轻人的灵魂中，称作“铸魂育人”，从而实现对党国的坚贞不渝！这些被重塑灵魂的青年学子，潜意识里都有振兴CCP党国的基因，客观上确实每个人都有可能是CCP的间谍。充满境外各高校的小粉红，屡屡频发的科技间谍和盗窃，似乎也印证了这一点。更可怕的是这些学有所成的回国精英，由于其灵魂深处长期被CCP植入的毒素，使其很容易说服自己为了CCP党国的伟大利益，可以放弃所有的道德和底线。于是这些“精英”开始兢兢业业的为党国的各种超限战施展自己的才华，比如研究病毒生化武器，比如冷血地向平民投放，再比如研究巧妙和隐蔽的算法干扰民主国家神圣的选举过程，操控其选举结果。这次CCP病毒的研发的领军者，哪个不是海外回国的精英和人才。他们认为只要能使CCP党国伟大复兴，所有肮脏的手段都是“正当”的，不会受到良心的谴责。西方各国受到伤害后，开始慢慢关闭对中国学子的留学通道，进而避免为自己培养潜在而强大的敌人。西方国家的出于自保的这些防守行为，对中国人的未来影响是极大的。这会使得中国人被现代文明和科技所隔离，会导致中华民族的退化。郭先生很早就看到这一点，所以对西方国家慢慢关闭中国留学生通道的做法表示反对，也对看到这件事逐渐变成现实非常悲伤，因为这熄灭了中国人的希望和未来。这些学子中绝大多数都是中国老百姓的孩子，他们富有天赋而且勤奋（比如斯坦福大学的张首晟先生，他本应该像闫博士一样成为优秀华人的代表），只是他们的心灵从小就别无选择的被CCP污染一直到大学。新中国联邦和未来没有CCP的新中国，最终还是要中国人来建设，我们需要这些海外留学的优秀青年人才。我们要推动的不是让西方国家为了自身安全而把中国优秀的孩子拒之门外。这是消极的防守，失去了聪明勤奋的中国人参与，对西方国家和整个人类文明和科技的发展都是巨大的损失。大家都知道只有进攻才是最好的防御，我们要推动的是让西方国家和我们新中国联邦一起对CCP发起“进攻”，而不是消极的防御。除了打破CCP的防火墙，还要对中国人尤其是中国的年轻人进行反洗脑教育，这一过程可能会很漫长但意义重大，这也是郭先生最近所强调的。
 
-另据生物通于2015年07月13日发布的[饶子和院士、张荣光研究员发表重要病毒成果](http://www.ebiotrade.com/newsf/2015-7/2015710170907580.htm)：
+之前西方的高校只是培养和提高了中国留学生的专业知识，是他们具备了很好的专业研究能力。但这些只是从“术”的层面使中国留学生掌握了高超的技能，却并没有在“道”的层面去洗涤中国留学生的灵魂，去除CCP在他们头脑中注入的毒素。在当下左派思维盛行的西方高校，再结合CCP的孔子学院等机构，CCP在中国留学生头脑中注入的毒素，在西方高校不但没有消除，反而有加深的趋势。在这种情况下他们掌握的技能越高，反而可能产生的潜在危害越大，比如这次CCP病毒，再比如这次操控美国大选的作弊计票程序。郭先生说过“西方是资本主义，有资本才有主义。”西方多数的著名高校都属于私立学校，需要资本的捐助和学术经费的投入，CCP正是看出了这一点后，用它掠夺来的14亿奴隶的雄厚资本，捐助西方高校和科研机构，成立新的学院，并投入经费参与高科技研究。CCP成了资本方，也就逐渐掌握了对这些高校和科研机构聘用人员、研究方向等方面的话语权，同时和西方高校的左派思潮呼应和勾结，控制西方高校的学术和言论自由。已经被洗脑十几甚至几十年的中国留学生在这种环境下，反而对CCP和邪恶的共产主义更加认同。最终导致西方高校在不断的培养西方文明的掘墓人。
 
-［生物通报道：冠状病毒（CoV）是目前基因组最大的一种RNA病毒，能够感染人类引起多种急性和慢性疾病，其中最引人注目的就是SARS和最近困扰韩国的MERS。!冠状病毒的庞大基因组编码了结构蛋白、非结构蛋白和一些辅助蛋白。科学家们发现，**冠状病毒的非结构蛋白14（nsp14）对于病毒的复制和转录很重要。该蛋白的N端具有核糖核酸外切酶（ExoN）结构域，该结构域的校读功能可以防止基因组出现致死性突变。而nsp14的C端结构域具有甲基转移酶活性（N7-MTase），负责对病毒mRNA进行加帽。**不过，人们并不了解nsp14行使这些重要功能的分子基础。清华大学的饶子和（Zihe Rao）院士和中科院生物物理所的张荣光（Rongguang Zhang）研究员领导研究团队，首次揭示了nsp14–nsp10复合体的结构基础，并对其进行了功能分析。这一成果发表在七月九日的美国国家科学院院刊PNAS杂志上。（延伸阅读：饶子和院士发表埃博拉研究重要成果）］ ，据此笔者找到下面这篇论文——
+现在西方正义的力量已经开始做出纠正，关闭CCP成立的孔子学院，清理CCP资助的各种经费。未来在川普总统新的4年任期里，美国的保守力量也要将美国的高校和研究机构从左派的共产主义思潮中逐渐纠正回来，抢救美国的下一代和未来。随着我们新中国联邦和爆料革命实力的不断强大，和G系列资本的快速壮大。未来除了要成立我们新中国联邦自己的大学和研究机构以外，新中国联邦和各农场可以捐助美国当地的大学，成立宣传“正道主义”和“反洗脑教育”的学院，用我们正义的资本替代CCP投入美国高校和科研机构进行真正对人类有益的科学研究。这时新中国联邦就成了资本方，逐渐对美国高校的用人和学术氛围有了充分的话语权，可以使我们新中国联邦培养的，具有正道主义精神的华人精英成为美国高校和学术机构的重要力量。我们可以要求美国高校制定规则：“正道主义”和“认清CCP的反洗脑教育”课程是中国留学生的必修课程，并且要占重要比例的学时和学分，“正道主义”和“认清CCP的反洗脑教育”课程的评价，对中国留学生能否最终获得学位具有决定性的作用。在“正道主义”和“认清CCP的反洗脑教育”课程中，新中国联邦人运用真实的事例，定能逐渐消除CCP对中国留学生灵魂的污染，使他们在获得高深专业技能的同时，培养了“正道主义”信仰。三年时间的爆料革命能够感召如此之多的国内外战友，那么在中国留学生3～5年的留学生活中通过“正道主义”和“认清CCP的反洗脑教育”课程的不断教育，这些留学生中的绝大多数，都会逐渐成为我们新中国联邦的队伍，成为美国真正的盟友而不是潜在的敌人，他们会反过来去消灭CCP，并成为未来没有CCP的新中国建设和振兴中华名族的真正中坚力量。正如郭先生所说“实力决定一切！”，新中国联邦和爆料革命在郭先生的引领下，已经显现出超凡的实力。在不远的未来，新中国联邦和爆料革命将凝聚更多亿万战友的力量携手美国，共同改变中国人民和世界人民的未来！
 
-**[Structural basis and functional analysis of the SARS coronavirus nsp14–nsp10 complex](https://www.researchgate.net/publication/279966953_Structural_basis_and_functional_analysis_of_the_SARS_coronavirus_nsp14-nsp10_complex)****（SARS冠状病毒nsp14–nsp10复合体的结构基础和功能分析）**
+审核：浪迹天涯
 
-**作者：**
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
 
-[Yuanyuan Ma](https://pubmed.ncbi.nlm.nih.gov/?term=Ma+Y&amp;cauthor_id=26159422) [1](https://pubmed.ncbi.nlm.nih.gov/26159422/#affiliation-1)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-1Laboratory of Structural Biology, School of Life Sciences, Tsinghua University, Beijing 100084, China; 1清华大学生命科学学院结构生物学实验室，北京100084；
-
-[Lijie Wu](https://pubmed.ncbi.nlm.nih.gov/?term=Wu+L&amp;cauthor_id=26159422) [2](https://pubmed.ncbi.nlm.nih.gov/26159422/#affiliation-2)
-
-2National Center for Protein Science Shanghai, Shanghai Institutes of Biological Sciences, Chinese Academy of Sciences, Shanghai 200031, China;中国科学院上海生物科学研究所上海国家蛋白质科学中心，上海200031；
-
-[Neil Shaw](https://pubmed.ncbi.nlm.nih.gov/?term=Shaw+N&amp;cauthor_id=26159422) [3](https://pubmed.ncbi.nlm.nih.gov/26159422/#affiliation-3)
-
-3National Laboratory of Biomacromolecules, Institute of Biophysics, Chinese Academy of Sciences, Beijing 100101, China; 中国科学院生物物理研究所生物大分子国家重点实验室，北京100101；
-
-[Yan Gao](https://pubmed.ncbi.nlm.nih.gov/?term=Gao+Y&amp;cauthor_id=26159422) [1](https://pubmed.ncbi.nlm.nih.gov/26159422/#affiliation-1),
-
-1Laboratory of Structural Biology, School of Life Sciences, Tsinghua University, Beijing 100084, China; 1清华大学生命科学学院结构生物学实验室，北京100084；
-
-[Jin Wang](https://pubmed.ncbi.nlm.nih.gov/?term=Wang+J&amp;cauthor_id=26159422) [4](https://pubmed.ncbi.nlm.nih.gov/26159422/#affiliation-4)
-
-4State Key Laboratory of Biotherapy and Cancer Center, Sichuan University, Chengdu, Sichuan 610041, China; Collaborative Innovation Center for Biotherapy Chengdu, Sichuan 610041, China. 四川大学生物治疗与癌症中心国家重点实验室，四川成都610041； 生物疗法合作创新中心，四川成都610041。
-
-[Yuna Sun](https://pubmed.ncbi.nlm.nih.gov/?term=Sun+Y&amp;cauthor_id=26159422) [3](https://pubmed.ncbi.nlm.nih.gov/26159422/#affiliation-3)
-
-National Laboratory of Biomacromolecules, Institute of Biophysics, Chinese Academy of Sciences, Beijing 100101, China; 中国科学院生物物理研究所生物大分子国家重点实验室，北京100101；
-
-[Zhiyong Lou](https://pubmed.ncbi.nlm.nih.gov/?term=Lou+Z&amp;cauthor_id=26159422) [1](https://pubmed.ncbi.nlm.nih.gov/26159422/#affiliation-1)
-
-1Laboratory of Structural Biology, School of Life Sciences, Tsinghua University, Beijing 100084, China; 1清华大学生命科学学院结构生物学实验室，北京100084；
-
-[Liming Yan](https://pubmed.ncbi.nlm.nih.gov/?term=Yan+L&amp;cauthor_id=26159422) [1](https://pubmed.ncbi.nlm.nih.gov/26159422/#affiliation-1)
-
-1Laboratory of Structural Biology, School of Life Sciences, Tsinghua University, Beijing 100084, China; 1清华大学生命科学学院结构生物学实验室，北京100084；
-
-[Rongguang Zhang](https://pubmed.ncbi.nlm.nih.gov/?term=Zhang+R&amp;cauthor_id=26159422) [5](https://pubmed.ncbi.nlm.nih.gov/26159422/#affiliation-5)（张荣光）
-
-5National Center for Protein Science Shanghai, Shanghai Institutes of Biological Sciences, Chinese Academy of Sciences, Shanghai 200031, China; National Laboratory of Biomacromolecules, Institute of Biophysics, Chinese Academy of Sciences, Beijing 100101, China;中国科学院上海生物科学研究所上海国家蛋白质科学中心，上海200031； 中国科学院生物物理研究所生物大分子国家重点实验室，北京100101； [email protected] [\[email protected\]](/cdn-cgi/l/email-protection#55272f3d343b321526203b607b3c37257b34367b363b).
-
-[Zihe Rao](https://pubmed.ncbi.nlm.nih.gov/?term=Rao+Z&amp;cauthor_id=26159422) [6](https://pubmed.ncbi.nlm.nih.gov/26159422/#affiliation-6)（饶子和）
-
-6Laboratory of Structural Biology, School of Life Sciences, Tsinghua University, Beijing 100084, China; National Center for Protein Science Shanghai, Shanghai Institutes of Biological Sciences, Chinese Academy of Sciences, Shanghai 200031, China; National Laboratory of Biomacromolecules, Institute of Biophysics, Chinese Academy of Sciences, Beijing 100101, China; State Key Laboratory of Biotherapy and Cancer Center, Sichuan University, Chengdu, Sichuan 610041, China; Collaborative Innovation Center for Biotherapy Chengdu, Sichuan 610041, China 清华大学生命科学学院结构生物学实验室，北京100084； 中国科学院上海生物科学研究所上海国家蛋白质科学中心，上海200031； 中国科学院生物物理研究所生物大分子国家重点实验室，北京100101； 四川大学生物治疗与癌症中心国家重点实验室，四川成都610041； 生物治疗协同创新中心，四川成都610041
-
-用谷歌翻译的论文摘要内容是：
-
-［冠状病毒（CoV）的非结构蛋白14（nsp14）对于病毒复制和转录很重要。 N末端外切核糖核酸酶（ExoN）域在防止致死突变中起校对作用，C末端域用作mRNA封端的（鸟嘌呤-N7）甲基转移酶（N7-MTase）。这两个功能的分子基础是未知的。在这里，我们描述了严重急性呼吸综合征（SARS）-冠状病毒nsp14与其激活非结构蛋白10（nsp10）和功能性配体的复合物的晶体结构。一分子nsp10与nsp14的ExoN相互作用以使其稳定并刺激其活性。尽管nsp14 ExoN的催化核心让人想起校对的核酸外切酶，但两个锌指的存在使它与同系物区分开。诱变研究表明，这两个锌指对nsp14的功能至关重要。我们表明，DEEDh（五个催化氨基酸）主题驱动核苷酸切除。 N7-MTase结构域表现出非典型的MTase折叠，具有罕见的β-折叠插入和周围的锌指。帽前体鸟嘌呤-P3-腺苷-5’，5′-三磷酸和S-腺苷甲硫氨酸在两个β-折叠之间高度收缩的口袋中紧密结合以完成甲基转移。据我们所知，我们的研究提供了RNA病毒校对涉及的nsp14-nsp10复合体的结构的第一印象。］
-
-论文发表时间信息：Proc Natl Acad Sci U S A . 2015 Jul 28（2015年7月28日）;112(30):9436-41. doi: 10.1073/pnas.1508686112. Epub 2015 Jul 9.
-
-关于饶子和的视频资料[中科大校友饶子和院士团队成功解析非洲猪瘟病毒结构](https://v.qq.com/x/page/j3011fd28ec.html)（沙漠里的绿茶 2019年10月20日发布）
-
-（文章内容仅代表作者个人观点）
-
-1+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19024426/12345-3.jpg)
+0

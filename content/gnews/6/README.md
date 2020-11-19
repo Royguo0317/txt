@@ -1,34 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普律师林·伍德收到大量死亡威胁
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/571481/)
+## 【聚焦】美国宪法律师 Ivan Raiklin: 270票不是必须的!
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/571760/)
 
-- 编辑：文顺
-- 翻译：Ranting
+作者：Giselle / 文泓
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/18220526/Picture2-16.png)图片来源：墨尔本雅典娜农场设计组
+美国宪法律师 Ivan Raiklin 11月17日在推特上发文称，如果法律战、审计和调查，仍不能解决美国大选竞争问题，那么州议会可能会拒绝安排选举人的席位，最后获得最多选举人票的候选人将获胜， 270票不是必须的。
+
+Ivan Raiklin在这条推文中说，截至美国时间11月17日，无争议的选票结果为：川普232票，拜登227票，有争议的票数是79张。
+
+Ivan Raiklin与早期技术初创公司合作，此外，他还在美国国家安全领域工作，为涉及投票权和第1、第14修正案索赔的人身安全案件和宪法诉讼案件提供咨询。
+在这条推文之下，摄影师Kevin Scott提问道：如果双方都没有拿到270张选票，是不是就不交给各州投票了？或者按每州一票计算？
+
+Ivan Raiklin：只需要大多数被委任的选举人。如果这79个选举人没有被任命，川普就会以232：227获胜，因为他拥有明显的多数被委任的选举人。
+笔者分析，美国选举制度规定，如果所有候选人都未能获得半数以上的270张选举人票，则由众议院从得票最多的前三名候选人中选出总统。1824年，约翰·昆西·亚当斯即在此种情况下，最后由众议院投票选举为总统（参见“权变选举”）。
+
+**【相关文章】国会可以在有争议的选举中选出总统
+**[https://theconversation.com/congress-could-select-the-president-in-a-disputed-election-149580](https://theconversation.com/congress-could-select-the-president-in-a-disputed-election-149580)
+
+**【相关美国宪法】
+**[https://www.senate.gov/civics/constitution\_item/constitution.htm](https://www.senate.gov/civics/constitution_item/constitution.htm)
+
+**【国家宪法解释条款】
+**[https://constitutioncenter.org/interactive-constitution/interpretation/article-ii/clauses/347](https://constitutioncenter.org/interactive-constitution/interpretation/article-ii/clauses/347)
+
+**国家宪法解释条款中的第二条的第1款中提到：**行政权应赋予美利坚合众国总统一人，总统任期四年，并与在同一任期内选出的副总统一起，按以下方式选举产生：
+
+- 每一州应按其立法机关可能指示的方式，任命与该州在国会中有权获得的参议员和众议员总数相等的选举人，但不得任命参议员或众议员；
+- 或在美国担任信托或营利职务的人为选举人。
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-西班牙2020年11月19日电/喜西社/——川普总统的律师林·伍德（Lin Wood）18日发推表示，收到比正常数量更多的亵渎性电子邮件、侮辱和死亡威胁。
-
-林·伍德在推文中写道：“在过去的几天里，我收到了比正常数量更多的亵渎性电子邮件、侮辱和死亡威胁。我说了什么让任何一群人不高兴了吗？ 由于现在是我们国家的特殊时期，我不得不让我的贴身警卫处于高度警戒状态!”
-
-
-
-> I am receiving more than the normal number of profane emails, insults, & death threats in the last couple of days. Have I said something that has upset any group of people???
-> 
-> Since these are unique times in our country I have had to put my personal security guards on high alert! [pic.twitter.com/mZdDCgLUaw](https://t.co/mZdDCgLUaw)
-> — Lin Wood (@LLinWood) [November 17, 2020](https://twitter.com/LLinWood/status/1328829707048071170?ref_src=twsrc%5Etfw)
-
-
-
-林·伍德是当代美国知名维权律师，接过许多社会影响巨大的案子，最著名的是替17岁高中生尼克·山德曼（ Nicholas Sandmann）诉讼华盛顿邮报诽谤，最终获得高额庭外和解。日前，他加入了川普的法律团队，并开始反击本次美国大选中的选举舞弊和诈欺。
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
-
-4+
+**附图：2020年总统大选互动地图**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/18220953/Screen-Shot-2020-11-19-at-1.09.07-pm.png)图片来源：[https://www.270towin.com/maps/jOP82](https://www.270towin.com/maps/jOP82) （截图于 EST 11/18/2020 @10pm ）
+0
