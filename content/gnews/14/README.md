@@ -1,44 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 现在正是你们“大显身手”的时候 — 两议员要求负责“通俄门”官员调查本次大选
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/573974/)
+## 第二次封城来了，加拿大人可能会拒绝居家隔离
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/574009/)
 
-作者：小蚂蚁在行动 / Giselle
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19183205/Screen-Shot-2020-11-20-at-9.31.47-am.png)图片说明：共和党国会议员吉姆·乔丹
- (Jim Jordan左) 和詹姆士·卡莫（James Comer右）
-图片来源：【[1](https://t2.gstatic.com/images?q=tbn:ANd9GcRyGnEp9lx71rwArM_lu5arzagobRW6G39PqMEj_afsfD58QBS5xzjPI5GPIoEt)】【[2](https://t0.gstatic.com/images?q=tbn:ANd9GcQ0fqHPlfvGSkIgjaTmR8HEZK1GxEl3jI5pqKsz9YwXICuKm2YB)】
-在11月18日发给众议院司法委员会主席杰罗德·纳德勒 (Jerrold Nadler) 和众议院监督委员会主席卡罗琳·马洛尼 (Carolyn Maloney)的信中，共和党国会议员吉姆·乔丹 (Jim Jordan) 和詹姆士·卡莫（James Comer）要求立刻召开听证会，针对本次大选各种违规行为展开调查。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19190234/lockdown1.png)图片来源：互联网
+加拿大安大略省定于本周五将多伦多及其周边地区封锁，其他省份如：阿尔伯塔省、曼尼托巴省、萨斯喀彻温省、魁北克省、卑诗省都已经或者即将采取进一步的严控措施，本周四之后除了大西洋沿岸外的所有加拿大人都将回归到今年3月份居家隔离的那种令人疯狂的状态。
 
-两位共和党议员在信中列举了一系列本次选举中出现的违规现象，包括宾州延长邮寄选票和缺席选票的截止日期，限制竞选观察员监督计票工作；加州选民收到重复的选票以及其他人的选票；乔治亚州发现大量未计数选票等，他们对此深表忧虑。
+在第二波疫情到来之际这种严格管制措施是否更加有效，我们更需要关注另外一个问题：在这样漫长寒冷的冬季里，加拿大人能接受这么长时间的居家隔离吗？
 
-信中还提到纳德勒和马洛尼在过去四年一直不遗余力地调查所谓川普总统的通俄们事件，质疑其2016年选举的合法性，最后却无疾而终。而针对此次2020年大选的各种舞弊事件，正是他们“大显身手”，向美国人民展示他们致力于维护选举公正性的最好时机。
+在疫情发生将近一年的时间里，政府仍然没有告诉民众中共病毒是怎么样传播的以及为何第二波病毒比第一波更加猛烈；卫生官员虽然每天公布中共病毒死亡人数，但没有透露病因是否与其他健康状况或年纪较大有关；快速检测病毒的方法推进非常缓慢，政府没有足够的资源进行追踪和隔离病毒接触者；对于卑诗省颁布的跨省旅行禁令，其实并没有足够的证据证明本省的病毒来自省外旅行者。
 
-值得注意的是，除“通俄门”事件外，纳德勒和马洛尼还在去年12月主导了针对川普总统的弹劾案，在对方出具的一份685页的报告中提出滥用权力和妨碍国会两项指控，但最终在参议院分别以48票赞成: 52票反对和47票赞成:53票反对被否决。
+本次中共病毒的总负责人-加拿大总理贾斯汀.特鲁多(Justin Trudeau)在周三对于病毒“质询”时的回答泛泛而谈，缺乏细节，这样的答复对于鼓励加拿大人平安度过第二波疫情是根本没用的。为了确保公众认同政府所采取的强制措施以应对已经到来的严峻挑战，政府必须提供明确的证据来支持其强硬的隔离措施，尽快推进快速检测，并且给加拿大人一个明确的大规模接种疫苗的计划表。政府只有严格落实大众所关心的问题，公众才能更加信任政府，这也是底线。
 
-吉姆·乔丹自2007年开始担任俄亥俄州第4选举区选出的美国众议院议员。在当选众议院议员之前，他曾是俄亥俄州议会议员。在今年7月31日国会听证会上，吉姆·乔丹曾一针见血，指出福奇博士关于COVID-19病毒法规上的虚伪。
+**评：**
 
-前检察官詹姆士·卡莫在2012年至2016年担任肯塔基州农业部长，之前他是肯塔基州议会众议员。2016年，他代表共和党参选美国众议院肯塔基州第一选区的议员并顺利当选。
+加拿大政府对于中共病毒从何而来、有哪些具体的传播渠道、群众需要做哪些具体的防御措施、何时能推出有效的快速检测方法、何时能有有效疫苗、有效疫苗接种的具体安排表等，在一系列问题上遮遮掩掩。加拿大是被中共深度蓝金黄的重灾区，位居高位的官员为了自己的私利，肆意践踏人民群众的利益、安危，对于中共病毒真相视而不见、置若罔闻、积极掩盖，其做法令人发指。众所周知，中共病毒是由中共国最高层亲自指挥部署，由中共国军方、武汉P4实验室等机构参与的、经过精确改造的生物武器，在以美国为首的国际专家组进入中共国实验室进行全方位、详细的调查之前，短期内不可能开发出有效的疫苗。
 
-今年4月9日，两人曾参与美国众议员监督委员会联名活动，要求世界卫生组织总干事谭德赛解释他与中共政府的关系，并解释清楚他为何总是赞扬中共在病毒危机期间的“透明度”。
+原文链接：
 
-相关链接:
+[https://www.ctvnews.ca/politics/don-martin-the-second-lockdown-cometh-but-canadians-may-resist-house-arrest-1.5195331](https://www.ctvnews.ca/politics/don-martin-the-second-lockdown-cometh-but-canadians-may-resist-house-arrest-1.5195331)
 
+翻译报道：武松
 
-
-> 🚨[#BREAKING](https://twitter.com/hashtag/BREAKING?src=hash&amp;ref_src=twsrc%5Etfw): [@Jim\_Jordan](https://twitter.com/Jim_Jordan?ref_src=twsrc%5Etfw) & [@RepJamesComer](https://twitter.com/RepJamesComer?ref_src=twsrc%5Etfw) call for immediate Congressional investigation into 2020 election. [pic.twitter.com/QsSUQvhRsv](https://t.co/QsSUQvhRsv)
-> — House Judiciary GOP (@JudiciaryGOP) [November 19, 2020](https://twitter.com/JudiciaryGOP/status/1329249071996039173?ref_src=twsrc%5Etfw)
-
-
-
-该联名信中文翻译：
-
-
-
-> [【热点播报】突发：2名共和党国会议员联名敦促：美国众议院司法及监督两机构进行大选听证！意义重大！](https://gnews.org/zh-hans/572282/)
-
-
-
-
+温哥华圆成农场 – 2020/11/19
 
 0

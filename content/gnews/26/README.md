@@ -1,47 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发：生态健康联盟策划了中共病毒 “自然起源”一系列声明
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/573641/)
+## 乔治亚州发生了什么事？重新计票必须合法！
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/573606/)
 
-多伦多加喜农场 云起时
+*新闻来源：《门户专家》**(**GATEWAY PUNDIT)**；作者：乔**·**霍夫特（**Joe Hoft**）；发布时间：**2020**年**11**月**14**日*
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19140324/come.jpg)图片来自 WSJ
-美国知情权组织（US Right To Know)于11月18日宣告，根据他们获得的一系列电子邮件显示，27名著名公共卫生科学家在《柳叶刀》上撰写的一份谴责 “阴谋论认为COVID-19没有天然来源 “的声明是由生态健康联盟（EcoHealth Alliance）的员工组织协调的。该联盟是一个非营利组织，曾获得美国纳税人数百万美元的资助，与武汉病毒学研究所的科学家一起对冠状病毒进行基因操作。
+*翻译/简评：Dreamer文童；校对：感恩；审核：海阔天空；Page：拱卒*
 
-通过公共记录请求获得的电子邮件显示，生态健康联盟主席彼得-达斯扎克（Peter Daszak）起草了发表在《柳叶刀》（Lacent)上的声明，他希望“不要让人觉得它来自任何一个组织或个人”，而要把它看作“仅仅是一封来自顶尖科学家的信”。达斯扎克在电子邮件中写道，他希望 “避免出现政治声明”。【1】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19135112/11-41.jpg)
 
-科学家们的这封信于2月18日刊登在《柳叶刀》上，此时距世界卫生组织宣布将中共病毒命名为COVID-19仅一周。
+### **简评：**
 
-这27位作者 “强烈谴责认为COVID-19非自然来源的阴谋论”，并报告说，来自多个国家的科学家“绝大多数认为这种冠状病毒起源于野生动物”。信中没有任何科学参考资料来反驳该病毒的实验室起源理论。一位科学家琳达-赛义夫（Linda Saif）通过电子邮件问道，“只补充一两个声明来支持为什么nCOV不是实验室产生的病毒，而是自然产生的，这是否有用? 似乎至关重要的是应该科学地驳斥这种说法！” 【2】达斯扎克回应说：“我认为我们可能应该坚持一个宽泛的声明。”【3】
+乔治亚州州务卿布拉德·拉芬斯佩尔（Brad Raffensperger）宣布在本州进行全面的手工重新计票。然而，这项举措受到质疑，因为此次重新计票的程序存在缺陷，比如，缺席选票上的签名匹配未被核实。川普总统团队在乔治亚州的律师林·伍德（Lin Wood）发推猛烈抨击此次虚假的重新计票，并呼吁乔治亚州民众站出来维护本州的合法利益，质疑州长的腐败行为。
 
-随着调查武汉病毒学研究所作为中共病毒潜在来源的呼声越来越高，导致生态健康联盟的审查力度加大。这些邮件显示，正如达斯扎克告诉《卫报》的那样，生态健康联盟的成员如何在将有关中共病毒可能的实验室来源的问题定义为 “需要解决的疯狂理论 “方面发挥了早期作用。【4】
+美国大选出现的舞弊现象，其严重程度已经引起美国民众的强烈不满，强大的民意推动州政府不得不做出行动予以回应，因此腐败的政府官员似乎打算通过虚假的重新计票，以应付民众的不满。然而，已经觉醒的美国民众不会再被政客的虚伪套路所欺骗，一定会争取到合法有效的重新计票程序，让真实的选票结果公之于众。
 
-虽然“生态健康联盟 ”这个词只在《柳叶刀》声明中出现过一次，生态联盟与声明合著者达斯扎克有关，其他几位合著者也与该组织有着直接关系，但却没有被披露为利益冲突。这些合著者中，丽塔-科威尔（Rita Colwell）和詹姆斯-休斯（James Hughes）是生态健康联盟的董事会成员，威廉-卡瑞什（William Karesh）是该集团负责健康和政策的执行副总裁，休姆-菲德（Hume Field）是其科学和政策顾问。
+### **原文翻译：**
 
-声明的作者还声称，“迅速、公开和透明地分享有关这次疫情的数据，现在正受到围绕其起源的谣言和错误信息的威胁”。然而如今，人们对中共病毒的起源知之甚少，世界卫生组织和《柳叶刀》COVID-19委员会对其起源的调查也一直笼罩在秘密之中，并陷入利益冲突。
+## **乔治亚州发生了什么事？要求州长和州务卿进行合法的重新计票！**
 
-达斯扎克、丽塔（Rita Colwell）和《柳叶刀》编辑理查德-霍顿（Richard Horton）没有对我们的要求发表评论。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19140613/22-26.jpg)
 
-更多信息如下：
+**大选后的次日早上，川普总统在乔治亚州领先乔****·****拜登（****Joe Biden****）****10****万张选票，尽管这是在民主党竭尽全力窃取选举的情况下发生的。然而，窃取选举的努力仍在继续，并且目前该州显示拜登领先。窃取行为必须被制止。**
 
-通过该链接可以看到生态健康联盟共466页的电子邮件。【5】
+**川普总统今早发推：**
 
-美国知情权组织曾于11月16日公布了通过公共信息自由（FOI）请求获得的《关于SARS-CoV-2的起源、功能增益研究的危害和生物安全实验室的FOI文件》。【6】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19141338/33-8.jpg)
 
-[原文链接](https://usrtk.org/biohazards-blog/ecohealth-alliance-orchestrated-key-scientists-statement-on-natural-origin-of-sars-cov-2/)
+乔治亚州州务卿，所谓的共和党人（RINO），不让检查选票的人员看到签名是否有欺诈。为什么？没有这个程序，整个过程非常不公平，毫无意义。每个人都知道我们赢了这个州。@BrianKempGA（乔治亚州州长）在哪里？
 
-【1】[https://usrtk.org/wp-content/uploads/2020/11/The\_Lancet\_Emails\_Daszak-2.8.20.pdf](https://usrtk.org/wp-content/uploads/2020/11/The_Lancet_Emails_Daszak-2.8.20.pdf)
+**《布赖特巴特》（****Breitbart****）报道：**
 
-【2】[https://usrtk.org/wp-content/uploads/2020/11/The\_Lancet\_Emails\_Saif-2.6.20.pdf](https://usrtk.org/wp-content/uploads/2020/11/The_Lancet_Emails_Saif-2.6.20.pdf)
+周三，乔治亚州州务卿布拉德·拉芬斯佩尔（Brad Raffensperger）宣布在桃州“每个县进行全面的人工重新计票”，强调此项举措将“有助于建立对该州最终选举结果的信心”。拉芬斯佩尔（Raffensperger）称之为一项“艰巨任务”，因为该程序将涉及同一时间的审计、重新计票和重新分配。
 
-【3】[https://usrtk.org/wp-content/uploads/2020/11/The\_Lancet\_Emails\_Daszak-2.6.20.pdf](https://usrtk.org/wp-content/uploads/2020/11/The_Lancet_Emails_Daszak-2.6.20.pdf)
+然而，几个关键人物对拉芬斯佩尔（Raffensperger）提出的程序表示关注，认为该程序缺乏某些必要步骤，比如，核实缺席选票上的签名匹配。
 
-【4】[https://www.theguardian.com/world/2020/feb/20/coronavirus-chinese-scientists-false-rumours-experts](https://www.theguardian.com/world/2020/feb/20/coronavirus-chinese-scientists-false-rumours-experts)
+总统团队在乔治亚州的律师林·伍德（Lin Wood）转了这样一条推文：“鼓励乔治亚州民众为他们的州进行反击，称州长腐败，并且想要促成虚假的重新计票程序。”并评论说：我觉得有道理…是时候进行反击了
 
-【5】[https://usrtk.org/wp-content/uploads/2020/11/Biohazard\_FOIA\_Maryland\_Emails\_11.6.20.pdf](https://usrtk.org/wp-content/uploads/2020/11/Biohazard_FOIA_Maryland_Emails_11.6.20.pdf)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19141445/44-10.jpg)
 
-【6】https://usrtk.org/biohazards/foi-documents-on-origins-of-sars-cov-2-risks-of-gain-of-function-research-and-biosafety-labs/
+[email protected]推文
 
+回复@LLinWood（林·伍德Lin Wood）
+
+你们的州长腐败。他和Dominion投票系统有关联。如果你居住在乔治亚州，我建议你开始努力争取全面审计所投选票。他试图仅仅加快重新计票程序，并计算非法选票。
+
+伍德（Wood）先生还发推文称，政府官员应为民众工作，而不是为自己发财而工作:我们信任乔治亚州的民选官员。他们宣誓遵守法律，为民众的利益服务，而不是为他们自己。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19141542/55-4.jpg)
+
+他们的被选不是为了从该州与中共国的Covid供应品交易，或者与购买Dominion投票机有关的交易获取经济利益的。
+
+伍德（Wood）鼓励乔治亚州总检察长调查在乔治亚州的口罩采购情况，以及与Dominion的关联：
+
+乔治亚州总检察长调查局必须调查2020年从中共国购买Covid口罩和检测试剂盒的情况。他们还必须调查2019年购买Dominion投票机的情况。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19141645/66-4.jpg)
+
+贪财是万恶之源。
+
+跟着金钱走。
+
+乔治亚州民众必须站出来要求在乔治亚州进行真正的重新计票，包括核实缺席选票上的签名，以及共和党的代表充分地监督和审查，以便重新计票得以适当进行。
+
+乔治亚州民众必须为了他们的州和他们的国家而站出来。
+
+[原文链接](https://www.thegatewaypundit.com/2020/11/going-georgia-demand-governor-secretary-state-perform-legitimate-recount/)
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+编辑：【喜马拉雅战鹰团】[-点击spark](https://spark.adobe.com/page/1s6mwEUG5J7u3/)[adobe](https://spark.adobe.com/page/1s6mwEUG5J7u3/)[版](https://spark.adobe.com/page/1s6mwEUG5J7u3/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/16143917/44-8.jpg)
 0
