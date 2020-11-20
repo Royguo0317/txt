@@ -1,54 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 前“ Dominion”项目经理与密歇根州签订了2500万美元的合同，同时担任Dem副主席
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/563897/)
+## 川普总统律师团队公布八大选举舞弊指控
+` GM77` [轉載自GNews](https://gnews.org/zh-hans/574765/)
 
-编译：玫瑰天空
+编撰：JAY、文白
+复核：WENJUN
 
-据报道，Dominion的前项目经理是密歇根州底特律郊区的一个小镇Lathrup Village的市长。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20023019/1-206.jpg)图片来自参考链接页面
 
-市长Mykale“ Kelly” Garrett是密歇根州的一名资深民主党人。纽约青年共和党俱乐部主席加文·瓦克斯（Gavin Wax）在Twitter帖子中指出了这一发现，并指出密歇根州民主党中央委员会已将她指定为：
+川普总统的竞选律师团队周四（11月19日）召开新闻发布会，提供了很多选举欺诈证据以及诉讼进展。
 
-加勒特[在接受](https://www.youtube.com/watch?v=YncDKoX_7TI)《*奥克兰时报》*[采访时](https://www.youtube.com/watch?v=YncDKoX_7TI)说：
+前纽约市长、川普总统私人律师鲁迪‧朱利安尼（Rudy Giuliani）主导律师团队，他表示，团队在已获得大量公众的宣誓证词，证人都是冒着“被报复”的风险提供证词，这些是来自美国公民的一手证词。媒体不能否认选举舞弊问题的存在。
 
-她在采访中没有提及与Dominion的关系。韦克斯指出，她曾协助经纪Dominion与密歇根州之间的2500万美元合同，[同时仍担任奥克兰县民主党的副主席](https://ocdp.org/news/17/01/04/election-announcement-officers-2017-2018)。
+[**朱利安尼**](https://www.epochtimes.com/gb/tag/%E6%9C%B1%E5%88%A9%E5%AE%89%E5%B0%BC.html)**和鲍威尔向公众透露诉讼包括的八大主要指控。**
 
+**1. ****监票员被阻止观看邮寄选票开票**
 
+许多邮寄选票是在监票员无法检查签名是否正确的情况下打开的，而这（监票员监督）是防止欺诈的重要保护步骤。那些票是“无效的”，特别是若信封已被丢弃，重新计票将毫无意义。
 
-> Here are the images of the contract between Dominion and the State of Michigan which Ms. Garrett helped executed. $25 million. [pic.twitter.com/B5zKRfSvwK](https://t.co/B5zKRfSvwK)
-> — Gavin Mario Wax 🇺🇸 (@GavinWax) [November 16, 2020](https://twitter.com/GavinWax/status/1328421990106091522?ref_src=twsrc%5Etfw)
+**2. ****民主党各辖区内的法律不平等**
 
+在宾州，最高法院在选举前制定了新的宽松投票规则——不用核对签名，而且民主党县的缺席选民被允许修复选票缺陷，但共和党县的选民则不被允许。
 
+**3. ****选民到达投票站发现已有其他人代表他们投票**
 
-纽约青年共和党俱乐部主席加文·瓦克斯（Gavin Wax）还指出：
+宾州匹兹堡的许多临时选票本该是现场排队的人投票提交，但他们却被告知，他们已经投过票了。
 
-前Dominion项目经理Mykale Garrett现在由Kelly Garrett担任，现在是密歇根州Lathrup市长。于2019年离开Dominion，全面参与了密歇根州的政治，那么她是否全面了解这一切运作呢？她还曾担任临时市长。这里存在大量利益冲突。
+**4. ****选举官员被告知不要寻找选票上的缺陷，并被要求更改选票收到日期**
 
+朱利安尼引述一名官员的证词说，她的上司说，要将不完整缺席选票计票，更改选票收到日期为大选日之前到达，以避免最高法院扣押这些选票。
 
+**5. ****投给乔****‧****拜登的票被反复多次通过机器计入，但其他候选人却没有这样**
 
-> Mykale Garrett, former Dominion project manager, now goes by Kelly Garrett and is the Mayor of Lathrup Village, Michigan. Conveniently left Dominion in 2019 to become involved heavily in Michigan politics having a full understanding of the machines in a swing-state? [pic.twitter.com/t8JGdiE0dG](https://t.co/t8JGdiE0dG)
-> — Gavin Mario Wax 🇺🇸 (@GavinWax) [November 16, 2020](https://twitter.com/GavinWax/status/1328390303607349248?ref_src=twsrc%5Etfw)
+密歇根州有60名证人，他们证明选票是“迅速产生”的，一张票被反复计入两或三次，受影响的票数最少6万张，最多10万张。
 
+**6. ****威斯康星州将没有提前申请的缺席投票也计入在内**
 
+威斯康星州的缺席选票规定比其他大多数州都严格，但威斯康星州的密尔沃基地区有6万张缺席选票，麦迪逊地区有4万张缺席选票没有提前申请，但也被计入在内。
 
+**7. ****有些地区存在“超标投票”（overvotes），最终统计票数比注册居民人数还要多**
 
+密歇根州和威斯康星州有大量这样的异常选区，这是密歇根州韦恩县计票委员会、两名共和党人周二拒绝认证选票结果的原因。乔治亚州还有一些州外选民投票，他们一个人投两次票。
 
-> This is her. [pic.twitter.com/cINto81ZpI](https://t.co/cINto81ZpI)
-> — Gavin Mario Wax 🇺🇸 (@GavinWax) [November 16, 2020](https://twitter.com/GavinWax/status/1328398437591773187?ref_src=twsrc%5Etfw)
+**8. ****选举使用的投票机和软件跟委内瑞拉社会主义政权和美国左派金主乔治****‧****索罗斯（George Soros）有联系**
 
+川普竞选团队的律师西德尼‧鲍威尔（Sidney Powell）称，美国的选票被送往海外计算，美国使用的Dominion投票机和Smartmatic计票软件由外国利益控制，操纵算法来改变结果。
 
+鲍威尔特别指出，Smartmatic的所有者包括两名委内瑞拉人，与该国的独裁者雨果‧查韦斯（Hugo Chavez）和尼古拉斯‧马杜罗（Nicolas Maduro）政权有联系，鲍威尔说，揭露越来越多的内幕都源于共产党的资金产生的重大影响力，这些资金来来源于委内瑞拉、古巴、中国共产党…。
 
-加勒特（Garrett）还领导非营利组织母亲正义（Mothering Justice），该组织鼓吹**社会主义和财富再分配**。在采访中，她继续吹嘘自己在密歇根州**民主党的深厚关系。**
+这次美国总统大选中的严重舞弊和犯罪行为是一场前所未有的宪政危机，严重挑战了美国的宪法，亟需无妥协地执行美国大选核心原则：必须计算所有合法选票，杜绝任何非法选票，按照美国《宪法》规定确定美国总统。
 
-“我曾是密歇根州民主党选民保护的副局长。”
-
-用她的话说，似乎她支持一些政策，例如将[底特律缺席选民投票委员会变成免费的第三世界风格的政策](https://bigleaguepolitics.com/tens-of-thousands-of-ballots-dropped-off-in-usps-boxes-at-detroit-absentee-ballot-processing-center-at-330-am-after-election/)。
-
-她说：“我曾担任奥克兰县民主党的副主席，而我最近刚刚停止担任Southfield-Lathrup民主党的主席。”“由于我有一些志愿人员职位，我实际上认识了全州的人。我与我们的**州长和国务卿**有着很好的关系”。
-
-这逐渐被各界民众发掘出来的消息都慢慢揭开背后利益关系各方在本次美国大选选票设备黑幕后的潜在角色。之中隐藏的利益关联和合法性将经受正在进行的司法大战的考验。后续信息的披露还需持续关注。
-
-[援引：](https://bigleaguepolitics.com/exclusive-former-dominion-project-manager-executed-25-million-contract-with-state-of-michigan-while-serving-as-dem-vice-chair/)原文
+信息来源：
+[https://www.epochtimes.com/gb/20/11/19/n12562150.htm](https://www.epochtimes.com/gb/20/11/19/n12562150.htm)
 
 0

@@ -1,45 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 被中共操纵的律师百般抵赖不愿意回答谁支付了诉讼费用！
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/573916/)
+## 什么是担当
+` JP007` [轉載自GNews](https://gnews.org/zh-hans/574696/)
 
-多伦多加喜农场 1919
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20014116/%E4%BB%80%E4%B9%88%E6%98%AF%E6%8B%85%E5%BD%93.png)
+**作者：京都富士会 迷途狼**
 
-校对 XM 上传 小鸥
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19174201/%E5%85%AC%E5%8F%B8.jpg)图片来自 Slide Share
-根据美国联邦纽约南区法院（United States District Court, S.D. New York.）日前公布的法律文件（Case No. 18-cv-2185）显示，构陷文贵先生并意图推动将文贵先生遣返回中共国的“战略愿景公司”（STRATEGIC VISION US LLC, Defendant）的两名代表律师拒绝回答谁支付了本次诉讼费用。并于11月13日正式向“南区法院”提出三项理由妄图继续隐瞒“谁支付了诉讼费用”，详情如下：
+狼入世尚浅只能用那浅薄的经验来讲。
 
-1. “谁支付了诉讼费用”与本案无关；
+小时候，提着包跟在老妈后面逛街时，听到过老妈这么一句话。
 
-2. 即便是有关联，这种关联价值很小，不会影响本案；
+你舅爷家的那个厂子啊，有时候实在是缺现金，他就只能跟银行贷款给下面的员工们发工资。老妈满脸荣耀地笑着・・・・・・
 
-3. 根据美国宪法第一修正案，独立的第三方资助者不宜被法庭作为证据。
+儿时的自己实在是不懂这句话是什么意思，直到十几年之后的最近，跟一个自己非常喜欢的师傅下预约订单时才明白。
 
-作为一个毫无信誉的皮包空壳公司，战略愿景公司被东利公司告上法庭后，为什么收到不明力量的资助？战略愿景公司一方面热心声称绝不与任何CCP有关联的人有生意来往，一方面百般抵赖不愿意回答“谁支付了诉讼费用”，甚至无法否认此项资助与CCP无关！不惜反复向法庭递交法律文件，甚至无耻的动用美国宪法第一修正案做为遮羞布！
+那天联系的时候，师傅说因为双十一买东西买多了，这个月经济很难撑下去，正在加紧干之前的订单收尾款。之前订单还得拖，我说我也缺现金。看着师傅着急的样子，想着有没有办法能帮上他……
 
-美国司法部文件显示：布洛伊迪（Broidy）和戴维斯（Davis）已经在今年10月和8月分别认罪，承认密谋违反外国游说法，参与了代表中国和马来西亚（刘特佐Jho Low）利益影响政府的秘密行动（自认为外国代理人）。
+想起来老妈曾经讲过的那件事，自己的银行卡也可以透支。学着故事里的样子，把订单的钱在银行透支出来给了他。还顺手留了个言，师傅好好的，您那边有什么事最担心的是我这边，风险我来承担。可发送的那一瞬间，想起来社长，还有几个老师，都说过同样的话……
 
-该案的法律文件已经说明郭文贵先生是多年持续受到CCP死亡威胁的持不同政见者，是对CCP来说唯一重要的灭共人士。
+原来老妈讲的故事是在教我什么叫做担当。
 
-还说和CCP政治迫害无关？
+就跟郭叔说的一样，一定要给那些冒着风险的被喝茶的战友们补偿，让他们没有后顾之忧。
 
-根据美国立法机构于1938年制定的《外国代理人登记法》，参考“密斯诉基恩案（Meese v. Keene）”判决 ，几部加拿大电影都定义为“政治宣传片”，法院要求必须公开这些电影的赞助商。更何况这么重要的政治案件。
+有担当，是作为一个领导者，一个好上司所必要的人格。
 
-虽然纽约南区法院在近期多项司法操作中，令许多信誉良好的人士感到费解，但是在这样明显的是非面前会如何判决？我们拭目以待！
+即时收到了回复：你的单子我最近尽快给你做完。
 
-相关链接：
-
-1. 美国司法部案件编号：Case 1:18-cv-02185-LJL Document 307-1 Filed 11/18/20 Case 1:18-cv-02185-LJL Document 306 Filed 11/13/20
-
-2.布洛伊迪认罪（Elliott Broidy Pleads Guilty）：https://search.justice.gov/search?query=broidy&op=Search&affiliate=justice
-
-3.戴维斯认罪（Nickie Mali Lum Davis Pleads Guilty）： https://www.justice.gov/opa/pr/hawaii-businesswoman-pleads-guilty-facilitating-back-channel-lobbying-campaign-drop-1mdb
-
-[https://cn.nytimes.com/usa/20201021/elliott-broidy-foreign-lobbying/](https://cn.nytimes.com/usa/20201021/elliott-broidy-foreign-lobbying/)
-
-4.“愿景”公司背景（Who is Behind Strategic Vision US LLC）： https://gnews.org/50457/
-
-5. 文中内容部分参考：https://gnews.org/zh-hans/573444/
-
-0
+1+
