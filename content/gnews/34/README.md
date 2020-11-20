@@ -1,39 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## War Room 516 总结
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/573510/)
+## 突发：生态健康联盟策划了中共病毒 “自然起源”一系列声明
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/573641/)
 
-- 编辑：Ranting
-- 作者：Jenny Ball
+多伦多加喜农场 云起时
 
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19140324/come.jpg)图片来自 WSJ
+美国知情权组织（US Right To Know)于11月18日宣告，根据他们获得的一系列电子邮件显示，27名著名公共卫生科学家在《柳叶刀》上撰写的一份谴责 “阴谋论认为COVID-19没有天然来源 “的声明是由生态健康联盟（EcoHealth Alliance）的员工组织协调的。该联盟是一个非营利组织，曾获得美国纳税人数百万美元的资助，与武汉病毒学研究所的科学家一起对冠状病毒进行基因操作。
 
-**没有阴谋论，但也没有那么多的巧合**。
+通过公共记录请求获得的电子邮件显示，生态健康联盟主席彼得-达斯扎克（Peter Daszak）起草了发表在《柳叶刀》（Lacent)上的声明，他希望“不要让人觉得它来自任何一个组织或个人”，而要把它看作“仅仅是一封来自顶尖科学家的信”。达斯扎克在电子邮件中写道，他希望 “避免出现政治声明”。【1】
 
-**班农先生**：现在是整个大流行中最艰难，最艰巨，最危险的时刻。左派，疾控中心和福齐左派倾城出来只有一个声音（谎言）。
+科学家们的这封信于2月18日刊登在《柳叶刀》上，此时距世界卫生组织宣布将中共病毒命名为COVID-19仅一周。
 
-有着150年历史备受推崇的著名科学出版物《柳叶刀》杂志，基本上是同行评审期刊，和《科学美国人》及其他一些科学刊物一样，都是从不涉足政治领域的杂志，现在它们打破多年的传统和声誉，都参与到了政治活动中，与虚假新闻媒体一样，认同拜登。
+这27位作者 “强烈谴责认为COVID-19非自然来源的阴谋论”，并报告说，来自多个国家的科学家“绝大多数认为这种冠状病毒起源于野生动物”。信中没有任何科学参考资料来反驳该病毒的实验室起源理论。一位科学家琳达-赛义夫（Linda Saif）通过电子邮件问道，“只补充一两个声明来支持为什么nCOV不是实验室产生的病毒，而是自然产生的，这是否有用? 似乎至关重要的是应该科学地驳斥这种说法！” 【2】达斯扎克回应说：“我认为我们可能应该坚持一个宽泛的声明。”【3】
 
-**杰克**：当这些负责健康的官员们让强制使用疫苗时，一年2到3次，每次赚取10美元收入？他们使用中共的数据来传播对病毒的恐惧。
+随着调查武汉病毒学研究所作为中共病毒潜在来源的呼声越来越高，导致生态健康联盟的审查力度加大。这些邮件显示，正如达斯扎克告诉《卫报》的那样，生态健康联盟的成员如何在将有关中共病毒可能的实验室来源的问题定义为 “需要解决的疯狂理论 “方面发挥了早期作用。【4】
 
-美国人真是到了必须站起来迎头痛击的说：我们受够了！
+虽然“生态健康联盟 ”这个词只在《柳叶刀》声明中出现过一次，生态联盟与声明合著者达斯扎克有关，其他几位合著者也与该组织有着直接关系，但却没有被披露为利益冲突。这些合著者中，丽塔-科威尔（Rita Colwell）和詹姆斯-休斯（James Hughes）是生态健康联盟的董事会成员，威廉-卡瑞什（William Karesh）是该集团负责健康和政策的执行副总裁，休姆-菲德（Hume Field）是其科学和政策顾问。
 
-来自香港的大主教是世界上最伟大的人物之一，他谈中共，中共病毒，梵蒂冈和教皇。
+声明的作者还声称，“迅速、公开和透明地分享有关这次疫情的数据，现在正受到围绕其起源的谣言和错误信息的威胁”。然而如今，人们对中共病毒的起源知之甚少，世界卫生组织和《柳叶刀》COVID-19委员会对其起源的调查也一直笼罩在秘密之中，并陷入利益冲突。
 
-**伊丽莎白·尤尔**：芝加哥沉浸在欢度感恩节的气氛中，尽管市长下了封城令，民主党领导层对美国实施戒严，彻底摧毁了经济，人们已经受够了。
+达斯扎克、丽塔（Rita Colwell）和《柳叶刀》编辑理查德-霍顿（Richard Horton）没有对我们的要求发表评论。
 
-我们正在目睹一场大重置，伊斯兰和共产主义邪恶势力正在摧毁犹太教－基督教文明。而梵蒂冈是这一全球无神论者大重置的中心。
+更多信息如下：
 
-**只有川普运动才能制止中共，全球主义者和教宗方济各所推动的大重置阴谋**。
+通过该链接可以看到生态健康联盟共466页的电子邮件。【5】
 
-弗兰克·沃克神父谈天主教教会的巨额现金流量业务。以难民服务，天主教慈善机构，天主教救济服务机构是大型实体为名义来运送非法外国人和洗钱。可以通过金钱往来线索看到他们实际上是如何使天主教成为他们敛财幌子，中共向教皇弗朗西斯输送了大量金钱，还有伊斯兰国家，迪拜的阿拉伯国王都资助了梵蒂冈大量的金钱。
+美国知情权组织曾于11月16日公布了通过公共信息自由（FOI）请求获得的《关于SARS-CoV-2的起源、功能增益研究的危害和生物安全实验室的FOI文件》。【6】
 
-这也是梵蒂冈对至高权力的贪图。
+[原文链接](https://usrtk.org/biohazards-blog/ecohealth-alliance-orchestrated-key-scientists-statement-on-natural-origin-of-sars-cov-2/)
 
-**班农先生**：总统有四年零六十天，七十天的任期时间，需要重新考虑如何应对病毒的大流行。我对总统的建议是：实施战时总统的职责。
+【1】[https://usrtk.org/wp-content/uploads/2020/11/The\_Lancet\_Emails\_Daszak-2.8.20.pdf](https://usrtk.org/wp-content/uploads/2020/11/The_Lancet_Emails_Daszak-2.8.20.pdf)
 
+【2】[https://usrtk.org/wp-content/uploads/2020/11/The\_Lancet\_Emails\_Saif-2.6.20.pdf](https://usrtk.org/wp-content/uploads/2020/11/The_Lancet_Emails_Saif-2.6.20.pdf)
 
+【3】[https://usrtk.org/wp-content/uploads/2020/11/The\_Lancet\_Emails\_Daszak-2.6.20.pdf](https://usrtk.org/wp-content/uploads/2020/11/The_Lancet_Emails_Daszak-2.6.20.pdf)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+【4】[https://www.theguardian.com/world/2020/feb/20/coronavirus-chinese-scientists-false-rumours-experts](https://www.theguardian.com/world/2020/feb/20/coronavirus-chinese-scientists-false-rumours-experts)
+
+【5】[https://usrtk.org/wp-content/uploads/2020/11/Biohazard\_FOIA\_Maryland\_Emails\_11.6.20.pdf](https://usrtk.org/wp-content/uploads/2020/11/Biohazard_FOIA_Maryland_Emails_11.6.20.pdf)
+
+【6】https://usrtk.org/biohazards/foi-documents-on-origins-of-sars-cov-2-risks-of-gain-of-function-research-and-biosafety-labs/
 
 0

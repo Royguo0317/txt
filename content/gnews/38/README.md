@@ -1,70 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共幕后黑手即将浮出水面
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/573444/)
+## 川普总统的团队有大智慧，世界大环境已全面逆转
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/573538/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24064746/WhatsApp-Image-2020-10-24-at-15.08.49.jpeg)
-作者：康州农场-GTalk心语堂
+新闻简述：郭文贵先生11月18日在 GTV 发布的 Getter 视频里讲到：川普总统的竞选团队有大智慧，因为各州只要对选举结果签字，就要部法律责任，因此很多州不敢签字，结局就是川普总统赢。他还提醒到，世界和整个的经济、政治、军事的大环境已全面逆转，美国大选之后世界就会关注病毒。最后他鼓励战友多多唤醒国内的老百姓，因为中共已大失民心。
+GTV Getter 视频地址： [https://gtv.org/getter/5fb54ba5b2a6d153278352d0](https://gtv.org/getter/5fb54ba5b2a6d153278352d0)
+全文:
 
-东利有限公司诉战略愿景美国有限责任公司案最新进展
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19112742/image1-4.png)
-原告： 东利有限公司（EASTERN PROFIT CORPORATION LIMITED, Plaintiff）
+尊敬的战友们好，11月18号，你们健身了吗，战友们？从昨天到今天，你看美国总统大选，啊，美国高人多着哪。千万别老觉着人家傻，人家是大智慧。看到昨天到现在了吗？川普总统的团队，啊，呵，玩啥招？啊，玩什么招？玩啥招？啊，对方你不管出什么牌你都得输。啊，这个厉害啦，是吧，因为它各州，你签字，你州长你同意你签字啊，是吧。签完字就在美国，签完字你是负法律责任，就是在[法]庭上，你敢举手发誓，你敢撒谎，那这个罪大了去了，啊。所以说，你敢发誓，发誓，你敢签字，签字跟发誓，那你就要承担一切责任啊。很多州，啊，就不签这个字，啊，不签这个字，那什么结局啊？啊，一个州不签，俩州不签，仨州不签，结局是啥？厉害了。啊，那你签吧，你签就要重新计票，你毕竟造假了，选啥你都输，啊，选啥你都输。你这是用打火柴，啊，你是用火柴，你还是用打火机？你用啥放火，你都是犯法的。
 
-被告： 战略愿景美国有限责任公司（STRATEGIC VISION US LLC, Defendant）
+哈，这几天挺热闹。哈，现在反正啥事大家都知道，背后坏事是共产党干的，对吧？这是咱最需要的。 只要是共产党干的，那美国是要有说法的，是吧？
 
-受理法院： 美国纽约南区法院（United States District Court, S.D. New York.）
+哎，我发现，站着吧。哇，我现在，我发现我这个身材练的真的不孬啊。咳。这腿也不算短吧？啊？咳，哼，谁再说俺腿短，俺跟他急。亲爱的兄弟姐妹们，我要练练，现在你看着，这是这有肌肉了啊，真是有肌肉了，看到没有？真有肌肉了啊。啊，不错。现在改变了练法了，特别棒。这腿好，腿疼好多了。
 
-继东利有限公司，以下简称“东利”（EASTERN）要求战略愿景美国有限责任公司,以下简称“愿景”（Strategic），公布其用于本此法律诉讼的资金来源后， “愿景”律师于2020年11月13日向法庭提出动议，要求驳回“东利”的请求。理由如下：
+所以说，兄弟姐妹们，别着急，啊，千万别觉得自己聪明，啊。人家美国人比咱聪明多了，人家是大智慧，人家是大智慧啊，兄弟姐妹们，啊。然后这个法律上你看，人家就是往你高院上打，啊，不管你地方法院怎么，只要往高院打就可以，啊。只要这些州，没人签字，拒绝承认，大赢，啊。
 
-1. “愿景”诉讼资助人的身份与本案不相关；
-2. 即使“愿景”诉讼资助人的身份与本案具有在某种条件下的关联性，该关联性的价值对于此案而言微乎其微；
-3. 根据宪法第一修正案，第三方资助者的身份是独立且不应被法庭作为证据。
+据说啊，海外行动，啊，和我们的灭共事业，正在紧密的连在一起。啊，一帮愚蠢的傻瓜、猪们，还在那瞎评瞎论哪。知道全世界发生啥事了吗现在？看看金融市场，看看大宗贸易市场，看看货币的变化。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19112758/image2-5.png)
-“愿景”进一步称此案是郭文贵先生对中国异见人士的打击报复行为，案件的出资人应根据宪法第一修正案得到法庭保护。
+还有接下来，美国总统大选肯定是，完了以后是川普总统，川普完了还有哪回要大选？啊，世界和整个的经济、政治、军事的大环境已全面的逆转化，不可逆转的，不可逆转的，大家都要灭共。大家千万别忘了，病毒是灭共的根本性的、永远的、全世界都要面对的一个重大的话题，也是灭共的核心问题。加上操纵美国大选，加上香港事件，再加上共产党现在内部的内斗。内部成什么了，兄弟姐妹们知道吗？所有内部的党员都快崩溃了。天天忙，从上到下每个人都是一星期六天甚至七天上班。啊，天天忙的受不了，家里边的开支越来越高，工资，就那点钱，啊，压力越来越大。领导生活越来越好，下边人的生活越来越糟糕。天灭中共，不是你心里边想的，是各种大时局跟各种的变化，特别是现在党内的党心，全中国社会的民心，都在巨大的变化中。
 
-分析：首先，*“*愿景*”*变相承认了第三方资助者的存在，并接受了其资助；其次，*“*愿景*”*极力否认第三方资助者与本案的关联性，那么请问，*“*愿景*”*作为一家声名狼藉的皮包公司，是如何赢得其资助者的青睐呢？它们之间有没有利益相关性呢？最后，*“*愿景*”*企图将郭文贵先生描绘成一个打击中国异见人士的报复者，这种抹黑，并与政治挂钩的手法与中共的作风何其相似。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19112812/image3-6.jpeg)
-根据以上“愿景”呈交法庭的动议， “东利”与2020年11月18日提出反驳，指出：
+国际环境，前所未有地对我们有利。国内民心，每秒、每时、每刻正在往有利于我们的变化。这是为什么战友们，我们要尽一切努力来唤醒国内的所有的同胞们。多一个，是一个，救一个，是一个，兄弟姐妹们。然后，我们要强大，我们 G 系列要强大。敌弱我强。啊，敌是走到大街上，人人喊打的过街老鼠，我们是全世界人人称之为英雄的、代表中国未来的新中国联邦人，你说谁赢？你说谁赢？咱等着都把它等死。兄弟姐妹们，这就是爆料革命的战略。啪。啥都不说啦，就说到这吧。呵，哈哈。
 
-“愿景”声明不与任何与中共有关联的人或机构发生业务往来，且该声明是构成本案的要件之一，但在本案中，“愿景”却拒绝回答是否接受了与中共有关的个人或实体的资助，这构成了声明与行为之间冲突；而其所列举的上述理由均无法理依据，本案的核心是：“愿景”是否接受了中共支持者的直接或间接的资助。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19112840/image4-6.png)
-针对“愿景”动议中的理由，“东利”进行了如下反驳：
+翻译：【Prof. Bacteriophage】 校对：【文所未闻】【Isaiah4031】字幕：【Pamila（文明）】听写：【Cyndi】视频解码：【恒久忍耐】编辑：【Isaiah4031】
 
-1. 引用布洛伊迪（Broidy）和戴维斯（Davis）案文件，以证明美国政府，以及布洛伊迪，戴维斯以及中共， 均认为郭文贵先生是持不同政见者；
-2. 法院尚未裁定，“愿景”是否由中共支持者资助的问题与本案无关，或无足轻重；
-3. “愿景”提出的第三方资助者的身份独立问题，并不排斥关于“愿景”诉讼资助人的证据的可接受性；
-4. “愿景”既然将此案与政治挂钩，就不能再援引宪法第一修正案作为保护伞。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19112902/image5-4.jpeg)
-“东利”最后进一步指出，“愿景”先是企图将其合同欺诈的行为转移为政治案件，之后又试图援引宪法第一修正案隐瞒其诉讼资助者， 只可惜，该修正案此时已不适用于本案。
-
-分析：据美国司法部报道，布洛伊迪（*Broidy*）和戴维斯（*Davis*）分别在今年*10*月和*8*月认罪，他们均承认作为外国代理人，非法游说政府官员放弃对*1MDB*公司的调查，和遣返一名中国公民（郭文贵先生）。
-
-（*Elliott Broidy Pleads Guilty for Back-Channel Lobbying Campaign to Drop 1MDB Investigation and Remove a Chinese Foreign National | OPA | Department of Justice*
-
-*Nickie Mali Lum Davis Pleads Guilty to Facilitating Back-Channel Lobbying Campaign to Drop 1MDB Investigation and Remove a Foreign National to China*）
-
-由此可见，郭文贵先生是中共欲除之而后快的重要反共人士，绝不是*“*愿景*”*所污蔑的所谓迫害异见人士者。另外，作为中共代理人，布洛伊迪和戴维斯是否是*“*愿景*”*在此案中的资助者呢？为什么*“*愿景*”*极力隐瞒它已经承认的，实际存在的资助者？
-
-现在，*“*愿景*”*试图把欺诈案与政治挂钩，并利用宪法第一修正案作为保护伞，以逃避公布其幕后资助者的责任，但是根据*“*密斯诉基恩案（*Meese v. Keene*）*”*，联邦最高法院支持了*1938*年制定的《外国代理人登记法》，几部加拿大电影被定义为*“*政治宣传片*”*，法院要求必须公开这些电影的赞助商。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19112915/image6-4.jpeg)
-*“*愿景*”*的这一把戏可谓作茧自缚。纽约南区法院下一步是否会驳回*“*愿景*”*的动议，并要求其公布背后金主呢？我们拭目以待。
-
-相关链接： 
-1. 美国司法部案件编号：Case 1:18-cv-02185-LJL Document 307-1 Filed 11/18/20 Case 1:18-cv-02185-LJL Document 306 Filed 11/13/20 
-2.布洛伊迪认罪（Elliott Broidy Pleads Guilty）：https://search.justice.gov/search?query=broidy&op=Search&affiliate=justice 
-3.戴维斯认罪（Nickie Mali Lum Davis Pleads Guilty）： https://www.justice.gov/opa/pr/hawaii-businesswoman-pleads-guilty-facilitating-back-channel-lobbying-campaign-drop-1mdb 
-4.“愿景”公司背景（Who is Behind Strategic Vision US LLC）： https://gnews.org/50457/
-
-Pictures from: 
-https://www.leagle.com/decision/infdco20200115h87 
-https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2019/12/16094808/%E8%9E%A2%E5%B9%95%E6%88%AA%E5%9C%96-2019-12-10-%E4%B8%8B%E5%8D%888.13.36-1.png 
-https://www.rcinet.ca/en/wp-content/uploads/sites/3/2020/04/covid-epoch-times-headlines-sumit-carol-harman-via-cbc.jpg 
-https://static01.nyt.com/images/2020/10/20/nyregion/20dc-broidy/20dc-broidy-mobileMasterAt3x.jpg 
-https://spark.adobe.com/page/NEYhdCTSNg8GS/images/4e7cc822-4d50-47e9-b273-c6fa2e0e4c18.jpg?asset\_id=b5dfda3f-fe36-4390-93a4-3f8346da5380&img\_etag=%22b969f69b4f0498e8fd7cc1269b57e81c%22&size=1024 
-https://law.utexas.edu/wp-content/uploads/sites/63/2020/08/1Amendment\_V1-1024×546.jpg 
-https://static01.nyt.com/images/2014/12/26/nyregion/y-ANNIVERSARY/y-ANNIVERSARY-superJumbo.jpg
-
-3+
+战友之家玫瑰园小队出品
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01145114/GNEWS-GTV-VOG.png)
+0

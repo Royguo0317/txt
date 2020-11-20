@@ -1,44 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 现在正是你们“大显身手”的时候 — 两议员要求负责“通俄门”官员调查本次大选
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/573974/)
+## 前“ Dominion”项目经理与密歇根州签订了2500万美元的合同，同时担任Dem副主席
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/563897/)
 
-作者：小蚂蚁在行动 / Giselle
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19183205/Screen-Shot-2020-11-20-at-9.31.47-am.png)图片说明：共和党国会议员吉姆·乔丹
- (Jim Jordan左) 和詹姆士·卡莫（James Comer右）
-图片来源：【[1](https://t2.gstatic.com/images?q=tbn:ANd9GcRyGnEp9lx71rwArM_lu5arzagobRW6G39PqMEj_afsfD58QBS5xzjPI5GPIoEt)】【[2](https://t0.gstatic.com/images?q=tbn:ANd9GcQ0fqHPlfvGSkIgjaTmR8HEZK1GxEl3jI5pqKsz9YwXICuKm2YB)】
-在11月18日发给众议院司法委员会主席杰罗德·纳德勒 (Jerrold Nadler) 和众议院监督委员会主席卡罗琳·马洛尼 (Carolyn Maloney)的信中，共和党国会议员吉姆·乔丹 (Jim Jordan) 和詹姆士·卡莫（James Comer）要求立刻召开听证会，针对本次大选各种违规行为展开调查。
+编译：玫瑰天空
 
-两位共和党议员在信中列举了一系列本次选举中出现的违规现象，包括宾州延长邮寄选票和缺席选票的截止日期，限制竞选观察员监督计票工作；加州选民收到重复的选票以及其他人的选票；乔治亚州发现大量未计数选票等，他们对此深表忧虑。
+据报道，Dominion的前项目经理是密歇根州底特律郊区的一个小镇Lathrup Village的市长。
 
-信中还提到纳德勒和马洛尼在过去四年一直不遗余力地调查所谓川普总统的通俄们事件，质疑其2016年选举的合法性，最后却无疾而终。而针对此次2020年大选的各种舞弊事件，正是他们“大显身手”，向美国人民展示他们致力于维护选举公正性的最好时机。
+市长Mykale“ Kelly” Garrett是密歇根州的一名资深民主党人。纽约青年共和党俱乐部主席加文·瓦克斯（Gavin Wax）在Twitter帖子中指出了这一发现，并指出密歇根州民主党中央委员会已将她指定为：
 
-值得注意的是，除“通俄门”事件外，纳德勒和马洛尼还在去年12月主导了针对川普总统的弹劾案，在对方出具的一份685页的报告中提出滥用权力和妨碍国会两项指控，但最终在参议院分别以48票赞成: 52票反对和47票赞成:53票反对被否决。
+加勒特[在接受](https://www.youtube.com/watch?v=YncDKoX_7TI)《*奥克兰时报》*[采访时](https://www.youtube.com/watch?v=YncDKoX_7TI)说：
 
-吉姆·乔丹自2007年开始担任俄亥俄州第4选举区选出的美国众议院议员。在当选众议院议员之前，他曾是俄亥俄州议会议员。在今年7月31日国会听证会上，吉姆·乔丹曾一针见血，指出福奇博士关于COVID-19病毒法规上的虚伪。
-
-前检察官詹姆士·卡莫在2012年至2016年担任肯塔基州农业部长，之前他是肯塔基州议会众议员。2016年，他代表共和党参选美国众议院肯塔基州第一选区的议员并顺利当选。
-
-今年4月9日，两人曾参与美国众议员监督委员会联名活动，要求世界卫生组织总干事谭德赛解释他与中共政府的关系，并解释清楚他为何总是赞扬中共在病毒危机期间的“透明度”。
-
-相关链接:
+她在采访中没有提及与Dominion的关系。韦克斯指出，她曾协助经纪Dominion与密歇根州之间的2500万美元合同，[同时仍担任奥克兰县民主党的副主席](https://ocdp.org/news/17/01/04/election-announcement-officers-2017-2018)。
 
 
 
-> 🚨[#BREAKING](https://twitter.com/hashtag/BREAKING?src=hash&amp;ref_src=twsrc%5Etfw): [@Jim\_Jordan](https://twitter.com/Jim_Jordan?ref_src=twsrc%5Etfw) & [@RepJamesComer](https://twitter.com/RepJamesComer?ref_src=twsrc%5Etfw) call for immediate Congressional investigation into 2020 election. [pic.twitter.com/QsSUQvhRsv](https://t.co/QsSUQvhRsv)
-> — House Judiciary GOP (@JudiciaryGOP) [November 19, 2020](https://twitter.com/JudiciaryGOP/status/1329249071996039173?ref_src=twsrc%5Etfw)
+> Here are the images of the contract between Dominion and the State of Michigan which Ms. Garrett helped executed. $25 million. [pic.twitter.com/B5zKRfSvwK](https://t.co/B5zKRfSvwK)
+> — Gavin Mario Wax 🇺🇸 (@GavinWax) [November 16, 2020](https://twitter.com/GavinWax/status/1328421990106091522?ref_src=twsrc%5Etfw)
 
 
 
-该联名信中文翻译：
+纽约青年共和党俱乐部主席加文·瓦克斯（Gavin Wax）还指出：
+
+前Dominion项目经理Mykale Garrett现在由Kelly Garrett担任，现在是密歇根州Lathrup市长。于2019年离开Dominion，全面参与了密歇根州的政治，那么她是否全面了解这一切运作呢？她还曾担任临时市长。这里存在大量利益冲突。
 
 
 
-> [【热点播报】突发：2名共和党国会议员联名敦促：美国众议院司法及监督两机构进行大选听证！意义重大！](https://gnews.org/zh-hans/572282/)
+> Mykale Garrett, former Dominion project manager, now goes by Kelly Garrett and is the Mayor of Lathrup Village, Michigan. Conveniently left Dominion in 2019 to become involved heavily in Michigan politics having a full understanding of the machines in a swing-state? [pic.twitter.com/t8JGdiE0dG](https://t.co/t8JGdiE0dG)
+> — Gavin Mario Wax 🇺🇸 (@GavinWax) [November 16, 2020](https://twitter.com/GavinWax/status/1328390303607349248?ref_src=twsrc%5Etfw)
 
 
 
 
+
+> This is her. [pic.twitter.com/cINto81ZpI](https://t.co/cINto81ZpI)
+> — Gavin Mario Wax 🇺🇸 (@GavinWax) [November 16, 2020](https://twitter.com/GavinWax/status/1328398437591773187?ref_src=twsrc%5Etfw)
+
+
+
+加勒特（Garrett）还领导非营利组织母亲正义（Mothering Justice），该组织鼓吹**社会主义和财富再分配**。在采访中，她继续吹嘘自己在密歇根州**民主党的深厚关系。**
+
+“我曾是密歇根州民主党选民保护的副局长。”
+
+用她的话说，似乎她支持一些政策，例如将[底特律缺席选民投票委员会变成免费的第三世界风格的政策](https://bigleaguepolitics.com/tens-of-thousands-of-ballots-dropped-off-in-usps-boxes-at-detroit-absentee-ballot-processing-center-at-330-am-after-election/)。
+
+她说：“我曾担任奥克兰县民主党的副主席，而我最近刚刚停止担任Southfield-Lathrup民主党的主席。”“由于我有一些志愿人员职位，我实际上认识了全州的人。我与我们的**州长和国务卿**有着很好的关系”。
+
+这逐渐被各界民众发掘出来的消息都慢慢揭开背后利益关系各方在本次美国大选选票设备黑幕后的潜在角色。之中隐藏的利益关联和合法性将经受正在进行的司法大战的考验。后续信息的披露还需持续关注。
+
+[援引：](https://bigleaguepolitics.com/exclusive-former-dominion-project-manager-executed-25-million-contract-with-state-of-michigan-while-serving-as-dem-vice-chair/)原文
 
 0

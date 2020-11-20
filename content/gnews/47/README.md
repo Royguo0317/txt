@@ -1,28 +1,81 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/19/2020 财经快讯: 国企现违约风波; 川普令华尔街停止投资中共军企
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/573243/)
+## 11月15日 郭先生与和唐平、威廉王连线 GTV直播摘要-英喜出品
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/573388/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19092840/Picture9-2.png)图片来源：[https://static.reuters.com/](https://static.reuters.com/resources/r/?m=02&amp;d=20201118&amp;t=2&amp;i=1541688382&amp;r=LYNXMPEGAH1SP&amp;w=1024)
-1， 美国股市周三连续第二日下跌，市场近期涨幅创下新纪录的势头有所暂停。道琼斯工业平均指数在波动中下跌344.93点或1.2%，至29,438.42点，此前在时段高点时曾上涨多达147点。标准普尔500指数下滑1.2%，或41.74点，至3,567.79点，而科技股重挫纳斯达克综合指数下跌0.8%，或97.74点，至11,801.60点。各主要均线在盘中低点附近收盘。
-[https://www.cnbc.com/2020/11/17/stock-market-futures-open-to-close-news.html](https://www.cnbc.com/2020/11/17/stock-market-futures-open-to-close-news.html)
+[![](https://spark.adobe.com/page/JEO0M6lt60sFH/images/dad458e1-f339-4382-afd7-ccfab1f62ed3.png?asset_id=054ff2da-e152-4de8-a785-73a2620973c0&amp;img_etag=%2294c09458ff85571a7579751ecc1f044d%22&amp;size=2560)](https://spark.adobe.com/page/JEO0M6lt60sFH/images/dad458e1-f339-4382-afd7-ccfab1f62ed3.png?asset_id=054ff2da-e152-4de8-a785-73a2620973c0&amp;img_etag=%2294c09458ff85571a7579751ecc1f044d%22&amp;size=1024)英喜庄园·战鹰团出品
 
-2，川普总统签署命令让华尔街停止对中共武器的资助。美国资本不应该被用来资助中共军事武器的开发和建设，这些武器的目是为了杀死美国人，并将美军赶出亚洲。川普总统最近签署了一项行政命令，制止了华尔街的这种疯狂行为。
-[https://thehill.com/blogs/congress-blog/foreign-policy/526531-trumps-order-puts-a-halt-to-america-financing-chinas](https://thehill.com/blogs/congress-blog/foreign-policy/526531-trumps-order-puts-a-halt-to-america-financing-chinas)
+## 2020.11.15 郭文贵先生和唐平、威廉王连线 直播精要
 
-3，印度外长苏布拉马尼亚姆-杰桑卡周二发表讲话，重申印度绝对不参加世界上最大的贸易协定–中共主导的区域全面经济伙伴关系协定(RCEP)，并暗示中共没有以诚实的方式提出该协定所涉及的 全部内容。
-[https://www.breitbart.com/asia/2020/11/17/india-chinese-led-anti-us-trade-bloc-threatens-de-industrialize-countries/](https://www.breitbart.com/asia/2020/11/17/india-chinese-led-anti-us-trade-bloc-threatens-de-industrialize-countries/)
+总结：Cathy, call me uncle；PR: CharlesS；Page：1818
 
-4，周三上午，比特币价格上涨约8.6%，报18172美元，突破了自2017年12月20日以来从未达到的水平。比特币现在正在向2017年年底的反弹中发布的历史高点爬升，该高点见证了几种加密货币价值的飙升。 加密迷们为Fidelity、Square和PayPal等公司在行业内的大动作而欢呼雀跃。
-[https://www.cnbc.com/2020/11/18/bitcoin-price-above-18000-for-first-time-since-december-2017.html](https://www.cnbc.com/2020/11/18/bitcoin-price-above-18000-for-first-time-since-december-2017.html)
+[![](https://spark.adobe.com/page/JEO0M6lt60sFH/images/cd0dbeab-1356-489e-a3f7-471d2b35ca26.png?asset_id=f3ee1450-bc0e-434f-8f76-12a02d23ba5e&amp;img_etag=%220e1ec6c03a783a516f2c5adfde1e7e7c%22&amp;size=2560)](https://spark.adobe.com/page/JEO0M6lt60sFH/images/cd0dbeab-1356-489e-a3f7-471d2b35ca26.png?asset_id=f3ee1450-bc0e-434f-8f76-12a02d23ba5e&amp;img_etag=%220e1ec6c03a783a516f2c5adfde1e7e7c%22&amp;size=1024)
 
-5 ，11月13日，包商银行在中国货币网发布公告称，该行拟于11月13日对已发行的65亿元“2015包行二级债”本金实施全额减记，并对任何尚未支付的累积应付利息（总计：585639344.13元）不再支付，包商银行已于11月12日通知中央国债登记结算有限公司，授权其在减记执行日进行债权注销登记操作。
-[https://finance.sina.com.cn/money/fund/jjzl/2020-11-14/doc-iiznctke1399706.shtml](https://finance.sina.com.cn/money/fund/jjzl/2020-11-14/doc-iiznctke1399706.shtml)
+[**👉完整版GTV回看**](https://gtv.org/video/id=5fb1c878c280ff1609c76855)
 
-6, 河南能源集团10亿债券违约， 又一家AAA级国企倒下。11月10日， 永城煤电控股集团有限公司（简称“永煤控股”）公告称，因流动资金紧张，“20永煤SCP003”未能按期足额偿付本息，已构成实质性违约，违约本息金额共计10.32亿元。
-[https://finance.sina.cn/2020-11-11/detail-iiznezxs1174877.d.html?from=wap](https://finance.sina.cn/2020-11-11/detail-iiznezxs1174877.d.html?from=wap)
+1. 什么叫时尚，就是你改变了过去你喜欢的东西，然后你习惯的东西，然后让你找到了不同的自己。
 
-By 【秘翻组 – 金融法律团队】
+2. 啥叫音乐，《酒灭中共》感受最深的事情就是一个人对一个东西的喜欢的时候不会放弃。
 
+3. 《酒灭中共》这首歌和《沧海一声笑》绝对不是一般人所能理解的。现在如果按照真实数据，过去五年来，单首歌打榜就这么短时间绝对排第一。唐平和威廉王绝对是天才，以音乐灭共就是从你俩开始的，影响力太大了（已传播到广西的穷乡僻壤）。爆料革命一定要用智慧的办法，这个歌以歌灭共，以歌传播咱们新中国联邦真的做到了。
+
+[![](https://spark.adobe.com/page/JEO0M6lt60sFH/images/f6131cc1-a56f-47a3-8d6e-dab0ee79583f.png?asset_id=e38f1fe9-3663-40ed-992e-47b4de623ce9&amp;img_etag=%220dd409ad3672270ff8f9678cf46b8e9b%22&amp;size=2560)](https://spark.adobe.com/page/JEO0M6lt60sFH/images/f6131cc1-a56f-47a3-8d6e-dab0ee79583f.png?asset_id=e38f1fe9-3663-40ed-992e-47b4de623ce9&amp;img_etag=%220dd409ad3672270ff8f9678cf46b8e9b%22&amp;size=1024)
+
+[**👉文贵先生盖特Getter发布链接**](https://gtv.org/getter/5f9c100aad3f0f61d29cc097)
+
+4. 威廉王带唱的第一首歌，是我真正自信开始唱歌的开始。文贵真敢唱，班农先生老让我唱。
+
+5. 没有唐平绝对没有我郭文贵，没有班农绝对没有我不要脸的往上冲，没有威廉王我绝对没有敢接下来一句一句的唱。
+
+6. 国内大咖听完感觉很震撼，这个歌，这个背景还有唐平威廉王整出这个动静出来绝对是音乐界的革命。国内很多有才的歌星，他也唱不出来。
+
+7. 威廉王写的Rap的词，你可不要小看了呀。国内的行家说威廉王这个家伙真的厉害。唐平的摇滚和Rap结合到一起就是现代摇滚，真的是革命的摇滚。《沧海一声笑》对国内的影响是最大。然后是《Take down the CCP》。然后一下就打开了亚洲和国际上。《Dear mama》大家都爱听，唱得很好，外国人很多都喜欢，班农爱得不行了，每天在屋里必须听。然后《Fight for hongkong》。咱们的《酒灭中共》推出来，美国团队说不可能让挂到Itunes上去，中共说你要让郭文贵打榜就把你所有的Itunes都黑掉。第二个他所有的没有版权的歌都不能给挂上去，你挂上去我就把你给告了。但咱们合法的上了，战友的帮忙。战友的力量多大。
+
+[![](https://spark.adobe.com/page/JEO0M6lt60sFH/images/caf04306-3c88-417d-a201-8d2331afb47e.jpg?asset_id=ada2eeb1-dac1-4272-9e5c-baf1b5b9919c&amp;img_etag=%22b205cd76d9f202f482ee0be5c6884cbc%22&amp;size=2560)](https://spark.adobe.com/page/JEO0M6lt60sFH/images/caf04306-3c88-417d-a201-8d2331afb47e.jpg?asset_id=ada2eeb1-dac1-4272-9e5c-baf1b5b9919c&amp;img_etag=%22b205cd76d9f202f482ee0be5c6884cbc%22&amp;size=1024)
+
+8. 唐平、威廉王你得教人家怎么唱歌啊，没有秘密，你们一定要把怎么教我唱歌的一百遍一亿遍的讲，出来一百个一千个郭文贵。威廉王写词的过程一定要让大家知道。好莱坞的团队是12个人整这个歌，你们就两人。一定要在“我是音雄”讲述怎么教七哥一个字一个字唱歌，把咱们录歌的过程，任何一面都告诉战友，好的一面执着，唱歌用真情，同时把根本不具备唱歌的这一面告诉大家，大家看到真实的七哥怎么唱出来的，大家就会出来更多比七哥强一万倍的人。
+
+9. 唱《沧海一声笑》，特别是录《酒灭中共》的时候，文贵的嗓子连续几天都是咳血的。
+
+10. 昨天很多国内人感动的一塌糊涂，VPN又是高峰。广东局有人又被处理了。昨天韩梅梅真是主持的太棒了。
+
+11. 长岛哥是有能力的，他是来得最晚的。歌里写的不分前后（爆料革命），都是战友，（唐平：这是圣经里的话）。
+
+12. 他们拍的照片，我们从来没见过这么有规矩的中国人，这么多人在一起，而且这么规矩。大队伍拉过去就碰到Antifa的人。Antifa就要跟干上啦。几十个警察来把他们给拦开了。长岛哥处理危机事件非常老道，这个时候不要跟他们（黑命贵）冲突。先让开，不要冲突，跟警察特别合作。这都是记录在案的，中国人规矩形象，坚持。
+
+13. DC的很多战友今天才回来，多辛苦，72小时，让他们休息一下，真的要大家互相总结总结。我觉得这都是好事。今天相比我们往以前看活动的直播，鸟枪换大炮了。有问题不怕，别犯太激进。昨天暴露的问题：真不能外包。新中国联邦必须有自己的全面的队伍。各农场都有自己的队伍。
+
+14. 11-14挺川普华盛顿百万大游行，新中国联邦在没有预演没有彩排的情况下总体正常可接受。资金七哥个人出资，韩梅梅以救兵形象出场，郝海东叶钊颖的采访令人感动，新中国联邦与美国紧密连接在一起。
+
+[![](https://spark.adobe.com/page/JEO0M6lt60sFH/images/a047c5a7-1a56-4822-9e52-c5fd61785214.jpg?asset_id=7323994c-e23b-4e5d-bc6f-58e5206093d3&amp;img_etag=%228491c92efb47b51b1cb56ebd06abf397%22&amp;size=2560)](https://spark.adobe.com/page/JEO0M6lt60sFH/images/a047c5a7-1a56-4822-9e52-c5fd61785214.jpg?asset_id=7323994c-e23b-4e5d-bc6f-58e5206093d3&amp;img_etag=%228491c92efb47b51b1cb56ebd06abf397%22&amp;size=1024)
+
+15. 《 酒灭中共 》 《 沧海一声笑 》 《Fight For HK》等打榜歌曲对国内影响巨大。纵横城市到农村、老人到孩子。只有秉承唯真不破、回归音乐本质、体现中国人气质就注定能成。大陆红破半边天的节目“好声音”本质上却是搞包装、假感情、背后交易、贿赂，一群音乐骗子瞎搞。
+
+16. 节目预告：11-26“我是音雄”总决赛。七哥会参加。现美国音乐界基本被左派控制，保守派在音乐界差实力，各大巨星（Lady Gaga等）实际是天使面容魔鬼内在，诱惑大众。
+
+17. G-tv、G-news、打榜歌曲、11-14大游行、大选前13天密集爆料综合左右对国外影响巨大。重塑新中国联邦形象、赢得外国友人的尊重。G-fashion推出的商品基本全都都大卖，手链/戒指卖到断货（七哥直播送大礼）。中共在暗网布局很深、大数据掌控也很厉害。
+
+18. 八卦“小姐故事”：大部分小姐正直、诚实、不骗人，最讨厌假高潮，曾经打过交道的某人还帮过七哥。现某中宣部副部长也是小姐讨厌类型的常客哦。
+
+19. 国外事：某好莱坞女星和基金界大佬夫妇与叶简明有密切合作。自从共产主义来到中国便流行起崇外文化，某大陆富翁曾在1991年给七哥提议随便找个老外就出资100万做生意，反观现在的好莱坞却被收买得服服帖帖。七哥面对的压力非常巨大，曾经合作的40多个基金至少30个断绝关系。外国某元首（拜登好友）对话——间接问候实际威胁，七哥明确表决心，CCP的朋友就是敌人，CCP的敌人就是朋友。类似班农先生（彭培奥、朱利安尼、纳瓦罗、汤姆克顿）这种有虔诚信仰、无所畏惧、不计私利的坚定灭共者，结合美国的法律程序、纠错能力，美国将会改变。
+
+20. 郭文贵最想做的事情：唤醒更多的中国人。唤不醒装睡的人是因为没有能力，装睡的人是最容易唤醒的，你找到装睡的原因就行了。如果怕承担责任、怕失去，就让他没有危险，没有顾忌的情况下让他做应该做的事情，对大家都好。70 年都没站起来过，站起来很不容易的。
+
+21. 唐平和威廉王身上有很多了不起的东西，但好像缺了点东西，在最关键的时候没顶上去。《酒灭中共》能做得更好。一个人一辈子最牛的就是遇到一个好人、识你的人，你一下子变了。第二个是遇到好舞台，好老板或好公司。
+
+22. 美国团队合作，相信系统，不相信人。中国人相信人不相信系统。唐平和威廉王要想一下怎么把系统建立起来，钱文贵解决，人唐平去找，还得商业化。
+
+23. GTV 不用5 亿人，只 要1亿人使用的时候就会看到在全世界影响力。最重要的，中国人的使用客户是全世界唯一最有综合性的，有购买、金融、商务，这个价钱了不得。《我是音雄》要让人上了以后能出名还能挣钱，还有信仰，让家人过有体面的生活。
+
+24. 一切发自内心，当不拿自己标准衡量别人，只看到别人的优点时，就会发现每个人都值得尊重和爱。当你看到生病的人和残疾人等，觉得健康活着每一分钟都好。要看到对方优点，感恩。当你不能控制你的心时一定是魔。
+
+编辑**[【喜马拉雅战鹰团】](https://spark.adobe.com/page/JEO0M6lt60sFH/)**-点击Adobe Spark版
+
+**[点击关注英喜庄园文宣电台](https://t.me/HimalayaUK)**
+
+[**点击阅读英喜庄园在G-News 的更多精彩文章**](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[**点击观看英喜庄园在G-TV的精彩视频**](https://gtv.org/user/5ee680a45bd6f123dd104807)
+[![](https://spark.adobe.com/page/JEO0M6lt60sFH/images/0d8c65b6-030a-455f-a2d6-8854404a9422.jpg?asset_id=b33833e6-6c0d-4634-99f2-596b78b10c29&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=2560)](https://spark.adobe.com/page/JEO0M6lt60sFH/images/0d8c65b6-030a-455f-a2d6-8854404a9422.jpg?asset_id=b33833e6-6c0d-4634-99f2-596b78b10c29&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=1024)
 2+

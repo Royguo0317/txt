@@ -1,47 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发：生态健康联盟策划了中共病毒 “自然起源”一系列声明
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/573641/)
+## 川普总统竞选总部已撤回在密歇根州重新计票的诉讼
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/573828/)
 
-多伦多加喜农场 云起时
+多伦多加喜农场 熊妈妈
 
 校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19140324/come.jpg)图片来自 WSJ
-美国知情权组织（US Right To Know)于11月18日宣告，根据他们获得的一系列电子邮件显示，27名著名公共卫生科学家在《柳叶刀》上撰写的一份谴责 “阴谋论认为COVID-19没有天然来源 “的声明是由生态健康联盟（EcoHealth Alliance）的员工组织协调的。该联盟是一个非营利组织，曾获得美国纳税人数百万美元的资助，与武汉病毒学研究所的科学家一起对冠状病毒进行基因操作。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19171158/%E5%B7%9D%E6%99%AE-2.jpg)图片来自 The Detroit News
+11月19日，美国纽约市前市长、川普总统私人律师鲁道夫·朱利安尼（Rudolph Giuliani）表示，川普总统竞选总部撤回了对密歇根州投票结果提出质疑的诉讼。
 
-通过公共记录请求获得的电子邮件显示，生态健康联盟主席彼得-达斯扎克（Peter Daszak）起草了发表在《柳叶刀》（Lacent)上的声明，他希望“不要让人觉得它来自任何一个组织或个人”，而要把它看作“仅仅是一封来自顶尖科学家的信”。达斯扎克在电子邮件中写道，他希望 “避免出现政治声明”。【1】
+朱利安尼表示：“今天早晨，我们撤回了在密歇根州的诉讼，因为我们实现了我们的目标，总统代表在韦恩县停止了其对选举结果的正式承认。”
 
-科学家们的这封信于2月18日刊登在《柳叶刀》上，此时距世界卫生组织宣布将中共病毒命名为COVID-19仅一周。
+根据朱利安尼介绍，总统的代表停止了韦恩县正式承认选举结果的过程，直到所有居民相信，每一张合法的投票都被计算在内，杜绝非法投票。
 
-这27位作者 “强烈谴责认为COVID-19非自然来源的阴谋论”，并报告说，来自多个国家的科学家“绝大多数认为这种冠状病毒起源于野生动物”。信中没有任何科学参考资料来反驳该病毒的实验室起源理论。一位科学家琳达-赛义夫（Linda Saif）通过电子邮件问道，“只补充一两个声明来支持为什么nCOV不是实验室产生的病毒，而是自然产生的，这是否有用? 似乎至关重要的是应该科学地驳斥这种说法！” 【2】达斯扎克回应说：“我认为我们可能应该坚持一个宽泛的声明。”【3】
+目前还不清楚存在问题的诉讼，因为川普总统的支持者已经在战场州提交了多份申请。
 
-随着调查武汉病毒学研究所作为中共病毒潜在来源的呼声越来越高，导致生态健康联盟的审查力度加大。这些邮件显示，正如达斯扎克告诉《卫报》的那样，生态健康联盟的成员如何在将有关中共病毒可能的实验室来源的问题定义为 “需要解决的疯狂理论 “方面发挥了早期作用。【4】
+美国2020总统大选于11月3日结束，美国官方至今还没有公布大选结果，由于创纪录的高投票率和近1亿人通过邮寄投票，导致选票的计数被所谓推迟。但在11月7日，美国主流媒体主观宣布乔∙拜登在大选中获胜。
 
-虽然“生态健康联盟 ”这个词只在《柳叶刀》声明中出现过一次，生态联盟与声明合著者达斯扎克有关，其他几位合著者也与该组织有着直接关系，但却没有被披露为利益冲突。这些合著者中，丽塔-科威尔（Rita Colwell）和詹姆斯-休斯（James Hughes）是生态健康联盟的董事会成员，威廉-卡瑞什（William Karesh）是该集团负责健康和政策的执行副总裁，休姆-菲德（Hume Field）是其科学和政策顾问。
+11月15日，川普总统宣布“我赢得了美国2020总统大选”，并表示，“美国总统选举中违反宪法的行为达到了前所未有的程度”。
 
-声明的作者还声称，“迅速、公开和透明地分享有关这次疫情的数据，现在正受到围绕其起源的谣言和错误信息的威胁”。然而如今，人们对中共病毒的起源知之甚少，世界卫生组织和《柳叶刀》COVID-19委员会对其起源的调查也一直笼罩在秘密之中，并陷入利益冲突。
+中共代理人乔∙拜登及其同伙在中共的操控下，用邮寄选票、投票机及计票软件系统等多种方式制造虚假选票，意图阻止川普总统在11月3日以压倒性的优势碾压竞选对手乔∙拜登获得的大胜。随着中共以及乔∙拜登团队触碰美国体制的阴谋被揭露，美国民意已经觉醒。
 
-达斯扎克、丽塔（Rita Colwell）和《柳叶刀》编辑理查德-霍顿（Richard Horton）没有对我们的要求发表评论。
+目前，关键战场州的县开始不断拒绝承认选举的结果，并重新计算每一张合法的选票，以点带面，在川普总统团队、正义力量及民众的努力下，这种趋势将覆盖多个州。
 
-更多信息如下：
+川普总统一定能够赢得最后的胜利！
 
-通过该链接可以看到生态健康联盟共466页的电子邮件。【5】
+参考链接：[https://www.reuters.com/article/us-usa-election-michigan/trump-campaign-drops-michigan-lawsuit-statement-idUSKBN27Z292?il=0](https://www.reuters.com/article/us-usa-election-michigan/trump-campaign-drops-michigan-lawsuit-statement-idUSKBN27Z292?il=0)
 
-美国知情权组织曾于11月16日公布了通过公共信息自由（FOI）请求获得的《关于SARS-CoV-2的起源、功能增益研究的危害和生物安全实验室的FOI文件》。【6】
-
-[原文链接](https://usrtk.org/biohazards-blog/ecohealth-alliance-orchestrated-key-scientists-statement-on-natural-origin-of-sars-cov-2/)
-
-【1】[https://usrtk.org/wp-content/uploads/2020/11/The\_Lancet\_Emails\_Daszak-2.8.20.pdf](https://usrtk.org/wp-content/uploads/2020/11/The_Lancet_Emails_Daszak-2.8.20.pdf)
-
-【2】[https://usrtk.org/wp-content/uploads/2020/11/The\_Lancet\_Emails\_Saif-2.6.20.pdf](https://usrtk.org/wp-content/uploads/2020/11/The_Lancet_Emails_Saif-2.6.20.pdf)
-
-【3】[https://usrtk.org/wp-content/uploads/2020/11/The\_Lancet\_Emails\_Daszak-2.6.20.pdf](https://usrtk.org/wp-content/uploads/2020/11/The_Lancet_Emails_Daszak-2.6.20.pdf)
-
-【4】[https://www.theguardian.com/world/2020/feb/20/coronavirus-chinese-scientists-false-rumours-experts](https://www.theguardian.com/world/2020/feb/20/coronavirus-chinese-scientists-false-rumours-experts)
-
-【5】[https://usrtk.org/wp-content/uploads/2020/11/Biohazard\_FOIA\_Maryland\_Emails\_11.6.20.pdf](https://usrtk.org/wp-content/uploads/2020/11/Biohazard_FOIA_Maryland_Emails_11.6.20.pdf)
-
-【6】https://usrtk.org/biohazards/foi-documents-on-origins-of-sars-cov-2-risks-of-gain-of-function-research-and-biosafety-labs/
+[https://www.fox2detroit.com/news/trump-campaign-pulls-michigan-lawsuit-after-wayne-county-certifies-votes](https://www.fox2detroit.com/news/trump-campaign-pulls-michigan-lawsuit-after-wayne-county-certifies-votes)
 
 0

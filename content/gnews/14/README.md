@@ -1,75 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【聚焦】Scytl公司投票欺诈服务器被“捡到” — 白宫记者质疑7800万张美国选票被送到海外
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/574004/)
+## 【重磅】！欣尼·鲍威尔律师：川普有多达8000万张选票
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/574100/)
 
-作者：Giselle / 文泓
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19185206/Picture13-1.png)图为INTEL美军突袭德国的Scytl服务器公司（来源：[https://greatgameindia.com/](https://greatgameindia.com/us-military-raided-scytl-germany/)）
-Newsmax驻美国白宫记者Emerald Robinson11月19日在推特上发文称，川普竞选团队律师西德尼.鲍威尔已经向她证实，从德国取回了一台服务器。“我刚问了西德尼.鲍威尔：有报道说，有一个硬件，可能是一个服务器，在德国捡到的，是真的吗？”鲍威尔：这是真的，它和这个有某种关系，但我不知道是好人得到了它，还是坏人得到了它。
+翻译：TCC；PR：Roberts；简评、组稿编辑：Julia Win
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19211708/1-19-1.jpeg)
 
+**简评：**
 
-> Nov. 19: Sidney Powell confirms to me that a server was retrieved from Germany. [https://t.co/VMvde4wRPS](https://t.co/VMvde4wRPS)
-> — Emerald Robinson ✝️ (@EmeraldRobinson) [November 19, 2020](https://twitter.com/EmeraldRobinson/status/1329513393208913925?ref_src=twsrc%5Etfw)
+美国总统大选已过去半个月了，大量的证人、证词和证据都证明了各州选票欺诈的疯狂行为，说明这是一场有组织有预谋的颠覆民主制度的犯罪，已远远超出两党之争的范畴。欣尼·鲍威尔律师在这段采访视频中提到：“这些程序(Dominion)，如果没有中央情报局是无法在全球范围内运行和影响选举的。”
 
+文贵先生今天直播中也谈到：此次操纵大选的Dominion软件的发源地（鼻祖）就是北大方正科技！
 
+此次美国总统大选，不仅暴露了美国各政府部门的腐败、卖国，也暴露了外部利益集团对美国的渗透。有充分证据证明了拜登们勾结海外共产主义势力干扰此次大选，出卖国家、出卖美国人民的昭彰罪恶！
 
+**11月17日，Newsmax的格雷戈·凯利采访了欣尼·鲍威尔律师**
 
+**视频翻译：**
 
-> I just asked Sidney Powell: "There are reports that there was a piece of hardware, probably a server, picked up in Germany. Is that true?"
-> 
-> Powell: "That is true. It is somehow related to this. But I do not know whether good guys got it or bad guys got it."
-> — Emerald Robinson ✝️ (@EmeraldRobinson) [November 19, 2020](https://twitter.com/EmeraldRobinson/status/1329492983679488010?ref_src=twsrc%5Etfw)
+**Kelly：**今天你提到了中央情报局。我听到你在广播节目谈到希望把中央情报局局长开除，这似乎有点偏离主题、偏离信号，但是如果你不介意的话，谈谈其中的联系。
 
+**Powell：**这里的联系是这些程序(Dominion)，如果没有中央情报局是无法在全球范围内运行和影响选举的。还有人向我们披露了整个Hammer程序就是为中央情报局制定的，本质上和“记分卡”也是一样的。似乎每个国家都在利用这样的东西来做它想做的事，这次用于我们的就是专门来影响大选的，但它也可以改变这次选举。这是一个一整套干预政府计划的一部分，是在选举层面改变人民的意愿。在这个国家，人民的意愿就是唐纳德·川普以压倒性优势获胜。如果我们能够揭露真相，这是我是一定会做的。我想我们会看到总统至少得了8000万张票。系统发生这一插曲的唯一原因是川普总统得到的票数，远远超过了他们预先计算的数量，他们的算法无法执行原本设计要执行的功能。他们无法弥补差距，川普总统比他们预计的选票多了数十万张，所以此时他们必须停止计数，使用一种方法来弥补选票或 在为拜登伪造选票的同时销毁川普的选票。
 
+编辑：【喜马拉雅战鹰团】-点击spark adobe版
 
-【备注】记者招待会上，当鲍威尔律师说到“好人、坏人”时，一旁的朱利安尼和小律师都在窃笑。
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-Robinson在推特上说，据美联社报道，“Scytl在德国法兰克福没有办公室或服务器”，”问题是，Scytl在自己的公关资料中提到它“在法兰克福有一个紧急备份中心”。
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-
-
-> According to AP/NYT/Reuters/USAToday: "Scytl does not have offices or servers in Frankfurt, Germany."
-> 
-> The problem is that Scytl's own PR kits mention "an emergency back-up center in Frankfurt." 
-> 
-> Where does Scytl's website IP address take you? Frankfurt, Germany. [https://t.co/dEBqfPbTU0](https://t.co/dEBqfPbTU0)
-> — Emerald Robinson ✝️ (@EmeraldRobinson) [November 19, 2020](https://twitter.com/EmeraldRobinson/status/1329443200734539778?ref_src=twsrc%5Etfw)
-
-
-
-Scytl的网站IP地址在哪里？
-
-【备注】Scytl是一家总部位于巴塞罗那的西班牙公司，自2008年以来已经以各种方式为美国各州和多个城市提供选举服务。像Dominion Voting Systems 公司一样，Scytl在不同国家和地区都有选举欺诈历史，包括在选举软件中加入后门。
-
-Scytl表面上与Dominion是两家公司，实际是后者的数据支持中心，所以才有了美国的数据到了国外之说。
-
-此前的11月18日，驻白宫记者Robinson在推特上发文：如果你想揭开2020年美国大选结果的神秘面纱，必须先问一个简单的问题：为什么800个县的7800万张美国选票，被送到了海外属于一家西班牙公司的服务器上？
-
-
-
-> According to Scytl website, the Department of Defense is one of their main customers. Why would the DoD subcontract a Spanish company to handle 78 million votes in 800 counties? [https://t.co/kcM9VUy5Va](https://t.co/kcM9VUy5Va)
-> — Emerald Robinson ✝️ (@EmeraldRobinson) [November 19, 2020](https://twitter.com/EmeraldRobinson/status/1329422743364898816?ref_src=twsrc%5Etfw)
-
-
-
-推友 [@ AFVET4FREEDOM](https://twitter.com/AFVET4FREEDOM) 回复：这也正是我想问的。
-
-川普总统在2018年签署了一项关于外国干涉我们选举过程的行政命令，但我们却把选票放在德国的服务器上，这仿佛在说，请干涉我们的选举！
-
-在11月18日的福克斯新闻采访中，川普竞选团队律师朱利安尼指控，美国28个州的选票被发送到了德国和西班牙，由委内瑞拉的Smartmatic公司进行计数。
-
-Dominion是一个在加拿大创立的公司，但是这些数据“没有被送往加拿大，而是被送往德国和西班牙，计票的公司不是Dominion，而是Smartmatic——这是一家2005年在委内瑞拉成立的公司，专门用于操纵选举，他们精于此道。”朱利安尼说。
-
-在11月15日的一次采访中，朱利安尼提供了Dominion Voting Systems的更多详细信息，该系统使用了Smartmatic公司的软件，涉入委内瑞拉全国大选以及阿根廷和菲律宾等其它国家的选举。
-
-在过去的几年中，Smartmatic及其产品引起了人们对投票安全的关注。德克萨斯州务卿和检察长办公室认为该软件缺乏基本的安全标准，在2013年和2019年拒绝使用。
-
-朱利安尼指称：“极左翼”的Dominion公司一些高层人士支持安提法（Antifa），而Smartmatic的董事长与乔治·索罗斯（George Soros）有联系。
-
-相关链接：
-
-[https://www.epochtimes.com/gb/20/11/19/n12561543.htm](https://www.epochtimes.com/gb/20/11/19/n12561543.htm)
+![]()![](https://spark.adobe.com/page/CZvHWc9WnHTrV/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

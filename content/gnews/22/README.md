@@ -1,33 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统竞选总部已撤回在密歇根州重新计票的诉讼
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/573828/)
+## 现在正是你们“大显身手”的时候 — 两议员要求负责“通俄门”官员调查本次大选
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/573974/)
 
-多伦多加喜农场 熊妈妈
+作者：小蚂蚁在行动 / Giselle
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19183205/Screen-Shot-2020-11-20-at-9.31.47-am.png)图片说明：共和党国会议员吉姆·乔丹
+ (Jim Jordan左) 和詹姆士·卡莫（James Comer右）
+图片来源：【[1](https://t2.gstatic.com/images?q=tbn:ANd9GcRyGnEp9lx71rwArM_lu5arzagobRW6G39PqMEj_afsfD58QBS5xzjPI5GPIoEt)】【[2](https://t0.gstatic.com/images?q=tbn:ANd9GcQ0fqHPlfvGSkIgjaTmR8HEZK1GxEl3jI5pqKsz9YwXICuKm2YB)】
+在11月18日发给众议院司法委员会主席杰罗德·纳德勒 (Jerrold Nadler) 和众议院监督委员会主席卡罗琳·马洛尼 (Carolyn Maloney)的信中，共和党国会议员吉姆·乔丹 (Jim Jordan) 和詹姆士·卡莫（James Comer）要求立刻召开听证会，针对本次大选各种违规行为展开调查。
 
-校对 上传 小鸥
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19171158/%E5%B7%9D%E6%99%AE-2.jpg)图片来自 The Detroit News
-11月19日，美国纽约市前市长、川普总统私人律师鲁道夫·朱利安尼（Rudolph Giuliani）表示，川普总统竞选总部撤回了对密歇根州投票结果提出质疑的诉讼。
+两位共和党议员在信中列举了一系列本次选举中出现的违规现象，包括宾州延长邮寄选票和缺席选票的截止日期，限制竞选观察员监督计票工作；加州选民收到重复的选票以及其他人的选票；乔治亚州发现大量未计数选票等，他们对此深表忧虑。
 
-朱利安尼表示：“今天早晨，我们撤回了在密歇根州的诉讼，因为我们实现了我们的目标，总统代表在韦恩县停止了其对选举结果的正式承认。”
+信中还提到纳德勒和马洛尼在过去四年一直不遗余力地调查所谓川普总统的通俄们事件，质疑其2016年选举的合法性，最后却无疾而终。而针对此次2020年大选的各种舞弊事件，正是他们“大显身手”，向美国人民展示他们致力于维护选举公正性的最好时机。
 
-根据朱利安尼介绍，总统的代表停止了韦恩县正式承认选举结果的过程，直到所有居民相信，每一张合法的投票都被计算在内，杜绝非法投票。
+值得注意的是，除“通俄门”事件外，纳德勒和马洛尼还在去年12月主导了针对川普总统的弹劾案，在对方出具的一份685页的报告中提出滥用权力和妨碍国会两项指控，但最终在参议院分别以48票赞成: 52票反对和47票赞成:53票反对被否决。
 
-目前还不清楚存在问题的诉讼，因为川普总统的支持者已经在战场州提交了多份申请。
+吉姆·乔丹自2007年开始担任俄亥俄州第4选举区选出的美国众议院议员。在当选众议院议员之前，他曾是俄亥俄州议会议员。在今年7月31日国会听证会上，吉姆·乔丹曾一针见血，指出福奇博士关于COVID-19病毒法规上的虚伪。
 
-美国2020总统大选于11月3日结束，美国官方至今还没有公布大选结果，由于创纪录的高投票率和近1亿人通过邮寄投票，导致选票的计数被所谓推迟。但在11月7日，美国主流媒体主观宣布乔∙拜登在大选中获胜。
+前检察官詹姆士·卡莫在2012年至2016年担任肯塔基州农业部长，之前他是肯塔基州议会众议员。2016年，他代表共和党参选美国众议院肯塔基州第一选区的议员并顺利当选。
 
-11月15日，川普总统宣布“我赢得了美国2020总统大选”，并表示，“美国总统选举中违反宪法的行为达到了前所未有的程度”。
+今年4月9日，两人曾参与美国众议员监督委员会联名活动，要求世界卫生组织总干事谭德赛解释他与中共政府的关系，并解释清楚他为何总是赞扬中共在病毒危机期间的“透明度”。
 
-中共代理人乔∙拜登及其同伙在中共的操控下，用邮寄选票、投票机及计票软件系统等多种方式制造虚假选票，意图阻止川普总统在11月3日以压倒性的优势碾压竞选对手乔∙拜登获得的大胜。随着中共以及乔∙拜登团队触碰美国体制的阴谋被揭露，美国民意已经觉醒。
+相关链接:
 
-目前，关键战场州的县开始不断拒绝承认选举的结果，并重新计算每一张合法的选票，以点带面，在川普总统团队、正义力量及民众的努力下，这种趋势将覆盖多个州。
 
-川普总统一定能够赢得最后的胜利！
 
-参考链接：[https://www.reuters.com/article/us-usa-election-michigan/trump-campaign-drops-michigan-lawsuit-statement-idUSKBN27Z292?il=0](https://www.reuters.com/article/us-usa-election-michigan/trump-campaign-drops-michigan-lawsuit-statement-idUSKBN27Z292?il=0)
+> 🚨[#BREAKING](https://twitter.com/hashtag/BREAKING?src=hash&amp;ref_src=twsrc%5Etfw): [@Jim\_Jordan](https://twitter.com/Jim_Jordan?ref_src=twsrc%5Etfw) & [@RepJamesComer](https://twitter.com/RepJamesComer?ref_src=twsrc%5Etfw) call for immediate Congressional investigation into 2020 election. [pic.twitter.com/QsSUQvhRsv](https://t.co/QsSUQvhRsv)
+> — House Judiciary GOP (@JudiciaryGOP) [November 19, 2020](https://twitter.com/JudiciaryGOP/status/1329249071996039173?ref_src=twsrc%5Etfw)
 
-[https://www.fox2detroit.com/news/trump-campaign-pulls-michigan-lawsuit-after-wayne-county-certifies-votes](https://www.fox2detroit.com/news/trump-campaign-pulls-michigan-lawsuit-after-wayne-county-certifies-votes)
+
+
+该联名信中文翻译：
+
+
+
+> [【热点播报】突发：2名共和党国会议员联名敦促：美国众议院司法及监督两机构进行大选听证！意义重大！](https://gnews.org/zh-hans/572282/)
+
+
+
+
 
 0
