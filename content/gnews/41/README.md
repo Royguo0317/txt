@@ -1,30 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 293期疫情战报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/573237/)
+## 11/19/2020 财经快讯: 国企现违约风波; 川普令华尔街停止投资中共军企
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/573243/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19092554/%E7%94%BB%E5%83%8F4-7.png)
-![]()1. 中共国将医疗产业化，一方面大肆赚取病苦人民钱财不说，另一方面还要编写新闻骗人民说政府组织采购是为了替老百姓砍价。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19092840/Picture9-2.png)图片来源：[https://static.reuters.com/](https://static.reuters.com/resources/r/?m=02&amp;d=20201118&amp;t=2&amp;i=1541688382&amp;r=LYNXMPEGAH1SP&amp;w=1024)
+1， 美国股市周三连续第二日下跌，市场近期涨幅创下新纪录的势头有所暂停。道琼斯工业平均指数在波动中下跌344.93点或1.2%，至29,438.42点，此前在时段高点时曾上涨多达147点。标准普尔500指数下滑1.2%，或41.74点，至3,567.79点，而科技股重挫纳斯达克综合指数下跌0.8%，或97.74点，至11,801.60点。各主要均线在盘中低点附近收盘。
+[https://www.cnbc.com/2020/11/17/stock-market-futures-open-to-close-news.html](https://www.cnbc.com/2020/11/17/stock-market-futures-open-to-close-news.html)
 
-2. 上海一学生被发现来自疫情爆发区，医院对他做了两次检测，结果均为阴性。中共核筛技术缺陷大，准确率只有30%，因此才需要做两次检测。
+2，川普总统签署命令让华尔街停止对中共武器的资助。美国资本不应该被用来资助中共军事武器的开发和建设，这些武器的目是为了杀死美国人，并将美军赶出亚洲。川普总统最近签署了一项行政命令，制止了华尔街的这种疯狂行为。
+[https://thehill.com/blogs/congress-blog/foreign-policy/526531-trumps-order-puts-a-halt-to-america-financing-chinas](https://thehill.com/blogs/congress-blog/foreign-policy/526531-trumps-order-puts-a-halt-to-america-financing-chinas)
 
-3. 11月12日，南京林业大学出现不明原因肺结核，市疾控称不清楚有多少例，学校工作人员称感染大学生已经被隔离不在学校，不知道病情如何。
+3，印度外长苏布拉马尼亚姆-杰桑卡周二发表讲话，重申印度绝对不参加世界上最大的贸易协定–中共主导的区域全面经济伙伴关系协定(RCEP)，并暗示中共没有以诚实的方式提出该协定所涉及的 全部内容。
+[https://www.breitbart.com/asia/2020/11/17/india-chinese-led-anti-us-trade-bloc-threatens-de-industrialize-countries/](https://www.breitbart.com/asia/2020/11/17/india-chinese-led-anti-us-trade-bloc-threatens-de-industrialize-countries/)
 
-4. 中共砸残疾人士轮椅：政府人员将上访人朱坚强的残疾车当场砸坏，而该上访人士当时就坐在残疾车上，十分无助。
+4，周三上午，比特币价格上涨约8.6%，报18172美元，突破了自2017年12月20日以来从未达到的水平。比特币现在正在向2017年年底的反弹中发布的历史高点爬升，该高点见证了几种加密货币价值的飙升。 加密迷们为Fidelity、Square和PayPal等公司在行业内的大动作而欢呼雀跃。
+[https://www.cnbc.com/2020/11/18/bitcoin-price-above-18000-for-first-time-since-december-2017.html](https://www.cnbc.com/2020/11/18/bitcoin-price-above-18000-for-first-time-since-december-2017.html)
 
-5. 抖音TikTok通过法律缠诉，意图将该应用在美国的运营禁令推迟30天，其目的在于看拜登是否通过选票舞弊成功当选，然后美国改变对中共的政策。
+5 ，11月13日，包商银行在中国货币网发布公告称，该行拟于11月13日对已发行的65亿元“2015包行二级债”本金实施全额减记，并对任何尚未支付的累积应付利息（总计：585639344.13元）不再支付，包商银行已于11月12日通知中央国债登记结算有限公司，授权其在减记执行日进行债权注销登记操作。
+[https://finance.sina.com.cn/money/fund/jjzl/2020-11-14/doc-iiznctke1399706.shtml](https://finance.sina.com.cn/money/fund/jjzl/2020-11-14/doc-iiznctke1399706.shtml)
 
-6. 民主派立法会议员宣布全体辞职。中共已掌控香港立法会，完全控制香港司法，诬陷、栽赃反送中人士将会更加严重。
+6, 河南能源集团10亿债券违约， 又一家AAA级国企倒下。11月10日， 永城煤电控股集团有限公司（简称“永煤控股”）公告称，因流动资金紧张，“20永煤SCP003”未能按期足额偿付本息，已构成实质性违约，违约本息金额共计10.32亿元。
+[https://finance.sina.cn/2020-11-11/detail-iiznezxs1174877.d.html?from=wap](https://finance.sina.cn/2020-11-11/detail-iiznezxs1174877.d.html?from=wap)
 
-7. 香港中大抗战一周年纪念。 2019年11月12日香港中文大学英勇不屈的抗议学生面对共匪占领军坚守校园，展开一场以卵击石的保卫战。这是文明对抗野蛮、平民对抗强权的战争。
+By 【秘翻组 – 金融法律团队】
 
-8. （阿里郎新闻11/11）自11月3日美国总统大选投票结束，已经一周多了，佐治亚州将对所有的纸质选票重新进行计票。由于来自川普竞选团队的压力，以及对选举过程管理不善的指控，导致该州宣布这一对策。该州允许胜率在五个百分点以下重新计票，并旨在11月20日之前完成这一过程。
-
-9.（Steve Bannon，11/10）他们希望操控你们，像个机械人，他们打着新自由主义和新保守主义政策的名义，把你们的孩子送到部队服役送到世界各个角落，他们不专注于解决那些对整个世界现有系统的威胁，对世界和全球工人监禁和奴役的威胁，却对每个人指手画脚进行干涉。乔∙拜登就是那个全球主义体系的一份子，他是给他们打工的，那是他所支持的。
-
-10.（11/11）现在美国，大家看到，不是民主党和拜登输赢的问题。连参众两院都输啦。
-
-参众两院，还有军事。国防部长开了吧。任命的都是谁啊？弗林将军的人。弗林将军是谁啊？弗林将军是最最恨共产党的一个人。所有他身边的人，他的助理、律师、过去团队办公室的人现在全面重用。他的人可不仅仅是国防部用，也不是什么FBI、司法部用，是很多方面。那是真正的国际上军事专家情报专家。我今天可以告诉你们，没有我们爆料革命美国人醒不过来；没有我们爆料革命美国人躲不过这场灾难；没有我们爆料革命世界这次将付出更多的代价。 “
-
-0
+2+

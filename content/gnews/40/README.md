@@ -1,28 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/19/2020 财经快讯: 国企现违约风波; 川普令华尔街停止投资中共军企
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/573243/)
+## 辉瑞中共病毒疫苗试验出现严重副作用
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/573271/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19092840/Picture9-2.png)图片来源：[https://static.reuters.com/](https://static.reuters.com/resources/r/?m=02&amp;d=20201118&amp;t=2&amp;i=1541688382&amp;r=LYNXMPEGAH1SP&amp;w=1024)
-1， 美国股市周三连续第二日下跌，市场近期涨幅创下新纪录的势头有所暂停。道琼斯工业平均指数在波动中下跌344.93点或1.2%，至29,438.42点，此前在时段高点时曾上涨多达147点。标准普尔500指数下滑1.2%，或41.74点，至3,567.79点，而科技股重挫纳斯达克综合指数下跌0.8%，或97.74点，至11,801.60点。各主要均线在盘中低点附近收盘。
-[https://www.cnbc.com/2020/11/17/stock-market-futures-open-to-close-news.html](https://www.cnbc.com/2020/11/17/stock-market-futures-open-to-close-news.html)
+*喜马拉雅联盟加拿大农场 文来
+校对 文锦 上传 WJ*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10150147/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE640.png)
+据Life Site媒体11月14日报道，辉瑞（Pfizer）在宣布其新的有效率“ 90％” 的中共病毒疫苗仅几天后，就出现了有关该疫苗试验的“严重”副作用（包括发烧和头痛）的报道。
 
-2，川普总统签署命令让华尔街停止对中共武器的资助。美国资本不应该被用来资助中共军事武器的开发和建设，这些武器的目是为了杀死美国人，并将美军赶出亚洲。川普总统最近签署了一项行政命令，制止了华尔街的这种疯狂行为。
-[https://thehill.com/blogs/congress-blog/foreign-policy/526531-trumps-order-puts-a-halt-to-america-financing-chinas](https://thehill.com/blogs/congress-blog/foreign-policy/526531-trumps-order-puts-a-halt-to-america-financing-chinas)
+以下是一些疫苗实验志愿者的自述。
+据《英国日报》报道，参加辉瑞疫苗试验的43538名参与者之一的嘉莉（Carrie）说：“在她第一次注射疫苗后出现了头疼、发烧和全身疼痛，像得了流感” 。辉瑞疫苗分两次注射，中间间隔三周。在第二次注射之后，这些症状变得“更加严重”。
 
-3，印度外长苏布拉马尼亚姆-杰桑卡周二发表讲话，重申印度绝对不参加世界上最大的贸易协定–中共主导的区域全面经济伙伴关系协定(RCEP)，并暗示中共没有以诚实的方式提出该协定所涉及的 全部内容。
-[https://www.breitbart.com/asia/2020/11/17/india-chinese-led-anti-us-trade-bloc-threatens-de-industrialize-countries/](https://www.breitbart.com/asia/2020/11/17/india-chinese-led-anti-us-trade-bloc-threatens-de-industrialize-countries/)
+另一位来自德克萨斯州的参与者格伦·迪盾斯（Glenn Deshields）说他遭受的副作用与’严重醉酒’没什么不同。他相信 “被注射疫苗是因为他的抗体测试呈现阳性”。
 
-4，周三上午，比特币价格上涨约8.6%，报18172美元，突破了自2017年12月20日以来从未达到的水平。比特币现在正在向2017年年底的反弹中发布的历史高点爬升，该高点见证了几种加密货币价值的飙升。 加密迷们为Fidelity、Square和PayPal等公司在行业内的大动作而欢呼雀跃。
-[https://www.cnbc.com/2020/11/18/bitcoin-price-above-18000-for-first-time-since-december-2017.html](https://www.cnbc.com/2020/11/18/bitcoin-price-above-18000-for-first-time-since-december-2017.html)
+佐治亚州现年42岁的一位工程师布莱恩（Bryan）认为“他未接种到疫苗，只接受到了安慰剂。 他接种后身体没有产生免疫反应，在上个月女儿染上病毒后，他也染上了（中共病毒）。” 安慰剂是一种不含疫苗的注射剂，试验中有一半的参与者接受安慰剂注射，用来证明疫苗是否有效。来自洛杉矶的斯坦利·王（Stanley Wang）也认为他接受了安慰剂，他说：“他于8月31日接受了首次注射，没有感到疼痛和感染病毒的症状”。王补充说，其他参与者经历的副作用“包括发烧和偏头痛，另一名抱怨称其反应是“类似于酒后综合征”。
 
-5 ，11月13日，包商银行在中国货币网发布公告称，该行拟于11月13日对已发行的65亿元“2015包行二级债”本金实施全额减记，并对任何尚未支付的累积应付利息（总计：585639344.13元）不再支付，包商银行已于11月12日通知中央国债登记结算有限公司，授权其在减记执行日进行债权注销登记操作。
-[https://finance.sina.com.cn/money/fund/jjzl/2020-11-14/doc-iiznctke1399706.shtml](https://finance.sina.com.cn/money/fund/jjzl/2020-11-14/doc-iiznctke1399706.shtml)
+但辉瑞没有提及疫苗试验参与者所经历的任何副作用。
 
-6, 河南能源集团10亿债券违约， 又一家AAA级国企倒下。11月10日， 永城煤电控股集团有限公司（简称“永煤控股”）公告称，因流动资金紧张，“20永煤SCP003”未能按期足额偿付本息，已构成实质性违约，违约本息金额共计10.32亿元。
-[https://finance.sina.cn/2020-11-11/detail-iiznezxs1174877.d.html?from=wap](https://finance.sina.cn/2020-11-11/detail-iiznezxs1174877.d.html?from=wap)
+《纽约时报》周一强调：“辉瑞公布的数据是通过新闻发布的，而不是经过同行评审的医学期刊发表的。尚无确凿证据表明该疫苗安全有效。随着试验的进行，他们最初声明的超过90％的疗效可能会改变。”
 
-By 【秘翻组 – 金融法律团队】
+实际上，辉瑞公司的新闻稿中提到有43538名受试者参加了这项研究，其中“只有94名确诊的中共病毒病例参加了试验。” 因此似乎很难一概而论地说出该疫苗的“有效性超过90％”，因为有些人可能更频繁地暴露了该病毒，或者暴露时间更长。辉瑞公司的新闻稿没有解释参与者在大多数情况下是否戴着口罩，进行所谓的社交疏散或呆在家里。
+
+该制药公司告诫用户其将继续“积累安全性数据”，估计“在疫苗候选人接种疫苗（第二次和最后一次）之后两个月，也就是11月的第三周，FDA潜在的紧急使用授权指南中提到的，在其疫苗中指定的安全性数据量中值才会出来。“此外还将继续对参与者进行长期保护和安全性监测”，这暗示可能仍会出现副作用，并且该疫苗可能会失去其所谓的功效。
+
+多伦多大学传染病专家兼医学教授安德鲁·莫里斯（Andrew Morris）博士对《国家邮报》（National Post）表示，关于辉瑞疫苗仍有许多问题要回答。 “ （辉瑞疫苗）是否能减轻疾病？它会减少向其他人的传播吗？”莫里斯问。 “这些都是同样重要的事情。”
+
+在7月的一次辩论中，小约翰·肯尼迪（John F. Kennedy）的侄子罗伯特·肯尼迪（Robert F. Kennedy）和一名环境律师将辉瑞称为其产品被刑事处罚的几家疫苗生产商之一。肯尼迪指出，中共病毒疫苗的四个主要开发者，葛兰素史克、赛诺菲、辉瑞、和默克，都是“被定罪的重罪犯”。
+
+肯尼迪说 “在过去的十年中，这些公司共支付了350亿美元的刑事罚款、损害赔偿，向医生撒谎，欺诈科学，伪造科学，故意杀害数十万美国人”。 ”他们在所有其他产品中都造假，但是他们說并未在疫苗中这样做。但凡认识这四家公司的犯罪文化的人就不会相信这一点。“
+
+评论： 辉瑞公司在它的疫苗的有效性缺乏科学论证和同行评估的情况下，假称有效率90%以上，不顾志愿者的死活，急于推向市场，试图在短期内骗取暴力。 FDA也助纣为虐，在缺乏严格审核的情况下，允许大量的疫苗接种，这是对民众极其的不负责任。阎丽梦博士早已提醒大家在不知道中共病毒基因序列的情况下，造出的疫苗缺乏针对性，何况中共病毒不只一种。难道这些生物医药界人士科学家们会不懂得这基本的常识吗？他们用虚假的疫苗试验数据来欺骗百姓，除了利欲熏心，背后可能还有更大的阴谋。
+
+参考链接：
+[Pfizer COVID-19 vaccine trials showed ‘severe’ side effects, ‘fever and aches’](https://www.lifesitenews.com/news/pfizer-COVID-19-vaccine-trials-showed-severe-side-effects-fever-and-aches)
 
 2+

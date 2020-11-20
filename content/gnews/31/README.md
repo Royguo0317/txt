@@ -1,70 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共幕后黑手即将浮出水面
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/573444/)
+## Dominion傀儡美国网络安全总监称今年大选最安全后遭解雇
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/573409/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24064746/WhatsApp-Image-2020-10-24-at-15.08.49.jpeg)
-作者：康州农场-GTalk心语堂
+多伦多加喜农场 香江小哥
 
-东利有限公司诉战略愿景美国有限责任公司案最新进展
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19112742/image1-4.png)
-原告： 东利有限公司（EASTERN PROFIT CORPORATION LIMITED, Plaintiff）
+校对 文锦 上传 WJ
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19112308/%E5%82%80%E5%84%A1.jpg)
+美国川普总统解雇了国家网络安全总监克里斯·克雷布斯（Chris Krebs）。此前，他刚刚发布了一个关于2020年总统大选安全性的公告，非常奇怪地宣称美国大选非常安全。
 
-被告： 战略愿景美国有限责任公司（STRATEGIC VISION US LLC, Defendant）
+克雷布斯（Krebs）是美国网络安全和基础设施安全局（Cybersecurity and Infrastructure Security Agency，缩写：CISA）的负责人。该机构于11月12日发表声明，宣布这次选举“是美国历史上最安全的”。Dominion 投票系统公司是川普竞选团队重点关注选民欺诈和外国干预问题的焦点，然而CISA却未能披露Dominion 公司是两个CISA委员会成员的关键信息。
 
-受理法院： 美国纽约南区法院（United States District Court, S.D. New York.）
+11月18日，川普通过Twitter发布了解雇克雷布斯的消息。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19112335/TTTTT.jpg)
+《CBS新闻网》也报道了这次解雇事件，并说：“周二，川普在推特上解雇了克雷布斯，对于CISA的克雷布斯宣称2020年大选是历史上最安全的声明，川普做出了虚假的说法，没有证据表明这是不准确的。尽管拜登预期将成为新一任的美国当选总统，川普总统却一直拒绝承认选举结果，他通过法律的竞选努力也迄今未能展现出任何大规模欺诈的例子。”
 
-继东利有限公司，以下简称“东利”（EASTERN）要求战略愿景美国有限责任公司,以下简称“愿景”（Strategic），公布其用于本此法律诉讼的资金来源后， “愿景”律师于2020年11月13日向法庭提出动议，要求驳回“东利”的请求。理由如下：
+《大纪元时报》报道了Dominion 公司涉嫌与CISA相关联的情况，并表示：“ Dominion公司是美国国土安全部（Department of Homeland Security，缩写：DHS）声明中对选举完整性问题有争议的理事会成员，Dominion隐藏了公司的理事会成员资格，从而对投票系统的顾虑提出异议”。
 
-1. “愿景”诉讼资助人的身份与本案不相关；
-2. 即使“愿景”诉讼资助人的身份与本案具有在某种条件下的关联性，该关联性的价值对于此案而言微乎其微；
-3. 根据宪法第一修正案，第三方资助者的身份是独立且不应被法庭作为证据。
+11月12日，CISA发表声明，对投票选举不当行为提出异议，称“ 11月3日的选举是美国历史上最安全的选举。”声明指出：“没有证据表明投票系统会删除、丢失、更改选票，或以其他方式损害选举。”但是，该机构却未披露Dominion 公司和Smartmatic是CISA选举基础设施部门协调委员会的成员，而该委员会是授权该CISA声明的两个实体之一。大纪元的文章详细描述了对有关Dominion 投票系统完整性的一些担忧，该关注是在8月24日由民意观察员和公认的电子投票安全专家宣誓后发表的。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19112758/image2-5.png)
-“愿景”进一步称此案是郭文贵先生对中国异见人士的打击报复行为，案件的出资人应根据宪法第一修正案得到法庭保护。
+许多人怀疑Dominion公司帮助撰写了这份令其宽慰的CISA声明。
 
-分析：首先，*“*愿景*”*变相承认了第三方资助者的存在，并接受了其资助；其次，*“*愿景*”*极力否认第三方资助者与本案的关联性，那么请问，*“*愿景*”*作为一家声名狼藉的皮包公司，是如何赢得其资助者的青睐呢？它们之间有没有利益相关性呢？最后，*“*愿景*”*企图将郭文贵先生描绘成一个打击中国异见人士的报复者，这种抹黑，并与政治挂钩的手法与中共的作风何其相似。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19112812/image3-6.jpeg)
-根据以上“愿景”呈交法庭的动议， “东利”与2020年11月18日提出反驳，指出：
+国土安全部官员告诉《CBS新闻网》，有一种感觉克雷布斯即将被解职，这对国土安全部高级领导层并不感到意外。这位官员说，自上周以来，根据接近克雷布斯的多个消息来源的媒体报道，情况已经改变，预计他将被解雇，而他发表的公开宣称“2020大选是最安全”的推文，加剧了这一情况，引发了总统的关注。这位官员还说，行政部门担心克雷布斯没有对选民欺诈问题进行尽职调查，其中包括机器故障，对于选举安全和欺诈问题，他还补充说，不应只是一味地令公众对投票过程充满信心。
 
-“愿景”声明不与任何与中共有关联的人或机构发生业务往来，且该声明是构成本案的要件之一，但在本案中，“愿景”却拒绝回答是否接受了与中共有关的个人或实体的资助，这构成了声明与行为之间冲突；而其所列举的上述理由均无法理依据，本案的核心是：“愿景”是否接受了中共支持者的直接或间接的资助。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19112840/image4-6.png)
-针对“愿景”动议中的理由，“东利”进行了如下反驳：
+川普竞选团队律师西德尼·鲍威尔（Sidney Powell）质疑媒体向美国公众提供的选票结果表是否代表了美国人的真实选票。鲍威尔多次表示，外国公司、外国设备和外国计票人都参与了这次选举，他们实际上从川普手中截取了多达600万张选票，还在投票箱塞满了给拜登的选票。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19112341/EE.jpg)
+评论：
 
-1. 引用布洛伊迪（Broidy）和戴维斯（Davis）案文件，以证明美国政府，以及布洛伊迪，戴维斯以及中共， 均认为郭文贵先生是持不同政见者；
-2. 法院尚未裁定，“愿景”是否由中共支持者资助的问题与本案无关，或无足轻重；
-3. “愿景”提出的第三方资助者的身份独立问题，并不排斥关于“愿景”诉讼资助人的证据的可接受性；
-4. “愿景”既然将此案与政治挂钩，就不能再援引宪法第一修正案作为保护伞。
+2020年总统大选存在大量选举舞弊事件，例如，邮寄选票造假、计票过程监督不规范、投票软件系统被操纵，基于这样的事实，川普竞选团队已经在多个州提起了法律诉讼行动。Dominion公司的投票软件系统存在漏洞，可以绕过该选举系统软件直接操作选举数据表，从而操纵投票。根据美国政府目前掌握的情况，诸多证据都证明Dominion的投票系统是美国选举欺诈行为的重要幕后推手。现在，Dominion公司和背后的影子政府通过国家网络安全部门发表“历史上最安全的美国大选”的虚假言论，一味地让公众对投票过程充满信心，相信假媒体营造的选举结果。作为国家网络安全部门，没有对美国大选期间的网络安全保驾护航，却与小偷合作、坚守自盗，这是影子政府尝试颠覆现任川普政府的又一实锤证据。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19112902/image5-4.jpeg)
-“东利”最后进一步指出，“愿景”先是企图将其合同欺诈的行为转移为政治案件，之后又试图援引宪法第一修正案隐瞒其诉讼资助者， 只可惜，该修正案此时已不适用于本案。
+**[*原文链接*](https://djhjmedia.com/kari/conflict-of-interest-chris-krebs-fired-over-statement-that-hid-alleged-relationship-between-feds-and-dominion-voting-system/)**
 
-分析：据美国司法部报道，布洛伊迪（*Broidy*）和戴维斯（*Davis*）分别在今年*10*月和*8*月认罪，他们均承认作为外国代理人，非法游说政府官员放弃对*1MDB*公司的调查，和遣返一名中国公民（郭文贵先生）。
+**相关文章**：
 
-（*Elliott Broidy Pleads Guilty for Back-Channel Lobbying Campaign to Drop 1MDB Investigation and Remove a Chinese Foreign National | OPA | Department of Justice*
+- [Dominion公司主管承认投票数据可被操纵](https://gnews.org/zh-hans/558811/)-Gnews
+- [美军在德国查获Dominion投票软件相关联的服务器](https://gnews.org/zh-hans/557632/)-Gnews
+- 【重磅！】[选举安全专家Russ Ramsland 解释-通过Dominion软件电子投票欺诈系列（一）：投票转换](https://gnews.org/zh-hans/568493/)-Gnews
+- 【重磅！】[选举安全专家Russ Ramsland 解释-通过Dominion软件电子投票欺诈系列（二）：制表软件中存在问题](https://gnews.org/zh-hans/568692/),-Gnews
+- 【重磅！】[选举安全专家Russ Ramsland 解释-通过Dominion软件电子投票欺诈系列（三）：投票欺诈的具体方式](https://gnews.org/zh-hans/568838/)-Gnews
+- 【重磅！】[选举安全专家Russ Ramsland 解释-通过Dominion软件电子投票欺诈系列（四）：五个摇摆州的选票](https://gnews.org/zh-hans/568994/),-Gnews
+- [Smartmatics公司、紅杉投票系統和Dominion投票系統撲朔迷離的關聯](https://gnews.org/zh-hant/569848/),-Gnews
+- [《路德時評》深度解析Smartmatic與Dominion關聯，再次提醒中國糧食危機即將到來](https://gnews.org/zh-hant/570938/)！-Gnews
+- [加拿大人眼中的Dominion偷票系統公司（一](https://gnews.org/zh-hant/564706/)）-Gnews
+- [加拿大人眼中的Dominion偷票系统公司（二](https://gnews.org/zh-hans/571044/)）-Gnews
 
-*Nickie Mali Lum Davis Pleads Guilty to Facilitating Back-Channel Lobbying Campaign to Drop 1MDB Investigation and Remove a Foreign National to China*）
 
-由此可见，郭文贵先生是中共欲除之而后快的重要反共人士，绝不是*“*愿景*”*所污蔑的所谓迫害异见人士者。另外，作为中共代理人，布洛伊迪和戴维斯是否是*“*愿景*”*在此案中的资助者呢？为什么*“*愿景*”*极力隐瞒它已经承认的，实际存在的资助者？
-
-现在，*“*愿景*”*试图把欺诈案与政治挂钩，并利用宪法第一修正案作为保护伞，以逃避公布其幕后资助者的责任，但是根据*“*密斯诉基恩案（*Meese v. Keene*）*”*，联邦最高法院支持了*1938*年制定的《外国代理人登记法》，几部加拿大电影被定义为*“*政治宣传片*”*，法院要求必须公开这些电影的赞助商。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19112915/image6-4.jpeg)
-*“*愿景*”*的这一把戏可谓作茧自缚。纽约南区法院下一步是否会驳回*“*愿景*”*的动议，并要求其公布背后金主呢？我们拭目以待。
-
-相关链接： 
-1. 美国司法部案件编号：Case 1:18-cv-02185-LJL Document 307-1 Filed 11/18/20 Case 1:18-cv-02185-LJL Document 306 Filed 11/13/20 
-2.布洛伊迪认罪（Elliott Broidy Pleads Guilty）：https://search.justice.gov/search?query=broidy&op=Search&affiliate=justice 
-3.戴维斯认罪（Nickie Mali Lum Davis Pleads Guilty）： https://www.justice.gov/opa/pr/hawaii-businesswoman-pleads-guilty-facilitating-back-channel-lobbying-campaign-drop-1mdb 
-4.“愿景”公司背景（Who is Behind Strategic Vision US LLC）： https://gnews.org/50457/
-
-Pictures from: 
-https://www.leagle.com/decision/infdco20200115h87 
-https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2019/12/16094808/%E8%9E%A2%E5%B9%95%E6%88%AA%E5%9C%96-2019-12-10-%E4%B8%8B%E5%8D%888.13.36-1.png 
-https://www.rcinet.ca/en/wp-content/uploads/sites/3/2020/04/covid-epoch-times-headlines-sumit-carol-harman-via-cbc.jpg 
-https://static01.nyt.com/images/2020/10/20/nyregion/20dc-broidy/20dc-broidy-mobileMasterAt3x.jpg 
-https://spark.adobe.com/page/NEYhdCTSNg8GS/images/4e7cc822-4d50-47e9-b273-c6fa2e0e4c18.jpg?asset\_id=b5dfda3f-fe36-4390-93a4-3f8346da5380&img\_etag=%22b969f69b4f0498e8fd7cc1269b57e81c%22&size=1024 
-https://law.utexas.edu/wp-content/uploads/sites/63/2020/08/1Amendment\_V1-1024×546.jpg 
-https://static01.nyt.com/images/2014/12/26/nyregion/y-ANNIVERSARY/y-ANNIVERSARY-superJumbo.jpg
-
-3+
+1+
