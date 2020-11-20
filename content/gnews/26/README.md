@@ -1,28 +1,98 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/19/2020 财经快讯: 国企现违约风波; 川普令华尔街停止投资中共军企
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/573243/)
+## 北极上不凋落的七芒星 （三）
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/570726/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19092840/Picture9-2.png)图片来源：[https://static.reuters.com/](https://static.reuters.com/resources/r/?m=02&amp;d=20201118&amp;t=2&amp;i=1541688382&amp;r=LYNXMPEGAH1SP&amp;w=1024)
-1， 美国股市周三连续第二日下跌，市场近期涨幅创下新纪录的势头有所暂停。道琼斯工业平均指数在波动中下跌344.93点或1.2%，至29,438.42点，此前在时段高点时曾上涨多达147点。标准普尔500指数下滑1.2%，或41.74点，至3,567.79点，而科技股重挫纳斯达克综合指数下跌0.8%，或97.74点，至11,801.60点。各主要均线在盘中低点附近收盘。
-[https://www.cnbc.com/2020/11/17/stock-market-futures-open-to-close-news.html](https://www.cnbc.com/2020/11/17/stock-market-futures-open-to-close-news.html)
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/18113856/beiji7.png)
+一路飞驰，我们到了白马市。也是育空首府。
 
-2，川普总统签署命令让华尔街停止对中共武器的资助。美国资本不应该被用来资助中共军事武器的开发和建设，这些武器的目是为了杀死美国人，并将美军赶出亚洲。川普总统最近签署了一项行政命令，制止了华尔街的这种疯狂行为。
-[https://thehill.com/blogs/congress-blog/foreign-policy/526531-trumps-order-puts-a-halt-to-america-financing-chinas](https://thehill.com/blogs/congress-blog/foreign-policy/526531-trumps-order-puts-a-halt-to-america-financing-chinas)
+流经白马市的育空河，上游水流湍急，激起的水花高似白马，是该市名字由来。58年建水坝后白马急流就消失了。该市生活设施齐全，居然还有二十四小时营业的超市，在冰天雪地的北大荒很难得。
 
-3，印度外长苏布拉马尼亚姆-杰桑卡周二发表讲话，重申印度绝对不参加世界上最大的贸易协定–中共主导的区域全面经济伙伴关系协定(RCEP)，并暗示中共没有以诚实的方式提出该协定所涉及的 全部内容。
-[https://www.breitbart.com/asia/2020/11/17/india-chinese-led-anti-us-trade-bloc-threatens-de-industrialize-countries/](https://www.breitbart.com/asia/2020/11/17/india-chinese-led-anti-us-trade-bloc-threatens-de-industrialize-countries/)
+我们租了airbnb上口碑非常好的一栋别墅的一层楼。然后埋锅造饭。
 
-4，周三上午，比特币价格上涨约8.6%，报18172美元，突破了自2017年12月20日以来从未达到的水平。比特币现在正在向2017年年底的反弹中发布的历史高点爬升，该高点见证了几种加密货币价值的飙升。 加密迷们为Fidelity、Square和PayPal等公司在行业内的大动作而欢呼雀跃。
-[https://www.cnbc.com/2020/11/18/bitcoin-price-above-18000-for-first-time-since-december-2017.html](https://www.cnbc.com/2020/11/18/bitcoin-price-above-18000-for-first-time-since-december-2017.html)
+小别墅古色古香在花丛中迎候我们。
 
-5 ，11月13日，包商银行在中国货币网发布公告称，该行拟于11月13日对已发行的65亿元“2015包行二级债”本金实施全额减记，并对任何尚未支付的累积应付利息（总计：585639344.13元）不再支付，包商银行已于11月12日通知中央国债登记结算有限公司，授权其在减记执行日进行债权注销登记操作。
-[https://finance.sina.com.cn/money/fund/jjzl/2020-11-14/doc-iiznctke1399706.shtml](https://finance.sina.com.cn/money/fund/jjzl/2020-11-14/doc-iiznctke1399706.shtml)
+屋主是为欧洲移民大妈。
 
-6, 河南能源集团10亿债券违约， 又一家AAA级国企倒下。11月10日， 永城煤电控股集团有限公司（简称“永煤控股”）公告称，因流动资金紧张，“20永煤SCP003”未能按期足额偿付本息，已构成实质性违约，违约本息金额共计10.32亿元。
-[https://finance.sina.cn/2020-11-11/detail-iiznezxs1174877.d.html?from=wap](https://finance.sina.cn/2020-11-11/detail-iiznezxs1174877.d.html?from=wap)
+她絮絮叨叨跟我们说她养的狗狗不会给我们舔麻烦的，都是很乖巧的。就是太热情。
 
-By 【秘翻组 – 金融法律团队】
+有一对游客夫妇住在她这里时就是狗狗太热情在他们吃早餐时打扰了他们，导致游客夫妇在review上给了差评，导致她降到了四星半。她老难过了。
 
-2+
+我们笑笑安慰她这里的人都爱狗狗，肯定相安无事的。
+
+然后大家埋锅造饭，做了一大桌吃的。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/18113924/beiji8.png)
+吃饭时碰到同从高贵林（大温哥华地区中偏东北的一个市）过来的白人一家三口。他们来过这边几次了，也是开车过来，准备去Tombstone国家公园。听说我们要去北极圈满是羡慕，他们觉得往上开比较有难度。
+
+女主人很优雅，男的五十多健硕型男运动型。
+
+小女儿Doris 活泼开朗，大概二十多，人亭亭玉立，清清秀秀的，从小练芭蕾，对事物充满了好奇，拉着我们说东说西。谈她见到的班芙的冰川，白马的极光。我给她看沿途开过来拍的照片，她一张张的看，问各种问题。
+
+不知不觉谈到很晚，其他人都去睡了，她兴致依然很高，
+
+拿了带的红酒，我们喝了几杯。
+
+我拿出闫博士的宣传单，指了指跟她说：
+
+If you drink You get high
+
+If you read, You get educated
+
+If you drink and read, You get highly educated.
+
+我们相视而笑。
+
+Doris说她最大的梦想是将来疫情结束了去周游世界，然后到所有美好的地方拍婚纱照。
+
+我说那你不是要结很多次婚？当然可以是和同一个人。
+
+她格格的笑，她说她喜欢仪式感，从小就梦想长大了穿各种礼服，和美丽的裙子，再去到北极光下泡温泉，画上美丽的新娘妆。
+
+Doris说话时一边眼睛眨啊眨的，率真坦诚满是梦想。
+
+某些方面有点像江南女子，温婉而有点小小的野性，酒后脸红红的，月光下似细润的玉雕。
+
+我悄悄告诉她此行我们有个任务，不仅仅是去北极，她睁大眼睛说我们家来这边也有个要紧事情的。
+
+我拿出新中国联邦的国旗给她看，
+
+是什么啊？
+
+New Federal State of  China.
+
+一边跟她解释起闫博士宣传单的内容，跟她说疫情的事。
+
+她小眉头紧促听着，仔细读上面的文字。
+
+我又试着跟她说路德访谈和War Room, Steve Banon.
+
+她完全听不懂，但神情开始严肃。
+
+我问她你们来的目的？
+
+她神情里有些悲伤
+
+告诉我他们会一直开到Tomb Stone National Park 然后在那里的宿营地住一段时间。
+
+我说那边我们也要去的，不过从北极回来会多住一晚，我回来时希望你还在那里，她眼睛亮亮的闪了闪。✋伸出来，跟我来了一个high five.
+
+一夜在花香中睡的很安宁。
+
+Doris的话犹在耳边
+
+你知道我见过的最美极光是和月亮同在，和星星同在；有绿光，还有紫光，有时还能看到紫色的星河。
+
+早上大妈送早餐，里面有她为我们精心准备的烤饼。
+
+小姑娘打扮的漂漂亮亮，坐在大长桌那一边不时往这边偷偷看几眼，俏皮可爱。
+
+早餐后各自开车分道扬镳。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/18114223/beiji9.png)
+作者：昔马千羽
+
+原创观点文章 – 2020/11/19
+
+温哥华圆成农场
+
+0

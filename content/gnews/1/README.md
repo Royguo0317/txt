@@ -1,53 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “生态健康联盟” 指挥某些关键的科学家精心炮制了关于SARS-CoV-2 “自然起源” 的声明
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/573613/)
+## 【聚焦】Scytl公司投票欺诈服务器被“捡到” — 白宫记者质疑7800万张美国选票被送到海外
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/574004/)
 
-翻译：康州农场-YY
+作者：Giselle / 文泓
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19185206/Picture13-1.png)图为INTEL美军突袭德国的Scytl服务器公司（来源：[https://greatgameindia.com/](https://greatgameindia.com/us-military-raided-scytl-germany/)）
+Newsmax驻美国白宫记者Emerald Robinson11月19日在推特上发文称，川普竞选团队律师西德尼.鲍威尔已经向她证实，从德国取回了一台服务器。“我刚问了西德尼.鲍威尔：有报道说，有一个硬件，可能是一个服务器，在德国捡到的，是真的吗？”鲍威尔：这是真的，它和这个有某种关系，但我不知道是好人得到了它，还是坏人得到了它。
 
-校对：康州农场-Freeearth、Bruce
 
-审核：康州农场-Truemanman
 
-由美国知情权组织（U.S. Right to Know）获得的电子邮件表明，由27位知名公共卫生科学家在《柳叶刀》杂志撰写的谴责“认为COVID-19非自然起源的阴谋论”的声明是由非营利组织生态健康联盟（EcoHealth Alliance）的员工组织的，该组织已经获得了由美国纳税人提供资金的数百万美元资助，与武汉病毒研究所的科学家们进行基因操纵冠状病毒的研究。
-![](https://zh-prod-1cc738ca-7d3b-4a72-b792-20bd8d8fa069.storage.googleapis.com/s3fs-public/inline-images/download%20%285%29_10.jpg)
-通过公共记录请求获得的电子邮件表明，生态健康联盟总裁彼得·达萨克（Peter Daszak） 起草了《柳叶刀》声明，他的意图是这个声明“不能被识别为来自于任何一个组织或个人”，而是被视为“仅仅是来自于顶尖科学家们的一封信”。
+> Nov. 19: Sidney Powell confirms to me that a server was retrieved from Germany. [https://t.co/VMvde4wRPS](https://t.co/VMvde4wRPS)
+> — Emerald Robinson ✝️ (@EmeraldRobinson) [November 19, 2020](https://twitter.com/EmeraldRobinson/status/1329513393208913925?ref_src=twsrc%5Etfw)
 
-达萨克写道，他希望“避免将此视为一个政治声明” 。
 
-科学家们的信出现在2月18日的《柳叶刀》杂志上，距世界卫生组织宣布由新型冠状病毒引起的疾病被命名为COVID-19 仅一周。
 
-这27位作者“强烈谴责认为COVID-19 非自然起源的阴谋论，” 并报告说来自多个国家的科学家们的“压倒性结论认为这种冠状病毒起源于野生生物。” 这封信没有引用任何科学参考文献来驳斥该病毒的实验室起源理论。
 
-一位科学家琳达·塞夫（Linda Saif）通过电子邮件询问 “是否需添加一两个陈述以支持为什么 nCOV 不是实验室产生的病毒，而是自然发生的说法？似乎对科学性地驳斥此类主张至关重要！”
 
-达萨克回应说：“我认为我们应该坚持宽泛的阐述。”
+> I just asked Sidney Powell: "There are reports that there was a piece of hardware, probably a server, picked up in Germany. Is that true?"
+> 
+> Powell: "That is true. It is somehow related to this. But I do not know whether good guys got it or bad guys got it."
+> — Emerald Robinson ✝️ (@EmeraldRobinson) [November 19, 2020](https://twitter.com/EmeraldRobinson/status/1329492983679488010?ref_src=twsrc%5Etfw)
 
-越来越多的人呼吁调查武汉病毒研究所，将其作为SARS-CoV-2的潜在来源，这导致对生态健康联盟的审查加强。
 
-正如达萨克告诉《卫报》的，这些电子邮件显示生态健康联盟的成员如何在将 SARS-CoV-2 可能来自实验室的说法诬陷成“有待解决的疯子理论” 中扮演早期角色。
 
-尽管《柳叶刀》声明中只出现过一次“生态健康联盟 EcoHealth Alliance”的措辞，但与达萨克合著的其他几位共同作者也与该组织有直接联系，但并未披露他们的利益冲突。丽塔·科威尔（Rita Colwell）和詹姆斯·休斯（James Hughes）是生态健康联盟董事会的成员，威廉·卡雷什（William Karesh）是该组织的健康与政策执行副总裁，休姆·菲尔德（Hume Field）是科学与政策顾问。
+【备注】记者招待会上，当鲍威尔律师说到“好人、坏人”时，一旁的朱利安尼和小律师都在窃笑。
 
-该声明的作者还声称，“关于此次疫情的快速，公开，透明的数据共享现在正受到有关其起源的谣言和错误信息的威胁”。然而直至今天对 SARS-CoV-2 的起源仍鲜为人知，世界卫生组织和柳叶刀 COVID-19委员会对其起源的调查一直保密，并被利益冲突所困扰。
+Robinson在推特上说，据美联社报道，“Scytl在德国法兰克福没有办公室或服务器”，”问题是，Scytl在自己的公关资料中提到它“在法兰克福有一个紧急备份中心”。
 
-彼得·达萨克（Peter Daszak），丽塔·科威尔（Rita Colwell）和《柳叶刀》编辑理查德·霍顿（Richard Horton）没有回应对我们这个报道提供评论的要求。
 
-\* \* \*
 
-可以在这里找到 生态健康联盟（EcoHealth Alliance） 完整电子邮件系列的链接：生态健康联盟的电子邮件：马里兰大学（466页）
+> According to AP/NYT/Reuters/USAToday: "Scytl does not have offices or servers in Frankfurt, Germany."
+> 
+> The problem is that Scytl's own PR kits mention "an emergency back-up center in Frankfurt." 
+> 
+> Where does Scytl's website IP address take you? Frankfurt, Germany. [https://t.co/dEBqfPbTU0](https://t.co/dEBqfPbTU0)
+> — Emerald Robinson ✝️ (@EmeraldRobinson) [November 19, 2020](https://twitter.com/EmeraldRobinson/status/1329443200734539778?ref_src=twsrc%5Etfw)
 
-[https://usrtk.org/wp-content/uploads/2020/11/Biohazard\_FOIA\_Maryland\_Emails\_11.6.20.pdf](https://usrtk.org/wp-content/uploads/2020/11/Biohazard_FOIA_Maryland_Emails_11.6.20.pdf)
 
-应公共信息自由（FOI）的要求，美国知情权将获得的文件张贴在我们的帖子中，用于我们的生物危害调查：FOI记录了SARS-CoV-2的起源，功能获得研究的危害和生物安全实验室。
 
-泰勒·德登（Tyler Durden）
+Scytl的网站IP地址在哪里？
 
-2020年11月18日星期三23:10
+【备注】Scytl是一家总部位于巴塞罗那的西班牙公司，自2008年以来已经以各种方式为美国各州和多个城市提供选举服务。像Dominion Voting Systems 公司一样，Scytl在不同国家和地区都有选举欺诈历史，包括在选举软件中加入后门。
 
-由 Sainath Suryanarayanan 通过 USRTK.org 撰写
+Scytl表面上与Dominion是两家公司，实际是后者的数据支持中心，所以才有了美国的数据到了国外之说。
 
-原文链接：[https://www.zerohedge.com/political/ecohealth-alliance-orchestrated-key-scientists-statement-natural-origin-sars-cov-2](https://www.zerohedge.com/political/ecohealth-alliance-orchestrated-key-scientists-statement-natural-origin-sars-cov-2)
+此前的11月18日，驻白宫记者Robinson在推特上发文：如果你想揭开2020年美国大选结果的神秘面纱，必须先问一个简单的问题：为什么800个县的7800万张美国选票，被送到了海外属于一家西班牙公司的服务器上？
+
+
+
+> According to Scytl website, the Department of Defense is one of their main customers. Why would the DoD subcontract a Spanish company to handle 78 million votes in 800 counties? [https://t.co/kcM9VUy5Va](https://t.co/kcM9VUy5Va)
+> — Emerald Robinson ✝️ (@EmeraldRobinson) [November 19, 2020](https://twitter.com/EmeraldRobinson/status/1329422743364898816?ref_src=twsrc%5Etfw)
+
+
+
+推友 [@ AFVET4FREEDOM](https://twitter.com/AFVET4FREEDOM) 回复：这也正是我想问的。
+
+川普总统在2018年签署了一项关于外国干涉我们选举过程的行政命令，但我们却把选票放在德国的服务器上，这仿佛在说，请干涉我们的选举！
+
+在11月18日的福克斯新闻采访中，川普竞选团队律师朱利安尼指控，美国28个州的选票被发送到了德国和西班牙，由委内瑞拉的Smartmatic公司进行计数。
+
+Dominion是一个在加拿大创立的公司，但是这些数据“没有被送往加拿大，而是被送往德国和西班牙，计票的公司不是Dominion，而是Smartmatic——这是一家2005年在委内瑞拉成立的公司，专门用于操纵选举，他们精于此道。”朱利安尼说。
+
+在11月15日的一次采访中，朱利安尼提供了Dominion Voting Systems的更多详细信息，该系统使用了Smartmatic公司的软件，涉入委内瑞拉全国大选以及阿根廷和菲律宾等其它国家的选举。
+
+在过去的几年中，Smartmatic及其产品引起了人们对投票安全的关注。德克萨斯州务卿和检察长办公室认为该软件缺乏基本的安全标准，在2013年和2019年拒绝使用。
+
+朱利安尼指称：“极左翼”的Dominion公司一些高层人士支持安提法（Antifa），而Smartmatic的董事长与乔治·索罗斯（George Soros）有联系。
+
+相关链接：
+
+[https://www.epochtimes.com/gb/20/11/19/n12561543.htm](https://www.epochtimes.com/gb/20/11/19/n12561543.htm)
 
 0

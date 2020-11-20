@@ -1,20 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国防部长米勒宣布特种部队向他汇报
-` GM99` [轉載自GNews](https://gnews.org/zh-hans/573003/)
+## 293期疫情战报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/573237/)
 
-#### **战友之家新闻译制组**
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19092554/%E7%94%BB%E5%83%8F4-7.png)
+![]()1. 中共国将医疗产业化，一方面大肆赚取病苦人民钱财不说，另一方面还要编写新闻骗人民说政府组织采购是为了替老百姓砍价。
 
-I am here to today to announce I directed special operation civilian leadership to report directly to me, instead of through the current bureaucratic channels.
-今天我宣布我命令特种作战的文官领导直接向我汇报，而不是通过目前的官僚渠道。
+2. 上海一学生被发现来自疫情爆发区，医院对他做了两次检测，结果均为阴性。中共核筛技术缺陷大，准确率只有30%，因此才需要做两次检测。
 
-This historic step finalizes what Congress has authorized and directed, and will put special operations command on par with the military services for the first time.
-这个历史性的一步最终确定了国会授权和指示的内容，会第一次把特种作战指挥部和服役的军队结合起来。
+3. 11月12日，南京林业大学出现不明原因肺结核，市疾控称不清楚有多少例，学校工作人员称感染大学生已经被隔离不在学校，不知道病情如何。
 
-This reform will immediately improve agility to the department and the command. And will enable us to streamline information flow, enhance decision making, and adaptly and adeptly support the command and their superb soldiers, sailors, airmen, and marines.
-这项改革会立刻改善国防部和指挥部的灵活性，会让我们能简化信息流程，增强决策，更熟练的支持指挥部和他们极棒的士兵、水手、飞行员和海军陆战队员。
+4. 中共砸残疾人士轮椅：政府人员将上访人朱坚强的残疾车当场砸坏，而该上访人士当时就坐在残疾车上，十分无助。
 
-*来源：https://twitter.com/dachengnrc/status/1329102344831856641?s=12*
+5. 抖音TikTok通过法律缠诉，意图将该应用在美国的运营禁令推迟30天，其目的在于看拜登是否通过选票舞弊成功当选，然后美国改变对中共的政策。
+
+6. 民主派立法会议员宣布全体辞职。中共已掌控香港立法会，完全控制香港司法，诬陷、栽赃反送中人士将会更加严重。
+
+7. 香港中大抗战一周年纪念。 2019年11月12日香港中文大学英勇不屈的抗议学生面对共匪占领军坚守校园，展开一场以卵击石的保卫战。这是文明对抗野蛮、平民对抗强权的战争。
+
+8. （阿里郎新闻11/11）自11月3日美国总统大选投票结束，已经一周多了，佐治亚州将对所有的纸质选票重新进行计票。由于来自川普竞选团队的压力，以及对选举过程管理不善的指控，导致该州宣布这一对策。该州允许胜率在五个百分点以下重新计票，并旨在11月20日之前完成这一过程。
+
+9.（Steve Bannon，11/10）他们希望操控你们，像个机械人，他们打着新自由主义和新保守主义政策的名义，把你们的孩子送到部队服役送到世界各个角落，他们不专注于解决那些对整个世界现有系统的威胁，对世界和全球工人监禁和奴役的威胁，却对每个人指手画脚进行干涉。乔∙拜登就是那个全球主义体系的一份子，他是给他们打工的，那是他所支持的。
+
+10.（11/11）现在美国，大家看到，不是民主党和拜登输赢的问题。连参众两院都输啦。
+
+参众两院，还有军事。国防部长开了吧。任命的都是谁啊？弗林将军的人。弗林将军是谁啊？弗林将军是最最恨共产党的一个人。所有他身边的人，他的助理、律师、过去团队办公室的人现在全面重用。他的人可不仅仅是国防部用，也不是什么FBI、司法部用，是很多方面。那是真正的国际上军事专家情报专家。我今天可以告诉你们，没有我们爆料革命美国人醒不过来；没有我们爆料革命美国人躲不过这场灾难；没有我们爆料革命世界这次将付出更多的代价。 “
 
 0
