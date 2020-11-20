@@ -12,26 +12,26 @@
 
 
 
-### [拜登竞选造假系列八：前海军陆战队成员指证Smartmatic软件于2013年操控委内瑞拉大选，拜登选票舞弊手法与马杜罗一致](/content/gnews/1/README.md)
+### [最新文件解密：战略视野咨询公司Strategic欺诈指控案&#8211;企图陷害郭先生的背后出资力量中共对美国的极度渗透](/content/gnews/1/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [拜登竞选造假系列八：前海军陆战队成员指证Smartmatic软件于2013年操控委内瑞拉大选，拜登选票舞弊手法与马杜罗一致](/content/gnews/2/README.md)
  ` GM101`
 
-### [视频川普团队发布会 &#8211; 紧急](/content/gnews/2/README.md)
+### [视频川普团队发布会 &#8211; 紧急](/content/gnews/3/README.md)
  ` 秘密翻译组G-Translators`
 
-### [邮件门揭露《生态健康联盟》科学家们掩盖Covid-19病毒真相](/content/gnews/3/README.md)
+### [邮件门揭露《生态健康联盟》科学家们掩盖Covid-19病毒真相](/content/gnews/4/README.md)
  ` 倫敦英喜莊園 Himalaya UK`
 
-### [【文字版】路德时评2020.11.19早间（路安墨谈）：美参议院报告重锤证实拜登家族与中共之间的关联交易；密歇根州两名监票员发重磅声明意味着什么？威斯康星川普支付3百万重新计票。](/content/gnews/4/README.md)
+### [【文字版】路德时评2020.11.19早间（路安墨谈）：美参议院报告重锤证实拜登家族与中共之间的关联交易；密歇根州两名监票员发重磅声明意味着什么？威斯康星川普支付3百万重新计票。](/content/gnews/5/README.md)
  ` 喜马拉雅-华盛顿DC站`
 
-### [【热点播报】台湾中天新闻台不予换照是全世界第一例被撤台的Fake News](/content/gnews/5/README.md)
+### [【热点播报】台湾中天新闻台不予换照是全世界第一例被撤台的Fake News](/content/gnews/6/README.md)
  ` 纽约香草山农场`
 
-### [『热点播报』中共外交辞令：小心他们的眼睛被戳瞎，确实亮瞎了眼](/content/gnews/6/README.md)
+### [『热点播报』中共外交辞令：小心他们的眼睛被戳瞎，确实亮瞎了眼](/content/gnews/7/README.md)
  ` 纽约香草山农场`
-
-### [重磅！指控郭文贵先生是中美双面间谍的公司代理人收了来自中共的律师费，将面临起诉！](/content/gnews/7/README.md)
- ` 喜马拉雅农场新西兰站`
 
 ### [每日新闻看点-2020年11月19日](/content/gnews/8/README.md)
  ` gnewscanada`
