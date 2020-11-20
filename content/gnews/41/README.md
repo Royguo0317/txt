@@ -1,28 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/19/2020 财经快讯: 国企现违约风波; 川普令华尔街停止投资中共军企
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/573243/)
+## 福克斯（FOX）正变为CNN般的假新闻台
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/573350/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19092840/Picture9-2.png)图片来源：[https://static.reuters.com/](https://static.reuters.com/resources/r/?m=02&amp;d=20201118&amp;t=2&amp;i=1541688382&amp;r=LYNXMPEGAH1SP&amp;w=1024)
-1， 美国股市周三连续第二日下跌，市场近期涨幅创下新纪录的势头有所暂停。道琼斯工业平均指数在波动中下跌344.93点或1.2%，至29,438.42点，此前在时段高点时曾上涨多达147点。标准普尔500指数下滑1.2%，或41.74点，至3,567.79点，而科技股重挫纳斯达克综合指数下跌0.8%，或97.74点，至11,801.60点。各主要均线在盘中低点附近收盘。
-[https://www.cnbc.com/2020/11/17/stock-market-futures-open-to-close-news.html](https://www.cnbc.com/2020/11/17/stock-market-futures-open-to-close-news.html)
+蒙特利尔战友团 Spirit
+校对 文锦 上传 WJ
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19110205/533c018b-b050-4780-b2f8-e261cc093c49.jpeg)图片来源：FOX News
+据DJHJMedia11月18日报道，乔·拜登在10月份大选前发表了一个震撼媒体的声明：“我们组建了美国政治史上最大规模和包容性的选民欺诈组织”（有视频为证）。
 
-2，川普总统签署命令让华尔街停止对中共武器的资助。美国资本不应该被用来资助中共军事武器的开发和建设，这些武器的目是为了杀死美国人，并将美军赶出亚洲。川普总统最近签署了一项行政命令，制止了华尔街的这种疯狂行为。
-[https://thehill.com/blogs/congress-blog/foreign-policy/526531-trumps-order-puts-a-halt-to-america-financing-chinas](https://thehill.com/blogs/congress-blog/foreign-policy/526531-trumps-order-puts-a-halt-to-america-financing-chinas)
+不知是拜登一不小心说了实话，还是这位痴呆症候选人被操纵的表达，总之11月3日大选夜的高度协调运作的大规模选民欺诈非常明显，特别是在关键的摇摆州。 除了在以民主党机器强大著称的民主党执政城市外，乔·拜登在全美的表现还不如当年的希拉里·克林顿，然而却没有一家主流新闻媒体报道。
 
-3，印度外长苏布拉马尼亚姆-杰桑卡周二发表讲话，重申印度绝对不参加世界上最大的贸易协定–中共主导的区域全面经济伙伴关系协定(RCEP)，并暗示中共没有以诚实的方式提出该协定所涉及的 全部内容。
-[https://www.breitbart.com/asia/2020/11/17/india-chinese-led-anti-us-trade-bloc-threatens-de-industrialize-countries/](https://www.breitbart.com/asia/2020/11/17/india-chinese-led-anti-us-trade-bloc-threatens-de-industrialize-countries/)
+选举结束后，周一白宫新闻秘书凯利·麦克纳尼(Kayleigh McEnany)发表声明指责民主党选民舞弊。“你不能定论大选的结果，因为你想要一个诚实的选举”麦克纳尼说。反川普的福克斯新闻主播尼尔·卡武托（Neil Cavuto）反击道“除非她有更多的细节支撑，否则我不可能让你们继续看下去”，然后他就切断了正在就总统大选中涉嫌选举舞弊发表声明的白宫新闻秘书的画面！
 
-4，周三上午，比特币价格上涨约8.6%，报18172美元，突破了自2017年12月20日以来从未达到的水平。比特币现在正在向2017年年底的反弹中发布的历史高点爬升，该高点见证了几种加密货币价值的飙升。 加密迷们为Fidelity、Square和PayPal等公司在行业内的大动作而欢呼雀跃。
-[https://www.cnbc.com/2020/11/18/bitcoin-price-above-18000-for-first-time-since-december-2017.html](https://www.cnbc.com/2020/11/18/bitcoin-price-above-18000-for-first-time-since-december-2017.html)
+福克斯新闻在选举日当晚明显给拜登站台，他们过早地宣布·拜登赢了亚利桑那州，却没宣布川普赢了佛罗里达州，尽管当时川普赢得佛罗里达州比拜登赢得亚利桑那州更明显，亚利桑那州的民意调查在佛罗里达州之后几个小时才结束。 福克斯当晚做得太过分了。 7200多万美国人都感觉到了，福克斯新闻的决策层是装不知道还是真不知道？其实就是故意虚假报道拜登在大选中的强劲势头。
 
-5 ，11月13日，包商银行在中国货币网发布公告称，该行拟于11月13日对已发行的65亿元“2015包行二级债”本金实施全额减记，并对任何尚未支付的累积应付利息（总计：585639344.13元）不再支付，包商银行已于11月12日通知中央国债登记结算有限公司，授权其在减记执行日进行债权注销登记操作。
-[https://finance.sina.com.cn/money/fund/jjzl/2020-11-14/doc-iiznctke1399706.shtml](https://finance.sina.com.cn/money/fund/jjzl/2020-11-14/doc-iiznctke1399706.shtml)
+还记得特朗普总统要在第一场总统辩论中，一比二，同时与乔·拜登和福克斯的克里斯·华莱士辩论。作为辩论主持人华莱士没有保持中立，傻子都能看出来他帮助拜登攻击川普，什么要特朗普税收问题等等，却对拜登关于陷害迈克·弗林将军的事只字不提，为什么不问问拜登在2017年1月那著名的白宫会议上是怎样建议用违宪且荒谬的《洛根法案》逮捕弗林将军的？
 
-6, 河南能源集团10亿债券违约， 又一家AAA级国企倒下。11月10日， 永城煤电控股集团有限公司（简称“永煤控股”）公告称，因流动资金紧张，“20永煤SCP003”未能按期足额偿付本息，已构成实质性违约，违约本息金额共计10.32亿元。
-[https://finance.sina.cn/2020-11-11/detail-iiznezxs1174877.d.html?from=wap](https://finance.sina.cn/2020-11-11/detail-iiznezxs1174877.d.html?from=wap)
+福克斯新闻网成立以来一直被左派，民主党人和几乎所有假新闻主流媒体的嘲笑和抨击，甚至奥巴马总统曾经试图把福克斯从白宫新闻库中剔除，声称福克斯不是一个真正的新闻网。 奥巴马和他的政府在执政的8年里，每天都在妖魔化福克斯新闻。 而且，奥巴马政府还监视了福克斯新闻首席华盛顿记者詹姆斯·罗森的电话和电脑记录。来自《巴尔的摩太阳报》报道，”詹姆斯·罗森发布了他从国务院雇员那里得到的关于北朝鲜的消息。司法部获得传票后查收罗森的电话和电脑记录，给他贴上了 “协助者，教唆者和共谋者 “的标签，还说他有 “逃亡风险”。
 
-By 【秘翻组 – 金融法律团队】
+鲁珀特·默多克把福克斯帝国交给了他的儿子们，这些被宠坏的自由派富家子弟聘请了保罗·瑞安进入他们的董事会，那时福克斯就开始改变了。福克斯的原来的座右铭是 “我们报道，你们决定”，估计现在已经变成“不让你看，我们决定”！
 
-2+
+福克斯新闻加入了假新闻俱乐部，川普也曾经怒斥福克斯比假新闻CNN还差。不过有几位例外：塔克·卡尔森（Tucker Carlson）、肖恩·汉尼蒂（Sean Hannity）、劳拉·英格拉哈姆（Laura Ingraham）和法官珍妮·皮罗（Jeanine Pirro），其他新闻部门的人都不可信。还好美国新闻(One America News)和Newsmax坚持报道真相。
+
+11月14日华盛顿的百万挺川大游行可以表明民众没有被主流媒体所欺骗，当前拜登方的惊天选举大欺诈，给各大媒体提供了足足的火爆内容，广大民众每个人都想知道到底是怎么回事。福克斯和CNN造假新闻，逆行民意，强挺拜登，导致收视率下降，一定会被市场抛弃。爆料革命的G-TV,GNEWS对情报的独家掌握和坚持唯真不破、唤醒民众，赢得了国内外普遍信任，前景好得简直无法想象。
+
+[参考链接](https://djhjmedia.com/rich/were-witnessing-fox-news-become-another-cnn-and-its-sad-to-watch/)
+
+0

@@ -1,75 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【聚焦】Scytl公司投票欺诈服务器被“捡到” — 白宫记者质疑7800万张美国选票被送到海外
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/574004/)
+## 【热点播报】突发新闻：审计数千未计数选票，乔治亚州Floyd县选举主任被迫辞职
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/574018/)
 
-作者：Giselle / 文泓
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19185206/Picture13-1.png)图为INTEL美军突袭德国的Scytl服务器公司（来源：[https://greatgameindia.com/](https://greatgameindia.com/us-military-raided-scytl-germany/)）
-Newsmax驻美国白宫记者Emerald Robinson11月19日在推特上发文称，川普竞选团队律师西德尼.鲍威尔已经向她证实，从德国取回了一台服务器。“我刚问了西德尼.鲍威尔：有报道说，有一个硬件，可能是一个服务器，在德国捡到的，是真的吗？”鲍威尔：这是真的，它和这个有某种关系，但我不知道是好人得到了它，还是坏人得到了它。
+作者：香草山写作组 正道主义联盟
 
-
-
-> Nov. 19: Sidney Powell confirms to me that a server was retrieved from Germany. [https://t.co/VMvde4wRPS](https://t.co/VMvde4wRPS)
-> — Emerald Robinson ✝️ (@EmeraldRobinson) [November 19, 2020](https://twitter.com/EmeraldRobinson/status/1329513393208913925?ref_src=twsrc%5Etfw)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19024426/12345-3.jpg)
 
 
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19191241/sdafge4hy.png)
+来自Gteway  punit 网站的突发消息：Floyd县选举委员会在周四投票终止了选举主任的职务，此前官员们在全州范围的审计中发现了数千张未计数的选票。
 
-> I just asked Sidney Powell: "There are reports that there was a piece of hardware, probably a server, picked up in Germany. Is that true?"
-> 
-> Powell: "That is true. It is somehow related to this. But I do not know whether good guys got it or bad guys got it."
-> — Emerald Robinson ✝️ (@EmeraldRobinson) [November 19, 2020](https://twitter.com/EmeraldRobinson/status/1329492983679488010?ref_src=twsrc%5Etfw)
+据TGP的Kristinn Taylor报道，周末对总统选举进行的全州重新计票显示，在佐治亚州的Floyd县，有2600多张选票没有被统计，原因是服务器出错，据称是由一个州内制表机造成的。
+
+据报道，发现的选票中，川普总统的支持率几乎是2:1，将乔·拜登(Joe Biden)大约14,000张的领先优势减少了约800张。
+
+据之前Fox5亚特兰大报道：
+
+周一晚上，乔治亚州州长布拉德·拉芬斯珀格(Brad Raffensperger)立即要求选举主任辞职。
+
+Floyd县的选举委员会星期四投票罢免了选举委员会的执行主任，因为选举官员发现，在该县的初步认证之前，有数百张选票没有清点。
+
+周四下午，董事会召开了一个多小时的特别会议，最终导致布雷迪被解雇。官员们引用了布雷迪在过去六个月里收到的至少两次训斥作为他被解雇的原因。
+
+选举官员本周早些时候在全州范围的审计中发现，大约有2600张选票没有计入全县选票总数。选举工作人员最终不得不重新扫描8000多张选票，以弄清问题的真相。
+
+接连两天，有关乔治州大选更多的丑闻被曝光：美国乔治亚州共和党主席表示，拜登在某些县份的得票率得到99.9%，超过著名独裁者得票率叙利亚阿萨德2007年的97.6%，古巴卡斯塔罗2008年的99.6%；平北朝鲜金正恩2009年99.9%的世界纪！
+
+11月18日，川普团队的律师林伍德（Lin Wood）针对乔治亚州的重新选举计票发帖说“我有无可辩驳的证据，证明乔州的地方选举官员接到州的指示，报告原来计票的总数，而不是报告重新计票后的总数。”“这些人已经腐败到触犯法律，他们故意参与了联邦选举中的欺诈行为。
+
+据目前公示的选票结果显示：乔治亚州开出约98%选票，拜登以得票率49.5%（2472255）比49.2%，（2458248）领先川普总统0.3个百分点，相差将近1万5000票。
+
+据路德社今晨访谈节目透露：乔治亚州至今总共发现9626张选票错误地计算给了拜登,1000多张选票被错误地计算成10000多张。川普总统在乔治亚州的票数上定超过拜登，未来会有更多证据出来。很多人说是计票失误，但没有一张票是错算给川普总统。
+
+乔治亚州翻盘在即！由今天的解雇风波可见，该州选举委员会已经乱成一锅粥了！摆明着是开始找背锅侠！这真是川普团队最近重大利好消息！
+
+审核发稿：悟空
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，纽约时间周日至周四晚上9:00，美国志愿者在纽约香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19024426/12345-3.jpg)
 
 
 
-【备注】记者招待会上，当鲍威尔律师说到“好人、坏人”时，一旁的朱利安尼和小律师都在窃笑。
 
-Robinson在推特上说，据美联社报道，“Scytl在德国法兰克福没有办公室或服务器”，”问题是，Scytl在自己的公关资料中提到它“在法兰克福有一个紧急备份中心”。
-
-
-
-> According to AP/NYT/Reuters/USAToday: "Scytl does not have offices or servers in Frankfurt, Germany."
-> 
-> The problem is that Scytl's own PR kits mention "an emergency back-up center in Frankfurt." 
-> 
-> Where does Scytl's website IP address take you? Frankfurt, Germany. [https://t.co/dEBqfPbTU0](https://t.co/dEBqfPbTU0)
-> — Emerald Robinson ✝️ (@EmeraldRobinson) [November 19, 2020](https://twitter.com/EmeraldRobinson/status/1329443200734539778?ref_src=twsrc%5Etfw)
-
-
-
-Scytl的网站IP地址在哪里？
-
-【备注】Scytl是一家总部位于巴塞罗那的西班牙公司，自2008年以来已经以各种方式为美国各州和多个城市提供选举服务。像Dominion Voting Systems 公司一样，Scytl在不同国家和地区都有选举欺诈历史，包括在选举软件中加入后门。
-
-Scytl表面上与Dominion是两家公司，实际是后者的数据支持中心，所以才有了美国的数据到了国外之说。
-
-此前的11月18日，驻白宫记者Robinson在推特上发文：如果你想揭开2020年美国大选结果的神秘面纱，必须先问一个简单的问题：为什么800个县的7800万张美国选票，被送到了海外属于一家西班牙公司的服务器上？
-
-
-
-> According to Scytl website, the Department of Defense is one of their main customers. Why would the DoD subcontract a Spanish company to handle 78 million votes in 800 counties? [https://t.co/kcM9VUy5Va](https://t.co/kcM9VUy5Va)
-> — Emerald Robinson ✝️ (@EmeraldRobinson) [November 19, 2020](https://twitter.com/EmeraldRobinson/status/1329422743364898816?ref_src=twsrc%5Etfw)
-
-
-
-推友 [@ AFVET4FREEDOM](https://twitter.com/AFVET4FREEDOM) 回复：这也正是我想问的。
-
-川普总统在2018年签署了一项关于外国干涉我们选举过程的行政命令，但我们却把选票放在德国的服务器上，这仿佛在说，请干涉我们的选举！
-
-在11月18日的福克斯新闻采访中，川普竞选团队律师朱利安尼指控，美国28个州的选票被发送到了德国和西班牙，由委内瑞拉的Smartmatic公司进行计数。
-
-Dominion是一个在加拿大创立的公司，但是这些数据“没有被送往加拿大，而是被送往德国和西班牙，计票的公司不是Dominion，而是Smartmatic——这是一家2005年在委内瑞拉成立的公司，专门用于操纵选举，他们精于此道。”朱利安尼说。
-
-在11月15日的一次采访中，朱利安尼提供了Dominion Voting Systems的更多详细信息，该系统使用了Smartmatic公司的软件，涉入委内瑞拉全国大选以及阿根廷和菲律宾等其它国家的选举。
-
-在过去的几年中，Smartmatic及其产品引起了人们对投票安全的关注。德克萨斯州务卿和检察长办公室认为该软件缺乏基本的安全标准，在2013年和2019年拒绝使用。
-
-朱利安尼指称：“极左翼”的Dominion公司一些高层人士支持安提法（Antifa），而Smartmatic的董事长与乔治·索罗斯（George Soros）有联系。
-
-相关链接：
-
-[https://www.epochtimes.com/gb/20/11/19/n12561543.htm](https://www.epochtimes.com/gb/20/11/19/n12561543.htm)
 
 0

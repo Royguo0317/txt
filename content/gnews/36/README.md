@@ -1,69 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日新闻看点-2020年11月18日
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/573360/)
+## 中共幕后黑手即将浮出水面
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/573444/)
 
-多伦多加喜农场 大地鲲鹏
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24064746/WhatsApp-Image-2020-10-24-at-15.08.49.jpeg)
+作者：康州农场-GTalk心语堂
 
-校对上传 XM
+东利有限公司诉战略愿景美国有限责任公司案最新进展
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19112742/image1-4.png)
+原告： 东利有限公司（EASTERN PROFIT CORPORATION LIMITED, Plaintiff）
 
-一、疫情真相
+被告： 战略愿景美国有限责任公司（STRATEGIC VISION US LLC, Defendant）
 
-闫丽梦博士论文：
+受理法院： 美国纽约南区法院（United States District Court, S.D. New York.）
 
-[第一份英文版](https://zenodo.org/record/4028830#.X1_lwj-SlPa)   [第一份中文版](https://drive.google.com/file/d/1vZ0vbPJ9QAhGDjna9pkMxqUHhIdakODW/view?usp=sharing)
+继东利有限公司，以下简称“东利”（EASTERN）要求战略愿景美国有限责任公司,以下简称“愿景”（Strategic），公布其用于本此法律诉讼的资金来源后， “愿景”律师于2020年11月13日向法庭提出动议，要求驳回“东利”的请求。理由如下：
 
-[第二份英文版](https://zenodo.org/record/4073131)   [第二份中文版](https://gnews.org/zh-hans/411364/)
+1. “愿景”诉讼资助人的身份与本案不相关；
+2. 即使“愿景”诉讼资助人的身份与本案具有在某种条件下的关联性，该关联性的价值对于此案而言微乎其微；
+3. 根据宪法第一修正案，第三方资助者的身份是独立且不应被法庭作为证据。
 
-二、新中国联邦新闻
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19112758/image2-5.png)
+“愿景”进一步称此案是郭文贵先生对中国异见人士的打击报复行为，案件的出资人应根据宪法第一修正案得到法庭保护。
 
-1. “路德时评”11/18/2020节目部分内容:
+分析：首先，*“*愿景*”*变相承认了第三方资助者的存在，并接受了其资助；其次，*“*愿景*”*极力否认第三方资助者与本案的关联性，那么请问，*“*愿景*”*作为一家声名狼藉的皮包公司，是如何赢得其资助者的青睐呢？它们之间有没有利益相关性呢？最后，*“*愿景*”*企图将郭文贵先生描绘成一个打击中国异见人士的报复者，这种抹黑，并与政治挂钩的手法与中共的作风何其相似。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19112812/image3-6.jpeg)
+根据以上“愿景”呈交法庭的动议， “东利”与2020年11月18日提出反驳，指出：
 
-a.随着中共国闭关锁国政策的开启，粮食危机逐步显现，中共媒体开始推广土豆作为主粮。
+“愿景”声明不与任何与中共有关联的人或机构发生业务往来，且该声明是构成本案的要件之一，但在本案中，“愿景”却拒绝回答是否接受了与中共有关的个人或实体的资助，这构成了声明与行为之间冲突；而其所列举的上述理由均无法理依据，本案的核心是：“愿景”是否接受了中共支持者的直接或间接的资助。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19112840/image4-6.png)
+针对“愿景”动议中的理由，“东利”进行了如下反驳：
 
-b.纽约时报透露川普总统选票比4年前多了1010万，也导致了拜登阵营对选票疯狂造假。
+1. 引用布洛伊迪（Broidy）和戴维斯（Davis）案文件，以证明美国政府，以及布洛伊迪，戴维斯以及中共， 均认为郭文贵先生是持不同政见者；
+2. 法院尚未裁定，“愿景”是否由中共支持者资助的问题与本案无关，或无足轻重；
+3. “愿景”提出的第三方资助者的身份独立问题，并不排斥关于“愿景”诉讼资助人的证据的可接受性；
+4. “愿景”既然将此案与政治挂钩，就不能再援引宪法第一修正案作为保护伞。
 
-c.Ramsland在接受鲁道博采访时说手上掌握确实证据，早在8-10个月之前就警告大选会作弊，现在已经抓到多米尼的犯罪现行。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19112902/image5-4.jpeg)
+“东利”最后进一步指出，“愿景”先是企图将其合同欺诈的行为转移为政治案件，之后又试图援引宪法第一修正案隐瞒其诉讼资助者， 只可惜，该修正案此时已不适用于本案。
 
-d.美国防部长Miller宣布，国会授权所有特种部队及情报部门直接向其汇报，特种部队首次与其他军种平行。川普总统将绕开国会的繁复流程，直接掌控打击中共的军事力量，“72小时”行动、推倒防火墙、斩首中共盗国贼等特种作战将随时可能发生。
+分析：据美国司法部报道，布洛伊迪（*Broidy*）和戴维斯（*Davis*）分别在今年*10*月和*8*月认罪，他们均承认作为外国代理人，非法游说政府官员放弃对*1MDB*公司的调查，和遣返一名中国公民（郭文贵先生）。
 
-e.川普总统赢得重要支持，参议院同意修改230法案，脸书、推特等作恶媒体公司即将被终结。
+（*Elliott Broidy Pleads Guilty for Back-Channel Lobbying Campaign to Drop 1MDB Investigation and Remove a Chinese Foreign National | OPA | Department of Justice*
 
-（[“路德时评”早间节目](https://www.youtube.com/watch?v=13YIBBKpSOA&amp;list=PLt9WLG-do1atM5bjKoiSQuXncbmVnEESC&amp;index=3)）
+*Nickie Mali Lum Davis Pleads Guilty to Facilitating Back-Channel Lobbying Campaign to Drop 1MDB Investigation and Remove a Foreign National to China*）
 
-（[“路德时评”晚间节目](https://www.youtube.com/watch?v=RVDRVXe9ZV4)）
+由此可见，郭文贵先生是中共欲除之而后快的重要反共人士，绝不是*“*愿景*”*所污蔑的所谓迫害异见人士者。另外，作为中共代理人，布洛伊迪和戴维斯是否是*“*愿景*”*在此案中的资助者呢？为什么*“*愿景*”*极力隐瞒它已经承认的，实际存在的资助者？
 
-2.美国国务卿蓬佩奥11月16日到访巴黎时接受了法国《费加罗报》的专访。他在采访中呼吁欧洲盟友与美国团结对抗中共，并称“如果我们放弃，有一天便会发现我们沦为中共专制政权的殖民地，而不再是伙伴关系”。
+现在，*“*愿景*”*试图把欺诈案与政治挂钩，并利用宪法第一修正案作为保护伞，以逃避公布其幕后资助者的责任，但是根据*“*密斯诉基恩案（*Meese v. Keene*）*”*，联邦最高法院支持了*1938*年制定的《外国代理人登记法》，几部加拿大电影被定义为*“*政治宣传片*”*，法院要求必须公开这些电影的赞助商。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19112915/image6-4.jpeg)
+*“*愿景*”*的这一把戏可谓作茧自缚。纽约南区法院下一步是否会驳回*“*愿景*”*的动议，并要求其公布背后金主呢？我们拭目以待。
 
-3.日澳两国日前就一项双边防务协定达成广泛协议，中共官方星期三对此表示了“强烈不满和坚决反对”。
+相关链接： 
+1. 美国司法部案件编号：Case 1:18-cv-02185-LJL Document 307-1 Filed 11/18/20 Case 1:18-cv-02185-LJL Document 306 Filed 11/13/20 
+2.布洛伊迪认罪（Elliott Broidy Pleads Guilty）：https://search.justice.gov/search?query=broidy&op=Search&affiliate=justice 
+3.戴维斯认罪（Nickie Mali Lum Davis Pleads Guilty）： https://www.justice.gov/opa/pr/hawaii-businesswoman-pleads-guilty-facilitating-back-channel-lobbying-campaign-drop-1mdb 
+4.“愿景”公司背景（Who is Behind Strategic Vision US LLC）： https://gnews.org/50457/
 
-4.中共人大法工委11月17日表示，督促香港加紧基本法23条立法工作。该法条性质与中共国内的颠覆国家政权罪大抵雷同，邪恶至极。
+Pictures from: 
+https://www.leagle.com/decision/infdco20200115h87 
+https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2019/12/16094808/%E8%9E%A2%E5%B9%95%E6%88%AA%E5%9C%96-2019-12-10-%E4%B8%8B%E5%8D%888.13.36-1.png 
+https://www.rcinet.ca/en/wp-content/uploads/sites/3/2020/04/covid-epoch-times-headlines-sumit-carol-harman-via-cbc.jpg 
+https://static01.nyt.com/images/2020/10/20/nyregion/20dc-broidy/20dc-broidy-mobileMasterAt3x.jpg 
+https://spark.adobe.com/page/NEYhdCTSNg8GS/images/4e7cc822-4d50-47e9-b273-c6fa2e0e4c18.jpg?asset\_id=b5dfda3f-fe36-4390-93a4-3f8346da5380&img\_etag=%22b969f69b4f0498e8fd7cc1269b57e81c%22&size=1024 
+https://law.utexas.edu/wp-content/uploads/sites/63/2020/08/1Amendment\_V1-1024×546.jpg 
+https://static01.nyt.com/images/2014/12/26/nyregion/y-ANNIVERSARY/y-ANNIVERSARY-superJumbo.jpg
 
-5.香港民主党议员许智峰、立法会民主派党团议会阵线成员朱凯迪和人民力量党主席陈志全三名前泛民派议员是周三早上被警察逮捕。这是香港政府对泛民派议员采取的又一项新的行动。此前，港府和中共联手取消了四名香港泛民派议员的资格，随后立法会全体泛民派议员集体辞职，表示抗议。
-
-美国、澳大利亚、加拿大、新西兰和英国政府星期三（11月18日）就香港问题发表联合声明，重申对中共采用新的规则来取消香港民选议员资格的严重关切。他们敦促中共立即恢复这些立法会议员的职务。
-
-6.继河北企业家孙大午及其家人被捕、企业被强制接管后，南京前首富杨宗义本周二被指涉嫌非法吸收公众存款犯罪被刑事拘留。这让上周习近平在扬州等长三角地区考察更像“打劫踩点”，令民企老板人心惶惶。
-
-7.亚太经合组织（APEC）领导人非正式会议将于周五（11月20日）举行，美国方面已经表示川普总统将不参加这次峰会。预计习近平将再次呼吁有关国家支持多边主义，但该组织成员国之间分歧众多，习的“宏伟规划”恐难达成共识。
-
-8.近日，美国前总统克林顿在与英国前首相布莱尔的对话时直言中共党魁习近平寻求长期执政，颠覆了美中关系。早些时候，中共中央在北京召开会议并发表公报已经将习近平的全能称号已经升级为“全党的核心领航掌舵者”。世界上另一个拥有“舵手”华丽称号的是朝鲜的金正恩。
-
-9.11月18日波兰特勤协调部长发言人声明表示，检方已在日前日前对杜巴吉罗和名为王伟晶的中共国嫌犯向华沙地方法院递交起诉书，两人被控共同从事有损波兰国家利益的间谍活动，王伟晶是前华为主管。
-
-三、世界新闻
-
-1. 美国总统大选法律战在六大关键州开打，朱利安尼先生周二（11月17日）通过法律文书告知法庭，他将代表川普总统竞选团队在宾夕法尼亚州打官司，阻止该州认证当前的舞弊选票结果。文件递交大约30分钟后，法院批准了该申请。
-
-独立律师林·伍德（Lin Wood）已在佐治亚州提起第二次诉讼，该诉讼长达188页，指证大规模选举欺诈行为，旨在基于欺诈证据，该州停止对2020年总统选举的选举结果进行认证，伍德要求在佐治亚州进行全面的重新手动计票。
-
-星期三川普总统竞选阵营将300万美金转到其威斯康辛州的分部，作为法律诉讼的费用。此次竞选阵营并没有要求全州重新计票，而是针对密尔沃基郡还有丹恩郡重新计票。威州选举委员会在中午证实收到申请。
-
-不惧Antifa的威胁和恐吓，18日，密歇根州Wayne县的共和党籍县认证委员会委员Monica Palmer写下声明文件，确认反对认证该县的选举结果。文件中她提到被威胁，但她仍然希望对所有的选票进行全面审计。
-
-2.代理国防部长Miller星期二（11月17日）在五角大楼宣布将从阿富汗和伊拉克撤军。此前川普总统下令在总统就职典礼日之前从阿富汗撤走约2000名美国军人并从伊拉克撤走约500名美军，但前国防部长埃斯珀一直不为所动。
-
-3.由印度海军主办、美国海军、皇家澳大利亚海军以及日本海上自卫队参加的“马拉巴尔-2020”联合海上军演第二阶段演习于11月17日正式开始，演习将持续到20日，演习地点位于阿拉伯海北部。印度海军“维克拉马蒂亚”号航空母舰和美国海军“尼米兹”号航空母舰均有参与。
-
-0
+3+

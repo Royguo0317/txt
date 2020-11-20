@@ -1,49 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】部分12港人家属收到子女亲笔信 形容看守所生活安好
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/574028/)
+## 前“ Dominion”项目经理与密歇根州签订了2500万美元的合同，同时担任Dem副主席
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/563897/)
 
-搜集：po
+编译：玫瑰天空
 
-编撰：心听见
+据报道，Dominion的前项目经理是密歇根州底特律郊区的一个小镇Lathrup Village的市长。
 
-审核：MY
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19191258/12-LETTER-201119-21.jpg)图片：雅虎香港
-据【Now新闻台】正在内地扣押的12名港人，其中7人的家属收到他们的亲笔信，信中形容被扣押的生活很好，又叫家人毋须要求回内地探望。有家属质疑信不是在自愿情况下撰写，坚持要求与子女直接对话。
+市长Mykale“ Kelly” Garrett是密歇根州的一名资深民主党人。纽约青年共和党俱乐部主席加文·瓦克斯（Gavin Wax）在Twitter帖子中指出了这一发现，并指出密歇根州民主党中央委员会已将她指定为：
 
-被扣押近三个月，有12港人的家属收到来自深圳看守所的信件。
+加勒特[在接受](https://www.youtube.com/watch?v=YncDKoX_7TI)《*奥克兰时报》*[采访时](https://www.youtube.com/watch?v=YncDKoX_7TI)说：
 
-7 名港人的家属，上周六开始陆续收到亲笔信，其中一封来自18岁的郑子豪，他形容自己在看守所「过得很好」，三餐吃得饱、室友很照顾他，又指自己的普通话进步了很多。
+她在采访中没有提及与Dominion的关系。韦克斯指出，她曾协助经纪Dominion与密歇根州之间的2500万美元合同，[同时仍担任奥克兰县民主党的副主席](https://ocdp.org/news/17/01/04/election-announcement-officers-2017-2018)。
 
-提及到自己的罪名，他指是很轻的罪，叫家人毋须担心，亦不需要回内地探望他 ，他又叫父母尝试回信，信中有出现简体字。
 
-另一封信来自邓棨然，同样指自己过得安好，看守友善。
 
-另一封信亦同样提到，在看守所的生活「食好瞓好」，无被人欺负和打，又指自己 好快会回来。
+> Here are the images of the contract between Dominion and the State of Michigan which Ms. Garrett helped executed. $25 million. [pic.twitter.com/B5zKRfSvwK](https://t.co/B5zKRfSvwK)
+> — Gavin Mario Wax 🇺🇸 (@GavinWax) [November 16, 2020](https://twitter.com/GavinWax/status/1328421990106091522?ref_src=twsrc%5Etfw)
 
-三封信都有提及要家人汇钱，并透过微信的公众号处理。
 
-其中一名收到信的家属指，认得笔迹，相信的确是子女亲笔写的，但相信内容并非 自愿。
 
-12港人家属电话访问：「心情一半半，一半开心，一半都怀疑、担心的，我儿子通常不会那么『长气』。他也写了两页纸给我，两页纸中，他的语气都较客气，应不是他情愿写那么多内容。我不确实当局的目的，当我们多心也好，可能是报平安，不希望我们说得太多。」
+纽约青年共和党俱乐部主席加文·瓦克斯（Gavin Wax）还指出：
 
-12港人关注组指，这些描述与内地看守所的常见情况大相径庭，以往都有关押者被逼按照当局指示，向家属寄出内容由官方决定的信，要求家属放弃营救等。
+前Dominion项目经理Mykale Garrett现在由Kelly Garrett担任，现在是密歇根州Lathrup市长。于2019年离开Dominion，全面参与了密歇根州的政治，那么她是否全面了解这一切运作呢？她还曾担任临时市长。这里存在大量利益冲突。
 
-12港人家属对信件内容存疑，并重申要求当局允许家属委托的律师会见，让家属与 当事人直接对话，并要知道官派律师的联络数据及委托文书。
 
-战友点评：
 
-12港人被送中以来一直被拒绝家属及委托律师见面，消息全无，与世隔绝，而家属多次要求都是石沉大海，港共伪政府更加是不闻不问无动于衷，家属一度求助无门。而12港人家属时时刻刻都在伤心无助中。
+> Mykale Garrett, former Dominion project manager, now goes by Kelly Garrett and is the Mayor of Lathrup Village, Michigan. Conveniently left Dominion in 2019 to become involved heavily in Michigan politics having a full understanding of the machines in a swing-state? [pic.twitter.com/t8JGdiE0dG](https://t.co/t8JGdiE0dG)
+> — Gavin Mario Wax 🇺🇸 (@GavinWax) [November 16, 2020](https://twitter.com/GavinWax/status/1328390303607349248?ref_src=twsrc%5Etfw)
 
-经世界多国政要的关注和民间的支持行动，在多方压力下，邪恶中共又用所谓的信件来胡弄国际关注人士，先不说邪共对付政见异己人士手法有多么的残暴层出不穷，而从信件格式书写方式显示内容是照抄本，语调写法不是广东方言，而是国语版的述说，内容更是耐人寻味，太假，对中共继续用谎言的欺骗手段来忽悠，只能说他们的无耻已经天下无敌。是人都知道中国是一个没有人权、没有言论自由的独裁专制国家，人权纪录问题严重劣迹斑斑，中共以党治国以警治国以黑治国，从来不尊重人权，任意或非法剥夺生命，失踪，酷刑极其残忍，不人道方式对待政见不同的异见人士的手法也是闻名国际社会。
 
-这些所谓的信件只是中共响应国际社会关注的一种安慰剂手法，而现实的是家属和委托律师能和12人士见面才能得以使人信服，国际声援关注不能停止，希望12人士可以得到公平对待，早日同家人团聚，而邪恶中共一味用谎言欺骗手段掩盖真相也改变不了世界正义力量灭共的决心。
 
-以上观点仅代表笔者本人
 
-新闻来源：NOW新闻
 
-[https://news.now.com/home/local/player?newsId=413534&refer=Share](https://news.now.com/home/local/player?newsId=413534&amp;refer=Share)
+> This is her. [pic.twitter.com/cINto81ZpI](https://t.co/cINto81ZpI)
+> — Gavin Mario Wax 🇺🇸 (@GavinWax) [November 16, 2020](https://twitter.com/GavinWax/status/1328398437591773187?ref_src=twsrc%5Etfw)
+
+
+
+加勒特（Garrett）还领导非营利组织母亲正义（Mothering Justice），该组织鼓吹**社会主义和财富再分配**。在采访中，她继续吹嘘自己在密歇根州**民主党的深厚关系。**
+
+“我曾是密歇根州民主党选民保护的副局长。”
+
+用她的话说，似乎她支持一些政策，例如将[底特律缺席选民投票委员会变成免费的第三世界风格的政策](https://bigleaguepolitics.com/tens-of-thousands-of-ballots-dropped-off-in-usps-boxes-at-detroit-absentee-ballot-processing-center-at-330-am-after-election/)。
+
+她说：“我曾担任奥克兰县民主党的副主席，而我最近刚刚停止担任Southfield-Lathrup民主党的主席。”“由于我有一些志愿人员职位，我实际上认识了全州的人。我与我们的**州长和国务卿**有着很好的关系”。
+
+这逐渐被各界民众发掘出来的消息都慢慢揭开背后利益关系各方在本次美国大选选票设备黑幕后的潜在角色。之中隐藏的利益关联和合法性将经受正在进行的司法大战的考验。后续信息的披露还需持续关注。
+
+[援引：](https://bigleaguepolitics.com/exclusive-former-dominion-project-manager-executed-25-million-contract-with-state-of-michigan-while-serving-as-dem-vice-chair/)原文
 
 0

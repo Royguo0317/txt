@@ -1,70 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共幕后黑手即将浮出水面
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/573444/)
+## War Room 516 总结
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/573510/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24064746/WhatsApp-Image-2020-10-24-at-15.08.49.jpeg)
-作者：康州农场-GTalk心语堂
+- 编辑：Ranting
+- 作者：Jenny Ball
 
-东利有限公司诉战略愿景美国有限责任公司案最新进展
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19112742/image1-4.png)
-原告： 东利有限公司（EASTERN PROFIT CORPORATION LIMITED, Plaintiff）
 
-被告： 战略愿景美国有限责任公司（STRATEGIC VISION US LLC, Defendant）
+**没有阴谋论，但也没有那么多的巧合**。
 
-受理法院： 美国纽约南区法院（United States District Court, S.D. New York.）
+**班农先生**：现在是整个大流行中最艰难，最艰巨，最危险的时刻。左派，疾控中心和福齐左派倾城出来只有一个声音（谎言）。
 
-继东利有限公司，以下简称“东利”（EASTERN）要求战略愿景美国有限责任公司,以下简称“愿景”（Strategic），公布其用于本此法律诉讼的资金来源后， “愿景”律师于2020年11月13日向法庭提出动议，要求驳回“东利”的请求。理由如下：
+有着150年历史备受推崇的著名科学出版物《柳叶刀》杂志，基本上是同行评审期刊，和《科学美国人》及其他一些科学刊物一样，都是从不涉足政治领域的杂志，现在它们打破多年的传统和声誉，都参与到了政治活动中，与虚假新闻媒体一样，认同拜登。
 
-1. “愿景”诉讼资助人的身份与本案不相关；
-2. 即使“愿景”诉讼资助人的身份与本案具有在某种条件下的关联性，该关联性的价值对于此案而言微乎其微；
-3. 根据宪法第一修正案，第三方资助者的身份是独立且不应被法庭作为证据。
+**杰克**：当这些负责健康的官员们让强制使用疫苗时，一年2到3次，每次赚取10美元收入？他们使用中共的数据来传播对病毒的恐惧。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19112758/image2-5.png)
-“愿景”进一步称此案是郭文贵先生对中国异见人士的打击报复行为，案件的出资人应根据宪法第一修正案得到法庭保护。
+美国人真是到了必须站起来迎头痛击的说：我们受够了！
 
-分析：首先，*“*愿景*”*变相承认了第三方资助者的存在，并接受了其资助；其次，*“*愿景*”*极力否认第三方资助者与本案的关联性，那么请问，*“*愿景*”*作为一家声名狼藉的皮包公司，是如何赢得其资助者的青睐呢？它们之间有没有利益相关性呢？最后，*“*愿景*”*企图将郭文贵先生描绘成一个打击中国异见人士的报复者，这种抹黑，并与政治挂钩的手法与中共的作风何其相似。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19112812/image3-6.jpeg)
-根据以上“愿景”呈交法庭的动议， “东利”与2020年11月18日提出反驳，指出：
+来自香港的大主教是世界上最伟大的人物之一，他谈中共，中共病毒，梵蒂冈和教皇。
 
-“愿景”声明不与任何与中共有关联的人或机构发生业务往来，且该声明是构成本案的要件之一，但在本案中，“愿景”却拒绝回答是否接受了与中共有关的个人或实体的资助，这构成了声明与行为之间冲突；而其所列举的上述理由均无法理依据，本案的核心是：“愿景”是否接受了中共支持者的直接或间接的资助。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19112840/image4-6.png)
-针对“愿景”动议中的理由，“东利”进行了如下反驳：
+**伊丽莎白·尤尔**：芝加哥沉浸在欢度感恩节的气氛中，尽管市长下了封城令，民主党领导层对美国实施戒严，彻底摧毁了经济，人们已经受够了。
 
-1. 引用布洛伊迪（Broidy）和戴维斯（Davis）案文件，以证明美国政府，以及布洛伊迪，戴维斯以及中共， 均认为郭文贵先生是持不同政见者；
-2. 法院尚未裁定，“愿景”是否由中共支持者资助的问题与本案无关，或无足轻重；
-3. “愿景”提出的第三方资助者的身份独立问题，并不排斥关于“愿景”诉讼资助人的证据的可接受性；
-4. “愿景”既然将此案与政治挂钩，就不能再援引宪法第一修正案作为保护伞。
+我们正在目睹一场大重置，伊斯兰和共产主义邪恶势力正在摧毁犹太教－基督教文明。而梵蒂冈是这一全球无神论者大重置的中心。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19112902/image5-4.jpeg)
-“东利”最后进一步指出，“愿景”先是企图将其合同欺诈的行为转移为政治案件，之后又试图援引宪法第一修正案隐瞒其诉讼资助者， 只可惜，该修正案此时已不适用于本案。
+**只有川普运动才能制止中共，全球主义者和教宗方济各所推动的大重置阴谋**。
 
-分析：据美国司法部报道，布洛伊迪（*Broidy*）和戴维斯（*Davis*）分别在今年*10*月和*8*月认罪，他们均承认作为外国代理人，非法游说政府官员放弃对*1MDB*公司的调查，和遣返一名中国公民（郭文贵先生）。
+弗兰克·沃克神父谈天主教教会的巨额现金流量业务。以难民服务，天主教慈善机构，天主教救济服务机构是大型实体为名义来运送非法外国人和洗钱。可以通过金钱往来线索看到他们实际上是如何使天主教成为他们敛财幌子，中共向教皇弗朗西斯输送了大量金钱，还有伊斯兰国家，迪拜的阿拉伯国王都资助了梵蒂冈大量的金钱。
 
-（*Elliott Broidy Pleads Guilty for Back-Channel Lobbying Campaign to Drop 1MDB Investigation and Remove a Chinese Foreign National | OPA | Department of Justice*
+这也是梵蒂冈对至高权力的贪图。
 
-*Nickie Mali Lum Davis Pleads Guilty to Facilitating Back-Channel Lobbying Campaign to Drop 1MDB Investigation and Remove a Foreign National to China*）
+**班农先生**：总统有四年零六十天，七十天的任期时间，需要重新考虑如何应对病毒的大流行。我对总统的建议是：实施战时总统的职责。
 
-由此可见，郭文贵先生是中共欲除之而后快的重要反共人士，绝不是*“*愿景*”*所污蔑的所谓迫害异见人士者。另外，作为中共代理人，布洛伊迪和戴维斯是否是*“*愿景*”*在此案中的资助者呢？为什么*“*愿景*”*极力隐瞒它已经承认的，实际存在的资助者？
 
-现在，*“*愿景*”*试图把欺诈案与政治挂钩，并利用宪法第一修正案作为保护伞，以逃避公布其幕后资助者的责任，但是根据*“*密斯诉基恩案（*Meese v. Keene*）*”*，联邦最高法院支持了*1938*年制定的《外国代理人登记法》，几部加拿大电影被定义为*“*政治宣传片*”*，法院要求必须公开这些电影的赞助商。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19112915/image6-4.jpeg)
-*“*愿景*”*的这一把戏可谓作茧自缚。纽约南区法院下一步是否会驳回*“*愿景*”*的动议，并要求其公布背后金主呢？我们拭目以待。
 
-相关链接： 
-1. 美国司法部案件编号：Case 1:18-cv-02185-LJL Document 307-1 Filed 11/18/20 Case 1:18-cv-02185-LJL Document 306 Filed 11/13/20 
-2.布洛伊迪认罪（Elliott Broidy Pleads Guilty）：https://search.justice.gov/search?query=broidy&op=Search&affiliate=justice 
-3.戴维斯认罪（Nickie Mali Lum Davis Pleads Guilty）： https://www.justice.gov/opa/pr/hawaii-businesswoman-pleads-guilty-facilitating-back-channel-lobbying-campaign-drop-1mdb 
-4.“愿景”公司背景（Who is Behind Strategic Vision US LLC）： https://gnews.org/50457/
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
-Pictures from: 
-https://www.leagle.com/decision/infdco20200115h87 
-https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2019/12/16094808/%E8%9E%A2%E5%B9%95%E6%88%AA%E5%9C%96-2019-12-10-%E4%B8%8B%E5%8D%888.13.36-1.png 
-https://www.rcinet.ca/en/wp-content/uploads/sites/3/2020/04/covid-epoch-times-headlines-sumit-carol-harman-via-cbc.jpg 
-https://static01.nyt.com/images/2020/10/20/nyregion/20dc-broidy/20dc-broidy-mobileMasterAt3x.jpg 
-https://spark.adobe.com/page/NEYhdCTSNg8GS/images/4e7cc822-4d50-47e9-b273-c6fa2e0e4c18.jpg?asset\_id=b5dfda3f-fe36-4390-93a4-3f8346da5380&img\_etag=%22b969f69b4f0498e8fd7cc1269b57e81c%22&size=1024 
-https://law.utexas.edu/wp-content/uploads/sites/63/2020/08/1Amendment\_V1-1024×546.jpg 
-https://static01.nyt.com/images/2014/12/26/nyregion/y-ANNIVERSARY/y-ANNIVERSARY-superJumbo.jpg
-
-3+
+0
