@@ -1,98 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 北极上不凋落的七芒星 （三）
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/570726/)
+## 突发：生态健康联盟策划了中共病毒 “自然起源”一系列声明
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/573641/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/18113856/beiji7.png)
-一路飞驰，我们到了白马市。也是育空首府。
+多伦多加喜农场 云起时
 
-流经白马市的育空河，上游水流湍急，激起的水花高似白马，是该市名字由来。58年建水坝后白马急流就消失了。该市生活设施齐全，居然还有二十四小时营业的超市，在冰天雪地的北大荒很难得。
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19140324/come.jpg)图片来自 WSJ
+美国知情权组织（US Right To Know)于11月18日宣告，根据他们获得的一系列电子邮件显示，27名著名公共卫生科学家在《柳叶刀》上撰写的一份谴责 “阴谋论认为COVID-19没有天然来源 “的声明是由生态健康联盟（EcoHealth Alliance）的员工组织协调的。该联盟是一个非营利组织，曾获得美国纳税人数百万美元的资助，与武汉病毒学研究所的科学家一起对冠状病毒进行基因操作。
 
-我们租了airbnb上口碑非常好的一栋别墅的一层楼。然后埋锅造饭。
+通过公共记录请求获得的电子邮件显示，生态健康联盟主席彼得-达斯扎克（Peter Daszak）起草了发表在《柳叶刀》（Lacent)上的声明，他希望“不要让人觉得它来自任何一个组织或个人”，而要把它看作“仅仅是一封来自顶尖科学家的信”。达斯扎克在电子邮件中写道，他希望 “避免出现政治声明”。【1】
 
-小别墅古色古香在花丛中迎候我们。
+科学家们的这封信于2月18日刊登在《柳叶刀》上，此时距世界卫生组织宣布将中共病毒命名为COVID-19仅一周。
 
-屋主是为欧洲移民大妈。
+这27位作者 “强烈谴责认为COVID-19非自然来源的阴谋论”，并报告说，来自多个国家的科学家“绝大多数认为这种冠状病毒起源于野生动物”。信中没有任何科学参考资料来反驳该病毒的实验室起源理论。一位科学家琳达-赛义夫（Linda Saif）通过电子邮件问道，“只补充一两个声明来支持为什么nCOV不是实验室产生的病毒，而是自然产生的，这是否有用? 似乎至关重要的是应该科学地驳斥这种说法！” 【2】达斯扎克回应说：“我认为我们可能应该坚持一个宽泛的声明。”【3】
 
-她絮絮叨叨跟我们说她养的狗狗不会给我们舔麻烦的，都是很乖巧的。就是太热情。
+随着调查武汉病毒学研究所作为中共病毒潜在来源的呼声越来越高，导致生态健康联盟的审查力度加大。这些邮件显示，正如达斯扎克告诉《卫报》的那样，生态健康联盟的成员如何在将有关中共病毒可能的实验室来源的问题定义为 “需要解决的疯狂理论 “方面发挥了早期作用。【4】
 
-有一对游客夫妇住在她这里时就是狗狗太热情在他们吃早餐时打扰了他们，导致游客夫妇在review上给了差评，导致她降到了四星半。她老难过了。
+虽然“生态健康联盟 ”这个词只在《柳叶刀》声明中出现过一次，生态联盟与声明合著者达斯扎克有关，其他几位合著者也与该组织有着直接关系，但却没有被披露为利益冲突。这些合著者中，丽塔-科威尔（Rita Colwell）和詹姆斯-休斯（James Hughes）是生态健康联盟的董事会成员，威廉-卡瑞什（William Karesh）是该集团负责健康和政策的执行副总裁，休姆-菲德（Hume Field）是其科学和政策顾问。
 
-我们笑笑安慰她这里的人都爱狗狗，肯定相安无事的。
+声明的作者还声称，“迅速、公开和透明地分享有关这次疫情的数据，现在正受到围绕其起源的谣言和错误信息的威胁”。然而如今，人们对中共病毒的起源知之甚少，世界卫生组织和《柳叶刀》COVID-19委员会对其起源的调查也一直笼罩在秘密之中，并陷入利益冲突。
 
-然后大家埋锅造饭，做了一大桌吃的。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/18113924/beiji8.png)
-吃饭时碰到同从高贵林（大温哥华地区中偏东北的一个市）过来的白人一家三口。他们来过这边几次了，也是开车过来，准备去Tombstone国家公园。听说我们要去北极圈满是羡慕，他们觉得往上开比较有难度。
+达斯扎克、丽塔（Rita Colwell）和《柳叶刀》编辑理查德-霍顿（Richard Horton）没有对我们的要求发表评论。
 
-女主人很优雅，男的五十多健硕型男运动型。
+更多信息如下：
 
-小女儿Doris 活泼开朗，大概二十多，人亭亭玉立，清清秀秀的，从小练芭蕾，对事物充满了好奇，拉着我们说东说西。谈她见到的班芙的冰川，白马的极光。我给她看沿途开过来拍的照片，她一张张的看，问各种问题。
+通过该链接可以看到生态健康联盟共466页的电子邮件。【5】
 
-不知不觉谈到很晚，其他人都去睡了，她兴致依然很高，
+美国知情权组织曾于11月16日公布了通过公共信息自由（FOI）请求获得的《关于SARS-CoV-2的起源、功能增益研究的危害和生物安全实验室的FOI文件》。【6】
 
-拿了带的红酒，我们喝了几杯。
+[原文链接](https://usrtk.org/biohazards-blog/ecohealth-alliance-orchestrated-key-scientists-statement-on-natural-origin-of-sars-cov-2/)
 
-我拿出闫博士的宣传单，指了指跟她说：
+【1】[https://usrtk.org/wp-content/uploads/2020/11/The\_Lancet\_Emails\_Daszak-2.8.20.pdf](https://usrtk.org/wp-content/uploads/2020/11/The_Lancet_Emails_Daszak-2.8.20.pdf)
 
-If you drink You get high
+【2】[https://usrtk.org/wp-content/uploads/2020/11/The\_Lancet\_Emails\_Saif-2.6.20.pdf](https://usrtk.org/wp-content/uploads/2020/11/The_Lancet_Emails_Saif-2.6.20.pdf)
 
-If you read, You get educated
+【3】[https://usrtk.org/wp-content/uploads/2020/11/The\_Lancet\_Emails\_Daszak-2.6.20.pdf](https://usrtk.org/wp-content/uploads/2020/11/The_Lancet_Emails_Daszak-2.6.20.pdf)
 
-If you drink and read, You get highly educated.
+【4】[https://www.theguardian.com/world/2020/feb/20/coronavirus-chinese-scientists-false-rumours-experts](https://www.theguardian.com/world/2020/feb/20/coronavirus-chinese-scientists-false-rumours-experts)
 
-我们相视而笑。
+【5】[https://usrtk.org/wp-content/uploads/2020/11/Biohazard\_FOIA\_Maryland\_Emails\_11.6.20.pdf](https://usrtk.org/wp-content/uploads/2020/11/Biohazard_FOIA_Maryland_Emails_11.6.20.pdf)
 
-Doris说她最大的梦想是将来疫情结束了去周游世界，然后到所有美好的地方拍婚纱照。
-
-我说那你不是要结很多次婚？当然可以是和同一个人。
-
-她格格的笑，她说她喜欢仪式感，从小就梦想长大了穿各种礼服，和美丽的裙子，再去到北极光下泡温泉，画上美丽的新娘妆。
-
-Doris说话时一边眼睛眨啊眨的，率真坦诚满是梦想。
-
-某些方面有点像江南女子，温婉而有点小小的野性，酒后脸红红的，月光下似细润的玉雕。
-
-我悄悄告诉她此行我们有个任务，不仅仅是去北极，她睁大眼睛说我们家来这边也有个要紧事情的。
-
-我拿出新中国联邦的国旗给她看，
-
-是什么啊？
-
-New Federal State of  China.
-
-一边跟她解释起闫博士宣传单的内容，跟她说疫情的事。
-
-她小眉头紧促听着，仔细读上面的文字。
-
-我又试着跟她说路德访谈和War Room, Steve Banon.
-
-她完全听不懂，但神情开始严肃。
-
-我问她你们来的目的？
-
-她神情里有些悲伤
-
-告诉我他们会一直开到Tomb Stone National Park 然后在那里的宿营地住一段时间。
-
-我说那边我们也要去的，不过从北极回来会多住一晚，我回来时希望你还在那里，她眼睛亮亮的闪了闪。✋伸出来，跟我来了一个high five.
-
-一夜在花香中睡的很安宁。
-
-Doris的话犹在耳边
-
-你知道我见过的最美极光是和月亮同在，和星星同在；有绿光，还有紫光，有时还能看到紫色的星河。
-
-早上大妈送早餐，里面有她为我们精心准备的烤饼。
-
-小姑娘打扮的漂漂亮亮，坐在大长桌那一边不时往这边偷偷看几眼，俏皮可爱。
-
-早餐后各自开车分道扬镳。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/18114223/beiji9.png)
-作者：昔马千羽
-
-原创观点文章 – 2020/11/19
-
-温哥华圆成农场
+【6】https://usrtk.org/biohazards/foi-documents-on-origins-of-sars-cov-2-risks-of-gain-of-function-research-and-biosafety-labs/
 
 0

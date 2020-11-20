@@ -1,41 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国已经发动了对极权暴政中共的最后宣战
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/573866/)
+## 【聚焦】Scytl公司投票欺诈服务器被“捡到” — 白宫记者质疑7800万张美国选票被送到海外
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/574004/)
 
-作者：宁缺；校对/审核：海阔天空；Page：拱卒
+作者：Giselle / 文泓
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19185206/Picture13-1.png)图为INTEL美军突袭德国的Scytl服务器公司（来源：[https://greatgameindia.com/](https://greatgameindia.com/us-military-raided-scytl-germany/)）
+Newsmax驻美国白宫记者Emerald Robinson11月19日在推特上发文称，川普竞选团队律师西德尼.鲍威尔已经向她证实，从德国取回了一台服务器。“我刚问了西德尼.鲍威尔：有报道说，有一个硬件，可能是一个服务器，在德国捡到的，是真的吗？”鲍威尔：这是真的，它和这个有某种关系，但我不知道是好人得到了它，还是坏人得到了它。
 
 
-> 文贵先生引领的爆料革命已经完全唤醒了美国军方
+
+> Nov. 19: Sidney Powell confirms to me that a server was retrieved from Germany. [https://t.co/VMvde4wRPS](https://t.co/VMvde4wRPS)
+> — Emerald Robinson ✝️ (@EmeraldRobinson) [November 19, 2020](https://twitter.com/EmeraldRobinson/status/1329513393208913925?ref_src=twsrc%5Etfw)
 
 
-[!\[\]()!\[\](https://spark.adobe.com/page/CZvHWc9WnHTrV/images/50bc5da3-05fe-4b35-851d-6ce20ab1baa9.jpg?asset_id=06826bf4-888a-400a-9b27-6649ed4c8766&amp;img_etag=%22e36b7ca8df46e9d5db107a35b252fb8e%22&amp;size=1024)](https://spark.adobe.com/page/CZvHWc9WnHTrV/images/50bc5da3-05fe-4b35-851d-6ce20ab1baa9.jpg?asset_id=06826bf4-888a-400a-9b27-6649ed4c8766&amp;img_etag=%22e36b7ca8df46e9d5db107a35b252fb8e%22&amp;size=1024)christopher miller
 
-爆料革命三年来不断警示美国，中共企图搞垮、搞弱、搞死美国的险恶用心，终于在此次美国大选中展现得淋漓尽致。自此，美国军方已经完全被爆料革命唤醒，这一现象非常值得认真关注。
 
-从美国制度设计来看，军方行动一般由国防部副部长负责执行，正职部长是内阁文职官员，负责军事策略的大方向，并非必须由军人担任。同时，和平时期，军方不插手文官政治是一般国家的传统，所以由文官担任军方最高职务，体现文官对军队的控制制衡是常态。这次川普总统更换国防部长，媒体的注意力都在川普总统与辞任国防部长的关系不和，其实最应该注意的焦点是无论本该由文官任职的国防部长如何变换，始终是军方背景的军人把持这个职位。这就说明美国军方已经时刻准备着与中共的战争，毫无松懈的迹象。
 
-新任代理国防部长克里斯托弗·米勒过去在军队服役时间超过30年，有着更为深厚的军方背景。与前任执行川普总统命令时的拖拖拉拉相比，这位代理国防部长明显更为雷厉风行，且作风强硬。克里斯托弗·米勒一上任就做了两件事，一是宣布从伊拉克、阿富汗等美国长期作战地区撤军。明眼人一看就知道，在此时中美对峙的关口，这个举动很明显是收回军事拳头转向中共。第二件事就是美国陆军部队搜查没收了德国法兰克福的选票软件服务器。军方出面在另外一个国家行动执法这个事情有更深入的解读。
+> I just asked Sidney Powell: "There are reports that there was a piece of hardware, probably a server, picked up in Germany. Is that true?"
+> 
+> Powell: "That is true. It is somehow related to this. But I do not know whether good guys got it or bad guys got it."
+> — Emerald Robinson ✝️ (@EmeraldRobinson) [November 19, 2020](https://twitter.com/EmeraldRobinson/status/1329492983679488010?ref_src=twsrc%5Etfw)
 
-![]()![](https://spark.adobe.com/page/CZvHWc9WnHTrV/images/8c121817-760a-461d-840b-c1fd730d96ac.jpg?asset_id=5281acfc-0837-496b-8b64-ed2591b81146&amp;img_etag=%222934375d0bf5da391ff6bf9fb3c0d9e1%22&amp;size=1024)米勒先生从1983年到2014年一直在美国陆军服役，包括在伊拉克和阿富汗，并在9/11之前指挥一支负责追踪本拉登的陆军部队。这是新任代理国防部长米勒先生2001年作为AOB作战指挥官时的留影
 
-川普总统与刚辞职的国防部长矛盾之一就是，黑命贵运动期间，川普总统曾要求军方出面平息非法抗议活动、维护国内治安，被国防部长埃斯伯拒绝，因为他作为职业军人觉得民间运动是文官政治的事，军方不应该掺合文官政治，所以不便也不能插手。现在的选举舞弊按照严格意义来说，同样是国内政党之间的政治矛盾，在正常情况下本应由司法系统主导调查，并给出是否舞弊的判决结果。但是新任的代理国防部长让军方陆军部出面，在德国法兰克福这个美国盟国之一的重要城市开展执法行动，没收选举软件，直接无视与中共勾结的德国政府的脸面，这就是告诉全世界，美国军方认为美国已经进入非常时期，为了美国的国家安全，必须要打破和平时期军方不介入文官政治的旧有规则，承担起捍卫美国价值观和国家安全的重任。
 
-结合美国总统川普宣布美国进入紧急状态，和国务卿彭培奥最近一系列刺穿中共底线的言论，表明美国军方已经强烈意识到美国面临的严重威胁，做好了一切准备协助川普总统全面主导美国国内国际事务，接下来美国军方一定会对中共出重手。彭佩奥作为美国国务卿，所表述的中共是马克思主义怪胎、台湾不是中国领土的惊天言论，加上代理部长最新史无前例的严正警告美军随时能在72小时对中共展开毁灭性军事打击，这一切对专制集权极要脸面的中共来说已经是明白无误的震慑。
+【备注】记者招待会上，当鲍威尔律师说到“好人、坏人”时，一旁的朱利安尼和小律师都在窃笑。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/CZvHWc9WnHTrV/images/73c8b556-a951-480b-b8b4-aa30d908e1b2.jpg?asset_id=93a3c6d1-08bd-4a7e-b953-021e3bee49cb&amp;img_etag=%2294412ebb08fdf673ef95b58d80493a49%22&amp;size=1024)](https://spark.adobe.com/page/CZvHWc9WnHTrV/images/73c8b556-a951-480b-b8b4-aa30d908e1b2.jpg?asset_id=93a3c6d1-08bd-4a7e-b953-021e3bee49cb&amp;img_etag=%2294412ebb08fdf673ef95b58d80493a49%22&amp;size=1024)2020年9月24日，在华盛顿，国家反恐中心主任克里斯托弗-米勒在参议院国土安全和政府事务委员会关于 “国土威胁 “的听证会上作证后离开。
+Robinson在推特上说，据美联社报道，“Scytl在德国法兰克福没有办公室或服务器”，”问题是，Scytl在自己的公关资料中提到它“在法兰克福有一个紧急备份中心”。
 
-彭佩奥虽然担任文官国务卿，但他出生西点军校，过去长期在军队服役，本质同样是军方的代言人，并且其本人还是一个军事强人。美国军方透过彭佩奥对中共火药味十足的批评，将中共视为马克思主义的怪胎，加大对中共军队企业的金融制裁等一系列动作，实际已经是事实上是对极权中共宣战。现在就等着看穷途末路的中共如何接招，对自己国内百姓用惯铁拳的无耻恶棍将如何承受报应，享受来自世界第一军事强国的铁拳。
 
-在这提醒广大的爆料革命战友，中美热战已经迫在眉睫，特别是国内的战友更要做好应有的准备。
 
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/CZvHWc9WnHTrV/)】-点击spark adobe版
+> According to AP/NYT/Reuters/USAToday: "Scytl does not have offices or servers in Frankfurt, Germany."
+> 
+> The problem is that Scytl's own PR kits mention "an emergency back-up center in Frankfurt." 
+> 
+> Where does Scytl's website IP address take you? Frankfurt, Germany. [https://t.co/dEBqfPbTU0](https://t.co/dEBqfPbTU0)
+> — Emerald Robinson ✝️ (@EmeraldRobinson) [November 19, 2020](https://twitter.com/EmeraldRobinson/status/1329443200734539778?ref_src=twsrc%5Etfw)
 
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-![]()![](https://spark.adobe.com/page/CZvHWc9WnHTrV/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+Scytl的网站IP地址在哪里？
+
+【备注】Scytl是一家总部位于巴塞罗那的西班牙公司，自2008年以来已经以各种方式为美国各州和多个城市提供选举服务。像Dominion Voting Systems 公司一样，Scytl在不同国家和地区都有选举欺诈历史，包括在选举软件中加入后门。
+
+Scytl表面上与Dominion是两家公司，实际是后者的数据支持中心，所以才有了美国的数据到了国外之说。
+
+此前的11月18日，驻白宫记者Robinson在推特上发文：如果你想揭开2020年美国大选结果的神秘面纱，必须先问一个简单的问题：为什么800个县的7800万张美国选票，被送到了海外属于一家西班牙公司的服务器上？
+
+
+
+> According to Scytl website, the Department of Defense is one of their main customers. Why would the DoD subcontract a Spanish company to handle 78 million votes in 800 counties? [https://t.co/kcM9VUy5Va](https://t.co/kcM9VUy5Va)
+> — Emerald Robinson ✝️ (@EmeraldRobinson) [November 19, 2020](https://twitter.com/EmeraldRobinson/status/1329422743364898816?ref_src=twsrc%5Etfw)
+
+
+
+推友 [@ AFVET4FREEDOM](https://twitter.com/AFVET4FREEDOM) 回复：这也正是我想问的。
+
+川普总统在2018年签署了一项关于外国干涉我们选举过程的行政命令，但我们却把选票放在德国的服务器上，这仿佛在说，请干涉我们的选举！
+
+在11月18日的福克斯新闻采访中，川普竞选团队律师朱利安尼指控，美国28个州的选票被发送到了德国和西班牙，由委内瑞拉的Smartmatic公司进行计数。
+
+Dominion是一个在加拿大创立的公司，但是这些数据“没有被送往加拿大，而是被送往德国和西班牙，计票的公司不是Dominion，而是Smartmatic——这是一家2005年在委内瑞拉成立的公司，专门用于操纵选举，他们精于此道。”朱利安尼说。
+
+在11月15日的一次采访中，朱利安尼提供了Dominion Voting Systems的更多详细信息，该系统使用了Smartmatic公司的软件，涉入委内瑞拉全国大选以及阿根廷和菲律宾等其它国家的选举。
+
+在过去的几年中，Smartmatic及其产品引起了人们对投票安全的关注。德克萨斯州务卿和检察长办公室认为该软件缺乏基本的安全标准，在2013年和2019年拒绝使用。
+
+朱利安尼指称：“极左翼”的Dominion公司一些高层人士支持安提法（Antifa），而Smartmatic的董事长与乔治·索罗斯（George Soros）有联系。
+
+相关链接：
+
+[https://www.epochtimes.com/gb/20/11/19/n12561543.htm](https://www.epochtimes.com/gb/20/11/19/n12561543.htm)
 
 0

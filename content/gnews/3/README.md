@@ -1,26 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅！指控郭文贵先生是中美双面间谍的公司代理人收了来自中共的律师费，将面临起诉！
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/571752/)
+## 【热点播报】台湾中天新闻台不予换照是全世界第一例被撤台的Fake News
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/574232/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/18215627/nysd-file.jpg)
-作者：引力波
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19024426/12345-3.jpg)
 
-最近一份来自纽约南区法院的文件再次证实了郭文贵先生长期以来向公众揭示的关于中共在美国培植第三方代理人进行渗透工作，利用美国的法律来腐蚀美国的制度的真相。
+作者：香草山写作组 程万里
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19225913/11202.jpg)
+台湾中天新闻台换照案，国家通讯传播委员会（NCC）18日决议「不予换照」。NCC主委陈耀祥表示，经过委员评分并充分讨论，包括违规纪录严重、内控机制失灵两大理由，7位委员一致决议驳回，不予换照。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19225934/11203.jpg)
+陈耀祥直指，原因出在内控与自律机制失灵。中天新闻台在2018年评鉴后就大量违规，加上先前调查证据与民众检举，显示大股东蔡衍明直接、间接介入中天制播，中天也不否认日前流出的微信群组截图内容。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19225949/11204.jpg)
+中天新闻台不予换照是全世界第一例被撤台的Fake News。这发生在中华民族文化传承最好的台湾，中华民族的自由民主现今发展最好的地方。爆料革命台湾战友每次上街抗议起到了很大作用和影响，这就是民主的伟大之处，更验证了中华人民同样适合民主发展，更应该享有自由、民主、法治的社会。
 
-这份文件中写道：
+审核：浪迹天涯
 
-美国战略远景有限责任公司（以下简称“Strategy”）以其委托人热心反共并且绝不与任何与中国共产党有联系的人做生意为前提，主张肯定的欺诈指控（即指控郭文贵先生是中美两国的双面间谍）。 同时，Strategy拒绝回答有关中共支持的个人或实体是否正在为这些指控要求而支付法律费用的问题。Strategy不能同时兼顾这两方面。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
 
-更重要的是：
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-813司法部文件已经清楚的证明了郭先生是受保护的“中国的异见人士“，而Elliott Broidy 和 Nickie Mali Lum Davis 都已经因为收受中共的贿赂来游说遣返郭先生而被起诉，并已经认罪。这种情况下Strategy这种回避的态度让我们不得不怀疑他们很可能收了Broidy 和 Davis两人来自中共支付的律师费，非法地作为海外代理人指控郭先生。
-
-Strategy的两位负责人French Wallop 和 J. Michael Waller现在很慌，因为他们知道自己面临着什么。Broidy和Davis的结果也将发生在他们身上。
-
-中共渗透美国几十年，其黑暗的势力已经深入了美国社会的根基：法律体系。中共利用美国的法律体系来腐蚀美国社会，培养了一批黑暗的法律打手。现在这场排干沼泽的行动已经深入沼泽内部。文贵先生以这个案子为线索，又将牵出许多沼泽地的妖怪曝晒于阳光之下。
-
-那些欺民贼和伪类们，下一个就是你们了。
-
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19024426/12345-3.jpg)
 0

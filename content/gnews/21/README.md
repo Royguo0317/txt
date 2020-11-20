@@ -1,28 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 第二次封城来了，加拿大人可能会拒绝居家隔离
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/574009/)
+## 前“ Dominion”项目经理与密歇根州签订了2500万美元的合同，同时担任Dem副主席
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/563897/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19190234/lockdown1.png)图片来源：互联网
-加拿大安大略省定于本周五将多伦多及其周边地区封锁，其他省份如：阿尔伯塔省、曼尼托巴省、萨斯喀彻温省、魁北克省、卑诗省都已经或者即将采取进一步的严控措施，本周四之后除了大西洋沿岸外的所有加拿大人都将回归到今年3月份居家隔离的那种令人疯狂的状态。
+编译：玫瑰天空
 
-在第二波疫情到来之际这种严格管制措施是否更加有效，我们更需要关注另外一个问题：在这样漫长寒冷的冬季里，加拿大人能接受这么长时间的居家隔离吗？
+据报道，Dominion的前项目经理是密歇根州底特律郊区的一个小镇Lathrup Village的市长。
 
-在疫情发生将近一年的时间里，政府仍然没有告诉民众中共病毒是怎么样传播的以及为何第二波病毒比第一波更加猛烈；卫生官员虽然每天公布中共病毒死亡人数，但没有透露病因是否与其他健康状况或年纪较大有关；快速检测病毒的方法推进非常缓慢，政府没有足够的资源进行追踪和隔离病毒接触者；对于卑诗省颁布的跨省旅行禁令，其实并没有足够的证据证明本省的病毒来自省外旅行者。
+市长Mykale“ Kelly” Garrett是密歇根州的一名资深民主党人。纽约青年共和党俱乐部主席加文·瓦克斯（Gavin Wax）在Twitter帖子中指出了这一发现，并指出密歇根州民主党中央委员会已将她指定为：
 
-本次中共病毒的总负责人-加拿大总理贾斯汀.特鲁多(Justin Trudeau)在周三对于病毒“质询”时的回答泛泛而谈，缺乏细节，这样的答复对于鼓励加拿大人平安度过第二波疫情是根本没用的。为了确保公众认同政府所采取的强制措施以应对已经到来的严峻挑战，政府必须提供明确的证据来支持其强硬的隔离措施，尽快推进快速检测，并且给加拿大人一个明确的大规模接种疫苗的计划表。政府只有严格落实大众所关心的问题，公众才能更加信任政府，这也是底线。
+加勒特[在接受](https://www.youtube.com/watch?v=YncDKoX_7TI)《*奥克兰时报》*[采访时](https://www.youtube.com/watch?v=YncDKoX_7TI)说：
 
-**评：**
+她在采访中没有提及与Dominion的关系。韦克斯指出，她曾协助经纪Dominion与密歇根州之间的2500万美元合同，[同时仍担任奥克兰县民主党的副主席](https://ocdp.org/news/17/01/04/election-announcement-officers-2017-2018)。
 
-加拿大政府对于中共病毒从何而来、有哪些具体的传播渠道、群众需要做哪些具体的防御措施、何时能推出有效的快速检测方法、何时能有有效疫苗、有效疫苗接种的具体安排表等，在一系列问题上遮遮掩掩。加拿大是被中共深度蓝金黄的重灾区，位居高位的官员为了自己的私利，肆意践踏人民群众的利益、安危，对于中共病毒真相视而不见、置若罔闻、积极掩盖，其做法令人发指。众所周知，中共病毒是由中共国最高层亲自指挥部署，由中共国军方、武汉P4实验室等机构参与的、经过精确改造的生物武器，在以美国为首的国际专家组进入中共国实验室进行全方位、详细的调查之前，短期内不可能开发出有效的疫苗。
 
-原文链接：
 
-[https://www.ctvnews.ca/politics/don-martin-the-second-lockdown-cometh-but-canadians-may-resist-house-arrest-1.5195331](https://www.ctvnews.ca/politics/don-martin-the-second-lockdown-cometh-but-canadians-may-resist-house-arrest-1.5195331)
+> Here are the images of the contract between Dominion and the State of Michigan which Ms. Garrett helped executed. $25 million. [pic.twitter.com/B5zKRfSvwK](https://t.co/B5zKRfSvwK)
+> — Gavin Mario Wax 🇺🇸 (@GavinWax) [November 16, 2020](https://twitter.com/GavinWax/status/1328421990106091522?ref_src=twsrc%5Etfw)
 
-翻译报道：武松
 
-温哥华圆成农场 – 2020/11/19
+
+纽约青年共和党俱乐部主席加文·瓦克斯（Gavin Wax）还指出：
+
+前Dominion项目经理Mykale Garrett现在由Kelly Garrett担任，现在是密歇根州Lathrup市长。于2019年离开Dominion，全面参与了密歇根州的政治，那么她是否全面了解这一切运作呢？她还曾担任临时市长。这里存在大量利益冲突。
+
+
+
+> Mykale Garrett, former Dominion project manager, now goes by Kelly Garrett and is the Mayor of Lathrup Village, Michigan. Conveniently left Dominion in 2019 to become involved heavily in Michigan politics having a full understanding of the machines in a swing-state? [pic.twitter.com/t8JGdiE0dG](https://t.co/t8JGdiE0dG)
+> — Gavin Mario Wax 🇺🇸 (@GavinWax) [November 16, 2020](https://twitter.com/GavinWax/status/1328390303607349248?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> This is her. [pic.twitter.com/cINto81ZpI](https://t.co/cINto81ZpI)
+> — Gavin Mario Wax 🇺🇸 (@GavinWax) [November 16, 2020](https://twitter.com/GavinWax/status/1328398437591773187?ref_src=twsrc%5Etfw)
+
+
+
+加勒特（Garrett）还领导非营利组织母亲正义（Mothering Justice），该组织鼓吹**社会主义和财富再分配**。在采访中，她继续吹嘘自己在密歇根州**民主党的深厚关系。**
+
+“我曾是密歇根州民主党选民保护的副局长。”
+
+用她的话说，似乎她支持一些政策，例如将[底特律缺席选民投票委员会变成免费的第三世界风格的政策](https://bigleaguepolitics.com/tens-of-thousands-of-ballots-dropped-off-in-usps-boxes-at-detroit-absentee-ballot-processing-center-at-330-am-after-election/)。
+
+她说：“我曾担任奥克兰县民主党的副主席，而我最近刚刚停止担任Southfield-Lathrup民主党的主席。”“由于我有一些志愿人员职位，我实际上认识了全州的人。我与我们的**州长和国务卿**有着很好的关系”。
+
+这逐渐被各界民众发掘出来的消息都慢慢揭开背后利益关系各方在本次美国大选选票设备黑幕后的潜在角色。之中隐藏的利益关联和合法性将经受正在进行的司法大战的考验。后续信息的披露还需持续关注。
+
+[援引：](https://bigleaguepolitics.com/exclusive-former-dominion-project-manager-executed-25-million-contract-with-state-of-michigan-while-serving-as-dem-vice-chair/)原文
 
 0
