@@ -1,16 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 天使的号角
-` JP007` [轉載自GNews](https://gnews.org/zh-hans/574604/)
+## 塔斯社紧跟美国大选司法进程
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/576572/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20012224/%E5%A4%A9%E4%BD%BF%E7%9A%84%E5%8F%B7%E8%A7%92.png)
-**作者：京都富士会  神的带领**
+文/洛夫斯基、青椒文喜    审核/文璟
 
-记得中共病毒刚开始的时候，中共就以各种手段遮蔽事实，打击了一批吹号人，一致他们不是失去了生命就是下落不明。世卫组织也站出来说不会人传人，说各国不要指责中共、说中共对病毒的处理方式是榜样，紧接着中共病毒全世界泛滥。全世界的人们请问您们现在的工作、生活、经济乃至生命等等的损失是不是该找他们来补偿呢？
+（俄罗斯喜马拉雅）
 
-非常感恩知遇七哥，知遇爆料革命，使得我们早早就知道中共的邪恶，早早就知道病毒的危险。让我们提前有了准备。
+11月19日，塔斯社以《吉姆·乔丹和詹姆斯·科默要求审查2020年选举的公正性》为题报道了美国大选的司法进程。
 
-美国大选的潮流淹没了病毒的声音，各国似乎忘了病毒的存在，忘了我们美丽的闫博士用生命带来的真相。最近，随着病毒又一次大爆发，人们的视线又回到感染爆发的数字上来。各种估计、各种预算、各种疫苗的宣传。可是病毒的数字似乎和他们所说的格格不入，他们预测东京今天最多2百多，结果东京飙升到近5百，比预测的翻了一倍。 疫情这么严重，政府依旧稳坐泰山。他们只关注经济，不再补助放假。人们每天都顶着感染的巨大压力，不得不出行。相信这样压力下去会有越来越多的人清醒，会有越来越多的人去寻找真相，寻找谁该为他们负责？同时一定会感恩闫博士带来的真相。
+[https://tass.ru/mezhdunarodnaya-panorama/10043727?utm\_source=yxnews&utm\_medium=mobile&utm\_referrer=https%3A%2F%2Fyandex.ru%2Fnews%2Fstory%2FFox\_respublikancy\_v\_Kongresse\_potrebovali\_rassledovaniya\_narushenij\_v\_khode\_vyborov–36bf95a430a0d8a2d82af6b08b991eb1](https://tass.ru/mezhdunarodnaya-panorama/10043727?utm_source=yxnews&amp;utm_medium=mobile&amp;utm_referrer=https%3A%2F%2Fyandex.ru%2Fnews%2Fstory%2FFox_respublikancy_v_Kongresse_potrebovali_rassledovaniya_narushenij_v_khode_vyborov--36bf95a430a0d8a2d82af6b08b991eb1)
 
-2+
+文中援引了福克斯新闻的消息，介绍了国会共和党人要求对违反选举规定的行为进行调查。法律委员会成员吉姆·乔丹（俄亥俄州）和监督委员会成员詹姆斯·科默（肯塔基州）——周三要求委员会主席——民主党人——调查和听取2020年总统选举期间犯下的所谓“错误和不当行为”。
+
+此前乔丹和科默致函法律委员会主席杰罗尔德·纳德勒和监督政府改革委员会主席卡罗琳·马洛尼，敦促他们“检查2020年选举的公正性”。
+
+报道还引用了两位共和党议员的话，“鉴于您作为一个政党领导人的角色，贵党花了四年时调查川普内阁通俄，没有任何理由地质疑了2016年选举的合法性；而现在你有义务让全体美国人民对（上次选举中）发生事实错误和滥用的指控进行全面调查。
+
+1+

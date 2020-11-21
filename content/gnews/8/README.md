@@ -1,20 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## FBI局长擅离职守 应该被解雇
-` GM107` [轉載自GNews](https://gnews.org/zh-hans/575224/)
+## CCP病毒来源：为什么说病毒是人造的之S蛋白篇
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/577170/)
 
-据Gateway Pundit新闻报道，朱利安尼先生在周四举行的新闻发布会上，抨击了擅离职守的FBI对投票机违规和选举舞弊的态度。
+**作者：康州农场-轰炸机
+审核：康州农场-文韵**
 
-朱利安尼、律师鲍威尔和律师埃利斯在周四（11月19日）召开的新闻发布会，披露了川普竞选团队收集的关于窃取选举的证据。川普律师、前纽约市市长朱利安尼提供了美国总统大选被盗的有力证据，并对克里斯-雷领导的擅离职守的联邦调查局进行了严厉指责。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20054824/FBI-rudy-600x311-1.jpg)
-**朱利安尼**：你们FBI在哪里？我不知道过去三年FBI在哪里，**我不知道过去三年、过去四年FBI都在哪里。**给我解释一下FBI是如何隐瞒了布伦南交给奥巴马的一份备忘录，说希拉里基本上是编造了俄罗斯的勾结阴谋。他们隐瞒了四年，并花费了我们的国家 4000万美元和两个弹劾（一个企图，一个实际发生），只是 一个无罪释放的程序。我不知道他们去哪里了！**我不知道拿到硬盘后做了什么，他们在8到10个月前就拿到了，上面有明显的犯罪记录 ；**我不知道他们现在在哪里！我们国家的选票是在外国被计算和操纵的，而这个公司是由美国敌人的朋友控制的。**我们要怎么做才能让联邦调查局醒悟过来呢？**
+2020年1月CCP病毒（冠状病毒）首先在中国武汉爆发，至今仅仅用了十一个月，就发展成了全球**5560万**（全球人数的0.71%）人确诊，死亡**134万**（全球人数的0.02%）人，美国确诊**1180万**（美国人数的3.6%）人，死亡**25.2万**(美国人数的0.08%)人。因为有些国家是按照病症严重程度统计人数，实际人数应该比上面显示数字要高的多。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20220834/%E5%9B%BE%E7%89%871-29.jpg)
+在全世界没发觉之前，路德社就在2020-1-19节目中为全世界做出了预警，警告大家，这是“全球大流行”病毒，会大面积传播。提供病毒预警信息的英雄科学家闫博士随后发出2份关于CCP病毒的公开报告，为世界指明了病毒来源。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20220912/%E5%9B%BE%E7%89%872-20.jpg)
+报告中指出病毒中**S蛋白**部分作用是决定病毒的宿主种类，如感染人或感染蝙蝠、穿山甲，将什么做为目标是由S蛋白决定。S蛋白分为**S1**与**S2**两个部份。其中S1部分决定病毒与什么目标结合，感染人就需要与人融合的hACE2，感染蝙蝠就需要与人蝙蝠融合的hACE2，S1的不同决定了病毒能感染人或其它什么动物。S2的作用是维持三聚体结构，使病毒更容易的进入细胞，通俗讲就是S2决定病毒结构的强度。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20220940/%E5%9B%BE%E7%89%873-13.jpg)
+如果要制做出“好用的”，“不易消灭的”，“针对人”的病毒就需要合成一个好用的S蛋白，其中要有“坚固的S2”+“对人感染的S1”。闫博士报告中写道，将CCP病毒与蝙蝠病毒与非典病毒的基因序列进行了比对，其中CCP病毒的S蛋白S2序列与ZC45/ZXC21（蝙蝠病毒）的S2序列有95%相似，S蛋白S1序列中主管感染人的部分(RBM：约70个氨基酸的片段)与非典病毒的相同部分基本相似。
 
-**川普总统在昨天就应该解雇了克里斯-雷。**
+这种变化可以解释为蝙蝠病毒有了非典病毒的感染人的功能，或者解释为非典病毒有了蝙蝠病毒那样坚固顽强的结构。如果CCP解释为这是一种自然的进化，进化机率有亿分之一的话，那减去这个百分比就得出有99999999.99%的机率是人造的。因为，不管从蝙蝠到CCP病毒，还是从非典到CCP病毒，都没有出现过渡病毒的记录。仿佛“谁“打了个响指，CCP病毒它就出现了，这种变化是极为不正常的。
 
+本文希望让更多的人看懂病毒来源，真相就在闫博士报告中，闫丽梦博士勇敢站出来拯救地球，她是全世界的英雄，是我们爆料革命的英雄。
 
+参考信息：
 
-新闻来源：Gateway Pundit
-原文链接：[https://www.thegatewaypundit.com/2020/11/get-fbi-wake-rudy-giuliani-blasts-awol-fbi-voting-machine-irregularities-election-fraud-video/](https://www.thegatewaypundit.com/2020/11/get-fbi-wake-rudy-giuliani-blasts-awol-fbi-voting-machine-irregularities-election-fraud-video/)
+The\_Yan\_Report.pdf
+
+[https://zenodo.org/record/4028830#.X7ezdM0zaUm](https://zenodo.org/record/4028830#.X7ezdM0zaUm)
+
+The 2nd Yan Report
+
+[https://zenodo.org/record/4073131/files/The%202nd%20Yan%20Report.pdf?download=1](https://zenodo.org/record/4073131/files/The%202nd%20Yan%20Report.pdf?download=1)
 
 0

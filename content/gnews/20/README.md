@@ -1,17 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 东利反诉战略愿景公司 尼基·戴维斯案受影响
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/574926/)
+## 【热点播报】令人震惊的腐败：今年辛辛那提三分之一的市议员因受贿罪被逮捕
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/576936/)
 
-多伦多加喜农场 大地鲲鹏
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20165916/logo-3.jpg)
 
-校对上传 XM
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20030642/%E5%9B%BE%E7%89%874-15.jpg)图片来源：utopiasilver.com
-根据美国联邦纽约南区法院日前公布的法律文件（Case No. 18-cv-2185）显示，构陷郭文贵先生并意图推动将其遣返回中共国的“战略愿景公司”（下称“愿景公司”）的两名代表律师French Wallop和J. Michael Waller拒绝回答谁支付了本次诉讼费用，并于11月13日正式向“南区法院”提出拒绝理由，望继续隐瞒费用支付方。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20030804/21-2.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20030840/22-28.jpg)
-对此东利股份有限公司（下称“东利公司”）于2020年11月18日提出反驳：“愿景公司已经声明不与任何与中共有关联的人或机构发生业务往来，该声明是构成本案的要素之一。但在本案中愿景公司却拒绝回答是否接受了与中共有关的个人或实体的资助，这构成了声明与行为之间冲突；而其所列举的上述理由均无法理依据，故本案的核心就是：愿景公司是否接受了中共支持者的直接或间接的资助。” 东利公司最后进一步指出，愿景公司先是企图将其合同欺诈的行为转移为政治案件，之后又试图援引宪法第一修正案隐瞒其诉讼资助者，该修正案此时已不适用于本案。
+作者：纽约香草山写作组 叮咚猫
 
-愿景公司于2020年11月13日提交的法律预审文件显示“卢姆·戴维斯（Lum Davis）或布罗伊迪（Broidy）均不承认接受过中共的资金甚至代其工作。也没有证据表明这些人中的任何一个都会选择代表中共工作，并且有损美国利益。” 暗示了此案的资助者很可能是戴维斯和布罗伊迪。 根据美国司法部今年消息， 涉嫌游说遣返郭文贵先生的尼基·戴维斯和布罗伊迪目前对“2017年3月至2018年1月之间”违反《外国人代理人注册法》事件供认不讳。
+11月19日，辛辛那提市民主党议员、市长候选人亚历山大·希滕费尔德（Alexander Sittenfeld）被逮捕，并因受贿罪被起诉。
 
-0
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20194318/%E4%BB%A4%E4%BA%BA%E9%9C%87%E6%83%8A%E7%9A%84%E8%85%90%E8%B4%A5%EF%BC%9A%E4%BB%8A%E5%B9%B4%E8%BE%9B%E8%BE%9B%E9%82%A3%E6%8F%90%E4%B8%89%E5%88%86%E4%B9%8B%E4%B8%80%E7%9A%84%E5%B8%82%E8%AE%AE%E5%91%98%E5%9B%A0%E5%8F%97%E8%B4%BF%E7%BD%AA%E8%A2%AB%E9%80%AE%E6%8D%952.jpg)
+
+希滕费尔德接受了一名房地产投资人提供的总额为4万美元的支票，并将贿款转入由他秘密控制的政治活动委员会中。然而他并不知道的是，这名房地产投资人是联邦特工的卧底。检察官说，希腾菲尔德在与该卧底会面时表示，他在辛辛那提的政坛上很受欢迎，并且很可能成为下一任市长。他向该房地产投资人承诺会为需要市议会批准的市中心开发项目投票运作。
+
+这是今年辛辛那提市第三个因腐败倒下的议员，这三名议员占全部9名议员的三分之一。检察官戴维·德维勒斯说：“该市存在着腐败文化。” 人们不禁要问：下一个是谁？还会有多少人步此后尘？
+
+市长约翰·克兰利无法掩饰对三名被指控议员的愤怒，称他们严重损害了公众对地方政府的信心。
+
+汉密尔顿县共和党主席亚历克斯·特里亚塔菲洛在推特上写道：“这个城市的选民必须在2021年认真地做出改变，他们需要了解市政厅已经变得多么支离破碎。”
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20194302/%E4%BB%A4%E4%BA%BA%E9%9C%87%E6%83%8A%E7%9A%84%E8%85%90%E8%B4%A5%EF%BC%9A%E4%BB%8A%E5%B9%B4%E8%BE%9B%E8%BE%9B%E9%82%A3%E6%8F%90%E4%B8%89%E5%88%86%E4%B9%8B%E4%B8%80%E7%9A%84%E5%B8%82%E8%AE%AE%E5%91%98%E5%9B%A0%E5%8F%97%E8%B4%BF%E7%BD%AA%E8%A2%AB%E9%80%AE%E6%8D%951.png)
+
+来源：
+
+1. [http://1. https://www.nytimes.com/2020/11/19/us/politics/cincinnati-city-council-bribes.html](http://1.	https://www.nytimes.com/2020/11/19/us/politics/cincinnati-city-council-bribes.html)
+2. [http://2. https://www.cincinnati.com/story/news/2020/11/19/p-g-sittenfeld-third-cincinnati-city-council-member-arrested/3779501001/](http://2.	https://www.cincinnati.com/story/news/2020/11/19/p-g-sittenfeld-third-cincinnati-city-council-member-arrested/3779501001/)
+3. [http://3. https://twitter.com/ChairmanAlex/status/1329441740332347395](http://3.	https://twitter.com/ChairmanAlex/status/1329441740332347395)
+
+
+
+
+审核发稿：jamie(文胤)
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+
+更多文章，欢迎浏览[美东香草山农场GNEWS](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+1+

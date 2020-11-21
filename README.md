@@ -12,147 +12,147 @@
 
 
 
-### [【文字版】11月19日2020年 路德时评（路博艾冠康胡谈嘉宾闫丽梦博士）：朱利安尼在发布会上暗藏什么重要消息？川普撤回密歇根选举诉讼；美国国家科学基金前主席466页邮件，揭露被中共蓝金黄替其掩盖疫情真相；](/content/gnews/1/README.md)
- ` 喜马拉雅-华盛顿DC站`
+### [【热点播报】劲爆！鲍威尔透露：政府正在深度介入调查——Dominion公司已经人去楼空！](/content/gnews/1/README.md)
+ ` 纽约香草山农场`
 
-### [最新文件解密：战略视野咨询公司Strategic欺诈指控案&#8211;企图陷害郭先生的背后出资力量中共对美国的极度渗透](/content/gnews/2/README.md)
- ` 喜马拉雅农场新西兰站`
+### [【热点播报】震惊！川普总统大儿子小唐纳德本周确认患新冠](/content/gnews/2/README.md)
+ ` 纽约香草山农场`
 
-### [拜登竞选造假系列八：前海军陆战队成员指证Smartmatic软件于2013年操控委内瑞拉大选，拜登选票舞弊手法与马杜罗一致](/content/gnews/3/README.md)
- ` GM101`
+### [西班牙加利西亚提案强制接种新冠疫苗引人忧](/content/gnews/3/README.md)
+ ` 巴塞罗那喜西农场`
 
-### [视频川普团队发布会 &#8211; 紧急](/content/gnews/4/README.md)
- ` 秘密翻译组G-Translators`
-
-### [邮件门揭露《生态健康联盟》科学家们掩盖Covid-19病毒真相](/content/gnews/5/README.md)
+### [朱利安尼代表川普出庭宾州选举诉讼](/content/gnews/4/README.md)
  ` 倫敦英喜莊園 Himalaya UK`
 
-### [【文字版】路德时评2020.11.19早间（路安墨谈）：美参议院报告重锤证实拜登家族与中共之间的关联交易；密歇根州两名监票员发重磅声明意味着什么？威斯康星川普支付3百万重新计票。](/content/gnews/6/README.md)
+### [参议院动议在国会过渡期，确认川普提名人](/content/gnews/5/README.md)
+ ` GM77`
+
+### [拜登阵营照抄中共作业，试图以“强制性枪支回购”名义偷走美国公民持枪权](/content/gnews/6/README.md)
+ ` GM101`
+
+### [【文字版】11月19日2020年 路德时评（路博艾冠康胡谈嘉宾闫丽梦博士）：朱利安尼在发布会上暗藏什么重要消息？川普撤回密歇根选举诉讼；美国国家科学基金前主席466页邮件，揭露被中共蓝金黄替其掩盖疫情真相；](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC站`
 
-### [【热点播报】台湾中天新闻台不予换照是全世界第一例被撤台的Fake News](/content/gnews/7/README.md)
- ` 纽约香草山农场`
-
-### [FBI局长擅离职守 应该被解雇](/content/gnews/8/README.md)
- ` GM107`
-
-### [文贵说｜系列图片连载（五十一）](/content/gnews/9/README.md)
- ` GM98`
-
-### [2020年11月20日面具先生直播速记](/content/gnews/10/README.md)
+### [CCP病毒来源：为什么说病毒是人造的之S蛋白篇](/content/gnews/8/README.md)
  ` 康州喜马拉雅农场`
 
-### [每日新闻看点-2020年11月19日](/content/gnews/11/README.md)
+### [新中国联邦决定人类命运走向何方！](/content/gnews/9/README.md)
+ ` JPHIMALAYA`
+
+### [《路德时评》连线闫博士重磅解读“美国国家科学基金前主席466页邮件门”事件](/content/gnews/10/README.md)
+ ` GM80`
+
+### [议员紧急致函国会：要求举行听证会审查大选的公正性](/content/gnews/11/README.md)
  ` gnewscanada`
 
-### [世上所有地方都能站起今后的香港](/content/gnews/12/README.md)
- ` Ronald`
+### [美太平洋舰队海军驱逐舰四分之一水兵感染中共病毒](/content/gnews/12/README.md)
+ ` JPHIMALAYA`
 
-### [【热点播报】林肯葛底斯堡演说日：今夜请为我们的国家祈祷——战胜旨在毁灭我们的邪恶](/content/gnews/13/README.md)
- ` 纽约香草山农场`
-
-### [视频11月20日同声传译⎢班农战斗室EP519+EP520](/content/gnews/14/README.md)
+### [视频Sidney Powell：Dominion选票机嵌入式源代码可修改选举结果](/content/gnews/13/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【身边的故事】村干部作恶系列之征地篇](/content/gnews/15/README.md)
- ` Ronald`
+### [【香草诗词汇】致战友](/content/gnews/14/README.md)
+ ` 纽约香草山农场`
 
-### [【身边的故事】我因爸爸而骄傲](/content/gnews/16/README.md)
- ` Ronald`
+### [视频11/20/2020 每日快讯](/content/gnews/15/README.md)
+ ` Caihongqiao`
 
-### [【身边的故事】当官的了不起](/content/gnews/17/README.md)
- ` Ronald`
+### [中共的海外胁迫性战略](/content/gnews/16/README.md)
+ ` 康州喜马拉雅农场`
 
-### [【香港要闻】港版『一带一路』『明日大屿』大白象工程将掏空香港](/content/gnews/18/README.md)
- ` GM42`
+### [郭爆料串珠（104 &#8211; 2/2）共产党，你完了！70年欠下人民的血债，你都要万倍、亿倍地偿还，这就叫轮回！](/content/gnews/17/README.md)
+ ` GM99`
 
-### [关于虐童，Q，爆料革命和CCP的过往种种](/content/gnews/19/README.md)
- ` 喜马拉雅农场新西兰站`
+### [郭爆料串珠（104 &#8211; 1/2）共产党，你完了！70年欠下人民的血债，你都要万倍、亿倍地偿还，这就叫轮回！](/content/gnews/18/README.md)
+ ` GM99`
 
-### [东利反诉战略愿景公司 尼基·戴维斯案受影响](/content/gnews/20/README.md)
+### [永不妥协](/content/gnews/19/README.md)
+ ` JP007`
+
+### [【热点播报】令人震惊的腐败：今年辛辛那提三分之一的市议员因受贿罪被逮捕](/content/gnews/20/README.md)
+ ` 纽约香草山农场`
+
+### [白宫贸易顾问纳瓦罗指责中共在全球释放病毒](/content/gnews/21/README.md)
  ` gnewscanada`
 
-### [独家新闻：美国国务院将发布关于中国的凯南式文章](/content/gnews/21/README.md)
+### [294疫情直播-短视频](/content/gnews/22/README.md)
+ ` GM62`
+
+### [【热点播报】突发：临阵脱逃违规指控！Dominion公司取消出席宾州听证会](/content/gnews/23/README.md)
+ ` 纽约香草山农场`
+
+### [中共病毒疫苗试验结果不尽人意](/content/gnews/24/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [佐治亚州的重新计票可能和选举本身一样腐败](/content/gnews/25/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [彭佩奥：全球联合灭共的战局发展](/content/gnews/26/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [【香草诗词汇】开花的石头](/content/gnews/27/README.md)
+ ` 纽约香草山农场`
+
+### [视频【字幕】11/19/2020文贵：爆料革命在这次美国大选中起到重要的的作用](/content/gnews/28/README.md)
+ ` Caihongqiao`
+
+### [【香草诗词汇】点燃更多的灯：照亮神佛庇佑的土地](/content/gnews/29/README.md)
+ ` 纽约香草山农场`
+
+### [大律师林·伍德揭露选举骗局 称川普大赢](/content/gnews/30/README.md)
+ ` gnewscanada`
+
+### [芯片产业绝不能落入中共之手](/content/gnews/31/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [War Room 520 总结](/content/gnews/32/README.md)
+ ` 巴塞罗那喜西农场`
+
+### [朱利安尼：美国两党爱国者都在指控选举舞弊](/content/gnews/33/README.md)
+ ` GM107`
+
+### [关于来自中共国挑战的要点](/content/gnews/34/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [内华达州九分之八的不合格邮寄选票被接受](/content/gnews/35/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [谈新中国联邦和爆料革命的历史重要性的理解](/content/gnews/36/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [视频【字幕】11/19/2020文贵：三年前爆料革命的情报，现在全部兑现](/content/gnews/37/README.md)
+ ` Caihongqiao`
+
+### [视频11/16/2020 选票存在欺诈行为，我们应该按法律程序查明真相，这是常识](/content/gnews/38/README.md)
  ` 秘密翻译组G-Translators`
 
-### [“监狱社会”——师德码上线](/content/gnews/22/README.md)
- ` GM77`
-
-### [Covid-19病毒：新西兰购买第二支疫苗, 11月19日开始实施強制口罩令](/content/gnews/23/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [新凯南电报：习近平的“大变局”是一个大骗局](/content/gnews/24/README.md)
+### [【热点播报】重磅突发：朱利安尼儿子安德鲁推文证实：今晨确染新冠！](/content/gnews/39/README.md)
  ` 纽约香草山农场`
 
-### [川普总统律师团队公布八大选举舞弊指控](/content/gnews/25/README.md)
- ` GM77`
+### [塔斯社紧跟美国大选司法进程](/content/gnews/40/README.md)
+ ` HimalayaRussia`
 
-### [关于SARS-CoV-2(新型冠状病毒)“源自自然”的联合声明被证明系经由指使完成 肆虐全球的新型冠状病毒](/content/gnews/26/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [战略视野咨询公司神秘金主，用心险恶意图遣返郭文贵先生！](/content/gnews/27/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [视频【精華版粵語配音】11.10 路德時評：咄咄怪事：兩萬五千養老院老人竟然同時郵寄選票？](/content/gnews/28/README.md)
- ` GM42`
-
-### [【深度报道】间谍监控、压制选民…美国大选作弊系统与情报社媒界可怕复杂的关系](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
-
-### [视频【精華版粵語配音】11.17 路德時評：美軍隨時能夠在72小時內對中共展開毀滅性的軍事打擊](/content/gnews/30/README.md)
- ` GM42`
-
-### [从美国大选看民主法治国家的监督机构——兼议《新中国联邦宣言》](/content/gnews/31/README.md)
+### [【热点播报】彭斯副总统发布令人振奋的疫苗信息，毫不留情拒绝记者提问](/content/gnews/41/README.md)
  ` 纽约香草山农场`
 
-### [什么是担当](/content/gnews/32/README.md)
- ` JP007`
+### [俄媒关注香港问题](/content/gnews/42/README.md)
+ ` HimalayaRussia`
 
-### [72小时](/content/gnews/33/README.md)
- ` JP007`
+### [视频11/18/2020 起底内德·斯塔布勒（Ned Staebler）这个来自密西根建制派家族的伪君子](/content/gnews/43/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [看来中共是真的钱荒了](/content/gnews/34/README.md)
+### [川普团队详述&#8221;通往胜利的多条途径&#8221;](/content/gnews/44/README.md)
  ` gnewscanada`
 
-### [视频2020年11月19日CCP冠状病毒大流行第299集](/content/gnews/35/README.md)
- ` GM30`
-
-### [一个新的时代即将开启](/content/gnews/36/README.md)
- ` JP007`
-
-### [【香港要闻】港防暴速龙不展示警员编号 高院裁定违反《人权法》](/content/gnews/37/README.md)
- ` GM42`
-
-### [【文雍漫谈】中概股蛋壳网崩盘的背后，谁是被狂割的韭菜](/content/gnews/38/README.md)
- ` 为子孙爱七哥农场`
-
-### [郭先生11.19: 爆料革命对共产党钓鱼比姜太公直钩钓鱼厉害得多](/content/gnews/39/README.md)
- ` NewFOC`
-
-### [天使的号角](/content/gnews/40/README.md)
- ` JP007`
-
-### [数据统计分析揭示宾州选举中的舞弊行为](/content/gnews/41/README.md)
+### [休斯顿火箭队球星威胁要离开挺川老板](/content/gnews/45/README.md)
  ` gnewscanada`
 
-### [即将到来的胜利　听路德节目说](/content/gnews/42/README.md)
- ` JP007`
+### [11/18/2020 就科技巨头对保守派的审查而进行的听证会毫无意义，我们需要的是国会采取实质性的行动](/content/gnews/46/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [【香港要闻】学生校园内抗议行动全景式报导 国安处已接手调查【中大游行毕业礼】](/content/gnews/43/README.md)
- ` GM42`
+### [视频【字幕】11/20/2020文贵盖特：11·20是战友们对文贵对爆料革命的信任，一个新的时代的开始](/content/gnews/47/README.md)
+ ` Caihongqiao`
 
-### [郭先生11.19: 接下来司法部的案子将再一次掀起世界级的高潮](/content/gnews/44/README.md)
- ` NewFOC`
-
-### [11月19日川普竞选团队律师新闻发布会摘要](/content/gnews/45/README.md)
- ` gnewscanada`
-
-### [郭先生11.19:美国三年前不相信黑暗已降临西方现在发现都成为事实](/content/gnews/46/README.md)
- ` NewFOC`
-
-### [看清CCP的法律超限战！一文读懂文贵先生与Strategic的这场诉讼案](/content/gnews/47/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [贼喊捉贼的真相](/content/gnews/48/README.md)
- ` GM30`
+### [视频11/19/2020 朱利安尼：仔细阅读所有的宣誓证词并如实报道选票舞弊的证据是媒体的职责。相反的，媒体现在却无视证据，还骚扰那些挺身而出的证人](/content/gnews/48/README.md)
+ ` 秘密翻译组G-Translators`
 
