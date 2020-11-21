@@ -1,15 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【精华版粤语配音】11.16 路德时评：媒体意识到川普将在第一任期结束前干掉CCP
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/577640/)
+## 11/20/2020 史蒂文·米勒博士的宣誓声明中提到: 在宾夕法尼亚州, 约有十万张选票没有记到共和党名下
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/578371/)
 
-制作单位：战友之家-粤语组
-制作团队： 螃蟹团长、 打杂的、阿恩、文东、哥阿
-
-
-
-摘要：
-左媒报道川普将在最后两个月里crack down中共，通过大选他已认清中共的邪恶威胁。
+#### By: 【秘密翻译组G-Translators】
 
 0

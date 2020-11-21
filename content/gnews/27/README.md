@@ -1,92 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆革星评：“深层政府”头像一齐变黑 川普总统需要加强安全
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/577799/)
+## 文贵说｜系列图片连载（五十二）
+` GM98` [轉載自GNews](https://gnews.org/zh-hans/578429/)
 
-多伦多加喜农场 文星（一号）
+## 358.
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21090424/3-61.jpg)
+在历史面前，在大自然面前，在人类整个面对的所有的未知力量面前，人类永远是无知的。
 
-校对上传 XM
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21042520/%E5%9B%BE%E7%89%871-30.jpg)图片来源：globalna.info
-乔∙拜登集团大选造假作弊的证据越来越多，一方面乔∙拜登继续穿着“皇帝的新衣”招摇出丑，一方面与中共勾兑的DEEP STATE知道阴谋必然败露，也不会坐以待毙，不排除会对川普总统使用阴招。郭先生在直播中也曾对川普总统目前的安全表示忧虑，因为中共一惯使用恶毒的下三滥手段。
+——郭文贵先生2020年4月1日
 
-11月19日，乔∙拜登集团的一些主要骨干的推特头像或背景颜色都一起变成了标志性的黑色，这是一种什么暗号吗？这些人员包括奥巴马夫妇、乔∙拜登夫人、希拉里、乔治∙索罗斯、原国务卿克里、主持人奥普拉、加州州长纽森等人，密歇根州长则改成了戴黑白色口罩的头像，连奥巴马基金会原来彩色的徽标也变成了黑色。一天之内，一齐变黑，岂不怪哉？
+## 359.
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21090429/4-41.jpg)
+共产党发动的一个个的战争——一带一路、中美贸易谈判、中东计划、非洲市场占有、然后中非论坛、中俄协议、中俄石油协议——跟当年希特勒的招，你去想去吧，每个故事都能套到一个故事上去，你把每个人物都能找到。
 
-有评论认为，这些人应该都是撒旦教的成员，颜色的改变是一种隐喻，这是他们在表示一种承诺。因为他们已经意识到乔∙拜登已经输掉大选，他们也被抓到了造假作弊的证据，为了避免被抓捕，现在开始实施B计划，这个B计划就是乔治∙索罗斯的A计划，即颜色革命101，意思就是发动暴动推翻政府的暗号。另外还有人发推，这个周末将发生大事件，别忘了肯尼迪总统遇刺的时间是11月22日。
+——郭文贵先生2020年4月1日
 
-总之，种种迹向表明，中共与乔∙拜登集团密谋的“终极之战”已经开始，当他们不择手段进行的大选赌注被挫败时，一定会疯狂报复。宁可信其有，不可信其无，美国排干沼泽和灭共之战，已到了最严峻的时刻，川普总统及其团队需要切实加强安全防护。
+## 360.
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21090403/34-1.jpg)
+一切有形式的宗教都不能代表信仰，任何有形式的宗教都可能被人操纵，这就是我要追求的真正的信仰，就是什么？在心里面、在行动中！而不是靠一个组织。
 
-参考链接：
+——郭文贵先生2018年9月12日
 
+## 361.
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21090609/2-75.jpg)
+爆料革命目的不仅仅是灭共，是让大家过上好的日子！过上体面的生活！拥有法治、自由、安全、的生活！
 
+——郭文贵先生2020年4月9日
 
-> Because Red White and Blue represents America and O don't…! [https://t.co/9WVrIDTAdm](https://t.co/9WVrIDTAdm)
-> — Michael Light🛡 (@GeoWash111) [November 20, 2020](https://twitter.com/GeoWash111/status/1329701706767056898?ref_src=twsrc%5Etfw)
+## 362.
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21090734/5-34.jpg)
+中国要想在短时间有民主、自由、法治，首先要恢复中国的家庭观念。家庭观念就是什么？中国是母亲、父亲最重要的；家庭观念是社会稳定，与人能和谐相处，不把自己的雪扫到人家家去，你各扫门前雪可以，别把雪扫人家家去，别把人家的孩子扔井里边去。
 
+——郭文贵先生2019年5月10日
 
+## 363.
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21090802/6-31.jpg)
+兄弟姐妹们，人生啊，你一千次对，一万次对，一亿次对，错一次就结束了。这就是我小的时候遇到高人。还有我看了本书：《人生最重要的叫决策》。决策，就是你对事情的判断和决策。一旦一次大事错了，一切结束了。
 
+——郭文贵先生2020年4月2日
 
+## 364.
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21090803/44-13.jpg)
+在这个时间互帮互助互救的战友才是真战友，这个爆料革命是值得你关注、值得你信任、值得你付出，这是我们必须要的。
 
-> Michelle and I are eager to bring the Obama Presidential Center to our hometown—a way to honor the city we love, all those who came before us, and pay tribute to people coming together to do extraordinary things. [https://t.co/swMRHuB5Y4](https://t.co/swMRHuB5Y4) [pic.twitter.com/gV9g3Oejux](https://t.co/gV9g3Oejux)
-> — Barack Obama (@BarackObama) [November 20, 2020](https://twitter.com/BarackObama/status/1329831998400114690?ref_src=twsrc%5Etfw)
+——郭文贵先生2020年4月8日
 
-
-
-
-
-> Being your First Lady has been the honor of a lifetime. From the bottom of my heart, thank you. -mo [pic.twitter.com/pahEydkZ5Z](https://t.co/pahEydkZ5Z)
-> — First Lady- Archived (@FLOTUS44) [January 19, 2017](https://twitter.com/FLOTUS44/status/821872910373715969?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> Educators stepped up during this pandemic.
->  
-> You adapted lessons and counseled students who were filled with anxiety.
-> 
-> Because of you, I have never been more proud to be an educator.
-> — Dr. Jill Biden (@DrBiden) [November 20, 2020](https://twitter.com/DrBiden/status/1329880523431424001?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> "To all the little girls watching…never doubt that you are valuable and powerful & deserving of every chance & opportunity in the world."
-> — Hillary Clinton (@HillaryClinton) [November 9, 2016](https://twitter.com/HillaryClinton/status/796394920051441664?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> Growing up in Hungary and living through the Nazi occupation was a formative experience. Seeing my father persevere in the face of evil and help others has informed my worldview and inspired my commitment to building open societies. More about my life at [https://t.co/UqZKShy2M8](https://t.co/UqZKShy2M8). [pic.twitter.com/KMA1BFl5vc](https://t.co/KMA1BFl5vc)
-> — George Soros (@georgesoros) [November 20, 2020](https://twitter.com/georgesoros/status/1329787671674228742?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> Pleased to see my hometown mayor [@marty\_walsh](https://twitter.com/marty_walsh?ref_src=twsrc%5Etfw) provide such needed climate leadership. Hope is on the way with [@JoeBiden](https://twitter.com/JoeBiden?ref_src=twsrc%5Etfw) recommitted to climate action. We cant overestimate the important ways governors and mayors have stepped up during these bleak four years. Lots more work to do! [https://t.co/siIcUZv5Px](https://t.co/siIcUZv5Px)
-> — John Kerry (@JohnKerry) [November 17, 2020](https://twitter.com/JohnKerry/status/1328733359598657537?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> .[@Oprah](https://twitter.com/Oprah?ref_src=twsrc%5Etfw) says her new interview with [@BarackObama](https://twitter.com/BarackObama?ref_src=twsrc%5Etfw) was a "miracle of technology" because they were sitting in the same room—but on opposite coasts. [https://t.co/z0Blv4zcPR](https://t.co/z0Blv4zcPR)
-> — O The Oprah Magazine (@oprahmagazine) [November 17, 2020](https://twitter.com/oprahmagazine/status/1328825901648392193?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> REMINDER: CA, you are now REQUIRED to wear a mask in public spaces.
-> 
-> We’re seeing too many people with faces uncovered. Wearing a face covering is critical for keeping people safe and healthy, keeping businesses open and getting people back to work.
-> 
-> Do your part. Wear your mask.
-> — Gavin Newsom (@GavinNewsom) [June 19, 2020](https://twitter.com/GavinNewsom/status/1274125764699414528?ref_src=twsrc%5Etfw)
-
-
-
-2+
+0

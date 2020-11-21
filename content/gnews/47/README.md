@@ -1,53 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共通过控制红衫资本拿下了美国政权
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/577417/)
+## 11/20/2020 财经快讯: 永煤违约余波不断, 千亿国企华晨集团正式进入破产重整程序
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/578073/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24064746/WhatsApp-Image-2020-10-24-at-15.08.49.jpeg)
-作者：康州农场-GTalk心语堂
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20233851/image2-10.jpeg)
-美国红杉资本（Sequoia Capital）成立是一家1972年在美国加州成立的资本公司。1984年美国红衫资本收购美国Automatic Voting Machine Corporation (AVM)自动投票机集团。公司改组为红衫投票系统 （Sequoia Voting Systems）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21063907/Picture26-1.png)图片来源：[https://www.law.com/newyorklaw](https://www.law.com/newyorklawjournal/2020/08/21/appealing-from-bankruptcy-court-an-abbreviated-primer/?slreturn=20201020064545)
+1.美股三大指数小幅收涨，道指涨0.15%，纳指涨0.87%，标普500指数涨0.39%。特斯拉股价一度重返500美元上方，刷新历史纪录高位，截止收盘，收涨2.60%，报499.27美元。
+[https://kuaixun.stcn.com/egs/202011/t20201120\_2550590.html](https://kuaixun.stcn.com/egs/202011/t20201120_2550590.html)
 
-[https://en.wikipedia.org/wiki/Sequoia\_Capital](https://en.wikipedia.org/wiki/Sequoia_Capital)
+2.马来西亚廉价航空公司“亚洲航空”日本子公司负债14亿元申请破产，价值约5.2亿日元的机票已经退款无望，计划转为可在亚航集团其他航空公司使用的积分。由于中共病毒疫情导致航空需求骤减，公司10月宣布放弃继续开展业务。这是中共病毒疫情下日本首家破产的航空公司。
+[https://finance.sina.com.cn/chanjing/gsnews/2020-11-20/doc-iiznezxs2761735.shtml](https://finance.sina.com.cn/chanjing/gsnews/2020-11-20/doc-iiznezxs2761735.shtml)
 
-[https://en.wikipedia.org/wiki/Sequoia\_Voting\_Systems](https://en.wikipedia.org/wiki/Sequoia_Voting_Systems)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20233923/image3-7-scaled.jpeg)
-2005年3月Smartmatic收购了美国红杉投票系统（Sequoia Voting Systems），并为其研发和更新了投票系统软件。Smartmatic 是1997年由Antonio Mugica, Alfredo José Anzola and Roger Piñate 三人在委内瑞拉共同创立的。2000年4月Smartmatic在乔拜登的家乡特拉华州注册。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20234005/image4-7.png)
-分析：
+3.永煤违约余波不断！监管再出”重拳”，交易商协会全线调查“永煤”发债产业链。交易商协会表示，在对永城煤电控股集团有限公司开展自律调查和对多家银行和中介机构进行约谈过程中，发现兴业银行股份有限公司、中国光大银行股份有限公司和中原银行股份有限公司等主承销商，以及中诚信国际信用评级有限责任公司、希格玛会计师事务所（特殊普通合伙）存在涉嫌违反银行间债券市场自律管理规则的行为。
+[http://www.xinhuanet.com/fortune/2020-11/20/c\_1126763939.htm](http://www.xinhuanet.com/fortune/2020-11/20/c_1126763939.htm)
 
-Smartmatic其背后的实际控制人是委内瑞拉前总统查韦斯。其后转手现任总统马杜罗。而委内瑞拉是受中共控制的，马杜罗实际是中共白手套。换句话说，Smartmagic是中共控制的公司，所有其收购红杉投票系统后，中共就成为了红杉投票系统的实际控制人。 中共控制红衫投票系统后，为其研发和更新了投票系统软件，我们相信这个投票软件从那时候开始就已经完全被中共控制。
+4.千亿东北国企华晨集团20日正式进入破产重整程序，华晨集团作为辽宁省属国企，直接或间接控股、参股四家上市公司，并通过旗下上市公司华晨中国与宝马合资成立华晨宝马公司。有中华、金杯、华颂三个自主品牌和华晨宝马、华晨雷诺两个合资品牌。本次重整只涉及集团本部自主品牌板块，不涉及集团旗下上市公司及与宝马、雷诺等的合资公司。但依靠华晨宝马输血维持亮眼营收及净利润的时日无多。据华晨与宝马2018年签署的协议显示，2022年前，宝马将从华晨汽车收购华晨宝马25%的股权，届时宝马和华晨汽车分别持有华晨宝马75%和25%的股份，并不再纳入华晨汽车合并范围。
+[https://company.stcn.com/gsxw/202011/t20201120\_2551744.html](https://company.stcn.com/gsxw/202011/t20201120_2551744.html)
 
-[https://en.wikipedia.org/wiki/Smartmatic](https://en.wikipedia.org/wiki/Smartmatic)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20234026/image5-6.png)
-同年2005年9月江泽民的白手套沈南鹏和美国红杉资本（Sequoia Capital）共同成立红杉资本中国基金（Sequoia Capital China）。美国红杉资本开始全面进入中国市场，参与多家中国公司的投资，几乎买下了中国互联网的半壁江山，其中包括 阿里巴巴，京东等。
+5.千亿汽车牛股长安汽车11月16日-18日累计涨幅接近40%，20日掉头跌停9.31%，创出最近4个月最大单日跌幅。长安汽车近期股价异动背后，游资炒作的迹象较为浓厚，机构席位多为卖出。11月14日在中央电视台财经频道发布“长安汽车品牌日”活动，长安汽车、华为、宁德时代三方宣布联合打造高端智能汽车品牌，并首次公开发布智能架构“方舟架构”。
+[https://finance.sina.com.cn/stock/s/2020-11-20/doc-iiznctke2280625.shtml](https://finance.sina.com.cn/stock/s/2020-11-20/doc-iiznctke2280625.shtml)
 
-分析：我们相信这是中共和美国红杉资本的勾兑和利益交换。美国红杉资本帮助中共控制红衫投票系统，以实现其操控美国政坛的野心，而中共也通过资本利益的交换作为回报。
-
-[https://finance.sina.com.cn/chanjing/gsnews/2020-09-29/doc-iivhvpwy9453210.shtml](https://finance.sina.com.cn/chanjing/gsnews/2020-09-29/doc-iivhvpwy9453210.shtml)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20234102/image6-7.png)
-2010年Smartmatic把红衫投票系统卖给了多米尼投票系统（Dominion Voting Systems）公司，多米尼继续沿用了红衫投票系统的更新软件。
-
-而2018年多米尼被私募基金公司Staple Street Capital收购。Staple Street Capital 最大股东是David Mark Rubenstein 。他同时又是凯雷投资集团（Carlyle Group）的创始人。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20234142/image7-4.png)
-凯雷投资集团在1994年进入中国。是进入中国最早、规模最大、而且最活跃的全球投资公司之一。2007年凯雷公司获得了中国太平洋保险19/9%的股权，是第一家获得中国政府批准，投资大型国有保险公司的国际私募股权公司。2015年，凯雷获得统一润滑油控股权，这是在中国拥有最广销售网络的最大的独立润滑油企业。2017年，凯雷携手中信股份和中信资本，联合收购了麦当劳在中国内地和香港业务的80%股权。2017年，凯雷与其合作伙伴入股中国最大的第三方独立医学检验机构之一艾迪康。
-
-分析：不难看出，多米尼公司的实际控制方是和中共有千丝万缕联系的凯雷公司。 中共通过开放核心资源企业给凯雷公司从而获得美国多米尼公司的控制权。控制了多米尼投票系统公司，就控制了美国人的选票，从而控制了美国的政坛，控制美国。
-
-[https://baike.baidu.com/item/红杉资本中国基金](https://baike.baidu.com/item/红杉资本中国基金)
-
-Pictures from:
-https://cdn.vox-cdn.com/thumbor/u\_-6YR6kBWyxfeRonfij5TE4PWk=/0x0:6000×4000/1200×800/filters:focal(2202×2232:3162×3192)/cdn.vox-cdn.com/uploads/chorus\_image/image/66451157/GettyImages\_598748732.0.jpg 
-https://media.gannett-cdn.com/springfield/41823000001/201610/946/41823000001\_5187514590001\_5187472909001-vs.jpg?pubId=41823000001 
-https://www.mercurynews.com/wp-content/uploads/2017/08/afp\_r64f5.jpg 
-https://www.smartmatic.com/about/our-team/ 
-https://s3.amazonaws.com/cbi-research-portal-uploads/2019/03/25113710/Top\_VCs\_socialcards.png 
-https://wearethene.ws/assets/images/l0/ca/c5/cac5db3b0de51245e2eb75b31e9ddaf5f68f416bc6f8a8defb1b1d8b1daf2511.png 
-https://www.valuewalk.com/wp-content/uploads/2019/03/david-mark-rubenstein.jpg 
-https://s3.amazonaws.com/tracxnassets/cdn/screenshots/domain-profile/
-https://wwwstaplestreetcapitalcom\_sjP90cF3zT45XTBpmk9df.jpeg 
-https://content.fortune.com/wp-content/uploads/2015/02/rtr31kng.jpg 
-https://s4.reutersmedia.net/resources/r/?m=02&d=20200716&t=2&i=1526055881&r=LYNXNPEG6F1LZ
+By 【秘翻组 – 金融法律团队-Tracy】
 
 0

@@ -1,52 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020-11-21 康州农场本日新闻热点
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/577522/)
+## 11/21/2020 财经快讯: 中共病毒或使疫苗无效化; 破产潮一浪接一浪
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/578316/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30033626/%E9%80%9F%E6%8A%A5-1.jpg)
-新闻采集：康州农场-Truemanman
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21082547/Picture27-2.png)图片来源：[https://www.bizjournals.com](https://www.bizjournals.com/houston/news/2020/05/21/law-firms-prepare-for-a-deluge-of-bankruptcies.html)
+1.据零对冲11月20日报道，中共病毒变异毒株或使得现阶段研究的疫苗完全无效化。
+[https://www.zerohedge.com/medical/new-strains-covid-could-render-vaccines-completely-useless-and-2-dangerous-mutations-are](https://www.zerohedge.com/medical/new-strains-covid-could-render-vaccines-completely-useless-and-2-dangerous-mutations-are)
 
-新闻编辑：康州农场-轰炸机
+2.美东20日上午，白宫顾问皮得·纳瓦罗表示民主党的封城将会使得经济继续下滑且对缓解疫情收效甚微。
+[https://www.youtube.com/watch?v=A4RzQ5kXtn4&list=PLv1qHE0zuJL-Y\_lz7RpczOYTqGq-p4WZL](https://www.youtube.com/watch?v=A4RzQ5kXtn4&amp;list=PLv1qHE0zuJL-Y_lz7RpczOYTqGq-p4WZL)
 
-审核：康州农场-文韵
+3.路透社21日援引消息人士称，华盛顿准备再将4家中企列入五角大楼黑名单，限制它们接触美国投资者，原因则是所谓的“这些企业得到中国军方支持”。
+[https://www.channelnewsasia.com/news/business/trump-administration-to-add-four-more-chinese-firms-to-pentagon-13608304](https://www.channelnewsasia.com/news/business/trump-administration-to-add-four-more-chinese-firms-to-pentagon-13608304)
 
-**一、美国务院发布揭露中共的海外胁迫性战略的报告**
+4.11月19日国内又一车企倒闭，市值亏损上亿元，老板已套现撤离！
+[https://dy.163.com/article/FRQVM8BL0547MR8U.html.html](https://dy.163.com/article/FRQVM8BL0547MR8U.html.html)
 
-美国国务院政策规划办公室将发布美国应对中共崛起成为独裁超级大国的蓝色计划书。长文呼吁建立强大联盟以及复兴宪政民主这份长达70多页的报告探讨了中国共产党的有害行为，意识形态来源，面临的困难，以及美国及其盟友如何应对等问题。
+5.11月19日远大控股旗下远大石化申请破产清算 预计将减少归母净利润过亿元
+远大产业控股股份有限公司的全资子公司远大物产集团有限公司控股70%的子公司远大石化有限公司因严重资不抵债、不能清偿到期债务，拟以债务人身份向人民法院申请破产清算。
+[https://www.bjnews.com.cn/detail/160578099015505.html](https://www.bjnews.com.cn/detail/160578099015505.html)
 
-**二、鲍威尔确认美国在德国收缴的服务器已在美国军方，有4-5个外部反对势力进行大选干预，目前正在调查中**
+6.11月19日浙江昱辉阳光能源有限公司破产。近日，嘉善县人民法院发布《浙江昱辉阳光能源有限公司破产文书》：“为依法平等保护各债权人的合法权益，管理人提请本院裁定浙江昱辉阳光能源有限公司、浙江昱辉智能系统集成有限公司、浙江昱辉照明节能技术有限公司等三公司合并破产清算。”又一老牌光伏企业宣告破产。
+[http://www.chinaglassnet.com/info\_main/20201119/37959.html](http://www.chinaglassnet.com/info_main/20201119/37959.html)
 
-鲍威尔在福克斯新闻接受Lou Dobbs采访，首次公开确认了服务器被收缴的消息。随后，川普团队的Brian Trascher接受NewsMax采访，不但确认服务器，而且明确警告美国老百姓，真相即将大白于天下，美国极左将发动史无前例的骚乱，所有人必须做好准备。
+7.11月20日华晨汽车今日正式宣布破产 此前免费转让华晨中国股权
+据媒体获悉，11月20日，广州车展开幕第一天，华晨汽车将在今日正式宣布破产。内部人士对媒体表示，11月19日华晨集团召开董事会做了相关决议，同时华晨雷诺近期也完成了注资，据说这是该合资公司最后一次注资。此前在11月13日，华晨汽车集团控股有限公司被申请破产重整，申请人为格致汽车科技股份有限公司
+[https://finance.sina.com.cn/stock/hkstock/ggscyd/2020-11-20/doc-iiznctke2372211.shtml](https://finance.sina.com.cn/stock/hkstock/ggscyd/2020-11-20/doc-iiznctke2372211.shtml)
 
-**三、多米尼投票公司在多伦多办公室目前在搬离，网页上关键职员名字在被撤下**
-
-鲍威尔证实，多米尼投票机使用的软件SmartMatic就是委内瑞拉独裁者查韦斯主持设计开发的。SmartMatic的老板布朗爵士则是索罗斯集团的二号人物，而乔治·索罗斯则是民主党最大的金主，也是安提法最大的金主。现在一夜间位于加拿大多伦多的多米尼公司已经人去楼空。
-
-**四、川普私人律师朱利安尼的儿子安德鲁·朱利安尼（Andrew H. Giuliani）于10:39分发文推特表示：自己刚刚新冠病毒检测结果呈阳性，目前症状轻微，正在进行隔离**
-
-川普私人律师儿子新冠阳性路透社刚刚消息，川普私人律师鲁迪·朱利安尼的儿子安德鲁·朱利安尼新冠检测阳性。 “今天早上，我的新冠肺炎检测呈阳性。”安德鲁当地时间20日发推称。他还说，他出现了轻微症状，目前正在自我隔离。
-
-**五、林伍德LinWood最新采访确认，美军从法兰克福收缴的Scytl服务器数据显示，川普总统大选取得压倒性大胜，得到410张选举人票 , 总得票率超过70%**
-
-林伍德：“这次整个选举是个骗局，川普可能赢得了400多张选举人票的，是70%以上的压倒性胜利。”伍德说。”我们正在一步步揭开选举欺诈的层层面纱，我们一定会找到真相，川普会继续连任，再当四年总统，真相会水落石出”。
-
-**六、美国内阁层级的环保署署长惠勒（Andrew Wheeler) 计划下个月率团访问台湾**
-
-美国内阁层级的环保署署长惠勒（Andrew Wheeler) 计划下个月率团访问台湾。台湾行政院长苏贞昌星期五（11月20日）证实了这个消息。这将是今年8月以来第三位访问台湾的美国高级官员。台湾表示乐见惠勒来访。中共外交部称坚决反对任何形式的美台官方往来。
-
-**七、前美国国防部印太助理部长薛瑞福日前表示，川普政府对台湾常态性军售，也不再视台湾为中国问题的一部分，是重要的观念改变**
-
-薛瑞福透露，负责东亚事务的美国国防部副助理部长柯林克（Heino Klinck）曾经造访台湾，也能与其他主管的国家讨论台湾议题，不用顾虑中方，他也期望新政府（原新闻指的是“拜登政府”）能继续视台湾为一个有其自身优势且值得投资的国家，而不仅是中国问题的一部分。
-
-**八、川普总统预计将参加周五晚上亚太经合组织（APEC）的正式峰会，并发表讲话，并有可能会在视频会议上与中国国家主席习近平相见**
-
-由于新冠疫情关系，这次会议通过视频进行。周五，APEC成员国的领导人将讨论疫情和全球经济复苏的问题。预计，与会领导人在会议结束时将会发表一份联合声明，名称可能是“吉隆坡宣言”。
-
-**九、FDA批准COVID-19药物组合的紧急使用授权**
-
-美国食品药品管理局（FDA）周四发布紧急使用授权，允许礼来的类风湿关节炎药物baricitinib（商品名Olumiant）与吉利德的抗病毒药物瑞德西韦（remdesivir）配合使用，来治疗新冠肺炎。这是该机构首次批准对新冠病毒的合并用药。
-
-**十、全球确诊约5687万 超过136万人死亡** 法新社官方数据显示，截至格林威治标准时间20日11点，全球至少136万914人死于新冠病毒，至少5687万2830例确诊。法新社汇总各国当局和世界卫生组织（WHO）提供的数据做出统计，但这恐怕只是实际感染总数的一部分，因为许多国家只检测有症状或症状最严重的病例。
+By：【秘翻组·金融法律组】
 
 0
