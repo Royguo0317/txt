@@ -1,13 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Sidney Powell：Dominion选票机嵌入式源代码可修改选举结果
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/577078/)
+## 【精华版粤语配音】11.15 路德时评：川普总统任命朱利安尼市长为领导的法律团队
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/577622/)
 
-Sidney Powell：Dominion选票机嵌入式源代码可修改选举结果，德克萨斯州早在2019年就拒绝在该州使用Dominion，但世界上的极权国家却趋之若鹜；川普总统已获得压倒性胜利，要为投票支持自由的美国人民夺回美利坚
+制作单位：战友之家-粤语组
+制作团队：文恩、一帘幽梦、阿恩、
 
 
 
-By: 【秘密翻译组G-Translators】
+摘要：
+Dominion的背后是Smartatic软体，与委内瑞拉和中国有直接关连；Dominion的出资人是红杉资本；Smartmatic是委内瑞拉前总理查维斯创建的，其主席与索罗斯关系密切；该软体不仅可以改选票，还可以在选票落后的情况下停止计票，并发送资料到海外，对美国国家安全造成严重威胁。
 
 0

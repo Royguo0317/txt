@@ -1,43 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】突发：临阵脱逃违规指控！Dominion公司取消出席宾州听证会
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/576856/)
+## 中共通过控制红衫资本拿下了美国政权
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/577417/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20165916/logo-3.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24064746/WhatsApp-Image-2020-10-24-at-15.08.49.jpeg)
+作者：康州农场-GTalk心语堂
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20233851/image2-10.jpeg)
+美国红杉资本（Sequoia Capital）成立是一家1972年在美国加州成立的资本公司。1984年美国红衫资本收购美国Automatic Voting Machine Corporation (AVM)自动投票机集团。公司改组为红衫投票系统 （Sequoia Voting Systems）。
 
-作者：香草山写作组 正道主义联盟
+[https://en.wikipedia.org/wiki/Sequoia\_Capital](https://en.wikipedia.org/wiki/Sequoia_Capital)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20183336/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E7%AA%81%E5%8F%91%EF%BC%9A%E4%B8%B4%E9%98%B5%E8%84%B1%E9%80%83%E8%BF%9D%E8%A7%84%E6%8C%87%E6%8E%A7%EF%BC%81Dominion%E5%85%AC%E5%8F%B8%E5%8F%96%E6%B6%88%E5%87%BA%E5%B8%AD%E5%AE%BE%E5%B7%9E%E5%90%AC%E8%AF%81%E4%BC%9A1.jpg)
+[https://en.wikipedia.org/wiki/Sequoia\_Voting\_Systems](https://en.wikipedia.org/wiki/Sequoia_Voting_Systems)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20233923/image3-7-scaled.jpeg)
+2005年3月Smartmatic收购了美国红杉投票系统（Sequoia Voting Systems），并为其研发和更新了投票系统软件。Smartmatic 是1997年由Antonio Mugica, Alfredo José Anzola and Roger Piñate 三人在委内瑞拉共同创立的。2000年4月Smartmatic在乔拜登的家乡特拉华州注册。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20234005/image4-7.png)
+分析：
 
-据BizPac Review报道，宾夕法尼亚州政府委员会的共和党人曾希望就川普总统法律团队的指控举行听证，质问该公司使用在委内瑞拉开发的Dominion软件窃取选举结果。Dominion投票系统公司突然取消了原定出席在宾州举行的听证会的计划，该听证会旨在调查有关选举违规的指控。取消原因尚不明晰。
+Smartmatic其背后的实际控制人是委内瑞拉前总统查韦斯。其后转手现任总统马杜罗。而委内瑞拉是受中共控制的，马杜罗实际是中共白手套。换句话说，Smartmagic是中共控制的公司，所有其收购红杉投票系统后，中共就成为了红杉投票系统的实际控制人。 中共控制红衫投票系统后，为其研发和更新了投票系统软件，我们相信这个投票软件从那时候开始就已经完全被中共控制。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20183350/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E7%AA%81%E5%8F%91%EF%BC%9A%E4%B8%B4%E9%98%B5%E8%84%B1%E9%80%83%E8%BF%9D%E8%A7%84%E6%8C%87%E6%8E%A7%EF%BC%81Dominion%E5%85%AC%E5%8F%B8%E5%8F%96%E6%B6%88%E5%87%BA%E5%B8%AD%E5%AE%BE%E5%B7%9E%E5%90%AC%E8%AF%81%E4%BC%9A2.jpg)
+[https://en.wikipedia.org/wiki/Smartmatic](https://en.wikipedia.org/wiki/Smartmatic)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20234026/image5-6.png)
+同年2005年9月江泽民的白手套沈南鹏和美国红杉资本（Sequoia Capital）共同成立红杉资本中国基金（Sequoia Capital China）。美国红杉资本开始全面进入中国市场，参与多家中国公司的投资，几乎买下了中国互联网的半壁江山，其中包括 阿里巴巴，京东等。
 
-宾州众议院共和党人周五发推说到：“我们选举安全的关键在于透明度。Dominion投票软件要求我们盲目的信任他们。对Dominion在最后一刻取消出席今天的听证会上，我们感到非常失望。”
+分析：我们相信这是中共和美国红杉资本的勾兑和利益交换。美国红杉资本帮助中共控制红衫投票系统，以实现其操控美国政坛的野心，而中共也通过资本利益的交换作为回报。
 
-在新闻发布会上，众议员道恩·基弗(Dawn Keefer)就她和其他共和党人准备的一些问题发表了声明：“ 我们对Dominion的举动感到非常失望。软件是否在大选前进行了试运行? 我们从何处了解到这些情况? ” 我们不知道 Dominion是否使用开源软件，以方便观察人员可以去查看到底是什么开关被打开和关闭了?
+[https://finance.sina.com.cn/chanjing/gsnews/2020-09-29/doc-iivhvpwy9453210.shtml](https://finance.sina.com.cn/chanjing/gsnews/2020-09-29/doc-iivhvpwy9453210.shtml)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20234102/image6-7.png)
+2010年Smartmatic把红衫投票系统卖给了多米尼投票系统（Dominion Voting Systems）公司，多米尼继续沿用了红衫投票系统的更新软件。
 
-她继续说道：“透明度是关键。如果他们使用开源软件，我们就会知道在哪里发生了什么。观察员可以监督这个过程。此外，源代码的控制有多严格，又是谁控制了源代码?
+而2018年多米尼被私募基金公司Staple Street Capital收购。Staple Street Capital 最大股东是David Mark Rubenstein 。他同时又是凯雷投资集团（Carlyle Group）的创始人。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20234142/image7-4.png)
+凯雷投资集团在1994年进入中国。是进入中国最早、规模最大、而且最活跃的全球投资公司之一。2007年凯雷公司获得了中国太平洋保险19/9%的股权，是第一家获得中国政府批准，投资大型国有保险公司的国际私募股权公司。2015年，凯雷获得统一润滑油控股权，这是在中国拥有最广销售网络的最大的独立润滑油企业。2017年，凯雷携手中信股份和中信资本，联合收购了麦当劳在中国内地和香港业务的80%股权。2017年，凯雷与其合作伙伴入股中国最大的第三方独立医学检验机构之一艾迪康。
 
-委员会成员代表 Seth Grove 也抨击了这家软件公司，他指出，如果他们出现在听证会上，针对欺诈的指控可能会减少。然而Dominion的投票系统公司非但没有选择走向正直诚实的光明，反而退回到了黑暗之中。他继续说：“为什么公共产品的供应商会害怕公开讨论为了公共利益而出售给公众的产品? 如果他们的产品是成功的，并且按照既定的方式运作，那么他们为什么不利用这个机会公开验证它的成功呢? 向公众证明选票机完全像承诺的那样工作，而且百分之百准确，是件很困难的事情吗？” 他同时指出，该公司目前为止尚未发布任何数据来证明统计结果是准确的。
+分析：不难看出，多米尼公司的实际控制方是和中共有千丝万缕联系的凯雷公司。 中共通过开放核心资源企业给凯雷公司从而获得美国多米尼公司的控制权。控制了多米尼投票系统公司，就控制了美国人的选票，从而控制了美国的政坛，控制美国。
 
-“如果他们没有任何要隐瞒的事实，那么为什么需要瞒着我们? Dominion的举动进一步证实了宾州人的怀疑。” 他指出，到目前为止，民主党国务卿凯西·布克瓦(Kathy Boockvar)没有任何解决选举诚信问题的计划。
+[https://baike.baidu.com/item/红杉资本中国基金](https://baike.baidu.com/item/红杉资本中国基金)
 
-川普竞选团队的律师西德尼·鲍威尔(Sidney Powell)指出，Dominion最初是为委内瑞拉已故领导人乌戈·查韦斯(Hugo Chavez)而设计的窃取选举软件。
-
-鲍威尔在接受福克斯商业频道采访时说道：“我可以告诉你，这家公司是用委内瑞拉的钱在委内瑞拉成立的，目的就是替查韦斯操纵选举。在这次总统大选中，全美有29个州在使用这个软件，而这正是导致选举数据大量失真，结果对川普总统极为不公的原因。这里面串联着自下而上的腐败利益链，我们将一查到底！”
-
-Dominion公司此前曾经声明他们的系统无懈可击，是成熟且完美的。现在面对指控，却临阵脱逃。所有选民都不禁要问，他们到底在害怕什么？
-
-
-
-审核发稿：jamie(文胤)
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文章，欢迎浏览[美东香草山农场GNEWS](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+Pictures from:
+https://cdn.vox-cdn.com/thumbor/u\_-6YR6kBWyxfeRonfij5TE4PWk=/0x0:6000×4000/1200×800/filters:focal(2202×2232:3162×3192)/cdn.vox-cdn.com/uploads/chorus\_image/image/66451157/GettyImages\_598748732.0.jpg 
+https://media.gannett-cdn.com/springfield/41823000001/201610/946/41823000001\_5187514590001\_5187472909001-vs.jpg?pubId=41823000001 
+https://www.mercurynews.com/wp-content/uploads/2017/08/afp\_r64f5.jpg 
+https://www.smartmatic.com/about/our-team/ 
+https://s3.amazonaws.com/cbi-research-portal-uploads/2019/03/25113710/Top\_VCs\_socialcards.png 
+https://wearethene.ws/assets/images/l0/ca/c5/cac5db3b0de51245e2eb75b31e9ddaf5f68f416bc6f8a8defb1b1d8b1daf2511.png 
+https://www.valuewalk.com/wp-content/uploads/2019/03/david-mark-rubenstein.jpg 
+https://s3.amazonaws.com/tracxnassets/cdn/screenshots/domain-profile/
+https://wwwstaplestreetcapitalcom\_sjP90cF3zT45XTBpmk9df.jpeg 
+https://content.fortune.com/wp-content/uploads/2015/02/rtr31kng.jpg 
+https://s4.reutersmedia.net/resources/r/?m=02&d=20200716&t=2&i=1526055881&r=LYNXNPEG6F1LZ
 
 0
