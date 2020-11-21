@@ -1,36 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 朱利安尼：美国两党爱国者都在指控选举舞弊
-` GM107` [轉載自GNews](https://gnews.org/zh-hans/576704/)
+## 佐治亚州的重新计票可能和选举本身一样腐败
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/576783/)
 
-美国总统唐纳德-川普的法律团队周四召开了新闻发布会，讲述了已经被揭发的选举舞弊事件。其中大量的舞弊案例是由美国两大政党的公民举报的，他们希望维护美国选举的真实性。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20164404/Giuliani-Press-Conference-1-640x480-1.jpg)WASHINGTON, DC – NOVEMBER 19: Rudy Giuliani exits after speaking to the press about various lawsuits related to the 2020 election, inside the Republican National Committee headquarters on November 19, 2020 in Washington, DC. President Donald Trump, who has not been seen publicly in several days, continues to push baseless claims about election fraud and dispute the results of the 2020 United States presidential election. (Photo by Drew Angerer/Getty Images)
-“这就把我们带到了密歇根州，那里有一个诚实的民主党人说他们在作弊，”川普的首席律师鲁迪-朱利安尼在新闻发布会上对记者说。”我们会给你看她的宣誓书，因为我知道你一直在虚假的报道，说我们没有证据。”
+*新闻来源：《Zerohedge(零对冲)》；作者：Tyler Durden；发布时间：2020年11月 14日*
 
-“说我们没有具体的舞弊证据，”朱利安尼说。”那是因为对这件事的报道几乎和事情本身一样不诚实。”
+*翻译/简评：MikeHua；校对：；审核：free dust；Page：Eric8848*
 
-“美国人民有权知道这些，”朱利安尼说。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20174703/11-48.jpg)
 
-朱利安尼说，媒体不应该对目前调查所揭示的内容撒谎，包括这些美国人站出来分享他们的关于选举舞弊的故事。
+### **简评：**
 
-“你不报道他们，这个国家的一个公民、一个非常优秀的女人，她愿意让我把她的名字告诉你……” 朱利安尼说：”我不能给你所有这些宣誓书。”我不能把这些宣誓书都给你们，因为如果我这么做，这些人会受到骚扰，他们会受到威胁。”
+少数民主党高层为了赢得此次选举已经用尽了花招，特别这些花招都是中共教的，我们到处都能看到中共的影子。这次在佐治亚州的计票和原来没有什么区别，没有观察员，不匹配签名，只是把原来的欺诈流程再来一遍。更搞笑的是州务卿居然要求在一天半之内统计完五百万张选票，这就是想好了作弊在今后被抓了留后手，这次作弊继续在媒体上做舆论吹风配合假总统拜登的势头。一切都是假的，正如郭先生所说，这次美国尝到了中共给他们把脉开的方子。
 
-但有些人愿意公开他们的宣誓书，包括为底特律市工作的杰西-雅各布。
+本次选举会以滑稽荒唐的结果结束，现在已经够滑稽了，一个媒体宣传搞出来的总统要现在马上入驻白宫，然后还在背后耍花招。相信正如郭先生所说，本次选举一锤定音的地方是在参众两院，由于大面积的选举欺诈行为，投票的数字很没有说服力。无论如何美国人这次是看明白了，抱着侥幸心里，首鼠两端，只是养虎为患给中共机会，只有一剑封喉灭掉共产党，我们才有未来和希望！
 
-“她在9月期间被派去投票，”朱利安尼说。”她受到了训练，基本上是训练她作弊。她说，’我的主管指示我把这些缺席邮递包裹的邮寄日期调整为比寄出时更早’。”
+### **原文翻译：**
 
-“主管发出的公告是为了让所有的工人从事这种作弊行为，”朱利安尼说。”那不是我说的，那是一个美国公民在宣誓后说的。”
+## **佐治亚州的重新计票可能和选举本身一样腐败**
 
-朱利安尼还说，这名妇女说：她看到选举工作人员非法辅导人们投票给谁。
+周五早间，佐治亚开始了重新统计11月3日收集到的选票。但是，在不长时间内就有报道指出重新计票和原来的计票一样对透明性没有一点尊重。没了透明性，重新计票只是浪费纳税人的钱和时间。
+[!\[\]()!\[\](https://spark.adobe.com/page/yACg4OyW7gjSe/images/dcb21b42-edb5-4cd1-9a9d-55ab7e6236c3.jpg?asset_id=e3bd2648-0786-4ad5-a1cf-1ae4628e83fb&amp;img_etag=%22286849c68f9aa283fa4b5457da5af618%22&amp;size=1024)](https://spark.adobe.com/page/yACg4OyW7gjSe/images/dcb21b42-edb5-4cd1-9a9d-55ab7e6236c3.jpg?asset_id=e3bd2648-0786-4ad5-a1cf-1ae4628e83fb&amp;img_etag=%22286849c68f9aa283fa4b5457da5af618%22&amp;size=1024)
+在开始讨论重新计票问题之前，我们要得先搞明白在佐治亚州发生了什么，需要介绍一些背景知识。在我关于两周选举欺诈的文章中，我解释道第一种欺诈涉及到选票的合法性。
 
-他告诉记者，很多证据都是公开的，记者可以在网上查阅，包括密歇根州的康斯坦丁诺诉底特律市案。
+即投入计票机的选票是否来自一个合法注册的选民？如果不是该选票就不能被计算。
 
-“你们要想知道我是否有误导你们，只需要看看诉讼案就可以了，”朱利安尼说。”看看指控的内容，看看宣誓书。”
+我们知道全国各地涌现了大量证词指证民主党以中共病毒为借口以任何注册了的选民的名字寄出数百万的邮寄选票，无论这个人是不是已经去世，伴奏或者不想投票了。因为选民花名册充满了这样的选民，大量的邮寄选票意味着成百上千的邮寄选票被寄往各个州，可以给任何人免费拿走和寄送。
 
-朱利安尼说，虽然并不是所有的宣誓书都被公开，但公民已经提供了数百份宣誓书。
+民主党在一点点将选举监督人腐蚀之后让这次选举欺诈有可行性，例如民主党侵蚀了身份检查和签名匹配流程。在民主党执政的州，投票变成和在商场上随便填一张纸然后放在筐子里为自行车或汽车上做宣传一样容易。或者，更好的方法是，邮寄数百份完成的纸条给你在汽车经销商的伙伴，让他把它放进桶里甚至更简单，邮寄数百张已经写好的纸条给你的卖车的哥们让他在筐子里。这就是民主党州的2020选举。
 
-新闻来源：BREITBART NEWS
-原文链接：[https://www.breitbart.com/2020-election/2020/11/19/rudy-giuliani-the-case-for-election-fraud-being-made-by-american-patriots-in-both-parties/](https://www.breitbart.com/2020-election/2020/11/19/rudy-giuliani-the-case-for-election-fraud-being-made-by-american-patriots-in-both-parties/)
+因此，佐治亚州重新计票的重点在这里：重新计票不会纠正之前的第一种类选举欺诈。整个审查选民资格的流程就已经被腐蚀，已经没办法把合法选票和非法选票在重新计票过程中分开了。
 
-1+
+第二类选举欺诈设计计票。数据分析结果证明在摇摆州的电子计票系统被设定为将川普的选票改为拜登。杰伊•瓦伦廷 (Jay Valentine)对这类欺诈有通俗易懂的总结。电子欺诈的好处是它可以在小范围内被隐藏，但是范围一旦扩大就会出现错不了无法掩盖的线索。有很明确的证据表示亲拜登的代码出现在了密歇根和佐治亚州被影响的选票。
+
+理论上，人工计票不会分辨出非法选票，但是人工计票至少不会重复电子计票机上的计票错误。但是，这得依靠人工计票的人不会作弊。
+
+最好的防止人工计票作弊的办法就是观察他们。确实，年龄够大的读者可以记起2000年选举佛罗里达州的重新计票，也会记得媒体可以自由自在地穿梭在计票室之间，给人们拍特写臭名昭著的不完整打孔纸片（又小又难看的选票）。每个人都清楚重点是要把选票正确统计选票。
+
+但是在计票的时候，关于透明性，再一各个党派代表人被拒绝审查计票工作是为什么？这是发生的事情:
+[!\[\]()!\[\](https://spark.adobe.com/page/yACg4OyW7gjSe/images/b74d3eb6-c890-4286-a503-772e399e9434.jpg?asset_id=88fdbbea-32a0-4be7-a6af-aa92d6e7beb9&amp;img_etag=%22d5c02feae43e29c5845dde457f0a7212%22&amp;size=3867)](https://spark.adobe.com/page/yACg4OyW7gjSe/images/b74d3eb6-c890-4286-a503-772e399e9434.jpg?asset_id=88fdbbea-32a0-4be7-a6af-aa92d6e7beb9&amp;img_etag=%22d5c02feae43e29c5845dde457f0a7212%22&amp;size=1024)推文链接：https://twitter.com/DavidShafer/status/1327298145085218817?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1327306454504714247%7Ctwgr%5E&ref\_url=https%3A%2F%2Fwww.zerohedge.com%2Fpolitical%2Fgeorgia-recount-may-be-corrupt-election-itself
+戴维•沙弗 (David Shafer)推文：我们的一个观察员听命于州务卿，这是巧合吗？
+
+我们没有足够的合法检察员，每一个人监察十个桌子。议员多哥•科林斯（Doug Collins）和我要求检察院一对一观察但是被拒绝了。
+
+在简短的视频里，迪克•莫里斯(Dick Morris)解释道除了禁止共和党人观察计票还有更多非法行为。此外，即使在还有来自邮寄选票的信封的前提下，州务卿布拉德•拉芬斯佩格 (Brad Raffensperger)说计票员不会检查签名是否吻合。
+
+拒绝检查签名和其他尝试将邮寄选票合法化的行为使得邮寄选票接受率极其不正常。正常情况下，在佐治亚州缺席选票的拒绝率只有3.5%因为他们他们的选票不能被核实。莫里斯说今年拒绝率只有0.0002%。正如莫里斯说的，这种不正常现象不言而喻地指向大面积选举欺诈。
+
+不满意操控这些选举欺诈，拉芬斯佩格同时命令在周六三点前完成计票过程。佐治亚收到大概五百万张选票。在一天半时间内重新统计这些选票是很滑稽的事情。这不是重新进计票，这是欺诈影院。
+
+[原文链接](https://www.zerohedge.com/political/georgia-recount-may-be-corrupt-election-itself)
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/yACg4OyW7gjSe/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20155633/66-5.jpg)
+
+0

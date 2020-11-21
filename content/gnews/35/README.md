@@ -1,65 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 内华达州九分之八的不合格邮寄选票被接受
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/576621/)
+## 【香草诗词汇】开花的石头
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/576778/)
 
-*新闻来源：《华盛顿观察家报》（**The Washington Examiner）**；作者：艾米莉拉森**(Emily Larsen)**；发布时间：**2020**年**11**月**13**日*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20165916/logo-3.jpg)
 
-*翻译/简评：Marialu；校对：感恩；审核：海阔天空；Page：拱卒*
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20155921/11-45.jpg)
 
-### **简评：**
+作者：香草山写作组 木白
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20171005/%E3%80%90%E9%A6%99%E8%8D%89%E8%AF%97%E8%AF%8D%E6%B1%87%E3%80%91%E5%BC%80%E8%8A%B1%E7%9A%84%E7%9F%B3%E5%A4%B4.jpg)
 
-在内华达州出现九分之八不合格邮寄选票，失效率为89%。内华达州议员在今年8月修改了法律，即向该州名册上的每个选民发送了邮寄选票，最终导致死亡选民和已搬家的选民都收到了邮寄选票，甚至克拉克县的选举官员故意修改签名验证机的设置。
 
-在这次总统选举中，选举的官方管理者不仅对作假行为视而不见，而且有的就是舞弊行为的直接参与者。作假者如此肆无忌惮，舞弊手段五花八门，所有这一切的始作俑者都是拜登党及其背后推手中共。
 
-我们坚决支持川普总统的法律团队利用法律武器把那些欺诈舞弊者告上法庭绳之以法，捍卫美国的民主制度，捍卫美国宪法！
 
-得民心者得天下！川普总统一定大获全胜！
+每座城市都有我奔赴的理由
 
-### **原文翻译：**
+每条河流都有你滋润的疆土
 
-## **实验报告表示：在内华达州 九分之八的不合格（不匹配签名）邮寄选票被接受**
+每个战友都有我们拥抱的热泪
 
-据报道，一项测试内华达州邮寄选票签名验证真实性的实验，其结果是失败率为89%，这引发了人们对该州迅速实施的通用邮寄选票系统完整性的担忧。
+沉默的石头，开花的树
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20160106/22-32.jpg)实验报告表示：在内华达州 九分之八的不合格（不匹配签名）邮寄选票被接受
 
-拉斯维加斯《评论杂志》专栏作家维克多·乔克斯（ Victor Joecks）在周四的一篇文章中写道，他让九个人用他的笔迹而不是用他们自己的笔迹给邮寄选票签名。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20160234/33-10.jpg)
-乔克斯说：“我用正常的笔迹草写下了他们的名字。然后，他们把我的版本复制到选票信封上。这两个步骤是必要的，以确保没有违反任何法律。”
 
-这一结果与内华达州官员的保证相矛盾，即签名验证（将选民的档案签名与选票上的签名相匹配的过程）可以防止欺诈性（舞弊）选票被计算。
+每个午夜都在向更多的我转身
 
-乔克斯说：“九张选票中有八张通过。换言之，在抓获不匹配签名方面，签名验证的失效率为89%。
+每点星光都在把更多的你点亮
 
-卡尔·伯恩斯坦（Carl Bernstein）建议记者应该透露那些被保证匿名的反川普共和党参议员
+每座桥都在让更多的我们连在一起
 
-乔克斯没有透露选票上所使用的签名照片，也没有透露那些参与者的姓名。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20160346/44-12.jpg)记者测试内华达州选民签名验证，发现失败率高达89%。
-内华达州议员在8月 修改了法律，向该州名册上的每个选民发送一张邮寄选票。
+开花的石头，结果的树
 
-这导致了死亡的选民和已经搬家的选民都收到了邮寄选票。发布在社交媒体上的照片显示成堆的邮寄选票露天摆放。许多支持川普的内华达州抗议者上周告诉《华盛顿观察家报》(Washington Examiner) ，他们收到了属于其他人的邮寄选票。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20160436/55-6.jpg)
-川普总统的竞选团队长期以来一直认为，通用邮寄选票容易发生欺诈行为。
 
-川普竞选团队的一项诉讼称，在内华达州占绝大多数选民的克拉克县的选举管理人员降低了签名验证机的设置，这样它就能接受选票签名与选民存档签名只有40％匹配度的选票。
 
-乔克斯写道：“县官员并没有采取积极措施去确定是否别有用心的人（缺乏道德的人）以广泛的方式滥用了这一漏洞。如果罪犯不承认自己在选举中舞弊，克拉克县官员是不大可能去追究的。故意的纵容（无知）决不是选举安全的策略。”
+审核发稿：jamie(文胤)
 
-他总结道：“目前尚不清楚内华达州发生了多少选民舞弊事件。但是，很明显，签名验证并非像选举官员们所说的是万无一失的安全检查。
+更多資訊,歡迎訂閱[美](https://twitter.com/Mos_Himalaya)[東香草山農場官方推特賬號](https://twitter.com/Mos_Himalaya)！
 
-[原文链接](https://www.washingtonexaminer.com/news/eight-of-nine-mismatched-signatures-accepted-in-nevada-mail-in-ballot-experiment-report)
+更多文章,歡迎瀏覽[美東香草山農場GNEWS!](https://gnews.org/zh-hans/author/changdao/)
 
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+聖經故事背景,免費英語教學,美東時間周一至周五晚上9:00,美國志願者在美東香草山農場Discord群[Richard English](https://discord.gg/NVAqpNj)版塊和[chat-room](https://discord.gg/NVAqpNj)與您相約!
 
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)[欢迎加入](https://discord.gg/U9F97ur)
-
-[英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/pWavTAZ0007Ch/)
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20155633/66-5.jpg)
 0

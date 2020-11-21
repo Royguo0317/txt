@@ -1,47 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】彭斯副总统发布令人振奋的疫苗信息，毫不留情拒绝记者提问
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/576549/)
+## 朱利安尼：美国两党爱国者都在指控选举舞弊
+` GM107` [轉載自GNews](https://gnews.org/zh-hans/576704/)
 
-**作者：香草山写作组  正道主义联盟**
+美国总统唐纳德-川普的法律团队周四召开了新闻发布会，讲述了已经被揭发的选举舞弊事件。其中大量的舞弊案例是由美国两大政党的公民举报的，他们希望维护美国选举的真实性。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20164404/Giuliani-Press-Conference-1-640x480-1.jpg)WASHINGTON, DC – NOVEMBER 19: Rudy Giuliani exits after speaking to the press about various lawsuits related to the 2020 election, inside the Republican National Committee headquarters on November 19, 2020 in Washington, DC. President Donald Trump, who has not been seen publicly in several days, continues to push baseless claims about election fraud and dispute the results of the 2020 United States presidential election. (Photo by Drew Angerer/Getty Images)
+“这就把我们带到了密歇根州，那里有一个诚实的民主党人说他们在作弊，”川普的首席律师鲁迪-朱利安尼在新闻发布会上对记者说。”我们会给你看她的宣誓书，因为我知道你一直在虚假的报道，说我们没有证据。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19024426/12345-3.jpg)
+“说我们没有具体的舞弊证据，”朱利安尼说。”那是因为对这件事的报道几乎和事情本身一样不诚实。”
 
+“美国人民有权知道这些，”朱利安尼说。
 
+朱利安尼说，媒体不应该对目前调查所揭示的内容撒谎，包括这些美国人站出来分享他们的关于选举舞弊的故事。
 
+“你不报道他们，这个国家的一个公民、一个非常优秀的女人，她愿意让我把她的名字告诉你……” 朱利安尼说：”我不能给你所有这些宣誓书。”我不能把这些宣誓书都给你们，因为如果我这么做，这些人会受到骚扰，他们会受到威胁。”
 
+但有些人愿意公开他们的宣誓书，包括为底特律市工作的杰西-雅各布。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20150247/%E4%B8%89%E4%B8%AA%E4%BA%BA%E5%9B%9E%E5%A4%8D.png)
+“她在9月期间被派去投票，”朱利安尼说。”她受到了训练，基本上是训练她作弊。她说，’我的主管指示我把这些缺席邮递包裹的邮寄日期调整为比寄出时更早’。”
 
-周四，现任美国副总统彭斯（Mike Pence）率领卫生部长阿札尔（Alex Azar）与国家过敏与传染病研究院（NIAID）院长福奇（Anthony Fauci）在白宫召开防疫简报会，这是自今年7月以来，召开的首次专项会议。彭斯表示，他对美国能够遏制住病毒的传播充满信心，并向美国人保证，川普团队已制定了详尽的计划。
+“主管发出的公告是为了让所有的工人从事这种作弊行为，”朱利安尼说。”那不是我说的，那是一个美国公民在宣誓后说的。”
 
-“美国政府启动了前所未有的行动方案。从早期开始，我们就在总统的指示下，采用联邦政府支持、州政府管理、地方政府执行的方式，来应对这个流行病。” 彭斯说道。“我们将继续尊重各州政府抵抗疫情的努力。但我要明确，川普总统已经清楚地表示，我们不支持再一次的全国性封锁，我们也不认为这是必要的。” 福奇博士也再次回应：”我们没有要求全国封锁，我们也不会实行全国封锁。”
+朱利安尼还说，这名妇女说：她看到选举工作人员非法辅导人们投票给谁。
 
-接下来，针对美国疫苗研发进程和快速配送计划，彭斯发表了令人振奋的谈话。“援助即将来临。我们完全有信心可以在短时间内为美国人民提供一种或多种安全有效的疫苗。当我们每个人积极都与州和地方官员合作，尽自己的责任来照顾我们自己的家庭和社区时，病毒将成为历史，而且我相信这一天很快就会到来。” 副总统说。
+他告诉记者，很多证据都是公开的，记者可以在网上查阅，包括密歇根州的康斯坦丁诺诉底特律市案。
 
-美国卫生部部长阿扎尔也表示，他对辉瑞（Pfizer）制药和Moderna公司两种疫苗的安全性和有效性保持乐观。这两种疫苗可能会在几周内获得食品和药物管理局（FDA）的授权。福奇在会中继续呼吁美国民众应该戴上口罩，他同时向公众保证疫苗是安全的。
+“你们要想知道我是否有误导你们，只需要看看诉讼案就可以了，”朱利安尼说。”看看指控的内容，看看宣誓书。”
 
-彭斯最后表示，目前政府与各州以及地方卫生局正在建立更紧密的关系。“在上帝的帮助下，我们将渡过这个难关。”他在致谢后转身离开。而现场记者则想询问有关于川普总统的问题，并提高音量大喊：“为何联邦政府不接受提问？到底怎么回事？你们在破坏民主选举！” 可笑的是，川普总统在任四年，媒体何曾客观公正的对白宫团队进行过报道？在刚刚结束的川普总统律师团队新闻发布会上，朱利安尼先生话音未落，福克斯以及不知廉耻的左媒就开始扭曲事实，把朱利安尼先生渲染为骗子，把律师团队对正义的维护歪曲成破坏民主。而恰恰是眼瞎的所谓主流媒体CNN，ABC，FOX……，对海量的证据视而不见，不顾民意，摒弃了公正和客观，沦为了下流无耻的歪媒。
+朱利安尼说，虽然并不是所有的宣誓书都被公开，但公民已经提供了数百份宣誓书。
 
-目前，美国疫情的局势仍然严峻。据CDC昨天报告，全美当日新增病例超过16.5万，死亡1836例，达到3月疫情以来的最高峰。迄今为止，全美累计确诊病例超过1162万，死亡超25万人。约翰‧霍普金斯大学数据显示，全球总确诊数超过5665.5万，至少有135.6万人死亡。
+新闻来源：BREITBART NEWS
+原文链接：[https://www.breitbart.com/2020-election/2020/11/19/rudy-giuliani-the-case-for-election-fraud-being-made-by-american-patriots-in-both-parties/](https://www.breitbart.com/2020-election/2020/11/19/rudy-giuliani-the-case-for-election-fraud-being-made-by-american-patriots-in-both-parties/)
 
-彭斯表示各项计划已经实施到位，没有必要实施全国性的封锁来阻止近期的感染激增，但他同时敦促美国民众在大流行期间要保持警惕。
-
-审核发稿：悟空
-
-编辑：jamie(文胤)
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，纽约时间周日至周四晚上9:00，美国志愿者在纽约香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19024426/12345-3.jpg)
-
-
-
-
-
-3+
+1+

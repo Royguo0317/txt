@@ -1,127 +1,134 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》连线闫博士重磅解读“美国国家科学基金前主席466页邮件门”事件
-` GM80` [轉載自GNews](https://gnews.org/zh-hans/576970/)
+## 美国务院最新报告：中共国在海外的胁迫性战略
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/577267/)
 
-《路德时评》2020年11月20日晚间节目邀请闫丽梦博士重磅解读“美国国家科学基金前主席466页邮件门”，此外，路德社解读朱利安尼先生率领律师团队召开新闻发布会事件。
+多伦多加喜农场 云起时
 
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20223517/SinoInsider.jpg)图片来自Sino Insider
+美国国务院近日发布了对中共国在海外的胁迫性战术分析及应对方案的报告，指出中共通过全球媒体宣传，作为软实力平台的孔子学院，“统一阵线 ”的颠覆性议程，通过技术和智能手机应用扩大影响力，以及操纵娱乐业等五大方面，以种种方式胁迫操纵全世界，试图完成统治全世界的暗黑议程。
 
+报告全文如下 ：
 
-视频来源：[https://www.youtube.com/watch?v=78Z5qY9fJ5c](https://www.youtube.com/watch?v=78Z5qY9fJ5c)
+**应对中共国的胁迫性战术策略**
 
-一. 朱利安尼先生等几位律师开新闻发布会[1]；
+中共利用美国和其他民主国家的自由，推进自己的意识形态叙事，操纵世界新闻报道。中共通过利用政府拥有或经营媒体，以中共控制的 “教育”和“文化机构”在美国和海外的战略位置来实现这一目的。
 
-周四中午，川普总统的私人律师鲁迪·朱利安尼(Rudy Giuliani)，竞选团队的高级法律顾问珍娜·埃利斯以及鲍威尔女士在华盛顿的共和党全国委员会召开新闻发布会。发言主要内容如下：
+中共国的主要代表积极利用推特和脸书等西方社交媒体平台（这些平台在中共国境内都被禁用），传播着经中共核心领导层认可的谎言和虚假叙述。这些实体的作用是传播宣传和虚假信息，同时压制对中共的批评。
 
-1. 朱利安尼先生提及宾州、密歇根州和威斯康辛州已经有绝对证据证实选票舞弊行为；
-2. 鲍威尔律师重点提及投票软件问题，软件数据被在海外进行篡改，被远程控制更改选举结果；
-3. 来自中国，古巴，委内瑞拉的共产党资金干涉和操纵美国大选，我们现在就把这些垃圾清理干净！
-4. 后续还有更多重磅证据将公诸于众，他们将捍卫公正的大选结果，捍卫美国民主权利和美国国家安全；
-5. 投票软件与委内瑞拉、索罗斯近亲、Antifa等利益集团有牵连，FBI也有意隐瞒许多情报信息；
-6. 此次大选舞弊案是犯罪集团长期谋划的大阴谋，拜登必然牵扯其中；
-7. 朱利安尼先生严厉批评美国主流媒体大肆报道虚假新闻，完全违背媒体操守。
+在中共国国内，中共控制着媒体和所有形式的讨论和信息。中共还禁止国内几乎所有民众对国际新闻和媒体的访问，威胁和恐吓对中共进行批评性事件报道的外国记者，并积极监控和阻挠通过电信网络和智能手机应用程序的数据流动。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20202435/Lude_20201120-figure2.png)图片地址：
-[https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19170424/jggliu.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19170424/jggliu.png) 
-就此次媒体发布会，我们可以看到：
+在全球范围内，中共对软件开发商和电信服务提供商施加压力，以确保任何批评中共国的言论，包括人权、台湾、西藏、天安门广场大屠杀、香港和其他 “敏感 “话题，要么被压制，要么以正面形象呈现。  中共还利用其经济实力威胁和逼迫娱乐公司、汽车制造商、运动队、航空公司和其他任何接触中共国市场的公司对产品、广告和公开声明进行自我审查，以便与中共的信息保持一致。
 
-1. 此次律师团队开媒体发布会就是媒体战的一部分，美国《CNN》《纽约时报》等左媒都没有被邀请参加，即使有大量事实证实出现严重的大选舞弊，左媒依然在播报虚假新闻；
-2. 这次美国大选舞弊案暴露出美国已累积多年的系统性问题，美国民众正在开始觉醒，改革势在必行；
-3. 此次媒体战中，大量美国民众看到国内《CNN》、《纽约时报》、《华盛顿邮报》等主流媒体一直在播报虚假新闻，越来越多人正在失去对这些媒体的信任；
-4. 川普竞选已撤回在密歇根州重新计票的诉讼，因为他在该州已经赢了；
-5. 川普团队针对大选舞弊案的三大策略：宪法诉讼（主要针对宾州），舞弊诉讼，不认证等待应对对方诉讼；
-6. 现在主要重心依然在美国内部大选计票上，还未想干扰此次美国大选的外国势力进行追讨，未来一定会进行追究；
-7. 他们要清楚地告诉美国民众：各州出现的一系列舞弊行为都证实这是一个蓄谋已久的犯罪集团的集体犯罪行为，并且他们已掌握确凿的证据；
+**全球媒体宣传**
 
+正如中共国国家主席和中共总书记习近平明确承认的那样，中共将中共国媒体实体视为支持中共继续掌权的工具。这种做法符合马列主义思想，即要控制一个民族，就必须控制他们的思想。官办媒体在全球范围内通过歪曲事实、审查不想让人们知晓的真相、进行歪曲报道以符合中共的喜好等方式来传播虚假信息。中共国政府近年来大大扩展了其海外包括在美国的宣传行动。
 
-二. 美国国家科学基金前主席466页邮件被曝光
+2020年，美国国务院认定，某些在美国运营的中共国附属媒体实际上是由该国政府控制的，因此符合《外国使团法》中“外国使团”的定义。  国务院随后将15家在美国经营的中共国附属媒体指定为中共国的外国使团，并随后对其中一些实体规定了人员上限。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20223633/%E5%9B%BE%E4%B8%80-4.jpg)美国国务卿迈克尔-R.-蓬佩奥(Michael R. Pomepo)：“全世界都能看到中共不说真话。”
 
-一份466页的邮件信息被USRTK（美国人有权知道真相）曝光，里面涵盖许多重要涉及新冠病毒疫情的信息，谈及：美国国家科学基金前主席如何通过运作拉拢科学界专家，共同掩盖病毒真相。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20202443/Lude_20201120-figure3.png)图片地址：
-[https://twitter.com/DrLiMengYAN1/status/1329544629319061511/photo/1](https://twitter.com/DrLiMengYAN1/status/1329544629319061511/photo/1)
-**“466****页邮件门****”****事件背景：**
+相关信息：
 
-一个调查记者从前美国国家科学基金会&美国科学院前主席Rita R.Colwell手中获得的邮件信息，涉及她从2018年到2020年同美国生态健康联盟主席Peter Daszak 之间的通信记录，这些通信勾勒出一个完整的事实，且与闫博士二月份掌握的情报相吻合：
+[多家中共国媒体实体被定义为驻外使团](https://www.state.gov/designation-of-additional-chinese-media-entities-as-foreign-missions/)【1】
 
-2月18日《柳叶刀杂志》正式刊文：《27名科学家柳叶刀发声明：强烈谴责新冠非自然起源的阴谋论》，文中从科学角度说明新冠病毒起源自然，不可能来自实验室，来自实验室的言论都是阴谋论，也让科学界统一口径。这引起一系列对中国抗击疫情的赞扬，对“自然学说”的奠定以及攻击川普政府抗疫不力的风潮，《柳叶刀杂志》，《自然杂志》，《新英格兰杂志》都呼吁大选不要选川普总统，这些都是源于它，这背后涉及的不仅是国家科学基金前主席、生态联盟的负责人和柳叶刀主编，这里面还涉及整个顶级医学界对整个医学界的操控，这就是很多人不相信共产党可能蓝金黄所有人吗？中共就蓝金黄科学界的顶层专家。
+[中共对对全球媒体操纵情况概述](https://share.america.gov/report-outlines-beijings-global-media-manipulation/) 【2】
 
-**“466****页邮件门****”****事件的关键人物：**
+**作为软实力平台的孔子学院**
 
-Rita Rossi Colwell[2]（出生于1934年11月23日）是美国环境微生物学家和科学行政人员，曾是国家科学基金主席，国际科学基金就是NASA和NIH的资助方。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20202451/Lude_20201120-figure4.jpg)图片来源：
-[https://www.nsf.gov/news/mmg/media/images/Colwell-VBAward-News-Feature\_f.jpg](https://www.nsf.gov/news/mmg/media/images/Colwell-VBAward-News-Feature_f.jpg) 
-从Rita Rossi Colwell履历可以看出：
+自2004年以来，中共国在全球范围包括美国学校和大学校园内建立并资助了数百所孔子学院。孔子学院通常由中共国学者、当地教师和中共选派的中共国教师共同组成，教授中共认可的中文、历史和文化的狭义版本。全国学者协会跟踪调查了70多个仍在美国境内运作的孔子学院，与孔子学院合作的大学的教师报告说，孔子学院施加压力和威胁，要求取消对被认定为批评中共国的个人或活动的资助。同样，“孔子课堂”在数百所美国从小学到高中全面提供中共认可的课程和经过中共国培训的教师，每天影响着数万名美国学童。
 
-1. 她现今86岁高龄，她在该领域拥有大量的学生和拥护者，其元老身份基本可以掌控科学界；
-2. 曾为国家科学基金主席（NASA和NIH的资金资助方），拥有巨大权力；
-3. 她专职研究霍乱传染，霍乱现在仍为一类甲等传染病，在她当打之年正值霍乱严重的时候，这也为她的影响力奠定重大基础；
-4. 她还身兼多所大学的终身教授，例如：马里兰大学以及约翰霍普金斯大学的公共卫生学院的终身教授，这两个学校分别出了HIV领域大佬Gallo[3]，还有一位生物武器专家，他两都在闫博士第一篇文章发表之后抨击闫丽梦博士，并被左媒广泛引用；
+对此，2019年《国防授权法》禁止承办孔子学院的大学接受美国国防部的中文学习经费。另外，自2019年以来，美国联邦调查局也敦促美国高校重新审视与孔子学院的关系，称孔子学院对国家安全和学术自由构成威胁。 2020年8月，美国国务院将位于华盛顿特区的孔子学院美国中心（CIUS）指定为中共国驻外使团。这一行动并没有关闭CIUS，也没有要求美国高校关闭孔子学院。相反，这一指定旨在提高透明度，将CIUS认定为受中共政府实际控制的实体，并要求CIUS向国务院提供有关其运作的信息。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20223824/%E5%9B%BE%E4%BA%8C-4.jpg)美国国务卿迈克尔-R-蓬佩奥(Michael R. Pompeo)：“两党参议院委员会于去年2019年发现，中共党控制了孔子学院在美国活动的几乎所有方面。”
 
+相关信息：
 
-**Rita Rossi Colwell****掌管的国家基金对美国学界具有重要影响力：**
+[中共国对美国教育体系的影响](https://www.hsgac.senate.gov/subcommittees/investigations/hearings/chinas-impact-on-the-us-education-system)【3】
 
-1. 她曾是美国国家自然基金的主席（98—04年），该基金是美国第二大（仅次于NIH）的基金项目批示机构，也是科学家必须要讨好的机构；
-2. 她在该基金工作时间非常时间，还拿下所有英语国家的院士，还有62个荣誉学位，常和美国顶层官员接触，掌握大量人脉关系；
-3. 她身为《生态健康联盟》董事，为《柳叶刀》“27名科学家的声明”站台，带来巨大的影响力；
+[“孔子学院美国中心 ”被指定为外国使团](https://www.state.gov/confucius-institute-u-s-center-designation-as-a-foreign-mission/) 【4】
 
+[中共在美国校园：机遇与风险](https://www.state.gov/wp-content/uploads/2020/09/CCP-on-campus-FINAL.pdf)【5】
 
-**邮件主要内容：**
+[孔子学院在校园推动中共宣传叙事](https://share.america.gov/confucius-institutes-advance-chinese-propaganda/)【6】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20223922/%E5%9B%BE%E4%B8%89-1.jpg)白宫国安顾问罗伯特-奥布莱恩（Robert O’Brien)：“中共致力于完全地控制人们的生活。”
 
-从Rita Rossi Colwell履历可以看出：
+**“统一阵线”的颠覆性议程**
 
-1. 她现今86岁高龄，她在该领域拥有大量的学生和拥护者，其元老身份基本可以掌控科学界；
-2. 曾为国家科学基金主席（NASA和NIH的资金资助方），拥有巨大权力；
-3. 她专职研究霍乱传染，霍乱现在仍为一类甲等传染病，在她当打之年正值霍乱严重的时候，这也为她的影响力奠定重大基础；
-4. 她还身兼多所大学的终身教授，例如：马里兰大学以及约翰霍普金斯大学的公共卫生学院的终身教授，这两个学校分别出了HIV领域大佬Gallo[3]，还有一位生物武器专家，他两都在闫博士第一篇文章发表之后抨击闫丽梦博士，并被左媒广泛引用；
+统一战线是中共所谓夺取和维持全面政治权力的 “法宝”中的第三种，与武装斗争和建党并列。中共利用其所谓的“统一战线”组织和选民的工作，来合纵连横，消除可能反对其政策和权威的来源。中共的统一战线工作部（UFWD）负责协调国内和国外的影响行动，通过宣传和操纵易受影响的受众和个人。
 
+中共的统一战线渗透到其与国际社会广泛接触的每一个方面。它的目标是西方民主国家的最高层，它建立了一个长期服务于中共国的说客阶层，他们的主要工作是向美国企业出售与中共国高层领导人接触的机会。统一战线还通过中共的姐妹城市计划、贸易委员会和友好协会等无数的战线组织，深入渗透到州、地方和市政府。
 
-**Rita Rossi Colwell****掌管的国家基金对美国学界具有重要影响力：**
+统一战线体系影响美国高等教育和学术自由的一个例子是中共国学生学者协会（CSSA）。上世纪70年代末，当中共国政府首次允许其公民进入西方大学时，中共促成了在西方校园建立中共国学生学者协会（CSSA）分会，以监督在国外学习的中共国学生，确保他们的观点与中共的信仰保持一致。时至今日，中共统战部继续将CSSA作为其影响行动的对象，它越来越肆无忌惮地压制西方校园的知识探讨。CSSA分会努力抑制中国人和他国同龄人之间的辩论和互动，以阻止前者学习新的观点或尝试挑战中共的教条，而中共国的外交机构则经常向CSSA分会提供资金和指导，甚至鼓励成员破坏校园内质疑中共意识形态或立场的讲座或活动。
 
-1. 她曾是美国国家自然基金的主席（98—04年），该基金是美国第二大（仅次于NIH）的基金项目批示机构，也是科学家必须要讨好的机构；
-2. 她在该基金工作时间非常时间，还拿下所有英语国家的院士，还有62个荣誉学位，常和美国顶层官员接触，掌握大量人脉关系；
-3. 她身为《生态健康联盟》董事，为《柳叶刀》“27名科学家的声明”站台，带来巨大的影响力；
+对此，国会两党的美中经济与安全审查委员会在2018年发布了一份详细的报告，敦促美国政府更好地了解北京的统一战线战略、目标，以及负责实现这些目标的行为体，以便制定有效和全面的应对措施。
 
+相关信息：
 
-**邮件主要内容：**
+[中共海外统战工作：背景及对美国的影响](https://www.uscc.gov/research/chinas-overseas-united-front-work-background-and-implications-united-states)【7】
 
-邮件一：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20202456/Lude_20201120-fugure5.jpg)图片地址：
-[https://pbs.twimg.com/media/EnOluG2XEAc6RG2?format=jpg&name=medium](https://pbs.twimg.com/media/EnOluG2XEAc6RG2?format=jpg&amp;name=medium) 
-这封邮件就是他们开始编造柳叶刀支持病毒自然来源这封信最初的通信记录，只要是发给Colwell的邮件都已经被曝光出来，这封信发件人是Peter Daszak[4]，收件人分别是：Ralph、Linda、Jim、Rita、Linfa 和 Hume.
+[中国和平统一促进会被认定为中华人民共和国驻外使团](https://www.state.gov/designation-of-the-national-association-for-chinas-peaceful-unification-nacpu-as-a-foreign-mission-of-the-prc/) 【8】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20224427/%E5%9B%BE%E5%9B%9B.jpg)美国国务卿迈克尔-R-蓬佩奥(Michael R. Pompeo)：“华为和其它中共以国家力量支持的科技公司是中共情报机构的‘特洛伊木马’”
 
-Ralph是北卡罗莱纳州的教授，他曾和石正丽教授合作在2015年发表基因增强实验的教授，通过跟换蝙蝠RBD增强病毒毒性，这引起业界广泛质疑；
+**通过技术和****APP扩大影响力**
 
-Linfa教授：大选夜那天，给大家做专题节目讲解中共马上要推出来，现在在新加坡杜克大学做老大的王林发教授，人称“蝙蝠侠”，石正丽做蝙蝠病毒的引路人。
+随着世界对技术的日益依赖，中共的影响力也在不断扩大。中资科技公司对美国的国家安全、知识产权、人权以及全球经济独立和安全构成了严重威胁。华为、中兴和腾讯等公司的5G电信设备、软件和服务，由于其与中共的内在联系和可能被滥用，已经带来了世界性的安全问题。微信和抖音这两款在全球拥有数亿用户的热门应用，都受到中共的监控和审查；美国和其他地区的用户如果在这些应用中发布对中共当局的批评，比如支持香港的抗议者，就会遭受各种惩罚性措施，包括停止使用服务。
 
-信件大致内容是：他最近和中共抗击病毒的联系很紧密，说他对许多涉及病毒的流言蜚语感到难过，着重指出新冠病毒绝对来自自然，所有支持“病毒是来自基因工程改造的”言论是阴谋论。该信件从一月底二月初就初拟草稿，于2月6日发送给几位专家，信中说他们支持新冠病毒起源于自然的言论，要配合三大院的声明（当时川普总统要求美国三大院彻查病毒真相）来发布，他们要在此时发表这封信，并对三大院表示支持。
+作为回应，国务院于2020年8月启动了“清洁网络”计划，以建立一个由志同道合的盟友和合作伙伴组成的联盟，致力于保护公民的隐私和公司的敏感信息免受恶意行为者的侵略性入侵。此外，唐纳德-J-川普总统于2020年8月发布行政命令，应对抖音和微信带来的威胁。
 
-邮件二：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20202503/Lude_20201120-figure6.jpg)图片地址：
-[https://pbs.twimg.com/media/EnOlwBAW4AUHe-l?format=jpg&name=medium](https://pbs.twimg.com/media/EnOlwBAW4AUHe-l?format=jpg&amp;name=medium) 
-Peter Daszak发出信件之后得到所有科学家的回应，其中Linda在回复中积极地询问：“我们是否需要额外地强调‘病毒生物工程来源’是阴谋论呢？”专家们统一口径：我们一致认为病毒起源于自然，坚决谴责“病毒非自然来源”的言论，不能容许这种言论存在。他还在信中提及需要凑集20个知名专家参与签名，邀请的名单中有港大的Malik、Leo Poon和Keiji Fukuda，最后只有分子生物学专家Leo同意签名支持，随后他的影响力大大提升，受到CNN等媒体采访，所有参与支持签名的科学家都收受来自中共的好处。
+相关信息：
 
-从该信件可以看到：
+[清洁网络](https://www.state.gov/the-clean-network/) 【9】
 
-1. Peter作为生态健康联盟总裁，该组织在科学界社交网络非常广，能联系多位业界大佬；
-2. 当时只有爆料革命一月份开始就提及病毒来自实验室并非起源于自然，科学界统一口径的目的就是想试图掩盖事实，对抗爆料革命说出真相；
-3. 从信件中，我们可以看到这些科学家并未就“病毒起源于自然”进行调查和研究，就计划通过互相串联来消灭“病毒非自然来源”的言论；
-4. 这批科学家中有多位并非冠状病毒领域专家，他们声称反对“病毒非自然起源”阴谋论，却在谋划最恶毒的“阴谋”；
-5. 由于中共掩盖病毒真相导致全球大爆发，这些科学家至今未向中共索要病毒信息进行研究，他们从中共获取经济政治利益才出来为他们站台；
-6. 此事件影响力不亚于“亨特拜登硬盘门”，未来将有更多内幕被披露；
-7. 全球顶刊、科学界已经腐败到无法想象的地步，闫博士早已看清这些事实，所以她的两篇文章才被发表在其他平台。
+[关于应对抖音构成的威胁的行政令](https://www.whitehouse.gov/presidential-actions/executive-order-addressing-threat-posed-tiktok/)【10】
 
+[关于应对微信带来的威胁的行政命令](https://www.whitehouse.gov/presidential-actions/executive-order-addressing-threat-posed-wechat/)【11】
 
-这些科学家就是没有坚持“唯真不破”才被收买，改变立场，他们也不可能做到“无我”，因为他们有私心，所以真相对他们来说并不重要，让我们看到科学界现今何等悲哀。爆料革命要继续奋斗下去就要坚持“唯真不破”和“无我”，每位战友都要宣传真相，凝聚微小的力量共同努力，一起打赢这场战争。
+[中共的审查制度是一个全球性问题](https://share.america.gov/chinese-censorship-is-global-problem/)【12】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20224254/%E5%9B%BE%E4%BA%94.jpg)美国副总统麦克-彭斯(Mike Pence)：“中共一向要求好莱坞严格地以正面形象来描述中国，并对不遵从的电影公司和制片人进行惩罚。 中共的审查员会迅速编辑或取缔批评中共国的电影，即使是非常轻微的批评。”
 
-参考文章：
+**操纵娱乐业**
 
-[1] [https://gnews.org/zh-hans/573817/](https://gnews.org/zh-hans/573817/) 
-[2] [https://en.wikipedia.org/wiki/Rita\_R.\_Colwell](https://en.wikipedia.org/wiki/Rita_R._Colwell) 
-[3] [https://gnews.org/zh-hans/416983/](https://gnews.org/zh-hans/416983/)
-[4] [https://www.ecohealthalliance.org/personnel/dr-peter-daszak](https://www.ecohealthalliance.org/personnel/dr-peter-daszak)
+为了能进入利润丰厚的中共国市场，美国电影制作人必须进行自我审查，避免将中共描述为一个镇压本国公民的专制政权。1997年，当哥伦比亚三星公司制作《西藏七年》时，中共政府对该制作公司下达了为期5年的禁令，还禁止明星布拉德-皮特和大卫-休利斯进入中共国。从那时起，好莱坞电影中就很少再出现对中共政府负面的表述。
 
-*文章撰写：【重生】    编辑：【GM80】
-战友之家玫瑰园小队出品*
+中共国对美国电影的资助也影响着好莱坞的剧本。当中共控制的《环球时报》对2012年翻拍的《红色黎明》的反派是中国人表示批评时，入侵部队的旗帜被改成了朝鲜。虽然如此屈服，但该片最终还是没有被中共批准上映。同样，在1986年的电影《头号玩家》中，汤姆-克鲁斯的角色穿的炸弹夹克上贴着日本和台湾的国旗。但续集《Top Gun》，在中共国科技巨头腾讯公司的要求下，这个补丁已经被移除，因为腾讯的子公司腾讯影业是派拉蒙的联合制片人和联合发行商。新的真人电影《花木兰》甚至感谢新疆维吾尔自治区公安和宣传机关对电影制作的帮助，尽管这些实体参与了对新疆维吾尔族和其他穆斯林少数民族的持续镇压。
+
+对此，美国司法部长威廉-巴尔(William Barr)在2020年7月说，“我猜想沃尔特-迪斯尼看到他创立的公司如何与今天的外国独裁政权打交道，一定会感到沮丧。”
+
+相关信息：
+
+[谁在审查你看的电影](https://share.america.gov/whos-been-censoring-your-movie/) 【13】
+
+[中共为什么怕鬼？](https://share.america.gov/why-is-chinese-communist-party-afraid-of-ghosts/)【14】
+
+报告最后，引用美国副总统麦克-彭斯（Mike Pence）的讲话，称“中共正在威逼利诱美国企业、电影公司、大学、智库、学者、记者以及地方、州和联邦官员”（来为它服务）。
+
+【1】[https://www.state.gov/designation-of-additional-chinese-media-entities-as-foreign-missions/](https://www.state.gov/designation-of-additional-chinese-media-entities-as-foreign-missions/)
+
+【2】https://share.america.gov/report-outlines-beijings-global-media-manipulation/
+
+【3】[https://www.hsgac.senate.gov/subcommittees/investigations/hearings/chinas-impact-on-the-us-education-system](https://www.hsgac.senate.gov/subcommittees/investigations/hearings/chinas-impact-on-the-us-education-system)
+
+【4】[https://www.state.gov/confucius-institute-u-s-center-designation-as-a-foreign-mission/](https://www.state.gov/confucius-institute-u-s-center-designation-as-a-foreign-mission/)
+
+【5】[https://www.state.gov/wp-content/uploads/2020/09/CCP-on-campus-FINAL.pdf](https://www.state.gov/wp-content/uploads/2020/09/CCP-on-campus-FINAL.pdf)
+
+【6】[https://share.america.gov/confucius-institutes-advance-chinese-propaganda/](https://share.america.gov/confucius-institutes-advance-chinese-propaganda/)
+
+【7】[https://www.uscc.gov/research/chinas-overseas-united-front-work-background-and-implications-united-states](https://www.uscc.gov/research/chinas-overseas-united-front-work-background-and-implications-united-states)
+
+【8】[https://www.state.gov/designation-of-the-national-association-for-chinas-peaceful-unification-nacpu-as-a-foreign-mission-of-the-prc/](https://www.state.gov/designation-of-the-national-association-for-chinas-peaceful-unification-nacpu-as-a-foreign-mission-of-the-prc/)
+
+【9】[https://www.state.gov/the-clean-network/](https://www.state.gov/the-clean-network/)
+
+【10】[https://www.whitehouse.gov/presidential-actions/executive-order-addressing-threat-posed-tiktok/](https://www.whitehouse.gov/presidential-actions/executive-order-addressing-threat-posed-tiktok/)
+
+【11】[https://www.whitehouse.gov/presidential-actions/executive-order-addressing-threat-posed-wechat/](https://www.whitehouse.gov/presidential-actions/executive-order-addressing-threat-posed-wechat/)
+
+【12】[https://share.america.gov/chinese-censorship-is-global-problem/](https://share.america.gov/chinese-censorship-is-global-problem/)
+
+【13】[https://share.america.gov/whos-been-censoring-your-movie/](https://share.america.gov/whos-been-censoring-your-movie/)
+
+【14】https://share.america.gov/why-is-chinese-communist-party-afraid-of-ghosts/
 
 0
