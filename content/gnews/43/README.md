@@ -1,53 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共通过控制红衫资本拿下了美国政权
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/577417/)
+## 我经历的体罚式教育
+` Ronald` [轉載自GNews](https://gnews.org/zh-hans/577397/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24064746/WhatsApp-Image-2020-10-24-at-15.08.49.jpeg)
-作者：康州农场-GTalk心语堂
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20233851/image2-10.jpeg)
-美国红杉资本（Sequoia Capital）成立是一家1972年在美国加州成立的资本公司。1984年美国红衫资本收购美国Automatic Voting Machine Corporation (AVM)自动投票机集团。公司改组为红衫投票系统 （Sequoia Voting Systems）。
+内新闻：孤独的小生 校对：老白
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20235627/3b33425dc0dd49978223c022e8730eb4.jpeg)
+我是一名90后，从小独来独往，不爱与小朋友玩，思想叛逆，也没接受过所谓的“高等教育”。
 
-[https://en.wikipedia.org/wiki/Sequoia\_Capital](https://en.wikipedia.org/wiki/Sequoia_Capital)
+小时候家庭条件差，加上叛逆、脾气犟，没有上幼儿园，七岁直接上了一年级。
 
-[https://en.wikipedia.org/wiki/Sequoia\_Voting\_Systems](https://en.wikipedia.org/wiki/Sequoia_Voting_Systems)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20233923/image3-7-scaled.jpeg)
-2005年3月Smartmatic收购了美国红杉投票系统（Sequoia Voting Systems），并为其研发和更新了投票系统软件。Smartmatic 是1997年由Antonio Mugica, Alfredo José Anzola and Roger Piñate 三人在委内瑞拉共同创立的。2000年4月Smartmatic在乔拜登的家乡特拉华州注册。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20234005/image4-7.png)
-分析：
+有次中午回家吃过饭，返校路上和同学打闹导致上课迟到，恰好是班主任的语文课，我们七、八个人就躲教室外趴在窗口看，被班主任发现，让我们背靠黑板挨着讲台跪一排，然后挨个煽耳光。
 
-Smartmatic其背后的实际控制人是委内瑞拉前总统查韦斯。其后转手现任总统马杜罗。而委内瑞拉是受中共控制的，马杜罗实际是中共白手套。换句话说，Smartmagic是中共控制的公司，所有其收购红杉投票系统后，中共就成为了红杉投票系统的实际控制人。 中共控制红衫投票系统后，为其研发和更新了投票系统软件，我们相信这个投票软件从那时候开始就已经完全被中共控制。
+这是第一次被老师这样没有尊严的体罚，回家也没敢告诉父亲，怕挨揍；跟母亲也沟通不了，因为母亲小时候发高烧导致烧坏了脑神经，造成聋哑残疾。外婆信了别人说的“你女儿就算治好了，也会有其它缺陷！”而耽误了治疗。
 
-[https://en.wikipedia.org/wiki/Smartmatic](https://en.wikipedia.org/wiki/Smartmatic)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20234026/image5-6.png)
-同年2005年9月江泽民的白手套沈南鹏和美国红杉资本（Sequoia Capital）共同成立红杉资本中国基金（Sequoia Capital China）。美国红杉资本开始全面进入中国市场，参与多家中国公司的投资，几乎买下了中国互联网的半壁江山，其中包括 阿里巴巴，京东等。
+如今回想起来，内心五味杂陈！
 
-分析：我们相信这是中共和美国红杉资本的勾兑和利益交换。美国红杉资本帮助中共控制红衫投票系统，以实现其操控美国政坛的野心，而中共也通过资本利益的交换作为回报。
+有次美术课，老师检查画画作业，我和几个同学没完成，被老师拿竹条抽手，记忆犹新！每次考试不及格，体罚也算是家常便饭了。
 
-[https://finance.sina.com.cn/chanjing/gsnews/2020-09-29/doc-iivhvpwy9453210.shtml](https://finance.sina.com.cn/chanjing/gsnews/2020-09-29/doc-iivhvpwy9453210.shtml)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20234102/image6-7.png)
-2010年Smartmatic把红衫投票系统卖给了多米尼投票系统（Dominion Voting Systems）公司，多米尼继续沿用了红衫投票系统的更新软件。
+第二年，我满怀欣喜的转校了，新环境下学习成绩飞涨。但是由于数学没打好基础，有次被老师叫上黑板做数学题，算不出来就用嘴巴数手指，被数学老师当着全班同学的面数落、嘲笑。
 
-而2018年多米尼被私募基金公司Staple Street Capital收购。Staple Street Capital 最大股东是David Mark Rubenstein 。他同时又是凯雷投资集团（Carlyle Group）的创始人。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20234142/image7-4.png)
-凯雷投资集团在1994年进入中国。是进入中国最早、规模最大、而且最活跃的全球投资公司之一。2007年凯雷公司获得了中国太平洋保险19/9%的股权，是第一家获得中国政府批准，投资大型国有保险公司的国际私募股权公司。2015年，凯雷获得统一润滑油控股权，这是在中国拥有最广销售网络的最大的独立润滑油企业。2017年，凯雷携手中信股份和中信资本，联合收购了麦当劳在中国内地和香港业务的80%股权。2017年，凯雷与其合作伙伴入股中国最大的第三方独立医学检验机构之一艾迪康。
+当时真想找个地缝钻进去。之后经常受到数学老师的“特殊照顾”——留堂、责骂。上小学我的自尊心就被数学老师踩碎了。对“上黑板”做题也有了阴影。
 
-分析：不难看出，多米尼公司的实际控制方是和中共有千丝万缕联系的凯雷公司。 中共通过开放核心资源企业给凯雷公司从而获得美国多米尼公司的控制权。控制了多米尼投票系统公司，就控制了美国人的选票，从而控制了美国的政坛，控制美国。
+本以为上初中就不会有体罚了。理想是美好的，现实又一巴掌打醒了我。这巴掌是初一班主任打的，原因仅仅是因为我和同学说笑抬杠。
 
-[https://baike.baidu.com/item/红杉资本中国基金](https://baike.baidu.com/item/红杉资本中国基金)
+初二那年夏天，上课打瞌睡，拿书立起来挡着，老师一黑板擦扔过来打我脸上，还被罚在教室后排蹲马步 嘴咬粉笔不能断，蹲完一节课。
 
-Pictures from:
-https://cdn.vox-cdn.com/thumbor/u\_-6YR6kBWyxfeRonfij5TE4PWk=/0x0:6000×4000/1200×800/filters:focal(2202×2232:3162×3192)/cdn.vox-cdn.com/uploads/chorus\_image/image/66451157/GettyImages\_598748732.0.jpg 
-https://media.gannett-cdn.com/springfield/41823000001/201610/946/41823000001\_5187514590001\_5187472909001-vs.jpg?pubId=41823000001 
-https://www.mercurynews.com/wp-content/uploads/2017/08/afp\_r64f5.jpg 
-https://www.smartmatic.com/about/our-team/ 
-https://s3.amazonaws.com/cbi-research-portal-uploads/2019/03/25113710/Top\_VCs\_socialcards.png 
-https://wearethene.ws/assets/images/l0/ca/c5/cac5db3b0de51245e2eb75b31e9ddaf5f68f416bc6f8a8defb1b1d8b1daf2511.png 
-https://www.valuewalk.com/wp-content/uploads/2019/03/david-mark-rubenstein.jpg 
-https://s3.amazonaws.com/tracxnassets/cdn/screenshots/domain-profile/
-https://wwwstaplestreetcapitalcom\_sjP90cF3zT45XTBpmk9df.jpeg 
-https://content.fortune.com/wp-content/uploads/2015/02/rtr31kng.jpg 
-https://s4.reutersmedia.net/resources/r/?m=02&d=20200716&t=2&i=1526055881&r=LYNXNPEG6F1LZ
+初三那年，上英语课顶撞老师，英语老师的爱人是班主任，来了什么也不问，在教室门外毫无征兆的就是一记耳光，然后被思想教育到下课。
 
-0
+这是我接受的“九年义务教育”，被一记记耳光“教育”！每一位孩童都是天真、无邪和单纯的，教书育人的老师却不知道这样做带来的后果！与其说是接受学习文化，倒不如说是接受思想改造。
+
+这也是中共国的教育思想理念：只有考学才能出人头地，不然一辈子没出息；这种观念深深植入到每个人的脑细胞里！
+
+同样是初三那年，备考期间传来父亲去世的噩耗，对我的打击非常大。家里供不起读书，考进了县高中也只有放弃，妹妹也因此导致初三最后一年未毕业。一系列事情让我体会到了什么是“亲情”，什么是大人们常说的“人情冷暖”！
+……
+
+现今我已为人父，回看当今中共国的“九年义务教育”亦复如此，甚至愈演愈烈！孩子的读书压力得不到正确的排解，家长的不理解，也不能正确引导孩子，孩子“心理成疾”，扛不住压力而跳楼轻生的事件频繁发生！
+
+中共国的教育不是为了教育而教育，在这样的教育下，孩子已经失去了独立的人格，丧失独立思考能力；我们和我们的孩子已经变成了他们想要的样子！
+
+为了我的孩子，我要对体罚式教育说：NO!
+
+4+

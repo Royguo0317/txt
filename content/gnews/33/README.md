@@ -1,15 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【精华版粤语配音】11.15 路德时评：川普总统任命朱利安尼市长为领导的法律团队
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/577622/)
+## 【世界多语言图文】2020/11/12 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/577697/)
 
-制作单位：战友之家-粤语组
-制作团队：文恩、一帘幽梦、阿恩、
+战友之家图文摘要及多语组
 
+[292\_English\_1112\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21024910/292_English_1112_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21024910/292_English_1112_CCP_Virus_Updates.pdf)
 
+[292\_French\_1112\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21024914/292_French_1112_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21024914/292_French_1112_CCP_Virus_Updates.pdf)
 
-摘要：
-Dominion的背后是Smartatic软体，与委内瑞拉和中国有直接关连；Dominion的出资人是红杉资本；Smartmatic是委内瑞拉前总理查维斯创建的，其主席与索罗斯关系密切；该软体不仅可以改选票，还可以在选票落后的情况下停止计票，并发送资料到海外，对美国国家安全造成严重威胁。
+[292\_German\_1112\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21024911/292_German_1112_KPCh_Virus_Updates_German_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21024911/292_German_1112_KPCh_Virus_Updates_German_.pdf)
+
+[292\_Korean\_1112\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21024913/292_Korean_1112_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21024913/292_Korean_1112_CCP_Virus_Updates.pdf)
+
+[292\_Spansih\_1112\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21030115/Unknown-1_2.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21030115/Unknown-1_2.pdf)
 
 0

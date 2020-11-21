@@ -1,19 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/11/12 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/577697/)
+## 恶行恶状祸害香港，中共丑态毕露
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/577775/)
 
-战友之家图文摘要及多语组
+**Sherryok (水云间)**
 
-[292\_English\_1112\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21024910/292_English_1112_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21024910/292_English_1112_CCP_Virus_Updates.pdf)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21035952/Capture-45.png)
 
-[292\_French\_1112\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21024914/292_French_1112_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21024914/292_French_1112_CCP_Virus_Updates.pdf)
+中国外交部发言人赵立坚周五（20/11/2020）向世界再次展现历害国的恶狼本性，称五眼联盟不管他是五只眼还是十只眼睛，小心被戳瞎。他说五眼联盟对北京政权剥夺香港立法会民主派议员资格严重关注的声明，是对中国主权，安全和发展利益的破坏。
 
-[292\_German\_1112\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21024911/292_German_1112_KPCh_Virus_Updates_German_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21024911/292_German_1112_KPCh_Virus_Updates_German_.pdf)
+周四（19/11/2020）包括新西兰在内的五眼联盟（澳大利亚，加拿大，英国和美国）发表联合声明，五眼联盟成员国外长称“严重关切”北京授权撤销民主派议员资格的决定。指责北京“有预谋”禁绝反对声音，批评北京打压香港民主派议员。
 
-[292\_Korean\_1112\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21024913/292_Korean_1112_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21024913/292_Korean_1112_CCP_Virus_Updates.pdf)
+新西兰多媒体新闻平台NEWSHUB在赵立坚野蛮回应后，当天在报道中称中国为“中土王国”，报道引用了前外长彼得斯的话说：不恰当的滥用语言，于事无补，我们要表达的是，我们相信了你（中土王国）在1997年香港回归中土王国时做出的承诺“一国两制”，现在请兑现承诺。如果你可以兑现承诺，我们也会改变立场。当时7月份，新西兰加入中止与香港引渡条约行列，认为北京强行取代香港，制定港版国安法，香港民主派指中共此法实际上是为镇压他们量身打造。
 
-[292\_Spansih\_1112\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21030115/Unknown-1_2.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21030115/Unknown-1_2.pdf)
+半年不到，北京政权已经将香港立法会里的民主派赶尽杀绝，中国人大常委会11月11日通过的决定，赋予了香港政府广泛的新权力，允许其剥夺那些没有明显对中国表示忠心的议员席位。香港特区政府即时颁令撤销四名民主派议员资格，余下15名泛民主派议员随即集体辞职。目前香港议会内仅余一名激进民主派议员和一名中立议员。
+
+近几个月来，北京支持的当局已经逮捕了民主派领导人及活动人士，因为它决心让这座半自治城市屈服、结束在去年大部分时间里席卷全城的抗议活动。北京及其支持者也对香港独立的司法体系和发出反抗声音的新闻媒体增加了压力。
+
+中国外交部的凶恶嘴脸已经彻底撕掉了他挂在嘴边的自由，民主，为 人民服务的伪装，露出了掩藏在人类命运共同体伪论下的血盆大口。独裁王国的子民就是砧板上的肉，要杀要剐国王说了算，外邦友邻如果看到了打抱不平，要小心眼睛被戳瞎。但是今日的世界已经看清了中共得狼子野心，中土国目标不在香港，他心里盘算着全世界，美国大选已经看出他们的手伸的够长了， 世界再不绝地反击，地球将处处是香港。
+
+
+
+[新闻链接](https://www.bbc.com/zhongwen/simp/chinese-news-54997599)
 
 0

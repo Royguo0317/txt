@@ -1,27 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西班牙加利西亚提案强制接种新冠疫苗引人忧
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/576779/)
+## 【热点播报】劲爆！鲍威尔透露：政府正在深度介入调查——Dominion公司已经人去楼空！
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/577192/)
 
-- 编辑：Víctor Torres
-- 翻译：帅虎
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20165916/logo-3.jpg)
 
+作者：香草山写作组 正道主义联盟
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20220832/11212.png)
+西德尼·鲍威尔今天早上在Glenn Beck的电台节目接受了采访，爆出惊人内幕：她在采访中说道：
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+“我们处在一个全球规模的刑事犯罪阴谋下！这真是令人大开眼界”！
 
-西班牙2020年11月20日电/喜西社/——本周四，加利西亚自治区主席阿尔贝托·努涅斯·费约(Alberto Núñez Feijóo) 在加利西亚议会上提交了一份议案，该议案包含强制市民接种新冠疫苗的内容。
+现在所看到的，都只触及了冰山一角！前几天，在德国服务器style被没收了！听说是我们军队获得了这些服务器. 现在Scytl服务器已经掌握在美军手中。正在检索关键信息。美国政府正在深入调查！而我们也有证据表明，有四个国家跟这些服务器有连线，而这些是美国极端敌对国！极其对国家不利的。
 
-议案要求对那些在新冠疫苗到达后，拒绝接种或者接受PCR检测的人处以3000欧元的罚款。另外，严重违法行为的罚款在3000到60000欧元之间，包括拒绝向当局提供支持或协助，不遵从当局的指示。
+现在，Dominion设备管理公司陷入了恐慌。有100多名员工正在删除公司Linin并加紧努力撇清关系。Dominion机器公司的主管们与索罗斯和克林顿夫妇联系在一起。这些人现在都在逃离。他们关闭了他们与索罗斯基金共用的在多伦多的办公室。在丹佛的办公室也突然关闭并撤离。
 
-该议案的提起引起了人们对疫苗安全性的担忧。一方面鉴于新冠疫苗还处于初期投放阶段，样本规模小，试验时间短，大范围使用后的有效性和安全性难以确定。另一方面，由于目前阶段疫苗缺乏针对抗体依赖性增强(ADE)的研究，接种疫苗存在一定的风险，ADE是指一些次优的抗体（一般为可结合病毒的非中和抗体）与病毒结合后，抗体的Fc段与免疫细胞表面表达Fc受体结合，从而使病毒更容易进入免疫细胞的现象。
+尽管很多证人不愿意透露身份，是受到一定的影响及面临安全问题。我们得到的信息已经不是消防栓喷涌而出，她说从周末开始，证据将像海啸一样袭来！
 
-另外，该议案是否涉嫌侵犯公民的宪法权利也值得讨论。
+审核：浪迹天涯
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14162240/image0-2-6.jpg)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09104114/PHOTO-2020-11-08-02-34-23.jpg)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
-
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20165916/logo-3.jpg)
 0

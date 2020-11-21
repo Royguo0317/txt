@@ -1,29 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友寄语】宁呜而死，不默而生
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/577364/)
+## 中共通过控制红衫资本拿下了美国政权
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/577417/)
 
-编撰：心听见
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24064746/WhatsApp-Image-2020-10-24-at-15.08.49.jpeg)
+作者：康州农场-GTalk心语堂
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20233851/image2-10.jpeg)
+美国红杉资本（Sequoia Capital）成立是一家1972年在美国加州成立的资本公司。1984年美国红衫资本收购美国Automatic Voting Machine Corporation (AVM)自动投票机集团。公司改组为红衫投票系统 （Sequoia Voting Systems）。
 
-审核：MY
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20231917/%E5%AE%8B%E5%8F%82%E6%94%BF%E8%8C%83%E6%96%87%E6%AD%A3%E5%85%AC%E4%BB%B2%E6%B7%B9.jpg)图片：宋参政范文正公仲淹
-「宁呜而死，不默而生」，这是九百多年前北宋政治名人范仲淹因看到当时的朝政腐败坏，多次谏言而得罪权贵被贬，而响应诗友梅尧臣告诫诗中的一句名言，表达不想沉默无言的苟且偷生，也要谏诲自由，而留传至今。
+[https://en.wikipedia.org/wiki/Sequoia\_Capital](https://en.wikipedia.org/wiki/Sequoia_Capital)
 
-在于中华民族几千年历史中的各国朝代都是以帝皇体制为中心，封建奴隶制度为立国之本，一直以来普天之下莫非王土，封建制度下的传统文化思想关于庙堂之事几乎没有言论自由可言，因封建制度思想的教育方式，老百姓就算对封建朝政的不满或不平等对待也不懂如何发声抗议，然而那些身居高位的文人或者议士也只能以诗词歌赋的方式来表达自己对当时的社会制度的想法，而每个朝代腐败不堪最终末落导致灭亡而被另一胜者为王所更替，造成老百姓难以安居落业社会落后。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20231925/%E5%AD%AB%E4%B8%AD%E5%B1%B1%E5%85%88%E7%94%9F.jpg)图片：孙中山先生
-当世界正迈向文明社会发展方向时，在孙中山先生领导的辛亥革命推翻了最后一个封建帝制皇朝，于1912年年1月1日成立了亚洲第一个得到国际广泛承认的，以民主制度为基础的民主国家，中华民国，经历了因军阀割据的北伐战争才使中华民国开始了短暂的中国民主制度发展史，因西方国家的教育文化方式取代了传统封建文化教育制度。使中国大地育出新生一代有民主意识的知识名人之士，可惜好景不长，刚刚开始正在改变的社会秩序又被一场蓄谋已久的侵略战争所阻挡了，当时正在萌芽阶段的民主制度进一步的发展。
+[https://en.wikipedia.org/wiki/Sequoia\_Voting\_Systems](https://en.wikipedia.org/wiki/Sequoia_Voting_Systems)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20233923/image3-7-scaled.jpeg)
+2005年3月Smartmatic收购了美国红杉投票系统（Sequoia Voting Systems），并为其研发和更新了投票系统软件。Smartmatic 是1997年由Antonio Mugica, Alfredo José Anzola and Roger Piñate 三人在委内瑞拉共同创立的。2000年4月Smartmatic在乔拜登的家乡特拉华州注册。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20234005/image4-7.png)
+分析：
 
-因有了言论自由，人民开始了对政府不满的事情进行游行抗议发声，而每一次的抗议运动都离不开中共魔爪掌控。被正在成长的马列中共恶魔利用民主自由主义的谎言欺骗了，而得到了被蒙在鼓里的知识分子和人民的力量的支持，因此有机所乘，叛变成功夺取政权，开启了不择手段一切谎言欺骗形式来奴役中国人民的历程，用黄金蓝的方式使世界各国为利益者与中共同流合污，使揭露邪恶组织真相的正义声音得不到传播。
+Smartmatic其背后的实际控制人是委内瑞拉前总统查韦斯。其后转手现任总统马杜罗。而委内瑞拉是受中共控制的，马杜罗实际是中共白手套。换句话说，Smartmagic是中共控制的公司，所有其收购红杉投票系统后，中共就成为了红杉投票系统的实际控制人。 中共控制红衫投票系统后，为其研发和更新了投票系统软件，我们相信这个投票软件从那时候开始就已经完全被中共控制。
 
-当然经过多场的血腥暴力运动和单一的洗脑方式，国内所有反对政见人士被迫变得几乎鸦雀无声，人民也开始变得难辩明是非黑白颠倒活在中共谎言欺骗编造的中共梦中。因政府腐败的政策措施导致社会不公平遭遇对待，也不敢向政府表达要求，而把怨恨延烧在普通民众身上，极其悲哀。在98年唯一一次北京6．4学生民运为民主自由发声向腐败政权表达不满的机会，也在枪炮坦克的血腥镇压下而消亡。 70年的中共模式奴化教育洗脑到现今的文明科技时代发展的变迁，有部分人民思维也受到文明世界的影响有所改变，使邪恶的中共极权皇朝有所惧怕，惧怕人民清醒知道中共邪恶的真相。使其谎言欺骗人民的千秋万代的邪恶政权朝夕不保。虽然对政府不公平的不满情绪也有抗议行动，不想窝囊的跪下活着而发声，但终究雷声大雨点小的抗议，手无寸铁的平民百姓都被镇压到无疾而终，因为独裁极权统治下没法可依，为了保护自身和家人安全只能意会忍气吞声，形成了今日中国一片和谐社会的假象，因为无助，民间却是怨气冲天，有部分人变成冷漠无道德底线，经常造成悲剧的发生有目共睹。
+[https://en.wikipedia.org/wiki/Smartmatic](https://en.wikipedia.org/wiki/Smartmatic)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20234026/image5-6.png)
+同年2005年9月江泽民的白手套沈南鹏和美国红杉资本（Sequoia Capital）共同成立红杉资本中国基金（Sequoia Capital China）。美国红杉资本开始全面进入中国市场，参与多家中国公司的投资，几乎买下了中国互联网的半壁江山，其中包括 阿里巴巴，京东等。
 
-而在香港，人民有着百年民主自由制度和西方文化教育体系使香港市民有着独立思考思维，明白什么是极权专制什么是民主自由价值观，因为有着自由民主法治制度，使香港有知人士在对政府施政不满的情况下，都会进行和平集会抗议促使政府正视民意。当97年香港回归中共以来，中共怕近在咫尺的民主言论自由法治的社会的香港，对被蒙蔽的国内人民有所影响而清醒，使用中共就想通过各种修正香港律法来达到控制香港，成为中共社会主义特色一部分，尤其是基本法中的第二十三条，但是事与愿违，每次提案都因为当时没有被渗透的民主制度下立法会投票否决。当港市民感到危机时用自己的态度，向政府表达要求立场。从2003年50万人上街抗议，到2019年二次百万人和平游行抗议，都是为着一个目标，捍卫民主自由法治制度不被独裁专制侵蚀瓦解而发声，香港市民因为明白宁呜而死不默而生的道理，挺身而出勇敢守护着他们的家园向邪恶极权主义说：不。正因为不公才会有不平则呜。
+分析：我们相信这是中共和美国红杉资本的勾兑和利益交换。美国红杉资本帮助中共控制红衫投票系统，以实现其操控美国政坛的野心，而中共也通过资本利益的交换作为回报。
 
-可惜因香港政府不是民意选举出来，而是受控于邪恶极权专制中共任命，没有灵魂的傀儡港政府只听命于中共极权而漠视民意，用中共橡皮图章产生的恶法来压制香港人民，当港人不畏强权打压日益高涨团结一心的和平的抗议行动，使邪共忧心而用更邪恶的手法来镇压，而百万人和平大游行抗争行动得到世界各国正义人士正视和支持，为捍卫民主之地不被极权吞噬，一次又一次抗争活动都被港共黑警暴力压制，言论自由民主法制体系也因为国安恶袭施不告而终。因港共黑警用恶法针对性打压，使从人人有责的行动抗争，变得人人自危随时被扣上任何罪名而被拘捕，使正义之声暗然失色。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20231859/07_11.jpg)图片：科学家 阎丽梦 博士
-当邪恶的共产组织掩盖真相把中共病毒传播到全球时，正因为香港巿民对民主社会生活的执着而不畏强权不怕牺牲的精神顽强抗争，影响感动了我们的英雄科学家闫丽梦博士为正义发声，站出来向世界揭露中共病毒的邪恶真相。而年轻的勇士也感动了世界有正义良知的人士发声起来抗争中共的邪恶。如郭文贵先生所言：「香港是我们的耶路撒冷，我们的圣城，是灭共的一道大门」。所有坚持爆料革命的各国战友们站了出来，为正义发声传播真相，向世界展现中国人民反抗极权追求文明民主自由法治社会的向往。
+[https://finance.sina.com.cn/chanjing/gsnews/2020-09-29/doc-iivhvpwy9453210.shtml](https://finance.sina.com.cn/chanjing/gsnews/2020-09-29/doc-iivhvpwy9453210.shtml)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20234102/image6-7.png)
+2010年Smartmatic把红衫投票系统卖给了多米尼投票系统（Dominion Voting Systems）公司，多米尼继续沿用了红衫投票系统的更新软件。
 
-以上观点仅代表笔者本人
+而2018年多米尼被私募基金公司Staple Street Capital收购。Staple Street Capital 最大股东是David Mark Rubenstein 。他同时又是凯雷投资集团（Carlyle Group）的创始人。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20234142/image7-4.png)
+凯雷投资集团在1994年进入中国。是进入中国最早、规模最大、而且最活跃的全球投资公司之一。2007年凯雷公司获得了中国太平洋保险19/9%的股权，是第一家获得中国政府批准，投资大型国有保险公司的国际私募股权公司。2015年，凯雷获得统一润滑油控股权，这是在中国拥有最广销售网络的最大的独立润滑油企业。2017年，凯雷携手中信股份和中信资本，联合收购了麦当劳在中国内地和香港业务的80%股权。2017年，凯雷与其合作伙伴入股中国最大的第三方独立医学检验机构之一艾迪康。
+
+分析：不难看出，多米尼公司的实际控制方是和中共有千丝万缕联系的凯雷公司。 中共通过开放核心资源企业给凯雷公司从而获得美国多米尼公司的控制权。控制了多米尼投票系统公司，就控制了美国人的选票，从而控制了美国的政坛，控制美国。
+
+[https://baike.baidu.com/item/红杉资本中国基金](https://baike.baidu.com/item/红杉资本中国基金)
+
+Pictures from:
+https://cdn.vox-cdn.com/thumbor/u\_-6YR6kBWyxfeRonfij5TE4PWk=/0x0:6000×4000/1200×800/filters:focal(2202×2232:3162×3192)/cdn.vox-cdn.com/uploads/chorus\_image/image/66451157/GettyImages\_598748732.0.jpg 
+https://media.gannett-cdn.com/springfield/41823000001/201610/946/41823000001\_5187514590001\_5187472909001-vs.jpg?pubId=41823000001 
+https://www.mercurynews.com/wp-content/uploads/2017/08/afp\_r64f5.jpg 
+https://www.smartmatic.com/about/our-team/ 
+https://s3.amazonaws.com/cbi-research-portal-uploads/2019/03/25113710/Top\_VCs\_socialcards.png 
+https://wearethene.ws/assets/images/l0/ca/c5/cac5db3b0de51245e2eb75b31e9ddaf5f68f416bc6f8a8defb1b1d8b1daf2511.png 
+https://www.valuewalk.com/wp-content/uploads/2019/03/david-mark-rubenstein.jpg 
+https://s3.amazonaws.com/tracxnassets/cdn/screenshots/domain-profile/
+https://wwwstaplestreetcapitalcom\_sjP90cF3zT45XTBpmk9df.jpeg 
+https://content.fortune.com/wp-content/uploads/2015/02/rtr31kng.jpg 
+https://s4.reutersmedia.net/resources/r/?m=02&d=20200716&t=2&i=1526055881&r=LYNXNPEG6F1LZ
 
 0
