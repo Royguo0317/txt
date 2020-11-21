@@ -1,32 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP病毒来源：为什么说病毒是人造的之S蛋白篇
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/577170/)
+## 中共通过控制红衫资本拿下了美国政权
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/577417/)
 
-**作者：康州农场-轰炸机
-审核：康州农场-文韵**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24064746/WhatsApp-Image-2020-10-24-at-15.08.49.jpeg)
+作者：康州农场-GTalk心语堂
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20233851/image2-10.jpeg)
+美国红杉资本（Sequoia Capital）成立是一家1972年在美国加州成立的资本公司。1984年美国红衫资本收购美国Automatic Voting Machine Corporation (AVM)自动投票机集团。公司改组为红衫投票系统 （Sequoia Voting Systems）。
 
-2020年1月CCP病毒（冠状病毒）首先在中国武汉爆发，至今仅仅用了十一个月，就发展成了全球**5560万**（全球人数的0.71%）人确诊，死亡**134万**（全球人数的0.02%）人，美国确诊**1180万**（美国人数的3.6%）人，死亡**25.2万**(美国人数的0.08%)人。因为有些国家是按照病症严重程度统计人数，实际人数应该比上面显示数字要高的多。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20220834/%E5%9B%BE%E7%89%871-29.jpg)
-在全世界没发觉之前，路德社就在2020-1-19节目中为全世界做出了预警，警告大家，这是“全球大流行”病毒，会大面积传播。提供病毒预警信息的英雄科学家闫博士随后发出2份关于CCP病毒的公开报告，为世界指明了病毒来源。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20220912/%E5%9B%BE%E7%89%872-20.jpg)
-报告中指出病毒中**S蛋白**部分作用是决定病毒的宿主种类，如感染人或感染蝙蝠、穿山甲，将什么做为目标是由S蛋白决定。S蛋白分为**S1**与**S2**两个部份。其中S1部分决定病毒与什么目标结合，感染人就需要与人融合的hACE2，感染蝙蝠就需要与人蝙蝠融合的hACE2，S1的不同决定了病毒能感染人或其它什么动物。S2的作用是维持三聚体结构，使病毒更容易的进入细胞，通俗讲就是S2决定病毒结构的强度。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20220940/%E5%9B%BE%E7%89%873-13.jpg)
-如果要制做出“好用的”，“不易消灭的”，“针对人”的病毒就需要合成一个好用的S蛋白，其中要有“坚固的S2”+“对人感染的S1”。闫博士报告中写道，将CCP病毒与蝙蝠病毒与非典病毒的基因序列进行了比对，其中CCP病毒的S蛋白S2序列与ZC45/ZXC21（蝙蝠病毒）的S2序列有95%相似，S蛋白S1序列中主管感染人的部分(RBM：约70个氨基酸的片段)与非典病毒的相同部分基本相似。
+[https://en.wikipedia.org/wiki/Sequoia\_Capital](https://en.wikipedia.org/wiki/Sequoia_Capital)
 
-这种变化可以解释为蝙蝠病毒有了非典病毒的感染人的功能，或者解释为非典病毒有了蝙蝠病毒那样坚固顽强的结构。如果CCP解释为这是一种自然的进化，进化机率有亿分之一的话，那减去这个百分比就得出有99999999.99%的机率是人造的。因为，不管从蝙蝠到CCP病毒，还是从非典到CCP病毒，都没有出现过渡病毒的记录。仿佛“谁“打了个响指，CCP病毒它就出现了，这种变化是极为不正常的。
+[https://en.wikipedia.org/wiki/Sequoia\_Voting\_Systems](https://en.wikipedia.org/wiki/Sequoia_Voting_Systems)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20233923/image3-7-scaled.jpeg)
+2005年3月Smartmatic收购了美国红杉投票系统（Sequoia Voting Systems），并为其研发和更新了投票系统软件。Smartmatic 是1997年由Antonio Mugica, Alfredo José Anzola and Roger Piñate 三人在委内瑞拉共同创立的。2000年4月Smartmatic在乔拜登的家乡特拉华州注册。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20234005/image4-7.png)
+分析：
 
-本文希望让更多的人看懂病毒来源，真相就在闫博士报告中，闫丽梦博士勇敢站出来拯救地球，她是全世界的英雄，是我们爆料革命的英雄。
+Smartmatic其背后的实际控制人是委内瑞拉前总统查韦斯。其后转手现任总统马杜罗。而委内瑞拉是受中共控制的，马杜罗实际是中共白手套。换句话说，Smartmagic是中共控制的公司，所有其收购红杉投票系统后，中共就成为了红杉投票系统的实际控制人。 中共控制红衫投票系统后，为其研发和更新了投票系统软件，我们相信这个投票软件从那时候开始就已经完全被中共控制。
 
-参考信息：
+[https://en.wikipedia.org/wiki/Smartmatic](https://en.wikipedia.org/wiki/Smartmatic)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20234026/image5-6.png)
+同年2005年9月江泽民的白手套沈南鹏和美国红杉资本（Sequoia Capital）共同成立红杉资本中国基金（Sequoia Capital China）。美国红杉资本开始全面进入中国市场，参与多家中国公司的投资，几乎买下了中国互联网的半壁江山，其中包括 阿里巴巴，京东等。
 
-The\_Yan\_Report.pdf
+分析：我们相信这是中共和美国红杉资本的勾兑和利益交换。美国红杉资本帮助中共控制红衫投票系统，以实现其操控美国政坛的野心，而中共也通过资本利益的交换作为回报。
 
-[https://zenodo.org/record/4028830#.X7ezdM0zaUm](https://zenodo.org/record/4028830#.X7ezdM0zaUm)
+[https://finance.sina.com.cn/chanjing/gsnews/2020-09-29/doc-iivhvpwy9453210.shtml](https://finance.sina.com.cn/chanjing/gsnews/2020-09-29/doc-iivhvpwy9453210.shtml)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20234102/image6-7.png)
+2010年Smartmatic把红衫投票系统卖给了多米尼投票系统（Dominion Voting Systems）公司，多米尼继续沿用了红衫投票系统的更新软件。
 
-The 2nd Yan Report
+而2018年多米尼被私募基金公司Staple Street Capital收购。Staple Street Capital 最大股东是David Mark Rubenstein 。他同时又是凯雷投资集团（Carlyle Group）的创始人。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20234142/image7-4.png)
+凯雷投资集团在1994年进入中国。是进入中国最早、规模最大、而且最活跃的全球投资公司之一。2007年凯雷公司获得了中国太平洋保险19/9%的股权，是第一家获得中国政府批准，投资大型国有保险公司的国际私募股权公司。2015年，凯雷获得统一润滑油控股权，这是在中国拥有最广销售网络的最大的独立润滑油企业。2017年，凯雷携手中信股份和中信资本，联合收购了麦当劳在中国内地和香港业务的80%股权。2017年，凯雷与其合作伙伴入股中国最大的第三方独立医学检验机构之一艾迪康。
 
-[https://zenodo.org/record/4073131/files/The%202nd%20Yan%20Report.pdf?download=1](https://zenodo.org/record/4073131/files/The%202nd%20Yan%20Report.pdf?download=1)
+分析：不难看出，多米尼公司的实际控制方是和中共有千丝万缕联系的凯雷公司。 中共通过开放核心资源企业给凯雷公司从而获得美国多米尼公司的控制权。控制了多米尼投票系统公司，就控制了美国人的选票，从而控制了美国的政坛，控制美国。
+
+[https://baike.baidu.com/item/红杉资本中国基金](https://baike.baidu.com/item/红杉资本中国基金)
+
+Pictures from:
+https://cdn.vox-cdn.com/thumbor/u\_-6YR6kBWyxfeRonfij5TE4PWk=/0x0:6000×4000/1200×800/filters:focal(2202×2232:3162×3192)/cdn.vox-cdn.com/uploads/chorus\_image/image/66451157/GettyImages\_598748732.0.jpg 
+https://media.gannett-cdn.com/springfield/41823000001/201610/946/41823000001\_5187514590001\_5187472909001-vs.jpg?pubId=41823000001 
+https://www.mercurynews.com/wp-content/uploads/2017/08/afp\_r64f5.jpg 
+https://www.smartmatic.com/about/our-team/ 
+https://s3.amazonaws.com/cbi-research-portal-uploads/2019/03/25113710/Top\_VCs\_socialcards.png 
+https://wearethene.ws/assets/images/l0/ca/c5/cac5db3b0de51245e2eb75b31e9ddaf5f68f416bc6f8a8defb1b1d8b1daf2511.png 
+https://www.valuewalk.com/wp-content/uploads/2019/03/david-mark-rubenstein.jpg 
+https://s3.amazonaws.com/tracxnassets/cdn/screenshots/domain-profile/
+https://wwwstaplestreetcapitalcom\_sjP90cF3zT45XTBpmk9df.jpeg 
+https://content.fortune.com/wp-content/uploads/2015/02/rtr31kng.jpg 
+https://s4.reutersmedia.net/resources/r/?m=02&d=20200716&t=2&i=1526055881&r=LYNXNPEG6F1LZ
 
 0

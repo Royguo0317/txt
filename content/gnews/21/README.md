@@ -1,13 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Sidney Powell：Dominion选票机嵌入式源代码可修改选举结果
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/577078/)
+## 快讯！朱利安尼儿子安德鲁COVID-19测试阳性！
+` GM77` [轉載自GNews](https://gnews.org/zh-hans/577318/)
 
-Sidney Powell：Dominion选票机嵌入式源代码可修改选举结果，德克萨斯州早在2019年就拒绝在该州使用Dominion，但世界上的极权国家却趋之若鹜；川普总统已获得压倒性胜利，要为投票支持自由的美国人民夺回美利坚
+编撰: WENJUN；审核：WLQF
 
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20230535/%E5%9B%BE%E7%89%87-1-15.png)
 
+社交媒体推特截图
 
-By: 【秘密翻译组G-Translators】
+几个小时前，朱利安尼的儿子安德鲁发推说COVID-19测试呈阳性。推文中文翻译如下：
+
+「“今天早上，我对COVID-19测试呈阳性。我遇到轻度症状，并遵守所有适当的规程，包括隔离检疫和进行接触者追踪。”」
+
+无独有偶，网络上特别中文媒体大范围在发特朗普大儿子吉尔感染新冠肺炎的报道。不过截至发稿前编者在吉尔和其家人推特上暂时没有找到相关信息。
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20230545/%E5%9B%BE%E7%89%87-2-11.png)
+
+图片来自网络截图
+
+近日朱利安尼刚刚结束总统大选诉讼重大案情发布会，儿子就感染新冠，这真的是巧合吗？当前，川普总统及其团队正快马加鞭就此次大选舞弊展开法律行动。
+
+无论是否巧合，说明黑暗力量和中共并不愿坐以待毙，他们每时每刻都在行动，让我们为正义之士祷告！正义必胜，世界将不再沉沦！
 
 0

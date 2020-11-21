@@ -1,36 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 朱利安尼：美国两党爱国者都在指控选举舞弊
-` GM107` [轉載自GNews](https://gnews.org/zh-hans/576704/)
+## 白宫贸易顾问纳瓦罗指责中共在全球释放病毒
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/576911/)
 
-美国总统唐纳德-川普的法律团队周四召开了新闻发布会，讲述了已经被揭发的选举舞弊事件。其中大量的舞弊案例是由美国两大政党的公民举报的，他们希望维护美国选举的真实性。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20164404/Giuliani-Press-Conference-1-640x480-1.jpg)WASHINGTON, DC – NOVEMBER 19: Rudy Giuliani exits after speaking to the press about various lawsuits related to the 2020 election, inside the Republican National Committee headquarters on November 19, 2020 in Washington, DC. President Donald Trump, who has not been seen publicly in several days, continues to push baseless claims about election fraud and dispute the results of the 2020 United States presidential election. (Photo by Drew Angerer/Getty Images)
-“这就把我们带到了密歇根州，那里有一个诚实的民主党人说他们在作弊，”川普的首席律师鲁迪-朱利安尼在新闻发布会上对记者说。”我们会给你看她的宣誓书，因为我知道你一直在虚假的报道，说我们没有证据。”
+*多伦多加喜农场 文𤦍(Manpui）
+校对 MyWay 上传 WJ*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20191543/Screen-Shot-2020-11-19-at-9.28.59-PM.jpg)图片来源:America This Week
+在接受《美国本周》（America This Week）埃里克·博林（Eric Bolling）秀节目采访时，白宫贸易顾问彼得·纳瓦罗指责中共向全球发送数十万人散播病毒，造成全球病毒大流行。
 
-“说我们没有具体的舞弊证据，”朱利安尼说。”那是因为对这件事的报道几乎和事情本身一样不诚实。”
+在节目中，主持人埃里克·博林讥讽纳瓦罗的说法属于阴谋论，而且这是离奇、毫无根据的指责。博林在采访中询问纳瓦罗拜登和中国政府之间的关系，同时对川普总统进行了攻击，认为川普拒绝承认拜登在选票上的领先优势是愚蠢的。
 
-“美国人民有权知道这些，”朱利安尼说。
+纳瓦罗回应了主持人博林的嘲讽，坚定认为川普总统将会连任。然后纳瓦罗继续申明川普总统现在身处沼泽之中，但仍然站出来对抗中共，而拜登对中共则是完全的妥协。
 
-朱利安尼说，媒体不应该对目前调查所揭示的内容撒谎，包括这些美国人站出来分享他们的关于选举舞弊的故事。
+纳瓦罗问道，每次早上醒来，看到病例激增，我就会想，为什么人们对中共将这种病毒传染给我们不感到愤怒。他们在这里杀人，然而我们看到主流媒体就是不去谈论这些，民主党也不去触及这类话题。我们应该去指责这场病毒大流行真正的罪魁祸首中共，他们才是造成人们死亡的元凶。
 
-“你不报道他们，这个国家的一个公民、一个非常优秀的女人，她愿意让我把她的名字告诉你……” 朱利安尼说：”我不能给你所有这些宣誓书。”我不能把这些宣誓书都给你们，因为如果我这么做，这些人会受到骚扰，他们会受到威胁。”
+博林要求纳瓦罗详解一下是中共创造了这种病毒还是只是将病毒释放出来。纳瓦罗回答说：“病毒是去年11月在中共的一个生物武器实验室中制造的，我们不知道它是否有意释放出来，但这不重要，重要的是中共将其隐藏了60天，在那段时间里，他们封锁了整个国家，因为他们知道这很危险，不希望自己的人民被感染。然而中共在封锁自己国家的时候，却用飞机运送几十万人到世界各地自由旅，散播病毒。
 
-但有些人愿意公开他们的宣誓书，包括为底特律市工作的杰西-雅各布。
+博布此后开始转移话题，又回到不停止所有旅行和故意派出感染者传播病毒之间区别的话题上。纳瓦罗回应道，这要么是过失杀人，要么是有预谋的谋杀，或者是介于两者之间。
 
-“她在9月期间被派去投票，”朱利安尼说。”她受到了训练，基本上是训练她作弊。她说，’我的主管指示我把这些缺席邮递包裹的邮寄日期调整为比寄出时更早’。”
+博林抓住这一点，说允许人们旅行会被认为是 “过失杀人，在某些地方如果你指示他们这样做，那就是杀人”。
 
-“主管发出的公告是为了让所有的工人从事这种作弊行为，”朱利安尼说。”那不是我说的，那是一个美国公民在宣誓后说的。”
+纳瓦罗最后回答，我们需要查清真相！我想每个人都想弄清楚这件事的真相。 大选已经结束了，《纽约时报》、《华盛顿邮报》这些媒体现在应该开始讨论这个问题了，因为中共正在杀害美国人，他们需要对此负责。
 
-朱利安尼还说，这名妇女说：她看到选举工作人员非法辅导人们投票给谁。
+评论：
+这些没有良知的人、没有责任的媒体，总是无法放弃他们的偏见和一己私利。中共病毒造成的疫情是一场超限战，它比一战二战时还要惨烈。整个人类都面临著极其严峻的挑战。不仅如此，中共病毒更暴露了整个人类社会的腐败与堕落，全世界人民都需要在这次美国大选中觉醒，人类如果不想灭亡就必须向“中共”追责，将邪恶势力从地球上清除。正如闫丽梦博士所言，留给我们的时间已经不多了，该行动了！
 
-他告诉记者，很多证据都是公开的，记者可以在网上查阅，包括密歇根州的康斯坦丁诺诉底特律市案。
+[原文链接](https://www.mediaite.com/online/trump-trade-advisor-peter-navarro-goes-full-tinfoil-hat-accuses-china-of-sending-hundreds-of-thousands-of-people-around-the-world-to-seed-that-virus/)
 
-“你们要想知道我是否有误导你们，只需要看看诉讼案就可以了，”朱利安尼说。”看看指控的内容，看看宣誓书。”
-
-朱利安尼说，虽然并不是所有的宣誓书都被公开，但公民已经提供了数百份宣誓书。
-
-新闻来源：BREITBART NEWS
-原文链接：[https://www.breitbart.com/2020-election/2020/11/19/rudy-giuliani-the-case-for-election-fraud-being-made-by-american-patriots-in-both-parties/](https://www.breitbart.com/2020-election/2020/11/19/rudy-giuliani-the-case-for-election-fraud-being-made-by-american-patriots-in-both-parties/)
-
-1+
+0

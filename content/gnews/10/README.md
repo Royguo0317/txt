@@ -1,134 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国务院最新报告：中共国在海外的胁迫性战略
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/577267/)
+## 2020-11-21 康州农场本日新闻热点
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/577522/)
 
-多伦多加喜农场 云起时
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/30033626/%E9%80%9F%E6%8A%A5-1.jpg)
+新闻采集：康州农场-Truemanman
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20223517/SinoInsider.jpg)图片来自Sino Insider
-美国国务院近日发布了对中共国在海外的胁迫性战术分析及应对方案的报告，指出中共通过全球媒体宣传，作为软实力平台的孔子学院，“统一阵线 ”的颠覆性议程，通过技术和智能手机应用扩大影响力，以及操纵娱乐业等五大方面，以种种方式胁迫操纵全世界，试图完成统治全世界的暗黑议程。
+新闻编辑：康州农场-轰炸机
 
-报告全文如下 ：
+审核：康州农场-文韵
 
-**应对中共国的胁迫性战术策略**
+**一、美国务院发布揭露中共的海外胁迫性战略的报告**
 
-中共利用美国和其他民主国家的自由，推进自己的意识形态叙事，操纵世界新闻报道。中共通过利用政府拥有或经营媒体，以中共控制的 “教育”和“文化机构”在美国和海外的战略位置来实现这一目的。
+美国国务院政策规划办公室将发布美国应对中共崛起成为独裁超级大国的蓝色计划书。长文呼吁建立强大联盟以及复兴宪政民主这份长达70多页的报告探讨了中国共产党的有害行为，意识形态来源，面临的困难，以及美国及其盟友如何应对等问题。
 
-中共国的主要代表积极利用推特和脸书等西方社交媒体平台（这些平台在中共国境内都被禁用），传播着经中共核心领导层认可的谎言和虚假叙述。这些实体的作用是传播宣传和虚假信息，同时压制对中共的批评。
+**二、鲍威尔确认美国在德国收缴的服务器已在美国军方，有4-5个外部反对势力进行大选干预，目前正在调查中**
 
-在中共国国内，中共控制着媒体和所有形式的讨论和信息。中共还禁止国内几乎所有民众对国际新闻和媒体的访问，威胁和恐吓对中共进行批评性事件报道的外国记者，并积极监控和阻挠通过电信网络和智能手机应用程序的数据流动。
+鲍威尔在福克斯新闻接受Lou Dobbs采访，首次公开确认了服务器被收缴的消息。随后，川普团队的Brian Trascher接受NewsMax采访，不但确认服务器，而且明确警告美国老百姓，真相即将大白于天下，美国极左将发动史无前例的骚乱，所有人必须做好准备。
 
-在全球范围内，中共对软件开发商和电信服务提供商施加压力，以确保任何批评中共国的言论，包括人权、台湾、西藏、天安门广场大屠杀、香港和其他 “敏感 “话题，要么被压制，要么以正面形象呈现。  中共还利用其经济实力威胁和逼迫娱乐公司、汽车制造商、运动队、航空公司和其他任何接触中共国市场的公司对产品、广告和公开声明进行自我审查，以便与中共的信息保持一致。
+**三、多米尼投票公司在多伦多办公室目前在搬离，网页上关键职员名字在被撤下**
 
-**全球媒体宣传**
+鲍威尔证实，多米尼投票机使用的软件SmartMatic就是委内瑞拉独裁者查韦斯主持设计开发的。SmartMatic的老板布朗爵士则是索罗斯集团的二号人物，而乔治·索罗斯则是民主党最大的金主，也是安提法最大的金主。现在一夜间位于加拿大多伦多的多米尼公司已经人去楼空。
 
-正如中共国国家主席和中共总书记习近平明确承认的那样，中共将中共国媒体实体视为支持中共继续掌权的工具。这种做法符合马列主义思想，即要控制一个民族，就必须控制他们的思想。官办媒体在全球范围内通过歪曲事实、审查不想让人们知晓的真相、进行歪曲报道以符合中共的喜好等方式来传播虚假信息。中共国政府近年来大大扩展了其海外包括在美国的宣传行动。
+**四、川普私人律师朱利安尼的儿子安德鲁·朱利安尼（Andrew H. Giuliani）于10:39分发文推特表示：自己刚刚新冠病毒检测结果呈阳性，目前症状轻微，正在进行隔离**
 
-2020年，美国国务院认定，某些在美国运营的中共国附属媒体实际上是由该国政府控制的，因此符合《外国使团法》中“外国使团”的定义。  国务院随后将15家在美国经营的中共国附属媒体指定为中共国的外国使团，并随后对其中一些实体规定了人员上限。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20223633/%E5%9B%BE%E4%B8%80-4.jpg)美国国务卿迈克尔-R.-蓬佩奥(Michael R. Pomepo)：“全世界都能看到中共不说真话。”
+川普私人律师儿子新冠阳性路透社刚刚消息，川普私人律师鲁迪·朱利安尼的儿子安德鲁·朱利安尼新冠检测阳性。 “今天早上，我的新冠肺炎检测呈阳性。”安德鲁当地时间20日发推称。他还说，他出现了轻微症状，目前正在自我隔离。
 
-相关信息：
+**五、林伍德LinWood最新采访确认，美军从法兰克福收缴的Scytl服务器数据显示，川普总统大选取得压倒性大胜，得到410张选举人票 , 总得票率超过70%**
 
-[多家中共国媒体实体被定义为驻外使团](https://www.state.gov/designation-of-additional-chinese-media-entities-as-foreign-missions/)【1】
+林伍德：“这次整个选举是个骗局，川普可能赢得了400多张选举人票的，是70%以上的压倒性胜利。”伍德说。”我们正在一步步揭开选举欺诈的层层面纱，我们一定会找到真相，川普会继续连任，再当四年总统，真相会水落石出”。
 
-[中共对对全球媒体操纵情况概述](https://share.america.gov/report-outlines-beijings-global-media-manipulation/) 【2】
+**六、美国内阁层级的环保署署长惠勒（Andrew Wheeler) 计划下个月率团访问台湾**
 
-**作为软实力平台的孔子学院**
+美国内阁层级的环保署署长惠勒（Andrew Wheeler) 计划下个月率团访问台湾。台湾行政院长苏贞昌星期五（11月20日）证实了这个消息。这将是今年8月以来第三位访问台湾的美国高级官员。台湾表示乐见惠勒来访。中共外交部称坚决反对任何形式的美台官方往来。
 
-自2004年以来，中共国在全球范围包括美国学校和大学校园内建立并资助了数百所孔子学院。孔子学院通常由中共国学者、当地教师和中共选派的中共国教师共同组成，教授中共认可的中文、历史和文化的狭义版本。全国学者协会跟踪调查了70多个仍在美国境内运作的孔子学院，与孔子学院合作的大学的教师报告说，孔子学院施加压力和威胁，要求取消对被认定为批评中共国的个人或活动的资助。同样，“孔子课堂”在数百所美国从小学到高中全面提供中共认可的课程和经过中共国培训的教师，每天影响着数万名美国学童。
+**七、前美国国防部印太助理部长薛瑞福日前表示，川普政府对台湾常态性军售，也不再视台湾为中国问题的一部分，是重要的观念改变**
 
-对此，2019年《国防授权法》禁止承办孔子学院的大学接受美国国防部的中文学习经费。另外，自2019年以来，美国联邦调查局也敦促美国高校重新审视与孔子学院的关系，称孔子学院对国家安全和学术自由构成威胁。 2020年8月，美国国务院将位于华盛顿特区的孔子学院美国中心（CIUS）指定为中共国驻外使团。这一行动并没有关闭CIUS，也没有要求美国高校关闭孔子学院。相反，这一指定旨在提高透明度，将CIUS认定为受中共政府实际控制的实体，并要求CIUS向国务院提供有关其运作的信息。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20223824/%E5%9B%BE%E4%BA%8C-4.jpg)美国国务卿迈克尔-R-蓬佩奥(Michael R. Pompeo)：“两党参议院委员会于去年2019年发现，中共党控制了孔子学院在美国活动的几乎所有方面。”
+薛瑞福透露，负责东亚事务的美国国防部副助理部长柯林克（Heino Klinck）曾经造访台湾，也能与其他主管的国家讨论台湾议题，不用顾虑中方，他也期望新政府（原新闻指的是“拜登政府”）能继续视台湾为一个有其自身优势且值得投资的国家，而不仅是中国问题的一部分。
 
-相关信息：
+**八、川普总统预计将参加周五晚上亚太经合组织（APEC）的正式峰会，并发表讲话，并有可能会在视频会议上与中国国家主席习近平相见**
 
-[中共国对美国教育体系的影响](https://www.hsgac.senate.gov/subcommittees/investigations/hearings/chinas-impact-on-the-us-education-system)【3】
+由于新冠疫情关系，这次会议通过视频进行。周五，APEC成员国的领导人将讨论疫情和全球经济复苏的问题。预计，与会领导人在会议结束时将会发表一份联合声明，名称可能是“吉隆坡宣言”。
 
-[“孔子学院美国中心 ”被指定为外国使团](https://www.state.gov/confucius-institute-u-s-center-designation-as-a-foreign-mission/) 【4】
+**九、FDA批准COVID-19药物组合的紧急使用授权**
 
-[中共在美国校园：机遇与风险](https://www.state.gov/wp-content/uploads/2020/09/CCP-on-campus-FINAL.pdf)【5】
+美国食品药品管理局（FDA）周四发布紧急使用授权，允许礼来的类风湿关节炎药物baricitinib（商品名Olumiant）与吉利德的抗病毒药物瑞德西韦（remdesivir）配合使用，来治疗新冠肺炎。这是该机构首次批准对新冠病毒的合并用药。
 
-[孔子学院在校园推动中共宣传叙事](https://share.america.gov/confucius-institutes-advance-chinese-propaganda/)【6】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20223922/%E5%9B%BE%E4%B8%89-1.jpg)白宫国安顾问罗伯特-奥布莱恩（Robert O’Brien)：“中共致力于完全地控制人们的生活。”
-
-**“统一阵线”的颠覆性议程**
-
-统一战线是中共所谓夺取和维持全面政治权力的 “法宝”中的第三种，与武装斗争和建党并列。中共利用其所谓的“统一战线”组织和选民的工作，来合纵连横，消除可能反对其政策和权威的来源。中共的统一战线工作部（UFWD）负责协调国内和国外的影响行动，通过宣传和操纵易受影响的受众和个人。
-
-中共的统一战线渗透到其与国际社会广泛接触的每一个方面。它的目标是西方民主国家的最高层，它建立了一个长期服务于中共国的说客阶层，他们的主要工作是向美国企业出售与中共国高层领导人接触的机会。统一战线还通过中共的姐妹城市计划、贸易委员会和友好协会等无数的战线组织，深入渗透到州、地方和市政府。
-
-统一战线体系影响美国高等教育和学术自由的一个例子是中共国学生学者协会（CSSA）。上世纪70年代末，当中共国政府首次允许其公民进入西方大学时，中共促成了在西方校园建立中共国学生学者协会（CSSA）分会，以监督在国外学习的中共国学生，确保他们的观点与中共的信仰保持一致。时至今日，中共统战部继续将CSSA作为其影响行动的对象，它越来越肆无忌惮地压制西方校园的知识探讨。CSSA分会努力抑制中国人和他国同龄人之间的辩论和互动，以阻止前者学习新的观点或尝试挑战中共的教条，而中共国的外交机构则经常向CSSA分会提供资金和指导，甚至鼓励成员破坏校园内质疑中共意识形态或立场的讲座或活动。
-
-对此，国会两党的美中经济与安全审查委员会在2018年发布了一份详细的报告，敦促美国政府更好地了解北京的统一战线战略、目标，以及负责实现这些目标的行为体，以便制定有效和全面的应对措施。
-
-相关信息：
-
-[中共海外统战工作：背景及对美国的影响](https://www.uscc.gov/research/chinas-overseas-united-front-work-background-and-implications-united-states)【7】
-
-[中国和平统一促进会被认定为中华人民共和国驻外使团](https://www.state.gov/designation-of-the-national-association-for-chinas-peaceful-unification-nacpu-as-a-foreign-mission-of-the-prc/) 【8】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20224427/%E5%9B%BE%E5%9B%9B.jpg)美国国务卿迈克尔-R-蓬佩奥(Michael R. Pompeo)：“华为和其它中共以国家力量支持的科技公司是中共情报机构的‘特洛伊木马’”
-
-**通过技术和****APP扩大影响力**
-
-随着世界对技术的日益依赖，中共的影响力也在不断扩大。中资科技公司对美国的国家安全、知识产权、人权以及全球经济独立和安全构成了严重威胁。华为、中兴和腾讯等公司的5G电信设备、软件和服务，由于其与中共的内在联系和可能被滥用，已经带来了世界性的安全问题。微信和抖音这两款在全球拥有数亿用户的热门应用，都受到中共的监控和审查；美国和其他地区的用户如果在这些应用中发布对中共当局的批评，比如支持香港的抗议者，就会遭受各种惩罚性措施，包括停止使用服务。
-
-作为回应，国务院于2020年8月启动了“清洁网络”计划，以建立一个由志同道合的盟友和合作伙伴组成的联盟，致力于保护公民的隐私和公司的敏感信息免受恶意行为者的侵略性入侵。此外，唐纳德-J-川普总统于2020年8月发布行政命令，应对抖音和微信带来的威胁。
-
-相关信息：
-
-[清洁网络](https://www.state.gov/the-clean-network/) 【9】
-
-[关于应对抖音构成的威胁的行政令](https://www.whitehouse.gov/presidential-actions/executive-order-addressing-threat-posed-tiktok/)【10】
-
-[关于应对微信带来的威胁的行政命令](https://www.whitehouse.gov/presidential-actions/executive-order-addressing-threat-posed-wechat/)【11】
-
-[中共的审查制度是一个全球性问题](https://share.america.gov/chinese-censorship-is-global-problem/)【12】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20224254/%E5%9B%BE%E4%BA%94.jpg)美国副总统麦克-彭斯(Mike Pence)：“中共一向要求好莱坞严格地以正面形象来描述中国，并对不遵从的电影公司和制片人进行惩罚。 中共的审查员会迅速编辑或取缔批评中共国的电影，即使是非常轻微的批评。”
-
-**操纵娱乐业**
-
-为了能进入利润丰厚的中共国市场，美国电影制作人必须进行自我审查，避免将中共描述为一个镇压本国公民的专制政权。1997年，当哥伦比亚三星公司制作《西藏七年》时，中共政府对该制作公司下达了为期5年的禁令，还禁止明星布拉德-皮特和大卫-休利斯进入中共国。从那时起，好莱坞电影中就很少再出现对中共政府负面的表述。
-
-中共国对美国电影的资助也影响着好莱坞的剧本。当中共控制的《环球时报》对2012年翻拍的《红色黎明》的反派是中国人表示批评时，入侵部队的旗帜被改成了朝鲜。虽然如此屈服，但该片最终还是没有被中共批准上映。同样，在1986年的电影《头号玩家》中，汤姆-克鲁斯的角色穿的炸弹夹克上贴着日本和台湾的国旗。但续集《Top Gun》，在中共国科技巨头腾讯公司的要求下，这个补丁已经被移除，因为腾讯的子公司腾讯影业是派拉蒙的联合制片人和联合发行商。新的真人电影《花木兰》甚至感谢新疆维吾尔自治区公安和宣传机关对电影制作的帮助，尽管这些实体参与了对新疆维吾尔族和其他穆斯林少数民族的持续镇压。
-
-对此，美国司法部长威廉-巴尔(William Barr)在2020年7月说，“我猜想沃尔特-迪斯尼看到他创立的公司如何与今天的外国独裁政权打交道，一定会感到沮丧。”
-
-相关信息：
-
-[谁在审查你看的电影](https://share.america.gov/whos-been-censoring-your-movie/) 【13】
-
-[中共为什么怕鬼？](https://share.america.gov/why-is-chinese-communist-party-afraid-of-ghosts/)【14】
-
-报告最后，引用美国副总统麦克-彭斯（Mike Pence）的讲话，称“中共正在威逼利诱美国企业、电影公司、大学、智库、学者、记者以及地方、州和联邦官员”（来为它服务）。
-
-【1】[https://www.state.gov/designation-of-additional-chinese-media-entities-as-foreign-missions/](https://www.state.gov/designation-of-additional-chinese-media-entities-as-foreign-missions/)
-
-【2】https://share.america.gov/report-outlines-beijings-global-media-manipulation/
-
-【3】[https://www.hsgac.senate.gov/subcommittees/investigations/hearings/chinas-impact-on-the-us-education-system](https://www.hsgac.senate.gov/subcommittees/investigations/hearings/chinas-impact-on-the-us-education-system)
-
-【4】[https://www.state.gov/confucius-institute-u-s-center-designation-as-a-foreign-mission/](https://www.state.gov/confucius-institute-u-s-center-designation-as-a-foreign-mission/)
-
-【5】[https://www.state.gov/wp-content/uploads/2020/09/CCP-on-campus-FINAL.pdf](https://www.state.gov/wp-content/uploads/2020/09/CCP-on-campus-FINAL.pdf)
-
-【6】[https://share.america.gov/confucius-institutes-advance-chinese-propaganda/](https://share.america.gov/confucius-institutes-advance-chinese-propaganda/)
-
-【7】[https://www.uscc.gov/research/chinas-overseas-united-front-work-background-and-implications-united-states](https://www.uscc.gov/research/chinas-overseas-united-front-work-background-and-implications-united-states)
-
-【8】[https://www.state.gov/designation-of-the-national-association-for-chinas-peaceful-unification-nacpu-as-a-foreign-mission-of-the-prc/](https://www.state.gov/designation-of-the-national-association-for-chinas-peaceful-unification-nacpu-as-a-foreign-mission-of-the-prc/)
-
-【9】[https://www.state.gov/the-clean-network/](https://www.state.gov/the-clean-network/)
-
-【10】[https://www.whitehouse.gov/presidential-actions/executive-order-addressing-threat-posed-tiktok/](https://www.whitehouse.gov/presidential-actions/executive-order-addressing-threat-posed-tiktok/)
-
-【11】[https://www.whitehouse.gov/presidential-actions/executive-order-addressing-threat-posed-wechat/](https://www.whitehouse.gov/presidential-actions/executive-order-addressing-threat-posed-wechat/)
-
-【12】[https://share.america.gov/chinese-censorship-is-global-problem/](https://share.america.gov/chinese-censorship-is-global-problem/)
-
-【13】[https://share.america.gov/whos-been-censoring-your-movie/](https://share.america.gov/whos-been-censoring-your-movie/)
-
-【14】https://share.america.gov/why-is-chinese-communist-party-afraid-of-ghosts/
+**十、全球确诊约5687万 超过136万人死亡** 法新社官方数据显示，截至格林威治标准时间20日11点，全球至少136万914人死于新冠病毒，至少5687万2830例确诊。法新社汇总各国当局和世界卫生组织（WHO）提供的数据做出统计，但这恐怕只是实际感染总数的一部分，因为许多国家只检测有症状或症状最严重的病例。
 
 0
