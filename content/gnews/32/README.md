@@ -1,67 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世纪大案 31: 疑似出资者
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/578302/)
+## 拜登竞选团队一名总监因选举舞弊被捕
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/579032/)
 
-作者：香草山文艺组 Tiffany的早餐 校对/发稿：飞虹
+*新闻来源：thepointnews《时事新闻》；作者：Benjamin Jenkins；发布时间：2020年11月 15日*
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19024426/12345-3.jpg)
+*翻译/简评：Victory；校对：Julia Win；审核：海阔天空；Page：拱卒*
 
+[!\[\]()!\[\](https://spark.adobe.com/page/46fg2wYtBFyUJ/images/536a9cc1-aa54-4195-b637-d78c401f0181.jpg?asset_id=e407bb4a-fb4e-4804-a5cd-349ae755c6a6&amp;img_etag=%22fe4709f840f217b9b32a48ea68d983b5%22&amp;size=1024)](https://spark.adobe.com/page/46fg2wYtBFyUJ/images/536a9cc1-aa54-4195-b637-d78c401f0181.jpg?asset_id=e407bb4a-fb4e-4804-a5cd-349ae755c6a6&amp;img_etag=%22fe4709f840f217b9b32a48ea68d983b5%22&amp;size=1024)
 
+**简评：**
 
-摘要：战略视野公司是华盛顿著名的忽悠公司。郭先生雇佣战略视野公司调查CCP高官，而战略视野反过来构陷郭先生并配合CCP的遣返行动。在诉讼战中，郭先生质疑战略视野的律师费来源，引发了律师的自我保护，反而钓出了戴维斯案的大鱼。
+文中说的被捕的琼斯，不过是巨大黑幕中的小角色。本次拜登团队的舞弊是很早就开始精心策划的、涉及到美国大部分州的统一行动、全面协作。当然这背后有中共的全面支持。拜登团队的舞弊手段除了制作大量虚假选票之外，还利用其控制的邮政系统丢弃川普总统的选票，在计票过程中作假，甚至计票软件也留有后门以操控选票，再让大量的主流媒体、社交网络配合宣传。难怪乔·拜登信心满满地躲在地下室等着躺赢。满嘴谎言的他在一次电视直播中脑子短路，不小心说出实话：“我们组建了我认为美国政治史上最广泛、最包容的选民欺诈组织。”另外一次公开讲话中，拜登甚至对选民说：“我不需要你们就能当选。”
 
-1977年到1995年，马科·瓦洛(Malcolm Wallop)连任三届怀俄明州联邦参议员。瓦洛参议员在参议院加入了司法委员会([世纪大案 18：参议院司法委员会](https://gnews.org/zh-hans/446437) )、能源和自然资源委员会、情报委员会，曾任道德委员会主席。瓦洛参议员的第三任夫人是法兰西·瓦洛(French Wallop)，当年他们家的桃色丑闻搞得尽人皆知，2000年离婚。她借助丈夫在参议院特别是情报委员会之便，在战略视野公司(Strategic Vision Limited)任主席/CEO，做院外的交易。
+可惜人算不如天算，川普总统的民意高涨，以至拜登们这么多作弊手段都无法获胜，最后不得不在选举当日公然叫停计票，然后又临时补了大量的非法选票。如此大范围的作弊，必然留下海量证据。川普总统团队已经搜集找到的他们作弊的漏洞多的跟筛子眼一样。我们拭目以待，所有这些参与作恶的人，都会被一个个绳之以法。背后的操控者中共，想必也在瑟瑟发抖，它们的日子该倒数了！
 
-战略视野的另一位人物是郭文贵先生爆料常提到的迈克尔·沃勒(Michael Waller)，他是活跃的右翼专栏作家，是著名的黑水公司创始人埃里克·普林斯(Erik Prince)回忆录的代笔。早年他为瓦洛参议员工作，2017年开始他为战略视野公司工作。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21083543/Civilian-Warriors-Erik-Prince.png)沃勒给黑水创始人代笔的书 图片来源：jmichaelwaller.com
-战略视野的这一对男女打着黑水的名义做调查生意，号称服务沙特、俄罗斯、国防部、CIA，扯虎皮拉大旗，是华盛顿有名的混混忽悠。2017年底，哈德逊研究所的访问学者韩连潮介绍郭文贵先生和战略视野公司接触。2018年，郭文贵先生通过香港的东利公司(Eastern Profit Limited)，雇佣战略视野公司调查CCP高官在美的非法行为。
+**原文翻译：**
 
-合作不久，郭先生发现战略视野公司的资质有问题，遂开始对其进行诉讼。之后伴随着CCP的一系列行动(见《世纪大案》系列)，战略视野公司反过来构陷郭文贵先生并意图推动将其遣返。郭文贵先生2019年8月3日爆料：
+# 拜登竞选总监因选举舞弊被捕
 
-“而且是公司有没有调查执照，当时我问他你有没有调查执照，他说有！你没有调查执照你可不能干这事，而且你必须是依法！结果是好，他根本没有调查执照，他说他有一个欧洲的、美国的24小时的工作团队。结果他自己被法院问询的时候，‘0’！没有员工，空壳！”
+[!\[\]()!\[\](https://spark.adobe.com/page/46fg2wYtBFyUJ/images/10ec204e-ee5b-43de-8b58-b742e90230c5.jpg?asset_id=92831ac9-329b-4aee-ab1d-1525b845883c&amp;img_etag=%224727fa12a55253c89b854e5c755ba78e%22&amp;size=2560)](https://spark.adobe.com/page/46fg2wYtBFyUJ/images/10ec204e-ee5b-43de-8b58-b742e90230c5.jpg?asset_id=92831ac9-329b-4aee-ab1d-1525b845883c&amp;img_etag=%224727fa12a55253c89b854e5c755ba78e%22&amp;size=1024)
 
-“这哪是叫一个什么骗子、低级的骗子Waller、French Wallop这个女的和这个男的。这个傻人、天天造谣说我洗黑线40亿美元到智利，我真的不知道智利在哪？我查了地图发现在南美洲，我以为智利是河南省的某个县叫智利。昨天我在庭上你咋说我到智利洗钱40亿美元，你大爷的！你真敢胡扯。 ”
+乔-拜登竞选团队的德州民主党政治策略总监因选举舞弊被捕。
 
-郭先生在2020年11月19日的爆料中透露，法兰西·瓦洛和已故的参议员离婚时就在拖欠律师费，到这几年战略视野也经常拖欠律师费。就在郭先生在爆料革命一系列诉讼战中所向披靡打赢官司时，战略视野的这对男女突然有钱付律师费了。
+民主党人达拉斯-琼斯被正式指控在这次有争议的总统选举中，帮助乔-拜登竞选团队在德州进行非法收集选票活动。
 
-在纽约南区联邦法院([世纪大案 30：纽约南区联邦司法管辖区](https://gnews.org/zh-hans/578254/) )的诉讼战中，郭先生质疑战略视野的律师费来源，对方承认律师费并非来自战略视野。2020年11月，利曼法官宣布近日将宣判。战略视野的律师担心郭先生方面在陪审团面前继续质疑律师费来源，律师为了保护自己，于11月13日向法院申请禁制令，要求隐瞒费用支付方。
+据《国家档案》报道，包括一名前联邦调查局特工和一名前警察在内的两名调查人员宣誓作证说，他们有民主党的内部文件，以及视频证据和证人，以供调查。
 
-战略视野公司于11月13日提交的法律预审文件中显示，尼基·戴维斯(Nickie Davis)或埃利·布罗伊迪(Elliott Broidy)均不承认接受过中共的资金甚至代其工作。也没有证据表明这些人中的任何一个都会选择代表中共工作，并且有损美国利益。
+以下是私家侦探、休斯顿退休警官马克-阿吉雷（Mark A. Aguirre）宣誓后提交的证词。
 
-好一个掩耳盗铃。这正好提醒了所有人此案的资助者很可能是戴维斯和布罗伊迪。实际上，收了钱的律师只是来干活，他并不想和战略视野公司过度捆绑——毕竟还有FARA法案，即《外国代理人登记法》的巨大风险。用郭先生的话说，他知道郭先生方面怀疑出资者是戴维斯、布罗伊迪或者吴征，但他既不想承认也不想否认，他只是不愿意回答这个问题。律师竟然以辞职相争，把可怜的战略视野公司扔给了一脸问号的法官。
+[!\[\]()!\[\](https://spark.adobe.com/page/46fg2wYtBFyUJ/images/a2c725a4-2860-46b3-8c09-31b10f076030.jpg?asset_id=45e001f1-f82d-4650-9efd-7bd4e73a7ce1&amp;img_etag=%226bd3a47f51c851eb8782e20febf1e6ab%22&amp;size=2909)](https://spark.adobe.com/page/46fg2wYtBFyUJ/images/a2c725a4-2860-46b3-8c09-31b10f076030.jpg?asset_id=45e001f1-f82d-4650-9efd-7bd4e73a7ce1&amp;img_etag=%226bd3a47f51c851eb8782e20febf1e6ab%22&amp;size=1024)
 
-东利也就是郭先生方面在11月18日提出反驳：“战略视野公司已经声明不与任何与中共有关联的人或机构发生业务往来，该声明是构成本案的要素之一。但在本案中战略视野公司却拒绝回答是否接受了与中共有关的个人或实体的资助，这构成了声明与行为之间的冲突；而其所列举的上述理由均无法理依据，故本案的核心就是：战略视野公司是否接受了中共支持者的直接或间接的资助。” 东利公司最后进一步指出，战略视野公司先是企图将其合同欺诈的行为转移为政治案件，之后又试图援引宪法第一修正案隐瞒其诉讼资助者，该修正案此时已不适用于本案([东利反诉战略视野公司 尼基·戴维斯案受影响](https://gnews.org/zh-hans/574926/))。
+*“我叫马克-a-阿吉雷（Mark A. Aguirre）。我已年满18岁，完全有能力提供此证词。本证词中陈述的事实是我个人所知道的，是真实和无误的。*
 
-就这样，一条大鱼带着一条更大的鱼，从战略视野的两个忽悠，钓出了司法部文件的戴维斯案，乃至CCP在美国的巨大渗透网络。
+*“我是休斯敦警察局的一名退休警督。我现在是一名私家侦探。*
 
-(待续)
+*“我目前正在参与一项调查，该调查涉及哈里斯郡一个大范围的欺诈性选票收集计划，该计划旨在操纵休斯顿/哈里斯郡地区的选举。这一计划涉及大规模的选民欺诈。*
 
-相关链接：
+*“根据面谈、审查文件和其它信息，我已查明负责收集选票计划的个人。这些人包括政治顾问达拉斯-琼斯（Dallas Jones），他最近受雇于乔-拜登总统竞选活动，负责监督他们在哈里斯郡的计划；德州第13区参议员鲍里斯-迈尔斯（Borris Miles），他是琼斯先生的管理者；；政治顾问杰拉尔德-沃马克（Gerald Womack）；以及哈里斯郡第1区专员罗德尼-埃利斯（Rodney Ellis）。这些人使用的、作为这次行动的幌子之一的是AB拉票公司，不过还有其它公司已经被确认，我们正在调查。”*
 
-【[世纪大案30](https://gnews.org/zh-hans/578254/)】【[世纪大案29](https://gnews.org/zh-hans/567956/)】【[世纪大案28](https://gnews.org/zh-hans/566429/)】【[世纪大案27](https://gnews.org/zh-hans/550586/)】【[世纪大案26](https://gnews.org/zh-hans/550444/)】
+[!\[\]()!\[\](https://spark.adobe.com/page/46fg2wYtBFyUJ/images/21daff62-7940-48ff-ad50-9748c3e5deee.jpg?asset_id=5e4968c8-ce74-4178-b7ac-91fb0e74034e&amp;img_etag=%2271bc0ac5141734de391bb0670a5100c0%22&amp;size=3024)](https://spark.adobe.com/page/46fg2wYtBFyUJ/images/21daff62-7940-48ff-ad50-9748c3e5deee.jpg?asset_id=5e4968c8-ce74-4178-b7ac-91fb0e74034e&amp;img_etag=%2271bc0ac5141734de391bb0670a5100c0%22&amp;size=1024)
 
-【[世纪大案25](https://gnews.org/zh-hans/543837/)】【[世纪大案24](https://gnews.org/zh-hans/534903/)】【[世纪大案23](https://gnews.org/zh-hans/494049/)】【[世纪大案22](https://gnews.org/zh-hans/474325/)】【[世纪大案21](https://gnews.org/zh-hans/469262/)】
+*“我手里有采访证人的录像带，证明上述人员让团队分组完成数千张缺席邮寄选票，包括为已故人员填写选票；在养老院工作人员的共谋下，非法进入养老院，填写并伪造养老院住户的签名；用选票收集者的地址为无家可归者注册投票，然后填写选票并伪造无家可归者的签名。*
 
-【[世纪大案20](https://gnews.org/zh-hans/461127/)】【[世纪大案19](https://gnews.org/zh-hans/452366/)】【[世纪大案18](https://gnews.org/zh-hans/446437/)】【[世纪大案17](https://gnews.org/zh-hans/441412)】【[世纪大案16](https://gnews.org/zh-hans/438204/)】
+*“整个行动是由休斯敦/哈里斯郡的民主党精英政客们操控的。”*
 
-【[世纪大案15](https://gnews.org/zh-hans/432315/)】【[世纪大案14](https://gnews.org/zh-hans/426275/)】【[世纪大案13](https://gnews.org/zh-hans/424956/)】【[世纪大案12](https://gnews.org/zh-hans/415418/)】【[世纪大案11](https://gnews.org/zh-hans/409277/)】
+[原文链接](https://thepointnews.uk/2020/11/15/biden-campaign-director-arrested-for-electoral-fraud/)
 
-【[世纪大案10](https://gnews.org/zh-hans/385869/)】【[世纪大案9](https://gnews.org/zh-hans/377802/)】【[世纪大案8](https://gnews.org/zh-hans/369116/)】【[世纪大案7](https://gnews.org/zh-hans/364009/)】【[世纪大案6](https://gnews.org/zh-hans/359272/)】
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-【[世纪大案5](https://gnews.org/zh-hans/351469/)】【[世纪大案4](https://gnews.org/zh-hans/344780/)】【[世纪大案3](https://gnews.org/zh-hans/343557/)】【[世纪大案2](https://gnews.org/zh-hans/343551/)】【[世纪大案1](https://gnews.org/zh-hans/343549/)】
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-【[世纪大案0](https://gnews.org/zh-hans/343534/)】
+[欢迎加入【英喜庄园】Disocrd官方群](https://discord.gg/U9F97ur)
 
+编辑：【喜马拉雅战鹰团】
 
+[!\[\]()!\[\](https://spark.adobe.com/page/46fg2wYtBFyUJ/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/46fg2wYtBFyUJ/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-
-
-0
+1+

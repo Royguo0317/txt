@@ -1,21 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年11月21日中共病毒疫情要闻快报
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/578330/)
+## 11/11/2020 郭先生直播：中共军队已开始就“浪费粮食”进行惩罚并通报全军；美国的选举软件是中共供货，如此干扰美国大选的结果就是川普总统一定大赢
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/578969/)
 
-**重点内容：**
-
-- 美国总统川普长子唐纳德感染中共病毒；
-- 美军在德国收缴服务器显示川普取得压倒性大胜；
-- 为推行供销社做铺垫？
-- 食品冷链频频检测出中共病毒；
-- 加强资金监管，中共压榨“靠房吃饭”族；
-- 只因在微信转发反共言论，民营企业家被判20年，资产全被冻结。
-
-
-
-
-**By：【秘翻组-上天造灭疫组】**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21122652/Capture-86.jpg)
+By: 【秘密翻译组G-Translators】
 
 0
