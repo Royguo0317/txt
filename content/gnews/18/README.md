@@ -1,32 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄联邦通讯社文章称赞川普法务团队勇气，报道川普连任的到了70%选民支持
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/579501/)
+## 推特要发动政变吗？
+` GM107` [轉載自GNews](https://gnews.org/zh-hans/580020/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21174253/image-31.jpeg)
-近日俄罗斯各大媒体紧追美国大选的司法进程。有趣的是，俄媒对事件的关注和消息的准确度都非常高。显然，这些报道没有收到许多美国“主流媒体”的不实消息影响。11月19日，联邦通讯社记者斯塔瑟夫的文章全面报道了川普总统的法务团队的最新进展——林伍德律师介绍普通的选票的70%是支持川普总统连任的，而川普的选举人票高达410张。不仅如此，记者为两位律师的勇气和无畏所打动。
+2020年11月21日，Just the News刊登了一篇文章，题目为：不再等了，即使川普不认输，推特也计划交出@POTUS账号。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21205946/GettyImages-187232512.jpg)
+文章指出，推特公司表示 Twitter正在积极准备支持白宫机构Twitter账户在2021年1月20日的过渡。Twitter表示：即使特朗普总统没有让步，Twitter也计划在就职典礼日中午将所有白宫官方Twitter账户的控制权——包括@POTUS，移交给乔-拜登。
+（注：POTUS为president of the United States美国总统的缩写）
 
-俄媒报道原文：[https://yandex.ru/turbo/riafan.ru/s/1338734-advokat-prezidenta-ssha-zayavil-chto-tramp-nabral-na-vyborakh-70-golosov?utm\_source=yxnews&utm\_medium=mobile](https://yandex.ru/turbo/riafan.ru/s/1338734-advokat-prezidenta-ssha-zayavil-chto-tramp-nabral-na-vyborakh-70-golosov?utm_source=yxnews&amp;utm_medium=mobile)
 
-林伍德律师爆料：[https://twitter.com/ghimalaya2/status/1329954740248080389?s=21](https://twitter.com/ghimalaya2/status/1329954740248080389?s=21)
+> “Twitter正在积极准备支持2021年1月20日白宫机构Twitter账户的过渡，”Twitter发言人Nick Pacilio在Politico周五发布的一封电子邮件中表示。”正如我们在2017年为总统过渡所做的那样，这一过程是在与国家档案和记录管理局密切协商的情况下进行的。”
+> 
+> 除了@POTUS，Twitter表示将自动移交的其他accouts包括@whitehouse、@VP和@FLOTUS。该公司告诉Politico，此次交接要求即将离任的特朗普团队和即将上任的拜登团队之间不共享信息。
+> （注：@whitehouse、@VP和@FLOTUS分别代表白宫、副总统和第一夫人的用户）
 
-以下是联邦通讯社报道的全文：
 
-本周，美国各大媒体都无视唐纳德·特朗普法律团队的又一次大声疾呼，该声明试图在法庭上证明现任总统是11月大选的真正赢家。代表总统在佐治亚州的著名律师林伍德接受了保守派电台主持人马克·莱文的采访。
+随着选票造假、选举软件被控制、死人投票、报假数等等作假行为被曝光，和越来越多的选举舞弊证据浮出水面，美国影子政府和沼泽生物已经意识到他们要输了。现在推特公然跳出来为乔-拜登站台，扬言把POTUS账号强制转给拜登，数百政要资本家明星把推特头像背景全部变成黑白。这表示暴风雨即将来临了吗？
 
-事实上，以无可挑剔的法律声誉而闻名的伍德公开而自信地表示，特朗普是犯罪的受害者，美国一些人里通外国，以改变选举结果。似乎这样的声明本应在全美和国际引起轰动，但盎格鲁-撒克逊世界的企业媒体再次假装什么都没发生。
+西行小宝对此评论：**推特是阴谋利益集团的一部分，封杀和审查保守声音如家常便饭。**目前的证据已经完全证实推特和左媒散布不实选举信息，颠倒黑白、影响和干预大选！推特这么不要脸，估计是背后的伊朗和中共大股东急了！你敢硬上弓，必然进监狱！
 
-同时，伍德·莱文的完整采访在社交网络上极其难以找到。脸书和推特正在努力删除带有链接的帖子，YouTube删除其条目，谷歌隐藏保守网络资源的链接，这些资源讲述了伍德和莱文之间对话的内容。根据伍德和他的同事的多次声明，特朗普获胜和拜登失败的无可辩驳的证据。
+川普总统律师林伍德最新推文说：**通过偷窃选举，寻求推翻我们政府的第三方坏蛋们已经被抓到。他们知道，他们在选票箱欺诈阶段输掉了。他们很快会转移到第二阶段：推翻政府的努力。**
 
-他的话得到了另一位律师悉尼·鲍威尔的证实。鲍威尔在接受保守派频道Newsmax采访时明确表示，总统获得了大约8000万张美国选票。鲍威尔还回忆说，自治领投票系统计票软件的问题以前甚至被民主党政治家指出，如参议员伊丽莎白·沃伦和艾米·克洛布查尔，但现在他们都坚持认为选举是非常诚实和公平的。
 
-显然，像鲍威尔和伍德这样尊贵和受人尊敬的律师在选举中为总统的胜利辩护，不仅关系到他们的职业权威，也关系到他们整个漫长的职业生涯。如果法官认为总统获胜的证据薄弱或没有争议，特朗普的律师将受到如此的嘲笑、欺凌和诅咒（自由派和保守派），他们别无选择，只能停止他们的宣传。
 
-与许多华尔街公司律师不同，特朗普法律团队的鲍威尔、伍德等为没有权力、金钱和影响力的人辩护，赢得了许多复杂的诉讼。现在，他们要对自己一生中进行最共鸣、最可耻和最危险的审判，美国的命运取决于这个审判结果。
+> Third party bad actors who seek to overthrow our government by stealing our election have been caught. They know it.
+> 
+> They lost ballot box fraud phase. They will soon move to phase 2 of the overthrow effort. Be prepared.
+> 
+> Get in the arena. NOW. [pic.twitter.com/WQejYsHatG](https://t.co/WQejYsHatG)
+> — Lin Wood (@LLinWood) [November 21, 2020](https://twitter.com/LLinWood/status/1330238900837756931?ref_src=twsrc%5Etfw)
 
-最近，人们知道美国总统的律师开始受到严重威胁。特朗普的宾夕法尼亚州费城法律代表琳达·克恩斯向当地执法部门投诉了冒犯性电子邮件、电话、人身暴力威胁，甚至叛国罪指控。此后，凯恩斯被指派了永久的警察保护。密歇根州选举委员会的共和党成员也受到威胁，他们拒绝批准韦恩县有争议的投票结果，拜登在那里获得了令人怀疑的高票数。值得注意的是，美国民主党人多次对政治对手施压。
 
-众所周知，佐治亚州的重新计票实际上已经完成，但特朗普及其支持者对其结果持怀疑态度。尽管该州三个地区发现了以前未录制的选票（主要是现任国家元首的选票），但保守派对重新计票过程的信心已极低。共和党观察员人数少，支持这位美国领导人的下落不明选票数量很大，因此有很多抱怨。因此，特朗普的团队改变了佐治亚州的战斗策略，并决定通过选民签名和解来证明有必要检查选票的真实性。本周，特朗普倡导团队负责人鲁道夫·朱利安尼重申相信与选举结果有关的关键问题将在美国最高法院得到解决。
 
-0
+这些沼泽生物还向林伍德大律师发出了死亡威胁：这是最后一次警告。 是的，我们作弊了， 但你赢不了， 你无法阻止伟大的重置。 现在停止，否则不好的事情将开始发生在你身上。 你的狗救不了你。 当局不会救你。 做正确的事。 放弃吧，放弃吧。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21210332/EnT0WwJVoAEnScD.jpg)
+听听美国人民怎么说吧！
+
+一位美国年轻人说:“是美国人民决定川普做总统。每一个人都要起来战斗, 如果让民主党这样窃取下去, 我们会失去国家、失去民主。这次大选，厉害关系怎么强调都不过分。我们正在为国家的基本价值观而战， 必须决定国家将成为什么样。我们正处在一个做抉择的时刻！”
+
+新闻来源：Just the News
+原文链接：[https://justthenews.com/accountability/media/not-waiting-twitter-plans-hand-over-potus-account-even-if-trump-doesnt-concede](https://justthenews.com/accountability/media/not-waiting-twitter-plans-hand-over-potus-account-even-if-trump-doesnt-concede)
+
+3+
