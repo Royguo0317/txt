@@ -1,55 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 前联邦检察官鲍威尔表示Dominion投票系统就是为操纵选举而生的
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/579038/)
+## 1120王健案新闻发布会两周年纪念
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/579177/)
 
-*新闻来源: NewsMax; 作者: 埃里克·麦克(Eric Mack); 发布日期: 2020年11月18日*
+视频制作：500MILES；封面图：睡醒的猫猫；诗文：和老三；组稿编辑：Julia Win
 
-*翻译/简评: Bob1203(文虓); 校对: 感恩; 审核: johnwallis*
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21134024/dominion-voting-Biden-1.png)
-**简评：**
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21143718/1-21-7.jpg)
 
-前联邦检察官鲍威尔(Powell)在接受Newsmax电视台采访时表示，已有充分证据表明多猫腻（Dominion）投票系统的设计就是为了“操纵选举”。针对使用多猫腻（Dominion）投票系统的多州审计立案工作正在进行中。一名委内瑞拉前军官出来指证，前总统查韦斯（Chavez）就是用它来“操纵选举，一次没输过。” 令人震惊的是，民主党和主流媒体对此视而不见，更有人极力地反对把这些东西揭露出来。由此可知，美国的沼泽之深之广，令人不寒而栗。鲍威尔(Powell)还表示，使用这种选举系统已经违反了唐纳德·川普总统（Donald Trump）反对外国干预我们选举的命令。在适当的时机，总统可以动用反对外国干预选举法令对相关国家、党派、机构或人员进行相应地制裁，让我们拭目以待！
+**《何时断轮回》**
 
-原文翻译：
+岁月漫漫
+月隐星淡
+众生爱仇无涯
+何时会了断
+轮回一茬又一茬
+望尽天涯路
+烦恼痛苦
+无明愚痴
+灼痛了红尘荒野
+走近了地狱莽荒
+生生死死
+生生世世
+不垢不净
+生命即空
+空即生命
+不生不灭
+望尽天涯路
+黄土承载千年时光
+何时惊醒
 
-### 欣尼·鲍威尔在Newsmax电视台：多猫腻（Dominion）就被设计成用于“操纵选举”
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21132029/Screen-Shot-2020-11-21-at-1.19.30-PM.png)*Newsmax电视台的“格雷格·凯利(Greg Kelly)报道”*
 
-前联邦检察官欣尼·鲍威尔(Sidney Powell)在接受Newsmax电视台采访时表示，对依赖多猫腻（Dominion）投票系统的多州审计的立案工作正在进行中，川普法律团队有一名委内瑞拉前官员表示这套系统的设计就是为了“操纵大选”。
-
-“数学不是乱加的,并且我们知道多猫腻（Dominion）有操纵选举的悠久历史,因为这就是它被开始创建时要达到的目地,” 鲍威尔(Powell)在周二的格雷格•凯利（Greg Kelly）报道中表示，甚至特别指出“公司的创始人承认他可以改变一百万张选票,根本没问题”。
-
-鲍威尔(Powell)对主持人格雷格•凯利（Greg Kelly）说，他们的团队有一名现居美国的委内瑞拉前高级军官的证词，他说他看到乌戈·查韦斯（Hugo Chavez）在委内瑞拉操纵选举。
-
-“所以不要告诉我没有欺诈的证据，”她继续说。“我们有越来越多的证据表明，多个州存在重大欺诈，这让每个摇摆州的选举有效性都受到了质疑。”
-
-她说，这不仅限于内华达州、亚利桑那州、密歇根州、威斯康星州和乔治亚州。他还补充道:“还不止这些。”
-
-鲍威尔(Powell)说根据这位军官的证词，这种设备的一个“特征”就是能够轻易地改变计票结果和操纵结果。
-
-鲍威尔(Powell)说:“创建这个软件是为了让乌戈·查韦斯（Hugo Chavez）永远不会再输掉一次选举，在这个软件被创建之后，他再也没有输过。”“他赢得了每一次选举，然后他们把它出口到阿根廷和南美其他国家，然后他们把它带到这里。”
-
-鲍威尔(Powell)还表示，作为一家外国公司，使用这种选举系统已经违反了唐纳德·川普总统（Donald Trump）反对外国干预我们选举的命令。
-
-“我们的选票最终是在巴塞罗那、西班牙或德国法兰克福通过国外服务器计算的，”鲍威尔(Powell)声称。“这绝对是令人震惊的。”
-
-这包括民主党和主流媒体在极力忽视这些腐败。
-
-她总结道:“真正令人震惊的是，有人极力地反对把这些东西揭露出来。”“但你必须认识到，每一家科技公司、每一家媒体公司、每一家社交媒体公司、以及大量的全球主义企业，都在与这些独裁国家做生意，而这种被操纵的选举系统被安装在这些独裁国家并使用了几十年。”
-
-[原文链接](https://www.newsmax.com/politics/sidney-powell-dominion-voting-systems/2020/11/17/id/997526/)
+编辑：【喜马拉雅战鹰团】
 
 [点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
 [点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+[欢迎加入【英喜庄园】Disocrd官方群](https://discord.gg/U9F97ur)
 
-编辑：【喜马拉雅战鹰团】
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20155633/66-5.jpg)
-
+[![](https://spark.adobe.com/page/DQRGsksxuxdJI/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/DQRGsksxuxdJI/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 1+

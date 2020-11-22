@@ -1,92 +1,310 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Dominion引爆：索罗斯对加拿大政治影响之深远超想象
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/579192/)
+## 鲍威尔：&#8221;我们已经掌握了确切证据，为证人提供证人保护《每日快报 &#8212; 2020.11.21》
+` 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hans/579384/)
 
-*多伦多加喜农场 Athena
-校对 小鸥 上传 WJ*
+**作者： Daisy**
 
-最近的美国大选，让Dominion投票系统公司操纵计票结果的恶行大曝光。作为美国的邻居，越来越多加拿大人开始关注到发生在本国的事。
+**编辑： 星空无垠**
 
-在Gnews的《加拿大人眼中的Dominion偷票公司[（一）](https://gnews.org/zh-hans/564587/)、[（二）](https://gnews.org/zh-hans/571044/)》中，我们已经知道，Dominion投票系统公司与同索罗斯提供资金的潮汐加拿大（Tides Canada）是多伦多唐人街的邻居。潮汐基金会（潮汐加拿大母公司）已从索罗斯基金会获得了超过2200万加元的资金。人们不禁疑问重重：在全球所有办公空间中，为什么Dominion 公司偏偏选择与索罗斯相关的公司为邻？ Dominion公司是否采取了额外的安全协议以确保投票数据或专有信息受保护？索罗斯的激进雇员能否访问Dominion 公司的办公桌、文件柜、服务器和Wi-Fi？
 
-Dominion公司有文件显示曾向克林顿基金会（与潮汐基金会紧密相关的慈善机构）捐款25,000至50,000美元。 而索罗斯为希拉里·克林顿的竞选活动捐赠了更是超过950万美元，最近他的社交帐号和其他支持拜登的左派人士一样诡异地换成了黑白背景。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21154817/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE52.png)图片来源：Twitter
-现年89岁的索罗斯已经花费数百亿美元在各项政治团体及活动资助中，一些左派潮流（如“黑命贵”）及其活动后面都隐现着他的黑影。在GNEWS11月17日的《[【正道观察】图谋颠覆川普政权背后的各样“共产主义幽灵“](https://gnews.org/zh-hans/568255/)》中提到了乔治·索罗斯是美国大选背后的黑幕操纵人之一¹ 。[11月19日川普竞选团队律师新闻发布会](https://gnews.org/zh-hans/574494/)中提到，Dominion投票系统公目前的整体负责人是索罗斯先生在英国的二号人物马洛·布朗爵士。这些说明索罗斯与Dominion公司脱不了干系。11月20日[大律师林·伍德发推](https://gnews.org/zh-hans/575490/)说希拉里（Hillary Clinton）和索罗斯（George Soros）参与了外国干预美国大选。
 
-那么，索罗斯与加拿大政府有着怎样的关系呢？让我们通过几个政客来管中窥豹。
 
-**莫里斯·斯特朗**
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21150539/03bf4-thumb-maurice-strong-2.jpg)图片来源：canadianpatriot.org
-索罗斯的世界观中的重要影响者是他的导师—-加拿大石油商和外交官莫里斯·斯特朗（Maurice Strong）,他被公认为国际环境运动的创始人。从1970年代初期开始，斯特朗的自我倡导使命便赋予联合国作为全球权威的权力，该权威将通过其三个国际组织即世界野生动物基金会、国际自然保护联盟和世界资源研究所来管理全球治理的新时代。斯特朗坚决与联合国内部的一个监督小组建立新的世界秩序，他说，“为了拯救地球，该小组决定：工业化的文明崩溃对地球不是唯一的希望吗？这不是我们的责任吗？这群世界领导人组成了一个导致经济崩溃的秘密社会。” 很久以前，正是斯特朗提出了将“慈善家”和企业的资金与政府目标结合起来的蓝图，像水蛭一样依附于联合国的数以千计的私营非政府组织才得以资金充足，并且目标正确。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01081922/%E6%AF%8F%E6%97%A5%E5%BF%AB%E6%8A%A5.png)
 
-索罗斯被斯特朗的新世界秩序愿景和他对联合国的阴谋所吸引。数十年来，两人合作并指示联合国非政府组织推进一个世界政府的目标。在斯特朗于2015年去世之前，美国政治评论员格伦·贝克（Glen Beck）评估了他们的工作伙伴关系，“斯特朗对普通美国人的影响几乎与其呼吸的空气一样……一个世界政府的始与终都是斯特朗，乔治·索罗斯只是金融家。”
 
-**克瑞斯蒂亚·弗里兰**
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21150853/dances-with-bear.png)图片来源：johnhelmer.net
-乔治-索罗斯和前任加拿大前全球事务大臣、 现任副总理克瑞斯蒂亚·弗里兰（Chrystia Freeland）的私交可追溯到10多年前，当时她还是一名报道欧洲政治、追逐巨富的记者。在2011年一篇题为 “新全球精英的崛起 “的文章中，弗里兰将索罗斯描述为一个 “善良的、技术官僚式的友好财阀”。在2012年的另一篇文章中，她对他赞不绝口：”索罗斯是狭路相逢勇者胜。他半个多世纪以来一直在思考、阐述和宣传一个大想法的变体。” 弗里兰在英国《金融时报》担任记者期间与索罗斯在家里共进晚餐。乔治-索罗斯很享受弗里兰的爱慕，他们的友谊也蒸蒸日上，以至于当弗里兰在2010年代中期失业时，索罗斯请朋友为他写传记时，委托弗里兰做他的抄写员。之后她搬回加拿大参加2015年的议会竞选。弗里兰是世界经济论坛董事会的成员，该委员会负责实施“伟大的重置与第四次工业革命”。
 
-2016年1月22日发布在克里斯蒂娅·弗里兰（Chrystia Freeland）网站上的照片标题为“很高兴与特鲁多总理一起与乔治·索罗斯（George Soros）讨论加拿大和全球经济。”
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21155315/Soros-Freeland-Trudeau.jpg) 图片来源：real women of Canada
-加拿大新闻曾报道弗里兰以副总理的身份与索罗斯对话，谈及他对世界新秩序的想法，并与中共国合作来实现这一目标。
 
-**杰拉尔德·巴茨**
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21151104/Financial-Times.jpg) 图片来源：Bloomberg
-在加拿大推进索罗斯议程的核心是杰拉尔德·巴茨（Gerald Butts）。加拿大人都知道巴茨是渥京最有权势的人，是总理贾斯汀·特鲁多的死党。然而，在他与大学同学重逢，开始一场以夺取总理办公室为结局的竞选前，巴茨是世界野生动物基金会加拿大分会的负责人。公开记录显示，从2008年到2012年，巴茨是加拿大世界野生动物基金会的主席，该基金会诞生于莫里斯·斯特朗（Maurice Strong）的联合国创立的国际机构之一，多年来一直受到索罗斯的支持。在那里，他被证明是一个有效的、不加掩饰的全球主义喉舌，在国际舞台上，以及在世界经济论坛和比尔德伯格集团的闭门会议上，推动着索罗斯的议程。2012年年底，巴茨从世界自然基金会那里得到了361,642美元的遣散费，通过在特鲁多的竞选团队中担任 “志愿者职务 “来支持他。
+# ***今日摘要***
 
-巴茨就像特洛伊木马，为索罗斯的许多小弟打开了进入加拿大政府的大门。《金融邮报》报道说 “巴茨会利用他的新的强势地位，把其他的前竞选者也拉进来。环境部长凯瑟琳·麦肯纳（Catherine McKenna）的幕僚长马洛-雷诺兹（Marlo Raynolds） 是潮汐集团支持的Pembina研究所的前任执行董事。自然资源部长索希（Amarjeet Sohi）的幕僚长卡龙（Zoë Caron）也是前世界自然基金会加拿大分会的官员。” 巴茨还带来了他当年在安省省长道尔顿·麦坚迪（Dalton McGuinty）办公室的一帮同事。 现为总理办公室主任的凯蒂·特尔福德（Katie Telford）、齐塔·阿斯特拉瓦斯（Zita Astravas）、马修·门德尔松（Matthew Mendelsohn）、约翰·泽鲁切利（John Zerucelli）、本·秦（Ben Chin）、布莱恩·克洛（Brian Clow）、约翰·布罗德海德（John Broadhead）、现为多伦多自由党政治部内阁部长的玛丽-吴（Mary Ng）等等。巴茨的操纵巩固了特鲁多政府核心的全球主义人才库。
+1. 法治基金、法治社会和文贵爆料“海航王健死亡真相“1120发布会迎来2周年
+2. “深层政府”头像一齐变黑，意味着决战时刻到来？川普总统需要加强安保
+3. 鲍威尔：”我们已经掌握了确切证据，为选票被偷的证人提供证人保护
+4. 拥有“中国制造”产品的美国企业，对乔-拜登“持乐观态度
 
-**萨拉·古德曼**
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21151421/SarahGoodmanTwitter-400x400-1.jpg)图片来源： The Hill Times
-萨拉·古德曼（Sarah Goodman）曾是索罗斯支持的反石油环境组织潮汐加拿大（Tides Canada）的业务发展和战略副总裁，她于2017年被任命为总理办公室的政策顾问。2020年1月，古德曼从政策总监晋升为特鲁多高级顾问。
 
-**马克·卡尼**
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21151749/Mark_carney_davos_2010-scaled.jpg)图片来源： World Economic Forum
-马克·约瑟夫·卡尼（Mark Joseph Carney ）拥有加拿大、英国和爱尔兰国籍，是一位经济学家和银行家，2008年至2013年担任加拿大银行行长，2013年至2020年担任英格兰银行行长。他2011年至2018年担任金融稳定委员会主席。 在担任行长之前，卡尼曾在高盛以及加拿大财政部工作。
+# 重要事件
 
-为了培养全球金融和环保主义的信念，最近马克·卡尼（Mark Carney）搬回加拿大。卡尼最后一次与索罗斯联手是反对英国脱欧。当时他作为英格兰银行行长在脱欧过程中作为“恐惧计划”运动的非官方领导人出现，索罗斯向该运动投入了50万英镑。现在，卡尼已被联合国任命为气候行动和金融事务特使——等待下一个机会的“志愿者职位”。
+###### 
 
-**贾斯汀·特鲁多**
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21162025/Cdwx9A6UUAA1Z0Y-450x430-1.jpg)图片来源：Twitter
-特鲁多总理上任后大收难民、令大麻合法化、禁枪……本国经济越来越不景气，平民生活压力越来越大……作为加拿大版总加速师，特鲁多大撒币毫不手软，他在2019年温哥华举行的妇女平等国际会议上曾宣布：“加拿大将在未来10年将对妇女和女童健康与权利的国际支持增加到每年14亿加元，其中每年有7亿加元将用于性健康和生殖健康权利。” 加拿大联邦政府本财政年度(2020年3月至2021年3月)的赤字接近3430亿加元！特鲁多创下了记录：自1870年以来，联邦债务（人均）的增加额超过了所有前任总理！
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21152309/EjPVAvwVgAE2syZ.jpg)图片来源：Twitter
-中共病毒大流行以来，特鲁多政府的一系列行为令人瞠目结舌，拜登还在试图以“强制性枪支回购”名义偷走美国公民持枪权，加拿大政府疫情后已经颁布禁枪令并在逐步实施中；加拿大是购买中共病毒疫苗最多的国家，政府已承诺了10亿加元，预定7款疫苗，即使疫苗最终未获批，大部分资金也不退还，这意味着浪费大笔纳税人的血汗钱，滋养的又是谁呢？
+**11.20. Gateway Pundit **[**鲍威尔律师：”我们已经掌握了确切证据，要为川普700万张选票被偷的证人提供证人保护！Sidney Powell: “We’ve Got a Number of Smoking Guns, May Have to Get Witness Protection for Them — 7 Million Votes Stolen from Trump!**](https://www.thegatewaypundit.com/2020/11/sidney-powell-got-number-smoking-guns-may-get-witness-protection-7-million-votes-stolen-trump-audio/)
 
-在今年5月的中共病毒全球应对会议上，特鲁多呼吁“加强全球主义”，而加拿大已准备好照顾世界。特鲁多说， “我认为这非常重要，这是世界团结在一起的方式，并了解全球危机需要全球应对。” 总理赞扬了世界卫生组织和联合国的努力。可以想象，莫里斯·斯特朗本人会为此表现出长期的赞许。
+西德尼-鲍威尔周五加入了Howie Carr节目，就2020年大选和特朗普辩护团队如今的立场进行了长篇采访。在爆炸性的采访中，鲍威尔声称今年可能有数百万死人投票，可能偷走了川普总统700万张选票
 
-**其他官员**
+**11.20. GNEWS **[**2020年11月20日: 法治基金, 法治社会两周年 捐款留言特集**](https://gnews.org/zh-hans/577885/)**
+**法治基金, 法治社会团队衷心感谢所有的捐款者和支持者！1120也是文贵先生关于【海航（HNA）王健案】新闻发布会的两周年纪念!!!
 
-国会议员凯瑟琳·麦肯纳（Catherine McKenna）在2015年被任命为环境与气候变化部长，他通过一次第三方竞选被加入议会，该竞选使渥京政坛中心自由党占多数……现任加拿大遗产部长史蒂芬·吉尔伯特（Steven Guilbeault）的蒙特利尔环境组织从潮汐基金会获得了10万多美元的报酬……
+**11.20. GNEWS [“深层政府”头像一齐变黑 川普总统需要加强安全](https://gnews.org/zh-hans/577799/)
+**11月19日，乔∙拜登集团的一些主要骨干的推特头像或背景颜色都一起变成了标志性的黑色，这是一种什么暗号吗？这些人员包括奥巴马夫妇、乔∙拜登夫人、希拉里、乔治∙索罗斯、原国务卿克里、主持人奥普拉、加州州长纽森等人，密歇根州长则改成了戴黑白色口罩的头像，连奥巴马基金会原来彩色的徽标也变成了黑色。一天之内，一齐变黑，岂不怪哉？
+**11.20. Breitbart **[**拜登为过渡期众筹，与特朗普的对峙仍在继续****Biden Crowdsourcing Money for Transition as Standoff with Trump Continues**](https://www.breitbart.com/2020-election/2020/11/20/biden-crowdsourcing-money-for-transition-as-standoff-with-trump-continues/)
+在共和党人继续争夺2020年白宫之争之际，前副总统拜登正在向支持者募捐，以支付过渡进程的费用。已被多家媒体宣布为当选总统的拜登开始在社交媒体上刊登有针对性的筹款广告，征集捐款以帮助支付过渡期的费用。”由于特朗普总统拒绝让步，并在拖延过渡期，我们必须自己出资，需要你的帮助。”一则广告写道。”如果你有能力，请筹款帮助资助拜登-哈里斯的过渡。”
 
-**索罗斯参与了加拿大的政策制定**
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21152518/maxresdefault-8.jpg)图片来源：Rebel News
-2016年，索罗斯的开放社会基金会与加拿大政府合作制定了国内移民和难民政策：加拿大政府、联合国难民事务高级专员和开放社会基金会已同意发起一项联合倡议，旨在增加世界各地难民的私人赞助。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21153244/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE51.png)图片来源：Canada 2020
-渥京幕后自由主义者的重要角色是一个名为“Canada 2020”（加拿大2020）的组织(合作伙伴里有华为），它被称为“真正掌管加拿大的进步智囊团”。曾有文章揭示“Canada 2020”与美国民主党的联系以及索罗斯拥有数十亿美元资金的开放社会基金会（Open Society Foundations ，简称OSF）的资金库，特鲁多的幕僚们多年来可以使用这些资金。
+**11.20. Breitbart [拥有 “中国制造 “产品的美国企业，对乔-拜登 “持乐观态度“ U.S. Companies with ‘Made in China’ Products, ‘Optimistic’ About Joe Biden](https://www.breitbart.com/politics/2020/11/20/u-s-companies-with-made-in-china-products-optimistic-about-joe-biden/)**
+一项新的调查显示，大多数在中国开展业务并在中国生产产品的美国公司对乔·拜登担任总统一事“持乐观态度”。位于中国上海的美国商会调查了124位企业高管对拜登总统的看法，其中将近63％的大多数人对他们在拜登任职的态度表示“非常乐观”或“更加乐观”。同样，该调查发现，企业高管们并不期望拜登对中国制造的产品加征关税-特朗普总统针对企业利益的愿望，对价值数十亿美元的商品进行了制裁。
 
-郭先生以前就提过，加拿大会“很惨、很惨、很惨”，在爆料革命进程中，随着爆出的条条线索，我们慢慢了解到加拿大作为北美中共间谍中心，与国际暗黑势力的关系盘根错节，沼泽之深、之广远超原来的想象，我们太天真了!
+# 每日文贵说
 
-*参考链接：*
 
-[Dominion Voting shares office with far-left George Soros linked group](https://www.rebelnews.com/dominion_voting_shares_office_with_far_left_george_soros_linked_group)
+![]()![](https://www.himalayawashingtondc.org/wp-content/uploads/2020/11/image-14.png)
+# 文贵直播和盖特
 
-[Canadian Connection to George Soros’ Revolution](http://www.realwomenofcanada.ca/canadian-connection-to-george-soros-revolution/)
+### 直播：
 
-[Canada to join with UN, George Soros to export private refugee sponsorship](https://www.cbc.ca/news/politics/private-refugee-sponsorship-soros-un-1.3769639)
+2020年11月20号 文贵直播
 
-[Butts is Back to Help Shape the Liberal Government’s Green Policies (Part 1)](https://niagaraindependent.ca/butts-is-back-to-help-shape-the-liberal-governments-green-policies-part-1/)
+[https://gtv.org/broadcast/watch/5ee80e4427ff080da51b020c](https://gtv.org/broadcast/watch/5ee80e4427ff080da51b020c)
+![]()![](https://www.himalayawashingtondc.org/wp-content/uploads/2020/11/image-15.png)
+1．1120是我们成立法治基金法治社会两周年的日子，也是爆料革命走向国际的重要标志
 
-[The core beliefs and aspirations of George Soros (Part 2)](https://niagaraindependent.ca/the-core-beliefs-and-aspirations-of-george-soros-part-2/)
+2．王健的死远远没有结束，调查还在继续，战友们对共产党的了解还不到我们看到的万分之一
 
-[George Soros and his Canadian Chess Game (Part 3)](https://niagaraindependent.ca/george-soros-and-his-canadian-chess-game-part-3/)
+3．人世间最可悲的是人已经去了天堂，但是你所有的亲人在想尽一切办法想要你的钱，这个世界上最愚蠢的事情就是给儿女留钱
 
-[George Soros casts a long shadow across Canada (Part 4)](https://niagaraindependent.ca/george-soros-casts-a-long-shadow-across-canada-part-4/)
+4．国内很多我认识的老板所做的企业均纷纷倒闭，包括广东，香港和山东的
 
-[The NGO Army of George Soros & Maurice Strong](https://reformdesa.blogspot.com/2010/11/ngo-army-of-george-soros-maurice-strong.html)
+5．共产党1949年拿到政权后第一件事情就是杀了200万地主，现在的企业家也和之前的地主一样
 
-[ELECTION FRAUD? Sidney Powell refers to link between Dominion Voting Systems and George Soros-Rebel News](https://www.youtube.com/watch?v=PC3vsF3ZcAs&amp;feature=emb_logo)
+6．郭先生一直走阳光大道，对家人和朋友当面和背后都是一模一样，建议战友们好好看看王阳明的新学，治良知，另外再好好看看佛学，贪嗔痴慢疑
 
-[Tides Foundation](https://www.influencewatch.org/non-profit/tides-foundation/)
+7．我们的GTV，GNEWS已经排名全球新闻类第43名，但是实际上我们真的才刚刚开始
+
+8．中国人出去吃饭浪费非常严重，千万不能浪费粮食
+
+9．很多欧洲俱乐部和餐厅，还有日本的都不欢迎中国人参加，根本原因都是共产党统治造成的
+
+10．我们一直在说服美国人和我们一起灭共，但是我们不强求，因为灭共关键还是要靠我们自己
+
+11．威廉王和唐平真是把我的嗓子完全打开了，所有人都喜欢我的嗓音
+
+12．本来想送给战友们郭战装，但是因为成本太高，每套超过600美金，所以只能战友们自己买
+
+13．战友们可以给Gclub代言做销售，包括酒店，豪华游艇等，只要是合法的，请和各个农场联系，并愿意自愿成为监督员，同时可以享受销售额的1%作为代理费
+
+14．七哥谁也不像，就像我自己
+
+15．没有战友，没有战友们捐钱，就没有爆料革命，就没有1120，就没有新中国联邦
+
+16．1120是给中国私人企业家警示的最好机会，也拯救和唤醒了很多企业家，但是却没有唤醒王健的老婆和儿子
+
+17．王健的遗书里明确说明死后一定不要埋在中国
+
+18．法治基金法治社会捐款不能再使用Paypal和Stripe，可以使用信用卡和支票捐款
+
+19．川普当选后，媒体会彻底改变，金融机构彻底改变，病毒改变全世界的生活方式，工作方式
+
+20．爆料革命必须有自己的货币，必须有自己的媒体
+
+21．爆料革命就是正道主义，我们是战场上打扫战场的人，所以我们一定是最终的胜利者
+
+22．是人就会有毛病，我们要尊重每一位战友，要包容，不要八卦，更不要随便说战友好坏，我们正在群修，这个道路不会是一帆风顺的，我们必须面对现实，行动！行动！行动！
+
+### 盖特：
+
+
+
+2020年11月20日: 法治基金,法治社会两周年捐款留言特集 法治基金, 法治社会团队衷心感谢所有的捐款者和支持者！ November 20, 2020 Anniversary of Rule of Law Foundation and Society donors messages special We heartfully thank all of our supporters and donors！
+
+[https://gtv.org/getter/5fb87b2bb2a6d1532784031e](https://gtv.org/getter/5fb87b2bb2a6d1532784031e)
+
+
+
+> 2020年11月20日 [#盖特](https://twitter.com/hashtag/%E7%9B%96%E7%89%B9?src=hash&amp;ref_src=twsrc%5Etfw)
+>  2020年11月20日: 法治基金,法治社会两周年捐款留言特集 法治基金, 法治社会团队衷心感谢所有的捐款者和支持者！ November 20, 2020 Anniversary of Rule of Law Foundation and Society donors messages special We heartfully thank all of our supporters and donors！ [pic.twitter.com/5J5AtcfP7b](https://t.co/5J5AtcfP7b)
+> — 夜雨4 (@9Di0OkguvDn1FD7) [November 21, 2020](https://twitter.com/9Di0OkguvDn1FD7/status/1330079106659196933?ref_src=twsrc%5Etfw)
+
+
+
+11月20号：尊敬的战友们好……太多太多的战友，希望在这个重要的历史性的1120这个时间点上……我直播，我现在正在开会中，大约在6:00和7:00之间我会乱聊直播，今天会放一些王建先生的一些照片……可能还会很吓人，希望大家先喝点小酒，压压惊做好心理准备！并请未满18岁的所有的战友们千万不要进入千万不要进入观看！
+
+[https://gtv.org/getter/5fb84468b2a6d1532783f706](https://gtv.org/getter/5fb84468b2a6d1532783f706)
+![]()![](https://www.himalayawashingtondc.org/wp-content/uploads/2020/11/image-18.png)
+1月月20号：亲爱的战友…收到啦，收到啦。
+
+[https://gtv.org/user/5e596957357cc612d35a8044](https://gtv.org/user/5e596957357cc612d35a8044)
+![]()![](https://www.himalayawashingtondc.org/wp-content/uploads/2020/11/image-17.png)
+11月20号: 尊敬的战友们好．几天来，我一直都在思考……这个难以忘记重大的爆料革命的历史的日子里……1120我到底应不应该直播，由于各种原因，我要兑现我的承诺啊，今天还不能谈这个事情，王建的被杀害的事情远远没有结束，在适当的时候会让大家知道全部的真相……我在今天晚上——如果有时间可以和大家乱聊一下，请大家牢记……我们要讲信用，这是我们的爆料革命的核心价值！
+
+[https://gtv.org/getter/5fb7f539b2a6d1532783e8c9](https://gtv.org/getter/5fb7f539b2a6d1532783e8c9)
+
+[https://gtv.org/getter/profile/5e596957357cc612d35a8044](https://gtv.org/getter/profile/5e596957357cc612d35a8044)
+
+
+![]()![](https://www.himalayawashingtondc.org/wp-content/uploads/2020/11/image-16.png)
+### PARLER:
+
+# 班农战斗室 War Room
+
+
+
+War Room: Pandemic Ep 523
+
+
+
+War Room: Pandemic Ep 524
+
+
+
+# 路德社节目：
+
+### 11/20/2020 早 路德时评（路安墨谈）：
+
+纽约时报撰文说文贵先生、闫丽梦博士观点、路德社节目已经成为主流思潮，不得不撰文攻击！小川普发推指出朱利安尼正在进行什么重要行动验证了路德节目所说？
+
+
+
+1. 纽约时报承认郭文贵先生爆料革命已成美国主流思潮、中共最大威胁故而撰文攻击，王姓记者梳理爆料革命一年来重大行动如数家珍：1.19病毒来源真相、9.24拜登硬盘门、大选舞弊等爆料在美掀风暴，文中隐秘信息来源成疑，中共安排痕迹明显.
+2. Eric Trump发推暗示朱利安尼司法战系国家行动!!
+
+
+### 11/20/2020 晚 路德时评（路博艾冠谈）：
+
+鲍威尔转推方正集团的推暗藏重要信息；鲍威尔律师确认“我们的力量得到了服务器”，”从周末开始证据将像海啸一样袭来“；美国务院正式发布应对中共挑战蓝皮书！
+
+
+
+- 川普律师鲍威尔回击左媒曝猛料：①Dominion公司突然关闭办公室、所有员工删除领英信息（毁尸灭迹）②川普力量已获取德国服务器且中共、委内瑞拉等接入该服务器③美大选舞弊系全球规模犯罪‼️
+- 鲍威尔确认“我们的力量”得到了德国服务器，当时这个服务器传入4个美国极端敌对国。她在接受自媒体采访说我们将会尽快将证据曝光并发给你们这样的媒体，周末证据将像海啸一样袭来。我们处于一个全球范围的刑事犯罪阴谋下，这只是冰山一角。小政府的模式已经被正义力量暴露了。
+- 和索罗斯有关的多米尼多伦多办公室已经突然关闭并搬离，多米尼公司员工删除领英帐号，否认和多米尼的关系。办公室搬离是为了销毁他们的电脑犯罪证据。员工被命令删除资料，让司法部找不到证人。文贵先生说过多伦多是中共在北美的间谍中心，而且加拿大和美国有引渡条约，所以他们要最快速度逃跑。
+- 鲍威尔转了好几条方正集团的推，即指多米尼的事情，一定会打到它的根就是背后的方正集团，方正集团的信息如果传递出来就是更加实锤的证据。王选因为汉字编码在北京都是常委待遇。爆料革命在灭共的终极大战中又冲到最前面，可能会提供一击毙命的证据。
+- 美国国务院正式发布应对中共挑战的蓝皮书。这是美国政策局编写的，可能会奠定对中共未来几十年的政策。把中共输出价值观颠覆美国的模式说清楚了，让美国人知道就像对付苏联一样一切都是冲着中共去的。
+
+
+川普总统长子小唐纳德和朱利安尼的儿子都确认感染了中共病毒。
+
+# 推特文摘
+
+
+
+
+| 【1120两周年】 两年前那惊心动魄的场景 今天依然历历在目 王健之死和1120 是中美关系重要的历史转折点 美国人终于意识到 共匪不仅可以在中国随便杀人 在海外也可以！ 因为没有郭先生的追踪 张首晟之死很快烟消云散 但是美国从此切身感受到 共匪的邪恶和恐怖 从2018年底开始 一系列反共措施陆续出台… |
+| --- |
+| 虽然他们把路德的账号封了，但是我依然不取消置顶！这些都是证据！ 是闫博士通过路德社第一个向世界传递病毒真相的信息，并告知已经人传人！路德在2020年1月18日发推特，1月19日直播！中共媒体几时才开始承认人传人？为什么比路德晚？为什么要隐瞒？请问假 媒体可以回答这两个问题吗？ |
+
+
+
+
+
+
+> 虽然他们把路德的账号封了，但是我依然不取消置顶！这些都是证据！是闫博士通过路德社第一个向世界传递病毒真相的信息，并告知已经人传人！路德在2020年1月18日发推特，1月19日直播！中共媒体几时才开始承认人传人？为什么比路德晚？为什么要隐瞒？请问假媒体可以回答这两个问题吗？ [https://t.co/VPLmQW73lU](https://t.co/VPLmQW73lU) [pic.twitter.com/ouDyjOD6dX](https://t.co/ouDyjOD6dX)
+> — ⚡️是七月呀🎗 (@hjhhjkklfdddjkk) [November 20, 2020](https://twitter.com/hjhhjkklfdddjkk/status/1329826888856977408?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+11/20 【多米尼偷票系统】将是当今美国最高权力精英腐败政客滑铁卢！其所有者为索罗斯，菲恩斯坦，佩罗西，奥巴马，布什家族，克林顿基金。该系统与CIA【锤子】和【积分卡】是同一个计算机专家亚力克山大.乐扎维克，雇佣大批塞尔维亚软件工程师开发。多年来上诉权力阶层一直靠该偷票系统控制美国政局！
+
+
+
+
+
+> 11/20 【多米尼偷票系统】将是当今美国最高权力精英腐败政客滑铁卢！其所有者为索罗斯，菲恩斯坦，佩罗西，奥巴马，布什家族，克林顿基金。该系统与CIA【锤子】和【积分卡】是同一个计算机专家亚力克山大.乐扎维克，雇佣大批塞尔维亚软件工程师开发。多年来上诉权力阶层一直靠该偷票系统控制美国政局！ [pic.twitter.com/yscUGanvek](https://t.co/yscUGanvek)
+> — 西行小宝 (@htommy998) [November 21, 2020](https://twitter.com/htommy998/status/1330054152391700487?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+川普总统绝对是美国历史上首位获得超过一亿选票的当选人，太牛啦！
+
+
+
+
+
+> 川普总统绝对是美国历史上首位获得超过一亿选票的当选人，太牛啦！👍👍👍 [https://t.co/i5cDVk83Ue](https://t.co/i5cDVk83Ue) [pic.twitter.com/2O9GVzL70I](https://t.co/2O9GVzL70I)
+> — 危船愚夫 (@OAtxBKAdTP6KIEz) [November 21, 2020](https://twitter.com/OAtxBKAdTP6KIEz/status/1330060739952971778?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+
+| 鍾南山罕見承認：武漢地區危重症死亡率近40% [#中共病毒](https://mobile.twitter.com/hashtag/中共病毒?src=hashtag_click) 疫情在全球肆虐近一年，中共公布的確診和死亡數據一直被認為嚴重縮水。中國工程院院士 [#鍾南山](https://mobile.twitter.com/hashtag/鍾南山?src=hashtag_click) 11月20日罕見表示，[#武漢](https://mobile.twitter.com/hashtag/武漢?src=hashtag_click) 地區危重症患者死亡率達40%。由此推斷，疫情發源地武漢的真實死亡人數超乎想像。 |
+| --- |
+
+
+
+
+
+
+> 【钟南山说漏嘴？武汉地区危重症死亡率近40%】 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hash&amp;ref_src=twsrc%5Etfw) 疫情去年底从中国 [#武汉](https://twitter.com/hashtag/%E6%AD%A6%E6%B1%89?src=hash&amp;ref_src=twsrc%5Etfw) 开始爆发，随后扩散全球，在中国，特别是 [#疫情](https://twitter.com/hashtag/%E7%96%AB%E6%83%85?src=hash&amp;ref_src=twsrc%5Etfw) 重灾区武汉的确诊和死亡数据一直被质疑涉严重 [#隐瞒](https://twitter.com/hashtag/%E9%9A%90%E7%9E%92?src=hash&amp;ref_src=twsrc%5Etfw) 。中国工程院院士 [#钟南山](https://twitter.com/hashtag/%E9%92%9F%E5%8D%97%E5%B1%B1?src=hash&amp;ref_src=twsrc%5Etfw) 今天（20日）罕见披露，武汉地区危重症患者 [#死亡率](https://twitter.com/hashtag/%E6%AD%BB%E4%BA%A1%E7%8E%87?src=hash&amp;ref_src=twsrc%5Etfw) 达40%。[https://t.co/MYAzWdv0gG](https://t.co/MYAzWdv0gG) [pic.twitter.com/WEczzGVqQo](https://t.co/WEczzGVqQo)
+> — 希望之聲 – 中國時局 (@SoundOfHope\_SOH) [November 20, 2020](https://twitter.com/SoundOfHope_SOH/status/1329770015642578944?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+
+| General Spalding斯伯丁将军：I’ve heard through the grapevine that the DoJ effort to go after CCP spies will be called off once Biden is in office. So much for defending our country. There’s more to national security than F-35s and aircraft carriers. It seems like we may have learned nothing.( 我已经听到小道消息，一旦拜登上任，美国司法部追查中共间谍的努力将被撤回。除了F-35和航空母舰外，捍卫我们的国家安全还有更多的要做。看来我们可能一无所获。 |
+| --- |
+
+
+
+
+
+
+> I've heard through the grapevine that the DoJ effort to go after CCP spies will be called off once Biden is in office. So much for defending our country. There's more to national security than F-35s and aircraft carriers. It seems like we may have learned nothing.
+> — General Spalding (@robert\_spalding) [November 20, 2020](https://twitter.com/robert_spalding/status/1329857189025091588?ref_src=twsrc%5Etfw)
+
+
+
+
+
+# 墙内咨讯
+
+#### **11.20. 中国政府网 截至10月底，全国外出务工贫困劳动力达2973万人——就业扶贫，让大家有活干有钱赚**
+
+在11月19日举行的国新办新闻发布会上，人力资源和社会保障部副部长李忠介绍，截至10月底，全国外出务工贫困劳动力2973万人，就业扶贫已成为就业优先政策的重要组成，是精准扶贫、精准脱贫的重要渠道。
+
+**建设扶贫车间超****3万个**
+
+“人社部、国务院扶贫办会同各地区、各部门全力促进贫困劳动力就业创业，助力决战决胜脱贫攻坚。”李忠介绍，具体来看，采取的主要措施包括以下方面：
+
+——拓宽就业渠道。围绕外出务工和就地就近就业两大方向，探索形成有组织劳务输出、发展扶贫车间、产业项目吸纳、创业带动就业四条渠道，促进贫困劳动力就业增收。
+
+——完善就业政策。运用资金补贴、税费减免、金融支持等政策，鼓励企业吸纳、支持自主创业和灵活就业、开发公益性岗位兜底安置。
+
+——优化就业服务。坚持精准服务，对贫困劳动力开展一对一帮扶；坚持持续服务，持续向贫困劳动力送岗位、送政策、送服务；坚持稳岗服务，帮助贫困劳动力稳在企业、稳在当地。
+
+——加强技能培训。开展大规模职业技能培训，确保贫困劳动力应培尽培。实施职业技能提升行动、企业稳岗扩岗专项支持计划，支持贫困劳动力免费培训、线上培训，支持中小微企业吸纳贫困劳动力开展以工代训。
+
+**务工收入占比逐年上升**
+
+“脱贫攻坚战打响以来，就业扶贫成为脱贫的重要措施，也是精准扶贫的重要手段。”国务院扶贫办副主任欧青平说，“这些年来，我们会同人社部从组织发动贫困人口外出务工和推动就地就近就业两个方面统筹推进，全力以赴促进贫困人口务工增收，成效非常明显。”
+
+**增强贫困户内生动力**
+
+社会兜底不能“一兜了之”，必须增强贫困户内生动力。欧青平介绍，在增加务工人员技能、提高整体素质方面，国务院扶贫办做了三方面工作：一是对有外出务工意愿的贫困劳动力广泛开展岗前培训，提高他们的就业技能；二是对已经务工的贫困劳动力，加大在岗培训；三是对贫困家庭新成长的劳动力，让他们接受职业教育。（记者 孔德晨）
+
+***简评：过去几十年都没有解决脱贫问题，现在中共国外企撤离投资下降经济面临崩溃之际却又宣传所谓的就业扶贫纯属忽悠人民******!***
+
+#### **11.20.** **环球时报 习近平在亚太经合组织第二十七次领导人非正式会议上的讲话**
+
+第一，坚持开放包容。世界经济正如我们身边的太平洋，汇聚千流、连通四海，铸就了浩瀚宽广的胸怀，孕育了波涛澎湃的活力。在平等相待基础上开展合作，在相互尊重基础上化解分歧，是亚太经济发展繁荣的根本。
+
+第二，坚持创新增长。数字经济是全球未来的发展方向，创新是亚太经济腾飞的翅膀。我们应该主动把握时代机遇，充分发挥本地区人力资源广、技术底子好、市场潜力大的特点，打造竞争新优势，为各国人民过上更好日子开辟新可能。
+
+第三，坚持互联互通。互联互通是区域经济一体化的重要基础，也是实现全球联动发展的必要条件，其重要性在疫情背景下就显得更加突出。我们要继续推进落实亚太经合组织互联互通蓝图，畅通人员、货物、资金、数据安全有序流动，实现亚太地区无缝联接。
+
+第四，坚持合作共赢。亚太各成员发展高度互补，利益深度融合。亚太经济合作从来不是零和博弈、你输我赢的政治游戏，而是相互成就、互利共赢的发展平台。
+
+应对疫情是当前最紧迫的任务。我们要加强疫苗研发和交流，努力让疫苗成为全球公共产品，促进疫苗在发展中国家的可及性和可负担性。中方已经加入“新冠肺炎疫苗实施计划”。中方支持亚太经合组织加强公共卫生、中小微企业等领域政策交流和能力建设，提出远程医疗倡议，让贫困和偏远地区人民得到及时、有效医治，助力抗疫合作和经济复苏。
+
+***简评：这次会议似乎并未得到各国元首的重视。***[***习近平***](https://www.epochtimes.com/gb/tag/%E4%B9%A0%E8%BF%91%E5%B9%B3.html)***继续称“世界是不可分割的命运共同体”，然而中共政权面临国际孤立，令他的讲话主题变得如此一厢情愿；他自相矛盾的叙述也难以重新获得各国的信任，所谓“各国实现互利共赢”，也只剩下了口号。***
+
+#### **11.20. 新浪网  天津滨海新区：迅速进入战时状态，启动应急机制**
+
+自11月9日天津市东疆港区瞰海轩小区主动排查发现首例无症状感染者后，立即采取了对其居住楼栋封控、对其密切接触者及密接的密接采取集中隔离医学观察、核酸检测等措施，并于10日对小区全体居民进行核酸检测；根据该小区后续出现病例的情况，11月18日该小区被划定为中风险地区后，按照我市疫情防控强化措施，对该小区全体居民再次进行核酸检测和血清学抗体检测，11月19日，发现3人新冠病毒核酸检测结果为阳性。同时，还有1人在住院期间发现核酸检测阳性。目前，4人均已转运至市定点医院。经市级专家组综合研判，均确定为新冠肺炎确诊病例。上述4人在11月10日对小区全体居民的首次核酸检测筛查中，结果均为阴性，且居住或工作在天津东疆港区瞰海轩小区同一楼栋。***简评：虽然中共一再标榜中国抗疫成功。但是病毒从来都没有离开中国。所谓的成功只是谎言而已！按照闫博士的方法，吃上羟氯喹就你能够有效防疫***
+
+
 
 0

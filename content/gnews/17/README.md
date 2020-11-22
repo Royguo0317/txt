@@ -1,64 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普国家安全顾问表示，华为威胁是“第一大担忧”
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/579450/)
+## 什么时候一个“系统漏洞”变成政变了？是时候规范美国不可靠的投票系统垄断商了
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/579491/)
 
-*新闻来源：《国会山(The hill)》；作者：Maggie Miller；发布时间：2020年11月 16日*
+*新闻来源：《Zerohedge(零对冲)》；作者：Tyler Durden；发布时间： 2020年11月 15日*
 
-*翻译/简评：MikeHua；校对/审核：freedust；Page：Eric8848*
+*翻译/简评：MikeHua；校对：freedust；审核：freedust；Page：Eric8848*
 
 **简评：**
 
-华为被美国在全世界围追堵截这么长时间，如今虽然元气大伤，但是也还依旧存在，许多欧洲国家扭扭捏捏地禁止使用华为， 也不敢真正挺直腰杆维护国家安全。华为是中共在全世界的一个大布局，川普总统在第一任的任期的大部分时间内对中共的威胁并没有一个足够清醒的认识，但是在这次选情欺诈上，已经让他转变方向，决心灭共。这次总统大选里虽然华为没有明面的参与，但是可想而知华为的监控和技术一定是操纵选举背后的支持。
+郭先生在三个硬盘出来时就说，本次美国选举会以滑稽荒唐的结果落下帷幕，到现在看来因为共产党的参与确实够滑稽荒唐。美利坚的选举被搞得跟香蕉共和国一样，处处是中共的影子。一开始绝对保证选举系统没有问题，被人发现问题之后死不承认，实在压力太大受不了了就是临时工干的，然后在媒体上骗，到处假新闻宣传，就是赖着脸皮厚，共产党为世界把脉开方用的就是这种手段。
 
-国家安全顾问奥布赖恩一直是坚决灭共的急先锋，他深知中共的邪恶和中国人民的苦难。相信在这次宪政危机之后，美国会下定决心，立刻灭共！
+这次选举让美国人民体味了一下墙内人民被强奸的感觉，再不觉醒，再不行动美国就真的没有机会了。川普总统在去年曾经说过他是上天选中的人“The Chosen one”，相信他这次一定会下定决心，在香港问题，贸易协议和冠状病毒都踟蹰犹豫错过机会之后，这是上天留给美国和世界人们最后的机会，这次不灭共，让共产当窃取选举结果，他们就控制了人类的未来，人类从此会进入黑暗时代。我们每个战友传播真相，就是在反抗这个盖在人类未来的大黑幕，每个人都是最后一根稻草，没了谁都不行！
 
 **原文翻译：**
 
-# 川普国家安全顾问表示，华为威胁是“第一大担忧”
+**什么时候一个“系统漏洞”变成政变了？是时候规范美国不可靠的投票系统垄断商了**
 
-[![](https://spark.adobe.com/page/deLOJYrxZdFHh/images/d2a6746b-c5ef-4a1d-80ca-75a1abbf33ef.jpg?asset_id=37c15d78-9dbb-40a7-be50-ac878bc54bf3&amp;img_etag=%22c02f23eeeb67701d7ab804c9ef1b9cc3%22&amp;size=1024)](https://spark.adobe.com/page/deLOJYrxZdFHh/images/d2a6746b-c5ef-4a1d-80ca-75a1abbf33ef.jpg?asset_id=37c15d78-9dbb-40a7-be50-ac878bc54bf3&amp;img_etag=%22c02f23eeeb67701d7ab804c9ef1b9cc3%22&amp;size=1024)
+*这件事想起来很恐怖，但是美国民主的成功基本上取决于三个投票机器制造公司，他们几乎没有任何政府监管。除非这一现象改变，世界上最伟大的民主体制在世界眼里看起来像一个香蕉共和国。*
 
-国家安全顾问奥布莱恩说中共的通讯公司华为是民主前进的“第一大担忧。”
+[!\[\]()!\[\](https://spark.adobe.com/page/sU6kO98HdKf1H/images/cd146ec5-41c8-47f4-86bf-0727e1b430f2.jpg?asset_id=1c9fcee9-b6f7-41a8-bc76-238d18713ca7&amp;img_etag=%2230c5355b2b7e6754a9bd1991ced2f18c%22&amp;size=1024)](https://spark.adobe.com/page/sU6kO98HdKf1H/images/cd146ec5-41c8-47f4-86bf-0727e1b430f2.jpg?asset_id=1c9fcee9-b6f7-41a8-bc76-238d18713ca7&amp;img_etag=%2230c5355b2b7e6754a9bd1991ced2f18c%22&amp;size=1024)
 
-在与国会山特约编辑史蒂文•克莱蒙斯 (Steven Clemons)在2020全球安全论坛（2020 Global Security Forum）上的一次采访中，奥布莱恩指出对华为设备在5G网络中的应用令人担忧，因为华为可以进入敏感网络，他指这个陷入困境的公司是一个情报威胁。
+在2020年1月，三个制造了全美80%以上投票机器的公司—投票系统软件公司（Election Systems & Software）,多米尼投票系统公司（Dominion Voting Systems）和哈特公司（Hart InterCivic），这三个公司的CEO被国会议员质询关于投票箱安全的问题。也许没人会吃惊这场90分钟的讨论焦点几乎集中在国外干涉的可能性，特别是中共国和俄罗斯。在这个众所周知的狭窄范围内—其实说的就只是俄罗斯俄罗斯俄罗斯！–人们很容易就排除本土尝试篡改选票的行为。
 
-“如果你相信民主而且你关心选举，这就是我们民主前进的第一大担忧，民主最担心的就是中共国会以华为作为骨架的5G在我们国家做什么，”奥布莱恩说。“这非常吓人。”
+目前，多米尼，28个州投票机器的供应商，正因有报道称将成百上千在密歇根州的投川普选票改成了投拜登的而被严格审查。官员很快回应称这个“漏洞”是处于“人工错误”，和该机器的其他错误不同。
 
-奥布莱恩详细介绍了对于华为的担忧，川普政府已经采取措施反击，华为可以给中共政府“用后门收集世界上任意一个数据。”
+根据密歇根州政府网站，“这个错误的非官方结果报道…是一个安特里姆郡（Antrim County）工作人员的个人过失，他因疏忽没有更新手机选票数据的投票机器系统然后报告了非官方数据。”
 
-奥布莱恩赞赏了川普政府给盟友施压，迫使他们在敏感网络中排除华为设备，并表示他相信一些国家已经根据对数据隐私和安全的担忧做出了这样决定。
+**虽然我不是计算机专家，但是我想象不到软件更新会防止投一个候选人的票变成投另一个候选人，除非程序原来写的时候就是这么设计的。但再次声明，我不是专家。**
 
-“特别是在欧洲发生的真正的改变，当然也有很多在亚洲的，是他们的个人隐私数据100%被中国共产党拥有，”奥布莱恩说。
+另一个严重依赖多米尼的州是佐治亚州，该州去年收到了30，000个新投票机—“美国历史上投票设备最大出货，”根据政府科技局时事新闻（Government Technology newsletter）。在宣布这份价值一亿零七百万美元的订单之后，紧接着该时事新闻预测了接下来会出现的问题，指出“新的投票系统会很快被选民在法庭上挑战，选民会说该系统很容易被黑掉和篡改，即使有纸张选票。”
 
-“相信这次大选中，你可以被微观定位，”他说。“如果你知道任何人，你知道他们的信仰，你知道谁在有感情事务，你知道他们的恐惧，你知道谁有经济困难，你知道谁被确诊癌症，你知道某人的梦想旅游地是哪里。想象把这些信息都放到宏观层面，可以特别针对某人，敲诈他们，引诱他们和影响他们。”
+**这些担忧很快在11月3日大选日成为现实，当一个技术漏洞造成了对两个佐治亚州郡县的恐慌（这个故事的一个边注是佐治亚官员把责任推卸给了一个在亚特兰大州农场竞技场的管道爆裂。然而目前为止，官员还没有任何证据证实事故发生了。）**
 
-华为官方发言人没有回应国会山对此次奥布莱恩的谈话发表评论的请求。华为一如既往地否认这些担忧会造成国家安全威胁。
+目前“漏洞”的来源仍在调查中，一个州计票监督员，玛西亚•莱德利（Marcia Ridley）在11月3日告诉POLITICO新闻，多米尼负责准备选民花名册，并且“在昨晚上传了一些东西，不正常，然后导致了漏洞的出现。”这个被上报的事件阻止了员工为选民智能卡编程。莱德利继续说道，“这是他们从来没做过的事情。我从没见过他们在选举日前一天上传任何东西。”
 
-[![](https://spark.adobe.com/page/deLOJYrxZdFHh/images/7ca716e3-4f45-4e18-acd2-1415c747d062.jpg?asset_id=68cd4d57-28a4-41c1-bf52-7a9d301b8362&amp;img_etag=%227b8c249871e05f22b82673e9b53a2ac3%22&amp;size=1024)](https://spark.adobe.com/page/deLOJYrxZdFHh/images/7ca716e3-4f45-4e18-acd2-1415c747d062.jpg?asset_id=68cd4d57-28a4-41c1-bf52-7a9d301b8362&amp;img_etag=%227b8c249871e05f22b82673e9b53a2ac3%22&amp;size=1024)图片来自网络
+然而，多米尼官员，即使承认选民花名册有问题，仍然否热有在10月31日之后的最后一分钟上传任何选民花名册资料（一份多米尼的新闻发布反驳了这和其他指控，包括佩罗西家族，费恩斯坦（Feinstein）家族，和克林顿基金会（Clinton Global Initiative）和多米尼的任何关系。）
 
-华为和中共国电信集团中兴正在被列为商务部的“实体清单，”该清单有效的禁止美国公司和这些电信巨头做生意，他们是全世界最大的5G设备供应商。
+**事情从这里变得有意思**
 
-去年联邦通信委员会(Federal Communications Commission)投票一致同意将华为归类为国家安全威胁，并且禁止使用联邦通信委员会85亿美元一般服务基金（Universal Service Fund）的美国电信公司购买华为设备。华为正在进行法律战以挑战这项决定。
+莱德利继续说多米尼向她保证“公司可以知道任何系统升级，”表明系统升级不可能在没有被检测的情况下完成。换句话说，多米尼系统的互联网连接有后门，众所周知，只要在互联网上出现的都可以被黑客攻击。
 
-另外，川普总统在三月签署法案禁止美国公司使用联邦资金购买华为设备。该立法同时提供10亿美元帮助农村小电信公司剔除和代替华为设备。
+[!\[\]()!\[\](https://spark.adobe.com/page/sU6kO98HdKf1H/images/73dde2f8-0cad-4461-9ca0-201e6f7f90f9.jpg?asset_id=33e28611-c6c9-4a9b-9821-bd5cf5ba276f&amp;img_etag=%220f97996340485ce2356cc83e2a91b32b%22&amp;size=3057)](https://spark.adobe.com/page/sU6kO98HdKf1H/images/73dde2f8-0cad-4461-9ca0-201e6f7f90f9.jpg?asset_id=33e28611-c6c9-4a9b-9821-bd5cf5ba276f&amp;img_etag=%220f97996340485ce2356cc83e2a91b32b%22&amp;size=1024)推文：[https://twitter.com/CodeMonkeyZ/status/1326881694742319104?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1326881694742319104%7Ctwgr%5E&ref\_url=https%3A%2F%2Fwww.zerohedge.com%2Fpolitical%2Fwhen-does-glitch-become-coup-its-time-regulate-americas-fly-night-voting-machine-monopoly](https://twitter.com/CodeMonkeyZ/status/1326881694742319104?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1326881694742319104%7Ctwgr%5E&amp;ref_url=https%3A%2F%2Fwww.zerohedge.com%2Fpolitical%2Fwhen-does-glitch-become-coup-its-time-regulate-americas-fly-night-voting-machine-monopoly)
 
-在美国之外，上月瑞典政府宣布华为设备不能被用于建设5G网络，这是出于国家安全考虑。
+Ron发推：滨州州务院（Pennsylvania Department of State）问询一个从多米尼系统来的函数功能允许本地“操作员”获取并检查“完全空的选票”，如果需要可以重新填写，并且重新扫描。
 
-今年早些，英国宣布所有移动网络服务商要在今年年底前停止购买华为设备，同时他们也被要求在2027年之前将所有现存的华为设备替换掉。
+**事实上，正式出于这个顾虑，德州没有购买可疑的多米尼系统。**
 
-法国政府也在今年采取行动对抗华为，虽然没有全面禁止华为设备，但是非常强烈的鼓励避免使用华为设备。
+在一封来自选票系统检察员布莱顿•何雷（Brandon Hurley）写给德州选举主管凯西•因格兰姆（Keith Ingram）的信中，很明确写道“有些在民主5.5-A系统的硬件可以从以太网连接互联网。”
 
-在美国产出华为设备的一个问题是，美国没有任何大的5G供应商可以代替华为，这个情况使得瑞典通信巨头爱立信和芬兰公司诺基亚成为焦点。
+在该信的后半段，何雷再次强调***“毫无疑问，多个5.5A系统的组件可以链接到外部通讯网络，并且这只能当末端用户采取适当防备才可以阻止这样的连接。”***
 
-奥布里恩提了这两个公司，并且称赞他们的国家远离华为。
+周三，佐治亚州务卿布拉德•拉芬斯佩格 (Brad Raffensperger)宣布该州会在办法认证结果之前进行重新人工统计总统选举选票。根据纽约时报，拜登领先川普14，000票。
 
-“在过去的一年半里我感觉我是一个不收费的爱立信和诺基亚发言人，我自己也有诺基亚手机，我觉得它是很好的设备，但是西方正在缓慢地认识到正在发生的事情，我们现在已经有非常非常多的公司—他们的国家决定要和他们信任的供应商合作。”奥布莱恩说。
+[!\[\]()!\[\](https://spark.adobe.com/page/sU6kO98HdKf1H/images/afa3c168-72c4-442e-b482-d8ca73f48cb0.jpg?asset_id=1ec7f1fc-4154-4d0b-874f-5caa05db538d&amp;img_etag=%2221d922872284ded1982193981108a22e%22&amp;size=2560)](https://spark.adobe.com/page/sU6kO98HdKf1H/images/afa3c168-72c4-442e-b482-d8ca73f48cb0.jpg?asset_id=1ec7f1fc-4154-4d0b-874f-5caa05db538d&amp;img_etag=%2221d922872284ded1982193981108a22e%22&amp;size=1024)推文：[https://twitter.com/KeithPreston/status/1326897846403084291?s=20](https://twitter.com/KeithPreston/status/1326897846403084291?s=20)
 
-“这意味着他们不会走向中兴，不会和华为合作，也不会在他们的骨干网上安装中国共产党的通信系统，”他补充道。
+**无论2020选举结果如何，同时这还是在和疫情中大量邮寄选票争议的情况下，这次选举一定会被在美国历史上记录为最混乱，最受争议和最有欺诈倾向的选举。**
 
-[原文链接](https://thehill.com/policy/cybersecurity/526165-huawei-threat-no-1-concern-moving-forward-trump-national-security)
+这场让美国看起来滑稽可笑的惨败之悲剧在于，这一切都可以被避免。有无数人曾经尝试警告投票系统在详细计票的系统弱点，特别是在这次川普-拜登竞选所展现的，这会决定美国未来长时间的政治，文化和经济走向。
+
+根据我们对2020总统大选的一切我们所知道的信息，这是我们的观点。期待数来自各个政治党派的百万美国选民对本次对美国未来有重大影响的选举没有任何怀疑是不可能的。重新计票会是一项重大任务，但是未来的美国的和平与宁静依赖着这些，特别是已经到临界点的党派纷争。**一旦重新计票完成，接下来的国会执行小组就会确保美国未来的选举安全，将选举投票公司列入政府规范之内。这种对美国选举的破坏到头了。**
+
+[原文链接](https://www.zerohedge.com/political/when-does-glitch-become-coup-its-time-regulate-americas-fly-night-voting-machine-monopoly)
 
 [点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
@@ -66,8 +70,8 @@
 
 [欢迎加入【英喜庄园】Disocrd官方群](https://discord.gg/U9F97ur)
 
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/deLOJYrxZdFHh/)】-点击spark adobe版
+编辑：【喜马拉雅战鹰团】-点击spark adobe版
 
-[![](https://spark.adobe.com/page/deLOJYrxZdFHh/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/deLOJYrxZdFHh/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/sU6kO98HdKf1H/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/sU6kO98HdKf1H/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

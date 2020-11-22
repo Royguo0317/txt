@@ -1,33 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统在行动
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/579637/)
+## 参议院共和党人表示他们将继续调查亨特•拜登（HUNTER BIDEN）
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/579704/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21183348/cropped_image1-1.jpeg)图片来自：politico.com
-《华盛顿观察家》（Washington Examiner）11月20日报道，川普总统最近进行了一系列预料中的行政命令和行动—包括对中国的打击，在阿拉斯加的钻探，参议院的确认，对非法移民的推动，一连串的人事变动，在多地撤军，以及冠状病毒治疗和疫苗的上市。
+*新闻来源：《《零对冲》 Zerohedge》；作者：泰勒•德顿（Tyler Durden）；发布时间：2020年11月 21日*
 
-一位前政府高级官员说，这一连串的工作不仅显示出白宫在选举动荡的情况下仍在努力，还表明它在努力巩固选民心中的川普主义观念。“我认为这是川普成为保守派和民粹主义者的核心，”他说。“这是为了巩固他在共和党中的新保守派地位。”据几位知情人士透露，他的盟友正在探讨收购一家媒体公司。
+*翻译/简评：Dreamer文童；校对：感恩；审核：johnwallis；Page：Connor54*
 
-观察人士称，如果他在2016年竞选时的宣言是“许下承诺，信守承诺”，那么这一波行动可能会对他在那些尚未兑现的承诺上起到“点睛之笔”的作用。自选举日以来，川普一直保持低调，避免接受白宫记者团的提问，但他在幕后一直忙于制定多项行政命令。
+[![](https://spark.adobe.com/page/bto5UrvBFKNN1/images/1ec844ab-d2dd-45d1-aad0-76d671cf5ac3.jpg?asset_id=f0e37fb7-3ba9-405c-abe6-9b7ab5e37ae2&amp;img_etag=%22ef1348e6cc4ae599f36d9cc9999375db%22&amp;size=1024)](https://spark.adobe.com/page/bto5UrvBFKNN1/images/1ec844ab-d2dd-45d1-aad0-76d671cf5ac3.jpg?asset_id=f0e37fb7-3ba9-405c-abe6-9b7ab5e37ae2&amp;img_etag=%22ef1348e6cc4ae599f36d9cc9999375db%22&amp;size=1024)
 
-上周，他签署了一项命令，禁止美国的个人和公司持有据信与中国人民解放军密切合作的31家中共国公司的股份。官员们已经暗示，更进一步的行动包括扩大被指控为中国武装部队提供支持的公司名单，提拔对抗中国的鹰派人士担任更高职位，以及解决中国强迫和无偿劳动的劳工问题。
+**简评：**
 
-他的政府已经开始履行对石油和天然气行业的承诺。本周，美国土地管理局(Bureau of Land Management)进行了 “征集提名”，作为拍卖阿拉斯加北极国家野生动物保护区(Arctic National Wildlife Refuge)钻探权的第一步。
+共和党参议员恰克•格拉斯里（Chuck Grassley）和罗恩•约翰逊（Ron Johnson）表示，在2021年新一届国会宣誓就职后，他们将继续对拜登家族的交易进行调查。自《纽约邮报》（New York Post）首次曝光亨特•拜登（Hunter Biden）电脑硬盘里乌克兰腐败丑闻后，爆料革命战友在美国总统大选前13天内，广泛传播硬盘里拜登家族其他腐败证据，尤其是与中共相关的商业往来。许多美国民众通过爆料革命传播的真相，了解到拜登家族与中共勾结的腐败事实，进而投票支持川普总统。前检察官朱利安尼先生在接受采访时表示，乔•拜登（Joe Biden）应当进监狱，而不是白宫。由此可以猜测，美国司法部门已经掌握拜登家族犯罪证据，最终一定会通过司法程序追究涉案人员的法律责任。
 
-秋后算账的时候到了。上周，他通过推特解雇了国防部长马克·埃斯珀(Mark Esper)。中央情报局局长吉娜·哈斯佩尔（Gina Haspel）和联邦调查局局长克里斯托弗·雷（Christopher Wray）的前途还悬而未决。
+**原文翻译：**
 
-而同样在上周，据《纽约时报》报道，川普向顾问们询问未来几周针对伊朗核设施采取行动的方案。在椭圆形办公室会议上，川普明显被劝阻，他的顾问们说任何攻击都可能在总统任期的最后几天演变成更广泛的冲突。与此同时，代理国防部长克里斯托弗-米勒（Christopher Miller）宣布在阿富汗和伊拉克缩减军队。该计划将在1月15日之前在阿富汗和伊拉克留下约2500名士兵。这让川普离他2016年的竞选承诺——结束海外战争又近了一步。
+**参议院共和党人表示他们将继续调查亨特•拜登（Hunter Biden）**
 
-白宫发言人拒绝对总统竞选结果进行猜测。但他表示，选举川普的选民已经厌倦了那些“一切照旧的政客”。 白宫副新闻秘书贾德-迪尔(Judd Deere)说:“川普总统撤销了政府规章，简化了项目审批程序，实行了急需的机构问责制，把我们的军队带回家，改变了国内和国际交易的方式，这样做的结果有利于辛勤工作的美国人，而不是华盛顿精英。”
+参议员恰克•格拉斯里（Chuck Grassley，共和党，爱荷华州）和罗恩•约翰逊（Ron Johnson，共和党，威斯康辛州），领导了参议院对乔•拜登（Joe Biden）家族交易的调查，他们表示在2021年新一届国会宣誓就职后，将继续他们的调查。
 
-评论：
+[![](https://spark.adobe.com/page/bto5UrvBFKNN1/images/a6eeeec1-a8a5-4dee-b36a-cdb8e5f1294f.jpg?asset_id=9fcfc8a0-66d4-4a69-a810-3f98d8c449c2&amp;img_etag=%22285c325b488bdd0cadc3025dedc6ad80%22&amp;size=1024)](https://spark.adobe.com/page/bto5UrvBFKNN1/images/a6eeeec1-a8a5-4dee-b36a-cdb8e5f1294f.jpg?asset_id=9fcfc8a0-66d4-4a69-a810-3f98d8c449c2&amp;img_etag=%22285c325b488bdd0cadc3025dedc6ad80%22&amp;size=1024)
 
-川普总统毫无疑问的将成为下一任总统，他最近的一系列动作不是为了给拜登政府制造难题，因为拜登根本就没有上任的机会。川普总统的下一任期从选举日之后的第一天就开始了，他不想等到明年1月，他正在进行一系列布局，为实现2020年的竞选承诺，有条不紊的工作。令我们感到欣慰的是，川普制定了很多应对中共的强硬政策。川普总统及美国人民，已经对中共的真面目有越来越清醒的认识，不打击中共就不能保证美国自身的安全。我们将看到中美之间会有更激烈的冲突，直到中共垮台的一天。
+约翰逊（Johnson）告诉《国会山报》（The Hill）对该调查的最新进展，“我不会视而不见”，(《国会山报》之前声称)共和党人对恢复调查“没有多少兴趣”。
 
-[原文链接](https://www.washingtonexaminer.com/news/is-trump-already-running-for-2024)
+“托尼•波布林斯基（Tony Bobulinski）站出来，电脑被曝光，FBI可能开始调查。我们好不容易拿到甚至写报告的证据，然后突然我们的报告稍稍打破僵局”，参议院国土安全委员会负责人约翰逊（Johnson）称。
 
-翻译报道：Alton
-校对整理：藕官
+他提到亨特•拜登（Hunter Biden）和詹姆斯•拜登（James Biden），乔•拜登（Joe Biden）的儿子和兄弟，以及他们的海外商业交易，这些交易上个月成为审查和大科技审查的对象。
+
+“我非常有信心，可能有更多的金融交易会被披露出来”，约翰逊（Johnson）向媒体补充道。
+
+参议院金融委员会负责人格拉斯里（Grassley）和约翰逊（Johnson）都在调查拜登的业务，即关于亨特（Hunter）据称在乌克兰天然气公司布里斯马控股（Burisma Holdings）董事会的获利丰厚的职位，长期以来有腐败的嫌疑。
+
+上个月，《纽约邮报》（New York Post）和其他新闻媒体报道了据称是属于亨特•拜登（Hunter Biden）的一台笔记本电脑，该电脑中有一封来自布里斯马（Burisma）顾问的电子邮件，显示亨特（Hunter）试图为其时任副总统的父亲安排一次会面。拜登竞选团队否认曾有过会面，但后来又解释可能以非官方身份进行了会面。
+
+[![](https://spark.adobe.com/page/bto5UrvBFKNN1/images/02242af8-56a3-42c3-a1f3-63e9cb12afea.jpg?asset_id=ac81e7bd-e1cf-4717-af80-7bf11da025ae&amp;img_etag=%224d8bada0bc03f4e8cd39701cb9091a70%22&amp;size=1024)](https://spark.adobe.com/page/bto5UrvBFKNN1/images/02242af8-56a3-42c3-a1f3-63e9cb12afea.jpg?asset_id=ac81e7bd-e1cf-4717-af80-7bf11da025ae&amp;img_etag=%224d8bada0bc03f4e8cd39701cb9091a70%22&amp;size=1024)
+
+2020年9月16日，参议院国土安全和政府事务主席罗恩•约翰逊（Ron Johnson，共和党，威斯康辛州）在华盛顿发言。（图片来源：AP Photo/Manuel Balce Ceneta）
+
+之后，波布林斯基（Bobulinski）告诉福克斯新闻（Fox News）的塔克•卡尔森（Tucker Carlson），他参与了与拜登家族的商业交易，并与前副总统会面两次，涉及与中共的关联公司华信能源（CEFC）的交易。拜登的竞选团队和乔•拜登（Joe Biden）均否认对任何关于亨特•拜登（Hunter Biden）的商业交易知情。
+
+格拉斯里（Grassley）和约翰逊（Johnson）在9月份发布报告称，当亨特•拜登（Hunter Biden）加入由乌克兰寡头尼古拉•兹洛切夫斯基（Mykola Zlochevsky）创立的布里斯马（Burisma）时，奥巴马政府忽视了“明显的警告信号”。兹洛切夫斯基（Zlochevsky）因腐败问题正在接受乌克兰检察官的调查，并且据称目前他下落不明。
+
+据美国广播公司（ABC）报道，亨特•拜登（Hunter Biden）去年在接受采访时称，他在布里斯马（Burisma）的角色“在我看来是判断失误”，并且他声称他没有做错什么。“是不是我认为那是判断失误，因为我现在不相信，当我回顾这件事，我知道是的，根本没做错任何事情”。
+
+[原文链接](https://www.zerohedge.com/political/senate-republicans-say-theyll-continue-hunter-biden-probe?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英喜庄园】Disocrd官方群](https://discord.gg/U9F97ur)
+
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/bto5UrvBFKNN1/)】-点击spark adobe版
+
+[![](https://spark.adobe.com/page/bto5UrvBFKNN1/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/bto5UrvBFKNN1/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

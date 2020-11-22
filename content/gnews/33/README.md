@@ -1,54 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美选举舞弊的数据可以被量化和估算
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/579071/)
+## 加拿大放宽对年轻香港人的签证规定
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/579165/)
 
-*新闻来源：GATEWAY PUNDIT《门户评论员》；作者：乔·霍夫特（Joe Hoft）；发布时间：2020年11月17 日*
+*新闻来源：Hongkong Free Press《香港自由报》；作者：Rachel Wong；发布时间：2020年11月 15日*
 
-*翻译/简评：Dreamer文童；校对：Julia Win；审核：海阔天空；Page：拱卒*
+*翻译/简评：随波逐流；校对/审核：海阔天空；Page：拱卒*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/r5OLsPR3uVUC2/images/5d83887f-3cad-46f1-93b4-a6bfe6358cf0.jpg?asset_id=261b74b5-634d-4249-b0b1-3c9b719c0824&amp;img_etag=%2226634269caf7253893140f0f61d5565e%22&amp;size=1024)](https://spark.adobe.com/page/r5OLsPR3uVUC2/images/5d83887f-3cad-46f1-93b4-a6bfe6358cf0.jpg?asset_id=261b74b5-634d-4249-b0b1-3c9b719c0824&amp;img_etag=%2226634269caf7253893140f0f61d5565e%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/DQRGsksxuxdJI/images/d0589dea-69a8-4d3b-a0ab-8e4fdfefef0e.jpg?asset_id=734d6561-5244-40ac-b4cf-8eba62621e04&amp;img_etag=%2217fa8defaade58ed777f15f5e1226ae8%22&amp;size=1024)](https://spark.adobe.com/page/DQRGsksxuxdJI/images/d0589dea-69a8-4d3b-a0ab-8e4fdfefef0e.jpg?asset_id=734d6561-5244-40ac-b4cf-8eba62621e04&amp;img_etag=%2217fa8defaade58ed777f15f5e1226ae8%22&amp;size=1024)
 
 **简评：**
 
-2020年美国大选舞弊以各种形式发生在各个领域。对此，川普总统竞选团队已在多个关键摇摆州提起民事诉讼，期待法院尽快作出裁决推翻目前的选举欺诈结果，还大众以真相。
+中共在香港推行了国家安全法以及罢免了四名亲民主派议员后，加拿大放宽了对香港年轻人的签证政策。在香港未来阴晴未定的情况下，这无疑等于为香港年轻人打开了一道充满希望和施展抱负的大门。加拿大明确指出中共无视《香港基本法》，违反“一国两制”以及及《国安法》对香港人权的侵犯，这表达了加拿大对香港的声援。与此同时，渥太华停止了加拿大和香港的引渡条约并停止向其出口敏感军事物品。
 
-除了已在各个媒体平台曝光出来的投票和计票舞弊证据，IT界专业人士发现选举舞弊可以在数据中被量化和估算出来，这将为揭露和制裁选举舞弊提供更加确凿的有效证据。
+中共国驻加大使警告加拿大不要向香港示威者提供政治庇护、干涉中国内政，并以加方在港人员和企业的安全相威胁。中共在香港的所作所为赤裸裸威胁到整个世界，中共全世界投毒已然激起公愤。美国、加拿大等西方民主国家同盟共同行动，讨伐中共指日可待。
 
 **原文翻译：**
 
-# 法院很可能因选民舞弊而推翻多个司法管辖区的选举结果 – 因为选举舞弊的数量可以在数据中被量化和估算
+**加拿大放宽对年轻香港人的签证规定，原因是立法者被罢免以及中共国安法**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/r5OLsPR3uVUC2/images/4519f7ae-356c-469b-87e9-577441dc7ca6.jpg?asset_id=d5b02cfb-7415-4033-b3c4-2808bbb01b4a&amp;img_etag=%2224d60aa79c0be11c17f61abf4a80baf7%22&amp;size=2560)](https://spark.adobe.com/page/r5OLsPR3uVUC2/images/4519f7ae-356c-469b-87e9-577441dc7ca6.jpg?asset_id=d5b02cfb-7415-4033-b3c4-2808bbb01b4a&amp;img_etag=%2224d60aa79c0be11c17f61abf4a80baf7%22&amp;size=1024)
+加拿大表示放宽对年轻香港人的签证规定，以表示对香港的声援，理由是北京无视《基本法》，四名亲民主议员被罢免以及全面的新国家安全立法的实施。
 
-**在2020年选举中发生了全面的选民舞弊，并且涉及各个职能领域。但在这些数据中，我们能够定位、量化或估算，在2020年选举中发生的大部分选举舞弊的数量。**
+移民、难民和公民部部长马可·门迪奇诺（Marco Mendicino）周四宣布，过去五年来从加拿大境外大学毕业的香港人可以申请有效期最长为三年的工作签证。
 
-2020年选举偷窃发生在各个领域。在选举前，选票被大量邮寄，并且我们现在发现的这些选票大多是非法的（比如死人投票，等等）。许多其它非法选票在选举后出现，因为那些参与偷票的人急于统计出足够的选票以窃取选举。然后，计票过程被操纵，这违反了法律，因为共和党计票观察员不被允许观察计票过程。法院将（并且应当）推翻与此次选民舞弊有关的选举结果。
+[!\[\]()!\[\](https://spark.adobe.com/page/DQRGsksxuxdJI/images/c6239b30-d841-4d7a-aded-de2aedccb62c.png?asset_id=00704644-79ae-4ace-9492-26a9ab653ee0&amp;img_etag=%2254a8842b36e198f0b5bf40e60aca8c30%22&amp;size=1024)](https://spark.adobe.com/page/DQRGsksxuxdJI/images/c6239b30-d841-4d7a-aded-de2aedccb62c.png?asset_id=00704644-79ae-4ace-9492-26a9ab653ee0&amp;img_etag=%2254a8842b36e198f0b5bf40e60aca8c30%22&amp;size=1024)马可·门迪奇诺（Marco Mendicino） 照片：全球新闻截图。
 
-但最终，我们能够量化系统报告的数据被窃取情况。所有在选举中与选票和相关联的过程有关的腐败，在推特上对每一名前执法人员干扰：
+毕业生以及加拿大需要的有工作经验的人，可以在工作一年并达到语言要求后申请永久居留身份。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/r5OLsPR3uVUC2/images/74afed27-e8c6-4e00-8ecd-36c7e5f23e39.jpg?asset_id=486d5860-540e-495a-ae08-bc7a805fa661&amp;img_etag=%2215f4c41d3b4aa9895ee727191cf51c64%22&amp;size=2560)](https://spark.adobe.com/page/r5OLsPR3uVUC2/images/74afed27-e8c6-4e00-8ecd-36c7e5f23e39.jpg?asset_id=486d5860-540e-495a-ae08-bc7a805fa661&amp;img_etag=%2215f4c41d3b4aa9895ee727191cf51c64%22&amp;size=1024)2020年11月8日 他们让我一开始就从100%错误的角度去做这件事情。
-所有那些肮脏的选民名单、神秘的午夜数据转存和狡猾的辩解，只不过是分散注意力，计票室的封锁也是如此，都是故意分散注意力，把关注引向一条死路。
+他说：“随着香港人的日常生活继续笼罩在不确定的乌云下，像他们之前的几代人一样，我们为那些可能将眼光投向国外寻找希望，并选择加拿大作为其生活、工作和定居之地的人们提供了一个特殊的机会。
 
-这些腐败的选民舞弊行为应当被调查，并且追究有关罪犯对其选民舞弊行为的责任。此外，选举舞弊很可能在系统中被发现，因为我们知道投票机并不是“安全隔离”系统，而是与网络相连接：
+门迪奇诺还说，加拿大欢迎居住在香港的30万加拿大护照持有者随时携家人返回加国，并建立快速通道处理所需文件。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/r5OLsPR3uVUC2/images/32d39f52-be45-4f73-b128-9ac3a77bd42c.jpg?asset_id=03e2002e-207c-465b-be92-0c794d994499&amp;img_etag=%222e321a06a6523db1fb092674fc1c64bf%22&amp;size=2560)](https://spark.adobe.com/page/r5OLsPR3uVUC2/images/32d39f52-be45-4f73-b128-9ac3a77bd42c.jpg?asset_id=03e2002e-207c-465b-be92-0c794d994499&amp;img_etag=%222e321a06a6523db1fb092674fc1c64bf%22&amp;size=1024)他们首先揭穿的第一件事情就是不诚实地认为，我们的选民系统是一个隔离式的安全投票系统。的确，在任何州的投票系统中，原始投票的出发点都是安全隔离的系统。
+这位部长说，加拿大对六月份通过的《安全法》表示关注。他还提到了周三香港立法机关有四名民主人士被罢免。 他说：“我们明确表示，这项立法及其中的单方面权力与中国的国际义务直接冲突，破坏了“一国两制”框架。
 
-制表系统并不是安全隔离的，而这就是主要舞弊发生的地方：
+“这类行动明显地无视《基本法》，结果是在香港侵犯人权。 在这场审判中，加拿大将声援香港人民。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/r5OLsPR3uVUC2/images/0f6aa607-d475-4d06-a642-f83d521dbd61.jpg?asset_id=770d6ce4-91b4-46f2-b7b5-bdf491fdb8ad&amp;img_etag=%22ed05fe67fdb620c6515fa5d8afefc823%22&amp;size=2560)](https://spark.adobe.com/page/r5OLsPR3uVUC2/images/0f6aa607-d475-4d06-a642-f83d521dbd61.jpg?asset_id=770d6ce4-91b4-46f2-b7b5-bdf491fdb8ad&amp;img_etag=%22ed05fe67fdb620c6515fa5d8afefc823%22&amp;size=1024)真正的窃取发生在制表系统，而不是计票室。这就是违法行为的来源。
-制表系统不是安全隔离的，这不是秘密，只是从来没有被谈及，因为他们总是把你引导至投票机本身。
+[!\[\]()!\[\](https://spark.adobe.com/page/DQRGsksxuxdJI/images/289ac972-eb9b-43e1-8f6c-14216f929ad2.jpg?asset_id=61fd8129-38c9-4dc4-98a7-284c26ef00b4&amp;img_etag=%22906ac8855989279d9c3915adb6aee1d9%22&amp;size=2970)](https://spark.adobe.com/page/DQRGsksxuxdJI/images/289ac972-eb9b-43e1-8f6c-14216f929ad2.jpg?asset_id=61fd8129-38c9-4dc4-98a7-284c26ef00b4&amp;img_etag=%22906ac8855989279d9c3915adb6aee1d9%22&amp;size=1024)马可·门迪奇诺推特：“我们希望这项倡议能够吸引香港年轻人的希望和抱负，他们可能会把握住这个机会找到工作，继续学习并在加拿大过上更好的生活 。 在香港国安法之后，加拿大为更多香港人敞开了大门。10:28 PM·2020年11月12日
 
-窃取选举发生在系统中，而11月7日有人已经怀疑这是在海外西班牙和德国被操纵的。
+中共国全国人民代表大会常务委员会周三通过一项决议，该决议规定，促进或支持香港独立，拒绝接受中共国对香港主权的立法者，应被视为违反其效忠誓言的行为。 这四名议员的下台促使另外15名民主党人辞职，这使得香港立法会或成一言堂。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/r5OLsPR3uVUC2/images/03f2a7ca-f2fa-42b0-b7de-24efa1edef85.jpg?asset_id=880631f1-d079-4d7d-8871-83bb3ed2d911&amp;img_etag=%222ae15894644eb2071463cd125da535aa%22&amp;size=1024)](https://spark.adobe.com/page/r5OLsPR3uVUC2/images/03f2a7ca-f2fa-42b0-b7de-24efa1edef85.jpg?asset_id=880631f1-d079-4d7d-8871-83bb3ed2d911&amp;img_etag=%222ae15894644eb2071463cd125da535aa%22&amp;size=1024)
+上个月，中共国驻加拿大大使丛佩武警告渥太华不要向香港示威者提供政治庇护，称这将构成对中国内政的干涉。
 
-***在数据中，是窃取行为最可能被发现的地方。选民舞弊和数以百万计的滥用选票和选票计数的案件是非常重要的，并且很可能取消选举结果的资格。但窃取行为的另一个关键就是数据。***
+丛说：“如果加拿大真正关心30万加拿大护照持有者和加拿大在香港运营的企业的福祉和安全，他们应支持中国打击恐怖主义的努力。”
 
-***我们已经查明了一些滥用权利的模式和非法的选票。还会有更多的事情将发生。***
+门迪奇诺说，没有人会只仅仅因为国家安全法的指控而被禁止进入加拿大。
 
-[原文链接](https://www.thegatewaypundit.com/2020/11/555864/)
+[!\[\]()!\[\](https://spark.adobe.com/page/DQRGsksxuxdJI/images/c0f2c8b0-6394-451c-a8c4-6063f4a6b799.jpg?asset_id=b7d186e2-33f1-461f-b3de-bf1d8d68e07f&amp;img_etag=%226b42f780551108b394e27cba0659f996%22&amp;size=1024)](https://spark.adobe.com/page/DQRGsksxuxdJI/images/c0f2c8b0-6394-451c-a8c4-6063f4a6b799.jpg?asset_id=b7d186e2-33f1-461f-b3de-bf1d8d68e07f&amp;img_etag=%226b42f780551108b394e27cba0659f996%22&amp;size=1024)
+
+在颁布了将颠覆、分裂国家、恐怖主义和与外国势力勾结定为刑事犯罪的国家安全立法之后，渥太华取消了与香港的引渡条约，并停止了向香港出口敏感军事物品。
+
+[原文链接](https://hongkongfp.com/2020/11/15/canada-eases-visa-rules-for-young-hongkongers-citing-ousting-of-lawmakers-and-national-security-legislation/)
 
 [点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
@@ -56,8 +58,8 @@
 
 [欢迎加入【英喜庄园】Disocrd官方群](https://discord.gg/U9F97ur)
 
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/r5OLsPR3uVUC2/)】-点击spark adobe版
+编辑：【喜马拉雅战鹰团】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/r5OLsPR3uVUC2/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/r5OLsPR3uVUC2/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/DQRGsksxuxdJI/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/DQRGsksxuxdJI/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
-1+
+0
