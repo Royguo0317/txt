@@ -1,40 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 有關 GTV 視頻分享的小技巧
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/580731/)
+## Dominion投票系统的十年布局（一）
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/580894/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/24064746/WhatsApp-Image-2020-10-24-at-15.08.49.jpeg)
-作者：康州农场战友
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22064550/00CBA87C-D7FC-40D8-8531-4F93AF22D3BB.jpeg)
+作者：引力波
 
-目前我發現在 GTV 上還不能像 Youtube 那樣使用嵌入分享將視頻的 HTML 播放代碼插入到網站。在 Youtbue 當中我們如果點擊分享按鈕，它會跳出一個選擇界面，讓你可以使用裡面的embed代碼，將視頻嵌入到自己的 HTML 頁面，方便一些視頻博主將自己的 Youtube 視頻搬運到個人網站或團隊頻道。
+2020美国大选，Dominion投票系统成为最大的偷票系统，围绕Dominion的疑云重重。
 
-雖然目前 GTV 並不支持這項便捷的操作，但是相信不久後 GTV 也會通過版本更新來增添這項便捷的功能。不過，雖然現階段 GTV 不能提供到這個功能，但這並不代表我們就完全沒有辦法將 GTV 當中的視頻嵌入到自己的網頁當中。
+Dominion成为占有美国投票机份额半壁江山的公司，要从2010年说起。
 
-最最簡單粗暴的方式就是將 GTV 當中的視頻進行下載然後經過轉碼後拿去分享。我們可以使用一些支持下載 HLS 視頻的視頻下載插件將 GTV 視頻下載然後傳播。通過閱讀 GTV 視頻的 hls.m3u8 文件內容，根據字段CODECS=”avc1.4d4028,mp4a.40.2″我們應該是可以將下載下來的文件的擴展名.ts修改為.mp4然後進行播放「電腦端可能只有Windows用戶需要修改擴展名才能播放」。雖然我們可以將下載的視頻文件上傳到我們自己的網站服務器然後進行轉載，但是這樣一來我們自己的服務器就必須負責極大的文件存儲以及讀取的工作，而我們自己的服務器並不是 GTV 這種專業的視頻播放平台，通常來說是不具備那麼強大的存儲和讀取能力的。為此我們不能將視頻直接下載到我們的服務器進行轉載。
+在2010年之前，美国投票机市场份额是这样的：
 
-不過好在通過觀察 GTV 平台播放視頻時的 Network資源「一般瀏覽器右鍵點Inspect可以找到」 ，我們發現可以手動找到 hls.m3u8 文件。這樣一來我們就可以通過一些開源的 hls 播放器來進行轉載播放了。
+- 40％ES＆S
+- 30％Diebold / Premier
+- 20％**Sequoia Voting Systems**
+- 10％ Hart Intercivic
 
-我們的第一個步驟是進入 GTV 視頻播放頁面找到 hls.m3u8 文件。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22033949/2020-11-21-15-51-48.png)
-在找到 hls.m3u8 文件後我們就可以通過 hls.js 視頻播放器開發庫來完成我們的網頁嵌入視頻播放代碼了。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22041328/%E6%88%AA%E5%B1%8F2020-11-22-17.11.57.png)
-上述代碼中`id="video"` 是指定 Video 標籤的 ID，這需要於 `var video = document.getElementById('video');`的內容統一，這段示例中是 video ；width=”640″ 指定視頻播放器顯示在頁面中的寬度； `var video_src ="GTV`中 hls.m3u8 文件的網絡地址”; 用於指定視頻路徑；src=”https://cdn.jsdelivr.net/npm/[email protected]” 是播放器依賴庫 hls.js ，必須寫上。
 
-下面我們用一個簡單的頁面來測試播放。這裡為了演示，我們可以先構建一個簡單的網頁，然後將上述代碼插入到我們網頁的某個位置當中，然後啟動服務器進行查看。
+2009年，ES&S公司收购了Diebold / Premier，但这笔交易很快就被美国司法部盯上。因为两者合并的结果将使ES&S垄断70%的投票机市场，根据反垄断法，司法部要求ES&S出售Diebold / Premier。2010年，Dominion出现了，直接从ES&S这里以500万美元收购了Diebold / Premier。
 
-首先我們構建如下網頁代碼，並將我們的 GTV 播放器代碼嵌入其中
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22041531/%E6%88%AA%E5%B1%8F2020-11-22-17.14.47.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22041540/%E6%88%AA%E5%B1%8F2020-11-22-17.15.09.png)
-將以上代碼保存為 .html 文件後，我們就可以用瀏覽器將其打開了。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22033957/2020-11-22-01-39-51.png)
-在完成網頁嵌入操作後，我們還可以進行下一步「未來預期」的優化，我們很容易發現 hls.m3u8 文件的地址其實是有章可循的，以如下 URL 為例進行解說：
+但Dominion的野心不止于此。同年，Dominion又**收购了美国第三大投票机公司Sequoia Voting Systems**。作为一个当时名不见经传的一家总部位于加拿大的小公司来说，这样的收购是不同寻常的，但无论是媒体还是政府似乎都忽略了这一现象。至此，美国投票机市场份额变成了这样：
 
-https://filegroup.gtv.org/group4/vm3u8/20201120/15/23/5fb7df8bb2a6d1532783e3d6/hls.m3u8
+- 50％Dominion（Diebold / Premier，**Sequoia**）
+- 40％的ES＆S
+- 10% Hart Intercivic
 
-頭部分 https://filegroup.gtv.org/group4/vm3u8/ 以及末尾文件名 hls.m3u8 都是固定字段，其中的「5fb7df8bb2a6d1532783e3d6」序列為視頻ID，我們打開 GTV 網頁進入視頻播放頁面就可以看到瀏覽器地址欄上的視頻ID。20201120/15/23 則明顯是發布日期和時間。
 
-有了視頻播放頁面的地址就可以得到視頻ID，如果能進一步通過播放頁面得到發布日期和時間「這個似乎目前沒有辦法簡單得到」，我們就可以直接拼接出 hls.m3u8 的文就地址而無需在瀏覽器中進行檢索。
+事情还远远不止如此。
 
-不過由於目前我還沒有琢磨出通過播放地址直接獲取發布日期時間的方法所以現階段我也只能手工得到 hls.m3u8 文件來進行嵌入。
+Dominion收购**Sequoia Voting Systems的交易中发布了一项声明：**
+
+作为交易的一部分，*Dominion*已收购了红杉的库存和**所有知识产权**，包括软件，固件和硬件，以用于红杉的专用和集中计数光学扫描以及*DRE*投票解决方案，包括*BPS*，*WinEDS*，*Edge*，*Edge2*，*Advantage*，*Insight*，*InsightPlus*和*400C*系统。
+
+这项声明是一个向大众编织的彻头彻尾的谎言。因为红杉投票系统的知识产权（IP）真正拥有权并不在Dominion手上，它属于Smartmatic公司——一家属于委内瑞拉独裁者查韦斯家族的公司。Dominion自己也承认“Smartmatic IP不包含在Sequoia交易中，因为Sequoia不拥有它。 ”事实上，早在2008年红杉资本从smartmatic手里收购红杉投票系统的时候，就不包含核心的知识产权——IP。换句话说，占据美国20%的红杉投票系统的后门一直都向委内瑞拉的独裁者们开放。
+
+顺便说一下，2010年Dominion收购红杉投票系统时顺便把红杉资本的副总裁埃德温·史密斯（Edwin Smith）一并雇佣了过来，而这个史密斯之前也曾是Hart Intercivic的管理层之一，这个当年曾经威胁过普林斯顿大学计算机科学家们以组织他们审查红杉投票机的人，还在2010年底被任命为美国选举援助委员会EAC的成员，所谓监守自盗的便利也不过如此吧。
+
+有问题的当然不仅仅是红杉投票系统，Dominion的布局是有备而来，一切都是为了控制大选结果。（未完待续）
 
 0

@@ -1,13 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 为何如此慌不择路? 指控郭文贵先生是双面间谍的战略愿景公司, 迫切向法庭寻求排除与其辩护出资人有关证据的动议【全文翻译】
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/574505/)
+## 澳大利亚ASPI研究所：中共对郭文贵先生发起的网络攻击全球第一
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/580445/)
 
-## 【[英文原文](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002451/STRATEGIC-VISION-Case-No.-18-cv-2185.pdf)】【[中文翻译](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002506/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1.pdf)】
+作者：翼族
+编辑：Giselle
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22010152/Picture32-2.png)
+郭先生数次在直播中提到，澳大利亚的一项网络研究表明，中共在过去数年中对他发起的网络攻击持续时间之久和攻击力度在全球排名第一。今天，我们将该研究中提到的一些具体内容和数据翻译并提炼，展示给大家。
 
-## **法庭动议**全文翻译：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002308/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_00.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002314/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_01.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002316/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_02.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002318/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_03.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002321/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_04.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002323/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_05.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002326/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_06.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002329/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_07.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002330/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_08.png)
-## **法庭动议英文原文：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022806/Case-No.-18-cv-2185_00.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022856/Case-No.-18-cv-2185_01.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022859/Case-No.-18-cv-2185_02.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022903/Case-No.-18-cv-2185_03.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022906/Case-No.-18-cv-2185_04.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022909/Case-No.-18-cv-2185_05.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022911/Case-No.-18-cv-2185_06.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022913/Case-No.-18-cv-2185_07.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022916/Case-No.-18-cv-2185_08.png)
+这家澳大利亚的研究单位名称为ASPI，全称Australia Strategic Policy Institute，即澳大利亚战略政策研究所，网址为[https://www.aspi.org.au](https://www.aspi.org.au/)。
+
+ASPI是一个独立的智库，由澳大利亚政府于2001年成立，并由澳大利亚国防部支付部分收入，其它收入来源包括赞助、委托任务、会员计划、出版物销售、广告和活动注册费等。ASPI研究所成立的目的是为澳大利亚的战略和国防，给国家领导人提供及时的专家建议。ASPI现在是澳大利亚对战略政策问题进行公开讨论最权威的机构，是一个被广泛引用的资讯来源，也是澳大利亚在国际战略问题的讨论中（尤其是在亚太地区）被公认的一个权威的声音。
+
+该篇研究的文章发表于2019年9月3日，文章题目为《穿过防火墙发推》（Tweeting through the Great Firewall），作者汤姆·乌伦（Tom Uren），埃莉斯·托马斯（Elise Thomas）和雅各布·沃利斯（Jacob Wallis）。文章链接：[https://www.aspi.org.au/report/tweeting-through-great-firewall](https://www.aspi.org.au/report/tweeting-through-great-firewall)
+
+文中写到，2019年8月19日推特公司发布了参与针对香港抗议活动的一些账户数据，并说明这些账户进行的网络攻击与中共政府有联系。ASPI下属的国际网络政策中心（ICPC）的研究人员对推特的这些数据进行了采集和初步分析后，发现针对香港抗议活动的信息行动只是一个规模相对较小且临时采取的行动，并不是事先计划好的一场复杂的信息战。但是，随后的研究却发现这些帐户同时也在进行针对郭文贵先生的网络攻击，而且时间最早可以追溯到2017年的4月。这表明与中共政府有联系的网络账户参与者可能在西方的社交媒体平台上已经秘密运行了至少两年的时间，所以这些攻击信息的行动中最持久的目标就是郭先生。迄今为止，针对郭先生的攻击活动是数据采集中发现的最广泛的，远远大于针对香港抗议的活动。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22010220/Picture33-2.png)
+注：上图显示的是从2017年4月到2019年7月，对郭文贵先生进行攻击活动的数据信息。
+
+从上图可以看到，针对郭先生的网络攻击活动从2017年4月24日开始，也就是国际刑警组织发出红色通缉的五天之后，然后这一活动一直持续到2019年7月底。
+
+ASPI研究人员采集了从2017年4月23日到2017年5月4日推文中的一组数据（如下图），该图显示了这些账户每天发出的推文数量，一个很有意思的发现是，这些发推的活动只在工作日进行：五一劳动节的整个周末假期全部停止发推，而且每个周三也集体不发推，这表明这些活动很可能是由专业的团队设计的，而不是真实的个人在使用其社交媒体。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22010228/Picture34-2.png)
+在ASPI的数据采集中发现，在针对郭先生的618个帐户中识别出了至少38,732条推文，这些推文重点抨击郭先生的性格，从对他的个人性格到对其犯罪指控，以及对中国的背叛到对他与班农先生关系，进行了一系列的网络攻击。
+
+而且ASPI从数据采集中还发现，对郭先生进行的网络攻击活动，与他和中共政府之间交战出现的重大变化的时间也是相关联的。例如，2018年4月23日《纽约时报》发布了一份报道，该报道披露了埃利奥特·布罗伊迪（Elliott Broidy）针对郭先生的遣返计划，于是在这个日期前后就出现了一波针对郭先生的网络攻击的高峰。
+
+另外一项很有趣的发现，就是某些推文似乎是被自动设置在一个固定的时间点发送的，比如下面这个推文：
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22010238/Picture35-3.png)
+这个用户从2017年11月7日到2018年6月15日，这篇推文在不同的时间段内重复发布了41次，但是每次发布的时间都是在第12分钟或者第42分钟。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22010245/Picture36-2.png)
+ASPI的研究还发现，由于郭先生2017年开始了爆料革命，推特迎来了一个中文使用者的大潮。根据推特公司公布的“推特语言”（tweet\_language）数据，ASPI制作了每天中文推特所占百分比的图表（如下图）。从该图中可以看到，在2017年4月之前推特的用户中并没有大量的中文推，但是到了2017年7月，中文推则出现了令人瞠目结舌的的增长。从这一个时间点开始起，推特中大量的推文都是中文，并且在2017年10月甚至到达超出80％的峰值。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22010254/Picture37-3.png)
+另外从以下这张推特新开用户的图表中，也可以得出相同的结论：从2017年4月份以后，推特出现了大量的新用户，而且大多数都是中文用户。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22010302/Picture38-3.png)
+而ASPI的另一个非常有趣的研究，推特有大量的休眠账户在2017年4月份之后被激活（如下图，不同的颜色代表不同文字，两条推文之间长达一年多的时间间隔则用灰线来表示）。从图中可以看出，这些帐户在推特中断之前曾经以各种语言发布过推文，包括葡萄牙文、西班牙文、英文以及其它一些不确定的文字，但没有中文。然而在他们恢复发推之后，这些账户却开始发布大量的中文推（桔红色），特别是从2017年底开始。这些数据表明，这些休眠的账号很有可能是2017年中后期被与中共有关的组织收购了。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22010309/Picture39-1.png)
+通过以上一系列来自于ASPI的数据，我们可以看到中共在对郭先生的网络攻击上不遗余力，而且这些网络攻击还配合着国际刑警组织的红色通缉，埃利奥特·布罗伊迪（Elliott Broidy）等人的遣返企图，所谓“主流媒体”的抹黑攻击，以及伪类们的造谣污蔑，和刘彦平孙力军等人的近身游说。中共曾经布下的天罗地网，在郭先生引领的爆料革命面前已经不堪一击，胜利终将属于正义和勇敢的新中国联邦人。
+
+（文章内容仅代表作者个人观点）
+
 0
