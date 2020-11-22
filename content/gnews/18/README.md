@@ -1,30 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 左派主持人曾抨击投票系统存在安全问题
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/580368/)
+## Dominion和Smartmatic互不竞争协议被披露
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/580872/)
 
-多伦多加喜农场 ctt
-校对 上传 云起时
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22004358/Vox.jpg)图像来源：Vox
-2020年大选前后，民主党阵营进行了大量明目张胆的选票造假和作弊，主流媒体非但视而不见，还嘲笑和否认川普支持者所举报的选举欺诈行为，全然忘记了2016年川普胜选后他们一致指责美国大选不可靠的种种言论。
+多伦多枫叶农场 文𤦍(Manpui）
 
-据11月21日的National Pulse 报道，近日有人在网上挖掘出了美国左派喜剧节目主持人约翰·奥利弗（John Oliver）在2019年11月对美国投票系统进行强烈抨击的一段视频。
+校对 不动之光 上传 XM
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22063308/%E5%9B%BE%E7%89%871-32.jpg)图片来源：homemania
+据国家脉冲娜塔莉（Natalie Winters)2020年11月21日报道披露，尽管Dominion和Smartmatic公开宣称他们是“激烈的竞争对手”，但在已知法院文件上他们已协议为互不竞争关系。
 
-在2019年11月于HBO播出的奥利弗节目（JOHN OLIVER SHOW）中，这位左派喜剧演员强烈地抨击了美国的投票系统，指出民众完全不知道选票如何被计算，同时认为民众对选举安全提出质疑是完全合理的。
+在2020年11月3日总统大选后，Dominion计票错误，为乔·拜登在密歇根州安特里姆县创造欺诈性胜利，并造成其他“小故障”，使得需要延长投票时间并推迟公布大选结果，Dominion和Smartmatic受到了严格审查。
 
-在一段描绘了民众如何盲目地以为自己的选票会被准确统计的视频后，奥利弗说，根据参议院情报委员会的一份报告，美国的投票系统 “容易被利用”。
+有消息透露Smartmatic与委内瑞拉政府有联系。该公司与独裁者雨果·查韦斯（Hugo Chavez）签订合同，曾为委内瑞拉2004年大选提供投票机。
 
-奥利弗感叹道：“这个国家没有一个标准的投票系统。”并认为电脑投票系统是 “绝对最糟糕 ”的投票方式。
+Dominion和Smartmatic在此次大选中不期而遇，表面上看这两家公司在商业上存在着竞争关系（在选举失误指控中包含这两家独立的技术公司），娜塔莉分析指出，实际上在法院文件表明，他们巳协议为非竞争对手。
 
-20年来，美国一直在使用容易被黑客攻击或破解的早期投票系统。奥利弗说：”黑客们一直在发现投票机的漏洞。”他指出，佐治亚州的投票系统已经15年没有更新，并夸张地嘲笑道：“佐治亚州的选举系统的操作技术水平就每个家庭里的父亲一样（不可靠）。”
+根据Potter Anderson Corroon律师事务所的摘要，Dominion在2009年与Smartmatic的诉讼中是被告，正如后续诉讼所指出的那样：“协议规定互不竞争，禁止原告（Smartmatic）在美国销售许可产品。”“牌照许可协议包含一项非竞争性条款，其中除其他外，禁止Smartmatic’在美国开发、销售或销售任何许可产品。’”
 
-最后奥利弗引用了罗格斯大学的教授佩妮-维尼蒂斯的评论：“任何人都可以走到这些投票机前。” “任何人都可以操纵它们，没有人会知道。”
+换句话说，两家公司的竞争关系是违法的。这与他们的公开宣称和媒体提出的关于欺诈指控出现直接矛盾。
 
-评论：此次拜登竞选团队在中共的帮助下用各种方式疯狂地四处造假，丑闻漏洞比比皆是，而主流媒体的黑暗更是令人发指，它们一边倒地站在民主党左派一边，拼命掩盖、打压对拜登家族贪腐及勾结中共的揭露，对民主党大选作弊持续视而不见、避而不谈。左派喜剧演员约翰·奥利弗的这段视频就是投票系统有问题的一个很好的佐证，只是不知道在节目中反复为拜登的造假领先欢呼不已的他将会如何回答当年的这段视频。
+Dominion坚称它是Smartmatic的强大竞争对手——这是违法的！
 
-许多左派不断地指责川普总统造成了美国的撕裂，却没有人意识到真正造成美国撕裂的幕后黑手正是中共。是中共在背后不断地挑动美国的种种矛盾，把原本正常的意见不同上升到了近乎敌我关系的对立。由此更佐证了文贵先生所说的，只有灭了中共，这个世界才能恢复正常。
+尽管美联社的“事实检查”文章分享了Smartmatic的说法——“两家公司是市场上的竞争者”，事实上没有对该公司的说法进行任何实际的检查。
 
-[原文链接](https://thenationalpulse.com/breaking/flashback-leftist-comedian-john-oliver-warned-of-red-flags-on-vulnerable-voting-machines/)
+一些公司为Smartmatic和Dominion提出了“可信任的”信誉声明，谎称两间公司是竞争对手。媒体机构仍还在努力将这这两间公司的造假行为，评定为“毫无根据的阴谋”。
 
-0
+评论：如果他们不是竞争对手，那就是背后有老板统一操控，细思极恐啊……这就是这两家公司和媒体集体鼓噪他们是竞争对手的原因吧？ ！可惜，你们这些见不得光的行径蒙蔽不了人民的心智，去看看、去听听那百万街头大众的声音，他们说他们爱这个国家、他们爱川普总统，你们休想通过作弊和谎言偷走这个国家的民主和自由，还有这一切！他们会站在正义一方誓死捍卫一人一票的选举权利，将护送川普总统大选连任。未来美丽的美利坚共和国将再次伟大！
+
+参考链接：
+
+
+
+> [REVEALED: Dominion/Smartmatic ‘Noncompete’ Agreement Emerges Despite Claims of Being ‘Fierce Competitors’](https://thenationalpulse.com/news/dominion-smartmatic-are-not-actually-competitors/)
+
+
+
+[https://www.potteranderson.com/media/experience/79\_Smartmatic\_20Int\_27l\_20Corp\_20v.\_20Dominion\_20Voting\_20Sys.\_20Int\_27l\_20Corp.\_205\_201\_2013\_20.pdf](https://www.potteranderson.com/media/experience/79_Smartmatic_20Int_27l_20Corp_20v._20Dominion_20Voting_20Sys._20Int_27l_20Corp._205_201_2013_20.pdf)
+
+
+
+1+

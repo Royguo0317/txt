@@ -1,45 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭文贵先生今日动态（2020年11月21日）
-` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/580364/)
+## 【热点播报】佐治亚州州长呼吁对选票进行签名审计
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/580798/)
 
-战友之家摘要组
+**作者： 香草山写作组 叮咚猫** 校对/发稿：飞虹
 
-【持续更新】吃真的、新鲜的、热的东西真幸福；中南坑的话全是假；昨晚上有大行动！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22003846/1-1-7.jpg)
-00:01 天啊，我现在问着面包味，看着我要找来。” What time you make this?Paul”.
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20165916/logo-3.jpg)
 
-00:12 Paul:“Just time, 4 minutes ago”.
 
-00:14 Hot.wa… I like this.哎呀，这大面包啊。就爱吃这新鲜。
 
-（切面包）
+11月20日（周五），佐治亚州州长，共和党人布莱恩·坎普举行了简短的直播发布会，介绍了该州重新计票的情况，同时呼吁对选票进行签名审计，彻查所有违规投票行为。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22053733/%E5%9B%BE%E7%89%871-29.png)
+在坎普新闻发布会之前，发生了一系列让人迷惑不解的事情。当天上午，州务卿布莱德·拉森斯伯格发表声明说重新计票结果已经被认证，然而仅仅半小时后，他就做出更正，说认证将在周五晚些时候进行。下午4点钟拉森斯伯格再次声明认证完成，但坎普并不认可这一结果，一小时后，他就召开了新闻发布会，呼吁再次进行全面的人工审计。剧情连续反转，乔治亚州上演的这部大戏令人眼花缭乱。信息发布的多次反复显示州政府内部分歧严重。
 
-00:33 啊，So good.
+坎普说，重新计票发现了数千张未计算的选票，包括弗洛伊德、道格拉斯和沃尔顿在内的几个县都出现了重大错误，“这是根本无法接受的”，他说。
 
-（吃面包）
+审计中还发现了数量创纪录的缺席选票。
 
-00:52 幸福的日子。这个好吃。哈哈，好不好啊。兄弟姐妹们。太棒了，太棒了。
+坎普强调：“需要注意的是，这次审计只数选票，而不审核缺席申请书或选票上的签名，显然这种审计毫无意义。”他呼吁拉芬斯伯格“考虑解决这些问题”，“对缺席选票信封上的签名进行抽样审核，并将这些签名与申请书上的签名和州务卿办公室的档案进行比较，这似乎很简单”。
 
-01:18 当你看到，这面包的时候，这味道。Thank you Paul.
+周五川普总统发推说：“让我们看签名，这将暴露出十万张非法选票。“
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22053533/%E5%9B%BE%E7%89%872-19.png)
+坎普呼吁对签名进行全面审计是个好消息，不合格选票被计入及漏数（有意或无意）选票的错误有望被纠正。
 
-01:25 Give me coffee here please.
+随着川普总统坚持不懈地为选举诚信而进行法律斗争，全国各地知道真相的爱国人士也不断地举行游行集会，支持川普连任并呼吁“停止窃选“。所有这些行动正在对华盛顿和全美各州产生深远的政治影响。美国再次伟大的希望在此一役。
 
-01:31 我就喜欢这感觉。我创建了裕达酒店还有这个盘古酒店。我最幸福的就是，到厨房去。然后就是早上厨师做的饭，我在那块吃点热东西，新鲜的，真的东西。一切在中国就是真的，真的屁都爱闻，因为那是真屁。不愿意看中南坑那帮王八蛋站在局上放着假屁。
+参考资料：
 
-02:09 你拂拂，弄点真的多不容易啊。在中国真的是啥，真漂亮今天的天。这中央公园是真漂亮啊。你看看，你看看，你看看。你看这个帝国大厦，这边阳台。
+1. [https://www.wfxg.com/story/42945204/georgia-governor-brian-kemp-calls-for-signature-audit-on-absentee-ballots](https://www.wfxg.com/story/42945204/georgia-governor-brian-kemp-calls-for-signature-audit-on-absentee-ballots)
+2. [http://greeknewsondemand.com/2020/11/21/georgia-governor-kemp-calls-for-audit-of-signatures-on-ballot-envelopes/](http://greeknewsondemand.com/2020/11/21/georgia-governor-kemp-calls-for-audit-of-signatures-on-ballot-envelopes/)
 
-02:36 路德波切上次说，“郭先生，那个露台，十几米”。他疯了，这是几十米啊，应该是45米乘以大概50米。45m\*50m最起码，大了。这是全曼哈顿第五大道最大的室外露台。哎呀真实啊。所以我们得辛勤劳动，所以我们这家族基金啊，买这个房子是对的。他们也投资了，是吧。我在这块帮他们赚那么多钱，是吧。
 
-03:15 但是我不拥有。不要拥有。啊。干嘛拥有啊。人生有生有死就不需要拥有。有使用的权力就可以了。只要你有使用，就挺好嘛，一样。
 
-03:30 就像有的人非得要拥有。干嘛要拥有啊。哎呀，热闹啊。听说昨晚上有大行动啊。大家听说了吗？还没看到，是吧。我就别说了，等着吧。
 
-03:46 行了，我就别说了，赶快喝杯咖啡吧。恩，昨天是晚上将近5点才睡的觉。我这是刚从安全屋下来啊，安全屋下来。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-03:59 啥都不拂了，战友们。周末愉快吧 。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-更多信息请点：https://gtv.org/getter/5fb91dc5b2a6d15327842580
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
