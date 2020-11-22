@@ -1,24 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 财经普及关键词：离岸金融中心
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/581206/)
+## 【世界多语言图文】2020/11/13 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/581554/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22083016/1122finance.jpg)图片来源：[wikipedia](https://zh.wikipedia.org/wiki/%E7%A6%BB%E5%B2%B8%E9%87%91%E8%9E%8D%E4%B8%AD%E5%BF%83#/media/File:Offshore_financial_centers.png)
-离岸金融是指设在某国境内但与该国金融制度无甚联系且不受该国金融法规管制的机构所进行的金融活动。离岸金融中心，指投资人的公司注册在离岸管辖区，但投资人不用亲临注册地，其业务运作可在世界各地直接开展。
+战友之家图文摘要及多语组
 
-离岸金融中心是二战后逐渐兴起的，分为传统与现代两种类型。传统型是指某一地区金融机构向非本地居民提供非本币存贷款服务。例如美国国际银行（IBF）和东京离岸金融市场业务活动，均属传统离岸金融。而现代型的内涵则广泛很多。非居民，低监管及税收少是离岸金融中心的三个主要特征，规避外汇管制，政策套力及银行业务拓展是离岸金融中心崛起的三大原因。
+[293\_English\_1113\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22095422/293_English_1113_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22095422/293_English_1113_CCP_Virus_Updates.pdf)
 
-全球著名的离岸金融中心包括英属维尔京群岛、萨摩亚、纽约、伦敦、香港、开曼群岛、巴哈马群岛、关岛、马恩岛等。按性质划分，离岸金融中心大致分为三种类型：
+[293\_French\_1113\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22102325/293_French_1113_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22102325/293_French_1113_CCP_Virus_Updates.pdf)
 
-**伦敦型**：属于“自然形成”的市场。伦敦离岸市场始于50年代末，既有银行业务，也有证券业务。自1979年取消外汇管制后，外汇金融业务与本土金融业务不再区分对待。自此伦敦离岸市场已然转型成“内外一体式”。HK自1972年废除外汇管制后，也逐渐变成亚太地区一个主要的伦敦型离岸金融中心。
+[293\_German\_1113\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22095422/293_German_1113_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22095422/293_German_1113_CCP_Virus_Updates.pdf)
 
-**纽约型**：其最大特点是内外分离，且没有证券买卖。1981年美联储设立国际银行便利（IBF）后，纽约离岸金融迅速开展。它主要服务对象是非本地居民，筹资只能吸收海外居民，银行或公司的存款，存款不受美国准备金率和存款比率限制。贷款必须在美国境外使用。
+[293\_Japanese\_1113\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22095422/293_Japanese_1113_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22095422/293_Japanese_1113_CCP_Virus_Updates.pdf)
 
-**巴哈马型：　**只有记账而没有实质性的离岸金融中心，又称“逃税型”。由于某些国家或地区开展金融业务可以逃避营业税等，同时这些地方开办成本费用也远比伦敦低，所以离岸金融市场纷纷在这些地方开辟。开曼群岛和巴林等皆属此类。
+[293\_Korean\_1113\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22095423/293_Korean_1113_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22095423/293_Korean_1113_CCP_Virus_Updates.pdf)
 
-接下来浅谈一下巴哈马型离岸金融中心。这类型的特点：所在地政局稳定，税负低，几乎没有金融管理制度。20世纪60年代后各国纷纷提高税率，大型私企和巨额收入者为了减轻税收负担，开始寻求合法避税的地方。于此同时，若干小国和海岛为了刺激经济，采用减免所得税方式吸引国际资金，因此逐渐形成一种新型离岸金融中心—-避税型离岸中心。这类金融中心分布广，但因不具备构成国际金融和外汇市场的条件，所以多位记账型中心。此外，避税型金融中心还有一个吸引外资的重要因素就是银行享有保密权。比如在加勒比海的离岸金融市场，当地法院可以阻止银行向美国法院或政府提供客户资料。由于外国难以追查其金融活动，某些利益集团可能把大量非法资金引入避税型离岸金融中心，这就是俗称的“洗黑钱”。
-
-【㊙️秘密翻译组·金融法律组】
+[293\_Spanish\_1113\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21030822/Unknown-1.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21030822/Unknown-1.pdf)
 
 0

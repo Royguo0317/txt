@@ -1,53 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国国务院：教育体系中的反美分子破坏了美国对华努力
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/581353/)
+## 【世界多语言图文】2020/11/14 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/581581/)
 
-多伦多枫叶农场（原加喜农场） 香江小哥
+战友之家图文摘要及多语组
 
-校对 文锦 上传 XM
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22091012/%E5%9B%BE%E7%89%873-14.jpg)图片来源：盖蒂图片社
-据《华盛顿自由灯塔》11月21日报道，美国国务院新公布一份概述与中共国竞争和击败中国共产党长期战略的报告（The Elements of the China Challenge），美国在教育体系中的反美态度极大地削弱了美国抵抗中共崛起的能力。
+[294\_English\_1114\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22102515/294_English_1114_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22102515/294_English_1114_CCP_Virus_Updates.pdf)
 
-报告显示，美国人必须接受有关中共对美国利益构成的战略威胁的教育，并呼吁政府官员和公众获得中共演讲稿的英文译本，因为中共在对美国建国原则和教育系统进行破坏。报告中指出：“美国的小学、初中、高中以及大学放弃了全面介绍美国的建国思想和宪法传统，反而支持旨在破坏这个国家的宣传，这已经达到了令人沮丧的程度”； “面对极端分化的力量，美国必须重新宣扬我们美国人自由的传统。”
+[294\_French\_1114\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22102516/294_French_1114_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22102516/294_French_1114_CCP_Virus_Updates.pdf)
 
-全国学者协会高级研究员拉切尔·彼得森（Rachelle Peterson）称，国务院对美国教育的评估“备受关注”。彼得森说，因为毁坏性的误导，年轻的美国人对自己的历史产生了偏见，变得更容易接受中共政府的宣传。
+[294\_German\_1114\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22102516/294_German_1114_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22102516/294_German_1114_CCP_Virus_Updates.pdf)
 
-彼得森说：“多年来，学生们一直被灌输美国历史就是不断违反诺言，而忽略了美国人为促进人身自由和个体责任所做的开创性工作”； “学生们确信美国天生就是顽固的，并且发现中共的宣传具有说服力吗？”该部门表示，中共政府将在未来几年呈现给我们一个棘手的问题，而不仅仅是现任政府的问题。
+[294\_Japanese\_1114\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22102516/294_Japanese_1114_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22102516/294_Japanese_1114_CCP_Virus_Updates.pdf)
 
-文章写道：“据了解，中共带来的挑战很可能会主导多届美国政府的外交政策”； “中共国行为的主要组成部分……他们清楚国际秩序的转变对其主导世界事务的计划至关重要，展现出了出强大的力量。”
+[294\_Korean\_1114\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22102516/294_Korean_1114_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22102516/294_Korean_1114_CCP_Virus_Updates.pdf)
 
-该文件呼吁国会议员增加对最先进技术的投资，并加强外交机构，例如国际开发金融公司（International Development Finance Corporation）和蓝点网络（Blue Dot Network），以对抗中共国的影响。它还声称，美国必须抓住中共政权深刻的外部和内部的脆弱性，比如中共国人口的减少和经济增长的放缓。
+[294\_Spanish\_1114\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22103243/Unknown-1_3.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22103243/Unknown-1_3.pdf)
 
-美国的专家和立法者也支持该文件，这为美国对抗共产主义政权提供了关键性的战略贡献。美国企业研究所学者，《中国噩梦》的作者丹·布卢门撒尔（Dan Blumenthal）说，最好将中共国视为一个“列宁主义帝国”，这样的国家不仅仅要统治其国内人口，而且还要统治海外的人。
-
-布鲁门塔尔（Blumenthal）说：“事实上，它是一个帝国，并主导了对新疆、西藏、香港和台湾的大部分行动”； “这份报告非常明智地指出了中国的脆弱性，采用竞争性策略将加剧中国面临的的脆弱性问题。”
-
-来自威斯康星州的众议员迈克·加拉格尔（Mike Gallagher）一直是国会山反对中共强权派，发起了立法，使中共在网络安全到澳大利亚联盟的问题上处于防御状态。他赞扬国务院承认来自中共的不断增加的威胁，并说这将为未来几届美国政府建立坚实的框架。
-
-加拉格尔对《华盛顿自由灯塔报》说：“国务院关于中国挑战的新文件为我们与中国共产党的竞争设定了重要的战略框架。” ；“它着眼于被我们严重低估的意识形态领域，在此中共已经做出了野蛮侵略，并为美国战略方向指明了明确的北极：确保国内外自由。这是一项值得两党支持的战略，应该成为未来几年美中政策的基础。”
-
-专家们还谈到了国务院的努力。民主政治防御基金会（Foundation for Defense of Democracies）的国防专家布拉德利·鲍曼（Bradley Bowman）和内森·皮卡西奇（Nathan Picarsic）赞扬了这份文件，阐明了冲突的根源。
-
-鲍曼对《华盛顿自由灯塔报》说：“国务院的政策规划人员应该为撰写如此雄心勃勃，针对中华人民共和国的文件而受到赞扬。这是美国和民主国家面临的最大威胁”； “正如论文所指出的那样，公务员们正在努力采取更长远的眼光，在美国政府中尝试这样做的人很少，因此非常需要这样的努力。”
-
-皮卡西奇称中共的崛起是“一个世代的挑战”。他强调，美国与欧洲和亚洲伙伴在几个领域的合作将决定华盛顿对中共的立场。皮卡西奇说：“未来的艰苦工作将决定于底层的人民，在21世纪，战场将横跨思想、技术、经济与军事等多个领域。”
-
-评：
-
-2020年11月17日，美国国务院政策规划办公室发布了应对中共国崛起成为独裁超级大国的蓝色计划书，这份长达70多页的报告探讨了中国共产党的有害行为，意识形态来源，面临的困难，以及美国及其盟友如何应对等问题。长期以来，通过对美国主流媒体和社交媒体的控制，为了达到中共3F方案（搞弱，搞乱，搞死美国）的目的，中共在意识形态领域对美国进行了严重的渗透。在美国大选期间，媒体制造虚假舆论，意图控制美国的民意，进一步的，马克思主义背景的黑命贵（BLM）和安提法（Antifa）运动对美国社会造成了极大的法治与民主秩序的破坏，这些事实令到更多的美国人对于自由民主法治等核心价值的觉醒。美国教育体系已经长期缺乏对年轻人进行美国建国思想和宪法传统等意识形态的培养，配合中共长期的意识形态方面的宣传，美国年轻人更容易被社会主义思想侵蚀。面对中国的挑战，美国国务院指出了当前冲突的根源在意识形态领域。在下一个世代，美国的教育体系将帮助学生了解复杂信息时代的公民责任，促进美国的宪政和公民社会。
-
-**参考链接：**
-
-State Department Says Anti-American Educators Undermine U.S. Efforts to Counter China，[https://freebeacon.com/national-security/state-department-says-anti-american-educators-undermine-u-s-efforts-to-counter-china/](https://freebeacon.com/national-security/state-department-says-anti-american-educators-undermine-u-s-efforts-to-counter-china/)
-
-The Elements of the China Challenge，[https://assets.documentcloud.org/documents/20407448/elements\_of\_the\_china\_challenge-20201117.pdf](https://assets.documentcloud.org/documents/20407448/elements_of_the_china_challenge-20201117.pdf)
-
-独家新闻：美国国务院将发布关于中国的凯南式文章，[https://gnews.org/zh-hans/574885/](https://gnews.org/zh-hans/574885/)
-
-【世事解评】新凯南电报：习近平的“大变局”是一个大骗局，[https://gnews.org/zh-hans/574723/](https://gnews.org/zh-hans/574723/)
-
-[史海今钩]内卷化-美国对抗中共蓝皮书看中共之对策走向，[https://gnews.org/zh-hans/569087/](https://gnews.org/zh-hans/569087/)
-
-1+
+0

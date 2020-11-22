@@ -1,36 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】佐治亚州州长呼吁对选票进行签名审计
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/580798/)
+## 【军事快讯】美军舰本年度第11次航经台湾海峡，并于次日进入南中国海
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/581294/)
 
-**作者： 香草山写作组 叮咚猫** 校对/发稿：飞虹
+作者：香草山农场写作组   人间世
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20165916/logo-3.jpg)
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
 
 
 
-11月20日（周五），佐治亚州州长，共和党人布莱恩·坎普举行了简短的直播发布会，介绍了该州重新计票的情况，同时呼吁对选票进行签名审计，彻查所有违规投票行为。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22053733/%E5%9B%BE%E7%89%871-29.png)
-在坎普新闻发布会之前，发生了一系列让人迷惑不解的事情。当天上午，州务卿布莱德·拉森斯伯格发表声明说重新计票结果已经被认证，然而仅仅半小时后，他就做出更正，说认证将在周五晚些时候进行。下午4点钟拉森斯伯格再次声明认证完成，但坎普并不认可这一结果，一小时后，他就召开了新闻发布会，呼吁再次进行全面的人工审计。剧情连续反转，乔治亚州上演的这部大戏令人眼花缭乱。信息发布的多次反复显示州政府内部分歧严重。
+据台湾《自由时报》报道，美国海军第七舰队于台北时间11月21日傍晚主动公布，第七舰队伯克级神盾驱逐舰巴里号（USS Barry DDG-52）于当日通过台湾海峡，并强调此举表明美国对于印太区域自由与开放的承诺，美国海军将继续在国际法允许的范围内飞行与航行；这也是美国军舰今年第11次通过台湾海峡。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22085539/MOS0438-%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91%E7%BE%8E%E5%86%9B%E8%88%B0%E6%9C%AC%E5%B9%B4%E5%BA%A6%E7%AC%AC11%E6%AC%A1%E8%88%AA%E7%BB%8F%E5%8F%B0%E6%B9%BE%E6%B5%B7%E5%B3%A1%EF%BC%8C%E5%B9%B6%E4%BA%8E%E6%AC%A1%E6%97%A5%E8%BF%9B%E5%85%A5%E5%8D%97%E4%B8%AD%E5%9B%BD%E6%B5%B7-1.jpg)美海军巴里号驱逐舰（美第七舰队脸书/《自由时报》）
+台湾国防部随后于证实，美国驱逐舰一艘，由北向南航经台湾海峡后，继续往南行驶。
 
-坎普说，重新计票发现了数千张未计算的选票，包括弗洛伊德、道格拉斯和沃尔顿在内的几个县都出现了重大错误，“这是根本无法接受的”，他说。
-
-审计中还发现了数量创纪录的缺席选票。
-
-坎普强调：“需要注意的是，这次审计只数选票，而不审核缺席申请书或选票上的签名，显然这种审计毫无意义。”他呼吁拉芬斯伯格“考虑解决这些问题”，“对缺席选票信封上的签名进行抽样审核，并将这些签名与申请书上的签名和州务卿办公室的档案进行比较，这似乎很简单”。
-
-周五川普总统发推说：“让我们看签名，这将暴露出十万张非法选票。“
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22053533/%E5%9B%BE%E7%89%872-19.png)
-坎普呼吁对签名进行全面审计是个好消息，不合格选票被计入及漏数（有意或无意）选票的错误有望被纠正。
-
-随着川普总统坚持不懈地为选举诚信而进行法律斗争，全国各地知道真相的爱国人士也不断地举行游行集会，支持川普连任并呼吁“停止窃选“。所有这些行动正在对华盛顿和全美各州产生深远的政治影响。美国再次伟大的希望在此一役。
-
-参考资料：
-
-1. [https://www.wfxg.com/story/42945204/georgia-governor-brian-kemp-calls-for-signature-audit-on-absentee-ballots](https://www.wfxg.com/story/42945204/georgia-governor-brian-kemp-calls-for-signature-audit-on-absentee-ballots)
-2. [http://greeknewsondemand.com/2020/11/21/georgia-governor-kemp-calls-for-audit-of-signatures-on-ballot-envelopes/](http://greeknewsondemand.com/2020/11/21/georgia-governor-kemp-calls-for-audit-of-signatures-on-ballot-envelopes/)
-
+据中共东方网11月22日消息，这是美军巴里号驱逐舰一年内五次穿航台湾海峡，继续加强对中共国的军事施压。中共环球网援引港媒消息，美海军阿利·伯克级导弹驱逐舰“巴里”号周六（21日）穿越台湾海峡后，22日重返南海，并在该地区执行“海上安全行动”。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22085641/MOS0438-%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91%E7%BE%8E%E5%86%9B%E8%88%B0%E6%9C%AC%E5%B9%B4%E5%BA%A6%E7%AC%AC11%E6%AC%A1%E8%88%AA%E7%BB%8F%E5%8F%B0%E6%B9%BE%E6%B5%B7%E5%B3%A1%EF%BC%8C%E5%B9%B6%E4%BA%8E%E6%AC%A1%E6%97%A5%E8%BF%9B%E5%85%A5%E5%8D%97%E4%B8%AD%E5%9B%BD%E6%B5%B7-2.png)（美国海军官网/CCP环球网）
+据东方网统计，巴里号驱逐舰可谓对CCP施压的急先锋，仅在今年巴里号驱逐舰就已经五次穿航台湾海峡：4月10号自北向南航经台湾海峡；4月23日两次自北向南航经台湾海峡；10月14日穿航台湾海峡；11月21日航台湾海峡。除此之外，巴里号驱逐舰还多次造访南中国海，并曾于4月28日进入中共国西沙领海。
 
 
 
@@ -38,6 +24,6 @@
 
 更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

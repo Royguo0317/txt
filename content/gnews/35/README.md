@@ -1,25 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美军一架C-37A型公务机搭载神秘人物降落台北松山机场
-` 快慢机` [轉載自GNews](https://gnews.org/zh-hans/581123/)
+## 当危会重拳出击，定性中共是跨国犯罪组织！
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/581442/)
 
-内军事:快慢机
+文/青椒文喜        审核/文璟     文宣/青椒文喜
 
-据三立新闻网讯息,2020年11月22日傍晚18时许,一架隶属于美国海军的C-37A型公务机,搭载神秘人物降落在台北松山机场.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22074728/Ena0BrLVkAUlcUg.jpeg)
-此前有社交媒体传闻称,美中情局局长将率8人代表团搭乘行政专机访问台湾.
+（喜马拉雅俄罗斯）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22094325/image-34.jpeg)
+在以上几个主题的深入讨论上，“当委会”还提到，美国人正在为中共的罪行提供资金(高达数万亿美元) ，向中共企业提供养老金和其它股市投资。其中许多中共的企业和公司已被五角大楼指定为人民解放军公司。这些公司制造武器和技术，用来支配和奴役中国、美国和其他自由世界中有自由思想的人。
 
-不过台湾外交部随即在其官网对此传闻直接予以否认及澄清.
+参考
 
-但其并未对这架降落于台北松山机场的美军C-37A型公务机的具体任务细节进行说明.
+[1] [WEBINAR: The Chinese Communist Party’s Crimes Against America…and the Rest of the Free World](https://presentdangerchina.org/2020/11/webinar-the-chinese-communist-partys-crimes-against-americaand-the-rest-of-the-free-world/)
 
-有消息指出,搭乘此架美军公务机的神秘人物,或许是美军印太防区的现任情报总指挥官“史达曼”一行人等.
-
-其本次抵台的主要目的,一方面视察美台之间的情报协同系统;
-
-另一方面则是,进一步巩固美台之间的协防协作、扩展印太防区的战略布局!
-
-截止目前台湾官方还未就此相关讯息予以回应!
-
-0
+1+

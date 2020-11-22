@@ -1,54 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特拜登的后背纹身图和怪兽饮料
-` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/580801/)
+## 节选法国«费列罗»报采访迈克·蓬佩奥。迈克·蓬佩奥：“我们被指控脱离世界，这恰恰相反”
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/581224/)
 
-喜马拉雅的文雅 （雅典娜农场）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22052105/Unknown-6.jpg)
+翻译：游泳的鱼
 
+一校：Ikonic
 
-近日社交平台出现了一个关于展示怪兽能量饮料（Monster Energy Drink）寓意的视频，在一个反撒旦展示会上，一名口音可能来自中西部地区的妇女向公众解读了怪兽能量饮料宣传中蕴含撒旦魔鬼的寓意。该饮料的图标看似是一个变形M，但是每一个笔画没有实质相连，所以更像是希伯来语(Hebrew)中的数 666（Vav）。在圣经中，数字6象徵着个体人和人类的软弱，撒旦的邪恶和罪恶，也表示撒旦对耶稣的诱惑。圣经启示录中666的含义是野兽的力量，也表示地球上人类的三个系统分别被魔鬼撒旦6统治和欺骗，他们是宗教信仰，政府，经济体系。
-
-
-
-> [#亨特拜登](https://twitter.com/hashtag/%E4%BA%A8%E7%89%B9%E6%8B%9C%E7%99%BB?src=hash&amp;ref_src=twsrc%5Etfw) 的纹身M什么意思？
-> 谜底揭开啦！震惊全世界！
-> 速分享到英语世界、基督教世界！[#Biden](https://twitter.com/hashtag/Biden?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hash&amp;ref_src=twsrc%5Etfw) [#TakeDownTheCCP](https://twitter.com/hashtag/TakeDownTheCCP?src=hash&amp;ref_src=twsrc%5Etfw) [#GTV](https://twitter.com/hashtag/GTV?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/8Uup2LYyaX](https://t.co/8Uup2LYyaX)
-> — 孙悟空 (@guzhoujin) [November 21, 2020](https://twitter.com/guzhoujin/status/1330067078922051588?ref_src=twsrc%5Etfw)
+二校：游泳的鱼
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22084038/reu_pompeo_paris.jpg)
 
 
+费加罗报：您的政府正在对总统选举的结果提出异议。美国民主能否在这样的政治危机中生存下来？
 
-由此网友推测，怪兽能量饮料的图标与早些时候（11月3日前爆料革命13天大战）期间被爆出的亨特拜登裸照相像。众所周知，与中共勾结出卖美国人民利益、变相奴役中国人民的美国民主党候选人乔拜登利用儿子亨特拜登从中共收取巨额利润，沦为中共充分控制美国的代理人。亨特拜登一张裸照显示，他的后背有不规则条纹图形的纹身，形状怪诞。图形的风格确实与能量饮料相似。从圣经对666的解读中看，“野兽的力量”与亨特拜登嗜性成瘾的变态心理，以及乔拜登家族与中共为伍、在美国政府部门、经济体系、信仰领域实施犯罪和侵蚀也是一致的。如果此纹身图确实如此，那麽亨特拜登不可否认是一名与暗黑势力“撒旦”所勾结的反基督之徒。
+迈克·蓬佩奥（Mike POMPEO）:过渡过程即将启动并履行我们对内和对外的义务。我们的民主要求我们确保选举是自由和公正的，同时也要确保计票过程的正确进行。总统采取的法律上诉是有意义的，因为它们只会加强我们对法制国家和国家机构的重视。我们有一个宪法框架。我完全相信，未来几天和未来几周将显示我们对这次选举在宪法框架之内的坚定承诺。
 
-然而查看希伯来语“6”的书写规则仍然和亨特后背的纹身图存在区别，与其说只有长形拖延图形的纹身与希伯来小头长尾的数字6相似，倒不如说更像北美纽约州的五指湖（Finger Lakes）。据Gnews早先报导，五指湖周边发生的贩卖儿童当做性奴的事件一直层出不穷。一位G-TV盖友Qiil| 留言称，五指湖地区的地下通道与废弃的地下军事设施是臭名昭著的人口贩卖运输线。另一名盖友帷幕称，纹身图是爬虫印记，代表仪式地点、暗势力等级、出卖灵魂等爬虫血统者的特征。由此，亨特拜登背后的纹身图之谜仍然没有被彻底解开。但是这则新闻给我们揭开了另一种可能的暗黑势力，就在我们的身边，他们可能披著前卫反叛的外衣，一边以其产品牟利，比如畅销饮料，一边将其邪恶的教义和价值观进攻善良的人们和文明的生态。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22052452/Hebrew-number.png)希伯來語中的數字![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22052125/fingerlakes2.jpg)北美五指湖地圖，圖片來源 [http://eastcoastwineries.blogspot.com/2012/08/best-reds-of-finger-lakes-2012-edition.html](https://eastcoastwineries.blogspot.com/2012/08/best-reds-of-finger-lakes-2012-edition.html)
-揭示怪兽能量饮料的视频最早出现在2014年11月，视频显示该饮料实质就是宣扬反基督的撒旦势力，除了貌似M实为666的标识，单词Monster中的o上有十字架，当人们饮尽饮料时，十字架底朝天，寓意推翻耶稣基督。而饮料瓶体上印有“BFC”则是一个Big Fxx Can 的粗话，另一个暗语“Milf”（Mother I’d like to fxx）也是类似的脏字。这个6年前的视频近日再次在社交媒体广传，不能不说文明信仰世界的抗争从来没有停止，爆料革命引领的推翻中国共产党的运动唤起了人们对共产主义邪魔操控文明世界、勾结影子政府、金融财团等暗黑势力的再次认知。
+您已经打破了美国外交的很多传统原则。 未来的行政部门应该从您的经验中学到什么？
 
-维基百科对怪兽饮料图标的解释是，由位于加利福尼亚的McLean Design公司设计， 图标是充满活力的绿色“ M”， “ M”的风格表示由怪兽的爪子从罐中撕裂而形成的。
+三件事。首先，是特朗普总统的做法是审时度势的。我们摆脱了对某些以成果为导向政策的“偏爱”。我们还花费了很多时间来判断对美国人安全的最重要的因素。我们也摒弃了西方世界正在退缩的想法，因为我们不相信这个假设。我们认为，西方世界最终将赢得胜利，我们的价值体系必须得到捍卫。这就是为什么我们一直在努力对付包括法国在内的世界各地的中国共产党的行动。我们还与伊斯兰恐怖主义威胁作斗争。所有这些威胁不仅造成安全问题，而且旨在破坏西方价值观，而西方价值观对全球和平与繁荣已做出了巨大贡献。当美国强大时（总统称之为“美国优先”），也提升了所有人的安全。我们被指控脱离世界。我认为恰恰相反。遵循开国元勋的基本原则和托克维尔所推崇的那些著名原则，采取保守和现实的立场，我相信我们已经服务于世界大多数的利益。
 
-占全球能量饮料市场份额35%、位居全球第二的怪兽能量饮料所属公司怪兽饮料公司（Monster Beverage Corporation ）旗下的其他能量饮料还有Burn，NOS, Full Throttlp, Relentless, Mother, REIGN.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22052554/Screenshot-2020-11-22-at-8.08.38-pm.png)圖片來源 Monster Beverage 官網
-据维基百科，大多数这些饮料中的咖啡因含量约为33.81 毫克 / 100 毫升，即每16盎司（454克）的罐装饮料中含有160毫克。 包装上通常包含警告标籤，建议消费者不要每天喝超过48盎司（3罐饮料）（澳大利亚建议每天喝不超过16盎司，即一罐饮料）。饮料成分包括碳酸水，蔗糖，葡萄糖，柠檬酸，天然香料，牛磺酸，柠檬酸钠，添加的色素，人参根提取物，左旋肉硷，左旋酒石酸盐，咖啡因，山梨酸，苯甲酸，烟酰胺，氯化钠， 大豆最大葡萄醣醛酸内酯，肌醇，瓜拉那种子提取物，盐酸吡ido醇，三氯蔗糖，核黄素，麦芽糖糊精和氰钴胺素。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22052351/monster_drinks.0.jpg)圖片來源 [https://www.eater.com/2018/1/24/16925724/monster-energy-sexual-misconduct-lawsuits-boycott](https://www.eater.com/2018/1/24/16925724/monster-energy-sexual-misconduct-lawsuits-boycott)
-该公司由可口可乐公司部分控股，以赞助极限运动比赛和音乐赛事而闻名。据Huff Post, 该公司曾因高层性侵妇女卷入五宗性骚扰案件而引发公众联合抵制该饮料的呼声，其中2016年的性侵暴力案引起广泛关注。
+这次疫情能否提振中国经济从而实现重返欧洲，并削弱美国面对中国所作的努力呢？
 
-在所有以发挥人类身体潜能和音乐激情的光环笼罩下，我们不知道有多少罪恶被遮盖和遗忘。正如视频中女主人所言，上帝说他的子民因无知而亡。
+我们首先谈谈战术问题，以及武汉病毒的暴发。 这是中（共）国专制政权的一种表现，认为中共将从中受益的说法是不正确的。人们不会被这样的现实所蒙蔽：无论是死亡还是我们被迫采取的禁足政策，我们所有人的生活都受到这个病毒影响。
 
-我们希望人们远离暗黑世界的产品和诱惑，以及更多背后的真相和关联的线索能够被揭示出来。
+然而，当我们还在艰苦奋战的时候，他们已经摆脱了封锁的状态！
 
-参考资料
+不要那么的肯定！在堪萨斯州，你会听到一个神圣的寓言！我确信无论是疫苗和针对病毒的治疗方法，还是经济层面，西方都会重新振作。这需要一点时间，但是我们肯定能做到。关于我们正在构建的联盟，川普总统在2015-2016年的大选期间就已经确认了中（共）国的危害性。我们花了一些时间来建立了一个结构性的方法，先是我们在（美国）国内进行了一些说服工作，因为有众多的经济利益得益于和中（共）国的关系。然后我们将这个愿景带到了美国之外—不论在我们针对中国四方安全对话（美国、日本、印度和澳大利亚），还是在美欧关系之中。在这一点上，我们代表了历史的发展趋势。这就是为什么即使在短期内可能会有损失，即使有些人感到投注中国是一个不错的选择，我们仍然必须努力说服民意和盟友的原因。因为最后，如果我们放弃，我们将处于殖民地的位置，而面对中国专制政权不再是合作关系。必须承认，中国共产党帮助我们捍卫了这一立场。 不只是因为病毒。 以越南为例，越南试图在其专属经济区开发资源。 关于这一领域的划分没有任何争议，但中国对此表示质疑。 以澳大利亚为例，它已经表明了立场（捍卫其独立性，编者注）。 中（共）国现在想让其为此付出经济代价。 因此，我们必须团结起来捍卫法律，法国也是如此。特别是中国人通过孔子学院在我们的本土内进行活动以获取影响力。 我们不得不关闭了一间正在从事间谍活动的（中共）领事馆。 我坚信，所有在意国际秩序和国家主权的人，都将为此而共同努力。
 
-[https://gtv.org/getter/5fb99bb5b2a6d15327843eb3](https://gtv.org/getter/5fb99bb5b2a6d15327843eb3)
+原文链接：
 
-[https://en.wikipedia.org/wiki/Monster\_Energy](https://en.wikipedia.org/wiki/Monster_Energy)
+[https://www.lefigaro.fr/international/mike-pompeo-on-nous-a-accuses-de-nous-retirer-du-monde-c-est-l-exact-contraire-20201116](https://www.lefigaro.fr/international/mike-pompeo-on-nous-a-accuses-de-nous-retirer-du-monde-c-est-l-exact-contraire-20201116)
 
-[https://www.eater.com/2018/1/24/16925724/monster-energy-sexual-misconduct-lawsuits-boycott](https://www.eater.com/2018/1/24/16925724/monster-energy-sexual-misconduct-lawsuits-boycott)
-
-
-
-> [重磅! 更多不雅照流出，亨特背后刺青是否与性奴交易有关？](https://gnews.org/zh-hans/455057/)
-
-
-
-3+
+0
