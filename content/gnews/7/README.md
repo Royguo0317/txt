@@ -1,31 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选主题专栏：假媒体CNN蓄意破坏闫丽梦博士声誉，以假新闻谎言误导民众，掩盖真相
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/579699/)
+## 【热点播报】中美终极之战时刻，中共出台《出口管制法》意欲何为
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/580175/)
 
-《路德社》出品 ；编辑：玫瑰天空
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20165916/logo-3.jpg)200
 
+作者：香草山写作组 程万里
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21233044/11221.jpg)
+在美中关系因贸易、技术、人权和知识产权等原因不断紧张之际，中共操控的全国人大常委会周六通过《出口管制法》，规定中国可以根据实际情况，针对任何国家或地区“滥用出口管制措施危害中国国家安全和利益的”，采取对等措施。自12月1日起施行的这部新法将允许北京对美国以国家安全理由制裁中国公司加以报复。该法将适用于中国所有公司，包括外资企业，并规定从中国境内向境外转移管制物项，以及中国公民、法人和非法人组织向外国组织和个人提供管制物项，都受该法约束。中共的最新出口管制法也规定该法必要的域外适用效力，境外组织和个人违反规定，危害中国国家安全和利益，妨碍履行防扩散等国际义务的，依法处理并追究其法律责任，并可处罚高达500万元或相当于“非法交易”价值的20倍的罚款。
 
+中国有什么产品和技术已经领先于世界禁止出口的吗？造假技术还是防火墙技术，如果有的话那就是最近被爆料革命和美国曝光的方正科技的汉字信息处理技术和系统。中美终极之战时刻，中共出台《出口管制法》意欲何为，《国安法》是为了把反对中共的所有人抓回墙内。《出口管制法》则有可能为逃出国外正义人士制定的口袋罪。
 
-最近，假媒体CNN攻击了我们发表的两项科学报告（《严报告》， 《第二次 严报告》）。第一次攻击是 有关CNN政治的文章，两天后又进行了一个 四分钟的程序 在电视上具有相同的内容。CNN的目标很明确：破坏闫丽梦博士的声誉，更重要的是，破坏SARS-CoV-2的实验室起源理论。
+审核：浪迹天涯
 
-正如闫丽梦博士作者所述，：我们发现CNN的袭击完全毫无根据，而且充满谎言。为了揭露CNN否定SARS-CoV-2实验室起源的虚假宣传活动，我们列出了他们的谎言和错误，并相应地提供了我们的回应。我们认为这是必要的，因为在这个重要问题上，公众应该知道谁在撒谎，故意误导，谁是诚实守信。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-闫丽梦博士本人推特声明：
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-“如所承诺的，我对反假新闻的正式回应 [@CNN](https://twitter.com/CNN)[@CNNP政治](https://twitter.com/CNNPolitics)已出版。隐藏但有趣的信息与那些Two毁两份严谨报告并否认实验室起源于COVID-19病毒的科学家有关，再次欢迎进行真正的科学讨论”。
-
-
-
-> As promised, my formal response to rebut FAKE NEWS [@CNN](https://twitter.com/CNN?ref_src=twsrc%5Etfw) [@CNNPolitics](https://twitter.com/CNNPolitics?ref_src=twsrc%5Etfw) is published.
-> 
-> HIDDEN but INTERESTING information related those scientists who slandered Two Yan Reports and denied lab-origin of COVID-19 virus
-> Again, welcome real scientific discussion[https://t.co/NEAiijJpBV](https://t.co/NEAiijJpBV)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [November 21, 2020](https://twitter.com/DrLiMengYAN1/status/1330159496002473992?ref_src=twsrc%5Etfw)
-
-
-![](https://zenodo.org/record/4283480/files/The_Yan_response_to_CNN.pdf?download=1)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21191130/%E6%88%AA%E5%B1%8F2020-11-22-13.11.10.png)
-[闫丽梦博士论文原文：](https://zenodo.org/record/4283480#.X7mp9dMzY3E)
-
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20165916/logo-3.jpg)
 0

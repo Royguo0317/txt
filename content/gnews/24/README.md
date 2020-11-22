@@ -1,13 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 为何如此慌不择路? 指控郭文贵先生是双面间谍的战略愿景公司, 迫切向法庭寻求排除与其辩护出资人有关证据的动议【全文翻译】
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/574505/)
+## 川普呼吁对佐治亚州缺席选票签名进行审计
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/580245/)
 
-## 【[英文原文](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002451/STRATEGIC-VISION-Case-No.-18-cv-2185.pdf)】【[中文翻译](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002506/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1.pdf)】
+多伦多加喜农场 阿黎
+校对 文锦 上传 云起时
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21235934/Trump123-1.jpg)图片来源：网络
+The Western Journal于11月20日报道，川普总统称佐治亚州的重新计票是“毫无意义的（与初次选举结果）相符”，因为它没有对缺席投票的签名进行适当的审查。
 
-## **法庭动议**全文翻译：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002308/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_00.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002314/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_01.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002316/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_02.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002318/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_03.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002321/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_04.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002323/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_05.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002326/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_06.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002329/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_07.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002330/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_08.png)
-## **法庭动议英文原文：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022806/Case-No.-18-cv-2185_00.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022856/Case-No.-18-cv-2185_01.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022859/Case-No.-18-cv-2185_02.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022903/Case-No.-18-cv-2185_03.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022906/Case-No.-18-cv-2185_04.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022909/Case-No.-18-cv-2185_05.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022911/Case-No.-18-cv-2185_06.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022913/Case-No.-18-cv-2185_07.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022916/Case-No.-18-cv-2185_08.png)
+周五，佐治亚州认证了手工重新计票结果。川普的选票在手工重新计票后增加了大约1300票，最终拜登以12,670票的优势超过川普，拜登得票率为49.51％，川普为49.25％。
+
+但是，这次手工重新机票没有验证缺席投票的签字，而计入拜登票数的缺席投票有成千上万张。
+
+川普发推说：“佐治亚州州长和州务卿拒绝让我们看成千上万张非法选票的签名，这些签名会让共和党和我，大卫·珀杜（David Perdue）或许凯利·洛夫勒（Kelly Loeffler）大赢。”
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22000340/56.png)图片来源： Twitter
+川普竞选高级法律顾问詹娜·埃利斯（Jenna Ellis）也认为这次的重计选票不具备选举的完整性。她在周四的声明中说：“所谓的手动重新计票完全达到了我们的预期，是因为佐治亚州重新计入了所有的非法投票。”埃利斯要求格佐治亚州进行诚实的计票，其中包括签名匹配。她说： “我们将运用所有法律程序，以确保只计入合法选票。”
+
+川普总统的佐治亚州重新计票团队的负责人众议员道格·科林斯，佐治亚州共和党主席大卫·谢弗，在上周手工验票开始之前，给州务卿布拉德·拉芬斯佩格的一封信上也指出，重新机票没有对缺席选票签名进行验证。他们分析发现，缺席投票驳回率从2018年的3.5％下降到2020年的0.3％。他们指出，这种差异“引起了人们对其他各县是否对缺席选票进行审查的严重关切”。“实际上，它提出了一些县是否对缺席选票上的签名进行过任何审查的问题。”柯林斯在周四的福克斯新闻露面时要求州务卿对此事公开，以了解这些选票的确切来源。
+
+星期五，州务卿拉芬斯佩格为佐治亚州选举结果的完整性进行了辩护。他说他是川普的骄傲支持者，一直秉承数字不说谎的座右铭。他认为他们提供的数字是正确的。
+
+在星期五下午在白宫举行的有关处方药价格改革的新闻发布会上，川普重申他赢得了大选，他获得了美国历史上所有总统候选人中最多的选票——7,370万张。
+
+评论：
+
+从佐治亚州对成千上万张缺席选票的签字不进行验证，引发了人们的疑问——是否其他县也不验证签字呢？是否所有民主党控制的州和县都不验证签字呢？听起来很恐怖！但这或许是真实的。
+
+这次大选，民主党方面为使拜登胜选造假，无所不用其极，一切都可能发生。川普总统此次大选，获得了美国有史以来最多的选票，将近7400万张，这还不包括民主党方面废弃掉的选川普的邮寄选票。
+
+水涨船高，川普总统有7400万张选票，那么拜登就要更多，拜登得到了7900万张选票！绝对是按需增加。
+
+周六，川普总统的支持者在亚特兰大上街示威，抗议佐治亚州重新机票结果的不合法性和整个大选民主党方面窃取选票的欺诈行为。只要川普总统胜选结果不被承认，川普总统的支持者就不会停止示威。
+
+佐治亚州务卿拉芬斯佩格声称，他曾经是川普总统的支持者，难道这次大选变节了？或许他一直是共和党的建制派，影子政府的一部分。佐治亚州一直是共和党州，但未必一直支持川普总统。联想到佐治亚州重新计票开始之前，中共明面和暗地里的大外宣口径一致地认定对川普总统在佐治亚州计票定然得不到希望中的结果，便可让人清晰地看见中共在背后的魔影。
+
+美国政府内部的沼泽之深令人不安和难以预料。这与中共在美国的深度渗透有着密切的联系。铲除中共是解体世界邪恶势力的根本。
+
+[原文链接](https://www.westernjournal.com/trump-says-georgia-recount-meaningless-tally-calls-audit-absentee-ballot-signatures/?utm_source=Parler&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
+
+
+
 0
