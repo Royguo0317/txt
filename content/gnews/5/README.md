@@ -1,31 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选主题专栏：假媒体CNN蓄意破坏闫丽梦博士声誉，以假新闻谎言误导民众，掩盖真相
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/579699/)
+## 【热点播报】器官移植科学论坛：2023年成为世界第一器官移植大国，供体为墙内14亿民众
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/580233/)
 
-《路德社》出品 ；编辑：玫瑰天空
+作者：香草山写作组 程万里
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21235639/11223.jpg)
+2020年11月20日器官移植科学论坛（TSS）在北京国际会议中心召开。中国器官移植发展基金会理事黄洁夫在接受新京报记者采访时表示，我国器官移植事业快速发展，但仍不能满足社会经济发展需求，希望到2023年，我国能成为世界第一器官移植大国。**黄洁夫****直言****：****达到这个目标**必须培养更多的医生、逐步增加更多可以开展器官移植的医院，这些医院应当以器官捐献为导向、以器官移植质量为导向；器官移植协调人的队伍要扩充，达到5000人；还需要有一个完善的社会救助和帮扶体系，需要一个独立的OPO系统，这些都是需要改进的。
 
+据悉《中国器官捐献与移植的发展现状》介绍了中共国人体器官捐献工作。从2015年到2018年，我国器官捐献年增长率达20%-34%，2018年，中国大陆器官捐献达6302例，百万人口捐献率上升至4.53，共进行器官移植20201例。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21235700/11222-1.png)
+黄洁夫直言要达到器官移植第一大国的目标就是要培养更多的医生和医院及协调人，却不提器官从哪里来，两万例的器官移植，器官捐献六千多例，那剩余的近一万四千例的器官（这还只是官方数据）哪里来？死囚、法轮功、新疆集中营、香港…，恐怖至极。前段时间更有无耻教授黄有光建议中共国应把公民同意捐赠器官作为默认选项。原来这一切的一切都在他们的邪恶计划中：把器官移植作为蓝金黄全世界的一种手段，而供体就是墙内被他们认为是猪狗的14亿民众。
 
+审核：浪迹天涯
 
-最近，假媒体CNN攻击了我们发表的两项科学报告（《严报告》， 《第二次 严报告》）。第一次攻击是 有关CNN政治的文章，两天后又进行了一个 四分钟的程序 在电视上具有相同的内容。CNN的目标很明确：破坏闫丽梦博士的声誉，更重要的是，破坏SARS-CoV-2的实验室起源理论。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-正如闫丽梦博士作者所述，：我们发现CNN的袭击完全毫无根据，而且充满谎言。为了揭露CNN否定SARS-CoV-2实验室起源的虚假宣传活动，我们列出了他们的谎言和错误，并相应地提供了我们的回应。我们认为这是必要的，因为在这个重要问题上，公众应该知道谁在撒谎，故意误导，谁是诚实守信。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-闫丽梦博士本人推特声明：
-
-“如所承诺的，我对反假新闻的正式回应 [@CNN](https://twitter.com/CNN)[@CNNP政治](https://twitter.com/CNNPolitics)已出版。隐藏但有趣的信息与那些Two毁两份严谨报告并否认实验室起源于COVID-19病毒的科学家有关，再次欢迎进行真正的科学讨论”。
-
-
-
-> As promised, my formal response to rebut FAKE NEWS [@CNN](https://twitter.com/CNN?ref_src=twsrc%5Etfw) [@CNNPolitics](https://twitter.com/CNNPolitics?ref_src=twsrc%5Etfw) is published.
-> 
-> HIDDEN but INTERESTING information related those scientists who slandered Two Yan Reports and denied lab-origin of COVID-19 virus
-> Again, welcome real scientific discussion[https://t.co/NEAiijJpBV](https://t.co/NEAiijJpBV)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [November 21, 2020](https://twitter.com/DrLiMengYAN1/status/1330159496002473992?ref_src=twsrc%5Etfw)
-
-
-![](https://zenodo.org/record/4283480/files/The_Yan_response_to_CNN.pdf?download=1)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21191130/%E6%88%AA%E5%B1%8F2020-11-22-13.11.10.png)
-[闫丽梦博士论文原文：](https://zenodo.org/record/4283480#.X7mp9dMzY3E)
-
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20165916/logo-3.jpg)
 0

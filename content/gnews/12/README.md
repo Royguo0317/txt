@@ -1,13 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 为何如此慌不择路? 指控郭文贵先生是双面间谍的战略愿景公司, 迫切向法庭寻求排除与其辩护出资人有关证据的动议【全文翻译】
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/574505/)
+## 外星人在人间-有信仰存敬畏，大步迎接人类文明新时代
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/580532/)
 
-## 【[英文原文](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002451/STRATEGIC-VISION-Case-No.-18-cv-2185.pdf)】【[中文翻译](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002506/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1.pdf)】
+作者： 康州农场-光头波波
 
-## **法庭动议**全文翻译：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002308/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_00.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002314/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_01.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002316/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_02.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002318/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_03.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002321/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_04.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002323/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_05.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002326/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_06.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002329/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_07.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002330/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_08.png)
-## **法庭动议英文原文：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022806/Case-No.-18-cv-2185_00.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022856/Case-No.-18-cv-2185_01.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022859/Case-No.-18-cv-2185_02.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022903/Case-No.-18-cv-2185_03.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022906/Case-No.-18-cv-2185_04.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022909/Case-No.-18-cv-2185_05.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022911/Case-No.-18-cv-2185_06.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022913/Case-No.-18-cv-2185_07.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022916/Case-No.-18-cv-2185_08.png)
+作者：康州农场-Truemanman
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22021654/%E5%9B%BE%E7%89%879-6.png)
+**“外星人一定存在！” **（视频[1] 3:33:00）
+
+文贵先生在11月21日乱聊直播尾声[1]，应战友要求，“乱聊”了他对外星人的理解。
+
+“ 外星人有能力跟我们变成一样的, 能影响人的思维, 更厉害的是外星人可以改变物质。” (3:38:00)
+
+“人的梦就是与外星人沟通的一种方式。死去的人会有灵魂，能通过一些方式，单向的与你沟通，影响着你。外星人与死去的人是有关系的，人死去后是不灭的。“ (3:39:00)
+
+“外星人的存在与人类的科技和美国的军事科技有很大的关系。像美国的苹果公司，高科技、军事科技、太空船绝对是有道理的。如美国的一些特殊材料，到今天都是科学技术解释不了的“ (3:49:00)
+
+结合文贵先生前几次提及外星人[2]，笔者也深信外星人是存在的，尤其是对照人类近100年的科技发展，更是可见一斑。
+
+人类的科技水平，正以不可思议的速度发展。比如在半导体行业，从1958年第一块芯片诞生[3]，仅仅经过60多年的发展，人类已能将几百亿个晶体管集成进一块小小的芯片内。其难度，犹如将几百万座纽约曼哈顿城市微缩进一块奥利奥饼干上一样。恰巧直播中文贵先生提及与苹果公司一位资深员工聊外星人，那么以苹果公司的产品最新推出的M1电脑芯片为例，其性能直接碾压Intel(英特尔)公司和AMD公司的CPU. 一些测评显示，配备M1芯片的Macbook Pro (笔记本电脑)在视频处理性能上逼近2年前的iMac Pro（专业级电脑）。
+
+再如航空业，如下简单列举了部分里程碑[4]：
+
+1903年12月17日，奥维尔·莱特驾驶飞机实现世界上第一次飞行
+
+1935年道格拉斯DC-3（首款民航客机）
+
+1942年梅塞施米特式ME-262战斗机 （首款高性能喷气式战斗机）
+
+1954年波音367-80客机（首款现代喷气式客机）
+
+1961年豪客P1127飞机（首款垂直起降战斗机）
+
+1981年洛克希德F-117A夜莺飞机（首款隐形飞机）
+
+更不乏军事上的传奇，1964年试飞的洛克希德SR-71黑鸟侦察机。它可以实现三倍音速巡航，速度快到导弹都追不上。其用到的材料，发动机技术，除美国以外，自今无他国掌握。设想一下，1903年莱特兄弟才成功试飞260米，而61年后，就能造出一架导弹都最不上的飞机，这是花了几千年才学会用火，农耕几千年靠天吃饭的人类文明能够实现的吗？
+
+**“人类文明第一次从地球走向太空，这次文明是一场新革命！“ **(3:57:00)
+
+“我们正经历着人类历史上生存方式、科技、信息、大自然的革命。“ (3:58:00)
+
+爆料革命的深度、广度远超我的想象。文贵先生今日的直播，让笔者深刻感受到，咱们正站在人类文明进程的交叉路口。“信仰“将是指导我们在新世界顺利生存的重要条件。文贵先生多次说到这个世界是有造物主的，大自然是有密码的。要在各种文明中生存，都需要遵循它的规则。如在中共体制内，需要所谓的“搞关系”；在世界舞台上，需要“为真不破”。那么对于未知的、将与外星文明接触的“新世界“，”信仰“将是我们的生存法则。
+
+对信仰的解读，笔者能力有限，但有一个实实在在的例子，可以与大家一同讨论。在未来几年内，G系列的成长，必定能为战友们带来可观的投资回报和巨大的市场机会。那么在过上体面生活之后，如何对待财富，将是对每一位战友的考验。记得文贵先生有次调侃路德先生，说到自己年轻时，有钱后，一度过上奢靡的生活，差点忘记自己的使命，是八弟的在天之灵和自己的信仰提醒着他，不能忘记灭共的使命，才保守他没有走偏。同样，对我们平凡的我们，面对选择，是否能遵从内心，是否能解读大自然的密码，信仰将是我们重要的依靠。
+
+或许，外星人就在你身边，你梦里。心中有信仰，凡事敬畏三分，咱们新中国联邦人，定能大步迎接人类文明新时代！
+
+参考资料：
+
+[1] 2020年11月21日 文贵直播 [https://gtv.org/video/id=5fb99e59c280ff1609d1f272](https://gtv.org/video/id=5fb99e59c280ff1609d1f272)
+
+[2] 郭文贵先生谈“外星人“ [https://gnews.org/zh-hans/436799/](https://gnews.org/zh-hans/436799/)
+
+[3] [60年前，世界上第一块集成电路诞生](http://www.semiinsights.com/s/electronic_components/23/34986.shtml)
+
+[4] [顾俊】[1万块的M1 MacBook Pro比5万块的iMac Pro剪辑视频还要快？？](https://www.youtube.com/watch?v=mEhxR4Htg_4&amp;ab_channel=%E6%82%89%E5%B0%BC%E9%A1%BE%E4%BF%8A)
+
+[5] 盘点 | [改变人类航空历史的十款飞机](https://www.sohu.com/a/220568556_685248#:~:text=%E8%BF%91%E4%BB%A3%E4%BA%BA%E7%B1%BB%E5%9C%A8%E8%88%AA%E7%A9%BA%E5%99%A8%E4%B8%8A,%E6%9C%BA%E8%BA%AB%E7%9A%84%E7%AE%80%E9%99%8B%E7%BB%93%E6%9E%84%E3%80%82&amp;text=1912%E5%B9%B44%E6%9C%8822,%E9%87%8C%E5%A5%A5XI%E5%9E%8B%E9%A3%9E%E6%9C%BA%E3%80%82)
+
 0

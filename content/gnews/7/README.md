@@ -1,31 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登纹身惊现“666”反基督符号
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/579284/)
+## 《路德社》精选主题专栏：假媒体CNN蓄意破坏闫丽梦博士声誉，以假新闻谎言误导民众，掩盖真相
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/579699/)
 
-- 编辑：Victor Torres
-- 视频编辑：文一
+《路德社》出品 ；编辑：玫瑰天空
 
 
-西班牙2020年11月22日电/喜西社/——最近，推特热传的一段揭露怪物饮料商标暗含反基督内容的视频引起了大家的注意。有细心的网友发现，亨特·拜登背部纹身的左上部分居然和视频中揭露的“666”反基督符号高度吻合。
 
-视频中，一位女士向观众展示了怪物饮料商标以及希伯来字母表，而该商标恰恰形如希伯来语中的“666”。
+最近，假媒体CNN攻击了我们发表的两项科学报告（《严报告》， 《第二次 严报告》）。第一次攻击是 有关CNN政治的文章，两天后又进行了一个 四分钟的程序 在电视上具有相同的内容。CNN的目标很明确：破坏闫丽梦博士的声誉，更重要的是，破坏SARS-CoV-2的实验室起源理论。
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21155128/PHOTO-2020-11-22-03-22-48.jpg)
+正如闫丽梦博士作者所述，：我们发现CNN的袭击完全毫无根据，而且充满谎言。为了揭露CNN否定SARS-CoV-2实验室起源的虚假宣传活动，我们列出了他们的谎言和错误，并相应地提供了我们的回应。我们认为这是必要的，因为在这个重要问题上，公众应该知道谁在撒谎，故意误导，谁是诚实守信。
 
-《圣经·启示录》13章18节: “这里藏有玄机，聪明的人可以计算那怪兽的代号，因为那是一个人的代号，是六百六十六。”可见“666”与撒旦或反基督有关。
+闫丽梦博士本人推特声明：
 
-此外，其背部纹身整体显现美国五指湖轮廓。五指湖是人口贩卖大本营。该地区以地下铁路隧道而闻名，该隧道用于运输奴隶，有令人毛骨悚然的豪宅，收容所和废弃的军事掩体，且该地区频发人口失踪案件。
+“如所承诺的，我对反假新闻的正式回应 [@CNN](https://twitter.com/CNN)[@CNNP政治](https://twitter.com/CNNPolitics)已出版。隐藏但有趣的信息与那些Two毁两份严谨报告并否认实验室起源于COVID-19病毒的科学家有关，再次欢迎进行真正的科学讨论”。
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21155148/%E6%9C%AA%E6%A0%87%E9%A2%98-1-7.jpg)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21155151/PHOTO-2020-11-22-03-22-49-1.jpg)
 
-美国是以基督教立国的国家，座右铭是“我们信仰上帝”(In God we trust)。亨特·拜登不仅生活腐化堕落，甚至背弃了信仰。其背部的纹身展现了他对基督的背叛和对魔鬼的崇拜，同时反映了他对黑暗奴隶制的的推崇以及对施暴和虐待的病态痴迷。
+> As promised, my formal response to rebut FAKE NEWS [@CNN](https://twitter.com/CNN?ref_src=twsrc%5Etfw) [@CNNPolitics](https://twitter.com/CNNPolitics?ref_src=twsrc%5Etfw) is published.
+> 
+> HIDDEN but INTERESTING information related those scientists who slandered Two Yan Reports and denied lab-origin of COVID-19 virus
+> Again, welcome real scientific discussion[https://t.co/NEAiijJpBV](https://t.co/NEAiijJpBV)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [November 21, 2020](https://twitter.com/DrLiMengYAN1/status/1330159496002473992?ref_src=twsrc%5Etfw)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+![](https://zenodo.org/record/4283480/files/The_Yan_response_to_CNN.pdf?download=1)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21191130/%E6%88%AA%E5%B1%8F2020-11-22-13.11.10.png)
+[闫丽梦博士论文原文：](https://zenodo.org/record/4283480#.X7mp9dMzY3E)
 
 0

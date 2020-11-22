@@ -1,13 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/19/2020 Sidney Powell：这是一场对我们选举的完美干涉
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/579906/)
+## 11/14/2020 新中国联邦人已经成为上天选定的改变人类的最重要的力量之一
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/580160/)
 
-Sidney Powell：这是一场对我们选举的完美干涉，Dominion的很多员工已经联系了我们来揭露真相，我相信司法部很快会对此进行调查
+11/14/2020 文贵先生直播：新中国联邦人已经成为上天选定的改变人类的最重要的力量之一。新中国联邦即将创建全人类的新型经济：G系列产品将成为我们和西方世界唯一的可信赖的安全资产的国际平台。《酒灭中共》单曲再次在世界各地的音乐榜夺冠证明中国人团结后的力量势不可挡！
 
 
 
-By: 【秘密翻译组G-Translators】
+#### By: 【秘密翻译组G-Translators】
 
-1+
+0

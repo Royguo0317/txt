@@ -1,33 +1,85 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统在行动
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/579637/)
+## 乔治亚州带有标记的诡异选票100%投给了拜登
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/579830/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21183348/cropped_image1-1.jpeg)图片来自：politico.com
-《华盛顿观察家》（Washington Examiner）11月20日报道，川普总统最近进行了一系列预料中的行政命令和行动—包括对中国的打击，在阿拉斯加的钻探，参议院的确认，对非法移民的推动，一连串的人事变动，在多地撤军，以及冠状病毒治疗和疫苗的上市。
+*新闻来源：《门户专家 ( Gateway Pundit)》；作者：克里斯蒂娜•莱拉（Cristina Laila)；发布时间：2020年11月18日*
 
-一位前政府高级官员说，这一连串的工作不仅显示出白宫在选举动荡的情况下仍在努力，还表明它在努力巩固选民心中的川普主义观念。“我认为这是川普成为保守派和民粹主义者的核心，”他说。“这是为了巩固他在共和党中的新保守派地位。”据几位知情人士透露，他的盟友正在探讨收购一家媒体公司。
+*翻译/简评：Marialu；校对：Julia Win；审核：johnwallis；Page：Eric8848*
 
-观察人士称，如果他在2016年竞选时的宣言是“许下承诺，信守承诺”，那么这一波行动可能会对他在那些尚未兑现的承诺上起到“点睛之笔”的作用。自选举日以来，川普一直保持低调，避免接受白宫记者团的提问，但他在幕后一直忙于制定多项行政命令。
+**简评：**
 
-上周，他签署了一项命令，禁止美国的个人和公司持有据信与中国人民解放军密切合作的31家中共国公司的股份。官员们已经暗示，更进一步的行动包括扩大被指控为中国武装部队提供支持的公司名单，提拔对抗中国的鹰派人士担任更高职位，以及解决中国强迫和无偿劳动的劳工问题。
+乔治亚州州务卿最近下令，在全州范围内进行审计和手工重新计票，因为有大量证据显示选民舞弊。多位重新计监票员发现了引人注目的“奇怪选票”，都带有完美标记，这些选票100%投给了乔•拜登。此文列举了几位证人的证词，从中可以看出这次总统选举舞弊现象，真可谓“八仙过海各显神通，舞弊手段花样百出”。
 
-他的政府已经开始履行对石油和天然气行业的承诺。本周，美国土地管理局(Bureau of Land Management)进行了 “征集提名”，作为拍卖阿拉斯加北极国家野生动物保护区(Arctic National Wildlife Refuge)钻探权的第一步。
+美国现在是时候对这些有组织、有系统的舞弊犯罪行为进行彻底揭露，并利用法律武器一查到底，绝不姑息了！
 
-秋后算账的时候到了。上周，他通过推特解雇了国防部长马克·埃斯珀(Mark Esper)。中央情报局局长吉娜·哈斯佩尔（Gina Haspel）和联邦调查局局长克里斯托弗·雷（Christopher Wray）的前途还悬而未决。
+**原文翻译：**
 
-而同样在上周，据《纽约时报》报道，川普向顾问们询问未来几周针对伊朗核设施采取行动的方案。在椭圆形办公室会议上，川普明显被劝阻，他的顾问们说任何攻击都可能在总统任期的最后几天演变成更广泛的冲突。与此同时，代理国防部长克里斯托弗-米勒（Christopher Miller）宣布在阿富汗和伊拉克缩减军队。该计划将在1月15日之前在阿富汗和伊拉克留下约2500名士兵。这让川普离他2016年的竞选承诺——结束海外战争又近了一步。
+# 乔治亚州的几位重新计票监督员描述说，这些“奇怪的选票”引人注目——带有完美标记圆圈的原始选票——100%投给了乔•拜登
 
-白宫发言人拒绝对总统竞选结果进行猜测。但他表示，选举川普的选民已经厌倦了那些“一切照旧的政客”。 白宫副新闻秘书贾德-迪尔(Judd Deere)说:“川普总统撤销了政府规章，简化了项目审批程序，实行了急需的机构问责制，把我们的军队带回家，改变了国内和国际交易的方式，这样做的结果有利于辛勤工作的美国人，而不是华盛顿精英。”
+[!\[\]()!\[\](https://spark.adobe.com/page/bYpv8pSOnV7UQ/images/b437ae95-c77d-4bae-828f-ad480c501d0e.jpg?asset_id=8ca5d6e8-c62f-4cf2-886c-1eec64a90f65&amp;img_etag=%229df65ffa1eea0c37e125b81ab2359988%22&amp;size=1024)](https://spark.adobe.com/page/bYpv8pSOnV7UQ/images/b437ae95-c77d-4bae-828f-ad480c501d0e.jpg?asset_id=8ca5d6e8-c62f-4cf2-886c-1eec64a90f65&amp;img_etag=%229df65ffa1eea0c37e125b81ab2359988%22&amp;size=1024)
 
-评论：
+乔治亚州州务卿布拉德•拉芬斯珀格（Brad Raffensperger）最近下令在全州范围内进行审计和手工重新计票，因为有大量证据表明选民存在舞弊。
 
-川普总统毫无疑问的将成为下一任总统，他最近的一系列动作不是为了给拜登政府制造难题，因为拜登根本就没有上任的机会。川普总统的下一任期从选举日之后的第一天就开始了，他不想等到明年1月，他正在进行一系列布局，为实现2020年的竞选承诺，有条不紊的工作。令我们感到欣慰的是，川普制定了很多应对中共的强硬政策。川普总统及美国人民，已经对中共的真面目有越来越清醒的认识，不打击中共就不能保证美国自身的安全。我们将看到中美之间会有更激烈的冲突，直到中共垮台的一天。
+然而，重新计票似乎是被操纵了，因为选举官员不检查签名，现在有消息披露，该州政府正在吩咐官员报告原始的投票总数。
 
-[原文链接](https://www.washingtonexaminer.com/news/is-trump-already-running-for-2024)
+到目前为止，乔治亚州有三个县在全州范围的重新计票中发现了投给川普总统的“失踪”的选票。
 
-翻译报道：Alton
-校对整理：藕官
+包括民主党人在内的数名重新计票工作人员描述了有数批奇怪的、“标有完美圆圈标记的”原始选票，都是投给乔•拜登的。
+
+一名乔治亚州重新计票工作人员在伍德（Wood ）诉讼拉芬斯珀格（Raffensperger）案的记录中，描述了一批奇怪的选票（没有任何标记的原始选票），乔•拜登获得了其中98%的选票。
+
+监票员描述了处理过的选票看起来很破旧，而且已经填好了——除了投给乔•拜登的那一批神奇的原始选票之外。
+
+重新计票的工作人员说，这批原始选票有不同的纹理，并且候选人的标记“异常统一”，就像被选票标记器标记过一样。
+
+“大多数选票都已经被处理过，都是由人填写的，而且边沿被磨损了。这表示明显用过的痕迹。然而，有一批选票引人注目，它完好无损的。纸张的质地有所不同——就好像它们是为不在场的人（缺席者）准备的，但并未被用于此目的，感觉有所不同。” 一位重新计票的工作人员在记录中说道。
+
+“这些不同的选票包括一个略微凹陷的预折痕，因此它们可以很容易地折叠和展开，以便在扫描机中使用。选票上没有任何标记表明它们来自何处，或在何处被处理过，这些选票很引人注目。”
+
+“根据我20年处理选票的经验，我注意到，这些选票上给候选人的标记异常统一，甚至可能使用了“选票标记装置”。根据我的观察，估计大约98%这样的选票投给了乔•拜登。我只看到两张选票投给了川普总统。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/bYpv8pSOnV7UQ/images/e1bfd8e9-c129-4cf9-bf4a-84f4cbf70413.png?asset_id=e001dc28-f039-468b-a812-a88f931b150a&amp;img_etag=%22a164ddd2143735f169c000991d4ecfe0%22&amp;size=3471)](https://spark.adobe.com/page/bYpv8pSOnV7UQ/images/e1bfd8e9-c129-4cf9-bf4a-84f4cbf70413.png?asset_id=e001dc28-f039-468b-a812-a88f931b150a&amp;img_etag=%22a164ddd2143735f169c000991d4ecfe0%22&amp;size=1024)
+
+另一位乔治亚州的监票员，也是一位民主党人公开表示：“数百张选票看起来毫无瑕疵，没有褶皱和折痕。圆圈的选项做得非常完美…… 只观察到用黑墨水的选项，而且恰巧都是选择投给拜登的。”
+
+“根据我的观察，我认为总统选举中存在舞弊行为，并质疑乔治亚州重新计票过程的有效性。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/bYpv8pSOnV7UQ/images/b880151a-e4ee-4be4-96d8-67bf4e6a35b4.png?asset_id=9cc19a89-fbd6-430a-bb19-0d97633dc2c2&amp;img_etag=%2297eb8dbff926495335ae91824cbdeee0%22&amp;size=2560)](https://spark.adobe.com/page/bYpv8pSOnV7UQ/images/b880151a-e4ee-4be4-96d8-67bf4e6a35b4.png?asset_id=9cc19a89-fbd6-430a-bb19-0d97633dc2c2&amp;img_etag=%2297eb8dbff926495335ae91824cbdeee0%22&amp;size=1024)
+
+乔治亚州的第四位证人，也是一位民主党人，在一叠选票上看到了完美的黑色标记……一连500张选票都是给乔•拜登的。
+
+“我看了看，然后抽出一堆我认为是缺席选票的东西，注意到这些选票具有两个非常明显的特征。其中一个特征：我注意到他们都有一个完美的黑色圆圈，都是拜登的选项。在他们让我离开桌子之前，我能够观察这完美圆圈好几分钟…… 我听到他们翻了那堆选票，并连续喊了500多次拜登的名字。”
+
+第二天，同一位民主党证人去了乔治亚州的另一个县，在重新计票过程中观察到了同样的异常情况。
+
+“ 所有这些选票都具有相同的两个特征：它们全部支持（投给了）拜登，并且具有相同的完美的黑色圆圈。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/bYpv8pSOnV7UQ/images/a206a855-1a3c-4db5-b013-36a0e64666a9.png?asset_id=8354a82c-7915-4333-937d-7063b440a0a9&amp;img_etag=%2273412315db2da8b0271155ad98fb785a%22&amp;size=4375)](https://spark.adobe.com/page/bYpv8pSOnV7UQ/images/a206a855-1a3c-4db5-b013-36a0e64666a9.png?asset_id=8354a82c-7915-4333-937d-7063b440a0a9&amp;img_etag=%2273412315db2da8b0271155ad98fb785a%22&amp;size=1024)
+
+斯科特•霍尔（Scott Hall）是第5位证人，他声称有同样异常情况：即原始选票上带有完美标记的圆圈。
+
+斯科特•霍尔（Scott Hall）观察到数百张没有折痕、标记完美圆圈的邮寄选票，这些选票似乎不曾邮寄过（邮件的选票是折叠起来的，以便放入信封。）。
+
+罗宾•霍尔（Robin Hall）是第六位证人，他观察到了带有完美标记圆圈的原始选票，100%的选票被乔•拜登获得。
+
+“所有可疑的选票看上去都是机器盖的邮戳……”
+
+芭芭拉•哈特曼（Barbara Hartman）是第七位证人，她亲自清点了没有褶痕的邮寄选票，这些选票看上去从未折叠过，而且都有完美标记（好像盖上邮戳似的）。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/bYpv8pSOnV7UQ/images/9089e816-7dfb-454c-8875-7502d2b1170a.png?asset_id=20e143b5-1be9-4899-b597-3d8bdba3a4a3&amp;img_etag=%223136cee041c13c98b3507c8936064ebe%22&amp;size=2881)](https://spark.adobe.com/page/bYpv8pSOnV7UQ/images/9089e816-7dfb-454c-8875-7502d2b1170a.png?asset_id=20e143b5-1be9-4899-b597-3d8bdba3a4a3&amp;img_etag=%223136cee041c13c98b3507c8936064ebe%22&amp;size=1024)
+
+[原文链接](https://www.thegatewaypundit.com/2020/11/several-georgia-recount-monitors-describe-odd-batches-ballots-stood-pristine-sheets-perfectly-marked-bubbles-100-joe-bi-den/?ff_source=Twitter&amp;ff_medium=PostTopSharingButtons&amp;ff_campaign=websitesharingbuttons)
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英喜庄园】Disocrd官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】-点击spark adobe版
+
+[!\[\]()!\[\](https://spark.adobe.com/page/bYpv8pSOnV7UQ/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/bYpv8pSOnV7UQ/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0
