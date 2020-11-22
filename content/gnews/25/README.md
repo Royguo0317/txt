@@ -1,43 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Dominion投票系统的十年布局（一）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/580894/)
+## 【军事快讯】美军舰本年度第11次航经台湾海峡，并于次日进入南中国海
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/581294/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22064550/00CBA87C-D7FC-40D8-8531-4F93AF22D3BB.jpeg)
-作者：引力波
+作者：香草山农场写作组   人间世
 
-2020美国大选，Dominion投票系统成为最大的偷票系统，围绕Dominion的疑云重重。
-
-Dominion成为占有美国投票机份额半壁江山的公司，要从2010年说起。
-
-在2010年之前，美国投票机市场份额是这样的：
-
-- 40％ES＆S
-- 30％Diebold / Premier
-- 20％**Sequoia Voting Systems**
-- 10％ Hart Intercivic
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
 
 
-2009年，ES&S公司收购了Diebold / Premier，但这笔交易很快就被美国司法部盯上。因为两者合并的结果将使ES&S垄断70%的投票机市场，根据反垄断法，司法部要求ES&S出售Diebold / Premier。2010年，Dominion出现了，直接从ES&S这里以500万美元收购了Diebold / Premier。
 
-但Dominion的野心不止于此。同年，Dominion又**收购了美国第三大投票机公司Sequoia Voting Systems**。作为一个当时名不见经传的一家总部位于加拿大的小公司来说，这样的收购是不同寻常的，但无论是媒体还是政府似乎都忽略了这一现象。至此，美国投票机市场份额变成了这样：
+据台湾《自由时报》报道，美国海军第七舰队于台北时间11月21日傍晚主动公布，第七舰队伯克级神盾驱逐舰巴里号（USS Barry DDG-52）于当日通过台湾海峡，并强调此举表明美国对于印太区域自由与开放的承诺，美国海军将继续在国际法允许的范围内飞行与航行；这也是美国军舰今年第11次通过台湾海峡。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22085539/MOS0438-%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91%E7%BE%8E%E5%86%9B%E8%88%B0%E6%9C%AC%E5%B9%B4%E5%BA%A6%E7%AC%AC11%E6%AC%A1%E8%88%AA%E7%BB%8F%E5%8F%B0%E6%B9%BE%E6%B5%B7%E5%B3%A1%EF%BC%8C%E5%B9%B6%E4%BA%8E%E6%AC%A1%E6%97%A5%E8%BF%9B%E5%85%A5%E5%8D%97%E4%B8%AD%E5%9B%BD%E6%B5%B7-1.jpg)美海军巴里号驱逐舰（美第七舰队脸书/《自由时报》）
+台湾国防部随后于证实，美国驱逐舰一艘，由北向南航经台湾海峡后，继续往南行驶。
 
-- 50％Dominion（Diebold / Premier，**Sequoia**）
-- 40％的ES＆S
-- 10% Hart Intercivic
+据中共东方网11月22日消息，这是美军巴里号驱逐舰一年内五次穿航台湾海峡，继续加强对中共国的军事施压。中共环球网援引港媒消息，美海军阿利·伯克级导弹驱逐舰“巴里”号周六（21日）穿越台湾海峡后，22日重返南海，并在该地区执行“海上安全行动”。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22085641/MOS0438-%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91%E7%BE%8E%E5%86%9B%E8%88%B0%E6%9C%AC%E5%B9%B4%E5%BA%A6%E7%AC%AC11%E6%AC%A1%E8%88%AA%E7%BB%8F%E5%8F%B0%E6%B9%BE%E6%B5%B7%E5%B3%A1%EF%BC%8C%E5%B9%B6%E4%BA%8E%E6%AC%A1%E6%97%A5%E8%BF%9B%E5%85%A5%E5%8D%97%E4%B8%AD%E5%9B%BD%E6%B5%B7-2.png)（美国海军官网/CCP环球网）
+据东方网统计，巴里号驱逐舰可谓对CCP施压的急先锋，仅在今年巴里号驱逐舰就已经五次穿航台湾海峡：4月10号自北向南航经台湾海峡；4月23日两次自北向南航经台湾海峡；10月14日穿航台湾海峡；11月21日航台湾海峡。除此之外，巴里号驱逐舰还多次造访南中国海，并曾于4月28日进入中共国西沙领海。
 
 
-事情还远远不止如此。
 
-Dominion收购**Sequoia Voting Systems的交易中发布了一项声明：**
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-作为交易的一部分，*Dominion*已收购了红杉的库存和**所有知识产权**，包括软件，固件和硬件，以用于红杉的专用和集中计数光学扫描以及*DRE*投票解决方案，包括*BPS*，*WinEDS*，*Edge*，*Edge2*，*Advantage*，*Insight*，*InsightPlus*和*400C*系统。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-这项声明是一个向大众编织的彻头彻尾的谎言。因为红杉投票系统的知识产权（IP）真正拥有权并不在Dominion手上，它属于Smartmatic公司——一家属于委内瑞拉独裁者查韦斯家族的公司。Dominion自己也承认“Smartmatic IP不包含在Sequoia交易中，因为Sequoia不拥有它。 ”事实上，早在2008年红杉资本从smartmatic手里收购红杉投票系统的时候，就不包含核心的知识产权——IP。换句话说，占据美国20%的红杉投票系统的后门一直都向委内瑞拉的独裁者们开放。
-
-顺便说一下，2010年Dominion收购红杉投票系统时顺便把红杉资本的副总裁埃德温·史密斯（Edwin Smith）一并雇佣了过来，而这个史密斯之前也曾是Hart Intercivic的管理层之一，这个当年曾经威胁过普林斯顿大学计算机科学家们以组织他们审查红杉投票机的人，还在2010年底被任命为美国选举援助委员会EAC的成员，所谓监守自盗的便利也不过如此吧。
-
-有问题的当然不仅仅是红杉投票系统，Dominion的布局是有备而来，一切都是为了控制大选结果。（未完待续）
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

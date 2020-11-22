@@ -1,49 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵说｜系列图片连载（五十三）
-` GM98` [轉載自GNews](https://gnews.org/zh-hans/580900/)
+## 【军事快讯】美战略无人机与中共党卫军军机同日现身南海
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/581273/)
 
-## 365.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22063916/3-62.jpg)
-时间是一切的最好的裁判官。它将给你真相，给你事实，给你自信，考验你的人生。
+作者：香草山农场写作组   人间世
 
-——郭文贵先生2019年11月18日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
 
-## 366.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22064022/2-76.jpg)
-我们黄皮肤没有问题。但是为什么我们这么多问题？问题的根源：就是共产党。只有消灭共产党，我们精神意志、精神、身体才会强大。
 
-——郭文贵先生2020年4月9日
 
-## 367.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22064413/1-225.jpg)
-最坏的时间根本没有到来！疫情，西方的反制，西方的制裁，甚至是战争。
+中共党卫军军机频繁扰台之际，美军战略无人机同日现身南海。
 
-——郭文贵先生2020年4月8日
+根据台湾媒体《自由时报》周日(11月22日)最新报道，解放军军机“袭扰”台湾西南空域频繁，22日上午已三度进入台西南空域防空识别区，台空军照例广播驱离。此外，美军海神无人机也通过巴士海峡前往南海。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22084759/MOS0437-%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91%E7%BE%8E%E6%88%98%E7%95%A5%E6%97%A0%E4%BA%BA%E6%9C%BA%E4%B8%8E%E4%B8%AD%E5%85%B1%E5%85%9A%E5%8D%AB%E5%86%9B%E5%86%9B%E6%9C%BA%E5%90%8C%E6%97%A5%E7%8E%B0%E8%BA%AB%E5%8D%97%E6%B5%B7-1.png)（《自由时报》）
+据“台湾西南空域”粉丝专页统计，中共党卫军军机11月份累计进入台空域19天，本月广播驱离纪录共计45次，也是自14日起连续9天进入台西南空域。
 
-## 368.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22063954/412.jpg)
-香港一定会大爆发，这个大爆发首先就在你警察、政府队伍里面，包括林郑月娥。共产党没有心情把你灭掉，就让病毒把你灭掉。
+《自由时报》周日报道并提到，值得注意的是，美国海军MQ-4C海神无人机从20日至22日都在周边出没，并通过巴士海峡前往南海。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22084825/MOS0437-%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91%E7%BE%8E%E6%88%98%E7%95%A5%E6%97%A0%E4%BA%BA%E6%9C%BA%E4%B8%8E%E4%B8%AD%E5%85%B1%E5%85%9A%E5%8D%AB%E5%86%9B%E5%86%9B%E6%9C%BA%E5%90%8C%E6%97%A5%E7%8E%B0%E8%BA%AB%E5%8D%97%E6%B5%B7-2.jpg)美军海神无人机（《自由时报》)
+此前，据“南海战略态势感知”(SCS Probing Initiative)平台周六消息，11月20日晚20时许，美海军1架MQ- 4C无人侦察机在非常规时间出动，前往广东、福建近空、台湾海峡南部空域，进行高强度侦察，直至次日凌晨4时许离开。自11月17日解放军在广东近海的军演开始以来，4天时间内已有13架次侦察机前往南海侦察，针对性不言而喻。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22084848/MOS0437-%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91%E7%BE%8E%E6%88%98%E7%95%A5%E6%97%A0%E4%BA%BA%E6%9C%BA%E4%B8%8E%E4%B8%AD%E5%85%B1%E5%85%9A%E5%8D%AB%E5%86%9B%E5%86%9B%E6%9C%BA%E5%90%8C%E6%97%A5%E7%8E%B0%E8%BA%AB%E5%8D%97%E6%B5%B7-3.jpg)
 
-——郭文贵先生2020年4月9日
 
-## 369.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22064113/412_1.jpg)
-现在全世界谁还相信共产党说的话？谁还相信共产党的产品？谁还相信共产党是个合法的政府？它就是个黑社会。
 
-——郭文贵先生2020年4月9日
 
-## 370.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22064152/4126.jpg)
-我坚信一条，人生没有白付出的感情，人生没有白花的钱，要么你还回你的命，要么你还回你的钱，只是早晚的问题，什么债都得还，只是时间问题。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-——郭文贵先生2019年7月23日
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-## 371.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22064200/412_17.jpg)
-现在有本书叫中国梦，我说现在这个噩梦，中国梦现在成了世界的噩梦。
-
-——郭文贵先生2020年4月9日
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

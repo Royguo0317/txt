@@ -1,34 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 自由无价，参议员乔妮·恩斯特力挺同僚连任
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/580442/)
+## 亨特拜登的后背纹身图和怪兽饮料
+` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/580801/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22010501/1-224.jpg)
-11月19日，共和党参议员乔妮·恩斯特（Joni·Ernst）在福克斯新闻（Foxnews）网站撰文力挺乔治亚州（Georgia）共和党参议员候选人大卫·珀杜（David Perdue）和凯莉·莱夫勒（Kelly Loeffler）连任。文章称，直到2020年1月5日，“利益攸关”这种说法将不绝于耳。但这就是事实，美国的未来命悬一线。
+喜马拉雅的文雅 （雅典娜农场）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22052105/Unknown-6.jpg)
 
-乔妮曾在陆军预备役（Army Reserves）和国民警卫队（National Guard）效力23年，她从一个军人的角度观察了乔治亚州的两场参议员选举。她的军旅生涯始于从社会主义乌克兰的农业交流项目结束归国之后。访问期间，她被问到的第一个问题是：“作为一个美国人是什么样的感觉？”，由此，乔妮认为苏联是没有自由和解放的，那些当地人渴望获得自由。这一现实让乔妮深刻地理解了捍卫自由和解放是多么重要，而这往往是美国人不以为意的。这点燃了她内心参军的火种，她不要袖手旁观，她要为美国和美国人的生活方式而战。
 
-此刻，美国这个伟大的国家正处在关键的十字路口。参议院多数党虚位以待，何去何从，一目了然。大家希望自己的生活受制于政府吗？希望税收增加吗？希望这个国家被颠覆吗？或者希望保有个人权利和解放吗？希望把血汗钱更多的留在自己的荷包吗？希望不受政府摆布吗？
+近日社交平台出现了一个关于展示怪兽能量饮料（Monster Energy Drink）寓意的视频，在一个反撒旦展示会上，一名口音可能来自中西部地区的妇女向公众解读了怪兽能量饮料宣传中蕴含撒旦魔鬼的寓意。该饮料的图标看似是一个变形M，但是每一个笔画没有实质相连，所以更像是希伯来语(Hebrew)中的数 666（Vav）。在圣经中，数字6象徵着个体人和人类的软弱，撒旦的邪恶和罪恶，也表示撒旦对耶稣的诱惑。圣经启示录中666的含义是野兽的力量，也表示地球上人类的三个系统分别被魔鬼撒旦6统治和欺骗，他们是宗教信仰，政府，经济体系。
 
-乔治亚州的两位共和党参议员大卫·珀杜和凯莉·莱夫勒正在为自由、工作机会和经济繁荣而战。他们信仰的是那个乔妮为之战斗过的美国，他们希望成为继任者。乔治亚人需要他们留在参议院，以牵制那些极左理念。参议院民主党领袖，纽约州参议员查克·舒默（Chuck Schumer）早就明确说过：“我们拿下乔治亚州之后可以改变美国。”如果共和党不能稳住局面，让大卫和凯莉重新当选，一切都会如舒默所言。
 
-乔妮曾与大卫密切合作，深知他对乔治亚人的拳拳之心，以及极力维护乔治亚的工作机会和经济增长不受联邦政府劫掠或阻碍。大卫曾供职于跨国公司，见识过其他形式的政府如何为害一方，比如共产主义中国。和乔妮一样，大卫也要与民主党人打交道，他的工作成果是跨党派的。他们在参议院军事委员会（the Senate Armed Services Committee）携手为服役人员争取到了近12年来最大幅度的加薪，并且没让美国的对头们好过，比如中共国。
 
-而凯莉和乔妮一样，也是在农场长大的，她们都是四健会（注释1，详见文末）成员，均供职于参议院农业委员会（the Senate Agriculture Committee），力保乔治亚农民和生产者不被华盛顿压制，从而得以继续为世界输出粮食和燃料。凯莉在副总统迈克·彭斯（Mike Pence）的带领下宣誓进入参议院，乔妮很激动见证了这一刻。在乔妮眼里，凯莉是一个如假包换的保守女性典范——她证明了这个群体不仅能叱咤职场，也玩得转官场。参议院需要这样的人。
+> [#亨特拜登](https://twitter.com/hashtag/%E4%BA%A8%E7%89%B9%E6%8B%9C%E7%99%BB?src=hash&amp;ref_src=twsrc%5Etfw) 的纹身M什么意思？
+> 谜底揭开啦！震惊全世界！
+> 速分享到英语世界、基督教世界！[#Biden](https://twitter.com/hashtag/Biden?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hash&amp;ref_src=twsrc%5Etfw) [#TakeDownTheCCP](https://twitter.com/hashtag/TakeDownTheCCP?src=hash&amp;ref_src=twsrc%5Etfw) [#GTV](https://twitter.com/hashtag/GTV?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/8Uup2LYyaX](https://t.co/8Uup2LYyaX)
+> — 孙悟空 (@guzhoujin) [November 21, 2020](https://twitter.com/guzhoujin/status/1330067078922051588?ref_src=twsrc%5Etfw)
 
-反过来说，大卫和凯莉的对头——极左派——想要把这个国家带到完全相反的方向上去。如果民主党当权，他们将把美国推进深渊——把美国社会主义化——就像多年前乔妮在乌克兰所看到的那样。
 
-美国一直是这个星球上的希望灯塔和自由灯塔。参议院有大卫和凯莉这样的保守党领袖在，美国将一如既往。
 
-文末，乔妮发自肺腑地说：“美国值得我们为之奋斗！”，她请求乔治亚人站出来支持他们拿下参议院，让美国以最伟大、最自由的姿态屹立全球！
+由此网友推测，怪兽能量饮料的图标与早些时候（11月3日前爆料革命13天大战）期间被爆出的亨特拜登裸照相像。众所周知，与中共勾结出卖美国人民利益、变相奴役中国人民的美国民主党候选人乔拜登利用儿子亨特拜登从中共收取巨额利润，沦为中共充分控制美国的代理人。亨特拜登一张裸照显示，他的后背有不规则条纹图形的纹身，形状怪诞。图形的风格确实与能量饮料相似。从圣经对666的解读中看，“野兽的力量”与亨特拜登嗜性成瘾的变态心理，以及乔拜登家族与中共为伍、在美国政府部门、经济体系、信仰领域实施犯罪和侵蚀也是一致的。如果此纹身图确实如此，那麽亨特拜登不可否认是一名与暗黑势力“撒旦”所勾结的反基督之徒。
 
-评：作为一个反洗脑成功的天朝人士，本人实在难以理解为何还会有民主党党员之外的人支持民主党？大麻（甚至毒品）合法化、支持堕胎、超性别卫生间、加税、黑命贵等一系列堪称邪恶的主张，无一不是为了迎合少数族群而制定的，更别提，拜卖国与中共勾结几乎要把美国偷天换日成另一个中共国，生死攸关之际，美国大多数一定不会集体失心疯自己给自己掘坟，民主党若想获胜，除了造假别无他法，所以当务之急是彻底揭开民主党造假黑幕，揪出幕后黑手中共，还美国、还世界一个朗朗乾坤！
+然而查看希伯来语“6”的书写规则仍然和亨特后背的纹身图存在区别，与其说只有长形拖延图形的纹身与希伯来小头长尾的数字6相似，倒不如说更像北美纽约州的五指湖（Finger Lakes）。据Gnews早先报导，五指湖周边发生的贩卖儿童当做性奴的事件一直层出不穷。一位G-TV盖友Qiil| 留言称，五指湖地区的地下通道与废弃的地下军事设施是臭名昭著的人口贩卖运输线。另一名盖友帷幕称，纹身图是爬虫印记，代表仪式地点、暗势力等级、出卖灵魂等爬虫血统者的特征。由此，亨特拜登背后的纹身图之谜仍然没有被彻底解开。但是这则新闻给我们揭开了另一种可能的暗黑势力，就在我们的身边，他们可能披著前卫反叛的外衣，一边以其产品牟利，比如畅销饮料，一边将其邪恶的教义和价值观进攻善良的人们和文明的生态。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22052452/Hebrew-number.png)希伯來語中的數字![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22052125/fingerlakes2.jpg)北美五指湖地圖，圖片來源 [http://eastcoastwineries.blogspot.com/2012/08/best-reds-of-finger-lakes-2012-edition.html](https://eastcoastwineries.blogspot.com/2012/08/best-reds-of-finger-lakes-2012-edition.html)
+揭示怪兽能量饮料的视频最早出现在2014年11月，视频显示该饮料实质就是宣扬反基督的撒旦势力，除了貌似M实为666的标识，单词Monster中的o上有十字架，当人们饮尽饮料时，十字架底朝天，寓意推翻耶稣基督。而饮料瓶体上印有“BFC”则是一个Big Fxx Can 的粗话，另一个暗语“Milf”（Mother I’d like to fxx）也是类似的脏字。这个6年前的视频近日再次在社交媒体广传，不能不说文明信仰世界的抗争从来没有停止，爆料革命引领的推翻中国共产党的运动唤起了人们对共产主义邪魔操控文明世界、勾结影子政府、金融财团等暗黑势力的再次认知。
 
-注释1：四健会/4-H Club，4-H 代表 head （头脑）、 heart（ 内心）、 hands （双手）和 health （健康）四个单词的首字母，是美国农业部的农业合作推广体系所管理的一个非营利性青年组织，创立于1902年，会员以农村青年为主，该组织以 “让青年人在青春期时尽可能地发展他的潜力”为使命。
+维基百科对怪兽饮料图标的解释是，由位于加利福尼亚的McLean Design公司设计， 图标是充满活力的绿色“ M”， “ M”的风格表示由怪兽的爪子从罐中撕裂而形成的。
 
-[原文链接](https://www.foxnews.com/opinion/georgia-senate-race-loeffler-perdue-joni-ernst)
+占全球能量饮料市场份额35%、位居全球第二的怪兽能量饮料所属公司怪兽饮料公司（Monster Beverage Corporation ）旗下的其他能量饮料还有Burn，NOS, Full Throttlp, Relentless, Mother, REIGN.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22052554/Screenshot-2020-11-22-at-8.08.38-pm.png)圖片來源 Monster Beverage 官網
+据维基百科，大多数这些饮料中的咖啡因含量约为33.81 毫克 / 100 毫升，即每16盎司（454克）的罐装饮料中含有160毫克。 包装上通常包含警告标籤，建议消费者不要每天喝超过48盎司（3罐饮料）（澳大利亚建议每天喝不超过16盎司，即一罐饮料）。饮料成分包括碳酸水，蔗糖，葡萄糖，柠檬酸，天然香料，牛磺酸，柠檬酸钠，添加的色素，人参根提取物，左旋肉硷，左旋酒石酸盐，咖啡因，山梨酸，苯甲酸，烟酰胺，氯化钠， 大豆最大葡萄醣醛酸内酯，肌醇，瓜拉那种子提取物，盐酸吡ido醇，三氯蔗糖，核黄素，麦芽糖糊精和氰钴胺素。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22052351/monster_drinks.0.jpg)圖片來源 [https://www.eater.com/2018/1/24/16925724/monster-energy-sexual-misconduct-lawsuits-boycott](https://www.eater.com/2018/1/24/16925724/monster-energy-sexual-misconduct-lawsuits-boycott)
+该公司由可口可乐公司部分控股，以赞助极限运动比赛和音乐赛事而闻名。据Huff Post, 该公司曾因高层性侵妇女卷入五宗性骚扰案件而引发公众联合抵制该饮料的呼声，其中2016年的性侵暴力案引起广泛关注。
 
-翻译报道：萌萌的朋克
+在所有以发挥人类身体潜能和音乐激情的光环笼罩下，我们不知道有多少罪恶被遮盖和遗忘。正如视频中女主人所言，上帝说他的子民因无知而亡。
 
-0
+我们希望人们远离暗黑世界的产品和诱惑，以及更多背后的真相和关联的线索能够被揭示出来。
+
+参考资料
+
+[https://gtv.org/getter/5fb99bb5b2a6d15327843eb3](https://gtv.org/getter/5fb99bb5b2a6d15327843eb3)
+
+[https://en.wikipedia.org/wiki/Monster\_Energy](https://en.wikipedia.org/wiki/Monster_Energy)
+
+[https://www.eater.com/2018/1/24/16925724/monster-energy-sexual-misconduct-lawsuits-boycott](https://www.eater.com/2018/1/24/16925724/monster-energy-sexual-misconduct-lawsuits-boycott)
+
+
+
+> [重磅! 更多不雅照流出，亨特背后刺青是否与性奴交易有关？](https://gnews.org/zh-hans/455057/)
+
+
+
+3+
