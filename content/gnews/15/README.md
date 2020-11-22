@@ -1,9 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/14/2020 中共勾结影子政府奴役14亿中国老百姓。谁与中共站队, 谁就是中国人民的敌人!
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/580083/)
+## 11/14/2020 重锤! 川普总统签署的“紧急法”就是对中共开启的全方面的经济战和网络战!
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/580101/)
+
+11/14/2020 文贵先生直播：重锤! 川普总统签署的“紧急法”就是对中共开启的全方面的经济战和网络战!
+
+
 
 #### By: 【秘密翻译组G-Translators】
 
-1+
+0

@@ -1,77 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 什么时候一个“系统漏洞”变成政变了？是时候规范美国不可靠的投票系统垄断商了
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/579491/)
+## 未登天子位，先置杀人刀
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/579495/)
 
-*新闻来源：《Zerohedge(零对冲)》；作者：Tyler Durden；发布时间： 2020年11月 15日*
+作者：文护念
 
-*翻译/简评：MikeHua；校对：freedust；审核：freedust；Page：Eric8848*
+校对：宁缺；审核：海阔天空；Page：Connor54
+[!\[\]()!\[\](https://spark.adobe.com/page/X5TyMrE46Ihty/images/ae2829f9-4885-4e90-bfe5-d121451cdcf5.jpg?asset_id=c2e6a56e-5ea3-40c9-9623-97068a24d148&amp;img_etag=%22cde6fdd844abb1d46afeceb11d0a948c%22&amp;size=1024)](https://spark.adobe.com/page/X5TyMrE46Ihty/images/ae2829f9-4885-4e90-bfe5-d121451cdcf5.jpg?asset_id=c2e6a56e-5ea3-40c9-9623-97068a24d148&amp;img_etag=%22cde6fdd844abb1d46afeceb11d0a948c%22&amp;size=1024)
+最近闹得沸沸扬扬的美国大选事件，至今已过去了半个月，大选的最终结果仍未落下帷幕。民主党的乔•拜登与共和党的唐纳•川普双方正在激烈地角逐，究竟鹿死谁手，对于我们爆料革命的战友而言，最终的结局早已明了，川普总统连任毫无悬念，接下来就是走完相应的程序。
+[!\[\]()!\[\](https://spark.adobe.com/page/X5TyMrE46Ihty/images/4357fb02-795a-462f-9777-702952fbae68.jpg?asset_id=4acfbcbe-0765-48ec-a152-19f914e62876&amp;img_etag=%22abd6e3a760541de2e8c11242f35066da%22&amp;size=2560)](https://spark.adobe.com/page/X5TyMrE46Ihty/images/4357fb02-795a-462f-9777-702952fbae68.jpg?asset_id=4acfbcbe-0765-48ec-a152-19f914e62876&amp;img_etag=%22abd6e3a760541de2e8c11242f35066da%22&amp;size=1024)
+与此同时，民主党的乔•拜登利用大部分左派控制的媒体，铺天盖地宣布自己已获胜大选，成为下一届即第46任美国总统。乔•拜登俨然已变成一个厚颜无耻之人，不断地利用媒体造势，借用假民意鼓吹自己，以此想达到的目的就是击溃川普总统的心理防线，利用假选票策划“政变”，窃取胜利果实。
+[!\[\]()!\[\](https://spark.adobe.com/page/X5TyMrE46Ihty/images/95db9bce-f559-4341-b3c2-65629d7cd391.jpg?asset_id=e73d6117-ad2b-4dd6-a4e2-58d5320bb3e6&amp;img_etag=%22e4544497c67cf3f7ac9e2aa601d28979%22&amp;size=1024)](https://spark.adobe.com/page/X5TyMrE46Ihty/images/95db9bce-f559-4341-b3c2-65629d7cd391.jpg?asset_id=e73d6117-ad2b-4dd6-a4e2-58d5320bb3e6&amp;img_etag=%22e4544497c67cf3f7ac9e2aa601d28979%22&amp;size=1024)
+早前在路德社已爆出“红色幻影计划”，即11月3日当天晚上就利用ANTIFA暴乱，利用假民意，计划在白宫进行一场“政变”， 颠覆大选结果。但是乔•拜登以及背后的势力经过大数据分析，以为利用Dominion投票系统篡改数据、凌晨偷偷往投票站运送大量假选票海量作假，已经胜券在握，因而当天没有进行大规模的ANTIFA暴乱。乔•拜登们本以为这计划天衣无缝，但人算不如天算，大量作弊数据被纷纷曝光。
+[!\[\]()!\[\](https://spark.adobe.com/page/X5TyMrE46Ihty/images/17cb181d-f29c-41d4-9819-f37c4d8e0cd1.jpg?asset_id=149c6963-13a8-4df8-b413-3f49b5dddf24&amp;img_etag=%2249ebc426fecd9ec76df2c1547387c652%22&amp;size=2560)](https://spark.adobe.com/page/X5TyMrE46Ihty/images/17cb181d-f29c-41d4-9819-f37c4d8e0cd1.jpg?asset_id=149c6963-13a8-4df8-b413-3f49b5dddf24&amp;img_etag=%2249ebc426fecd9ec76df2c1547387c652%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/X5TyMrE46Ihty/images/e855e898-07d3-4e04-bf02-395423a16b06.jpg?asset_id=1d2916bd-ba74-464d-87bf-f99f3e766ff3&amp;img_etag=%22fa998a1de40e0518077e695a1bf630f4%22&amp;size=1024)](https://spark.adobe.com/page/X5TyMrE46Ihty/images/e855e898-07d3-4e04-bf02-395423a16b06.jpg?asset_id=1d2916bd-ba74-464d-87bf-f99f3e766ff3&amp;img_etag=%22fa998a1de40e0518077e695a1bf630f4%22&amp;size=1024)
+螳螂捕蝉，黄雀在后。美国军方突击了在德国法兰克福Scytl公司的服务器，经数据修复后，越来越多的信息得以曝光，真相呼之欲出。加上各州要求重新计票，更有甚者，部分的州长拒绝签名承认大选结果。越来越多正义的人挺身而出，主动要求做证人，指正很多投票站存在大量的舞弊现象。此次大选之滑稽在美国历史上可谓是前无古人，后估计也很难有来者了。
+[!\[\]()!\[\](https://spark.adobe.com/page/X5TyMrE46Ihty/images/184929da-1c5a-496a-a7a9-8474c55db4f2.png?asset_id=fdb21e3c-f71c-4ea7-ab63-36006fbf1642&amp;img_etag=%22e943473fef38da45863a694144ed4a42%22&amp;size=2560)](https://spark.adobe.com/page/X5TyMrE46Ihty/images/184929da-1c5a-496a-a7a9-8474c55db4f2.png?asset_id=fdb21e3c-f71c-4ea7-ab63-36006fbf1642&amp;img_etag=%22e943473fef38da45863a694144ed4a42%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/X5TyMrE46Ihty/images/93d45529-5ff6-4152-9754-8052df567ba7.jpg?asset_id=cdb289ed-9251-4bea-afa2-5255df9cff2c&amp;img_etag=%22ec3d0f4a474db5f8dd547e8d9520c1af%22&amp;size=1024)](https://spark.adobe.com/page/X5TyMrE46Ihty/images/93d45529-5ff6-4152-9754-8052df567ba7.jpg?asset_id=cdb289ed-9251-4bea-afa2-5255df9cff2c&amp;img_etag=%22ec3d0f4a474db5f8dd547e8d9520c1af%22&amp;size=1024)2020年11月10日左右，美军在法兰克福没收的服务器上恢复实际选举结果的数据。
+不仁者而居高位，是播其恶于众也，如果真让乔•拜登得逞，掌握了美国国家机器，届时全世界估计都会进入动乱时期。乔•拜登罔顾法纪，严重违宪，只为恋栈手中的权力，如今已走火入魔。乔•拜登及其背后势力本想来一个“未登天子位，先置杀人刀”，本以为可以逆天改命，取川普总统“首级”。无奈遇到了爆料革命以及美国的“定海神针”，毕竟魔高一尺，道高一丈，新中国联邦携手美国的正义力量，见招拆招，迫使对手黔驴技穷，招招已变臭棋。
+[!\[\]()!\[\](https://spark.adobe.com/page/X5TyMrE46Ihty/images/cbac2abd-b7e0-4b47-ac9f-c07b40b19728.jpg?asset_id=4d395459-f898-40d6-812a-1e39c71c0528&amp;img_etag=%22f727e972e74bbc38a5dbe51dbb4e4e83%22&amp;size=1024)](https://spark.adobe.com/page/X5TyMrE46Ihty/images/cbac2abd-b7e0-4b47-ac9f-c07b40b19728.jpg?asset_id=4d395459-f898-40d6-812a-1e39c71c0528&amp;img_etag=%22f727e972e74bbc38a5dbe51dbb4e4e83%22&amp;size=1024)
+正所谓名不正，则言不顺；言不顺，则事不成。尤其在美国这个讲究程序正义的国家，要做成一件事情，必须有正当的名义和理由，才有办法产生强大的号召力，才能成就事业。反之，像乔•拜登这样名义不当，“出师无名”，说了一个谎言，无数个谎言亦无法帮其自圆其说，最终只能理屈词穷。仗剑之人，必死于剑下。同样，虚假之人必毙于谎言。
 
-**简评：**
-
-郭先生在三个硬盘出来时就说，本次美国选举会以滑稽荒唐的结果落下帷幕，到现在看来因为共产党的参与确实够滑稽荒唐。美利坚的选举被搞得跟香蕉共和国一样，处处是中共的影子。一开始绝对保证选举系统没有问题，被人发现问题之后死不承认，实在压力太大受不了了就是临时工干的，然后在媒体上骗，到处假新闻宣传，就是赖着脸皮厚，共产党为世界把脉开方用的就是这种手段。
-
-这次选举让美国人民体味了一下墙内人民被强奸的感觉，再不觉醒，再不行动美国就真的没有机会了。川普总统在去年曾经说过他是上天选中的人“The Chosen one”，相信他这次一定会下定决心，在香港问题，贸易协议和冠状病毒都踟蹰犹豫错过机会之后，这是上天留给美国和世界人们最后的机会，这次不灭共，让共产当窃取选举结果，他们就控制了人类的未来，人类从此会进入黑暗时代。我们每个战友传播真相，就是在反抗这个盖在人类未来的大黑幕，每个人都是最后一根稻草，没了谁都不行！
-
-**原文翻译：**
-
-**什么时候一个“系统漏洞”变成政变了？是时候规范美国不可靠的投票系统垄断商了**
-
-*这件事想起来很恐怖，但是美国民主的成功基本上取决于三个投票机器制造公司，他们几乎没有任何政府监管。除非这一现象改变，世界上最伟大的民主体制在世界眼里看起来像一个香蕉共和国。*
-
-[!\[\]()!\[\](https://spark.adobe.com/page/sU6kO98HdKf1H/images/cd146ec5-41c8-47f4-86bf-0727e1b430f2.jpg?asset_id=1c9fcee9-b6f7-41a8-bc76-238d18713ca7&amp;img_etag=%2230c5355b2b7e6754a9bd1991ced2f18c%22&amp;size=1024)](https://spark.adobe.com/page/sU6kO98HdKf1H/images/cd146ec5-41c8-47f4-86bf-0727e1b430f2.jpg?asset_id=1c9fcee9-b6f7-41a8-bc76-238d18713ca7&amp;img_etag=%2230c5355b2b7e6754a9bd1991ced2f18c%22&amp;size=1024)
-
-在2020年1月，三个制造了全美80%以上投票机器的公司—投票系统软件公司（Election Systems & Software）,多米尼投票系统公司（Dominion Voting Systems）和哈特公司（Hart InterCivic），这三个公司的CEO被国会议员质询关于投票箱安全的问题。也许没人会吃惊这场90分钟的讨论焦点几乎集中在国外干涉的可能性，特别是中共国和俄罗斯。在这个众所周知的狭窄范围内—其实说的就只是俄罗斯俄罗斯俄罗斯！–人们很容易就排除本土尝试篡改选票的行为。
-
-目前，多米尼，28个州投票机器的供应商，正因有报道称将成百上千在密歇根州的投川普选票改成了投拜登的而被严格审查。官员很快回应称这个“漏洞”是处于“人工错误”，和该机器的其他错误不同。
-
-根据密歇根州政府网站，“这个错误的非官方结果报道…是一个安特里姆郡（Antrim County）工作人员的个人过失，他因疏忽没有更新手机选票数据的投票机器系统然后报告了非官方数据。”
-
-**虽然我不是计算机专家，但是我想象不到软件更新会防止投一个候选人的票变成投另一个候选人，除非程序原来写的时候就是这么设计的。但再次声明，我不是专家。**
-
-另一个严重依赖多米尼的州是佐治亚州，该州去年收到了30，000个新投票机—“美国历史上投票设备最大出货，”根据政府科技局时事新闻（Government Technology newsletter）。在宣布这份价值一亿零七百万美元的订单之后，紧接着该时事新闻预测了接下来会出现的问题，指出“新的投票系统会很快被选民在法庭上挑战，选民会说该系统很容易被黑掉和篡改，即使有纸张选票。”
-
-**这些担忧很快在11月3日大选日成为现实，当一个技术漏洞造成了对两个佐治亚州郡县的恐慌（这个故事的一个边注是佐治亚官员把责任推卸给了一个在亚特兰大州农场竞技场的管道爆裂。然而目前为止，官员还没有任何证据证实事故发生了。）**
-
-目前“漏洞”的来源仍在调查中，一个州计票监督员，玛西亚•莱德利（Marcia Ridley）在11月3日告诉POLITICO新闻，多米尼负责准备选民花名册，并且“在昨晚上传了一些东西，不正常，然后导致了漏洞的出现。”这个被上报的事件阻止了员工为选民智能卡编程。莱德利继续说道，“这是他们从来没做过的事情。我从没见过他们在选举日前一天上传任何东西。”
-
-然而，多米尼官员，即使承认选民花名册有问题，仍然否热有在10月31日之后的最后一分钟上传任何选民花名册资料（一份多米尼的新闻发布反驳了这和其他指控，包括佩罗西家族，费恩斯坦（Feinstein）家族，和克林顿基金会（Clinton Global Initiative）和多米尼的任何关系。）
-
-**事情从这里变得有意思**
-
-莱德利继续说多米尼向她保证“公司可以知道任何系统升级，”表明系统升级不可能在没有被检测的情况下完成。换句话说，多米尼系统的互联网连接有后门，众所周知，只要在互联网上出现的都可以被黑客攻击。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/sU6kO98HdKf1H/images/73dde2f8-0cad-4461-9ca0-201e6f7f90f9.jpg?asset_id=33e28611-c6c9-4a9b-9821-bd5cf5ba276f&amp;img_etag=%220f97996340485ce2356cc83e2a91b32b%22&amp;size=3057)](https://spark.adobe.com/page/sU6kO98HdKf1H/images/73dde2f8-0cad-4461-9ca0-201e6f7f90f9.jpg?asset_id=33e28611-c6c9-4a9b-9821-bd5cf5ba276f&amp;img_etag=%220f97996340485ce2356cc83e2a91b32b%22&amp;size=1024)推文：[https://twitter.com/CodeMonkeyZ/status/1326881694742319104?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1326881694742319104%7Ctwgr%5E&ref\_url=https%3A%2F%2Fwww.zerohedge.com%2Fpolitical%2Fwhen-does-glitch-become-coup-its-time-regulate-americas-fly-night-voting-machine-monopoly](https://twitter.com/CodeMonkeyZ/status/1326881694742319104?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1326881694742319104%7Ctwgr%5E&amp;ref_url=https%3A%2F%2Fwww.zerohedge.com%2Fpolitical%2Fwhen-does-glitch-become-coup-its-time-regulate-americas-fly-night-voting-machine-monopoly)
-
-Ron发推：滨州州务院（Pennsylvania Department of State）问询一个从多米尼系统来的函数功能允许本地“操作员”获取并检查“完全空的选票”，如果需要可以重新填写，并且重新扫描。
-
-**事实上，正式出于这个顾虑，德州没有购买可疑的多米尼系统。**
-
-在一封来自选票系统检察员布莱顿•何雷（Brandon Hurley）写给德州选举主管凯西•因格兰姆（Keith Ingram）的信中，很明确写道“有些在民主5.5-A系统的硬件可以从以太网连接互联网。”
-
-在该信的后半段，何雷再次强调***“毫无疑问，多个5.5A系统的组件可以链接到外部通讯网络，并且这只能当末端用户采取适当防备才可以阻止这样的连接。”***
-
-周三，佐治亚州务卿布拉德•拉芬斯佩格 (Brad Raffensperger)宣布该州会在办法认证结果之前进行重新人工统计总统选举选票。根据纽约时报，拜登领先川普14，000票。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/sU6kO98HdKf1H/images/afa3c168-72c4-442e-b482-d8ca73f48cb0.jpg?asset_id=1ec7f1fc-4154-4d0b-874f-5caa05db538d&amp;img_etag=%2221d922872284ded1982193981108a22e%22&amp;size=2560)](https://spark.adobe.com/page/sU6kO98HdKf1H/images/afa3c168-72c4-442e-b482-d8ca73f48cb0.jpg?asset_id=1ec7f1fc-4154-4d0b-874f-5caa05db538d&amp;img_etag=%2221d922872284ded1982193981108a22e%22&amp;size=1024)推文：[https://twitter.com/KeithPreston/status/1326897846403084291?s=20](https://twitter.com/KeithPreston/status/1326897846403084291?s=20)
-
-**无论2020选举结果如何，同时这还是在和疫情中大量邮寄选票争议的情况下，这次选举一定会被在美国历史上记录为最混乱，最受争议和最有欺诈倾向的选举。**
-
-这场让美国看起来滑稽可笑的惨败之悲剧在于，这一切都可以被避免。有无数人曾经尝试警告投票系统在详细计票的系统弱点，特别是在这次川普-拜登竞选所展现的，这会决定美国未来长时间的政治，文化和经济走向。
-
-根据我们对2020总统大选的一切我们所知道的信息，这是我们的观点。期待数来自各个政治党派的百万美国选民对本次对美国未来有重大影响的选举没有任何怀疑是不可能的。重新计票会是一项重大任务，但是未来的美国的和平与宁静依赖着这些，特别是已经到临界点的党派纷争。**一旦重新计票完成，接下来的国会执行小组就会确保美国未来的选举安全，将选举投票公司列入政府规范之内。这种对美国选举的破坏到头了。**
-
-[原文链接](https://www.zerohedge.com/political/when-does-glitch-become-coup-its-time-regulate-americas-fly-night-voting-machine-monopoly)
+后资本主义时代的美国，拜金的信条仍根深蒂固，荼毒着美利坚大地，上帝亦沦为统治者的工具，整个美国都充斥着铜臭的味道，道德与信仰渐行渐远。资本大鳄与政治大鳄戴上的虚伪面具，通过这次美国大选纤毫毕现。拜金至上的时代造就了这些贪婪的资本大鳄与恋栈权力的政客，而这些贪婪大鳄与贪婪政客又为这个时代增添了沉痛的悲剧。美国大选过后究竟会走向何方，还能否成为人类文明的自由灯塔，这需要全民的觉醒，才可开辟一线生机。
+[!\[\]()!\[\](https://spark.adobe.com/page/X5TyMrE46Ihty/images/634ab5d7-0b11-42d7-80c8-d9054430cc94.jpg?asset_id=b4353f1d-1de8-44aa-ad09-dd30e08ea72c&amp;img_etag=%22fbe2d05a851ea5ff9164d5a5dea9561b%22&amp;size=1024)](https://spark.adobe.com/page/X5TyMrE46Ihty/images/634ab5d7-0b11-42d7-80c8-d9054430cc94.jpg?asset_id=b4353f1d-1de8-44aa-ad09-dd30e08ea72c&amp;img_etag=%22fbe2d05a851ea5ff9164d5a5dea9561b%22&amp;size=1024)
+【文章仅代表作者观点】
 
 [点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)[欢迎加入](https://discord.gg/U9F97ur)
 
-[欢迎加入【英喜庄园】Disocrd官方群](https://discord.gg/U9F97ur)
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/X5TyMrE46Ihty/)
 
-编辑：【喜马拉雅战鹰团】-点击spark adobe版
-
-[!\[\]()!\[\](https://spark.adobe.com/page/sU6kO98HdKf1H/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/sU6kO98HdKf1H/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
+[【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+[!\[\]()!\[\](https://spark.adobe.com/page/X5TyMrE46Ihty/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/X5TyMrE46Ihty/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0
