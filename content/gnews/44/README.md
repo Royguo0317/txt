@@ -1,310 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 鲍威尔：&#8221;我们已经掌握了确切证据，为证人提供证人保护《每日快报 &#8212; 2020.11.21》
-` 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hans/579384/)
-
-**作者： Daisy**
-
-**编辑： 星空无垠**
-
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01081922/%E6%AF%8F%E6%97%A5%E5%BF%AB%E6%8A%A5.png)
-
-
-
-
-# ***今日摘要***
-
-1. 法治基金、法治社会和文贵爆料“海航王健死亡真相“1120发布会迎来2周年
-2. “深层政府”头像一齐变黑，意味着决战时刻到来？川普总统需要加强安保
-3. 鲍威尔：”我们已经掌握了确切证据，为选票被偷的证人提供证人保护
-4. 拥有“中国制造”产品的美国企业，对乔-拜登“持乐观态度
-
-
-# 重要事件
-
-###### 
-
-**11.20. Gateway Pundit **[**鲍威尔律师：”我们已经掌握了确切证据，要为川普700万张选票被偷的证人提供证人保护！Sidney Powell: “We’ve Got a Number of Smoking Guns, May Have to Get Witness Protection for Them — 7 Million Votes Stolen from Trump!**](https://www.thegatewaypundit.com/2020/11/sidney-powell-got-number-smoking-guns-may-get-witness-protection-7-million-votes-stolen-trump-audio/)
-
-西德尼-鲍威尔周五加入了Howie Carr节目，就2020年大选和特朗普辩护团队如今的立场进行了长篇采访。在爆炸性的采访中，鲍威尔声称今年可能有数百万死人投票，可能偷走了川普总统700万张选票
-
-**11.20. GNEWS **[**2020年11月20日: 法治基金, 法治社会两周年 捐款留言特集**](https://gnews.org/zh-hans/577885/)**
-**法治基金, 法治社会团队衷心感谢所有的捐款者和支持者！1120也是文贵先生关于【海航（HNA）王健案】新闻发布会的两周年纪念!!!
-
-**11.20. GNEWS [“深层政府”头像一齐变黑 川普总统需要加强安全](https://gnews.org/zh-hans/577799/)
-**11月19日，乔∙拜登集团的一些主要骨干的推特头像或背景颜色都一起变成了标志性的黑色，这是一种什么暗号吗？这些人员包括奥巴马夫妇、乔∙拜登夫人、希拉里、乔治∙索罗斯、原国务卿克里、主持人奥普拉、加州州长纽森等人，密歇根州长则改成了戴黑白色口罩的头像，连奥巴马基金会原来彩色的徽标也变成了黑色。一天之内，一齐变黑，岂不怪哉？
-**11.20. Breitbart **[**拜登为过渡期众筹，与特朗普的对峙仍在继续****Biden Crowdsourcing Money for Transition as Standoff with Trump Continues**](https://www.breitbart.com/2020-election/2020/11/20/biden-crowdsourcing-money-for-transition-as-standoff-with-trump-continues/)
-在共和党人继续争夺2020年白宫之争之际，前副总统拜登正在向支持者募捐，以支付过渡进程的费用。已被多家媒体宣布为当选总统的拜登开始在社交媒体上刊登有针对性的筹款广告，征集捐款以帮助支付过渡期的费用。”由于特朗普总统拒绝让步，并在拖延过渡期，我们必须自己出资，需要你的帮助。”一则广告写道。”如果你有能力，请筹款帮助资助拜登-哈里斯的过渡。”
-
-**11.20. Breitbart [拥有 “中国制造 “产品的美国企业，对乔-拜登 “持乐观态度“ U.S. Companies with ‘Made in China’ Products, ‘Optimistic’ About Joe Biden](https://www.breitbart.com/politics/2020/11/20/u-s-companies-with-made-in-china-products-optimistic-about-joe-biden/)**
-一项新的调查显示，大多数在中国开展业务并在中国生产产品的美国公司对乔·拜登担任总统一事“持乐观态度”。位于中国上海的美国商会调查了124位企业高管对拜登总统的看法，其中将近63％的大多数人对他们在拜登任职的态度表示“非常乐观”或“更加乐观”。同样，该调查发现，企业高管们并不期望拜登对中国制造的产品加征关税-特朗普总统针对企业利益的愿望，对价值数十亿美元的商品进行了制裁。
-
-# 每日文贵说
-
-
-![]()![](https://www.himalayawashingtondc.org/wp-content/uploads/2020/11/image-14.png)
-# 文贵直播和盖特
-
-### 直播：
-
-2020年11月20号 文贵直播
-
-[https://gtv.org/broadcast/watch/5ee80e4427ff080da51b020c](https://gtv.org/broadcast/watch/5ee80e4427ff080da51b020c)
-![]()![](https://www.himalayawashingtondc.org/wp-content/uploads/2020/11/image-15.png)
-1．1120是我们成立法治基金法治社会两周年的日子，也是爆料革命走向国际的重要标志
-
-2．王健的死远远没有结束，调查还在继续，战友们对共产党的了解还不到我们看到的万分之一
-
-3．人世间最可悲的是人已经去了天堂，但是你所有的亲人在想尽一切办法想要你的钱，这个世界上最愚蠢的事情就是给儿女留钱
-
-4．国内很多我认识的老板所做的企业均纷纷倒闭，包括广东，香港和山东的
-
-5．共产党1949年拿到政权后第一件事情就是杀了200万地主，现在的企业家也和之前的地主一样
-
-6．郭先生一直走阳光大道，对家人和朋友当面和背后都是一模一样，建议战友们好好看看王阳明的新学，治良知，另外再好好看看佛学，贪嗔痴慢疑
-
-7．我们的GTV，GNEWS已经排名全球新闻类第43名，但是实际上我们真的才刚刚开始
-
-8．中国人出去吃饭浪费非常严重，千万不能浪费粮食
-
-9．很多欧洲俱乐部和餐厅，还有日本的都不欢迎中国人参加，根本原因都是共产党统治造成的
-
-10．我们一直在说服美国人和我们一起灭共，但是我们不强求，因为灭共关键还是要靠我们自己
-
-11．威廉王和唐平真是把我的嗓子完全打开了，所有人都喜欢我的嗓音
-
-12．本来想送给战友们郭战装，但是因为成本太高，每套超过600美金，所以只能战友们自己买
-
-13．战友们可以给Gclub代言做销售，包括酒店，豪华游艇等，只要是合法的，请和各个农场联系，并愿意自愿成为监督员，同时可以享受销售额的1%作为代理费
-
-14．七哥谁也不像，就像我自己
-
-15．没有战友，没有战友们捐钱，就没有爆料革命，就没有1120，就没有新中国联邦
-
-16．1120是给中国私人企业家警示的最好机会，也拯救和唤醒了很多企业家，但是却没有唤醒王健的老婆和儿子
-
-17．王健的遗书里明确说明死后一定不要埋在中国
-
-18．法治基金法治社会捐款不能再使用Paypal和Stripe，可以使用信用卡和支票捐款
-
-19．川普当选后，媒体会彻底改变，金融机构彻底改变，病毒改变全世界的生活方式，工作方式
-
-20．爆料革命必须有自己的货币，必须有自己的媒体
-
-21．爆料革命就是正道主义，我们是战场上打扫战场的人，所以我们一定是最终的胜利者
-
-22．是人就会有毛病，我们要尊重每一位战友，要包容，不要八卦，更不要随便说战友好坏，我们正在群修，这个道路不会是一帆风顺的，我们必须面对现实，行动！行动！行动！
-
-### 盖特：
-
-
-
-2020年11月20日: 法治基金,法治社会两周年捐款留言特集 法治基金, 法治社会团队衷心感谢所有的捐款者和支持者！ November 20, 2020 Anniversary of Rule of Law Foundation and Society donors messages special We heartfully thank all of our supporters and donors！
-
-[https://gtv.org/getter/5fb87b2bb2a6d1532784031e](https://gtv.org/getter/5fb87b2bb2a6d1532784031e)
-
-
-
-> 2020年11月20日 [#盖特](https://twitter.com/hashtag/%E7%9B%96%E7%89%B9?src=hash&amp;ref_src=twsrc%5Etfw)
->  2020年11月20日: 法治基金,法治社会两周年捐款留言特集 法治基金, 法治社会团队衷心感谢所有的捐款者和支持者！ November 20, 2020 Anniversary of Rule of Law Foundation and Society donors messages special We heartfully thank all of our supporters and donors！ [pic.twitter.com/5J5AtcfP7b](https://t.co/5J5AtcfP7b)
-> — 夜雨4 (@9Di0OkguvDn1FD7) [November 21, 2020](https://twitter.com/9Di0OkguvDn1FD7/status/1330079106659196933?ref_src=twsrc%5Etfw)
-
-
-
-11月20号：尊敬的战友们好……太多太多的战友，希望在这个重要的历史性的1120这个时间点上……我直播，我现在正在开会中，大约在6:00和7:00之间我会乱聊直播，今天会放一些王建先生的一些照片……可能还会很吓人，希望大家先喝点小酒，压压惊做好心理准备！并请未满18岁的所有的战友们千万不要进入千万不要进入观看！
-
-[https://gtv.org/getter/5fb84468b2a6d1532783f706](https://gtv.org/getter/5fb84468b2a6d1532783f706)
-![]()![](https://www.himalayawashingtondc.org/wp-content/uploads/2020/11/image-18.png)
-1月月20号：亲爱的战友…收到啦，收到啦。
-
-[https://gtv.org/user/5e596957357cc612d35a8044](https://gtv.org/user/5e596957357cc612d35a8044)
-![]()![](https://www.himalayawashingtondc.org/wp-content/uploads/2020/11/image-17.png)
-11月20号: 尊敬的战友们好．几天来，我一直都在思考……这个难以忘记重大的爆料革命的历史的日子里……1120我到底应不应该直播，由于各种原因，我要兑现我的承诺啊，今天还不能谈这个事情，王建的被杀害的事情远远没有结束，在适当的时候会让大家知道全部的真相……我在今天晚上——如果有时间可以和大家乱聊一下，请大家牢记……我们要讲信用，这是我们的爆料革命的核心价值！
-
-[https://gtv.org/getter/5fb7f539b2a6d1532783e8c9](https://gtv.org/getter/5fb7f539b2a6d1532783e8c9)
-
-[https://gtv.org/getter/profile/5e596957357cc612d35a8044](https://gtv.org/getter/profile/5e596957357cc612d35a8044)
-
-
-![]()![](https://www.himalayawashingtondc.org/wp-content/uploads/2020/11/image-16.png)
-### PARLER:
-
-# 班农战斗室 War Room
-
-
-
-War Room: Pandemic Ep 523
-
-
-
-War Room: Pandemic Ep 524
-
-
-
-# 路德社节目：
-
-### 11/20/2020 早 路德时评（路安墨谈）：
-
-纽约时报撰文说文贵先生、闫丽梦博士观点、路德社节目已经成为主流思潮，不得不撰文攻击！小川普发推指出朱利安尼正在进行什么重要行动验证了路德节目所说？
-
-
-
-1. 纽约时报承认郭文贵先生爆料革命已成美国主流思潮、中共最大威胁故而撰文攻击，王姓记者梳理爆料革命一年来重大行动如数家珍：1.19病毒来源真相、9.24拜登硬盘门、大选舞弊等爆料在美掀风暴，文中隐秘信息来源成疑，中共安排痕迹明显.
-2. Eric Trump发推暗示朱利安尼司法战系国家行动!!
-
-
-### 11/20/2020 晚 路德时评（路博艾冠谈）：
-
-鲍威尔转推方正集团的推暗藏重要信息；鲍威尔律师确认“我们的力量得到了服务器”，”从周末开始证据将像海啸一样袭来“；美国务院正式发布应对中共挑战蓝皮书！
-
-
-
-- 川普律师鲍威尔回击左媒曝猛料：①Dominion公司突然关闭办公室、所有员工删除领英信息（毁尸灭迹）②川普力量已获取德国服务器且中共、委内瑞拉等接入该服务器③美大选舞弊系全球规模犯罪‼️
-- 鲍威尔确认“我们的力量”得到了德国服务器，当时这个服务器传入4个美国极端敌对国。她在接受自媒体采访说我们将会尽快将证据曝光并发给你们这样的媒体，周末证据将像海啸一样袭来。我们处于一个全球范围的刑事犯罪阴谋下，这只是冰山一角。小政府的模式已经被正义力量暴露了。
-- 和索罗斯有关的多米尼多伦多办公室已经突然关闭并搬离，多米尼公司员工删除领英帐号，否认和多米尼的关系。办公室搬离是为了销毁他们的电脑犯罪证据。员工被命令删除资料，让司法部找不到证人。文贵先生说过多伦多是中共在北美的间谍中心，而且加拿大和美国有引渡条约，所以他们要最快速度逃跑。
-- 鲍威尔转了好几条方正集团的推，即指多米尼的事情，一定会打到它的根就是背后的方正集团，方正集团的信息如果传递出来就是更加实锤的证据。王选因为汉字编码在北京都是常委待遇。爆料革命在灭共的终极大战中又冲到最前面，可能会提供一击毙命的证据。
-- 美国国务院正式发布应对中共挑战的蓝皮书。这是美国政策局编写的，可能会奠定对中共未来几十年的政策。把中共输出价值观颠覆美国的模式说清楚了，让美国人知道就像对付苏联一样一切都是冲着中共去的。
-
-
-川普总统长子小唐纳德和朱利安尼的儿子都确认感染了中共病毒。
-
-# 推特文摘
-
-
-
-
-| 【1120两周年】 两年前那惊心动魄的场景 今天依然历历在目 王健之死和1120 是中美关系重要的历史转折点 美国人终于意识到 共匪不仅可以在中国随便杀人 在海外也可以！ 因为没有郭先生的追踪 张首晟之死很快烟消云散 但是美国从此切身感受到 共匪的邪恶和恐怖 从2018年底开始 一系列反共措施陆续出台… |
-| --- |
-| 虽然他们把路德的账号封了，但是我依然不取消置顶！这些都是证据！ 是闫博士通过路德社第一个向世界传递病毒真相的信息，并告知已经人传人！路德在2020年1月18日发推特，1月19日直播！中共媒体几时才开始承认人传人？为什么比路德晚？为什么要隐瞒？请问假 媒体可以回答这两个问题吗？ |
-
-
-
-
-
-
-> 虽然他们把路德的账号封了，但是我依然不取消置顶！这些都是证据！是闫博士通过路德社第一个向世界传递病毒真相的信息，并告知已经人传人！路德在2020年1月18日发推特，1月19日直播！中共媒体几时才开始承认人传人？为什么比路德晚？为什么要隐瞒？请问假媒体可以回答这两个问题吗？ [https://t.co/VPLmQW73lU](https://t.co/VPLmQW73lU) [pic.twitter.com/ouDyjOD6dX](https://t.co/ouDyjOD6dX)
-> — ⚡️是七月呀🎗 (@hjhhjkklfdddjkk) [November 20, 2020](https://twitter.com/hjhhjkklfdddjkk/status/1329826888856977408?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-11/20 【多米尼偷票系统】将是当今美国最高权力精英腐败政客滑铁卢！其所有者为索罗斯，菲恩斯坦，佩罗西，奥巴马，布什家族，克林顿基金。该系统与CIA【锤子】和【积分卡】是同一个计算机专家亚力克山大.乐扎维克，雇佣大批塞尔维亚软件工程师开发。多年来上诉权力阶层一直靠该偷票系统控制美国政局！
-
-
-
-
-
-> 11/20 【多米尼偷票系统】将是当今美国最高权力精英腐败政客滑铁卢！其所有者为索罗斯，菲恩斯坦，佩罗西，奥巴马，布什家族，克林顿基金。该系统与CIA【锤子】和【积分卡】是同一个计算机专家亚力克山大.乐扎维克，雇佣大批塞尔维亚软件工程师开发。多年来上诉权力阶层一直靠该偷票系统控制美国政局！ [pic.twitter.com/yscUGanvek](https://t.co/yscUGanvek)
-> — 西行小宝 (@htommy998) [November 21, 2020](https://twitter.com/htommy998/status/1330054152391700487?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-川普总统绝对是美国历史上首位获得超过一亿选票的当选人，太牛啦！
-
-
-
-
-
-> 川普总统绝对是美国历史上首位获得超过一亿选票的当选人，太牛啦！👍👍👍 [https://t.co/i5cDVk83Ue](https://t.co/i5cDVk83Ue) [pic.twitter.com/2O9GVzL70I](https://t.co/2O9GVzL70I)
-> — 危船愚夫 (@OAtxBKAdTP6KIEz) [November 21, 2020](https://twitter.com/OAtxBKAdTP6KIEz/status/1330060739952971778?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-
-| 鍾南山罕見承認：武漢地區危重症死亡率近40% [#中共病毒](https://mobile.twitter.com/hashtag/中共病毒?src=hashtag_click) 疫情在全球肆虐近一年，中共公布的確診和死亡數據一直被認為嚴重縮水。中國工程院院士 [#鍾南山](https://mobile.twitter.com/hashtag/鍾南山?src=hashtag_click) 11月20日罕見表示，[#武漢](https://mobile.twitter.com/hashtag/武漢?src=hashtag_click) 地區危重症患者死亡率達40%。由此推斷，疫情發源地武漢的真實死亡人數超乎想像。 |
-| --- |
-
-
-
-
-
-
-> 【钟南山说漏嘴？武汉地区危重症死亡率近40%】 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hash&amp;ref_src=twsrc%5Etfw) 疫情去年底从中国 [#武汉](https://twitter.com/hashtag/%E6%AD%A6%E6%B1%89?src=hash&amp;ref_src=twsrc%5Etfw) 开始爆发，随后扩散全球，在中国，特别是 [#疫情](https://twitter.com/hashtag/%E7%96%AB%E6%83%85?src=hash&amp;ref_src=twsrc%5Etfw) 重灾区武汉的确诊和死亡数据一直被质疑涉严重 [#隐瞒](https://twitter.com/hashtag/%E9%9A%90%E7%9E%92?src=hash&amp;ref_src=twsrc%5Etfw) 。中国工程院院士 [#钟南山](https://twitter.com/hashtag/%E9%92%9F%E5%8D%97%E5%B1%B1?src=hash&amp;ref_src=twsrc%5Etfw) 今天（20日）罕见披露，武汉地区危重症患者 [#死亡率](https://twitter.com/hashtag/%E6%AD%BB%E4%BA%A1%E7%8E%87?src=hash&amp;ref_src=twsrc%5Etfw) 达40%。[https://t.co/MYAzWdv0gG](https://t.co/MYAzWdv0gG) [pic.twitter.com/WEczzGVqQo](https://t.co/WEczzGVqQo)
-> — 希望之聲 – 中國時局 (@SoundOfHope\_SOH) [November 20, 2020](https://twitter.com/SoundOfHope_SOH/status/1329770015642578944?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-
-| General Spalding斯伯丁将军：I’ve heard through the grapevine that the DoJ effort to go after CCP spies will be called off once Biden is in office. So much for defending our country. There’s more to national security than F-35s and aircraft carriers. It seems like we may have learned nothing.( 我已经听到小道消息，一旦拜登上任，美国司法部追查中共间谍的努力将被撤回。除了F-35和航空母舰外，捍卫我们的国家安全还有更多的要做。看来我们可能一无所获。 |
-| --- |
-
-
-
-
-
-
-> I've heard through the grapevine that the DoJ effort to go after CCP spies will be called off once Biden is in office. So much for defending our country. There's more to national security than F-35s and aircraft carriers. It seems like we may have learned nothing.
-> — General Spalding (@robert\_spalding) [November 20, 2020](https://twitter.com/robert_spalding/status/1329857189025091588?ref_src=twsrc%5Etfw)
-
-
-
-
-
-# 墙内咨讯
-
-#### **11.20. 中国政府网 截至10月底，全国外出务工贫困劳动力达2973万人——就业扶贫，让大家有活干有钱赚**
-
-在11月19日举行的国新办新闻发布会上，人力资源和社会保障部副部长李忠介绍，截至10月底，全国外出务工贫困劳动力2973万人，就业扶贫已成为就业优先政策的重要组成，是精准扶贫、精准脱贫的重要渠道。
-
-**建设扶贫车间超****3万个**
-
-“人社部、国务院扶贫办会同各地区、各部门全力促进贫困劳动力就业创业，助力决战决胜脱贫攻坚。”李忠介绍，具体来看，采取的主要措施包括以下方面：
-
-——拓宽就业渠道。围绕外出务工和就地就近就业两大方向，探索形成有组织劳务输出、发展扶贫车间、产业项目吸纳、创业带动就业四条渠道，促进贫困劳动力就业增收。
-
-——完善就业政策。运用资金补贴、税费减免、金融支持等政策，鼓励企业吸纳、支持自主创业和灵活就业、开发公益性岗位兜底安置。
-
-——优化就业服务。坚持精准服务，对贫困劳动力开展一对一帮扶；坚持持续服务，持续向贫困劳动力送岗位、送政策、送服务；坚持稳岗服务，帮助贫困劳动力稳在企业、稳在当地。
-
-——加强技能培训。开展大规模职业技能培训，确保贫困劳动力应培尽培。实施职业技能提升行动、企业稳岗扩岗专项支持计划，支持贫困劳动力免费培训、线上培训，支持中小微企业吸纳贫困劳动力开展以工代训。
-
-**务工收入占比逐年上升**
-
-“脱贫攻坚战打响以来，就业扶贫成为脱贫的重要措施，也是精准扶贫的重要手段。”国务院扶贫办副主任欧青平说，“这些年来，我们会同人社部从组织发动贫困人口外出务工和推动就地就近就业两个方面统筹推进，全力以赴促进贫困人口务工增收，成效非常明显。”
-
-**增强贫困户内生动力**
-
-社会兜底不能“一兜了之”，必须增强贫困户内生动力。欧青平介绍，在增加务工人员技能、提高整体素质方面，国务院扶贫办做了三方面工作：一是对有外出务工意愿的贫困劳动力广泛开展岗前培训，提高他们的就业技能；二是对已经务工的贫困劳动力，加大在岗培训；三是对贫困家庭新成长的劳动力，让他们接受职业教育。（记者 孔德晨）
-
-***简评：过去几十年都没有解决脱贫问题，现在中共国外企撤离投资下降经济面临崩溃之际却又宣传所谓的就业扶贫纯属忽悠人民******!***
-
-#### **11.20.** **环球时报 习近平在亚太经合组织第二十七次领导人非正式会议上的讲话**
-
-第一，坚持开放包容。世界经济正如我们身边的太平洋，汇聚千流、连通四海，铸就了浩瀚宽广的胸怀，孕育了波涛澎湃的活力。在平等相待基础上开展合作，在相互尊重基础上化解分歧，是亚太经济发展繁荣的根本。
-
-第二，坚持创新增长。数字经济是全球未来的发展方向，创新是亚太经济腾飞的翅膀。我们应该主动把握时代机遇，充分发挥本地区人力资源广、技术底子好、市场潜力大的特点，打造竞争新优势，为各国人民过上更好日子开辟新可能。
-
-第三，坚持互联互通。互联互通是区域经济一体化的重要基础，也是实现全球联动发展的必要条件，其重要性在疫情背景下就显得更加突出。我们要继续推进落实亚太经合组织互联互通蓝图，畅通人员、货物、资金、数据安全有序流动，实现亚太地区无缝联接。
-
-第四，坚持合作共赢。亚太各成员发展高度互补，利益深度融合。亚太经济合作从来不是零和博弈、你输我赢的政治游戏，而是相互成就、互利共赢的发展平台。
-
-应对疫情是当前最紧迫的任务。我们要加强疫苗研发和交流，努力让疫苗成为全球公共产品，促进疫苗在发展中国家的可及性和可负担性。中方已经加入“新冠肺炎疫苗实施计划”。中方支持亚太经合组织加强公共卫生、中小微企业等领域政策交流和能力建设，提出远程医疗倡议，让贫困和偏远地区人民得到及时、有效医治，助力抗疫合作和经济复苏。
-
-***简评：这次会议似乎并未得到各国元首的重视。***[***习近平***](https://www.epochtimes.com/gb/tag/%E4%B9%A0%E8%BF%91%E5%B9%B3.html)***继续称“世界是不可分割的命运共同体”，然而中共政权面临国际孤立，令他的讲话主题变得如此一厢情愿；他自相矛盾的叙述也难以重新获得各国的信任，所谓“各国实现互利共赢”，也只剩下了口号。***
-
-#### **11.20. 新浪网  天津滨海新区：迅速进入战时状态，启动应急机制**
-
-自11月9日天津市东疆港区瞰海轩小区主动排查发现首例无症状感染者后，立即采取了对其居住楼栋封控、对其密切接触者及密接的密接采取集中隔离医学观察、核酸检测等措施，并于10日对小区全体居民进行核酸检测；根据该小区后续出现病例的情况，11月18日该小区被划定为中风险地区后，按照我市疫情防控强化措施，对该小区全体居民再次进行核酸检测和血清学抗体检测，11月19日，发现3人新冠病毒核酸检测结果为阳性。同时，还有1人在住院期间发现核酸检测阳性。目前，4人均已转运至市定点医院。经市级专家组综合研判，均确定为新冠肺炎确诊病例。上述4人在11月10日对小区全体居民的首次核酸检测筛查中，结果均为阴性，且居住或工作在天津东疆港区瞰海轩小区同一楼栋。***简评：虽然中共一再标榜中国抗疫成功。但是病毒从来都没有离开中国。所谓的成功只是谎言而已！按照闫博士的方法，吃上羟氯喹就你能够有效防疫***
-
-
-
+## 未登天子位，先置杀人刀
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/579495/)
+
+作者：文护念
+
+校对：宁缺；审核：海阔天空；Page：Connor54
+[!\[\]()!\[\](https://spark.adobe.com/page/X5TyMrE46Ihty/images/ae2829f9-4885-4e90-bfe5-d121451cdcf5.jpg?asset_id=c2e6a56e-5ea3-40c9-9623-97068a24d148&amp;img_etag=%22cde6fdd844abb1d46afeceb11d0a948c%22&amp;size=1024)](https://spark.adobe.com/page/X5TyMrE46Ihty/images/ae2829f9-4885-4e90-bfe5-d121451cdcf5.jpg?asset_id=c2e6a56e-5ea3-40c9-9623-97068a24d148&amp;img_etag=%22cde6fdd844abb1d46afeceb11d0a948c%22&amp;size=1024)
+最近闹得沸沸扬扬的美国大选事件，至今已过去了半个月，大选的最终结果仍未落下帷幕。民主党的乔•拜登与共和党的唐纳•川普双方正在激烈地角逐，究竟鹿死谁手，对于我们爆料革命的战友而言，最终的结局早已明了，川普总统连任毫无悬念，接下来就是走完相应的程序。
+[!\[\]()!\[\](https://spark.adobe.com/page/X5TyMrE46Ihty/images/4357fb02-795a-462f-9777-702952fbae68.jpg?asset_id=4acfbcbe-0765-48ec-a152-19f914e62876&amp;img_etag=%22abd6e3a760541de2e8c11242f35066da%22&amp;size=2560)](https://spark.adobe.com/page/X5TyMrE46Ihty/images/4357fb02-795a-462f-9777-702952fbae68.jpg?asset_id=4acfbcbe-0765-48ec-a152-19f914e62876&amp;img_etag=%22abd6e3a760541de2e8c11242f35066da%22&amp;size=1024)
+与此同时，民主党的乔•拜登利用大部分左派控制的媒体，铺天盖地宣布自己已获胜大选，成为下一届即第46任美国总统。乔•拜登俨然已变成一个厚颜无耻之人，不断地利用媒体造势，借用假民意鼓吹自己，以此想达到的目的就是击溃川普总统的心理防线，利用假选票策划“政变”，窃取胜利果实。
+[!\[\]()!\[\](https://spark.adobe.com/page/X5TyMrE46Ihty/images/95db9bce-f559-4341-b3c2-65629d7cd391.jpg?asset_id=e73d6117-ad2b-4dd6-a4e2-58d5320bb3e6&amp;img_etag=%22e4544497c67cf3f7ac9e2aa601d28979%22&amp;size=1024)](https://spark.adobe.com/page/X5TyMrE46Ihty/images/95db9bce-f559-4341-b3c2-65629d7cd391.jpg?asset_id=e73d6117-ad2b-4dd6-a4e2-58d5320bb3e6&amp;img_etag=%22e4544497c67cf3f7ac9e2aa601d28979%22&amp;size=1024)
+早前在路德社已爆出“红色幻影计划”，即11月3日当天晚上就利用ANTIFA暴乱，利用假民意，计划在白宫进行一场“政变”， 颠覆大选结果。但是乔•拜登以及背后的势力经过大数据分析，以为利用Dominion投票系统篡改数据、凌晨偷偷往投票站运送大量假选票海量作假，已经胜券在握，因而当天没有进行大规模的ANTIFA暴乱。乔•拜登们本以为这计划天衣无缝，但人算不如天算，大量作弊数据被纷纷曝光。
+[!\[\]()!\[\](https://spark.adobe.com/page/X5TyMrE46Ihty/images/17cb181d-f29c-41d4-9819-f37c4d8e0cd1.jpg?asset_id=149c6963-13a8-4df8-b413-3f49b5dddf24&amp;img_etag=%2249ebc426fecd9ec76df2c1547387c652%22&amp;size=2560)](https://spark.adobe.com/page/X5TyMrE46Ihty/images/17cb181d-f29c-41d4-9819-f37c4d8e0cd1.jpg?asset_id=149c6963-13a8-4df8-b413-3f49b5dddf24&amp;img_etag=%2249ebc426fecd9ec76df2c1547387c652%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/X5TyMrE46Ihty/images/e855e898-07d3-4e04-bf02-395423a16b06.jpg?asset_id=1d2916bd-ba74-464d-87bf-f99f3e766ff3&amp;img_etag=%22fa998a1de40e0518077e695a1bf630f4%22&amp;size=1024)](https://spark.adobe.com/page/X5TyMrE46Ihty/images/e855e898-07d3-4e04-bf02-395423a16b06.jpg?asset_id=1d2916bd-ba74-464d-87bf-f99f3e766ff3&amp;img_etag=%22fa998a1de40e0518077e695a1bf630f4%22&amp;size=1024)
+螳螂捕蝉，黄雀在后。美国军方突击了在德国法兰克福Scytl公司的服务器，经数据修复后，越来越多的信息得以曝光，真相呼之欲出。加上各州要求重新计票，更有甚者，部分的州长拒绝签名承认大选结果。越来越多正义的人挺身而出，主动要求做证人，指正很多投票站存在大量的舞弊现象。此次大选之滑稽在美国历史上可谓是前无古人，后估计也很难有来者了。
+[!\[\]()!\[\](https://spark.adobe.com/page/X5TyMrE46Ihty/images/184929da-1c5a-496a-a7a9-8474c55db4f2.png?asset_id=fdb21e3c-f71c-4ea7-ab63-36006fbf1642&amp;img_etag=%22e943473fef38da45863a694144ed4a42%22&amp;size=2560)](https://spark.adobe.com/page/X5TyMrE46Ihty/images/184929da-1c5a-496a-a7a9-8474c55db4f2.png?asset_id=fdb21e3c-f71c-4ea7-ab63-36006fbf1642&amp;img_etag=%22e943473fef38da45863a694144ed4a42%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/X5TyMrE46Ihty/images/93d45529-5ff6-4152-9754-8052df567ba7.jpg?asset_id=cdb289ed-9251-4bea-afa2-5255df9cff2c&amp;img_etag=%22ec3d0f4a474db5f8dd547e8d9520c1af%22&amp;size=1024)](https://spark.adobe.com/page/X5TyMrE46Ihty/images/93d45529-5ff6-4152-9754-8052df567ba7.jpg?asset_id=cdb289ed-9251-4bea-afa2-5255df9cff2c&amp;img_etag=%22ec3d0f4a474db5f8dd547e8d9520c1af%22&amp;size=1024)2020年11月10日左右，美军在法兰克福没收的服务器上恢复实际选举结果的数据。
+不仁者而居高位，是播其恶于众也，如果真让乔•拜登得逞，掌握了美国国家机器，届时全世界估计都会进入动乱时期。乔•拜登罔顾法纪，严重违宪，只为恋栈手中的权力，如今已走火入魔。乔•拜登及其背后势力本想来一个“未登天子位，先置杀人刀”，本以为可以逆天改命，取川普总统“首级”。无奈遇到了爆料革命以及美国的“定海神针”，毕竟魔高一尺，道高一丈，新中国联邦携手美国的正义力量，见招拆招，迫使对手黔驴技穷，招招已变臭棋。
+[!\[\]()!\[\](https://spark.adobe.com/page/X5TyMrE46Ihty/images/cbac2abd-b7e0-4b47-ac9f-c07b40b19728.jpg?asset_id=4d395459-f898-40d6-812a-1e39c71c0528&amp;img_etag=%22f727e972e74bbc38a5dbe51dbb4e4e83%22&amp;size=1024)](https://spark.adobe.com/page/X5TyMrE46Ihty/images/cbac2abd-b7e0-4b47-ac9f-c07b40b19728.jpg?asset_id=4d395459-f898-40d6-812a-1e39c71c0528&amp;img_etag=%22f727e972e74bbc38a5dbe51dbb4e4e83%22&amp;size=1024)
+正所谓名不正，则言不顺；言不顺，则事不成。尤其在美国这个讲究程序正义的国家，要做成一件事情，必须有正当的名义和理由，才有办法产生强大的号召力，才能成就事业。反之，像乔•拜登这样名义不当，“出师无名”，说了一个谎言，无数个谎言亦无法帮其自圆其说，最终只能理屈词穷。仗剑之人，必死于剑下。同样，虚假之人必毙于谎言。
+
+后资本主义时代的美国，拜金的信条仍根深蒂固，荼毒着美利坚大地，上帝亦沦为统治者的工具，整个美国都充斥着铜臭的味道，道德与信仰渐行渐远。资本大鳄与政治大鳄戴上的虚伪面具，通过这次美国大选纤毫毕现。拜金至上的时代造就了这些贪婪的资本大鳄与恋栈权力的政客，而这些贪婪大鳄与贪婪政客又为这个时代增添了沉痛的悲剧。美国大选过后究竟会走向何方，还能否成为人类文明的自由灯塔，这需要全民的觉醒，才可开辟一线生机。
+[!\[\]()!\[\](https://spark.adobe.com/page/X5TyMrE46Ihty/images/634ab5d7-0b11-42d7-80c8-d9054430cc94.jpg?asset_id=b4353f1d-1de8-44aa-ad09-dd30e08ea72c&amp;img_etag=%22fbe2d05a851ea5ff9164d5a5dea9561b%22&amp;size=1024)](https://spark.adobe.com/page/X5TyMrE46Ihty/images/634ab5d7-0b11-42d7-80c8-d9054430cc94.jpg?asset_id=b4353f1d-1de8-44aa-ad09-dd30e08ea72c&amp;img_etag=%22fbe2d05a851ea5ff9164d5a5dea9561b%22&amp;size=1024)
+【文章仅代表作者观点】
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)[欢迎加入](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/X5TyMrE46Ihty/)
+
+[【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+[!\[\]()!\[\](https://spark.adobe.com/page/X5TyMrE46Ihty/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/X5TyMrE46Ihty/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

@@ -1,105 +1,166 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “安替法”和“黑命贵”暴徒在挺川游行后突袭老人、妇女和儿童
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/579734/)
+## Dominion这家有争议背景的外国软件公司决定美国大选
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/579922/)
 
-*新闻来源：《布赖特巴特》；作者：拉娜•沙德威克（Lana Shadwick）；发布时间：2020年11月 14日*
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21200233/%E5%9B%BE%E7%89%871-28.png)*这家加拿大公司从一家饱受争议的公司收购了其软件和知识产权。这家饱受争议的公司与一位臭名昭著的独裁者有牵连，并且在该地区牵涉多起舞弊事件。*
+翻译： 康州农场 – 烟波浩淼
 
-*翻译/简评：随波逐流；校对：1818；审核：johnwallis；Page：Connor54*
+校对：康州农场 – 挺郭大刺猬
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/35155353-3fab-4485-9f4a-d7d39b7b4d7d.jpg?asset_id=6e6966cc-a503-4b6d-8be6-7fd5c7e7081d&amp;img_etag=%22e6c4e043bb830ea4ad1007459008e12e%22&amp;size=1024)](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/35155353-3fab-4485-9f4a-d7d39b7b4d7d.jpg?asset_id=6e6966cc-a503-4b6d-8be6-7fd5c7e7081d&amp;img_etag=%22e6c4e043bb830ea4ad1007459008e12e%22&amp;size=1024)
+审核：康州农场-文韵
 
-### **简评：**
+截止11月4日凌晨2点，大选的趋势偏向美国总统兼共和党候选人唐纳德**·**川普（Donald Trump）。几分钟后，在仍处于争议中的主要摇摆州中止了计数。第二天早上，这种趋势急剧逆转：乔**·**拜登（Joe Biden）转而占据领先地位。
 
-在周六上百万川普总统的支持者们大游行后，安提法（Antifa）和黑命贵（BLM）暴力团伙当场袭击了在华盛顿特区街道上行走的妇女、儿童和老人。
+一些州内的情况发生了全面转向，这些州包含密歇根州、宾夕法尼亚州和威斯康星州。在这三个州具有一个共同点，就是他们用于电子投票系统的软件属于加拿大公司Dominion Voting Systems（下文译作：Dominion投票系统）。
 
-抗议者向在外面就餐的食客扔大型烟花和射弹，并将激光灯照进酒店房间。网友在推特上传了大量照片和视频向世人展示行凶者的恶行。
+**合理的抱怨**
 
-Antifa和BLM的行动像事先精心准备的一场专门针对游行人群的打压恐吓活动。和之前香港抗议活动中发生的恶意暴行如出一辙。我们相信美国有关部门一定会想办法找出他们背后操纵策划的始作俑者。
+选举近十天后，似乎很明显获胜者是民主党候选人乔**·**拜登。美国各大主要媒体在推选各州后的预测结果是，民主党获得306张选举人票，共和党候选人获得232票。
 
-### **原文翻译：**
+然而，尽管拜登已经发表了他的获选演说并且以当选总统的身份出现在电视节目中，比赛远没有结束。唐纳德**·**川普及其支持者紧紧围绕着一个指控，即在11月4日那个奇怪的早晨，总统宣称：我被骗了。
 
-## 请看 Antifa在MAGA游行后如何袭击妇女、儿童、老年人和餐馆顾客
+到他说的时候，大选趋势仍然对他有利。尽管如此，川普还是预料到了即将发生的事情：各州开始转蓝。而且，自那时以来，他一直没有松口“舞弊”一词。如今，实际上，这个词已不再虚无缥缈、不可企及的，而是以加拿大Dominion投票系统的姿态出现。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/e89ac4d6-c7e1-4c61-894d-8b32eb4e8383.png?asset_id=c26c5574-f8d9-4db3-96b8-faaae3f5772b&amp;img_etag=%2262a61a00718f0bd8c75d026bac909561%22&amp;size=2560)](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/e89ac4d6-c7e1-4c61-894d-8b32eb4e8383.png?asset_id=c26c5574-f8d9-4db3-96b8-faaae3f5772b&amp;img_etag=%2262a61a00718f0bd8c75d026bac909561%22&amp;size=1024)
+11月12日上午11点，川普总统在推特上援引一则美国第一新闻网(OANN)的消息： “报告：Dominion在全国范围内删除了270万张川普的选票。经过数据分析，发现宾夕法尼亚州22.1万张选票从川普变为拜登。94.1万张川普票被删除。使用Dominion投票系统的各州将43.5万张选票从川普换成了拜登。”
 
-在星期六的百万大游行之后，安提法（Antifa）和黑命贵（BLM）当场袭击了在华盛顿特区的街道上行走的妇女、儿童、家庭（成员）和老人。暴徒们向在外面就餐的食客扔大型烟花和射弹，并将激光灯照进酒店房间。
+在媒体称拜登为获胜者几天后，川普的信息看起来像是已经输了的人在发脾气。反复出现的大写推文被对手刻画为假新闻妄想症。但这种解读过于简单。没有人认定存在舞弊行为，这是事实；但没有人认定不存在舞弊行为。并且，就Dominion投票系统而言，那几项可以表明加拿大公司与整个地区的选举舞弊事件有可能关联的部分需要被验证。
 
-华盛顿特区大都会警察封锁了BLM广场，因此百万MAGA 游行与会者无法通过。 川普的支持者必须经受BLM，安提法（Antifa）和黑人团伙袭击者的夹击，才能离开该地区。
+**Smartmatic****入场**
 
-一名黑人妇女被拖走，还有人突袭打了一个举着川普旗的男人。
+2000年4月11日，委内瑞拉的三位年轻工程师，安东尼奥**·**穆吉卡（Antonio Mugica），阿尔弗雷多**·**何塞**·**安佐拉（Alfredo José Anzola）和罗杰**·**皮涅特（Roger Piñate）在美国特拉华州成立了Smartmatic公司。由于对世界范围内选举过时的担忧，这群委内瑞拉人致力于开发一种能够更好管理选举过程的软件。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/df5a9043-5227-4b59-bb14-3538701a4a52.png?asset_id=497115ff-4246-4b2e-9dcd-8de0d29a96e5&amp;img_etag=%2276be5e1d279ef05c38605300345ffe37%22&amp;size=2560)](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/df5a9043-5227-4b59-bb14-3538701a4a52.png?asset_id=497115ff-4246-4b2e-9dcd-8de0d29a96e5&amp;img_etag=%2276be5e1d279ef05c38605300345ffe37%22&amp;size=1024)
+据《纽约时报》报道， 2004年初，一个委内瑞拉政府的财政机构向名为Bitza的一家技术公司投资了20万美元。而Bitza公司的所有者们也同时拥有Smartmatic公司。
 
-暴徒顺着街道往前走，并骚扰一对年迈的夫妇，同时试图从他们手中扯下写着川普的旗帜。
+同年，委内瑞拉经历了一场剧烈的政治风暴。委内瑞拉反对派经过数月对雨果**·**查韦斯（Hugo Chávez）政府的示威后，成功安排了对玻利瓦尔革命领袖的全民公决。最终，双方同意在2004年8月15日举行全民公决。而且，在竞标开发投票系统的公司合同中，SBC集团胜出。SBC集团由Smartmatic, Bitza 和委内瑞拉电话公司（CANTV）组成。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/8d8757f6-82ca-496a-84e8-f44acd48ffff.png?asset_id=53ccc3a8-697f-4604-a19a-8c6a05281847&amp;img_etag=%225c0422fc72f40e9f2935546d380c228e%22&amp;size=2560)](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/8d8757f6-82ca-496a-84e8-f44acd48ffff.png?asset_id=53ccc3a8-697f-4604-a19a-8c6a05281847&amp;img_etag=%225c0422fc72f40e9f2935546d380c228e%22&amp;size=1024)
+这次罢免公投是委内瑞拉国内第一次由这三名年轻工程师设计软件的选举。这不是一个好的开端，因为诸如Súmate(由María Corina Machado领导)等民间组织谴责了舞弊的可能性。2004年8月15日，玻利瓦尔制度开始巩固，导致一个习惯于选举舞弊的残酷独裁政权的产生。
 
-他们威胁并骚扰了一名用踏板车在街上行走的老人。 他们推倒踏板车，并向他淋洒不明液体。
+在公投失败后，Smartmatic从雨果**·**查韦斯（Hugo Chávez）政府那里又赢得了两份合同。得益于这些协议的收入，该公司得以积累小规模的财富。2005年3月，它以1600万美元的价格从英国De La Rue公司手中收购了规模更大，实力更强的电子投票公司Sequoia Voting Systems。
 
-他们大喊：“他妈的滚开！ 你最好他妈的滚远点！ 你最好他妈的滚远点！
+**抢夺红杉**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/d6cd8264-9be3-467e-a58c-66e0aeda9103.png?asset_id=efd95ab6-2c55-4c44-8998-73318512fc16&amp;img_etag=%228939635d635170e95eb1aa89e0a55a0b%22&amp;size=3369)](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/d6cd8264-9be3-467e-a58c-66e0aeda9103.png?asset_id=efd95ab6-2c55-4c44-8998-73318512fc16&amp;img_etag=%228939635d635170e95eb1aa89e0a55a0b%22&amp;size=1024)
+“自2005年3月被Smartmatic收购以来，红杉一直努力在拉丁美洲和其他发展中国家推广其投票机，”《纽约时报》报道。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/4ac20485-3247-4ded-8fc2-1a74090482e3.png?asset_id=73916bc5-97ff-4b1f-912e-0bf1bd821da6&amp;img_etag=%2276d0a4c9d2dd6f98e16285c919bd73a9%22&amp;size=2740)](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/4ac20485-3247-4ded-8fc2-1a74090482e3.png?asset_id=73916bc5-97ff-4b1f-912e-0bf1bd821da6&amp;img_etag=%2276d0a4c9d2dd6f98e16285c919bd73a9%22&amp;size=1024)
+Smartmatic发言人Mitch Stoller告诉《纽约时报》：“我们的目标是打造电子投票解决方案的全球领导者。”
 
-抗议者袭击了一名与其他妇女和一些川普支持者同行的中年妇女。 一个黑人妇女击中了该妇女的后脑勺。
+一个重要的细节是，在三个委内瑞拉人的公司收购了电子投票公司红杉之后，Smartmatic重组为多家公司的控股的公司。这些公司的总部分别位于特拉华州（Smartmatic International），荷兰（私营有限责任公司Smartmatic International Holding）和库拉索岛（公共有限责任公司Smartmatic International Group）。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/ff68fb47-d5f0-4eaa-aa7c-b5b9486bcf7c.png?asset_id=26820d22-dcd5-47ae-8b8d-f1508697fdf0&amp;img_etag=%222324d671ce4d1e918413f45d3ab9c11d%22&amp;size=2560)](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/ff68fb47-d5f0-4eaa-aa7c-b5b9486bcf7c.png?asset_id=26820d22-dcd5-47ae-8b8d-f1508697fdf0&amp;img_etag=%222324d671ce4d1e918413f45d3ab9c11d%22&amp;size=1024)
+但是对于Smartmatic来说，并非一切顺利。它与雨果**·**查韦斯（HugoChávez）政权的关系使美国的一些人感到不安。2006年5月，民主党国会女议员卡洛琳**·**马洛尼（Carolyn Maloney）要求财政部调查Smartmatic购买红杉的行为。
 
-一位头戴“蓝命贵BLM”（译者注：蓝和黑的英文首字母都是“B”）帽子和穿着川普外套的黑人母亲带着年幼的孩子崩溃地告诉警官，她想对袭击者提出指控。 袭击者把她逼到角落里并问她为什么带着孩子在那里。 据布赖特巴特新闻报道，当她遭到袭击时，她正推着婴儿车里的孩子，同时还试图保护她未成年的女儿。
+马洛尼给时任财政部部长约翰**·**W**·**斯诺 （John W. Snow）的信中写道 “我之所以写信，是因为委内瑞拉政府有可能对Smartmatic进行了投资活动。Smartmatic是一家在美国有业务的电子投票公司，它收购了位于美国的电子投票公司红杉。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/1cc1a410-588f-4fd1-a404-47a783095abf.png?asset_id=30117aaf-f0de-4505-95cd-e36809cfd387&amp;img_etag=%22db11abd621357eacfd5efe90b1afd536%22&amp;size=2560)](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/1cc1a410-588f-4fd1-a404-47a783095abf.png?asset_id=30117aaf-f0de-4505-95cd-e36809cfd387&amp;img_etag=%22db11abd621357eacfd5efe90b1afd536%22&amp;size=1024)
+这封信继续说道：“如您所想，让外国政府投资或购买一家为美国大选服务的公司，可能会引起人们对由这些机器提供的选举公正性的担忧。”
 
-与家人一起在街上行走的孩子被暴民吓到了，哭了起来。
+马洛尼在接受《纽约时报》采访时说：“政府应该知道谁拥有我们的投票机。这是一个国家安全问题。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/7f63faa9-d2d2-4758-9372-9ffbf98b6afe.png?asset_id=e9a644ec-11f0-40dc-bcb7-55af03eb3d5a&amp;img_etag=%22e966a810a6f02b441c8c838cb2732738%22&amp;size=2560)](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/7f63faa9-d2d2-4758-9372-9ffbf98b6afe.png?asset_id=e9a644ec-11f0-40dc-bcb7-55af03eb3d5a&amp;img_etag=%22e966a810a6f02b441c8c838cb2732738%22&amp;size=1024)
+在2006年10月29日《纽约时报》发表报告时，Smartmatic拥有的红杉投票系统“在美国的17个州和哥伦比亚特区安装了投票设备”。
 
-BLM和Antifa袭击了一对试图穿过BLM 广场的年轻夫妇，向他们扔鸡蛋和液体。 那位女性因恐惧而大叫。
+红杉的机器开始接受测试，和委内瑞拉一样，开始出现违规现象– 2007年8月，时任加州州务卿黛布拉**·**鲍恩（Debra Bowen）在“对2007年认证在加州使用的机器进行审查后，发现整个红杉系统存在重大安全漏洞”，因此撤销了对红杉投票机和光学扫描机的批准，并否决了红杉。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/ba689a5a-f9c1-4cee-bdf1-a07e97c1dbab.png?asset_id=2f551f9c-a745-4a9b-9a12-e09660f8b634&amp;img_etag=%22d653505db1d82ce525c969d490006e9a%22&amp;size=2815)](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/ba689a5a-f9c1-4cee-bdf1-a07e97c1dbab.png?asset_id=2f551f9c-a745-4a9b-9a12-e09660f8b634&amp;img_etag=%22d653505db1d82ce525c969d490006e9a%22&amp;size=1024)
+红杉使用的所有软件，其实都是来自Smartmatic。是旧的投票机经过改造，其所有技术都是开发并获得专利的。由于Smartmatic在红杉公司推动的变革，该公司获得了成功。直到2007年11月，在这些争议和国会女议员马洛尼的预警之后，美国外国投资委员会下令，Smartmatic出售红杉公司。
 
-布赖特巴特新闻社报道说，抗议者在集会后踩了一个老人的头。 一个黑人从川普的支持者后面跑上来，殴打他，使他跌倒在地。
+记者布拉德利**·**弗里德曼（Bradley Friedman）在2008年4月10日发表的一篇文章中写道：“在媒体和国会注意到该公司与乌戈**·**查韦斯有联系后，Smartmatic曾被迫放弃对红杉的控制权。” 最后，买家是公司自己的管理人员，但却是拥有美国国籍的那些人。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/9f71b119-0118-481b-b097-d5f1e02f41f0.png?asset_id=6bcaa898-677b-407d-9043-ac113eff4475&amp;img_etag=%222644a3b1e264b366d0b3a04138f38830%22&amp;size=2560)](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/9f71b119-0118-481b-b097-d5f1e02f41f0.png?asset_id=6bcaa898-677b-407d-9043-ac113eff4475&amp;img_etag=%222644a3b1e264b366d0b3a04138f38830%22&amp;size=1024)
+但这一判决并没有结束Smartmatic与红杉的争议关系。事实上，2008年4月，市场竞争者Hart InterCivic试图恶意收购红杉。这导致了法院的介入。Smartmatic被曝光。
 
-安提法（Antifa）暴徒用旗杆打在一个人的头上和身体上。
+被深挖出的法院文件显示，Smartmatic仍然保留了红杉的大部分财务控制权。由于签订了合同，Smartmatic还继续保留了红杉在美国各地发布的某些产品的所有权。实际上，时任红杉资本的首席执行官是杰克·布莱恩（Jack Blaine），曾是Smartmatic的高管。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/c49568c3-1d2e-491b-95e5-cac42d21c0c7.png?asset_id=57a9771d-87b0-44d0-a136-6ba46970daed&amp;img_etag=%229f2b214fbe2290a4292987953561d5f8%22&amp;size=2560)](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/c49568c3-1d2e-491b-95e5-cac42d21c0c7.png?asset_id=57a9771d-87b0-44d0-a136-6ba46970daed&amp;img_etag=%229f2b214fbe2290a4292987953561d5f8%22&amp;size=1024)
+最终，迫于压力，不久前曝光的红杉资本的所有者于2010年6月4日出售了该公司。这次买家是一家生产电子投票设备和光学扫描仪的加拿大小公司：Dominion Voting Systems 。
 
-当食客在外面用餐时，安提法（Antifa）和黑命贵运动成员（BLM）向他们投掷了大型烟花和弹丸。
+那天，这家加拿大公司不仅购买了红杉，而且还收购了Smartmatic申请专利的所有软件和技术开发，与Chavismo相联的有争议的公司仍拥有该软件和技术。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/9a1eba5b-e118-4016-8ccb-c3736b24c075.png?asset_id=c4a59852-bcc4-4dcf-9211-307d172d4ca0&amp;img_etag=%22c15e684e9e03c276998ddb1ee1ec0c05%22&amp;size=2560)](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/9a1eba5b-e118-4016-8ccb-c3736b24c075.png?asset_id=c4a59852-bcc4-4dcf-9211-307d172d4ca0&amp;img_etag=%22c15e684e9e03c276998ddb1ee1ec0c05%22&amp;size=1024)
+**几乎是一家寡头**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/7f437b6e-949a-4b1f-9304-c832b0aefb20.png?asset_id=7fc5808e-c0f0-4823-98ce-a3584705250a&amp;img_etag=%22d5dc6eb1579bce908e4f3282a2e033d5%22&amp;size=2560)](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/7f437b6e-949a-4b1f-9304-c832b0aefb20.png?asset_id=7fc5808e-c0f0-4823-98ce-a3584705250a&amp;img_etag=%22d5dc6eb1579bce908e4f3282a2e033d5%22&amp;size=1024)
+在2010年6月4日Dominion Voting Systems收购红杉并且获得美国选举市场约20%的份额之前，这家加拿大公司已经在体系中取得了重大突破。這一突破在公众领域几乎不为人知。Dominion公司在2010年收购了Premier Election Solutions公司，也就是Diebold/Premier公司。
 
-他们聚集在川普支持者所住的酒店外面。
+通过突然收购红杉和Diebold / Premier，Dominion现在拥有大约美国电子投票的私人选举市场的50％。根据《赫芬顿邮 报》 2017年发布的报告，市场中仅剩两个竞争对手：ES＆S（占40％市场份额）和Hart InterCivic（占10％ 市场份额）。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/2dd5be57-d09c-4f40-9bcb-7dce6bb5d766.png?asset_id=e4bddddf-2d93-454c-ab0a-e04144e5cced&amp;img_etag=%2285fae1f72e00d7e1bd25812a9a4234f6%22&amp;size=2560)](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/2dd5be57-d09c-4f40-9bcb-7dce6bb5d766.png?asset_id=e4bddddf-2d93-454c-ab0a-e04144e5cced&amp;img_etag=%2285fae1f72e00d7e1bd25812a9a4234f6%22&amp;size=1024)
+Dominion在2010年5月19日发布的新闻稿中着重强调了与ES＆S的协议-Premier Election是ES＆S的全资子公司，并庆祝收购该公司的主要资产，包括其知识产权，软件，固件和硬件投票系统。
 
-一名BLM抗议者殴打一名戴着红色MAGA（让美国再次伟大）帽子的妇女，并一直称她为婊子。
+顺便说一下，ES&S，由于潜在的垄断问题，司法部要求它出售Premier选举解决方案，这使它无法支配大多数私人选举市场。Dominion公司利用了这一点。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/852c883d-3685-4249-a779-452fd80dfd40.png?asset_id=2b25efaa-dbcd-43de-9cc1-3fc3a98ddd69&amp;img_etag=%2219749773ffe78ca7815262f7d7e564d2%22&amp;size=2560)](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/852c883d-3685-4249-a779-452fd80dfd40.png?asset_id=2b25efaa-dbcd-43de-9cc1-3fc3a98ddd69&amp;img_etag=%2219749773ffe78ca7815262f7d7e564d2%22&amp;size=1024)
+据Dominion称，该协议得到了美国司法部和九个州及联邦总检察长的批准，同时保留了 “雇佣Premier现任和前任员工的权利，并与在实施和支持这些系统方面有经验的Premier分销商签订协议”。
 
-一群BLM和反法西斯主义者将灯光和激光射入了首都希尔顿酒店的客房。 他们被阻止冲进大厅。
+通过此次收购，Dominion限制了ES&S销售Premier设备的能力。而同一家加拿大公司指出，”Premier的投票系统目前在33个州的1400多个辖区使用，为近2800万美国选民提供服务。” 简而言之，Dominion 是对美国私人选举市场新 “巨头 “的一次围购。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/37f1084a-6e56-45e8-9edf-6cb34200b170.png?asset_id=26295221-6056-4614-bda2-cd0008ec4e47&amp;img_etag=%220cf7bcee227ddb2633b8a42767cd945c%22&amp;size=2560)](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/37f1084a-6e56-45e8-9edf-6cb34200b170.png?asset_id=26295221-6056-4614-bda2-cd0008ec4e47&amp;img_etag=%220cf7bcee227ddb2633b8a42767cd945c%22&amp;size=1024)
+麻省理工学院（MIT）的政治学教授查尔斯**·**斯图尔特（Charles Stewart）向《华尔街日报》表示，电子投票公司的巧妙运作方式是：“这不完全是一种寡头垄断，但就像一种寡头垄断。”
 
-BLM和安提法（Antifa）暴徒与首都希尔顿饭店外的维和警察发生冲突。 据报告，他们已被胡椒喷雾击退。
+但在，对将Dominion定位在选举市场顶端的收购背后，还有一只与Smartmatic有关的黑手。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/cc533689-7ef7-4317-a213-8db972d379fe.png?asset_id=4ed5fd1e-689d-4b23-8bec-ffa2f51a304d&amp;img_etag=%220b91da0e24f075c8fec278f6badcbf33%22&amp;size=3237)](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/cc533689-7ef7-4317-a213-8db972d379fe.png?asset_id=4ed5fd1e-689d-4b23-8bec-ffa2f51a304d&amp;img_etag=%220b91da0e24f075c8fec278f6badcbf33%22&amp;size=1024)
+**《赫芬顿邮报》调查**
 
-[原文链接](https://www.breitbart.com/border/2020/11/14/watch-antifa-accosts-women-children-elderly-and-restaurant-goers-after-maga-march/)
+根据《赫芬顿邮报》（Huffington Post）的一份独家报告，该报告揭示了Smartmatic，红杉和Dominion之间的关系， “红杉的（被Dominion收购的）投票系统的“知识产权”仍然是与委内瑞拉总统有联系的公司的财产。 （Smartmatic和Hugo Chávez），尽管Dominion在2010年发表了颇具误导性的新闻声明。
 
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+该报告提到了许多其他细节，其中包括“几乎所有红杉投票系统的知识产权实际上是Smartmatic公司秘密拥有的”，这与查韦斯主义和委内瑞拉的众多选举舞弊丑闻有关。
 
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+然后，从2010年的另一瞬间开始，一家与Smartmatic相关的加拿大小型公司购买了很大一部分的私人选举市场，并从其在科罗拉多州的办事处进入美国。
 
-[欢迎加入【英喜庄园】Disocrd官方群](https://discord.gg/U9F97ur)
+后来，人们发现Smartmatic与红杉仍有利益关系。更糟糕的是，Smartmatic控制了该公司的知识产权，甚至保留了通过国外竞业禁止协议进行谈判的权利。外商投资委员会曾同意，如果Smartmatic全部剥离红杉，就结束调查。
 
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/gAIVvFeFlL9eR/)
+现在，被Dominion收购的红杉知识产权的真正主人是谁？根据《赫芬顿邮报》的文章，Dominion的发言人克里斯**·**里加尔（Chris Riggall）确认：“由于红杉资本不拥有Smartmatic的知识产权，因此它不属于红杉资本交易的一部分。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/gAIVvFeFlL9eR/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+最重要的是，Dominion在其新闻稿中确保购买了“红杉的库存和所有知识产权”。换句话说，这是误导性或直接虚假的信息，是在没有怀疑的情况下发生的。
 
-0
+Riggall本人因Dominion的新闻稿与收购现实之间的不一致而受到质疑。发言人的回应让人豁然开朗：
+
+“ Smartmatic的知识产权是Smartmatic的知识产权。红杉不拥有它，因此不是交易的一部分。Dominion购买了红杉所有的知识产权。这就是新闻稿所反映的。”
+
+**在德克萨斯州被一次又一次拒绝**
+
+对Dominion投票系统的怀疑和质疑不是最近才有的，是有先例的。
+
+根据《中心广场》发表的一篇文章，”Dominion通票系统因达不到基本的安全标准，被德克萨斯州州务卿和总检察长办公室的数据通信专家三次拒绝。它正是在2020年美国大选中涉嫌舞弊的几个州使用的投票系统。”
+
+根据美国宪法的规定，每个州都有实施最能满足其要求的选举制度的自主权。这就是为什么，例如加拿大公司无法进入德克萨斯州，而宾夕法尼亚州和美国其他州，情况却截然相反。
+
+2019年，Dominion公司在第三次审查中试图进入德克萨斯州的选举系统，但是再次被拒绝。因为州政府官员在发现 多个硬件和软件问题之后， 认定该系统无法使德克萨斯州州务卿办公室信服它能满足德克萨斯州选举法规定的每一项要求。
+
+**尽管有顾虑，机器还是赢了**
+
+10月28日《华尔街日报》的一篇文章这样说： “宾夕法尼亚大学沃顿商学院研究人员即将发表的一份报告表明Election Systems & Software LLC和Dominion投票系统两家公司提供了为超过75%选民服务的技术。”它指的是2020年11月3日的选举。
+
+最终，Dominion在2010年收购红杉时购买了Smartmatic的软件，该软件已在美国的28个州使用，其中包括亚利桑那州，乔治亚州，密歇根州，内华达州，宾夕法尼亚州和威斯康星州等几个摇摆州。尽管这个项目在十年前还是一家加拿大的小公司，但它的崛起存在着种种不规范的现象。
+
+实际上，去年12月，包括民主党参议员伊丽莎白·沃伦（Elizabeth Warren）和艾米**·**克洛布查（Amy Klobuchar）在内的几位国会议员对“私募股权公司如何控制了美国几乎所有的投票技术”提出了担忧。
+
+《华尔街日报》报道：“ [立法者]在12月写道，私营投票公司缺乏透明度会威胁到选举的公正性。”
+
+**舞弊案的骨干**
+
+著名的鲁迪**·**朱利安尼（Rudy Giuliani）领导唐纳德**·**川普总统的法律团队，努力揭露总统选举的舞弊行为。朱利安尼是一位经验丰富且技术精湛的政治家，他树立起一面环绕Dominion违规行为的旗帜。在11月12日《今晚鲁道布斯》（Lou Dobbs Tonight）直播节目中，他指出：“ Dominion是另一家名为Smartmatic（…）的公司所拥有的公司。Smartmatic是几年前成立的公司，在2004、2003（…）由三个委内瑞拉人组成，他们非常，非常接近委内瑞拉的独裁者查韦斯，并且是为了操纵选举而成立的。”
+
+朱利安尼坚称：“他就是拥有Dominion的公司。”
+
+当然，他的言论被美国媒体讽刺了。他们称这种谴责为 “阴谋论”。就连美国广播公司报等国际媒体也在11月14日这样写道：”川普及其盟友正在播出的最新阴谋论”。
+
+Dominion的纠葛似乎是川普团队努力的基石。他们在围绕这家加拿大公司的一切中，找到了让白宫之争持续下去的论据。
+
+在总统的最新推文或转推中，几乎所有人都提到了Dominion。被抱怨的事情是，由于该公司在2010年（通过购买红杉）购买了Smartmatic的软件，据媒体预测，数百万的川普的投票在摇摆不定的州变成了蓝色，最终使乔**·**拜登获得了胜利。
+
+11月12日，川普的推特上写道：”一定要看到肖恩**·**汉尼（Sean Hannity）提揭穿可怕的、不准确的、什么都不安全的Dominion投票系统，该系统被用于从我们这里偷走了数万张选票并给了乔**·**拜登。”。
+
+面对指控，Dominion在其网站上发表声明，否认对结果进行任何操纵。同样，他们声明：“ Dominion没有与佩洛西家族，费因斯坦家族，克林顿全球倡议组织，Smartmatic或与委内瑞拉关联的任何实体的任何财产关系”。
+
+————
+
+在11月4日凌晨，在几个关键州停止倒计时之前，川朗普（Donald Trump）高唱了胜利：“我们赢了。尽管媒体巨头、资本巨头和科技巨头在大选中出现了一些干扰，但我们还是在许多州赢了。”
+
+总统坚持说：“我们准备赢得这次选举。坦白说，我们赢得了这次选举。” 在听他讲话的时候他的支持者变得激动。他们赞扬一位总统向世界宣布他已获胜的话。但是，川普还提出了谴责：“这是舞弊。这是对我们国家的耻辱。”
+
+他强调说：“这是一次巨大的舞弊事件，这是一个非常可悲的时刻。”
+
+“我们要去最高法院！”
+
+今天，他的律师团队继续为法律诉讼做准备。他们有两个名字：Dominion投票系统和Smartmatic。
+
+原文链接：
+
+
+
+> [Dominion, the Foreign Software Company with a Controversial Background Deciding American Elections](https://elamerican.com/dominion-the-foreign-software-company-with-a-controversial-background-deciding-american-elections/?lang=en)
+
+
+
+1+

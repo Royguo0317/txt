@@ -1,19 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【精华版粤语快报】【路德社】11.20：鲍威尔确认缴获服务器；蓝皮书出台确定美国国策
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/580141/)
+## 为何如此慌不择路? 指控郭文贵先生是双面间谍的战略愿景公司, 迫切向法庭寻求排除与其辩护出资人有关证据的动议【全文翻译】
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/574505/)
 
-制作单位：战友之家-粤语组
-制作团队：路德二组（文东、一帘幽梦、麻辣汤）
+## 【[英文原文](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002451/STRATEGIC-VISION-Case-No.-18-cv-2185.pdf)】【[中文翻译](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002506/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1.pdf)】
 
-
-
-摘要：
-鲍威尔接受媒体采访确认缴获服务器证据将如海啸一般。蓝皮书出台确定美国国策。鲍威尔转推，多米尼和方正的关系呼之欲出。
-
-原视频链接:
-
-
-
+## **法庭动议**全文翻译：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002308/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_00.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002314/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_01.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002316/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_02.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002318/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_03.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002321/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_04.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002323/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_05.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002326/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_06.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002329/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_07.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22002330/%E6%88%98%E7%95%A5%E6%84%BF%E6%99%AF%E5%85%AC%E5%8F%B8%E5%90%91%E6%B3%95%E5%BA%AD%E5%AF%BB%E6%B1%82%E6%8E%92%E9%99%A4%E4%B8%8E%E5%85%B6%E8%BE%A9%E6%8A%A4%E5%87%BA%E8%B5%84%E4%BA%BA%E6%9C%89%E5%85%B3%E7%9A%84%E8%AF%81%E6%8D%AE-V1_08.png)
+## **法庭动议英文原文：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022806/Case-No.-18-cv-2185_00.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022856/Case-No.-18-cv-2185_01.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022859/Case-No.-18-cv-2185_02.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022903/Case-No.-18-cv-2185_03.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022906/Case-No.-18-cv-2185_04.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022909/Case-No.-18-cv-2185_05.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022911/Case-No.-18-cv-2185_06.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022913/Case-No.-18-cv-2185_07.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20022916/Case-No.-18-cv-2185_08.png)
 0

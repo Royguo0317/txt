@@ -1,59 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 参议院共和党人表示他们将继续调查亨特•拜登（HUNTER BIDEN）
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/579704/)
+## “我是音雄”日本喜马拉雅联盟主场音乐灭共活动
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/579748/)
 
-*新闻来源：《《零对冲》 Zerohedge》；作者：泰勒•德顿（Tyler Durden）；发布时间：2020年11月 21日*
+【日本喜马拉雅联盟】作者：宇宙之泾  校对：CCP擀面杖子
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21192641/%E5%9B%B31-9.png)
+本次新中国联邦，爆料革命的“我是音雄”音乐灭共节目第一季海选工作已经全部结束。由GTV空中唱响团队和纽约香草山农场联合制作播出的大型音乐灭共节目《我是音雄》第一季第13期 (暨第一季群雄会第一场) 直播活动即将于美东时间11月21日周六晚7点，暨北京时间11月22日早8点，东京时间早9点正式火热开播。本期“群雄会”的主题农场是日本大阪喜马拉雅联盟。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21193433/2-186.png)
+在文贵先生倡导的以文化灭共，艺术灭共，音乐灭共，以歌灭共的指导思想下，音乐人唐平女士和威廉王先生组织策划的“我是音雄”灭共活动得到了各农场联盟导演，义工团队和战友们的热烈欢迎和支持。文贵先生以身作则，不但自己每天练习歌曲和演唱气息，技巧和乐理知识几个小时，还在百忙之中与班农先生，路德先生，郝海东伉俪，各农场领导者分头录制视频激励战友们参加进来。这些前期准备工作为“我是音雄”音乐灭共节目的顺利开展打下了良好的基础。
 
-*翻译/简评：Dreamer文童；校对：感恩；审核：johnwallis；Page：Connor54*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21194046/3-95.png)
 
-[![](https://spark.adobe.com/page/bto5UrvBFKNN1/images/1ec844ab-d2dd-45d1-aad0-76d671cf5ac3.jpg?asset_id=f0e37fb7-3ba9-405c-abe6-9b7ab5e37ae2&amp;img_etag=%22ef1348e6cc4ae599f36d9cc9999375db%22&amp;size=1024)](https://spark.adobe.com/page/bto5UrvBFKNN1/images/1ec844ab-d2dd-45d1-aad0-76d671cf5ac3.jpg?asset_id=f0e37fb7-3ba9-405c-abe6-9b7ab5e37ae2&amp;img_etag=%22ef1348e6cc4ae599f36d9cc9999375db%22&amp;size=1024)
+文贵先生对音乐的理解和歌唱事业的发展也是在如火如荼地进行中，从最初的那首《沧海一声啸》，世界音乐打榜金曲《Take down the CCP》，到随后的《Dear Mamma Im ending the CCP》，为香港人发声揭露邪党中共暴行暴政的《Fight for HongKong》，再到前几天全球推出的《Drinking down the CCP》。每一首歌曲都完整而震撼天地，不但战友们爱听爱唱，连中共国墙内的老百姓也家喻户晓，在美国的老百姓竟然能朗朗上口的传唱，老少皆宜。全球音乐界娱乐圈为之投下赞许的目光，齐刷刷直竖大拇指。听闻共党瑟瑟发抖！
 
-**简评：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21193612/image0-184.jpg)
 
-共和党参议员恰克•格拉斯里（Chuck Grassley）和罗恩•约翰逊（Ron Johnson）表示，在2021年新一届国会宣誓就职后，他们将继续对拜登家族的交易进行调查。自《纽约邮报》（New York Post）首次曝光亨特•拜登（Hunter Biden）电脑硬盘里乌克兰腐败丑闻后，爆料革命战友在美国总统大选前13天内，广泛传播硬盘里拜登家族其他腐败证据，尤其是与中共相关的商业往来。许多美国民众通过爆料革命传播的真相，了解到拜登家族与中共勾结的腐败事实，进而投票支持川普总统。前检察官朱利安尼先生在接受采访时表示，乔•拜登（Joe Biden）应当进监狱，而不是白宫。由此可以猜测，美国司法部门已经掌握拜登家族犯罪证据，最终一定会通过司法程序追究涉案人员的法律责任。
+在日本大阪喜联盟建设初期，我们也应运而生成立了文化灭共组，在第一季“我是音雄”音乐灭共活动中一共参加了四位选手：宇宙之泾，灭共1份子，XiYouJi（13岁的战友女儿），还有美丽大方的Apple X。对此，我们日本大阪喜联盟的领导人草根小哥也是大力的支持和信任。不但精神上勉励大家再接再厉，还自己出资创作了由本联盟会员和义工团队构想和执行的联盟主题曲《Everybody Say Rock’n Roll》，联盟插曲《Thank You For Smile》。两首曲歌展现出来了大阪喜联盟在草根小哥的带领下，对文贵先生和爆料革命的感恩之心，对消灭中国共产党的心路历程，坚决灭共的决心和信心，对战友的互助和关爱，对自由民主平等的渴望，对世界和平和未来美好生活的愿景。
 
-**原文翻译：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21195228/5-48.png)
 
-**参议院共和党人表示他们将继续调查亨特•拜登（Hunter Biden）**
+日本大阪喜联盟不但借此机会成立了在日本的第一支灭共乐队，还在战友无色有香的穿针引线下，顺利完成联盟两首歌曲的录制。并在录制节目的同时，号召联盟的战友参加录音棚的和音工作，让战友们的呐喊融入在灭共的旋律之中，实在是明智之举。在经过初赛，复赛的角逐后目前进入到“群雄会”就是今天即将登场的美女加才女Apple X。战友们不但自己改编灭共歌词，参加彩排，还抽出时间参加联盟直播频道的工作，把音乐带进直播间里推动GTV的发展；让战友和观众们在听取爆料革命信息的同时，享受灭共音乐带来的快乐。
 
-参议员恰克•格拉斯里（Chuck Grassley，共和党，爱荷华州）和罗恩•约翰逊（Ron Johnson，共和党，威斯康辛州），领导了参议院对乔•拜登（Joe Biden）家族交易的调查，他们表示在2021年新一届国会宣誓就职后，将继续他们的调查。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21195353/7-31.png)
 
-[![](https://spark.adobe.com/page/bto5UrvBFKNN1/images/a6eeeec1-a8a5-4dee-b36a-cdb8e5f1294f.jpg?asset_id=9fcfc8a0-66d4-4a69-a810-3f98d8c449c2&amp;img_etag=%22285c325b488bdd0cadc3025dedc6ad80%22&amp;size=1024)](https://spark.adobe.com/page/bto5UrvBFKNN1/images/a6eeeec1-a8a5-4dee-b36a-cdb8e5f1294f.jpg?asset_id=9fcfc8a0-66d4-4a69-a810-3f98d8c449c2&amp;img_etag=%22285c325b488bdd0cadc3025dedc6ad80%22&amp;size=1024)
+“我是音雄，就是英雄。音乐灭共，没你不行！”，你就是掀翻CCP罪恶小池塘的那一滴小水滴，你就是压垮CCP的那一棵稻草，你就是掏空共产党邪魔堡垒的那一只小蚂蚁，你就是射向CCP的那一颗子弹！我们无论是唱歌，写作，直播，829大游行，101大游行，还是未来1129走上街头的灭共挺川大游行，我们生活中的点点滴滴都可以发动对中国共产党的反超限战。不让我们唱歌偏要唱，不让我们跳舞偏要跳，不让我们说真话偏要说，不让我们汇钱偏要汇，不让我们挺川偏要挺，不让我们传播真相偏要传等等。这就是我们爆料革命的能量和勇气，这就是我们新中国联邦公民的权利和形象！
 
-约翰逊（Johnson）告诉《国会山报》（The Hill）对该调查的最新进展，“我不会视而不见”，(《国会山报》之前声称)共和党人对恢复调查“没有多少兴趣”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21195517/8-29.png)
 
-“托尼•波布林斯基（Tony Bobulinski）站出来，电脑被曝光，FBI可能开始调查。我们好不容易拿到甚至写报告的证据，然后突然我们的报告稍稍打破僵局”，参议院国土安全委员会负责人约翰逊（Johnson）称。
+今晚在GTV直播频道“我是音雄”灭共音乐活动中，日本大阪喜联盟作为第一次集体亮相的主场，我们联盟英俊帅气沉稳内敛，豪气十足雷厉风行的领导人草根小哥会全程与节目组评委连线，一起分享灭共心得。不但如此，我们精心打造的两首联盟歌曲也会播出，结合6天后在东京的挺川大游行街头运动，无疑对本联盟的形象，实力，理念和风格的宣传推广具有非常重要的促进作用。也对本联盟与爆料革命内各农场联盟互动互助互爱，团结一致灭共的精神起到积极作用。我们期待今晚联盟主场音乐灭共的精彩演出，我们为联盟的选手Apple X加油助威。让我们享受属于我们的灭共音符的力量，掏心挖肺的灭共歌词，让我们陶醉在属于爆料革命的音乐盛宴之中！
 
-他提到亨特•拜登（Hunter Biden）和詹姆斯•拜登（James Biden），乔•拜登（Joe Biden）的儿子和兄弟，以及他们的海外商业交易，这些交易上个月成为审查和大科技审查的对象。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21195608/9-21.png)
 
-“我非常有信心，可能有更多的金融交易会被披露出来”，约翰逊（Johnson）向媒体补充道。
+经过精彩的海选和激烈的复赛，《我是音雄》迎来了“群雄会”中期擂台。初赛脱颖而出的8位擂主和从四场复赛中胜出的17位晋级选手将在接下来的两期节目中角逐出15位选手进入“自由之巅”环节。
 
-参议院金融委员会负责人格拉斯里（Grassley）和约翰逊（Johnson）都在调查拜登的业务，即关于亨特（Hunter）据称在乌克兰天然气公司布里斯马控股（Burisma Holdings）董事会的获利丰厚的职位，长期以来有腐败的嫌疑。
+参加本期“群雄会”的12位选手分别是：
 
-上个月，《纽约邮报》（New York Post）和其他新闻媒体报道了据称是属于亨特•拜登（Hunter Biden）的一台笔记本电脑，该电脑中有一封来自布里斯马（Burisma）顾问的电子邮件，显示亨特（Hunter）试图为其时任副总统的父亲安排一次会面。拜登竞选团队否认曾有过会面，但后来又解释可能以非官方身份进行了会面。
+Michael Lin （澳喜农场）佳佳同学（纽约香草山农场）
 
-[![](https://spark.adobe.com/page/bto5UrvBFKNN1/images/02242af8-56a3-42c3-a1f3-63e9cb12afea.jpg?asset_id=ac81e7bd-e1cf-4717-af80-7bf11da025ae&amp;img_etag=%224d8bada0bc03f4e8cd39701cb9091a70%22&amp;size=1024)](https://spark.adobe.com/page/bto5UrvBFKNN1/images/02242af8-56a3-42c3-a1f3-63e9cb12afea.jpg?asset_id=ac81e7bd-e1cf-4717-af80-7bf11da025ae&amp;img_etag=%224d8bada0bc03f4e8cd39701cb9091a70%22&amp;size=1024)
+小飞侠 （纽约香草山农场）山上的城（凤凰农场）
 
-2020年9月16日，参议院国土安全和政府事务主席罗恩•约翰逊（Ron Johnson，共和党，威斯康辛州）在华盛顿发言。（图片来源：AP Photo/Manuel Balce Ceneta）
+成人大小子 （澳喜农场）May（凤凰农场）灭共喵星人（凤凰农场）
 
-之后，波布林斯基（Bobulinski）告诉福克斯新闻（Fox News）的塔克•卡尔森（Tucker Carlson），他参与了与拜登家族的商业交易，并与前副总统会面两次，涉及与中共的关联公司华信能源（CEFC）的交易。拜登的竞选团队和乔•拜登（Joe Biden）均否认对任何关于亨特•拜登（Hunter Biden）的商业交易知情。
+AppleX（日本喜联盟）然小哥（日本樱花团）MC文艺（日本樱花团） Nick（凤凰农场）Nicole（加拿大农场）
 
-格拉斯里（Grassley）和约翰逊（Johnson）在9月份发布报告称，当亨特•拜登（Hunter Biden）加入由乌克兰寡头尼古拉•兹洛切夫斯基（Mykola Zlochevsky）创立的布里斯马（Burisma）时，奥巴马政府忽视了“明显的警告信号”。兹洛切夫斯基（Zlochevsky）因腐败问题正在接受乌克兰检察官的调查，并且据称目前他下落不明。
+注：本文仅代表作者观点
 
-据美国广播公司（ABC）报道，亨特•拜登（Hunter Biden）去年在接受采访时称，他在布里斯马（Burisma）的角色“在我看来是判断失误”，并且他声称他没有做错什么。“是不是我认为那是判断失误，因为我现在不相信，当我回顾这件事，我知道是的，根本没做错任何事情”。
-
-[原文链接](https://www.zerohedge.com/political/senate-republicans-say-theyll-continue-hunter-biden-probe?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英喜庄园】Disocrd官方群](https://discord.gg/U9F97ur)
-
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/bto5UrvBFKNN1/)】-点击spark adobe版
-
-[![](https://spark.adobe.com/page/bto5UrvBFKNN1/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/bto5UrvBFKNN1/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
-0
+1+

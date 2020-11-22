@@ -1,13 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/19/2020 Sidney Powell：这是一场对我们选举的完美干涉
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/579906/)
+## 11/14/2020 重锤! 川普总统签署的“紧急法”就是对中共开启的全方面的经济战和网络战!
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/580101/)
 
-Sidney Powell：这是一场对我们选举的完美干涉，Dominion的很多员工已经联系了我们来揭露真相，我相信司法部很快会对此进行调查
+11/14/2020 文贵先生直播：重锤! 川普总统签署的“紧急法”就是对中共开启的全方面的经济战和网络战!
 
 
 
-By: 【秘密翻译组G-Translators】
+#### By: 【秘密翻译组G-Translators】
 
-1+
+0

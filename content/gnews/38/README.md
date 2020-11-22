@@ -1,68 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 什么时候一个“系统漏洞”变成政变了？是时候规范美国不可靠的投票系统垄断商了
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/579491/)
+## 参议院共和党人表示他们将继续调查亨特•拜登（HUNTER BIDEN）
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/579704/)
 
-*新闻来源：《Zerohedge(零对冲)》；作者：Tyler Durden；发布时间： 2020年11月 15日*
+*新闻来源：《《零对冲》 Zerohedge》；作者：泰勒•德顿（Tyler Durden）；发布时间：2020年11月 21日*
 
-*翻译/简评：MikeHua；校对：freedust；审核：freedust；Page：Eric8848*
+*翻译/简评：Dreamer文童；校对：感恩；审核：johnwallis；Page：Connor54*
+
+[![](https://spark.adobe.com/page/bto5UrvBFKNN1/images/1ec844ab-d2dd-45d1-aad0-76d671cf5ac3.jpg?asset_id=f0e37fb7-3ba9-405c-abe6-9b7ab5e37ae2&amp;img_etag=%22ef1348e6cc4ae599f36d9cc9999375db%22&amp;size=1024)](https://spark.adobe.com/page/bto5UrvBFKNN1/images/1ec844ab-d2dd-45d1-aad0-76d671cf5ac3.jpg?asset_id=f0e37fb7-3ba9-405c-abe6-9b7ab5e37ae2&amp;img_etag=%22ef1348e6cc4ae599f36d9cc9999375db%22&amp;size=1024)
 
 **简评：**
 
-郭先生在三个硬盘出来时就说，本次美国选举会以滑稽荒唐的结果落下帷幕，到现在看来因为共产党的参与确实够滑稽荒唐。美利坚的选举被搞得跟香蕉共和国一样，处处是中共的影子。一开始绝对保证选举系统没有问题，被人发现问题之后死不承认，实在压力太大受不了了就是临时工干的，然后在媒体上骗，到处假新闻宣传，就是赖着脸皮厚，共产党为世界把脉开方用的就是这种手段。
-
-这次选举让美国人民体味了一下墙内人民被强奸的感觉，再不觉醒，再不行动美国就真的没有机会了。川普总统在去年曾经说过他是上天选中的人“The Chosen one”，相信他这次一定会下定决心，在香港问题，贸易协议和冠状病毒都踟蹰犹豫错过机会之后，这是上天留给美国和世界人们最后的机会，这次不灭共，让共产当窃取选举结果，他们就控制了人类的未来，人类从此会进入黑暗时代。我们每个战友传播真相，就是在反抗这个盖在人类未来的大黑幕，每个人都是最后一根稻草，没了谁都不行！
+共和党参议员恰克•格拉斯里（Chuck Grassley）和罗恩•约翰逊（Ron Johnson）表示，在2021年新一届国会宣誓就职后，他们将继续对拜登家族的交易进行调查。自《纽约邮报》（New York Post）首次曝光亨特•拜登（Hunter Biden）电脑硬盘里乌克兰腐败丑闻后，爆料革命战友在美国总统大选前13天内，广泛传播硬盘里拜登家族其他腐败证据，尤其是与中共相关的商业往来。许多美国民众通过爆料革命传播的真相，了解到拜登家族与中共勾结的腐败事实，进而投票支持川普总统。前检察官朱利安尼先生在接受采访时表示，乔•拜登（Joe Biden）应当进监狱，而不是白宫。由此可以猜测，美国司法部门已经掌握拜登家族犯罪证据，最终一定会通过司法程序追究涉案人员的法律责任。
 
 **原文翻译：**
 
-**什么时候一个“系统漏洞”变成政变了？是时候规范美国不可靠的投票系统垄断商了**
+**参议院共和党人表示他们将继续调查亨特•拜登（Hunter Biden）**
 
-*这件事想起来很恐怖，但是美国民主的成功基本上取决于三个投票机器制造公司，他们几乎没有任何政府监管。除非这一现象改变，世界上最伟大的民主体制在世界眼里看起来像一个香蕉共和国。*
+参议员恰克•格拉斯里（Chuck Grassley，共和党，爱荷华州）和罗恩•约翰逊（Ron Johnson，共和党，威斯康辛州），领导了参议院对乔•拜登（Joe Biden）家族交易的调查，他们表示在2021年新一届国会宣誓就职后，将继续他们的调查。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/sU6kO98HdKf1H/images/cd146ec5-41c8-47f4-86bf-0727e1b430f2.jpg?asset_id=1c9fcee9-b6f7-41a8-bc76-238d18713ca7&amp;img_etag=%2230c5355b2b7e6754a9bd1991ced2f18c%22&amp;size=1024)](https://spark.adobe.com/page/sU6kO98HdKf1H/images/cd146ec5-41c8-47f4-86bf-0727e1b430f2.jpg?asset_id=1c9fcee9-b6f7-41a8-bc76-238d18713ca7&amp;img_etag=%2230c5355b2b7e6754a9bd1991ced2f18c%22&amp;size=1024)
+[![](https://spark.adobe.com/page/bto5UrvBFKNN1/images/a6eeeec1-a8a5-4dee-b36a-cdb8e5f1294f.jpg?asset_id=9fcfc8a0-66d4-4a69-a810-3f98d8c449c2&amp;img_etag=%22285c325b488bdd0cadc3025dedc6ad80%22&amp;size=1024)](https://spark.adobe.com/page/bto5UrvBFKNN1/images/a6eeeec1-a8a5-4dee-b36a-cdb8e5f1294f.jpg?asset_id=9fcfc8a0-66d4-4a69-a810-3f98d8c449c2&amp;img_etag=%22285c325b488bdd0cadc3025dedc6ad80%22&amp;size=1024)
 
-在2020年1月，三个制造了全美80%以上投票机器的公司—投票系统软件公司（Election Systems & Software）,多米尼投票系统公司（Dominion Voting Systems）和哈特公司（Hart InterCivic），这三个公司的CEO被国会议员质询关于投票箱安全的问题。也许没人会吃惊这场90分钟的讨论焦点几乎集中在国外干涉的可能性，特别是中共国和俄罗斯。在这个众所周知的狭窄范围内—其实说的就只是俄罗斯俄罗斯俄罗斯！–人们很容易就排除本土尝试篡改选票的行为。
+约翰逊（Johnson）告诉《国会山报》（The Hill）对该调查的最新进展，“我不会视而不见”，(《国会山报》之前声称)共和党人对恢复调查“没有多少兴趣”。
 
-目前，多米尼，28个州投票机器的供应商，正因有报道称将成百上千在密歇根州的投川普选票改成了投拜登的而被严格审查。官员很快回应称这个“漏洞”是处于“人工错误”，和该机器的其他错误不同。
+“托尼•波布林斯基（Tony Bobulinski）站出来，电脑被曝光，FBI可能开始调查。我们好不容易拿到甚至写报告的证据，然后突然我们的报告稍稍打破僵局”，参议院国土安全委员会负责人约翰逊（Johnson）称。
 
-根据密歇根州政府网站，“这个错误的非官方结果报道…是一个安特里姆郡（Antrim County）工作人员的个人过失，他因疏忽没有更新手机选票数据的投票机器系统然后报告了非官方数据。”
+他提到亨特•拜登（Hunter Biden）和詹姆斯•拜登（James Biden），乔•拜登（Joe Biden）的儿子和兄弟，以及他们的海外商业交易，这些交易上个月成为审查和大科技审查的对象。
 
-**虽然我不是计算机专家，但是我想象不到软件更新会防止投一个候选人的票变成投另一个候选人，除非程序原来写的时候就是这么设计的。但再次声明，我不是专家。**
+“我非常有信心，可能有更多的金融交易会被披露出来”，约翰逊（Johnson）向媒体补充道。
 
-另一个严重依赖多米尼的州是佐治亚州，该州去年收到了30，000个新投票机—“美国历史上投票设备最大出货，”根据政府科技局时事新闻（Government Technology newsletter）。在宣布这份价值一亿零七百万美元的订单之后，紧接着该时事新闻预测了接下来会出现的问题，指出“新的投票系统会很快被选民在法庭上挑战，选民会说该系统很容易被黑掉和篡改，即使有纸张选票。”
+参议院金融委员会负责人格拉斯里（Grassley）和约翰逊（Johnson）都在调查拜登的业务，即关于亨特（Hunter）据称在乌克兰天然气公司布里斯马控股（Burisma Holdings）董事会的获利丰厚的职位，长期以来有腐败的嫌疑。
 
-**这些担忧很快在11月3日大选日成为现实，当一个技术漏洞造成了对两个佐治亚州郡县的恐慌（这个故事的一个边注是佐治亚官员把责任推卸给了一个在亚特兰大州农场竞技场的管道爆裂。然而目前为止，官员还没有任何证据证实事故发生了。）**
+上个月，《纽约邮报》（New York Post）和其他新闻媒体报道了据称是属于亨特•拜登（Hunter Biden）的一台笔记本电脑，该电脑中有一封来自布里斯马（Burisma）顾问的电子邮件，显示亨特（Hunter）试图为其时任副总统的父亲安排一次会面。拜登竞选团队否认曾有过会面，但后来又解释可能以非官方身份进行了会面。
 
-目前“漏洞”的来源仍在调查中，一个州计票监督员，玛西亚•莱德利（Marcia Ridley）在11月3日告诉POLITICO新闻，多米尼负责准备选民花名册，并且“在昨晚上传了一些东西，不正常，然后导致了漏洞的出现。”这个被上报的事件阻止了员工为选民智能卡编程。莱德利继续说道，“这是他们从来没做过的事情。我从没见过他们在选举日前一天上传任何东西。”
+[![](https://spark.adobe.com/page/bto5UrvBFKNN1/images/02242af8-56a3-42c3-a1f3-63e9cb12afea.jpg?asset_id=ac81e7bd-e1cf-4717-af80-7bf11da025ae&amp;img_etag=%224d8bada0bc03f4e8cd39701cb9091a70%22&amp;size=1024)](https://spark.adobe.com/page/bto5UrvBFKNN1/images/02242af8-56a3-42c3-a1f3-63e9cb12afea.jpg?asset_id=ac81e7bd-e1cf-4717-af80-7bf11da025ae&amp;img_etag=%224d8bada0bc03f4e8cd39701cb9091a70%22&amp;size=1024)
 
-然而，多米尼官员，即使承认选民花名册有问题，仍然否热有在10月31日之后的最后一分钟上传任何选民花名册资料（一份多米尼的新闻发布反驳了这和其他指控，包括佩罗西家族，费恩斯坦（Feinstein）家族，和克林顿基金会（Clinton Global Initiative）和多米尼的任何关系。）
+2020年9月16日，参议院国土安全和政府事务主席罗恩•约翰逊（Ron Johnson，共和党，威斯康辛州）在华盛顿发言。（图片来源：AP Photo/Manuel Balce Ceneta）
 
-**事情从这里变得有意思**
+之后，波布林斯基（Bobulinski）告诉福克斯新闻（Fox News）的塔克•卡尔森（Tucker Carlson），他参与了与拜登家族的商业交易，并与前副总统会面两次，涉及与中共的关联公司华信能源（CEFC）的交易。拜登的竞选团队和乔•拜登（Joe Biden）均否认对任何关于亨特•拜登（Hunter Biden）的商业交易知情。
 
-莱德利继续说多米尼向她保证“公司可以知道任何系统升级，”表明系统升级不可能在没有被检测的情况下完成。换句话说，多米尼系统的互联网连接有后门，众所周知，只要在互联网上出现的都可以被黑客攻击。
+格拉斯里（Grassley）和约翰逊（Johnson）在9月份发布报告称，当亨特•拜登（Hunter Biden）加入由乌克兰寡头尼古拉•兹洛切夫斯基（Mykola Zlochevsky）创立的布里斯马（Burisma）时，奥巴马政府忽视了“明显的警告信号”。兹洛切夫斯基（Zlochevsky）因腐败问题正在接受乌克兰检察官的调查，并且据称目前他下落不明。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/sU6kO98HdKf1H/images/73dde2f8-0cad-4461-9ca0-201e6f7f90f9.jpg?asset_id=33e28611-c6c9-4a9b-9821-bd5cf5ba276f&amp;img_etag=%220f97996340485ce2356cc83e2a91b32b%22&amp;size=3057)](https://spark.adobe.com/page/sU6kO98HdKf1H/images/73dde2f8-0cad-4461-9ca0-201e6f7f90f9.jpg?asset_id=33e28611-c6c9-4a9b-9821-bd5cf5ba276f&amp;img_etag=%220f97996340485ce2356cc83e2a91b32b%22&amp;size=1024)推文：[https://twitter.com/CodeMonkeyZ/status/1326881694742319104?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1326881694742319104%7Ctwgr%5E&ref\_url=https%3A%2F%2Fwww.zerohedge.com%2Fpolitical%2Fwhen-does-glitch-become-coup-its-time-regulate-americas-fly-night-voting-machine-monopoly](https://twitter.com/CodeMonkeyZ/status/1326881694742319104?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1326881694742319104%7Ctwgr%5E&amp;ref_url=https%3A%2F%2Fwww.zerohedge.com%2Fpolitical%2Fwhen-does-glitch-become-coup-its-time-regulate-americas-fly-night-voting-machine-monopoly)
+据美国广播公司（ABC）报道，亨特•拜登（Hunter Biden）去年在接受采访时称，他在布里斯马（Burisma）的角色“在我看来是判断失误”，并且他声称他没有做错什么。“是不是我认为那是判断失误，因为我现在不相信，当我回顾这件事，我知道是的，根本没做错任何事情”。
 
-Ron发推：滨州州务院（Pennsylvania Department of State）问询一个从多米尼系统来的函数功能允许本地“操作员”获取并检查“完全空的选票”，如果需要可以重新填写，并且重新扫描。
-
-**事实上，正式出于这个顾虑，德州没有购买可疑的多米尼系统。**
-
-在一封来自选票系统检察员布莱顿•何雷（Brandon Hurley）写给德州选举主管凯西•因格兰姆（Keith Ingram）的信中，很明确写道“有些在民主5.5-A系统的硬件可以从以太网连接互联网。”
-
-在该信的后半段，何雷再次强调***“毫无疑问，多个5.5A系统的组件可以链接到外部通讯网络，并且这只能当末端用户采取适当防备才可以阻止这样的连接。”***
-
-周三，佐治亚州务卿布拉德•拉芬斯佩格 (Brad Raffensperger)宣布该州会在办法认证结果之前进行重新人工统计总统选举选票。根据纽约时报，拜登领先川普14，000票。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/sU6kO98HdKf1H/images/afa3c168-72c4-442e-b482-d8ca73f48cb0.jpg?asset_id=1ec7f1fc-4154-4d0b-874f-5caa05db538d&amp;img_etag=%2221d922872284ded1982193981108a22e%22&amp;size=2560)](https://spark.adobe.com/page/sU6kO98HdKf1H/images/afa3c168-72c4-442e-b482-d8ca73f48cb0.jpg?asset_id=1ec7f1fc-4154-4d0b-874f-5caa05db538d&amp;img_etag=%2221d922872284ded1982193981108a22e%22&amp;size=1024)推文：[https://twitter.com/KeithPreston/status/1326897846403084291?s=20](https://twitter.com/KeithPreston/status/1326897846403084291?s=20)
-
-**无论2020选举结果如何，同时这还是在和疫情中大量邮寄选票争议的情况下，这次选举一定会被在美国历史上记录为最混乱，最受争议和最有欺诈倾向的选举。**
-
-这场让美国看起来滑稽可笑的惨败之悲剧在于，这一切都可以被避免。有无数人曾经尝试警告投票系统在详细计票的系统弱点，特别是在这次川普-拜登竞选所展现的，这会决定美国未来长时间的政治，文化和经济走向。
-
-根据我们对2020总统大选的一切我们所知道的信息，这是我们的观点。期待数来自各个政治党派的百万美国选民对本次对美国未来有重大影响的选举没有任何怀疑是不可能的。重新计票会是一项重大任务，但是未来的美国的和平与宁静依赖着这些，特别是已经到临界点的党派纷争。**一旦重新计票完成，接下来的国会执行小组就会确保美国未来的选举安全，将选举投票公司列入政府规范之内。这种对美国选举的破坏到头了。**
-
-[原文链接](https://www.zerohedge.com/political/when-does-glitch-become-coup-its-time-regulate-americas-fly-night-voting-machine-monopoly)
+[原文链接](https://www.zerohedge.com/political/senate-republicans-say-theyll-continue-hunter-biden-probe?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
 
 [点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
@@ -70,8 +52,8 @@ Ron发推：滨州州务院（Pennsylvania Department of State）问询一个从
 
 [欢迎加入【英喜庄园】Disocrd官方群](https://discord.gg/U9F97ur)
 
-编辑：【喜马拉雅战鹰团】-点击spark adobe版
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/bto5UrvBFKNN1/)】-点击spark adobe版
 
-[!\[\]()!\[\](https://spark.adobe.com/page/sU6kO98HdKf1H/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/sU6kO98HdKf1H/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+[![](https://spark.adobe.com/page/bto5UrvBFKNN1/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/bto5UrvBFKNN1/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0
