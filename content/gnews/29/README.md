@@ -1,77 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草山诗词汇】自由之巅的召唤
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/582933/)
+## 铁证：“多猫腻”（Dominion）投票系统在宾夕法尼亚州选区之间转移投票比率
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/582979/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20165916/logo-3.jpg)
+翻译：康州农场- 一花一世界
+
+校对：康州农场-黎明的光芒
+
+审核：康州农场-Truemanman
 
 
 
-作者：youyou
+[**Rumble**](https://rumble.com/)**（一视频网站）**-在此视频中，您将看到11月4日由宾夕法尼亚州提供给纽约时报（NYT）的（投票）数据。
 
-题记：我们的战友散落在各地，因着郭文贵先生发起的爆料革命，我们跨海相连，凝聚力量，为新中国的明天共同奋战
+在此数据中，可看到一天内特定的投票比率在随机抽查的选区内不断转移（请参见下面的图像链接）：
 
-仰望蓝天
+[https://ibb.co/h1x3Xds](https://ibb.co/h1x3Xds)
 
-群星璀璨
+该视频中总共展示了9组（数据），但实际上在11月4日这一天有数百个选区被查获出现比率转换，并且在为期整一星期的数据集中，特定投票比率转换连续发生了好多天。
 
-那一颗颗一闪闪
+原始数据集：
 
-汇聚成湾
+[https://gofile.io/d/qZcQl6](https://gofile.io/d/qZcQl6)
 
-把黑暗驱赶
+” 多猫腻“（Dominion）投票系统根据预定的投票数和预定的百分比中分离出了一个“翻转组”。
 
-你、我、他
+然后将”翻转组”分成多个“比率组”，并在一天内将它们分置到各个选区。
 
-我亲爱的战友
+一旦特定的“比率组”获得所需的选票，就会释放给“多猫腻“（Dominion）以将其放入整个城市范围内的投票池中。
 
-我们就是
+为了掩盖其操作痕迹，“多猫腻“（Dominion）一天内会将相同的“比率组”重新分配给不同的（随机）选区，这样同一选区就不会一直得到完全相同的比率（或同一组选区）
 
-散落在浩瀚宇宙的星星点点
+在选定选区的特定时间段内，它给川普一个确切的选票数，给拜登一个最低的选票数，并将剩余的一小部分分配给第三方或拜登（通过随机分配）。
 
-我们从未谋面
+这就解释了为什么乔·乔格（Jo Jorg美国自由党总统竞选人）在每个选区都得到了这么多的选票（我是自由党人，由于这次具有纪念意义的总统选举的重要性，我知道今年很少有自由党人投票支持乔）。
 
-却心心相念
+原文链接：[https://rumble.com/vbas2t-smoking-gun-dominion-transferring-vote-ratios-between-precincts-in-pa.-by-e.html](https://rumble.com/vbas2t-smoking-gun-dominion-transferring-vote-ratios-between-precincts-in-pa.-by-e.html)
 
-我们人生各异
-
-却有共同心愿
-
-我们百态因缘
-
-却被一个声音召唤
-
-那个声音在夜空中
-
-嘹亮高亢
-
-响彻天边
-
-真心灭共跟我走！
-
-新中国联邦人永世不为奴！
-
-跟着那声音
-
-我们勇往直前
-
-为着那敲击心尖的声音
-
-为着那七芒星的信念
-
-踏荆棘
-
-过险滩
-
-无谓前路艰难
-
-只为到达那永恒的自由之巅
-
-审核：浪迹天涯
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20165916/logo-3.jpg)
 0

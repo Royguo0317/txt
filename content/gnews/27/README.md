@@ -1,41 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 铁证：“多猫腻”（Dominion）投票系统在宾夕法尼亚州选区之间转移投票比率
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/582979/)
+## 朱利安尼声明：西德尼·鲍威尔不属于川普法律团队
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/582986/)
 
-翻译：康州农场- 一花一世界
+翻译： 康州农场 – Antsee-GTV
 
-校对：康州农场-黎明的光芒
+校对： 康州农场 – Mike Li、Lemon\_GTV
 
-审核：康州农场-Truemanman
+审核： 康州农场-Truemanman
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23000633/%E5%9B%BE%E7%89%876-13.png)
+总统大选后法律工作负责人鲁迪·朱利安尼（Rudy Giuliani）发表声明说，前联邦检察官西德尼·鲍威尔（Sidney Powell）不属于唐纳德·川普总统的法律团队。
 
+朱利安尼说，西德尼·鲍威尔（Sidney Powell）自主从事法律工作，她不是川普法律团队的成员，她也不是总统个人的律师。
 
+川普一周前亲自宣布鲍威尔加入他的法律团队。
 
-[**Rumble**](https://rumble.com/)**（一视频网站）**-在此视频中，您将看到11月4日由宾夕法尼亚州提供给纽约时报（NYT）的（投票）数据。
+鲍威尔于11月19日一同出席了川普法律团队的新闻发布会，其中还包括川普竞选资深法律顾问詹娜·埃利斯（Jenna Ellis）。
 
-在此数据中，可看到一天内特定的投票比率在随机抽查的选区内不断转移（请参见下面的图像链接）：
+鲍威尔一直在积极推有关对2020年大选期间使用的电子投票系统的指控，特别是由Dominion Voting Systems操作的机器和软件。她声称该系统通过篡改物理设备或远程黑客手段，将投给川普的选票转给了前副总统乔·拜登。
 
-[https://ibb.co/h1x3Xds](https://ibb.co/h1x3Xds)
+Dominion Voting Systems否认了这些指控。该公司发言人于11月22日表示，该公司的软件没有将川普的选票转给拜登。
 
-该视频中总共展示了9组（数据），但实际上在11月4日这一天有数百个选区被查获出现比率转换，并且在为期整一星期的数据集中，特定投票比率转换连续发生了好多天。
+鲍威尔和川普竞选团队没有立即回应置评请求。
 
-原始数据集：
+自2019年以来，鲍威尔一直代表前国家安全顾问迈克尔·弗林（Michael Flynn）处理由特别检察官罗伯特·穆勒（Robert Mueller）发起调查的旗舰性案件。她的团队采取的法律突击使得对弗林的指控被撤回，但仍待联邦法官裁定。
 
-[https://gofile.io/d/qZcQl6](https://gofile.io/d/qZcQl6)
+鲍威尔以部分见证人的宣誓证词，来支持她Dominion Voting Systems投票系统的指控，该人声称见证了该软件曾被用于帮助委内瑞拉社会主义独裁者雨果·查韦斯窃取了选举。宣誓证词随后作为川普竞选团队的另一位律师林伍德（Lin Wood）提起诉讼的一部分，提交了联邦法院。
 
-” 多猫腻“（Dominion）投票系统根据预定的投票数和预定的百分比中分离出了一个“翻转组”。
+值得注意的是，鲍威尔在川普竞选新闻发布会上提出的其他主张之一，也源于伍德诉讼案中的一份文件。文件称密歇根州的许多地区的选民人数比登记选民的100％或更多。保守派博客Powerline Blog指出，所列出的乡镇来自明尼苏达州，而不是密歇根州。
 
-然后将”翻转组”分成多个“比率组”，并在一天内将它们分置到各个选区。
+鲍威尔在11月21日表示，总统的律师将很快提起堪比“圣经”里大事件级别的指控，指控卷入与这家著名的投票软件制造商有权钱交易的选举官员们。
 
-一旦特定的“比率组”获得所需的选票，就会释放给“多猫腻“（Dominion）以将其放入整个城市范围内的投票池中。
+“我们有巨量证据；如此之多以至于都很难将它们整合在一起。”鲍威尔告诉Newsmax。
 
-为了掩盖其操作痕迹，“多猫腻“（Dominion）一天内会将相同的“比率组”重新分配给不同的（随机）选区，这样同一选区就不会一直得到完全相同的比率（或同一组选区）
+“希望本周我们能够准备好提起诉讼，这将是堪比“圣经”的”。
 
-在选定选区的特定时间段内，它给川普一个确切的选票数，给拜登一个最低的选票数，并将剩余的一小部分分配给第三方或拜登（通过随机分配）。
+“将这些欺诈指控与证据整合在一起是一个庞大的项目。”
 
-这就解释了为什么乔·乔格（Jo Jorg美国自由党总统竞选人）在每个选区都得到了这么多的选票（我是自由党人，由于这次具有纪念意义的总统选举的重要性，我知道今年很少有自由党人投票支持乔）。
+*原作者：伊凡·彭楚科夫（Ivan Pentchoukov）  2020年11月22日*
 
-原文链接：[https://rumble.com/vbas2t-smoking-gun-dominion-transferring-vote-ratios-between-precincts-in-pa.-by-e.html](https://rumble.com/vbas2t-smoking-gun-dominion-transferring-vote-ratios-between-precincts-in-pa.-by-e.html)
+原文链接：[https://www.theepochtimes.com/sidney-powell-no-longer-part-of-trumps-legal-team-giuliani-statement\_3589256.html](https://www.theepochtimes.com/sidney-powell-no-longer-part-of-trumps-legal-team-giuliani-statement_3589256.html)
 
-0
+1+
