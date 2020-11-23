@@ -1,35 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 延迟退休之险恶用心，以解决天量养老金缺口
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/584559/)
+## 爆革星评：羟氯喹与疫苗之争
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/584812/)
 
-作者：DongDong   审稿：青椒文喜 文璟    文宣：DongDong
+多伦多枫叶农场（原加喜农场）文星（一号）
 
-据新华网11月20日报道[1]，中国保险行业协会于当日发布了《中国养老金第三支柱研究报告》。该报告显示，中国预计会有8-10万亿元人民币的养老金缺口，且会进一步扩大。官方已吹风延迟退休计划，引发民间反弹。而中共高官退休年龄和特殊待遇，也再次引起关注。
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23133032/UniteAmericaFirst.jpg)图片来自 Unite America First
+当下中共病毒又来了一波，全球感染人数急升。11月20日，美国参议院以羟氯喹的使用为主题，举行了一场科学政治化的听证会，其中4个证人有3个支持使用羟氯喹。期间，医生提供了一些研究实验数据，共和党议员和证人认为，医生们协同拒绝让病人使用羟氯喹的原因是与制药公司利益勾连。
 
-养老金被日趋拮据的**地方政府挪用**早已是公开的秘密，2014年就爆出有800亿人民币养老金被挪作它用，资金去向不明，被挪用的养老金通常很难追回。例如轰动一时的“广州养老金挪用案”，10亿元的社保基金被挪用在烂尾地产项目和官员口袋之中。但2008年时任广东社保局长表态称：“广州10.18亿元“在外营运”的社保基金，追收10年半数或难完全收回。”5亿多养老金就这样没了。这不是个例，曾有专家表示，社保一旦被挪用，常常难以追回，而且在小额挪用中，追缴花费的资金可能比追回的还要多。
+羟氯喹预防和治疗中共病毒由路德社和闫丽梦博士最早和多次推荐，实践证明确实有效。许许多多的人士提前服用羟氯避免了感染病毒，一些感染中共病毒的国家领导人如巴西总统博索纳罗及其长子，也通过服用羟氯喹恢复了健康。
 
-如今当养老金再次不够用时，政府给出的方法是延迟退休。新加坡李光耀曾于2019年提出延迟退休计划，引起一片哗然，**声称不能浪费人的创造力**。为反驳他，有文章引述诺贝尔奖得主江崎玲於奈博士的一篇研究论文，谈到许多诺贝尔奖得主创造力最旺盛的阶段约在32岁左右，他还指出，**当一个人年纪越大，他的创造力也跟着年岁的增长而递减**。
+但是因为医疗和制药行业背后巨大的利益，世界卫生组织和一些医疗机构一直拒不承认和推荐羟氯喹，代表性的机构有美国权威医疗机构FDA及其下属机构的负责人福奇等人。因为羟氯喹价格极其低廉，早已过了专利保护期，如果仅仅使用羟氯喹治疗，这些医疗机构和控制人员无利可图。
 
-**延迟退休会极大影响人的寿命**。许多大公司（如：波音公司、洛克西德马丁、美国电话电报公司、朗讯科技公司等）的退休金基金都出现剩余，这是因为许多达到退休年龄的员工继续工作到65岁才退休，却在退休两年后就死亡。
+于是，各种疫苗被快速“研制”出来譬如辉瑞疫苗，并被官方机构极力推荐。定价高的疫苗使用量巨大，会产生不可估量的巨额利润，一旦疫苗全部投入使用，这些无良机构和管理人员就会赚得盆满钵满。但是，闫丽梦博士等顶级专业人士多次提醒，中共等参与快速产生的疫苗，违反研制程序，注射疫苗不但不能医治病毒，还可能危及生命。
 
-如下表所示，科学研究得出的一个重要结论是：**一个员工****55****岁之后每工作一年，平均寿命就减少两年****[2]****。**
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23110924/%E5%9C%96%E7%89%87-1-47.png)
-如果是延迟到65岁退休，那么平均年龄只能大约到67岁，这就是中共政府解决养老金缺口的阴谋！让你工作一辈子，然后少领养老金，以弥补亏空是其险恶用心！
+中共因为其疫苗被证明危险性已在墙内局部停止使用，巴西等国历经创痛也拒绝从中共国进口疫苗。事实上，中共的邪恶目的就是企图使用疫苗控制全世界，一方面达到政治目的，一方面赚取巨额利益。据11月23日广州日报报道，2020年中共国通过所谓的全面防疫已经赚取了67万亿的收益，约占其当年GDP的三分之二。
 
-参考
+无论真假，这数字都是不可思议。这68万亿的来源，无非就是全球兜售假口罩、低劣呼吸机、假疫苗所得，以及借疫情哄抬物价、收取隔离费、检测费等等收入。表面堂而皇之，实际不择手段，这么大数字的疫情GDP，都是14亿百姓的民脂民膏。
 
-[1] [报告预计：未来5-10年 中国会有8-10万亿养老金缺口](http://www.xinhuanet.com/fortune/2020-11/20/c_1126765951.htm)
+所以，防治中共病毒，最靠谱的就是正确使用羟氯喹。慎用疫苗，无论产自哪国。
 
-[2] [退休年龄与寿命长短的关系（中文译文）](https://www.jianshu.com/p/87cfd79c5979)
+参考链接：
 
-更多GNews
 
-[1] [G金融系统必定会成为世界资金的避风港](https://gnews.org/zh-hans/454521/)
 
-[2] [为什么人民币汇率只可能突然脆断](https://gnews.org/zh-hans/568234/)
+> Most shocking?[@RonJohnsonWI](https://twitter.com/RonJohnsonWI?ref_src=twsrc%5Etfw), other witnesses essentially argued there is coordinated effort by America's doctors to deny patients HCQ
+> 
+> Why would we do this?
+> 
+> Because we’re in bed with Pharma
+> 
+> A version of the anti-Doctor rhetoric from [@realdonaldtrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw), his "expert" [@scottwatlas](https://twitter.com/ScottWAtlas?ref_src=twsrc%5Etfw)
+> — Ashish K. Jha, MD, MPH (@ashishkjha) [November 20, 2020](https://twitter.com/ashishkjha/status/1329646436187779073?ref_src=twsrc%5Etfw)
 
-[3] [绿卡或被取消中国户籍? 中国第七次人口普查释放重要信息！](https://gnews.org/zh-hans/581496/) [4] [俄联邦通讯社文章称赞川普法务团队勇气，报道川普连任的到了70%选民支持](https://gnews.org/zh-hans/579501/)
 
-0
+
+
+
+> Today was a very, very odd day
+> 
+> I testified before [@senatehomeland](https://twitter.com/SenateHomeland?ref_src=twsrc%5Etfw)
+> 
+> They held a hearing on hydroxychloroquine.
+> 
+> Yup, HCQ
+> 
+> In the middle of the worst surge of pandemic
+> 
+> HCQ
+> 
+> It was clear how our information architecture shapes questions of science and medicine of COVID
+>  
+> A thread
+> — Ashish K. Jha, MD, MPH (@ashishkjha) [November 20, 2020](https://twitter.com/ashishkjha/status/1329646432958156801?ref_src=twsrc%5Etfw)
+
+
+
+3+
