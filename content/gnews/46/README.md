@@ -1,40 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】香港滥捕新常态 中共疯狂式政治检控 21日滥捕20人
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/583762/)
+## 11/23/2020 财经快讯: 川普重拳猛击中共; 国内债股持续暴雷
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/584082/)
 
-整撰：文燕
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23084736/Picture44-2.png)图片来源：[https://epochtimes.today](https://epochtimes.today/trump-warns-who-of-permanent-funding-cut-unless-action-taken-to-show-independence-from-china/)
+1.路透社11月23日消息，根据路透社看到的一份名单草案，川普政府即将宣布将89家中国航空航天及其他领域的公司列入“与军事活动有联系”的企业清单，限制其购买一系列美国商品和技术。
+[https://www.cnbc.com/2020/11/23/us-drafts-list-of-89-chinese-companies-with-alleged-military-ties-reuters.html](https://www.cnbc.com/2020/11/23/us-drafts-list-of-89-chinese-companies-with-alleged-military-ties-reuters.html)
 
-审核：MY
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23071105/%E5%82%91%E6%96%AF%EF%BC%8C%E5%9C%96%E7%89%87%E4%BE%86%E6%BA%90%EF%BC%9A%E8%98%8B%E6%9E%9C%E7%9B%B4%E6%92%AD%E7%89%87%E6%AE%B5%E6%88%AA%E5%9C%96.png)杰斯，图片来源：苹果直播片段截图
-网台D100 Radio 主持，原名尹耀升的「杰斯」 周六早上被捕，其专页指，警方指控杰斯发起的「千个爸妈，台湾助学」计划涉嫌洗黑钱、资助分裂国家；经常出现在示威现场、上月才获中国当局放行回来香港的「王婆婆」王凤瑶，日前突然被捕，警方迅速落案控以一项普通袭击罪，原定昨早在观塘裁判法院提堂，但出庭前王婆婆因不适送院缺席，被还柙待下周再讯。
+2.英国和加拿大周六达成一项过渡贸易协议，以保护英国脱欧后两国之间价值270亿美元（203.2亿英镑）的商品和服务的流通，并表示明年就一项定制协议进行谈判。
+[https://www.reuters.com/article/uk-britain-eu-canada-idUKKBN2810J4?taid=5fb96abc6dc962000115a169&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/article/uk-britain-eu-canada-idUKKBN2810J4?taid=5fb96abc6dc962000115a169&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-有港媒指，在杰斯与王婆婆以外，过去 21 日警方已拘捕至少 20 人，当中包括议员、记者、黄店东主、一般市民等，令人震怒。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23071225/image001-44.png)图片：立场新闻
-点评：
+3.白宫贸易顾问皮特·纳瓦罗近日在接受“本周美国”采访时表示，川普总统可能在本届任期内对中(共)国采取行动。纳瓦罗说，川普总统仍在采取步骤与中国对抗。他在上周签署了一项行政命令，禁止美国对与中国军方有联系的公司进行投资。
+[https://www.newsmax.com/t/newsmax/article/998214/2](https://www.newsmax.com/t/newsmax/article/998214/2)
 
-前香港众志主席，学联前秘书长罗冠聪21日在Facebook撰文指，在滥捕新常态，这些滥捕都指向以下几个目的：
+4.河南永煤债务危机持续发酵。23日召开债券持有人会议；将拟偿还50%本金，剩余部分延期270天兑付。债券人必须在短短4小时内阅读整个方案，提出修改意见，打成书面文字并盖好公章。
+[https://twitter.com/caijingxiang/status/1330818276474044417](https://twitter.com/caijingxiang/status/1330818276474044417)
 
-1. 索取信息。透过没收当事人的计算机、电话等，可以得知当事人的活动，以及各种人际关系网。透过这些关系网，可以顺藤摸瓜得知更多信息，例如受助人、联络窗口、协助的民间团体等等。这些信息不单可以扩展黑警的情报网以及拘捕名单，更可以「上缴中央」，衍生更多可怕后果，例如统战、威吓。
-2. 冻结资金。粮草是战争重要资源，早前星火、杨老师都被指「洗黑钱」而被针对，目的是断裂「抗争资金链」，令本身已受打压的抗争者失去后勤支持，亦减弱了黎民百姓捐款的意欲。
-3. 恫吓公众。两宗案件案情牵强，尤其是杰斯案，黑警根本是「屁股指挥脑袋」，在《大公》《文汇》的中共传播机器煽风点火下，马上行动调查。党媒已成黑警的指挥棒，在政治高于一切的斗争时代，黑警一定会紧跟党路线，无论党媒的指控有多荒谬，一定会夹份做场大戏，令公众感到恐慌。
+5.广东佛山中基投资有限公司20日晚间被法院宣告破产。中基投资中基投资实际控制人陈礼豪曾多次登上胡润百富榜。陈礼豪家族曾于2018年以71亿元的身家排名佛山富豪榜第133位。然而，其近年来却沦为了失信被执行人。今年5月，陈礼豪还因涉嫌违反证券法律法规被证监会立案调查。
+[http://finance.eastmoney.com/a/202011221709868184.html](http://finance.eastmoney.com/a/202011221709868184.html)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23071230/photo_2020-11-23_18-53-27.jpg)图片：TG-777文宣传播稿件大集合
-有句老话：「秀才遇到兵，有理说不清」。的确，拿着枪杆子的土匪不懂法律，也不爱讲道理。香港全民都有可能成为中共的威吓和滥捕的对象。罗冠聪就此提出一些应对方法：
-
-• 定期清理对话纪录，以及减少在电话、计算机等电子仪器储存相关数据。不要以为自己「没有犯法」便对信息安全掉以轻心，简单如一条转账予手足的过户纪录、标记朋友在所属团体的联络人清单、手机上的定位历史，都可以令黑警得到更多关于你的人际网、关系网的信息。定期清理标记、纪录，是对自己、对他人最好的保障。如有任何涉及敏感事宜的讨论，可以在能自动删务讯息的软件中交流。
-
-• 避免在个人账户储存大批资金，低调行事，尽量让更多在安全地方的朋友处理手足事宜。
-
-• 定期留意党媒喉舌风向，察看批斗的风潮，防患于未然。
-
-由此可见，港共政权配合中共让香港已经走入了一个惯性模式：以指控触犯【国安法】为籍口，随意安个「莫须有」的罪名，随时随地，甚至三更半夜滥捕。
-
-以上观点仅代表笔者本人
-
-资料来源：立场新闻
-
-[https://www.thestandnews.com/politics/%E5%9C%A8%E6%BF%AB%E6%8D%95%E6%96%B0%E5%B8%B8%E6%85%8B%E4%B8%8B-%E6%88%91%E5%80%91%E5%8F%AF%E4%BB%A5%E5%81%9A%E7%9A%84%E4%BA%8B/](https://www.thestandnews.com/politics/%E5%9C%A8%E6%BF%AB%E6%8D%95%E6%96%B0%E5%B8%B8%E6%85%8B%E4%B8%8B-%E6%88%91%E5%80%91%E5%8F%AF%E4%BB%A5%E5%81%9A%E7%9A%84%E4%BA%8B/)
+By：【秘翻组·金融法律组】
 
 0

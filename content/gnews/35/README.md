@@ -1,25 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/23/2020 财经快讯: 川普重拳猛击中共; 国内债股持续暴雷
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/584082/)
+## 北京控制的新闻机构今年向美国报纸支付了数百万美元的宣传费用
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/584275/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23084736/Picture44-2.png)图片来源：[https://epochtimes.today](https://epochtimes.today/trump-warns-who-of-permanent-funding-cut-unless-action-taken-to-show-independence-from-china/)
-1.路透社11月23日消息，根据路透社看到的一份名单草案，川普政府即将宣布将89家中国航空航天及其他领域的公司列入“与军事活动有联系”的企业清单，限制其购买一系列美国商品和技术。
-[https://www.cnbc.com/2020/11/23/us-drafts-list-of-89-chinese-companies-with-alleged-military-ties-reuters.html](https://www.cnbc.com/2020/11/23/us-drafts-list-of-89-chinese-companies-with-alleged-military-ties-reuters.html)
+**翻译：康州农场-郑彬
+校对： 康州农场-DIDI
+审核：康州农场-文韵**
 
-2.英国和加拿大周六达成一项过渡贸易协议，以保护英国脱欧后两国之间价值270亿美元（203.2亿英镑）的商品和服务的流通，并表示明年就一项定制协议进行谈判。
-[https://www.reuters.com/article/uk-britain-eu-canada-idUKKBN2810J4?taid=5fb96abc6dc962000115a169&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/article/uk-britain-eu-canada-idUKKBN2810J4?taid=5fb96abc6dc962000115a169&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+调查记者 查克•罗斯 2020年11月22日 下午8:29
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23093826/%E5%9B%BE%E7%89%871-33.jpg)
+即使在对北京于西方的造谣活动受到高度审查的情况下，一家由中共宣传部门控制的英文报纸在过去6个月里向美国媒体公司支付了近200万美元的印刷和广告费用。
 
-3.白宫贸易顾问皮特·纳瓦罗近日在接受“本周美国”采访时表示，川普总统可能在本届任期内对中(共)国采取行动。纳瓦罗说，川普总统仍在采取步骤与中国对抗。他在上周签署了一项行政命令，禁止美国对与中国军方有联系的公司进行投资。
-[https://www.newsmax.com/t/newsmax/article/998214/2](https://www.newsmax.com/t/newsmax/article/998214/2)
+根据宣传工厂本周根据《外国代理人登记法》(FARA)向司法部归档的一份文件披露，《中国日报》在2020年5月至10月期间向《华尔街日报》和《洛杉矶时报》分别支付了8.5万多美元和34万美元的广告宣传费用。
 
-4.河南永煤债务危机持续发酵。23日召开债券持有人会议；将拟偿还50%本金，剩余部分延期270天兑付。债券人必须在短短4小时内阅读整个方案，提出修改意见，打成书面文字并盖好公章。
-[https://twitter.com/caijingxiang/status/1330818276474044417](https://twitter.com/caijingxiang/status/1330818276474044417)
+据文件显示，《中国日报》还向《外交政策》杂志支付了10万美元，向英国的《金融时报》支付了223,710美元，向加拿大的《环球邮报》支付了132,046美元的广告宣传费用。
 
-5.广东佛山中基投资有限公司20日晚间被法院宣告破产。中基投资中基投资实际控制人陈礼豪曾多次登上胡润百富榜。陈礼豪家族曾于2018年以71亿元的身家排名佛山富豪榜第133位。然而，其近年来却沦为了失信被执行人。今年5月，陈礼豪还因涉嫌违反证券法律法规被证监会立案调查。
-[http://finance.eastmoney.com/a/202011221709868184.html](http://finance.eastmoney.com/a/202011221709868184.html)
+这家总部设在北京的媒体向几家报社支付了总计1,154,666美元的印刷费用，其中向《洛杉矶时报》支付了11万美元，向《休斯顿纪事报》支付了9.2万美元，向《波士顿环球报》支付了7.6万美元。(相关链接：中国观察：《洛杉矶时报》刊登有偿中国宣传)
 
-By：【秘翻组·金融法律组】
+根据FARA的文件显示，《中国日报》总共在过去的6个月中用于印刷、发行、广告和管理费用的支出超过440万美元。
+
+《中国日报》，这家由中共国务院新闻办公室控制的宣传机构，多年以来一直向美国和其他西方国家的报纸和杂志支付费用，刊登广告，并且设计成合法新闻文章的样子。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23093919/%E5%9B%BE%E7%89%872-24.jpg)
+根据FARA在6月份有关《中国日报》的披露，从2016年底到2019年10月，《中国日报》向《华盛顿邮报》支付了460多万美元。
+
+据披露，从2016年到2020年4月，华盛顿邮报收到600万美元的广告费。
+
+从2020年至今，华盛顿邮报已从《中国日报》获得461,489美元的广告收入。
+
+《中国日报》以 “中国观察 “为题的插页，通常提供亲北京方面关于中国经济、中国文化或中国的地缘政治的观点。
+
+《华盛顿邮报》，运营着一个其赞助的《中国日报》内容的网站，收录了《中国日报》首发的多篇文章，吹捧北京对去年源自武汉的冠状病毒大流行的处理。
+
+“苹果CEO：中国疫情得到控制 “是该杂志网站上一篇文章的标题。
+
+有几篇文章对美国官员提出批评，因他们指责中国政府在疫情上误导西方，让病毒在全球蔓延。
+
+“川普对华言论遭斥责 “和 “美国对病毒名称的转移谴责 “是该刊网站两篇文章的标题。
+
+自7月以来，《华盛顿邮报》没有在其赞助版面上发表任何文章。《中国日报》的FARA文件中没有列出任何截至2020年6月30日以来对该报的任何付款。
+
+一些美国报纸已经切断了与《中国日报》的联系，以回应对付费印刷安排的批评。《华盛顿自由灯塔报》8月报道说，《纽约时报》悄悄删除了其网站上作为与《中国日报》交易的一部分而刊登的广告。
+
+今年2月，国务院将《中国日报》和其他四家北京控制的新闻机构指定为 “外国使团”，由于它们与中国政府关系密切，因此享受与外国使馆相同的待遇。
+
+《华尔街日报》没有回应关于其与《中国日报》关系的评论请求。《洛杉矶时报》也没有对评论请求作出回应。
+
+原文网址：[https://dailycaller.com/2020/11/22/china-daily-propaganda-wall-street-journal/](https://dailycaller.com/2020/11/22/china-daily-propaganda-wall-street-journal/)
 
 0
