@@ -1,50 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】费城总统大选机器作弊实锤证据
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/583531/)
+## 纳瓦罗: 现在到了必须推翻中共的时候
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/583554/)
 
-作者：香草山写作组  叮咚猫 校对/发稿：飞虹
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23060443/Picture41-1.png)图片来源：[https://www.rfa.org/](https://www.rfa.org/cantonese/news/ear/ear-peter-08052020080314.html)
+据美国媒体NewsMax报道，白宫贸易顾问彼得·纳瓦罗（Peter Navarro）近日表示，川普政府可能正在考虑在任期届满之前对中共采取强有力的行动。
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19024426/12345-3.jpg)
+纳瓦罗说：“现在形式已经很明朗了，拜登会去和中共勾兑，而川普总统正在为保卫美国人民而战。”
 
+纳瓦罗进一步强调，川普总统与中共的对抗从未停止，就在上周，还签署了一项行政命令，禁止美国对与中共军方有联系的公司进行投资。而且，更多措施将陆续出台。
 
+另外，纳瓦罗再次猛烈抨击中共释放病毒，造成病毒全球大流行，夺去25万美国人的生命，并强调必须对中共追责，让全世界了解病毒的真相。
 
-据推特网友提供的图表信息，费城大选机器作弊证据清晰确凿。
+简评：这篇简短的报道是继本月18日纳瓦罗接受《本周美国》（America This Week）, 埃里克·博林（Eric Bolling）的采访之后，再一次火力全开。
 
-该图表是网友截取的一张费城选票统计时间表。从表中可以看出：
+我们看到，在美国大选舞弊问题沸沸扬扬之际，纳瓦罗连续强调对CCP病毒真相的追责，并直言不讳告诉美国人民，中共就是杀死25万美国人民的凶手，这意味着美国政府从来没有放弃追查病毒来源真相，同时，可能很快实施更强有力的行动。咱们拭目以待。
 
-依时间顺序，拜登和川普总统的计入票数和时间按4个一组的固定规律循环。规律如下表：
+[原文链接](https://www.newsmax.com/politics/navarro-china-trump/2020/11/22/id/998214/)
 
-
-| 时间 | 拜登计票 | 川普计票 |
-| --- | --- | --- |
-| 15:11:18 | 229 | 5 |
-| 15:11:18 | 326 | 7 |
-| 15:11:18 | 47 | 1 |
-| 15:11:18 | 280 | 6 |
-| 15:47:05 | 229 | 5 |
-| 15:47:05 | 326 | 7 |
-| 15:47:05 | 47 | 1 |
-| 15:47:05 | 280 | 6 |
-| …… | …… | …… |
-| 每四组时间相同 | 四个数字循环 | 四个数字循环 |
-
-
-统计时间与票数严格一致，如瑞士表一样精准，令人叹为观止！
-
-网友提供图表：
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23054934/%E5%9B%BE%E7%89%877-12.png)
-
-
-资料： [https://twitter.com/david\_david1968/status/1330636024020602886](https://twitter.com/david_david1968/status/1330636024020602886)
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+翻译：Hanstyle
+校对：晴天小蚂蚁
 
 0

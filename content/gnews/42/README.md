@@ -1,41 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】空山行
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/583600/)
+## 文贵说｜系列图片连载（五十四）
+` GM98` [轉載自GNews](https://gnews.org/zh-hans/583652/)
 
-作者：香草山农场写作组   木白
+## 372.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23065651/444_1.jpg)
+任何事情，任何幸福，它都不会是那么简单地获得；任何成功都不能简单地拥有。
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
+——郭文贵先生2019年11月14日
 
+## 373.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23065721/412_1-1.jpg)
+我的人生很简单，昨天我无法把握， 明天我不知道， 今天就是一切， 所以过好今天就过好一生， 这就是我的哲学。
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23063455/MOS0452-%E3%80%90%E9%A6%99%E8%8D%89%E8%AF%97%E8%AF%8D%E6%B1%87%E3%80%91%E7%A9%BA%E5%B1%B1%E8%A1%8C-1.jpg)
-风吹落树叶上的雨滴和红叶
+——郭文贵先生2018年5月2日
 
-森林消失于念念回响的行走
+## 374.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23065749/475.jpg)
+当时希特勒用的是先进的武器，坦克、飞机、陀螺仪、无线电。今天共产党用的是叫做CCP冠状病毒。它付出的代价和牺牲的人们，就是中国人民的未来和中国人的孩子。
 
-亿万草木，我是你们的一员
+——郭文贵先生2020年4月7日
 
-光的轮廓，是我看到的树影
+## 375.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23065817/444_12.jpg)
+美国和以美国为首的世界，绝对不会在看到自己的国民几分钟死一个，这事就拉倒了，绝不可能！
 
+——郭文贵先生2020年4月4日
 
+## 376.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23065843/412_12.jpg)
+共产党就是当年的纳粹。它那么嚣张的情况下，它那么疯狂的情况下，它已经吸毒吸到了自己迷糊了。
 
-浸透云朵的雨浸湿千年的树
+——郭文贵先生2020年4月1日
 
-流水处，有温润的墨迹驻足
+## 377.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23065944/1028.jpg)
+我从来不相信哪个国家靠镇压靠武器能把自己的政权持之以恒。
 
-风再起，我把你一遍遍铭记
+——郭文贵先生2017年10月27日
 
-去吻干，这片土地流下的泪
+## 378.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23070008/0057.png)
+爱你们，我们不爱自己的同胞，你就不配拥有任何事情，相信我们会尽全力的保护我们的好同胞，好同胞里边不分共产党和非共产党。
 
-（2020年11月21日）
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+——郭文贵先生2020年7月17日
 
 0
