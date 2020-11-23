@@ -1,85 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 魔爪饮料LOGO神似亨特拜登背后纹身，如此巧合？
-` 东京樱花团-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/581223/)
+## 中共控制新闻机构向多家美国媒体支付高达数百万美元宣传费用
+` GM77` [轉載自GNews](https://gnews.org/zh-hans/583788/)
 
-HTS-02C-202011-011
+整撰：文錦；审核：WLQF
 
-作者：忘機（喜马拉雅日本樱花团）
+即使是在面临北京对西方造谣活动受到高度审查的情况下，近日曝光，一家由中共宣传部门控制的英文报纸在过去6个月里向美国媒体公司支付了近200万美元的印刷和广告费用。
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22084128/unnamed.png)
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23071628/%E5%9B%BE%E7%89%87-1-19.png)
 
-上图中的饮料，相信大家都喝过，没喝过也至少见过这标志。
+就该英文报纸本周根据《外国代理人登记法》（FARA）向司法部提交的一份文件披露，《中国日报》（China Daily）在2020年5月至10月期间向《华尔街日报》支付了8.5万多美元；向《洛杉矶时报》支付了34万美元的广告活动费用。
 
-这款饮料品牌名叫：魔爪能量饮料（英语：Monster Energy）
+根据文件，《中国日报》还向《外交政策》杂志支付了10万美元，向英国《金融时报》支付了223710美元，向加拿大《环球邮报》媒体支付了132046美元的广告宣传费用。
 
-创始于2002年在美国销售的机能性饮料，是美国怪物饮料公司（Monster Beverage Corporation）旗下品牌，它是美国最大的能量饮料公司之一。
+**这家总部位于北京的媒体向几家报社支付了总计1,154,666美元的印刷费用**，其中包括向《洛杉矶时报》支付110,000美元，向《休斯顿纪事报》支付92,000美元，向《波士顿环球报》支付76,000美元。
 
-**下述视频将带我们刨析、了解魔爪设计和命名背后，更多深度涵义**
+**据FARA文件显示，过去6个月，《中国日报》在印刷、发行、广告和管理费用上的总体支出超过440万美元。**
 
-据我们所了解，这家公司并不是基督教公司
+根据《中国日报》6月提交的FARA披露，从2016年底到2019年10月，《中国日报》向《华盛顿邮报》支付了460多万美元。而2020年至今，《华尔街日报》已从《中国日报》获得461,489美元的广告收入。
 
-但你在monster energy 名字中，字母0上看到了什么？
+[《中国日报》](https://baike.baidu.com/item/%E4%B8%AD%E5%9B%BD%E6%97%A5%E6%8A%A5)由中共国务院新闻办公室控制，多年来一直向美国和其他西方国家的报纸和杂志支付费用，让它们刊登被设计成合法新闻文章的广告。
 
-上面有个十字架
+这家创刊于1981年6月1日的媒体，陆续在全球发行了香港版、美国版、欧洲版、亚洲版和非洲版。**其最具有“杀伤力”的应该是1992年开始用中国国家形象专刊（月刊），以插页的形式，随《华盛顿邮报》《纽约时报》《国际先驱论坛报》《每日电讯报》《金融时报》等欧、美、亚众多主流媒体发行，通过这些主流媒体的影响力传递给英语世界的人群。**
 
-那基督和能量饮料有什么关系呢？
+《中国日报》的插页名为 “中国观察”，通常提供有关中国经济、中国文化或中国地缘政治观点的亲北京论调。以下为洛杉矶时报的“中国观察”插页：
 
-更不用说这款饮料取怪物这个名字了
 
-原本我想也许这是一家基督教公司
 
-但罐子底部有BFC这三个字母，你知道这是什么意思吗？
+> Financially-strapped [@latimes](https://twitter.com/latimes?ref_src=twsrc%5Etfw) includes [@ChinaDaily](https://twitter.com/ChinaDaily?ref_src=twsrc%5Etfw) China Watch advertising supplement (8 page standalone insert) in today's edition. [pic.twitter.com/Y0NzUJfYVG](https://t.co/Y0NzUJfYVG)
+> — Clayton Dube 杜克雷 (@claydube) [June 28, 2020](https://twitter.com/claydube/status/1277261825881432065?ref_src=twsrc%5Etfw)
 
-F其实是Fucking    Bing Fucking Can
 
-实际上他们也把这个写在了罐子的侧面
 
-所以我知道那是F-word
+《华尔街日报》维护着一个由《中国日报》[赞助网站](https://partners.wsj.com/chinadaily/chinawatch/)，其中包括许多由《中国日报》首次发表的文章，吹捧北京对去年源自武汉的冠状病毒大流行的处理。
 
-你知道MILFS是啥意思嘛
+蘋果[CEO： 中國正在控制疫情](https://partners.wsj.com/chinadaily/chinawatch/us-spin-on-virus-name-condemned/?cx_spnsr=djcc_chinawatch&amp;cx_navSource=djcc_chinawatch-unfiltered&amp;cx_artPos=51) 「是該報網站上一篇文章的標題。
 
-这个出现在箱子上面
+川普[對中國的評論受到斥責](https://partners.wsj.com/chinadaily/chinawatch/trumps-china-remark-rebuked/?cx_spnsr=djcc_chinawatch&amp;cx_navSource=djcc_chinawatch-unfiltered&amp;cx_artPos=20) 「和 」[美國對病毒名稱的旋轉受到譴責](https://partners.wsj.com/chinadaily/chinawatch/us-spin-on-virus-name-condemned/?cx_spnsr=djcc_chinawatch&amp;cx_navSource=djcc_chinawatch-unfiltered&amp;cx_artPos=51) 「是該雜誌網站上兩篇文章的標題。
 
-MILFS喜欢这瓶饮料，你也一样
+几篇文章都对美国官员提出批评，理由是他们指责中国政府在疫情问题上误导西方，让病毒在全球蔓延。
 
-原来这根本不是一家基督教公司
+自7月以来，《中国日报》开始不在其赞助页面上发表任何文章。《中国日报》的FARA文件没有列出自截至2020年6月30日的一个月以来对该报的任何付款。
 
-那为什么罐子上有十字架？
+一些美国报纸已经切断了与《中国日报》的联系，以回应对付费印刷安排的批评。[《华盛顿自由灯塔报》8月报道](https://freebeacon.com/media/nyt-quietly-scrubs-chinese-propaganda/)说，《纽约时报》悄悄地在其网站上清除了它与《中国日报》达成的协议中所刊登的广告。《华尔街日报》和《洛杉矶时报》也均没有回应有关其与《中国日报》关系的评论请求。
 
-这是他们想要传递的信息——反基督
+今年2月，美国国务院将《中国日报》和其他四家北京控制的新闻机构定为 “外国使团”，由于它们与中国政府关系密切，因此享受与外国使馆相同的待遇。另四家中共媒体为中国环球电视网、中国国际广播电台和《人民日报》海外版。同年6月国务院再次添加了4家中共媒体进入”外国使团”名单，分别是中国中央电视台、中国新闻社、人民日报及环球时报。
 
-然后圣经在启示录里谈到的怪物——和你再看看它的广告，这是它的声明
+2020年的美国总统大选彻底暴露了美国主流媒体和社交媒体已沦为美共和中共的宣传机器，从媒体危机裹挟成为一场美国的宪政危机，超越了人与人之间的偏见和党派之间的竞争，是真相与谎言之争，更是正义与邪恶之争。
 
-你到处都可以看看到这M字——帽子、T恤、保险杠贴纸、
+一场全球媒体的大洗牌正当时，伴随着谎言媒体的大退场，唯真不破的媒体新时代已经开启，
 
-是不是有在进行什么秘密事项？
+参考链接：
 
-如果上帝可以用人和产品
-
-那么撒旦也可以
-
-字母O上的十字架，当我们喝这款饮料时，十字架倒，就喝到饮料了，就干杯了。这是撒旦魔鬼在开玩笑。
-
-你看撒旦有多聪明，他可以就这样溜进基督徒的家里，进入基督徒的人生，这就伤到了上帝的心，上帝说过，我们的子民因无知而亡。
-
-**看完视频使笔者联想到亨特拜登背后纹身的图样**
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22084404/IMG_8475.jpg)
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22085556/IMG_8535-1.jpg)
-
-经过爆料革命爆料，让亨特拜登吸毒、乱淫、贩卖幼童、坏事做尽的真相，赤裸裸揭露在世人面前。
-
-而亨特拜登的纹身非常奇特，神似魔爪功能饮料的外包装图标。
-
-且视频中的女士说撒旦很狡猾，附着于我们生活中的每样物品中、各个角落里。
-
-这些神似的巧合或许暗藏的秘密，共同表现为邪恶特质。魔爪LOGO设计显然和上帝、正义相违背，而亨特拜登所做的恶事也吻合了他身上的纹身——撒旦的标记。
-
-这不是巧合，因为他就是恶魔！
-
-笔者喝过两次魔爪饮料，至此，不再喝此饮料。另还有个原因，不要钱，免费送给大家，供参考：魔爪饮料咖啡因含量达每罐240毫克，是可口可乐的7倍。
+[https://dailycaller.com/2020/11/22/china-daily-propaganda-wall-street-journal/](https://dailycaller.com/2020/11/22/china-daily-propaganda-wall-street-journal/)
 
 0

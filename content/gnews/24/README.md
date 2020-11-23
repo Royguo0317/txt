@@ -1,41 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】空山行
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/583600/)
+## 11/23/2020 财经快讯: 川普重拳猛击中共; 国内债股持续暴雷
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/584082/)
 
-作者：香草山农场写作组   木白
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23084736/Picture44-2.png)图片来源：[https://epochtimes.today](https://epochtimes.today/trump-warns-who-of-permanent-funding-cut-unless-action-taken-to-show-independence-from-china/)
+1.路透社11月23日消息，根据路透社看到的一份名单草案，川普政府即将宣布将89家中国航空航天及其他领域的公司列入“与军事活动有联系”的企业清单，限制其购买一系列美国商品和技术。
+[https://www.cnbc.com/2020/11/23/us-drafts-list-of-89-chinese-companies-with-alleged-military-ties-reuters.html](https://www.cnbc.com/2020/11/23/us-drafts-list-of-89-chinese-companies-with-alleged-military-ties-reuters.html)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
+2.英国和加拿大周六达成一项过渡贸易协议，以保护英国脱欧后两国之间价值270亿美元（203.2亿英镑）的商品和服务的流通，并表示明年就一项定制协议进行谈判。
+[https://www.reuters.com/article/uk-britain-eu-canada-idUKKBN2810J4?taid=5fb96abc6dc962000115a169&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/article/uk-britain-eu-canada-idUKKBN2810J4?taid=5fb96abc6dc962000115a169&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
+3.白宫贸易顾问皮特·纳瓦罗近日在接受“本周美国”采访时表示，川普总统可能在本届任期内对中(共)国采取行动。纳瓦罗说，川普总统仍在采取步骤与中国对抗。他在上周签署了一项行政命令，禁止美国对与中国军方有联系的公司进行投资。
+[https://www.newsmax.com/t/newsmax/article/998214/2](https://www.newsmax.com/t/newsmax/article/998214/2)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23063455/MOS0452-%E3%80%90%E9%A6%99%E8%8D%89%E8%AF%97%E8%AF%8D%E6%B1%87%E3%80%91%E7%A9%BA%E5%B1%B1%E8%A1%8C-1.jpg)
-风吹落树叶上的雨滴和红叶
+4.河南永煤债务危机持续发酵。23日召开债券持有人会议；将拟偿还50%本金，剩余部分延期270天兑付。债券人必须在短短4小时内阅读整个方案，提出修改意见，打成书面文字并盖好公章。
+[https://twitter.com/caijingxiang/status/1330818276474044417](https://twitter.com/caijingxiang/status/1330818276474044417)
 
-森林消失于念念回响的行走
+5.广东佛山中基投资有限公司20日晚间被法院宣告破产。中基投资中基投资实际控制人陈礼豪曾多次登上胡润百富榜。陈礼豪家族曾于2018年以71亿元的身家排名佛山富豪榜第133位。然而，其近年来却沦为了失信被执行人。今年5月，陈礼豪还因涉嫌违反证券法律法规被证监会立案调查。
+[http://finance.eastmoney.com/a/202011221709868184.html](http://finance.eastmoney.com/a/202011221709868184.html)
 
-亿万草木，我是你们的一员
-
-光的轮廓，是我看到的树影
-
-
-
-浸透云朵的雨浸湿千年的树
-
-流水处，有温润的墨迹驻足
-
-风再起，我把你一遍遍铭记
-
-去吻干，这片土地流下的泪
-
-（2020年11月21日）
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+By：【秘翻组·金融法律组】
 
 0
