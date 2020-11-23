@@ -1,22 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 为何超前消费成为中共年轻人的普遍生活方式
-` JP007` [轉載自GNews](https://gnews.org/zh-hans/581249/)
+## 【中英文对照PDF版】闫博士报告三：CNN 用谎言和虚假资讯对新冠病毒(SARS-CoV-2)的起源搅浑水
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/581750/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22084431/%E4%B8%BA%E4%BD%95%E8%B6%85%E5%89%8D%E6%B6%88%E8%B4%B9%E6%88%90%E4%B8%BA%E4%B8%AD%E5%85%B1%E5%B9%B4%E8%BD%BB%E4%BA%BA%E7%9A%84%E6%99%AE%E9%81%8D%E7%94%9F%E6%B4%BB%E6%96%B9%E5%BC%8F.png)
-**作者：京都富士会 秋末的落叶**
+新闻摘要：CNN近期攻击了闫丽梦博士两篇报告，不仅有损闫博士声誉，更让病毒起源于实验室的理论变得不可信。闫博士报告的作者们认为CNN对报告的攻击毫无根据，通篇都是谎言。为此，他们列举了CNN宣传中的谎言和谬误，并一一作出有力的回应，要让所有民众知道CNN在撒谎。
 
-在时代高速发展的今天，消费水准似乎也开始成倍的加快。越来越多的购物模式和付费方式带给了了消费者诸多便捷，以致年轻一代人越来越喜欢网上购物。这时，借贷消费的消费模式，就在这快节奏的快餐式购物时代应运而生了。
+[点击下载英文版报告](https://zenodo.org/record/4283480#.X7qO3i9h2QI)
 
-兰州市自杀的一对职业学校情侣，就是借贷消费者中的一对。北京时间2020年10月21日，年轻的二人点燃煤炭，在一间荒凉的酒店包房里，打开了通往另一个世界的大门。
+[点击下载中英文对照报告（PDF）](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22120527/Dr_Yan_20201121_Report3_EN_CN_Traditional_PDF-v1.3.pdf)
+[![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22110741/Dr_Yan_20201121_Report3_EN_CN_Traditional_PDF-p1.jpg)](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22120527/Dr_Yan_20201121_Report3_EN_CN_Traditional_PDF-v1.3.pdf)图：中英文对照报告首页
+参考链接：
 
-据了解，女生早已在3月就将2000元现金，以帮助男友妈妈治病为由转了出来，实际上是用于偿还网贷，截止到悲剧发生时，已经累积7000元，而算上砍头息实际应还钱数已经过万，究竟为何借款自杀，报道如此之多，却自然有人铤而走险。
+闫博士报告一（英文链接）：[https://zenodo.org/record/4028830#.X7qYXi9h2QK](https://zenodo.org/record/4028830#.X7qYXi9h2QK)
 
-其实，在这背后最重要的原因不是没钱，而是怕别人知道自己没钱，在大陆共匪执政之下，唯物主义与拜金主义已成为社会主流价值观，人们不再为良善点赞，而在为权钱拥有者膜拜，这就导致钱成为了尊严的象征、身份的唯一体现。
+闫博士报告一（英文PDF）：[https://zenodo.org/record/4028830/files/The\_Yan\_Report.pdf?download=1](https://zenodo.org/record/4028830/files/The_Yan_Report.pdf?download=1)
 
-缺钱人低头准备向周围人借钱时，最大的阻碍是需要放下尊严，忍受歧视目光。同时，又必须阿谀奉承，甚至还要被传出流言蜚语，这就使得借贷成为了能维护尊严，并且弥补经济空缺的不二之选，所以即使他们知道这可能是刀尖跳舞，但他们也要纵身一试。
+闫博士报告一（中文PDF）：[https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/09/18030621/Yan\_Report-V5.2\_Simpified.pdf](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/09/18030621/Yan_Report-V5.2_Simpified.pdf)
 
-当每一起借贷自杀案件进入大众视野时，我们在评论区总能看见，这个女的真作，这个人活该，谁让他借的，欠债还钱天经地义了等字眼。可是回头一想，到底是什么样的社会环境使得他们借贷，而且中共明知道借贷会害死人，为何依就允许它存在？为何人情冷漠下，这一起起的人间悲剧无人记得，又是什么让人人都沦为财奴，答案不言而喻。
+闫博士报告二（英文链接）：[https://zenodo.org/record/4073131#.X7qYvS9h2QJ](https://zenodo.org/record/4073131#.X7qYvS9h2QJ)
 
-0
+闫博士报告二（英文PDF）：[https://zenodo.org/record/4073131/files/The%202nd%20Yan%20Report.pdf?download=1](https://zenodo.org/record/4073131/files/The%202nd%20Yan%20Report.pdf?download=1)
+
+闫博士报告二（中文PDF）：[https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/09071629/The\_2nd\_Yan\_Report-V1.0-Simpilfied.pdf](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/09071629/The_2nd_Yan_Report-V1.0-Simpilfied.pdf)
+
+翻译：重生、gavinguo(文钦)
+
+校对：XO小粉红
+
+终较：Isaiah4031
+
+图片：VOG设计组
+
+协调调度：重生
+
+编辑团队：GM31、Isaiah4031
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22111053/VOG-Rose-Garden-Team.png)
+相关新闻：
+
+
+
+> [闫丽梦博士第二篇报告：经由揭露大规模有组织的学术欺诈而证实SARS-CoV-2是一种超限生物武器 （中英文对照版）](https://gnews.org/zh-hans/412951/)
+
+
+
+
+
+> [SARS-CoV-2基因组的不寻常特征表明其经过复杂的实验室改造而非自然进化，以及对其可能的合成过程的描述 （中英文对照版）](https://gnews.org/zh-hans/357190/)
+
+
+
+2+
