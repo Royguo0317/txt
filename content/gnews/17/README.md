@@ -1,45 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】一名推友发现Dominion的数据中心或在中国泉州
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/583218/)
+## 川普法律团队发声明，鲍威尔律师不代表川普
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/583496/)
 
-作者：香草山写作组 叮咚猫 校对/发稿：飞虹
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23053258/1-186.png)
+据《华盛顿观察家报》11月22日报道，川普总统的律师团队在周日发布的一个简短声明中表示，“悉妮·鲍威尔（Sidney Powell）代表个人处理法律事务，不是川普法律团队的成员，也不是代表川普总统个人的律师”。该声明由川普总统的代表律师鲁迪-朱利安尼（Rudy Giuliani）和川普竞选高级法律顾问兼律师珍娜-埃利斯（Jenna Ellis）发布。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23053420/2-196.png)
+声明发布后，鲍威尔的推特账户立即被冻结了12小时，川普的前国家安全顾问迈克尔-弗林（Michael Flynn）将军发推文表示，鲍威尔“正在努力证明选举出现了大规模的蓄意欺诈，有人抢走了川普总统和其他共和党候选人的选票”。鲍威尔去年担任辩护律师，成功地推翻了弗林将军被栽赃的冤案，维护了法律的公平正义。
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20165916/logo-3.jpg)
+鲍威尔对川普法律团队的声明表示理解和认同，并表示她将继续代表投票支持川普的选民为捍卫美国民主制度而战。鲍威尔称，初步调查发现在美国大选中多个州广泛使用的“多猫腻”（Dominion）投票系统是在已故委内瑞拉独裁者乌戈-查韦斯（Hugo Rafael Chávez Frías）的 “指示下 “创建的，目的是为了窃取选举，而且机器可以将一定比例的选票从川普换成拜登。Dominion公司发言人迈克尔-斯蒂尔（Michael Steel）否定了关于投票系统以某种方式被操纵的指控。
 
+两周多前，拜登被多家媒体宣布为大选获胜者，而川普总统至今仍未认输。川普竞选团队一直在多个州就选票舞弊指控进行法律斗争。
 
+评：鲍威尔律师脱离川普总统竞选团队，让左媒一度异常兴奋。这次鲍威尔律师账户被推特公司无耻冻结12小时，显示了黑暗势力的无耻和急迫。虽然川普竞选团队称鲍威尔律师非川普总统私人律师，也非竞选团队律师，但是鲍威尔律师从未放弃，她是美国大众的律师，她为美国人民工作，尤其是为这次大选投票的美国人民讨回公道。当然，鲍威尔律师的服务对象也包括了川普总统。
 
-11月22日，一个名叫321C的推友发了一则推文，在推特上引起热议。该推文说：
+作为从未参与过选举的旁观者，能看到例如鲍威尔律师这样真的爱国者，也能看到像拜登、奥巴马等左派的无耻，民主制度的伟大让这一切充满了悬念，合理的制度约束将让美国人民能够选出真正为美国服务的总统。
 
-“在看到dominion的dvs文件共享子域名后，我扫描了一个通配符 ‘dominionvotingSYSTEMS(.)com’，它把我引到了中国泉州一个可怕的不安全的数据中心。”
+[原文链接](https://www.washingtonexaminer.com/news/michael-flynn-sidney-powell-temporarily-suspended-from-twitter)
 
-推后附上了搜索截图。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23022225/%E5%9B%BE%E7%89%873-20.png)
-这则短短的推文吸引了许多眼球，一些估计有IT背景的推友开始进行进一步挖掘。有一个推友随后说出自己的发现：
+翻译报道：文非
 
-“目前该公司的官方域名是dominionvoting(.)com。
-
-“有意思的是，这个dominionvotingsystems(.)com注册于2020年5月26日，注册人是来自中国湖南的一个不知名的人。
-
-”域名所有者的名字被域名注册商GoDaddy(.)com隐藏了。“
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23022240/%E5%9B%BE%E7%89%874-17.png)
-有些网友跟推进行技术上的讨论，还有些网友建议把证据提交给大选舞弊证据搜集组织。
-
-尽管不能确定推友们的发现是否正确，但有一点可以肯定，那就是大选舞弊事件正在被越来越多普通人所关注，并且大众乐于提供自己所掌握或获得的有关证据。而随着证据泉涌一般在官方及民间出现，揭开大选黑幕的行动正在迅速推进。
-
-参考资料：
-
-1. [https://twitter.com/schaumby/status/1328991736425803777](https://twitter.com/schaumby/status/1328991736425803777)
-2. [https://twitter.com/airconlin/status/1330391474362466304](https://twitter.com/airconlin/status/1330391474362466304)
-
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+校对整理：下里巴人
 
 0

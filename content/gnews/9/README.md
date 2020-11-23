@@ -1,30 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 鲍威尔: &#8220;圣经 &#8220;般的诉讼即将到来，指责乔治亚州州长坎普与多米尼克公司交易
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/581568/)
+## 【香草诗词汇】空山行
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/583600/)
 
-编撰: JAY、WENJUN
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22110132/11-55.jpg)图片来自NEWSMAX视频截图
-11月21日晚特朗普竞选律师Sidney Powell在Newsmax电视上发誓要在本周提供一个 “圣经 “般选民欺诈案件。
+作者：香草山农场写作组   木白
 
-“我们已经得到了大量的证据，它是如此之多，很难把它拉到一起，”鲍威尔告诉周六晚上由Rob Schmitt和Mark Halperin共同主持的节目，虐嘲乔治亚州州长在一个有争议的关键战场州的爆炸性指控。
-
-“希望本周我们将准备好提交，它将是圣经般的诉讼。”
-
-“这是一个庞大的项目，将这个欺诈指控与我想要投入的证据拉在一起，”她补充道。”说出欺诈的方式，它发生在乔治亚州。”
-
-鲍威尔暗指的最具爆炸性的说法包括：
-
-1. 乔-拜登的选票被 “加权 “了1. 25倍，川普普总统的选票被拆解了3/4倍。
-2. 算法让民主党人多得了3.5万张选票。
-3. 在法定的修改截止日期后对投票机进行的修改。
-4. 过去的选举结果，包括希拉里-克林顿在初选中战胜参议员伯尼-桑德斯由Dominion选票系统强行决定。
-5. 涉嫌向公职人员提供报酬回扣，甚至有可能是佐治亚州共和党州长坎普为使用多米尼克投票系统而提供的后期拨款。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
 
 
-随着舞弊州指控合诉讼的深入，大选的黑幕将逐渐被揭开并暴露在阳光下！
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23063455/MOS0452-%E3%80%90%E9%A6%99%E8%8D%89%E8%AF%97%E8%AF%8D%E6%B1%87%E3%80%91%E7%A9%BA%E5%B1%B1%E8%A1%8C-1.jpg)
+风吹落树叶上的雨滴和红叶
 
-参考链接：[https://www.newsmax.com/t/newsmax/article/998181/220](https://www.newsmax.com/t/newsmax/article/998181/220)
+森林消失于念念回响的行走
+
+亿万草木，我是你们的一员
+
+光的轮廓，是我看到的树影
+
+
+
+浸透云朵的雨浸湿千年的树
+
+流水处，有温润的墨迹驻足
+
+风再起，我把你一遍遍铭记
+
+去吻干，这片土地流下的泪
+
+（2020年11月21日）
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
