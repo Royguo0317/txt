@@ -1,42 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 前波兰特工和华为员工因间谍罪在华沙被起诉
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/582013/)
+## 拜登过渡时期领导人呼吁美国与中共“共同致力于基因编辑”
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/582070/)
 
-*新闻来源：Reuters《路透社》；作者：Reuters Staff 路透社作者；发布时间：2020年11月 18日*
+*新闻来源：The national pulse《国家脉动》；作者：娜塔莉·温特斯（NATALIE WINTERS）；发布时间：2020年11月 17日*
 
-*翻译/简评：Bob1203(文虓)；校对：Beicy-数学老师；审核：johnwallis；Page：拱卒*
+*翻译/简评：随波逐流；校对/审核：freedust；Page：拱卒*
 
-[![](https://spark.adobe.com/page/BsdV5ytcEdmxa/images/30f88a07-447a-4ac1-aa49-34d7579c92c1.jpg?asset_id=ca1ae27a-ade3-4d9d-bc1a-14520a88dab2&amp;img_etag=%2266b683a92013e12c23a4baec7b8a224d%22&amp;size=1024)](https://spark.adobe.com/page/BsdV5ytcEdmxa/images/30f88a07-447a-4ac1-aa49-34d7579c92c1.jpg?asset_id=ca1ae27a-ade3-4d9d-bc1a-14520a88dab2&amp;img_etag=%2266b683a92013e12c23a4baec7b8a224d%22&amp;size=1024)
+[![](https://spark.adobe.com/page/33sg1AYVdUbPC/images/8a0d160f-ca56-4716-8799-e95509671b9c.jpg?asset_id=fb3f5bec-f60d-4684-ad78-52166dcb6c62&amp;img_etag=%2231cd75609368f5ea27435373c2f8427d%22&amp;size=1024)](https://spark.adobe.com/page/33sg1AYVdUbPC/images/8a0d160f-ca56-4716-8799-e95509671b9c.jpg?asset_id=fb3f5bec-f60d-4684-ad78-52166dcb6c62&amp;img_etag=%2231cd75609368f5ea27435373c2f8427d%22&amp;size=1024)
 
 **简评：**
 
-日前，波兰当局表示，一名前波兰特工和一名华为公司员工因间谍罪被指控，他们已向华沙地方法院提交了针对这两名嫌疑人的起诉书，具体理由涉及5G网络项目及国家安全。华为已解雇了该名员工，称此事令该公司“名誉受损”，其“被指控的行为与该公司无关”。由此可知，美国及其盟国和越来越多的国家因5G网络涉及国家安全将华为拒之门外。而华为的“狼性”和军方属性本质是毫无人性可言，一旦员工被起诉，当即做出切割。华为已死！
+国家脉动昨天发表了题为《拜登过渡时期的领导人呼吁美国与中共“共同致力于基因编辑”》的文章。该文章描述了中共一直以来通过不断盗取美国科技机密，收买美方科研人员和剽窃知识产权等手段来提高其经济和军事实力，从而获得全球科技领先地位。而美方因对中共间谍活动和技术转让的担忧，取消了中共和美国之间的科技合作。 乔·拜登过渡小组成员马勒·梅斯芬（MAHLET MESFIN）在中美关系如此紧张之际，似乎仍赞扬中共应对新冠病毒传播的透明性，坚持主张美国和中共间保持科学技术领域的合作。
+
+这一切表明拜登团队的亲中共立场，如果他们主政，未来数年美国将再次屈服于中共的淫威之下。
 
 **原文翻译：**
 
-**波兰人和中共国公民因间谍罪在华沙被起诉**
+**拜登过渡时期领导人呼吁美国与中共“共同致力于基因编辑”**
 
-华沙(路透社)-波兰当局周三表示，一名前特勤局特工和一名为一家电信公司工作的中共国公民被指控为中共国从事间谍活动。
+**乔·拜登过渡时期审查小组成员马勒·梅斯芬（MAHLET MESFIN）主张：中美两国开展包括“基因编辑” 在内的科学研究合作，从而应对冠状病毒。**
 
-路透社此前报道了针对华为的一名雇员和一名前波兰国内情报人员的指控，他们因涉嫌间谍活动接受华沙政府的调查。
+[![](https://spark.adobe.com/page/33sg1AYVdUbPC/images/177bebc9-2ff5-4d16-b568-545fe36da64d.jpg?asset_id=c75c6cd4-f3e6-4a71-9946-cec82b617f18&amp;img_etag=%22a9bd85a41c3134328ce499004f9fee61%22&amp;size=1024)](https://spark.adobe.com/page/33sg1AYVdUbPC/images/177bebc9-2ff5-4d16-b568-545fe36da64d.jpg?asset_id=c75c6cd4-f3e6-4a71-9946-cec82b617f18&amp;img_etag=%22a9bd85a41c3134328ce499004f9fee61%22&amp;size=1024)
 
-负责协调波兰特别事务的部长发言人在国家通讯社（PAP）发布的一份声明中称，周二向华沙地方法院提交了针对这两名嫌疑人的起诉书，他们分别是彼得 D( Piotr D.)和 W卫京 (音译: Weijing W.)。
+梅斯芬（Mesfin）曾经是奥巴马政府科学技术政策办公室国家安全与国际事务部工作人员，同时还是宾夕法尼亚大学拜登外交与全球合作中心的访问学者。
 
-“他们都进行了间谍活动，损害了波兰共和国的利益，”声明说。
+现在，梅斯芬（Mesfin）加入了拜登（Biden）过渡团队，领导着艺术与人文科学（Art and Humanities）机构审查小组。
 
-W卫京( Weijing W.)的律师告诉路透社，他和他的当事人还没有看到所有的证据，并且(起诉书)没有提供任何指控的依据。彼得( Piotr D.)的律师没有回应记者的置评请求。华为拒绝发表评论。
+![](https://spark.adobe.com/page/33sg1AYVdUbPC/images/63bf0147-9f2b-40cf-a16e-09af65aa78c6.jpg?asset_id=7457fb6c-f155-4588-8fea-2184b50d0f3c&amp;img_etag=%22352b28aa4c0db8f5b3448e9eeba3fd82%22&amp;size=2560)梅斯芬（MESFIN）
 
-2019年，在波兰安全人员拘留W卫京(Weijing W.)几天后，华为解雇了他，称此事令该公司“名誉受损”，他“被指控的行为与该公司无关”。
+但是，梅斯芬（Mesfin）主张在中国共产党和美国之间建立更紧密的科学纽带，并撰写了题为“为什么诺贝尔奖表明中美需要在基因编辑方面共同努力”的专栏文章。
 
-彼得 D( Piotr D.)曾是波兰国内安全部门的一名特工。从2012年到2015年，他还参与了在军事科技大学开展的一个保护光纤网络免受入侵者窃取机密信息的项目。
+该文章重点介绍了科学界对冠状病毒的反应，特别是在美国和中国之间。
 
-美国鼓励其盟友在铺设5G网络时不要使用华为的设备，称这些设备能被用于间谍活动。华为否认了这些指控。
+梅斯芬（Mesfin）并未将该疾病的传播归责于中共，而是将“紧张的双边关系”归咎于“对冠状病毒起源和传播的政治化（politized）【原文是这么写的】”——表面上是一个拼写错误，读起来的意思是“政治化”。 ”
 
-华盛顿和华沙在2019年签署了一项联合声明，称应严格评估5G网络设备供应商，以应对外国政府的控制。美国官员向盟友施压，要求将中共国排除在5G网络之外。
+尽管事实上中国共产党一直很明显地致力于偷窃美国的科学机密、研究人员和知识产权，她仍然哀叹这些说法“削弱了合作的前景，特别是在生物医学研究领域”。
 
-[原文链接](https://www.reuters.com/article/us-poland-china-espionage/pole-and-chinese-citizen-indicted-in-warsaw-for-spying-idUSKBN27Y1OG)
+正如美国官员所描述的那样，中共采取“扩大盗窃技术和知识产权的方法”来“提高其军事和经济实力，从而获得全球科技主导地位”。
+
+梅斯芬在外交事务专栏题为“世界需要终结一场大流行”的文章中，回应了类似重点集中在中美合作上的观点。
+
+梅斯芬（Mesfin）似乎赞扬中国在控制该疾病方面的透明性，坚称“一群中国研究人员于12月在网上发布了该新型病毒的基因序列”，并且“数据使国际科学界得以开始开发诊断测试并探索治疗方案。 ”
+
+实际上，甚至到12月底，中共官员仍在噤声并威胁要报告这种疾病的医生。
+
+梅斯芬还感叹“大流行发生在全球民族主义抬头之际”，并指出“孤立和仇外心理可能导致无法有效应对这一全球危机。”
+
+更甚的是，就像她坚称“因为科学技术政策局（OSTP）在与外国同行的讨论中并未包括中国官员，他们限制了高级合作”一样，她似乎再次否定“美国 因对中国的间谍活动和技术转让的担忧”导致的“打压美中的科学合作”的做法。
+
+*中美之间的紧张关系进一步威胁到削弱冠状病毒研究的进展。 近年来，从对据称秘密参与了发展中国科学事业计划的美国顶尖学者的起诉或解雇中证明，美国对中国间谍活动和技术转让的担忧已扼杀了中美科学合作。OSTP在与外国同行的讨论中没有包括中国官员这一事实可以证明，这些紧张局势也限制了高层的合作。*
+
+因此，毫不奇怪，梅斯芬在2015年的美中商业理事会和2020年的2020年宾大中国研究研讨会上发表过讲话：“倡导美中之间更紧密的经济联系。”
+
+宾夕法尼亚州的活动吸引了中共高层人士，例如黄平大使，中共驻纽约总领事馆总领事的出席。黄在大会上致开幕辞。
+
+[原文链接](https://thenationalpulse.com/exclusive/biden-transition-china-science-collaboration/)
 
 [点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
@@ -44,8 +64,8 @@ W卫京( Weijing W.)的律师告诉路透社，他和他的当事人还没有看
 
 [欢迎加入【英喜庄园】Disocrd官方群](https://discord.gg/U9F97ur)
 
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/BsdV5ytcEdmxa/)】-点击spark adobe版
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/33sg1AYVdUbPC/)】-点击spark adobe版
 
-[![](https://spark.adobe.com/page/BsdV5ytcEdmxa/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/BsdV5ytcEdmxa/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+[![](https://spark.adobe.com/page/33sg1AYVdUbPC/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/33sg1AYVdUbPC/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
-0
+1+
