@@ -1,18 +1,31 @@
 ###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
-推薦文章:point_right:
+推薦文章:point_down:
 
-[:statue_of_liberty: 2020年6月4日新中国联邦宣言](https://github.com/ourhimalayas/txt/blob/master/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
+[2020年6月4日新中国联邦宣言](https://github.com/ourhimalayas/txt/blob/master/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
 
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
-
-[:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
+[](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
 
 ## 頁面 2/30 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [30](/content/README-30.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
+
+[文字版:2020年8月29日郭先生GTV直播连线洛杉矶游行战友](/content/2020/09/20200909-7173794072330822470.md)
+
+[文字版:2020年8月28日郭先生GTV直播连线澳喜农场  ](/content/2020/09/20200909-625122146730580835.md)
+
+[文字版：2020年8月25日郭先生GTV直播](/content/2020/08/20200831-561623715436101894.md)
+
+[文字版：2020年8月23日郭先生GTV直播](/content/2020/08/20200831-6862101542404324400.md)
+
+[文字版：2020年8月22日郭先生GTV直播连线秘密翻译组](/content/2020/08/20200831-6719006213940604734.md)
+
+[文字版:2020年8月21日郭先生GTV直播](/content/2020/08/20200831-2950510164966247295.md)
+
+[文字版:2020年8月16日郭先生GTV直播连线新西兰战友](/content/2020/08/20200831-5572954983708392558.md)
 
 [【文字版】2020年8月15日文贵先生连线Masha战友](/content/2020/08/20200823-930057980655469134.md)
 
@@ -49,20 +62,6 @@
 [文字版：郭先生2020年7月19日GTV直播](/content/2020/07/20200726-4115956209071178859.md)
 
 [文字版:郭先生2020年7月17日GTV直播](/content/2020/07/20200720-623099392723005208.md)
-
-[文字版:7月14日郭先生盖文汇总](/content/2020/07/20200719-4379804612561417938.md)
-
-[文字版:郭先生7月15日GTV直播](/content/2020/07/20200719-3882705048622934643.md)
-
-[文字版：郭先生7月12日GTV直播](/content/2020/07/20200715-541227053977601101.md)
-
-[文字版：郭先生2020年7月8号GTV直播](/content/2020/07/20200715-3384664929547072780.md)
-
-[文字版：郭先生7月5日GTV直播 ](/content/2020/07/20200709-8762268395418060735.md)
-
-[文字版：郭先生7月4号GTV直播](/content/2020/07/20200709-6898409063046022191.md)
-
-[文字版:郭先生2020年7月2日直播](/content/2020/07/20200706-7619698888838221948.md)
 
 
 ## 頁面 2/30 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [30](/content/README-30.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)

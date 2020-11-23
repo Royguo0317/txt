@@ -1,18 +1,31 @@
 ###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
-推薦文章:point_right:
+推薦文章:point_down:
 
-[:statue_of_liberty: 2020年6月4日新中国联邦宣言](https://github.com/ourhimalayas/txt/blob/master/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
+[2020年6月4日新中国联邦宣言](https://github.com/ourhimalayas/txt/blob/master/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
 
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
-
-[:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
+[](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
 
 ## 頁面 13/30 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [30](/content/README-30.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)
+
+[文字版: 2019年8月14日 郭文贵先生谈美國已秘密調查 中共安插在香港警隊中的PLA 操縱美國股](/content/2019/08/20190815-8696204592091636594.md)
+
+[文字版：8月13日文贵直播谈未來的48對香港所有上街抗議的同胞極為重要](/content/2019/08/20190814-2176259177090842759.md)
+
+[文字版：8月12日文贵在车上直播](/content/2019/08/20190814-5736259304944176367.md)
+
+[文字版：2019年8月12日報平安 香港人現在遭遇比當年日本鬼子還壞](/content/2019/08/20190813-2165620896818936239.md)
+
+[文字版：2019年8月11日文貴船上直播高度關注香港](/content/2019/08/20190813-1303455060330520952.md)
+
+[文字版：2019年8月10日 今天是个好日子，开启灭共第三战场](/content/2019/08/20190811-3305401800182542531.md)
+
+[文字版：8月9日 郭文贵先生船上报平安直播](/content/2019/08/20190811-3314587443288819358.md)
 
 [文字版：8月8日 中共对世界布下的天罗地网 并不能阻止中共灭亡的步伐](/content/2019/08/20190809-1309289777403280615.md)
 
@@ -49,20 +62,6 @@
 [文字版：郭先生7月15日直播：盤古大觀在7月14日被北京高院公告······將以實際價格的10%被拍賣······實際的背後的黑手就是江澤民和江志成，孟建柱和孫力軍······王岐山！這就是過去兩週他們要栽贓····](/content/2019/07/20190716-7014702308102493724.md)
 
 [文字版2019年7月14日班农与文贵直播：共产党为什么可以强奸美国70年？（郭先生篇）](/content/2019/07/20190716-7612931641491284190.md)
-
-[文字版：2019年7月12日蔡英文訪問紐約，和香港接下來的行動。大阪G20的結果已經影響了美國內部的政治！一切都是剛剛開始！](/content/2019/07/20190712-9051839422089379972.md)
-
-[文字版：2019年7月10日，尊敬的战友们好，不要计较任何的名，利，不要评价香港的抗议运动的阶段性的得失······我们只有一个目标：灭共！其他都不重要！](/content/2019/07/20190711-2214533308636884375.md)
-
-[文字版：2019年7月9日：香港逃犯法为什么死亡了？香港还会有抗议吗？会实现双普选吗？](/content/2019/07/20190710-3352711753808364354.md)
-
-[文字版：2019年7月8日：文贵车上谈王健之死](/content/2019/07/20190710-5360676795961744736.md)
-
-[文字版：2019年7月8日文贵在船上讲述在长岛买豪宅借战友和我是不是双料间谍](/content/2019/07/20190710-4802216487220776718.md)
-
-[文字版：2019年7月7日王岐山又出手王健“活该死”及香港抗议将引发的CCP灭亡第一战的意义](/content/2019/07/20190709-1755868837124119656.md)
-
-[文字版：郭先生2019年7月7日聊聊我们的郭媒体，感谢战友们的辛勤付出](/content/2019/07/20190708-1629076298190675341.md)
 
 
 ## 頁面 13/30 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [30](/content/README-30.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)

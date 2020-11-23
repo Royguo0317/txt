@@ -1,18 +1,31 @@
 ###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
-推薦文章:point_right:
+推薦文章:point_down:
 
-[:statue_of_liberty: 2020年6月4日新中国联邦宣言](https://github.com/ourhimalayas/txt/blob/master/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
+[2020年6月4日新中国联邦宣言](https://github.com/ourhimalayas/txt/blob/master/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
 
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
-
-[:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
+[](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
 
 ## 頁面 6/30 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [30](/content/README-30.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
+
+[文字版：2020年3月20日文贵呼吁绝对不能把CCP病毒和中国人联系到一起](/content/2020/03/20200323-7421159796736318134.md)
+
+[文字版：2020年3月18日文贵直播呼吁不要被CCP大外宣蒙骗](/content/2020/03/20200321-732520138033685407.md)
+
+[文字版：2020年3月16日参与爆料革命的战友们将来是世界上最受尊敬的人](/content/2020/03/20200319-5480491388779340708.md)
+
+[文字版：2020年3月14日郭先生谈爆料革命面临着重要选择，郭七条一定会改!](/content/2020/03/20200317-7978079183041505608.md)
+
+[文字版：2020年3月13日文贵船上分享美食和预告周六早上直播](/content/2020/03/20200316-6955651449637446921.md)
+
+[文字版:2020年3月12日谈华尔街股市暴跌，世界资产重新分配](/content/2020/03/20200314-7640814044022850534.md)
+
+[文字版：2020年3月11日文贵谈未来3到5年能健康地活着就是最幸福的事了](/content/2020/03/20200314-8958776205330396975.md)
 
 [文字版：2020年3月8日文贵谈即将发生CCP的股市及欺民贼的末日，我们每一位战友都将见证历史！](/content/2020/03/20200311-6040433872108549534.md)
 
@@ -49,20 +62,6 @@
 [文字版： 2020年2月10日请战友们保存让你上班的证据，大家行动起来！](/content/2020/02/20200212-3562611532085874008.md)
 
 [文字版： 2020年2月8日文贵第二次直播谈美国专家确定武汉病毒来自中共实验室制造](/content/2020/02/20200210-4272958490110900794.md)
-
-[文字版：2020年2月8日文贵第一次直播谈为什么说武汉疫情是中国共产党制造并释放出来的](/content/2020/02/20200210-962029426939304062.md)
-
-[文字版：2020年2月6日郭文贵先生接受班农先生战斗室访谈谈武汉疫情真相](/content/2020/02/20200208-1574169935593183081.md)
-
-[文字版：2020年2月3日文贵谈共产党官方一直掩盖武汉真相并栽赃美国](/content/2020/02/20200207-1018085438750382057.md)
-
-[文字版：2020年2月1日郭文贵先生第三次直播分享参加川普总统晚宴有感](/content/2020/02/20200204-4372842395981895522.md)
-
-[文字版:20年2月1日文贵在马阿拉歌总统套房第二次直播](/content/2020/02/20200204-1180621866015014143.md)
-
-[文字版:2020年2月1日文贵第一次直播：共产党救灾不利又拒绝国际救援，百姓何去何从？一起找书记！](/content/2020/02/20200204-5956561708667682413.md)
-
-[文字版：2020年1月31日文贵谈导致疫情扩大的真正原因是共产党隐瞒了疫情，我们要唯真不破传播武汉疫情真相](/content/2020/02/20200203-308153761485477225.md)
 
 
 ## 頁面 6/30 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [30](/content/README-30.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)

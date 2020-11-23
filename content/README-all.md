@@ -1,17 +1,30 @@
 ###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
-推薦文章:point_right:
+推薦文章:point_down:
 
-[:statue_of_liberty: 2020年6月4日新中国联邦宣言](https://github.com/ourhimalayas/txt/blob/master/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
+[2020年6月4日新中国联邦宣言](https://github.com/ourhimalayas/txt/blob/master/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
 
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
+[](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
-[:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
 
 
+[文字版：2020年11月14日郭文贵先生直播连线香草山](/content/2020/11/20201123-5538570264251162424.md)
+
+[文字版：2020年11月14日郭文贵先生直播视频](/content/2020/11/20201123-6996095476462078865.md)
+
+[文字版：2020年11月11日郭先生GTV直播](/content/2020/11/20201123-7347289394080256961.md)
+
+[文字版：2020年11月9日郭文贵先生直播视频](/content/2020/11/20201123-4992453587105006549.md)
+
+[文字版：2020年11月8日郭文贵先生直播视频](/content/2020/11/20201123-7007382489206697446.md)
+
+[文字版：2020年11月8日郭文贵先生连线大卫](/content/2020/11/20201123-2602096722999962648.md)
+
+[文字版：2020年11月7日郭文贵先生直播视频](/content/2020/11/20201123-5742734290856122606.md)
 
 [文字版：2020年10月7日郭先生GTV直播](/content/2020/10/20201018-3690547876023765465.md)
 

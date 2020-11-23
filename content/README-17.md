@@ -1,18 +1,31 @@
 ###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
-推薦文章:point_right:
+推薦文章:point_down:
 
-[:statue_of_liberty: 2020年6月4日新中国联邦宣言](https://github.com/ourhimalayas/txt/blob/master/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
+[2020年6月4日新中国联邦宣言](https://github.com/ourhimalayas/txt/blob/master/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
 
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
-
-[:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
+[](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
 
 ## 頁面 17/30 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [30](/content/README-30.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
+
+[文字版：2019年3月3日金正恩为什么直接回朝鲜为什么要枪毙，偷拍金正恩视频的······](/content/2019/03/20190305-7678928871394571383.md)
+
+[文字版：2019年3月2日文贵和Sara，安红女士，路德，邱先生谈话](/content/2019/03/20190304-4934492035985499612.md)
+
+[文字版：2019年2月28日談金正恩談判的破裂和藍標公司在美國犯罪的各種信息](/content/2019/03/20190303-6089231756466029624.md)
+
+[文字版：2019年2月27日：一切都是天注定吗？习亡（于）岐山，民心向郭······](/content/2019/02/20190228-4589670167001687334.md)
+
+[文字版：2019年2月26日談法治基金和金正恩與川普團隊的不同](/content/2019/02/20190227-2121363787945897238.md)
+
+[文字版：2月24日，文贵谈，法治基金建立的真正目的](/content/2019/02/20190227-189178427361048869.md)
+
+[文字版：2019年2月23日文貴和班農談宗教革命：爆梵蒂岡與中共的交易](/content/2019/02/20190226-8859437159396757540.md)
 
 [文字版：2月21日 再談法治基金捐款到底捐給了誰](/content/2019/02/20190225-476123730242359765.md)
 
@@ -49,20 +62,6 @@
 [文字版：2019年1月25日習近平和王岐山會有一戰](/content/2019/01/20190127-3156421909348071205.md)
 
 [文字版：2019年1月24日委內瑞拉的民主反獨裁的運動對中國人民的意義與影響重大](/content/2019/01/20190127-8646715222462480282.md)
-
-[文字版：2019年1月23日文貴報平安直播](/content/2019/01/20190125-5995035220130924499.md)
-
-[文字版：2019年1月21日共產黨號召學習王陽明的心學是對聖人的巨大侮辱](/content/2019/01/20190123-2188991099465691450.md)
-
-[文字版：2019年1月20日郭文贵先生直播王岐山，孟建柱是如何執行南普陀計劃！](/content/2019/01/20190123-8364143851191456056.md)
-
-[文字版2019年1月19日，文贵报平安视频，中共以假治国、以黑治国到了终结的时候，政事小哥事件在国内影响巨大，这是一个让美国人都恐惧的标志性事件](/content/2019/01/20190122-141136365873986277.md)
-
-[文字版：2019年1月18日郭文贵先生直播（上，下）](/content/2019/01/20190122-8638350325848352117.md)
-
-[文字版2019年1月17 日直播（上，下）](/content/2019/01/20190122-1312642857829852488.md)
-
-[文字版：2019年1月16日郭先生报平安视频（上，下）](/content/2019/01/20190118-5239795096969232686.md)
 
 
 ## 頁面 17/30 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [30](/content/README-30.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
