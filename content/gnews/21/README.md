@@ -1,25 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 纳瓦罗: 现在到了必须推翻中共的时候
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/583554/)
+## 文贵说｜系列图片连载（五十四）
+` GM98` [轉載自GNews](https://gnews.org/zh-hans/583652/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23060443/Picture41-1.png)图片来源：[https://www.rfa.org/](https://www.rfa.org/cantonese/news/ear/ear-peter-08052020080314.html)
-据美国媒体NewsMax报道，白宫贸易顾问彼得·纳瓦罗（Peter Navarro）近日表示，川普政府可能正在考虑在任期届满之前对中共采取强有力的行动。
+## 372.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23065651/444_1.jpg)
+任何事情，任何幸福，它都不会是那么简单地获得；任何成功都不能简单地拥有。
 
-纳瓦罗说：“现在形式已经很明朗了，拜登会去和中共勾兑，而川普总统正在为保卫美国人民而战。”
+——郭文贵先生2019年11月14日
 
-纳瓦罗进一步强调，川普总统与中共的对抗从未停止，就在上周，还签署了一项行政命令，禁止美国对与中共军方有联系的公司进行投资。而且，更多措施将陆续出台。
+## 373.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23065721/412_1-1.jpg)
+我的人生很简单，昨天我无法把握， 明天我不知道， 今天就是一切， 所以过好今天就过好一生， 这就是我的哲学。
 
-另外，纳瓦罗再次猛烈抨击中共释放病毒，造成病毒全球大流行，夺去25万美国人的生命，并强调必须对中共追责，让全世界了解病毒的真相。
+——郭文贵先生2018年5月2日
 
-简评：这篇简短的报道是继本月18日纳瓦罗接受《本周美国》（America This Week）, 埃里克·博林（Eric Bolling）的采访之后，再一次火力全开。
+## 374.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23065749/475.jpg)
+当时希特勒用的是先进的武器，坦克、飞机、陀螺仪、无线电。今天共产党用的是叫做CCP冠状病毒。它付出的代价和牺牲的人们，就是中国人民的未来和中国人的孩子。
 
-我们看到，在美国大选舞弊问题沸沸扬扬之际，纳瓦罗连续强调对CCP病毒真相的追责，并直言不讳告诉美国人民，中共就是杀死25万美国人民的凶手，这意味着美国政府从来没有放弃追查病毒来源真相，同时，可能很快实施更强有力的行动。咱们拭目以待。
+——郭文贵先生2020年4月7日
 
-[原文链接](https://www.newsmax.com/politics/navarro-china-trump/2020/11/22/id/998214/)
+## 375.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23065817/444_12.jpg)
+美国和以美国为首的世界，绝对不会在看到自己的国民几分钟死一个，这事就拉倒了，绝不可能！
 
-翻译：Hanstyle
-校对：晴天小蚂蚁
+——郭文贵先生2020年4月4日
+
+## 376.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23065843/412_12.jpg)
+共产党就是当年的纳粹。它那么嚣张的情况下，它那么疯狂的情况下，它已经吸毒吸到了自己迷糊了。
+
+——郭文贵先生2020年4月1日
+
+## 377.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23065944/1028.jpg)
+我从来不相信哪个国家靠镇压靠武器能把自己的政权持之以恒。
+
+——郭文贵先生2017年10月27日
+
+## 378.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23070008/0057.png)
+爱你们，我们不爱自己的同胞，你就不配拥有任何事情，相信我们会尽全力的保护我们的好同胞，好同胞里边不分共产党和非共产党。
+
+——郭文贵先生2020年7月17日
 
 0
