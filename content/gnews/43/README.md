@@ -1,71 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登过渡时期领导人呼吁美国与中共“共同致力于基因编辑”
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/582070/)
+## 董功文经手在曼哈顿购买的两套豪宅小探
+` GM06` [轉載自GNews](https://gnews.org/zh-hans/582575/)
 
-*新闻来源：The national pulse《国家脉动》；作者：娜塔莉·温特斯（NATALIE WINTERS）；发布时间：2020年11月 17日*
+作者：**澳大利亚悉尼农场喜妈喜安娜**
 
-*翻译/简评：随波逐流；校对/审核：freedust；Page：拱卒*
+在我们所揭示的亨特拜登和董功文的来往邮件中，提到董功文在美国购买了众多的房产。其中的两套是在美国曼哈顿中心区所买的豪宅。它们的地址分别是：曼哈顿中央公园大道15号的一套公寓和中央公园大道432号的一套公寓。为了大家能够更好地理解CCＰ利用其白手套怎样用中国百姓的钱去渗透和收买各种国内外的政治势力，我们就要从认识这些白手套购买房产的行为，得到一些直观的认识，由此再进行相关的讨论。今天笔者就为大家展现以这两套几千万的房产为例的简单分析和挖掘。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22202201/343.png)
+我们先来看看这曼哈顿中央公园大道15号的顶层公寓。这幢建筑是由明星建筑师罗伯特 斯特恩设计，2008年竣工，含两幢石灰岩立面的塔楼。它几乎是过去10年中纽约最贵住宅建筑，每平方尺（0.09平方米）的单价是6045美元位居榜首。这套公寓当时的挂牌价是5800万美元，之后董功文购买得到14%的优惠，最终购买价是5055万美元。购入的时间是2017年5月，购买行为是一家与叶简明有关联的公司所完成的。据说，这套公寓的前主人是巴克莱前首席执行长Bob Diamond, 建筑面积约490平方米，四间卧室，五间浴室和一间盥洗室，十米的长廊一间书房和带有用餐区的厨房。这套公寓享有曼哈顿中央公园最好的风景，有很好的观景角度。这处房产是通过Senza Nome LLC。
 
-[![](https://spark.adobe.com/page/33sg1AYVdUbPC/images/8a0d160f-ca56-4716-8799-e95509671b9c.jpg?asset_id=fb3f5bec-f60d-4684-ad78-52166dcb6c62&amp;img_etag=%2231cd75609368f5ea27435373c2f8427d%22&amp;size=1024)](https://spark.adobe.com/page/33sg1AYVdUbPC/images/8a0d160f-ca56-4716-8799-e95509671b9c.jpg?asset_id=fb3f5bec-f60d-4684-ad78-52166dcb6c62&amp;img_etag=%2231cd75609368f5ea27435373c2f8427d%22&amp;size=1024)
+第二套豪华公寓地址是曼哈顿公园大道432号86A单元，成交价格是3271万美元，实际购买价比挂牌价也是少了14%，要价为3800万美元。公寓有三间卧室、四间浴室，一间盥洗室和一间图书室，室内面积室4028平方呎约合374平方米。这是董功文在三个月内购买的第二处超级豪宅。买房时的买家被标记为Sandis Holdings LLC。公园大道432号（432 Park Avenue）在中央公园旁，建筑高度425.7米（最初设计396.2米），使用楼层高度392.1米，地上85层，地下3层。建成时曾是全球最高纯住宅大楼。公园大道432号由CIM集团联合迈克罗威地产公司开发，拉斐尔·维诺里建筑师事务所与SLCE Architects共同设计。该住宅楼2011年9月开始施工，在2015年12月23日完工。本身就处在曼哈顿的繁华区，加上独特的高度和位置，其风景和出入的便利都是让人欣羨的高档住所。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22202215/344.png)
+据称，这两套豪宅的幕后金主都是叶简明，而叶氏已经人间消失。这两个房子和叶简明买的其他房产一样，都是通过有限责任公司注册的公司操作，这两个操作公司所注册地址，都是董功文在美国长岛的房子。这里面的关联关系也是非常明显的。很多叶简明手上的房子，都是叶简明控制，董功文注册，可是房子的所有权到底归属给谁，或者了解这些房子里进出的都是些什么人，都会对CCP在美国的黑暗运作有着非常关键的作用。
 
-**简评：**
+在路德的节目中，指出这两套豪宅在本次三个硬盘中被曝露出来，其实并不是给老百姓看热闹的；“是给亨特拜登看的，给中共看的”。为什么呢？因为只要你知道了这些房产的秘密，你就知道了整个CCP盗国贼家族在美国罗织的暗网和利益输送渠道以及利益关联方。从这里入手，就可以把拜登家族与CCP的勾连关系整个完整地追溯和清理到位。按照路德先生的原话，拜登的事情，“不仅仅是他自己犯罪家族的问题，而是后面他代表的一系列的生态圈和资本势力的问题”，从而最终“从司法上对他们进行起诉和制裁”。因此，我相信读者们借这两套豪宅，已经对这些拿着中国老百姓的钱到处撒币疯狂购买海外房产的白手套们的行为有了比较直观的认识。同时，我们必须要认识到，只有爆料革命才能做到精准打击CCP，才能将CCP在世界范围内的蓝金黄网络揭示到位，曝光到位。有这些CCP和他们的白手套们在海外的利益输送和收买的强有力证据，将他们绳之以法的日子就指日可待了。
 
-国家脉动昨天发表了题为《拜登过渡时期的领导人呼吁美国与中共“共同致力于基因编辑”》的文章。该文章描述了中共一直以来通过不断盗取美国科技机密，收买美方科研人员和剽窃知识产权等手段来提高其经济和军事实力，从而获得全球科技领先地位。而美方因对中共间谍活动和技术转让的担忧，取消了中共和美国之间的科技合作。 乔·拜登过渡小组成员马勒·梅斯芬（MAHLET MESFIN）在中美关系如此紧张之际，似乎仍赞扬中共应对新冠病毒传播的透明性，坚持主张美国和中共间保持科学技术领域的合作。
+Bibliography:
 
-这一切表明拜登团队的亲中共立场，如果他们主政，未来数年美国将再次屈服于中共的淫威之下。
+Ling 毛屎坑/路德访谈., (2020). 2020年10月15日路德访谈直播 20201015\_2拜登硬盘里面提到的叶简明被抓后，现在是死是活？董功文、左坤到底是谁？朱利安尼班农先生上路德节目暗藏哪些重要硬盘., [online]. gwins.org. [Viewed 13 November 2020]. Available from: [https://gwins.org/cn/lude/19715.html](https://gwins.org/cn/lude/19715.html)
 
-**原文翻译：**
+癲狗編輯室., (2020). 梁錦祥：拜登家族與解放軍關係成為選戰焦點. [online]. [maddog.maradio.hk](http://maddog.maradio.hk). [Viewed 13 November 2020]. Available from: [https://maddog.myradio.hk/2020/09/24/editor/梁錦祥](https://maddog.myradio.hk/2020/09/24/editor/%E6%A2%81%E9%8C%A6%E7%A5%A5)：拜登家族與解放軍關係成為選戰焦點/
 
-**拜登过渡时期领导人呼吁美国与中共“共同致力于基因编辑”**
+Strum, B., (2018). 中央公园西路15号牢占纽约最贵楼盘宝座. [online]. [huanyuju.com](http://huanyuju.com). [Viewed 13 November 2020]. Available from: [http://www.huanyuju.com/articles/中央公园西路15号牢占纽约最贵楼盘宝座-98180?tesla=y&tesla=y](http://www.huanyuju.com/articles/%E4%B8%AD%E5%A4%AE%E5%85%AC%E5%9B%AD%E8%A5%BF%E8%B7%AF15%E5%8F%B7%E7%89%A2%E5%8D%A0%E7%BA%BD%E7%BA%A6%E6%9C%80%E8%B4%B5%E6%A5%BC%E7%9B%98%E5%AE%9D%E5%BA%A7-98180?tesla=y&amp;tesla=y)
 
-**乔·拜登过渡时期审查小组成员马勒·梅斯芬（MAHLET MESFIN）主张：中美两国开展包括“基因编辑” 在内的科学研究合作，从而应对冠状病毒。**
+Block, F., (2017). 中国房企高管董功文连续购进两套曼哈顿超豪华公寓. [online]. [huanyuju.com](http://huanyuju.com). [Viewed 13 November 2020]. Available from: [http://www.huanyuju.com/articles/中国房企高管董功文连续购进两套曼哈顿超豪华公寓-70141?tesla=y&tesla=y](http://www.huanyuju.com/articles/%E4%B8%AD%E5%9B%BD%E6%88%BF%E4%BC%81%E9%AB%98%E7%AE%A1%E8%91%A3%E5%8A%9F%E6%96%87%E8%BF%9E%E7%BB%AD%E8%B4%AD%E8%BF%9B%E4%B8%A4%E5%A5%97%E6%9B%BC%E5%93%88%E9%A1%BF%E8%B6%85%E8%B1%AA%E5%8D%8E%E5%85%AC%E5%AF%93-70141?tesla=y&amp;tesla=y)
 
-[![](https://spark.adobe.com/page/33sg1AYVdUbPC/images/177bebc9-2ff5-4d16-b568-545fe36da64d.jpg?asset_id=c75c6cd4-f3e6-4a71-9946-cec82b617f18&amp;img_etag=%22a9bd85a41c3134328ce499004f9fee61%22&amp;size=1024)](https://spark.adobe.com/page/33sg1AYVdUbPC/images/177bebc9-2ff5-4d16-b568-545fe36da64d.jpg?asset_id=c75c6cd4-f3e6-4a71-9946-cec82b617f18&amp;img_etag=%22a9bd85a41c3134328ce499004f9fee61%22&amp;size=1024)
+未来车视频., (2020). 全球最高住宅楼：高426米灵感来自垃圾桶，一套上亿却几乎已卖空. [online]. [K.sina.cn](http://K.sina.cn). [Viewed 13 November 2020]. Available from: [https://k.sina.cn/article\_6937591256\_19d833dd800100lcgt.html?from=estate](https://k.sina.cn/article_6937591256_19d833dd800100lcgt.html?from=estate)
 
-梅斯芬（Mesfin）曾经是奥巴马政府科学技术政策办公室国家安全与国际事务部工作人员，同时还是宾夕法尼亚大学拜登外交与全球合作中心的访问学者。
+Hsu, D./H, K., (2018). 造價近10億美元的名人豪宅！中央公園西大道15號 紐約政商名流的居住首選. [online]. [gq.com.tw](http://gq.com.tw). [Viewed 13 November 2020]. Available from: https://www.gq.com.tw/gadget/design/content.asp?ids=35482&iPage=2
 
-现在，梅斯芬（Mesfin）加入了拜登（Biden）过渡团队，领导着艺术与人文科学（Art and Humanities）机构审查小组。
-
-![](https://spark.adobe.com/page/33sg1AYVdUbPC/images/63bf0147-9f2b-40cf-a16e-09af65aa78c6.jpg?asset_id=7457fb6c-f155-4588-8fea-2184b50d0f3c&amp;img_etag=%22352b28aa4c0db8f5b3448e9eeba3fd82%22&amp;size=2560)梅斯芬（MESFIN）
-
-但是，梅斯芬（Mesfin）主张在中国共产党和美国之间建立更紧密的科学纽带，并撰写了题为“为什么诺贝尔奖表明中美需要在基因编辑方面共同努力”的专栏文章。
-
-该文章重点介绍了科学界对冠状病毒的反应，特别是在美国和中国之间。
-
-梅斯芬（Mesfin）并未将该疾病的传播归责于中共，而是将“紧张的双边关系”归咎于“对冠状病毒起源和传播的政治化（politized）【原文是这么写的】”——表面上是一个拼写错误，读起来的意思是“政治化”。 ”
-
-尽管事实上中国共产党一直很明显地致力于偷窃美国的科学机密、研究人员和知识产权，她仍然哀叹这些说法“削弱了合作的前景，特别是在生物医学研究领域”。
-
-正如美国官员所描述的那样，中共采取“扩大盗窃技术和知识产权的方法”来“提高其军事和经济实力，从而获得全球科技主导地位”。
-
-梅斯芬在外交事务专栏题为“世界需要终结一场大流行”的文章中，回应了类似重点集中在中美合作上的观点。
-
-梅斯芬（Mesfin）似乎赞扬中国在控制该疾病方面的透明性，坚称“一群中国研究人员于12月在网上发布了该新型病毒的基因序列”，并且“数据使国际科学界得以开始开发诊断测试并探索治疗方案。 ”
-
-实际上，甚至到12月底，中共官员仍在噤声并威胁要报告这种疾病的医生。
-
-梅斯芬还感叹“大流行发生在全球民族主义抬头之际”，并指出“孤立和仇外心理可能导致无法有效应对这一全球危机。”
-
-更甚的是，就像她坚称“因为科学技术政策局（OSTP）在与外国同行的讨论中并未包括中国官员，他们限制了高级合作”一样，她似乎再次否定“美国 因对中国的间谍活动和技术转让的担忧”导致的“打压美中的科学合作”的做法。
-
-*中美之间的紧张关系进一步威胁到削弱冠状病毒研究的进展。 近年来，从对据称秘密参与了发展中国科学事业计划的美国顶尖学者的起诉或解雇中证明，美国对中国间谍活动和技术转让的担忧已扼杀了中美科学合作。OSTP在与外国同行的讨论中没有包括中国官员这一事实可以证明，这些紧张局势也限制了高层的合作。*
-
-因此，毫不奇怪，梅斯芬在2015年的美中商业理事会和2020年的2020年宾大中国研究研讨会上发表过讲话：“倡导美中之间更紧密的经济联系。”
-
-宾夕法尼亚州的活动吸引了中共高层人士，例如黄平大使，中共驻纽约总领事馆总领事的出席。黄在大会上致开幕辞。
-
-[原文链接](https://thenationalpulse.com/exclusive/biden-transition-china-science-collaboration/)
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英喜庄园】Disocrd官方群](https://discord.gg/U9F97ur)
-
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/33sg1AYVdUbPC/)】-点击spark adobe版
-
-[![](https://spark.adobe.com/page/33sg1AYVdUbPC/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/33sg1AYVdUbPC/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
-1+
+0
