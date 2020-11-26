@@ -1,43 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【2020年香港施政报告专题】（五）被问连任　林郑月娥：未来一年为港打好根基，没想过其他事
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/593137/)
+## 【热点播报】 大海怪被释放! 西德尼·鲍威尔律师提交了关于佐治亚州选举中大规模舞弊的爆炸性指控
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/593179/)
 
-搜集： KEN老广、Peacelv
+作者：香草山写作组 叮咚猫
 
-编撰：文燕
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
 
-审核：MY
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26090852/jpg-namchow-11_GHp13_1200x0.jpg)
-特首林郑月娥今午（25日）就其任内第四份《施政报告》举行记者会，尚余1年多特首任期的她被问到会否连任，她表示「希望未来一年多带领香港特区政府以砥砺前行精神，为香港打好根基，其他事情我没想过」。
 
-林郑月娥强调，今届余下任期的目标是防疫抗疫、恢复香港经济、土地房屋供应，没打算再处理民主发展、政制发展的议题
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26090916/jpg-photo_2020-11-26_17-48-08.jpg)
-战友点评：
 
-香港在过去一年多社会经历了许多事情。日前英首相蓝韬文在他的《香港半年报告书》总结得很中肯。
+据《GATEWAY PUNDIT》25日报道，海怪在感恩节前夕来到了佐治亚州！西德尼-鲍威尔律师提交了104页指控，揭露了2020年佐治亚州选举中的大规模欺诈行为。此外密歇根州也被指控。
 
-蓝韬文指：市民不满港府抗疫不力，引发连串示威抗议，如1 月26 日市民聚集抗议火炭骏洋村成为检疫中心，于2 月2 日亦有人于罗湖站设置简易爆炸装置，威胁港府封关等。报告又指，港府于3 月实施「限聚令」，禁止超过四人的聚集，但仍发生多宗未经批准的集结，举例于5 月24 日，逾千人游行抗议中央将实施《港区国安法》，超过180 人被捕。报告援引警方数据，指截至 6 月 30 日，9,216 人因参与反送中示威被捕，当中 40% 为学生，1,972 人被检控，653 人被控暴动。而141人已被定罪，其中57人被监禁为期两周到四年。
+大海怪从天而降，且看作乱群妖哪里藏身！
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26092113/MOS0491-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91-%E5%A4%A7%E6%B5%B7%E6%80%AA%E8%A2%AB%E9%87%8A%E6%94%BE-%E8%A5%BF%E5%BE%B7%E5%B0%BC-%E9%B2%8D%E5%A8%81%E5%B0%94%E5%BE%8B%E5%B8%88%E6%8F%90%E4%BA%A4%E4%BA%86%E5%85%B3%E4%BA%8E%E4%BD%90%E6%B2%BB%E4%BA%9A%E5%B7%9E%E9%80%89%E4%B8%BE%E4%B8%AD%E5%A4%A7%E8%A7%84%E6%A8%A1%E8%88%9E%E5%BC%8A%E7%9A%84%E7%88%86%E7%82%B8%E6%80%A7%E6%8C%87%E6%8E%A7.jpg)
+资料：[https://www.thegatewaypundit.com/2020/11/breaking-kraken-released-attorney-sidney-powell-files-104-page-bombshell-complain-massive-fraud-georgia-election/?ff\_source=Twitter&ff\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/11/breaking-kraken-released-attorney-sidney-powell-files-104-page-bombshell-complain-massive-fraud-georgia-election/?ff_source=Twitter&amp;ff_campaign=websitesharingbuttons)
 
-值得留意的是，这一篮子事情是香港在过去半年发生的。林郑好像活在另一个时空，完全没有回应当前的社会诉求。
 
-有记者问她现在很多市民计划移民，您为什没有回应让她们留在香港发展。林郑回应「移民是每个人的选择！ 」这种态度就是香港当下的行政长官。所以我们说，数字不撒谎，林郑月娥的民望调查结果也不会撒谎。为什么那么多港人给林郑零分，绝对有原因。
 
-港人还期待林郑未来为香港打好基础吗？卖港林郑还能连任吗？相信答案就在每位有良知的港人心中。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-资料来源：明报
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-[https://news.mingpao.com/ins/%E6%96%BD%E6%94%BF%E5%A0%B1%E5%91%8A/article/20201125/special/1606295914674](https://news.mingpao.com/ins/%E6%96%BD%E6%94%BF%E5%A0%B1%E5%91%8A/article/20201125/special/1606295914674)
-
-**施政报告专题：**
-
-[**【2020年香港施政报告专题】（一）林郑月娥：不会放弃「明日大屿」项目 积极探讨融资方案**](https://gnews.org/zh-hans/590707/)
-
-[【2020年香港施政报告专题】（二）中央支持机管局以市场化规则入股珠海机场](https://gnews.org/zh-hans/591934/)
-
-[【2020年香港施政报告专题】（三）「大湾区青年就业计划」供2000名本地大学生内地城市工作](https://gnews.org/zh-hans/592083/)
-
-[【2020年香港施政报告专题】（四）未来须纠正通识科被异化问题 强化教师校长培训](https://gnews.org/zh-hans/592429/)
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

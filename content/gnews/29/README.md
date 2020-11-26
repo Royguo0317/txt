@@ -1,27 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蛮横的密歇根总检察长内塞尔居然威胁选举舞弊举报人!
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/593154/)
+## 【热点播报】宾州听证会，证人讲述亲见大选舞弊奇观
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/593221/)
 
-*蒙特利尔战友团 Spirit*
+作者：香草山写作组 叮咚猫
 
-*校对 文锦 上传 WJ*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26091644/%E5%86%85%E5%A1%9E%E5%B0%94.jpg)
-图片来源：mlive
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
 
-美国的密歇根州人勤劳、踏实、不愿惹事，但不知为啥该州的人民选出了一个神经病州长—-格雷琴-惠特莫 （Gretchen Whitmer)和一个现代盖世太保暴君总检察长—-达纳·内塞尔( Dana Nessel)。
 
-惠特莫州长已越来越无限地封锁和控制她的州民，就像一个不断增压的集中营。她过分要求州民留在家,最终被密歇根最高法院裁定为违宪。而更有甚者总检察长内塞尔威胁要逮捕任何人，包括因该州的“超级传播者”事件声称要逮捕总统。现在她更疯狂，居然在向第一修正案开战。她的目标是美国公民—-在这里是指举报人，那些在11月3日和4日通过宣誓证词和签署宣誓书，揭露他们所看到的选举舞弊的举报人。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26093210/MOS0492-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E5%AE%BE%E5%B7%9E%E5%90%AC%E8%AF%81%E4%BC%9A%EF%BC%8C%E8%AF%81%E4%BA%BA%E8%AE%B2%E8%BF%B0%E4%BA%B2%E8%A7%81%E5%A4%A7%E9%80%89%E8%88%9E%E5%BC%8A%E5%A5%87%E8%A7%82.png)
+据《GATEWAY PUNDIT》11月25日报道，宾夕法尼亚州议会就2020年选举问题和违规行为举行了听证会。
 
-这位密歇根州总检察长内塞尔针对她所在州的选举舞弊没有调查行动，反而向举报人发出公开威胁。让他们闭上嘴，放规矩点，如果举报选举舞弊，可能会被起诉。
+朱利安尼指出宾夕法尼亚州邮寄选票的问题：其一，只有180万张邮寄选票被寄出，但有250万张被点算; 其二，有672,770张没有经过任何人检查的选票被秘密放入了投票箱。
 
-前州参议员帕特里克·科尔贝克（Patrick Colbeck)的举报人表示，当数万张神秘选票在选举当晚被送到底特律的缺席选民计票委员会时，科尔贝克就在投票中心现场，他有第一手证据。但他没有去找总检察长内塞尔，因为内塞尔曾说过，如果举报人向当局出面，可能会被起诉犯罪。
+几位非常可信的证人在听证会上作证。
 
-就科尔贝克的揭露她在推特上回应”我可以确认，帕特里克·科尔贝克从未向密歇根州总检察长部投诉选举舞弊。如果他有，我们会对上述说法进行全面调查“。同时还继续威胁道“故意向执法部门提出虚假的犯罪活动主张本身就是一种犯罪。根据我的经验，这往往是某些报告没有被提出的原因。”她补充道。即使科尔贝克已经在伪证罪的惩罚下签署了一份宣誓书，证明底特律市内操纵者在选举当晚违反规则和其他形式的欺诈行为，但这并不意味着他的证词是真实的。
+一位目击者描述，他亲自观察到几十张USB卡被上传到投票机上，导致乔·拜登在短时间内获得5万张选票。
 
-虚假新闻媒体、自由派活动派法官和其他建制派共谋者集体决定驳回宣誓书，使川普法律团队失去证明选举舞弊的数百份证词。这位总检察长不但不维护法律公正，还歪曲事实、恐吓证人，阻止真相曝光，掩盖犯罪事实，这些是对美国的司法系统的公然侵害，也是一种犯罪。
+另一位目击者描述，在选票计数的巨大 “峰值”，“60万张选票给了乔·拜登，而特朗普的选票为3200张”，众人惊呼。
 
-[*参考链接*](https://djhjmedia.com/eric/tyrannical-michigan-what-about-1a-ag-general-nessel-threatens-election-fraud-whistleblowers-with-prosecution/)
+鲁迪说：”这完全无法解释，他们基本上是在筛选票箱。“ 他说他相信所发生的情况是，作弊者从来没有想到在选举当晚会落后70万或80万票，他们准备好的假票不够，所以不得不临时制造大量邮寄选票。
+
+朱利安尼说的绝对正确。大选之夜，川普总统的巨量选票把他们吓坏了，他们关闭了一切，然后在选举日之后慌忙为乔-拜登制作了70万张邮寄选票。可是由于行动匆忙，留下大量的证据，令人瞠目结舌。
+
+宾州听证会很可能是选举结果反转的转折点。让我们拭目以待。
+
+资料：[https://www.thegatewaypundit.com/2020/11/giuliani-points-major-problem-mail-ballots-pennsylvania-1-8-mail-ballots-sent-2-5-million-counted-video/?utm\_source=Twitter&utm\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/11/giuliani-points-major-problem-mail-ballots-pennsylvania-1-8-mail-ballots-sent-2-5-million-counted-video/?utm_source=Twitter&amp;utm_campaign=websitesharingbuttons)
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

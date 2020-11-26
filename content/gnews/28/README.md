@@ -1,20 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】 大海怪被释放! 西德尼·鲍威尔律师提交了关于佐治亚州选举中大规模舞弊的爆炸性指控
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/593179/)
+## 【热点播报】台湾驻美代表处：已有12人确诊CCP病毒
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/593231/)
 
-作者：香草山写作组 叮咚猫
+作者：香草山写作组 程万里
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26093927/MOS0494-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E5%8F%B0%E6%B9%BE%E9%A9%BB%E7%BE%8E%E4%BB%A3%E8%A1%A8%E5%A4%84%EF%BC%9A%E5%B7%B2%E6%9C%8912%E4%BA%BA%E7%A1%AE%E8%AF%8ACCP%E7%97%85%E6%AF%92.jpg)
+北京时间2020年11月26日晚间台湾外交部消息，驻美国代表处近日新增9人确诊武汉肺炎。自10月22日1人确诊后驻美处累计已经有12人确诊。领务大厅即日起暂时关闭，案件申请一律改以邮件办理，解除日期另行通知。驻美代表萧美琴26日采检结果为阴性，目前健康状况良好，但由于曾与确诊驻处人员接触，正依规定居家隔离。
 
-据《GATEWAY PUNDIT》25日报道，海怪在感恩节前夕来到了佐治亚州！西德尼-鲍威尔律师提交了104页指控，揭露了2020年佐治亚州选举中的大规模欺诈行为。此外密歇根州也被指控。
-
-大海怪从天而降，且看作乱群妖哪里藏身！
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26092113/MOS0491-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91-%E5%A4%A7%E6%B5%B7%E6%80%AA%E8%A2%AB%E9%87%8A%E6%94%BE-%E8%A5%BF%E5%BE%B7%E5%B0%BC-%E9%B2%8D%E5%A8%81%E5%B0%94%E5%BE%8B%E5%B8%88%E6%8F%90%E4%BA%A4%E4%BA%86%E5%85%B3%E4%BA%8E%E4%BD%90%E6%B2%BB%E4%BA%9A%E5%B7%9E%E9%80%89%E4%B8%BE%E4%B8%AD%E5%A4%A7%E8%A7%84%E6%A8%A1%E8%88%9E%E5%BC%8A%E7%9A%84%E7%88%86%E7%82%B8%E6%80%A7%E6%8C%87%E6%8E%A7.jpg)
-资料：[https://www.thegatewaypundit.com/2020/11/breaking-kraken-released-attorney-sidney-powell-files-104-page-bombshell-complain-massive-fraud-georgia-election/?ff\_source=Twitter&ff\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/11/breaking-kraken-released-attorney-sidney-powell-files-104-page-bombshell-complain-massive-fraud-georgia-election/?ff_source=Twitter&amp;ff_campaign=websitesharingbuttons)
+超限战不只是针对美国，台湾也逃不过。台湾外交部以及驻美代表萧美琴祝贺拜登当选的不恰当言论，以及今天的驻美处已经有12人确诊武汉肺炎，其核心原因就是没有认清中共的邪恶和CCP 病毒。自路德社2020年1月29日直播节目中向全世界首次提到硫酸羟氯喹在关键时刻可以救命后，台湾可是全世界第一个开始使用羟氯喹作为治疗药品的国家和地区，并提出制药国家队启动羟氯喹自自制储备计划。但现在驻美代表处多人感染CCP病毒，说明台湾的对羟氯喹的认识产生了很大的问题，而且其信息收集和侦辨能力也出了问题。台湾突然间认不清现实，也看不到未来了。世界本没有绥靖政策，更不可能两面都讨好，真诚的希望台湾官方能够尽快认清事实，回到灭共的中心，只有这样才可以自救，2300万台湾人才有未来。
 
 
 
