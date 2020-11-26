@@ -1,15 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻短评：闫博士强力回击CNN在SARS-CoV-2病毒来源问题上的撒谎和扭曲事实真相的行为
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/591735/)
+## 《路德社》精选新闻快讯：川普总统发推特赦弗林将军 大律师林伍德力挺
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/591361/)
 
 出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-闫博士发推说：“就像我承诺的，我对于CNN假新闻的正式驳斥已经发表出来了。被隐藏的非常有趣的信息与一些科学家有所关联。这些人对于我和团队发表的两篇报告进行了贬低和无端指斥，否认了COVID-19病毒的实验室起源。再一次，欢迎真正的科学讨论。”
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21190908/Yan_LImeng.jpg)
-最近CNN对闫博士及其团队发表的两篇揭露病毒来源的文章发起了猛烈的攻势。首先，CNN在政治专栏发表了一篇文章，两天后在一个四分钟的短篇电视报导中重复了上述内容。CNN的目的一方面想把闫博士的名声彻底毁掉，另一方面想让闫博士及其团队做出的、关于SARS-CoV-2病毒来源的理论和分析名誉扫地，以达到他们扭曲事实真相、否认病毒实验室来源的丑恶目的。
+川普总统二十五日下午发推，
+我非常荣幸的宣布米歇儿弗林将军（General Flynn)已经获得我的全部赫免，祝贺他和他优秀的家人，我知道你们将会有一个真正美妙的感恩节！
 
-闫博士及其团队在zenodo.org网站发表了强力的反击文章。对于CNN的蓄意抹黑和胡言乱语进行了有力的回击。报告内容共分为六个部分：反击CNN虚假的剽窃指责，反击CNN借闫博士团队成员使用笔名而非真实姓名署名发表文章来攻击文章的可信性和可靠性，反击CNN无端指责论文某些引用不符合所谓的“既定模式”，反击CNN借论文受到法治基金、法治社会的支持而试图给论文的科学性、严谨性贴上政治不正确的标签，反击CNN邀请的一系列跟中共有千丝万缕联系的科学家对闫博士及其团队论文的空洞无物的批评，反击CNN污蔑闫博士不接受采访的虚假指责。
+
+
+> It is my Great Honor to announce that General Michael T. Flynn has been granted a Full Pardon. Congratulations to [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) and his wonderful family, I know you will now have a truly fantastic Thanksgiving!
+> — Donald J. Trump (@realDonaldTrump) [November 25, 2020](https://twitter.com/realDonaldTrump/status/1331706255212228608?ref_src=twsrc%5Etfw)
+
+
+
+在川普总统发推后一小时，大律师林伍德（Lin Wood)随即回推，他说，愿上帝保佑我们的川普总统和弗林将军，两个勇气中的男人，他们绝对不会放弃让我们的国家获得自由的努力 ！
+
+
+
+> God bless our President [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) & General Flynn [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw). Two men of courage who will never quit on their efforts to keep our country free.
+> 
+> God bless America. [https://t.co/IFMPIBAzeo](https://t.co/IFMPIBAzeo)
+> — Lin Wood (@LLinWood) [November 25, 2020](https://twitter.com/LLinWood/status/1331718565708357637?ref_src=twsrc%5Etfw)
+
+
+
+自从弗林将军遭＂通俄案＂政治构陷，被迫解职的前国家安全顾问弗林将军获得了大律师鲍威尔的支持，他一直在战斗中！
 
 0

@@ -1,32 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯：川普总统发推特赦弗林将军 大律师林伍德力挺
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/591361/)
+## 【2020年香港施政报告专题（二）】中央支持机管局以市场化规则入股珠海机场
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/591934/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
+搜集：Peacelv 、老广
 
-川普总统二十五日下午发推，
-我非常荣幸的宣布米歇儿弗林将军（General Flynn)已经获得我的全部赫免，祝贺他和他优秀的家人，我知道你们将会有一个真正美妙的感恩节！
+编撰：文燕
 
+审核：WLQF
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26004052/1-jpg.jpg)香港电台
+行政长官林郑月娥表示，中央支持她提出：“容许机管局以市场化规则入股珠海机场的建议，以巩固和提升香港国际航空枢纽地位。”
 
+香港媒体指，林郑月娥在新一份《施政报告》说，机管局自2006年以专营权模式经营管理珠海机场，随着港珠澳大桥启用，通过结合珠海机场的内地网络与香港机场的国际网络，可加强大湾区整体的航空优势，让香港可在航空产业发挥国内国际双循环的重要角色。
 
-> It is my Great Honor to announce that General Michael T. Flynn has been granted a Full Pardon. Congratulations to [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) and his wonderful family, I know you will now have a truly fantastic Thanksgiving!
-> — Donald J. Trump (@realDonaldTrump) [November 25, 2020](https://twitter.com/realDonaldTrump/status/1331706255212228608?ref_src=twsrc%5Etfw)
+特首林郑月娥今日发表新一份《施政报告》，当中提到其访京成果。关于香港国际航空枢纽地位方面，林郑指出，中央支持香港国际机场按市场化原则投资入股珠海机场，参与其运营发展，进一步深化合作，建设有国际竞争力的世界级机场群。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26004103/2-jpg-1.jpg)香港电台
+编者点评：
 
+林郑在施政报告提到，成功争取到香港注资珠海机场，到底是林郑主动争取还是中央觉得具有战略性意义，希望香港推行呢？还是中央财困，希望香港注资，以注资方式贡献中央？
 
+香港本来就是一个国际金融中心，而赤鱲角国际机场也是举世闻名的国际机场，媒体称，赤鱲角国际机场也是中国对外的一个窗口。
 
-在川普总统发推后一小时，大律师林伍德（Lin Wood)随即回推，他说，愿上帝保佑我们的川普总统和弗林将军，两个勇气中的男人，他们绝对不会放弃让我们的国家获得自由的努力 ！
+机管局注资珠海机场，意味着赤鱲角机场和珠海机场会更加紧密地连成一线。未来内地如果有需要通过香港机场这窗口，无须到珠海机场，可以透过香港直飞，这样对内地机场运行更简便。笔者估计这可能就是所谓的战略性优势吧！要是将来赤鱲角机场和珠海机场两连成一线，从国内地的角度当然方便，当从香港地位来说，香港与珠海还有什么分别呢？
 
+林郑这份施政报告，明显放弃香港作为国际城市的优势，只是强调融入大湾区。一面倒地将香港未来放在大湾区与国家发展，融入大陆的双循环，成为内循环参与者与外循环促成者。怪不得有民众调侃林郑这份《施政报告》应称为《大湾区报告》更恰当。
 
+以上观点仅代表笔者本人
 
-> God bless our President [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) & General Flynn [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw). Two men of courage who will never quit on their efforts to keep our country free.
-> 
-> God bless America. [https://t.co/IFMPIBAzeo](https://t.co/IFMPIBAzeo)
-> — Lin Wood (@LLinWood) [November 25, 2020](https://twitter.com/LLinWood/status/1331718565708357637?ref_src=twsrc%5Etfw)
+**施政报告专题：**
 
+**[【2020年香港施政报告专题】（一）林郑月娥：不会放弃「明日大屿」项目 积极探讨融资方案](https://gnews.org/zh-hans/590707/)**
 
+[【2020年香港施政报告专题】（二）中央支持机管局以市场化规则入股珠海机场](https://gnews.org/zh-hans/591934/)
 
-自从弗林将军遭＂通俄案＂政治构陷，被迫解职的前国家安全顾问弗林将军获得了大律师鲍威尔的支持，他一直在战斗中！
+资料来源：香港电台
+
+[https://news.rthk.hk/rthk/ch/component/k2/1561834-20201125.htm](https://news.rthk.hk/rthk/ch/component/k2/1561834-20201125.htm)
 
 0

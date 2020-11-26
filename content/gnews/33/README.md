@@ -1,36 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “多猫腻”系统 在美国Goddy.Com注册,域名登记公司在湖南
-` 喜马拉雅凤凰农场–旧金山-金喜站` [轉載自GNews](https://gnews.org/zh-hans/592081/)
+## 【12 港人送中案】葡萄牙环保部长致函北京　要求探望郭子麟　表明无休止关注事件【跟踪报导】
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/592163/)
 
-作者：**迷迭香 Rosemary**，** 凤凰农场**-旧金山
+编撰：文悦
 
-通过网上域名追踪，“多猫腻”公司在北美有三个办公室，一个在科洛拉多的丹佛，，一个在纽约的乔治城，一个在加拿大的多伦多。域名有一家湖南的公司在美国注册，所用的服务器设在福建泉州的数据中心。
+审核：WLQF
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26020251/eu-01_GMOJi_1200x0.png)图片：立场新闻
+据立场新闻25日报道，葡萄牙环境保护部部长伊莎贝尔·桑托斯（Isabel Santos）日前致函中国政府，表达希望探视曾参与反修例运动、于今年8 月海上被捕的香港青年郭子麟。郭同时持有中国和葡萄牙护照，尽管中国不承认双重国籍，但桑托斯认为有必要争取中国当局公布被捕人士更多信息，争取早日释放郭子麟。
 
-“多猫腻”的域名：dominionvotingsystems.com 目前已被删除。但是网上档案中可以找到：
+年仅 18 岁的郭子麟是其中一名「12 港人」，目前仍被拘留在深圳盐田看守所。郭至今仍未能与他的父亲及家属委托律师取得联系。
 
-Archive of the dominionvotingsystems.com
+桑托斯早前在自己网站表示，已致函中国外交部长及司法部长，要求访问具有双重国籍、18 岁的郭子麟。她指郭子麟持有葡萄牙及香港特区护照，自 8 月份以来一直在深圳的盐田看守所被羁押。她形容现时在香港实施的《国家安全法》「凶险」（葡文：sinistra）。对于郭子麟被指参与暴动，她指现时当局越来越多地利用这一指控，来遏制民众起义（葡文：revolta popular ）和在香港街头争取民主的斗争。
 
-https://web.archive.org/web/20110207174748/http://www.dominionvoting.com/
-![Graphical user interface, website
-Description automatically generated](https://lh4.googleusercontent.com/wKSarosOXUKCrC5kMbZjYPPtfq6S1n5qAIL9niAezU-CMoee40IKA1MVcrGXAMxojafKoLAsUHw_y2s_H39iKWhoFUBvEkaR9f_VCQcElZ8a9XNpBd-NIW7K54GtAed_QH6JvF0)
-跟踪“多猫腻”域名，注册地在湖南，2020年5月更新：
-![Graphical user interface, website
-Description automatically generated](https://lh4.googleusercontent.com/bsKpBBfdVeekAz56nOAKO_5KbgcreYmQJr9CsnbjHKv68LEdPPLId-QAsdBsTcCsV2YqzeAbIUT27ErkruzTYXW7ocT3_qhrXgjBJrXX--7Ugu20XHyu6DncUGjBhnm4V9BO4lY)
-域名搜索结果，在美国godaddy.com 注册,由一家湖南的公司注册，公司名字被删除。
-![Graphical user interface, text, application
-Description automatically generated](https://lh5.googleusercontent.com/eSYFaeGHaJcYoO5tEUf6e9Gy2figDkV0Ph7jgWx4oLUyuv71BjaaZQesZ63rFoVVzP9wu7lAhi1elIiJrRCTNSnZNeCL0XKvAFtqUIsEV5FNPVmOFzBeine1l0C-tfnQefSIer8)
-在美国的联系方式：
-![Graphical user interface, text, application
-Description automatically generated](https://lh6.googleusercontent.com/cLgHYE1FZV4F4klLCeVWhW5brGfQk8_QQBSEvVqIjxKEK0LuW3MNyOZ98RxyTx5Vow2hkqKQD54jPLvmkhP0s-Ncdua2SALgNYF1W4RkGfZ6_XvuVx5URTeyZu7XzfiPJaFkNSM)
-从加州traceroute追随到香港 ， 见第12步
-![Text
-Description automatically generated](https://lh6.googleusercontent.com/LFAlXZRuiw6e7iu_2OxUMNkHlw4GQZSChrF2Vh1DWKABPaNbnuBQ4TYyHXNs47EJRANEXOiqtxaRR-JRXO6tOHeowj8GquKOsDpKyqiRU9bYO27X-LqHSsHv7ihIcMXBudclQZM)
-网上推特：
+除了致函中国外交部及司法部长外，桑托斯还向中国驻里斯本大使和中国驻欧盟代表团团长通报这项要求。她亦要求欧盟外交与安全政策高级代表兼欧盟委员会副主席博雷尔（Josep Borrell）介入事件，「以捍卫这位葡萄牙公民的权利」。桑托斯指自己对所有人表达对郭子麟的深切关注，因为他是个具葡萄牙国籍的学生，同时亦关心和郭子麟有相同处境的其他 11 名港人。她指自己作为欧洲议会议员，会捍卫人权和民主与自由的价值观，将采取她认为必要的所有主动行动，承诺会无休止地继续关注事件，「这是一个值得所有人为捍卫这些价值观而动员起来的原因……我要求你加入我的争取。」
 
-这个人说服务器在泉州的一个数据中心。![Graphical user interface, text, application, chat or text message
-Description automatically generated](https://lh3.googleusercontent.com/2nWLUwn-wy3xfo66p8afUOrMmv5uJ5f33zr9qAcb6vQ_v8hLD9-eD7JhURNt4AJtzXqlwhBPf1b7hQcGXg_yppN-jOThELqtmqjQzGzBeaNGR2FE5y5TGZEFtdzgVPfrv9fY_js)
-![Graphical user interface, text, application, email
-Description automatically generated](https://lh6.googleusercontent.com/HX1ODYdAMhswK8nmAJH5-Wn6vZ1lhAFl7XJ1hBfrdy3BLZ9V4_mSP5xCSLPogC__VXTcG4moD_Dqove0cdbFptLyUMkb-muu5KFjmlqIoZkNGF31g5JIs8cQquFE9oE2ElcgG7k)
-1+
+编者观点：
+
+现在的港共政权天天有抓捕异己的行动，一言不合就取消专业教师资格砸人饭碗毁人终身；大学当局和警察串通一气，把黑手伸向手无寸铁在校内和平抗议的年轻学生；「黄店」东主屡遭骚扰等等。就像天主教香港教区荣休主教陈日君最近接受外媒专访时形容，国安法「可怕」、「是巨大的背叛」，香港无人感到安全。陈还鼓励港人移民，明言教育已被用作洗脑，「港人已经失去了一切」。
+
+梁继平曾说「真正连结香港人的，在语言、价值之外，是痛苦」，多么锥心泣血的话语！文贵先生与爆料革命，没有一天不提醒大家港人的勇气和牺牲，香港是中国的圣城耶路撒冷。
+
+11月25号郭先生在他的盖文中写到「这个世界只有．我们的爆料革命新中国联邦……真心对港同胞……无私无欲无求的．一直为香港的安全和利益的奋斗。我们从未停止过，只有我们可以在美国在世界．真正的维护香港的利益……从今天开始．接下来美国将一系列的有效行动，针对香港及中共．一些企业和个人进行惩罚。这是有效的真实的行动，只有爆料革命才能让这些发生……永不会忘记香港同胞付出的一切……香港是我们的圣城！」
+
+以上观点仅代表本人
+
+资料来源：
+
+[https://www.thestandnews.com/politics/12-%E6%B8%AF%E4%BA%BA%E9%80%81%E4%B8%AD-%E8%91%A1%E5%9C%8B%E7%92%B0%E4%BF%9D%E9%83%A8%E9%95%B7%E8%87%B4%E5%87%BD%E5%8C%97%E4%BA%AC-%E8%A6%81%E6%B1%82%E6%8E%A2%E6%9C%9B%E9%83%AD%E5%AD%90%E9%BA%9F-%E8%A1%A8%E6%98%8E%E7%84%A1%E4%BC%91%E6%AD%A2%E9%97%9C%E6%B3%A8%E4%BA%8B%E4%BB%B6/](https://www.thestandnews.com/politics/12-%E6%B8%AF%E4%BA%BA%E9%80%81%E4%B8%AD-%E8%91%A1%E5%9C%8B%E7%92%B0%E4%BF%9D%E9%83%A8%E9%95%B7%E8%87%B4%E5%87%BD%E5%8C%97%E4%BA%AC-%E8%A6%81%E6%B1%82%E6%8E%A2%E6%9C%9B%E9%83%AD%E5%AD%90%E9%BA%9F-%E8%A1%A8%E6%98%8E%E7%84%A1%E4%BC%91%E6%AD%A2%E9%97%9C%E6%B3%A8%E4%BA%8B%E4%BB%B6/)
+
+0

@@ -1,47 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【2020年香港施政报告专题】（三）「大湾区青年就业计划」供2000名本地大学生内地城市工作
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/592083/)
+## “多猫腻”系统 在美国Goddy.Com注册,域名登记公司在湖南
+` 喜马拉雅凤凰农场–旧金山-金喜站` [轉載自GNews](https://gnews.org/zh-hans/592081/)
 
-搜集：Peacelv 、老广
+作者：**迷迭香 Rosemary**，** 凤凰农场**-旧金山
 
-编撰：文燕
+通过网上域名追踪，“多猫腻”公司在北美有三个办公室，一个在科洛拉多的丹佛，，一个在纽约的乔治城，一个在加拿大的多伦多。域名有一家湖南的公司在美国注册，所用的服务器设在福建泉州的数据中心。
 
-审核：WLQF
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26013257/2-100.jpg)
-特首林郑月娥今（25日）发表任内第四份《施政报告》，她表示，为鼓励和支持青年人到大湾区内地城市工作和发展事业，政府将推出「大湾区青年就业计划」 ，鼓励在香港及大湾区有业务的企业，聘请及派驻本地大学毕业生到大湾区内地城市工作，名额2000个，当中部分为早前提及的创科职位。
+“多猫腻”的域名：dominionvotingsystems.com 目前已被删除。但是网上档案中可以找到：
 
-青年发展委员会去年已在「青年发展基金」下推出全新的「粤港澳大湾区青年创业资助计划」（「青年创业计划」）。林郑月娥称，当新型冠状病毒疫情稳定及恢复跨境旅游后，民政事务局会资助10多个非政府机构推行「青年创业计划」，预计批出约1亿元，为近200家青年初创企业提供资助及向约4000名青年提供服务。
+Archive of the dominionvotingsystems.com
 
-林郑月娥补充，广东及各大湾区内地城市已同意支持这个计划，并会提供共享工作基地，以及让香港青年享有与内地青年相同的待遇和支援。此外，政府将成立「大湾区香港青年创新创业基地联盟」，作为一站式资讯、宣传及交流平台，进一步支持香港青年在大湾区创新创业。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26013934/3-78.jpg)
-编者点评：
+https://web.archive.org/web/20110207174748/http://www.dominionvoting.com/
+![Graphical user interface, website
+Description automatically generated](https://lh4.googleusercontent.com/wKSarosOXUKCrC5kMbZjYPPtfq6S1n5qAIL9niAezU-CMoee40IKA1MVcrGXAMxojafKoLAsUHw_y2s_H39iKWhoFUBvEkaR9f_VCQcElZ8a9XNpBd-NIW7K54GtAed_QH6JvF0)
+跟踪“多猫腻”域名，注册地在湖南，2020年5月更新：
+![Graphical user interface, website
+Description automatically generated](https://lh4.googleusercontent.com/bsKpBBfdVeekAz56nOAKO_5KbgcreYmQJr9CsnbjHKv68LEdPPLId-QAsdBsTcCsV2YqzeAbIUT27ErkruzTYXW7ocT3_qhrXgjBJrXX--7Ugu20XHyu6DncUGjBhnm4V9BO4lY)
+域名搜索结果，在美国godaddy.com 注册,由一家湖南的公司注册，公司名字被删除。
+![Graphical user interface, text, application
+Description automatically generated](https://lh5.googleusercontent.com/eSYFaeGHaJcYoO5tEUf6e9Gy2figDkV0Ph7jgWx4oLUyuv71BjaaZQesZ63rFoVVzP9wu7lAhi1elIiJrRCTNSnZNeCL0XKvAFtqUIsEV5FNPVmOFzBeine1l0C-tfnQefSIer8)
+在美国的联系方式：
+![Graphical user interface, text, application
+Description automatically generated](https://lh6.googleusercontent.com/cLgHYE1FZV4F4klLCeVWhW5brGfQk8_QQBSEvVqIjxKEK0LuW3MNyOZ98RxyTx5Vow2hkqKQD54jPLvmkhP0s-Ncdua2SALgNYF1W4RkGfZ6_XvuVx5URTeyZu7XzfiPJaFkNSM)
+从加州traceroute追随到香港 ， 见第12步
+![Text
+Description automatically generated](https://lh6.googleusercontent.com/LFAlXZRuiw6e7iu_2OxUMNkHlw4GQZSChrF2Vh1DWKABPaNbnuBQ4TYyHXNs47EJRANEXOiqtxaRR-JRXO6tOHeowj8GquKOsDpKyqiRU9bYO27X-LqHSsHv7ihIcMXBudclQZM)
+网上推特：
 
-林郑为鼓励和支持青年人到大湾区内地城市工作和发展事业，林郑到底是为香港年轻人着想，还是另有目的？
-
-我们都知道，深圳广州以至于整个大湾区都面临外资撤离，大量工场倒闭，商店结业，社会失业待业已成新常态。
-
-其次，在中共的社会工作，一切都讲关系，一切都讲后台。一个年轻人要往上爬，靠个人实力是次要，最重要的是人际关系。这里没有所谓的公平竞争，更多的是靠「拼爹」和人脉。对于一班操广东话、普通话并不流畅的香港年轻人，能有前途吗？
-
-但是，令人不解的是，林郑为什么硬要把香港年轻人往大湾区推？
-
-这2000名本地大学生一旦到内地城市工作，首先他们必须在当地租房或买房，有个落脚的地方。由于家人在香港，那么他们将两地来往，父母在探望孩子时也会消费，或者顺便在当地购物。换句话说，相对比较有购买力港人把资金带到内地，有助于推动当地的消费市场，这绝对有利于带动内地的经济发展，并切实帮助解决当地过剩的地产市场。
-
-那么我们就不难理解，林郑硬推「大湾区青年就业计划」是另有目的。
-
-公民党油尖旺区议会副主席余德宝形容报告实为「出卖年青人报告」。报告主要论调为鼓励年轻人到大湾区就业和居住，使香港不单将资产输出至大湾区，连最重要的人才也要出卖大湾区。
-
-以上观点仅代表笔者本人
-
-资料来源：明报
-
-[https://news.mingpao.com/ins/%E6%96%BD%E6%94%BF%E5%A0%B1%E5%91%8A/article/20201125/special/1606282112047](https://news.mingpao.com/ins/%E6%96%BD%E6%94%BF%E5%A0%B1%E5%91%8A/article/20201125/special/1606282112047)
-
-**施政报告专题：**
-
-[**【2020年香港施政报告专题】（一）林郑月娥：不会放弃「明日大屿」项目 积极探讨融资方案**](https://gnews.org/zh-hans/590707/)
-
-[【2020年香港施政报告专题】（二）中央支持机管局以市场化规则入股珠海机场](https://gnews.org/zh-hans/591934/)
-
-0
+这个人说服务器在泉州的一个数据中心。![Graphical user interface, text, application, chat or text message
+Description automatically generated](https://lh3.googleusercontent.com/2nWLUwn-wy3xfo66p8afUOrMmv5uJ5f33zr9qAcb6vQ_v8hLD9-eD7JhURNt4AJtzXqlwhBPf1b7hQcGXg_yppN-jOThELqtmqjQzGzBeaNGR2FE5y5TGZEFtdzgVPfrv9fY_js)
+![Graphical user interface, text, application, email
+Description automatically generated](https://lh6.googleusercontent.com/HX1ODYdAMhswK8nmAJH5-Wn6vZ1lhAFl7XJ1hBfrdy3BLZ9V4_mSP5xCSLPogC__VXTcG4moD_Dqove0cdbFptLyUMkb-muu5KFjmlqIoZkNGF31g5JIs8cQquFE9oE2ElcgG7k)
+1+

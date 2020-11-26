@@ -1,24 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯：川普总统取消宾州盖兹堡行程，因团队一成员染疫
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/592319/)
+## 《路德社》精选新闻简讯：朱利安尼发推宾州即将司法反转
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/592249/)
 
 出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-据OANN早间新闻当家主播斯蒂芬妮尔·迈尔丝（Stephanie Myers）推特，因为川普团队一名成员在中共病毒测试中呈阳性，川普总统已经取消了前往宾西法尼亚盖兹堡行程！
+朱利安尼发推：宾夕法尼亚州法院刚刚批准我们通过审判决定选举结果的议案，意味着将由川普总统的同事组成的陪审团决定被操纵的2020年大选。
+这12位爱国者将决定大选存在欺诈，川普总统已压倒性获胜。
+
+BREAKING: PA Federal Court just granted our Motion for Election Determination by Trial, which means, the RIGGED 2020 election will be determined by a jury of DJT’s peers.
+These 12 PATRIOTS will determine there was FRAUD and the @realDonaldTrump WON BY A LANDSLIDE HUGE!
+本条推表明朱利安尼在宾州的法律诉讼即将胜利，证实宾州存在大选欺诈。
 
 
 
-> [#BREAKING](https://twitter.com/hashtag/BREAKING?src=hash&amp;ref_src=twsrc%5Etfw) President Trump's planned trip to Gettysburg, Pennsylvania is off after a member of the campaign tested positive for COVID-19.
-> — Stephanie Myers (@\_StephanieMyers) [November 25, 2020](https://twitter.com/_StephanieMyers/status/1331629866928590849?ref_src=twsrc%5Etfw)
+> BREAKING: PA Federal Court just granted our Motion for Election Determination by Trial, which means, the RIGGED 2020 election will be determined by a jury of DJT's peers.
+> 
+> These 12 PATRIOTS will determine there was FRAUD and the [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) WON BY A LANDSLIDE
+> 
+> HUGE!
+> 
+> 🇺🇸🇺🇸🇺🇸 [pic.twitter.com/bGmGagHLHy](https://t.co/bGmGagHLHy)
+> — Rudy W. Giuliani (@MrRudyGiuliani) [November 25, 2020](https://twitter.com/MrRudyGiuliani/status/1331712783361171466?ref_src=twsrc%5Etfw)
 
 
 
-有左派媒体称感染者为川普团队的一名高级顾问，且川普总统的私人律师朱尼安利也与其有接触，但尚未发现有川普竞选团队官方声明！
-
-自中共病毒肆虐美国以来，上至美国总统、家人及特勤人员，下至普通百姓，令人奇怪的是，染疫的多为共和党人，少有民主党人！就在几天前，川普总统的长子和朱尼安尼的儿子也被确诊染上中共病毒！
-
-[援引原文](https://twitter.com/_stephaniemyers/status/1331629866928590849?s=24)
+[援引原文](https://twitter.com/mrrudygiuliani/status/1331712783361171466?s=24)
 
 0
