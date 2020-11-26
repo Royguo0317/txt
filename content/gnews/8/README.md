@@ -1,23 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 学者配合中共整肃高校和学生：大v教授李淼污衊内地学生为香港废青
-` GM06` [轉載自GNews](https://gnews.org/zh-hans/592748/)
+## 文贵说｜系列图片连载（五十七）
+` GM98` [轉載自GNews](https://gnews.org/zh-hans/592931/)
 
-作者：文徬
+## 393.
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26083959/203.png)
+每个人的行为都是有痕迹的，你回不到过去了。
 
-11月25日，国家杰出青年科学基金获得者，南方科技大学教授李淼在香港中文大学（深圳）讲座，公开讲黄段子，被学生质疑。随后，李淼在微博上给学生、学校扣香港废青的帽子。
+——郭文贵先生2020年7月27日
 
-李教授在名为“黑洞的物理与数学”的讲座中说：“法国人把黑洞想歪了，黑洞嘛，black hole”，接着咯咯笑着说：“男生再想一想，女生就不要想了”。有女生在提问环节问道:“您说的 black hole是啥意思呀，想不明白。” “您为什么要在这样的场合，讲一个您不敢讲清楚的东西呢？我不希望您回答,我只是问一下。” 李教授向该女生表示歉意，并要求将这一段从录像里剪掉。
+## 394.
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26084031/201.png)
+CCP是人类的威胁，共产党是人类的威胁。
 
-11月26日，李教授在微博发帖，“香港的废青居然发展到大陆来了”，“有提问女生的照片”，威胁要采取法律行动，並請政府當局介入。
+——郭文贵先生2020年7月27日
 
-香港中文大学（深圳）是依据国务院2003年《中外合作办学条例》创办的高校，学生课程中没有安排占据国内高校学生三分之一学分的马列课程。该类学校在国内仅存几所。李淼教授，一个国内高校知名学者，大v，为什么甘愿为中共整肃学校和学生的自由思想和言论提供借口呢？
+## 395.
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26084054/117-2.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26084308/114-1.jpg)
+我们新联邦的国旗未来就得受到这样的尊重，每个人要像爱自己一样爱这个国旗，因为那不是国旗，那是你的信仰，是你的标志。
 
+——郭文贵先生2020年7月27日
 
+## 396.
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26084126/116-scaled.jpg)
+民主运动的几大特征，首先钱是来自于全民自动的支持、经济支持，而不是来自于什么军阀、财阀，不是的，那就真的是叫黑社会组织或非法组织。
 
-[https://www.sustech.edu.cn//zh/limiao.html](https://www.sustech.edu.cn//zh/limiao.html)
+——郭文贵先生2020年7月27日
 
-[https://weibo.com/yesi?is\_all=1#\_loginLayer\_1606388768980](https://weibo.com/yesi?is_all=1#_loginLayer_1606388768980)
+## 397.
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26084353/115-scaled.jpg)
+冒着巨大的风险，自己的付出是造福很多其他人的，这就叫民主领导者和真正的人类发展当中这叫精英。
+
+——郭文贵先生2020年7月27日
+
+## 398.
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26084231/113.jpg)
+每个人的行为都是有痕迹的，你回不到过去了。
+
+——郭文贵先生2020年7月27日
+
+## 399.
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26084430/112.jpg)
+在海外只有两种华人，一种未来你就是彻彻底底的你就是跟共产党站在一起；一种就是支持新中国联邦的。不存在中间人。
+
+——郭文贵先生2020年7月27日
 
 0

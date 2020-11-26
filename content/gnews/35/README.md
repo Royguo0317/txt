@@ -1,36 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “多猫腻”系统 在美国Goddy.Com注册,域名登记公司在湖南
-` 喜马拉雅凤凰农场–旧金山-金喜站` [轉載自GNews](https://gnews.org/zh-hans/592081/)
+## 【留下真实的历史是我们的使命】（之四）【文章的分类】
+` JP007` [轉載自GNews](https://gnews.org/zh-hans/592293/)
 
-作者：**迷迭香 Rosemary**，** 凤凰农场**-旧金山
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26035527/%E7%95%99%E4%B8%8B%E7%9C%9F%E5%AE%9E%E7%9A%84%E5%8E%86%E5%8F%B2%E6%98%AF%E6%88%91%E4%BB%AC%E7%9A%84%E4%BD%BF%E5%91%BD22-1.png)
+**作者：东京富士会 待命（文晓）**
 
-通过网上域名追踪，“多猫腻”公司在北美有三个办公室，一个在科洛拉多的丹佛，，一个在纽约的乔治城，一个在加拿大的多伦多。域名有一家湖南的公司在美国注册，所用的服务器设在福建泉州的数据中心。
+文章在不同的场合有不同的分类方式。
 
-“多猫腻”的域名：dominionvotingsystems.com 目前已被删除。但是网上档案中可以找到：
+1、按文学样式分：一般分为小说、诗歌、散文、戏剧。
 
-Archive of the dominionvotingsystems.com
+2、按中小学作文分：一般分为记叙文、说明文、议论文、应用文。
 
-https://web.archive.org/web/20110207174748/http://www.dominionvoting.com/
-![Graphical user interface, website
-Description automatically generated](https://lh4.googleusercontent.com/wKSarosOXUKCrC5kMbZjYPPtfq6S1n5qAIL9niAezU-CMoee40IKA1MVcrGXAMxojafKoLAsUHw_y2s_H39iKWhoFUBvEkaR9f_VCQcElZ8a9XNpBd-NIW7K54GtAed_QH6JvF0)
-跟踪“多猫腻”域名，注册地在湖南，2020年5月更新：
-![Graphical user interface, website
-Description automatically generated](https://lh4.googleusercontent.com/bsKpBBfdVeekAz56nOAKO_5KbgcreYmQJr9CsnbjHKv68LEdPPLId-QAsdBsTcCsV2YqzeAbIUT27ErkruzTYXW7ocT3_qhrXgjBJrXX--7Ugu20XHyu6DncUGjBhnm4V9BO4lY)
-域名搜索结果，在美国godaddy.com 注册,由一家湖南的公司注册，公司名字被删除。
-![Graphical user interface, text, application
-Description automatically generated](https://lh5.googleusercontent.com/eSYFaeGHaJcYoO5tEUf6e9Gy2figDkV0Ph7jgWx4oLUyuv71BjaaZQesZ63rFoVVzP9wu7lAhi1elIiJrRCTNSnZNeCL0XKvAFtqUIsEV5FNPVmOFzBeine1l0C-tfnQefSIer8)
-在美国的联系方式：
-![Graphical user interface, text, application
-Description automatically generated](https://lh6.googleusercontent.com/cLgHYE1FZV4F4klLCeVWhW5brGfQk8_QQBSEvVqIjxKEK0LuW3MNyOZ98RxyTx5Vow2hkqKQD54jPLvmkhP0s-Ncdua2SALgNYF1W4RkGfZ6_XvuVx5URTeyZu7XzfiPJaFkNSM)
-从加州traceroute追随到香港 ， 见第12步
-![Text
-Description automatically generated](https://lh6.googleusercontent.com/LFAlXZRuiw6e7iu_2OxUMNkHlw4GQZSChrF2Vh1DWKABPaNbnuBQ4TYyHXNs47EJRANEXOiqtxaRR-JRXO6tOHeowj8GquKOsDpKyqiRU9bYO27X-LqHSsHv7ihIcMXBudclQZM)
-网上推特：
+3、按考场作文分：一般分为命题作文、半命题作文、材料作文、话题作文、看图作文。
 
-这个人说服务器在泉州的一个数据中心。![Graphical user interface, text, application, chat or text message
-Description automatically generated](https://lh3.googleusercontent.com/2nWLUwn-wy3xfo66p8afUOrMmv5uJ5f33zr9qAcb6vQ_v8hLD9-eD7JhURNt4AJtzXqlwhBPf1b7hQcGXg_yppN-jOThELqtmqjQzGzBeaNGR2FE5y5TGZEFtdzgVPfrv9fY_js)
-![Graphical user interface, text, application, email
-Description automatically generated](https://lh6.googleusercontent.com/HX1ODYdAMhswK8nmAJH5-Wn6vZ1lhAFl7XJ1hBfrdy3BLZ9V4_mSP5xCSLPogC__VXTcG4moD_Dqove0cdbFptLyUMkb-muu5KFjmlqIoZkNGF31g5JIs8cQquFE9oE2ElcgG7k)
-1+
+目前爆料革命最常用的，应该是第二类，即记叙文、说明文、议论文、应用文。
+
+1、    记叙文，是以记人、叙事、写景、状物为主，以写人物的经历和事物发展变化为主要内容的一种文体形式。记叙文是以事感人，以知授人的文章。
+
+记叙文的基本是：一定要写清起因、经过、结果。如果当中加上适当的人物、描写神态、动
+
+作、心里等就更是有血有肉的好文章了。
+
+例如：美国大选的真相彻底被揭穿那一天，一定会有文章把整个选举作弊全过程曝光于天
+
+下。这样的文章，就属于记叙文。
+
+2、说明文，是以说明为主要表达方式的文章体裁。通过对客观事物做出说明或对抽象事理予以阐释，使人们对事物的形态、构造、性质、种类、成因、功能、关系或对事理的概念、特点、来源、演变、异同等能有科学的认识。
+
+例如：广告、说明书、规则、章程、解说词、GTV里常见的，战友们总结出的，简明易懂的社交平台使用技巧等，都属于说明文。
+
+3、议论文，又叫说理文。是一种剖析事物、论述事理、发表意见、提出主张的文体。是通过摆事实、讲道理、辨是非、举例子等方法，来确定其观点正确或错误，树立或否定某种主张。议论文要求观点明确、论据充分、语言精炼、论证合理、有严密的逻辑性。
+
+议论文的最基本要素是：论点、论据、论证。
+
+例如：律师的证词、闫博士的CCP病毒报告都属于议论文。
+
+4、应用文，是人类在长期的社会实践活动中形成的，在处理公私事务时经常使用的实用性文体。是保证人们日常生活和工作正常运转的重要工具，是人际交往中必不可少的重要文体。
+
+例如：请求书、委托书、合同书等都属于应用文。
+
+0
