@@ -1,57 +1,96 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆革星评：美国已经处在战争状态
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/591406/)
+## 密歇根州韦恩县最大的群体投票竟然来自于精神病院
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/591744/)
 
-多伦多枫叶农场 文星（一号）
+蒙特利尔战友团 Tao
+校对 上传 云起时
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25234651/mad.jpg)图片来源：Mad in America
+据Gateway Pundit在11月22日的报道，密歇根州韦恩县（Wayne County）最大的群体投票竟来自收治重度精神疾病患者的精神病医院。
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25194436/%E4%BA%89.jpg)图片来自 Cointelegraph
-中共病毒仍在肆虐，许多无辜的美国百姓每天还在死去。川普团队律师林·伍德多次发推，直接指出中共向美国投放了病毒，发动了生化战争。
+数据分析专家莎拉-伊格尔斯菲尔德（Sarah Eaglesfield）在推特上发布了她在研究密歇根州韦恩县2020年11月大选数据时的一些有趣的发现。目前，她的研究重心放在了密歇根州韦恩县的群体投票上。韦恩县俨然已经成了密歇根州选举舞弊的重灾区，目前已经收到了数百份目击者的证词，这些证词中包括了选举欺诈，选举工作人员对监督员的恐吓，以及民主党活动人士居然出现在邮寄选票的计票中心。
 
-前纽约市长、川普法律团队领队朱利安尼则不断向社会发布视频，指出拜登集团及其背后中共操纵了美国大选。
+莎拉在她11月21日发布的推特中写道：
+在2020总统大选中，密歇根州韦恩县群体投票数量依次是：
+精神病院
+公寓楼 （没有公寓号）
+修女院
+四季 (The Four Seasons) 老人护理机构
+流浪者救助站
 
-11月25日，唯一一个可指控“叛国罪”的大律师鲍威尔发推，直接指出川普总统实际获得了410张选举人选票，拜登集团偷窃了支持川普总统的巨量选票。鲍威尔律师还指出，美国国防部的网络战计划（Kraken)早已实施， 它跟踪系统并获取了“深层政府”所犯下的邪恶活动和犯罪的证据。
+莎拉第二日在Twitter上分享了她的研究所使用的数据源。她把该数据源也一并抄送给了始终坚称韦恩县不存在选举舞弊，也没有任何恐吓计票监察员情况发生的密歇根民主党州务卿 乔克林-本森（Joclyn Benson），川普总统选举团队律师西德尼-鲍威尔（Sidney Powell），川普总统以及乔拜登。
 
-上述种种行动，都说明川普总统重在行动的实干家风格。就像斩首伊朗苏莱曼尼、以色列中东签订和平协议的闪电行动一样，川普总统正在推动一场历史上罕见的保卫美国和宪法、维护民主法治价值观的特别行动，不仅仅是要让美国继续伟大了，实际美国已经处于战争状态
+精神病院
 
-自11月3日拜登集团擅自停止计票那一刻起，川普总统立即组成法律团队进行反击，并动用据说11个行动计划进行取证和准备。后面的一系列动作，都说明，美国正在由隐形战争状态向公开战争状态发展。
+韦恩县收到的最大的一批群体选票来自于Walter P. Reuther医院，该医院为患有严重精神疾病的成人提供治疗、护理和服务。该院有97名病患者申请了投票或登记了邮寄选票，其中有78人已经完成了投票。
 
-11月9日，川普更换国防部长，富有反恐经验的克里斯·米勒被任命为代理国防部长。
+鉴于该精神病院明确表示它是为患有严重精神疾病的人服务的，因此应该调查这些选民是否具备行使和支配自己意志的能力，以及他们的选票是否被滥用。据了解，在密西根州虽然法律允许对特殊选民的投票认知能力进行测试评估，但是却没有这样的测试。
 
-11月12日，川普宣布美国进入国家紧急状态。
+没有公寓号的公寓楼
 
-11月18日，代理国防部长克里斯·米勒（Chris Miller）宣布，美军所有特种作战部队及情报部门向他直接汇报，强调“ 要避开当前的官僚汇报渠道”。
+韦恩县的选举数据中最突出的问题是邮寄地址一栏的数据没有标准化。这是软件的一个缺陷，该缺陷可能被别有用心的人利用，进而进行选举欺诈。
 
-大律师林·伍德自11月8日正式加入川普总统法律团队后至今，不断发推直接指出中共向美国发动了生化战争。
+例如，有些地址用州名的缩写，有些则用州名的全称。有些地址将房屋街道号码单独列为一栏，有些则将其与街道名称放在一起。在某种特定情况下，邮政编码被用来验证填写的地址是否正确。
 
-再到西德尼·鲍威尔律师11月25日指出，美国的网络战计划正在行动中。川普总统和军事与太空司令部的忠实爱国者现在拥有所有关于 选民欺诈和与选举有关的叛国罪的证据。 这将被用来对抗美国的敌人！
+居住地址一栏也存在着同样的问题，公寓的号码没有固定的格式。公寓号码有时用”#”表示，有时用”Apt”，还有用”Apartment”的，这意味着同一街区的同一公寓号码在系统中可以用不同的方式存储，虽然是同一个居住地址，但是在系统看来却是不同的。这使得同一个选民可以收到一个以上的选民号码。
 
-所谓敌人，对内就是涉嫌叛国罪的拜登集团，对外就是已经对美国发动生化战争的中共。根据美国大选的大量证据，正如链接报道中所说：
+举个例子，同一个名字、中间名、地址和出生年月的人，被系统分配了两个不同的选民号码，投了两次票，从而被计算了两次。究其原因，原本同一个地址由于在系统中存储的格式不同，系统认为是两个完全不同的地址。系统中存储的这个两个地址分别是：
+PIO BOX 32910 FORT ST POST OFFICE, DETROIT, MI 48323 和
+PO BOX 32910, DETROIT, MI 48232-0910
 
-“我们在2020年选举中所看到的不是选举， 我们目睹的是推翻美国政府的企图。 中央情报局，联邦调查局和司法部到处充斥着“千篇一律的沼泽老鼠”，意在抢夺总统席位，并接管美国以实现全球秩序。 他们（中共）是邪恶的全球化主义者，他们大胆地推动政变摧毁美国，实现全球重置，并迎来了《联合国2030年议程》，这是《 21世纪可持续发展议程》的修订版。 世界各地的公民都受到同样的封锁。 他们会成功吗？ 答案是不！”
+由于系统在地址格式方面存在严重的问题，很难对集体选民进行详细的分析。例如，在有些公寓居住区，一些居民甚至连公寓的号码也没有提供。
 
-无论信不信，美国已经处于战争状态，郭先生又要进深山，美国随时会发动雷霆行动！结束中共作恶的时候到了。
+修女院
 
-参考链接：https://themarshallreport.wordpress.com/2020/11/22/sidney-powells-kraken-is-dod-cyber-warfare-program-we-are-at-war/
+利沃尼亚（Livonia）的费利西亚姐妹（Felician Sisters）修女院在2020年5月份因CCP病毒而不幸失去了13名修女，这些去世的修女已经从选举的名单中剔除，这本来无可厚非，值得玩味的是，这些天主教修女们曾在密歇根州以及其他州站出来公开支持川普总统，密歇根州在选民名单中剔除了去世修女的名字，但是整个密歇根州其他去世的选民的名字却还在名单中。
 
+四季老人护理机构 （Four Seasons Care Facility）
 
+韦恩县内有大量的老年人护理中心。数据分析发现，有两例老人在10月份已经过世，但是他们的选票仍然被投送和计算。这本身没有什么大问题，但是有几家护理机构的情况很可疑：四季护理中心（Four Seasons Care）所有居民的选票都在同一天被投送；希望护理中心（Hope Care）有多位已经去世的人投了票，这些死者以前在该中心居住过。
 
-> Have you noticed that no Democratic leader has suffered Covid-19 but Republicans leaders have had more than their fair share?
-> 
-> Or is it just me?
-> 
-> Or is Covid-19 partisan? [pic.twitter.com/PrLkkb6HQQ](https://t.co/PrLkkb6HQQ)
-> — Lin Wood (@LLinWood) [November 25, 2020](https://twitter.com/LLinWood/status/1331500201723486209?ref_src=twsrc%5Etfw)
+流浪者救助站
 
+密歇根州允许流浪者投票的举动似乎取得了成功，从流浪者收容所和救助站收到了不少数量的选票。尽管这些数字无法核实，但在此次被高度关注的大选中，倒也不觉得意外。
 
+除了与群体投票有关的发现，莎拉还公布了更多有关选举违规的证据。
 
+韦恩县的选举数据来源
 
+韦恩县选举数据来源于密歇根州州务卿乔克林-本森（Jocelyn Benson），一共有613,091条记录，每条记录代表了在韦恩县的一次投票，其中包括选民的个人信息（如姓名、家庭住址和出生年份）。它并没有涵盖韦恩县所有的选民数据，只是其中的一部分。
 
-> We The People own our country & our contract of ownership is the Constitution. Let the process to play out![@BarbaraRedgate](https://twitter.com/BarbaraRedgate?ref_src=twsrc%5Etfw) [@GoJackFlynn](https://twitter.com/GoJackFlynn?ref_src=twsrc%5Etfw) [@flynn\_neill](https://twitter.com/flynn_neill?ref_src=twsrc%5Etfw) [@JosephJFlynn1](https://twitter.com/JosephJFlynn1?ref_src=twsrc%5Etfw) [@FieldofFight](https://twitter.com/FieldofFight?ref_src=twsrc%5Etfw) [@tracybeanz](https://twitter.com/tracybeanz?ref_src=twsrc%5Etfw) [@lofly727](https://twitter.com/lofly727?ref_src=twsrc%5Etfw) [@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw) [@marklevinshow](https://twitter.com/marklevinshow?ref_src=twsrc%5Etfw) [#DigitalSoldiers](https://twitter.com/hashtag/DigitalSoldiers?src=hash&amp;ref_src=twsrc%5Etfw)[#FightLikeAFlynn](https://twitter.com/hashtag/FightLikeAFlynn?src=hash&amp;ref_src=twsrc%5Etfw) ☘️🇺🇸 [https://t.co/3KibWUz6hO](https://t.co/3KibWUz6hO)
-> — General Flynn (@GenFlynn) [November 20, 2020](https://twitter.com/GenFlynn/status/1329764738499276800?ref_src=twsrc%5Etfw)
+数据的取证问题分析
 
+莎拉围绕这些选举数据提出了一系列问题，来确定该数据的可信度和合理性。虽然这些数据本身并不能证明选举舞弊，但这些问题仍然有助于确定投票系统的短板，以及发现可能的人为错误。
 
+问题一：拒票率是否与其他年份一致？
+
+如果拒票率明显高于其他年份，这表明有效选票有可能被拒绝了。反之，如果拒票率显著降低，则表明可能有非法选票被忽略了。
+
+回答：在提供的数据中，有7700张选票被拒绝，占全部选票的1.256%。这低于2016年密歇根州宣布的2.02%的拒票率。虽然数据的差距没有特别大，但仍然值得关注。考虑到今年邮寄选票的大幅增加，预计拒票率会高于以往的选举，但实际情况是拒票率低于往年0.8个百分点。
+
+问题二：是否有选民的身份证在数据中的出现次数大于一次？
+
+由于每个身份证都代表一个独立的选民，而每个人只允许投票一次，因此，出现一次以上的身份证是可疑的。
+
+回答：数据中一共有1104个选民身份证出现了一次以上，其中4名选民身份证出现了三次，1名选民身份证出现了四次。
+虽然大部分重复的选民身份证都得到了正确的处理，但是数据显示有21次的处理错误。10位持有同一身份证的选民投了两次票，这两次都被计算了，其中的两名选民更改了地址，一名是海外选民。5名选民投了两次票，但是两次都没有被计算在内。6名选民的选票被算了一次以上。
+
+问题三：是否有选票识别码在数据中的出现次数大于一次？
+由于每个选票识别码代表一个独立的选票，因此，出现一次以上的选票识别码是可疑的。
+
+回答：根据所提供的数据，共有6张选票被计算了一次以上。在这6张选票中，4张被计算两次，1张被计算3次，1张被计算4次。
+
+问题四：在截止日后收到的选票是否被拒绝？
+密歇根州法院裁定，密歇根州的选民必须在选举日（11月3日）晚上8点前将邮寄选票寄送给当地的书记员，他们的选票才有效。在此日期之后收到的选票是否也被计算了？
+
+回答：11月4日收到13张选票，其中11张被拒绝，2张被接受。
+州务卿提供的数据有可能使用的是UTC时间，比密歇根州的时区早5个小时，这可能是2张迟来选票都被接受的原因。然而，数据并没有给出明确的时间戳。有证据表明，在截止时间之后收到的选票可能已经被接收和处理。
+
+随着各个州对选举数据的调查和分析，越来越多令人瞠目结舌的选票造假和选举舞弊事件浮出水面，一次又一次刷新了人们认知的底线。难怪民主党一次又一次拒绝共和党建议进行选民调查和清理的提案，我们不禁会怀疑，前几任民主党的总统，他们的选票都是干净的吗？
+
+[原文链接](https://www.thegatewaypundit.com/2020/11/breaking-report-largest-number-cluster-votes-wayne-co-mi-came-psychiatric-hospital-patients-severe-mental-illnesses/?utm_source=Twitter&amp;utm_campaign=websitesharingbuttons)
+
+[参考链接](https://100percentfedup.com/breaking-report-largest-number-of-cluster-votes-in-wayne-co-mi-came-from-psychiatric-hospital-for-patients-with-severe-mental-illnessesand-more/)
 
 0

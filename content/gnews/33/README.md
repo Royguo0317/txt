@@ -1,43 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 乔治索罗斯开卖体恤？还是卖真相
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/591238/)
+## 中共病毒超限战新方向:武汉只是首次发现地而非首次爆发地
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/591781/)
 
-撰稿：Jenny
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25180809/IMG_3960.jpg)网络截图
-推特越来越多越热闹，真相大白近在咫尺。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25234321/%E5%B0%81%E9%9D%A2-31.png)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-首先，[林伍德发推](https://twitter.com/llinwood/status/1331618598402441217?s=21.)：只有我想看吗？还是爱国者们都想看，为什么比尔·盖茨，乔治·索罗斯和约翰·罗伯茨在爱泼斯坦的飞行日志上。
+据青蜂侠Bee 2020年11月26日发布了视频[世卫：新冠病毒最初存在于世界各地 武汉海鲜市场只是发现地](https://haokan.baidu.com/v?vid=14705060388334327509&amp;pd=bjh&amp;fr=bjhauthor&amp;type=video)
 
-[网友立即跟推](https://twitter.com/Fatiha61641334/status/1331623543642189825?s=20)，在名为**TeeChip **的网站找到了售卖印有乔治索罗斯**”**揭穿每一个谎言**“**的体恤衫，而且这件黑白色再普通不过的汗衫特价优惠都要**$27.12. **挖掘真相的代价从来都不便宜，不是吗？何况是金融大鳄索罗斯要卖的真相！不知道这家卖体恤的网站是不是索罗斯投资的。
+与此同时中共的媒体们开始了新一轮的信息轰炸：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25234126/%E6%8D%95%E8%8E%B7-1.png)
+下面以人民日报的新浪微博为例来进行剖析，据[人民日报](https://weibo.com/2803301701?refer_flag=1001030103_) [2020年11月26日 00:43](https://weibo.com/2803301701/JvzQekhnE?refer_flag=1001030103_) [@C陈迪dHero](https://weibo.com/n/C%E9%99%88%E8%BF%AAdHero) [@陳嘉上Gordon](https://weibo.com/n/%E9%99%B3%E5%98%89%E4%B8%8AGordon) 转发过  来自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)
 
-从昨天起，网络上就沸沸扬扬传闻索罗斯看拜登大势已去，要他识相点交代问题，又有传闻索罗斯警告奥巴马不要忘记他是怎么上台的。
+【[#世卫组织称武汉只是新冠病毒发现地#](https://s.weibo.com/weibo?q=%23%E4%B8%96%E5%8D%AB%E7%BB%84%E7%BB%87%E7%A7%B0%E6%AD%A6%E6%B1%89%E5%8F%AA%E6%98%AF%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E5%8F%91%E7%8E%B0%E5%9C%B0%23)】据海外网，近日世卫组织卫生紧急项目负责人迈克尔·瑞安表示，新冠病毒有可能在很早时候，就在世界不同的地点和时间感染了一批人。病毒可能有不止一个首例病例，因为该疾病很可能源于好几种动物的传播。越来越多的信息表明，[#新冠病毒最初分布在全球各地#](https://s.weibo.com/weibo?q=%23%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E6%9C%80%E5%88%9D%E5%88%86%E5%B8%83%E5%9C%A8%E5%85%A8%E7%90%83%E5%90%84%E5%9C%B0%23)。目前不确定是人还是动物传播了新冠病毒，只是该病毒在武汉的海鲜市场被发现了。[O网页链接](http://t.cn/A6GuPhFN) [收起全文d](void%280%29;)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25234151/111-2.jpg)
+结合[Dr. Li-Meng \[email protected\]于2020年11月25日上午11：28发布的推文：](https://twitter.com/DrLiMengYAN1)·
 
-一位名为**Paul Adkins **的记者发推表示，我们要知道全部的真相，因为我们无法在谎言的沼泽地里得以生存！
+Since “Bat woman” Dr. Zheng-Li SHI and CCP-run media are desperately excited about “potential ancestor of COVID-19 virus” — Cambodia bat virus published in NATURE, it should be easy for you to foresee their next move, right?
 
-比尔**·**盖茨干了什么？他只去了欢乐岛参加那些丑恶下流的派对吗？推特这几天关于他的猛料也让真相渐渐浮上水面。
-
-首先，网友曝光了他在**2019**年**12**月**19**日的推文：我们的基金会下一步会怎么样呢？我为明年感到兴奋，在全球健康方面，最好的生意就是：疫苗。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25183316/IMG_3957.jpg)推特截图
-武汉有不明传染病的新闻从去年**12**份就有报道，连我们普通人都有所风闻，比尔盖茨这样的大佬欢欣鼓舞的展望美好年景就比较说得通了。但是，这是多么的冷酷与险恶，疫情让吃瓜群众为了一卷卫生纸而大打出手，扫光超市，屯水屯粮，这些有钱人却在偷偷算计他们会有多少钱进账！这也就不难理解为什么他是那只最积极推动疫苗研发的手。他这么自信自己不会死，不会感染疫情？
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25182115/IMG_3961.png)
-再看这一则名为**Rogue TV**有关比尔**·**盖茨的推文：数字化经济？我们给你一个芯片，扔掉现金和钢镚。我们把你的钱都放进你的芯片里，如果你拒绝疫苗，那我们就关掉你的芯片，那就等着饿死吧。（这段话并非比尔盖茨的原话）
-
-Gnews关于加拿大要執行比爾 蓋茨-洛克菲勒世界經濟論壇的疫苗接種計劃作為2021年的新常態/新經濟的文章。[《利用疫情跑步进入共产主义还是清理低端人口》](https://gnews.org/zh-hant/439119/)
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25194937/IMG_3971-scaled.jpg)
+中文大意：既然蝙蝠侠石正丽和中共控制的媒体对“COVID-19病毒的潜在宿主”——缅甸蝙蝠病毒相关论文在自然杂志的发表异常兴奋，对您来说预测下一步他们将要向哪撅屁股就是显而易见的，是吧？
 
 
-大纪元[《蓋茨推動全球打疫苗與數字認證美司法界：將是大災難》](http://hk.epochtimes.com/news/2020-04-13/40344640)
 
-摘录部分原文： “億萬富翁比爾·蓋茨近期積極資助研發中共病毒疫苗，主張將來讓全球幾十億人接種並作認證登記。美國著名律師小羅伯特·肯尼迪發文批評，蓋茨基金會的慈善性免疫運動已給幾十萬人帶來災難性後果；他也引述醫學界觀點和研究發出警告，任何中共病毒新疫苗都有致命危險，這也是比爾·蓋茨要求免於追責的原因。而對蓋茨提出的將疫苗接種者納入數字認證體系，美國司法部部長巴爾也表示反對。”
+> Since “Bat woman” Dr. Zheng-Li SHI and CCP-run media are desperately excited about “potential ancestor of COVID-19 virus” — Cambodia 🦇virus published in NATURE, it should be easy for you to foresee their next move, right? 😎 [https://t.co/xzoAmbxq4v](https://t.co/xzoAmbxq4v)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [November 25, 2020](https://twitter.com/DrLiMengYAN1/status/1331439520521269248?ref_src=twsrc%5Etfw)
 
-评论：也许我们需要想一下，为什么索罗斯和比尔**·**盖茨常常喜欢去中国的原因，还有那个比尔**·**盖茨与洛克菲勒联手推广的疫苗计划，國際貨幣基金組織配合Covid19疫情推出了世界債務豁免方案方案.   躲在水里的鳄鱼最可怕，露出头的鳄鱼不可怕，因为它可能离被捕杀只有半步之遥！
 
-（本文纯属个人观点）
 
-澳喜文章[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+以及推文中提到的自然杂志2020年11月23日发表的[Coronaviruses closely related to the pandemic virus discovered in Japan and Cambodia](https://www.nature.com/articles/d41586-020-03217-0)（ 与日本和柬埔寨发现的大流行病毒密切相关的冠状病毒），这些事件的发生意味着什么？
 
-欢迎加入澳喜农场：[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13172650/IMG_3537-1.jpg)
-4+
+1、中共为逃避新冠病毒追责开始了新一轮的舆论超限战；
+
+2、中共新一轮关于中共病毒的舆论超限战的方向是把武汉的病毒爆发定性为首次发现而不是首次爆发；
+
+3、与第1条、第2条对应的是出现在自然杂志上的日本和柬埔寨的冰箱里发现早年的新冠病毒的远亲病毒；
+
+那么接下来还会发生什么呢？
+
+我相信会从世卫组织或其他中国以外的某个组织或个人发现在2019年12月18日之前的某个人或某种动物或某几种动物感染了新冠病毒，因为世卫组织卫生紧急项目负责人已经对下一步的舆论超限战剧透了方向——新冠病毒有可能在很早时候，就在世界不同的地点和时间感染了一批人。病毒可能有不止一个首例病例，因为该疾病很可能源于好几种动物的传播。
+
+让我们一起盯着中共和世卫组织的表演！
+
+（文章内容仅代表作者个人观点）
+
+1+

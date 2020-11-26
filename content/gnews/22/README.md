@@ -1,47 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒超限战新方向:武汉只是首次发现地而非首次爆发地
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/591781/)
+## 鲍威尔大律师于周三在佐治亚州提起重磅诉讼
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/591873/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25234321/%E5%B0%81%E9%9D%A2-31.png)
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+多伦多枫叶农场 阿黎
+校对 上传 云起时 配图 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26004948/%E9%B2%8D%E5%A8%81%E5%B0%94-1.jpg)图片来源：Twitter.com
+据DJHJ Media于11月24日报道：川普总统大选辩护律师林-伍德（Lin Wood）于周二在推特上发表了重磅声明指出，西德尼-鲍威尔（Sidney Powell）律师将于周三在佐治亚州向在大选中舞弊的有关犯罪嫌疑人提起诉讼。
 
-据青蜂侠Bee 2020年11月26日发布了视频[世卫：新冠病毒最初存在于世界各地 武汉海鲜市场只是发现地](https://haokan.baidu.com/v?vid=14705060388334327509&amp;pd=bjh&amp;fr=bjhauthor&amp;type=video)
+他说，”最近几周，我与西德尼-鲍威尔和其他人密切合作。西德尼明天将在佐治亚州提起的诉讼中将真相公诸于众。美国的敌人将否认鲍威尔的指控，但不要相信他们。相信西德尼和我。我们爱美国和自由。我们的敌人不爱。”人们希望这场官司不要被左翼法官阻挠，因为左翼法官参与了民主党的欺诈选举活动。
 
-与此同时中共的媒体们开始了新一轮的信息轰炸：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25234126/%E6%8D%95%E8%8E%B7-1.png)
-下面以人民日报的新浪微博为例来进行剖析，据[人民日报](https://weibo.com/2803301701?refer_flag=1001030103_) [2020年11月26日 00:43](https://weibo.com/2803301701/JvzQekhnE?refer_flag=1001030103_) [@C陈迪dHero](https://weibo.com/n/C%E9%99%88%E8%BF%AAdHero) [@陳嘉上Gordon](https://weibo.com/n/%E9%99%B3%E5%98%89%E4%B8%8AGordon) 转发过  来自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)
+林-伍德和西德尼-鲍威尔在美国有很高的信誉度。林-伍德长于为被诬陷的人进行辩护，而西德尼-鲍威尔以打击腐败的检察官而闻名，她在迈克-弗林（Mike Flynn）最艰难的时候帮助了他。
 
-【[#世卫组织称武汉只是新冠病毒发现地#](https://s.weibo.com/weibo?q=%23%E4%B8%96%E5%8D%AB%E7%BB%84%E7%BB%87%E7%A7%B0%E6%AD%A6%E6%B1%89%E5%8F%AA%E6%98%AF%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E5%8F%91%E7%8E%B0%E5%9C%B0%23)】据海外网，近日世卫组织卫生紧急项目负责人迈克尔·瑞安表示，新冠病毒有可能在很早时候，就在世界不同的地点和时间感染了一批人。病毒可能有不止一个首例病例，因为该疾病很可能源于好几种动物的传播。越来越多的信息表明，[#新冠病毒最初分布在全球各地#](https://s.weibo.com/weibo?q=%23%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E6%9C%80%E5%88%9D%E5%88%86%E5%B8%83%E5%9C%A8%E5%85%A8%E7%90%83%E5%90%84%E5%9C%B0%23)。目前不确定是人还是动物传播了新冠病毒，只是该病毒在武汉的海鲜市场被发现了。[O网页链接](http://t.cn/A6GuPhFN) [收起全文d](void%280%29;)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25234151/111-2.jpg)
-结合[Dr. Li-Meng \[email protected\]于2020年11月25日上午11：28发布的推文：](https://twitter.com/DrLiMengYAN1)·
+鲍威尔将不会站在民主党和共和党的任何一方，而以中立的态度对选举软件欺诈和叛国等罪犯进行起诉。 西德尼-鲍威尔不是川普律师团队的成员，将更有利于打击大选犯罪，把民主党非法抢走的总统位置夺回来。这是川普方面部署的策略之一。
 
-Since “Bat woman” Dr. Zheng-Li SHI and CCP-run media are desperately excited about “potential ancestor of COVID-19 virus” — Cambodia bat virus published in NATURE, it should be easy for you to foresee their next move, right?
+鲍威尔在新闻发布会上说，”美国爱国者已经受够了从地方到政府最高层的腐败。”她揭露了投票机和软件公司由多个共产主义国家提供资金，阴谋推翻美国2020年的大选。 多米尼克投票系统欺诈改票的主要方法，是可以将选票从一个候选人切换到另一个候选人。
 
-中文大意：既然蝙蝠侠石正丽和中共控制的媒体对“COVID-19病毒的潜在宿主”——缅甸蝙蝠病毒相关论文在自然杂志的发表异常兴奋，对您来说预测下一步他们将要向哪撅屁股就是显而易见的，是吧？
+鲍威尔说：“我们不会被吓倒。我们不会退缩。我们现在就要清理这个烂摊子。川普总统以压倒性的优势赢得了胜利。我们要证明这一点。而且我们要为投票支持自由的人们夺回美利坚合众国。”
 
+鲍威尔的推文和新闻发布会上的讲话和透露的具体信息，是在向公众发出呼唤，激起民意。有正义感，热爱自由的美国人民，包括共和党，民主党，甚至有腐败污迹的政府官员和法官们，都不会漠视伟大的美利坚即将落入中共手中的危险。越来越多的美国人站在正义的一边，为法庭作证，揭发选举犯罪，帮助鲍威尔律师和川普总统律师团队胜诉，夺回川普总统的胜选结果。
 
+[原文链接](https://djhjmedia.com/rich/sidney-powell-to-file-kraken-style-lawsuit-in-georgia-on-wednesday/)
 
-> Since “Bat woman” Dr. Zheng-Li SHI and CCP-run media are desperately excited about “potential ancestor of COVID-19 virus” — Cambodia 🦇virus published in NATURE, it should be easy for you to foresee their next move, right? 😎 [https://t.co/xzoAmbxq4v](https://t.co/xzoAmbxq4v)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [November 25, 2020](https://twitter.com/DrLiMengYAN1/status/1331439520521269248?ref_src=twsrc%5Etfw)
-
-
-
-以及推文中提到的自然杂志2020年11月23日发表的[Coronaviruses closely related to the pandemic virus discovered in Japan and Cambodia](https://www.nature.com/articles/d41586-020-03217-0)（ 与日本和柬埔寨发现的大流行病毒密切相关的冠状病毒），这些事件的发生意味着什么？
-
-1、中共为逃避新冠病毒追责开始了新一轮的舆论超限战；
-
-2、中共新一轮关于中共病毒的舆论超限战的方向是把武汉的病毒爆发定性为首次发现而不是首次爆发；
-
-3、与第1条、第2条对应的是出现在自然杂志上的日本和柬埔寨的冰箱里发现早年的新冠病毒的远亲病毒；
-
-那么接下来还会发生什么呢？
-
-我相信会从世卫组织或其他中国以外的某个组织或个人发现在2019年12月18日之前的某个人或某种动物或某几种动物感染了新冠病毒，因为世卫组织卫生紧急项目负责人已经对下一步的舆论超限战剧透了方向——新冠病毒有可能在很早时候，就在世界不同的地点和时间感染了一批人。病毒可能有不止一个首例病例，因为该疾病很可能源于好几种动物的传播。
-
-让我们一起盯着中共和世卫组织的表演！
-
-（文章内容仅代表作者个人观点）
-
-1+
+0

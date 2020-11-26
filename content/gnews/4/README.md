@@ -1,32 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯：川普总统发推特赦弗林将军 大律师林伍德力挺
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/591361/)
+## 突发重磅！鲍威尔正式释放“海妖”，拜登阵营即将雪崩
+` GM101` [轉載自GNews](https://gnews.org/zh-hans/591906/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
+![]()
+美东时间11月26号凌晨1点，鲍威尔通过社交媒体转推了一则推文，该推文表示“海妖”已经释放，并提供了相关起诉链接。鲍威尔是前联邦检察官、著名律师。
 
-川普总统二十五日下午发推，
-我非常荣幸的宣布米歇儿弗林将军（General Flynn)已经获得我的全部赫免，祝贺他和他优秀的家人，我知道你们将会有一个真正美妙的感恩节！
+此前，鲍威尔揭露大选舞弊软件DOMINION为SMARTMATIC公司所开发，鲍威尔指出SMARTMATIC是一家外资公司，该公司的总裁内文格是拜登过度小组的成员，鲍威尔评价拜登的过度小组为专横并即将失败。
 
+鲍威尔曾提及即将释放“海妖”，并明确根据已获取的宣誓证词证明DOMINION系统被用于操控改变美国大选结果，甚至包括委内瑞拉和古巴在内的世界多地选举结果，背后是共产党（中共）的金钱资助和操控。
 
+海妖号在佐治亚州发行！
 
-> It is my Great Honor to announce that General Michael T. Flynn has been granted a Full Pardon. Congratulations to [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) and his wonderful family, I know you will now have a truly fantastic Thanksgiving!
-> — Donald J. Trump (@realDonaldTrump) [November 25, 2020](https://twitter.com/realDonaldTrump/status/1331706255212228608?ref_src=twsrc%5Etfw)
+“海妖”链接：DefendingTheRepublic.Org
 
-
-
-在川普总统发推后一小时，大律师林伍德（Lin Wood)随即回推，他说，愿上帝保佑我们的川普总统和弗林将军，两个勇气中的男人，他们绝对不会放弃让我们的国家获得自由的努力 ！
-
-
-
-> God bless our President [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) & General Flynn [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw). Two men of courage who will never quit on their efforts to keep our country free.
-> 
-> God bless America. [https://t.co/IFMPIBAzeo](https://t.co/IFMPIBAzeo)
-> — Lin Wood (@LLinWood) [November 25, 2020](https://twitter.com/LLinWood/status/1331718565708357637?ref_src=twsrc%5Etfw)
-
-
-
-自从弗林将军遭＂通俄案＂政治构陷，被迫解职的前国家安全顾问弗林将军获得了大律师鲍威尔的支持，他一直在战斗中！
-
-0
+1+
