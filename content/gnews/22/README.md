@@ -1,25 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 第三次世界大战会爆发吗？
-` GM10` [轉載自GNews](https://gnews.org/zh-hans/584803/)
+## 中共病毒超限战新方向:武汉只是首次发现地而非首次爆发地
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/591781/)
 
-**文/闻喜**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25234321/%E5%B0%81%E9%9D%A2-31.png)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-内容：在2019年12月份中共以中共国“武汉”作为CCP病毒第一传播基地，收买全球各大媒体编造各种谎言制成化妆品遮挡住人们的视线，fake news充实着人们的耳朵，被中共蓝金黄BGY的各国掌握实权的人渣们一次又一次帮中共完成整个CC P病毒生物战的关键环节，不仅要打乱全世界的生产生活秩序，更要借此机会窃取伦理文明的支柱国家～美国政府最高权力:总统行政权。
+据青蜂侠Bee 2020年11月26日发布了视频[世卫：新冠病毒最初存在于世界各地 武汉海鲜市场只是发现地](https://haokan.baidu.com/v?vid=14705060388334327509&amp;pd=bjh&amp;fr=bjhauthor&amp;type=video)
+
+与此同时中共的媒体们开始了新一轮的信息轰炸：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25234126/%E6%8D%95%E8%8E%B7-1.png)
+下面以人民日报的新浪微博为例来进行剖析，据[人民日报](https://weibo.com/2803301701?refer_flag=1001030103_) [2020年11月26日 00:43](https://weibo.com/2803301701/JvzQekhnE?refer_flag=1001030103_) [@C陈迪dHero](https://weibo.com/n/C%E9%99%88%E8%BF%AAdHero) [@陳嘉上Gordon](https://weibo.com/n/%E9%99%B3%E5%98%89%E4%B8%8AGordon) 转发过  来自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)
+
+【[#世卫组织称武汉只是新冠病毒发现地#](https://s.weibo.com/weibo?q=%23%E4%B8%96%E5%8D%AB%E7%BB%84%E7%BB%87%E7%A7%B0%E6%AD%A6%E6%B1%89%E5%8F%AA%E6%98%AF%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E5%8F%91%E7%8E%B0%E5%9C%B0%23)】据海外网，近日世卫组织卫生紧急项目负责人迈克尔·瑞安表示，新冠病毒有可能在很早时候，就在世界不同的地点和时间感染了一批人。病毒可能有不止一个首例病例，因为该疾病很可能源于好几种动物的传播。越来越多的信息表明，[#新冠病毒最初分布在全球各地#](https://s.weibo.com/weibo?q=%23%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E6%9C%80%E5%88%9D%E5%88%86%E5%B8%83%E5%9C%A8%E5%85%A8%E7%90%83%E5%90%84%E5%9C%B0%23)。目前不确定是人还是动物传播了新冠病毒，只是该病毒在武汉的海鲜市场被发现了。[O网页链接](http://t.cn/A6GuPhFN) [收起全文d](void%280%29;)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25234151/111-2.jpg)
+结合[Dr. Li-Meng \[email protected\]于2020年11月25日上午11：28发布的推文：](https://twitter.com/DrLiMengYAN1)·
+
+Since “Bat woman” Dr. Zheng-Li SHI and CCP-run media are desperately excited about “potential ancestor of COVID-19 virus” — Cambodia bat virus published in NATURE, it should be easy for you to foresee their next move, right?
+
+中文大意：既然蝙蝠侠石正丽和中共控制的媒体对“COVID-19病毒的潜在宿主”——缅甸蝙蝠病毒相关论文在自然杂志的发表异常兴奋，对您来说预测下一步他们将要向哪撅屁股就是显而易见的，是吧？
 
 
-```
-CCP的美国代理人“败登”冲在最前，跳的最高，如果这次美国公民选败登当总统，那么整个人类伦理文明将被颠覆。现全人类正处在CCP发动的第三次世界大战～只不过用生物病毒代替了热武器装备战争、战争双方1方是以川普、文贵先生、班农、朱利安尼为首的人杰们带领美国寻求真相的选民和爆料革命战友、香港人民去揭露事实和历史真相。另一方则是中共带着败登和假媒体及被蓝金黄BGY的各个国家首脑、明星、政要人渣们不断释放CCP病毒和掩盖所有真相，不使其传播扩散。
 
-   当这次由CCP病毒引发的世界大战进行到整一年(2020年12月)时、中共又利用BGY 的特殊渠道让CCP病毒化妆成CCP疫苗在fake news的掩护下堂而皇之的走到了大街上，正在各国政要人渣们用立法的形式以行政手段敲开每个公民家庭卧室的门去上演～爱你没商量!
-
-    是文贵先生带领的爆料革命还原了历史真相、揭露了病毒来源，使全人类逐渐认清这是人类历史上的信仰、伦理文明之战、是人类与反人类之战、是天使与撒旦的最后对决!
-
-  有信仰的站在真相一边受神的庇佑，没有信仰的站在中共一边为了苟延残喘不断垂死挣扎，中共及其帮凶不仅被历史淘汰，死后其灵魂也会覆灭，化为乌有，连当饿鬼畜生的机会都很难再有，因为它们不仅受人类正义良知审判而且也会受上天的惩罚!
-
-   川普一定会赢这场大选，正义必胜～为香港人祷告：美国政府72小时火线灭共!
-```
+> Since “Bat woman” Dr. Zheng-Li SHI and CCP-run media are desperately excited about “potential ancestor of COVID-19 virus” — Cambodia 🦇virus published in NATURE, it should be easy for you to foresee their next move, right? 😎 [https://t.co/xzoAmbxq4v](https://t.co/xzoAmbxq4v)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [November 25, 2020](https://twitter.com/DrLiMengYAN1/status/1331439520521269248?ref_src=twsrc%5Etfw)
 
 
-2+
+
+以及推文中提到的自然杂志2020年11月23日发表的[Coronaviruses closely related to the pandemic virus discovered in Japan and Cambodia](https://www.nature.com/articles/d41586-020-03217-0)（ 与日本和柬埔寨发现的大流行病毒密切相关的冠状病毒），这些事件的发生意味着什么？
+
+1、中共为逃避新冠病毒追责开始了新一轮的舆论超限战；
+
+2、中共新一轮关于中共病毒的舆论超限战的方向是把武汉的病毒爆发定性为首次发现而不是首次爆发；
+
+3、与第1条、第2条对应的是出现在自然杂志上的日本和柬埔寨的冰箱里发现早年的新冠病毒的远亲病毒；
+
+那么接下来还会发生什么呢？
+
+我相信会从世卫组织或其他中国以外的某个组织或个人发现在2019年12月18日之前的某个人或某种动物或某几种动物感染了新冠病毒，因为世卫组织卫生紧急项目负责人已经对下一步的舆论超限战剧透了方向——新冠病毒有可能在很早时候，就在世界不同的地点和时间感染了一批人。病毒可能有不止一个首例病例，因为该疾病很可能源于好几种动物的传播。
+
+让我们一起盯着中共和世卫组织的表演！
+
+（文章内容仅代表作者个人观点）
+
+1+

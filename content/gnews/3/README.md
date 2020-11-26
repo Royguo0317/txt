@@ -1,15 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发：美國退出開放天空條約
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/584537/)
+## 《路德社》精选新闻快讯：川普总统发推特赦弗林将军 大律师林伍德力挺
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/591361/)
 
-作者：Poison小杜   审稿：DongDong 文璟    文宣：DongDong
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-美國國務院透過聲明指出，美國於2020年11月22日退出開放天空條約，不再是條約的締約國。
+川普总统二十五日下午发推，
+我非常荣幸的宣布米歇儿弗林将军（General Flynn)已经获得我的全部赫免，祝贺他和他优秀的家人，我知道你们将会有一个真正美妙的感恩节！
 
-《開放天空條約》於1992年在北約國家和俄羅斯之間簽署，2002年起生效。該條約允許包括美國和俄羅斯在內的34個締約國對彼此領土進行“非武裝方式的空中偵察”。大部分北約國家都簽署了該條約。迄今為止，該條約框架下共有1500多次空中偵察行動，俄羅斯和美國每年分別對對方進行42次空中偵察。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/23105913/%E5%9C%96%E7%89%87-4-1.png)
-這項條約容許在會員國整體領域展開無武裝空中偵察飛行，以蒐集彼此軍隊情資，目的是提升相互理解和信任，減少衝突的機會。
+
+
+> It is my Great Honor to announce that General Michael T. Flynn has been granted a Full Pardon. Congratulations to [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) and his wonderful family, I know you will now have a truly fantastic Thanksgiving!
+> — Donald J. Trump (@realDonaldTrump) [November 25, 2020](https://twitter.com/realDonaldTrump/status/1331706255212228608?ref_src=twsrc%5Etfw)
+
+
+
+在川普总统发推后一小时，大律师林伍德（Lin Wood)随即回推，他说，愿上帝保佑我们的川普总统和弗林将军，两个勇气中的男人，他们绝对不会放弃让我们的国家获得自由的努力 ！
+
+
+
+> God bless our President [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) & General Flynn [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw). Two men of courage who will never quit on their efforts to keep our country free.
+> 
+> God bless America. [https://t.co/IFMPIBAzeo](https://t.co/IFMPIBAzeo)
+> — Lin Wood (@LLinWood) [November 25, 2020](https://twitter.com/LLinWood/status/1331718565708357637?ref_src=twsrc%5Etfw)
+
+
+
+自从弗林将军遭＂通俄案＂政治构陷，被迫解职的前国家安全顾问弗林将军获得了大律师鲍威尔的支持，他一直在战斗中！
 
 0
