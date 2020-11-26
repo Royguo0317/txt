@@ -1,32 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Twitter有权力对所谓“含有误导信息”的推文发出警告吗？
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/591593/)
+## 多米尼技术员曾为被美国政府标注有“恶意网络活动”的中共军方服务代理公司工作
+` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/591648/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25214238/1-238.png)
-图片来自： cnbc.com
+翻译：康州农场-光头波波
 
-据布莱巴特(Breitbart)报道，2020年大选前， 如果Twitter用户试图转发该网站标注为“含有误导信息”的推文，Twitter就开始向用户发出警告。
+校对：康州农场-文蓝
 
-现在，Twitter计划扩大警告功能，当用户试图点赞一条“贴有标签”的推文时，也会发出警告。
+审核：康州农场 –Truemanman
 
-点赞前的警告只是Twitter最近在其平台上设置的限制之一，它们宣称其目的是减少错误信息的传播。Twitter表示，从10月27日到11月11日，它给30万个含有选举虚假信息的用户的帖子贴上了标签。Twitter还对转发功能设置了限制，当用户尝试转发一条推文时，Twitter会自动打开一个新窗口来撰写引用推文，而不是立即与用户的追随者分享那条推文。
+*《国家脉冲》揭露，多米尼投票系统的信息技术核心架构经理，安德·黄（音译，**Andy Huang**）， 曾任职于中国电信。*
 
-Twitter说，添加警告后，“含有误导信息”的引用推文减少了29%，但这也降低了该平台整体的活跃度，Twitter宣称它们在总统大选期间成功遏制了错误信息在其平台上的传播。它通过遏制平台上所有信息的传播来完成这一任务。
+中国电信是一家完全由中国政府运营的公司，并已被美国国防部认定，其与中共军方合作超过二十年。
 
-Twitter表示，旨在鼓励用户为帖子添加更多语境的引用推文在这一提示下增加了26%，普通转发推文则减少了23%。引用推文和转发推文合计下降了20%。 Twitter自豪地表示。”凭借服务上分享量的整体减少，减缓了误导性信息的传播。”
+同样，美国司法部也将该公司标注为“中国电信存在易受到中共政府的利用，影响和控制的顾虑”，以及“中国电信在美国业务的性质”为“中共国国家机器提供实施恶意网络活动的机会 以进行经济间谍和破坏活动和扰乱美国信息交流。”
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25222015/%E5%9B%BE%E7%89%873-24.png)安德·黄(Andy Huang)的领英
+在多米尼担任关键技术职务的安德·黄（Andy Huang）在1998年至2002年间就职于中国电信。
 
-另据（Sky News)报道，Twitter引入了一种新的提示， 当用户试图点赞 “含有误导信息”的推文时，Twitter会发出警告，要求他们支持 “可靠信息”。
+期间，安德·黄（Andy Huang）协助完成的任务包括“厦门IDC项目”，“厦门市区宽带网络”和“ OA 内部网络基础设施改革项目”。
 
-此举意味着，试图为唐纳德-川普关于美国大选的争议信息点赞的用户将收到一个额外的提示，要求他们 “帮助Twitter保持一个可靠信息的场所”。
+尽管他在这些项目上具体工作性质尚不完全清楚，但与他有广泛合作的思科公司，是负责维护中共国严酷的互联网防火墙。
 
-当前，用户无法直接转发被贴上“有争议消息”标签的消息，只能引用，推特公司需要为这些标签额外提供上下文，说明为什么被贴上标签的推文具有误导性，无论这些推文是关于美国大选还是COVID-19。
+黄的领英个人资料显示他的雇主“多米尼投票系统“，是他的“兴趣”之一。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25222058/%E5%9B%BE%E7%89%874-21.png)安德·黄（Andy Huang）的领英“兴趣“栏
+为证明多米尼投票系统与反川普总统团体之间阴暗联系，这些发掘出的信息给早已不断增加的证据清单上又添新证。正如美国情报官员已经确认北京更希望拜登担任总统。
 
-在2016年选举后的几年里，社交媒体平台面临了一连串指控，称它们的无能或冷漠导致数百万选民获得虚假信息，从而破坏了选举过程的公正性。推特公司人为认定的标准，只会倾向性第阻止信息的传播。
+中共国官方媒体官员已证实了这些观点。
 
-原文链接 [1](https://www.breitbart.com/tech/2020/11/24/twitter-to-warn-users-attempting-to-like-censored-posts/) [2](https://news.sky.com/story/twitter-is-warning-users-when-they-attempt-to-like-misinformation-12140940)
+有独无偶，证据显示，超过95%的 多米尼公司美国雇员工捐钱给民主党。该公司还拥有一个由南希·佩洛西（Nancy Pelosi）的前参谋长和奥巴马时期的投票保护主任主导的游说团队。
 
-翻译报道： Alton
+然而，建制派媒体口却认为这些关联是“毫无根据的阴谋论”。
 
-2+
+原文链接：[https://thenationalpulse.com/news/dominion-techie-worked-for-ccp-military-proxy-flagged-by-u-s-govt-for-malicious-cyber-activity/](https://thenationalpulse.com/news/dominion-techie-worked-for-ccp-military-proxy-flagged-by-u-s-govt-for-malicious-cyber-activity/)
+
+0

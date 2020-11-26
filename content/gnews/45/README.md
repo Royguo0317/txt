@@ -1,66 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 多伦多烧烤店主遭遇映出加拿大疫情之殇
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/591294/)
+## 乔治索罗斯开卖体恤？还是卖真相
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/591238/)
 
-*多伦多枫叶农场 （原加喜农场）文锦
-校对 小鸥 上传 WJ*
+撰稿：Jenny
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25180809/IMG_3960.jpg)网络截图
+推特越来越多越热闹，真相大白近在咫尺。
 
-11月24日，一则关于多伦多烧烤店主的新闻引爆美加两国主流、非主流媒体，众说纷纭。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25183146/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE80.png)图片来源：Instagram
-自信、不羁的店主亚当·斯凯利（Adam Skelly）在Instagram上载的视频里表示，11月24日在怡陶碧谷（属于多伦多）的亚当森烧烤店（Adamson Barbecue）将在11点钟开放室内就餐服务（此怡陶碧谷分店秋季刚开张不久，是该品牌的第三家分店），抵制省级禁令。
+首先，[林伍德发推](https://twitter.com/llinwood/status/1331618598402441217?s=21.)：只有我想看吗？还是爱国者们都想看，为什么比尔·盖茨，乔治·索罗斯和约翰·罗伯茨在爱泼斯坦的飞行日志上。
 
-斯凯利这条视频非常火爆，截至发稿时已有46万次观看和数百条评论。引发这一事件的是安省省长道格·福特（Doug Ford）11月20日宣布，由于安省试图遏制中共病毒病例的急剧上升，多伦多正进入“封锁”，11月23日凌晨0:01开始生效，将持续至少28天（到12月21日），相当于两个中共病毒的潜伏期。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25183254/EnTYE1CXUAAhGb4.jpg)图片来源：Twitter
-多伦多的封锁限制包括：
-不得与任何家庭以外的人进行室内聚会；单独生活的个人可以与另一家庭保持密切联系；户外聚会仅限于10人及以下；餐厅仅限于外卖，直送和外送；宗教服务，葬礼和婚礼仅限于室内10人或室外10人及以下；健身房关闭；非必需的零售和购物中心仅限于路边提货或送货；个人护理服务，赌场和游戏厅关闭；大专院校转向虚拟教学，但有一些例外，例如临床培训；药房，医生和牙医办公室，杂货店，基本服务保持开放；学校也将保持开放。
+[网友立即跟推](https://twitter.com/Fatiha61641334/status/1331623543642189825?s=20)，在名为**TeeChip **的网站找到了售卖印有乔治索罗斯**”**揭穿每一个谎言**“**的体恤衫，而且这件黑白色再普通不过的汗衫特价优惠都要**$27.12. **挖掘真相的代价从来都不便宜，不是吗？何况是金融大鳄索罗斯要卖的真相！不知道这家卖体恤的网站是不是索罗斯投资的。
 
-从店主斯凯利这次的行动可以看出：
+从昨天起，网络上就沸沸扬扬传闻索罗斯看拜登大势已去，要他识相点交代问题，又有传闻索罗斯警告奥巴马不要忘记他是怎么上台的。
 
-1. **他已受够加拿大主流媒体的谎言**
+一位名为**Paul Adkins **的记者发推表示，我们要知道全部的真相，因为我们无法在谎言的沼泽地里得以生存！
 
+比尔**·**盖茨干了什么？他只去了欢乐岛参加那些丑恶下流的派对吗？推特这几天关于他的猛料也让真相渐渐浮上水面。
 
-这次坚持开业引来了众多记者，CBC、CP24、Virgin Radio等声名狼藉的加拿大主流媒体一来就把店门都堵住，咄咄逼人。店主表示他不会接受这样带有偏见的媒体采访，也不欢迎他们。在场人群齐声高呼“CBC sucks！（CBC糟透了！）”，越来越多加拿大人认清了在疫情问题上一再误导大众、谎话连篇的主流媒体。
+首先，网友曝光了他在**2019**年**12**月**19**日的推文：我们的基金会下一步会怎么样呢？我为明年感到兴奋，在全球健康方面，最好的生意就是：疫苗。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25183316/IMG_3957.jpg)推特截图
+武汉有不明传染病的新闻从去年**12**份就有报道，连我们普通人都有所风闻，比尔盖茨这样的大佬欢欣鼓舞的展望美好年景就比较说得通了。但是，这是多么的冷酷与险恶，疫情让吃瓜群众为了一卷卫生纸而大打出手，扫光超市，屯水屯粮，这些有钱人却在偷偷算计他们会有多少钱进账！这也就不难理解为什么他是那只最积极推动疫苗研发的手。他这么自信自己不会死，不会感染疫情？
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25182115/IMG_3961.png)
+再看这一则名为**Rogue TV**有关比尔**·**盖茨的推文：数字化经济？我们给你一个芯片，扔掉现金和钢镚。我们把你的钱都放进你的芯片里，如果你拒绝疫苗，那我们就关掉你的芯片，那就等着饿死吧。（这段话并非比尔盖茨的原话）
 
-1. **他有独立思考的能力**
-
-
-已有审计报告批评安省政府疫情决策延误导致冲突与混乱。从疫情之初到现在，加拿大各级政府一直以中共走狗WHO的意见做指导，绝口不提中共病毒真相及救命良药羟氯喹，封城政策反复，令众多小商户苦不堪言。越来越多的商户倒闭，经济越来越萧条，百姓生活越来越困苦。而很多人并没有独立思考的能力，只是跟随政府发布的政策，一步步走向绝境。
-
-斯凯利能勇敢地指出安省福特政府缺乏关闭小商户的支持证据，并质疑那些如沃尔玛、Costco等大连锁店虽然很多人感染仍可以继续开放，这是双标政策。
-
-1. **他有行动的勇气**
+Gnews关于加拿大要執行比爾 蓋茨-洛克菲勒世界經濟論壇的疫苗接種計劃作為2021年的新常態/新經濟的文章。[《利用疫情跑步进入共产主义还是清理低端人口》](https://gnews.org/zh-hant/439119/)
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25194937/IMG_3971-scaled.jpg)
 
 
-斯凯利在Instgram视频中感谢大家给了他勇气，决定顶风开业。不得不说，大多数人是迷信权威的，疫情之初，笔者囤粮时接受超市店员的质问会觉得心里不适。疫情蔓延中，笔者向小商户派疫情真相传单时，也遭遇过不解与质疑。这次斯凯利的店面及全家被众媒体曝光，说出自己想说的话真的需要有很大的勇气。他的行为受到许多相同遭遇的店主支持，其中小有名气的Minden 50s Diner店主杰森-雷克（Jason Lake）驱车3小时来支持，表示因为遵守政府政策关店几个月，他已濒临破产，现在一定要站出来支持勇敢的同行斯凯利。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25183408/Twitter.png)杰森-雷克（Jason Lake）图片来源：Twitter
-1. **他不知道疫情真相**
+大纪元[《蓋茨推動全球打疫苗與數字認證美司法界：將是大災難》](http://hk.epochtimes.com/news/2020-04-13/40344640)
 
+摘录部分原文： “億萬富翁比爾·蓋茨近期積極資助研發中共病毒疫苗，主張將來讓全球幾十億人接種並作認證登記。美國著名律師小羅伯特·肯尼迪發文批評，蓋茨基金會的慈善性免疫運動已給幾十萬人帶來災難性後果；他也引述醫學界觀點和研究發出警告，任何中共病毒新疫苗都有致命危險，這也是比爾·蓋茨要求免於追責的原因。而對蓋茨提出的將疫苗接種者納入數字認證體系，美國司法部部長巴爾也表示反對。”
 
-虽然他能独立思考、有勇气、还有行动力，但他不知道中共病毒疫情真相，不知道中共病毒是中共故意释放出的超限生物武器、感染后危害大以及戴口罩的重要性。否则他不会不戴口罩——这是很多不满政府疫情政策的加拿大人目前的误区，他们的诉求是像疫情前那样自由地生活、工作。
+评论：也许我们需要想一下，为什么索罗斯和比尔**·**盖茨常常喜欢去中国的原因，还有那个比尔**·**盖茨与洛克菲勒联手推广的疫苗计划，國際貨幣基金組織配合Covid19疫情推出了世界債務豁免方案方案.   躲在水里的鳄鱼最可怕，露出头的鳄鱼不可怕，因为它可能离被捕杀只有半步之遥！
 
-但有因才有果，如果不是政府和主流媒体掩盖真相、误导大众，百姓怎么会做出这样的举动？如果一开始就把真相告诉大众，疫情早期采取正确措施，比如放开处方药羟氯喹为非处方药，或者至少允许医生给中共病毒预防及治疗使用羟氯喹，一切都会不同。但制造所谓疫苗的利益集团和派发疫苗的政府要赚钱、勾兑和控制人民，加上Dominion偷票系统遍布加拿大各级选举，政客不在乎百姓的疾苦也能生存。
+（本文纯属个人观点）
 
-11月25日，安省省长福特就此事回复斯凯利店主， “你使人们的生活处于危险之中。我总是尝试变得友善，但这家伙完全无视公共卫生官员。” 如果您不熟悉安省省长福特，那他在11月7日祝贺拜登当选的推文可以帮您了解他的立场。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25183817/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE76.png)图片来源：Twitter
-最后，赶来的大批警察封了斯凯利的店——意料之中的结果。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25184306/2020-11-25_141344.jpg)图片来源：PM
-根据《重新开放安省法（Reopening Ontario Act）》，斯凯利将面临最低罚1万加元、最高罚10万加元加监禁一年的处罚——这对疫情中赖以生存的小店难以为继、尚有两个幼子的店主意味着什么？！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25183852/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE82.png)图片来源：Rebel News
-相似的疫情封锁政策在加拿大其他省份及英国、美国等多地都在出现。政府一日不面对中共病毒真相，老百姓一日深受朝令夕改的所谓“疫情封锁政策”之害。无数像斯凯利这样曾经勤劳工作的中产阶级将面临不曾想象的可怕现实。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25183934/Here-Comes-the-New-Recession-650x360-1.jpg)图片来源：Zerohedge
-参考链接：
-[Cops Swarm Toronto BBQ For Defying COVID Lockdown, Shut It Down](https://www.zerohedge.com/medical/cops-swarm-toronto-bbq-defying-covid-lockdown-shut-it-down?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+澳喜文章[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
 
-[Toronto, Peel move into COVID-19 lockdown Monday as Ontario tries to stop ‘worst-case scenario’](https://www.cbc.ca/news/canada/toronto/covid-19-coronavirus-ontario-november-20-toronto-peel-1.5809575#:~:text=12%3A01%20a.m.-,Monday%20as%20Ontario%20tries%20to%20curb%20a%20steep%20rise%20in,for%20violating%20public%2Dhealth%20rules.)
-
-[WATCH: Restaurant owner who defied lockdown orders SLAMS biased establishment media](Restaurant%20owner%20who%20defied%20lockdown%20orders%20SLAMS%20biased%20establishment%20media)
-
-[BREAKING: Crowd chants ‘CBC sucks’ as restauranteur who broke lockdown orders kicks media off his property](Crowd%20chants%20'CBC%20sucks'%20as%20restauranteur%20who%20broke%20lockdown%20orders%20kicks%20media%20off%20his%20property)
-
-*相关链接：*
-
-[施比受更有福 — 派传单记](https://gnews.org/zh-hans/323770/)-Gnews
-
+欢迎加入澳喜农场：[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13172650/IMG_3537-1.jpg)
 4+

@@ -1,28 +1,88 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 宾州法官中止选举认证
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/591082/)
+## 路德社重磅解读：宾州立法会参议员将前往白宫看重磅证据及弗林将军被特赦!
+` GM31` [轉載自GNews](https://gnews.org/zh-hans/591742/)
 
-- 编辑：Victor Torres
+《路德时评》2020年11月25日晚间节目重磅解读**：1、弗林将军被川普总统特赦；2、川普总统参加宾州听证会；3、宾州参议员将前往白宫看重要证据。**
 
 
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-西班牙2020年11月25日电/喜西社/——宾夕法尼亚州的一家法院已下令该州中止选举认证，直到周五，届时该州将举行一场诉讼听证会，以期使所有邮寄选票无效。
+一、**弗林将军被川普总统特赦寓意为何？**
 
-众议员迈克·凯利（Mike Kelly），国会候选人肖恩·帕内尔（Sean Parnell）以及其他八名请愿人声称，上个月决定允许所有选民使用邮寄投票是违反宪法的。
+11月26日川普总统发推说到[1]：“我荣幸地宣布：迈克尔·弗林将军已获得完全赦免。祝贺弗林将军及他的家人。”
 
-川普总统的盟友在试图排除邮寄选票及推翻全国选举结果的过程中经历了一些挫折。但在星期三，宾夕法尼亚州联邦法院法官帕特里夏·麦卡洛（Patricia A. McCullough）提出了一项初步命令，暂时中止了认证。
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25225145/%E5%9B%BE%E7%89%87-15.png)](https://twitter.com/realDonaldTrump/status/1331706255212228608)图片来源：[https://twitter.com/realDonaldTrump/status/1331706255212228608](https://twitter.com/realDonaldTrump/status/1331706255212228608)
 
-如果各州未能在12月14日之前认证选举结果，将由该州立法机构指定选举人来确定美国第46任总统。目前，共和党控制着宾夕法尼亚州议会。
+结合该新闻的分析如下：
 
-参考链接：[https://www.washingtonexaminer.com/news/pennsylvania-judge-halts-election-certification?\_amp=true&\_\_twitter\_impression=true](https://www.washingtonexaminer.com/news/pennsylvania-judge-halts-election-certification?_amp=true&amp;__twitter_impression=true)
+1. Full Pardon称为全面赦免，是《宪法》赋予总统的权力，川普总统给弗林将军全面赦免，其中最重要的就是恢复对方的全部公民权利，他可再次担任公职；
+2. 弗林将军将重返白宫任职，直接参与前线作战，鲍威尔律师是他的前任律师，现在也成为一名军事律师；
+3. 由于川普总统身边众多高层已被中共收买，他现在极需可信赖的内阁成员，弗林将军就是他最信赖的下属之一。
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25231644/GeneralFlynn-1.png)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+二、**川普总统参加宾州听证会暗藏重要信息**
 
-0
+大纪元11月26日讯[2]：*宾州参议院在葛底斯堡举行选举欺诈公众听证会，美国总统川普（特朗普）通过电话参与会议，并发言近10分钟。川普除概括宾州等关键州发现的选举欺诈现象外，他还说，民主党人没有想到他获得如此高的选票、踩错油门露出了马脚。*
+
+1、朱利安尼今天在听证会明确说多米尼投票系统被篡改的数据一定会被恢复；
+
+2、路德社此前爆料民主党大选前就已聘请500个律师准备打法律战，如果此时由他们发起诉讼，再加上左媒的虚假报道以及法官早被收买，他们肯定能轻松赢得诉讼，拜登就将上台；
+
+3、现在川普总统拥有完全主动，而民主党完全处于被动地位，他们聘请的500位律师现在无的放矢；
+
+4、听证会基本算是走过场，所有结果早已定下。
+
+**三**、**宾州立法会参议员与朱利安尼先生将前往白宫**
+
+白宫重磅新闻：宾州立法会参议员与朱利安尼先生将共同前往白宫与川普总统共进晚餐。
+
+1. 川普总统将在此次宴会中向他们展示国防部网络战计划中所收集到的重磅证据；
+2. 被邀请的参议员中有民主党和共和党成员，他们都将看到这些重要机密，这对最终的判决起到至关重要的作用，美国立法会也将认定大选中出现严重的舞弊；
+3. 结合川普总统前两天转发“美国网络战计划”这则消息，这些造假信息早已被完全监控；
+
+
+**四、其他大选舞弊案调查信息**
+
+**1、Gnews 11月25日报道[3]：宾夕法尼亚州法院已下令该州停止选举认证工作直至周五，届时将就试图取消所有邮寄选票资格的诉讼举行听证会。**
+
+（1）宾州不止是参议院举行听证，该州法官也要举行听证。
+
+（2）美国是三权分立，美国司法机构也被中共渗透，爆料革命也掌握这些渗透证据，将借此重新帮美国司法机构回到正轨；
+
+（3）法律战开始摆上桌面，川普法律团队掌握的证据将派上用场；
+
+**2、宾州选举欺诈听证会，信息战专家作证**
+
+据报道[4]：宾州选举欺诈听证会，信息战专家作证。他从今年八月就开始调查选举舞弊，他说这个投票系统就是为了操纵选举而设计的。在一个时间段内的计票，60万张投拜登，3千张投川普！观众几乎笑场。更夸张的是，总共寄出了1,823,148张邮寄选票，但是竟计入2,589,242张邮寄选票！凭空多出了70万张！
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25225729/%E5%9B%BE%E7%89%87-16.png)图片地址：[https://parler.com/post/4cd6b56515334b5ea59e18ce90cfc115](https://parler.com/post/4cd6b56515334b5ea59e18ce90cfc115)
+
+
+
+1. 美国的民间力量也在参与大选舞弊案调查，朱利安尼先生、弗林将军就是民间力量的代表；
+2. 美国已清楚意识到不能重蹈尼克松和小布什的覆辙，就得利用民间力量展开调查；
+3. 各方正义力量早已部署至媒体战、网络战、信息战等各个战场，一切都在按计划开展。
+
+
+各州法官出现翻转，开始参与选票舞弊案的听证会，美国各层面都开始出现翻转，这背后就有爆料革命的鼎力支持，爆料革命就是在拯救全人类，拯救正义，拯救美国的国家体系。
+
+参考文章：
+
+[1] [https://twitter.com/realDonaldTrump/status/1331706255212228608](https://twitter.com/realDonaldTrump/status/1331706255212228608)
+
+[2] [https://www.epochtimes.com/gb/20/11/25/n12575629.htm](https://www.epochtimes.com/gb/20/11/25/n12575629.htm)
+
+[3] [https://gnews.org/zh-hans/591401/](https://gnews.org/zh-hans/591401/)
+
+[4] [https://parler.com/post/4cd6b56515334b5ea59e18ce90cfc115](https://parler.com/post/4cd6b56515334b5ea59e18ce90cfc115)
+
+视频来源：[https://www.youtube.com/watch?v=-diNal-y7cM](https://www.youtube.com/watch?v=-diNal-y7cM)
+
+*文章撰写：【重生】    编辑：【GM31】*
+
+*战友之家玫瑰园小队出品*
+
+1+

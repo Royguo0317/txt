@@ -1,47 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒超限战新方向:武汉只是首次发现地而非首次爆发地
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/591781/)
+## 感觉到光明，它唱出了歌
+` HAIKUOTIANKONG` [轉載自GNews](https://gnews.org/zh-hans/591817/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25234321/%E5%B0%81%E9%9D%A2-31.png)
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+内新闻/素材：司廷Sting 校对：文迹～见证神迹
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25234557/PSX_20201126_120601.jpg)
+川普的选战不如期望那样顺利。先是朱利安尼和艾利斯发表声明，鲍威尔大律师不是川普律师团队的成员，接着是川普律师团队在滨州的诉讼被驳回，最受打击的是白宫总务署墨菲，同意开始对拜登团队过渡的程序。诸事不顺，希望被推到了谷底。林伍德大律师说：“在信仰中，保持坚强”。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25234640/124121616_733431987259310_8244053378783919941_n.jpg)
+川普的环境极为艰难，在栽赃弹劾的威胁下，挺过4年已相当不易，如今也还要面对共和党建制派的质疑。墨菲同意启动过渡程序，川普也发推文说，自己的团队也同样启动过渡程序。川普的退让，可能是基于这样一种考量：维护共和党的团结，以争取在可能到来的1月8日的国会选举中，获得众议院共和党议员的支持。当然，朱利安尼和艾利斯发表的关于鲍威尔不属于川普律师团队的声明，也是基于同样的考量。鲍威尔嫉恶如仇，无论民主党还是共和党，此外，鲍威尔推进的是刑事诉讼，时间漫长，远水不解近渴。
 
-据青蜂侠Bee 2020年11月26日发布了视频[世卫：新冠病毒最初存在于世界各地 武汉海鲜市场只是发现地](https://haokan.baidu.com/v?vid=14705060388334327509&amp;pd=bjh&amp;fr=bjhauthor&amp;type=video)
+25日Gnews传来好消息。第一则：林·伍德（Lin Wood）宣布 ：西德尼·鲍威尔(Sidney Powell) 明天将在佐治亚州提起重大诉讼 ! (路德社) 第二则：川普总统的高级法律顾问詹娜·埃利斯通过推特发表了律师团队声明，“宾夕法尼亚州、亚利桑那州、密西根州立法机构将举行2020年总统大选公开听证会（加喜农场）。第三则：”宾夕法尼亚联邦法官麦卡洛阻止了认证结果，并命令该州官员在周五举行听证会之前，不得认证2020年选举结果(VOG GM01 )。”
 
-与此同时中共的媒体们开始了新一轮的信息轰炸：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25234126/%E6%8D%95%E8%8E%B7-1.png)
-下面以人民日报的新浪微博为例来进行剖析，据[人民日报](https://weibo.com/2803301701?refer_flag=1001030103_) [2020年11月26日 00:43](https://weibo.com/2803301701/JvzQekhnE?refer_flag=1001030103_) [@C陈迪dHero](https://weibo.com/n/C%E9%99%88%E8%BF%AAdHero) [@陳嘉上Gordon](https://weibo.com/n/%E9%99%B3%E5%98%89%E4%B8%8AGordon) 转发过  来自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)
+政治战接近尾声，法律战正式打响。
 
-【[#世卫组织称武汉只是新冠病毒发现地#](https://s.weibo.com/weibo?q=%23%E4%B8%96%E5%8D%AB%E7%BB%84%E7%BB%87%E7%A7%B0%E6%AD%A6%E6%B1%89%E5%8F%AA%E6%98%AF%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E5%8F%91%E7%8E%B0%E5%9C%B0%23)】据海外网，近日世卫组织卫生紧急项目负责人迈克尔·瑞安表示，新冠病毒有可能在很早时候，就在世界不同的地点和时间感染了一批人。病毒可能有不止一个首例病例，因为该疾病很可能源于好几种动物的传播。越来越多的信息表明，[#新冠病毒最初分布在全球各地#](https://s.weibo.com/weibo?q=%23%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E6%9C%80%E5%88%9D%E5%88%86%E5%B8%83%E5%9C%A8%E5%85%A8%E7%90%83%E5%90%84%E5%9C%B0%23)。目前不确定是人还是动物传播了新冠病毒，只是该病毒在武汉的海鲜市场被发现了。[O网页链接](http://t.cn/A6GuPhFN) [收起全文d](void%280%29;)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25234151/111-2.jpg)
-结合[Dr. Li-Meng \[email protected\]于2020年11月25日上午11：28发布的推文：](https://twitter.com/DrLiMengYAN1)·
+开局是不错的。 滨州是重点，“认证”被阻止，这对拜登是一记重拳，川普“翻盘”的可能，也再次归来；三州举行听证会，更是重大“利好”。好在听证标志着，正式的程序，严肃的态度，以及对真相的追求。鬼魅撒怖黑暗，试图将自身掩藏，听证恰是好的开始，有如拨云，让阳光播撒。
 
-Since “Bat woman” Dr. Zheng-Li SHI and CCP-run media are desperately excited about “potential ancestor of COVID-19 virus” — Cambodia bat virus published in NATURE, it should be easy for you to foresee their next move, right?
+在专制国家，国王就是法律，在民主国家，法律就是国王。美国是法制国，建国200多年来已经形成的传统是：一切组织、党派、政治和军事机构的行为都必须遵循法律。如果说，在专制国家，最终决定权在君主，而在美国，最终决定权在最高法院。
 
-中文大意：既然蝙蝠侠石正丽和中共控制的媒体对“COVID-19病毒的潜在宿主”——缅甸蝙蝠病毒相关论文在自然杂志的发表异常兴奋，对您来说预测下一步他们将要向哪撅屁股就是显而易见的，是吧？
+拜登暂时“获得”了270张选举人票，但拜登的登顶梦终将是梦，没有法律根基，这顶“皇冠”犹如镜中花，水中月。舆论媒体的摇旗呐喊将拜登推向总统宝座，其实是将拜登集团推向深渊。
 
+在川普方面看来，虽然政治未能决定选举，主要媒体也不在人民手中，但选举的一个事实是：“舞弊”，舞弊是法律问题，须经法律渠道解决。美国法律三审终审，程序严谨，要一级一级地打，所以艾利斯告诉民众：还是要有耐心。滨州的诉讼被驳回时，朱利安尼说 ：“宾夕法尼亚州诉讼案的驳回，让我们离最高法院更近了步（Gnews华盛顿DC站22日）”也就是说，州法院不拖拉，时间上，对川普团队更有利。
 
+好拳手出击，必要站稳脚跟。川普是好拳手，一切行动凭籍法律。动用军队查获CIA在德国的伺服器，以及正在筹备成立的特种军，都是基于肯尼迪国安备忘录57号文件；曾经考虑过用军队平叛，也是基于《反叛乱法》。拜登演讲说：“传统是被用来破的”，殊不知，美国不是中国，法制传统根深蒂固，深入民心，不可动摇。“破”的结果是自作自受。
 
-> Since “Bat woman” Dr. Zheng-Li SHI and CCP-run media are desperately excited about “potential ancestor of COVID-19 virus” — Cambodia 🦇virus published in NATURE, it should be easy for you to foresee their next move, right? 😎 [https://t.co/xzoAmbxq4v](https://t.co/xzoAmbxq4v)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [November 25, 2020](https://twitter.com/DrLiMengYAN1/status/1331439520521269248?ref_src=twsrc%5Etfw)
+一波三折，正义女神踏浪而来，主持美国这场前所未有的审判。美国的法制不可动摇，主流民意也不可动摇，法律战已经打响，未来已经可以预期。
 
+“感觉到光明，它唱出了歌。”（泰戈尔-飞鸟集）
 
+新闻链接：
+Gnews《路德社》精选新闻快讯：炸裂！内华达法官同意大选证人提供证词。
+[https://gnews.org/zh-hans/589071/](https://gnews.org/zh-hans/589071/)
 
-以及推文中提到的自然杂志2020年11月23日发表的[Coronaviruses closely related to the pandemic virus discovered in Japan and Cambodia](https://www.nature.com/articles/d41586-020-03217-0)（ 与日本和柬埔寨发现的大流行病毒密切相关的冠状病毒），这些事件的发生意味着什么？
+L.林伍德推特 ：
+光总是战胜黑暗，真理总是战胜谎言。
+[https://twitter.com/LLinWood/status/1276885076853379072](https://twitter.com/LLinWood/status/1276885076853379072)
 
-1、中共为逃避新冠病毒追责开始了新一轮的舆论超限战；
+Gnews 路德社 ：
+林·伍德（Lin Wood）宣布 ：西德尼·鲍威尔(Sidney Powell) 明天将在佐治亚州提起重大诉讼!
+[https://gnews.org/zh-hans/588812/](https://gnews.org/zh-hans/588812/)
 
-2、中共新一轮关于中共病毒的舆论超限战的方向是把武汉的病毒爆发定性为首次发现而不是首次爆发；
+Gnews 多伦多加喜农场 老熊 :
+&lt;三大战场州明起就大选舞弊举行公开听证&gt;
+“川普总统的高级法律顾问詹娜·埃利斯通过推特发表了律师团队声明，“宾夕法尼亚州、亚利桑那州、密西根州立法机构将举行2020年总统大选公开听证会。”
+[https://gnews.org/zh-hans/588556/](https://gnews.org/zh-hans/588556/)
 
-3、与第1条、第2条对应的是出现在自然杂志上的日本和柬埔寨的冰箱里发现早年的新冠病毒的远亲病毒；
+Gnews VOG GM01 ：
+宾夕法尼亚联邦法官麦卡洛阻止了认证结果，并命令该州官员在周五举行听证会之前，不得认证2020年选举结果。
+[https://gnews.org/zh-hans/590690/](https://gnews.org/zh-hans/590690/)
 
-那么接下来还会发生什么呢？
-
-我相信会从世卫组织或其他中国以外的某个组织或个人发现在2019年12月18日之前的某个人或某种动物或某几种动物感染了新冠病毒，因为世卫组织卫生紧急项目负责人已经对下一步的舆论超限战剧透了方向——新冠病毒有可能在很早时候，就在世界不同的地点和时间感染了一批人。病毒可能有不止一个首例病例，因为该疾病很可能源于好几种动物的传播。
-
-让我们一起盯着中共和世卫组织的表演！
-
-（文章内容仅代表作者个人观点）
-
-1+
+0

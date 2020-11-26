@@ -1,41 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美参议员质询脸书和推特审查和跟踪用户
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/591634/)
+## 中共病毒超限战新方向:武汉只是首次发现地而非首次爆发地
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/591781/)
 
-多伦多枫叶农场（原加喜农场） ctt
-校对 文锦 上传 云起时
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25221231/facebook-1.jpg)
-脸书（Facebook）、谷歌（Google）和推特（Twitter）合作使用了一种名为Tasks的工具，该工具可以跨平台审查用户, 并且有一名为Centra的工具，即便用户是匿名的，也可以在互联网上跟踪用户。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25234321/%E5%B0%81%E9%9D%A2-31.png)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-对此, 美国参议员乔什·霍利（Josh Hawley）在参议院司法委员会的听证会上, 质询了脸书首席执行官马克·扎克伯格(Mark Zuckerberg), 并称对这种强盗行为应立即采取措施。随后在周二， 他向扎克伯格和推特首席执行官杰克·多西(Jack Dorsey)提交与此有关的10个问题。
+据青蜂侠Bee 2020年11月26日发布了视频[世卫：新冠病毒最初存在于世界各地 武汉海鲜市场只是发现地](https://haokan.baidu.com/v?vid=14705060388334327509&amp;pd=bjh&amp;fr=bjhauthor&amp;type=video)
 
-霍利问扎克伯格：
+与此同时中共的媒体们开始了新一轮的信息轰炸：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25234126/%E6%8D%95%E8%8E%B7-1.png)
+下面以人民日报的新浪微博为例来进行剖析，据[人民日报](https://weibo.com/2803301701?refer_flag=1001030103_) [2020年11月26日 00:43](https://weibo.com/2803301701/JvzQekhnE?refer_flag=1001030103_) [@C陈迪dHero](https://weibo.com/n/C%E9%99%88%E8%BF%AAdHero) [@陳嘉上Gordon](https://weibo.com/n/%E9%99%B3%E5%98%89%E4%B8%8AGordon) 转发过  来自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)
 
-1．在脸书的 “任务” 工具栏中有多少条目与内容审核和在Google的参考人信息有关？
-2．在脸书的 “任务” 工具栏中有多少条目与推特上的内容审核和参考人信息有关？
-3．脸书的 “任务” 工具栏中有多少条目与内容审核，参考人信息或来自南部贫困法律中心的信息有关？
+【[#世卫组织称武汉只是新冠病毒发现地#](https://s.weibo.com/weibo?q=%23%E4%B8%96%E5%8D%AB%E7%BB%84%E7%BB%87%E7%A7%B0%E6%AD%A6%E6%B1%89%E5%8F%AA%E6%98%AF%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E5%8F%91%E7%8E%B0%E5%9C%B0%23)】据海外网，近日世卫组织卫生紧急项目负责人迈克尔·瑞安表示，新冠病毒有可能在很早时候，就在世界不同的地点和时间感染了一批人。病毒可能有不止一个首例病例，因为该疾病很可能源于好几种动物的传播。越来越多的信息表明，[#新冠病毒最初分布在全球各地#](https://s.weibo.com/weibo?q=%23%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E6%9C%80%E5%88%9D%E5%88%86%E5%B8%83%E5%9C%A8%E5%85%A8%E7%90%83%E5%90%84%E5%9C%B0%23)。目前不确定是人还是动物传播了新冠病毒，只是该病毒在武汉的海鲜市场被发现了。[O网页链接](http://t.cn/A6GuPhFN) [收起全文d](void%280%29;)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25234151/111-2.jpg)
+结合[Dr. Li-Meng \[email protected\]于2020年11月25日上午11：28发布的推文：](https://twitter.com/DrLiMengYAN1)·
 
-4. 请提供一份清单，列出脸书已在其平台上禁止的所有标签，网络地址和个人信息，并提供禁止使用理由，该理由是否源自与推特，Google或南方贫困法律中心。
+Since “Bat woman” Dr. Zheng-Li SHI and CCP-run media are desperately excited about “potential ancestor of COVID-19 virus” — Cambodia bat virus published in NATURE, it should be easy for you to foresee their next move, right?
 
-5. 在美国, 脸书使用Centra工具监视或关闭了多少个帐户？
-6, 据称当脸书员工访问脸书用户的私人信息时，该访问是被跟踪和审计的。脸书在2019财年进行了多少次这样的审核？
-
-7. 11月23日在《金融时报》上发表的一篇题​​为 “脸书计划让乔·拜登发动魅力攻势” 的报道称： “企业高管正计划大力鼓励用户服用中共病毒疫苗，并激励人们分享巴黎气候协议内容，乔·拜登曾答应重新加入该协议, 以期在华盛顿赢得青睐。” 请描述脸书旨在鼓励用户共享与《巴黎气候协定》有关的内容的所有步骤。
-
-8. 脸书自称为 “平台” 而不是 “发布者”, 为什么却提出重新加入《巴黎气候协定》的主张?
-
-霍利问多西：
-
-1. 对于法律上不严格要求的审核，推特是否有一项禁止其员工与外部公司（如脸书或谷歌）协调内容审核的政策？
-2. 请提供推特已在其平台上禁止的所有主题的标签，网络地址和真实个人的列表。
-
-
-评论： 在这次大选中，美国主流媒体的黑暗令人发指，它们一边倒地支持民主党左派，拼命掩盖、打压对拜登家族贪腐及勾结中共的揭露，对民主党大选作弊持续视而不见、避而不谈。此文更揭示了脸书和推特共同审查和跟踪用户的恶劣行径，以及美国议员对此行径的强烈不满。
-
-[原文链接](https://www.breitbart.com/politics/2020/11/25/josh-hawley-presses-facebook-twitter-on-coordinated-censorship-tracking-users/)
+中文大意：既然蝙蝠侠石正丽和中共控制的媒体对“COVID-19病毒的潜在宿主”——缅甸蝙蝠病毒相关论文在自然杂志的发表异常兴奋，对您来说预测下一步他们将要向哪撅屁股就是显而易见的，是吧？
 
 
 
-0
+> Since “Bat woman” Dr. Zheng-Li SHI and CCP-run media are desperately excited about “potential ancestor of COVID-19 virus” — Cambodia 🦇virus published in NATURE, it should be easy for you to foresee their next move, right? 😎 [https://t.co/xzoAmbxq4v](https://t.co/xzoAmbxq4v)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [November 25, 2020](https://twitter.com/DrLiMengYAN1/status/1331439520521269248?ref_src=twsrc%5Etfw)
+
+
+
+以及推文中提到的自然杂志2020年11月23日发表的[Coronaviruses closely related to the pandemic virus discovered in Japan and Cambodia](https://www.nature.com/articles/d41586-020-03217-0)（ 与日本和柬埔寨发现的大流行病毒密切相关的冠状病毒），这些事件的发生意味着什么？
+
+1、中共为逃避新冠病毒追责开始了新一轮的舆论超限战；
+
+2、中共新一轮关于中共病毒的舆论超限战的方向是把武汉的病毒爆发定性为首次发现而不是首次爆发；
+
+3、与第1条、第2条对应的是出现在自然杂志上的日本和柬埔寨的冰箱里发现早年的新冠病毒的远亲病毒；
+
+那么接下来还会发生什么呢？
+
+我相信会从世卫组织或其他中国以外的某个组织或个人发现在2019年12月18日之前的某个人或某种动物或某几种动物感染了新冠病毒，因为世卫组织卫生紧急项目负责人已经对下一步的舆论超限战剧透了方向——新冠病毒有可能在很早时候，就在世界不同的地点和时间感染了一批人。病毒可能有不止一个首例病例，因为该疾病很可能源于好几种动物的传播。
+
+让我们一起盯着中共和世卫组织的表演！
+
+（文章内容仅代表作者个人观点）
+
+1+
