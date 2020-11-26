@@ -1,36 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “多猫腻”系统 在美国Goddy.Com注册,域名登记公司在湖南
-` 喜马拉雅凤凰农场–旧金山-金喜站` [轉載自GNews](https://gnews.org/zh-hans/592081/)
+## 【文雍漫谈】在13000和700之间，隔着一条无法逾越的河
+` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/592389/)
 
-作者：**迷迭香 Rosemary**，** 凤凰农场**-旧金山
+作者：为子孙爱七哥农场 文雍
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26050202/%E6%96%87%E9%9B%8D%E6%BC%AB%E8%AB%8712.jpg)
+大家应该都记得本月初全民狂欢的“支架事件”。当时看来，从来不干好事的中共国政府似乎实实在在地做了一件惠民的事情，那就是通过集中招标采购，将心脏支架的价格从13000元降到700元。
 
-通过网上域名追踪，“多猫腻”公司在北美有三个办公室，一个在科洛拉多的丹佛，，一个在纽约的乔治城，一个在加拿大的多伦多。域名有一家湖南的公司在美国注册，所用的服务器设在福建泉州的数据中心。
+多么欢欣鼓舞的事情！广大心脏不好的屁民们面对这样的消息，激动无以复加，简直就要高呼万岁了。有人还高兴地编起了段子：原来一个支架能换6瓶茅台，现在一瓶茅台居然能换6个支架啦！虽然茅台还是那个茅台，支架也还是那个支架。
 
-“多猫腻”的域名：dominionvotingsystems.com 目前已被删除。但是网上档案中可以找到：
+还有人调侃已经被安放了13000元支架的患者，心灵的创伤是否能达到继续消费支架的程度。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26050349/WhatsApp_Image_2020-11-25_at_19.29.48.jpg)
+可惜，广大屁民还是高兴的太早了，因为，他们没有免于被安装13000元支架的自由，700元一个的支架压根与患者无关。
 
-Archive of the dominionvotingsystems.com
+近日，国家医保局表示，通过集中招标采购，高值耗材价格降低而减少医疗机构支出的部分，仍归属医疗机构，同时引导医疗机构对心脏外科医生的绩效考核进行适当的倾斜。
 
-https://web.archive.org/web/20110207174748/http://www.dominionvoting.com/
-![Graphical user interface, website
-Description automatically generated](https://lh4.googleusercontent.com/wKSarosOXUKCrC5kMbZjYPPtfq6S1n5qAIL9niAezU-CMoee40IKA1MVcrGXAMxojafKoLAsUHw_y2s_H39iKWhoFUBvEkaR9f_VCQcElZ8a9XNpBd-NIW7K54GtAed_QH6JvF0)
-跟踪“多猫腻”域名，注册地在湖南，2020年5月更新：
-![Graphical user interface, website
-Description automatically generated](https://lh4.googleusercontent.com/bsKpBBfdVeekAz56nOAKO_5KbgcreYmQJr9CsnbjHKv68LEdPPLId-QAsdBsTcCsV2YqzeAbIUT27ErkruzTYXW7ocT3_qhrXgjBJrXX--7Ugu20XHyu6DncUGjBhnm4V9BO4lY)
-域名搜索结果，在美国godaddy.com 注册,由一家湖南的公司注册，公司名字被删除。
-![Graphical user interface, text, application
-Description automatically generated](https://lh5.googleusercontent.com/eSYFaeGHaJcYoO5tEUf6e9Gy2figDkV0Ph7jgWx4oLUyuv71BjaaZQesZ63rFoVVzP9wu7lAhi1elIiJrRCTNSnZNeCL0XKvAFtqUIsEV5FNPVmOFzBeine1l0C-tfnQefSIer8)
-在美国的联系方式：
-![Graphical user interface, text, application
-Description automatically generated](https://lh6.googleusercontent.com/cLgHYE1FZV4F4klLCeVWhW5brGfQk8_QQBSEvVqIjxKEK0LuW3MNyOZ98RxyTx5Vow2hkqKQD54jPLvmkhP0s-Ncdua2SALgNYF1W4RkGfZ6_XvuVx5URTeyZu7XzfiPJaFkNSM)
-从加州traceroute追随到香港 ， 见第12步
-![Text
-Description automatically generated](https://lh6.googleusercontent.com/LFAlXZRuiw6e7iu_2OxUMNkHlw4GQZSChrF2Vh1DWKABPaNbnuBQ4TYyHXNs47EJRANEXOiqtxaRR-JRXO6tOHeowj8GquKOsDpKyqiRU9bYO27X-LqHSsHv7ihIcMXBudclQZM)
-网上推特：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26050427/WhatsApp_Image_2020-11-25_at_19.30.01.jpg)
 
-这个人说服务器在泉州的一个数据中心。![Graphical user interface, text, application, chat or text message
-Description automatically generated](https://lh3.googleusercontent.com/2nWLUwn-wy3xfo66p8afUOrMmv5uJ5f33zr9qAcb6vQ_v8hLD9-eD7JhURNt4AJtzXqlwhBPf1b7hQcGXg_yppN-jOThELqtmqjQzGzBeaNGR2FE5y5TGZEFtdzgVPfrv9fY_js)
-![Graphical user interface, text, application, email
-Description automatically generated](https://lh6.googleusercontent.com/HX1ODYdAMhswK8nmAJH5-Wn6vZ1lhAFl7XJ1hBfrdy3BLZ9V4_mSP5xCSLPogC__VXTcG4moD_Dqove0cdbFptLyUMkb-muu5KFjmlqIoZkNGF31g5JIs8cQquFE9oE2ElcgG7k)
-1+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26050450/WhatsApp_Image_2020-11-25_at_19.31.37.jpg)
+
+听起来是不是有点晕？不是业内人士简直不知道医保局的葫芦里到底卖的是什么药！
+
+如果谁还无法理解这一波诡异离奇丑陋无比的操作，只能说人们太善良，对中共国的邪恶体制缺乏想象力，这就是中共国的魔幻现实主义。
+
+那么，现在用最直白的表述再说一遍：中共国家医疗保障局医药价格和招标采购司司长钟东波表示：支架的采购价格虽然降下来了，但支付给医疗机构的总额不下调。也就是说，采购成本下来了，13000到700之间的利润留给了医疗机构，给心脏科大夫做绩效奖励用。
+
+听明白了吧？心脏支架的采购价格虽然降幅巨大，但患者的负担一分没少还是13000一枚支架，这场所谓的招标采购里，唯一的不同就是分赃方式，蛋糕的切法不同，医疗器械制造商拿出了一大块蛋糕，给了医生，当然，一定没有这么简单，因为医生在产业链的倒数第二端，恐怕也是吧唧吧唧嘴，舔几片碎油渣，而大量的利润一定是在层层的审批、配送等环节被侵吞掉了。前面说的茅台问题是想多了，别惦记六瓶茅台了，改喝二锅头，省下钱买支架吧。韭菜不配享有700块的支架！
+
+心脏病患者本来就心脏不好，这几轮折腾下来，已经可以告别支架了，直接心碎成渣了。白高兴了，人家这次招标本来就不是惠民的，是给各路妖魔鬼怪搞福利的。 你的心脏和支架之间永远隔着劫匪和山大王的腰包。谁让你得病了呢？谁让你一次次对恶政妥协呢？谁让你一次次交出自己的权利呢？我们的软弱就是他们变本加厉的底气，难道不是吗？
+
+知道了真相又无法改变现状的心脏病患者们心情如何？索性不知道自己被宰割，以为支架就值那么多钱，砸锅卖铁安一枚，供血舒畅了，心情也舒畅了，心情好心更好，觉得物有所值，这毕竟是高科技成果，贵就贵点吧，宁可不喝那坑爹的又其贵无比的茅台吧，杀人不用刀的茅台哪能跟心脏支架比啊，不喝茅台死不了，不换支架可是活不成啊！孰重孰轻自己掂量一下，发现生命开始有了价格了，一个支架就13000，沉甸甸地随着心跳动节律起舞呢，这时候，花钱买了健康的患者，说不定还整出了一颗感恩的心，还产生了岁月静好的错觉。
+
+可一旦有一天，他们不小心闹了个骚操作，让你知道了这枚支架就是一个700块钱的钴铬合金还含量极低的小三通，几乎没什么科技含量可言，你还能那么淡定吗？面对这赤裸裸的抢劫，你还能岁月静好吗？
+
+天底下还有这么荒唐这么不要脸的事吗？医疗产业化，就是把生意建立在别人的痛苦之上，已经远远悖离了基本的人性。纵观全球，现在这么无耻的事情也只有中共在干了。自从“以药养医”作为医疗产业的一项政策以来，医院，成了最大的合法抢劫组织，救死扶伤已经不存在了，有病没钱，别想踏进医院的大门。
+
+医疗产品、药品等价格奇高，百姓痛苦不堪的事实在中共国是老大难的问题。药厂、医院看上去都很无辜，而可怜的患者，因为不具备医学的专业判断，在这些“专业人士”面前，没有讨价还价的能力，只能任凭他们打劫。时间长了，大家都习惯了，温水里的青蛙，快被煮死了都浑然不觉。
+
+近年来自媒体多了，信息交流渠道宽了，海外医疗产业的信息或多或少会溜到人们的视野之内，老百姓才意识到他们用于治病的钱，大多数是给医院创收用的。然而意识到是一回事，在没有选择的时候，或许意识到只能平添一份痛苦。
+
+谁让我们一忍再忍呢？谁让我们一贯懦弱呢？谁让我们毫无原则地妥协退让呢？谁让我们在利益面前选择与狼共舞呢？中共这个邪恶的政权到了现在这么无法无天的地步，又是拜谁所赐呢？
+
+别再说与你无关，你的样子就是你国家的样子，别再说你没有责任，你能背负什么样的责任，你和你的下一代就有什么样的未来。站出来，和新中国联邦人一起，灭掉邪恶的中共，终结这些嗜血的政策，我们一起努力，争我们的自由，一起努力，争我们的权利，一起努力，让我们的子孙过上有尊严的生活。
+
+更多精彩内容请关注：
+
+- [为子孙爱七哥农场官方推特](https://twitter.com/wzsaqg)
+- [为子孙爱七哥农场官方GTV号](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
+- [欢迎加入农场discord官方群](https://discord.gg/2vXAV6G)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20123101/%E5%86%9C%E5%9C%BA%E5%B9%BF%E5%91%8Av7-3.jpg)
+0

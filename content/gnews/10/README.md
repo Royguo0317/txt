@@ -1,31 +1,113 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 将被终结的技术窃取
-` GM30` [轉載自GNews](https://gnews.org/zh-hans/592213/)
+## 依据2019年总统过渡加强法拜登团队即使当选也无法通过交接
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/592645/)
 
-**作者：柏熙**
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26065209/%E5%B0%81%E9%9D%A2-93.jpg)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-2020年，随着中共借中共病毒的肆虐而进行全方位的封国，停发护照、停止部分产品进口、停止行业对外贸易、停止金融准入等方式后，全社会陷入了大萧条。班农先生在各个国家的演讲中都说，中共国对全人类有几个重大的威胁：中共5G技术、2025中共制造、中共一带一路。几乎全部来自于中共国持之以恒的偷盗技术，班农先生在不断唤醒全世界，当全世界都认为中共国是那个山寨国家、劣币驱逐良币的低端制造业国家时，中共国利用庞大的间谍系统和无知识产权的留学生文化，大量偷盗西方技术，迅速完成了从邓小平时代无资本、无商誉、无技术的三无状态，偷盗成了如今的资本企业技术三有，从邓小平时代的拳头缩回去变成了现今在国际上肆无忌惮的坚定反人类团伙。
+据[Cheng \[email protected\]](https://twitter.com/Taihoku1895)于·[下午5:26 · 2020年11月26日](https://twitter.com/Taihoku1895/status/1331892139861569537)·[Twitter for Android](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文：
 
-中共国国内庞大的洗脑机器，让中共国的留学生们，每个人都不意识到自己在侵犯北美的目标研究机构的知识产权，而心甘情愿的为中共组织服务。这是因为留学生群体从小接受的文化教育就是毫无知识产权，一切都是国家。留学生们出国的之前，他们看到的、经历的都是国家机器如何运作，如何正常的偷盗他们的研究成果，已经习惯成了自然。留学生在出国之后，他们依然认为目标研究机构是代表该国家的，而不是该研究机构以及个人本身。笔者曾经与大量留学生深入讨论过这个关系，他们几乎全部认为该研究所属于该国家政府。例如澳大利亚的留学生，他们认为澳洲的研究所都是澳洲国家政府所有，而不是个人所有。所以他们理所当然的认为整个澳洲的研究所都是像中共国这样极权体制以及中央集权规则下，所有研究的资料全国共享，都为中共国的顶层几个家族服务。留学生们想当然的认为澳洲、加拿大、美国的研究领域与中共国的游戏规则一样。于是他们大胆的偷窃，并且丝毫不认为这是偷窃，来源于中共国持之不懈的反知识产权洗脑，留学生们离开大陆的时候，早就灌输了偷窃正当的意识。值得一提的是，在留学生们的思想中，偷窃毫无正当性可言，只是留学生们认为他们正在做的事算不上是偷窃。
+看來拜登沒有辦法過渡交接了，一個是賓州不承認選舉結果。 另外一個是川普團隊早已看出會聯合中共顛覆美國政府已在2019年通過法律PTEAO法案，這要怎麼交，聯邦總務署GSA怎可能把錢750萬美金給白等犯罪集團。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26024929/keyboard-943739_1920-e1570500507577_%E5%89%AF%E6%9C%AC.jpg)
 
-留学生们并不是完全没有思考能力的盗窃机器，事实上，中共国最强大的无逻辑洗脑，其优势在此处尽显。当与留学生们讨论研究所是否是国家政府专有的话题，留学生可以立即反应过来：世界上的研究所并非是政府专有，也不是国家领导说了算。留学生这一点点常识还是有的。但是，当不与留学生们直接讨论这个话题，而讨论其他技术类话题的时候，留学生会以“研究所归政府所有”作为逻辑前提，与你进行深入的讨论。事实上，这个逻辑前提，连留学生自己都不会承认的，不承认这个逻辑前提的留学生们，却以这一点作为大前提，进行其他话题的讨论和推演，这是中共国毫无逻辑，在文科方面仅凭死记硬背选拔人才的导致的最恐怖一点，这些人最终都被洗脑蜕变成了没有逻辑能力，随便抓出中共给的大前提就可以任意使用的盗窃机器了。
 
-当然，并非是全部留学生均如此，有少数的留学生开始迅速的觉醒，并对自己的行为感到厌恶。还有一些纯粹向往自由而离开大陆的留学生，这些留学生在离开大陆后，大多脱离了大陆的生活，对大陆的印象仅仅是家乡，这种亲爱家乡的心情是可以被我们理解和接受的。他们在疫情前期，疯狂抢购口罩，邮寄回中共国内。中共国利用这次宣传，将出口美国的口罩完全封锁，导致美国疫情爆发时，没有口罩可买、没有口罩可用，这些留学生们自己也都暴露在危机之下，他们开始迅速的觉醒，一部分人彻底放弃了对中共的幻想。
+> 看來拜登沒有辦法過渡交接了，一個是賓州不承認選舉結果。
+> 
+> 另外一個是川普團隊早已看出會聯合中共顛覆美國政府已在2019年通過法律PTEAO法案，這要怎麼交，聯邦總務署GSA怎可能把錢750萬美金給白等犯罪集團。 [pic.twitter.com/rGbvximXc6](https://t.co/rGbvximXc6)
+> — Cheng Kaifu (@Taihoku1895) [November 26, 2020](https://twitter.com/Taihoku1895/status/1331892139861569537?ref_src=twsrc%5Etfw)
 
-以上还未讨论中共国的技术间谍，其偷盗能力更是令人叹为观止，比留学生的效果更甚。在此次疫情中，留学生们、旅游者、出国“考察”者以及中共国的职业间谍均起到明显的效果，此次疫情其实已经将中共国在暗处的一切罪行全暴露在光天化日之下，
 
-其时班农先生在日本的演讲取得了空前的成果，全日本的专业领域都因此关注中共国反知识产权、偷盗技术成果的行为。中共国的习近平、王岐山出其不意的用行为配合了这次演讲，他们强化了偷盗技术方面的投入，同时，为了向美国及全世界伪装，习近平王岐山决定自断一臂，在本月即2020年11月，决定彻底放弃华为。事实上，连续3年内，中共高层均在讨论如何放弃华为。放弃华为绝不等于放弃偷盗技术，而是在偷盗技术上做的更精、更妙、更有隐蔽性。将一个较大的实体华为，拆分成一系列小的偷盗实体，这样加强了隐蔽性、反侦察性，还让美国的司法体系无可奈何。第一，美国司法体系已经裁决了华为，而中共采用分解、拆分华为的手段，让美国的司法体系难以再次针对；第二，人类的司法体系比较擅长针对较大的公司实体，而很难去抓住涌动的暗流、一大批小的实体。
 
-在川普总统100%的连任后（事实上如今仍有大量的公民被骗，认为川普总统无法连任）。川普总统会快速灭共，如果不能快速灭共，中共国的偷盗技术水准在不断的提高、不断的精炼化，美国以及全世界国家又会大量的流失技术。即使日本已经开始觉醒，开始对偷盗技术，但中共国巧妙的利用了日本民间人士、尤其是左翼人士普遍亲华的特点，他们会大量使用华工、华人技术人员，中共国在此间大量渔利，这件事已经在过去40年内不断的发生。
+推文中提到的法案是什么呢？这个法案就是[S. 394, Presidential Transition Enhancement Act of 2019](https://www.cbo.gov/publication/55008)（March 1, 2019 Cost Estimate） S.394，2019年总统过渡增强法（2019年3月1日美国东部时间），其相关信息如下：
 
-川普总统四年来的一系列策略，不但振兴了美国，还让全世界的恶势力如坐针毡。在面对中共国方面，川普总统精确的指出了中共国的偷盗技术手段，尤其是对于本文中描述的留学生的反知识产权洗脑套路，川普总统了如指掌。川普总统是上帝选择的人，这个观点不得不让人信服。对于中共国使用全国洗脑、让中国人作为肉盾、肉垫来攻击美国、并且最后锅由中华民族来背。对中共国这个体制，川普总统有其独到破解之术。过去四年来，中共国偷盗技术的手段被有效的遏止，首当其冲的华为已经完全裂解。可以说，如果川普总统连任后，中共国的留学生洗脑手段会几乎被废掉，之后中共国只会用隐蔽性更强的大量间谍手段，这就取决于美国的媒体能否转向，能否向民间发布真相，告诉美国各企业人员，向他们普及世界上有这么一个毫无知识产权的国家、他们一部分国民乐于偷盗技术。当然，这个国家内也有正义的人士，反对偷窃技术，只是这些正义的人士大多已经在监狱里或者已经消失了。
+As ordered reported by the Senate Committee on Homeland Security and Governmental Affairs on February 13, 2019
 
-想要避免未来美国的沦陷，需要美国公民的大量觉醒，坚定的支持川普总统，幸运的是，美国公民做到了这一点。昨日，宾州开启了4个小时的听证会，大量的证据在宾州呈堂，宾州法官发出司法命令，暂停认证大选的结果。主流媒体没有一个报导这件重大事件，这些案件均都由美国乃至全世界的正义力量用自媒体方法曝出。本次听证会是一个重大的反转点，当然，对于早就确信川普总统会100%连任的我们来说，这些新闻知晓与否并不最重要。不过从进程角度讲，本次听证会确实是一个重大转折点。然而，川普团队掌握的最强石锤证据还远远没有发布，本次听证会发布的证据均是美国公民们掌握的证据。川普团队会在最关键的时刻发布最石锤的证据，这是为了防止拜登一伙反人类分子得知具体的证据会毁灭证据或者重新做出战术性部署，反针对川普总统。对于这件事，我们就静待佳音，看将来会刻上国会山的那位川普总统，这次如何排干这些沼泽吧。
+根据参议院国土安全和政府事务委员会于2019年2月13日的报告
 
-（文章内容仅代表作者观点）
+## Summary概要
+
+S. 394 would limit the period during which services and facilities are provided to Presidential transition teams by the General Services Administration (GSA). The bill also would set a timeline for GSA to enter into memorandums of understanding with Presidential campaigns to prepare for potential transitions. Finally, S. 394 would authorize the executive branch to pay legislative branch employees to work for the President-elect or Vice President-elect during transition periods.
+
+S.394将限制总务管理局（GSA）向总统过渡小组提供服务和设施的期限。 该法案还将为GSA设定时间表，与总统竞选活动达成谅解备忘录，为可能的过渡做好准备。在过渡期最后，S394将授权行政部门支付为当选总统或副总统当选人过渡期内交接工作服务的立法部门雇员费用。
+
+Using information from GSA, CBO expects that most of the bill’s provisions would not have a significant effect on the cost of a Presidential transition. However, one provision would reduce the period during which a transition team may use government services and facilities following an inauguration from 180 days to 60 days. CBO estimates that condensing the time frame during which government services and facilities may be used would reduce federal costs for staffing and office space by less than $500,000 annually in the years of Presidential inaugurations.
+
+国会预算办公室使用GSA的信息，预计该法案的大部分规定不会对总统过渡的成本产生重大影响。 但是，一项规定将在就职典礼后将过渡小组使用政府服务和设施的时间从180天缩短到60天。 国会预算办公室估计，在总统就职年限内，缩短可使用政府服务和设施的时间框架，将使联邦每年用于工作人员和办公室的费用减少不到500,000美元。
+
+## Legislative Information（立法信息）
+
+- [Available From Congress.gov](https://congress.gov/bill/116th-congress/senate-bill/394)
+
+
+
+| **Sponsor:** | [Sen. Johnson, Ron \[R-WI\]](https://www.congress.gov/member/ron-johnson/J000293) (Introduced 02/07/2019) |
+| --- | --- |
+| **Committees:** | Senate – Homeland Security and Governmental Affairs | House – Oversight and Reform |
+| **Committee Reports:** | [S. Rept. 116-13](https://www.congress.gov/congressional-report/116th-congress/senate-report/13/1?overview=closed) |
+| **Latest Action:** | 03/03/2020 Became Public Law No: 116-121. ([TXT](https://www.congress.gov/bill/116th-congress/senate-bill/394/text?overview=closed) | [PDF](https://www.congress.gov/116/plaws/publ121/PLAW-116publ121.pdf))  ([All Actions](https://www.congress.gov/bill/116th-congress/senate-bill/394/all-actions?overview=closed#tabs)) |
+| **最新进展：** | 2020年3月3日成为法律编号116-121 |
+
+
+### Public Law No: 116-121 (03/03/2020)法律编号
+
+**Presidential Transition Enhancement Act of 2019（2019年总统过渡加强法）**
+
+This bill makes changes intended to smooth the transfer of executive power during presidential transitions.
+
+该法案进行了一些修改，旨在使总统过渡期间的行政权力转移更加顺畅。
+
+The bill provides for the detailing of legislative branch employees on a reimbursable basis to office staffs designated by the President-elect or Vice President-elect with the consent of the supervising Member of Congress.
+
+该法案详细规定了当选总统或副总统指定并经由国会同意的立法部门雇员监督过渡班子费用细节。
+
+The bill extends support provided by the General Services Administration (GSA) to the President- and Vice President-elect for up to 60 days after the inauguration.
+
+该法案扩展了总务管理局（GSA）为当选正副总统当选总统提供直到宣誓仪式后60天提供支持的规定。
+
+By September 1 of a year during which a presidential election occurs, the GSA shall enter into a memorandum of understanding (MOU) with each eligible candidate, which shall include the conditions for administrative support services and facilities. To the maximum extent practicable, an MOU shall be based on MOUs relating to previous presidential transitions. Each MOU shall include an agreement that the eligible candidate will implement and enforce an ethics plan to guide the conduct of the transition beginning on the date on which such candidate becomes President-elect. The plan shall be published on the GSA website.
+
+在举行总统选举的一年中的9月1日之前，GSA应与每位合格候选人签署谅解备忘录（MOU），其中应包括行政支持服务和设施的条件。 谅解备忘录应在最大范围内以与先前总统过渡有关的谅解备忘录为基础。每个备忘录应包括符合条件的候选人将落实和执行伦理计划来指导开始在其上这样的候选人成为总统当选之日起的过渡行为的协议。 该计划应在GSA网站上发布。
+
+By September 15 of a year during which a presidential election occurs, each agency shall ensure that a succession plan is in place for each senior noncareer position in the agency.
+
+在举行总统大选的一年的9月15日之前，每个机构都应确保为机构中的每个高级非职业职位制定了继任计划。
+
+以下为该法案部分内容——
+
+PRESIDENTIAL TRANSITION ENHANCEMENT （强化总统交接法案）
+
+(ii) a description of how the transition team will—
+
+过渡班子将要说明——
+
+(I) address the role on the transition team of（班子中的成员角色）–
+
+(aa) lobbyists registered under the Lobbying Disclosure Act of 1995 (2 U.S.C. 1601 et seq.) and individuals who were former lobbyists registered under that Act; and（根据1995年《游说披露法》（《美国法典》第2卷第1601条及以下）注册的游说者和曾根据该法注册的游说者； 和）
+
+(bb) persons registered under the Foreign Agents Registration Act of 1938 (22 U.S.C.[[Page 134 STAT. 141]] 611 et seq.), foreign nationals,and other foreign agents;（根据1938年《外国代理人注册法》（《美国法典》第22卷第[[134页STAT.141]] 611及以后版本）注册的人员，外国国民和其他外国代理人；）
+
+(II) prohibit a transition team member with conflicts of interest similar to those applicable to Federal employees under section 2635.402(a) and section 2635.502(a) of title 5, Code of  Federal Regulations, related to current or former employment, affiliations, clients, or investments, from working on particular matters involving specific parties that affect the interests of such member; and（禁止与美国联邦法规第5标题第2635.402（a）和2635.502（a）条规定的与当前或以前的工作，从属关系，客户或投资有关的利益冲突的过渡团队成员 ，从事涉及特定方的，影响该成员利益的特定事务； 和）
+
+(III) address how the covered eligible candidate will address his or her own conflicts of interest during a Presidential term if the covered eligible candidate becomes the President-elect;（如果符合法条规定的候选人当选总统，他（她）应说明满足符合条件的候选人将如何解决总统任期期间他或她自己的利益冲突;）
+
+(iii) a Code of Ethical Conduct, which each member of the transition team will sign and be subject to, that reflects the content of the ethics plans under this paragraph and at a minimum  requires transition team members to（过渡团队的每个成员都将签署并遵守的《道德行为守则》，该守则应反映本款下的道德计划的内容，并且至少要求过渡团队的成员-）–
+
+(I) seek authorization from  transition team leaders or their                                 designees before seeking, on behalf of the transition, access to any nonpublic information（代表过渡组织寻求过渡组织领导者或其指定人员的授权，然后再获取任何非公开信息；）;
+
+(II) keep confidential any  nonpublic information provided in the  course of the duties of the member with the transition and exclusively use such information for the purposes of the transition; and（对成员在履行职责期间提供的任何非公开信息保密，并仅将这些信息用于过渡目的； 和）
+
+(III) not use any nonpublic   information provided in the course of  transition duties, in any manner, for personal or private gain for the member or any other party at any time during or after the transition; and（在过渡期间或过渡后的任何时间，不得以任何方式将在过渡职责过程中提供的任何非公开信息用于会员或任何其他方的个人或私人利益； 和）
+
+(iv) a description of how the transition team will enforce the Code of Ethical Conduct, including the names of the members of the  transition team responsible for enforcement, oversight, and compliance.（过渡小组将如何执行《道德行为守则》的说明，包括负责实施，监督和合规的过渡小组成员的姓名。）
+
+\*\*\*\*\*\*\*内容引述完毕\*\*\*\*\*\*\*
+
+法律条文比较拗口，另外由于英文水平有限，以上的中文内容仅为根据谷歌翻译内容稍作调整，但是**2019年总统过渡加强法**的内容是非常清楚的，过渡班子需要说明成员内是否有依法注册为外国代理人或外国国民，如果有应如何解决其在任职期内的利益冲突，按照拜登硬盘门的内容，拜登属于未注册外国代理人，首先就不应该具备总统候选人资格，即使他取得了候选人资格，也顺利当选，按照2019年总统过渡加强法，如果他和他的团队不如实填写信息并进行移交成为美国总统及行政团队的一员，那么他签署**2019年总统过渡加强法**要求的相关文件之日起已经触犯该法，如果拜登和他的团队成员如实填写信息，那么就没有如果了，这就是**2019年总统过渡加强法**的真实内涵，让外国代理人进退维谷、左右为难——不管怎么行动，都是死路一条！
+
+声明：因英文水平有限，加之对此条消息太过兴奋，因此译文必有太多纰漏，请多海涵，不为其它，只为分享这份喜悦，因为正义终将战胜邪恶，而这个法案就是正义战胜邪恶的一把利剑！
+
+（文章内容仅代表作者个人观点）
 
 0

@@ -1,52 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 感觉到光明，它唱出了歌
-` HAIKUOTIANKONG` [轉載自GNews](https://gnews.org/zh-hans/591817/)
+## “多猫腻”系统 在美国Goddy.Com注册,域名登记公司在湖南
+` 喜马拉雅凤凰农场–旧金山-金喜站` [轉載自GNews](https://gnews.org/zh-hans/592081/)
 
-内新闻/素材：司廷Sting 校对：文迹～见证神迹
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25234557/PSX_20201126_120601.jpg)
-川普的选战不如期望那样顺利。先是朱利安尼和艾利斯发表声明，鲍威尔大律师不是川普律师团队的成员，接着是川普律师团队在滨州的诉讼被驳回，最受打击的是白宫总务署墨菲，同意开始对拜登团队过渡的程序。诸事不顺，希望被推到了谷底。林伍德大律师说：“在信仰中，保持坚强”。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25234640/124121616_733431987259310_8244053378783919941_n.jpg)
-川普的环境极为艰难，在栽赃弹劾的威胁下，挺过4年已相当不易，如今也还要面对共和党建制派的质疑。墨菲同意启动过渡程序，川普也发推文说，自己的团队也同样启动过渡程序。川普的退让，可能是基于这样一种考量：维护共和党的团结，以争取在可能到来的1月8日的国会选举中，获得众议院共和党议员的支持。当然，朱利安尼和艾利斯发表的关于鲍威尔不属于川普律师团队的声明，也是基于同样的考量。鲍威尔嫉恶如仇，无论民主党还是共和党，此外，鲍威尔推进的是刑事诉讼，时间漫长，远水不解近渴。
+作者：**迷迭香 Rosemary**，** 凤凰农场**-旧金山
 
-25日Gnews传来好消息。第一则：林·伍德（Lin Wood）宣布 ：西德尼·鲍威尔(Sidney Powell) 明天将在佐治亚州提起重大诉讼 ! (路德社) 第二则：川普总统的高级法律顾问詹娜·埃利斯通过推特发表了律师团队声明，“宾夕法尼亚州、亚利桑那州、密西根州立法机构将举行2020年总统大选公开听证会（加喜农场）。第三则：”宾夕法尼亚联邦法官麦卡洛阻止了认证结果，并命令该州官员在周五举行听证会之前，不得认证2020年选举结果(VOG GM01 )。”
+通过网上域名追踪，“多猫腻”公司在北美有三个办公室，一个在科洛拉多的丹佛，，一个在纽约的乔治城，一个在加拿大的多伦多。域名有一家湖南的公司在美国注册，所用的服务器设在福建泉州的数据中心。
 
-政治战接近尾声，法律战正式打响。
+“多猫腻”的域名：dominionvotingsystems.com 目前已被删除。但是网上档案中可以找到：
 
-开局是不错的。 滨州是重点，“认证”被阻止，这对拜登是一记重拳，川普“翻盘”的可能，也再次归来；三州举行听证会，更是重大“利好”。好在听证标志着，正式的程序，严肃的态度，以及对真相的追求。鬼魅撒怖黑暗，试图将自身掩藏，听证恰是好的开始，有如拨云，让阳光播撒。
+Archive of the dominionvotingsystems.com
 
-在专制国家，国王就是法律，在民主国家，法律就是国王。美国是法制国，建国200多年来已经形成的传统是：一切组织、党派、政治和军事机构的行为都必须遵循法律。如果说，在专制国家，最终决定权在君主，而在美国，最终决定权在最高法院。
+https://web.archive.org/web/20110207174748/http://www.dominionvoting.com/
+![Graphical user interface, website
+Description automatically generated](https://lh4.googleusercontent.com/wKSarosOXUKCrC5kMbZjYPPtfq6S1n5qAIL9niAezU-CMoee40IKA1MVcrGXAMxojafKoLAsUHw_y2s_H39iKWhoFUBvEkaR9f_VCQcElZ8a9XNpBd-NIW7K54GtAed_QH6JvF0)
+跟踪“多猫腻”域名，注册地在湖南，2020年5月更新：
+![Graphical user interface, website
+Description automatically generated](https://lh4.googleusercontent.com/bsKpBBfdVeekAz56nOAKO_5KbgcreYmQJr9CsnbjHKv68LEdPPLId-QAsdBsTcCsV2YqzeAbIUT27ErkruzTYXW7ocT3_qhrXgjBJrXX--7Ugu20XHyu6DncUGjBhnm4V9BO4lY)
+域名搜索结果，在美国godaddy.com 注册,由一家湖南的公司注册，公司名字被删除。
+![Graphical user interface, text, application
+Description automatically generated](https://lh5.googleusercontent.com/eSYFaeGHaJcYoO5tEUf6e9Gy2figDkV0Ph7jgWx4oLUyuv71BjaaZQesZ63rFoVVzP9wu7lAhi1elIiJrRCTNSnZNeCL0XKvAFtqUIsEV5FNPVmOFzBeine1l0C-tfnQefSIer8)
+在美国的联系方式：
+![Graphical user interface, text, application
+Description automatically generated](https://lh6.googleusercontent.com/cLgHYE1FZV4F4klLCeVWhW5brGfQk8_QQBSEvVqIjxKEK0LuW3MNyOZ98RxyTx5Vow2hkqKQD54jPLvmkhP0s-Ncdua2SALgNYF1W4RkGfZ6_XvuVx5URTeyZu7XzfiPJaFkNSM)
+从加州traceroute追随到香港 ， 见第12步
+![Text
+Description automatically generated](https://lh6.googleusercontent.com/LFAlXZRuiw6e7iu_2OxUMNkHlw4GQZSChrF2Vh1DWKABPaNbnuBQ4TYyHXNs47EJRANEXOiqtxaRR-JRXO6tOHeowj8GquKOsDpKyqiRU9bYO27X-LqHSsHv7ihIcMXBudclQZM)
+网上推特：
 
-拜登暂时“获得”了270张选举人票，但拜登的登顶梦终将是梦，没有法律根基，这顶“皇冠”犹如镜中花，水中月。舆论媒体的摇旗呐喊将拜登推向总统宝座，其实是将拜登集团推向深渊。
-
-在川普方面看来，虽然政治未能决定选举，主要媒体也不在人民手中，但选举的一个事实是：“舞弊”，舞弊是法律问题，须经法律渠道解决。美国法律三审终审，程序严谨，要一级一级地打，所以艾利斯告诉民众：还是要有耐心。滨州的诉讼被驳回时，朱利安尼说 ：“宾夕法尼亚州诉讼案的驳回，让我们离最高法院更近了步（Gnews华盛顿DC站22日）”也就是说，州法院不拖拉，时间上，对川普团队更有利。
-
-好拳手出击，必要站稳脚跟。川普是好拳手，一切行动凭籍法律。动用军队查获CIA在德国的伺服器，以及正在筹备成立的特种军，都是基于肯尼迪国安备忘录57号文件；曾经考虑过用军队平叛，也是基于《反叛乱法》。拜登演讲说：“传统是被用来破的”，殊不知，美国不是中国，法制传统根深蒂固，深入民心，不可动摇。“破”的结果是自作自受。
-
-一波三折，正义女神踏浪而来，主持美国这场前所未有的审判。美国的法制不可动摇，主流民意也不可动摇，法律战已经打响，未来已经可以预期。
-
-“感觉到光明，它唱出了歌。”（泰戈尔-飞鸟集）
-
-新闻链接：
-Gnews《路德社》精选新闻快讯：炸裂！内华达法官同意大选证人提供证词。
-[https://gnews.org/zh-hans/589071/](https://gnews.org/zh-hans/589071/)
-
-L.林伍德推特 ：
-光总是战胜黑暗，真理总是战胜谎言。
-[https://twitter.com/LLinWood/status/1276885076853379072](https://twitter.com/LLinWood/status/1276885076853379072)
-
-Gnews 路德社 ：
-林·伍德（Lin Wood）宣布 ：西德尼·鲍威尔(Sidney Powell) 明天将在佐治亚州提起重大诉讼!
-[https://gnews.org/zh-hans/588812/](https://gnews.org/zh-hans/588812/)
-
-Gnews 多伦多加喜农场 老熊 :
-&lt;三大战场州明起就大选舞弊举行公开听证&gt;
-“川普总统的高级法律顾问詹娜·埃利斯通过推特发表了律师团队声明，“宾夕法尼亚州、亚利桑那州、密西根州立法机构将举行2020年总统大选公开听证会。”
-[https://gnews.org/zh-hans/588556/](https://gnews.org/zh-hans/588556/)
-
-Gnews VOG GM01 ：
-宾夕法尼亚联邦法官麦卡洛阻止了认证结果，并命令该州官员在周五举行听证会之前，不得认证2020年选举结果。
-[https://gnews.org/zh-hans/590690/](https://gnews.org/zh-hans/590690/)
-
-0
+这个人说服务器在泉州的一个数据中心。![Graphical user interface, text, application, chat or text message
+Description automatically generated](https://lh3.googleusercontent.com/2nWLUwn-wy3xfo66p8afUOrMmv5uJ5f33zr9qAcb6vQ_v8hLD9-eD7JhURNt4AJtzXqlwhBPf1b7hQcGXg_yppN-jOThELqtmqjQzGzBeaNGR2FE5y5TGZEFtdzgVPfrv9fY_js)
+![Graphical user interface, text, application, email
+Description automatically generated](https://lh6.googleusercontent.com/HX1ODYdAMhswK8nmAJH5-Wn6vZ1lhAFl7XJ1hBfrdy3BLZ9V4_mSP5xCSLPogC__VXTcG4moD_Dqove0cdbFptLyUMkb-muu5KFjmlqIoZkNGF31g5JIs8cQquFE9oE2ElcgG7k)
+1+

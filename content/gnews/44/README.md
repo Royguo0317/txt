@@ -1,37 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 宾夕法尼亚州法官阻止选举认证
-` 康州喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/591401/)
+## 《路德社》精选新闻快讯：川普总统发推特赦弗林将军 大律师林伍德力挺
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/591361/)
 
-翻译： 康州农场 – 烟波浩淼
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-校对： 康州农场 –黎明的光明
+川普总统二十五日下午发推，
+我非常荣幸的宣布米歇儿弗林将军（General Flynn)已经获得我的全部赫免，祝贺他和他优秀的家人，我知道你们将会有一个真正美妙的感恩节！
 
-审核：康州农场 –Truemanman
 
-宾夕法尼亚州法院已下令该州停止选举认证工作直至周五，届时将就试图取消所有邮寄选票资格的诉讼举行听证会。
 
-众议员麦克·凯利（Mike Kelly），国会候选人肖恩·帕内尔（Sean Parnell）和其他8名请愿者声称，上个月允许所有选民使用邮寄选票的决定是违宪的。
+> It is my Great Honor to announce that General Michael T. Flynn has been granted a Full Pardon. Congratulations to [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) and his wonderful family, I know you will now have a truly fantastic Thanksgiving!
+> — Donald J. Trump (@realDonaldTrump) [November 25, 2020](https://twitter.com/realDonaldTrump/status/1331706255212228608?ref_src=twsrc%5Etfw)
 
-特朗普总统的盟友们在全国各地（试图通过）剔除（非法）邮递选票进而推翻选举结果的努力遭遇了一次又一次挫折。
 
-但周三，联邦法院法官帕特里夏·麦卡洛（Patricia A. McCullough）发布了一项初步命令，暂时停止认证。
 
-她写道：“根据他们的新闻稿和简报，由于被调查者没有对任何其他选举结果进行认证，因此初步禁止被调查者在证据听证会之前对剩余的选举结果进行认证。”
+在川普总统发推后一小时，大律师林伍德（Lin Wood)随即回推，他说，愿上帝保佑我们的川普总统和弗林将军，两个勇气中的男人，他们绝对不会放弃让我们的国家获得自由的努力 ！
 
-在此之前，质询者在周二傍晚提交了一份文件，其中还列出了法院可以采取的其他措施，包括阻止选举人下个月开会。
 
-他们写道：“因为根据法律规定，选举人必须在‘本联邦政府所在地’履行职责，所以本法院也可以禁止被调查者允许选举人在该地点集会。”
 
-特朗普还有一点成功的可能性，那就是各州未能在12月14日之前认证他们的选举结果。 到时选举人们将开会选出美国第46任总统。在这种情况下，忠诚的共和党州议会可能会无视拜登获胜的普选结果，直接宣布将选举人票投给川普。
+> God bless our President [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) & General Flynn [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw). Two men of courage who will never quit on their efforts to keep our country free.
+> 
+> God bless America. [https://t.co/IFMPIBAzeo](https://t.co/IFMPIBAzeo)
+> — Lin Wood (@LLinWood) [November 25, 2020](https://twitter.com/LLinWood/status/1331718565708357637?ref_src=twsrc%5Etfw)
 
-据多家新闻机构称，随着99%的选票统计完毕，拜登在宾夕法尼亚州以8万多票领先特朗普，民主党提名人赢得了胜利。
 
-原作者：白宫记者Rob Crilly｜2020年11月25日下午01:28分
 
-原文链接：
+自从弗林将军遭＂通俄案＂政治构陷，被迫解职的前国家安全顾问弗林将军获得了大律师鲍威尔的支持，他一直在战斗中！
 
-[Pennsylvania judge halts election certification (washingtonexaminer.com)](https://www.washingtonexaminer.com/news/pennsylvania-judge-halts-election-certification)
-
-1+
+0
