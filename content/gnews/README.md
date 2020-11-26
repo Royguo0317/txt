@@ -12,26 +12,26 @@
 
 
 
-### [《路德社》精选新闻快讯：特朗普总统将赦免前国家安全顾问迈克尔.弗林](/content/gnews/1/README.md)
+### [视频Dominion 舞弊系统直指佩洛西 克林顿家族&#8211;玫瑰看新闻（视频版）2020.11.25第20期](/content/gnews/1/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [突发重磅！鲍威尔正式释放“海妖”，拜登阵营即将雪崩](/content/gnews/2/README.md)
+### [《路德社》精选新闻快讯：特朗普总统将赦免前国家安全顾问迈克尔.弗林](/content/gnews/2/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [突发重磅！鲍威尔正式释放“海妖”，拜登阵营即将雪崩](/content/gnews/3/README.md)
  ` GM101`
 
-### [《路德社》精选新闻快讯：川普总统发推特赦弗林将军 大律师林伍德力挺](/content/gnews/3/README.md)
+### [《路德社》精选新闻快讯：川普总统发推特赦弗林将军 大律师林伍德力挺](/content/gnews/4/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [路德社重磅解读：宾州立法会参议员将前往白宫看重磅证据及弗林将军被特赦!](/content/gnews/4/README.md)
+### [路德社重磅解读：宾州立法会参议员将前往白宫看重磅证据及弗林将军被特赦!](/content/gnews/5/README.md)
  ` GM31`
 
-### [宾州法官中止选举认证](/content/gnews/5/README.md)
+### [宾州法官中止选举认证](/content/gnews/6/README.md)
  ` 巴塞罗那喜西农场`
 
-### [突发！川普赦免弗林将军](/content/gnews/6/README.md)
+### [突发！川普赦免弗林将军](/content/gnews/7/README.md)
  ` 巴塞罗那喜西农场`
-
-### [操控美国大选失败，习近平总书记要求全军听党指挥并以实战训练](/content/gnews/7/README.md)
- ` GM101`
 
 ### [奥巴马神秘身世之谜](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`

@@ -1,88 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德社重磅解读：宾州立法会参议员将前往白宫看重磅证据及弗林将军被特赦!
-` GM31` [轉載自GNews](https://gnews.org/zh-hans/591742/)
+## 《路德社》精选新闻快讯：川普总统发推特赦弗林将军 大律师林伍德力挺
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/591361/)
 
-《路德时评》2020年11月25日晚间节目重磅解读**：1、弗林将军被川普总统特赦；2、川普总统参加宾州听证会；3、宾州参议员将前往白宫看重要证据。**
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-
-
-一、**弗林将军被川普总统特赦寓意为何？**
-
-11月26日川普总统发推说到[1]：“我荣幸地宣布：迈克尔·弗林将军已获得完全赦免。祝贺弗林将军及他的家人。”
-
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25225145/%E5%9B%BE%E7%89%87-15.png)](https://twitter.com/realDonaldTrump/status/1331706255212228608)图片来源：[https://twitter.com/realDonaldTrump/status/1331706255212228608](https://twitter.com/realDonaldTrump/status/1331706255212228608)
-
-结合该新闻的分析如下：
-
-1. Full Pardon称为全面赦免，是《宪法》赋予总统的权力，川普总统给弗林将军全面赦免，其中最重要的就是恢复对方的全部公民权利，他可再次担任公职；
-2. 弗林将军将重返白宫任职，直接参与前线作战，鲍威尔律师是他的前任律师，现在也成为一名军事律师；
-3. 由于川普总统身边众多高层已被中共收买，他现在极需可信赖的内阁成员，弗林将军就是他最信赖的下属之一。
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25231644/GeneralFlynn-1.png)
-
-二、**川普总统参加宾州听证会暗藏重要信息**
-
-大纪元11月26日讯[2]：*宾州参议院在葛底斯堡举行选举欺诈公众听证会，美国总统川普（特朗普）通过电话参与会议，并发言近10分钟。川普除概括宾州等关键州发现的选举欺诈现象外，他还说，民主党人没有想到他获得如此高的选票、踩错油门露出了马脚。*
-
-1、朱利安尼今天在听证会明确说多米尼投票系统被篡改的数据一定会被恢复；
-
-2、路德社此前爆料民主党大选前就已聘请500个律师准备打法律战，如果此时由他们发起诉讼，再加上左媒的虚假报道以及法官早被收买，他们肯定能轻松赢得诉讼，拜登就将上台；
-
-3、现在川普总统拥有完全主动，而民主党完全处于被动地位，他们聘请的500位律师现在无的放矢；
-
-4、听证会基本算是走过场，所有结果早已定下。
-
-**三**、**宾州立法会参议员与朱利安尼先生将前往白宫**
-
-白宫重磅新闻：宾州立法会参议员与朱利安尼先生将共同前往白宫与川普总统共进晚餐。
-
-1. 川普总统将在此次宴会中向他们展示国防部网络战计划中所收集到的重磅证据；
-2. 被邀请的参议员中有民主党和共和党成员，他们都将看到这些重要机密，这对最终的判决起到至关重要的作用，美国立法会也将认定大选中出现严重的舞弊；
-3. 结合川普总统前两天转发“美国网络战计划”这则消息，这些造假信息早已被完全监控；
-
-
-**四、其他大选舞弊案调查信息**
-
-**1、Gnews 11月25日报道[3]：宾夕法尼亚州法院已下令该州停止选举认证工作直至周五，届时将就试图取消所有邮寄选票资格的诉讼举行听证会。**
-
-（1）宾州不止是参议院举行听证，该州法官也要举行听证。
-
-（2）美国是三权分立，美国司法机构也被中共渗透，爆料革命也掌握这些渗透证据，将借此重新帮美国司法机构回到正轨；
-
-（3）法律战开始摆上桌面，川普法律团队掌握的证据将派上用场；
-
-**2、宾州选举欺诈听证会，信息战专家作证**
-
-据报道[4]：宾州选举欺诈听证会，信息战专家作证。他从今年八月就开始调查选举舞弊，他说这个投票系统就是为了操纵选举而设计的。在一个时间段内的计票，60万张投拜登，3千张投川普！观众几乎笑场。更夸张的是，总共寄出了1,823,148张邮寄选票，但是竟计入2,589,242张邮寄选票！凭空多出了70万张！
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/25225729/%E5%9B%BE%E7%89%87-16.png)图片地址：[https://parler.com/post/4cd6b56515334b5ea59e18ce90cfc115](https://parler.com/post/4cd6b56515334b5ea59e18ce90cfc115)
+川普总统二十五日下午发推，
+我非常荣幸的宣布米歇儿弗林将军（General Flynn)已经获得我的全部赫免，祝贺他和他优秀的家人，我知道你们将会有一个真正美妙的感恩节！
 
 
 
-1. 美国的民间力量也在参与大选舞弊案调查，朱利安尼先生、弗林将军就是民间力量的代表；
-2. 美国已清楚意识到不能重蹈尼克松和小布什的覆辙，就得利用民间力量展开调查；
-3. 各方正义力量早已部署至媒体战、网络战、信息战等各个战场，一切都在按计划开展。
+> It is my Great Honor to announce that General Michael T. Flynn has been granted a Full Pardon. Congratulations to [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) and his wonderful family, I know you will now have a truly fantastic Thanksgiving!
+> — Donald J. Trump (@realDonaldTrump) [November 25, 2020](https://twitter.com/realDonaldTrump/status/1331706255212228608?ref_src=twsrc%5Etfw)
 
 
-各州法官出现翻转，开始参与选票舞弊案的听证会，美国各层面都开始出现翻转，这背后就有爆料革命的鼎力支持，爆料革命就是在拯救全人类，拯救正义，拯救美国的国家体系。
 
-参考文章：
+在川普总统发推后一小时，大律师林伍德（Lin Wood)随即回推，他说，愿上帝保佑我们的川普总统和弗林将军，两个勇气中的男人，他们绝对不会放弃让我们的国家获得自由的努力 ！
 
-[1] [https://twitter.com/realDonaldTrump/status/1331706255212228608](https://twitter.com/realDonaldTrump/status/1331706255212228608)
 
-[2] [https://www.epochtimes.com/gb/20/11/25/n12575629.htm](https://www.epochtimes.com/gb/20/11/25/n12575629.htm)
 
-[3] [https://gnews.org/zh-hans/591401/](https://gnews.org/zh-hans/591401/)
+> God bless our President [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) & General Flynn [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw). Two men of courage who will never quit on their efforts to keep our country free.
+> 
+> God bless America. [https://t.co/IFMPIBAzeo](https://t.co/IFMPIBAzeo)
+> — Lin Wood (@LLinWood) [November 25, 2020](https://twitter.com/LLinWood/status/1331718565708357637?ref_src=twsrc%5Etfw)
 
-[4] [https://parler.com/post/4cd6b56515334b5ea59e18ce90cfc115](https://parler.com/post/4cd6b56515334b5ea59e18ce90cfc115)
 
-视频来源：[https://www.youtube.com/watch?v=-diNal-y7cM](https://www.youtube.com/watch?v=-diNal-y7cM)
 
-*文章撰写：【重生】    编辑：【GM31】*
+自从弗林将军遭＂通俄案＂政治构陷，被迫解职的前国家安全顾问弗林将军获得了大律师鲍威尔的支持，他一直在战斗中！
 
-*战友之家玫瑰园小队出品*
-
-1+
+0
