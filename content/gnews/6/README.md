@@ -1,45 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 快讯！宾州议会周三就2020年选举问题和违规行为举行了听证会
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/592223/)
+## 《路德社》精选新闻快讯：川普总统取消宾州盖兹堡行程，因团队一成员染疫
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/592319/)
 
-收集：JAY 
-编撰：WENJUN 
-复核：文錦
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26030136/1-239.png)图片来自链接网站截图
-
-宾夕法尼亚州议会周三就2020年选举问题和舞弊行为举行了听证会。
-
-一名目击者在听证会上描述了宾夕法尼亚州的巨大 “尖峰”，众人惊呼。
-
-“通常你会看到一条平滑的曲线上升，而不是任何大的尖峰……这就是上传这些选票的异常情况，所以那里出现的大尖峰是欺诈性投票的主要指标，”证人说。
-
-“那就是90分钟内有60.4万票？是这样吗？” 朱利安尼对证人说。
-
-“正确。这段时间内是33.7万票。”证人说到。
-
-“当你看到这条曲线上的所有这些峰值时，你能计算出拜登占了多少票，川普占了多少票吗？” 朱利安尼说。
-
-“接近60万……””我想我们的数字大约是57万多。”
-
-“那川普又占多少？”
-
-证人：”我想是3200多一点。”
-
-人群和陪审团哗然，发出惊呼和笑声。
-
-宾夕法尼亚州和匹兹堡的选举官员在选举当晚投票时停止计票，因为拜登被川普总统选票数绝对碾压，美国总统川普在选举当晚以70万票领先宾夕法尼亚州的乔-拜登。后来出现费城和匹兹堡为乔-拜登清点了大量的选票，而不允许GOP观察员看选票。
-
-川普总统律师团队实施的策略不仅仅是为了获得选举的胜利，从初期的诱敌、取证已来到最后的反击阶段。宾州参议院的公开听证会，让美国人民和各党派成员看到川普总统的支持率在该州立法机构已获得了压倒性的局面，丝毫没有给拜登团队留下时间和空间上还手的余地，从而将选举舞弊案件如期推上法庭，最终实现将参与案件的外国势力（中共）一网打尽。
-
-参考链接:
+据OANN早间新闻当家主播斯蒂芬妮尔·迈尔丝（Stephanie Myers）推特，因为川普团队一名成员在中共病毒测试中呈阳性，川普总统已经取消了前往宾西法尼亚盖兹堡行程！
 
 
 
-> [Audible Gasps and Laughter From Crowd and Panel at PA Hearing When Witness Says Vote “Spikes” Went 600,000 For Biden and 3,200 For Trump (VIDEO)](https://www.thegatewaypundit.com/2020/11/audible-gasps-laughter-crowd-panel-pa-hearing-witness-says-vote-spikes-went-600000-biden-3200-trump-video/)
+> [#BREAKING](https://twitter.com/hashtag/BREAKING?src=hash&amp;ref_src=twsrc%5Etfw) President Trump's planned trip to Gettysburg, Pennsylvania is off after a member of the campaign tested positive for COVID-19.
+> — Stephanie Myers (@\_StephanieMyers) [November 25, 2020](https://twitter.com/_StephanieMyers/status/1331629866928590849?ref_src=twsrc%5Etfw)
 
 
+
+有左派媒体称感染者为川普团队的一名高级顾问，且川普总统的私人律师朱尼安利也与其有接触，但尚未发现有川普竞选团队官方声明！
+
+自中共病毒肆虐美国以来，上至美国总统、家人及特勤人员，下至普通百姓，令人奇怪的是，染疫的多为共和党人，少有民主党人！就在几天前，川普总统的长子和朱尼安尼的儿子也被确诊染上中共病毒！
+
+[援引原文](https://twitter.com/_stephaniemyers/status/1331629866928590849?s=24)
 
 0

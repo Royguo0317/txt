@@ -1,36 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “多猫腻”系统 在美国Goddy.Com注册,域名登记公司在湖南
-` 喜马拉雅凤凰农场–旧金山-金喜站` [轉載自GNews](https://gnews.org/zh-hans/592081/)
+## 鲍威尔正式起诉佐治亚州官员
+` GM107` [轉載自GNews](https://gnews.org/zh-hans/592695/)
 
-作者：**迷迭香 Rosemary**，** 凤凰农场**-旧金山
+知名辩护律师鲍威尔周三晚些时候起诉佐治亚州的高官，指控由共和党执政的州政府允许一个大规模的选举欺诈计划，操纵了11月3日的选举，使民主党人乔-拜登受益。
 
-通过网上域名追踪，“多猫腻”公司在北美有三个办公室，一个在科洛拉多的丹佛，，一个在纽约的乔治城，一个在加拿大的多伦多。域名有一家湖南的公司在美国注册，所用的服务器设在福建泉州的数据中心。
+知名辩护律师鲍威尔说，该计划的核心是隐藏在投票机算法中的现代 “塞填选票”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26073158/images-1-1.jpg)
+这起诉讼是代表几位佐治亚州居民、选民和共和党官员向亚特兰大美国地方法院提出的，并将州长布莱恩-坎普Kemp、州务卿布拉德-拉芬斯伯格Raffensperger和州选举委员会成员列为被告。
 
-“多猫腻”的域名：dominionvotingsystems.com 目前已被删除。但是网上档案中可以找到：
+这份长达104页的诉状要求法院发布禁令，”基于选举篡改的大量证据，禁止州长和州务卿将目前经过认证的结果递交给选举团”。
 
-Archive of the dominionvotingsystems.com
+“欺诈是通过多种手段实施的，但根本上最麻烦、阴险和恶劣的是，系统性地改编老式的’塞填选票’，”鲍威尔的诉讼称。”它现在已经被国内和国外的行为者为这一目的而创建和运行的计算机软件所放大，并使之几乎不可见。数学和统计学上的异常现象上升到不可能的程度，正如多名证人的宣誓书、文件和专家证词所显示的那样，证明了这一阴谋在整个佐治亚州的存在。”
 
-https://web.archive.org/web/20110207174748/http://www.dominionvoting.com/
-![Graphical user interface, website
-Description automatically generated](https://lh4.googleusercontent.com/wKSarosOXUKCrC5kMbZjYPPtfq6S1n5qAIL9niAezU-CMoee40IKA1MVcrGXAMxojafKoLAsUHw_y2s_H39iKWhoFUBvEkaR9f_VCQcElZ8a9XNpBd-NIW7K54GtAed_QH6JvF0)
-跟踪“多猫腻”域名，注册地在湖南，2020年5月更新：
-![Graphical user interface, website
-Description automatically generated](https://lh4.googleusercontent.com/bsKpBBfdVeekAz56nOAKO_5KbgcreYmQJr9CsnbjHKv68LEdPPLId-QAsdBsTcCsV2YqzeAbIUT27ErkruzTYXW7ocT3_qhrXgjBJrXX--7Ugu20XHyu6DncUGjBhnm4V9BO4lY)
-域名搜索结果，在美国godaddy.com 注册,由一家湖南的公司注册，公司名字被删除。
-![Graphical user interface, text, application
-Description automatically generated](https://lh5.googleusercontent.com/eSYFaeGHaJcYoO5tEUf6e9Gy2figDkV0Ph7jgWx4oLUyuv71BjaaZQesZ63rFoVVzP9wu7lAhi1elIiJrRCTNSnZNeCL0XKvAFtqUIsEV5FNPVmOFzBeine1l0C-tfnQefSIer8)
-在美国的联系方式：
-![Graphical user interface, text, application
-Description automatically generated](https://lh6.googleusercontent.com/cLgHYE1FZV4F4klLCeVWhW5brGfQk8_QQBSEvVqIjxKEK0LuW3MNyOZ98RxyTx5Vow2hkqKQD54jPLvmkhP0s-Ncdua2SALgNYF1W4RkGfZ6_XvuVx5URTeyZu7XzfiPJaFkNSM)
-从加州traceroute追随到香港 ， 见第12步
-![Text
-Description automatically generated](https://lh6.googleusercontent.com/LFAlXZRuiw6e7iu_2OxUMNkHlw4GQZSChrF2Vh1DWKABPaNbnuBQ4TYyHXNs47EJRANEXOiqtxaRR-JRXO6tOHeowj8GquKOsDpKyqiRU9bYO27X-LqHSsHv7ihIcMXBudclQZM)
-网上推特：
+“这个骗局和诡计仅在佐治亚州就影响了数万张选票，并在佐治亚州’操纵’了乔-拜登的选举，”诉讼书补充道。
 
-这个人说服务器在泉州的一个数据中心。![Graphical user interface, text, application, chat or text message
-Description automatically generated](https://lh3.googleusercontent.com/2nWLUwn-wy3xfo66p8afUOrMmv5uJ5f33zr9qAcb6vQ_v8hLD9-eD7JhURNt4AJtzXqlwhBPf1b7hQcGXg_yppN-jOThELqtmqjQzGzBeaNGR2FE5y5TGZEFtdzgVPfrv9fY_js)
-![Graphical user interface, text, application, email
-Description automatically generated](https://lh6.googleusercontent.com/HX1ODYdAMhswK8nmAJH5-Wn6vZ1lhAFl7XJ1hBfrdy3BLZ9V4_mSP5xCSLPogC__VXTcG4moD_Dqove0cdbFptLyUMkb-muu5KFjmlqIoZkNGF31g5JIs8cQquFE9oE2ElcgG7k)
-1+
+鲍威尔的诉讼提出了各种指控，包括：
+
+- 至少有96,600张缺席选票被申请和计算，但从选民退回到县选举委员会，却从未被记录。”因此，至少有96,600张选票必须被忽略，”诉讼说。
+
+
+- 州长Kemp和州务卿Raffensperger在2019年为2020年总统大选 “匆忙购买Dominion投票机和软件”，没有尽职调查、无视安全问题。
+
+
+- “有无可争议的实物证据表明，投票机和软件的物理安全标准被突破，机器连接到互联网，违反了专业标准和州及联邦法律。”
+
+
+- 富顿县选举工作人员以漏水为由，在选举当晚疏散投票监督员和工作人员数小时，甚至 “有几名选举工作人员一直到凌晨1点多还在投票制表机的电脑前工作，无人监督、无人问津”。
+
+
+- 在州政府官员与民主党达成的和解中对选举程序进行了修改，其违反了州法律和美国宪法。
+
+
+诉讼要求采取十多项补救措施，包括禁止将该州目前的认证结果送交选举团，进行签名匹配的审计，扣押选举机器，以及确保计票设置的视频监控录像带。
+
+滑稽可笑的事情，在广大选民和众多证据面前，乔治亚州官员只是一再否认有不法行为，并表示他们对上周审计后的最终计票结果充满信心。
+
+新闻来源：just the news
+原文链接：[https://justthenews.com/politics-policy/elections/sidney-powell-sues-georgia-officials-alleging-massive-scheme-rig-election](https://justthenews.com/politics-policy/elections/sidney-powell-sues-georgia-officials-alleging-massive-scheme-rig-election)
+
+0

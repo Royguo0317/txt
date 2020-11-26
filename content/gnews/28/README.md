@@ -1,20 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】台湾立法院成立人权促进会 关注香港新疆西藏人权状况
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/592384/)
+## 【热点播报】 大海怪被释放! 西德尼·鲍威尔律师提交了关于佐治亚州选举中大规模舞弊的爆炸性指控
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/593179/)
 
-作者：香草山写作组 程万里 校对/发稿：飞虹![]()
+作者：香草山写作组 叮咚猫
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20165916/logo-3.jpg)
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
 
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26052147/%E5%9B%BE%E7%89%8724-2.png)
-北京时间2020年11月24日台湾立法院举行人权促进会成立大会，发起人王定宇表示，将在任期内推动台湾版《全球马格尼茨基人权问责法》，将关注香港、新疆及西藏的人权状况。他说：“（要）让迫害人权的人在世界上无处可躲。另外，在国际上，我们会跟各个国会进行交流，特别是在一些特定的议题上，像香港、维吾尔族新疆方面，我们都希望透过直接或间接的方式进行相关的连线。”这场大会还邀请了来自美国、欧盟、英国、法国、德国、加拿大及日本等国的驻台代表处人员出席。
 
-台湾立法院秘书长林志嘉表示，中国与台湾最大的不同之处就是没有民主、自由，甚至压迫人权，看到近来参与香港反送中运动的黄之锋、周庭等人为民主自由奋斗，付出了这么多的代价，说明了一个时代的青年人是如何对抗专制体制的。其认为，面对中国政府持续压迫香港人民，台湾立法院人权促进会应该提供必要的协助及支持。
+据《GATEWAY PUNDIT》25日报道，海怪在感恩节前夕来到了佐治亚州！西德尼-鲍威尔律师提交了104页指控，揭露了2020年佐治亚州选举中的大规模欺诈行为。此外密歇根州也被指控。
 
-美国国会参议院2016年通过《全球马格尼茨基人权问责法》，根据该法案，美国政府会针对侵犯人权或腐败的外国政府官员进行制裁，惩治行为包括限制其签证及冻结在美资产。
+大海怪从天而降，且看作乱群妖哪里藏身！
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26092113/MOS0491-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91-%E5%A4%A7%E6%B5%B7%E6%80%AA%E8%A2%AB%E9%87%8A%E6%94%BE-%E8%A5%BF%E5%BE%B7%E5%B0%BC-%E9%B2%8D%E5%A8%81%E5%B0%94%E5%BE%8B%E5%B8%88%E6%8F%90%E4%BA%A4%E4%BA%86%E5%85%B3%E4%BA%8E%E4%BD%90%E6%B2%BB%E4%BA%9A%E5%B7%9E%E9%80%89%E4%B8%BE%E4%B8%AD%E5%A4%A7%E8%A7%84%E6%A8%A1%E8%88%9E%E5%BC%8A%E7%9A%84%E7%88%86%E7%82%B8%E6%80%A7%E6%8C%87%E6%8E%A7.jpg)
+资料：[https://www.thegatewaypundit.com/2020/11/breaking-kraken-released-attorney-sidney-powell-files-104-page-bombshell-complain-massive-fraud-georgia-election/?ff\_source=Twitter&ff\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/11/breaking-kraken-released-attorney-sidney-powell-files-104-page-bombshell-complain-massive-fraud-georgia-election/?ff_source=Twitter&amp;ff_campaign=websitesharingbuttons)
 
 
 
@@ -22,6 +22,6 @@
 
 更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
