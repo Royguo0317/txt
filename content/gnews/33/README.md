@@ -1,15 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港新增92例中共病毒确诊病例 新一波疫情凶猛袭来
-` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/595548/)
+## 【世界多语言图文】2020/11/16 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/592887/)
 
-内新闻：背靠背
+战友之家图文摘要及多语组
 
-据香港电台消息，香港特区卫生防护中心传染病处主任张竹君表示，2020年11月27日新增新冠肺炎（中共病毒）确诊案例92例，刷新超三个月（8月16日）以来单日新高。其中3例为输入个案，89例为本地个案，17例本地个案源头不明，58例来自跳舞场地群组，该群组累计367例。
+[296\_English\_1116\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082428/296_English_1116_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082428/296_English_1116_CCP_Virus_Updates_.pdf)
 
-近日香港中共病毒确诊案例大幅增加，全香港各区均出现确诊中共病毒个案。据维基百科数据，截止27日，过去一周，累计达522例，较前一周81例，增长6.4倍。
+[296\_French\_1116\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082431/296_French_1116_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082431/296_French_1116_CCP_Virus_Updates.pdf)
 
-早在2020年9月20日香港特区政府发展局在社交网站发文表示，为应对冬季可能出现的新一波大型疫情，在亚洲国际博览馆(亚博馆)内增建的社区治疗设施，同时在馆旁兴建临时医院，两个项目已于19日（昨日）交给由内地委聘的工程团队开展工作。
+[296\_German\_1116\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27062628/296_German_1116_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27062628/296_German_1116_CCP_Virus_Updates_.pdf)
+
+[296\_Japanese\_1116\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26084737/296_Japanese_1116_CCP_Virus_Updates_-1.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26084737/296_Japanese_1116_CCP_Virus_Updates_-1.pdf)
+
+[296\_Korean\_1116\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082430/296_Korean_1116_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082430/296_Korean_1116_CCP_Virus_Updates.pdf)
 
 0

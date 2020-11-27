@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/26/2020 永煤违约冲击政治“刚兑”的游戏规则 敲响红色帝国最后秩序的丧钟
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/595965/)
+## 11/26/2020 美国优越主义的四大支柱：一个基督教，新教为主的宗教传统，普通法，受产权和契约保护的私有财产和自由市场
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/596001/)
 
 By: 【秘密翻译组G-Translators】
 

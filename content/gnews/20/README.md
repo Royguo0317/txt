@@ -1,35 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 紧箍咒来了！反食品浪费立法不远 草案下月审议
-` Ronald` [轉載自GNews](https://gnews.org/zh-hans/596099/)
+## 【推特要闻】11/26/2020 西德尼·鲍威尔转推: 如果您怀疑“Kraken”, 可耻的将是您
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/596280/)
 
-内新闻/素材：α-Vega 校对：老白
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27073303/image0-6-2.jpg)
-新华网报道，12月下旬召开的全国人大常委会会议，将审议反食品浪费法草案，新华网记者从27日在京举行的十三届全国人大常委会第七十八次委员长会议上获悉。
+## **11/26/2020 西德尼·鲍威尔转推：**
 
-今年9月，全国人大常委会启动了为期一个多月的珍惜粮食、反对浪费专题调研，旨在加快建立法治化长效机制，为全社会确立餐饮消费、日常食物消费的基本行为准则。将要亮相的反食品浪费法草案，将对哪些问题进行规范、如何规范。
+如果您怀疑“ Kraken”，可耻的将是您。
 
-不仅是餐饮消费，文中还提到要“确立日常食物消费的基本行为准则”这也就离“粮票”时代不远了，2018年新华社报道，95%的乡镇又有了供销社。
+西德尼·鲍威尔在佐治亚州和密歇根州提起了令人难以置信的诉讼，这些诉讼现在正给民主党人带来噩梦。
 
-“节约粮食”不是喊喊口号，搞搞“光盘行动”这么简单了，反对食品浪费已经真刀真枪的进入立法流程，也就是如果立法“刑事化”违法者将面临被捕，同时对于日常食品如何分配也将“规范化”，中共箍在老百姓头上的紧箍咒越来越紧。
+（“ KRAKEN”是美国国防部的运行的网路战计划，该计划跟踪并入侵各种其他系统，以获取深层国家进行的非法行动的证据！）
 
-结合郭文贵先生11月11日的直播，其中军队对节粮的态度说明了粮食危机的严重性。
 
-郭先生说：“今天这个某武装部队，昨天因为所谓的战士们浪费粮食，进行了惩罚，还通报了全军。”“这位战友说，他们的高两级的军事领导，亲自指挥、亲自批评、亲自出席这个严肃的所谓批判大会。
 
-这都是共产党演戏呢，杀鸡给猴看、杀一儆百。当我看到他给我说这消息时候，我说完了，中国要出粮食大问题啦。解放军开始，就开始禁粮、省粮、演戏，那就要出大事儿了。”
+> If you doubted the “Kraken,” shame on you.[@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw) has put forth an incredible pair of lawsuits in Georgia and Michigan that are giving Democrats nightmares right now. [https://t.co/4yjed71BkY](https://t.co/4yjed71BkY)
+> — JD Turkey-Eating Rucker (@JDRucker) [November 26, 2020](https://twitter.com/JDRucker/status/1331859026401923073?ref_src=twsrc%5Etfw)
 
-民以食为天，如果连吃饭这个最基本的需求都被剥夺，那人也就没有自由、没有尊严可谈。中共在60年代人为制造的大饥荒，多少人在饥饿中绝望，人们易子相食，失去人性，是真正的人间地狱。
 
-中共“政策”导致的灾难数不胜数，历史仿佛又在重演，唤醒更多同胞是当务之急。
 
-更多真相请查阅：
-GNews/G-TV /路德社
-
-新闻来源：
-[https://news.sina.cn/2020-11-27/detail-iiznezxs4011673.d.html?from=wap
-https://gnews.org/zh-hans/551908/](https://news.sina.cn/2020-11-27/detail-iiznezxs4011673.d.html?from=wap
-https://gnews.org/zh-hans/551908/)
+#### **By: 【秘密翻译组G-Translators】**
 
 0
