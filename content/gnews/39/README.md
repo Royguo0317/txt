@@ -1,44 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## AIRBNB高管不满公司与中共政府分享用户数据离职
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/594206/)
+## 苹果正游说国会削弱反中共国奴隶劳工法案
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/594290/)
 
-*新闻来源：Breitbart《布赖特巴特》；作者：汤姆·西科塔（Tom Ciccotta）；发布时间：2020年11月22日*
+*新闻来源：Breitbart《布赖特巴特》；作者：LUCAS NOLAN；发布时间：November 21, 2020 /2020年11月21日*
 
-*翻译/简评：随波逐流；校对/审核：Free Dust；Page：拱卒*
+*翻译/简评：Victory；校对/审核：johnwallis；Page：拱卒*
 
 **简评：**
 
-据布赖特巴特报道，爱彼迎（Airbnb）前高管肖恩·乔伊斯（Sean Joyce）因不满公司与中共政府分享用户数据信息而辞职。知情人士透露，乔伊斯先生辞职前六个月，已开始对此表示担忧。尽管公司声称已告知用户其与中共政府共享信息，乔伊斯先生相信用户并不清楚共享信息的程度。他更担心公司愿意考虑来自中共国的更多数据要求……。
-
-中共为什么对一个住宿预订平台的用户信息这么感兴趣呢？我们可以根据现有的信息判断，中共正在利用各个平台的数据编织一张动态的数据地图，其中包含它通过各种手段收集的在各个支付、社交等平台的每个人的个人信息，利用这个信息和其大数据分析的结合，它们可以掌握一个宏观的通过数据描绘的趋向图，并对其中某一类关键信息进行深度分析，甚至进一步，可以对一个人的饮食起居、生活习惯等进行细致的数据分析。如果我们不排干这些依靠bigtech的，中共和其勾兑势力制造的泥泞沼泽，那么我们每个人的生活都会被这个无形的眼睛监控着，这是一种让人恐惧的独裁形式。
+资本是逐利的、没有道德和信仰、而由资本的背后资本家的推动。奴隶制在美国已经被终结一个半世纪的今天，美国乃至全球的大资本家惊喜地发现，在中共国有海量的类奴隶资源，而且还有巨大的市场。它们于是毫不犹豫地与中共开始合作。而它们整天挂在嘴上的人权，在利益面前完全不值一提。现在很多大科技公司，华尔街，包括大媒体，甚至要跳出来拼命维护中共现代奴隶政权。相信诸位见识了这次美国大选中它们的荒唐无耻的表演。现在是美国和全人类的至暗时刻，请诸位读者各尽所能，为正义彰显，为我们的未来，行动。
 
 **原文翻译：**
 
-# 爱彼迎（Airbnb） 高管因公司与中共国分享数据辞职
+# 报道： 苹果正游说国会削弱反中共国奴隶劳工法案
 
-[!\[\]()!\[\](https://spark.adobe.com/page/p5AraTkiArmdC/images/46f6a218-f29c-4eeb-8392-3183b9c48bca.jpg?asset_id=5d2d6201-5cc0-4798-bd34-8e234e4cec24&amp;img_etag=%22685b815d90197e01c0e43ec31fc99809%22&amp;size=1024)](https://spark.adobe.com/page/p5AraTkiArmdC/images/46f6a218-f29c-4eeb-8392-3183b9c48bca.jpg?asset_id=5d2d6201-5cc0-4798-bd34-8e234e4cec24&amp;img_etag=%22685b815d90197e01c0e43ec31fc99809%22&amp;size=1024)Sean Joyce
+[!\[\]()!\[\](https://spark.adobe.com/page/GqPvCJbAsFkCD/images/37202988-8cff-46ad-9e5b-9ae80afb54f5.jpg?asset_id=a864746d-3654-48a3-a83a-8f59b1971ec3&amp;img_etag=%22cbba3eb57acf01f25455dca086f22a9b%22&amp;size=1024)](https://spark.adobe.com/page/GqPvCJbAsFkCD/images/37202988-8cff-46ad-9e5b-9ae80afb54f5.jpg?asset_id=a864746d-3654-48a3-a83a-8f59b1971ec3&amp;img_etag=%22cbba3eb57acf01f25455dca086f22a9b%22&amp;size=1024)
 
-爱彼迎（Airbnb）前首席信托官肖恩·乔伊斯（Sean Joyce）去年因对公司数据共享政策的担忧而辞职。 乔伊斯称，未经用户同意，该公司不恰当地的与中国政府共享数据。 据称，该公司的联合创始人告诉他：“我们不是在这里宣传美国的价值观。”
+**据报道，《华盛顿邮报》周五披露，硅谷科技巨头苹果公司的游说者正试图削弱一项旨在阻止中共国奴隶劳工的新法律。**
 
-根据《华尔街日报》的报道，Airbnb的前高管在开始担心公司与中共国关系六个月后就辞职了。 乔伊斯声称，Airbnb用户通常不知道该公司经常遵守中国共产党的数据要求。
+《华盛顿邮报》援引两名匿名的国会工作人员报道，苹果公司的游说者正在努力淡化《维吾尔族强迫劳动预防法案》的影响，该法案将要求美国公司保证不使用来自以穆斯林为主的新疆地区的奴役或强迫劳工，据估计，中共政府已将多达300万人关入集中营。
 
-据说，乔伊斯先生（Mr Joyce）曾经是Airbnb高调聘请的人，在乔伊斯任职期间，乔伊斯感到越来越震惊，因为该公司对其与执政的中共政府共享的数据并不完全透明（包括在该国旅行的美国人）。 知情人士说，乔伊斯更担心的是，他认为Airbnb愿意考虑来自中共国的更多数据请求……
+苹果公司严重依赖在中共国的制造，人权报告指出，苹果公司的供应链中存在维吾尔族强迫劳动的情况，有证据表明，这种强迫劳动等同于奴隶制。强迫劳动和奴隶制在国际法上的区别在于，在前者中，被强迫劳动的个人被国家作为人而非财产对待。
 
-其中两个知情人说，“根据对公司通讯的审查，自2016年以来，Airbnb已告知用户其与中共国当局共享信息。 即使如此，乔伊斯先生仍然相信使用该平台的大多数人都不知道共享数据的程度，其中包括用户与公司之间沟通的电话号码，电子邮件地址和消息。”
+[!\[\]()!\[\](https://spark.adobe.com/page/GqPvCJbAsFkCD/images/f909310d-98a9-4e6b-b7f5-978f32de633d.jpg?asset_id=dc936467-fc5c-46f4-af10-6a83f2001160&amp;img_etag=%22fff966b1f932d3642f9432a79abcf91c%22&amp;size=2560)](https://spark.adobe.com/page/GqPvCJbAsFkCD/images/f909310d-98a9-4e6b-b7f5-978f32de633d.jpg?asset_id=dc936467-fc5c-46f4-af10-6a83f2001160&amp;img_etag=%22fff966b1f932d3642f9432a79abcf91c%22&amp;size=1024)NG HAN GUAN /Getty NG HAN GUAN/Getty
 
-[!\[\]()!\[\](https://spark.adobe.com/page/p5AraTkiArmdC/images/86666816-f9c1-4c3e-9ad2-bac2a5120f47.jpg?asset_id=ea6d6d73-5554-4e18-a236-19f0cfd8ac95&amp;img_etag=%22f088a7c6798a29678b672ba54e016afa%22&amp;size=2560)](https://spark.adobe.com/page/p5AraTkiArmdC/images/86666816-f9c1-4c3e-9ad2-bac2a5120f47.jpg?asset_id=ea6d6d73-5554-4e18-a236-19f0cfd8ac95&amp;img_etag=%22f088a7c6798a29678b672ba54e016afa%22&amp;size=1024)
 
-消息人士称，Airbnb的联合创始人内森·布莱卡奇克（Nathan Blecharcyzk）甚至曾告诉乔伊斯（Joyce），Airbnb不宣扬美国价值观。 据称布莱卡奇克说：“我们不是在这里宣扬美国价值观。”
+中共国坚持认为，其集中营是针对弱势少数民族的 “职业培训中心”。
 
-Airbnb发言人尼克·帕帕斯（Nick Papas）告诉《华尔街日报》，该公司一直“致力于”对用户保持信息政策的透明。
+澳大利亚战略政策研究所（ASPI）3月发表的一份研究报告也指出，苹果公司是产品在使用维吾尔族奴隶的工厂制造的全球83家公司之一，这不一定是在新疆。虽然中共国最初在新疆建立了营地–幸存者说他们在那里忍受了共产党的灌输、酷刑、强奸、奴役，医学研究表明还进行了活摘器官的试验–但在强烈的人权谴责之后，共产党开始将维吾尔族工人运送到全国各地的工厂。澳大利亚战略政策研究所（ASPI）的研究表明，政府鼓励公司雇用维吾尔族奴隶。
 
-Papas说，“我们始终致力于对社区保持透明，并通过在平台上向用户显示清晰的消息以及其他多种通知的方式向所有业主和客人清晰地披露我们的数据政策。”
+这些匿名的国会工作人员表示，苹果是众多反对该法案的美国公司之一。
 
-请继续关注布赖特巴特（Breitbart）新闻，以获取有关此故事的更多更新。
+这些工作人员拒绝详细说明苹果试图修改或删除的具体条款，因为他们担心提供这些信息会向苹果泄露他们的身份。但两人表示，他们认为苹果公司试图削弱该法案。
 
-[原文链接](https://www.breitbart.com/tech/2020/11/22/airbnb-exec-resigned-over-company-sharing-data-with-china)
+支持该法案的美国劳工总会与产业劳工组织国际部主任凯西-芬戈德（Cathy Feingold）表示。”苹果公司希望的是，我们都只是坐着空谈而没有任何实际的后果。他们感到震惊，因为这是第一次可以有一些实际有效的执行力。”
+
+苹果发言人乔什-罗森斯托克（Josh Rosenstock）表示，公司 “致力于确保我们供应链中的每个人都得到有尊严的对待和尊重。我们憎恶强迫劳动，并支持《维吾尔强迫劳动预防法案》的目标。我们与委员会的目标一致，即消除强迫劳动和加强美国法律，我们将继续与他们合作以实现这一目标。”
+
+罗森斯托克还表示，苹果今年 “对我们在中共国的供应商进行了详细的调查，没有发现苹果生产线上存在强迫劳动的证据，我们将继续密切关注这一情况。”
+
+[原文链接](https://www.breitbart.com/tech/2020/11/21/report-apple-is-lobbying-congress-to-weaken-bill-against-chinese-slavery/)
 
 [点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
@@ -46,8 +49,8 @@ Papas说，“我们始终致力于对社区保持透明，并通过在平台上
 
 [欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/p5AraTkiArmdC/)】
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/GqPvCJbAsFkCD/)】-点击spark adobe版
 
-[!\[\]()!\[\](https://spark.adobe.com/page/p5AraTkiArmdC/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/p5AraTkiArmdC/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/GqPvCJbAsFkCD/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/GqPvCJbAsFkCD/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
-1+
+0

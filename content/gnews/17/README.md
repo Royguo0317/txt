@@ -1,67 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英国正考虑将英国法官撤出香港最高法院
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/594466/)
+## 乔·拜登和WestExec Advisors咨询公司
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/594605/)
 
-*新闻来源：《香港自由报》(Hong Kong Free Press)；作者：康迪斯·周（CANDICE CHAU）；发布时间：2020年11月24日*
+作者：翼族
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26185411/Picture11-1.png)图片来源：墨尔本雅典娜农场
+2020年出现的滑稽一幕，就是乔·拜登还没有被美国联邦选举委员会确定为新一任的美国总统，就已经被各主流媒体和科技大公司急不可耐地标注为“胜选总统”（President-Elect）。
 
-*翻译/简评：Marialu；校对：感恩；审核：海阔天空；Page：拱卒*
-[![](https://spark.adobe.com/page/O6bWfGQJsDMY7/images/4057d242-fbfd-4a67-bb61-ffc1b7b570d4.jpg?asset_id=881c463a-8944-4d83-be82-8bc880332462&amp;img_etag=%22ab16b91222ea2e3841619bfc001add9b%22&amp;size=1024)](https://spark.adobe.com/page/O6bWfGQJsDMY7/images/4057d242-fbfd-4a67-bb61-ffc1b7b570d4.jpg?asset_id=881c463a-8944-4d83-be82-8bc880332462&amp;img_etag=%22ab16b91222ea2e3841619bfc001add9b%22&amp;size=1024)
-#### **简评：**
+周一拜登公布了他所谓的“内阁”人选，掩耳盗铃之余，也让公众聚焦于名单中几个非常重要职位的人选身上。这其中就包括，国务卿人选安东尼·布林肯（Athony Blinken）和国防部长人选米凯莱·弗卢努瓦（Michèle Flournoy），他们两位都是一家名为WestExec Advisors咨询公司（以下简称WestExec公司）的联合创始人。而艾弗里尔·海恩斯（Avril Haines），WestExec公司的原主管之一，则有可能被委以国家情报总监一职。
 
-英国外交大臣拉布表示，英国正考虑将其法官撤出香港最高法院，以回应中共国对香港人权和自由的侵蚀；拉布也开始与英国最高法院院长商讨英国法官担任香港终审法院非常任法官是否仍然合适。
+从国务卿到国防部长，再到国家情报总监，都是处理美国对外关系最重要的岗位。以拜登家族和中共之间腐败和勾兑的程度，毋庸置疑这些人都会成为其进一步出卖美国利益和伤害中国人民的帮凶。那么WestExec公司究竟是一家什么公司？为什么拜登的外交团队都出自这个公司呢？
 
-文中还引述了英国政府关于香港的半年度报告，批评中共国未能履行其对香港的国际责任和制定了违反香港自治和威胁人权和自由的法案。
+在WestExec公司的网站里有一张地图，描绘了白宫大楼西翼与艾森豪威尔行政办公楼之间的一条内部道路——行政西大道（West Executive Avenue），WestExec的名字就来于此，同时也暗示了该咨询公司可以为客户建立一条通往白宫的道路。该公司网站称，“这就是一条通往白宫战情室的路，与WestExec公司相关联的人通过此路去参加对国家安全有重大影响的会议。”
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26185521/Picture12-1.png)图片来源：https://westexec.com/
+很显然，WestExec公司就是一家游说和公关公司，利用其在华盛顿和白宫的政治影响力谋取利益，然而它却并没有按照美国法律进行相关注册，并登记为外国代理人。目前，公众对WestExec公司的客户知之甚少。
 
-然而中共国拒绝英国的批评，指责英国企图干涉香港和中共国内政，行政长官林郑月娥则形容英国在实行“双重标准”。
+WestExec公司成立于2017年，这正是从奥巴马政府过渡到川普政府的第一年。也许希拉里在2016年总统选举中的意外失利，完全打乱了拜登腐败集团的原计划，原来为“希拉里总统”预备的团队不得不就地解散，于是大量的人马被安排进了这家新成立的WestExec公司，为四年后的总统选举大战做准备。
 
-所有这一切让我们更加认清中共的本质，中共破坏了《香港基本法》和一国两制。如果没有了外籍法官担任非常任法官，那会更严重打击香港司法制度的公信力，香港司法制度将再无正义可言！
+除了上面提到的几个重要职位以外，目前还有另外五位WestExec公司的员工也加入了拜登团队，他们正在帮助拜登和五角大楼、财政部、经济顾问委员会和其他机构进行协调。而且他们都是原奥巴马政府的退伍军官。
 
-我们呼吁越来越多的民主自由的国家团结起来，为香港发声，就是为自由正义发声，也是为自己的未来发声！
+另外两位WestExec公司的主管，上周向拜登简要介绍了国家安全的一些情况。其中一位是鲍勃·沃克（Bob Work），曾在奥巴马政府担任过国防部副部长一职；而另一位是大卫·科恩（David Cohen），美国中央情报局和美国财政部的前副主任。
 
-#### **原文翻译：**
+并且，奥巴马总统的原白宫通讯总监杰恩·普萨基（Jen Psaki），也曾经为WestExec公司工作过，而他现在就在拜登竞选团队中。还有两名WestExec公司的前职员，丽莎·摩纳哥（Lisa Monaco）和朱利安·史密斯（Julianne Smith），也即将成为所谓“拜登政府”的一员。
 
-## 外长称：英国正考虑是否将英国法官撤出香港最高法院
+从以上一系列的人员活动和安排可以判定，2017年成立的这家WestExec公司，就是为拜登四年后再次走上总统宝座而预备的“人才库”。这从它在租赁办公室时的一项条款中也可以看出，该租约条款规定，“如果一旦公司成员被召回到公共服务部门的话，它可以取消租约。”这一幕正在我们面前努力上演，虽然最后注定会以失败告终。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26185544/Picture13-2.png)图片来源：https://westexec.com/
+而且，WestExec公司并不避嫌他们与中共高层之间的关系。在其公司网站介绍的“市场准入和拓展支持”中就写到，他们为美国一家领先的制药公司和一家价值数十亿美元的科技公司，进入中国的市场提供了咨询服务。
 
-[![](https://spark.adobe.com/page/O6bWfGQJsDMY7/images/dd08dfbb-7637-4699-9f88-d6407896f80d.jpg?asset_id=db8a03b0-5aeb-4bb7-97fe-58c228764935&amp;img_etag=%222c057bcd5f3cb3f8ffa15bf9c3627114%22&amp;size=1024)](https://spark.adobe.com/page/O6bWfGQJsDMY7/images/dd08dfbb-7637-4699-9f88-d6407896f80d.jpg?asset_id=db8a03b0-5aeb-4bb7-97fe-58c228764935&amp;img_etag=%222c057bcd5f3cb3f8ffa15bf9c3627114%22&amp;size=1024)
+WestExec公司的做法是：为了制定扩大进入中国市场的战略，WestExec公司分析了中美经济关系的轨迹……为了进入该市场，WestExec公司设计了一项参与计划，促进了与当地主要高层利益相关者的联系，提供了文化和政治考虑因素的分析，并提供了有针对性的沟通策略。
 
-**多米尼克·拉布（Dominic Raab）表示，他正在考虑此举，以回应中共国对香港权利和自由的侵蚀。**
+和中共高层的关系，居然成为了WestExec公司的卖点。如此明显地炫耀他们与中共国“主要高层利益相关者”的关系，可见WestExec公司已经与中共国的“主要高层利益相关者”进行了深度勾兑，勾兑的代价，无非就是出卖美国的国家利益。
 
-英国外交大臣多米尼克·拉布（Dominic Raab）表示，他正在考虑是否撤回“允许英国法官在香港最高法院任职”的机制，以回应他所称的中共国企图（侵蚀）破坏承诺给香港的自治和自由。
+而该公司人员纷纷出现在所谓“拜登新政府”的委任名单上，则可以看出这家公司的幕后大佬，其实就是中共的代理人——乔·拜登。
 
-[![](https://spark.adobe.com/page/O6bWfGQJsDMY7/images/ce19be58-d8b5-431a-81e1-be603defdb38.jpg?asset_id=c1b50297-49c2-48a1-b583-6a89db834cd6&amp;img_etag=%22593130fe5efa0e45c3d7c2e542cdf21a%22&amp;size=1024)](https://spark.adobe.com/page/O6bWfGQJsDMY7/images/ce19be58-d8b5-431a-81e1-be603defdb38.jpg?asset_id=c1b50297-49c2-48a1-b583-6a89db834cd6&amp;img_etag=%22593130fe5efa0e45c3d7c2e542cdf21a%22&amp;size=1024)英国外交大臣多米尼克-拉布。资料图片：唐宁街10号，图片来自 Flickr。
+参考链接：[https://www.politico.com/news/2020/11/23/westexec-advisors-biden-cabinet-440072](https://www.politico.com/news/2020/11/23/westexec-advisors-biden-cabinet-440072)
 
-他的评论来自英国政府周一发布的关于香港的半年度报告。它把6月30日《国安法》的实施描述为“明显并严重违反了《联合声明》”，其中阐述了香港1997年移交的条款，以及对香港人民权利和自由的威胁。
+(文章内容仅代表作者观点)
 
-在这份报告中，拉布表示他正在考虑何时与英国最高法院院长进行磋商，讨论审议“英国法官担任香港终审法院非常任法官的职位是否仍然合适。”
-
-在香港最高法院的17名非永久性法官中，有13名外国籍法官，其中包括8名英国人。
-
-这份29页的文件着重指出了几起被认为侵犯香港自治的行为，包括政府推迟立法委员会选举的决定，罢免（办理）与抗议有关的案件的法官，以及香港政府对香港电台（RTHK)节目的审查。
-
-该报告的最后结论是批评中共国未能“履行其对香港的国际责任，制定了违反其自治权及威胁扼杀其自由的法案。”
-
-[![](https://spark.adobe.com/page/O6bWfGQJsDMY7/images/40b0c4f2-763d-4418-9fa8-e747418442b9.jpg?asset_id=5db3ded9-3479-4b81-815d-19a1134d39f3&amp;img_etag=%221eec61b21f5330ab15fd0cd6628dba29%22&amp;size=1024)](https://spark.adobe.com/page/O6bWfGQJsDMY7/images/40b0c4f2-763d-4418-9fa8-e747418442b9.jpg?asset_id=5db3ded9-3479-4b81-815d-19a1134d39f3&amp;img_etag=%221eec61b21f5330ab15fd0cd6628dba29%22&amp;size=1024)资料图：香港政府
-
-自《国安法》实施以来，前殖民国英国延长了香港BNO护照持有人的移民权利， 暂停了与香港的引渡（安排）条约，并将其对中国的武器禁运扩大至香港。
-
-行政长官林郑月娥在脸书上发文称，这份报告是“彻底执行双重标准”，引用了英国自己的国家安全机构以及其将地方选举推迟一年的决定。
-
-**“公然企图干涉”**
-
-香港政府在一份声明中反对该报告的“全面攻击和毫无根据的指控”，并捍卫其取消四名民主派议员资格的决定。
-
-中共国将英国的报告描述为“公然企图干预香港和中共国的内部事务”，并说中共国政府已经履行了23年前《联合声明》中自己的职责。现在该是英国人“醒来吧，别再做干涉香港事务的殖民旧梦”的时候了！
-
-[原文链接](https://hongkongfp.com/2020/11/24/foreign-minister-says-uk-is-considering-banning-british-judges-from-sitting-on-hong-kongs-top-court/)
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/O6bWfGQJsDMY7/)
-[![](https://spark.adobe.com/page/O6bWfGQJsDMY7/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/O6bWfGQJsDMY7/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

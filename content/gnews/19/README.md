@@ -1,11 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 299-300疫情直播-短视频
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/594457/)
+## 11/24/2020 班农战斗室|最新發現，引發抑鬱的真正原因 | 老高與小茉 Mr &amp; Mrs Gao
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/594575/)
 
-蓬佩奥全球游说：要确保下一个世纪，不是中共的世纪！
-
-
+By: 【秘密翻译组G-Translators】
 
 0
