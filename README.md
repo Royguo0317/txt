@@ -12,147 +12,147 @@
 
 
 
-### [【文字版】路德时评2020.11.26晚间（路艾冠胡谈）：川普为什么要突然一次性解雇国防部11名国防顾问？纽约州长突然站出来发出支持川普言论意味着什么？鲍威尔发推警告社交媒体公司。](/content/gnews/1/README.md)
+### [警惕1984！佛蒙特州长以疫情为由要求学校监管学生感恩节是否遵守限聚令！](/content/gnews/1/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [【文字版】路德时评2020.11.26晚间（路艾冠胡谈）：川普为什么要突然一次性解雇国防部11名国防顾问？纽约州长突然站出来发出支持川普言论意味着什么？鲍威尔发推警告社交媒体公司。](/content/gnews/2/README.md)
  ` 喜马拉雅-华盛顿DC站`
 
-### [《路德社》精选新闻快讯：美国国际开发署负责人冠状病毒检测呈阳性反应](/content/gnews/2/README.md)
+### [《路德社》精选新闻快讯：美国国际开发署负责人冠状病毒检测呈阳性反应](/content/gnews/3/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [《路德社》精选新闻快讯：川普总统2020年感恩节宣言](/content/gnews/3/README.md)
+### [《路德社》精选新闻快讯：川普总统2020年感恩节宣言](/content/gnews/4/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [【文字版】路德时评2020.11.26早间（路安墨谈）：了不得！两大诉状和弗林将军特赦令再次验证路德节目所说，两个诉状将彻底结束中共，两大诉状意义太重大了！深入解读两大诉状。](/content/gnews/4/README.md)
+### [【文字版】路德时评2020.11.26早间（路安墨谈）：了不得！两大诉状和弗林将军特赦令再次验证路德节目所说，两个诉状将彻底结束中共，两大诉状意义太重大了！深入解读两大诉状。](/content/gnews/5/README.md)
  ` 喜马拉雅-华盛顿DC站`
 
-### [《路德社》精选主题专栏： 乔拜登拥有5种超越选举常规的神奇方式](/content/gnews/5/README.md)
+### [《路德社》精选主题专栏： 乔拜登拥有5种超越选举常规的神奇方式](/content/gnews/6/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [独家重磅&#8211;《路德社》精选主题专栏：《乔治亚州的诉讼文件》104页全文翻译](/content/gnews/6/README.md)
+### [独家重磅&#8211;《路德社》精选主题专栏：《乔治亚州的诉讼文件》104页全文翻译](/content/gnews/7/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [《路德社》精选新闻快讯：美国司法部：多米尼为中共代理为“中国国家行为参与者提供机会”以恶意网络活动造成经济间谍活动](/content/gnews/7/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [华为宣布出售荣耀 100% 股权](/content/gnews/8/README.md)
- ` GM77`
-
-### [战友观点：马云可识胡雪岩？](/content/gnews/9/README.md)
+### [美国网军“大海怪”出现在鲍威尔在佐治亚 的起诉书中](/content/gnews/8/README.md)
  ` 倫敦英喜莊園 Himalaya UK`
 
-### [视频2020年11月27日中共病毒疫情要闻快报](/content/gnews/10/README.md)
+### [比尔·格茨：拜登及民主党人将会裁减美国的核武器](/content/gnews/9/README.md)
  ` 秘密翻译组G-Translators`
 
-### [郭爆料串珠（110）13579计划：一种生化武器，三年内实施，五年有效，瘫痪七国，九个月出疫苗要挟世界](/content/gnews/11/README.md)
+### [墙内网友：川普是毫无疑问的天选之子，支持川普是大势所趋](/content/gnews/10/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频【路德时评】11.18 【精华版粤语配音】： 乔治亚州重新审计选票 曝光选举漏洞 舞弊行为](/content/gnews/11/README.md)
+ ` GM42`
+
+### [人之初性本善还是性本恶（六）](/content/gnews/12/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [视频2020年11月26日CCP冠状病毒大流行第306集](/content/gnews/13/README.md)
+ ` GM30`
+
+### [2020年11月26日郭文贵先生直播摘要](/content/gnews/14/README.md)
+ ` GM112 木香`
+
+### [视频《路德时评》重磅解析：230条款很快将被废除](/content/gnews/15/README.md)
+ ` GM80`
+
+### [如果拜登非法上台，将对美国造成毁灭性打击](/content/gnews/16/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频【路德社】【精华版粤语快报】11.26：清理沼泽十一人 美国上下已齐心 昔日反对皆倒戈 中共末日倒计时](/content/gnews/17/README.md)
+ ` GM42`
+
+### [战友观点：不怨天，不尤人](/content/gnews/18/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [视频【中文字幕】选举舞弊听证会节选 &#8211; 朱利安尼市长陈词及证人作证](/content/gnews/19/README.md)
  ` GM99`
 
-### [感恩的意义是什么？](/content/gnews/12/README.md)
- ` 东京樱花团-Tokyo Sakura Group`
+### [未来联邦新中国传统文化教育的问题](/content/gnews/20/README.md)
+ ` GM30`
 
-### [【台风巨眼】川普总统的拨乱反正之-终止第230条款，意味着第四权力之新闻媒体的变革](/content/gnews/13/README.md)
- ` 纽约香草山农场`
-
-### [印度禁止了43款中共国背景的移动应用程序](/content/gnews/14/README.md)
- ` vog_dongdong_vog`
-
-### [《路德社》精选新闻快讯:墨博士点评快讯： 中共国专家宣称2023年要成为第一器官移植大国&#8211;11/24/2020](/content/gnews/15/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [视频《路德社》精选新闻快讯：冠博士独特角度解读：中共拜登「百天计划」：握手世卫、增加税收？11/27/2020](/content/gnews/16/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [视频【粤语】11/19/2020文贵：未来关注的重点是病毒的真相，唤醒更多底层的百姓跟随爆料革命](/content/gnews/17/README.md)
- ` Caihongqiao`
-
-### [终止230法案，人类即将迎来曙光！！！](/content/gnews/18/README.md)
- ` 东京樱花团-Tokyo Sakura Group`
-
-### [【热点播报】感恩节当天哈工大学生举报宿舍辅导员搞洋节](/content/gnews/19/README.md)
- ` 纽约香草山农场`
-
-### [战友观点：华府警察怎么了？](/content/gnews/20/README.md)
- ` 倫敦英喜莊園 Himalaya UK`
-
-### [【推特要闻】11/26/2020 川普总统推文: 为了国家安全，必须立即终止第230条款!!!](/content/gnews/21/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【推特要闻】11/26/2020 西德尼·鲍威尔转推: 如果您怀疑“Kraken”, 可耻的将是您](/content/gnews/22/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【热点速评】哈工大宿管阿姨感恩节分发糖果被学生威胁要举报 | 这就是中共仇恨教育之邪恶！感恩之心本无国界！](/content/gnews/23/README.md)
- ` Ronald`
-
-### [11/27/2020 财经快讯: 国有银行暂停个人贵金属交易，苹果台湾供应商加速撤离中共国](/content/gnews/24/README.md)
- ` 秘密翻译组G-Translators`
-
-### [紧箍咒来了！反食品浪费立法不远 草案下月审议](/content/gnews/25/README.md)
- ` Ronald`
-
-### [【身边的故事】“婆媳矛盾”是中共种在中国人精神里邪恶的毒](/content/gnews/26/README.md)
- ` Ronald`
-
-### [【2020年香港施政报告专题】（八）反修例18岁以下犯法者倘认错　警司警诫或签保守行为处理](/content/gnews/27/README.md)
+### [【2020年香港施政报告专题】（九）修订公职人员《宣誓及声明条例》 确保公务员拥护《基本法》效忠香港特区](/content/gnews/21/README.md)
  ` GM42`
 
-### [打破美中关系禁忌 &#8211; 美国少将级情报官访台](/content/gnews/28/README.md)
+### [230条款的由来、及对新联邦立法的启发！](/content/gnews/22/README.md)
+ ` GM30`
+
+### [被淡化的人间地狱](/content/gnews/23/README.md)
+ ` GM30`
+
+### [战友观点：我们要坚定信念，直到胜利那刻](/content/gnews/24/README.md)
  ` 倫敦英喜莊園 Himalaya UK`
 
-### [【香草诗词汇】一个深度贫困村的纪实（五）](/content/gnews/29/README.md)
- ` 纽约香草山农场`
+### [传奇球星马拉多纳去世，生前曾被中共坑取利益](/content/gnews/25/README.md)
+ ` 喜马拉雅 日本京都富士会`
 
-### [首批2架MQ-9B型捕食者无人机已经交付印军投入实战部署!](/content/gnews/30/README.md)
- ` 快慢机`
+### [追 随](/content/gnews/26/README.md)
+ ` GM77`
 
-### [视频11/26/2020 美国优越主义的四大支柱：一个基督教，新教为主的宗教传统，普通法，受产权和契约保护的私有财产和自由市场](/content/gnews/31/README.md)
- ` 秘密翻译组G-Translators`
+### [华盛顿游行有感](/content/gnews/27/README.md)
+ ` GM30`
 
-### [闫博士一周锦集（中文）11/27期（视频+ PDF下载）](/content/gnews/32/README.md)
- ` GM62`
+### [谈感恩和感谢](/content/gnews/28/README.md)
+ ` 喜马拉雅 日本京都富士会`
 
-### [视频11/26/2020 汤姆·科顿：朝圣者及其盟约，如建国者们和他们的宣言是美国的真正基础](/content/gnews/33/README.md)
- ` 秘密翻译组G-Translators`
+### [珍惜战友](/content/gnews/29/README.md)
+ ` 喜马拉雅 日本京都富士会`
 
-### [突发快讯：罕见镜头显示俄罗斯军舰在边境事件中“追赶”美国驱逐舰](/content/gnews/34/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [视频11/26/2020 永煤违约冲击政治“刚兑”的游戏规则 敲响红色帝国最后秩序的丧钟](/content/gnews/35/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【世界多语言图文】2020/11/16 CCP病毒每日疫情直播简报](/content/gnews/36/README.md)
- ` GM62`
-
-### [真正的爱国者——弗林将军](/content/gnews/37/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【正道观察】被严重低估的川普总统之大智慧系列三：诱敌深入 一网打尽](/content/gnews/38/README.md)
- ` 秘密翻译组G-Translators`
-
-### [《路德社》精选主题专栏： 法官阻止认证宾夕法尼亚州选举结果&#8211;帕特里夏·麦卡洛（Patricia McCullough）法官正在捍卫美国的宪法！](/content/gnews/39/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [香港新增92例中共病毒确诊病例 新一波疫情凶猛袭来](/content/gnews/40/README.md)
+### [疑似伊朗核计划总设计师被斩首](/content/gnews/30/README.md)
  ` vog_dongdong_vog`
 
-### [“反食品浪费法草案”预计12月底通过，中共对人民最后的打压即将到来](/content/gnews/41/README.md)
- ` GM101`
+### [俄勒冈州长敦促公民举报违反禁闭令邻居 似文革再现](/content/gnews/31/README.md)
+ ` gnewscanada`
 
-### [2020年11月27日面具先生直播速记](/content/gnews/42/README.md)
- ` 喜马拉雅美国·康州盘古农场`
-
-### [【林郑施政报告】香港民调64% 受访市民不满报告　被指自欺欺人 评分创新低](/content/gnews/43/README.md)
- ` GM42`
-
-### [【三票专栏】别了，基辛格](/content/gnews/44/README.md)
+### [【军事快讯】美军侦察机现身东海上空，最近时距离浙江海岸73公里](/content/gnews/32/README.md)
  ` 纽约香草山农场`
 
-### [电信诈骗系列连载一 谁偷走了我们的话费？](/content/gnews/45/README.md)
- ` Ronald`
+### [多米尼的技术人员曾在中共国企工作](/content/gnews/33/README.md)
+ ` GM99`
 
-### [弗林将军被赦免的意义](/content/gnews/46/README.md)
- ` GM107`
+### [12港人送中后续](/content/gnews/34/README.md)
+ ` GM77`
 
-### [鲍威尔为何选择独立行动？揭秘川普的终极杀手锏（玫瑰看新闻2020.11.26）](/content/gnews/47/README.md)
+### [【热点播报】国内粮食告急，反食品浪费法草案要来了](/content/gnews/35/README.md)
+ ` 纽约香草山农场`
+
+### [【深度报道】美国以法灭共的起点，就是这一纸诉状](/content/gnews/36/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [武汉复阳者达数百人 当局噤声](/content/gnews/37/README.md)
+ ` GM77`
+
+### [川普司法战势如破竹，内华达战局反转在望《每日快报 &#8212; 2020.11.27》](/content/gnews/38/README.md)
+ ` 喜马拉雅-华盛顿DC站`
+
+### [【译文参考】调查报告：72%的共和党选⺠希望由川普的“美国优先”经济政策带领共和党](/content/gnews/39/README.md)
+ ` 为子孙爱七哥农场`
+
+### [华为宣布出售荣耀 100% 股权](/content/gnews/40/README.md)
+ ` GM77`
+
+### [战友观点：马云可识胡雪岩？](/content/gnews/41/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [视频2020年11月27日中共病毒疫情要闻快报](/content/gnews/42/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [郭爆料串珠（110）13579计划：一种生化武器，三年内实施，五年有效，瘫痪七国，九个月出疫苗要挟世界](/content/gnews/43/README.md)
+ ` GM99`
+
+### [感恩的意义是什么？](/content/gnews/44/README.md)
+ ` 东京樱花团-Tokyo Sakura Group`
+
+### [【台风巨眼】川普总统的拨乱反正之-终止第230条款，意味着第四权力之新闻媒体的变革](/content/gnews/45/README.md)
+ ` 纽约香草山农场`
+
+### [印度禁止了43款中共国背景的移动应用程序](/content/gnews/46/README.md)
+ ` vog_dongdong_vog`
+
+### [《路德社》精选新闻快讯:墨博士点评快讯： 中共国专家宣称2023年要成为第一器官移植大国&#8211;11/24/2020](/content/gnews/47/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [【国内快讯】国务院提高失信评定标准，中共“丑不外扬”](/content/gnews/48/README.md)
- ` Ronald`
+### [视频《路德社》精选新闻快讯：冠博士独特角度解读：中共拜登「百天计划」：握手世卫、增加税收？11/27/2020](/content/gnews/48/README.md)
+ ` 喜马拉雅农场新西兰站`
 

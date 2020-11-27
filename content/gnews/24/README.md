@@ -1,25 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/27/2020 财经快讯: 国有银行暂停个人贵金属交易，苹果台湾供应商加速撤离中共国
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/596263/)
+## 战友观点：我们要坚定信念，直到胜利那刻
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/596627/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27081157/Picture14-4.png)图片来源：[https://www.sohu.com/a/410398452\_507132](https://www.sohu.com/a/410398452_507132)
-1.加密货币断崖式暴跌，11月26日比特币持续下挫，跌破16500美元/枚，日内一度跌超13%，较日内高位19138美元大跌近3000美元。并引发其他较小数字货币的抛售。第二大加密货币以太坊(ethereum)下跌约13%，第三大加密货币XRP则挫跌逾20%。比特币下跌或跟大型加密货币交易所Coinbase执行长在推文中表达了对监管机构打压谣言的担忧有关。
-[https://cn.reuters.com/article/markets-crypto-bitcoin-plunge-1126-thur-idCNKBS287010?il=0](https://cn.reuters.com/article/markets-crypto-bitcoin-plunge-1126-thur-idCNKBS287010?il=0)
+作者：此心不變；校对：宁缺；审核：海阔天空；Page：拱卒
+[!\[\]()!\[\](https://spark.adobe.com/page/le5H9vfQpZZLu/images/743ab32c-a8fa-4ca5-85b8-ddd9fce130a8.png?asset_id=b7003f06-6702-422d-b08f-8f7e59fa8bfb&amp;img_etag=%22a8851e68d0fc19a369a53844aa1c8f0f%22&amp;size=1024)](https://spark.adobe.com/page/le5H9vfQpZZLu/images/743ab32c-a8fa-4ca5-85b8-ddd9fce130a8.png?asset_id=b7003f06-6702-422d-b08f-8f7e59fa8bfb&amp;img_etag=%22a8851e68d0fc19a369a53844aa1c8f0f%22&amp;size=1024)
+今早看到联邦总务署署长墨菲写信给拜登，说要开始移交权力。然后川普发推感谢墨菲对国家坚定的奉献和忠诚：“她被骚扰、威胁、霸凌——我不希望这发生在她和家人、GSA雇员身上。我们的案子有力进行，我们将继续很好战斗，我相信我们将胜利。不过为了我们国家更好，我建议墨菲启动程序，也告诉我的团队如此做。”
 
-2.苹果公司担心在中共经营风险加大，苹果公司台湾三大供应商加快在越南印度布局。目前苹果公司最大生产代理商鸿海科技集团的子公司富士康正在把iPad平板电脑以及MacBook笔记型电脑的部分装配线从中共转移到越南。苹果的第二大供应商和硕公司（Pegatron) 已经批准在印度投资42.3亿美元，设立子公司“和硕印度”，预计12月完工，最快可在明年6月投产。鸿海以及苹果的另一台湾供应商纬创(Wistron)已经在印度设厂。
-[https://www.voachinese.com/a/Foxconn-shift-some-Apple-production-Vietnam-to-minimise-China-risk-20201126/5677638.html](https://www.voachinese.com/a/Foxconn-shift-some-Apple-production-Vietnam-to-minimise-China-risk-20201126/5677638.html)
+在这个时候，信仰对一个人是多么重要。若没有信仰的话，很可能还没到最后一刻，就已倒下了。而有信仰的人会将一切磨难的着力点放在神的身上，这样他就能超脱一切压力，就能超越生死门，走到最后一刻。我在想川普就是这样做的，他把所有压力都交给了神，所以他没有压力，他依然打他的高尔夫球，他依然做该做的一切，他还保护他的团队免受骚扰、威胁、霸凌……
 
-3.阿里巴巴和腾讯已分别暂停与百度就收购爱奇艺控股权进行的谈判。谈判很快重启的希望很小，百度提出约200亿美元的估值要求让他们望而却步，而且阿里巴巴和腾讯各自都有自己的视频服务，又正面临中共反垄断监管当局对他们加强审查。或受此消息影响，爱奇艺盘前跌8%。
-[https://cn.reuters.com/article/baidu-iqiyi-alibaba-tencent-1127-idCNKBS2870XA?il=0](https://cn.reuters.com/article/baidu-iqiyi-alibaba-tencent-1127-idCNKBS2870XA?il=0)
+今天的美国就是去年的香港，唯一不同的是美国人民还有军队和警察，他们会站在司法这边，而香港人民没有。
 
-4.中共三家大型商业银行：中国工商银行、建设银行和交通银行11月27日发布公告称，近期受国际政治经济形势及新冠疫情等影响，贵金属市场价格波动剧烈，投资交易风险加大，将暂停个人黄金、白银等贵金属交易业务。
-[https://cn.reuters.com/article/icbc-ccb-precious-metal-trading-1127-idCNKBS2870R3?il=0](https://cn.reuters.com/article/icbc-ccb-precious-metal-trading-1127-idCNKBS2870R3?il=0)
+Deep State使用的招数就是CCP那套，骚扰、生死威胁和霸凌每一个负责权力移交的行政个体和及其家人。因为Deep State无法面对司法，它只能用这样的下三滥的方法，绕开司法，逼迫一个个行政部门执行权力移交，说不定下一个逼迫的对象就是联邦大选委员会。
+[!\[\]()!\[\](https://spark.adobe.com/page/le5H9vfQpZZLu/images/dcc81efa-6957-45c5-a38c-97c5036cb2e8.jpg?asset_id=74deb35c-894e-4d9a-b96a-66f4201e707a&amp;img_etag=%2235413da2890abbbdedd68c3e8e9f2b83%22&amp;size=1024)](https://spark.adobe.com/page/le5H9vfQpZZLu/images/dcc81efa-6957-45c5-a38c-97c5036cb2e8.jpg?asset_id=74deb35c-894e-4d9a-b96a-66f4201e707a&amp;img_etag=%2235413da2890abbbdedd68c3e8e9f2b83%22&amp;size=1024)
+川普使用的方法是司法。在司法方面，川普一定会赢，然后在司法的背书下，使用他信得过的特种部队，保卫这个神选的国家……接着我们可能会看到有很多共和党人的出卖和背叛，这是一定会发生的，因为Deep State里也有很多共和党人……
 
-5.11月26日，口罩龙头企业道恩股份因遭下游企业起诉，其熔喷料中危化品“二叔丁基过氧化物（DTBP）”残留量超国标逾百倍，道恩股份闪崩跌停。
-[https://finance.sina.com.cn/tech/2020-11-27/doc-iiznctke3485829.shtml](https://finance.sina.com.cn/tech/2020-11-27/doc-iiznctke3485829.shtml)
+不管这个过程有多磨难，但是不用担心，它们都不过是障眼法，因为巴雷特成功出任最高法院大法官，川普团队成功拿到服务器，等等。那本是绝无可能发生的事，可是它们都发生了，那意味着神在出手，所以我相信，只要与神同行，跟随川普还有郭先生，走到最后一刻，就一定能看到大赢的局面。
 
-By 【秘翻组金融法律团队-Tracy】
+【文章仅代表作者观点】
 
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)[点](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/le5H9vfQpZZLu/)
+[!\[\]()!\[\](https://spark.adobe.com/page/le5H9vfQpZZLu/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/le5H9vfQpZZLu/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

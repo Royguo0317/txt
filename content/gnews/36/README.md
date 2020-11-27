@@ -1,19 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/11/16 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/592887/)
+## 【深度报道】美国以法灭共的起点，就是这一纸诉状
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/596524/)
 
-战友之家图文摘要及多语组
+## —— 乔治亚州8位选民发起民事诉讼要求调查大选，拉开美国灭共序幕
 
-[296\_English\_1116\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082428/296_English_1116_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082428/296_English_1116_CCP_Virus_Updates_.pdf)
+作者：Giselle / 般若
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27093750/Picture15-2.png)图片来源：墨尔本雅典娜农场设计组
+美国乔治亚州8名共和党注册选民11月25日联名起诉乔治亚州州长、州务卿和州选举委员会成员，要求法院发布禁令，“基于选举中被篡改的大量证据，禁止州长和州务卿将目前经过认证的结果递交给选举团”；要求被告立刻下达命令，将本次大选采用的投票机、投票软件交由被告，送去给专家检查；进行签名匹配的审计并承认川普总统胜选等多项诉求。
 
-[296\_French\_1116\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082431/296_French_1116_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082431/296_French_1116_CCP_Virus_Updates.pdf)
+这8位原告是：库克.皮尔逊 （Coreco Ja’an Pearson），注册选民，居住在乔治亚州的奥古斯塔。
 
-[296\_German\_1116\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27062628/296_German_1116_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27062628/296_German_1116_CCP_Virus_Updates_.pdf)
+维克.汤森（Vikki Townsend Consiglio），注册选民，居住在乔治亚州亨利县。
 
-[296\_Japanese\_1116\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26084737/296_Japanese_1116_CCP_Virus_Updates_-1.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26084737/296_Japanese_1116_CCP_Virus_Updates_-1.pdf)
+格洛里亚·凯·戈德温（Gloria Kay Godwin），注册选民，居住在佐治亚州皮埃斯县。
 
-[296\_Korean\_1116\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082430/296_Korean_1116_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082430/296_Korean_1116_CCP_Virus_Updates.pdf)
+詹姆斯·肯尼思·卡洛尔（James Kenneth Carroll），注册选民，居住在乔治亚州道奇县。
 
-0
+卡洛琳·霍尔·费舍尔（Carolyn Hall Fisher）注册选民，居住在乔治亚州福塞斯县。
+
+凯瑟琳.阿尔斯顿.拉瑟姆（Cathleen Alston Latham）注册选民，居住在乔治亚州咖啡县。
+
+以上6位原告都是共和党的提名人，是代表乔治亚州的总统选举人。
+
+其他2位原告包括：詹森·谢泼德（Jason M. Shepherd）科布县共和党主席、Brian Jay Van Gundy乔治亚州格温内特县注册选民。
+
+被告包括：乔治亚州州长布莱恩.坎普（Brian Kemp）、乔治亚州州务卿布拉德.拉芬斯伯格（Brad Raffensperger）、乔治亚州选举委员会成员Rebecca N. Sullivan，David J. Worley，Matthew Mashburn和Anh Le。
+
+2019年6月9日左右，州长坎普为乔治亚州购买了新的多米尼（Dominion）投票系统，预算为1.5亿美元。虽然当时有网络安全专家警告说，这将使乔治亚州的选举容易受到黑客攻击和篡改，由Abrams发起的Fair Fight投票权组织也抗议说，这项投资1.5亿美元的多米尼投票系统是“最严重的腐败” 、浪费金钱、 “可被轻易破解的投票机”，但是州长坎普与州务卿拉芬斯伯格面对警告与抗议，仍然一意孤行，采用了多米尼投票系统。
+
+这份长达104页的起诉文件指控，被告坎普和拉芬斯伯格无视导致Dominion软件在2018年被德克萨斯州选举委员会拒绝的所有担忧，即该软件容易受到无法检测和不可审计的操纵。行业专家、普林斯顿大学计算机科学和选举安全专家教授安德鲁·阿佩尔（Andrew Appel）博士最近观察到有关Dominion投票机的情况：将一些选票从一个候选人转移到另一个候选人。“我将该计算机程序写入了存储芯片，现在要破解一台投票机，您只需要7分钟以及一把螺丝刀。”
+
+文件还详细描述了多米尼投票系统被中共、委内瑞拉等国外独裁者操控；前电子情报分析员证词：代表中共国和伊朗的特工访问了多米尼软件，以监控和操控选举，包括2020年美国最新的这次大选；专家Navid Keshavarez-Nia证词：美国情报部门已开发出渗透到包括Dominion在内的外国投票系统的工具，在2020年大选中，属于川普总统的数十万张选票，被移交给了拜登；乔治亚州使用的自治制度，为选票填塞和欺诈打开了方便之门。
+
+由于原告和被告均在乔治亚州，并且原告和川普总统没有利益关联，不属于利益相关方，因此，此次案件乔治亚州相关法院必须受理。
+
+值得关注的是，本次诉讼并未要求乔治亚州州长和州务卿直接承担任何责任，其中关于中共和伊朗特工访问多米尼投票软件、监控和操控选举的指证，如果法院受理的话，则无人辩护或指控成立，因为中共和伊朗不可能派特工出庭作证。
+
+此案的意义还在于敲山震虎，伊朗为美国的敌对国，中国虽然与美国还是邦交国状态，但是，一旦中共干涉美国大选罪证做实，美国黑暗沼泽地没人敢继续与中共沆瀣一气。因为西德尼.鲍威尔是注册军事律师，是唯一能在军事法庭上诉讼叛国罪的律师。多米尼投票系统涉及多国干涉美国大选，如果美国内部还有人胆敢继续与中共勾兑、出卖美国国家利益，可诉为叛国。一旦叛国罪证据确凿，FISA法庭可以直接以“叛国罪”抓捕，此罪最高可判死刑。
+
+目前大量证据都指向中共在操控美国大选，因此，一旦法院宣判中共利用多米尼投票系统操纵大选，则取消中共国外交豁免权、中美脱钩、推倒防火墙、查封中共在美资产、冻结中共万亿美债……一系列的持续灭共行动，才有可能变为现实。如果没有爆料革命，美国很难清醒过来，那么中共通过此次大选，就可以控制美国，进而控制全世界。好在在郭先生领导的爆料革命的努力之下，美国川普总统的支持者们已经清醒过来，爆料革命、新中国联邦也已成为全球政治格局中一支不可或缺的正义力量。美国以法灭共的新篇章，就从这一纸诉状开始了。
+
+（文章内容仅代表作者个人观点）
+
+1+
