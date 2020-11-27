@@ -1,15 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 墙内的战友你好！
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/595080/)
+## 突发！川普：必须立即终止230法案
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/595103/)
 
-作者：yana
+- 编辑：文顺
+- 素材：Victor Torres
 
-亲爱的墙内战友你好🌹我和你的处境是一样的，我相信墙内的战友都正在面临着来自各方的压力，就是选择与爆料革命同行而遭遇众叛亲离的状况，那是因为有些人恐惧CCP，有些人怀疑爆料革命的真正目的。墙内有那么多人不敢反抗CCP，活在国家政治恐惧中就足以证明这个民族正在被魔鬼蹂躏。我们不是在为自己而勇敢的战斗，我们是在帮助那些胆小的，无助的，无知的人与魔鬼决斗，我们是一群勇士，是在文贵先生的带领下与邪魔搏斗的勇士，我们是有使命的一群人，是上天把我们聚集在一起了，当下是一个全世界正道界与邪魔界较量的关键时刻，正像文贵先生说的那样，魔鬼已经掌控这个世界太久了，该我们赢了，有上天与我们同在，我们不赢都不行。
 
-所以我们要坚定信念，不彻底灭共决不罢休。💪💪 全世界灭共魔的号角已经吹响，美国正在行动，以美灭共，以共灭共正在按照文贵先生所预言的节奏进行着。天就要亮了，让我们充满信心迎接胜利的曙光🌹🙏 我们的武器来自我们的信念，人人都相信CCP肯定灭亡，CCP就很快嗝屁了。
+***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-爆料革命缺你不行，让我们彼此鼓励，耐心等待胜利吧！
+西班牙2020年11月27日电/喜西社/——刚刚，川普发推：“为了国家安全，必须立即终止230法案！”
 
-0
+
+
+> For purposes of National Security, Section 230 must be immediately terminated!!!
+> — Donald J. Trump (@realDonaldTrump) [November 27, 2020](https://twitter.com/realDonaldTrump/status/1332175155104247808?ref_src=twsrc%5Etfw)
+
+
+
+据爆料革命“[伦敦英喜庄园](https://gnews.org/zh-hans/530511/)”报道，**美国《通讯规范法案》（Communications Decency Act，“CDA”）**是1996年制定的旨在对网络进行监管的一部法律，其中至今依然有效部分是为网络平台提供免责保护的第230条款，亦被称为“CDA230”。该条款规定，互联网服务供应商无需为第三方用户的言行负法律责任，同时也保护了互联网服务供应商出于善意考虑，而对冒犯性内容进行限制的行为，或者赋予他人采取技术手段来限制冒犯性内容的权力。该条款可以概括为两部分，一是第三方用户在互联网平台发布的任何言论，其自行承担法律后果，与互联网平台无任何关联。二是如果互联网平台出于善意考虑，主观认为某些言论有冒犯性，互联网平台可以对相关冒犯性内容进行限制，也可以授权第三方采取技术手段进行限制。
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+
+1+

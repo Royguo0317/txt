@@ -1,31 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯：美国司法部：多米尼为中共代理为“中国国家行为参与者提供机会”以恶意网络活动造成经济间谍活动
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/595521/)
+## 独家重磅&#8211;《路德社》精选主题专栏：《乔治亚州的诉讼文件》104页全文翻译
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/595631/)
 
 出品：《路德社》 编辑：《路德社》精选新闻专栏组
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27053639/QWRdLqry-0-wm-1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27053654/QWRdLqry-1-wm-1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27053715/QWRdLqry-2-wm-1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27053745/QWRdLqry-3-wm-1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27053807/QWRdLqry-4-wm-1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27053840/QWRdLqry-5-wm-1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27053902/QWRdLqry-6-wm-1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27053923/QWRdLqry-7-wm-1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27053946/QWRdLqry-8-wm-1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27054006/QWRdLqry-9-wm-1.png)
 
-备受诟病的多米尼投票系统，又被挖出了一个与中共又密切关联的技术人员，给板上钉钉的中共干涉美国大选的棺材板上又敲上了一个钉子。
 
-《国家脉搏》25/11/2020披露，担任多米尼投票系统信息技术核心基础设施经理的黄安迪，此前曾在中国电信工作。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27071412/%E6%88%AA%E5%B1%8F2020-11-28-01.02.49.png)
-而且美国司法部已经将该公司[标记](https://www.justice.gov/opa/pr/executive-branch-agencies-recommend-fcc-revoke-and-terminate-china-telecom-s-authorizations)为“担心中国电信容易受到中国政府的利用，影响和控制”，以及“中国电信在美国业务的性质”如何为“中国国家行为提供机会”以恶意的网络活动造成经济间谍活动以及美国通讯的中断和错误路由。”
 
-川普2020年竞选律师鲁迪·朱利安尼（Rudy Giuliani）。朱利安尼曾表示，有充足的证据证明，多米尼投票系统（Dominion）与委内瑞拉、古巴和中共国有关。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055107/ziYZH4tH01-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055201/ziYZH4tH02-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055226/ziYZH4tH03-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055259/ziYZH4tH04-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055325/ziYZH4tH05-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055347/ziYZH4tH06-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055407/ziYZH4tH07-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055427/ziYZH4tH08-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055446/ziYZH4tH09-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055505/ziYZH4tH10-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055528/ziYZH4tH11-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055615/ziYZH4tH12-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055654/ziYZH4tH13png-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055714/ziYZH4tH14-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055733/ziYZH4tH15-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055754/ziYZH4tH16-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055813/ziYZH4tH17-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055834/ziYZH4tH18-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055854/ziYZH4tH19-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055912/ziYZH4tH20-wm.png)
 
-2010年6月，多米尼收购了红杉投票系统， 但是并不包含其核心的知识产权——IP。而红杉系统的母公司Smartmatic被描述为 “可能与委内瑞拉政府有关系，是一家由一连串的委内瑞拉政治精英拥有委内瑞拉公司”换句话说，占据美国20%的红杉投票系统的后门一直都向委内瑞拉的独裁者们开放。
 
-早在2008年中共的红杉资本也曾收购红杉投票系统，多米尼公司首席执行官兼联合创始人约翰·普洛斯( John Poulos)在今年一月九日的一次三大投票机公司听证会上承认投票机内有部件来自中共国。
 
-现在黄安迪的暴露证明无论在硬件还是软件上，多米尼投票系统都被控制在共产国家的手中。此次爆出的黄安迪老东家-中国电信（1998-2002）由中国政府全资经营，美国国防部认定中国电信与中国军方合作超过20年。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060020/43VXTx4z01-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060050/43VXTx4z02-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060118/43VXTx4z03-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060147/43VXTx4z04-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060214/43VXTx4z05-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060241/43VXTx4z06-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060308/43VXTx4z07-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060335/43VXTx4z08-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060402/43VXTx4z09-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060429/43VXTx4z10-wm.png)
 
-他在这些项目中的具体工作性质不完全清楚，但与他广泛合作的思科公司负责维护中国严苛的互联网防火墙。这层关系，导致多米尼投票系统与反对川普总统的黑幕联系更加具体化。
 
-同时，有证据显示其作为民主党的捐助者占Dominion美国[捐款中](https://thenationalpulse.com/exclusive/dominion-dem-donors/)的95％以上。该公司还拥有一个由南希·佩洛西（Nancy Pelosi）的前参谋长和奥巴马时代的投票[保护](https://thenationalpulse.com/politics/dominion-obama-lobbyist/)主任组成的游说团队。
 
-越来越多出现的实锤证据表明Dominion选票设备操纵事件幕后无处不在地遍布中共留下的痕迹。随着美国相关司法行动的进行更多的变化正在酝酿中。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060531/SxGmk6Eb01-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060550/SxGmk6Eb02-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060610/SxGmk6Eb03-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060635/SxGmk6Eb04-wm.png)
 
-[援引原文](https://thenationalpulse.com/news/dominion-techie-worked-for-ccp-military-proxy-flagged-by-u-s-govt-for-malicious-cyber-activity/)
+
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060718/UUr5eNjN01-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060738/UUr5eNjN02-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060756/UUr5eNjN03-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060815/UUr5eNjN04-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060835/UUr5eNjN05-wm.png)
+
+
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060915/1dYIGPgN01-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060947/1dYIGPgN02-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061008/1dYIGPgN03-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061029/1dYIGPgN04-wm.png)
+
+
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061108/kYiz-H3E01-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061127/kYiz-H3E02-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061145/kYiz-H3E03-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061205/kYiz-H3E04-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061225/kYiz-H3E05-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061244/kYiz-H3E06-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061304/kYiz-H3E07-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061322/kYiz-H3E08-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061346/kYiz-H3E09-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061404/kYiz-H3E10-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061457/Rr34GMAm01-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061516/Rr34GMAm02-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061538/Rr34GMAm03-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061556/Rr34GMAm04-wm.png)
+[援引英文版《乔治亚州的诉讼文件》PDF104页原文](https://defendingtherepublic.org/wp-content/uploads/2020/11/COMPLAINT-CJ-PEARSON-V.-KEMP-11.25.2020.pdf)
 
 0
