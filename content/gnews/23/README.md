@@ -1,57 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020-11-27康州盘古农场本日新闻热点
-` 喜马拉雅美国·康州盘古农场` [轉載自GNews](https://gnews.org/zh-hans/595425/)
+## 【世界多语言图文】2020/11/16 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/592887/)
 
-新闻采集：康州农场-台湾阿人
+战友之家图文摘要及多语组
 
-新闻编辑：康州农场-feihua
+[296\_English\_1116\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082428/296_English_1116_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082428/296_English_1116_CCP_Virus_Updates_.pdf)
 
-审核： 康州农场-Truemanman
+[296\_French\_1116\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082431/296_French_1116_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082431/296_French_1116_CCP_Virus_Updates.pdf)
 
-**1. 川普发推特表示，为了国家安全，230法案必须被废除。 **
+[296\_German\_1116\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27062628/296_German_1116_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27062628/296_German_1116_CCP_Virus_Updates_.pdf)
 
-11月26日川普总统发推特说，为了国家安全，230法案必须马上被终止。
+[296\_Japanese\_1116\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26084737/296_Japanese_1116_CCP_Virus_Updates_-1.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26084737/296_Japanese_1116_CCP_Virus_Updates_-1.pdf)
 
-**2. 鲍威尔发起佐治亚州选举诉讼，（Dominion ）多米尼克软件遭中共和伊朗特工访问操纵选举。**
-
-The gateway pundit 网11月25日报道，西德尼·鲍威尔（Sidney Powell）律师提交的文件104页佐治亚州大选欺诈案，该文件有证据表明中共和伊朗特工访问多米尼克软件操纵美国总统大选。
-
-**3. 川普竞选团队法律顾问珍娜·埃利斯（Jenna Ellis)透露，她收到大量电话和信息恐吓，有些甚至威胁她的人身安全。**
-
-大纪元2020年11月27日讯，川普竞选团队法律顾问珍娜·埃利斯（Jenna Ellis）透露，她收到大量电话和信息恐吓，有些甚至威胁她的人身安全。周三（11月25日），埃利斯在接受布莱巴特新闻网（Breitbart News）专访时表示，她收到成百上千的威胁私信和信息。有一些是公开的，比如扬言取消她的律师资格，怂恿民众对她进行律师投诉。其它的则更加直接、粗鲁。
-
-**4. 川普政府解雇11名国防部顾问委员，其中包括基辛格，奥尔布赖特，加里罗海德，鲁迪里昂等。**
-
-11月25日，多名美国官员告诉《外交政策》，美国国防部最高联邦咨询委员会的几名成员突然被赶出局，这似乎是即将卸任的特朗普政府对外交政策机构接生的一击。五角大楼白宫联络员约书亚·怀特豪斯在星期三下午发出的指令，从国防政策委员会中撤消了11位知名顾问，包括前国务卿亨利·基辛格和玛德琳·奥尔布赖特。退休的海军上将鲁格黑德（Gary Roughead）将军。众议院情报委员会的一次排名成员简·哈曼（Jane Harman）。五角大楼前首席运营官鲁迪·德莱昂曾被时任国防部长詹姆斯·马蒂斯（James Mattis）视为高级政策职务，他也将被罢免。 前布什副国家安全顾问JD Crouch II；前国防高官富兰克林·米勒（Franklin Miller）也已被罢免。 标志着邪恶的中共的老朋友基辛格时代结束。
-
-**5. 福奇接受采访表示，只要被邀请，一定会加入拜登疫情团队。**
-
-11月26日，美国《国会山报》报道，福奇星期三（25日）在接受当地媒体访时说，如果被邀请是否会加入拜登的疫情团队。他对此回应：“当然会了，这是一定的。”一丘之貉，毫不避讳。
-
-**6. 台湾驻美代表处9人确诊CCP 病毒，驻美代表萧美琴将隔离14天。**
-
-大纪元2020年11月26日讯，台湾驻美代表处最新检出9人确诊中共病毒（武汉肺炎，COVID-19），累计共12人感染。外交部26日表示，我驻美国代表萧美琴大使在美东时间11月25日接受检测结果为阴性，目前健康状况良好；但因接触史，目前萧美琴依规定进行14天居家隔离。
-
-**7. 富士康将把部分苹果生产转移到越南以降低中共国风险。**
-
-11月27日，路透(Reuters)援引一位未具名消息人士的话报道称，富士康科技集团(Foxconn Technology Group)正在将部分iPad和Macbook组装工作从中国转移到越南，以将中美贸易战的风险降至最低。报道称，这家台湾电子产品制造商可能是应苹果公司(Apple Inc., AAPL)的要求转移部分生产。富士康科技集团的正式名称为鸿海精密工业股份有限公司(HonHai Precision Industry Co.)。
-
-**8. 王毅趁美国顾不上拉拢日韩，钓鱼岛方案东京碰壁，日方还毫不犹豫的向中方提出了香港及新疆的人权问题，以及南海问题。**
-
-11月27日，法广报导，中国外交部长王毅趁着美国复杂的权力过渡时期出访美国盟邦日韩，试图强化与地区间两大贸易伙伴关系，消除因领土争议、香港及台湾问题引起的敌意。评论指王毅的韩国行马马虎虎，在日本，钓鱼岛议题，日本叫做尖阁诸岛，让王毅整个行程黯淡无光。日方还毫不犹豫地向中方提出了香港及新疆的人权问题，以及南中国海问题。
-
-**9. 印防长：全力解决与中共国的边界问题，不会就主权作出妥协。**
-
-11月26日法广报导，印度国防部长拉杰纳特·辛格（Rajnath Singh）11月26日在参加论坛活动时表示，针对中印两军边境对峙问题，双方已经举行了会谈，并将继续进行对话。他强调，由莫迪总理领导的印度政府将不会在印度的边界、自尊和主权问题上作出任何妥协。
-
-**10. 瑞典王子与索菲亚王妃确诊CCP 病毒。**
-
-当地时间11月26日，瑞典电视台报道，瑞典王子卡尔·菲利普和索菲娅王妃的新冠病毒检测呈阳性。目前他们进行了自我隔离。此外，瑞典的国王、王后、维多利亚公主和丹尼尔亲王都将接受新冠病毒检测。20日进行的一次葬礼中，王室夫妇、王储公主夫妇以及王子夫妇在同一间教堂的房间里。疫情期间，索菲娅每周在斯德哥尔摩的索菲亚美特医院（Sophiahemmet）担任医院志愿者。她在每次轮班前都要进行新冠病毒检测。
-
-**11. 韩国新增569例新冠确诊病例，连续两天超过500例。**
-
-11月27日，韩联社消息，韩国中央防疫对策本部27日通报，截至当天0时，韩国较前一天0时新增新冠确诊病例569例，累计确诊32887例。前一日，韩国新增583例新冠确诊病例，是自今年3月6日（518例）始于大邱新天地教会的疫情爆发以来，单日新增病例时隔8个多月再次超过500例。
+[296\_Korean\_1116\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082430/296_Korean_1116_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082430/296_Korean_1116_CCP_Virus_Updates.pdf)
 
 0

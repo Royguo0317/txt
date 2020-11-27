@@ -1,30 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发！川普：必须立即终止230法案
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/595103/)
+## 文贵说｜系列图片连载（五十八）
+` GM98` [轉載自GNews](https://gnews.org/zh-hans/595270/)
 
-- 编辑：文顺
-- 素材：Victor Torres
+## 400.
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27010346/2020-8-6-2__1-scaled.jpg)
+所有水区的战友们，危险度已经超过百分之五十了，咱不要跟那五十碰，离开！这叫什么，识时务者为俊杰。
 
+——郭文贵先生2020年7月25日
 
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+## 401.
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27010416/04-6-scaled.jpg)
+我们要为天安门事件平反，必须为那些英雄们平反，必须说出真相！就像我们需要冠状病毒唯一能解决的方法，那就是找出病毒的真相。
 
-西班牙2020年11月27日电/喜西社/——刚刚，川普发推：“为了国家安全，必须立即终止230法案！”
+——郭文贵先生2020年7月25日
 
+## 402.
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27010439/03-9.jpg)
+你要想爱一个人、喜欢一个人，你一定会只看她的优点而忽视掉她的缺点。
 
+——郭文贵先生2020年7月25日
 
-> For purposes of National Security, Section 230 must be immediately terminated!!!
-> — Donald J. Trump (@realDonaldTrump) [November 27, 2020](https://twitter.com/realDonaldTrump/status/1332175155104247808?ref_src=twsrc%5Etfw)
+## 403.
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27010523/02-10.jpg)
+好人坏人是你根据某种情况下发生的具体时间所说的，不见得就是你都是对的。
 
+——郭文贵先生2020年7月25日
 
+## 404.
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27010552/01-11.jpg)
+人在社会上，不要都以为都是别人的错，让你痛恨这个社会，很多坏事情的发生是因为自己。
 
-据爆料革命“[伦敦英喜庄园](https://gnews.org/zh-hans/530511/)”报道，**美国《通讯规范法案》（Communications Decency Act，“CDA”）**是1996年制定的旨在对网络进行监管的一部法律，其中至今依然有效部分是为网络平台提供免责保护的第230条款，亦被称为“CDA230”。该条款规定，互联网服务供应商无需为第三方用户的言行负法律责任，同时也保护了互联网服务供应商出于善意考虑，而对冒犯性内容进行限制的行为，或者赋予他人采取技术手段来限制冒犯性内容的权力。该条款可以概括为两部分，一是第三方用户在互联网平台发布的任何言论，其自行承担法律后果，与互联网平台无任何关联。二是如果互联网平台出于善意考虑，主观认为某些言论有冒犯性，互联网平台可以对相关冒犯性内容进行限制，也可以授权第三方采取技术手段进行限制。
+——郭文贵先生2020年7月25日
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+## 405.
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27010720/11-67-scaled.jpg)
+特别要记住的事情，唯真不破，人类没有对错黑白，只有善恶之分，只有真假之分，苍天在上，天会给你答案。
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
+——郭文贵先生2020年7月25日
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+## 406.
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27010633/113-1-scaled.jpg)
+每个人都有活的体面，拥有幸福、快乐、健康和彼此尊重，这个基本的人权和权力、天赋的人权。
 
-1+
+——郭文贵先生2020年7月25日
+
+0
