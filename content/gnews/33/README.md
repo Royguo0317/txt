@@ -1,19 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 多米尼的技术人员曾在中共国企工作
-` GM99` [轉載自GNews](https://gnews.org/zh-hans/596571/)
+## 战友观点：我们要坚定信念，直到胜利那刻
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/596627/)
 
-#### **作者：billwilliam**
+作者：此心不變；校对：宁缺；审核：海阔天空；Page：拱卒
+[!\[\]()!\[\](https://spark.adobe.com/page/le5H9vfQpZZLu/images/743ab32c-a8fa-4ca5-85b8-ddd9fce130a8.png?asset_id=b7003f06-6702-422d-b08f-8f7e59fa8bfb&amp;img_etag=%22a8851e68d0fc19a369a53844aa1c8f0f%22&amp;size=1024)](https://spark.adobe.com/page/le5H9vfQpZZLu/images/743ab32c-a8fa-4ca5-85b8-ddd9fce130a8.png?asset_id=b7003f06-6702-422d-b08f-8f7e59fa8bfb&amp;img_etag=%22a8851e68d0fc19a369a53844aa1c8f0f%22&amp;size=1024)
+今早看到联邦总务署署长墨菲写信给拜登，说要开始移交权力。然后川普发推感谢墨菲对国家坚定的奉献和忠诚：“她被骚扰、威胁、霸凌——我不希望这发生在她和家人、GSA雇员身上。我们的案子有力进行，我们将继续很好战斗，我相信我们将胜利。不过为了我们国家更好，我建议墨菲启动程序，也告诉我的团队如此做。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27094148/EP-307-1-Copy.png)
+在这个时候，信仰对一个人是多么重要。若没有信仰的话，很可能还没到最后一刻，就已倒下了。而有信仰的人会将一切磨难的着力点放在神的身上，这样他就能超脱一切压力，就能超越生死门，走到最后一刻。我在想川普就是这样做的，他把所有压力都交给了神，所以他没有压力，他依然打他的高尔夫球，他依然做该做的一切，他还保护他的团队免受骚扰、威胁、霸凌……
 
-近日鲍维尔律师释放出“海妖”诉讼，指控中共国和伊朗干涉美国大选。而国家脉动新闻11月25日的文章又透露了一条中共干涉美国大选的间接证据。
+今天的美国就是去年的香港，唯一不同的是美国人民还有军队和警察，他们会站在司法这边，而香港人民没有。
 
-根据该文报道，多米尼公司的一位掌管信息技术的核心架构经理黄安迪（AndyHuang）曾于1998-2002年在中国电信工作。中国电信是完全由中共控制的国企，美国国防部也在20年前就标记它与解放军合作。美国司法部也说中国电信“为中国国家进行恶意网络行为提供了机会，包括经济间谍和扰乱转移美国的通信”。黄安迪参与的项目包括“厦门IDC，厦门市区宽带网，OA内部网基础设施改造”。他在这些项目中的角色尚不清楚，但他与Cisco有广泛合作，Cisco的技术与中共的防火墙有关。有意思的是，黄的领英账号自称多米尼公司是他的兴趣，但实际上这是他的雇主。不知道他是否有意掩盖他在多米尼公司任职。
+Deep State使用的招数就是CCP那套，骚扰、生死威胁和霸凌每一个负责权力移交的行政个体和及其家人。因为Deep State无法面对司法，它只能用这样的下三滥的方法，绕开司法，逼迫一个个行政部门执行权力移交，说不定下一个逼迫的对象就是联邦大选委员会。
+[!\[\]()!\[\](https://spark.adobe.com/page/le5H9vfQpZZLu/images/dcc81efa-6957-45c5-a38c-97c5036cb2e8.jpg?asset_id=74deb35c-894e-4d9a-b96a-66f4201e707a&amp;img_etag=%2235413da2890abbbdedd68c3e8e9f2b83%22&amp;size=1024)](https://spark.adobe.com/page/le5H9vfQpZZLu/images/dcc81efa-6957-45c5-a38c-97c5036cb2e8.jpg?asset_id=74deb35c-894e-4d9a-b96a-66f4201e707a&amp;img_etag=%2235413da2890abbbdedd68c3e8e9f2b83%22&amp;size=1024)
+川普使用的方法是司法。在司法方面，川普一定会赢，然后在司法的背书下，使用他信得过的特种部队，保卫这个神选的国家……接着我们可能会看到有很多共和党人的出卖和背叛，这是一定会发生的，因为Deep State里也有很多共和党人……
 
-多米尼公司核心架构技术员曾是中国电信的雇员，这一点间接证实了多米尼大选舞弊的软件后门可能来自中共。虽然多米尼曾是委内瑞拉公司，但委内瑞拉政府不应有这么强的技术实力，背后还是中共。路德视频说这次操控美国大选的技术可能来自北大方正的汉字代码，不知道这位黄安迪与北大的技术有没有关系。相信在彻底调查大选舞弊后，更多实锤证据会出来，指认中共的犯罪。
+不管这个过程有多磨难，但是不用担心，它们都不过是障眼法，因为巴雷特成功出任最高法院大法官，川普团队成功拿到服务器，等等。那本是绝无可能发生的事，可是它们都发生了，那意味着神在出手，所以我相信，只要与神同行，跟随川普还有郭先生，走到最后一刻，就一定能看到大赢的局面。
 
-**参考链接：**[Dominion Techie Worked For CCP Military Proxy Flagged By U.S. Govt For ‘Malicious Cyber Activity’](https://thenationalpulse.com/news/dominion-techie-worked-for-ccp-military-proxy-flagged-by-u-s-govt-for-malicious-cyber-activity/)
+【文章仅代表作者观点】
 
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)[点](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/le5H9vfQpZZLu/)
+[!\[\]()!\[\](https://spark.adobe.com/page/le5H9vfQpZZLu/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/le5H9vfQpZZLu/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

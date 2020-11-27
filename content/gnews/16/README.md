@@ -1,28 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 如果拜登非法上台，将对美国造成毁灭性打击
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/596806/)
+## 来自中共的警告，英国将付出惨痛代价
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/596969/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27105809/Capture-148.jpg)图片来源：ABC News 
-杰森·迈斯特（Jason D. Meister）， 川普总统公司的顾问委员会成员，国家电视和广播节目中的常客，11月24日在Newsmax发表文章指出，乔·拜登（Joe Biden）不是“温和派”。
+*新闻来源：Breitbart《布莱特巴特》；作者：Kurt Zindulka；发布时间：2020年11月22日*
 
-迈斯特称，关注这次选举的人都很清楚，激进的左派已经完全控制了乔·拜登。他空洞的脑壳里塞满了激进左翼的议程, 其中包括增加4万亿美元的税收，开放边境，为非法移民提供医疗服务，暂停驱逐暴力罪犯，为1100万移民提供公民身份，取消警察资金和解散警察，废除宪法第二修正案, 支持“绿色新政”, 清除化石燃料, 拒绝谴责夺取了民主党执政城市的极左暴力，以及要推行与川普总统“美国第一”截然不同的“美国最后“议程。
+*翻译/简评：MikeHua；校对：万人往；审核：海阔天空；Page：拱卒*
+[!\[\]()!\[\](https://spark.adobe.com/page/s101yMgErNmyj/images/a005f904-b083-4c75-946f-5cbbbb2bf80c.jpg?asset_id=6ef54723-7e2d-4329-a816-b6cc48bd8749&amp;img_etag=%22e02cd85a767290a8ffbf9c77b6f697d9%22&amp;size=1024)](https://spark.adobe.com/page/s101yMgErNmyj/images/a005f904-b083-4c75-946f-5cbbbb2bf80c.jpg?asset_id=6ef54723-7e2d-4329-a816-b6cc48bd8749&amp;img_etag=%22e02cd85a767290a8ffbf9c77b6f697d9%22&amp;size=1024)
+**简评：**
 
-拜登否认2020年大选中存在大范围影响选举结果的舞弊和投票违规行为，并在选举日之后立即成立了一个想象中的 “当选总统办公室”。如果他拜登当选总统，他的非法上台和政策肯定会对我们的宪政共和国造成毁灭性打击。公平和诚实的选举一直是我们宪政共和国的基石，政府的权力来自于被统治者的授权。
+中共在全世界大撒币，撒的是中国人民的血汗，得利的却只是极少数家族的人，这些钱只会用来增加中国人民身上的枷锁，中国人民永远是输家。英国政府虽然对中共的入侵有一丁点的反抗，但实际上只是杯水车薪，因为中共的渗透无孔不入。禁止华为在5G网络中的建设只是成百数千项措施中的一项。
 
-到目前为止，宾夕法尼亚州、佐治亚州、密歇根州、内华达州和威斯康星州共收到538份宣誓证词，此外，自选举日以来，这几个州已提交了超过14000份事件报告。联邦选举委员会（FEC）主席特雷·特雷纳（Trey Traino）说: “我们在这些事件报告中看到的大量宣誓证言，这表明确实存在欺诈行为，拜登竞选团队需要回答这些问题。”
+中共不需要顾及国内民意，不需要估计成本，不需要估计代价，他们只在乎自己是否继续掌权，是否能继续奴役中国人民，这种奴役是否能持续下去并且扩张。如果全世界不醒来灭共，很快会被中共拉向地狱。现在美国人民已经体会到了中共式选举的滋味，民意被强奸，媒体封口封眼。人们只能说主流媒体是对的，永远伟大、光荣、正确。尽管中共如此疯狂，我们也能预见正义力量真正行动时，反击会非常猛烈。相信美国总统选举一旦尘埃落定，这场荒唐滑稽的选举落下帷幕，焦点一定是灭共，剑指中南坑！
 
-有证据表明，选举官员系统性地在民主党占主导的地区“操纵”选票，而在共和党的地区却鲜有发生。这些舞弊操纵手段包括：缺乏选民身份证明；监票员无法按照法律的规定去观察和证明选票已投完；卡车在凌晨4点将邮寄选票运入并卸货；邮寄选票上的签名没有经过检查；在摇摆州，数千名已故选民提交缺席选票；非本州居民多次投票；包括所有关键州在内的30个州都使用了多米尼克（Dominion）投票机。
+**原文翻译：**
 
-大家都知道，大选当晚凌晨2点计票结束前，川普总统在所有摇摆州的票数都在上升，但之后形势急剧逆转，出现了一系列不可能的但利于拜登的票数高峰。而拜登和激进的左翼民主党人并没有对这一突然的逆转感到震惊。民主党人花费了4000万美元纳税人的钱和两年多的时间来沸沸扬扬地调查2016年所谓“干涉选举”问题，却一无所获，现在在广泛的证据面前，他们却保持沉默不要求调查2020年大选，这又是为什么？
+### 中共游说团队警告，英国胆敢禁止中共企业则会付出“惨痛代价”
 
-迈斯特最后指出，美国人民有权要求一个诚实透明的选举。任何合法当选的美国总统都希望有诚意地核实和确认选举结果。只有像乌戈•查韦斯（Hugo Chavez）这样的社会主义者，才能通过广泛的选举舞弊获得权力。如果没有美国民众的同意，乔·拜登的政府将完全没有任何合法性。
+中共在英国的游说团队说，如果英国继续对抗中国共产党，英国将付出“惨痛代价”,损失数十亿美元的中共国投资。
+[!\[\]()!\[\](https://spark.adobe.com/page/s101yMgErNmyj/images/eab05b29-50c7-4a7c-9a18-f5545ee41323.png?asset_id=561cc125-67de-467e-93f1-b08d9d730b56&amp;img_etag=%22a43036c53c599b7c955b8ff9e66752e4%22&amp;size=2560)](https://spark.adobe.com/page/s101yMgErNmyj/images/eab05b29-50c7-4a7c-9a18-f5545ee41323.png?asset_id=561cc125-67de-467e-93f1-b08d9d730b56&amp;img_etag=%22a43036c53c599b7c955b8ff9e66752e4%22&amp;size=1024)
+中英商会主席方文建威胁称，如果英国继续禁止中共企业，中共国会对英国使用经济力量。该商会代表着华为、中兴和国航等数百家中共国企业。
 
-[原文链接](https://www.newsmax.com/jasondmeister/chavez-sanders-ocasiocortez/2020/11/24/id/998627/)
+据星期日泰晤士报（Sunday Times）报道，方文建表示：“如果你们继续禁止中共企业，英国自身会缺乏来自中共国的支持与合作。中共国投资者的信心会大受影响…现在英国需要大量投资。”
 
-翻译： Alton
+在主流媒体宣布前副总统乔·拜登赢得上个月的美国总统选举后，中共国越来越采取强硬立场。
 
-校对：沙拉猫
+中共将矛头对准了英国和澳大利亚，这两个国家都在川普政府时期就开始对抗这个共产政权，在白宫7月施压之后，英国政府宣布将在2031年以前禁止中共科技巨头华为建设5G网络。
 
+英国议会还在考虑一项国家安全和投资法案，该法案可能被用来阻止中共国对英国关键基础设施的投资。
+
+方先生同时担任国有的中国银行在英国的负责人，他攻击约翰逊首相的“更好重建”绿色计划，警告称，中共国可以撤出欣克利角C核电站 (Hinkley Point C nuclear power plant)的投资。
+
+他表示：“他们已经准备好了在英国进一步进行大规模、实质性的投资，但他们现在在等英国政府的决定。”他补充道：“为什么你把他们拒之门外？好吧，你去找别的合作伙伴。减排计划将受到严重影响。”
+
+他继续警告称，英国和中共国有大量出口额的公司可能会面临限制，例如捷豹路虎 (Jaguar Land Rover)和巴宝莉（Burberry），他说：“如果英国继续敌视中共国，敌视中共公司和产品，中共国的民众会如何反应？民众会说‘好，你们不买我们的东西，为什么我们要买你们的？’我们此前见过类似的事情发生。”
+[!\[\]()!\[\](https://spark.adobe.com/page/s101yMgErNmyj/images/dfde6362-12ce-42b9-98cc-d561225b8fef.jpg?asset_id=c954051e-3086-4bdd-a917-57f223b8ef00&amp;img_etag=%2216972d613b4e00d0861495ae7f8e271b%22&amp;size=2683)](https://spark.adobe.com/page/s101yMgErNmyj/images/dfde6362-12ce-42b9-98cc-d561225b8fef.jpg?asset_id=c954051e-3086-4bdd-a917-57f223b8ef00&amp;img_etag=%2216972d613b4e00d0861495ae7f8e271b%22&amp;size=1024)
+香港观察 (Hong Kong Watch)创立者贝内迪克特·罗杰斯 (Benedict Rogers)解释来自方先生的威胁是“更多来自中共政权的霸凌行为。”
+
+罗杰斯（Rogers）表示:“我们需要对中共进行全球性的、有协调的、有针对性的和强有力的制裁，我们现在就需要。”
+
+有权力的英国下议院外交事务专责委员会 (Foreign Affairs Select Committee)主席托马斯·图根达特 (Tom Tugendhat)议员说：“中共公司声称他们是独立的，但是他们和中共中央委员会一样威胁我们。我们见过他们在澳大利亚用同样的策略。澳大利亚已勇敢地面对其主权的威胁。我们也必须如此。”
+
+过去的二十年，中共国在英国的投资项目上投入了大量英镑，例如在希思罗机场和泰晤士水务公司 (Thames Water)购买股份。
+[!\[\]()!\[\](https://spark.adobe.com/page/s101yMgErNmyj/images/2a91183d-93d4-472e-8040-f596562c8dba.jpg?asset_id=11494abd-6f28-4d0b-8cec-92f2cd954f68&amp;img_etag=%22f433067903e265b5187f1b54f0430c51%22&amp;size=2706)](https://spark.adobe.com/page/s101yMgErNmyj/images/2a91183d-93d4-472e-8040-f596562c8dba.jpg?asset_id=11494abd-6f28-4d0b-8cec-92f2cd954f68&amp;img_etag=%22f433067903e265b5187f1b54f0430c51%22&amp;size=1024)
+中共同时尝试通过国家支持的孔子学院在全国各大学的宣传部门，在英国大学中获得影响力。
+
+今年五月，被定性为“事实国有”的华为向帝国理工学院(Imperial College London)投资五百万英镑，该大学对中共病毒的末日预测导致了全世界范围的封城。
+
+这笔钱表面上是用于研究项目、为伦敦校区建设新设施和内部5G网络，然而，一些人声称，真正目的是为了在英国学术界获得影响力。
+
+前保守党领袖伊恩•邓肯•史密斯爵士(Sir Iain Duncan Smith)在谈到这笔交易时表示:“这是一个完美的例子，说明中共国的战略是如何利用他们的资金，在世界知识分子的思维过程中植入他们的影响力。”帝国理工学院正在应对新冠的影响，这多么具有讽刺意味。这是一种非常令人担忧和危险的关系。”
+[!\[\]()!\[\](https://spark.adobe.com/page/s101yMgErNmyj/images/7abd7fde-626a-4f4f-a73b-f6c4453cafd3.jpg?asset_id=c725d6c1-44c2-4eff-ba25-4de9b008dc68&amp;img_etag=%22379fbc41b2b00740d59f4dcbb019785d%22&amp;size=2721)](https://spark.adobe.com/page/s101yMgErNmyj/images/7abd7fde-626a-4f4f-a73b-f6c4453cafd3.jpg?asset_id=c725d6c1-44c2-4eff-ba25-4de9b008dc68&amp;img_etag=%22379fbc41b2b00740d59f4dcbb019785d%22&amp;size=1024)
+[原文链接](https://www.breitbart.com/europe/2020/11/22/uk-will-suffer-warns-china-lobbying-group-if-britain-blocks-ccp-linked-business/)
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/s101yMgErNmyj/)
+[!\[\]()!\[\](https://spark.adobe.com/page/s101yMgErNmyj/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/s101yMgErNmyj/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0
