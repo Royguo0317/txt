@@ -1,19 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共国央行：不然市场缺钱 又坚决不搞大水漫灌
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/595049/)
+## 突发！川普：必须立即终止230法案
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/595103/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/24223314/logo-3-1.jpg)200
+- 编辑：文顺
+- 素材：Victor Torres
 
-作者：香草山写作组 程万里
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26223856/11271.jpg)
-北京时间11月26日，央行发布2020年第三季度中国货币政策执行报告。提出下一阶段将完善货币供应调控机制，根据宏观形势和市场需要，科学把握货币政策操作的力度、节奏和重点，既保持流动性合理充裕，不然市场缺钱，又坚决不搞大水漫灌，不让市场的钱溢出来。 央行：我们用经济学的方式解决现实问题不在行，但印钞票还是在行的，这也是一门技术活，你看既要流动还要合理,更不能多的大水漫灌，这多难。
 
-审核：浪迹天涯
+***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+西班牙2020年11月27日电/喜西社/——刚刚，川普发推：“为了国家安全，必须立即终止230法案！”
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/24223314/logo-3-1.jpg)
-0
+
+
+> For purposes of National Security, Section 230 must be immediately terminated!!!
+> — Donald J. Trump (@realDonaldTrump) [November 27, 2020](https://twitter.com/realDonaldTrump/status/1332175155104247808?ref_src=twsrc%5Etfw)
+
+
+
+据爆料革命“[伦敦英喜庄园](https://gnews.org/zh-hans/530511/)”报道，**美国《通讯规范法案》（Communications Decency Act，“CDA”）**是1996年制定的旨在对网络进行监管的一部法律，其中至今依然有效部分是为网络平台提供免责保护的第230条款，亦被称为“CDA230”。该条款规定，互联网服务供应商无需为第三方用户的言行负法律责任，同时也保护了互联网服务供应商出于善意考虑，而对冒犯性内容进行限制的行为，或者赋予他人采取技术手段来限制冒犯性内容的权力。该条款可以概括为两部分，一是第三方用户在互联网平台发布的任何言论，其自行承担法律后果，与互联网平台无任何关联。二是如果互联网平台出于善意考虑，主观认为某些言论有冒犯性，互联网平台可以对相关冒犯性内容进行限制，也可以授权第三方采取技术手段进行限制。
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+
+1+

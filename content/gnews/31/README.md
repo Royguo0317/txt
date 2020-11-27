@@ -1,52 +1,123 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【文雍漫谈】农民是一种职业，应该享有退休的权利
-` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/595093/)
+## 川普总统在感恩节赦免火鸡大典上的讲话，祝每个人感恩节快乐
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/595195/)
 
-作者：为子孙爱七哥农场 文雍
+新闻简述：川普总统和第一夫人在玫瑰园举行火鸡赦免仪式，两只分别叫“玉米”和“玉米棒子”的火鸡幸运地被总统赦免。总统祈求神在这个节日以及今后，永远守护美国和美国人民。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27001910/%E6%96%87%E9%9B%8D%E6%BC%AB%E8%AB%8713.jpg)
 
-这几天，网上流传着许多老年人的辛酸故事。从图片背景不难看出，这些老年人年轻的时候多数是农民，生活条件一直是窘迫的，甚至是朝不保夕的，才不得不在风烛残年还为生存下去而挣扎。颐养天年，对这些老人来说是永远可望而不可及的奢侈品。
 
-我们不仅要感慨，中共国这70年的历史，就是一部剥削史，他们欠农民的太多了。而可悲的是在多年的洗脑教育下，国人已经丧失了基本的判断能力，社会的责任就是保证人“老有所养”，连这个基本的常识都不知道。
+[阅读白宫英文原文](https://www.whitehouse.gov/briefings-statements/remarks-president-trump-national-thanksgiving-turkey-pardoning-ceremony-112420/)
 
-首先，农民首先是国民，不是奴隶。农民是全体国民中的一员，共产党号称中国是“以工人阶级为主体的工农联盟的社会主义国家”，作为这个国家的主人，农民理应享有这个国家的公共资源，他们也应该享有这些资源当然就包括养老、福利和医疗等社会保障。因为他们的劳动对所有国民都是意义重大的，相比于那些坐在办公室里的所谓公务员，农民创造的粮食才是不可或缺的。所以，他们65岁以上，没有劳动能力的时候，就应该由纳税人出钱给他们养老，这难道不是常识？
+**Remarks  by  President  Trump  at  the  National Thanksgiving  Turkey  Pardoning  Ceremony**
 
-农民不是一种身份，而是一种职业。他们通过自己的勤劳耕作，不但可以满足自己的生活，为社会做了贡献，所以他们就是无数普通劳动者中的一员。 农民作为一种职业，就应该享有每一个从业者都享有的退休生活，劳动者享受退休制度是天经地义的事情，这难道不是常识？
+**川普总统在美国国家感恩节赦免火鸡大典上的讲话**
 
-当下中共统治下的农民，根本没有退休的权利。他们几乎是活到老干到老，当他们老了，失去了劳动能力，就成了别人眼中的累赘。他们的晚年生活没有含饴弄孙的淡定从容，他们要么靠子女供养、要么靠年轻时的积蓄维持简单的生活、要么住进养老院，当然，进养老院也是需要一定的积蓄的，因为养老院也不是免费的，也分三六九等的。如果没有积蓄，子女又无能力，连养老院也进不了。在中共国统治下的底层百姓，自顾尚且不暇，一旦没有财力精力照顾父母，这些老年农民，便只能沦落街头靠拾荒度日。
+Issued on: November 24, 2020
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27002910/WhatsApp_Image_2020-11-26_at_18.28.11.jpg)
+发布时间： 2020年11月24日
 
-或许大家还记得前阵子发生在中共国农村的那起悲剧：儿子将丧失了自理能力的老母亲生生活埋，被救的母亲问出的第一句话是：儿子会不会被判刑！假如这个老母亲有一些退休金、有基本的医疗保障，这个悲剧很大程度上是可以避免的。诸多形形色色的农村问题，其背后的根源就是穷。而相关的数据显示，农村老人的自杀率远远高于城市的老人，在绝望的环境下，老人们不得不用自杀解脱自己。邪恶的中共统治，将人性中的恶发挥到了极致，使心地善良的普通人变成了杀母的恶人。
+Rose Garden
 
-回顾中共国自篡国以来，对农民这个群体犯下的罪恶，简直令人发指，这个邪恶政权的发展史，就是对农民的盘剥史。
+玫瑰园
 
-政权尚未开始的时候，他们窝里斗，打内战，撒谎、拉仇恨，让受了共产党蒙骗的农民肩挑手推，上前线为他们送粮食，甚至把自己的孩子送去当兵。
+2:26 P.M. EST
 
-三年困难时期，种地农民的粮食被征收，被活活饿死几千万。多么大的罪恶，种地的人被饿死，多么大的耻辱，然而，这血淋淋的现实，并没有让我们的同胞醒过来。
+美东时间下午2点26分
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27002501/WH_20201124-figure1.jpeg)
+THE PRESIDENT: Well, thank you very much. Please. And I just want to congratulate everybody. The Dow Jones Industrial Average just broke, for the first time in history, 30,000. It’s now — (applause) — that’s good. That’s great for jobs, and it’s good for everything. And this is the ninth time that we set a record during the course of 2020, and it’s the 48th time that we’ve set the record during the Trump administration. And there’s never been anything like that. So I just want to congratulate everybody that worked so hard: the White House, but maybe most importantly, the people of our country. It’s a tremendous achievement.
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27002526/trRm-hwfpcxp0222443.jpg)
+总统：非常感谢你们。请[落座]。我就是想恭喜所有人。道琼斯指数历史上第一次突破3万点大关。现在……那挺好的。那对就业很有利，也对一切都有利。这是我们在 2020 年创造的第九个纪录，也是我们在川普执政期间创造的第 48 项记录。前所未有。所以，我就是想恭喜所有特别努力工作的人：白宫的工作人员们，但是也许更重要的是，我们国家的人民。这是个了不起的成就。
 
-改革开放了，农民进城打工，被贴上农民工的标签，脏活累活都是他们干，而他们什么保障也没有。本来，农民只是一个职业称呼，而现在的“农民工”则真真正正地成了他们的身份，成了他们一辈子也甩不开的“护身符”，农民工成了一个可以被忽视、完全不享有社会福利的群体。
+The First Lady and I are thrilled to welcome you all to the beautiful Rose Garden where the First Lady actually worked very hard on renovating it. It was 61 years — it was in rough shape. Very big job, actually, when you go to the wires underground. People have no idea how complex it is, but you’ve done a fantastic job. Thank you very much. (Applause.)
 
-那些高耸入云的摩天大厦，是他们一砖一瓦垒起来的，而他们这辈子不会有机会住在那样的地方。
+我和第一夫人无比激动的欢迎你们所有人来到美丽的玫瑰园，第一夫人真是在尽心竭力的整修这里。它 61 岁了，之前它看上去就年久失修了。实际的工作量极大，[尤其是]当你去整理那些地下线缆的时候。没人知道那有多复杂，但是你干得超级棒，非常感谢你。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27002434/WH_20201124-figure4.jpeg)
+And we’re also very happy to have with us my daughter, Ivanka, and Jared and Theodore, Arabella, and Joseph. Thank you very much for coming. (Applause.) They like the turkey. Thank you very much.
 
-有人说：中共国取消了农业税！醒醒吧同胞们，别再被他们骗了，那是因为他们收上来的税款无法养活庞大的收税群体，所以才取消了这个不挣钱的买卖！不是出于为农民减负的“初心”！
+我们也非常高兴和我们在一起的有我的女儿伊万卡，还有杰里德和西奥多、阿拉贝拉，还有约瑟夫。非常感谢你们来。他们喜欢这只火鸡。非常感谢你们。
 
-今年更奇葩的事情发生了，中共这个假丑恶政权，已经无耻地宣布全民奔小康了，还有五亿人在温饱线上挣扎，他们却向世界宣布脱贫了。如此一来，许多贫困老年人最后的一点低保也会被取消，他们的生活将陷入更大的绝望和艰辛。
+On behalf of the entire Trump family, I want to wish every American a healthy and very happy Thanksgiving. We’re here today to continue a beloved annual tradition: the official presidential pardon of a very, very fortunate turkey, because Thanksgiving is a special day for turkeys — I guess, probably for the most part, not a very good one when you think about it. The first turkey to dodge the White House dinner table received unofficial clemency when President Abraham Lincoln’s son, Tad, begged his father to spare his new friend.
 
-共产党的本质就是邪恶的，他们没有能力解决问题，他们的存在才是最大的问题，农民作为一种职业，与其它职业一样，理所当然地应该享受一份退休待遇，然而他们没有。他们老了只能困厄贫寒、只能勉强维持生存，生命轻如蝼蚁。
+我代表川普全家，要祝愿每个美国人过一个幸福安康的感恩节。今天我们在这里来延续一个一年一度且深受喜爱的传统：总统官方赦免一只非常非常幸运的火鸡，因为感恩节对火鸡来说是一个特殊的日子——我猜可能很大程度上，想想就知道不是个很好的日子。第一只避开白宫晚餐桌的火鸡得到了非官方的宽恕，当亚伯拉罕·林肯总统的儿子塔德，乞求他爸放过他的新朋友的时候。
 
-同胞们，站出来灭共吧，在共产党的邪恶统治下，正义死了、良知死了、公平不存在了、道德沦丧了、人伦毁灭了，国家已经变成了弱肉强食的斗兽场，无论你身处墙外墙内，无论你是穷人还是富人，中共不灭，他们的官僚机构越来越庞大，只能靠不断剥削老百姓续命，他们不灭亡，富人会变成穷人，穷人会变得更穷，生活将更加艰难。只有加入新中国联邦，一起灭共，才能重建我们历史悠久的美丽家园。
+For the past 73 years, the National Turkey Federation has presented the National Thanksgiving Turkey to the President. Starting under President George H.W. Bush, these birds have received a formal pardon every single year.
 
-更多精彩内容请关注：
+过去 73 年间，是全国火鸡联合会向总统提供国家感恩节火鸡。从乔治·H·W·布什开始，这些鸟[指火鸡]每一年都会正式被赦免。
 
-- [为子孙爱七哥农场官方推特](https://twitter.com/wzsaqg)
-- [为子孙爱七哥农场官方GTV号](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
-- [欢迎加入农场discord官方群](https://discord.gg/2vXAV6G)
+Today, it is my honor to present to you this year’s lucky bird, Corn, and, just in case we needed him, Cob. Corn and Cob. That’s not too hard to remember, is it?
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20123101/%E5%86%9C%E5%9C%BA%E5%B9%BF%E5%91%8Av7-3.jpg)
-3+
+今天，我荣幸的介绍给你今年的幸运鸟，“玉米粒”，还有，万一我们还需要他，“玉米棒子”。玉米粒和玉米棒子。不太难记住吧，难吗？
+
+These two magnificent gobblers were selected from the official presidential flock of 30 turkeys, some real beauties. They were raised by the Chairman of the National Turkey Federation himself, Ron Kardel. Ron — thank you very much, Ron. Please, stand up. Great job. (Applause.) Ron, thank you for being here, and your family — beautiful family. Thank you very much for being here. Appreciate it.
+
+这两只华丽的雄火鸡从总统官方的 30 只火鸡群里被拣选出来，有些真是漂亮。它们是全国火鸡联合会主席罗恩·卡德尔养的。罗恩——非常感谢你，罗恩。请起立。干的很棒。（掌声）罗恩，谢谢你在这里，还有你的家人——美好的一家。非常感谢你们在这里。感激[你所做的]。
+
+Like so many presidential flocks, this one started in the great state of Iowa in what can only been described as an act of blatant pandering. And, by the way, I love the state of Iowa.
+
+就像诸多的总统官方[火鸡]群，这一只生于伟大的爱荷华州 还有，顺便说一句，我爱爱荷华州。
+
+These two turkeys sought to win the support of Iowans across the state by naming themselves Corn and Cob. After today’s ceremony, these birds will retire under the care of skilled veterinarians at Iowa State University, a tremendous university in Ames.
+
+这两只火鸡通过将自己命名为“玉米”和“玉米棒”来寻求赢得全爱荷华州的人的支持。 今天的仪式结束后，这些鸟退休后将到爱荷华州立大学（Ames的一所优秀大学），被那里的熟练兽医的照顾。
+
+Once there, people of all ages will be able to visit them and learn about poultry science, veterinary medicine, and the noble American tradition of farming. We love our farmers, I’ll tell you. (Applause.) And we hope and we know that’s going to happen — that Corn and Cob have a very long, happy, and memorable life.
+
+到达那里后，各个年龄段的人都将能够拜访他们，并了解家禽科学、兽医学以及美国高尚的耕作传统。 我会告诉你们，我们爱我们的农民。 我们希望并且我们知道这将会发生的，就是玉米和玉米棒子会过上长寿、幸福和令人难忘的一生。
+
+This year, our nation commemorates the 400th anniversary of the pilgrims landing on Plymouth Rock. After arriving in the New World, the brave men and women of the Mayflower endured a bitter and dangerous winter — very, very dangerous winter. Many were sick, most were starving, and all were praying for a miracle. Thankfully, God heard their prayers.
+
+今年，我们国家纪念朝圣者登陆普利茅斯岩（Plymouth Rock）400周年。 到达新大陆后，“五月花”号的勇敢的男女经历了一个痛苦而危险的冬天，一个非常非常危险的冬天。 许多人病了，大多数人挨饿，所有人都在祈祷奇迹。 谢天谢地，神听到了他们的祈祷。
+
+From our earliest days, America has always been a story of perseverance and triumph, determination and strength, loyalty and faith. This week, in a time that is very unusual but in so many ways, very, very good — what we’ve endured and been able to endure, with the vaccines now coming out one after another. It’s an incredible thing that happened. One of the greatest medical achievements that this planet has ever seen.
+
+从我们最早的日子开始，美国就一直是一个坚忍和得胜、果断和力量、忠诚和信念的故事。 本周，这是一个非常不寻常的时期，但在很多方面，非常非常好，[包括]我们已经承受的和能够忍受的一切，现在又陆续推出了疫苗。 这是一件不可思议的事情。 这个星球有史以来最伟大的医学成就之一。
+
+But it’s time to remember that we live in a great, great country — the greatest of them all. And there’s nothing even close, as far as I’m concerned.
+
+但是是时候要记住我们生活在一个特别伟大的国家了，是所有国家中最伟大的。没有哪个国家的实力能接近我们的，据我所知。
+
+Every American can be united in thanksgiving to God for the incredible gifts he has bestowed upon us: the blessings of family, community, and this exceptional, beautiful, and great country. It’s greater than ever before.
+
+每个美国人能和神在感恩节联合，因为它赐予我们超乎想象的礼物：对家庭、社区和这个出类拔萃、美丽又伟大的国家的庇佑。它前所未有的伟大。
+
+During this Thanksgiving, we extend our eternal gratitude to the doctors, nurses, healthcare workers, and scientists who have waged the battle against the China virus, and we give thanks for the vaccines and therapies that will soon end the pandemic. It’s just — just such a tremendous feeling to know that they’re coming, and they’ll be coming probably starting next week, or shortly thereafter.
+
+在这个感恩节，我们发自内心地感激那些医生、护士、医护工作者，还有科学家。他们向中[共]国病毒宣战，并且我们对即将结束这个大流行病的疫苗和疗法表示感激。它们就要问世了，那真是一种激动万分的感觉，下周开始很可能他们就要被推出了，或许还要等上一小会儿。
+
+We send our love to every member of the armed forces and the law enforcement heroes risking their lives to keep America safe, to keep America great, and, as I say, “America first.” Shouldn’t go away from that: America first. (Applause.)
+
+我们向所有冒着生命危险来捍卫美国安全，维护美国伟大，并如我所说的“美国至上”的武装部队和执法英雄们，献上我们的爱。 不可以抛开“美国第一”。
+
+We give thanks to the priceless freedoms that we’ve inherited, and we ask God to watch over and protect our nation and its people during this incredible holiday and in all of the years to come. We ask that of God.
+
+我们感谢我们所继承的无价自由，并请求神在这个令人难以置信的假期以及今后永远，守护并保护我们的国家及其人民。 我们这样请求神。
+
+Once again, Melania and I wish to thank everybody for your incredible courtesies and also wish you a Happy Thanksgiving.
+
+再次，梅兰妮和我希望感谢大家对我们的礼待，也祝您们感恩节快乐。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27002453/WH_20201124-figure2.jpeg)
+And now it’s time for the moment of our guests of honor. They’ve been waiting, and, in this case, he’s been waiting for this. And bring them out. Look at that beautiful, beautiful bird. Oh, so lucky. That is a lucky bird.
+
+现在是时候让我们的荣誉嘉宾[登场]了。 他们一直在等待，在这种情况下，他一直在等待。 把他们带出来吧。 看那只美丽的鸟。 哦，真幸运。 那是一只幸运的鸟。
+
+Corn, I hereby grant you a full pardon. Thank you, Corn. What a bird. (Applause.) Thank you.
+
+玉米粒，我特此准予完全赦免你。谢谢你玉米粒。这鸟真好。谢谢你们。
+
+MR. KARDEL: (Inaudible.)
+
+卡德尔先生：（听不清楚）
+
+THE PRESIDENT: Iowa farm. I knew I liked you. (Laughter.) That’s great. Beautiful.
+
+总统：爱荷华农场。我知道我喜欢你。那真好。漂亮。
+
+Happy Thanksgiving to everybody. Thank you very much. (Applause.) Thank you, everybody. Have a good one.
+
+祝每个人感恩节快乐。非常感谢你们。谢谢你们每个人。好运。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27002444/WH_20201124-figure3.jpeg)图片来源：[https://www.whitehouse.gov/news/](https://www.whitehouse.gov/news/)
+翻译：【gavinguo(文钦)】【Isaiah4031】 编辑：【Isaiah4031】
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22111053/VOG-Rose-Garden-Team.png)
+0

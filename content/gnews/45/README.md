@@ -1,55 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港风云】9: 反送中运动
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/593671/)
+## 白宫新闻发言人关于对迈克尔·t·弗林将军的赦免的声明
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/594760/)
 
-作者：香草山文艺组 Tiffany 的早餐 校对/发稿：飞虹
+新闻简述：川普总统签署了对弗林将军的全权赦免令。该命令意义深远，它不仅将正义还给一位无辜的美国英雄—弗林将军，同时也提醒了全体美国人民要对拥有巨大权力的政府和情报部门的高官们进行严密监督，以确保他们维护美国的民主法治而不是追求党派政治见解（站在各自党派立场打击对手）。这项在感恩节之际签署的赦免令，最完美地表达了感恩节的象征意义。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26204515/WH_20201125_Flynn_coverphoto.png)[图片来源](https://www.reutersconnect.com/discover)
+[阅读白宫英文原文](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-regarding-executive-grant-clemency-general-michael-t-flynn/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/25225844/WhatsApp-Image-2020-10-24-at-08.09.25-2.jpeg)
+**Statement from the Press Secretary Regarding Executive Grant of Clemency for General Michael T. Flynn**
 
+**白宫新闻发言人关于对迈克尔·t·弗林将军的赦免的声明**
 
+Law & Justice
 
-摘要：台湾陈同佳杀人案引发了引渡问题，港共借机修订《逃犯条例》草案，以便在香港公开抓人并送交大陆。香港人经过诸多失败政改，眼见香港司法制度被持续侵蚀。过去的民意积累为香港史上最大规模、最残酷的抗议活动。
+法律与正义
 
-2018年2月13日，来自香港的情侣陈同佳和潘晓颖入住台北大同区紫园饭店，共度情人节。17日，陈同佳杀害女友潘晓颖并抛尸，随即返港。此案的发生引起了港台两边的司法合作问题。台湾士林地检署多次向香港律政司提出司法互助，香港方面以港台之间并无移交疑犯机制为由，没有送陈同佳至台湾归案。
+Issued on: November 25, 2020
 
-借助此案的社会影响，香港保安局于2019年2月提出修订《逃犯条例》草案。其要点在于允许香港政府向大陆、澳门、台湾等管辖区移交嫌疑人。香港建制派和北京明面为了送陈同佳至台湾接受调查，实为打开从香港遣送疑犯至大陆的便捷通道。修订后的条例将赋予大陆权力，可向香港行政长官提出引渡，经香港法庭聆讯后，将可能判监七年以上的重罪疑犯引渡到大陆。
+发布时间：2020 年11月25日
 
-修订《逃犯条例》草案引发了香港各界的强烈反弹。若修例通过，1997主权移交后的一国两制界限将被打破，香港不再成为独立的司法管辖区。按照CCP几十年一贯的做法，他们必然将利用这次修订，合法地要求香港政府任意拘捕引渡在香港的人士。
+Today, President Donald J. Trump signed an Executive Grant of Clemency granting a Full Pardon to General Michael T. Flynn.  The President has pardoned General Flynn because he should never have been prosecuted.  An independent review of General Flynn’s case by the Department of Justice—conducted by respected career professionals—supports this conclusion.  In fact, the Department of Justice has firmly concluded that the charges against General Flynn should be dropped.  This Full Pardon achieves that objective, finally bringing to an end the relentless, partisan pursuit of an innocent man.
 
-铜锣湾书店事件已经让香港人看出了CCP险恶的动机。从另一边CCP的角度而言，为了抓走铜锣湾书店的几个人，需要动用情报系统在香港秘密绑架、诱捕、挟持到大陆、处理后事，期间还要避免和香港执法部门的冲突、躲避媒体的眼线，实在是太麻烦。CCP意在通过修例，直接通过香港警方，正大光明理直气壮地抓任何想抓的人。
+今天，唐纳德·J·川普总统签署了《行政赦免令》，全权赦免迈克尔·T·弗林将军， 因为将军根本就不应该受到起诉。 司法部对弗林将军案的独立审查（由享有信誉的专业人员进行的此项审查）支持了这一结论。 事实上，司法部已经坚定地得出结论，对弗林将军的指控应该被撤销。 全权赦免充分实现了这一目标，最终结束了党派对一个无辜者的不懈追打。
 
-1997年香港主权移交以来，先是2003年《基本法》第23条的国安条款([香港风云 2：《基本法》第23条和SARS](https://gnews.org/zh-hans/590838/))，然后是2015年铜锣湾书店事件秘密抓人(香港风云 6：铜锣湾书店)，再有2017年一地两检跨境执法(香港风云 8：黑云压城)，肖建华直接被从酒店带回大陆(香港风云 7：望北楼)，以及2019年修订《逃犯条例》即修例风波。自雨伞运动以来沉默的民意，对于香港人眼里以非民主方式上台的林郑月娥当局的不满，对于身处香港却可以被随意抓回大陆的威胁，让香港人重新团结起来，波澜壮阔的反送中运动开始。
+General Flynn should not require a pardon.  He is an innocent man.  Even the FBI agents who interviewed General Flynn did not think he was lying.  Multiple investigations have produced evidence establishing that General Flynn was the victim of partisan government officials engaged in a coordinated attempt to subvert the election of 2016.  These individuals sought to prevent Donald Trump from being elected to the Presidency, to block him from assuming that office upon his election, to remove him from office after his inauguration, and to undermine his Administration at every turn.
 
-雨伞运动后，不少组织者没有放弃，于2016年4月10日成立了团体香港众志(Demosisto)。2019年3月15日开始，香港众志开始在政府总部发起静坐活动，主张撤回修例。其他民间团体陆续加入。因反送中燃起的民意，又带出了过去多年失败政改问题，被香港市民总结为五大诉求，即撤回修订逃犯条例草案、撤回暴动定性、释放被捕者、成立独立调查委员会调查警方暴力以及实现双普选。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26132139/69182958_10161970448600265_1401833890410135552_o2028129_jAkHJ_KfpYz_1200x0.png)8月18日游行 图片来源：立场新闻
-2019年上半年的反送中运动，延续着雨伞运动的模式。香港市民上街和平游行，表述政治诉求。几乎每周都会有游行示威活动，而警民冲突越来越严重。截至2020年5月29日，警方因反送中抗议活动一共逮捕了8981人，年龄跨度从11岁到84岁，其中1749人因暴动、非法集结和私藏攻击性武器等罪名被指控，约100人受到裁决和定罪，至少13人被判7天至4年的监禁。
+弗林将军不需要赦免，他本来就是一个无辜的人。就连采访过弗林将军的联邦调查局特工也不认为他在撒谎。多项调查显示，弗林将军是党派政府官员蓄意破坏 2016 年大选的受害者。这些人试图阻止唐纳德·川普当选总统，阻止他当选后就职，甚至在他的就职宣誓后把他赶下台，并在每一个层面削弱他的政府影响力。
 
-然而，善良的香港人没有预计到，下半年开始，雨伞运动“一个蛋也不能碎”的理想被打碎了。从第一位抗争人士献出生命以后，共产党的魔性便一发不可收拾，在现代文明社会，对香港开始了史无前例的一系列暴行，并最终把火烧到全世界特别是美国，点燃了自焚的火。
+The prosecution of General Flynn is yet another reminder of something that has long been clear:  After the 2016 election, individuals within the outgoing administration refused to accept the choice the American people had made at the ballot box and worked to undermine the peaceful transition of power.  These efforts were enabled by a complicit media that willingly published falsehoods and hid inconvenient facts from public view, including with respect to General Flynn.  They amounted to a brazen assault on our democracy and a direct attack on our fundamental political values.
 
-2019年6月9日周日，103万香港市民上街示威游行，这是香港除六四事件外最大规模的示威游行。2019年6月15日下午，35岁的男子梁凌杰在金钟太古广场外墙施工平台悬挂抗议标语并静坐。五小时后的晚上，他突然爬出棚架外坠楼身亡。梁凌杰成为第一位为了香港民主事业公开牺牲的烈士。在接下来的周末，6月16日周日，200万香港市民再次示威游行，占全香港人口的三成。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26132546/June16protestTreefong15-scaled.jpg)
-之后，香港为民抗争的自杀殉港事件越来越多、越来越频繁，越来越可疑。香港的非自然死亡事件开始激增，从疑似的谋杀很快变为警方(真警察和披上警服的大陆解放军)公开的、大规模的拘捕、刑讯逼供、虐待、性骚扰、猥亵、强奸、轮奸、谋杀、抛尸等血腥的罪行。香港的抗争演化为人类现代文明中难以想象的屠城。
+对弗林将军的起诉再次提醒人们一个长期以来就已经很清楚的事实：2016 年大选之后，即将离任的政府内部人士拒绝接受由美国人民通过投票做出的选择，并试图破坏权力的和平过渡。他们让一个串通一气的媒体，自愿公开发表虚假信息，在公众视野中隐藏不利事实，包括对弗林将军的虚假报道。他们对我们的民主制度进行了无耻的攻击，对我们基本政治价值观进行了直接攻击。
 
-(待续)
+While today’s action sets right an injustice against an innocent man and an American hero, it should also serve as a reminder to all of us that we must remain vigilant over those in whom we place our trust and confidence.  The people who sit atop our intelligence and law enforcement agencies have tremendous power to affect the lives of their fellow citizens.  The American people must always take care to scrutinize their actions, to hold them accountable, and to ensure that they use their immense power to uphold the rule of law rather than to harass, persecute, and jail their political opponents in pursuit of partisan political agendas.
 
-相关链接：[【香港风云】 0](https://gnews.org/zh-hans/590679/) 【[香港风云1](https://gnews.org/zh-hans/590718/)】【[香港风云2](https://gnews.org/zh-hans/590838/)】【[香港风云3](https://gnews.org/zh-hans/590953/)】【[香港风云4](https://gnews.org/zh-hans/591795/)】【[香港风云5](https://gnews.org/zh-hans/591818/)】[【香港风云】6](https://gnews.org/zh-hans/592032/) [【香港风云】7](https://gnews.org/zh-hans/593571/) [【香港风云】8](https://gnews.org/zh-hans/593631/)
+虽然今天的行动纠正了对一位无辜的人和一位美国英雄的不公正待遇，但它也应该提醒我们所有人，我们必须对那些我们所信任和有信心的人保持警惕。我们情报机构和执法机构的高层人员拥有巨大的权力来影响公民们的生活，美国人民必须自始自终地谨慎审查他们的行动，追究他们的责任，并确保他们运用自己的巨大权力来维护法治，而不是为了追求党派政治见解而骚扰、迫害和监禁他们的政治对手。
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+Happy Thanksgiving to General Flynn and his family, and thank you all for your great service to our Nation!
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+祝弗林将军和他的家人感恩节快乐，感谢你们所有人对我们国家的伟大贡献!
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26170935/image0-19.png)
-《世纪大案》《盘古相聚》作者Tiffany的早餐再度重磅出手，爆料革命四部曲感恩节隆重推出第一部《香港风云》历史，知未来。香港的辉煌、香港的苦难、香港的抗争，与爆料革命息息相关.
-
-感恩节 奉上今天最后一集，下一部《生化危机》近期推出 ，届时与其他三部 同时更新，敬请期待，再次祝福战友们感恩节快乐！
-
-审核：悟空
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/24223314/logo-3-1.jpg)
-
-
-
+翻译【奔腾的长江】校对【Cyndi】编辑【Isaiah4031】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22111053/VOG-Rose-Garden-Team.png)
 0
