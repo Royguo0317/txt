@@ -1,47 +1,95 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## War Room 539 总结
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/594106/)
+## “多猫腻偷票”系统律师临阵脱逃
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/594127/)
 
-- 编辑：Ranting
-- 作者：Jenny Ball
+*新闻来源：zerohedge《零对冲》；作者：黛布拉·海涅（Debra Heine）；发布时间：2020年11月20日*
+
+*翻译/简评：随波逐流；校对：1818；审核：海阔天空；Page：拱卒*
+
+[!\[\]()!\[\](https://spark.adobe.com/page/WZpxGknE7yM2d/images/e922d503-0652-463c-98ba-2eca20110938.jpg?asset_id=b62bab4b-6b75-4126-897f-6614ba6ef8a7&amp;img_etag=%22dd55e71fa9531664af5a2d2632896101%22&amp;size=1024)](https://spark.adobe.com/page/WZpxGknE7yM2d/images/e922d503-0652-463c-98ba-2eca20110938.jpg?asset_id=b62bab4b-6b75-4126-897f-6614ba6ef8a7&amp;img_etag=%22dd55e71fa9531664af5a2d2632896101%22&amp;size=1024)
+
+**简评：**
+
+多米尼投票系统（Dominion Voting System）律师突然做出决定，在最后时刻退出宾夕法尼亚州事实调查听证会。针对此事，宾州的共和党议员表达了他们对多米尼产品参与竞选活动的合法性以及公正性的诸多疑问。同时也要求他们给130万宾夕法尼亚选民一个公开的解释。
+
+如果一切都是光明正大的，为什么他们不敢参加听证会呢？这一行为更增加了川普总统竞选团队提出的选票造假的指控的可信度。相信这其中种种肮脏交易最终一定会大白于天下，而造假者也一定会得到应有的法律制裁。
+
+**原文翻译：**
+
+# Dominion投票系统律师退出宾夕法尼亚事实调查听证会
+
+[!\[\]()!\[\](https://spark.adobe.com/page/WZpxGknE7yM2d/images/5f922864-3d73-483e-be0c-ca8d105eb4d8.png?asset_id=c224a295-7a18-4080-95b5-8c9aecd34c80&amp;img_etag=%22bcbb6176f04c9f56d708ef111f08cccf%22&amp;size=1024)](https://spark.adobe.com/page/WZpxGknE7yM2d/images/5f922864-3d73-483e-be0c-ca8d105eb4d8.png?asset_id=c224a295-7a18-4080-95b5-8c9aecd34c80&amp;img_etag=%22bcbb6176f04c9f56d708ef111f08cccf%22&amp;size=1024)
+
+星期四晚上多米尼克投票系统突然退出了出席原定于周五早上与宾夕法尼亚州众议院州政府委员会进行的事实调查听证会。
+
+在星期五早上的新闻发布会上，州政府委员会主席塞思·格罗夫（Seth Grove）说，130万使用Dominion投票机的宾夕法尼亚人已经“被坑害并惨遭事实打脸”。
+
+根据共和党众议院核心小组消息：“宾夕法尼亚州立法者已安排与投票机制造商举行听证会，以帮助确定和纠正选举过程中的任何违规行为。”
+
+众议员格罗夫（共和党-约克R-York ）说：“至关重要的是，选民要相信他们用来投票的机器。 在汤姆 ·沃尔夫州长单方面取消联邦政府的每台投票机的资格后，我们需要知道这些新机是否达到了预期，它们是否可靠，是否不受干扰。”
+
+格罗夫说，Dominion最初同意参加听证会，之后“突然取消”。
+
+他在新闻发布会上说：“给我留下了深刻印象的是多米尼投票系统似乎很愿意处理指控，而且它本来应该让130万宾夕法尼亚人放心地使用了他们的机器—包括我自己在内认为：“多米尼（Dominion）愿意公开支持宾夕法尼亚（PA）州纳税人投资了数百万美元购买的他们的产品。”
+
+“不幸的是，昨天晚上，多米尼投票系统（Dominion Voting Systems）做出了律师决定，并放弃了他们对宾夕法尼亚州人民以公开方式提出他们意见的承诺。”
+
+格鲁夫抨击该公司“退缩到黑暗中”，而不是“诚实正直”地出席听证会。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/WZpxGknE7yM2d/images/084db9e2-820c-42d1-88d5-954e6e8054e6.jpg?asset_id=2f11718a-8477-4e5a-ae34-fad7c234fec9&amp;img_etag=%2267544e1a7df972160cb1833eee98a747%22&amp;size=2560)](https://spark.adobe.com/page/WZpxGknE7yM2d/images/084db9e2-820c-42d1-88d5-954e6e8054e6.jpg?asset_id=2f11718a-8477-4e5a-ae34-fad7c234fec9&amp;img_etag=%2267544e1a7df972160cb1833eee98a747%22&amp;size=1024)
+
+委员会主席说，他想知道为什么一家没有什么可隐瞒的公司会退出听证会。
+
+格罗夫（Grove）询问：“为什么公共物品的提供者会害怕讨论为公共利益出售给公众的产品？ 如果多米尼（Dominion）的产品是成功的并按照他们预期那样运行，那么多米尼（Dominion）为什么不利用这个机会公开验证其成功？” “还是很难说，我们的投票机完全按照承诺的方式工作，而且100％准确”？
+
+他问道，“经过数周的指控，为什么多米尼投票系统（Dominion Voting Systems）没有向公众发布任何有关其投票机成功的分析，从而停止控告者的进一步指控？ 如果他们没有什么可隐瞒的，他们为什么要躲着我们？”
+
+委员会主席宣布声明说：“今天，我很遗憾地向宾夕法尼亚州的纳税人和相信多米尼投票系统（Dominion Voting Systems）的130万名选民汇报，多米尼投票系统（Dominion Voting Systems）坑害了你们并且这一事实打了你们的脸。”
+
+格罗夫表示，多米尼（Dominion）的行为为其指控人的指控提供了可信度。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/WZpxGknE7yM2d/images/6bb3079b-8b6a-49f1-a2a6-de27d9c3ba8f.jpg?asset_id=cde38986-7920-4416-9f6d-acaa7b053c84&amp;img_etag=%220a4f4900b37c4a670daef999ddf29b50%22&amp;size=2661)](https://spark.adobe.com/page/WZpxGknE7yM2d/images/6bb3079b-8b6a-49f1-a2a6-de27d9c3ba8f.jpg?asset_id=cde38986-7920-4416-9f6d-acaa7b053c84&amp;img_etag=%220a4f4900b37c4a670daef999ddf29b50%22&amp;size=1024)
+
+宾夕法尼亚众议院州政府主席塞思·格罗夫（Seth Grove）详细介绍了2020年大选中130万个PA选民使用Dominion投票系统的情况。 宾夕法尼亚州2020年大选的总票数中有19％出自Dominion系统。 多米尼突然取消了今天的听证会。
 
 
-**今天感恩节专辑，回顾美国真实的历史，而不是左派所谓1619****年计划**！
 
-汤姆·科顿的感恩节演讲：
-
-可悲的是，今年很少有游行或节日庆祝活动来纪念朝圣者，也许是由于激进左派的修正主义骗子最近声称1619年是美国的真正立国之本。没有什么比事实更真实的了，我们的创始人朝圣者和他们撰写的宣言构成了美国的真正基础。有些人（是太多的人）可能已经失去了纪念朝圣者的文明人的自信心。但我仍然拥有我们前辈的骄傲和信心。因此，今天在这里我本着五月花号宣言精神发言，我要重申我们基石的契约宣言。
-
-**美国历史学家拉里·史威卡特**是《爱国者的美国历史》的合著者，这本书是美国人都应该阅读的书，也是一本读给孩子上床睡觉的书。
-
-1619项目是《纽约时报》在2019年开发的一个正在进行的项目，“旨在通过将奴隶制的后果和黑人美国人的贡献置于美国民族叙事的正中心来重塑美国的历史”。该项目是在1619年第一个被奴役的非洲人抵达弗吉尼亚殖民地400周年之际命名的。注：乡亲们啊，历史悠久的民主党是为了保护和维护奴隶制而创建的！
-
-科顿参议院是对的，我们真正的历史可追溯到1620年美国的成立和朝圣者的到来。美国例外主义的四个支柱，使得美国始终与世界上所有的国家不同。
-
-- 在开始建立一个国家时，没有哪个国家有这四个因素。是一个基督教徒新教的宗教，正如英国国教徒和天主教徒一样，从一开始，我们的宗教传统就具有革命性。
-- 第二支柱是基本法，即上帝将法律置于人民和人民的心中。选举产生统治者，他们遵循共同的信约行事。
-- 在普利茅斯登陆立国与1619 年的奴隶，奴隶制毫不相关。这是要把自己的生命掌握在自己手中，因为建立经济殖民地本身就是一种极大的勇气。他们经受了可怕的北大西洋穿越，在离开五月花号登陆之前，他们起草了五月花契约，写明所有人都是平等的，无论是教会成员，还是陌生人（非宗教信仰者）和清教徒都一样，人们不必是教会信徒也能成为社区的一部分，他们享有平等的权利。这是我们建立全新政府形式的关键所在。
-- 因此，他们要做的第一件事就是在《五月花契约》中发表所有信仰上帝和服从国王的声明。 他们说州长将由人民选举产生，这与当时的首都詹姆斯敦州完全不同，那里的长官是由英国国王任命的。
-- 他们开始的是社会主义制度，没有自由市场经济，没有私有财产权。 这种制度不久就失败了，并导致了与印第安人的合同关系，他们把共同的土地划分开来分给每一个户主一份，所以从那时起，每个人都拥有带有书面头衔的私人财产契约。
-
-
-毫无疑问，2020年大选发生了大规模欺诈。 最让我失望和愤怒的是，各个阶层各个领域有很多的人根本不去抗争，想着下一次选举解决它。但是，如果民主党这次欺诈得逞，我们将不会有下一次公平选举了。在过去的一百五十年中，我们从未经历目前的这种危机状况，因为一旦拜登这些人上台，川普的大多数功绩就变成了拜登行政命令给废除了。实际上，这是自共和国成立以来最重要的选举，和之前的3次关键选举一样，对美国具有同等重要意义：
-
-- 1796年的选举绝对至关重要，因为这是人类历史上第一次，一位非常受欢迎的，生下来就是要终生当国王的人，自愿下台。
-- 第二个最重要的选举是1800年，因为失败的联邦主义者约翰·亚当斯，自愿和平地下台，将权力移交给杰斐逊主义者，他说是这些可怕的人，但是制度可以约束他们。
-- 1860年另一个非常开创性的选举，当选的共和党，是我们历史上第一次反对奴隶制的党。
-
-
-盖特·奥克斯基金会的乍得·罗比绍，作为退伍军人的基金会，为其他退伍军人服务，我们是基于信仰的非临床服务，处理的诸如退伍军人患创伤后应激障碍而自杀等，每天都有20人自杀。 自杀率很高主要是由于奥巴马政府在2009年削减了基于信仰的军人计划，这个创伤需要严格的临床计划来解决。
-
-我自己也仍在康复中。我八次被部署到阿富汗，回家后被诊断出患有创伤后应激障碍，其症状虚弱，恐慌，攻击，愤怒，沮丧和挫败感，我在与自己的人生进行着一场真正的战斗。
-
-**感恩节我们要做的其中一件事是，我们应该感恩我们在这个国家拥有自由。我们还应该停下来想想并牢记：自由是有代价的，这些自由是以牺牲在战场的生命换来的，是遭受战争在肉体上和精神创伤的人们为代价的**。
+> Rep. Dawn Keefer details questions [#PAHouse](https://twitter.com/hashtag/PAHouse?src=hash&amp;ref_src=twsrc%5Etfw) is left with after Dominion Voting Systems abruptly canceled their participation in this morning's hearing. [pic.twitter.com/dWRPpDnPxq](https://t.co/dWRPpDnPxq)
+> — PA House Republicans (@PAHouseGOP) [November 20, 2020](https://twitter.com/PAHouseGOP/status/1329815156059205635?ref_src=twsrc%5Etfw)
 
 
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+共和党众议员道恩·基弗（Dawn Keefer）指出，有14个县使用了多米尼投票系统（Dominion Voting Systems）软件，因此他们需要出来面对宾夕法尼亚州选民并回答一些问题。
+
+基弗说：“我们相信在投票站和县里的工作人员，但是我们不知道第三方公司的角色。 而当他们取消参加我们的听证会时，我们就纳闷为什么。”
+
+基弗（Keefer）补充说：“透明度是我们选举安全的关键。 多米尼投票软件（Dominion Voting Software）要求我们仅给予他们盲目的信任。 对于Dominion在最后一刻钟取消今天的听证会，我们感到非常失望。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/WZpxGknE7yM2d/images/cb0a49f7-6327-4d31-8e00-b69ba4dc6162.jpg?asset_id=4d37d184-eb43-42f7-857e-b720a20769ab&amp;img_etag=%22d941b6e12ecf27f0b0777fa016b669f1%22&amp;size=2560)](https://spark.adobe.com/page/WZpxGknE7yM2d/images/cb0a49f7-6327-4d31-8e00-b69ba4dc6162.jpg?asset_id=4d37d184-eb43-42f7-857e-b720a20769ab&amp;img_etag=%22d941b6e12ecf27f0b0777fa016b669f1%22&amp;size=1024)
+
+议院共和党众议员道恩·基弗（Dawn Keefer）关于Dominion投票系统突然取消了他们在今天上午的听证会后的详细提问
+
+
+
+> Rep. Dawn Keefer details questions [#PAHouse](https://twitter.com/hashtag/PAHouse?src=hash&amp;ref_src=twsrc%5Etfw) is left with after Dominion Voting Systems abruptly canceled their participation in this morning's hearing. [pic.twitter.com/dWRPpDnPxq](https://t.co/dWRPpDnPxq)
+> — PA House Republicans (@PAHouseGOP) [November 20, 2020](https://twitter.com/PAHouseGOP/status/1329815156059205635?ref_src=twsrc%5Etfw)
+
+
+
+[https://twitter.com/PAHouseGOP/status/1329815156059205635?s=20](https://twitter.com/PAHouseGOP/status/1329815156059205635?s=20)
+
+[原文链接](https://www.zerohedge.com/political/dominion-voting-lawyers-abruptly-backing-out-pennsylvania-fact-finding-hearing)
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/WZpxGknE7yM2d/)】-点击spark adobe版
+
+[!\[\]()!\[\](https://spark.adobe.com/page/WZpxGknE7yM2d/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/WZpxGknE7yM2d/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0
