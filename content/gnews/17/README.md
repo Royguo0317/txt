@@ -1,45 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫新闻发言人关于对迈克尔·t·弗林将军的赦免的声明
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/594760/)
+## 中共在技术上准备好与世界断网了吗？
+` 喜马拉雅美国·康州盘古农场` [轉載自GNews](https://gnews.org/zh-hans/595396/)
 
-新闻简述：川普总统签署了对弗林将军的全权赦免令。该命令意义深远，它不仅将正义还给一位无辜的美国英雄—弗林将军，同时也提醒了全体美国人民要对拥有巨大权力的政府和情报部门的高官们进行严密监督，以确保他们维护美国的民主法治而不是追求党派政治见解（站在各自党派立场打击对手）。这项在感恩节之际签署的赦免令，最完美地表达了感恩节的象征意义。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26204515/WH_20201125_Flynn_coverphoto.png)[图片来源](https://www.reutersconnect.com/discover)
-[阅读白宫英文原文](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-regarding-executive-grant-clemency-general-michael-t-flynn/)
+作者：康州盘古农场-T.S.
 
-**Statement from the Press Secretary Regarding Executive Grant of Clemency for General Michael T. Flynn**
+审核：康州盘古农场-Truemanman
 
-**白宫新闻发言人关于对迈克尔·t·弗林将军的赦免的声明**
+有战友问：”国内上网过了不久之后就需要网证才能上网了，大家对此怎么看？对于翻墙的影响会有多大？会不会彻底封杀掉所有翻墙上网的人？”
 
-Law & Justice
+在这里大概解释一下网证上网与会不会封杀翻墙。再深入探讨一下中共会不会与世界断网。
 
-法律与正义
+**用了网证是不是就不能翻墙了**
 
-Issued on: November 25, 2020
+网证上网跟现在的网吧上网是一样的，如果去过网吧的就知道，所有上网都要身份证，整个网吧就是一个大的局域网。如果认为网吧无法翻墙的，可以去谷歌搜索一下关键词”网吧翻墙”，就知道这种网证对翻墙是否有影响了。
 
-发布时间：2020 年11月25日
+如果很少去网吧的，可以了解一下中国各大学的教育网，基本上也是用学生ID注册登陆才能上网，这种也基本上是一个大的局域网。这种网翻墙速度更快，而且支持IPv6，还不记时，这种翻墙技术早就实现了。
 
-Today, President Donald J. Trump signed an Executive Grant of Clemency granting a Full Pardon to General Michael T. Flynn.  The President has pardoned General Flynn because he should never have been prosecuted.  An independent review of General Flynn’s case by the Department of Justice—conducted by respected career professionals—supports this conclusion.  In fact, the Department of Justice has firmly concluded that the charges against General Flynn should be dropped.  This Full Pardon achieves that objective, finally bringing to an end the relentless, partisan pursuit of an innocent man.
+**是否会封杀所有翻墙上网的人**
 
-今天，唐纳德·J·川普总统签署了《行政赦免令》，全权赦免迈克尔·T·弗林将军， 因为将军根本就不应该受到起诉。 司法部对弗林将军案的独立审查（由享有信誉的专业人员进行的此项审查）支持了这一结论。 事实上，司法部已经坚定地得出结论，对弗林将军的指控应该被撤销。 全权赦免充分实现了这一目标，最终结束了党派对一个无辜者的不懈追打。
+这个有可能，但要保证，中共的高层、科技人员、新闻工作都、码农都不翻墙。其实还有好多中国国内不反共的人需要翻墙，这部分是中共经济政治必须的，如果把这部分翻墙封锁，中国有好多工作会瘫痪。在国内所有翻墙都是违法的，但中共没办法，不得不让他们翻墙，所以只能睁一眼。
 
-General Flynn should not require a pardon.  He is an innocent man.  Even the FBI agents who interviewed General Flynn did not think he was lying.  Multiple investigations have produced evidence establishing that General Flynn was the victim of partisan government officials engaged in a coordinated attempt to subvert the election of 2016.  These individuals sought to prevent Donald Trump from being elected to the Presidency, to block him from assuming that office upon his election, to remove him from office after his inauguration, and to undermine his Administration at every turn.
+我们战友翻墙用的技术跟以上用的技术是一样的。其实应该反过来说，是反共人士开发了翻墙，而这些人用了反共人士的技术。如果把这些都封锁了，只有国际专线可用，这种是中共好监控的，但这东西很贵。如果只能用这东西，好多经济政治工作会受影响99%，所以也没法封锁。
 
-弗林将军不需要赦免，他本来就是一个无辜的人。就连采访过弗林将军的联邦调查局特工也不认为他在撒谎。多项调查显示，弗林将军是党派政府官员蓄意破坏 2016 年大选的受害者。这些人试图阻止唐纳德·川普当选总统，阻止他当选后就职，甚至在他的就职宣誓后把他赶下台，并在每一个层面削弱他的政府影响力。
+有『中共会全面封锁翻墙』感觉的人，其实都是被中共吹牛逼吓怕了。战友们可以想想，中美贸易战开始中共是怎么吹的，不想打、不怕打、不得不打。再想想，现在中共说的是啥，不寻求脱钩、强烈谴责美国退群。现在中共在翻墙这块还没吹呢，战友就怕了。怕认证、怕封锁。其实中共完全不会。
 
-The prosecution of General Flynn is yet another reminder of something that has long been clear:  After the 2016 election, individuals within the outgoing administration refused to accept the choice the American people had made at the ballot box and worked to undermine the peaceful transition of power.  These efforts were enabled by a complicit media that willingly published falsehoods and hid inconvenient facts from public view, including with respect to General Flynn.  They amounted to a brazen assault on our democracy and a direct attack on our fundamental political values.
+**中共会不会断网**
 
-对弗林将军的起诉再次提醒人们一个长期以来就已经很清楚的事实：2016 年大选之后，即将离任的政府内部人士拒绝接受由美国人民通过投票做出的选择，并试图破坏权力的和平过渡。他们让一个串通一气的媒体，自愿公开发表虚假信息，在公众视野中隐藏不利事实，包括对弗林将军的虚假报道。他们对我们的民主制度进行了无耻的攻击，对我们基本政治价值观进行了直接攻击。
+就说一点，所有的网址都是以根服务器为基础的，如：www.google.com。大家看到的网址都不是真的，其实后边还有一个点”.”，这个点指的就是根服务器。地球上所有的浏览器都必须按这个规则来，这是RFC定义好的，全球都必须遵守。而，中共国内用的所有浏览器，没有是中国公司自主开发的，用的最多的360，大家可以网上查一下，内核是chrome的，腾讯浏览器再去查查，内核是chrome的，OPRA浏览器，收购的，现在能不能全面修改内核，真的不一定。
 
-While today’s action sets right an injustice against an innocent man and an American hero, it should also serve as a reminder to all of us that we must remain vigilant over those in whom we place our trust and confidence.  The people who sit atop our intelligence and law enforcement agencies have tremendous power to affect the lives of their fellow citizens.  The American people must always take care to scrutinize their actions, to hold them accountable, and to ensure that they use their immense power to uphold the rule of law rather than to harass, persecute, and jail their political opponents in pursuit of partisan political agendas.
+如果中共想完全封锁互联网，自己就要有能力在技术上把这些修改了，而且要全国统一，还要与世界兼容。中共全国统一应该是可以做到，但在技术上，真的不是看不起中共的技术，最看不起的要数中共的测试，就算技术上提出方案，技术勉强实现，没办法进行内部测试，最终就是让全民测试，就象现在的数字人民币，刚上市就出现假的。
 
-虽然今天的行动纠正了对一位无辜的人和一位美国英雄的不公正待遇，但它也应该提醒我们所有人，我们必须对那些我们所信任和有信心的人保持警惕。我们情报机构和执法机构的高层人员拥有巨大的权力来影响公民们的生活，美国人民必须自始自终地谨慎审查他们的行动，追究他们的责任，并确保他们运用自己的巨大权力来维护法治，而不是为了追求党派政治见解而骚扰、迫害和监禁他们的政治对手。
+**中共会不会完全封锁**
 
-Happy Thanksgiving to General Flynn and his family, and thank you all for your great service to our Nation!
+如果中共完全封锁，中共就会形成一个全国大网吧。以后我们能用的只有”192.168..”和”10…\*”等几个IP段可用了，然后形成几层。域名不可用，IP又只有这点，只能分层。未来能够存在的网络公司必须限制，而且要领证，就象现在的电信行业，但证会多点，到那时，”互联网”在中国还会是必须品吗？最多，只级算是娱乐品。在这种模式下，平时说的A级C级域名解释（记不得名词了。就是同一个域名会根据访问IP的不同解析成不同的服务器IP，或者，相同一级域名，二级域名会解析到不同IP）这种技术也要改，因为IP不够域名凑，而这种技术的发源地也不是中共国，还记得七哥说的汉字模块吗？一个公司发出模块，其它公司都不怎么研究直接就用了，而中国也一样，域名解析技术也是直接用了，没人去研究。现在让它（中共）去研究新标准，还是一样，我最看不起的是中共的测试。
 
-祝弗林将军和他的家人感恩节快乐，感谢你们所有人对我们国家的伟大贡献!
+**中共会不会自己建根  **
 
-翻译【奔腾的长江】校对【Cyndi】编辑【Isaiah4031】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22111053/VOG-Rose-Garden-Team.png)
+再说说，中共会不会自己建根，或者用DNS缓存技术。
+
+首先说DNS缓存肯定不靠谱，因为，会把缓存称爆，因为，技术原型就是定期清理，不存太多。而，自建根，这是中共唯一的选择了。路德节目多次说起，中共也练习过，就是中文域名。其实，中文域名也是中文域名服务器到根去解释成英文域名。所以，中共必须自建根。中共如果自建根，要打破现在南北网络的格局。因为，实在是难以相信中共多建几个根会是个什么结果，以中共的技术水平最好只建一个根。更要排除QQ公司建根，排除电信公司建根的可能性，因为此模式，想想都可怕，会打死多少竞争对手，中共就彻底回到毛时代的计划经济算了。打破南北格局，就要先完成中共内斗，而现在中共这种格局还没听说有融合的信息，就连谣言都没听说。
+
+所以，战友不用怕，以中共现在的技术，特别是测试技术，没有建根的经验，也没听说要打破南北格局。完全断网，只是战友自己吓自己。如果真的断网，以后国内的就不用上网了，因为，可能因为上网而频繁死机。
+
 0
