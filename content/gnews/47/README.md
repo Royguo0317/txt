@@ -1,64 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 港共警察突击搜查大学，寻找学生和平抗议证据
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/594253/)
+## 苹果正游说国会削弱反中共国奴隶劳工法案
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/594290/)
 
-*新闻来源：*Breitbart*《*布莱特巴特*》；作者：*Ben Kew*；发布时间：2020年11月 日*
+*新闻来源：Breitbart《布赖特巴特》；作者：LUCAS NOLAN；发布时间：November 21, 2020 /2020年11月21日*
 
-*翻译/简评：MikeHua；校对：1818；审核：海阔天空；Page：拱卒*
-
-[![](https://spark.adobe.com/page/fswYOiMfsmZgo/images/92f9e609-146c-4772-9857-c5222fc26466.jpg?asset_id=5b5393fa-cbbe-430b-8142-3cb822cba4ab&amp;img_etag=%2293e4f4985a77935a3ce1bc350fefaf7d%22&amp;size=1024)](https://spark.adobe.com/page/fswYOiMfsmZgo/images/92f9e609-146c-4772-9857-c5222fc26466.jpg?asset_id=5b5393fa-cbbe-430b-8142-3cb822cba4ab&amp;img_etag=%2293e4f4985a77935a3ce1bc350fefaf7d%22&amp;size=1024)
+*翻译/简评：Victory；校对/审核：johnwallis；Page：拱卒*
 
 **简评：**
 
-中共在香港又突击搜查大学，这是中共最后的疯狂，末日的狂奔。香港人民在这次灭共的行动当中付出太多了。香港的青年学生是中华儿女的榜样。香港人民向世界展示了中国人民不希望被奴役，我们和共产党不一样的本质，只是因为共产党建立了防火墙，世界看不到真相，但不代表共产党就是真相。
-
-过去一年香港的抗战，全世界袖手旁观，喊了两嗓子没有任何行动，香港如今变成这般模样，是国际社会对中共的纵容导致的，也是西方少数精英希望利用共产党继续奴役中国人民的结果，这种局面不可能再继续下去了！美国民众已经觉醒，美国有川普总统，有正义力量，美国在沼泽里的垃圾一定会被抽到下水道，不会在白宫祸害人间。这次美国和世界新生，我们也将迎来中华民族的新生，香港也会凤凰涅槃、重获自由！
+资本是逐利的、没有道德和信仰、而由资本的背后资本家的推动。奴隶制在美国已经被终结一个半世纪的今天，美国乃至全球的大资本家惊喜地发现，在中共国有海量的类奴隶资源，而且还有巨大的市场。它们于是毫不犹豫地与中共开始合作。而它们整天挂在嘴上的人权，在利益面前完全不值一提。现在很多大科技公司，华尔街，包括大媒体，甚至要跳出来拼命维护中共现代奴隶政权。相信诸位见识了这次美国大选中它们的荒唐无耻的表演。现在是美国和全人类的至暗时刻，请诸位读者各尽所能，为正义彰显，为我们的未来，行动。
 
 **原文翻译：**
 
-# 毕业日和平抗议后，港共警察突击搜查大学
+# 报道： 苹果正游说国会削弱反中共国奴隶劳工法案
 
-[![](https://spark.adobe.com/page/fswYOiMfsmZgo/images/99278263-cce9-4f96-a6f0-bdbf29c08b56.jpg?asset_id=7d8035d1-b895-490a-a5be-9568739ddfee&amp;img_etag=%2299897984b084b2a65aa581445b71fba0%22&amp;size=2560)](https://spark.adobe.com/page/fswYOiMfsmZgo/images/99278263-cce9-4f96-a6f0-bdbf29c08b56.jpg?asset_id=7d8035d1-b895-490a-a5be-9568739ddfee&amp;img_etag=%2299897984b084b2a65aa581445b71fba0%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/GqPvCJbAsFkCD/images/37202988-8cff-46ad-9e5b-9ae80afb54f5.jpg?asset_id=a864746d-3654-48a3-a83a-8f59b1971ec3&amp;img_etag=%22cbba3eb57acf01f25455dca086f22a9b%22&amp;size=1024)](https://spark.adobe.com/page/GqPvCJbAsFkCD/images/37202988-8cff-46ad-9e5b-9ae80afb54f5.jpg?asset_id=a864746d-3654-48a3-a83a-8f59b1971ec3&amp;img_etag=%22cbba3eb57acf01f25455dca086f22a9b%22&amp;size=1024)
 
-周五香港警察突袭香港中文大学（CUHK），收集100多名毕业生参加支持该地区民主的活动证据。
+**据报道，《华盛顿邮报》周五披露，硅谷科技巨头苹果公司的游说者正试图削弱一项旨在阻止中共国奴隶劳工的新法律。**
 
-香港自由新闻（Hong Kong Free Press）报道，毕业生在周四的毕业典礼之后举行了游行，他们穿戴盖伊·福克斯 (Guy Fawkes，V字仇杀队原型)的面具，挥舞写着“香港，唯一出路”和“光复香港，时代革命”的旗帜。
+《华盛顿邮报》援引两名匿名的国会工作人员报道，苹果公司的游说者正在努力淡化《维吾尔族强迫劳动预防法案》的影响，该法案将要求美国公司保证不使用来自以穆斯林为主的新疆地区的奴役或强迫劳工，据估计，中共政府已将多达300万人关入集中营。
 
-[![](https://spark.adobe.com/page/fswYOiMfsmZgo/images/5f18c276-4de1-40d3-8d66-04b7d14928c0.jpg?asset_id=719f18d3-3424-487f-9bed-0d2c688f913a&amp;img_etag=%222ca9ccffbc3c3449eda1808df8f087a5%22&amp;size=2560)](https://spark.adobe.com/page/fswYOiMfsmZgo/images/5f18c276-4de1-40d3-8d66-04b7d14928c0.jpg?asset_id=719f18d3-3424-487f-9bed-0d2c688f913a&amp;img_etag=%222ca9ccffbc3c3449eda1808df8f087a5%22&amp;size=1024)推文：https://twitter.com/AFP/status/1329450611360681984
+苹果公司严重依赖在中共国的制造，人权报告指出，苹果公司的供应链中存在维吾尔族强迫劳动的情况，有证据表明，这种强迫劳动等同于奴隶制。强迫劳动和奴隶制在国际法上的区别在于，在前者中，被强迫劳动的个人被国家作为人而非财产对待。
 
-
-AFP新闻社：视频显示，许多香港中文大学毕业生拿着当地政府宣布为非法的标语，作为一种少有的反抗北京国安法的行动。
-
-示威者在旗帜上涂鸦，从当地的火车站和平地游行到 “百万大道”同时唱着“荣光归香港。”即使毕业典礼由于中共病毒疫情在网上举行，游行依旧举行下去。
-
-即使游行本身是和平的，大学官方依然报警并且谴责这是一系列“非法行动和不负责行为。” 调查很快移交给了该警局的国家安全部(national security department)，他们在周五下午3点左右对校园发动了突袭。
-
-[![](https://spark.adobe.com/page/fswYOiMfsmZgo/images/f3b9b6d0-9dd8-4301-87ed-a72c0bb87a17.jpg?asset_id=16edb7b4-fbe4-4eac-9fd3-c0cdc09081e4&amp;img_etag=%22e649a1794a222d2ab697d8da6ae7047d%22&amp;size=2657)](https://spark.adobe.com/page/fswYOiMfsmZgo/images/f3b9b6d0-9dd8-4301-87ed-a72c0bb87a17.jpg?asset_id=16edb7b4-fbe4-4eac-9fd3-c0cdc09081e4&amp;img_etag=%22e649a1794a222d2ab697d8da6ae7047d%22&amp;size=1024)推文: https://twitter.com/alvinllum/status/1329703866477154304
+[!\[\]()!\[\](https://spark.adobe.com/page/GqPvCJbAsFkCD/images/f909310d-98a9-4e6b-b7f5-978f32de633d.jpg?asset_id=dc936467-fc5c-46f4-af10-6a83f2001160&amp;img_etag=%22fff966b1f932d3642f9432a79abcf91c%22&amp;size=2560)](https://spark.adobe.com/page/GqPvCJbAsFkCD/images/f909310d-98a9-4e6b-b7f5-978f32de633d.jpg?asset_id=dc936467-fc5c-46f4-af10-6a83f2001160&amp;img_etag=%22fff966b1f932d3642f9432a79abcf91c%22&amp;size=1024)NG HAN GUAN /Getty NG HAN GUAN/Getty
 
 
-Alvin Lum: 更新，警察在毕业生游行并唱诵之后进入中大校园收集证据。
+中共国坚持认为，其集中营是针对弱势少数民族的 “职业培训中心”。
 
-根据当地媒体，大约40名白衣政府人员抵达了现场向大学安全办公室要求拿到监控录像视频，给游行路线拍照，同时访问了居住区并和目击者谈话。
+澳大利亚战略政策研究所（ASPI）3月发表的一份研究报告也指出，苹果公司是产品在使用维吾尔族奴隶的工厂制造的全球83家公司之一，这不一定是在新疆。虽然中共国最初在新疆建立了营地–幸存者说他们在那里忍受了共产党的灌输、酷刑、强奸、奴役，医学研究表明还进行了活摘器官的试验–但在强烈的人权谴责之后，共产党开始将维吾尔族工人运送到全国各地的工厂。澳大利亚战略政策研究所（ASPI）的研究表明，政府鼓励公司雇用维吾尔族奴隶。
 
-其中的一个目击者是保安，他说他在和记者争执的时候被推倒在地。政府官员在下午5点离开校园。
+这些匿名的国会工作人员表示，苹果是众多反对该法案的美国公司之一。
 
-在中共的国安法下，这种游行是非法的，国安法把任何反对北京和中国共产党的公开意见表达都列为非法。国安法禁止“颠覆国家政权”和“分裂国家”。香港官方称大喊标语或者挥舞带有类似“光复香港，时代革命”标语的旗帜是“分裂”行为。
+这些工作人员拒绝详细说明苹果试图修改或删除的具体条款，因为他们担心提供这些信息会向苹果泄露他们的身份。但两人表示，他们认为苹果公司试图削弱该法案。
 
-“警察高度重视并强烈谴责公然违反国安法的行为和在校园的犯罪伤害行为，”政府发言人说。
+支持该法案的美国劳工总会与产业劳工组织国际部主任凯西-芬戈德（Cathy Feingold）表示。”苹果公司希望的是，我们都只是坐着空谈而没有任何实际的后果。他们感到震惊，因为这是第一次可以有一些实际有效的执行力。”
 
-中联办指控游行是出于拒绝放弃他们的“邪恶政治目的”而进行的“分裂社会”行为。
+苹果发言人乔什-罗森斯托克（Josh Rosenstock）表示，公司 “致力于确保我们供应链中的每个人都得到有尊严的对待和尊重。我们憎恶强迫劳动，并支持《维吾尔强迫劳动预防法案》的目标。我们与委员会的目标一致，即消除强迫劳动和加强美国法律，我们将继续与他们合作以实现这一目标。”
 
-“我们坚定支持特别行政区政府国安法相关执行部门坚定执行并快速处理有关该法的案件，”发言人读到。
+罗森斯托克还表示，苹果今年 “对我们在中共国的供应商进行了详细的调查，没有发现苹果生产线上存在强迫劳动的证据，我们将继续密切关注这一情况。”
 
-“在实行国安法之后，超过一年的混乱和对公民安全的威胁情况得到改善，”发言人继续读。“一小部分学生被邪恶政治目的蛊惑挑唆而制造麻烦。他们不会获得大众的支持。”
-
-即使国安法在香港实行，这样的游行在香港仍时有发生。在过去的十年里，港人举行数千次游行要求维护香港的民主和反对中共国日益加大对香港的控制。
-
-从这件事上我们看到，中共对在香港事务的干涉违反了和英国在1997年达成的“一国两制”协议，该协议旨在在正式将香港纳入中国政府的同时，保留香港的生活方式。
-
-[原文链接](https://www.breitbart.com/asia/2020/11/20/hong-kong-police-raid-university-after-peaceful-graduation-day-protest/)
+[原文链接](https://www.breitbart.com/tech/2020/11/21/report-apple-is-lobbying-congress-to-weaken-bill-against-chinese-slavery/)
 
 [点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
@@ -66,8 +49,8 @@ Alvin Lum: 更新，警察在毕业生游行并唱诵之后进入中大校园收
 
 [欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/fswYOiMfsmZgo/)】-点击spark adobe版
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/GqPvCJbAsFkCD/)】-点击spark adobe版
 
-[![](https://spark.adobe.com/page/fswYOiMfsmZgo/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/fswYOiMfsmZgo/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/GqPvCJbAsFkCD/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/GqPvCJbAsFkCD/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

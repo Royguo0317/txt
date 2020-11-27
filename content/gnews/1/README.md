@@ -1,24 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共威胁要给“台独”顽固分子拉清单
-` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/595008/)
+## 【热点播报】中共国央行：不然市场缺钱 又坚决不搞大水漫灌
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/595049/)
 
-- 编辑：Victor Torres
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/24223314/logo-3-1.jpg)200
 
+作者：香草山写作组 程万里
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26223856/11271.jpg)
+北京时间11月26日，央行发布2020年第三季度中国货币政策执行报告。提出下一阶段将完善货币供应调控机制，根据宏观形势和市场需要，科学把握货币政策操作的力度、节奏和重点，既保持流动性合理充裕，不然市场缺钱，又坚决不搞大水漫灌，不让市场的钱溢出来。 央行：我们用经济学的方式解决现实问题不在行，但印钞票还是在行的，这也是一门技术活，你看既要流动还要合理,更不能多的大水漫灌，这多难。
 
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+审核：浪迹天涯
 
-西班牙2020年11月27日电/喜西社/——中共国台办25日举行例行记者会，发言人朱凤莲威胁对台湾使用“台独”顽固分子清单。此前中共外宣香港《大公报》15日就曾披露，北京正在研究制定“台独”顽固分子清单，对其采取严厉制裁等措施，依据反分裂国家法、刑法、国家安全法将其绳之以法，终身追责。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-朱凤莲表示，研究制定“台独”顽固分子清单，针对的是极少数“台独”顽固分子及其金主等主要支持者，绝非针对广大台湾同胞。她强调，极少数“台独”顽固分子长期以来挑动两岸对立，破坏两岸关系，危害台海和平，大家是看得很清楚的，这笔账是一定会清算的。
-
-她还说，只有坚决打击“台独”分裂分子及其分裂活动，两岸关系才能和平发展，包括台湾同胞在内的两岸同胞利益福祉才能得到维护和增进。
-
-事实上，该清单针对的就是广大热爱自由与民主的台湾人民，所有不愿意接受中共奴役的台湾人都会被中共打上“台独”标签，进行威胁迫害。真正挑动两岸对立，破坏两岸关系，危害台海和平的恰恰是中共。他们打着维护和增进两岸人民利益福祉的幌子，维护的只是中共少数权贵家族的利益。
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
-
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/24223314/logo-3-1.jpg)
 0
