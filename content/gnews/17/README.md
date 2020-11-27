@@ -1,121 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】一个深度贫困村的纪实（五）
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/596159/)
+## 【推特要闻】11/26/2020 西德尼·鲍威尔转推: 如果您怀疑“Kraken”, 可耻的将是您
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/596280/)
 
-作者：香草山写作组 木白
+## **11/26/2020 西德尼·鲍威尔转推：**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
+如果您怀疑“ Kraken”，可耻的将是您。
 
+西德尼·鲍威尔在佐治亚州和密歇根州提起了令人难以置信的诉讼，这些诉讼现在正给民主党人带来噩梦。
 
-
-**XC****河**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27073722/MOS0513-%E3%80%90%E9%A6%99%E8%8D%89%E8%AF%97%E8%AF%8D%E6%B1%87%E3%80%91%E4%B8%80%E4%B8%AA%E6%B7%B1%E5%BA%A6%E8%B4%AB%E5%9B%B0%E6%9D%91%E7%9A%84%E7%BA%AA%E5%AE%9E%EF%BC%885%EF%BC%89-1.jpg)
-1
-
-千山万水并非追逐的理由
-
-而是你永远在我心里有挥不去的美
-
-一块块雪白的豆腐是这条河流孕育的乳房
-
-那个失去父母的孩子依旧在河边洗衣
-
-流水像少女的长发，像母亲的手指
-
-流水是那个男人的痛，一个父亲的哑然
-
-他怎样离开这里的，为了生存而告别
-
-那是她呱呱落地的时候
-
-仿佛是XC河的水把她送到人间的
-
-妈妈稀少的乳汁，与这条繁盛的河流
-
-格格不入
-
-望着破漏的屋檐，贫穷也逼走了年轻的母亲
-
-千年前，那条洗过战车的河流，它的美留住了千年和平
-
-十年前，那条如脐带的河流，它的美却留不住一对父母
-
-如今，那条静静流淌的河流，它的美却唤醒了另外的梦
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27073748/MOS0513-%E3%80%90%E9%A6%99%E8%8D%89%E8%AF%97%E8%AF%8D%E6%B1%87%E3%80%91%E4%B8%80%E4%B8%AA%E6%B7%B1%E5%BA%A6%E8%B4%AB%E5%9B%B0%E6%9D%91%E7%9A%84%E7%BA%AA%E5%AE%9E%EF%BC%885%EF%BC%89-2.jpg)
-2
-
-怎样完成这苍白的抒情
-
-如同你走过的路，爱过的桥，喝过的酒
-
-XC河的水像酒，静静地流，需细细地品
-
-XC河的桥，像那桥上的女子
-
-她装饰着他的窗子，明月装饰了同一个梦
-
-XC河的孩子，像夏夜的星空
-
-只有纯净的人才会像星星那样眨眼
-
-你们都是纯净的人
-
-把古香古色的书屋开到河柳发芽的春天
-
-让每个孩子的眼睛都流放于夏日的萤火
-
-把秋天的落日和山峦带进欢乐的课本
-
-冬天冷了，除了火，你们都知道要用更多的爱
-
-去温暖每一个盼望父母过年回家的孩子
-
-而她的父母永远都回不来了
-
-多年前，父亲外出打工，不幸意外身故
-
-母亲就改嫁别处，在她不知道的地方讨生活
-
-这么多年来一直与年迈的奶奶相依为命
-
-而新来的年轻老师却打开了她心底的光
+（“ KRAKEN”是美国国防部的运行的网路战计划，该计划跟踪并入侵各种其他系统，以获取深层国家进行的非法行动的证据！）
 
 
 
-3
-
-河的一边是月亮，一边是落日
-
-河的一边是风，一边是雨
-
-河的一边是柳枝，一边是长亭
-
-河的一边是电影，一边是画
-
-河的一边是泪水，一边是思恋
-
-河的一边是书屋，一边是写书的人
-
-河的一边是写信，一边是读信
-
-河的一边是孩子们的欢笑，一边是一对有情人的眼神
-
-河的一边是理想，一边是爱情
-
-河的一边是流水，一边也是流水
-
-2020年11月26日
-
-后记：有感于贫困山区留守学生、留守老人的艰辛，虚构了一对年轻教师，希望这不是虚构，而是我不知道的真实。
+> If you doubted the “Kraken,” shame on you.[@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw) has put forth an incredible pair of lawsuits in Georgia and Michigan that are giving Democrats nightmares right now. [https://t.co/4yjed71BkY](https://t.co/4yjed71BkY)
+> — JD Turkey-Eating Rucker (@JDRucker) [November 26, 2020](https://twitter.com/JDRucker/status/1331859026401923073?ref_src=twsrc%5Etfw)
 
 
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+#### **By: 【秘密翻译组G-Translators】**
 
 0

@@ -1,19 +1,95 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/11/16 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/592887/)
+## 打破美中关系禁忌 &#8211; 美国少将级情报官访台
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/596181/)
 
-战友之家图文摘要及多语组
+*新闻来源：《*华盛顿时报*》（Washington Times）；作者：*比尔·格茨（Bill Gertz）*；发布时间：2020年11月 23日*
 
-[296\_English\_1116\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082428/296_English_1116_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082428/296_English_1116_CCP_Virus_Updates_.pdf)
+*翻译/简评：MikeHua；校对：TCC；审核：海阔天空；Page：拱卒*
 
-[296\_French\_1116\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082431/296_French_1116_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082431/296_French_1116_CCP_Virus_Updates.pdf)
+[![](https://spark.adobe.com/page/MMK48kJwz3K8C/images/b26a3c3b-5f83-4252-a810-80f29c918e73.jpg?asset_id=0691fa18-7685-40c7-a8e8-610b3c2137c3&amp;img_etag=%2241e3688e88bcf5217ab027b6dcc630d8%22&amp;size=2560)](https://spark.adobe.com/page/MMK48kJwz3K8C/images/b26a3c3b-5f83-4252-a810-80f29c918e73.jpg?asset_id=0691fa18-7685-40c7-a8e8-610b3c2137c3&amp;img_etag=%2241e3688e88bcf5217ab027b6dcc630d8%22&amp;size=1024)巴里号驱逐舰。该舰是四艘派遣地中海的驱逐舰之一（美国海军摄）。
 
-[296\_German\_1116\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27062628/296_German_1116_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27062628/296_German_1116_CCP_Virus_Updates_.pdf)
+#### **简评：**
 
-[296\_Japanese\_1116\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26084737/296_Japanese_1116_CCP_Virus_Updates_-1.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26084737/296_Japanese_1116_CCP_Virus_Updates_-1.pdf)
+在美国大选结局还未确定，川普总统还在奋战之际，美国情报官员在这个敏感时刻访台，意义非常明显，就是要告诉中共，敢轻举妄动美军一定保护台湾。虽然蔡英文做出了非常不明智的决定恭喜假当选的拜登，但是川普总统深明大义，蔡英文不能代表全台湾，保护台湾对抗中共是美国最高利益。
 
-[296\_Korean\_1116\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082430/296_Korean_1116_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082430/296_Korean_1116_CCP_Virus_Updates.pdf)
+相信这个时候川普政府希望的是将大选舞弊的事情通过美国的司法手段解决，让世界看到美国还是有扎实的司法系统可以被世人相信，不想把整个荒唐滑稽的闹剧搞得太难堪。在选举过后，一定是算总账，中共也知道自己末日临头，美国要防止狗急跳墙，减少共产党灭亡给世界带来的损失。
 
+#### **原文翻译：**
+
+# 美国情报官员访台打破禁忌
+
+川普政府正在通过前所未有的高级情报官员访台和在台湾海峡交付一艘导弹驱逐舰进一步向中共国施压。
+
+目前任五角大楼印度太平洋司令部情报总监的美国军官表示海军少将迈克尔·司徒德曼（Michael Studeman），已经于周日抵达台北与其政府进行情报分享谈话，台湾是中共军方最近频频威胁的对象。
+
+过去美国军官因顾虑和北京的关系都被禁止前往台湾，北京认为台湾是一个从中国大陆叛逃的省份。
+
+一名五角大楼发言人员拒绝对这个首次被台湾媒体基于一架抵达台北松山国际机场的包机所做的新闻报道发表评论。
+[![](https://spark.adobe.com/page/MMK48kJwz3K8C/images/28a930e1-2f6d-4ac9-b924-866a24770d2d.jpg?asset_id=bad4ffaf-bbff-469e-a460-4b0a098105b3&amp;img_etag=%22c52e71eebd7843d23fb28682ae6dbd9e%22&amp;size=1024)](https://spark.adobe.com/page/MMK48kJwz3K8C/images/28a930e1-2f6d-4ac9-b924-866a24770d2d.jpg?asset_id=bad4ffaf-bbff-469e-a460-4b0a098105b3&amp;img_etag=%22c52e71eebd7843d23fb28682ae6dbd9e%22&amp;size=1024)
+日前，一辆海军驱逐舰驶过争议的台湾海峡。
+
+第七舰队海军少校乔·凯立说（Joe Keiley）“阿利·伯克级驱逐舰巴里号在11月21日根据国际法进行了预定的台湾海峡穿越，”。
+
+“该舰穿越台湾海峡表现出美国致力于维护印度太平洋自由和开放的航行。美国海军会在任何国际法允许的地方继续飞行，航行并执行任务。”
+
+当被问道战舰是否被中共军舰或飞机尾随，一位军方官员表示此次通行没有争议。
+
+此次司徒德曼少将的访问和巴里驱逐舰的通行发生在美国大选政治非常不稳定时期。
+
+上周美国政府的行动似乎是让中共政府不要轻举妄动。
+
+中共国在最近数月增加了海军和空军在台湾的活动，美方称这种行为是军事压迫。九月大规模军演在台湾附近举行，中共官方称这是一次侵略台湾的演习。
+
+国务卿彭佩奥在11月11日说：“台湾不是中共国的一部分，”这句评论惹怒了北京。
+
+此外，美国政府已安排了超过五百万美元的对台军售以加强台湾的防备。此次军售包括F-16战机和长程对地导弹。
+
+彭佩奥先生在一次电台采访时说，“这些事情都是出于对台湾和大陆人民的承诺。”
+
+中共政府对此次美国将军访台表示愤怒并承诺会有反制措施。
+
+外交部发言人赵立坚说，“中共国强烈反对任何形式的美台官方往来。”
+
+他补充道，“中共国会采取合法和必要的反制措施。”
+
+退伍海军上尉吉米·凡奈（Jim Fanell）说此次访问是一次突破，逆转了过去限制美军军官访台的政策。
+
+凡奈将军说，司徒德曼少将对台访问“反映了中共军方对台湾威胁的严重度。”
+
+如果此次访问被官方承认，这将是“前所未有地并且强调了在北京大规模提高威胁台湾军事行动之際，美台之间情报分享的重要性，”他说。
+
+#### **维持现状**
+
+战略上说，此次访问是重申维护中共军方和台湾军方长达20年的军事对峙现状的重要性。
+
+凡奈上尉说，“此次访问强调本届(川普)政府对中共国政策的正确性，这是以前的政府未曾明確提及且没有實質上支持的。”
+
+中共国事务分析师瑞克·费舍尔（Rick Fisher）说到，此次司徒德曼少将的访问强调美国战略和道义上对台湾的支持，台湾正面临中共军方五十年来首次入侵威胁。
+
+国际战略评估中心（International Assessment and Strategy Center）的费舍尔先生说，“派遣如司徒德曼少将高级军官和情报官员访台以对抗中共是符合美国的国防利益。”在“美国派遣美国军舰通过台湾海峡显示了帮助台湾抵抗中共入侵的决心，这也符合美国最高利益。”
+
+费舍尔先生说川普政府成功提高了和台湾的战略对话。他说，“这有利于向台湾人民保证中国共产党的领导层继续威胁台湾只会进一步地加强美台关系。”
+
+司徒德曼的访问最初被台湾媒体曝光，原称此次访问是CIA局长吉娜·哈斯佩尔 (Gina Haspel)来台。后来改正为司徒德曼少将。
+
+台湾外交部在一次声明中否认了哈斯佩尔来到台湾，并且表示不会评论此次访问，并指出美国“高级官员”的日程是不公开的。台湾外交部同时表示美台之间的互动和交换很平常，并欢迎美国军官来访。
+
+司徒德曼的访问是在川普政府日前派遣两名高级行政官员访问之后首次美国高级将领来访。九月，经济发展与能源环境次卿基思·克拉奇 (Keith J. Krach)访问台湾，八月，美国卫生与公众服务部部长亚历克斯·阿泽 (Alex Azar)访问台湾。
+
+环境保护署署长安德魯·惠勒 (Andrew Wheeler)可能下月访台。
+[![](https://spark.adobe.com/page/MMK48kJwz3K8C/images/f404812b-99bb-4aee-b42a-52bb7cb9b904.jpg?asset_id=d3bd16bf-0763-491d-8765-e9166232de9f&amp;img_etag=%22bab566650f905605eed226f200619428%22&amp;size=1024)](https://spark.adobe.com/page/MMK48kJwz3K8C/images/f404812b-99bb-4aee-b42a-52bb7cb9b904.jpg?asset_id=d3bd16bf-0763-491d-8765-e9166232de9f&amp;img_etag=%22bab566650f905605eed226f200619428%22&amp;size=1024)环境保护署署长安德魯·惠勒 (Andrew Wheeler)
+美国官员说，此次访问和战舰通过台湾海峡是警告中共国，不要在美国被选举結果和白宫权力交接问题上分散注意时对台湾采取行动。
+
+[原文链接](https://www.washingtontimes.com/news/2020/nov/23/michael-studeman-visit-shatters-another-taiwan-tab/)
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/MMK48kJwz3K8C/)
+[![](https://spark.adobe.com/page/MMK48kJwz3K8C/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/MMK48kJwz3K8C/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

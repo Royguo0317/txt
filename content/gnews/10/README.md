@@ -1,24 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【推特要闻】11/26/2020 西德尼·鲍威尔转推: 如果您怀疑“Kraken”, 可耻的将是您
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/596280/)
+## 《路德社》精选新闻快讯:墨博士点评快讯： 中共国专家宣称2023年要成为第一器官移植大国&#8211;11/24/2020
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/596184/)
 
-## **11/26/2020 西德尼·鲍威尔转推：**
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-如果您怀疑“ Kraken”，可耻的将是您。
+11/24/2020 墨博士点评快讯：
 
-西德尼·鲍威尔在佐治亚州和密歇根州提起了令人难以置信的诉讼，这些诉讼现在正给民主党人带来噩梦。
+1.中共国专家宣称2023年要成为第一器官移植大国；
 
-（“ KRAKEN”是美国国防部的运行的网路战计划，该计划跟踪并入侵各种其他系统，以获取深层国家进行的非法行动的证据！）
+2.柳叶刀反水？
+
+3. 中共国多地疫情爆发 恐难推责境外输入；
+
+4.中共国内经济形势持续恶化，人民生活雪上加霜；
+
+5. 美国大选舞弊多方证据涌出 看媒体如何左右？
+
+6. 乔治亚州挑战宪法 保守派在6个州提起法律诉讼
+
+以下视频是详细内容：
 
 
 
-> If you doubted the “Kraken,” shame on you.[@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw) has put forth an incredible pair of lawsuits in Georgia and Michigan that are giving Democrats nightmares right now. [https://t.co/4yjed71BkY](https://t.co/4yjed71BkY)
-> — JD Turkey-Eating Rucker (@JDRucker) [November 26, 2020](https://twitter.com/JDRucker/status/1331859026401923073?ref_src=twsrc%5Etfw)
-
-
-
-#### **By: 【秘密翻译组G-Translators】**
+[援引原文](https://www.youtube.com/watch?v=LXPLSewK_6g&amp;feature=youtu.be)
 
 0

@@ -1,22 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【推特要闻】11/26/2020 川普总统推文: 为了国家安全，必须立即终止第230条款!!!
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/596293/)
+## 印度禁止了43款中共国背景的移动应用程序
+` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/596348/)
 
-## **11/26/2020 川普总统推文：**
+素材：西林 内新闻：背靠背
 
-为了国家安全，必须立即终止第230条款！！！
+据印度斯坦时报2020年11月24日报道，印度电子和信息技术部根据《信息技术法》第69A条发布了一项命令，禁止了43款中共国背景的移动应用程序APP，其中包括电子商务巨头阿里巴巴集团的应用程序。理由是这些应用程序 “从事有损印度主权和完整、印度国防、国家安全和公共秩序的活动”。
 
-230条款使得网络平台科技公司有权随意删贴封号，而无需给出任何理由，或者仅提示简单一句“已被独立事实核查机构认定为虚假信息”。被删贴的用户只能自认倒霉，而无处申诉。被封号的用户也只能另开新帐户，却无权为自己主张权利。如果某些用户已经发布多篇原创帖子，若尚未备份，就被封号，将遭受重大损失。
+2020年9月2日，印度电子和信息技术部再禁118款中国应用，名单中包括PUBG Mobile等多款腾讯旗下的应用，累计239款，理由是担心它们“不利于主权与廉正……捍卫印度，国家安全和公共秩序”。
 
+8月6日再禁15款；
 
+7月27日再禁47款；
 
-> For purposes of National Security, Section 230 must be immediately terminated!!!
-> — Donald J. Trump (@realDonaldTrump) [November 27, 2020](https://twitter.com/realDonaldTrump/status/1332175155104247808?ref_src=twsrc%5Etfw)
+6月30日印度宣布禁用包括TikTok在内的59款中国应用程序（APP），理由是这些都是国家安全问题。
 
+更多信息请点：https://www.hindustantimes.com/india-news/india-s-november-24-ban-on-chinese-apps-is-the-4th-strike-since-ladakh-stand-off/story-fvTucxibvLsOHirwehcRcJ.html
 
-
-#### **By: 【秘密翻译组G-Translators】**
+https://3g.163.com/news/article/FSE515PA00018AOR.html?clickfrom=channel2018\_news\_international\_newslist#child=international&offset=22
 
 0

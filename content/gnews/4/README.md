@@ -1,27 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发快讯：罕见镜头显示俄罗斯军舰在边境事件中“追赶”美国驱逐舰
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/595940/)
+## 独家重磅&#8211;《路德社》精选主题专栏：《乔治亚州的诉讼文件》104页全文翻译
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/595631/)
 
-编译：玫瑰天空
-
-据报道，大型反潜舰维诺格拉多夫[海军](https://www.zerohedge.com/geopolitical/russia-threatens-us-warship-ramming-over-alleged-maritime-border-violation)上将[在美国海军驱逐舰](https://www.zerohedge.com/geopolitical/russia-threatens-us-warship-ramming-over-alleged-maritime-border-violation)“约翰·麦凯恩”（John McCain）进入彼得大帝海湾附近的领海后[停止了](https://www.zerohedge.com/geopolitical/russia-threatens-us-warship-ramming-over-alleged-maritime-border-violation)航行。
-
-事件发生在星期二06:17（莫斯科时间）在远东的彼得大帝海湾，详细情况关注国防部的相关报告。
-![]()![](https://zh-prod-1cc738ca-7d3b-4a72-b792-20bd8d8fa069.storage.googleapis.com/s3fs-public/inline-images/uss-john-mccain.jpg)*约翰·麦凯恩号航空母舰，盖蒂图片社*
-**国防部**澄清说**，美国海军驱逐舰越过边界线2公里，入侵了俄罗斯联邦的领海**。俄罗斯军方警告美国人，他们已准备好进行猛烈的机动。
-
-国防部说：“太平洋舰队的一艘大型反潜舰“维诺格拉多夫海军上将”直接追踪美国驱逐舰，并通过国际交流渠道警告外国舰艇这种行动是不可接受的，并且有可能针对这种行动采取猛烈攻击手段。入侵者离开领海。”
-
-此后，约翰·麦凯恩立即进入中立水域：“美国驱逐舰没有再三尝试进入它们（的海域）。”
-
-2020年，国际局势风云变幻，没有热战的战争已经正在进行中，因此，每个突发事件都吸引着各方的关注。这个海上美俄军舰“偶遇”和“追赶“事件发生在目前敏感的时间，自然引起了各界及民众的强烈关注。相关消息还未更新，后续相关状况还需持续关注。
-
-***在下面观看日本海中罕见的对抗的录像：***
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27053639/QWRdLqry-0-wm-1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27053654/QWRdLqry-1-wm-1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27053715/QWRdLqry-2-wm-1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27053745/QWRdLqry-3-wm-1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27053807/QWRdLqry-4-wm-1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27053840/QWRdLqry-5-wm-1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27053902/QWRdLqry-6-wm-1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27053923/QWRdLqry-7-wm-1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27053946/QWRdLqry-8-wm-1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27054006/QWRdLqry-9-wm-1.png)
 
 
 
-[援引原文](https://www.zerohedge.com/geopolitical/rare-footage-shows-russian-warship-chasing-us-destroyer-border-incident)
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055107/ziYZH4tH01-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055201/ziYZH4tH02-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055226/ziYZH4tH03-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055259/ziYZH4tH04-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055325/ziYZH4tH05-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055347/ziYZH4tH06-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055407/ziYZH4tH07-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055427/ziYZH4tH08-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055446/ziYZH4tH09-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055505/ziYZH4tH10-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055528/ziYZH4tH11-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055615/ziYZH4tH12-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055654/ziYZH4tH13png-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055714/ziYZH4tH14-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055733/ziYZH4tH15-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055754/ziYZH4tH16-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055813/ziYZH4tH17-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055834/ziYZH4tH18-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055854/ziYZH4tH19-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055912/ziYZH4tH20-wm.png)
+
+
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060020/43VXTx4z01-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060050/43VXTx4z02-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060118/43VXTx4z03-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060147/43VXTx4z04-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060214/43VXTx4z05-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060241/43VXTx4z06-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060308/43VXTx4z07-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060335/43VXTx4z08-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060402/43VXTx4z09-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060429/43VXTx4z10-wm.png)
+
+
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060531/SxGmk6Eb01-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060550/SxGmk6Eb02-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060610/SxGmk6Eb03-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060635/SxGmk6Eb04-wm.png)
+
+
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060718/UUr5eNjN01-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060738/UUr5eNjN02-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060756/UUr5eNjN03-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060815/UUr5eNjN04-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060835/UUr5eNjN05-wm.png)
+
+
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060915/1dYIGPgN01-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060947/1dYIGPgN02-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061008/1dYIGPgN03-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061029/1dYIGPgN04-wm.png)
+
+
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061108/kYiz-H3E01-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061127/kYiz-H3E02-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061145/kYiz-H3E03-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061205/kYiz-H3E04-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061225/kYiz-H3E05-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061244/kYiz-H3E06-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061304/kYiz-H3E07-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061322/kYiz-H3E08-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061346/kYiz-H3E09-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061404/kYiz-H3E10-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061457/Rr34GMAm01-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061516/Rr34GMAm02-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061538/Rr34GMAm03-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061556/Rr34GMAm04-wm.png)
+[援引英文版《乔治亚州的诉讼文件》PDF104页原文](https://defendingtherepublic.org/wp-content/uploads/2020/11/COMPLAINT-CJ-PEARSON-V.-KEMP-11.25.2020.pdf)
 
 0
