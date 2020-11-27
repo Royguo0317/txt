@@ -1,39 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林郑施政报告】香港民调64% 受访市民不满报告　被指自欺欺人 评分创新低
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/595502/)
+## 【世界多语言图文】2020/11/16 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/592887/)
 
-编撰：文悦
+战友之家图文摘要及多语组
 
-覆核：文白
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27041006/dfhjkidsfhk-ok.jpg)
-林郑月娥25日公布任内第四份施政报告，香港最新民调显示，有 64% 市民不满是次施政报告，评分只有27.2分，创有纪录以来新低。林郑月娥的民望亦下跌至 26.8 分。香港民意研究所副行政总裁钟剑华指出，数字反映施政报告无助挽回民心，又批评措施空泛，认为林郑任内民意很难反弹。
+[296\_English\_1116\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082428/296_English_1116_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082428/296_English_1116_CCP_Virus_Updates_.pdf)
 
-香港民研26日发表最新民调结果，调查在昨日经电话或电邮访问713人，其中只有19% 受访者表示满意施政报告，不满的则有64%，平均分为27.2 分（100 分满分），创1999 年有纪录以来即时调查的最差得分。另外，高达 63% 受访者表示，施政报告发表后对香港前途的信心有所减少，只有 7% 增加，16% 维持不变。而特首林郑月娥的民望在发表施政报告后显著下跌，最新评分为 26.8 分，有高达 52% 受访者给予林郑零分。
+[296\_French\_1116\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082431/296_French_1116_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082431/296_French_1116_CCP_Virus_Updates.pdf)
 
-香港民意研究所副行政总裁钟剑华表示，是次报告的评分创历来新低，「政府说有200项措施，讲到这么重要，但竟然得 27.2 分。」认为评分反映施政报告无助挽回民心。他重申，若林郑月娥拒绝正视自去年以来的社会撕裂，不做实事扭转局面，政府很难有效施政。他形容特首及主要官员的评分是「灾难性」，提及长期超过四成人给予林郑零分，形容是「敌意评分」，反映过去一年半累积的矛盾没有解决。
+[296\_German\_1116\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27062628/296_German_1116_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27062628/296_German_1116_CCP_Virus_Updates_.pdf)
 
-针对报告内的具体措施，钟剑华认为一河两岸、与深圳的科技平台等惠港措施均非常空泛，「老实讲，十划都都未有一撇。」他又批评，境外投票的方案千疮百孔，难以监察票站及确保选举公平。另外，对于林郑表示，可以警司警诫处理未成年被捕者，钟剑华表示反感，直斥林郑「虚伪、包藏祸心」，指林郑最近动辄以最严厉的控罪检控年轻人，质疑措施旨在诱导青少年认罪，认为被滥捕滥控的青少年不会接受。
+[296\_Japanese\_1116\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26084737/296_Japanese_1116_CCP_Virus_Updates_-1.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26084737/296_Japanese_1116_CCP_Virus_Updates_-1.pdf)
 
-对于林郑今早在电台联播节目指，自己不重视民望数字及被抹黑，钟剑华批评她不负责任，指政治领袖一定要获得人民授权，亦要有足够公信力，不重视民意数字只是回避问题，「阿Q精神、自欺欺人，为失败找借口」。他又不同意林郑遭恶意抹黑，指「现在不是一个人抹黑她，是百分之五十几的人给她零分。」认为以她消极的态度及行为，任内民望难以反弹，「升上35（分）都好难。」
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27040959/jpg-armchanneltv_127444099_173377734454519_8543344669493732908_n.jpg)
-战友点评：
+[296\_Korean\_1116\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082430/296_Korean_1116_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26082430/296_Korean_1116_CCP_Virus_Updates.pdf)
 
-英国末代港督彭定康今年七月在接受专访，批评特首林郑月娥是香港历史上“一个十分令人失望的内奸式人物”（a lamentable quisling figure）。他谓林郑月娥早在一年前就不应试图强行推动修改《逃犯条例》。林郑此举直接引发香港社会的更大割裂，致使生灵涂炭，民不聊生。
-
-综观她2020施政报告，洋洋洒洒三万字，宣读150分钟，台下看电影、买大闸蟹的议员俱在，报告用大篇幅多谢中央支持、支持国安法、公职人员宣誓等等，起码占了宣读的五份之一时间，林郑的谄媚奴才本色尽显。
-
-香港过往核心问题，如房屋、青年、贫富差距等民生，在报告中着墨不多。其中的青年问题更是搞笑，从反送中事件到国安法，无数青年人遭受牢狱之灾，骨肉分离，前程尽毁；即使侥幸逃脱者，人生轨迹业已截然不同。 「不忘初心」的「妖娥」大张旗鼓号召青年们奔赴大湾区就业生活，「从头认识祖国」，令人质疑这回归的二十余年来香港年轻人合着是没有机会在本港领教「伟大祖国」的真谛，需要集体奔赴内地「回炉重造」。
-
-如今疫情下水深火热的香港，又见林太「感谢中央」，感谢中央防疫小队在「全民自愿检测」中花费数亿，找出寥寥可数的确诊者。如今新一波疫情又至，防疫政策再度收紧，香港陷入抗疫的「死循环」，香港人应该感谢谁呢？
-
-由此可见林郑的所谓「施政报告」就是一棵大毒草，贩卖的是政治鸦片！
-
-以上观点仅代表本人
-
-来源：立场新闻
-
-[https://www.thestandnews.com/politics/%E6%96%BD%E6%94%BF%E5%A0%B1%E5%91%8A-%E9%A6%99%E6%B8%AF%E6%B0%91%E7%A0%94-64-%E5%8F%97%E8%A8%AA%E5%B8%82%E6%B0%91%E4%B8%8D%E6%BB%BF%E5%A0%B1%E5%91%8A-%E8%A9%95%E5%88%86%E5%89%B5-1999-%E5%B9%B4%E4%BE%86%E6%96%B0%E4%BD%8E-%E9%8D%BE%E5%8A%8D%E8%8F%AF-%E6%9E%97%E9%84%AD%E8%87%AA%E5%B7%B1%E5%91%83%E8%87%AA%E5%B7%B1/](https://www.thestandnews.com/politics/%E6%96%BD%E6%94%BF%E5%A0%B1%E5%91%8A-%E9%A6%99%E6%B8%AF%E6%B0%91%E7%A0%94-64-%E5%8F%97%E8%A8%AA%E5%B8%82%E6%B0%91%E4%B8%8D%E6%BB%BF%E5%A0%B1%E5%91%8A-%E8%A9%95%E5%88%86%E5%89%B5-1999-%E5%B9%B4%E4%BE%86%E6%96%B0%E4%BD%8E-%E9%8D%BE%E5%8A%8D%E8%8F%AF-%E6%9E%97%E9%84%AD%E8%87%AA%E5%B7%B1%E5%91%83%E8%87%AA%E5%B7%B1/)
-
-1+
+0

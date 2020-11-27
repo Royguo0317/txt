@@ -1,23 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班农疫情作战室519/520期
-` GM47` [轉載自GNews](https://gnews.org/zh-hans/595264/)
+## 【路德时评】11.24 【精华版粤语配音】： 各大家族支持川普还击中共 对于卖国求荣 美国人决不答应
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/595353/)
 
-战友之家新闻译制组制作
-
-519：拿下一分
-
-国会议员马特·盖茨（Matt Gaetz）与史蒂夫·班农（Steve Bannon），杰克·马克西（Jack Maxey）和格雷格·曼兹（Greg Manz）一同讨论了有关冠状病毒大流行的最新消息，工作人员讨论了总统针对2020年美国总统大选所发生的欺诈行为的法律战争。 Boris Epshteyn，Michael Patrick Leahy和Patrick Colbeck带来了他们的见解。
+制作单位：战友之家-粤语组
+制作团队：阿恩、wikim bao
 
 
 
-
-
-520：零与一之间的差异
-
-国会议员马特·盖茨（Matt Gaetz）与史蒂夫·班农（Steve Bannon），杰克·马克西（Jack Maxey）和格雷格·曼兹（Greg Manz）一同讨论了有关冠状病毒大流行的最新消息，工作人员讨论了总统针对2020年美国总统大选所发生的欺诈行为的法律战争。 达伦·比蒂（Darren Beattie）和凯莉·简·克雷默（Kylie Jane Kremer）带来了他们的见解。
-
-
+摘要：
+美国利益集团及华尔街势力均转而支持川普总统连任；美国几大家族彻底看清中共的邪恶抛弃拜登；美国利益集团影响着议会；美国太空军布下天罗地网
 
 0

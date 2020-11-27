@@ -1,45 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫新闻发言人关于对迈克尔·t·弗林将军的赦免的声明
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/594760/)
+## 【疫情众生相】牧师维护宪法权利 “脱衣”聚会
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/594976/)
 
-新闻简述：川普总统签署了对弗林将军的全权赦免令。该命令意义深远，它不仅将正义还给一位无辜的美国英雄—弗林将军，同时也提醒了全体美国人民要对拥有巨大权力的政府和情报部门的高官们进行严密监督，以确保他们维护美国的民主法治而不是追求党派政治见解（站在各自党派立场打击对手）。这项在感恩节之际签署的赦免令，最完美地表达了感恩节的象征意义。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26204515/WH_20201125_Flynn_coverphoto.png)[图片来源](https://www.reutersconnect.com/discover)
-[阅读白宫英文原文](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-regarding-executive-grant-clemency-general-michael-t-flynn/)
+*多伦多枫叶农场 金不換
+校对 文锦 上传 WJ*
 
-**Statement from the Press Secretary Regarding Executive Grant of Clemency for General Michael T. Flynn**
+据DJHJ Media11月25日报道，美国加州罗布·麦考伊（Rob McCoy）牧师在周日将礼拜活动变成了脱衣舞俱乐部表演，以此抗议严格的封城措施。根据加州州长民主党人加文·纽瑟姆（Gavin Newsom）颁布的行政命令，脱衣舞俱乐部有权保持开放，但教堂却必须关闭。
 
-**白宫新闻发言人关于对迈克尔·t·弗林将军的赦免的声明**
+在周日礼拜中，麦考伊说道：“我想让你们知道，即将发生的事是州长麦克·赫卡比（Mike Huckabee）的错。” 他先播放了来自电影《汉尼提》的一个片段，然后摘下领带，这使教堂比较像一个 “临时的脱衣舞俱乐部”了，因此教区居民参加礼拜是合法的，这样教堂也可以和脱衣舞俱乐部享受同样的待遇。然后，麦考伊就有点过分了， 他随着脱衣舞音乐起舞，不仅把领带摘了，还把它扔给下面的信众。一些信众当场就成了粉丝，拿出现金打赏他们这位多才多艺的牧师。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26215132/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE103.png)图片来源：RedState
+麦考伊参加了《[勇敢对抗暴君](https://www.youtube.com/watch?time_continue=132&amp;v=Kd4gz27vZ8c&amp;feature=emb_title)》播客，并谈到了他的抗议动机。“我曾担任过千橡市市长，5月才辞职，我爱我的城市。我本来准备连任，大家也喜欢我。 但当州长在最神圣的日子关闭教堂时，我们决定保持开放。新闻上说我们要杀人，但他们又承认我们的场地很干净。那天晚上我就辞职了。 我向美国宪法宣誓过。 宣誓的目的就是使政府在我们不同意的情况下不会侵犯我们。 国父先贤给了而我们《第一修正案》，“教士们都沉默了，谁来辅佐国王”？ 州长不能随便强加这些措施强加给我们。 我住在千橡市。 我每天晚上都会直播，我们已经做好了开放的准备，但又被州长给改了。”
 
-Law & Justice
+“我认为人在教堂里比在脱衣舞俱乐部里更安全，” 前州长迈克·赫卡比（Mike Huckabee）周二在接受[媒体采访](https://twitter.com/GovMikeHuckabee?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1331255894382944257%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fdjhjmedia.com%2Fkari%2Fpandemic-craziness-pastor-did-strip-tease-in-church-to-preserve-constitutional-rights-to-gather-wont-bow-to-tyranny-video%2F)时谈到了这位独特的牧师及其传递的信息。
 
-法律与正义
+来自红州（RedState）媒体：
+加州的多个教堂已就关闭令以及把教堂列入 “非必要” 名单提起诉讼，认为关闭教堂违反了《第一修正案》。 尽管有关闭令，还是有人继续提供教堂室内服务，包括由罗布·麦考伊牧师领导的文图拉县的戈德斯普卡弗利礼拜堂。罗伯·麦考伊牧师四月反抗卫生官员的命令，并于5月辞去在千橡市议会的职务。
 
-Issued on: November 25, 2020
+对不了解的人，在此附上《**第一修正案**》中的内容：
+**国会不得制定有关宗教信仰或禁止其自由行使的法律； 或剥夺言论自由或新闻自由； 或人民和平集会和向政府提出申诉的权利**。
 
-发布时间：2020 年11月25日
+该州的脱衣舞俱乐部老板们也向法院提出了停业令的质疑，称其业务“受到《第一修正案》的法律保护。11月12日，圣地亚哥高等法院的一名法官在两名脱衣舞俱乐部老板提起的案件进行初审后，下令该县临时重新开放脱衣舞俱乐部，等待月底进行全面听证。
 
-Today, President Donald J. Trump signed an Executive Grant of Clemency granting a Full Pardon to General Michael T. Flynn.  The President has pardoned General Flynn because he should never have been prosecuted.  An independent review of General Flynn’s case by the Department of Justice—conducted by respected career professionals—supports this conclusion.  In fact, the Department of Justice has firmly concluded that the charges against General Flynn should be dropped.  This Full Pardon achieves that objective, finally bringing to an end the relentless, partisan pursuit of an innocent man.
+各国政府陆续因为不肯直面中共病毒疫情真相，跟随中共的走狗世卫组织的意见，延误防疫时机，导致疫情蔓延。由于利益集团阻碍，政府不仅不承担责任，反而出台各种荒唐的政策法令，使百姓越来越困苦。麦考伊是美国宪法的捍卫者，并没有像大多数人那样迷信权威、忍气吞声，而是用自己的方式表达了对防疫政策的不满。
 
-今天，唐纳德·J·川普总统签署了《行政赦免令》，全权赦免迈克尔·T·弗林将军， 因为将军根本就不应该受到起诉。 司法部对弗林将军案的独立审查（由享有信誉的专业人员进行的此项审查）支持了这一结论。 事实上，司法部已经坚定地得出结论，对弗林将军的指控应该被撤销。 全权赦免充分实现了这一目标，最终结束了党派对一个无辜者的不懈追打。
 
-General Flynn should not require a pardon.  He is an innocent man.  Even the FBI agents who interviewed General Flynn did not think he was lying.  Multiple investigations have produced evidence establishing that General Flynn was the victim of partisan government officials engaged in a coordinated attempt to subvert the election of 2016.  These individuals sought to prevent Donald Trump from being elected to the Presidency, to block him from assuming that office upon his election, to remove him from office after his inauguration, and to undermine his Administration at every turn.
 
-弗林将军不需要赦免，他本来就是一个无辜的人。就连采访过弗林将军的联邦调查局特工也不认为他在撒谎。多项调查显示，弗林将军是党派政府官员蓄意破坏 2016 年大选的受害者。这些人试图阻止唐纳德·川普当选总统，阻止他当选后就职，甚至在他的就职宣誓后把他赶下台，并在每一个层面削弱他的政府影响力。
+[参考链接](https://djhjmedia.com/kari/pandemic-craziness-pastor-did-strip-tease-in-church-to-preserve-constitutional-rights-to-gather-wont-bow-to-tyranny-video/)
 
-The prosecution of General Flynn is yet another reminder of something that has long been clear:  After the 2016 election, individuals within the outgoing administration refused to accept the choice the American people had made at the ballot box and worked to undermine the peaceful transition of power.  These efforts were enabled by a complicit media that willingly published falsehoods and hid inconvenient facts from public view, including with respect to General Flynn.  They amounted to a brazen assault on our democracy and a direct attack on our fundamental political values.
+相关链接：
 
-对弗林将军的起诉再次提醒人们一个长期以来就已经很清楚的事实：2016 年大选之后，即将离任的政府内部人士拒绝接受由美国人民通过投票做出的选择，并试图破坏权力的和平过渡。他们让一个串通一气的媒体，自愿公开发表虚假信息，在公众视野中隐藏不利事实，包括对弗林将军的虚假报道。他们对我们的民主制度进行了无耻的攻击，对我们基本政治价值观进行了直接攻击。
+[多伦多烧烤店主遭遇映出加拿大疫情之殇](https://gnews.org/zh-hans/591294/)-Gnews
 
-While today’s action sets right an injustice against an innocent man and an American hero, it should also serve as a reminder to all of us that we must remain vigilant over those in whom we place our trust and confidence.  The people who sit atop our intelligence and law enforcement agencies have tremendous power to affect the lives of their fellow citizens.  The American people must always take care to scrutinize their actions, to hold them accountable, and to ensure that they use their immense power to uphold the rule of law rather than to harass, persecute, and jail their political opponents in pursuit of partisan political agendas.
 
-虽然今天的行动纠正了对一位无辜的人和一位美国英雄的不公正待遇，但它也应该提醒我们所有人，我们必须对那些我们所信任和有信心的人保持警惕。我们情报机构和执法机构的高层人员拥有巨大的权力来影响公民们的生活，美国人民必须自始自终地谨慎审查他们的行动，追究他们的责任，并确保他们运用自己的巨大权力来维护法治，而不是为了追求党派政治见解而骚扰、迫害和监禁他们的政治对手。
 
-Happy Thanksgiving to General Flynn and his family, and thank you all for your great service to our Nation!
-
-祝弗林将军和他的家人感恩节快乐，感谢你们所有人对我们国家的伟大贡献!
-
-翻译【奔腾的长江】校对【Cyndi】编辑【Isaiah4031】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22111053/VOG-Rose-Garden-Team.png)
 0
