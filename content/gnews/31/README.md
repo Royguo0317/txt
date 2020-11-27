@@ -1,67 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英国正考虑将英国法官撤出香港最高法院
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/594466/)
+## 迪士尼的感恩节礼物&#8212;再裁四千人
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/594521/)
 
-*新闻来源：《香港自由报》(Hong Kong Free Press)；作者：康迪斯·周（CANDICE CHAU）；发布时间：2020年11月24日*
+*多伦多枫叶农场 阿黎*
 
-*翻译/简评：Marialu；校对：感恩；审核：海阔天空；Page：拱卒*
-[![](https://spark.adobe.com/page/O6bWfGQJsDMY7/images/4057d242-fbfd-4a67-bb61-ffc1b7b570d4.jpg?asset_id=881c463a-8944-4d83-be82-8bc880332462&amp;img_etag=%22ab16b91222ea2e3841619bfc001add9b%22&amp;size=1024)](https://spark.adobe.com/page/O6bWfGQJsDMY7/images/4057d242-fbfd-4a67-bb61-ffc1b7b570d4.jpg?asset_id=881c463a-8944-4d83-be82-8bc880332462&amp;img_etag=%22ab16b91222ea2e3841619bfc001add9b%22&amp;size=1024)
-#### **简评：**
+*校对 文锦 上传 WJ*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26175352/1000x-1.jpg)图片来源：Bloomberg
+据零对冲（ZeroHedge）11月26日报道，由于中共冠状病毒大流行，使华特迪士尼公司（Walt Disney）失去大量游乐园的顾客，生意惨淡。华特迪士尼公司周三晚些时候表示，将在游乐园裁员约3.2万人，比9月份宣布的2.8万人增加了4000人。该公司在向美国证券交易委员会提交的文件中表示，此次裁员将主要在2021年上半年进行。
 
-英国外交大臣拉布表示，英国正考虑将其法官撤出香港最高法院，以回应中共国对香港人权和自由的侵蚀；拉布也开始与英国最高法院院长商讨英国法官担任香港终审法院非常任法官是否仍然合适。
+本月早些时候，在南加州，由于州政府不确定何时允许公园重新开放，迪士尼表示，将从南加州的游乐园中解雇更多雇员。
 
-文中还引述了英国政府关于香港的半年度报告，批评中共国未能履行其对香港的国际责任和制定了违反香港自治和威胁人权和自由的法案。
+华特迪士尼公司本月早些时候报告的第三季度业绩揭示，中共冠状病毒大流行严重打击了迪士尼公司的如电影制作室、游乐园和邮轮这样的传统业务，但媒体业务却得到突飞猛进的发展。游乐园第三季度亏损11亿美元，但点播视频平台Disney+的用户数量打破了预期，这项业务收入的增加弥补了游乐园的损失。
 
-然而中共国拒绝英国的批评，指责英国企图干涉香港和中共国内政，行政长官林郑月娥则形容英国在实行“双重标准”。
+迪士尼今年早些时候重新开放佛罗里达州的游乐园和美国以外的一些游乐园。这些重新开放的游乐园实施了严格的社交距离、病毒检测和使用口罩等措施，没有出现新的重大中共冠状病毒疫情。不过，上月底，法国为对抗第二波疫情又进行了新的封城，巴黎迪士尼乐园被迫再次关闭。迪士尼在上海、香港和东京的游乐园仍然开放。
 
-所有这一切让我们更加认清中共的本质，中共破坏了《香港基本法》和一国两制。如果没有了外籍法官担任非常任法官，那会更严重打击香港司法制度的公信力，香港司法制度将再无正义可言！
+华尔迪士尼公司第三季度总收入没有减少，变化是游乐园的生意大减，而网上媒体业务迅速增加。前者促使公司大量裁员，后者虽然收入大量增加，但不需要雇佣很多员工。这种情况笔者认为对社会会产生诸多不良影响。大量的失业会给政府增加救济负担，同时也会造成失业人员颓废、抑郁和其它心里疾病的增加，以至社会犯罪的增加。
 
-我们呼吁越来越多的民主自由的国家团结起来，为香港发声，就是为自由正义发声，也是为自己的未来发声！
+零对冲记者认为，如果华尔迪士尼公司把在2015年至2018年期间回购的数十亿百亿迪士尼股票的钱省下来，用来在现在这样的危机中支付工人的工资，而不是解雇那么多员工将是一件好事。
 
-#### **原文翻译：**
+笔者要问，您认为华尔迪士尼公司的老板会把不让员工失去工作做为他们的首要任务吗？这些大佬考虑的永远是金钱、资本和利益。看看福克斯新闻，自从被迪士尼买下后，它很快从说真话的媒体变成了与CNN、NBC、华盛顿邮报和纽约时报等主流媒体没有很大区别的假新闻媒体。而且迪士尼力挺“十亿菲”，背后与中共勾兑，最终难逃竹篮打水一场空的结局。
 
-## 外长称：英国正考虑是否将英国法官撤出香港最高法院
+川普总统连任后，不用多久，就会将美国就业重新拉回到疫情以前的水平。美国人民将恢复以往的热情，努力工作，重新建造美好的家园，让美国再次伟大，引领世界！
 
-[![](https://spark.adobe.com/page/O6bWfGQJsDMY7/images/dd08dfbb-7637-4699-9f88-d6407896f80d.jpg?asset_id=db8a03b0-5aeb-4bb7-97fe-58c228764935&amp;img_etag=%222c057bcd5f3cb3f8ffa15bf9c3627114%22&amp;size=1024)](https://spark.adobe.com/page/O6bWfGQJsDMY7/images/dd08dfbb-7637-4699-9f88-d6407896f80d.jpg?asset_id=db8a03b0-5aeb-4bb7-97fe-58c228764935&amp;img_etag=%222c057bcd5f3cb3f8ffa15bf9c3627114%22&amp;size=1024)
+*[参考链接](https://www.zerohedge.com/markets/disneys-thanksgiving-present-another-4000-layoffs-brings-total-32000)*
 
-**多米尼克·拉布（Dominic Raab）表示，他正在考虑此举，以回应中共国对香港权利和自由的侵蚀。**
-
-英国外交大臣多米尼克·拉布（Dominic Raab）表示，他正在考虑是否撤回“允许英国法官在香港最高法院任职”的机制，以回应他所称的中共国企图（侵蚀）破坏承诺给香港的自治和自由。
-
-[![](https://spark.adobe.com/page/O6bWfGQJsDMY7/images/ce19be58-d8b5-431a-81e1-be603defdb38.jpg?asset_id=c1b50297-49c2-48a1-b583-6a89db834cd6&amp;img_etag=%22593130fe5efa0e45c3d7c2e542cdf21a%22&amp;size=1024)](https://spark.adobe.com/page/O6bWfGQJsDMY7/images/ce19be58-d8b5-431a-81e1-be603defdb38.jpg?asset_id=c1b50297-49c2-48a1-b583-6a89db834cd6&amp;img_etag=%22593130fe5efa0e45c3d7c2e542cdf21a%22&amp;size=1024)英国外交大臣多米尼克-拉布。资料图片：唐宁街10号，图片来自 Flickr。
-
-他的评论来自英国政府周一发布的关于香港的半年度报告。它把6月30日《国安法》的实施描述为“明显并严重违反了《联合声明》”，其中阐述了香港1997年移交的条款，以及对香港人民权利和自由的威胁。
-
-在这份报告中，拉布表示他正在考虑何时与英国最高法院院长进行磋商，讨论审议“英国法官担任香港终审法院非常任法官的职位是否仍然合适。”
-
-在香港最高法院的17名非永久性法官中，有13名外国籍法官，其中包括8名英国人。
-
-这份29页的文件着重指出了几起被认为侵犯香港自治的行为，包括政府推迟立法委员会选举的决定，罢免（办理）与抗议有关的案件的法官，以及香港政府对香港电台（RTHK)节目的审查。
-
-该报告的最后结论是批评中共国未能“履行其对香港的国际责任，制定了违反其自治权及威胁扼杀其自由的法案。”
-
-[![](https://spark.adobe.com/page/O6bWfGQJsDMY7/images/40b0c4f2-763d-4418-9fa8-e747418442b9.jpg?asset_id=5db3ded9-3479-4b81-815d-19a1134d39f3&amp;img_etag=%221eec61b21f5330ab15fd0cd6628dba29%22&amp;size=1024)](https://spark.adobe.com/page/O6bWfGQJsDMY7/images/40b0c4f2-763d-4418-9fa8-e747418442b9.jpg?asset_id=5db3ded9-3479-4b81-815d-19a1134d39f3&amp;img_etag=%221eec61b21f5330ab15fd0cd6628dba29%22&amp;size=1024)资料图：香港政府
-
-自《国安法》实施以来，前殖民国英国延长了香港BNO护照持有人的移民权利， 暂停了与香港的引渡（安排）条约，并将其对中国的武器禁运扩大至香港。
-
-行政长官林郑月娥在脸书上发文称，这份报告是“彻底执行双重标准”，引用了英国自己的国家安全机构以及其将地方选举推迟一年的决定。
-
-**“公然企图干涉”**
-
-香港政府在一份声明中反对该报告的“全面攻击和毫无根据的指控”，并捍卫其取消四名民主派议员资格的决定。
-
-中共国将英国的报告描述为“公然企图干预香港和中共国的内部事务”，并说中共国政府已经履行了23年前《联合声明》中自己的职责。现在该是英国人“醒来吧，别再做干涉香港事务的殖民旧梦”的时候了！
-
-[原文链接](https://hongkongfp.com/2020/11/24/foreign-minister-says-uk-is-considering-banning-british-judges-from-sitting-on-hong-kongs-top-court/)
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/O6bWfGQJsDMY7/)
-[![](https://spark.adobe.com/page/O6bWfGQJsDMY7/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/O6bWfGQJsDMY7/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-0
+1+

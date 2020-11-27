@@ -1,27 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆革星评：感恩节里话感恩
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/594712/)
+## 白宫新闻发言人关于对迈克尔·t·弗林将军的赦免的声明
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/594760/)
 
-多伦多枫叶农场 文星（一号）
+新闻简述：川普总统签署了对弗林将军的全权赦免令。该命令意义深远，它不仅将正义还给一位无辜的美国英雄—弗林将军，同时也提醒了全体美国人民要对拥有巨大权力的政府和情报部门的高官们进行严密监督，以确保他们维护美国的民主法治而不是追求党派政治见解（站在各自党派立场打击对手）。这项在感恩节之际签署的赦免令，最完美地表达了感恩节的象征意义。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26204515/WH_20201125_Flynn_coverphoto.png)[图片来源](https://www.reutersconnect.com/discover)
+[阅读白宫英文原文](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-regarding-executive-grant-clemency-general-michael-t-flynn/)
 
-校对 上传 小鸥
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26201733/%E6%81%A9.jpg)图片来自 Prince George Matters
-11月26日，今年美国感恩节，《圣经》说“凡事谢恩”，这应该是很多节日中一个最有意义的节日。美国作为世界上最具民主法治的国度，应该把感恩的灵魂输送到世界各个角落。郭先生倾心在感恩节直播，感恩之心满溢。
+**Statement from the Press Secretary Regarding Executive Grant of Clemency for General Michael T. Flynn**
 
-首先，要感恩父母和家庭，生身父母不可忘，家庭相处要感恩。任何珍贵的东西都可以代替，唯有父母不可替代。中国有古语“父母在，不远行”，这是一种感恩的情怀，但现在很多国人在中共恶劣治下离家谋生，很多村庄成了留守村庄，很多家庭成了单亲家庭。即使偶有和父母住在一起的子女，也和父母多不和谐，对父母的感恩或者做不到，或者不感恩，这是很可悲的。
+**白宫新闻发言人关于对迈克尔·t·弗林将军的赦免的声明**
 
-感恩家庭的表现，就是让家庭生活在一个健康向上的氛围之中。夫妇不一定举手齐眉，但一定要相敬在心。对子女则谆谆教诲，以神引领，得正道信仰，积极向上。但是在中共治下，很多人被中共洗脑输灌进畸形的感恩思想，就是“爹亲娘亲不如党亲”，只感谢中共党，感谢中共党超过父母和家庭，甚至还要求带病坚持工作，舍弃父母和家庭去加班反而得到奖金。
+Law & Justice
 
-其次，要感恩爆料革命，救国民出水火，提升了华人的精神境界。爆料革命三年来，把大量的真相曝光于光天化日之下，“一灯能除千年暗，一智能灭万年愚”，诸多真相让许多觉醒的中国人走到一起，合力消灭中共这个邪魔恶党，并建立了新中国联邦。通过爆料革命，越来越多的中国人明白了中共的撒旦本质，明白了中共统治70年来许多天灾人祸的真相，也让中国人从黑暗中走出来，真正富有、体面地立于国际世界。
+法律与正义
 
-当然，还要感恩爆料革命诞生的G系列投资机会。通过参与G系列，谢谢多多的中国人会心生敬畏之心，会过上有信仰的健康生活，会敬天敬地敬父母。而且，爆料革命通过G系列投资项目，彻底改变了几千年来商鞅“弱民五术”的传统，新中国人不仅不会继续贫穷，反而从物质和精神上都会成为一批富裕起来的受尊敬的民族。
+Issued on: November 25, 2020
 
-再次，要感恩神灵不放弃美国，让传统的美国价值复归。目前，中共病毒仍在摧残着美国社会，这个总统上台手按《圣经》宣誓的伟大国度，正经历着前所未有的灾难和痛苦，每天上千人死去，几万人被传染病毒。更可悲的是，一些美国媒体明知真相而不报道，明目张胆地传播虚假信息，甚至直接封杀总统的信息。但至暗时刻即将过去，神灵仍在佑护着这个国家。
+发布时间：2020 年11月25日
 
-因为美国越来越多的正义人士站出来，正在协助川普总统揭露大选真相，让中共及其拜登集团造假作弊的犯罪行为曝光于天下。也就是在美国感恩节的今天，欣德尼.鲍威尔大律师已经提起两个决定乾坤的诉讼案件，可以预期川普总统将以辉煌的大选战绩而连任，神会佑护美国这个世界上最伟大的民主法治国家继续伟大，美国也会继续引领世界走向更完善的民主法治自由。
+Today, President Donald J. Trump signed an Executive Grant of Clemency granting a Full Pardon to General Michael T. Flynn.  The President has pardoned General Flynn because he should never have been prosecuted.  An independent review of General Flynn’s case by the Department of Justice—conducted by respected career professionals—supports this conclusion.  In fact, the Department of Justice has firmly concluded that the charges against General Flynn should be dropped.  This Full Pardon achieves that objective, finally bringing to an end the relentless, partisan pursuit of an innocent man.
 
-最后，也要感恩GNEWS传播感恩。引用郭先生的话语，感恩伟大的G-TV，感恩伟大的GNEWS。
+今天，唐纳德·J·川普总统签署了《行政赦免令》，全权赦免迈克尔·T·弗林将军， 因为将军根本就不应该受到起诉。 司法部对弗林将军案的独立审查（由享有信誉的专业人员进行的此项审查）支持了这一结论。 事实上，司法部已经坚定地得出结论，对弗林将军的指控应该被撤销。 全权赦免充分实现了这一目标，最终结束了党派对一个无辜者的不懈追打。
 
+General Flynn should not require a pardon.  He is an innocent man.  Even the FBI agents who interviewed General Flynn did not think he was lying.  Multiple investigations have produced evidence establishing that General Flynn was the victim of partisan government officials engaged in a coordinated attempt to subvert the election of 2016.  These individuals sought to prevent Donald Trump from being elected to the Presidency, to block him from assuming that office upon his election, to remove him from office after his inauguration, and to undermine his Administration at every turn.
+
+弗林将军不需要赦免，他本来就是一个无辜的人。就连采访过弗林将军的联邦调查局特工也不认为他在撒谎。多项调查显示，弗林将军是党派政府官员蓄意破坏 2016 年大选的受害者。这些人试图阻止唐纳德·川普当选总统，阻止他当选后就职，甚至在他的就职宣誓后把他赶下台，并在每一个层面削弱他的政府影响力。
+
+The prosecution of General Flynn is yet another reminder of something that has long been clear:  After the 2016 election, individuals within the outgoing administration refused to accept the choice the American people had made at the ballot box and worked to undermine the peaceful transition of power.  These efforts were enabled by a complicit media that willingly published falsehoods and hid inconvenient facts from public view, including with respect to General Flynn.  They amounted to a brazen assault on our democracy and a direct attack on our fundamental political values.
+
+对弗林将军的起诉再次提醒人们一个长期以来就已经很清楚的事实：2016 年大选之后，即将离任的政府内部人士拒绝接受由美国人民通过投票做出的选择，并试图破坏权力的和平过渡。他们让一个串通一气的媒体，自愿公开发表虚假信息，在公众视野中隐藏不利事实，包括对弗林将军的虚假报道。他们对我们的民主制度进行了无耻的攻击，对我们基本政治价值观进行了直接攻击。
+
+While today’s action sets right an injustice against an innocent man and an American hero, it should also serve as a reminder to all of us that we must remain vigilant over those in whom we place our trust and confidence.  The people who sit atop our intelligence and law enforcement agencies have tremendous power to affect the lives of their fellow citizens.  The American people must always take care to scrutinize their actions, to hold them accountable, and to ensure that they use their immense power to uphold the rule of law rather than to harass, persecute, and jail their political opponents in pursuit of partisan political agendas.
+
+虽然今天的行动纠正了对一位无辜的人和一位美国英雄的不公正待遇，但它也应该提醒我们所有人，我们必须对那些我们所信任和有信心的人保持警惕。我们情报机构和执法机构的高层人员拥有巨大的权力来影响公民们的生活，美国人民必须自始自终地谨慎审查他们的行动，追究他们的责任，并确保他们运用自己的巨大权力来维护法治，而不是为了追求党派政治见解而骚扰、迫害和监禁他们的政治对手。
+
+Happy Thanksgiving to General Flynn and his family, and thank you all for your great service to our Nation!
+
+祝弗林将军和他的家人感恩节快乐，感谢你们所有人对我们国家的伟大贡献!
+
+翻译【奔腾的长江】校对【Cyndi】编辑【Isaiah4031】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22111053/VOG-Rose-Garden-Team.png)
 0
