@@ -1,35 +1,94 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家重磅&#8211;《路德社》精选主题专栏：《乔治亚州的诉讼文件》104页全文翻译
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/595631/)
+## 《路德社》精选主题专栏： 乔拜登拥有5种超越选举常规的神奇方式
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/596178/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27053639/QWRdLqry-0-wm-1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27053654/QWRdLqry-1-wm-1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27053715/QWRdLqry-2-wm-1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27053745/QWRdLqry-3-wm-1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27053807/QWRdLqry-4-wm-1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27053840/QWRdLqry-5-wm-1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27053902/QWRdLqry-6-wm-1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27053923/QWRdLqry-7-wm-1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27053946/QWRdLqry-8-wm-1.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27054006/QWRdLqry-9-wm-1.png)
+《路德社》精选主题专栏组出品
+
+这是一篇很有趣的文章，文中列举推演了2020本次美国大选中选片大战中，出现的乔-拜登又有5种超越选举常规的神奇方式
+
+诚然，记者界应该对乔-拜登的历史性胜利的不合理性感到好奇，但是他们并没有说出来，至少可说这是奇怪的。
+
+在客观新闻记者为乔-拜登宣布胜利而兴奋的时候，记者们却忽略了这位民主党人在2020年大选中的表现是多么不平凡。这不仅在于这位前副总统可望成为美国历史上最年长的总统，而是源于他在今年的民调中取得的成绩。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27083043/%E6%88%AA%E5%B1%8F2020-11-28-01.47.31-1.png)
+候选人乔-拜登（Joe Biden）在2020年活跃选民方面非常有效，他“获得了创纪录的票数”，比奥巴马在2012年连任时获得的票数多出1500多万张。令人惊奇的是，他成功地确保了胜利，同时也在全国几乎所有的风向县失利。直到现在，还没有任何一位总统候选人能有如此的选举绝技。
+
+虽然拜登在美国每个城区县的总票数都低于希拉里-克林顿2016年的总票数，但在佐治亚州、密歇根州、威斯康星州和宾夕法尼亚州的大都会区，他的表现却超过了她。更令人惊讶的是，尽管民主党在全国各地的地方众议院和州立法席位上普遍失败，但这位前副总统的得票率却创下了历史新高。
+
+他是在初选得票率比他的共和党对手低的情况下，进入大选后才完成这一切的。显然，这些都是巨大的、出乎意料的成就，通常会得到记者界的精细分析，但不知何故，在纽约市和华盛顿特区的新闻工作室的庆祝活动中，这些成就大多没有被提及。
+
+现在正在进行的大规模全国性政治调整，可能是这些令人惊讶的颠覆性事情的一个原因。然而，这样从帽子里掏出这么多兔子，还是没有人能够否认拜登是一个一流的竞选者和政治家，美国以前从未见过这样的人。让我们来解析一下他在2020年的政治巫术到底有多独特。
+
+1. 8千万票
+
+我的天啊！很多美国人都出动了，支持一位在位近50年的华盛顿政客。想想看，近一个半世纪以来，还没有哪位收获选票的现任总统却在竞选连任中依然落败。
+
+特朗普总统获得了比自2016年获胜以来更多的1000多万张选票，但拜登的吸引力如此之大，以至于超过了特朗普总统在少数族裔选民中的支持率纪录。拜登还打破了奥巴马自己的普选总票数，这真的让人怀疑2008年和2012年或许是不是拜登将奥巴马拉过终点线。
+
+这位前副总统成功地收获了创纪录的票数，同时在选民热情的衡量标准上一直落后于总统特朗普，证明了他的政治直觉是多么敏锐。拜登是如此精明，以至于他促使对他竞选活动不热心的选民以创纪录的数量投票给了他。
+
+2. 虽输掉大部分风向县，但仍能获胜。
+
+拜登将成为60年来第一位在选举中丢掉俄亥俄州和佛罗里达州，仍然胜选的总统。一个世纪以来，这两个州始终预示着全国的结果，它们被认为大致代表了整个美国的大熔炉。尽管全国民调显示拜登在这两个州都有领先优势，但他还是在俄亥俄州输掉了8个百分点，在佛罗里达州输掉了超过3个百分点。
+
+拜登以显著的差距输掉这些关键的风向选区，却仍然赢得了全国大选，这极具新闻价值。自1960年据称黑手党帮助约翰-肯尼迪在伊利诺伊州战胜理查德-尼克松以来，还没有一位美国总统玩出这么巧妙的把戏。
+
+更令人难以置信的是，拜登在失掉了全美几乎所有历史性风向县后，正向赢得白宫迈进。《华尔街日报》和《大纪元时报》独立分析了美国各地19个县的结果，这些县有40年的几近完美的总统投票记录。除了华盛顿的克拉姆，川普总统赢得了每一个风向县。
+
+而前副总统以约3个百分点的优势拿下了克拉姆，川普总统在其他18个县的胜率平均超过了16个百分点。在一个更大的清单中，自2000年以来，58个风向县正确投出了总统，川普以平均15个百分点的优势赢得了其中的51个，而其他7个县则以4个百分点左右的优势被拜登赢得。风向县压倒性地选择了川普总统，但拜登却找到了一条胜利之路。
+
+3. 拜登除在少数城市外均落后于克林顿
+
+有着精准记录的民调专家、华盛顿特区民主研究所所长帕特里克-巴沙姆强调了他的两位同事——大数据民调公司的民调大师理查德-巴里斯和《华盛顿邮报》选举分析师罗伯特-巴恩斯——的两点意见。巴里斯指出，2020年的选举回馈上有一个统计上的怪现象：”除了密尔沃基、底特律、亚特兰大和费城，拜登在全国所有主要城市地区的表现都输于希拉里-克林顿。”
+
+巴恩斯补充说，在那些 “民主党人治理的摇摆州的大城市……选票甚至超过了登记选民的数量”。在那些最重要的州，如此多的邮寄选票从这些城市涌入拜登，以至于他打出了破纪录的数字，推翻了看起来对川普总统来说很舒适的领先优势的州总数。
+
+如果民主党成功地取消选举人团，拜登在少数城市搅动出压倒性选票总数的神奇方法，应该会让民主党立于不败之地。
+
+4. 尽管民主党在其他地方都输了，但拜登还是赢了。
+
+兰迪-德索托在《西部日报》上指出：”唐纳德-川普几乎是美国历史上唯一一位本党在众议院获得了多数席位，却失去连任的现任总统。”  这才是拜登的奇迹!
+
+在2020年，《库克政治报告》和《纽约时报》将27个众议院席位列为进入选举日的对手席位。现在，共和党似乎已经赢得了全部27个席位。民主党没能翻盘众议院任何一个州席位，而共和党则在新罕布什尔州翻盘了众议院和参议院，并在全国范围内扩大了对州议会的主导权。
+
+民主党立法竞选委员会的发言人克里斯蒂娜-波利齐甚至表示。”很明显，川不是共和党立法候选人的锚，他只是一个浮标。” 令人惊奇的是，拜登击败了那个把其他所有共和党人都举向胜利的人。这才是历史性的!
+
+5. 拜登击败了川普的决定性的初选票数。
+
+过去，初选总票数在预测大选获胜者方面非常准确。政治分析家大卫-查普曼强调了在选举前的三个历史事实。
+
+第一，没有任何一位获得初选总票数75%的现任总统失去连任。第二，川普总统获得历史第四高的94%的初选票数（高于德怀特-艾森豪威尔、尼克松、克林顿或奥巴马）。事实上，自1912年以来，川普是仅有的五位获得90%以上初选票的现任总统之一。
+
+第三，川普在2020年创造了在任者获得初选票最多的纪录，当时有超过1800万人为他投票（之前的纪录是比尔-克林顿保持的，只有这个数字的一半）。尽管川普在初选中获得了历史性的支持率，但拜登仍能在大选中取得胜利，这就颠覆了此前一个世纪的选举数据。
+
+乔-拜登取得了“不可能的”成功。有趣的是，很多记者没有指出这一点。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27083339/01_CN_20201116-1.jpg)
+文中出现的五种神奇方法正如作者所说，“应该”会引起记者们很自然的好奇心，但是，几乎全美国的多数记者以及媒体平台都选择避而不谈，而是，媒体迅速宣布“拜登胜出”。
+
+这种反常也许只有爆料革命中的新中国联邦人才早就知道其中的原因和奥秘。
+
+正如，文贵先生所说：“这世界多疯狂呀！有人想强奸一个国家，想要盗走一个总统！”
+
+郭文贵先生三年爆料直播都在坚持不屑发出警醒世界的呼吁之声，但是世界依然在沉睡的美梦中无法被唤醒。在美国大选选票闹剧发生之前，也许只是我们爆料革命的战友们通过郭先生的三年直播信息传递了解并深信这一切的邪恶源于中共。但是，也正是更加了解真相的新中国联邦人在这次美国大选几乎沦陷的历史时刻也发挥着扭转乾坤的关键作用。一切源于正义，止于真相！
+
+美国各届高层，美国民众以及世界各阶层人士都是经历了2020年滑稽的美国大选选票操纵才逐步醒来，才看到他们的民主世界正在崩塌，他们的媒体早就被悉数买通泯灭良知变成了传递假新闻和掩盖真相的帮凶。所有党派各阶层高位人士都成为沦陷的沼泽，涉嫌出卖国家的人士数量惊人。
+
+川普总统也终于痛下决心宣布：“为了国家安全，必须立即终止230法案！”
+
+相信川普总统的决心会带来美国媒体界的巨变。随之而来的也许就是掀翻拜登“赢得”选票神奇手法操纵者们的假面具！以及进行更加彻底的“排干沼泽”的绝地反击！
 
 
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055107/ziYZH4tH01-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055201/ziYZH4tH02-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055226/ziYZH4tH03-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055259/ziYZH4tH04-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055325/ziYZH4tH05-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055347/ziYZH4tH06-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055407/ziYZH4tH07-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055427/ziYZH4tH08-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055446/ziYZH4tH09-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055505/ziYZH4tH10-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055528/ziYZH4tH11-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055615/ziYZH4tH12-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055654/ziYZH4tH13png-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055714/ziYZH4tH14-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055733/ziYZH4tH15-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055754/ziYZH4tH16-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055813/ziYZH4tH17-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055834/ziYZH4tH18-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055854/ziYZH4tH19-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27055912/ziYZH4tH20-wm.png)
+> For purposes of National Security, Section 230 must be immediately terminated!!!
+> — Donald J. Trump (@realDonaldTrump) [November 27, 2020](https://twitter.com/realDonaldTrump/status/1332175155104247808?ref_src=twsrc%5Etfw)
 
 
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060020/43VXTx4z01-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060050/43VXTx4z02-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060118/43VXTx4z03-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060147/43VXTx4z04-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060214/43VXTx4z05-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060241/43VXTx4z06-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060308/43VXTx4z07-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060335/43VXTx4z08-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060402/43VXTx4z09-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060429/43VXTx4z10-wm.png)
 
 
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060531/SxGmk6Eb01-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060550/SxGmk6Eb02-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060610/SxGmk6Eb03-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060635/SxGmk6Eb04-wm.png)
-
+[援引原文–作者：J.B. Shurk](https://thefederalist.com/2020/11/23/5-more-ways-joe-biden-magically-outperformed-election-norms/)J.B.舒克是一个来自丹尼尔-布恩的傲骄美国人。
 
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060718/UUr5eNjN01-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060738/UUr5eNjN02-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060756/UUr5eNjN03-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060815/UUr5eNjN04-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060835/UUr5eNjN05-wm.png)
-
-
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060915/1dYIGPgN01-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27060947/1dYIGPgN02-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061008/1dYIGPgN03-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061029/1dYIGPgN04-wm.png)
-
-
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061108/kYiz-H3E01-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061127/kYiz-H3E02-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061145/kYiz-H3E03-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061205/kYiz-H3E04-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061225/kYiz-H3E05-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061244/kYiz-H3E06-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061304/kYiz-H3E07-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061322/kYiz-H3E08-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061346/kYiz-H3E09-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061404/kYiz-H3E10-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061457/Rr34GMAm01-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061516/Rr34GMAm02-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061538/Rr34GMAm03-wm.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27061556/Rr34GMAm04-wm.png)
-[援引英文版《乔治亚州的诉讼文件》PDF104页原文](https://defendingtherepublic.org/wp-content/uploads/2020/11/COMPLAINT-CJ-PEARSON-V.-KEMP-11.25.2020.pdf)
 
 0

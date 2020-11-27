@@ -1,31 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯：冠博士独特角度解读：中共拜登「百天计划」：握手世卫、增加税收？11/27/2020
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/596144/)
+## 印度禁止了43款中共国背景的移动应用程序
+` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/596348/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
+素材：西林 内新闻：背靠背
 
-主要内容：
+据印度斯坦时报2020年11月24日报道，印度电子和信息技术部根据《信息技术法》第69A条发布了一项命令，禁止了43款中共国背景的移动应用程序APP，其中包括电子商务巨头阿里巴巴集团的应用程序。理由是这些应用程序 “从事有损印度主权和完整、印度国防、国家安全和公共秩序的活动”。
 
-1、中共拜登「百天计划」：握手世卫、增加税收？
+2020年9月2日，印度电子和信息技术部再禁118款中国应用，名单中包括PUBG Mobile等多款腾讯旗下的应用，累计239款，理由是担心它们“不利于主权与廉正……捍卫印度，国家安全和公共秩序”。
 
-2、向富人征税
+8月6日再禁15款；
 
-3、更新盟友关系
+7月27日再禁47款；
 
-4、重返《巴黎协定》
+6月30日印度宣布禁用包括TikTok在内的59款中国应用程序（APP），理由是这些都是国家安全问题。
 
-5、结束“非人道”的移民政策
+更多信息请点：https://www.hindustantimes.com/india-news/india-s-november-24-ban-on-chinese-apps-is-the-4th-strike-since-ladakh-stand-off/story-fvTucxibvLsOHirwehcRcJ.html
 
-6、推动法案解决种族痼疾
-
-7、“政坛老手”再领政局
-
-以下视频是详细内容：
-
-
-
-[援引原文](https://www.youtube.com/watch?v=CfLkQSU0g0k&amp;feature=youtu.be)
+https://3g.163.com/news/article/FSE515PA00018AOR.html?clickfrom=channel2018\_news\_international\_newslist#child=international&offset=22
 
 0
