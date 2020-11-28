@@ -1,23 +1,12 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班农疫情作战室527/528期
-` GM47` [轉載自GNews](https://gnews.org/zh-hans/597482/)
+## 听好了，不尊敬人的假媒体，“永远不要那样跟总统讲话”
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/597681/)
 
-战友之家新闻译制组制作
-
-**527****：死亡之星**
-
-**随着新闻周期的重新设定，班农四人组讨论了有关CCP病毒大流行的最新消息。Darren Beattie连线发表见解。**
-
-
-
-
-
-**528****：独一无二**
-
-**随着新闻周期的重新设定，班农，拉希姆·卡萨姆，杰克·麦克西和格雷格·曼兹（Greg Manz）讨论了有关CCP病毒大流行的最新消息。**
-
-
-
+[视频源](https://www.youtube.com/watch?v=y9RRjk2PZIA)
+川普总统于2020年11月26日参加了与军方举行的感恩节电视电话会议。随后举行的新闻发布会上，一名记者在对川普总统提问的时候，甚至没有表现出对人的最起码的尊重，反映出假媒体一直以来对美国总统的仇恨。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27172734/Trump_20201126-figure1.jpg)图片来源：微读圣经APP
+翻译：【GM80】字幕：【相机过热啊】编辑：【Isaiah4031】
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22111053/VOG-Rose-Garden-Team.png)
 0

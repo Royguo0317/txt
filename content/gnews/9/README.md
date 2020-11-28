@@ -1,83 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 浅谈GTV的独特性和价值 &#8212;- 230条款送的大礼
-` 喜马拉雅美国·康州盘古农场` [轉載自GNews](https://gnews.org/zh-hans/598001/)
+## 《路德时评》重磅解读：川普总统再次喊到“亨特在哪儿！”
+` GM31` [轉載自GNews](https://gnews.org/zh-hans/598129/)
 
-作者：康州盘古农场 – 光头波波
-
-审核：Truemanman
-
-川普总统感恩节夜晚发推，敦促立即取消“230条款”。郭先生随后发盖特，向战友们分享这巨大的利好消息！引用瞿水台战友的推文“取消230条款，意味着美国新闻结构一定会发生巨变，随后会诞生新的金融方式！一旦取消230条款，**上万亿的价值将砸向咱**！
-
-同时，文贵先生在感恩节直播时宣布，GTV-America有线电视台立即成立，4k电视卫星上线，24小时不间断直播，在美国华盛顿特区、旧金山、纽约、费城等州，以及英国、日本、台湾、澳大利亚、新西兰等国家建立基地。抓住历史契机，在美国建立一个能代表神和相信神的人民的声音！
-
-咱友们，这份感恩节礼物，中不中？
-
-笔者将从“230条款”切人，粗浅的分析它的取消对美国各大科技巨头和“主流媒体“的影响，以及为什么咱们GTV会是巨大的受益者。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27222813/%E5%9B%BE%E7%89%875-13.png)图1 川普总统推文![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27222854/%E5%9B%BE%E7%89%876-18.png)图2 瞿水台推文![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27222937/%E5%9B%BE%E7%89%877-18.png)图3 瞿水台推文 – GTV America电视台
-**230条款是什么**
-
-*1996**年，美国制定了《通讯规范法案》（CDA），其中的第230条规定，互联网服务供应商无需为第三方用户的言行负法律责任，同时也保护了互联网服务供应商出于善意考虑，而对志愿部分冒犯性的内容进行限制，或者赋予他人技术手段来限制冒犯性内容的行为 —-* 来自维基百科。
-
-**为什么要取消230条款**
-
-引用11月27日[《路德时评》](https://www.youtube.com/watch?v=X-zXN4jfFLs&amp;ab_channel=%E8%B7%AF%E5%BE%B7%E7%A4%BELUDEMedia)（路安墨谈），该条款是大科技公司的护身符：
-
-1. 社交公司不必为第三方言论负责。
-2. 他们可以删除他们想要删的任何言论。
-
-
-从2017年文贵先生帐号被封，爆料革命战友们推特帐号大规模被禁，到美国大选前期，共和党议员，甚至川普总统的推特帐号被查封、被禁言。本来为保护人民言论自由的“230条款“，已成为中共恶魔捆绑民主，3F美国的护身符和狼牙棒。
-
-**取消230条款对科技公司和“主流媒体“的影响**
-
-简而言之，以谷歌、脸书、推特为代表的科技巨头，将面临被拆分的命运。《CNN》，《纽约时报》等也将遭遇前所未有的信任危机，失去媒体的地位，最终走向破产、拆分的终点。
-
-**对GTV的机遇**
-
-这是万亿级的经济价值！笔者将从现有市场、人才技术、新兴市场三个方面与大家解析。
-
-**现有市场**
-
-以脸书、推特为代表的社交媒体市场，将大部分迁移至GTV和盖特平台。在目前假媒体、假信息满天飞的现状下，民众非常渴求真相、真信息。在笔者上一篇[文章](https://gnews.org/zh-hans/588913/)中有个例子，在2020年6月时，Parler的日活用户还只有150万，但在11月美国总统大选那一周，Parler新增350万注册用户，日活用户激增至400万。这意味着，以时政、新闻为主的社交媒体平台，用户粘性很低，他们只关乎信息的内容。那么，GTV作为“为真不破”的平台，自然将吸引这部分用户群。
-
-另外，传统媒体也将因信任危机而落寞。这时宣布成立的GTV-America电视台，新中国联邦电视台，必将成为世界人民能够信任的新闻媒体。
-
-**人才技术**
-
-谷歌、脸书、推特之所以强大，是因为在那里工作的人才。笔者身边的朋友和同学（美国名校），大部分都在这些公司工作，笔者曾经也以能进入这些公司为目标。那么，当这些公司被拆分后，大量的科技人才流入市场，GTV的巨大前景，必将吸纳这些有经验的人才。
-
-同时，GTV也能够收购、兼并那些被拆分的资产，包括技术、产品、团队等等。
-
-人才、技术、团队、资金，会形成一个良性循环，如滚雪球般，快速成长。
-
-**新兴市场**
-
-现有大科技公司的解体，必将让市场重新洗牌。在新的金融体系、媒体体系、世界格局下，笔者深信会有很多新兴市场出现。GTV因为拥有人才团队和雄厚的资本，必能应对这样的变革，抓住时代的机遇，成为新兴市场的主角。
-
-**被拆分的下场 —-**** ****AT&T（美国电话电报公司）**
-
-AT&T拆分重组是美国历史上非常著名的拆分案例。AT&T的前身是电话发明人贝尔于1877年创建的美国贝尔电话公司。到1984年被拆分前，AT&T几乎垄断了美国的州内、州际和国际的电话业务。AT&T在当时的美国社会的科技行业，可谓是一手遮天，像极了如今的谷歌、脸书等公司。在拆分之后，其大量的核心资产被收购或变成了独立的公司。AT&T虽然保留了品牌，但渐渐没落成为美国电信市场中的一员。
-
-笔者在这不评价AT&T拆分的好坏，但我们需要看到的是，当谷歌、脸书、推特被拆分后，它们必将失去对市场的垄断地位，而这是恰恰是GTV的巨大契机！
-
-取消“230条款”，**上万亿的价值将砸向咱**！
-
-资料来源：
-
-[https://zh.wikipedia.org/wiki/%E7%BE%8E%E5%9B%BD%E7%BD%91%E7%BB%9C%E5%AE%A1%E6%9F%A5#cite\_note-15](https://zh.wikipedia.org/wiki/%E7%BE%8E%E5%9B%BD%E7%BD%91%E7%BB%9C%E5%AE%A1%E6%9F%A5#cite_note-15)
-
-[https://baike.baidu.com/item/AT&T%E5%88%86%E6%8B%86%E9%87%8D%E7%BB%84?](https://baike.baidu.com/item/AT&amp;T%E5%88%86%E6%8B%86%E9%87%8D%E7%BB%84?)
+[《路德时评》2020年11月27日晚间节目](https://www.youtube.com/watch?v=A4pJIahf2zw)继续跟进美国大选舞弊案调查最新进展，川普总统再次发推提及亨特·拜登，主要内容如下：
 
 
 
+**一、宾州参议院收回认定总统选举人的权力**
+
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27225119/%E5%9B%BE%E7%89%87-17.png)](https://twitter.com/htommy998/status/1332388039776108544)图片地址：[https://twitter.com/htommy998/status/1332388039776108544](https://twitter.com/htommy998/status/1332388039776108544)
 
 
-> [浅谈GTV的独特性和价值 — 盖特的价值](https://gnews.org/zh-hans/588913/)
+
+11/27重磅内容[1]：在史蒂夫·班农作战室时，宾州参议员道格·马斯特安农宣布，立法机构将起草一项联合决议，从州务卿手中收回任命总统选举人的权力。州官由于腐败，导致立法机构收回代理权，这是美国政治史上的一个让人开眼界的案例！法律保障立法机构的权力，宾州倒下将触动多米诺骨牌效应！
+
+1. 立法机构包括参议院和众议院，宾州两院目前全被共和党控制；
+2. 宾州几件法律行动在同时进行：A、立法会的听证会；B、川普总统发起的法律诉讼（已上至最高法）；C、鲍威尔的起诉诉状；
+3. 立法会举行听证会后已有所行动，从州务卿手中收回任命总统选举人的权力，随后亚利桑那州、密歇根州等州的立法会听证会也会陆续开始；
+4. 本州选民投票后的结果由州务卿决定，由该州立法机构认定总统身份；
+5. 川普总统律师团队在宾州的诉讼将上至最高法，由于证据确凿同时大法官以保守派法官占多数，因此最高法诉讼一定能赢，其他州的诉讼如果再次上诉到最高法就都能胜诉；
 
 
+**二、绿党可检查威斯康星州投票机的源代码**
+
+Gateway Pundit27日新闻报道[2]：2020年10月30日，绿党候选人Jill Stein 最终赢得了她的开创性案件，使她的竞选活动有权检查威斯康星州的投票机源代码。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27225218/%E5%9B%BE%E7%89%87-18.png)图片来源：[https://www.thegatewaypundit.com/wp-content/uploads/Jill-Stein-MI-600×300.jpg](https://www.thegatewaypundit.com/wp-content/uploads/Jill-Stein-MI-600x300.jpg)
+
+由此可从科技层面查清投票系统中的问题，找到系统中问题的真正所在，川普总统可依据此判例争取查看投票软件源代码
+
+三、川普总统发推“询问”亨特去哪儿了！
+
+11月27日川普总统发推[3]抨击媒体的虚假报道，他在推文最后一句询问道：亨特去哪儿了？
+
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27225319/%E5%9B%BE%E7%89%87-19.png)](https://twitter.com/realDonaldTrump/status/1332349861774155778)图片来源：[https://twitter.com/realDonaldTrump/status/1332349861774155778](https://twitter.com/realDonaldTrump/status/1332349861774155778)
+
+1. 这就是一场心理战，也显示出川普总统向对方发起挑战的底气；
+2. 亨特拜登“硬盘门”调查依然在进行，未来一定会追踪法律责任；
+3. “硬盘门”事件后，亨特至今始终没有发声，期间他只参加过一次乔·拜登的庆功会；
+4. 亨特拜登“硬盘门”事件第二季即将开始，拜登家族的腐败行为就涉及到危害国家安全的犯罪行为；
+5. 川普总统此举暗示他已经完全掌握亨特· 拜登的行踪以及他家族的犯罪证据；
+6. 川普总统在2020年1月6日就曾发文：Where is Hunter. 他早在那时就知道拜登家族事件，完全可使用国家安全总统令对拜登家族进行全面监控，监控他们与美国主流媒体和科技大公司的各种私下交易，最终向这些科技公司和主流媒体算总账；
 
 
+未来美国司法机构将查清每张选票的合法性，也将向所有涉嫌违法犯罪的机构公司以及个人追究法律责任。今天，由于观众人数未到25000人，路德社重磅只能放到下期，请大家继续关注！
+
+参考文章：
+
+[1] [https://twitter.com/htommy998/status/1332388039776108544](https://twitter.com/htommy998/status/1332388039776108544)
+
+[2] [https://www.thegatewaypundit.com/2020/11/attention-trump-campaign-green-party-candidate-jill-stein-won-groundbreaking-case-october-gives-campaign-right-examine-voting-machine-source-code/?utm\_source=Parler&utm\_medium=PostTopSharingButtons&utm\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/11/attention-trump-campaign-green-party-candidate-jill-stein-won-groundbreaking-case-october-gives-campaign-right-examine-voting-machine-source-code/?utm_source=Parler&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
+
+[3] [https://twitter.com/realDonaldTrump/status/1332349861774155778](https://twitter.com/realDonaldTrump/status/1332349861774155778)
+
+视频来源：[https://www.youtube.com/watch?v=A4pJIahf2zw](https://www.youtube.com/watch?v=A4pJIahf2zw)
+
+*文章撰写：【重生】    编辑：【GM31】*
+
+*战友之家玫瑰园小队出品*
 
 0

@@ -1,55 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 约翰霍普金斯大学的研究神秘消失，它揭示了尽管有COVID，但2020年的死亡人数不会超过往年
-` 喜马拉雅美国·康州盘古农场` [轉載自GNews](https://gnews.org/zh-hans/597652/)
+## 川普总统的竞选团队继续将法律战打向最高法院
+` 喜马拉雅美国·康州盘古农场` [轉載自GNews](https://gnews.org/zh-hans/597779/)
 
-翻译：康州农场 – 烟波浩淼
-校对：康州农场 –黎明的光芒
-编辑：康州农场 –V
+翻译：康州农场-一花一世界
 
-约翰·霍普金斯大学对世界各地和美国的covid病例进行跟踪。 这个网站被用来吓唬人，让人们呆在家里，与现实世界隔绝。 所以，当约翰·霍普金斯大学的研究表明2020年的死亡人数与往年相比没有增加时，这项研究就必须被取消。
+校对：康州农场-光头波波
 
-Gateway Pundit在8月份的时候就报道过，根据CDC的数据，在所有被标注为COVID死亡的病例中，只有6%的死亡病例完全与病毒有关。 其余的死亡病例平均至少有2 – 3个合并症存在。
+审核：Truemanman
 
+周五，川普2020年竞选活动的法律团队在法庭上遭受了又一次打击，因为费城的联邦上诉法院驳回其律师对宾夕法尼亚州总统选举结果提出异议的讼诉。
 
+斯蒂芬诺斯·比巴斯法官（Stephanos Bibas）代表三位法官组成的小组审查上诉后批示：“自由，公正的选举是我们民主的命脉。对其公正性的指控是很严肃的。但是，仅仅叫喊选举不公是不够的。指控需要具体的讼诉细节及证明。我们这两个方面都没看到。”
 
-> [SHOCK REPORT: This Week CDC Quietly Updated COVID-19 Numbers – Only 9,210 Americans Died From COVID-19 Alone – Rest Had Different Other Serious Illnesses](https://www.thegatewaypundit.com/2020/08/shock-report-week-cdc-quietly-updated-covid-19-numbers-9210-americans-died-covid-19-alone-rest-serious-illnesses/)
+尽管已被联邦法院全面驳回了上诉，川普的律师誓言要向最高法院提起上诉。
 
+川普竞选活动的高级策略顾问史蒂夫·科尔特斯（Steve Cortes）告诉《新闻报》说：“我们将向美国最高法院提起上诉，这一直是我们最终的目标。越早越好。我们希望将这些讼诉呈至最高等法院，而且相信我们有令人信服的论点。”
 
+川普总统的私人律师鲁迪·朱利安尼（Rudy Giuliani）上周对该案进行了辩论，即宾夕法尼亚州的选举结果因其大规模的选民欺诈行为而遭到破坏。但是朱利安尼（Giuliani）并没有提供任何切实的证据来力证此项指控。
 
-我们关于COVID实际数字的报告被广为传播，甚至被特朗普总统转推。
+星期五的美国第三巡回法院法官小组的所有三名法官都是由共和党任命的，其中包括川普任命的比巴斯（Bibas）法官。到2019年为止，川普总统的姐姐玛丽安·特朗普·巴里（Maryanne Trump Barry）曾在该法庭任职了二十年。
 
-**上周末，约翰霍普金斯大学发表了一份研究报告，声称COVID-19****对美国的死亡人数 ****“相对没有影响”。**
+周二，宾夕法尼亚州证明其选举结果对乔·拜登有利，乔·拜登将正式获得基斯通州（Keystone State，宾夕法尼亚州的别名）的20票选票。拜登在宾夕法尼亚州以约80,000张选票领先特朗普。
 
-**遗憾的是，该报告发表后不久，就被从网络上删除。**
+在周五的裁决之后，川普的高级竞选律师詹娜·埃利斯（Jenna Ellis）在推特上写道：“宾夕法尼亚州的激进主义司法机构继续掩盖大规模欺诈的指控。美国最高法院见！”
 
-然而，使用回溯机检索到该报告，这是报告的部分内容。
+评论：美国不仅各级州政府已经腐败不堪，连地方的司法系统也在利益集团的收买下变得腐败不堪。宾州的官司已经违宪，只有最高法才能给出公平的裁决！据最新消息，宾州立法机构将发起决议案，启动对宾州大选结果的争议！这是第一个用宪法赋予的立法权挑战腐败政客及州司法系统的案例。这将对亚利桑那州，密歇根州的选举结果有示范作用。
 
-*约翰**・**霍普金斯大学应用经济学硕士课程助理主任**吉纳维芙·**布莱恩德（Genevieve Briand**）**剖析了COVID -19**对美国死亡人数的影响。她认为，通过将COVID-19**致死数与美国总死亡人数进行比较，可以充分理解COVID-19**对美国死亡人数的影响。*
-
-*根据研究，“与大多数人的假设相反，COVID-19**直接导致的死亡人数并不令人震惊。实际上，相对来说，它对美国的（总）死亡没有影响。”*
-
-该报告说：
-
-*在检索了CDC网站上的数据后，布莱恩德编制了一张图，代表了从2月初到9月初每个年龄段总死亡人数的百分比，其中包括从COVID-19在美国被检测到之前到感染率飙升之后这段时间。*
-
-***令人惊讶的是，COVID-19（发生）前后，老年人的死亡人数保持不变（如下图）***
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27190340/Picture1-29.png)
-*由于COVID-19**主要影响的是老年人，专家们预计老年群体的死亡比例会增加。然而，从CDC**的数据中并没有看到这种增加。事实上，所有年龄组的死亡比例都相对保持不变……*
-
-当布莱恩德查看2020年该季节期间的数据时，与COVID-19相关的死亡人数超过了心脏病的死亡人数。这是非常不寻常的，因为心脏病一直是导致死亡的主要原因。然而，当仔细观察死亡数字时，她注意到一些奇怪的现象。当布莱恩德将2020年和2018年这一时期各个病因的死亡人数进行比较时，她注意到，所有病因的死亡人数并没有出现预期的大幅增加，相反的是，因心脏病导致的死亡人数大幅下降。更令人惊讶的是，数据表明，所有其他原因的死亡人数都出现了这种突然下降的情况。
-
-我们已经报道了几个月了。
-
-美国公众没有得到所有的事实。
-
-评：只有消灭美国的沼泽地和消灭中共，病毒真相才能彻底揭开，美国人民有权知道真相，有权了解这一切的来龙去脉，我们要为因为这个病毒死去和受伤的人民找回真相和正义。
-
-原作者：乔·霍夫特 发布于2020年11月27日下午1:10
-
-原文链接：[Johns Hopkins Study Mysteriously Disappears after it Revealed In Spite of COVID, No More Deaths in 2020 Than In Prior Years (thegatewaypundit.com)](https://www.thegatewaypundit.com/2020/11/johns-hopkins-study-mysteriously-disappears-shows-spite-covid-no-deaths-2020-prior-years/?ff_source=Twitter&amp;ff_medium=PostTopSharingButtons&amp;ff_campaign=websitesharingbuttons)
-
-
+出处：[https://justthenews.com/government/courts-law/us-court-appeals-rejects-trump-campaign-appeal-over-race-pennsylvania](https://justthenews.com/government/courts-law/us-court-appeals-rejects-trump-campaign-appeal-over-race-pennsylvania)
 
 0

@@ -1,43 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 鲁迪•朱利安尼：在哪里可以找到证据（第一部分）
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/597404/)
+## 【军事快讯】伊朗最高级的核科学家27日在首都德黑兰附近被暗杀
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/597445/)
 
-简评/组稿编辑：英国之声；审核：Julia Win
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27164539/1-279.jpg)
-#### 简评：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/24223314/logo-3-1.jpg)
 
-2020 11月3日美国大选之夜荒诞不经的内幕终于被鲁迪·朱利安尼揭开—美国的民主党人是最主要的罪魁祸首。在民主党人精心选择的摇摆州里，政治机构、司法机构和执法机构沆瀣一气。他们在主流媒体的摇旗呐喊之下，共同上演了一场欺骗美国人民，并最终妄想阴谋盗取2020年美国大选结果的大戏。
 
-然而，法网恢恢，疏而不漏。作为川普总统的私人律师及川普律师团队的领头人，朱利安尼及其同仁经过长期不懈的努力，终于向世人展示了所有重要的作案证据。
 
-**听写/翻译: 势不可挡；PR:  Roberts**；**视频字幕：文府**
+香草山写作组 直截了当
 
-**视频翻译：**
+11月27日消息，伊朗国防部发布声明称，27日下午武装恐怖分子袭击了伊朗国防部研究与创新组织负责人穆赫辛·法克里扎德的汽车，法克里扎德在袭击中受伤，后于医院不治身亡。
 
-我们调查发现，这种选民欺诈发生在许多州。有些很容易证明，有些恐怕永远无法证明。某些选民欺诈行为并不重要，因为它不会影响选举结果。所以归根结底，实际上有六个关键州，也有可能是八个关键州：宾夕法尼亚、密西根、威斯康辛、内华达、乔治亚和亚利桑那。在那些州，有大量的证据表明存在不同类型的选民欺诈行为，如果一旦被证实（特朗普的合法）投票，其数量远超乔·拜登获胜的优势。总统对此了如指掌，几乎所有这些都包括在他的诉讼中，所以他相信自己赢得了选举。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27172030/%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91%E4%BC%8A%E6%9C%97%E6%9C%80%E9%AB%98%E7%BA%A7%E7%9A%84%E6%A0%B8%E7%A7%91%E5%AD%A6%E5%AE%B627%E6%97%A5%E5%9C%A8%E9%A6%96%E9%83%BD%E5%BE%B7%E9%BB%91%E5%85%B0%E9%99%84%E8%BF%91%E8%A2%AB%E6%9A%97%E6%9D%801.png)
 
-那么这些证据在哪里？ 不管你相信与否，大多数证据都在公共记录中。你会问，为什么你不知道呢？ 你不知道是因为媒体对此不予报道。你不知道是因为我们还没有机会举行听证会。
+该图显示了2020年11月27日的袭击现场
 
-民主党人在执行这一阴谋欺骗美国人民的时候是精心挑选选区的。他们并没有选中立的地区，他们也没有选共和党和民主党人数相当的地方，他们选择了由民主党严重控制的摇摆州。在那些地方，他们控制着政治机构，司法机构，甚至执法机构，并控制着对其俯首贴耳的媒体界，有些人甚至在位50年或60年之久，所以媒体就可以向着他们，甚至法庭也可以向着他们。
+法克里扎德是伊朗最高水平的核科学家之一，他曾被联合国列入制裁名单。伊朗坚称其核计划仅用于和平的目的，但浓缩铀是军事核武器的重要组成部分。
 
-**听写翻译：TCC；PR: Roberts**；**视频字幕：文府**
+目前尚未明确此次暗杀的幕后推手。有报道指出，内塔尼亚胡曾于2018年在新闻发布会上称，“记住（法克里扎德）这个名字。” 而长期以来，以色列一直被怀疑在近十年间对伊朗核科学家实施了一系列定点清除行动。据路透社报道，以色列对暗杀的消息没有发表任何评论，而美国白宫，五角大楼，国务院和中央情报局也都拒绝评论。
 
-**视频翻译：**
+伊朗则对此事表现出非常强硬的态度。伊斯兰革命卫队指挥官称：“伊朗将为这位科学家报仇。” 伊朗伊斯兰共和国外交部长贾瓦德·扎里夫(Javad Zarif)则在推特上称：“恐怖分子今天谋杀了一位著名的伊朗科学家。这种强烈怀疑是以色列所做的懦弱的行为显示出肇事者铤而走险的好战行为。伊朗呼吁国际社会，尤其是欧盟，结束他们可耻的双重标准，并谴责这一国家恐怖行为”。
 
-让我们回到选民条款，因为这维护着联邦大选。立法机关制定了规则，选举委员会必须遵循规则，选举委员会无理由，也无权更改这些规则。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27172045/%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91%E4%BC%8A%E6%9C%97%E6%9C%80%E9%AB%98%E7%BA%A7%E7%9A%84%E6%A0%B8%E7%A7%91%E5%AD%A6%E5%AE%B627%E6%97%A5%E5%9C%A8%E9%A6%96%E9%83%BD%E5%BE%B7%E9%BB%91%E5%85%B0%E9%99%84%E8%BF%91%E8%A2%AB%E6%9A%97%E6%9D%802.png)
 
-他们可以对特定投票地点的时间或机器数量做出一些小的决定吗？当然可以，但是他们可以做出重大决定吗？ 例如如何计票或采用哪种安全性是必要的？不可以。他们必须严格遵守法律明文规定，和州的法律，不然既违反州法律又违反宪法，因为记住宪法中的规定，立法机关确定国会选举，尤其是总统选举的规则和进行方式.
+川普总统一直对伊核协议持批评态度，并于2018年5月宣布退出伊核协议，并重启因伊朗核协议而得到豁免的对伊制裁。
 
-因此在宾州的法规是，当有缺席人选票时，（民主党、共和党）双方都必须在场以监察选票。宾州有两个地方，主要是这两个城市：费城和匹兹堡，682，770的选票被秘密地计票，绝对未经共和党，大概也可能未经民主党人的审查。这即违反了宾州的法律，也违反了美国选法。现在，这有一个问题，因为宾州最高法院做出了非理性的决定，说它是非理性的决定是因为法院批准民主党提出的5天额外要求，使得他们必须找到某种方法不让特朗普当选。他们说”Present”并不是说你必须去察看选票; “Present”意思是（监票人）只需要在房间里就行了。这当然是荒谬的，法律的存在是有意义的。在计票时让某人呆在房间里的目的是什么？当然是要能看清选票以确保没有作弊，不然就没意义了。
+CNN, NBC, BBC, 路透社等假新闻媒体在法克里扎德被杀消息的报道中，均加入了带有偏向性的批评川普总统对伊政策的言论，并表达了对拜登当选的支持与期待。这进一步证实了被中共操纵的所谓主流媒体试图利用 “强烈站队拜登” 的报道来干扰、误导民意。
 
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+来源：[https://www.cnn.com/2020/11/27/middleeast/iran-top-nuclear-scientist-killed-intl/index.html](https://www.cnn.com/2020/11/27/middleeast/iran-top-nuclear-scientist-killed-intl/index.html)
 
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+[https://www.nbcnews.com/news/world/top-iranian-nuclear-scientist-assassinated-government-says-n1249131](https://www.nbcnews.com/news/world/top-iranian-nuclear-scientist-assassinated-government-says-n1249131)
 
-[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+[https://www.bbc.com/news/world-middle-east-54958361](https://www.bbc.com/news/world-middle-east-54958361)
 
-编辑：【喜马拉雅战鹰团】-点击spark adobe版
-![This image has an empty alt attribute; its file name is 0693d571-8e19-4ced-93ab-0674d167f712.jpg](https://spark.adobe.com/page/0uYhZqOrFBkWv/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-0
+[https://www.reuters.com/article/iran-nuclear-scientist-int/suspected-iranian-nuclear-mastermind-fakhrizadeh-assassinated-near-tehran-idUSKBN2871OG](https://www.reuters.com/article/iran-nuclear-scientist-int/suspected-iranian-nuclear-mastermind-fakhrizadeh-assassinated-near-tehran-idUSKBN2871OG)
+
+
+
+审核发稿：jamie(文胤)
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
+
+更多文章，欢迎浏览[美东香草山农场GNEWS](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+1+

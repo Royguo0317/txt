@@ -1,28 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 大清洗开始:川普清理基辛格，奥尔布赖特等
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/597064/)
+## 俄主流媒体转向：关于美国大选最新消息！
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/597484/)
 
-- 翻译：Victor Torres
+作者：НастяApfel  编辑：青椒文喜 洛夫斯基  文宣：DongDong
 
+**（****1****） ****中共习近平祝贺拜登当选**
 
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+11月26日，yandex.ru报道了习近平向民主党候选人拜登发出贺电，以及王岐山祝贺哈里斯当选副总统的消息。
 
-西班牙2020年11月27日电/西喜社/——在清理了五角大楼和联邦机构之后，川普总统着手处理国防政策委员会中的全球化主义者。
+报道援引了塔斯社和CCTV消息，但做了一些补充。
 
-被罢免的成员包括前国务卿玛德琳·奥尔布赖特和亨利·基辛格，前众议院情报委员会高级成员简·哈曼和前众议院多数党领袖埃里克·坎托。
+“回想一下，美国总统的大选已于11月3日举行，拜登和川普轮流领先。美国主流媒体已经报道了民主党候选人的胜利。拜登本人在向全国发表的讲话中也宣称胜利。”
 
-国防政策委员会是由前国家高级安全官员组成的外部咨询小组，“针对国防事务有关的具体任务，为国防部长和副部长提供独立，知情的建议和意见。 当房子落在邪恶的女巫顶上时，那些厌倦了听信奥尔布赖特和基辛格的人们会像《绿野仙踪》中的蒙奇金斯一样跳舞！
+“此前，中国外交部发言人汪文斌，以色列总统，加拿大，英国，法国，乌克兰，德国，土耳其，斯洛文尼亚，哈萨克斯坦，联合国秘书长和沙特阿拉伯国王的领导人对拜登纷纷表示了祝贺。”
 
-情况正变得越来越好！
+“俄罗斯总统弗拉基米尔·普京尚未对拜登表示祝贺。据俄罗斯领导人德米特里·佩斯科夫（Dmitry Peskov）的新闻秘书说，美国仍在某些州考虑投诉和重新计算选票，否则，选举结果将无法得到正式承认。国家元首将在（美方）完成所有正式手续后祝贺美国当选总统。”
 
-原文链接：[https://themarshallreport.wordpress.com/2020/11/27/the-purge-beginstrump-removes-kissinger-albright-and-more/](https://themarshallreport.wordpress.com/2020/11/27/the-purge-beginstrump-removes-kissinger-albright-and-more/)
+**（****2****）川普****宣布关于民主党在选举中的阴谋和他的胜利**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+美国总统川普再次提醒说，11月3日在美国举行的总统选举被操纵。 共和党再次要求审查投票结果，信息和新闻门户网站报道（EVO-RUS.COM.）。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
+川普对宾夕法尼亚州的支持者发表讲话时说，民主党人输掉了选举。他确信拜登和他的团队作弊了。因此，目前美国领导人确信，”这是一个欺诈性的选举。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+正如川普在宾夕法尼亚州所宣称的，他有证据可以帮助改变选举结果。只要法官愿意听他所说的。
+
+新闻来源：
+
+[1]  [Председатель КНР Си Цзиньпин поздравил Джозефа Байдена с победой на выборах президента США](https://www.vedomosti.ru/politics/news/2020/11/25/848243-predsedatel-knr-pozdravil-baidena-s-pobedoi-na-viborah-prezidenta-ssha)
+
+[2]  [Трамп заявил о махинациях демократов на выборах и своей победе](https://rg.ru/2020/11/26/tramp-zaiavil-o-mahinaciiah-demokratov-na-vyborah-i-svoej-pobede.html)
 
 0
