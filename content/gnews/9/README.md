@@ -1,64 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》重磅解读：川普总统再次喊到“亨特在哪儿！”
-` GM31` [轉載自GNews](https://gnews.org/zh-hans/598129/)
+## 万达全面清空海外地产项目
+` GM77` [轉載自GNews](https://gnews.org/zh-hans/598427/)
 
-[《路德时评》2020年11月27日晚间节目](https://www.youtube.com/watch?v=A4pJIahf2zw)继续跟进美国大选舞弊案调查最新进展，川普总统再次发推提及亨特·拜登，主要内容如下：
+整撰：文錦
+复核：文非
 
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28002158/10-27.png)
 
+11月25日晚间，万达酒店发展公告，美国时间11月24日，公司完成出售芝加哥物业项目。至此，万达集团已将其海外地产项目全部清空。
 
-**一、宾州参议院收回认定总统选举人的权力**
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28002215/11-35.png)
 
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27225119/%E5%9B%BE%E7%89%87-17.png)](https://twitter.com/htommy998/status/1332388039776108544)图片地址：[https://twitter.com/htommy998/status/1332388039776108544](https://twitter.com/htommy998/status/1332388039776108544)
+据此前万达酒店发展披露的信息，芝加哥物业项目总体投资9亿美元，规划总建筑面积约为17.6万平方米，计划建成一座高361米的五星级酒店，建成后将成为芝加哥第三高建筑。该项目进展状况显示，芝加哥项目的高档公寓部分已于2015年9月开始预售，截至2018年12月底，已累计预售约56%之可销售总面积；2016年4月取得规划批准、完成交割，2016年8月开始建设工程，计划2020年完成开发。
 
+而在7月30日，万达酒店发展发布公告称，其非全资附属公司Wanda Chicago Real Estate同意向Magellan Parcel C/D LLC出售Parcel C LLC 90%的股权，作价2.7亿美元，目标公司拥有位于美国芝加哥的地产项目Vista Tower。 公告还称，此次出售预计将为万达酒店发展带来9400万港元的收益。
 
+万达酒店发展认为，目前出售芝加哥项目变现是一个良好的机会。由于芝加哥项目目前仍在建设中，出售事项将有助于降低集团现在及未来的债务，并可借此加强集团财务状况。公司此次出售芝加哥项目，与公司去杠杆化及改善现金流的策略一致。
 
-11/27重磅内容[1]：在史蒂夫·班农作战室时，宾州参议员道格·马斯特安农宣布，立法机构将起草一项联合决议，从州务卿手中收回任命总统选举人的权力。州官由于腐败，导致立法机构收回代理权，这是美国政治史上的一个让人开眼界的案例！法律保障立法机构的权力，宾州倒下将触动多米诺骨牌效应！
+2012年年初，意气风发的王健林宣布了万达十年的发展战略规划，即十年之内成为全世界一流的跨国企业。自那时起，万达开启海外“买买买”模式，大举开展海外地产业务布局。
 
-1. 立法机构包括参议院和众议院，宾州两院目前全被共和党控制；
-2. 宾州几件法律行动在同时进行：A、立法会的听证会；B、川普总统发起的法律诉讼（已上至最高法）；C、鲍威尔的起诉诉状；
-3. 立法会举行听证会后已有所行动，从州务卿手中收回任命总统选举人的权力，随后亚利桑那州、密歇根州等州的立法会听证会也会陆续开始；
-4. 本州选民投票后的结果由州务卿决定，由该州立法机构认定总统身份；
-5. 川普总统律师团队在宾州的诉讼将上至最高法，由于证据确凿同时大法官以保守派法官占多数，因此最高法诉讼一定能赢，其他州的诉讼如果再次上诉到最高法就都能胜诉；
+“伦敦ONE”（OneNine Elms）项目是万达集团的首个海外项目，万达投资7亿英镑将其收入囊中。2014年，分别在美国投资芝加哥项目和洛杉矶One Beverly Hills项目。2015年，再次投资10亿美元拍下了悉尼的Circular Quay公寓和酒店项目，并耗资9.71亿澳元拿下澳大利亚黄金海岸项目。
 
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28002149/12-13.png)
 
-**二、绿党可检查威斯康星州投票机的源代码**
+在此之后的一段时间，万达负债率居高不下。为防止资金链断裂，万达决定大幅出售旗下资产。王健林曾在2018年1月20日的万达年会上明确表示，万达要逐步清偿全部海外有息负债。王健林称：“万达过去几年在海外投了一批项目，现在我们决定清偿海外债务，卖一半资产就能把全部债务清偿。”
 
-Gateway Pundit27日新闻报道[2]：2020年10月30日，绿党候选人Jill Stein 最终赢得了她的开创性案件，使她的竞选活动有权检查威斯康星州的投票机源代码。
+即刻，万达转换成“卖卖卖”模式，王健林在一个月之内（1月份），连续卖掉海外3个项目：英国伦敦“万达伦敦ONE”（万达One Nine Elms），套现共计5900万英镑（约合5.15亿元）；以及澳大利亚的2个项目，累计套现3.15亿澳元（约合14.88亿元）； 粗略计算，王健林“卖光”海外地产项目，累计套现近40亿元。而随着本次芝加哥项目出售完成，万达海外项目已经全部出售完毕。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27225218/%E5%9B%BE%E7%89%87-18.png)图片来源：[https://www.thegatewaypundit.com/wp-content/uploads/Jill-Stein-MI-600×300.jpg](https://www.thegatewaypundit.com/wp-content/uploads/Jill-Stein-MI-600x300.jpg)
+万达酒店发展财务数据显示，2020年上半年，公司共实现营业收入2.27亿元，同比下降36.53%；实现扣非后归属母公司股东的净利润为-3305.37万元。截至11月25日收盘，公司股价收报0.29港元/股。
 
-由此可从科技层面查清投票系统中的问题，找到系统中问题的真正所在，川普总统可依据此判例争取查看投票软件源代码
+万达王健林从曾今的“买买买“到如今的”卖卖卖”，中国企业家们都只是中共盗国贼的白手套，永远逃不出被用完即弃之的命运。
 
-三、川普总统发推“询问”亨特去哪儿了！
-
-11月27日川普总统发推[3]抨击媒体的虚假报道，他在推文最后一句询问道：亨特去哪儿了？
-
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27225319/%E5%9B%BE%E7%89%87-19.png)](https://twitter.com/realDonaldTrump/status/1332349861774155778)图片来源：[https://twitter.com/realDonaldTrump/status/1332349861774155778](https://twitter.com/realDonaldTrump/status/1332349861774155778)
-
-1. 这就是一场心理战，也显示出川普总统向对方发起挑战的底气；
-2. 亨特拜登“硬盘门”调查依然在进行，未来一定会追踪法律责任；
-3. “硬盘门”事件后，亨特至今始终没有发声，期间他只参加过一次乔·拜登的庆功会；
-4. 亨特拜登“硬盘门”事件第二季即将开始，拜登家族的腐败行为就涉及到危害国家安全的犯罪行为；
-5. 川普总统此举暗示他已经完全掌握亨特· 拜登的行踪以及他家族的犯罪证据；
-6. 川普总统在2020年1月6日就曾发文：Where is Hunter. 他早在那时就知道拜登家族事件，完全可使用国家安全总统令对拜登家族进行全面监控，监控他们与美国主流媒体和科技大公司的各种私下交易，最终向这些科技公司和主流媒体算总账；
-
-
-未来美国司法机构将查清每张选票的合法性，也将向所有涉嫌违法犯罪的机构公司以及个人追究法律责任。今天，由于观众人数未到25000人，路德社重磅只能放到下期，请大家继续关注！
-
-参考文章：
-
-[1] [https://twitter.com/htommy998/status/1332388039776108544](https://twitter.com/htommy998/status/1332388039776108544)
-
-[2] [https://www.thegatewaypundit.com/2020/11/attention-trump-campaign-green-party-candidate-jill-stein-won-groundbreaking-case-october-gives-campaign-right-examine-voting-machine-source-code/?utm\_source=Parler&utm\_medium=PostTopSharingButtons&utm\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/11/attention-trump-campaign-green-party-candidate-jill-stein-won-groundbreaking-case-october-gives-campaign-right-examine-voting-machine-source-code/?utm_source=Parler&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
-
-[3] [https://twitter.com/realDonaldTrump/status/1332349861774155778](https://twitter.com/realDonaldTrump/status/1332349861774155778)
-
-视频来源：[https://www.youtube.com/watch?v=A4pJIahf2zw](https://www.youtube.com/watch?v=A4pJIahf2zw)
-
-*文章撰写：【重生】    编辑：【GM31】*
-
-*战友之家玫瑰园小队出品*
+参考链接：
+[https://www.sohu.com/a/434546798\_395910](https://www.sohu.com/a/434546798_395910)
 
 0

@@ -1,49 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】伊朗最高级的核科学家27日在首都德黑兰附近被暗杀
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/597445/)
+## 川普总统的竞选团队继续将法律战打向最高法院
+` 喜马拉雅美国·康州盘古农场` [轉載自GNews](https://gnews.org/zh-hans/597779/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/24223314/logo-3-1.jpg)
+翻译：康州农场-一花一世界
 
+校对：康州农场-光头波波
 
+审核：Truemanman
 
-香草山写作组 直截了当
+周五，川普2020年竞选活动的法律团队在法庭上遭受了又一次打击，因为费城的联邦上诉法院驳回其律师对宾夕法尼亚州总统选举结果提出异议的讼诉。
 
-11月27日消息，伊朗国防部发布声明称，27日下午武装恐怖分子袭击了伊朗国防部研究与创新组织负责人穆赫辛·法克里扎德的汽车，法克里扎德在袭击中受伤，后于医院不治身亡。
+斯蒂芬诺斯·比巴斯法官（Stephanos Bibas）代表三位法官组成的小组审查上诉后批示：“自由，公正的选举是我们民主的命脉。对其公正性的指控是很严肃的。但是，仅仅叫喊选举不公是不够的。指控需要具体的讼诉细节及证明。我们这两个方面都没看到。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27172030/%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91%E4%BC%8A%E6%9C%97%E6%9C%80%E9%AB%98%E7%BA%A7%E7%9A%84%E6%A0%B8%E7%A7%91%E5%AD%A6%E5%AE%B627%E6%97%A5%E5%9C%A8%E9%A6%96%E9%83%BD%E5%BE%B7%E9%BB%91%E5%85%B0%E9%99%84%E8%BF%91%E8%A2%AB%E6%9A%97%E6%9D%801.png)
+尽管已被联邦法院全面驳回了上诉，川普的律师誓言要向最高法院提起上诉。
 
-该图显示了2020年11月27日的袭击现场
+川普竞选活动的高级策略顾问史蒂夫·科尔特斯（Steve Cortes）告诉《新闻报》说：“我们将向美国最高法院提起上诉，这一直是我们最终的目标。越早越好。我们希望将这些讼诉呈至最高等法院，而且相信我们有令人信服的论点。”
 
-法克里扎德是伊朗最高水平的核科学家之一，他曾被联合国列入制裁名单。伊朗坚称其核计划仅用于和平的目的，但浓缩铀是军事核武器的重要组成部分。
+川普总统的私人律师鲁迪·朱利安尼（Rudy Giuliani）上周对该案进行了辩论，即宾夕法尼亚州的选举结果因其大规模的选民欺诈行为而遭到破坏。但是朱利安尼（Giuliani）并没有提供任何切实的证据来力证此项指控。
 
-目前尚未明确此次暗杀的幕后推手。有报道指出，内塔尼亚胡曾于2018年在新闻发布会上称，“记住（法克里扎德）这个名字。” 而长期以来，以色列一直被怀疑在近十年间对伊朗核科学家实施了一系列定点清除行动。据路透社报道，以色列对暗杀的消息没有发表任何评论，而美国白宫，五角大楼，国务院和中央情报局也都拒绝评论。
+星期五的美国第三巡回法院法官小组的所有三名法官都是由共和党任命的，其中包括川普任命的比巴斯（Bibas）法官。到2019年为止，川普总统的姐姐玛丽安·特朗普·巴里（Maryanne Trump Barry）曾在该法庭任职了二十年。
 
-伊朗则对此事表现出非常强硬的态度。伊斯兰革命卫队指挥官称：“伊朗将为这位科学家报仇。” 伊朗伊斯兰共和国外交部长贾瓦德·扎里夫(Javad Zarif)则在推特上称：“恐怖分子今天谋杀了一位著名的伊朗科学家。这种强烈怀疑是以色列所做的懦弱的行为显示出肇事者铤而走险的好战行为。伊朗呼吁国际社会，尤其是欧盟，结束他们可耻的双重标准，并谴责这一国家恐怖行为”。
+周二，宾夕法尼亚州证明其选举结果对乔·拜登有利，乔·拜登将正式获得基斯通州（Keystone State，宾夕法尼亚州的别名）的20票选票。拜登在宾夕法尼亚州以约80,000张选票领先特朗普。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27172045/%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91%E4%BC%8A%E6%9C%97%E6%9C%80%E9%AB%98%E7%BA%A7%E7%9A%84%E6%A0%B8%E7%A7%91%E5%AD%A6%E5%AE%B627%E6%97%A5%E5%9C%A8%E9%A6%96%E9%83%BD%E5%BE%B7%E9%BB%91%E5%85%B0%E9%99%84%E8%BF%91%E8%A2%AB%E6%9A%97%E6%9D%802.png)
+在周五的裁决之后，川普的高级竞选律师詹娜·埃利斯（Jenna Ellis）在推特上写道：“宾夕法尼亚州的激进主义司法机构继续掩盖大规模欺诈的指控。美国最高法院见！”
 
-川普总统一直对伊核协议持批评态度，并于2018年5月宣布退出伊核协议，并重启因伊朗核协议而得到豁免的对伊制裁。
+评论：美国不仅各级州政府已经腐败不堪，连地方的司法系统也在利益集团的收买下变得腐败不堪。宾州的官司已经违宪，只有最高法才能给出公平的裁决！据最新消息，宾州立法机构将发起决议案，启动对宾州大选结果的争议！这是第一个用宪法赋予的立法权挑战腐败政客及州司法系统的案例。这将对亚利桑那州，密歇根州的选举结果有示范作用。
 
-CNN, NBC, BBC, 路透社等假新闻媒体在法克里扎德被杀消息的报道中，均加入了带有偏向性的批评川普总统对伊政策的言论，并表达了对拜登当选的支持与期待。这进一步证实了被中共操纵的所谓主流媒体试图利用 “强烈站队拜登” 的报道来干扰、误导民意。
+出处：[https://justthenews.com/government/courts-law/us-court-appeals-rejects-trump-campaign-appeal-over-race-pennsylvania](https://justthenews.com/government/courts-law/us-court-appeals-rejects-trump-campaign-appeal-over-race-pennsylvania)
 
-来源：[https://www.cnn.com/2020/11/27/middleeast/iran-top-nuclear-scientist-killed-intl/index.html](https://www.cnn.com/2020/11/27/middleeast/iran-top-nuclear-scientist-killed-intl/index.html)
-
-[https://www.nbcnews.com/news/world/top-iranian-nuclear-scientist-assassinated-government-says-n1249131](https://www.nbcnews.com/news/world/top-iranian-nuclear-scientist-assassinated-government-says-n1249131)
-
-[https://www.bbc.com/news/world-middle-east-54958361](https://www.bbc.com/news/world-middle-east-54958361)
-
-[https://www.reuters.com/article/iran-nuclear-scientist-int/suspected-iranian-nuclear-mastermind-fakhrizadeh-assassinated-near-tehran-idUSKBN2871OG](https://www.reuters.com/article/iran-nuclear-scientist-int/suspected-iranian-nuclear-mastermind-fakhrizadeh-assassinated-near-tehran-idUSKBN2871OG)
-
-
-
-审核发稿：jamie(文胤)
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
-
-更多文章，欢迎浏览[美东香草山农场GNEWS](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-1+
+0
