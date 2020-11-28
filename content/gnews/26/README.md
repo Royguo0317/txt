@@ -1,64 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》重磅解读：川普总统再次喊到“亨特在哪儿！”
-` GM31` [轉載自GNews](https://gnews.org/zh-hans/598129/)
+## （美国调查机构）马歇尔报告 希德尼·鲍威尔的“降魔神兽”是美国国防部（DOD）网络战计划！美国正身处战争
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/598178/)
 
-[《路德时评》2020年11月27日晚间节目](https://www.youtube.com/watch?v=A4pJIahf2zw)继续跟进美国大选舞弊案调查最新进展，川普总统再次发推提及亨特·拜登，主要内容如下：
+神圣雷达——那就是“降魔神兽Kraken”！！！谁曾想它是国防部网络战项目？它追踪系统且获得“黑暗政府”的犯罪和邪恶活动的证据！
 
+丹尼·马歇尔（Daniel Marshal）报道，根据美国 “马歇尔报道”网站（themarshallreport.wordpress.com ）的报道，当希德尼·鲍威尔说她“已放出了降魔神兽”，很多人把它当作看电影《诸神之战》，并为她的高调演讲摇旗呐喊。她如是说时从未眨一下眼睛，而是一脸严肃和严厉。她不是开玩笑，现在人们已知道为何如此！这个“降魔神兽“是一个国防部运行的网络战项目，专门追踪和潜入各种其他的网络以获取由“影子政府”进行大量邪恶活动的证据！川普总统和军队和美国军队和太空军司令部中的忠诚爱国者现在已经掌握了所有关于选票欺诈和选举相关的叛国证据。这会被用来对付美国的敌人！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27234702/1-262.png)
+释放降魔海兽（标志）
 
+该报道写到，美国人民及全世界人民正在见证的2020选举根本“不是”一次选举。人民正在目睹有人企图推翻美国政府。中情局、联邦调查局和司法部充斥着叛国的沼泽硕鼠，他们目的是窃取美国总统的席位，他们正在接管美国以掌控全球的秩序。他们是邪恶的全球主义分子的傀儡，这些傀儡正在明目张胆的推行他们的政变阴谋以达到毁灭美国的法制和民主从而推行一个全球的重置计划，他们妄想推进联合国2030进程，该进程是可持续性发展21进程的修正版本。当全世界都在封锁之时，他们紧锣密鼓的把他们谋划已久的阴谋像重锤一般挥向毫无设防的美国人。他们会成功吗？答案是绝不会！
 
-**一、宾州参议院收回认定总统选举人的权力**
+该报道引用了国防部长克利斯·米勒的警告：
 
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27225119/%E5%9B%BE%E7%89%87-17.png)](https://twitter.com/htommy998/status/1332388039776108544)图片地址：[https://twitter.com/htommy998/status/1332388039776108544](https://twitter.com/htommy998/status/1332388039776108544)
+“如果任何恶意分子低估我们的决心和试图破坏我们的努力，我们将毫不犹豫的恢复我们的威慑力，击溃任何或所有的威胁。“
 
+某些特种部队行动部门直接向国防部长克利斯·米勒汇报。他们与川普总统、宪法以及保卫美国防止敌人入侵保持一致，无论在国外或者国内。因此，无需恐慌和畏惧。川普总统已掌握全局并已划下战斗的防线。“降魔神兽”大招已被放出，它将一网打尽。特种部队的作用将发挥于打击美国国内的敌人和叛国者。
 
+[全文报道的链接：](http://Intelligence%20update:%20The%20Great%20Reset%20vs.%20the%20Great%20Awakening%20–%20the%20grand%20battle%20taking%20place%20right%20now%20for%20the%20future%20of%20America%20and%20the%20free%20world)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27234657/2-242.png)
+该报道引用希德尼·鲍威尔的宣称：“在选举中一个算式被植入用来窃取川普总统的选票“——这就是揭露真相的媒体十几年来一直警告的完全一致。（过去二十年各种选举一直被操纵，也许时间更长……）
 
-11/27重磅内容[1]：在史蒂夫·班农作战室时，宾州参议员道格·马斯特安农宣布，立法机构将起草一项联合决议，从州务卿手中收回任命总统选举人的权力。州官由于腐败，导致立法机构收回代理权，这是美国政治史上的一个让人开眼界的案例！法律保障立法机构的权力，宾州倒下将触动多米诺骨牌效应！
+此篇马歇尔报道评论，假新闻和整个媒体垄断集团持续向美国人民散布谎言，集体压制和掩盖排山倒海的有关选举欺诈的证据。它们就是颠覆政府的帮凶。叛国罪就是对其唯一的诠释。然而，敢肯定的是仍有部分人是相信他们被洗脑的宣传，也有部分人是毫无头绪，只顾着工作和付账单。同样，很多人在第一线按照非法的方式行选举欺诈时，就好像这些非法程序是真实和合法的一般。有些人确实一无所知或者根本不在乎。
 
-1. 立法机构包括参议院和众议院，宾州两院目前全被共和党控制；
-2. 宾州几件法律行动在同时进行：A、立法会的听证会；B、川普总统发起的法律诉讼（已上至最高法）；C、鲍威尔的起诉诉状；
-3. 立法会举行听证会后已有所行动，从州务卿手中收回任命总统选举人的权力，随后亚利桑那州、密歇根州等州的立法会听证会也会陆续开始；
-4. 本州选民投票后的结果由州务卿决定，由该州立法机构认定总统身份；
-5. 川普总统律师团队在宾州的诉讼将上至最高法，由于证据确凿同时大法官以保守派法官占多数，因此最高法诉讼一定能赢，其他州的诉讼如果再次上诉到最高法就都能胜诉；
+该篇马歇尔报道作者丹尼尔·马歇尔呼吁道，只要假新闻在美国继续进行，就无异于我们目前正身处的战争时代，就是美国人民的背叛者和敌人。现在不是呼吁要求战争，战争早已被宣告和进行。对战争拒绝的人们，极左派势力每天对他们不断灌输着接将接受重新教育的宣传和可怕的观念。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27231242/3-140.png)
+这张关于 选举战的战斗部署图片将摧毁你的每一天——任务和目的
 
+Jeffrey Prather 对“降魔海兽”进行解释和描述：“伟大的重置对决伟大的觉醒”。他发布了一个重磅视频，在里面他总结了幕后发生的真正战争：“伟大的重置对决伟大的觉醒。“
 
-**二、绿党可检查威斯康星州投票机的源代码**
+正如他所解释的，中情局、联邦调查局和司法部都是沼泽生物，他们不遗余力的妄想毁掉美国，盗取选举和拘捕所有真正的爱国者，例如福林将军（General Flynn）（和罗杰·斯通）。同时，特种部队某些行动组的以及现任的代理国防部长克里斯·米勒都是保持与川普总统、宪法和保卫美国抵御国内外敌人的目标一致。
 
-Gateway Pundit27日新闻报道[2]：2020年10月30日，绿党候选人Jill Stein 最终赢得了她的开创性案件，使她的竞选活动有权检查威斯康星州的投票机源代码。
+[完整视频](http://The%20Great%20Reset:%20The%20Deep%20State%20vs%20the%20Great%20Awakening%20–%20YouTube)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27225218/%E5%9B%BE%E7%89%87-18.png)图片来源：[https://www.thegatewaypundit.com/wp-content/uploads/Jill-Stein-MI-600×300.jpg](https://www.thegatewaypundit.com/wp-content/uploads/Jill-Stein-MI-600x300.jpg)
+[文章](http://Army%20Releases%20The%20Kraken%20To%20Protect%20Foreign%20Fire%20Bases;%20‘I’d%20Like%20To%20See%20The%20Taliban%20Try%20To%20Attack%20This%20Place’%20«%20Breaking%20Defense%20–%20Defense%20industry%20news,%20analysis%20and%20commentary)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27231116/4-76.png)
+图片：降魔神兽队员
 
-由此可从科技层面查清投票系统中的问题，找到系统中问题的真正所在，川普总统可依据此判例争取查看投票软件源代码
+作者说，仅试想一下黑暗政府已经渗透的如此之深，他们的触角已延伸至各个角落并牢牢把握，更何况已知的事实是黑暗政府是如此的猖狂，他们要扳倒整个联邦政府，仅思索一下他们谋划的规模之宏大就令人胆战心惊了。现在就让我们唤醒美国人民，戳穿这些全球分子的谎言，帮助挽救美利坚合众国甚至整个世界！
 
-三、川普总统发推“询问”亨特去哪儿了！
+译者评论：正如班农先生在战斗室所一致呼吁的，现在每一天都是战斗，美国人民要觉醒，每一个爱国者都要坚定的、毫不动摇地每天都要行动！这和爆料革命郭先生所说的一致，行动行动行动！因为黑暗势力和集权政府最惧怕的不是川普、班农，而是我们每一个老百姓的觉悟、看到事情的真相和勇敢的战斗！同时，马歇尔报道也让我们更清楚的看到，这场战争我们也不是做的被动的毫无准备的，一个巨大的强而有力的正义之网，正如希德尼·鲍威尔律师所说的“降魔神兽Kraken”已经放出，这是运筹帷幄的川普政府和国防部的网络作战计划和特种部队，他们将最终将这些沼泽硕鼠和背后隐藏的极权黑手一网打尽！
 
-11月27日川普总统发推[3]抨击媒体的虚假报道，他在推文最后一句询问道：亨特去哪儿了？
+[文章来源](https://themarshallreport.wordpress.com/2020/11/22/sidney-powells-kraken-is-dod-cyber-warfare-program-we-are-at-war/)
 
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27225319/%E5%9B%BE%E7%89%87-19.png)](https://twitter.com/realDonaldTrump/status/1332349861774155778)图片来源：[https://twitter.com/realDonaldTrump/status/1332349861774155778](https://twitter.com/realDonaldTrump/status/1332349861774155778)
-
-1. 这就是一场心理战，也显示出川普总统向对方发起挑战的底气；
-2. 亨特拜登“硬盘门”调查依然在进行，未来一定会追踪法律责任；
-3. “硬盘门”事件后，亨特至今始终没有发声，期间他只参加过一次乔·拜登的庆功会；
-4. 亨特拜登“硬盘门”事件第二季即将开始，拜登家族的腐败行为就涉及到危害国家安全的犯罪行为；
-5. 川普总统此举暗示他已经完全掌握亨特· 拜登的行踪以及他家族的犯罪证据；
-6. 川普总统在2020年1月6日就曾发文：Where is Hunter. 他早在那时就知道拜登家族事件，完全可使用国家安全总统令对拜登家族进行全面监控，监控他们与美国主流媒体和科技大公司的各种私下交易，最终向这些科技公司和主流媒体算总账；
-
-
-未来美国司法机构将查清每张选票的合法性，也将向所有涉嫌违法犯罪的机构公司以及个人追究法律责任。今天，由于观众人数未到25000人，路德社重磅只能放到下期，请大家继续关注！
-
-参考文章：
-
-[1] [https://twitter.com/htommy998/status/1332388039776108544](https://twitter.com/htommy998/status/1332388039776108544)
-
-[2] [https://www.thegatewaypundit.com/2020/11/attention-trump-campaign-green-party-candidate-jill-stein-won-groundbreaking-case-october-gives-campaign-right-examine-voting-machine-source-code/?utm\_source=Parler&utm\_medium=PostTopSharingButtons&utm\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/11/attention-trump-campaign-green-party-candidate-jill-stein-won-groundbreaking-case-october-gives-campaign-right-examine-voting-machine-source-code/?utm_source=Parler&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
-
-[3] [https://twitter.com/realDonaldTrump/status/1332349861774155778](https://twitter.com/realDonaldTrump/status/1332349861774155778)
-
-视频来源：[https://www.youtube.com/watch?v=A4pJIahf2zw](https://www.youtube.com/watch?v=A4pJIahf2zw)
-
-*文章撰写：【重生】    编辑：【GM31】*
-
-*战友之家玫瑰园小队出品*
+翻译报道：幸运星Lucky Star
 
 0

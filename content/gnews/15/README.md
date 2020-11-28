@@ -1,20 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【推特要闻】11/27/2020 推文精选: Smartmatic 2015年推文&#8221;我们的总裁向比尔·盖茨介绍Smartmatic公司正在为改进全球选举的努力。拍摄于@GlblCtzn论坛&#8221;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/598428/)
+## 香港快讯！ 【国安法下荒唐公案】「瓜田李下」可入罪？女助理被判囚6个月
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/598546/)
 
-## **Smartmatic 2015年推文**
+编撰：文悦
 
-我们的总裁向比尔·盖茨介绍Smartmatic公司正在为改进全球选举的努力。拍摄于@GlblCtzn论坛
+审核：WLQF
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28011642/judge-28_npdni_1200x0.png)图片：立场新闻
+据立场新闻27日报道，去年11月10日有网民号召「八区开花」（在荃湾、沙田、九龙塘、旺角、将军澳、大浦、上水等地的商场或街头聚集以示抗议）。一名34岁女病房助理在旺角被捕时，被指藏有雷射笔。她否认一项在公众地方携有攻击性武器罪。裁判官郑念慈27日裁决指，案发时已是深夜，而被告翌日要上班，没可能因打算钓墨鱼而携带雷射笔，又指被告当晚身穿黑衣到旺角吃甜汤，做法「瓜田李下」，最后判囚6 个月。被告准以 5 万元保释以待上诉。
+
+被告郑敏早前供称，她被捕当晚曾向友人展示雷射笔，认为可用来增加钓墨鱼收获；两人随后到旺角找朋友吃甜汤，再打算一起钓墨鱼。裁判官郑念慈认为，无证据显示雷射笔可增加渔获。他又指，即使被告脸书显示她有钓墨鱼习惯，然而案发已是深夜，被告又打算吃甜汤，故没可能在当晚钓墨鱼。郑又指被告当晚身穿黑衣并戴上黑冰袖，难免有瓜田李下之嫌。他认为本案控罪性质严重，指出雷射笔光束可伤害眼睛，而被告没使用雷射笔，并不足以构成减刑原因，最终判处被告入狱6个月。
+
+控罪指被告郑敏被控于去年11月10日在旺角弥敦道与亚皆老街一带公众地方，携有一个能发出雷射光束的装置。 【案件编号KCCC1443/2020】
+
+战友观点：
+
+英美法系中Beyond a reasonable doubt （排除合理怀疑）在现在的香港法庭已荡然无存，取而代之的是「欲加之罪，何患无辞」。
+
+被告没使用雷射笔，雷射笔就定义为攻击性武器？案发已是深夜，吃甜汤花不了多久的时间，完全可以吃完去夜钓，钓墨鱼当然在深夜! 裁判官本人就算没有垂钓经验，对于雷射笔能否增加渔获也是上网一查便知。至于说第二天要上班没可能去夜钓更是荒唐，港人夜猫子不少，打游戏，泡吧，看午夜场，打麻将，看球赛等也在深夜，难道翌日不上班了？为什么第二天上班头天晚上就不能钓墨鱼?还有香港已经没有穿黑衣的自由了吗？
+
+「瓜田李下」都成了实锤证据来把人定罪，而且还发生在二十一世纪的国际化大都市香港，简直荒诞不经，啼笑皆非！
+
+附：香港水域水底灯钓鱿鱼/Chok墨鱼
 
 
 
-> Our CEO introduces [@BillGates](https://twitter.com/BillGates?ref_src=twsrc%5Etfw) to Smartmatic’s efforts to improve elections around the world. At the [@GlblCtzn](https://twitter.com/GlblCtzn?ref_src=twsrc%5Etfw) meeting [pic.twitter.com/XEUw8P8lPA](https://t.co/XEUw8P8lPA)
-> — Smartmatic (@smartmatic) [June 23, 2015](https://twitter.com/smartmatic/status/613378731298680832?ref_src=twsrc%5Etfw)
+以上观点仅代表笔者本人
 
+资料来源：立场新闻
 
-
-#### **By: 【秘密翻译组G-Translators】**
+[https://www.thestandnews.com/court/%E5%A5%B3%E7%97%85%E6%88%BF%E5%8A%A9%E7%90%86%E8%97%8F%E9%9B%B7%E5%B0%84%E7%AD%86%E8%A2%AB%E5%88%A4%E5%9B%9A-6-%E5%80%8B%E6%9C%88-%E5%AE%98%E6%8C%87%E7%A9%BF%E9%BB%91%E8%A1%A3%E5%88%B0%E6%97%BA%E8%A7%92%E5%90%83%E7%B3%96%E6%B0%B4-%E7%93%9C%E7%94%B0%E6%9D%8E%E4%B8%8B/](https://www.thestandnews.com/court/%E5%A5%B3%E7%97%85%E6%88%BF%E5%8A%A9%E7%90%86%E8%97%8F%E9%9B%B7%E5%B0%84%E7%AD%86%E8%A2%AB%E5%88%A4%E5%9B%9A-6-%E5%80%8B%E6%9C%88-%E5%AE%98%E6%8C%87%E7%A9%BF%E9%BB%91%E8%A1%A3%E5%88%B0%E6%97%BA%E8%A7%92%E5%90%83%E7%B3%96%E6%B0%B4-%E7%93%9C%E7%94%B0%E6%9D%8E%E4%B8%8B/)
 
 0
