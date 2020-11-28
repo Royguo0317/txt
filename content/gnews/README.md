@@ -12,26 +12,26 @@
 
 
 
-### [【热点播报】香港18万公务员须签效忠声明](/content/gnews/1/README.md)
+### [川普总统连任系列九：突发！大外宣CNN转向表示川普总统将胜选](/content/gnews/1/README.md)
+ ` GM101`
+
+### [【热点播报】香港18万公务员须签效忠声明](/content/gnews/2/README.md)
  ` 纽约香草山农场`
 
-### [神助攻！反川普的绿党候选人吉尔·斯坦因赢得了检查投票机源代码的权利！](/content/gnews/2/README.md)
+### [神助攻！反川普的绿党候选人吉尔·斯坦因赢得了检查投票机源代码的权利！](/content/gnews/3/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [KRAKEN被释放! 西德尼-鲍威尔律师提交了104页关于佐治亚州选举中大规模舞弊的爆炸性指控&#8211;更新：密歇根州也是](/content/gnews/3/README.md)
+### [KRAKEN被释放! 西德尼-鲍威尔律师提交了104页关于佐治亚州选举中大规模舞弊的爆炸性指控&#8211;更新：密歇根州也是](/content/gnews/4/README.md)
  ` GM77`
 
-### [亨特“硬盘门”事件的计算机店老板遭死亡威胁](/content/gnews/4/README.md)
+### [亨特“硬盘门”事件的计算机店老板遭死亡威胁](/content/gnews/5/README.md)
  ` GM77`
 
-### [[深度报道]肖建华的包商银行破产,  “明天系” 与中共高层深厚的关系，以及他腐朽的私人生活](/content/gnews/5/README.md)
+### [[深度报道]肖建华的包商银行破产,  “明天系” 与中共高层深厚的关系，以及他腐朽的私人生活](/content/gnews/6/README.md)
  ` 秘密翻译组G-Translators`
 
-### [俄主流媒体转向：关于美国大选最新消息！](/content/gnews/6/README.md)
+### [俄主流媒体转向：关于美国大选最新消息！](/content/gnews/7/README.md)
  ` HimalayaRussia`
-
-### [大清洗开始:川普清理基辛格，奥尔布赖特等](/content/gnews/7/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [【香港要闻】六支纪律部队大跳『忠字舞』高调出稿「示忠」 全力支持《施政报告》 通稿式标题](/content/gnews/8/README.md)
  ` GM42`
