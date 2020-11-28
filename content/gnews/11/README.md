@@ -1,37 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登背后的人公开拥护社会主义
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/598474/)
+## 11282020 财经快讯: 中共病毒影响感恩节零售; “蒜你狠”重出江湖
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/598524/)
 
-草原三省战友之家     文静
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28010927/Picture18-3.png)图片来源：[https://www.metroparent.com](https://www.metroparent.com/daily/food-home/shopping-services/best-black-friday-deals-for-families/)
+1.受疫情影响，2020黑五销售额大部分来源于网购。尽管今年网上销售额达到了破记录的51亿美元，相较于2019年上升21.5%。但受封城和宵禁影响，实体店销售额或将大幅跳水，因此黑五网购额比预期的60亿美元仍旧相距甚远。
+[https://au.finance.yahoo.com/news/thanksgiving-track-record-6b-us-174410170.html](https://au.finance.yahoo.com/news/thanksgiving-track-record-6b-us-174410170.html)
 
-校对   鹰嘴逗逗  上传 小鸥
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28004431/%E7%A4%BE%E4%BC%9A%E4%B8%BB%E4%B9%89-1.jpg)图片来自 Washington Times
-谢丽尔·查姆利(Cheryl Chumley)是《华盛顿时报》的一名作家、评论作家和在线评论编辑；她还在《大胆与直率》(Bold and Blunt)播客上主持一个从基督教和保守主义角度讨论政治和文化的节目。她之前的作品是《华盛顿的魔鬼》和《警察州美国》；查姆利是保守媒体的常客，她也是一些报章媒体的撰稿人，其中包括《火焰》、《华盛顿时报》、《华盛顿观察家》、传统基金会、Heartland研究所、Lifezette、PamelaGeller.com等。查姆利是一名美国陆军退伍军人，也是一名有执照的私人侦探。
+2.据彭博社11月27号报道，桥水基金总裁达里奥正在新加坡开设一家家族办公室。基金发言人在一份声明中说，达里奥（Dalio）长期以来与亚洲和新加坡保持着联系，并认为现在是在该地区开设家族办公室的“时候”。
+[https://www.bloomberg.com/news/articles/2020-11-26/billionaire-ray-dalio-set-to-open-family-office-in-singapore?sref=6uww027M](https://www.bloomberg.com/news/articles/2020-11-26/billionaire-ray-dalio-set-to-open-family-office-in-singapore?sref=6uww027M)
 
-据Newsmax报道，查姆利最近出了一本新书，书名是《社会主义者不眠》。新书令人震惊地揭示了社会主义令人毛骨悚然的细节，以及为什么民主党成为反对美国普世价值观的激进左派。
+3.路透社两天前发布一条重要新闻，近期中共大豆进口商以利润下滑为由，取消了12月和1月装运美国货物签订的交易。这是中美第一阶段贸易协议签署以来第一次大规模取消购买美国农产品。
+[https://www.zerohedge.com/commodities/soybean-rally-about-end](https://www.zerohedge.com/commodities/soybean-rally-about-end)
 
-乔·拜登(Joe Biden)和民主党人在2020年竞选总统时，炮制了他们党派有史以来最激进的政纲。他们希望通过对美国工薪阶层和企业大幅增税，从根本上改变美国。在“绿色新政”的幌子下，他们的目标是在全美范围内对公司进行大规模的监管，从而导致失业和经济萧条；乔·拜登甚至说他想结束美国石油和天然气生意!
+4.据中国蔬菜流通协会提供的数据显示，11月11日，主产区山东章丘长白大葱毛葱的价格每斤为1.30元左右，同比增长160%。而另一个大葱主产区河南新野的铁杆大葱毛葱价格每斤在1.45元左右，较8月下旬相比每斤增长0.8元，上涨123.08%。
+[https://www.sohu.com/a/434523156\_120774106?scm=&spm=smpc.ch15.top-news-5.3.1606532959499NoW6050](https://www.sohu.com/a/434523156_120774106?scm=&amp;spm=smpc.ch15.top-news-5.3.1606532959499NoW6050)
 
-新书《社会主义者不眠》指出：拜登背后的人正在疯狂地支持着激进主义的进程，今天许多民主党人已经抛开“自由主义”、“左倾”甚至“进步主义”这些词，公开拥护社会主义。这些民主党人包括人：哈里斯·卡玛拉、伯尼•桑德斯、伊丽莎白·沃伦、南希·佩洛西。对此，作者谢丽尔•查姆利警告说：基督徒必须崛起，否则美国将会衰落！
+5.11月26日，江苏省盐城市中级人民法院发布了对特大跨国网络传销案二审刑事裁定书，PlusToken传销案查获19万比特币，8万以太币等多种区块链货币，合计约42亿美元，所得资金及收益依法没收，上缴国库。
+[https://money.163.com/20/1128/07/FSGLH4T400258105.html?clickfrom=w\_money](https://money.163.com/20/1128/07/FSGLH4T400258105.html?clickfrom=w_money)
 
-查姆利说，激进的左翼社会主义者现在正在美国泛滥，正在摧毁我们所珍视的爱国主义、热爱自由和道德观念。他们企图强行灌输一种极端的意识形态，使我们的国家永远不再一样。
+6.近日，日本知名电子元器件制造商村田制作所在其官网宣布，将于2020年12月关闭其位于深圳的生产子公司升龙科技。
+[https://news.stcn.com/sd/202011/t20201128\_2575334.html](https://news.stcn.com/sd/202011/t20201128_2575334.html)
 
-在《社会主义者不眠》一书中，查姆利展示了极左翼如何利用冠状病毒来推动他们的奥威尔式社会主义议程。他们利用疫情控制学校和企业，关闭教堂，限制我们最基本的自由。他们不仅要摧毁我们自由企业制度的支柱，还要摧毁我们的宗教、教育和文化机构。
-
-在书中，查姆利揭示了极左派如何通过狡猾的手段，假装自己是进步主义者、社会正义斗士和关心工人阶级的民粹主义者，来控制民主党，在美国政治和生活中偷偷摸摸地推行社会主义的方式，令美国宪法危在旦夕！
-
-川普成为历史上最受诋毁的总统，因为他坚定地阻止了这帮极左派！
-
-评论：
-
-从查姆利的新书《社会主义者不眠》的描述看出，她是一位有良知，敢于说真话、有信仰、有强烈正义感的作者。她的新书呼应了新中国联邦的爆料革命，针对美国各方面出现的问题，以及今年的中共病毒，揭露了美国乱象的更深层的原因，中共在美国无处不在的渗透和作恶。像爆料革命一直揭露的那样，中共利用美国民主制度的宽容在美国钻空子，采用极其阴险的“蓝金黄”手段、贿赂渗透美国左倾势力，并用各种手段控制美国主流媒体，使他们成为中共的宣传工具。
-
-新中国联邦多年来的爆料革命，提前预警并大量揭露了中共对本次美国大选的阴谋，真正起到了唤醒美国的正义力量的作用。让美国人民看见了中共盗国贼们如何启动了3F计划，通过各种舞弊和欺诈的极端手段来操控美国大选，推举被中共深度蓝金黄的拜登当选总统，推行中共的“社会主义”。
-
-我们坚信美国的司法一定会严惩拜登和其背后的黑势力，这一切罪恶背后黑手中共也必将受到打击和摧毁！
-
-参考链接：[https://w3.newsmax.com/General/NMM/Offers/NMM-Socialists-Disc](https://w3.newsmax.com/General/NMM/Offers/NMM-Socialists-Disc)
+By：【秘翻组·金融法律组】
 
 0
