@@ -1,35 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄主流媒体转向：关于美国大选最新消息！
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/597484/)
+## [深度报道]肖建华的包商银行破产,  “明天系” 与中共高层深厚的关系，以及他腐朽的私人生活
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/598103/)
 
-作者：НастяApfel  编辑：青椒文喜 洛夫斯基  文宣：DongDong
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27223817/PDFtoJPG.me-01-1-1-scaled.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27223835/PDFtoJPG.me-02-1-1-scaled.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27223854/PDFtoJPG.me-03-1-1-scaled.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27223913/PDFtoJPG.me-04-1-1-scaled.jpg)
+……
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27223940/PDFtoJPG.me-49-1-scaled.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27223958/PDFtoJPG.me-50-1-scaled.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27224015/PDFtoJPG.me-51-1-scaled.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27224038/PDFtoJPG.me-52-scaled.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27224051/PDFtoJPG.me-53-scaled.jpg)
+附件：完整文档
 
-**（****1****） ****中共习近平祝贺拜登当选**
+[【深度报道】肖建华的包商银行破产-他的明天系-与中共高层深厚的关系，以及他腐朽的私人生活](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27224200/%E3%80%90%E6%B7%B1%E5%BA%A6%E6%8A%A5%E9%81%93%E3%80%91%E8%82%96%E5%BB%BA%E5%8D%8E%E7%9A%84%E5%8C%85%E5%95%86%E9%93%B6%E8%A1%8C%E7%A0%B4%E4%BA%A7-%E4%BB%96%E7%9A%84%E6%98%8E%E5%A4%A9%E7%B3%BB-%E4%B8%8E%E4%B8%AD%E5%85%B1%E9%AB%98%E5%B1%82%E6%B7%B1%E5%8E%9A%E7%9A%84%E5%85%B3%E7%B3%BB%EF%BC%8C%E4%BB%A5%E5%8F%8A%E4%BB%96%E8%85%90%E6%9C%BD%E7%9A%84%E7%A7%81%E4%BA%BA%E7%94%9F%E6%B4%BB.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27224200/%E3%80%90%E6%B7%B1%E5%BA%A6%E6%8A%A5%E9%81%93%E3%80%91%E8%82%96%E5%BB%BA%E5%8D%8E%E7%9A%84%E5%8C%85%E5%95%86%E9%93%B6%E8%A1%8C%E7%A0%B4%E4%BA%A7-%E4%BB%96%E7%9A%84%E6%98%8E%E5%A4%A9%E7%B3%BB-%E4%B8%8E%E4%B8%AD%E5%85%B1%E9%AB%98%E5%B1%82%E6%B7%B1%E5%8E%9A%E7%9A%84%E5%85%B3%E7%B3%BB%EF%BC%8C%E4%BB%A5%E5%8F%8A%E4%BB%96%E8%85%90%E6%9C%BD%E7%9A%84%E7%A7%81%E4%BA%BA%E7%94%9F%E6%B4%BB.pdf)
 
-11月26日，yandex.ru报道了习近平向民主党候选人拜登发出贺电，以及王岐山祝贺哈里斯当选副总统的消息。
 
-报道援引了塔斯社和CCTV消息，但做了一些补充。
-
-“回想一下，美国总统的大选已于11月3日举行，拜登和川普轮流领先。美国主流媒体已经报道了民主党候选人的胜利。拜登本人在向全国发表的讲话中也宣称胜利。”
-
-“此前，中国外交部发言人汪文斌，以色列总统，加拿大，英国，法国，乌克兰，德国，土耳其，斯洛文尼亚，哈萨克斯坦，联合国秘书长和沙特阿拉伯国王的领导人对拜登纷纷表示了祝贺。”
-
-“俄罗斯总统弗拉基米尔·普京尚未对拜登表示祝贺。据俄罗斯领导人德米特里·佩斯科夫（Dmitry Peskov）的新闻秘书说，美国仍在某些州考虑投诉和重新计算选票，否则，选举结果将无法得到正式承认。国家元首将在（美方）完成所有正式手续后祝贺美国当选总统。”
-
-**（****2****）川普****宣布关于民主党在选举中的阴谋和他的胜利**
-
-美国总统川普再次提醒说，11月3日在美国举行的总统选举被操纵。 共和党再次要求审查投票结果，信息和新闻门户网站报道（EVO-RUS.COM.）。
-
-川普对宾夕法尼亚州的支持者发表讲话时说，民主党人输掉了选举。他确信拜登和他的团队作弊了。因此，目前美国领导人确信，”这是一个欺诈性的选举。”
-
-正如川普在宾夕法尼亚州所宣称的，他有证据可以帮助改变选举结果。只要法官愿意听他所说的。
-
-新闻来源：
-
-[1]  [Председатель КНР Си Цзиньпин поздравил Джозефа Байдена с победой на выборах президента США](https://www.vedomosti.ru/politics/news/2020/11/25/848243-predsedatel-knr-pozdravil-baidena-s-pobedoi-na-viborah-prezidenta-ssha)
-
-[2]  [Трамп заявил о махинациях демократов на выборах и своей победе](https://rg.ru/2020/11/26/tramp-zaiavil-o-mahinaciiah-demokratov-na-vyborah-i-svoej-pobede.html)
 
 0
