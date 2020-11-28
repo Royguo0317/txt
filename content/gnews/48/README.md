@@ -1,33 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统的竞选团队继续将法律战打向最高法院
-` 喜马拉雅美国·康州盘古农场` [轉載自GNews](https://gnews.org/zh-hans/597779/)
+## [深度报道]肖建华的包商银行破产,  “明天系” 与中共高层深厚的关系，以及他腐朽的私人生活
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/598103/)
 
-翻译：康州农场-一花一世界
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27223817/PDFtoJPG.me-01-1-1-scaled.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27223835/PDFtoJPG.me-02-1-1-scaled.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27223854/PDFtoJPG.me-03-1-1-scaled.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27223913/PDFtoJPG.me-04-1-1-scaled.jpg)
+……
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27223940/PDFtoJPG.me-49-1-scaled.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27223958/PDFtoJPG.me-50-1-scaled.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27224015/PDFtoJPG.me-51-1-scaled.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27224038/PDFtoJPG.me-52-scaled.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27224051/PDFtoJPG.me-53-scaled.jpg)
+附件：完整文档
 
-校对：康州农场-光头波波
+[【深度报道】肖建华的包商银行破产-他的明天系-与中共高层深厚的关系，以及他腐朽的私人生活](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27224200/%E3%80%90%E6%B7%B1%E5%BA%A6%E6%8A%A5%E9%81%93%E3%80%91%E8%82%96%E5%BB%BA%E5%8D%8E%E7%9A%84%E5%8C%85%E5%95%86%E9%93%B6%E8%A1%8C%E7%A0%B4%E4%BA%A7-%E4%BB%96%E7%9A%84%E6%98%8E%E5%A4%A9%E7%B3%BB-%E4%B8%8E%E4%B8%AD%E5%85%B1%E9%AB%98%E5%B1%82%E6%B7%B1%E5%8E%9A%E7%9A%84%E5%85%B3%E7%B3%BB%EF%BC%8C%E4%BB%A5%E5%8F%8A%E4%BB%96%E8%85%90%E6%9C%BD%E7%9A%84%E7%A7%81%E4%BA%BA%E7%94%9F%E6%B4%BB.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27224200/%E3%80%90%E6%B7%B1%E5%BA%A6%E6%8A%A5%E9%81%93%E3%80%91%E8%82%96%E5%BB%BA%E5%8D%8E%E7%9A%84%E5%8C%85%E5%95%86%E9%93%B6%E8%A1%8C%E7%A0%B4%E4%BA%A7-%E4%BB%96%E7%9A%84%E6%98%8E%E5%A4%A9%E7%B3%BB-%E4%B8%8E%E4%B8%AD%E5%85%B1%E9%AB%98%E5%B1%82%E6%B7%B1%E5%8E%9A%E7%9A%84%E5%85%B3%E7%B3%BB%EF%BC%8C%E4%BB%A5%E5%8F%8A%E4%BB%96%E8%85%90%E6%9C%BD%E7%9A%84%E7%A7%81%E4%BA%BA%E7%94%9F%E6%B4%BB.pdf)
 
-审核：Truemanman
 
-周五，川普2020年竞选活动的法律团队在法庭上遭受了又一次打击，因为费城的联邦上诉法院驳回其律师对宾夕法尼亚州总统选举结果提出异议的讼诉。
-
-斯蒂芬诺斯·比巴斯法官（Stephanos Bibas）代表三位法官组成的小组审查上诉后批示：“自由，公正的选举是我们民主的命脉。对其公正性的指控是很严肃的。但是，仅仅叫喊选举不公是不够的。指控需要具体的讼诉细节及证明。我们这两个方面都没看到。”
-
-尽管已被联邦法院全面驳回了上诉，川普的律师誓言要向最高法院提起上诉。
-
-川普竞选活动的高级策略顾问史蒂夫·科尔特斯（Steve Cortes）告诉《新闻报》说：“我们将向美国最高法院提起上诉，这一直是我们最终的目标。越早越好。我们希望将这些讼诉呈至最高等法院，而且相信我们有令人信服的论点。”
-
-川普总统的私人律师鲁迪·朱利安尼（Rudy Giuliani）上周对该案进行了辩论，即宾夕法尼亚州的选举结果因其大规模的选民欺诈行为而遭到破坏。但是朱利安尼（Giuliani）并没有提供任何切实的证据来力证此项指控。
-
-星期五的美国第三巡回法院法官小组的所有三名法官都是由共和党任命的，其中包括川普任命的比巴斯（Bibas）法官。到2019年为止，川普总统的姐姐玛丽安·特朗普·巴里（Maryanne Trump Barry）曾在该法庭任职了二十年。
-
-周二，宾夕法尼亚州证明其选举结果对乔·拜登有利，乔·拜登将正式获得基斯通州（Keystone State，宾夕法尼亚州的别名）的20票选票。拜登在宾夕法尼亚州以约80,000张选票领先特朗普。
-
-在周五的裁决之后，川普的高级竞选律师詹娜·埃利斯（Jenna Ellis）在推特上写道：“宾夕法尼亚州的激进主义司法机构继续掩盖大规模欺诈的指控。美国最高法院见！”
-
-评论：美国不仅各级州政府已经腐败不堪，连地方的司法系统也在利益集团的收买下变得腐败不堪。宾州的官司已经违宪，只有最高法才能给出公平的裁决！据最新消息，宾州立法机构将发起决议案，启动对宾州大选结果的争议！这是第一个用宪法赋予的立法权挑战腐败政客及州司法系统的案例。这将对亚利桑那州，密歇根州的选举结果有示范作用。
-
-出处：[https://justthenews.com/government/courts-law/us-court-appeals-rejects-trump-campaign-appeal-over-race-pennsylvania](https://justthenews.com/government/courts-law/us-court-appeals-rejects-trump-campaign-appeal-over-race-pennsylvania)
 
 0

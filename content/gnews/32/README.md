@@ -1,64 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》重磅解读：川普总统再次喊到“亨特在哪儿！”
-` GM31` [轉載自GNews](https://gnews.org/zh-hans/598129/)
+## 从《末日遗绪》来看我们面临的一些内心状况
+` HAIKUOTIANKONG` [轉載自GNews](https://gnews.org/zh-hans/598361/)
 
-[《路德时评》2020年11月27日晚间节目](https://www.youtube.com/watch?v=A4pJIahf2zw)继续跟进美国大选舞弊案调查最新进展，川普总统再次发推提及亨特·拜登，主要内容如下：
+内新闻/素材：Y.M.O 校对：雅典娜的圣斗士(沙加)
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28001057/11-34.png)
+10月16日陈升新专辑《末日遗绪》数位平台上架之后，我在GNEWS写了《新歌上架在香港被封杀，中共到底怕什么》这篇文章叙述了专辑中三首歌在港区平台被封杀的事情。近几天升哥上电台节目聊这张专辑，说了一些之前不知道的信息与背景。因为这张专辑对于政治、社会的火力非常旺盛，情绪也实在契合如今的状况，所以值得写出来与大家分享。
 
+**发泄怒火**
+“让我们颂赞这冉冉升起的红太阳/ 让我们一起航向梦中伟大的海洋”、“台湾的口味生目睭不曾看过这种的代志/无人像阮这铁齿/阮阿肥都叫维尼”，升哥半开玩笑地说自己就是因为气不过才写出了这种歌，毕竟总是跟这个世界过不去才是一个rocker。陈升在定这张专辑主题的时候，很容易就想到今年是一个倒霉、恐怖的庚子年。所以要找个对象发泄掉自己的怒火，当然是要用音乐人的方式。你看在歌曲的排序上，第一首歌是《The Who》，首先要找一个发泄的对象。那个在电视上说着全世界都知道的瞎话的法人代表自然就被选中了。
 
+CCP在电视上阴森森地要钱要权，《The Who》则是把普通民众的反应欢愉化表达了出来。让我们看看到底是所谓人类命运共同体的领导者，极权政府的领袖寿命长，还是这些作品可以一直流传下去。
 
-**一、宾州参议院收回认定总统选举人的权力**
+“后来在电视里看见你垂头丧气，好像是你的爱人已经抛弃了你。”这句歌词是多么精准的形容，2020年上半年和下半年的变化大家也都看在眼里，五中全会口气也不那么自信了，很多势力也都纷纷跳船，这是大家努力的结果，也能说明这股火到底有多强大。
 
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27225119/%E5%9B%BE%E7%89%87-17.png)](https://twitter.com/htommy998/status/1332388039776108544)图片地址：[https://twitter.com/htommy998/status/1332388039776108544](https://twitter.com/htommy998/status/1332388039776108544)
+另外，《The Who》这首歌的弦乐来自北京友好弦乐团，并且这还是《归乡》时期的素材。因为弦乐的现场不方便安排，所以去一次就采集一批素材，其中一部分就先放着，等到世界变化多端的时候自然而然就用上了。
 
+**心地善良**
+就像上一篇文章所写，升哥一直爱着这片土地。像《北京一夜》就是在北京写的，虽然当时也是随口一哼，但也是从京剧以及当时所在的百花深处胡同得到的灵感。事实上升哥一直都没有变，而是CCP露出了自己的獠牙，周围的一些人也与他切割。在《末日遗绪》这张专辑中也请了几位女生与陈升合作，但专辑的相关资料都没有透露她们的真实姓名，歌曲信息中都以化名代替。陈升说自己是黑名单上的人，不想连累年轻人的发展，这是对她们的一种保护。
 
+多么体贴的人啊，友人说这个细节是最打动他的。这也可见CCP的体制完全是劣币驱逐良币，被它赶到对立面的都是各界的精英良将，而留在自己这边的却是一帮狐朋狗友。另外我在和一位清醒的朋友沟通的时候，他说了这么一句“如果我投身于邪恶之中的话，这些人都会被我整得很惨。”心地善良的人很多都有自己的本事，通常也都会有很多委屈，除了世界的变化，这些内心的委屈也会变成未来一直翻滚的怒火。
 
-11/27重磅内容[1]：在史蒂夫·班农作战室时，宾州参议员道格·马斯特安农宣布，立法机构将起草一项联合决议，从州务卿手中收回任命总统选举人的权力。州官由于腐败，导致立法机构收回代理权，这是美国政治史上的一个让人开眼界的案例！法律保障立法机构的权力，宾州倒下将触动多米诺骨牌效应！
+**情感与精神的消耗**
+I am tired, as are you. This year has been a physical & emotional drain on all. So not complaining. Just know I feel your pain.
 
-1. 立法机构包括参议院和众议院，宾州两院目前全被共和党控制；
-2. 宾州几件法律行动在同时进行：A、立法会的听证会；B、川普总统发起的法律诉讼（已上至最高法）；C、鲍威尔的起诉诉状；
-3. 立法会举行听证会后已有所行动，从州务卿手中收回任命总统选举人的权力，随后亚利桑那州、密歇根州等州的立法会听证会也会陆续开始；
-4. 本州选民投票后的结果由州务卿决定，由该州立法机构认定总统身份；
-5. 川普总统律师团队在宾州的诉讼将上至最高法，由于证据确凿同时大法官以保守派法官占多数，因此最高法诉讼一定能赢，其他州的诉讼如果再次上诉到最高法就都能胜诉；
+Life on Earth is 1 grain of sand. Eternity is every grain of sand above & below the water in every ocean in the world.
 
+Focus on the long term.
 
-**二、绿党可检查威斯康星州投票机的源代码**
+以上文字来自林伍德大律师的推特，这条推特我一看到就能感同身受。人何必把自己搞得何其伟大、人定胜天，好不容易人类能在全地球扎根，难道就不能定下来各自欣赏各自的美好，哪里有我是你的，你是我的。陈升在《像我们这样的人》这首歌中口气颓唐了一些，显得更加自省，唱到后面我们就发现只有人类才是真正的瘟疫。为什么这一年会是精神和情感上极大的消耗，就是因为在探究真相或者反省自身的过程中，第一是发现某些人类才是真正的幕后黑手，第二是心地善良的你不懂邪恶之人做事的思路，第三是他们蛊惑了普通民众来对你进行人身攻击。你因为记得他们而感到痛苦，他们觉得你离开了而感到痛苦，这些都是对身心极大的消耗。
 
-Gateway Pundit27日新闻报道[2]：2020年10月30日，绿党候选人Jill Stein 最终赢得了她的开创性案件，使她的竞选活动有权检查威斯康星州的投票机源代码。
+**带着你的行囊尊敬地离开吧/生命显示着各自美丽的尊严
+带着你的蠢梦回去吧陌生人/你不属于这地方**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27225218/%E5%9B%BE%E7%89%87-18.png)图片来源：[https://www.thegatewaypundit.com/wp-content/uploads/Jill-Stein-MI-600×300.jpg](https://www.thegatewaypundit.com/wp-content/uploads/Jill-Stein-MI-600x300.jpg)
+因为心地善良，所以受到委屈身心疲惫，不过如果你的身心无可避免地要被消耗，那干脆就把它用在需要发泄的对象上，把这些情绪都连接起来，就能让善良的人们可以完成他们真正要达成的目标。
 
-由此可从科技层面查清投票系统中的问题，找到系统中问题的真正所在，川普总统可依据此判例争取查看投票软件源代码
-
-三、川普总统发推“询问”亨特去哪儿了！
-
-11月27日川普总统发推[3]抨击媒体的虚假报道，他在推文最后一句询问道：亨特去哪儿了？
-
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27225319/%E5%9B%BE%E7%89%87-19.png)](https://twitter.com/realDonaldTrump/status/1332349861774155778)图片来源：[https://twitter.com/realDonaldTrump/status/1332349861774155778](https://twitter.com/realDonaldTrump/status/1332349861774155778)
-
-1. 这就是一场心理战，也显示出川普总统向对方发起挑战的底气；
-2. 亨特拜登“硬盘门”调查依然在进行，未来一定会追踪法律责任；
-3. “硬盘门”事件后，亨特至今始终没有发声，期间他只参加过一次乔·拜登的庆功会；
-4. 亨特拜登“硬盘门”事件第二季即将开始，拜登家族的腐败行为就涉及到危害国家安全的犯罪行为；
-5. 川普总统此举暗示他已经完全掌握亨特· 拜登的行踪以及他家族的犯罪证据；
-6. 川普总统在2020年1月6日就曾发文：Where is Hunter. 他早在那时就知道拜登家族事件，完全可使用国家安全总统令对拜登家族进行全面监控，监控他们与美国主流媒体和科技大公司的各种私下交易，最终向这些科技公司和主流媒体算总账；
-
-
-未来美国司法机构将查清每张选票的合法性，也将向所有涉嫌违法犯罪的机构公司以及个人追究法律责任。今天，由于观众人数未到25000人，路德社重磅只能放到下期，请大家继续关注！
-
-参考文章：
-
-[1] [https://twitter.com/htommy998/status/1332388039776108544](https://twitter.com/htommy998/status/1332388039776108544)
-
-[2] [https://www.thegatewaypundit.com/2020/11/attention-trump-campaign-green-party-candidate-jill-stein-won-groundbreaking-case-october-gives-campaign-right-examine-voting-machine-source-code/?utm\_source=Parler&utm\_medium=PostTopSharingButtons&utm\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/11/attention-trump-campaign-green-party-candidate-jill-stein-won-groundbreaking-case-october-gives-campaign-right-examine-voting-machine-source-code/?utm_source=Parler&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
-
-[3] [https://twitter.com/realDonaldTrump/status/1332349861774155778](https://twitter.com/realDonaldTrump/status/1332349861774155778)
-
-视频来源：[https://www.youtube.com/watch?v=A4pJIahf2zw](https://www.youtube.com/watch?v=A4pJIahf2zw)
-
-*文章撰写：【重生】    编辑：【GM31】*
-
-*战友之家玫瑰园小队出品*
+GNEWS参考文章：《新歌上架在香港被封杀，中共到底怕什么》[https://gnews.org/zh-hans/433031/](https://gnews.org/zh-hans/433031/)
 
 0

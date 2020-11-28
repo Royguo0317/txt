@@ -1,49 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】六支纪律部队大跳『忠字舞』高调出稿「示忠」 全力支持《施政报告》 通稿式标题
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/598573/)
+## Bombshell on LUDE Media: CDA 230 Soon to be Terminated
+` GM113` [轉載自GNews](https://gnews.org/zh-hans/598582/)
 
-整撰：文燕
+Source Link: [https://gnews.org/zh-hant/596877/](https://gnews.org/zh-hant/596877/)
 
-覆核：文非
+In- depth analysis of President Trump’s twitter post and video on LUDE Media morning program on November 27, 2020:
 
-林郑月娥任内的第四份《施政报告》提到，根据《基本法》第 99 条，公务员必须尽忠职守，对香港特区政府负责。政府早前已要求今年 7 月 1 日或之后入职的政府公务员，必须按公务员事务局要求，宣誓拥护《基本法》、效忠香港特区并对特区政府负责。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28014553/jpg-image001-1.jpg)插图来源：苹果日报
-据港媒报道，施政报告公布约3小时后，六支纪律部队「突然」清一色以「全力支持《行政长官2020年施政报告》」为题，各自发稿，擦鞋大赞报告，并表明全力配合。纪律部队如此「示忠」，前所未见。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28014540/jpg-image003.jpg)资料来源：苹果日报
-首先是警务处，约在今午4时，发出题为「警务处处长全力支持《行政长官2020年施政报告》」的稿件，内容指处长邓炳强全力支持《施政报告》，定必带领警队，维护国家及香港安全，严正执法，制止及打击危害国安的行为和活动。
 
-3分钟后，香港海关，关长邓以海指《施政报告》内容令人鼓舞，海关定必竭力支持及配合政府落实，包括在皇岗口岸实施「一地两检」，为维护国家安全贡献力量。
 
-5分钟后消防处亦发稿，指处长梁伟雄盛赞施政报告的多项措施，务求在政治体制上正本清源，表示消防处会配合政府的政策和施政方针，维护香港的长期繁荣安定。
 
-3分钟后，「入境事务处全力支持《行政长官2020年施政报告》」的新闻稿发布，指处长区嘉宏大赞施政报告政策和措施令香港重回正轨，入境处会联同其他纪律部队将继续维持社会秩序，务求使香港成为最安全城市。
 
-10分钟后，惩教署发稿，指署长胡英明全力支持报告，更使用施政报告主题字眼「砥砺前行，重新出发」。胡说，该署会协助青少年在囚人士改过自新，还透过社区教育项目，培养有国家情怀及奉公守法意识的年轻一代。
+1. **President Trump tweeted on the termination of CDA 230 (Communications Decency Act) [1]**
 
-30分钟后飞行服务队发出大同小异发稿。有意思的是，飞行服务队总监胡伟雄指飞行服务队会「支援各执法机关维持治安及维护国家安全」；而飞行服务队一直被质疑，与警方早已知悉被送中的12港人潜逃计划，未能解释定翼机为何破例在凌晨出动。
 
-记者翻查资料，发现全国人大会议今年5月中出手制定「港版国安法」后，上述六大纪律部队首长已齐声表明支持立法，今次是六大部队再次出动。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28032046/230-3-1.png)
 
-战友点评：
+1. CDA 230 [2] is a shield, which protects U.S. technology companies from taking on legal liabilities for whatever third parties post on their platforms. Secondly, those technology companies could remove third-party posts for certain reasons with no legal liabilities.
+2. The most notable difference in the tweet was the mentioning of national security and immediate termination.
+3. As is customary in the U.S.A, legislation requires a minimal 50% vote to pass, while the repeal of a bill requires a minimal two-thirds vote of the House of Representatives and the Senate. Finally, it requires President sign-off in order to take effect.
+4. It is entirely possible, based on Attorney Powell’s previous pleadings as a template, to use intelligence testimonies to convince the court of the CCP crimes against U.S national security through its media manipulation. The President could then issue an executive order directly to terminate the CDA 230, leaving no standing for technology companies to appeal.
+5. A two-thirds vote of Congress is required to repeal Presidential Executive Orders (especially those involving national security threads). Since President Trump has gained a great deal of support from the American people, President Trump shall soon repeal CDA 230.
+6. Behind the scenes, CDA 230 is also the result of a balance of interests of major influential groups. As those major influential groups begin to realize the CCP’s infiltration, they will also facilitate the repeal of the Act.
+7. Once the Act is repealed, these technology companies will face numerous lawsuits, large compensations, and antitrust splitting.
+8. U.S. National Security Directives may be unpublished and unregistered, by which President Trump could authorize Mr. Giuliani or Mr. Bannon to conduct secret investigations.
+9. The enemy must be identified before National Security Directives can be used and Iran and the Chinese Communist Party are now determined by President Trump as America’s enemies.
+10. This comprehensive political operation is a big game, in which the Whistleblower Movement has been playing a very significant role.
 
-《基本法》要求公务员效忠行政长官和香港特区政府，并且公务员必须保持政治中立。但【港版国安法】实施后，规定香港公务员就任必须宣誓拥护《基本法》和效忠特区。现在更明言「不签署声明的公务员会令人怀疑不能接受这基本要求」，「升迁一定有影响」。可见港共政府进一步规范了公务员的政治表态。
 
-香港六支纪律部队这种集体一式一样的表忠，有如中共党员宣誓对党的忠心。再者，根据党规，各省市官员必须公开向中央表示效忠。
+The Whistleblower Movement, started and led by Mr. Miles Guo, has begun exposing the conspiracy of the CCP since 2017, which led to the transformation of the U.S.-China relationship from an alliance in 2017 to today’s hostile relationship. The transformation started with the COVID-19, and then the CCP manipulating the U.S. election, as well its Infiltration of the U.S. Justice System. All these efforts have completely awakened U.S. major influential groups and all they want to do now is to drain the swap and take down the CCP.
 
-在中共国，维稳队伍和国安民警无疑就是最重要的纪律部队，他们都是国家的维稳兵团，也是极权政府的得力助手。全面回归后的香港，在中央眼中也只不过是一个地区。对中央来说，香港区最重要的是要「由乱转治」，那么香港这六支纪律部队可说是「任重道远」。
+2. **Important messages revealed from President Trump’s Video Speech**
 
-2018年习近平在一次会议上大谈「民主集中制」。习强调「民主集中制」是中共的根本组织原则和领导制度，「可以统一全党思想和行动，有效防止和克服议而不决、决而不行的分散主义。」换句话说习近平以「民主集中制」达到进一步统一思想的目的。
+Highlights of President Trump’s speech on November 26, 2020 [3]:
 
-读懂习近平的「民主集中制」思想，我们就不难理解为何港共六支纪律部队「突然」清一色支持林郑的「大湾区」施政报告。这种政治表态除了认同香港未来与大湾区共同体，更意味着六支纪律部队在思想上与习近平一致，在行动上也与中央一致，共同「管好香港」。香港随时成为下一个新疆。
+1. Some said that no one knows the ownership of Dominion and the election count was conducted overseas. In fact, regarding Dominion, it is worse than that.
+2. The machine count could be modified to favor one side over another, simply by modifying the chip. This is what happened in the swing states, especially in Detroit.
+3. President Trump says that time is now on his side and that everything, especially the facts, are on his side.
+4. The vote count curve was very smooth until the sudden stop of counting.  And then there was a spike.
+5. President Trump made it clear: a lot will happen between now and January 20th.
+6. There were many machine “glitches”, and each “glitch” caused a flip from Trump to Biden. Cheating and stealing were caught.
+7. President Trump indicated that they (the CCP) used COVID-19 in order to deceive the people.
+8. President Trump said that Tech giants still use CDA 230 as a shield, which is disgraceful. (President Trump later tweeted about it)
+9. In fact, President Trump won the election by a landslide. Even though the main media does not report it, the American people know what happened.
 
-以上观点仅代表笔者本人
 
-资料来源：苹果日报、DW 在线报导
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28023950/Domnion-Trump.png)Image source: [https://video.parler.com/ol/UQ/olUQO3UPKdp8.mp4](https://video.parler.com/ol/UQ/olUQO3UPKdp8.mp4)
 
-[https://hk.appledaily.com/local/20201125/5PSXKMMNGZF5HGDKUUMSW6ZSSY/](https://hk.appledaily.com/local/20201125/5PSXKMMNGZF5HGDKUUMSW6ZSSY/)
+**Analysis as follows:**
 
-[https://www.dw.com/zh/%E8%87%AA%E6%88%91%E6%89%B9%E8%AF%84%E5%86%8D%E7%8E%B0-%E4%B8%AD%E5%85%B1%E9%AB%98%E5%B1%82%E5%90%91%E4%B9%A0%E9%A2%86%E5%AF%BC%E8%A1%A8%E5%BF%A0/a-46881116](https://www.dw.com/zh/%E8%87%AA%E6%88%91%E6%89%B9%E8%AF%84%E5%86%8D%E7%8E%B0-%E4%B8%AD%E5%85%B1%E9%AB%98%E5%B1%82%E5%90%91%E4%B9%A0%E9%A2%86%E5%AF%BC%E8%A1%A8%E5%BF%A0/a-46881116)
+1. President Trump has access to intelligence sources, and it was well planned in advance, which allows him to have more insights than ordinary people.
+2. President Trump again mentioned the media’s use of CDA 230 to deceive the American people, which implies that he may repeal this Act.
+3. From all above, it is very clear that President Trump knows that he is winning the election for certain.
 
+
+**Reference:**
+
+[1][https://twitter.com/realDonaldTrump/status/1332175155104247808](https://twitter.com/realDonaldTrump/status/1332175155104247808)
+[2][https://zh.wikipedia.org/wiki/%E7%BE%8E%E5%9B%BD%E7%BD%91%E7%BB%9C%E5%AE%A1%E6%9F%A5](https://zh.wikipedia.org/wiki/%E7%BE%8E%E5%9B%BD%E7%BD%91%E7%BB%9C%E5%AE%A1%E6%9F%A5)
+[3][https://parler.com/post/f9f62443b7cd4f46be231ab15248de3f](https://parler.com/post/f9f62443b7cd4f46be231ab15248de3f)
+
+Article writing: 【重生】Translator:【文所未闻】Proofreading:【Magic】Coordinator：【key】 Editor: 【GM80】【GM113】
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28030218/rosegardenteam-3.png)
 0

@@ -1,16 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [深度报道]肖建华的包商银行破产,  “明天系” 与中共高层深厚的关系，以及他腐朽的私人生活
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/598103/)
+## 亨特“硬盘门”事件的计算机店老板遭死亡威胁
+` GM77` [轉載自GNews](https://gnews.org/zh-hans/598180/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27223817/PDFtoJPG.me-01-1-1-scaled.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27223835/PDFtoJPG.me-02-1-1-scaled.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27223854/PDFtoJPG.me-03-1-1-scaled.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27223913/PDFtoJPG.me-04-1-1-scaled.jpg)
-……
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27223940/PDFtoJPG.me-49-1-scaled.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27223958/PDFtoJPG.me-50-1-scaled.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27224015/PDFtoJPG.me-51-1-scaled.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27224038/PDFtoJPG.me-52-scaled.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27224051/PDFtoJPG.me-53-scaled.jpg)
-附件：完整文档
+整撰：文錦
+复核：WENJUN
 
-[【深度报道】肖建华的包商银行破产-他的明天系-与中共高层深厚的关系，以及他腐朽的私人生活](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27224200/%E3%80%90%E6%B7%B1%E5%BA%A6%E6%8A%A5%E9%81%93%E3%80%91%E8%82%96%E5%BB%BA%E5%8D%8E%E7%9A%84%E5%8C%85%E5%95%86%E9%93%B6%E8%A1%8C%E7%A0%B4%E4%BA%A7-%E4%BB%96%E7%9A%84%E6%98%8E%E5%A4%A9%E7%B3%BB-%E4%B8%8E%E4%B8%AD%E5%85%B1%E9%AB%98%E5%B1%82%E6%B7%B1%E5%8E%9A%E7%9A%84%E5%85%B3%E7%B3%BB%EF%BC%8C%E4%BB%A5%E5%8F%8A%E4%BB%96%E8%85%90%E6%9C%BD%E7%9A%84%E7%A7%81%E4%BA%BA%E7%94%9F%E6%B4%BB.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27224200/%E3%80%90%E6%B7%B1%E5%BA%A6%E6%8A%A5%E9%81%93%E3%80%91%E8%82%96%E5%BB%BA%E5%8D%8E%E7%9A%84%E5%8C%85%E5%95%86%E9%93%B6%E8%A1%8C%E7%A0%B4%E4%BA%A7-%E4%BB%96%E7%9A%84%E6%98%8E%E5%A4%A9%E7%B3%BB-%E4%B8%8E%E4%B8%AD%E5%85%B1%E9%AB%98%E5%B1%82%E6%B7%B1%E5%8E%9A%E7%9A%84%E5%85%B3%E7%B3%BB%EF%BC%8C%E4%BB%A5%E5%8F%8A%E4%BB%96%E8%85%90%E6%9C%BD%E7%9A%84%E7%A7%81%E4%BA%BA%E7%94%9F%E6%B4%BB.pdf)
+曝光拜登儿子亨特「硬盘门」丑闻的计算机维修店老板艾萨克，近日遭到死亡威胁，被迫关闭维修店，不再露面。
 
+据《特拉华新闻杂志》11月24日报导，艾萨克的邻居说，最近艾萨克在计算机维修店前立了一块「该店关门」的牌子，并且离开了家乡威明顿。
 
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27230928/11.28-1.png)
+
+艾萨克的律师罗卡（Brian Rocca）证实了维修店关闭的消息。他说，艾萨克收到了死亡威胁，维修店被迫关闭了。但他拒绝透露艾萨克可能去的地方，也拒绝透露艾萨克是否已离开了威明顿。
+
+罗卡表示，他不认为艾萨克会卷入与亨特「硬盘门」有关的诉讼或刑事调查。但他也提到，「一直与联邦执法部门保持着接触。」
+
+据此前媒体报导，亨特的计算机硬盘中包含很多拜登家族与中共、俄罗斯等外国势力进行腐败交易的信息，还有大量亨特吸毒、淫乱的照片和视频。罗卡指出，这些信息都是真实的，经过了专家验证。
+
+罗卡还提到，艾萨克在2019年12月就把亨特的计算机交给了当地联邦调查局，但一直没有收到任何回音。因此，艾萨克在今年9月联系了川普的私人律师、前纽约市长朱利安尼（Rudy Giuliani），将硬盘交给了朱利安尼。
+
+今年10月，在美国大选前夕，《纽约邮报》曝光了亨特硬盘门丑闻，引起舆论轰动。但美国左派媒体和脸书、推特及谷歌极力封锁相关信息。朱利安尼10月18日接受福克斯新闻采访时披露，曝光拜登家族丑闻的计算机维修店老板艾萨克因担心被灭口，在把硬盘上交给FBI之前拷贝了四份。
+
+朱利安尼说，艾萨克曾告诉联邦调查局（FBI）探员，他很害怕。他说，「拜登家族在这里（的势力）非常强大……我真的很担心他们会对我做什么。」朱利安尼表示，早在去年底，艾萨克就将他拷贝的一份硬盘副本交给了FBI，但过去10个月了，仍不见FBI有任何动静。于是，艾萨克选择向川普律师朱利安尼爆料。
+
+他将其中一份副本交给了朱利安尼的律师科斯特洛（Robert Costello），剩下的两份，艾萨克托他的朋友代为保管，以防自己被拜登家族杀害。朱利安尼还谈到，艾萨克对民主党人针对川普总统不实的弹劾指控感到很气愤，因此他才下决心将拜登家族的丑闻曝光。
+
+拜登家族「硬盘门」丑闻曝光后持续发酵，有多名与拜登家族有关联的证人出来做证，指控拜登在担任副总统期间，出卖美国利益，与中共及俄罗斯进行交易。
+
+川普总统曾直言，拜登是腐败的政客，若拜登大选获胜，中共将会控制美国。
+
+无论威胁计算机维修店老板艾萨克是谁，“硬盘门”上的有关亨特虐童的证据和乔-拜登家族与中共勾兑的证据已板上钉钉，就算已被中共渗透的美国FBI不作为，朱利安尼先生和爆料革命等多方早已配合默契。
+
+“硬盘门”仅仅是乔-拜登任职副总统时期犯下的罪行，如今乔-拜登正站在2020美国总统大选的风口浪尖，拜登阵营通过大规模的舞弊手段窃取选举的证据，再次被朱利安尼先生领导下的川普总统律师团队、注册军事律师鲍威尔女士和爆料革命的战友获取，尽管包括川普律师、证人及共和党官员均受到拜登阵营的死亡威胁，但是代表正义一方的力量不会停下脚步，将继续朝着川普总统连任、美国排干沼泽和消灭中共的方向前行。
+
+参考链接：
+[https://www.ntdtv.com/b5/2020/11/27/a102996431.html](https://www.ntdtv.com/b5/2020/11/27/a102996431.html)
 
 0
