@@ -1,33 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中国教育怎么了？家长举报班主任索贿，却被其他家长浇热水，找人‘理论’居然被刑拘！
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/600612/)
+## 密歇根州重磅实锤强有力的“海妖（克拉肯）”证据
+` 喜马拉雅美国·康州盘古农场` [轉載自GNews](https://gnews.org/zh-hans/600687/)
 
-作者：文秋   审稿：DongDong    文宣：YYZ（文挚）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28173650/DCBBE8A5-E642-447A-AED4-9AAEFFBB9013-scaled.jpeg)
-据澎湃新闻转载猛犸新闻，东方今报11月25日报道，当事人汪文月（化名）的孩子就读于（河北省沧州市）华北油田十二处小学四年级。2017年9月曹老师曾向其索贿，在一个月内她四次送去茶叶及现金等价值4千多元。2020年9月27日，汪文月致电市教育局和教育局石油分局举报，调查人员反馈称举报属实，曹老师将受到处分。
+作者：M. Dowling -2020年11月27日
+翻译：康州盘古农场 – 烟波浩淼
+校对：康州盘古农场 –小水滴
+编辑：康州盘古农场 –V
 
-汪文月称，举报曹老师后，她的举报人身份就被泄露，继而遭到部分家长声讨。10月14日，她去参加校长主持的 ‘调解’时，被一家长用热水从头浇下。汪文月的弟弟气愤之下在班级群里骂了几句组织的家长，弟弟和她一起去了组织者家理论时，弟弟踢了对方的门。对方的女儿两次拳击她儿子，她找对方女儿理论并揪了对方的衣领，她和弟弟因此被刑拘20天。
+有位侦探在推特上收集到了西德尼·鲍威尔(Sidney Powel) 在密歇根州 “**海妖**克拉肯 “诉讼案中的部分证词。我们在此为您转发。我们不能肯定这些是否完全属实，但它们的确是很有力的重磅信息。
 
-笔者注意到，曹老师索贿和汪女士举报都发生在当年的九月。国人皆知，每年九月中国有个教师节，这个节日基本都是家长们表忠心的时候。自己的孩子能否坐在前排，能否在课堂上在家庭作业批改上受到老师的特殊眷顾，就看家长的红包有多大。
+下面的内容还需要调查和确认，但你需要知道它们!
 
-由此笔者想起了两个发生在自己朋友身上跟这个特殊节日有关的两个事例。
+密歇根州的怪事!
 
-（1）  一个朋友前几年离婚，把3个孩子送回上海跟外婆一起生活。由于三个孩子是外籍，所以就读于上海某私立学校。回上海的时候，老大已经上6年级了。9月孩子发来消息称教师节要到了，要给老师准备礼物。因为朋友在国外生活多年，完全不知道国内的潜规则。她回复说，买一束花并附一张你亲手写的贺卡送给老师。当孩子把花递给老师的时候，老师当着全班孩子的面，直接把花扔进了垃圾桶说：**我要钱**！
+这是西德尼·鲍威尔在密歇根州的许多法律文件中的一部分。它们是性质严重的，令人震惊的和可信的。
 
-（2）  另一个朋友在金华，这是他的孩子上小学3年级时的事。同样也是教师节要到了，孩子的老师暗示孩子们要送大礼给他。朋友和另外两个孩子的家长一商量，**三家合伙送了老师一辆5万多人民币的汽车。**我的天，居然发生这种魔幻的事情！
+首先，真正的，活生生的选民不会投零碎的票。他们每人投一票，没有小数点。
 
-如果不是朋友亲身经历，在海外生活的人根本不知道国内的教师节已如此腐烂不堪。
+“在专家重新计票时，他们观察到从Dominion的数据源直接引进的投票数据中居然包括小数点，这证明获胜者是由计算机算法选出来的，而不是由真实的每个选民选出来的。”
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184303/Picture1-30.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184341/Picture2-23.png)
+证词 12：宣誓人：Eric Quinnell博士
+1。我叫Eric Quinnell博士。我已经年满18岁，并且有资格在这项诉讼中作证。本文陈述的所有事实都是真实的，而且是基于我的个人知识。在我的专业领域中，本文中的所有科学结论均在合理的科学确定性范围内得出。
+2。我于2004年5月获得了德克萨斯大学奥斯汀分校的工程学学士学位，于2006年5月获得了电路设计理学硕士学位，并于2007年5月获得了计算机算术博士学位。
+3。 我作为工程师设计和领导团队，在电路架构和处理的各个方面都拥有丰富的专业经验。我经常以这种身份从事复杂而高端的数学预测建模和统计分析。我需要依此向高层领导人员和其他决策人预备汇报报告和分析。我以个人身份发表此声明。
 
-这是中国当下教育届两个缩影，但相信绝不是个例，而是CCP治国下所普遍存在的现象。当单纯如天使般的孩子长期浸泡在弥漫金钱氛围的教育体制中时，未来的他们能分辨善恶吗？华夏民族的未来又何去何从？
+投票人数超过了新注册投票人数：
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184414/Picture3-20.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184441/Picture4-17.png)
+令人难以置信的投票率：
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184509/Picture5-19.png)
+**证词 14：**
+宣誓人：小罗素·詹姆斯·拉姆斯兰（Russell James Ramsland）：
+1。我Russell James Ramsland），我是德克萨斯州达拉斯县的居民。我拥有哈佛大学的工商管理硕士学位和杜克大学的政治学学位。我曾与美国国家航空航天局（NASA）和麻省理工学院（MIT）等组织合作，并在世界各地开展业务，其中许多都是高技术性的。我曾在政府技术小组任职。 
+2。我是联合安全运营集团有限公司（ASOG）的管理团队的成员。 ASOG是由全球参与的专业人员组成的团队，他们来自各个领域，包括国防部，特勤局，国土安全部和中央情报局。它提供了一系列安全服务，但是特别强调了网络安全，开源调查和网络渗透测试。我们雇用了各种各样的网络和网络法证分析师。从新颖的网络安全应用到SCADA（监控和数据采集）保护以及用于深色和深色Web的安全浏览解决方案，我们在各种应用中都拥有正在申请的专利。对于本报告，我依靠这些专家和资源。 
+3。2018年11月，ASOG分析了2018年德克萨斯州达拉斯大选的ES＆S选举管理系统（EMS）中央制表服务器的审核日志。我们的团队对其中本不应该出现的海量的错误而感到震惊。这些错误有数千个，系统操作员罔顾并掩盖了所有这些。这导致了针对选举的各种法律挑战，我们为其中一些提供了证据和分析。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184533/Picture6-15.png)
+黑客和伊朗:
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184551/Picture7-8.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184603/Picture8-4.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184616/Picture9-4.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184626/Picture10-4.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184634/Picture11-2.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184643/Picture12-2.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184654/Picture13-3.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184706/Picture14-5.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184718/Picture15-3.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184727/Picture16-3.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184737/Picture17-3.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184748/Picture18-4.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184801/Picture19-4.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184809/Picture20-1-2.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184820/Picture21-4.png)
+原文链接：
 
-家长们默许并助长了这种丑恶甚至是犯罪行为，并集体排斥坚持正义的人。是不是有一部分成年人已经丧失了分辨是非善恶的能力，并把反抗邪恶的人当成敌人一样去攻击。
-
-在参加爆料革命以前，笔者听闻此类新闻也只是非常气愤，见多了甚至会麻木。我搞不清楚，这些社会矛盾的根源在哪里？为什么坏人越来越多？是谁造成了今天中国社会里罪恶横行，见死不救的局面？
-
-跟随郭先生和爆料革命这三年多，亲见他所受到无数恶意攻击，以及家人、同事、财产被中共以莫须有的罪名拘捕、关押、没收。而天选之子川普总统，四年来历经攻击、蔑视，这次大选中川普总统代表的平民主义受到各种攻击。由此不难看出，在中共收买了世界上的邪恶力量的今天，邪恶势力从未停止对优秀的正义人士攻击！万佛万神定会跟正义力量一起绞杀邪恶！
-
-中国的社会问题，美国的黑命贵，Antifa背后都是中共这只黑手在掌控。中共才是中国社会问题和社会矛盾的灾难根源。消灭CCP！否则，中国灾难重重的今天就是全世界各国暗无天日的明天！
+[Compelling, powerful, credible kraken exhibits in Michigan (independentsentinel.com)](https://www.independentsentinel.com/compelling-powerful-credible-kraken-exhibits-in-michigan/)
 
 0

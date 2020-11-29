@@ -1,97 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 秘密翻译组之主题曲《喜马拉雅之恋》
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/600951/)
+## 脸书审查算法大乱，封杀处境艰难的合法企业广告！视其为 &#8220;仇恨言论&#8221;
+` 喜马拉雅美国·康州盘古农场` [轉載自GNews](https://gnews.org/zh-hans/601062/)
 
-## **《喜马拉雅之恋》**
+翻译： 康州盘古农场-一花一世界
 
-作词：木兰传奇
-Lyrics: Mulan
+校对：康州盘古农场- 烟波浩淼
 
-作曲：铁蛋儿
-Composer: Tie-dan
+审核： 康州盘古农场-Truemanman
 
-编曲制作：Frank
-Arrangement: Frank
+如今对于社交媒体公司来说， 其良性回报来自于是否能对网上言论有相似的标注，脸书（Facebook）刚刚发现，它的超级审查算法还禁止了一些处境艰难企业的广告，将其误认为是仇恨言论。
 
-演唱：木兰传奇、铁蛋儿
-Singer: Mulan, Tie-dan
+*我们喜欢统一计划。*
 
-## **歌词**
+一位在脸书上做广告出售她的蜂蜜和蜂蜡产品的女性露丝·哈里根（Ruth Harrigan）告诉《彭博社》，她认为自己错失了大约5,000美元的收入，原因是脸书在黑色星期五之前错误地禁止了她的广告。
 
-在时空的一瞬间
-In a moment of time and space
+她说：“我都有些着急了，‘天哪，马上就是黑色星期五，我一年中的大部分销售额都发生在11月和12月，就是这样。”就是说，‘如果在此期间不能营业，我就要倒闭了。’”
 
-我们彼此相遇
-We met each other
+该公司的“错误内容审核软件”应该受到指责-特别是在大流行期间，卖家更依赖脸书和其它社交媒体的广告来推动业务。事实上，脸书今年对内容的审查力度非常大，由于他们没有足够的人手，一直是由软件来完成这项工作。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28232042/%E5%9B%BE%E7%89%871-43.png)
+不仅仅是哈里根遇到了问题。在渥太华经营化妆诊所的伊冯娜·桑切斯（Ivonne Sanchez）等卖家也因“违反政策”而被屏蔽广告。她说：“在这关键的购物季，这让我们感到很震惊。这个经历使我们对投资这种看似由机器人操作的系统感到非常紧张。”
 
-从陌生到生死相依
-from strangers to dependent life and death
+数字营销公司4AM Media的联合创始人亚尼夫·格申（Yaniv Gershom）说，脸书禁令持续了6个月，导致他不得不裁掉12个工作岗位。他说：“唯一可以承受这种做法的是能出大钱的人，他们会获得脸书代表的帮助升级问题并找出问题所在。”
 
-只为那远方的喜马拉雅
-Only for the distant Himalaya
+Adskills.com的创始人贾斯汀·布鲁克（Justin Brooke）说：“它爆炸了。他们最近启动人工智能（AI）-并做了些改动-然后突然所有人都被关闭了。”
 
-她圣洁的光芒
-Her holy light
+许多其它类型的企业也看到了类似的禁令，包括咖啡配送服务公司和可重复用水瓶公司。
 
-召唤着你我的魂
-Calling to our souls
+脸书提供了以下半吊子的回应：“我们知道任何一种形式的业务中断都可能令人沮丧，尤其是在这一年中的关键时刻。我们为所有企业提供免费支持，我们会定期努力改进我们的应用和系统，以更易于使用和获得我们所提供的支持。对于最近的服务中断可能造成的任何不便，我们深表歉意。”
 
-在世界的另一端
-On the other side of the world
+现在，还是（让我们）回到230法案的讨论上来吧…
 
-我们彼此相识
-We get to know each other
+*原作者：泰勒·德登（Tyler Durden）*
 
-从推友到袍泽战友
-From net friends to fellow fighters have each other’s back
+*星期六，2020年11月28 日 11:45*
 
-只为那美丽的喜马拉雅
-Only for the beautiful Himalaya
+原文链接：
 
-她神圣的殿堂
-Her sacred temple
-
-呼唤着你我的心
-Calling to our hearts
-
-在去喜马拉雅的路上
-On our journey to the Himalaya
-
-当你哭泣，我流泪
-When you cry, I weep
-
-当你微笑，我欢喜
-When you smile, I rejoice
-
-永不后悔
-Never regret
-
-在去喜马拉雅的路上
-On our journey to the Himalaya
-
-当你战斗，我跟随
-When you fight, I follow
-
-当你受伤，我安慰
-When you hurt, I comfort
-
-永不后退
-Never retreat
-
-在去喜马拉雅的路上
-On our journey to the Himalaya
-
-我们不屈不挠，不离不弃
-We are unyielding and never give up
-
-在去喜马拉雅的路上
-On our journey to the Himalaya
-
-我们萍水相逢，生死相依
-We have met by chance, our destinies are entwined since
-
-#### **By：【秘密翻译组G-Translators】**
+[https://www.zerohedge.com/technology/facebook-censorship-algos-go-haywire-blocking-ads-struggling-legitimate-businesses-hate](https://www.zerohedge.com/technology/facebook-censorship-algos-go-haywire-blocking-ads-struggling-legitimate-businesses-hate)
 
 0

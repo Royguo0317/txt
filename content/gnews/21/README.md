@@ -1,45 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 密歇根州重磅实锤强有力的“海妖（克拉肯）”证据
-` 喜马拉雅美国·康州盘古农场` [轉載自GNews](https://gnews.org/zh-hans/600687/)
+## 斯伯丁将军：北京利用冠状病毒大流行干扰美国大选
+` GM107` [轉載自GNews](https://gnews.org/zh-hans/600917/)
 
-作者：M. Dowling -2020年11月27日
-翻译：康州盘古农场 – 烟波浩淼
-校对：康州盘古农场 –小水滴
-编辑：康州盘古农场 –V
+(据自然新闻报道)一位中国事务专家说，共产党国家利用冠状病毒(COVID-19)大流行来影响美国大选。退役空军准将罗伯特-斯伯丁（Robert Spalding）11月10日在参加《时代周刊》的美国思想领袖节目时说。”我们在2020年，正处于中共在全世界发动的摧毁自由主义的人民战争之中。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28221226/Coronavirus-China-Flag-Virus-Red.jpg)
+斯伯丁将军说，**中国希望未来世界由专制政权主导**，而中共几十年前就意识到，它需要依附于美国，以获得贸易、人才和资本来发展经济。
 
-有位侦探在推特上收集到了西德尼·鲍威尔(Sidney Powel) 在密歇根州 “**海妖**克拉肯 “诉讼案中的部分证词。我们在此为您转发。我们不能肯定这些是否完全属实，但它们的确是很有力的重磅信息。
+“中共在美国想要的，本质上是与美国两个政党和美国企业之间的这种合作关系，以压制工人阶层的利益来使富人获利，”斯伯丁解释说。
 
-下面的内容还需要调查和确认，但你需要知道它们!
+中共通过与美国达成协议，迈出了这一野心的第一步，导致中国在2001年加入世界贸易组织（WTO）。斯伯丁说，这随后导致了美国工人家庭的毁灭。
 
-密歇根州的怪事!
+然后在2020年1月初，北京发现自己已无路可退。它所签署的第一阶段中美贸易协定有可能改变它的经济，这将导致国内失业率上升。但武汉爆发的COVID-19疫情给中国带来了一个扭转命运的机会。据这位退役将军介绍，中国的危机一词由 “危 “和 “机 “字组成。
 
-这是西德尼·鲍威尔在密歇根州的许多法律文件中的一部分。它们是性质严重的，令人震惊的和可信的。
+**中共把COVID-19大流行变成了领先于美国的机会**
 
-首先，真正的，活生生的选民不会投零碎的票。他们每人投一票，没有小数点。
+中共在武汉看到了疫情的影响，意识到这是中国等待的机会，可以一举超越对手的霸主地位。斯伯丁说，该政权因此允许国际航空旅行，同时关闭国内旅行，从而使冠状病毒得以在全球范围内传播。它还聚集和囤积世界各地的医疗用品，导致全球短缺。
 
-“在专家重新计票时，他们观察到从Dominion的数据源直接引进的投票数据中居然包括小数点，这证明获胜者是由计算机算法选出来的，而不是由真实的每个选民选出来的。”
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184303/Picture1-30.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184341/Picture2-23.png)
-证词 12：宣誓人：Eric Quinnell博士
-1。我叫Eric Quinnell博士。我已经年满18岁，并且有资格在这项诉讼中作证。本文陈述的所有事实都是真实的，而且是基于我的个人知识。在我的专业领域中，本文中的所有科学结论均在合理的科学确定性范围内得出。
-2。我于2004年5月获得了德克萨斯大学奥斯汀分校的工程学学士学位，于2006年5月获得了电路设计理学硕士学位，并于2007年5月获得了计算机算术博士学位。
-3。 我作为工程师设计和领导团队，在电路架构和处理的各个方面都拥有丰富的专业经验。我经常以这种身份从事复杂而高端的数学预测建模和统计分析。我需要依此向高层领导人员和其他决策人预备汇报报告和分析。我以个人身份发表此声明。
+然后，它开展了多方位的宣传活动，以掩盖其在造成疫情方面的作用，同时吹嘘其对疫情的处理。其中一些行动涉及指控冠状病毒来自美国和欧洲等，并呼吁鼓励类似于中国的封锁。
 
-投票人数超过了新注册投票人数：
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184414/Picture3-20.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184441/Picture4-17.png)
-令人难以置信的投票率：
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184509/Picture5-19.png)
-**证词 14：**
-宣誓人：小罗素·詹姆斯·拉姆斯兰（Russell James Ramsland）：
-1。我Russell James Ramsland），我是德克萨斯州达拉斯县的居民。我拥有哈佛大学的工商管理硕士学位和杜克大学的政治学学位。我曾与美国国家航空航天局（NASA）和麻省理工学院（MIT）等组织合作，并在世界各地开展业务，其中许多都是高技术性的。我曾在政府技术小组任职。 
-2。我是联合安全运营集团有限公司（ASOG）的管理团队的成员。 ASOG是由全球参与的专业人员组成的团队，他们来自各个领域，包括国防部，特勤局，国土安全部和中央情报局。它提供了一系列安全服务，但是特别强调了网络安全，开源调查和网络渗透测试。我们雇用了各种各样的网络和网络法证分析师。从新颖的网络安全应用到SCADA（监控和数据采集）保护以及用于深色和深色Web的安全浏览解决方案，我们在各种应用中都拥有正在申请的专利。对于本报告，我依靠这些专家和资源。 
-3。2018年11月，ASOG分析了2018年德克萨斯州达拉斯大选的ES＆S选举管理系统（EMS）中央制表服务器的审核日志。我们的团队对其中本不应该出现的海量的错误而感到震惊。这些错误有数千个，系统操作员罔顾并掩盖了所有这些。这导致了针对选举的各种法律挑战，我们为其中一些提供了证据和分析。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184533/Picture6-15.png)
-黑客和伊朗:
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184551/Picture7-8.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184603/Picture8-4.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184616/Picture9-4.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184626/Picture10-4.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184634/Picture11-2.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184643/Picture12-2.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184654/Picture13-3.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184706/Picture14-5.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184718/Picture15-3.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184727/Picture16-3.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184737/Picture17-3.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184748/Picture18-4.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184801/Picture19-4.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184809/Picture20-1-2.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184820/Picture21-4.png)
-原文链接：
+中国还通过世界卫生组织（WHO）总干事谭德塞（Tedros Adhanom Ghebreyesus），利用世界卫生组织（WHO）来达到自己的目的。在来自北京的压力下，谭德塞淡化了早期阶段人与人之间传播的风险。
 
-[Compelling, powerful, credible kraken exhibits in Michigan (independentsentinel.com)](https://www.independentsentinel.com/compelling-powerful-credible-kraken-exhibits-in-michigan/)
+谭德塞还拒绝台湾成为世卫组织成员，而台湾因应对疫情而受到称赞。仅在今年，台北就被排除在世界卫生大会的两次会议之外。它最初被挡在5月的第一次会议和11月的后续会议之外。
+
+**中国在美国大选中渗透已根深蒂固，甚至在冠状病毒大流行之前就已经如此**
+
+中国还推崇美国总统川普领导下的美国，在处理疫情方面做得不好的说法，这种说法在11月大选前获得了很大的关注。
+
+“当你把所有这些事情加在一起的时候，中共的行动实际在故意影响了美国的选举，”斯伯丁说。他补充说，因冠状病毒大流行而推出的大规模邮寄投票，就是中共行动的影响。
+
+“**为什么我们会有大规模的邮递投票？因为冠状病毒；我们为什么会有冠状病毒？因为中共；**为什么他们有这个机会？因为我们把他们带进了WTO，因为我们【欢迎】他们进入国际社会。这一切都在一起。”
+
+此外，斯伯丁还指出，一些用于投票的数字机器的一些字节、或软件、或硬件来自中共国。他说：”在一次又一次的研究中，已经注意到了这一点。”在一项又一项的研究中，我们已经注意到了这一点，我们在邮寄选票和数字机器方面都面临着挑战，特别是（那些）有来自中共国的组件的机器。”
+
+早在8月，海关和边境保护局（CBP）特工就截获了近2万张可能用于投票欺诈的假驾照。这些驾照是海关人员查获的1500多批货物中的一部分，大部分来自香港和中国。CBP的Ralph Piccirilli指出，这些假身份证多为大学年龄的个人，有些照片相同但名字不同。
+
+**如果中共国有能力伪造美国政府文件，那么尽管目前疫情不断，中共国无疑也有同样的能力，进行更大规模的行动——比如干预选举。**
+
+新闻来源：Natural News
+原文链接：[https://www.naturalnews.com/2020-11-28-beijing-used-coronavirus-to-interfere-with-us-elections.html](https://www.naturalnews.com/2020-11-28-beijing-used-coronavirus-to-interfere-with-us-elections.html)
 
 0
