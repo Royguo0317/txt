@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【字幕】11/29/2020文贵盖特：尊敬的战友们好，你们健身了吗？你们传播C C P病毒……香港危机真相了吗？
-` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/602706/)
+## 【字幕】11/28/2020文贵：普京的高瞻远瞩会给俄罗斯带来无限的未来
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/602779/)
 
 制作： 【彩虹桥】
 
-1+
+0

@@ -1,29 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “ 海妖”给佐治亚州带来感恩节礼物
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/602141/)
+## 环球时报三连发暗示:中印边境局势继续升温
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/602546/)
 
-*多伦多枫叶农场 文𤦍(Manpui）*
+- 编辑：Victor Torres
 
-*校对 文锦 上传 WJ*
 
-据Humans are Free 11月28日报道，Dominion不仅容易受到中国和伊朗的攻击或操控，而且还与亲奥巴马体系（称为ACORN)有关。让人惊诧！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29094114/Acorn-Obama.jpg)图片来源：bluegrasspundit.com
-在感恩节前夕，西德尼·鲍威尔（Sidney Powell）律师就今年佐治亚州大选的欺诈行为提出了104页的震撼性诉讼。然后她同时也在密歇根州提起诉讼。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29103335/TcEZ7DGC.jpg)图片来源：noqreport.com
-随后弗林将军（General Flynn)律师阿比盖尔·弗莱（Abigail Frye）在周三晚间也发布了新闻说，“ 海妖（Kraken）在感恩节前夕以104 页投诉的形式来到了佐治亚州”，揭露了2020年佐治亚州选举不堪重负的大规模欺诈行为。
+***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-“礼物”非常沉重啊！
+西班牙2020年11月29日电/西喜社/——近日，中共著名大外宣环球时报密集转载3篇外媒有关中印边境局势的报道，显示中共加强备战，预示中印军事对抗升级。
 
-在感恩节鲍威尔转推了自由时报和政治（Liberty Time & Poitics)的两条推文。这些推文包括一份法院文件，其中包含有关Dominion和Edison Research与互联网的连接的信息。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29102951/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE127.png)图片来源：Twitter![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29103058/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE129.png)图片来源：Twitter
-我们注意到，该文件表明Dominion和憎恨川普总统的 埃里克·库默（Eric Coomer）是该应用程序中身份验证功能的发明者。在诉讼书第8页上，我们看到了Dominion -Edison与本国国内公司的关係。 一个不可分割的实体就是以前奥巴马与ACORN有关的实体：当我们进一步细阅读附录所示，我们看到，伊朗和中国并不是唯一能够访问Dominion数据和操纵选举结果的实体。Dominion与塞尔维亚的贝尔格莱德有直接联繫，塞尔维亚现有或曾经有很多Dominion员工。
+环时转载《军事观察杂志》网站 11 月 25 日报道，中国西部战区的一些空军战斗机单位直接从歼 -7 换装为最先进的歼 -16 战斗机。
 
-在法律文件的第16页上，该文件确定了国外行动者可以通过“Dominion-Edison Research机构的关係连接美国大选。她指这真是一项令人震惊的消息。现在是否有美国人意识到我们的选举制度已受到攻击，外国人如中国和伊朗有否曾试图操纵我们的选举结果？
+该文章称，中国人民解放军西部战区空军部署的战斗机已经开始直接从歼 -7 战斗机过渡到先进的歼 -16 战斗机，尽管历史上该战区并未被优先考虑配备最新的装备。值得注意的是，西部战区司令部负责与印度接壤的边境地区的安全，该地区在 2020 年 6 月爆发了紧张局势。
 
-评论：鲍威尔律师带来104页爆炸性法律文件来说明什麽？黑暗与黎明只是一线之隔，美国人民看到了吗？
+歼 -16 是目前该战区部署的唯一的高端中国战斗机。解放军空军的” 4 ++ 代”歼 -10C 和苏 -35 战斗机，以及第五代的歼 -20 战斗机均被部署在东部和南部战区，面对日本，中国台湾省及它们的西方支持者。
 
-[原文链接](https://humansarefree.com/2020/11/dominion-prone-to-attack-from-china-and-iran-pro-obama-entity-acorn.html)
+转载《印度斯坦时报》报道，中国正在加强在列城（印度称拉达克）边境地区的防御。报道称，过去30天内，解放军对哨所的增援，部队的调动，以及对道路基础设施的迅速加强，所有这些都清楚地表明，中国正在为在实际控制线上做长期对峙的准备，尽管中印两国在讨论脱离接触和对峙降级的问题，但中国仍然对印度施加了压力。（印媒：中国继续对印度施压，数十辆坦克运输车现身中印边境附近）
 
-2+
+环视还转载了《亚洲时报》文章称，印度被中国拖进了代价高昂的战略竞争，印度浪费了大量本可用于其他地方的资源。文章称，自今年四月以来，一切都按照中国对印度战略的部署来进行，情况一直在按北京所预测的那样发展。换句话说，无论中国想让印度做什么，印度都会去做。（港媒：印度被中国拖进战略竞争，无论中国想让做什么印度都会做）
+
+就在大众的视线聚焦在美国大选争端，中印边境趋于寂静之时，环球时报密集报道中印边境军事准备不禁引人遐想:平静的外表下或暗流涌动，新一轮的边境冲突甚至战争会在何时发生?
+
+25日，习近平刚刚在中央军委军事训练会议上强调 全面加强实战化军事训练 全面提高训练水平和打赢能力。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+
+1+

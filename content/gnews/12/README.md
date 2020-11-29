@@ -1,41 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 七大荒唐的选举舞弊事实
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/602858/)
+## 快讯：法官下令冻结佐治亚州所有多米尼投票机
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/602916/)
 
-草原三省战友之家 重生之鹰
+蒙特利尔战友团 laotou
 
-校对 鹰嘴逗逗  上传 小鸥
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29155532/%E4%BD%9C%E5%81%87.jpg)图片来自 Pittsburgh Post-Gazette
-吉姆·霍夫特在11月28日门户网中报道了七个滑稽的大选舞弊事实。
+校对 上传 小鸥
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29165326/eG.jpg)图片来自WFXG
+《门道专家》1小时前发出最新消息，“法官蒂莫西·巴顿（Timothy Batten）先生周日发布命令，冻结佐治亚州所有的多米尼投票机！。”
 
-1）拜登赢得了美国历史最低的16.7%的县的选票，但却是总统候选人中得票最多的；比奥巴马还多了1000万。
+文章引用了林伍德律师的推文，“法官下令被告，维持佐治亚州所有投票机现状，禁止临时性擦拭或重置，直到法院作出进一步的命令。”
 
-2) 选举投票误差在所难免，在过去的100年里，每次选举误差都保持在中轴线上下2个区间之内。2020年的选举结果却超出了中轴线以上第3区间。根据初级统计学理论，这个超出3个区间的结果，就等于选票有99.7%欺诈率。这种荒唐在美国历史上还从未发生过。
+文章链接了林伍德律师下午发的推文。【1】
 
-我们来看看奥巴马当年上台时的投票吧，选举结果误差已经高于平均值，但是地下室乔·拜登一下子把误差送入登峰造极的水平：0.3%的概率！这意味着每1333年才能遇见一次，地道的千载难逢，或千年不遇。
+看来法官也摸透了作案、偷窃者管用的伎俩，对作恶的痕迹不是修改就是销毁，要么就是监控录像系统故障，找不到事发时间段的影像资料……
 
-3) 共和党人赢得了所有27个“竞争”的众议院席位，但却失去了总统职位? 在1960年也出现过一次被称为舞弊严重的选举，涉及的席位才只有10个。
+已经数周过去了，人们不禁担心，“窃票人”能把作案证据留下吗？相信计算机数据专家能将试图掩盖的“偷窃”痕迹还原，也警告作案者，掩盖篡改证据，只能罪加一等！
 
-4) 以往的获胜者总是在17个领头县中赢得15个或更多，但拜登只赢得了其中的一个。
+文章还说，“迈克尔·弗林（Michael Flynn）将军也加入了进来。”
 
-5) 川普赢得了共和党历史上最高比例的非白人选票率。
+弗林将军转发了林伍德律师的推，并作了附加说明，“‘海怪团队’（#TeamKraken）赢得了一项重要的禁令，巴顿法官下令冻结佐治亚州所有的多米尼投票机。
 
-6) 拜登在纽约州的支持率下降了10%以上，但在一些特定的大城市支持率大幅上升，但仅仅是在摇摆州的大城市。
+魔鬼也许已经降临到了佐治亚州，但是从今天起，迎来的将是曙光。【2】
 
-7) 战场城市的45万多张选票只投给了拜登，选票下方其他选项一律空白：不选无党派人士，也不选绿党，也没写上一个心怡的其他候选人。
+是的，饱尝过恶势力陷害的弗林将军对黑暗是多么的痛恨，对光明是多么的期待。感恩节前川普总统对弗林将军的“平反昭雪”就是一束曙光，现在负有正义感的美国人民与弗林将军一样，期待曙光的早日到来。
 
-在荒唐的选举舞弊面前， 民主党精英仍希望你相信这次选举是自由和公正的。作为一个客观的裁判，你不会相信他们!
+参考链接：
 
-简评：
+【1】[https://twitter.com/LLinWood/status/1333136893899399168](https://twitter.com/LLinWood/status/1333136893899399168)
 
-这次滑稽大选的真相正逐步被揭开！从统计学和常识逻辑等方面都可以看到，大选的舞弊已经到了何等无耻和狂妄的程度。民主党明目张胆地疯狂造假，中共台前幕后推波助澜，操纵大选；他们狼狈为奸、蛇鼠一窝地丑恶嘴脸正逐步展现在世人面前。他们这种“不管你信不信，只管你服不服”的逻辑，为达目的毫无底线，严重践踏了美国司法和美国人民捍卫宪法的尊严和决心！
+【2】[https://twitter.com/GenFlynn/status/1333138748649955329](https://twitter.com/GenFlynn/status/1333138748649955329)
 
-美国人民不会接受一个非法的造假的选举。相信随着他们操纵大选的“多猫腻”软件铁证和其他诸多相关的证人、证据陆续被揭开，美国的司法和立法体系一定会维护宪法的尊严，还美国人民一个公正的选举。纵然历经千难万险，川普总统也终将赢得大选！
+原文链接：https://www.thegatewaypundit.com/2020/11/breaking-update-judge-timothy-batten-issues-order-freeze-dominion-machines-georgia/
 
-参考链接：h[ttps://www.thegatewaypundit.com/2020/11/saturdays-fun-fraud-facts-seven-unexplainable-results-reveal-democrats-didnt-even-try-hide-fraud/?utm\_source=Twitter&utm\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/11/saturdays-fun-fraud-facts-seven-unexplainable-results-reveal-democrats-didnt-even-try-hide-fraud/?utm_source=Twitter&amp;utm_campaign=websitesharingbuttons)
-
-
-
-1+
+0
