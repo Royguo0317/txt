@@ -1,48 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 鲍威尔提起诉讼，声称伊朗和中国特工瞄准了“多米尼投票系统”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/600247/)
+## 《路德社》精选新闻快讯：俄亥俄州确认选举结果，宣布川普总统获胜
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/601011/)
 
-- 编辑：Victor Torres
+出品《路德社》 编辑：路德社精选新闻专栏组
 
+OAN新闻周六（28日）下午4：30报道，俄亥俄州认证了选举结果，川普总统以压倒性优势赢得了该州的选举，这使他在选举人中获得了18票。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28230454/2020-11-26T233909Z_1_LYNXMPEGAP1FC_RTROPTP_0_USA-ELECTION-TRUMP_1-657x437-1.jpg)
+周五，俄亥俄州州务卿弗兰克.拉罗斯(Frank LaRose)签署了Buckeye州的选举认证文件，宣布川普总统以8个百分点的优势获胜。
 
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+拉罗斯对俄亥俄州为确认无障碍、安全和准确的选举结果所采取的举措感到自豪。
 
-西班牙巴塞罗那喜悦农场/西喜站/——席德尼·鲍威尔（Sidney Powell）在乔治亚州提起的诉讼显示，伊朗和中国篡改了美国大选，以帮助乔·拜登（Joe Biden）。
+“结果，我们举行了一次公平的选举，无论你最喜欢的候选人是赢了还是输了，所有俄亥俄州人都能确信，他们的声音被听见了。”弗兰克.拉罗斯说。”事实上，这是俄亥俄州历史上最无障碍的选举。”
 
-鲍威尔的盟友，律师阿比盖尔·弗莱（Abigail Frye）说，伊朗和中国特工在几个主要州都插手了“多米尼投票系统”。
+同时，俄亥俄州由于简化和增加了邮寄投票的信息，大大降低了缺席选票被拒绝的比例。该州18名选民将于12月14日在州议会参议院会议厅进行投票。
 
-诉讼发现，伊朗和中国监视并操纵了今年美国大选，以取得其理想的结果。 律师引用了美国第305军事情报营提供的数据。
+继宾夕法尼亚州最高法驳回川普总统诉讼，但判决书中承认选举舞弊违宪，并支持川普团队上诉联邦最高法院之后，俄亥俄州又爆出确认川普总统获胜。我们确信，2020美国大选的赢家毫无疑问将是川普总统，只是以何种方式连任而已。目前的方式有，通过选举人投票、参众两院选举或通过最高法院判决。而这个过程也是美国沼泽充分暴露，中共与美国正义力量角力的过程，而他们的暴露就是死亡的开始。中共必将成为非法政府，走向地狱。
 
-鲍威尔的诉讼正在调查伊朗与拜登之间的联系，这种关系在他担任副总统期间发展。
-
-记者赫什马特·阿拉维（Heshmat Alavi）最近在Twitter上分享了一系列报道，展示了伊朗与美国政治之间的潜在关系。
-
-据报道，据称一名亲德黑兰的官员共33次访问白宫，向前总统巴拉克·奥巴马（Barack Obama）为伊朗的利益游说。
-
-这些推文还指出了最近建立的联盟，即2020年初由参议员伯尼·桑德斯和参议员伊丽莎白·沃伦（Elizabeth Warren）主办的亲德黑兰游说团体。
-
-鲍威尔的论点听起来与美国国家情报局局长约翰·拉特克利夫（John Ratcliffe）近期的报告非常相似。 在选举前的简报中，拉特克利夫警示了外国干涉。
-
-拉特克利夫说：“我们已经确认，伊朗和俄罗斯分别获得了一些选民登记信息。”  “外国可以使用这些数据来试图向注册选民传达虚假信息，这会造成混乱并破坏人们对美国民主的信心。”
-
-拉特克利夫还警示了试图赶走川普总统的其他策略。
-
-拉特克利夫补充说：“我们已经看到伊朗发送了旨在欺骗选民，煽动社会动荡并损害川普总统的欺骗性电子邮件。”  “这些行动是绝望的对手的绝望尝试。”
-
-**参考链接：**
-
-
-
-> [Sidney Powell files lawsuit claiming Iranian, Chinese operatives potentially targeted Dominion Voting Systems](https://www.oann.com/sidney-powell-files-lawsuit-claiming-iranian-chinese-operatives-potentially-targeted-dominion-voting-systems/)
-
-
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+[援引原文](https://www.oann.com/ohio-confirms-election-results-declaring-president-trump-winner/)
 
 0
