@@ -1,23 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共国准备试行企业休眠制度，墙内企业破产倒闭将不复存在
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/600926/)
+## 《路德社》精选主题专栏：荒唐和滑稽的大选，左媒急转向
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/601505/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/24223314/logo-3-1.jpg)
+《路德社》精选主题专栏组出品
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29034848/En37isfXEAAHh4F-600x313-1.jpg)
+
+一篇标题为“黑色星期五恐慌： CNN视频表明特朗普 2020 年获胜的可能路径”的文章吸引了周末读者的眼球，这篇27/11/2020登在门户专家网站的文章，诙谐的戏谑CNN， 是妄想让他的观众们心脏病发作。
+
+一向站位民主党拜登，唱衰特朗普的美国有线电视新闻网（CNN）为什么会开始描绘特朗普的胜选之路了呢？这一视频是在黑色星期五上映的，播出了特朗普总统在一段时间里赢得选举的可能途径，这些途径包括：
+
+共和党控制着关键摇摆州的州议会
+
+州议会相信存在欺诈；送上共和党的选举人或者不送选举人
+
+拜登不够270票
+
+众议院的州代表以(一州一票)26-23重选川普 “所以结果会是川普再次当选。”
+
+一名读者跟推说，CNN 的表现令人费解！另一位评论说，这难道是真的吗？（CNN会认为特朗普当选？）但是“荒唐和滑稽”就是这样发生了。越来越多的美国人意识到历史上的欺诈行为，尽管多米尼克投票系统制造了欺诈数字和大规模选民欺诈，但是法律站在事实一边，不会站在小偷和骗子的一边。
 
 
 
-作者：香草山写作组 程万里![]()
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28222142/11291.jpg)
-北京时间11月28日，中共国国务院办公厅督查室发布关于国务院第七次大督查收集转办部分意见建议情况的通报提到：试行企业“休眠”制度。很多企业因短期经营困难暂时歇业，但仍有意愿继续经营，而企业一旦被吊销营业执照，其法定代表人再次创业会遇到障碍。建议对未按规定报送年报的企业设立“休眠期”，合理设置休眠条件和程序，承认休眠期间企业合法存续地位，保证企业经营资格和主体资格的连续性。
+> CNN.🚨
+> 
+> Straightforward from here:
+> ▶️GOP controls state legislatures in key swing states
+> ▶️Legislatures convinced of fraud; send own/no electors
+> ▶️Biden deprived of 270
+> ▶️State delegations in House re-elect Trump 26-23 
+> 
+> "So the outcome would be to re-elect Donald Trump." 🔻 [pic.twitter.com/vZAnvtgNBz](https://t.co/vZAnvtgNBz)
+> — Kyle Becker (@kylenabecker) [November 28, 2020](https://twitter.com/kylenabecker/status/1332497710356770818?ref_src=twsrc%5Etfw)
 
-休眠，让企业变成僵尸企业，估计也只有中共能发明的出来，以后墙内不会有破产倒闭的企业了。但企业休眠了，员工怎么办？在家休眠自生自灭吗？怎么会呢？“回乡自主创业”又要被派上用场了。
 
-审核：浪迹天涯
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+这让人想起19世纪拿破仑从厄尔巴岛逃脱之后，反攻巴黎期间，法国有家报社，连续6天用了6个标题，诠释了什么叫没节操！ 第一天：科西嘉的怪物在儒安港登陆;第二天：吃人的魔鬼向格腊斯前进;第三天：篡位者进入格勒诺布尔;第四天：波拿巴占领里昂;第五天：拿破仑接近枫丹白露;第六天：陛下将于今日抵达自己的忠实的巴黎。 如今的CNN见风使舵的嘴脸依旧。 只不过特朗普代替了当年的拿破仑，太阳底下无新事， 黑暗永远战胜不了光明。
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/24223314/logo-3-1.jpg)
-1+
+最新消息是，美国国土安全部宣布，11月29日，特勤局将撤除对拜登作为候任总统的安保措施，安保人员从目前的52人减至9人。特勤局长穆里说：种种迹象表明，拜登还不能作为候任总统享受对等的安保措施。明天的CNN 还会出什么令人乍舌的奇文呢？
+
+[原文引用](https://www.thegatewaypundit.com/2020/11/black-friday-panic-cnn-airs-possible-path-trump-2020-win/)
+
+0

@@ -1,37 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 纽特·金里奇:2020年大选可能是自1824年以来最大的总统盗窃事件
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/601807/)
+## 金里奇：2020年大举可能是1824年以来最大的总统职位窃案
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/602750/)
 
-编辑：《路德社》精选新闻专栏组
+- 翻译：Victor Torres
 
-前众议院议长纽特-金里奇是美国历史的权威。当谈到2020年大选时，他确信发生了舞弊，我们作为一个国家，近100年来都没有见过这样的事情。
 
-金里奇在Twitter上提出了自己的观点。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29055428/%E5%BE%AE%E4%BF%A1%E6%88%AA%E5%9B%BE_20201129185407.png)
-趋势：五个视频–五个州的选票在电视直播中被从特朗普总统手中转到拜登手中–更新了
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29055513/64565453.png)
-金里奇也写过这方面的文章。
+***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-来自《时代周刊》。
+西班牙2020年11月29日电/西喜站/——前众议院议长纽特·金里奇（Newt Gingrich）谈到2020年大选时，他坚信欺诈行为已经发生，而且作为一个国家，美国已经有近100年没有看到类似的情况了。
 
-**窃取我们选举的窃贼变得马虎了。**
+金里奇在推特上发表了他的看法。
 
-懒惰导致了马虎，而马虎就是美国历史上最厚颜无耻的抢劫案的暴露。
+“越多的数据显示违法的选举异常，越显得2020年(大选)是自1824年亚当斯和克莱抢夺安德鲁·杰克逊以来最大的总统职位窃案。”
 
-窃取2020年大选是一项浩大的工程，涉及广泛的违法行为和私人行为者与公职人员之间的非法合作。自选举日以来，他们一直在努力掩盖自己的踪迹，但他们没有足够快的工作。现在，法院需要阻止他们销毁更多的证据，以便宾夕法尼亚州的人民–以及全国其他地区的人民–能够准确地评估他们的错误行为的后果。
+每位共和党州议员应阅读帕特里克·巴沙姆(Patrick Basham)的分析[https://t.co/3mUFZtD1Y8](https://t.co/3mUFZtD1Y8)，并要求监督委员会审查其州的投票。 巴沙姆明确表示，这次选举几乎可以肯定在5个州被盗。 每个美国人都应该为盗窃感到担心。
 
-11月21日向联邦地区法院提起的新的爆炸性诉讼详细说明并记录了各种非法行为，这些行为被用来夸大民主党总统候选人乔-拜登获得的选票数量，包括根据选民的居住地给予不同的待遇，以及党派活动家公然操纵宾夕法尼亚州的选民登记系统。
+**原文链接：**
 
-今年邮寄和缺席选票的数量前所未有，几乎所有人都预料到，这将导致选票因各种缺陷，如缺少保密信封或信息缺失而被拒绝的比例高于往常。
 
-**民主党人在这里遇到了一个真正的问题。**
 
-**即使拜登宣誓就任总统，也会有数百万人不把他视为合法。**
+> [NEWT GINGRICH: 2020 Election May Be Biggest Presidential Theft Since 1824](https://www.thegatewaypundit.com/2020/11/newt-gingrich-2020-election-may-biggest-presidential-theft-since-1824/)
 
-拜登团队因为输的太惨输的太多不得不作弊作得如此的明显不惜搭上一切筹码也要当上总统，显然已经不再仅仅是他个人想当总统的原因，背后涉及到的人员贪腐卖国行为等川普总统排干沼泽这些大鳄暴露在阳光下的时候大家将看到沼泽多深多黑暗。
 
-[援引原文](https://www.thegatewaypundit.com/2020/11/newt-gingrich-2020-election-may-biggest-presidential-theft-since-1824/)
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10122733/1103-a-1-scaled.jpg)
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0
