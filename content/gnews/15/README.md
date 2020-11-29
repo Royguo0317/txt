@@ -1,45 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 密歇根州重磅实锤强有力的“海妖（克拉肯）”证据
-` 喜马拉雅美国·康州盘古农场` [轉載自GNews](https://gnews.org/zh-hans/600687/)
+## 追踪中共病毒来源
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/600836/)
 
-作者：M. Dowling -2020年11月27日
-翻译：康州盘古农场 – 烟波浩淼
-校对：康州盘古农场 –小水滴
-编辑：康州盘古农场 –V
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28195314/1-271.png)图片来源：Gnews
+据POLYGRAPH报道，11月24日，中共报纸《人民日报》发文称，中共病毒并非起源于湖北省省会武汉。中国疾病预防控制中心（CDC）首席流行病学专家吴尊友表示，”病原体可能是通过进口冷冻海鲜或肉制品及其包装进入中国的。”该报援引的是《南华早报》的报道称。
 
-有位侦探在推特上收集到了西德尼·鲍威尔(Sidney Powel) 在密歇根州 “**海妖**克拉肯 “诉讼案中的部分证词。我们在此为您转发。我们不能肯定这些是否完全属实，但它们的确是很有力的重磅信息。
+据路透社报道，文章提到意大利国家癌症研究所（INT）最近的一项研究，发现在2019年9月至2020年3月期间参加肺癌筛查试验的959名无症状者中，有11.6%出现了中共病毒抗体。该试验的第一批血液样本是在去年12月武汉发现病毒前几个月采集的。然而研究人员表示，他们的研究结果并没有反驳病毒源自中国的说法。”这些发现只能证明当时病毒还没有被发现，”INT科学主任Giovanni Apolone说。
 
-下面的内容还需要调查和确认，但你需要知道它们!
+同时，已经彻底沦为中共的世界卫生组织(WHO)称已对该病毒的来源展开调查。大多数专家认为，中共病毒起源于蝙蝠，并被传给另一种动物，然后再由这种动物传播给人。武汉病毒学研究所（WIV）是全球蝙蝠冠状病毒研究的领头羊，很多事情表明其是中共病毒的来源。
 
-密歇根州的怪事!
+虽然大量早期病例可以追溯至武汉华南海鲜批发市场，但一些研究人员表示怀疑这是病毒的来源，因为那里的动物组织样本没有显示病毒的痕迹。然而，根据11月5日世卫组织的一份报告，842个环境样本中的69个–其中61个来自市场西翼–病毒检测呈阳性。其中有22个样本来自8条不同的排水沟和污水。
 
-这是西德尼·鲍威尔在密歇根州的许多法律文件中的一部分。它们是性质严重的，令人震惊的和可信的。
+世卫组织表示，”目前仍不清楚该市场是病毒发源地，还是作为人与人之间传播的中介场所。”即使明确排除所谓的华南海鲜市场的嫌疑，但也不排除中国尤其是武汉是病毒源头的可能性。”
 
-首先，真正的，活生生的选民不会投零碎的票。他们每人投一票，没有小数点。
+11月25日，世卫组织的一位专家表示，他希望重返武汉，对最初的中共病毒病例进行跟踪调查，并采访其他可能掌握 “重要信息 “的人，了解他们在哪里感染了病毒。一些专家根本不确定是否能找到病毒的来源。
 
-“在专家重新计票时，他们观察到从Dominion的数据源直接引进的投票数据中居然包括小数点，这证明获胜者是由计算机算法选出来的，而不是由真实的每个选民选出来的。”
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184303/Picture1-30.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184341/Picture2-23.png)
-证词 12：宣誓人：Eric Quinnell博士
-1。我叫Eric Quinnell博士。我已经年满18岁，并且有资格在这项诉讼中作证。本文陈述的所有事实都是真实的，而且是基于我的个人知识。在我的专业领域中，本文中的所有科学结论均在合理的科学确定性范围内得出。
-2。我于2004年5月获得了德克萨斯大学奥斯汀分校的工程学学士学位，于2006年5月获得了电路设计理学硕士学位，并于2007年5月获得了计算机算术博士学位。
-3。 我作为工程师设计和领导团队，在电路架构和处理的各个方面都拥有丰富的专业经验。我经常以这种身份从事复杂而高端的数学预测建模和统计分析。我需要依此向高层领导人员和其他决策人预备汇报报告和分析。我以个人身份发表此声明。
+“寻找感染中共病毒的动物就像大海捞针一样。他们可能永远也找不到’感染的蝙蝠’或其他动物。”纽约市哥伦比亚大学的病毒学家Angela Rasmussen告诉《自然》科学杂志。
 
-投票人数超过了新注册投票人数：
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184414/Picture3-20.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184441/Picture4-17.png)
-令人难以置信的投票率：
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184509/Picture5-19.png)
-**证词 14：**
-宣誓人：小罗素·詹姆斯·拉姆斯兰（Russell James Ramsland）：
-1。我Russell James Ramsland），我是德克萨斯州达拉斯县的居民。我拥有哈佛大学的工商管理硕士学位和杜克大学的政治学学位。我曾与美国国家航空航天局（NASA）和麻省理工学院（MIT）等组织合作，并在世界各地开展业务，其中许多都是高技术性的。我曾在政府技术小组任职。 
-2。我是联合安全运营集团有限公司（ASOG）的管理团队的成员。 ASOG是由全球参与的专业人员组成的团队，他们来自各个领域，包括国防部，特勤局，国土安全部和中央情报局。它提供了一系列安全服务，但是特别强调了网络安全，开源调查和网络渗透测试。我们雇用了各种各样的网络和网络法证分析师。从新颖的网络安全应用到SCADA（监控和数据采集）保护以及用于深色和深色Web的安全浏览解决方案，我们在各种应用中都拥有正在申请的专利。对于本报告，我依靠这些专家和资源。 
-3。2018年11月，ASOG分析了2018年德克萨斯州达拉斯大选的ES＆S选举管理系统（EMS）中央制表服务器的审核日志。我们的团队对其中本不应该出现的海量的错误而感到震惊。这些错误有数千个，系统操作员罔顾并掩盖了所有这些。这导致了针对选举的各种法律挑战，我们为其中一些提供了证据和分析。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184533/Picture6-15.png)
-黑客和伊朗:
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184551/Picture7-8.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184603/Picture8-4.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184616/Picture9-4.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184626/Picture10-4.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184634/Picture11-2.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184643/Picture12-2.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184654/Picture13-3.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184706/Picture14-5.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184718/Picture15-3.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184727/Picture16-3.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184737/Picture17-3.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184748/Picture18-4.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184801/Picture19-4.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184809/Picture20-1-2.png)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28184820/Picture21-4.png)
-原文链接：
+至于武汉病毒所所说的中共病毒可能通过冷冻海鲜或肉制品输入中国，世卫组织表示，”目前没有证据表明，人们可以从食品或食品包装上感染中共病毒。”美国疾病控制中心重申了这一立场。
 
-[Compelling, powerful, credible kraken exhibits in Michigan (independentsentinel.com)](https://www.independentsentinel.com/compelling-powerful-credible-kraken-exhibits-in-michigan/)
+据报道，中国疾控中心自己从67万个冷链食品或食品包装样品中发现了22个阳性样品。世卫组织在最近给美联社的一份声明中说，在包装上发现活病毒的案例似乎是 “十分罕见的”，重申 “没有证据表明人们因食用食品而感染中共病毒”。
+
+评：中共国在爆发中共病毒后，一度成为世界关注的焦点，其感染人数一度维持在8万作用，相当一段时间内没有增加新的病例。而与此同时，中共病毒在全世界彻底爆发，时至今日，全球已经有超过六千万人感染，死亡人数超过140万人，感染人数呈现直线上升增加。
+
+中共国出现了奇怪的感染确诊，一种是纯粹的境外输入，另一种就是中共官方称呼的“境外食品或包装”造成感染。病毒来源一直困扰着世界，爆料革命给出了最有力的证明，闫丽梦博士发表了两份关于中共病毒来源的报告，直接指出病毒来自中共武汉P4军方实验室，郭文贵先生也曾讲过，这次病毒是中共的潘多拉盒子，一旦打开就再也关不上，将会给世界带来沉重灾难，尤其是对全世界经济造成致命性打击。全世界需要继续关注病毒来源的真相，让中国打开防火墙，开放对病毒所的调查，中共这次制造并释放的病毒，注定会将自己埋葬。
+
+翻译报道：文非
+
+[原文链接](https://www.polygraph.info/a/china-covid19-imported-wuhan/30972446.html)
 
 0

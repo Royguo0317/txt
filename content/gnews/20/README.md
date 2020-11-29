@@ -1,9 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/27/2020 班农战斗室 在搖摆州上邮寄非法选票起了决定性的作用
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/600020/)
+## 2020年11月28日中共病毒疫情要闻快报
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/600802/)
 
-By: 【秘密翻译组G-Translators】
+**重点内容：**
+
+- WHO国际专家组前往武汉调查病毒源头？
+- 伊朗首席核科学家被杀；
+- 中国各地病例爆增，中共甩鍋境外；
+- 网曝上海市某医院要求职工每月检测核算；
+- 凤凰卫视旗下公司诈骗7万人100亿。
+
+
+
+
+**By：【秘翻组-上天造灭疫组】**
 
 0

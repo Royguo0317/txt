@@ -1,20 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年11月28日中共病毒疫情要闻快报
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/600802/)
+## 挺川大游行&#8211;采访老班长
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/600862/)
 
-**重点内容：**
+香草山综合报道
 
-- WHO国际专家组前往武汉调查病毒源头？
-- 伊朗首席核科学家被杀；
-- 中国各地病例爆增，中共甩鍋境外；
-- 网曝上海市某医院要求职工每月检测核算；
-- 凤凰卫视旗下公司诈骗7万人100亿。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
 
 
 
 
-**By：【秘翻组-上天造灭疫组】**
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

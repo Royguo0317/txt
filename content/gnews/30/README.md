@@ -1,29 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫贸易顾问纳瓦罗表示，如果立法者不对COVID-19刺激政策采取行动，将面临麻烦
-` 喜马拉雅美国·康州盘古农场` [轉載自GNews](https://gnews.org/zh-hans/600471/)
+## 俄罗斯新闻：委内瑞拉绕过美国制裁恢复对中国的直接石油供应
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/600631/)
 
-作者：美国第一新闻网 新闻室
-更新时间：太平洋时间2020年11月26日星期四上午6:35
-翻译： 康州盘古农场 – 烟波浩淼
-校对： 康州盘古农场 – 光头波波
-编辑： 康州盘古农场 –V
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28163247/Navarro1.png)白宫贸易顾问彼得·纳瓦罗敦促立法者通过冠状病毒救济法案。（安德鲁·哈尼克/美联社照片）
-在周三接受记者采访时，白宫贸易顾问彼得·纳瓦罗（Peter Navarro）表示，立法者需要就冠状病毒刺激法案“立即采取行动”。他呼吁两党议员搁置分歧，通过刺激方案。
+作者：洛夫斯基   审稿：DongDong 文璟    文宣：DongDong
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28174607/image-43.jpeg)
+**委内瑞拉恢复对中国的石油直接供应，这些供应因美国制裁而秘密进行。**[路透社](https://www.reuters.com/)根据委内瑞拉国家石油和天然气公司PDVSA的官方文件和分析公司Refinitiv Eikon的数据报告了这一情况。
 
-他说：“到目前为止，政府的工作做得很好。”。“然而，对于数百万美国人来说，我们正面临着一个鸿沟，除非两党就这些核心内容达成共识。”
+据悉，第一艘恢复委内瑞拉石油直接运往中国的油轮是京都，油轮跟踪器的导航监测部门于8月份在南美国家何塞港装载180万桶重油时发现。
 
-纳瓦罗接着强调拯救小企业的必要性，他指出，如果失败了，那么这些企业永远消失。随着许多州报告的案例增加，企业主表示担心他们将无法再承受另一轮的封锁。
+据该机构称，中国石油天然气集团公司和石油天然气巨头中国石油是中国石油公司的客户，它们是PDVSA的客户，于2019年8月停止在委内瑞拉港口装载原材料。这是在美国扩大对玻利瓦尔共和国公司的限制性措施的发生。
 
-据报道，餐厅业主花费数千美元进行改造，以适应当地和州的要求，在外面给客人提供食物，但是洛杉矶等许多大城市却采取了新政策，迫使他们不得不关闭。
+华盛顿对委内瑞拉石油行业的制裁禁止美国公司与尼古拉斯·马杜罗总统政府控制的当局或企业做生意。美国去年1月28日对国有石油公司PDVSA实施制裁。
 
-纳瓦罗说，尽管陷入僵局，国会仍需关注三个主要部分：薪资保障计划、救济支票和失业补偿金。
+反对党领袖胡安·瓜伊多于2019年1月23日宣布自己代理总统后，委内瑞拉的局势进一步恶化。两天前，最高法院撤销了他作为议长的任命。他被美国、利马集团国家（墨西哥除外）、美洲国家组织和大多数欧盟成员国承认为临时国家元首。委内瑞拉总统尼古拉斯·马杜罗宣布与美国断绝外交关系，称其为未遂政变。他得到了俄罗斯、白俄罗斯、中国、伊朗、尼加拉瓜、古巴、土耳其和叙利亚的支持。
 
-这位白宫贸易顾问表示，他预计川普总统将连任，政府将继续走上强劲的经济复苏之路。
+新闻来源：[Венесуэла возобновила прямые поставки нефти в Китай в обход санкций США](https://www.rbc.ru/business/27/11/2020/5fc095009a794710c431b9dc)
 
-原文链接：
-
-[White House trade advisor Navarro says trouble ahead if lawmakers don’t act on COVID-19 stimulus | One America News Network (oann.com)](https://www.oann.com/white-house-trade-advisor-navarro-says-trouble-ahead-if-lawmakers-dont-act-on-covid-19-stimulus/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=white-house-trade-advisor-navarro-says-trouble-ahead-if-lawmakers-dont-act-on-covid-19-stimulus)
-
-0
+1+
