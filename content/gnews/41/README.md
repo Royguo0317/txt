@@ -1,25 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共国内多家银行暂停个人贵金属交易新开户
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/601150/)
+## 文贵说｜系列图片连载（六十）
+` GM98` [轉載自GNews](https://gnews.org/zh-hans/601469/)
 
-作者：香草山写作组  程万里 校对/发稿：飞虹
+## 414.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29031428/2002.jpg)
+我认为每个人心里边都有自己的诺亚方舟，每个人心中都有自己的雅典娜能力。雅典娜就是你这根手指头，传播爆料革命的真相，传播正义，这是核心。
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/24223314/logo-3-1.jpg)
+——郭文贵先生2020年7月19日
 
+## 415.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29031451/2003.jpg)
+咱能不能向共产党要个真相啊？
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28235659/%E5%9B%BE%E7%89%8738-1.png)
-北京时间2020年11月27日，工行、农行、建行、交行、招行、中行、平安等多家银行先后宣布近日暂停个人贵金属业务新客户开立账户，已开户客户的正常交易不受影响。各家银行均表示，近期受全球疫情及国际政治经济形势影响，国际国内贵金属价格持续出现较大幅度波动，市场风险和不确定性显著增强。为保护投资者权益，作出这一调整。
+——郭文贵先生2020年7月19日
 
-国有银行统一行动，看来一切行动都是要听指挥的。新闻也是连续剧也要连着看，几个月前央行司长发布会明确表示：“数字货币不能兑换黄金和外汇。”我们完全可以推断银行下一步的行动就是关闭外汇业务了。中共国下一步就是禁止实物贵金属的买卖业务，打击地下交易市场，消除一切影响国内货币稳定的因素。但这挡得住人民币的崩溃吗？墙内的兄弟姐妹们做好准备，迎接这史无前例的冲击。
+## 416.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29031518/2004.jpg)
+现在什么党派、选举、经济、股票都是扯淡的事；现在对待全美国、全世界人民，包括我们的敌人，核心的问题就是冠状病毒。
 
+——郭文贵先生2020年7月19日
 
+## 417.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29031551/2001.jpg)
+天使来到人间，从来不知道上天给她任务究竟具体到什么，她只需按照这个戏本演下去就可以了，那叫使命！
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+——郭文贵先生2020年7月19日
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+## 418.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29031615/2020-8-17-2__1__1__1__1__1__1-scaled.jpg)
+我们要和香港人、台湾同胞还有我们西藏同胞、国内的所有同胞勇敢的、智慧的站在一起，忘掉仇恨、无我无私无欲。
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+——郭文贵先生2020年8月2日
+
+## 419.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29031636/2020-08-18_11.43.17.png)
+你的行为就是你的果，你的行为是没有人能拿走的，不存在谁摘“桃子”的问题。
+
+——郭文贵先生2020年8月2日
+
+## 420.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29031659/2020-8-18__1__1-scaled.jpg)
+你不做坏事你也是大恶，因为你传播了邪恶，你传播了虚伪，你让恶更加的恶，你让假更加的假。这是为什么我们中国人14亿人被共产党绑架到今天的根本原因！
+
+——郭文贵先生2020年8月2日
 
 0
