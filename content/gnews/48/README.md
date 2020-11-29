@@ -1,16 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [深度报道]肖建华的包商银行破产,  “明天系” 与中共高层深厚的关系，以及他腐朽的私人生活
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/598103/)
+## GTV大型音乐活动《我是音雄》第一季第十三期 （暨第一季“群雄会”第一场） 精彩回顾
+` GMusic` [轉載自GNews](https://gnews.org/zh-hans/600119/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27223817/PDFtoJPG.me-01-1-1-scaled.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27223835/PDFtoJPG.me-02-1-1-scaled.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27223854/PDFtoJPG.me-03-1-1-scaled.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27223913/PDFtoJPG.me-04-1-1-scaled.jpg)
-……
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27223940/PDFtoJPG.me-49-1-scaled.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27223958/PDFtoJPG.me-50-1-scaled.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27224015/PDFtoJPG.me-51-1-scaled.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27224038/PDFtoJPG.me-52-scaled.jpg)![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27224051/PDFtoJPG.me-53-scaled.jpg)
-附件：完整文档
+*我是音雄文字组 作者：Christina000，  编辑：山上的城， 审稿：荒漠甘泉*
 
-[【深度报道】肖建华的包商银行破产-他的明天系-与中共高层深厚的关系，以及他腐朽的私人生活](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27224200/%E3%80%90%E6%B7%B1%E5%BA%A6%E6%8A%A5%E9%81%93%E3%80%91%E8%82%96%E5%BB%BA%E5%8D%8E%E7%9A%84%E5%8C%85%E5%95%86%E9%93%B6%E8%A1%8C%E7%A0%B4%E4%BA%A7-%E4%BB%96%E7%9A%84%E6%98%8E%E5%A4%A9%E7%B3%BB-%E4%B8%8E%E4%B8%AD%E5%85%B1%E9%AB%98%E5%B1%82%E6%B7%B1%E5%8E%9A%E7%9A%84%E5%85%B3%E7%B3%BB%EF%BC%8C%E4%BB%A5%E5%8F%8A%E4%BB%96%E8%85%90%E6%9C%BD%E7%9A%84%E7%A7%81%E4%BA%BA%E7%94%9F%E6%B4%BB.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27224200/%E3%80%90%E6%B7%B1%E5%BA%A6%E6%8A%A5%E9%81%93%E3%80%91%E8%82%96%E5%BB%BA%E5%8D%8E%E7%9A%84%E5%8C%85%E5%95%86%E9%93%B6%E8%A1%8C%E7%A0%B4%E4%BA%A7-%E4%BB%96%E7%9A%84%E6%98%8E%E5%A4%A9%E7%B3%BB-%E4%B8%8E%E4%B8%AD%E5%85%B1%E9%AB%98%E5%B1%82%E6%B7%B1%E5%8E%9A%E7%9A%84%E5%85%B3%E7%B3%BB%EF%BC%8C%E4%BB%A5%E5%8F%8A%E4%BB%96%E8%85%90%E6%9C%BD%E7%9A%84%E7%A7%81%E4%BA%BA%E7%94%9F%E6%B4%BB.pdf)
+《我是音雄》由GTV空中唱响团队和纽约香草山农场联合制作播出。本期的主题农场是：日本大阪喜联盟。
 
+本期比赛的评委有5位，他们是专业评委：唐平、Q.MAY、Tex；主持人评委：威廉王；农场嘉宾评委：草根小哥。
 
+参加本期比赛的十二位选手分别是：Michael Lin（澳喜农场）、佳佳同学（纽约香草山农场）、小飞侠（纽约香草山农场）、山上的城（凤凰农场）、成人大小子（澳喜农场）、May（凤凰农场）、灭共喵星人（纽约香草山农场）、AppleX（日本大阪喜联盟）、然小哥（日本樱花团）、MC文艺（日本樱花团）、Nick（纽约香草山农场）、Nicole（纽约香草山农场）。
+
+音雄们分别演唱了：“我是音雄”版的《长亭外》、《Just One Last Dance》、《Nothing would let me down》、《神迹》、《新的祈祷》、《寂静的天空》、《离人》、日语《长い间》、“我是音雄”版的《成都》、“我是音雄”版的《水调歌头》、《忍者》、《Wish You Were Gay》
+
+本期的无名英雄是：央金拉姆。23年前中共掠夺了她们在上海的所有财产，全家被长期监控，非法关押殴打，严重迫害。人身安全受到威胁的一家辗转到美国，得到美国政府的庇护。2020年11月14日，新中国联邦纽约香草山农场举行挺川大游行活动，花腔女高音央金拉姆所演唱的高亢嘹亮的美国国歌《星条旗》响彻华盛顿的上空。这歌声和呐喊将再度激起真正的美国精神，不惧强权，冲破黑暗，迎来迟到的自由和正义。
+
+本期比赛获得晋级下一轮“自由之巅”环节的7位选手是： MC文艺（日本樱花团）、Nick（纽约香草山农场）、山上的城（凤凰农场）、May（凤凰农场）、灭共喵星人（纽约香草山农场）、佳佳同学（纽约香草山农场）、成人大小子（澳喜农场）
+
+节目在精彩比赛的同时还向大家介绍了本期的主题农场 -日本大阪喜联盟。日本大阪喜联盟建设初期便成立了文化灭共组，日本的第一支灭共乐队。本期节目中，日本大阪喜联盟集体亮相，战友们沉稳内敛，英俊帅气，在雷厉风行的领导人草根小哥的带领下，一起分享灭共心得。草根小哥还自己出资创作了由日喜联盟会员和义工团队构想和执行的联盟主题曲《Everybody Say Rock n Roll》，联盟插曲《Thank You For Smile》。
+
+所有《我是音雄》的人物专访都会发布在Gnews上，请战友们下载Gnews App，并搜索《我是音雄》便可找到每期节目所有选手的精彩故事。
+
+《我是音雄》第一季“群雄会”第一场比赛圆满成功。“群雄会”第二场比赛将于美东时间周六11月28日晚7点，暨北京时间周日11月29日早8点隆重推出，敬请期待！ 欢迎更多战友积极报名参加《我是音雄》大型灭共栏目的第二季，讲出你们的灭共故事，唱出你们的灭共心声！
 
 0
