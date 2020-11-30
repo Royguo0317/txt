@@ -1,24 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 宾州多方推进选举公正
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/602768/)
+## 【热点播报】： 2020总统大选选民登记率中的诡异数字
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/602939/)
 
-草原三省战友之家   文静
+**作者：香草山写作组 Lucille西西** **校对：村北**
 
-校对 鹰嘴逗逗  上传 小鸥
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29135652/%E5%AE%BE%E5%B7%9E.jpg)图片来自WSJ
-宾夕法尼亚州参议员道格·马斯特里亚诺(DOUG MASTRIANO)坚称，由于“越来越多的证据”表明，宾夕法尼亚州的选举“受到了损害”，《宪法》第二章第1.2节规定，州立法机构“拥有指导选举团代表方式的唯一权力。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/24223314/logo-3-1.jpg)
 
-11月28日，马斯特里亚诺在推特上概述了宪法上合理的程序。他指出:“赋予州立法机构这一权力的目的是为了维护我们（美国人）总统的选举，特别是当我们遇到腐败选举过程的时候，可以确保人民不会因此而被剥夺公民权。” 因此，马斯特里亚诺提出了一项“行使我们的义务和权力，任命选举人代表的决议”。
 
-简评：
 
-宾州是此次美国大选重要的摇摆州，背后黑手在宾州进行了大规模的各种选票欺诈活动。另据11月27、28日路德社的报道，宾州参议员将决定从州务卿手中收回任命选举人的权力，宾州高院也主动承认先前的裁决可能违宪，同时宾州又一重要案子即将进入美国最高法院程序；事事扑朔迷离！
 
-目前川普法律团队以及联邦律师、大法官全部重点都关注宾州的法律诉讼，而今天宾州部份诉讼案已经移交美国高院，根据美国宪法的判例法，只要川普在最高法院获得宾州案例的胜诉，其它州的诉讼也会毫无意外地获胜！川普必赢！
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29172326/34t-y-1.png)
+- ![]()距离2020年的美国总统大选已经过去近一个月了，有关民主党作弊手段的新闻也是层出不穷，民主党的腐败以及他们和共产党在背地里的勾结被展现得淋漓尽致。美国保守派的司法观察组织（Judical Watch）主要针对民主党人，调查政府官员声称的不正当行为。 该组织对2020年的总统大选进行了一系列的研究调查，在全美总共50个州3007个县中，该组织调查了其中37个州，最终结果得出全有至少353个县的登记选民比合格投票年龄的公民总共多出180万，也就是说，这些县的选民登记率超过了100%。另外，全美有八个州的选民登记率超过了100%，分别是阿拉斯加，科罗拉多州，缅因州，马里兰州，密歇根州，新泽西州，罗德岛州和佛蒙特州。研究结果出来以后，司法观察组织警告了这些州，他们未遵守《1993年国家选民登记法》。司法监督组织随后也向法院提起诉讼，要求其遵守联邦法律。
 
-参考链接：https://thenationalpulse.com/breaking/pa-election-resolution-filed/
+
+- 这180多万的“鬼魂”选民到底从何而来，有何意图？2020年美国总统大选后接二连三地出现诡异事件和奇异数字，这背后真正的秘密一定会在不就的将来被公之于众，邪恶也一定会被正义所打败！
+
+
+
+
+> [New Judicial Watch Study Finds 353 U.S. Counties in 29 States with Voter Registration Rates Exceeding 100%](https://www.judicialwatch.org/press-releases/new-jw-study-voter-registration/)
+
+
+
+发稿：悟空
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/24223314/logo-3-1.jpg)
+
+
 
 
 
