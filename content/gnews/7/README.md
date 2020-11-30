@@ -1,24 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【点睛要闻】突发! 佐治亚州法官围绕大选非法计票, 问题一天变更三次立场
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/604189/)
+## 《路德社》精选主题专栏：民告官，展现人民的力量 亚特兰大分院命令州长立即向原告出示州与多米尼公司之间的合同副本
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/603990/)
 
-作者：Shawn【㊙️翻Gnews原创组】
-责编：Skagen
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30053815/Picture36-3.png)图片来源：Twitter/Lin Wood
-11月29日下午佐治亚州的美国总统大选选情已经进入到郭文贵先生很早就说过的滑稽阶段了。之所以说滑稽，是因为佐治亚北区亚特兰大分院的法官提摩西·巴顿（Timothy Batten, Sr.）围绕同一个案子，在一天之内三次变更判决立场。法官玩起了“变戏法”，这的确让人匪夷所思且瞠目结舌。
+《路德社》精选主题专栏组出品
 
-当地时间29日下午将近两点，在佐治亚州为川普总统而战的大律师林·伍德（Lin Wood）发Twitter说，法官巴顿发出了紧急禁止令。该判决命令”被告（州政府）维持现状并暂时禁止在佐治亚州抹去或重新设置任何投票机数据，直到法院有进一步的命令”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30053850/Picture37-4.png)图片来源：大律师林·伍德推特截图
-过了一个多小时之后，即下午两点多，巴顿法官发出第二次判决令，翻转了1个小时前的禁令。法官拒绝了西德尼‧鲍威尔（Sidney Powell）和伍德大律师所代表的原告要求停止非法机票和删减投票机数据的诉求。理由是躲猫腻（Dominion）选票机器归联合县（Union County等县区）所有，佐治亚州政府不拥有且无法控制这些机器。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30053858/Picture38-4.png)图片来源：法庭第二次判决令截图
-伍德发推对巴顿法官这一反转判决感到吃惊，居然在一个多小时里推翻了他自己发出的禁止令。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30053903/Picture39-2.png)图片来源：大律师林·伍德推特截图
-第三次判决是在当天晚上10点10分，巴顿法官判决又改为原来的有效判决，但是将该临时限制令设定为10天内有效，即禁止被告人佐治亚州政府更改、销毁或刪除，或允許更改、销毁或刪除科布县（Cobb）、格威內特县（Gwinnett）和切罗基县（Cherokee）任何躲猫腻（Dominion）投票机上的任何软件或数据。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30053922/Picture40-4.png)图片来源：法庭第三次判决令截图
-短短一天的时间，法官一会判原告赢，一会判原告输，但最后还是判原告赢了。所以林伍德律师发推说，“鲍威尔和我赢了，然后输了，但最终还是赢了。绝不放弃追求真理以实现正义”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30053927/Picture41-2.png)图片来源：大律师林·伍德推特截图
-（本文仅代表作者个人观点）
+特朗普总统律师团成员，来自佐治亚州的著名大律师林伍德在29/11/2020 的推特上写到，”悉尼鲍威尔和我赢了-又输了，但是最终还是我们赢了！我们永远不会放弃追求真相，维护正义的目标。”他在推特中附加了美国乔治亚州亚特兰大法院的最新命令（2020年11月29日下午10时10分）。
 
+
+
+> Sidney Powell [@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw) & I won, then lost, but ended up winning. We will never give up the pursuit of TRUTH to achieve justice.[@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw)[@KrakenWood](https://twitter.com/KrakenWood?ref_src=twsrc%5Etfw) [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) [#FightLikeAFlynn](https://twitter.com/hashtag/FightLikeAFlynn?src=hash&amp;ref_src=twsrc%5Etfw)[#FightBack](https://twitter.com/hashtag/FightBack?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/mV6SGVLsv9](https://t.co/mV6SGVLsv9)
+> — Lin Wood (@LLinWood) [November 30, 2020](https://twitter.com/LLinWood/status/1333259577182334976?ref_src=twsrc%5Etfw)
+
+
+
+美国乔治亚州北部地区法院亚特兰大分院命令：禁止乔治亚州州长，州务卿对在柯布县, 格威内特县, 和切诺基县的任何投票机上的任何软件和数据进行更改、销毁或擦除。命令被告立即向原告出示州与多米尼公司之间的合同副本。法院是在考虑了双方今天提交的电子邮件以及在Zoom听证会上提出的观点后，做出以上命令和判决的。
+
+由CORECO JA’QAN PEARSON等7人组成的原告（乔治亚州选民）是在11月25日将州长，州务卿（BRIAN KEMP等6人）告上法庭的，原告提出了一项紧急动议，旨在寻求一项命令，命令被告允许原告的专家检查在柯布县、格威内特县和切诺基县的多米尼投票机。法院于美国东部时间29/11/2020日下午7:45举行了Zoom听证会，审议原告的动议。
+
+在听证会上，被告的律师曾辩称州务卿对县选举官员没有合法权力，妄图卸责，但原告律师答复说，原告可将柯布、格威内特县和切诺基县的选举官员加入其中，直球回击了州官，县官的管辖权问题。
+
+被告的律师还辩称，允许此类法证检查将对被告构成重大安全和专有/商业秘密风险。原告律师则回应称，被告可以申请法院允许自己的专家参与法证检查，全程录像，同时被告指定的专家可向法院提供他们所获得的任何信息。
+
+法院裁定，允许被告在美国东部时间12月2日星期三下午5:00之前提交一份案情摘要，详细说明他们反对允许进行三次法证检查的事实依据（如果有的话）。
+
+来自国家安全情报部门的高层情报称，联邦调查局掌握了中共向乔治亚州州长，州务卿付款的证据。最新的11月30日有消息称，共和党团体联盟呼吁占领乔治亚州众议院，以回应州务卿布拉德-拉芬斯伯格下令擦除该州的多米尼投票机。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30050653/pdf1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30050707/pdf2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30050718/pdf3.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30050727/pdf4.png)
 0

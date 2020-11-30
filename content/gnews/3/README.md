@@ -1,63 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 为了国家安全，川普要求立即废除第230条款
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/604406/)
+## 《点晴要闻》突发： CIA局长吉娜·哈斯佩尔被捕了吗？
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/604766/)
 
-*新闻来源：Breitbart《布赖特巴特》；作者：凯尔·奥尔森（KYLE OLSON）；发布时间：2020年11月27日*
+撰稿：Skagen【㊙️翻Gnews原创组】
+责编：沙拉猫
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30085658/gina.jpg)图片来源：推特 Dr Russell McGregor @killAuDeepState
+2020年11月29日推特上突然开始传播一则匿名来源的新闻：CIA局长吉娜·哈斯佩尔因叛国罪被捕！据称在月初袭击法兰克福CIA服务器时，她也在场并且受伤！随后她被飞机救出并被送往关塔那摩监狱审判。由于她同意交代如何干预大选以及供出其他涉嫌人员，她可以换取不被处以死刑。相信一大批叛国者很快将被送往关塔那摩监狱。
 
-*翻译/简评：随波逐流；校对/审核：TCC；Page：拱卒*
-[!\[\]()!\[\](https://spark.adobe.com/page/xostbMdOuQJPE/images/2831521b-0bf4-4de8-a898-ee32da5f0a17.jpg?asset_id=de9cccc5-d4b6-4c30-b950-3dea0a20b186&amp;img_etag=%226d94fb7ad8acf776f243301480151d1a%22&amp;size=1024)](https://spark.adobe.com/page/xostbMdOuQJPE/images/2831521b-0bf4-4de8-a898-ee32da5f0a17.jpg?asset_id=de9cccc5-d4b6-4c30-b950-3dea0a20b186&amp;img_etag=%226d94fb7ad8acf776f243301480151d1a%22&amp;size=1024)
-#### **简评：**
+由于消息来源还没有得到确认，这则新闻的真实性还有待证实。但是近段时间的新闻表明CIA深度参与针对美国总统选举的干预活动。美国托马斯·麦金尼中将与麦克·弗林中将在接受WVW广播网采访中证实了美军与CIA在德国法兰克福确有冲突。美国陆军特种部队成功突袭了CIA位于法兰克福的基地，激战中双方互有伤亡，但最终特种部队战术小组完全控制了局势，彻底清场后悉数缴获了部署于当地的服务器。据信在双方接火中至少有5名士兵以及1名CIA的准军事人员丧生。
 
-川普总统周四晚上在推特发布消息称“为了国家安全，必须立即终止第230条款”。而本月初共和党参议员特德·克鲁兹（Ted Cruz）也挑战Twitter首席执行官杰克·多尔西（Jack Dorsey），有关Twitter公司采取有争议的政策立场在选举有关的推文上使用了“警告”标签，并在平台上发布“在美国，任何形式的选民舞弊是极为罕见”的消息。许多保守派认为，Facebook，Twitter，Google等在审查内容时表现得更像“出版商”，并不再是一个中立的网络平台。新贵媒体帕勒（Parler）的首席执行官约翰·马特泽（John Matze）也称Twitter和Facebook并没有保持中立，不适用230条款，至于230条款是没必要废除。
+CIA的基础架构除了局长以外，主要分为内部情报数据分析小组、国家秘密行动处、技术装备小组、以及其它后勤支援小组等多级部门组成。而这次被突袭的位于法兰克福的农场，实际上就是CIA部署于美国本土之外的秘密任务基地。按该匿名消息来源的说法，CIA局长吉娜·哈斯佩尔亲自参与这场战斗，这也是让人震惊无比。
 
-近年来，众多西方主流媒体和网络平台被中共收买成为中共大外宣的一部分。他们采用拉黑用户，不报道或发布虚假消息等手段，来掩盖新冠病毒来源于实验室的事实，并企图阻挠公众知道选举欺诈背后的真相，他们为了中共给的那点狗粮已沦为共产暴政的帮凶。相信川普总统和美国正义力量一定会采取行动铲灭中共及其在美的深层黑暗势力集团。
+吉娜·哈斯佩尔生于1956年10月1日，她曾在时任CIA局长的迈克·蓬佩奥手下担任副局长。蓬佩奥仅担任了一年多时间的中情局长，离任后被任命为美国国务卿，哈斯佩尔成为代理局长，并在2018年5月17日确认为中情局局长，成为中情局历史上第一位女性局长。哈斯佩尔因2002年担任中情局在泰国的一个秘密监狱的负责人而引起争议，在该秘密监狱中，囚犯遭到包括水刑在内的所谓 “强化审讯技术 “的酷刑。
 
-#### **原文翻译：**
+最近有一些消息称，川普政府早就开始扩建关塔那摩监狱，并且去往该地的飞行规模和频率也大增。川普总统排干沼泽的大网可能已经开始收网，哈斯佩尔也许只是其中的一条小鳄，相信更多更令人瞠目的新闻在这几周会源源不断地出来。
 
-## 唐纳德·川普呼吁废除第230条款，Parler首席执行官称Facebook、Twitter “不是中立角色”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/xostbMdOuQJPE/images/46113898-08f4-4443-ba75-20827c0b091e.jpg?asset_id=edd4c4c6-dca0-4b7f-82c5-23aaa00261ac&amp;img_etag=%2260fe1ff5028ed89eb8f0d0a420bef9c8%22&amp;size=2560)](https://spark.adobe.com/page/xostbMdOuQJPE/images/46113898-08f4-4443-ba75-20827c0b091e.jpg?asset_id=edd4c4c6-dca0-4b7f-82c5-23aaa00261ac&amp;img_etag=%2260fe1ff5028ed89eb8f0d0a420bef9c8%22&amp;size=1024)美联社照片/ 埃文·沃奇（Evan Vucci）
-
-当新贵社交媒体首席执行官敦促采取更新的做法，唐纳德·川普总统要求终止对互联网公司在第230条款的保护。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/xostbMdOuQJPE/images/a254f4da-6c45-4960-9059-d70deaf1de7b.jpg?asset_id=7981a896-eaef-4923-b5eb-934124857fc5&amp;img_etag=%22809eaf46b725fe29e6c8fdedcabdcffa%22&amp;size=2560)](https://spark.adobe.com/page/xostbMdOuQJPE/images/a254f4da-6c45-4960-9059-d70deaf1de7b.jpg?asset_id=7981a896-eaef-4923-b5eb-934124857fc5&amp;img_etag=%22809eaf46b725fe29e6c8fdedcabdcffa%22&amp;size=1024)
-
-川普总统星期四(11/27)晚在推特上发布了消息：“为了国家安全，必须立即终止第230条！！！”。
-
-本月初，德克萨斯州共和党参议员特德·克鲁兹（Ted Cruz）与Twitter首席执行官杰克·多尔西（Jack Dorsey）发生冲突，原因是他的公司在与选举有关的推文上使用了“警告”标签。
-
-在承认自己不是一名关于选民舞弊方面专家之后，多尔西说Twitter为帖子加标签是“便于人们获得更多信息。”
-
-克鲁兹（Ted Cruz）說，”不，不是这样的。 你在页面上说：’在美国，任何形式的选民舞弊都极为罕见’。 这并没有与更广泛的舆论联系在一起，而是采取了有争议的政策立场，而当你这样做时，你就算是个出版商。” “你有权採取政治立场，但不要假装自己不是出版商，而享受第230条的特殊好处。”
-
-十月，联邦通信委员会（FCC）主席阿吉特·派（Ajit Pai）说，该机构将澄清对扮演“平台”的科技公司的豁免权条款中的“模稜兩可之處”。 许多保守派认为，Facebook，Twitter，Google等在审查内容时表现得更像“出版商”。
-
-承认自己不是律师，而是工程师 的Parler首席执行官约翰·马特泽（John Matze）上个月在接受《凯尔·奥尔森秀》（The Kyle Olson Show）采访时说：“第230条款的好处在于它保护中立的参与者免于承担责任。”。
+对于这则新闻，目前还没有其他可靠消息来源佐证，我们会继续追踪报道。
 
 
 
-他说，“作为Parler的创始人，我喜欢第230条款，特别是对我们而言，因为我们是一个中立的”城市广场。我们不评判用户的内容。”并补充说，用户“定义他们自己的体验”。
-[!\[\]()!\[\](https://spark.adobe.com/page/xostbMdOuQJPE/images/e16989ae-3ec2-4e4e-b504-d83b08f14fe0.jpg?asset_id=e9362cb9-5e77-4423-b8aa-4803bc4da732&amp;img_etag=%22e2e40063f436532943b0d48ab5c4caa1%22&amp;size=1024)](https://spark.adobe.com/page/xostbMdOuQJPE/images/e16989ae-3ec2-4e4e-b504-d83b08f14fe0.jpg?asset_id=e9362cb9-5e77-4423-b8aa-4803bc4da732&amp;img_etag=%22e2e40063f436532943b0d48ab5c4caa1%22&amp;size=1024)
-马特泽（Matze）说：“关于230条款的问题在于，Facebook和Twitter已经违反了第230条款，因为它们不再是中立参与者，而是充当出版商。”
+（本文仅代表作者个人观点）
 
-他说，如果这些公司遵守它，“真的不需要废除那些只是被忽视的东西。”“它们将无法制定规则来淘汰一个意识形态团体。”
-
-布赖特巴特新闻此前报道过，Pai曾经说：“在我的联邦通信委员会（Federal Communications Commission）整个任期内，我一直主张监管均等，透明和自由表达。”
-
-“社交媒体公司拥有第一修正案赋予的言论自由的权利，並有第一修正案的特殊豁免权，這是其他媒体输出（比如报纸和广播公司）所沒有的。”
-
-目前尚不清楚联邦通信委员会（FCC）何时将其所谓的“澄清”正式化。
-
-[原文链接](https://www.breitbart.com/tech/2020/11/27/donald-trump-calls-for-section-230-repeal-as-parler-ceo-says-facebook-twitter-not-neutral-actors/)
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/xostbMdOuQJPE/)
-[!\[\]()!\[\](https://spark.adobe.com/page/xostbMdOuQJPE/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/xostbMdOuQJPE/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

@@ -1,22 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/30日康州农场前沿觀察: 美国决不允许 !
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/604947/)
+## 11/30/2020 财经快讯: 道指低开, 国内企业倒闭潮来袭
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/604952/)
 
-作者：1984文姝
-视频：Buzz文珂
-审核：Truemanman
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30094108/Picture47-2.png)图片来源：[https://middle-east-online.com/](https://middle-east-online.com/en/opec-allies-agree-extend-output-cuts-month)
+1， 道琼斯工业平均指数和标准普尔500指数周一开盘下跌。30只股票的道琼斯指数下跌162点，跌幅为0.6%。标普500指数下滑0.2%，纳斯达克综合指数上涨0.3%。
+[https://www.cnbc.com/2020/11/29/stock-market-futures-open-to-close-news.html](https://www.cnbc.com/2020/11/29/stock-market-futures-open-to-close-news.html)
 
+2， 欧佩克和欧佩克+产油国将分别于11月30日和12月1日召开会议，周一会议时间为13:00GMT/08:00EST。
+[https://www.zerohedge.com/commodities/opec-meeting-begins-heres-full-preview-what-expect](https://www.zerohedge.com/commodities/opec-meeting-begins-heres-full-preview-what-expect)
 
+3， 债务频频爆雷，紫鑫药业债务的雷正在一步步引爆。因一笔690万元的到期债务未能偿还，最近，紫鑫药业被 “金主” 工行柳河支行告上法庭，并宣布多笔贷款提前到期。只有人参，没有钱，人参短期无法快速变现， “人参第一股” 紫鑫药业 (3.830, -0.09, -2.30%) 的资金链紧绷，债务逾期频发。
+[https://finance.sina.com.cn/stock/s/2020-11-30/doc-iiznctke3945799.shtml](https://finance.sina.com.cn/stock/s/2020-11-30/doc-iiznctke3945799.shtml)
 
-弗林将军强势回归，11月28日吉姆·霍夫特在美国媒体《网关专家》（GATWAY pundit）上发布了对弗林将军（General Michael Flynn）长达半小时的采访。这是他自特赦之来的首次接受采访。
-“拜登集团上台就是美国的终结！”他表示“他和美国爱国者决不会允许这个发生”。
-弗林将军坚定地表示，川普团队有非常清晰的致胜之路，而且是百分百致胜。这次选举是计算机作弊和假选票计票的结果，11月3日几个摇摆州停止计票的原因，是拜登集团发现电脑作弊都不能超越川普，于是紧急制作假票。现在有大量证据在手，正在走法律程序。弗林将军再次证实：Kraken大海怪系统——美国情报网络战系统显示，中共伊朗介入大选。
-弗林将军更是将矛头指向社交媒体，他厉声说：你们这些美国公司怎敢审查美国人民！
-大选之后，一地鸡毛。正像郭文贵先生所说，美国大选必定是一场滑稽的结局。然而滑稽的背后，却是当今世界两大力量的制衡与决斗：自由民主法治的正义力量和企图奴役十四亿中国人民的社会主义邪恶力量的存亡之争。美国决不允许！以弗林将军为代表的美国爱国者们，以班农、朱利安尼、鲍威尔等为阵营的正义之师，以文贵先生为首的爆料革命战友——新中国联邦人，我们将永远捍卫正义，永不屈服！
- 
-素材链接：
-[https://www.thegatewaypundit.com/2020/11/breaking-general-flynn-announces-new-sidney-powell-kraken-case-michigan-additional-amendment-georgiaaudio/](https://www.thegatewaypundit.com/2020/11/breaking-general-flynn-announces-new-sidney-powell-kraken-case-michigan-additional-amendment-georgiaaudio/)
+4，半导体巨头突陷停产危机！SK海力士重庆工厂产能受阻， 行业新订单价格暴涨。SK目前主要生产适用于移动终端的闪存产品Nand Flash，产品主要应用于智能手机、平板电脑、USB等移动终端设备。近期由于各种关于海外晶圆大厂和封测厂停产、意法半导体（ST）大罢工、日本晶圆厂火灾的消息接踵而至，另受疫情影响，SK海力士重庆工厂暂时停产，实行全封闭管理。
+[https://finance.sina.com.cn/roll/2020-11-30/doc-iiznezxs4364027.shtml](https://finance.sina.com.cn/roll/2020-11-30/doc-iiznezxs4364027.shtml)
 
-0
+5， 2020年11月30日，中国人民银行启动2000亿元中期借贷便利（MLF）操作和1500亿元逆回购操作。此外，中国人民银行将于12月15日启动中期借贷便利 (MLF)操作。
+[https://kuaixun.stcn.com/cj/202011/t20201130\_2577139.html](https://kuaixun.stcn.com/cj/202011/t20201130_2577139.html)
+
+By 【秘翻组 – 金融团队】
+
+1+

@@ -1,25 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/30/2020 财经快讯: 道指低开, 国内企业倒闭潮来袭
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/604952/)
+## 中共炮制假新闻，借德国科学家之口甩锅病毒源自意大利。反被德国科学家来打脸！
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/604924/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30094108/Picture47-2.png)图片来源：[https://middle-east-online.com/](https://middle-east-online.com/en/opec-allies-agree-extend-output-cuts-month)
-1， 道琼斯工业平均指数和标准普尔500指数周一开盘下跌。30只股票的道琼斯指数下跌162点，跌幅为0.6%。标普500指数下滑0.2%，纳斯达克综合指数上涨0.3%。
-[https://www.cnbc.com/2020/11/29/stock-market-futures-open-to-close-news.html](https://www.cnbc.com/2020/11/29/stock-market-futures-open-to-close-news.html)
+内病毒专题：Stephen（文文）
+校对：老白
 
-2， 欧佩克和欧佩克+产油国将分别于11月30日和12月1日召开会议，周一会议时间为13:00GMT/08:00EST。
-[https://www.zerohedge.com/commodities/opec-meeting-begins-heres-full-preview-what-expect](https://www.zerohedge.com/commodities/opec-meeting-begins-heres-full-preview-what-expect)
+11月30日，中共又在各中文媒体平台上炮制了一则假新闻，将病毒来源甩锅意大利北部。这则新闻题目为《德国科学家：全球99.5%感染源自意北部新冠变体，而非早期的武汉》。中共故意曲解德国科学家的采访内容，中共为了掩盖疫情真相已经到了卑鄙下作，令人不齿的地步。因墙内民众接触不到外界信息而肆意造假。
 
-3， 债务频频爆雷，紫鑫药业债务的雷正在一步步引爆。因一笔690万元的到期债务未能偿还，最近，紫鑫药业被 “金主” 工行柳河支行告上法庭，并宣布多笔贷款提前到期。只有人参，没有钱，人参短期无法快速变现， “人参第一股” 紫鑫药业 (3.830, -0.09, -2.30%) 的资金链紧绷，债务逾期频发。
-[https://finance.sina.com.cn/stock/s/2020-11-30/doc-iiznctke3945799.shtml](https://finance.sina.com.cn/stock/s/2020-11-30/doc-iiznctke3945799.shtml)
+中共所编造的新闻内容：
+德国病毒学家亚历山大·凯库勒(Alexander Kekulé)在接受电视台采访时表示，目前世界上传播的99.5%新冠病毒变异毒株G，均可以追溯到意大利北部地区的一种突变，传染性要比在中国武汉发现的病毒更强，他认为：“所以本质上那里才是起点，全球大流行的起点并不在武汉。”
 
-4，半导体巨头突陷停产危机！SK海力士重庆工厂产能受阻， 行业新订单价格暴涨。SK目前主要生产适用于移动终端的闪存产品Nand Flash，产品主要应用于智能手机、平板电脑、USB等移动终端设备。近期由于各种关于海外晶圆大厂和封测厂停产、意法半导体（ST）大罢工、日本晶圆厂火灾的消息接踵而至，另受疫情影响，SK海力士重庆工厂暂时停产，实行全封闭管理。
-[https://finance.sina.com.cn/roll/2020-11-30/doc-iiznezxs4364027.shtml](https://finance.sina.com.cn/roll/2020-11-30/doc-iiznezxs4364027.shtml)
+真实的报道可在德文网站上查到（[https://www.weser-kurier.de/deutschland-welt/deutschland-welt-vermischtes\_artikel,-das-virus-ist-nicht-aus-wuhan-virologe-kekule-ueberrascht-bei-lanz-mit-neuen-erkenntnissen-\_arid,1946346.html](https://www.weser-kurier.de/deutschland-welt/deutschland-welt-vermischtes_artikel,-das-virus-ist-nicht-aus-wuhan-virologe-kekule-ueberrascht-bei-lanz-mit-neuen-erkenntnissen-_arid,1946346.html)）。
+![图1]()![图1](https://cdn.discordapp.com/attachments/744896091723399198/782951596359286804/image0.png)图1![]()![](https://cdn.discordapp.com/attachments/744896091723399198/782951658455957534/image0.png)图2![]()![](https://cdn.discordapp.com/attachments/744896091723399198/782951731394379777/image0.png)图3
+1. 在采访中，德国科学家被问到“中共是否正确的？他们责怪欧洲是疫情源头。”科学家的回答非常明确-No！科学家非常明确的说病毒来自中（共）国，意大利的病毒就是从中（共）国传过来的。（图1、2）
+2. 科学家还说到病毒很早就在武汉传播了，至2月底在意大利被发现，病毒有足够的时间变异为传播力更强的毒株G。他的意思是病毒来源于武汉，意大利北部传播只是病毒变种而已。
 
-5， 2020年11月30日，中国人民银行启动2000亿元中期借贷便利（MLF）操作和1500亿元逆回购操作。此外，中国人民银行将于12月15日启动中期借贷便利 (MLF)操作。
-[https://kuaixun.stcn.com/cj/202011/t20201130\_2577139.html](https://kuaixun.stcn.com/cj/202011/t20201130_2577139.html)
 
-By 【秘翻组 – 金融团队】
+事实上，公开发表的论文表明，病毒的突变株G最早1月已经在武汉产生，但由于中共在武汉的封城措施而未大规模的传播开来。而614G突变2月底在欧洲出现后迅速成为“主流”毒株（图3）。614G毒株更早的出现应该是在武汉，但为什么跑到了意大利北部，并迅速流行到全球？
 
 1+
