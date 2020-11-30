@@ -1,50 +1,80 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 多米尼公司核心技术骨干曾为中共工作
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/602524/)
+## 拜登创造的五大选举奇迹
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/602549/)
 
-*新闻来源：The National Pulse《国家脉动》；作者：娜塔莉·温特斯（NATALIE WINTERS）；发布时间：2020年11月 25日*
+*新闻来源：the federalist《联邦党人》；作者：J.B. Shurk；发布时间：2020年11月23日*
 
-*翻译/简评：Marialu；校对：感恩；审核：海阔天空；Page：拱卒*
-[!\[\]()!\[\](https://spark.adobe.com/page/JxEda7xuWYpVB/images/e68ee4c0-8757-40d9-b56a-bca615bd6ea1.jpg?asset_id=39d64357-5c11-4b38-8c6d-f445db157eef&amp;img_etag=%221d71d48e99e580cabe1ff3b1e747228d%22&amp;size=1024)](https://spark.adobe.com/page/JxEda7xuWYpVB/images/e68ee4c0-8757-40d9-b56a-bca615bd6ea1.jpg?asset_id=39d64357-5c11-4b38-8c6d-f445db157eef&amp;img_etag=%221d71d48e99e580cabe1ff3b1e747228d%22&amp;size=1024)
+*翻译/简评：Victory；校对/审核：海阔天空；Page：拱卒*
+
 **简评：**
 
-《国家脉动》最近透露担任多米尼投票公司信息技术的核心架构经理——黄安迪曾在“中国电信”工作，而“中国电信”被美国国防部确定为与中共军方合作超过20年的国有企业。
+本文作者从美国大选历史数据及相关获胜者的规律等方面分析了拜登的领先，指出了拜登5种完全违背大选常理的事实。只要稍有判断力的人都会知道，拜登的领先漏洞百出，颠覆认知，而主流媒体和记者对此完全视而不见、装聋作哑。
 
-美国司法部指控多米尼技术人员为中共军方代理工作，以及“中国电信”给中共提供机会，参与恶意网络活动、进行经济间谍活动以及中断和误导美国通讯。
+从近期逐步曝光的新闻看，拜登的选举作弊手段之多令人咋舌，作弊规模之大史无前例，作弊手法之低劣让人难以置信。西德尼.鲍威尔律师也公开表示，不知道拜登和其团队为什么进行如此明显的作弊，留下如此之多的证据。中共、拜登和美国深层沼泽的力量可谓背水一战，它们深知，一旦这次大选落败，中共就全盘皆输，而美国沼泽势力就要以叛国罪被审判，所以他们都退无可退，负隅顽抗，但用力过猛、徒留笑柄。
 
-从黃安迪的领英信息证明，多米尼投票系统，无论是硬件还是软件，都被控制在中共手中。所以越来越多的实锤证据表明：中共是操纵干涉美国大选背后的真正黑手，其目的是企图颠覆美国。
+原文翻译：
 
-这次美国选举舞弊、大量造假和腐败现象让川普政府和美国人民越来越看清中共和美国沼泽地的大鳄们沆瀣一气的邪恶本质；也让美国正义力量更加紧密地和我们“新中国联邦”联手灭共，希望这次能以中国老百姓最小的代价，结束中共的邪恶统治。
+## 乔-拜登又有5种方式神奇地超越了选举规律
 
-**原文翻译：**
+当然，记者们应该对乔-拜登荒诞不经胜利的不合理性感到好奇。但他们却没有感到奇怪，至少可以这么说。
+[![](https://spark.adobe.com/page/YmUJfVDfDXYYc/images/0a5d455d-e9cc-4651-af42-6d7fb148b108.jpg?asset_id=e5cbb1a3-5389-4e50-9ea2-09906a1722a7&amp;img_etag=%22cc99145dd6576695dbbc969944418a2a%22&amp;size=1024)](https://spark.adobe.com/page/YmUJfVDfDXYYc/images/0a5d455d-e9cc-4651-af42-6d7fb148b108.jpg?asset_id=e5cbb1a3-5389-4e50-9ea2-09906a1722a7&amp;img_etag=%22cc99145dd6576695dbbc969944418a2a%22&amp;size=1024)
+在所谓的中立媒体人为乔-拜登宣布胜利而兴奋的时候，记者们却忽略了这位民主党人在2020年大选中的表现是多么异常。这位前副总统不仅有望成为美国历史上年龄最大的总统，而且他在今年的选举中也成功地做到了这一点。
 
-### 多米尼（Dominion）技术人员曾为中共军方代理工作，被美国政府标记为“恶意网络活动”
+候选人乔-拜登在2020年调动选民积极性方面非常有效，他获得了历史上最高选票数量，比奥巴马在2012年连任时获得的选票多出1500多万张。令人惊奇的是，他获得了胜利，同时却在全国几乎所有的风向标郡选票上失利。直到现在，还没有任何一位总统候选人能有这样的选举绝技。
 
-**《国家脉动》透露，现任多米尼投票系统信息技术核心架构（基础设施）经理——黄安迪（ANDY HUANG），曾在“中国电信”工作。**
-[!\[\]()!\[\](https://spark.adobe.com/page/JxEda7xuWYpVB/images/ffdb89ef-e5cf-4a9f-a9b9-014a738184ce.jpg?asset_id=c5e9e0e8-dda5-4545-b6b4-a45bf1e4dd8d&amp;img_etag=%22e930448408289d85a35759fb2790afd0%22&amp;size=2560)](https://spark.adobe.com/page/JxEda7xuWYpVB/images/ffdb89ef-e5cf-4a9f-a9b9-014a738184ce.jpg?asset_id=c5e9e0e8-dda5-4545-b6b4-a45bf1e4dd8d&amp;img_etag=%22e930448408289d85a35759fb2790afd0%22&amp;size=1024)**黄安迪（ANDY HUANG）**
-中国电信（China Telecom ）完全由中共国政府运营，并已被美国国防部确定为与（中共）国军方合作超过20年。
+虽然拜登在美国每个城市郡的总票数都低于希拉里-克林顿2016年的总票数，但在佐治亚州、密歇根州、威斯康星州和宾夕法尼亚州的大都会地区，他的表现却超过了她。更令人奇怪的是，尽管民主党在全国各地的地方众议院和州立法席位上普遍失败，但这位前副总统的得票率却创下了历史新高。
 
-同样，美国司法部也警告中国电信“担心该公司易受中共国政府的利用、影响和控制”，以及“中国电信在美国业务的性质”如何为“中共国‘国家行为’参与恶意网络活动提供机会，从而使他们能够进行经济间谍活动以及中断和误导美国通讯。”
+他是在进入大选的初选得票率比他的共和党对手低的情况下完成这一切的。显然，这些都是巨大的、出乎意料的成绩，通常会得到记者们的仔细分析，但不知何故，在纽约市和华盛顿特区的新闻工作室的庆祝活动中，这些成就大多没人提及。
 
-现在多米尼公司担任关键技术职务的黄安迪从1998年至2002年曾在中共国公司工作。
-[!\[\]()!\[\](https://spark.adobe.com/page/JxEda7xuWYpVB/images/10544b23-5ad8-4133-8ce0-fcfd2d8c053d.png?asset_id=652797f0-8f30-4834-aed1-cdb369dab93a&amp;img_etag=%221cf58e2205e607ef42a79d78aa04f266%22&amp;size=1024)](https://spark.adobe.com/page/JxEda7xuWYpVB/images/10544b23-5ad8-4133-8ce0-fcfd2d8c053d.png?asset_id=652797f0-8f30-4834-aed1-cdb369dab93a&amp;img_etag=%221cf58e2205e607ef42a79d78aa04f266%22&amp;size=1024)黄安迪在领英上的信息
-黃安迪协助完成的任务包括“厦门国际数据中心（IDC）项目”，“厦门市区宽带网络”和“ OA 内网基础设施改造项目”。
+目前正在进行的大规模全国性政治重组可能是这些令人惊讶的不安的原因之一。然而，他成功变了这么多戏法，谁也不能否认拜登是个一流的竞选者和政治家，美国以前从未见过这样的人。让我们来分析一下他在2020年的政治巫术到底有多独特。
+[![](https://spark.adobe.com/page/YmUJfVDfDXYYc/images/fb84422c-43de-4361-a4b6-7f34debd7678.jpg?asset_id=ff08f746-ed9b-4ca4-8c56-43aa0fe80d0d&amp;img_etag=%224aa5be2d4fe0962c17c180b9938b2ce7%22&amp;size=1024)](https://spark.adobe.com/page/YmUJfVDfDXYYc/images/fb84422c-43de-4361-a4b6-7f34debd7678.jpg?asset_id=ff08f746-ed9b-4ca4-8c56-43aa0fe80d0d&amp;img_etag=%224aa5be2d4fe0962c17c180b9938b2ce7%22&amp;size=1024)
+#### **1. 八千万选票**
 
-虽然他在这些项目上的具体工作性质尚不完全清楚，但与他有广泛合作的思科公司（Cisco），负责维护中共国严厉的互联网防火墙。
+我的天啊！很多美国人都出动了，支持一位在位近50年的华盛顿政客。想想看，近一个半世纪以来，还没有哪位现任总统在连任竞选中获得选票，却依然落败。
 
-黄安迪在领英上的个人资料显示，他的雇主是他的“兴趣”之一
-[!\[\]()!\[\](https://spark.adobe.com/page/JxEda7xuWYpVB/images/a960aa54-8981-488b-a313-f33dec6d0762.png?asset_id=33cc3768-6e8d-4b66-9841-137c7ecbf436&amp;img_etag=%2241d9f4722f7297b2698167105b098c81%22&amp;size=1024)](https://spark.adobe.com/page/JxEda7xuWYpVB/images/a960aa54-8981-488b-a313-f33dec6d0762.png?asset_id=33cc3768-6e8d-4b66-9841-137c7ecbf436&amp;img_etag=%2241d9f4722f7297b2698167105b098c81%22&amp;size=1024)黃安迪“领英”上的兴趣爱好
-随着美国情报官员证实北京政府更喜欢拜登担任总统，这种挖掘出来的关系使得多米尼投票系统与反对川普总统的实体之间所保持的越来越多的可疑关系清单又多了这一项。
+川普总统获得的选票比2016年胜选时还多出1000多万张选票，但拜登的吸引力非常大，以至于超过了川普总统在少数族裔选民中的创纪录的支持率。拜登还打破了奥巴马自己的普选总票数，这真的让人怀疑2008年和2012年竞选中或许是拜登将奥巴马拉过终点线的。
 
-中共国官方媒体官员证实了这些观点。
+证明了他的政治直觉是多么敏锐，这位前副总统成功地获得了创纪录的票数，同时在选民热情的衡量标准上一直落后于总统特朗普。拜登是如此精明，以至于他动员对他的竞选活动毫无热情的选民以创纪录的数量投票给他。
+[![](https://spark.adobe.com/page/YmUJfVDfDXYYc/images/4655fd46-e562-49ab-8480-8b60e156922d.jpg?asset_id=c13d21b3-1b64-46d4-997e-2d20202477bf&amp;img_etag=%22099f76eec1dd87f39c1ee2909903d718%22&amp;size=2560)](https://spark.adobe.com/page/YmUJfVDfDXYYc/images/4655fd46-e562-49ab-8480-8b60e156922d.jpg?asset_id=c13d21b3-1b64-46d4-997e-2d20202477bf&amp;img_etag=%22099f76eec1dd87f39c1ee2909903d718%22&amp;size=1024)
+#### 2. 尽管失去大多数风向标县，但仍获胜。
 
-同样，多米尼公司显示，来自该公司美国员工的捐款95%以上都是捐给民主党人的。该公司还有一个游说团队，其中包括南希·佩洛西的前办公室主任和奥巴马时代的一位选票保护主管。
+拜登以明显劣势在这些关键风向标地区落败，却仍然赢得了全国大选，这是很有新闻价值的。自1960年据说由黑手党帮助约翰-肯尼迪在伊利诺伊州击败理查德-尼克松获胜以来，还没有一位美国总统玩出这种精巧的戏法。
 
-不过，权威媒体坚称，这些联系是“毫无根据的阴谋”。
+更让人难以置信的是，拜登几乎输掉了全美所有的历史性风向标郡，却即将入主白宫。《华尔街日报》和《大纪元时报》独立分析了美国各地19个郡的结果，这些郡在过去40年的大选中投票记录和获选总统记录几乎完美一致。除了华盛顿的克拉姆郡，川普总统赢得了所有的风向标郡。
 
-[原文链接](https://thenationalpulse.com/news/dominion-techie-worked-for-ccp-military-proxy-flagged-by-u-s-govt-for-malicious-cyber-activity/)
+而前副总统以3个百分点左右的优势拿下克拉姆郡，川普总统在其他18个郡的胜率平均超过16个百分点。在一个更大的名单中，自2000年以来正确选择总统的58个风向标郡中，川普以平均15个百分点的优势赢得了其中的51个，而其他7个郡则以4个百分点左右的优势被拜登赢得。风向标郡绝大多数选择了川普总统，但拜登还是找到了胜选的路。
+[![](https://spark.adobe.com/page/YmUJfVDfDXYYc/images/eb0be2eb-4365-456d-b3d6-1872c5660b96.jpg?asset_id=af6a4cbc-b27e-4a83-bee2-b27096942390&amp;img_etag=%223ba427b4edf8f7f90a885fd5267be1fc%22&amp;size=1024)](https://spark.adobe.com/page/YmUJfVDfDXYYc/images/eb0be2eb-4365-456d-b3d6-1872c5660b96.jpg?asset_id=af6a4cbc-b27e-4a83-bee2-b27096942390&amp;img_etag=%223ba427b4edf8f7f90a885fd5267be1fc%22&amp;size=1024)
+#### 3. 拜登除在少数城市外均落后于克林顿
+
+有着准确记录的民调专家、华盛顿特区民主研究所所长帕特里克-巴沙姆（Patrick Basham,）强调了同事、大数据民调大师理查德-巴里斯（Richard Baris）和《华盛顿邮报》选举分析师罗伯特-巴恩斯（Robert Barnes）的两点意见。巴里斯指出，2020年的选举结果有一个统计上的怪现象。”拜登在全国所有主要城市地区的表现都低于希拉里-克林顿，除了密尔沃基、底特律、亚特兰大和费城”
+
+巴恩斯补充说，在那些 “民主党人经营的摇摆州的大城市……选票甚至超过了登记选民的数量”。在那些最重要的州，如此多的邮递选票从这些城市投给拜登，以至于他打破纪录，并推翻了川普总统遥遥领先的州的总票数。
+
+如果民主党成功取消选举人团，拜登在少数城市炮制出压倒性票数的神奇方案，应该会让民主党立于不败之地。
+[![](https://spark.adobe.com/page/YmUJfVDfDXYYc/images/220ec417-9051-4f7d-8643-516c078be94d.jpg?asset_id=4477e0b5-ed4e-45cf-97d0-dcaee911a0a7&amp;img_etag=%228730b179c0d07e08a4740734e8bdb7d7%22&amp;size=1024)](https://spark.adobe.com/page/YmUJfVDfDXYYc/images/220ec417-9051-4f7d-8643-516c078be94d.jpg?asset_id=4477e0b5-ed4e-45cf-97d0-dcaee911a0a7&amp;img_etag=%228730b179c0d07e08a4740734e8bdb7d7%22&amp;size=1024)
+#### 4. 尽管民主党在其他地方都有落败，但拜登还是赢了
+
+兰迪-德索托（Randy DeSoto ）在《西部日报》上指出：”唐纳德-川普几乎是美国历史上唯一一位失去连任的现任总统，而本党在众议院却获得席位。” 这才是拜登的奇迹!
+
+在2020年，《库克政治报告》和《纽约时报》将27个众议院席位列为选举日悬而未决的问题。现在，共和党似乎已经赢得了所有27个席位。民主党未能翻盘任何一个州的众议院，而共和党则翻盘了新罕布什尔州的众议院和参议院，并扩大了他们在全国各州立法机构的主导权。
+
+民主党立法竞选委员会的发言人克里斯蒂娜-波利齐（Christina Polizzi）竟然说，”很明显，川普不是共和党立法候选人的锚，他是一个浮标。他是一个浮标。” 令人惊奇的是，拜登击败了那个把其他所有共和党人都推向胜利的人。这才是历史性的！
+[![](https://spark.adobe.com/page/YmUJfVDfDXYYc/images/ac4d1c75-52e3-4042-855a-25972444365b.jpg?asset_id=166fde69-1fa9-4b58-b88c-8156f13a5038&amp;img_etag=%22471fab2e8ec244c47993f903d57985cf%22&amp;size=1024)](https://spark.adobe.com/page/YmUJfVDfDXYYc/images/ac4d1c75-52e3-4042-855a-25972444365b.jpg?asset_id=166fde69-1fa9-4b58-b88c-8156f13a5038&amp;img_etag=%22471fab2e8ec244c47993f903d57985cf%22&amp;size=1024)
+#### 5. 拜登击败了川普的压倒性初选投票
+
+过去，初选总票数在预测大选获胜者方面非常准确。政治分析家大卫-查普曼（David Chapman）在选举前强调了三个历史事实：
+
+**首先，**没有任何一位获得初选总票数75%的现任总统失去连任。
+
+**其次，**川普总统获得了94%的初选票，这是历史上第四高的选票（高于德怀特-艾森豪威尔、尼克松、克林顿或奥巴马）。事实上，自1912年以来，川普是仅有的五位获得90%以上初选票的现任总统之一。
+
+**第三，**川普在2020年创造了现任总统获得最多初选票的纪录，当时有超过1800万人为他投票（之前由比尔-克林顿保持的纪录是这个数字的一半）。尽管川普在初选中获得了历史性的支持，但拜登仍能在大选中取胜，这就颠覆了此前一个世纪的选举数据。
+
+乔-拜登实现了不可能完成的任务。有趣的是，很多的记者没有指出这一点。
+
+[原文链接](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
 [点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
@@ -52,6 +82,6 @@
 
 [欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-编辑：【喜马拉雅战鹰团】-[点击saprk adobe版](https://spark.adobe.com/page/JxEda7xuWYpVB/)
-[!\[\]()!\[\](https://spark.adobe.com/page/JxEda7xuWYpVB/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/JxEda7xuWYpVB/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+编辑：【喜马拉雅战鹰团】-[点击saprk adobe版](https://spark.adobe.com/page/YmUJfVDfDXYYc/)
+[![](https://spark.adobe.com/page/YmUJfVDfDXYYc/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/YmUJfVDfDXYYc/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 1+

@@ -1,41 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统在FOXNEWS接受Maria採訪（节选）
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/602970/)
+## 佐治亚州数千张川普选票未被计算
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/603037/)
 
-听写/翻译: 势不可挡；PR:TCC；视频字幕：文府；
+—负责扫描选票的是Dominion公司代表，曾是民主党副总统候选人卡马拉·哈里斯竞选活动的官方摄影师
 
-简评/组稿编辑：Julia Win；Page：拱卒
+作者：卡桑德拉·费尔班克斯; 发布时间2020年11月29日上午7点52分
+翻译： 康州盘古农场 – 烟波浩淼
+校对：康州盘古农场 – 一花一世界
+审核：康州盘古农场 – V
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29185802/1-29-1.jpg)
+一名在佐治亚州弗洛伊德郡负责扫描选票的Dominion公司代表去年曾为卡马拉·哈里斯的竞选活动担任官方摄影师。
 
-**简评：**
+作为Dominion公司代表，现场负责扫描选票的人员之一埃里克·汤普森（Aric Thompson）。  据其领英简介，2019年他曾担任参议员哈里斯的官方摄影师。他甚至在网上有一个合集专门放置他为哈里斯拍摄的照片。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29193237/Picture1-35.png)
+此外，多个报道称，有几次扫描现场没有观察员。
 
-大选被舞弊，所谓的主流媒体们封锁事实真相；川普总统的推文一再被推特隐藏和消失；许多传播真相的推特账号一再被封号或禁言诸多12小时……这完全是中共媒体的操纵手法，不是吗！
+希瑟·穆林斯 – 《真实的美国之声》推特：
 
-川普总统在接受FOXNEWS的玛丽亚采访时说：“我的意思是你正在做的事，非常勇敢，因为你在做媒体不想谈论的事情。”这是总统的无奈吗？不！这正说明：川普总统明了一切，在以各种方式战斗！
-
-川普总统会实现自己的诺言：使美国再次伟大！
+佐治亚州弗洛伊德郡！据报道，一名据称是Dominion公司代表的男子负责扫描选票处，有超过3000张选票(大部分是给川普总统的)最初未被计算在内，此人似乎作为摄影师曾在卡马拉·哈里斯的总统竞选期间与她合作。
 
 
 
-**视频翻译：**
+> FLOYD COUNTY, GA! A man reported to be the Dominion Rep scanning ballots in where over 3000 votes (the majority for President Trump) went initially uncounted appears to have worked with [@KamalaHarris](https://twitter.com/KamalaHarris?ref_src=twsrc%5Etfw) as a photographer during her Presidential campaign. [@RealAmVoice](https://twitter.com/RealAmVoice?ref_src=twsrc%5Etfw) [pic.twitter.com/OlmI2Htirw](https://t.co/OlmI2Htirw)
+> — Heather Mullins – Real America’s Voice (RAV-TV) (@TalkMullins) [November 29, 2020](https://twitter.com/TalkMullins/status/1332909677219344384?ref_src=twsrc%5Etfw)
 
-媒体甚至不想报导（选举舞弊）。我的意思是你正在做的事，非常勇敢，因为你在做媒体不想谈论的事情。他们知道这次选举有很多的舞弊，和亨特拜登（的硬盘门）没什么不同。他们不想谈论亨特。所以除了你所记得的《纽约邮报》之外，大科技公司和媒体完全不报导，亨特的硬盘吸引了很多的关注但却被终止了。我猜它被Twitter，也许还有Facebook审查和终止了。
 
-但现在就是这种情况：在这个国家，我们没有新闻自由。（反而）我们受到新闻机构的压制。你知道他们压制（真相），如果没有报导，你就不会知道有丑闻。
 
-从选举的角度来看，这是我们国家历史上最大的选举舞弊，我想再没有比大选更大的事了。还有什么比大选更大的呢？有什么比这更大的呢？这是我们国家的根本。事实被完全改变了，他们欺骗了人民。
+***这是弗洛伊德郡负责扫描选票的两名男子之一。他为卡马拉·哈里斯工作。据罗马市民主党委员温迪·戴维斯（Wendy Davis******）和弗洛伊德郡民主党主席卢克·马丁（Luke Martin******）称，部分扫描过程中没有观察员在场。发现超过3000******张未统计的选票。***
 
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+穆林斯还分享了汤普森在社交媒体上的帖子，他在帖子中抨击了唐纳德·川普总统:
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29193348/Picture2-25.png)
+本月早些时候，佐治亚州弗洛伊德郡的选举委员会在官员们发现了数千张未清点的选票后，投票决定解雇选举事务长罗伯特·布拉迪。
 
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-编辑：【喜马拉雅战鹰团】-点击spark adobe版
+> Meeting minutes from Floyd County dated Feb 11, 2020. 
+> 
+> “New Business: Mr.Brady introduced Aric Thompson as our on-site technician from Dominion.” [@RealAmVoice](https://twitter.com/RealAmVoice?ref_src=twsrc%5Etfw) [https://t.co/vWuwa5EGhf](https://t.co/vWuwa5EGhf) [pic.twitter.com/Vph4t9eVPx](https://t.co/Vph4t9eVPx)
+> — Heather Mullins – Real America’s Voice (RAV-TV) (@TalkMullins) [November 29, 2020](https://twitter.com/TalkMullins/status/1333047715622694912?ref_src=twsrc%5Etfw)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/EC3WaAhLwE8Kg/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/EC3WaAhLwE8Kg/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
+弗洛伊德郡2020年2月11日的会议记录。
+“新的业务。布雷迪先生介绍了阿里克・汤普森 作为Dominion公司的现场技术员”
+汤普森在选举后的第二天与布雷迪一起扫描选票时被拍到。
+
+
+
+> Picture of fired Floyd County Chief Election Clerk Robert Brady, & Dominion Rep Aric Thompson, taken by the Rome News Tribune from the morning after Election Day when the two were still scanning ballots. The recount unexplainably turned up 3055 uncounted ballots. [@RealAmVoice](https://twitter.com/RealAmVoice?ref_src=twsrc%5Etfw) [pic.twitter.com/5rPMRSPgJe](https://t.co/5rPMRSPgJe)
+> — Heather Mullins – Real America’s Voice (RAV-TV) (@TalkMullins) [November 20, 2020](https://twitter.com/TalkMullins/status/1329882296514715650?ref_src=twsrc%5Etfw)
+
+
+《罗马新闻论坛报》拍摄的被解雇的弗洛伊德郡首席选举书记员罗伯特·布雷迪（Robert Brady），和Dominion代表埃里克·汤普森的照片，拍摄于选举日后的早上，当时两人还在扫描选票。重新计票时，无法解释地发现有3055张未计选票。
+福克斯报道称，”共和党州务卿布拉德·拉芬斯伯格将问题归咎于弗洛伊德郡选举官员未能将选票扫描机中的存储卡中的选票上传。”
+
+评: 佐治亚州弗洛伊德郡选举委员会聘请民主党副总统候选人卡马拉·哈里斯竞选活动的官方摄影师作为Dominion公司的现场技术员，并且是现场两个扫描选票的人之一，该郡被发现有3055张未计选票，加上此人在社交媒体上发布攻击川普总统的言论， 让人不得不怀疑这难道仅仅是疏忽或巧合吗？难道不是有人有意安排的选举舞弊吗？
+
+原文链接：
+
+[Dominion Rep Who Scanned Ballots in Georgia County Where Thousands of Trump Votes Were Uncounted Also Worked for Kamala Harris (thegatewaypundit.com)](https://www.thegatewaypundit.com/2020/11/dominion-rep-scanned-ballots-georgia-county-thousands-trump-votes-uncounted-also-worked-kamala-harris/?utm_source=Twitter&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
 
 0

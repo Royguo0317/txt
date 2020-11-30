@@ -1,37 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 快讯：法官下令冻结佐治亚州所有多米尼投票机
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/602916/)
+## 【热点播报】： 2020总统大选选民登记率中的诡异数字
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/602939/)
 
-蒙特利尔战友团 laotou
+**作者：香草山写作组 Lucille西西** **校对：村北**
 
-校对 上传 小鸥
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29165326/eG.jpg)图片来自WFXG
-《门道专家》1小时前发出最新消息，“法官蒂莫西·巴顿（Timothy Batten）先生周日发布命令，冻结佐治亚州所有的多米尼投票机！。”
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/24223314/logo-3-1.jpg)
 
-文章引用了林伍德律师的推文，“法官下令被告，维持佐治亚州所有投票机现状，禁止临时性擦拭或重置，直到法院作出进一步的命令。”
 
-文章链接了林伍德律师下午发的推文。【1】
 
-看来法官也摸透了作案、偷窃者管用的伎俩，对作恶的痕迹不是修改就是销毁，要么就是监控录像系统故障，找不到事发时间段的影像资料……
 
-已经数周过去了，人们不禁担心，“窃票人”能把作案证据留下吗？相信计算机数据专家能将试图掩盖的“偷窃”痕迹还原，也警告作案者，掩盖篡改证据，只能罪加一等！
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29172326/34t-y-1.png)
+- ![]()距离2020年的美国总统大选已经过去近一个月了，有关民主党作弊手段的新闻也是层出不穷，民主党的腐败以及他们和共产党在背地里的勾结被展现得淋漓尽致。美国保守派的司法观察组织（Judical Watch）主要针对民主党人，调查政府官员声称的不正当行为。 该组织对2020年的总统大选进行了一系列的研究调查，在全美总共50个州3007个县中，该组织调查了其中37个州，最终结果得出全有至少353个县的登记选民比合格投票年龄的公民总共多出180万，也就是说，这些县的选民登记率超过了100%。另外，全美有八个州的选民登记率超过了100%，分别是阿拉斯加，科罗拉多州，缅因州，马里兰州，密歇根州，新泽西州，罗德岛州和佛蒙特州。研究结果出来以后，司法观察组织警告了这些州，他们未遵守《1993年国家选民登记法》。司法监督组织随后也向法院提起诉讼，要求其遵守联邦法律。
 
-文章还说，“迈克尔·弗林（Michael Flynn）将军也加入了进来。”
 
-弗林将军转发了林伍德律师的推，并作了附加说明，“‘海怪团队’（#TeamKraken）赢得了一项重要的禁令，巴顿法官下令冻结佐治亚州所有的多米尼投票机。
+- 这180多万的“鬼魂”选民到底从何而来，有何意图？2020年美国总统大选后接二连三地出现诡异事件和奇异数字，这背后真正的秘密一定会在不就的将来被公之于众，邪恶也一定会被正义所打败！
 
-魔鬼也许已经降临到了佐治亚州，但是从今天起，迎来的将是曙光。【2】
 
-是的，饱尝过恶势力陷害的弗林将军对黑暗是多么的痛恨，对光明是多么的期待。感恩节前川普总统对弗林将军的“平反昭雪”就是一束曙光，现在负有正义感的美国人民与弗林将军一样，期待曙光的早日到来。
 
-参考链接：
 
-【1】[https://twitter.com/LLinWood/status/1333136893899399168](https://twitter.com/LLinWood/status/1333136893899399168)
+> [New Judicial Watch Study Finds 353 U.S. Counties in 29 States with Voter Registration Rates Exceeding 100%](https://www.judicialwatch.org/press-releases/new-jw-study-voter-registration/)
 
-【2】[https://twitter.com/GenFlynn/status/1333138748649955329](https://twitter.com/GenFlynn/status/1333138748649955329)
 
-原文链接：https://www.thegatewaypundit.com/2020/11/breaking-update-judge-timothy-batten-issues-order-freeze-dominion-machines-georgia/
+
+发稿：悟空
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/24223314/logo-3-1.jpg)
+
+
+
+
 
 0
