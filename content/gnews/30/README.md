@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/29/2020 川普总统接受福克斯玛丽亚采访: 我会任命一位特别法律顾问来进行调查
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/604436/)
+## 11/28/2020 同声传译: 朱利安尼重磅讲话和接受OAN &amp; NEWSMAX采访, 以及福克斯LOU DOBBS &amp; HANNITY节目
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/604740/)
 
 By：【秘密翻译组G-Translators】
 

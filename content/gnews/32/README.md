@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/29/2020 川普总统接受福克斯玛丽亚采访: 死人参与投票, 此次大选完全是场骗局!
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/604393/)
+## 11/28/2020 同声传译班农战斗室【EP545+EP546】
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/604725/)
 
-By：【秘密翻譯組G-Translators】
+**By：【秘密翻译组G-Translators】**
 
 0
