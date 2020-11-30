@@ -1,24 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 绝不向选举欺诈妥协
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/604769/)
+## 中共炮制假新闻，借德国科学家之口甩锅病毒源自意大利。反被德国科学家来打脸！
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/604924/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30090853/%E4%B8%BB%E9%A2%98%E5%9B%BE%E7%89%87.png)
-根据埃里克·马克（Eric Mack）在《新闻极限 》(Newsmax)的报道，纽特·金里奇（Newt Gingrich）表示，如果这次腐败的选举不被公布于众的话，那么共和党输的不仅是这一届选举，而是以后的所有选举。
+内病毒专题：Stephen（文文）
+校对：老白
 
-这次选举并不是川普与拜登两人谁当总统的问题，而是关乎到每一位美国公民自身权利的问题。因为每位公民合法的选票都应该计算在内，而不是被扔掉或被大量非法选票淹没真实的民意。
+11月30日，中共又在各中文媒体平台上炮制了一则假新闻，将病毒来源甩锅意大利北部。这则新闻题目为《德国科学家：全球99.5%感染源自意北部新冠变体，而非早期的武汉》。中共故意曲解德国科学家的采访内容，中共为了掩盖疫情真相已经到了卑鄙下作，令人不齿的地步。因墙内民众接触不到外界信息而肆意造假。
 
-纽特·金里奇还指出，亨特·拜登（Hunter Biden）被曝出与中共，俄罗斯，乌克兰的勾兑和大量资金流入拜登家族，这一系列丑闻都是真实的，而且由此可以想到，未来如果拜登当选，那么这将是美国近代最腐败的政府。
+中共所编造的新闻内容：
+德国病毒学家亚历山大·凯库勒(Alexander Kekulé)在接受电视台采访时表示，目前世界上传播的99.5%新冠病毒变异毒株G，均可以追溯到意大利北部地区的一种突变，传染性要比在中国武汉发现的病毒更强，他认为：“所以本质上那里才是起点，全球大流行的起点并不在武汉。”
 
-纽特·金里奇最后总结称，为了这次大选，和未来的大选，共和党都应该解决选票欺诈的问题。
-
-评论：这篇文章虽然很短，但是却抓住了关键的要点，无论你支持哪一党派，现在的重点是选票欺诈，这已经侵犯了法律和每个美国人的人权。如果这一次被选票欺诈得逞，那么美国以后的选举就将成为全世界的笑话，就像中共那样。而且纽特最后提到要解决选票欺诈的问题。文贵先生之前也提到过多米尼公司的背后有中共和方正的影子，换句话说，想要彻底根除选票欺诈，川普总统就要对中共出手。
-
-[原文链接](https://www.newsmax.com/politics/rigged-democrats-bigtech-censorship/2020/11/29/id/999161/)
-
-翻译报道： Chris
+真实的报道可在德文网站上查到（[https://www.weser-kurier.de/deutschland-welt/deutschland-welt-vermischtes\_artikel,-das-virus-ist-nicht-aus-wuhan-virologe-kekule-ueberrascht-bei-lanz-mit-neuen-erkenntnissen-\_arid,1946346.html](https://www.weser-kurier.de/deutschland-welt/deutschland-welt-vermischtes_artikel,-das-virus-ist-nicht-aus-wuhan-virologe-kekule-ueberrascht-bei-lanz-mit-neuen-erkenntnissen-_arid,1946346.html)）。
+![图1]()![图1](https://cdn.discordapp.com/attachments/744896091723399198/782951596359286804/image0.png)图1![]()![](https://cdn.discordapp.com/attachments/744896091723399198/782951658455957534/image0.png)图2![]()![](https://cdn.discordapp.com/attachments/744896091723399198/782951731394379777/image0.png)图3
+1. 在采访中，德国科学家被问到“中共是否正确的？他们责怪欧洲是疫情源头。”科学家的回答非常明确-No！科学家非常明确的说病毒来自中（共）国，意大利的病毒就是从中（共）国传过来的。（图1、2）
+2. 科学家还说到病毒很早就在武汉传播了，至2月底在意大利被发现，病毒有足够的时间变异为传播力更强的毒株G。他的意思是病毒来源于武汉，意大利北部传播只是病毒变种而已。
 
 
+事实上，公开发表的论文表明，病毒的突变株G最早1月已经在武汉产生，但由于中共在武汉的封城措施而未大规模的传播开来。而614G突变2月底在欧洲出现后迅速成为“主流”毒株（图3）。614G毒株更早的出现应该是在武汉，但为什么跑到了意大利北部，并迅速流行到全球？
 
-0
+1+

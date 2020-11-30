@@ -1,26 +1,94 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《点晴要闻》突发： CIA局长吉娜·哈斯佩尔被捕了吗？
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/604766/)
+## 林伍德律师四连推:美国已做好准备反击中共发动的颜色革命
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/604969/)
 
-撰稿：Skagen【㊙️翻Gnews原创组】
-责编：沙拉猫
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30085658/gina.jpg)图片来源：推特 Dr Russell McGregor @killAuDeepState
-2020年11月29日推特上突然开始传播一则匿名来源的新闻：CIA局长吉娜·哈斯佩尔因叛国罪被捕！据称在月初袭击法兰克福CIA服务器时，她也在场并且受伤！随后她被飞机救出并被送往关塔那摩监狱审判。由于她同意交代如何干预大选以及供出其他涉嫌人员，她可以换取不被处以死刑。相信一大批叛国者很快将被送往关塔那摩监狱。
+- 编辑：Victor Torres
 
-由于消息来源还没有得到确认，这则新闻的真实性还有待证实。但是近段时间的新闻表明CIA深度参与针对美国总统选举的干预活动。美国托马斯·麦金尼中将与麦克·弗林中将在接受WVW广播网采访中证实了美军与CIA在德国法兰克福确有冲突。美国陆军特种部队成功突袭了CIA位于法兰克福的基地，激战中双方互有伤亡，但最终特种部队战术小组完全控制了局势，彻底清场后悉数缴获了部署于当地的服务器。据信在双方接火中至少有5名士兵以及1名CIA的准军事人员丧生。
 
-CIA的基础架构除了局长以外，主要分为内部情报数据分析小组、国家秘密行动处、技术装备小组、以及其它后勤支援小组等多级部门组成。而这次被突袭的位于法兰克福的农场，实际上就是CIA部署于美国本土之外的秘密任务基地。按该匿名消息来源的说法，CIA局长吉娜·哈斯佩尔亲自参与这场战斗，这也是让人震惊无比。
+***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-吉娜·哈斯佩尔生于1956年10月1日，她曾在时任CIA局长的迈克·蓬佩奥手下担任副局长。蓬佩奥仅担任了一年多时间的中情局长，离任后被任命为美国国务卿，哈斯佩尔成为代理局长，并在2018年5月17日确认为中情局局长，成为中情局历史上第一位女性局长。哈斯佩尔因2002年担任中情局在泰国的一个秘密监狱的负责人而引起争议，在该秘密监狱中，囚犯遭到包括水刑在内的所谓 “强化审讯技术 “的酷刑。
-
-最近有一些消息称，川普政府早就开始扩建关塔那摩监狱，并且去往该地的飞行规模和频率也大增。川普总统排干沼泽的大网可能已经开始收网，哈斯佩尔也许只是其中的一条小鳄，相信更多更令人瞠目的新闻在这几周会源源不断地出来。
-
-对于这则新闻，目前还没有其他可靠消息来源佐证，我们会继续追踪报道。
+西班牙2020年11月30日电/西喜社/——周日晚间及周一上午，林伍德律师发布了4条推文，宣布美国已做好准备以反击中共利用中共病毒，骚乱，欺诈性选举和城市暴力对美国发动的颜色革命。
 
 
 
-（本文仅代表作者个人观点）
+> I choose not to vote in another fraudulent election with rigged voting machines & fake mail ballots.
+> 
+> The future of this nation will not be be determined by fraudulent elections.
+> 
+> This is not about an election. This is a color revolution to overthrow our government.
+> 
+> Face TRUTH. [https://t.co/uhQAyKvesx](https://t.co/uhQAyKvesx)
+> — Lin Wood (@LLinWood) [November 30, 2020](https://twitter.com/LLinWood/status/1333203825960898561?ref_src=twsrc%5Etfw)
+
+
+
+林伍德说: “我选择不使用人为操纵的投票机和虚假邮件投票在另一场欺诈性选举中投票。这个国家的未来将不会由欺诈性选举决定。这与选举无关。 这是一场推翻我们政府的‘颜色革命’。”
+
+他说，美国人必须面对真相: “颜色革命”始于中共利用中共病毒对我们国家的攻击。然后是在各个城市的无法无天和骚乱。接着计划并进行明显的欺诈性选举。下一步将是增加城市暴力。
+
+林伍德相信: “川普总统已做好准备。 我们也必须如此。”
+
+
+
+> TRUTH:
+> 
+> Color revolution began with China’s attack on our country with Covid-19.
+> 
+> Then came lawlessness & riots in various cities.
+> 
+> Then planned & clearly fraudulent election.
+> 
+> Next step will be increased violence in cities.
+> 
+> I believe President Trump is prepared. We must be too.
+> — Lin Wood (@LLinWood) [November 30, 2020](https://twitter.com/LLinWood/status/1333206109704818688?ref_src=twsrc%5Etfw)
+
+
+
+他指控，在乔治亚洲，外来势力通过操纵多米尼投票系统，通过腐化控制州长和州务卿来干涉美国大选
+
+
+
+> Dominion + Kemp + Raffensperger = Foreign Interference With U.S. Election.
+> 
+> Do you think lawyers for [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw) & [@GaSecofState](https://twitter.com/GaSecofState?ref_src=twsrc%5Etfw) are advising clients on potential prison terms or is it just me?[#FightBack](https://twitter.com/hashtag/FightBack?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/FFigOREYF6](https://t.co/FFigOREYF6)
+> — Lin Wood (@LLinWood) [November 30, 2020](https://twitter.com/LLinWood/status/1333284816935129088?ref_src=twsrc%5Etfw)
+
+
+
+林伍德还特别提醒人们仔细阅读2018年9月12日发布的“在外国干预美国大选时实施某些制裁的行政命令”。暗示美国对此早有准备，将使用该行政命令作为武器进行反击。
+
+他还鼓励人们: “相信政府中有诚实的男人和女人，像川普总统一样热爱美国和法治。正义即将来临。”
+
+
+
+> Good morning. 
+> 
+> Today is a good day for Patriots to carefully read this September 2018 Executive Order. And then be confident that we have honest men & women in our government who, like [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw), love America & the rule of law.
+> 
+> Justice is coming.[https://t.co/SvVoMp7yAY](https://t.co/SvVoMp7yAY)
+> — Lin Wood (@LLinWood) [November 30, 2020](https://twitter.com/LLinWood/status/1333408374764015619?ref_src=twsrc%5Etfw)
+
+
+
+林伍德的这一系列推文表明:
+
+首先，美国将定义中共病毒为来自中共的生化武器;
+
+第二，美国把中共的攻击定义为“颜色革命”;
+
+第三，美国已掌握中共投毒，资助，组织骚乱，蓝金黄美国官员，操纵美国大选的证据;
+
+第四，美国已获知中共未来的破坏计划;
+
+第五，美国已做好准备进行反击，“正义即将来临”。恐怕中共也即将迎来末日。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221622/PHOTO-2020-11-26-13-19-21.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0
