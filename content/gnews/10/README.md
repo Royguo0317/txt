@@ -1,21 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/11/19-20 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/603220/)
+## 200日无本土确诊！美网多方打听想移居台湾
+` GM10` [轉載自GNews](https://gnews.org/zh-hans/602452/)
 
-战友之家图文摘要及多语组
+有美国PTT之称的《Reddit》论坛，近日有网友发文表示，他已经成功迁移到台湾，且在台湾已经创下200日没有本土新冠肺炎确诊桉例的纪录，这裡生活一切正常，还可以举办上千人的演唱会活动。
 
-[299-300\_English\_1119-1120\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222924/299-300_English_1119-1120_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222924/299-300_English_1119-1120_CCP_Virus_Updates_.pdf)
+原PO也提到，身边朋友都认为在疫情之下，全球入境管制都相当严格，但其实有一个简单的审核方法，就能在疫情期间从美国移居台湾，并分享这篇指南给有需要的网友参考。
 
-[299-300\_French\_1119-1120\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222926/299-300_French_1119-1120_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222926/299-300_French_1119-1120_CCP_Virus_Updates_.pdf)
+原PO透露，自己是透过2018年创建的「就业金卡」签证来台，申请门槛较低，只要符合3年内的月薪，或平均薪资达到5600美元（约新台币16万元）就可以申请。不过当时为了在海外使馆领取就业金卡，还多等上一个月的时间，他在8月4日申请，并于10月31日领到就业金卡，最后在11月22日抵达台湾；但若希望快点到达台湾，则可以选择来台湾再领取就业金卡。
 
-[299-300\_German\_1119-1120\_CCP\_Virus\_Updates\_\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222925/299-300_German_1119-1120_CCP_Virus_Updates__.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222925/299-300_German_1119-1120_CCP_Virus_Updates__.pdf)
+文章一出，随即引发热烈回响，许多网友们看完感到心动不已，却有多数网友认为门槛仍相当高。
 
-[299-300\_Japanese\_1119-1120\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222925/299-300_Japanese_1119-1120_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222925/299-300_Japanese_1119-1120_CCP_Virus_Updates_.pdf)
-
-[299-300\_Korean\_1119-1120\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222926/299-300_Korean_1119-1120_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222926/299-300_Korean_1119-1120_CCP_Virus_Updates_.pdf)
-
-[299-300\_Spanish\_1119-1120\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222924/Spanish-299-300_Spanish_1119-1120_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222924/Spanish-299-300_Spanish_1119-1120_CCP_Virus_Updates_.pdf)
+新闻链接：[https://today.line.me/tw/v2/article/XRn1eZ?utm\_source=copyshare](https://today.line.me/tw/v2/article/XRn1eZ?utm_source=copyshare)
 
 0

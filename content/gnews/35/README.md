@@ -1,52 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》重磅：“中概股全部退市”预言即将兑现，林正月娥领取现金工资也违法
-` GM127` [轉載自GNews](https://gnews.org/zh-hans/602729/)
+## 号外! 欧盟宣布将使用马格尼茨基式法制裁侵犯人权者
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/602818/)
 
-[视频来源](https://www.youtube.com/watch?v=1STjDFxxjjw)
-《路德时评》2020年11月29日早间节目主要内容：众议院将就限制在美上市中国公司的法案进行表决，“中概股全部退市”预言即将兑现；林正月娥（Carrie Lam Cheng Yuet-ngor）领取现金工资也违法。
+*新闻来源：《卫报》(The Guardian)；作者：丹尼尔·博菲 (Daniel Boffey)；发布时间：2020年11月 27日*
 
-一、中共在美上市企业即将被全部清理
+*翻译/简评：Dreamer文童；校对/审核：TCC；Page：拱卒*
+[!\[\]()!\[\](https://spark.adobe.com/page/EC3WaAhLwE8Kg/images/31466fd4-f608-4dfd-9cf1-8a0013cd0fcd.jpg?asset_id=2282b1d6-5d86-4438-b928-777ce0409448&amp;img_etag=%221b133255a83667629c3e4b70d7f3d41f%22&amp;size=1024)](https://spark.adobe.com/page/EC3WaAhLwE8Kg/images/31466fd4-f608-4dfd-9cf1-8a0013cd0fcd.jpg?asset_id=2282b1d6-5d86-4438-b928-777ce0409448&amp;img_etag=%221b133255a83667629c3e4b70d7f3d41f%22&amp;size=1024)
+**简评：**
 
-《Bloomberg》11月29日新闻报道[1]：众议院将就限制在美上市中国公司的法案进行表决，该立法将对在美国证券交易所上市的中国公司施加限制，包括要求证明其不受外国政府控制。该法案的提案方表示：这样做的目的是确保在美国交易的外国公司受到与美国公司相同的独立审计要求的约束。这样做会威胁到将包括阿里巴巴集团控股有限公司和百度公司等庞然大物在内的中国公司赶出美国股市。除此之外，五月份参议院已通过类似措施的法案，白宫和美国证券交易委员会也瞄准了中国公司。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29131011/Lude_20201129_AM-figure1.png)[图片地址](https://www.bloomberg.com/news/articles/2020-11-28/house-will-vote-on-bill-restricting-chinese-firms-listed-in-u-s)
-针对该新闻的分析如下：
+2012年，美国版的《马格尼茨基法案》（Magnitsky Act），对将俄罗斯税务律师谢尔盖·马格尼茨基（Sergei Magnitsky）迫害至死的俄罗斯官员实施制裁。该法案设立的目的是制裁那些严重侵犯和践踏人权的人士，对他们的财产予以冻结，并要求他们必须遵守旅行禁令。近日，欧盟成员国通过临时欧洲版的《马格尼茨基法案》（Magnitsky Act），并将于下月正式实施制裁措施。
 
-1. 一旦该法案通过，包括阿里巴巴、百度在内的中国公司将被赶出美国股市；
-2. 此次会议将在周三召开，进行流程简化，不需要众议院进行辩论，不做任何修改直接进行通票，三分之二成员批准就能通过，美国已醒悟要尽快对中共采取一系列的行动，先将法律漏洞补上；
-3. 此前美国监管机构无权对在美上市的中国企业进行审计，因为美国联邦法有一项条款：要尊重当地的法律；而中国针对此款也专门颁布一条法律：外国审计机构不能对中国当地公司进行审计。因此，在美上市的中国企业只需向美国提交财务报表，即使有造假也不接受审计；
-4. 中概股企业就是通过虚造财务报表拉抬股价，从而在美国股市圈钱，瑞幸咖啡财务造假案为此法案通过提供罪证支持；
-5. 此法案一旦通过，大量曾为中概股企业提供会计和审计服务的公司将被牵扯；
-6. 若要继续上市只能接受美国监管部门对该公司过往三年的实际情况进行审计，公司销售、利润、成本、税务等各方面都将面临严格审查；
-7. 除了接受审计，还要证明该公司不受外国政府控制（有罪定论），这就难上加难，这些上市的中国企业基本都设有党支部，一旦这些公司被证实已被中共政府控制，同时又无法还上从股市欺骗的资金，这无疑将坐实中共利用行政手段到美国诈骗的罪行；
-8. 若坐实中共利用行政手段到美国诈骗的罪行，那中共的外汇储备、资产都将被美国查封，脱钩也就不远了；
-9. 要特别关注此法案通过的时间点，以及为何该法案要快速通过，参众两院背后的各方势力已经达成共识，要全面围剿中共，这将彻底掐死华尔街和中共的勾兑；
-10. 10.美国一旦通过此法律，英、澳、加等发达国家也将跟上行动，中共将被迫偿还大量资金，这些企业此前套现的现金都将被追回。
+今年7月，美国财政部宣布制裁四名严重迫害新疆人人权的中共国官员，法律依据的就是《马格尼茨基法案》（Magnitsky Act）。同时期，英国政府也开始考虑通过该法案制裁包括林郑月娥在内的香港官员，因为他们在“反送中”运动中对港人进行了残酷镇压。
 
+有趣的是，文中提及被俄罗斯国内间谍投毒的该国反对派领袖阿列克谢·纳瓦尔尼（Alexei Navalny）告诉欧洲议会外国事务委员会，”欧盟的制裁应针对他的超级富豪同胞们，而不是那些直接参与试图谋杀他的人。”这与我们所说的中共不等于中国，大部分中共党员是奉命行事，应该针对那些中共家族是有异曲同工之妙。只要是与中共为伍，压迫残害中国老百姓的官员，将来必定成为过街老鼠，在国际社会遭人人喊打。
 
-二、林正月娥（Carrie Lam Cheng Yuet-ngor）即使收港府的现金工资也违反美国制裁令
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29130949/2020-11-26T125908Z_983940833_RC20BK9427UG_RTRMADP_3_HONGKONG-SECURITY-EDUCATION-scaled.jpg)[图片来源](https://www.reutersconnect.com/)
-《法国国际广播电台》11月27日报道[2]：香港特首林郑月娥最新接受香港国际财经台（HKIBC）专访时被记者问到，她在遭美国政府制裁后是否有带来不便。林郑月娥透露指，因受美国制裁，要停用银行账户，港府用现金出粮给她，并称有成堆的现金在家。不过，她说因为维护国家安全而受制裁是荣幸。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29131002/Lude_20201129_AM-figure2.png)[图片地址](https://www.rfi.fr/cn/%E6%B8%AF%E6%BE%B3%E5%8F%B0/20201127-%E6%9E%97%E9%83%91%E6%89%BF%E8%AE%A4%E5%8F%97%E7%BE%8E%E5%88%B6%E8%A3%81%E6%97%A0%E9%93%B6%E8%A1%8C%E6%9C%8D%E5%8A%A1-%E6%94%B9%E7%8E%B0%E9%87%91%E5%87%BA%E7%B2%AE-%E5%AE%B6%E4%B8%AD%E7%8E%B0%E9%87%91%E6%88%90%E5%A0%86)
-路德社对此新闻的分析如下：
+**原文翻译：**
 
-1. 此新闻验证路德社此前分析：只要被制裁，所有金融机构不可能向他们提供任何服务；
-2. 此前路德社在节目还提到：香港政府也不准向林正支付现金。美国联邦金融机构监管规定：只要与美金挂钩的货币或与美国金融机构进行交易就必须遵守规定，港币与美金是联系汇率，香港也必须遵守美国的规则要求；
-3. 港币本身就是金融产品，而美国的制裁令规定：禁止所有金融机构为林正月娥提供金融服务，那香港政府就违反美国此项制裁规定；
-4. 香港政府支付给林正的港币必定是从某银行支取，这也违法美国制裁令，也将被美国政府制裁；
-5. 未来只要美国展开调查，香港金融机构就必须配合，要查清是哪家税务局造表让林正月娥提走工资，以及是哪个工作人员前往提款，这些都将被查清和制裁；
-6. 林正接受此次采访意味着她主动承认有上诉违法美国制裁令的行为，这件事未来一定会持续发酵，美国政府绝对会采取行动。
+## **号外! 欧盟宣布将使用马格尼茨基式法制裁侵犯人权者**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29130933/Lude_20201129_AM-figure3-scaled.jpg)图片来源：[Macau Photo Agency](https://unsplash.com/@macauphotoagency?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/hong-kong-dollar?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText)
-美国大选舞弊案已让各大利益集团彻底看清中共的邪恶，接下来所采取的一系列行动都将直击中共要害。
+### **临时批准的法案将允许欧盟冻结财产并实施旅行禁令**
 
-参考文章：
+[!\[\]()!\[\](https://spark.adobe.com/page/EC3WaAhLwE8Kg/images/c657fff7-ce30-49f7-9db9-29c7b6f6999b.jpg?asset_id=9e27974e-cb4c-4540-a996-286dec13d094&amp;img_etag=%226cb5924abc3958b62a20c1a999b7eb89%22&amp;size=2560)](https://spark.adobe.com/page/EC3WaAhLwE8Kg/images/c657fff7-ce30-49f7-9db9-29c7b6f6999b.jpg?asset_id=9e27974e-cb4c-4540-a996-286dec13d094&amp;img_etag=%226cb5924abc3958b62a20c1a999b7eb89%22&amp;size=1024)EPA欧盟目前无权对个人实施旅行禁令，因为权限在各国政府。照片：Stéphanie Lecocq/EPA
 
-[1] [https://www.bloomberg.com/news/articles/2020-11-28/house-will-vote-on-bill-restricting-chinese-firms-listed-in-u-s](https://www.bloomberg.com/news/articles/2020-11-28/house-will-vote-on-bill-restricting-chinese-firms-listed-in-u-s)
+在欧盟成员国临时批准《欧洲马格尼茨基法案》后，欧盟将从下月开始行使权力，对参与侵犯人权的个人实施财产冻结和旅行禁令。
 
-[2] [https://www.rfi.fr/cn/%E6%B8%AF%E6%BE%B3%E5%8F%B0/20201127-%E6%9E%97%E9%83%91%E6%89%BF%E8%AE%A4%E5%8F%97%E7%BE%8E%E5%88%B6%E8%A3%81%E6%97%A0%E9%93%B6%E8%A1%8C%E6%9C%8D%E5%8A%A1-%E6%94%B9%E7%8E%B0%E9%87%91%E5%87%BA%E7%B2%AE-%E5%AE%B6%E4%B8%AD%E7%8E%B0%E9%87%91%E6%88%90%E5%A0%86](https://www.rfi.fr/cn/%E6%B8%AF%E6%BE%B3%E5%8F%B0/20201127-%E6%9E%97%E9%83%91%E6%89%BF%E8%AE%A4%E5%8F%97%E7%BE%8E%E5%88%B6%E8%A3%81%E6%97%A0%E9%93%B6%E8%A1%8C%E6%9C%8D%E5%8A%A1-%E6%94%B9%E7%8E%B0%E9%87%91%E5%87%BA%E7%B2%AE-%E5%AE%B6%E4%B8%AD%E7%8E%B0%E9%87%91%E6%88%90%E5%A0%86)
+这些限制性措施将于12月10日（人权日）被正式签署，以纪念《世界人权宣言》77周年。这些措施将针对参与种族灭绝、酷刑、任意逮捕或拘留等罪行的人士。
 
-文章撰写：【重生】    编辑：【Isaiah4031】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22111053/VOG-Rose-Garden-Team.png)
-1+
+《卫报》获得的一份泄露出来此决定的副本显示，该法案“为所针对的限制性措施建立了一个框架，以解决全球范围内严重侵犯和践踏人权的问题”。
+
+欧盟目前无权对个人实施旅行禁令，因为权限在各国政府，并且欧盟其他的制裁权力有地域针对性。
+
+去年11月，在海牙议会通过一项决议后，荷兰政府发起针对欧盟制定自己版本的《美国马格尼茨基法案》的讨论，
+
+巴拉克·奥巴马（Barack Obama）在2012年签署的原版美国法案，旨在针对被认为对俄罗斯税务律师谢尔盖·马格尼茨基（Sergei Magnitsky）之死负责的俄罗斯官员。
+
+马格尼茨基（Magnitsky）是一名莫斯科律师和税务审计师，受雇调查一起腐败案件，在这起案件中，一群内政部官员通过欺诈性接管属于资产管理公司赫尔蒂奇资本（Hermitage Capital）的三家公司，並设法从俄罗斯收取2.3亿美元的回扣。
+
+他所指控的官员将其逮捕入狱，他在监狱里遭到狱警殴打。在医疗和家人探视遭拒后，他在2009年拘留期间死亡，年仅37岁。
+
+欧洲议会多次呼吁欧盟正式通过类似美国所颁布的立法，允许欧盟不分国籍地针对个人。
+[!\[\]()!\[\](https://spark.adobe.com/page/EC3WaAhLwE8Kg/images/929be06c-ce15-4b8a-abbf-8bb7cb975115.jpg?asset_id=0f27291f-812e-4232-ac47-bfd052613c47&amp;img_etag=%22a8bf48f001bfa98df354a2d5ffe946d5%22&amp;size=1024)](https://spark.adobe.com/page/EC3WaAhLwE8Kg/images/929be06c-ce15-4b8a-abbf-8bb7cb975115.jpg?asset_id=0f27291f-812e-4232-ac47-bfd052613c47&amp;img_etag=%22a8bf48f001bfa98df354a2d5ffe946d5%22&amp;size=1024)
+北欧理事会（Nordic Council）八个成员国，丹麦、芬兰、冰岛、瑞典、挪威、法罗群岛、格陵兰和奥兰，曾表示如果欧盟不同意，他们将正式通过他们自己的法案。
+
+与俄罗斯接壤的拉脱维亚、立陶宛和爱沙尼亚已有这样的立法。
+
+2018年，英国议会通过了《制裁和反洗钱法案》的马格尼茨基修正案，授予政府对严重侵犯人权的人士进行制裁的权力。
+
+(今年)7月，英国外交大臣多米尼克·拉布（Dominic Raab）首次使用该权力，宣布制裁49名个人和组织，其中包括25名俄罗斯人，从政府官员到监狱医生，以及普京的亲密盟友莫斯科最高检察官亚历山大·巴斯特金（Alexander Bastrykin）。
+
+在荷兰政府游说下，欧盟框架未采用马格尼茨基（Magnitsky）的名字，荷兰政府认为任何特定国家都不应感到被针对。弗拉基米尔·普京（Vladimir Putin）曾被美国的法案激怒，以至于他禁止美国人收养俄罗斯儿童。
+
+被认为已被俄罗斯国内间谍投毒的该国反对派领袖阿列克谢·纳瓦尔尼（Alexei Navalny）告诉欧洲议会外国事务委员会，欧盟的制裁应针对他的超级富豪同胞们，而不是那些直接参与试图谋杀他的人。
+
+他说，“制裁上校、将军，或一些绝不会经常到世界各地旅行、且在欧洲没有大量财产和银行账户的人，是没有意义的”。
+
+“主要问题是为什么这些人要毒杀和捏造选举，答案非常简单：金钱。欧盟应该针对金钱和俄罗斯寡头，不仅是老寡头，还有新寡头，普京先生的圈子”。
+
+“只针对俄罗斯寡头”。
+[!\[\]()!\[\](https://spark.adobe.com/page/EC3WaAhLwE8Kg/images/dec33745-04cd-4179-949d-78deeeed6955.png?asset_id=60fcd731-039f-4e29-93c1-0fd4ec604d0b&amp;img_etag=%2228e7dd4e22d214e831dcc3d09037245b%22&amp;size=1024)](https://spark.adobe.com/page/EC3WaAhLwE8Kg/images/dec33745-04cd-4179-949d-78deeeed6955.png?asset_id=60fcd731-039f-4e29-93c1-0fd4ec604d0b&amp;img_etag=%2228e7dd4e22d214e831dcc3d09037245b%22&amp;size=1024)
+每年的12月10日是人权日，2020年的人权日将是欧盟不同寻常的一天。
+
+周四，来自27个成员国的外交政策专家就新的欧盟人权制裁制度达成一致，并将于12月7日被各国部长正式批准，或者更加可能于12月10日通过书面程序。
+
+[原文链接](https://www.theguardian.com/world/2020/nov/27/eu-to-use-magnitsky-style-law-to-impose-sanctions-on-human-rights-abusers)
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/EC3WaAhLwE8Kg/)
+[!\[\]()!\[\](https://spark.adobe.com/page/EC3WaAhLwE8Kg/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/EC3WaAhLwE8Kg/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+0
