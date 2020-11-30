@@ -1,21 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/11/19-20 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/603220/)
+## 川普痛批法官对选举结果的裁定：“这是什么样的司法系统？！”
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/603375/)
 
-战友之家图文摘要及多语组
+英听校：康州盘古农场 – 小水滴，一花一世界
 
-[299-300\_English\_1119-1120\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222924/299-300_English_1119-1120_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222924/299-300_English_1119-1120_CCP_Virus_Updates_.pdf)
+翻译：康州盘古农场 – 小水滴
 
-[299-300\_French\_1119-1120\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222926/299-300_French_1119-1120_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222926/299-300_French_1119-1120_CCP_Virus_Updates_.pdf)
+翻译校对 : 康州盘古农场 – 一花一世界
 
-[299-300\_German\_1119-1120\_CCP\_Virus\_Updates\_\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222925/299-300_German_1119-1120_CCP_Virus_Updates__.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222925/299-300_German_1119-1120_CCP_Virus_Updates__.pdf)
+终校：康州盘古农场 – 烟波浩淼
 
-[299-300\_Japanese\_1119-1120\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222925/299-300_Japanese_1119-1120_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222925/299-300_Japanese_1119-1120_CCP_Virus_Updates_.pdf)
+字幕+视频制作：康州盘古农场 -小腾腾说
 
-[299-300\_Korean\_1119-1120\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222926/299-300_Korean_1119-1120_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222926/299-300_Korean_1119-1120_CCP_Virus_Updates_.pdf)
+审核：康州盘古农场-Truemanman
 
-[299-300\_Spanish\_1119-1120\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222924/Spanish-299-300_Spanish_1119-1120_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222924/Spanish-299-300_Spanish_1119-1120_CCP_Virus_Updates_.pdf)
 
-0
+
+川普总统在福克斯”周日早晨”节目中就选举诉讼的采访发言 ：
+
+
+[https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30012150/%E5%B7%9D%E6%99%AE%E7%97%9B%E6%89%B9%E6%B3%95%E5%AE%98%E5%AF%B9%E9%80%89%E4%B8%BE%E7%BB%93%E6%9E%9C%E7%9A%84%E8%A3%81%E5%AE%9A%EF%BC%9A%E8%BF%99%E6%98%AF%E4%BB%80%E4%B9%88%E6%A0%B7%E7%9A%84%E5%8F%B8%E6%B3%95%E7%B3%BB%E7%BB%9F%EF%BC%9F.mp4](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30012150/%E5%B7%9D%E6%99%AE%E7%97%9B%E6%89%B9%E6%B3%95%E5%AE%98%E5%AF%B9%E9%80%89%E4%B8%BE%E7%BB%93%E6%9E%9C%E7%9A%84%E8%A3%81%E5%AE%9A%EF%BC%9A%E8%BF%99%E6%98%AF%E4%BB%80%E4%B9%88%E6%A0%B7%E7%9A%84%E5%8F%B8%E6%B3%95%E7%B3%BB%E7%BB%9F%EF%BC%9F.mp4)
+
+
+我们所经历的事情令人难以置信，但是我们不被允许提交证据，他们说我们没有法律资格，我说我想向律师提起诉讼，我想提交一个很棒的，大型且精彩的诉讼，谈到这次和其它多个诉讼一样，我们有充分的证据，我们有宣誓证人，我们有成百上千的宣誓证人，就像您那天在宾夕法尼亚州看到的宣誓证人一样，他们愿意宣誓，在如有伪证将受处罚的条件下签字，如作伪证，将入狱，（他们）愿意签字。这与科米（Comey，前联邦调查局局长）不一样，他没有因为撒谎而入狱，顺便提一下， 麦卡比（McCabe，现联邦调查局代理局长）， 也没有因为撒谎而入狱。这对我来说是一件很不可思议的事情。我们不妨重申一下，只要作伪证，您会因此入狱。
+
+我们有几百个宣誓证人，马上快到几千个人了，不停有人赶过来，他们令人尊重，这些人不顾将自己的生命置于危险之中 ，他们（法官）却不愿接受这些证人。
+
+他们说我们没有证据，我想提交一个诉讼，美国总统唐纳德·川普的诉讼，想把这一切置于一个简单的诉讼之下，然而他们说，先生，您没有法律资格，作为美国总统，我没有资格？这是一个什么样的司法系统？！
+
+原视频链接:[https://video.foxnews.com/v/6212917717001?playlist\_id=3386055101001#sp=show-clips](https://video.foxnews.com/v/6212917717001?playlist_id=3386055101001#sp=show-clips)
+
+
+
+1+

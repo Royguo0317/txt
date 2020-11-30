@@ -1,52 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【重磅】！美国空军中将托马斯·麦金纳尼在接受WVWtv采访中爆出重要信息
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/603028/)
+## 〖热点播报〗强烈的反击信号：林伍德指责“中共用病毒攻击美国”和弗林指控“中共支持针对川普的政变”
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/603148/)
 
-视频字幕：塔奇克马；听写翻译：势不可挡；校正： TCC；
-
-简评/组稿编辑：Julia Win；Page：拱卒
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29195616/1-29-1.jpeg)
-
-**简评：**
-
-美国空军中将托马斯·麦金纳尼将军在接受WVWtv采访中爆料：弗林（Flynn）将军与305军事情报部的“大海怪克拉肯（Kraken）”组织合作, 确定了中共国、伊朗和俄罗斯正在参与并操控美国大选!并说：“司法部、联邦调查局或中情局没有站在正义一边，而是站在了影子政府一边。”
-
-川普总统于感恩节前宣布赦免弗林将军，不仅仅使“他及他美好的家庭将有一个真正的梦幻般的感恩节!”也使对弗林将军通俄门的刑事起诉失效、摆脱了陷害、全心投入对影子政府的战斗中！
-
-![圖片](https://pbs.twimg.com/media/En5EBqGUUAEOB9n?format=jpg&amp;name=medium)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/24223314/logo-3-1.jpg)
 
 
 
-**视频翻译：**
+作者：香草山写作组 文贵天成 光明(整理编辑)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29215441/WhatsApp-Image-2020-11-30-at-09.49.13.jpeg)
+2020年11月28日的两则消息显示，川普已经做好全面反击中共的准备
+第一则：川普的第一任国安顾问弗林将军，在被川普总统赦免后的首次公开讲话中说：反对势力对川普总统发动了政变，是中共在支持这个政变。
+之前，民主党对弗林发动了持续三年多的“通俄门”调查，川普最近以无罪赦免了弗林，弗林可以彻底从法院和司法部的官司中解脱出来，继续担任公职，表明川普已经摆脱被动局面。
+第二则：林伍德大律师第二次直指中共，他说：真相是，中共发起对美国的颜色革命，中共对美国发动了Covid-19病毒的攻击；中共制造了美国各个城市的无法无天和骚乱；中共策划并实施了对美国大选的欺诈性选举；中共下一步是计划增加美国城市暴乱。我相信川普总统已做好应对准备。，我们必须做好一切准备！
+郭文贵先生曾说，如果川普把病毒来源说破了，就到了必须发动战争的时候。现在由两位焦点人物林伍德和弗林，把中共对美国发动病毒攻击，支持政变，干预大选，策动暴乱等全部摆到台面进行公开指证，证明川普已然做好了对中共发起全面反击的准备，终极之战的脚步声已经轰鸣而至。
 
-**麦金纳尼：**从西德尼（Sidney）和川普总统那里，我们可以相信弗林（Flynn）将军，与305军事情报部的“大海怪克拉肯（Kraken）”组织合作。因为在所有行动中，我们并没有看到司法部、联邦调查局或中情局的任何足迹。他们没有站在正义一边，而是站在了影子政府一边。
+弗林将军的采访链接：
 
-**汤姆：**将军，让我打断你一下，因为你刚才说的听起来很有趣。你刚刚说谁释放了“大海怪克拉肯”，然后你描述了“大海怪克拉肯”是什么。
+[https://www.worldviewweekend.com/tv/video/wvw-tv-exclusive-lt-general-michael-flynns-first-interview-president-trumps-pardon](https://www.worldviewweekend.com/tv/video/wvw-tv-exclusive-lt-general-michael-flynns-first-interview-president-trumps-pardon)
 
-我们都知道这个词是因为西德尼·鲍威尔使用了它。但是你刚刚说了它具体是什么。你能重复一下吗？
+审核：浪迹天涯
 
-**麦金纳尼：**是的，西德尼之所以使用“大海怪(Kraken)”一词，因为这是第305军事情报部的绰号。这就是她的消息来源，还有其他我和玛丽（国家安全记者）知道的消息来源，但我们不想深入谈论这个。对此我们有不同消息来源证实。但重要的是，通过“大海怪克拉肯”，他们确定了中共国，伊朗和俄罗斯正在参与其中并操控选票。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-此外，美国特种作战司令部在德国法兰克福缴获了一家伺服器公司，因为他们将美国五个或六个州的投票资料通过互联网发送到西班牙，然后再发送到德国法兰克福。
-
-【**备注】：**
-
-- 汤玛斯·麦金纳尼（Mcinerney）美国空军中将。
-- 迈克·弗林（Michael·Flynn）将军，是第111军事情报旅的著名指挥官。第305军事情报部和第111军事情报旅都位于亚利桑那州瓦丘卡堡（Fort Huachuca）。
-- “大海怪克拉肯(Kraken)”一词，是第305军事情报部的绰号。
-
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】-点击spark adobe版
-
-[![](https://spark.adobe.com/page/EC3WaAhLwE8Kg/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/EC3WaAhLwE8Kg/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/24223314/logo-3-1.jpg)
 0

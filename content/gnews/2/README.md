@@ -1,40 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 罗斯柴尔德家族拥有的法国巴黎银行着火
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/603714/)
+## 赵立坚发推造谣澳士兵屠杀阿富汗小孩，澳总理莫里森怒斥其让中国蒙羞
+` GM101` [轉載自GNews](https://gnews.org/zh-hans/603822/)
 
-整撰：文錦
-复核：文非
+北京时间11月30号，中共国外交部新闻部发言人兼副总干事赵立坚通过社交媒体中国政府推特账户，发表了一张关于澳大利亚士兵屠杀阿富汗小孩的推图片，并附带文字说明表示震惊于澳大利亚士兵杀害阿富汗平民和囚犯，我们（中共国）强烈谴责此类行为，并要求追究其责任。
 
-29日，一些蒙面人放火焚烧作为国家象征之一的法兰西银行大楼，而消防员则努力通过被警察围栏，临时路障和焚烧垃圾所阻挡的街道到达现场。
+该推文图片为一名澳大利亚士兵微笑着坐在坐在澳大利亚国旗上，士兵拿着刀子扎在孩子的喉咙上，小孩的鲜血洒在了国旗上。据美国CNBC(全球首创)报道，该图片被证实经过篡改而成。
+![](https://gnews.org/329984df-6cd0-420a-b1fd-56b44cf87f4a)
+澳大利亚总理莫里森对此感到震惊，他公开表示该推文对每个澳大利亚人，包括澳大利亚国防军过去和现在的成员，都具有“深度攻势”。已与推特联系立即将该推文删除，并要求中共国政府道歉。莫里森同时表示中共国政府应该为这个职位（赵立坚外交官）感到完全羞愧。
 
-
-
-> Certains individus masqués ont mis le feu au bâtiment de la Banque de France, un des symboles de l'État. [#28novembre](https://twitter.com/hashtag/28novembre?src=hash&amp;ref_src=twsrc%5Etfw) [#MarcheDesLibertes](https://twitter.com/hashtag/MarcheDesLibertes?src=hash&amp;ref_src=twsrc%5Etfw) [#StopLoiSecuriteGlobale](https://twitter.com/hashtag/StopLoiSecuriteGlobale?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/7nJUk3KMAK](https://t.co/7nJUk3KMAK)
-> — Nadège Abderrazak (@Nadege\_RTFrance) [November 28, 2020](https://twitter.com/Nadege_RTFrance/status/1332737696414851072?ref_src=twsrc%5Etfw)
-
-
-
-近期，法国许多大城市组织了抗议活动，包括巴黎，马赛，里昂，布雷斯特和尼斯，尽管有人对Covid-19表示担忧，但仍有数千人参加。主要活动发生在首都的共和国广场一带。
-
-抗议活动是由工会组织的，但他们有许多支持者。黄背心运动是由日益严重的社会和经济不平等现象引发的，而且几个月来一直是马克龙总统的主要问题。
-
-而抗议活动的升级则是源于一项有争议的关于公共安全的法律草案，根据该草案，对执勤警官进行拍摄可能会处以巨额罚款。为什么这项拟议的法律引起了如此大的愤怒？因为本周在网上泄露出一条法国警察殴打和种族虐待黑人音乐制作人Michel Zecler的视频。21日，因为没有戴面罩Michel在返回工作室时遭到三名警察的尾随，并对其施暴和关押。
-
-
-
-> Une pluie de coups et des mensonges : retour sur le passage à tabac du producteur de musique Michel Zecler par trois policiers [https://t.co/gRH0vSnLcn](https://t.co/gRH0vSnLcn) via [@lemondefr](https://twitter.com/lemondefr?ref_src=twsrc%5Etfw)
-> — maryline baumard (@marylinebaumard) [November 27, 2020](https://twitter.com/marylinebaumard/status/1332360162435272705?ref_src=twsrc%5Etfw)
-
-
-
-而对本周议会下院批准了这项公共安全法草案，示威者表示极大的愤怒。该条款背后的理由是，要保护警队成员免受诋毁和网络骚扰，对违抗者将处以45,000欧元（53,450美元）甚至一年的监禁。批评人士说，这条法案限制了新闻自由，将被用来威吓那些想揭露警察的野蛮行为和其他形式的不当行为的人。
-
-29日，巴黎陷入混乱，多个城市在大规模抗议警察暴行的活动中出现了暴力冲突和纵火。警察调配催泪瓦斯，闪光灯和水炮。虽然尚不清楚冲突中有多少名抗议者受伤，但当地媒体报道说，法国全国至少有37名警察受伤，至少逮捕了46名示威者。
-
-参考链接：
-[https://www.rt.com/news/508106-france-protest-filming-police/](https://www.rt.com/news/508106-france-protest-filming-police/)
-[https://www.lemonde.fr/societe/article/2020/11/27/interpellation-d-un-producteur-de-musique-une-pluie-de-coups-et-de-mensonges\_6061286\_3224.html](https://www.lemonde.fr/societe/article/2020/11/27/interpellation-d-un-producteur-de-musique-une-pluie-de-coups-et-de-mensonges_6061286_3224.html)
+疫情初期，澳大利亚呼吁世界就新冠病毒应对中共国进行国际调查，激怒了中共独裁政权。随着闫丽梦博士的病毒报告揭露新冠病毒是中共军方研发的“超限生物武器”、中共操控美国大选等阴损招数被拆穿，中共恼羞成怒使用阴招抹黑五眼联盟之一的澳大利亚。
 
 0

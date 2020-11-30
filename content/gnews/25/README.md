@@ -1,111 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 赞扬中共脱贫向中共下跪的莫里森要求赵立坚道歉的照片啥来头
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/603484/)
+## 独家：川普将把中国的中芯国际和中海油列入国防黑名单-消息人士称
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/603736/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003627/%E5%B0%81%E9%9D%A2-119.jpg)
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+翻译：康州盘古农场 – Mike Li
 
-据[**环球时报**](https://weibo.com/huanqiushibaoguanwei) [2020年11月30日11：34](https://weibo.com/1974576991/Jwh9EenQy?from=page_1002061974576991_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0) 已编辑
+校对+评语：康州盘古农场 – 轰炸机
 
-【快讯：澳大利亚总理莫里森要求中国道歉】据澳大利亚天空新闻台报道，澳大利亚总理斯科特·莫里森要求中国正式道歉，理由是中方“发布和伪造一名澳大利亚士兵割喉儿童的宣传图”。
+编辑：康州盘古农场 – Rose
 
-莫里森在新闻发布会上说：“这完全是令人发指的，在任何基础上都是站不住脚的……中国政府应该为这一帖子的发布而感到羞愧，这贬低了在世人眼中的他们的形象。”他还称，世界各国都在关注北京如何应对澳大利亚与中国关系中的紧张局势。
+Alexandra Alper、Humeyra Pamuk报道
 
-莫里森称，澳大利亚方面正在寻求推特删除赵立坚30日发布这张“令人反感”的图片。 此前，中国外交部发言人赵立坚敦促澳洲对最近的战争罪指控进行调查，并在推文中引用了画家[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at) 的讽刺漫画，漫画中一名澳大利亚士兵用刀抵着一名儿童的喉咙，上面还配有文字“不要害怕，我们来给你们带来和平”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30004236/0029D7FZly1gl71hj3rvhj60dc09l74u02.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003527/0029D7FZly1gl71hiymvtj60fm0fhgn202-1.jpg)
-这幅照片见于[Lijian Zhao 赵立坚](https://twitter.com/zlj517)[@zlj517于](https://twitter.com/zlj517)[2020年11月30日9：02](https://twitter.com/zlj517/status/1333214766806888448)发布的推文：
+华盛顿（路透社）-根据一份文件和消息人士透露，美国川普政府准备将中国龙头芯片制造商中芯国际集成电路制造有限公司和中国海洋石油有限公司列入涉嫌中国军工企业的制裁黑名单，遏制它们从美国获得的投资，这使得在胜选的拜登总统上任前，把美国与北京的紧张关系再次升级。
 
-[China government account](https://help.twitter.com/rules-and-policies/state-affiliated-china)
+路透社本月稍早报道称，美国防部（DOD）正计划再认定四家中资公司为中国军方所有或控制，使受影响的中国公司数量达到35家。美国总统川普最近发布的一项行政命令将从明年年底开始阻止美国投资者购买这些企业的证券。
 
-Shocked by murder of Afghan civilians & prisoners by Australian soldiers. We strongly condemn such acts, &call for holding them accountable.
+暂时不清楚新的名单何时在美国联邦政府官报(Federal Register)中公布。但据这份文件和三位消息人士指出，该名单还包括中国建设科技有限公司和中国国际工程咨询公司，此外还有中芯国际集成电路有限公司（SMIC）和中国海洋石油总公司（CNOOC）。
 
-震惊于澳大利亚士兵杀害阿富汗平民和囚犯。 我们强烈谴责此类行为，并要求追究其责任。
+中芯国际表示，它会继续 “与美国政府进行建设性和公开的接触”，其产品和服务仅用于民用和商业用途。”本公司与中国军方没有任何关系，也不为任何军事终端用户或终端用途生产。”
 
+目前国防部、中国驻华盛顿大使馆和中海油关于此事都没有回复。
 
+严重依赖美国供应商设备的中芯国际已经被华盛顿盯上了。9月，美国商务部在断定向中芯国际提供的设备可能被用于军事目的存在 “不可接受的风险 “后，通知一些公司在向中芯国际提供货物和服务前需要获得许可证。
 
-> Shocked by murder of Afghan civilians & prisoners by Australian soldiers. We strongly condemn such acts, &call for holding them accountable. [pic.twitter.com/GYOaucoL5D](https://t.co/GYOaucoL5D)
-> — Lijian Zhao 赵立坚 (@zlj517) [November 30, 2020](https://twitter.com/zlj517/status/1333214766806888448?ref_src=twsrc%5Etfw)
+此行动以及类似政策被看作是寻求强化即将离任的川普总统对中国的强硬立场，并在国会两党反共情绪中，将新任民主党人拜登框定在北京问题上的强硬立场。拜登竞选团队拒绝置评。
 
+这份名单也是针对北京试图用民营企业将新兴民用科技用于军事用途,而采取措施的一部分。
 
+路透社上周报道称，川普政府即将宣布89家中国航空航天和其他领域的企业与军方有关系，将限制他们购买一系列美国产品和技术。
 
-那么这幅照片来自哪里呢？在对图片进行历史消息查证后，可以看到以下轨迹——
+这份”中共军工公司 “名单是根据1999年的一项法律编制的，这项法律要求五角大楼编制一份中国人民解放军 “拥有或控制 “的公司目录，但国防部在2020年才执行。海康威视、中国电信和中国移动等巨头在今年早些时候被加入。
 
-1、[乌合麒麟](https://www.acfun.cn/u/39283340.aspx)于2020年11月24日发布的[和平之师](https://www.acfun.cn/a/ac20012868) ：
+路透率先报导，本月白宫发布行政令，从2021年11月起禁止美国投资者购买黑名单中企业发行的证券，寻求增强该名单的效力。
 
-以下为谷歌搜索索引——
+专家称，这一行政令不大可能对相关企业造成重大打击，因为其范围有限，拜登政府的立场存在不确定性，而且美国基金的持仓已经很少。
 
-[和平之师 – AcFunwww.acfun.cn*› …*](https://www.acfun.cn/a/ac20012868)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003626/21-5.jpg)
-3143 × 2000 · 6 天前 — 谁在呼叫车队： 回复@小姑娘的大叔: 我还以为是薅羊毛的意思，仔细看才发现刀上有血…… 还有6条回复&gt;. 全部评论. UP 狂拽酷霸吊炸天.
+不过再加上其他措施，这加深了美国和中共之间的裂痕。此前围绕中国处理新冠疫情和香港问题，中美之间已生罅隙。
 
-以下为[乌合麒麟](https://www.acfun.cn/u/39283340.aspx)于2020年11月24日发布的[和平之师](https://www.acfun.cn/a/ac20012868)的网络截图——
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003659/22-7.png)
-2、2020年11月26日澳大利亚《沃里克每日报》报道同内容并配同图片，但现在只有网络搜索索引，报道内容已经404，以下为搜索索引——
+国会和政府寻求进一步阻止不遵守与美企同等规定的中国企业进入美国市场，即使这意味着华尔街将因此受苦。
 
-### [曝光後，9名澳大利亞士兵先後死亡，疑畏罪自殺 …](https://www.google.com/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=web&amp;cd=&amp;cad=rja&amp;uact=8&amp;ved=2ahUKEwjsh_uhvKntAhWWeisKHR2VA-E4ChAWMAd6BAgIEAI&amp;url=http%3A%2F%2Fread01.com%2FAzQL3g0.html&amp;usg=AOvVaw14UlpClC5OFmmqJ8D25qw_)
+报道：Alexandra Alper Humeyra Pamuk；撰写：Alexandra Alper；华盛顿的Mike Stone和上海的Josh Horwitz进行了补充报道；编辑：Marguerita Choy和Christopher Cushing。
 
-[read01.com › 軍事](https://www.google.com/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=web&amp;cd=&amp;cad=rja&amp;uact=8&amp;ved=2ahUKEwjsh_uhvKntAhWWeisKHR2VA-E4ChAWMAd6BAgIEAI&amp;url=http%3A%2F%2Fread01.com%2FAzQL3g0.html&amp;usg=AOvVaw14UlpClC5OFmmqJ8D25qw_)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003626/21-5.jpg)
-640 × 406 · 4 天前 — 當地時間11月25日，據澳大利亞《沃里克每日報》報導，自澳大利亞軍對屠殺平民這一醜聞曝光之後，短短的三周時間內，已有9名現役或退伍的 …
+评：
 
-3、2020年11月30日9：02赵立坚用这幅照片发推并诬蔑澳大利亚士兵犯有战争罪行；
+此文章写的是在“拜登”当选前，川普推出此制裁政策会给拜登营造中美激烈对抗的环境，对华尔街及相关股市有极大的损害。
 
-4、澳大利亚总理要求中共道歉——30/11/2020|5min[Scott Morrison demands apology from China for doctored ADF propaganda](https://www.skynews.com.au/details/_6212968703001)，这则新闻的时间戳现在不清楚，但是我们可以通过[**环球时报**](https://weibo.com/huanqiushibaoguanwei) [2020年11月30日11：34](https://weibo.com/1974576991/Jwh9EenQy?from=page_1002061974576991_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0) 已编辑的发布时间判断莫里斯谴责的时间在2020年11月30日9：02至11：34之间。
+然而，目前拜登还未当选，其在大选中搞出众多舞弊行为，如“多米尼软件修改选票”，“死人投票”等，又在川普团队诉讼阶段中有“威胁法官”的行为，“中共硬盘门”勾兑的事件，这些事件都一再证明他没有资格当选。
 
-那么赵立坚上一次与莫里斯的隔空对战是在什么时间呢？据海客新闻2020年11月24日发布的[澳总理称没有哪个国家能像中国让这么多人脱贫 赵立坚明确回应](https://haokan.baidu.com/v?vid=8937323108235461716&amp;pd=bjh&amp;fr=bjhauthor&amp;type=video)，
+其次，对上面这些企业的制裁行为，短期看会影响美国经济、华尔街的业绩，更可能造成一些相关公司亏损倒闭。但是长远看，川普政府的制裁政策保护了美国的技术不被盗窃，保护了美国资金不流失，保护了美国金融不被操控，全局看，川普才是一位真正的爱国者、救国者。
 
-在2020年11月24日莫里森闪电对中共下跪，中共赵立坚闪电表扬，然后这么巧的是2020年11月24日[乌合麒麟](https://www.acfun.cn/u/39283340.aspx)于2020年11月24日发布了[和平之师](https://www.acfun.cn/a/ac20012868)，两天后的11月26日澳大利亚《沃里克每日报》发布同样内容的报道然后删除，11月24日的六天后赵立坚发布这条假照片，然后莫里森闪电抗议，然后环球时报闪电刊发消息，然后呢？
+最后，在中国有很多企业都有中共的血统，因为你们都知道，没有血统的企业在中国干不下去，他们赚着带“血”的钱，用偷来的技术，统治全中国人民，现在又打算统治全世界。
 
-然后是中共大外宣沈逸夸[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at) 干得漂亮
+支持川普制裁中共及相关企业，中共现在虽然掌权，但它不能代表全中国人民，因为它不是我们用选票选出来的，最终川普一定会当选，因为他是全美国人民选出来的。
 
-据[**沈逸**](https://weibo.com/shyfd?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2020年12月30日12：07](https://weibo.com/1157864602/JwhmVa0xr?ref=home&amp;rid=5_0_8_2867739836708379003_6_0_0) 来自 [HUAWEI Mate30 Pro 5G](https://app.weibo.com/t/feed/5rfh3P)
+原文链接：[https://www.reuters.com/article/us-usa-china-military-companies-exclusiv/exclusive-trump-to-add-chinas-smic-and-cnooc-to-defense-blacklist-sources-idUSKBN28A036?il=0](https://www.reuters.com/article/us-usa-china-military-companies-exclusiv/exclusive-trump-to-add-chinas-smic-and-cnooc-to-defense-blacklist-sources-idUSKBN28A036?il=0)
 
-[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at) 干得漂亮
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003802/23-2.png)
-那么[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at)的新浪微博是怎么说的呢？我们看到了这幅图片的最早发布时间——
-
-据[**乌合麒麟**](https://weibo.com/qilinshendian?refer_flag=1005055014_) [11月23日 20:47](https://weibo.com/1566936885/JvgMubTWg?from=page_1005051566936885_profile&amp;wvr=6&amp;mod=weibotime) 来自 [360安全浏览器](https://app.weibo.com/t/feed/1tqBja)
-
-“和平之师”  ​​​​
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003854/EoCHvHjVkAIWIMi.jpg)
-然后对于赵立坚的转推，[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at)是怎么说的呢？
-
-据[**乌合麒麟**](https://weibo.com/qilinshendian?refer_flag=1005055013_)[2020年11月30日10:16](https://weibo.com/1566936885/JwgDMh35J?from=page_1005051566936885_profile&amp;wvr=6&amp;mod=weibotime) 来自 [iPhone 7](https://app.weibo.com/t/feed/2J8wRB) 已编辑
-
-赵司威武！！抽他丫的！！给我破防！！！  ​​​​
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003920/32.png)
-然后对于莫里森的谴责[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at)是怎么评价的呢？
-
-据[**乌合麒麟**](https://weibo.com/qilinshendian?refer_flag=1005055013_) [2020年11月30日 11:20](https://weibo.com/1566936885/Jwh3YyY4t?from=page_1005051566936885_profile&amp;wvr=6&amp;mod=weibotime) 来自 [iPhone 7](https://app.weibo.com/t/feed/2J8wRB)
-
-听说老莫对我的图很有意见？ ​​​​
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30004001/30.png)
-至此我们大致可以看清中共这次网络超限战的脉络了——
-
-1、此次网络超限战参与者：[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at)、澳大利亚《沃里克每日报》、战狼赵立坚、澳大利亚总理莫里森、以环球时报为代表的中共媒体、以沈逸为代表的网络战斗人员；
-
-2、此次网络超限战时间线：
-
-第一步：[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at)放假料；
-
-第二步：中共在澳大利亚的大外宣同步刊发报道；
-
-第三步：赵立坚发推文引用；
-
-第四步：莫里森谴责；
-
-第五步：国内媒体报道；
-
-第六步：网络战斗员沈逸及原始放料者开始邀功；
-
-3、此次网络超限战的目的：掩盖莫里森对中共下跪的事实，营造莫里森对中共强硬的形象，然后继续在桌子底下对中共下跪
-
-我非常希望我猜错了，但是我们要把沈逸同学的党员身份再一次重复如下——
-
-沈逸：男，汉族，籍贯：上海，所属党支部：复旦国关教1支部（国际政治系支部），身份证号码：31010419761106081\*，电话号码：13\*16020756，学历：博士研究生。（注：为避免泄露个人完整信息，身份证号码及电话号码中均有一个数字以\*取代，在泄露到外网的1957239名上海中共党员信息原始表格中这个\*代表0至9十个数字中的某一个数字）
-
-（文章内容仅代表作者个人观点）
-
-1+
+0
