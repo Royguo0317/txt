@@ -1,21 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/11/19-20 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/603220/)
+## 【路德社】【精华版粤语快报】11.28：伊朗核专家被清除 宾州选票违宪案快速上至最高院
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/603371/)
 
-战友之家图文摘要及多语组
+制作单位：战友之家-粤语组
+制作团队：路德二组（Andy Su、文乔、鬼五）
 
-[299-300\_English\_1119-1120\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222924/299-300_English_1119-1120_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222924/299-300_English_1119-1120_CCP_Virus_Updates_.pdf)
 
-[299-300\_French\_1119-1120\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222926/299-300_French_1119-1120_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222926/299-300_French_1119-1120_CCP_Virus_Updates_.pdf)
 
-[299-300\_German\_1119-1120\_CCP\_Virus\_Updates\_\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222925/299-300_German_1119-1120_CCP_Virus_Updates__.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222925/299-300_German_1119-1120_CCP_Virus_Updates__.pdf)
+摘要:
+伊朗重要核专家再次被清除，宾州众议员诉讼邮寄选票违宪案快速上至最高院，俄亥俄已认证川普总统在该州获胜，川普总体将对沼泽地进行全面反击。
 
-[299-300\_Japanese\_1119-1120\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222925/299-300_Japanese_1119-1120_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222925/299-300_Japanese_1119-1120_CCP_Virus_Updates_.pdf)
+原视频链接:
 
-[299-300\_Korean\_1119-1120\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222926/299-300_Korean_1119-1120_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222926/299-300_Korean_1119-1120_CCP_Virus_Updates_.pdf)
 
-[299-300\_Spanish\_1119-1120\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222924/Spanish-299-300_Spanish_1119-1120_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222924/Spanish-299-300_Spanish_1119-1120_CCP_Virus_Updates_.pdf)
 
 0

@@ -1,25 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】反共是台湾的命运 从感情与利益方面台湾都应挺川普
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/603380/)
+## 罗斯柴尔德家族拥有的法国巴黎银行着火
+` GM77` [轉載自GNews](https://gnews.org/zh-hans/603714/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29231938/logo-3-1-1.jpg)
+整撰：文錦
+复核：文非
 
-作者：香草山写作组 程万里
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29232226/WhatsApp-Image-2020-11-30-at-11.21.20-1.jpeg)
-新唐人：11月27日，[吴嘉隆](https://www.ntdtv.com/b5/%E5%90%B3%E5%98%89%E9%9A%86.htm)在脸书上发文称，川普总统自上任以来对台湾最好。台湾在[反共](https://www.ntdtv.com/b5/%E5%8F%8D%E5%85%B1.htm)的最前线，在第一岛链的关键位置，川普支持台湾，等于也是在支持美国！回过头来，台湾从感情与利益这两个方面，都应该支持川普。台湾人要有江湖道义，要支持川普到底，该表态的就表态！千万不要在这种时候去搞平衡。反共是台湾的命运，没有和稀泥的空间。该押单边就押单边！其还表示，[拜登](https://www.ntdtv.com/b5/%E6%8B%9C%E7%99%BB.htm)不可能凭着中共帮他，凭着选举舞弊，以大规模、有组织的做票，来当上美国总统。
+29日，一些蒙面人放火焚烧作为国家象征之一的法兰西银行大楼，而消防员则努力通过被警察围栏，临时路障和焚烧垃圾所阻挡的街道到达现场。
 
-今年[美国大选](https://www.ntdtv.com/b5/%E7%BE%8E%E5%9C%8B%E5%A4%A7%E9%81%B8.htm)，拜登阵营试图通过舞弊窃取选举。川普团队已对此展开法律诉讼，海量证据显示，大选存在大规模舞弊和违规现象。川普总统称之为美国史上最大的盗窃案，他还表示有信心赢得胜利，以维护美国选举的公正性。全美50州的民众持续举行抗议活动，力挺川普总统，要求拜登停止窃选。日前，著名律师鲍威尔提交到乔治亚州的诉状中，有证词指出，中共涉嫌通过大选投票系统干预大选。川普在大选前曾多次警告，若拜登当选，中共将会控制美国。
 
-外界认为，本次美国大选不仅仅事关美国的命运，也事关全球各国民众的未来。美国是走向社会主义还是回归传统道路，成败在此一举。毫无疑问的是，若川普总统顺利连任，中共迎来的将是灭亡的号角声。吴嘉隆强调，川普对中共的遏制，不但是民进党要的，更是国民党要的。他在脸书贴文中写道，美国国务卿蓬佩奥说，依靠极权专制的民主，不配叫做民主！他认为，与中共妥协，被中共收买，不配拥有和平与繁荣！有网友对川普团队没有拿出舞弊确凿证据提出质疑，吴嘉隆响应说，已经有大量的证据，只是你没看到。为什么你没看到呢？因为你看的媒体不报导。为什么你看的媒体不报导呢？因为台湾的主流媒体只是跟着美国的主流媒体在报导而已，没有自己的判断与评论。他还表示，证据是要晾在法官面前，不是记者面前。川普这边的律师很精明，不会把证据在媒体前面晾出来，是不想让对手提前去做准备。
 
-[https://www.ntdtv.com/b5/2020/11/29/a102998011.html](https://www.ntdtv.com/b5/2020/11/29/a102998011.html)
+> Certains individus masqués ont mis le feu au bâtiment de la Banque de France, un des symboles de l'État. [#28novembre](https://twitter.com/hashtag/28novembre?src=hash&amp;ref_src=twsrc%5Etfw) [#MarcheDesLibertes](https://twitter.com/hashtag/MarcheDesLibertes?src=hash&amp;ref_src=twsrc%5Etfw) [#StopLoiSecuriteGlobale](https://twitter.com/hashtag/StopLoiSecuriteGlobale?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/7nJUk3KMAK](https://t.co/7nJUk3KMAK)
+> — Nadège Abderrazak (@Nadege\_RTFrance) [November 28, 2020](https://twitter.com/Nadege_RTFrance/status/1332737696414851072?ref_src=twsrc%5Etfw)
 
-审核：浪迹天涯
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29231938/logo-3-1-1.jpg)
+近期，法国许多大城市组织了抗议活动，包括巴黎，马赛，里昂，布雷斯特和尼斯，尽管有人对Covid-19表示担忧，但仍有数千人参加。主要活动发生在首都的共和国广场一带。
+
+抗议活动是由工会组织的，但他们有许多支持者。黄背心运动是由日益严重的社会和经济不平等现象引发的，而且几个月来一直是马克龙总统的主要问题。
+
+而抗议活动的升级则是源于一项有争议的关于公共安全的法律草案，根据该草案，对执勤警官进行拍摄可能会处以巨额罚款。为什么这项拟议的法律引起了如此大的愤怒？因为本周在网上泄露出一条法国警察殴打和种族虐待黑人音乐制作人Michel Zecler的视频。21日，因为没有戴面罩Michel在返回工作室时遭到三名警察的尾随，并对其施暴和关押。
+
+
+
+> Une pluie de coups et des mensonges : retour sur le passage à tabac du producteur de musique Michel Zecler par trois policiers [https://t.co/gRH0vSnLcn](https://t.co/gRH0vSnLcn) via [@lemondefr](https://twitter.com/lemondefr?ref_src=twsrc%5Etfw)
+> — maryline baumard (@marylinebaumard) [November 27, 2020](https://twitter.com/marylinebaumard/status/1332360162435272705?ref_src=twsrc%5Etfw)
+
+
+
+而对本周议会下院批准了这项公共安全法草案，示威者表示极大的愤怒。该条款背后的理由是，要保护警队成员免受诋毁和网络骚扰，对违抗者将处以45,000欧元（53,450美元）甚至一年的监禁。批评人士说，这条法案限制了新闻自由，将被用来威吓那些想揭露警察的野蛮行为和其他形式的不当行为的人。
+
+29日，巴黎陷入混乱，多个城市在大规模抗议警察暴行的活动中出现了暴力冲突和纵火。警察调配催泪瓦斯，闪光灯和水炮。虽然尚不清楚冲突中有多少名抗议者受伤，但当地媒体报道说，法国全国至少有37名警察受伤，至少逮捕了46名示威者。
+
+参考链接：
+[https://www.rt.com/news/508106-france-protest-filming-police/](https://www.rt.com/news/508106-france-protest-filming-police/)
+[https://www.lemonde.fr/societe/article/2020/11/27/interpellation-d-un-producteur-de-musique-une-pluie-de-coups-et-de-mensonges\_6061286\_3224.html](https://www.lemonde.fr/societe/article/2020/11/27/interpellation-d-un-producteur-de-musique-une-pluie-de-coups-et-de-mensonges_6061286_3224.html)
+
 0

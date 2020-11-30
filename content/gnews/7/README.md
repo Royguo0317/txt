@@ -1,29 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 〖热点播报〗强烈的反击信号：林伍德指责“中共用病毒攻击美国”和弗林指控“中共支持针对川普的政变”
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/603148/)
+## 【热点播报】近日比特币猛涨闪崩，郭先生再次预警
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/603170/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/24223314/logo-3-1.jpg)
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/24223314/logo-3-1.jpg)
 
+作者：香草山写作组 程万里
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29220531/messageImage_1606705464943.jpg)
+北京时间2020年11月30日，近7日以来，比特币价格从11月22日的17815美元一路上涨，在11月25日冲至19500美元，创近三年新高。但11月26日比特币再现雪崩式下跌，日内一度跌超14%。特别是在11月26日-27日，比特币从19160美元的高点一度跌至16410美元，一日内价格暴跌14%，创出8月以来的最大跌幅。截至最新时间11月29日下午5点，比特币价格再现回涨，最新报价18128美元，涨幅达6.29%，价格仍在波动中。
 
-
-作者：香草山写作组 文贵天成 光明(整理编辑)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29215441/WhatsApp-Image-2020-11-30-at-09.49.13.jpeg)
-2020年11月28日的两则消息显示，川普已经做好全面反击中共的准备
-第一则：川普的第一任国安顾问弗林将军，在被川普总统赦免后的首次公开讲话中说：反对势力对川普总统发动了政变，是中共在支持这个政变。
-之前，民主党对弗林发动了持续三年多的“通俄门”调查，川普最近以无罪赦免了弗林，弗林可以彻底从法院和司法部的官司中解脱出来，继续担任公职，表明川普已经摆脱被动局面。
-第二则：林伍德大律师第二次直指中共，他说：真相是，中共发起对美国的颜色革命，中共对美国发动了Covid-19病毒的攻击；中共制造了美国各个城市的无法无天和骚乱；中共策划并实施了对美国大选的欺诈性选举；中共下一步是计划增加美国城市暴乱。我相信川普总统已做好应对准备。，我们必须做好一切准备！
-郭文贵先生曾说，如果川普把病毒来源说破了，就到了必须发动战争的时候。现在由两位焦点人物林伍德和弗林，把中共对美国发动病毒攻击，支持政变，干预大选，策动暴乱等全部摆到台面进行公开指证，证明川普已然做好了对中共发起全面反击的准备，终极之战的脚步声已经轰鸣而至。
-
-弗林将军的采访链接：
-
-[https://www.worldviewweekend.com/tv/video/wvw-tv-exclusive-lt-general-michael-flynns-first-interview-president-trumps-pardon](https://www.worldviewweekend.com/tv/video/wvw-tv-exclusive-lt-general-michael-flynns-first-interview-president-trumps-pardon)
+比特币这一场割韭菜，有战友赔掉了4000多万，郭文贵先生之前早有预警。郭先生再次强调，比特币被美国人和中共控制，都有军方情报背景。当任何事情涨到你都不敢相信时就是抛它的时候，当任何事情不能真实的百分百说服你的时候就是放弃它的时候，当任何事情不符合逻辑时就是不要碰它的时候。什么叫避险货币，它总共只有2100万，避什么险，美国人玩这个玩多了，你相信他，这里有多少黑暗啊，最起码这些虚拟货币没有交易的价值，没有规避市场风险的能力，更不存在马上进马上出基础的金融条件，也不具备所有货币必须要有的跟其它货币迅速兑换的条件，它的涨和跌都在一分钟和一天之间，它不可控。世界上任何货币除了主权崩塌之外，哪有像这比特币似的，说崩塌一分钟就崩塌，说涨一分钟就涨一天就涨一天就跌，它当然是人为控制的，怎么能玩这个呢？
 
 审核：浪迹天涯
 
 更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
 更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/24223314/logo-3-1.jpg)
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/24223314/logo-3-1.jpg)
 0
