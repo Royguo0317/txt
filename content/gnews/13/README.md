@@ -1,20 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年11月30日中共病毒疫情要闻快报
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/604476/)
+## 11/28/2020 同声传译: 朱利安尼重磅讲话和接受OAN &amp; NEWSMAX采访, 以及福克斯LOU DOBBS &amp; HANNITY节目
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/604740/)
 
-**重点内容：**
-
-- 川普接受福克斯采访：此次大选完全是场骗局！
-- 230法案应该被取消；
-- 天津对于重点人群进行二次核酸检测；
-- 贸易战影响渐显，大豆油暴涨30%；
-- 演员沈佳欣因质疑钟南山带货被全网声讨。
-
-
-
-
-**By：【秘翻组-上天造灭疫组】**
+By：【秘密翻译组G-Translators】
 
 0

@@ -1,44 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 乌合麒麟的画经赵立坚引用莫里森发怒后，咬部绿裤衩强硬回击
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/604302/)
+## 【生被虐待 死被阴婚】山东女孩因无法怀孕被婆家虐待致死 死后还要被配阴婚
+` GM108` [轉載自GNews](https://gnews.org/zh-hans/604677/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30065828/%E5%B0%81%E9%9D%A2-120.jpg)
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+作者：小妍说
 
-前文[赞扬中共脱贫向中共下跪的莫里森要求赵立坚道歉的照片啥来头](https://gnews.org/zh-hans/603484/)，介绍了向中共下跪的莫里森因为赵立坚推送的一幅歪曲澳大利亚士兵杀害无辜阿富汗平民照片，一怒之下要求中方道歉，据30/11/2020|5min[Scott Morrison demands apology from China for doctored ADF propaganda](https://www.skynews.com.au/details/_6212968703001)——
+之前我写过一篇文章叫【山东一女子因无法怀孕被丈夫、公婆殴打致死 被告一审获刑二到三年】，那个因不孕遭婆家虐待致死的山东女孩方洋洋，在火化前，竟然又被娘家提前安排好了阴婚。方洋洋的表哥说，配婚对象的亲属，从殡仪馆直接抱走了洋洋的骨灰盒，让她和死去的儿子一起下葬。那里距方庄较远，方家人没去看过，办不办仪式，那就是人家那方的事了，我们也不管了。这是当地的习俗，村里有人来找，家里也有安排，收了几千块的丧葬费，没要彩礼。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30081834/85DA5490-6B4D-4221-9B34-F65767AE82AE.png)
+什么叫阴婚？说起“配阴婚”，确实令人毛骨悚然。而这个流传于中共民间的陋习，也确确实实存在了上千年。阴婚又称冥婚，配骨，鬼婚，灵婚。在中共国，如果未婚的人属于意外死亡，民间阴阳师认为是“克命”，会破坏祖坟的“风水”，所以死后不能进祖坟。于是，婚前亡故的男子家人为弥补这个“遗憾”，有了买女尸“配阴婚”的需求。同样，未婚年轻女子因故去世后，也不能葬在娘家祖坟，很多人为了让亡故的女儿有一个归处，通常也习惯选择将遗体卖出配阴婚。一般来说，阴婚要通过媒人介绍，双方过门户帖，命关和婚后取得龙凤帖。男方放定也是要进行的，一半是真的绫罗金银，一半是纸糊的各种衣饰，最后在女方家门口或坟上焚化。迎娶仪式是阴婚中不可少的，也要搭棚宴请，门前亮轿。“新娘”的照片或牌位由送亲太太捧出交给娶亲太太，放入喜轿。到男方家后由娶亲太太把“新娘”牌位或照片取出放入喜房的供桌与“新郎”的并列，再由娶亲太太代为给全神上香叩拜，就算拜天地了。“合杯酒”、“子孙饺子”、“长寿面”也要供于“新婚夫妇”的牌位或照片前。以后再选个宜破土安葬的好日子，女方起灵按指定的时辰葬入男方坟的旁边，并且两个棺柩要挨上槽帮，才算“夫妻”并骨合葬。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30081830/1C57042D-0513-415A-989E-B73539BD6474.png)
+我一直以为阴婚只存在于传说中，没想到这种旧社会的陋习，在中共国依然盛行，并且以这种形式出现在我们的面前。洋洋从出生到死亡，都被周围一群现代人安排的”明明白白“，婆家、娘家里没一个人拿她当家人，从生到死皆是悲剧，没有一个人真正爱护过她，不过是把她当做一个赚钱的工具。不知道这是养女儿还是卖女儿？过去卖女儿也就卖一次。这家人可好，十三万的彩礼卖第一次，五万块的死亡赔偿金卖第二次，几千块的冥婚卖第三次！这是要吸干血肉，还要榨干骨髓。联想这孩子生前的遭遇，真是生得不幸，死得不安。如果不是洋洋的死因这么轰动，吸引了大量的关注，可能这场阴婚，在悄无声息中就给办了，我们也都不会知道。一场阴婚并不可怕，可怕的是在中共国暗中还有多少人家，多少个村落，在维持这场看似荒诞，实则市场巨大的陋习。就在此刻，不知道究竟还有多少个这样的她被安排？在中共国，在我们看不见的地方，早已爬满了虱子，长满了吸血的水蛭。整个事件，折射的就是中共统治下的这个社会的真实现象，有太多的人披着文明人的外衣，内心却还是野蛮人的心，人早已都是不是人了，所以也不能够指望他们去做人做的事了。
 
-Prime Minister Scott Morrison has demanded China apologise for posting doctored propaganda images of an Australian soldier holding a knife to the throat of a child. Mr Morrison revealed he has also demanded Twitter remove the violent, fake image but the social media giant has failed to act.He said the images were “utterly outrageous” and “deeply offensive for every Australian”.“It cannot be justified on any basis whatsoever,” he said.“The Chinese government should be totally ashamed of this post. “It diminishes them in the worlds eyes.”
+GNEWS之前文章：
 
-中文大意：总理斯科特·莫里森（Scott Morrison）要求中共就张贴关于持刀在孩子喉咙上的澳大利亚士兵的篡改宣传图片道歉。莫里森（Morrison）透露，他还要求Twitter删除暴力、虚假图片，但该社交媒体巨头未能采取行动。他说，这些照片“绝对令人发指”，并且“冒犯了每一个澳大利亚人”。他说：“无论如何都不能证明它是合理的。”“中国政府应该为这个职位感到万分羞愧。“这张图片让他们自己在全世界丢尽了脸”
+人人都笑马保国 人人却都是马保国 [https://gnews.org/zh-hans/603767/](https://gnews.org/zh-hans/603767/)
 
-\*\*\*\*\*引用完毕\*\*\*\*\*
+王清远两袖清风 毛洪涛死于心理疾病[https://gnews.org/zh-hans/599821/](https://gnews.org/zh-hans/599821/)
 
-莫里森说得有没有错？没错！因为赵立坚引用的照片本来就是人工绘制的，用一幅人工画的画来说明澳大利亚士兵杀害阿富汗平民的犯罪事实，就好像我画了一条狗身子再安上赵立坚的脑袋，然后向世界宣称这条人模狗样的狗就是赵立坚的真身一样荒诞，作为荒诞的起源，画作者乌合麒麟已经献身对莫里森进行了回应——
+文化大革命在哈尔滨工业大学悄然上演[https://gnews.org/zh-hans/599527/](https://gnews.org/zh-hans/599527/)
 
-据[**观视频工作室**](https://weibo.com/6060307497?refer_flag=1001030103_) [2020年11月30日17:40](https://weibo.com/6060307497/JwjxYtas4?refer_flag=1001030103_) 来自 [时事评论 · 视频社区](https://weibo.com/)
-
-[#乌合麒麟回应澳大利亚总理#](https://s.weibo.com/weibo?q=%23%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F%E5%9B%9E%E5%BA%94%E6%BE%B3%E5%A4%A7%E5%88%A9%E4%BA%9A%E6%80%BB%E7%90%86%23)【乌合麒麟：听说澳大利亚总理对我的画有意见？那我今晚再画一张】刚从[#答案年终秀#](https://s.weibo.com/weibo?q=%23%E7%AD%94%E6%A1%88%E5%B9%B4%E7%BB%88%E7%A7%80%23) 回北京的[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F) 被小勺子夺命连环Call，问问他对于[@*赵立坚*个人微博](https://weibo.com/n/%E8%B5%B5%E7%AB%8B%E5%9D%9A%E4%B8%AA%E4%BA%BA%E5%BE%AE%E5%8D%9A) *赵立坚*今天在推特上发布他的画作，并被澳大利亚总理莫里森“挂”的事件有啥看法？乌合麒麟：那我今晚有空再画一张吧 [#洞见计划#](https://s.weibo.com/weibo?q=%23%E6%B4%9E%E8%A7%81%E8%AE%A1%E5%88%92%23) [L观视频工作室的微博视频](http://t.cn/A6GeLqo5) [收起全文d](void%280%29;)
-
-这个五毛脑残的原始画作见于[**乌合麒麟**](https://weibo.com/qilinshendian?refer_flag=1005055013_) [11月23日 20:47](https://weibo.com/1566936885/JvgMubTWg?from=page_1005051566936885_profile&amp;wvr=6&amp;mod=weibotime) 来自 [360安全浏览器](https://app.weibo.com/t/feed/1tqBja)
-
-“和平之师”  ​​​​
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003854/EoCHvHjVkAIWIMi.jpg)
-对于澳大利亚总理莫里森要求的道歉，中共咬部绿裤衩玩物华春莹（参见[郭先生8.31揭秘中南坑:给上级送老婆、外咬部绿裤衩玩物华春莹](https://gnews.org/zh-hans/329440/)） 是如何回应的呢？
-
-据[**新华网**](https://weibo.com/2810373291?refer_flag=1001030103_) [2020年11月30日17:40](https://weibo.com/2810373291/Jwjyjanhz?refer_flag=1001030103_) 来自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)
-
-【要求中方道歉？[#华春莹四个反问回击澳总理#](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E6%98%A5%E8%8E%B9%E5%9B%9B%E4%B8%AA%E5%8F%8D%E9%97%AE%E5%9B%9E%E5%87%BB%E6%BE%B3%E6%80%BB%E7%90%86%23) 】30日，有记者提问：澳大利亚总理莫里森要求中方就外交部发言人*赵立坚*在推特发布澳军队残杀阿富汗儿童的漫画道歉，称这是“伪造的”，中国应该为此“感到耻辱（feel ashamed）”……对此，外交部如此回应[@中国日报](https://weibo.com/n/%E4%B8%AD%E5%9B%BD%E6%97%A5%E6%8A%A5) [L中国日报的秒拍视频](http://t.cn/A6GeZF4B) ​
-
-综述：这个国家病了，所以这个国家会出现脑残画家乌合麒麟用画笔去诬蔑另一个国家的士兵，并且在引起外交争端时，不但不以为耻反以为荣要再画一幅；
-
-这个国家病了，所以在脑残画家画出脑残画后，这个国家的战狼外交官会把这幅脑残画放到推文里，作为另一个国家的士兵杀害平民的事实进行大书特书；
-
-这个国家病了，在另一个国家向这种无耻丑化和宣传表达愤怒和要求道歉之后，本来就是领导生殖器玩物的发言人把嘴当成了下边的那个器官继续以无耻当勇敢，将战狼泼妇精神发扬光大；
-
-这个国家病了，当今圣上依然是慈禧，满朝上下都是义和团，接下来这个国家将如何应对八国乃至八十国联军？不怕，只要脑残画家画一个凯旋班师图然后诏告天下即可，实在不行，圣上似乎依然可以效仿当年西狩的慈禧那样跑到延安继续做土匪。不过这一次当今圣上似乎应该可能一定不会有机会西狩做土匪了，因为已经举头三尺无人机了。
-
-（文章内容仅代表作者个人观点）
+新闻链接：[https://news.sina.com.cn/s/2020-11-24/doc-iiznezxs3483235.shtml](https://news.sina.com.cn/s/2020-11-24/doc-iiznezxs3483235.shtml)
 
 0
