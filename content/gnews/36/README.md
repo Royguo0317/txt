@@ -1,24 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 绝不向选举欺诈妥协
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/604769/)
+## 密歇根州选票作弊行为将接受法律调查
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/605247/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30090853/%E4%B8%BB%E9%A2%98%E5%9B%BE%E7%89%87.png)
-根据埃里克·马克（Eric Mack）在《新闻极限 》(Newsmax)的报道，纽特·金里奇（Newt Gingrich）表示，如果这次腐败的选举不被公布于众的话，那么共和党输的不仅是这一届选举，而是以后的所有选举。
+*新闻来源：The National Pulse《国家脉动》；作者：娜塔莉·温特斯（NATALIE WINTERS）；发布时间：2020年11月 27日*
 
-这次选举并不是川普与拜登两人谁当总统的问题，而是关乎到每一位美国公民自身权利的问题。因为每位公民合法的选票都应该计算在内，而不是被扔掉或被大量非法选票淹没真实的民意。
+*翻译/简评：*Bob1203(文虓)*；校对：*感恩*；审核：海阔天空；Page：拱卒*
 
-纽特·金里奇还指出，亨特·拜登（Hunter Biden）被曝出与中共，俄罗斯，乌克兰的勾兑和大量资金流入拜登家族，这一系列丑闻都是真实的，而且由此可以想到，未来如果拜登当选，那么这将是美国近代最腐败的政府。
+**简评：**
 
-纽特·金里奇最后总结称，为了这次大选，和未来的大选，共和党都应该解决选票欺诈的问题。
+汤玛斯摩尔协会（THOMAS MORE SOCIETY）的“勇者无惧计划”（AMISTAD PROJECT）在密歇根州提起诉讼，以“确认2020年选举中存在违规行为的所有证据，并宣布选举结果无效。” 该“计划”负责人菲尔克·莱恩（Phill Kline）指出： “在许多情况下，州和地方官员为了推进党派政治议程而厚颜无耻地违反选举法，” 密歇根州一些官员的非法行为使该州的缺席投票泛滥成风，由此导致大选舞弊问题严重。实际上，操纵大选的幕后黑手是CCP，密歇根州是CCP“蓝金黄”的重灾区，因此能在该州轻而易举地操纵大选。在美国“排干沼泽”的同时，必须尽快地消灭CCP，才能保证未来的大选不再被操纵！
 
-评论：这篇文章虽然很短，但是却抓住了关键的要点，无论你支持哪一党派，现在的重点是选票欺诈，这已经侵犯了法律和每个美国人的人权。如果这一次被选票欺诈得逞，那么美国以后的选举就将成为全世界的笑话，就像中共那样。而且纽特最后提到要解决选票欺诈的问题。文贵先生之前也提到过多米尼公司的背后有中共和方正的影子，换句话说，想要彻底根除选票欺诈，川普总统就要对中共出手。
+**原文翻译：**
 
-[原文链接](https://www.newsmax.com/politics/rigged-democrats-bigtech-censorship/2020/11/29/id/999161/)
+# “无法无天的模式”:对密歇根州大规模邮寄选票计划展开法律调查
 
-翻译报道： Chris
+[!\[\]()!\[\](https://spark.adobe.com/page/okldcPRG0LCSK/images/eb9cdb47-b7bd-46a0-8093-25cd714ea26b.jpg?asset_id=6715aed2-a629-4d03-9494-31bb8ba0e6bc&amp;img_etag=%22c3317881ffd43dfdc09c756f4798d01e%22&amp;size=1024)](https://spark.adobe.com/page/okldcPRG0LCSK/images/eb9cdb47-b7bd-46a0-8093-25cd714ea26b.jpg?asset_id=6715aed2-a629-4d03-9494-31bb8ba0e6bc&amp;img_etag=%22c3317881ffd43dfdc09c756f4798d01e%22&amp;size=1024)
 
+汤玛斯摩尔协会（THOMAS MORE SOCIETY）的“勇者无惧计划”（AMISTAD PROJECT）在密歇根州提起诉讼，以“确认2020年选举中存在违规行为的所有证据，并宣布选举结果无效。”
 
+11月27日，密歇根州最高法院宣布了一份关于更换选举相关文件的请愿书。
+
+“在许多情况下，州和地方官员为了推进党派政治议程而厚颜无耻地违反选举法，” “勇者无惧计划”（AMISTAD PROJECT）负责人菲尔·克莱恩（Phill Kline）指出。
+
+诉讼的焦点是该州对邮寄选票的处理方式。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/okldcPRG0LCSK/images/bbbbbd93-2c2e-49ec-b177-71d47a69a9fb.jpg?asset_id=15f38efb-d5fb-4922-9926-9d0d462add81&amp;img_etag=%2213573149e1c84ee52fc70d46966a4ffd%22&amp;size=2560)](https://spark.adobe.com/page/okldcPRG0LCSK/images/bbbbbd93-2c2e-49ec-b177-71d47a69a9fb.jpg?asset_id=15f38efb-d5fb-4922-9926-9d0d462add81&amp;img_etag=%2213573149e1c84ee52fc70d46966a4ffd%22&amp;size=1024)在宾夕法尼亚州的听证会上，鲁迪-朱利安尼指控在州选举中存在重大投票违规行为。
+
+根据该组织发布的新闻稿:
+
+该诉讼特别指出，本森（Benson）规避了密歇根州立法机构的明确意图，该立法机构建立了一种缺席投票程序，旨在将舞弊风险降到最低。本森（Benson）违反了这一程序的许多条款，他主动向该州的每个家庭发送缺席投票申请，而没有核实预期的接收人是否仍住在同一地点，是否有资格在2020年投票，甚至是否还活着。
+
+本森（Benson）在没有法定授权的情况下，建立了在线缺席投票申请程序，更违反了法律条款。这就排除了按照法律要求获得选民实际签名的可能性。州务卿的非法行为使该州的缺席投票泛滥成风，这种投票在本质上没有现场投票安全。
+
+密歇根州将于12月1日举行大选公开听证会。
+
+[原文链接](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/okldcPRG0LCSK/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/okldcPRG0LCSK/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/okldcPRG0LCSK/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0
