@@ -1,31 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港快讯】 周庭羁押一周 睡眠差精神欠佳，恐大机会被判囚【香港要闻】
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/603552/)
+## 罗斯柴尔德家族拥有的法国巴黎银行着火
+` GM77` [轉載自GNews](https://gnews.org/zh-hans/603714/)
 
-编撰：文悦
+整撰：文錦
+复核：文非
 
-审阅：WLQF
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30005321/agnes-08_PqdS0_1200x0.png)图片素材来源：周庭facebook
-据立场新闻29日报道，「六二一包围警总案」，前香港众志成员黄之锋、林朗彦、周庭等3人早前承认煽惑、组织未经批准集结等罪，正还押等候判刑。还押第7日，周庭的脸书专页管理员29日发文转述她的近况，指其近日睡得较差且身体不适，精神欠佳，又言对于裁判官不取报告感到委屈，担心周三大机会判监而情绪不好。
+29日，一些蒙面人放火焚烧作为国家象征之一的法兰西银行大楼，而消防员则努力通过被警察围栏，临时路障和焚烧垃圾所阻挡的街道到达现场。
 
-周庭托探访的朋友转述，她这几天因为天气转凉的关系，晚上睡得比较差，「失眠时会回想起，当日在庭上裁判官断言说不会索取社会服务令的时候，真的感到很委屈。」她又提及网民早前举办的「黄店惩罚祭」活动，得知其反应不错，希望外界继续支持黄店，又盼外面的人都安好。
 
-大批示威者去年6月21日包围警察总部，已解散的前香港众志秘书长黄之锋、主席林朗彦和成员周庭承认煽惑、组织及参与未经批准集结等三罪。案件早前于西九龙裁判法院审理，裁判官王诗丽听取辩方求情后，表示需要时间重温案发片段，没有为各被告索取任何报告。案件押后至12月2日判刑，期间三人须还押。
 
-战友点评：
+> Certains individus masqués ont mis le feu au bâtiment de la Banque de France, un des symboles de l'État. [#28novembre](https://twitter.com/hashtag/28novembre?src=hash&amp;ref_src=twsrc%5Etfw) [#MarcheDesLibertes](https://twitter.com/hashtag/MarcheDesLibertes?src=hash&amp;ref_src=twsrc%5Etfw) [#StopLoiSecuriteGlobale](https://twitter.com/hashtag/StopLoiSecuriteGlobale?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/7nJUk3KMAK](https://t.co/7nJUk3KMAK)
+> — Nadège Abderrazak (@Nadege\_RTFrance) [November 28, 2020](https://twitter.com/Nadege_RTFrance/status/1332737696414851072?ref_src=twsrc%5Etfw)
 
-2014年9月「雨伞运动」期间，时年不满十八岁的周庭决定休学，全程留守金钟占领区，是雨伞运动的关键人物。 2017年6月习近平访港期间，周庭与香港众志主席罗冠聪、秘书长黄之锋等多人于金紫荆广场，用数块黑布包围广场上香港标志紫荆花雕塑，第二天又用铁链将自己和雕像锁在一起以示抗议，遭警方拘留逾30小时。 2018年周庭参加立法会补选；2020年她成为国安法实施后其中一名被捕人士，被指控「勾结外国势力」。外媒指周庭自15岁开始投入社会运动，有支持者以保家卫国的「花木兰」来比喻她。
 
-周庭曾说：「拥有女性领袖对女权毫无意义。我们需要是制度的改变及真正的民主。」（Having a female leader does not mean anything for women’s rights. We need a change in the system, and genuine democracy. ）
 
-如今周庭因去年的「621包围警总案」被控煽惑、组织及参与未经批准集结等三罪。虽然周庭已承认两罪，且之前并无案底，但还是被别有用心的裁判官王诗丽判羁押至12月2日判刑，而且种种迹象表明，这次港共政府将狭「国安法」这部重典，把所有异议人士一网成擒，严酷打压，以儆效尤。香港的暗黑时代已经来临，在痛苦和失落中挣扎的港人，「不是在沉默中爆发，就是在沉默中灭亡」。
+近期，法国许多大城市组织了抗议活动，包括巴黎，马赛，里昂，布雷斯特和尼斯，尽管有人对Covid-19表示担忧，但仍有数千人参加。主要活动发生在首都的共和国广场一带。
 
-以上观点仅代表本人
+抗议活动是由工会组织的，但他们有许多支持者。黄背心运动是由日益严重的社会和经济不平等现象引发的，而且几个月来一直是马克龙总统的主要问题。
 
-资料来源：立场新闻
+而抗议活动的升级则是源于一项有争议的关于公共安全的法律草案，根据该草案，对执勤警官进行拍摄可能会处以巨额罚款。为什么这项拟议的法律引起了如此大的愤怒？因为本周在网上泄露出一条法国警察殴打和种族虐待黑人音乐制作人Michel Zecler的视频。21日，因为没有戴面罩Michel在返回工作室时遭到三名警察的尾随，并对其施暴和关押。
 
-[https://www.thestandnews.com/society/%E9%82%84%E6%8A%BC%E4%B8%80%E9%80%B1-%E5%91%A8%E5%BA%AD-%E7%9D%A1%E7%9C%A0%E8%BC%83%E5%B7%AE-%E7%B2%BE%E7%A5%9E%E6%AC%A0%E4%BD%B3-%E6%93%94%E5%BF%83%E9%80%B1%E4%B8%89%E5%A4%A7%E6%A9%9F%E6%9C%83%E5%88%A4%E5%9B%9A/](https://www.thestandnews.com/society/%E9%82%84%E6%8A%BC%E4%B8%80%E9%80%B1-%E5%91%A8%E5%BA%AD-%E7%9D%A1%E7%9C%A0%E8%BC%83%E5%B7%AE-%E7%B2%BE%E7%A5%9E%E6%AC%A0%E4%BD%B3-%E6%93%94%E5%BF%83%E9%80%B1%E4%B8%89%E5%A4%A7%E6%A9%9F%E6%9C%83%E5%88%A4%E5%9B%9A/)
 
-1+
+
+> Une pluie de coups et des mensonges : retour sur le passage à tabac du producteur de musique Michel Zecler par trois policiers [https://t.co/gRH0vSnLcn](https://t.co/gRH0vSnLcn) via [@lemondefr](https://twitter.com/lemondefr?ref_src=twsrc%5Etfw)
+> — maryline baumard (@marylinebaumard) [November 27, 2020](https://twitter.com/marylinebaumard/status/1332360162435272705?ref_src=twsrc%5Etfw)
+
+
+
+而对本周议会下院批准了这项公共安全法草案，示威者表示极大的愤怒。该条款背后的理由是，要保护警队成员免受诋毁和网络骚扰，对违抗者将处以45,000欧元（53,450美元）甚至一年的监禁。批评人士说，这条法案限制了新闻自由，将被用来威吓那些想揭露警察的野蛮行为和其他形式的不当行为的人。
+
+29日，巴黎陷入混乱，多个城市在大规模抗议警察暴行的活动中出现了暴力冲突和纵火。警察调配催泪瓦斯，闪光灯和水炮。虽然尚不清楚冲突中有多少名抗议者受伤，但当地媒体报道说，法国全国至少有37名警察受伤，至少逮捕了46名示威者。
+
+参考链接：
+[https://www.rt.com/news/508106-france-protest-filming-police/](https://www.rt.com/news/508106-france-protest-filming-police/)
+[https://www.lemonde.fr/societe/article/2020/11/27/interpellation-d-un-producteur-de-musique-une-pluie-de-coups-et-de-mensonges\_6061286\_3224.html](https://www.lemonde.fr/societe/article/2020/11/27/interpellation-d-un-producteur-de-musique-une-pluie-de-coups-et-de-mensonges_6061286_3224.html)
+
+0

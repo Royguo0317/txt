@@ -1,55 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统大选结果再赢一州, 俄亥俄州官宣确认胜局
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/603784/)
+## 【军事快讯】“小打小闹”称实战，中共军舰战力堪忧
+` Ronald` [轉載自GNews](https://gnews.org/zh-hans/603808/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30030206/Picture35-4.png)
-图片来源：[https://www.statenews.org/post/secretary-state-responds-court-about-why-he-wont-comply-its-order](https://www.statenews.org/post/secretary-state-responds-court-about-why-he-wont-comply-its-order)
+内军事：鹰(文言) 素材：文朝汗（部落） 校对：雅典娜的圣斗士(沙加)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30035238/image0-5-4.jpg)
+环球网11月29日报道，近期南海某海域舰艇支队开展全训合格考核。
 
-据OAN新闻室报道，俄亥俄州确认选举结果，正式宣布川普总统以压倒性优势赢得了该州的选举，这使他在选举团中获得了18票。
+南部战区某驱逐舰支队对实习舰长、副舰长等进行全训合格考核。
 
-俄亥俄州又称七叶树州（Buckeye State，译者注：俄亥俄州盛产七叶树，故别名七叶树州），11月27日星期五，州务卿弗兰克-拉罗斯（Frank LaRose）在该州的选举认证文件上签字，宣布川普总统以8个百分点的优势获胜。
+虽宣称贴近实战，但考核内容（含离靠漂泊舰、高度机动、舰炮射击浮靶、防核防生化冲洗等）却流于形式，用于检验攻击精度的浮体靶仅1个，而设定的空袭目标，甚至没有靶机，仅在模拟程度，实战考核沦为“小打小闹”。
 
-拉罗斯同时对俄亥俄州无障碍、安全和准确的确认选举结果所采取的举措感到很自豪。他说： “结果是，我们进行了一次公平的选举，无论你最喜欢的候选人是赢了还是输了，所有俄亥俄州人都可以相信，他们的票都计算在内了，他们的声音被听到了。” 弗兰克-拉罗斯说。”事实上，这是俄亥俄州历史上最“无障碍”的选举。”
+584号护卫舰配备PJ26型单管76MM舰炮（主炮）、H/PJ-17型30mm机炮（副炮）、HQ-10防空弹、鹰击-83反舰弹、2×三联装324mm鱼雷发射管。
 
-他的推特也同步发布了两条选举结果的信息：
+在“实战化”的考核中消耗的也只有主副炮弹，比之昂贵的HQ-10、鹰击-83、鱼雷等根本不在演练科目上。
 
-1） 俄亥俄州2020年大选结果正式认证! 创纪录地近600万俄亥俄州人发出了自己的声音。查看结果，请访问http://OhioSoS.gov。
+结合此前，在中共军舰的历次实弹射击中，导弹发射次数屈指可数，仅停留在舰炮打击程度，作为远距威慑的防空弹、反舰弹的实弹射击更是仅在专项任务或大型军演中才能窥见一二。
 
-恭喜你，俄亥俄州!
+虽然中共推崇其防空弹（如HQ-10）、鹰击-83反舰弹技术先进、攻击精度高；
 
-2） 俄亥俄州的美国总统选举最终认证投票结果：
+但从今年以来长征系列运载火箭的屡屡失利及8月下旬东风21、东风26的发射失准（4枚中仅2枚命中目标海域）都表明其军备可靠性和稳定性堪忧，历次的实弹射击中“全部命中”等措辞更值得怀疑。
 
-唐纳德-J-川普：3,154,834票(53.2%)
+一是由于其先进科技大多数来自于国外，一旦西方世界打击技术偷窃等行为，中共的军备研制和应用就会出现断层；
 
-约瑟夫-拜登：2,679,165票(45.2%)
+二是由于中共的军备使用率和实弹射击次数相当低下，虽习上台后主抓实战和实弹射击，但也仅停留在为数不多的军演中；
 
-总投票率：创纪录地74%！
+且军演中做作和参假成分居多，日常训练中更是少见，使用次数的稀少不仅严重偏离“实战化”要求，更导致装备精度和可靠性的不确定性以及指挥官发射经验的匮乏，相应的战力更是大打折扣，远远比不上用炮弹、导弹喂出来的美军。
 
-原推如下：
+新闻来源：
+[https://mil.huanqiu.com/article/40thdeiOQlH](https://mil.huanqiu.com/article/40thdeiOQlH)
 
-
-
-> The results of the Ohio 2020 general election are officially certified!
-> 
-> Nearly 6 million Ohioans made their voice heard — a new record. See the results at [https://t.co/Nf7ttR2hSI](https://t.co/Nf7ttR2hSI). 
-> 
-> Congratulations, Ohio! [pic.twitter.com/QJ9aHDAEZJ](https://t.co/QJ9aHDAEZJ)
-> — Frank LaRose (@FrankLaRose) [November 27, 2020](https://twitter.com/FrankLaRose/status/1332353721771102209?ref_src=twsrc%5Etfw)
-
-
-
-同时，俄亥俄州由于简化和增加了邮递投票的信息，显著降低了缺席投票被拒绝的比例。该州18名选举人将于12月14日在州议会参议院大厅投票。
-
-译者评述：俄亥俄州被认为是摇摆州（即投票主导方向不定，两党都有可能获胜）。自俄亥俄州加入美国联邦以来，除了1944年、1960年以外，每次总统选举俄亥俄州的选举人票都投给了最终获胜的候选人。在美国总统选举史上每一名共和党籍总统都是在拿下俄亥俄州的情况下入主白宫。
-
-因此，川普总统现在拿下俄亥俄州选举认证结果，应该为他二次连任，再次入主白宫铺平了道路。
-
-原文链接： [https://www.oann.com/ohio-confirms-election-results-declaring-president-trump-winner/](https://www.oann.com/ohio-confirms-election-results-declaring-president-trump-winner/)
-
-翻译： 文彩
-
-校对：卡拉马佐夫姐姐
-
-2+
+0

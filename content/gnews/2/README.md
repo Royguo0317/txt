@@ -1,24 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【点睛要闻】突发! 佐治亚州法官围绕大选非法计票, 问题一天变更三次立场
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/604189/)
+## 弗林将军指出中共使用信息战对美利坚合众国发动了袭击，并操控了历史上最大选举欺诈
+` GM101` [轉載自GNews](https://gnews.org/zh-hans/604283/)
 
-作者：Shawn【㊙️翻Gnews原创组】
-责编：Skagen
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30053815/Picture36-3.png)图片来源：Twitter/Lin Wood
-11月29日下午佐治亚州的美国总统大选选情已经进入到郭文贵先生很早就说过的滑稽阶段了。之所以说滑稽，是因为佐治亚北区亚特兰大分院的法官提摩西·巴顿（Timothy Batten, Sr.）围绕同一个案子，在一天之内三次变更判决立场。法官玩起了“变戏法”，这的确让人匪夷所思且瞠目结舌。
+美东时间11月29号，迈克尔·弗林将军至川普总统无罪赦免后，首次接受了《[世界观周末](https://www.worldviewweekend.com/tv/video/wvw-tv-exclusive-lt-general-michael-flynns-first-interview-president-trumps-pardon)》（  [Worldview Weekend）](https://www.worldviewweekend.com/tv/video/wvw-tv-exclusive-lt-general-michael-flynns-first-interview-president-trumps-pardon)的采访。弗林将军指出中共使用信息战对美利坚合众国发动了袭击，并与叛逆的民主党人和全球化主义者制造了美国历史上最大的欺诈选举，美国处在十字路口，美国人正在度过历史最危险的时期。
 
-当地时间29日下午将近两点，在佐治亚州为川普总统而战的大律师林·伍德（Lin Wood）发Twitter说，法官巴顿发出了紧急禁止令。该判决命令”被告（州政府）维持现状并暂时禁止在佐治亚州抹去或重新设置任何投票机数据，直到法院有进一步的命令”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30053850/Picture37-4.png)图片来源：大律师林·伍德推特截图
-过了一个多小时之后，即下午两点多，巴顿法官发出第二次判决令，翻转了1个小时前的禁令。法官拒绝了西德尼‧鲍威尔（Sidney Powell）和伍德大律师所代表的原告要求停止非法机票和删减投票机数据的诉求。理由是躲猫腻（Dominion）选票机器归联合县（Union County等县区）所有，佐治亚州政府不拥有且无法控制这些机器。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30053858/Picture38-4.png)图片来源：法庭第二次判决令截图
-伍德发推对巴顿法官这一反转判决感到吃惊，居然在一个多小时里推翻了他自己发出的禁止令。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30053903/Picture39-2.png)图片来源：大律师林·伍德推特截图
-第三次判决是在当天晚上10点10分，巴顿法官判决又改为原来的有效判决，但是将该临时限制令设定为10天内有效，即禁止被告人佐治亚州政府更改、销毁或刪除，或允許更改、销毁或刪除科布县（Cobb）、格威內特县（Gwinnett）和切罗基县（Cherokee）任何躲猫腻（Dominion）投票机上的任何软件或数据。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30053922/Picture40-4.png)图片来源：法庭第三次判决令截图
-短短一天的时间，法官一会判原告赢，一会判原告输，但最后还是判原告赢了。所以林伍德律师发推说，“鲍威尔和我赢了，然后输了，但最终还是赢了。绝不放弃追求真理以实现正义”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30053927/Picture41-2.png)图片来源：大律师林·伍德推特截图
-（本文仅代表作者个人观点）
+弗林将军认为美国正经历一场“颜色革命”，或称为不流血的政变，色彩革命的关键在于政变领导人让主流媒体站在他们一边。正如拜登竞选活动充分利用了主流媒体和大型科技社交媒体平台，并掩盖了其欺诈性选票的所有证据。
+
+弗林将军指出共产主义中国加快了称霸全球的计划，中共与叛逆的民主党人和全球化主义者在2016年大选操控失败后，使用邮寄选票、Dominion和SmartMatic 软件系统等舞弊方式企图操控2020年美国大选。
+
+弗林将军表示《美国宪法》规定每位合格的成人选民，无论您是百万富翁还是贫民，均每人拥有一票，否则美国的自由民主立国之本将不复存在。弗林将军坚信坚信川普总统以压倒性优势取胜，并动员爱国者们像朱利安尼、鲍威尔、林伍德一样勇敢战斗捍卫美国自由民主体制。
 
 0

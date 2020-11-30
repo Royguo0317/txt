@@ -1,40 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 罗斯柴尔德家族拥有的法国巴黎银行着火
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/603714/)
+## 【点睛要闻】突发! 佐治亚州法官围绕大选非法计票, 问题一天变更三次立场
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/604189/)
 
-整撰：文錦
-复核：文非
+作者：Shawn【㊙️翻Gnews原创组】
+责编：Skagen
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30053815/Picture36-3.png)图片来源：Twitter/Lin Wood
+11月29日下午佐治亚州的美国总统大选选情已经进入到郭文贵先生很早就说过的滑稽阶段了。之所以说滑稽，是因为佐治亚北区亚特兰大分院的法官提摩西·巴顿（Timothy Batten, Sr.）围绕同一个案子，在一天之内三次变更判决立场。法官玩起了“变戏法”，这的确让人匪夷所思且瞠目结舌。
 
-29日，一些蒙面人放火焚烧作为国家象征之一的法兰西银行大楼，而消防员则努力通过被警察围栏，临时路障和焚烧垃圾所阻挡的街道到达现场。
-
-
-
-> Certains individus masqués ont mis le feu au bâtiment de la Banque de France, un des symboles de l'État. [#28novembre](https://twitter.com/hashtag/28novembre?src=hash&amp;ref_src=twsrc%5Etfw) [#MarcheDesLibertes](https://twitter.com/hashtag/MarcheDesLibertes?src=hash&amp;ref_src=twsrc%5Etfw) [#StopLoiSecuriteGlobale](https://twitter.com/hashtag/StopLoiSecuriteGlobale?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/7nJUk3KMAK](https://t.co/7nJUk3KMAK)
-> — Nadège Abderrazak (@Nadege\_RTFrance) [November 28, 2020](https://twitter.com/Nadege_RTFrance/status/1332737696414851072?ref_src=twsrc%5Etfw)
-
-
-
-近期，法国许多大城市组织了抗议活动，包括巴黎，马赛，里昂，布雷斯特和尼斯，尽管有人对Covid-19表示担忧，但仍有数千人参加。主要活动发生在首都的共和国广场一带。
-
-抗议活动是由工会组织的，但他们有许多支持者。黄背心运动是由日益严重的社会和经济不平等现象引发的，而且几个月来一直是马克龙总统的主要问题。
-
-而抗议活动的升级则是源于一项有争议的关于公共安全的法律草案，根据该草案，对执勤警官进行拍摄可能会处以巨额罚款。为什么这项拟议的法律引起了如此大的愤怒？因为本周在网上泄露出一条法国警察殴打和种族虐待黑人音乐制作人Michel Zecler的视频。21日，因为没有戴面罩Michel在返回工作室时遭到三名警察的尾随，并对其施暴和关押。
-
-
-
-> Une pluie de coups et des mensonges : retour sur le passage à tabac du producteur de musique Michel Zecler par trois policiers [https://t.co/gRH0vSnLcn](https://t.co/gRH0vSnLcn) via [@lemondefr](https://twitter.com/lemondefr?ref_src=twsrc%5Etfw)
-> — maryline baumard (@marylinebaumard) [November 27, 2020](https://twitter.com/marylinebaumard/status/1332360162435272705?ref_src=twsrc%5Etfw)
-
-
-
-而对本周议会下院批准了这项公共安全法草案，示威者表示极大的愤怒。该条款背后的理由是，要保护警队成员免受诋毁和网络骚扰，对违抗者将处以45,000欧元（53,450美元）甚至一年的监禁。批评人士说，这条法案限制了新闻自由，将被用来威吓那些想揭露警察的野蛮行为和其他形式的不当行为的人。
-
-29日，巴黎陷入混乱，多个城市在大规模抗议警察暴行的活动中出现了暴力冲突和纵火。警察调配催泪瓦斯，闪光灯和水炮。虽然尚不清楚冲突中有多少名抗议者受伤，但当地媒体报道说，法国全国至少有37名警察受伤，至少逮捕了46名示威者。
-
-参考链接：
-[https://www.rt.com/news/508106-france-protest-filming-police/](https://www.rt.com/news/508106-france-protest-filming-police/)
-[https://www.lemonde.fr/societe/article/2020/11/27/interpellation-d-un-producteur-de-musique-une-pluie-de-coups-et-de-mensonges\_6061286\_3224.html](https://www.lemonde.fr/societe/article/2020/11/27/interpellation-d-un-producteur-de-musique-une-pluie-de-coups-et-de-mensonges_6061286_3224.html)
+当地时间29日下午将近两点，在佐治亚州为川普总统而战的大律师林·伍德（Lin Wood）发Twitter说，法官巴顿发出了紧急禁止令。该判决命令”被告（州政府）维持现状并暂时禁止在佐治亚州抹去或重新设置任何投票机数据，直到法院有进一步的命令”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30053850/Picture37-4.png)图片来源：大律师林·伍德推特截图
+过了一个多小时之后，即下午两点多，巴顿法官发出第二次判决令，翻转了1个小时前的禁令。法官拒绝了西德尼‧鲍威尔（Sidney Powell）和伍德大律师所代表的原告要求停止非法机票和删减投票机数据的诉求。理由是躲猫腻（Dominion）选票机器归联合县（Union County等县区）所有，佐治亚州政府不拥有且无法控制这些机器。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30053858/Picture38-4.png)图片来源：法庭第二次判决令截图
+伍德发推对巴顿法官这一反转判决感到吃惊，居然在一个多小时里推翻了他自己发出的禁止令。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30053903/Picture39-2.png)图片来源：大律师林·伍德推特截图
+第三次判决是在当天晚上10点10分，巴顿法官判决又改为原来的有效判决，但是将该临时限制令设定为10天内有效，即禁止被告人佐治亚州政府更改、销毁或刪除，或允許更改、销毁或刪除科布县（Cobb）、格威內特县（Gwinnett）和切罗基县（Cherokee）任何躲猫腻（Dominion）投票机上的任何软件或数据。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30053922/Picture40-4.png)图片来源：法庭第三次判决令截图
+短短一天的时间，法官一会判原告赢，一会判原告输，但最后还是判原告赢了。所以林伍德律师发推说，“鲍威尔和我赢了，然后输了，但最终还是赢了。绝不放弃追求真理以实现正义”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30053927/Picture41-2.png)图片来源：大律师林·伍德推特截图
+（本文仅代表作者个人观点）
 
 0

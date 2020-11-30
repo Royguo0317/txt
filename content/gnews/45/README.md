@@ -1,64 +1,111 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共体制下的芯片行业遭遇“烂尾潮”
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/603352/)
+## 赞扬中共脱贫向中共下跪的莫里森要求赵立坚道歉的照片啥来头
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/603484/)
 
-整撰：文錦
-复核：WENJUN
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003627/%E5%B0%81%E9%9D%A2-119.jpg)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-中共媒体《网易新闻》报导，11月28日，中共工信部副部长王志军在北京举行的“第二届中国发展规划论坛”上表示，前些年，在钢铁、水泥、电解铝等领域存在着重复建设和产能过剩，包括光伏等新兴产业也出现重复建设。
+据[**环球时报**](https://weibo.com/huanqiushibaoguanwei) [2020年11月30日11：34](https://weibo.com/1974576991/Jwh9EenQy?from=page_1002061974576991_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0) 已编辑
 
-王志军说，目前芯片制造等行业也出现了盲目投资和烂尾项目，前一阶段集成电路制造方面的投资也被爆出造成巨大的损失，需要规划和加强监督。
+【快讯：澳大利亚总理莫里森要求中国道歉】据澳大利亚天空新闻台报道，澳大利亚总理斯科特·莫里森要求中国正式道歉，理由是中方“发布和伪造一名澳大利亚士兵割喉儿童的宣传图”。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29232035/10-28.png)
+莫里森在新闻发布会上说：“这完全是令人发指的，在任何基础上都是站不住脚的……中国政府应该为这一帖子的发布而感到羞愧，这贬低了在世人眼中的他们的形象。”他还称，世界各国都在关注北京如何应对澳大利亚与中国关系中的紧张局势。
 
-武汉弘芯半导体制造有限公司投资超千亿、运行三年的芯片项目，被披露陷入“烂尾”危机
+莫里森称，澳大利亚方面正在寻求推特删除赵立坚30日发布这张“令人反感”的图片。 此前，中国外交部发言人赵立坚敦促澳洲对最近的战争罪指控进行调查，并在推文中引用了画家[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at) 的讽刺漫画，漫画中一名澳大利亚士兵用刀抵着一名儿童的喉咙，上面还配有文字“不要害怕，我们来给你们带来和平”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30004236/0029D7FZly1gl71hj3rvhj60dc09l74u02.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003527/0029D7FZly1gl71hiymvtj60fm0fhgn202-1.jpg)
+这幅照片见于[Lijian Zhao 赵立坚](https://twitter.com/zlj517)[@zlj517于](https://twitter.com/zlj517)[2020年11月30日9：02](https://twitter.com/zlj517/status/1333214766806888448)发布的推文：
 
-**发展芯片产业后的乱象丛生**
+[China government account](https://help.twitter.com/rules-and-policies/state-affiliated-china)
 
-2014年国务院颁布《国家集成电路产业发展推进纲要》，由中央财政、国开金融、中国移动设立并启动产业投资基金后，全国各地掀起芯片产业发展热潮。首期募集资金超过1300亿元，于是乎动辄数百亿元乃至千亿元的项目如雨后春笋般陆续上马。
+Shocked by murder of Afghan civilians & prisoners by Australian soldiers. We strongly condemn such acts, &call for holding them accountable.
 
-芯片行业成为资本市场的牺牲品
+震惊于澳大利亚士兵杀害阿富汗平民和囚犯。 我们强烈谴责此类行为，并要求追究其责任。
 
-据悉，一些地方政府通过投资基金等方式为上述停摆项目投入了大量资金——有的投入数千万元的研发资金，有的花费数亿元购买技术授权，还有的在建设厂房、发放工资、购买技术授权等方面合计用去数十亿元。
 
-据企查查数据显示，我国芯片相关企业的数量在今年上半年增长迅速。截至7月20日，我国共有芯片相关企业4.53万家，仅今年二季度就新注册企业0.46万家，同比增长207%，环比增长130%。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29232002/101-3.png)
+> Shocked by murder of Afghan civilians & prisoners by Australian soldiers. We strongly condemn such acts, &call for holding them accountable. [pic.twitter.com/GYOaucoL5D](https://t.co/GYOaucoL5D)
+> — Lijian Zhao 赵立坚 (@zlj517) [November 30, 2020](https://twitter.com/zlj517/status/1333214766806888448?ref_src=twsrc%5Etfw)
 
-近百家企业扎堆竞争，这些企业的毛利率远低于国际水平，该领域的大部分高端市场也要依赖国际企业供应。一些本应主导投资的大股东或“0”出资或出资极少，或以收取巨额技术授权费等各种隐蔽的方式变相收回了出资。芯片行业盲目发展的隐患已呈现，资本不以潜心行业发展为根本，玩转政策迅速圈钱是其根本目的。
 
-**“中国芯”必然遭遇烂尾潮**
 
-一切皆有因果。在短短一年多时间里，全国各地的多个投资目标百亿元级别的半导体项目纷纷停摆。如被称为大陆半导体国家队的紫光集团，近期传出2020年上半年负债超2,000亿元人民币，成为近期大陆晶片投资烂尾项目规模最大的集团。
+那么这幅照片来自哪里呢？在对图片进行历史消息查证后，可以看到以下轨迹——
 
-中共媒体称，江苏、四川、湖北、贵州、陕西等一些地方政府盲目支持半导体项目发展及追求政绩，造成国有资产损失的例子比比皆是，令人触目惊心。
+1、[乌合麒麟](https://www.acfun.cn/u/39283340.aspx)于2020年11月24日发布的[和平之师](https://www.acfun.cn/a/ac20012868) ：
 
-南京经济技术开发区的德科码（南京）半导体科技有限公司，这个堪比南京台积电的“明星公司”规划投资30亿美元，今已沦为欠薪、欠工程款、欠借款的半拉子项目，办公场所早已人去楼空。目前与项目实际到资的2.5亿元对应的股权由南京经济技术开发区下属平台接手。
+以下为谷歌搜索索引——
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29232027/12-14.png)
+[和平之师 – AcFunwww.acfun.cn*› …*](https://www.acfun.cn/a/ac20012868)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003626/21-5.jpg)
+3143 × 2000 · 6 天前 — 谁在呼叫车队： 回复@小姑娘的大叔: 我还以为是薅羊毛的意思，仔细看才发现刀上有血…… 还有6条回复&gt;. 全部评论. UP 狂拽酷霸吊炸天.
 
-位于南京经济技术开发区的南京德科码项目厂区内外杂草丛生，记者从铁围栏向内看去，厂房还是未完工的毛坯状态
+以下为[乌合麒麟](https://www.acfun.cn/u/39283340.aspx)于2020年11月24日发布的[和平之师](https://www.acfun.cn/a/ac20012868)的网络截图——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003659/22-7.png)
+2、2020年11月26日澳大利亚《沃里克每日报》报道同内容并配同图片，但现在只有网络搜索索引，报道内容已经404，以下为搜索索引——
 
-总投资高达1,280亿元的武汉弘芯半导体制造有限公司濒临破产。 2019年12月，该公司为首台高端光刻机进厂举行了隆重的仪式，如今，这台“全新尚未启用”的光刻机已被抵押给银行。
+### [曝光後，9名澳大利亞士兵先後死亡，疑畏罪自殺 …](https://www.google.com/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=web&amp;cd=&amp;cad=rja&amp;uact=8&amp;ved=2ahUKEwjsh_uhvKntAhWWeisKHR2VA-E4ChAWMAd6BAgIEAI&amp;url=http%3A%2F%2Fread01.com%2FAzQL3g0.html&amp;usg=AOvVaw14UlpClC5OFmmqJ8D25qw_)
 
-江苏德淮半导体有限公司处于“半停工”状态。该公司2016年成立时规划总投资450亿元，2018年对外宣布“德淮半导体项目一期正式投产”，2019年底开始有员工通过省长信箱、起诉等方式讨薪。当地政府部门组建了相关工作组介入公司，推进相关盘活工作。
+[read01.com › 軍事](https://www.google.com/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=web&amp;cd=&amp;cad=rja&amp;uact=8&amp;ved=2ahUKEwjsh_uhvKntAhWWeisKHR2VA-E4ChAWMAd6BAgIEAI&amp;url=http%3A%2F%2Fread01.com%2FAzQL3g0.html&amp;usg=AOvVaw14UlpClC5OFmmqJ8D25qw_)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003626/21-5.jpg)
+640 × 406 · 4 天前 — 當地時間11月25日，據澳大利亞《沃里克每日報》報導，自澳大利亞軍對屠殺平民這一醜聞曝光之後，短短的三周時間內，已有9名現役或退伍的 …
 
-在四川格芯（成都）集成电路制造有限公司已停业。该公司2017年由美国芯片代工企业格罗方德和成都市政府合作组建，规划投资90.53亿美元，当时被称为“格罗方德在全球投资规模最大、技术最先进的生产基地”。截至停摆，其运营主体只是一座制造工艺为180纳米和130纳米的芯片代工厂，而这座工厂仅仅只是接收了美国格罗方德公司在新加坡工厂的技术和旧设备。
+3、2020年11月30日9：02赵立坚用这幅照片发推并诬蔑澳大利亚士兵犯有战争罪行；
 
-贵州华芯通半导体技术有限公司仍在破产清算。2016年，贵州省政府瞄准了对产业生态要求极高的服务器处理器（CPU），投入数十亿元资金与美国高通公司合作组建华芯通。3年后，华芯通在商业上难以为继，宣布关停。
+4、澳大利亚总理要求中共道歉——30/11/2020|5min[Scott Morrison demands apology from China for doctored ADF propaganda](https://www.skynews.com.au/details/_6212968703001)，这则新闻的时间戳现在不清楚，但是我们可以通过[**环球时报**](https://weibo.com/huanqiushibaoguanwei) [2020年11月30日11：34](https://weibo.com/1974576991/Jwh9EenQy?from=page_1002061974576991_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0) 已编辑的发布时间判断莫里斯谴责的时间在2020年11月30日9：02至11：34之间。
 
-陕西坤同半导体科技有限公司陷入困境，核心高管尽数离职。该公司2018年成立，原拟建设第6代柔性屏生产线。
+那么赵立坚上一次与莫里斯的隔空对战是在什么时间呢？据海客新闻2020年11月24日发布的[澳总理称没有哪个国家能像中国让这么多人脱贫 赵立坚明确回应](https://haokan.baidu.com/v?vid=8937323108235461716&amp;pd=bjh&amp;fr=bjhauthor&amp;type=video)，
 
-河北石家庄的昂扬公司IGBT芯片项目，总投资10亿元人民币，占地255亩，曾是河北省“重点项目”，但2018年该项目停摆。
+在2020年11月24日莫里森闪电对中共下跪，中共赵立坚闪电表扬，然后这么巧的是2020年11月24日[乌合麒麟](https://www.acfun.cn/u/39283340.aspx)于2020年11月24日发布了[和平之师](https://www.acfun.cn/a/ac20012868)，两天后的11月26日澳大利亚《沃里克每日报》发布同样内容的报道然后删除，11月24日的六天后赵立坚发布这条假照片，然后莫里森闪电抗议，然后环球时报闪电刊发消息，然后呢？
 
-针对最近一年多来半导体项目烂尾事件的频频发生，北京清华大学教授魏少军11月6日在深圳举行的一场论坛上表示，大陆半导体火热的有点过头，有点不像话。在某种程度上，大基金更像是为企业扩张、上市而设立的资金。魏少军认为，中国要成为半导体行业领袖还需要很长时间。要尊重产业发展规律，要克服急功近利冒进式的发展，虚心向美国半导体业学习，加大投入。
+然后是中共大外宣沈逸夸[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at) 干得漂亮
 
-中共的官僚体制最大的特点就是利益至上、弄虚作假。所有行业的发展在这种畸形体制下都会成为中共盗国贼中饱私囊的牺牲品。中共盗国贼将老百姓的血汗钱洗劫一空，留给老百姓满目苍夷的环境。只有消灭中共，才能还14亿人民蓝天、白云和希望，还各行各业的良性发展，还中国一个美好的未来。
+据[**沈逸**](https://weibo.com/shyfd?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2020年12月30日12：07](https://weibo.com/1157864602/JwhmVa0xr?ref=home&amp;rid=5_0_8_2867739836708379003_6_0_0) 来自 [HUAWEI Mate30 Pro 5G](https://app.weibo.com/t/feed/5rfh3P)
 
-参考链接：
-[https://money.163.com/20/1128/11/FSH43U7F002580S6.html](https://money.163.com/20/1128/11/FSH43U7F002580S6.html)
-[https://finance.ifeng.com/c/80C1NDzmBsU](https://finance.ifeng.com/c/80C1NDzmBsU)
+[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at) 干得漂亮
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003802/23-2.png)
+那么[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at)的新浪微博是怎么说的呢？我们看到了这幅图片的最早发布时间——
 
-0
+据[**乌合麒麟**](https://weibo.com/qilinshendian?refer_flag=1005055014_) [11月23日 20:47](https://weibo.com/1566936885/JvgMubTWg?from=page_1005051566936885_profile&amp;wvr=6&amp;mod=weibotime) 来自 [360安全浏览器](https://app.weibo.com/t/feed/1tqBja)
+
+“和平之师”  ​​​​
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003854/EoCHvHjVkAIWIMi.jpg)
+然后对于赵立坚的转推，[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at)是怎么说的呢？
+
+据[**乌合麒麟**](https://weibo.com/qilinshendian?refer_flag=1005055013_)[2020年11月30日10:16](https://weibo.com/1566936885/JwgDMh35J?from=page_1005051566936885_profile&amp;wvr=6&amp;mod=weibotime) 来自 [iPhone 7](https://app.weibo.com/t/feed/2J8wRB) 已编辑
+
+赵司威武！！抽他丫的！！给我破防！！！  ​​​​
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003920/32.png)
+然后对于莫里森的谴责[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at)是怎么评价的呢？
+
+据[**乌合麒麟**](https://weibo.com/qilinshendian?refer_flag=1005055013_) [2020年11月30日 11:20](https://weibo.com/1566936885/Jwh3YyY4t?from=page_1005051566936885_profile&amp;wvr=6&amp;mod=weibotime) 来自 [iPhone 7](https://app.weibo.com/t/feed/2J8wRB)
+
+听说老莫对我的图很有意见？ ​​​​
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30004001/30.png)
+至此我们大致可以看清中共这次网络超限战的脉络了——
+
+1、此次网络超限战参与者：[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at)、澳大利亚《沃里克每日报》、战狼赵立坚、澳大利亚总理莫里森、以环球时报为代表的中共媒体、以沈逸为代表的网络战斗人员；
+
+2、此次网络超限战时间线：
+
+第一步：[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at)放假料；
+
+第二步：中共在澳大利亚的大外宣同步刊发报道；
+
+第三步：赵立坚发推文引用；
+
+第四步：莫里森谴责；
+
+第五步：国内媒体报道；
+
+第六步：网络战斗员沈逸及原始放料者开始邀功；
+
+3、此次网络超限战的目的：掩盖莫里森对中共下跪的事实，营造莫里森对中共强硬的形象，然后继续在桌子底下对中共下跪
+
+我非常希望我猜错了，但是我们要把沈逸同学的党员身份再一次重复如下——
+
+沈逸：男，汉族，籍贯：上海，所属党支部：复旦国关教1支部（国际政治系支部），身份证号码：31010419761106081\*，电话号码：13\*16020756，学历：博士研究生。（注：为避免泄露个人完整信息，身份证号码及电话号码中均有一个数字以\*取代，在泄露到外网的1957239名上海中共党员信息原始表格中这个\*代表0至9十个数字中的某一个数字）
+
+（文章内容仅代表作者个人观点）
+
+1+

@@ -1,45 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】港府调查：境外公司驻港数目十年来首跌 英美公司跌幅最大 4％公司有意撤资
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/603650/)
+## 《路德社》精选新闻快讯：路德社在西方的影响力大增
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/603747/)
 
-搜集：诸水响声、文燕
+出品《路德社》 编辑：路德社精选新闻专栏组
 
-编撰：文燕
+40Head发推路德社对拜登寻求赦免的节选视频：这是那位踢爆亨特拜登电脑门的中国时评主持人，事实证明他所言为真。众所周知，对于叛徒没有赦免。拜登可能希望投降，但他要对曾经的所作所为负责。
 
-审核：MY
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30013224/1130%E9%85%8D%E5%9C%96-ok.jpg)图片素材：香港 © REUTERS – TYRONE SIU摄影
-据【禁闻】11月29日讯，港府统计处在本年6月1日至9月中以自填问卷方式就海外公司的驻港公司情况展开调查，即有关数据已反映了去年反对修订逃犯条例运动、武汉肺炎疫情以及北京为香港制订国安法对香港商业环境的影响。
+40Head tweeted：This appears to be the same Chinese Journalist / Talk show guy that broke the story on Hunter Biden’s laptop…which proved to be absolutely true. It should be known though, there will be no pardons for traitors. Biden may wish to concede but he won’t get away with what he did.
 
-港府数字显示，境外母公司的驻港公司数目今年只有9025间，比去年略少15间，跌幅轻微，但却是十年来首次下跌；另有4%的境外公司表示有意在未来三年从香港撤资，较去年增加一个百分点。而境外公司的雇用人数亦大减至48.3万人，是至少近五年来首次下跌，跌幅达2%。
 
-若按地区划分，外资撤走以及中资进驻的趋势十分明显，境外在港公司总数排第二的是日本，有1398间，按年减少15间；而美国则大减61间至至1283间，减幅是4.5%；排第四的英国减幅最大，有48撤走，令总数降至665间，减幅为6.7%。
 
-中文大学经济学系副教授庄太量指出，全球经济动力受损，令不少外资或要把资本调回本国而放弃驻港公司，而去年的反修例冲突，亦可能削弱了部分外资的信心，最终决定搬离或结束香港据点。
+> This appears to be the same Chinese Journalist / Talk show guy that broke the story on Hunter Biden's laptop…which proved to be absolutely true. It should be known though, there will be no pardons for traitors. Biden may wish to concede but he won't get away with what he did. [https://t.co/uqu0hea603](https://t.co/uqu0hea603)
+> — 🇺🇸 𝟜𝟘ℍ𝕖𝕒𝕕 🇺🇸 ⭐⭐⭐ 🇺🇸 (@40\_head) [November 29, 2020](https://twitter.com/40_head/status/1333032219049226242?ref_src=twsrc%5Etfw)
 
-战友点评：
 
-美国政府早前发出的行政命令，除了配合《香港自治法》的实施外，更公布一系列与香港割席的措施，包括各政府部门须对香港终止一切经济、出入口、签证、移交逃犯等安排。
 
-美国作为全世界政治、军事和经济的领头羊，我们不能忽略华府对香港政策的改变在世界带来的影响。
+自从119揭露中共病毒以来，路德社已经成为中文世界首屈一指传播事实真相的媒体。而此次通过引爆亨特拜登硬盘门和中共对美国大选的操纵，路德社在西方世界的影响力也与日俱增。被主流和社交媒体欺骗的美国民众，越发清醒地意识到美国引以为傲的言论自由早已岌岌可危，他们渴望了解事实真相，不愿被蓝金黄的政客和媒体玩弄欺骗。因此越来越多的美国人民关注路德社，传播爆料革命。现在路德社已经成为影响世界局势的重要力量之一。
 
-在接踵而至的美国对港疏离和制裁措施，不可能不影响外商应否继续留在香港的决定。经济以外，美国在学术、科技、人文、执法等各方面与香港断交，令香港的国际风采失色，从而减少对其他国家的商界和人才的吸引力。外商可以不理会美国取消香港的特殊地位，但他们对【港版国安法】第38条有关非港人在港外的言行可触犯法例的规定，不可能不关注。
-
-林郑在她11月25日的施政报告，把部分外国政府对【港版国安法】的批评，形容为「无理抨击和诋毁」。然而不计内地，这批包括美、英、欧盟、日本等政府是香港最重要的贸易、金融伙伴。它们对香港的政治环境的看法，以及已采取或可能采取的相应措施，都会影响其国民及企业来港工作、投资、经营的意愿。
-
-林郑把香港这全世界最先进的城市，拉下到中共国普通城市的水平。林郑既想保留香港的国际地位赚钱，但又把香港的法律变成内地法律。
-
-施政报告提到，政府将会推出大型的海外宣传推广策略，向全球商务人士和各式人才推广香港。其实，能吸引企业家或科技人才来港投资或工作，是香港自港英时代延用的那套符合民主国家价值观的法治和自由，这套法治才是香港在亚洲享有独特优势的根本原因。
-
-前公务员事务局长王永平指，「香港能否在国安时代下保持这项优势，靠的不是大型宣传，而是让国际社会从港府执行国安法的过程中看到的种种事实」。
-
-以上观点仅代表笔者本人
-
-资料来源：禁闻网、法广网
-
-[https://www.bannedbook.org/bnews/cnnews/hknews/20201129/1439103.html](https://www.bannedbook.org/bnews/cnnews/hknews/20201129/1439103.html)
-
-[https://www.rfi.fr/cn/%E6%B8%AF%E6%BE%B3%E5%8F%B0/20201129-%E6%B8%AF%E5%BA%9C%E8%B0%83%E6%9F%A5-%E5%A2%83%E5%A4%96%E5%85%AC%E5%8F%B8%E9%A9%BB%E6%B8%AF%E6%95%B0%E7%9B%AE%E5%8D%81%E5%B9%B4%E6%9D%A5%E9%A6%96%E8%B7%8C-%E8%8B%B1%E7%BE%8E%E5%85%AC%E5%8F%B8%E8%B7%8C%E5%B9%85%E6%9C%80%E5%A4%A7-4-%E5%85%AC%E5%8F%B8%E6%9C%89%E6%84%8F%E6%92%A4%E8%B5%84](https://www.rfi.fr/cn/%E6%B8%AF%E6%BE%B3%E5%8F%B0/20201129-%E6%B8%AF%E5%BA%9C%E8%B0%83%E6%9F%A5-%E5%A2%83%E5%A4%96%E5%85%AC%E5%8F%B8%E9%A9%BB%E6%B8%AF%E6%95%B0%E7%9B%AE%E5%8D%81%E5%B9%B4%E6%9D%A5%E9%A6%96%E8%B7%8C-%E8%8B%B1%E7%BE%8E%E5%85%AC%E5%8F%B8%E8%B7%8C%E5%B9%85%E6%9C%80%E5%A4%A7-4-%E5%85%AC%E5%8F%B8%E6%9C%89%E6%84%8F%E6%92%A4%E8%B5%84)
+[援引原文](https://twitter.com/40_head/status/1333032219049226242)
 
 0

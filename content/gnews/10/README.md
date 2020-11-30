@@ -1,9 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/27/2020 文贵先生直播精华
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/604178/)
+## 11/28/2020 战斗室采访前纽约警察局长: 亚利桑那州需要像宾夕法尼亚州一样举行立法机构听证会; 并且检查有问题的投票机的可能性。
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/604297/)
 
-**By：【秘密翻译组G-Translators】**
+11/28/2020 战斗室采访前纽约警察局长: 亚利桑那州需要像宾夕法尼亚州一样举行立法机构听证会。
+
+
+
+11/28/2020 战斗室采访前纽约警察局长：需要检查有问题的投票机的可能性。
+
+
+
+By：【秘密翻译组G-Translators】
 
 0
