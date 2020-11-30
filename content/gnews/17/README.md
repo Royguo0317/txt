@@ -1,37 +1,111 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP从“香烟袅袅”到“青烟袅袅”
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/603166/)
+## 赞扬中共脱贫向中共下跪的莫里森要求赵立坚道歉的照片啥来头
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/603484/)
 
-作者：晓清新 校对：文泽 编辑：李小甜KR
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003627/%E5%B0%81%E9%9D%A2-119.jpg)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-2020年11月10日，中共对各大企业挥起了大刀，起草的《反垄断指南》中国27家巨头被约谈。包括：阿里巴巴、腾讯、京东、美团、58同城、百度、奇虎360、搜狗、字节跳动、快手、滴滴、微店、新浪微博、多点、贝壳找房、拼多多、国美在线、饿了么、小红书、携程、苏宁、同程、贝贝网、云集网、蘑菇街、兴盛优选、唯品会。
+据[**环球时报**](https://weibo.com/huanqiushibaoguanwei) [2020年11月30日11：34](https://weibo.com/1974576991/Jwh9EenQy?from=page_1002061974576991_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0) 已编辑
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29223015/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2020-11-30-123210.png)
+【快讯：澳大利亚总理莫里森要求中国道歉】据澳大利亚天空新闻台报道，澳大利亚总理斯科特·莫里森要求中国正式道歉，理由是中方“发布和伪造一名澳大利亚士兵割喉儿童的宣传图”。
 
-看到这个名单，大家是不是很诧异呢？论垄断：烟草、铁路、石油、石化、银行、电力、燃气、水务、盐业，通信、教育、医疗、公路、航空客运、广播传媒等这些全都是由中共孵化的垄断行业，为何无一在名单之中？
+莫里森在新闻发布会上说：“这完全是令人发指的，在任何基础上都是站不住脚的……中国政府应该为这一帖子的发布而感到羞愧，这贬低了在世人眼中的他们的形象。”他还称，世界各国都在关注北京如何应对澳大利亚与中国关系中的紧张局势。
 
-今天我们就来了解一下中共国乃至世界最挣钱的垄断行业，它既不是腾讯也不是京东更不是阿里巴巴，实际吨位级大咖是“中国烟草”。它是真正的垄断经营，其经营主要由国家烟草局和卷烟厂完成。中共打着反垄断的旗号挥舞着大刀砍下其他企业的同时，对自己所掌控的烟草业怎么就只字不提呢？这其中是怎样的垄断操控，这庞大的利益又是多少，又到了哪里呢？中国烟草公司的规模是万亿级别的。据2019年数据显示，全年中国烟草税收总额为11770亿元，烟民平均一天内税32亿超过20个阿里，以至于有人说印钞机都干不过中国烟草。
+莫里森称，澳大利亚方面正在寻求推特删除赵立坚30日发布这张“令人反感”的图片。 此前，中国外交部发言人赵立坚敦促澳洲对最近的战争罪指控进行调查，并在推文中引用了画家[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at) 的讽刺漫画，漫画中一名澳大利亚士兵用刀抵着一名儿童的喉咙，上面还配有文字“不要害怕，我们来给你们带来和平”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30004236/0029D7FZly1gl71hj3rvhj60dc09l74u02.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003527/0029D7FZly1gl71hiymvtj60fm0fhgn202-1.jpg)
+这幅照片见于[Lijian Zhao 赵立坚](https://twitter.com/zlj517)[@zlj517于](https://twitter.com/zlj517)[2020年11月30日9：02](https://twitter.com/zlj517/status/1333214766806888448)发布的推文：
 
-据相关数据采集全球吸烟人数11亿，中共国就有3.5亿。几年前据全球顶级医学期刊《柳叶刀》发表的一项研究中表明，中共国是世界上烟草生产和消费最大的国家，吸烟率在38%以上。占世界总人口19%的中共国，吸烟人数高达3亿多，占了全世界烟民总数的1/3，比美国的人口总数还多，中国已经成为名副其实的“第一吸烟大国”。有资料统计，世界上的吸烟人数正在下降，而中国的烟民队伍却在不断扩大，中国现有烟民已超过3.5亿。
+[China government account](https://help.twitter.com/rules-and-policies/state-affiliated-china)
 
-下面我们就来看一下烟的成本，也就是卖树叶子的成本。以赫赫有名的“中华”香烟为例，一包65元的成本不到3元，要知道香烟用的原料都是相同的原料，成本普遍不高，价钱高低就在于选取的部位，高档烟一般会挑选烟的中部，香料的添加也会多一些 ，再配上华丽的烟嘴加上亮眼的包装，就算再贵的烟这些成本加起来也不到10元，“中华”香烟的市场售价高达70元，是成本价的7倍。问题的关键就在于烟草税，烟草行业一直都是纳税大户，中共对烟草实行抽重税，一包烟的成本由卷烟厂代征54.5%的烟草消费税，其中包括增值税，所得税，印花税等等，再加上利润，然后把烟卖给了烟草专卖局，专卖局再转手卖给零售商，零售商再卖给消费者，就这样一道一道下来，烟的价格就变得相当高了。
+Shocked by murder of Afghan civilians & prisoners by Australian soldiers. We strongly condemn such acts, &call for holding them accountable.
 
-其实就是成本低、暴利、重税，又是垄断行业，消费群体庞大固定，其中的收益业就显而易见。 烟草企业的高额利润通过烟草专卖制度从广大百姓身上获取，再分配给国家财政和地方政府。一个对GDP贡献率不高的产业，却能够给中共财政上缴50%以上的（烟草制造）的税收，究其根本，是“专营制度”保证了其长期是个利润率极高的企业。高额的税收贡献，来源于“垄断”和中共的黑心定价，并不来源于真正的价值创造。
+震惊于澳大利亚士兵杀害阿富汗平民和囚犯。 我们强烈谴责此类行为，并要求追究其责任。
 
-对于最底层的烟草种植人们来说，其获得的收益是很低的，但当加工成成品的时候，价格提升了几十倍甚至上百倍。而这些利润转嫁给消费者身上，分配给国家的财政、地方政府等利益相关部门。
 
-换句话说，最后这些巨额款项最后都被中共中饱私囊。什么为人民服务——毛泽东；人民的利益高于一切——邓小平；共产党是为人民谋福利的——习近平；这一切都是彻头彻尾的谎言！都是欺骗百姓和愚弄老百姓的洗脑曲目！烟草让中共赚得盆满钵满，却以牺牲人民利益，健康乃至于生命为代价。烟草业就是赤裸裸的以人民生命为代价的“垄断”！是谁在“保护”烟草暴利？是邪恶，虚假，丑陋的CCP！香烟袅袅燃烧的是烟民的钱财和生命，维护的是中共的统治，中饱的是中共几大家族的私囊。
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222122/q9Yr-fypikwt5145304.jpg)
+> Shocked by murder of Afghan civilians & prisoners by Australian soldiers. We strongly condemn such acts, &call for holding them accountable. [pic.twitter.com/GYOaucoL5D](https://t.co/GYOaucoL5D)
+> — Lijian Zhao 赵立坚 (@zlj517) [November 30, 2020](https://twitter.com/zlj517/status/1333214766806888448?ref_src=twsrc%5Etfw)
 
-邪恶的CCP学到了“取之于民”，却没有“用之于民”。中共国在“世界无烟日”期间，烟草专卖局官员还在大放厥词：“控烟就是卖国”，鼓吹“长期以来让烟草业挺直腰杆的除了财政贡献，还包括作为地方经济的主要支撑解决了就业难题等作用”。因此烟草行业的经济贡献中共当成其必须存在的理由。但事实上，对于最底层的烟草种植人们来说，其获得的收益也是少得可怜，烟草业对经济的贡献是微乎其微，烟农及烟草工人可以选择更多致富的路径。
 
-烟草仅仅是让中共染上了戒也戒不掉的毒瘾！真正戒不掉烟草的不是广大烟民，而是中共的钱袋子！烟草行业实为中共圈钱而存在！然而这些巨额的款项老百姓没有看到用于何处，也没有用于任何惠民项目，压在中国人民身上的”三座大山“医疗，教育，养老”依然存在。什么“纳税是每个公民对国家应尽的责任和义务”，“纳税光荣”，税收“取之于民、用之于民、造福于民”，是彻头彻尾的谎言！“拔最多的鹅毛，听最少的鹅叫”才是他们愿意看到的。中共自己却是一毛不拔的不锈钢公鸡！ 没有对比就没有伤害，横向与世界各国做个比较，1、在美国无论是联邦法律还是地方法律，烟草相关的税收的一部分都需要投入到公共医疗和控烟领域，美国联邦烟草增税专款专用于儿童医疗保险：2009年联邦《儿童医疗保险重新授权法案》授权政府收取328亿美元的新增烟草税，用于为730万没有医疗保险的儿童提供医疗保险补助。在地方法律层面，美国州烟草税也多用于教育和卫生：以加州为例，每包卷烟须缴纳0.87美元州烟草税,其中,0.5美元用于儿童教育，0.25美元用于控烟和医保；2、2010到2016年，澳大利亚政府将新增的100亿澳元烟草税收全部投入公共医疗，其中1亿3000万澳元将被专门用于控烟公共宣传项目。而中共对烟草业的垄断，使巨额的烟草税被装入CCP腰包，满足几大权贵家族的私欲。 完全失信于民的CCP早已被世人看穿，他们口口声声的“不忘初心”真面目到底是什么？其实就是消灭私有财产、实现共产主义，实现共产共妻，共产是共你的产，共妻是共你的妻。他的是他的，你的也是他的，消灭的是你的的财产供他们挥霍，你的妻子和儿女被他们蹂躏。
 
-文贵先生给世人的展示的盗国们的天量财富、他们的建筑艺术项目都一一验证了这点。在中共权贵们的眼里是没有国家、民族、人民的概念，他们只关心自己的权力、自己的子女，他们想世世代代骑在中国人民的头上作威作福，想让江山永远掌握在自己的子孙手中。幸运的是郭文贵先生横空出世！爆料革命应运而生！中共的美梦变成噩梦，中共青烟袅袅的时日即将到来！努力吧战友们！让我们一起埋葬他们！
+那么这幅照片来自哪里呢？在对图片进行历史消息查证后，可以看到以下轨迹——
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29221505/image2-8.png)
+1、[乌合麒麟](https://www.acfun.cn/u/39283340.aspx)于2020年11月24日发布的[和平之师](https://www.acfun.cn/a/ac20012868) ：
 
-0
+以下为谷歌搜索索引——
+
+[和平之师 – AcFunwww.acfun.cn*› …*](https://www.acfun.cn/a/ac20012868)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003626/21-5.jpg)
+3143 × 2000 · 6 天前 — 谁在呼叫车队： 回复@小姑娘的大叔: 我还以为是薅羊毛的意思，仔细看才发现刀上有血…… 还有6条回复&gt;. 全部评论. UP 狂拽酷霸吊炸天.
+
+以下为[乌合麒麟](https://www.acfun.cn/u/39283340.aspx)于2020年11月24日发布的[和平之师](https://www.acfun.cn/a/ac20012868)的网络截图——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003659/22-7.png)
+2、2020年11月26日澳大利亚《沃里克每日报》报道同内容并配同图片，但现在只有网络搜索索引，报道内容已经404，以下为搜索索引——
+
+### [曝光後，9名澳大利亞士兵先後死亡，疑畏罪自殺 …](https://www.google.com/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=web&amp;cd=&amp;cad=rja&amp;uact=8&amp;ved=2ahUKEwjsh_uhvKntAhWWeisKHR2VA-E4ChAWMAd6BAgIEAI&amp;url=http%3A%2F%2Fread01.com%2FAzQL3g0.html&amp;usg=AOvVaw14UlpClC5OFmmqJ8D25qw_)
+
+[read01.com › 軍事](https://www.google.com/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=web&amp;cd=&amp;cad=rja&amp;uact=8&amp;ved=2ahUKEwjsh_uhvKntAhWWeisKHR2VA-E4ChAWMAd6BAgIEAI&amp;url=http%3A%2F%2Fread01.com%2FAzQL3g0.html&amp;usg=AOvVaw14UlpClC5OFmmqJ8D25qw_)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003626/21-5.jpg)
+640 × 406 · 4 天前 — 當地時間11月25日，據澳大利亞《沃里克每日報》報導，自澳大利亞軍對屠殺平民這一醜聞曝光之後，短短的三周時間內，已有9名現役或退伍的 …
+
+3、2020年11月30日9：02赵立坚用这幅照片发推并诬蔑澳大利亚士兵犯有战争罪行；
+
+4、澳大利亚总理要求中共道歉——30/11/2020|5min[Scott Morrison demands apology from China for doctored ADF propaganda](https://www.skynews.com.au/details/_6212968703001)，这则新闻的时间戳现在不清楚，但是我们可以通过[**环球时报**](https://weibo.com/huanqiushibaoguanwei) [2020年11月30日11：34](https://weibo.com/1974576991/Jwh9EenQy?from=page_1002061974576991_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0) 已编辑的发布时间判断莫里斯谴责的时间在2020年11月30日9：02至11：34之间。
+
+那么赵立坚上一次与莫里斯的隔空对战是在什么时间呢？据海客新闻2020年11月24日发布的[澳总理称没有哪个国家能像中国让这么多人脱贫 赵立坚明确回应](https://haokan.baidu.com/v?vid=8937323108235461716&amp;pd=bjh&amp;fr=bjhauthor&amp;type=video)，
+
+在2020年11月24日莫里森闪电对中共下跪，中共赵立坚闪电表扬，然后这么巧的是2020年11月24日[乌合麒麟](https://www.acfun.cn/u/39283340.aspx)于2020年11月24日发布了[和平之师](https://www.acfun.cn/a/ac20012868)，两天后的11月26日澳大利亚《沃里克每日报》发布同样内容的报道然后删除，11月24日的六天后赵立坚发布这条假照片，然后莫里森闪电抗议，然后环球时报闪电刊发消息，然后呢？
+
+然后是中共大外宣沈逸夸[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at) 干得漂亮
+
+据[**沈逸**](https://weibo.com/shyfd?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2020年12月30日12：07](https://weibo.com/1157864602/JwhmVa0xr?ref=home&amp;rid=5_0_8_2867739836708379003_6_0_0) 来自 [HUAWEI Mate30 Pro 5G](https://app.weibo.com/t/feed/5rfh3P)
+
+[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at) 干得漂亮
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003802/23-2.png)
+那么[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at)的新浪微博是怎么说的呢？我们看到了这幅图片的最早发布时间——
+
+据[**乌合麒麟**](https://weibo.com/qilinshendian?refer_flag=1005055014_) [11月23日 20:47](https://weibo.com/1566936885/JvgMubTWg?from=page_1005051566936885_profile&amp;wvr=6&amp;mod=weibotime) 来自 [360安全浏览器](https://app.weibo.com/t/feed/1tqBja)
+
+“和平之师”  ​​​​
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003854/EoCHvHjVkAIWIMi.jpg)
+然后对于赵立坚的转推，[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at)是怎么说的呢？
+
+据[**乌合麒麟**](https://weibo.com/qilinshendian?refer_flag=1005055013_)[2020年11月30日10:16](https://weibo.com/1566936885/JwgDMh35J?from=page_1005051566936885_profile&amp;wvr=6&amp;mod=weibotime) 来自 [iPhone 7](https://app.weibo.com/t/feed/2J8wRB) 已编辑
+
+赵司威武！！抽他丫的！！给我破防！！！  ​​​​
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003920/32.png)
+然后对于莫里森的谴责[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at)是怎么评价的呢？
+
+据[**乌合麒麟**](https://weibo.com/qilinshendian?refer_flag=1005055013_) [2020年11月30日 11:20](https://weibo.com/1566936885/Jwh3YyY4t?from=page_1005051566936885_profile&amp;wvr=6&amp;mod=weibotime) 来自 [iPhone 7](https://app.weibo.com/t/feed/2J8wRB)
+
+听说老莫对我的图很有意见？ ​​​​
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30004001/30.png)
+至此我们大致可以看清中共这次网络超限战的脉络了——
+
+1、此次网络超限战参与者：[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at)、澳大利亚《沃里克每日报》、战狼赵立坚、澳大利亚总理莫里森、以环球时报为代表的中共媒体、以沈逸为代表的网络战斗人员；
+
+2、此次网络超限战时间线：
+
+第一步：[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at)放假料；
+
+第二步：中共在澳大利亚的大外宣同步刊发报道；
+
+第三步：赵立坚发推文引用；
+
+第四步：莫里森谴责；
+
+第五步：国内媒体报道；
+
+第六步：网络战斗员沈逸及原始放料者开始邀功；
+
+3、此次网络超限战的目的：掩盖莫里森对中共下跪的事实，营造莫里森对中共强硬的形象，然后继续在桌子底下对中共下跪
+
+我非常希望我猜错了，但是我们要把沈逸同学的党员身份再一次重复如下——
+
+沈逸：男，汉族，籍贯：上海，所属党支部：复旦国关教1支部（国际政治系支部），身份证号码：31010419761106081\*，电话号码：13\*16020756，学历：博士研究生。（注：为避免泄露个人完整信息，身份证号码及电话号码中均有一个数字以\*取代，在泄露到外网的1957239名上海中共党员信息原始表格中这个\*代表0至9十个数字中的某一个数字）
+
+（文章内容仅代表作者个人观点）
+
+1+

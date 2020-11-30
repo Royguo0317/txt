@@ -1,64 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 佐治亚州数千张川普选票未被计算
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/603037/)
+## 【Giselle专栏】应对颜色革命，川普将成为另一个林肯
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/603383/)
 
-—负责扫描选票的是Dominion公司代表，曾是民主党副总统候选人卡马拉·哈里斯竞选活动的官方摄影师
+## ——林.伍德解释给爱国者们布置作业真相
 
-作者：卡桑德拉·费尔班克斯; 发布时间2020年11月29日上午7点52分
-翻译： 康州盘古农场 – 烟波浩淼
-校对：康州盘古农场 – 一花一世界
-审核：康州盘古农场 – V
+作者：Giselle
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29232724/Picture34-3.png)图片来源：[https://www.epochtimes.com/](https://www.epochtimes.com/gb/20/3/22/n11962341.htm)
+11月29日，林.伍德在推特上给美国的爱国者们布置了一份作业：1，了解颜色革命是如何开展的。2，了解乔治·索罗斯（George Soros）的“重置”和“新世界秩序”计划。3，了解比尔·盖茨的“人口减少”目标。4，了解亚伯拉罕·林肯（Abraham Lincoln）在1861年行使权力以拯救我国的情况。
 
-一名在佐治亚州弗洛伊德郡负责扫描选票的Dominion公司代表去年曾为卡马拉·哈里斯的竞选活动担任官方摄影师。
+11月30日，林伍德在推特上的最新留言，解释了他之前给美国爱国者布置的四个任务真相，矛头直指中共：1，颜色革命始于中共国发起的COVID-19攻击；2，在各个城市里引发暴乱；3，计划并进行欺诈性的选举；4，继续增加城市暴力。“我相信川普总统已经做好了准备，我们也必须如此。”
 
-作为Dominion公司代表，现场负责扫描选票的人员之一埃里克·汤普森（Aric Thompson）。  据其领英简介，2019年他曾担任参议员哈里斯的官方摄影师。他甚至在网上有一个合集专门放置他为哈里斯拍摄的照片。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29193237/Picture1-35.png)
-此外，多个报道称，有几次扫描现场没有观察员。
+## **这是一场颠覆美国的颜色革命**
 
-希瑟·穆林斯 – 《真实的美国之声》推特：
+林.伍德在11月30日的另一则推文中称，我选择不使用被人为操纵的投票机和虚假邮件投票在另一场欺诈性选举中投票。这个国家的未来将不会由欺诈性选举决定。这与选举无关，这是一场推翻我们政府的颜色革命。
 
-佐治亚州弗洛伊德郡！据报道，一名据称是Dominion公司代表的男子负责扫描选票处，有超过3000张选票(大部分是给川普总统的)最初未被计算在内，此人似乎作为摄影师曾在卡马拉·哈里斯的总统竞选期间与她合作。
+颜色革命（Color revolution），是指20世纪80、90年代开始的一系列发生在中亚、东欧独联体国家的以颜色命名，以“和平非暴力”方式进行的政权变更运动。
 
+颜色革命最关键的因素就是控制媒体，这一点中共完全做到了。通过多年筹谋，全球各大主流媒体、社交媒体全部沦陷，成了这场颠覆运动的同谋。面对美国大选中大规模的欺诈和造假，媒体集体选择无视、遮掩，同时，对于已经觉悟的民众，社交媒体却肆无忌惮地对他们传播的真相进行封杀。林.伍德多次提及“颜色革命”，矛头直指中共利用COVID-19病毒袭击美国，勾结安提法、黒命贵、金融大鳄等，蓄意引发国内暴乱，将战火引到国内，并利用多米尼投票系统进行欺诈性选举，从而达到不费一刀一枪，和平颠覆美国政权的目的。
 
+林.伍德在推特中暗示，川普总统将像林肯总统那样，再次带来美国人民度过这场危机，赢得最终的胜利。
 
-> FLOYD COUNTY, GA! A man reported to be the Dominion Rep scanning ballots in where over 3000 votes (the majority for President Trump) went initially uncounted appears to have worked with [@KamalaHarris](https://twitter.com/KamalaHarris?ref_src=twsrc%5Etfw) as a photographer during her Presidential campaign. [@RealAmVoice](https://twitter.com/RealAmVoice?ref_src=twsrc%5Etfw) [pic.twitter.com/OlmI2Htirw](https://t.co/OlmI2Htirw)
-> — Heather Mullins – Real America’s Voice (RAV-TV) (@TalkMullins) [November 29, 2020](https://twitter.com/TalkMullins/status/1332909677219344384?ref_src=twsrc%5Etfw)
+亚伯拉罕·林肯（Abraham Lincoln）是美国第16任总统。1861年就任，直至1865年4月遇刺身亡。林肯执政时期，美国正经历其历史上最为惨烈的战争和最为严重的道德、宪政和政治危机——南北战争。经由此役，他维护联邦的完整，废除奴隶制，解放所有奴隶，增强联邦政府的权力，并推动经济的现代化。也因此美国学界和公众时常将林肯称作是美国历史上最伟大的总统之一。
 
+如今，美国也正面临着历史上最严重的道德危机：物欲横流，拜金主义甚嚣尘上，精致利己主义大行其道，民众缺乏信仰，毒品、娈童、人口贩卖等犯罪层出不穷。政治危机：三权分立形同虚设，司法系统、国防情报安全系统全面溃烂，大规模的欺诈性选举正在窃取美国人珍视的公民权利。生存危机：生化病毒还在持续不断地夺走美国人的生命，经济衰退，人民的生命财产收到严重的威胁。一场有预谋的奴役所有美国人的阴谋正在全面展开，美国已经到了生死存亡的关键时刻。
 
+林肯总统在执政生涯当中，多次利用自己的政治智慧，化解了同墨西哥的战争。而川普总统在其执政期间，也曾经多次成功地化解了与北韩、伊朗的战争，并从阿富汗、叙利亚、伊拉克等地撤军，避免多地同时作战带来的消耗，以便集中力量对付当前最大的威胁——中共。
 
-***这是弗洛伊德郡负责扫描选票的两名男子之一。他为卡马拉·哈里斯工作。据罗马市民主党委员温迪·戴维斯（Wendy Davis******）和弗洛伊德郡民主党主席卢克·马丁（Luke Martin******）称，部分扫描过程中没有观察员在场。发现超过3000******张未统计的选票。***
+1861年4月12日，在邦联攻击[萨姆特堡](https://zh.wikipedia.org/wiki/%E8%90%A8%E5%A7%86%E7%89%B9%E5%A0%A1)之后，美国北方终于团结起来，林肯开始着重于战争的军事和政治方面问题。他试图重新统一国家，并暂停人身保护令，不经审判逮捕并羁押了数千边缘州的分离派嫌疑者。1861年末，他化解了特伦特事件，从而避免了英国的介入。他运用多种复杂的政治手段，其中最为重要的是1863年的《[解放奴隶宣言](https://zh.wikipedia.org/wiki/%E8%A7%A3%E6%94%BE%E5%A5%B4%E9%9A%B6%E5%AE%A3%E8%A8%80)》，以及用军队保护脱逃奴隶，鼓励边缘州将奴隶制非法化，并推动国会通过了[宪法第十三条修正案](https://zh.wikipedia.org/wiki/%E7%BE%8E%E5%88%A9%E5%9D%9A%E5%90%88%E4%BC%97%E5%9B%BD%E5%AE%AA%E6%B3%95%E7%AC%AC%E5%8D%81%E4%B8%89%E6%9D%A1%E4%BF%AE%E6%AD%A3%E6%A1%88)，彻底废除了奴隶制。
 
-穆林斯还分享了汤普森在社交媒体上的帖子，他在帖子中抨击了唐纳德·川普总统:
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29193348/Picture2-25.png)
-本月早些时候，佐治亚州弗洛伊德郡的选举委员会在官员们发现了数千张未清点的选票后，投票决定解雇选举事务长罗伯特·布拉迪。
+众所周知，美国的政治体制是行政、立法、司法三权分立，总统、国会与最高法院及其相关机构各司其职、互相制衡。然而美国总统还有一项特权，通过行政令，来实现自己的执政目标。这是美国宪法赋予总统的特权，也是总统手里的一枚武器。行政令就是总统签字后，下达给联邦政府的命令，不需要经过另外“两权”旷日持久的口舌之争，达到立竿见影的执行效果。有意思的是，美国总统最早的一份行政令，可以追溯到1862年10月20日由林肯总统发布的命令开始。
 
+联想起最近频繁曝光的美国黑暗沼泽拜登、希拉里、克林顿、奥巴马、索罗斯……林肯总统曾以“不经审判逮捕羁押”的雷霆手段，逮捕了数千个分裂分子，不难想象，面临美国国家生死存亡之际，川普总统接下来的动作！
 
+让我们拭目以待。
 
-> Meeting minutes from Floyd County dated Feb 11, 2020. 
-> 
-> “New Business: Mr.Brady introduced Aric Thompson as our on-site technician from Dominion.” [@RealAmVoice](https://twitter.com/RealAmVoice?ref_src=twsrc%5Etfw) [https://t.co/vWuwa5EGhf](https://t.co/vWuwa5EGhf) [pic.twitter.com/Vph4t9eVPx](https://t.co/Vph4t9eVPx)
-> — Heather Mullins – Real America’s Voice (RAV-TV) (@TalkMullins) [November 29, 2020](https://twitter.com/TalkMullins/status/1333047715622694912?ref_src=twsrc%5Etfw)
-
-
-弗洛伊德郡2020年2月11日的会议记录。
-“新的业务。布雷迪先生介绍了阿里克・汤普森 作为Dominion公司的现场技术员”
-汤普森在选举后的第二天与布雷迪一起扫描选票时被拍到。
-
-
-
-> Picture of fired Floyd County Chief Election Clerk Robert Brady, & Dominion Rep Aric Thompson, taken by the Rome News Tribune from the morning after Election Day when the two were still scanning ballots. The recount unexplainably turned up 3055 uncounted ballots. [@RealAmVoice](https://twitter.com/RealAmVoice?ref_src=twsrc%5Etfw) [pic.twitter.com/5rPMRSPgJe](https://t.co/5rPMRSPgJe)
-> — Heather Mullins – Real America’s Voice (RAV-TV) (@TalkMullins) [November 20, 2020](https://twitter.com/TalkMullins/status/1329882296514715650?ref_src=twsrc%5Etfw)
-
-
-《罗马新闻论坛报》拍摄的被解雇的弗洛伊德郡首席选举书记员罗伯特·布雷迪（Robert Brady），和Dominion代表埃里克·汤普森的照片，拍摄于选举日后的早上，当时两人还在扫描选票。重新计票时，无法解释地发现有3055张未计选票。
-福克斯报道称，”共和党州务卿布拉德·拉芬斯伯格将问题归咎于弗洛伊德郡选举官员未能将选票扫描机中的存储卡中的选票上传。”
-
-评: 佐治亚州弗洛伊德郡选举委员会聘请民主党副总统候选人卡马拉·哈里斯竞选活动的官方摄影师作为Dominion公司的现场技术员，并且是现场两个扫描选票的人之一，该郡被发现有3055张未计选票，加上此人在社交媒体上发布攻击川普总统的言论， 让人不得不怀疑这难道仅仅是疏忽或巧合吗？难道不是有人有意安排的选举舞弊吗？
-
-原文链接：
-
-[Dominion Rep Who Scanned Ballots in Georgia County Where Thousands of Trump Votes Were Uncounted Also Worked for Kamala Harris (thegatewaypundit.com)](https://www.thegatewaypundit.com/2020/11/dominion-rep-scanned-ballots-georgia-county-thousands-trump-votes-uncounted-also-worked-kamala-harris/?utm_source=Twitter&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
+（文章内容仅代表作者个人观点）
 
 0
