@@ -1,64 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 佐治亚州数千张川普选票未被计算
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/603037/)
+## CCP从“香烟袅袅”到“青烟袅袅”
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/603166/)
 
-—负责扫描选票的是Dominion公司代表，曾是民主党副总统候选人卡马拉·哈里斯竞选活动的官方摄影师
+作者：晓清新 校对：文泽 编辑：李小甜KR
 
-作者：卡桑德拉·费尔班克斯; 发布时间2020年11月29日上午7点52分
-翻译： 康州盘古农场 – 烟波浩淼
-校对：康州盘古农场 – 一花一世界
-审核：康州盘古农场 – V
+2020年11月10日，中共对各大企业挥起了大刀，起草的《反垄断指南》中国27家巨头被约谈。包括：阿里巴巴、腾讯、京东、美团、58同城、百度、奇虎360、搜狗、字节跳动、快手、滴滴、微店、新浪微博、多点、贝壳找房、拼多多、国美在线、饿了么、小红书、携程、苏宁、同程、贝贝网、云集网、蘑菇街、兴盛优选、唯品会。
 
-一名在佐治亚州弗洛伊德郡负责扫描选票的Dominion公司代表去年曾为卡马拉·哈里斯的竞选活动担任官方摄影师。
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29223015/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2020-11-30-123210.png)
 
-作为Dominion公司代表，现场负责扫描选票的人员之一埃里克·汤普森（Aric Thompson）。  据其领英简介，2019年他曾担任参议员哈里斯的官方摄影师。他甚至在网上有一个合集专门放置他为哈里斯拍摄的照片。
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29193237/Picture1-35.png)
-此外，多个报道称，有几次扫描现场没有观察员。
+看到这个名单，大家是不是很诧异呢？论垄断：烟草、铁路、石油、石化、银行、电力、燃气、水务、盐业，通信、教育、医疗、公路、航空客运、广播传媒等这些全都是由中共孵化的垄断行业，为何无一在名单之中？
 
-希瑟·穆林斯 – 《真实的美国之声》推特：
+今天我们就来了解一下中共国乃至世界最挣钱的垄断行业，它既不是腾讯也不是京东更不是阿里巴巴，实际吨位级大咖是“中国烟草”。它是真正的垄断经营，其经营主要由国家烟草局和卷烟厂完成。中共打着反垄断的旗号挥舞着大刀砍下其他企业的同时，对自己所掌控的烟草业怎么就只字不提呢？这其中是怎样的垄断操控，这庞大的利益又是多少，又到了哪里呢？中国烟草公司的规模是万亿级别的。据2019年数据显示，全年中国烟草税收总额为11770亿元，烟民平均一天内税32亿超过20个阿里，以至于有人说印钞机都干不过中国烟草。
 
-佐治亚州弗洛伊德郡！据报道，一名据称是Dominion公司代表的男子负责扫描选票处，有超过3000张选票(大部分是给川普总统的)最初未被计算在内，此人似乎作为摄影师曾在卡马拉·哈里斯的总统竞选期间与她合作。
+据相关数据采集全球吸烟人数11亿，中共国就有3.5亿。几年前据全球顶级医学期刊《柳叶刀》发表的一项研究中表明，中共国是世界上烟草生产和消费最大的国家，吸烟率在38%以上。占世界总人口19%的中共国，吸烟人数高达3亿多，占了全世界烟民总数的1/3，比美国的人口总数还多，中国已经成为名副其实的“第一吸烟大国”。有资料统计，世界上的吸烟人数正在下降，而中国的烟民队伍却在不断扩大，中国现有烟民已超过3.5亿。
 
+下面我们就来看一下烟的成本，也就是卖树叶子的成本。以赫赫有名的“中华”香烟为例，一包65元的成本不到3元，要知道香烟用的原料都是相同的原料，成本普遍不高，价钱高低就在于选取的部位，高档烟一般会挑选烟的中部，香料的添加也会多一些 ，再配上华丽的烟嘴加上亮眼的包装，就算再贵的烟这些成本加起来也不到10元，“中华”香烟的市场售价高达70元，是成本价的7倍。问题的关键就在于烟草税，烟草行业一直都是纳税大户，中共对烟草实行抽重税，一包烟的成本由卷烟厂代征54.5%的烟草消费税，其中包括增值税，所得税，印花税等等，再加上利润，然后把烟卖给了烟草专卖局，专卖局再转手卖给零售商，零售商再卖给消费者，就这样一道一道下来，烟的价格就变得相当高了。
 
+其实就是成本低、暴利、重税，又是垄断行业，消费群体庞大固定，其中的收益业就显而易见。 烟草企业的高额利润通过烟草专卖制度从广大百姓身上获取，再分配给国家财政和地方政府。一个对GDP贡献率不高的产业，却能够给中共财政上缴50%以上的（烟草制造）的税收，究其根本，是“专营制度”保证了其长期是个利润率极高的企业。高额的税收贡献，来源于“垄断”和中共的黑心定价，并不来源于真正的价值创造。
 
-> FLOYD COUNTY, GA! A man reported to be the Dominion Rep scanning ballots in where over 3000 votes (the majority for President Trump) went initially uncounted appears to have worked with [@KamalaHarris](https://twitter.com/KamalaHarris?ref_src=twsrc%5Etfw) as a photographer during her Presidential campaign. [@RealAmVoice](https://twitter.com/RealAmVoice?ref_src=twsrc%5Etfw) [pic.twitter.com/OlmI2Htirw](https://t.co/OlmI2Htirw)
-> — Heather Mullins – Real America’s Voice (RAV-TV) (@TalkMullins) [November 29, 2020](https://twitter.com/TalkMullins/status/1332909677219344384?ref_src=twsrc%5Etfw)
+对于最底层的烟草种植人们来说，其获得的收益是很低的，但当加工成成品的时候，价格提升了几十倍甚至上百倍。而这些利润转嫁给消费者身上，分配给国家的财政、地方政府等利益相关部门。
 
+换句话说，最后这些巨额款项最后都被中共中饱私囊。什么为人民服务——毛泽东；人民的利益高于一切——邓小平；共产党是为人民谋福利的——习近平；这一切都是彻头彻尾的谎言！都是欺骗百姓和愚弄老百姓的洗脑曲目！烟草让中共赚得盆满钵满，却以牺牲人民利益，健康乃至于生命为代价。烟草业就是赤裸裸的以人民生命为代价的“垄断”！是谁在“保护”烟草暴利？是邪恶，虚假，丑陋的CCP！香烟袅袅燃烧的是烟民的钱财和生命，维护的是中共的统治，中饱的是中共几大家族的私囊。
 
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222122/q9Yr-fypikwt5145304.jpg)
 
-***这是弗洛伊德郡负责扫描选票的两名男子之一。他为卡马拉·哈里斯工作。据罗马市民主党委员温迪·戴维斯（Wendy Davis******）和弗洛伊德郡民主党主席卢克·马丁（Luke Martin******）称，部分扫描过程中没有观察员在场。发现超过3000******张未统计的选票。***
+邪恶的CCP学到了“取之于民”，却没有“用之于民”。中共国在“世界无烟日”期间，烟草专卖局官员还在大放厥词：“控烟就是卖国”，鼓吹“长期以来让烟草业挺直腰杆的除了财政贡献，还包括作为地方经济的主要支撑解决了就业难题等作用”。因此烟草行业的经济贡献中共当成其必须存在的理由。但事实上，对于最底层的烟草种植人们来说，其获得的收益也是少得可怜，烟草业对经济的贡献是微乎其微，烟农及烟草工人可以选择更多致富的路径。
 
-穆林斯还分享了汤普森在社交媒体上的帖子，他在帖子中抨击了唐纳德·川普总统:
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29193348/Picture2-25.png)
-本月早些时候，佐治亚州弗洛伊德郡的选举委员会在官员们发现了数千张未清点的选票后，投票决定解雇选举事务长罗伯特·布拉迪。
+烟草仅仅是让中共染上了戒也戒不掉的毒瘾！真正戒不掉烟草的不是广大烟民，而是中共的钱袋子！烟草行业实为中共圈钱而存在！然而这些巨额的款项老百姓没有看到用于何处，也没有用于任何惠民项目，压在中国人民身上的”三座大山“医疗，教育，养老”依然存在。什么“纳税是每个公民对国家应尽的责任和义务”，“纳税光荣”，税收“取之于民、用之于民、造福于民”，是彻头彻尾的谎言！“拔最多的鹅毛，听最少的鹅叫”才是他们愿意看到的。中共自己却是一毛不拔的不锈钢公鸡！ 没有对比就没有伤害，横向与世界各国做个比较，1、在美国无论是联邦法律还是地方法律，烟草相关的税收的一部分都需要投入到公共医疗和控烟领域，美国联邦烟草增税专款专用于儿童医疗保险：2009年联邦《儿童医疗保险重新授权法案》授权政府收取328亿美元的新增烟草税，用于为730万没有医疗保险的儿童提供医疗保险补助。在地方法律层面，美国州烟草税也多用于教育和卫生：以加州为例，每包卷烟须缴纳0.87美元州烟草税,其中,0.5美元用于儿童教育，0.25美元用于控烟和医保；2、2010到2016年，澳大利亚政府将新增的100亿澳元烟草税收全部投入公共医疗，其中1亿3000万澳元将被专门用于控烟公共宣传项目。而中共对烟草业的垄断，使巨额的烟草税被装入CCP腰包，满足几大权贵家族的私欲。 完全失信于民的CCP早已被世人看穿，他们口口声声的“不忘初心”真面目到底是什么？其实就是消灭私有财产、实现共产主义，实现共产共妻，共产是共你的产，共妻是共你的妻。他的是他的，你的也是他的，消灭的是你的的财产供他们挥霍，你的妻子和儿女被他们蹂躏。
 
+文贵先生给世人的展示的盗国们的天量财富、他们的建筑艺术项目都一一验证了这点。在中共权贵们的眼里是没有国家、民族、人民的概念，他们只关心自己的权力、自己的子女，他们想世世代代骑在中国人民的头上作威作福，想让江山永远掌握在自己的子孙手中。幸运的是郭文贵先生横空出世！爆料革命应运而生！中共的美梦变成噩梦，中共青烟袅袅的时日即将到来！努力吧战友们！让我们一起埋葬他们！
 
-
-> Meeting minutes from Floyd County dated Feb 11, 2020. 
-> 
-> “New Business: Mr.Brady introduced Aric Thompson as our on-site technician from Dominion.” [@RealAmVoice](https://twitter.com/RealAmVoice?ref_src=twsrc%5Etfw) [https://t.co/vWuwa5EGhf](https://t.co/vWuwa5EGhf) [pic.twitter.com/Vph4t9eVPx](https://t.co/Vph4t9eVPx)
-> — Heather Mullins – Real America’s Voice (RAV-TV) (@TalkMullins) [November 29, 2020](https://twitter.com/TalkMullins/status/1333047715622694912?ref_src=twsrc%5Etfw)
-
-
-弗洛伊德郡2020年2月11日的会议记录。
-“新的业务。布雷迪先生介绍了阿里克・汤普森 作为Dominion公司的现场技术员”
-汤普森在选举后的第二天与布雷迪一起扫描选票时被拍到。
-
-
-
-> Picture of fired Floyd County Chief Election Clerk Robert Brady, & Dominion Rep Aric Thompson, taken by the Rome News Tribune from the morning after Election Day when the two were still scanning ballots. The recount unexplainably turned up 3055 uncounted ballots. [@RealAmVoice](https://twitter.com/RealAmVoice?ref_src=twsrc%5Etfw) [pic.twitter.com/5rPMRSPgJe](https://t.co/5rPMRSPgJe)
-> — Heather Mullins – Real America’s Voice (RAV-TV) (@TalkMullins) [November 20, 2020](https://twitter.com/TalkMullins/status/1329882296514715650?ref_src=twsrc%5Etfw)
-
-
-《罗马新闻论坛报》拍摄的被解雇的弗洛伊德郡首席选举书记员罗伯特·布雷迪（Robert Brady），和Dominion代表埃里克·汤普森的照片，拍摄于选举日后的早上，当时两人还在扫描选票。重新计票时，无法解释地发现有3055张未计选票。
-福克斯报道称，”共和党州务卿布拉德·拉芬斯伯格将问题归咎于弗洛伊德郡选举官员未能将选票扫描机中的存储卡中的选票上传。”
-
-评: 佐治亚州弗洛伊德郡选举委员会聘请民主党副总统候选人卡马拉·哈里斯竞选活动的官方摄影师作为Dominion公司的现场技术员，并且是现场两个扫描选票的人之一，该郡被发现有3055张未计选票，加上此人在社交媒体上发布攻击川普总统的言论， 让人不得不怀疑这难道仅仅是疏忽或巧合吗？难道不是有人有意安排的选举舞弊吗？
-
-原文链接：
-
-[Dominion Rep Who Scanned Ballots in Georgia County Where Thousands of Trump Votes Were Uncounted Also Worked for Kamala Harris (thegatewaypundit.com)](https://www.thegatewaypundit.com/2020/11/dominion-rep-scanned-ballots-georgia-county-thousands-trump-votes-uncounted-also-worked-kamala-harris/?utm_source=Twitter&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29221505/image2-8.png)
 
 0

@@ -1,51 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅！美特种部队在服务器扣押行动中袭击了德国的中情局服务器所在场所
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/602978/)
+## 【重磅】！美国空军中将托马斯·麦金纳尼在接受WVWtv采访中爆出重要信息
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/603028/)
 
-- 编辑：Victor Torres、文顺
-- 翻译：Victor Torres
+视频字幕：塔奇克马；听写翻译：势不可挡；校正： TCC；
 
+简评/组稿编辑：Julia Win；Page：拱卒
 
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29195616/1-29-1.jpeg)
 
-西班牙2020年11月30日电/西喜社/——托马斯•麦金尼(Thomas McInerney)和麦克•弗林(Michael Flynn)两位中将周六接受WVW广播网采访中透露，美国特种部队在服务器扣押行动中袭击了德国的中情局服务器所在场所，击杀了5名士兵，并确保了服务器的安全。
+**简评：**
 
-麦金尼还透露，对安全服务器随后的审查提供了证据，证明中国，伊朗和俄罗斯参与了针对唐纳德·川普总统的未遂政变，唐纳德·川普总统将被证明为美国人民赢得了压倒性的胜利。
+美国空军中将托马斯·麦金纳尼将军在接受WVWtv采访中爆料：弗林（Flynn）将军与305军事情报部的“大海怪克拉肯（Kraken）”组织合作, 确定了中共国、伊朗和俄罗斯正在参与并操控美国大选!并说：“司法部、联邦调查局或中情局没有站在正义一边，而是站在了影子政府一边。”
 
-**原文链接：**
+川普总统于感恩节前宣布赦免弗林将军，不仅仅使“他及他美好的家庭将有一个真正的梦幻般的感恩节!”也使对弗林将军通俄门的刑事起诉失效、摆脱了陷害、全心投入对影子政府的战斗中！
 
-
-
-> [REPORT: Lt Gen McInerney Reports US Special Forces Attacked CIA Server Farm In Germany In Server Seizure Operation, 5 Soldiers Killed, Servers Secured](https://creativedestructionmedia.com/analysis/2020/11/28/report-lt-gen-mcinerney-reports-us-special-forces-attacked-cia-server-farm-in-germany-in-server-seizure-operation-5-soldiers-killed-servers-secured/)
+![圖片](https://pbs.twimg.com/media/En5EBqGUUAEOB9n?format=jpg&amp;name=medium)
 
 
 
-**原文翻译：**
+**视频翻译：**
 
-报告：麦金尼中将报告美国特种部队在服务器扣押行动中袭击了德国的中情局服务器所在场所，击杀了5名士兵，并确保了服务器的安全。
+**麦金纳尼：**从西德尼（Sidney）和川普总统那里，我们可以相信弗林（Flynn）将军，与305军事情报部的“大海怪克拉肯（Kraken）”组织合作。因为在所有行动中，我们并没有看到司法部、联邦调查局或中情局的任何足迹。他们没有站在正义一边，而是站在了影子政府一边。
 
-托马斯•麦金尼(Thomas McInerney)和麦克•弗林(Michael Flynn)两位中将周六接受WVW广播网采访。 这是弗林自赦免以来的首次采访。
+**汤姆：**将军，让我打断你一下，因为你刚才说的听起来很有趣。你刚刚说谁释放了“大海怪克拉肯”，然后你描述了“大海怪克拉肯”是什么。
 
-麦金尼在令人震惊的证词中说，他的消息来源告诉他，美国陆军特种部队，可能是著名的三角洲特种部队，突袭了由中情局管理的位于德国法兰克福的服务器所在场所。
+我们都知道这个词是因为西德尼·鲍威尔使用了它。但是你刚刚说了它具体是什么。你能重复一下吗？
 
-在随后的交火中，有5名士兵和一名CIA准军事人员丧生； 据相关新闻报道称，中情局人员是出于安全目的从阿富汗飞来的。
+**麦金纳尼：**是的，西德尼之所以使用“大海怪(Kraken)”一词，因为这是第305军事情报部的绰号。这就是她的消息来源，还有其他我和玛丽（国家安全记者）知道的消息来源，但我们不想深入谈论这个。对此我们有不同消息来源证实。但重要的是，通过“大海怪克拉肯”，他们确定了中共国，伊朗和俄罗斯正在参与其中并操控选票。
 
-麦金尼透露，对安全服务器随后的审查提供了证据，证明中国，伊朗和俄罗斯参与了针对唐纳德·川普总统的未遂政变，唐纳德·川普总统将被证明为美国人民赢得了压倒性的胜利。
+此外，美国特种作战司令部在德国法兰克福缴获了一家伺服器公司，因为他们将美国五个或六个州的投票资料通过互联网发送到西班牙，然后再发送到德国法兰克福。
 
-“这些人犯了叛国罪，”麦金尼宣称。 他恳求川普总统在叛国罪被发现之前不要卸任，否则美国将被敌人接管，而遭受致命的伤害。
+【**备注】：**
 
-麦金尼还表示，他相信川普总统知道发生了偷盗，因此他发布了行政命令来制裁干涉我们选举的外国势力。
+- 汤玛斯·麦金纳尼（Mcinerney）美国空军中将。
+- 迈克·弗林（Michael·Flynn）将军，是第111军事情报旅的著名指挥官。第305军事情报部和第111军事情报旅都位于亚利桑那州瓦丘卡堡（Fort Huachuca）。
+- “大海怪克拉肯(Kraken)”一词，是第305军事情报部的绰号。
 
-根据他的简历，麦金尼是越战期间的前锋空中管制员和战斗机飞行员，在他的四次出勤中，执行了407次战斗任务。 换句话说，他是一个值得信任的爱国者。
 
-现在有报道称，弗林将军正参与协助总统开展秘密情报行动。
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+编辑：【喜马拉雅战鹰团】-点击spark adobe版
+
+[![](https://spark.adobe.com/page/EC3WaAhLwE8Kg/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/EC3WaAhLwE8Kg/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

@@ -1,40 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 与索罗斯有关联的Smartmatic公司董事长承认“技术由Dominion授权使用”
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/603073/)
+## 【世界多语言图文】2020/11/19-20 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/603220/)
 
-作者：娜塔莉·温特斯 2020 年11月29 日
-翻译： 康州盘古农场 – 花一世界
-校对：康州盘古农场 – 烟波浩淼
-审核：康州盘古农场 – V
+战友之家图文摘要及多语组
 
-引言：尽管投票技术公司SMARTMATIC坚称与外国多猫腻(Dominion)投票系统“没有从属关系或财务往来”，但其公司董事长先前接受采访时承认“我们的部分技术是由Dominion授权”。
+[299-300\_English\_1119-1120\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222924/299-300_English_1119-1120_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222924/299-300_English_1119-1120_CCP_Virus_Updates_.pdf)
 
-此番评论来自Smartmatic公司董事长马克·马洛赫·布朗（Lord Mark Malloch-Brown），他与左翼超级捐助者乔治·索罗斯（George Soros）有着错综复杂的财务和“著名的友谊”关系。在2015年6月菲律宾新闻媒体ABS-CBN的采访中，马洛赫·布朗勋爵承认：“…我们的部分技术是由Dominion授权的。”
+[299-300\_French\_1119-1120\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222926/299-300_French_1119-1120_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222926/299-300_French_1119-1120_CCP_Virus_Updates_.pdf)
 
-这一消息将进一步引发人们的疑问，在2020年美国大选期间有腐败指控之后，为什么Dominion和Smartmatic最近都竭尽全力以保持彼此的距离。
+[299-300\_German\_1119-1120\_CCP\_Virus\_Updates\_\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222925/299-300_German_1119-1120_CCP_Virus_Updates__.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222925/299-300_German_1119-1120_CCP_Virus_Updates__.pdf)
 
-最近，他们俩声称彼此是竞争对手，以摆脱他们的技术都被用来欺骗美国民众的想法。不久之后，《国家脉动》透露这两家公司实际上达成了不竞争协议。
+[299-300\_Japanese\_1119-1120\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222925/299-300_Japanese_1119-1120_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222925/299-300_Japanese_1119-1120_CCP_Virus_Updates_.pdf)
 
-马洛赫·布朗被采访者追问在2010年大选中使用Smartmatic产品遇到的困难时，他透露“Smartmatic拥有有所采用的那项特定技术的国际使用许可权”。
+[299-300\_Korean\_1119-1120\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222926/299-300_Korean_1119-1120_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222926/299-300_Korean_1119-1120_CCP_Virus_Updates_.pdf)
 
-主持人：“从来没有人允许该产品在2010年的选举中参加竞标，因为它实际上并不拥有该软件使用权– Dominion投票系统拥有该软件。再加上Smartmatic为了访问源代码而不得不克服需选举委员会通过的困难。”
+[299-300\_Spanish\_1119-1120\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222924/Spanish-299-300_Spanish_1119-1120_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222924/Spanish-299-300_Spanish_1119-1120_CCP_Virus_Updates_.pdf)
 
-马洛赫·布朗：“好吧，看。我认为那是竞争对手说的吧。事实是，是的，我们的一部分技术是Dominion授权的，但是您告诉我，有哪家大型技术公司不使用其他公司的部分技术授权。我们拥有那项特定技术的国际使用许可。”
-
-采访者随后询问 “ Dominion 颁发给您的使用其专有软件的许可证”是否是“有效的”，“正在使用中的”，“和尚未撤销的”。 马洛赫·布朗确认所有三个答案均为“是”。
-
-关于与索罗斯的关系。
-
-搬到纽约时，马洛赫·布朗从索罗斯那里租下了他的房子，批评家声称其租金低于市场价。
-
-联合国发言人指出，“他们是好朋友”，因为“由于两人都是公众人物，他们决定将这种生活安排作为商业交易，而非礼物馈赠。”
-
-2007年，他被任命为索罗斯量子基金副总裁，并于同年担任索罗斯基金管理公司（Soros Fund Management）和开放社会研究所（Open Society Institute）的副主席。
-
-尽管如此，Smartmatic坚持认为“（该公司）与政府或政党没有任何关系”。
-
-原文链接：[https://thenationalpulse.com/news/soros-linked-smartmatic-chair-on-dominion/](https://thenationalpulse.com/news/soros-linked-smartmatic-chair-on-dominion/)
-
-2+
+0

@@ -1,21 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/11/19-20 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/603220/)
+## 【路德社】【精华版粤语快报】11.29： 限制美上市的中国公司法案将表决，港府用现金给林郑发薪涉违美国制裁法
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/603428/)
 
-战友之家图文摘要及多语组
+制作单位：战友之家-粤语组
+制作团队：路德二组（Wenfei、文乔、麻辣汤）
 
-[299-300\_English\_1119-1120\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222924/299-300_English_1119-1120_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222924/299-300_English_1119-1120_CCP_Virus_Updates_.pdf)
 
-[299-300\_French\_1119-1120\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222926/299-300_French_1119-1120_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222926/299-300_French_1119-1120_CCP_Virus_Updates_.pdf)
 
-[299-300\_German\_1119-1120\_CCP\_Virus\_Updates\_\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222925/299-300_German_1119-1120_CCP_Virus_Updates__.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222925/299-300_German_1119-1120_CCP_Virus_Updates__.pdf)
+摘要:
+美国众议院将就限制在美上市中国公司的法案进行表决；瑞幸咖啡之前承认财务造假，将为该法案获得通过提供有力的证据；一旦美国通过该法案，澳大利亚、英国等国家将跟进实施。港府用现金给林郑月娥发工资违反美国制裁法。国内多家银行暂停贵金属交易新开户。 11月29日，新中国联邦战友在日本举行挺川普大游行。中共建议试行企业“休眠”制度
 
-[299-300\_Japanese\_1119-1120\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222925/299-300_Japanese_1119-1120_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222925/299-300_Japanese_1119-1120_CCP_Virus_Updates_.pdf)
+原视频链接:
 
-[299-300\_Korean\_1119-1120\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222926/299-300_Korean_1119-1120_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222926/299-300_Korean_1119-1120_CCP_Virus_Updates_.pdf)
 
-[299-300\_Spanish\_1119-1120\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222924/Spanish-299-300_Spanish_1119-1120_CCP_Virus_Updates_.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29222924/Spanish-299-300_Spanish_1119-1120_CCP_Virus_Updates_.pdf)
 
 0

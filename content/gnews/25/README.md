@@ -1,41 +1,111 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【Giselle专栏】应对颜色革命，川普将成为另一个林肯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/603383/)
+## 赞扬中共脱贫向中共下跪的莫里森要求赵立坚道歉的照片啥来头
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/603484/)
 
-## ——林.伍德解释给爱国者们布置作业真相
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003627/%E5%B0%81%E9%9D%A2-119.jpg)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-作者：Giselle
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29232724/Picture34-3.png)图片来源：[https://www.epochtimes.com/](https://www.epochtimes.com/gb/20/3/22/n11962341.htm)
-11月29日，林.伍德在推特上给美国的爱国者们布置了一份作业：1，了解颜色革命是如何开展的。2，了解乔治·索罗斯（George Soros）的“重置”和“新世界秩序”计划。3，了解比尔·盖茨的“人口减少”目标。4，了解亚伯拉罕·林肯（Abraham Lincoln）在1861年行使权力以拯救我国的情况。
+据[**环球时报**](https://weibo.com/huanqiushibaoguanwei) [2020年11月30日11：34](https://weibo.com/1974576991/Jwh9EenQy?from=page_1002061974576991_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0) 已编辑
 
-11月30日，林伍德在推特上的最新留言，解释了他之前给美国爱国者布置的四个任务真相，矛头直指中共：1，颜色革命始于中共国发起的COVID-19攻击；2，在各个城市里引发暴乱；3，计划并进行欺诈性的选举；4，继续增加城市暴力。“我相信川普总统已经做好了准备，我们也必须如此。”
+【快讯：澳大利亚总理莫里森要求中国道歉】据澳大利亚天空新闻台报道，澳大利亚总理斯科特·莫里森要求中国正式道歉，理由是中方“发布和伪造一名澳大利亚士兵割喉儿童的宣传图”。
 
-## **这是一场颠覆美国的颜色革命**
+莫里森在新闻发布会上说：“这完全是令人发指的，在任何基础上都是站不住脚的……中国政府应该为这一帖子的发布而感到羞愧，这贬低了在世人眼中的他们的形象。”他还称，世界各国都在关注北京如何应对澳大利亚与中国关系中的紧张局势。
 
-林.伍德在11月30日的另一则推文中称，我选择不使用被人为操纵的投票机和虚假邮件投票在另一场欺诈性选举中投票。这个国家的未来将不会由欺诈性选举决定。这与选举无关，这是一场推翻我们政府的颜色革命。
+莫里森称，澳大利亚方面正在寻求推特删除赵立坚30日发布这张“令人反感”的图片。 此前，中国外交部发言人赵立坚敦促澳洲对最近的战争罪指控进行调查，并在推文中引用了画家[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at) 的讽刺漫画，漫画中一名澳大利亚士兵用刀抵着一名儿童的喉咙，上面还配有文字“不要害怕，我们来给你们带来和平”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30004236/0029D7FZly1gl71hj3rvhj60dc09l74u02.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003527/0029D7FZly1gl71hiymvtj60fm0fhgn202-1.jpg)
+这幅照片见于[Lijian Zhao 赵立坚](https://twitter.com/zlj517)[@zlj517于](https://twitter.com/zlj517)[2020年11月30日9：02](https://twitter.com/zlj517/status/1333214766806888448)发布的推文：
 
-颜色革命（Color revolution），是指20世纪80、90年代开始的一系列发生在中亚、东欧独联体国家的以颜色命名，以“和平非暴力”方式进行的政权变更运动。
+[China government account](https://help.twitter.com/rules-and-policies/state-affiliated-china)
 
-颜色革命最关键的因素就是控制媒体，这一点中共完全做到了。通过多年筹谋，全球各大主流媒体、社交媒体全部沦陷，成了这场颠覆运动的同谋。面对美国大选中大规模的欺诈和造假，媒体集体选择无视、遮掩，同时，对于已经觉悟的民众，社交媒体却肆无忌惮地对他们传播的真相进行封杀。林.伍德多次提及“颜色革命”，矛头直指中共利用COVID-19病毒袭击美国，勾结安提法、黒命贵、金融大鳄等，蓄意引发国内暴乱，将战火引到国内，并利用多米尼投票系统进行欺诈性选举，从而达到不费一刀一枪，和平颠覆美国政权的目的。
+Shocked by murder of Afghan civilians & prisoners by Australian soldiers. We strongly condemn such acts, &call for holding them accountable.
 
-林.伍德在推特中暗示，川普总统将像林肯总统那样，再次带来美国人民度过这场危机，赢得最终的胜利。
+震惊于澳大利亚士兵杀害阿富汗平民和囚犯。 我们强烈谴责此类行为，并要求追究其责任。
 
-亚伯拉罕·林肯（Abraham Lincoln）是美国第16任总统。1861年就任，直至1865年4月遇刺身亡。林肯执政时期，美国正经历其历史上最为惨烈的战争和最为严重的道德、宪政和政治危机——南北战争。经由此役，他维护联邦的完整，废除奴隶制，解放所有奴隶，增强联邦政府的权力，并推动经济的现代化。也因此美国学界和公众时常将林肯称作是美国历史上最伟大的总统之一。
 
-如今，美国也正面临着历史上最严重的道德危机：物欲横流，拜金主义甚嚣尘上，精致利己主义大行其道，民众缺乏信仰，毒品、娈童、人口贩卖等犯罪层出不穷。政治危机：三权分立形同虚设，司法系统、国防情报安全系统全面溃烂，大规模的欺诈性选举正在窃取美国人珍视的公民权利。生存危机：生化病毒还在持续不断地夺走美国人的生命，经济衰退，人民的生命财产收到严重的威胁。一场有预谋的奴役所有美国人的阴谋正在全面展开，美国已经到了生死存亡的关键时刻。
 
-林肯总统在执政生涯当中，多次利用自己的政治智慧，化解了同墨西哥的战争。而川普总统在其执政期间，也曾经多次成功地化解了与北韩、伊朗的战争，并从阿富汗、叙利亚、伊拉克等地撤军，避免多地同时作战带来的消耗，以便集中力量对付当前最大的威胁——中共。
+> Shocked by murder of Afghan civilians & prisoners by Australian soldiers. We strongly condemn such acts, &call for holding them accountable. [pic.twitter.com/GYOaucoL5D](https://t.co/GYOaucoL5D)
+> — Lijian Zhao 赵立坚 (@zlj517) [November 30, 2020](https://twitter.com/zlj517/status/1333214766806888448?ref_src=twsrc%5Etfw)
 
-1861年4月12日，在邦联攻击[萨姆特堡](https://zh.wikipedia.org/wiki/%E8%90%A8%E5%A7%86%E7%89%B9%E5%A0%A1)之后，美国北方终于团结起来，林肯开始着重于战争的军事和政治方面问题。他试图重新统一国家，并暂停人身保护令，不经审判逮捕并羁押了数千边缘州的分离派嫌疑者。1861年末，他化解了特伦特事件，从而避免了英国的介入。他运用多种复杂的政治手段，其中最为重要的是1863年的《[解放奴隶宣言](https://zh.wikipedia.org/wiki/%E8%A7%A3%E6%94%BE%E5%A5%B4%E9%9A%B6%E5%AE%A3%E8%A8%80)》，以及用军队保护脱逃奴隶，鼓励边缘州将奴隶制非法化，并推动国会通过了[宪法第十三条修正案](https://zh.wikipedia.org/wiki/%E7%BE%8E%E5%88%A9%E5%9D%9A%E5%90%88%E4%BC%97%E5%9B%BD%E5%AE%AA%E6%B3%95%E7%AC%AC%E5%8D%81%E4%B8%89%E6%9D%A1%E4%BF%AE%E6%AD%A3%E6%A1%88)，彻底废除了奴隶制。
 
-众所周知，美国的政治体制是行政、立法、司法三权分立，总统、国会与最高法院及其相关机构各司其职、互相制衡。然而美国总统还有一项特权，通过行政令，来实现自己的执政目标。这是美国宪法赋予总统的特权，也是总统手里的一枚武器。行政令就是总统签字后，下达给联邦政府的命令，不需要经过另外“两权”旷日持久的口舌之争，达到立竿见影的执行效果。有意思的是，美国总统最早的一份行政令，可以追溯到1862年10月20日由林肯总统发布的命令开始。
 
-联想起最近频繁曝光的美国黑暗沼泽拜登、希拉里、克林顿、奥巴马、索罗斯……林肯总统曾以“不经审判逮捕羁押”的雷霆手段，逮捕了数千个分裂分子，不难想象，面临美国国家生死存亡之际，川普总统接下来的动作！
+那么这幅照片来自哪里呢？在对图片进行历史消息查证后，可以看到以下轨迹——
 
-让我们拭目以待。
+1、[乌合麒麟](https://www.acfun.cn/u/39283340.aspx)于2020年11月24日发布的[和平之师](https://www.acfun.cn/a/ac20012868) ：
+
+以下为谷歌搜索索引——
+
+[和平之师 – AcFunwww.acfun.cn*› …*](https://www.acfun.cn/a/ac20012868)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003626/21-5.jpg)
+3143 × 2000 · 6 天前 — 谁在呼叫车队： 回复@小姑娘的大叔: 我还以为是薅羊毛的意思，仔细看才发现刀上有血…… 还有6条回复&gt;. 全部评论. UP 狂拽酷霸吊炸天.
+
+以下为[乌合麒麟](https://www.acfun.cn/u/39283340.aspx)于2020年11月24日发布的[和平之师](https://www.acfun.cn/a/ac20012868)的网络截图——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003659/22-7.png)
+2、2020年11月26日澳大利亚《沃里克每日报》报道同内容并配同图片，但现在只有网络搜索索引，报道内容已经404，以下为搜索索引——
+
+### [曝光後，9名澳大利亞士兵先後死亡，疑畏罪自殺 …](https://www.google.com/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=web&amp;cd=&amp;cad=rja&amp;uact=8&amp;ved=2ahUKEwjsh_uhvKntAhWWeisKHR2VA-E4ChAWMAd6BAgIEAI&amp;url=http%3A%2F%2Fread01.com%2FAzQL3g0.html&amp;usg=AOvVaw14UlpClC5OFmmqJ8D25qw_)
+
+[read01.com › 軍事](https://www.google.com/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=web&amp;cd=&amp;cad=rja&amp;uact=8&amp;ved=2ahUKEwjsh_uhvKntAhWWeisKHR2VA-E4ChAWMAd6BAgIEAI&amp;url=http%3A%2F%2Fread01.com%2FAzQL3g0.html&amp;usg=AOvVaw14UlpClC5OFmmqJ8D25qw_)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003626/21-5.jpg)
+640 × 406 · 4 天前 — 當地時間11月25日，據澳大利亞《沃里克每日報》報導，自澳大利亞軍對屠殺平民這一醜聞曝光之後，短短的三周時間內，已有9名現役或退伍的 …
+
+3、2020年11月30日9：02赵立坚用这幅照片发推并诬蔑澳大利亚士兵犯有战争罪行；
+
+4、澳大利亚总理要求中共道歉——30/11/2020|5min[Scott Morrison demands apology from China for doctored ADF propaganda](https://www.skynews.com.au/details/_6212968703001)，这则新闻的时间戳现在不清楚，但是我们可以通过[**环球时报**](https://weibo.com/huanqiushibaoguanwei) [2020年11月30日11：34](https://weibo.com/1974576991/Jwh9EenQy?from=page_1002061974576991_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0) 已编辑的发布时间判断莫里斯谴责的时间在2020年11月30日9：02至11：34之间。
+
+那么赵立坚上一次与莫里斯的隔空对战是在什么时间呢？据海客新闻2020年11月24日发布的[澳总理称没有哪个国家能像中国让这么多人脱贫 赵立坚明确回应](https://haokan.baidu.com/v?vid=8937323108235461716&amp;pd=bjh&amp;fr=bjhauthor&amp;type=video)，
+
+在2020年11月24日莫里森闪电对中共下跪，中共赵立坚闪电表扬，然后这么巧的是2020年11月24日[乌合麒麟](https://www.acfun.cn/u/39283340.aspx)于2020年11月24日发布了[和平之师](https://www.acfun.cn/a/ac20012868)，两天后的11月26日澳大利亚《沃里克每日报》发布同样内容的报道然后删除，11月24日的六天后赵立坚发布这条假照片，然后莫里森闪电抗议，然后环球时报闪电刊发消息，然后呢？
+
+然后是中共大外宣沈逸夸[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at) 干得漂亮
+
+据[**沈逸**](https://weibo.com/shyfd?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2020年12月30日12：07](https://weibo.com/1157864602/JwhmVa0xr?ref=home&amp;rid=5_0_8_2867739836708379003_6_0_0) 来自 [HUAWEI Mate30 Pro 5G](https://app.weibo.com/t/feed/5rfh3P)
+
+[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at) 干得漂亮
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003802/23-2.png)
+那么[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at)的新浪微博是怎么说的呢？我们看到了这幅图片的最早发布时间——
+
+据[**乌合麒麟**](https://weibo.com/qilinshendian?refer_flag=1005055014_) [11月23日 20:47](https://weibo.com/1566936885/JvgMubTWg?from=page_1005051566936885_profile&amp;wvr=6&amp;mod=weibotime) 来自 [360安全浏览器](https://app.weibo.com/t/feed/1tqBja)
+
+“和平之师”  ​​​​
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003854/EoCHvHjVkAIWIMi.jpg)
+然后对于赵立坚的转推，[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at)是怎么说的呢？
+
+据[**乌合麒麟**](https://weibo.com/qilinshendian?refer_flag=1005055013_)[2020年11月30日10:16](https://weibo.com/1566936885/JwgDMh35J?from=page_1005051566936885_profile&amp;wvr=6&amp;mod=weibotime) 来自 [iPhone 7](https://app.weibo.com/t/feed/2J8wRB) 已编辑
+
+赵司威武！！抽他丫的！！给我破防！！！  ​​​​
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30003920/32.png)
+然后对于莫里森的谴责[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at)是怎么评价的呢？
+
+据[**乌合麒麟**](https://weibo.com/qilinshendian?refer_flag=1005055013_) [2020年11月30日 11:20](https://weibo.com/1566936885/Jwh3YyY4t?from=page_1005051566936885_profile&amp;wvr=6&amp;mod=weibotime) 来自 [iPhone 7](https://app.weibo.com/t/feed/2J8wRB)
+
+听说老莫对我的图很有意见？ ​​​​
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30004001/30.png)
+至此我们大致可以看清中共这次网络超限战的脉络了——
+
+1、此次网络超限战参与者：[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at)、澳大利亚《沃里克每日报》、战狼赵立坚、澳大利亚总理莫里森、以环球时报为代表的中共媒体、以沈逸为代表的网络战斗人员；
+
+2、此次网络超限战时间线：
+
+第一步：[@乌合麒麟](https://weibo.com/n/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F?from=feed&amp;loc=at)放假料；
+
+第二步：中共在澳大利亚的大外宣同步刊发报道；
+
+第三步：赵立坚发推文引用；
+
+第四步：莫里森谴责；
+
+第五步：国内媒体报道；
+
+第六步：网络战斗员沈逸及原始放料者开始邀功；
+
+3、此次网络超限战的目的：掩盖莫里森对中共下跪的事实，营造莫里森对中共强硬的形象，然后继续在桌子底下对中共下跪
+
+我非常希望我猜错了，但是我们要把沈逸同学的党员身份再一次重复如下——
+
+沈逸：男，汉族，籍贯：上海，所属党支部：复旦国关教1支部（国际政治系支部），身份证号码：31010419761106081\*，电话号码：13\*16020756，学历：博士研究生。（注：为避免泄露个人完整信息，身份证号码及电话号码中均有一个数字以\*取代，在泄露到外网的1957239名上海中共党员信息原始表格中这个\*代表0至9十个数字中的某一个数字）
 
 （文章内容仅代表作者个人观点）
 
-0
+1+
