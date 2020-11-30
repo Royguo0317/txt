@@ -1,24 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯：路德社在西方的影响力大增
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/603747/)
+## 六四后流亡法国26年诗人老木于2020年11月26日猝死故乡
+` Ronald` [轉載自GNews](https://gnews.org/zh-hans/603900/)
 
-出品《路德社》 编辑：路德社精选新闻专栏组
+内新闻/素材：TIME（文清）   校对：雅典娜的圣斗士(沙加)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30044223/11-76.jpg)
+据希望之声2020年11月30日报道，曾在1989“六四”后流亡法国26年的诗人老木于本月26日在江西萍乡老家猝死，终年57岁。老木原名刘卫国，5年前“被回国”，曾引发过争议。
 
-40Head发推路德社对拜登寻求赦免的节选视频：这是那位踢爆亨特拜登电脑门的中国时评主持人，事实证明他所言为真。众所周知，对于叛徒没有赦免。拜登可能希望投降，但他要对曾经的所作所为负责。
+据[江西萍乡](https://www.soundofhope.org/term/429928)文化人敖桂明撰文透露，[老木](https://www.soundofhope.org/term/429925)疫情期间罹患晚期肺癌，26日晚起夜不慎摔跤，戳破肝部肿瘤，因[老木](https://www.soundofhope.org/term/429925)终其一生并未婚娶，身边无伴，更无子嗣，无法得到及时救治，待翌日早上被发现之时早已气绝，且七窍流血，其状甚惨！
 
-40Head tweeted：This appears to be the same Chinese Journalist / Talk show guy that broke the story on Hunter Biden’s laptop…which proved to be absolutely true. It should be known though, there will be no pardons for traitors. Biden may wish to concede but he won’t get away with what he did.
+**“被回国”的争议**
 
+据报道称在流亡法国期间传出[老木](https://www.soundofhope.org/term/429925)患多年精神病，2015年由他的几位弟弟接回萍乡老家。异议人士吴江曾透露是中共外交部指令，刘的家人与中共驻法大使馆策划把[刘卫国](https://www.soundofhope.org/term/102912)弄回国。
 
+文章说，为什么很多海外中国政治流亡者，其父母在国内病故要求回国奔丧都被中共拒绝?为什么一百岁的老人徐家屯先生申请回国被拒绝？而唯独[老木](https://www.soundofhope.org/term/429925)，中共外交部特批他回国。这个逻辑推理发人深思。
 
-> This appears to be the same Chinese Journalist / Talk show guy that broke the story on Hunter Biden's laptop…which proved to be absolutely true. It should be known though, there will be no pardons for traitors. Biden may wish to concede but he won't get away with what he did. [https://t.co/uqu0hea603](https://t.co/uqu0hea603)
-> — 🇺🇸 𝟜𝟘ℍ𝕖𝕒𝕕 🇺🇸 ⭐⭐⭐ 🇺🇸 (@40\_head) [November 29, 2020](https://twitter.com/40_head/status/1333032219049226242?ref_src=twsrc%5Etfw)
+**老木生平**
 
+老木毕业于北京大学中文系，是上世纪八十年代朦胧派诗人，主编《新诗潮诗集》。
 
+他在六四期间积极参与学运，在校期间既写诗又编诗还演讲，著有诗集《你在火的上面歌唱》。他与西川、海子、骆一禾并称北大诗歌四才子，并且与中文系七九级同学周立文、[胡春华](https://www.soundofhope.org/term/3573)（现任国务院副总理）等创办了校园文学杂志《启明星》。
 
-自从119揭露中共病毒以来，路德社已经成为中文世界首屈一指传播事实真相的媒体。而此次通过引爆亨特拜登硬盘门和中共对美国大选的操纵，路德社在西方世界的影响力也与日俱增。被主流和社交媒体欺骗的美国民众，越发清醒地意识到美国引以为傲的言论自由早已岌岌可危，他们渴望了解事实真相，不愿被蓝金黄的政客和媒体玩弄欺骗。因此越来越多的美国人民关注路德社，传播爆料革命。现在路德社已经成为影响世界局势的重要力量之一。
+1989年“六四”事件时，[老木](https://www.soundofhope.org/term/429925)担任“天安门广场绝食指挥部宣传部副部长”，被中共列为通缉犯，之后[流亡法国](https://www.soundofhope.org/term/429943)。
 
-[援引原文](https://twitter.com/40_head/status/1333032219049226242)
+对于[老木](https://www.soundofhope.org/term/429925)[猝死](https://www.soundofhope.org/term/13071)，有推特网友表示，“有一说一，就冲病重还想着要回国这一点，共产党就把你们吃的死死的，唉。”，“因病重返国？病重返国做什么。先生走好！”。
 
-0
+**笔者观点**
+
+从美国大选，我们可以看出中共在全球渗透之深超乎想象，由此我们不难想象，因参与六四而流亡海外的人生存之艰难。六四是一场不成熟的民主运动，但六四的意义是深远的。六四爱国学生的鲜血让人们看清楚了中共的邪恶。
+
+从此中国彻底走向了更加黑暗的方向。中共让各种六四的新闻消失，让人们遗忘六四，甚至让年轻人不知道六四。但我们新中国联邦人、有良知的爱国者永远不会忘记，我们将一直传递六四的星火，因为忘记过去就意味着背叛，星星之火终将燎原！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30041840/2-128.jpg)
+新闻来源：[https://www.soundofhope.org/post/448333](https://www.soundofhope.org/post/448333)
+
+1+

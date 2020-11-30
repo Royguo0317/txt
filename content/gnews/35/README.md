@@ -1,40 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 罗斯柴尔德家族拥有的法国巴黎银行着火
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/603714/)
+## 美国对中共国在美国上市公司进行审计法案通过对中共国、新中国联邦和美国的影响
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/603935/)
 
-整撰：文錦
-复核：文非
+作者：康州盘古农场-feihua
 
-29日，一些蒙面人放火焚烧作为国家象征之一的法兰西银行大楼，而消防员则努力通过被警察围栏，临时路障和焚烧垃圾所阻挡的街道到达现场。
+审核：康州盘古农场-文韵
 
+2020年5月20日，美国参议院经一致同意通过了S.945法案 -《外国公司担责法案》。S.945法案的主要规定是，若某些公司不允许美国上市公司会计监督委员会（PCAOB）审查公司的审计，则该等公司将被禁止在美国任何证券交易所或通过美国证券交易委员会（SEC）监管的任何其他方法上市或进行证券交易。在参议院通过该法案的当日，美国众议院金融服务委员会的投资者保护、创业与资本市场小组委员会主席、众议员布拉德·谢尔曼（Brad Sherman）也提起了一项内容相似的法案。值得注意的是，众议员谢尔曼的小组委员会正是众议院中对该法案具有管辖权的主体，这增加了法案正式颁布的可能性。
 
+11月28日法广报导：自华盛顿方面消息显示，美国国会众议院12月2日将就要求在美国股市上市的中概股，必须遵守美国审计规则，及不符合者将遭到除牌的法案进行投票。据《华尔街日报》报导，美国会众议院领导人计划将在下周三审议一项法案，迫使在美国股市上市的中国公司，要么过渡到获得美国监管机构审查的年度审计，要么将股票从美国交易市场中移除。众议院计划根据限制辩论的规则将进行投票，并需要三分之二的多数才能通过相关法案。这一法案如果成为法律，将给中国公司及其审计师三年时间来遵守检查要求，然后才可能会被美国股票市场摘牌。此前，中方官员对该法案提出了批评，称有更好的办法解决华盛顿和北京在审计检查方面的分歧，中国公司退市将损害美国资本市场。这一立法动议得到了两党的支持，今年5月在参议院一致通过。
 
-> Certains individus masqués ont mis le feu au bâtiment de la Banque de France, un des symboles de l'État. [#28novembre](https://twitter.com/hashtag/28novembre?src=hash&amp;ref_src=twsrc%5Etfw) [#MarcheDesLibertes](https://twitter.com/hashtag/MarcheDesLibertes?src=hash&amp;ref_src=twsrc%5Etfw) [#StopLoiSecuriteGlobale](https://twitter.com/hashtag/StopLoiSecuriteGlobale?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/7nJUk3KMAK](https://t.co/7nJUk3KMAK)
-> — Nadège Abderrazak (@Nadege\_RTFrance) [November 28, 2020](https://twitter.com/Nadege_RTFrance/status/1332737696414851072?ref_src=twsrc%5Etfw)
+这个法案在选举舞弊诉讼案揭示中共操纵选举之时，众议院于美东时间12月2日投票通过的可能性极大。 那么这个法案通过后对中共及中共国人民、新中国联邦和美国有什么影响？
 
+这个法案要求所有在美上市中资公司证明自己不是中共政府支持，并且对这些公司财务数据进行审计。这样就会接露中共的公司所有假骗偷的真相。所有这些中资公司面临退出美国股市，这些股票市值有上万亿，这些公司不是退市就没事了，而是面临着众多投资者的集体诉讼和赔偿。那么中共拿什么赔偿？他必然加大对国内老百姓的压榨。这些公司退市就是美国从金融上与中共脱钩的又迈出一大步。这样会引起人民币大幅贬值，国内物价飞涨，外汇耗干，没法进口粮食等其他食品，最近加大澳洲进口关税也是中共尽量减少外汇的消耗。国内的外资企业更快的撤资，很多做配套的企业倒闭。淘宝，阿里巴巴、百度等中资企业破产，中共整个金融系统崩塌。还不了美国投资者的损失，中共很可能会耍无赖。那么美国就会取消中共的国家豁免权，定义为恐怖组织，冻结他们的财产用于偿还美国投资者。
 
-
-近期，法国许多大城市组织了抗议活动，包括巴黎，马赛，里昂，布雷斯特和尼斯，尽管有人对Covid-19表示担忧，但仍有数千人参加。主要活动发生在首都的共和国广场一带。
-
-抗议活动是由工会组织的，但他们有许多支持者。黄背心运动是由日益严重的社会和经济不平等现象引发的，而且几个月来一直是马克龙总统的主要问题。
-
-而抗议活动的升级则是源于一项有争议的关于公共安全的法律草案，根据该草案，对执勤警官进行拍摄可能会处以巨额罚款。为什么这项拟议的法律引起了如此大的愤怒？因为本周在网上泄露出一条法国警察殴打和种族虐待黑人音乐制作人Michel Zecler的视频。21日，因为没有戴面罩Michel在返回工作室时遭到三名警察的尾随，并对其施暴和关押。
-
-
-
-> Une pluie de coups et des mensonges : retour sur le passage à tabac du producteur de musique Michel Zecler par trois policiers [https://t.co/gRH0vSnLcn](https://t.co/gRH0vSnLcn) via [@lemondefr](https://twitter.com/lemondefr?ref_src=twsrc%5Etfw)
-> — maryline baumard (@marylinebaumard) [November 27, 2020](https://twitter.com/marylinebaumard/status/1332360162435272705?ref_src=twsrc%5Etfw)
-
-
-
-而对本周议会下院批准了这项公共安全法草案，示威者表示极大的愤怒。该条款背后的理由是，要保护警队成员免受诋毁和网络骚扰，对违抗者将处以45,000欧元（53,450美元）甚至一年的监禁。批评人士说，这条法案限制了新闻自由，将被用来威吓那些想揭露警察的野蛮行为和其他形式的不当行为的人。
-
-29日，巴黎陷入混乱，多个城市在大规模抗议警察暴行的活动中出现了暴力冲突和纵火。警察调配催泪瓦斯，闪光灯和水炮。虽然尚不清楚冲突中有多少名抗议者受伤，但当地媒体报道说，法国全国至少有37名警察受伤，至少逮捕了46名示威者。
-
-参考链接：
-[https://www.rt.com/news/508106-france-protest-filming-police/](https://www.rt.com/news/508106-france-protest-filming-police/)
-[https://www.lemonde.fr/societe/article/2020/11/27/interpellation-d-un-producteur-de-musique-une-pluie-de-coups-et-de-mensonges\_6061286\_3224.html](https://www.lemonde.fr/societe/article/2020/11/27/interpellation-d-un-producteur-de-musique-une-pluie-de-coups-et-de-mensonges_6061286_3224.html)
+这就为我们新中国联邦带来了机遇。我们新联邦的Hcoin和G-dollar 以黄金和美元挂钩的虚拟货币和即将有的银行、证券、保险、信托等的金融体系，以及支持金融体系的背后的实体。GNEWS 和G-TV 以及将要成立的电视台等多种形式的说真话和传播真相的媒体，还有ＧFashion 以及将来的G- mall等相关的实体，涉及加工制造业，物流包扩国内物流国际物流，仓储和餐饮酒店等服务行业。这就为我们农场如何落实金融体系和实体经济提出了挑战，也是我们农场的最重要的任务，从而实现新中国联邦人的价值。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/27224550/%E6%9C%AA%E6%A0%87%E9%A2%98-2-1.png)
+这个法案的通过对美国的金融市场和美国的国家体系带来了巨大正面影响。通过审计可以除去美国股票市场的假骗偷公司，有利于市场的健康发展，使国家的金融系统稳定，避免外国的侵略。通过审计可以查出所有有关与中共勾结的影子政府成员和所有中共在美国安插的间谍，一网打尽，净化了金融市场和美国。中共和影子政府成员勾结制定双重上市标准，这些年假骗偷美国民众和世界民众的财富，拿这些财富进行选举舞弊，颠覆美国整个国家系统，通过这个法律就全部连根拔除，让美国重回正常轨道并且再次伟大。
 
 0
