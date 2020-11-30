@@ -1,65 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## DOMINION与亲奥巴马的ACORN公司的暧昧关系
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/605412/)
+## 【香港要闻】12港人被移交司法起诉 邹家成：切勿被中共转移视线是一宗证据确凿、两地合作绑架人质事件
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/605496/)
 
-*新闻来源：Gateway Pundit《网关评论员》；作者：Joe Hoft；发布时间：2020年11月26日*
+搜集：卡西欧 文粤
 
-*翻译/简评：Lully；校对/审核：万人往/Freedust；Page：拱卒*
+编撰：心听见
 
-[!\[\]()!\[\](https://spark.adobe.com/page/zQegaMxKYZo7o/images/8c2fce8c-05be-4673-b4a6-9f067ce04c74.jpg?asset_id=14211589-8fb9-42bd-9571-4d0ff3ab7785&amp;img_etag=%2209bc428c9fe77d5aafc10b43c8583369%22&amp;size=1024)](https://spark.adobe.com/page/zQegaMxKYZo7o/images/8c2fce8c-05be-4673-b4a6-9f067ce04c74.jpg?asset_id=14211589-8fb9-42bd-9571-4d0ff3ab7785&amp;img_etag=%2209bc428c9fe77d5aafc10b43c8583369%22&amp;size=1024)
+复核：文非
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30130008/jpg-photo_2020-11-30_09-52-59.jpg)
+据（香港新闻报道）12港人被关押在大陆已近百日，深圳市公安局盐田分局27日发出通告指，「对12人涉嫌组织他人偷越边境、偷越边境案件」侦查终结，依法移送盐田区人民检察院审查起诉。协助12港人家属的本土派人士邹家成指出，家属的诉求至今未得到回应，呼吁大家切勿被港共及中共转移视线。他直言，「这是一宗证据确凿、两地合作的绑架人质事件」！
 
-**简评：**
+邹家成在其Facebook上表示，相信12港人正处于大陆刑事程序中的第二个阶段，即「逮捕后送往检察院」，随后将面临第三阶段「送检决定是否起诉」，以及第四阶段的「起诉和审判」。
 
-律师西德尼·鲍威尔释放的“海怪”文件无疑震动了中共和伊朗，又爆出关键的选举舞弊软件多米尼与奥巴马代表的暗势力密不可分，可见颠覆美国国家的暗势力也同样是幕后黑手。这次史无前例的、大规模、赤裸裸的选举舞弊，让在暗处嚣张的撒旦毫无保留的曝光在正义力量下，斩断这些恶魔之后，美国将会再次伟大！
+邹家成指出，即使当局将12人送往检察院，但家属的诉求，包括：家属委托的律师面见当事人、让12港人致电家属及要求保安局局长李家超及政务司司长张建宗与家属会面等，由始至终都没有获得正面回应。
 
-**原文翻译：**
+邹家成呼吁大家，切勿被港共及中共转移视线。他指出，飞行服务队内部文件清楚显示当日（8月23日）是警方行动，「这是一宗证据确凿 、两地合作的绑架人质事件」！
 
-**多米尼系统不仅极易遭受中共国和伊朗的攻击，而且还与亲奥巴马的实体ACORN密不可分**
+下周一（11月30日）就是12港人被送中的第100日，邹家成呼吁大家都可以自行组队摆设街站，共同声援12港人以及表达对家属的支持。
 
-**感恩节前夕，律师西德尼·鲍威尔(Sidney Powell)发布了一份长达104页的爆炸性诉状，控诉今年乔治亚州的选举中存在大规模的选民欺诈行为。后来发现，她同时也在密歇根州提起了诉讼。**
+日前，有7名港人的家属收到他们的亲笔信，内容均一致表示生活好，请家人放心。不过，邹家成表示，虽然家属认为信件文字是他们的「笔迹」，但内容有斧凿痕迹，再加上部份信件出现「残体字」（简体字），因此不相信书信内容是为了切合众人心中所想，并质疑是当局准备并要求他们照抄的。
 
-弗林将军（General Flynn）的律师阿比盖尔·弗莱（Abigail Frye）在周三深夜宣布了这个消息。
+战友点评：
 
-[!\[\]()!\[\](https://spark.adobe.com/page/zQegaMxKYZo7o/images/26cad815-aa1a-4603-81b1-99e875f05a4d.jpg?asset_id=191c7a78-e81a-4024-8ab1-d0ee2400e998&amp;img_etag=%220f877d8e6c89cfe01140c0c6e7dabcf6%22&amp;size=2560)](https://spark.adobe.com/page/zQegaMxKYZo7o/images/26cad815-aa1a-4603-81b1-99e875f05a4d.jpg?asset_id=191c7a78-e81a-4024-8ab1-d0ee2400e998&amp;img_etag=%220f877d8e6c89cfe01140c0c6e7dabcf6%22&amp;size=1024)“在这个感恩节前夕，‘The Kraken (挪威海怪)’以104页重磅控诉文件的形式来到乔治亚州，揭露了2020年乔治亚州选举中的大规模舞弊。乔治亚州，你永存我心。文件即将问世，敬请期待！”
+深圳市公安局盐田分局27日发出通告指，「对12人涉嫌组织他人偷越边境、偷越边境案件」侦查终结，依法移送盐田区人民检察院审查起诉。 12名港人在未知水域，因为港共海警狼狈为奸被强行带走，秘密关押于深圳的盐田看守所之内，一直杳无音讯；关押期间亦不允许家属和委托律师探望，无耻邪恶的中共剥夺了12名港人的基本人权权利，亦没有任何保障。
 
-感恩节当天，西德尼·鲍威尔转发了《自由时报》和《政治》的两条推文。
+然而与外界隔绝，会被不人道的对待，甚至被迫认罪，因为这些都是邪共一向对待政治立场不同人士迫害的手段。而邪恶的港共政府处理今次事件的手法，进一步印证港共政府对基本人权、公民政治权利与司法公正的漠视，因为在邪恶暴政一党专制从来都没有人权可言。而以偷越边境案件来处理，中共不是说台湾是中共国的一部分吗？如果用偷越边境来定罪就是说台湾不是中共国的一部分，怎么就否决了？只能说邪恶的中共是超级无耻之徒。
 
-这些推特中包括一份法庭文件，其中包括多米尼和爱迪生科研公司在互联网方面的关联信息。
+邹家成呼吁大家，切勿被港共及中共转移视线。他指出，飞行服务队内部文件清楚显示当日（8月23日）是警方行动，「这是一宗证据确凿 、两地合作的绑架人质事件」！事实摆在眼前，港共政府配合邪共绑架12人士，扣押在邪共的管制区内，以法律为借口来达到邪共的政治目的。
 
-我们注意到该文件指出，厌恶川普总统的埃里克·库默（Eric Coomer）是多米尼应用程序中身份验证功能的开发者。
+而所谓的家书亦是邪共所为，信中提及：『世界正义人士的关注和家属不要继续营救行动』作出的回应。信件文法及内容难以令人信服，很明显就是照抄，在看邪共看守所信件是要经过重重审查才能寄出，根本不可能言出真实情况。虽然终于有一点音讯，但是这种不真实的信件更令家属对12港人士的担忧。在中共极权统治之下无法可依，很难有公平公正公开的审判。我们需要传播真相，促请世界有相同人权价值观的人士或政府继续关注12港人的处境，让他们早日得到公平的对待。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/zQegaMxKYZo7o/images/97ea0fc8-f8b7-4a08-b817-4091f2a73129.jpg?asset_id=2eb65206-6311-4972-887f-8040ca8bf4e6&amp;img_etag=%22b368e946bb2b9528b86eb574c86cf021%22&amp;size=2621)](https://spark.adobe.com/page/zQegaMxKYZo7o/images/97ea0fc8-f8b7-4a08-b817-4091f2a73129.jpg?asset_id=2eb65206-6311-4972-887f-8040ca8bf4e6&amp;img_etag=%22b368e946bb2b9528b86eb574c86cf021%22&amp;size=1024)
+以上观点仅代表笔者本人
 
-然后在法律文件的第16页，该文件确认了外国势力可以通过多米尼-爱迪生科研机构的联系访问美国选举。
+新闻来源：香港大纪元新闻
 
-[!\[\]()!\[\](https://spark.adobe.com/page/zQegaMxKYZo7o/images/ab6c4ef7-c0df-428b-81a9-f3d64a7a291a.jpg?asset_id=f23305ef-3ee7-4f3b-b5ef-fdda6900a6f4&amp;img_etag=%22b73112689226dc73b085a2cbcd47300b%22&amp;size=2560)](https://spark.adobe.com/page/zQegaMxKYZo7o/images/ab6c4ef7-c0df-428b-81a9-f3d64a7a291a.jpg?asset_id=f23305ef-3ee7-4f3b-b5ef-fdda6900a6f4&amp;img_etag=%22b73112689226dc73b085a2cbcd47300b%22&amp;size=1024)
-
-**这绝对是一个令人惊愕的信息。**
-
-美国人是否意识到了自己国家的选举系统如此容易遭受攻击，境外势力如中共国和伊朗曾试图操纵我们的选举结果?
-
-[!\[\]()!\[\](https://spark.adobe.com/page/zQegaMxKYZo7o/images/47e5d4d5-94c6-47f5-ac88-10360bf736d8.jpg?asset_id=82521045-034f-47a3-9383-8c13c97474d6&amp;img_etag=%22e1ff0c96bb5b14a7c02339cf6279a420%22&amp;size=2560)](https://spark.adobe.com/page/zQegaMxKYZo7o/images/47e5d4d5-94c6-47f5-ac88-10360bf736d8.jpg?asset_id=82521045-034f-47a3-9383-8c13c97474d6&amp;img_etag=%22e1ff0c96bb5b14a7c02339cf6279a420%22&amp;size=1024)
-
-![]()![](https://spark.adobe.com/page/zQegaMxKYZo7o/images/76be9596-fdd9-42b0-af75-7cd9f8c9dd34.jpg?asset_id=d8e2229b-157b-4dba-8343-a27a043480cf&amp;img_etag=%229d95aacf8fa3b60c44480b58127c9ce7%22&amp;size=2560)
-
-然而，当文件附录进一步得到解读时，我们指出伊朗和中共国并不是唯一能够干涉多米尼数据和操纵选举结果的实体。塞尔维亚的贝尔格莱德与其有直接联系，在塞尔维亚有或曾经有许多多米尼的雇员。
-
-但是在文件的第8页，我们看到了美国国内势力与多米尼-爱迪生科研机构有关联。其中一个实体甚至与之前跟奥巴马有关联的ACORN密不可分。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/zQegaMxKYZo7o/images/40116062-05ab-4e3b-a4ca-d539e90ca5d5.jpg?asset_id=52492e41-d201-48c5-88ed-bb63ab19a915&amp;img_etag=%223ecc2c72bab28b2c8f613c1a158b251b%22&amp;size=1024)](https://spark.adobe.com/page/zQegaMxKYZo7o/images/40116062-05ab-4e3b-a4ca-d539e90ca5d5.jpg?asset_id=52492e41-d201-48c5-88ed-bb63ab19a915&amp;img_etag=%223ecc2c72bab28b2c8f613c1a158b251b%22&amp;size=1024)
-
-[原文链接](https://www.thegatewaypundit.com/2020/11/not-dominion-prone-attack-china-iran-also-connected-pro-obama-entity-known-acorn/)
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/zQegaMxKYZo7o/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/zQegaMxKYZo7o/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/zQegaMxKYZo7o/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+[https://hk.epochtimes.com/news/2020-11-28/51013001](https://hk.epochtimes.com/news/2020-11-28/51013001)
 
 0
