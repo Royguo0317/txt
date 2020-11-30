@@ -1,57 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 多米尼公司核心技术骨干曾为中共工作
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/602524/)
+## 福克斯开始转向了吗？
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/602597/)
 
-*新闻来源：The National Pulse《国家脉动》；作者：娜塔莉·温特斯（NATALIE WINTERS）；发布时间：2020年11月 25日*
+多伦多枫叶农场 老熊
 
-*翻译/简评：Marialu；校对：感恩；审核：海阔天空；Page：拱卒*
-[!\[\]()!\[\](https://spark.adobe.com/page/JxEda7xuWYpVB/images/e68ee4c0-8757-40d9-b56a-bca615bd6ea1.jpg?asset_id=39d64357-5c11-4b38-8c6d-f445db157eef&amp;img_etag=%221d71d48e99e580cabe1ff3b1e747228d%22&amp;size=1024)](https://spark.adobe.com/page/JxEda7xuWYpVB/images/e68ee4c0-8757-40d9-b56a-bca615bd6ea1.jpg?asset_id=39d64357-5c11-4b38-8c6d-f445db157eef&amp;img_etag=%221d71d48e99e580cabe1ff3b1e747228d%22&amp;size=1024)
-**简评：**
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29115514/fox-1.jpg)图片来自福克斯新闻截屏
+有句谚语，海洋是宽广的，比海洋还宽广的是天空，比天空更宽广的是则男人的胸怀，川普总统作出了表率。
 
-《国家脉动》最近透露担任多米尼投票公司信息技术的核心架构经理——黄安迪曾在“中国电信”工作，而“中国电信”被美国国防部确定为与中共军方合作超过20年的国有企业。
+面对越来越清晰的局势，选举日捅向川普总统第一把刀子的福克斯（还在计票过程中，匆匆确认亚利桑那州是拜登赢得，此举被解读为“福克斯与川普总统划清界限”的开始。此后，与其他左媒一道，大肆宣传拜登，攻击川普总统阵营），要采访川普总统，在玛丽亚·巴蒂罗莫（Maria Bartiromo）的“周日早间未来”（Sunday Morning Futures）播出。
 
-美国司法部指控多米尼技术人员为中共军方代理工作，以及“中国电信”给中共提供机会，参与恶意网络活动、进行经济间谍活动以及中断和误导美国通讯。
+福克斯文章的题目是，“最新消息：大选日后首次见到直言不讳的川普总统接受采访”，副标题，星期天早上川普总统接受玛丽亚的采访。
 
-从黃安迪的领英信息证明，多米尼投票系统，无论是硬件还是软件，都被控制在中共手中。所以越来越多的实锤证据表明：中共是操纵干涉美国大选背后的真正黑手，其目的是企图颠覆美国。
+真是不计前嫌，给足了面子。
 
-这次美国选举舞弊、大量造假和腐败现象让川普政府和美国人民越来越看清中共和美国沼泽地的大鳄们沆瀣一气的邪恶本质；也让美国正义力量更加紧密地和我们“新中国联邦”联手灭共，希望这次能以中国老百姓最小的代价，结束中共的邪恶统治。
+文章说，福克斯的玛丽亚·巴蒂罗莫在美国东部时间周日上午10点，在福克斯新闻（FOX News）的“周日早间未来”采访川普总统。
 
-**原文翻译：**
+文章里看到了近期少见的、没有攻击川普总统和总统阵营的内容，颇有“巴结”的意思，“这次采访是总统大选日以来的首次采访，也是川普总统阵营数周来对发生在战场州的法律挑战后，继续对选举造假进行指控。
 
-### 多米尼（Dominion）技术人员曾为中共军方代理工作，被美国政府标记为“恶意网络活动”
+川普总统不承认2020年大选，即使自称总统（本文作者的称呼）拜登宣布内阁成员和明年1月上任的计划。
 
-**《国家脉动》透露，现任多米尼投票系统信息技术核心架构（基础设施）经理——黄安迪（ANDY HUANG），曾在“中国电信”工作。**
-[!\[\]()!\[\](https://spark.adobe.com/page/JxEda7xuWYpVB/images/ffdb89ef-e5cf-4a9f-a9b9-014a738184ce.jpg?asset_id=c5e9e0e8-dda5-4545-b6b4-a45bf1e4dd8d&amp;img_etag=%22e930448408289d85a35759fb2790afd0%22&amp;size=2560)](https://spark.adobe.com/page/JxEda7xuWYpVB/images/ffdb89ef-e5cf-4a9f-a9b9-014a738184ce.jpg?asset_id=c5e9e0e8-dda5-4545-b6b4-a45bf1e4dd8d&amp;img_etag=%22e930448408289d85a35759fb2790afd0%22&amp;size=1024)**黄安迪（ANDY HUANG）**
-中国电信（China Telecom ）完全由中共国政府运营，并已被美国国防部确定为与（中共）国军方合作超过20年。
+文章引用了川普总统周五的推文，拜登必须证明他在选举中获得的选票不是“非法获得的”，才能进入白宫。
 
-同样，美国司法部也警告中国电信“担心该公司易受中共国政府的利用、影响和控制”，以及“中国电信在美国业务的性质”如何为“中共国‘国家行为’参与恶意网络活动提供机会，从而使他们能够进行经济间谍活动以及中断和误导美国通讯。”
+采访中，川普总统抨击了一些法官的决定，他们不允许对2020年大选结果提出法律挑战。“我们想提出一个漂亮的大诉讼，谈论这件事和其他许多事情，并提供大量证据。我们有宣誓书，我们有成百上千的宣誓书。”
 
-现在多米尼公司担任关键技术职务的黄安迪从1998年至2002年曾在中共国公司工作。
-[!\[\]()!\[\](https://spark.adobe.com/page/JxEda7xuWYpVB/images/10544b23-5ad8-4133-8ce0-fcfd2d8c053d.png?asset_id=652797f0-8f30-4834-aed1-cdb369dab93a&amp;img_etag=%221cf58e2205e607ef42a79d78aa04f266%22&amp;size=1024)](https://spark.adobe.com/page/JxEda7xuWYpVB/images/10544b23-5ad8-4133-8ce0-fcfd2d8c053d.png?asset_id=652797f0-8f30-4834-aed1-cdb369dab93a&amp;img_etag=%221cf58e2205e607ef42a79d78aa04f266%22&amp;size=1024)黄安迪在领英上的信息
-黃安迪协助完成的任务包括“厦门国际数据中心（IDC）项目”，“厦门市区宽带网络”和“ OA 内网基础设施改造项目”。
+……
 
-虽然他在这些项目上的具体工作性质尚不完全清楚，但与他有广泛合作的思科公司（Cisco），负责维护中共国严厉的互联网防火墙。
+报道出了这样斩钉截铁的话语，“拜登必须证明他在选举中获得的选票不是‘非法获得的’，才能进入白宫！”，可见福克斯也试图在附和民意。
 
-黄安迪在领英上的个人资料显示，他的雇主是他的“兴趣”之一
-[!\[\]()!\[\](https://spark.adobe.com/page/JxEda7xuWYpVB/images/a960aa54-8981-488b-a313-f33dec6d0762.png?asset_id=33cc3768-6e8d-4b66-9841-137c7ecbf436&amp;img_etag=%2241d9f4722f7297b2698167105b098c81%22&amp;size=1024)](https://spark.adobe.com/page/JxEda7xuWYpVB/images/a960aa54-8981-488b-a313-f33dec6d0762.png?asset_id=33cc3768-6e8d-4b66-9841-137c7ecbf436&amp;img_etag=%2241d9f4722f7297b2698167105b098c81%22&amp;size=1024)黃安迪“领英”上的兴趣爱好
-随着美国情报官员证实北京政府更喜欢拜登担任总统，这种挖掘出来的关系使得多米尼投票系统与反对川普总统的实体之间所保持的越来越多的可疑关系清单又多了这一项。
+不管怎样，改邪归正总得有个开始，期待福克斯认清形势，回归正义！
 
-中共国官方媒体官员证实了这些观点。
+原文链接：https://www.foxnews.com/politics/live-updates-blm-activists-protest-la-mayor-as-potential-cabinet-pick
 
-同样，多米尼公司显示，来自该公司美国员工的捐款95%以上都是捐给民主党人的。该公司还有一个游说团队，其中包括南希·佩洛西的前办公室主任和奥巴马时代的一位选票保护主管。
-
-不过，权威媒体坚称，这些联系是“毫无根据的阴谋”。
-
-[原文链接](https://thenationalpulse.com/news/dominion-techie-worked-for-ccp-military-proxy-flagged-by-u-s-govt-for-malicious-cyber-activity/)
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】-[点击saprk adobe版](https://spark.adobe.com/page/JxEda7xuWYpVB/)
-[!\[\]()!\[\](https://spark.adobe.com/page/JxEda7xuWYpVB/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/JxEda7xuWYpVB/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-1+
+4+

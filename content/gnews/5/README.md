@@ -1,33 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 马特·布雷纳德（Matt Braynard）：FBI要求进行投票欺诈调查
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/602695/)
+## 金里奇：2020年大举可能是1824年以来最大的总统职位窃案
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/602750/)
 
 - 翻译：Victor Torres
 
 
 ***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-西班牙2020年11月29日电/西喜社/——前川普竞选数据战略师马特·布雷纳德（Matt Braynard）领导了一项由群众提供资金的对2020年总统大选投票违规行为的分析，该分析被称为“选举诚信项目”（Voter Integrity Project）。 布雷纳德说，他正在提供信息，转移将在星期二完成。
+西班牙2020年11月29日电/西喜站/——前众议院议长纽特·金里奇（Newt Gingrich）谈到2020年大选时，他坚信欺诈行为已经发生，而且作为一个国家，美国已经有近100年没有看到类似的情况了。
 
-“更新：[email protected]主动直接要求我提供表明非法投票的‘选举诚信项目’(分析)结果。  –截止星期二，我们将把所有数据（包括姓名，地址，电话号码等）传递给情报机构。”
+金里奇在推特上发表了他的看法。
 
-“尽管在过去几年中存在对该机构领导人行为的合法批评，但我可以为这些为维护宪法，法律和秩序而奋斗的爱国者正名 。”
+“越多的数据显示违法的选举异常，越显得2020年(大选)是自1824年亚当斯和克莱抢夺安德鲁·杰克逊以来最大的总统职位窃案。”
 
-布雷纳德说，他的团队的工作已经并且正在呈现给听证会和法庭。“更新 : –我将亲自在亚利桑那州听证会上发表 ‘选举诚信项目’的发现。‘选举诚信项目’的成果，包括我们收集的声明，已经或即将出现在宾夕法尼亚州，乔治亚洲，密歇根州，威斯康星州和亚利桑那州的法院文件中。”
+每位共和党州议员应阅读帕特里克·巴沙姆(Patrick Basham)的分析[https://t.co/3mUFZtD1Y8](https://t.co/3mUFZtD1Y8)，并要求监督委员会审查其州的投票。 巴沙姆明确表示，这次选举几乎可以肯定在5个州被盗。 每个美国人都应该为盗窃感到担心。
 
-**参考链接：**
+**原文链接：**
 
 
 
-> [Matt Braynard: FBI Has Requested Vote Fraud Research](https://www.thegatewaypundit.com/2020/11/matt-braynard-fbi-requested-vote-fraud-research/)
+> [NEWT GINGRICH: 2020 Election May Be Biggest Presidential Theft Since 1824](https://www.thegatewaypundit.com/2020/11/newt-gingrich-2020-election-may-biggest-presidential-theft-since-1824/)
 
 
 
 ![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
-
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
 
 ![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10122733/1103-a-1-scaled.jpg)
 
