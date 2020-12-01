@@ -1,37 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅：林伍德建议川普宣布戒严
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/607609/)
+## 震惊！林伍德透露中共购买了多米尼系统，意图颠覆美国
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/607763/)
 
 - 编辑：Victor Torres
 
 
 ***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-西班牙2020年12月1日电/西喜社/——周二上午，林伍德发推称:“我们国家正走向内战。一场由第三方恶势力为他们的利益而发动的战争 – 并非为我们人民。”
+西班牙2020年12月1日电/西喜社/——刚刚，林伍德在推文中称: “爱国者警报：现在收到的消息是，中国共产党于10月8日以4亿美元的价格购买了多米尼投票系统。正在努力核实。 如果消息为真，这证实了其他证据，表明共产党人打算推翻我们的政府以夺取我们宝贵的土地。”
 
-他说: “共产主义中国正在为夺走我们的自由进行邪恶的努力。”
+他说 : “在我们的的守望下，它不可能得逞。”
 
 
 
-> Good morning.
+> PATRIOT ALERT:
 > 
-> Our country is headed to civil war. A war created by 3rd party bad actors for their benefit – not for We The People.
+> Information being received NOW that Communist China purchased Dominion Voting in October 8 for $400M.
 > 
-> Communist China is leading the nefarious efforts to take away our freedom.[@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) should declare martial law.[https://t.co/h3Ym5ytMYt](https://t.co/h3Ym5ytMYt)
-> — Lin Wood (@LLinWood) [December 1, 2020](https://twitter.com/LLinWood/status/1333788036815937537?ref_src=twsrc%5Etfw)
+> Efforts underway to verify. If true, this confirms other evidence that Communists intend to overthrow our government to get our precious land.
+> 
+> NOT ON OUR WATCH.
+> — Lin Wood (@LLinWood) [December 1, 2020](https://twitter.com/LLinWood/status/1333815984390610945?ref_src=twsrc%5Etfw)
 
 
 
-林伍德在推文中引用了一篇报道，“我们人民会议”组织(We The People Convention) 在《华盛顿时报》整版广告中，呼吁总统在立法者，法院和国会不遵守宪法的情况下，颁布有限的戒严法以举行新的选举并保护我们的投票。
+**证据链接：**[https://www.sec.gov/Archives/edgar/data/1827586/000182758620000001/xslFormDX01/primary\_doc.xml](https://www.sec.gov/Archives/edgar/data/1827586/000182758620000001/xslFormDX01/primary_doc.xml)
 
-林伍德建议川普颁发戒严令。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0

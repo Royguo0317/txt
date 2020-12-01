@@ -1,30 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/1/2020 财经快讯：受美国制裁, 中海油股价大跌, 国内银行债务纷纷违约
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/607370/)
+## 中共媒体报道“一位新冠肺炎疫苗科研攻关幕后英雄辞世”
+` GM77` [轉載自GNews](https://gnews.org/zh-hans/607418/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01091318/Picture55.png)图片来源：[https://static.reuters.com/](https://static.reuters.com/resources/r/?m=02&amp;d=20201201&amp;t=2&amp;i=1542989585&amp;r=LYNXMPEGB01WZ&amp;w=1024)
-1，美国股票期货周一晚间上涨，此前主要均线11月月度涨幅不大。道琼斯工业平均指数期货交易中上涨236点。标普500指数和纳斯达克100指数期货也交投于正值区域。
-[https://www.cnbc.com/2020/11/30/stock-market-futures-open-to-close-news.html](https://www.cnbc.com/2020/11/30/stock-market-futures-open-to-close-news.html)
+整撰：文錦；审核：Wenjun
 
-2，在OPEC+决定之前，油价收盘下跌，但11月已有27%的涨幅。油价周二下滑，因对供应增加的担忧，此前主要生产商推迟了关于2021年产量政策的谈判，该政策可能会延长减产时间，因为冠状病毒大流行继续消耗燃料需求。
-[https://www.reuters.com/article/us-global-oil/oil-falls-as-opec-talks-delays-raise-supply-concerns-idUSKBN28B3GP?il=0](https://www.reuters.com/article/us-global-oil/oil-falls-as-opec-talks-delays-raise-supply-concerns-idUSKBN28B3GP?il=0)
+中共媒体《凤凰网》12月1日发表了一篇中国医学科学院病原生物学研究员赵振东的死亡报道。令人疑惑的是，这位同时担任着疫苗研发专班技术支持组组长的赵振东死亡时间却早在2个多月前的9月16日。以下是《凤凰网》对这位被称作“幕后英雄”的迟到的死亡报道。
 
-3，俄罗斯最大的贷款机构Sberbank押注电商。Sberbank预计，到2030年，其非金融业务将占公司收入的60%，而电子商务是首席执行官德国格里夫周一公布的新三年战略的核心。
-[https://www.reuters.com/article/us-sberbank-strategy/sberbank-bets-on-e-commerce-in-expansion-beyond-banking-idUSKBN28A26G](https://www.reuters.com/article/us-sberbank-strategy/sberbank-bets-on-e-commerce-in-expansion-beyond-banking-idUSKBN28A26G)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01094249/%E6%88%AA%E5%B1%8F2020-12-01-%E4%B8%8B%E5%8D%8810.40.40.png)
 
-4，中概股简报：中海油股价大跌14%。本周美国国会议员可能会迫使在美国交易所上市的中国公司最终遵守审计监管规定，否则就得退出美国市场。众议院领袖计划周三考虑一项措施，迫使阿里巴巴等中国公司要么接受美国监管机构审查其年度审计报告，要么从美国股市退市。
-[https://cn.wsj.com/articles/](https://cn.wsj.com/articles/%E4%B8%AD%E6%A6%82%E8%82%A1%E7%AE%80%E6%8A%A5%EF%BC%9A%E4%B8%AD%E6%B5%B7%E6%B2%B9%E8%82%A1%E4%BB%B7%E5%A4%A7%E8%B7%8C14%EF%BC%8C%E5%85%AC%E5%8F%B8%E7%B4%A7%E6%80%A5%E5%85%AC%E5%91%8A%EF%BC%9A%E5%B0%9A%E6%9C%AA%E6%94%B6%E5%88%B0%E6%AD%A3%E5%BC%8F%E5%88%B6%E8%A3%81%E9%80%9A%E7%9F%A5-11606779913)
+赵振东
 
-5，掌握贷款授信审批权的光大银行支行副行长，违规向企业发放贷款，造成该行8400万不良贷款无法收回；数百万外债无法按时归还，将债务打包后 “转让”；借资金周转贷款之机，向银行贷款客户索贿近4500万，并让其姐姐帮忙催款。[http://finance.sina.com.cn/jinrong/yh/2020-11-30/doc-iiznctke4092808.shtml](http://finance.sina.com.cn/jinrong/yh/2020-11-30/doc-iiznctke4092808.shtml)
+2020年9月16日晚，一位科学家的身影倒在了首都国际机场T3航站楼的出口处。他叫赵振东，是中国医学科学院病原生物学研究所研究员，也是国务院联防联控机制科研攻关组疫苗研发专班技术支持组组长。
 
-6，广州农商行25亿本金陷信托违约 高管频落马支行涉骗案。近日，ST中捷(002021.SZ)发布公告称，广州农村商业银行股份有限公司（以下简称“广州农商行”，01551.HK）25亿元信托严重违约，广州农商行要求各债务人向广州农商行承担偿付贷款本金25亿元、利息、罚息、复利、违约金等责任。
-[http://jrh.financeun.com/Detail/index/aid/118079.html](http://jrh.financeun.com/Detail/index/aid/118079.html)
+在抗击新冠肺炎疫情期间，赵振东坚守在科研攻关一线，连续作战200多天。9月16日晚，在结束学术会议返京途中突发疾病，最终抢救无效，于2020年9月17日因公在北京不幸逝世，享年53岁。
 
-7，由于哥本哈根政府决定大规模扑杀水貂，导致全球皮草巨头哥本哈根皮草公司即将倒闭，并于2023年逐步结束经营。受此影响，国内貂皮价格突然大幅度暴涨。加工成本增加，导致皮草成衣加工商苦不堪言。然而皮草成衣销售惨淡， 大型皮草购物中心冷冷清清， 销售额相比去年同期大幅度下滑。
-[https://new.qq.com/omn/20201130/20201130A0FQOY00.html](https://new.qq.com/omn/20201130/20201130A0FQOY00.html)
+2020年上半年，举国上下投入到了抗击新冠肺炎疫情行动中。
 
-By【秘翻组 – 金融团队】
+2月15日，国家卫生健康委医药卫生科技发展研究中心主任、疫苗研发专班工作组组长郑忠伟找到赵振东。当时，国家急需一位懂疫苗研发的科学家担任疫苗研发专班技术支持小组组长，但不能直接参与疫苗攻关，只是帮五条技术路线的12个研发单位出主意、想办法，把自己的点子无偿分享给大家，解决研发中出现的各种难题。
+
+这份工作就像它的名字——“支持”一样，提供重要的帮助但却不能走到台前，只能成为一名“幕后英雄”。
+
+赵振东毫不迟疑的就答应了。就在赵振东前往长沙参加会议的前一天，也是他去世的前两天，他刚刚在武汉执行了一次新冠灭活疫苗生产车间生物安全联合检查任务。
+
+**当闫丽梦博士通过《路德社》揭露中共病毒来源真相的那一刻，真正的英雄诞生。中共制造超限生物武器，给全世界带来灾难，中共塑造的英雄形象要么是钟南山等作恶之人，要么是体制内尚存良知却不明真相或无力抗争的可悲之人。只有消灭中共才能少一些无辜的悲情英雄，让那些“英雄”的扮演者们得到应有的制裁。**
 
 0
