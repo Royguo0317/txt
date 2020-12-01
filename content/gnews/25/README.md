@@ -1,19 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年12月1日中共病毒疫情要闻快报
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/607342/)
+## 闫博士一周锦集（中文）11/30期（视频+ PDF下载）
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/607369/)
 
-**重点内容：**
+撰稿记者：CYC文穎，本來，尘凡3
+校对：Tiger64（挪威语）  
+播音：大脚印
 
-- 赵立坚称澳军残害阿富汗人，澳总理反驳中共伪造图片，要求道歉！
-- 朱利安尼鼓励知情者：不要被吓倒，你们能拯救美国；
-- 新疆封城依旧，政府大建方舱医院；
-- 两大数据看出香港经济处在崩溃边缘。
-
+[闫博士一周锦集-PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01091822/11-30_Dr.Yan-p.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01091822/11-30_Dr.Yan-p.pdf)
 
 
-
-**By：【秘翻组-上天造灭疫组】**
 
 0
