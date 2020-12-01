@@ -1,15 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫博士一周锦集（中文）11/30期（视频+ PDF下载）
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/607369/)
+## 【光州事件】「毁谤」南韩民运牺牲者　前韩国总统全斗焕遭判8个月徒刑、缓刑2年
+` GM64` [轉載自GNews](https://gnews.org/zh-hans/607409/)
 
-撰稿记者：CYC文穎，本來，尘凡3
-校对：Tiger64（挪威语）  
-播音：大脚印
+供稿：GM40
 
-[闫博士一周锦集-PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01091822/11-30_Dr.Yan-p.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01091822/11-30_Dr.Yan-p.pdf)
-
-
+1979年发动双十二政变，而后坐拥总统大位八年的全斗焕，竟派出坦克部队入城血腥镇压，以致大量平民身亡、数千人遭逮捕入狱，近年翻拍成《我只是个计程车司机》等影视作品，再次引起各界关注。全斗焕曾在1996年被法院以军事叛乱、内乱及谋杀上司罪，遭判无期徒刑，但不过一年便因亚洲金融风暴获特赦出狱。
+光州市长李永燮（Lee Yong-sub）日前便要求被告揭开真相，表示「如果他仍以这种傲慢和不诚实态度出席庭审，我们将不会袖手旁观，全斗焕对光州市民和受害者的侮辱。
+[https://www.upmedia.mg/news\_info.php?SerialNo=101322](https://www.upmedia.mg/news_info.php?SerialNo=101322)
 
 0

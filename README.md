@@ -12,25 +12,25 @@
 
 
 
-### [震惊！林伍德透露中共购买了多米尼系统，意图颠覆美国](/content/gnews/1/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共把镰刀挥向老年“韭菜”，凸显经济颓势](/content/gnews/2/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [重磅：林伍德建议川普宣布戒严](/content/gnews/3/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [乔治亚州务卿调查沃诺克领导的选民登记组织的选民欺诈行为](/content/gnews/4/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [《路德社》精选新闻快讯：麦康奈尔称：“民主党在2020大选并未赢得席位，他们没有得到更多影响力，反而失去了一些影响力”](/content/gnews/5/README.md)
+### [重磅！CNN终于承认武汉泄漏的文件显示中共对CCP病毒早期阶段的数据瞒报](/content/gnews/1/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [《路德社》精选新闻快讯：斯科特.阿特拉斯辞去川普总统病毒顾问一职](/content/gnews/6/README.md)
+### [震惊！林伍德透露中共购买了多米尼系统，意图颠覆美国](/content/gnews/2/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共把镰刀挥向老年“韭菜”，凸显经济颓势](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [重磅：林伍德建议川普宣布戒严](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [乔治亚州务卿调查沃诺克领导的选民登记组织的选民欺诈行为](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [《路德社》精选新闻快讯：麦康奈尔称：“民主党在2020大选并未赢得席位，他们没有得到更多影响力，反而失去了一些影响力”](/content/gnews/6/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [突发信息线索梳理：林伍德大律师给爱国者的“家庭作业”](/content/gnews/7/README.md)
+### [《路德社》精选新闻快讯：斯科特.阿特拉斯辞去川普总统病毒顾问一职](/content/gnews/7/README.md)
  ` 喜马拉雅农场新西兰站`
 
 ### [视频【路德社】【精华版粤语快报】11.30：川普各州节节胜 连任当选报呼声 四面凯歌齐争唱 全民剿共神气醒](/content/gnews/8/README.md)
@@ -105,54 +105,54 @@
 ### [中共媒体报道“一位新冠肺炎疫苗科研攻关幕后英雄辞世”](/content/gnews/31/README.md)
  ` GM77`
 
-### [视频【粤语】11/21/2020文贵：人类未来重新洗牌，财富再分配](/content/gnews/32/README.md)
+### [突发信息线索梳理：林伍德大律师给爱国者的“家庭作业”](/content/gnews/32/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [视频【粤语】11/21/2020文贵：人类未来重新洗牌，财富再分配](/content/gnews/33/README.md)
  ` Caihongqiao`
 
-### [【光州事件】「毁谤」南韩民运牺牲者　前韩国总统全斗焕遭判8个月徒刑、缓刑2年](/content/gnews/33/README.md)
+### [【光州事件】「毁谤」南韩民运牺牲者　前韩国总统全斗焕遭判8个月徒刑、缓刑2年](/content/gnews/34/README.md)
  ` GM64`
 
-### [闫博士一周锦集（中文）11/30期（视频+ PDF下载）](/content/gnews/34/README.md)
+### [闫博士一周锦集（中文）11/30期（视频+ PDF下载）](/content/gnews/35/README.md)
  ` GM62`
 
-### [12/1/2020 财经快讯：受美国制裁, 中海油股价大跌, 国内银行债务纷纷违约](/content/gnews/35/README.md)
+### [12/1/2020 财经快讯：受美国制裁, 中海油股价大跌, 国内银行债务纷纷违约](/content/gnews/36/README.md)
  ` 秘密翻译组G-Translators`
 
-### [2020年11月30日郭文贵先生直播摘要](/content/gnews/36/README.md)
+### [2020年11月30日郭文贵先生直播摘要](/content/gnews/37/README.md)
  ` GM102`
 
-### [每日重要Twitter播报（中文）11/30期（视频+ PDF下载）](/content/gnews/37/README.md)
+### [每日重要Twitter播报（中文）11/30期（视频+ PDF下载）](/content/gnews/38/README.md)
  ` GM62`
 
-### [孟建柱通吃情妇母女，刘特佐系孟与情妇之女私生《每日快报 &#8212; 2020.12.01》](/content/gnews/38/README.md)
+### [孟建柱通吃情妇母女，刘特佐系孟与情妇之女私生《每日快报 &#8212; 2020.12.01》](/content/gnews/39/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [视频2020年12月1日中共病毒疫情要闻快报](/content/gnews/39/README.md)
+### [视频2020年12月1日中共病毒疫情要闻快报](/content/gnews/40/README.md)
  ` 秘密翻译组G-Translators`
 
-### [2020.12.01首尔喜韩农场每日新闻热点](/content/gnews/40/README.md)
+### [2020.12.01首尔喜韩农场每日新闻热点](/content/gnews/41/README.md)
  ` 首尔喜韩农场`
 
-### [“北约2030”改革报告：中共对北约的安全造成重大挑战](/content/gnews/41/README.md)
+### [“北约2030”改革报告：中共对北约的安全造成重大挑战](/content/gnews/42/README.md)
  ` GM77`
 
-### [【香港要闻】《有线宽频》新闻部负责专题报道的「新闻刺针」小组全组被解雇，其报道曾多次获奖](/content/gnews/42/README.md)
+### [【香港要闻】《有线宽频》新闻部负责专题报道的「新闻刺针」小组全组被解雇，其报道曾多次获奖](/content/gnews/43/README.md)
  ` GM42`
 
-### [高度警惕中共崩盘后的西北局势动乱](/content/gnews/43/README.md)
+### [高度警惕中共崩盘后的西北局势动乱](/content/gnews/44/README.md)
  ` 倫敦英喜莊園 Himalaya UK`
 
-### [【热点播报】瑞典人拒绝接种病毒疫苗，世界人民正在觉醒](/content/gnews/44/README.md)
+### [【热点播报】瑞典人拒绝接种病毒疫苗，世界人民正在觉醒](/content/gnews/45/README.md)
  ` 纽约香草山农场`
 
-### [阳光大道你不走敬酒不吃吃罚酒!](/content/gnews/45/README.md)
+### [阳光大道你不走敬酒不吃吃罚酒!](/content/gnews/46/README.md)
  ` 快慢机`
 
-### [川普若闪电访台-有效遏止中共武统台湾](/content/gnews/46/README.md)
+### [川普若闪电访台-有效遏止中共武统台湾](/content/gnews/47/README.md)
  ` G-NEWS TAIWAN`
 
-### [比特币-中共情报员暗网交易](/content/gnews/47/README.md)
+### [比特币-中共情报员暗网交易](/content/gnews/48/README.md)
  ` G-NEWS TAIWAN`
-
-### [【热点播报】林伍德律师发推，最高法院保守派首席大法官难道也是沼泽的一部分？](/content/gnews/48/README.md)
- ` 纽约香草山农场`
 

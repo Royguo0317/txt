@@ -1,30 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共把镰刀挥向老年“韭菜”，凸显经济颓势
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/607740/)
+## 震惊！林伍德透露中共购买了多米尼系统，意图颠覆美国
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/607763/)
 
 - 编辑：Victor Torres
 
 
 ***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-西班牙2020年12月1日电/西喜社/——参考消息12月1日转载香港《南华早报》11月29日报道称，中共将开发老年人的消费能力以应对人口变化，促进经济发展。
+西班牙2020年12月1日电/西喜社/——刚刚，林伍德在推文中称: “爱国者警报：现在收到的消息是，中国共产党于10月8日以4亿美元的价格购买了多米尼投票系统。正在努力核实。 如果消息为真，这证实了其他证据，表明共产党人打算推翻我们的政府以夺取我们宝贵的土地。”
 
-中共希望看到更多老年人为其经济作出贡献，因为这个世界上人口最多的国家在实行了数十年的独生子女政策后，正准备应对人口迅速老龄化和劳动力减少的影响。
+他说 : “在我们的的守望下，它不可能得逞。”
 
-中共政府11月表示，将推出促进老年人消费和运用智能技术能力的具体政策，包括提供培训，帮助养老金领取者与的数字经济融合。尤其值得关注的是，北京希望老年人在医疗、娱乐活动和公共服务方面更好地利用智能技术，以帮助降低政府的总体成本和提升效率。
 
-中共国面向消费者的技术公司已经在开发针对老年人的产品。中国老龄协会去年发布的报告预计，2020年老年消费市场规模将达到3.79万亿元人民币。
 
-中共民政部近日在一份报告中说，2019年，中国65岁及以上老年人口占总人口的12.6%，在“十四五”期间，老年人口数量将达到3亿。
+> PATRIOT ALERT:
+> 
+> Information being received NOW that Communist China purchased Dominion Voting in October 8 for $400M.
+> 
+> Efforts underway to verify. If true, this confirms other evidence that Communists intend to overthrow our government to get our precious land.
+> 
+> NOT ON OUR WATCH.
+> — Lin Wood (@LLinWood) [December 1, 2020](https://twitter.com/LLinWood/status/1333815984390610945?ref_src=twsrc%5Etfw)
 
-从“房地产经济”到“教育经济”，到“农村经济”，再到“医疗经济”乃至“老年经济”，中共经济正逐步坍塌，与此同时他们正加紧挥动割向“韭菜”的镰刀。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09104114/PHOTO-2020-11-08-02-34-23.jpg)
+**证据链接：**[https://www.sec.gov/Archives/edgar/data/1827586/000182758620000001/xslFormDX01/primary\_doc.xml](https://www.sec.gov/Archives/edgar/data/1827586/000182758620000001/xslFormDX01/primary_doc.xml)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+
 
 0

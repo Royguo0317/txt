@@ -1,42 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯：斯科特.阿特拉斯辞去川普总统病毒顾问一职
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/606519/)
+## 《路德社》精选新闻快讯：麦康奈尔称：“民主党在2020大选并未赢得席位，他们没有得到更多影响力，反而失去了一些影响力”
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/606556/)
 
 出品《路德社》 编辑：路德社精选新闻专栏组
 
-据国会山11月30日晚间报道，斯科特.阿特拉(Scott Atlas)斯周一递交了辞呈，辞去了他作为川普总统冠状病毒特别顾问的角色，结束了一个有争议的任期，在这个任期内，他获得了相当大的影响力，同时推动可疑的方法来对抗这种流行病。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01024300/conell.png)
+
+本周一，美国参议院多数党领袖米奇·麦康奈尔（Mitch McConnell）在参议院大楼召集了他的民主同事并发表评论：他说事实上极左派在2020大选中已经失去了他们的影响力。
+
+“民主党并没有在众议院获得席位，反而几乎失去了席位。他们没有获得影响力，相反他们已经失去了影响力”
 
 
 
-> Honored to have served [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) and the American people during these difficult times. [pic.twitter.com/xT1hRoYBMh](https://t.co/xT1hRoYBMh)
-> — Scott W. Atlas (@ScottWAtlas) [December 1, 2020](https://twitter.com/ScottWAtlas/status/1333574072756682752?ref_src=twsrc%5Etfw)
+> Sen. Mitch McConnell: "Democrats did not pick up seats in the House, but instead appear to have lost seats. They have not gained any leverage. Instead, they have lost leverage." [pic.twitter.com/dN0KyjFmhT](https://t.co/dN0KyjFmhT)
+> — The Hill (@thehill) [November 30, 2020](https://twitter.com/thehill/status/1333520038427553799?ref_src=twsrc%5Etfw)
 
 
 
-阿特拉斯于8月作为政府特殊雇员加入政府，意味着他有资格在政府服务130天。他的任期原定于本周到期，但他提出了辞职，周二生效，一位白宫官员周一晚间证实了这一点。
+[援引原文](https://hannity.com/media-room/mcconnell-dems-did-not-pick-up-seats-in-2020-they-have-not-gained-leverage-they-lost-leverage/)
 
-“我努力工作只为一个重点-拯救生命帮并助美国人度过这场流行病，”阿特拉斯在辞职信中写道。
-
-“随着时间的推移，像所有的科学家和卫生政策学者一样，我学习了新的信息，并综合了来自世界各地的最新数据，所有这些都是为了给你们提供最好的信息以服务更大的公共利益，”他写道。”但，或许最重要的是，我的建议总是集中在尽量减少病毒和结构性政策本身尤其对工人阶级和穷人带来的危害。”
-
-福克斯新闻首先报道了该辞职。
-
-阿特拉斯是在川普总统在福克斯新闻露面时注意到他后加入政府的，并且因影响总统对病毒大流行的想法而引起争议。他不是传染病专家，并且他推崇广受争议的群体免疫理论，也就是老年人、高危人群应该受到保护，而年轻、健康的人将不受限制。
-
-白宫冠状病毒工作组的其他几位成员对阿特拉斯提出了担忧，或者公开质疑他的观点。
-
-美国疾病控制和预防中心（CDC）主任罗伯特.雷德菲尔德（Robert Redfield）被偷听到在一次飞行中大骂阿特拉斯；白宫冠状病毒应对协调员黛博拉.伯克斯（Deborah Birx）就阿特拉斯越来越大的影响力质问副总统彭斯；政府顶级传染病专家安东尼.福奇（Anthony Fauci）本月早些时候表示，他 “完全 “不同意阿特拉斯的观点。
-
-阿特拉斯在斯坦福大学胡佛研究所的同事本月早些时候也与他保持距离。
-
-自本月早些时候“输给”拜登后，川普总统已经完全脱离了疫情应对工作。虽然定期谈到疫苗开发的进展，但对于感染率上升、住院人数激增和病毒造成的死亡人数增加关注较少。而仅在11月就有数百万美国人感染了冠状病毒。
-
-现在随着美国民意的唤醒和大选舞弊真相的公之于众，越来越多的人认识到了川普总统将连任的事实，就连CNN都开始背叛候选人拜登。也就在这个时候冠状病毒作为超限战的生物武器再次在美国开始爆发并被作为攻击川普总统的武器被再次被关注。
-
-斯科特.阿特拉在担任川普总统冠状病毒特别顾问期间，他散布了一系列关于病毒的误导性信息，包括戴口罩和保持社交距离对控制病毒传播无效，以及推动群体免疫和更快地开学和营业，鼓励民众抗议政府因疫情颁布的限制等。作为总统的冠状病毒特别顾问而给对控制疫情完全相反的建议，再加上如今匆忙提前辞职，这一系列反常的行为都让这位斯科特.阿特拉斯显得无比可疑。就像林.伍德律师指出的，共和党高层感染的高概率比起民主党已经高的不正常了。路德时评同时指出，尤其川普总统的感染，是大剂量多次的接触-也就是投毒，造成的。而投毒者也必定在川普总统身边的人员之中，而且很可能就有这位阿特拉斯。 CCP配合美国黑暗势力向美国投毒的迹象已经十分明显，现在只等更多证据的揭露，而一旦开始坐实投毒的指控，加上操纵美国大选，那CCP必将被宣布为恐怖组织。
-
-[援引原文](https://thehill.com/homenews/administration/528064-scott-atlas-resigns-as-coronavirus-adviser-to-trump)
-
-1+
+2+
