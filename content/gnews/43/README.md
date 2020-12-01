@@ -1,67 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】瑞典人拒绝接种病毒疫苗，世界人民正在觉醒
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/607224/)
+## 高度警惕中共崩盘后的西北局势动乱
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/607229/)
 
-作者：香草山写作组 文锤
+作者：宁缺；校对/审核：海阔天空；Page：拱卒
+[!\[\]()!\[\](https://spark.adobe.com/page/fr5OqA4SUWEIY/images/59a0d2ed-06b8-4f85-a669-d59a2816e867.jpg?asset_id=f3a13dbf-e626-4320-b458-b9c2df20114f&amp;img_etag=%2237014c4007e884c3b2454244b93351bb%22&amp;size=1024)](https://spark.adobe.com/page/fr5OqA4SUWEIY/images/59a0d2ed-06b8-4f85-a669-d59a2816e867.jpg?asset_id=f3a13dbf-e626-4320-b458-b9c2df20114f&amp;img_etag=%2237014c4007e884c3b2454244b93351bb%22&amp;size=1024)
+目前，中共已经名存实亡，陷入最后崩盘的濒死状态。对内顶级盗国集团之间矛盾无法调和，彻底撕破了脸。对外与美国拜登勾结细节败露，与川普总统关系陷入死局，中共灭亡已经进入倒计时阶段。美国巡航南海的军事准备行动已经持续了大半年，一旦川普总统确认当选连任美国总统，习政权最后的赌局失败，短时间内绝对会转移内外交困、经济毁灭的矛盾，铤而走险与美开战。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
+1949年伪政权建立后，长期以来中共对西北各少数民族实行重拳高压的铁腕政策，不服就打，反抗就杀，造成了空前的民族对立情绪。特别是对新疆地区维吾尔族人民推行暴政，将维吾尔人关入集中营，进行全方位洗脑，把维吾尔族人变成奴隶，更恶劣的是进行种族清洗。各少数民族对中共的倒行逆施早已深恶痛绝，怀恨在心，积怨已久。
 
+值得注意的是，普通少数民族百姓其实并不太可能区分中共和汉族百姓的区别，认为中共是汉族百姓的代表和头目。这股压抑积累几十年的怒火怨气，如果被极端宗教势力煽动鼓舞，很容易发展成汉民族与其他少数民族之间全面的暴力对抗，甚至严重引发局部战争。这点从以前的西藏和新疆民众反抗中可以看出端倪。极端暴力反抗针对汉族百姓可能是无差别的暴力攻击，并没有任何把普通百姓和中共暴力机关进行区分的特殊考量。
 
+在美国社交媒体上，以Inty维奸为典型的宗教极端势力，故意强调不区分中共病毒和中国病毒，把中共的滔天罪行强加到全体中国人头上，便于日后将中国人民和中国共产党绑在一起清算，甚至一度叫嚣肢解中国，拆分中国，意图险恶，其心可诛。
 
-今天看到一则消息，来自lematin.ch这个网站，这里介绍了瑞典人拒绝接种疫苗来对抗CCP病毒，为何会这样呢？
+[!\[\]()!\[\](https://spark.adobe.com/page/fr5OqA4SUWEIY/images/47031030-4e27-470a-bfc5-6293e634f3f7.png?asset_id=1c46234d-60ef-4f62-86bf-0cf25199c6cb&amp;img_etag=%220721405a1c8c385549e2ed1210f014b6%22&amp;size=3226)](https://spark.adobe.com/page/fr5OqA4SUWEIY/images/47031030-4e27-470a-bfc5-6293e634f3f7.png?asset_id=1c46234d-60ef-4f62-86bf-0cf25199c6cb&amp;img_etag=%220721405a1c8c385549e2ed1210f014b6%22&amp;size=1024)
 
-2009年在瑞典政府的呼吁下，许多瑞典人接种了H1N1流感的疫苗，然而在出现诸如嗜睡症等许多副作用的出现以后，这次人们开始冷静下来，反思这种在紧急情况下开发出来的疫苗是否将会带来潜在的健康问题。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01081813/MOS0549-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E7%91%9E%E5%85%B8%E4%BA%BA%E6%8B%92%E7%BB%9D%E6%8E%A5%E7%A7%8D%E7%97%85%E6%AF%92%E7%96%AB%E8%8B%97%EF%BC%8C%E4%B8%96%E7%95%8C%E4%BA%BA%E6%B0%91%E6%AD%A3%E5%9C%A8%E8%A7%89%E9%86%92-1.jpg)图片来源：[fernando zhiminaicela](https://pixabay.com/users/fernandozhiminaicela-6246704/?utm_source=link-attribution&amp;utm_medium=referral&amp;utm_campaign=image&amp;utm_content=5722329)在[Pixabay](https://pixabay.com/?utm_source=link-attribution&amp;utm_medium=referral&amp;utm_campaign=image&amp;utm_content=5722329)
-梅沙（Meissa）是一名在接种H1N1疫苗以后产生嗜睡症的年轻人，嗜睡症对她的生活带来了严重的影响，当时只有11岁的她，在接种疫苗后产生了随时发作的嗜睡症，因为她会在任何不恰当的场合睡着，在面试中，在演讲中，在研讨会上，在上班的时候，在公共汽车上，到处都会睡着。当然她得到了药品保险基金的赔偿，但这并不能挽回她的健康损失，她说今后除非这个病有致命性的危险，否则她绝对不会开始接种疫苗，或者等疫苗上市5年以后，了解到疫苗的风险以后再做决定。像她这种情况的人有数百名，主要是年轻人和儿童。
+文贵先生曾经在直播中强烈指责Inty包藏反中灭中，挑起民族矛盾的祸心，结果可笑的是Inty不知道从哪冒出来的暴恐叔叔亮相网络对文贵先生和全体中国人进行赤裸裸的威胁，叫嚣杀光中国人。可以推测，Inty背后的伊斯兰宗教极端势力在中美即将来临的热战面前，可能会紧锣密鼓地谋划针对中国人民不设上限的暴乱暴动，甚至战争。
 
-在2009年，当地卫生部门呼吁国民接种由英国葛兰素史克实验室生产的pandemrix疫苗，在这个没有强制接种疫苗的国家里，有60%的人接种了疫苗，这是一个相当高的比例，几乎刷新了世界纪录。
+一旦中共在与美国热战的过程中失败，或在内外夹攻的困境下陷入崩塌瓦解的状态，其对西北少数民族长期高压消失瞬间，西北将陷入无政府的权利真空状态。西北各民族混杂而居的情况将对当地的汉族百姓生命财产安全造成极大威胁。
 
-现如今，在CCP病毒的在全球肆虐的当下，瑞典卫生局局长约翰·卡尔森（Johan Carlson）认为，瑞典国民需要有的60％至70％比例的公民接种疫苗才能阻止Covid-19病毒的进一步蔓延。“每个人都必须仔细考虑并做出决定。他上周日在电视上提到：“在瑞典，大多数人都接种了疫苗” 。即使没有任何强制性疫苗接种，瑞典仍然可以自豪的做到儿童自愿接种率超过90％。
+为了战友及家人的生命财产安全，建议家人在西北的战友密切关注中美局势发展，尽早做好撤离西北向东转移避难的准备。如果长距离迁徙实在存在困难，请尽量远离汉族百姓稀少的地区，转移到汉族人口占绝对优势的大城市聚集区。以防万一。
 
-但对于现年36岁的瑞典人芭比（Babis Stefanides）来说，很明显：她不会接种针对Covid-19的疫苗。她说：“问题太多了。” 根据Novus Institute最近的一项调查，超过四分之一（26％）的瑞典人同意接种疫苗，而28％的人尚未决定。计划在2021年初同意接种Covid-19的新疫苗的瑞典人中，只有46％的人同意接种疫苗，不超过总人口的一半。
+【文章仅代表作者观点】
 
-瑞典的案例说明，在许多国家的百姓已经开始对疫苗产生怀疑甚至不信任，在这种情况下政府很难开展疫苗接种运动，即使面对全球肆虐的大流行病。
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-瑞典人认为：我们不应批评或侮辱选择不接种疫苗的人，如果不是强制性的，则选择应当是自由的。
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-结合爆料革命，谈谈我的感受，瑞典人正在觉醒，这代表了世界上许许多多生活在良好政治制度下的人民也在觉醒，从前的老百姓多么相信政府，相信国际非营利组织，然而这种信任被利益集团所利用，用这些信任换成了他们的利润，2009年的H1N1的疫苗接种是由WHO所推动的防疫运动，当时H1N1流感（猪流感）倾向于引起高发病率，但死亡率低（1％-4％），一些研究估计，包括无症状和轻度病例在内的实际病例数可能为7亿至14亿人，占当时全球68亿人口的11％至21％。据估计，尽管2009年H1N1流感大流行实际上造成了约284,000人（从150,000至575,000）死亡。2010年9月进行的一项后续研究显示，2009年H1N1流感导致的重病风险不高于年度季节性流感的风险。作为比较，世界卫生组织估计每年有25万至50万人死于季节性流感。
+[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-也就是说，H1N1猪流感并不比普通流感严重，然而这场疫苗接种的防疫运动却卷走了全世界大笔的财富，更不要说，在疫苗接种以后还有可能对人体出现各种副作用，甚至是死亡的风险。
-
-在日本，注射了单支灭活的H1N1流感疫苗后有107例致命结果，据报告，在此期间已分发了1500万剂疫苗。虽然有一些死亡案例的病人年龄较大，具有基础性的疾病，在34例病例中未发现接种单价灭活的H1N1流感疫苗与死亡之间的因果关系，在其他73例病例中尚不清楚。但报告还是强调了时间上的关联（最高死亡计数发生在接种后24小时内，而大多数死亡发生在接种疫苗后4天以内）
-
-如果接种疫苗和死亡存在因果关系。这样的事情是否可以理解为用这些垂死老人的生命作为代价保护了1500万人的安全，或者说为这些医药集团提供了1500万支疫苗的利润。更何况，我们还没有问，H1N1的病毒来自哪里？真的是来自猪吗？
-
-从CCP病毒得到的经验，我不得不以最大的恶意来揣测这个事件，如果没有爆料革命，我们都是天真的小白鼠。
-
-战友们，放在我们这一代人肩上的使命，对于灭掉共产党，我们彷佛已经看到曙光，但清理魔鬼在世间留下的恶果，一切才都是刚刚开始，新中国联邦和正道主义任重而道远。
-
-原文链接：[https://www.lematin.ch/story/echaudes-les-suedois-refusent-le-vaccin-du-covid-371594447544](https://www.lematin.ch/story/echaudes-les-suedois-refusent-le-vaccin-du-covid-371594447544)
-
-数据引用：
-
-[https://emedicine.medscape.com/article/1807048-overview#a6](https://emedicine.medscape.com/article/1807048-overview#a6)
-
-WHO流感疫苗 立场文件
-
-[https://www.who.int/immunization/Influenza\_Chinese.pdf?ua=1](https://www.who.int/immunization/Influenza_Chinese.pdf?ua=1)
-
-H1N1疫苗注射后发生致命不良事件的风险
-
-[https://academic.oup.com/cid/article/51/7/871/355467](https://academic.oup.com/cid/article/51/7/871/355467)
-
-维基百科2009年猪流感大流行
-
-[https://en.wikipedia.org/wiki/2009\_swine\_flu\_pandemic](https://en.wikipedia.org/wiki/2009_swine_flu_pandemic)
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/fr5OqA4SUWEIY/)
+[!\[\]()!\[\](https://spark.adobe.com/page/fr5OqA4SUWEIY/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/fr5OqA4SUWEIY/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 1+
