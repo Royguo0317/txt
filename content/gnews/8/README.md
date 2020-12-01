@@ -1,39 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】血色革命染红香港历史科 考评局经理不堪政治压力请辞
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/607817/)
+## 【热点播报】林伍德呼吁川普效法林肯宣布戒严令（即军管）
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/608171/)
 
-编撰：文燕
+作者：纽约香草山写作组 Wilson
 
-覆核：文粤
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01125137/jpg-Untitled-1-05_xnQMk_1200x0.jpg)图片：立场新闻
-上届中学文凭试（DSE），试题要求考生根据试卷提供的资料及自己所学，解释是否同意「1900-45年间，日本为中国带来的利多于弊」，试题曝光后，由中联办控制的《大公报》和《文汇报》连日狙击考评局。教育局接着加入批评后，考评局最后撤销该考题。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/24223314/logo-3-1.jpg)
 
-据【立场新闻】报导，事件中被香港党报狙击、有份出题的考评局评核发展部经理（历史）杨颖宇已经在 8 月请辞。杨近日离职前向考评局同事发道别电邮，披露请辞是因庞大政治压力，指教局完成调查后，自己亦势将被解雇。他又提到，自己有份遮掩考生被取消试题的答案，形容是担任评审工作以来「最可耻（disgraceful）的事」，流下不少眼泪。考评局则指出，没有向该职员施压及要求其辞职。
 
-据悉，文凭试历史科考前一天，左媒才针对杨颖宇在Facebook上一则只供好友阅读的贴文「没有日本侵华，哪有新中国？忘本呀！」大肆批评，隔日历史科试题出炉后，当晚杨即被教育局声明斥责。杨颖宇表示，种种「巧合」令人质疑试题在考前已外泄，且其个人社交网站确实遭至少2名黑客入侵过。
 
-杨并指出，5月发生审题委员会名单外流事件、7月亦有历史科评卷准则初稿被外泄的事情发生，接连的泄漏让他深感考评局的工作环境已不安全。
 
-11月30日，杨颖宇向考评局同事发信道别，以3千多字逐点反驳取消试题的理由依据，称请辞是因庞大政治压力，并质疑整宗事件过多「巧合」，令人质疑试题早已外泄。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01171237/EoLVy0-XYAM-Rcs.jpg-large.jpg)
 
-考评局自试题风波以来，已有多名人员请辞，包括秘书长苏国生、评核发展高级经理卢家耀、评核发展部主管温德荣、评核发展经理梁紫艳等人。考评局对此则回覆，局方虽接受相关职员请辞，但并无向请辞人员施压或要求辞职，并重申参与试题制作人员必须对履行职务时获悉的事宜保密，如有人泄漏机密资料，局方会严肃跟进。
+```
+2020年12月1日，“美国人民大会”（WTPC）党主席汤姆·扎维斯托夫斯基，在《华盛顿时报》上刊登整版文章，呼吁特朗普总统颁发戒严令（即军事管制），文章称，林肯总统曾经于1863年的南北战争时期，实施了戒严令，而当今的美国形势更加危急。
+林伍德律师转发了这篇文章，并强烈呼吁川普总统“应该宣布戒严令（军管）”，他说“我们的国家正在走向内战。中共正在领导着邪恶的力量，夺走我们的自由，这个战争是由这些坏人制造的！”，他还说“现在收到的消息是，中国共产党于10月8日以4亿美元的价格购买了Dominion Voting，我们正在努力核实，如果为真，表明共产党人打算推翻我们的政府以获得我们的宝贵土地”。
+由处于舆论旋涡中心的川普律师团队核心人物，林伍德律师转发“人民大会”的戒严令请求，并发出同样的呼吁和战争警示，预示川普将很快实行戒严令（军管）。
+这是基于川普已经在决定胜负的三个方面占据了主动，即掌握了军队，基本降服了FBl、ClA和司法部这些“失控野兽”，并掌握了大量中共及深层政府的犯罪证据。也就是说，实行戒严令，动用军队进行抓捕时机已经成熟，法律条件已具备。当断不断，必受其乱！这可不是空穴来风，让我们来看下面两则消息：
+12月1日，亚利桑那州州长道格.多希不但在选举听证会正在举行时签字确认拜登当选，还居然拒绝接川普总统的电话！
+12月1日司法部长巴尔说：没有发现广泛的选举欺诈，只有一例怀疑是通过改变软件进行系统性欺诈，DOJ/DHS在调查，但不会改变大选结果！川普律师团队马上反驳：巴尔的司法部声称没有详实证据那是因为司法部一例都没有参与调查。前几天DHI也曾声称，“这是历史上最安全的选举”。
+来吧，暴风雨！
+参考来源：
+Statement of Trump Legal Team on Bill Barr’s Comments on Voter Fraud. pic.twitter.com/SlZRKStbri— Jenna Ellis (@JennaEllisEsq) December 1, 2020
+PATRIOT ALERT:Information being received NOW that Communist China purchased Dominion Voting in October 8 for $400M.Efforts underway to verify. If true, this confirms other evidence that Communists intend to overthrow our government to get our precious land.NOT ON OUR WATCH.— Lin Wood (@LLinWood) December 1, 2020
+WTPC Calls for Trump to Declare Limited Martial Law
+WTPC Calls for Trump to Declare Limited Martial Law
+校对发稿： 悟空
+更多资讯，欢迎订阅美东香草山农场官方推特账号！
+更多文稿，欢迎浏览美东香草山GNEWS官方链接！
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群Richard English版块和
+ chat-room与您相约！
+```
 
-战友点评：
 
-高等法院法官高浩文在判决书中，大篇幅反驳政府对试题的批评，明言不认为强大的政府如中央政府（’a strong government like that in the Mainland’）或者强大的人民如中国人（’strong people like the Chinese’）会因为几百名香港中学考生的答案而感到威胁。可是，事实就如此，独裁政权最怕的就是懂得思考的人民，历史的真相令独裁政权最不安。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29231938/logo-3-1-1.jpg)
 
-前教育统筹局局长王永平在接受【明周】访问表示，试题风波本来是小事一宗，后来演变成大风波，反映今天很多事情，政府都以「政治正确」的立场去看待。 「假如将来历史课不再存在利弊，那就很『弊』！」「他们其实是规限了历史观，封杀了多角度思考，只容许你从一个角度思考，甚至​​不容许你思考，总之逆他意者，就是错！」。
 
-无可置疑，国安法下，红色政治凌驾学术自由之上，考试答案亦要求学生『政治正确』的指向，如同扼杀了下一代了解历史真相的权利，独裁政权才是歪曲历史的元凶。
-
-以上观点仅代表笔者本人
-
-资来来源：立场新闻、大纪元香港
-
-[https://www.thestandnews.com/politics/%E9%A6%99%E6%B8%AF%E6%96%87%E9%9D%A9-%E6%AD%B7%E5%8F%B2%E7%A7%91%E5%87%BA%E9%A1%8C%E9%81%AD%E6%89%B9%E9%AC%A5-%E8%80%83%E8%A9%95%E5%B1%80%E7%B6%93%E7%90%86-%E8%AB%8B%E8%BE%AD%E5%9B%A0%E9%BE%90%E5%A4%A7%E6%94%BF%E6%B2%BB%E5%A3%93%E5%8A%9B-%E7%82%BA%E9%81%AE%E7%AD%94%E6%A1%88%E6%B5%81%E6%B7%9A/](https://www.thestandnews.com/politics/%E9%A6%99%E6%B8%AF%E6%96%87%E9%9D%A9-%E6%AD%B7%E5%8F%B2%E7%A7%91%E5%87%BA%E9%A1%8C%E9%81%AD%E6%89%B9%E9%AC%A5-%E8%80%83%E8%A9%95%E5%B1%80%E7%B6%93%E7%90%86-%E8%AB%8B%E8%BE%AD%E5%9B%A0%E9%BE%90%E5%A4%A7%E6%94%BF%E6%B2%BB%E5%A3%93%E5%8A%9B-%E7%82%BA%E9%81%AE%E7%AD%94%E6%A1%88%E6%B5%81%E6%B7%9A/)
-
-[https://hk.epochtimes.com/news/2020-12-01/52672450](https://hk.epochtimes.com/news/2020-12-01/52672450)
 
 0

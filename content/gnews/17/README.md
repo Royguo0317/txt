@@ -1,18 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生1130谈美国的战略—经济技术反封锁饿死中共&amp;快速斩首
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/607675/)
+## 突发：据共和党议员卢德米尔克 （Loudermilk)：一名IT技术人员和郡政府雇员从富尔顿郡的服务器上抹去了选举数据
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/608072/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01113030/%E5%B0%81%E9%9D%A2-2.png)
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+原文作者：吉姆·霍夫特（Jim Hoft）, 发布于2020年11月30日下午4:50
+翻译：康州盘古农场 – 黎明的光芒
+校对：康州盘古农场 – 烟波浩淼
+审核：康州盘古农场 – V
 
-据[2020年11月30号 文贵直播](https://gtv.org/video/id=5fc57798ee9d341c2b3ef795)时间点1：00：51
+昨晚卡桑德拉·费尔班克斯报道，佐治亚州富尔顿郡的重新计票被推迟，原因是多米尼克投票系统的移动服务器在周日晚上崩溃。
 
-这会接下来，我们战友们要意识到，这将对中国的经济、生活、粮食、供给线，中国有一个生存的生态链就是粮食、衣服啊，啥都是供给，但是战友们不要忘了，那是在某种条件下，当你某种东西断的时候，比如说粮食不够的时候、石油不够的时候、你的外汇完全不够的时候，你这个国家就会回到文化大革命、大跃进的时候，你根本不会存在什么经济，因为你根本人就像死人一样了，没有循环、没有外汇、没有生产链、没有粮食、更没有所谓的供应链，整个哗就会倒下来，这就是共产党的疯狂地它竟然在全世界从过去的解决衣食问题，让国家基本富裕问题，然后走向依法治国直接干到要挑战全世界、给全世界把脉，让全世界听他的，然后当全世界的神，然后让全世界遵从共产主义的代价。
 
-美国这次行动，战友们，你可以说要多大有多大，这在过去是不可能的，据说在台湾这个问题上，美国也认识到了，他们一定会打台湾，打台湾以后美国要不要行动也几乎决定了美国在亚洲未来有没有哥们、人有没有人跟你——美国不去保台湾，日本会再相信美国吗，印度会再相信美国吗，马六甲海峡的印度还相信你美国能保护我们吗？中东就更不相信你了，那欧洲就更别说了，谁跟你玩啊？对吧？美国就没选择，你必须要进入，你进入以后跟共产党之间你想长期打仗，那共产党死了、把中国打乱了，你也完了，那就是世界就乱了。是吧？只有一个：斩首！只有一个：快速行动！所以说美国现在定了个战略，在经济上、技术上必须一个反封锁饿死他们，然后第二个就是快速斩首行动。
 
-你们信不信战友们，战友说什么？太慢太慢，那你去吧？（注：与战友互动部分略）,,,,,,，现在争分夺秒地在整个东南亚，整个在布置着整个军事和经济的部署，特别是现在经济领域这次对国有企业的整个行动制裁，这是他的整个的制裁计划里边的大概是三十分之一吧，三十分之一。
+> "Fulton County elections officials confirmed to 11Alive on Sunday that a newly-purchased Dominion Voting Systems mobile server had crashed earlier in the day."
+> 
+> "Technicians from Dominion have been dispatched to resolve the issue."[https://t.co/3VtEJaAOdp](https://t.co/3VtEJaAOdp)
+> — Jeff Carlson (@themarketswork) [November 30, 2020](https://twitter.com/themarketswork/status/1333213368119746562?ref_src=twsrc%5Etfw)
+
+
+*“*富尔顿郡选举官员周日向11Alive证实，新购买的多米尼克投票系统移动服务器在当天早些时候崩溃了。” “多米尼克公司的技术人员已经被派去解决这个问题。”
+包括亚特兰大在内的该郡官员表示，服务器是新购买的。
+
+“多米尼克公司的技术人员已经被派去解决这个问题，”富尔顿郡官员在当地电视台WXIA-TV获得的一份声明中说。”佐治亚州州务卿办公室也收到关于该问题的警示，并努力解决这个问题。”
+
+最近涉及多米尼克的事件肯定会进一步让这家饱受争议的公司的形象变得更差。
+
+周一晚上，众议员巴里·卢德米尔克（Barry Loudermilk）(佐治亚共和党)告诉Newsmax，服务器不仅崩溃了，而且被富尔顿郡的员工把数据擦得干干净净。
+
+*众议员卢德米尔克：正如您所报道的，法官基本上扣押了某些投票机，以确保它们不会擦除数据。* *随后我们发现富尔顿县有效清除了其数据，因为在**多米尼克公司**告诉他不要使用该服务器之后，一名貌似是郡雇员的**IT**技术人员使用了错误的服务器进行重新计票。为了以防发生问题，他们备份了数据，但数据备份到了崩溃的同一台服务器上。* *现在，我们正在看数据是否真正保存在富尔顿郡的服务器上。* *我们不知道*
+
+
+
+> A forensic analysis of the Dominion voting machines needs to be performed. 
+> 
+> Judge rules that Cobb, Gwinnett, and Cherokee County election officials are prohibited from erasing or destroying any of these voting machines. [https://t.co/FMxkOhBGRR](https://t.co/FMxkOhBGRR)
+> — Rep. Barry Loudermilk (@RepLoudermilk) [November 30, 2020](https://twitter.com/RepLoudermilk/status/1333440017553874944?ref_src=twsrc%5Etfw)
+
+
+目前需要对多米尼克投票机进行取证分析。 法官裁定禁止科布县、格温内特郡和切诺基郡的选举官员擦除或销毁任何这些投票机。
+
+
+原文链接：
+
+
+
+> [BREAKING: GOP Representative Loudermilk: An IT Technician and County Employee Wiped the Election Data from Servers in Fulton County (VIDEO)](https://www.thegatewaypundit.com/2020/11/breaking-gop-representative-loudermilk-technician-county-employee-wiped-election-data-servers-fulton-county-video/)
+
+
 
 0
