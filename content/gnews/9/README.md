@@ -1,31 +1,87 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “北约2030”改革报告：中共对北约的安全造成重大挑战
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/607241/)
+## 《路德社》每日简报-2020.11.30中国建设、中芯国际、中海油和国际工程咨询公司将被列入制裁名单
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/606940/)
 
-整撰：文錦；审核：WLQF
+《路德社》文编组出品
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01061812/lude1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01061822/lude2.jpeg)
+**中国建设、中芯国际、中海油和国际工程咨询公司将被列入制裁名单**
 
-北大西洋公约组织(北约)12月1日发布一份名为“北约2030”的改革报告，内容指出北约未来必须更加认真思考如何应对中共及其军事崛起态势。
+CSCEC, SMIC, CNOOC, and CIECC will be added to the sanctions list.
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01083757/%E6%88%AA%E5%B1%8F2020-12-01-%E4%B8%8B%E5%8D%889.32.31.png)
+CSCEC: China State Construction Engineering Corporation,
 
-北约秘书长廷斯·斯托尔滕贝格
+SMIC: Semiconductor Manufacturing International Corporation,
 
-北约秘书长斯托尔滕贝格(Jens Stoltenberg)表示，中共崛起对北约安全造成重大挑战，并呼吁各盟国对此问题需达成共识。他说：“中共正在大规模投资新武器，从北极到非洲，它距离我们越来越近，中共不认同我们的价值观，并试图威吓其他国家。”
+CNOOC: China National Offshore Oil Corporation,
 
-该报告是由一个号称“智者”的团体所策划，包括了138项的建议。一位看过此报告的北约外交官表示，中国在北极和非洲的活动，以及它对欧洲基础设施的大量投资，令人担忧。 他说：“中共不再是西方所希望的良性贸易伙伴。它是这个世纪崛起的强权，北约必须适时应对。”
+CIECC: China International Engineering Consulting Corporation.
 
-这位外交官还援引报告指出，北约的应对策是要维持对中共的科技优势，以及保护计算机网络及基础设施。
+川普即将制裁的这四家军方实际控制的公司，分别是中共最大建筑商、最大芯片公司、最大海上石油公司和负责中共所有海外项目的咨询公司，这批制裁将对中共芯片业和海外项目造成毁灭性打击。
 
-这份报告建议，这个由30个成员国组成的联盟还可以与澳大利亚等非北约国家建立更紧密的联系，并更多地关注中共正在发展资产的太空威慑。
+These four actual military-controlled corporations that will be sanctioned by Trump are the CCP’s largest builder, largest chip company, largest offshore oil company, and the consulting corporation responsible for all of the CCP’s overseas projects. These sanctions will deal a devastating blow to the CCP’s chip industry and overseas projects.
 
-对于“北约2030”改革报告，中共外交部发言人华春莹表示，“希望北约继续树立正确的中国观，理性看待中国发展，多做有利于维护国际和地区安全与稳定的事。中方愿在平等和相互尊重基础上同北约加强对话。”
+**灭共，川普这次玩真的了**
 
-成立于1949年的北约一直以来的目标是遏制苏联的军事威胁，2019年美国呼吁北约将焦点从俄罗斯转到中共。北约逐渐与美国站到一起，尽管美国11月22日刚正式退出《开放领空条约》遭到了北约盟国的反对，但此次“北约2030”改革报告表明 ，北约已经对中共在全球的军事扩张保持了高度警惕。
+**This time Trump is really playing to exterminate the Chinese Communist Party.**
 
-参考链接：
+这四家巨无霸公司，每一家规模都比华为大很多，是中共海外扩张的最精锐力量，因此这批制裁是真正打到中共的痛处。这四家公司，每家背后都是华尔街在站台，其建设资金都主要来自华尔街，此次制裁将彻底掐断华尔街的输血管道。
 
-[https://www.voachinese.com/a/nato-on-chinese-military-challenge-20201201/5682639.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/nato-on-chinese-military-challenge-20201201/5682639.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+这批制裁名单的出台后，所有主流媒体都很安静，表明华尔街背后的利益集团早就做过评估，清楚将发生什么，且已经与川普政府达成一致。川普灭共这次当真了。
+
+These four giant corporations, each much larger than Huawei, are the most elite forces in the CCP’s overseas expansion, so the sanctions are a real shot in the arm for the CCP. Each of these four corporations is backed and funded primarily by Wall Street, thus the sanctions will completely cut off their vascular access to capital from Wall Street.
+
+After the sanctions list was released, all mainstream media kept quiet, indicating that the interest groups behind Wall Street had already made an assessment, knew exactly what would happen, and had reached an agreement with the Trump administration. This time, Trump is serious about exterminating the Communist Party.
+
+**中共船务和机组人员被美国盘查**
+
+**The CCP sea and aircraft crews are interrogated by the United States.**
+
+中国日报报道：截止11月11日有中共21艘轮船在美停靠时遭到突击检查，9月以来有16架次航班机组人员遭问讯和盘查是否党员身份及入党原因，时间有时长达数小时。但中国日报没有报道的是：此次盘查依据来自情报，盘查范围还包括手机和电脑，盘问内容与大选舞弊和投毒有关。
+
+China Daily reports: As of November 11, 21 Chinese Communist Party vessels were suddenly inspected while docked in the U.S., and since September the crews of 16 flights have been interrogated and questioned, sometimes for several hours, about their membership and reasons for joining the CCP. What the China Daily did not report was that the interrogations which related to election fraud and virus casting were based on intelligence and the inspection also includes cell phones and computers.
+
+**乔治亚州法官命令连续两次反转**
+
+**The Georgia judge’s order flipped twice consecutively.**
+
+11月29日，州法官发布紧急命令，要求所有投票机保持现有状态，不得清洗和重置。一个小时后，法官以郡县投票机不属于被告管辖为由，撤销了该命令；林伍德立即将该郡县长加入被告名单，法官不得不再次发布命令，冻结该州三个县的投票机10天。
+
+On November 29, a state judge issued an emergency order requiring all voting machines to remain in their current condition and not be erased or reset. An hour later, the judge reversed the order on the grounds that county voting machines were not within the defendants’ jurisdiction; Lin wood immediately added the county sheriff to the list of defendants, and the judge had to issue another order freezing voting machines in three counties in the state for 10 days.
+
+**从法官命令反转看川普团队必胜**
+
+**Judging by the reversal of the judge’s order, Trump Team will win.**
+
+在美国被渗透如此严重的情况下， 法律体系仍然在有效运转，美国必将再次伟大；
+
+能够被收买的法官，业务能力都不强，远不是大律师的对手；
+
+川普团队的林伍德大律师对法律的熟练运用和应变速度令人称奇，这是推特公司都胆怯、不敢封杀的原因；
+
+民主党腐败的官僚体系，注定了其聘请的500名律师无法与川普团队有真材实料的实干型大律师竞争，从而出现了目前法律战一边倒的现象。
+
+With the United States so heavily infiltrated, the legal system is still working effectively, so America will be great again.
+
+Judges who can be bribed are not very good at their profession and are far from being a match for big lawyers.
+
+Barrister Linwood, a member of the Trump team, his proficiency and responsiveness to the law is amazing, which is why Twitter is timid and afraid to block him.
+
+The Democratic Party’s corrupt bureaucracy has doomed its 500 hired attorneys to be unable to compete with Trump’s team of real-talented, hands-on barristers, resulting in the current lopsided legal battle.
+
+**路德金句：**
+
+LuDe Golden Words：
+
+美国的法官腐败很严重，竞选背后都有资金支持，有些法官的业务能力并不行，包括对法律的掌握程度，法庭上的经验和策略，这才是法官竞争的核心。
+
+行有行规，门有门道，有些法条专门是对法官的监督，就是为了防止某些人只研究一种法律，其实不同种类法律之间互相都有关联和对应，这就是一个牛的法律体系的伟大之处。
+
+Judges in the United States are very corrupt, and there is financial support behind the judges’ campaigns, and some judges are not competent in terms of their professional abilities, including mastery of the law, experience and strategy in the courtroom, which is the core of the competition for judges.
+
+There are rules of the road and door, and some laws are specifically designed to supervise judges to prevent them from studying only one kind of law. In fact, there are correlations and correspondences between different kinds of laws, which is the greatness of an awesome legal system.
+
+#CCP\_is\_terrorist   #TakeDownTheCCP
 
 0

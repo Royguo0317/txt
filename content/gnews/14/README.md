@@ -1,15 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 比特币-中共情报员暗网交易
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/607190/)
+## 12/1/2020 财经快讯：受美国制裁, 中海油股价大跌, 国内银行债务纷纷违约
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/607370/)
 
-Amitofu
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01091318/Picture55.png)图片来源：[https://static.reuters.com/](https://static.reuters.com/resources/r/?m=02&amp;d=20201201&amp;t=2&amp;i=1542989585&amp;r=LYNXMPEGB01WZ&amp;w=1024)
+1，美国股票期货周一晚间上涨，此前主要均线11月月度涨幅不大。道琼斯工业平均指数期货交易中上涨236点。标普500指数和纳斯达克100指数期货也交投于正值区域。
+[https://www.cnbc.com/2020/11/30/stock-market-futures-open-to-close-news.html](https://www.cnbc.com/2020/11/30/stock-market-futures-open-to-close-news.html)
 
-11月26日24小时内价格暴跌14%，30日又暴涨11%。文贵先生认为比特币实际上就是人为控制，没有交易的价值，没有回避市场风险的能力，更不存在马上进、马上出的基础金融市场条件，更不具备货币必须要有的、可跟其他货币迅速兑换的条件。并说投机的金融是:“当任何事情涨到你自己都不敢相信的时候，你就是抛它的时候，当任何事情不能真实地、100%说服你的时候，你就是放弃它的时候，当任何东西它不符合逻辑的时候，你就是不要再碰它的时候”。还说比特币是共产党、情报人员、暗网中大量非法交易的工具。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01080108/%E5%9C%96%E7%89%87-1.png)圖片來源:CoinMarketCap
-目前几乎所有交易所都有 KYC 制度，因此可以辨别帐户拥有者的真实身份，而执法机构会将这个资讯会分享给交易所和 OTC 场外交易，只要骇客或是罪犯想透过交易所或是 OTC 将赃款变现，交易所就会通知执法机构。
+2，在OPEC+决定之前，油价收盘下跌，但11月已有27%的涨幅。油价周二下滑，因对供应增加的担忧，此前主要生产商推迟了关于2021年产量政策的谈判，该政策可能会延长减产时间，因为冠状病毒大流行继续消耗燃料需求。
+[https://www.reuters.com/article/us-global-oil/oil-falls-as-opec-talks-delays-raise-supply-concerns-idUSKBN28B3GP?il=0](https://www.reuters.com/article/us-global-oil/oil-falls-as-opec-talks-delays-raise-supply-concerns-idUSKBN28B3GP?il=0)
 
-今年七月刑事局侦二大队侦破一起跨海诈骗洗钱集团，先是透过电脑及手机，操作人头帐户将被害人的赃款转换为比特币等虚拟货币，并透过虚拟货币交易所、场外交易等方式，将其兑现为新台币汇回台湾，借此达到洗钱目的。然而比特币混币器（Bitcoin mixer）一种扰乱交易关联性的机制。Wasabi 钱包的比特币混币器是基于 CoinJoin 的隐私解决方案。利用比特币 UTXO 的机制，同时让数百名交易者发起一定数量的比特币交易，执法机构就没办法以特定几笔交易证明这数百个地址控制者“恰巧”同时发起交易。美国司法部在今年二月时，逮捕了比特币混币器Helix 的创办人拉里‧哈蒙（Larry Harmon）在暗网市场AlphaBay的价值超过3亿美元的加密货币的洗钱而被捕。司法部逮捕的理由为：洗钱共犯、无照营运金钱转移服务、无照金钱转移，且美国国税局刑事调查局局长唐‧福特（Don Fort）斩钉截铁地认为，哈蒙的目的就是在暗网上帮助罪犯洗钱。
+3，俄罗斯最大的贷款机构Sberbank押注电商。Sberbank预计，到2030年，其非金融业务将占公司收入的60%，而电子商务是首席执行官德国格里夫周一公布的新三年战略的核心。
+[https://www.reuters.com/article/us-sberbank-strategy/sberbank-bets-on-e-commerce-in-expansion-beyond-banking-idUSKBN28A26G](https://www.reuters.com/article/us-sberbank-strategy/sberbank-bets-on-e-commerce-in-expansion-beyond-banking-idUSKBN28A26G)
+
+4，中概股简报：中海油股价大跌14%。本周美国国会议员可能会迫使在美国交易所上市的中国公司最终遵守审计监管规定，否则就得退出美国市场。众议院领袖计划周三考虑一项措施，迫使阿里巴巴等中国公司要么接受美国监管机构审查其年度审计报告，要么从美国股市退市。
+[https://cn.wsj.com/articles/](https://cn.wsj.com/articles/%E4%B8%AD%E6%A6%82%E8%82%A1%E7%AE%80%E6%8A%A5%EF%BC%9A%E4%B8%AD%E6%B5%B7%E6%B2%B9%E8%82%A1%E4%BB%B7%E5%A4%A7%E8%B7%8C14%EF%BC%8C%E5%85%AC%E5%8F%B8%E7%B4%A7%E6%80%A5%E5%85%AC%E5%91%8A%EF%BC%9A%E5%B0%9A%E6%9C%AA%E6%94%B6%E5%88%B0%E6%AD%A3%E5%BC%8F%E5%88%B6%E8%A3%81%E9%80%9A%E7%9F%A5-11606779913)
+
+5，掌握贷款授信审批权的光大银行支行副行长，违规向企业发放贷款，造成该行8400万不良贷款无法收回；数百万外债无法按时归还，将债务打包后 “转让”；借资金周转贷款之机，向银行贷款客户索贿近4500万，并让其姐姐帮忙催款。[http://finance.sina.com.cn/jinrong/yh/2020-11-30/doc-iiznctke4092808.shtml](http://finance.sina.com.cn/jinrong/yh/2020-11-30/doc-iiznctke4092808.shtml)
+
+6，广州农商行25亿本金陷信托违约 高管频落马支行涉骗案。近日，ST中捷(002021.SZ)发布公告称，广州农村商业银行股份有限公司（以下简称“广州农商行”，01551.HK）25亿元信托严重违约，广州农商行要求各债务人向广州农商行承担偿付贷款本金25亿元、利息、罚息、复利、违约金等责任。
+[http://jrh.financeun.com/Detail/index/aid/118079.html](http://jrh.financeun.com/Detail/index/aid/118079.html)
+
+7，由于哥本哈根政府决定大规模扑杀水貂，导致全球皮草巨头哥本哈根皮草公司即将倒闭，并于2023年逐步结束经营。受此影响，国内貂皮价格突然大幅度暴涨。加工成本增加，导致皮草成衣加工商苦不堪言。然而皮草成衣销售惨淡， 大型皮草购物中心冷冷清清， 销售额相比去年同期大幅度下滑。
+[https://new.qq.com/omn/20201130/20201130A0FQOY00.html](https://new.qq.com/omn/20201130/20201130A0FQOY00.html)
+
+By【秘翻组 – 金融团队】
 
 0
