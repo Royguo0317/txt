@@ -1,30 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共央視網11月30日消息稱，中共國已經建成了世界上規模最大的基本醫療保障網基本實現了應保盡保。
-` GM64` [轉載自GNews](https://gnews.org/zh-hans/606083/)
+## 【世界多语言图文】2020/11/21-22 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/606213/)
 
-中共央視網11月30日消息稱，中共國已經建成了世界上規模最大的基本醫療保障網，基本實現了應保盡保。中共黨首習近平強調：“我們建立全民醫保的根本目的，就是要解除全體人民的疾病醫療後顧之憂”。
- 
-中共國號稱GDP全球第二，但是在醫療衛生總支出占比GDP比重排行榜中倒數，在183個國家中排145位，僅占比4.6%。據調查，在中國，有70%以上的家庭因治病而走向貧窮，只要家裏有重病患者，這個家庭就很可能傾家蕩産，更有甚者，不少病人只能在家等死，不堪忍受自行了斷者也常見諸報端。
- 
-黨媒鼓吹的醫保全覆蓋，應保盡保。實際上中共國的醫保建檔複雜，報銷範圍和流程更複雜。醫保本作爲社會基礎保障，中共的原則卻是“保而不包”。也就是說，對于絕大多數的人來講，如果不幸患了大病，還是需要自費一大筆治療費用，一場大病，對于一個家庭就是一場災難。就算有醫保，報銷比例最多80%，實際中能報的只會更少，更何況中共還明確規定以下8種費用醫保不予報銷：
-1、未經批准在非定點醫院就診的（緊急搶救除外）；
-2、患職業病、因工負傷或者工傷舊病複發的；
-3、因交通事故造成傷害的；
-4、因本人違法造成傷害的；
-5、因責任事故造成食物中毒的；
-6、因自殺導致治療的；
-7、因醫療事故造成傷害的；
-8、按國家和本市規定醫療費用應當自理的。
- 
-在藥價方面，中共國也比其他國家高，並且越是救命藥就越貴。就拿電影《我不是藥神》中治療白血病的格列衛(影片中爲避免侵權改叫“格列甯”)爲例，根據《人民網》2015的一項調查表明，中國最貴，超韓國兩倍：香港售價1.8萬，日本1.6萬，美國1.36萬，韓國只需0.97萬，而中國賣到2.35萬。最近的明證是中共國産出的新冠疫苗，免費贈送給亞非拉國家，中國人接種卻要收費428元，活脫脫的一副“甯贈外邦，不予家奴”的嘴臉。
- 
-據中國前衛生部副部長殷大奎2006年披露：中共僞政府每年投入的醫療費用中，80%都花在了黨政官員身上。2006年，全國衛生總費用約爲7000億元，占GDP的5.6%。其中，政府投入占衛生總費用的17%，約1190億元，這裏面的80%，也就是952億元，都用在了850萬黨政官員身上，剩下的20%，也就是238億卻要用在13億人身上，人均不足20元。
- 
-中共國號稱建成世界最大規模的醫療保障網，普通百姓卻看不起病，因爲看病傾家蕩産、家破人亡的悲劇每天都在上演。號稱GDP全球第二，醫療支出占比卻全球倒數，就這本來就少得可憐的費用竟然80%都用在黨政官員身上。中共治下，老百姓命如草芥，生不起病，吃不起藥，住不起院，小病自我診斷，大病自我了斷，唯一的出路是團結起來一起推翻這個邪惡的體制，爭取免費的醫療，找回做人的尊嚴和免于匮乏的權利！
- 
- 
-新聞來源： [http://news.cri.cn/20201130/6782db64-441f-3d9b-e95e-80f5355dad6d](http://news.cri.cn/20201130/6782db64-441f-3d9b-e95e-80f5355dad6d).內新聞/素材：小黑姐（文雅）校對：文迹～見證神迹
+战友之家图文摘要及多语组
+
+[301-302\_English\_1121-1122\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222556/301-302_English_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222556/301-302_English_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)
+
+[301-302\_French\_1121-1122\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222557/301-302_French_1121-1122_CCP_Virus_Updates__22.17.39.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222557/301-302_French_1121-1122_CCP_Virus_Updates__22.17.39.pdf)
+
+[301-302\_German\_1121-1122\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222555/301-302_German_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222555/301-302_German_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)
+
+[301-302\_Japanese\_1121-1122\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222557/301-302_Japanese_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222557/301-302_Japanese_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)
+
+[301-302\_Korean\_1121-1122\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222557/301-302_Korean_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222557/301-302_Korean_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)
+
+[301-302\_Spanish\_1121-1122\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222554/301-302_Spanish_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222554/301-302_Spanish_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)
+
+
 
 0

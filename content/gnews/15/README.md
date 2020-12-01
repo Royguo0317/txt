@@ -1,23 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/11/21-22 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/606213/)
+## 乔治亚州的选举欺诈
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/606320/)
 
-战友之家图文摘要及多语组
+翻译/简评：草原三省战友团 文莱
+校对 文锦 上传 云起时
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01000301/The-mercury-news.jpg)图片来源：The mercury news
+据DJHJ媒体11月30日报道，有证据揭露海外公司拥有美国投票系统的技术，并且还有法官被迫撤销一项裁决以保护乔治亚州（Georgia）州长比兰·肯普（Biran Kemp）与多米尼（Dominion）签订合同中的“商业秘密”。
 
-[301-302\_English\_1121-1122\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222556/301-302_English_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222556/301-302_English_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)
+多米尼投票系统是由一家加拿大公司制造的服务器，该服务器在2020年美国总统大选期间被指控操作参与了大规模选民欺诈。
 
-[301-302\_French\_1121-1122\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222557/301-302_French_1121-1122_CCP_Virus_Updates__22.17.39.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222557/301-302_French_1121-1122_CCP_Virus_Updates__22.17.39.pdf)
+佐治亚州联邦法官11月29日下令该州停止删除或重新设置选举机器，但随后又推翻了这则命令。林·伍德律师日前在推特上表示有数百万个证据显示肯普及乔治亚州州政府在隐藏真相，当法律的正义来临之时，暗中勾兑的人们将不会有安眠夜。
 
-[301-302\_German\_1121-1122\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222555/301-302_German_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222555/301-302_German_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)
+目前滑稽的大选局势其实是乔治亚州长和州国务卿与总统之战。共和党州长因为深受川普总统的认可，从而赢得了州内竞选，但他却不断拒绝川普调查乔治亚州选票的请求，他的背叛不但丧失了公信力并将面临着诸多法律诉讼。
 
-[301-302\_Japanese\_1121-1122\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222557/301-302_Japanese_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222557/301-302_Japanese_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)
+林·伍德（Lin Wood）律师抓住了肯普与多米尼投票公司（Dominion Voting Systems）签订了合同的证据，这使得前国务卿希拉里·克林顿（Hillary Clinton）非常不满意，因此指责伍德。但是伍德日前转发了一位新闻工作者的帖子，在提醒读者的同时回击希拉里的评论：鉴于肯普完全不支持川普总统召集立法机关特别会议的提议，以及他清除服务器数据的恶行，可以肯定的是希拉里·克林顿在教唆肯普这一系列政治腐败恶行。
 
-[301-302\_Korean\_1121-1122\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222557/301-302_Korean_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222557/301-302_Korean_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)
+伍德在许多推文中大胆地挑战肯普，这暗示着在不久的将来针对涉嫌选民欺诈的诉讼将集中在肯普身上。
 
-[301-302\_Spanish\_1121-1122\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222554/301-302_Spanish_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222554/301-302_Spanish_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)
+川普本人周一在推特上发布了关于该问题的推文，并对肯普提出质疑，为什么肯普拒绝川普的法律团队检查邮寄选票上的签名，并且这个问题在选举中一直存在，由于为了避免中共病毒所带来的危险，所以邮寄选票在2020年总统选举中被广泛使用。川普总统在推文中揭示乔治亚州会发现投票数比选票信封数还多，这是典型的欺诈行为，而这将激怒所有共和党人。
 
+更令人费解的是，乔治亚州的服务器在计票时崩溃，其中一台服务器可能已被拆除。据当地新闻报道，在多米尼投票系统服务器崩溃后，乔治亚州富尔顿县（Fulton County）的重新计票暂停。选举官员向11Alive媒体概述了该问题，并说多米尼投票系统存在一个问题因此暂时延迟了重新计票。川普总统的竞选活动要求乔治亚州国务卿布拉德·拉芬斯珀格（Brad Raffensperger）在初次重新计票后得到乔治亚州的选举结果的第二天，即11月21日要求重新计票。
 
+富尔顿县选举官员在一份声明中对11Alive表示：“多米尼公司已经派出了技术人员来解决此问题，并且乔治亚州国务卿办公室也已收到该问题的警报且知道解决该问题所需要的努力。”官员们称，他们预计将在星期一早上重新开始计数。在第二次重新计票开始之前，民主党总统候选人提名人乔·拜登（Joe Biden）在该州约12,000票领先川普。
 
-0
+川普竞选团队声称，乔治亚州需要重新计票因为该州的总统大选结果是错误的。竞选团队要求选举官员审查选票邮件信封上的签名，称许多选票是非法的。
+
+“川普竞选团队提出了在乔治亚州重新计票的请愿书。川普竞选法律团队在一份声明中说：‘我们致力于确保遵守乔治亚州法律和美国宪法，以便对每个合法选票进行计数。’”
+
+“川普总统及其竞选团队继续坚持在乔治亚州进行合法诚实的重新计票，其中必须包括签名匹配和其他重要保障措施。如果没有签名匹配，这种重新计数将是虚假的。让我们停止为人民提供错误的结果。我们一定要停止计算非法选票 。”
+
+评：
+乔治亚州的选票欺诈行为只是此次总统大选中腐败的冰山一角，愈来愈多的邪恶勾兑将被曝光在民众面前。海外公司掌控着美国总统选举的投票系统这一历史遗留问题反映出美国民主正在被资本侵蚀，而目前邪恶的沼泽力量利用媒体的力量一直在阻碍法律战的推动，这一系列的欺诈行为在不断侮辱人民的智商，但是觉醒的民意却一直推动着川普总统在为人民的利益而战斗。
+
+此次大选是正义与邪恶的终极之战，也是平民主义与中共推动的国际共产主义的终极之战，因此总统大选才会走到今天这个滑稽的场面。幸运的是，美国的法律以及爆料革命的配合一定会带来一个公平的选举。硬盘门的曝光已经唤醒了世界的正义力量，而随着总统宣誓的临近，爆料革命是否将唤醒全世界所有民意共同维护民主、自由、法治？请拭目以待！
+
+[原文链接](https://djhjmedia.com/kari/chaos-second-reversal-by-judge-in-georgia-raises-questions-about-who-is-being-protected-servers-in-ga-crash/)
+
+1+

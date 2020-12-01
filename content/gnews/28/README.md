@@ -1,76 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德社解析：川普政府准备将中芯国际等四家龙头企业列入黑名单
-` GM127` [轉載自GNews](https://gnews.org/zh-hans/605962/)
+## Smartmatic与Dominion之间的紧密关联
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/606085/)
 
-[视频来源](https://www.youtube.com/watch?v=C6Xx8Ng3qSI)
-《路德时评》2020年11月30日早间节目深度解析最新重磅新闻，主要内容如下：川普政府准备将中芯国际等四家龙头企业列入黑名单；美严查入境中国公民党员身份；乔治亚州选票造假案情一波三折。
+多伦多枫叶农场 文𤦍(Manpui）
+校对 文锦 上传 云起时
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30210655/canadianpatriot.org_.jpg)图片来源：canadianpatriot.org
+据国家脉动（National Pulse） 11月29日报道，与乔治·索罗斯（George Soros）有联系的Smartmatic董事长马克·马洛赫·布朗勋爵（Malloch-Brown）曾承认“技术来自Dominion的授权许可”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30212746/150.png)图片来源：canadianpatriot.org
+自今年美国大选以来，Dominion投票系统已成为全球焦点。该软件据称在委内瑞拉曾用来帮助雨果·查韦斯（Hugo Chavez）赢得大选，然后把委内瑞拉变成一个社会主义人间地狱。
 
-一、川普政府准备将中芯国际等四家龙头公司列入黑名单
+很多人会问为何Smartmatic 能在2010年的选举中竞标，谁允许的呢？
+事实上Smartmatic拥有在国际上使用Dominion所使用的特定技术的许可。尽管之前Smartmatic坚持否认与Dominion投票系统“从没拉上任何关系”，但2015年6月在菲律宾ABS-CBN新闻媒体的採访中，Smartmatic董事长布朗勋爵承认：“…我们的技术的一部分已获得Dominion的授权许可。”
 
-《德国之声中文网》[1]：根据路透社周一 (11月30日) 报导，据一份文件和消息人士透露，川普政府准备将中国芯片制造商中芯国际、中国海洋石油、中国建筑技术有限公司和中国国际工程咨询有限公司列入“中共军工企业”黑名单，限制美国投资。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30191953/Lude_20201130_AM-figure1.png)[图片地址](https://www.dw.com/zh/%E8%B7%AF%E9%80%8F%E7%BE%8E%E5%9B%BD%E9%98%B2%E9%BB%91%E5%90%8D%E5%8D%95%E5%A2%9E%E5%88%97%E4%B8%AD%E8%8A%AF%E5%9B%BD%E9%99%85%E4%B8%8E%E4%B8%AD%E6%B5%B7%E6%B2%B9/a-55767403)
-分析如下：
+在2020年美国大选期间发生腐败指控之后，Dominion和Smartmatic为什么都竭尽全力使彼此疏远，给人看起来他俩一点关系也没有？这消息更进一步引发疑问。
 
-1. 这四家公司一旦被制裁，任何美国公司将不允许与它们进行合作；
+最近，两公司声称彼此是竞争对手，目的是摆脱他们是用同一技术来欺骗美国民众的想法。 不久前，国家脉动披露了这两家公司实际上达成了不竞争协议。
 
-2. 这四家公司分别为各自领域龙头老大：
+Smartmatic公司董事长布朗勋爵与左翼超级捐助者索罗斯有著错综複杂的关係。在2003年 搬到纽约时，布朗勋爵从索罗斯租了自己的房子，被批评称这所房子的价格低于市场价格。联合国发言人指出，“他俩是好朋友”，因为“由于两者都是公众人物，他们决定将这种生活安排作为商业交易，而不是礼物。”
 
-- 中海油[2]：海上石油、运输、采油等，是中共进行国际公海石油开发最重要的公司；
-- 中芯国际[3]：芯片原材料、技术服务、生产工艺和技术服务咨询等依赖进口；
-- 中国建筑[4]：海外大型工程建筑承包商，高端设备、快速凝固材料、钻头等都依靠进口；
-- 中国国际工程咨询公司[5]：主要从事海外工程监理、工程设计（设计软件和设计师）、工程招标等；
+2007年，布朗勋爵被任命为索罗斯量子基金副总裁，并于同年担任索罗斯基金管理公司（Soros Fund Management）和开放社会研究所（Open Society Institute）的副主席。尽管如此，Smartmatic坚称“与政府或政党没有任何关系”。
 
+评：
+纸包不住火，Smartmatic和Dominion在2020美国大选舞弊手段按迹循踪，越来越多的证据都指向了背后操纵选举的暗黑势力。希望本文能提供一些蛛丝马迹给到大家。
 
-3. 这四家公司市值都大于华为，每家公司背后都牵扯华尔街资本，一旦被制裁将直击中共要害；
+[原文链接](https://thenationalpulse.com/news/soros-linked-smartmatic-chair-on-dominion/)
 
-4. 再结合昨日节目中爆出中概股即将退市的消息，可以看到川普政府丝毫不受大选舞弊案影响，步步为营，中共即将被清算；
-
-5. 这四家公司正好是中共执行“一带一路”计划的重要运营商，一旦被制裁，中共的 “一带一路”政策将受到严重打击；
-
-6. 中共海外项目的资金主要就来自美国资本，完全是利用美国资本发展中共“一带一路”计划；
-
-7. 这些企业开展海外项目都是借助中共国家力量，再借助国家情报和资本拓展海外商业，在海外形成垄断掌控定价权，然后再控制当地投票权和话语权。
-
-二、美严查入境中国公民党员身份
-
-据中国日报消息[6]，近期，美国有关部门执法人员多次突击检查中方航运企业人员的共产党员身份。截至11月11日，中方共有21艘轮船在美港口停靠时遭美突击检查；其中16艘船舶再10月份的25天内被查，平均不到2天就有一艘中方船只被查，9月以来中方航空公司共有16架次赴美航班机组人员遭问询、盘查。据悉，美方盘查有时长达数个小时，反复纠缠共产党员身份，连入党原因也要盘查。
-
-1. 美方肯定是得到重要情报才开展突击盘查行动；
-
-2. 路德社推测此次盘查可能和美国大选舞弊案有关，大量虚假选票绝不可能是通过邮寄方式进入美国，极有可能是通过货运渠道进入美国。
-
-三、乔治亚州选票造假案情一波三折
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30191945/Lude_20201130_AM-figure2.png)[图片来源](https://twitter.com/htommy998/status/1333179705747402752)
-11月30日一则消息称[7]：乔治亚州法官刚刚收回禁止令！因为州长和州务卿说偷票机是州的资产，他们是按照选举法在更新软件！
-
-随后，案情再次出现反转：林·伍德律师团队将郡选举官员也纳入诉讼，将州长和州务卿利用无管辖权作为理由默认对选举数据清零，法官决定10天禁止令，不允许任何人对选票机器和数据进行更改。
-
-由此可以看出：
-
-1. 美国法官的腐败程度何等严重，居然配合行政官员钻法律空子；
-
-2. 林·伍德律师团队的诉讼水平非常高，对法条极其熟练，能根据案件变化随时应变。
-
-参考文章：
-
-[1] [https://www.dw.com/zh/%E8%B7%AF%E9%80%8F%E7%BE%8E%E5%9B%BD%E9%98%B2%E9%BB%91%E5%90%8D%E5%8D%95%E5%A2%9E%E5%88%97%E4%B8%AD%E8%8A%AF%E5%9B%BD%E9%99%85%E4%B8%8E%E4%B8%AD%E6%B5%B7%E6%B2%B9/a-55767403](https://www.dw.com/zh/%E8%B7%AF%E9%80%8F%E7%BE%8E%E5%9B%BD%E9%98%B2%E9%BB%91%E5%90%8D%E5%8D%95%E5%A2%9E%E5%88%97%E4%B8%AD%E8%8A%AF%E5%9B%BD%E9%99%85%E4%B8%8E%E4%B8%AD%E6%B5%B7%E6%B2%B9/a-55767403)
-
-[2] 中海油：[https://www.cnooc.com.cn](https://www.cnooc.com.cn)
-
-[3] 中芯国际：[http://www.smics.com](http://www.smics.com)
-
-[4] 中国建筑：[https://english.cscec.com](https://english.cscec.com)
-
-[5] 中国国际工程咨询公司：[http://www.ciecc.com.cn](http://www.ciecc.com.cn)
-
-[6] [https://www.xindemarinenews.com/world/25328.html](https://www.xindemarinenews.com/world/25328.html)
-
-[7] [https://twitter.com/htommy998/status/1333179705747402752](https://twitter.com/htommy998/status/1333179705747402752)
-
-文章撰写：【重生】    编辑：【Isaiah4031】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22111053/VOG-Rose-Garden-Team.png)
-
-
-0
+3+

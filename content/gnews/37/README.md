@@ -1,26 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 前Overstock CEO 正在雇人证实2020年大选舞弊
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/605775/)
+## 佐治亚州数千川普选票未被计算 扫票员曾为贺锦丽工作
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/605888/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30094144/Picture48-2.png)图片来自：sltrib.com
-据《零对冲》（Zero Hedge）11月29日报道，Overstock.com前首席执行官帕特里克·拜恩（Patrick Byrne）表示，他正在资助一群 “黑客、网络间谍和其他有特殊技能的人”来证明民主党在2020年大选中作弊，川普总统理所当然地获胜。
+多伦多枫叶农场（原加喜农场） ctt
+校对 文锦 上传 云起时
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30184731/146.png)
+在此次大选中, 佐治亚州弗洛伊德县有三千多张未统计的选票, 其中大部分是支持川普总统的，并且在部分选票扫描过程中, 没有观察员在场。
 
-这位57岁的千万富翁拜恩在几个播客上现身，其中在11月23日的播客上声称他是自由经纪人，自筹资金资助一群奇人。拜恩向《每日野兽》(The Daily Beast)和《同一美国新闻》（One America News)证实了他已经在资助一个 “黑客和破解者 “团队。据拜恩称，他的团队早在8月就意识到Dominion公司的投票机可能被用来窃取川普选票，并且他已经与川普前律师西德尼·鲍威尔（Sidney Powell）有了数周的沟通。鲍威尔上周在密歇根州和佐治亚州针对乔·拜登（Joe Biden）势力操纵选举提起两起诉讼。
+在这个县, 共有2名负责扫描选票的Dominion投票系统公司代表, 其中的一名叫艾里克·汤普森(Aric Thompson), 他曾在社交媒体上抨击过川普总统, 而且他去年担任过贺锦丽(Kamala Harris)竞选活动的官方摄影师, 并在网上有一个作品集，里面有他给贺锦丽拍的照片, 而贺锦丽是民主党参议员，本次美国大选拜登阵营的副总统人选。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30185008/twitter6.jpg)图片来源：Linkedin![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30184900/twitter5.png)图片来源：Twitter
+发现数千张未计选票后，佐治亚州弗洛伊德县的选举委员会投票决定解雇选举事务长罗伯特·布拉迪(Robert Brady), 而福克斯却报道称，共和党州务卿认为这是因为存储卡中的选票未被上传。
 
-鲍威尔在佐治亚州的诉讼中描述道，美国境内和境外份子编写和操纵电脑软件，故意将老式填充选票放大到几乎不可见，同时在数学和统计学上也出现了大量超乎寻常的不可能的异象，这与多名证人的宣誓证言、文件和专家的证词相吻合，都证明了这一阴谋在佐治亚州的存在。鲍威尔还指出，在密歇根州，大规模选举舞弊制造出了成千上万张非法的、没有资格的、重复的或纯属虚构的选票，同时密歇根州选举委员会使用的Dominion投票系统的选举软件和硬件也辅助了欺诈，这也就是为什么拜登能赢该州的原因。
+评：
 
-对于Dominion投票系统，克里斯托弗·麦克唐纳（Christopher McDonald）， 一位从未被黑客攻击过的2000亿美元电子商务公司的前负责人称，该投票系统其实被用来执行一种 “投放和滚动 “的选民舞弊技术，这至少在五个关键的摇摆地区偷偷为拜登垫了票。亚特兰大、底特律、密尔沃基、费城和亚利桑那州(凤凰城)的马里科帕县在选举日之前都被操纵，从而非法地剥夺了川普总统在这几个州的合法胜利。
+这次美国大选中，拜登阵营进行了大量的造假和作弊。其中方式之一就是销毁投给川普的选票， 或不予计数，而主流媒体更是一边倒地站在民主党左派一边，对大选作弊视而不见、避而不谈。但目前曝出的越来越多证据显示，外国势力通过控制Dominion投票系统操纵美国大选，而来自Dominion公司员工与副总统候选人贺锦丽共事过，个中情况不言而喻。
 
-拜恩自称并不是川普总统的支持者，而是一个“小我”自由主义者。他说，包括内华达州的克拉克县的六个地区是发生大量选举舞弊的地方。拜登只需在这些摇摆不定的关键地区“获胜”，就能在选举中取胜，因此舞弊不需要大面积发生。通过这五个县的舞弊，就能翻盘五个关键州，然后影响整个选举人团。在川普输了1万票的地方，可能会有30万张虚假的非法选票投给拜登。拜恩进一步指出，美国的选举系统“简直就是个笑话”，尤其是那些由Dominion投票系统和Smartmatic软件运行的选举系统。
+[原文链接](https://humansarefree.com/2020/11/dominion-rep-who-scanned-ballots-in-georgia-county-where-thousands-of-trump-votes-were-uncounted-also-worked-for-kamala-harris.html)
 
-报道最后暗示，也许拜恩的团队服务于鲍威尔的团队，我们对此无从可知。但是为了共同的目标，一起合作强强联手未尝不可。
 
-[原文报道](https://www.zerohedge.com/political/former-overstock-ceo-paying-team-hackers-and-cybersleuths-prove-trump-won-election)
 
-翻译： Alton
-
-校对：沙拉猫
-
-3+
+2+
