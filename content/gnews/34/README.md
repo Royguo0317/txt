@@ -1,23 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/11/21-22 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/606213/)
+## 文贵说｜系列图片连载（六十二）
+` GM98` [轉載自GNews](https://gnews.org/zh-hans/606891/)
 
-战友之家图文摘要及多语组
+## 428.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01060553/003-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01061152/e475241d7360e8e0.png)
+你能在风雨之前享受风雨，同时能知道风雨之后的快乐—，万里天空、晴空万里。这就是人生！
 
-[301-302\_English\_1121-1122\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222556/301-302_English_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222556/301-302_English_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)
+——郭文贵先生2020年8月4日
 
-[301-302\_French\_1121-1122\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222557/301-302_French_1121-1122_CCP_Virus_Updates__22.17.39.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222557/301-302_French_1121-1122_CCP_Virus_Updates__22.17.39.pdf)
+## 429.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01060644/2020-8-24__1__1__1-scaled.jpg)
+就是因为战友的信任和战友相信的这个事实，和对我们爆料革命的忠诚，我们渡过了一个一个的大劫难，而使我每次遇难呈祥！
 
-[301-302\_German\_1121-1122\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222555/301-302_German_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222555/301-302_German_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)
+——郭文贵先生2020年8月4日
 
-[301-302\_Japanese\_1121-1122\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222557/301-302_Japanese_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222557/301-302_Japanese_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)
+## 430.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01061026/08071df26ad82842.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01061033/2020-8-25-3__1-scaled.jpg)
+只有美国安全了，大家才能获得和平。要是让俄罗斯、CCP真的获得了世界的主导权，世界将陷入灾难。
 
-[301-302\_Korean\_1121-1122\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222557/301-302_Korean_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222557/301-302_Korean_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)
+——郭文贵先生2020年8月4日
 
-[301-302\_Spanish\_1121-1122\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222554/301-302_Spanish_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222554/301-302_Spanish_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)
+## 431.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01061055/2020-8-25-2__1__1__1__1__1__1__1-scaled.jpg)
+一切得靠实力！兄弟姐妹们，有了实力你才能给人家说我要真理，我要真相；没有实力，你永远不可能有真相和正义，所谓你想象的公平。
 
+——郭文贵先生2020年8月4日
 
+## 432.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01061113/2020-8-26_-scaled.jpg)
+世界上公平是相对的，你的实力和对方和社会各方面给你的，是相对的。
+
+——郭文贵先生2020年8月4日
+
+## 433.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01061221/GTV.png)
+G-TV它的价值在哪？就在直播、就在盖特，它能传达出真相和信息。
+
+——郭文贵先生2020年8月4日
+
+## 434.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01061254/s2.jpg)
+你的行为就是你的果，一念万生佛啊，万佛出自于你的心。一念而起，因起果落。
+
+——郭文贵先生2020年8月4日
 
 0
