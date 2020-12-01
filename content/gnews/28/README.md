@@ -1,56 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## DOMINION与亲奥巴马的ACORN公司的暧昧关系
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/605412/)
+## 克拉肯(KRAKEN)的威力无穷
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/605665/)
 
-*新闻来源：Gateway Pundit《网关评论员》；作者：Joe Hoft；发布时间：2020年11月26日*
+*新闻来源：Midtown Republican 《中城共和党人》；作者：Georgeann (R) King；发布时间：2020年11月25日*
 
-*翻译/简评：Lully；校对/审核：万人往/Freedust；Page：拱卒*
-
-[!\[\]()!\[\](https://spark.adobe.com/page/zQegaMxKYZo7o/images/8c2fce8c-05be-4673-b4a6-9f067ce04c74.jpg?asset_id=14211589-8fb9-42bd-9571-4d0ff3ab7785&amp;img_etag=%2209bc428c9fe77d5aafc10b43c8583369%22&amp;size=1024)](https://spark.adobe.com/page/zQegaMxKYZo7o/images/8c2fce8c-05be-4673-b4a6-9f067ce04c74.jpg?asset_id=14211589-8fb9-42bd-9571-4d0ff3ab7785&amp;img_etag=%2209bc428c9fe77d5aafc10b43c8583369%22&amp;size=1024)
+*翻译/简评：wmorpho；校对：X-Wing飞得更高；审核：海阔天空；Page：拱卒*
 
 **简评：**
 
-律师西德尼·鲍威尔释放的“海怪”文件无疑震动了中共和伊朗，又爆出关键的选举舞弊软件多米尼与奥巴马代表的暗势力密不可分，可见颠覆美国国家的暗势力也同样是幕后黑手。这次史无前例的、大规模、赤裸裸的选举舞弊，让在暗处嚣张的撒旦毫无保留的曝光在正义力量下，斩断这些恶魔之后，美国将会再次伟大！
+这是共和党的一篇揭露深层政府恶行、呼吁美国人民正视现实，拯救美国的檄文。 它告诫美国人们，不管你愿不愿意，美国现在已处于战争状态，它不同于已往的战争，它是看不见的网络超限战。美国的网络战争项目“克拉肯”已经大获全胜，追踪并掌握了美国内外敌人试图摧毁美国的全部犯罪证据，美国人们必须从睡梦中醒来，拨开假新闻的谜雾与误导，看清谁是朋友，谁是敌人，跟随川普总统斩妖除魔，恢复美国治序，拯救美国，进而拯救全世界。
 
 **原文翻译：**
 
-**多米尼系统不仅极易遭受中共国和伊朗的攻击，而且还与亲奥巴马的实体ACORN密不可分**
+# 克拉肯（Kraken）是美国国防部的网络项目吗？
 
-**感恩节前夕，律师西德尼·鲍威尔(Sidney Powell)发布了一份长达104页的爆炸性诉状，控诉今年乔治亚州的选举中存在大规模的选民欺诈行为。后来发现，她同时也在密歇根州提起了诉讼。**
+[!\[\]()!\[\](https://spark.adobe.com/page/MM1IvbselcbEo/images/547bb647-5fb6-4113-affa-73fb5d30955c.jpg?asset_id=bc3c3355-cede-48f9-b98b-9e15d43d2861&amp;img_etag=%22236d3029bff073c5bbcb3a4888a81c6e%22&amp;size=1024)](https://spark.adobe.com/page/MM1IvbselcbEo/images/547bb647-5fb6-4113-affa-73fb5d30955c.jpg?asset_id=bc3c3355-cede-48f9-b98b-9e15d43d2861&amp;img_etag=%22236d3029bff073c5bbcb3a4888a81c6e%22&amp;size=1024)
 
-弗林将军（General Flynn）的律师阿比盖尔·弗莱（Abigail Frye）在周三深夜宣布了这个消息。
+马歇尔报告认为克拉肯是美国国防部的网络程序。最近有一篇文章作为头条，标题是“西德尼·鲍威尔所说的“克拉肯”是美国国防部网络战争程序！” 西德尼·鲍威尔所引述的精彩的油管视频附在本文下面。该视频大约超过一个小时，如果你没时间观看全部视频， 那就着重观看视频的最后10-15 分钟。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/zQegaMxKYZo7o/images/26cad815-aa1a-4603-81b1-99e875f05a4d.jpg?asset_id=191c7a78-e81a-4024-8ab1-d0ee2400e998&amp;img_etag=%220f877d8e6c89cfe01140c0c6e7dabcf6%22&amp;size=2560)](https://spark.adobe.com/page/zQegaMxKYZo7o/images/26cad815-aa1a-4603-81b1-99e875f05a4d.jpg?asset_id=191c7a78-e81a-4024-8ab1-d0ee2400e998&amp;img_etag=%220f877d8e6c89cfe01140c0c6e7dabcf6%22&amp;size=1024)“在这个感恩节前夕，‘The Kraken (挪威海怪)’以104页重磅控诉文件的形式来到乔治亚州，揭露了2020年乔治亚州选举中的大规模舞弊。乔治亚州，你永存我心。文件即将问世，敬请期待！”
+[!\[\]()!\[\](https://spark.adobe.com/page/MM1IvbselcbEo/images/418a579c-0a61-41f3-aeb7-521067e457ba.jpg?asset_id=ff5b9322-710b-470a-b753-d1774d1b39a4&amp;img_etag=%22a30c8effa72903abf3a2c77e41e07775%22&amp;size=1024)](https://spark.adobe.com/page/MM1IvbselcbEo/images/418a579c-0a61-41f3-aeb7-521067e457ba.jpg?asset_id=ff5b9322-710b-470a-b753-d1774d1b39a4&amp;img_etag=%22a30c8effa72903abf3a2c77e41e07775%22&amp;size=1024) 马歇尔报告在11月22日发表了一篇文章，标题是：”西德尼-波威尔的《KRAKEN》是国防部的网络战备计划！”SIDNEY POWELL的 “KRAKEN “是国防部的网络战备计划! 我们在打仗！”。
 
-感恩节当天，西德尼·鲍威尔转发了《自由时报》和《政治》的两条推文。
+神圣雷达 – 就是克拉肯！！！ 有谁知道它是美国国防部的网络战争项目？它追踪网络系统来获取深层政府邪恶的活动和犯罪证据。
 
-这些推特中包括一份法庭文件，其中包括多米尼和爱迪生科研公司在互联网方面的关联信息。
+当西德尼·鲍威尔声称她已经释放了克拉肯，我们大多数人都认为这是一场泰坦之战，并为她超常的勇气而欢呼。当她声明此事的时候，她的眼神是无所畏惧的，她的表情是坚毅严肃的。现在我们知道了原因，她没有开玩笑。“克拉肯”是美国国防部网络战争项目，它追踪并黑客各种网络系统来获取深层政府邪恶的活动证据。川普总统和太空军中忠诚的爱国者们已经掌握了选举舞弊的叛国证据。
 
-我们注意到该文件指出，厌恶川普总统的埃里克·库默（Eric Coomer）是多米尼应用程序中身份验证功能的开发者。
+我们所见证的2020年美国大选不是一场常规的选举，我们所见证的是一次试图推翻美国政府的行动。CIA，FBI 和美国司法部中有太多的叛国的沼泽地老鼠，他们试图盗取美国总统的宝座，并奉全球之令来接管美国。他们是邪恶的全球主义的木偶，他们胆大妄为地推行政变来摧毁美国，他们实施全球重启计划来迎接联和国2030议程，此议程是持续发展的21 号议程的修订版。他们利用隔离封锁正在对毫无警觉的美国人民实施各种致命的打击，同时世界各地的国家对他们自己的国民也实施同样的隔离封锁手段。他们会成功吗？回答是不可能！
 
-[!\[\]()!\[\](https://spark.adobe.com/page/zQegaMxKYZo7o/images/97ea0fc8-f8b7-4a08-b817-4091f2a73129.jpg?asset_id=2eb65206-6311-4972-887f-8040ca8bf4e6&amp;img_etag=%22b368e946bb2b9528b86eb574c86cf021%22&amp;size=2621)](https://spark.adobe.com/page/zQegaMxKYZo7o/images/97ea0fc8-f8b7-4a08-b817-4091f2a73129.jpg?asset_id=2eb65206-6311-4972-887f-8040ca8bf4e6&amp;img_etag=%22b368e946bb2b9528b86eb574c86cf021%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/MM1IvbselcbEo/images/ab8a2792-e837-4276-9ad2-f2d92e439db7.jpg?asset_id=2d69336c-6a05-467d-aee8-8ea50adcfb61&amp;img_etag=%22dcf17811111de85cdfb44e650a8a7a76%22&amp;size=2560)](https://spark.adobe.com/page/MM1IvbselcbEo/images/ab8a2792-e837-4276-9ad2-f2d92e439db7.jpg?asset_id=2d69336c-6a05-467d-aee8-8ea50adcfb61&amp;img_etag=%22dcf17811111de85cdfb44e650a8a7a76%22&amp;size=1024)
 
-然后在法律文件的第16页，该文件确认了外国势力可以通过多米尼-爱迪生科研机构的联系访问美国选举。
+来自美国代理国防部长克里斯·米勒的警告：
 
-[!\[\]()!\[\](https://spark.adobe.com/page/zQegaMxKYZo7o/images/ab6c4ef7-c0df-428b-81a9-f3d64a7a291a.jpg?asset_id=f23305ef-3ee7-4f3b-b5ef-fdda6900a6f4&amp;img_etag=%22b73112689226dc73b085a2cbcd47300b%22&amp;size=2560)](https://spark.adobe.com/page/zQegaMxKYZo7o/images/ab6c4ef7-c0df-428b-81a9-f3d64a7a291a.jpg?asset_id=f23305ef-3ee7-4f3b-b5ef-fdda6900a6f4&amp;img_etag=%22b73112689226dc73b085a2cbcd47300b%22&amp;size=1024)
+“警告那些令人作呕的邪恶分子，不要低估了我们解决问题的能力，或者试图破坏我们的努力，我们会毫不犹豫地重拾我们的威慑实力并粉碎所有的威胁。”
 
-**这绝对是一个令人惊愕的信息。**
+特种部队的一些特定部门现在直接汇报给代理国防部长克里斯·米勒。他们与川普总统站在一起，捍卫宪法，抗击美国外部与内部的敌人。所以不要恐慌或害怕。 川普总统掌控一切， 站线已经划清。克拉肯项目已经展开并且已经猎获了一切。 特种部队正在行动来摧毁美国内部的敌人和叛徒。
 
-美国人是否意识到了自己国家的选举系统如此容易遭受攻击，境外势力如中共国和伊朗曾试图操纵我们的选举结果?
+西德尼·鲍威尔表明：“一种计票程序算法被置入了选票系统来盗取川普总统的选票” – 这正是近十几年来媒体不断地警告且怀疑选举的真实性。 （美国选举被操纵了至少20 年， 甚至更久……）
 
-[!\[\]()!\[\](https://spark.adobe.com/page/zQegaMxKYZo7o/images/47e5d4d5-94c6-47f5-ac88-10360bf736d8.jpg?asset_id=82521045-034f-47a3-9383-8c13c97474d6&amp;img_etag=%22e1ff0c96bb5b14a7c02339cf6279a420%22&amp;size=2560)](https://spark.adobe.com/page/zQegaMxKYZo7o/images/47e5d4d5-94c6-47f5-ac88-10360bf736d8.jpg?asset_id=82521045-034f-47a3-9383-8c13c97474d6&amp;img_etag=%22e1ff0c96bb5b14a7c02339cf6279a420%22&amp;size=1024)
+假新闻和整个媒体界继续在向美国人民撒谎并掩盖所有的压倒性的选举舞弊证据。这不是简单的推翻政府，这是实锤的叛国。 但是我确信有些人是相信了假新闻，有些人对他们所作的事不明就里，只是做他们的工作来获取报酬。 同样的情形也发生在实施投票舞弊的第一线的工作人员，他们中的很多人根本不知道发生了什么，或者根本就不关心。
 
-![]()![](https://spark.adobe.com/page/zQegaMxKYZo7o/images/76be9596-fdd9-42b0-af75-7cd9f8c9dd34.jpg?asset_id=d8e2229b-157b-4dba-8343-a27a043480cf&amp;img_etag=%229d95aacf8fa3b60c44480b58127c9ce7%22&amp;size=2560)
+只要假新闻不停止继续向美国人民撒谎，我们所进行的战争就不会停止，我们会认定他们的行为是背叛美国人民，他们是美国人民的敌人。这里我并不是呼吁战争，而是战争已经打响了。那些抵制这场战争的人，左翼每天释放的再教育和更恐怖的事情正在等候着你们。这是真真切切的，绝不开玩笑。
 
-然而，当文件附录进一步得到解读时，我们指出伊朗和中共国并不是唯一能够干涉多米尼数据和操纵选举结果的实体。塞尔维亚的贝尔格莱德与其有直接联系，在塞尔维亚有或曾经有许多多米尼的雇员。
+杰弗里·普拉瑟对“克拉肯”是这样解释与描述的，“大重启和大觉醒的对决”。 他释放了一个据有爆炸性的视频，在视频中他综述了正在发生的幕后的真正战争：“大重启和大觉醒的对决”。
 
-但是在文件的第8页，我们看到了美国国内势力与多米尼-爱迪生科研机构有关联。其中一个实体甚至与之前跟奥巴马有关联的ACORN密不可分。
+正像他所描述的，CIA、FBI 和美国司法部都是沼泽地中的叛国者，他们意图摧毁美国，盗取大选，囚禁像弗林将军（和罗杰·斯通）那样真正的爱国者。而同时，特种部队的一些特定的部门和代理国防部长克里斯·米勒，都与川普总统站在一起，捍卫宪法，抗击美国外部与内部的敌人。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/zQegaMxKYZo7o/images/40116062-05ab-4e3b-a4ca-d539e90ca5d5.jpg?asset_id=52492e41-d201-48c5-88ed-bb63ab19a915&amp;img_etag=%223ecc2c72bab28b2c8f613c1a158b251b%22&amp;size=1024)](https://spark.adobe.com/page/zQegaMxKYZo7o/images/40116062-05ab-4e3b-a4ca-d539e90ca5d5.jpg?asset_id=52492e41-d201-48c5-88ed-bb63ab19a915&amp;img_etag=%223ecc2c72bab28b2c8f613c1a158b251b%22&amp;size=1024)
+试想一下，深层政府渗透美国是如此之深，以至于它已经可以强有力地运作，众目睽睽之下悍然让美国这样一个庞大的政府天平倾斜，这实在是让人超级震撼！醒醒吧，同胞们， 让那些全球主义分子现出原形，帮助拯救美国，拯救世界！
 
-[原文链接](https://www.thegatewaypundit.com/2020/11/not-dominion-prone-attack-china-iran-also-connected-pro-obama-entity-known-acorn/)
+
+
+[原文链接](http://midtownrepublican.com/archives/23728)
 
 [点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
@@ -58,8 +58,6 @@
 
 [欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/zQegaMxKYZo7o/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/zQegaMxKYZo7o/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/zQegaMxKYZo7o/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/MM1IvbselcbEo/)
+[!\[\]()!\[\](https://spark.adobe.com/page/MM1IvbselcbEo/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/MM1IvbselcbEo/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0
