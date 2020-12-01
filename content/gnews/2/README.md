@@ -1,41 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 一波三折！佐治亚州终发布冻结多米尼投票机的限制令
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/605715/)
+## 警惕！纽约市长计划下周重新开放学校，这是一个危险的信号！
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/606087/)
 
-- 编辑：文顺
-- 翻译：里奇
-- 素材：Victor Torres
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30210554/647E005E-76F4-490B-BBD2-DC718DD064AE.jpeg)
+作者：引力波
 
+**警惕！纽约市长计划下周重新开放学校，这是一个危险的信号！**
 
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+纽约市长比尔·德布拉西奥（Bill de Blasio）本周日宣布：下周重新开放学校。
 
-西班牙2020年11月30日电/西喜社/——佐治亚州蒂莫西·巴滕（Timothy Batten）法官发布了为期10天的冻结多米尼投票机的限制令，期间该令一度被撤回，但最终落地。
+De Blasio在其Twitter上写道：所有3-K，Pre-K和K-5学生将从12月7日开始恢复面对面学习，所有残章学生从12月10日开始恢复上学。
 
-蒂莫西·巴顿（Timothy C. Batten）法官于当地周日上午发布命令，冻结佐治亚州的所有多米尼投票机。其后由于被告声称多米尼克投票机由佐治亚郡掌控，蒂莫西·巴滕法官于当日下午晚些时候撤回了之前下达的指令。晚上10:10，蒂莫西·巴滕法官再次发布临时禁制令，为期10天，以防止销毁证据。
+该命令是在该市日常冠状病毒病例和住院病例激增的情况下进行的，在过去一个月中，这两个病例均增加了一倍以上，而同期的每日死亡人数增加了50％。这说明了学校可以重新开放并没有医学依据。
 
-其后，林·伍德律师（Linn Wood）在推文中写道：“鲍威尔（Sidney Powell）和我赢了，然后输了，但最终赢了。我们将永不放弃追求真相以实现正义。”
+纽约市长的这一计划是在福西博士的支持与教唆下实行的。福西（Fauci）声称重新开放学校是安全的，因为COVID-19在儿童中的传播“低”。
 
+然而，美国儿科学会最近的一份报告发现，截至11月12日，已经有104万儿童确诊COVID-19病例。此外，研究发现，其中大多数病例发生在8月份初次开学后，当时在社区中的病例开始增多的情况下，学校管理人员和地方政府拒绝改用远程学习。
 
+纽约市长的这项计划很危险，在疫情还在持续蔓延的情况下这种做法只会导致更大规模的爆发。
 
-> Sidney Powell [@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw) & I won, then lost, but ended up winning. We will never give up the pursuit of TRUTH to achieve justice.[@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw)[@KrakenWood](https://twitter.com/KrakenWood?ref_src=twsrc%5Etfw) [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) [#FightLikeAFlynn](https://twitter.com/hashtag/FightLikeAFlynn?src=hash&amp;ref_src=twsrc%5Etfw)[#FightBack](https://twitter.com/hashtag/FightBack?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/mV6SGVLsv9](https://t.co/mV6SGVLsv9)
-> — Lin Wood (@LLinWood) [November 30, 2020](https://twitter.com/LLinWood/status/1333259577182334976?ref_src=twsrc%5Etfw)
+不要忘记，福西（Fauci）和香港P3实验室的病毒之王马力克有深度的往来，他从一开始就在撒谎；
 
+不要忘记，这个病毒是中共的超限生物武器，他们已经在年初成功实施了投毒，现在他们还会继续投毒；
 
+不要忘记这场病毒和2020年大选舞弊都是中共颠覆美国的终极之战的一部分。
 
-**参考链接：**
+12月7日开学意味着什么？他们要在1月20日川普总统成功连任之前制造灾难以组织“排干沼泽”的行动。
 
+普通人到底如何自我保护，度过这场灾难？
 
+减少人群接触，每周服用羟氯喹+锌，这就是最好的方法。主流媒体和科学界都不会传播这个真相，因为这触及了他们的巨大利益链条。自由世界的人们请尽力传播真相，让民意及时醒来，摆脱媒体和政客的操纵，实现自我拯救。
 
-> [BREAKING GEORGIA UPDATE: Judge Issues Restraining Order for 10 Days Preventing Defendants from Destroying or Erasing Dominion Voting Machines](https://www.thegatewaypundit.com/2020/11/breaking-georgia-update-judge-issues-restraining-order-10-days-preventing-defendants-destroying-erasing-dominion-voting-machines/)
+以下附上预防用药的方法：
 
+闫博士推荐：高危人群用量：锌片或硫酸锌，按含锌量算，25mg/次/天；羟氯喹200mg/次/天；连续五天，饭后吃，之后一周一次。（该用药方法针对无羟氯喹禁忌的成人）
 
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10122733/1103-a-1-scaled.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+地郎中（文海）〈推特和GTV同名〉推荐儿童使用雾化剂预防：100mg羟氯喹药兑50ml0.85–0.9%生理盐水制成雾化剂，每天深呼吸1-5次，50ml可以使用几个月。同时服用儿童补剂锌。以下可选两种雾化容器：鼻腔喷雾法（成本低，可随身携带方便，实用）；雾化肺吸法（成本高，可以递送药物至下呼吸道）。
 
 0

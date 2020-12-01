@@ -1,29 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新中国联邦电视台现场直播！川普总统法务团队亚利桑那州听证会进行时！
-` GM01` [轉載自GNews](https://gnews.org/zh-hans/605190/)
+## 陆军上校菲尔·沃尔德隆（Phil Waldron）见证了多米尼系统连线法兰克福
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/605624/)
 
-2020年11月30日，川普总统法务团队在亚利桑那州举办选举听证会，新中国联邦电视台现场直播，同时配有同声传译。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30114522/%E6%88%AA%E5%B1%8F2020-11-30-%E4%B8%8A%E5%8D%889.44.36.png)
-直播正在进行中
-
-GNEWS直播链接：
-
-[https://live.gnews.org/watch/?v=oK7XyXZOJn9Hsma4](https://live.gnews.org/watch/?v=oK7XyXZOJn9Hsma4)
-
-GTV直播链接：
-
-[https://gtv.org/broadcast/watch/5f8c68367de25667c0f48355](https://gtv.org/broadcast/watch/5f8c68367de25667c0f48355)
-
-这次听证会定于11月30日上午9点开始，目的是收集一切有根据的证据，以举行一次特别会议让亚利桑那州立法者进一步调查。
-
-该活动被称为“事实调查听证会”，由川普总统的法律团队和亚利桑那州立法机关的成员参加。
-
-周一的听证会在菲尼克斯市区的凯悦酒店举行。川普总统私人律师詹娜·埃利斯和鲁迪·朱利安尼将出席。
-
-相关听证会内容将随时更新：
+- 编辑：Victor Torres、文顺
+- 翻译：Victor Torres
 
 
+***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+西班牙2020年11月30日电/西喜社/——鲁迪·朱利安尼（Rudy Giuliani）在周一的亚利桑那听证会上的第一位证人是信息战官部队退休陆军上校菲尔·沃德隆（Phil Waldron），他确认自己在选举日见证了多米尼系统连线法兰克福。
+
+沃尔德隆是自动投票机的专家，并且知道如何“进入并破坏”这些投票机。
+
+他解释说，当今美国大多数运行系统中的通用软件是“ Smartmatic”的衍生产品。
+
+在周一的证词中，沃尔德隆上校证实他在选举日亲眼目睹了多米尼投票系统与法兰克福发生了数据交流。
+
+**原文链接：**
+
+
+
+> [Arizona Voter Fraud Witness Army Col. Phil Waldron Confirms Experts Saw Dominion Communicating with Frankfurt on Election Day (VIDEO)](https://www.thegatewaypundit.com/2020/11/arizona-voter-fraud-witness-army-col-phil-waldron-confirms-dominion-communicating-frankfurt-election-day-video/)
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0
