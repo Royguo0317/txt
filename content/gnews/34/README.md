@@ -1,13 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/28/2020 文贵直播: 中共豢养的牛金星们完全不懂美国, 哪里想到美国人真的有信仰、尊重并相信法律; 川普总统还有司法和情报两个迷局未开, 大家走着瞧
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/606006/)
+## 【世界多语言图文】2020/11/21-22 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/606213/)
 
-2020年11月28日文贵先生视频：俄罗斯对中共攻打台湾不但不帮忙，反而希望中共死在台湾问题上，台湾人民要小心了；中共豢养的牛金星们完全不懂美国，哪里想到美国人（无论党派）真的有信仰、尊重并相信法律；川普总统还有司法和情报两个迷局未开，大家走着瞧
+战友之家图文摘要及多语组
+
+[301-302\_English\_1121-1122\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222556/301-302_English_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222556/301-302_English_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)
+
+[301-302\_French\_1121-1122\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222557/301-302_French_1121-1122_CCP_Virus_Updates__22.17.39.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222557/301-302_French_1121-1122_CCP_Virus_Updates__22.17.39.pdf)
+
+[301-302\_German\_1121-1122\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222555/301-302_German_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222555/301-302_German_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)
+
+[301-302\_Japanese\_1121-1122\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222557/301-302_Japanese_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222557/301-302_Japanese_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)
+
+[301-302\_Korean\_1121-1122\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222557/301-302_Korean_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222557/301-302_Korean_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)
+
+[301-302\_Spanish\_1121-1122\_CCP\_Virus\_Updates\_](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222554/301-302_Spanish_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30222554/301-302_Spanish_1121-1122_CCP_Virus_Updates_-22.17.39.pdf)
 
 
-
-By：【秘密翻译组G-Translators】
 
 0
