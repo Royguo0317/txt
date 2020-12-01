@@ -1,37 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世卫专家称中共散播新冠肺炎源于欧洲的说法“纯属臆测”
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/606985/)
+## 巴西总统称存在美国总统大选舞弊的证据
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/607082/)
 
-*新闻来源：The National Pulse《国家脉动》；作者：娜塔丽·温特斯（NATALIE WINTERS）；发布时间：2020年11月28日*
+多伦多枫叶农场 熊妈妈
 
-*翻译/简评：随波逐流；校对：MikeHua；审核：海阔天空；Page：拱卒*
-[!\[\]()!\[\](https://spark.adobe.com/page/saLLxG28k7tsi/images/f3481edc-71f2-45be-b563-b71fcf535ae5.jpg?asset_id=6d9e6d73-194b-4403-afb4-9d0a216885f4&amp;img_etag=%225a9ac4bf67b5542df79593d4b3052ac4%22&amp;size=1024)](https://spark.adobe.com/page/saLLxG28k7tsi/images/f3481edc-71f2-45be-b563-b71fcf535ae5.jpg?asset_id=6d9e6d73-194b-4403-afb4-9d0a216885f4&amp;img_etag=%225a9ac4bf67b5542df79593d4b3052ac4%22&amp;size=1024)
-#### **简评：**
+校对 不动之光 上传 XM
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01071211/896.jpg)图片来源：irishtimes.com
+11月29日，巴西总统贾尔∙博尔索纳罗（Jair Bolsonaro）表示，他有证据表明在美国2020总统大选中存在欺诈性投票。
 
-WHO顶级专家日前在日内瓦举行的网上简报会上严厉驳斥了中共宣称的新冠肺炎（covid-19）起源于欧洲的说法，称这种说法“纯属臆测”。从新冠肺炎在武汉爆发开始，中共一直寻找各种理由阻止国际专家组到中共国进一步调查病毒起源，而且还买通各种媒体、在有影响力的学术期刊上发表论文等方式不断散播新冠病毒起源的虚假消息，企图扰乱视听。随着英雄科学家闫丽梦和博士团战友连续的重磅爆料，向世人揭露了病毒是中共实验室制造的生化武器的真相，震惊了世界。在强大的证据面前，中共慌不择路，又开启了新一轮甩锅模式。中共的种种谎言已经不堪一击，他们残忍的反人类罪行必将受到正义的审判。
+博尔索纳罗在接受媒体采访时说，“我有信息来源，我不会说出，好吧？ 确实，有很多伪造案件的情况。”
 
-#### **原文翻译：**
+尽管在美国官方还没有公布选举结果的情况下，中共操控的所谓美国主流媒体已经宣称乔∙拜登在美国2020总统大选中获胜，但是巴西总统至今尚未承认民主党人乔∙拜登获胜，并且宣布有信息表明在白宫的争夺战中存在”欺诈”。
 
-## **“纯属臆测”：世卫组织官员反驳中共官方媒体声称新冠肺炎（COVID-19）起源于欧洲的说法**
-[!\[\]()!\[\](https://spark.adobe.com/page/saLLxG28k7tsi/images/2e0843dc-68e2-41c6-975d-b4c766332dd1.jpg?asset_id=c7ae9457-e5c4-4eff-aec5-a07fd4f1fa0c&amp;img_etag=%2239ce78d85ca2a2480f2ef0613751ed74%22&amp;size=1024)](https://spark.adobe.com/page/saLLxG28k7tsi/images/2e0843dc-68e2-41c6-975d-b4c766332dd1.jpg?asset_id=c7ae9457-e5c4-4eff-aec5-a07fd4f1fa0c&amp;img_etag=%2239ce78d85ca2a2480f2ef0613751ed74%22&amp;size=1024)
-**世界卫生组织的顶层紧急状态专家驳回了中共声称的新冠肺炎（covid-19）起源于欧洲的说法，并称该理论“纯属臆测”。**
+博尔索纳罗没有明确说出选举欺诈的内容，但是他明确指出，还不知道所谓的选举违规行为是否能够改变选举结果。
 
-该官员迈克·瑞安（Mike Ryan）在日内瓦举行的网上简报会上指出：“对我们来说，这种疾病没有在中共国首次出现过的说法纯属臆测。”这些评论是针对一个关于新冠肺炎是否之前可能已经出现在中共国之外某个地方的疑问的回应。
+博尔索纳罗说，”美国是民主国家之一。虽然现在新闻界没有透露，我有我的信息来源，那里存在很多欺诈。我想等待一段时间，等待由县，或者更确切地说，各州的选举正义，谁知道最终是否会由美国的最高法院决定大选结果。”
 
-他补充说：“从公共卫生的角度来看，很明显，你们是在人类病例首次出现的地方开始调查的。”
+美国2020总统大选于11月3日结束，美国官方至今还没有公布大选结果，由于创纪录的高投票率和近1亿人通过邮寄投票，导致选票的计数被所谓推迟。
 
-世界卫生组织(WHO)官员的言论代表着对中国共产党兜售的说法—即在中共国发现新冠肺炎之前就存在在国外的否定。
+但是，被中共控制的美国主流媒体一边倒地代表美国官方宣布乔·拜登所谓的在美国总统大选中获胜，特别是一些外国领导人，在加拿大总理贾斯廷·特鲁多（Justin Trudeau）第一个跳出来祝贺乔·拜登和贺锦丽赢得美国2020总统大选之后，包括乌克兰总统、以色列总理、以色列总统、土耳其反对派领袖、白俄罗斯反对派领袖、委内瑞拉总统、斐济总理、摩尔多瓦前总理、法国总统、哈萨克斯坦总统、比利时总理、英国首相、德国总理、格鲁吉亚总理、北约秘书长、澳大利亚总理、约旦国王、希腊政府首脑、伦敦市长、台湾总统、土耳其总统、中共都对乔·拜登所谓的当选表示了祝贺。
 
-[原文链接](https://thenationalpulse.com/breaking/who-highly-speculative/)
+美国川普总统不同意乔∙拜登已获胜。他曾多次表示，此次选举是民主党人多次对大选公正性的侵犯。尤其是，美国总统选举中违反宪法的行为达到了前所未有的程度，乔∙拜登是因为在关键州的腐败而赢得了所谓的胜利。
 
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+目前，巴西、俄罗斯、墨西哥从始至终是在世界上坚决不提前与乔∙拜登团队接触以及向其表示祝贺的国家之一。这些国家保持着军事、政治、社会体制等独立的地位，可以清醒地认识这个世界、特别是美国2020总统大选中发生的事实真相。
 
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+参考链接：[https://veja.abril.com.br/politica/bolsonaro-defende-voto-impresso-e-fala-em-fraudes-nas-eleicoes-dos-eua/](https://veja.abril.com.br/politica/bolsonaro-defende-voto-impresso-e-fala-em-fraudes-nas-eleicoes-dos-eua/)
 
-[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/saLLxG28k7tsi/)
-[!\[\]()!\[\](https://spark.adobe.com/page/saLLxG28k7tsi/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/saLLxG28k7tsi/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-0
+1+
