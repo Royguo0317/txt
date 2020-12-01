@@ -1,19 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年12月1日中共病毒疫情要闻快报
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/607342/)
+## 每日重要Twitter播报（中文）11/30期（视频+ PDF下载）
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/607339/)
 
-**重点内容：**
+撰稿记者:本來
+校对:清咖
+播⾳:大脚印
 
-- 赵立坚称澳军残害阿富汗人，澳总理反驳中共伪造图片，要求道歉！
-- 朱利安尼鼓励知情者：不要被吓倒，你们能拯救美国；
-- 新疆封城依旧，政府大建方舱医院；
-- 两大数据看出香港经济处在崩溃边缘。
-
-
-
-
-**By：【秘翻组-上天造灭疫组】**
+[每日重要推文11-30\_PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01090837/11-30_Qingka-P.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01090837/11-30_Qingka-P.pdf)
 
 0

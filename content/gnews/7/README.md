@@ -1,41 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 一波三折！佐治亚州终发布冻结多米尼投票机的限制令
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/605715/)
+## 【热点播报】 伊朗革命卫队指挥官被无人机斩首
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/606335/)
 
-- 编辑：文顺
-- 翻译：里奇
-- 素材：Victor Torres
+作者：香草山写作组 程万里 校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29231938/logo-3-1-1.jpg)
 
 
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/30235802/%E5%9B%BE%E7%89%876-21.png)
+北京时间12月1日中共国央视新闻客户端消息，据伊拉克阿拉比亚电视台报道，当地时间29日晚间，在伊拉克和叙利亚边境附近的加伊姆地区，伊朗革命卫队高级指挥官穆斯林·沙赫丹乘坐的车辆遭到无人机袭击，沙赫丹与三名随行人员均在袭击中身亡。
 
-西班牙2020年11月30日电/西喜社/——佐治亚州蒂莫西·巴滕（Timothy Batten）法官发布了为期10天的冻结多米尼投票机的限制令，期间该令一度被撤回，但最终落地。
-
-蒂莫西·巴顿（Timothy C. Batten）法官于当地周日上午发布命令，冻结佐治亚州的所有多米尼投票机。其后由于被告声称多米尼克投票机由佐治亚郡掌控，蒂莫西·巴滕法官于当日下午晚些时候撤回了之前下达的指令。晚上10:10，蒂莫西·巴滕法官再次发布临时禁制令，为期10天，以防止销毁证据。
-
-其后，林·伍德律师（Linn Wood）在推文中写道：“鲍威尔（Sidney Powell）和我赢了，然后输了，但最终赢了。我们将永不放弃追求真相以实现正义。”
+中南坑最怕无人机这类的消息，央视会意标题都不敢提无人机，他们知道无人机下一个目标可能就是中南坑了。今早郭先生已经明确：“对于中共，美国没有选择必须介入，快速斩首是第一选项，在经济上在技术上进行反封锁饿死它。”而斩首最佳的方法就是无人机。伊朗的一切行动是不是在练手呢？中南坑的盗国贼们，你们自己去想吧！
 
 
 
-> Sidney Powell [@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw) & I won, then lost, but ended up winning. We will never give up the pursuit of TRUTH to achieve justice.[@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw)[@KrakenWood](https://twitter.com/KrakenWood?ref_src=twsrc%5Etfw) [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) [#FightLikeAFlynn](https://twitter.com/hashtag/FightLikeAFlynn?src=hash&amp;ref_src=twsrc%5Etfw)[#FightBack](https://twitter.com/hashtag/FightBack?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/mV6SGVLsv9](https://t.co/mV6SGVLsv9)
-> — Lin Wood (@LLinWood) [November 30, 2020](https://twitter.com/LLinWood/status/1333259577182334976?ref_src=twsrc%5Etfw)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-
-**参考链接：**
-
-
-
-> [BREAKING GEORGIA UPDATE: Judge Issues Restraining Order for 10 Days Preventing Defendants from Destroying or Erasing Dominion Voting Machines](https://www.thegatewaypundit.com/2020/11/breaking-georgia-update-judge-issues-restraining-order-10-days-preventing-defendants-destroying-erasing-dominion-voting-machines/)
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10122733/1103-a-1-scaled.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

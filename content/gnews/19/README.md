@@ -1,107 +1,250 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020.12.01首尔喜韩农场每日新闻热点
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/607236/)
+## 孟建柱通吃情妇母女，刘特佐系孟与情妇之女私生《每日快报 &#8212; 2020.12.01》
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/607341/)
 
-**新闻整理：Lacey月宁，点烟抽寂寞，大树**
+***作者：Be Water,星空无垠***
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01081922/%E6%AF%8F%E6%97%A5%E5%BF%AB%E6%8A%A5.png)
+# ***今日摘要***
 
-**审核****:****文****泽**
+1. Gateway Pundit : 悉尼鲍威尔：证人在医院被打
+2. 美国制裁中国电子进出口有限公司
+3. 房地产要出事 中国银保监会主席预言已兑现
 
-1**–****全球疫情****实时更新**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01084143/Screen-Shot-2020-12-01-at-10.37.00-PM.png)
-截止北京时间2020年12月01日下午4:30时，全球累计CCP病毒确诊病例较前一日增加408282例，达到63593456例；死亡病例增加7036例，达到1474709例
 
-2-**详讯：韩国新增****451****例新冠****确诊病例****累****计****34652****例**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01084154/Screen-Shot-2020-12-01-at-10.37.26-PM.png)
-韩联社首尔12月1日电 韩国中央防疫对策本部1日通报，截至当天0时，韩国较前一天0时新增感染新型冠状病毒（COVID-19）确诊病例451例，累计确诊3.4652万例
+# 重要事件
 
-**3-****韩防疫部门：尚难断言疫情好转****需****继续观察**** **
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01084208/Screen-Shot-2020-12-01-at-10.37.35-PM.png)
-韩联社首尔12月1日电 韩国中央应急处置本部战略企划组组长孙映莱1日就境内单日新增确诊病例回落至500例以下一事表示，目前判断疫情是否放缓为时过早，相关动向有待进一步观察。
+- 11.30 [一波三折！佐治亚州终发布冻结多米尼投票机的限制令](https://gnews.org/zh-hans/605715/)  佐治亚州蒂莫西·巴顿（Timothy C. Batten）法官于当地周日上午发布命令，冻结佐治亚州的所有多米尼投票机。其后由于被告声称多米尼克投票机由佐治亚郡掌控，蒂莫西·巴滕法官于当日下午晚些时候撤回了之前下达的指令。晚上10:10，蒂莫西·巴滕法官再次发布临时禁制令，为期10天，以防止销毁证据。
 
-孙映莱表示，单日新增确诊病例上周六起回落至500例以下，确诊病例不升反降值得肯定，但这在一定程度上与周末检测数量较平时有所减少有关，加上上调防疫响应级别效果尚未显现，因此尚难断言疫情好转。防疫部门将继续观察保持社交距离措施落实情况及疫情发展趋势。
 
-4**–****美****军侦察机连续三天现身韩国上空**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01084216/Screen-Shot-2020-12-01-at-10.37.42-PM.png)
-韩联社首尔11月30日电 美国空军侦察机自本月28日起连续三天在韩半岛上空执飞。
+- 11.30 [美国制裁中国电子进出口有限公司](https://www.aboluowang.com/2020/1201/1529086.html)  美国财政部11月30日宣布对中国电子进出口有限公司（CEIEC）实施制裁，指责其支持委内瑞拉马杜罗政权破坏民主的努力。财政部长姆努钦说，美国将“毫不犹豫”地打击世界各地任何压制人民民主意愿的人。国务卿蓬佩奥随后在声明中说，通过这一最新行动，美国重申致力于追究所有参与非法的马杜罗政权破坏民主努力的人的责任。美国财政部和美国国务院都表示，中国电子进出口有限公司自2017年以来一直为马杜罗政府提供支持，并向委内瑞拉政府实体，包括国营电信提供商委内瑞拉国家电话公司（CANTV）提供软件、培训和技术专长。
 
-据飞机动向追踪网站“No callsign”30日消息，美国空军RC-135W“铆接”侦察机当天上午飞临仁川市上空后，往京畿道城南市方向飞行。当天下午，美军EO-5C侦察机和KC-135R空中加油机在忠清道至首都圈一带上空执飞。
 
-韩国军方表示，这可能是为了防范朝鲜在美国大选后可能发起挑衅行为而进行的侦察飞行，目前尚未发现朝军挑衅的迹象
+- 11.30 [Gateway Pundit : 悉尼鲍威尔：证人在医院被打](https://www.thegatewaypundit.com/2020/11/sidney-powell-witness-hospital-beating/)
+- 鲍威尔：“他们会失业。他们的生命受到威胁。我们认识的一位证人遭到殴打，正在医院里。对于挺身讲真话的人们产生了各种各样的影响。不，民主党人不喜欢举报人，他们只喜欢撒谎者并声称他们是举报人。”
+- 11.30 [朱利安尼告诉亚利桑那州立法者](https://www.thegatewaypundit.com/2020/11/crowd-erupts-cheers-giuliani-tells-az-state-lawmakers-political-career-worth-losing-can-save-right-vote-america-video/)，人群中欢呼雀跃：“如果您可以挽救美国的投票权，那么您的政治职业值得丢掉”（视频）
 
-**5-****美****专家：金正恩已接种中国新冠疫苗**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01084226/Screen-Shot-2020-12-01-at-10.37.49-PM.png)
-韩联社华盛顿11月30日电 美国智库“国家利益研究所”朝鲜问题研究中心主任哈利·J·卡齐亚尼斯当地时间30日表示，朝鲜国务委员会委员长金正恩近期接种了由中国政府提供的新冠疫苗。
 
-卡齐亚尼斯当天在国安主题网站“1945”刊文，援引两位日本负责情报事务的官员的话表示，金正恩家族以及大批朝鲜高官在最近的2～3周内陆续接种了由中国提供的新冠疫苗，这些疫苗具体由中国的哪家企业生产尚不得而知。
+# 每日文贵说
 
-6**–****联合国为对朝人道援助放宽制裁简化程序**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01084238/Screen-Shot-2020-12-01-at-10.37.57-PM.png)
-韩联社纽约11月30日电 联合国安理会对朝制裁委员会30日通过了对朝制裁执行指南修订案，为人道主义援朝活动放宽对朝制裁。
 
-根据修订案，对朝人道主义援助活动豁免制裁时间将从6个月延长到9个月。若申请者提出疫情下货运延迟等合理理由和充分依据，豁免时间有可能延长到9个月以上。此前，运输救援物资在豁免期间只允许一次，今后能分三次进行
+![]()![](https://www.himalayawashingtondc.org/wp-content/uploads/2020/12/image.png)
+# 文贵直播和盖特
 
-7**–****北****约秘书长：中国对北约的安全造成重大挑战**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01084258/Screen-Shot-2020-12-01-at-10.38.02-PM.png)
-北大西洋公约组织(北约)星期二(12月1日)发布一份名为“北约2030”的改革报告，内容指出北约未来必须更加认真思考如何应对中国及其军事崛起态势。
+### 直播：
 
-北约秘书长斯托尔滕贝格(Jens Stoltenberg)表示，中国崛起对北约安全造成重大挑战，并呼吁各盟国对此问题达成共识。他说：“中国正在大规模投资新武器，从北极到非洲，它距离我们越来越近，中国不同意我们的价值观，并试图威吓其他国家。”
+[2020年11月30号 文贵直播](https://gtv.org/video/id=5fc57798ee9d341c2b3ef795)
 
-**8-****欧盟提议与美国联盟应对中国威胁**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01084307/Screen-Shot-2020-12-01-at-10.38.09-PM.png)
-在川普总统的四年任期内，美国和欧盟之间的关系因关键政策的分歧而恶化。当前欧盟试图重振与美国的同盟关系，集中力量应对中国挑战。
+[https://gtv.org/video/id=5fc57798ee9d341c2b3ef795](https://gtv.org/video/id=5fc57798ee9d341c2b3ef795)
 
-据《金融时报》周日援引的一份欧盟计划草案，布鲁塞尔呼吁华盛顿抓住机会建立一个全球联盟，应对中国在全球影响力上升带来的挑战。
+### 盖特：
 
-这份11页的名为《欧盟-美国应对全球变革新议程》（A new EU-US agenda for global change）的文件指出了欧盟对中国日益增长的影响力、以及削弱的跨大西洋关系有利于北京地缘政治目标的担忧。
+1.[https://gtv.org/getter/5fc51fd920c9025a87db33f0](https://gtv.org/getter/5fc51fd920c9025a87db33f0)
 
-9**–****英****国再提前封杀华为**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01084327/Screen-Shot-2020-12-01-at-10.38.14-PM.png)
-英国政府周一（30日）继续公布封杀中国科技巨企华为的措施，下令所有英国电讯公司明年9月后不得安装新的华为5G网络设备，并在2027年底将所有华为设备从其5G网络中移除，以彻底解决华为构成的安全隐患。
+11月30号：黄河鞭……是海外欺民贼共产党的大外宣……间谍网……九层妖塔的最具有代表性的人物。它在镜头前终于说出了自己的真实身份和内心的实话。这在法庭上是无可辩驳的证据！
 
-10**–****英****国航空母舰传拟泊台湾**？
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01084338/Screen-Shot-2020-12-01-at-10.38.21-PM.png)
-英国首相约翰逊早前表示明年将派英国航母伊丽莎白女王号前往地中海、印度洋和东亚，有分析认为此举是针对中国大陆。有媒体更以此印证早前日本八卦小报旧闻报道，指美国有意安排伊丽莎白女王号停泊台湾，以宣示西方保卫台湾的决心。
+2. [https://gtv.org/getter/5fc524a920c9025a87db34de](https://gtv.org/getter/5fc524a920c9025a87db34de)
 
-据东网今天报道称，有日媒爆美为制衡大陆，欲安排英航母停泊台湾。
+11月30号：尊敬的战友们好，你们健身了吗？你们传播C C P病毒……香港危及真相了吗？一切都已经开始！
 
-报道称，美国情报官员爆出惊人消息，指有计划让伊丽莎白女王号“闪电停泊”台湾，以震慑中国大陆。
+3.[https://gtv.org/getter/5fc526da20c9025a87db3582](https://gtv.org/getter/5fc526da20c9025a87db3582)
 
-11**–****南中****国海暗流涌动****中****马两国再现海上僵持**** **
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01084346/Screen-Shot-2020-12-01-at-10.38.31-PM.png)
-台北 — 关注中国和马来西亚关系的分析人士说，两国在主权要求重叠的海域又陷入了一场安静但持久的僵局，而且双方都表现出更大的决心与对方做斗争。
+1月月30号：尊敬的战友们……开始吃饭饭喽。山东大花卷．大馒头，还有大锅菜，还有炖羊肉……咋弄的，咋弄的没钱了，没钱了，只能吃点这了……
 
-位于华盛顿的亚洲海事透明倡议（AMTI）表示，本月初，中国海岸警卫队5402号船停泊在婆罗洲以北海域的卢康尼亚浅滩（Luconia Shoals）附近，马来西亚称该海域属于其海上专属经济区。
+### PARLER:
 
-北京方面表示，这片水域位于其边界线之内，该边界线涵盖了南中国海约90％的面积。
+1. [https://parler.com/post/f0c7572d3f9c438f9022cd1b32b2aca7](https://parler.com/post/f0c7572d3f9c438f9022cd1b32b2aca7)
 
-12**–****美****众院计划本周就涉中国公司在美上市法案进行表决**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01084356/Screen-Shot-2020-12-01-at-10.38.48-PM.png)
-即将卸任的本届美国国会众议院这个星期将就一项跨党派的立法进行投票，这项已在参议院通过的法案将迫使在美国交易所上市的中国公司要么进行经过美国监管机构审查的年度审计，包括提供不受外国政府控制的证明，要么停止在美国的交易所进行股票交易。
+西德尼-鲍威尔 “坦率地说，我开始认为整个联邦调查局和司法部 需要用氯仿消毒水和消防水龙头来冲洗！”  [Sidney Powell: “Frankly, I’m Beginning to think the Entire FBI and Dept. of Justice need to be Hosed Out with Clorox and Firehoses!” (VIDEO)](https://parler.com/post/f0c7572d3f9c438f9022cd1b32b2aca7)
 
-根据众议院的网站，本周可能审议的法案包括《外国公司问责法案》（Holding Foreign Companies Accountable Act）。
+2. [https://parler.com/post/a6d5250706e24605be8e95b9bef58f76](https://parler.com/post/a6d5250706e24605be8e95b9bef58f76)
 
-如果该法案成为法律，中国企业及其审计机构在被踢出纽约证交所(New York Stock Exchange)或纳斯达克(Nasdaq)之前将有三年时间遵守有关的规定。
+[As I’ve said for years, Wikipedia is yet another enterprise destroyed by the totalitarian Left](https://parler.com/post/a6d5250706e24605be8e95b9bef58f76) 正如我多年来所说，维基百科是又一个被极权主义左派摧毁的企业。
 
-13**–****香港疫情急速****恶化****港府宣布****将采取严厉措施抗疫**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01084404/Screen-Shot-2020-12-01-at-10.40.44-PM.png)
-华盛顿 — 香港正面临第四波新冠病毒疫情，但近日来疫情急速恶化。港府宣布将采取严厉措施减少社交距离和人流，自本周三开始，公务人员在家上班，大部分娱乐场所关闭，为期两周。
+# 班农战斗室 War Room
 
-14**–****中****国甩锅出新招，病毒源头在印度**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01084419/Screen-Shot-2020-12-01-at-10.40.49-PM.png)
-中国一研究机构爆出一项新的研究成果，认为新冠病毒源头在南亚次大陆，也就是印度和孟加拉国。这是中国在病毒来源问题上先后甩锅给意大利、西班牙、美国和一些向中国出口冷冻肉类食品国家之后作出的最新一次甩锅的努力。
 
-15**–****中****国电子进出口公司被指支持马杜罗破坏民主而被美国制裁**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01084425/Screen-Shot-2020-12-01-at-10.40.54-PM.png)
-美国财政部周一（11月30日）宣布对中国电子进出口有限公司（CEIEC）实施制裁，指责其支持委内瑞拉马杜罗政权破坏民主的努力。财政部长姆努钦说，美国将“毫不犹豫”地打击世界各地任何压制人民民主意愿的人。国务卿蓬佩奥随后在声明中说，通过这一最新行动，美国重申致力于追究所有参与非法的马杜罗政权破坏民主努力的人的责任。
 
-美国财政部在一份声明中说，这家中国公司支持马杜罗政府“限制互联网服务并对政治对手进行数字监控和网络行动的努力”。
+[War Room: Pandemic Ep 550](https://www.youtube.com/watch?v=puzQTw-CqDY)
 
-财政部长姆努钦在声明中说：“美国将毫不犹豫地把任何帮助压制委内瑞拉人民和世界各地其他人的民主意愿的人作为打击目标。
 
-16**–****中共政治局****会议罕喊聚焦备战打仗**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01084434/Screen-Shot-2020-12-01-at-10.40.59-PM.png)
-中共政治局今天审议军队政治工作、统战工作、党员权利保障等条例，重申“党的领导”，要求聚焦聚力备战打仗；调动一切可以调动的积极因素；引导党员与一切可能动摇党根基的行为斗争。
+
+## 喜馬拉雅國際工作站
+
+1. [【亚利桑那听证会】朱利安尼：如果我们能挽救美国人民投票的权利，即使失去政治生涯也值了！请勇敢的站出来，我可以让你们青史留名！](https://www.youtube.com/watch?v=Qk78DaOTPcc)
+
+
+
+
+2. [【亚利桑那听证会】 问：你愿意宣誓作证，你看到了投票机连入了互联网，数据被传到德国法兰克福吗？ Waldron上校：是的，我们的「白帽黑客」监测到了网络流量和数据包](https://www.youtube.com/watch?v=j_X76CqA1qc)
+
+##### **[https://www.youtube.com/watch?v=j\_X76CqA1qc](https://www.youtube.com/watch?v=j_X76CqA1qc)**
+
+## 秘密翻譯組
+
+[11月30日同声传译⎢蓬佩奥讲话+澳洲skynews重磅要闻+玛丽亚最新采访+朱利安尼podcast+福克斯节目精选](https://gtv.org/video/id=5fc4eb4cee9d341c2b3e477c)
+
+[https://gtv.org/video/id=5fc4eb4cee9d341c2b3e477c](https://gtv.org/video/id=5fc4eb4cee9d341c2b3e477c)
+
+[11月30日同声传译⎢川普总统法律团队亚利桑那州重磅听证会同传+班农战斗室EP547](https://gtv.org/video/id=5fc50695ee9d341c2b3e706c)
+
+[https://gtv.org/video/id=5fc50695ee9d341c2b3e706c](https://gtv.org/video/id=5fc50695ee9d341c2b3e706c)
+
+# 路德社节目：
+
+### 11/30/2020 早 路德时评（路安墨谈）：
+
+**川普即将把中国建设、中芯国际、中海油等公司加入制裁名单意味着什么？为什么美突然严查赴美中共航空轮船工作人员？**
+
+
+
+- 川普即将制裁中国建设、中芯国际、中海油（海外石油资源垄断）、中国国际工程咨询公司（海外融资源头）等中共、华尔街海外资本勾兑龙头企业（中共军方背景），爆料革命拟定名单深谙中共海外扩张套路，美国利益集团妥协，促成该重磅制裁
+- 美突袭严查赴美中共航空、海运工作人员党员身份，或牵出其人海战术输送假选票、病毒等犯罪证据
+- 乔治亚州法官三次修改禁止令，同意十天内禁止对投票机系统、数据修改，林伍德律师对抗腐败法官彰显正义实力
+
+
+### 11/30/2020 晚 路德时评（路博艾冠谈）：
+
+刘特佐到底是孟建柱和谁生的？宾州立法机构正式提出要求撤销州务卿大选认证？亚利桑那州听证会引起接下来的行动？乔治亚州宣布对第三方干扰选举调查；
+
+
+
+- 宾州立法机构决议（依据听证会）要求撤销州务卿对选举结果认证，州务卿因邮寄选票延期等违宪将被上诉最高院剥夺认证权力，该州选举结果将由选举人取代选民投票产生
+
+
+- 宾州民主党郡多舞弊，民主党选举人将被州立法机构撤销认证，共和党大佬麦康纳尔决定川普能否拿下选举人票，乔治亚州、亚利桑那州同理
+
+
+- 川普最高法院上诉，鲍威尔诉讼外国势力操控大选，爆料革命战友秘密听证，皆可翻盘
+
+
+- 亚利桑那州议员要求扣留该州选举认证结果，乔治亚州州长、州务卿转向调查非法选票为立法机构听证会争取时间
+
+
+- 孟建柱通吃情妇母女，刘特佐系孟与情妇之女私生，中共盗国贼乱伦关系可见一斑
+
+
+# 推特文摘
+
+
+
+鲍威尔不是专门为川普總統工作，她所做的一切，都不能称之为政治。她是代表所有守法，合法投票，相信宪法的美国人，她需要我们的支持。
+
+Sidney Powell Is not working specifically for
+
+[@realDonaldTrump](https://twitter.com/realDonaldTrump)
+
+Nothing she is doing, can be called political.
+
+[@sidneypowell1](https://twitter.com/SidneyPowell1)  Is representing all law abiding, legally voting Americans, who believe in the Constitution, and she needs our support
+
+
+
+
+
+> Sidney Powell Is not working specifically for ⁦[@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw)⁩
+> Nothing she is doing, can be called political.
+>  [@sidneypowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw) Is representing all law abiding, legally voting Americans, who believe in the Constitution, and she needs our support [https://t.co/hfxFbexYdI](https://t.co/hfxFbexYdI)
+> — David Baker Fight Like A Flynn (@IWasHrren) [November 30, 2020](https://twitter.com/IWasHrren/status/1333531725058674692?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+不太确定比尔-盖茨是否会為Moderna疫苗取得紧急批准。
+
+Moderna是盖茨的疫苗。盖茨敦促去人口理论（较小的仆人阶层提供服务給统治精英）。 1+1 = 2.
+
+我永远不会使用 Moderna或任何盖茨疫苗。我将依靠上帝创造的免疫系统。
+
+Not so sure Bill Gates will get Emergency Approval for Moderna.
+
+Moderna is Gates vaccine. Gates urges depopulation theory (smaller servant class ruled by & service elite).
+
+1+1 = 2.
+
+I will NEVER take Moderna or ANY Gates vaccine. I will rely on immune system created by God
+
+
+
+
+
+> Arizona hearings on live right now on [@OANN](https://twitter.com/OANN?ref_src=twsrc%5Etfw). Such total corruption. So sad for our country!
+> — Donald J. Trump (@realDonaldTrump) [November 30, 2020](https://twitter.com/realDonaldTrump/status/1333558773152161793?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+亚利桑那州现正通过@OANN现场直播听证会。 如此彻底的腐败。 为我们的国家感到难过！ Arizona hearings on live right now on [https://twitter.com/OANN](https://twitter.com/OANN). Such total corruption. So sad for our country!
+
+
+
+
+
+> Arizona hearings on live right now on [@OANN](https://twitter.com/OANN?ref_src=twsrc%5Etfw). Such total corruption. So sad for our country!
+> — Donald J. Trump (@realDonaldTrump) [November 30, 2020](https://twitter.com/realDonaldTrump/status/1333558773152161793?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+11/30 重磅：宾州代表拉斯·戴蒙德提出了一项决议（HR1094），对2020年的选举结果提出正式质疑。该决议已有21个提案保荐人，通过该决议需要102票。川普团队在宾州目前两条线：一是走立法团挑战确认结果；一是法律诉讼到最高法院！目前都在进展中！
+
+
+
+
+
+> 11/30 🧨🧨🧨 重磅：宾州代表拉斯·戴蒙德提出了一项决议（HR1094），对2020年的选举结果提出正式质疑。该决议已有21个提案保荐人，通过该决议需要102票。川普团队在宾州目前两条线：一是走立法团挑战确认结果；一是法律诉讼到最高法院！目前都在进展中！🧨🧨🧨 [https://t.co/BK0QxS7Kih](https://t.co/BK0QxS7Kih)
+> — 西行小宝 (@htommy998) [December 1, 2020](https://twitter.com/htommy998/status/1333587793235169281?ref_src=twsrc%5Etfw)
+
+
+
+
+
+# 墙内咨讯
+
+12.01 [境外媒体关注：中国经济延续强劲复苏势头](http://www.cankaoxiaoxi.com/china/20201201/2425887.shtml)   路透社北京11月30日报道，11月中国的工厂活动增速创下了三年多来的新高，继续保持了作为第一个从新冠危机中全面恢复的主要经济体的势头。
+
+报道注意到，到目前为止，中国的出口还一直保持着惊人的弹性。
+
+报道认为，从贸易到生产价格等各个领域的经济指数都表明，中国的工业领域将会进一步好转。
+
+报道称，中国的汽车销售反弹尤其强劲，这是由增长的货车和电动车需求推动的。
+
+服务业活动已连续9个月增长，且创下2012年6月以来的最高增速。
+
+11月表现最好的一些领域包括铁路航空运输、电信和卫星传输服务以及金融业等
+
+在内需复苏和外需形势好转的共同提振下，中国出口和消费品相关行业近期利润明显回升。全球多数国家尚未走出疫情冲击，这为“一枝独秀”的中国制造业提供了外需支撑。
+
+简评：一边***P2P***本金全失，国企债务连环爆雷，外企继续撤离，一边是经济强劲复甦？**  **这顺天时报编得好，** **请务必几时送给二百斤看。** **
+
+***12.01***[拟定“台独”顽固分子清单于法有据、势在必行](https://taiwan.huanqiu.com/article/40v5g9gleMt)
+
+*据香港《大公报》**11**月**15**日报道，大陆有关方面正在研究制定**“**台独**”**顽固分子清单，并将对**“**台独**”**顽固分子及其金主等主要支持者实施法律制裁，终身追责。*
+
+*近年，**“**台独**”**势力觉察到大陆珍视和平、慎用武力的心理，于是打**“**擦边球**”**，在不直接触碰大陆动武底线的情形下，步步向**“**法理台独**”**推进。此次拟定**“**台独**”**顽固分子清单是大陆为应对日益严峻的**“**台独**”**挑衅而采取的重大反制手段。*
+
+*其一，拟定**“**台独**”**顽固分子清单是大陆落实对台湾地区行使主权管辖的重要步骤和体现，也是对**“**台独**”**分子关于**“**大陆一天也没有对台湾行使过管辖权**”**论调的一记响亮的回应。*
+
+其二，拟定“台独”顽固分子清单是大陆向“台独”亮起的正义之剑。只要被列入清单的“台独”顽固分子还存活于世，大陆就将缉拿不懈。他们只要走出台湾就面临被缉捕和审判的风险。
+
+其三，拟定“台独”顽固分子清单是大陆在慎用非和平手段的情况下，通过运用和平的司法手段打击“台独”的新举措，是大陆反“台独”手段的拓展和完善，是贯彻中央关于全面推进依法治国战略在涉台工作中的具体体现。
+
+其四，运用司法手段打击“台独”仍属于和平手段的范畴，既表明大陆坚持两岸关系和平发展、推进两岸和平统一的诚意，也表明大陆对台湾同胞生命安全的高度重视。
+
+此次拟定清单主要精准打击“台独”分子，而非针对广大台湾同胞。对于没有被列入清单的“台独”分子，应及早悬崖勒马，迷途知返。与大陆携手实现中华民族伟大复兴的中国梦。
+
+简评：**手里拿刀霍霍，口里精准打击，要人家相信你为和平统一创造空间，对生命安全高度重视？ 做你的中国黄粱梦去吧！  ****“****他们只要走出台湾就面临被缉捕和审判的风险”， 这是跟臭名昭著的香港国安法看齐了。 卖台贼们如果继续跟****CCP****勾兑， 香港的今日就是台湾的明日。 **
+
+
 
 0
