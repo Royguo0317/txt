@@ -1,11 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵先生2020年11月21直播【文字版】
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/608503/)
+## 【字幕】11/30/2020文贵：朱利安尼的人格魅力
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/608938/)
 
-### 【[视频版](https://gnews.org/zh-hans/586825/)】【[中文文字版](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01204619/20201121_Mr._Miles_Guos_broadcast_P1P7_chinese.pdf)】【[英文文字版](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01204711/20201121_Mr._Miles_Guos_broadcast_P1P7_english.pdf)】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01204929/20201121_Mr._Miles_Guos_broadcast_P1P7_chinese_00.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01204932/20201121_Mr._Miles_Guos_broadcast_P1P7_chinese_01.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01204939/20201121_Mr._Miles_Guos_broadcast_P1P7_chinese_02.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01204947/20201121_Mr._Miles_Guos_broadcast_P1P7_chinese_03.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01204956/20201121_Mr._Miles_Guos_broadcast_P1P7_chinese_04.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01204959/20201121_Mr._Miles_Guos_broadcast_P1P7_chinese_05.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01205057/20201121_Mr._Miles_Guos_broadcast_P1P7_chinese_06.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01205009/20201121_Mr._Miles_Guos_broadcast_P1P7_chinese_07.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01205013/20201121_Mr._Miles_Guos_broadcast_P1P7_chinese_08.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01205016/20201121_Mr._Miles_Guos_broadcast_P1P7_chinese_09.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01205018/20201121_Mr._Miles_Guos_broadcast_P1P7_chinese_10.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01205021/20201121_Mr._Miles_Guos_broadcast_P1P7_chinese_11.png)
-**By：【秘密翻译组G-Translators】**
+制作： 【彩虹桥】
 
 0

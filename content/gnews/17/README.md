@@ -1,33 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英国禁止2021年9月后安装新的华为5G组件
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/608897/)
+## 川普总统发推：终结230条款，将纳入国防授权法案（NDAA）夺回美国，就在眼下 ！
+` 喜马拉雅凤凰农场–旧金山-金喜站` [轉載自GNews](https://gnews.org/zh-hans/609119/)
 
-收集：cashaNova”文生”
-编撰: WENJUN
+**【突发】【快讯】川普总统於12月1日晚发推：将彻底终结230条款**，**纳入国防授权法案，掀翻大科技的保护伞 **
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01224935/12.2-1.png)图为5G示意图。(Lionel BONAVENTURE / AFP)
+推文如下：
 
-[英国](https://www.epochtimes.com/gb/tag/%E8%8B%B1%E5%9B%BD.html)政府周一（11月30日）宣布，2021年9月之后，英国[电信](https://www.epochtimes.com/gb/tag/%E7%94%B5%E4%BF%A1.html)公司不得安装新的[华为](https://www.epochtimes.com/gb/tag/%E5%8D%8E%E4%B8%BA.html)5G设备，这是清除高速移动网络中的华为设备计划的一部分。
+230条款是美国送给 “大科技”公司的礼物，是他们得以推卸责任的保护伞（唯独美国大科技公司們能享有这项企业福利！）这却是对我们的国家安全和选举公正性的严重威胁。如果我们允许它继续存在，我们的国家永远不会有安全和有保障。
 
-据路透社（Reuters）报导，[英国](https://www.epochtimes.com/gb/tag/%E8%8B%B1%E5%9B%BD.html)已经下令，在2027年底之前，将所有[华为](https://www.epochtimes.com/gb/tag/%E5%8D%8E%E4%B8%BA.html)设备从其5G网络中移除。这顺应了包括美国在内的情报盟友们的意见，他们认为这家中国[电信](https://www.epochtimes.com/gb/tag/%E7%94%B5%E4%BF%A1.html)巨头公司存在安全风险。
+……，因此，这项非常危险和极不公平的第230条款如果没有被纳入作为《国防授权法案》（NDAA）的一部分而被完全终止，当该法案被送到漂亮的决策桌上时，我只能明确地否决该法案。
 
-中共对这一决定表示不满。而总部位于中共国的华为公司上周表示，它对英国希望将华为排除在5G推广计划之外感到失望。此前，英国颁布了新的法律，如果公司违反禁令，可能会被处以10万英镑（合13.314万美元）的罚款。
+夺回美国，就在眼下。谢谢大家！”
 
-周一的声明是在议会就新的电信立法进行辩论之前发布的，并且详细说明了清除华为设备的时间表。
+”Section 230, which is a liability shielding gift from the U.S. to “Big Tech” (the only companies in America that have it – corporate welfare!), is a serious threat to our National Security & Election Integrity. Our Country can never be safe and secure if we allow it to stand…
 
-数位化、文化、媒体和体育大臣奥利弗·道登（Oliver Dowden）在一份声明中说：“我正在为完全清除5G网络中的高风险供应商设定一条清晰的道路。”
+…… Therefore, if the very dangerous & unfair Section 230 is not completely terminated as part of the National Defense Authorization Act (NDAA), I will be forced to unequivocally VETO the Bill when sent to the very beautiful Resolute desk. Take back America NOW. Thank you!
 
-他说：“我们将通过前所未有的新措施，来识别和禁止对我们国家安全构成威胁的电信设备。”
+![](https://lh6.googleusercontent.com/f2hDMxw4KuNO1JUxJcZiThOvquB0boKRjxuvmhKmlV3bOPSGhiPUKINBgQWDCcZgqTCH_P8UIDAGzhUow0S4V7G3RmacVMJcHbqIOT4cxDbVSv2gH75dx9v1OSGAv5GyiiJp5eej)
 
-此外，英国政府还宣布了一项使5G供应链多样化的新战略，包括初期投资2.5亿英镑，与日本NEC公司合作进行试验，以及建立新的研究设施等等。
+![](https://lh6.googleusercontent.com/CRNwxlkWc1vYF84JaVu4wxRRBQtbjmHVfO4tPknthU9qBNHpTOPcBW2pYZR3hDO656F7qSUlW9ADbhrxS2ffP30LB96h4TVOOLfaLXsVkq3JAKTMNJV8QeKVtFDqaUgKA7opV9lo)
 
-此前，英国已经禁止在今年年底之后购买新的华为5G设备。
 
-英国政府11月30日的这项行政命令包括之前7月份的禁令，对于华为在英国任何新的5G项目的销售将是一个灭顶之灾，因为任何电信运营商不会冒利益重大损失的风险，并且这些行政命令还有将华为设备从其5G网络中移除的时间表，华为目前和将来在英国5G网络项目上将进退无门。同时这些势必会影响华为其他产品在英国的销售，因为华为已经被贴上了“间谍”的标签而为英国和全世界民众所熟知。华为作为中共解放军的企业名副其实地拥有“间谍”这个标签的，其英国遭禁也是“禁得其所”。
 
-参考来源: 
-[https://www.epochtimes.com/gb/20/11/30/n12586298.htm](https://www.epochtimes.com/gb/20/11/30/n12586298.htm)
 
-0
+
+编译： Bingo 寸言心， **凤凰农场**–**舊金山**-金喜站
+
+4+

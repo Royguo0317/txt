@@ -1,45 +1,87 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共拟将百姓退休年龄从60岁提高引民众反弹
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/608921/)
+## 《路德社》每日简报-2020.11.30中国建设、中芯国际、中海油和国际工程咨询公司将被列入制裁名单
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/609163/)
 
-收集：CPA Jim
-编撰: WENJUN
+《路德社》文编组出品
+![此图像的alt属性为空；文件名为lude1.jpeg]()![此图像的alt属性为空；文件名为lude1.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01061812/lude1.jpeg)![此图像的alt属性为空；文件名为lude2.jpeg]()![此图像的alt属性为空；文件名为lude2.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01061822/lude2.jpeg)
+**中国建设、中芯国际、中海油和国际工程咨询公司将被列入制裁名单**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01230151/2-2.jpg)
+CSCEC, SMIC, CNOOC, and CIECC will be added to the sanctions list.
 
-前不久中共召开的十九届五中全会通过的第十四个五年规划和2035年远景目标，提出“实施渐进式延迟法定退休年龄”，这是中共国应对人口老龄化的一个重要战略性的措施。计划中的具体措施将于3月公布。
+CSCEC: China State Construction Engineering Corporation,
 
-声明在中共国内产生了激烈的反弹，在微博（相当于中共国的Twitter）上发布了数万条愤怒的评论。抱怨中排在首位的是那些最接近退休的人，他们对延迟领取养老金的前景表示愤怒。年轻人认为，老年工人的增加会减少他们的就业机会。
+SMIC: Semiconductor Manufacturing International Corporation,
 
-即便如此，中共国仍在推进相关计划。国营的《中共国经营报》(China Business News)周一在其头版上说：”延迟退休的日子越来越近了”。它援引未透露姓名的官员的话说，”渐进和灵活的方法 “已经成为决策者的共识。
+CNOOC: China National Offshore Oil Corporation,
 
-**人口萎缩**
+CIECC: China International Engineering Consulting Corporation.
 
-专家表示，提高劳动者享受国家支持的养老金的年龄对于确保退休制度的可持续性至关重要。政府智库中共国社会科学院在去年的一份报告中估计，城镇职工的主要养老基金将在2027年达到7万亿元（1万亿美元）的峰值，然后在2035年下降到零。2019年的余额为4.3万亿元。
+川普即将制裁的这四家军方实际控制的公司，分别是中共最大建筑商、最大芯片公司、最大海上石油公司和负责中共所有海外项目的咨询公司，这批制裁将对中共芯片业和海外项目造成毁灭性打击。
 
-提高退休年龄也将有助于中共国保持经济增长，因为可以减缓出生率下降导致的劳动年龄人口萎缩速度。中共估计，到2050年，60岁以上的人口数量将接近4.87亿，而去年为2.54亿。
+These four actual military-controlled corporations that will be sanctioned by Trump are the CCP’s largest builder, largest chip company, largest offshore oil company, and the consulting corporation responsible for all of the CCP’s overseas projects. These sanctions will deal a devastating blow to the CCP’s chip industry and overseas projects.
 
-中共国在20世纪60年代初经历了一次婴儿潮，导致未来10年将有超过2亿人达到60岁。因此，在2021年开始的下一个五年计划中，中共将别无选择，只能提高养老金年龄，加州大学欧文分校的人口学家王峰说。
+**灭共，川普这次玩真的了**
 
-“未来五年内，大量的人将达到这个年龄，”他说。”如果他们现在不采取行动，那将会带来巨大的财政负担。”
+**This time Trump is really playing to exterminate the Chinese Communist Party.**
 
-**早期提案**
+这四家巨无霸公司，每一家规模都比华为大很多，是中共海外扩张的最精锐力量，因此这批制裁是真正打到中共的痛处。这四家公司，每家背后都是华尔街在站台，其建设资金都主要来自华尔街，此次制裁将彻底掐断华尔街的输血管道。
 
-经济学家蔡昉周五在政府发布会上对记者表示，到2035年，中共国的老年抚养比（将退休人口与在职人口数量进行比较）将从今年的17%左右上升到近33%。
+这批制裁名单的出台后，所有主流媒体都很安静，表明华尔街背后的利益集团早就做过评估，清楚将发生什么，且已经与川普政府达成一致。川普灭共这次当真了。
 
-公众的反弹使之前在2012年提出的提高养老金领取资格年龄的建议遭到破坏。监管养老金的中共国人力资源和社会保障部在目前到2020年的五年计划期间列入了一项提高退休年龄的建议，但没有实施。
+These four giant corporations, each much larger than Huawei, are the most elite forces in the CCP’s overseas expansion, so the sanctions are a real shot in the arm for the CCP. Each of these four corporations is backed and funded primarily by Wall Street, thus the sanctions will completely cut off their vascular access to capital from Wall Street.
 
-王晓东说，虽然该部将负责制定详细的实施建议，但共产党最高领导人需要签署退休改革的意见。他说，官员们可能会逐步实施改革，试图减少公众的不满情绪，比如先于其他职业或地区实施改革。
+After the sanctions list was released, all mainstream media kept quiet, indicating that the interest groups behind Wall Street had already made an assessment, knew exactly what would happen, and had reached an agreement with the Trump administration. This time, Trump is serious about exterminating the Communist Party.
 
-中共这项拟将提高百姓退休年龄的政策所引发的争论和不满并非因为普通百姓不愿意多去奋斗几年那么简单。中共治下的普通劳动者大多是辛苦劳作而收入微薄退休后难以依靠较低的退休金过上退休生活而不得已退而不休，这还不算中共国大量的没有社保和医保的农民，他们只要身体允许，不得不劳作一生，遇上大病不得不等死。同时，中共大量体制内的官僚阶层退休后的待遇可以让他们富足体面的过上退休后的生活，并且能享受最好的免费的医疗保障。提高退休年龄，无异于再往这些普通的劳动者身上插多几根输血管，来输血供养体制内官僚阶层。
+**中共船务和机组人员被美国盘查**
 
-所谓的取消社保医保的“双轨制”，建立健全的社保医保体系，解决老百姓的住房医疗教育问题，都是中共独裁统治下的伪命题，中共就是无视人权、摧毁人性、践踏民主、违背法治的恐怖组织，中共治下的百姓被中共和世界黑暗的势力共同奴役。
+**The CCP sea and aircraft crews are interrogated by the United States.**
 
-所以只有消灭中国共产党和西方与中共勾结的黑暗势力，老百姓才能逃脱猪头不如的生活！
+中国日报报道：截止11月11日有中共21艘轮船在美停靠时遭到突击检查，9月以来有16架次航班机组人员遭问讯和盘查是否党员身份及入党原因，时间有时长达数小时。但中国日报没有报道的是：此次盘查依据来自情报，盘查范围还包括手机和电脑，盘问内容与大选舞弊和投毒有关。
 
-参考来源:
-[https://www.newsmax.com/newsfront/china-retirement-aging-population/2020/11/30/id/999216/](https://www.newsmax.com/newsfront/china-retirement-aging-population/2020/11/30/id/999216/)
+China Daily reports: As of November 11, 21 Chinese Communist Party vessels were suddenly inspected while docked in the U.S., and since September the crews of 16 flights have been interrogated and questioned, sometimes for several hours, about their membership and reasons for joining the CCP. What the China Daily did not report was that the interrogations which related to election fraud and virus casting were based on intelligence and the inspection also includes cell phones and computers.
+
+**乔治亚州法官命令连续两次反转**
+
+**The Georgia judge’s order flipped twice consecutively.**
+
+11月29日，州法官发布紧急命令，要求所有投票机保持现有状态，不得清洗和重置。一个小时后，法官以郡县投票机不属于被告管辖为由，撤销了该命令；林伍德立即将该郡县长加入被告名单，法官不得不再次发布命令，冻结该州三个县的投票机10天。
+
+On November 29, a state judge issued an emergency order requiring all voting machines to remain in their current condition and not be erased or reset. An hour later, the judge reversed the order on the grounds that county voting machines were not within the defendants’ jurisdiction; Lin wood immediately added the county sheriff to the list of defendants, and the judge had to issue another order freezing voting machines in three counties in the state for 10 days.
+
+**从法官命令反转看川普团队必胜**
+
+**Judging by the reversal of the judge’s order, Trump Team will win.**
+
+在美国被渗透如此严重的情况下， 法律体系仍然在有效运转，美国必将再次伟大；
+
+能够被收买的法官，业务能力都不强，远不是大律师的对手；
+
+川普团队的林伍德大律师对法律的熟练运用和应变速度令人称奇，这是推特公司都胆怯、不敢封杀的原因；
+
+民主党腐败的官僚体系，注定了其聘请的500名律师无法与川普团队有真材实料的实干型大律师竞争，从而出现了目前法律战一边倒的现象。
+
+With the United States so heavily infiltrated, the legal system is still working effectively, so America will be great again.
+
+Judges who can be bribed are not very good at their profession and are far from being a match for big lawyers.
+
+Barrister Linwood, a member of the Trump team, his proficiency and responsiveness to the law is amazing, which is why Twitter is timid and afraid to block him.
+
+The Democratic Party’s corrupt bureaucracy has doomed its 500 hired attorneys to be unable to compete with Trump’s team of real-talented, hands-on barristers, resulting in the current lopsided legal battle.
+
+**路德金句：**
+
+LuDe Golden Words：
+
+美国的法官腐败很严重，竞选背后都有资金支持，有些法官的业务能力并不行，包括对法律的掌握程度，法庭上的经验和策略，这才是法官竞争的核心。
+
+行有行规，门有门道，有些法条专门是对法官的监督，就是为了防止某些人只研究一种法律，其实不同种类法律之间互相都有关联和对应，这就是一个牛的法律体系的伟大之处。
+
+Judges in the United States are very corrupt, and there is financial support behind the judges’ campaigns, and some judges are not competent in terms of their professional abilities, including mastery of the law, experience and strategy in the courtroom, which is the core of the competition for judges.
+
+There are rules of the road and door, and some laws are specifically designed to supervise judges to prevent them from studying only one kind of law. In fact, there are correlations and correspondences between different kinds of laws, which is the greatness of an awesome legal system.
+
+#CCP\_is\_terrorist   #TakeDownTheCCP
 
 1+

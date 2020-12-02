@@ -1,21 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 快讯速评】又见城管群殴摊贩 |城管的暴行，就是中共黑帮本质的体现！
-` GM64` [轉載自GNews](https://gnews.org/zh-hans/608881/)
+## 爆革星评：中共向多米尼母公司注资4亿美元
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/609113/)
 
-内新闻:Meilen美伦 素材:两只小猪 校对：文迹～见证神迹
+多伦多枫叶农场 文星（一号）
 
-据西安商报漩涡视频2020年12月1日晚间报道，云南曲靖市罗平县李女士反映，11月30日李女士的父亲遭到七八名城管队员殴打，起因是城管队员要没收自家放在店铺门外售卖的拖把，双方发生口角后爆发肢体冲突，导致李女士父亲3根肋骨骨折，目前正在医院接受治疗。
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02004231/ubs.png)图片来自streetloc.com
+美国证券交易委员会（SEC）2020年10月8日的一份FORM D 的文件显示，Dominion Voting Systems的母公司从瑞士一家投资银行获得了4亿美元，这笔巨款于大选前夕一个月内汇入。而这家投资银行的大股东是中共政府，并占有75%比例的绝对控股权。
 
-这就是世界上唯一拥有城管的中共国内自食其力的小商贩们的现状。城管砸摊每天都在中共国各地发生，城管暴打小商贩致伤、致残、致死的事件也屡见不鲜。中共伪政权的黑帮本质，在其城管队伍对待小商贩的种种反人类罪行中暴露得淋漓尽致。中共黑帮暴政如不灭，天理都难容，正如爆料革命战友郝海东先生说的：消灭中共，是正义的必须。
+简评：大选前一个月内，注入投票公司4亿巨款，目的就是影响和操作美国大选。其实，很多充分确凿的证据已经表明，中共和拜登集团操纵了2020年美国大选，现在证据又多了一份。
 
-想起当年夏森律师在给自卫反击误杀城管的小商贩崔英杰辩护中曾这样说：贩夫走卒、引车卖浆，是古已有之的正当职业。我的当事人来到城市，被生活所迫，从事这样一份卑微贫贱的工作，生活窘困，收入微薄。但他始终善良纯朴，无论这个社会怎样伤害他，他没有偷盗没有抢劫，没有以伤害他人的方式生存。我在法庭上庄严地向各位发问：当一个人赖以谋生的饭碗被打碎，被逼上走投无路的绝境，将心比心，你们会不会比我的当事人更加冷静和忍耐？
+事实上，中共就是那么几个高高在上的盗国贼家族，把中共国14亿人民辛辛苦苦赚来的4亿美元外汇，用来操纵美国大选和破坏美国民主制度，以达到扶持拜登同伙上台、进而摧毁美国和控制世界的目的。
 
-城管也是中共独裁暴政的受害者。面对同是受害者的同胞小商贩们，在那也许是他们全家赖以生存的小摊面前，奉劝城管们高抬贵手、枪口抬高一寸，不要赶尽杀绝，不要继续做独裁暴政迫害同胞的帮凶，多给同胞们行予方便，或最好离开城管队伍，也好为自己和家族留条后路，以免在中共伪政权不久倒台后被人民审判，无知地去充当独裁暴政的陪葬品。
-(本文仅代表个人观点)
+参考链接：
 
-新闻来源：
-[https://c.m.163.com/news/a/FSQ1DQRS0001899O.html?spss=newsapp](https://c.m.163.com/news/a/FSQ1DQRS0001899O.html?spss=newsapp)
+[https://www.sec.gov/Archives/edgar/data/1827586/000182758620000001/xslFormDX01/primary\_doc.xml](https://www.sec.gov/Archives/edgar/data/1827586/000182758620000001/xslFormDX01/primary_doc.xml)
 
-1+
+
+
+> BREAKING REPORT: The Parent Company of Dominion Received $400 MILLION, less than 1 month before the 2020 Elections… From a Swiss Bank that is 75% owned by the Chinese Government.. 
+> 
+> Developing Story..
+> — Matt Couch (@RealMattCouch) [December 1, 2020](https://twitter.com/RealMattCouch/status/1333846812894126080?ref_src=twsrc%5Etfw)
+
+
+
+2+
