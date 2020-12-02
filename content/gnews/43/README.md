@@ -1,89 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》每日简报2020.11.30晚间版
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/609593/)
+## 又称「病毒源头在印度」中共成甩锅专业户
+` GM77` [轉載自GNews](https://gnews.org/zh-hans/610256/)
 
-出品《路德社》 编辑：路德社精选新闻专栏组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02050357/11-30-1.jpeg)
-1130晚间要闻-NewYork Time
+收集：普大卫
+编撰: WENJUN
+复核：文錦
 
-1130 Evening News-NewYork Time
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02084452/17.png)图片来自链接页面
 
-**宾州立法机构正式决议，要求州务卿撤回大选认证**
+中共肺炎自武汉爆发即将届满一周年。对于[疫情](https://www.epochtimes.com/b5/tag/%e7%96%ab%e6%83%85.html)的来源，中共喉舌和科研机构不断变更「[甩锅](https://www.epochtimes.com/b5/tag/%e7%94%a9%e9%8d%8b.html)对象」，从早前的美国、意大利，以及一些向中国出口冷冻肉类食品国家之后，近日又将病毒源头归于印度和孟加拉国国。
 
-The PA Legislature has formally resolved to ask the Secretary of State to withdraw the election certification
+这项最新的「研究报告」来自中共中科院上海生命科学研究小组，发布在11月17日的医学期刊《柳叶刀》上。这份报告的名称是Sars-CoV-2在人类宿主中的早期秘密传播和进化（Early Cryptic Transmission and Evolution of Sars-CoV-2 in Human Hosts）。
 
-该决议称，州行政和司法部门篡夺了美国宪法赋予立法机构的制定选举规则的权力；敦促州务卿撤回对总统选举结果的过早认证，并推迟其他选举的认证；宣布2020年大选结果是有争议的。
+这些研究人员认为，病毒在进行复制的过程中，其脱氧核糖核酸，也就是DNA，都会产生非常微小但确实存在的变化，因此利用亲缘分析法（phylogenetic analysis），通过观察突变最小的病毒样本，可以追溯到病毒的源头究竟是来自哪里。
 
-The resolution stated that the executive and judicial departments of the state usurped the power granted to the legislature by the U.S. Constitution to make election rules; urged the Secretary of State to withdraw the premature certification of the presidential election results and to delay the certification of other elections; and then declared the results of the 2020 election  to be controversial.
+该研究小组锁定了美国、澳洲、意大利、俄罗斯、希腊、捷克、印度及孟加拉国等8个国家中，但却把中国排除在被怀疑对象之外。
 
-**宾州行政和司法部门如何篡权更改选举规则？**
+该研究认为印度及孟加拉国的病毒突变程度相当小。此外，印度及孟加拉国皆为中国邻国，因此研究认为第一波的病毒传播有可能就发生在这两国中。
 
-How did the PA executive and judicial departments usurp the power to change election rules?
+该研究报告还总结道，「该病毒在进入中国之前，可能已经经由欧洲传播，由此看来，新型冠状病毒（[中共病毒](https://www.epochtimes.com/b5/tag/%e4%b8%ad%e5%85%b1%e7%97%85%e6%af%92.html)）肺炎导致全球大流行是不可避免的，在武汉流行只是过程的一部分。」
 
-9月17日，宾州最高法院非法且单方面地延长了接受邮寄选票的最后期限，规定没有邮戳的邮寄选票可被视为及时选票，并允许接受签名未经核实的选票。
+有分析认为，在中共宣布「抗疫成功」后，爆发的各地[疫情](https://www.epochtimes.com/b5/tag/%e7%96%ab%e6%83%85.html)只能「政治正确」地甩在「进口鲑鱼」、「冷冻猪肉」上。如今将甩无可甩的「锅」扣在与之交恶的印度头上，显示中共当局已黔驴技穷。
 
-On Sep 17, the PA Supreme Court illegally and unilaterally extended the deadline of mailed-in votes, stipulating that mailed-in votes without postmarks could be regarded as timely votes, and accepting votes with unverified signatures.
+中共肺炎疫情从武汉蔓延到全中国，并蔓延至全世界，迄今已造成六千三百多万人感染，近150万人死亡，同时令全球经济受到重创。国际社会要求对[中共病毒](https://www.epochtimes.com/b5/tag/%e4%b8%ad%e5%85%b1%e7%97%85%e6%af%92.html)源头进行独立调查的同时，也向在疫情爆发初期刻意隐瞒疫情的中共当局追责。
 
-10月23日，宾州最高法院根据州务卿的请求，裁定邮寄选票上的签名不需要经过验证。
+面对全球追责，中共当局过去大半年以来策划了一系列推脱责任的应对之法，先后[甩锅](https://www.epochtimes.com/b5/tag/%e7%94%a9%e9%8d%8b.html)给意大利、西班牙、美国等。
 
-On Oct 23, on request of the Secretary of State, the PA Supreme Court ruled that the signatures on the mailed-in votes could not to be verified.
+同时，中共又几乎把各地爆发的案例都说成是输入型感染病例，而又将本土出现的感染病例源头声称来自多个国家进口的冷冻肉类产品，其中包括印度、俄罗斯、挪威、印度尼西亚、巴西、新西兰、厄瓜多尔等。
 
-11月2日，州务卿鼓励某些县在发现邮寄选票有缺陷后，通知政党和邮寄选民的候选人代表。
+有网友早前在中国搜索引擎「百度」，查询相关字词，意外挖出中共外交部的「甩锅史」，让不少网友看了直笑说「千错万错都是they的错」。
 
-On Nov 2, the Secretary of State encouraged some counties to notify political parties and candidate representatives of mailed voters when they discover flaws on mailed-in votes.
+脸书网友曾上传一张照片，内容显示在百度搜寻「责任全在……」，下方建议搜寻字词竟出现「责任全在美方」、「责任全在德方」、「责任全在韩方」、「责任全在日方」、「责任全在英方」、「责任全在台湾」、「责任全在法方」等其余国家名称。
 
-**州选举结果是如何认证的？**
+网友纷纷转发、留言讽刺「责任全在+N」、「快笑死，这是百度撇责机吧」、「党绝对都是对的」、「责任全在别国，自己就没有责任」
 
-How are state election results certified?
+中共无论怎么狡辩，怎么耍赖，怎么甩锅，都无法逃避罪责，因为罪证即将呈上公堂，中共只有一条出路：以死抵罪！
 
-州选举结果必须由政府和立法机构同时认证才有效，州政府认定是由州务卿具体负责认证、然后交州长签字确认。如果双方意见不一致，要么打官司到联邦法院进行判决，要么该州放弃选举认证。如果该州放弃认证，川普和拜登都不能获得本州的选举人票。
-
-State election results must be certified by the government and legislature at the same time. The Secretary of State is responsible for the certification and then submits it to the Governor for signature at the state government. Shall there be any disagreement, either a lawsuit is filed in a federal court, or the state abandons the election certification. If it is the latter one, neither Trump nor Biden can get the state’s electoral votes.
-
-**川普法律团队的四线作战**
-
-The four-front battles of Trump’s legal team
-
-这四条战线的法律战，只要有一处获胜，川普就获胜：起诉作废无法监票的选票，宾州翻盘；起诉作废所有州邮寄选票；起诉的Dominion选举系统造假；秘密战线的刑事犯罪起诉。
-
-Trump will win if one of the four-front legal battles wins: prosecuting to void  uncountable votes with PA’s flipping; prosecuting to void all state mailed-in votes; prosecuting Dominion election system fraud; prosecuting the criminal offenses on secret front.
-
-**乔治亚州对外州人员在本州的投票进行调查**
-
-GA investigates votes casted by out-of-staters
-
-该州已经对一个名为“美国投票”的组织进行调查，该组织向1994年以来从未在该州居住过的人发送邮寄选票。在该州，非本州居民的非法投票属于重罪。该调查，为下一步该州不认证选举投票结果奠定了基础。
-
-The state has started investigation on an organization called “America Votes”, who sent mailed-in votes to people that have never lived in the state since 1994. It is a felony to vote illegally by non-residents of the state there. The investigation has laid the foundation for the decertification election results of the state.
-
-**刘特佐身份大揭秘**
-
-Joe Low’s Identity Revealed
-
-刘特佐养母吴玉幼亲口说，刘特佐是孟建柱在文革时期，与情人（和其他男人）的私生女所生的儿子。孟建柱与其情人也生了一个女儿。
-
-孟建柱因为其隐藏在东南亚的金钱，还没有全部被收回，所以暂未被抓捕，目前处于监视居住的状态。
-
-Joe Low, also known as Liu Tezuo’s adoptive mother, Wu Yuyou, said that Liu Tezuo was the son of Meng Jianzhu and his lover’s illegitimate daughter during the Cultural Revolution of CCP. Meng also had a daughter with this lover.
-
-Meng is now under residential surveillance without being arrested, as his hidden money in Southeast Asia has not been fully recovered.
-
-**马六甲皇京港超级工程被叫停**
-
-The Melaka Gateway super project halted
-
-这个号称要取代新加坡港的、由中共投资的金额高达100亿美元的深水港码头工程，因为涉及中共军事用途，一直备受争议。在实际投资金额超过20亿美元后，近期被马六甲州政府以未能如期完成填海作业为由正式叫停。
-
-The $10 billion deep-water gateway project, which was claimed to replace the Port of Singapore, has been controversial because of its military use by the CCP. After the actual investment amount exceeded $2 billion, the project was recently halted by the Melacca state government for failing to complete the refilling operation as scheduled.
-
-文案：《路德社》文编组
-
-翻译：《路德社》翻译组
-
-审核校对：玫瑰天空
-
-上传排版：青葫芦娃
+参考来源:
+[https://www.epochtimes.com/b5/20/11/30/n12586371.htm](https://www.epochtimes.com/b5/20/11/30/n12586371.htm)
 
 0
