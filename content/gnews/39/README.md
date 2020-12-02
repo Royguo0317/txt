@@ -1,99 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 有关GTV视频分享的技巧（二）
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/609409/)
+## 《路德社》精选主题专栏：以假乱心，以假攻澳：中共假虚拟图片攻击澳大利亚
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/609421/)
 
-作者：康州盘古农场-Lioulun
+《路德社》精选主题专栏组出品
 
-审核：康州盘古农场-Truemanman
+作者：上進哥
 
-我在之前发过一篇关于GTV视频分享的文章，里面提到过使用手动提取的视频 m3u8 文件的地址进行视频转载，那么今天我们来说说如何仅仅通过视频页面的 url 得到 m3u8 文件的地址。
+这一周以来，由中共国外交部发言人赵立坚 在推特上发布的虚假图片导致的中澳争端，迅速引起＂媒体＂关注，这张图片指控澳大利亚特种兵在曾经的阿富汗战争中犯下了战争罪，这张由名为乌合麒麟电脑绘图师创画的图片被中共在这个节骨眼上拿来作为攻击澳大利亚的武器！
 
-我们先准备一点数据作为分析依据：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02042038/22.jpg)
 
-[0]
+澳洲总理莫里森迅速给出了回应，他谴责中共这种做法是完全耻辱的，要求其下架这张照片，并向澳方给出道歉！总理说：这是一个真正的诽谤，是不可接受的！自此，两国及新西兰，甚至俄罗斯外交部都发表了相关的言论！这张图片也让中共国和澳大利亚的外交言论冲突从贸易，国内民主政治压制延展至军事！
 
-[https://web.gtv.org/video/id=5fc7025bee9d341c2b4109c1](https://web.gtv.org/video/id=5fc7025bee9d341c2b4109c1)
+在中共国，大家都知道中共在国内通过央视新闻联播、各地的电视广播报纸来灌疏＂国外的种种不好，天朝的绝好＂，作为中国人我们已经司空见惯； 但这一次，通过外交部发言人发虚假图片在推特上和他国论战，貌似还属首次，自从2017年郭文贵先生爆料以来，破墙而出的中国人在推特上用匿名和网名来支持他和爆料革命，支持他利用社交媒体公开揭露中共的恶行，推特也变成了一个虚拟和现实的网路媒体战场，这逼得中共国外交部两大发言人赵立坚（坚坚）和华春莹（硬硬）双双也上了推特，试图以推特作为影响舆论的工具！
 
-[https://filegroup.gtv.org//group5/vm3u8/20201202/02/56/5fc7025bee9d341c2b4109c1/hls.m3u8](https://filegroup.gtv.org//group5/vm3u8/20201202/02/56/5fc7025bee9d341c2b4109c1/hls.m3u8)
+坚坚在推文中写到：我被吓到了，澳大利亚士兵在阿富汗杀死了平民和囚犯！我们強烈谴责，他们应该受到惩罚！
 
-[1]
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02043747/33.jpg)
 
-[https://web.gtv.org/video/id=5fc660db20c9025a87db75f5](https://web.gtv.org/video/id=5fc660db20c9025a87db75f5)
+笔者解读，这则推文的背后至少包含了三层含义。
 
-[https://filegroup.gtv.org//group5/vm3u8/20201201/15/27/5fc660db20c9025a87db75f5/hls.m3u8](https://filegroup.gtv.org//group5/vm3u8/20201201/15/27/5fc660db20c9025a87db75f5/hls.m3u8)
+笫一：澳大利亚士兵是邪恶的，坚坚是有良知和正义感的；
 
-[2]
+第二：坚坚作为中共官方的发言人，他的角色不是个人，所以他是代表中共政府在谴责澳洲政府，你们澳洲政府不是前些天还在批判我们把新疆维吾尔穆斯林关进＂再教育营（集中营）＂，说我们镇压香港民主运动，那你们又如何？还不是一个样，别把自己说得全白，我们中共就黑！你们对于中东的战争也不是像宣扬的＂为了正义与和平＂，否则也不会有Brereton Report （布雷頓報告）［1］公布！
 
-[https://web.gtv.org/video/id=5fc65c7120c9025a87db741b](https://web.gtv.org/video/id=5fc65c7120c9025a87db741b)
+第三：这则推文与其说是在针对澳洲政府，倒不如说，他的目标是无脑的海內外中国人、不明原委的澳大利亚公民和西方人，它希望这则推文宣传的东西可以影响、混乱、改变民众自己的价值观以及对于政府的态度，最好是相信中共，站在中共一边，反对自己选出的政府！在引起内部斗争方面，中共可以说是始祖级别的，无人能敌，不管是抗日，还是夺权，不管是三反五反，还是文革，只要你们内斗，我（中共）就观火，渔利，当下如火如荼的美国选战之争就是明证！
 
-[https://filegroup.gtv.org//group5/vm3u8/20201201/15/08/5fc65c7120c9025a87db741b/hls.m3u8](https://filegroup.gtv.org//group5/vm3u8/20201201/15/08/5fc65c7120c9025a87db741b/hls.m3u8)
+几天前，一位西方作者著文《A Long-Forgotten CIA Document From WikiLeaks Sheds Critical Light on Today’s U.S. Politics and Wars》（Glenn Greenwald ）［2］（《一份久被遗忘的由维基解密公布的中央情报局文件揭示了今日美国政治和战争的关键信息》）（文缺译）   ［3］
 
-以上是三段视频的播放页面的地址以及对应手工获取的 m3u8 文件的 url，下面我们将使用其地址直接推导出 m3u8 文件的 url。
+在这篇文章中，根据维基解密，作者怀疑阿富汗持续长达二十年的战争其实是ClA在幕后操纵，奥巴马只是ClA用来向欧洲民众推销战争的一个说客和执行者，＂中央情报局知道巴拉克·奥巴马最适合用来推销它们的战争，基于同样理由，美国国家安全部门的不少人十分急于摆脱唐纳德·川普＂，
 
-### **第一步 确定常量、变量**
+读罢此文，深感其影子政府之黑恶，川普总统撤军之不易，而澳洲布雷特报告所揭示的战争罪真相也让人省思，所以我们要回到源头上找答案，为什么要发动战争？是谁发动了战争？台前的杀人者我们希望有法律来严惩，幕后的黑手亦不能放过！
 
-很明显“https://filegroup.gtv.org//group5/vm3u8/“以及“/hls.m3u8“都是固定不变的常量，而中间的部分则为变量，例如：“20201202/02/56/5fc7025bee9d341c2b4109c1”、“20201201/15/27/5fc660db20c9025a87db75f5”。
+中共这次利用虛假图片来攻击澳大利亚，绝对不是站在＂真善，正义＂的立场上，因为他们本身就是邪恶的代言，他们开动宣传机器，纠住澳军的一个污点，迫切要达成的目标只有一个：往死里打，只有你死了，我才能嬴！
 
-### **第二步 分析变量**
+參與資訊：1·[https://en.wikipedia.org/wiki/Brereton\_Report](https://en.wikipedia.org/wiki/Brereton_Report)
 
-可以发现变量部分的后段的16进位编码就是视频播放地址的id，例如：“id=**5fc7025bee9d341c2b4109c1**“对应”20201202/02/56/**5fc7025bee9d341c2b4109c1**“。所以可以直接用播放页面的地址得到这个字段。
+2· [https://greenwald.substack.com/p/a-long-forgotten-cia-document-from](https://greenwald.substack.com/p/a-long-forgotten-cia-document-from)
 
-接下来很明显发现，前部分的内容模式为如下形式：
+3· [https://gnews.org/zh-hans/605276/](https://gnews.org/zh-hans/605276/)
 
-年月日/小时/分钟
+本文作者：上進哥
 
-通过对视频上传记录的对照可以发现这个日期时间应该就是视频的最早发布事件，接下来的重点是如何得到该字段信息。
+审核校对：玫瑰天空
 
-**我这里已经通过比对发现如果将 id 字段的前8个16进位数取出就是一个精度到秒的时间戳，把它转换成UTC时间就得到了视频发布的日期和时间，并能够对应 m3u8 地址的字段。**
+上传排版：青葫芦娃
 
-公式如下：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02041106/%E5%9B%BE%E7%89%8718.png)
-### **第三步 代码实现**
-
-import time
-
-​test = ‘https://web.gtv.org/video/id=5fc7025bee9d341c2b4109c1’
-
-​tpl = ‘https://filegroup.gtv.org/group5/vm3u8/{}/hls.m3u8’
-
-​id = test.split(‘id=’)[1]
-
-print(id)
-
-​timestamp = int(id[:8], 16)
-
-print(timestamp)
-
-​utc = time.gmtime(timestamp)
-
-date = f'{utc.tm\_year}{utc.tm\_mon:02}{utc.tm\_mday:02}’
-
-hours = f'{utc.tm\_hour:02}’
-
-minutes = f'{utc.tm\_min:02}’
-
-segment = f'{date}/{hours}/{minutes}/{id}’
-
-print(segment)
-
-​url = tpl.format(segment)
-
-print(url)
-
-输出结果：
-
-5fc7025bee9d341c2b4109c1
-
-1606877787
-
-20201202/02/56/5fc7025bee9d341c2b4109c1
-
-https://filegroup.gtv.org/group5/vm3u8/20201202/02/56/5fc7025bee9d341c2b4109c1/hls.m3u8
-
-需要注意的是由于 GTV 版本的更新所以字段 /group5/ 可能会随着改变，不过一般可以采用连接测试的方式简单确定具体版本，毕竟版本不像日期时间那样频繁变更。
-
-
-
-1+
+0

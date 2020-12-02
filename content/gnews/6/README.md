@@ -1,58 +1,87 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯：川普总统连发四推！吹哨者证词令人愤慨！
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/608715/)
+## 《路德社》每日简报-2020.11.30中国建设、中芯国际、中海油和国际工程咨询公司将被列入制裁名单
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/609163/)
 
-出品《路德社》 编辑：路德社精选新闻专栏组
+《路德社》文编组出品
+![此图像的alt属性为空；文件名为lude1.jpeg]()![此图像的alt属性为空；文件名为lude1.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01061812/lude1.jpeg)![此图像的alt属性为空；文件名为lude2.jpeg]()![此图像的alt属性为空；文件名为lude2.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01061822/lude2.jpeg)
+**中国建设、中芯国际、中海油和国际工程咨询公司将被列入制裁名单**
 
-川普总统在美国东部时间12月1日，截止发文前数小时连发四推，截取了四名愿意在新闻发布会上站出来的吹哨者们的证词。
+CSCEC, SMIC, CNOOC, and CIECC will be added to the sanctions list.
 
+CSCEC: China State Construction Engineering Corporation,
 
+SMIC: Semiconductor Manufacturing International Corporation,
 
-> [pic.twitter.com/vV8S7cqDvz](https://t.co/vV8S7cqDvz)
-> — Donald J. Trump (@realDonaldTrump) [December 1, 2020](https://twitter.com/realDonaldTrump/status/1333873469516357638?ref_src=twsrc%5Etfw)
+CNOOC: China National Offshore Oil Corporation,
 
+CIECC: China International Engineering Consulting Corporation.
 
+川普即将制裁的这四家军方实际控制的公司，分别是中共最大建筑商、最大芯片公司、最大海上石油公司和负责中共所有海外项目的咨询公司，这批制裁将对中共芯片业和海外项目造成毁灭性打击。
 
+These four actual military-controlled corporations that will be sanctioned by Trump are the CCP’s largest builder, largest chip company, largest offshore oil company, and the consulting corporation responsible for all of the CCP’s overseas projects. These sanctions will deal a devastating blow to the CCP’s chip industry and overseas projects.
 
+**灭共，川普这次玩真的了**
 
-> [pic.twitter.com/7DWi3pjdIr](https://t.co/7DWi3pjdIr)
-> — Donald J. Trump (@realDonaldTrump) [December 1, 2020](https://twitter.com/realDonaldTrump/status/1333873500931690499?ref_src=twsrc%5Etfw)
+**This time Trump is really playing to exterminate the Chinese Communist Party.**
 
+这四家巨无霸公司，每一家规模都比华为大很多，是中共海外扩张的最精锐力量，因此这批制裁是真正打到中共的痛处。这四家公司，每家背后都是华尔街在站台，其建设资金都主要来自华尔街，此次制裁将彻底掐断华尔街的输血管道。
 
+这批制裁名单的出台后，所有主流媒体都很安静，表明华尔街背后的利益集团早就做过评估，清楚将发生什么，且已经与川普政府达成一致。川普灭共这次当真了。
 
+These four giant corporations, each much larger than Huawei, are the most elite forces in the CCP’s overseas expansion, so the sanctions are a real shot in the arm for the CCP. Each of these four corporations is backed and funded primarily by Wall Street, thus the sanctions will completely cut off their vascular access to capital from Wall Street.
 
+After the sanctions list was released, all mainstream media kept quiet, indicating that the interest groups behind Wall Street had already made an assessment, knew exactly what would happen, and had reached an agreement with the Trump administration. This time, Trump is serious about exterminating the Communist Party.
 
-> Jesse Morgan—a truck driver (subcontractor) with USPS in PENNSYLVANIA…[pic.twitter.com/EFxXZnQCUS](https://t.co/EFxXZnQCUS)
-> — Donald J. Trump (@realDonaldTrump) [December 1, 2020](https://twitter.com/realDonaldTrump/status/1333875814585282567?ref_src=twsrc%5Etfw)
+**中共船务和机组人员被美国盘查**
 
+**The CCP sea and aircraft crews are interrogated by the United States.**
 
+中国日报报道：截止11月11日有中共21艘轮船在美停靠时遭到突击检查，9月以来有16架次航班机组人员遭问讯和盘查是否党员身份及入党原因，时间有时长达数小时。但中国日报没有报道的是：此次盘查依据来自情报，盘查范围还包括手机和电脑，盘问内容与大选舞弊和投毒有关。
 
+China Daily reports: As of November 11, 21 Chinese Communist Party vessels were suddenly inspected while docked in the U.S., and since September the crews of 16 flights have been interrogated and questioned, sometimes for several hours, about their membership and reasons for joining the CCP. What the China Daily did not report was that the interrogations which related to election fraud and virus casting were based on intelligence and the inspection also includes cell phones and computers.
 
+**乔治亚州法官命令连续两次反转**
 
-> [pic.twitter.com/HOtVBv9Tfj](https://t.co/HOtVBv9Tfj)
-> — Donald J. Trump (@realDonaldTrump) [December 1, 2020](https://twitter.com/realDonaldTrump/status/1333885681714798593?ref_src=twsrc%5Etfw)
+**The Georgia judge’s order flipped twice consecutively.**
 
+11月29日，州法官发布紧急命令，要求所有投票机保持现有状态，不得清洗和重置。一个小时后，法官以郡县投票机不属于被告管辖为由，撤销了该命令；林伍德立即将该郡县长加入被告名单，法官不得不再次发布命令，冻结该州三个县的投票机10天。
 
+On November 29, a state judge issued an emergency order requiring all voting machines to remain in their current condition and not be erased or reset. An hour later, the judge reversed the order on the grounds that county voting machines were not within the defendants’ jurisdiction; Lin wood immediately added the county sheriff to the list of defendants, and the judge had to issue another order freezing voting machines in three counties in the state for 10 days.
 
-“关于选票投放箱（drop boxes），选票投放箱应该确保有7天24小时的监控，有谁看到这些监控录像了吗？移交这些选票保管权的流程应该确保公正，也就是说合规的操作应该是这些投票箱的钥匙保管人应该都有相应记录，并且应该“两人一钥匙”，以防任何一个派别的人员在选票运输到计票点的路上把对方的选票扔掉。他们有用“两人一钥匙”系统吗？他们移交这些投放箱有记录吗？他们会在任何时候按照所保证的公开这些投放箱的监控录像吗？目前我们已经向他们索取这些资料，并且被拒绝了，当人们拒绝一件事情都是有原因的，他们的原因是什么？和我们同事的有一位选举专家，他说这种行为破坏了投票的保管链，阻止了联邦法律中帮助美国公民投票的选举过程中认证环节的实施。我们将他们的证词上交到无数的案件中，他们在各摇摆州的各市区选举中的所作作为与联邦法律不符！”
+**从法官命令反转看川普团队必胜**
 
-“在大选当日我作为一名在威斯康辛州UMS-USPS分包商的临时工工作，我作为货车司机于2020年8月26日开始上班，工作内容是收取信件，送到UMS分类和计量，然后把这些已分类的邮件送到USPS。从9/10月我开始运送邮寄选票从UMS到USPS，作为我晚间任务，我知道因为选票有特殊仓存放，有次我忘记运输当日选票我还不得不回去完成运送，至此之后我总是记得检查是否把选票仓装车了。2020年11月2日，我注意到选票仓里只有张投票要送到USPS，而11月3日，大选日则没有要运输的投票。于是可想而知当第二天当我被一位USPS高级雇员曼迪问，有没有忘记运输前一天的选票，他解释说上级下达命令说威斯康辛州和伊利诺州少了10万张选票，邮局在四点派出了雇员寻找这些不见的选票，在UMS只找到了7，8张。基于我之前的经验以及在反复检查选票后，我确信这是谎言。第二天，2020年11月5日，我与另一名名叫瑞秋的USPS雇员谈话，她在谈话中承认USPS雇员被下令超过截止时间不能被计算的选票。我问他关于曼迪之前说的丢失的选票，我会不会有麻烦，她说,’你不会有事的，只要有11月3日的邮戳就行，‘她继续说到’这就是为什么他们派我们做这件事。‘由于他们对川普总统的敌意以及对法律明显的不尊重，当时我没有把这件事报告USPS的监管人员。我听到同样这两名邮局雇员开玩笑说要把投给川普的邮寄选票拿出来扔掉。我既不是川普支持者也不是拜登支持者，我没有投给他们任何一个。但威斯康辛在大选期间发生的一切从根本上出现了问题，而美国公民有权知道。”
+**Judging by the reversal of the judge’s order, Trump Team will win.**
 
-同样的情况在宾夕法尼亚的USPS同样发生了，我们相信美国公民只是想要追求真相，并且不仅是他们，人民有权知道真相！这些勇敢的吹哨者们说的这一件件选举欺诈的事实不仅让人气愤，而是他们对法律和事实的不尊重让人瞠目结舌。真相必将被揭开。试图窃取选举，干扰美国大选的黑手必将被惩罚。
+在美国被渗透如此严重的情况下， 法律体系仍然在有效运转，美国必将再次伟大；
 
-以下为4个推特视频内容：
+能够被收买的法官，业务能力都不强，远不是大律师的对手；
 
-以下为川普总统关于整个发布会推文链接：
+川普团队的林伍德大律师对法律的熟练运用和应变速度令人称奇，这是推特公司都胆怯、不敢封杀的原因；
 
+民主党腐败的官僚体系，注定了其聘请的500名律师无法与川普团队有真材实料的实干型大律师竞争，从而出现了目前法律战一边倒的现象。
 
+With the United States so heavily infiltrated, the legal system is still working effectively, so America will be great again.
 
-> LIVE NOW! Press Conference by Amistad Project: “Election Whistleblowers Come Forward”[https://t.co/Yjh1GsxGvS](https://t.co/Yjh1GsxGvS)
-> — Donald J. Trump (@realDonaldTrump) [December 1, 2020](https://twitter.com/realDonaldTrump/status/1333858605179809792?ref_src=twsrc%5Etfw)
+Judges who can be bribed are not very good at their profession and are far from being a match for big lawyers.
 
+Barrister Linwood, a member of the Trump team, his proficiency and responsiveness to the law is amazing, which is why Twitter is timid and afraid to block him.
 
+The Democratic Party’s corrupt bureaucracy has doomed its 500 hired attorneys to be unable to compete with Trump’s team of real-talented, hands-on barristers, resulting in the current lopsided legal battle.
 
+**路德金句：**
 
+LuDe Golden Words：
 
-0
+美国的法官腐败很严重，竞选背后都有资金支持，有些法官的业务能力并不行，包括对法律的掌握程度，法庭上的经验和策略，这才是法官竞争的核心。
+
+行有行规，门有门道，有些法条专门是对法官的监督，就是为了防止某些人只研究一种法律，其实不同种类法律之间互相都有关联和对应，这就是一个牛的法律体系的伟大之处。
+
+Judges in the United States are very corrupt, and there is financial support behind the judges’ campaigns, and some judges are not competent in terms of their professional abilities, including mastery of the law, experience and strategy in the courtroom, which is the core of the competition for judges.
+
+There are rules of the road and door, and some laws are specifically designed to supervise judges to prevent them from studying only one kind of law. In fact, there are correlations and correspondences between different kinds of laws, which is the greatness of an awesome legal system.
+
+#CCP\_is\_terrorist   #TakeDownTheCCP
+
+1+

@@ -12,147 +12,147 @@
 
 
 
-### [《路德社》每日简报晚间版 2020.12.01&#8211;NewYork Time](/content/gnews/1/README.md)
+### [【世纪大案】34: 首席大法官、司法部长、性奴岛岛主](/content/gnews/1/README.md)
+ ` 纽约香草山农场`
+
+### [《路德社》每日简报晚间版 2020.12.01&#8211;NewYork Time](/content/gnews/2/README.md)
  ` 路德社精选`
 
-### [《路德社》精选新闻快讯：鲍威尔告诫国会“尽管疫苗的好消息不断，但前景仍然极不确定”](/content/gnews/2/README.md)
+### [《路德社》精选新闻快讯：鲍威尔告诫国会“尽管疫苗的好消息不断，但前景仍然极不确定”](/content/gnews/3/README.md)
  ` 路德社精选`
 
-### [爆炸: CNN 总裁杰夫·扎克竟然说，川普如不开始政权过渡给拜登，可能会再有9/11恐怖活动](/content/gnews/3/README.md)
+### [爆炸: CNN 总裁杰夫·扎克竟然说，川普如不开始政权过渡给拜登，可能会再有9/11恐怖活动](/content/gnews/4/README.md)
  ` 秘密翻译组G-Translators`
 
-### [川普总统明确230法案如未作为《国防授权法》的一部分，并成为大技术公司的免责依据将被立即收回](/content/gnews/4/README.md)
+### [川普总统明确230法案如未作为《国防授权法》的一部分，并成为大技术公司的免责依据将被立即收回](/content/gnews/5/README.md)
  ` GM101`
 
-### [《路德社》每日简报-2020.11.30中国建设、中芯国际、中海油和国际工程咨询公司将被列入制裁名单](/content/gnews/5/README.md)
+### [《路德社》每日简报-2020.11.30中国建设、中芯国际、中海油和国际工程咨询公司将被列入制裁名单](/content/gnews/6/README.md)
  ` 路德社精选`
 
-### [《路德社》精选新闻快讯：川普总统连发四推！吹哨者证词令人愤慨！](/content/gnews/6/README.md)
+### [《路德社》精选新闻快讯：川普总统连发四推！吹哨者证词令人愤慨！](/content/gnews/7/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [视频【重磅！】美国空军中将托马斯·麦金纳尼接受WVW电视台采访](/content/gnews/7/README.md)
- ` 倫敦英喜莊園 Himalaya UK`
+### [加班半月没休息 女孩半路被叫回加班 崩溃痛哭 录音戳痛无数人](/content/gnews/8/README.md)
+ ` GM108`
 
-### [中共威胁要毁掉美国的圣诞节](/content/gnews/8/README.md)
- ` 倫敦英喜莊園 Himalaya UK`
+### [金正恩接种中国提供的疫苗](/content/gnews/9/README.md)
+ ` 喜马拉雅 日本京都富士会`
 
-### [《路德社》每日简报早间版 2020.12.01&#8211;NewYork Time](/content/gnews/9/README.md)
- ` 路德社精选`
+### [墨博士解读新闻快讯 (2020.11.26)：中共经济彻底完蛋，掠夺百姓;福奇到底怎么回事](/content/gnews/10/README.md)
+ ` Wdg0606`
 
-### [11月27日郭先生GTV直播摘要-英喜出品](/content/gnews/10/README.md)
- ` 倫敦英喜莊園 Himalaya UK`
+### [中国人爱窝里反](/content/gnews/11/README.md)
+ ` 喜马拉雅 日本京都富士会`
 
-### [《路德社》每日简报2020.11.30晚间版](/content/gnews/11/README.md)
- ` 路德社精选`
+### [【文字版】路德时评2020.12.01晚间（路博艾冠谈）：川普真正大行动即将开始了吗？什么是真正大行动？今天川普身边的人纷纷做舆论铺垫？](/content/gnews/12/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [《路德社》每日简报早间版 2020.11.28&#8211;NewYork Time](/content/gnews/12/README.md)
- ` 路德社精选`
+### [澳大利亚的变革和觉醒，一切皆因中共](/content/gnews/13/README.md)
+ ` [email&#160;protected]`
 
-### [11月26日郭先生GTV直播精要-英喜出品](/content/gnews/13/README.md)
- ` 倫敦英喜莊園 Himalaya UK`
-
-### [《路德社》每日简报晚间版2020.11.28&#8211;NewYork Time](/content/gnews/14/README.md)
- ` 路德社精选`
-
-### [305-306疫情直播-短视频](/content/gnews/15/README.md)
- ` GM62`
-
-### [中共指鹿为马，欲以“战争暴行”恶名向澳洲发难](/content/gnews/16/README.md)
- ` 秘密翻译组G-Translators`
-
-### [《路德社》精品主题专栏: 天罗地网已经安排就绪，不怕司法部部长巴尔胡来！](/content/gnews/17/README.md)
- ` 路德社精选`
-
-### [对舞弊者布下的天罗地网](/content/gnews/18/README.md)
- ` GM30`
-
-### [Wodarg博士和Yeadon博士要求停止所有新冠疫苗接种研究，并呼吁共同签署请愿书](/content/gnews/19/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [川普威胁会否决重大国防法案，除非国会废除科技巨头的法律保护伞－230条款](/content/gnews/20/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [【文字版】2020/12/02面具先生直播：美国呼吁川普总统实行全国戒严的呼声越来越高，并明确应对共产主义的威胁！美军在德国获取服务器的消息被进一步验证！麦金纳尼中将采访中强调这不仅是投票欺诈还是网络战争！](/content/gnews/21/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [澳大利亚, 站着把钱挣了](/content/gnews/22/README.md)
- ` 墨尔本雅典娜农场`
-
-### [视频【路德社】【精华版粤语快报】12.01：解读美国制裁中国电子进出口集团 CNN罕有承认中共隐瞒疫情](/content/gnews/23/README.md)
+### [【香港要闻】听障男生袭警罪成 判入更生中心　还押一刻高喊「妈，生日快乐！」](/content/gnews/14/README.md)
  ` GM42`
 
-### [轰-20与B-2有可比性吗?——当然有,论丑那B-2只能甘拜下风!](/content/gnews/24/README.md)
- ` 快慢机`
+### [这两周你们会看到像滚天雷一般的惩罚制度指向中共《每日快报 &#8212; 2020.12.02》](/content/gnews/15/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [视频【鲁道夫采访鲍威尔律师】选票欺诈情况令人震惊，川普总统应采取颠覆性行动以保选举公正](/content/gnews/25/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [爆料身边的村长，唤起普通民众，重树中国人的信仰](/content/gnews/26/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [【热点播报】香港有线台裁员：中国新闻组集体辞职抗议](/content/gnews/27/README.md)
- ` 纽约香草山农场`
-
-### [【身边的故事】难忘的一次班会](/content/gnews/28/README.md)
- ` Ronald`
-
-### [文贵说｜系列图片连载（六十三）](/content/gnews/29/README.md)
- ` GM98`
-
-### [【热点播报】巴尔总检察长，另一只沼泽硕鼠](/content/gnews/30/README.md)
- ` 纽约香草山农场`
-
-### [“美国Deep state”用多米尼控制选票，中共用多米尼控制美国-司法部长巴尔也陷入其中](/content/gnews/31/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [【国内快评】“汪文月事件”是谁的错？](/content/gnews/32/README.md)
- ` Ronald`
-
-### [【快讯】刘强东 “疯狂”卸任，中共“兔死狗烹”的又一牺牲品](/content/gnews/33/README.md)
- ` Ronald`
-
-### [胡锡进请求人民日报对他是否有私生子的举报出结论意味着什么](/content/gnews/34/README.md)
- ` NewFOC`
-
-### [【热点播报】密歇根州和佐治亚州的民主党人篡改军人选票](/content/gnews/35/README.md)
- ` 纽约香草山农场`
-
-### [信仰之星——引领新中国联邦](/content/gnews/36/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [路德社重磅：川普总统真正大行动即将开始！](/content/gnews/37/README.md)
- ` GM31`
-
-### [盼头](/content/gnews/38/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [有关GTV视频分享的技巧（二）](/content/gnews/39/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [司法部部长巴尔关于大选舞弊调查评论在川普律师团队发出声明后的有趣反转](/content/gnews/40/README.md)
+### [视频同声传译班农战斗室【EP551-EP554】](/content/gnews/16/README.md)
  ` 秘密翻译组G-Translators`
 
-### [郭文贵先生2020年11月30日直播 给战友们的几条建议](/content/gnews/41/README.md)
+### [评“网络实名制和网络限制”制度](/content/gnews/17/README.md)
+ ` Ronald`
+
+### [满洲里全员核酸检测阳性率竟超武汉！共产党造假天下第一！](/content/gnews/18/README.md)
+ ` Ronald`
+
+### [【快讯】“先租后让”敛财，“公私合营”再上演？](/content/gnews/19/README.md)
+ ` Ronald`
+
+### [川普總統發推：徹底終結230條款, 將納入國防授權法案，奪回美國，就在眼下](/content/gnews/20/README.md)
  ` 喜马拉雅凤凰农场–旧金山-金喜站`
 
-### [【深度报道】多米尼操控全球23亿张选票, 中共注资4亿](/content/gnews/42/README.md)
- ` 墨尔本雅典娜农场`
-
-### [沼泽的深度，让人另思极恐](/content/gnews/43/README.md)
- ` G-NEWS TAIWAN`
-
-### [正义之声将响彻云霄，真相将突破黑暗](/content/gnews/44/README.md)
- ` G-NEWS TAIWAN`
-
-### [【点睛要闻】重磅!大选前一个月中共砸4亿美元买通Dominion操控美国大选](/content/gnews/45/README.md)
+### [视频12/1/2020 同声传译: 福克斯TUCKER节目精选, HANNTY &amp; LOU DOBBS节目,以及NEWSMAX GRAG KELLY节目](/content/gnews/21/README.md)
  ` 秘密翻译组G-Translators`
 
-### [“盛世”光辉下的北京底层生活写照 &#8211; 身边事记2](/content/gnews/46/README.md)
- ` gnewscanada`
+### [视频11/30/2020 同声传译： 川普总统法律团队亚利桑那州重磅听证会同传+班农战斗室EP547](/content/gnews/22/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [英国批准辉瑞中共病毒疫苗国内广泛使用](/content/gnews/47/README.md)
- ` vog_dongdong_vog`
+### [视频11/30/2020 西妮·鲍威尔: 我觉得有必要对整个联邦调查局和整个司法部门进行清理](/content/gnews/23/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [【文雍漫谈】以牙还牙不如打他个满地找牙](/content/gnews/48/README.md)
- ` 为子孙爱七哥农场`
+### [视频11/30/2020 Jack Maxey: 将公布不正常投票人名单, 揭露有人在宾夕法尼亚州和乔治亚州同时多次投票和死人投票](/content/gnews/24/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [《路德社》精选主题专栏： 面对中国的挑战，欧盟提议与美国建立新的同盟关系](/content/gnews/25/README.md)
+ ` 路德社精选`
+
+### [视频11/30/2020 珍娜·艾丽丝: 州立法机构有责任确保不会对虚假结果予以认证](/content/gnews/26/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频11/30/2020 朱利安尼市长: 不要忍气吞声, 不要被吓倒, 如果你能拯救美国的选举权, 就算你失去了政治生涯也是值得的](/content/gnews/27/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【香港要闻】有线电视员工集体辞职 一个时代的终结【追踪报告】](/content/gnews/28/README.md)
+ ` GM42`
+
+### [视频11/30/2020 朱利安尼市长: 当民主党大幅落后的时候, 他们用邮寄选票作为后备方案](/content/gnews/29/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频11/30/2020 朱利安尼市长: 我们已被警告了20年, 邮寄投票有欺诈风险](/content/gnews/30/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频11/30/2020 Jenna: 州立法机构需要收回他们对代表的选择权, 并选择那些真正被人民所喜欢的候选人](/content/gnews/31/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [又称「病毒源头在印度」中共成甩锅专业户](/content/gnews/32/README.md)
+ ` GM77`
+
+### [视频11/30/2020 永煤违约冲击政治‘刚兑’游戏规则](/content/gnews/33/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频3/20/2014 美国大选可以被几行计算机黑客代码而窃取](/content/gnews/34/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [马化腾内部发文：正直是 腾讯一路走来的基石](/content/gnews/35/README.md)
+ ` GM77`
+
+### [刘特佐相关事件的浮出水面](/content/gnews/36/README.md)
+ ` GM77`
+
+### [视频11/30/2020 澳洲总理对中共怒了, 这就是中共一贯的流氓嘴脸, 不但以假治国, 还要以假治世界](/content/gnews/37/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [12/02/2020财经快讯: 中共国各地楼市政策密集出台, 小米再融资, 股价却大跌](/content/gnews/38/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [《路德社》精选主题专栏：以假乱心，以假攻澳：中共假虚拟图片攻击澳大利亚](/content/gnews/39/README.md)
+ ` 路德社精选`
+
+### [中共威胁要毁掉美国的圣诞节](/content/gnews/40/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [《路德社》每日简报早间版 2020.12.01&#8211;NewYork Time](/content/gnews/41/README.md)
+ ` 路德社精选`
+
+### [11月27日郭先生GTV直播摘要-英喜出品](/content/gnews/42/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [《路德社》每日简报2020.11.30晚间版](/content/gnews/43/README.md)
+ ` 路德社精选`
+
+### [《路德社》每日简报早间版 2020.11.28&#8211;NewYork Time](/content/gnews/44/README.md)
+ ` 路德社精选`
+
+### [11月26日郭先生GTV直播精要-英喜出品](/content/gnews/45/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [《路德社》每日简报晚间版2020.11.28&#8211;NewYork Time](/content/gnews/46/README.md)
+ ` 路德社精选`
+
+### [305-306疫情直播-短视频](/content/gnews/47/README.md)
+ ` GM62`
+
+### [中共指鹿为马，欲以“战争暴行”恶名向澳洲发难](/content/gnews/48/README.md)
+ ` 秘密翻译组G-Translators`
 
