@@ -1,27 +1,89 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】沼泽太深!特朗普法律团队回击巴尔司法部长有关未发现广泛选举欺诈的声明
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/608911/)
+## 【深度报道】多米尼操控全球23亿张选票, 中共注资4亿
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/609356/)
 
-**作者:纽约香草山写作组 立文** 审核：悟空
+作者：Giselle
+素材：文泓
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02034226/Picture68.png)图片来源：[https://xw.qq.com/cmsid/20201113A03DR300](https://xw.qq.com/cmsid/20201113A03DR300)
+BIOMETRIC 2014年11月28日曾发表一篇题为《Smartmatic与英国领主分拆新的母公司SGO》的文章。文章指出，多米尼投票软件 Smartmatic公司成立于2000年，它使世界各地的电子投票选举得以实现，从而确保整个过程中选举解决方案的完全、完整性。通过其自身开发的软件技术，Smartmatic参加了全球超过3500场选举，在五大洲进行了登记，并计数了超过23亿张选票。
+
+## **菲律宾**
+
+2018年10月27日发表在《马尼拉时报》上的两篇报道，揭露了Smartmatic曾经修改2016年菲律宾副总统选举的结果。Smartmatic技术负责人Marlon Garcia根据技术人员Mauricio Herrera的建议，对选举系统公开服务器的脚本进行了更改后，本来领先一百多万张选票的马科斯（Marcos）在副总统的选举中，选票增幅突然开始以一种规律的方式减少，最后输给了另一位候选人莱尼·罗布雷多（Loni Robredo）。
+
+## **德国**
+
+2017年，网络安全组织 CCC对德国大选所要使用的选举制表系统进行分析，发现投票软件存在高危漏洞，允许黑客任意篡改投票总数。
+
+CCC 发现，这套投票系统存在一连串严重的缺陷，从更新服务器到软件本身，再到选举结果的出口，均允许黑客展开新一轮网络攻击活动。另外，CCC 发现自动化软件更新没有签名，并且通过 HTTP 进行不安全下载。他们还观察到用于注册投票的加密是完全可逆的，因为对称密钥在软件中被硬编码。2018年3月，德国总理默克尔利用这套投票系统，在联邦选举中，以364票赞成、315票反对、9票弃权，第四次当选为德国总理。
+
+## **西班牙**
+
+2020年1月8日，西班牙议会投票批准桑切斯出任首相……桑切斯领导的中左翼政党工人社会党与左翼政党“我们能”组建联合政府，而多米尼投票系统的数据中心，正是西班牙的Scytl公司。
+
+## **委内瑞拉**
+
+2020年3月，委内瑞拉使用了多米尼投票系统，选举结束之后，一场莫名其妙的大火烧掉了5万台投票机和582台电脑，所有可能存在的证据全部烟消云散。
+
+## **韩国**
+
+2020年4月15日，韩国左翼执政党在大选中取得压倒性胜利，韩国使用的也是电子投票系统，美其名曰：区块链投票系统……然而这套投票系统采用的却是中共华为的通信设备。
+
+据《News week》报道，东亚研究中心指出，华为生产的投票机与计算机硬件、软件，以及信息网络通信设备被篡改，用于通讯投票和提早投票的QR code也有问题。操作投票机所需的指令是“能够透过QR code从外部将其发送到主伺服器”。投票伺服器可以链接到中国，并从那里运行。
+
+## **其他国家**
+
+多米尼投票系统不止是用于以上国家，除了美国，澳大利亚、厄瓜多尔、挪威、瑞士等国家也都采用过这款投票系统，并且发现Scytl 软件存在后门，便于人为操控选票结果。
+
+这些使用多米尼投票系统的国家，选出来的国家领导人，都有两个共同的特点：亲共、左翼。
+
+据一份美国证券交易委员会（SEC）备案文件的调查显示，拥有多米尼（Dominion）投票系统的公司，在距离大选仅一个月的时间里，从一家瑞士银行获得了4亿美元的注资，该银行与中共国政府有密切联系。
+
+由奥斯丁安全和调查公司（Austin Security and Investigation Solutions）进行的这项调查，曝光了斯台普街资本（Staple Street Capital) 2018年收购了多米尼投票系统。
+
+多米尼投票系统已经在美国28个州投入使用，除了在选举之夜将选票转给拜登，还删除了川普数百万张选票。
+
+这份调查指出，2020年10月8日，斯台普街资本提交美国证券交易委员会（SEC）申请发行证券，发行金额为4亿美元。证券销售补偿接受方为瑞银证券（“UBS Securities）。2014年12月该行收到了2亿美元的付款。
+
+瑞银证券是一家瑞士投资银行，该行拥有中国投资银行瑞银证券有限公司24.99％的股份。报告说：“瑞银证券有限公司(UBS Securities Co LTD ）)其余75％归中共国政府所有。”
+
+## **瑞银证券所有者如下：**
+
+- 北京国祥（33％）
+- 瑞银（USB）（24.99％）
+- 广东交通集团[zh]（14.01％）
+- 中国国电（14％）
+- 中粮集团（14％）
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01230817/Sara.jpg)
-**据福克斯知名记者SARA CARTER 2020年12 月1日报道，巴尔部长12月1日今日对Associated  Press （联合新闻）表示说：司法部经过调查未有发现会最终改变2020大选结果的广泛性选民欺诈行为，这显然与特朗普总统及其法律团队正在调查发现的大量选举欺诈大相径庭。**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01230741/rudy1.jpg)
-**纽约前市长朱利安尼，作为这次总统律师团队的领头人，有力回击了巴尔的这个声明。他说：“恕我直言，部长，司法部还没有任何调查的迹象。我们已经收集了至少六个州非法投票的充分证据，他们没有对这些证据进行审查。我们有许多证人宣誓证明他们看到与选民欺诈有关的犯罪行为。据我们所知，没有一个人被司法部询问过。司法部也没有对任何投票机进行审计，也没有动用他们的传票力量来确定真相”。**
+除瑞银（USB）外，瑞银证券（UBS Securities Co LTD ）的其他四名所有者均为中共先锋集团公司。
 
-**朱利安尼继续说道：“尽管如此，我们将继续通过司法系统和州立法机构追求真相，并继续朝着宪法规定前进，确保每一张合法的选票都被计算在内，每一张非法的选票都不被计算在内。”**
+北京国祥是国有资产。
 
-**评：巴尔部长自大选以来，被特朗普责备不作为，消失了好几周，今天终于显出原形！白宫沼泽地太深了**!
+广东交通集团受益者100％是广东省政府。
 
-**信息来源：https://saraacarter.com/trump-legal-team-responds-to-ag-barrs-statement-to-ap-that-he-found-no-widespread-election-fraud/**
+中国国电是国务院国资委管理的国有企业.
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+中粮集团是在国资委直接监督下的国有企业。
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+国资委国务院国有资产监督管理委员会是国务院直属的中华人民共和国专门委员会。
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29231938/logo-3-1-1.jpg)
-0
+此外，据《国家脉冲》报道，最近几周，多米尼投票系统与中共国政府之间还建立了其它联系，该公司信息技术核心基础架构经理安迪·黄（Andy Huang）此前曾在中国电信工作，中国电信由“中共国政府全权运营”。
+
+**相关链接：**
+
+
+
+> [Dominion投票系统公司大选前从与中共国政府有关联的瑞士银行获得4亿美元注资](https://gnews.org/zh-hans/608086/)
+
+
+
+- [https://www.biometricupdate.com/201411/smartmatic-spins-off-new-parent-company-sgo-with-british-lord](https://www.biometricupdate.com/201411/smartmatic-spins-off-new-parent-company-sgo-with-british-lord)
+- [https://summit.news/2020/12/01/firm-that-owns-dominion-voting-systems-received-400-million-from-swiss-bank-with-connection-to-chinese-government-before-election/](https://summit.news/2020/12/01/firm-that-owns-dominion-voting-systems-received-400-million-from-swiss-bank-with-connection-to-chinese-government-before-election/)
+
+
+(文章内容仅代表作者观点)
+
+5+

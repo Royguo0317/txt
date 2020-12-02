@@ -1,31 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统发推：终结230条款，将纳入国防授权法案（NDAA）夺回美国，就在眼下 ！
-` 喜马拉雅凤凰农场–旧金山-金喜站` [轉載自GNews](https://gnews.org/zh-hans/609119/)
+## 【热点播报】巴尔总检察长，另一只沼泽硕鼠
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/609720/)
 
-**【突发】【快讯】川普总统於12月1日晚发推：将彻底终结230条款**，**纳入国防授权法案，掀翻大科技的保护伞 **
+作者：香草山写作组 叮咚猫 校对/发稿：飞虹
 
-推文如下：
-
-230条款是美国送给 “大科技”公司的礼物，是他们得以推卸责任的保护伞（唯独美国大科技公司們能享有这项企业福利！）这却是对我们的国家安全和选举公正性的严重威胁。如果我们允许它继续存在，我们的国家永远不会有安全和有保障。
-
-……，因此，这项非常危险和极不公平的第230条款如果没有被纳入作为《国防授权法案》（NDAA）的一部分而被完全终止，当该法案被送到漂亮的决策桌上时，我只能明确地否决该法案。
-
-夺回美国，就在眼下。谢谢大家！”
-
-”Section 230, which is a liability shielding gift from the U.S. to “Big Tech” (the only companies in America that have it – corporate welfare!), is a serious threat to our National Security & Election Integrity. Our Country can never be safe and secure if we allow it to stand…
-
-…… Therefore, if the very dangerous & unfair Section 230 is not completely terminated as part of the National Defense Authorization Act (NDAA), I will be forced to unequivocally VETO the Bill when sent to the very beautiful Resolute desk. Take back America NOW. Thank you!
-
-![](https://lh6.googleusercontent.com/f2hDMxw4KuNO1JUxJcZiThOvquB0boKRjxuvmhKmlV3bOPSGhiPUKINBgQWDCcZgqTCH_P8UIDAGzhUow0S4V7G3RmacVMJcHbqIOT4cxDbVSv2gH75dx9v1OSGAv5GyiiJp5eej)
-
-![](https://lh6.googleusercontent.com/CRNwxlkWc1vYF84JaVu4wxRRBQtbjmHVfO4tPknthU9qBNHpTOPcBW2pYZR3hDO656F7qSUlW9ADbhrxS2ffP30LB96h4TVOOLfaLXsVkq3JAKTMNJV8QeKVtFDqaUgKA7opV9lo)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29231938/logo-3-1-1.jpg)
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02061142/%E5%9B%BE%E7%89%8711-1.png)
+据GATEWAY PUNDIT12月1日报道，司法部长巴尔在接受美联社采访时表示，美国检察官和FBI探员一直在努力跟进他们收到的选举舞弊投诉和信息，但是没有发现任何会改变2020年大选结果的大范围舞弊证据。
+
+事实证明，总检察长巴尔，是另一只隐藏很深的沼泽硕鼠。
+
+针对巴尔的声明，林伍德律师发推说：
+
+合理的问题，请问AG比尔-巴尔。
+
+1. 你有没有调查投票舞弊？
+
+2. 你做了什么？
+
+3. 你发现了什么？
+
+4. 你花了多少时间？
+
+5. 是否有专家参与？
+
+6. 分析了多少台多猫腻机器？
+
+7. 采访了多少民调观察者？
+
+我们付账单，我们需要答案。
+
+然而，硕鼠会给我们答案吗？
+
+12月1日，在密歇根州听证会上，梅丽莎·卡隆作证说，她在11月5日打电话给联邦调查局，报告了许多选举欺诈事件，但联邦调查局完全无视卡隆的目击证词，从未给她回电话。
+
+梅丽莎·卡隆是多猫腻公司培训的IT承包商。她投下了许多真相炸弹，揭发了多米尼恩公司的工作人员，并揭露了选举部门通过制表机篡改选票的违法事实。她的证言使密歇根州听证会彻底炸了锅。
+
+当日还有新的选举舞弊举报人站出来作证。一位证人说，10月21日，他目睹了144,000～288,000张已完成的选票被运送到三个州。
+
+虽然选举舞弊的证据像山一样矗立在眼前，虽然所有美国人都知道发生了什么，但司法部长巴尔却选择看不见。
+
+现在我们终于知道，为什么司法部在过去四年里没有任何人被逮捕，为什么达勒姆的调查一无所获，为什么亨特·拜登硬盘会在FBI安然沉睡近一年。 联邦调查局和司法部从来没有打算逮捕任何有罪的人，他们锁定的目标只有爱国的保守派美国人。
+
+巴尔也从来没有解雇腐败的FBI局长雷； 他让达勒姆工作了一年多；尽管有明确的证据表明FBI和司法部领导的腐败和犯罪，但没有人被起诉；希拉里·克林顿销毁了她犯下的许多罪行的证据，却仍然享有自由。而像弗林将军和罗杰·斯通这样的爱国者，却在法庭上被陷害和定罪； 失去双腿和一只手臂的战争英雄布赖恩·科尔法奇被逮捕，被迫在雨中用一只手爬行，把自己拉上一辆逮捕车，依据只是腐败的纽约司法部办公室提出的临时指控。
+
+这就是巴尔的美国。 对掌管FBI和司法部的黑手党的罪行视而不见，只对无辜的爱国者提出指控。
+
+巴尔总检察长将作为另一个华盛顿特区的沼泽硕鼠被载入史册。
 
 
 
-编译： Bingo 寸言心， **凤凰农场**–**舊金山**-金喜站
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-4+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+0
