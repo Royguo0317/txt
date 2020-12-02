@@ -1,27 +1,89 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 对舞弊者布下的天罗地网
-` GM30` [轉載自GNews](https://gnews.org/zh-hans/610009/)
+## 《路德社》每日简报2020.11.30晚间版
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/609593/)
 
-**作者：柏熙**
+出品《路德社》 编辑：路德社精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02050357/11-30-1.jpeg)
+1130晚间要闻-NewYork Time
 
-在众多主流媒体噤声的同时，由自媒体不断爆出的官方真实新闻显示，俄亥俄州已经正式对白宫办公室发出官方的认证书，俄州的川普总统选票达到3154千，而拜登选票只有2679千。川普总统票数占比53.2%，事实上在俄州取得了完全胜利，从属俄州的18张选举人票将会投给川普总统。俄州的官方认证选举结果是2020年美国大选中第一个开始公布的合法的选举结果认证州。
+1130 Evening News-NewYork Time
 
-事实上，在大游行中就有充分的民调显示，大量的黑人支持川普。上周的民调又再度显示，美国全国有12%的黑人支持川普，这占有美国全国黑人人口的75%以上。拜登等作弊者的底裤再次被扒光。他们在四年前的大选中就低估了川普总统的支持率，而2020年大选中再次低估了川普总统的民意支持。这也与沼泽们沆瀣一气主流媒体一贯的假新闻洗脑有关，洗脑时间一久，自己也完全相信了。四年前略逊的作弊力度，虽然能为希拉里克林顿挽回颜面，但最终却输了大选，该次宣战失利对于民主党的当权派（Establishment，被中共译作“建制派”混淆视听）不啻于巨大的打击。
+**宾州立法机构正式决议，要求州务卿撤回大选认证**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02072216/115364968_wisconsin_vote.jpg)
+The PA Legislature has formally resolved to ask the Secretary of State to withdraw the election certification
 
-面对一定会出现的2020大选舞弊，川普总统早就有准备，在2018年川普总统签署了一项行政令，该行政令中描述：“如果有人参与大选舞弊，并且这个参选人的执政过渡团队又接受了联邦总务署的联邦款项，那么，参与本次过渡行为的人都是舞弊案的同谋。”本法案精准的预测了2020年美国大选拜登团队将会做的事情，拜登团队早就要求联邦总务署进行交接仪式、并且提供款项，在联邦总务署很有可能拒绝的前提下，拜登对美联邦总务署的Emily Murphy茉菲女士进行骚扰、威胁和虐待，总务署的茉菲女士最终含泪写信通知拜登和川普，开始移交权力。同时茉菲女士在信中指出原因，民主党甚至威胁要杀掉她的孩子和狗。按照产普总统在2018年签署的这项行政令，民主党所有参与本次移交权力的人，均视作拜登为了走向权力巅峰而舞弊的同谋、共犯。这项行政令也是川普总统期待伪过渡团队中的同谋共犯们，可以作为污点证人，指证幕后的沼泽，以期推进排干沼泽的进程。
+该决议称，州行政和司法部门篡夺了美国宪法赋予立法机构的制定选举规则的权力；敦促州务卿撤回对总统选举结果的过早认证，并推迟其他选举的认证；宣布2020年大选结果是有争议的。
 
-根据美国总务署GSA的法律文件，拜登已经向总务署要求了过渡期间所需要的1000万美金，拜登明知道自己已经犯罪，但还在使用这1000万美金。因此拜登已经至少坐实了以下罪名：盗窃联邦资金罪、选举舞弊、欺诈胁迫。川普总统在2018年的这项行政令具有神奇的预判能力，这是美国国内致力于排干沼泽的精英们的智力结晶。已经撒下天罗地网，就等拜登、奥巴马去钻。四天前美国国防部特种部队在与CIA强夺德国服务器的关键一战中，取得了辉煌战果，最终3个服务器全部获得并且数据完整的恢复，已经拿到了民主党在本次大选中作弊的核心证据。下一步，川普团队需要解决的问题就是如何快速调查沼泽情报，补充完整沼泽列表，并且进一步调查舞弊相关的证据。与疫情并列同时作为两条排干沼泽的关键线索，舞弊在前、疫情在后，约在2022年就可以整备完善，取得美国国内排干沼泽的阶段性胜利。
+The resolution stated that the executive and judicial departments of the state usurped the power granted to the legislature by the U.S. Constitution to make election rules; urged the Secretary of State to withdraw the premature certification of the presidential election results and to delay the certification of other elections; and then declared the results of the 2020 election  to be controversial.
 
-自媒体中还流传这样一则新闻：贝拉克奥巴马已经被捕。这则新闻来自于国家安全助理总检察长德摩斯、美国夏威夷地区检察官普莱斯、联邦调查局艾伦科勒、米阑等。奥巴马的推特最终更新锁定在11月25日，可以想见，奥巴马幕后的沼泽们已经不能再等了，他们已经完全坐不住了，随时准备杀人灭口。希拉里、拜登、奥巴马已经都在其列。拜登当然不甘心有这样的结局，他通过川普总统的好朋友参议院的Mitch McConnell麦克康耐尔向川普总统表示，如果舞弊的案件将进展下去，拜登就可以主动退选，让川普总统成功连任。拜登在危局中使用的危机公关一定会无济于事，因为拜登的舞弊案件已经全线溃败，此时还想全身而退，完全是痴心妄想。幕后的沼泽们，已经完全控制了希拉里、拜登、奥巴马的人身，他们现在只是前台表演的小丑，幕后的大佬们才是本次排干华盛顿沼泽的关键。
+**宾州行政和司法部门如何篡权更改选举规则？**
 
-因此，美国当局会在法律权限内，迅速推进事情发展，迅速逮捕希拉里、奥巴马、拜登，这是排干沼泽的关键进程。目前战局已经进入抢时间的关键时刻，沼泽们随时可能会对希拉里等人下杀手灭口，以保全他们自己的地位，如果美国当局慢了一步，也许就会失去快速排干沼泽的良机。因此，美国当局要快速行动，先讲希拉里、奥巴马、拜登等人通过逮捕的手段进行保护起来，并且24小时全方位的监控以防止被幕后沼泽灭口。然后他们三人会慢慢讲所知道的沼泽情况一口一口咬出来，沼泽们才真正会恐惧、战栗。
+How did the PA executive and judicial departments usurp the power to change election rules?
 
-排干沼泽将会经历一个漫长的过程，但前期的铺垫工作尤为重要。川普总统在连任后，首要考虑的问题就是将排干沼泽的大方向用多重法案的方法固定住，并且形成民意与美国共和体制的共识，在民主思想深入人心的美国，民意在看到事情真相后，会在排干沼泽的方向上选择更合适的川普精神的继承人。事实上，排干沼泽至少要有20年的时间。中共虽然作为美国沼泽最重要的一部分，但其已经是几近瘫痪、强弩之末。在川普总统排干沼泽的过程前期，中共就已经无法支撑其庞大的、反人类、效率低下的政权了。也就是说，中共在川普总统排干沼泽的前期，就会因此灭亡。华人中的正义力量不需要等待太久，就能看到初升的朝阳。
+9月17日，宾州最高法院非法且单方面地延长了接受邮寄选票的最后期限，规定没有邮戳的邮寄选票可被视为及时选票，并允许接受签名未经核实的选票。
 
-（文章内容仅代表作者观点）
+On Sep 17, the PA Supreme Court illegally and unilaterally extended the deadline of mailed-in votes, stipulating that mailed-in votes without postmarks could be regarded as timely votes, and accepting votes with unverified signatures.
+
+10月23日，宾州最高法院根据州务卿的请求，裁定邮寄选票上的签名不需要经过验证。
+
+On Oct 23, on request of the Secretary of State, the PA Supreme Court ruled that the signatures on the mailed-in votes could not to be verified.
+
+11月2日，州务卿鼓励某些县在发现邮寄选票有缺陷后，通知政党和邮寄选民的候选人代表。
+
+On Nov 2, the Secretary of State encouraged some counties to notify political parties and candidate representatives of mailed voters when they discover flaws on mailed-in votes.
+
+**州选举结果是如何认证的？**
+
+How are state election results certified?
+
+州选举结果必须由政府和立法机构同时认证才有效，州政府认定是由州务卿具体负责认证、然后交州长签字确认。如果双方意见不一致，要么打官司到联邦法院进行判决，要么该州放弃选举认证。如果该州放弃认证，川普和拜登都不能获得本州的选举人票。
+
+State election results must be certified by the government and legislature at the same time. The Secretary of State is responsible for the certification and then submits it to the Governor for signature at the state government. Shall there be any disagreement, either a lawsuit is filed in a federal court, or the state abandons the election certification. If it is the latter one, neither Trump nor Biden can get the state’s electoral votes.
+
+**川普法律团队的四线作战**
+
+The four-front battles of Trump’s legal team
+
+这四条战线的法律战，只要有一处获胜，川普就获胜：起诉作废无法监票的选票，宾州翻盘；起诉作废所有州邮寄选票；起诉的Dominion选举系统造假；秘密战线的刑事犯罪起诉。
+
+Trump will win if one of the four-front legal battles wins: prosecuting to void  uncountable votes with PA’s flipping; prosecuting to void all state mailed-in votes; prosecuting Dominion election system fraud; prosecuting the criminal offenses on secret front.
+
+**乔治亚州对外州人员在本州的投票进行调查**
+
+GA investigates votes casted by out-of-staters
+
+该州已经对一个名为“美国投票”的组织进行调查，该组织向1994年以来从未在该州居住过的人发送邮寄选票。在该州，非本州居民的非法投票属于重罪。该调查，为下一步该州不认证选举投票结果奠定了基础。
+
+The state has started investigation on an organization called “America Votes”, who sent mailed-in votes to people that have never lived in the state since 1994. It is a felony to vote illegally by non-residents of the state there. The investigation has laid the foundation for the decertification election results of the state.
+
+**刘特佐身份大揭秘**
+
+Joe Low’s Identity Revealed
+
+刘特佐养母吴玉幼亲口说，刘特佐是孟建柱在文革时期，与情人（和其他男人）的私生女所生的儿子。孟建柱与其情人也生了一个女儿。
+
+孟建柱因为其隐藏在东南亚的金钱，还没有全部被收回，所以暂未被抓捕，目前处于监视居住的状态。
+
+Joe Low, also known as Liu Tezuo’s adoptive mother, Wu Yuyou, said that Liu Tezuo was the son of Meng Jianzhu and his lover’s illegitimate daughter during the Cultural Revolution of CCP. Meng also had a daughter with this lover.
+
+Meng is now under residential surveillance without being arrested, as his hidden money in Southeast Asia has not been fully recovered.
+
+**马六甲皇京港超级工程被叫停**
+
+The Melaka Gateway super project halted
+
+这个号称要取代新加坡港的、由中共投资的金额高达100亿美元的深水港码头工程，因为涉及中共军事用途，一直备受争议。在实际投资金额超过20亿美元后，近期被马六甲州政府以未能如期完成填海作业为由正式叫停。
+
+The $10 billion deep-water gateway project, which was claimed to replace the Port of Singapore, has been controversial because of its military use by the CCP. After the actual investment amount exceeded $2 billion, the project was recently halted by the Melacca state government for failing to complete the refilling operation as scheduled.
+
+文案：《路德社》文编组
+
+翻译：《路德社》翻译组
+
+审核校对：玫瑰天空
+
+上传排版：青葫芦娃
 
 0

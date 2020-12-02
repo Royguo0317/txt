@@ -1,71 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德社重磅：川普总统真正大行动即将开始！
-` GM31` [轉載自GNews](https://gnews.org/zh-hans/609426/)
+## 【热点播报】巴尔总检察长，另一只沼泽硕鼠
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/609720/)
 
-《路德时评》2020年12月1日晚间节目重磅解读“弗林将军、林伍德律师以及空军中呼吁川普总统宣布戒严令”，以及川普总统即将废除《通信规范法案》（Communications Decency Act）第230条，主要内容如下：
+作者：香草山写作组 叮咚猫 校对/发稿：飞虹
 
-
-
-**一、弗林将军、林伍德律师以及空军中呼吁川普总统宣布戒严令**
-
-林·伍德律师12月1日发推[1]：早上好。我国正走向内战，这是一场由第三方坏蛋为其利益，而非为了“我们的人民”所发动的战争。共产主义中国正采取邪恶行动来夺走我们的自由。川普总统（@realDonaldTrump）应该宣布戒严[2]。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29231938/logo-3-1-1.jpg)
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02061142/%E5%9B%BE%E7%89%8711-1.png)
+据GATEWAY PUNDIT12月1日报道，司法部长巴尔在接受美联社采访时表示，美国检察官和FBI探员一直在努力跟进他们收到的选举舞弊投诉和信息，但是没有发现任何会改变2020年大选结果的大范围舞弊证据。
 
-> Good morning.
-> 
-> Our country is headed to civil war. A war created by 3rd party bad actors for their benefit – not for We The People.
-> 
-> Communist China is leading the nefarious efforts to take away our freedom.[@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) should declare martial law.[https://t.co/h3Ym5ytMYt](https://t.co/h3Ym5ytMYt)
-> — Lin Wood (@LLinWood) [December 1, 2020](https://twitter.com/LLinWood/status/1333788036815937537?ref_src=twsrc%5Etfw)
+事实证明，总检察长巴尔，是另一只隐藏很深的沼泽硕鼠。
+
+针对巴尔的声明，林伍德律师发推说：
+
+合理的问题，请问AG比尔-巴尔。
+
+1. 你有没有调查投票舞弊？
+
+2. 你做了什么？
+
+3. 你发现了什么？
+
+4. 你花了多少时间？
+
+5. 是否有专家参与？
+
+6. 分析了多少台多猫腻机器？
+
+7. 采访了多少民调观察者？
+
+我们付账单，我们需要答案。
+
+然而，硕鼠会给我们答案吗？
+
+12月1日，在密歇根州听证会上，梅丽莎·卡隆作证说，她在11月5日打电话给联邦调查局，报告了许多选举欺诈事件，但联邦调查局完全无视卡隆的目击证词，从未给她回电话。
+
+梅丽莎·卡隆是多猫腻公司培训的IT承包商。她投下了许多真相炸弹，揭发了多米尼恩公司的工作人员，并揭露了选举部门通过制表机篡改选票的违法事实。她的证言使密歇根州听证会彻底炸了锅。
+
+当日还有新的选举舞弊举报人站出来作证。一位证人说，10月21日，他目睹了144,000～288,000张已完成的选票被运送到三个州。
+
+虽然选举舞弊的证据像山一样矗立在眼前，虽然所有美国人都知道发生了什么，但司法部长巴尔却选择看不见。
+
+现在我们终于知道，为什么司法部在过去四年里没有任何人被逮捕，为什么达勒姆的调查一无所获，为什么亨特·拜登硬盘会在FBI安然沉睡近一年。 联邦调查局和司法部从来没有打算逮捕任何有罪的人，他们锁定的目标只有爱国的保守派美国人。
+
+巴尔也从来没有解雇腐败的FBI局长雷； 他让达勒姆工作了一年多；尽管有明确的证据表明FBI和司法部领导的腐败和犯罪，但没有人被起诉；希拉里·克林顿销毁了她犯下的许多罪行的证据，却仍然享有自由。而像弗林将军和罗杰·斯通这样的爱国者，却在法庭上被陷害和定罪； 失去双腿和一只手臂的战争英雄布赖恩·科尔法奇被逮捕，被迫在雨中用一只手爬行，把自己拉上一辆逮捕车，依据只是腐败的纽约司法部办公室提出的临时指控。
+
+这就是巴尔的美国。 对掌管FBI和司法部的黑手党的罪行视而不见，只对无辜的爱国者提出指控。
+
+巴尔总检察长将作为另一个华盛顿特区的沼泽硕鼠被载入史册。
 
 
 
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02041709/%E5%9B%BE%E7%89%87-4.png)](https://wethepeopleconvention.org/articles/WTPC-Urges-Limited-Martial-Law)图片地址：https://wethepeopleconvention.org/articles/WTPC-Urges-Limited-Martial-Law 
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-1. 林·伍德律师推文内容是来自名为“我们的人民”网站，他们在《华盛顿时报》（法制基金董事比尔·格茨所在的报纸）打出的广告[2]。
-2. 这则广告就是呼吁川普总统宣布戒严令，林·伍德律师转推并@多位著名公众人物，这就是在为川普总统颁布戒严令做舆论铺垫；
-3. 戒严令的核心就是终止人身保护权，执法机构可直接采取逮捕行动，美国《宪法》明确规定在叛乱或入侵之下，人身保护令就可以暂缓，林肯总统就曾发过戒严令；
-4. 当年美国内战，林肯在发布戒严令后就下令关闭数百家反对他的北方报纸媒体，并抓捕其所有者和编辑，还下令逮捕煽动分裂的官员和平民，甚至还逮捕判决该戒严令违宪的大法官；
-5. 该命令一经发布，美国就将进入军管状态，川普总统只需要依据FISA法案及其他情报信息就可判定中共病毒疫情和干扰美国大选属于外国势力入侵；
-6. 路德社曾在节目中提及川普总统此时一定要跳出规则，使用林肯总统时代曾使用的戒严令来保护美国；
-7. 川普总统用国家安全总统令就可以调动最高级别的情报调查，叛国者应该接受逮捕和审判，并由军事法庭进行裁决；
-8. 中共现在发起的对美超限战是从网络、司法、病毒、金融等多维度展开攻击，美国普通官员完全无法认识到中共的战争计划，因此，只有上升到军事曾面才能积极应对；
-9. 11月3日大选之后发起的法律战让美国各大利益集团彻底看清司法系统已彻底腐败，再加上情报信息的验证，美国定海神针的力量彻底觉醒，誓要消灭中共。
-
-
-**二、重磅：川普总统将废除****CDA 230****条款**
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02044101/Trump-twitter-230-1-1.png)A tweet by US president Donald Trump is seen being flagged as inciting violence by Twitter in this photo illustration on an Apple iPhone in Warsaw, Poland on May 29, 2020.(Photo by Jaap Arriens / Sipa USA)
-
-川普总统12月1日发推[3]：*“230条款是美国给“大型科技公司”（美国唯一拥有该条款的公司——公司福利！） 的免责礼物，它对我们的国家安全和选举公正性构成严重威胁。如果我们允许它继续存在，我们的国家就永远不会安全。”*
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02042103/%E5%9B%BE%E7%89%87-6.png)图片地址：https://twitter.com/realDonaldTrump/status/1333965375193624578
-
-
-
-1. 这条推特验证路德社此前爆料；川普总统将废除 CDA 230条款；
-2. 因科技公司受到CDA 230条款保护而危害国家安全，川普总统极可能依据《国防授权法案》赋予的权利彻底废除该法案；
-3. 如果CDA 230条款一旦被废除，那么报导假新闻的左媒和控制言论的特推等科技公司将遭受灭顶之灾；
-4. 路德社还预言：腐败的司法部检察官、索罗斯、希拉里以及奥巴马未来一定会被抓捕，待未来继续验证这一起。
-
-
-川普总统的真正大行动即将开始！请大家继续支持爆料革命，宣传爆料革命！
-
-参考文章：
-
-[1] [https://twitter.com/LLinWood/status/1333788036815937537](https://twitter.com/LLinWood/status/1333788036815937537)
-
-[2] [https://wethepeopleconvention.org/articles/WTPC-Urges-Limited-Martial-Law](https://wethepeopleconvention.org/articles/WTPC-Urges-Limited-Martial-Law)
-
-[3] [https://twitter.com/realDonaldTrump/status/1333965375193624578](https://twitter.com/realDonaldTrump/status/1333965375193624578)
-
-视频来源：[https://www.youtube.com/watch?v=o3xsQuxfV\_A](https://www.youtube.com/watch?v=o3xsQuxfV_A)
-
-*文章撰写：【重生】    编辑：【GM31】*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22111053/VOG-Rose-Garden-Team.png)
-6+
+0
