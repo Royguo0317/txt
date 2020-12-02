@@ -1,28 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 彼得•纳瓦罗转推，证据显示中共收购了多米尼投票系统
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/607788/)
+## 川普法律团队就司法部长巴尔对选民舞弊的评论发表声明
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/608166/)
 
-- 编辑：Victor Torres、文顺
-
-
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-西班牙2020年12月1日电/西喜社/——美国证券交易委员会一份文件显示：多米尼投票系统的母公司从一家瑞士投资银行获得了4亿美元，中共政府拥有该银行75％的股份。
-
-据“奥斯汀安全和调查解决方案”提供的报告说:“瑞银证券是一家瑞士投资银行，它拥有中国投资银行瑞银证券有限公司24.99％的股份。瑞银证券有限公司的其余75％股份归中国政府所有。”
-
-该消息由Disclose.tv在推特发布，皮特·纳瓦罗（Peter Navarro）转发该推文并连呼好奇。
+- 编辑：Victor Torres
+- 翻译：Ranting
 
 
+川普普法律团队今天就司法部长巴尔对选民舞弊的评论发表声明如下:
 
-> Curious and curiouser. [https://t.co/9Zb75yzFAR](https://t.co/9Zb75yzFAR)
-> — Peter Navarro (@RealPNavarro) [December 1, 2020](https://twitter.com/RealPNavarro/status/1333825972550963203?ref_src=twsrc%5Etfw)
+“恕我直言，总检察长，司法部并没有进行任何形式的调查。我们已经收集了至少六个州非法投票的大量证据，但他们并没有对这些证据进行审查。我们有许多目击者宣誓他们看到与选民欺诈有关的犯罪行为。据我们所知，没有一个人被司法部约谈过。司法部也没有审核过任何投票机器，也没有使用他们的传唤权来确定真相。
+
+“尽管如此，我们将继续通过司法系统和州立法机构追求真相，并继续朝着宪法的授权前进，确保每一张合法的选票都被计算在内，每一张非法的选票都不被计算在内。同样，恕我直言，总检察长的意见似乎是在不了解或不调查大量违规行为和系统性欺诈证据的情况下提出的。”
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221622/PHOTO-2020-11-26-13-19-21.jpg)
+> DOJ too busy investigating Page, Strok, Brennan, Clapper, and Comey to read thousands of affadavits and look at numerous statistical anomalies/impossibilities. It's like a Samuel Beckett play waiting for Bull Durham. [https://t.co/rc5h2vnfXF](https://t.co/rc5h2vnfXF)
+> — Peter Navarro (@RealPNavarro) [December 1, 2020](https://twitter.com/RealPNavarro/status/1333874246649589760?ref_src=twsrc%5Etfw)
+
+
+
+彼得纳瓦罗转发了这篇声明。
+
+此前，巴尔刚刚发表讲话称，司法部尚未发现广泛的选民欺诈证据。
+
+另据推特网传消息，司法部长巴尔在周二下午来到了白宫。据推测，川普对他的这一表态非常不满，对其进行约谈，并依据谈话结果决定是否将巴尔撤换。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 

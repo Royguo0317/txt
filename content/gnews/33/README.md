@@ -1,31 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 朱利安尼对亚利桑那州议员: 如果你能拯救美国的选举权，你的政治生涯就是失去也值得!
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/608043/)
+## 12/01日康州农场前沿观察: 中共党员，你们小心了 !
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/608396/)
 
-作者：[Cristina Laila](https://www.thegatewaypundit.com/author/cristina/) 
-发布时间：2020年11月30日11:53分 
-翻译：康州盘古农场 – Bruce (文白)
-校对：康州盘古农场 – 烟波浩淼
-审核：康州盘古农场 – V
-
-朱利安尼（Rudy Giuliani）对亚利桑那州议员说：”如果你能拯救美国的投票权，你的政治生涯就是失去也值得”，人群中爆发出欢呼声。
-
-川普总统的私人律师鲁迪·朱利安尼和川普竞选活动的高级法律顾问詹娜·埃利斯（Jenna Ellis）周一出现在亚利桑那州立法者的公开听证会上。
-
-民主党人在媒体的叛徒帮助下，利用各种形式的选民舞弊，偷走了亚利桑那州（总统选举）。
-
-川普的法律团队认为，民主党人将邮寄选票作为落后太多时的备用票。
-
-鲁迪·朱利安尼在周一的开场辩论中火力全开。
-
-当鲁迪·朱利安尼向州议员发出号召时，人群爆发出欢呼声。”我要请你们去战斗…… 如果你们能拯救美国的选举权，你们的政治生涯是值得失去的。”
-
-他还说：”在我们历史上的某些时候，某些男人和女人挺身而出，失去了他们的政治生涯，给我们带来了我们所拥有的权利。”
-
-**原文链接**：[https://www.thegatewaypundit.com/2020/11/crowd-erupts-cheers-giuliani-tells-az-state-lawmakers-political-career-worth-losing-can-save-right-vote-america-video/](https://www.thegatewaypundit.com/2020/11/crowd-erupts-cheers-giuliani-tells-az-state-lawmakers-political-career-worth-losing-can-save-right-vote-america-video/)
+主播：海媚
+撰文：1984文姝
+视频：Buzz文珂
+审核：Truemanman
 
 
+
+11月30日《中国日报》报道，截至11月11日，中共企业中远海运集团、上海振华重工公司共有21艘轮船在美港口停靠时被美执法部门和人员突击检查。其中，有16艘船只在10月份的25天内被查，平均不到2天就有一艘中方船只被查。据称，美方详细盘问中共党员入党原因，询问船员与中国政府关系、中国防疫现状、对美国总统选举候选人看法等。此外， 9月以来，中方航空公司共有16架次赴美航班机组人员尤其是党员身份者被美执法部门盘查。同日，中共发言人华春莹叫嚣“中方必将采取反制措施。”
+中共党员，你们小心了！面对世界力量的联手围剿，中共继续绑架十四亿中国人民，叫嚣这是美国“反华势力对华全面遏制打压”， “是麦卡锡主义死灰复燃”。
+被美国右翼团体评为：“了不起的勇敢的灵魂，伟大的爱国者（A great courageous soul,a great American patriot）”的麥卡錫主義（McCarthyism），誕生並興盛於美國第二次紅色恐慌時期（1940年代末至1950年代），它源自美國共和黨參議員約瑟夫·雷蒙德·麥卡錫。麦卡锡主义以反对共产党为己任，开展了大量反共运动，造成了广泛的社会和文化影响。如今中共挑起超限战，企图颠覆美国政权，伪造照片污蔑澳洲士兵，武装搅扰台湾……在世界范围挑起事端，这一切正是黔驴技穷的中共即将覆亡的征兆。
+
+[素材来源](https://newssearch.chinadaily.com.cn/cn/search?query=%E7%BE%8E%E5%9B%BD%E6%9C%89%E5%85%B3%E9%83%A8%E9%97%A8%E6%89%A7%E6%B3%95%E4%BA%BA%E5%91%98%E5%A4%9A%E6%AC%A1%E7%AA%81%E5%87%BB%E6%A3%80%E6%9F%A5%E4%B8%AD%E6%96%B9%E8%88%AA%E8%BF%90%E4%BC%81%E4%B8%9A%E4%BA%BA%E5%91%98%E7%9A%84%E5%85%B1%E4%BA%A7%E5%85%9A%E5%91%98%E8%BA%AB%E4%BB%BD)：
+
+[http://www.xinhuanet.com/world/2020-11/30/c\_1126804307.htm](http://www.xinhuanet.com/world/2020-11/30/c_1126804307.htm)
 
 0

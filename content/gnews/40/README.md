@@ -1,68 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CNN承认川普有 &#8220;法律和宪法&#8221; 途径可留任
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/607903/)
+## UBS瑞银： Dominion投票系统中共所有权曝光
+` GM107` [轉載自GNews](https://gnews.org/zh-hans/608287/)
 
-*新闻来源：Zerohedge《零对冲》；作者：Tyler Durden；发布时间：November 28, 2020 /2020年11月28日*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01185940/dominion.jpg)
+一份来自美国证券交易委员会（SEC）的揭秘文件揭露了Dominion Voting Systems与中国投资者之间令人不安的财务纠葛。SEC文件由代表发行人Staple Street Capital的Hootan Yaghoobzadeh于今年10月签署。**这家私募股权公司自2018年以来一直是Dominion Voting Systems的所有者，这意味着2020年的收购将美国的选举系统归中共国所有。**美国证券交易委员会的文件详细说明了Staple Street Capital出售给中国投行瑞银证券有限责任公司（UBS Securities LLC）的情况。
 
-*翻译/简评：Victory；校对：X-Wing飞得更高；审核：海阔天空；封面设计 ：战鹰团海报突击队；Page：拱卒*
+瑞银证券于2006年在中国首都北京成立。这家公司在中共政府的直接援助下变得庞大。**中共中央政府拥有的国电和中粮集团是瑞银证券的大股东，在中共的直接控制下运作。**据中共官方刊物《南华早报》报道，他们所属的国有资产集团估计价值超过26万亿美元。遗憾的是，这并不是中方与Dominion投票系统的第一次暗示。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01190120/china-ubs-1024x480-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01190209/125.png)
+这笔价值4亿美元的交易，对于依赖这些公众的政治派别来说，将是毁灭性的打击，因为他们对Dominion投票系统及其结果的信任。在俄罗斯干预2016年大选的事件被追问了4年之后，这次曝光中共国参与美国投票系统的事实，打破了整个政党的公信力。财务记录是事实证据，不能轻易解释掉。对于那些质疑2020年美国总统选举结果的人来说，这份文件起到了验证作用，因为2020年的美国总统选举结果已经受到了广泛的怀疑。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01190343/Screenshot-2020-12-01-140413-768x757-1.png)
+2007年芝加哥的一场选举在计票诉讼暴露了SmartMatics之后，凸显了基于GEMS的投票系统的真实性。一家名为红杉的公司在芝加哥统计选票时，发现了大规模的混乱，不得不对所有结果进行审查。他们发现SmartMatic的结果是，红杉是SmartMatic的幌子，就像Dominion是SmartMatic的幌子一样。**这些操纵选举的工具落入中共国的手中，对每一个使用这些系统的县、州或国家都是一个巨大的风险。**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/t6ezaUdwAbdFZ/images/c365c83f-d4bc-4fab-8881-946c5d424002.jpg?asset_id=f549a0ac-7429-4f0e-a23d-165e5c0bf22e&amp;img_etag=%2214dfe0f7b26dc48cec3f74f8bf261546%22&amp;size=1024)](https://spark.adobe.com/page/t6ezaUdwAbdFZ/images/c365c83f-d4bc-4fab-8881-946c5d424002.jpg?asset_id=f549a0ac-7429-4f0e-a23d-165e5c0bf22e&amp;img_etag=%2214dfe0f7b26dc48cec3f74f8bf261546%22&amp;size=1024)封面设计 ：战鹰团海报突击队
+美国选举法禁止外国在选举过程的各个环节进行活动。关于筹款的严格规定阻止了外国对竞选活动的捐赠。這些法律旨在阻止外國人对美国政治制度的游說，并保留國內對選舉過程的控制和監督。关于在巴塞罗那和法兰克福进行海外计票的新闻严厉地提醒人们，将关键的政府职能外包是危险的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01190502/sec-ubs-1-860x1024-1.jpg)
+Dominion投票系统公司副总裁兼首席安全官Eric Coomer被拍到向私人听众承诺，川普总统不会赢得连任。这一说法来自FEC（Faith Education Commerce）创始人乔-奥特曼（Joe Oltmann），他说他渗透到了ANTIFA的一个分会，并记录了这次会面。据称，埃里克-库默（Eric Coomer）讨论了即将到来的选举，并对选举结果和他对选举的控制做出了明确的表态。**他对观众说，他已经确保川普不会获胜**。
 
-**简评：**
+**11月12日，川普总统签署了一项行政命令，针对中共恶意网络行动对美国及其人民的威胁**。该命令主要针对**中共军方为侵害美国利益而进行的金融投资**。**包括冻结资产，**并在财政部长的授权下**制裁任何参与这一活动的个人、公司或实体**。
 
-坚持不懈报道假新闻的CNN，几乎从未正面报道过川普总统的选举情况。本文提到的是CNN在大选前发布的一段视频报道。视频中预测大选中选票出现争议（即集体舞弊被发现），然后出现法律诉讼，CNN所分析的川普的获胜法律路径，也许是想给队友提醒，让拜登团队备有应对方案。但目前情势所有人都看得很清楚，地下室的拜登毫无胜算。
+各州必须证明他们的选举符合州和联邦法律，其选民才能被选举团接受。12月14日，选举团将召开会议并进行投票。第一个获得270张选举人票的候选人将获得总统职位。州一级的争议或未能满足联邦对选举人的要求，可能导致任何一位候选人未能达到270票。这种结果不大可能发生，但在美国总统选举中曾经出现过。**如果选举团未能选出胜利者，则由众议院在州级投票中作出决定。**每个州投1票，与其立法机构的党派控制权一致，这对川普总统来说是必胜的。
 
-再多说一句CNN，已经沦为媒体界的笑话。有个例子，前几天朱利安尼先生在公开场合问一个记者：你来自什么媒体。记者只回答一句：CNN。在场所有人马上哄堂大笑。一个媒体能做到这个份上，真是可悲。CNN很快会变成全世界的笑话。
+2020年总统大选的结果还没有最终确定，还得由我们的选举程序来决定。宣称获胜只是行使言论自由。如果两位候选人都宣称胜出而选择不认输，那么国家就别无选择，只能通过宪法程序进行选举，以达到一个有法可依的结果。对结果的争议还在继续，选民将于2020年12月14日召开。
 
-**原文翻译：**
-
-## 关注 ：CNN承认川普有 “法律和宪法” 途径可留任
-
-美国有线电视新闻网（CNN）的法利德-扎卡里亚（Fareed Zakaria）在大选前发布，并引起最新关注的一段视频中，解释了川普总统即使“输掉”大选也可以继续留任的 “法律和宪法 “案例。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/t6ezaUdwAbdFZ/images/885fcf07-35b9-49ce-b349-8145ae9b090c.jpg?asset_id=f049b5ad-05d6-412a-a158-110a73833e52&amp;img_etag=%22b6e39f2fd357176533fc03f7f927de6d%22&amp;size=1024)](https://spark.adobe.com/page/t6ezaUdwAbdFZ/images/885fcf07-35b9-49ce-b349-8145ae9b090c.jpg?asset_id=f049b5ad-05d6-412a-a158-110a73833e52&amp;img_etag=%22b6e39f2fd357176533fc03f7f927de6d%22&amp;size=1024)
-
-一个真正的新闻诚信时刻，扎卡里亚概述了川普如何在 “没有真正赢得选票 “的情况下保留总统职位，这对CNN来说是非常罕见的。
-
-扎卡里亚在解释该系统如何运作时说，选民由该州的民众投票决定，但这 “不是宪法义务”。
-
-随后，主持人概述了大选当天发生的具体场景，11月3日川普领先，但随后邮寄选票将结果转向了拜登，引发了一连串的质疑和诉讼。
-
-扎卡利亚说：”考虑到这种混乱，立法机构决定自己选择选举人。”然后他指出，在9个关键摇摆州中，有8个州的立法机构是共和党的。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/t6ezaUdwAbdFZ/images/6357c3d2-bf32-4cce-8698-55084b421825.jpg?asset_id=80bca355-8b85-42f3-9e20-bbe8252621b6&amp;img_etag=%22be16eb784fb5775efefaf89b0266768d%22&amp;size=2633)](https://spark.adobe.com/page/t6ezaUdwAbdFZ/images/6357c3d2-bf32-4cce-8698-55084b421825.jpg?asset_id=80bca355-8b85-42f3-9e20-bbe8252621b6&amp;img_etag=%22be16eb784fb5775efefaf89b0266768d%22&amp;size=1024)推文翻译（CNN:“也就是说川普会连任，他什么都不需要做，只要接受结果就可以，这是符合宪法的。”拜登的支持者们，这可能会让你们暗自叫苦。）
-
-
-“如果有一个或多个州认为投票是混乱的，有异常，他们可以派出他们认为合法的选举人名单，这将是共和党人。”
-
-更加混乱的是，来自同一州的民主党人也将向华盛顿派遣选举人，扎卡里亚表示，这可能是 “共和党计划的一部分”。
-
-“因为你看1月6日国会统计选民选票的时候，会有一些选举人的合法性受到挑战。”扎卡里亚解释说。
-
-这将促使国会共和党人认为，有争议的州不应被计算在内，这将使拜登无法达到270张选举人票。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/t6ezaUdwAbdFZ/images/88ac588d-51f8-4357-8cd6-a626fcfe95a0.jpg?asset_id=6d631b77-9d24-4a08-8031-500142e31d74&amp;img_etag=%22c5b8df2b5c8a6cc75557084c3ff9d1f3%22&amp;size=3101)](https://spark.adobe.com/page/t6ezaUdwAbdFZ/images/88ac588d-51f8-4357-8cd6-a626fcfe95a0.jpg?asset_id=6d631b77-9d24-4a08-8031-500142e31d74&amp;img_etag=%22c5b8df2b5c8a6cc75557084c3ff9d1f3%22&amp;size=1024)推文翻译（直接了当： 1共和党控制了关键摇摆州立法机构；2立法机构确信选举舞弊，派出自己选举人/不委派选举人；3 拜登选举人票低于270票；州众议院代表团选川普26：23获胜“所以结果是川普将会连任”）
-
-扎卡里亚说：”届时，宪法明确指示众议院投票决定总统大选，但是每个州只有一张选票。”扎卡里亚指出，这一过程将导致川普连任。
-
-“川普不需要做任何事情，只需要接受这个结果，这是符合宪法的。”扎卡里亚总结道。
-
-这段视频引起了一些拜登支持者的不安，他们急切地指出，这段视频是在选举前发布的。
-
-然而，这根本没什么不同。扎卡里亚对川普如何仍能获胜的解释仍在进展中。
-
-[原文链接](https://www.zerohedge.com/markets/watch-cnn-admits-there-are-legal-constitutional-ways-trump-stay-office?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/t6ezaUdwAbdFZ/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/t6ezaUdwAbdFZ/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/t6ezaUdwAbdFZ/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+新闻来源：REPUB
+原文链接：[https://repub.li/chinese-ownership-of-dominion-voting-systems-exposed](https://repub.li/chinese-ownership-of-dominion-voting-systems-exposed)
 
 0

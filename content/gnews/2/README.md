@@ -1,36 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普法律团队就司法部长巴尔对选民舞弊的评论发表声明
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/608166/)
+## 【重磅！】美国空军中将托马斯·麦金纳尼接受WVW电视台采访
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/608382/)
 
-- 编辑：Victor Torres
-- 翻译：Ranting
+听写/翻译: 势不可挡；PR: TCC；视频字幕：文府；
 
-
-川普普法律团队今天就司法部长巴尔对选民舞弊的评论发表声明如下:
-
-“恕我直言，总检察长，司法部并没有进行任何形式的调查。我们已经收集了至少六个州非法投票的大量证据，但他们并没有对这些证据进行审查。我们有许多目击者宣誓他们看到与选民欺诈有关的犯罪行为。据我们所知，没有一个人被司法部约谈过。司法部也没有审核过任何投票机器，也没有使用他们的传唤权来确定真相。
-
-“尽管如此，我们将继续通过司法系统和州立法机构追求真相，并继续朝着宪法的授权前进，确保每一张合法的选票都被计算在内，每一张非法的选票都不被计算在内。同样，恕我直言，总检察长的意见似乎是在不了解或不调查大量违规行为和系统性欺诈证据的情况下提出的。”
+简评/组稿编辑：Julia Win；Page：拱卒
 
 
 
-> DOJ too busy investigating Page, Strok, Brennan, Clapper, and Comey to read thousands of affadavits and look at numerous statistical anomalies/impossibilities. It's like a Samuel Beckett play waiting for Bull Durham. [https://t.co/rc5h2vnfXF](https://t.co/rc5h2vnfXF)
-> — Peter Navarro (@RealPNavarro) [December 1, 2020](https://twitter.com/RealPNavarro/status/1333874246649589760?ref_src=twsrc%5Etfw)
 
 
+**简评：**
 
-彼得纳瓦罗转发了这篇声明。
+托马斯·麦金纳尼在接受WVW电视台采访时说：川普总统必须宣布国家进入紧急状态，执行两年多前的外国势力干涉美国大选的行政命令； 总统还应该使用《暴动法》，因为一股暴动势力正在我们国家形成，看看黑命贵和安提法以及其他组织就知道； 我们的法官竟对选票舞弊提出质疑，并说证据不足，总统应该在国家紧急状态下立即逮捕这些人； 这些州都是有预先计划的，这是叛国行为，不是投票舞弊，他们正试图推翻这个政府！
 
-此前，巴尔刚刚发表讲话称，司法部尚未发现广泛的选民欺诈证据。
+今天，我们看到，躲在地下室月余的司法部长的巴尔，竟然在接受媒体采访中不顾大量证据和事实，声称：“司法部并未发现2020年美国大选中有足以推翻选举结果的舞弊证据。”
 
-另据推特网传消息，司法部长巴尔在周二下午来到了白宫。据推测，川普对他的这一表态非常不满，对其进行约谈，并依据谈话结果决定是否将巴尔撤换。
+看来川普总统在大选后首次接受媒体采访惊人指控：“司法部和FBI或涉嫌参与操纵大选结果”不是空穴来风！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+**视频：**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
+**视频翻译：**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+川普总统必须宣布国家进入紧急状态，基于已发布于2018年9月12日，两年多前的行政命令。
+
+命令明确指出当我们的选举中有外国势力介入时，总统可以宣布国家进入紧急状态。
+
+总统还应该使用《暴动法》，因为一股暴动势力正在我们国家形成，看看黑命贵和安提法以及其他组织就知道。所以总统宣布紧急状态是非常重要的。
+
+他必须像1861年的林肯总统和1942年第二次世界大战爆发时的罗斯福总统那样，暂停《人身保护令》。
+
+这些破坏民主的罪犯，加上俄罗斯、中共和伊朗当局毫无掩盖地对美国的网路战。事实上，他们对此一直是公开、不加遮掩，并引以为傲的。
+
+他们做的所有事情，以及他们雇佣的所有人员，今天我看到很多照片，有人开车来并卸下尚未折叠并放入信封的邮寄选票。这是直接印刷上去的（选票）。我们的法官竟对此提出质疑，并说证据不足。
+
+这就是为什么国家紧急令的宣布非常重要，总统应该在国家紧急状态下立即逮捕这些人。这表明这些州都是有预先计划的，这是叛国行为。所以这是叛国罪，不是投票舞弊，而是叛国罪。他们正试图推翻这个政府。
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】-点击spark adobe版
+
+[!\[\]()!\[\](https://spark.adobe.com/page/lmHhWmwyl9HTb/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/lmHhWmwyl9HTb/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

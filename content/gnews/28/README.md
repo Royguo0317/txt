@@ -1,25 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中国汽车能超越特斯拉？
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/608070/)
+## 亚利桑那州议员誓言：选举舞弊明显，拒绝将该州选举人票投给拜登
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/608399/)
 
-```
-作者: 阿娜
-校对/发稿人: Ting Guo
-```
+多伦多枫叶农场 F-35C
+校对 文锦 上传 WJ
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01202910/votefinchem.com_.jpg)图片来源： votefinchem.com
+亚利桑那州国会众议员马克-芬奇姆（Mark Finchem） (11选区)11月30日表示，拒绝将该州的选举人团选票投给乔·拜登(Joe Biden)，因为“认为有足够的重大证据表明选举存在欺诈，足以使该州的选票无效”。
 
+周一，川普总统私人律师朱利安尼和川普竞选团队的高级法律顾问艾丽丝（Jenna Ellis）出现在亚利桑那州议员的公开听证会上。听证会由众议员马克-芬奇姆主持，听证会小组中还包括部分众议院和参议院成员。川普的法律团队再次拿出了许多实锤的证据以及可信的证人，他们就Dominion投票机和其他违规行为作证，这些违规行为直指民主党的选民欺诈。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01164215/51fcbc7f-6da2-4b59-84c1-665611933b14.jpg)图片来源: *[https://www.yicai.com/news/100773246.html](https://www.yicai.com/news/100773246.html)*
+席瓦·艾雅杜拉（Shiva Ayyadurai）博士向亚利桑那州议员提供了非常有力的数据，秒杀拜登获胜的谎言。然而，在听证会举行的同时，亚利桑那州的州务卿确认了虚假的选举结果。
 
-《HKET》报纸报道说恒大公布首款电动车颜值不输给特斯拉，恒大汽车发布一组电动车新车实体图，疑似是回应国家发改委早前点名要求详细报告恒大 在各地的电动车投资和建设项目的真实情况。据内地汽车之家文章分析指出从图中多个细节来看，该车并非为量产车的状态，造型相当有个性，颜值不输给特斯拉，但大前提是是否能够真正量产。
+芬奇姆说不应该这么快确认选举结果，他呼吁同事们拒绝把亚利桑那州选举人票投给乔·拜登，因为在周一的听证会上，有明显的证据表明选举存在舞弊。
 
-我倒是认为这不过是恒大给自己的股票造成上涨趋势的一个噱头，又来割一拨国内股民的韭菜罢了。真正了解中国企业的都知道，中国做企业的技术不过都是拷贝和偷窃罢了。根据《印度时报》(The Times of India)的报导，特斯拉在中国的竞争对手是小鹏汽车(Xpeng)。这家中国电动汽车制造商最近因为其汽车配备激光雷达(LiDAR)视觉传感器而被媒体关注。特斯拉首席执行官埃隆·马斯克（Elon Musk）认为LiDAR视觉传感器是“昂贵的”和“不必要的”。 据报导，前苹果工程师于2018年被捕并被控以被控窃取专有信息。这与苹果公司传闻已久的自动驾驶汽车产品有关。该工程师于2015年开始为Apple工作，被指控下载与工程设计有关的某些文件，包含电路设计图和技术报告。离开苹果公司后，他加入了小鹏汽车在美的电动车公司XMotors。据马斯克说中国小鹏汽车偷走了特斯拉以及苹果公司的程式代码。
+据国家档案（The National File）报道：
 
-郭先生曾经说过中国企业家加一起都比不上马斯克，他们喜欢抄袭，缺乏创新能力和务实精神。对于这些喜欢抄袭和偷窃技术的中国汽车制造企业又如何超越特斯拉呢？
+*“我们正在收回我们的选举团选票，我们不会轻易确认选票，这就是我呼吁众议院和参议院的同事们去做的事情。（这是）根据美国宪法行使我们的全部权力。”
+芬奇姆补充说：“有一份法律简报说，我们不受州法律的约束。简单多数可以召集参众两院，在一天之内通过一项决议，并使这些选举人被延搁。这将是有约束力的，我们法庭上见。”*
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01052933/image0-720x720.png)***[https://discord.gg/77fCxw5mFv](https://discord.gg/77fCxw5mFv)**
-**[https://gab.com/himalaya\_italy](https://gab.com/himalaya_italy)***
+站在旁边的共和党参议院多数党党鞭桑尼·波雷利（Sonny Borrelli）表示，芬奇姆的计划可能已经获得了亚利桑那州共和党领导层的支持。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01203407/twitter8.jpg)图片来源：Twitter.com
+评：关于美国大选的法律战本周有许多进展，周一宾夕法尼亚州议会正式推出决议案，要求宾州州务卿撤回对该州2020年大选结果的认证，并在调查结束前不得认证选举结果。内华达法官下令检查克拉克郡的选举设备，鲍威尔（Powell）和林·伍德（Lin Wood）律师的法律行动已经发生作用，乔治亚州法官连发三次临时禁止令，禁止该州选举官员清除和修改三个县的Dominion投票机数据，密西根州听证会周二正在进行。著名左媒《纽约时报》称“民主党在本次大选中惨败”。
 
+本次大选将是历史上的一个重大事件，也将对人类的发展产生深远影响，相信一系列行动将保证美国选举结果的正当性和完整性并恢复宪法秩序，操纵大选的幕后黑手和帮凶都将受到惩罚。
 
-0
+[原文链接](https://www.thegatewaypundit.com/2020/11/breaking-arizona-state-rep-issues-call-withhold-states-electoral-college-votes-joe-biden-due-significant-evidence-fraud/?utm_source=Twitter&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
+
+1+

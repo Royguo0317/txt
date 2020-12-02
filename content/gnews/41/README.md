@@ -1,53 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 乔治亚州的所有多猫腻（DOMINION）投票机将被冻结
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/607895/)
+## 中共走狗李毅 口出狂言声称【中国人死4000人 算是零死亡】
+` GM108` [轉載自GNews](https://gnews.org/zh-hans/608257/)
 
-*新闻来源：the gateway pundit《网关评论家》；作者：Jim Hoft；发布时间：2020年11月29日*
+作者：小妍说
 
-*翻译/简评：Victory；校对：X-Wing飞得更高；审核：海阔天空；Page：拱卒*
+李毅自称是一个教授的半秃人形动物，因为几段视频在海内外彻底火了。第一段视频是2020年10月17日在深圳湾论坛上说到：“这场疫情咱们死了4千多人，但和美国死22万人一比，就等于一个人没死嘛，零感染，零死亡”。在这个一分钟的演讲视频里，看到场下有很多人戴口罩，李毅用手向台下一指，说“你看你看，还有这么多人还在戴口罩”，然后发出爽朗的大笑：哈哈哈哈哈哈哈！随后又说，“中国超过美国的时间提前了，2027年没问题，美国活不成了。14亿中国人都没认识到这一点，不是美国在整中国，是我们把美国逼得活不下去了！”是什么让中共国把美国逼的活不下去了？这不就是变相承认了中共制造病毒的事实了吗？ 随后11月24日，《新京报》的评论员熊志发表文章题目是《学者发言：“死四千人等于一个没死”，逝者生命岂能这样被归零？》，之后就出现了第二段视频：视频中，李毅晃动着谢顶一大半的油光锃亮的大脑袋，右手全程指指点点的说《新京报》是资本的力量，胆大妄为，威胁《新京报》。11月26日李毅的最新言论则是：我们跟新京报的友好关系啊，呵呵，都结了缘了，快成夫妻了，嘿嘿！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01185000/image-4.png)
+什么是奴才，什么是色厉内荏？看看李毅的视频就完全知道了，把中共惯用的那种一掐脖子就服软，一松手就骂的精神演绎的淋漓尽致。看看他说的话，这也能叫教授？叫兽还差不多。第一段视频中李毅面部扭曲，表情狰狞，丑陋到了极点，还是笑着说出，这场疫情咱们死了4千多人，但和美国死22万人一比，就等于一个人没死嘛，零感染，零死亡。这是在深圳，这要是在武汉说出这样的话，我都怀疑他能不能走出那座城市？这句话不管出现在什么地方都是豪无人性的，何况这位半秃人形动物教授还带着一股开玩笑的语气来说。四千多人的死亡怎么可以一笔抹煞？何况中共病毒的真实死亡人数远超过这个的百倍千倍，这些人命不是冰冷冷的数据，和你我一样，他们都曾是鲜活的生命。难道这些中国百姓的生命在所谓的半秃人形动物面前就那么不值钱吗，可以忽略不计吗？难道说他们的去世就是为了让你这个半秃人形的畜生来体现中共制度的优越吗？在中共国，某些人的眼中，普通百姓就是根韭菜，死多少都和没有死是一样的，人命只是一个数字而已。最可怕的不是这个半秃人形动物李毅说了什么，而是无论他说什么，还是有很多人相信他，支持他，甚至为他洗地。正常人难道看不出来李毅就是一个嘴巴拉垮的无耻之徒吗？就算他没有说4000人这类言论，那也是错误的，因为中共制造的病毒，美国受到重创，大量人生病死亡，难道作为中国人就应该高兴吗？请大家不要忘记，这些死去的人他们也是无辜的，怎么就变成了我们可以夸耀的功绩了呢？这就是反人类的论调。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01185039/image-12.png)
+在看看他针对新京报的言论，先夸自己是爱国人士、世界顶级学者，查了新京报没有官方背景，然后开始威胁对方，指着镜头骂街，质问对方走的是什么道路？好大的官威啊，通篇都在狡辩，说别人断章取义，我不想说新京报是不是断章取义，毕竟新京报也不是什么好玩意，就凭李毅那句“死四千人等于没死”，放在任何语境下都是不可原谅的，根本不存在断章取义。满嘴浓浓的中共的腔调，一股股腐尸般的恶臭扑面而来非常生动地诠释了什么叫狗仗人势，什么是寡廉鲜耻， 一脸面目狰狞杀气腾腾的老流氓做派，通篇扣帽子。“你看看这天空，你看看这大地…”，你在这舞台上表演话剧呢？开头的那句看看这是谁的天下？仿佛百姓如草芥，而他是人上人，在他的眼中，新京报没有背景，没有后台，就和一普通老百姓一样，所以他看不起，所以他可以毫无顾虑的攻击。并且李毅容不得别人的质疑，言语和行为缺乏逻辑，也没有用证据和论点去驳斥别人，而是用那种先丑化别人接着扣帽子打成敌对势力最后召唤狂热者群起攻之的方式去”打倒”对方。这不就是中共对付百姓的一贯做法吗？你是民，所以你说的都是放屁。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01185057/image-13.png)
+李毅的行为，是人类各种行为中，最为卑劣无耻的。他躲在安全的场所，用爱国和牺牲为口号，歌颂中共权力的伟大。这个畜生就是中共的一条恶犬，一个狗仗人势奴才。最后希望美国及其他西方主流国家，能够禁止这个畜生及其家人入境定居，这种半秃人形动物只适合在伊朗和朝鲜定居。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/88xAhRB7ypV32/images/da0d31ab-ea14-4ac9-8d28-3623498c8663.jpg?asset_id=d6f8591d-cc9f-4a3c-868d-52c6f653caa1&amp;img_etag=%22cf502c70bfb54308ad6a958adee1ab5a%22&amp;size=1024)](https://spark.adobe.com/page/88xAhRB7ypV32/images/da0d31ab-ea14-4ac9-8d28-3623498c8663.jpg?asset_id=d6f8591d-cc9f-4a3c-868d-52c6f653caa1&amp;img_etag=%22cf502c70bfb54308ad6a958adee1ab5a%22&amp;size=1024)
+GNEWS之前文章：
 
-**简评：**
+生被虐待 死被阴婚 [https://gnews.org/zh-hans/604677/](https://gnews.org/zh-hans/604677/)
 
-美国大选有点滑稽的意思了。乔治亚州作为本次大选中的焦点州，就投票机重置的问题一波三折。截止本文翻译完成时的最新进展是，法官又发布第三个命令推翻了之前撤销冻结的命令。目前最新的指令是冻结投票机10天。此次选举明显出现大规模舞弊，投票机是重要证据。冻结投票机是保留物证的常识性操作。而法官一天之内反复就冻结投票机的问题出尔反尔，从中我们可以窥到美国法律体系也出了很大的问题。所幸川普法律团队及时做出反应，给黑暗的力量施压，才最终得以反转。
+人人都笑马保国 人人却都是马保国 [https://gnews.org/zh-hans/603767/](https://gnews.org/zh-hans/603767/)
 
-现在一切都在打明牌，中共及其黑暗势力一定会狗急跳墙用各种黑招，如造成投票机意外失火等等，希望正义力量有所防范。
+王清远两袖清风 毛洪涛死于心理疾病 [https://gnews.org/zh-hans/599821/](https://gnews.org/zh-hans/599821/)
 
-**原文翻译：**
+新闻链接：[https://dy.163.com/article/FS6ANFVA0517PC99.html](https://dy.163.com/article/FS6ANFVA0517PC99.html)
 
-**突发：蒂莫西-巴顿（Timothy Batten）法官下达命令冻结乔治亚的所有多猫腻（Dominion）投票机…更新：法官在数小时内撤消命令**
+新闻链接：[https://dy.163.com/article/FS9VHEE405149IL1.html](https://dy.163.com/article/FS9VHEE405149IL1.html)
 
-**突发更新-**
-
-**法官蒂莫西-巴顿（Timothy C. Batten）周日发布命令，冻结乔治亚州的所有多猫腻（Dominion）投票机。**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/88xAhRB7ypV32/images/bb9c4a07-cb0a-4269-a561-7924ff71f67a.jpg?asset_id=024bb649-db79-4495-b2fe-35bfb9f7f2a4&amp;img_etag=%22f2c29d44c392b5808814e102b21cd507%22&amp;size=1024)](https://spark.adobe.com/page/88xAhRB7ypV32/images/bb9c4a07-cb0a-4269-a561-7924ff71f67a.jpg?asset_id=024bb649-db79-4495-b2fe-35bfb9f7f2a4&amp;img_etag=%22f2c29d44c392b5808814e102b21cd507%22&amp;size=1024)
-
-通过林伍德律师：”命令被告维持现状，暂时禁止清除或重置设置乔治亚州的任何投票机，直到法院的进一步命令。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/88xAhRB7ypV32/images/ebc0df63-1c13-4cd3-b102-78642a73cd37.jpg?asset_id=5531da47-5d22-4a89-b41a-54c14951947a&amp;img_etag=%227c4e4655d2fad0ef88d86229598ad1bf%22&amp;size=2560)](https://spark.adobe.com/page/88xAhRB7ypV32/images/ebc0df63-1c13-4cd3-b102-78642a73cd37.jpg?asset_id=5531da47-5d22-4a89-b41a-54c14951947a&amp;img_etag=%227c4e4655d2fad0ef88d86229598ad1bf%22&amp;size=1024)推文翻译（林伍德推文——法官蒂莫西-巴顿刚下达紧急命令：”被告被命令维持现状，并暂时禁止清除或重置乔治亚州的任何投票机，直到法院有进一步的命令” 立即停止盗窃 @BrianKempGA）
-
-General Michael Flynn weighed in. 迈克尔-弗林将军加入讨论
-
-[!\[\]()!\[\](https://spark.adobe.com/page/88xAhRB7ypV32/images/536049b7-a4f2-4896-846c-341d6be61b0f.jpg?asset_id=e0d299da-5a44-40ee-b9d1-a9964d81ea80&amp;img_etag=%22f0640b22c0b447d3932c45902915c7fc%22&amp;size=2908)](https://spark.adobe.com/page/88xAhRB7ypV32/images/536049b7-a4f2-4896-846c-341d6be61b0f.jpg?asset_id=e0d299da-5a44-40ee-b9d1-a9964d81ea80&amp;img_etag=%22f0640b22c0b447d3932c45902915c7fc%22&amp;size=1024)推文翻译（#TeamKraken（大海怪团队）赢得了一项重要的强制令。巴顿法官发布命令，冻结了佐治亚州的所有多猫腻Dominion投票机。恶魔可能已经来到佐治亚州，但今天它是光明的。）
-
-更新：法官蒂莫西-巴顿（Timothy C. Batten）在当天随后又撤销了命令。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/88xAhRB7ypV32/images/afbfddf4-805f-4da5-8c06-d409a0958451.jpg?asset_id=20eeab78-a1b5-4d2e-8222-4e2ddfa49dbf&amp;img_etag=%229e7ff84898e9fee8db6d51e736002033%22&amp;size=2560)](https://spark.adobe.com/page/88xAhRB7ypV32/images/afbfddf4-805f-4da5-8c06-d409a0958451.jpg?asset_id=20eeab78-a1b5-4d2e-8222-4e2ddfa49dbf&amp;img_etag=%229e7ff84898e9fee8db6d51e736002033%22&amp;size=1024)林伍德：（什么？法官撤销了强制令，基于被告所声称的乔治亚州郡控制投票机。投票机应该由州政府和选举法控制。@GaSecofState 管理各州的选举法。为什么乔治亚州官员决定清除这些投票机，重置它们？） 林伍德：是时候遵守法律了。停止销毁证据。
-
-[原文链接](https://www.thegatewaypundit.com/2020/11/breaking-update-judge-timothy-batten-issues-order-freeze-dominion-machines-georgia/)
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/88xAhRB7ypV32/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/88xAhRB7ypV32/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/88xAhRB7ypV32/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+新闻链接：[https://baijiahao.baidu.com/s?id=1684149209552323389&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1684149209552323389&amp;wfr=spider&amp;for=pc)
 
 0
