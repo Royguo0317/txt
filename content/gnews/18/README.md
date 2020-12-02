@@ -1,56 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 林伍德律师警告：如果共和党领导人现在拒绝战斗，川普的支持者将立即放弃共和党，共和党将不复存在
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/608852/)
+## 快讯速评】又见城管群殴摊贩 |城管的暴行，就是中共黑帮本质的体现！
+` GM64` [轉載自GNews](https://gnews.org/zh-hans/608881/)
 
-翻译：康州盘古农场 – 郑彬
+内新闻:Meilen美伦 素材:两只小猪 校对：文迹～见证神迹
 
-校对：康州盘古农场 – 烟波浩淼
+据西安商报漩涡视频2020年12月1日晚间报道，云南曲靖市罗平县李女士反映，11月30日李女士的父亲遭到七八名城管队员殴打，起因是城管队员要没收自家放在店铺门外售卖的拖把，双方发生口角后爆发肢体冲突，导致李女士父亲3根肋骨骨折，目前正在医院接受治疗。
 
-审核： 康州盘古农场 – Truemanman
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01222827/%E5%9B%BE%E7%89%8715.png)
-林伍德律师写了一系列推文，呼吁“我们人民”美国爱国者起来为这个国家而战。
+这就是世界上唯一拥有城管的中共国内自食其力的小商贩们的现状。城管砸摊每天都在中共国各地发生，城管暴打小商贩致伤、致残、致死的事件也屡见不鲜。中共伪政权的黑帮本质，在其城管队伍对待小商贩的种种反人类罪行中暴露得淋漓尽致。中共黑帮暴政如不灭，天理都难容，正如爆料革命战友郝海东先生说的：消灭中共，是正义的必须。
 
-共和党的精英们不会为我们而战……
+想起当年夏森律师在给自卫反击误杀城管的小商贩崔英杰辩护中曾这样说：贩夫走卒、引车卖浆，是古已有之的正当职业。我的当事人来到城市，被生活所迫，从事这样一份卑微贫贱的工作，生活窘困，收入微薄。但他始终善良纯朴，无论这个社会怎样伤害他，他没有偷盗没有抢劫，没有以伤害他人的方式生存。我在法庭上庄严地向各位发问：当一个人赖以谋生的饭碗被打碎，被逼上走投无路的绝境，将心比心，你们会不会比我的当事人更加冷静和忍耐？
 
-伍德律师还告诫共和党领导人，如果他们拒绝同腐败的民主党人斗争，他们的前途将一片黑暗。
+城管也是中共独裁暴政的受害者。面对同是受害者的同胞小商贩们，在那也许是他们全家赖以生存的小摊面前，奉劝城管们高抬贵手、枪口抬高一寸，不要赶尽杀绝，不要继续做独裁暴政迫害同胞的帮凶，多给同胞们行予方便，或最好离开城管队伍，也好为自己和家族留条后路，以免在中共伪政权不久倒台后被人民审判，无知地去充当独裁暴政的陪葬品。
+(本文仅代表个人观点)
 
-大选被窃。我们需为此而战。
+新闻来源：
+[https://c.m.163.com/news/a/FSQ1DQRS0001899O.html?spss=newsapp](https://c.m.163.com/news/a/FSQ1DQRS0001899O.html?spss=newsapp)
 
-“我们人民有责任采取法律行动来拯救我们的自由。我们不能依靠民选官员、共和党官员或他们雇用的律师。在他们的圈子里，不忠和自我交易处于绝对的支配地位。伍德写道：”我们人民必须为这个建立在上帝之下的国家而战。
-
-他指的是许多共和党人的名字，特别是州长布莱恩•坎普，认为其和民主党人斯泰西•艾布拉姆斯没有区别。
-
-他说 “在与史黛西•布拉姆的竞选中，我投给了布莱恩·坎普（Brian Kemp），认为两害相权取其轻。现在看来，我应该扔硬币才对。坎普和州务卿将乔治亚州选举的钥匙交给了艾布拉姆斯和希拉里•克林顿的律师。他们拒绝收回钥匙。”
-
-林伍德律师还追问了让这次历史性选举被邪恶的民主党偷走的罗娜•麦克丹尼尔。
-
-
-
-> If [@GOP](https://twitter.com/GOP?ref_src=twsrc%5Etfw) & [@GOPChairwoman](https://twitter.com/GOPChairwoman?ref_src=twsrc%5Etfw) do not take immediate action to expose fraud & correct 11/3 election, Republican Party will cease to be viable.
-> 
-> Supporters of [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) will abandon GOP & you can kiss goodbye the Senate runoff in GA.
-> 
-> Start fighting for Trump NOW or adios GOP.
-> — Lin Wood (@LLinWood) [November 29, 2020](https://twitter.com/LLinWood/status/1333070486532722688?ref_src=twsrc%5Etfw)
-
-
-
-“如果共和党和共和党女主席不立即采取行动揭露舞弊和纠正11月3日的选举，共和党将不复存在。
-
-唐纳德•川普的支持者将放弃共和党，你可以和乔治亚州的参议院第二轮选举吻别。
-
-“现在就开始为川普而战，否则共和但就完蛋了。
-
-原文发布：CR
-
-原文地址：
-
-
-
-> [Attorney Lin Wood Threatens: ‘If GOP Leaders Refuse To Fight Now, Trump Supporters Will Immediately Abandon GOP And It Will Cease to Exist’](https://conservativeroom.com/attorney-lin-wood-threatens-if-gop-leaders-refuse-to-fight-now-trump-supporters-will-immediately-abandon-gop-and-it-will-cease-to-exist/)
-
-
-
-3+
+1+

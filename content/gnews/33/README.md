@@ -1,22 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/01日康州农场前沿观察: 中共党员，你们小心了 !
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/608396/)
+## 文贵先生2020年11月21直播【文字版】
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/608503/)
 
-主播：海媚
-撰文：1984文姝
-视频：Buzz文珂
-审核：Truemanman
-
-
-
-11月30日《中国日报》报道，截至11月11日，中共企业中远海运集团、上海振华重工公司共有21艘轮船在美港口停靠时被美执法部门和人员突击检查。其中，有16艘船只在10月份的25天内被查，平均不到2天就有一艘中方船只被查。据称，美方详细盘问中共党员入党原因，询问船员与中国政府关系、中国防疫现状、对美国总统选举候选人看法等。此外， 9月以来，中方航空公司共有16架次赴美航班机组人员尤其是党员身份者被美执法部门盘查。同日，中共发言人华春莹叫嚣“中方必将采取反制措施。”
-中共党员，你们小心了！面对世界力量的联手围剿，中共继续绑架十四亿中国人民，叫嚣这是美国“反华势力对华全面遏制打压”， “是麦卡锡主义死灰复燃”。
-被美国右翼团体评为：“了不起的勇敢的灵魂，伟大的爱国者（A great courageous soul,a great American patriot）”的麥卡錫主義（McCarthyism），誕生並興盛於美國第二次紅色恐慌時期（1940年代末至1950年代），它源自美國共和黨參議員約瑟夫·雷蒙德·麥卡錫。麦卡锡主义以反对共产党为己任，开展了大量反共运动，造成了广泛的社会和文化影响。如今中共挑起超限战，企图颠覆美国政权，伪造照片污蔑澳洲士兵，武装搅扰台湾……在世界范围挑起事端，这一切正是黔驴技穷的中共即将覆亡的征兆。
-
-[素材来源](https://newssearch.chinadaily.com.cn/cn/search?query=%E7%BE%8E%E5%9B%BD%E6%9C%89%E5%85%B3%E9%83%A8%E9%97%A8%E6%89%A7%E6%B3%95%E4%BA%BA%E5%91%98%E5%A4%9A%E6%AC%A1%E7%AA%81%E5%87%BB%E6%A3%80%E6%9F%A5%E4%B8%AD%E6%96%B9%E8%88%AA%E8%BF%90%E4%BC%81%E4%B8%9A%E4%BA%BA%E5%91%98%E7%9A%84%E5%85%B1%E4%BA%A7%E5%85%9A%E5%91%98%E8%BA%AB%E4%BB%BD)：
-
-[http://www.xinhuanet.com/world/2020-11/30/c\_1126804307.htm](http://www.xinhuanet.com/world/2020-11/30/c_1126804307.htm)
+### 【[视频版](https://gnews.org/zh-hans/586825/)】【[中文文字版](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01204619/20201121_Mr._Miles_Guos_broadcast_P1P7_chinese.pdf)】【[英文文字版](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01204711/20201121_Mr._Miles_Guos_broadcast_P1P7_english.pdf)】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01204929/20201121_Mr._Miles_Guos_broadcast_P1P7_chinese_00.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01204932/20201121_Mr._Miles_Guos_broadcast_P1P7_chinese_01.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01204939/20201121_Mr._Miles_Guos_broadcast_P1P7_chinese_02.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01204947/20201121_Mr._Miles_Guos_broadcast_P1P7_chinese_03.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01204956/20201121_Mr._Miles_Guos_broadcast_P1P7_chinese_04.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01204959/20201121_Mr._Miles_Guos_broadcast_P1P7_chinese_05.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01205057/20201121_Mr._Miles_Guos_broadcast_P1P7_chinese_06.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01205009/20201121_Mr._Miles_Guos_broadcast_P1P7_chinese_07.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01205013/20201121_Mr._Miles_Guos_broadcast_P1P7_chinese_08.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01205016/20201121_Mr._Miles_Guos_broadcast_P1P7_chinese_09.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01205018/20201121_Mr._Miles_Guos_broadcast_P1P7_chinese_10.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01205021/20201121_Mr._Miles_Guos_broadcast_P1P7_chinese_11.png)
+**By：【秘密翻译组G-Translators】**
 
 0

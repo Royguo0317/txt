@@ -1,51 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新西兰作家和政治活动家特雷弗·洛登：现在这一切都到了危险关头！
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/608652/)
+## 林伍德律师警告：如果共和党领导人现在拒绝战斗，川普的支持者将立即放弃共和党，共和党将不复存在
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/608852/)
 
-视频字幕：文府；听写/翻译: 势不可挡；校正: TCC；简评/组稿编辑：Julia Win
+翻译：康州盘古农场 – 郑彬
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01215114/1-0-1.png)
+校对：康州盘古农场 – 烟波浩淼
 
-**简评：**
+审核： 康州盘古农场 – Truemanman
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01222827/%E5%9B%BE%E7%89%8715.png)
+林伍德律师写了一系列推文，呼吁“我们人民”美国爱国者起来为这个国家而战。
 
-在美国和全世界都在期待2020大选最终结果的时候，大量选票舞弊和违规案件被曝光，不禁使人们对美国的选举制度产生质疑。
+共和党的精英们不会为我们而战……
 
-除此之外，许多围绕选举活动的组织都与独裁中共政府有着深厚的关系。比如：多米尼恩选票系统、软件；比如缺席选票……
+伍德律师还告诫共和党领导人，如果他们拒绝同腐败的民主党人斗争，他们的前途将一片黑暗。
 
-新西兰作家和政治活动家特雷弗·洛登在接受采访中谈到：当政府拥有一切，政府决定一切，一切由控制政府的少数人决定。所有宗教自由将消失，所有言论自由和思想自由都将消失，所有财产安全将消失，捍卫自己免受国家侵害的权利也将消失。国家将变成上帝。
+大选被窃。我们需为此而战。
 
-**新西兰作家、政治活动家特雷弗·洛登接受采访（节选）**
+“我们人民有责任采取法律行动来拯救我们的自由。我们不能依靠民选官员、共和党官员或他们雇用的律师。在他们的圈子里，不忠和自我交易处于绝对的支配地位。伍德写道：”我们人民必须为这个建立在上帝之下的国家而战。
 
-**视频：**
+他指的是许多共和党人的名字，特别是州长布莱恩•坎普，认为其和民主党人斯泰西•艾布拉姆斯没有区别。
+
+他说 “在与史黛西•布拉姆的竞选中，我投给了布莱恩·坎普（Brian Kemp），认为两害相权取其轻。现在看来，我应该扔硬币才对。坎普和州务卿将乔治亚州选举的钥匙交给了艾布拉姆斯和希拉里•克林顿的律师。他们拒绝收回钥匙。”
+
+林伍德律师还追问了让这次历史性选举被邪恶的民主党偷走的罗娜•麦克丹尼尔。
 
 
 
-**视频翻译：**
+> If [@GOP](https://twitter.com/GOP?ref_src=twsrc%5Etfw) & [@GOPChairwoman](https://twitter.com/GOPChairwoman?ref_src=twsrc%5Etfw) do not take immediate action to expose fraud & correct 11/3 election, Republican Party will cease to be viable.
+> 
+> Supporters of [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) will abandon GOP & you can kiss goodbye the Senate runoff in GA.
+> 
+> Start fighting for Trump NOW or adios GOP.
+> — Lin Wood (@LLinWood) [November 29, 2020](https://twitter.com/LLinWood/status/1333070486532722688?ref_src=twsrc%5Etfw)
 
-美国建立在一个非常不同的观念上，即天赋人权。你有自由的权利，你有自卫的权利，你有表达的权利，也有自己选择宗教的权利。这是上帝赋予的权利。
 
-政府存在的唯一理由就是保护这些权利，这是世界历史上的一次全面革命，这是有史以来第一次将此观念真正付诸实践，这就是使美国伟大的原因，它确保了你的权利来自上帝。
 
-你可以依靠公正的法治和法律来保护自己的财产，保护自己的言论自由，正因如此，美国人可以创建伟大的企业，建立一流的学校，创建教会，创建医院，创建伟大的文化。
+“如果共和党和共和党女主席不立即采取行动揭露舞弊和纠正11月3日的选举，共和党将不复存在。
 
-所有这些事情的发生是因为美国人是自由的，而且这种自由得到了法律的保障，是来自上帝的恩惠。
+唐纳德•川普的支持者将放弃共和党，你可以和乔治亚州的参议院第二轮选举吻别。
 
-这在世界历史上是非常罕见的。但是，看看它给我们带来了什么，，看看美国人今天所拥有的：繁荣与自由。看看美国因此而在世界范围内所做的巨大贡献。
+“现在就开始为川普而战，否则共和但就完蛋了。
 
-但是现在这一切都到了危险关头。如果我们失去了这些，我们将成为另一个独裁国家，就像全世界以往数千年一样。
+原文发布：CR
 
-政府拥有一切，政府决定一切，一切由控制政府的少数人决定。所有宗教自由将消失，所有言论自由和思想自由都将消失，所有财产安全将消失，捍卫自己免受国家侵害的权利也将消失。国家将变成上帝。
+原文地址：
 
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+> [Attorney Lin Wood Threatens: ‘If GOP Leaders Refuse To Fight Now, Trump Supporters Will Immediately Abandon GOP And It Will Cease to Exist’](https://conservativeroom.com/attorney-lin-wood-threatens-if-gop-leaders-refuse-to-fight-now-trump-supporters-will-immediately-abandon-gop-and-it-will-cease-to-exist/)
 
-编辑：【喜马拉雅战鹰团】-点击spark adobe版
 
-[!\[\]()!\[\](https://spark.adobe.com/page/lmHhWmwyl9HTb/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/lmHhWmwyl9HTb/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
-1+
+3+

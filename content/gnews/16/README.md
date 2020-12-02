@@ -1,25 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 多米尼在佐治亚州丑态百出
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/608855/)
+## 中共的恐惧-抖音每天拦截超十亿条网络信息
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/608902/)
 
-草原三省战友之家 文莱
+- 编辑：Victor Torres
 
-校对 鹰嘴逗逗  上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01222521/%E4%B8%91.jpg)图片来自APM Reports
-根据11月30日《门户专家》刊登的卡桑德拉·费尔班克斯（Cassandra Fairbanks）的报告：多米尼（Dominion）投票系统的移动服务器在周日晚上崩溃，因此佐治亚州富尔顿县（Georgia’s Fulton County）的重新计票被推迟！该县的官员表示，有台刚刚购买的多米尼投票系统，移动服务器崩溃。县官员在当地电视台WXIA-TV说，“多米尼公司的技术人员正在解决技术问题，佐治亚州国务卿办公室也表示已知情况，也了解解决该问题的方式。”
 
-此次事故对近期爆出多起丑闻的多米尼公司无疑又是当头一棒。
+***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-周一晚上，众议员巴里·劳德米尔克（Barry Loudermilk，R-GA）在Newsmax上爆料，不仅是服务器崩溃了，富尔顿县的选举数据也被彻底清除！因此法官扣押了一些投票机，以确保数据不再被清除。事情经过是这样的，一位貌似县雇员的IT技术人员被告知不要使用该服务器，但是这位技术人员还是使用了这个服务器，在他的“错误”操作后，富尔顿县的数据就被清除得一干二净；为了防止意外，数据也曾有备份，可恶的是备份也是在同一台崩溃的服务器上。现在，我们正在查看富尔顿县的服务器上还能不能找到原先数据。
+西班牙2020年12月2日电/西喜社/——《21世纪经济报道》于12月1日报道，负责抖音平台治理的抖音安全中心团队在抖音开放日中首次亮相。据抖音安全中心披露，目前每天拦截处理的违法违规内容、行为超过10亿条，其中包括违规注册、刷量、刷粉、点赞以及发布违规评论、视频等多类内容行为。
 
-简评：
+仅抖音一个平台，信息日拦截量竟超十亿之巨，很难想象整个中共国内的网络媒体平台的拦截量会达到怎样的天文数字!
 
-布莱恩·坎普（Brian Kemp，佐治亚州州长），佐治亚州的共和党州长，在此次选举以及当前的重新计票环节，尽显腐败恶臭！从购买声名狼藉的多米尼计票系统，到富尔顿县重新计票受阻，再到选举数据被彻底清零；又一次向人民展示了沼泽地的疯狂。随着愈来愈多的实锤证据的显示，罪犯必将被绳之以法，还给美国人民一个公平的选举制度！
+而这些天文数字中又包含多少“反对共产党”的内容呢?恐怕少不了吧。
 
-虽然美国的体制此次受到了重创，却也让人民看见了绝对资本的绝对控制，甚至对民主自由的践踏！我们相信美国的神圣法律一定会保守美国，正义力量保守美国重回自由、民主、法治的道路。
+抖音的数据折射出国内暗流之下汹涌的民意，如今的中共国就如同布满了炸药的房间，一个火星遍可能引爆整个国家。而这也正是中共心底最深的恐惧。
 
-新闻链接：https://www.thegatewaypundit.com/2020/11/breaking-gop-representative-loudermilk-technician-county-employee-wiped-election-data-servers-fulton-county-video/
+于是他们构建了“防火长城”，于是他们不断刷新拦截记录。然而此举犹如抱薪救火，薪不尽，火不灭，中共必葬身其中。
 
-2+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14162240/image0-2-6.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+
+1+

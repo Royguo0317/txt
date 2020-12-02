@@ -1,11 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 多米尼 (Dominion) 投票机 Democracy Suite 5.5 型号审查报告
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/608663/)
+## 11/30/2020 文贵直播: 任何认知和开悟都要付出代价, 七哥拿着全家被中共迫害, 千亿资产被抢劫的事实仍无法唤醒身边的很多人
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/608733/)
 
-## 下载：【[原文英文报告](https://www.sos.state.tx.us/elections/forms/sysexam/dominion-democracy-suite-5.5.pdf)】【[中文翻译](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01213344/translation_Texas_Report_on_Dominion_Democracy_Suite5.5.pdf)】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01213238/translation_Texas_Report_on_Dominion_Democracy_Suite5.5_00.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01213221/translation_Texas_Report_on_Dominion_Democracy_Suite5.5_01.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01213206/translation_Texas_Report_on_Dominion_Democracy_Suite5.5_02.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01213153/translation_Texas_Report_on_Dominion_Democracy_Suite5.5_03.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01213147/translation_Texas_Report_on_Dominion_Democracy_Suite5.5_04.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01213140/translation_Texas_Report_on_Dominion_Democracy_Suite5.5_05.png)
-**By：【秘密翻译组G-Translators – Lucky幸运星Maggie】**
+11/30/2020 文贵先生直播：任何认知和开悟都要付出代价，七哥拿着全家被中共迫害、千亿资产被抢劫的事实仍无法唤醒身边的很多人；钟南山作为中共国科学界、医疗工作者的代表，简直是中共国知识界的悲哀；要加入新中国联邦的战友们一定要“唯真不破”，请认真阅读新中国联邦宣言：信奉上天、尊重人、坚持中国一人一票
 
-1+
+
+
+**By：【秘密翻译组G-Translators】**
+
+0
