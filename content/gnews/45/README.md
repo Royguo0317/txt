@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 3/20/2014 美国大选可以被几行计算机黑客代码而窃取
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/610251/)
+## 11/30/2020 朱利安尼市长: 我们已被警告了20年, 邮寄投票有欺诈风险
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/610311/)
 
-**By：【秘密翻譯組G-Translators】**
+**By：【秘密翻译组G-Translators】**
 
 0

@@ -1,71 +1,81 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯：鲍威尔告诫国会“尽管疫苗的好消息不断，但前景仍然极不确定”
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/609900/)
+## 【世纪大案】34: 首席大法官、司法部长、性奴岛岛主
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/610527/)
 
-出品《路德社》 编辑：路德社精选新闻专栏组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02065553/12-2-5-1.jpg)
-Despite “Positive News” On Vaccine Front, The Outlook Remains “Extremely Uncertain” Powell Tells Congress In Prepared Remarks
+作者：香草山写作组 Tiffany 的早餐 校对/发稿：飞虹
 
-鲍威尔告诫国会“尽管疫苗的好消息不断，但前景仍然极不确定”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29231938/logo-3-1-1.jpg)
 
-In what was largely a repeat of his Nov 12 comments to a panel hosted by the ECB, Fed Chair Powell warned lawmakers that the US economy remains in a damaged and uncertain state, despite progress made in the development of Covid-19 vaccines, urging them once again to release much needed fiscal stimulus.
 
-美联储主席鲍威尔重申在11月12日对欧洲央行主持小组会议的评论，他警告议员们，尽管Covid-19疫苗的开发取得了进展，但美国经济仍处于受损和不确定的状态，督促他们再次批准急需的财政刺激措施。
 
-“Recent news on the vaccine front is very positive for the medium term,” Powell said in [prepared testimony](https://www.federalreserve.gov/newsevents/testimony/powell20201201a.htm)released Monday ahead of a Tuesday hearing before the Senate Banking Committee, although in order not to overplay the optimism – since that may shut down hopes for any new stimulus bill, he said that “significant challenges and uncertainties remain, including timing, production and distribution, and efficacy across different groups.”
+摘要：川普大律师林·伍德爆出首席大法官约翰·罗伯茨和性奴岛岛主杰弗里·爱泼斯坦的疑似丑闻。司法部长巴尔家里又和爱泼斯坦有着复杂联系。WTPC呼吁川普总统实施戒严，引用了林肯总统对当时的首席大法官罗杰·塔尼签发逮捕令。这暗示着川普总统是否可以对首席大法官动手？
 
-鲍威尔在参议院银行委员会周二举行的听证会前一天发布的准备证词中表示，“近期疫苗方面的消息对中期而言是非常积极的，尽管这样做不是为了夸大乐观情绪，因为这可能会断绝对新刺激方案的希望。仍然存在重大挑战和不确定因素，包括时间，生产和分配以及不同群体的疗效。”
+2020大选舞弊案越挖越深，川普总统的律师团也越战越勇。最初，人们认为川普总统在州一级的诉讼中会落败，甚至在联邦巡回法院的上诉中会继续落败，直到上诉到最高法院，利用最高法院的保守派优势赢得诉讼([世纪大案 30：纽约南区联邦司法管辖区](https://gnews.org/zh-hans/578254/) )([世纪大案 20：最高法院](https://gnews.org/zh-hans/461127/) )。
 
-As a result, “**the outlook for the economy is extraordinarily uncertain and will depend, in large part, on the success of efforts to keep the virus in check.”**
+2020年秋，川普总统和参议院高效运作，提名通过了保守派大法官艾米·巴雷特(Amy Coney Barrett)，接替秋季去世的死硬自由派大法官鲁斯·金斯伯格(Ruth Ginsburg)。这样最高法院的保守派具有了压倒优势。
 
-因此，“经济前景非常不确定，并在很大程度上将取决于控制病毒的努力是否成功。
+然而，随着2020大选舞弊案的诉讼大战展开，人们越来越担心首席大法官小约翰·罗伯茨(John Roberts Jr)的态度。罗伯茨法官于2005年由小布什总统任命，在最高法院的工作经历中，被视为有不断左转的倾向。
 
-And while economic activity “has continued to recover from its depressed second-quarter level” in recent months **“the pace of improvement has moderated” **Powell said, in what is a preamble for the latest request for a few trillion in fiscal stimulus funds, which the Fed promises to quickly monetize. Whether or not Congress agrees to release the funds will likely depend on the outcome of the Georgia’s runoff elections in January, which will decide the composition of the Senate.
+川普总统的大律师林·伍德(Lin Wood)从佐治亚州开始进行联邦层面的诉讼([世纪大案33: 证人缺席](https://gnews.org/zh-hans/593700/))，并且开始频繁地在媒体上表达观点。最近以来，林·伍德火力全开，一边开始直接揭露中共投放病毒，另一边开始更加密集地炮轰首席大法官罗伯茨。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02093458/800.jpg)杰弗里-爱泼斯坦的受审照片 图片来源：AP
 
-鲍威尔在最近要求数万亿美元财政刺激资金，且美联储承诺将迅速货币化的前提下表示，“尽管近几个月来经济活动从第二季度的低迷状态继续复苏，但改善的步伐有所放缓。国会是否同意释放这笔资金很可能取决于一月份佐治亚州大选的结果，这将决定参议院的组成”。
 
-Tomorrow’s hearing will be the first appearance of Powell and Treasury Secretary Steven Mnuchin together since they disagreed over the expiration of several emergency loan programs set up after the pandemic hit in March.
+9月5日，林·伍德在推特上说：“如果诉讼律师没有勇气说出腐败法官的真相，我们还能指望谁去说？在联邦司法系统有腐败的现象。比如说，法官不应该坐杰弗里·爱泼斯坦(Jeffrey Epstein)的私人飞机。爱泼斯坦的飞行记录中，那个叫约翰·罗伯茨的人是谁？”
 
-明天的听证会将是鲍威尔和财政部长史蒂芬·姆努钦自3月份疫情袭击后他们在设立的几个紧急贷款计划到期存在分歧以来的首次共同露面。
+之后在金斯伯格刚刚去世不久的9月20日，他发推说罗伯茨大法官不值得信任，不配称为保守派法官，他是有问题的。
 
-Commenting on the Fed’s “13(3)” emergency facilities, Powell said that these programs “serve as a backstop to key credit markets and have helped restore the flow of credit from private lenders through normal channels. We have deployed these lending powers to an unprecedented extent. Our emergency lending powers require the approval of the Treasury and are available only in very unusual circumstances, such as those we find ourselves in today. Many of these programs have been supported by funding from the Coronavirus Aid, Relief, and Economic Security Act (CARES Act).”
+11月30日，林·伍德再次发推特：“有没有人对杰弗里·爱泼斯坦的飞行记录中，那个叫约翰·罗伯茨的人的身份有进一步的了解？”
 
-鲍威尔在评论美联储的“ 13（3）”紧急措施时说，这些计划“充当了关键信贷市场的支撑，并帮助恢复通过正常渠道来自私人贷方的信贷流。我们已将这些借贷权以前所未有的程度部署。我们的紧急贷款权力需要获得财政部的批准，并且仅在非同寻常的情况下才可用，例如我们今天所遇到的情况。其中许多计划得到了冠状病毒援助，救济和经济安全法（CARES Act）的资助。
+飞行日志上的这位约翰·罗伯茨是否就是美国最高法院的首席大法官呢？爱泼斯坦是曾被判性侵未成年人而入狱的，后被控性虐和拐卖儿童。但羁押期间在狱中离奇死亡。很多政商名人同爱泼斯坦维持较近的私人关系，并到访过爱泼斯坦进行虐童活动的私人岛屿，即性奴岛，猜测有人雇凶将爱泼斯坦在狱中暗杀灭口(【热点播报】林伍德律师发推，最高法院保守派首席大法官难道也是沼泽的一部分？)。
 
-Powell also said that the Fed’s Main Street Lending Program – while not widely used currently – “offers a credit backstop for firms that do not currently need funding but may if the pandemic continues to erode their financial condition.”
+果真是《世纪大案》系列，美国的司法系统炸了锅。一边联邦法院系统的一号人物首席大法官约翰·罗伯茨被美国第一的人权律师林-伍德盯上，另一边联邦检察系统的一号人物司法部长比尔·巴尔(Bill Barr)又遇到了麻烦。在《[世纪大案 11：司法部长](https://gnews.org/zh-hans/409277/) 》我们谈过巴尔的生平：
 
-鲍威尔还提到美联储的“主街借贷计划”，虽目前未得到广泛使用，“仍会为目前不需要资金但可能被疫情持续恶化财务状况的公司提供信贷支持”。
+比尔·巴尔在纽约上西区知识分子家庭长大，母亲曾在哥伦比亚大学任教。巴尔父子都在中情局工作过。比尔·巴尔在哥伦比亚大学读完本科和硕士，专注于中国研究，毕业后去中情局做了情报分析员。他在川普内阁接手司法部后，成为美国司法部最懂得中国问题的专家。父亲唐纳德·巴尔(Donald Barr)是纽约顶尖的道尔顿(Dalton)私立学校的校长，多年前曾把纽约大学肄业生，后来的性奴岛岛主爱泼斯坦招来做数学老师，爱泼斯坦也从而开始结交学生家长名流，开始了他的名利场生涯，他引来了《世纪大案》的另一个重大线索，而巴尔因此也曾经回避此案。
 
-That said, Powell admitted that the CARES Act assigns sole authority over its funds to Mnuchin, writing that “the Secretary has indicated that these limits do not permit the CARES Act-funded facilities to make new loans or purchase new assets after December 31 of this year. Accordingly, the Federal Reserve will return the unused portion of funds allocated to the lending programs that are backstopped by the CARES Act in connection with their termination at the end of this year. As the Secretary noted in his letter, non-CARES Act funds in the Exchange Stabilization Fund are available to support emergency lending facilities if they are needed.”
+有趣的是，比尔·巴尔的老爹唐纳德·巴尔和性奴岛岛主爱泼斯坦有没有更深层的关系呢？唐纳德·巴尔写过两本科幻小说，其中这本出版于1973年的《太空关系》，讲的是未来世界的星际故事，其中的情节涉及跨星际性奴贸易。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02093950/space-relations-epstein-barr.jpg)唐纳德·巴尔写的科幻小说《太空关系》
+12月1日，司法部长比尔·巴尔接受美联社(AP)采访时表示，联邦检察官和FBI探员一直在努力跟进他们收到的选举舞弊投诉和信息，但是没有发现任何会改变2020年大选结果的大范围舞弊证据。这段话让公众立即怀疑司法部长巴尔究竟是川普总统的得力干将，还是隐藏在沼泽深处的暗黑势力？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02094105/Screen-Shot-2020-12-02-at-7.01.29-pm-1.png)川普法律团队针对巴尔关于竞选舞弊言论的声明
 
-话虽如此，鲍威尔承认CARES Act将其资金拥有唯一的权力交给了姆努钦，并写道：“部长已指出，这些限制不允许CARES Act资助的机构在2020年的12月31日之后发放新贷款或购买新资产。因此，美联储将归还分配给贷款计划的未使用的资金，这些贷款计划由CARES Act支持并于今年年底终止。正如部长在信中指出的那样，如果需要，可使用外汇稳定基金中的非CARES Act资金来支持紧急贷款机构。
 
-In his own set of [prepared remarks](https://home.treasury.gov/news/press-releases/sm1196), Mnuchin said that he continues to believe “that a targeted fiscal package is the most appropriate federal response” and he strongly encourages Congress “**to use the $455 billion in unused funds from the CARES Act to pass an additional bill with bipartisan support” **adding that the Administration is standing ready to support Congress in this effort to help American workers and small businesses that continue to struggle with the impact of COVID-19.
+川普法律团队迅速给与回应。林·伍德律师个人也给与公开反驳([【热点播报】巴尔总检察长，另一只沼泽硕鼠](https://gnews.org/zh-hans/609720/) )。
 
-姆努钦在一系列准备发言中说，他继续相信“有针对性的财政计划是最合适的联邦对策”，并且他强烈鼓励国会“利用《 CARES Act》中的4,550亿美元未动用资金来通过额外的两党支持法案”，并补充说，美国政府已准备好支持国会，以帮助美国工人和小型企业继续抵抗中共的影响。
+就在万众瞩目中等待比尔-巴尔对自己的解释，包括解释为什么在他任职司法部长期间，司法部和FBI没有实质性地抓到任何要犯归案时，另一件事又炸裂了舆论。
 
-Mnuchin announced earlier this month that those Fed programs must sunset at the end of December, and asked the central bank to return unused funding authorized for the programs by Congress. The Treasury also said it plans to move that unspent money into its general account, over which Congress has authority.
+12月1日，我们人民大会(WTPC, We the People Convention)在《华盛顿时报》(Washington Times)刊发整版广告呼吁，如果立法机构、法院和国会不遵守宪法，总统必须援引《有限戒严法》(Martial Law)举行新的选举，保护人民的选票([重磅 – WTPC：川普总统必须宣布戒严令 重新选举](https://gnews.org/zh-hans/609177/) )。
 
-姆努钦在本月早些时候宣布，这些联储计划必须在12月底终止，并要求央行退还国会授权用于该计划的未使用资金。财政部还表示，计划将未动用的资金转入国会批准的普通帐户
+林·伍德迅速转推指出：“我们的国家正走向内战的边缘，一场由第三方的拙劣的演员为他们自己的利益挑起的战争，这一切都不是为了我们的人民。中共正在领导邪恶势力夺取我们自由。川普总统应该宣布戒严令。”
 
-[link：](https://www.zerohedge.com/markets/despite-positive-news-vaccine-front-outlook-remains-extremely-uncertain-powell-tells)
+有趣的是，WTPC的广告中大幅回顾了南北战争时期林肯总统整肃国家体制的举动，其中的一条就是：
 
-笔者观点：
+“美国首席大法官罗杰·塔尼(Roger Taney)裁定，林肯非法中止人身保护令违反了美国宪法。听完这个消息后，林肯签署了逮捕令，逮捕了美国首席大法官。”
 
-中共病毒在全球的大面积传播和持续感染，已经重创美国经济。现在美国经济的回暖只是建立在政府大规模经济刺激、美联储大量超发货币和疫苗假消息的基础上，犹如无根之木。
+美国历史上最伟大的总统之一林肯，为了国家的未来，不惜冒天下之大不韪，签发逮捕令逮捕首席大法官，这件事史称塔尼逮捕令(Taney Arrest Warrant)。林·伍德律师对WTPC的公开呼吁显然是知情者。这是否意味着，川普总统有可能打掉约翰·罗伯茨这只美国司法系统最大的沼泽生物呢？
 
-此轮的经济刺激和超发货币只会导致资本市场的泡沫更加巨大化和美元信用崩溃。闫丽梦博士早已警告美国政府和民众，不消灭中国共产党，不可能制造出有效的中共病毒疫苗。
+(待续)
 
-现在任何经济措施只能延缓经济危机的脚步，因为中共仍在持续散播和制造病毒。如果不能短期内消灭中共，拿到病毒的关键毒株和相关数据，等待美国和世界的恐怕是比20世纪30年代大萧条更恐怖的未来。
+相关链接：
 
-[援引原文](https://www.zerohedge.com/markets/despite-positive-news-vaccine-front-outlook-remains-extremely-uncertain-powell-tells)
+【[世纪大案33](https://gnews.org/zh-hans/593700/)】【[世纪大案32](https://gnews.org/zh-hans/578520/)】【[世纪大案31](https://gnews.org/zh-hans/578302/)】【[世纪大案30](https://gnews.org/zh-hans/578254/)】【[世纪大案29](https://gnews.org/zh-hans/567956/)】
 
-本文作者：Stranger
+【[世纪大案28](https://gnews.org/zh-hans/566429/)】【[世纪大案27](https://gnews.org/zh-hans/550586/)】【[世纪大案26](https://gnews.org/zh-hans/550444/)】【[世纪大案25](https://gnews.org/zh-hans/543837/)】【[世纪大案24](https://gnews.org/zh-hans/534903/)】
 
-审核校对：玫瑰天空
+【[世纪大案23](https://gnews.org/zh-hans/494049/)】【[世纪大案22](https://gnews.org/zh-hans/474325/)】【[世纪大案21](https://gnews.org/zh-hans/469262/)】【[世纪大案20](https://gnews.org/zh-hans/461127/)】【[世纪大案19](https://gnews.org/zh-hans/452366/)】
 
-上传排版：青葫芦娃
+【[世纪大案18](https://gnews.org/zh-hans/446437/)】【[世纪大案17](https://gnews.org/zh-hans/441412)】【[世纪大案16](https://gnews.org/zh-hans/438204/)】【[世纪大案15](https://gnews.org/zh-hans/432315/)】【[世纪大案14](https://gnews.org/zh-hans/426275/)】
+
+【[世纪大案13](https://gnews.org/zh-hans/424956/)】【[世纪大案12](https://gnews.org/zh-hans/415418/)】【[世纪大案11](https://gnews.org/zh-hans/409277/)】【[世纪大案10](https://gnews.org/zh-hans/385869/)】【[世纪大案9](https://gnews.org/zh-hans/377802/)】
+
+【[世纪大案8](https://gnews.org/zh-hans/369116/)】【[世纪大案7](https://gnews.org/zh-hans/364009/)】【[世纪大案6](https://gnews.org/zh-hans/359272/)】【[世纪大案5](https://gnews.org/zh-hans/351469/)】【[世纪大案4](https://gnews.org/zh-hans/344780/)】
+
+【[世纪大案3](https://gnews.org/zh-hans/343557/)】【[世纪大案2](https://gnews.org/zh-hans/343551/)】【[世纪大案1](https://gnews.org/zh-hans/343549/)】【[世纪大案0](https://gnews.org/zh-hans/343534/)】
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
