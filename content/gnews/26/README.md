@@ -1,99 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 有关GTV视频分享的技巧（二）
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/609409/)
+## 【快讯】刘强东 “疯狂”卸任，中共“兔死狗烹”的又一牺牲品
+` Ronald` [轉載自GNews](https://gnews.org/zh-hans/609631/)
 
-作者：康州盘古农场-Lioulun
+内新闻/素材：鹰(文言) 校对：七哩香
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02052441/image0-1.jpg)
+澎湃网12月1日转载中国新闻网消息，今年以来，刘强东已卸任京东及关联公司共计228家的230个职务。
 
-审核：康州盘古农场-Truemanman
+京东集团第三季度财报显示，即便在国内经济如此疲软下，前三季度总收入5214.74亿元（超2019年28.38%），第三季度净收入为1742亿元（同比增29.2%），净利润76亿元（远超去年同期的6亿元）。
 
-我在之前发过一篇关于GTV视频分享的文章，里面提到过使用手动提取的视频 m3u8 文件的地址进行视频转载，那么今天我们来说说如何仅仅通过视频页面的 url 得到 m3u8 文件的地址。
+与此呼应的却是创始人刘强东的“疯狂”卸任，仅3、4月份分别卸任38、44个职务，今年至今卸任职务已达230个。
 
-我们先准备一点数据作为分析依据：
+自2018年京东集团与海航集团签署战略合作协议后，关于2015年刘强东悉尼豪宅Party上客人的性侵丑闻，炒爆国内媒体；之后更有当年9月初刘强东在明尼苏达州涉嫌性行为犯罪被捕事件，网络上传得如火如荼。
 
-[0]
+诸如此类，意味着王岐山等中共权贵阶层染指京东利益，开始对刘强东下手。2019年下半年开始，刘强东卸任云计算、物流等重点领域的职务，日渐被逐出管理核心。同期也有马云的卸任。
 
-[https://web.gtv.org/video/id=5fc7025bee9d341c2b4109c1](https://web.gtv.org/video/id=5fc7025bee9d341c2b4109c1)
+相同的是，两者最先被拿掉的都是云计算这一核心位置的掌控权，之后马云也被媒体炒作患上癌症。
 
-[https://filegroup.gtv.org//group5/vm3u8/20201202/02/56/5fc7025bee9d341c2b4109c1/hls.m3u8](https://filegroup.gtv.org//group5/vm3u8/20201202/02/56/5fc7025bee9d341c2b4109c1/hls.m3u8)
+中共对白手套一定是“兔死狗烹”，相信共产党，跑步进坟场。刘强东的被迫离席只是其中一个缩影，而掌控上万亿资产的王健惨死，更是揭露中共的绞肉机规则。企业家依靠官商勾结拿到的资产和自身安全，随时可以被中共肆意处置。
 
-[1]
+相较于王健的惨死，吴晓辉、肖建华的被抓，叶简明的被死亡消息，刘强东算是“幸运”的，至少他本人和家人现在还是“自由”的，以“裸退”换取人身安全，无疑是墙内白手套的最好结局。
 
-[https://web.gtv.org/video/id=5fc660db20c9025a87db75f5](https://web.gtv.org/video/id=5fc660db20c9025a87db75f5)
+但仍有中共洗脑下的企业家在幻想，意图继续傍官发财、傍官牟利，如马云的“第二春”、许家印的“逼宫”。由于中共掠夺习性不会变，白手套们知道越多秘密，越活跃，财产越多，越是作茧自缚，自身也越危险，只会遭受更多灾难。
 
-[https://filegroup.gtv.org//group5/vm3u8/20201201/15/27/5fc660db20c9025a87db75f5/hls.m3u8](https://filegroup.gtv.org//group5/vm3u8/20201201/15/27/5fc660db20c9025a87db75f5/hls.m3u8)
+新闻来源：
+刘强东今年卸任公司职务累计230个，多涉及物流供应链企业
+[https://www.thepaper.cn/newsDetail\_forward\_10217259](https://www.thepaper.cn/newsDetail_forward_10217259)
 
-[2]
-
-[https://web.gtv.org/video/id=5fc65c7120c9025a87db741b](https://web.gtv.org/video/id=5fc65c7120c9025a87db741b)
-
-[https://filegroup.gtv.org//group5/vm3u8/20201201/15/08/5fc65c7120c9025a87db741b/hls.m3u8](https://filegroup.gtv.org//group5/vm3u8/20201201/15/08/5fc65c7120c9025a87db741b/hls.m3u8)
-
-以上是三段视频的播放页面的地址以及对应手工获取的 m3u8 文件的 url，下面我们将使用其地址直接推导出 m3u8 文件的 url。
-
-### **第一步 确定常量、变量**
-
-很明显“https://filegroup.gtv.org//group5/vm3u8/“以及“/hls.m3u8“都是固定不变的常量，而中间的部分则为变量，例如：“20201202/02/56/5fc7025bee9d341c2b4109c1”、“20201201/15/27/5fc660db20c9025a87db75f5”。
-
-### **第二步 分析变量**
-
-可以发现变量部分的后段的16进位编码就是视频播放地址的id，例如：“id=**5fc7025bee9d341c2b4109c1**“对应”20201202/02/56/**5fc7025bee9d341c2b4109c1**“。所以可以直接用播放页面的地址得到这个字段。
-
-接下来很明显发现，前部分的内容模式为如下形式：
-
-年月日/小时/分钟
-
-通过对视频上传记录的对照可以发现这个日期时间应该就是视频的最早发布事件，接下来的重点是如何得到该字段信息。
-
-**我这里已经通过比对发现如果将 id 字段的前8个16进位数取出就是一个精度到秒的时间戳，把它转换成UTC时间就得到了视频发布的日期和时间，并能够对应 m3u8 地址的字段。**
-
-公式如下：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02041106/%E5%9B%BE%E7%89%8718.png)
-### **第三步 代码实现**
-
-import time
-
-​test = ‘https://web.gtv.org/video/id=5fc7025bee9d341c2b4109c1’
-
-​tpl = ‘https://filegroup.gtv.org/group5/vm3u8/{}/hls.m3u8’
-
-​id = test.split(‘id=’)[1]
-
-print(id)
-
-​timestamp = int(id[:8], 16)
-
-print(timestamp)
-
-​utc = time.gmtime(timestamp)
-
-date = f'{utc.tm\_year}{utc.tm\_mon:02}{utc.tm\_mday:02}’
-
-hours = f'{utc.tm\_hour:02}’
-
-minutes = f'{utc.tm\_min:02}’
-
-segment = f'{date}/{hours}/{minutes}/{id}’
-
-print(segment)
-
-​url = tpl.format(segment)
-
-print(url)
-
-输出结果：
-
-5fc7025bee9d341c2b4109c1
-
-1606877787
-
-20201202/02/56/5fc7025bee9d341c2b4109c1
-
-https://filegroup.gtv.org/group5/vm3u8/20201202/02/56/5fc7025bee9d341c2b4109c1/hls.m3u8
-
-需要注意的是由于 GTV 版本的更新所以字段 /group5/ 可能会随着改变，不过一般可以采用连接测试的方式简单确定具体版本，毕竟版本不像日期时间那样频繁变更。
-
-
-
-1+
+2+

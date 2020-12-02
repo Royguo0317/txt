@@ -1,29 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 彼得•纳瓦罗转推，证据显示中共收购了多米尼投票系统
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/607788/)
+## 【重磅！】美国空军中将托马斯·麦金纳尼接受WVW电视台采访
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/608382/)
 
-- 编辑：Victor Torres、文顺
+听写/翻译: 势不可挡；PR: TCC；视频字幕：文府；
 
-
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-西班牙2020年12月1日电/西喜社/——美国证券交易委员会一份文件显示：多米尼投票系统的母公司从一家瑞士投资银行获得了4亿美元，中共政府拥有该银行75％的股份。
-
-据“奥斯汀安全和调查解决方案”提供的报告说:“瑞银证券是一家瑞士投资银行，它拥有中国投资银行瑞银证券有限公司24.99％的股份。瑞银证券有限公司的其余75％股份归中国政府所有。”
-
-该消息由Disclose.tv在推特发布，皮特·纳瓦罗（Peter Navarro）转发该推文并连呼好奇。
+简评/组稿编辑：Julia Win；Page：拱卒
 
 
 
-> Curious and curiouser. [https://t.co/9Zb75yzFAR](https://t.co/9Zb75yzFAR)
-> — Peter Navarro (@RealPNavarro) [December 1, 2020](https://twitter.com/RealPNavarro/status/1333825972550963203?ref_src=twsrc%5Etfw)
 
 
+**简评：**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221622/PHOTO-2020-11-26-13-19-21.jpg)
+托马斯·麦金纳尼在接受WVW电视台采访时说：川普总统必须宣布国家进入紧急状态，执行两年多前的外国势力干涉美国大选的行政命令； 总统还应该使用《暴动法》，因为一股暴动势力正在我们国家形成，看看黑命贵和安提法以及其他组织就知道； 我们的法官竟对选票舞弊提出质疑，并说证据不足，总统应该在国家紧急状态下立即逮捕这些人； 这些州都是有预先计划的，这是叛国行为，不是投票舞弊，他们正试图推翻这个政府！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+今天，我们看到，躲在地下室月余的司法部长的巴尔，竟然在接受媒体采访中不顾大量证据和事实，声称：“司法部并未发现2020年美国大选中有足以推翻选举结果的舞弊证据。”
+
+看来川普总统在大选后首次接受媒体采访惊人指控：“司法部和FBI或涉嫌参与操纵大选结果”不是空穴来风！
+
+**视频：**
+
+**视频翻译：**
+
+川普总统必须宣布国家进入紧急状态，基于已发布于2018年9月12日，两年多前的行政命令。
+
+命令明确指出当我们的选举中有外国势力介入时，总统可以宣布国家进入紧急状态。
+
+总统还应该使用《暴动法》，因为一股暴动势力正在我们国家形成，看看黑命贵和安提法以及其他组织就知道。所以总统宣布紧急状态是非常重要的。
+
+他必须像1861年的林肯总统和1942年第二次世界大战爆发时的罗斯福总统那样，暂停《人身保护令》。
+
+这些破坏民主的罪犯，加上俄罗斯、中共和伊朗当局毫无掩盖地对美国的网路战。事实上，他们对此一直是公开、不加遮掩，并引以为傲的。
+
+他们做的所有事情，以及他们雇佣的所有人员，今天我看到很多照片，有人开车来并卸下尚未折叠并放入信封的邮寄选票。这是直接印刷上去的（选票）。我们的法官竟对此提出质疑，并说证据不足。
+
+这就是为什么国家紧急令的宣布非常重要，总统应该在国家紧急状态下立即逮捕这些人。这表明这些州都是有预先计划的，这是叛国行为。所以这是叛国罪，不是投票舞弊，而是叛国罪。他们正试图推翻这个政府。
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】-点击spark adobe版
+
+[!\[\]()!\[\](https://spark.adobe.com/page/lmHhWmwyl9HTb/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/lmHhWmwyl9HTb/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

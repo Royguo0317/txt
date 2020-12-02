@@ -1,31 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统发推：终结230条款，将纳入国防授权法案（NDAA）夺回美国，就在眼下 ！
-` 喜马拉雅凤凰农场–旧金山-金喜站` [轉載自GNews](https://gnews.org/zh-hans/609119/)
+## 澳大利亚要求中国就 &#8220;攻击性 &#8220;假照片道歉
+` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/609189/)
 
-**【突发】【快讯】川普总统於12月1日晚发推：将彻底终结230条款**，**纳入国防授权法案，掀翻大科技的保护伞 **
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02013916/%E6%BE%B3%E5%A4%A7%E5%88%A9%E4%BA%9A%E8%A6%81%E6%B1%82%E4%B8%AD%E5%9B%BD%E5%B0%B1-%E6%94%BB%E5%87%BB%E6%80%A7-%E5%81%87%E7%85%A7%E7%89%87%E9%81%93%E6%AD%89.png)
+翻訳/编辑：京都富士会　待命（文晓）
 
-推文如下：
+澳大利亚总理莫里森针对这篇投稿，指责“你还懂得羞耻吗”
 
-230条款是美国送给 “大科技”公司的礼物，是他们得以推卸责任的保护伞（唯独美国大科技公司們能享有这项企业福利！）这却是对我们的国家安全和选举公正性的严重威胁。如果我们允许它继续存在，我们的国家永远不会有安全和有保障。
+11月30日，中国政府官员在推特上发布了一张显示澳大利亚士兵杀害阿富汗儿童的假照片。
 
-……，因此，这项非常危险和极不公平的第230条款如果没有被纳入作为《国防授权法案》（NDAA）的一部分而被完全终止，当该法案被送到漂亮的决策桌上时，我只能明确地否决该法案。
+同日，澳大利亚要求中国为此道歉。
 
-夺回美国，就在眼下。谢谢大家！”
+澳大利亚总理斯科特-莫里森在电视讲话中说“中国政府应该为自己在社交媒体上分享这些令人反感的照片而感到羞耻”。
 
-”Section 230, which is a liability shielding gift from the U.S. to “Big Tech” (the only companies in America that have it – corporate welfare!), is a serious threat to our National Security & Election Integrity. Our Country can never be safe and secure if we allow it to stand…
+目前，中澳之间的政治关系非常紧张。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02014537/115695133_scomo1.jpg)
+在澳大利亚军方正被指控在阿富汗犯有战争罪的当下，中共发推的正是与此相关的照片。
 
-…… Therefore, if the very dangerous & unfair Section 230 is not completely terminated as part of the National Defense Authorization Act (NDAA), I will be forced to unequivocally VETO the Bill when sent to the very beautiful Resolute desk. Take back America NOW. Thank you!
+澳大利亚国防军（ADF）19日发布报告称“有 “可靠证据 “表明，特种部队的25名男子在阿富汗非法杀害了39人”。
 
-![](https://lh6.googleusercontent.com/f2hDMxw4KuNO1JUxJcZiThOvquB0boKRjxuvmhKmlV3bOPSGhiPUKINBgQWDCcZgqTCH_P8UIDAGzhUow0S4V7G3RmacVMJcHbqIOT4cxDbVSv2gH75dx9v1OSGAv5GyiiJp5eej)
+该报告引发了对澳大利亚军方的谴责，警方也开始介入调查。
 
-![](https://lh6.googleusercontent.com/CRNwxlkWc1vYF84JaVu4wxRRBQtbjmHVfO4tPknthU9qBNHpTOPcBW2pYZR3hDO656F7qSUlW9ADbhrxS2ffP30LB96h4TVOOLfaLXsVkq3JAKTMNJV8QeKVtFDqaUgKA7opV9lo)
+在此背景下，中国外交部发言人赵立坚，于11月30日在推特上发布了一张澳大利亚士兵用一把血淋淋的刀刃，对着一名抱着小羊羔的孩童的合成照片。
 
+作为澳大利亚公共广播公司的澳大利亚广播公司(ABC)就此报道称，该图片与未经证实的传言有关。该传谣指一名澳大利亚特种兵，在阿富汗用刀杀死了两名10多岁的孩子。而ADF的调查结果是，没有发现支持这一传言的证据。
 
+不过，报告谴责了非法杀戮的”可信的证据 “，以及特种部队中存在的 “战士文化”。并例举了下属士兵被迫杀死手无寸铁的平民作为他们的 “首杀”行为。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02014529/115695242_tweet.jpg)
+中国外交部发言人赵立坚11月30日在推特上发布了一张经过合成的假照片
 
+中国外交部发言人赵立坚在推特中说：”我们对澳大利亚士兵在阿富汗杀害平民和战俘的事实感到震惊。我们强烈谴责这些行为，并要求他们承担责任”。
 
+澳大利亚称其为 “虚假信息”，已向推特发出删除该帖子的请求。
 
-编译： Bingo 寸言心， **凤凰农场**–**舊金山**-金喜站
+总理莫里森说，这种推文 “真的令人反感，非常有攻击性，实在是令人愤慨”。
 
-4+
+他还说“这是张假照片，是对澳大利亚军队的恶意抹黑。中国政府应该为这篇推文感到羞耻，它也降低了中国在国际社会的威信”。总理还提到了两国之间的紧张关系，称”这不是解决问题的方法，其它国家也在密切关注澳大利亚与中国的关系”。
+
+两国之间的紧张关系将会如何发展？
+
+中国是澳大利亚最大的贸易伙伴，莫里森的言辞是其政府对中国最犀利的批评。
+
+在澳大利亚要求中国调查新型冠状病毒的来源后，两国关系开始恶化。此外，还有人质疑中共干涉澳大利亚的内政。
+
+中国针对这些批评，用经济制裁予以报复。暂停贸易，并对澳大利亚产品征收额外关税。
+
+本月初，中国驻澳大利亚大使馆向当地媒体公布了一份澳大利亚政府旨在恶化与中国的关系之政策当中的14项清单。清单中包括阻挠中国的投资计划，禁止华为的第五代移动通信系统(5G)，以及 “不断无理干涉新疆、香港和台湾的各种问题”。
+
+澳方回应称，在不改变政策立场的前提下，中国的贸易政策就是 “经济恐吓行为”。
+
+（英語記事　Australia demands China apology for ‘repugnant’ post）
+
+在豪中国大使館は今月初め、オーストラリアが中国との関係を悪化させようとしているとされる政策14項目を、地元メディア向けに発表。これには中国の投資計画の阻止や、華為技術（ファーウェイ）の第5世代移動通信システム（5G）の禁止、「新疆や香港、台湾の諸問題をめぐる、絶え間ない理不尽な介入」などが含まれていた。
+
+オーストラリアはこれに対し、政策的な立場は変えないとした上で、中国の貿易政策は「経済的な威圧行為だ」と指摘している。
+
+1+
