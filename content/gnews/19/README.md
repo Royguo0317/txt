@@ -1,31 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 朱利安尼对亚利桑那州议员: 如果你能拯救美国的选举权，你的政治生涯就是失去也值得!
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/608043/)
+## 【热点播报】CNN的转向言论，与乔拜登脚伤速恢复之默契
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/608209/)
 
-作者：[Cristina Laila](https://www.thegatewaypundit.com/author/cristina/) 
-发布时间：2020年11月30日11:53分 
-翻译：康州盘古农场 – Bruce (文白)
-校对：康州盘古农场 – 烟波浩淼
-审核：康州盘古农场 – V
+作者：纽约香草山写作组 Daxia
 
-朱利安尼（Rudy Giuliani）对亚利桑那州议员说：”如果你能拯救美国的投票权，你的政治生涯就是失去也值得”，人群中爆发出欢呼声。
+** **
 
-川普总统的私人律师鲁迪·朱利安尼和川普竞选活动的高级法律顾问詹娜·埃利斯（Jenna Ellis）周一出现在亚利桑那州立法者的公开听证会上。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01180749/r-t.png)
 
-民主党人在媒体的叛徒帮助下，利用各种形式的选民舞弊，偷走了亚利桑那州（总统选举）。
+据Fox news 报道，拜登已经恢复正常行走，右脚外部带有保护套。几天前，拜登被自己的爱犬弄伤了脚，去医院进行了检查。对于一个70多岁高龄老者来说，他能在如此短暂的时间内迅速恢复行走，也堪称奇迹。
 
-川普的法律团队认为，民主党人将邮寄选票作为落后太多时的备用票。
+据《路德社》12月1日早间报道，美国主流媒体CNN的一篇报道称：“中共早期隐瞒了病毒真相，这一切都是中共的错。” 一直替中共站台的美国所谓主流媒体之一，长期以来为中共歌功颂德的CNN，难道选择了弃暗投明？这是否与拜登迅速恢复的脚伤有直接关联？
 
-鲁迪·朱利安尼在周一的开场辩论中火力全开。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01180924/5%E4%B9%9F5.png)
 
-当鲁迪·朱利安尼向州议员发出号召时，人群爆发出欢呼声。”我要请你们去战斗…… 如果你们能拯救美国的选举权，你们的政治生涯是值得失去的。”
+凭借爆料革命对共产党的了解及情报分析，此行为是在为拜登“当选”总统后，与中共进行下一步的计划做铺垫。
 
-他还说：”在我们历史上的某些时候，某些男人和女人挺身而出，失去了他们的政治生涯，给我们带来了我们所拥有的权利。”
+1、中（共）国隐瞒疫情，这是中共的责任。
 
-**原文链接**：[https://www.thegatewaypundit.com/2020/11/crowd-erupts-cheers-giuliani-tells-az-state-lawmakers-political-career-worth-losing-can-save-right-vote-america-video/](https://www.thegatewaypundit.com/2020/11/crowd-erupts-cheers-giuliani-tells-az-state-lawmakers-political-career-worth-losing-can-save-right-vote-america-video/)
+2、接受釆访的黄延忠（谐音）专家声称：延误疫情是全球范围内的错误，即使100％透明，也会因疫情处于初期阶段，技术有限而导致抗疫不力。
+
+3、中共隐瞒疫情是迫不得已，川普总统弱化疫情的严重性也难推其责。总统身边的高参设下圈套（福奇声称：不用戴口罩，不用封锁边境；习进平声称：这只是感冒，到4月份天气转暖，病毒会自然消失了），把责任推向川普。
+
+4、中（共）国会联合欧美及世卫组织一起调查，最后经专家确认，病毒来自于某种动物，源于自然，中共免责。
+
+5、 中（共）国配合美国研究疫苗，可在短期内解决疫情（通过停止放毒），并因最初隐瞒疫情而给美国政府做出象征性百亿美金赔偿，最终向美国证明中（共）国依然是值得信赖的。
+
+6、中（共）国不但不会被灭，反而会成为大国抗疫的典范，具备高度的国际责任感。
+
+7、疫情过后，中（共）国与美国共同参与重建国际秩序。
+
+拜登早已是中共牧养的一只家犬，协助中共统冶世界，奴役全人类。而CNN与拜登的默契配合绝非偶然，我们将试目以待，关注最终“滑稽”的大选结果。
+
+更多详情资讯链接
 
 
 
-0
+> [Stop The Presses — Joe Biden can still walk, miracle at 11…](https://www.citizenfreepress.com/breaking/stop-the-presses-joe-biden-can-still-walk-miracle-at-11/)
+
+
+
+审核发稿：悟空
+
+编辑：jamie(文胤)
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29231938/logo-3-1-1.jpg)
+
+
+
+
+
+3+

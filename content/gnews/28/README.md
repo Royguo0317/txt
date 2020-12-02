@@ -1,45 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 佐治亚州政府律师为多米尼公司的 &#8220;商业机密 &#8220;辩护，阻止对软件的分析
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/607849/)
+## 中国汽车能超越特斯拉？
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/608070/)
 
-*新闻来源：The National Pulse《国家脉动》；作者：本报记者（STAFF WRITER）；发布时间：2020年11月 30日*
+```
+作者: 阿娜
+校对/发稿人: Ting Guo
+```
 
-*翻译/简评：Bob1203(文虓)；校对/审核：万人往；Page：拱卒*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/V6yL4hzseLFzH/images/81a759d2-3dd8-4f0e-a705-9cacb2317d66.png?asset_id=54baed77-d7ff-4805-ae4c-1cf871e3bb28&amp;img_etag=%22b576e0726e4927a357523028ee5b975f%22&amp;size=1024)](https://spark.adobe.com/page/V6yL4hzseLFzH/images/81a759d2-3dd8-4f0e-a705-9cacb2317d66.png?asset_id=54baed77-d7ff-4805-ae4c-1cf871e3bb28&amp;img_etag=%22b576e0726e4927a357523028ee5b975f%22&amp;size=1024)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01164215/51fcbc7f-6da2-4b59-84c1-665611933b14.jpg)图片来源: *[https://www.yicai.com/news/100773246.html](https://www.yicai.com/news/100773246.html)*
 
-**简评：**
+《HKET》报纸报道说恒大公布首款电动车颜值不输给特斯拉，恒大汽车发布一组电动车新车实体图，疑似是回应国家发改委早前点名要求详细报告恒大 在各地的电动车投资和建设项目的真实情况。据内地汽车之家文章分析指出从图中多个细节来看，该车并非为量产车的状态，造型相当有个性，颜值不输给特斯拉，但大前提是是否能够真正量产。
 
-日前，大西洋地区法院法官蒂莫西·c·巴顿(Timothy C. Batten)公布的判令中暗示佐治亚州政府律师表面上是通过地方政府代表公众，为多米尼 “商业机密 “辩护，以阻止对机器/软件的取证分析，实质是在捍卫多米恩投票系统的“商业秘密”。政府律师为一家私营外国公司的“商业秘密”辩护，而不是试图确保美国公众的投票安全和公平。这么怪异的行为，真是滑天下之大稽！现在美国人民已经觉醒了，是惹不得的。如果惹翻了，是不好办的！
+我倒是认为这不过是恒大给自己的股票造成上涨趋势的一个噱头，又来割一拨国内股民的韭菜罢了。真正了解中国企业的都知道，中国做企业的技术不过都是拷贝和偷窃罢了。根据《印度时报》(The Times of India)的报导，特斯拉在中国的竞争对手是小鹏汽车(Xpeng)。这家中国电动汽车制造商最近因为其汽车配备激光雷达(LiDAR)视觉传感器而被媒体关注。特斯拉首席执行官埃隆·马斯克（Elon Musk）认为LiDAR视觉传感器是“昂贵的”和“不必要的”。 据报导，前苹果工程师于2018年被捕并被控以被控窃取专有信息。这与苹果公司传闻已久的自动驾驶汽车产品有关。该工程师于2015年开始为Apple工作，被指控下载与工程设计有关的某些文件，包含电路设计图和技术报告。离开苹果公司后，他加入了小鹏汽车在美的电动车公司XMotors。据马斯克说中国小鹏汽车偷走了特斯拉以及苹果公司的程式代码。
 
-**原文翻译：**
+郭先生曾经说过中国企业家加一起都比不上马斯克，他们喜欢抄袭，缺乏创新能力和务实精神。对于这些喜欢抄袭和偷窃技术的中国汽车制造企业又如何超越特斯拉呢？
 
-**奇怪:佐治亚州政府律师为多米尼 “商业机密 “辩护，以阻止对机器/软件的取证分析**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01052933/image0-720x720.png)***[https://discord.gg/77fCxw5mFv](https://discord.gg/77fCxw5mFv)**
+**[https://gab.com/himalaya\_italy](https://gab.com/himalaya_italy)***
 
-大西洋地区法院法官蒂莫西·c·巴顿(Timothy C. Batten)昨晚深夜公布的判令中有一条被埋没的线索，它描述了佐治亚州的律师——表面上是通过地方政府代表公众——捍卫多米尼投票系统的“商业秘密”。
-
-法院裁定，在科布郡（Cobb）、格温内特（Gwinnett）和切罗基（Cherokee），投票软件和其中包含的信息不应被销毁、删除或修改。
-
-**但该命令还透露:**
-
-“被告的律师还辩称，允许这种取证检查将给被告带来巨大的安全和专有/商业秘密风险。”
-
-政府律师为一家私营外国公司的“商业秘密”辩护，而不是试图确保美国公众的投票，这种奇怪的性质将引发人们对该公司参与美国投票系统的进一步质疑。
-
-在佐治亚州和多米尼投票系统之间的合同中，“商业秘密”一词被使用了不下九次。
-
-[原文链接](https://thenationalpulse.com/breaking/bizarre-georgia-govt-lawyers-defended-dominions-trade-secrets-to-stop-forensic-analysis-of-machines-software/)
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】-点击spark adobe版
-
-![]()![](https://spark.adobe.com/page/V6yL4hzseLFzH/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

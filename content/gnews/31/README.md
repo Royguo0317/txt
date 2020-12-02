@@ -1,39 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】血色革命染红香港历史科 考评局经理不堪政治压力请辞
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/607817/)
+## 突发：据共和党议员卢德米尔克 （Loudermilk)：一名IT技术人员和郡政府雇员从富尔顿郡的服务器上抹去了选举数据
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/608072/)
 
-编撰：文燕
+原文作者：吉姆·霍夫特（Jim Hoft）, 发布于2020年11月30日下午4:50
+翻译：康州盘古农场 – 黎明的光芒
+校对：康州盘古农场 – 烟波浩淼
+审核：康州盘古农场 – V
 
-覆核：文粤
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01125137/jpg-Untitled-1-05_xnQMk_1200x0.jpg)图片：立场新闻
-上届中学文凭试（DSE），试题要求考生根据试卷提供的资料及自己所学，解释是否同意「1900-45年间，日本为中国带来的利多于弊」，试题曝光后，由中联办控制的《大公报》和《文汇报》连日狙击考评局。教育局接着加入批评后，考评局最后撤销该考题。
+昨晚卡桑德拉·费尔班克斯报道，佐治亚州富尔顿郡的重新计票被推迟，原因是多米尼克投票系统的移动服务器在周日晚上崩溃。
 
-据【立场新闻】报导，事件中被香港党报狙击、有份出题的考评局评核发展部经理（历史）杨颖宇已经在 8 月请辞。杨近日离职前向考评局同事发道别电邮，披露请辞是因庞大政治压力，指教局完成调查后，自己亦势将被解雇。他又提到，自己有份遮掩考生被取消试题的答案，形容是担任评审工作以来「最可耻（disgraceful）的事」，流下不少眼泪。考评局则指出，没有向该职员施压及要求其辞职。
 
-据悉，文凭试历史科考前一天，左媒才针对杨颖宇在Facebook上一则只供好友阅读的贴文「没有日本侵华，哪有新中国？忘本呀！」大肆批评，隔日历史科试题出炉后，当晚杨即被教育局声明斥责。杨颖宇表示，种种「巧合」令人质疑试题在考前已外泄，且其个人社交网站确实遭至少2名黑客入侵过。
 
-杨并指出，5月发生审题委员会名单外流事件、7月亦有历史科评卷准则初稿被外泄的事情发生，接连的泄漏让他深感考评局的工作环境已不安全。
+> "Fulton County elections officials confirmed to 11Alive on Sunday that a newly-purchased Dominion Voting Systems mobile server had crashed earlier in the day."
+> 
+> "Technicians from Dominion have been dispatched to resolve the issue."[https://t.co/3VtEJaAOdp](https://t.co/3VtEJaAOdp)
+> — Jeff Carlson (@themarketswork) [November 30, 2020](https://twitter.com/themarketswork/status/1333213368119746562?ref_src=twsrc%5Etfw)
 
-11月30日，杨颖宇向考评局同事发信道别，以3千多字逐点反驳取消试题的理由依据，称请辞是因庞大政治压力，并质疑整宗事件过多「巧合」，令人质疑试题早已外泄。
 
-考评局自试题风波以来，已有多名人员请辞，包括秘书长苏国生、评核发展高级经理卢家耀、评核发展部主管温德荣、评核发展经理梁紫艳等人。考评局对此则回覆，局方虽接受相关职员请辞，但并无向请辞人员施压或要求辞职，并重申参与试题制作人员必须对履行职务时获悉的事宜保密，如有人泄漏机密资料，局方会严肃跟进。
+*“*富尔顿郡选举官员周日向11Alive证实，新购买的多米尼克投票系统移动服务器在当天早些时候崩溃了。” “多米尼克公司的技术人员已经被派去解决这个问题。”
+包括亚特兰大在内的该郡官员表示，服务器是新购买的。
 
-战友点评：
+“多米尼克公司的技术人员已经被派去解决这个问题，”富尔顿郡官员在当地电视台WXIA-TV获得的一份声明中说。”佐治亚州州务卿办公室也收到关于该问题的警示，并努力解决这个问题。”
 
-高等法院法官高浩文在判决书中，大篇幅反驳政府对试题的批评，明言不认为强大的政府如中央政府（’a strong government like that in the Mainland’）或者强大的人民如中国人（’strong people like the Chinese’）会因为几百名香港中学考生的答案而感到威胁。可是，事实就如此，独裁政权最怕的就是懂得思考的人民，历史的真相令独裁政权最不安。
+最近涉及多米尼克的事件肯定会进一步让这家饱受争议的公司的形象变得更差。
 
-前教育统筹局局长王永平在接受【明周】访问表示，试题风波本来是小事一宗，后来演变成大风波，反映今天很多事情，政府都以「政治正确」的立场去看待。 「假如将来历史课不再存在利弊，那就很『弊』！」「他们其实是规限了历史观，封杀了多角度思考，只容许你从一个角度思考，甚至​​不容许你思考，总之逆他意者，就是错！」。
+周一晚上，众议员巴里·卢德米尔克（Barry Loudermilk）(佐治亚共和党)告诉Newsmax，服务器不仅崩溃了，而且被富尔顿郡的员工把数据擦得干干净净。
 
-无可置疑，国安法下，红色政治凌驾学术自由之上，考试答案亦要求学生『政治正确』的指向，如同扼杀了下一代了解历史真相的权利，独裁政权才是歪曲历史的元凶。
+*众议员卢德米尔克：正如您所报道的，法官基本上扣押了某些投票机，以确保它们不会擦除数据。* *随后我们发现富尔顿县有效清除了其数据，因为在**多米尼克公司**告诉他不要使用该服务器之后，一名貌似是郡雇员的**IT**技术人员使用了错误的服务器进行重新计票。为了以防发生问题，他们备份了数据，但数据备份到了崩溃的同一台服务器上。* *现在，我们正在看数据是否真正保存在富尔顿郡的服务器上。* *我们不知道*
 
-以上观点仅代表笔者本人
 
-资来来源：立场新闻、大纪元香港
 
-[https://www.thestandnews.com/politics/%E9%A6%99%E6%B8%AF%E6%96%87%E9%9D%A9-%E6%AD%B7%E5%8F%B2%E7%A7%91%E5%87%BA%E9%A1%8C%E9%81%AD%E6%89%B9%E9%AC%A5-%E8%80%83%E8%A9%95%E5%B1%80%E7%B6%93%E7%90%86-%E8%AB%8B%E8%BE%AD%E5%9B%A0%E9%BE%90%E5%A4%A7%E6%94%BF%E6%B2%BB%E5%A3%93%E5%8A%9B-%E7%82%BA%E9%81%AE%E7%AD%94%E6%A1%88%E6%B5%81%E6%B7%9A/](https://www.thestandnews.com/politics/%E9%A6%99%E6%B8%AF%E6%96%87%E9%9D%A9-%E6%AD%B7%E5%8F%B2%E7%A7%91%E5%87%BA%E9%A1%8C%E9%81%AD%E6%89%B9%E9%AC%A5-%E8%80%83%E8%A9%95%E5%B1%80%E7%B6%93%E7%90%86-%E8%AB%8B%E8%BE%AD%E5%9B%A0%E9%BE%90%E5%A4%A7%E6%94%BF%E6%B2%BB%E5%A3%93%E5%8A%9B-%E7%82%BA%E9%81%AE%E7%AD%94%E6%A1%88%E6%B5%81%E6%B7%9A/)
+> A forensic analysis of the Dominion voting machines needs to be performed. 
+> 
+> Judge rules that Cobb, Gwinnett, and Cherokee County election officials are prohibited from erasing or destroying any of these voting machines. [https://t.co/FMxkOhBGRR](https://t.co/FMxkOhBGRR)
+> — Rep. Barry Loudermilk (@RepLoudermilk) [November 30, 2020](https://twitter.com/RepLoudermilk/status/1333440017553874944?ref_src=twsrc%5Etfw)
 
-[https://hk.epochtimes.com/news/2020-12-01/52672450](https://hk.epochtimes.com/news/2020-12-01/52672450)
+
+目前需要对多米尼克投票机进行取证分析。 法官裁定禁止科布县、格温内特郡和切诺基郡的选举官员擦除或销毁任何这些投票机。
+
+
+原文链接：
+
+
+
+> [BREAKING: GOP Representative Loudermilk: An IT Technician and County Employee Wiped the Election Data from Servers in Fulton County (VIDEO)](https://www.thegatewaypundit.com/2020/11/breaking-gop-representative-loudermilk-technician-county-employee-wiped-election-data-servers-fulton-county-video/)
+
+
 
 0

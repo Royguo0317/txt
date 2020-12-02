@@ -1,41 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 大熊猫为什么可以成为某些人的个人宠物？
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/607980/)
+## UBS瑞银： Dominion投票系统中共所有权曝光
+` GM107` [轉載自GNews](https://gnews.org/zh-hans/608287/)
 
-作者：桂花酒；校对：宁缺；审核：海阔天空；Page：拱卒
-[!\[\]()!\[\](https://spark.adobe.com/page/lmHhWmwyl9HTb/images/10d842b0-bd01-472b-b905-cec13eeb5815.jpg?asset_id=df5743a8-00a3-4de7-8ad6-c17ab487abc0&amp;img_etag=%228c64c1364b1c58f661529033699fa222%22&amp;size=1024)](https://spark.adobe.com/page/lmHhWmwyl9HTb/images/10d842b0-bd01-472b-b905-cec13eeb5815.jpg?asset_id=df5743a8-00a3-4de7-8ad6-c17ab487abc0&amp;img_etag=%228c64c1364b1c58f661529033699fa222%22&amp;size=1024)
-大熊猫被视为国宝，受到全世界人民的喜爱。中共央广中国之声11月6日的新闻报道，针对韩国艺人浓妆摸抱大熊猫幼崽，会给大熊猫带来哪些风险为题，请出了从事动物饲养工作20多年的武汉动物园动物管理部主管杨毅，让他为熊猫是否能够被人轻易摸抱提供各种依据。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01185940/dominion.jpg)
+一份来自美国证券交易委员会（SEC）的揭秘文件揭露了Dominion Voting Systems与中国投资者之间令人不安的财务纠葛。SEC文件由代表发行人Staple Street Capital的Hootan Yaghoobzadeh于今年10月签署。**这家私募股权公司自2018年以来一直是Dominion Voting Systems的所有者，这意味着2020年的收购将美国的选举系统归中共国所有。**美国证券交易委员会的文件详细说明了Staple Street Capital出售给中国投行瑞银证券有限责任公司（UBS Securities LLC）的情况。
 
-他从专业的角度谈到：接触成年的大熊猫是非常危险的，直接问题就是大熊猫很容易伤害到人。饲养员的工作服、工作裤、工作鞋是不能穿回家的，因为不这样的话就会牵扯到交叉感染的问题，会引发人畜共患病，如感染感冒病毒等。
+瑞银证券于2006年在中国首都北京成立。这家公司在中共政府的直接援助下变得庞大。**中共中央政府拥有的国电和中粮集团是瑞银证券的大股东，在中共的直接控制下运作。**据中共官方刊物《南华早报》报道，他们所属的国有资产集团估计价值超过26万亿美元。遗憾的是，这并不是中方与Dominion投票系统的第一次暗示。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01190120/china-ubs-1024x480-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01190209/125.png)
+这笔价值4亿美元的交易，对于依赖这些公众的政治派别来说，将是毁灭性的打击，因为他们对Dominion投票系统及其结果的信任。在俄罗斯干预2016年大选的事件被追问了4年之后，这次曝光中共国参与美国投票系统的事实，打破了整个政党的公信力。财务记录是事实证据，不能轻易解释掉。对于那些质疑2020年美国总统选举结果的人来说，这份文件起到了验证作用，因为2020年的美国总统选举结果已经受到了广泛的怀疑。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01190343/Screenshot-2020-12-01-140413-768x757-1.png)
+2007年芝加哥的一场选举在计票诉讼暴露了SmartMatics之后，凸显了基于GEMS的投票系统的真实性。一家名为红杉的公司在芝加哥统计选票时，发现了大规模的混乱，不得不对所有结果进行审查。他们发现SmartMatic的结果是，红杉是SmartMatic的幌子，就像Dominion是SmartMatic的幌子一样。**这些操纵选举的工具落入中共国的手中，对每一个使用这些系统的县、州或国家都是一个巨大的风险。**
 
-最后他总结道：“在动物饲养方面，不论是针对大熊猫，还是针对其他一些比较珍贵的动物，如果饲养过程中有一个环节出了问题，那会对整个工作都会有隐患。韩国艺人摸抱大熊猫会造成一个示范效应—可能会让公众认为大熊猫是可以直接接触的，并且熊猫宝宝是可以直接抱的。这就起到了一个反向的作用，这对动物、对公众都是不负责任的。”
+美国选举法禁止外国在选举过程的各个环节进行活动。关于筹款的严格规定阻止了外国对竞选活动的捐赠。這些法律旨在阻止外國人对美国政治制度的游說，并保留國內對選舉過程的控制和監督。关于在巴塞罗那和法兰克福进行海外计票的新闻严厉地提醒人们，将关键的政府职能外包是危险的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01190502/sec-ubs-1-860x1024-1.jpg)
+Dominion投票系统公司副总裁兼首席安全官Eric Coomer被拍到向私人听众承诺，川普总统不会赢得连任。这一说法来自FEC（Faith Education Commerce）创始人乔-奥特曼（Joe Oltmann），他说他渗透到了ANTIFA的一个分会，并记录了这次会面。据称，埃里克-库默（Eric Coomer）讨论了即将到来的选举，并对选举结果和他对选举的控制做出了明确的表态。**他对观众说，他已经确保川普不会获胜**。
 
-作为中国人，我们为能拥有被称作活化石的大熊猫，并为持续努力地保护着其生存的环境而感到欣慰。早在2016年，新华网就援引英国媒体报道称，中国野生大熊猫生存环境仍需更多保护。2015年，纽约时报中文网以“中国披露猎杀熊猫并肢解售卖案”为题报道云南野生大熊猫被王氏兄弟猎杀。随后2016年，中国政府网报道他们被判刑13年。
+**11月12日，川普总统签署了一项行政命令，针对中共恶意网络行动对美国及其人民的威胁**。该命令主要针对**中共军方为侵害美国利益而进行的金融投资**。**包括冻结资产，**并在财政部长的授权下**制裁任何参与这一活动的个人、公司或实体**。
 
-我们支持合法地保护世界濒危野生动物，也支持对猎杀行为的惩罚。但问题是，从已知的信息我们知道，身在美国的“孙瑶”可以把全世界、全中国视为珍宝的大熊猫作为宠物饲养。她的行为即没被认作违法，她本人也没背负任何道德质疑。另外，她凭什么可以把大熊猫从中国堂而皇之地运去美国？谁为饲养大熊猫提供了巨额资金？我们还想问，谁为孙瑶的大熊猫提供了饲养员？谁提供了适合熊猫生存的环境？谁提供了医疗保障？如果百姓提出问题，会不会被消失？会不会无法发声？会不会像现在贵为世界头号大国美国的总统川普先生一样，发不出声音？
+各州必须证明他们的选举符合州和联邦法律，其选民才能被选举团接受。12月14日，选举团将召开会议并进行投票。第一个获得270张选举人票的候选人将获得总统职位。州一级的争议或未能满足联邦对选举人的要求，可能导致任何一位候选人未能达到270票。这种结果不大可能发生，但在美国总统选举中曾经出现过。**如果选举团未能选出胜利者，则由众议院在州级投票中作出决定。**每个州投1票，与其立法机构的党派控制权一致，这对川普总统来说是必胜的。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/lmHhWmwyl9HTb/images/9889c6cc-3d2c-497f-8da3-2b476ff89d5b.jpg?asset_id=676ebe6c-1dde-46d7-b06b-7efe989f67e4&amp;img_etag=%22187027b4b4d91b336e0ba1f6e8dfad41%22&amp;size=3412)](https://spark.adobe.com/page/lmHhWmwyl9HTb/images/9889c6cc-3d2c-497f-8da3-2b476ff89d5b.jpg?asset_id=676ebe6c-1dde-46d7-b06b-7efe989f67e4&amp;img_etag=%22187027b4b4d91b336e0ba1f6e8dfad41%22&amp;size=1024)孙瑶和她的宠物
+2020年总统大选的结果还没有最终确定，还得由我们的选举程序来决定。宣称获胜只是行使言论自由。如果两位候选人都宣称胜出而选择不认输，那么国家就别无选择，只能通过宪法程序进行选举，以达到一个有法可依的结果。对结果的争议还在继续，选民将于2020年12月14日召开。
 
-当然我们不愿意看到在没有任何防范措施的情况下，韩国艺人对熊猫作出不适当的抚摸和拥抱等任何可能危害到我们国宝的行为。亨特.拜登对自己亲侄女、中国9岁幼女的彻夜折磨；还有每年消失的数以万计的大陆儿童；中国红黄蓝幼儿园受到性侵后被老师恐吓的孩子们，他们的权利难道不如大熊猫？他们难道不配拥有做为人最基本的权利？他们为什么没有得到基本的司法审判的公平？更不用说当街被打死的香港的青少年，被消失的女孩的假母亲出来作证了。
+新闻来源：REPUB
+原文链接：[https://repub.li/chinese-ownership-of-dominion-voting-systems-exposed](https://repub.li/chinese-ownership-of-dominion-voting-systems-exposed)
 
-我们没有歧视，我们尊重事实，我们只要真相和公平。最后，我们要问一句，大熊猫到底属于谁？
-
-【文章仅代表作者观点】
-
-**新闻来源：**
-
-- [http://www.xinhuanet.com/world/2016-09/11/c\_129276518.htm](http://www.xinhuanet.com/world/2016-09/11/c_129276518.htm)
-- [http://www.gov.cn/xinwen/2016-04/29/content\_5069350.htm](http://www.gov.cn/xinwen/2016-04/29/content_5069350.htm)
-
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/lmHhWmwyl9HTb/)
-[!\[\]()!\[\](https://spark.adobe.com/page/lmHhWmwyl9HTb/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/lmHhWmwyl9HTb/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

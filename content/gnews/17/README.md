@@ -1,52 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发：据共和党议员卢德米尔克 （Loudermilk)：一名IT技术人员和郡政府雇员从富尔顿郡的服务器上抹去了选举数据
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/608072/)
+## 中共走狗李毅 口出狂言声称【中国人死4000人 算是零死亡】
+` GM108` [轉載自GNews](https://gnews.org/zh-hans/608257/)
 
-原文作者：吉姆·霍夫特（Jim Hoft）, 发布于2020年11月30日下午4:50
-翻译：康州盘古农场 – 黎明的光芒
-校对：康州盘古农场 – 烟波浩淼
-审核：康州盘古农场 – V
+作者：小妍说
 
-昨晚卡桑德拉·费尔班克斯报道，佐治亚州富尔顿郡的重新计票被推迟，原因是多米尼克投票系统的移动服务器在周日晚上崩溃。
+李毅自称是一个教授的半秃人形动物，因为几段视频在海内外彻底火了。第一段视频是2020年10月17日在深圳湾论坛上说到：“这场疫情咱们死了4千多人，但和美国死22万人一比，就等于一个人没死嘛，零感染，零死亡”。在这个一分钟的演讲视频里，看到场下有很多人戴口罩，李毅用手向台下一指，说“你看你看，还有这么多人还在戴口罩”，然后发出爽朗的大笑：哈哈哈哈哈哈哈！随后又说，“中国超过美国的时间提前了，2027年没问题，美国活不成了。14亿中国人都没认识到这一点，不是美国在整中国，是我们把美国逼得活不下去了！”是什么让中共国把美国逼的活不下去了？这不就是变相承认了中共制造病毒的事实了吗？ 随后11月24日，《新京报》的评论员熊志发表文章题目是《学者发言：“死四千人等于一个没死”，逝者生命岂能这样被归零？》，之后就出现了第二段视频：视频中，李毅晃动着谢顶一大半的油光锃亮的大脑袋，右手全程指指点点的说《新京报》是资本的力量，胆大妄为，威胁《新京报》。11月26日李毅的最新言论则是：我们跟新京报的友好关系啊，呵呵，都结了缘了，快成夫妻了，嘿嘿！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01185000/image-4.png)
+什么是奴才，什么是色厉内荏？看看李毅的视频就完全知道了，把中共惯用的那种一掐脖子就服软，一松手就骂的精神演绎的淋漓尽致。看看他说的话，这也能叫教授？叫兽还差不多。第一段视频中李毅面部扭曲，表情狰狞，丑陋到了极点，还是笑着说出，这场疫情咱们死了4千多人，但和美国死22万人一比，就等于一个人没死嘛，零感染，零死亡。这是在深圳，这要是在武汉说出这样的话，我都怀疑他能不能走出那座城市？这句话不管出现在什么地方都是豪无人性的，何况这位半秃人形动物教授还带着一股开玩笑的语气来说。四千多人的死亡怎么可以一笔抹煞？何况中共病毒的真实死亡人数远超过这个的百倍千倍，这些人命不是冰冷冷的数据，和你我一样，他们都曾是鲜活的生命。难道这些中国百姓的生命在所谓的半秃人形动物面前就那么不值钱吗，可以忽略不计吗？难道说他们的去世就是为了让你这个半秃人形的畜生来体现中共制度的优越吗？在中共国，某些人的眼中，普通百姓就是根韭菜，死多少都和没有死是一样的，人命只是一个数字而已。最可怕的不是这个半秃人形动物李毅说了什么，而是无论他说什么，还是有很多人相信他，支持他，甚至为他洗地。正常人难道看不出来李毅就是一个嘴巴拉垮的无耻之徒吗？就算他没有说4000人这类言论，那也是错误的，因为中共制造的病毒，美国受到重创，大量人生病死亡，难道作为中国人就应该高兴吗？请大家不要忘记，这些死去的人他们也是无辜的，怎么就变成了我们可以夸耀的功绩了呢？这就是反人类的论调。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01185039/image-12.png)
+在看看他针对新京报的言论，先夸自己是爱国人士、世界顶级学者，查了新京报没有官方背景，然后开始威胁对方，指着镜头骂街，质问对方走的是什么道路？好大的官威啊，通篇都在狡辩，说别人断章取义，我不想说新京报是不是断章取义，毕竟新京报也不是什么好玩意，就凭李毅那句“死四千人等于没死”，放在任何语境下都是不可原谅的，根本不存在断章取义。满嘴浓浓的中共的腔调，一股股腐尸般的恶臭扑面而来非常生动地诠释了什么叫狗仗人势，什么是寡廉鲜耻， 一脸面目狰狞杀气腾腾的老流氓做派，通篇扣帽子。“你看看这天空，你看看这大地…”，你在这舞台上表演话剧呢？开头的那句看看这是谁的天下？仿佛百姓如草芥，而他是人上人，在他的眼中，新京报没有背景，没有后台，就和一普通老百姓一样，所以他看不起，所以他可以毫无顾虑的攻击。并且李毅容不得别人的质疑，言语和行为缺乏逻辑，也没有用证据和论点去驳斥别人，而是用那种先丑化别人接着扣帽子打成敌对势力最后召唤狂热者群起攻之的方式去”打倒”对方。这不就是中共对付百姓的一贯做法吗？你是民，所以你说的都是放屁。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01185057/image-13.png)
+李毅的行为，是人类各种行为中，最为卑劣无耻的。他躲在安全的场所，用爱国和牺牲为口号，歌颂中共权力的伟大。这个畜生就是中共的一条恶犬，一个狗仗人势奴才。最后希望美国及其他西方主流国家，能够禁止这个畜生及其家人入境定居，这种半秃人形动物只适合在伊朗和朝鲜定居。
 
+GNEWS之前文章：
 
+生被虐待 死被阴婚 [https://gnews.org/zh-hans/604677/](https://gnews.org/zh-hans/604677/)
 
-> "Fulton County elections officials confirmed to 11Alive on Sunday that a newly-purchased Dominion Voting Systems mobile server had crashed earlier in the day."
-> 
-> "Technicians from Dominion have been dispatched to resolve the issue."[https://t.co/3VtEJaAOdp](https://t.co/3VtEJaAOdp)
-> — Jeff Carlson (@themarketswork) [November 30, 2020](https://twitter.com/themarketswork/status/1333213368119746562?ref_src=twsrc%5Etfw)
+人人都笑马保国 人人却都是马保国 [https://gnews.org/zh-hans/603767/](https://gnews.org/zh-hans/603767/)
 
+王清远两袖清风 毛洪涛死于心理疾病 [https://gnews.org/zh-hans/599821/](https://gnews.org/zh-hans/599821/)
 
-*“*富尔顿郡选举官员周日向11Alive证实，新购买的多米尼克投票系统移动服务器在当天早些时候崩溃了。” “多米尼克公司的技术人员已经被派去解决这个问题。”
-包括亚特兰大在内的该郡官员表示，服务器是新购买的。
+新闻链接：[https://dy.163.com/article/FS6ANFVA0517PC99.html](https://dy.163.com/article/FS6ANFVA0517PC99.html)
 
-“多米尼克公司的技术人员已经被派去解决这个问题，”富尔顿郡官员在当地电视台WXIA-TV获得的一份声明中说。”佐治亚州州务卿办公室也收到关于该问题的警示，并努力解决这个问题。”
+新闻链接：[https://dy.163.com/article/FS9VHEE405149IL1.html](https://dy.163.com/article/FS9VHEE405149IL1.html)
 
-最近涉及多米尼克的事件肯定会进一步让这家饱受争议的公司的形象变得更差。
-
-周一晚上，众议员巴里·卢德米尔克（Barry Loudermilk）(佐治亚共和党)告诉Newsmax，服务器不仅崩溃了，而且被富尔顿郡的员工把数据擦得干干净净。
-
-*众议员卢德米尔克：正如您所报道的，法官基本上扣押了某些投票机，以确保它们不会擦除数据。* *随后我们发现富尔顿县有效清除了其数据，因为在**多米尼克公司**告诉他不要使用该服务器之后，一名貌似是郡雇员的**IT**技术人员使用了错误的服务器进行重新计票。为了以防发生问题，他们备份了数据，但数据备份到了崩溃的同一台服务器上。* *现在，我们正在看数据是否真正保存在富尔顿郡的服务器上。* *我们不知道*
-
-
-
-> A forensic analysis of the Dominion voting machines needs to be performed. 
-> 
-> Judge rules that Cobb, Gwinnett, and Cherokee County election officials are prohibited from erasing or destroying any of these voting machines. [https://t.co/FMxkOhBGRR](https://t.co/FMxkOhBGRR)
-> — Rep. Barry Loudermilk (@RepLoudermilk) [November 30, 2020](https://twitter.com/RepLoudermilk/status/1333440017553874944?ref_src=twsrc%5Etfw)
-
-
-目前需要对多米尼克投票机进行取证分析。 法官裁定禁止科布县、格温内特郡和切诺基郡的选举官员擦除或销毁任何这些投票机。
-
-
-原文链接：
-
-
-
-> [BREAKING: GOP Representative Loudermilk: An IT Technician and County Employee Wiped the Election Data from Servers in Fulton County (VIDEO)](https://www.thegatewaypundit.com/2020/11/breaking-gop-representative-loudermilk-technician-county-employee-wiped-election-data-servers-fulton-county-video/)
-
-
+新闻链接：[https://baijiahao.baidu.com/s?id=1684149209552323389&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1684149209552323389&amp;wfr=spider&amp;for=pc)
 
 0

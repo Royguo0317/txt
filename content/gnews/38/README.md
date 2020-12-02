@@ -1,22 +1,752 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 两种不同的人生轨迹（一）
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/607702/)
+## DT挖掘战队出品 《真相》第一季 CCP盗国系列 从“淡马锡”开始
+` DT` [轉載自GNews](https://gnews.org/zh-hans/607926/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01114951/%E8%BD%A8%E8%BF%B91.jpeg)
-现在整个社会，整个世界流行的人生轨迹有两种，有规划的人生和没规划的人生，其结果是完全不一样的。在中国，因为历史的原因，很多都是独生子女，一个孩子其实会产生很多很多的社会问题。这些独生子女是整个家庭的中心，他基本上是被六个长辈照顾着、呵护着长大。爸爸、妈妈、爷爷、奶奶、外公、外婆六个人围着一个孩子转，因为这是两家人唯一的一个后代，所以六个大人全心全意的去照顾这个孩子。当然这是可以理解的，但是副作用就是把这孩子培养成了家里的小皇帝。这个小皇帝就养成了很多的坏习惯，一个坏习惯就是想要干嘛就干嘛，非常的任性、专横，高度的以自我为中心，他们习惯了别人都必须要让着他。第二个坏习惯就是想要有啥就得有啥，养成了奢侈浪费的坏习惯。这些小皇帝往往就在这样的环境中飞扬跋扈，而且他在家里不需要做任何的家务，家长都包办了，他们只要好好读书就行了。这个时候他们真是开心，快乐，这就是快乐的童年，儿童的天堂。
+DT挖掘战队出品
 
-当这些孩子长大以后走上社会，他真正的麻烦就来了。他由于在家里已经养成了高度的以自我为中心的这毛病，已经改不了了。他到了单位里面还是这样子，领导肯定不能喜欢这样的人；同事也不喜欢；客户也不喜欢；所以这样的人注定了在事业上他一定是磕磕绊绊，挣不到钱，事业不会成功。他过去还养成的奢侈浪费的坏习惯，他改不了。更惨的是当他们长大成人以后，两个小皇帝组成一个家庭，都想对方来伺候自己，都想说了算，结果当然是都不愿意让步，然后就掐起来了，这样的婚姻注定了矛盾重重，注定了他们的婚姻一定是很艰难，很痛苦的，这就是中年的战场，人生的战场。
+**DT挖掘说明**
 
-再后来第一代的小皇帝用同样的方法养育了第二代小皇帝，第二代养育了第三代，这时候，第一代就进入了凄惨的老年阶段。他自己升级成爷爷、奶奶、外公、外婆，他的孩子整个关注的重点就在他自己的孩子身上，哪有精力关注你这父母呢！所以很多老人在中国就是根本没人管，就这么孤独的终老。中国的养老体系很差，这就是老年的坟场。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01115107/life1.jpg)
-以上就是中国人的现状，西方国家还好一些，但是总体的人生轨迹都是一个透支形的，不断的走下坡路的人生。这就产生了一大堆社会性的问题，这是一个世界性的难题，里面有各种各样的社会问题、家庭问题都互相交织在一起，环环相扣，到处都是问题。我们大家听了是不是也很有感触，有没有感同身受啊?怎么解决这些问题？下一期我跟大家讲解一下我们的老祖宗，他们非常有智慧，他早就给他解决了这个问题，探索出了另外一条人生的路径，人生的轨迹，这是一条真正的幸福之路，千百年来历经检验。
+在已经发布的CCP恶行的爆料中，除了关于武汉病毒真相的相关爆料中，最早的就是关于中共贪腐家族的各种相关信息。令人气愤的是，DT所推出的这些资料随着TWITTER账号的屡屡被封而淹没在强大的中共防火墙之后。这件事让我们明白，中共的防火墙长城已经延伸到国际的互联网上，通过各种蓝金黄手段的渗透，不仅要把中国管起来，而且要把世界管起来。
 
-作者：比卡丘 阳光小曦
+“盗国”和“盗国集团”这些名词最早是郭文贵先生提出的（我习惯称之为七哥），这个准确和形象的词出自《庄子·胠箧》：“彼窃钩者诛，窃国者为诸侯；诸侯之门而仁义存焉。” 准确地表达了中共在窃取了政权和国家之后，又在1989年后通过所谓的“沉船计划”大量洗劫和盗取老百姓资产的事实。盗国就是我们通常戏说的“一茬一茬割韭菜”。相比于“割韭菜”，七哥的“盗国”和“在老百姓身上插着吸管不断吸血”的比喻更加形象和深刻。
 
-原创观点文章 – 2020/12/01
+《盗国系列》就是要揭示这些盗国者如何盗国和吸血的真相和事实，以及进行盗国吸血的方法、路径，最终的目标是揭示出这些盗国贼将盗取的中国老百姓的血汗财富隐匿在何处。让这些罪恶彻底曝光在阳光之下，接受历史的审判。
 
-温哥华圆成农场
+《盗国系列》系列涉及到《94号文件》和“建筑艺术项目”，同样也和其他文件如《91号文件》和P4实验室系列真相高度相关，涉及人员众多，所需要挖掘的资料十分庞杂。但是“盗国”却是整个中共大的计划的核心之核心，就是CCP确保“子子孙孙永享巨额的财富”。围绕着这个核心，才有了真正意义上的“沉船计划”，也正是盗取了巨额财富后，CCP这个恶魔才有能力制定和执行各种秘密的计划极权化中国，控制香港、台湾、甚至企图控制美国打败美国进而统治全世界。
 
-2+
+依据我们的调查挖掘，所挖掘出的超过100个中共家族盗取并转移到海外的财富已经超过几十万亿美元，仅江泽民一家在海外所拥有的财富价值就已经超过一万亿美元。
+
+当这些红后代们的帅哥美女在海外的豪宅庄园中豢养大熊猫为宠物而取乐时而我们看到国内还有杨改兰这样悲情母亲的时候，我们是出离的愤怒了。这些真相不仅仅对每个中国人，每个华人是一个心灵上的冲击，更是造成人格上的一次次分裂和考验。几十万亿和一万亿的数字是冰冷的，冰冷到已经到对数字中的多少零感到麻木，就和墙内的老百姓一样，对各种生活的压迫，住房还贷、住院花钱、上学交付等种种危机压力感到麻木一样。这是一个什么样的政府和体制啊，这是一个什么样的国家啊。
+
+跟随七哥和其领导的爆料革命揭示这些真相是我们的使命，也是我们每一个生活在或者在中共国生活过的华人的切身之痛、亲身之感。只有揭开真相，掀开被谎言掩盖的面具，才能找到未来的希望，才能找到出路。而这一切则刚刚开始。
+
+这又是一个长长的故事。 好了，我们就从“淡马锡”开始吧。
+
+**导语**
+
+- 这是一家什么样的公司？
+- 他们盗走的财富隐匿在哪里？
+- 这是沉船计划吗？
+
+
+【全部材料来自互联网可搜索内容】
+
+**1、从淡马锡开始**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/89036601-fddc-4d79-a2fb-39372d47e41f.png?asset_id=8edca6c3-b693-4402-bfb4-1430fd702dd7&amp;img_etag=%223fa34abb7fbee51d487be58af661ad1a%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/89036601-fddc-4d79-a2fb-39372d47e41f.png?asset_id=8edca6c3-b693-4402-bfb4-1430fd702dd7&amp;img_etag=%223fa34abb7fbee51d487be58af661ad1a%22&amp;size=1024)
+
+淡马锡成立于1974 年，是一家总部位于新加坡的亚洲投资公司。截至2013年3月31日，淡马锡拥有市值达2150亿新元的投资组合，主要集中在新加坡和亚洲地区。
+
+淡马锡公布的最新年度报告显示，截至2018年3月31日的财年末，淡马锡投资组合净值创历史新高，达2350亿美元，并维持净现金状态。其中，中国继续成为淡马锡在新加坡之外最大的投资目的地，占淡马锡全球投资组合的比重进一步上升为26%。
+
+一个控制3080亿新元资产的巨无霸，一个掌握了新加坡47%股票市值的巨人，一个在乌节路只占两层的神秘机构，淡马锡是如何做到的？
+
+2004年李光耀的儿媳妇、新加坡总理李显龙的夫人，何晶出任淡马锡董事长。
+
+2009年，何晶辞职。经过短暂的过渡，2012年林文兴正式接手了淡马锡。
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/fc9db625-ba99-4837-979e-b0a56d68a884.png?asset_id=22b7a375-c07b-441b-880b-2a1bc20ea00f&amp;img_etag=%22d82485ab055a04fe39cb376c71bff7b7%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/fc9db625-ba99-4837-979e-b0a56d68a884.png?asset_id=22b7a375-c07b-441b-880b-2a1bc20ea00f&amp;img_etag=%22d82485ab055a04fe39cb376c71bff7b7%22&amp;size=1024)
+淡马锡模式，简而言之就是政府——**淡马锡——企业的三级监管体制，其核心在于政府、国资运作平台、企业的三层架构**，政府控制国有资本，但不直接管理企业，三层架构给企业空间、给政府控制力，同时在微观运作中尊重市场。
+
+淡马锡特殊的董事会构成、以及分层递进的控制方式和有效的约束机制值得一提。
+
+以淡马锡特殊的董事会来讲，淡马锡控股有限公司的一个重要特点是主要由政府公务员兼任公司公司。董事会包括八名政府有关部门的代表：财政部常务秘书(相当于常务副部长)担任董事长，新加坡金融管理局局长、财政部总会计师、新加坡贸易发展局局长等都担任该公司的董事。**通过这种管理方式，政府对淡马锡进行了直接控制，因为淡马锡控股有限公司董事会在内部运营管理方面有权决定公司的经营方针、股息分配及配股等事宜，即便在投资决策、资金使用等方面也享有完全自主权。这才是关键！**
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/4baf145d-c938-49e2-9fcb-0114fd8e74b9.png?asset_id=9bd3b104-b8b8-4887-8f04-04261fd0c174&amp;img_etag=%22012230f88de28446bfed2d0c348537b1%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/4baf145d-c938-49e2-9fcb-0114fd8e74b9.png?asset_id=9bd3b104-b8b8-4887-8f04-04261fd0c174&amp;img_etag=%22012230f88de28446bfed2d0c348537b1%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/0b679cd0-0245-469f-bee1-3c4fd2d22e33.png?asset_id=85baa168-44c6-4f2a-a9fc-7c5cf41964d6&amp;img_etag=%223a29e46791c2d813feccf6055db397f6%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/0b679cd0-0245-469f-bee1-3c4fd2d22e33.png?asset_id=85baa168-44c6-4f2a-a9fc-7c5cf41964d6&amp;img_etag=%223a29e46791c2d813feccf6055db397f6%22&amp;size=1024)
+
+然而，淡马锡旗下的直属子公司都与政府无关，这些子公司都独立经营、自负盈亏，完全依照市场规则运营，经营机制与一般企业没有区别。
+
+**2 淡马锡在中国**
+
+官方资料，淡马锡公司2004年进入中国，2004年10月设立北京办事处；2005年在香港设立办事处；2006年上半年又在上海设立代表处。
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/fd8b1335-98cd-4714-a890-76292f072041.png?asset_id=f9e73a3d-8323-48ee-b083-19426f317768&amp;img_etag=%228effdefd9cdcda7e037f6810a329861b%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/fd8b1335-98cd-4714-a890-76292f072041.png?asset_id=f9e73a3d-8323-48ee-b083-19426f317768&amp;img_etag=%228effdefd9cdcda7e037f6810a329861b%22&amp;size=1024)
+从淡马锡的官方网站上我们可以看到：北京除了一个代表处外还有一家公司，而上海则是一家公司，我们看不到香港代表处的信息。
+
+下面我们就用天眼查（中国政府的开放的公司信用查询系统）对这些机构进行查询。
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/d34c4005-8796-4fb5-8234-6e09b34e762c.png?asset_id=de357c10-6434-4cd3-a548-4f90363bd087&amp;img_etag=%22f6f1c01917ecfe74f41bb308d6d7b312%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/d34c4005-8796-4fb5-8234-6e09b34e762c.png?asset_id=de357c10-6434-4cd3-a548-4f90363bd087&amp;img_etag=%22f6f1c01917ecfe74f41bb308d6d7b312%22&amp;size=1024)
+A 新加坡淡马锡国际私人有限公司 · 北京代表处
+
+Singapore Temasek International Pte. Ltd. Beijing Representative Office
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/524aa37b-a2e8-4279-bc0f-f6cf7ae95bf4.png?asset_id=3022e7a2-cd7b-40b9-8405-e414546dc892&amp;img_etag=%229e8aa251d97d0411c87d6c78c3a703b7%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/524aa37b-a2e8-4279-bc0f-f6cf7ae95bf4.png?asset_id=3022e7a2-cd7b-40b9-8405-e414546dc892&amp;img_etag=%229e8aa251d97d0411c87d6c78c3a703b7%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/8f3556a3-a5b2-4e95-aca1-e990ecccf65f.png?asset_id=a0dc7ffb-adb9-4ad1-9c00-76d481e41139&amp;img_etag=%22688fb55cbb80fa6eafa77ee56dca5383%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/8f3556a3-a5b2-4e95-aca1-e990ecccf65f.png?asset_id=a0dc7ffb-adb9-4ad1-9c00-76d481e41139&amp;img_etag=%22688fb55cbb80fa6eafa77ee56dca5383%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/53349ae6-32ca-4a17-ab5c-64f8c2f750ed.png?asset_id=9e328d33-cd56-417e-8128-b312da2b729e&amp;img_etag=%22e0eb005fc555b54ff612efb1ea8b1491%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/53349ae6-32ca-4a17-ab5c-64f8c2f750ed.png?asset_id=9e328d33-cd56-417e-8128-b312da2b729e&amp;img_etag=%22e0eb005fc555b54ff612efb1ea8b1491%22&amp;size=1024)
+B、淡马锡投资咨询（北京）有限公司 Temasek Holdings Advisors (Beijing) Co., Ltd
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/af485944-72a9-4ffc-9f7c-54138641dadc.png?asset_id=ed357077-4a5c-42aa-b8eb-290cf216dbf3&amp;img_etag=%2272a8c8027b1f74f43ba1cc8d5d8d12e0%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/af485944-72a9-4ffc-9f7c-54138641dadc.png?asset_id=ed357077-4a5c-42aa-b8eb-290cf216dbf3&amp;img_etag=%2272a8c8027b1f74f43ba1cc8d5d8d12e0%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/02dfe022-9de3-4c77-9d5b-cf046f176b65.png?asset_id=8594a67a-af92-4f97-995b-a0e85170c65a&amp;img_etag=%22d12d77217a332451041f8b449323a07f%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/02dfe022-9de3-4c77-9d5b-cf046f176b65.png?asset_id=8594a67a-af92-4f97-995b-a0e85170c65a&amp;img_etag=%22d12d77217a332451041f8b449323a07f%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/08fd9925-496f-427e-ad4d-795ac1b31065.png?asset_id=96d5debb-eed6-4c6f-9465-e88653cd61c9&amp;img_etag=%226b425adb8bf9024dd702dc3091945cd5%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/08fd9925-496f-427e-ad4d-795ac1b31065.png?asset_id=96d5debb-eed6-4c6f-9465-e88653cd61c9&amp;img_etag=%226b425adb8bf9024dd702dc3091945cd5%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/0a406427-3bc6-498e-859f-e674ad14efc5.png?asset_id=ed51107d-506f-4d29-8da0-5b38380ff313&amp;img_etag=%224c54a0002e61b68e456643012fa1dc23%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/0a406427-3bc6-498e-859f-e674ad14efc5.png?asset_id=ed51107d-506f-4d29-8da0-5b38380ff313&amp;img_etag=%224c54a0002e61b68e456643012fa1dc23%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/fc342f2a-ed3d-4b00-b120-35d1a95d431f.png?asset_id=b8c7d9fd-6b08-4a6f-9685-eca3129b96bf&amp;img_etag=%22a41c0485942204866a349b3bcd9ff624%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/fc342f2a-ed3d-4b00-b120-35d1a95d431f.png?asset_id=b8c7d9fd-6b08-4a6f-9685-eca3129b96bf&amp;img_etag=%22a41c0485942204866a349b3bcd9ff624%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/2ee917c8-eb95-4075-9227-06f7ab758432.png?asset_id=b1c08234-6657-460a-a974-1ae23ac7cae6&amp;img_etag=%2229f03d7aa23fc511b29e0021b7037a07%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/2ee917c8-eb95-4075-9227-06f7ab758432.png?asset_id=b1c08234-6657-460a-a974-1ae23ac7cae6&amp;img_etag=%2229f03d7aa23fc511b29e0021b7037a07%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/fcedb625-0bb5-4b16-a036-f3688b1e8c57.png?asset_id=4993ee89-c3da-46f1-b562-97df67e20fda&amp;img_etag=%220ccd3f073b59008122e98871a6f3e62c%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/fcedb625-0bb5-4b16-a036-f3688b1e8c57.png?asset_id=4993ee89-c3da-46f1-b562-97df67e20fda&amp;img_etag=%220ccd3f073b59008122e98871a6f3e62c%22&amp;size=1024)
+居然查出这么多淡马锡，有穿着马甲的，有换了马甲的，先不看他们，先查北京公司。
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/9896d132-b264-4173-993c-72a1fda9cab0.png?asset_id=0e3ccd7a-583e-480a-926f-dab45740e818&amp;img_etag=%22ba5fb71435290f611473b9f0d717db01%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/9896d132-b264-4173-993c-72a1fda9cab0.png?asset_id=0e3ccd7a-583e-480a-926f-dab45740e818&amp;img_etag=%22ba5fb71435290f611473b9f0d717db01%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/2cc8b012-1557-4f2c-968d-ebba10844c82.png?asset_id=2f47d9be-bdff-4a04-8c4a-3b65d3f1630d&amp;img_etag=%22c35c96f1825e6d928d6bc74bcfedeac8%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/2cc8b012-1557-4f2c-968d-ebba10844c82.png?asset_id=2f47d9be-bdff-4a04-8c4a-3b65d3f1630d&amp;img_etag=%22c35c96f1825e6d928d6bc74bcfedeac8%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/14022919-c45e-411b-9eff-4626410a0f0f.png?asset_id=8cfb0cbc-7bb3-4deb-88d9-a08b312a8c35&amp;img_etag=%22c6f6efa1190ab03eed596a0f00f1643b%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/14022919-c45e-411b-9eff-4626410a0f0f.png?asset_id=8cfb0cbc-7bb3-4deb-88d9-a08b312a8c35&amp;img_etag=%22c6f6efa1190ab03eed596a0f00f1643b%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/eef1bb46-6df9-4493-8591-3a0ea7c8bd3b.png?asset_id=7c9dcba1-1009-4623-bd90-c2ee632efc86&amp;img_etag=%22129470e69b1eb95599648d8dec03cc0d%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/eef1bb46-6df9-4493-8591-3a0ea7c8bd3b.png?asset_id=7c9dcba1-1009-4623-bd90-c2ee632efc86&amp;img_etag=%22129470e69b1eb95599648d8dec03cc0d%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/44bb321b-7f18-4c85-ba86-0a5d45388710.png?asset_id=5e96410a-0289-4895-a868-c7589608802d&amp;img_etag=%22171d0252f991bf17a3a7a4d0803367fc%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/44bb321b-7f18-4c85-ba86-0a5d45388710.png?asset_id=5e96410a-0289-4895-a868-c7589608802d&amp;img_etag=%22171d0252f991bf17a3a7a4d0803367fc%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/32f9366f-f2ff-4e63-a3f0-a094d2402d9e.png?asset_id=8aa53d59-07ec-4f92-8380-1afa6a44c4b1&amp;img_etag=%222d9af0bea82cf2bde059a7a58cfe0194%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/32f9366f-f2ff-4e63-a3f0-a094d2402d9e.png?asset_id=8aa53d59-07ec-4f92-8380-1afa6a44c4b1&amp;img_etag=%222d9af0bea82cf2bde059a7a58cfe0194%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/7962c2ea-c15f-4577-a56f-9f9ca8236e58.png?asset_id=d6249e26-e6b6-493e-b684-e184d2a458d9&amp;img_etag=%224745ac350d00ffbcf357ac2a6a7687dd%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/7962c2ea-c15f-4577-a56f-9f9ca8236e58.png?asset_id=d6249e26-e6b6-493e-b684-e184d2a458d9&amp;img_etag=%224745ac350d00ffbcf357ac2a6a7687dd%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/d4df8266-29ed-448f-9047-2452a2eb87ba.png?asset_id=3dccc565-16e3-4c84-af84-63818c67aa6b&amp;img_etag=%229264b0e2c0fc33a10d996b26a377285b%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/d4df8266-29ed-448f-9047-2452a2eb87ba.png?asset_id=3dccc565-16e3-4c84-af84-63818c67aa6b&amp;img_etag=%229264b0e2c0fc33a10d996b26a377285b%22&amp;size=1024)
+以上为天眼查的资料信息，注意几点：
+
+1、淡马锡投资咨询（北京）有限公司为外国法人独资有限责任公司，所以**法人应该拥有外国护照**。
+
+2、自公司2009年2月设立后**注册和实收资本为14万美元，没有增加过**。
+
+3、根据公司记录，现有参保人员为27人，也就是雇佣的中国籍员工不少于27人，根据行政许可记录，2016年东三环中路5号（财富金融中心）实际楼层44层第03-06单元（电梯楼层55层03-06单元）施工许可面积1853.41平米，将近2000平米的办公环境。
+
+4、法人变更2009年2月-2011年8月 法人**叶粹敏，2011年8月-2014年1月丁玮，2011年1月-今 吴亦兵**。根据以上资料我们列出公司的股东和法人变更情况如下表：
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/d2f6e166-c594-49fa-b2af-d654e4903816.png?asset_id=427787fa-e9e3-482a-9a3f-c4c0bf3f5ff3&amp;img_etag=%2229a7a3319dd43d14c7b62fbd0993ac9d%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/d2f6e166-c594-49fa-b2af-d654e4903816.png?asset_id=427787fa-e9e3-482a-9a3f-c4c0bf3f5ff3&amp;img_etag=%2229a7a3319dd43d14c7b62fbd0993ac9d%22&amp;size=1024)
+从以上表格可以看出：
+
+涉及以下人物：
+
+法人： 叶粹敏，丁玮，吴亦兵
+
+董事： 陈庆荣，顾炎飞，陈慧贞
+
+监事： 曹玉婷，刘毅然，任立
+
+和一家公司：**富敦资金投资私人有限公司** 其中**吴亦兵**是非常关键的人物，既是董事长又是总经理。
+
+**C 淡联投资咨询（上海）有限公司 **Temasek Holdings Consulting (Shanghai) Co., Ltd.
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/2bf3b147-aad6-4ed7-ad34-7bb7a09ceffc.png?asset_id=92801ed4-b662-4222-a91c-0021292cc82e&amp;img_etag=%229459b42e14c02da053b13b3e7ccd184d%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/2bf3b147-aad6-4ed7-ad34-7bb7a09ceffc.png?asset_id=92801ed4-b662-4222-a91c-0021292cc82e&amp;img_etag=%229459b42e14c02da053b13b3e7ccd184d%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/1302436f-943a-4ef6-832e-ef0b410969c4.png?asset_id=80c3437d-f7f9-47e4-8c40-43ee8bb73dd6&amp;img_etag=%220100618625eac621b19ebb6e7893a4eb%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/1302436f-943a-4ef6-832e-ef0b410969c4.png?asset_id=80c3437d-f7f9-47e4-8c40-43ee8bb73dd6&amp;img_etag=%220100618625eac621b19ebb6e7893a4eb%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/e8c0a208-881a-462c-908f-609e0dd9ed4c.png?asset_id=17ea31ec-beb2-4599-a250-7267eaa2fbcf&amp;img_etag=%22f1efc3830b37bfbf0f38edcdce301bef%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/e8c0a208-881a-462c-908f-609e0dd9ed4c.png?asset_id=17ea31ec-beb2-4599-a250-7267eaa2fbcf&amp;img_etag=%22f1efc3830b37bfbf0f38edcdce301bef%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/f4b74099-4d6b-4e1e-9a42-51dfd46c8920.png?asset_id=4f5a8080-775d-4946-b51e-56056c8c7202&amp;img_etag=%2263ad729dc65625eb1654e5a2beb0180a%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/f4b74099-4d6b-4e1e-9a42-51dfd46c8920.png?asset_id=4f5a8080-775d-4946-b51e-56056c8c7202&amp;img_etag=%2263ad729dc65625eb1654e5a2beb0180a%22&amp;size=1024)
+以上为通过天眼查的结果，注意几点：
+
+1、这家公司的注册资金同样为14万美元。
+
+2、参保人数同样为27人和北京的公司一样！
+
+3、注意董事2017年5月董事备案中CHEO HOCK KUAN变为CHAN WAI CHING，其中顾炎飞应该一直是董事，2015年曹玉婷取代傅佳 新增监事，2014-06-06傅佳取代曹清 为监事。
+
+董事会涉及的人物包括：
+
+法人： SHEN YE，WONG WAI QUEN,JEFFREY
+
+董事： CHEO HOCK KUAN，CHAN WAI CHING，顾炎飞
+
+监事： 曹玉婷，傅佳，曹清
+
+其中顾炎飞同时为北京代表处的代表，北京公司的董事，曹玉婷为北京公司的监事。
+
+为了进一步看清真相，我们再按照主要人物进行查询！
+
+1 顾炎飞
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/ee6c53e1-c911-42ea-8370-5b385759ab79.png?asset_id=1e07c70c-9408-4d5c-959f-6840458570f4&amp;img_etag=%22b29118e252233ce0452605a5e5a12e2d%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/ee6c53e1-c911-42ea-8370-5b385759ab79.png?asset_id=1e07c70c-9408-4d5c-959f-6840458570f4&amp;img_etag=%22b29118e252233ce0452605a5e5a12e2d%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/a7cb7545-18cb-4343-9747-d6c755b76b84.png?asset_id=1caed2ca-16fc-4fc9-a617-940422f8f874&amp;img_etag=%224b89d5f868f69d5f48721f2de24734e8%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/a7cb7545-18cb-4343-9747-d6c755b76b84.png?asset_id=1caed2ca-16fc-4fc9-a617-940422f8f874&amp;img_etag=%224b89d5f868f69d5f48721f2de24734e8%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/bb3391bd-ea2f-4076-a288-4f0ee7f741a3.png?asset_id=25a7aa08-0e55-4215-80e2-19d2666d0b7e&amp;img_etag=%22b91d9b9a1161187b58b68c9cf985badc%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/bb3391bd-ea2f-4076-a288-4f0ee7f741a3.png?asset_id=25a7aa08-0e55-4215-80e2-19d2666d0b7e&amp;img_etag=%22b91d9b9a1161187b58b68c9cf985badc%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/a2dc62c2-7b33-4243-835b-b1491b40ace4.png?asset_id=6e930563-d5eb-4682-8556-83725a6f04d9&amp;img_etag=%22d9dd67c210e0581f7049e8a6d7e41bbf%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/a2dc62c2-7b33-4243-835b-b1491b40ace4.png?asset_id=6e930563-d5eb-4682-8556-83725a6f04d9&amp;img_etag=%22d9dd67c210e0581f7049e8a6d7e41bbf%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/14e86cb8-303e-4685-8cbb-acd4485f54c6.png?asset_id=1a9dd827-f9db-44e6-8fd3-ec4e2a6ddf93&amp;img_etag=%227e1b3b4a8cffb35adb8e4a041fe005fc%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/14e86cb8-303e-4685-8cbb-acd4485f54c6.png?asset_id=1a9dd827-f9db-44e6-8fd3-ec4e2a6ddf93&amp;img_etag=%227e1b3b4a8cffb35adb8e4a041fe005fc%22&amp;size=1024)
+关于这个顾炎飞和他曾经任职的北京今日世界美食娱乐公司还有一个精彩的故事，以后再挖掘吧！
+
+2 SHEN YE 夜神？深夜？
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/ba5be28b-3144-4e10-b056-4946a840f237.png?asset_id=15a18ad3-37dc-4538-9ee2-27fa2130b7b3&amp;img_etag=%228da330f5a0fff7896803e856b6ff1adb%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/ba5be28b-3144-4e10-b056-4946a840f237.png?asset_id=15a18ad3-37dc-4538-9ee2-27fa2130b7b3&amp;img_etag=%228da330f5a0fff7896803e856b6ff1adb%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/2f24c78e-e066-4b47-bd15-1d20e84f7d67.png?asset_id=bee09cb8-cfef-45c9-b09f-09ecdec59a5b&amp;img_etag=%2241ff93568ee4a1f23bed8446fd19e355%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/2f24c78e-e066-4b47-bd15-1d20e84f7d67.png?asset_id=bee09cb8-cfef-45c9-b09f-09ecdec59a5b&amp;img_etag=%2241ff93568ee4a1f23bed8446fd19e355%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/56a09b80-2de4-426f-a1a8-18cdf09f94af.png?asset_id=7f7d3d7c-b025-4bed-83b6-17a523751141&amp;img_etag=%2299e4e1454fc0e2fcd11a175fc9ce4fb9%22&amp;size=2933)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/56a09b80-2de4-426f-a1a8-18cdf09f94af.png?asset_id=7f7d3d7c-b025-4bed-83b6-17a523751141&amp;img_etag=%2299e4e1454fc0e2fcd11a175fc9ce4fb9%22&amp;size=1024)
+3 曹玉婷
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/301e20c1-dcb6-4a5d-92af-83c8c9206d5f.png?asset_id=aedf7851-a585-4406-9859-a76afb08df04&amp;img_etag=%22da6040ed19c13f9fef1c2dd232a42629%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/301e20c1-dcb6-4a5d-92af-83c8c9206d5f.png?asset_id=aedf7851-a585-4406-9859-a76afb08df04&amp;img_etag=%22da6040ed19c13f9fef1c2dd232a42629%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/25ca812e-e6c6-4528-be4a-3e02744a7d17.png?asset_id=13cf27b3-7115-47c2-9adf-9369597eea0c&amp;img_etag=%22c6fe26349c2b10f3e8a511531156b53d%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/25ca812e-e6c6-4528-be4a-3e02744a7d17.png?asset_id=13cf27b3-7115-47c2-9adf-9369597eea0c&amp;img_etag=%22c6fe26349c2b10f3e8a511531156b53d%22&amp;size=1024)
+4 TUNG WAI HARN 淡马锡投资咨询（深圳）有限公司董事长 法人
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/bafd0b57-693b-4545-ae3d-618c1103bb79.png?asset_id=43ce34cc-7de9-4e86-8966-b60a805ec80e&amp;img_etag=%22846d056daca64da09485f1a004fa7371%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/bafd0b57-693b-4545-ae3d-618c1103bb79.png?asset_id=43ce34cc-7de9-4e86-8966-b60a805ec80e&amp;img_etag=%22846d056daca64da09485f1a004fa7371%22&amp;size=1024)
+从上海和深圳公司的高管查询中可以看到SHEN YE、CHEO HOCK KUAN，CHAN WAI CHING，顾炎飞、曹玉婷这几个关键人物，SHEN YE、CHEO HOCK KUAN，CHAN WAI CHING不太像中国国籍的人。
+
+3 一条大鱼 丁玮
+
+天眼查询关键人物继续，开始查丁玮，他是吴亦兵的前任，其离职的原因令人深思，以下为其查询结果：
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/79fbee15-a855-4cc6-9ee4-41ebb886f800.png?asset_id=46dad3b4-bf57-40bf-be90-2bd8207c70fd&amp;img_etag=%22d308177f82dcac6c384d05f7092fecd6%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/79fbee15-a855-4cc6-9ee4-41ebb886f800.png?asset_id=46dad3b4-bf57-40bf-be90-2bd8207c70fd&amp;img_etag=%22d308177f82dcac6c384d05f7092fecd6%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/6f92c95e-ed9f-45d4-a359-5a48a65a2e0f.png?asset_id=c276f276-95c5-4d1c-ba3b-7222a61fad63&amp;img_etag=%225670b9ba21748951122064cfca90c1a8%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/6f92c95e-ed9f-45d4-a359-5a48a65a2e0f.png?asset_id=c276f276-95c5-4d1c-ba3b-7222a61fad63&amp;img_etag=%225670b9ba21748951122064cfca90c1a8%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/4cccb9b9-518d-4750-b7d6-18ecb4bb0a98.png?asset_id=9dfe24ce-9b39-4651-a926-47d96168aa22&amp;img_etag=%22c7d9d1db7926a92c796265d6ddbce06f%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/4cccb9b9-518d-4750-b7d6-18ecb4bb0a98.png?asset_id=9dfe24ce-9b39-4651-a926-47d96168aa22&amp;img_etag=%22c7d9d1db7926a92c796265d6ddbce06f%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/dd5f888d-f594-4689-9925-bfbdc8c78ab1.png?asset_id=675e2599-3d00-4499-a2dc-0248583c8349&amp;img_etag=%22fd197c6b57bac9cdcdcc1af4beaea03f%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/dd5f888d-f594-4689-9925-bfbdc8c78ab1.png?asset_id=675e2599-3d00-4499-a2dc-0248583c8349&amp;img_etag=%22fd197c6b57bac9cdcdcc1af4beaea03f%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/e7fb2054-5376-4bf2-b813-bc7850eb570e.png?asset_id=10628930-32bc-45bc-8031-b9da82db0483&amp;img_etag=%2249d1e185bd760574a1d79517251ed910%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/e7fb2054-5376-4bf2-b813-bc7850eb570e.png?asset_id=10628930-32bc-45bc-8031-b9da82db0483&amp;img_etag=%2249d1e185bd760574a1d79517251ed910%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/d5f948bf-9d46-4848-ae45-a4845892d62a.png?asset_id=10b4f884-6a6d-4cf4-87fb-1f1e9b44d65e&amp;img_etag=%2220f50154f953ce54411fce0c6df17613%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/d5f948bf-9d46-4848-ae45-a4845892d62a.png?asset_id=10b4f884-6a6d-4cf4-87fb-1f1e9b44d65e&amp;img_etag=%2220f50154f953ce54411fce0c6df17613%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/46fe6ce4-8395-4c8c-8361-bdfa2bd16cc8.png?asset_id=703241b4-0c54-4fc1-b775-cd7db543948d&amp;img_etag=%2294a0103288ec63187f2f375c96987093%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/46fe6ce4-8395-4c8c-8361-bdfa2bd16cc8.png?asset_id=703241b4-0c54-4fc1-b775-cd7db543948d&amp;img_etag=%2294a0103288ec63187f2f375c96987093%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/9326e826-7677-4c73-9c0e-12510069d018.png?asset_id=c50b97a9-1427-4310-95a3-ce2928a72aac&amp;img_etag=%22505daeb87af336ebf0b9b4be386b823c%22&amp;size=2612)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/9326e826-7677-4c73-9c0e-12510069d018.png?asset_id=c50b97a9-1427-4310-95a3-ce2928a72aac&amp;img_etag=%22505daeb87af336ebf0b9b4be386b823c%22&amp;size=1024)
+老板关系图是这样复杂的，这就是他控制的中金系！
+
+看看他的继任者吴亦兵，这个投资界的大佬。注意，里面会出现很多有意思的公司名称，包括麦肯锡中国。
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/d5812270-0568-4a2b-820f-5c07b8cd83f8.png?asset_id=343a0c07-a642-4870-a1e5-8497d001349c&amp;img_etag=%223b5a3b8a83ebeab727d2f12e719fee6d%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/d5812270-0568-4a2b-820f-5c07b8cd83f8.png?asset_id=343a0c07-a642-4870-a1e5-8497d001349c&amp;img_etag=%223b5a3b8a83ebeab727d2f12e719fee6d%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/62c1e0f0-b150-47c8-9d8b-fa783af041f3.png?asset_id=046865c1-ccb6-479a-8c0c-580a2b2c990f&amp;img_etag=%22cbfcc2d9d5a9c91219a832fc74de9eb2%22&amp;size=2647)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/62c1e0f0-b150-47c8-9d8b-fa783af041f3.png?asset_id=046865c1-ccb6-479a-8c0c-580a2b2c990f&amp;img_etag=%22cbfcc2d9d5a9c91219a832fc74de9eb2%22&amp;size=1024)
+请注意：北京公司和上海公司的注册资金和注册性质，这么多的钱如果都是通过这两家公司进行投资的，注册资金不可能只有14万美元，**所以我们怀疑所有的投资行为实际上是在洗钱，也就是把大量的国有资金通过投资的方法转移到国外**。
+
+我们来看看淡马锡的具体的投资就知道了：**所谓高盈利实际上就是投资包装用中国国家信誉担保的公司上市融资，来圈取全世界老百姓的钱**。所以我们有理由怀疑：**淡马锡公司是盗国贼有组织盗取国家财富后的一个藏匿地点。丁玮和吴亦兵是两个白手套或者关键人物！**
+
+那么两个问题：
+
+1投资的途径在哪？
+
+2 洗钱的途径在哪？
+
+我们继续挖这个关系更为复杂的丁玮。看看他掌握的公司的情况。
+
+中金资本运营有限公司
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/50c92f14-6e04-4d3e-a052-a3733053c85f.png?asset_id=2e1347c9-608a-4a8a-a961-51b800b8a19f&amp;img_etag=%229070c0c77ad66272a23fb6c39bd85cbc%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/50c92f14-6e04-4d3e-a052-a3733053c85f.png?asset_id=2e1347c9-608a-4a8a-a961-51b800b8a19f&amp;img_etag=%229070c0c77ad66272a23fb6c39bd85cbc%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/fa423e6b-c4f4-4850-85f6-d361715fd64c.png?asset_id=d96010d0-cf1d-46b6-9faa-70be7ef0b7f5&amp;img_etag=%221b443c6975e5dd390a279b8e8dcd5075%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/fa423e6b-c4f4-4850-85f6-d361715fd64c.png?asset_id=d96010d0-cf1d-46b6-9faa-70be7ef0b7f5&amp;img_etag=%221b443c6975e5dd390a279b8e8dcd5075%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/112fe2c1-8318-47d7-9556-91d4bd075ec4.png?asset_id=cc97a914-812d-4814-aa32-f8f1f16945ea&amp;img_etag=%2253cb195a2aa2ac8cf142662ab635018c%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/112fe2c1-8318-47d7-9556-91d4bd075ec4.png?asset_id=cc97a914-812d-4814-aa32-f8f1f16945ea&amp;img_etag=%2253cb195a2aa2ac8cf142662ab635018c%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/be444808-34df-45ef-b2a6-7ec263df9fbd.png?asset_id=66f3be75-fd7a-4759-895f-a7af4871d35c&amp;img_etag=%22c9cbabd3bcc15fb12c8c7240021926a6%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/be444808-34df-45ef-b2a6-7ec263df9fbd.png?asset_id=66f3be75-fd7a-4759-895f-a7af4871d35c&amp;img_etag=%22c9cbabd3bcc15fb12c8c7240021926a6%22&amp;size=1024)
+这家公司的实际全额投资人就是中金！
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/cd8f3676-06b8-4185-899a-2a898ae7486b.png?asset_id=1868a941-33c7-44ea-be42-180ce042ae0e&amp;img_etag=%2223f477c7d1beba95e14d6b6c86853b44%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/cd8f3676-06b8-4185-899a-2a898ae7486b.png?asset_id=1868a941-33c7-44ea-be42-180ce042ae0e&amp;img_etag=%2223f477c7d1beba95e14d6b6c86853b44%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/d20e4c1c-ea15-468f-9cda-068310e73efa.png?asset_id=61db5035-4a09-4656-81ea-f28d5ae79ed5&amp;img_etag=%229a2de9ca3f1de253fd61b6a9250fae73%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/d20e4c1c-ea15-468f-9cda-068310e73efa.png?asset_id=61db5035-4a09-4656-81ea-f28d5ae79ed5&amp;img_etag=%229a2de9ca3f1de253fd61b6a9250fae73%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/334a4c10-e679-4d9d-9451-5da508442bad.png?asset_id=5a2e9ae3-a67e-4030-b004-9fa96a2ce9f5&amp;img_etag=%22adc16fc028ce0794b38a177d3bc8fbd0%22&amp;size=3431)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/334a4c10-e679-4d9d-9451-5da508442bad.png?asset_id=5a2e9ae3-a67e-4030-b004-9fa96a2ce9f5&amp;img_etag=%22adc16fc028ce0794b38a177d3bc8fbd0%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/4987928d-91aa-4fe3-86fd-f14d22aba9e2.png?asset_id=8ddbeb5f-c2d6-4d22-9c48-9ab1652cdcf4&amp;img_etag=%22631de10a133659d58e4369990d4f807a%22&amp;size=3111)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/4987928d-91aa-4fe3-86fd-f14d22aba9e2.png?asset_id=8ddbeb5f-c2d6-4d22-9c48-9ab1652cdcf4&amp;img_etag=%22631de10a133659d58e4369990d4f807a%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/b9c09b1c-cc7d-4fff-ba0e-457722c4c8cf.png?asset_id=b0a43785-4328-4e89-8fbb-cbd802f4b066&amp;img_etag=%2212bcae18592a91a29ae704fe523726eb%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/b9c09b1c-cc7d-4fff-ba0e-457722c4c8cf.png?asset_id=b0a43785-4328-4e89-8fbb-cbd802f4b066&amp;img_etag=%2212bcae18592a91a29ae704fe523726eb%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/72aff705-791a-403c-84cf-0ad0facc2541.png?asset_id=ffb4eb53-35d4-401c-b714-c21a4774decf&amp;img_etag=%22ee71fda3b3602046a228644b418e4fbe%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/72aff705-791a-403c-84cf-0ad0facc2541.png?asset_id=ffb4eb53-35d4-401c-b714-c21a4774decf&amp;img_etag=%22ee71fda3b3602046a228644b418e4fbe%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/fb05b8fd-c161-4396-952f-b64381495c26.png?asset_id=83a5a1a9-d863-44b8-9097-60e6a75ff767&amp;img_etag=%227392cd9dc7dc78a9b94cf20e2b101901%22&amp;size=2682)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/fb05b8fd-c161-4396-952f-b64381495c26.png?asset_id=83a5a1a9-d863-44b8-9097-60e6a75ff767&amp;img_etag=%227392cd9dc7dc78a9b94cf20e2b101901%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/07cfc585-a6f3-4f18-96cc-12b3541e3540.png?asset_id=d3293951-2b2c-48e5-b031-0818b1f9b044&amp;img_etag=%22e4acfdafdb6a6487c4d5534bb06a2a7f%22&amp;size=2849)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/07cfc585-a6f3-4f18-96cc-12b3541e3540.png?asset_id=d3293951-2b2c-48e5-b031-0818b1f9b044&amp;img_etag=%22e4acfdafdb6a6487c4d5534bb06a2a7f%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/e62fe91a-2c65-4248-a7b0-5074b0a758c7.png?asset_id=44d46db3-c1d7-4b5e-8dbe-78d07cec2aab&amp;img_etag=%2256b9d9f4c6d187c5d4b66a462a4e0570%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/e62fe91a-2c65-4248-a7b0-5074b0a758c7.png?asset_id=44d46db3-c1d7-4b5e-8dbe-78d07cec2aab&amp;img_etag=%2256b9d9f4c6d187c5d4b66a462a4e0570%22&amp;size=1024)
+在惊讶这家巨大的公司之前我们还是看看丁玮担任法人的另外几家公司！
+
+国新央企运营投资基金管理（广州）有限公司
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/0b62d7c0-ebf7-40b1-9b96-f3eb991beca8.png?asset_id=cdef0334-33e3-4210-8e57-42c09cee2685&amp;img_etag=%228ff85bac3ece641f05b7d7b41b043351%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/0b62d7c0-ebf7-40b1-9b96-f3eb991beca8.png?asset_id=cdef0334-33e3-4210-8e57-42c09cee2685&amp;img_etag=%228ff85bac3ece641f05b7d7b41b043351%22&amp;size=1024)
+这是另一个渠道的钱，简单的说央企的钱拿到这家公司运作！
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/6f3468ab-c564-4673-8ad4-10323fb8973c.png?asset_id=64796ad3-a7b1-4d94-a4c6-2db221ebb9a3&amp;img_etag=%2201d0d5d01ddcf0ba2c8d7417c83bae75%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/6f3468ab-c564-4673-8ad4-10323fb8973c.png?asset_id=64796ad3-a7b1-4d94-a4c6-2db221ebb9a3&amp;img_etag=%2201d0d5d01ddcf0ba2c8d7417c83bae75%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/ab8e182f-4d51-4d10-a1ff-51365949d667.png?asset_id=1c10606c-0136-4aba-9a07-665f32dc2453&amp;img_etag=%22f9f2bae321b7db579f3641712db5452b%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/ab8e182f-4d51-4d10-a1ff-51365949d667.png?asset_id=1c10606c-0136-4aba-9a07-665f32dc2453&amp;img_etag=%22f9f2bae321b7db579f3641712db5452b%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/cc4ce1c6-98d6-4e3e-9d9c-8d23f660498a.png?asset_id=81284b3b-3848-4ad2-aff9-1e5e1a67f39e&amp;img_etag=%2217229be2bfbf7a09726f00e0d2d00834%22&amp;size=3178)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/cc4ce1c6-98d6-4e3e-9d9c-8d23f660498a.png?asset_id=81284b3b-3848-4ad2-aff9-1e5e1a67f39e&amp;img_etag=%2217229be2bfbf7a09726f00e0d2d00834%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/96087b2d-50cc-4964-bc19-eafc54cea65d.png?asset_id=6d0ce0cd-cc43-4c83-a212-5c8eb8bcfc43&amp;img_etag=%228cd1f9bc1b78cd13e8a929da0a46ca55%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/96087b2d-50cc-4964-bc19-eafc54cea65d.png?asset_id=6d0ce0cd-cc43-4c83-a212-5c8eb8bcfc43&amp;img_etag=%228cd1f9bc1b78cd13e8a929da0a46ca55%22&amp;size=1024)
+展开的图中可以看到这家公司是由谁投资的，**1、央企的钱 2、广州市政府的钱、3浦东银行的钱、4两个神秘的个人 投资100万买了1000万的股权**
+
+在这个关系图中注意 这个股东 **浦银国际股权投资管理（深圳）**有限公司法定代表人 **余晓东，投资了200万美元**。
+
+在展开的图里，可以看出钱是**怎么通过浦银国际投资管理有限公司（除了200万美金投资外）如何辗转流到国新央企运营投资基金管理（广州）有限公司的，也可以看到浦银国际投资管理有限公司对所有国家优质资源的垄断**，只要挣钱的他们就垄断！13亿老百姓源源不断地给他们输血。**查这个余晓东 上海浦东银行是谁家的,你懂的！**
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/d3f51bb7-5aec-4474-a80a-22c67dce515f.png?asset_id=1a714447-0752-4504-86d4-8697efd7b29d&amp;img_etag=%22ad6f8a8bd4fa180e4671d628fa782dd8%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/d3f51bb7-5aec-4474-a80a-22c67dce515f.png?asset_id=1a714447-0752-4504-86d4-8697efd7b29d&amp;img_etag=%22ad6f8a8bd4fa180e4671d628fa782dd8%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/953a76ae-670d-46c1-879f-a50e5c8e9837.png?asset_id=a60cdd07-4a5d-4795-a121-022be6e2c182&amp;img_etag=%22fa843d9a93950b77ce318fd3144a407e%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/953a76ae-670d-46c1-879f-a50e5c8e9837.png?asset_id=a60cdd07-4a5d-4795-a121-022be6e2c182&amp;img_etag=%22fa843d9a93950b77ce318fd3144a407e%22&amp;size=1024)
+**央企的钱、浦东银行的钱、广州市政府的钱，那两个神秘人物的钱都投资在这里，并且有200万美金，你不觉得奇怪吗？**
+
+中金智德股权投资管理有限公司
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/4dde87a5-c979-4a48-bbe9-3578ca9fa70d.png?asset_id=a560048c-3e67-404f-a840-227679d63265&amp;img_etag=%22196a6aa15f54cbfbd38f10223a151cf2%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/4dde87a5-c979-4a48-bbe9-3578ca9fa70d.png?asset_id=a560048c-3e67-404f-a840-227679d63265&amp;img_etag=%22196a6aa15f54cbfbd38f10223a151cf2%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/80532953-2e11-4fba-b3ca-b2e843f43fa3.png?asset_id=09d9f95a-bc9c-4d72-8624-fcf71d120864&amp;img_etag=%22798fe3ec14a26947b145deac5d3c163f%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/80532953-2e11-4fba-b3ca-b2e843f43fa3.png?asset_id=09d9f95a-bc9c-4d72-8624-fcf71d120864&amp;img_etag=%22798fe3ec14a26947b145deac5d3c163f%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/dc3ef46d-0901-4613-b352-4eac01b802e5.png?asset_id=bfd6d149-ae23-45a3-aeb0-f79829555379&amp;img_etag=%220a0c8b24b2d86af3d889e8d8f76c755e%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/dc3ef46d-0901-4613-b352-4eac01b802e5.png?asset_id=bfd6d149-ae23-45a3-aeb0-f79829555379&amp;img_etag=%220a0c8b24b2d86af3d889e8d8f76c755e%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/da882128-0a76-43f0-85c8-35abbd9f23ec.png?asset_id=e07449b2-dbaa-4988-b213-0dee121056cb&amp;img_etag=%229fa918a1b9c8d74b1c42f36e8e65ebfc%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/da882128-0a76-43f0-85c8-35abbd9f23ec.png?asset_id=e07449b2-dbaa-4988-b213-0dee121056cb&amp;img_etag=%229fa918a1b9c8d74b1c42f36e8e65ebfc%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/8768d396-aedb-4f93-93a8-690ca47584e0.png?asset_id=4e51fe25-a0b6-4ff7-acb5-f1019822ae7d&amp;img_etag=%22a4b0c75c2c0545836ff6467db7294c17%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/8768d396-aedb-4f93-93a8-690ca47584e0.png?asset_id=4e51fe25-a0b6-4ff7-acb5-f1019822ae7d&amp;img_etag=%22a4b0c75c2c0545836ff6467db7294c17%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/f1b2d6dc-7e27-4f98-bad0-46b5ed4c57f4.png?asset_id=06dd5177-c203-4a01-bc29-75f305730aa9&amp;img_etag=%223bb2089e298de942e200d12eed681095%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/f1b2d6dc-7e27-4f98-bad0-46b5ed4c57f4.png?asset_id=06dd5177-c203-4a01-bc29-75f305730aa9&amp;img_etag=%223bb2089e298de942e200d12eed681095%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/3548c6c2-1b5c-4d7b-ac23-229db3a76151.png?asset_id=1d78cf2b-8183-4c7d-ba44-ed95c879a4e5&amp;img_etag=%22946aa2bc19756f0f078f7c23f389fcc9%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/3548c6c2-1b5c-4d7b-ac23-229db3a76151.png?asset_id=1d78cf2b-8183-4c7d-ba44-ed95c879a4e5&amp;img_etag=%22946aa2bc19756f0f078f7c23f389fcc9%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/4a906396-23b2-45d4-919d-2222758b9387.png?asset_id=cacde09a-d504-4357-859e-60c3468053a8&amp;img_etag=%222fc72484633a7c78f06bf16ed51fee9e%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/4a906396-23b2-45d4-919d-2222758b9387.png?asset_id=cacde09a-d504-4357-859e-60c3468053a8&amp;img_etag=%222fc72484633a7c78f06bf16ed51fee9e%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/cf297fde-094d-46c1-a6f4-b1fd48c11710.png?asset_id=ea0ea37b-8759-41c8-9ee3-75d9f932a22b&amp;img_etag=%22326d4275ce195ae91ba22d620f3ef959%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/cf297fde-094d-46c1-a6f4-b1fd48c11710.png?asset_id=ea0ea37b-8759-41c8-9ee3-75d9f932a22b&amp;img_etag=%22326d4275ce195ae91ba22d620f3ef959%22&amp;size=1024)
+注意这两次的行政许可，说明这家公司开具的增值税票金额已经大到不够用了，那么具体大到什么程度吗？
+
+我们再来看看和中金智德股权投资管理有限公司相关的一份公司的投资公告：
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/b01b03e2-cd67-4a0c-8fb7-ddf837ca4172.png?asset_id=d43529c1-80ef-43f6-beb8-8ef7b6b853fb&amp;img_etag=%225f5ecea2e32213b0f70a31766a262825%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/b01b03e2-cd67-4a0c-8fb7-ddf837ca4172.png?asset_id=d43529c1-80ef-43f6-beb8-8ef7b6b853fb&amp;img_etag=%225f5ecea2e32213b0f70a31766a262825%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/b6d6490d-d94e-4858-b5e4-6736f1d3da91.png?asset_id=61c2dcd2-118a-4cd4-bdff-c45ec7a555f4&amp;img_etag=%2205a3353301d8f3b962c880632720cd78%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/b6d6490d-d94e-4858-b5e4-6736f1d3da91.png?asset_id=61c2dcd2-118a-4cd4-bdff-c45ec7a555f4&amp;img_etag=%2205a3353301d8f3b962c880632720cd78%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/6473092d-f2a8-4428-b66c-46f15c7b0987.png?asset_id=8ec9b689-05ba-497a-bdb2-b916d55fe9d1&amp;img_etag=%224d67bd769da293eb733a146a10d389eb%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/6473092d-f2a8-4428-b66c-46f15c7b0987.png?asset_id=8ec9b689-05ba-497a-bdb2-b916d55fe9d1&amp;img_etag=%224d67bd769da293eb733a146a10d389eb%22&amp;size=1024)
+中金智德股权投资管理有限公司这次参与投资的是北汽新能源，这是一家国企上市公司，投资的时间是在上市之前，也就是作为投资原始控股这家未来上市的国有企业。从搜索的文件里可以看到这家公司通过设立基金围猎国企上市的过程（北汽新能源），以很少的投资进行A轮B轮的融资，和淡马锡模式的套路一样。
+
+从前面的控股结构图中可以看到：
+
+“中金智德股权投资”的上层投资全额股东为“中金资本运营有限公司”；
+
+“中金资本运营有限公司”的上游大股东是“中国国际金融股份有限公司”（注意港股）；
+
+“中国国际金融股份有限公司”的第一大股东是中央汇金投资有限责任公司，占28.45%。第二大股东是“新加坡政府投资有限公司”11.82%，“新加坡政府投资有限公司”是什么，和淡马锡什么关系？这是一个历史上的名字，就是淡马锡公司。
+
+也就是说，**通过“中国国际金融股份有限公司”在香港的上市可以把中金智德股权投资管理有限公司的钱合理合法的转到中金资本运营有限公司，再通过中金资本转到香港的中国国际金融有限公司，然后通过股份分红或者股票获利洗白！**
+
+中金公司目前总市值664.91亿港元，流通值289.75亿，以投资2.7亿占11.82%算，2.7亿的投资现在市值78.6亿，2015年在港交所上市，5年盈利28倍！但我相信这只是冰山一角而已。所以，上市市盈率绝对不是他们的目的，至少不是唯一目的！
+
+中金佳成投资管理有限公司
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/0fe58925-6c8e-4636-a3fc-3bf088b05bfd.png?asset_id=95d73554-f888-48f6-9cfa-9d62f69f27a8&amp;img_etag=%223d418f359ac41dab5ecc7e1c4d6bf7e5%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/0fe58925-6c8e-4636-a3fc-3bf088b05bfd.png?asset_id=95d73554-f888-48f6-9cfa-9d62f69f27a8&amp;img_etag=%223d418f359ac41dab5ecc7e1c4d6bf7e5%22&amp;size=1024)
+这家公司的100%控股者同样是中金资本运营有限公司，在图中我们重点查看中金佳成投资控股投资的几个公司：
+
+控股企业
+
+天津佳泓商业投资中心（有限合伙） 17.03% 2813.62万元 ；
+
+中金佳泰（ 天津） 3 . 1 2 % 15000万元；
+
+天津佳轩投资中心（有限合伙） 99.01% 10000万元；
+
+上海佳峰投资中心（ 有限合伙） 3 8 . 3 1 % 9950万元；
+
+中金佳泰贰期（天津）股权投资基金合伙企业（有限合伙）4.15% 25000万元；
+
+中金启元国家新兴产业创业投资引导基金（有限合伙）（50000万元）；
+
+中金启元国家新兴产业创业投资引导基金（湖北）股权
+
+投资企业
+
+（有限合伙；佳成新泰（北京）投资有限公司51%1020万元；
+
+在天津佳泓商业投资中心（有限合伙）17.03%（2813.62万元）表面上只有17%的股份，但是如果搜索这个公司的股东结构就会发现玄机，就是通过层层投资，**实际上中金资本是这家公司的绝对控制者！中金佳泰背后是中金佳成，中金佳成是股东，中金佳盟是最小的股东。**这种掩盖的控制是为了什么？
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/a561851f-5f90-411c-ae91-32dc188bba95.png?asset_id=77b15626-aeb7-4670-95ce-553e462943b9&amp;img_etag=%22127fecbf191045fa78f45bf981e9e7ba%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/a561851f-5f90-411c-ae91-32dc188bba95.png?asset_id=77b15626-aeb7-4670-95ce-553e462943b9&amp;img_etag=%22127fecbf191045fa78f45bf981e9e7ba%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/bae46c0f-9785-477f-bb94-d349f8d39fa3.png?asset_id=845a177d-0afb-4d64-b08a-7d5e50e926cc&amp;img_etag=%2244820688500f0f26723b140d88f5b1ae%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/bae46c0f-9785-477f-bb94-d349f8d39fa3.png?asset_id=845a177d-0afb-4d64-b08a-7d5e50e926cc&amp;img_etag=%2244820688500f0f26723b140d88f5b1ae%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/73bdca6c-81bc-4238-b1af-83b8b9943bee.png?asset_id=f059e81a-c179-4cbe-acbb-b6919a21b1aa&amp;img_etag=%22f5ae06a5339385d2474d6d632e42bb6c%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/73bdca6c-81bc-4238-b1af-83b8b9943bee.png?asset_id=f059e81a-c179-4cbe-acbb-b6919a21b1aa&amp;img_etag=%22f5ae06a5339385d2474d6d632e42bb6c%22&amp;size=1024)
+我们来看天津佳泓商业投资中心最主要的投资之一：天津佳兴商业投资中心（有限合伙），在这张图里出现的东西绝对让你震惊：出现了**中国兵器集团**的名称，就是说这家公司是中金和中国兵器集团联合控制着。看到下一张图明白了，**成立这家公司目的是为了出资19400万元占中国石化销售股份有限公司0.68%的股份。而这个股份分两次在银行质押：**
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/c2ef60e5-28cd-4f35-93e6-a2dfa3de84c0.png?asset_id=9e1f59e0-93d3-41bc-8b9b-eacdf21ae759&amp;img_etag=%221849f6dac28dd38df5ef57a5e4722c72%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/c2ef60e5-28cd-4f35-93e6-a2dfa3de84c0.png?asset_id=9e1f59e0-93d3-41bc-8b9b-eacdf21ae759&amp;img_etag=%221849f6dac28dd38df5ef57a5e4722c72%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/921b9677-ecb0-417a-8d71-8ea9584bb850.png?asset_id=a73dfa29-873c-45d9-9520-8d1b5e6448a1&amp;img_etag=%22f8e83ea67aca38793a60ac05c0139dd0%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/921b9677-ecb0-417a-8d71-8ea9584bb850.png?asset_id=a73dfa29-873c-45d9-9520-8d1b5e6448a1&amp;img_etag=%22f8e83ea67aca38793a60ac05c0139dd0%22&amp;size=1024)
+根据这个这个情况， 2 0 1 5 年大部分股权在中国德源资本（ 香港） 有限公司，CONCERTO COMPANY LIMITED和王雷手中，后来质押给招商银行先后获取资金11400+24000+11400 共计46800万元。中金佳成投资管理有限公司65万获得的股权数量不详。
+
+我们搜索一下中国德源资本（香港）有限公司，这家香港公司只有投资了24000万这一笔，2019年被招商银行诉讼金融借款合同纠纷案号 （2019）京04民初1040号 也就是使用股权质押的那一笔钱。
+
+汇源集团创始人朱新礼作为德源资本董事成为中国德源资本（香港）有限公司有权代理人。2015年，朱新礼曾通过德源资本出资30亿元获得中石化销售公司2.4万股股权，并质押给招商银行。朱新礼出资30亿代持了中石化的股权，然后以不到5亿的价格转给了中金，并且这个钱还是银行质押的钱！明白怎么回事了吗？朱新礼的德源资本和汇源集团和淡马锡可是有很深的关系的，在后面会介绍到，他们是同伙吗？2.4万股权价值5亿，那么65万股价值多少呢？价值在100亿以上，投资1.94亿获得100亿的收益，这就是他们投资的目的。
+
+CONCERTO COMPANY LIMITED公司在天眼上查不到任何信息，申通广大的从招商银行拿走了22800万人民币。经过搜狗我们得知：Concerto Company Limited的实际控制人亦是由高盛高华董事长方风雷创立的厚朴投资，而方风雷和王岐山的关系大家都明白的。
+
+而Kingsbridge Asset Holding Ltd 是私募基金RRJ Capital Master Fund II旗下的全资子公司，RRJ的控制人正是原厚朴投资管理公司创始合伙人之一王忠信！厚朴投资又是一段很长的故事！
+
+我们再来看看这只被大家疯抢的中石化的展控者中国石油化工有限公司的股东结构就会更明白中石化销售有限公司这个赚钱的机器掌控在谁的手里了。在中国石油化工有限公司有一家“香港中央结算（代理人）有限公司”占据中石化20%多的股份，这是一家什么样的公司？这么牛，看他的投资股东图，太牛了！终于挖到大门了！
+
+芝麻芝麻开门吧！
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/84acdeaa-84de-4ddf-a30f-7f83c6ce822c.png?asset_id=f76aef64-8a10-4d68-b446-80321aa2be3d&amp;img_etag=%22988f2e83772f0313625394a344a46b13%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/84acdeaa-84de-4ddf-a30f-7f83c6ce822c.png?asset_id=f76aef64-8a10-4d68-b446-80321aa2be3d&amp;img_etag=%22988f2e83772f0313625394a344a46b13%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/a91779d4-3330-414e-84bf-1ef220410349.png?asset_id=95b6f7d5-2ec4-40c4-bb74-d6a11d3f0942&amp;img_etag=%2217a5d2d7564c89bbecef97b2f7f2aa6b%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/a91779d4-3330-414e-84bf-1ef220410349.png?asset_id=95b6f7d5-2ec4-40c4-bb74-d6a11d3f0942&amp;img_etag=%2217a5d2d7564c89bbecef97b2f7f2aa6b%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/53a38577-0309-4ffe-83ca-a332035db6f1.png?asset_id=eba188d6-32c3-428d-a0e5-c9caf98e732f&amp;img_etag=%2217bed5b37d3079dfae8e0988bbc8aca0%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/53a38577-0309-4ffe-83ca-a332035db6f1.png?asset_id=eba188d6-32c3-428d-a0e5-c9caf98e732f&amp;img_etag=%2217bed5b37d3079dfae8e0988bbc8aca0%22&amp;size=1024)
+**4 天大的秘密？**
+
+香港中央结算（代理人）有限公司
+
+所有熟悉香港股市的人对这个名字并不陌生，但是对这个公司根本不了解。
+
+我们首先注意中石化这个巨兽的股东名字：
+
+第一大股东中国石油化工集团有限公司；
+
+第二的股东出现了一个你会在上市公司股东里最常见的名字，香港中央结算（代理人）有限公司；
+
+其中的股东国新投资有限公司，这家公司也是国新央企运营投资基金管理（广州）有限公司背后的大老板之一 ；
+
+还有一家香港中央结算有限公司（代表香港特区政府）注意，香港中央结算（代理人）有限公司和香港中央结算有限公司是两家公司，这就是天大的秘密！继续天眼查，看看最早在香港上市的“东北电气”的股东情况：
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/418198fa-6e56-4d24-8866-b57d2ce1161b.png?asset_id=28d0f80a-b230-456b-96d0-add5b0124e33&amp;img_etag=%223ed6977caf22b1265c4fc78ef2f0bfc0%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/418198fa-6e56-4d24-8866-b57d2ce1161b.png?asset_id=28d0f80a-b230-456b-96d0-add5b0124e33&amp;img_etag=%223ed6977caf22b1265c4fc78ef2f0bfc0%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/547adcdb-4075-425c-9a7a-acd36abc8e7c.png?asset_id=8e4ea87d-32eb-466c-8a35-cf0276a451c2&amp;img_etag=%227db97904986c4238eedb71b6b5f618a0%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/547adcdb-4075-425c-9a7a-acd36abc8e7c.png?asset_id=8e4ea87d-32eb-466c-8a35-cf0276a451c2&amp;img_etag=%227db97904986c4238eedb71b6b5f618a0%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/33aa4de3-cc44-47c0-8a5f-ea208c9404b0.png?asset_id=74491415-8099-4308-a482-de06ec5a4f7d&amp;img_etag=%22da64bfc32a38c110f750fe636832466d%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/33aa4de3-cc44-47c0-8a5f-ea208c9404b0.png?asset_id=74491415-8099-4308-a482-de06ec5a4f7d&amp;img_etag=%22da64bfc32a38c110f750fe636832466d%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/bb1f0e2f-5605-4e8c-b93d-b65eb72d9f20.png?asset_id=9873a7bc-4143-49e4-a690-daf465a0ad5d&amp;img_etag=%22d72fc49911389b0c216448604e7d9bc1%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/bb1f0e2f-5605-4e8c-b93d-b65eb72d9f20.png?asset_id=9873a7bc-4143-49e4-a690-daf465a0ad5d&amp;img_etag=%22d72fc49911389b0c216448604e7d9bc1%22&amp;size=1024)
+东北电气发展股份有限公司（原名东北输变电机械制造股份有限公司）是于1993年2月18日经重组后在中华人民共和国注册成立之股份有限公司。公司于1995年7月3日发售H股25795万股并在香港联合交易所上市。同年11月29日发售A股3000万股并在深圳证券交易所上市。
+
+注意其1995年香港上市时注册地址是在海南，最终控制人是海南慈航，同时出现了香港中央结算（代理人）有限公司的身影！注意，他们持有的都是香港的股票。
+
+王岐山，1994年起任中国人民建设银行（1996年改为中国建设银行）行长、党组书记兼**中国投资银行董事长、中国国际金融公司董事长**。1995年当选为第三届中国投资学会会长。这一切是巧合吗？
+
+我们挖挖香港中央结算（代理人）有限公司。
+
+香港中央结算（代理人）有限公司
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/c833a0a8-a1bf-4f0b-9d09-1dc680540659.png?asset_id=ddaf112d-6a6f-4c14-9a1c-6e524ab35617&amp;img_etag=%2273674b3d0fb3df7258dc116b08f07b2a%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/c833a0a8-a1bf-4f0b-9d09-1dc680540659.png?asset_id=ddaf112d-6a6f-4c14-9a1c-6e524ab35617&amp;img_etag=%2273674b3d0fb3df7258dc116b08f07b2a%22&amp;size=1024)
+除此之外没有任何信息。先看看知乎上是如何解释的：
+
+为啥很多上市公司股东名单中有香港中央结算有限公司？首先我们要明白这是一家什么样的公司：香港中央结算有限公司是港交所全资附属公司，经营香港的中央结算及交收系统，乃认可的结算机构。这家公司应该只是后台集中清算的中介公司而已，记录管理每个股民的持股情况，而不是实质持股。所有H股股东拥有的股份都挂在这家名下，其实还是各股东分散持有的。比如工商银行约有24%的股份，其股东是香港中央结算(代理人)有限公司，也就是说工行约有24%的H股，具体H股的股东其实是分散的。为啥很多上市公司股东名单中有香港中央结算有限公司？香港中央结算有限公司所账户上的股份，是H股股东账户的股份总和，这些股份的权益仍旧归属投资者本身所拥有。所以，那些有A股又有H股的，H股的份额以香港中央结算代理有限公司代持形式体现。
+
+听懂了吗？按照知乎的解释就是H股股东账户的股份总和，那么这些股东到底是哪些股东？绝对不是流通股，这段解释给我们透露了一个重要信息，这些股东是保密的。那么他们是怎样持有股票的，是通过正常的投资吗？
+
+值得注意的香港中央结算有限公司和香港中央结算（代理人）有限公司是两家公司，第一个问题是代理人公司为什么成立于1991年（89年之后）！第二个问题是在沪港通没有实现前为什么香港的公司能够成为内地A股市场的大股东，并且在所有的股东结构上和其他投资主体是分立的。比如“青岛啤酒股份有限公司”的股东名单中“青岛啤酒集团有限公司”持股32.83%，中央汇金股份有限公司仅有0.78%，而香港这个私人公司持有45.44%的股权，绝对是实际控制人。
+
+我们再来看看维基的说法：
+
+中央结算及交收系统（The Central Clearing And Settlement System，缩写为CCASS），简称中央结算系统，是一个专为在香港联交所上市的证券买卖而设的**电脑化账面交收系统**；**中央结算系统原本的设计只为让香港交易所辖下的香港中央结算有限公司(结算公司)**可向市场中介人士，例如经纪及托管商，提供结算所服务，再由**中介人士向其客户提供结算服务**。现时，鉴于投资者希望享有账面结算及交收系统的优点及对他们的股份拥实质的操控权，**个人及公司投资者现在可于中央结算系统开设投资者户口**。
+
+**投资者户口实际上是一个存管股票的户口。投资者户口持有人仍须透过经纪或托管商(同时为中央结算系统参与者)进行股份买卖及有关交收; **投资者户口持有人仍要自行管理本身在交收过程中所涉及的交收风险。
+
+用途
+
+参与中央结算系统的投资者可以：
+
+**操控他们存放于中央结算系统的股份转移**
+
+拥有存放于中央结算系统的股份的持股纪录
+
+对存放于中央结算系统的股份享有法律保障
+
+直接从上市发行人收取公司资料
+
+**享有多种通讯渠道，包括“结算通”电话系统、“中央结算系统互联网系统”及客户服务中心**
+
+维基百科把香港中央结算有限公司成立所管理的中央结算系统的功能和作用以及在香港证交所进行股票买卖的规则说的清清楚楚，进行股票交易必须通过中央交易系统中设立的账户，按照知乎的说法，香港中央结算(代理人)有限公司就是一个专有账户的对外公示的名称，或者说这个账户代表了背后投资者（股票拥有者）的总和权益，或者说香港中央结算(代理人)有限公司就是一个真实存在的股东。那么这些股东都是谁，从来没有人知道，很显然这是被设计的。
+
+我们再来看看香港交易所资料
+
+按照维基百科的说法：
+
+香港交易及结算所有限公司（简称香港交易所或港交所，英语：Hong Kong Exchanges and Clearing Limited，缩写：HKEX；港交所：0388），是全球主要交易所之一，为一家在香港上市的控股公司，在香港及英国伦敦均有营运交易所，旗下成员包括香港联合交易所有限公司（联交所）、香港期货交易所有限公司（期交所）、**香港中央结算有限公司**、香港联合交易所期权结算所有限公司及香港期货结算有限公司，还包括基本金属市场──英国伦敦金属交易所、伦敦金属交易结算所。现任董事会主席为**史美伦**，行政总裁为**李小加**。
+
+2000年3月6日，香港联合交易所有限公司、香港期货交易所有限公司和香港中央结算有限公司完成合并，由单一控股公司香港交易所持有。合并后而诞生的香港交易所于2000年6月27日在联交所上市。
+
+香港联交所于1986年4月2日由香港证券交易所、远东交易所、金银证券交易所及九龙证券交易所四大交易所合并而成。
+
+香港的证券交易最早见于19世纪中叶，但直至1891年才出现第一家正式的交易所“香港股票经纪会”，亦称“香港股票经纪协会”。最初的交易使用黑板粉笔进行记录。随着香港经济的快速发展，上世纪七十年代形成了香港证券交易所、远东交易所、金银证券交易所及九龙证券交易所四家交易所鼎立的格局。
+
+当时四会酝酿合并，同时需要更大场地设置交易设施。四会于**1986年3月27日划上历史句号，1986年4月2日，由四所合并而成的香港联交所正式开业，最初采用电脑辅助交易系统进行证券买卖**，但自**1993年起证券交易便已全面电子化后**，愈来愈多券商停止在交易大堂派出出市代表，所有买卖改为在办公室进行。
+
+香港期交所前身是香港商品交易所，于1976年成立。香港商品交易所当时主要买卖的产品计有棉花期货，糖期货，黄豆期货及黄金期货。1985年5月7日，香港商品交易所易名为香港期交所。1986年5月6日，期交所推出其旗舰产品 – 恒生指数期货; 至今，恒指期货仍然是香港交易所旗下衍生产品市场最受欢迎的期货产品。期交所提供的其他衍生产品包括股票指数，股票及利率期货及期权产品。**自2000年6月起，期交所交易已全面电子化。**
+
+在1998年年亚洲金融风暴后，香港特别行政区财政司司长（曾荫权）在1999年年发表财政预算案演词时公布，本港证券及期货市场会进行全面改革，以提高香港的竞争力和迎接市场全球化所带来的挑战。根据改革方案，**香港联交所与香港期交所实行股份化并与香港结算合并，由单一控股公司香港交易所拥有**。
+
+联交所及期交所在1999年9月27日各自举行股东大会，会上分别通过有关的协议计划，并于1999年年10月11日获法院批准有关协议计划。两所及结算公司的合并于2000年3月6日正式生效，合并后的香港交易所于2000年6月27日以介绍方式在联交所上市。股份上市首日收市价为8.25港元。
+
+2 0 1 2 年1 2 月，**香港交易所成功收购全球最大的基础金属交易所伦敦金属交易所（LME），进军商品业务。透过LME，香港交易所在基本金属期货及期权交易占据全球领先地位。**
+
+香港交易所于2012年9月与上海证券交易所及深圳证券交易所成立合资公司中华证券交易服务有限公司，三家交易所分占相同股权。
+
+截至2007年年首季业绩，港交所资产总值为435亿港元，资产净值为62亿港元，纯利为9.2亿港元同比增长93%，**每日成交529亿港元。**
+
+截至2007年9月11日，**香港特区政府是香港交易所单一最大股东，持有5.88%的股份。其次是摩根大通：5.54%，花旗银行：4.13%，Horizontal Asset：2.30%。**
+
+截至2008年12月31日，**内地企业在香港上市共465家**，占上市企业总数的37%，市值约**61,610亿港元**，占总市值约60%。**自1993年至2008年底，内地企业在香港筹集资金逾12万亿港元。**
+
+2011年8月11日，港交所发放上市公司资讯的“披露易”网站，上午受到黑客入侵，无法显示讯息。包括汇控的7只股份及1只债券，下午被迫停牌。港交所已就事件报警。
+
+2011年10月，巴西证券期货交易所，俄罗斯莫斯科银行间外汇交易所，印度孟买证券交易所，香港交易及结算所有限公司和南非约翰内斯堡证券交易所在南非举行的国际证券交易所联会会议上宣布成立**金砖国家交易所联盟**。
+
+**2011年10月21日，港交所正式与中关村签署协议推动企业海外上市，作为策略备忘录。**
+
+**2012年4月1日，成为首家获批在内地上海设立“数据站”的交易所**，日后可为内地市场直接提供最快最新的港股报价。
+
+**2012年6月15日，以13.88亿英镑成功收购伦敦金属交易所。**
+
+**2012年9月26日与沪深交易所成立合资公司“中华证券交易服务有限公司”，计划2012年底推出全新跨境指数系列，2013年首季推出相关指数产品**。中华交易服务公布，将于3月18日，推出跨境指数系列两只新指数，包括中华A80指数，以及中华香港内地指数。
+
+**2012年11月19日，香港交易所成立香港首家场外结算所场外－香港场外结算有限公司（场外结算公司）。香港埸外结算公司主要股东为港交所，持股75%；余下25%股权则包括农业银行香港分行、汇丰、渣打及摩根大通等12间银行和金融机构。**
+
+2013年3月18日，中华交易服务推出两只新指数“中华A80”及“中华香港内地指数”（HKMI）。
+
+2013年8月12日，推出中华交易服务中国120指数（下称“中华120”）期货，以进一步扩展旗下中国内地相关产品组合。中华120期货将是全球首只在交易所上市而涵盖中国内地及香港市场主要中国股份的衍生产品，投资者可透过这单一期货合约便捷及具成本效益地同时捕捉两地市场的机会作交易或对冲。
+
+2013年10月31日，港交所旗下场外结算公司已获证监会批准成为认可结算所，计划于11月投入服务，初步将处理交易商之间的合约交易，并计划于明年中推出客户结算服务。
+
+**2014年11月17日，香港交易所与上海证券交易所共同推出了连接内地与香港股票市场的沪港通机制**，是香港金融市场发展一大里程碑，开创了中国资本市场双向开放的新模式，开启了全球金融市场互联互通的新典范。
+
+2016年1月21日，香港交易所推出全新企业形象，更改公司标志。
+
+**2016年12月5日，香港交易所与深圳证券交易所共同推出了深港通，互联互通机制进入2.0时代。**
+
+2017年7月3日，债券通正式启动，让国际投资者可以经过香港便捷投资中国内地银行间债券市场，开启了中国债市开放的新时代。
+
+2017年5月11日，香港交易所在其筹备中的深圳前海联合交易中心（QME）举办LME亚洲年会前海分论坛，首次向业界人士及媒体介绍**前海联合交易中心**。前海联合交易中心将充分借鉴香LME的经验，建设一个真正服务内地实体经济的大宗商品交易与服务平台。
+
+2017年10月27日，港交所关闭运作31年历史的交易大堂，将现址改装为“金融大会堂”，用以推广香港金融市场，新场馆可用于举办仪式、展览、会议及投资者教育活动。
+
+2017年12月，香港交易所确立自1993年H股上市以来最大上市改革的方向，允许采用不同投票权架构的新经济公司、没有收入的生物科技企业赴港上市，以及放宽已在国际市场上市的不同投票权架构企业来港第二上市。
+
+2018年4月30日，上市制度改革正式生效。
+
+2019年9月11日香港交易所计昼以现金和加发行新股收购伦敦证券交易所集团，港交所将于每股20.45英镑现金加2.495股港交所新股，折算约83.61英镑，**合共斥资约296亿英镑(约2867亿港元)（现金占715亿）收购伦敦证券交易所集团**，交易完成后，港交所现有股东将成为合并集团的大股东，持有59%股权，伦交所则持有其余约41%股权。然而，两日后伦敦证券交易所董事局正式拒绝有关收购，回信指收购提议有“根本上的缺陷”，列出多项反对理由包括“董事会结构受政府控制”、“港交所业务高度集中”、“要求放弃收购路孚特不符合股东利益”和“作价低于目标”。2019年10月8日，港交所宣布放弃收购伦敦交易所的计划。
+
+注意几点：
+
+1、2000年3月6日，香港联合交易所有限公司、香港期货交易所有限公司和香港中央结算有限公司完成合并，而香港中央结算(代理人）有限公司成立在1991年；香港中央结算有限公司（Hong Kong Securities Clearing Company Ltd.，简称：HKSCC）注意这个名称。
+
+香港中央结算（代理人）有限公司英文名称 HKSCC NOMINEES LIMITED 注意两个不同的名称，这家公司的资料无可查询。
+
+2、1997年香港回归，1998年年亚洲金融风暴后，香港特别行政区财政司司长（曾荫权）在1999年年发表财政预算案演词时公布，本港证券及期货市场会进行全面改革，以提高香港的竞争力和迎接市场全球化所带来的挑战。根据改革方案，香港联交所与香港期交所实行股份化并与香港结算合并，由单一控股公司香港交易所拥有。
+
+3、1999年9月27日各自举行股东大会，会上分别通过有关的协议计划，并于1999年年10月11日获法院批准有关协议计划。两所及结算公司的合并于2000年3月6日正式生效，合并后的香港交易所于2000年6月27日以介绍方式在联交所上市。股份上市首日收市价为8.25港元。
+
+4、自2000年6月起，期交所交易已全面电子化。开放商具文贵爆料为北大方正。
+
+5、上面的挖掘显示，1995年就有国内的企业在香港H股上市，这时在香港上市不是一般的企业能够做到的，当然目的一定不是募集资金，因为当时的香港还没有回归，那只有一个目的就是通过香港上市这个通道把人民币资产通过香港这个管道转移出去！
+
+所以这个公司的设计就非常合理了，为了掩盖这个公司，出来一个香港中央结算有限公司也就变得合理了，谁又能分得清这两个公司呢？香港中央结算有限公司是负责技术的管理公司，而香港中央结算（代理人）有限公司则是真正的股东资产的持有者。
+
+所以香港中央结算（代理人）有限公司是一群股东构成的，在香港回归前，通过国企在香港的上市将国内的资产以股票的持有形式转移到这群股东手中。当香港回归许可企业到香港上市后，通过香港中央结算有限公司控制中央结算系统的账户，任何在香港上市的公司（主要是国企）自然产生了最大的股东香港中央结算（代理人）有限公司，而这个最大的股东的投资和股票买卖则被严密控制。
+
+这一定是一个巨大的计划：在上面的1995年东北电气香港上市案中，成立于1991年的香港中央结算（代理人）有限公司HKSCC NOMINEES LIMITED自成立开始就有选择地在中国内地选择国企在香港H股上市，中金公司作为投资人从银行拿钱作为原始股投入，和海南慈航等一起作为内地公司的控股者展控整个上市过程，然后再控制香港的国有中资企业购买上市公司的股票，从而获得巨大的上市盈利。最终的收益人就是这个香港中央结算（代理人）有限公司，而这个公司的股东是谁，一定是个天大的秘密，最终的钱流到哪里，也不知道，所以他们关心的只是在香港上市，关心的只是掌控整个上市过程。
+
+李小佳、方正的软件开发、香港回归，香港交易所的改革以及沪港通的实施、都是为这个公司的最终受益而设计的，无数的人包括四大国有银行、香港政府、所有的H股内地上市公司，沪市、深市上市公司、摩根斯坦利、摩根大通、高盛甚至整个华尔街的投行都在为之服务！
+
+我们看看这家公司所拥有的庞大帝国把！
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/db980a33-1a03-4546-a268-dc6947793b9e.png?asset_id=0f5fe663-cab6-4042-88a5-b24549adfc1d&amp;img_etag=%22613897cfc6244a2db903e204770b6088%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/db980a33-1a03-4546-a268-dc6947793b9e.png?asset_id=0f5fe663-cab6-4042-88a5-b24549adfc1d&amp;img_etag=%22613897cfc6244a2db903e204770b6088%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/15648946-821b-4389-81ed-44a93afd2c6e.png?asset_id=a603fcd1-12ed-4898-b3d7-f6bd8263cd56&amp;img_etag=%2202c338d5d8b3e54478b49bab46d6f95a%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/15648946-821b-4389-81ed-44a93afd2c6e.png?asset_id=a603fcd1-12ed-4898-b3d7-f6bd8263cd56&amp;img_etag=%2202c338d5d8b3e54478b49bab46d6f95a%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/e3f7f0be-55f8-4c5c-b989-621b83a23229.png?asset_id=ad74a346-deea-4ae9-b1e6-2d7faf9907eb&amp;img_etag=%226ecf547982c97cc4fce8dcc6b81c212d%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/e3f7f0be-55f8-4c5c-b989-621b83a23229.png?asset_id=ad74a346-deea-4ae9-b1e6-2d7faf9907eb&amp;img_etag=%226ecf547982c97cc4fce8dcc6b81c212d%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/27da5790-c1c1-4de1-b995-6e97f9a023e8.png?asset_id=e05714ca-70ae-4c86-b7ba-9810541766e3&amp;img_etag=%223db6b4edfc69fe91a7cc2a978e59693c%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/27da5790-c1c1-4de1-b995-6e97f9a023e8.png?asset_id=e05714ca-70ae-4c86-b7ba-9810541766e3&amp;img_etag=%223db6b4edfc69fe91a7cc2a978e59693c%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/e7955d3f-57ae-432f-a769-e3c1e7dfd360.png?asset_id=fd8e34a3-ff10-4922-80ba-0ab757dbbd51&amp;img_etag=%2262118d2d892a59a06763252d2407c099%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/e7955d3f-57ae-432f-a769-e3c1e7dfd360.png?asset_id=fd8e34a3-ff10-4922-80ba-0ab757dbbd51&amp;img_etag=%2262118d2d892a59a06763252d2407c099%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/c70a4468-53d6-4a2c-9fef-975865569335.png?asset_id=14b95505-0f0d-415c-86d4-f3b1d51d8e03&amp;img_etag=%22e21d709f80774b51e5f4cef24bc46b9b%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/c70a4468-53d6-4a2c-9fef-975865569335.png?asset_id=14b95505-0f0d-415c-86d4-f3b1d51d8e03&amp;img_etag=%22e21d709f80774b51e5f4cef24bc46b9b%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/b8192d27-e12a-4e52-adff-e5bdafa760b5.png?asset_id=91ee6e25-5d4c-4bb2-ae3d-d5833c31a065&amp;img_etag=%22c33a951b2a285dc030bbb606aabd48fc%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/b8192d27-e12a-4e52-adff-e5bdafa760b5.png?asset_id=91ee6e25-5d4c-4bb2-ae3d-d5833c31a065&amp;img_etag=%22c33a951b2a285dc030bbb606aabd48fc%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/3e615080-37a9-474f-944f-dedea3e0bcb6.png?asset_id=c00602fe-5bd5-4894-a0c9-85cba59e453f&amp;img_etag=%22ee8eb90516636488a65901069f95edb4%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/3e615080-37a9-474f-944f-dedea3e0bcb6.png?asset_id=c00602fe-5bd5-4894-a0c9-85cba59e453f&amp;img_etag=%22ee8eb90516636488a65901069f95edb4%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/102f83ca-58ce-42e3-96cd-e1c6e92eaca9.png?asset_id=2bfe1404-9da7-4343-9ce5-c0a6f49c5093&amp;img_etag=%229f9e3cf11a7cc11a265b53f2ab1beb7a%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/102f83ca-58ce-42e3-96cd-e1c6e92eaca9.png?asset_id=2bfe1404-9da7-4343-9ce5-c0a6f49c5093&amp;img_etag=%229f9e3cf11a7cc11a265b53f2ab1beb7a%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/d2816388-f72d-47db-b8b2-28c67204f935.png?asset_id=493f0946-0a7e-4482-9c5f-584bbb9ae6f4&amp;img_etag=%22ea44bf4d6e66bac80606ade19f313f58%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/d2816388-f72d-47db-b8b2-28c67204f935.png?asset_id=493f0946-0a7e-4482-9c5f-584bbb9ae6f4&amp;img_etag=%22ea44bf4d6e66bac80606ade19f313f58%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/32c92d43-48fc-45e8-8c62-b3445b24ed25.png?asset_id=a3cd6946-2aa6-4e30-b4b4-5dcb103318a3&amp;img_etag=%22ea1bc97dc0c441d78b418b62380cc7e1%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/32c92d43-48fc-45e8-8c62-b3445b24ed25.png?asset_id=a3cd6946-2aa6-4e30-b4b4-5dcb103318a3&amp;img_etag=%22ea1bc97dc0c441d78b418b62380cc7e1%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/ab77932a-0361-4b82-ac7a-0beadc1f1e97.png?asset_id=b4248a09-94ba-42b9-a550-10b8f33c5ad4&amp;img_etag=%22a5e0a0a1beba22b3f3af1a183027656a%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/ab77932a-0361-4b82-ac7a-0beadc1f1e97.png?asset_id=b4248a09-94ba-42b9-a550-10b8f33c5ad4&amp;img_etag=%22a5e0a0a1beba22b3f3af1a183027656a%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/8ed39b30-e5a0-4492-a1ff-57498205aa26.png?asset_id=ea716fcc-9e2f-4b88-a667-552ad60913df&amp;img_etag=%223a6c9e647bd16a2e39e825402eab6a09%22&amp;size=2734)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/8ed39b30-e5a0-4492-a1ff-57498205aa26.png?asset_id=ea716fcc-9e2f-4b88-a667-552ad60913df&amp;img_etag=%223a6c9e647bd16a2e39e825402eab6a09%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/57c8bc32-ec00-4f0a-8816-8da72ccc18c0.png?asset_id=740f9a10-ced6-437c-9c73-8df6088af78e&amp;img_etag=%22278125baeaac4eaa3ebc6af0f935c83a%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/57c8bc32-ec00-4f0a-8816-8da72ccc18c0.png?asset_id=740f9a10-ced6-437c-9c73-8df6088af78e&amp;img_etag=%22278125baeaac4eaa3ebc6af0f935c83a%22&amp;size=1024)
+我们注意一下香港交易所的首席执行官李小加（Li Xiaojia, Charles, 1961年－），前摩根大通中国区首席执行官，专注于中国、亚洲及北美的投资业务。2009年6月3日，香港交易所正式委任李小加接替周文耀担任香港交易所首席执行官，该任命于2010年1月16日起生效。
+
+李小佳来自摩根大通，这是巧合吗？后面的挖掘中我们将会关注这个摩根大通。
+
+注意李小佳的简历：
+
+1984年毕业于厦门大学外文学院英语专业，毕业后任中宣部《中国日报》社记者。1986年赴美留学，先后获得美国阿拉巴马大学新闻系硕士学位和哥伦比亚大学法律博士学位。曾先后任职于华尔街著名的达维律师事务所与布朗伍德律师事务所，主要从事金融证券与兼并收购工作。**在此期间，李小加曾作为中华人民共和国财政部美国律师参与发行了中华人民共和国第一次全球主权债的发行工作。也参与了中国最早一批国企跨境上市的交易，是中国金融证券业改革开放的最早实践者之一。**
+
+**1994年加入美林证券，主要从事中国政府与企业的融资与海外发展工作。**1999年任美林证券中国区总裁，负责中国业务的决策与发展。**在美林期间，李小加主持牵头进行中国海洋石油、中国移动、中国电信等一系列资本市场的重大交易与发行。**
+
+**2003年加入摩根大通任中国区主席，总体负责摩根大通在华业务。**摩根大通中国业务于近年取得了迅猛发展。自从加入摩根大通，李小加牵头进行业内多项重大交易，包括中海油196亿美元竞购美国尤尼科等。2006年，摩根大通成功完成中海油、中国铝业、中国招商银行等股票发行上市工作。**李小加参与策划发起的中国海洋石油竞购尤尼克事件，则被认为开创了中国企业的新时代**。
+
+2016年10月4日晚上，赤柱大潭道李小加的居所发生爆窃案，案发时他正外游，其外佣刚由外返回，发现两名黑衣贼正在搜掠，贼人落荒而逃，惟保险箱已被撬开。李小加返港后表示，失去不少具纪念价值的物品，心情难过。他丢失了什么？
+
+**反复挖掘：**
+
+交叉点：1 中金公司
+
+我们再次脑洞大开，重新搜索中金公司的信息：
+
+根据维基百科，中金公司成立于1995年[5]，是由中国建银投资有限责任公司、摩根士丹利、中国投资担保有限公司、新加坡政府投资公司、名力集团控股有限公司等公司，基于战略合作关系共同投资组建的中华人民共和国第一家中外合资投资银行。其子公司中国国际金融香港证券有限公司在1998年成立，随后中金上海分公司成立，并在北京、上海和深圳建立证券营业部，业务范围扩至全国。
+
+注意 中金公司的股东：建设银行的中国建银投资有限责任公司，摩根士丹利，新加坡政府投资公司（这就是淡马锡公司），而淡马锡公司在2004年又购买了建设银行的5%的股权。
+
+2004年，朱云来出任公司首席执行官。朱云来在1998年加入中金公司，当时担任公司资本市场部负责人。注意，2004至2006年间，中金公司将20%的股权以影子股票的形式授予管理层和员工，其持有人资料及持有量从未公开。
+
+2014年，10月，公司总裁朱云来、首席经济学家彭文生、董事长金立群等人纷纷辞职。
+
+而在朱云来和众多股东辞职后的2015年11月9日，中金公司在香港联交所挂牌上市，开盘价报10.9港元，比招股价高6%，IPO共发售约6.114亿股，并以招股价区间上限10.28港元定价，集资62.85亿港元。其IPO供散户认购部分录得3.7倍超额，国际配售部分则大幅超额认购。
+
+截至2017年4月，其股权结构如下：
+
+48.58% 中央汇金投资有限责任公司
+
+6.85% 新加坡政府投资有限公司
+
+4.31% TPG Asia V Delaware，，L.P.（TPG Capital子公司）
+
+4.18% KKR Institutions investments，L.P. KKR
+
+3.20% 中国投融资担保有限公司
+
+3.08% 名力集团控股有限公司
+
+2.09% 大东方人寿保险有限公司（Great Eastern Holdings Ltd.）
+
+17.36% 公众股东
+
+剩余 不明
+
+需要注意的是以下几点：
+
+**1、1994年，出任中国建设银行行长、党组书记。在此期间，王岐山推动建行和摩根士丹利合作，成立了中国第一家合资投资银行——中国国际金融有限公司**，并兼任董事长职务。
+
+2、中金公司是王岐山作为建行行长推动成立的，1995年成立，兼任董事长，朱运来（朱镕基之子）1998年加入中金，担任公司资本市场部负责人，2004年，朱云来出任公司首席执行官，而淡马锡公司2004年购买了建设银行的股票。一切都是设计好的一样。
+
+3、高燕燕据说在中金和朱云来是同事，后来去了摩根士丹利，注意中金目前的股东中没有摩根士丹利，而摩根士丹利在退出中金时高燕燕应该已经任职，一定收获颇丰。
+
+4、淡马锡公司对中金的控制不仅像是设计的而且被刻意掩盖。所以淡马锡长期控制中金一定是最终目的。
+
+5、2004至2006年间，中金公司将20%的股权以影子股票的形式授予管理层和员工，
+
+给了谁可想而知了。
+
+6、于是2015年11月9日，中金公司在香港联交所挂牌上市，开盘价报10.9港元，比招股价高6%，IPO共发售约6.114亿股，并以招股价区间上限10.28港元定价，集资62.85亿港元。
+
+7、朱云来等高管的辞职是在上市之前的2014年。
+
+8、该淡马锡的丁玮出场了：丁玮先生于2002年至2011年为中金公司投资银行业务委员会执行主席、投资银行部负责人及董事总经理，负责中金投行部的业务和管理。丁玮是朱云来的马仔。这样一个牛的人2011年2月居然加入淡马锡。最神奇的是在2014年初也就是中金公司将20%的股权以影子股票的形式授予管理层和员工之前回到了中金公司，从此开始了中金系的征战。而到今天他任然是淡马锡中国区高级咨询董事！
+
+至此淡马锡与中金公司与王岐山、朱镕基家族的关系可见一斑了。这个丁玮绝对是个关键人物，而后来的吴亦兵DT估计也就无关紧要了。
+
+由此掌控中国金融江山的四大国有银行、中金公司的背后出现了淡马锡的身影，而淡马锡的身后出现了朱镕基、王岐山的身影。
+
+**反复挖掘：**
+
+交叉点：2 香港中央结算有限公司
+
+香港中央结算中心（代理人）有限公司和香港中央结算中心有限公司是两家不同的公司，理解这一点非常重要，因为第一家的股东信息是高度机密，而香港中央结算中心有限公司的股东信息是公开的，它本身是一家上市公司：
+
+报告期：2018-12-31
+
+股东名称 直接持股数量(股) 股份性质
+
+JPMorgan Chase & Co 12,191,550 普通股
+
+香港特别行政区政府 74,840,961 普通股
+
+这家公司的主体上市公司香港交易所第一大股东是香港特别行政区政府，第二大股东是JPMorgan Chase & Co 也就是摩根大通。
+
+清楚摩根大通和摩根斯坦利的都知道，JP摩根（摩根大通）成为纯商业银行，摩根士丹利成为投资银行，还有一个摩根负责海外业务，于1990年被德国银行收购。当时的JP摩根，就是摩根大通的前身，2000年并入摩根大通，不再独立存在。所以大致可以看成，JP摩根分家，形成了摩根大通和摩根士丹利，虽然不是同一个时代形成。
+
+也就是说，香港交易所的第二大股东和中金公司原始投资者本来是一家，一个是做商业银行，一个做投行业务。而第一大股东可以看做CCP的中央政府。而CCP当时掌控金融的当时是朱镕基，后来是王岐山，这是什么样的布局，你懂的。
+
+到此，香港中央结算（代理人）有限公司为什么持有股份及投资，而这些投资和股份和香港中央结算有限公司没有一分钱的关系，这个疑问应该有个答案了，一个完美的设计。这还不够，还需要淡马锡公司投资一个关键的人物 江志成!
+
+**反复挖掘：**
+
+交叉点：3 博裕投资
+
+江志成（英语：Alvin Jiang；1986年1月22日－），籍贯江苏扬州，前中共中央总书记江泽民之孙，江绵恒之子，本科毕业于美国哈佛大学经济系，后在哥伦比亚大学取得硕士学历。曾**任职于美国华尔街金融机构高盛公司**，并长期居住在纽约。之后在**香港设立博裕资本有限公司**，成为首任董事。2013年，江志成参与的博裕投资在香港宣布欲募集15亿美元资金，引起外界广泛关注，中国退休以及现任政治高层的子女在私募股权和风险投资行业的迅速崛起，令业界和媒体侧目。
+
+江志成从哈佛大学毕业后，曾在高盛公司的直接投资部门PIA（Principal InvestmentArea）短暂工作。2010年9月28日博裕资本有限公司在香港注册（**联合创始人包括马雪征、张子欣、童小幪**），江志成任首任董事。
+
+公司之后改名为博裕投资顾问有限公司（**投资人包括淡马锡、李嘉诚等**）。博裕在成立后的短短一年半时间内，成功拿下两笔大生意，包括阿里巴巴和信达国际控股的上市。纵观所有其他中国的投资公司，没有一家能在如此短时间内，吃下如此大的两笔生意。报道分析，博裕投资能和中投、中信以及国开行等中国官方金融机构进行大规模的投资合作，显示其“强大的政商能力”。
+
+2011年初，江志成的博裕投资购的上海及北京国际机场的日上免税行，引起旁人侧目，认为博裕的生财门路非比寻常，因为连一些国营行业的禁地，博裕也可轻易染指。据路透社报道，免税商店在中国一直为国营所垄断，直到江泽民主政的1999年才把上海浦东国际机场的免税商店对外开放。江泽民的远房亲戚、**美籍华人江世干**赢得投标，在浦东机场开设免税商店日上免税行，之后10年间，江世干的生意蒸蒸日上，成为年收入超过10亿美元、排名仅次于中国免税公司的超级免税连锁店。
+
+关于博裕资本的挖掘DT以前曾经释放过，这里先不再展开，通过博裕投资所积累的财富应该在几万亿美元以上。
+
+其中应该特别说明一下屈臣氏的事情，因为这件事郭文贵专门爆料过，我们这里只是报一些公开的东西：
+
+2014年淡馬錫斥資440億元購入屈臣氏24.95%股權；（这440亿港币进入李嘉诚的腰包了吗？）
+
+2019年3月20日，彭博社一则关于屈臣氏的消息在资本市场迅速扩散。知情人士透露，包括中国互联网巨头腾讯在内的一个财团正考虑竞购淡马锡拟出售的屈臣氏股份。此次交易淡马锡将通过出售所持屈臣氏约10%股份获得大约30亿美元资金（估计给了江志成）。腾讯可能会联手一些投资基金共同对屈臣氏的股份发起收购，而同样表现出收购兴趣的还有阿里巴巴。（博裕资本已经实际上是这两家公司的实际控制人），至此两次出售共计约90亿美金。而且股权还没被别人拿走，玩的高啊！
+
+至此应该有个初步答案了！这种运作的方式是不是和新加坡淡马锡的运营方式一模一样？不同的是，淡马锡是将财富往淡马锡搬，而这个团队是把中国的财富往外搬。最终搬到哪里，将是盗国系列需要挖掘的一个核心重要问题。我们会逐步揭开答案。
+
+于是一个宇宙财富搬运团队诞生了，我们来看看它的豪华阵容吧！
+
+技术总指导 淡马锡公司
+
+总指挥 王岐山 朱云来 江志成等
+
+搬运工
+
+- 中金公司
+- 四大国有银行
+- 淡马锡公司
+- 摩根斯坦利
+- 摩根大通
+- 高盛
+- 香港交易所
+- 以下省略若干
+
+
+啦啦队
+
+- 李嘉诚
+- 何晶
+- 历任香港特区政府及香港四大不要脸
+- 中国政府及各地政府机关党政军机构
+
+
+搬运目的地
+
+第一站
+
+- 香港中央结算（代理人）公司
+- 香港博裕资本
+- 慈航资金
+- 以下省略若干
+
+
+第二站
+
+- 淡马锡公司？
+- 未知
+
+
+最后，我们看看淡马锡公司在中国的投资究竟有多牛！当然这只是可查询的少量部分
+
+附录：淡马锡在中国的投资（少量部分）资料来源于互联网
+
+A淡马锡投资管道：
+
+1 凯德投资 著名的房地产商嘉德中国是淡马锡旗下凯德投资的子公司
+
+2 富登金融控股 入股中行和建行是通过富登金融控股和新加坡亚洲金融完成
+
+3 丰树投资 投资地产通过丰树投资
+
+4 祥峰投资 投资PE和未上市股权通过祥峰投资
+
+5 Baytree investment 通过Baytree investment持有天威英利
+
+B淡马锡在中国投资案
+
+1、中国工商银行：
+
+淡马锡增持中国工行股份至8.07%
+
+路透香港2013年 6月28日 – 据香港证交所声明，新加坡国有的投资机构淡马锡控股增持中国工商银行(1398.HK)(601398.SS)股份。
+
+淡马锡将以均价每股4.602港元的价格购买1.26亿股中国工商银行股份，总金额约为5.8亿港元(7,500万美元)，持股比例因此增至8.07%。
+
+尽管高盛(GS.N)退出工商银行，但淡马锡仍在继续增持。高盛5月将最后一部分工商银行持股出手，结束了七年的投资关系，因其在新的资本要求前改善资产负债表。高盛在2012年4月出售部分工商银行持股，获得25亿美元，其中多数股份被淡马锡收入囊中。该声明标注日期为6月27日。(完)
+
+2、中国建设银行
+
+2005年新京报 此前，美国银行和淡马锡公司分别斥资30亿美元和14.66亿美元购买了建行9.9%和5.1%
+
+的股权，并且根据当初双方签订的协议，两家银行还纷纷承诺将在建行IPO之际分别购买5亿美元和10亿美元。而一直在中国投资甚为活跃的淡马锡甚至表示，如果建行不行使15%的增发权，将在建行IPO的时候再购买20亿美元的股份。
+
+中国建设银行将在10月27日正式在香港联合交易所挂牌上市，目前已确定发行价为每股2.35港元。
+
+3、南戈壁能源29日挂牌港交所 获中投及淡马锡投资
+
+转载|2010-01-12 13:27
+
+据香港媒体报道，主要在蒙古进行煤矿开采的加拿大上市集团南戈壁能源（1878），引入中投及淡马锡为基础投资者，有望成2010年新股第一炮。该公司昨举行投资者推介会，拟发行2295万股，招股价每股上限133.5元，入场费6742.35元。计划本周五（15日）开始招股、29日挂牌，料成今年首只公开给散户认购之新股。最多集30.64亿。据初步招股文件透露，南戈壁拟发行2295万股，其中2025万股（即约88％）为国际配售；另270万股（约12％）为公开发售。招股价每股上限为133.5元，最多集资30.64亿元，每手50股，计及交易缴费，每手入场费6742.35元。另有15％超额配股权。若公开发售超额100倍或以上，按回拨机制，公开发售部分将会增至占招股比例的50％。
+
+南戈壁这次引入中国投资公司（CIC）及新加坡主权基金淡马锡为基础投资者，双方各斥资5000万美元（约3.9亿元），共涉资7.8亿元。设6个月禁售期。如此强劲阵容，相信吸引不少投资者认购。事实上，南戈壁早于去年10月已得到中投垂青，获约5亿美元（约39亿元）投资，以扩展其蒙古业务。
+
+4、 屈臣氏
+
+2014年淡馬錫斥資440億元購入屈臣氏24.95%股權
+
+5、中国智能交通
+
+2010年6月28日 – 根据清科数据显示，中国智能交通的投资机构包括淡马锡控股和英特尔资本。 … 将于7月15日在香港联交所上市，拟通过香港IPO融资9.237亿港元
+
+6、信达生物
+
+信达生物-B的挂牌就幸运得多。作为**本土单抗创新药**的代表企业，引入10名基础投资者，涉资2.45亿美元，按中间价计算，约占股份发售61.26%，设有六个月禁售期。**而基石投资者就包含有红杉资本，惠理集团、涌金资本、新加坡的淡马锡、美国资本**等等全球知名机构。
+
+7、 蒙牛雅士利国际
+
+于11月11日上午复牌交易。蒙牛乳业、蒙牛国际与雅士利11日上午在港交所联合发布公告，蒙牛国际以每股3.5港元的价格向五家投资方出售其持有的4.71亿股雅士利股份（约占总股本的13.2%），涉及资金16.49亿元。出售完成后，雅士利的公众持股量已恢复至最低比例水平以上，雅士利股份将恢复在港交所的交易。
+
+停牌近3个月的雅士利国际于11月11日上午复牌交易。蒙牛乳业、蒙牛国际与雅士利11日上午在港交所联合发布公告，蒙牛国际以每股3.5港元的价格向五家投资方出售其持有的4.71亿股雅士利股份（约占总股本的13.2%），涉及资金16.49亿元。出售完成后，雅士利的公众持股量已恢复至最低比例水平以上，雅士利股份将恢复在港交所的交易。据悉，购买雅士利股份的五家基金中包括**新加坡淡马锡公司及厚朴投资**管理公司。出售完成后，淡马锡及厚朴分别持有6.19%和4.98%的雅士利股份，蒙牛国际（向雅士利发起全面收购要约的特殊目的公司）持有雅士利76.58%的股份，仍为雅士利控股股东。雅士利停牌前的8月13日收盘价为每股3.62港元，该3.50港元的转让价格较收盘价折价3.31%。雅士利股价11日复牌后大涨17.13%，报收于每股4.24港元。
+
+自6月18日蒙牛国际向雅士利发出收购要约以来，这场收购案一直按照程序稳步推进。8月13日，在收购要约截止之日，蒙牛国际完成对雅士利的收购，控股比例达到89.82%，成为雅士利大股东。本次出售完成后，蒙牛对雅士利的持股量将降至76.58%，雅士利的“公众”持股量将为23.42%，符合最低公众持股百分比例以上水平。随着蒙牛雅士利合作的尘埃落定，蒙牛乳业方面表示:“中粮蒙牛与雅士利顺利完成并购，使雅士利在资本运作和市场运作方面，获得更大的平台优势。今后双方将加强进行资源整合和优势互补，为中国高端婴幼儿奶粉市场提供更多消费选择。”
+
+8、东阳光药
+
+港交所最新资料显示，东阳光药(01558)主要股东淡马锡控股（私人）于2017年4月27日，场内增持公司好仓1510万股，耗资2.4613亿港币，成交均价16.3港币。变动后持有权益1510万股，于公司已发行股份占比6.69%。
+
+9、小米香港上市
+
+小米上市，雷军或将成为华人首富，而新加坡有两家公司也将从中获益！这就是大名鼎鼎的**淡马锡和新加坡政府投资（GIC）**。
+[!\[\]()!\[\](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/548117d4-6c05-4723-98ad-7b1ee5f9b5bf.png?asset_id=dec5a2c7-19ac-4d78-a2fd-58b72625892b&amp;img_etag=%22efb7a4ec4705bc768591f6e70cff25d4%22&amp;size=2560)](https://spark.adobe.com/page/Jej0QvLTAqwRk/images/548117d4-6c05-4723-98ad-7b1ee5f9b5bf.png?asset_id=dec5a2c7-19ac-4d78-a2fd-58b72625892b&amp;img_etag=%22efb7a4ec4705bc768591f6e70cff25d4%22&amp;size=1024)
+10、阿里巴巴
+
+2014年，阿里赴美上市，将其IPO（首次公开招股）价格确定为每股68美元，首日报收于93.89美元，较发行价上涨38.07%，势头非常强劲。公开信息显示，阿里的**第5大机构投资者淡马锡**2018年末披露，卖出162万股。**第7大机构投资者，汇丰控股**也卖出38万股。
+
+11、汇源果汁
+
+2017-04-12 22:50:52
+
+据港交所披露，Temasek Honding Limited（淡马锡控股）在2017年3月20日还持有汇源果汁8.23%的股份，但到3月28日，其持股数量已经变为零。
+
+3月底，淡马锡控股清仓了其所持的汇源果汁（01886.HK）的全部股份。据港交所披露，Temasek Honding Limited（淡马锡控股）在2017年3月20日还持有汇源果汁8.23%的股份，但到3月28日，其持股数量已经变为零。根据资料，**汇源果汁是在2014年3月21日对外宣布获得淡马锡1.5亿美元投资的**。当时汇源的股价在6港元左右。其形式是淡马锡通过旗下公司Baytree Investments （Mauritius） Pte Ltd 认购汇源果汁总额1.5亿美元的可换股债券，并可按每股7.0港元的初步换股价（可予以调整）转换为公司普通股。假设汇源果汁不发行任何新的普通股，可换股债券按初步换股价获全数转换后，淡马锡将间接持有汇源果汁占已发行股本的8.23%。
+
+认购协议明确显示，该笔可换股债券的到期日是2019年。
+
+三年过去，汇源的股价一路下跌，4月11日的收盘价格为2.51港元。一位业内人士表示：“在此期间，淡马锡不会转股，毕竟持有债券能享受到固定收益。而选择将手中还有两年才到期的可转债全部抛掉，可见，淡马锡对汇源可谓非常失望，感觉没有继续等待的必要。”
+
+12、屈臣氏
+
+屈臣氏又要“卖身”了。
+
+2019年3月20日，彭博社一则关于屈臣氏的消息在资本市场迅速扩散。知情人士透露，包括中国互联网巨头腾讯在内的一个财团正考虑竞购淡马锡拟出售的屈臣氏股份。此次交易淡马锡将通过出售所持屈臣氏约10%股份获得大约30亿美元资金（估计给了江志成）。腾讯可能会联手一些投资基金共同对屈臣氏的股份发起收购，而同样表现出收购兴趣的还有阿里巴巴。
+
+作为两家一直存在竞争关系的互联网巨头，能同时引发他们兴趣并且直面碰撞的公司并不多，但凡引起他们同时关注的公司，都在随后的几年经历快速发展，并发展为新生代巨头，如滴滴、美团。不过本次交易的主角屈臣氏是个例外，它是一家已具备191年历史的本土企业，并且是线下零售极具代表性的企业，业务遍布24个国家/地区，共经营14976间零售商店，聘用130000名员工。屈臣氏在中国438个城市拥有超过3200家店铺和逾6400万会员，是中国目前最大的保健及美容产品零售连锁店。
+
+屈臣氏是长和旗下的子公司，在2014年时淡马锡从长和手中收购了屈臣氏24.95%股权，涉资440亿港元。
+
+2014年2月的长和系业绩会上，李嘉诚表示，“屈臣氏会在两个地方上市，因市值相当大，但香港一定是其中之一。”时隔不到一个月，长江和记就与新加坡主权投资基金淡马锡达成了合作协议，其速度令人咋舌。根据协议内容，屈臣氏集团估值为1763.53亿港币。淡马锡为这24.95%股权所支付的440亿港币。要知道，当时市场还在纷纷猜测上市地点和时间，各大券商和分析师还在忙于为屈臣氏整体上市估值。随后，在谈及屈臣氏的上市地点时，李嘉诚改口称，只考虑新加坡同香港。
+
+此外，通过一系列海外并购，屈臣氏成为全球最大的个人护理连锁经营商。
+
+这样的转型虽然来得有点晚，但是仍然卓有成效，在2018半年报中，屈臣氏中国收益总额为123.53亿港元，同比增长16%；EBITDA（税息折旧及摊销前利润）为24.7亿港元，同比增长13%。在长和3月21日刚刚发布的年报中，于2018年底，零售部门在24个市场经营14,976家店舖，较去年增加6%。收益总额为1,689.9亿港元、EBITDA为161.6亿港元及EBIT为130.7亿港元，分别增加8%、9%及8%。
+
+其中，亚洲保健及美容产品业务尤其带来可观增长，其EBITDA因店舖数目增加10%及同比店舖销售额提高7.1%而增加20%。中国保健及美容产品业务继续为主要盈利来源，取得EBITDA增长7%及持续理想EBITDA毛利率19%。
+
+根据淡马锡此前的交易信息可知，2014年时屈臣氏的整体估值为**1763.53亿港元**。按照目前的汇率计算，此次将要出售的10%屈臣氏股份价格为235.422亿港币，屈臣氏的整体估值已经高达2354.22亿港元，估值上升了25%。
+
+2018年11月5日，首届中国国际进口博览会将在中国上海拉开帷幕。进口博览会将带来十万亿美元的商机（中国预计将进口价值超过10万亿美元的产品和服务）。
+
+此次进口博览会向全世界表现了中国的发展是世界的机遇，随着中国的开放大门越来越大，更多的进口产品可以进入中国，搭上中国发展的快车，共同促进中国企业转型升级。在进口博览会前夕，中国开展了一系列降低关税的举措。至此，今年以来经过连续多次自主调整，中国关税总水平较上年实现了23%的平均降幅。这一系列行动都对主要依靠进口的美妆行业起到了促进的作用，对于屈臣氏而言，也是一次全新的发展契机。
+
+一如上文所提，从2017年开始，随着一线城市流量被线上瓜分殆尽，屈臣氏将战略重心移向三四线城市，三四线城市，线上线下的融合率低，消费层级较低。在经济欠发达的三四线城市，口红面膜为代表的廉价奢侈品可以很大程度满足人们的幸福感，这也在一定程度上提供了屈臣氏的持续发展空间。
+
+这一点与口红效应十分相似，2018年中国曾掀起一波关于口红效应的讨论热潮，关于口红效应，是指因经济萧条而导致口红热卖的一种有趣的经济现象，也叫“低价产品偏爱趋势”。在美国，每当在经济不景气时，口红的销量反而会直线上升。这是因为，在美国，人们认为口红是一种比较廉价的奢侈品，在经济不景气的情况下，人们仍然会有强烈的消费欲望，所以会转而购买比较廉价的奢侈品。
+
+阿里和腾讯，到底在争什么？
+
+虽然参与的三方都表示了不予置评，但是关于淡马锡要出售屈臣氏股份的信息，早在今年1月份就已经出现，可见这一消息并非空穴来风。
+
+事实上，屈臣氏与腾讯和阿里合作已经有过先例，在2018年，屈臣氏与饿了么合作，提供闪电送服务；与永辉及腾讯举行联合发布会宣布，三方组建新合营公司“百佳永辉”，并将整合屈臣氏集团旗下百佳超市，以及永辉超市在广东省的商超业务。
+
+屈臣氏庞大的分销网络是阿里十分看重的一点，在布局新零售以后，阿里持续的向线下注入资源，据了解，目前阿里系新零售阵营囊括了星巴克、银泰商业、三江购物、百联集团、联华超市、新华都、高鑫零售、居然之家等一众传统零售企业。
+
+多年积累下的销售数据与庞大的会员体系也是屈臣氏与阿里可能展开合作的基础，同样是传统零售巨头的屈臣氏与阿里的战略协同作用显然更强。
+
+同互联网时代的引流不同，新零售时代的主要特征是以赋能为主要代表的，利用新技术、新模式等手段来重塑行业运行逻辑，从而找到新的增长突破口，在此基础上阿里比腾讯更具备与屈臣氏合作的意向.
+
+与阿里自带的零售基因不同的是，腾讯更擅长从财务投资人的角度完成企业与被投之间的战略协同。在腾讯的新零售合作阵营囊括了永辉超市、永辉云窗、沃尔玛、海澜之家、家乐福中国、步步高、万达商业等企业。并且，腾讯也是传统电商京东、社交电商拼多多、社区电商平台小红书、生鲜电商平台每日优鲜背后的投资方，在协同方面，即便腾讯自己不去做，也可以促成被投之间的合作。
+
+14、 凯叔讲故事：
+
+凯叔讲故事”于近期完成6600万美元C+轮融资
+
+来源：钛媒体 2020-02-26 18:50:06
+
+“凯叔讲故事”于近期完成了6600万美元C+轮融资。本轮融资由挚信资本领投、新加坡投资公司淡马锡和正心谷跟投，泰合资本继续担任独家财务顾问。至此，“凯叔讲故事”实现了一年时间内累计获得超过1.2亿美元的融资。
+
+15、盛大文学
+
+盛大文学宣布获得来自高盛和淡马锡1.1亿美元融资，邱文友表示将主要用于开放战略和移动战略此前一直炒得沸沸扬扬的盛大文学融资疑云终于落定，今天盛大文学在北京召开发布会，宣布已通过私募融资总计1.1亿美元。投资方包括**高盛的关系企业Goldman Sachs Investments Holdings (Asia)Limited，及新加坡投资机构淡马锡**。这也是继2012年5月Orbis旗下基金以1500万美元的价格，购买盛大文学1.875%股份后，盛大文学引入的又一轮融资。只不过当时盛大文学的估值约8亿美元，而这一次估值约6亿美元。
+
+此前一直炒得沸沸扬扬的盛大文学融资疑云终于落定，今天盛大文学在北京召开发布会，宣布已通过私募融资总计1.1亿美元。投资方包括高盛的关系企业Goldman Sachs Investments Holdings (Asia)Limited，及新加坡投资机构淡马锡。这也是继2012年5月**Orbis**旗下基金以1500万美元的价格，购买盛大文学1.875%股份后，盛大文学引入的又一轮融资。只不过当时盛大文学的估值约8亿美元，而这一次估值约6亿美元。
+
+16、民生银行
+
+2005年1月淡马锡旗下全资子公司亚洲金融控股公司(AFH)先是收购了民生银行5%的股份
+
+17、中国建设银行
+
+2005年8月亚洲金融控股公司(AFH)向中国建设银行的大股东中央汇金投资有限公司收购了建行5.1%的股份
+
+18、中国银行
+
+2005年12月AFH又投资15亿美元向中国银行认购5%的股份
+
+19、2012年对小米的投资
+
+2012年小米开始A轮融资淡马锡坚定的投了小米1800万美元。1年后，淡马锡在小米C轮再砸下1.08亿美元，还把同为新加坡2018年，小米给他们的回报是多少？第一轮的1800万美元翻了60倍，而第二轮的1.08亿美元也有10多倍的回报。还把具有新加坡背景的GIC拉进来。
+
+20、对阿里巴巴的投资
+
+阿里巴巴2011年在香港25亿美元私有化2012年64亿美元回购雅虎持有的40%股份、都出现了淡马锡的身影阿里上市后，淡马锡在阿里上至少赚了10倍
+
+21、对腾讯
+
+22、京东
+
+23、美团点评
+
+24、滴滴
+
+25、摩拜单车
+
+26、携程
+
+27、蚂蚁金服参与创业公司的早期融资
+
+28、蔚来汽车 投资2000万美元
+
+29、吉利德科学（Gilead Sciences）
+
+**吉利德科学（Gilead Sciences）**成立于1987年，是一家专门研究抗病毒药物的生物制药公司，总部位于美国加利福尼亚州，中国总部在上海。该公司的产品组合和研究药物管道包括人类免疫缺陷病毒获得性免疫缺陷综合征即**艾滋病（HIV / AIDS），肝脏疾病，癌症，炎症和呼吸系统疾病以及心血管疾病的治疗**。
+
+30、对建行子公司投资
+
+建行理财子公司——**建信理财正和全球最大资管公司贝莱德（BlackRock）、新加坡国有投资公司淡马锡（Temasek）商谈，设立外资控股的合资公司，在中国开展资产管理业务。**有接近该交易的人士对财新记者透露，目前三方已经签订谅解备忘录，并继续商谈，目前还没有明确时间表，并有待监管审批。贝莱德和淡马锡计划一道成为这一潜在合资公司的控股股东。其中，合资理财公司股权结构是**建行方持股40%，外资持股60%**。该公司拟设上海，计划给中国投资者开发、分销在岸的投资产品。不过，合资企业最终还需经过监管审批。
+
+作为全球最大的资产管理集团，截至2019年9月30日，贝莱德全球管理规模达到6.96万亿美元（约合人民币近50万亿），所从事的业务类别涵括股票、固定收益投资、现金管理、替代性投资、不动产及咨询策略。今年早些时候，全球最大公募基金公司先锋领航集团（Vanguard）与蚂蚁金服在6月成立了合资公司——先锋领航投顾(上海)投资咨询有限公司。
+
+浙江蚂蚁小微金融服务集团股份有限公司与先锋领航投资管理（上海）有限公司合资成立先锋领航投顾（上海）投资咨询有限公司，注册资本2000万元人民币，其中，蚂蚁金服持股51%，控股合资公司，先锋领航持有剩下49%股份，经营范围为投资咨询等。先锋领航投顾（上海）投资咨询有限公司的法定代表人为蚂蚁金服副总裁黄浩，总经理为张宇，先锋领航投资管理（上海）有限公司董事长林晓东则出任合资公司董事。光大证券研究所金融工程分析师邓虎介绍，Vanguard集团旗下智能投顾业务（VPAS），将智能投顾和传统人工投顾相结合，以一系列算法代替昂贵的基金经理管理费用；降低了基金投资的准入门槛，扩大了基金规模，进一步降低了单位总成本。因此，Vanguard智能投顾虽然较晚进入市场，但其规模增长速度非常快，在一年以内占据了智能投顾总资产规模的50%以上。
+
+据基金君了解，Vanguard旗下个人投顾服务（PAS）目前管理着1400亿美元资产（截至2019年6月30日）。
+
+1975年，被尊为“指数基金教父”的约翰·博格尔（JohnBogle）创立了Vanguard集团（The Vanguard Group, Inc）。有别于其他资产管理公司，Vanguard集团有着独特的股权架构——基金持有人为公司股东，将股东与投资者利益捆绑在一起，确保双方利益保持一致。作为低成本管理和被动投资的代表性基金公司，Vanguard集团由成立时的近20亿美元资产管理规模，增长到如今的5.9万亿美元（约41万亿人民币）资产管理规模（截止2019年10月31日），是全球最大的公募基金和资产管理规模第二大的机构投资者，在成立时，公司即推出了标准普尔500指数基金，这也是全美国第一只向个人投资者推出的指数基金，目前规模是4000亿美元，是全世界最大的公募基金之一。
+
+31、对药明康德的投资
+
+药明生物脱胎于药明康德成立于2011年的生物制药和生物工艺部、生物新药发现部，在2015年独立成单独公司，提供有关生物制剂药物发现、开发及生产的一系列综合服务。在今年1月4日，药明生物正式公布赴港上市申请说明书。由此开启了药明康德自从2015年从纽交所退市后再次资本化的第二步。
+
+而药明生物发布的《董事名单与其角色和职能》公告来看，执行董事为首席执行官陈智胜和首席技术官周伟昌；非执行董事为李革、胡正国、吴亦兵、曹彦凌。
+
+32、云砺信息
+
+2019-10-10云砺信息（产品名：票易通）已于近期完成近1亿美元C轮融资，本轮投资由淡马锡领投、高瓴资本和钟鼎资本跟投，淡马锡中国区总裁吴亦兵将出任云砺信息董事。四年前，吴云从宝信软件（宝钢股份控股的上市软件企业）离开，创办了云砺信息。
+
+2019年7月消息，依据淡马锡年报：在华投资组合总额已达约4030亿元人民币。按照淡马锡投资获利10倍的数字计算，通过淡马锡公司从中国老百姓身上盗走的财富已经超过4万亿人民币以上。
+
+本文终。
+
+编辑：【[喜马拉雅战鹰团](https://spark.adobe.com/page/Jej0QvLTAqwRk/)】
+
+1+

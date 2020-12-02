@@ -1,53 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 乔治亚州的所有多猫腻（DOMINION）投票机将被冻结
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/607895/)
+## 退役三星中将麦金纳尼呼吁川普总统启用《叛乱法》，暂停人身保护令，宣布戒严，并在军方授权下启动大规模逮捕行动
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/608100/)
 
-*新闻来源：the gateway pundit《网关评论家》；作者：Jim Hoft；发布时间：2020年11月29日*
+发布：迈克·亚当斯， 2020年12月01日，星期二
+翻译： 康州盘古农场 – 烟波浩淼
+校对：康州盘古农场 – 黎明的光芒
+编辑： 康州盘古农场 –V
 
-*翻译/简评：Victory；校对：X-Wing飞得更高；审核：海阔天空；Page：拱卒*
+《自然新闻》WVWtv.com的布兰农豪斯（Brannon House）发表了另一篇对退役3星将军托马斯·麦金纳尼（Thomas McInerney）的重磅采访，他公开呼吁川普总统认识到网络战争对美国攻击的严重性，启用《叛乱法》，暂停人身保护令（像林肯一样），并在军事授权下发起大规模逮捕。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/88xAhRB7ypV32/images/da0d31ab-ea14-4ac9-8d28-3623498c8663.jpg?asset_id=d6f8591d-cc9f-4a3c-868d-52c6f653caa1&amp;img_etag=%22cf502c70bfb54308ad6a958adee1ab5a%22&amp;size=1024)](https://spark.adobe.com/page/88xAhRB7ypV32/images/da0d31ab-ea14-4ac9-8d28-3623498c8663.jpg?asset_id=d6f8591d-cc9f-4a3c-868d-52c6f653caa1&amp;img_etag=%22cf502c70bfb54308ad6a958adee1ab5a%22&amp;size=1024)
+原始完整采访在WVWtv.com的这个链接中可以找到。我们已经通过Brighteon.com在下面发布了一个6分钟的视频要点摘要。
 
-**简评：**
+麦金纳尼将军是一位功勋卓著的退伍军人和忠诚的爱国者，他的这一呼吁似乎是源于他意识到现有政府的大部分已经变节，现在正与国家的敌人勾结在一起。州长变节了，法院法官变节了，州选举官员为了达到推翻现任领导人川普总统的目的，故意进行协调一致、叛国的选举操纵。
 
-美国大选有点滑稽的意思了。乔治亚州作为本次大选中的焦点州，就投票机重置的问题一波三折。截止本文翻译完成时的最新进展是，法官又发布第三个命令推翻了之前撤销冻结的命令。目前最新的指令是冻结投票机10天。此次选举明显出现大规模舞弊，投票机是重要证据。冻结投票机是保留物证的常识性操作。而法官一天之内反复就冻结投票机的问题出尔反尔，从中我们可以窥到美国法律体系也出了很大的问题。所幸川普法律团队及时做出反应，给黑暗的力量施压，才最终得以反转。
+当政府官员叛变，法院无法信任时，**总统可以援引军事权力**，完成对叛国行为者的大规模逮捕，使用军事法庭，绕过民事法院系统，以军事扣押所有积极参与破坏美利坚合众国的公司。这显然将包括大科技公司和大多数左翼媒体，它们一直是选举操纵和新闻恐怖主义行为的同谋，旨在使这个国家陷入绝望。
 
-现在一切都在打明牌，中共及其黑暗势力一定会狗急跳墙用各种黑招，如造成投票机意外失火等等，希望正义力量有所防范。
+**从麦金纳尼将军采访视频摘录的亮点**
 
-**原文翻译：**
+以下是我自己摘录的这次重磅采访中的重点内容，你可以在下面观看6分钟的重点视频，或者在WVWtv.com查看采访全文。
 
-**突发：蒂莫西-巴顿（Timothy Batten）法官下达命令冻结乔治亚的所有多猫腻（Dominion）投票机…更新：法官在数小时内撤消命令**
+- 发生在美国的不仅仅是 “选票舞弊”，而是 “网络战”。这些都是针对美国的战争行为，利用网络战武器和技术，通过操纵选举过程来推翻政府。
+- 麦金纳尼呼吁川普总统启用《叛乱法》，暂停人身保护令，宣布戒严，并部署军队查封和保护所有投票机器。
+- （他们）通过网络战协调了6到10个州来改变选举结果。“这些都是叛国行为。“ 俄罗斯、中共国和伊朗也参与其中，使叛国行为更加严重。
+- 联邦调查局和司法部在这一切上完全是擅离职守，不动一根手指头。
+- CISA的克里斯·克雷布斯（Chris Krebs）甚至声称选举是 “完美的”，这是在撒谎。这是 “叛国共谋”，克雷布斯是沼泽地的一部分。
+- 川普总统必须根据2018年9月12日的总统令宣布国家紧急状态，该总统令点名 “外国干涉 “美国选举。
+- 川普还应该启用《叛乱法》。他必须暂停人身保护令，就像林肯和富兰克林·罗斯福（FDR）在战争时期都做过的那样。
+- 民主党、俄罗斯、中共国和伊朗，公然对美国实施网络战。
+- 总统必须 “马上开始逮捕这些人，宣布国家进入紧急状态下并戒严”。
+- 五个摇摆州的官员参与了 “叛国行为 “的 “预谋”。不仅仅是欺诈性投票，而是叛国。”他们试图推翻这个政府。”
+- 克里斯·米勒在国防部就职，因为 “现役军人将不得不镇压反法和BLM”。
+- 总统应该暂停12月14日的选举团会议，以及1月6日的新国会就职典礼。
+- 估计有8500万人投票给川普。
+- 军事法庭是必要的，因为正规法院没有能力解决这个问题。
+- 叛国者应该被逮捕和起诉，接受军事法庭的审判。这是唯一没有如此腐败并能正常运作的司法系统。
+- 暂停就职典礼，直到这次选举得到充分调查。
+- 我们人民要求总统采取这一行动。
+- 如果我们不揭露这次选举欺诈的话，”这是我们最后一次自由选举” 。佐治亚州的第二轮选举将被用 锤子（HAMMER）、记分卡（Scorecard）和多米尼（Dominion）投票机盗窃。
+- 佐治亚州的第二轮选举需要暂停， 直到选举欺诈被完全调查出来为止。
+- “这种腐败行为是不能接受的。这是叛国行为，我们必须对其进行彻底调查。”
+- 总统必须支持和捍卫美国宪法，抵御一切国内外敌人。这些都是国内的敌人。”就像斯大林说的，谁投票不重要，重要的是谁来计票。”
+- 美国司法系统的人不了解网络战是如何运作的。所以他们缺少对针对美国的犯罪和战争行为的真正把握。
+- “福克斯新闻的所有者和领导层是叛国行为的同谋。”
+- 美国法警应该在大选后的第二天就查封所有的多米尼服务器，并将其作为物证加以保护。
+- 在机器上改选票的人应该知道，他们将被以叛国罪起诉，可能面临死刑。
+- 政府正在追踪选票转换的情况。”这就是操纵的源头。”我们正在追踪。我们掌握了这些信息。”
 
-**突发更新-**
 
-**法官蒂莫西-巴顿（Timothy C. Batten）周日发布命令，冻结乔治亚州的所有多猫腻（Dominion）投票机。**
+这是我最新的播客情况，分析了许多同样的问题。我目前每天都会制作一个这样的播客，它们在中部时间下午1点左右出炉，网址是Brighteon.com。我致力于制作这些节目，直到目前的选举形势得到解决。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/88xAhRB7ypV32/images/bb9c4a07-cb0a-4269-a561-7924ff71f67a.jpg?asset_id=024bb649-db79-4495-b2fe-35bfb9f7f2a4&amp;img_etag=%22f2c29d44c392b5808814e102b21cd507%22&amp;size=1024)](https://spark.adobe.com/page/88xAhRB7ypV32/images/bb9c4a07-cb0a-4269-a561-7924ff71f67a.jpg?asset_id=024bb649-db79-4495-b2fe-35bfb9f7f2a4&amp;img_etag=%22f2c29d44c392b5808814e102b21cd507%22&amp;size=1024)
+这是六分钟的概述视频。 您可以随时将其发布到其他地方。
 
-通过林伍德律师：”命令被告维持现状，暂时禁止清除或重置设置乔治亚州的任何投票机，直到法院的进一步命令。”
+[Brighteon.com/7497ff5e-44b3-44d4-9363-c9fcbea100ba](http://brighteon.com/7497ff5e-44b3-44d4-9363-c9fcbea100ba)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/88xAhRB7ypV32/images/ebc0df63-1c13-4cd3-b102-78642a73cd37.jpg?asset_id=5531da47-5d22-4a89-b41a-54c14951947a&amp;img_etag=%227c4e4655d2fad0ef88d86229598ad1bf%22&amp;size=2560)](https://spark.adobe.com/page/88xAhRB7ypV32/images/ebc0df63-1c13-4cd3-b102-78642a73cd37.jpg?asset_id=5531da47-5d22-4a89-b41a-54c14951947a&amp;img_etag=%227c4e4655d2fad0ef88d86229598ad1bf%22&amp;size=1024)推文翻译（林伍德推文——法官蒂莫西-巴顿刚下达紧急命令：”被告被命令维持现状，并暂时禁止清除或重置乔治亚州的任何投票机，直到法院有进一步的命令” 立即停止盗窃 @BrianKempGA）
+**原文链接：**
 
-General Michael Flynn weighed in. 迈克尔-弗林将军加入讨论
+[Retired 3-star General McInerney calls for President Trump to invoke Insurrection Act, suspend Habeas Corpus, declare martial law and initiate MASS ARRESTS under military authority – NaturalNews.com](https://www.naturalnews.com/2020-12-01-general-mcinerney-calls-for-president-trump-to-invoke-insurrection-act.html)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/88xAhRB7ypV32/images/536049b7-a4f2-4896-846c-341d6be61b0f.jpg?asset_id=e0d299da-5a44-40ee-b9d1-a9964d81ea80&amp;img_etag=%22f0640b22c0b447d3932c45902915c7fc%22&amp;size=2908)](https://spark.adobe.com/page/88xAhRB7ypV32/images/536049b7-a4f2-4896-846c-341d6be61b0f.jpg?asset_id=e0d299da-5a44-40ee-b9d1-a9964d81ea80&amp;img_etag=%22f0640b22c0b447d3932c45902915c7fc%22&amp;size=1024)推文翻译（#TeamKraken（大海怪团队）赢得了一项重要的强制令。巴顿法官发布命令，冻结了佐治亚州的所有多猫腻Dominion投票机。恶魔可能已经来到佐治亚州，但今天它是光明的。）
-
-更新：法官蒂莫西-巴顿（Timothy C. Batten）在当天随后又撤销了命令。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/88xAhRB7ypV32/images/afbfddf4-805f-4da5-8c06-d409a0958451.jpg?asset_id=20eeab78-a1b5-4d2e-8222-4e2ddfa49dbf&amp;img_etag=%229e7ff84898e9fee8db6d51e736002033%22&amp;size=2560)](https://spark.adobe.com/page/88xAhRB7ypV32/images/afbfddf4-805f-4da5-8c06-d409a0958451.jpg?asset_id=20eeab78-a1b5-4d2e-8222-4e2ddfa49dbf&amp;img_etag=%229e7ff84898e9fee8db6d51e736002033%22&amp;size=1024)林伍德：（什么？法官撤销了强制令，基于被告所声称的乔治亚州郡控制投票机。投票机应该由州政府和选举法控制。@GaSecofState 管理各州的选举法。为什么乔治亚州官员决定清除这些投票机，重置它们？） 林伍德：是时候遵守法律了。停止销毁证据。
-
-[原文链接](https://www.thegatewaypundit.com/2020/11/breaking-update-judge-timothy-batten-issues-order-freeze-dominion-machines-georgia/)
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/88xAhRB7ypV32/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/88xAhRB7ypV32/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/88xAhRB7ypV32/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
-0
+1+
