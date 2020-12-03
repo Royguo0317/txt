@@ -1,27 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “断交”战狼赵立坚发推指责澳大利亚
-` GM64` [轉載自GNews](https://gnews.org/zh-hans/608907/)
+## 假新闻们纷纷发文川普寻求赦免家人
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/611360/)
 
-内新闻/素材：胜利之光  校对：雅典娜的圣斗士(沙加)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02100118/image1.png)
-德国之声中文网报道，中共外交部发言人赵立坚周一（11月30日）在推特上发布一张图片，暗指澳大利亚军人杀害无辜。该图片据知是经过修改的假照片，引发广泛争议。
+撰稿：Jenny
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02162604/IMG_4159.jpg)网络截图
+假新闻们《纽约时报》和《ABC News》纷纷发文川普寻求赦免家人
 
-特此，澳大利亚总理莫里森（Scott Morrison）发布紧急新闻发布会，莫里森说：“中国政府应该为这个帖子感到羞耻。这削弱了他们在世界眼中的地位。”这则帖子“真正令人反感、极具攻击性、极其无耻”。他还说，该图片传递的是“一个错误的印象，是对我们国防力量的严重诽谤。”
+纽约时报刊登了题为《特朗普寻求预先赦免家人和私人律师》。
 
-澳大利亚总理莫里森(Scott Morrison)对赵立坚的推文表示非常愤怒，这条推文是没有根据的，在他职业生涯当中，所目睹的社交媒体恶意传播假消息的最恶劣的一个。澳大利亚政府已经召见了中国驻澳大利亚大使要求道歉，同时向中国政府直接传达要求道歉的信息。
+部分原文摘录：
 
-华春莹、胡锡进马上出来声援赵立坚，胡锡进在推特发文说澳大利亚总理莫里森要求道歉荒谬可笑，指赵立坚所发的配图是一幅流行漫画。华春莹则在记者会上说，澳大利亚对该国军人在阿富汗犯下严重罪行，澳方这些残暴罪行受到了国际一致强烈的谴责和声讨。
+据两名知情人士透露，特朗普总统已同顾问们讨论是否预先赦免他的子女、女婿以及私人律师鲁道夫·W·朱利安尼(Rudolph W. Giuliani)，并在上周与朱利安尼讨论了赦免他的事宜。
 
-澳洲广播公司报道，目前有关13岁男孩割喉是传言，并不存在。赵立坚发布的图片是“极端的外宣”，作为外交部官方发言人，代表政府在推特发言，讽刺挖苦正显示北京是蓄意挑起对澳洲的蔑视。
+特朗普告诉别人，他担心拜登的司法部可能会寻求对他的报复，针对他五个孩子中年长的三人——小唐纳德·特朗普(Donald Trump Jr.)、埃里克·特朗普(Eric Trump)和伊万卡·特朗普(Ivanka Trump)——以及伊万卡·特朗普的丈夫、白宫高级顾问贾里德·库什纳(Jared Kushner)。
 
-在赵立坚的推特下有不少推友转贴了天安门“坦克人”的照片，中共的对内开枪是否曾有媒体报道？以及政府做过调查并道歉呢？而在澳大利亚，总理莫里森还特意强调澳大利亚已经就被指控的战争犯罪展开透明的调查，因为这是一个“自由民主的国家”应该做的。
 
-对于澳大利亚找第三方做调查，反省，处理，开军职，这是一个民族国家负责人的国家应该做的，那么中共是否应该对30年前的64 做一次调查和审问呢？
 
-新闻来源：
+> 据两名知情人士透露，特朗普总统已同顾问们讨论是否预先赦免他的子女、女婿以及私人律师鲁道夫·朱利安尼。
+> 每届政府结束时通常都会进行一波赦免，尤其是像特朗普这样被卷入争议的政府。由于担心拜登司法部可能会对他报复，特朗普正寻求预先赦免自己的家人和私人律师朱利安尼。[https://t.co/0qJDdfw4Sx](https://t.co/0qJDdfw4Sx)
+> — 纽约时报中文网 (@nytchinese) [December 2, 2020](https://twitter.com/nytchinese/status/1334061245155065856?ref_src=twsrc%5Etfw)
 
-[https://www.dw.com/zh/赵立坚推文惹风波-澳总理中方应感羞耻/a-55768899](https://www.dw.com/zh/赵立坚推文惹风波-澳总理中方应感羞耻/a-55768899)
 
-0
+
+[ABC新闻周二早些时候报道](https://abcnews.go.com/Politics/white-house-vetting-pardon-requests-push-trump-preemptively/story?id=74482289)《白宫审查赦免请求，因为有人推动特朗普主动赦免家庭》
+
+随着白宫助手对选举结果达成共识，并将焦点转移到特朗普总统执政的剩余几周，多个消息人士告诉美国广播公司新闻，特朗普的多位盟友和其他律师已经开始了向西翼请愿的运动，希望获得赦免 对于那些可能会受到总统同情的人。
+
+消息人士称，那些可能获得宽恕的人从家庭成员到相关人员一直到老虎王。
+
+As White House aides come to terms with the election results and turn their focus to the remaining weeks of [President Trump’s](https://abcnews.go.com/alerts/donald-trump) administration, multiple sources tell ABC News that various Trump allies and other lawyers have begun a campaign to petition the West Wing in hopes of securing pardons for those who might receive a sympathetic reception from the president.
+
+Those in the mix for a potential pardon have ranged from family members and associates all the way to the Tiger King, according to sources.
+
+评论：看到Fake News一哄而上的新闻我们就放心了。
+
+但是，过度的自信就是自负。川普智商156, 如果没有为家人和他的团队未雨绸缪，有Plan B也是说不过去的。所以寻求赦免家人及他的重要助手在情理之中。
+
+我们能做的就是为川普以及正义之师祈祷，愿他遵循神的旨意不偏离神的道路，一切交托在神大能的手中。
+
+澳喜文章[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+
+欢迎加入澳喜农场：[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13172650/IMG_3537-1.jpg)
+3+

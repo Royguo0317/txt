@@ -1,41 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 评“网络实名制和网络限制”制度
-` Ronald` [轉載自GNews](https://gnews.org/zh-hans/610300/)
+## 纽特·金里奇（NEWT GINGRICH）: 虚假新闻媒体是你的死敌，试图控制你的生活
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/611163/)
 
-内新闻：陌冰仙 校对：雅典娜的圣斗士(沙加)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02085739/1000x52551.png.jpeg)
-在中共统治下的中国，有一些很奇怪的政策：
+*新闻来源：BREITBART《布赖特巴特》；作者：罗伯特·克雷奇克（ROBERT KRAYCHIK）；发布时间：2020年11月30日*
 
-运营一个社交平台（APP/网站），就要求实名制，美其名曰“保护青少年免受网络不良因素影响”还对网络游戏进行了管制，要求运营有域名的网站和网络游戏必须要有所谓的“防沉迷系统”和“备案”，对玩家和厂商进行严苛的限制。
+*翻译/简评：Dreamer文童；校对：感恩；审核：万人往；Page：拱卒*
 
-先说说实名制，很多人认为实名制好，可以让网民“为自己的言论负责”，其实这是十分荒谬的。
+[!\[\]()!\[\](https://spark.adobe.com/page/MBxQqTZmByg42/images/2112639f-47a6-4bc1-a5b5-dd9994af69e3.jpg?asset_id=172debfe-0125-47ab-9a3e-b681847c06a1&amp;img_etag=%22726bc2a200986b1b8c5f2019a00da23f%22&amp;size=1024)](https://spark.adobe.com/page/MBxQqTZmByg42/images/2112639f-47a6-4bc1-a5b5-dd9994af69e3.jpg?asset_id=172debfe-0125-47ab-9a3e-b681847c06a1&amp;img_etag=%22726bc2a200986b1b8c5f2019a00da23f%22&amp;size=1024)
 
-因为无论如何糟糕的言论和主张，都不会有实质性的危害，最多恶心到别人，你认为他言论糟糕，可以批评、适当指责，但你不能用法律手段强行堵住他的嘴，这是侵害基本人权、破坏言论自由的。
+**简评：**
 
-而且即使对方发布了极端言论，可以让平台管理员删除，实在没必要用强制手段。特别要注意的是：除去国家领导人外，没有谁的言论，威力能大到导致社会秩序大乱的程度。
+前众议院议长纽特·金里奇（Newt Gingrich）周一接受《布赖特巴特新闻》（Breitbart News）采访时表示，《纽约时报》（New York Times）和《华盛顿邮报》（Washington Post）等左翼媒体是保守主义的敌人。
 
-为什么中共执意要实行网络实名制呢？原因显而易见：害怕真相、害怕批评，中共的统治是专制独裁，他们不愿意被批评，他们希望能够永远让民众将其奉为神明、被共产党愚弄，使得中共的上层人士可以为所欲为。
+左翼媒体报道虚假新闻已经是由来已久。从川普总统上任以来，我们无数次看到这些左翼媒体编造虚假新闻对总统先生进行污蔑诋毁。班农先生、郭文贵先生及其发起的爆料革命也受到同样的待遇，一直遭到抹黑诋毁。不管这些左翼媒体如何以扭曲事实，甚至是编造虚假信息的方式进行报道，真相永远是真相。GTV和GNEWS作为真正传播真相的媒体平台，将很快被全世界接受。
 
-再说网络游戏的防沉迷系统，游戏里面的防沉迷系统有的只是针对未成年人，有的连成年人都管，它的本质便是根据国家规定，游戏运营商在游戏程序里面设定禁止登陆或者没有收益的时间段。
+**原文翻译：**
 
-防沉迷系统设计的初衷是为了防止玩家彻底沉迷到游戏里，导致过度熬夜或者精神出现问题。但是，无论防沉迷系统的目的是不是好的，它实施的手段确实是很不好的；
+## 纽特·金里奇（Newt Gingrich）: 虚假新闻媒体是你的死敌，试图控制你的生活
 
-能影响人们的不是目的、初衷，而是具体的手段和实行的政策，防沉迷系统的手段便是将玩家管理自己时间的责任强行由游戏厂商来管理，并且侵害了玩家以任意时间运行游戏的自由。
+[!\[\]()!\[\](https://spark.adobe.com/page/MBxQqTZmByg42/images/433cbb37-1af9-402b-b165-b44beabf70ba.png?asset_id=220edd1b-a48b-472d-89de-a2dececa9979&amp;img_etag=%220b2f6b468e4c7ed4b48d57109168b777%22&amp;size=2560)](https://spark.adobe.com/page/MBxQqTZmByg42/images/433cbb37-1af9-402b-b165-b44beabf70ba.png?asset_id=220edd1b-a48b-472d-89de-a2dececa9979&amp;img_etag=%220b2f6b468e4c7ed4b48d57109168b777%22&amp;size=1024)亚历克斯·布兰登（Alex Brandon）
 
-这是不将个人自由当回事、无视人的自我管理能力的做法，是很糟糕的制度。
 
-然后说说网络备案和网络游戏运营备案，这种制度其实是没有必要的，如果说有一个网站或者网络游戏出现极端的或者诽谤性的内容；
+**前众议院议长纽特·金里奇（Newt Gingrich，共和党-乔治亚州）周一告诉《布赖特巴特新闻》（Breitbart News），左翼党派民主党新闻媒体，诸如《纽约时报》（New York Times）和《华盛顿邮报》（Washington Post），是保守主义的敌人，他们寻求权力和控制。**
 
-或者他们有什么违法犯罪活动，可以通过查找IP地址、联系游戏运营方、让网民举报等方法来找到相关负责人，责令其删除或修改这些内容，而不是限制他们。
+“他们是你的死敌”，金里奇（Gingrich）在SiriusXM的《布赖特巴特新闻日报》（Breitbart News Daily）上告诉主持人亚历克斯·马洛（Alex Marlow）。“这是你需要知道的。《纽约时报》（New York Times）是保守主义的死敌。《华盛顿邮报》（Washington Post）是保守主义的死敌。当对他们有利时，他们就会支持。当对他们不利时，他们就会反对。他们一点也不在意真相。他们在意权力，在意控制你的生活，在意对你发号施令。”
 
-有人想要搭建自己的网站、游戏服务器来让大家观看和玩耍，哪怕有收取费用，只要他没有利用这些游戏来传播极端内容或者进行犯罪活动，这就是个人自由，不应该受限制。
+金里奇（Gingrich）指出，新闻媒体、政府机构、科技公司和亿万富翁金融家之间进行正式和非正式的协调，以推进左翼党派民主党政治。
 
-其实也不难理解，因为任何共产党政权，无论有没有进行改革开放，其本性都是嗜权如命、集中权力的，他们管天管地管空气，丝毫没有将民众的人权、自由放在眼里。
+《纽约时报》（New York Times）和《华盛顿邮报》（Washington Post）都将自己推销为政治客观和无党派新闻媒体。2016年唐纳德·川普（Donald Trump）总统当选后，《纽约时报》（New York Times）开展广告宣传活动，将自己定位为“真相”的传播者，而《华盛顿邮报》（Washington Post）采用新的口号：“民主在黑暗中死亡”。
 
-因此到了灭共成功的那一天，一定要彻底废除这类制度、消除这种专制意识形态造成的精神污染，还民众一片自由的网络天空。
+金里奇（Gingrich）的Newt世界播客（Newt’s World Podcast）在其同名网站上可以获得。
 
-（以上仅代表作者本人观点）
+《布赖特巴特新闻日报》（Breitbart News Daily）在SiriusXM爱国者（SiriusXM Patriot）频道125个工作日进行直播，每天早上6点至上午9点（美东时间）。
 
-0
+[原文链接](https://www.breitbart.com/radio/2020/11/30/newt-gingrich-fake-news-media-mortal-enemies-seeking-power-lives/)
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/MBxQqTZmByg42/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/MBxQqTZmByg42/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/MBxQqTZmByg42/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
+1+

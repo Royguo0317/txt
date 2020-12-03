@@ -1,22 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【国内快评】请问“新京报”，贫困人口去哪了？
-` GM64` [轉載自GNews](https://gnews.org/zh-hans/610652/)
+## 230法案即将寿终正寝，九层妖塔旋即无处遁形
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/611400/)
 
-内新闻：文漪 素材：挺郭-小刚 校对：雅典娜的圣斗士(沙加)
+文/拉丁Latin、青椒文喜      审核/文璟       文宣/青椒文喜
 
-今日头条12月2日转载新京报文章：今年是脱贫攻坚收官之年，11月，全国剩余52个贫困县陆续宣布摘帽。至此，全国832个国家级贫困县全部脱贫摘帽。国务院扶贫办副主任欧青平今天（12月2日）在国新办发布会上表示，剩余贫困人口正在履行退出程序，年底所有贫困人口也将全部退出。
+12月1号晚间，川普总统连发2条消息重申了他对230法案的态度，验证了文贵先生所言的天雷滚滚从本周开始。
 
-笔者不禁要问新京报： 52个贫困县在经济下滑如此严重、物价飞涨、疫情肆虐的情况下是怎么摘帽的？所有贫困人口退出了，他们去哪了？今后会不会返贫？
+推文中川普总统说，“第230（法条）是美国送给 “大科技”（美国唯一拥有该条款的公司的企业福利！）的责任保护礼物，是对我们国家安全和选举完整性的严重威胁。如果我们允许它继续存在，我们的国家就永远不会有安全和保障…..。”
 
-在中共国，国家级贫困县，是国家为帮助贫困地区设立的一种标准。它们集中在少数民族地区、革命老区、边境地区和特困地区。1985年至1992年年人均收入低于150元的县为贫困县，1992年年人均纯收入超过700元的，一律退出国家级贫困县，之后按照地区经济发展制定贫困县标准。2019年底统计的52个贫困县包括：新疆10个，云南9个，贵州9个，广西8个，甘肃8个，四川7个，宁夏1个。以宁夏为例： 2020年人均年收入低于4000元的为贫困县。在疫情肆虐、经济下滑、大量人员失业、公司破产、大学生无法就业的情况下，中共国一举拿下这52个县，全部脱贫摘帽。试问，是怎么做到的？
 
-2016年笔者曾经接触过一名国有企业下到贫困县扶贫的干部，他介绍说，国家“扶贫办”责令国有企业“包”一个山区的贫困县，企业派代表进驻，3年内必须帮助该县脱贫。进驻之后才知道，扶贫不是简单给钱就能办到的事。首先贫困县的农民不想脱贫，因为不脱贫每家每户会发低保，虽然发到手里很少，但是农民觉得有饭吃就够了；其次贫困县的各级干部也不想脱贫，因为国家每年会给贫困县拨款，各级干部都会有“活钱儿”。国企派下去的干部一筹莫展，拿着钱花不出去，想给村民修路，处处设卡，没人审批，想投资办个厂子，当地村民都剩下老弱病残，宁愿抄着手在外面晒太阳，也没人干活，干部换了一拨又一拨，一年下来一事无成。
 
-中共国的口号式的“脱贫摘帽”，在现在的经济萧条的大环境下不过又是一个欺骗民众的幌子，真正的目的其实就是脱贫之后再也不用拨款扶贫了，就是连扶贫的钱也拿不出来了，想想如此一刀切的“脱贫摘帽”，又会出现多少杨改兰？多少孩子上不起学？又有多少老人病了根本不去医院，直接在家等死？吃饭的钱都没有，哪有钱治病？中共不灭，贫困不会消失！
+> Section 230, which is a liability shielding gift from the U.S. to “Big Tech” (the only companies in America that have it – corporate welfare!), is a serious threat to our National Security & Election Integrity. Our Country can never be safe & secure if we allow it to stand…..
+> — Donald J. Trump (@realDonaldTrump) [December 2, 2020](https://twitter.com/realDonaldTrump/status/1333965375193624578?ref_src=twsrc%5Etfw)
 
-新闻来源：
-[https://m.toutiaocdn.com/i6901482533834310156/?app=news\_article&timestamp=1606895028&use\_new\_style=1&req\_id=202012021543480100260770841607F102&group\_id=6901482533834310156](https://m.toutiaocdn.com/i6901482533834310156/?app=news_article&amp;timestamp=1606895028&amp;use_new_style=1&amp;req_id=202012021543480100260770841607F102&amp;group_id=6901482533834310156)
 
-3+
+
+“因此，如果非常危险和不公平的第230条没有作为国防授权法案（NDAA）的一部分被完全终止，当该法案被送到非常美丽的坚决桌上时，我将被迫明确地VETO该法案。现在就夺回美国。谢谢大家！”
+
+
+
+> …..Therefore, if the very dangerous & unfair Section 230 is not completely terminated as part of the National Defense Authorization Act (NDAA), I will be forced to unequivocally VETO the Bill when sent to the very beautiful Resolute desk. Take back America NOW. Thank you!
+> — Donald J. Trump (@realDonaldTrump) [December 2, 2020](https://twitter.com/realDonaldTrump/status/1333965375839621120?ref_src=twsrc%5Etfw)
+
+
+
+国防授权法(NDAA)是肯尼迪John F. Kennedy总统签署的，结合2018年9月12日的行政命令（Sep. 12, 2018 Executive Order），总统可以宣布国内叛国行为人为敌方战斗人员。目前参众两院已在7月通过2021年国防授权法案，只等总统签字。
+
+根据川普总统的推文可知，他签署《国防授权法》的前提是删除230法案。2021财年的国防授权法案涉及价值7,160亿美元，因此牵涉美国各方面的利益，背后的力量一定希望早日获得总统签署。
+
+0
