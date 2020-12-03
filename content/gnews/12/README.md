@@ -1,25 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美众议院通过法案迫使中共国在美上市公司接受审计监督或退市
-` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/611464/)
+## 挺川大游行&#8211;采访郭先生
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/611783/)
 
-内新闻：背靠背
+香草山综合报道
 
-美国时间2020年12月2日，美国众议院今天通过了约翰-肯尼迪(John Kennedy)和克里斯-范-霍伦(Chris Van Hollen)两位参议员的法案。该法案，旨在保护美国投资者及其储蓄不受在美国证券交易所运营的外国公司的影响，同时拒绝接受证券交易委员会(SEC)的监督。参议院在5月一致通过了该法案。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
 
-今天众议院通过了这个法案，如果该法案成为法律，将迫使在美国上市的中共国公司要么遵守严格的美国会计准则，要么退市，或另谋出路，并且要求披露其是否由外国政府拥有或控制。
 
-中国共产党现在正在利用美国的股票交易所来剥削美国工人和家庭，他们把退休和大学储蓄投资美国上市公司。美国现有的政策让中共国藐视美国公司遵守的规则，这很危险，该法案正改变这个现状，并确保所有在美国交易所上市的公司都遵守同样的规则。
 
-《控股外国公司责任法案》（The Holding Foreign Companies Accountable Act）规定，如果一家公司连续三年未遵守上市公司会计监督委员会（PCAOB）的审计，则禁止该公司的证券在美国任何证券交易所上市。该法案还将要求上市公司披露其是否由外国政府，包括中国共产党政府拥有或控制。
 
-目前，中国共产党政府拒绝让PCAOB检查在中国和香港注册的公司的审计工作。
 
-根据美国证券交易委员会的数据，有224家在美国上市的公司位于PCAOB检查有障碍的国家。这些公司的总市值超过1.8万亿美元。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-在过去10年里，在美国证券交易所上市的中共国公司数量大幅增加，因为这些公司利用了美国的资本。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-新闻来源：https://www.kennedy.senate.gov/public/index.cfm?p=press-releases&id=78FE3BCA-EA31-4036-B2AA-A5F8F28B3160
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

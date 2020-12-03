@@ -1,76 +1,98 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 林·伍德与腐败勇敢斗争，AOC也有麻烦
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/611343/)
+## 5个月的《国安法》如何改变了香港
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/611389/)
 
-*新闻来源：*DJHJ MEDIA*《*DJHJ传媒*》；作者：*Kari Donovan*；发布时间：2020年11月*
+*新闻来源：Hong Kong Free Press《香港自由报》；作者：RHODA KWAN；发布时间：2020年12月 1日*
 
-*翻译/简评：Lully；校对：X-Wing飞得更高；审核：海阔天空；Page：拱卒*
+*翻译/简评：Lully；校对：X-Wing飞得更高；审核：johnwallis；Page：拱卒*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Aq3QS7E4Um4Rq/images/86d997ad-6fd4-4489-a32b-105b872df4d6.jpg?asset_id=14711a1b-0689-4d78-ac38-edefef7cb591&amp;img_etag=%22b05e2ed50960eb30c2e15c21e2d84109%22&amp;size=1024)](https://spark.adobe.com/page/Aq3QS7E4Um4Rq/images/86d997ad-6fd4-4489-a32b-105b872df4d6.jpg?asset_id=14711a1b-0689-4d78-ac38-edefef7cb591&amp;img_etag=%22b05e2ed50960eb30c2e15c21e2d84109%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/37JndTUZnfnb3/images/496b93f2-448e-425e-8657-59cdcec4beb7.jpg?asset_id=d01dcd31-c55c-4b8d-8fa4-780687810180&amp;img_etag=%228c41e612e24cd462bcaafae48e484a3a%22&amp;size=1024)](https://spark.adobe.com/page/37JndTUZnfnb3/images/496b93f2-448e-425e-8657-59cdcec4beb7.jpg?asset_id=d01dcd31-c55c-4b8d-8fa4-780687810180&amp;img_etag=%228c41e612e24cd462bcaafae48e484a3a%22&amp;size=1024)
 
 **简评：**
 
-律师林·伍德重磅爆料，史上最年轻的拉丁裔女国会议员也深陷华盛顿腐败沼泽！由此影射，不仅2020年总统大选被人为操纵，此前共产红魔早已无数次在议员选举、总统大选试验上百遍。恶人必为自己的罪孽付出代价，川普总统选举被窃取就是腐败政府集恶之大成，必因此被毁灭。就让代表正义的律师林·伍德们拿着法律的利器，清洗美国所有的腐朽余孽吧！
+此文清晰地阐述了港版国安法究竟如何使圣城香港天翻地覆，无论是立法、行政、还是教育、民生方面，香港都已无可否认地被笼罩在中共控制的无尽黑暗之中，真正实现了总加速师的留港不留人。香港人民用中华儿女仅存于他们的血性，捍卫了香港的自由与民主价值，同时也打醒了和中共狼狈为奸的西方政客；如果西方再一味容忍中共在香港大行其道，毁灭自由民主法治的圣地，那么，下一个被“共产”的，就是西方人的子孙和领土了。我们感谢香港人民，敬佩香港人民为实现中华民主自由作出的牺牲和奋斗，你们永存我心。
 
 **原文翻译：**
 
-## 皮罗专访：律师林·伍德正与所谓的腐败作斗争，“敬请关注：亚历山德里娅·奥卡西奥·科尔特斯（AOC）也有麻烦了”
+## 
+阐述：国安法如何改变了香港—第5个月
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Aq3QS7E4Um4Rq/images/7176ff2a-bd6f-4566-b45b-8b51b2415008.jpg?asset_id=a4d1eaef-1bb0-42e1-bf6f-db72585b1436&amp;img_etag=%227c108471486c791b4c074fa1e968940c%22&amp;size=2560)](https://spark.adobe.com/page/Aq3QS7E4Um4Rq/images/7176ff2a-bd6f-4566-b45b-8b51b2415008.jpg?asset_id=a4d1eaef-1bb0-42e1-bf6f-db72585b1436&amp;img_etag=%227c108471486c791b4c074fa1e968940c%22&amp;size=1024)
+国安法实施第5个月时，立法机构和政府对加强国家安全教育的承诺有所减少。
 
-律师林·伍德一直在为揭露政府深层渗透腐败以及为川普总统选举结果被窃取而声张正义，积极发声；他甚至宣称，政府多年来一直在操纵选举真相。
+在中共对香港实行了颇具争议的《国家安全法》后，香港立法会的泛民主派已完全人去楼空，再加之香港警方进一步加强了对反对派异议人士和记者的拘捕胁迫。
 
-在《Friday Pirro》（皮罗星期五）上的一次重磅采访中，皮罗与林·伍德律师有关德国服务器进行了通话，皮罗提到:
+律政司对法院去年11月宣布抗议人士无罪的裁决提出上诉，行政长官林郑月娥在施政报告中着重强调了国家安全教育。
 
-“每每总统传达命令给部下去完成时，总有新闻媒体抹黑说总统在非法越级要求相关下属做份外之事。
+[!\[\]()!\[\](https://spark.adobe.com/page/37JndTUZnfnb3/images/47ac934b-de34-49c4-bb90-9ae790681f02.jpg?asset_id=8a35cc40-8144-429e-8128-09e8d11c4da0&amp;img_etag=%22f1e65974976444ae221fd94058ac96fe%22&amp;size=1024)](https://spark.adobe.com/page/37JndTUZnfnb3/images/47ac934b-de34-49c4-bb90-9ae790681f02.jpg?asset_id=8a35cc40-8144-429e-8128-09e8d11c4da0&amp;img_etag=%22f1e65974976444ae221fd94058ac96fe%22&amp;size=1024)
 
-我不信任克里斯托弗·雷（Christopher Wray）（FBI联邦调查局局长），自从他出席第一次听证会作证起我就对他没好感；当国会监督委员会合法合理要求相关记录时，克里斯托弗·雷闪烁其辞地答应下来了，但仍然没有给出记录；由此可知，腐败的潜伏势力深深扎根于美国政府，深得超乎想象。
+在香港当地某处的一家口罩供应商被迫停止运营，此前亲共的报纸指责该供应商出售了与抗议有关设计的口罩，这无疑违反了《国安法》。
 
-顺带一提，戈默特（Gohmert）来自德克萨斯州。
+《香港自由新闻》(HKFP)每月持续追踪塑造香港新常态的进展。
 
-但是，那些机器被没收了。我们不知道谁拿走了机器。
+**香港民主党人被捕**
 
-就像林·伍德在福克斯我主持的《公正》节目中提到，当我们在对话时，这些腐败分子从投票区各种各样的箱子后面暴露了出来，他们在粉碎真相，正发生于美国的事情令人震惊。
+去年11月，八名香港民主党立法会议员因在今年5月立法会会议厅发生的混乱事件中行为不当而被捕。八人之一的许智峯(Ted Hui)谴责抓捕是“政治压迫”。此前，只有民主党人因为两党议员之间的混战而被捕，并且他们被指控触犯《立法会(权力及特权)条例》所订罪行。
 
-我认为，如果川普总统认定了目标，他就会全力以赴，他一定会以他坚韧的意志，恒久的毅力，战斗到底的决心，笑到最后。川普总统此刻就在战斗，从不言弃，而且我们也没有。但这只是一个64,000美元的问题。当我还是地方检察官的时候，只要有搜查证，我就可以得到证据；我如果派人去取证，并且当他们确定拿到时，那么他们断然是不敢空手见我的”
+当月晚些时候, 许智峯连同他的两个前同事，朱凯廸（Eddie Chu）和陈志全（Ray Chan）在另外几起事件中，被指控为触犯同样的条例被逮捕；这三人涉嫌与立法会会议厅及会议室泼臭水阻止《国歌法》三读的事件有关。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Aq3QS7E4Um4Rq/images/c97752cb-1c17-44be-88fc-067c00cec8c1.jpg?asset_id=7baf45c8-0027-4b48-b336-5b473bbf7a3f&amp;img_etag=%22b8355aebbaf2175af8be707ad1d74fe5%22&amp;size=2560)](https://spark.adobe.com/page/Aq3QS7E4Um4Rq/images/c97752cb-1c17-44be-88fc-067c00cec8c1.jpg?asset_id=7baf45c8-0027-4b48-b336-5b473bbf7a3f&amp;img_etag=%22b8355aebbaf2175af8be707ad1d74fe5%22&amp;size=1024)好了，这下放心了，让我打起了精神!!! 听林伍德的话，保持信心!!!
+**记者被捕**
 
-伍德说:“佐治亚州的州长、副州长和州务卿都被中共的钱搞得腐败不堪。”
+在一项调查节目中，香港电台（RTHK）自由电视节目制作人蔡玉玲（Choy Yuk-ling）利用公众车辆登记记录追踪元朗暴徒袭击事件中在场的人士，被拘捕，这一调查举措反倒突显了警力的不足。
 
-“我已经与西德尼·鲍威尔（Sidney Powell）律师会晤过了……关于Dominion机器以及他们是如何在西班牙的巴塞罗那利用软件舞弊操纵选票的证据已经被我们掌握了；他们在之前的选举中就已经成功欺诈了选举，不过这次他们被抓了现行。”
+[!\[\]()!\[\](https://spark.adobe.com/page/37JndTUZnfnb3/images/5a73433c-1655-4941-9fbe-903d96c3b73b.jpg?asset_id=3fe463b9-bf8b-46ee-8ecb-27cfe4d83d84&amp;img_etag=%22502885d063e69fa2f11621dbb6020875%22&amp;size=2560)](https://spark.adobe.com/page/37JndTUZnfnb3/images/5a73433c-1655-4941-9fbe-903d96c3b73b.jpg?asset_id=3fe463b9-bf8b-46ee-8ecb-27cfe4d83d84&amp;img_etag=%22502885d063e69fa2f11621dbb6020875%22&amp;size=1024)不明身份的白衣男子在元朗袭击火车乘客。图片来源：《苹果日报》。蘋果日報
 
-“请大家相信美国总统，他对自己的言行心中有数。我向你保证，唐纳德·川普获得了压倒性的胜利。几天前这些服务器就在德国法兰克福一家名为Scytl的公司中被查获，从这些服务器恢复的数据显示了真正的投票统计结果。川普总统以410张选举人票大获全胜。”
+记者团体谴责蔡玉铃的被捕违反了林郑月娥一再保证维护新闻自由的承诺，而林郑月娥则驳斥了逮捕是“选择性的”的说法。香港第二号政务司司长张建宗(Matthew Cheung)后来以抗击疫情为由，禁止了一场反对逮捕的抗议活动，推翻了香港记者协会早些时候赢得的允许游行的上诉。
 
-伍德在其他采访中也保持着同样的思路，例如，在与约翰·弗雷德里克斯（John Fredericks）的采访中:
+此外，香港警方还逮捕了当地一家媒体机构的另外一名记者，并指控她“妨碍（警方行动）”，原因是该记者今年5月在旺角地区抗议活动中拒绝停止拍摄逮捕行动。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Aq3QS7E4Um4Rq/images/be820cf0-b329-4d33-aafc-e717e8a37279.jpg?asset_id=63186f0d-e692-40b7-966f-2d9d787b2203&amp;img_etag=%2221d4ac6b3f93e045d06de01aa836ba29%22&amp;size=2844)](https://spark.adobe.com/page/Aq3QS7E4Um4Rq/images/be820cf0-b329-4d33-aafc-e717e8a37279.jpg?asset_id=63186f0d-e692-40b7-966f-2d9d787b2203&amp;img_etag=%2221d4ac6b3f93e045d06de01aa836ba29%22&amp;size=1024)
+**活动人士被逮捕和拘留**
 
-对知名律师林·伍德重磅采访:“这是一场选举欺诈……川普总统实际赢得了410张选举人票，共计8000万张选票……绝对是一场压倒性的胜利，但这一切的选举安排都是为了窃取选举结果而下的套!”
+支持独立的学生地方主义活动人士、前成员蒂姆·卢（Tim Luk）因涉嫌“协助逃犯”被国家安全官员逮捕。据称，这一罪行与上月在美国领事馆附近遭逮捕的活动人士钟翰林（Tony Chung）有关。
 
-伍德最近发表了一个大胆而明确的声明，宣称他有佐治亚州犯罪活动的实锤证据:
+本月末，著名活动人士黄之锋(Joshua Wong)、周庭(Agnes Chow)和林朗彦(Ivan Lam)承认了与2019年非法集会有关的指控。这三人目前仍被拘留，等待12月初的判决。据悉，黄之锋目前被单独监禁。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Aq3QS7E4Um4Rq/images/2068ce59-c215-4359-a1b5-d15402fde71d.jpg?asset_id=e45f1a6a-9144-4663-a6aa-522641864786&amp;img_etag=%222bbb2a212f07f277aab0f9b8c154abc4%22&amp;size=3828)](https://spark.adobe.com/page/Aq3QS7E4Um4Rq/images/2068ce59-c215-4359-a1b5-d15402fde71d.jpg?asset_id=e45f1a6a-9144-4663-a6aa-522641864786&amp;img_etag=%222bbb2a212f07f277aab0f9b8c154abc4%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/37JndTUZnfnb3/images/88ba6201-9e68-4595-be8a-b4dfb4bb92f0.jpg?asset_id=cf1c42de-7c7e-4fb6-8473-5e136f0facbb&amp;img_etag=%22481c8be05160d42b1bfd7f3f3cdb9ef6%22&amp;size=1024)](https://spark.adobe.com/page/37JndTUZnfnb3/images/88ba6201-9e68-4595-be8a-b4dfb4bb92f0.jpg?asset_id=cf1c42de-7c7e-4fb6-8473-5e136f0facbb&amp;img_etag=%22481c8be05160d42b1bfd7f3f3cdb9ef6%22&amp;size=1024)司法部。图片。香港政府一站通。
 
-到时候，佐治亚州的监狱将会人满为患。所有的谎言都会被戳破，真相将会大白于天下。#FightBack for TRUTH（为真相反击）！
+**司法部寻求国安法法官处理案件，复审抗议者无罪释放**
 
-林·伍德想象中的佐治亚作弊景象:
+美国司法部(DOJ)要求法院任命一名国家安全法官来监督涉及亲民主活动人士谭得智（Tam Tak-chi）的听证会，尽管谭得智根据殖民时代的法律被控煽动叛乱，而不是根据新版国家安全法。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Aq3QS7E4Um4Rq/images/d8b7e37f-93a1-4b5c-8833-b7164fc863b7.jpg?asset_id=4004641f-068c-4ddd-a774-53eac76bfc2c&amp;img_etag=%223946f168859b124fe63cf5f55e2745b0%22&amp;size=2560)](https://spark.adobe.com/page/Aq3QS7E4Um4Rq/images/d8b7e37f-93a1-4b5c-8833-b7164fc863b7.jpg?asset_id=4004641f-068c-4ddd-a774-53eac76bfc2c&amp;img_etag=%223946f168859b124fe63cf5f55e2745b0%22&amp;size=1024)希拉里和布拉德·拉芬斯珀格（佐治亚州州务卿）今晚在亚特兰大咖啡馆的绝密谈话被泄露:布莱德: Bleachbit 能漂干净监控录像带嘛?希拉里:不如hammer锤子好。（1.锤子砸烂；2.作弊软件hammer）布莱德:还有其他销毁证据的方法吗?希拉里:如果我是尼克松，老娘就一把火把录像带都烧了。重罪！
+美国司法部还就区域法院撤销对一名社工的骚乱指控的决定提出上诉，因为法院引证缺乏证据，宣布去年8月在湾仔附近举行抗议活动时被逮捕的另外七人无罪；
 
-林·伍德在接受珍宁·皮罗的采访时，把众议员伊尔罕·奥马尔（Ilhan Omar）也定性为腐败分子。
+此外，律政司司长郑若骅（Teresa Cheng）有效地终止了民主党人陈志全针对亲共议员郭伟强（Kwok Wai-keung）发起的私人攻击诉讼。录像显示，今年5月，在混乱的众议院委员会会议期间，郭伟强拽着陈志全的衣领穿过了会场。
 
-林·伍德受到美国人的支持与鼓励:
+**反对党议员被罢免，民主党人辞职**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Aq3QS7E4Um4Rq/images/e55a7696-1836-420e-a08b-119cd9de9fab.jpg?asset_id=896a5806-975b-4c42-bbeb-b71ec87e36c3&amp;img_etag=%22a85cc3bbe79362a3a960d251ca941320%22&amp;size=2560)](https://spark.adobe.com/page/Aq3QS7E4Um4Rq/images/e55a7696-1836-420e-a08b-119cd9de9fab.jpg?asset_id=896a5806-975b-4c42-bbeb-b71ec87e36c3&amp;img_etag=%22a85cc3bbe79362a3a960d251ca941320%22&amp;size=1024)“林·伍德说他们发现了2016年选举中存在违规行为，以及2018年国会议员选举结果被窃取时，我们都无法相信有什么人会蠢到投票给奥马尔、亚历山德里娅·奥卡西奥·科尔特斯（AOC）和塔利卜?”
+在中国最高立法机构授予林郑月娥政府取消被视为“不爱国”或违反效忠誓言的议员资格后，林郑月娥政府罢免了四位反对派立法会议员领导者——郭荣铿、梁继昌、郭家麒和杨岳桥。
 
-**完整的采访视频：**
+同一天晚些时候，全体15名民主党阵营宣布辞职，与这4人团结在一起，使立法机构再也没有唱对台戏的反对派了。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/37JndTUZnfnb3/images/f021cd89-92da-4e95-ba70-a81873855c7c.jpg?asset_id=efe42a03-5aa1-41a0-a344-6dfb0b92d03c&amp;img_etag=%226ca85f1dc59059264cece3465cdfc8ad%22&amp;size=1024)](https://spark.adobe.com/page/37JndTUZnfnb3/images/f021cd89-92da-4e95-ba70-a81873855c7c.jpg?asset_id=efe42a03-5aa1-41a0-a344-6dfb0b92d03c&amp;img_etag=%226ca85f1dc59059264cece3465cdfc8ad%22&amp;size=1024)北京通过决定，授权地方当局立即罢免四名民主派人士后，15名香港民主派议员宣布集体辞职。图为民主党。民主党
+
+驱逐四人的举动招致了激烈的批判。香港律师对这一决定的合法性表示严重担忧，而外国政府则指责中共方面违反了其国际义务。
+
+林郑月娥坚称，缩小后的立法院不会成为“橡皮图章”，而中共方面则称集体辞职是对中央政府的“公然挑战”。林郑月娥还宣布计划将中共的决定纳入香港法律。
+
+**当地口罩公司停止运营**
+
+当地一家口罩制造商暂时停产，此前亲共的报纸称，该公司销售印有抗议口号的黄颜色口罩，违反了国安法。
+
+**国家安全官员突击搜查港中大校园**
+
+在约100名毕业生举行抗议活动、展示并呼喊被禁口号的第二天，约40名国家安全警察来到香港中文大学校园。大学行政部门在回应学生抗议时，向警方报告了“非法行为和不负责任的行为”。这次抗议活动是自6月30日通过国安法以来，公开反对国安法的罕见表现。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/37JndTUZnfnb3/images/8ef8b68c-d8e4-4026-94df-4ddc3670ac8b.jpg?asset_id=2792e341-4789-4f6b-8aa4-4ce36b04e8d4&amp;img_etag=%22e7c8e552493820e4539e6dc54514be52%22&amp;size=1024)](https://spark.adobe.com/page/37JndTUZnfnb3/images/8ef8b68c-d8e4-4026-94df-4ddc3670ac8b.jpg?asset_id=2792e341-4789-4f6b-8aa4-4ce36b04e8d4&amp;img_etag=%22e7c8e552493820e4539e6dc54514be52%22&amp;size=1024)照片：RL/Studio Incendo。
 
 
+本月早些时候，大学警告学生不要在一场纪念警方围攻校园一周年的展览上“非法使用肖像”，当时校园发生了激烈的冲突。
 
-[原文链接](https://djhjmedia.com/kari/pirro-interview-attorney-lin-wood-is-on-the-war-path-against-alleged-corruption-troubles-coming-aocs-way-too-stay-tuned/)
+**国家安全教育成为重中之重**
+
+林郑月娥在年度施政报告中宣布，会加强社区及中小学的国家安全教育。司法部将实施一个10年计划，重点是教育年轻人对法治的“正确理解”，并培养“守法意识”。教育局的目标是实施一项课程，旨在灌输国人的认同感和对国家的责任感。
+
+[原文链接](https://hongkongfp.com/2020/12/01/explainer-how-the-national-security-law-changed-hong-kong-month-5/)
 
 [点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
@@ -78,8 +100,8 @@
 
 [欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/Aq3QS7E4Um4Rq/)
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/37JndTUZnfnb3/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Aq3QS7E4Um4Rq/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/Aq3QS7E4Um4Rq/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+![]()![](https://spark.adobe.com/page/37JndTUZnfnb3/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

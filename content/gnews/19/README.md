@@ -1,33 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 230法案即将寿终正寝，九层妖塔旋即无处遁形
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/611400/)
+## War Room 555 总结
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/611483/)
 
-文/拉丁Latin、青椒文喜      审核/文璟       文宣/青椒文喜
-
-12月1号晚间，川普总统连发2条消息重申了他对230法案的态度，验证了文贵先生所言的天雷滚滚从本周开始。
-
-推文中川普总统说，“第230（法条）是美国送给 “大科技”（美国唯一拥有该条款的公司的企业福利！）的责任保护礼物，是对我们国家安全和选举完整性的严重威胁。如果我们允许它继续存在，我们的国家就永远不会有安全和保障…..。”
+- 编辑：Ranting
+- 作者：Jenny Ball
 
 
+政治理论家和企业家**达伦·比蒂**揭示了宾夕法尼亚州民主党人如何造假选民登记。如果在选民名单上有大规模的特定类型的欺诈行为，那么将会出现特定的名字和特定的生日。我们在宾夕法尼亚州的多个县中进行了深入研究，这些县登记选民的生日与实际的预期自然生日之间的对比有奇怪的偏差，这表明这些县发生了怪异的事情。
 
-> Section 230, which is a liability shielding gift from the U.S. to “Big Tech” (the only companies in America that have it – corporate welfare!), is a serious threat to our National Security & Election Integrity. Our Country can never be safe & secure if we allow it to stand…..
-> — Donald J. Trump (@realDonaldTrump) [December 2, 2020](https://twitter.com/realDonaldTrump/status/1333965375193624578?ref_src=twsrc%5Etfw)
+这些县怪诞生日的选票都压倒性地投给了拜登。
+
+**帕特里克·科尔贝克**，前州务卿兼微软工程师，前美国国家航空航天局工程师，将他的专业知识带入了所有这些选举舞弊调查中：昨天在密歇根州参议员之前作证的人们成了密歇根州家喻户晓的英雄，他们是美国的好人，普普通通的美国人站起来，用自己亲眼目睹和亲自参与的事实，驳斥了那些“没有舞弊证据”的谣言。
+
+尽管有各种审查企图阻止真相的传播，但立法者肯定会听到这些声音，并开始采取行动，那些立法者正在行动。朱利安尼市长和他团队提供的证据是惊人的，我们今天将在密歇根州议会举行同样的听证会。
+
+**密歇根州的许多众议员，实际上从未听到过那些证词所揭示的各种欺诈，因为没有媒体报道这些信息！**
+
+**杰克·麦克西**关于大流行和疫苗问题：现在在谈推出辉瑞疫苗。昨天英国宣布将接受并开始分发，但不会强加诸如疫苗护照之类的规定。在美国，会先用于第一批自愿者和养老院的人**。**
+
+范德比尔特大学的一名医生说，她对他们加快疫苗授权的速度感到不满意，因为疫苗尚未完成对提交的实验小组全面测试，因此有很多问号**。**
+
+还有许多其他疫苗也将出来。病毒感染人数仍在大量增加，但死亡人数却有所减少，这是令人欣慰的地方。
+
+**拉希姆**评论了验证项目的詹姆斯·奥基夫获得CNN法律团队的录像。他们在视频会议上决定，将911与川普扯到一起，强迫川普总统高风亮节。这是我见过的最恶心的事情之一！
+
+**这些就是自称是道德高尚的人！自称是你所获得信息和内容的仲裁者！**
 
 
 
-“因此，如果非常危险和不公平的第230条没有作为国防授权法案（NDAA）的一部分被完全终止，当该法案被送到非常美丽的坚决桌上时，我将被迫明确地VETO该法案。现在就夺回美国。谢谢大家！”
-
-
-
-> …..Therefore, if the very dangerous & unfair Section 230 is not completely terminated as part of the National Defense Authorization Act (NDAA), I will be forced to unequivocally VETO the Bill when sent to the very beautiful Resolute desk. Take back America NOW. Thank you!
-> — Donald J. Trump (@realDonaldTrump) [December 2, 2020](https://twitter.com/realDonaldTrump/status/1333965375839621120?ref_src=twsrc%5Etfw)
-
-
-
-国防授权法(NDAA)是肯尼迪John F. Kennedy总统签署的，结合2018年9月12日的行政命令（Sep. 12, 2018 Executive Order），总统可以宣布国内叛国行为人为敌方战斗人员。目前参众两院已在7月通过2021年国防授权法案，只等总统签字。
-
-根据川普总统的推文可知，他签署《国防授权法》的前提是删除230法案。2021财年的国防授权法案涉及价值7,160亿美元，因此牵涉美国各方面的利益，背后的力量一定希望早日获得总统签署。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0

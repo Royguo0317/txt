@@ -1,35 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 林伍德呐喊:今天就像1776年的美国，我们不会让中共夺走我们的国家
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/611562/)
+## 鲍威尔重磅讲话：中共国用金钱操控美国大选，白帽黑客在中国、伊朗、香港等地参与选票欺诈
+` GM101` [轉載自GNews](https://gnews.org/zh-hans/611594/)
 
-- 编辑：Victor Torres、文顺
+据新唐人报道，鲍威尔与林伍德于美东时间12月2号在乔治亚州阿尔法利塔的韦尔斯公园召开联合新闻发布会。鲍威尔是前联邦检察官，现任朱利安尼律师团队核心成员。
 
+鲍威尔重磅讲话明确中共国投入了大量资金操控了本次大选，来自中国、香港、伊朗、塞尔维亚的白帽黑客参与了本次选票欺诈。鲍威尔指出除了Dominion（中共国量产的大选舞弊系统）机器之外，中共国欺诈系统及相关编码构成存在于美国所有投票设备中，大量的证据将会陆续曝光。
 
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+鲍威尔认为美利坚合众国作为一个自由共和国的核心价值，是让美国人民拥有包括选举权在内的各种权利。鲍威尔呼吁美国人民捍卫自己的权利，在可能重新选举的前提下，选用纸质选票保证选举的合法和安全性。
 
-西班牙2020年12月3日电/西喜社/——律师西德尼·鲍威尔（Sidney Powell）和林伍德（Lin Wood）于周三下午在乔治亚州阿尔法利塔的威尔斯公园举行了新闻发布会。弗林将军也参加了集会。
-
-林伍德形容现在的美国就如同1776年签署独立宣言的那一刻，面临着巨大的考验，人们必须为了追求自由的权利站出来，捍卫民主，捍卫这个国家。他向中共传递了一个信息: “你们无法夺走我们的自由”，“我们不会让你们夺走我们的国家。”
-
-他说，我们现在战争中，而乔治亚洲就是最激烈的前线。他指控该州州长通过多米尼投票系统的采购，私受了金钱。且中共控制了多米尼75%的股份。
-
-两位律师均表示，外国势力干预了此次大选，其中来自中国的资金资助了大选舞弊，中国，伊朗等国家利用网络盗取了美国的选举数据。
-
-
-
-> It’s 1776 in America again.[#FightBack](https://twitter.com/hashtag/FightBack?src=hash&amp;ref_src=twsrc%5Etfw) for Liberty [https://t.co/S4pUBhD4fC](https://t.co/S4pUBhD4fC)
-> — Lin Wood (@LLinWood) [December 2, 2020](https://twitter.com/LLinWood/status/1334263413971750915?ref_src=twsrc%5Etfw)
-
-
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+中共国作为一个独裁政权，控制了中国所有行业和硬件设施设备，出现在中国及香港等地的黑客、间谍必定被中共亲自指挥部署。中共用蓝金黄操控了美国大选，策划卖美贼们发动了颠覆国家主权的政变行动。中共的行为唤醒了美国民意，美国人民已经组织起来了，惹翻了是不好办的。
 
 0

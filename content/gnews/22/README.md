@@ -1,17 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 习近平中南坑开会连续审议三个文件，显示文贵先生直播中提到的重要情报
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/611381/)
+## 蓬佩奥称赞塔利班与阿富汗政府达成和平协议
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/611446/)
 
-文/青椒文喜   审核/文璟   文宣/青椒文喜
+翻译：康州盘古农场-黎明的光芒
+校对：康州盘古农场-一花一世界
+审核：康州盘古农场-V
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02174058/Picture1-2-1.png)来源:( Nicholas Kamm/Pool 图片来自 AP)
+美国国务卿迈克-蓬佩奥（Mike Pompeo）对塔利班和阿富汗政府于本周达成的和平协议表示赞赏。
 
-11月30 日，习近平主持中共中南坑会议，审议了《军队政治工作条例》《中共统一战线工作条例》和《中共党员权利保障条例》。这个动作所释放的信号清楚说明郭先生近期直播中提到的习近平近期想法的真实性。
+“美国欢迎阿富汗伊斯兰共和国和塔利班谈判团队今天宣布的协议。 该协议是自2020年9月12日以来进行的阿富汗和平谈判的一个重要里程碑。”蓬佩奥发表的声明如是陈述。”该协议编纂了双方自会谈开始以来一直在谈判的规则和程序。 相关团体制定了一系列重要决议，以指导他们就政治路线和全面停火进行谈判。”
 
-毫无疑问，所谓军队政治工作条例是习近平希望将所谓党的这个帽子紧紧地套在人民军队的头上；让所有的军人保持忠诚，实际上是绝对服从与中南坑、甚至习近平本人的一种举动。收紧党卫军在这个特殊的时间点，一方面是担心内部反水，更重要的恐怕是真的希望对台湾动武。
+“我们祝贺双方坚持不懈，致力达成共识。 这一成就表明，阿富汗伊斯兰共和国和塔利班双方是认真的，能够克服分歧，并愿意解决疑难问题。 现已取得的成就为他们在政治层面成功解决四十多年的冲突带来希望。 美国感谢卡塔尔作为会谈的东道主和调解人所发挥的作用，”他继续说。”在政治路线和停火方面迅速取得进展是阿富汗人民最想要的。 美国将与国际社会大多数国家一道，继续支持和平进程，以实现这一目标。 随着政治路线和永久停火谈判的开始，我们也将与各方一道努力，争取大量减少暴力和实现停火。”
 
-第二个中共统一战线工作条例，中南坑强调了统一战线是这个中共的法宝之一。将毛的“遗产”搬出来不仅是左转向打到底的一个经典表现，在中共执政期间提出统一战线恰恰反映了社会各界、特别是基层的组织以及老百姓进行已经不认可中共了。文贵先生近期直播中提到，党内基本明白过来，是时候加速老百姓觉醒期步伐。习近平以及中南坑的人搞统一战线无非想对社会各界进行更严密看管，延缓人民在思想上的觉醒。
+大约两周前，蓬佩奥访问了卡塔尔，在那里他会见了塔利班和阿富汗领导人。
 
-第三条就更为明显，所谓的中共党员权利保障条例，表面上是强调党员的权利，实际上是进一步强调了党员的对于党的服从。中共组织所有党的纪律都本质上就是将党员训化成听话点绵羊，再放入羊群以左右和奴役整体的百姓。爆料革命三年多对党内的震撼不言而喻。在此刻的国际环境下，习近平亲自主持亲自召开的这个会议，无疑一方面表现了他本人的恐惧心态，恐惧党内分化、恐惧人民觉醒、恐惧爆料革命；另一个极端是，这可能也刺激他加速踩油门的赌徒心态，因此铤而走险希望对台湾动武。
 
-1+
+
+> Met with both Taliban and Islamic Republic of Afghanistan’s negotiating teams in Doha. I commend both sides for continuing to negotiate and for the progress they have made. I encourage expedited discussions on a political roadmap and a permanent and comprehensive ceasefire. [pic.twitter.com/3UhZoGFZoX](https://t.co/3UhZoGFZoX)
+> — Secretary Pompeo (@SecPompeo) [November 21, 2020](https://twitter.com/SecPompeo/status/1330234557396901888?ref_src=twsrc%5Etfw)
+
+
+国务卿蓬佩奥：在多哈会见了塔利班和阿富汗伊斯兰共和国的谈判小组。我赞赏双方继续进行谈判并取得进展。并鼓励双方加快关于政治路线和永久全面停火的讨论。
+原文链接：[https://townhall.com/tipsheet/katiepavlich/2020/12/02/pompeo-applauds-agreements-between-the-taliban-and-afghan-government-n2580929](https://townhall.com/tipsheet/katiepavlich/2020/12/02/pompeo-applauds-agreements-between-the-taliban-and-afghan-government-n2580929)
+
+0
