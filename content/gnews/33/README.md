@@ -1,79 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 林·伍德律师第一时间七问巴尔
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/611161/)
+## 纽特·金里奇（NEWT GINGRICH）: 虚假新闻媒体是你的死敌，试图控制你的生活
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/611163/)
 
-多伦多枫叶农场 老熊
+*新闻来源：BREITBART《布赖特巴特》；作者：罗伯特·克雷奇克（ROBERT KRAYCHIK）；发布时间：2020年11月30日*
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02134338/Barr.jpg)图片来自 The Intercept
-面对欺诈丛生的2020大选，证人、证据一个个地浮出水面，真相正在为美国人民所知，但是暗实力不甘失败，也在作垂死挣扎，司法部长巴尔的言论便是投向拜登的救命稻草。
+*翻译/简评：Dreamer文童；校对：感恩；审核：万人往；Page：拱卒*
 
-针对巴尔的谎言，林·伍德律师在第一时间向这个“疑似深喉”发出了质询，进行了七问：【1】
+[!\[\]()!\[\](https://spark.adobe.com/page/MBxQqTZmByg42/images/2112639f-47a6-4bc1-a5b5-dd9994af69e3.jpg?asset_id=172debfe-0125-47ab-9a3e-b681847c06a1&amp;img_etag=%22726bc2a200986b1b8c5f2019a00da23f%22&amp;size=1024)](https://spark.adobe.com/page/MBxQqTZmByg42/images/2112639f-47a6-4bc1-a5b5-dd9994af69e3.jpg?asset_id=172debfe-0125-47ab-9a3e-b681847c06a1&amp;img_etag=%22726bc2a200986b1b8c5f2019a00da23f%22&amp;size=1024)
 
-“公平地问你巴尔：
+**简评：**
 
-1、你调查过选举舞弊吗？
+前众议院议长纽特·金里奇（Newt Gingrich）周一接受《布赖特巴特新闻》（Breitbart News）采访时表示，《纽约时报》（New York Times）和《华盛顿邮报》（Washington Post）等左翼媒体是保守主义的敌人。
 
-2、你都做了什么？
+左翼媒体报道虚假新闻已经是由来已久。从川普总统上任以来，我们无数次看到这些左翼媒体编造虚假新闻对总统先生进行污蔑诋毁。班农先生、郭文贵先生及其发起的爆料革命也受到同样的待遇，一直遭到抹黑诋毁。不管这些左翼媒体如何以扭曲事实，甚至是编造虚假信息的方式进行报道，真相永远是真相。GTV和GNEWS作为真正传播真相的媒体平台，将很快被全世界接受。
 
-3、你发现了什么？
+**原文翻译：**
 
-4、你花了多少时间？
+## 纽特·金里奇（Newt Gingrich）: 虚假新闻媒体是你的死敌，试图控制你的生活
 
-5、专家参与了吗？
+[!\[\]()!\[\](https://spark.adobe.com/page/MBxQqTZmByg42/images/433cbb37-1af9-402b-b165-b44beabf70ba.png?asset_id=220edd1b-a48b-472d-89de-a2dececa9979&amp;img_etag=%220b2f6b468e4c7ed4b48d57109168b777%22&amp;size=2560)](https://spark.adobe.com/page/MBxQqTZmByg42/images/433cbb37-1af9-402b-b165-b44beabf70ba.png?asset_id=220edd1b-a48b-472d-89de-a2dececa9979&amp;img_etag=%220b2f6b468e4c7ed4b48d57109168b777%22&amp;size=1024)亚历克斯·布兰登（Alex Brandon）
 
-6、分析了多少台多米尼机器？
 
-7、调查了多少投票站的观察者？
+**前众议院议长纽特·金里奇（Newt Gingrich，共和党-乔治亚州）周一告诉《布赖特巴特新闻》（Breitbart News），左翼党派民主党新闻媒体，诸如《纽约时报》（New York Times）和《华盛顿邮报》（Washington Post），是保守主义的敌人，他们寻求权力和控制。**
 
-我们来付帐单，我们需要答案。”
+“他们是你的死敌”，金里奇（Gingrich）在SiriusXM的《布赖特巴特新闻日报》（Breitbart News Daily）上告诉主持人亚历克斯·马洛（Alex Marlow）。“这是你需要知道的。《纽约时报》（New York Times）是保守主义的死敌。《华盛顿邮报》（Washington Post）是保守主义的死敌。当对他们有利时，他们就会支持。当对他们不利时，他们就会反对。他们一点也不在意真相。他们在意权力，在意控制你的生活，在意对你发号施令。”
 
-估计内心有鬼的巴尔不敢直面这些看似简单的问题，是的，脏据握在主子的手中，主子让你干啥你就得干。
+金里奇（Gingrich）指出，新闻媒体、政府机构、科技公司和亿万富翁金融家之间进行正式和非正式的协调，以推进左翼党派民主党政治。
 
-负有正义感的媒体更是直言不讳，“巴尔永远毁了‘大法官’这个名字——他今天的行为证实了他是沼泽地鼠群里的一只。”【2】
+《纽约时报》（New York Times）和《华盛顿邮报》（Washington Post）都将自己推销为政治客观和无党派新闻媒体。2016年唐纳德·川普（Donald Trump）总统当选后，《纽约时报》（New York Times）开展广告宣传活动，将自己定位为“真相”的传播者，而《华盛顿邮报》（Washington Post）采用新的口号：“民主在黑暗中死亡”。
 
-《门道专家》这样评论了巴尔：
+金里奇（Gingrich）的Newt世界播客（Newt’s World Podcast）在其同名网站上可以获得。
 
-“现在我们知道为什么司法部在过去的四年里没有逮捕任何人，为什么达勒姆（Durham investigation）调查（通俄门反调查）一场空，原因是他们想要这样，他们从没打算逮捕任何人。联邦调查局和司法部唯一的目标是爱国的保守派美国人，那些希望国家和孩子的未来有更好发展的人们。
+《布赖特巴特新闻日报》（Breitbart News Daily）在SiriusXM爱国者（SiriusXM Patriot）频道125个工作日进行直播，每天早上6点至上午9点（美东时间）。
 
-我们都知道在众目睽睽下有足够的证据逮捕和定罪几十名政客和政府工作人员，现在我们知道为什么没有人被捕了。巴尔深深地陷入了沼泽地！
+[原文链接](https://www.breitbart.com/radio/2020/11/30/newt-gingrich-fake-news-media-mortal-enemies-seeking-power-lives/)
 
-巴尔本想隐藏得更深，但现在已经结束了，我们现在完全知道他是怎么回事了，他是沼泽地里另一个欺人窃世的物种。
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-《门道专家》例举了一位证人的证词，“梅丽莎·卡隆，一位在周二密歇根州听证会上作证的、非常有说服力的证人，她说她在11月5日打电话给联邦调查局，报告了许多欺诈案件，但联邦调查局从未给她回电话。”
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-《门道专家》指出：
+[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-今天，在选举舞弊蔓延的时刻，大家都知道这是个骗局，光天化日下有太多的信息证明了这一点，所有美国人都知道发生了什么事，我们都看到了。
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/MBxQqTZmByg42/)
 
-这就是巴尔必须做点什么事的理由，他直到今天才试图宣布，尽管有明显的，与“选举中没有实质性腐败”的相反证据。然后他又拉了另一个“卧底”，挑选了约翰·达勒姆，作为名特别顾问进入“白热化的交战双方”，这样，可以暂时安抚正在溃败的阵营，同时将刀刺向川普总统和美国的后背。
+[!\[\]()!\[\](https://spark.adobe.com/page/MBxQqTZmByg42/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/MBxQqTZmByg42/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
-《门道专家》继续悉数巴尔的恶行：
-
-“他已经明确表示自己是沼泽地的一员——一名持卡会员：他从未解雇腐败的联邦调查局局长雷（Wray），他让达勒姆工作了一年多，（雷）没有受到起诉，尽管有明显证据表明联邦调查局和司法部是腐败和犯罪分子领导的。他允许穆勒手下的歹徒回到联邦调查局和司法部，在那里他们应该被戴上手铐，然后把罪人送进监狱，巴尔什么都不想做。
-
-希拉里·克林顿是自由的，尽管销毁了与她在政府期间犯下的许多罪行有关的证据；吉姆·科米和安迪·麦卡贝被发现撒谎，但从未被起诉；穆勒和他的帮派是自由的。事实上，最后四位联邦调查局局长，穆勒，科米，麦卡贝和沃伊都应该在监狱里，而不该（让他们）四处走动骚扰别人。
-
-名单上有很多，难怪令人毛骨悚然和腐败的彼得·斯特佐克（Peter Strzok）在选举前如此傲慢。他们都知道自己会自由，选举被拜登操纵。
-
-像弗林将军等人在香蕉法庭（不靠谱的法庭）上被定罪，战斗英雄、三级截肢的布莱恩·科尔法奇（Brian Kolfage）被捕，他被迫单手爬行，冒雨将自己拉上一辆警车，罪名是从腐败的纽约司法部办公室传出的临时指控。
-
-《门道专家》义愤填膺：
-
-“这是巴尔的美国，联邦调查局和司法部黑手党的罪犯不受指控，只对热爱美国的无辜者提出指控。巴尔现在将作为另一只华盛顿沼泽鼠载入史册。真丢人，艾格·巴尔现在的名字是臭名昭著。”
-
-“没关系，事情没完。巴尔只是路上的另一个障碍，美国人想要正义，也会得到正义。不管巴尔怎么想或做什么。不幸的是，他和其他许多人一样，他们的言行只会加强我们伸张正义的决心，同时也证实了我们对沼泽地腐败的认识，我们是对的。”
-
-《门道专家》信心满怀地表达了正义力量的心声！
-
-所以，巴尔的所作所为已经回答了林·伍德律师的七问，那就是，他是沼泽地里的一员，在奉命执行任务。掌控司法如中共紧握“刀把子”的套路如出一辙，演绎的是同样的剧本，美国面临的最大的威胁就是拜登等小丑背后的力量，那才是美国最危险的敌人！
-
-参考链接：
-
-【1】[https://twitter.com/LLinWood/status/1333998229525057540](https://twitter.com/LLinWood/status/1333998229525057540)
-
-【2】https://www.thegatewaypundit.com/2020/12/ag-barr-destroys-name-eternity-actions-today-confirm-just-another-card-carrying-swamp-rat/
-
-2+
+1+

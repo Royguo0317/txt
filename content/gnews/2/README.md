@@ -1,28 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美研究表明:中共病毒在中共报告首例病例前已蔓延全球
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/605169/)
+## 川普总统：“这可能是我做过的最重要的演讲”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/611528/)
 
-- 编辑：Victor Torres
+- 编辑：Victor Torres、文顺
 
 
 ***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-西班牙2020年12月2日电/西喜社/——美国周一发表的一项研究揭示，12月13日至1月17日期间，从美国9个州的捐献者那里收集的7389份血液样本中鉴定出106例中共病毒感染。这些样本由美国红十字会收集，被送往美国疾病控制与预防中心进行测试，以检测是否存在针对该病毒的抗体。
+西班牙2020年12月3日电/西喜社/——川普总统周三在线发表演讲，谈2020年大选受到欺诈的影响。
 
-该报告说：“研究发现表明，中共病毒感染可能于2019年12月在美国出现，早于先前的认识。”之前认为，美国第一个病例产生在1月19日。
+他说：“如果我们不铲除欺诈行为，即在我们2020年选举中发生的巨大而可怕的欺诈行为，我们就不会再有一个县。”
 
-关于在中国武汉传播的神秘肺炎的报道最早于2019年12月下旬出现。在随后的几周内，该疾病在整个城市迅速传播后，在全球蔓延。
+川普总统说摇摆州选举结果包含大量非法投票。他说：“仅在摇摆州中，就有数百万张选票是非法的，如果情况属实，则必须立即推翻各个摇摆州的结果。”
 
-这项研究表明，中共故意隐瞒疫情发生的起始时间，封锁了消息的传播。人为造成了中共病毒在全球的大流行，是对全人类的犯罪。
+他在讲话中说：“我们在所有摇摆州都有重大违规或彻头彻尾的欺诈行为，其数量或投票数远远超过推翻该州结果所需要的。”
 
-**参考链接：**
-[https://www.bloomberg.com/amp/news/articles/2020-12-01/covid-infections-found-in-u-s-in-2019-weeks-before-china-cases?\_\_twitter\_impression=true&s=08](https://www.bloomberg.com/amp/news/articles/2020-12-01/covid-infections-found-in-u-s-in-2019-weeks-before-china-cases?__twitter_impression=true&amp;s=08)
+川普总统宣布：“作为总统，我没有比捍卫美国法律和宪法更高的职责。” 他说：“这就是为什么我决心保护我们的选举制度，而这个选举制度目前正受到协同的袭击和围困。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
+**视频链接：**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/09104114/PHOTO-2020-11-08-02-34-23.jpg)
+
+
+> Statement by Donald J. Trump, The President of the United States
+> 
+> Full Video: [https://t.co/EHqzsLbbJG](https://t.co/EHqzsLbbJG) [pic.twitter.com/Eu4IsLNsKD](https://t.co/Eu4IsLNsKD)
+> — Donald J. Trump (@realDonaldTrump) [December 2, 2020](https://twitter.com/realDonaldTrump/status/1334240039639937026?ref_src=twsrc%5Etfw)
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 

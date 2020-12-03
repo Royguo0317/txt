@@ -1,33 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 230法案即将寿终正寝，九层妖塔旋即无处遁形
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/611400/)
+## 从“扬州十日嘉定三屠”到香港陨落
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/611382/)
 
-文/拉丁Latin、青椒文喜      审核/文璟       文宣/青椒文喜
+温哥华战友之家 路仁
 
-12月1号晚间，川普总统连发2条消息重申了他对230法案的态度，验证了文贵先生所言的天雷滚滚从本周开始。
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02164533/HK.jpg)图片来自 Financial Times
+人类历史的长河中，不乏野蛮对文明的征服，这种征服，伴随着的是滚滚落地的人头，和文明的陨落。 在中华大地上，“扬州十日嘉定三屠”留给人们的记忆，是野蛮的肆无忌惮，是文明被强奸蹂躏，是大汉民族刻骨铭心的耻辱，是中华文明前进中的大倒退！
 
-推文中川普总统说，“第230（法条）是美国送给 “大科技”（美国唯一拥有该条款的公司的企业福利！）的责任保护礼物，是对我们国家安全和选举完整性的严重威胁。如果我们允许它继续存在，我们的国家就永远不会有安全和保障…..。”
+中共在香港逐步撕下了他们“一国两制”的虚伪的面孔，如同满清入关“剃发易服”一样，他们也容不得香港人民对自由、民主等普世价值的拥有和追求，曾经的“东方明珠”，正变成撒旦魔鬼们的“嘉定和扬州”，他们毫无忌惮地享受着征服的乐趣，和嗜血的狂欢！
 
+据《人民日报》微博11月30日报道，11月11日，中共全国人大表决通过关于香港特别行政区立法委员资格问题的决定后，港府随机宣布杨岳桥等四人丧失立法会议员资格，而另外15名“揽炒”派议员辞职也全面生效。1
 
+香港人民，一群曾经沐浴在自由民主阳光下的圣徒，从“黄雨伞运动”，到“反送中运动”； 从年轻人大学生，到几百万香港市民，为了争取自己的权利，为了保卫文明的火种，前赴后继，付出了惨痛的代价。
 
-> Section 230, which is a liability shielding gift from the U.S. to “Big Tech” (the only companies in America that have it – corporate welfare!), is a serious threat to our National Security & Election Integrity. Our Country can never be safe & secure if we allow it to stand…..
-> — Donald J. Trump (@realDonaldTrump) [December 2, 2020](https://twitter.com/realDonaldTrump/status/1333965375193624578?ref_src=twsrc%5Etfw)
+当立法委员被DQ（取消资格），当15名其他民主派立法委员被所谓的中共“橡皮图章”人大准辞后，香港民主最后的一丝希望已告破灭。可以预见的是，伴随而来的是香港立法院的角色将转换成香港的“橡皮图章”，香港独立的司法制度也将不再。近几天传出的英国考虑停派法官赴香港终审法庭2， 以及香港有线电视中国新闻组集体请辞事件3，都预示了香港司法独立，媒体言论自由都将退化、大陆化。而最近港共政府更是肆无忌惮地大肆抓捕香港年轻人，参加反送中运动中的成千上万的年轻人被自杀、被强奸、被送中，让我们似乎看到了300年前满清入关杀进扬州和嘉定的那一幕。
 
+香港的陨落，是全体香港人民的悲哀! 也是华夏民族的悲哀！那些曾经在自由民主法治下风光无限的香港“四大不要脸”们，众多大陆明星富豪的下场就是你们的未来。想想几年前的王健，吴小晖们，还有近期的马云，王健林们，再往前回溯到70年前中共统治华夏大地之初，那些和中共勾兑的知识精英，名流富贾的下场，历历在目，殷鉴不远!
 
+香港的陨落，更是全世界自由民主国家的耻辱！八九六四， 以美国为首的西方民主国家选择了与侩子手勾兑，中华大地民主自由的火苗被生生掐灭，换来的是中共独裁政权的做大！香港人民抗争的失败，以及整个西方国家的绥靖和蜻蜓点水似的制裁，换来的是独裁者更加的肆无忌惮！如今横行全球的中共病毒，是整个西方国家不得不吞下的恶果；而时下遍布美国的大选舞弊，无处不显现出中共操纵的痕迹。
 
-“因此，如果非常危险和不公平的第230条没有作为国防授权法案（NDAA）的一部分被完全终止，当该法案被送到非常美丽的坚决桌上时，我将被迫明确地VETO该法案。现在就夺回美国。谢谢大家！”
+相信川普总统在亲身经历了“中共病毒”和大选舞弊双重迫害之后，在“爆料革命”和“新中国联邦”的鼎立相助下，能够逐步认识到美国以及全人类受到来自中共的威胁和正在发生的危害!
 
+正如我们的“圣城”香港，经历了血雨腥风，终将得到凤凰涅槃般的重生！
 
+愿荣光归香港！
 
-> …..Therefore, if the very dangerous & unfair Section 230 is not completely terminated as part of the National Defense Authorization Act (NDAA), I will be forced to unequivocally VETO the Bill when sent to the very beautiful Resolute desk. Take back America NOW. Thank you!
-> — Donald J. Trump (@realDonaldTrump) [December 2, 2020](https://twitter.com/realDonaldTrump/status/1333965375839621120?ref_src=twsrc%5Etfw)
+参考链接：
 
+1. [https://www.rfi.fr/cn/](https://www.rfi.fr/cn/)
+2. https://www.bbc.com/zhongwen/simp/chinese-news-55141670
+3. [https://www.bbc.com/zhongwen/simp/uk-55054592](https://www.bbc.com/zhongwen/simp/uk-55054592)
 
-
-国防授权法(NDAA)是肯尼迪John F. Kennedy总统签署的，结合2018年9月12日的行政命令（Sep. 12, 2018 Executive Order），总统可以宣布国内叛国行为人为敌方战斗人员。目前参众两院已在7月通过2021年国防授权法案，只等总统签字。
-
-根据川普总统的推文可知，他签署《国防授权法》的前提是删除230法案。2021财年的国防授权法案涉及价值7,160亿美元，因此牵涉美国各方面的利益，背后的力量一定希望早日获得总统签署。
 
 0

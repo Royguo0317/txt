@@ -1,17 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 习近平中南坑开会连续审议三个文件，显示文贵先生直播中提到的重要情报
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/611381/)
+## 假新闻们纷纷发文川普寻求赦免家人
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/611360/)
 
-文/青椒文喜   审核/文璟   文宣/青椒文喜
+撰稿：Jenny
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02162604/IMG_4159.jpg)网络截图
+假新闻们《纽约时报》和《ABC News》纷纷发文川普寻求赦免家人
 
-11月30 日，习近平主持中共中南坑会议，审议了《军队政治工作条例》《中共统一战线工作条例》和《中共党员权利保障条例》。这个动作所释放的信号清楚说明郭先生近期直播中提到的习近平近期想法的真实性。
+纽约时报刊登了题为《特朗普寻求预先赦免家人和私人律师》。
 
-毫无疑问，所谓军队政治工作条例是习近平希望将所谓党的这个帽子紧紧地套在人民军队的头上；让所有的军人保持忠诚，实际上是绝对服从与中南坑、甚至习近平本人的一种举动。收紧党卫军在这个特殊的时间点，一方面是担心内部反水，更重要的恐怕是真的希望对台湾动武。
+部分原文摘录：
 
-第二个中共统一战线工作条例，中南坑强调了统一战线是这个中共的法宝之一。将毛的“遗产”搬出来不仅是左转向打到底的一个经典表现，在中共执政期间提出统一战线恰恰反映了社会各界、特别是基层的组织以及老百姓进行已经不认可中共了。文贵先生近期直播中提到，党内基本明白过来，是时候加速老百姓觉醒期步伐。习近平以及中南坑的人搞统一战线无非想对社会各界进行更严密看管，延缓人民在思想上的觉醒。
+据两名知情人士透露，特朗普总统已同顾问们讨论是否预先赦免他的子女、女婿以及私人律师鲁道夫·W·朱利安尼(Rudolph W. Giuliani)，并在上周与朱利安尼讨论了赦免他的事宜。
 
-第三条就更为明显，所谓的中共党员权利保障条例，表面上是强调党员的权利，实际上是进一步强调了党员的对于党的服从。中共组织所有党的纪律都本质上就是将党员训化成听话点绵羊，再放入羊群以左右和奴役整体的百姓。爆料革命三年多对党内的震撼不言而喻。在此刻的国际环境下，习近平亲自主持亲自召开的这个会议，无疑一方面表现了他本人的恐惧心态，恐惧党内分化、恐惧人民觉醒、恐惧爆料革命；另一个极端是，这可能也刺激他加速踩油门的赌徒心态，因此铤而走险希望对台湾动武。
+特朗普告诉别人，他担心拜登的司法部可能会寻求对他的报复，针对他五个孩子中年长的三人——小唐纳德·特朗普(Donald Trump Jr.)、埃里克·特朗普(Eric Trump)和伊万卡·特朗普(Ivanka Trump)——以及伊万卡·特朗普的丈夫、白宫高级顾问贾里德·库什纳(Jared Kushner)。
 
-1+
+
+
+> 据两名知情人士透露，特朗普总统已同顾问们讨论是否预先赦免他的子女、女婿以及私人律师鲁道夫·朱利安尼。
+> 每届政府结束时通常都会进行一波赦免，尤其是像特朗普这样被卷入争议的政府。由于担心拜登司法部可能会对他报复，特朗普正寻求预先赦免自己的家人和私人律师朱利安尼。[https://t.co/0qJDdfw4Sx](https://t.co/0qJDdfw4Sx)
+> — 纽约时报中文网 (@nytchinese) [December 2, 2020](https://twitter.com/nytchinese/status/1334061245155065856?ref_src=twsrc%5Etfw)
+
+
+
+[ABC新闻周二早些时候报道](https://abcnews.go.com/Politics/white-house-vetting-pardon-requests-push-trump-preemptively/story?id=74482289)《白宫审查赦免请求，因为有人推动特朗普主动赦免家庭》
+
+随着白宫助手对选举结果达成共识，并将焦点转移到特朗普总统执政的剩余几周，多个消息人士告诉美国广播公司新闻，特朗普的多位盟友和其他律师已经开始了向西翼请愿的运动，希望获得赦免 对于那些可能会受到总统同情的人。
+
+消息人士称，那些可能获得宽恕的人从家庭成员到相关人员一直到老虎王。
+
+As White House aides come to terms with the election results and turn their focus to the remaining weeks of [President Trump’s](https://abcnews.go.com/alerts/donald-trump) administration, multiple sources tell ABC News that various Trump allies and other lawyers have begun a campaign to petition the West Wing in hopes of securing pardons for those who might receive a sympathetic reception from the president.
+
+Those in the mix for a potential pardon have ranged from family members and associates all the way to the Tiger King, according to sources.
+
+评论：看到Fake News一哄而上的新闻我们就放心了。
+
+但是，过度的自信就是自负。川普智商156, 如果没有为家人和他的团队未雨绸缪，有Plan B也是说不过去的。所以寻求赦免家人及他的重要助手在情理之中。
+
+我们能做的就是为川普以及正义之师祈祷，愿他遵循神的旨意不偏离神的道路，一切交托在神大能的手中。
+
+澳喜文章[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+
+欢迎加入澳喜农场：[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13172650/IMG_3537-1.jpg)
+3+
