@@ -1,8 +1,12 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/2/2020 今日要闻同传⎢澳洲SKYNEWS节选 + 福克斯LOU DOBBS &amp; HANNITY &amp; TUCKER 等节目+ 玛丽亚节目即时同传
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/611249/)
+## 11/30/2020 郭先生直播：中共国超过一半的人口生活在极度贫困线之下，却要向全世界输出“脱贫经验”
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/611285/)
+
+郭先生直播视频：中共国超过一半的人口生活在极度贫困线之下，却要向全世界输出“脱贫经验”，这和当年中共文化大革命、大跃进时候的虚假宣传如出一辙；木兰和铁蛋儿的“喜马拉雅之恋”唱出了战友的真情和美好，这才是战友们应该有的和追求的；朱利安尼是个安静谦虚的真英雄，不但拯救美国、还在拯救西方文明
+
+
 
 By: 【秘密翻译组G-Translators】
 

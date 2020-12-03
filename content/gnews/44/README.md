@@ -1,36 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 弦子诉朱军性骚扰案12月2日开庭连母猪都想睡的朱军能胜诉吗
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/610978/)
+## 川普打电话到亚利桑那州的选民欺诈听证会上：我们正在反击
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/611007/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02125917/%E5%B0%81%E9%9D%A2-6.jpg)
-撰稿：喜马拉雅的肉夹馍；审核：喜拉雅的馍夹肉；校对：Maarago
+*新闻来源：breitbart《布赖特巴特》；作者：CHARLIE SPIERING；发布时间：2020年11月30日*
 
-弦子起诉朱军案于2020年12月2日下午在北京法院开庭，在现场支持弦子的场景据[是515小强](https://weibo.com/u/6113692959) [12月2日 21:53](https://weibo.com/6113692959/JwE3V4x7Y?from=page_1005056113692959_profile&amp;wvr=6&amp;mod=weibotime) 来自 [华为手机 畅享玩不停](https://app.weibo.com/t/feed/62EL2k)
+*翻译/简评：Victory；校对/审核：万人往；Page：拱卒*
 
-[置顶](void%280%29;) 上一条夹了。继续发。这真的是历史性的一刻。无数人在北京法院门口，各大平台和网络却没有任何声音发出。从来维权和发生都是被压在重掌之下
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02130548/1-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02130542/2-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02130531/3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02130522/4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02130515/5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02130503/6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02130421/7.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02130316/8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02130308/9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02130145/10.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02130248/11.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02130233/12.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02130259/13.jpg)
-弦子诉朱军性骚扰案的起因据[头条新闻](https://weibo.com/breakingnews) [2018-9-26 21:34](https://weibo.com/1618051664/GBbgEmx1O?from=page_1002061618051664_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)
+[!\[\]()!\[\](https://spark.adobe.com/page/0HJuz7asmInA5/images/31ae44b5-8a8a-426f-a61e-de34a33ea07a.jpg?asset_id=fb599668-95c1-45e3-8891-0027d890df47&amp;img_etag=%223c3cfc74761aaf3bcbd9fe69515bcef8%22&amp;size=1024)](https://spark.adobe.com/page/0HJuz7asmInA5/images/31ae44b5-8a8a-426f-a61e-de34a33ea07a.jpg?asset_id=fb599668-95c1-45e3-8891-0027d890df47&amp;img_etag=%223c3cfc74761aaf3bcbd9fe69515bcef8%22&amp;size=1024)
 
-【朱军被指性骚扰事件当事女生露脸发声：从没想过跟朱军和解】9月25日，当事女生[@弦子与她的朋友们](https://weibo.com/n/%E5%BC%A6%E5%AD%90%E4%B8%8E%E5%A5%B9%E7%9A%84%E6%9C%8B%E5%8F%8B%E4%BB%AC?from=feed&amp;loc=at) 向法院递交起诉朱军的材料，索赔5万元。当天，她称也收到朱军索赔65.5万元的起诉书。弦子选择露脸发声，她说希望有机会同时成为原告和被告。“哪怕有5%的可能性赢，都会冒险去做这个事情”。截至发稿，记者多次拨打朱军代理人手机电话，均无人接听。[@时间视频](https://weibo.com/n/%E6%97%B6%E9%97%B4%E8%A7%86%E9%A2%91?from=feed&amp;loc=at) [L时间视频的秒拍视频](http://t.cn/EP9pE4I)
+**简评：**
 
-爆料革命三年来，中央电视台的后宫们的春宫故事有些许已经被郭文贵先生爆出来，作为娱乐灭共的一部分，我们先看看郭文贵先生是怎么评论朱军的——
+川普总统本次大选可谓兵行险着，不仅要最终获选，还要借此排干沼泽。中共及美国黑暗势力都很清楚这是终极之战，考虑到它们自己做的恶，败选就是万劫不复。因此大部分隐藏的力量都赤膊上阵了，包括CIA、FBI、军方、司法体系、主流媒体、大科技公司以及一些州政府和白宫官员。黑暗势力涉及范围之广，确实太让人难以置信。亚利桑那州长杜西现在跳出来，只能算是其中一个垂死挣扎的小棋子而已，愚蠢至极。
 
-1、 2019年1月10日，谈袁健斌的案子，征求春节爆猛料内幕
+**原文翻译：**
 
-［他们是共产党是娱乐洗脑三十年，我们是反娱乐共产党娱乐洗脑。然后我们讲的是过去的中央电视台的主持人都去了哪儿？都是什么背景？中央台的台长都去了哪儿？什么下场？咱要说说。然后现在在台上的例如董卿啊、过去的朱军啊都啥关系啊？咱再说说爆肛芳怎么上的春节联欢晚会？然后我看到这个节目里边这回好多人上去，都是老人，我一看节目如果是真的话，90%人我都认识。所以我跟着他的节目，每个人我都说这个人生活中什么人，他为什么演这节目？他是怎么被选上的节目？替谁在说话？我就跟着他的节目，我就来爆料，报这些演员的料，报这些中央台的料。］
+## 唐纳德·川普打电话到亚利桑那州的选民欺诈听证会。我们正在反击
 
-2、2019年1月11日“政法伪”高管评崔永元爆料
+**唐纳德·川普总统周一打电话到亚利桑那州共和党议员举行的听证会上，赞扬他们对民主党选举舞弊的反击。**
 
-［我要讲讲中央电视台还有这演艺圈的具体事，那比崔永元火爆多了，太多了。为啥啊！党就是个骗子，党就是个流氓，这个国家的管理者就是个流氓。哪有谁还能当好人？说白了，中央电视台都知道是妓院，是不是，这个人叫cc睡，cc睡，cc睡，谁都可以tv一下。所以说那个鸟地方要搞一个什么，每年10亿人的，你看他们每个人上去说话，还那朱军，那朱军那母猪他都想睡。那母猪他都想睡都，那朱军。你看，天天哭着眼圈，你想想多恶心这世界上。瞪眼知道是假的，瞪眼知道前后X,Ac,dc。男女节育的人，各个是这套活。你问哪个人不是那样。］
+“他们所做的就是玩手段，而且是从来没人见过的手段。”川普针对民主党人说道。”这是共和党人或者任何人的第一次反击。”
 
-3、2019年5月31日文贵试直播
+当听到总统的声音时，观众鼓掌欢呼，他的律师珍娜·埃利斯（Jenna Ellis）拿着电话对着麦克风。
 
-［中央电视台的，我说过，主持人啊，我的妈呀，太多了啊，现在竟然我发现成了红啦。我这是2013年啊，我在这个吃饭，哎哟，我的妈，中央电视台一个又一个的来，唉，包括朱军啊，还有朱军他老婆呀，那时候朱军牛啊。我给大家讲过啊，朱军一看50年茅台啊，一进屋一看50年茅台啊，唉，我敬大家一人三杯，哈哈哈，86年茅台我先打一圈，然后再敬三杯再敬三杯。然后女主持人来了，哎呀，郭先生啊，这这怎么着，一握手，纸条递你手里边了，这是不太出名的主持人啊。主持人都认识了，都是小年轻孩，纸条，有事了给我打电话，都这样，没这本事活不了，要脸要面子的人在中央电视台哪活得了啊，活不了。最后朱军出事了吧？哎呀，这一定出事儿了。干净人进不了中央电视台，干净的人家坐不下来，啊，你更干不下去，好人不进中央台啊，坏人在中央台也很难活，必须是大坏人，不会撒谎，你要脸，那都不行啊。］
+总统声称他赢得了亚利桑那州、密歇根州、乔治亚州、宾夕法尼亚州和威斯康星州等摇摆州，并提醒支持者，他比2016年多获得了1100万张选票。
 
-弦子是不是血口喷人诬蔑朱军？绝对不可能！作为一个弱女子不会不知道无中生有对党国口活名人朱军起诉会面临的后果和压力，正如现场声援弦子的人群中举出的牌子说的那样，“我们不是行走的生殖器”，在这一起作为被告的党国春宫演员朱军性骚扰案中，被中共控制于股掌之下的司法体系能给弦子一个公道吗？让我们拭目以待！
+[!\[\]()!\[\](https://spark.adobe.com/page/0HJuz7asmInA5/images/e008df5b-47bb-449c-bbc9-903c7bf3d2c4.jpg?asset_id=dfdb488d-e7ae-45fe-92a3-a4d3863f6a9e&amp;img_etag=%2277b3e2c61c13f603fe11ac70b11cfd6e%22&amp;size=2919)](https://spark.adobe.com/page/0HJuz7asmInA5/images/e008df5b-47bb-449c-bbc9-903c7bf3d2c4.jpg?asset_id=dfdb488d-e7ae-45fe-92a3-a4d3863f6a9e&amp;img_etag=%2277b3e2c61c13f603fe11ac70b11cfd6e%22&amp;size=1024)
 
-（文章内容仅代表作者个人观点）
+“我一直在看听证会，他们太棒了，令人难以置信。”他说。
 
-0
+总统赞扬了所有注意到该州投票和计票异常的亲历者，拜登在该州以10457票领先川普。
+
+“我知道有些人有点激动，但更多的人得到了美国民众的赞扬。”川普说。
+
+周一，共和党进行选举舞弊听证会的同时，亚利桑那州认证了选举结果，川普对此感到非常愤怒。他指责共和党州长道格·杜西（Doug Ducey）不顾选举的公正性问题，匆忙进行认证程序。
+
+“最重要的是，你有一个叫杜西的州长。”他说，众人嘘声一片。”他急着签认证书……那是怎么回事？他没必要签。我说，当这些令人难以置信的听证会正在进行，展示出如此腐败和如此可怕的欺诈行为时，他为什么要签字？”
+
+观众鼓掌赞同。
+
+“你必须弄清楚杜西这是怎么回事。他迫不及待。”川普说，他补充道：”我们不会忘记杜西刚才的所作所为。”
+
+总统反复指控说选民去投票时发现选票已经填好了，还有人花钱买选票，以及在没有共和党选举观察员的情况下处理邮寄的选票。
+
+“这说明民主党人和其他人在夺取和窃取选举方面是多么的嚣张。”他说。
+
+川普指出，他也因为争取选举公正而面对批评，他说，人们一再促请他选择 “更容易的路线”，专注于2024年大选。
+
+“我说，’不，'”他回忆说。”我必须专注于两个星期前。这是有史以来对我们国家的最大骗局。”
+
+总统赞扬亚利桑那州共和党人举行听证会，尽管被主流媒体广泛批评。
+
+“我们钦佩所有的人，这包括所有这些在上面做得很好的代表。”川普说。”他们没有意识到的是，他们可能会听到一些事情，但他们正在因为承担这个任务而成为传奇。”
+
+总统再次称赞鲁迪·朱利安尼在其他律师退缩时有勇气战斗。
+
+“这是你做过的最重要的一件事。”他说。
+
+[原文链接](https://www.breitbart.com/politics/2020/11/30/donald-trump-calls-in-to-arizona-voter-fraud-hearing-were-fighting-back/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+breitbart+%28Breitbart+News%29)
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/0HJuz7asmInA5/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/0HJuz7asmInA5/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/0HJuz7asmInA5/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
+2+
