@@ -1,27 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【突发】彭佩奥：这无关美中对抗，而关乎自由和暴政的对抗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/617267/)
+## 突发！美国务院宣布对从事强制影响力活动的中共官员实施签证制裁
+` GM101` [轉載自GNews](https://gnews.org/zh-hans/617313/)
 
-- 编辑：Victor Torres
+美东时间12月4号，美国国务院官方发布了“对从事强制影响力活动的中共官员实施制裁”的相关声明。
 
+声明表示中国共产党长期以来在全球传播马列主义并施加影响，中共统战部资助和支持海外组织散布宣传，威吓和欺凌那些反对北京政策的人。统战部恐吓学术界、企业、民间社会团体和华侨社区的成员，其中包括反对中共在新疆、西藏等地发生的严重侵犯人权行为的少数民族和宗教群体成员。
 
-***更多真相，请关注*** ***[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+声明明确根据《移民和国籍法》第212（a）（3）（C）条行使职权，对从事该活动的中共官员或参与统战部活动的个人施加签证限制。签证限制包括使用或威胁进行人身暴力、盗窃和发布私人信息、进行间谍活动、蓄意破坏或对国内政治事务及学术自由、个人隐私或商业活动的恶意干预。声明指出中共制造的恶性活动旨在促使美国和其他国家的地方领导人、海外华人社区，学术界和其他民间社会团体对中共威权主义言论和政策的偏好。
 
-**西班牙2020年12月4日电/西喜社/——**刚刚，美国国务卿彭佩奥通过视讯，在国际战略研究所麦纳麦对话(Manama dialogue )发表评论，他说：“这无关美中对抗，而关乎自由和暴政的对抗。”
-
-
-
-> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): This isn’t about America vs. China. It’s about freedom vs. tyranny. [pic.twitter.com/jpTFr3i36Z](https://t.co/jpTFr3i36Z)
-> — Department of State (@StateDept) [December 4, 2020](https://twitter.com/StateDept/status/1334920457515098113?ref_src=twsrc%5Etfw)
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+声明呼吁中共停止使用胁迫和恐吓手段来压制言论自由，明确美国将继续审查中共当局压制人权的恶行。
 
 0
