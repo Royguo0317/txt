@@ -1,69 +1,80 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港专题】得奖节目【新闻刺针】被灭 之 节目针砭时弊（三）
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/616584/)
+## Breitbart新闻网竟向林伍德律师开战-林伍德律师为川普总统辩护，对抗邪恶的马克思主义组织&#8211;林伍德律师回击Breitbart
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/616657/)
 
-编撰：文燕、Peacelv；
+翻译：康州盘古农场-黎明的光芒
 
-审核：WLQF
+校对/审核：康州盘古农场-Truemanman
 
-【香港有线宽频】12月1日有线电视以疫情严峻，节省资源为由裁减旗下香港有线电视台新闻各部门约40名员工。专门负责调查报道的《新闻刺针》全组编采人员被「拔刺」，引发【有线电视中国组】「总辞」。中央在加速换血，今天的香港，正处于「好的东西就会被摧残，坏的东西才能留下」的奇怪现象。
+这到底是怎么回事？
 
-资深媒体人志森感慨：「今天的香港，好的东西就会被摧残，坏的东西就可以留下。」吴志森、曾志豪两人过去都是港台节目《头条新闻》的主持人。 《头条新闻》早前被通讯事务管理局裁定污蔑和侮辱警方等投诉成立，港台决定本季《头条新闻》播出后会暂停制作，再作全面检讨。对于【新闻刺针】被灭组，他俩感同身受。吴志森点评【新闻刺针】专题报道是细致、科学、有证据和说服力。 【新闻刺针】干得这么漂亮，为什么会被灭组？政府要对付【新闻刺针】，恰恰是因为以上的「罪状」。
+周三晚上，Breitbart新闻网竟然对林伍德律师发起了“圣战”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04090543/%E5%9B%BE%E7%89%8724.png)
+林伍德律师是美国最顶尖的律师之一，也是一个虔诚的基督徒。
 
-【新闻刺针】的「罪状」
+林伍德和西德尼·鲍威尔正在为川普总统和他的7400万选民而战，而共和党的精英们却躲在山洞里。
 
-有线电视【新闻刺针】节目组成立于2013年，该组报道的第一篇新闻相信大家都还记忆犹新。当时做了一个抽验调查，发现原来「牛肉丸里没有牛肉」。调查当天，记者买了十多款的牛肉丸委托大学进行化验，利用基本测试作出快速检测。测试结果显示香港市面所出售的牛肉丸竟然没有牛肉只有猪肉的基因。当中包括所谓食家推荐的名店同样是「牛肉丸里没有牛肉」。这则「牛肉丸里没有牛肉」的新闻报道打响该组的「招牌作品」。
+为什么Breitbart新闻网要攻击这个人？ 我们错过了什么？
 
-但是「牛肉丸里没有牛肉」并非【新闻刺针】被灭组的主因，接下来的一系列报道使它成为当权者的「眼中钉，肉中刺」。
+这太不真实了！
 
-2015年
+Breitbart新闻网真的对林伍德律师捐赠给民主党人感到愤怒吗？
 
-有线电视【新闻刺针】「放蛇」（俗称派卧底）与网台主持郑永健见面。网台主持郑永健2015年于区议会选举中舞弊，用金钱利诱多人在特定选区出选，以「鎅票」手段使「目标候选人」败选。有线【新闻刺针】成功「放蛇」与郑永健见面，而且取得录音，郑永健在录音带中自爆在大中华、中港台取得资金用以打击泛民和外国势力。大家说这类的报道当权者会喜欢吗？
+林伍德与西德尼·鲍威尔甚至在本周三阿尔法利塔集会上承认了这一点。
 
-2016 年
+川普的选民中，有上百万人是前民主党人。这是一件坏事吗？难道共和党精英想在川普总
 
-【新闻刺针】揭露环保处说话不算数。曾经答应减费处理存余，结果被【新闻刺针】戳穿原来从没有达标。
+统离任后禁止这些人加入共和党？
 
-2017 年
+林伍德律师今晚晚些时候对攻击进行了回应。
 
-当年林郑月娥参选特首，【新闻刺针】「放蛇」应征参加支持林郑的集会，发现参加这烈支持特首的集会有工资，而且还有膳食。大家觉得林郑会喜欢这类报道吗？
 
-2018 年
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04083416/jpg-%E3%80%90%E6%96%B0%E9%97%BB%E5%88%BA%E9%92%88%E3%80%91%E6%8A%A5%E9%81%93%E9%9F%B3%E4%B9%90%E5%96%B7%E6%B3%89.jpg)图片：【新闻刺针】报道音乐喷泉，又踢爆官唐民政署其实早就做了民调却迟迟不向市民公布。
-同年【新闻刺针】得到一份「中国历史课本的送审报告」，发现许多教课书在描述香港和中国的关系的字眼被称为「措辞不恰当」，例如以往中国历史课一直延用的「中国坚持收回香港主权」、「中国收回香港这类的字眼」，现在全部不行。甚至课本以前有「一党专政」，都被教育局评为用字不当，概念不清。报道一出，引起了市民对教育局的批评。
 
-2018年【新闻刺针】也报道了区议员比立法会议员更自由。为了确保立法会会议开会投票，政府经常出动「狗仔队」，但区议员不用，就算不开会也可以投票。 【新闻刺针】戳爆，发现有区议员可以不开会，授权其他议员代替开会投票。
+> 1. Breitbart is dishonest. Historically, I am nonpartisan. This year, I was partisan because I love [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw).
+> 
+> I donated $375K to Trump PAC. [@sendavidperdue](https://twitter.com/sendavidperdue?ref_src=twsrc%5Etfw) solicited a $25K donation & I gave it to him. I gave $5,600 to [@RepDougCollins](https://twitter.com/RepDougCollins?ref_src=twsrc%5Etfw) & hosted a fundraiser for him. [https://t.co/CuhZoI6V7K](https://t.co/CuhZoI6V7K)
+> — Lin Wood (@LLinWood) [December 3, 2020](https://twitter.com/LLinWood/status/1334333082682449920?ref_src=twsrc%5Etfw)
 
-【新闻刺针】其年最经典的报道就是追踪保皇党议员陈永欣600米，要她回应授权票事件。
 
-2020年
 
-【新闻刺针】发现整条街道都是CSI 口罩。当时惩教署生产的CSI 口罩声称只限政府使用，不在市面出售。但新【新闻刺针】拍到，原来香港、九龙、新界皆有商店铺出售惩教署生产的CSI 口罩。当时记者在街头和网络访问了100名有使用过CSI 口罩的市民，大部分的市民都表示市面上能买到CSI 口罩。记者曾经拍到深水埗、沙田、铜锣湾等药房都能买到，记者并目击
 
-「有一男子在新蒲岗街头交收」CSI 口罩。这些的新闻一定会刺痛政府。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04083404/jpg-%E6%83%A9%E6%95%99%E7%BD%B2%E7%94%9F%E4%BA%A7%E7%9A%84CSI.jpg)图片：「有一男子在新蒲岗街头交收」CSI 口罩
-还有，2020年11月，《新闻刺针》谈及建制阵营近年广泛引用民调结果，反映公众对政府的支持度。刺针记者追踪得知这些民研机构大多背景成疑，更揭发民调刻意挑选特定群体作受访者，从而得出「多数市民支持中央/政府政策」的民调结果，报道引述学者质疑民调不科学，准确度也成疑问。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04083427/jpg-%E6%B2%B9%E9%BA%BB%E5%9C%B0%E7%81%AB%E7%81%BE.jpg)图片：屋宇署查册油麻地火灾遭诸多留难，不让追查
-【新闻刺针】最近才做了一挡非常棒的新闻引起市民的热议，就是关于油麻地火灾，灾情严重，多人丧生。有线电视【新闻刺针】查策，殊不知屋宇署诸多留难，不让追查。在【新闻刺针】揭露该新闻后，政府受到多方的批评，在大众的压力下，政府最终转态，事件一度成为城中谈论的焦点。
 
-对当权者来说，传媒最好就是歌功颂德。偏偏这些新闻刺痛政府，这系列的罪状引致【新闻刺针】被「拔刺」灭组。
+> 2. I estimate that I have given WINRED $10K+ this year. I have donated several thousand dollars to other Republican candidates & $150K to conservative PAC for congressional candidates.
+> — Lin Wood (@LLinWood) [December 3, 2020](https://twitter.com/LLinWood/status/1334333083869392899?ref_src=twsrc%5Etfw)
 
-【有线电视台】是香港付费电视台，志森与志豪俩是该台的第一代观众，他们决定以后不再订阅该台节目。相信他们的决定不会是孤例，事件必定会引起连串的反应。除了气愤，也知道【有线电视台】节目质量一定会急剧下降。
 
-走到这一步，当权者对香港整个新闻生态的打压从过去「和风细雨」到今天的「利刀直下」的地步。有线电视【新闻刺针】对政权时弊「一针见血戳破」，针出血流的尖锐报道正是它的死罪。
 
-今天的香港，「好的东西就会被摧残，坏的东西才能留下」现象，这是未来十年香港现象。志豪调侃说：「凡是被催毁的，一定是好的，能留下证明你是平庸」。
 
-以上观点仅代表笔者本人
 
-【香港专题】得奖节目【新闻刺针】被灭 报导专题
+> 3. I gave $5,000 at a fundraiser in which [@RichardGrenell](https://twitter.com/RichardGrenell?ref_src=twsrc%5Etfw) spoke. That is all I can remember at the moment.
+> 
+> How did Briebart miss these facts? Guess some people do not want the fraud in GA election to be discovered. I did not donate to. [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw).
+> 
+> Now back to my dessert. [pic.twitter.com/QRR1HzR7bW](https://t.co/QRR1HzR7bW)
+> — Lin Wood (@LLinWood) [December 3, 2020](https://twitter.com/LLinWood/status/1334333136457658368?ref_src=twsrc%5Etfw)
 
-[【香港专题】得奖节目【新闻刺针】被灭 【有线电视-中国组】「总辞」之前世今生（一）](https://gnews.org/zh-hans/613849/)
 
-[【香港专题】得奖节目【新闻刺针】被灭 之 魔爪为何「拔刺」（二）](https://gnews.org/zh-hans/615786/)
 
-参考资料：[自媒体（李惠玲）](https://youtu.be/Kd5FrcxmbhI)、[自媒体（志森与志豪）](https://youtu.be/FW2TzS1-aiM)
+推文翻译：
+
+1. Breitbart新闻网是不诚实的。从历史上看，我是无党派的。（但是）今年，我是共和党的拥护者，因为我爱唐纳德-川普
+
+我捐了37万5千美元给川普行动委员会。
+
+佐治亚州的参议院募集了2.5万美元的捐款，然后我给了他。
+
+我给了佐治亚州东北部的众议员5600元，并为他举办了一场募捐活动。
+
+2. 估计今年我给共和党筹款委员会捐赠了1万多美元。我给其他共和党候选人捐了几千美元，给保守派政治行动委员会(组织)提供15万美元，用于资助国会候选人。
+
+3. 我在一次募捐活动中捐出了5000美元，其中包括 @RichardGrenel （美国国家情报局代理局长）讲话。我现在只记得这些。
+
+Breitbart新闻网怎么会错过这些事实？我想可能有些人不希望佐治亚州选举中的欺诈行为被揭露。我没有捐款给佐治亚州州长。
+
+开始享用我的甜点。
+
+原文链接：[*https://www.thegatewaypundit.com/2020/12/wth-breitbart-wages-war-attorney-lin-wood-defending-president-trump-election-integrity-lin-wood-responds/*](https://www.thegatewaypundit.com/2020/12/wth-breitbart-wages-war-attorney-lin-wood-defending-president-trump-election-integrity-lin-wood-responds/)
 
 0

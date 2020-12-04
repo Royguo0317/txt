@@ -1,35 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》新闻快讯（视频版）&#8211;国家情报总监约翰·拉特克里夫 接受CBS采访，谈论中国对美国渗透，中共病毒的发源地就是武汉
-` Wdg0606` [轉載自GNews](https://gnews.org/zh-hans/616294/)
+## 美国家情报总监:中国是对美国的最大威胁
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/616388/)
 
-《路德社》出品
+- 编辑：Victor Torres
 
-12月3日，国家情报总监约翰·拉特克里夫 接受CBS采访，谈论中国对美国渗透，中共病毒的发源地就是武汉等。以下视频是详细内容：
 
-内容摘要：
+***更多真相，请关注*** ***[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-1.中共国对美国国会议员的（渗透）行动频率是俄国的6倍、伊朗的12倍
+西班牙2020年12月4日电/西喜站/——美国国家情报总监约翰·拉特克利夫（John Ratcliffe）警告说，中国是美国目前面临的最大威胁。
 
-2.中共国通过勒索、行贿，公开、隐密的方式影响美国立法者通过只对其有利的法律​​
+拉特克利夫（Ratcliffe）曾是德克萨斯州的美国国会议员，他在12月3日的《华尔街日报》（Wall Street Journal）中指出，除现任总统相比，他比美国政府中任何人接触更多的情报。
 
-3.作为国家情报总监，他对他看到的情报感到震惊
+他写道：“作为国家情报局局长，我被赋予了比总统以外的任何美国政府成员更多的情报。”  “我监督情报机构，我的办公室制作了总统每日简报，详细介绍了国家面临的威胁。如果我能从这一独特的角度向美国人民传达一件事，那就是中华人民共和国构成了最大的威胁。 对当今的美国来说，是第二次世界大战以来对全世界民主与自由的最大威胁。”
 
-4.包括习在内的CCP高层，早就知道病毒，并在「知道什么」「什么时候知道的」这些问题上对全世界撒了谎
+他写道：“这是我们千载难逢的挑战。”  “从打败法西斯主义之灾到打倒铁幕，美国人一直上升到现在。这一代人将以其对中国按照自身形象重塑世界，取代美国成为主要超级大国的企图所做出的回应来被评价。 情报很清楚。我们的回应也必须如此。”
 
-5.Ratcliffe直接说「武汉就是病毒的起源地（Originated）
+**参考链接：**
+[https://justthenews.com/world/asia/dni-ratcliffe-highlights-china-top-threat-united-states](https://justthenews.com/world/asia/dni-ratcliffe-highlights-china-top-threat-united-states)
 
-6.中共国正在并且已经企图盗取美国的（对病毒的）研究（为什么说的是Access to the research into the COVID-19？而不是the Vaccine？）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221622/PHOTO-2020-11-26-13-19-21.jpg)
 
-[援引原文](https://parler.com/post/84bf01bcf5c44a34a218c2cb9c2c0909)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
 
-翻译：路德社翻译组
-
-制作：路德社视频组
-
-审核校对：玫瑰天空
-
-上传排版：青葫芦娃
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0
