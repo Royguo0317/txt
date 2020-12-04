@@ -1,53 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 他们早就知道（中共病毒），但他们却向全世界撒了谎！
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/617218/)
+## 中共国正通过讹诈和暗势力来控制国会议员
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/617391/)
 
-视频字幕：文府；听写/翻译：势不可挡；PR：Roberts；
+*新闻来源：Breitbart《布赖特巴特》；作者：JOSHUA CAPLAN；发布时间：2020年12月3日*
 
-简评/组稿编辑：Julia Win；Page：拱卒
+*翻译/简评：文明明；校对/审核：johnwallis；Page：拱卒*
 
-**简评：**
+[!\[\]()!\[\](https://spark.adobe.com/page/uSKzH353lUpmO/images/01e7cc8e-03c2-4b86-8590-ecb39418d42c.jpg?asset_id=5edd2e53-88d9-4656-a37e-3d18a0cc352b&amp;img_etag=%22e63dc6382c5cafdc3b6b24a5e2f71a1a%22&amp;size=2560)](https://spark.adobe.com/page/uSKzH353lUpmO/images/01e7cc8e-03c2-4b86-8590-ecb39418d42c.jpg?asset_id=5edd2e53-88d9-4656-a37e-3d18a0cc352b&amp;img_etag=%22e63dc6382c5cafdc3b6b24a5e2f71a1a%22&amp;size=1024)国家情报局局长约翰-拉特克利夫
 
-著名的左媒**CBS News**主持人在整个采访中，一直都在试图将采访“左转”。还好，**约翰·拉特克利夫**没有完全顺着她的思路走。我们截取了其中一段。
+#### **简评：**
 
-在采访中，**约翰·拉特克利夫**说：情报显示，包括习主席在内的中共高层领导人早都知道（中共病毒），但是他们却向全世界就其所知道的真相以及知道的时间撒了谎； 他们允许从武汉到世界各地的旅行，他们知道并利用了这一点； 情报还显示中共变本加厉，一直在尝试（黑客）获得我们对Covid-19疫苗的研究！
+国家情报局局长约翰-拉特克利夫（John Ratcliffe）周四告诉CBS新闻记者凯瑟琳-赫里奇（Catherine Herridge），中共政府正在利用勒索、贿赂和秘密行动来针对国会山的立法者们，这是他们试图影响美国政策制定的一部分。
 
-拉特克利夫先生在12月3日为《华尔街日报》发表的一篇评论文章中说：”如果我可以从这个独特的有利位置向美国人民传达一件事，那就是中共国对当今美国构成了最大的威胁，也是自二战以来对全世界民主和自由的最大威胁，”他认为共产党中国是美国面临的第一大国家安全威胁，并呼吁美国人应对这一千载难逢的挑战。
+虽然这段采访不足1分钟，但是它所释放的信息说明美国参众两院对中共的渗透和对美国的危害已经达成共识，联系到最近众议院快速通过对中共在美上市公司的问责法案，以及文贵先生和路德先生的爆料，可以预见美国不久就会对中共采取一系列的制裁措施。
 
-中共，绑架着14亿中国人在去往死亡的路上狂奔。但愿同胞们快快醒来，加入到正义的行列、加入到爆料革命的新中国联邦，一起铲除世纪之魔-中共！
+我们真的可以感受到山雨欲来风满楼。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04133745/1-ElyOfipUYAELzwP.jpeg)
+#### **原文翻译：**
 
-**国家情报总监（DNI）约翰·拉特克利夫（John Ratcliffe）接受CBS News采访（节选）**
+# **国家情报局局长约翰-拉特克利夫说：中共国正通过讹诈和暗势力来控制国会议员**
 
-**情报显示，包括习主席在内的中共高层领导人早都知道（中共病毒），但是他们却向全世界撒了谎！**
+国家情报局局长约翰-拉特克利夫（John Ratcliffe）周四告诉CBS新闻记者凯瑟琳-赫里奇（Catherine Herridge），中共政府正在利用勒索、贿赂和秘密行动来针对国会山的立法者们，这是他们试图影响（美国）政策制定的一部分。
 
-**采访视频：**
+[!\[\]()!\[\](https://spark.adobe.com/page/uSKzH353lUpmO/images/c5eefe18-dd79-4c90-b0f2-2a6437fa9bac.jpg?asset_id=9f3fbf46-d150-455a-8cb8-b01b3e64c3f0&amp;img_etag=%22ba735d8a2bff5c9b17f6a4309ae65714%22&amp;size=1024)](https://spark.adobe.com/page/uSKzH353lUpmO/images/c5eefe18-dd79-4c90-b0f2-2a6437fa9bac.jpg?asset_id=9f3fbf46-d150-455a-8cb8-b01b3e64c3f0&amp;img_etag=%22ba735d8a2bff5c9b17f6a4309ae65714%22&amp;size=1024)
 
+**访谈的部分文字记录如下**：
 
+凯瑟琳-赫里奇（Catherine Herridge）：你为《华尔街日报》写了一篇文章，你说中共国针对国会议员采取行动的频率是俄罗斯的6倍，是伊朗的12倍 ，北京采取咄咄逼人的做法背后原因是什么？
 
-**视频翻译：**
+国防部部长约翰-拉特克利夫（John Ratcliffe）：他们希望美国出台对中共国有利的法律和政策，他们实际想做的是通过勒索、贿赂、公开和秘密行动，来确保（国会）只通过对中共国有利的法律。
 
-**赫里奇：**让我们谈谈大流行的最早时期。情报是否表明中共国总统曾呼吁将Covid-19的威胁降至最低？
+凯瑟琳-赫里奇（Catherine Herridge）：你有没有去国会山向立法者们（国会议员）通报这些有关威胁的信息？
 
-**约翰·拉特克利夫：**情报显示，包括习主席在内的中共高层领导人都知道（中共病毒），但是他们却向全世界就其所知道的真相以及知道的时间撒了谎。
+国防部部长约翰-拉特克利夫（John Ratcliffe）：我在国家情报局局长的位置上看到的情况让我非常不安，所以我向众议院和参议院情报委员会介绍了这些信息，他们也认为这些信息令人惊讶和不安。
 
-他们做出了理智的决定，封锁他们的经济，关闭他们的国家，限制进出病毒发源地武汉的旅行，但是他们却允许从武汉到世界各地的旅行。他们知道这一点，并且利用了这一点。
+[原文链接](https://www.breitbart.com/asia/2020/12/03/dni-john-ratcliffe-china-is-using-blackmail-covert-influence-to-target-members-of-congress/)
 
-**赫里奇：**有关外国试图窃取Covid-19疫苗研究的情报是什么？
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-**约翰·拉特克利夫：**那就是，你知道（中共）变本加厉。情报显示中共国一直在尝试（骇客）获得我们对Covid-19（疫苗）的研究。因此，大瘟疫是中共国的行为造成的。他们还试图窃取我们的研究成果。
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-[GTV UK 英国伦敦喜庄园电视台](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】-点击spark adobe版
-
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/uSKzH353lUpmO/)
 [!\[\]()!\[\](https://spark.adobe.com/page/uSKzH353lUpmO/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/uSKzH353lUpmO/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
 0

@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/28/2020 这就是中共在华尔街和拜登之间运筹帷幄的秘诀
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/616868/)
+## 12/3/2020 朱利安尼市长: 美国宪法要求立法机构采纳证据, 确保选举诚实可信
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/616901/)
 
 By: 【秘密翻译组G-Translators】
 

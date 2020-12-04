@@ -1,80 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Breitbart新闻网竟向林伍德律师开战-林伍德律师为川普总统辩护，对抗邪恶的马克思主义组织&#8211;林伍德律师回击Breitbart
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/616657/)
+## 更多大选欺诈证据出现：爆料人对超过100万张选票提出质疑
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/616659/)
 
-翻译：康州盘古农场-黎明的光芒
+*新闻来源：the national pulse《国家脉动》；作者：NATALIE WINTERS；发布时间： 2020年12月1日*
 
-校对/审核：康州盘古农场-Truemanman
+*翻译/简评：Victory；校对：X-Wing飞得更高；审核：海阔天空；Page：拱卒*
+[!\[\]()!\[\](https://spark.adobe.com/page/mtNJPudSAwVcx/images/a4f69872-b119-46f3-b31d-98d4d4b7fd28.jpg?asset_id=061e6189-f797-4b4a-965f-93cbe2e83181&amp;img_etag=%22771abbb89375bf01f5c0203f0d3e2947%22&amp;size=1024)](https://spark.adobe.com/page/mtNJPudSAwVcx/images/a4f69872-b119-46f3-b31d-98d4d4b7fd28.jpg?asset_id=061e6189-f797-4b4a-965f-93cbe2e83181&amp;img_etag=%22771abbb89375bf01f5c0203f0d3e2947%22&amp;size=1024)
+#### **简评：**
 
-这到底是怎么回事？
+本文通过一系列证人证词揭示了美国邮政系统存在着大量的大选舞弊事件。如此大规模的造假证据在大选后一个月最终发酵，美国民众也因此越来越看清楚了这次大选被彻底操控的实质—美国选民的民意被公开强奸。如果中共及美国黑暗势力得逞，以后美国的选举都将没有任何意义。我们相信会有越来越多的美国人站出来作证，对抗邪恶势力。这是所有美国人维护自由的终极之战。
 
-周三晚上，Breitbart新闻网竟然对林伍德律师发起了“圣战”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04090543/%E5%9B%BE%E7%89%8724.png)
-林伍德律师是美国最顶尖的律师之一，也是一个虔诚的基督徒。
+#### **原文翻译：**
 
-林伍德和西德尼·鲍威尔正在为川普总统和他的7400万选民而战，而共和党的精英们却躲在山洞里。
+# **观察：爆料人对超过100万张选票提出质疑，指出 Dominion干预大选，跨州发送填好的选票**
 
-为什么Breitbart新闻网要攻击这个人？ 我们错过了什么？
+**阿米斯塔德（Amistad）项目收集了爆料人和宣誓声明，揭示了超过100万张可能存在舞弊的摇摆州选票，包括填好的选票被运过州界，邮政服务人员被告知优先处理拜登的邮件，以及官员篡改多猫腻（Dominion）系统以防止审计。**
 
-这太不真实了！
+亚利桑那州共有30多万张选票有问题，密歇根州有54.8万张，佐治亚州有20.4万张，宾夕法尼亚州有超过12.1万有问题。https://youtube.com/embed/hD40f0DE2X0?enablejsapi=1
 
-Breitbart新闻网真的对林伍德律师捐赠给民主党人感到愤怒吗？
+“证人声明说明，摇摆各州和地方选举官员，可能还有美国邮政服务官员存在非法行为，”阿米斯塔德项目指出。
 
-林伍德与西德尼·鲍威尔甚至在本周三阿尔法利塔集会上承认了这一点。
+证据详细说明了 “蓝区（民主党）的选举官员未能维持选票监管链”，并包括 “个人不当使用投票机的照片，以及关于打开密封的选票数据闪存器并将这些数据闪存器与其他人混在一起的详细目击记录”。
 
-川普的选民中，有上百万人是前民主党人。这是一件坏事吗？难道共和党精英想在川普总
+除了篡改投票机外，阿米斯塔德项目的调查结果显示，在六个摇摆州中，至少有三个州的邮政服务官员参与其中。”细节包括可能有数十万张填好的缺席选票被运过三个州界，以及一辆装满选票的拖车在宾夕法尼亚不见了”，该组织指出。
 
-统离任后禁止这些人加入共和党？
+阿米斯塔德项目认为，有一位举报人，美国邮政卡车司机杰斯·摩根（Jess Morgan），在他开往宾夕法尼亚州的卡车上“错误地放置了假选票”。
 
-林伍德律师今晚晚些时候对攻击进行了回应。
+*“10月21日，他到达伯斯佩奇（Bethpage），看到24个gaylords(美国邮政使用的大型纸板集装箱)，并被告知里面装的是邮寄选票。他看到24个gaylords，里面是装满了大小相同的选票信封，横着堆放在一起，里面可能有144,000-288,000张选票或更多。他可以看到里面有手写的回信地址，其中一个甚至标有挂号邮件，这让督察员感觉，这人一定是急于想让选票到达目的地。这些观察结果表明，这些选票已经填好了，并被寄回进行计票。*
 
+*摩根先生于上午9:15拖着选票到达哈里斯堡（Harrisburg），但被迫在美国邮政的院子里坐到下午3:00，当他因为工作时间即将结束而进去与人交涉时，一个自称是 “运输主管 “的人向他表明身份，并指示杰西将整批货物开到兰开斯特（Lancaster），而不卸下准备运往哈里斯堡的部分。该 “运输主管 “不给他提供书面单据，理由是他得在哈里斯堡卸货才能拿到单据。*
 
+*摩根根据哈里斯堡邮政主管的命令开车到兰开斯特，在正常的地方卸下拖车，把拖车停在正常的地方，然后回家了。第二天，他的拖车，他在伯斯佩奇路线上唯一使用过的拖车不见了。”*
 
-> 1. Breitbart is dishonest. Historically, I am nonpartisan. This year, I was partisan because I love [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw).
-> 
-> I donated $375K to Trump PAC. [@sendavidperdue](https://twitter.com/sendavidperdue?ref_src=twsrc%5Etfw) solicited a $25K donation & I gave it to him. I gave $5,600 to [@RepDougCollins](https://twitter.com/RepDougCollins?ref_src=twsrc%5Etfw) & hosted a fundraiser for him. [https://t.co/CuhZoI6V7K](https://t.co/CuhZoI6V7K)
-> — Lin Wood (@LLinWood) [December 3, 2020](https://twitter.com/LLinWood/status/1334333082682449920?ref_src=twsrc%5Etfw)
+[!\[\]()!\[\](https://spark.adobe.com/page/mtNJPudSAwVcx/images/12cfb0f0-a140-4b4f-ab13-c7fa8ea4298c.jpg?asset_id=3c62714b-8351-4dc2-94ca-6ac06f0d6051&amp;img_etag=%22909ef496d7c5181f9d44711ce8bdab89%22&amp;size=1024)](https://spark.adobe.com/page/mtNJPudSAwVcx/images/12cfb0f0-a140-4b4f-ab13-c7fa8ea4298c.jpg?asset_id=3c62714b-8351-4dc2-94ca-6ac06f0d6051&amp;img_etag=%22909ef496d7c5181f9d44711ce8bdab89%22&amp;size=1024)多米尼克推迟GA重新计票，称 “服务器崩溃”
 
+其他举报人包括内森·皮斯（Nathan Pease），他被两个不同的邮政工作人员两次告知，美国邮政在威斯康星州对超过10万张选票倒填了日期，以确保这些选票即使在法定期限后到达也能被计算在内；计算机专家格雷戈里（Gregory Stenstrom）目睹了多猫腻（Dominion）选票机的供应商和地方选举官员通过共同混合数据闪存器来篡改机器。格雷戈里称这些行为使得审计 “在没有直接取证机器的情况下无法进行。”
 
+密歇根州特拉弗斯城（Traverse City）、宾夕法尼亚州科拉波利斯（Coraopolis）、宾夕法尼亚州伊利（Erie）和宾夕法尼亚州埃尔金斯帕克（Elkins Park）的邮政工作人员也描述了邮政服务中 “普遍存在的渎职行为”，如选票日期倒填、下令将川普的选票邮件放入无法寄送的大宗商业邮件箱，并强调拜登邮件按时投递的重要性。
 
+[原文链接](https://thenationalpulse.com/news/amistad-project-disputes-ballots/)
 
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-> 2. I estimate that I have given WINRED $10K+ this year. I have donated several thousand dollars to other Republican candidates & $150K to conservative PAC for congressional candidates.
-> — Lin Wood (@LLinWood) [December 3, 2020](https://twitter.com/LLinWood/status/1334333083869392899?ref_src=twsrc%5Etfw)
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
+[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-
-
-
-> 3. I gave $5,000 at a fundraiser in which [@RichardGrenell](https://twitter.com/RichardGrenell?ref_src=twsrc%5Etfw) spoke. That is all I can remember at the moment.
-> 
-> How did Briebart miss these facts? Guess some people do not want the fraud in GA election to be discovered. I did not donate to. [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw).
-> 
-> Now back to my dessert. [pic.twitter.com/QRR1HzR7bW](https://t.co/QRR1HzR7bW)
-> — Lin Wood (@LLinWood) [December 3, 2020](https://twitter.com/LLinWood/status/1334333136457658368?ref_src=twsrc%5Etfw)
-
-
-
-推文翻译：
-
-1. Breitbart新闻网是不诚实的。从历史上看，我是无党派的。（但是）今年，我是共和党的拥护者，因为我爱唐纳德-川普
-
-我捐了37万5千美元给川普行动委员会。
-
-佐治亚州的参议院募集了2.5万美元的捐款，然后我给了他。
-
-我给了佐治亚州东北部的众议员5600元，并为他举办了一场募捐活动。
-
-2. 估计今年我给共和党筹款委员会捐赠了1万多美元。我给其他共和党候选人捐了几千美元，给保守派政治行动委员会(组织)提供15万美元，用于资助国会候选人。
-
-3. 我在一次募捐活动中捐出了5000美元，其中包括 @RichardGrenel （美国国家情报局代理局长）讲话。我现在只记得这些。
-
-Breitbart新闻网怎么会错过这些事实？我想可能有些人不希望佐治亚州选举中的欺诈行为被揭露。我没有捐款给佐治亚州州长。
-
-开始享用我的甜点。
-
-原文链接：[*https://www.thegatewaypundit.com/2020/12/wth-breitbart-wages-war-attorney-lin-wood-defending-president-trump-election-integrity-lin-wood-responds/*](https://www.thegatewaypundit.com/2020/12/wth-breitbart-wages-war-attorney-lin-wood-defending-president-trump-election-integrity-lin-wood-responds/)
-
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/mtNJPudSAwVcx/)
+[!\[\]()!\[\](https://spark.adobe.com/page/mtNJPudSAwVcx/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/mtNJPudSAwVcx/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

@@ -1,58 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 辉瑞公司首席执行官：“不确定”是否有人可以在接种疫苗后传播中共病毒
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/616739/)
+## 从郭文贵先生家族的汽车收藏中看G-Fashion的巨大潜力
+` GM64` [轉載自GNews](https://gnews.org/zh-hans/617113/)
 
-- 编辑：文顺
-- 翻译：Victor Torres
+![pastedGraphic.png]()![pastedGraphic.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04124457/image1.jpeg)
+内新闻：马赛  校对：七哩香
+
+郭文贵先生发起爆料革命三年以来，经常在直播视频中透露出对车的喜爱。比如时常在加州夜里买车、开快车，92年在德国订奔驰BRABUS汽车，排在憨豆先生前第一个私人参观劳斯莱斯新幻影汽车。这些经历都使我对G系列未来的发展充满巨大信心和期待。
+![pastedGraphic_1.png]()![pastedGraphic_1.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04125026/image2-1.jpeg)
+我第一次知道郭文贵先生就是通过汽车平台。在伦敦的汽车博主视频中，一辆蓝色全碳帕加尼深深的吸引了我。车尾的V12 GUO牌照让我对这位车主有了一个模糊的观念，一个中华血统的爱好者，有一流的眼光，巨大的经济实力。最难得可贵的是，这位车主可能是我见过的中国豪车圈最低调的富豪。伦敦可是世界注册超级跑车最多的地方，想要在这里脱颖而出需要对汽车文化有独特的见解。
+![pastedGraphic_2.png]()![pastedGraphic_2.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04125015/image3.jpeg)
+郭文贵先生三年的直播让我了解了真和善。对这辆帕加尼跑车仔细观察之后，郭文贵先生对美的理解，让我佩服得五体投地。 这辆帕加尼跑车采用的私人一对一订制760车系。这辆集艺术、性能与科技的街用赛车出自奥拉西奥•帕加尼先生位于意大利摩德纳的超级跑车工厂。中置后驱，搭载由梅赛德斯AMG提供的V12引擎。升级后代号M297的后期型发动机有着天籁般的排气声浪，能爆发出760马力和780牛米扭矩，搭载六速序列式变速箱。后期车牌号“V12 GUO”（早期LJ17 TBY）。
+![pastedGraphic_3.png]()![pastedGraphic_3.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04125003/image4.jpeg)
+订制设计中我最喜欢的是车头两条独一无二的月牙形日间行车灯，该设计独立于其他车型，两条弧线沿着车灯外围，好似安第斯山脉风中的幽灵。其他还有，包含标志的楔形车鼻带有肌肉线条和银色铆钉，定制侧裙搭配加宽的车轮拱，车身采用蓝色外露碳纤维和少量黑色碳纤维，配蓝色线条和缝线，巨大的双层倒扣式尾翼，其中较短的副翼来自Revolucion车型。
+
+结合郭文贵先生对时尚的定义，Mileson定制版是根据Zonda车型的一种创新。它不是一种炫富的表现，因为我从来没见过这辆车参加豪车聚会，也从来没出现在官方宣传和画册中。这不是财富的炫耀，而是单纯为了提升自我，是自己内心对美好的追求和展示自己的一种方式。
+
+作为超级跑车迷，郭文贵先生的收藏车型中还有其他高端车型，如MSO打造的迈凯伦P1、白色法拉利LaFerrari和紫色科尼塞克Agera。
+![pastedGraphic_4.png]()![pastedGraphic_4.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04124937/image5.jpeg)![pastedGraphic_5.png]()![pastedGraphic_5.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04124843/image6.jpeg)
+此为迈凯伦P1 MSO（底盘号#077）。 迈凯轮P1本身就是本世代最强的高性能公路车之一。
+![pastedGraphic_6.png]()![pastedGraphic_6.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04124831/image7.jpeg)![pastedGraphic_7.png]()![pastedGraphic_7.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04124820/image8.jpeg)
+McLaren Special Operations主旨是通过不同的方法满足客户对车辆的需求。更是代表郭先生追求完美、开拓创新的精神。也难怪其产品有着惊艳的魅力，车身明亮又充满活力的红色和黑色相撞，重点勾勒出线条和空气动力学套件(红色重点区域，前唇、前机舱盖、十幅轮毂、双门、后尾翼和扩散器）。可以想象出高速的空气在身上流动。这个独特的黑红动态漆面，我只在迈凯轮F1 Longtail MP4系列赛车上见过。
+
+迈凯轮赛车运动涂装的历史开始于六十年代的木瓜橙色。七十年代万宝路象征顶峰的红白色喷漆开启了迈凯轮的冠军之路,红色的多边形也融入了车标的设计。新赞助商的到来在1997年后引起了巨大的变化，银色来自梅赛德斯奔驰带来的动力单元，亮红色和黑色主要来自 Santander、Vodaphone、West IIRC等公司。我通过这辆车也感受到郭文贵先生将汽车工艺与艺术相结合。
+![pastedGraphic_8.png]()![pastedGraphic_8.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04124757/image9.jpeg)![pastedGraphic_9.png]()![pastedGraphic_9.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04124805/image10.jpeg)
+这两辆车设计理念与G系列语言重合，自由和突破性的设计，对材料与质量从不妥协。郭文贵先生在车与艺术结合的高度，让我G-FASHION的未来有着巨大的信心。我相信G系列将来会成为一个能真正代表和发扬中华民族真善美的平台。
+
+参考信息来源：
+
+[https://drivetribe.com/p/heres-why-the-zonda-by-mileson-P3my3zRAT-K3aIZ-9CXE8w?iid=RV7qGWD\_T8ORIMKtcCSZrw](https://drivetribe.com/p/heres-why-the-zonda-by-mileson-P3my3zRAT-K3aIZ-9CXE8w?iid=RV7qGWD_T8ORIMKtcCSZrw)
+
+[http://www.topspeed.com/cars/pagani/2016-pagani-zonda-by-mileson-ar174127.amp.html](http://www.topspeed.com/cars/pagani/2016-pagani-zonda-by-mileson-ar174127.amp.html)
 
 
-***更多真相，请关注*** ***[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2020年12月3日电/西喜社/**——《Just the News》今晨发文表示，辉瑞公司“不确定”是否有人可以在接种疫苗后传播中共病毒。
+[https://exclusivecarregistry.com/mclaren/p1/23420170117205345](https://exclusivecarregistry.com/mclaren/p1/23420170117205345)
 
-据报道，辉瑞制药公司董事长兼首席执行官阿尔伯特•布尔拉（Albert Bourla）已向美国食品药品监督管理局（FDA）申请了疫苗的紧急使用授权。该公司与哥伦比亚广播公司（CBS）的莱斯特·霍尔特（Lester Holt）一起在“ Dateline NBC”上接受采访，其他大型制药领导人也出现在霍尔特的节目中。
 
-生物技术公司Moderna在采访中表示，数据显示，其研发的中共病毒疫苗在其后期临床试验中的有效率为94.1％，仅次于辉瑞的95％的效率。据报道，Moderna将要求美国食品药品监督管理局(FDA)批准其研发的中共疫苗用于紧急用途。
-
-对于疫苗的安全性，Moderna总裁斯蒂芬·霍格（Stephen Hoge）表示，任何疫苗都可能产生副作用。他说：“当然，当我们看到功效达到94％-95％时，我们很有理由希望这些疫苗能非常有效地击退该病毒，但是从现在起一年后，从现在起三年后， 我们将会看到人们需要助推器。 与我们看到的其他疫苗没有什么不同，”
-
-而对于注射疫苗后是否会传染中共病毒，辉瑞公司董事长布尔拉说：“我认为这是需要检查的东西。”  “我们现在对所知道的还不确定。”
-
-**原文链接：**
-[https://justthenews.com/politics-policy/health/pfizer-ceo-not-certain-whether-someone-can-transmit-covid-19-after](https://justthenews.com/politics-policy/health/pfizer-ceo-not-certain-whether-someone-can-transmit-covid-19-after)
-
-**文本翻译：**
-
-“我认为这是需要检查的东西” –辉瑞制药董事长兼首席执行官阿尔伯特·布尔拉（Albert Bourla）
-
-目前有三种针对中共病毒的有前途的疫苗正在筹备中，它们的有效性仍不确定。
-
-辉瑞制药公司董事长兼首席执行官阿尔伯特•布尔拉（Albert Bourla）已向美国食品药品监督管理局（FDA）申请了疫苗的紧急使用授权。该公司与哥伦比亚广播公司（CBS）的莱斯特·霍尔特（Lester Holt）一起在“ Dateline NBC”上接受采访，该访谈于周四晚上播出。
-
-霍尔特问：“那么，阿尔伯特，问题是什么，即使我得到了保护，我仍然可以将其传染给其他人吗？”
-
-布尔拉说：“我认为这是需要检查的东西。”  “我们现在对所知道的还不确定。”
-
-生物技术公司Moderna周一表示将要求美国食品药品监督管理局(FDA)批准其实验用中共病毒疫苗用于紧急用途。  Moderna表示，新数据显示，该疫苗在其后期临床试验中的有效率为94.1％，仅次于辉瑞的95％的效率。  Moderna疫苗是与川普政府的“曲速行动”一起开发的。
-
-Moderna首席执行官斯特凡·班塞尔（StéphaneBancel在一份声明中说：“我们相信我们的疫苗将提供一种新的强大工具，可以改变这种大流行病的过程，并有助于预防严重的疾病，住院和死亡。”  班塞尔上周表示，到今年年底将有2000万剂。
-
-美国食品药品监督管理局(FDA)疫苗咨询委员会定于12月17日开会，审查两家公司的数据。
-
-同时，第三种疫苗也在生产中。 阿斯利康和牛津大学上周表示，他们共同研发的中共病毒疫苗已被证明具有高达90％的有效性，制造商声称这种疫苗更容易分发。
-
-其他大型制药领导人也出现在霍尔特的节目中。
-
-Moderna总裁斯蒂芬·霍格（Stephen Hoge）表示，尽管任何疫苗都可能产生副作用，但它们大大超过了这种病毒的危害。
-
-“当然，当我们看到功效达到94％-95％时，我们很有理由希望这些疫苗能非常有效地击退该病毒，但是从现在起一年后，从现在起三年后， 我们将会看到人们需要助推器。 与我们看到的其他疫苗没有什么不同，”他说。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14162240/image0-2-6.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0
