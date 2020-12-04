@@ -1,15 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 著名主持人塔克指出病毒真相被与中共暴政合作的美国科技公司所审查，习主席亲自指挥了这场大屠杀
-` GM101` [轉載自GNews](https://gnews.org/zh-hans/616950/)
+## 【突发】恐受中共和资本影响，Facebook现在禁止对中共病毒疫苗的“虚假声明”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/617077/)
 
-美东时间12月3号，著名主持人塔克在福克斯塔克秀节目中发表了对“中共超限生物武器”新冠病毒的观点。
+- 编辑：Victor Torres
 
-塔克表示来自中国的病毒学家闫丽梦博士明确病毒与穿山甲、蝙蝠和海鲜市场都没有任何关系，来自中共政府控制的相关实验室。闫博士因为在中国传播病毒真相将会受到惩罚、甚至可能被杀害，所以来到了这个自由之地（美国），而与中共暴政合作的美国科技公司对闫博士关于病毒真相的言论进行了审查，科技公司甚至配合了WHO在疫情初期对真相的掩盖。
 
-塔克指出有内部文件证明中共国官员在更早时期就已知道将面临一场从未见过的冠状病毒大流行，中共抓捕了试图要曝光此信息的人们掩盖病毒真相。塔克认为放任一百万的中国公民从病毒起源地武汉飞往美国，直到1月20号习近平主席才承认病毒具有高爆发、人传人等特征，此行为至少是过失犯罪，最坏是大屠杀。
+***更多真相，请关注*** ***[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-习总书记在疫情爆发初期曾公开承认亲自部署、亲自指挥，加上路德社揭露习近平、王岐山、许其亮三人联合策划了全球投放“超限生物武器”的真相，做实习总书记试图通过病毒征服世界奴役人类的野心。
+**西班牙2020年12月3日电/西喜社/——**Facebook周四宣布将开始删除其认为与中共病毒疫苗有关的错误信息。
+
+该决定与社交媒体平台的整体政策相一致，该政策消除它认为有关病毒的错误信息，包括有关无根据的治疗方法的帖子。
+
+但是直到现在，随着政府的批准和疫苗的分发临近，Facebook尚未对疫苗采取明确的立场，除了禁止宣传反疫苗阴谋理论的广告外。
+
+该公司表示将开始消除“有关这些疫苗的虚假声明，这些声明已被公共卫生专家揭穿。”
+
+Facebook首席执行官马克·扎克伯格（Mark Zuckerberg）周一暗示了这一变化，称该平台将向用户显示“有关疫苗的权威信息”。
+
+据新闻媒体报道，基于其中共病毒错误信息的认定政策，该公司从3月到10月删除了1200万个帖子。
+
+郭文贵先生在最近的直播中透露，扎克伯格为了让美国政府批准其公司虚拟货币项目，不惜重金赞助拜登竞选，并在Facebook打压支持川普的声音。
+
+现在，扎克伯格禁止所谓关于中共病毒的“虚假信息”，恐怕也是受了其背后的中共和资本的势力所影响，意图打压一切怀疑疫苗的声音。
+
+**来源：**
+[https://justthenews.com/politics-policy/coronavirus/facebook-now-ban-false-claims-about-coronavirus-vaccines](https://justthenews.com/politics-policy/coronavirus/facebook-now-ban-false-claims-about-coronavirus-vaccines)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14162240/image0-2-6.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0

@@ -1,49 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国正通过讹诈和暗势力来控制国会议员
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/617391/)
+## 内华达州选举欺诈证据一览
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/617461/)
 
-*新闻来源：Breitbart《布赖特巴特》；作者：JOSHUA CAPLAN；发布时间：2020年12月3日*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04153235/capture-40.jpg)图片来自 www.POLITICO.com
+据 《国家脉动》报道12月3日报道，内华达州在周四下午1:30举行了听证会，揭露了大选的违规操作，包括美国邮政总局（USPS）阻碍见证监督人员；死人投票；有问题的校对签字认证机器；不到1/3选举监督的要求被满足等。自有关选举舞弊的案件提交以来，调查已取得了很大进展，有关官员能够检查投票系统和相关数据，从而揭露在摇摆州选举的选举违规欺诈行为。
 
-*翻译/简评：文明明；校对/审核：johnwallis；Page：拱卒*
+**阻碍**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/uSKzH353lUpmO/images/01e7cc8e-03c2-4b86-8590-ecb39418d42c.jpg?asset_id=5edd2e53-88d9-4656-a37e-3d18a0cc352b&amp;img_etag=%22e63dc6382c5cafdc3b6b24a5e2f71a1a%22&amp;size=2560)](https://spark.adobe.com/page/uSKzH353lUpmO/images/01e7cc8e-03c2-4b86-8590-ecb39418d42c.jpg?asset_id=5edd2e53-88d9-4656-a37e-3d18a0cc352b&amp;img_etag=%22e63dc6382c5cafdc3b6b24a5e2f71a1a%22&amp;size=1024)国家情报局局长约翰-拉特克利夫
+USPS正在“阻止见证者和吹哨人作证”，并命令员工大规模的向约8000个“无法投递”地址发送选票，之后选票被“收集，上交并且计算在选票内”。内华达州共秒，有多个关键见证人兼吹哨人的独立证词都相互印证存在的问题，但USPS却正企图阻止他们作证。
 
-#### **简评：**
+**10万张虚假选票**
 
-国家情报局局长约翰-拉特克利夫（John Ratcliffe）周四告诉CBS新闻记者凯瑟琳-赫里奇（Catherine Herridge），中共政府正在利用勒索、贿赂和秘密行动来针对国会山的立法者们，这是他们试图影响美国政策制定的一部分。
+一名数据科学家为该州共和党证明了又超过10万张非法选票。调查结果来自对超过200万条记录的分析，包括内华达州州选民文件，内华达州选举日选民文件，早期投票文件，消费者数据文件等等。调查结果揭示了40,000多张重复选票和1,500位死人选票：
 
-虽然这段采访不足1分钟，但是它所释放的信息说明美国参众两院对中共的渗透和对美国的危害已经达成共识，联系到最近众议院快速通过对中共在美上市公司的问责法案，以及文贵先生和路德先生的爆料，可以预见美国不久就会对中共采取一系列的制裁措施。
+- 州外投票者：几乎有20,000名内华达州选民的邮寄地址并非内华达州
+- 地址不存在：大约8,000名选民的注册地址实际上不存在
+- USPS标注的非住宅地址：大约有15,000名选民的地址写的是商业地址或闲置物业中
+- USPS标注的无人收件地址：接近6,000
+- 在州外变更地址：2,468名选民合法将其地址变更为另一个司法管辖区或州或国家
+- 死亡投票者：据社会安全总署（SSA）死亡档案，消费者数据供应商，公共讣告数据匹配和信贷局死者数据显示，内华达州近1,500名死者参与投票
+- 重复的选民登记：42,000名选民进行了两次投票，基本相同的姓名，生日和地址却又多个选民登记号码
 
-我们真的可以感受到山雨欲来风满楼。
 
-#### **原文翻译：**
+**“参观”**
 
-# **国家情报局局长约翰-拉特克利夫说：中共国正通过讹诈和暗势力来控制国会议员**
+内华达州的法律团队要求对克拉克县的投票机和系统进行检查，此要求获得批准，但随后川普竞选法律团队猛烈地抨击了所谓的检查，指出这场审查仅是一次“参观”，就好比是想要确定汽车刹车功能而不去检查车底一样。他们得到了法官令的允许而进行检查，但机器无法工作，所以也就无法基于此检查来确定选举过程是否准确和完整。法律团队称他们的审查被不断阻挠。
 
-国家情报局局长约翰-拉特克利夫（John Ratcliffe）周四告诉CBS新闻记者凯瑟琳-赫里奇（Catherine Herridge），中共政府正在利用勒索、贿赂和秘密行动来针对国会山的立法者们，这是他们试图影响（美国）政策制定的一部分。
+审查要求以下11条：
 
-[!\[\]()!\[\](https://spark.adobe.com/page/uSKzH353lUpmO/images/c5eefe18-dd79-4c90-b0f2-2a6437fa9bac.jpg?asset_id=9f3fbf46-d150-455a-8cb8-b01b3e64c3f0&amp;img_etag=%22ba735d8a2bff5c9b17f6a4309ae65714%22&amp;size=1024)](https://spark.adobe.com/page/uSKzH353lUpmO/images/c5eefe18-dd79-4c90-b0f2-2a6437fa9bac.jpg?asset_id=9f3fbf46-d150-455a-8cb8-b01b3e64c3f0&amp;img_etag=%22ba735d8a2bff5c9b17f6a4309ae65714%22&amp;size=1024)
+- 检查制表服务器-
+- 检查 Agilis签名验证机上的内存
+- 测试运行Agilis签名验证机
+- 检查“裁判器”机器上的内存；
+- 检查Dominion机器中的USB闪存；
+- 检查民意调查书；
+- 检查选举管理服务器的内存；
+- 检查“邮件投票阅读器”或“ ICC”；
+- 检查准确性认证委员会(Accuracy Certification Board) 盒中的选举结果硬盘；
+- 在准确性认证委员会中盒中的模拟硬盘；
+- 检查所有“标记选票设备”。
 
-**访谈的部分文字记录如下**：
 
-凯瑟琳-赫里奇（Catherine Herridge）：你为《华尔街日报》写了一篇文章，你说中共国针对国会议员采取行动的频率是俄罗斯的6倍，是伊朗的12倍 ，北京采取咄咄逼人的做法背后原因是什么？
+然而，审查员只获得了四个请求：
 
-国防部部长约翰-拉特克利夫（John Ratcliffe）：他们希望美国出台对中共国有利的法律和政策，他们实际想做的是通过勒索、贿赂、公开和秘密行动，来确保（国会）只通过对中共国有利的法律。
+- 收集机器序列号
+- 检视仅42票的投票收据清单
+- 查看准确性认证委员会的报告
+- 观看投票机器开机
 
-凯瑟琳-赫里奇（Catherine Herridge）：你有没有去国会山向立法者们（国会议员）通报这些有关威胁的信息？
 
-国防部部长约翰-拉特克利夫（John Ratcliffe）：我在国家情报局局长的位置上看到的情况让我非常不安，所以我向众议院和参议院情报委员会介绍了这些信息，他们也认为这些信息令人惊讶和不安。
+**可疑签名**
 
-[原文链接](https://www.breitbart.com/asia/2020/12/03/dni-john-ratcliffe-china-is-using-blackmail-covert-influence-to-target-members-of-congress/)
+该州用来验证签名的机器有至少两个方面都不符合制造商的建议。首先，Agilis机器采用的签名图像与选票以外的签名相比，图像质量低于制造商建议的图像质量，从而得以保证机器正常运行。其次，签名匹配错误容忍度设置为40，比制造商建议的50低10个点，从而大大降低了机器的准确性。
 
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+除了校准不当和很低的签名图像质量外，内华达州法律还规定，各郡办公室书记员或雇员应按照具体程序检查邮寄选票的签名，而这些程序并不包括依据软件来验证签名是否匹配。尽管如此，Agilis机器仍在没人亲自监督的情况下验证了30％的签名。
 
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+[原文链接](https://thenationalpulse.com/news/nevada-fraud-hearing-obstruction-machines-dead/)：
 
-[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+翻译：Hope.N
 
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/uSKzH353lUpmO/)
-[!\[\]()!\[\](https://spark.adobe.com/page/uSKzH353lUpmO/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/uSKzH353lUpmO/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+校对：沙拉猫
+
 0

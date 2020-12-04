@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/3/2020 中行为使用了人工智能和大数据煽动安提法和黑命贵抗议活动的美国人。这行为只是是颠覆, 而是战争行为!
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/616942/)
+## 【粤语】11/20/2020文贵： 大选后未来经济的走向
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/617027/)
 
-By: 【秘密翻译组G-Translators】
-
+制作：战友之家粤语频道
+统筹：【文武全才】 剪輯：【文莱】 【文桥】 配音：【一梦】 文本：【Jacky】 字幕：【文桥】
 0
