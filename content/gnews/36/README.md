@@ -1,31 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 军事特种部队/情报部门取代FBI/中情局/司法部 12/3
-` Mike迈克小哥` [轉載自GNews](https://gnews.org/zh-hans/615155/)
+## 制裁升级 共产党员及其家属美签即将失效
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/615205/)
 
-林伍德律师 Lin Wood @LLinWood:
-发给佐治亚州爱国者们的一条短信
-1776年(美国独立宣言)的精神依旧长盛不衰
-我们人民的声音会被倾听。
-我们人民要求采取行动。
-我们人民拥有一切力量。
+内新闻：α-Vega
+素材：两只小猪 WENWU
+校对：老白
 
-Tcalman @Tcalman1 回复 林伍德律师 Lin Wood @LLinWood:
-美国联邦调查局/司法部/中央情报局不再是职能机构。.约翰·肯尼迪57号备忘录(JFKMemo 57)已激活。.军事特种部队/军事情报部门将其(联邦调查局/司法部/中央情报局)取代。.约翰·达拉谟(美国司法部特别顾问)/选举欺诈/等..转给军事机构(处置)。. 军事法庭/关塔那摩湾拘押中心 共和党/民主党两者都两党都有腐败之徒。..第一批逮捕很快..联邦最高法院法官带来真相/自由..
+路透12月3日报导，美国政府2日对中国共产党党员及其家人发出赴美旅行限制规定。知情人士指出，这一新政策将共产党员及其家人旅行签证的最长有效期限制在一个月，且只能单次入境。
 
-来源:
-https://twitter.com/tcalman1/status/1334657690107342850
+此举意味着，共产党员及其家属原本持有有效期最长为10年的美国签证，将在一个月后失效。报导称，新的签证指导原则允许美国官员根据申请材料和面谈来确定某人的党籍状态。
 
-Lin Wood @LLinWood
-Send a message GA Patriots.
-The Spirit of 1776 is alive & well.
-We The People will be heard.
-We The People demand action.
-We The People have all the power.
+外交部华春莹表示，世人看得非常清楚，这是美国内一些极端反华势力出于强烈意识形态偏见和根深蒂固的冷战思维，升级对中国政治打压的行为。中方对此坚决反对。希望美方同中方共同努力，通过对话和沟通增进对彼此的正确认知，共同推动中美关系健康稳定发展。
 
-Tcalman @Tcalman1
-Replying to @LLinWood
-FBI/DOJ/CIA are no longer functional Agencies..JFK Memo 57 activated..Military Spec Ops/Intelligence displaced them..Durham/Election fraud/etc..Transfered to Military..MILITARY TRIBUNALS LIVE FROM GITMO..REPUBS/DEMS BOTH CORRUPT..FIRST ARRESTS SOON..JUSTICE BRINGS TRUTH/FREEDOM..
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03211024/1776%E5%B9%B4%E7%BE%8E%E5%9B%BD%E7%8B%AC%E7%AB%8B%E5%AE%A3%E8%A8%80%E7%9A%84%E7%B2%BE%E7%A5%9E%E4%BE%9D%E6%97%A7%E9%95%BF%E7%9B%9B%E4%B8%8D%E8%A1%B0.png)
-2+
+中共外交部总是对美恶言相向，多次辱骂美国高层政要，却还希望美方能用对话沟通。在中共宣扬的仇美情绪下，网友的态度也十分扭曲，多数人很高兴能被美国制裁，也有一部分人，感谢美国为反腐做出贡献。此话题引起网友热议上了微博热搜，鲜有人究其原因意识到危机，还是一片岁月静好。
+
+此前，美国移民局10月2日公布新的政策提要，表示禁止共产党员及其他极权政党成员寻求美国永久居民身份和入籍。9月，美国取消了千名赴美留学生签证，因涉嫌与中国军方有联系，借在美留学机会盗取知识产权。7月有报道指出，美国政府欲全面禁止党员入境。
+
+美国对中共党员的态度，意味着中美全面脱钩开始，围猎中共进入最后阶段。美国政府原先计划的制裁逐步开始实施，中概股退市、货币脱钩在即，企业制裁名单越来越长…中共的谎言和欺骗，早已丧失“对话沟通”的机会，接下来是雨点般的重锤落下，彻底打击中共，也将唤醒麻木的国人。
+
+更多真相请查阅：
+GNews/G-TV /路德社
+
+新闻来源：
+[https://cn.reuters.com/article/us-china-cpc-travel-curb-1203-idCNKBS28D0RK](https://cn.reuters.com/article/us-china-cpc-travel-curb-1203-idCNKBS28D0RK)
+[https://c.m.163.com/news/a/FSUUS8Q50001899O.html](https://c.m.163.com/news/a/FSUUS8Q50001899O.html)
+
+1+
