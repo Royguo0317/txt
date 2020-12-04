@@ -1,51 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】决意废除230条款，川普要大开杀戒
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/615131/)
+## 军事特种部队/情报部门取代FBI/中情局/司法部 12/3
+` Mike迈克小哥` [轉載自GNews](https://gnews.org/zh-hans/615155/)
 
-作者：香草山写作组 Wilson
+林伍德律师 Lin Wood @LLinWood:
+发给佐治亚州爱国者们的一条短信
+1776年(美国独立宣言)的精神依旧长盛不衰
+我们人民的声音会被倾听。
+我们人民要求采取行动。
+我们人民拥有一切力量。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
+Tcalman @Tcalman1 回复 林伍德律师 Lin Wood @LLinWood:
+美国联邦调查局/司法部/中央情报局不再是职能机构。.约翰·肯尼迪57号备忘录(JFKMemo 57)已激活。.军事特种部队/军事情报部门将其(联邦调查局/司法部/中央情报局)取代。.约翰·达拉谟(美国司法部特别顾问)/选举欺诈/等..转给军事机构(处置)。. 军事法庭/关塔那摩湾拘押中心 共和党/民主党两者都两党都有腐败之徒。..第一批逮捕很快..联邦最高法院法官带来真相/自由..
 
+来源:
+https://twitter.com/tcalman1/status/1334657690107342850
 
+Lin Wood @LLinWood
+Send a message GA Patriots.
+The Spirit of 1776 is alive & well.
+We The People will be heard.
+We The People demand action.
+We The People have all the power.
 
-2020年12月1日晚，引起轩然大波的“CNN晨会”录音爆光，由非赢利媒体《真相工程》公布监听CNN最高层长达两个月的每天早上电话会议，负责人奥基夫说，将陆续释放CNN晨会录音。川普总统转推了这个新闻。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03203849/MOS0585-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E5%86%B3%E6%84%8F%E5%BA%9F%E9%99%A4230%E6%9D%A1%E6%AC%BE%EF%BC%8C%E5%B7%9D%E6%99%AE%E8%A6%81%E5%A4%A7%E5%BC%80%E6%9D%80%E6%88%92-1.jpg)
-这两天释放的录音令人震惊不已，CNN总裁扎克和高级编辑，在商量如何逼迫川普下台的具体措施时说，用911被炸毁的双子塔例子，来威胁川普尽快把政权移交给“当选总统”拜登；扎克对他的编辑团队明确指示：对川普的任何事不能当“正常人”来报导，要报导川普的“不稳定行为”、“他的绝望”、“他病了”、“他输了”，而且“他的行为随着时间越来越疯狂”。他接着说：“你们知道，这是我们在过去三年半、四年的时间里期望发生的事情 ”。
-
-很明显，CNN在捏造事实抹黑无辜的人，并通过误导公众达到其肮脏的政治目的，CNN事实上参与了反对川普总统的政变，是美国人民的敌人。
-
-并不是CNN一家在“战斗”，当今的美国新闻媒体，处于“海啸般的腐败”状态，这是中共和深层政府抓住美国体制的弱点，并加以利用的结果。中共深谙掌控媒体，操纵民意之道，因此，占美国GDP半壁江山的文化产业，经中共多年蓝金黄，众多企业成为中共的帮凶。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03204701/MOS0585-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E5%86%B3%E6%84%8F%E5%BA%9F%E9%99%A4230%E6%9D%A1%E6%AC%BE%EF%BC%8C%E5%B7%9D%E6%99%AE%E8%A6%81%E5%A4%A7%E5%BC%80%E6%9D%80%E6%88%92-2.jpg)
-川普总统明确表示：将否决新的“国防法案”，除非230条款被国会废除。川普在推文中进一步说，为了国家安全，必须立即废除230条款。230条款是大型科技公司和社交媒体的免责挡箭牌，如脸书、推特、谷歌、亚马逊等等。
-
-著名主持人鲁道斯在昨天指出，垄断寡头控制的不良媒体本应保持中立，但他们反其道而行之，胡作非为到“甚至审查拥有豁免权的美国总统”，鲁道斯因此呼吁：支持川普总统废除230条款，是从这些寡头以及左派手里，拯救这个国家的唯一办法。
-
-注意，“废除230条款”，上升到了“是拯救这个国家的唯一办法”，由此可以看出，川普决心要正面迎敌，征讨社交媒体背后积聚巨大能量的寡头。这些寡头不会束手就擒，川普在依法灭贼的同时，还要跳出规则之外对付根深蒂固的叛国者。
-
-郭文贵先生指出，美国的伟大一直依赖于美国的法律精神。今年10月13日，经最高法院大法官托马斯审理，同意第九巡视上诉法庭关于“否决230条款的上诉请求”。大法官托马斯的解释是，如果你认为大型科技公司和社交媒体存在不当行为时，可以采取追责的法律行动。等于说，大型科技公司和社交媒体的免责挡箭牌被大法官托马斯给否了，因此，川普要求国会废除230条款，有法可依。
-
-230条款是由美国联邦政府制定的法律，是1996年《通讯规范法案》中的条款，需要经过国会废除。当废除230条款遇到极大阻力时，川普行使宪法赋予总统的权力，以否决新的《国防授权法》对国会施加压力，记住，川普可是言出必行的“犟牛”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03205005/MOS0585-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E5%86%B3%E6%84%8F%E5%BA%9F%E9%99%A4230%E6%9D%A1%E6%AC%BE%EF%BC%8C%E5%B7%9D%E6%99%AE%E8%A6%81%E5%A4%A7%E5%BC%80%E6%9D%80%E6%88%92-3.jpg)
-1861月4月19日，林肯就任总统不到半年，就下令暂停《人身保护令》，之后逮捕和关押了数千名仅仅有嫌疑的对南方同情者，林肯此举得到国会和北方民众的支持。林肯还关闭并没收了数百家反对他的媒体平台，并逮捕当时的联邦首席大法官，原因是这名大法官支持因反对林肯被捕的人的申诉。
-
-林肯经常排名美国最伟大总统前四名以内，通常徘徊在排名第一的位置，因此，我们不得不采信历史学家这样的说法：如果林肯不纠正之前由于不切实际所犯下的错误，及时暂停《人身保护令》，颁布更严厉的《戒严令》，很难想象，北方军会取得1863年7月宾夕法尼亚州葛底斯堡战役的胜利，并最终赢得南北战争。
-
-川普的“葛底斯堡”战役迫在眉睫，有所不同的是，川普面临的处境，比林肯时期更加艰险和复杂，南北战争由美国内部分裂引发，属“内部矛盾”，对南方的同情和支持者不能定性为叛徒或“叛国者”。当今的美国，同时陷入内乱和外敌入侵，大量的统治精英和中共为了窃取美国而合谋破坏美国大选，制造了美国的宪政危机和城市骚乱，加上美国遭受中共超限生物战的袭击，经济趋于崩溃，国家处于生死存亡时刻。川普要成为林肯式的伟大总统，只有做得更狠、更多，其实，宪法和民意都能够赋予他更大的权力和力量。
-
-参考链接：
-
-[https://www.youtube.com/channel/UCL9PlYkRD3Q-RZca6CCnPKw?feature=emb\_ch\_name\_ex](https://www.youtube.com/channel/UCL9PlYkRD3Q-RZca6CCnPKw?feature=emb_ch_name_ex)
-
-[https://www.youtube.com/watch?v=FpI4eSjA0H4](https://www.youtube.com/watch?v=FpI4eSjA0H4)
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
+Tcalman @Tcalman1
+Replying to @LLinWood
+FBI/DOJ/CIA are no longer functional Agencies..JFK Memo 57 activated..Military Spec Ops/Intelligence displaced them..Durham/Election fraud/etc..Transfered to Military..MILITARY TRIBUNALS LIVE FROM GITMO..REPUBS/DEMS BOTH CORRUPT..FIRST ARRESTS SOON..JUSTICE BRINGS TRUTH/FREEDOM..
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03211024/1776%E5%B9%B4%E7%BE%8E%E5%9B%BD%E7%8B%AC%E7%AB%8B%E5%AE%A3%E8%A8%80%E7%9A%84%E7%B2%BE%E7%A5%9E%E4%BE%9D%E6%97%A7%E9%95%BF%E7%9B%9B%E4%B8%8D%E8%A1%B0.png)
 2+

@@ -1,38 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒让越来越多的加拿大人陷入绝望情绪
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/614598/)
+## 佩洛西与麦康奈尔表示尽快完成综合法案和COVID救济法案 12/3
+` Mike迈克小哥` [轉載自GNews](https://gnews.org/zh-hans/614619/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03153028/end-mental-health-stigma.jpg)图片来源：edmontonfetalalcoholnetwork.org
-据大纪元加拿大英文版2020年12月3日报道:
+2020年12月3日, 美国众议院议长南希·佩洛西(@SpeakerPelosi)办公室的声明：
+“众议院议长南希·佩洛西兼与参议院领导人麦康奈尔于今天中午12:45通过电话发表讲话，表示他们共同致力于尽快完成综合法案和COVID救济法案。”
 
-一项新的研究显示，在疫情期间由于压力和焦虑导致人们绝望的情绪达到了警戒线，在加拿大产生自杀念头的人数翻了四倍。
-
-此研究结果是由加拿大精神健康协会(CMHA) 协同BC大学的调研人员一起于12月3日发布的，他们在全国范围内收集了中共病毒对于精神健康方面影响的数据。
-
-研究者发现大部分加拿大人(71%) 对于第二波的疫情很焦虑，58%的人担心自己所爱的人或者是家庭成员会因病毒死去，只有21%的人觉得还抱有希望。
-
-CMHA 总裁玛格丽特.伊顿说：“寒冷的天气，渺茫的未来，越来越小的社交圈子，以及节日聚会的限制，这些坏消息恰恰了在人们感觉焦虑，无助和恐惧，并且事情会越来越糟的时刻来袭。我怕许多感到绝望的人度不过这个难关。“
-
-对经济收入的担忧也是CMHA调查中一个普遍的反馈， 三分之一(39%)的加拿大人由于疫情而对自己的经济状况担心。调查还发现越来越多的加拿大人借酒消愁，20% 的被调查者报告对酒精消耗的增加，还有很多人增加了吸食大麻(9%)以及处方药(7%)的用量。
-
-令人鼓舞的是有一半的加拿大人把坚持户外锻炼作为应对疫情的方法。
-
-**评：**
-
-今天加拿大人所面对的这一切因中共病毒而带来的次生态危机，正是今年初新中国联邦领导人郭文贵早就预料到的。
-
-长期在家居住而产生的精神问题甚至是疾病，应该是人们普遍会有的一个现象和问题。如何更好的来面对和解决这个问题，是一门学问，对于不同性格的人是有不一样的答案的。但我认为万变不离其宗：拥有一颗积极向上的心，对事对人多些正面的想法，每天都安排好自己个人和工作的日程，多花时间在家人身上。懂得利用时间的人，一整天的时间都会排得满满的，哪里有闲工夫去想着自杀呀。
-
-还是这句话，要想赶快结束疫情，全世界正义善良的人们团结起来，消灭中共和与其勾结的黑暗势力才是正道。
-
-原文链接：
-
-[https://www.theepochtimes.com/canadian-mental-health-study-finds-alarming-levels-of-despair-amid-pandemic\_3603466.html](https://www.theepochtimes.com/canadian-mental-health-study-finds-alarming-levels-of-despair-amid-pandemic_3603466.html)
-
-翻译报道：理查德
-
-温哥华圆成农场– 2020/12/03
-
+新闻来源:
+https://twitter.com/Breaking911/status/1334566841772027905
+Statement from the office of @SpeakerPelosi:
+“The Speaker & Leader McConnell spoke at 12:45 pm today by phone about their shared commitment to completing an omnibus & COVID relief as soon as possible.”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03155501/%E8%AE%AE%E9%95%BF%E5%8D%97%E5%B8%8C%C2%B7%E4%BD%A9%E6%B4%9B%E8%A5%BF%40SpeakerPelosi%E5%8A%9E%E5%85%AC%E5%AE%A4%E7%9A%84%E5%A3%B0%E6%98%8E.png)
 2+

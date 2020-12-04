@@ -1,45 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 脸书、谷歌将面临更多反垄断诉讼
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/614617/)
+## 佐治亚州五万多非法选票被识别
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/614632/)
 
-*新闻来源：Breitbart｜作者： LUCAS NOLAN；*
+多伦多枫叶农场（原加喜农场）春季
+校对 文锦 上传 云起时
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03160319/allongeorgia.com_.jpg)图片来源：allongeorgia.com
+据美国内华达保守的新闻评论网站DJHJ Media 12月3日报道，佛罗里达州选民组织表示他们在佐治亚州发现了五万多张非法选票。这是川普总统在该州及其选举人所需选票数量的四倍，足以使川普总统在佐治亚州获胜。
 
-*翻译、简评：文明明｜PR、审核：TCC｜PAGE：玄天生；*
+另一佐治亚州的选民数据分析公司是众多志愿团体之一，也佐证了这一事实。该公司表示，已发现佐治亚州在11月3日的大选中产生了约四万张非法投票。数据制作公司（Data Productions,Inc.）总裁马克·戴维斯（Mark Davis）被认为是有关选举纠纷的五个法院案件的专家，他发现有40,239人在选举前超过30天从一个县搬到另一个县，并已经在其原有的县投票了，这是违反佐治亚州法律的。这40,239个投票人未能及时注册新地址就在他们的新县进行了投票，但是根据法律，他们只有在注册了新地址后才能在其中的一个县进行投票。
 
-**简评：**
+这40,239张非法选票是总统竞选边际数量的三倍多，因为拜登被列为比川普总统多出大约12,000张选票。此外，同一小组发现有超过一万人在投票后离开了该州，这也是非法的，他们的选票必须作废。这样，非法选票总数超过50,000，而川普此时仅落后约12,000票。
 
-据《华尔街日报》报道，由于联邦和州的反垄断机构准备在未来几周内对科技巨头谷歌和脸书提起新的诉讼，这两家公司可能会面临漫长的法律诉讼。报道称，当局正准备在2021年1月底前对谷歌或脸书提起多达4项诉讼，这些诉讼是在上个月司法部对谷歌提起反垄断诉讼后不久进行的。这些诉讼的焦点将集中在科技巨头是否滥用了他们在互联网经济中的权力，着力于谷歌在搜索和广告行业的地位以及脸书在社交媒体市场的主导地位。
+然而事实上在选举之夜，川普总统以10万张选票领先，然后佐治亚州当局据称由于漏水停止了计票。川普突然发现自己落后了10万张选票，该数字已缩减至目前的12,000票。
 
-事实上，脸书和谷歌不仅是在商业竞争中，利用它们的垄断地位，收购和压制竞争对手，它们对社会最大的伤害是它们利用230法案，用隐秘的、AI控制的方法来控制和操纵、审查信息，压制不符合它们政治倾向的言论。从根本上说，它们侵犯了美国宪法赋予公民的言论自由的权力。尤其是在新冠病毒和大选期间，它们的所作所为与它们在经济活动中的垄断行为相比，对美国社会危害更大、影响更恶劣、后果更严重的。
+越来越多的事实和数据显示了在佐治亚州出现了大规模的选举欺诈。川普总统的法律团队也已发起联邦诉讼，对佐治亚州的舞弊指控足以使投票无效。相信正义一定能得到伸张，让我们拭目以待！
 
-《华尔街日报》对科技巨头的报道仅着眼于它们的经济活动上的垄断，显然是避重就轻，相信川普总统很快会废除230法案，从而彻底打掉这些科技巨头的保护伞，到时会有无数受到言论打压的人会对这些不可一世的科技巨头提起诉讼，那将是这些作恶多时的科技大佬真正噩梦的开始。
+[原文链接](https://djhjmedia.com/steven/voter-group-in-georgia-claims-they-have-identified-more-than-50000-illegal-votes-enough-votes-to-move-georgia-to-trump-column/)
 
-***原文翻译*：**
-
-# 脸书、谷歌面临更多反垄断诉讼
-
-[!\[\]()!\[\](https://spark.adobe.com/page/dxrWFp1Z6QhEL/images/a3e0a0b5-800b-4071-b60d-47f91cc11e70.jpg?asset_id=10e66ec6-37cb-48e0-aea8-d96b18381074&amp;img_etag=%229f16fc646ba36b87d757e95dad7cd0ee%22&amp;size=2560)](https://spark.adobe.com/page/dxrWFp1Z6QhEL/images/a3e0a0b5-800b-4071-b60d-47f91cc11e70.jpg?asset_id=10e66ec6-37cb-48e0-aea8-d96b18381074&amp;img_etag=%229f16fc646ba36b87d757e95dad7cd0ee%22&amp;size=1024)
-
-据报道，科技巨头脸书（Facebook）和谷歌（Google）将面临更多的法律问题，因为联邦和州的反垄断机构准备在未来几周内对这两家公司提起新的诉讼。
-
-据《华尔街日报》报道，消息相關人士透露，由于联邦和州的反垄断机构准备在未来几周内对科技巨头谷歌和脸书提起新的诉讼，这两家公司可能会面临漫长的法律诉讼。
-
-据报道，当局正准备在2021年1月底前对谷歌或脸书提起多达4项诉讼，这些诉讼是在上个月司法部对谷歌提起反垄断诉讼后不久进行的。据报道，这些诉讼的焦点将集中在科技巨头是否滥用了他们在互联网经济中的权力，着力于谷歌在搜索和广告行业的地位以及脸书在社交媒体市场的主导地位。
-
-两家公司都否认了他们使用自己的权力来压制市场竞争，称他们在竞争极其激烈的市场中运营，他们的服务能让消费者获利。
-
-脸书已在国会受到了共和党人和民主党人的共同批评，也受到了川普总统和民主党总统候选人乔-拜登的批评。民主党人指责这家社交媒体巨头在其平台上允许过多的言论自由，而许多共和党人则指出这家社交媒体网站经常压制保守派的声音。脸书则声称，它支持言论自由，同时也限制 “仇恨言论 “和有害内容。
-
-[新闻链接](https://www.breitbart.com/tech/2020/12/01/report-facebook-google-face-additional-antitrust-lawsuits/?utm_medium=social&amp;utm_source=facebook&amp;fbclid=IwAR0EXn_vmGTnXmdrRHnYH77HqyBLS7FSrh2HI0Ou-TTHPOEaZvx9O_3elRs)
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑 【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/dxrWFp1Z6QhEL/)
-[!\[\]()!\[\](https://spark.adobe.com/page/oSAdUsNxUsSw8/images/1db34996-94df-4217-b6ec-9416ea92200b.jpg?asset_id=2f14ade5-3fdb-4e20-84d7-01160c3bfc93&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/oSAdUsNxUsSw8/images/1db34996-94df-4217-b6ec-9416ea92200b.jpg?asset_id=2f14ade5-3fdb-4e20-84d7-01160c3bfc93&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 2+
