@@ -1,59 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 监控录像被曝后佐治亚州长转向：要求签名审计
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/617106/)
+## 【突发】彭佩奥：这无关美中对抗，而关乎自由和暴政的对抗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/617267/)
 
-蒙特利尔战友团 laotou
+- 编辑：Victor Torres
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04123150/G.jpg)图片来自 WSAV-TV
-比福克斯转向迹象更值得期待的是，那些曾经与邪恶共舞人士的清醒。
 
-福克斯网站12月4日早晨头条报道，“佐治亚州州长肯普声称州务卿尚未下令进行签名审计”，副标题，“肯普告诉福克斯主持人劳拉·英格拉姆（Laura Ingraham）说，我很早就打电话要求进行签名审计”。
+***更多真相，请关注*** ***[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-福克斯此举可谓动作不小，开始揭露佐治亚州选举舞弊幕后黑手间的推卸责任。
+**西班牙2020年12月4日电/西喜社/——**刚刚，美国国务卿彭佩奥通过视讯，在国际战略研究所麦纳麦对话(Manama dialogue )发表评论，他说：“这无关美中对抗，而关乎自由和暴政的对抗。”
 
-福克斯说，“肯普指责了州务卿有争议的拉票行为”，“（州长）希望布拉德·拉芬斯珀格（州务卿）接受审计，但州务卿没有这样做”。
 
-福克斯的详细报道如下：
 
-佐治亚州长布莱恩·肯普（Brian Kemp）周四表示，新的证词引发了更多问题，应该进行签名审计，他因处理本州选民欺诈指控的做法受到总统川普的猛烈批评。
+> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): This isn’t about America vs. China. It’s about freedom vs. tyranny. [pic.twitter.com/jpTFr3i36Z](https://t.co/jpTFr3i36Z)
+> — Department of State (@StateDept) [December 4, 2020](https://twitter.com/StateDept/status/1334920457515098113?ref_src=twsrc%5Etfw)
 
-肯普在“英格拉姆角”（The Ingraham Angle）接受采访，他指的是视频监控录像，据称，在佐治亚州州立农场（State Farm Arena），全州最大的计票中心，在被告知当晚计票工作完毕，计票观察员被带出房间。待计票观察员离开后，一名妇女从一张据称装有选票的桌子下面拿出手提箱，据哥伦比亚广播公司CBS46.com报道，这些选票被清点了数小时，没有选举监督人在场。
 
-川普总统的律师之一鲁迪·朱利安尼（Rudy Giuliani）在推特上发文称，“来自佐治亚州的冒烟枪”（意指来自佐治亚州的确凿证据）。
 
-肯普告诉英格拉汉姆，他已经要求进行签名审计，但该州（这方面）的权力在于州务卿办公室。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
 
-“我认为应该这样做，我认为特别是考虑到我们今天所看到的 …… 这引发了更多的疑问”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
 
-川普总统阵营法律团队的律师之一珍娜·埃利斯（Jenna Ellis）在推特上回应肯普的采访，“川普总统团队5次（5次用了粗笔大写）要求签名验证”。
-
-进入佐治亚州决胜选举的共和党参议员凯利·洛弗勒（Kelly Loeffler）和大卫·珀杜（David Perdue）支持总统上个月提出的签名匹配要求，并要求拉芬斯佩格（州务卿）辞职，拉芬斯佩格的办公室没有立即回复福克斯新闻的邮件。
-
-川普总统周四晚间在推特上表示，两名共和党人要想在1月5日的州决选中获胜，最好的办法是，“允许在总统竞选中进行签名审计”，这将确保他自己在该州的地位。
-
-肯普告诉英格拉汉姆，“我认为在未来24小时内，我们将从立法机构今天举行的听证会中看到更多，我们将能够看到下一步的行动。这就是我们现在的处境。”
-
-肯普受到川普总统的严厉批评，川普总统说他为支持他竞选州长感到“羞耻”，肯普在采访中对包括总统和知名律师林伍德在内的激烈批评人物进行了反思。
-
-“听着，我很沮丧，就像（川普总统）那样，很多人都是。” 肯普补充说，“他仍然支持总统及其政策。正如他所说，他是一名斗士，我们有几场战斗，但在11月3日之前，没有人为唐纳德·川普更努力地工作，我在大选诉讼中帮助他，我将继续这样做。”
-
-上周，大律师西德尼·鲍威尔（Sidney Powell）在推特上发布了一封致佐治亚州务卿拉芬斯佩格（Brad Raffensperger）的公开信，就州官员决定在重新计票期间不”进行真实审计”事宜，要求召开视频会议。
-
-川普总统团队质疑该州缺席选票的有效性，该州帮助推动乔·拜登在桃树州（佐治亚州的代称）获得12670票的胜利，该州共投了500万张选票。
-
-……
-
-福克斯在黄金时段、重要版面进行这样的报道，足以说明，正义、公正的力量吹响了进攻的号角，大趋势下，那些有点底线、曾经与邪恶为伴者开始清醒，与罪恶划清界限，投奔到正义一方。
-
-面对朱利安尼的确凿证据，还有抵赖者吗？州长肯普已经认怂，“我认为特别是考虑到我们今天所看到的……这引发了更多的疑问。” 这个“背后捅刀子”的州长有点内疚了，他“对包括总统和林·伍德律师在内的激烈批评人物进行了反思”，并表示，“我将继续在大选诉讼中帮助川普总统”。
-
-我们将拭目以待，翻盘从佐治亚州开始！
-
-参考链接：
-
-[https://www.foxnews.com/politics/brian-kemp-georgia-brad-raffensperger-signature-audit](https://www.foxnews.com/politics/brian-kemp-georgia-brad-raffensperger-signature-audit)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0

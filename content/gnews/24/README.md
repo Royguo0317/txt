@@ -1,42 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 从郭文贵先生家族的汽车收藏中看G-Fashion的巨大潜力
-` GM64` [轉載自GNews](https://gnews.org/zh-hans/617113/)
+## 【热点播报】美国几任前总统集体为新冠疫苗站台，究竟葫芦里卖的啥药?
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/617188/)
 
-![pastedGraphic.png]()![pastedGraphic.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04124457/image1.jpeg)
-内新闻：马赛  校对：七哩香
-
-郭文贵先生发起爆料革命三年以来，经常在直播视频中透露出对车的喜爱。比如时常在加州夜里买车、开快车，92年在德国订奔驰BRABUS汽车，排在憨豆先生前第一个私人参观劳斯莱斯新幻影汽车。这些经历都使我对G系列未来的发展充满巨大信心和期待。
-![pastedGraphic_1.png]()![pastedGraphic_1.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04125026/image2-1.jpeg)
-我第一次知道郭文贵先生就是通过汽车平台。在伦敦的汽车博主视频中，一辆蓝色全碳帕加尼深深的吸引了我。车尾的V12 GUO牌照让我对这位车主有了一个模糊的观念，一个中华血统的爱好者，有一流的眼光，巨大的经济实力。最难得可贵的是，这位车主可能是我见过的中国豪车圈最低调的富豪。伦敦可是世界注册超级跑车最多的地方，想要在这里脱颖而出需要对汽车文化有独特的见解。
-![pastedGraphic_2.png]()![pastedGraphic_2.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04125015/image3.jpeg)
-郭文贵先生三年的直播让我了解了真和善。对这辆帕加尼跑车仔细观察之后，郭文贵先生对美的理解，让我佩服得五体投地。 这辆帕加尼跑车采用的私人一对一订制760车系。这辆集艺术、性能与科技的街用赛车出自奥拉西奥•帕加尼先生位于意大利摩德纳的超级跑车工厂。中置后驱，搭载由梅赛德斯AMG提供的V12引擎。升级后代号M297的后期型发动机有着天籁般的排气声浪，能爆发出760马力和780牛米扭矩，搭载六速序列式变速箱。后期车牌号“V12 GUO”（早期LJ17 TBY）。
-![pastedGraphic_3.png]()![pastedGraphic_3.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04125003/image4.jpeg)
-订制设计中我最喜欢的是车头两条独一无二的月牙形日间行车灯，该设计独立于其他车型，两条弧线沿着车灯外围，好似安第斯山脉风中的幽灵。其他还有，包含标志的楔形车鼻带有肌肉线条和银色铆钉，定制侧裙搭配加宽的车轮拱，车身采用蓝色外露碳纤维和少量黑色碳纤维，配蓝色线条和缝线，巨大的双层倒扣式尾翼，其中较短的副翼来自Revolucion车型。
-
-结合郭文贵先生对时尚的定义，Mileson定制版是根据Zonda车型的一种创新。它不是一种炫富的表现，因为我从来没见过这辆车参加豪车聚会，也从来没出现在官方宣传和画册中。这不是财富的炫耀，而是单纯为了提升自我，是自己内心对美好的追求和展示自己的一种方式。
-
-作为超级跑车迷，郭文贵先生的收藏车型中还有其他高端车型，如MSO打造的迈凯伦P1、白色法拉利LaFerrari和紫色科尼塞克Agera。
-![pastedGraphic_4.png]()![pastedGraphic_4.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04124937/image5.jpeg)![pastedGraphic_5.png]()![pastedGraphic_5.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04124843/image6.jpeg)
-此为迈凯伦P1 MSO（底盘号#077）。 迈凯轮P1本身就是本世代最强的高性能公路车之一。
-![pastedGraphic_6.png]()![pastedGraphic_6.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04124831/image7.jpeg)![pastedGraphic_7.png]()![pastedGraphic_7.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04124820/image8.jpeg)
-McLaren Special Operations主旨是通过不同的方法满足客户对车辆的需求。更是代表郭先生追求完美、开拓创新的精神。也难怪其产品有着惊艳的魅力，车身明亮又充满活力的红色和黑色相撞，重点勾勒出线条和空气动力学套件(红色重点区域，前唇、前机舱盖、十幅轮毂、双门、后尾翼和扩散器）。可以想象出高速的空气在身上流动。这个独特的黑红动态漆面，我只在迈凯轮F1 Longtail MP4系列赛车上见过。
-
-迈凯轮赛车运动涂装的历史开始于六十年代的木瓜橙色。七十年代万宝路象征顶峰的红白色喷漆开启了迈凯轮的冠军之路,红色的多边形也融入了车标的设计。新赞助商的到来在1997年后引起了巨大的变化，银色来自梅赛德斯奔驰带来的动力单元，亮红色和黑色主要来自 Santander、Vodaphone、West IIRC等公司。我通过这辆车也感受到郭文贵先生将汽车工艺与艺术相结合。
-![pastedGraphic_8.png]()![pastedGraphic_8.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04124757/image9.jpeg)![pastedGraphic_9.png]()![pastedGraphic_9.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04124805/image10.jpeg)
-这两辆车设计理念与G系列语言重合，自由和突破性的设计，对材料与质量从不妥协。郭文贵先生在车与艺术结合的高度，让我G-FASHION的未来有着巨大的信心。我相信G系列将来会成为一个能真正代表和发扬中华民族真善美的平台。
-
-参考信息来源：
-
-[https://drivetribe.com/p/heres-why-the-zonda-by-mileson-P3my3zRAT-K3aIZ-9CXE8w?iid=RV7qGWD\_T8ORIMKtcCSZrw](https://drivetribe.com/p/heres-why-the-zonda-by-mileson-P3my3zRAT-K3aIZ-9CXE8w?iid=RV7qGWD_T8ORIMKtcCSZrw)
-
-[http://www.topspeed.com/cars/pagani/2016-pagani-zonda-by-mileson-ar174127.amp.html](http://www.topspeed.com/cars/pagani/2016-pagani-zonda-by-mileson-ar174127.amp.html)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03014137/logo-3-1.jpg)20200200
 
 
 
-[https://exclusivecarregistry.com/mclaren/p1/23420170117205345](https://exclusivecarregistry.com/mclaren/p1/23420170117205345)
+作者：香草山写作组Daxia
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04125417/12041-1.png)
+据纽约邮报报道，美国最近的三任前总统都表示，一旦获得批准可帮助提高这种药物的安全性，他们将公开接种COVID-19疫苗。
 
+前总统乔治·W·布什和比尔·克林顿向美国有线电视新闻网（CNN）透露了他们的意图，而前总统巴拉克·奥巴马（Barack Obama）在周四播出的一次采访中表示，他可能最终会在电视上接种COVID-19疫苗。
 
+更多关于新冠病毒：https://dailytruthreport.com/clinton-bush-obama-willing-to-take-covid-19-vaccine-live-on-tv/
 
+前总统办公厅主任弗雷迪·福特（Freddy Ford）告诉美国有线电视新闻网说：＂布什甚至与白宫冠状病毒特别工作组成员，安东尼·福西博士和德博拉·伯克斯博士进行了接触。 首先，疫苗必须被认为是安全的，并应优先处理。 然后，布什总统将排好队，并很乐意“在镜头前照做”，以自愿帮助并鼓励美国公民接种疫苗。
+
+克林顿的新闻秘书安吉尔·乌雷娜（Angel Urena）表示：“根据公共卫生官员确定的优先事项，肯定会尽快向克林顿总统提供疫苗。”“如果能帮助敦促所有美国人也这样做，他将也在公开场合这样做＂。
+
+据美国有线电视新闻网报道，奥巴马在接受SiriusXM主持人乔·麦迪逊（Joe Madison）周四播出的采访中发誓说：“我向你保证，当针对风险较小的人制作时，我会接受的。 我可能最终会在电视上直接全程注射，只是为了让人们知道我相信科学＂。一旦被认为安全，就应该接种该疫苗。
+
+目前，新冠病病自爆至今，但新冠病毒的源头和零号病人，都未彻底找出，但在短时间内生产的疫苗，试验结果未透明的前提下，几任前总统在这个特殊时期集体统一大力支持新冠疫苗的推广和应用，与2020年美国大选有什么必然联系，葫芦里到底究竟卖的啥药，我们将试目以待。
+
+审核：浪迹天涯
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03014137/logo-3-1.jpg)
 0
