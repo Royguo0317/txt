@@ -1,47 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 快速扩张的共军具有全球野心
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/614726/)
+## 美国制裁支持委内瑞拉马杜罗的中国电子进出口公司
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/614820/)
 
-*新闻来源：The Washington Times《华盛顿时报》；作者：Bill Gertz（比尔·戈茨）；发布时间：2020年12月1日*
+*新闻来源：Breitbart《布赖特巴特》；作者：本·基（BEN KEW）；发布时间：2020年11月30日*
 
-*翻译/简评：Lully；校对/审核：万人往；Page：拱卒*
-[!\[\]()!\[\](https://spark.adobe.com/page/jR52E1lPhszDY/images/fac268f6-f4cd-44af-8842-5a91dc912a14.jpg?asset_id=a3979d45-8ffb-477f-8604-3fa0ee046028&amp;img_etag=%228b2cd84144064d7ac9615d75aa590cae%22&amp;size=1024)](https://spark.adobe.com/page/jR52E1lPhszDY/images/fac268f6-f4cd-44af-8842-5a91dc912a14.jpg?asset_id=a3979d45-8ffb-477f-8604-3fa0ee046028&amp;img_etag=%228b2cd84144064d7ac9615d75aa590cae%22&amp;size=1024)
-#### **简评：**
+*翻译/简评：Marialu；校对：X-Wing飞得更高；审核：海阔天空；Page：拱卒*
 
-美国国会已清醒的认识到中共国解放军全球军事扩张的狼子野心。与美国全球军事战略部署维护和平不一样的是，中共实施全球军事部署，趁机收买、恐吓周边国家，使其与中共同流合污、拉帮结派、对抗正义力量、奴役世界人民。所幸中共夜郎自大，骄兵必败，在没有掌握核心技术之前不自量力地挑战美国，引起美国定海神针力量的警觉。若西方世界养虎为患，待到中共彻底掌握核心军事技术后，人类就真的会陷入万劫不复的黑暗境地了。
+[!\[\]()!\[\](https://spark.adobe.com/page/7oWQJWmVPr3TE/images/611356de-367c-4d0e-890a-3adfd16ba36d.jpg?asset_id=63002653-034a-4371-94aa-a2177451b520&amp;img_etag=%222e97a7c1940b2bf9a5b6ea05cdc5fd1b%22&amp;size=2560)](https://spark.adobe.com/page/7oWQJWmVPr3TE/images/611356de-367c-4d0e-890a-3adfd16ba36d.jpg?asset_id=63002653-034a-4371-94aa-a2177451b520&amp;img_etag=%222e97a7c1940b2bf9a5b6ea05cdc5fd1b%22&amp;size=1024)
 
-#### **原文翻译：**
+**简评：**
 
-# **报告警告，快速扩张的中共国军队具有全球野心**
+美国国务院周一宣布对“中国电子进出口公司”实施制裁，其原因是该公司支持委内瑞拉独裁者马杜罗，破坏民主。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/jR52E1lPhszDY/images/1a7d3ed9-2f9a-4832-b46a-d14857a65bff.jpg?asset_id=206c443e-722d-4c30-9308-8d6389eb0192&amp;img_etag=%22e9db45bf2f691a24c9c729c74e8d4d66%22&amp;size=1024)](https://spark.adobe.com/page/jR52E1lPhszDY/images/1a7d3ed9-2f9a-4832-b46a-d14857a65bff.jpg?asset_id=206c443e-722d-4c30-9308-8d6389eb0192&amp;img_etag=%22e9db45bf2f691a24c9c729c74e8d4d66%22&amp;size=1024)
+国务卿彭佩奥在一份声明中，指控“中国电子进出口公司”支持马杜罗的非法政权，提供“限制互联网服务，并对政治对手进行数字监控”等服务。自2017年以来，“中国电子进出口公司”一直支持马杜罗政权恶意镇压政治异见和破坏民主进程。
 
-美国国会小组认为其部署力量激增
+委内瑞拉12月6日将举行议会选举，马杜罗希望夺回国民议会，这是民主反对派控制的唯一合法立法机构。彭佩奥在声明中抨击马杜罗将不顾一切操纵12月6日的议会选举，由非法政权组织的任何选举，都将是既不自由也不公平。
 
-根据一份重要的国会报告称，中共国军队正在迅速扩大全球部署力量的能力，在未来10年内将有能力在远离本土的地方发动战争。
+中共企业都是国家机器上的一颗小螺丝，协助世界最邪恶的政权屠杀迫害人民。中共政府利用所谓的“一带一路”扩大牠的新殖民统治，输出腐败，破坏他国民主，干预操纵民主国家选举，企图颠覆他国政权，罪恶滔天，现在到了被彻底清算的时候了！
 
-美中经济与安全审查委员会(U.S.-China Economic and Security Review Commission)周二在其年度报告中总结称，中共国人民解放军最近在导弹、轰炸机、运输机、海上补给和后勤方面取得了进展，“显著提高了解放军在远离中共国海岸的部署力量和部署远航部队的能力”。
+**原文翻译：**
 
-报告的作者表示:“中共国的军事部署能力正在快速而持续地发展，反映出领导层决心在几十年内将解放军转变为一支全球远征军。到本世纪中叶，中共国人民解放军的目标是能够在世界任何地方迅速部署军队。”
-[!\[\]()!\[\](https://spark.adobe.com/page/jR52E1lPhszDY/images/52cc8eb4-7e25-4e07-9440-029bcc5f8887.jpg?asset_id=1b8b05ef-831c-410b-86fa-e60b9ba8b4e6&amp;img_etag=%22eacd5d425635b12ad8b5be64aa4bb65a%22&amp;size=1024)](https://spark.adobe.com/page/jR52E1lPhszDY/images/52cc8eb4-7e25-4e07-9440-029bcc5f8887.jpg?asset_id=1b8b05ef-831c-410b-86fa-e60b9ba8b4e6&amp;img_etag=%22eacd5d425635b12ad8b5be64aa4bb65a%22&amp;size=1024)
-中共国日益增长的军事力量在东亚和东南亚最先进，但正在迅速往印度洋、加勒比海和南美蔓延。
+# 美国制裁支持委内瑞拉马杜罗的中国电子公司
 
-该委员会联合主席卡罗琳•巴塞洛姆（Carolyn Bartholomew）在报告发布会的网络会议上告诉记者，包括美国情报官员的证词在内的研究表明，随着时间的推移，中共国打算将军事力量部署到远远超出印太地区的地方。
+[!\[\]()!\[\](https://spark.adobe.com/page/7oWQJWmVPr3TE/images/fd961fcc-c9a3-4128-a0eb-ae3c1183fec3.jpg?asset_id=34df8aca-c5ab-4a3a-8656-dc32eb355066&amp;img_etag=%22a0f3bf89b832b74a692bb46e839a3053%22&amp;size=2560)](https://spark.adobe.com/page/7oWQJWmVPr3TE/images/fd961fcc-c9a3-4128-a0eb-ae3c1183fec3.jpg?asset_id=34df8aca-c5ab-4a3a-8656-dc32eb355066&amp;img_etag=%22a0f3bf89b832b74a692bb46e839a3053%22&amp;size=1024)尤里·科尔特斯（YURI Cortez）/法新社，图片来源盖蒂图片
 
-她说:“在未来10到15年，中共国领导人的目标是有能力在海外打一场有限的战争，以保护中共国“一带一路”倡议的参与国利益。”
 
-她说：“执政的共产党对美国的敌对态度于今年达到了一个新的高度，中共国领导人变得越来越咄咄逼人、势不两立，北京方面甚至不再假装遵守国际法和准则了。”
+美国国务院周一宣布，美国对“中国电子进出口公司”（CEIEC）实施制裁，原因是该公司支持委内瑞拉独裁者尼古拉斯·马杜罗（NicolásMaduro）。
 
-[原文链接](https://www.washingtontimes.com/news/2020/dec/1/china-military-expanding-has-global-ambitions-cong/)
+美国国务卿彭佩奥（Mike Pompeo）在一份声明中，指控“中国电子进出口公司”通过提供“限制互联网访问和对该政权的政治对手进行数字监控”等服务，“支持马杜罗的非法政权，企图破坏委内瑞拉的民主。”
 
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+彭佩奥解释道：
 
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+“中国电子进出口公司”为该政权的实体提供了软件、培训和技术专长，而且一直为国有电信供应商——委内瑞拉国家电话公司（CANTV）提供网络支持和技术专家，而该电话公司控制着委内瑞拉70%的互联网服务，并经常封锁在线独立报纸和反对派成员的言论。
 
-[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+包括“中国电子进出口公司”在内的中共国科技公司在开发和出口用于“监控、审查和监视公民在互联网上的活动”等工具方面处于世界领先地位。自2017年以来，“中国电子进出口公司”一直支持马杜罗政权恶意镇压政治异见和破坏民主进程的行为。
 
-编辑：【喜马拉雅战鹰团】[-点击spark adobe 版](https://spark.adobe.com/page/jR52E1lPhszDY/)
-[!\[\]()!\[\](https://spark.adobe.com/page/jR52E1lPhszDY/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/jR52E1lPhszDY/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-1+
+声明接着提到委内瑞拉定于下周举行的议会选举，马杜罗政权将以此为契机，重获国民议会的控制权，国民议会是委内瑞拉目前由民主反对派控制的最后一个合法立法机构。
+
+尽管有报导称，川普总统已经放弃了他相信现年37岁的胡安·瓜伊多能够促进委内瑞拉向民主过渡的信念，但彭佩奥仍然重申了对该国合法总统胡安·瓜伊多的支持。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/7oWQJWmVPr3TE/images/c9eea369-1bb3-4b20-9181-61aea7e53e7e.jpg?asset_id=39838d40-90b6-4175-a4ac-9bbae5a99674&amp;img_etag=%22d6794d3ebd5c6fd4e314524f66950d7b%22&amp;size=2560)](https://spark.adobe.com/page/7oWQJWmVPr3TE/images/c9eea369-1bb3-4b20-9181-61aea7e53e7e.jpg?asset_id=39838d40-90b6-4175-a4ac-9bbae5a99674&amp;img_etag=%22d6794d3ebd5c6fd4e314524f66950d7b%22&amp;size=1024)vor 2 Tagen 美国之音 中国电子进出口公司被指支持马杜罗破坏民主而被美国制裁
+
+**声明接着说：**
+
+通过这一最新行动，美国重申致力于推动对所有参与马杜罗非法政权企图破坏民主的同谋者进行追责。马杜罗不顾一切地企图操纵民主进程，这无疑会使非法政权组织的任何选举，包括12月6日的议会选举，都将是既不自由也不公平。
+
+我们与临时总统瓜伊多和多年来为恢复委内瑞拉民主和自由而斗争的委内瑞拉人民站在一起。
+
+川普政府自执政以来就对委内瑞拉政权连续实施制裁，制裁对象包括该国经济、国有企业和高级官员。目前尚不清楚，在拜登政府的领导下，这种制裁是否会继续下去，这位被推定的当选总统就他在委内瑞拉问题上的立场发出了混杂的信息。
+
+中国电子进出口公司是为社会主义政权提供物质支持的众多中共国实体之一，目前该政权对世界上最紧迫的经济和人道危机之一负有责任。在过去的几年中，北京当局通过提供金融贷款，石油运输和医疗用品，加大了对马杜罗的支持力度。尽管这样的捐助已证明对该政权继续执政的能力至关重要，但对缓解委内瑞拉人民所面临的困难几乎没有起到作用。
+
+马杜罗承诺今年访问北京“拥抱我们的兄弟—习近平”，并感谢中国对他的持续支持。这些计划尚未实现。两人上一次会面是在2018年底，习近平尽管对委内瑞拉还贷能力感到失望，但还是同意借给委内瑞拉50亿美元的财政救济。
+
+[原文链接](https://www.breitbart.com/latin-america/2020/11/30/us-sanctions-chinese-electronics-firm-supporting-venezuelas-maduro/)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看GTV UK 英国伦敦喜庄园电视台](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/7oWQJWmVPr3TE/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/7oWQJWmVPr3TE/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/7oWQJWmVPr3TE/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
+0

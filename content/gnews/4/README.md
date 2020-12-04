@@ -1,24 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 林伍德律师: 中国病毒。 中国的投票机 12/3
-` Mike迈克小哥` [轉載自GNews](https://gnews.org/zh-hans/615362/)
+## 12/2/2020 12/2/2020 郭先生直播（节选）：政治庇护绝对安全，只要拿到移民局收据编号，任何人即使是美国总统都无权遣返
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/615456/)
 
-林伍德律师 Lin Wood @LLinWood:
-他们几乎摆脱了它。 但是现在所有的谎言都被揭露了。 一切都计划好了。 流行病也是如此。
-中国病毒。 中国的投票机。
-想知道中国下一步会采取什么措施？
-想一想。 请读推文。
-https://twitter.com/zonox978/status/1334680233375657991
-该推文不可用。
+12/2/2020 郭先生直播（节选）：政治庇护绝对安全，只要拿到移民局收据编号，任何人即使是美国总统都无权遣返；孟建柱是中共海外情报军事扩张的罪魁祸首，在过去十七年里，从湄公河惨案、马来西亚槟城碧桂园森林城项目等等；孟建柱的三个好友是王岐山、孙力军和江志成，最大的受害者不是老百姓，是中共内部政法委系统和百万共产党员；以孟建柱为首的中共对中国人形象的损害和给世界带来的威胁，五十年到一百年都无法消除
 
-来源:
-https://twitter.com/LLinWood/status/1334684558302846978
-Lin Wood @LLinWood:
-They almost got away with it. But now every lie is being revealed. It was ALL planned. So was the Plandemic.
-China virus. China voting machines.
-Wonder what China has up its evil sleeve next?
-Think about it. Please. https://twitter.com/zonox978/status/1334680233375657991
-This Tweet is unavailable.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04000836/%E6%9E%97%E4%BC%8D%E5%BE%B7%E5%BE%8B%E5%B8%88-%E4%B8%AD%E5%9B%BD%E7%97%85%E6%AF%92%E3%80%82-%E4%B8%AD%E5%9B%BD%E7%9A%84%E6%8A%95%E7%A5%A8%E6%9C%BA.png)
+
+
+By: 【秘密翻译组G-Translators】
+
 0
