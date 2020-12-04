@@ -1,32 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 佐治亚州高官深陷中共Dominion公司 12/3
-` Mike迈克小哥` [轉載自GNews](https://gnews.org/zh-hans/615634/)
+## 回应中国外交部长访问首尔 市内各处举行谴责中共的集会 记者现场采访朴昌海先生
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/615454/)
 
-林伍德律师 Lin Wood @LLinWood:
+```
+1-在中共国驻韩国大使馆前的自由大韩护国团体敦促中国停止干韩国内政。
+2-支持新中国联邦的的团体成员在王毅下榻的首尔中区S酒店正门前举行敦促找出“武汉冠状病毒”的真相的集会。
+```
 
-我是一位疲倦的律师，试图深入了解为什么 @KLoeffler(美国佐治亚州联邦参议员凯利·洛夫勒), @BrianKempGA(佐治亚州州长布赖恩·肯普), @GaSecofState(佐治亚州州务卿布拉德·拉芬斯佩格)没有公开要求调查涉及Dominion投票机的佐治亚州选举欺诈行为。
-有些事情不合情理。 这告诉我, 我们远没有了解到全部真相。
 
-中国共产党CCP与Dominion公司75％的所有权相关联，2019年,Dominion公司以1.07亿美元向佐治亚州销售投票机。
-@BrianKempGA(佐治亚州州长布赖恩·肯普) 和 @GaSecofState(佐治亚州州务卿布拉德·拉芬斯佩格)达成了Dominion公司销售协议。
-@KLoeffler(美国佐治亚州联邦参议员凯利·洛夫勒)拥有Dominion公司股票。
-佐治亚州的州长布赖恩·肯普，州务卿布拉德·拉芬斯佩格, 联邦参议员凯利·洛夫勒拒绝要求对佐治亚州选举进行调查。
-连接这些线索点。 追踪钱的流向。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04005212/38284_50528_167-1.png)自由右派市民团体 “自由大韩护国团”26号下午在首尔钟区驻韩中共国大使馆前谴责中共国政府解除“国家安全法（统称“香港国安法”）和敦促即刻终止对韩内政干涉的集会。
 
-来源:
-https://twitter.com/LLinWood/status/1334742531729485824
-Lin Wood @LLinWood:
-I am a tired lawyer trying to dig deep on why @KLoeffler, @BrianKempGA @GaSecofState have not been publicly demanding investigation of GA election fraud involving Dominion voting machines.
-Something just does not make sense. Which tells me we know less than full truth.
 
-https://twitter.com/LLinWood/status/1334736357487423488
-Lin Wood @LLinWood
-CCP is tied to 75% ownership in Dominion, seller of voting machines to GA for $107M in 2109.
-@BrianKempGA & @GaSecofState made that deal.
-@KLoeffler owns Dominion stock.
-Kemp, Raffensperger, & Loeffler refuse to demand investigation of GA election.
-Connect dots. Follow money.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04014442/%E4%BD%90%E6%B2%BB%E4%BA%9A%E5%B7%9E%E9%AB%98%E5%AE%98%E6%B7%B1%E9%99%B7Dominion%E5%85%AC%E5%8F%B8.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04014743/%E6%B4%9B%E5%A4%AB%E5%8B%92%E6%8B%A5%E6%9C%89Dominion%E7%9A%84%E8%82%A1%E7%A5%A8.png)
+```
+针对中国外交部长王毅访韩的谴责中共国政府和中国共产党的集会26号在首尔市内各地举行。
+
+中国人和韩国人组成的新中国联邦支持团体的相关者在王毅下榻的首尔中区S旅馆正门前举行集会。据传外交部长将在那里停留，他们声称中国政府和中国共产党是从中国传播“武汉冠状病毒”的幕后黑手，并敦促调查真相。
+
+新中国联邦支持者团体韩国分支机构代表朴昌海介绍自己是来自中国吉林省的中国国民。他说：“中国共产党和中国人民是独立的实体。共产党是一个非法的政治团体，是一个像恶魔一样的实体，因此应该消灭。”
+
+朴先生说：“冠状病毒是中国共产党故意散播的。虽然武汉死了多少人中国人并不知道但是闫丽梦博士正在揭露武汉冠状病毒的真相。”并且他强调道：“我希望得到中国人民的支持。”
+```
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04012440/38284_50527_1458.png)
+
+
+```
+同时朴先生补充道：“我认为韩国政府从100人规模的集会缩减到只允许10人规模的集会是与防止针对王毅外交部长访韩的反共集会有关系。”
+```
+
+
+
+```
+关于新中国联邦的集会，朴先生介绍说：“该组织于2020年在美国纽约成立，”其宗旨是根据法律，自由和民主的思想创建一个新中国政府。
+```
+
+
+原为链接: [http://www.pennmike.com/news/articleView.html?idxno=38284](http://www.pennmike.com/news/articleView.html?idxno=38284)
+
 0
