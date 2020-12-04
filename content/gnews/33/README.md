@@ -1,69 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 签署的选举结果无效，乔治亚州州长坎普现在该怎么办？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/614715/)
+## 快速扩张的共军具有全球野心
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/614726/)
 
-- 编辑：Victor Torres
-- 翻译：Ranting
+*新闻来源：The Washington Times《华盛顿时报》；作者：Bill Gertz（比尔·戈茨）；发布时间：2020年12月1日*
 
+*翻译/简评：Lully；校对/审核：万人往；Page：拱卒*
+[!\[\]()!\[\](https://spark.adobe.com/page/jR52E1lPhszDY/images/fac268f6-f4cd-44af-8842-5a91dc912a14.jpg?asset_id=a3979d45-8ffb-477f-8604-3fa0ee046028&amp;img_etag=%228b2cd84144064d7ac9615d75aa590cae%22&amp;size=1024)](https://spark.adobe.com/page/jR52E1lPhszDY/images/fac268f6-f4cd-44af-8842-5a91dc912a14.jpg?asset_id=a3979d45-8ffb-477f-8604-3fa0ee046028&amp;img_etag=%228b2cd84144064d7ac9615d75aa590cae%22&amp;size=1024)
+#### **简评：**
 
-***更多真相，请关注*** ***[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+美国国会已清醒的认识到中共国解放军全球军事扩张的狼子野心。与美国全球军事战略部署维护和平不一样的是，中共实施全球军事部署，趁机收买、恐吓周边国家，使其与中共同流合污、拉帮结派、对抗正义力量、奴役世界人民。所幸中共夜郎自大，骄兵必败，在没有掌握核心技术之前不自量力地挑战美国，引起美国定海神针力量的警觉。若西方世界养虎为患，待到中共彻底掌握核心军事技术后，人类就真的会陷入万劫不复的黑暗境地了。
 
-西班牙2020年12月3日电/西喜社/——乔治亚州州务卿布拉德·拉芬斯珀格（Brad Raffensperger）于11月认证了选举结果，并给乔·拜登（Joe Biden）提供了该州的16张选举人票。
+#### **原文翻译：**
 
-“作为一名工程师工作了一辈子，我的生活就是数字不会说谎。作为国务卿，我相信我们今天提出的数字是正确的。”**拉芬斯伯格在新闻发布会上说。**“这些数字反映的是人民的裁决，而不是国务卿办公室或法院的决定，也不是任何一场竞选的决定。”
+# **报告警告，快速扩张的中共国军队具有全球野心**
 
-随后，拉芬斯佩尔没有接受任何提问。
+[!\[\]()!\[\](https://spark.adobe.com/page/jR52E1lPhszDY/images/1a7d3ed9-2f9a-4832-b46a-d14857a65bff.jpg?asset_id=206c443e-722d-4c30-9308-8d6389eb0192&amp;img_etag=%22e9db45bf2f691a24c9c729c74e8d4d66%22&amp;size=1024)](https://spark.adobe.com/page/jR52E1lPhszDY/images/1a7d3ed9-2f9a-4832-b46a-d14857a65bff.jpg?asset_id=206c443e-722d-4c30-9308-8d6389eb0192&amp;img_etag=%22e9db45bf2f691a24c9c729c74e8d4d66%22&amp;size=1024)
 
-即使在当时，重新计票似乎也是被操纵的，因为选举官员没有检查签名，而且还发现**州政府指示官员报告原始投票总数**。
+美国国会小组认为其部署力量激增
 
-此外，每10桌只允许有1名选举观察员。
+根据一份重要的国会报告称，中共国军队正在迅速扩大全球部署力量的能力，在未来10年内将有能力在远离本土的地方发动战争。
 
-包括民主党人在内的几位乔治亚州的重新计票工作人员介绍说，在计票过程中，有一些奇怪的原始选票批次，有完美标记的气泡都是乔·拜登的。
+美中经济与安全审查委员会(U.S.-China Economic and Security Review Commission)周二在其年度报告中总结称，中共国人民解放军最近在导弹、轰炸机、运输机、海上补给和后勤方面取得了进展，“显著提高了解放军在远离中共国海岸的部署力量和部署远航部队的能力”。
 
-一位乔治亚州的重新计票工作人员在**Wood诉Raffensperger案的记录中**，描述了一批奇特的选票 – 没有任何标记的原始纸张，98%的选票被乔·拜登获得。
+报告的作者表示:“中共国的军事部署能力正在快速而持续地发展，反映出领导层决心在几十年内将解放军转变为一支全球远征军。到本世纪中叶，中共国人民解放军的目标是能够在世界任何地方迅速部署军队。”
+[!\[\]()!\[\](https://spark.adobe.com/page/jR52E1lPhszDY/images/52cc8eb4-7e25-4e07-9440-029bcc5f8887.jpg?asset_id=1b8b05ef-831c-410b-86fa-e60b9ba8b4e6&amp;img_etag=%22eacd5d425635b12ad8b5be64aa4bb65a%22&amp;size=1024)](https://spark.adobe.com/page/jR52E1lPhszDY/images/52cc8eb4-7e25-4e07-9440-029bcc5f8887.jpg?asset_id=1b8b05ef-831c-410b-86fa-e60b9ba8b4e6&amp;img_etag=%22eacd5d425635b12ad8b5be64aa4bb65a%22&amp;size=1024)
+中共国日益增长的军事力量在东亚和东南亚最先进，但正在迅速往印度洋、加勒比海和南美蔓延。
 
-监视器描述了被处理过的选票看起来很破旧，而且已经写好了 – 除了乔·拜登的一批神奇的原始选票。
+该委员会联合主席卡罗琳•巴塞洛姆（Carolyn Bartholomew）在报告发布会的网络会议上告诉记者，包括美国情报官员的证词在内的研究表明，随着时间的推移，中共国打算将军事力量部署到远远超出印太地区的地方。
 
-重新计票的工作人员说，这批原生态的选票质地不同，候选人的标记 “异常统一”，就像被选票标记器标记过一样。
+她说:“在未来10到15年，中共国领导人的目标是有能力在海外打一场有限的战争，以保护中共国“一带一路”倡议的参与国利益。”
 
-川普总统在推特上向布赖恩·坎普表示，这次选举被拒绝的选票几乎为零，而过去几年的拒绝率为4%，因此要强硬起来。
+她说：“执政的共产党对美国的敌对态度于今年达到了一个新的高度，中共国领导人变得越来越咄咄逼人、势不两立，北京方面甚至不再假装遵守国际法和准则了。”
 
-川普：这次乔治亚的选举中，被拒绝的选票几乎为零。在过去几年，接近4%。这不可能。现在信封上必须有签名检查。这很容易做到。民主党因为被抓到了，所以在战斗。比翻盘所需的票数多得多。共和党人必须强硬起来！
+[原文链接](https://www.washingtontimes.com/news/2020/dec/1/china-military-expanding-has-global-ambitions-cong/)
 
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-> Almost ZERO ballots rejected in Georgia this election. In years past, close to 4%. Not possible. Must have signature check on envelopes now. Very easy to do. Dems fighting because they got caught. Far more votes than needed for flip. Republicans must get tough! [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw)
-> — Donald J. Trump (@realDonaldTrump) [November 19, 2020](https://twitter.com/realDonaldTrump/status/1329424134166687744?ref_src=twsrc%5Etfw)
+[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-
-
-川普又艾特了布莱恩·坎普，要求检查签名。
-
-川普：在乔治亚州各县发现了数千张未计票。当更重要的签名匹配发生时，州政府将很快转向共和党。快去做吧！
-
-
-
-> Thousands of uncounted votes discovered in Georgia counties. When the much more important signature match takes place, the State will flip Republican, and very quickly. Get it done! [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw)
-> — Donald J. Trump (@realDonaldTrump) [November 19, 2020](https://twitter.com/realDonaldTrump/status/1329420741553643522?ref_src=twsrc%5Etfw)
-
-
-
-但坎普什么都没做。而他却在11月21日也**证明了这一结果**：
-
-*乔治亚州州长布莱恩·坎普周五认证了该州总统选举结果，支持当选总统乔·拜登 – 但要求对选票进行审计。*
-
-这些都是坎普和拉芬斯珀格的大错，因为在11月12日，我们已经报道说，尽管有相反的报道，但没有任何证据表明亚特兰大选举当晚的水管破裂。该报告的破绽，是当晚让柜台人员回家的原因：[https://www.thegatewaypundit.com/2020/11/breaking-exclusive-georgia-water-main-break-scam-election-day-no-evidence-show-even-occurred/](https://www.thegatewaypundit.com/2020/11/breaking-exclusive-georgia-water-main-break-scam-election-day-no-evidence-show-even-occurred/)
-
-然后今天我们发现，有人在选举当晚发生水管破裂后，坚持在亚特兰大中心，其他人都被送回家了。然后，这些人从桌子下面拿出手提箱，继续做他们正在做的事情，没有监督，也没有共和国的审查：[https://www.thegatewaypundit.com/2020/12/video-footage-georgia-shows-suitcases-filled-ballots-pulled-table-supervisor-told-gop-poll-workers-leave-tabulation-center/](https://www.thegatewaypundit.com/2020/12/video-footage-georgia-shows-suitcases-filled-ballots-pulled-table-supervisor-told-gop-poll-workers-leave-tabulation-center/)
-
-**哇，那现在乔治亚州做什么？水管破裂后，亚特兰大大选当晚统计了多少万张选票？最终是否会进行真正的审计，以确定乔治亚州总统大选的真正赢家，还是会因为民主党的舞弊而将所有的结果都扔掉？**
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
-
-4+
+编辑：【喜马拉雅战鹰团】[-点击spark adobe 版](https://spark.adobe.com/page/jR52E1lPhszDY/)
+[!\[\]()!\[\](https://spark.adobe.com/page/jR52E1lPhszDY/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/jR52E1lPhszDY/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+1+

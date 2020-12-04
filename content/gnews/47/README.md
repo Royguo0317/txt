@@ -1,29 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 监控录像曝光：投票观察员离开后，预先藏好塞满选票的手提箱被取出再计票
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/614537/)
+## 威斯康星州最高法院拒绝听取川普总统的选举诉讼 12/3
+` Mike迈克小哥` [轉載自GNews](https://gnews.org/zh-hans/614558/)
 
-加拿大多伦多枫叶农场（原加喜农场）云起时
+突发：威斯康星州最高法院拒绝听取川普总统的选举诉讼，称此诉讼案件必须首先通过威斯康星州下级法院审理-美联社报道 2020年12月3日
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03145007/%E7%AE%B1.png)图片来自WRVO
-12月3日National Pulse 报道，佐治亚州的视频录像显示，4个塞满选票并早早藏在计票室内的手提箱，在其它计票工作人员被命令停止计票，离开房间后被取了出来。 计票开始前的早上有人故意摆放桌子遮住手提箱。这些摆放桌子的人，是命令投票监督员离开的人，同时也是留下继续计票的人。
-
-今天川普竞选团队公布了一段发生在佐治亚州计票的视频。视频中显示，在投票观察员被命令离开计票设施后，有几人留下来，从一张桌子下面拿出四个装满选票的手提箱，然后继续计票。
-
-解说这段录像的人说，在计票开始前有人故意摆放桌子遮住手提箱。这些摆放桌子的人也是命令投票监督员离开的人。他们”借口说我们要停止计票”。
-
-视频中发出质疑：”这些选票与其他选票分开放是做什么？为什么他们在这种被清空，没有目击者的情况下对它们进行统计？”
-
-川普竞选团队在推文中说道 ：
-
-“看——佐治亚州的视频画面显示，在监票员要求投票站工作人员离开房间后，装满选票的4个手提箱从桌子底下被拉出来，留下的人继续计票。”
-
-推文里同时附有视频。【1】
-
-【1】视频链接：[https://twitter.com/TeamTrump/status/1334569329334083586?s=20](https://twitter.com/TeamTrump/status/1334569329334083586?s=20)
-
-原文链接：https://thenationalpulse.com/breaking/georgia-ballots-suitcase/
-
-4+
+新闻来源:
+https://twitter.com/breaking911/status/1334563648312897537
+BREAKING: The Wisconsin Supreme Court has refused to hear President Trump’s election lawsuit, saying the case must first wind its way through lower courts – AP
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03150313/%E5%A8%81%E6%96%AF%E5%BA%B7%E6%98%9F%E5%B7%9E%E6%9C%80%E9%AB%98%E6%B3%95%E9%99%A2%E6%8B%92%E7%BB%9D%E5%90%AC%E5%8F%96%E5%B7%9D%E6%99%AE%E6%80%BB%E7%BB%9F%E7%9A%84%E9%80%89%E4%B8%BE%E8%AF%89%E8%AE%BC.png)
+2+
