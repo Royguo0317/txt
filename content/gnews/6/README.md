@@ -1,32 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 佐治亚州高官深陷中共Dominion公司 12/3
-` Mike迈克小哥` [轉載自GNews](https://gnews.org/zh-hans/615634/)
+## 【香港要闻】面对『国安恶法』前立法会议员许智峰 无奈选择流亡【香港快讯】
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/615708/)
 
-林伍德律师 Lin Wood @LLinWood:
+编撰：文悦
 
-我是一位疲倦的律师，试图深入了解为什么 @KLoeffler(美国佐治亚州联邦参议员凯利·洛夫勒), @BrianKempGA(佐治亚州州长布赖恩·肯普), @GaSecofState(佐治亚州州务卿布拉德·拉芬斯佩格)没有公开要求调查涉及Dominion投票机的佐治亚州选举欺诈行为。
-有些事情不合情理。 这告诉我, 我们远没有了解到全部真相。
+覆核：文粤
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04022018/Untitled-1-23_u6ZRF_1200x0.png)图片来源：许智峰 facebook 图片
+据十二月四日立场新闻报导，立法会前议员许智峰三日宣布流亡，原本有4 案共项9 项控罪在身的许，上月初提堂时获西九龙裁判法院主任裁判官罗德泉允许发还旅游证件，到丹麦访问，其后上月底在区域法院再提堂时，获维持原有保释条件。
 
-中国共产党CCP与Dominion公司75％的所有权相关联，2019年,Dominion公司以1.07亿美元向佐治亚州销售投票机。
-@BrianKempGA(佐治亚州州长布赖恩·肯普) 和 @GaSecofState(佐治亚州州务卿布拉德·拉芬斯佩格)达成了Dominion公司销售协议。
-@KLoeffler(美国佐治亚州联邦参议员凯利·洛夫勒)拥有Dominion公司股票。
-佐治亚州的州长布赖恩·肯普，州务卿布拉德·拉芬斯佩格, 联邦参议员凯利·洛夫勒拒绝要求对佐治亚州选举进行调查。
-连接这些线索点。 追踪钱的流向。
+战友观点：
 
-来源:
-https://twitter.com/LLinWood/status/1334742531729485824
-Lin Wood @LLinWood:
-I am a tired lawyer trying to dig deep on why @KLoeffler, @BrianKempGA @GaSecofState have not been publicly demanding investigation of GA election fraud involving Dominion voting machines.
-Something just does not make sense. Which tells me we know less than full truth.
+前立法会议员许智峰，在香港时间 12 月 3 日晚上 8 时于脸书宣布流亡，同时退出民主党，暂别香港。他强调流亡不是移民，「我的家只有香港」，永远不会移民」，「宁愿四处漂泊着，等待回家的一天」。
 
-https://twitter.com/LLinWood/status/1334736357487423488
-Lin Wood @LLinWood
-CCP is tied to 75% ownership in Dominion, seller of voting machines to GA for $107M in 2109.
-@BrianKempGA & @GaSecofState made that deal.
-@KLoeffler owns Dominion stock.
-Kemp, Raffensperger, & Loeffler refuse to demand investigation of GA election.
-Connect dots. Follow money.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04014442/%E4%BD%90%E6%B2%BB%E4%BA%9A%E5%B7%9E%E9%AB%98%E5%AE%98%E6%B7%B1%E9%99%B7Dominion%E5%85%AC%E5%8F%B8.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04014743/%E6%B4%9B%E5%A4%AB%E5%8B%92%E6%8B%A5%E6%9C%89Dominion%E7%9A%84%E8%82%A1%E7%A5%A8.png)
+许于11月23 日告别议会前接受媒体专访，描述香港现况是「 要抓的都抓了，坐牢的坐牢，流亡的流亡」，他认为虽然目前不再有人上街，但相信事情会累积至临界点再爆发。
+
+在香港许智峰面临 9 宗控罪，一旦判囚恐数以年计。许流露家人一直很担心，有很多难以开口的压力～
+
+香港某媒体2 日引述消息人士报道，许智峰的父母、妻子及两名幼年儿女已搭机离港，暂未知目的地。中联办控制的《文汇报》认为，许智峰「举家离港」相关行为令「潜逃疑云再次发酵」。许智峰回应不会提供任何有关家人资讯，丹麦国会议员Katarina Ammitzbøll 向媒体表示，听闻许智峰完成丹麦访问后会转往英国，对于外界揣测许会在丹麦寻求政治庇护，Ammitzbøll 表示并非实况，因为丹麦并无针对港人的特殊居留计划。
+
+相信所有有良知的人看了许智峰的相关新闻，都会为他们一家感到庆幸。在「人为刀俎，我为鱼肉」的香港，像许智峰这样的抗争者背负九项控罪，案子一旦开庭结局如何，刚被判重刑的黄之锋周庭等就是样板。在这种情况下谁甘愿束手就擒，坐以待毙？
+
+另外许智峰的前民主党党友林卓廷，再次在脸书专页写上「我自横刀向天笑去留肝胆两昆仑」，相信是送别许智峰；前立法会议员朱凯迪亦在脸书转贴许智峰的帖文，并写上「兄弟珍重」。
+
+曾与许智峰在立法会共事的涂谨申亦于脸书上贴了一首陈慧娴旧歌《夜机》的歌词，来揣摩许智峰的心情。
+
+[陈慧娴名曲《夜机》](https://youtu.be/oLCHgT4gyjg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04022011/%E9%99%B3%E6%85%A7%E5%AB%BB%E5%90%8D%E6%9B%B2%E3%80%8A%E5%A4%9C%E6%A9%9F%E3%80%8B.jpg)
+以上观点仅代表笔者
+
+资料来源：[立场新闻](https://www.thestandnews.com/politics/%E8%A8%B1%E6%99%BA%E5%B3%AF%E6%B5%81%E4%BA%A1-%E4%BF%9D%E5%AE%89%E5%B1%80-%E7%B5%95%E4%B8%8D%E7%B8%B1%E5%AE%B9%E7%BD%AA%E7%8A%AF%E9%80%83%E9%81%BF%E6%B3%95%E5%BE%8B%E8%B2%AC%E4%BB%BB-%E6%9C%83%E8%B7%9F%E9%80%B2%E7%B7%9D%E6%8B%BF%E6%AD%B8%E6%A1%88/)
+
 0

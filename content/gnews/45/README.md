@@ -1,15 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发重磅！美国务院声明中共最大的恐惧来自人民的思想言论自由，美国将与盟友合作捍卫香港及中国人民的权利和自由
-` GM101` [轉載自GNews](https://gnews.org/zh-hans/615072/)
+## 每日重要Twitter播报（中文）12/01期（视频+ PDF下载）
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/614876/)
 
-美东时间12月3号，美国国务院官方发布了“论香港民主倡导者的政治迫害”的相关声明。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03202201/1-9.png)
-声明表示从历史上看香港受益于一个自由开放的系统，香港人民应自由行使《基本法》、《联合国条约》、《中英联合声明》、《世界人权宣言》的权利。香港人民为抵抗中共对其基本权利的剥夺而进行的斗争将贯穿整个历史，以此证明人类精神。
+撰稿 记者:CYC 文颖、本来 、尘凡3
+校对 :T.J Stonewall
+播音 :爱明州（文根根）
+剪辑：喜 马拉雅2020
 
-声明指出香港政府利用法院压制和平异议是威权政权的标志，其对民主倡导者的政治迫害令美国感到震惊。声明强调中国共产党最大的恐惧是自己人民的言论自由和思想自由。
+[每日重要推文12-1-1\_PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03184230/12-1-1_Review_T-converted.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03184230/12-1-1_Review_T-converted.pdf)
 
-声明明确美国将继续与世界各地的盟友合作，捍卫香港人民以及所有在中共压迫统治下受苦的人的权利和自由，美国人民与黄书豪、周星驰、林依依、赖志美，香港人民以及中国人民站在一起.
-
-7+
+2+

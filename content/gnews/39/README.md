@@ -1,31 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 军事特种部队/情报部门取代FBI/中情局/司法部 12/3
-` Mike迈克小哥` [轉載自GNews](https://gnews.org/zh-hans/615155/)
+## 1203 郭文贵先生直播摘要
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/615212/)
 
-林伍德律师 Lin Wood @LLinWood:
-发给佐治亚州爱国者们的一条短信
-1776年(美国独立宣言)的精神依旧长盛不衰
-我们人民的声音会被倾听。
-我们人民要求采取行动。
-我们人民拥有一切力量。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03215353/wengui_9.png)
+1. 爆料革命没有唤醒大多数同胞，屯粮，美金，也救不了无辜的同胞
+2. 14亿同胞会因中共在世界的作恶一起拽入地狱，劫难将是百倍，千倍香港人的遭遇
+3. 三个月后中国人觉醒和后悔的机会也没有了，海外华人也难逃其中的影响
+4. 脱钩，中概股退市已经成了可笑的话题
+5. 执行行动的美国高层称西方几乎很难区分中共和中国人
+6. 而且爆料革命区分中共和中国人的努力也不被同胞领情
+7. 热战无法避免，粮食危机内乱外部军事打击会接踵而至，战友们传播给周围家人朋友
+8. 新中国联邦要照顾好同胞以及G系列投资者，保护的优先级，如何保护是郭先生思考的
+9. 情绪太低落无法和喜马拉雅联盟开会，各农场做好保护/帮助/资助战友同胞的各种准备
+10. 墙内最高领导家人准备后事，子女已经准备后路了，包括武装上的结盟。子女们都在能跑就跑
+11. 海外基金大举抛售，之前看好拜登的老领导沉默不语，哎生叹气
+12. 大难来临爆料革命只能救很少一部分人，一直唤醒不要做兔子和绵羊
+13. 为什么老鹰狮子不会很少被抓？高度
+14. 如同摩西出埃及一般的感受，先知渡人太难，感受太痛
+15. 大战无声的到来只能毁灭一切，只有超长神力的人才能拯救，每分每秒都在加速
+16. 注意疫情再次爆发，同情帮助同胞一切生灵，农场战友投资者要凝聚在一起
+17. 任何地方都比大陆安全，但没有绝对安全的地方
 
-Tcalman @Tcalman1 回复 林伍德律师 Lin Wood @LLinWood:
-美国联邦调查局/司法部/中央情报局不再是职能机构。.约翰·肯尼迪57号备忘录(JFKMemo 57)已激活。.军事特种部队/军事情报部门将其(联邦调查局/司法部/中央情报局)取代。.约翰·达拉谟(美国司法部特别顾问)/选举欺诈/等..转给军事机构(处置)。. 军事法庭/关塔那摩湾拘押中心 共和党/民主党两者都两党都有腐败之徒。..第一批逮捕很快..联邦最高法院法官带来真相/自由..
 
-来源:
-https://twitter.com/tcalman1/status/1334657690107342850
+作者：搞笑排行榜
 
-Lin Wood @LLinWood
-Send a message GA Patriots.
-The Spirit of 1776 is alive & well.
-We The People will be heard.
-We The People demand action.
-We The People have all the power.
+2020/12/03
 
-Tcalman @Tcalman1
-Replying to @LLinWood
-FBI/DOJ/CIA are no longer functional Agencies..JFK Memo 57 activated..Military Spec Ops/Intelligence displaced them..Durham/Election fraud/etc..Transfered to Military..MILITARY TRIBUNALS LIVE FROM GITMO..REPUBS/DEMS BOTH CORRUPT..FIRST ARRESTS SOON..JUSTICE BRINGS TRUTH/FREEDOM..
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03211024/1776%E5%B9%B4%E7%BE%8E%E5%9B%BD%E7%8B%AC%E7%AB%8B%E5%AE%A3%E8%A8%80%E7%9A%84%E7%B2%BE%E7%A5%9E%E4%BE%9D%E6%97%A7%E9%95%BF%E7%9B%9B%E4%B8%8D%E8%A1%B0.png)
+温哥华圆成农场
+
 2+

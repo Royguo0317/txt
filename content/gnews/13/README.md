@@ -1,13 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/25/2020 朱利安尼宾州特拉华县听证会：我们两天前才知道，几乎所有的东西、包括监管日志、记录、工作底稿，都不见了
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/615518/)
+## 班农疫情作战室541/542期
+` GM47` [轉載自GNews](https://gnews.org/zh-hans/615437/)
 
-11/25/2020 朱利安尼宾州特拉华县听证会：我们两天前才知道，几乎所有的东西、包括监管日志、记录、工作底稿，都不见了。在开会要求投票点的工作人员重新制作之后，并没能成功地把所有资料还原。现在的情况是我们有 10 万到 12 万张有疑问选票无法验证，因为相关监管记录和司法证据缺失。我不相信任何目睹这一切的公民，可以无愧于心地说这次选举合法、有效
+战友之家新闻译制组制作
+
+541：朝圣
+
+史蒂夫·班农（Steve Bannon）和拉希姆·卡萨姆（Raheem Kassam）讨论了有关CCP病毒大流行的最新消息。各州立法机关中的关键州都发布了重大新闻。 连线嘉宾Jack Posobiec和Matt Braynard分享见解。
+
+播出时间：2020年11月27日
 
 
 
-By: 【秘密翻译组G-Translators】
+==
+
+542：爱国者的立场
+
+史蒂夫·班农（Steve Bannon）和拉希姆·卡萨姆（Raheem Kassam）讨论了有关CCP病毒大流行的最新消息。各州立法机关中的关键州都发布了重大新闻。  连线嘉宾Boris Epshteyn，Doug Mastriano上校和Jeff Rainforth分享见解。
+
+播出时间：2020年11月27日
+
+点击链接前往GTV查看视频
+
+[https://gtv.org/video/id=5fc61bc920c9025a87db6647](https://gtv.org/video/id=5fc61bc920c9025a87db6647)
 
 0
