@@ -1,55 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 警报:美须警惕中共的野心和威胁
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/616800/)
+## 12/04/2020 财经快讯: 央行连续展开逆回购; 银行业货在劫难逃
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/616834/)
 
-- 编辑：Victor Torres
-- 作者：神奇四侠
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04104210/305074395870747a5737.jpg)图片来源：[https://read01.com](https://read01.com/5n22EJJ.html#.X8pYQMsza1s)
+1.突发！又有4家银行暂停”开户” 这一事件成导火索？
+光大银行、宁波银行、富滇银行于11月30日宣布相关业务暂停，北京银行12月1日也跟进了这一暂停行为。此外，浦发银行、民生银行虽未发布公告，但券商中国记者咨询客服人员后了解到，两行已分别于11月24日、11月28日起相继暂停相关业务。
+[https://money.163.com/20/1202/15/FSRP8KAA00259DLP.html](https://money.163.com/20/1202/15/FSRP8KAA00259DLP.html)
 
+2.再遭金融机构“讨债” 安信信托面临“排雷战”
+北京商报记者梳理发现，2020年至今，安信信托新增33宗案件尚在审理中，涉及案件金额为30.54亿元。再加上安信信托此前披露的，截至2019年末，该公司作为被告涉诉案件64宗，涉诉金额173.57亿元，安信信托目前涉诉金额已超过200亿元。
+[https://money.163.com/20/1202/00/FSQ72N6O002580S6.html](https://money.163.com/20/1202/00/FSQ72N6O002580S6.html)
 
-***更多真相，请关注*** ***[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+3.明年起我国将每年开展一次系统重要性银行评估新华社北京12月3日电（记者吴雨）为完善我国系统重要性金融机构监管框架，建立系统重要性银行评估与识别机制，中国人民银行、中国银保监会3日联合发布《系统重要性银行评估办法》，并自2021年1月1日起施行。
+[http://finance.people.com.cn/n1/2020/1204/c1004-31954772.html](http://finance.people.com.cn/n1/2020/1204/c1004-31954772.html)
 
-西班牙2020年12月3日电/西喜社/——根据美国国会授权的一个委员会日前发布的报告，中国力图在关键的经济和安全领域超过美国，这一事态发展可能永远改变这两个世界主要大国之间的动态关系。中共喉舌《参考消息》12月3日发布了该消息。
+4.信托资产规模连缩三年：融资类信托环比降近5000亿元据中国信托业协会数据，截至三季度末，信托业受托管理的信托资产余额为20.86万亿元，较年初减少7432.79亿元，同比下降5.16%。这是自2017年4季度以来，信托业资产管理规模连续11个季度下降。
+[https://www.sohu.com/a/436146329\_115571?scm=1004.176.0.0&spm=smpc.ch15.fd-news.33.1607046030557Vy4xqFf](https://www.sohu.com/a/436146329_115571?scm=1004.176.0.0&amp;spm=smpc.ch15.fd-news.33.1607046030557Vy4xqFf)
 
-该委员会副主席卡罗琳·巴塞洛缪当地时间周一在新闻发布会上说：“今年，我们的很多重点都放在中国在经济、技术、外交和军事方面追赶和超越（美国）上。”
+5.央行连续13个工作日开展逆回购，专家：货币政策仍有适度扩张的条件据搜狐智库统计，央行已连续13个工作日开展逆回购。本周一，央行意外新作2000亿MLF，并进行1500亿元逆回购操作，当日净投放资金3100亿元。虽然周二、周三、周四三天净回笼资金2300亿，但在宽口径下，本周仍净投放资金达800亿元。
+[https://www.sohu.com/a/436036839\_100160903?scm=1004.176.0.0&spm=smpc.ch15.fd-news.83.1607046030557Vy4xqFf](https://www.sohu.com/a/436036839_100160903?scm=1004.176.0.0&amp;spm=smpc.ch15.fd-news.83.1607046030557Vy4xqFf)
 
-她在周二的另一场讲话中说：“中国正在利用其日益增强的实力来重塑国际秩序，并将自己置于一个新的全球等级体系的顶端。”
+6.俄罗斯的Novak预计到4月份OPEC +石油产量将增加200万桶
+莫斯科（路透社）-俄罗斯副总理亚历山大·诺瓦克（Alexander Novak）周四告诉俄罗斯Rossiya-24电视台，除非不可抗力，否则欧佩克+组织的累计石油产量增幅很可能在4月份达到计划的每天200万桶。
+[https://www.reuters.com/article/us-oil-opec-russia-idUKKBN28D3B4?taid=5fc99bad585f620001c02b3f&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/article/us-oil-opec-russia-idUKKBN28D3B4?taid=5fc99bad585f620001c02b3f&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-报告说，“追赶和超越”的概念在北京的考量中占据重要位置。
+7.俄罗斯，中国情报机关刺探挪威石油机密
+挪威反情报机构PST表示，俄罗斯，中国和其他国家正在利用间谍活动收集挪威石油工业的秘密，并计划政府削减或增加产量。
+[https://mobile.reuters.com/article/amp/idUSKBN28D2M7?\_\_twitter\_impression=true](https://mobile.reuters.com/article/amp/idUSKBN28D2M7?__twitter_impression=true)
 
-报道指出，该报告的一个关键论点是，北京长期以来一直抱负远大，希望能与美国匹敌，成为世界上最强大和最具影响力的国家。在过去15年里，随着其经济技术实力、外交影响力和军事能力的增长，中国把重点转向超越美国。
-
-“美中经济与安全评估委员会”每年都会向国会提交报告，详述两国关系面临的挑战。
-
-2018年该委员会提出26条建议全面制裁中共，2019年提出36条建议并希望中美脱钩，而2020年的报告在12月1日发布，更直言不讳的提出中共是在与世界为敌。
-
-报告列举中共在非洲透过贷款、建立数字和通信技术等基础建设、培训当地记者和政党，以及增加与非洲国家的军事交流来扩大其在非洲大陆的影响力。提醒必须警惕中国企图掌握非洲自然资源，对美国未来创新科技构成威胁。
-
-报告呼吁美国政府扩大对美企对中国投资的审查力度，呼吁为受打压的香港人提供签证协助。还提出在中共持续加大对台湾威胁的时候，美国政府要继续展示对台湾的承诺。
-
-中共正在通过各种渠道来加强自己在国际上的影响力，在不停的输出他专制的政治模式。在联合国14个领导机构里，有4个是中共在担任领导人。为了获得这些职位，不仅免除了喀麦隆7800万美元的债务，还承诺在乌干达投资2500万美元。
-
-中共通过了港版《国安法》在香港大肆逮捕民主人士，扫荡那些提出批评的人士，违背签订的《中英联合声明》，正在一步步的把香港变成和中国大陆一样的城市。
-
-对台政策上，中共采取“文攻武吓”战略，持续霸凌台湾人民。一方面布置“军机绕台”，民兵船袭扰等;另一方面抛出“台独”顽固分子清单。而且随时准备着武力“收复”台湾。
-
-在国内，中共打压宗教信仰自由，迫害少数民族，排除异见人士。
-
-在美国，中共通过“蓝金黄”，偷盗美国技术和机密，投放中共病毒，操纵美国大选。
-
-中共已经严重威胁到美国的国家安全，也威胁到世界的安全。而我们欣喜的看到，美国包括川普总统在内的一大批有识之士终于认清了中共的丑恶嘴脸，也已经明白唯有消灭中国共产党，美国才能得救，世界才能得救。
-
-**参考链接：**
-
-- [http://m.cankaoxiaoxi.com/china/20201203/2426131.shtml](http://m.cankaoxiaoxi.com/china/20201203/2426131.shtml)
-- [https://www.voachinese.com/a/uscc-annual-report-africa-becomes-china-blueprint-for-its-ambition-20201201/5684160.html](https://www.voachinese.com/a/uscc-annual-report-africa-becomes-china-blueprint-for-its-ambition-20201201/5684160.html)
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+By 【秘翻组 – 金融法律团队】
 
 0
