@@ -1,29 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班农疫情作战室541/542期
-` GM47` [轉載自GNews](https://gnews.org/zh-hans/615437/)
+## 【路德时评】11.21 【精华版粤语配音】： 中共处心积虑掏空美国 爆料革命撕破黑暗
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/615573/)
 
-战友之家新闻译制组制作
+制作单位：战友之家-粤语组
 
-541：朝圣
-
-史蒂夫·班农（Steve Bannon）和拉希姆·卡萨姆（Raheem Kassam）讨论了有关CCP病毒大流行的最新消息。各州立法机关中的关键州都发布了重大新闻。 连线嘉宾Jack Posobiec和Matt Braynard分享见解。
-
-播出时间：2020年11月27日
+制作团队：农夫 打杂的 阿恩 wikim bao
 
 
 
-==
+摘要：
 
-542：爱国者的立场
-
-史蒂夫·班农（Steve Bannon）和拉希姆·卡萨姆（Raheem Kassam）讨论了有关CCP病毒大流行的最新消息。各州立法机关中的关键州都发布了重大新闻。  连线嘉宾Boris Epshteyn，Doug Mastriano上校和Jeff Rainforth分享见解。
-
-播出时间：2020年11月27日
-
-点击链接前往GTV查看视频
-
-[https://gtv.org/video/id=5fc61bc920c9025a87db6647](https://gtv.org/video/id=5fc61bc920c9025a87db6647)
+中共历来通过B.G.Y.手段窃取美国的高科技产品；疫情使更多美国人民从中共的罗网中醒觉，反扑邪恶。
 
 0

@@ -1,26 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯：出卖美国引狼入室？Facebook保留高薪职位给外国工人为哪般
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/615728/)
+## 《路德社》精选新闻快讯：突发新闻：12月4日美国司法部控社交媒体巨头Facebook招聘员工时优先招聘持有H-1B签证的人员
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/615799/)
 
 出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-据零对冲(Zero Hedge)美国时间12月3日报道，司法部起诉Facebook歧视美国工人，为H1-B工人保留工作机会。
 
-周四下午，川普政府起诉Facebook，指责其非法为其赞助的移民工人预留高薪工作岗位以获得永久居留权，而不是寻找可以填补这些职位的可用美国居民，总统特朗普和Facebook之间的恶性循环由此蔓延。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04030411/download-67.jpg)
-虽然不是直接攻击Facebook的”230条保护条款“，但在周四提交的一份长达17页的投诉中，司法部采取了不同的路线，其民权部门表示，Facebook在2018年至2019年期间，至少有2600个职位没有充分公开发布，而由持有H-1B高技能签证的移民填补这些职位并同时申请赞助这些工人获得绿卡。作为联邦申请程序的一部分，担保工人申请就业型绿卡的公司必须证明他们找不到任何合格的美国工人来填补这个职位。
 
-据《华尔街日报》报道，诉讼称，Facebook没有在其网站上公布这些保留的职位，并要求应聘者邮寄申请，而不是在线接受申请。
+> BREAKING – U.S. Department of Justice files a lawsuit against [#Facebook](https://twitter.com/hashtag/Facebook?src=hash&amp;ref_src=twsrc%5Etfw) for discriminating against U.S. workers in favor of Visa holders.
+> — Disclose.tv 🚨 (@disclosetv) [December 3, 2020](https://twitter.com/disclosetv/status/1334584074640519174?ref_src=twsrc%5Etfw)
 
-“而且即使美国工人提出申请，Facebook也不会考虑聘用他们担任这些职位，”诉讼指控到。”简单地说，Facebook为临时签证持有者保留了这些职位。”
 
-帮助CCP窃取美国2020大选，向美国人民和世界隐瞒真相的科技大佬之一，Facebook日前被美国司法部正式起诉。而这次我们看到，司法部没有针对社交平台赖以作恶的“230保护条款”而是针对了Facebook歧视美国工人为由经行起诉。诉讼中提到了Facebook在三年间保留了2600个高薪职位给新移民，并帮助他们申请美国就业绿卡。为什么不选择美国当地的职工而却舍近求远将大量高薪职位预留给外国职工，帮助他们申请绿卡？这个行为从商业角度看来着实反常。唯一的解释就是这么做会给Facebook带来巨大的回报或不得不这么做。联系到中共蓝金黄以及Facebook在大选期间誓死诋毁川普总统和审查所有GTV，GNews链接的行为来看，很可能这些职位就是留给中共渗透的。他们为了利益出卖美国的黑幕很快就将公之于众。
 
-[原文引自](https://www.zerohedge.com/economics/doj-sues-facebook-discriminating-against-us-workers-reserving-jobs-h1-b-workers)
+12月4日美国司法部指控社交媒体巨头Facebook歧视美国员工，称该公司招聘员工时优先招聘持有H-1B签证的人员。
 
-本文编译：文晓
+从这一刻意设计的招聘系统，致使Facebook公司放弃了2600个原本可以使用美国员工的岗位，而选择了更廉价的外国劳动力，也促使了这些外国劳动者需要特别依赖其工作来维持自身的移民身份。
+
+美国司法部称，Facebook的不当行为建立了一个不平等的雇佣关系。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04041640/2233.jpg)
+笔者认为社交媒体巨头Facebook公司这套特制的招聘系统目的在于利用移民身份去牵制这些外国员工，让这些员工为公司上层的利益服务，为了掌握媒体的话语权，或许通过这些外籍员工删除那些真实的信息，并以存在风险为名，标记和控制信息发布，达到抑制新冠疫情和2020美国大选真相传播的目的。
+
+本文作者：文森特
 审核校对：玫瑰天空
 上传排版：糖果儿
 
