@@ -1,49 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国正通过讹诈和暗势力来控制国会议员
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/617391/)
+## 明尼苏达州证人作证 – 智障人士被迫投票给拜登
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/617438/)
 
-*新闻来源：Breitbart《布赖特巴特》；作者：JOSHUA CAPLAN；发布时间：2020年12月3日*
+多伦多枫叶农场（原加喜农场）春季
+校对 文锦 上传 云起时
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04151613/%E8%87%AA%E5%88%B62.png)
+据 uncoverDC网站12月3日报道，明尼苏达州有证人作证，智障人士被迫投票给拜登。
 
-*翻译/简评：文明明；校对/审核：johnwallis；Page：拱卒*
+报道称，窃取老年人和智障人士的选票是有据可查的、发生在全国各地的欺诈性选举活动。具体来说，那些有投票权的“管理员”会注册代表这些弱势公民投票或强迫他们为他们所代表的候选人投票。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/uSKzH353lUpmO/images/01e7cc8e-03c2-4b86-8590-ecb39418d42c.jpg?asset_id=5edd2e53-88d9-4656-a37e-3d18a0cc352b&amp;img_etag=%22e63dc6382c5cafdc3b6b24a5e2f71a1a%22&amp;size=2560)](https://spark.adobe.com/page/uSKzH353lUpmO/images/01e7cc8e-03c2-4b86-8590-ecb39418d42c.jpg?asset_id=5edd2e53-88d9-4656-a37e-3d18a0cc352b&amp;img_etag=%22e63dc6382c5cafdc3b6b24a5e2f71a1a%22&amp;size=1024)国家情报局局长约翰-拉特克利夫
+2020年11月2日，在明尼苏达州的奥塞哥（Otsego），一名退休建筑工人、开发商和土地投资者宣誓作证，他在证词中陈述目睹了一辆公交车满载着严重智障人士被“管理员”强迫投票给乔·拜登。残障人士的看护者是为他们做出投票选择的人。他们握住残疾人的手，并为他们标记了选票，令他们被迫投票给拜登。他们中许多人甚至没有能力自己握笔，显然无法做出投票决定。
 
-#### **简评：**
+报道还揭示了全国各地其他操纵选民的情况：
 
-国家情报局局长约翰-拉特克利夫（John Ratcliffe）周四告诉CBS新闻记者凯瑟琳-赫里奇（Catherine Herridge），中共政府正在利用勒索、贿赂和秘密行动来针对国会山的立法者们，这是他们试图影响美国政策制定的一部分。
+2020年11月6日，在德克萨斯州的石灰石县（Limestone County），总检察长肯·帕克斯顿（Ken Paxton）起诉社会工作者凯利·里根·布鲁纳（Kelly Reagan Brunner），控告其犯有134条重罪，因其声称是选举舞弊的代理人。布鲁纳未经投票人签名或有效同意，就向67个州的生活支持中心（SSLC）的居民提交了选民登记申请，同时声称是其代理人。根据德克萨斯州法律，只有该县合格选民的父母、配偶或孩子在被任命为人选后，才可以作为代理人进行投票。如果被定罪，布鲁纳将面临最高10年的监禁。
 
-虽然这段采访不足1分钟，但是它所释放的信息说明美国参众两院对中共的渗透和对美国的危害已经达成共识，联系到最近众议院快速通过对中共在美上市公司的问责法案，以及文贵先生和路德先生的爆料，可以预见美国不久就会对中共采取一系列的制裁措施。
+明尼苏达州居民吉姆·斯特内（Jim Stene）患有缺氧性脑病，他在10月29日被以缺席选票投票。而一名布雷纳德（Brainerd）的居民表示，他目睹了集体房屋居民被强迫投票。
 
-我们真的可以感受到山雨欲来风满楼。
+美国疾病预防控制中心（CDC）的数据显示，美国有6100万成年人。其中10.8％患有认知障碍。因此保护他们免受选举欺诈的影响极为重要。
 
-#### **原文翻译：**
+明尼苏达州是传统的民主党州，在这次总统大选中也深陷选举欺诈，例如，强行认证大选结果，被控非法更改选举法；选举前从事非法选票收集；以现金换选票等等乱象频出。民主党和背后操纵大选的中共在这次大选中妄图实现斯大林的选举理论：重要的不是投票的人，而是计票的人。好在美国人民已经看清了这次大选的大规模舞弊，正同正义的力量一起为美国而战，让我们拭目以待！
 
-# **国家情报局局长约翰-拉特克利夫说：中共国正通过讹诈和暗势力来控制国会议员**
+[原文链接](https://uncoverdc.com/2020/12/03/minnesota-witness-mentally-handicapped-individuals-forced-to-vote-for-biden/)
 
-国家情报局局长约翰-拉特克利夫（John Ratcliffe）周四告诉CBS新闻记者凯瑟琳-赫里奇（Catherine Herridge），中共政府正在利用勒索、贿赂和秘密行动来针对国会山的立法者们，这是他们试图影响（美国）政策制定的一部分。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/uSKzH353lUpmO/images/c5eefe18-dd79-4c90-b0f2-2a6437fa9bac.jpg?asset_id=9f3fbf46-d150-455a-8cb8-b01b3e64c3f0&amp;img_etag=%22ba735d8a2bff5c9b17f6a4309ae65714%22&amp;size=1024)](https://spark.adobe.com/page/uSKzH353lUpmO/images/c5eefe18-dd79-4c90-b0f2-2a6437fa9bac.jpg?asset_id=9f3fbf46-d150-455a-8cb8-b01b3e64c3f0&amp;img_etag=%22ba735d8a2bff5c9b17f6a4309ae65714%22&amp;size=1024)
-
-**访谈的部分文字记录如下**：
-
-凯瑟琳-赫里奇（Catherine Herridge）：你为《华尔街日报》写了一篇文章，你说中共国针对国会议员采取行动的频率是俄罗斯的6倍，是伊朗的12倍 ，北京采取咄咄逼人的做法背后原因是什么？
-
-国防部部长约翰-拉特克利夫（John Ratcliffe）：他们希望美国出台对中共国有利的法律和政策，他们实际想做的是通过勒索、贿赂、公开和秘密行动，来确保（国会）只通过对中共国有利的法律。
-
-凯瑟琳-赫里奇（Catherine Herridge）：你有没有去国会山向立法者们（国会议员）通报这些有关威胁的信息？
-
-国防部部长约翰-拉特克利夫（John Ratcliffe）：我在国家情报局局长的位置上看到的情况让我非常不安，所以我向众议院和参议院情报委员会介绍了这些信息，他们也认为这些信息令人惊讶和不安。
-
-[原文链接](https://www.breitbart.com/asia/2020/12/03/dni-john-ratcliffe-china-is-using-blackmail-covert-influence-to-target-members-of-congress/)
-
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/uSKzH353lUpmO/)
-[!\[\]()!\[\](https://spark.adobe.com/page/uSKzH353lUpmO/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/uSKzH353lUpmO/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

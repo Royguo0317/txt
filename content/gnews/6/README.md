@@ -1,30 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【突发】皮特纳瓦罗：选举是被窃取的
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/617567/)
+## 法国“大嘴”埃瑞克.泽穆 （Eric Zemmour）说出了法媒沉默已久的事实：美国大选造假
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/617650/)
 
-- 编辑：文顺
-- 翻译：Ranting
+作者：Ikonic   校对： Pv 0
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04173231/cover-3-6.png)
+在12月1日晚CNEWS的时事节目“新闻面对面”(*Face à l’info**)**节目中，法国知名记者，以敢言为名的*埃瑞克.泽穆 （Eric Zemmour）说出了法媒沉默已久的时事话题：美国大选造假，川普千万选票被盗。
 
+节目中泽穆揭露了美国选举大面积造假—-面对泽穆引用的证据，其他嘉宾要么哑口无言，要么嗤之以鼻。就连平日里“公正”的女主持人也选边站，指责泽穆是川普唯一的支持者。显然，真话是不中听的，真话让他们难受了。
 
-***更多真相，请关注*** ***[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+的确，从拜登宣布“胜利”，川普喊冤的那一刻起法国主流媒体从来没有被正面报道过，对大选造假的话题更是讳莫如深。一切舆论导向都朝着什么川普放不下高傲的自尊啦，拒绝面对现实啦，最近欧洲1台竟然采访了川普的侄女玛丽.川普。玛丽川普是希拉里阵营的人，她在节目中直接说出川普还要继续疯狂下去。不出所料，第二天法国纸煤就开始刊登让人引起联想川普有心理疾病的文章。
 
-**西班牙2020年12月4日电/西喜社/——**刚刚，皮特·纳瓦罗（Peter Navarro）转发推文表示，他看到的一切表明选举是被窃取的。
+以调查出名的法国«绑鸭报»和mediapart面对”没证据”的说法全都沉默了，以世界文明灯塔自居的西方正在走向自我毁灭的路上，一个历史上从未有过的集体自杀现象，如此言论自我审查可以与当今的朝鲜相媲美。
 
-皮特·纳瓦罗在推文中说：“我看到了什么：誓约书，证词，视频，照片，法庭文件。错在哪里：彻头彻尾的舞弊、处理不当的选票、正当程序的失误、违反平等保护的规定、投票机的恶作剧、统计上的异常。”
-
-
-
-> What I'm seeing: Affidavits, testimony, video, photos, court filings. What's wrong: outright fraud, mishandled ballots, due process fouls, Equal Protection violations, voting machine hijinks, statistical anomalies. [https://t.co/EzwOnSjXe7](https://t.co/EzwOnSjXe7)
-> — Peter Navarro (@RealPNavarro) [December 4, 2020](https://twitter.com/RealPNavarro/status/1334967093373054977?ref_src=twsrc%5Etfw)
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221622/PHOTO-2020-11-26-13-19-21.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+为什么沼泽地里的大鳄不让报道？从法国本土情况来看，全球主义推选了他们的代言人马克龙，顺便毁掉了竞争对手法国前总理共和党人菲永。多米尼系统在法国共和党党内选举也有应用，难道是为了避免“拔出萝卜带出泥”？还是说要“效仿”美国，别忘了马克龙所在的共和国前进党党员已经提出重新启动邮寄投票的提案。（注： 1975年由于舞弊法国废除了邮寄选票）。
 
 0
