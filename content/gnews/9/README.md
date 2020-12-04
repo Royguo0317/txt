@@ -1,27 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共血统的前德国副总理菲利普·罗斯勒变身越南血统在越继续蓝金黄之路
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/611706/)
+## 军事特种部队/情报部门取代FBI/中情局/司法部 12/3
+` Mike迈克小哥` [轉載自GNews](https://gnews.org/zh-hans/615155/)
 
-翻译整理：Sun 编辑：李小甜kr
+林伍德律师 Lin Wood @LLinWood:
+发给佐治亚州爱国者们的一条短信
+1776年(美国独立宣言)的精神依旧长盛不衰
+我们人民的声音会被倾听。
+我们人民要求采取行动。
+我们人民拥有一切力量。
 
-前德国副总理菲利普·罗斯勒（Philip Rosler）最近率领三个国家的公司代表团前往越南，会见了总理阮晋福（Nguyen Xuan Phuc），并宣布了这项投资计划。他说：“越南拥有良好的经商环境。 有许多欧洲公司计划搬迁生产基地。我希望政府能够通过取消不必要的法规和改善行政程序，向前迈进，向欧洲公司敞开大门。”
+Tcalman @Tcalman1 回复 林伍德律师 Lin Wood @LLinWood:
+美国联邦调查局/司法部/中央情报局不再是职能机构。.约翰·肯尼迪57号备忘录(JFKMemo 57)已激活。.军事特种部队/军事情报部门将其(联邦调查局/司法部/中央情报局)取代。.约翰·达拉谟(美国司法部特别顾问)/选举欺诈/等..转给军事机构(处置)。. 军事法庭/关塔那摩湾拘押中心 共和党/民主党两者都两党都有腐败之徒。..第一批逮捕很快..联邦最高法院法官带来真相/自由..
 
-越南血统的德国前副总理罗斯勒率领德国，瑞士和以色列公司代表团访问总理。 代表团宣布的投资额为3.5亿美元，用于数字旅游，初创企业，医疗保健和个人医疗设备。
+来源:
+https://twitter.com/tcalman1/status/1334657690107342850
 
-他说：“越南保证外国投资者的合法权益，因此该业务可以得到长期保护，外国人的商业和投资环境也在稳步改善。”他说，“我们要求欧洲公司积极在越南投资。”
+Lin Wood @LLinWood
+Send a message GA Patriots.
+The Spirit of 1776 is alive & well.
+We The People will be heard.
+We The People demand action.
+We The People have all the power.
 
-总理普克说：“正如国际货币基金组织（IMF）最近预测的越南GDP增长率为2.4％一样，越南是今年经济增长率最高的少数几个国家之一。”“代表团对这项投资的决定，特别是政府的决定 我们感谢正在促进的对旅游业和生物健康产业的投资，我们相信它将取得成功。”
-
-根据计划和投资部的数据，迄今为止，越南在139个国家的3,300个项目中的外国直接投资（FDI）规模已达3,830亿美元。
-
-**评论：**他是中共建筑艺术项目的中共血统怎么说是越南血统呢？ 很奇怪， 而且强烈让欧美国家投资到越南，这是不是中共想得取高端技术技术的目的呢？他们的目的是让越南政府要吸引的外国直接投资是高科技行业，专业人力培训和支持行业、之后是中共吸走。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02213727/%E5%BE%B7%E5%9B%BD%E8%81%94%E9%82%A6.png)维基百科资料
-
-**王岐山的岳父姚依林，他的儿子姚明伟在越南的私生子就是菲利浦·罗斯勒，而姚明伟死后，王岐山便一路栽培菲利普坐上德国副总理大位。控制德国就控制了大半欧洲，而海航控制了德意志銀行。**
-
-参考新闻链接：http://www.insidevina.com/news/articleView.html?idxno=14989
-
-1+
+Tcalman @Tcalman1
+Replying to @LLinWood
+FBI/DOJ/CIA are no longer functional Agencies..JFK Memo 57 activated..Military Spec Ops/Intelligence displaced them..Durham/Election fraud/etc..Transfered to Military..MILITARY TRIBUNALS LIVE FROM GITMO..REPUBS/DEMS BOTH CORRUPT..FIRST ARRESTS SOON..JUSTICE BRINGS TRUTH/FREEDOM..
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03211024/1776%E5%B9%B4%E7%BE%8E%E5%9B%BD%E7%8B%AC%E7%AB%8B%E5%AE%A3%E8%A8%80%E7%9A%84%E7%B2%BE%E7%A5%9E%E4%BE%9D%E6%97%A7%E9%95%BF%E7%9B%9B%E4%B8%8D%E8%A1%B0.png)
+2+

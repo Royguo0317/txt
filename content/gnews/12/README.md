@@ -1,21 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 挺川大游行&#8211;采访郭先生
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/611783/)
+## 每日重要Twitter播报（中文）12/01期（视频+ PDF下载）
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/614876/)
 
-香草山综合报道
+撰稿 记者:CYC 文颖、本来 、尘凡3
+校对 :T.J Stonewall
+播音 :爱明州（文根根）
+剪辑：喜 马拉雅2020
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13075434/GNEW-GTV-MOS-LOGO-2.jpeg)
+[每日重要推文12-1-1\_PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03184230/12-1-1_Review_T-converted.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03184230/12-1-1_Review_T-converted.pdf)
 
-
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-0
+2+

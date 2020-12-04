@@ -1,47 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 假新闻们纷纷发文川普寻求赦免家人
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/611360/)
+## 邮政分包商揭发威斯康星州10万多张选票的舞弊
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/614724/)
 
-撰稿：Jenny
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02162604/IMG_4159.jpg)网络截图
-假新闻们《纽约时报》和《ABC News》纷纷发文川普寻求赦免家人
+*新闻来源：网关专家（GATEWAY PUNDIT）｜作者：卡桑德拉•费尔班克斯（Cassandra Fairbanks）；发布日期：2020年12月02日16:00*
 
-纽约时报刊登了题为《特朗普寻求预先赦免家人和私人律师》。
+*翻译、简评：Bob1203(文虓)｜校对：感恩｜审核：海阔天空｜PAGE：玄天生；*
 
-部分原文摘录：
+**简评：**
 
-据两名知情人士透露，特朗普总统已同顾问们讨论是否预先赦免他的子女、女婿以及私人律师鲁道夫·W·朱利安尼(Rudolph W. Giuliani)，并在上周与朱利安尼讨论了赦免他的事宜。
+本周二威斯康星州出现了新的选举舞弊检举者，其中包括一名邮政分包商，检举威斯康星州11月4日收集了超过10万张选票，向前倒填了选票日期, 即使他们过了法定投票期限选票仍被清点。由此可知，威斯康星州大选计票舞弊也是比较严重，这些超过大选法定截止日期的选票都是投给拜登的。举办发布会的托马斯莫尔协会(Thomas More Society)宣布已经就调查结果联系了执法部门。此次大选是美国有史以来舞弊最严重的选举，也是一起被严重操纵的选举。相信随着川普政府在排干沼泽的过程中，会尽快将美国的那些“叛国者”绳之以法。
 
-特朗普告诉别人，他担心拜登的司法部可能会寻求对他的报复，针对他五个孩子中年长的三人——小唐纳德·特朗普(Donald Trump Jr.)、埃里克·特朗普(Eric Trump)和伊万卡·特朗普(Ivanka Trump)——以及伊万卡·特朗普的丈夫、白宫高级顾问贾里德·库什纳(Jared Kushner)。
+***原文翻译*：**
+
+#### 邮政分包商得知11月4日在威斯康星州收集了10万多张选票，并将日期追溯到选举日
+
+[!\[\]()!\[\](https://spark.adobe.com/page/d7Q8fJZbrI0Vl/images/c2e91ac9-783c-435a-9f99-c8800b1b3411.jpg?asset_id=4b7e3f01-3813-4b30-bde1-6f4f6d885b0a&amp;img_etag=%2238177fd8e53aa942381c9d3b06df832e%22&amp;size=2560)](https://spark.adobe.com/page/d7Q8fJZbrI0Vl/images/c2e91ac9-783c-435a-9f99-c8800b1b3411.jpg?asset_id=4b7e3f01-3813-4b30-bde1-6f4f6d885b0a&amp;img_etag=%2238177fd8e53aa942381c9d3b06df832e%22&amp;size=1024)
+
+周二，新的选举舞弊检举者出现，其中包括一名邮政分包商，他得知，在选举日的第二天威斯康星州收集了超过10万张选票，并把日期提前，以便这些选票仍被清点。
+
+这一新信息是在托马斯莫尔协会(Thomas More Society)的阿米斯塔德计划(Amistad Project)召开的、多个检举人参加的新闻发布会上公布的，该协会是一个全国性的宪法诉讼组织。
+
+**邮政分包商内森•皮斯（Nathan Pease）说两个单独的邮政工人在两个不同的场合告诉他, 美国邮政总局11月4日上午在威斯康辛州收集超过10万张选票，倒填了选票日期, 使得这些选票即使过了法定期限仍被清点。**
+
+“皮斯先生宣誓声明的时间与11月5日上午戏剧性的丢弃选票时间一致，拜登从中受益, 这在专家群体中引起了关于延迟插入数万张选票的统计概率的重大争议,“阿米斯塔德计划(Amistad Project)曾在一份声明中阐述到。
+
+在新闻发布会上，他们宣布已经就调查结果联系了执法部门。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/d7Q8fJZbrI0Vl/images/e6c44ca4-190f-4539-9aae-6e323a0f4a42.jpg?asset_id=49e80945-81bf-429f-a959-787600d1f4b7&amp;img_etag=%22b7dad18aa8c31115d831b704dec59ba5%22&amp;size=1024)](https://spark.adobe.com/page/d7Q8fJZbrI0Vl/images/e6c44ca4-190f-4539-9aae-6e323a0f4a42.jpg?asset_id=49e80945-81bf-429f-a959-787600d1f4b7&amp;img_etag=%22b7dad18aa8c31115d831b704dec59ba5%22&amp;size=1024)
+
+其他的检举人声明还包括，可能有数十万张已完成的缺席选票被通过三条州线运输，一辆满载选票的拖车在宾夕法尼亚州消失。
+
+该组织还有其他证据，包括宾夕法尼亚州的邮政工作人员被指示将川普的邮件——包括竞选宣传品——放入无法投递的垃圾箱，同时确保拜登的邮件及时送达。
+
+更多关于Amistad计划的信息可以在这里找到。
+
+新闻发布会正在进行中，请在这里观看现场直播：
 
 
 
-> 据两名知情人士透露，特朗普总统已同顾问们讨论是否预先赦免他的子女、女婿以及私人律师鲁道夫·朱利安尼。
-> 每届政府结束时通常都会进行一波赦免，尤其是像特朗普这样被卷入争议的政府。由于担心拜登司法部可能会对他报复，特朗普正寻求预先赦免自己的家人和私人律师朱利安尼。[https://t.co/0qJDdfw4Sx](https://t.co/0qJDdfw4Sx)
-> — 纽约时报中文网 (@nytchinese) [December 2, 2020](https://twitter.com/nytchinese/status/1334061245155065856?ref_src=twsrc%5Etfw)
+[原文链接](https://www.thegatewaypundit.com/2020/12/postal-subcontractor-told-100000-ballots-wisconsin-gathered-nov-4-postdated-election-day/)
 
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
+[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-[ABC新闻周二早些时候报道](https://abcnews.go.com/Politics/white-house-vetting-pardon-requests-push-trump-preemptively/story?id=74482289)《白宫审查赦免请求，因为有人推动特朗普主动赦免家庭》
+[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-随着白宫助手对选举结果达成共识，并将焦点转移到特朗普总统执政的剩余几周，多个消息人士告诉美国广播公司新闻，特朗普的多位盟友和其他律师已经开始了向西翼请愿的运动，希望获得赦免 对于那些可能会受到总统同情的人。
+编辑 【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/d7Q8fJZbrI0Vl/)
 
-消息人士称，那些可能获得宽恕的人从家庭成员到相关人员一直到老虎王。
+[!\[\]()!\[\](https://spark.adobe.com/page/d7Q8fJZbrI0Vl/images/060b8cff-e558-469c-b2b9-f7884c1b1709.jpg?asset_id=68268878-2b35-4295-a4a5-77d7b2a946a2&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/d7Q8fJZbrI0Vl/images/060b8cff-e558-469c-b2b9-f7884c1b1709.jpg?asset_id=68268878-2b35-4295-a4a5-77d7b2a946a2&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
-As White House aides come to terms with the election results and turn their focus to the remaining weeks of [President Trump’s](https://abcnews.go.com/alerts/donald-trump) administration, multiple sources tell ABC News that various Trump allies and other lawyers have begun a campaign to petition the West Wing in hopes of securing pardons for those who might receive a sympathetic reception from the president.
-
-Those in the mix for a potential pardon have ranged from family members and associates all the way to the Tiger King, according to sources.
-
-评论：看到Fake News一哄而上的新闻我们就放心了。
-
-但是，过度的自信就是自负。川普智商156, 如果没有为家人和他的团队未雨绸缪，有Plan B也是说不过去的。所以寻求赦免家人及他的重要助手在情理之中。
-
-我们能做的就是为川普以及正义之师祈祷，愿他遵循神的旨意不偏离神的道路，一切交托在神大能的手中。
-
-澳喜文章[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
-
-欢迎加入澳喜农场：[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13172650/IMG_3537-1.jpg)
-3+
+0

@@ -1,28 +1,105 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥称赞塔利班与阿富汗政府达成和平协议
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/611446/)
+## 《钉子记》
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/614837/)
 
-翻译：康州盘古农场-黎明的光芒
-校对：康州盘古农场-一花一世界
-审核：康州盘古农场-V
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02174058/Picture1-2-1.png)来源:( Nicholas Kamm/Pool 图片来自 AP)
-美国国务卿迈克-蓬佩奥（Mike Pompeo）对塔利班和阿富汗政府于本周达成的和平协议表示赞赏。
+*作者：X-Wing飞得更高*
 
-“美国欢迎阿富汗伊斯兰共和国和塔利班谈判团队今天宣布的协议。 该协议是自2020年9月12日以来进行的阿富汗和平谈判的一个重要里程碑。”蓬佩奥发表的声明如是陈述。”该协议编纂了双方自会谈开始以来一直在谈判的规则和程序。 相关团体制定了一系列重要决议，以指导他们就政治路线和全面停火进行谈判。”
+*校对：宁缺｜审核：海阔天空｜PAGE：玄天生；*
 
-“我们祝贺双方坚持不懈，致力达成共识。 这一成就表明，阿富汗伊斯兰共和国和塔利班双方是认真的，能够克服分歧，并愿意解决疑难问题。 现已取得的成就为他们在政治层面成功解决四十多年的冲突带来希望。 美国感谢卡塔尔作为会谈的东道主和调解人所发挥的作用，”他继续说。”在政治路线和停火方面迅速取得进展是阿富汗人民最想要的。 美国将与国际社会大多数国家一道，继续支持和平进程，以实现这一目标。 随着政治路线和永久停火谈判的开始，我们也将与各方一道努力，争取大量减少暴力和实现停火。”
+**说起“钉子”，稍微上一点年龄的中国人难免会想起下面几个典故：**
 
-大约两周前，蓬佩奥访问了卡塔尔，在那里他会见了塔利班和阿富汗领导人。
+**“永不生锈的螺丝钉”**
 
+[!\[\]()!\[\](https://spark.adobe.com/page/vZ2MZE5jlinas/images/04d41c9e-d068-457e-bbb4-96c66871221b.jpg?asset_id=1166b19d-ca15-4ddc-8992-215b83c005d8&amp;img_etag=%22cb2f5620ef65bf5973ab8ae5890b42dd%22&amp;size=1024)](https://spark.adobe.com/page/vZ2MZE5jlinas/images/04d41c9e-d068-457e-bbb4-96c66871221b.jpg?asset_id=1166b19d-ca15-4ddc-8992-215b83c005d8&amp;img_etag=%22cb2f5620ef65bf5973ab8ae5890b42dd%22&amp;size=1024)
 
+做好事从不留名的雷锋，助人为乐，为人民服务。做“社会主义永不生锈的螺丝钉”的雷锋精神，可以说至少教育了几代中国人。笔者年轻时候也读过雷锋故事，为雷锋每天做好事、一辈子做好事的精神感动过。且不论雷锋的故事是否有杜撰或夸大成分，雷锋精神是闪光的，当时的感动是真切的。
 
-> Met with both Taliban and Islamic Republic of Afghanistan’s negotiating teams in Doha. I commend both sides for continuing to negotiate and for the progress they have made. I encourage expedited discussions on a political roadmap and a permanent and comprehensive ceasefire. [pic.twitter.com/3UhZoGFZoX](https://t.co/3UhZoGFZoX)
-> — Secretary Pompeo (@SecPompeo) [November 21, 2020](https://twitter.com/SecPompeo/status/1330234557396901888?ref_src=twsrc%5Etfw)
+遗憾的是，才过去几十年，如今的中国城市马路边摔倒个老太太，几乎没有路人敢去搀扶，何其悲哀！今天再有人说某人是活雷锋，多是贬损其人傻缺，心想现在哪个人不是人不为己，天诛地灭，傻帽才免费帮助人。
 
+如今的我仍然助人为乐，但不要说我是雷锋，也不要再唱“东北人都是活雷锋”，因为大概率会遭到回怼：你丫才是雷锋，你全家都是雷锋！
 
-国务卿蓬佩奥：在多哈会见了塔利班和阿富汗伊斯兰共和国的谈判小组。我赞赏双方继续进行谈判并取得进展。并鼓励双方加快关于政治路线和永久全面停火的讨论。
-原文链接：[https://townhall.com/tipsheet/katiepavlich/2020/12/02/pompeo-applauds-agreements-between-the-taliban-and-afghan-government-n2580929](https://townhall.com/tipsheet/katiepavlich/2020/12/02/pompeo-applauds-agreements-between-the-taliban-and-afghan-government-n2580929)
+“钉子户”
 
-0
+[!\[\]()!\[\](https://spark.adobe.com/page/vZ2MZE5jlinas/images/22c7017a-8fc2-49e2-bc4a-ce14264bbe5d.jpg?asset_id=a2e3d7ee-0a99-43df-836a-b4ace1e10e2a&amp;img_etag=%22c553dda949a75f24eff631692e41a54f%22&amp;size=2560)](https://spark.adobe.com/page/vZ2MZE5jlinas/images/22c7017a-8fc2-49e2-bc4a-ce14264bbe5d.jpg?asset_id=a2e3d7ee-0a99-43df-836a-b4ace1e10e2a&amp;img_etag=%22c553dda949a75f24eff631692e41a54f%22&amp;size=1024)
+
+这是位于重庆杨家坪，被中共国媒体称为“史上最牛钉子户”的房子，摄于2007年3月28日。没有任何其他照片比上面这一张更能体现出“钉子户”的定义，尤其是插在屋顶的红旗，以及“公民的合法的私有财产不受侵犯”标语，让这张照片更具冲击力。
+
+钉子户总是与强拆、“拆哪儿”、城管、暴力、维权以及经常出现的血泪上访，被精神病，甚至人命联系在一起。当私有财产得不到真正的保护和尊重，王健林和马云这样的亿万富豪，和钉子户又有多大不同？不过是大号螺丝钉，在我的润滑机车上多待会儿。
+
+国外其实也不乏“钉子户”，某个人的土地或房产同样会成为政府或某私人投资大项目中的“眼中钉”。但我们看到的，多是个人权利战胜政府或资本力量，个人私有财产受到法制保护。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/vZ2MZE5jlinas/images/e8ed77a2-faa5-4048-9b27-b9a65fc1df12.png?asset_id=84363fe0-aab4-4064-86ad-9f82c18b24c4&amp;img_etag=%22f7e577cf27879eb512b0809b3e140817%22&amp;size=2560)](https://spark.adobe.com/page/vZ2MZE5jlinas/images/e8ed77a2-faa5-4048-9b27-b9a65fc1df12.png?asset_id=84363fe0-aab4-4064-86ad-9f82c18b24c4&amp;img_etag=%22f7e577cf27879eb512b0809b3e140817%22&amp;size=1024)
+
+美国纽约曼哈顿有一处仅只有0.3平方米的地方，被称为美国最顽强的“钉子户”。业主将这一小片地方贴上瓷砖，宣誓它属于自己的地盘。经过百年，美国政府仍无计可施，时至今日，这块地方还属于私人地盘，不属于政府所有。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/vZ2MZE5jlinas/images/d0c82cd0-44e9-49ed-adf8-212a5692c03e.jpg?asset_id=64234cb7-dddb-4832-9725-6c80dbf7481a&amp;img_etag=%22ba22978c03a502e7ef39f4df113c06ca%22&amp;size=2560)](https://spark.adobe.com/page/vZ2MZE5jlinas/images/d0c82cd0-44e9-49ed-adf8-212a5692c03e.jpg?asset_id=64234cb7-dddb-4832-9725-6c80dbf7481a&amp;img_etag=%22ba22978c03a502e7ef39f4df113c06ca%22&amp;size=1024)
+
+卓别林主演的《摩登时代》中也有螺丝钉（螺丝帽）的片段。卓别林扮演的流水线上的工人在工厂里成为了巨大的机器旁边的一颗“螺丝钉”。他的工作正是在流水线上不断地拧螺丝，从上班直到下班，以至于但凡看到圆形、六角形的东西都条件反射地要用扳手拧上一拧。
+
+“个人成为机器的附属物和工业化的牺牲品，揭露了资本主义的罪恶”。很长时间以来，是评价这部电影的标准用语。
+
+但《摩登时代》最为光彩的部分是人性的光辉。单个的、渺小的最底层个体，仍然憧憬美好的生活和爱情，就算被精神病。“个人对于幸福的追求”，作为这部电影的开头语，让它脱离了冰冷的金属和机械，成为有温暖人文精神和人情味的经典。
+
+很多人一定听过并理解这么一句歇后语：**棺材板上的钉子**，或**板上钉钉**，意思是事情已经决定，已经成了事实，不可更改。当棺材板上钉上钉子，意味这事情再也不可改变，钉死了，定了！
+
+曾经有一篇2019年8月的红色文章，题目是《香港棺材板的最后一枚钉子，被本港的废青们钉死了》，那个时候正是香港民众走上街头伸张五大诉求，抗议“国安法”的时期。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/vZ2MZE5jlinas/images/1142b81d-cd3d-4841-bf3a-642a96035b98.jpg?asset_id=fc620075-986c-4847-8b7e-85e342bbdd18&amp;img_etag=%223013601b906fbf5352c48ee7fc4f8927%22&amp;size=2560)](https://spark.adobe.com/page/vZ2MZE5jlinas/images/1142b81d-cd3d-4841-bf3a-642a96035b98.jpg?asset_id=fc620075-986c-4847-8b7e-85e342bbdd18&amp;img_etag=%223013601b906fbf5352c48ee7fc4f8927%22&amp;size=1024)
+
+《香港基本法》第二条规定，全国人民代表大会授权香港特别行政区按照本法的规定实行高度自治，享有行政管理权，立法权，独立的司法权和终审权。这种“三权分立”可以说是香港的核心价值，虽然与西方不完全相同。
+
+香港政府对三权分立制度的否定，开始于2019年反送中运动及2020年6月30日《港版国安法》通过后，
+
+林郑月娥政府不必说了，唯北京马首是瞻；
+
+随着“秋后算帐”，港府抓捕参与过反送中和反国安法运动人士，以及国安法涉及到全球范围的反对人士，香港的司法独立不再；
+
+国安法强行通过仅五个月后的11月，在中国最高立法机构授予林郑月娥政府取消被视为“不爱国”或违反效忠誓言议员资格的权利后，林郑月娥政府罢免了四位反对派立法会议员领导者郭荣铿、梁继昌、郭家麒和杨岳桥。香港立法会一直是保留香港当地民主自由“一国两制”法律框架的标志。香港立法会四名议员被剥夺议席，民主派集体辞职抗议，使立法机构再也没有唱对台戏的反对派了。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/vZ2MZE5jlinas/images/6394e7fc-68d8-4e3a-a1cd-7f5d2df3f737.jpg?asset_id=b5b61a4d-37c9-455a-b0ca-099f0d9c5540&amp;img_etag=%224668d60432dd6e446e2cd8fed72322ae%22&amp;size=1024)](https://spark.adobe.com/page/vZ2MZE5jlinas/images/6394e7fc-68d8-4e3a-a1cd-7f5d2df3f737.jpg?asset_id=b5b61a4d-37c9-455a-b0ca-099f0d9c5540&amp;img_etag=%224668d60432dd6e446e2cd8fed72322ae%22&amp;size=1024)
+
+随着香港三权分立中的最后一根支柱立法会的拆解，终于统一了声音，再听不到唱反调的声音，但这无疑是香港棺材板上的最后一颗钉子。司法，立法和行政三柱崩坏倒塌，香港与内地城市还有什么分别，还会有谁认同香港仍是一个全球性的、开放、自由的城市？
+
+林郑月娥在年度施政报告中宣布，会加强社区及中小学的国家安全教育。司法部将实施一个10年计划，重点是教育年轻人对法治的“正确理解”，并培养“守法意识”。教育局的目标是实施一项课程，旨在灌输中国人的认同感和对国家的责任感。
+
+耳边不觉响起“明天会更好”的伴奏，荧幕上出现镰刀锤子，大大的新一代螺丝钉闪闪发光，永不生锈。
+
+**华为的棺材板，缺哪颗钉子？**
+
+华为的芯片供应因美国制裁而断绝，获得关键零组件的能力也大打折扣。华为禁令仍然生效，随着美国不断扩大实体制裁中国公司的名单，其中包括华为的供应商伙伴，再度面临完全制裁。
+
+到底华为什么时候完蛋？拭目以待“棺材板上最后一根钉子”。
+
+**希德尼·鲍威尔（Sidney Powell）**
+
+这名美国女律师团队不断公开民主党选票造假舞弊石锤证据，不断发掘猛料穷追猛打，这种锲而不舍的精神，也颇似钉子。
+
+希望希德尼再接再厉，有铁锤重锤加持，重磅直击，彻底暴露造假事实，把拜登和民主党彻底钉死在棺材里，按照英语的习惯说法，也是钉死，搞定它 — Nail it！
+
+**闫丽梦博士**
+
+我们的神仙姐姐闫丽梦博士也似一颗钉子，抓证据，认死理，不放松，不退缩。
+
+两份详实的病毒起源分析报告就是敲打在共产党棺材板钉子上的重锤。冲击波锤击到CCP掩盖病毒来源的核心，振聋发聩的回响不断扩散到全世界。
+
+为了真相而放弃一切，为了人类的安全和命运而挺身而出，勇敢无畏的闫博士将得到全世界人民的尊敬和支持，她大无畏的持续行动将把CCP钉在历史的耻辱柱上。
+
+![]()![](https://spark.adobe.com/page/vZ2MZE5jlinas/images/68abbf13-5e3a-4c76-8cd1-b2c51e0ab06b.jpg?asset_id=8b8d4f4f-bd16-4a26-a96e-41b1d6f9c090&amp;img_etag=%223b4439a6bccc8204188fc75612063e8f%22&amp;size=2560)
+
+毫无疑问，真正追随爆料革命的战友都认同七哥是CCP的“完美掘墓人”。
+
+文贵先生绝对是CCP棺材板上的最大号钉子，同时也是手持雷霆万钧重锤的“雷神”。喝着灭共酒，唱着灭共歌，正在一锤一锤落下，引领万千战友，一锤一锤把钉子钉进CCP的棺材板。务求板上钉钉，不留一丝缝隙，彻底灭共，将CCP埋葬到历史坟墓里。如果一定要给CCP加一个埋葬期限，战友们的愿望是：一万年。
+
+【文章仅代表个人观点】
+
+[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[GTV UK 英国伦敦喜庄园电视台](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑 【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/vZ2MZE5jlinas/)
+[!\[\]()!\[\](https://spark.adobe.com/page/d7Q8fJZbrI0Vl/images/060b8cff-e558-469c-b2b9-f7884c1b1709.jpg?asset_id=68268878-2b35-4295-a4a5-77d7b2a946a2&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/d7Q8fJZbrI0Vl/images/060b8cff-e558-469c-b2b9-f7884c1b1709.jpg?asset_id=68268878-2b35-4295-a4a5-77d7b2a946a2&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+1+

@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 11/30/2020 陆军上校宣誓指证选票机被联网，并将数据传输至海外法兰克福
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/611173/)
+## 【字幕】12/02/2020文贵：川普总统一定是华盛顿级的华盛顿
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/614597/)
 
-By: 【秘密翻译组G-Translators】
+制作： 【彩虹桥】
 
-0
+2+

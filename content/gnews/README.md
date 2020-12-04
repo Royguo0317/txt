@@ -12,147 +12,147 @@
 
 
 
-### [川普总统重磅演讲: 民主党在疫情的掩护下进行选举欺诈，中共对美国的混乱幸灾乐祸,捍卫宪法是总统的首要职责](/content/gnews/1/README.md)
- ` GM101`
+### [视频中共特务 滕彪](/content/gnews/1/README.md)
+ ` 纽约香草山农场`
 
-### [鲍威尔重磅讲话：中共国用金钱操控美国大选，白帽黑客在中国、伊朗、香港等地参与选票欺诈](/content/gnews/2/README.md)
- ` GM101`
-
-### [林伍德呐喊:今天就像1776年的美国，我们不会让中共夺走我们的国家](/content/gnews/3/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [川普总统：“这可能是我做过的最重要的演讲”](/content/gnews/4/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [视频路德时评（路安墨谈）: 12/2/2020&#8211;环球此时突然撰文“警惕中共结算系统与SWIFT被美脱钩”意味着什么？美国务院官网为什么要突然刊文解释中共军民融合政策，替什么行动做铺垫？](/content/gnews/5/README.md)
- ` Wdg0606`
-
-### [《路德社》每日简报晚间版 2020.12.01&#8211;NewYork Time](/content/gnews/6/README.md)
- ` 路德社精选`
-
-### [《路德社》精选新闻快讯：鲍威尔告诫国会“尽管疫苗的好消息不断，但前景仍然极不确定”](/content/gnews/7/README.md)
- ` 路德社精选`
-
-### [视频2020年12月2日CCP冠状病毒大流行第312集](/content/gnews/8/README.md)
- ` GM30`
-
-### [中共血统的前德国副总理菲利普·罗斯勒变身越南血统在越继续蓝金黄之路](/content/gnews/9/README.md)
+### [CCP意欲开展疫苗外交，中共已承诺向全球各国提供数百万支冠状病毒疫苗](/content/gnews/2/README.md)
  ` 首尔喜韩农场`
 
-### [【文字版】路德时评2020.12.02早间（路安墨谈）:环球此时突然撰文“警惕中共结算系统与SWIFT被美脱钩”意味着什么？美国务院官网为什么要突然刊文解释中共军民融合政策，替什么行动做铺垫？](/content/gnews/10/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [视频12/02/2020 每日快讯](/content/gnews/11/README.md)
- ` Caihongqiao`
-
-### [视频挺川大游行&#8211;采访郭先生](/content/gnews/12/README.md)
+### [【热点播报】郭文贵：中国人的灾难真正开始了](/content/gnews/3/README.md)
  ` 纽约香草山农场`
 
-### [【战友心声】我与爆料革命的缘分](/content/gnews/13/README.md)
+### [制裁升级 共产党员及其家属美签即将失效](/content/gnews/4/README.md)
+ ` GM64`
+
+### [【热点播报】比尔·克林顿前高级助手实锤爆料克林顿和儿童色情狂爱泼斯坦关系不一般](/content/gnews/5/README.md)
  ` 纽约香草山农场`
 
-### [CNN主持人和拜登顾问均参加了习近平与中共主持的一次重要会议](/content/gnews/14/README.md)
+### [1203 郭文贵先生直播摘要](/content/gnews/6/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [制裁升级 共产党员及其家属美签即将失效](/content/gnews/7/README.md)
+ ` wenwu`
+
+### [佐治亚州选举被计算机和缺席选票欺诈所窃取 12/3](/content/gnews/8/README.md)
+ ` Mike迈克小哥`
+
+### [军事特种部队/情报部门取代FBI/中情局/司法部 12/3](/content/gnews/9/README.md)
+ ` Mike迈克小哥`
+
+### [塔克·卡尔森（Tucker Carlson）：冠状病毒大流行是中共国受唆于背后强大实力蓄意作恶欺诈全球的结果](/content/gnews/10/README.md)
  ` 康州盘古喜马拉雅农场`
 
-### [【热点播报】美众议院全票通过法案严令在美上市中国公司遵守美国会计监督委员会审计](/content/gnews/15/README.md)
+### [【热点播报】决意废除230条款，川普要大开杀戒](/content/gnews/11/README.md)
  ` 纽约香草山农场`
 
-### [视频【葛底斯堡听证会】部分证人发言 (中英文字幕)](/content/gnews/16/README.md)
+### [每日重要Twitter播报（中文）12/01期（视频+ PDF下载）](/content/gnews/12/README.md)
+ ` GM62`
+
+### [美国家情报局长: 中国是（美国）国家安全的首要威胁](/content/gnews/13/README.md)
+ ` 喜马拉雅巴黎七星农场`
+
+### [康希诺生物高管参与中共“千人计划”](/content/gnews/14/README.md)
+ ` gnewscanada`
+
+### [突发重磅！美国务院声明中共最大的恐惧来自人民的思想言论自由，美国将与盟友合作捍卫香港及中国人民的权利和自由](/content/gnews/15/README.md)
+ ` GM101`
+
+### [要重新计票时，富尔顿县的多米尼服务器却瘫痪了！](/content/gnews/16/README.md)
+ ` 英國倫敦喜莊園 Himalaya UK`
+
+### [中共在疫情初期每日隐瞒上千例新冠确诊](/content/gnews/17/README.md)
+ ` 英國倫敦喜莊園 Himalaya UK`
+
+### [视频12/2/2020 郭先生直播（节选）：爆料革命的伟大之处其一在于让世人明白中国人不等于中共、中共不代表中国人](/content/gnews/18/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【深度报道】文化产业: 第二道国防线](/content/gnews/19/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [视频佐治亚州的监控录像显示在计票人员离开后塞满了选票的箱子从桌子下面被拿出来计票](/content/gnews/20/README.md)
  ` GM127`
 
-### [突发新闻： 川普总统发表最重要演讲](/content/gnews/17/README.md)
- ` gnewscanada`
+### [洛杉矶房地产开发商承认向竞选活动捐款来洗钱 12/3](/content/gnews/21/README.md)
+ ` Mike迈克小哥`
 
-### [川普律師团队认为总檢察長不作为](/content/gnews/18/README.md)
- ` Himalaya Australia`
+### [《钉子记》](/content/gnews/22/README.md)
+ ` 英國倫敦喜莊園 Himalaya UK`
 
-### [War Room 555 总结](/content/gnews/19/README.md)
+### [世界各地计划接种中共病毒疫苗，警惕疫苗沦为牟利的“毒药”](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美众议院通过法案迫使中共国在美上市公司接受审计监督或退市](/content/gnews/20/README.md)
- ` vog_dongdong_vog`
+### [拜登邀请福奇加入冠状病毒应对小组 12/3](/content/gnews/24/README.md)
+ ` Mike迈克小哥`
 
-### [爆革星评：美国和中共国企业和企业家的巨大差别](/content/gnews/21/README.md)
+### [丢掉幻想，进入战斗！](/content/gnews/25/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [美国制裁支持委内瑞拉马杜罗的中国电子进出口公司](/content/gnews/26/README.md)
+ ` 英國倫敦喜莊園 Himalaya UK`
+
+### [CNN总裁禁止报道针对拜登父子的恋童癖指控 12/3](/content/gnews/27/README.md)
+ ` Mike迈克小哥`
+
+### [白宫通讯总监Alyssa Farah辞职 12/3](/content/gnews/28/README.md)
+ ` Mike迈克小哥`
+
+### [邮政分包商揭发威斯康星州10万多张选票的舞弊](/content/gnews/29/README.md)
+ ` 英國倫敦喜莊園 Himalaya UK`
+
+### [加州州长命令所有居民呆在家里 12/3](/content/gnews/30/README.md)
+ ` Mike迈克小哥`
+
+### [快速扩张的共军具有全球野心](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya UK`
+
+### [圣地亚哥查获350万美元现金和毒品 12/3](/content/gnews/32/README.md)
+ ` Mike迈克小哥`
+
+### [签署的选举结果无效，乔治亚州州长坎普现在该怎么办？](/content/gnews/33/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [视频共和党的选举监督员离开后,佐治亚州现场视频 12/3](/content/gnews/34/README.md)
+ ` Mike迈克小哥`
+
+### [美国使用的COVID试剂盒来自于华大基因，奥巴马拜登为其大开方便之门](/content/gnews/35/README.md)
+ ` 英國倫敦喜莊園 Himalaya UK`
+
+### [多数选民反对科技巨头的言论管制](/content/gnews/36/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [川普政府起诉脸书Facebook 12/3](/content/gnews/37/README.md)
+ ` Mike迈克小哥`
+
+### [世界顶尖网络安全专家破解拜登选票造假过程](/content/gnews/38/README.md)
+ ` 英國倫敦喜莊園 Himalaya UK`
+
+### [密歇根州数据分析显示，缺席选票被电脑操纵](/content/gnews/39/README.md)
+ ` 英國倫敦喜莊園 Himalaya UK`
+
+### [佐治亚州五万多非法选票被识别](/content/gnews/40/README.md)
  ` gnewscanada`
 
-### [蓬佩奥称赞塔利班与阿富汗政府达成和平协议](/content/gnews/22/README.md)
+### [佩洛西与麦康奈尔表示尽快完成综合法案和COVID救济法案 12/3](/content/gnews/41/README.md)
+ ` Mike迈克小哥`
+
+### [脸书、谷歌将面临更多反垄断诉讼](/content/gnews/42/README.md)
+ ` 英國倫敦喜莊園 Himalaya UK`
+
+### [中共病毒让越来越多的加拿大人陷入绝望情绪](/content/gnews/43/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [视频【字幕】12/02/2020文贵：川普总统一定是华盛顿级的华盛顿](/content/gnews/44/README.md)
+ ` Caihongqiao`
+
+### [威斯康星州最高法院拒绝听取川普总统的选举诉讼 12/3](/content/gnews/45/README.md)
+ ` Mike迈克小哥`
+
+### [真的会很快：川普总统赢得2020大选的（13种）方式仍然多过拜登（10种）](/content/gnews/46/README.md)
  ` 康州盘古喜马拉雅农场`
 
-### [5个月的《国安法》如何改变了香港](/content/gnews/23/README.md)
- ` 倫敦英喜莊園 Himalaya UK`
-
-### [中共立法“反浪费”，同胞们为生存需备粮](/content/gnews/24/README.md)
- ` HimalayaRussia`
-
-### [每日新闻看点-2020年12月1日](/content/gnews/25/README.md)
+### [监控录像曝光：投票观察员离开后，预先藏好塞满选票的手提箱被取出再计票](/content/gnews/47/README.md)
  ` gnewscanada`
 
-### [从“扬州十日嘉定三屠”到香港陨落](/content/gnews/26/README.md)
- ` gnewscanada`
-
-### [230法案即将寿终正寝，九层妖塔旋即无处遁形](/content/gnews/27/README.md)
- ` HimalayaRussia`
-
-### [欧盟与英国在美国大选前就已经知道拜登将盗取选举](/content/gnews/28/README.md)
- ` gnewscanada`
-
-### [假新闻们纷纷发文川普寻求赦免家人](/content/gnews/29/README.md)
- ` Himalaya Australia`
-
-### [习近平中南坑开会连续审议三个文件，显示文贵先生直播中提到的重要情报](/content/gnews/30/README.md)
- ` HimalayaRussia`
-
-### [林·伍德与腐败勇敢斗争，AOC也有麻烦](/content/gnews/31/README.md)
- ` 倫敦英喜莊園 Himalaya UK`
-
-### [林肯总统关于感恩节的宣言 &#8211; 美国的信仰传统](/content/gnews/32/README.md)
- ` GM80`
-
-### [【三票专栏】亨廷顿的学生福山为什么改变观点](/content/gnews/33/README.md)
- ` 纽约香草山农场`
-
-### [密歇根州Dominion公司的IT承包商：有些选票被扫描了8-10次](/content/gnews/34/README.md)
- ` gnewscanada`
-
-### [视频11/30/2020 郭先生视频：中海油在海外各港口及中共使领馆地下运作大型间谍机构](/content/gnews/35/README.md)
- ` 秘密翻译组G-Translators`
-
-### [视频11/30/2020 郭先生直播：中共国超过一半的人口生活在极度贫困线之下，却要向全世界输出“脱贫经验”](/content/gnews/36/README.md)
- ` 秘密翻译组G-Translators`
-
-### [视频12/2/2020 今日要闻同传⎢澳洲SKYNEWS节选 + 福克斯LOU DOBBS &amp; HANNITY &amp; TUCKER 等节目+ 玛丽亚节目即时同传](/content/gnews/37/README.md)
- ` 秘密翻译组G-Translators`
-
-### [北京公布新最低工资标准，不足以支付生活费](/content/gnews/38/README.md)
+### [失业金申领人数创下大流行以来新低，即使感染人数上升，招聘仍在继续](/content/gnews/48/README.md)
  ` 康州盘古喜马拉雅农场`
-
-### [中共外交部发假图被戳破恼羞成怒，继而用微信封杀澳大利亚总理](/content/gnews/39/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [视频12/2/2020 同声传译⎢班农战斗室EP554+EP555+EP556](/content/gnews/40/README.md)
- ` 秘密翻译组G-Translators`
-
-### [视频11/30/2020 重磅实锤证据： Dominion代表通过将USB插入一台外部电脑来操纵Gwinnett County计票中心的数据](/content/gnews/41/README.md)
- ` 秘密翻译组G-Translators`
-
-### [纽特·金里奇（NEWT GINGRICH）: 虚假新闻媒体是你的死敌，试图控制你的生活](/content/gnews/42/README.md)
- ` 倫敦英喜莊園 Himalaya UK`
-
-### [林·伍德律师第一时间七问巴尔](/content/gnews/43/README.md)
- ` gnewscanada`
-
-### [视频11/30/2020 陆军上校宣誓指证选票机被联网，并将数据传输至海外法兰克福](/content/gnews/44/README.md)
- ` 秘密翻译组G-Translators`
-
-### [视频11/30/2020 珍娜·艾丽丝致亚利桑那州立法机构：你们是对抗大选腐败的仅有守护者](/content/gnews/45/README.md)
- ` 秘密翻译组G-Translators`
-
-### [英国自2021年9月起禁止安装新的华为5G设备](/content/gnews/46/README.md)
- ` 倫敦英喜莊園 Himalaya UK`
-
-### [视频11/30/2020 朱利安尼市长敦促亚利桑那州立法机构对神圣的选举权加以保护](/content/gnews/47/README.md)
- ` 秘密翻译组G-Translators`
-
-### [视频11/30/2020 川普总统在亚利桑那州关于2020年大选大规模舞弊的听证会上的讲话全文](/content/gnews/48/README.md)
- ` 秘密翻译组G-Translators`
 

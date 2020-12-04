@@ -1,39 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统：“这可能是我做过的最重要的演讲”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/611528/)
+## 制裁升级 共产党员及其家属美签即将失效
+` GM64` [轉載自GNews](https://gnews.org/zh-hans/615239/)
 
-- 编辑：Victor Torres、文顺
+内新闻：α-Vega
+素材：两只小猪 WENWU
+校对：老白
 
+路透12月3日报导，美国政府2日对中国共产党党员及其家人发出赴美旅行限制规定。知情人士指出，这一新政策将共产党员及其家人旅行签证的最长有效期限制在一个月，且只能单次入境。
 
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+此举意味着，共产党员及其家属原本持有有效期最长为10年的美国签证，将在一个月后失效。报导称，新的签证指导原则允许美国官员根据申请材料和面谈来确定某人的党籍状态。
 
-西班牙2020年12月3日电/西喜社/——川普总统周三在线发表演讲，谈2020年大选受到欺诈的影响。
+外交部华春莹表示，世人看得非常清楚，这是美国内一些极端反华势力出于强烈意识形态偏见和根深蒂固的冷战思维，升级对中国政治打压的行为。中方对此坚决反对。希望美方同中方共同努力，通过对话和沟通增进对彼此的正确认知，共同推动中美关系健康稳定发展。
 
-他说：“如果我们不铲除欺诈行为，即在我们2020年选举中发生的巨大而可怕的欺诈行为，我们就不会再有一个县。”
+中共外交部总是对美恶言相向，多次辱骂美国高层政要，却还希望美方能用对话沟通。在中共宣扬的仇美情绪下，网友的态度也十分扭曲，多数人很高兴能被美国制裁，也有一部分人，感谢美国为反腐做出贡献。此话题引起网友热议上了微博热搜，鲜有人究其原因意识到危机，还是一片岁月静好。
 
-川普总统说摇摆州选举结果包含大量非法投票。他说：“仅在摇摆州中，就有数百万张选票是非法的，如果情况属实，则必须立即推翻各个摇摆州的结果。”
+此前，美国移民局10月2日公布新的政策提要，表示禁止共产党员及其他极权政党成员寻求美国永久居民身份和入籍。9月，美国取消了千名赴美留学生签证，因涉嫌与中国军方有联系，借在美留学机会盗取知识产权。7月有报道指出，美国政府欲全面禁止党员入境。
 
-他在讲话中说：“我们在所有摇摆州都有重大违规或彻头彻尾的欺诈行为，其数量或投票数远远超过推翻该州结果所需要的。”
+美国对中共党员的态度，意味着中美全面脱钩开始，围猎中共进入最后阶段。美国政府原先计划的制裁逐步开始实施，中概股退市、货币脱钩在即，企业制裁名单越来越长…中共的谎言和欺骗，早已丧失“对话沟通”的机会，接下来是雨点般的重锤落下，彻底打击中共，也将唤醒麻木的国人。
 
-川普总统宣布：“作为总统，我没有比捍卫美国法律和宪法更高的职责。” 他说：“这就是为什么我决心保护我们的选举制度，而这个选举制度目前正受到协同的袭击和围困。”
+更多真相请查阅：
+GNews/G-TV /路德社
 
-**视频链接：**
-
-
-
-> Statement by Donald J. Trump, The President of the United States
-> 
-> Full Video: [https://t.co/EHqzsLbbJG](https://t.co/EHqzsLbbJG) [pic.twitter.com/Eu4IsLNsKD](https://t.co/Eu4IsLNsKD)
-> — Donald J. Trump (@realDonaldTrump) [December 2, 2020](https://twitter.com/realDonaldTrump/status/1334240039639937026?ref_src=twsrc%5Etfw)
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+新闻来源：
+[https://cn.reuters.com/article/us-china-cpc-travel-curb-1203-idCNKBS28D0RK
+https://c.m.163.com/news/a/FSUUS8Q50001899O.html](https://cn.reuters.com/article/us-china-cpc-travel-curb-1203-idCNKBS28D0RK
+https://c.m.163.com/news/a/FSUUS8Q50001899O.html)
 
 0
