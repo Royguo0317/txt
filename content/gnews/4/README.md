@@ -1,33 +1,113 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选主题专栏：朱利安尼市长呼吁为了维护宪法“挺身而出
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/615757/)
+## 《路德社》每日简报晚间版 2020.12.02&#8211;NewYork Time
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/615555/)
 
-《路德社》精选主题专栏组出品
+出品《路德社》 编辑：路德社精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04011702/12-2-pm-zh-scaled.jpg)
+1202晚间要闻-NewYorkTime
 
-据Newsmax美国时间12月2日周三报道，朱利安尼市长呼吁密歇根州政府在 “大规模欺诈 “中 “挺身而出“。
+Dec 02nd Brief-NewYorkTime
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04032806/ef0b539a-58c6-4006-ac2e-857e41715127.jpg)UNITED STATES – NOVEMBER 19: Rudolph Giuliani, attorney for President Donald Trump, conducts a news conference at the Republican National Committee, on lawsuits regarding the outcome of the 2020 presidential election on Thursday, November 19, 2020. (Photo By Tom Williams/CQ Roll Call via AP Images)
+听写：文宝Porsche明台 校对：瓦者翻译
 
-报道称，川普总统的私人律师周三敦促密歇根州共和党人向共和党控制的立法机构施压，要求他们 “挺身而出”，在发现民主党人乔.拜登（Joe Biden）通过”大规模欺诈“领先15.4万票的情况下将该州16张选举人票判给川普。
+recorded by: 文宝Porsche明台, revised by 瓦者, translated by: revised by:
 
-在美国东部时间下午6点在共和党主导的立法委员会作证前，鲁.朱利安尼指出 “大规模欺诈，遍布全国各地”。就在前一天，司法部长威廉.巴尔宣称司法部没有发现任何可能改变2020年大选结果的大范围选民欺诈的证据。
+**川普总统重磅演讲开启战前总动员**
 
-GOP立法领导人表示，他们不会试图更换密歇根州的选举人。
+**President Trump’s bomb speech initiates the pre-war general mobilization.**
 
-朱利安尼说，美国宪法授权立法机构直接任命选举人，尽管立法机构早已通过法律将选举人分配给普选获胜者。拜登以2.8个百分点的优势”赢得“该州。上周，该州两党选举委员会对结果进行了认证。
+他说这是我一生中最重要的演讲，守护美国的宪法和法律是我的首要职责，民主党利用起源于中国的病毒操纵了这场选举。
 
-“他们才是应该有勇气站出来的人，”朱利安尼谈到立法者时说。”有些州议员害怕地无法专心面对这个问题。你必须让他们记住，为了实现对宪法的誓言有时候需要遭受批评。有时甚至需要收到威胁。”
+川普在美国已经被超限战严重入侵的当下提出守护宪法，是为其即将采取的雷霆行动进行铺垫的一次战前总动员。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04032840/3228331776170298547.jpg)
+He said this is the most important speech in my life and guarding the U.S. Constitution and laws is my primary duty. The Democratic Party has rigged the election with virus originated from China.
 
-我们看到在报道中针对大选舞弊的法律战，朱利安尼市长呼吁的，是立法机构中的立法者们要拿出勇气，为了维护美国宪法迎接挑战，做对的事，而不是容易的事。正如现在摆在我们每个人面前的选择是同样的，随波逐流或许看来是容易的选择但也意味着被黑暗和邪恶吞没，反抗和发声或许很危险，但也带来了希望。在这个人类命运的十字路口，我们每个人都责无旁贷，我们都要面临选择，而只有正确的选择，才能带来新生。
+Trump’s proposal of the Guardian Constitution at a time when the United States has been severely invaded by the ultra-restricted warfare is a pre-war mobilization to pave the way for his upcoming Thunder operation.
 
-[原文引自](https://www.newsmax.com/us/michigan-gop-legislature-rudy-giuliani/2020/12/02/id/999757/)
+**林肯为什么伟大？**
 
-本文作者：文晓
+**Why Lincoln so great?**
+
+林肯说，一方宁可挑起战争也不愿让国家继续生存下去，另一方宁可迎战也不愿让国家灭亡。这场让美国受难4年、导致60万人死亡的暴力冲突，是上帝对250年奴隶制这种罪过的终极惩罚。上帝的意志是要让战争继续下去，直至让皮鞭抽出每一滴鲜血来偿还。
+
+林肯抛弃妇人之仁，敢于担当平定叛乱、废除奴隶制、保护领土完整，让美国成为了人类文明的灯塔。
+
+Lincoln said that one side would rather start a war than allow the country to survive, while the other side would rather fight than let the country perish. This violent conflict that has caused the United States to suffer for four years and killed 600,000 people is God’s ultimate punishment for 250 years of slavery. It’s God’s will to let the war continue until the whip draws every drop of blood to pay
+
+Lincoln abandoned the benevolence of women, dared to quell the rebellion, abolished slavery, and protected territorial integrity, making the United States a beacon of human civilization.
+
+**川普必然伟大！**
+
+**Trump definitely great**
+
+每个人是依赖于他人的自由来实现自己的自由。十四亿中国人没有自由，美国人也必然失去自由（正在失去中）。华尔街把十四亿奴隶当作积累财富工具的时代，该结束了。川普就是那个在国家被入侵、人民选举权被剥夺的危机时刻，站出来再次拯救美国的天选之子。
+
+Everyone is dependent on the freedom of others to achieve their own freedom. 1.4 billion Chinese have no freedom, and Americans will certainly lose their freedom (in the process of losing). The era when Wall Street used 1.4 billion Chinese slaves as a tool to accumulate wealth has to be over. Trump was the Chosen One who stood up to save the United States again at a time of crisis when the country was invaded and the people’s right to vote was denied.
+
+**林伍德对中共喊话**
+
+**Linwood calls out the CCP**
+
+他说，美国再次来到1776年建国时刻，我们将为自由而战，绝对不会让北京中共政府占领我们的国家，这里是美国，你们找错了对手。
+
+He said that the United States again has come to the founding moment of 1776. We will fight for freedom and will never let the Chinese Communist government in Beijing occupy our country. This is the United States and you got the wrong opponent.
+
+**众议院通过问责法，中概股退市或接受审计！**
+
+House of Representatives passed accountability law and China stocks will be delisted or subject to audited
+
+《外国公司问责法》如路德社29日预期的那样在众议院快速获得2/3的投票通过，证明了美国的利益集团，已经完成了与中共的正式切割，断掉了与中共最重要的利益勾连。中共失去了自己在美国的靠山，离灭亡就越来越近了。
+
+The “Holding Foreign Companies Accountable Act”, as Lude Media has predicted on the 29th, was quickly passed by 2/3 of the vote in the House of Representatives which proved the interest groups in the United States have completed their formal cut with the CCP, and have broken off their most important interests. The CCP has lost its backing in the United States and is getting closer and closer to extinction.
+
+**北约国防部长联席会议正式讨论中共（非中国）的威胁**
+
+**NATO Defence Ministers’ Joint Meeting formally discuss the CCP (not China) threat.**
+
+会议中讨论了中共改变国际组织职、控制其他国家基础设施及恶意贷款等经济侵略手段，称要联合应对其威胁。会议全程用CCP代指之前的中国。
+
+The meeting discussed how the CCP changes the role of international organizations, controls the infrastructure of other countries and adopts economic aggression such as malicious loans, and claimed to jointly respond to its threats.
+
+The CCP was used to refer to the previous China throughout the meeting.
+
+**美将重建当年执行原子弹轰炸任务的空军基地**
+
+**The U.S. will rebuild the air base where Atomic Bombing Missions were carried out**
+
+该基地位于关岛以北160公里的提尼安岛，当年向广岛和长崎投放原子弹的B-29轰炸机就从这里起飞。重建后，将和关岛的安德森基地互为备份，大大增强战场生存能力。
+
+The base is located on Tinian Island, 160 kilometers north of Guam, from where the B-29 bombers that dropped atomic bombs on Hiroshima and Nagasaki took off. After reconstruction, it will be a backup with the Anderson base in Guam, greatly enhancing the survivability of the battlefield
+
+金句：
+
+Quotes
+
+博博士：
+
+利益对资本主义很有诱惑力，中共就利用这点给华尔街输送利益。去年8月23号川普总统刚说脱钩，就受到各利益集团反对。华尔街想通过中共赚钱，但是一旦意识到中共不仅谋财还要害命，所有人都会参与灭共。
+
+Dr. Mo
+
+Benefits are very tempting to capitalism, and the CCP uses this to convey benefits to Wall Street. On August 23 last year, as soon as President Trump said that he would decouple, he was opposed by various interest groups. Wall Street wants to make money through the CCP, but once they realize that the CCP not only makes fortune on them but also kills them, everyone will participate in destroying the CCP.
+
+冠博士：
+
+川普今天明确说这是他最重要的一次演讲，就是在传递他要彻底解决大选舞弊、捍卫宪法的决心。
+
+Dr Guan:
+
+Trump made it clear today that this was his most important speech, which is to convey his determination to thoroughly resolve election fraud and defend the Constitution.
+
+**路德：中共之所以能活下去，就是因为美国某些利益集团要通过中共赚钱，要是美国不给机会，中共必死。**
+
+Lude:
+
+The CCP can survive because certain interest groups in the United States want to make money through the CCP. If the United States does not give it a chance, the CCP will die.
+
 审核校对：玫瑰天空
-上传排版：糖果儿
+
+上传排版：青葫芦娃
 
 0

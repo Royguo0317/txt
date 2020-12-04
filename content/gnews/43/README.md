@@ -1,15 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 佐治亚州选举被计算机和缺席选票欺诈所窃取 12/3
-` Mike迈克小哥` [轉載自GNews](https://gnews.org/zh-hans/615188/)
+## 制裁升级 共产党员及其家属美签即将失效
+` GM64` [轉載自GNews](https://gnews.org/zh-hans/615239/)
 
-林伍德律师 Lin Wood @LLinWood: 我没有和任何人交战。 我为“我们人民”在诚实选举中的投票权而斗争。 11月3日（美国大选日） 佐治亚州选举被计算机欺诈和缺席选票欺诈所窃取。 佐治亚州接下来的参议员竞选将遭受同样的命运。 修复选举过程中的漏洞吧，否则犯错的是职业政治家们，而不是我。
+内新闻：α-Vega
+素材：两只小猪 WENWU
+校对：老白
 
-来源:
-https://twitter.com/LLinWood/status/1334658704914964481
-Lin Wood @LLinWood
-I’m not at war with anyone. I am fighting for right of We The People to vote in honest election. 11/3 GA election was stolen by computer fraud & absentee ballot fraud. Runoff will suffer same fate. Fix it or career politicians are at fault. Not me.
-https://www.mediaite.com/news/conservatives-go-to-war-with-each-other-after-lin-woods-call-to-boycott-georgias-razor-thin-senate-runoff/
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03213700/%E4%BD%90%E6%B2%BB%E4%BA%9A%E5%B7%9E%E9%80%89%E4%B8%BE%E8%A2%AB%E8%AE%A1%E7%AE%97%E6%9C%BA%E6%AC%BA%E8%AF%88%E5%92%8C%E7%BC%BA%E5%B8%AD%E9%80%89%E7%A5%A8%E6%AC%BA%E8%AF%88%E6%89%80%E7%AA%83%E5%8F%96.png)
+路透12月3日报导，美国政府2日对中国共产党党员及其家人发出赴美旅行限制规定。知情人士指出，这一新政策将共产党员及其家人旅行签证的最长有效期限制在一个月，且只能单次入境。
+
+此举意味着，共产党员及其家属原本持有有效期最长为10年的美国签证，将在一个月后失效。报导称，新的签证指导原则允许美国官员根据申请材料和面谈来确定某人的党籍状态。
+
+外交部华春莹表示，世人看得非常清楚，这是美国内一些极端反华势力出于强烈意识形态偏见和根深蒂固的冷战思维，升级对中国政治打压的行为。中方对此坚决反对。希望美方同中方共同努力，通过对话和沟通增进对彼此的正确认知，共同推动中美关系健康稳定发展。
+
+中共外交部总是对美恶言相向，多次辱骂美国高层政要，却还希望美方能用对话沟通。在中共宣扬的仇美情绪下，网友的态度也十分扭曲，多数人很高兴能被美国制裁，也有一部分人，感谢美国为反腐做出贡献。此话题引起网友热议上了微博热搜，鲜有人究其原因意识到危机，还是一片岁月静好。
+
+此前，美国移民局10月2日公布新的政策提要，表示禁止共产党员及其他极权政党成员寻求美国永久居民身份和入籍。9月，美国取消了千名赴美留学生签证，因涉嫌与中国军方有联系，借在美留学机会盗取知识产权。7月有报道指出，美国政府欲全面禁止党员入境。
+
+美国对中共党员的态度，意味着中美全面脱钩开始，围猎中共进入最后阶段。美国政府原先计划的制裁逐步开始实施，中概股退市、货币脱钩在即，企业制裁名单越来越长…中共的谎言和欺骗，早已丧失“对话沟通”的机会，接下来是雨点般的重锤落下，彻底打击中共，也将唤醒麻木的国人。
+
+更多真相请查阅：
+GNews/G-TV /路德社
+
+新闻来源：
+[https://cn.reuters.com/article/us-china-cpc-travel-curb-1203-idCNKBS28D0RK
+https://c.m.163.com/news/a/FSUUS8Q50001899O.html](https://cn.reuters.com/article/us-china-cpc-travel-curb-1203-idCNKBS28D0RK
+https://c.m.163.com/news/a/FSUUS8Q50001899O.html)
+
 0
