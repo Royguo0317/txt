@@ -1,15 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 佩洛西与麦康奈尔表示尽快完成综合法案和COVID救济法案 12/3
-` Mike迈克小哥` [轉載自GNews](https://gnews.org/zh-hans/614619/)
+## 佐治亚州五万多非法选票被识别
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/614632/)
 
-2020年12月3日, 美国众议院议长南希·佩洛西(@SpeakerPelosi)办公室的声明：
-“众议院议长南希·佩洛西兼与参议院领导人麦康奈尔于今天中午12:45通过电话发表讲话，表示他们共同致力于尽快完成综合法案和COVID救济法案。”
+多伦多枫叶农场（原加喜农场）春季
+校对 文锦 上传 云起时
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03160319/allongeorgia.com_.jpg)图片来源：allongeorgia.com
+据美国内华达保守的新闻评论网站DJHJ Media 12月3日报道，佛罗里达州选民组织表示他们在佐治亚州发现了五万多张非法选票。这是川普总统在该州及其选举人所需选票数量的四倍，足以使川普总统在佐治亚州获胜。
 
-新闻来源:
-https://twitter.com/Breaking911/status/1334566841772027905
-Statement from the office of @SpeakerPelosi:
-“The Speaker & Leader McConnell spoke at 12:45 pm today by phone about their shared commitment to completing an omnibus & COVID relief as soon as possible.”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03155501/%E8%AE%AE%E9%95%BF%E5%8D%97%E5%B8%8C%C2%B7%E4%BD%A9%E6%B4%9B%E8%A5%BF%40SpeakerPelosi%E5%8A%9E%E5%85%AC%E5%AE%A4%E7%9A%84%E5%A3%B0%E6%98%8E.png)
+另一佐治亚州的选民数据分析公司是众多志愿团体之一，也佐证了这一事实。该公司表示，已发现佐治亚州在11月3日的大选中产生了约四万张非法投票。数据制作公司（Data Productions,Inc.）总裁马克·戴维斯（Mark Davis）被认为是有关选举纠纷的五个法院案件的专家，他发现有40,239人在选举前超过30天从一个县搬到另一个县，并已经在其原有的县投票了，这是违反佐治亚州法律的。这40,239个投票人未能及时注册新地址就在他们的新县进行了投票，但是根据法律，他们只有在注册了新地址后才能在其中的一个县进行投票。
+
+这40,239张非法选票是总统竞选边际数量的三倍多，因为拜登被列为比川普总统多出大约12,000张选票。此外，同一小组发现有超过一万人在投票后离开了该州，这也是非法的，他们的选票必须作废。这样，非法选票总数超过50,000，而川普此时仅落后约12,000票。
+
+然而事实上在选举之夜，川普总统以10万张选票领先，然后佐治亚州当局据称由于漏水停止了计票。川普突然发现自己落后了10万张选票，该数字已缩减至目前的12,000票。
+
+越来越多的事实和数据显示了在佐治亚州出现了大规模的选举欺诈。川普总统的法律团队也已发起联邦诉讼，对佐治亚州的舞弊指控足以使投票无效。相信正义一定能得到伸张，让我们拭目以待！
+
+[原文链接](https://djhjmedia.com/steven/voter-group-in-georgia-claims-they-have-identified-more-than-50000-illegal-votes-enough-votes-to-move-georgia-to-trump-column/)
+
 2+
