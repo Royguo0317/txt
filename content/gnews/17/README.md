@@ -1,29 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 佐治亚州高官无视计票现场监控视频 12/3
-` Mike迈克小哥` [轉載自GNews](https://gnews.org/zh-hans/615322/)
+## 盘古时间2020-12-04康州盘古农场本日新闻热点
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/615364/)
 
-林伍德律师 Lin Wood @LLinWood:
-嘿，布莱恩 @BrianKempGA(佐治亚州州长布赖恩·肯普), 吉奥夫 @GeoffDuncanGA (佐治亚州副州长吉奥夫·邓肯), 布拉德 @GaSecofState (佐治亚州州务卿布拉德·拉芬斯佩格)
-，当你们看到计票现场监控视频时, 你们知道选举欺诈吗？抑或你们眼里只有黑钱而无视真相？
+新闻采集：康州盘古农场-台湾阿人
 
-Dinesh D’Souza @DineshDSouza:
-这是疯狂的，每个人都需要立即观看。
-选票监督员被命令离开房间，然后选票箱从桌子下面拉出。
-看计票现场监控视频：
-https://rumble.com/vbkkd1-suitcases-of-ballots-pulled-from-under-table-after-poll-watchers-were-told-.html?mref=23gga&mc=8uxj1
+新闻编辑：康州盘古农场-feihua
 
-来源:
-https://twitter.com/LLinWood/status/1334679348633362434
-Hey, Brian @BrianKempGA Geoff @GeoffDuncanGA & Brad @GaSecofState
-, do you know election fraud when you see it or are you up to your eyeballs in dark money?
+审核： 康州盘古农场-Rose
 
-https://twitter.com/DineshDSouza/status/1334575173585018881
-Dinesh D’Souza @DineshDSouza
-This is INSANE and everyone needs to watch immediately.
-Poll watchers were ordered to leave the room and then suitcases of ballots were pulled out from beneath a table.
-WATCH:
-https://rumble.com/vbkkd1-suitcases-of-ballots-pulled-from-under-table-after-poll-watchers-were-told-.html?mref=23gga&mc=8uxj1
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03234833/1%E4%BD%90%E6%B2%BB%E4%BA%9A%E5%B7%9E%E9%AB%98%E5%AE%98%E6%97%A0%E8%A7%86%E8%AE%A1%E7%A5%A8%E7%8E%B0%E5%9C%BA%E7%9B%91%E6%8E%A7%E8%A7%86%E9%A2%91.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03234823/2%E4%BD%90%E6%B2%BB%E4%BA%9A%E5%B7%9E%E9%AB%98%E5%AE%98%E6%97%A0%E8%A7%86%E8%AE%A1%E7%A5%A8%E7%8E%B0%E5%9C%BA%E7%9B%91%E6%8E%A7%E8%A7%86%E9%A2%91.png)
+**1. **打击奴工，美禁新疆建设兵团棉花产品入境。
+
+大纪元2020年12月03日讯，美国政府进一步采取措施，以回应中共强迫新疆维吾尔族少数族群做奴工，从中谋取利润。美国官员周三（12月2日）宣布，禁止来自新疆建设兵团（XPCC）的棉花产品入境，否则将被扣留。
+
+**2. **第二批100万剂中共新冠疫苗运到巴西。
+
+路透社12月3日消息，巴西Butantan研究所生物医学中心3日收到了100万剂中国科兴生物研发的疫苗。该款疫苗正由Butantan研究所在圣保罗州进行后期测试。
+
+**3. **澳洲不会仿效英国加急审批疫苗。
+
+大纪元2020年12月04日讯，疫情严重的英国加急批准了中共病毒（武汉肺炎）疫苗的使用后，澳洲药监机构表示不会效仿英国的做法，因为澳洲的监管系统没有这样加急审批的权力。澳洲治疗用品管理局（TGA）局长斯克里特（John Skerritt）表示，辉瑞疫苗是澳洲购买的四种疫苗之一，由于疫苗试验仍在进行中，还没有任何制药公司能提供最后试验阶段的疫苗安全和有效数据。
+
+**4. **司法部对Facebook 歧视美国工人提起诉讼，诉讼指控Facebook 偏爱H-1B签证工人和其他临时签证者，而不是美国工人。
+
+美国司法部 [https://www.justice.gov/opa/pr/justice-department-files-course-against-facebook-discriminating-antimination-us-workers“target=”“blank”rel=“noopener noreferrer nofollow”data component=“externalLink”&gt;](https://www.justice.gov/opa/pr/justice-department-files-course-against-facebook-discriminating-antimination-us-workers“target=”“blank”rel=“noopener%20noreferrer%20nofollow”data%20component=“externalLink”&gt;)对Facebook提起诉讼，指控其“普遍”歧视美国员工。这起诉讼表明，Facebook在大约两年的时间里，故意偏爱H1-B和其他临时签证持有者，而不是美国的2600多个职位的求职者。根据美国司法部的说法，Facebook“故意创建了一个招聘系统，在这个系统中，它拒绝合格的美国员工一个了解和申请的公平机会对于Facebook希望通过渠道向临时签证持有人提供的工作，Facebook希望为绿卡提供赞助。”
+
+**5. **美国国务院星期四（12月3日）发表声明，限制中国共产党员及其直系亲属赴美旅行，中共党员及其家属的B1/B2 签证的有效期从10年减至1个月。
+
+声明说，这项举措的目的是保护美国免遭“恶意影响”，中共一直在努力“通过宣传、经济讹诈和其他不可告人的活动来影响美国人”。纽约时报报道说，美国这一政策的变化可能会影响大约2.7亿人的旅行；中国约有9200万共产党员；然而在实际操作中，除了高级官员外，可能很难确定谁是党员。新的签证规定加剧了两国在贸易、技术和其他诸多方面已持续数年的冲突。
+
+**6. **澳大利亚议会星期四（12月3日）通过法案授予联邦政府否决权，可以否决澳大利亚州一级政府与外国的任何协议，或对中澳关系产生影响。
+
+澳大利亚议会星期四（12月3日）通过法案授予澳大利亚联邦政府否决权，可以否决澳大利亚州一级政府与外国的任何协议。这一举措有可能激怒中国，并使两国眼下的外交争端加剧。
+
+路透社星期四从澳大利亚的商业中心悉尼发出报道说，该法律准许联邦政府阻止澳大利亚各州或机构跟一个外国政府的任何协议。这种协议的典型是维多利亚州2018年跟中国签署的一项该州参加中国一带一路项目的协议。
+
+**7.**美国最高情报官员称，中共目前是对美国的最大威胁，也是二战以来对全世界民主和自由的最大威胁。
+
+路透华盛顿12月3日 – 美国最高情报官员周四表示，中国是二战以来全球民主和自由面临的最大威胁，并称中国一心想要主宰全球。此前，特朗普政府发布了限制中国共产党党员及其家属赴美旅行的规定。美国国家情报总监John Ratcliffe在《华尔街日报》网站上发表的一篇评论文章中表示：“情报很清楚：中国打算在经济、军事和技术上主宰美国和世界其他国家。”
+
+**8. **美官员周三（12月2日）称，在美国打击技术盗窃活动下，已有1000名中共国技术人员回国。
+
+德国之声中文网报导，美国高级安全官员周三(12月2日) 称，在美国对技术盗窃活动加以打击的背景下，已有1,000多名中国研究人员离开美国。他补充称中国特工已经瞄准即将上任的拜登政府。
+
+美国司法部国家安全部门负责人德默斯(John Demers)在智库阿斯彭研究所(Aspen Institute)举办的一场讨论会上表示，当司法部针对中国在工业和科技间谍活动开启刑事调查时，这些研究人员已经离开美国。
+
+**9. **中芯国际H股停牌，正评估美国国防部将其加入相关名单影响。
+
+路透香港/上海12月4日 – 中国最大芯片生产商中芯国际H股周五开市不久暂停股份买卖，停牌前跌2.25%；此前公司在上海证券交易所发出公告称，关注到美国国防部网站有一则将公司加入中国涉军企业名单的消息，公司正在评估影响。
+
 0
