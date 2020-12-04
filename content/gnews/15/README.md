@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/2/2020 曝光多米尼: 多米尼系统能让选票从一方转移到另一方名下
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/616974/)
+## 【粤语】11/20/2020文贵： 大选后未来经济的走向
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/617027/)
 
-By: 【秘密翻译组G-Translators】
-
+制作：战友之家粤语频道
+统筹：【文武全才】 剪輯：【文莱】 【文桥】 配音：【一梦】 文本：【Jacky】 字幕：【文桥】
 0
