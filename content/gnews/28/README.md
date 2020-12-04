@@ -1,13 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 洛杉矶房地产开发商承认向竞选活动捐款来洗钱 12/3
-` Mike迈克小哥` [轉載自GNews](https://gnews.org/zh-hans/614871/)
+## 佐治亚州的监控录像显示在计票人员离开后塞满了选票的箱子从桌子下面被拿出来计票
+` GM127` [轉載自GNews](https://gnews.org/zh-hans/614915/)
 
-洛杉矶一名70岁的房地产开发商今天认罪，非法向八位当地政客的竞选活动捐款数十万美元，这些捐款导致批准了他在洛杉矶县地方检察官港口港区建造的公寓大楼。
+佐治亚州的监控录像显示，在计票人员离开后，只有4个人留下。然后塞满了选票的箱子从桌子下面被拉出来，并开始接着计票。
+[视频源](https://www.youtube.com/watch?v=nVP_60Hm4P8)
+“大约是在早上八点的时候，我们现在把录像回放并展示给你们。可以了。现在他们将从桌子下面把这些选票拖出来。这个黑色的桌子，被这位梳着着金色辫子的女士摆放在那里，大约在早上8点22分的时候。她把桌子放在了那里。是同一个人站在后面，同一个人清理这个地方，假装是要停止计票了，就是在早上8点22分放桌子那个人。
 
-新闻来源:
-https://twitter.com/Breaking911/status/1334639259010142208
-JUST IN: L.A. Real Estate Developer Admits To Campaign Money Laundering – https://breaking911.com/l-a-real-estate-developer-admits-to-campaign-money-laundering/
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03184030/%E6%B4%9B%E6%9D%89%E7%9F%B6%E6%88%BF%E5%9C%B0%E4%BA%A7%E5%BC%80%E5%8F%91%E5%95%86%E6%89%BF%E8%AE%A4%E5%90%91%E7%AB%9E%E9%80%89%E6%B4%BB%E5%8A%A8%E6%8D%90%E6%AC%BE%E6%9D%A5%E6%B4%97%E9%92%B1.png)
-0
+好，我看见4个箱子从桌子下面拿出来了。对，在右手边，你看那个穿红衣服的男士。他刚刚拉出了一个[箱子]。所以，这些选票是怎么回事，它们与其它的选票不在一起？为什么他们只是在这里被清空后，并且没人见证的情况下数这些选票——这是一个问题。
+
+这些机器，每小时能够处理大概3000份选票那里一共好有几台机器，他们在那干了2小时。所以你算一算，一共有多少选票在2小时内通过了这些机器？当这里没人监督，没人在场，没人遵守规则的时候来计票。我们相信这个[选票数]能够很容易的、而且几乎确定地超过了在这场选举胜出所需的选票数。”
+
+翻译: 【Rock小哥】 校对: 【Isaiah4031】【Jessi/詹茜】字幕：【Rock小哥】编辑：【Isaiah4031】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22111053/VOG-Rose-Garden-Team.png)
+3+
