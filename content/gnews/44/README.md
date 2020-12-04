@@ -1,27 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》新闻快讯（视频版）&#8211;胡博士解读: 11/29/2020 水貂感染CCP病毒
-` Wdg0606` [轉載自GNews](https://gnews.org/zh-hans/615944/)
+## 美国家情报总监:中国是对美国的最大威胁
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/616388/)
 
-出品《路德社》 ；特约评论：胡博士
-
-胡博士解读水貂感染CCP病毒：早在3月4日的路德社节目中，科学家就通过路德先生告诉大家雪貂可被CCP病毒感染；我们不相信阴谋论，但也不相信巧合。以下视频是详细内容：
+- 编辑：Victor Torres
 
 
+***更多真相，请关注*** ***[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-内容摘要：
+西班牙2020年12月4日电/西喜站/——美国国家情报总监约翰·拉特克利夫（John Ratcliffe）警告说，中国是美国目前面临的最大威胁。
 
-1.丹⻨在水貂身上检测出另 外四种新冠病毒变异的病株；
+拉特克利夫（Ratcliffe）曾是德克萨斯州的美国国会议员，他在12月3日的《华尔街日报》（Wall Street Journal）中指出，除现任总统相比，他比美国政府中任何人接触更多的情报。
 
-2.貂与人类的肺部结构，细胞受体分布甚至临床感染症状都非常相似，这使得貂成为了SARS和流感的绝佳实验动物模型；
+他写道：“作为国家情报局局长，我被赋予了比总统以外的任何美国政府成员更多的情报。”  “我监督情报机构，我的办公室制作了总统每日简报，详细介绍了国家面临的威胁。如果我能从这一独特的角度向美国人民传达一件事，那就是中华人民共和国构成了最大的威胁。 对当今的美国来说，是第二次世界大战以来对全世界民主与自由的最大威胁。”
 
-3.如果不是路德社当时提前爆出了这个信息，雪貂或许早已经成为了CCP病毒爆发的替罪羊；
+他写道：“这是我们千载难逢的挑战。”  “从打败法西斯主义之灾到打倒铁幕，美国人一直上升到现在。这一代人将以其对中国按照自身形象重塑世界，取代美国成为主要超级大国的企图所做出的回应来被评价。 情报很清楚。我们的回应也必须如此。”
 
-4. 让人不安的报道是部分水貂在S蛋白的变异毒株可以使得现有部分病人的康复血清失效；
+**参考链接：**
+[https://justthenews.com/world/asia/dni-ratcliffe-highlights-china-top-threat-united-states](https://justthenews.com/world/asia/dni-ratcliffe-highlights-china-top-threat-united-states)
 
-审核校对：玫瑰天空
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221622/PHOTO-2020-11-26-13-19-21.jpg)
 
-上传排版：青葫芦娃
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0
