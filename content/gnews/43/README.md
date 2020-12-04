@@ -1,27 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯：纽约时报称美国开始限制CCP党员直系亲属赴美
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/615528/)
+## 《路德社》精选新闻快讯：默克制药出售Moderna股份套现
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/612888/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
+出品《路德社》 编辑：路德社精选新闻专栏组
 
-纽约时报称特朗普政府于2020年12月2日发布新规，限制CCP党员及其直系亲属赴美旅行
+据路透社报道，市值2060亿美元的美国制药商默克（Merck）2/12/2020表示，将出售其持有的560亿美元的生物技术公司Moderna的股份兑现，该公司开发出了高效的Covid-19针剂，今年股价飙升了600％以上。
 
-在此之前，CCP党员和其他普通中国人一样，可以获得最长10年的赴美旅游签证
 
-据两名知情人士透露：这项新政将中共党员及其家属的旅行签证有效期限制在单月单次入境，并在宣布之日起立即生效。
 
-纽约时报引述国务院一名发言人表示，这一举动是“美国政府为保护我们国家不受中国共产党邪恶影响力侵害的持续的政策、监管和执法行动”的一部分。
+> Breakingviews – Corona Capital: Merck sells Moderna stake [https://t.co/pJJfrV302a](https://t.co/pJJfrV302a) [pic.twitter.com/En0D6vhAPh](https://t.co/En0D6vhAPh)
+> — Reuters (@Reuters) [December 2, 2020](https://twitter.com/Reuters/status/1334258691592294403?ref_src=twsrc%5Etfw)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04011809/12122-1.jpg)
 
-新的签证指南允许美国官员根据申请人的申请信息和面谈情况来确定其是否是具有CCP的党籍。 这一举措将严重打击代表中共国利益集团的高层政界和商界领袖，及众多渗透到商业和艺术等领域的CCP党员在美活动。
 
-[援引原文](https://www.reuters.com/article/us-usa-china-visa-idUSKBN28D0O2)
+位于美国马萨诸塞州剑桥市的Moderna Therapeutics总部，因正在开发针对冠状病毒疾病的疫苗（COVID-19）。被广泛关注，这次撤资套现据称并不是默克对疫苗开发失去信心的迹象，它仍将开放给风险投资基金，默克并表示将继续与Moderna合作开发癌症疫苗。
 
-本文作者：文森特
+这家制药巨头在2015年进行了最初的5000万美元投资，并在2018年可观的收益。但是默克公司的股价今年下跌了近10％，因此资金重组是有道理的。鉴于辉瑞和BioNTech等竞争对手可能会在2021年批准和分发多种疫苗，因此可以肯定地说，默克的股价不会再出现七倍的上涨。
+
+[援引原文](https://twitter.com/reuters/status/1334258691592294403?s=12)
+
+本文作者：水云间
+
 审核校对：玫瑰天空
-上传排版：糖果儿
+
+上传排版：青葫芦娃
 
 0

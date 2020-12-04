@@ -1,113 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》每日简报晚间版 2020.12.02&#8211;NewYork Time
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/615555/)
+## 【热点播报】“星球大战”——路德爆大料，冰火两重天
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/615892/)
 
-出品《路德社》 编辑：路德社精选新闻专栏组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04011702/12-2-pm-zh-scaled.jpg)
-1202晚间要闻-NewYorkTime
+作者：香草山写作组 程万里 校对/发稿：飞虹
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04050008/%E5%9B%BE%E7%89%8717-1.png)
+美东时间2020年12月3日晚间，爆料革命郭文贵先生直播中提到中国人的灾难真的开始了，稍后路德时评（路博艾谈）深入解读，说是解读不如说是爆了大料。直播中路德提到：热战无法避免，是因为哪怕把习近平斩首了也会有其他人上来，在任何情况下都不会放弃他们手中的权力，照样会绑架14亿人民。中共自作聪明，以为干涉美国大选，选个拜登上来就可以避免这个结局，真是作茧自缚。总统背后都是有力量的，中共走的这一步棋已经被背后的力量认清。战争不可避免。据可靠消息，俄罗斯和北约也已加入，军方已经彻底评估并认清中共的病毒战以及疫苗战，更重要的是已经做了决定：铲灭中共并启动星球大战计划。
 
-Dec 02nd Brief-NewYorkTime
+星球大战源于西方文明世界，成立太空军是为了消灭卫星。博博士说，太空军会使用粒子束武器和激光武器，之前川普总统也讲过，当年星球大战的很多黑科技已经变成了现实。
 
-听写：文宝Porsche明台 校对：瓦者翻译
+路德继续爆料说，美国会外交手段用尽，削弱摧毁经济，并定点铲除军事基地包括定点斩首。郭先生说的主要是唤醒党内的人，但到现在还没有站出来，美国等不及，已经开始执行下一步计划。中共传递给全世界海外所有华人都是他们的渗透的力量。虽然爆料革命战友可以保护，但和8000万海外华人相比就显得太小了。军民融合就是中国的灾难，90%的中国人都有可能被认定为军民融合的项目。中共太邪恶了，在各个地方密密麻麻的核设施，远超过两三百个，说不定任何人住的方圆十公里内都会有个核导弹。其做事无底线，人越多的地方越会有，譬如在广州。习包子及身边的人已经做好了鱼死网破的准备，你只要一斩首，全部的核武器就直接对着美国去。这就是为什么要启用星球大战计划。星球大战计划就是所有的核弹头一起来时，你有没有能力摧毁。对军民融合无法掌握全部只能一刀切。中共把导弹都放在你想不到的地方，在大城市里，绝对的超过国际公约，这就是中共的邪恶。
 
-recorded by: 文宝Porsche明台, revised by 瓦者, translated by: revised by:
+摧毁有两种，一种是在天上，另一种就是在没有发射时，老百姓即使屯粮和美金也就没有用了，这都是中共造的孽，不能怪美国，美国已经忍了很久，给中共机会，但中共还想控制美国总统，现在病毒还有疫苗也来了。中共恐吓美国，一万多个核弹头，如果自我引爆，那整个世界会怎样？这就会有局部的打击核设施。中共海外的影响都是家族式的，没了中共还会继续下去，美国只能一刀切，新中国联邦就会在各个国家建立保护区。中共已经意识到这一点，都在转移资产，都准备逃命，包括习的家人。美国军方已经确认中共有打击移动目标的能力，这不是中国人的骄傲，这是灾难的开始。中共的导弹都放在沿海，而沿海都是人口密集的地方。中共全面违反地球公约，肯定是要被消灭掉了。
 
-**川普总统重磅演讲开启战前总动员**
+相信听了这次的直播我们每一位战友都如鲠在喉，心情无比低落。但该来的还是要来，我们该准备的还是要准备，能救一个是一个。真正的战友是可以挺过这一关的。
 
-**President Trump’s bomb speech initiates the pre-war general mobilization.**
 
-他说这是我一生中最重要的演讲，守护美国的宪法和法律是我的首要职责，民主党利用起源于中国的病毒操纵了这场选举。
 
-川普在美国已经被超限战严重入侵的当下提出守护宪法，是为其即将采取的雷霆行动进行铺垫的一次战前总动员。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-He said this is the most important speech in my life and guarding the U.S. Constitution and laws is my primary duty. The Democratic Party has rigged the election with virus originated from China.
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-Trump’s proposal of the Guardian Constitution at a time when the United States has been severely invaded by the ultra-restricted warfare is a pre-war mobilization to pave the way for his upcoming Thunder operation.
-
-**林肯为什么伟大？**
-
-**Why Lincoln so great?**
-
-林肯说，一方宁可挑起战争也不愿让国家继续生存下去，另一方宁可迎战也不愿让国家灭亡。这场让美国受难4年、导致60万人死亡的暴力冲突，是上帝对250年奴隶制这种罪过的终极惩罚。上帝的意志是要让战争继续下去，直至让皮鞭抽出每一滴鲜血来偿还。
-
-林肯抛弃妇人之仁，敢于担当平定叛乱、废除奴隶制、保护领土完整，让美国成为了人类文明的灯塔。
-
-Lincoln said that one side would rather start a war than allow the country to survive, while the other side would rather fight than let the country perish. This violent conflict that has caused the United States to suffer for four years and killed 600,000 people is God’s ultimate punishment for 250 years of slavery. It’s God’s will to let the war continue until the whip draws every drop of blood to pay
-
-Lincoln abandoned the benevolence of women, dared to quell the rebellion, abolished slavery, and protected territorial integrity, making the United States a beacon of human civilization.
-
-**川普必然伟大！**
-
-**Trump definitely great**
-
-每个人是依赖于他人的自由来实现自己的自由。十四亿中国人没有自由，美国人也必然失去自由（正在失去中）。华尔街把十四亿奴隶当作积累财富工具的时代，该结束了。川普就是那个在国家被入侵、人民选举权被剥夺的危机时刻，站出来再次拯救美国的天选之子。
-
-Everyone is dependent on the freedom of others to achieve their own freedom. 1.4 billion Chinese have no freedom, and Americans will certainly lose their freedom (in the process of losing). The era when Wall Street used 1.4 billion Chinese slaves as a tool to accumulate wealth has to be over. Trump was the Chosen One who stood up to save the United States again at a time of crisis when the country was invaded and the people’s right to vote was denied.
-
-**林伍德对中共喊话**
-
-**Linwood calls out the CCP**
-
-他说，美国再次来到1776年建国时刻，我们将为自由而战，绝对不会让北京中共政府占领我们的国家，这里是美国，你们找错了对手。
-
-He said that the United States again has come to the founding moment of 1776. We will fight for freedom and will never let the Chinese Communist government in Beijing occupy our country. This is the United States and you got the wrong opponent.
-
-**众议院通过问责法，中概股退市或接受审计！**
-
-House of Representatives passed accountability law and China stocks will be delisted or subject to audited
-
-《外国公司问责法》如路德社29日预期的那样在众议院快速获得2/3的投票通过，证明了美国的利益集团，已经完成了与中共的正式切割，断掉了与中共最重要的利益勾连。中共失去了自己在美国的靠山，离灭亡就越来越近了。
-
-The “Holding Foreign Companies Accountable Act”, as Lude Media has predicted on the 29th, was quickly passed by 2/3 of the vote in the House of Representatives which proved the interest groups in the United States have completed their formal cut with the CCP, and have broken off their most important interests. The CCP has lost its backing in the United States and is getting closer and closer to extinction.
-
-**北约国防部长联席会议正式讨论中共（非中国）的威胁**
-
-**NATO Defence Ministers’ Joint Meeting formally discuss the CCP (not China) threat.**
-
-会议中讨论了中共改变国际组织职、控制其他国家基础设施及恶意贷款等经济侵略手段，称要联合应对其威胁。会议全程用CCP代指之前的中国。
-
-The meeting discussed how the CCP changes the role of international organizations, controls the infrastructure of other countries and adopts economic aggression such as malicious loans, and claimed to jointly respond to its threats.
-
-The CCP was used to refer to the previous China throughout the meeting.
-
-**美将重建当年执行原子弹轰炸任务的空军基地**
-
-**The U.S. will rebuild the air base where Atomic Bombing Missions were carried out**
-
-该基地位于关岛以北160公里的提尼安岛，当年向广岛和长崎投放原子弹的B-29轰炸机就从这里起飞。重建后，将和关岛的安德森基地互为备份，大大增强战场生存能力。
-
-The base is located on Tinian Island, 160 kilometers north of Guam, from where the B-29 bombers that dropped atomic bombs on Hiroshima and Nagasaki took off. After reconstruction, it will be a backup with the Anderson base in Guam, greatly enhancing the survivability of the battlefield
-
-金句：
-
-Quotes
-
-博博士：
-
-利益对资本主义很有诱惑力，中共就利用这点给华尔街输送利益。去年8月23号川普总统刚说脱钩，就受到各利益集团反对。华尔街想通过中共赚钱，但是一旦意识到中共不仅谋财还要害命，所有人都会参与灭共。
-
-Dr. Mo
-
-Benefits are very tempting to capitalism, and the CCP uses this to convey benefits to Wall Street. On August 23 last year, as soon as President Trump said that he would decouple, he was opposed by various interest groups. Wall Street wants to make money through the CCP, but once they realize that the CCP not only makes fortune on them but also kills them, everyone will participate in destroying the CCP.
-
-冠博士：
-
-川普今天明确说这是他最重要的一次演讲，就是在传递他要彻底解决大选舞弊、捍卫宪法的决心。
-
-Dr Guan:
-
-Trump made it clear today that this was his most important speech, which is to convey his determination to thoroughly resolve election fraud and defend the Constitution.
-
-**路德：中共之所以能活下去，就是因为美国某些利益集团要通过中共赚钱，要是美国不给机会，中共必死。**
-
-Lude:
-
-The CCP can survive because certain interest groups in the United States want to make money through the CCP. If the United States does not give it a chance, the CCP will die.
-
-审核校对：玫瑰天空
-
-上传排版：青葫芦娃
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
