@@ -1,49 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵说｜系列图片连载（六十五）
-` GM98` [轉載自GNews](https://gnews.org/zh-hans/615894/)
+## 《路德社》新闻快讯（视频版）&#8211;国家情报总监约翰·拉特克里夫 接受CBS采访，谈论中国对美国渗透，中共病毒的发源地就是武汉
+` Wdg0606` [轉載自GNews](https://gnews.org/zh-hans/616294/)
 
-## 449.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04053438/004.jpg)
-灭共不能没有你，你只要是勤劳动手那就一定能灭共！
+《路德社》出品
 
-——郭文贵先生2020年8月7日
+12月3日，国家情报总监约翰·拉特克里夫 接受CBS采访，谈论中国对美国渗透，中共病毒的发源地就是武汉等。以下视频是详细内容：
 
-## 450.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04053808/11.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04053854/003-1.jpg)
-战友们，你总有两个赢是你的：一个是共产党因为阻止你投资，它被灭了，你还能投资；第二个，就共产党完全没有黑得了你，你投资成功了，你有啥怕的呢？谁也拿不走你一分钱。
+内容摘要：
 
-——郭文贵先生2020年8月7日
+1.中共国对美国国会议员的（渗透）行动频率是俄国的6倍、伊朗的12倍
 
-## 451.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04053846/005.jpg)
-人类面临共产党和同时的货币危机，我们能做到解决它，让全世界的人安全地、有信用地、公平地享受自己的生产力和自己的货币。
+2.中共国通过勒索、行贿，公开、隐密的方式影响美国立法者通过只对其有利的法律​​
 
-——郭文贵先生2020年8月7日
+3.作为国家情报总监，他对他看到的情报感到震惊
 
-## 452.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04053838/12-2.jpg)
-这个世界有两样东西是不可以碰的，一个人都是有隐私的，每个人都有隐私。你不可以用一个你所谓的你认为的标准来评判别人的隐私，这是胡扯的事。第二个，你批评别人之前你做到了没有，这是不可以碰的，你有没有资格评判。
+4.包括习在内的CCP高层，早就知道病毒，并在「知道什么」「什么时候知道的」这些问题上对全世界撒了谎
 
-——郭文贵先生2020年8月8日
+5.Ratcliffe直接说「武汉就是病毒的起源地（Originated）
 
-## 453.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04053759/13-1.jpg)
-日本女人的忠诚是影响日本男人忠诚、讲义气的根本开始。
+6.中共国正在并且已经企图盗取美国的（对病毒的）研究（为什么说的是Access to the research into the COVID-19？而不是the Vaccine？）
 
-——郭文贵先生2020年8月8日
+[援引原文](https://parler.com/post/84bf01bcf5c44a34a218c2cb9c2c0909)
 
-## 454.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04053753/14.png)
-生活要有趣味性，没有趣味性的人生，男女之间长不了。
+翻译：路德社翻译组
 
-——郭文贵先生2020年8月8日
+制作：路德社视频组
 
-## 455.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04053826/15-1.png)
-这个世界上有实力你才有话语权。
+审核校对：玫瑰天空
 
-——郭文贵先生2020年8月8日
+上传排版：青葫芦娃
 
 0

@@ -1,66 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 在德国获得的与2020年大选至关重要的服务器现在是什么情况？
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/615491/)
+## 佐治亚州高官深陷中共Dominion公司 12/3
+` Mike迈克小哥` [轉載自GNews](https://gnews.org/zh-hans/615634/)
 
-翻译：康州盘古农场 – Mike Li
+林伍德律师 Lin Wood @LLinWood:
 
-校对：康州盘古农场 – 烟波浩淼
+我是一位疲倦的律师，试图深入了解为什么 @KLoeffler(美国佐治亚州联邦参议员凯利·洛夫勒), @BrianKempGA(佐治亚州州长布赖恩·肯普), @GaSecofState(佐治亚州州务卿布拉德·拉芬斯佩格)没有公开要求调查涉及Dominion投票机的佐治亚州选举欺诈行为。
+有些事情不合情理。 这告诉我, 我们远没有了解到全部真相。
 
-编辑：康州盘古农场 – Rose
+中国共产党CCP与Dominion公司75％的所有权相关联，2019年,Dominion公司以1.07亿美元向佐治亚州销售投票机。
+@BrianKempGA(佐治亚州州长布赖恩·肯普) 和 @GaSecofState(佐治亚州州务卿布拉德·拉芬斯佩格)达成了Dominion公司销售协议。
+@KLoeffler(美国佐治亚州联邦参议员凯利·洛夫勒)拥有Dominion公司股票。
+佐治亚州的州长布赖恩·肯普，州务卿布拉德·拉芬斯佩格, 联邦参议员凯利·洛夫勒拒绝要求对佐治亚州选举进行调查。
+连接这些线索点。 追踪钱的流向。
 
-原文作者：乔·霍夫特
+来源:
+https://twitter.com/LLinWood/status/1334742531729485824
+Lin Wood @LLinWood:
+I am a tired lawyer trying to dig deep on why @KLoeffler, @BrianKempGA @GaSecofState have not been publicly demanding investigation of GA election fraud involving Dominion voting machines.
+Something just does not make sense. Which tells me we know less than full truth.
 
-发布时间：2020年12月3日21时20分
-![](https://lh3.googleusercontent.com/F9KP-iYRenb4nXnkeGpMKCJg62jAJaITz981oCb3EgZW0hUWPgz8XN7-MwH-Gws5yC1U9TCo4jymHuTMagc4NjmJxjH5-VOMthwyIFm3b2g0JpHT0ABc75mh9dIIJ3dQYaHZcpY0uJACMsNC0Q)
-关于大选后在德国获得的服务器有很多传言。下面是我们知道的情况。
-
-在大选后的周一，川普总统解雇了国防部长马克·埃斯珀，担任国家反恐中心主任的克里斯托弗·米勒接替了埃斯珀的位置。埃斯珀在6月召开了自己的新闻发布会，宣布他不会听从川普总统的命令，保护白宫免受烧毁华盛顿特区的安提法和黑名贵的骚乱者的伤害。
-
-代理国防部长在11月18日做出第一次行动，指示军事特别行动部部长和陆海空三军部长一起直接向他汇报。
-
-代理国防部长克里斯托弗·米勒周三宣布，美国特种作战司令部现在将直接向他报告，使其与各军种平起平坐。
-
-就在11月16日，我们从众议员路易·戈默特那里听到，位于德国当地的情报报告说，通过西班牙不正当托管选举数据的Scytl被美国陆军部队突袭，他们的服务器在法兰克福被查封。
-
-从我们的一个消息来源收到了关于德国这次突袭的信息后，我们发布了更多的信息。
-
-来自我们的消息来源：一旦他们确定这台多米尼的服务器参与了改选票，情报部门就开始搜索这台服务器，后来发现这台服务器在德国。为了能够进入服务器并以合法的方式使用它，他们必须让国务院与司法部合作。他们必须要求德国政府合作，允许扣押该服务器。
-
-为实施这种扣押行动所需的适当文件已经到位并签署，而且似乎在这次行动中也有美国军方的支持。美国军方并不是主导者。但这有助于解释为什么埃斯珀被解雇，米勒和卡什·帕特尔被安排到位–这样军方就不会以任何方式干预这次行动。
-
-掌握了服务器，也将掌握直接证据，证明他们是何时被指示停止计票的。他们也会发现是谁下达了停止计票的指令，是谁启动了开始改票的算法。中情局完全被排除在这次行动之外。
-
-不久后，西德尼·鲍威尔对该关于服务器发表了评论，但她不知道是谁掌握了机器。
-
-但到了11月21日，Newsmax的优秀记者Emerald Robinson在推特上表示，她确实听说有一件硬件在德国被获取。
-
-
-
-> BREAKING: a national security source confirms to me that “a piece of hardware has been secured” from Germany.
-> — Emerald Robinson ✝️ (@EmeraldRobinson) [November 22, 2020](https://twitter.com/EmeraldRobinson/status/1330351736146567171?ref_src=twsrc%5Etfw)
-
-
-
-突发：一位国家安全消息人士向我证实，”一件硬件已经从德国被获得”。
-
-我们从另一个渠道得知，美国确实有在德国缴获的服务器。
-
-周二在亚利桑那州，我们接下来听到的消息是，美国在2020年大选期间拥有向海外发送的流量和数据包。
-
-瓦尔德隆上校还在亚利桑那州分享说，有数百人在调查多米尼系统。
-
-有很多与德国服务器被俘获相关，关于中情局局长哈斯佩尔的下落的消息，以及突击检查时发生的枪战的传闻。目前我们对这两个话题都没有可以确认的信息。  我们也不知道在德国获得该服务器的地点。
-
-总结起来我们知道的是，在德国有一个服务器被美国获得。我们还知道，一个军事网络专家团队拥有2020年大选期间被发送到德国的流量和数据包。这对于想知道2020年大选真相的美国人来说是个好消息。
-
-原文链接：
-
-
-
-> [What’s Going On with the Server Reportedly Obtained in Germany Related to the 2020 Election?](https://www.thegatewaypundit.com/2020/12/going-server-reportedly-obtained-germany-related-2020-election/)
-
-
-
+https://twitter.com/LLinWood/status/1334736357487423488
+Lin Wood @LLinWood
+CCP is tied to 75% ownership in Dominion, seller of voting machines to GA for $107M in 2109.
+@BrianKempGA & @GaSecofState made that deal.
+@KLoeffler owns Dominion stock.
+Kemp, Raffensperger, & Loeffler refuse to demand investigation of GA election.
+Connect dots. Follow money.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04014442/%E4%BD%90%E6%B2%BB%E4%BA%9A%E5%B7%9E%E9%AB%98%E5%AE%98%E6%B7%B1%E9%99%B7Dominion%E5%85%AC%E5%8F%B8.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04014743/%E6%B4%9B%E5%A4%AB%E5%8B%92%E6%8B%A5%E6%9C%89Dominion%E7%9A%84%E8%82%A1%E7%A5%A8.png)
 0

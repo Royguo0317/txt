@@ -1,28 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 洛夫勒拥有Dominion的股票,排干佐治亚州沼泽 12/3
-` Mike迈克小哥` [轉載自GNews](https://gnews.org/zh-hans/615519/)
+## 一位墙内战友听完郭先生12月3日的直播后给喜韩农场朴队长发来的一封信&#8230;
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/615680/)
 
-林伍德律师 Lin Wood @LLinWood:
-凯利·洛夫勒, 你在跟我开玩笑吗？ @KLoeffler (美国佐治亚州联邦参议员凯利·洛夫勒) 在2020年3月13日购买了500万美元至2500万美元的Dominion股票，而@GaSecofState(佐治亚州州务卿布拉德·拉芬斯佩格)在没有立法机构批准的情况下与民主党进行了幕后交易以更改缺席选票吗？ 由于丈夫拥有纽约证券交易所，凯利·洛夫勒是共产党的伙伴吗？
-我们必须排干佐治亚州沼泽。
+尊敬的朴队长，您好！今天听过郭先生的直播后，我有个重要决定想拜托您！
 
-President-Elect Eagle @SonsOfMontesQ:
-凯利·洛夫勒（Kelly Loeffler）拥有Dominion的股票…？ 所以她收买了选票。 这种说法持续好几个星期了。 @GOP(共和党)也有人窃取选举。 在清除所有欺诈和选票腐败之前，不得举行任何形式的选举，竞选。。 #StopTheSteaI
-https://twitter.com/TrumperWavin/status/1333186020335112195
-该推文不可用。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04011203/%E6%8E%92%E5%B9%B2%E4%BD%90%E6%B2%BB%E4%BA%9A%E5%B7%9E%E6%B2%BC%E6%B3%BD.png)
-来源:
-https://twitter.com/LLinWood/status/1334732698867408896
-Lin Wood @LLinWood:
-Are you kidding me? @KLoeffler bought $5M-$25M of Dominion stock on 3/13/20, 7 days before @GaSecofState made backroom deal with Dems to change absentee ballots without approval of legislature? Is Kelly a Communist buddy due to husband’s NYSE ownership?
-We must drain GA Swamp.
+我身在墙内，实在没有能力离开这座ccp的地狱监狱…… 在此，我立下遗嘱请求朴队长帮忙实现：如果未来我遭遇不幸，我死后请将我在咱们新中国联邦韩国农场借款的未来所有的收益捐献给新中国联邦法治基金。我自知金额微薄，实在惭愧，但是这是我全部的心意和信念！我这一生可能没有机会迎来信仰，自由，法治，民主回归中华大地，我深深的希望我们喜马拉雅后裔能享受并珍惜这来之不易的一切。
 
-https://twitter.com/SonsOfMontesQ/status/1333202729091600387
-President-Elect Eagle @SonsOfMontesQ:
-Kelly Loeffler owns stock in Dominion…? So she bought her votes. Been saying it for weeks. The @GOP is in on the steal. No elections, runoff or otherwise, should be held until all of this fraud and vote corruption is cleaned out. #StopTheSteaI
-https://twitter.com/TrumperWavin/status/1333186020335112195
-This Tweet is unavailable.
+从2017年7月与尊敬的郭先生和伟大的爆料革命相结识直到战斗到现在，这是我一生最大的幸运，我万分万分地感恩上帝的指引，感恩爆料革命和战友！我很羞愧自己弱小的能力，但是真心地，我真的尽力了！我这一生卑微，但只为这一件事骄傲。请求神与战友们允许我就骄傲这一回！
 
-0
+我出生在家庭暴力的环境下，本以为永远在ccp这撒旦恶魔的地狱里独自一人凄苦地求生，但是没想到在爆料革命的战友那里获得了从不敢奢望的支持和温暖，我心底无限感激！无以为报！
+
+如今，我能做的就是利用我宝贵剩下的时间，一如既往地战斗，继续尽自己最大的努力去保护家人和周围的人，无论他们是否伤害过我。是爆料革命教会我勇敢，教会我坚强，教会我对伤痛的释然。无论未来如何，我做好了坦然接受的准备。此生虽有憾但无悔。
+
+最后，衷心祝愿我们新中国联邦回归中华大地！为新中国联邦，为战友，为同胞和全世界与正义站在一起的朋友们祈福！我们爆料革命一定会赢！新中国联邦一定会赢！
+
+拜请战友们多保重自己！
+在下叩谢朴队长和韩国农场的战友们！
+墙内战友敬上！
+
+当我们看到这位战友的文字，我们内心百感交集，眼眶湿润。郭先生12月3日的直播内容话题沉重，纵然我们期待灭共结果，但是这个过程和影响却也深深的镇痛着我们每一位战友的内心，因为我们的家人还在墙内，他们还被CCP的谎言欺骗着。我们的心情与墙内战友一样，甚至有时更加感到举手无措。
+
+在爆料革命当中，国内战友与我们没有“墙”，不仅农场战友已经与大家的心紧紧的连接在一起，甚至我们的命运也与新中国联邦紧紧相连。越是在灭共的最紧要关头，战友们越是要彼此扶持，互相安慰。我们只能决定此时应该做什么，剩下的结果交给神。爆料革命战友们是最幸运的，因为我们知道真相，知道要发生什么，更加知道此时此刻我们该做什么！固然内心比别人承受煎熬，但是压力转变为动力，我们更要传播真相，唤醒家人和海外的同胞，真正的行动起来，让更多的人明白如何保护自己，更多的人加入新中国联邦。处在这个伟大的时代洪流之中，灭共的重担落在了我们的身上，相信是神看见了中国人在那片大地上所受的困苦，也听见了被CCP独裁统治下所发出的哀声。越是此时此刻，越更加需要坚定我们的信心，因为我们是有使命的新中国联邦人！郭先生领导的爆料革命与西方有信仰的正义国家是来拯救中国人脱离那痛苦之中的，相信我们会像旧约时代的以色列人一样，进入美好宽阔流奶与蜜之地的迦南美地。我们坚信爆料革命的战友们，定会得到上天的眷顾和怜悯，保守我们和家人，让我们看到没有共产党新中国诞生的那一天，我们一定会亲手为新中国投上自己神圣的选票！
+
+写信：墙内战友 编辑：李小甜KR
+
+3+

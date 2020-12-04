@@ -1,27 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯：纽约时报称美国开始限制CCP党员直系亲属赴美
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/615528/)
+## 《路德社》精选新闻快讯：林伍德说道：乔治•索罗斯不要再将我们的选票卖给中共国
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/612853/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
+出品《路德社》 编辑：路德社精选新闻专栏组
 
-纽约时报称特朗普政府于2020年12月2日发布新规，限制CCP党员及其直系亲属赴美旅行
+特朗普的律师林伍德和西德尼鲍威尔近日在佐治亚州的亚特兰大举行集会。
 
-在此之前，CCP党员和其他普通中国人一样，可以获得最长10年的赴美旅游签证
 
-据两名知情人士透露：这项新政将中共党员及其家属的旅行签证有效期限制在单月单次入境，并在宣布之日起立即生效。
 
-纽约时报引述国务院一名发言人表示，这一举动是“美国政府为保护我们国家不受中国共产党邪恶影响力侵害的持续的政策、监管和执法行动”的一部分。
+> Pro-Trump lawyers Lin Wood and Sidney Powell hold a rally. He says, "It's 1776 in America again….Get out of our country, George Soros….You're not going to sell our votes to China….The media is a lie. He slams Kemp: "Lock him up." Says he took money from China. Crazy people. [pic.twitter.com/zMZ6XhKHR4](https://t.co/zMZ6XhKHR4)
+> — David Corn (@DavidCornDC) [December 2, 2020](https://twitter.com/DavidCornDC/status/1334217746985476101?ref_src=twsrc%5Etfw)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04011809/12122-1.jpg)
 
-新的签证指南允许美国官员根据申请人的申请信息和面谈情况来确定其是否是具有CCP的党籍。 这一举措将严重打击代表中共国利益集团的高层政界和商界领袖，及众多渗透到商业和艺术等领域的CCP党员在美活动。
 
-[援引原文](https://www.reuters.com/article/us-usa-china-visa-idUSKBN28D0O2)
+林伍德说道：“现在的美国正像是1776年的美国（美国独立战争开始的那一年）… 乔治•索罗斯请离开我们的国家，你不要再将我们的选票卖给中共国…媒体充斥着谎言
+
+林伍德大声疾呼： “把他（乔治•索罗斯）关起来。”他从中共国拿到了钱，是个疯狂的家伙。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03054010/2012-12-03.jpg)
+据国家脉动（National Pulse） 11月29日报道：与左翼超级捐助者索罗斯有着错综复杂的关系的Smartmatic董事长布朗勋爵曾承认 “…我们的技术的一部分已获得Dominion的授权许可”
+
+而事实上Smartmatic拥有在国际上使用Dominion所使用的特定技术的许可。Dominion软件过去在委内瑞拉曾帮助查韦斯赢得大选，然后把委内瑞拉变成一个社会主义人间地狱。 已成为全球焦点投票系统Smartmatic和Dominion在2020美国大选舞弊，目前有越来越多的证据都指向了背后操纵选举的暗黑势力，而其中黑暗沼泽里潜伏的大鳄乔治索罗斯干扰竞选的历史由来已久，曾操纵利用了千万美元巨资支持总统竞选，并还企图指定美大法官人选。笔者坚信随着更多证据浮现，正义的力量一定会给邪恶一方最猛烈的回击！
+
+[援引原文](https://twitter.com/davidcorndc/status/1334217746985476101?s=12)
 
 本文作者：文森特
-审核校对：玫瑰天空
-上传排版：糖果儿
 
-0
+审核校对：玫瑰天空
+
+上传排版：青葫芦娃
+
+1+

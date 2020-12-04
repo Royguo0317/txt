@@ -1,41 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 从中海油拿现金的美国说客们
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/615376/)
+## 洛夫勒拥有Dominion的股票,排干佐治亚州沼泽 12/3
+` Mike迈克小哥` [轉載自GNews](https://gnews.org/zh-hans/615519/)
 
-草原三省战友之家 文莱
+林伍德律师 Lin Wood @LLinWood:
+凯利·洛夫勒, 你在跟我开玩笑吗？ @KLoeffler (美国佐治亚州联邦参议员凯利·洛夫勒) 在2020年3月13日购买了500万美元至2500万美元的Dominion股票，而@GaSecofState(佐治亚州州务卿布拉德·拉芬斯佩格)在没有立法机构批准的情况下与民主党进行了幕后交易以更改缺席选票吗？ 由于丈夫拥有纽约证券交易所，凯利·洛夫勒是共产党的伙伴吗？
+我们必须排干佐治亚州沼泽。
 
-校对 鹰嘴逗逗  上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04002031/lobbying.jpg)图片来自 Washington Times
-据国家脉动11月30日报道，川普政府将制裁更多与中共国相关的公司。川普政府所针对的公司包括中共国最大的芯片制造商半导体制造国际公司（SMIC），中国海洋石油总公司（SNOOC），中国建筑技术公司和中国国际工程咨询公司。另外35个与中共军队有密切联系的实体也被列入制裁黑名单。
+President-Elect Eagle @SonsOfMontesQ:
+凯利·洛夫勒（Kelly Loeffler）拥有Dominion的股票…？ 所以她收买了选票。 这种说法持续好几个星期了。 @GOP(共和党)也有人窃取选举。 在清除所有欺诈和选票腐败之前，不得举行任何形式的选举，竞选。。 #StopTheSteaI
+https://twitter.com/TrumperWavin/status/1333186020335112195
+该推文不可用。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04011203/%E6%8E%92%E5%B9%B2%E4%BD%90%E6%B2%BB%E4%BA%9A%E5%B7%9E%E6%B2%BC%E6%B3%BD.png)
+来源:
+https://twitter.com/LLinWood/status/1334732698867408896
+Lin Wood @LLinWood:
+Are you kidding me? @KLoeffler bought $5M-$25M of Dominion stock on 3/13/20, 7 days before @GaSecofState made backroom deal with Dems to change absentee ballots without approval of legislature? Is Kelly a Communist buddy due to husband’s NYSE ownership?
+We must drain GA Swamp.
 
-川普政府单独拎出的中国海洋石油总公司，在美国拥有一支庞大的游说团。从这家中共国国营和与军方有瓜葛的石油公司收受现金的美国人有查尔斯·布莱克（Charles Black），杰森·金尼（Jason Kinney）和迈克尔·巴克利（Michael Buckley）。
-
-**查尔斯·布莱克**
-
-“美国优尼科公司（Unocal corporation）设厂于加利福尼亚，中国海洋石油总公司计划购买该公司，在促进联邦政府批准该计划中”，布莱克为中国海洋石油总公司提供“战略和政治顾问及政府关系的服务”；支付他的月佣金仅仅只有60,000美元。根据布莱克《外国代理人注册法》（FARA）中的协议，BKSH公司指定布莱克领导该项目的客户顾问、说客团和律师团队。
-
-布莱克是加利福尼亚州州长加文·纽瑟姆（Gavin Newsom）的密友和顾问，脸书公司副总裁以及已故参议员约翰·麦凯恩（John McCain）的前顾问。布莱克曾担任参议员约翰·麦凯恩（John McCain）2008年总统大选的高级政治顾问和战略家，并担任麦凯恩研究所人口贩运咨询委员会委员。他还曾担任共和党全国委员会首席发言人和1992年布什总统竞选活动发言人。
-
-**杰森·金尼**
-
-金尼在加州时帮助与“加州民选和任命官员沟通，沟通涉及与优尼科公司合并定价事宜”，因此他每月可以获得25,000美元的佣金。
-
-纽瑟姆表示和金尼已经认识了近20年，因此在今年金尼的生日之时，纽瑟姆不顾自身政府颁布的大型团体限制令，反而参加了加州州长豪华餐厅的12人生日派对。随后，此饭店因违反限制令而被迫关闭了堂食的服务。
-
-**迈克尔·巴克利**
-
-巴克利列为布伦瑞克集团（Brunswick Group）中国海洋石油总公司游说团“领导”，其职责就是提供“中国海洋石油总公司在该项目中所需要的沟通”。他表示，“中国海洋石油总公司以其谨慎和财务上的谨慎而倍受赞誉，我们需要确保在此项交易成功的同时保持良好声誉“。
-
-在担任布伦瑞克集团的高级参谋之前，巴克利的工作是脸书全球商业传播副总裁。他从2013年到2016年就职在该职位。他在领英（Linkedln）的简介是这样介绍自己的：一个“领导由70人组成的全球团队，负责监督所有公司在政策，内部，国际以及广告/货币化等的沟通”。
-
-简评：
-
-美国精英在金钱面前早已丢掉信仰，人性弱点经受不了考验。从以上文章中我们可以看出，中共仅仅如此就可以买通所谓的精英，让他们为其做说客。他们甘愿成为共产主义的拥护者，并把共产主义的种子撒在美国的大地上。
-
-目前美国大选所面对的是对共产邪灵的终极之战，清除共产邪灵，重建美国民主体制势在必行！
-
-新闻来源：https://thenationalpulse.com/breaking/trump-blacklist-military-ties/
+https://twitter.com/SonsOfMontesQ/status/1333202729091600387
+President-Elect Eagle @SonsOfMontesQ:
+Kelly Loeffler owns stock in Dominion…? So she bought her votes. Been saying it for weeks. The @GOP is in on the steal. No elections, runoff or otherwise, should be held until all of this fraud and vote corruption is cleaned out. #StopTheSteaI
+https://twitter.com/TrumperWavin/status/1333186020335112195
+This Tweet is unavailable.
 
 0
