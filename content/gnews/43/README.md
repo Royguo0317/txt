@@ -1,14 +1,94 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CNN总裁禁止报道针对拜登父子的恋童癖指控 12/3
-` Mike迈克小哥` [轉載自GNews](https://gnews.org/zh-hans/614816/)
+## 世界各地计划接种中共病毒疫苗，警惕疫苗沦为牟利的“毒药”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/614835/)
 
-泄露的音频： 据称, CNN总裁告诉员工不要追踪报道针对拜登父子的恋童癖指控
+- 编辑：Victor Torres
+- 素材：Free Monkey
 
-新闻来源:
-https://twitter.com/Breaking911/status/1334625237535744001
-LEAKED AUDIO: CNN Presidents Purportedly Tells Employees Not To Pursue Pedophilia Allegations Against Bidens –
-https://breaking911.com/leaked-audio-cnn-presidents-purportedly-tells-employees-not-to-pursue-pedophilia-allegations-against-bidens/
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03180949/CNN%E6%80%BB%E8%A3%81%E5%91%8A%E8%AF%89%E5%91%98%E5%B7%A5%E4%B8%8D%E8%A6%81%E6%8A%A5%E9%81%93%E9%92%88%E5%AF%B9%E6%8B%9C%E7%99%BB%E7%9A%84%E6%81%8B%E7%AB%A5%E7%99%96%E6%8C%87%E6%8E%A7.png)
-1+
+
+***更多真相，请关注*** ***[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+西班牙2020年12月4日/西喜社/——周四，美国前总统奥巴马，小布什，克林顿称将公开接种中共病毒疫苗以赢得公众对疫苗安全性的信任。欧洲各国也于近期相继公开了各自的疫苗接种计划。此时此刻，疫苗的安全性更应被重视，人们需要警惕疫苗沦为少数人牟利的“毒药”。
+
+法国
+
+同样在周四，法国总理卡斯泰携卫生部长韦朗、欧洲事务副部长博恩（Clément Beaune）、工业部长帕尼埃-鲁纳歇（Agnès Pannier-Runacher）举行疫情记者会。在会上，卡斯泰宣布法国疫苗接种战略。
+
+法国总理表示，欧洲药品管理局最晚将于12月29日宣布是否批准辉瑞和Moderna疫苗许可。他希望，能在“中共病毒出现一周年之际”发起疫苗接种计划，分三个阶段执行：
+
+第一阶段：2021年1-2月，优先接种100万人：失能老人养老院Ehpad老人，以及高风险（如糖尿病）工作人员以及社会、社会医疗机构老人。
+
+第二阶段：2021年3月起，接种1400万“高风险人群”：75岁以上老人、65-74岁老人、50岁以上或有基础健康问题的医护、社会医疗机构工作人员。
+
+第三阶段：2021年4月起，开始大规模接种：优先50-64岁人群、安保、教育工作者、健康脆弱、贫困群体、集体住宿场所人员。
+
+卡斯泰称，欧盟已下6份疫苗订单，订购的疫苗将按各成员国人口比例供给，统一价格。法国约可分到15%，即2亿剂疫苗，足够接种1亿人（每人需2剂）。
+
+英国
+
+英国已批准BioNTech和辉瑞(Pfizer)联合生产的新型冠状病毒肺炎（COVID-19，即2019冠状病毒病）疫苗，并计划从“下周”开始提供该疫苗。这使得英国成为首个在有了大规模临床试验结果后批准新冠疫苗的国家。
+
+德国企业BioNTech与美国制药业巨头辉瑞(Pfizer)表示，其疫苗将在未来几天交付英国。此前，英国药品和保健产品监管署(MHRA)于周二晚批准了该疫苗。
+
+根据这两家企业上月发布的III期临床试验数据，其疫苗的有效率高达95%。有逾4.3万受试者参加了该疫苗的III期临床试验。
+
+英国政府发言人表示：“英国将从下周起在全国范围内提供这种疫苗。英国国家医疗服务体系(NHS)在开展大规模疫苗接种项目方面有数十年的经验，NHS将开始把其大量的准备投入实践，为所有符合接种条件的人提供医疗服务和支持。”
+
+这种采用了全新信使核糖核酸(mRNA)技术的疫苗仍在接受美国和欧盟(EU)监管机构的审查。美国食品药品监督管理局(FDA)预计将在12月中旬做出决定，但总部位于阿姆斯特丹的欧洲药品管理局(EMA)表示，在本月底之前不太可能批准这款疫苗。
+
+英国是首个与BioNTech和辉瑞就疫苗供应达成协议的国家，于7月订购了3000万剂疫苗。此后，英国又签署了一项再订购1000万剂的协议。预计英国约10%的总订单将于今年年底前交付。
+
+根据英国政府上月发布的临时计划，该疫苗将首先提供给养老院里的老人和工作人员，然后提供给80岁以上的老人和一线医护人员。该疫苗需打两针，间隔约一个月。
+
+英国药品和保健产品监管署还在审查另外两款疫苗的数据，一款由美国生物科技公司莫德纳(Moderna)研发，另一款由牛津大学(University of Oxford)和阿斯利康(AstraZeneca)合作研发。英国政府共计预定了7款不同的疫苗，总共3.57亿剂。
+
+葡萄牙
+
+葡萄牙国家药品管理局（Infarmed）举行的关于新冠肺炎covid-19的第13次会议上，宣布了葡萄牙第二波感染的高峰期是11月25日之后，政府详细介绍了国家疫苗接种计划。
+
+为制定疫苗接种计划而成立的工作组协调员弗朗西索·拉莫斯（Fransicso Ramos）说：“所有希望获得疫苗的葡萄牙人都将获得疫苗”。他还说，目标是确保在接种第一剂疫苗时，“立即”预约第二剂，并且与第一剂疫苗类型相同。
+
+疫苗接种计划分三个阶段
+
+第一阶段：长期住院患者、养老院老人（约25万人），50岁以上慢性疾病患者及患有相关严重疾病患者、高风险人群（40万人），医护人员、军队等关键部门人员（30万人）；
+
+第二阶段：65岁及以上，有无疾病人员（180万）；60至64岁之间患有严重/或慢性病人员（90万）
+
+第三阶段：剩余人口。
+
+他保证第一阶段将从1月开始，最理想情况下是在2月结束，但他也补充说，最坏的情况是延长至四月份结束。
+
+另外，中国和俄罗斯已批准早期或有限接种新冠疫苗，但这两个国家都是在III期临床试验结果还没有出来的情况下就批准了这些疫苗。这引发了一些专家的批评，他们提醒称，仓促批准疫苗有风险。
+
+美国的小罗伯特·肯尼迪（Robert Kennedy Jr.）呼吁人们远离全球性生物疫苗，这些疫苗针对的是反人类生化战争中所利用的生化病毒。
+
+小罗伯特·肯尼迪（Robert Kennedy Jr.）指出，疫苗不能预防传播。 疫苗使中共病毒更加危险-使用疫苗可以更快地传播它！ 他还警告说，疫苗副作用要等到一年或更长时间才会出现。 没有人知道那方面的影响！
+
+闫丽梦博士及其他一些专家一再警告世人疫苗短期内不可行。闫博士说，只要中共政权还存在，就不可能允许全面调查病毒起源，真相就不会大白于天下。
+
+她还表示，短期内不要指望有效疫苗，因为这是一种强变异病毒，短期很难攻克。
+
+闫博士提醒，现阶段不要指望群体免疫，因为病毒非常适应人体，杀伤力很大，即使感染了病毒有了免疫也不意味着将来就不会再感染。
+
+面对重大的疫苗风险，各国政府依然强推接种计划，不禁引发人们强烈的疑问，疫苗是否将沦为少数利益集团牟利的“毒药”?
+
+因此，请大家谨慎选择是否接种疫苗，以避免不必要的风险和伤害。
+
+**信息来源：**
+
+- [http://www.ftchinese.com/story/001090472#s=p](http://www.ftchinese.com/story/001090472#s=p)
+- [https://www.jn.pt/nacional/ao-minuto/governo-apresenta-plano-nacional-de-vacinacao-contra-a-covid-19-13102139.html](https://www.jn.pt/nacional/ao-minuto/governo-apresenta-plano-nacional-de-vacinacao-contra-a-covid-19-13102139.html)
+- [https://themarshallreport.wordpress.com/2020/12/03/why-would-obama-bush-and-clinton-care-if-we-take-a-vaccine-when-the-globalist-goal-is-to-depopulate-the-earth/](https://themarshallreport.wordpress.com/2020/12/03/why-would-obama-bush-and-clinton-care-if-we-take-a-vaccine-when-the-globalist-goal-is-to-depopulate-the-earth/)
+
+
+
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14162240/image0-2-6.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+
+3+

@@ -1,31 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 军事特种部队/情报部门取代FBI/中情局/司法部 12/3
-` Mike迈克小哥` [轉載自GNews](https://gnews.org/zh-hans/615155/)
+## 【热点播报】比尔·克林顿前高级助手实锤爆料克林顿和儿童色情狂爱泼斯坦关系不一般
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/615211/)
 
-林伍德律师 Lin Wood @LLinWood:
-发给佐治亚州爱国者们的一条短信
-1776年(美国独立宣言)的精神依旧长盛不衰
-我们人民的声音会被倾听。
-我们人民要求采取行动。
-我们人民拥有一切力量。
+**翻译整理：香草山写作组  人间世 有莫举名**
 
-Tcalman @Tcalman1 回复 林伍德律师 Lin Wood @LLinWood:
-美国联邦调查局/司法部/中央情报局不再是职能机构。.约翰·肯尼迪57号备忘录(JFKMemo 57)已激活。.军事特种部队/军事情报部门将其(联邦调查局/司法部/中央情报局)取代。.约翰·达拉谟(美国司法部特别顾问)/选举欺诈/等..转给军事机构(处置)。. 军事法庭/关塔那摩湾拘押中心 共和党/民主党两者都两党都有腐败之徒。..第一批逮捕很快..联邦最高法院法官带来真相/自由..
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03014137/logo-3-1.jpg)
 
-来源:
-https://twitter.com/tcalman1/status/1334657690107342850
 
-Lin Wood @LLinWood
-Send a message GA Patriots.
-The Spirit of 1776 is alive & well.
-We The People will be heard.
-We The People demand action.
-We The People have all the power.
 
-Tcalman @Tcalman1
-Replying to @LLinWood
-FBI/DOJ/CIA are no longer functional Agencies..JFK Memo 57 activated..Military Spec Ops/Intelligence displaced them..Durham/Election fraud/etc..Transfered to Military..MILITARY TRIBUNALS LIVE FROM GITMO..REPUBS/DEMS BOTH CORRUPT..FIRST ARRESTS SOON..JUSTICE BRINGS TRUTH/FREEDOM..
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03211024/1776%E5%B9%B4%E7%BE%8E%E5%9B%BD%E7%8B%AC%E7%AB%8B%E5%AE%A3%E8%A8%80%E7%9A%84%E7%B2%BE%E7%A5%9E%E4%BE%9D%E6%97%A7%E9%95%BF%E7%9B%9B%E4%B8%8D%E8%A1%B0.png)
-2+
+
+
+**据“****零对冲****”****(Zerohedge)****网站2****020****年1****2****月3日报道，****美国前总统比尔**·**克林顿曾经的高级助手道格·班德**在接受《名利场》采访时说，**前总统比尔·克林顿确实在2003年1月参观了杰弗里·爱泼斯坦臭名昭著的 “恋童岛”**。克林顿曾在2002年和恋童癖爱泼斯坦乘坐后者的私人飞机727去非洲。这架727飞机就是传说中的**“洛丽塔快车”**。之后，班德曾努力让克林顿和爱泼斯坦断绝关系，但终究未果。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03215804/e-q-t-y.png)
+“班德说，他当时虽然对爱泼斯坦的性犯罪一无所知，但直觉告诉他此人来者不善，因此他建议克林顿结束这段关系。但克林顿依旧我行我素，还接受爱泼斯坦的资金。2006年，爱泼斯坦向克林顿基金会捐赠了2.5万美元。爱泼斯坦的飞行记录显示，**克林顿在这段时间前后乘坐爱泼斯坦的飞机出行达二十多次**。班德称，**2003年1月，克林顿访问了爱泼斯坦的加勒比海私人岛屿小圣詹姆斯。他还强调说，这是他和克林顿在一起时，为数不多的拒绝前往的旅行之一**。”——《名利场》
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03215723/4361.png)
+班德透露了克林顿基金会的 “营利 ”活动，并指责**切尔西·克林顿窃取基金会的资金来支付她的婚礼费用**（据维基解密披露），还说切尔西**·**克林顿与爱泼斯坦以及他的未成年性贩卖团伙的同谋吉斯莱恩·麦克斯韦（Ghislaine Maxwell）有瓜葛。
+
+“班德说，切尔西与爱泼斯坦和麦克斯韦有瓜葛。他给我看了一张比尔和切尔西在摩洛哥国王的婚礼上与爱泼斯坦和麦克斯韦合影的照片。**在媒体披露麦克斯韦是爱泼斯坦的亲信后，切尔西与麦克斯韦仍然保持了多年的朋友关系**。例如，爱泼斯坦在佛罗里达州承认利用未成年人提供性服务的罪名后，切尔西仍邀请麦克斯韦参加了她2010年在纽约莱茵贝克布鲁克·阿斯特庄园举行的婚礼。”——《名利场》
+
+“吉斯莱恩能搞来游艇和豪宅。切尔西需要这些。”班德说。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03215653/451-1.png)
+图为克林顿与道格·班德
+
+据Newsmax报道，班德乃是大名鼎鼎的克林顿全球倡议（现已解散）的开创者，该倡议帮助克林顿全球慈善机构筹集了740亿美元资金。还是通过维基解密，**我们知道班德通过他的公关和投资公司Teneo为克林顿个人募捐，这是一个大多数主流媒体拒绝报道的 “拿公众资金买乐子 ”的肮脏例子**–班德在给约翰-波德斯塔的邮件中担心地说，“如果这这件事泄漏出去，我们就完蛋了。”
+
+对于班德关于切尔西的说法，一位家族发言人表示：“切尔西因为共同的朋友(Gateway电脑创始人Ted Waitt)与麦克斯韦关系友好，只在2009年与麦克斯韦进行过一次游艇旅行”。“切尔西直到2015年，才意识到对吉斯莱恩·麦克斯韦（Ghislaine Maxwell）的可怕指控，她希望所有受害者都能得到正义。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03215711/351y-y.png)
+吉斯莱恩·麦克斯韦在切尔西**·**克林顿的婚礼上
+
+班德说2011年，他指示比尔-克林顿的工作人员禁止麦克斯韦 “参加所有克林顿家族的活动”，试图以此把切尔西和吉斯莱恩分开。“我知道，告诉所有人把吉斯莱恩排除在外，一定会惹怒切尔西和她的父亲。也正因此，克林顿家族要想合理化他们和吉斯莱恩的交往就更难了。”班德说。
+
+审核发稿：悟空
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03014137/logo-3-1.jpg)
+
+
+
+
+
+
+
+0
