@@ -1,80 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Breitbart新闻网竟向林伍德律师开战-林伍德律师为川普总统辩护，对抗邪恶的马克思主义组织&#8211;林伍德律师回击Breitbart
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/616657/)
+## 务必小心病毒的再次凶猛来袭！这两周会有滚天雷般的惩罚指向中共！
+` GM127` [轉載自GNews](https://gnews.org/zh-hans/616710/)
 
-翻译：康州盘古农场-黎明的光芒
+新闻简述：2020年12月1日郭先生在盖特视频中紧急呼吁国内外的战友和兄弟姐妹们，务必小心病毒的再次的凶猛袭来，保重自己和家人的安全。郭先生再次提到：病毒在中国从来就没有控制住过！武汉死的人是你们知道的几百倍。国内警察无理由的扣押战友在家里存的70吨粮食。国内的经济现在是已经捂不住了。这周和下周会有滚天雷一般的惩罚措施会指向中共！战友们一定要搂住，注意病毒，戴口罩，关键是手。
 
-校对/审核：康州盘古农场-Truemanman
+“尊敬的战友们好，你们健身了么？你们传播CCP病毒、香港危机真相了么？兄弟姐妹们，我昨天在直播当中，咱们战友现在都皮了，就想听黄色小片儿。
 
-这到底是怎么回事？
+我再说一遍，亲爱的兄弟姐妹们，包括国内的所有同胞们，病毒在中国从来就没有控制住过！它只是低点儿或高点儿。你们看见了那个CNN，这个骗子媒体，现在说：“啊，中国现在死的人比说的一百倍还要多，现在得赶紧听我们话了。”战友们在1年前，只有郭文贵！我敢对着摄像机说，武汉死的人是你们知道的一百倍！我再说一遍，比你们知道的多几百倍！兄弟姐妹们，不要摊到你们身上，不要摊到家人身上，知道么？
 
-周三晚上，Breitbart新闻网竟然对林伍德律师发起了“圣战”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04090543/%E5%9B%BE%E7%89%8724.png)
-林伍德律师是美国最顶尖的律师之一，也是一个虔诚的基督徒。
+现在，咱们现在有战友，头两天儿去买粮食。家里放了70吨（1吨=1000kg）粮食，突然间警察去把粮食说无理由的扣押Z……等通知。我们有战友，往西部地区放了些粮食，不知道怎么回事警察找到了，无理由扣押！而且告诉……警告他：你敢申诉，你敢到法院告就弄你！警察给你开个条，开个条什么？多少立方米什么什么粮食。你说这耍流氓。还有战友反映，吃饭的食堂，突然发现馒头小了两号儿。
 
-林伍德和西德尼·鲍威尔正在为川普总统和他的7400万选民而战，而共和党的精英们却躲在山洞里。
+战友们，为什么每次都要用鲜血证明爆料革命的力量和爆料革命所说的是真相呢？你们也都跟了三年啦。还有！战友们这个病毒，我再说一遍。一，一定……只要有病了，就合法地吃羟氯喹，按照医嘱吃羟氯喹。再一个，一定戴口罩，关键是手。尽量少出去，活着比什么都重要，行不行？兄弟姐妹们。
 
-为什么Breitbart新闻网要攻击这个人？ 我们错过了什么？
+国内的经济现在是已经捂不住了，它从来就是擀面杖子经济。擀面杖子有的时候，它也会失控。它时间长了它会磨细的，会磨得跟花生米一样，它就不成擀面杖子它成花生米了。兄弟姐妹们，能跑的就跑出来，不能跑大家活下来，等待着没有共产党的新中国的诞生和到来。
 
-这太不真实了！
+12月1号，你去看看这周你再看下一周，有滚天雷一般的惩罚措施会灭……指向中共！战友们，这事儿你们难道三年来不信么？信不信能咋的？不要你钱不要你银子，你就听话，或者行不行啊？很多战友还是那句话，我真的回不完。所以我每次直播都有针对性的给战友回复信息，我会择机再直播，好不好？
 
-Breitbart新闻网真的对林伍德律师捐赠给民主党人感到愤怒吗？
+没有时间的战友不要看啊，你们去看那黄色片儿去，去看那些讲历史的去。我们只是说出真相，在我们的……我们用自己的生命宝贵的时间给战友们、给同胞们、给爆料革命的兄弟姐妹们传播真相，这是我们的责任，这是我们的信仰，这是我们的义务！信者你就信，不信就不信，我们不求任何人信。但是我们的战友们，七哥求你们一定要搂住，一定要注意病毒！看看今天会发生啥事儿，看看明天会发生啥事儿，星期五以前会发生啥事儿。一切都是刚刚开始，mugaisai(谢谢啦)。”
 
-林伍德与西德尼·鲍威尔甚至在本周三阿尔法利塔集会上承认了这一点。
-
-川普的选民中，有上百万人是前民主党人。这是一件坏事吗？难道共和党精英想在川普总
-
-统离任后禁止这些人加入共和党？
-
-林伍德律师今晚晚些时候对攻击进行了回应。
-
-
-
-> 1. Breitbart is dishonest. Historically, I am nonpartisan. This year, I was partisan because I love [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw).
-> 
-> I donated $375K to Trump PAC. [@sendavidperdue](https://twitter.com/sendavidperdue?ref_src=twsrc%5Etfw) solicited a $25K donation & I gave it to him. I gave $5,600 to [@RepDougCollins](https://twitter.com/RepDougCollins?ref_src=twsrc%5Etfw) & hosted a fundraiser for him. [https://t.co/CuhZoI6V7K](https://t.co/CuhZoI6V7K)
-> — Lin Wood (@LLinWood) [December 3, 2020](https://twitter.com/LLinWood/status/1334333082682449920?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> 2. I estimate that I have given WINRED $10K+ this year. I have donated several thousand dollars to other Republican candidates & $150K to conservative PAC for congressional candidates.
-> — Lin Wood (@LLinWood) [December 3, 2020](https://twitter.com/LLinWood/status/1334333083869392899?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> 3. I gave $5,000 at a fundraiser in which [@RichardGrenell](https://twitter.com/RichardGrenell?ref_src=twsrc%5Etfw) spoke. That is all I can remember at the moment.
-> 
-> How did Briebart miss these facts? Guess some people do not want the fraud in GA election to be discovered. I did not donate to. [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw).
-> 
-> Now back to my dessert. [pic.twitter.com/QRR1HzR7bW](https://t.co/QRR1HzR7bW)
-> — Lin Wood (@LLinWood) [December 3, 2020](https://twitter.com/LLinWood/status/1334333136457658368?ref_src=twsrc%5Etfw)
-
-
-
-推文翻译：
-
-1. Breitbart新闻网是不诚实的。从历史上看，我是无党派的。（但是）今年，我是共和党的拥护者，因为我爱唐纳德-川普
-
-我捐了37万5千美元给川普行动委员会。
-
-佐治亚州的参议院募集了2.5万美元的捐款，然后我给了他。
-
-我给了佐治亚州东北部的众议员5600元，并为他举办了一场募捐活动。
-
-2. 估计今年我给共和党筹款委员会捐赠了1万多美元。我给其他共和党候选人捐了几千美元，给保守派政治行动委员会(组织)提供15万美元，用于资助国会候选人。
-
-3. 我在一次募捐活动中捐出了5000美元，其中包括 @RichardGrenel （美国国家情报局代理局长）讲话。我现在只记得这些。
-
-Breitbart新闻网怎么会错过这些事实？我想可能有些人不希望佐治亚州选举中的欺诈行为被揭露。我没有捐款给佐治亚州州长。
-
-开始享用我的甜点。
-
-原文链接：[*https://www.thegatewaypundit.com/2020/12/wth-breitbart-wages-war-attorney-lin-wood-defending-president-trump-election-integrity-lin-wood-responds/*](https://www.thegatewaypundit.com/2020/12/wth-breitbart-wages-war-attorney-lin-wood-defending-president-trump-election-integrity-lin-wood-responds/)
-
+翻译：【班仔】校对：【Isaiah4031】字幕：【Naomi (文花开)】听写：【小螺号】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22111053/VOG-Rose-Garden-Team.png)
 0
