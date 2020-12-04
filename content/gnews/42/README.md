@@ -1,31 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 军事特种部队/情报部门取代FBI/中情局/司法部 12/3
-` Mike迈克小哥` [轉載自GNews](https://gnews.org/zh-hans/615155/)
+## 佐治亚州选举被计算机和缺席选票欺诈所窃取 12/3
+` Mike迈克小哥` [轉載自GNews](https://gnews.org/zh-hans/615188/)
 
-林伍德律师 Lin Wood @LLinWood:
-发给佐治亚州爱国者们的一条短信
-1776年(美国独立宣言)的精神依旧长盛不衰
-我们人民的声音会被倾听。
-我们人民要求采取行动。
-我们人民拥有一切力量。
-
-Tcalman @Tcalman1 回复 林伍德律师 Lin Wood @LLinWood:
-美国联邦调查局/司法部/中央情报局不再是职能机构。.约翰·肯尼迪57号备忘录(JFKMemo 57)已激活。.军事特种部队/军事情报部门将其(联邦调查局/司法部/中央情报局)取代。.约翰·达拉谟(美国司法部特别顾问)/选举欺诈/等..转给军事机构(处置)。. 军事法庭/关塔那摩湾拘押中心 共和党/民主党两者都两党都有腐败之徒。..第一批逮捕很快..联邦最高法院法官带来真相/自由..
+林伍德律师 Lin Wood @LLinWood: 我没有和任何人交战。 我为“我们人民”在诚实选举中的投票权而斗争。 11月3日（美国大选日） 佐治亚州选举被计算机欺诈和缺席选票欺诈所窃取。 佐治亚州接下来的参议员竞选将遭受同样的命运。 修复选举过程中的漏洞吧，否则犯错的是职业政治家们，而不是我。
 
 来源:
-https://twitter.com/tcalman1/status/1334657690107342850
-
+https://twitter.com/LLinWood/status/1334658704914964481
 Lin Wood @LLinWood
-Send a message GA Patriots.
-The Spirit of 1776 is alive & well.
-We The People will be heard.
-We The People demand action.
-We The People have all the power.
-
-Tcalman @Tcalman1
-Replying to @LLinWood
-FBI/DOJ/CIA are no longer functional Agencies..JFK Memo 57 activated..Military Spec Ops/Intelligence displaced them..Durham/Election fraud/etc..Transfered to Military..MILITARY TRIBUNALS LIVE FROM GITMO..REPUBS/DEMS BOTH CORRUPT..FIRST ARRESTS SOON..JUSTICE BRINGS TRUTH/FREEDOM..
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03211024/1776%E5%B9%B4%E7%BE%8E%E5%9B%BD%E7%8B%AC%E7%AB%8B%E5%AE%A3%E8%A8%80%E7%9A%84%E7%B2%BE%E7%A5%9E%E4%BE%9D%E6%97%A7%E9%95%BF%E7%9B%9B%E4%B8%8D%E8%A1%B0.png)
-2+
+I’m not at war with anyone. I am fighting for right of We The People to vote in honest election. 11/3 GA election was stolen by computer fraud & absentee ballot fraud. Runoff will suffer same fate. Fix it or career politicians are at fault. Not me.
+https://www.mediaite.com/news/conservatives-go-to-war-with-each-other-after-lin-woods-call-to-boycott-georgias-razor-thin-senate-runoff/
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03213700/%E4%BD%90%E6%B2%BB%E4%BA%9A%E5%B7%9E%E9%80%89%E4%B8%BE%E8%A2%AB%E8%AE%A1%E7%AE%97%E6%9C%BA%E6%AC%BA%E8%AF%88%E5%92%8C%E7%BC%BA%E5%B8%AD%E9%80%89%E7%A5%A8%E6%AC%BA%E8%AF%88%E6%89%80%E7%AA%83%E5%8F%96.png)
+0
