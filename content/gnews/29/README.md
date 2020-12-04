@@ -1,113 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》每日简报晚间版 2020.12.02&#8211;NewYork Time
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/615555/)
+## 每日新闻看点-2020年12月3日
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/615862/)
 
-出品《路德社》 编辑：路德社精选新闻专栏组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04011702/12-2-pm-zh-scaled.jpg)
-1202晚间要闻-NewYorkTime
+多伦多枫叶农场 大地鲲鹏
 
-Dec 02nd Brief-NewYorkTime
+校对上传 XM
 
-听写：文宝Porsche明台 校对：瓦者翻译
+一、疫情真相
 
-recorded by: 文宝Porsche明台, revised by 瓦者, translated by: revised by:
+1.闫丽梦博士论文：
 
-**川普总统重磅演讲开启战前总动员**
+[第一份英文版](https://zenodo.org/record/4028830#.X1_lwj-SlPa)   [第一份中文版](https://drive.google.com/file/d/1vZ0vbPJ9QAhGDjna9pkMxqUHhIdakODW/view?usp=sharing)
 
-**President Trump’s bomb speech initiates the pre-war general mobilization.**
+[第二份英文版](https://zenodo.org/record/4073131)   [第二份中文版](https://gnews.org/zh-hans/411364/)
 
-他说这是我一生中最重要的演讲，守护美国的宪法和法律是我的首要职责，民主党利用起源于中国的病毒操纵了这场选举。
+2.中共国务院副总理孙春兰、国务委员王勇于12月2日在北京调研中共病毒疫苗研发和生产准备工作，充分肯定疫苗工作取得的成绩。并表示要求中共疫苗企业，做好大规模生产准备。闫博士一直警告大家，中共疫苗存在巨大的安全风险。郭文贵先生在11月3日的直播节目也提及，警惕中共使用疫苗对世界再次进行残害。
 
-川普在美国已经被超限战严重入侵的当下提出守护宪法，是为其即将采取的雷霆行动进行铺垫的一次战前总动员。
+二、新中国联邦新闻
 
-He said this is the most important speech in my life and guarding the U.S. Constitution and laws is my primary duty. The Democratic Party has rigged the election with virus originated from China.
+1.郭文贵先生星期四（12/3/2020）GTV直播以《中国人的灾难真正的开始了》为题，就世界即将到来的巨变，向所有中国同胞表达了自己的看法：
 
-Trump’s proposal of the Guardian Constitution at a time when the United States has been severely invaded by the ultra-restricted warfare is a pre-war mobilization to pave the way for his upcoming Thunder operation.
+天赋人权，人类有三个宝物高过黄金钻石、高过任何权力。每个人都有选择自己信仰的权力；每个人都有自卫的权力；每个人的财富都不可侵犯。中共一贯奉行假、恶和无神论，觊觎三宝已久。川普总统一定会当选，结局不过两个，要么全世界人类灭亡，要么西方世界和美国联合起来砸烂、砸碎共产党。
 
-**林肯为什么伟大？**
+中共的疯狂将给中国老百姓带来无法形容灾难，爆料革命还没有唤醒大多数的同胞，屯粮、换美金，也救不了无辜的同胞。14亿同胞会因中共在世界的作恶一起被拽入地狱，劫难将是百倍、千倍于香港手足的遭遇。
 
-**Why Lincoln so great?**
+三个月后中国人连觉醒和后悔的机会也将失去，海外华人也难逃其中的影响。执行行动的美国高层称几乎很难区分中共和中国人，而且同胞至今并不领情爆料革命区分中共和中国人的努力。
 
-林肯说，一方宁可挑起战争也不愿让国家继续生存下去，另一方宁可迎战也不愿让国家灭亡。这场让美国受难4年、导致60万人死亡的暴力冲突，是上帝对250年奴隶制这种罪过的终极惩罚。上帝的意志是要让战争继续下去，直至让皮鞭抽出每一滴鲜血来偿还。
+热战无法避免、粮食危机、内乱、外部军事打击都会接踵而至，请战友们尽量传播给周围家人朋友，新中国联邦和各农场要在应对病毒恶化、疫苗灾难和凝聚团结人气上做好充足的准备。在安全的情况下，合格的新中国联邦和爆料革命人要多度同胞和身边的任何人，要站在更高的角度行动，保护生灵。
 
-林肯抛弃妇人之仁，敢于担当平定叛乱、废除奴隶制、保护领土完整，让美国成为了人类文明的灯塔。
+墙内最高领导的家人都在准备后事，子女已经准备后路，包括军事上的结盟。海外基金大举抛售。大难来临，爆料革命只能救很少一部分人。做好保护、帮助、资助战友、同胞，以及G系列投资者的各种准备。
 
-Lincoln said that one side would rather start a war than allow the country to survive, while the other side would rather fight than let the country perish. This violent conflict that has caused the United States to suffer for four years and killed 600,000 people is God’s ultimate punishment for 250 years of slavery. It’s God’s will to let the war continue until the whip draws every drop of blood to pay
+如同摩西出埃及一般的感受，先知渡人太难。大战无声的到来只能毁灭一切，只有具有神力的人才能拯救，每分每秒都在加速。
 
-Lincoln abandoned the benevolence of women, dared to quell the rebellion, abolished slavery, and protected territorial integrity, making the United States a beacon of human civilization.
+任何地方都比大陆安全，但没有绝对安全的地方。
 
-**川普必然伟大！**
+2.“路德时评”12/3/2020节目部分内容:
 
-**Trump definitely great**
+a.上周北约、俄军方已对中共病毒战、疫苗战、核战对人类危害、重启星球大战计划，铲除中共造成的人道经济损失完成评估。灭共步骤：用尽外交手段；利用脱钩等制裁摧毁、削弱中共经济；斩首中共首脑、铲除军事设施、联军进驻。
 
-每个人是依赖于他人的自由来实现自己的自由。十四亿中国人没有自由，美国人也必然失去自由（正在失去中）。华尔街把十四亿奴隶当作积累财富工具的时代，该结束了。川普就是那个在国家被入侵、人民选举权被剥夺的危机时刻，站出来再次拯救美国的天选之子。
+b.中共至今无戈尔巴乔夫式人物出面，美方按计划不再等待，无差别冻结华人海外资产阻止中共渗透，无差别军事打击中共军民融合设施避免核武等反击，美、加、英等国将配合新中国联邦成立华人保护区救助真战友。
 
-Everyone is dependent on the freedom of others to achieve their own freedom. 1.4 billion Chinese have no freedom, and Americans will certainly lose their freedom (in the process of losing). The era when Wall Street used 1.4 billion Chinese slaves as a tool to accumulate wealth has to be over. Trump was the Chosen One who stood up to save the United States again at a time of crisis when the country was invaded and the people’s right to vote was denied.
+c.习近平等中共高层已下军令要挟美方，美军一旦实施斩首，包括藏匿人口密集城市的中共核武将立即对美还击，届时美太空军将反制，地球恐陷核灾难。中共病毒战、操控大选终令美国忍无可忍，2021年1月底前行动，12月底前结束，中共政法委等高层正闻风逃遁。
 
-**林伍德对中共喊话**
+d.美军印太司令部确认中共东风21击中移动靶舰，为准备相应武力做准备；美国家情报总监John Ratcliffe称中共渗透美国会议员，确保有利灭共法案通过 。
 
-**Linwood calls out the CCP**
+e.解读中共回应美众议院通过“外国公司问责法”：中共证监会强行碰瓷混淆审计概念，其运作美公众公司会计监管委员会阻止法案通过被曝光；政治化抹黑该法案；刘特佐、尼基·戴维斯等曾为中共渗透美监管部门。川普总统将快速通过该法案。
 
-他说，美国再次来到1776年建国时刻，我们将为自由而战，绝对不会让北京中共政府占领我们的国家，这里是美国，你们找错了对手。
+f.刘特佐等中共海外基因地图是渗透美司法的重要力量，郭文贵先生爆料革命为川普总统调查司法腐败提供线索。
 
-He said that the United States again has come to the founding moment of 1776. We will fight for freedom and will never let the Chinese Communist government in Beijing occupy our country. This is the United States and you got the wrong opponent.
+g.CNN内部会议录音曝光，揭露其高层主导掩盖亨特·拜登硬盘门报道。主流媒体垄断有线电视、借230法案打压真相，废除该法案后，将被GTV等互联网电视彻底颠覆。
 
-**众议院通过问责法，中概股退市或接受审计！**
+（[“路德时评”早间节目](https://www.youtube.com/watch?v=NsxLZsv_eco)）
 
-House of Representatives passed accountability law and China stocks will be delisted or subject to audited
+（[“路德时评”晚间节目](https://www.youtube.com/watch?v=vIl7eXQRFnY)）
 
-《外国公司问责法》如路德社29日预期的那样在众议院快速获得2/3的投票通过，证明了美国的利益集团，已经完成了与中共的正式切割，断掉了与中共最重要的利益勾连。中共失去了自己在美国的靠山，离灭亡就越来越近了。
+3.川普总统周三（12月2日）发布新规，将中共党员及其家属的旅行签证最长有效期限制在单月单次入境，立即生效。美国国务院一名发言人表示，这一举动是“美国政府为保护我们国家不受中共邪恶影响力侵害的持续的政策、监管和执法行动”的一部分。
 
-The “Holding Foreign Companies Accountable Act”, as Lude Media has predicted on the 29th, was quickly passed by 2/3 of the vote in the House of Representatives which proved the interest groups in the United States have completed their formal cut with the CCP, and have broken off their most important interests. The CCP has lost its backing in the United States and is getting closer and closer to extinction.
+4.为遏止中共在亚洲日益扩张的威胁及势力，11月2日，美国海军部长布雷斯韦特正式宣布，将在西太平洋和东印度洋区域成立第1舰队（U.S. 1st Fleet），由印太司令部指挥的太平洋舰队负责管辖，与第7舰队共同组成”印度-太平洋”地区的核心战力。
 
-**北约国防部长联席会议正式讨论中共（非中国）的威胁**
+5.美国国土安全部（DHS）星期三（12月2日）宣布，美国海关与边境保护局（CBP）人员将在美国所有入境口岸扣留包含新疆生产建设兵团（XPCC）的棉花和棉制品的货物。理由是有合理证据表明兵团使用了强迫劳动，包括罪犯劳动。
 
-**NATO Defence Ministers’ Joint Meeting formally discuss the CCP (not China) threat.**
+6.2019年11月4日在警民冲突中堕楼死亡的22岁科大学生周梓乐，其死因研讯周四（12月3日）继续进行，并且出现重大突破。首名接触到周梓乐的伊利沙伯医院急症室医生梁子恒作供，认为伤者堕楼但四肢没有受伤的情况罕见，推断他有机会堕楼前已不省人事。
 
-会议中讨论了中共改变国际组织职、控制其他国家基础设施及恶意贷款等经济侵略手段，称要联合应对其威胁。会议全程用CCP代指之前的中国。
+7.中共粮食供应链紧张。印度官员12月2日表示，由于泰国、缅甸和越南的大米供应趋紧，中共国已开始从印度进口大米，这是至少30年来的首次。
 
-The meeting discussed how the CCP changes the role of international organizations, controls the infrastructure of other countries and adopts economic aggression such as malicious loans, and claimed to jointly respond to its threats.
+8.澳大利亚议会于12月3日通过法案授予澳大利亚联邦政府否决权，可以否决澳大利亚州一级政府与外国的任何协议。这种协议的典型是维多利亚州2018年跟中共国签署的一项该州参加中共一带一路项目的协议。
 
-The CCP was used to refer to the previous China throughout the meeting.
+9.澳大利亚国家情报办公室（ONI）近期有针对性的分析了当地20多个中文新闻网站和微信公众号，并警告，这些媒体背后都被中共操控和审查，部分更由中共直接管理，用以推动其全球战略利益。
 
-**美将重建当年执行原子弹轰炸任务的空军基地**
-
-**The U.S. will rebuild the air base where Atomic Bombing Missions were carried out**
-
-该基地位于关岛以北160公里的提尼安岛，当年向广岛和长崎投放原子弹的B-29轰炸机就从这里起飞。重建后，将和关岛的安德森基地互为备份，大大增强战场生存能力。
-
-The base is located on Tinian Island, 160 kilometers north of Guam, from where the B-29 bombers that dropped atomic bombs on Hiroshima and Nagasaki took off. After reconstruction, it will be a backup with the Anderson base in Guam, greatly enhancing the survivability of the battlefield
-
-金句：
-
-Quotes
-
-博博士：
-
-利益对资本主义很有诱惑力，中共就利用这点给华尔街输送利益。去年8月23号川普总统刚说脱钩，就受到各利益集团反对。华尔街想通过中共赚钱，但是一旦意识到中共不仅谋财还要害命，所有人都会参与灭共。
-
-Dr. Mo
-
-Benefits are very tempting to capitalism, and the CCP uses this to convey benefits to Wall Street. On August 23 last year, as soon as President Trump said that he would decouple, he was opposed by various interest groups. Wall Street wants to make money through the CCP, but once they realize that the CCP not only makes fortune on them but also kills them, everyone will participate in destroying the CCP.
-
-冠博士：
-
-川普今天明确说这是他最重要的一次演讲，就是在传递他要彻底解决大选舞弊、捍卫宪法的决心。
-
-Dr Guan:
-
-Trump made it clear today that this was his most important speech, which is to convey his determination to thoroughly resolve election fraud and defend the Constitution.
-
-**路德：中共之所以能活下去，就是因为美国某些利益集团要通过中共赚钱，要是美国不给机会，中共必死。**
-
-Lude:
-
-The CCP can survive because certain interest groups in the United States want to make money through the CCP. If the United States does not give it a chance, the CCP will die.
-
-审核校对：玫瑰天空
-
-上传排版：青葫芦娃
+10.德国外交部长马斯周三（12月2日）晚间表示，北约必须正视中共国的军事崛起。澳大利亚、日本、新西兰和韩国代表也参加了周三的视频会议。
 
 0

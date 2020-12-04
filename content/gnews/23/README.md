@@ -1,30 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯：默克制药出售Moderna股份套现
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/612888/)
+## 《路德社》精选新闻快讯：林伍德说道：乔治•索罗斯不要再将我们的选票卖给中共国
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/612853/)
 
 出品《路德社》 编辑：路德社精选新闻专栏组
 
-据路透社报道，市值2060亿美元的美国制药商默克（Merck）2/12/2020表示，将出售其持有的560亿美元的生物技术公司Moderna的股份兑现，该公司开发出了高效的Covid-19针剂，今年股价飙升了600％以上。
+特朗普的律师林伍德和西德尼鲍威尔近日在佐治亚州的亚特兰大举行集会。
 
 
 
-> Breakingviews – Corona Capital: Merck sells Moderna stake [https://t.co/pJJfrV302a](https://t.co/pJJfrV302a) [pic.twitter.com/En0D6vhAPh](https://t.co/En0D6vhAPh)
-> — Reuters (@Reuters) [December 2, 2020](https://twitter.com/Reuters/status/1334258691592294403?ref_src=twsrc%5Etfw)
+> Pro-Trump lawyers Lin Wood and Sidney Powell hold a rally. He says, "It's 1776 in America again….Get out of our country, George Soros….You're not going to sell our votes to China….The media is a lie. He slams Kemp: "Lock him up." Says he took money from China. Crazy people. [pic.twitter.com/zMZ6XhKHR4](https://t.co/zMZ6XhKHR4)
+> — David Corn (@DavidCornDC) [December 2, 2020](https://twitter.com/DavidCornDC/status/1334217746985476101?ref_src=twsrc%5Etfw)
 
 
 
-位于美国马萨诸塞州剑桥市的Moderna Therapeutics总部，因正在开发针对冠状病毒疾病的疫苗（COVID-19）。被广泛关注，这次撤资套现据称并不是默克对疫苗开发失去信心的迹象，它仍将开放给风险投资基金，默克并表示将继续与Moderna合作开发癌症疫苗。
+林伍德说道：“现在的美国正像是1776年的美国（美国独立战争开始的那一年）… 乔治•索罗斯请离开我们的国家，你不要再将我们的选票卖给中共国…媒体充斥着谎言
 
-这家制药巨头在2015年进行了最初的5000万美元投资，并在2018年可观的收益。但是默克公司的股价今年下跌了近10％，因此资金重组是有道理的。鉴于辉瑞和BioNTech等竞争对手可能会在2021年批准和分发多种疫苗，因此可以肯定地说，默克的股价不会再出现七倍的上涨。
+林伍德大声疾呼： “把他（乔治•索罗斯）关起来。”他从中共国拿到了钱，是个疯狂的家伙。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03054010/2012-12-03.jpg)
+据国家脉动（National Pulse） 11月29日报道：与左翼超级捐助者索罗斯有着错综复杂的关系的Smartmatic董事长布朗勋爵曾承认 “…我们的技术的一部分已获得Dominion的授权许可”
 
-[援引原文](https://twitter.com/reuters/status/1334258691592294403?s=12)
+而事实上Smartmatic拥有在国际上使用Dominion所使用的特定技术的许可。Dominion软件过去在委内瑞拉曾帮助查韦斯赢得大选，然后把委内瑞拉变成一个社会主义人间地狱。 已成为全球焦点投票系统Smartmatic和Dominion在2020美国大选舞弊，目前有越来越多的证据都指向了背后操纵选举的暗黑势力，而其中黑暗沼泽里潜伏的大鳄乔治索罗斯干扰竞选的历史由来已久，曾操纵利用了千万美元巨资支持总统竞选，并还企图指定美大法官人选。笔者坚信随着更多证据浮现，正义的力量一定会给邪恶一方最猛烈的回击！
 
-本文作者：水云间
+[援引原文](https://twitter.com/davidcorndc/status/1334217746985476101?s=12)
+
+本文作者：文森特
 
 审核校对：玫瑰天空
 
 上传排版：青葫芦娃
 
-0
+1+

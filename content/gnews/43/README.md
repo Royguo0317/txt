@@ -1,28 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 洛夫勒拥有Dominion的股票,排干佐治亚州沼泽 12/3
-` Mike迈克小哥` [轉載自GNews](https://gnews.org/zh-hans/615519/)
+## 佐治亚州高官深陷中共Dominion公司 12/3
+` Mike迈克小哥` [轉載自GNews](https://gnews.org/zh-hans/615634/)
 
 林伍德律师 Lin Wood @LLinWood:
-凯利·洛夫勒, 你在跟我开玩笑吗？ @KLoeffler (美国佐治亚州联邦参议员凯利·洛夫勒) 在2020年3月13日购买了500万美元至2500万美元的Dominion股票，而@GaSecofState(佐治亚州州务卿布拉德·拉芬斯佩格)在没有立法机构批准的情况下与民主党进行了幕后交易以更改缺席选票吗？ 由于丈夫拥有纽约证券交易所，凯利·洛夫勒是共产党的伙伴吗？
-我们必须排干佐治亚州沼泽。
 
-President-Elect Eagle @SonsOfMontesQ:
-凯利·洛夫勒（Kelly Loeffler）拥有Dominion的股票…？ 所以她收买了选票。 这种说法持续好几个星期了。 @GOP(共和党)也有人窃取选举。 在清除所有欺诈和选票腐败之前，不得举行任何形式的选举，竞选。。 #StopTheSteaI
-https://twitter.com/TrumperWavin/status/1333186020335112195
-该推文不可用。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04011203/%E6%8E%92%E5%B9%B2%E4%BD%90%E6%B2%BB%E4%BA%9A%E5%B7%9E%E6%B2%BC%E6%B3%BD.png)
+我是一位疲倦的律师，试图深入了解为什么 @KLoeffler(美国佐治亚州联邦参议员凯利·洛夫勒), @BrianKempGA(佐治亚州州长布赖恩·肯普), @GaSecofState(佐治亚州州务卿布拉德·拉芬斯佩格)没有公开要求调查涉及Dominion投票机的佐治亚州选举欺诈行为。
+有些事情不合情理。 这告诉我, 我们远没有了解到全部真相。
+
+中国共产党CCP与Dominion公司75％的所有权相关联，2019年,Dominion公司以1.07亿美元向佐治亚州销售投票机。
+@BrianKempGA(佐治亚州州长布赖恩·肯普) 和 @GaSecofState(佐治亚州州务卿布拉德·拉芬斯佩格)达成了Dominion公司销售协议。
+@KLoeffler(美国佐治亚州联邦参议员凯利·洛夫勒)拥有Dominion公司股票。
+佐治亚州的州长布赖恩·肯普，州务卿布拉德·拉芬斯佩格, 联邦参议员凯利·洛夫勒拒绝要求对佐治亚州选举进行调查。
+连接这些线索点。 追踪钱的流向。
+
 来源:
-https://twitter.com/LLinWood/status/1334732698867408896
+https://twitter.com/LLinWood/status/1334742531729485824
 Lin Wood @LLinWood:
-Are you kidding me? @KLoeffler bought $5M-$25M of Dominion stock on 3/13/20, 7 days before @GaSecofState made backroom deal with Dems to change absentee ballots without approval of legislature? Is Kelly a Communist buddy due to husband’s NYSE ownership?
-We must drain GA Swamp.
+I am a tired lawyer trying to dig deep on why @KLoeffler, @BrianKempGA @GaSecofState have not been publicly demanding investigation of GA election fraud involving Dominion voting machines.
+Something just does not make sense. Which tells me we know less than full truth.
 
-https://twitter.com/SonsOfMontesQ/status/1333202729091600387
-President-Elect Eagle @SonsOfMontesQ:
-Kelly Loeffler owns stock in Dominion…? So she bought her votes. Been saying it for weeks. The @GOP is in on the steal. No elections, runoff or otherwise, should be held until all of this fraud and vote corruption is cleaned out. #StopTheSteaI
-https://twitter.com/TrumperWavin/status/1333186020335112195
-This Tweet is unavailable.
-
+https://twitter.com/LLinWood/status/1334736357487423488
+Lin Wood @LLinWood
+CCP is tied to 75% ownership in Dominion, seller of voting machines to GA for $107M in 2109.
+@BrianKempGA & @GaSecofState made that deal.
+@KLoeffler owns Dominion stock.
+Kemp, Raffensperger, & Loeffler refuse to demand investigation of GA election.
+Connect dots. Follow money.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04014442/%E4%BD%90%E6%B2%BB%E4%BA%9A%E5%B7%9E%E9%AB%98%E5%AE%98%E6%B7%B1%E9%99%B7Dominion%E5%85%AC%E5%8F%B8.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04014743/%E6%B4%9B%E5%A4%AB%E5%8B%92%E6%8B%A5%E6%9C%89Dominion%E7%9A%84%E8%82%A1%E7%A5%A8.png)
 0

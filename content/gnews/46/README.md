@@ -1,31 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】从“购房养老”到“物业养老”，从“国家养老”到“自己养老”，中共变本加厉，吸干你最后一滴血
-` HAIKUOTIANKONG` [轉載自GNews](https://gnews.org/zh-hans/615479/)
+## 洛夫勒拥有Dominion的股票,排干佐治亚州沼泽 12/3
+` Mike迈克小哥` [轉載自GNews](https://gnews.org/zh-hans/615519/)
 
-内新闻/素材：鹰(文言) 校对：七哩香
+林伍德律师 Lin Wood @LLinWood:
+凯利·洛夫勒, 你在跟我开玩笑吗？ @KLoeffler (美国佐治亚州联邦参议员凯利·洛夫勒) 在2020年3月13日购买了500万美元至2500万美元的Dominion股票，而@GaSecofState(佐治亚州州务卿布拉德·拉芬斯佩格)在没有立法机构批准的情况下与民主党进行了幕后交易以更改缺席选票吗？ 由于丈夫拥有纽约证券交易所，凯利·洛夫勒是共产党的伙伴吗？
+我们必须排干佐治亚州沼泽。
 
-新京报12月4日报道，中共住建部、发改委等部门于3日发布《关于推动物业服务企业发展居家社区养老服务的意见》，将养老“甩锅”物业服务。
+President-Elect Eagle @SonsOfMontesQ:
+凯利·洛夫勒（Kelly Loeffler）拥有Dominion的股票…？ 所以她收买了选票。 这种说法持续好几个星期了。 @GOP(共和党)也有人窃取选举。 在清除所有欺诈和选票腐败之前，不得举行任何形式的选举，竞选。。 #StopTheSteaI
+https://twitter.com/TrumperWavin/status/1333186020335112195
+该推文不可用。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04011203/%E6%8E%92%E5%B9%B2%E4%BD%90%E6%B2%BB%E4%BA%9A%E5%B7%9E%E6%B2%BC%E6%B3%BD.png)
+来源:
+https://twitter.com/LLinWood/status/1334732698867408896
+Lin Wood @LLinWood:
+Are you kidding me? @KLoeffler bought $5M-$25M of Dominion stock on 3/13/20, 7 days before @GaSecofState made backroom deal with Dems to change absentee ballots without approval of legislature? Is Kelly a Communist buddy due to husband’s NYSE ownership?
+We must drain GA Swamp.
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04005803/image112.jpg)
-
-1、《意见》要求推行“物业服务＋养老服务”社区，补齐社区养老服务设施；闲置低效公共房屋和设施经业主同意后，由物业改造服务养老；政府闲置房屋和设施，经管理部门同意后交由物业用于养老服务。
-
-2、鼓励开发商与物业服务企业协商，将开发企业的房屋改造为养老用房，包括增设无障碍通道、加装电梯等，即以养老服务“去库存”。无论是开发商持有的房屋以及后续的养老功能改造等资金，必定来自于物业本身，源头则是小区住户，通俗地讲就是以人民自己的钱来解决房屋去库存和养老。
-
-3、《意见》支持物业应设立居家社区养老服务部门，提供助餐、助浴、助洁、助急、助行、助医、照料看护等定制服务，并对养老服务的营收单独核算；鼓励物业服务企业做大做强，成规模、搞连锁；对取得居家社区养老服务机构营业执照的，允许跨区域经营。
-
-4、鼓励商业银行向物业服务企业发放抵押质押贷款，企业本身可用土地使用权、未来收益等发放债券，鼓励商业保险、基金、信托、社保等资金投资养老服务项目。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04005755/image113.jpg)
-中共几十年前为强推计划生育，宣传“只生一个好，国家来养老”；2005年宣传“养老不能靠政府”，将政府职责置之不顾；再到2012年宣扬“推迟退休好，自己来养老”，将养老服务丢给个人；后更以“购房养老”盘剥老人的最后财产。文革2.0后，为缓解房地产泡沫造成的大量房屋空置，为去库存“鼓励”物业养老，进一步将养老这一合法政府的基本职责丢给社会。这不仅违背了人伦常理，更视宪法法律中规定的养老社会保障为儿戏。
-
-从《意见》中对物业服务企业的“要求”也能看出，中共不只是将社会养老服务职责丢给物业服务部门，更可利用企业养老服务资质审核以及质押贷款、发行债券等方式对社会资产和个人“余财”进行再次敛夺。由于中共的横征暴敛和挥霍无度，将国家财富、社会个人财富“家族化、私人化”，造成房地产、股市泡沫，社保基金短缺，短短几年经济近乎崩溃。当前不仅养老无法保障，更通过“延迟退休”方式减少退休金的开支。
-
-不但如此，在6亿人月薪不到1000元的实情下，依旧洗脑宣传“全脱贫”。如今大量中小企业倒闭破产，大型国企央企银行接连清算重组，失业“断收”人数激增，在岗职工收入减少，个人房贷车贷压力山大，现在连基本的生活保障、粮食供应都出了问题。所以共产党必亡，必然亡于愤怒的人民的声讨和追责。
-
-新闻来源：
-新京报：物业发展养老服务，利于解决社区养老难题
-[https://news.sina.com.cn/c/2020-12-04/doc-iiznezxs5077915.shtml](https://news.sina.com.cn/c/2020-12-04/doc-iiznezxs5077915.shtml)
+https://twitter.com/SonsOfMontesQ/status/1333202729091600387
+President-Elect Eagle @SonsOfMontesQ:
+Kelly Loeffler owns stock in Dominion…? So she bought her votes. Been saying it for weeks. The @GOP is in on the steal. No elections, runoff or otherwise, should be held until all of this fraud and vote corruption is cleaned out. #StopTheSteaI
+https://twitter.com/TrumperWavin/status/1333186020335112195
+This Tweet is unavailable.
 
 0
