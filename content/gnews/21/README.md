@@ -1,32 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选主题专栏：朱利安尼市长呼吁为了维护宪法“挺身而出
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/615757/)
+## 《路德社》精选新闻快讯：突发新闻：12月4日美国司法部控社交媒体巨头Facebook招聘员工时优先招聘持有H-1B签证的人员
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/615799/)
 
-《路德社》精选主题专栏组出品
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-据Newsmax美国时间12月2日周三报道，朱利安尼市长呼吁密歇根州政府在 “大规模欺诈 “中 “挺身而出“。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04032806/ef0b539a-58c6-4006-ac2e-857e41715127.jpg)UNITED STATES – NOVEMBER 19: Rudolph Giuliani, attorney for President Donald Trump, conducts a news conference at the Republican National Committee, on lawsuits regarding the outcome of the 2020 presidential election on Thursday, November 19, 2020. (Photo By Tom Williams/CQ Roll Call via AP Images)
 
-报道称，川普总统的私人律师周三敦促密歇根州共和党人向共和党控制的立法机构施压，要求他们 “挺身而出”，在发现民主党人乔.拜登（Joe Biden）通过”大规模欺诈“领先15.4万票的情况下将该州16张选举人票判给川普。
+> BREAKING – U.S. Department of Justice files a lawsuit against [#Facebook](https://twitter.com/hashtag/Facebook?src=hash&amp;ref_src=twsrc%5Etfw) for discriminating against U.S. workers in favor of Visa holders.
+> — Disclose.tv 🚨 (@disclosetv) [December 3, 2020](https://twitter.com/disclosetv/status/1334584074640519174?ref_src=twsrc%5Etfw)
 
-在美国东部时间下午6点在共和党主导的立法委员会作证前，鲁.朱利安尼指出 “大规模欺诈，遍布全国各地”。就在前一天，司法部长威廉.巴尔宣称司法部没有发现任何可能改变2020年大选结果的大范围选民欺诈的证据。
 
-GOP立法领导人表示，他们不会试图更换密歇根州的选举人。
 
-朱利安尼说，美国宪法授权立法机构直接任命选举人，尽管立法机构早已通过法律将选举人分配给普选获胜者。拜登以2.8个百分点的优势”赢得“该州。上周，该州两党选举委员会对结果进行了认证。
+12月4日美国司法部指控社交媒体巨头Facebook歧视美国员工，称该公司招聘员工时优先招聘持有H-1B签证的人员。
 
-“他们才是应该有勇气站出来的人，”朱利安尼谈到立法者时说。”有些州议员害怕地无法专心面对这个问题。你必须让他们记住，为了实现对宪法的誓言有时候需要遭受批评。有时甚至需要收到威胁。”
+从这一刻意设计的招聘系统，致使Facebook公司放弃了2600个原本可以使用美国员工的岗位，而选择了更廉价的外国劳动力，也促使了这些外国劳动者需要特别依赖其工作来维持自身的移民身份。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04032840/3228331776170298547.jpg)
+美国司法部称，Facebook的不当行为建立了一个不平等的雇佣关系。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04041640/2233.jpg)
+笔者认为社交媒体巨头Facebook公司这套特制的招聘系统目的在于利用移民身份去牵制这些外国员工，让这些员工为公司上层的利益服务，为了掌握媒体的话语权，或许通过这些外籍员工删除那些真实的信息，并以存在风险为名，标记和控制信息发布，达到抑制新冠疫情和2020美国大选真相传播的目的。
 
-我们看到在报道中针对大选舞弊的法律战，朱利安尼市长呼吁的，是立法机构中的立法者们要拿出勇气，为了维护美国宪法迎接挑战，做对的事，而不是容易的事。正如现在摆在我们每个人面前的选择是同样的，随波逐流或许看来是容易的选择但也意味着被黑暗和邪恶吞没，反抗和发声或许很危险，但也带来了希望。在这个人类命运的十字路口，我们每个人都责无旁贷，我们都要面临选择，而只有正确的选择，才能带来新生。
-
-[原文引自](https://www.newsmax.com/us/michigan-gop-legislature-rudy-giuliani/2020/12/02/id/999757/)
-
-本文作者：文晓
+本文作者：文森特
 审核校对：玫瑰天空
 上传排版：糖果儿
 
