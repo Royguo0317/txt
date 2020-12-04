@@ -1,34 +1,80 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普赢得选举的多种途径
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/616639/)
+## Breitbart新闻网竟向林伍德律师开战-林伍德律师为川普总统辩护，对抗邪恶的马克思主义组织&#8211;林伍德律师回击Breitbart
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/616657/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04085634/1-17.png)
-《布萊巴特》（ Breitbart） 11月3日刊登的文章来自塞巴斯蒂安·戈尔卡（Sebastian Gorka）博士，他是SALEM广播网络AMERICA First 的主持人，也是川普总统的前策略师。
+翻译：康州盘古农场-黎明的光芒
 
-文章开头就指出，有压倒性的证据显示，大选当晚，川普总统在所有关键战场州都取得了胜利。然后几个州的民主党当局突然同时决定停止计票。重新开始计票后，数十万张拜登的选票就奇迹般地 “出来了”。
+校对/审核：康州盘古农场-Truemanman
 
-从那时起，鲁迪-朱利安尼（Rudy Giuliani）、珍娜-埃利斯（ Jenna Ellis）、乔-迪吉诺瓦（Joe DiGenova）、维多利亚-托辛格（Victoria Toensing） 以及总统其他小规模但勇敢无畏的法律团队在所有关键选区发起了多起舞弊事件的调查。现在，勇敢的美国人敢于挑战民主党几十年来的选民舞弊行为，他们在宣誓证词中给出自己的名字，公开作证他们亲眼目睹的罪行，并证明投票结果根本不可能是真实的。
+这到底是怎么回事？
 
-迄今为止最有影响力的两份证词来自琳达·李·塔弗博士(Dr. Linda Lee Tarver)在密歇根州参议院的宣誓作证。这位几十年来一直从事官方选举诚信方面工作的女性，曾为在投票站犯下的重罪作证。她谈到了共和党监票人员受到威胁和恐吓，以及为乔·拜登(Joe Biden)处理的无数张原始的和展开的“邮寄”选票。
+周三晚上，Breitbart新闻网竟然对林伍德律师发起了“圣战”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04090543/%E5%9B%BE%E7%89%8724.png)
+林伍德律师是美国最顶尖的律师之一，也是一个虔诚的基督徒。
 
-上周宾夕法尼亚州听证会的法院证词，拥有信息作战和电子战背景的退役陆军上校菲尔·沃尔德伦（Phil Waldren）透露，在90分钟的时间里，统计出超过57万张选票支持拜登，3200张选票支持现任总统川普。这在统计学里是不可能出现的现象。公认的社会主义和社会主义策略的权威，保罗-肯戈尔（Paul Kengor）教授强烈认为，这个证据 “不可思议。是不可能的。可耻的。” 就像独裁国家的选举，选民只是有两个选择，其中一方获得99.4%的选票，另一方获得0.6%的选票。拜登和民主党全国委员会显然是企图窃取选举，超过30%的民主党人自己也认为选举是被操纵的。
+林伍德和西德尼·鲍威尔正在为川普总统和他的7400万选民而战，而共和党的精英们却躲在山洞里。
 
-就在本周，在总统赦免麦克·弗林(Mike Flynn)中将后的第一次全国电台采访中，他在戈尔卡的节目中概述了赢得选举的多种途径。
+为什么Breitbart新闻网要攻击这个人？ 我们错过了什么？
 
-虽然这场斗争必须在法庭上继续，并一直打到最高法院，但竞选连任的道路是政治的，而不是法律的。在选举人团投票之前，根本没有足够的时间在法官面前证明所有的欺诈行为。即使有时间，即使所有必要的证据都提出来了，法官也不喜欢推翻选举。
+这太不真实了！
 
-戈尔卡说，共和党再一次证明了自己的无能。总统和支持者们应该举行集会，向那些战场州的所有共和党的州议会发出明确的信息：如果州议会中的任何一位共和党政客，根据宪法来运作我们的选举时，打算承认一个虚假的结果，选出他们的选举人，并持有选举人团的选票，那么他们将永远不会连任，他们的职业生涯将因违背人民的意志而终止。
+Breitbart新闻网真的对林伍德律师捐赠给民主党人感到愤怒吗？
 
-但欺诈行为必须被制止。不是为了MAGA运动，也不是为了这次选举，而是为了未来所有的选举。因此，要使共和国避免这次以及未来的每一次选举被窃取，唯一的办法就是进行宪法规定的“权变选举（或：临时选举”），就像托马斯·杰斐逊(Thomas Jefferson)当选时一样——不是通过选举团，而是由国会直接选举。
+林伍德与西德尼·鲍威尔甚至在本周三阿尔法利塔集会上承认了这一点。
 
-“权变选举”是依据美国宪法第十二条修正案中提到的解决如果没有总统候选人获得过半选举人票的情况下，由众议院选总统，参议院选副总统程的程序。在这种情况下，无论是川普总统还是拜登，都不会拥有270票的选举人团多数票，众议院将决定总统的人选，也就是由各州议会的党的代表团投票，而在州党代表团中，共和党占多数。这样，川普总统将连任。
+川普的选民中，有上百万人是前民主党人。这是一件坏事吗？难道共和党精英想在川普总
 
-文章最后说， 如果权变选举对托马斯·杰斐逊来说足够好，那么对现任总统来说也足够好吗? 唐纳德·川普这个人，一直是个斗士，是个爱国者。现在，是时候让他进行前所未有的战斗了。而这一次，超过7400万美国人都支持他。
+统离任后禁止这些人加入共和党？
 
-[原文链接](https://www.breitbart.com/2020-election/2020/12/03/dr-sebastian-gorka-how-team-trump-wins/)
+林伍德律师今晚晚些时候对攻击进行了回应。
 
-翻译报道： Alton
+
+
+> 1. Breitbart is dishonest. Historically, I am nonpartisan. This year, I was partisan because I love [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw).
+> 
+> I donated $375K to Trump PAC. [@sendavidperdue](https://twitter.com/sendavidperdue?ref_src=twsrc%5Etfw) solicited a $25K donation & I gave it to him. I gave $5,600 to [@RepDougCollins](https://twitter.com/RepDougCollins?ref_src=twsrc%5Etfw) & hosted a fundraiser for him. [https://t.co/CuhZoI6V7K](https://t.co/CuhZoI6V7K)
+> — Lin Wood (@LLinWood) [December 3, 2020](https://twitter.com/LLinWood/status/1334333082682449920?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> 2. I estimate that I have given WINRED $10K+ this year. I have donated several thousand dollars to other Republican candidates & $150K to conservative PAC for congressional candidates.
+> — Lin Wood (@LLinWood) [December 3, 2020](https://twitter.com/LLinWood/status/1334333083869392899?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> 3. I gave $5,000 at a fundraiser in which [@RichardGrenell](https://twitter.com/RichardGrenell?ref_src=twsrc%5Etfw) spoke. That is all I can remember at the moment.
+> 
+> How did Briebart miss these facts? Guess some people do not want the fraud in GA election to be discovered. I did not donate to. [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw).
+> 
+> Now back to my dessert. [pic.twitter.com/QRR1HzR7bW](https://t.co/QRR1HzR7bW)
+> — Lin Wood (@LLinWood) [December 3, 2020](https://twitter.com/LLinWood/status/1334333136457658368?ref_src=twsrc%5Etfw)
+
+
+
+推文翻译：
+
+1. Breitbart新闻网是不诚实的。从历史上看，我是无党派的。（但是）今年，我是共和党的拥护者，因为我爱唐纳德-川普
+
+我捐了37万5千美元给川普行动委员会。
+
+佐治亚州的参议院募集了2.5万美元的捐款，然后我给了他。
+
+我给了佐治亚州东北部的众议员5600元，并为他举办了一场募捐活动。
+
+2. 估计今年我给共和党筹款委员会捐赠了1万多美元。我给其他共和党候选人捐了几千美元，给保守派政治行动委员会(组织)提供15万美元，用于资助国会候选人。
+
+3. 我在一次募捐活动中捐出了5000美元，其中包括 @RichardGrenel （美国国家情报局代理局长）讲话。我现在只记得这些。
+
+Breitbart新闻网怎么会错过这些事实？我想可能有些人不希望佐治亚州选举中的欺诈行为被揭露。我没有捐款给佐治亚州州长。
+
+开始享用我的甜点。
+
+原文链接：[*https://www.thegatewaypundit.com/2020/12/wth-breitbart-wages-war-attorney-lin-wood-defending-president-trump-election-integrity-lin-wood-responds/*](https://www.thegatewaypundit.com/2020/12/wth-breitbart-wages-war-attorney-lin-wood-defending-president-trump-election-integrity-lin-wood-responds/)
 
 0
