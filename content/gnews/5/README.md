@@ -1,113 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》每日简报晚间版 2020.12.02&#8211;NewYork Time
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/615555/)
+## 泡沫将破？韩正：要绷紧房地产调控这根弦
+` 东京樱花团-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/615861/)
 
-出品《路德社》 编辑：路德社精选新闻专栏组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04011702/12-2-pm-zh-scaled.jpg)
-1202晚间要闻-NewYorkTime
+HTS-01C-202012-002
 
-Dec 02nd Brief-NewYorkTime
+来源网址：https://www.aboluowang.com/2020/1204/1530156.html
 
-听写：文宝Porsche明台 校对：瓦者翻译
+近期，中共高层就房地产“灰犀牛”等风险频繁发声。周四（12月3日），中共副总理韩正在住房城乡建设部召开座谈会上称，不把房地产作为短期刺激经济的手段，时刻绷紧房地产市场调控这根弦。据悉，这是韩正四个月内第二次就房地产问题开座谈会。
 
-recorded by: 文宝Porsche明台, revised by 瓦者, translated by: revised by:
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04044950/20201204035210870.jpg)
 
-**川普总统重磅演讲开启战前总动员**
+**韩正：要绷紧房地产调控这根弦。**
 
-**President Trump’s bomb speech initiates the pre-war general mobilization.**
+近期，中共高层就房地产“灰犀牛”等风险频繁发声。周四（12月3日），中共副总理韩正在住房城乡建设部召开座谈会上称，不把房地产作为短期刺激经济的手段，时刻绷紧房地产市场调控这根弦。据悉，这是韩正四个月内第二次就房地产问题开座谈会。
 
-他说这是我一生中最重要的演讲，守护美国的宪法和法律是我的首要职责，民主党利用起源于中国的病毒操纵了这场选举。
+**四个月内韩正两次开地产座谈会**
 
-川普在美国已经被超限战严重入侵的当下提出守护宪法，是为其即将采取的雷霆行动进行铺垫的一次战前总动员。
+周四（12月3日），中共国务院副总理韩正在住房城乡建设部座谈会上称，“要牢牢坚持房子是用来住的、不是用来炒的定位，不把房地产作为短期刺激经济的手段，时刻绷紧房地产市场调控这根弦。”
 
-He said this is the most important speech in my life and guarding the U.S. Constitution and laws is my primary duty. The Democratic Party has rigged the election with virus originated from China.
+据《第一财经》报道，这是2020年7月24日后，韩正开的第二次房地产相关工作座谈会。
 
-Trump’s proposal of the Guardian Constitution at a time when the United States has been severely invaded by the ultra-restricted warfare is a pre-war mobilization to pave the way for his upcoming Thunder operation.
+近期，中共高层就房地产风险问题频繁发声。
 
-**林肯为什么伟大？**
+中共银保监会主席郭树清日前发表署名文章，强调要抑制房地产泡沫。房地产与金融业深度关联。目前，中国房地产相关贷款占银行业贷款的39%，还有大量债券、股本、信托等资金进入房地产行业。可以说，房地产是现阶段中国金融风险方面最大的“灰犀牛”。
 
-**Why Lincoln so great?**
+中国社科院12月1日发布的房地产大数据分析报告也认为，中国房地产市场只涨不跌的年代已经过去。
 
-林肯说，一方宁可挑起战争也不愿让国家继续生存下去，另一方宁可迎战也不愿让国家灭亡。这场让美国受难4年、导致60万人死亡的暴力冲突，是上帝对250年奴隶制这种罪过的终极惩罚。上帝的意志是要让战争继续下去，直至让皮鞭抽出每一滴鲜血来偿还。
+**房地产泡沫：中国经济不可承受之重**
 
-林肯抛弃妇人之仁，敢于担当平定叛乱、废除奴隶制、保护领土完整，让美国成为了人类文明的灯塔。
+中国房地产市场出现了一个连续二十年的上涨期，从本质上讲，这是资本过剩所导致的。
 
-Lincoln said that one side would rather start a war than allow the country to survive, while the other side would rather fight than let the country perish. This violent conflict that has caused the United States to suffer for four years and killed 600,000 people is God’s ultimate punishment for 250 years of slavery. It’s God’s will to let the war continue until the whip draws every drop of blood to pay
+特别是中国2001年加入WTO后，从国外赚的资本，外国人投入的资本，没有可以消化的行业。热钱只能像洪水般涌入房地产，水涨船高，结果中国房地产市场涨得一发不可收拾。
 
-Lincoln abandoned the benevolence of women, dared to quell the rebellion, abolished slavery, and protected territorial integrity, making the United States a beacon of human civilization.
+2019年，全球各国央行都大幅度降息，中国微降，2020年以美联储为主的全球各国央行又大规模的搞财政赤字货币化，中国也没跟。
 
-**川普必然伟大！**
+中共央行做出的一系列操作和反应与全球央行不同步，原因就是不希望资本继续涌入房地产。
 
-**Trump definitely great**
+中国房地产在过去二十年挖了一个超级大池子，吸纳了过剩的资本，但也虹吸了[实体经济](https://www.aboluowang.com/tag/%E5%AE%9E%E4%BD%93%E7%BB%8F%E6%B5%8E-1.html)资本，导致中国除了房地产外各行各业的凋敝。
 
-每个人是依赖于他人的自由来实现自己的自由。十四亿中国人没有自由，美国人也必然失去自由（正在失去中）。华尔街把十四亿奴隶当作积累财富工具的时代，该结束了。川普就是那个在国家被入侵、人民选举权被剥夺的危机时刻，站出来再次拯救美国的天选之子。
+据[华尔街日报](https://www.aboluowang.com/tag/%E5%8D%8E%E5%B0%94%E8%A1%97%E6%97%A5%E6%8A%A5-1.html)报道，越来越多有关中国房地产投资高企的长期影响的研究表明，中国房地产泡沫问题确实是个大问题。房地产过热，造成资本配置不当。这种资本错配会拖累生产率，同瞬间崩盘相比，资本错配发生作用的速度较慢，但造成的破坏性影响却差不多。
 
-Everyone is dependent on the freedom of others to achieve their own freedom. 1.4 billion Chinese have no freedom, and Americans will certainly lose their freedom (in the process of losing). The era when Wall Street used 1.4 billion Chinese slaves as a tool to accumulate wealth has to be over. Trump was the Chosen One who stood up to save the United States again at a time of crisis when the country was invaded and the people’s right to vote was denied.
+普林斯顿大学（Princeton University）和光华管理学院的经济学家开展的研究显示，中国地价若上涨100%，会在那些受诱惑转投房地产的公司中导致全要素生产率下降26%。
 
-**林伍德对中共喊话**
+这与国际货币基金组织（IMF）经济学家Yu Shi的研究结果完全契合。她发现，房地产繁荣会导致一些最具生产性的公司转向房地产市场，而非专注于自己的专业领域。她估计，如果不出现这种错配，中国制造企业全要素生产率的增长每年本可以高0.5个百分点。
 
-**Linwood calls out the CCP**
+借贷成本上升令房地产行业之外的企业受到影响。驻日内瓦的经济学家豪（Harald Hau）和欧阳涤非考查了90万家中国制造业企业，发现如果一个城市的房地产价格相比于其他城市上涨50%，会令当地企业的借贷成本每年升高近一个百分点。
 
-他说，美国再次来到1776年建国时刻，我们将为自由而战，绝对不会让北京中共政府占领我们的国家，这里是美国，你们找错了对手。
+这些分析引指向中国一个尴尬的事实，中国全要素生产率增长已显著放缓。据IMF估计，中国全要素生产率近年来的增长率下降到2.25%，是前一个10年平均水平的一半，这也是中国GDP增长下降的主要原因。
 
-He said that the United States again has come to the founding moment of 1776. We will fight for freedom and will never let the Chinese Communist government in Beijing occupy our country. This is the United States and you got the wrong opponent.
+目前，在美国的带领下，西方国各纷纷与中共切割，产业链和资金正在撤出中国，在缺乏资金支撑的情况下，中国房地产450万亿的巨大泡沫（史诗级泡沫），到底能撑多久，中共自己也没有把握，所以被看作是威胁中国金融体系的最大的灰犀牛。
 
-**众议院通过问责法，中概股退市或接受审计！**
+旅美经济学者[何清涟](https://www.aboluowang.com/tag/%E4%BD%95%E6%B8%85%E6%B6%9F-1.html)曾撰文指出，爱尔兰与荷兰曾是繁荣且充满希望的欧洲国家，但先后经历了由于房地产引发的国家悲剧，房价大幅下跌，购房者资不抵债，陷入破产边缘，整个国家的经济也陷入萧条。中国的实体经济与美国不可同日而语，谁敢保证中国的房地产泡沫破裂之后，不会成为爱尔兰与荷兰？
 
-House of Representatives passed accountability law and China stocks will be delisted or subject to audited
+责任编辑：** [楚天](https://www.aboluowang.com/editor/%E6%A5%9A%E5%A4%A9_1.html)**　 来源：[希望之声](https://www.soundofhope.org/)记者贺景田综合报导 转载请注明作者、出处並保持完整。
 
-《外国公司问责法》如路德社29日预期的那样在众议院快速获得2/3的投票通过，证明了美国的利益集团，已经完成了与中共的正式切割，断掉了与中共最重要的利益勾连。中共失去了自己在美国的靠山，离灭亡就越来越近了。
-
-The “Holding Foreign Companies Accountable Act”, as Lude Media has predicted on the 29th, was quickly passed by 2/3 of the vote in the House of Representatives which proved the interest groups in the United States have completed their formal cut with the CCP, and have broken off their most important interests. The CCP has lost its backing in the United States and is getting closer and closer to extinction.
-
-**北约国防部长联席会议正式讨论中共（非中国）的威胁**
-
-**NATO Defence Ministers’ Joint Meeting formally discuss the CCP (not China) threat.**
-
-会议中讨论了中共改变国际组织职、控制其他国家基础设施及恶意贷款等经济侵略手段，称要联合应对其威胁。会议全程用CCP代指之前的中国。
-
-The meeting discussed how the CCP changes the role of international organizations, controls the infrastructure of other countries and adopts economic aggression such as malicious loans, and claimed to jointly respond to its threats.
-
-The CCP was used to refer to the previous China throughout the meeting.
-
-**美将重建当年执行原子弹轰炸任务的空军基地**
-
-**The U.S. will rebuild the air base where Atomic Bombing Missions were carried out**
-
-该基地位于关岛以北160公里的提尼安岛，当年向广岛和长崎投放原子弹的B-29轰炸机就从这里起飞。重建后，将和关岛的安德森基地互为备份，大大增强战场生存能力。
-
-The base is located on Tinian Island, 160 kilometers north of Guam, from where the B-29 bombers that dropped atomic bombs on Hiroshima and Nagasaki took off. After reconstruction, it will be a backup with the Anderson base in Guam, greatly enhancing the survivability of the battlefield
-
-金句：
-
-Quotes
-
-博博士：
-
-利益对资本主义很有诱惑力，中共就利用这点给华尔街输送利益。去年8月23号川普总统刚说脱钩，就受到各利益集团反对。华尔街想通过中共赚钱，但是一旦意识到中共不仅谋财还要害命，所有人都会参与灭共。
-
-Dr. Mo
-
-Benefits are very tempting to capitalism, and the CCP uses this to convey benefits to Wall Street. On August 23 last year, as soon as President Trump said that he would decouple, he was opposed by various interest groups. Wall Street wants to make money through the CCP, but once they realize that the CCP not only makes fortune on them but also kills them, everyone will participate in destroying the CCP.
-
-冠博士：
-
-川普今天明确说这是他最重要的一次演讲，就是在传递他要彻底解决大选舞弊、捍卫宪法的决心。
-
-Dr Guan:
-
-Trump made it clear today that this was his most important speech, which is to convey his determination to thoroughly resolve election fraud and defend the Constitution.
-
-**路德：中共之所以能活下去，就是因为美国某些利益集团要通过中共赚钱，要是美国不给机会，中共必死。**
-
-Lude:
-
-The CCP can survive because certain interest groups in the United States want to make money through the CCP. If the United States does not give it a chance, the CCP will die.
-
-审核校对：玫瑰天空
-
-上传排版：青葫芦娃
-
-0
+1+

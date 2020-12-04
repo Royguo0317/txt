@@ -1,9 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年12月3日CCP冠状病毒大流行第313集
-` GM30` [轉載自GNews](https://gnews.org/zh-hans/615333/)
+## 班农疫情作战室539/540期
+` GM47` [轉載自GNews](https://gnews.org/zh-hans/615381/)
 
-中共扶贫办：2020年底所有贫困人口将全部退出；4000多家涂料化工企业破产；澳议员呼吁抵制中国货；中共疯狂收割私人企业家……
+战友之家新闻译制组制作
+
+
+
+539：感恩节特辑 1
+
+史蒂夫·班农（Steve Bannon），杰克·麦克西（Jack Maxey）和格雷格·曼兹（Greg Manz）组合讨论了庆祝感恩节和CCP病毒大流行的最新消息。 连线嘉宾拉里·斯威卡特（Larry Schweikart）和乍得·罗比绍（Chad Robichaux），以庆祝和纪念美国的国家传统。
+
+播出时间：2020年11月26日
+
+
+
+==
+
+540：感恩节特辑 2
+
+史蒂夫·班农（Steve Bannon），杰克·麦克西（Jack Maxey）和格雷格·曼兹（Greg Manz）组合讨论了庆祝感恩节和CCP病毒大流行的最新消息。 连线嘉宾 希瑟·麦克唐纳（Heather MacDonald），马特·瓜迪斯（Matt Guedes），彼得·伍德（Peter Wood）博士，弗朗西斯卡·迪帕拉（Francesca DiPaola）以庆祝和纪念美国的国家遗产。
+播出时间：2020年11月26日
+
+
 
 0
