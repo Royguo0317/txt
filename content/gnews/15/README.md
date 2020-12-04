@@ -2,7 +2,7 @@
 ---
 
 ## 制裁升级 共产党员及其家属美签即将失效
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/615205/)
+` GM64` [轉載自GNews](https://gnews.org/zh-hans/615239/)
 
 内新闻：α-Vega
 素材：两只小猪 WENWU
@@ -24,7 +24,8 @@
 GNews/G-TV /路德社
 
 新闻来源：
-[https://cn.reuters.com/article/us-china-cpc-travel-curb-1203-idCNKBS28D0RK](https://cn.reuters.com/article/us-china-cpc-travel-curb-1203-idCNKBS28D0RK)
-[https://c.m.163.com/news/a/FSUUS8Q50001899O.html](https://c.m.163.com/news/a/FSUUS8Q50001899O.html)
+[https://cn.reuters.com/article/us-china-cpc-travel-curb-1203-idCNKBS28D0RK
+https://c.m.163.com/news/a/FSUUS8Q50001899O.html](https://cn.reuters.com/article/us-china-cpc-travel-curb-1203-idCNKBS28D0RK
+https://c.m.163.com/news/a/FSUUS8Q50001899O.html)
 
-1+
+0
