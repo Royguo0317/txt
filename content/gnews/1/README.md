@@ -1,68 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 让美国这个“在上帝庇护下的国家获得自由的新生”：林肯总统葛底斯堡演讲
-` GM80` [轉載自GNews](https://gnews.org/zh-hans/620508/)
+## 爆革星评：“超级士兵”带来“超级灾难”
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/620559/)
 
-引言：美国宪法以 “ We the people (我们人民）”开篇，1896年11月19日林肯总统在葛底斯堡国家烈士公墓落成典礼上的发表演讲，宣称美国人民拥有一个 “民有、民治、民享” 的政府, 一定让这个 “在上帝庇护下的国家获得自由的新生”！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05131650/Gettysburg-Lincoln.png)图片来源：https://www.history.com/topics/american-civil-war/gettysburg-address
-全文翻译：
+多伦多枫叶农场 文星（一号）
 
-**Address at the Dedication of the Gettysburg National Cemetery**
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05135951/%E8%B6%85%E7%BA%A7.jpg)图片来自 Foreign Policy
+中共政权下的几个盗国贼家族，为了争权夺利绑架了14亿国民包括9000万普通党员，不仅摧毁了“东方明珠”香港，还正在以前所未有的超限战形式，以人造病毒作为生物武器袭击美国乃至全世界。世界仍在中共病毒的肆虐中挣扎，但灾难远未结束，尤其对于中共国的无辜百姓。
 
-在葛底斯堡国家烈士公墓落成典礼上的演讲
+据路德社12月5日报道，中共政权正在进行人体试验，继续打造生物武器这种 “超级士兵”，而一位美国空军中将呼吁美国应立即进入紧急状态，此前美国国防代理部长米勒也警告，美军可以在72小时摧毁中共国的军事力量。种种迹象表明，美国从国家安全角度，面对中共政权释放的生物武器以及潜在的“超级士兵”，面对每天还在不断死伤的国民，可能将对施虐的中共政权发动毁灭性军事打击。
 
-(Nov.19, 1863)
+那么接下来，因为中共政权以各类“军民融合”的战备形式绑架了普通百姓，战争无论以何种形式发生，中共政权必会土崩瓦解，但中共国也会山河巨变，14亿百姓将会面临“超级灾难”。对此，墙内同胞宜力所能及，早做准备。简单来说，“超级灾难”表现在以下几个方面：
 
-(1863年11月19日）
+一是中共军队将被打回“土八路”时代，伤亡前所未有。朝鲜战争中，志愿军伤亡巨大，残不忍睹。近年来尽管中共军备有一定发展，但只是在航天、远程导弹和潜艇等领域有所进步，实力上还根本无法与美军抗衡。且中共军队几十年来没有实战，大炮堆满尘埃，士兵只是擅长三大件：叠被子、踢正步、拉关系，不像美国在全球从未停止过实战与演习，美军现代战争的实力和实战都远远超出中共军队，士兵能够一人协调海空陆军种协同作战，可说以一挡千。战争开始，美军可能会首先“致盲”中共军队的雷达、导弹系统、潜艇和网络，甚至定点爆破中共的各种核基地、核设施，然后展开大规模的海上和空中联合攻击，“海空一体战”，等到中共反应过来，估计已经失去了现代战争意义上的反击能力。如果中共再以擅长的“游击战”、人海战术等继续对抗美军，伤亡将会远远超过任何一次战争。
 
-Abraham Lincoln
+二是百姓生活将面临生存问题。因为今年的洪水灾害和国际制裁，中共经济已经危机四伏，有的陷于停滞状态，14亿百姓将很快面临缺粮少衣的状况，基本的衣食住行都会受到严峻的挑战。更严重的是，因为中共政权多年来以“军民鱼水情”、“军民一家”的名义，将许多核设施及核反应堆等军事设施，建立在东南沿海人口密集区域甚至大城市，譬如上海、青岛以及江浙很多城市，还有导弹发射基地等都在城市区域密布，当美国对这些军事设施进行打击时，将不可避免地发生巨大的人道灾难，即使美国想方设法尽量避免，人道灾难也必然会产生。想想日本遭受的原子弹、福岛的核泄露事件，因为中共的反人类罪行，战争将让中共国将不国，巨大的人口基数再也不会产生红利，只能让灾难几何数增加。
 
-亚伯拉罕 · 林肯
+三是经济发展将休克一般地停顿。本来中共经济就是虚假宣传起来的泡泡经济不堪一击，战争发生就会导致苟延残喘的中共经济立即休克窒息，什么数字货币都会成为无意义的数字，全国网络都断了，有可能电都断了，哪里可能使用数字货币？人民币像伊朗币、津巴布韦货币一样瞬间滑向深渊，甚至连生活急需的日用品也买不到了。现在的委内瑞拉就是个典型例子，这个曾经最富裕的社会主义产油大国，一朝崩溃，国民竟然在垃圾堆里找吃的，何况中共还是石油极度短缺的国家。速战速决的核打击战，将会导致自然毁灭，生灵涂炭；持久战的战争，中共资源供给不足，牺牲更大，灾难更重。中共的各类企业既悲且喜，喜的是贷款不用还了，因为银行也倒闭了，悲的是发现已经彻底发财无路，能活着就是万幸。
 
-Fourscore and seven years ago our fathers brought forth on this continent a new nation, conceived in liberty and dedicated to the proposition that all men are created equal.
+总之，灾难是多方面的，上面所提三方面不及万分之一，这都是中共这个邪恶政权惹的祸。而且，发生战争的趋势目前好像已经不可逆转，同胞只有觉醒起来，除了自力自保，尽可能参与到爆料革命中来，“堡垒从内部攻破”，以某种“政变”的方式推翻中共政权，也许会减少更大灾难的发生。
 
-八十七年前，我们的先辈在这块大陆上创立了一个未曾有过的崭新国度：它以崇尚自由为基石和以信奉上帝造人赐人以平等这一信念为基础建立起来的。
-
-Now we are engaged in a great civil war, testing whether that nation or any nation so conceived and so dedicated can long endure.
-
-目前我们卷入了一场浩大的内战，这也正考验着这个国家，或任何一个如此这般坚定的主张自由和致力于人人平等而创建起来的国度，能否永续长存。
-
-We are met on a great battlefield of that war. We have come to dedicate a portion of that field as a final resting-place for those who here gave their lives that that nation might live. It is altogether fitting and proper that we should do this.
-
-我们在此集会的场所是那场战争中的一个非常重大的战场。我们划分出此战场的一个区域来奉献给那些为着这个新国家的生存而奉献了自己生命的烈士们，以此作为他们最后的安息之地，这真是再合适不过的事情了，我们理应如此去做。
-
-But, in a larger sense, we cannot dedicate, we cannot consecrate, we cannot hallow this ground.
-
-但是，其实从更实际的意义上来说，这并不是我们的功劳，我们没能力挑选，也不能使这块土地变成圣地。
-
-The brave men, living and dead who struggled here have consecrated it far above our poor power to add or detract.
-
-而是这些勇士们，这些活着的或已逝去的、曾经在这里浴血奋战过的英雄们，是他们赋予了这块土地以神圣之名，这根本不是以我们的微博之力所能左右的。
-
-The world will little note nor long remember what we say here, but it can never forget what they did here.
-
-世人或许不会去记载或记得今天我们在这里所说的话，但永远不会忘记英雄们曾经在这里为维护自由而浴血奋战过。
-
-It is for us the living rather to be dedicated here to the unfinished work which they who fought here have thus far so nobly advanced.
-
-对我们这些活着的人来说，对英雄们最好的祭奠，不是来此为这圣地命名的典礼，而是投入到他们为之奋斗而尚未完成的崇高的维护自由的事业中去。
-
-It is rather for us to be here dedicated to the great task remaining before us—that from these honored dead we take increased devotion to that cause for which they gave the last full measure of devotion—that we here highly resolve that these dead shall not have died in vain, that this nation under God shall have a new birth of freedom, and that government of the people, by the people, for the people shall not perish from the earth.
-
-但愿我们这里所有的人，都能投身于摆在我们眼前这未尽的崇高事业中去 – 这事业让这些光荣的先烈们付出了生命的最后一丝代价，也鼓舞着我们要加倍奉献于此 – 我们在此下定决心，一定不会让这些烈士的生命白白逝去，一定让这个国度，这个在上帝庇护下的国家获得自由的新生，让这个民有、民治、民享的政府，因上帝子民的永存而永世长存。
-
-参考文献：
-
-- https://historyengine.richmond.edu/episodes/view/6662
-- Civil War Trust, “Gettysburg Address”, Civil War Trust, http://www.civilwar.org/education/history/primarysources/gettysburg-address.html  (accessed Feb. 19 2017)
-- New World Encyclopedia, “Gettysburg Address”, New World Encyclopedia, http://www.newworldencyclopedia.org/entry/Gettysburg\_Address (accessed Feb. 19 2017)
-- http://han-jialiang.hxwk.org/2016/10/16/%E7%BE%8E%E5%9B%BD%E7%8B%AC%E7%AB%8B%E5%AE%A3%E8%A8%80%E7%9A%84%E7%BF%BB%E8%AF%91%E9%97%AE%E9%A2%98/ 美国独立宣言的翻译问题
-- http://www.flrchina.com/le/learning/001/063.htm 如此乱译美国《独立宣言》是为什么？
-- http://hx.cnd.org/2016/10/14/%e5%bb%96%e5%ba%b7%ef%bc%9a%e4%ba%ba%e7%94%9f%e8%80%8c%e5%b9%b3%e7%ad%89%e8%bf%98%e6%98%af%e8%a2%ab%e9%80%a0%e5%b9%b3%e7%ad%89%ef%bc%9f/ 廖康：人“生而平等”还是“被造平等”？
-- https://www.civiced.org/9-11-and-the-constitution-terms-to-know
-
-
-*翻译：【doujia】 编辑：【GM80】*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22151659/RG-01.png)
 0

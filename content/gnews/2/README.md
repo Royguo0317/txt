@@ -1,53 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 鲍威尔大律师：佐治亚州务卿和选举办负责人应接受刑事调查
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/620512/)
+## 【震惊】邪恶的新冠计划(2)——2010洛克菲勒“Lockstep”行动被曝光
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/620557/)
 
-蒙特利尔战友团 laotou
+- 翻译：小木头
+- 校对：Victor Torres
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05133215/C.jpg)图片来自The New Yorker
-随着朱利安尼市长“冒烟抢视频”【1】的广泛传播，真相接踵而来地浮出水面，佐治亚州选举舞弊的操盘手拉芬斯佩格（Brad Raffensperger）和加布里埃尔·斯特林（Gabriel Sterling）继续抵赖，面对如此的厚颜无耻，大律师鲍威尔发强音警告,“我办公室里有一大袋碎选票——拉芬斯佩格和斯特林应该接受调查！”
 
-拉芬斯佩格，佐治亚州州务卿；斯特林，该州选举办公室负责人，投票系统的实施经理。
+***更多真相，请关注*** ***[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-《门道专家》12月5日早发出了以下题目的文章：【2】
+**西班牙2020年12月5日电/西喜社/**
 
-“星期五晚上，西德尼·鲍威尔在Newsmax电视台接受了格兰特·斯蒂奇菲尔德（Grant Stinchfield）的采访。
+**Lockstep****末日计划-****读起来就像2020****年的头条：新冠，5G****，WHO, ****福奇，比克斯，盖茨…****追求真相的人们注意了**！
 
-大律师鲍威尔介绍了她目前在威斯康星州和佐治亚州的选举欺诈案的最新情况。
+我们都应该停止争论好好看看，那就是在2010年的“Lockstep行动”中的信息只是他们的智囊团留下的行动计划，以防万一COVID-19真的被制造出来，万一世卫组织，福奇（安东尼·斯蒂芬·福奇）, 比克斯 (Deborah Leah Birx) 和盖茨（比尔盖茨）兜售疫苗和（可能会面临）末日景象，万一联合国还想减少世界人口，统治全球，（这些准备都是）以备不时之需。
 
-鲍威尔律师在电视里说，这是一个一目了然的案子，并呼吁调查拉芬斯佩格和他的助手斯特林。
+好吧，SNOPES（事实核查网站，常被用于都市传奇的验证和辟谣）和“事实探查员们”又来了，洗脑那些愿意了解和思考的人，告诉你们，你们根本就看不懂…好吧，绝地武士的招数现在不灵了。
 
-在采访中鲍威尔律师说，‘在佐治亚州，有大量选票碎纸和存在机器里、突然转给拜登的投票记录的证据，……他们一直在尽可能快地抹去和销毁证据。我办公室里现在有一大袋碎选票，我迫不及待地想知道这会透露什么……
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
 
-美国人民不会允许我们的总统被舞弊的选举方式击败，这些人采用了你能想象得到的各种形式的选举欺诈。
+那些成功的商人们，他们大部分都是洛克菲勒基金会的朋友，他们雇来“智囊团”，让他们设计出一些场景，就像电脑游戏一样，来征服地球上那些愿意服从的人，以至于推翻国家民族。这些（智囊团的）孩子们在一些海外公司，如缅甸，能得到百万美元的工作。我在想他们有没有编排出一些攻击川普的点子。我相信他们是有的。这些思想低级的人，已经坏到了骨子里，与此同时，还有许多人正在被培养成为像他们一样的人。马克思主义民主进步党和那些“从不支持川普（‘Never Trump’）”的人，他们已经把这个世界变成一个X-BOX Arcade，不管他们的目标是什么，在做什么，在现实生活中都会被放大，这些都会像电子游戏一样没有意义。他们已经失去理智，大多数人已将把他们的灵魂卖给了最高竞标者。
 
-这是高度协调的，而且有大量资金支持，我们的25个律师正在为美国人民的真相和正义而斗争……
+只要你对那些试图告诉你真相，告诫你，和向你展示这些恶人恶行的人嗤之以鼻，如果那些为正义而战的都被干掉了，你就永远不会知道是什么击倒了你。你最好就祷告，那些热爱美国和人类的疯子能赢得这场战役，如果他们败了，你今后的每一天都将生活在无法想象的炼狱中，羞愧地向你笑过的日子哀悼。
 
-我们有大量的证据……拉芬斯珀格先生完全是在撒谎。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
 
-应该对他和他的副秘书长的财务状况进行刑事调查，这项价值1.7亿美元的多米尼合同在佐治亚州突然签订，当时他们根本不需要新的系统。”
+要提醒你的是，正义的使者不会是在波西米亚丛林里崇拜猫头鹰莫勒克的人，也不会是在撒旦分身处折磨和杀害儿童，喝他们血中肾上腺素的人。这些使者不是那些走私毒品和贩卖人口给寡头党的人，也不是那些从健康人身上摘取器官再把他们的尸体弃之不顾，像买牛肉一样贩卖人肉的人。没人愿意知道这些，更别说这些都是真的。过不了多久，这些事情都会以一种你必然会看到和听到的方式揭露出来，无论是被赢得战役的好人揭露，抑或是在坏人赢得胜利后当着你的面做这些事。无论哪种方式，现在都是认清事实的紧要关头。
 
-……
+**原文链接：**[https://themarshallreport.wordpress.com/2020/12/04/doomsday-lockstep-reads-like-2020-headlines-covid-5-g-whofauci-birx-and-gates-all-listed-fact-checkers-pay-attention/](https://themarshallreport.wordpress.com/2020/12/04/doomsday-lockstep-reads-like-2020-headlines-covid-5-g-whofauci-birx-and-gates-all-listed-fact-checkers-pay-attention/)
 
-“冒烟抢视频”流传后，一度被怀疑参与了佐治亚州选举舞弊的州长布莱恩·肯普（Brian Kemp）在第一时间与“邪恶”划清了界限，“指责了州务卿有争议的拉票行为”，“曾要求拉芬斯珀格（州务卿）接受实名选票审计，但州务卿没有这样做”【3】，而拉芬斯珀格仍不认罪，并试图继续拖延，虽要求进行GBI调查（Georgia Bureau of Investigation），但是调查如果还是这个州务卿（或其副手）主导，只能是加快证据销毁进程【4】，那个斯特林更是嚣张无比，众目睽睽下继续抵赖，竟然否认录像内容【5】。
-
-难怪鲍威尔大律师昨晚发出这重锤警告，“拉芬斯珀格完全是在撒谎！”“应该对他们的财务状况进行刑事调查”。林伍德大律师也刚刚发推，谴责这两个人是“我们中间的叛徒，他们犯有协助和教唆外国干涉我国大选的罪行，两人都在在中共国的工资单上……该把他们关起来！”【6】
-
-参考链接：
-
-【1】https://www.youtube.com/watch?v=nVP\_60Hm4P8
-
-【2】[https://www.thegatewaypundit.com/2020/12/sidney-powell-huge-bag-shredded-ballots-office-raffensperger-gabriel-sterling-investigated-video/](https://www.thegatewaypundit.com/2020/12/sidney-powell-huge-bag-shredded-ballots-office-raffensperger-gabriel-sterling-investigated-video/)
-
-【3】[https://gnews.org/zh-hans/617106/](https://gnews.org/zh-hans/617106/)
-
-【4】https://www.walb.com/2020/12/04/gov-kemp-agrees-raffensperger-request-gbi-aid/
-
-【5】[https://time.com/5918093/gabriel-sterling-trump-georgia/](https://time.com/5918093/gabriel-sterling-trump-georgia/)
-
-【6】https://twitter.com/LLinWood/status/1335248821551558658
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0
