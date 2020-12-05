@@ -1,15 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 著名律师林伍德明确中共使用新冠病毒向美国发动了生化战争
-` GM101` [轉載自GNews](https://gnews.org/zh-hans/620329/)
+## 【突发】林伍德:中共病毒是针对美国投放的生物武器
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/620389/)
 
-美东时间12月6号，著名律师林伍德通过社交媒体推特发布了关于“中共超限生物武器”新冠病毒的推文。
+- 编辑：Victor Torres
 
-林伍德明确Covid-19（又名中共超限生物武器、新冠病毒、CCP病毒、中共病毒、武汉肺炎等）是共产主义中国针对美国投放，试图颠覆美国主权、拿走美国公民自由等权利的生物武器。
 
-林伍德指出中共于多年前一直策划渗透并颠覆美国主权，本次对美国发动生化战争后，试图用欺诈手段操控美国总统大选。拜登和贺锦丽在中共及卖美贼的控制下，用邮寄选票、死人投票、一票多投、投票系统造假等手段竞选。
+林伍德：“中共病毒是推销缺席投票和提早投票的借口。有了6英尺的距离要求，嘿伙计，通过邮寄投票是不是让事情变得更容易了！
+欺诈被编程进入投票机软件，并因邮寄缺席选票而加剧。”
 
-林伍德做为美国资深著名律师，在社交媒体公开称中共针对美国发射生物战略武器，证明美国掌握了中共生物武器的重要证据。中共对美国投放生物武器等同发动了生化战争，根据北大西洋公约第五条规定，一旦确认成员国受到的攻击，其他成员国将作出即时反应。该条款被理解为各国部队将自动参战，并不再需要各国政府的参战授权。川普政府具备随时斩首中共盗国贼的法理，加上俄罗斯对中共的反戈一击，中共大势已去，灭共第三道大门正式打开。
+
+
+> Covid-19 was excuse to push for mail absentee ballots & early voting. With the 6 feet distance requirement, man oh man, was it ever easier just to vote by mail!
+> 
+> The fraud was programmed into the voting machine software & boosted by the steroids of mail absentee ballots. [pic.twitter.com/mdyDkN7cgy](https://t.co/mdyDkN7cgy)
+> — Lin Wood (@LLinWood) [December 5, 2020](https://twitter.com/LLinWood/status/1335253511232163842?ref_src=twsrc%5Etfw)
+
+
+
+林伍德：“中共病毒是中共针对美国投放的旨在窃取我们自由的生物战略武器。 然后，中国共产党以欺诈手段袭击了我们的大选，为乔和卡巴拉同志偷走他。
+中共多年来公开宣布了接管我国的计划。
+别想在我们的眼皮底下。”
+
+
+
+> Covid-19 was biological strategic weapon launched by Communist China against U.S. to steal our freedom. Then CCP attacked our national election with fraud to steal it for Comrades Joe & Cabala.
+> 
+> CCP has openly stated for years its plan to take over our country.
+> 
+> NOT ON OUR WATCH. [pic.twitter.com/V4ZxQXgJx7](https://t.co/V4ZxQXgJx7)
+> — Lin Wood (@LLinWood) [December 5, 2020](https://twitter.com/LLinWood/status/1335257718358241283?ref_src=twsrc%5Etfw)
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14162240/image0-2-6.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0

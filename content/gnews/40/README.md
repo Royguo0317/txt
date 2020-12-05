@@ -1,29 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班农疫情作战室545/546期
-` GM47` [轉載自GNews](https://gnews.org/zh-hans/620030/)
+## TikTok剥离的期限已到，但字节跳动仍幻想出现转机
+` GM77` [轉載自GNews](https://gnews.org/zh-hans/620066/)
 
-战友之家新闻译制组制作
+编撰：JAY、文錦；审核：WLQF
 
+川普政府周五选择不批准字节跳动（ByteDance）再次延长要求中共公司剥离TikTok美国资产的命令。在剥离期限截止日的前一天，ByteDance向美国上诉法院提交申请，挑战剥离令。美国上诉法院将于12月14日听取关于应用商店禁令的辩论。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05104414/%E6%88%AA%E5%B1%8F2020-12-05-%E4%B8%8B%E5%8D%8811.43.11.png)
 
-545：全心投入
+路透社12月5日报道，据两位知情人士表示，川普政府周五没有批准ByteDance再次延长要求中共公司剥离TikTok美国资产的命令，但将继续就短视频分享应用的命运进行谈判。财政部的一位代表在周五晚些时候表示，美国外国投资委员会(CFIUS)”正在与字节跳动接触，以完成剥离和其他必要的步骤，以解决国家安全风险。”上周，CFIUS批准TikTok母公司ByteDance就TikTok的美国资产剥离令延长一周至周五。
 
-史蒂夫·班农（Steve Bannon）和杰克·波索比克（Jack Posobiec）讨论了有关冠状病毒大流行的最新消息，来自关键州州议会的重大新消息鼓起新勇气。 连线嘉宾Jack Posobiec，Bernard Kerik，Raheem Kassam发表见解。
+川普总统8月的命令赋予司法部在截止日期到期后执行剥离令的权力，但目前还不清楚政府何时或如何寻求强制剥离。据一位知情人士透露，川普据说在一次美国高级官员会议上亲自做出了不批准任何额外延期的决定。政府此前曾在川普的命令中，将最初的90天期限延长了15天和7天，即11月12日。
 
-播出时间：2020年11月28日
+司法部没有立即回应置评请求，而白宫也没有发表评论。TikTok拒绝发表评论。
 
+**川普政府认为，TikTok构成了国家安全问题，因为美国用户的个人数据可能会被中共政府获取。**拥有超过1亿美国用户的TikTok否认这一指控。
 
+9月，TikTok宣布与沃尔玛和甲骨文达成初步协议，由沃尔玛和甲骨文入股一家新公司，负责监管美国业务。川普表示，这笔交易得到了他的”祝福”。
 
-==
+在美国政府的压力下，ByteDance已经进行了数月的谈判，与沃尔玛公司和甲骨文公司敲定了一项协议，将TikTok的美国资产转移到一个新的实体，旨在满足剥离令。ByteDance在11月10日披露了此前提交的四份提案，包括11月提交的一份提案，试图通过”创建一个由甲骨文、沃尔玛和ByteDance现有美国投资者全资拥有的新实体，负责处理TikTok在美国的用户数据和内容节制”来解决美国的担忧。
 
-546：确认胜利
+11月11日，ByteDance向美国上诉法院提交申请，挑战剥离令，并表示计划提出请求，”只有在讨论陷入僵局，且政府表示有意采取行动执行剥离令的情况下，才会暂缓执行剥离令。ByteDance表示，“川普的命令旨在强制对TikTok进行整体撤资，TikTok是一家基于ByteDance开发的技术而建立的价值数十亿美元的企业”，”依据是政府声称对一项涉及不同业务的三年前的交易进行国家安全审查。”
 
-史蒂夫·班农（Steve Bannon）和杰克·波索比克（Jack Posobiec）讨论了有关冠状病毒大流行的最新消息，来自关键州州议会的重大新消息鼓起新勇气。  连线嘉宾Boris Epshteyn，Leah Hoopes，Sean Parnell和Tej Gill带来了他们的见解。
+川普政府在美国限制TikTok的努力一直受阻。华盛顿一名联邦法官9月27日阻止了苹果公司和Alphabet旗下谷歌在美国应用商店提供TikTok下载的禁令，而另一名法官在10月30日阻止了政府定于11月12日生效的限制措施，ByteDance表示，这些限制措施将有效禁止TikTok在美国运营。
 
-播出时间：2020年11月28日
+**美国上诉法院将于12月14日听取关于应用商店禁令的争论。**
 
+11月12日是川普政府限制TikTok禁止在美国境内使用的最后一天，11月11日TikTok向上诉法院申请挑战剥离令明显在拖延时间，以求拖到能确认川普总统离开白宫的那一天。而阻止TikTok禁令正常生效的那些法官的判决，与维护美国国家安全的职责背道而驰。美国上诉法院上庭时间12月14日，正好是美国选举团正式认证候选总统胜利者的日子。中共披着美国公司的皮也难掩其流氓本性，妄图钻美国大选危机的空子幻想着出现一线生机，然而等待它们的终将是GAMEOVER。
 
+参考链接：
+
+[https://www.reuters.com/article/us-usa-tiktok-exclusive/u-s-not-extending-tiktok-divestiture-deadline-but-talks-will-continue-sources-idUSKBN28F00V?il=0](https://www.reuters.com/article/us-usa-tiktok-exclusive/u-s-not-extending-tiktok-divestiture-deadline-but-talks-will-continue-sources-idUSKBN28F00V?il=0)
 
 0
