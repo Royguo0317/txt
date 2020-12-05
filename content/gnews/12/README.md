@@ -1,20 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 林伍德：中国人民是共产主义的受害者
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/618158/)
+## 【热点播报】蔡总统，请根据川普和拜登的行动来判断他们对台湾的政策
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/618197/)
 
-- 编辑：文顺
-- 翻译：Victor Torres
+**作者：香草山写作组 程万里**
 
-
-**西班牙2020年12月5日电/西喜社/**——林伍德周五推文表示，中国人民是共产主义的受害者。 他说：“美国不会在我们的土地上允许它， 美国爱国者与为自由而呐喊的中国公民站在一起。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03014137/logo-3-1.jpg)
 
 
 
-> I agree. Chinese people are victims of Communism. America will not allow it on our soil. American Patriots stand with Chinese citizens who cry out for freedom. [https://t.co/XAD6W5ARNR](https://t.co/XAD6W5ARNR)
-> — Lin Wood (@LLinWood) [December 4, 2020](https://twitter.com/LLinWood/status/1334901395246473225?ref_src=twsrc%5Etfw)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03002405/%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5.jpeg)
+转自香草山视频组：在2020年11月8日，台湾总统蔡英文祝贺拜登当选总统，鉴于美国总统大选中普遍存在的欺诈行为，拜登不可能获胜。蔡的举动是不明智的，并破坏台湾的未来。
+
+台湾是位于第一岛链上的民主国家和地区，拥有世界上最先进的芯片制造业，中国共产党将台湾视为中国的一部分，并对军事入侵台湾保持开放态度，如果中共接管该岛，西太平洋地区和世界高科技供应链将受到集权政府的摆弄。我们必须根据川普和拜登的行动而不是言论判断他们对台湾的政策。
+
+在奥巴马-拜登执政的八年间，美国对台湾的军售额为140亿美金，所有武器都是防御性的；而川普执政的4年中，美国对台湾的军售额为170亿美金，而且这些武器具有进攻能力，这将使台湾的导弹能够到达中国大陆以威慑中共。
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01211205/5y45y.png)
+
+
+
+
+此外，川普政府还派遣副国务卿（Keith Krach）于2020年9月访问台湾，从而提高了台湾的国际地位，这是自1979年美国与中国正式建立关系以来，美国内阁排名最高的官员访问台湾。
+
+历史已经给我们上了一课，根据亨特的地狱电脑提供的资料，拜登和奥巴马以十亿美元的价格将有争议的南海地区卖给了中共，拜登给台湾定的价格又是多少呢？
+
+台湾人非常清楚地了解形势，YouGov 的一项民意调查显示，45%的台湾人相信川普给台湾带来积极的变化。相比之下，只有26%的台湾人认为拜登对他们有好处。蔡总统给拜登的贺词是违背台湾人民意愿的，将激怒川普总统和支持台湾的美国人，我们建议蔡总统听取台湾人民的声音并以美国政客的行动而不是言辞来评判他们.
+
+校对发稿：悟空
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03014137/logo-3-1.jpg)
+
+
+
+
+
 0
