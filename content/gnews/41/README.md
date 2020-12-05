@@ -1,27 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【突发】鲍威尔：我办公室里有一大袋被粉碎了的选票 – 拉芬珀格和加布里埃尔·斯特林应该被调查
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/620330/)
+## 独裁体制下兴与亡百姓皆苦
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/618678/)
 
-- 编辑：Victor Torres
-- 翻译：Goodgo
+```
+作者：阿娜
+校对/发稿人: Ting Guo
+```
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05034813/p8170281a538115057.jpg)图片来源: 新唐人电视台
+共产党自打1949年执政以来，只有给中国老百姓带来的是灾难。毛时代整死、饿死了几千万人。中国共产党所谓的八十年代搞改革开放，邓小平搞的“少数人先富，然后带动大部分再富”。可结果怎么样呢？百姓是一再被当作韭菜收割：股市被套、六个钱包被房子掏空、看病难、上学难等等，没有一样不是百姓受苦。催生的是“富二代，官二代”，“笑贫不笑娼”这种畸形的社会氛围。习近平更是更改宪法“永久称帝” 而党内、百姓不敢言，甚至觉得无所谓。习近平 搞的“反腐”， 百万家庭受牵连，多少个私人企业家被杀被消失。而百姓还蒙在鼓里而不知，其实镰刀霍霍，下一步该收割老百姓了。正如郭先生直播里说的“老百姓才吃饱了几天饭呐，结果又要回去了。共产党建起的这堵网络高墙，让百姓们成天意淫着自己有多强大，可现实生活的苦只有百姓自己心里清楚。
 
-**悉尼·鲍威尔(Sidney Powell)****在周五晚上参加了格兰特·斯金菲尔德(Grant Stinchfield)****在NewsMax****电视台的节目。**
+共产党妄图用病毒来控制世界的各国政府，可它的如意算盘终是要落空了。它这次造的孽终于让全世界看清楚了共产主义的邪恶面目。到目前为止世界百万人口死亡超过了任何以往的任何战争死亡人口，你说怎么可能就让共产党继续作恶下去呢！但习近平还在继续加速，说什么这是“终极之战”。看来他是一条路走到黑，死不回头了，可怜的就是中国亿万的百姓。
 
-**悉尼(Sidney)****给出了她现在在威斯康辛和乔治亚的选举欺诈案的最新进展。**
+据郭先生的情报来源“共产党的最高层已经开始安顿自己真正的家人和后事了。中共的高官是最胆小、最自私、最懦弱、最会保护自己。他们感受到能躲就躲，能跑就跑，现在都在囤这、囤那、囤保命的东西。谁来保护老百姓呢？结果就是我们倒霉，这就是我这几年最最担心的事情。中国人说的很对，在家你不要跟老婆挑战生气，在国际关系上不要向美国挑战，在公司你不要跟老板挑战。在国际关系上你绝对不要惹美国。共产党的疯狂这次给老百姓带来的灾难真的是无穷无尽的。中国的老百姓真的是无知啊， 绝对不是把你打回到原形，打回到石器时代。如果中国老百姓还不觉醒，那个灾难是无法形容的”。
 
-鲍威尔权衡了她在佐治亚的案子。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01052933/image0-720x720.png)[***https://discord.gg/77fCxw5mFv**
+**https://gab.com/himalaya\_italy***](https://gab.com/himalaya_italy)
 
-**悉尼(Sidney)呼吁调查拉芬珀格(Raffensperger) 和他的搭档加布里埃尔·斯特林（Gabriel Sterling）。** 鲍威尔说：“在乔治亚，机器中有大量的证据表明存在删除选票和跳票给拜登的情况。他们一直在以最快的速度删除并且毁坏证据。**我的办公室里现在就有一大袋被粉碎了的选票。**我迫不及待想要看看里面有什么。美国人民是不会允许我们的总统被选举欺诈机制打败的。这些人已经用尽了你能想象到的所有选举欺诈行为。是被紧密操控，并有大量资金支持的。他们现在有25名律师对抗我们这些正在为真理和正义、为了美国人民而奋斗的小小团队。拉芬珀格先生明显在全力撒谎。应该对他和他的副秘书长的财务进行犯罪调查，为什么虽然他们并不需要新系统，可是价值1亿7千万美元的多米尼(Dominion)合同会突然在乔治亚州出现。”
-
-**原文链接：**[https://www.thegatewaypundit.com/2020/12/sidney-powell-huge-bag-shredded-ballots-office-raffensperger-gabriel-sterling-investigated-video/](https://www.thegatewaypundit.com/2020/12/sidney-powell-huge-bag-shredded-ballots-office-raffensperger-gabriel-sterling-investigated-video/)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0
