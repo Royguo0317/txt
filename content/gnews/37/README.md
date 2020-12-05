@@ -1,49 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国正通过讹诈和暗势力来控制国会议员
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/617391/)
+## War Room 560 总结
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/617426/)
 
-*新闻来源：Breitbart《布赖特巴特》；作者：JOSHUA CAPLAN；发布时间：2020年12月3日*
+- 编辑：Ranting
+- 作者：Jenny Ball
 
-*翻译/简评：文明明；校对/审核：johnwallis；Page：拱卒*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/uSKzH353lUpmO/images/01e7cc8e-03c2-4b86-8590-ecb39418d42c.jpg?asset_id=5edd2e53-88d9-4656-a37e-3d18a0cc352b&amp;img_etag=%22e63dc6382c5cafdc3b6b24a5e2f71a1a%22&amp;size=2560)](https://spark.adobe.com/page/uSKzH353lUpmO/images/01e7cc8e-03c2-4b86-8590-ecb39418d42c.jpg?asset_id=5edd2e53-88d9-4656-a37e-3d18a0cc352b&amp;img_etag=%22e63dc6382c5cafdc3b6b24a5e2f71a1a%22&amp;size=1024)国家情报局局长约翰-拉特克利夫
+这是觉醒的巨大力量。政客的威慑力逐渐在人们的心目中消失。他们终于发现自己的能力。谁也阻挡不住他们的巨浪。**我们要守护未来，而现在就是未来**！
 
-#### **简评：**
+亚利桑那州州代表**马克·芬凯姆**：亚利桑那州已变成了骗子天堂。听证会的重要作用是提供一个客观的论坛：我们试图为案件奠定理论基础，而这就是以宪法为依据。这样就可以逐步还原犯罪过程，我将其称为大选凶杀案，不仅要有开过火的枪支，弹壳和鲜血，而且要有整个犯罪现场。
 
-国家情报局局长约翰-拉特克利夫（John Ratcliffe）周四告诉CBS新闻记者凯瑟琳-赫里奇（Catherine Herridge），中共政府正在利用勒索、贿赂和秘密行动来针对国会山的立法者们，这是他们试图影响美国政策制定的一部分。
+谨慎的做法是对所有机器进行审核，将它们扣押，让法医小组对其进行检查，有审核员在场记录流程的每个步骤。
 
-虽然这段采访不足1分钟，但是它所释放的信息说明美国参众两院对中共的渗透和对美国的危害已经达成共识，联系到最近众议院快速通过对中共在美上市公司的问责法案，以及文贵先生和路德先生的爆料，可以预见美国不久就会对中共采取一系列的制裁措施。
+由于我们代表团队人员值得信任，现在有更多人出来作证。下一步我们必须质问州长杜西，在他签署选举认证时没有一点对总统起码的尊重。请记住，他是在听证会开始两个小时后签字的，该文件是他必须提交给联邦政府的具有法律约束力的文件，他的违宪行为将是他抹不掉的罪证。
 
-我们真的可以感受到山雨欲来风满楼。
+人们现在要赶紧与众议院议长，参议院议长取得联系，鼓励他们要有政治家的勇气，我们有足够的证据表明，亚利桑那州62％至67％投了川普总统的票，他们不能不顾这样的事实。
 
-#### **原文翻译：**
+即使我们有大量的证据，我还是担心在众议院和参议院层面会遇到某种障碍。
 
-# **国家情报局局长约翰-拉特克利夫说：中共国正通过讹诈和暗势力来控制国会议员**
+**约翰·弗雷德里克**：在巨大的压力下，州长布莱恩·坎普终于同意验证核对信封上的签名，但他没有这个权利执行，有这个权利的州务卿布拉德·拉皮兹·汉堡拒绝这么做，他在隐藏什么？
 
-国家情报局局长约翰-拉特克利夫（John Ratcliffe）周四告诉CBS新闻记者凯瑟琳-赫里奇（Catherine Herridge），中共政府正在利用勒索、贿赂和秘密行动来针对国会山的立法者们，这是他们试图影响（美国）政策制定的一部分。
+人们要求的特别会议是有两个至关重要的事情：一是希望能够宣布已经为乔·拜登认证的16张选举人选票无效，因为存在欺诈行为。第二，使布拉德·拉滕斯珀格与史黛西·艾布拉姆斯和民主党签署的认证无效，因为这是违反宪法的。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/uSKzH353lUpmO/images/c5eefe18-dd79-4c90-b0f2-2a6437fa9bac.jpg?asset_id=9f3fbf46-d150-455a-8cb8-b01b3e64c3f0&amp;img_etag=%22ba735d8a2bff5c9b17f6a4309ae65714%22&amp;size=1024)](https://spark.adobe.com/page/uSKzH353lUpmO/images/c5eefe18-dd79-4c90-b0f2-2a6437fa9bac.jpg?asset_id=9f3fbf46-d150-455a-8cb8-b01b3e64c3f0&amp;img_etag=%22ba735d8a2bff5c9b17f6a4309ae65714%22&amp;size=1024)
+之所以这两件事至关重要，是因为如果他们这样做，就是默认了这种欺骗选举的方式，1月5日的参议员选举还会再次重演。
 
-**访谈的部分文字记录如下**：
+现在，普通民众自发兴起的运动发展势如破竹，他们的能量超越了现任共和党领导层。
 
-凯瑟琳-赫里奇（Catherine Herridge）：你为《华尔街日报》写了一篇文章，你说中共国针对国会议员采取行动的频率是俄罗斯的6倍，是伊朗的12倍 ，北京采取咄咄逼人的做法背后原因是什么？
+前纽约市警察局局长**伯纳德·凯里克**：相类似的非法选举作弊，如非法外国人选票，不够年纪人选票，非本地居民投票，等等，等等，不仅在内华达州，也在其他所有州发生。这是一场精心策划的未遂政变。
 
-国防部部长约翰-拉特克利夫（John Ratcliffe）：他们希望美国出台对中共国有利的法律和政策，他们实际想做的是通过勒索、贿赂、公开和秘密行动，来确保（国会）只通过对中共国有利的法律。
+显然川普赢总统赢得了大选的压倒性多数选票，即使民主党人如此疯狂舞弊，但是如果川普输掉这次大选，并不是因为民主党人，而是因为共和党人没有勇气站起来做自己的工作。这就是现实。
 
-凯瑟琳-赫里奇（Catherine Herridge）：你有没有去国会山向立法者们（国会议员）通报这些有关威胁的信息？
+**班农先生**：拜登说“我们必须向前推进（过度）”。但是我们不会向前推进，除非你和你的竞选团队出来说清楚，**乔治亚州监控录像是怎么回事**？那简直令人瞠目结舌。
 
-国防部部长约翰-拉特克利夫（John Ratcliffe）：我在国家情报局局长的位置上看到的情况让我非常不安，所以我向众议院和参议院情报委员会介绍了这些信息，他们也认为这些信息令人惊讶和不安。
 
-[原文链接](https://www.breitbart.com/asia/2020/12/03/dni-john-ratcliffe-china-is-using-blackmail-covert-influence-to-target-members-of-congress/)
 
-[点击阅读英喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
-[点击观看英喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/uSKzH353lUpmO/)
-[!\[\]()!\[\](https://spark.adobe.com/page/uSKzH353lUpmO/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/uSKzH353lUpmO/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-0
+1+
