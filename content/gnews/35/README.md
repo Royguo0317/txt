@@ -1,39 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国内时评 | 战时应急备货清单
-` 公民之聲` [轉載自GNews](https://gnews.org/zh-hans/619566/)
+## 【世界多语言图文】2020/11/25-26 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/619394/)
 
-内新闻：匿名小哥 校对：雅典娜的圣斗士(沙加)
+戰友之家圖文摘要及多語組
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05090015/image1-1-5-scaled.jpg)
+[305-306\_English\_1125-1126\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081304/305-306_English_1125-1126_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081304/305-306_English_1125-1126_CCP_Virus_Updates.pdf)
 
-共产党释放生物武器并操纵美国大选，美国、北约、五眼联盟等军事情报部门已经坐实共产党的恶行。战争将一触即发，墙内的经济民生会瞬间崩塌，特整理战时应急备货清单以供参考。保持良好的心态，多多关注爆料革命、战友之家、路德、面具先生的节目，还有GTV和GNEWS 的实时信息，一起挺过此难。
+[305-306\_French\_1125-1126\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081230/305-306_French_1125-1126_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081230/305-306_French_1125-1126_CCP_Virus_Updates.pdf)
 
-**战时应急备货清单如下，欢迎战友留言补充。 **
+[305-306\_German\_1125-1126\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081156/305-306_German_1125-1126_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081156/305-306_German_1125-1126_CCP_Virus_Updates.pdf)
 
-1、食物 可以长期储存、不需要烹饪的即食食品。准备全家三个月的量。主食最好是自带多元维生素、多元矿物和微量元素的食物。肉类可以储存肉干和罐头。水果类可以吃水果罐头。干蔬菜可以凑合代替蔬菜。备注：那时候你可能缺电、缺燃料而无法烹饪。
+[305-306\_Japanese\_1125-1126\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081247/305-306_Japanese_1125-1126_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081247/305-306_Japanese_1125-1126_CCP_Virus_Updates.pdf)
 
-2、饮用水 在远离水源地区准备三个月的洁净饮用水，存放在大水缸或塑料桶。三口之家秋冬季节需要五百公斤，夏天需要更多。大桶内每月扔二片二氧化氯消毒片，可以长期不变质。家门口附近若有水源，可以少存点水，只需要准备明矾、消毒片、过滤器。存水的另一个好处是便于灭火。战时比平时更容易起火。
+[305-306\_Korean\_1125-1126\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081213/305-306_Korean_1125-1126_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081213/305-306_Korean_1125-1126_CCP_Virus_Updates.pdf)
 
-3、保暖衣物 家里每人一件足够保暖的羽绒服，充绒量350克以上。根据当地气温添加厚实保暖的羽绒睡袋。冬天若是没电，室内会非常寒冷。在户外多用抓绒和其他聚酯纤维做的产品保暖，忌棉花做的衣物。
-
-4、雨衣 有时不得不离家出逃，雨衣可以挡雨，也可以在大风中挡风御寒，还可以当地垫。每人一件轻薄雨衣。若是衣服湿透，即便气温高达十几度，人也可能因为失温而死。雨衣还可以保护衣服口袋里的各种物品不被水打湿。许多电子设备都不能淋雨。收音机、手机、对讲机、LED手电筒，都怕水。
-
-5、药品和医用材料 创可贴、纱布绷带、碘伏、酒精、棉球必备。止血带、手术刀、缝合针线也可以备一些。一些急救包里面有全套的设备，买一个急救包就可以。多准备几种不同类型的抗生素。家人日用药品要按照每个人的情况准备至少三个月。具体情况参考医生建议。
-
-6、手电筒 为了在雨中可以使用，或者掉水坑不至于损坏，作为主力的户外强光手电筒要用防水的。家里要有几个小型普通手电筒，配足量电池。战时会遭遇停电和灯光管制，家里无电，外面无路灯。没有手电筒，晚上寸步难行。
-
-7、工具箱 很多事都必须自己DIY，要准备足够多的工具。如果没有锯树的手锯，一定要买一把。缺燃料就去外面锯树木，有锯者先得，这是许多战争围城的普遍经验。
-
-8、蜡烛和打火机 蜡烛不仅可以照明，也可以给寒冬室内和帐篷增加温度。蜡烛要选粗而短的类型，耐用且不易打翻。最便宜的一次性打火机，可以备一盒。还可以买几条打火石做备份。尽可能用大块的打火石，便于使用，也便于找到。因为太小的物品容易丢失。
-
-9、信息通讯器材 收音机、卫星电话、对讲机，可以酌情购买。如果网络丧失功能，这些是你获取信息和通联的工具。哨子、绿色激光指星笔、强光手电筒，可以作为一家人晚上走路保持联系的工具。望远镜是战争必备品，不仅军人需要，平民也需要靠它判断远方的危险。望远镜也是一种获取远方信息的工具。你可以在望远镜里跟人打手势，甚至用哑语交流。
-
-10、逃生背包 你可能随时需要离开危险地带，逃到安全地带。每个人都应该有自己的逃生背包，平时整理好，拿上就可以走。逃生背包要按照自己背得动的重量去选。逃生背包一定要选背负系统很好的。一些看起来很酷的、军品味很浓的廉价「突击包」只有简陋的背负系统，长距离负重会很累，体积也不够。尽可能选高端驴友徒步背包。高端背包的另一个好处是扣件和拉链质量高。重要的证件和资料要随身携带。为了防止路上被水打湿，可以装在塑料袋内，用封口机密封。包里必备的还有打印的通讯录和纸做的地图。记住那时候路上可能没电也没有移动互联网，你没法用手机里面的地图和通讯录。
-
-11、足量现金、美元、黄金 没电没互联网，微信、支付宝、银行转账、刷卡、刷脸，都没法用，ATM也取不出钱。战争时期还可能限制取款。只有现金才是有用的。手机若无法充电，即便是数字货币、电子钱包也不能用。所以需要足量现金。再备少量美元和黄金，可以更方便支付。
-
-12、家里要有足够的卫生纸、垃圾袋、胶带纸 卫生纸越多，生活质量越高。缺乏卫生纸的情况，可以用书架上几千本书撕开凑合。垃圾袋和胶带纸都有诸多用途。极限情况下，厕所不能冲水，你可能需要很多垃圾袋。
+[305-306\_Spanish\_1125-1126\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081140/305-306_Spanish_1125-1126_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081140/305-306_Spanish_1125-1126_CCP_Virus_Updates.pdf)
 
 0

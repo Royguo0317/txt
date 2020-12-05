@@ -1,17 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/11/23-24 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/619240/)
+## 《路德社》突发新闻快讯：美国政府官网声明&#8211;终止中国资助的宣传计划
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/619073/)
 
-战友之家图文摘要及多语组
+编辑：路德社精选新闻专栏组
 
-[303-304\_English\_1123-1124\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080534/303-304_English_1123-1124_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080534/303-304_English_1123-1124_CCP_Virus_Updates.pdf)
+2020年12月4日 ，美国国务卿蓬佩奥（[MICHAEL R. POMPEO](https://www.state.gov/biographies/michael-r-pompeo/)）在美国政府官方网站发布新闻声明：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05082342/%E6%88%AA%E5%B1%8F2020-12-06-02.21.26.png)
+[新闻声明（原文）](https://www.state.gov/termination-of-prc-funded-propaganda-programs/)
 
-[303-304\_French\_1123-1124\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080615/303-304_French_1123-1124_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080615/303-304_French_1123-1124_CCP_Virus_Updates.pdf)
+麦克尔.R.彭培奥 国务卿
 
-[303-304\_German\_1123-1124\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080546/303-304_German_1123-1124_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080546/303-304_German_1123-1124_CCP_Virus_Updates.pdf)
+2020年12月4日
 
-[303-304\_Spanish\_1123-1124\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080627/303-304_Spanish_1123-1124_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080627/303-304_Spanish_1123-1124_CCP_Virus_Updates.pdf)
+今天，美国国务院终止了与中华人民共和国（PRC）的五个伪装成 “文化交流 “的项目。
+
+这些项目包括
+
+“政策制定者教育中国行项目”
+
+“美中友好项目”
+
+“美中领导力交流项目”
+
+“美中跨太平洋交流项目 “
+
+和 “香港教育文化项目”。
+
+这些项目是根据《互惠教育文化交流法》（MECEA）第108A条进行的，允许美国政府雇员使用外国政府资金进行旅行。
+
+虽然在MECEA主持下资助的其他项目是互惠互利的，但这五个项目是由中国政府作为软实力宣传工具完全资助和运作的。它们为中共官员提供了精心策划的访问通道，而不是为不享有言论和集会自由的中国人民。美国欢迎与中共官员和中国人民进行对等和公平的文化项目交流，但这样的单向项目并非互惠。
+
+编者按：
+
+终结以上由中共国资助的五个项目仅仅是美国对中共又一个警示之声，又一记重拳出击，中共后续可能迎来更多的毁灭性打击。2020年新冠病毒源头挖掘引起了中美关系日趋紧张，目前更加是处于加速恶化之中，越发剑拔弩张，任何极端情况都可能一触即发。一切经由滑稽的美国大选转折性的进入了更加紧迫的无声的战争状态。不宣而战的这场世纪大战悄无声息的来了，当下发生的一切注定正在改变着世界和人类的未来！世界局势巨变正在酝酿中，近期各方新闻更新速度也在爆发加速，后续相关进展我们还需密切关注。
+
+
+
+本文作者：玫瑰天空
+
+审核校对：楼兰古城
+
+上传排版：玫瑰天空
+
+翻译：Arvin江牧
 
 0
