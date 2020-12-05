@@ -1,36 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【突发】格拉汉姆公开支持川普废除230条款
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/617519/)
+## 【突发】林伍德：是时候让美国决定是要自由还是暴政
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/617592/)
 
-- 编辑：Victor Torres
+- 编辑：文顺
+- 翻译：Victor Torres
 
 
 ***更多真相，请关注*** ***[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2020年12月4日电/西喜社/——**四小时前，参议院多数党领袖林赛•格拉汉姆连发三推，公开支持川普总统废除230条款。
-
-林赛•格拉汉姆说：“我支持川普总统坚持废除第230条款，这是国防授权法案的一部分。‘科技巨头’是美国唯一不能因其商业行为而受到起诉且没有受到有效监管的行业。这必须结束。”
-
-他说：“这是我们改变路线的最佳时机，乘我们还有机会这么做时。在支持我们国家的军事方面，我不会落后于任何人。但是，第230条款允许美国的信息流通从根本上被改变。”
-
-他还表示：“我们有一个国防部来保护我们的自由，但是如果我们不更改第230条款，我们的自由就会受到威胁。”
+**西班牙2020年12月4日电/西喜社/——**刚刚，林伍德（Lin Wood）发推表示，中共用生物武器袭击了美国，并试图窃取美国大选，是时候让美国决定是要自由还是暴政。
 
 
 
-> I support President [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw)'s insistence Section 230 repeal be part of the defense authorization bill. 
->  
-> Big Tech is the only industry in America that cannot be sued for their business practices and are not meaningfully regulated. 
+> Communist China attacked our county with biological weapon, Covid-19. Communist China attacked our country by trying to steal US national election.
 > 
-> This must come to an end.
-> — Lindsey Graham (@LindseyGrahamSC) [December 4, 2020](https://twitter.com/LindseyGrahamSC/status/1334901016429522944?ref_src=twsrc%5Etfw)
+> Time for America to decide whether it wants freedom or tyranny. Fight for [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw), not for Xi Jinping or his puppet Biden.
+> — Lin Wood (@LLinWood) [December 4, 2020](https://twitter.com/LLinWood/status/1334964371215233027?ref_src=twsrc%5Etfw)
 
 
+
+**推文翻译：**
+中国共产党用生物武器中共病毒袭击了我们的家园。 中国共产党通过试图窃取美国大选，袭击了我们的国家。 是时候让美国决定是要自由还是暴政。 支持川普，而不是习近平或他的木偶拜登。
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20124027/PHOTO-2020-11-18-22-21-04.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
