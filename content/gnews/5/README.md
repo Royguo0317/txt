@@ -1,29 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国17岁花季少女 在中共警察的“注视”下溺亡!
-` GM108` [轉載自GNews](https://gnews.org/zh-hans/619501/)
+## 【世界多语言图文】2020/11/25-26 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/619394/)
 
-作者：小妍说
+戰友之家圖文摘要及多語組
 
-12月4日下午，一段女生在警察目视下跳河的视频在网络上传播。　在这段3分钟的视频中可以看到，一名白衣女生站在齐膝深的水中欲跳河，两名身着警服的男子站在两米多远的岸边，随后女生转身跳入河水深水区。1分钟后，岸边的警察开始尝试手挽手走入水中，但很快放弃并走回岸上。此时，跳河女生仍浮在水面上，围观群众大声呼喊“还有一口气”“快点下去救人”，几名增援警察走了过来。又过了30秒，两名黑衣男子系着绳子依次跳入水中搜救，但此时女生已经沉入水中不见踪影。跳水女孩今年17岁，在望江高中读高二，视频拍摄地为安徽省安庆市望江县卧冰桥附近，距离望江中学新校区不远。事发时间约为12月4日下午2点，视频中跳河的女子送往望江县中医院抢救，但不幸人已身亡。12月4日，望江县人民政府办公室回应媒体称：事发后，县委书记、县长召开了紧急会议，成立专门小组调查此事，调查结果之后会回复。4日晚，望江公安通报称，对民、辅警施救中存在的问题，已成立调查组，涉事民辅警停职接受调查。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05085117/A38DA200-6603-42A2-A54F-4D16666E0F8A.png)
-一个17岁的花季少女就这样没有了，真的有点可惜。生命只有一次，在这一次援救过程中，中共国民警与女孩只有一米宽的距离。如果女孩在回头的那刹那民警能够迅速作出反应迅速拉住女孩，也许悲剧就不会发生。即便是女孩跳入河中，有民警熟悉水性，有相应的救生工具，女孩说不定也能救回来。从视频中可以看出，女孩在跳下水的那一刻，岸上的人都在呼喊，而这时一帮民警慢慢悠悠朝岸边走来，小心翼翼提了提裤脚，手拉手往水里走了两步，从视频中可以看出女孩跳水的距离离民警并不远，这么多人哪怕没一个会游泳的，那你们动作稍微快点，拉手一起去靠近女孩，也不至于一直等到女孩彻底失去生命迹象后才从水里拖上来。
+[305-306\_English\_1125-1126\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081304/305-306_English_1125-1126_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081304/305-306_English_1125-1126_CCP_Virus_Updates.pdf)
 
-而且有几个疑问，既然报警时都说了有人跳水，为什么赶来的时候没有带个会游泳的民警？在言语劝诱的时候，为什么没有做好劝说失败的准备？就算现场的民警不会游泳，为什么没有准备游泳圈或是绳索等救援设备？现场民警明知没有救援能力为什么不拨打119协助？难道民警已经做好准备，就是打算劝一劝，劝不下来就算了？很多人说小姑娘的命是命，民警的命也是命。救人前保证自己的生命安全这没问题，但是救人前如果一切准备就绪，小女孩也许还有活下去的机会。 还有就是民警该不该救人，我就想问一下，如果不该救人那为什么要打电话报警呢？为了多几个民警来看戏吗？看到这些回答，突然觉得也许在中共国百姓的眼里，老百姓早已默认了，中共国的警察就是暴力机关，并不是专门成立去实施救援行为的。这件事除了表面上的该不该救的争议外，还存在潜在的问题就是这些所谓为人民服务的民警背后透漏出的漫不经心对生命不重视的态度，已经在中共国形成普遍的现象了，很多人把职业当做了挣钱的工作。老师们当老师，目的不是教书育人，而是想要一份稳定的收入；医生们当医生，目的不是救死扶伤，而是想要一份高额的收入；公务员们当公务员，目的不是为人民服务，而是想要一份名利双收的工作。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05084555/image-48.png)
-最让人心寒的是一个十七岁的女孩一时冲动自杀，一群人在网上说她想死就随她去，所有人都变的好冷漠。试想一下，如果那个女孩与两名民警任何一位存在亲属关系，我想他们俩大概率还是会跳下去，采取必要行动去救那个女孩。站在岸边呐喊拍摄视频的人，有谁想过找来施救的绳索或其他有用的东西吗？并没有。作为看客之一，那个女孩，对他们来说是陌生人。在中共的统治下，舍身救人的善意早已被冷漠现实社会中的利弊权衡所湮没。如今的中共国人，早已变成了麻木的看客，更是行为低俗、语言粗鄙的无知簇拥者。所有人都抱着事不关己高高挂起的态度，舍身救人演变成了先保身，再救人，或者先拍照，再救人，又或者先录别人怎么处理救人这件正发生的事，再救人…难道这就是中共所谓的新中华文化吗？
+[305-306\_French\_1125-1126\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081230/305-306_French_1125-1126_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081230/305-306_French_1125-1126_CCP_Virus_Updates.pdf)
 
-文章仅代表作者本人观点
+[305-306\_German\_1125-1126\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081156/305-306_German_1125-1126_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081156/305-306_German_1125-1126_CCP_Virus_Updates.pdf)
 
-GNEWS之前文章：
+[305-306\_Japanese\_1125-1126\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081247/305-306_Japanese_1125-1126_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081247/305-306_Japanese_1125-1126_CCP_Virus_Updates.pdf)
 
-放学补课再次收割 举报人遭暴打 [https://gnews.org/zh-hans/613246/](https://gnews.org/zh-hans/613246/)
+[305-306\_Korean\_1125-1126\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081213/305-306_Korean_1125-1126_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081213/305-306_Korean_1125-1126_CCP_Virus_Updates.pdf)
 
-崩溃痛哭 录音戳痛无数人 [https://gnews.org/zh-hans/610499/](https://gnews.org/zh-hans/610499/)
-
-口出狂言中国人死4000人算是零死亡[https://gnews.org/zh-hans/608257/](https://gnews.org/zh-hans/608257/)
-
-新闻链接：[https://www.thepaper.cn/newsDetail\_forward\_10282599](https://www.thepaper.cn/newsDetail_forward_10282599)
+[305-306\_Spanish\_1125-1126\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081140/305-306_Spanish_1125-1126_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081140/305-306_Spanish_1125-1126_CCP_Virus_Updates.pdf)
 
 0

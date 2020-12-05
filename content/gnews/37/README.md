@@ -1,37 +1,96 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年12月4日郭文贵先生直播摘要
-` GM102` [轉載自GNews](https://gnews.org/zh-hans/618867/)
+## 《路德社》每日简报晚间版 2020.12.03&#8211;NewYork Time
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/618532/)
 
-战友之家摘要组
+《路德社》出品； 编辑：路德社精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05023036/12.3-pm-china-1-scaled.jpg)
+1203晚间要闻-NewYork Time
 
-0:00等待战友，调整设备。
+Important news, Dec 3, 2020 Evening, EST
 
-5:43 昨天沉重的直播后，很多战友发来信息。面对灾难要来临的时候，第一重要的是信息。最重要的是信息的真实和快速到达。所以GTV、GNews非常重要，不论发生什么事情，如果能让国内同胞尽快得到准确的信息，可能比所有战友加一起的努力都重要。昨天国内很多经济界、政治界的战友都发信息说，一定要保证GTV、GNews正常运作，接下来盖特独立的运作，有电视台就更好了。中共防火墙想100%屏蔽信息是不可能的。
+**美国重启星球大战计划**
 
-9:56 现在军队不同以往，不是傻听指挥。听说这几天军队里面动静很大，当兵的孩子都是独生子女，家里人都看信息，路德访谈很重要。当地政府官员对民兵国防总动员，从下往上级，不允许说真话。经济掩盖，维稳掩盖，老百姓很聪明，坚决不当兵去送死。现在战友已经不讨论谁当总统了，而是川普怎么排干沼泽，短短几天的转变，都是爆料革命给的信息，所以信息很重要。
+**America reboots Star Wars Program**
 
-13:33 昨天晚上，和美国战略伙伴联系，他说郭先生直播说得太保守。郭先生说70%的可能是灾难的结果，30%可能有机会斩首成功，世界联合势力和党内聪明人力挽狂澜，就是党内的人实行斩首行动，那就拯救了整个中华民族，是绝对的英雄和未来领导人。这样的人西方认可，咱们也认可，之后实现新中国联邦宣言。但美国人说，乐观看待有5%的可能是这个结果。郭先生没这么悲观，美国人的悲观来自于全世界各种力量当和平地变成奴隶不能成功的时候，当政府更迭的时候，国际黑暗力量这时候要把你砸烂，也就是说要把中南坑的人全砸烂。听说，最近开两会的时候要把人民大会堂几千人直接铲平，3700多个军事基地，一次性同时铲平，包括了生化部队基地。叫炸弹之母，能产生6-8级别地震，中共0的反抗能力，如果这个东西到达美国，美国同样没反抗能力。很多黑暗势力不想这么干，黑暗势力想让中国乱，南海打几下，让国内人吃人，乱3-5年然后培养个新政府，这个结果几率很大。说白了，就是很多黑暗势力，不想让定点爆破之后，中国迅速进入和平阶段的权力交接。战友们这个时候千万别依靠美国、联合国，他们打不是为了咱们是为了自己，他们是资本主义，一切为了资本。郭先生认为，有70%的几率走向灾难，几年的动荡。30%的可能因为党内战友和真正的精英采取了斩首行动，和世界这些联合力量谈判，我们能自己解决内部问题。这些人，例如军队的年轻将领，英文很好，对国际世界很了解，还有像胡春华、汪洋、李克强，包括四川、重庆几个领导都不错。还有现在公安部长赵克志，还有郭声琨，丁薛祥已经接管王沪宁，孟祥锋已经当了中办主任，别看这几个都是习下面，还都是不错的。但是，孟建柱、王岐山他们一派肯定是不行的。这些人如果聪明的话，组成一个和世界接轨的过渡政府，帮中国实现民主，有30%的机会。主要看国内党内的开智的，有多少人敢行动。还有新中国联邦的战友们，是否能团结在一起，在关键时刻改变历史。第一，信息。在断网的时候，新中国联邦绝对有能力，让所有的投资者和战友们保持联系，让大多数人在天上收到我们的信息，包括看GTV、GNews和未来的盖特，这是我们的核心，这个杀手锏郭先生还没出，大家等公告。全球的农场都有我们独立的通信系统，这个系统只要地球不灭就没人能灭了，它受美国和西方法律保护。让国内战友掌握国外真实的信息，就会减少误判，以防被国内国际黑暗势力控制，战争胜负在于情报，绝非武器。一旦开战和人多少没有任何关系，没有军事英雄，只有政治英雄。中国的袁世凯，郭先生有百分之三十的信心，第一条保证信息。
+上周起，北约和俄罗斯的军方彻底看清了，中共完全没有任何底线，不顾任何地球公约，不但全世界发动了病毒生物武器战争、并且还在发动后续更加致命的疫苗战争，为了避免地球被中共毁灭，将启动星球大战计划。
 
-24:20 第二，农场。最近让郭先生很感动，例如东南亚，柬埔寨、孟加拉、新加坡、泰国的战友准备了避难营，这些国家都是不行的。我们希望绝对不要用避难营，但我们要做好准备，接待国内的战友出来，给他们帮助和资助。亚洲我们要准备，第一重要的国家日本，第二越南，第三印度，第四韩国，第五台湾（可能）。塞班岛、琉球是好地方。琉球郭先生有大片的地，未来都会用上。北边俄罗斯是可以的，阿塞拜疆、吉尔吉斯斯坦暂时过渡。国内战友能出来我们会和这些政府联系，之后逐渐到北美和拉美，然后到欧洲。只要出来的战友一定要团结到一起，在亚洲这些国家定下来，如果不愿意再到欧美。有人出来我们要给最大的帮助，此时此刻最起码有200多战友已经出来。所以请这些国家的战友做好一切准备，随时会找你们，喜马拉雅联盟委员会一定要确定这些国家的战友是否可信并且有能力做接收战友的工作。
+Since last week, the military of the NATO and Russian have made it clear that the CCP bears no bottom line, regardless of any conventions on the earth. They not only waged a war of viral biological weapons, but also prepared a more fatal one on vaccines. To avoid the destructions of the earth by the CCP, the Star Wars program will be launched.
 
-28:20 未来郭先生绝对有能力拿出上百亿美元，会在关键时刻让各农场利用这笔钱，利用NGO的方式，法制基金、法治社会，会发给农场钱。100-150亿是没有问题的，第一个要照顾的就是GTV椅子投资者，然后是借款项目、Gclub、法制基金捐款者。如果以上都没有，只要是支持爆料革命的，会有验证的程序，都是我们保护的对象。接下来我们会建立亚洲的基地，目前定在日本，日本是最安全的。还有就是美国的基地，Sara长岛哥负责，一大半基地都要建在凤凰城。欧洲要选出一个真正有能力的人建立基地，起码要拨款10-20亿美元。俄罗斯我们要和玛莎加上几个人组成团队拨钱过去，接受从北部出去的战友。韩国我们打算建立亚洲2号基地，最担心的就是韩国政府，目前在考虑。澳洲、新西兰成立基地由安红、木兰、老班长负责。战友们一定和你的农场保持联系，未来我们会公告联系方式，不要联系未公告的人。
+爆料革命一直试图唤醒党内的人，呼吁中共的戈尔巴乔夫站出来，但现在时间点已过、仍没有人站出来，全世界已经因病毒死亡150万人，西方世界无法忍耐下去了。
 
-34:00 现在国内经济、治安的问题，在防火墙欺骗下，让老百姓灯下黑。我们能保证让国内战友们得到俩样东西，有饭吃，有信息。能给14亿同胞们尽量提供粮食、信息，我们就是大成功。你能救出多少人？十几亿人在国内，我们出来的人啥也不干，就干这两件事。我们海外要做的事，最重要的是让国内同胞得到通信和信息，然后尽可能有粮食吃，我们会有一些特殊渠道运粮食进去。
+The Whistleblower Movement have been trying to rouse the members of the CCP and called on the men like Gorbachev to stand up. However, no one came forward in the limited period. The CCP Virus has killed 1.5 million people worldwide, and the West can’t take it anymore.
 
-36:28我们和西方政府合作就两个主题。第一，如何让西方以最快的方式结束病毒战争。第二，尽可能不让西方黑暗势力培养一个新流氓政权。其他已经没有意义了，任何人想挡住西方和中共算账都是不可能的。昨天路德节目说得很对，西方不要听政治家、媒体怎么忽悠，到了国家安全、战争层面没有他们参与的份。据郭先生所知，所有西方国家沟通完以后，历史上都没有这么统一，都一句话，只要病毒是中共弄出来的，我们就和你站在一起，一定把中共灭了。所有军事机构是基于情报来判断，现在各国都在说，结合美国大选来看，病毒就是武器，共产党是最大的威胁。所以战争想避免是不可能的，只是时间、方式的问题。当战友告诉你周围的人，不管他们听不听，做你该做的，不管他们什么态度，尽力。
+**为什么必须启动星球大战计划才能消灭中共**
 
-40:12 很多事情不是人为能改变的，今日中共制造病毒就是中国人民70年来纵容的结果。西方军事专家、情报专家对这个疫情的描述就是人为背后操纵的病毒。是生化武器，带有战略目的的超限战。
+Why must the Star Wars program be started to take down the CCP
 
-43:30 香港很有可能真的会变成建筑垃圾堆、人类屠宰场，中共会炸平香港。如果斩首成功，香港会再度辉煌。台湾非常危险，中共临死也会弄一下台湾。全球经济一定崩盘。扎克伯格在下届总统最想要的是虚拟货币，批准他虚拟货币，他就百分之百选总统，那中国人就完了。推特这次不惜代价地毁爆料革命就是为了中共答应把中国的搜索和中国市场全面开放，让推特作为中共的dcmp虚拟货币的承销商，就是中国google和百度综合体，然后拥有中国所有虚拟货币分销。谁掌握虚拟货币谁就拥有了未来。未来土地没有用了，只有虚拟货币才有用。如果成功了所有的5G量子技术都会和他们合作。那时候5G量子技术、虚拟货币、网络都在他们手里控制，所有中国人都成为奴隶。比尔盖兹想垄断全世界所有量子技术代码，连甲骨文都想吞掉。把商业媒体都变成他们的，接下来就是全面控制生物科技，这就是垄断。中共靠收买，资本主义靠垄断。这个世界的报应也就来了。
+由于邪恶的中共将核武器藏身于正常人无法想象到的民用设施或闹市区中，他们笃定美国不会100%做到监视和追踪，于是决定要与西方鱼死网破。如果习王被斩首，他们将释放所有的核武器来攻击美国，甚至全部自我引爆毁掉地球。
 
-52:37郭先生出山要准备最坏的时刻，自己不强大连直播的权利都没有。时刻都不要偷懒。只要美国在，G系列在新中国联邦就是一个独立的国家。有能力才能帮助战友们。
+The evil CCP hides nuclear weapons in the civilian facilities or downtown areas that normal people cannot imagine. They convinced that US cannot do all of the surveillance and tracking 100% and decided to fight the West to the death. If Xi and Wang are beheaded, the CCP will release all their nuclear weapons to attack the US, or even blow themselves up and destroy the earth.
 
-54:15 在这个伟大的历史时刻来临时，一个是做鸵鸟，另外一个是改变自己，拯救别人。新中国联邦人选择一定干掉共产党。强大整个G系列，然后才有能力、决心去救同胞，
+这种情况下，只有启动星球大战计划，才能快速摧毁中共的核武器发射点，挽救地球。
 
-55:20 无论是大选还是网络经济，只有爆料革命百分之百赢，百分之百正确。G系列的发展是受到上天庇佑的。祈福。 57:00 兄弟姐妹们，当我们面临人类前所未有的挑战时，我们要觉得这是前所未有的荣幸，最可怕的就是恐惧和消极，不要放弃。我们是有上天使命的，不可思议，都有神的安排。我们无限地传播真相对西方影响很大。李毅的言行就等于宣战了。郭先生回看昨天的直播感觉都不是自己，那种感觉就是一股力量，每句话、每个字必须直播，郭先生觉得自己有这个使命，感受到一种和国内战友之间情报沟通的力量。强调唯真不破。郭先生尽管只睡了几个小时，但是十分兴奋，因为中共已经进入死亡的最后一道大门，唯一担心的是国内的同胞。
+In this case, only the Star Wars program is launched can it rapidly destroy the launch sites of CCP’s nuclear weapons and save the earth.
 
-更多详情请点击：[https://gtv.org/video/id=5fca51c9ee9d341c2b455299](https://gtv.org/video/id=5fca51c9ee9d341c2b455299)
+**西方消灭中共的预定步骤**
+
+Predetermined steps by the West to take down the CCP
+
+外交手段用尽，削弱CCP至最弱，定点斩首和铲除军事设施，联军进入中国。同时所有的国家都会共同行动无差别没收所有华人的财产。
+
+Exhausting all diplomatic methods, weakening the CCP to its least, targeted beheading, destroying the military installations and the allied forces entering China. At the same time, all countries will act together to confiscate the property of all Chinese people without discrimination.
+
+**为什么说中国人的灾难即将开始**
+
+**Why  do we say the real disaster of the Chinese people is coming?**
+
+CCP的军民融合政策将国内的军民设施完全融合在一起，打击军事设施必伤己平民；同时海外蓝金黄尤其是基因地图计划经过几十年的渗透，已将特务间谍势力与海外普通华人深度捆绑，完全攻陷了西方世界，西方人根本无法区分是间谍还是普通华人。
+
+The “fusion of military and civilian” policy of the CCP have fully mixed facilities for military and civilian.  The striking on the military facilities is hard to avoid harming civilians. Furthermore, after decades of infiltration, the overseas BGY Project, especially the gene map project, have bound the spy forces with the ordinary overseas Chinese profoundly. The CCP have completely invaded the Western world, and westerners are not able to distinguish between spies and ordinary Chinese at all.
+
+中共能够肆意横行中国七十年，每一个中国人都难辞其咎；对习近平上台后推行的极端反人类政策，国内民众也没有进行过真正有效的反抗；海外被中共大外宣洗脑的八千万华人中的大多数也在有意无意为独裁唱赞歌。
+
+Every Chinese shall be blamed for CCP’s been able to rule China for 70 years. There has been no real effective resistance to the extreme anti-human policies pursued by Xi Jinping since he took office. Most of the 80m of overseas Chinese brainwashed by the CCP’s propaganda are also singing praises of the dictatorship, whether consciously or not.
+
+基于以上两方面原因，国内外华人无差别受害已经不可避免，孽障终究是要还的。
+
+Based on the above two reasons, it is inevitable that the domestic and overseas Chinese will suffer indiscriminately, and the evilness caused here will eventually be repaid.
+
+**新中国联邦将保护战友**
+
+**The New Federal State of China always protects our fellow fighters**
+
+美国和西方在冻结所有海外华人财产的同时，新中国联邦会在美加英等国建立保护区，一个一个去解救战友。但战友之外的大多数华人，将不可避免地受难，这是郭先生也无可奈何的事情。墙内的战友，要远离所有中共军事设施、军事基地。
+
+When the US and the West are going to freeze all the property of overseas Chinese, the NFSC will establish protected areas in the US, Canada, UK and other countries to rescue our fellow men one by one. But the majority of the overseas Chinese outside fighters will inevitably be subjected to affection, this is the unavoidable situation that even Mr. Guo can help. Our fellow fighters within China shall stay far away from all military installations and bases of the CCP.
+
+**美军承认中共反舰导弹击中了移动目标意味着什么****？**
+
+**What does it mean for the US military to admit that a CCP’s anti-ship missile hit a moving target?**
+
+一旦承认中共反舰导弹有攻击航母的能力，美军就会升级应对措施。在侦测到中共有发射导弹迹象时，一定会先发制人，主动攻击反舰导弹基地。
+
+Once the CCP’s anti-ship missile is recognized as capable of attacking aircraft carriers, the US military will upgrade its response. When a CCP’s missile launch is detected, their missile base must be pre-emptively attacked.
+
+由于中共导弹基地密布于居民区，美军主动攻击势必造成平民的伤亡，但这一切都是中共造的孽。
+
+Since the CCP’s missile bases are densely populated, the active attack of the US military certainly will cause civilian casualties, which, sadly, is all the fault of the CCP
+
+路德金句
+
+The thought-provoking quote of Lude.
+
+文贵先生今天直播说的不仅仅是靠谱，而是100%的情报，他提前告诉大家。更重要的事，中共很多高官包括习的家人都已经意识到了，都准备转移各种财产，都准备逃命。还有中共军方，政法委的人都在秘密行动。
+
+During the broadcast of Mr. Guo today, what he disclosed in advance is not just about incredibility, it’s 100% intelligence. More important, many of the CCP’s top officials, including the family of Xi, have realised and been ready to move their assets and run for their lives. Besides, the officials of the military and the politics and law committee are all under operation secretly.
+
+#CCP\_is\_terrorist   #TakeDownTheCCP
+
+文案：《路德社》文编组
+翻译：《路德社》翻译组
+审核校对：玫瑰天空
+上传排版：青葫芦娃&玫瑰天空
 
 0
