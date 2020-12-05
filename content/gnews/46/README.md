@@ -1,16 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 你为何喜欢美国？
-` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/619074/)
+## 澳大利亚新电子监控法是另一个与中共集权抗争的行动
+` [email&#160;protected]` [轉載自GNews](https://gnews.org/zh-hans/619190/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05065810/%E4%BD%A0%E4%B8%BA%E4%BD%95%E5%96%9C%E6%AC%A2%E7%BE%8E%E5%9B%BD%EF%BC%9F.png)
-作者：京都富士会 ThreeColors
+新闻摘录和点评：喜马拉雅的文雅
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05072959/surveillance-cameras-removebg-preview-1.jpg)
+澳大利亚电子监控系统长期和中共国有着千丝万缕的联系，除了在监控设备供应链，监控取得的数据处理等存在很多安全隐患。近日澳洲前情报局长丹尼斯·理查森（Dennis Richardson）在一份1300页的报告中提出190条细则，建议实施新电子监控法，其中186条被莫里森总理采纳。现行1000多页的电子监控法条将被修改和审议，是澳洲史上最大规模的国家安全立法项目之一，具有里程碑意义。新的电子监视法将取代现行电信、设备监视和ASIO(国家安全情报机构)权力的法案。
 
-有一次，我跟我的一位日本朋友出去喝下午茶，她聊起比起美国她更喜欢去欧洲旅行。她老公是某大学的物理学副教授，看得出来，跟日本大多数的家庭主妇一样 她也喜欢到国内外去旅行。
+澳洲内政部长彼得·达顿（Peter Dutton）表示，“暴力极端主义分子的威胁仍在我们身边。这些人仍在密谋杀害澳大利亚人…. 我们需要确保立法赶得上新技术并且能够应对这些问题。”
 
-结账的时候，她边取出钱包边嘀咕说：“哎呀，忘了把美元放起来了！上次从夏威夷回来就一直在我钱包里。” 我边付我的那份边听她说着。出咖啡店的时候，我问她何时去的美国？她说：“九年前。”
+澳洲在网络安全被中共骇客严重威胁的情况下，电子监控系统的滥用和对隐私的侵犯是另一个岌岌可危的问题。可喜的是澳洲政府已经意识到这一问题的严重性，并且正在紧锣密鼓地进行规范化建设、以及积极反抗来自恐怖主义中共集权的威胁。
 
-你喜欢美国吗？为什么？
+新闻来源
 
-1+
+[https://www.skynews.com.au/details/\_6214338248001](https://www.skynews.com.au/details/_6214338248001)
+
+[https://www.aph.gov.au/Parliamentary\_Business/Bills\_Legislation/bd/bd2021a/21bd009](https://www.aph.gov.au/Parliamentary_Business/Bills_Legislation/bd/bd2021a/21bd009)
+
+0
