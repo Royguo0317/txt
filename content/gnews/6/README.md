@@ -1,38 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 首款音雄G|Fashion潮帽花落谁手？
-` [email&#160;protected]` [轉載自GNews](https://gnews.org/zh-hans/619576/)
+## 文贵说｜系列图片连载（六十六）
+` GM98` [轉載自GNews](https://gnews.org/zh-hans/619916/)
 
-作者：喜马拉雅的文雅
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05093246/WhatsApp-Image-2020-12-05-at-9.31.27-AM.jpeg)
+## 456.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05101319/18.png)
+日本女人的忠诚是影响日本男人忠诚、讲义气的根本开始。
 
+——郭文贵先生2020年8月8日
 
-我是音雄，巅峰首战；
+## 457.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05101217/17-1.png)
+这个世界有两样东西是不可以碰的，一个人都是有隐私的，每个人都有隐私。你不可以用一个你所谓的你认为的标准来评判别人的隐私，这是胡扯的事。第二个，你批评别人之前你做到了没有，这是不可以碰的，你有没有资格评判。
 
-十五进五，群雄对决；
+——郭文贵先生2020年8月8日
 
-通宵彩排，热情饱满；
+## 458.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05101236/19.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05101243/s6.jpg)
+这个世界上有实力你才有话语权。
 
-G-Fashion潮起，争夺战帽；
+——郭文贵先生2020年8月8日
 
-音雄辈出，唱灭中共！
+## 459.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05101312/20.jpg)
+日本是共产党一定要控制的，咱走着看，如果在一两年不灭掉共产党，两个国家的华人是最倒霉的，第1个是日本，第2个是美国。
 
-就在今日，不见不散！
+——郭文贵先生2020年8月8日
 
-G|TV “我是音雄”，火速订阅观战。
+## 460.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05101419/21.jpg)
+钱是征服西方唯一最好的工具，它叫资本主义。社会主义就是谁有权力谁有主义，谁有关系谁有主义。
 
+——郭文贵先生2020年8月8日
 
+## 461.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05101732/22-2.jpg)
+共产党从没让一个中国人在海外有安全存钱的地方。
 
-> 我是音雄，巅峰首战，15进5，高手对决！
-> 
-> 5位顶尖唱将，谁率先上榜2020年度十大音雄，谁将斩获Gfashion荣誉定制音雄战装？我们拭目以待！
-> 
-> 幸运观众有机会获得G Fashion战帽哦！
-> 
-> 节目时间：美东时间12月5日19:00/ 北京时间12月6日8:00。我们不见不散！ [pic.twitter.com/SZNOzV8SHs](https://t.co/SZNOzV8SHs)
-> — Reve唐平 (@RT2064) [December 5, 2020](https://twitter.com/RT2064/status/1335037029026041859?ref_src=twsrc%5Etfw)
+——郭文贵先生2020年8月8日
 
+## 462.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05101744/101.jpg)
+我绝不能让家人、同事、情来绑架我，为什么？我有个大的一个任务要完成——灭共！
 
+——郭文贵先生2020年8月9日
 
 0

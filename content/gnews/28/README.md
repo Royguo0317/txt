@@ -1,17 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/11/23-24 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/619240/)
+## 307-308疫情直播-短视频
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/619407/)
 
-战友之家图文摘要及多语组
+11月26日，圆通快递被爆出其内部员工以每条0.3到1元不等的价格，售卖了40万用户个人信息。 有媒体报道，网上存在贩卖快递用户信息利益链，申通、德邦、韵达等多家大型快递公司均在其中。
 
-[303-304\_English\_1123-1124\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080534/303-304_English_1123-1124_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080534/303-304_English_1123-1124_CCP_Virus_Updates.pdf)
+中共利用蓝金黄手段收买贿赂世卫组织，后者与中共在媒体宣传上互相配合，掩盖病毒来自中共实验室的真相。 （注：蓝金黄代表蓝色、金色和黄色。 蓝，指网络监视和攻击以及信息控制;金，指金钱利益贿赂手段;黄，指利用性的陷阱和控制手段。 )
 
-[303-304\_French\_1123-1124\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080615/303-304_French_1123-1124_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080615/303-304_French_1123-1124_CCP_Virus_Updates.pdf)
+中共通过蓝金黄的手段，对美国实施3F计划：搞乱美国，搞弱美国，搞死美国。 拜登是中共控制美国的一颗棋子。
 
-[303-304\_German\_1123-1124\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080546/303-304_German_1123-1124_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080546/303-304_German_1123-1124_CCP_Virus_Updates.pdf)
+重庆政府开始分批次逐步征收房产税，进一步把手伸向老百姓的钱袋子。 评：在中共国买房简直是一个笑话：第一，房价高; 第二，土地所有权不是私有，属于国家;第三，房主对房子只有70年的所有权。 相当于花了买房的钱租房住。
 
-[303-304\_Spanish\_1123-1124\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080627/303-304_Spanish_1123-1124_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080627/303-304_Spanish_1123-1124_CCP_Virus_Updates.pdf)
+（11/23 丽兹・约尔：教皇方济各会见NBA球员） 推特用户称， 这是NBA和梵蒂冈教皇勾结把自己出卖给中国的会议。 他们称这是在梵蒂冈的中共之友会议。 当中国信徒最重要的发言人陈日君与方济各五分钟的会面机会都没有，真是对受迫害的中国人实实在在的侮辱。 休斯敦火箭队的总经理达里尔·莫雷，他放胆批评中共在香港的所做所为之后，我们知道在他身上发生了什么事。 因此，这将教皇与中共的联盟关系摆在了醒目的位置… 所以人们要关注方济各是怎么运作的。
 
 0
