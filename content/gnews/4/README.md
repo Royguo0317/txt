@@ -1,26 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 被称作战友那一霎那，感慨万千！
-` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/619295/)
+## 【世界多语言图文】2020/11/23-24 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/619240/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05075308/%E8%A2%AB%E7%A7%B0%E4%BD%9C%E6%88%98%E5%8F%8B%E9%82%A3%E4%B8%80%E9%9C%8E%E9%82%A3%EF%BC%8C%E6%84%9F%E6%85%A8%E4%B8%87%E5%8D%83%EF%BC%81.png)
-作者：京都富士会 待命（文晓）
+战友之家图文摘要及多语组
 
-小时候，非常喜欢看电影。因为那时的电影特别少，一部电影反复看几遍的事儿常有。能坐在电影院里，那叫一个享受啊！
+[303-304\_English\_1123-1124\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080534/303-304_English_1123-1124_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080534/303-304_English_1123-1124_CCP_Virus_Updates.pdf)
 
-那时的电影有个特点，英雄人物基本上都是以光棍儿单身、凛然正气一身的人物形象出现。所以，在儿时幼小的心灵里，英雄，是那么的光彩照人；英雄，是那么的完美；英雄，是那么的无懈可击。为此，曾在看完电影后的课堂上走神儿的思考过，那些英雄们会恋爱吗？会结婚吗？他（她）们也跟我们常人一样吃喝拉撒吗？当然，没人会回答我这样的问题。不，请允许我把这句订正一下，没人敢回答我这样的问题･･････
+[303-304\_French\_1123-1124\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080615/303-304_French_1123-1124_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080615/303-304_French_1123-1124_CCP_Virus_Updates.pdf)
 
-最精彩的电影，莫过于英雄打入敌后、深入虎穴、冒死设法给自己的队伍送情报。著名影星、那个时代绝对的偶像派演员，孙道临先生主演的【永不消逝的电波】，那白色恐怖中滴滴答答的发报声，至今萦绕耳际。他跟组织上的人联系时，就非常深情地互称“战友”。于是，幼小的我啊，看完那部电影后，真的是日盼夜想的希望能成为电影里的“战友”。甚至幻想过，自己如果是电影中的那位战友，一定也会像电影中的“战友”一样，勇敢的去舍命保护其他战友；也曾幻想过，自己被敌人抓到，吞下情报自杀以报国；还曾幻想过，好美的自己无惧酷刑笑面匪众･･････ 对电影里的“战友”们羡慕极了、崇敬无限･･････
+[303-304\_German\_1123-1124\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080546/303-304_German_1123-1124_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080546/303-304_German_1123-1124_CCP_Virus_Updates.pdf)
 
-但是，向往归向往，自己也冷静的告诉过自己，上课不可以走神儿，在中国共产党的领导下，已经不再可能有战争。此想法源自“伟大、光荣、正确的党”之教育。但可悲的是，那时的我，乃至全中国的孩子，并不知道那是CCP刻意的“教育”，也就是我们现在说的“洗脑”。
-
-党教育我们“没有共产党就没有新中国”，言外之意，只要有了共产党，就不用再担心什么了。
-
-党教育我们“中国永远不称霸一贯追求世界和平”，言外之意，中国绝不可能发动战争。
-
-可现在活生生的事实摆在我们面前，这个党在执政，国民已看不起病。这个党唱赞歌，孩子们把毒奶粉喝。这个党常微笑，好多记者消失了。这个党管外交，新冠武器配口罩･･････
-
-硝烟弥漫的战争的确没来，可很多中国人至今仍不知其名的“超限战”早就开始了。这场战争，催生了爆料革命；这场战争，让先知先觉者们幡然猛醒；这场战争，使我措手不及的成了梦幻中的“战友”。那一刻，感慨万千！成为真正的战友，那是我儿时的梦啊！可是，本该高兴却难以高兴，因为我已不再是孩童，我痛恨战争，我爱好和平。我和广大战友们一样，被文贵先生唤醒，才真切地体会到自古时代造英雄，战友之缘天注定。既然战争来了，既然历史赋予我这个梦寐以求的称呼，我就要珍惜战友、保护战友、为了和平，朝着文贵先生指引的喜马拉雅，无怨无悔，无畏前行。
+[303-304\_Spanish\_1123-1124\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080627/303-304_Spanish_1123-1124_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080627/303-304_Spanish_1123-1124_CCP_Virus_Updates.pdf)
 
 0
