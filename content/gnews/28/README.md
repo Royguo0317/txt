@@ -1,43 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【突发】林伍德:中共病毒是针对美国投放的生物武器
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/620389/)
+## GTV大型音乐活动《我是音雄》第一季第十四期 （暨第一季 ”群雄会” 第二场） &#8211; 精彩回顾
+` GMusic` [轉載自GNews](https://gnews.org/zh-hans/620398/)
 
-- 编辑：Victor Torres
+*我是音雄文字组 作者：Christina000，  编辑：山上的城， 审稿：荒漠甘泉*
 
-
-林伍德：“中共病毒是推销缺席投票和提早投票的借口。有了6英尺的距离要求，嘿伙计，通过邮寄投票是不是让事情变得更容易了！
-欺诈被编程进入投票机软件，并因邮寄缺席选票而加剧。”
+《我是音雄》由GTV空中唱响团队和纽约香草山农场联合制作播出。本期的主题农场是：喜马拉雅秘密翻译组。
 
 
 
-> Covid-19 was excuse to push for mail absentee ballots & early voting. With the 6 feet distance requirement, man oh man, was it ever easier just to vote by mail!
-> 
-> The fraud was programmed into the voting machine software & boosted by the steroids of mail absentee ballots. [pic.twitter.com/mdyDkN7cgy](https://t.co/mdyDkN7cgy)
-> — Lin Wood (@LLinWood) [December 5, 2020](https://twitter.com/LLinWood/status/1335253511232163842?ref_src=twsrc%5Etfw)
+本期比赛的评委有五位，他们是专业评委：唐平、Q.MAY、Tex；主持人评委：威廉王；农场嘉宾评委：木兰传奇。
 
+参加本期比赛的十二位选手分别是：小娜姐小格弟（纽约香草山农场）、文昌鱼（加拿大农场）、合掌僧 （英国喜庄园）、Eric （秘密翻译组）、Q大哥（纽约香草山农场）、喜山必胜（纽约香草山农场）、贵的George（凤凰农场）、七白石（西班牙农场）、冠军的后妈（凤凰农场）、台湾大马（台湾农场）、Mindy（纽约香草山农场）、文空 （新西兰农场）。
 
+音雄们分别演唱了：《CCP Lied People Died》、《狮子山下》、《花田错》、《玉米地》、《重归苏莲托》、《管他什么音乐》、《 Where Freestyle》、《侠客行》、《白等拜登》、“我是音雄版”《你是我的眼》、《 I Will Go to You Like the First Snow》、《归来》。
 
-林伍德：“中共病毒是中共针对美国投放的旨在窃取我们自由的生物战略武器。 然后，中国共产党以欺诈手段袭击了我们的大选，为乔和卡巴拉同志偷走他。
-中共多年来公开宣布了接管我国的计划。
-别想在我们的眼皮底下。”
+本期的无名英雄是： 95后女孩 – 月球小飞象。 接触爆料革命后，她受到启迪，迅速觉醒。因为擅长法语和英语，加入了翻译义工行列。她把文贵先生直播内容做成文字信息，提供给国内外不方便看直播的人。经过她的不懈努力，她的盖特如今已经和文贵先生的爆料挂钩。通过她默默耕耘的身影，让我们看到了新中国联邦以及华人的未来与希望。
 
+本期比赛获得晋级下一轮 “自由之巅” 环节的八位选手是： 合掌僧 （英国喜庄园）、Eric （秘密翻译组）、Q大哥（纽约香草山农场）、喜山必胜（纽约香草山农场）、七白石（西班牙农场）、冠军的后妈（凤凰农场）、Mindy（纽约香草山农场）、文空 （新西兰农场）。
 
+节目在精彩比赛的同时还向大家介绍了本期的主题农场 – 喜马拉雅秘密翻译组。木兰传奇首次在爆料革命的舞台献上清澈动听的天籁歌声。这是由木兰传奇作词，铁蛋儿作曲，木兰传奇和铁蛋儿共同演唱的秘密翻译组主题歌《喜马拉雅之恋》。秘密翻译组的工作包括：文贵直播内容，全球直播活动，同声传译，英文媒体摘要，多语种字幕，笔译解析，连线采访，传播爆料等等，欢迎有能力的战友们加入！
 
-> Covid-19 was biological strategic weapon launched by Communist China against U.S. to steal our freedom. Then CCP attacked our national election with fraud to steal it for Comrades Joe & Cabala.
-> 
-> CCP has openly stated for years its plan to take over our country.
-> 
-> NOT ON OUR WATCH. [pic.twitter.com/V4ZxQXgJx7](https://t.co/V4ZxQXgJx7)
-> — Lin Wood (@LLinWood) [December 5, 2020](https://twitter.com/LLinWood/status/1335257718358241283?ref_src=twsrc%5Etfw)
+所有《我是音雄》的人物专访都会发布在Gnews上，请战友们下载Gnews App，并搜索《我是音雄》便可找到每期节目所有选手的精彩故事。
 
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14162240/image0-2-6.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+《我是音雄》第一季 “群雄会” 第二场圆满成功。“自由之颠” 的第一场晋级赛将于美东时间周六12月5日晚7点，暨北京时间周日12月6日早8点隆重推出， 敬请期待！ 欢迎更多战友积极报名参加《我是音雄》大型灭共栏目的第二季，讲出你们的灭共故事，唱出你们的灭共心声！
 
 0
