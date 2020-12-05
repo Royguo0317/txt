@@ -1,27 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德国科学家接受福克斯采访表示福奇所谓的群体免疫论是胡说八道，并警告不要接种新冠疫苗
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/619399/)
+## 大数据分析，结果振奋人心
+` [email&#160;protected]` [轉載自GNews](https://gnews.org/zh-hans/619494/)
 
-翻译：康州盘古农场-一花一世界
+喜马拉雅的文雅
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05084349/image01.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05084339/image0-3.png)
+近日爆料革命大数据作战室对12月4日郭先生的直播和谷歌搜索数据做出趋势分析图，显示了美国各地搜索郭文贵先生名字的值非常高，佐证了郭先生的名字正在趋于家喻户晓，民意在追寻真相，爆料革命正在被美国民众所关注。此外，分析图显示郭先生的直播峰值已达最大峰值，郭先生已成美国公众关注的焦点人物，爆料革命正在以前所未有的速度传递真相并且发挥着对灭共摧枯拉朽的作用，G|TV在中共血雨腥风中飘摇成长，也搭上了成功路上的顺风车，火了！
 
-校对：康州盘古农场- DIDI
+新闻来源：G-Talent 天使
 
-字幕+视频制作：康州盘古农场-武汉生化病毒
-
-审核：康州盘古农场-Truemanman
-
-畅销书《对冠状病毒的错误警报》作者、微生物学家Sucharit Bhakdi博士接受福克斯采访表示：福奇所说的群体免疫是胡说八道，对于福西博士这样地位的人来说，说出这样的话简直不可思议，疫苗很危险，不要接种。
-
-视频详情：
-
-
-[https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05082137/KE018%E6%88%90%E5%93%8122.mp4](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05082137/KE018%E6%88%90%E5%93%8122.mp4)
-
-
-
-
-原视频链接：[https://youtu.be/RZDr3CsfolA](https://youtu.be/RZDr3CsfolA)
-
-0
+1+
