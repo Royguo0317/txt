@@ -1,68 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 让美国这个“在上帝庇护下的国家获得自由的新生”：林肯总统葛底斯堡演讲
-` GM80` [轉載自GNews](https://gnews.org/zh-hans/620508/)
+## 【世事解评】从中国文化本质看爆料革命
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/620560/)
 
-引言：美国宪法以 “ We the people (我们人民）”开篇，1896年11月19日林肯总统在葛底斯堡国家烈士公墓落成典礼上的发表演讲，宣称美国人民拥有一个 “民有、民治、民享” 的政府, 一定让这个 “在上帝庇护下的国家获得自由的新生”！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05131650/Gettysburg-Lincoln.png)图片来源：https://www.history.com/topics/american-civil-war/gettysburg-address
-全文翻译：
+作者：香草山写作组  澈澈澈 编辑：三票先生
 
-**Address at the Dedication of the Gettysburg National Cemetery**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02223933/image5-2.jpg)
 
-在葛底斯堡国家烈士公墓落成典礼上的演讲
-
-(Nov.19, 1863)
-
-(1863年11月19日）
-
-Abraham Lincoln
-
-亚伯拉罕 · 林肯
-
-Fourscore and seven years ago our fathers brought forth on this continent a new nation, conceived in liberty and dedicated to the proposition that all men are created equal.
-
-八十七年前，我们的先辈在这块大陆上创立了一个未曾有过的崭新国度：它以崇尚自由为基石和以信奉上帝造人赐人以平等这一信念为基础建立起来的。
-
-Now we are engaged in a great civil war, testing whether that nation or any nation so conceived and so dedicated can long endure.
-
-目前我们卷入了一场浩大的内战，这也正考验着这个国家，或任何一个如此这般坚定的主张自由和致力于人人平等而创建起来的国度，能否永续长存。
-
-We are met on a great battlefield of that war. We have come to dedicate a portion of that field as a final resting-place for those who here gave their lives that that nation might live. It is altogether fitting and proper that we should do this.
-
-我们在此集会的场所是那场战争中的一个非常重大的战场。我们划分出此战场的一个区域来奉献给那些为着这个新国家的生存而奉献了自己生命的烈士们，以此作为他们最后的安息之地，这真是再合适不过的事情了，我们理应如此去做。
-
-But, in a larger sense, we cannot dedicate, we cannot consecrate, we cannot hallow this ground.
-
-但是，其实从更实际的意义上来说，这并不是我们的功劳，我们没能力挑选，也不能使这块土地变成圣地。
-
-The brave men, living and dead who struggled here have consecrated it far above our poor power to add or detract.
-
-而是这些勇士们，这些活着的或已逝去的、曾经在这里浴血奋战过的英雄们，是他们赋予了这块土地以神圣之名，这根本不是以我们的微博之力所能左右的。
-
-The world will little note nor long remember what we say here, but it can never forget what they did here.
-
-世人或许不会去记载或记得今天我们在这里所说的话，但永远不会忘记英雄们曾经在这里为维护自由而浴血奋战过。
-
-It is for us the living rather to be dedicated here to the unfinished work which they who fought here have thus far so nobly advanced.
-
-对我们这些活着的人来说，对英雄们最好的祭奠，不是来此为这圣地命名的典礼，而是投入到他们为之奋斗而尚未完成的崇高的维护自由的事业中去。
-
-It is rather for us to be here dedicated to the great task remaining before us—that from these honored dead we take increased devotion to that cause for which they gave the last full measure of devotion—that we here highly resolve that these dead shall not have died in vain, that this nation under God shall have a new birth of freedom, and that government of the people, by the people, for the people shall not perish from the earth.
-
-但愿我们这里所有的人，都能投身于摆在我们眼前这未尽的崇高事业中去 – 这事业让这些光荣的先烈们付出了生命的最后一丝代价，也鼓舞着我们要加倍奉献于此 – 我们在此下定决心，一定不会让这些烈士的生命白白逝去，一定让这个国度，这个在上帝庇护下的国家获得自由的新生，让这个民有、民治、民享的政府，因上帝子民的永存而永世长存。
-
-参考文献：
-
-- https://historyengine.richmond.edu/episodes/view/6662
-- Civil War Trust, “Gettysburg Address”, Civil War Trust, http://www.civilwar.org/education/history/primarysources/gettysburg-address.html  (accessed Feb. 19 2017)
-- New World Encyclopedia, “Gettysburg Address”, New World Encyclopedia, http://www.newworldencyclopedia.org/entry/Gettysburg\_Address (accessed Feb. 19 2017)
-- http://han-jialiang.hxwk.org/2016/10/16/%E7%BE%8E%E5%9B%BD%E7%8B%AC%E7%AB%8B%E5%AE%A3%E8%A8%80%E7%9A%84%E7%BF%BB%E8%AF%91%E9%97%AE%E9%A2%98/ 美国独立宣言的翻译问题
-- http://www.flrchina.com/le/learning/001/063.htm 如此乱译美国《独立宣言》是为什么？
-- http://hx.cnd.org/2016/10/14/%e5%bb%96%e5%ba%b7%ef%bc%9a%e4%ba%ba%e7%94%9f%e8%80%8c%e5%b9%b3%e7%ad%89%e8%bf%98%e6%98%af%e8%a2%ab%e9%80%a0%e5%b9%b3%e7%ad%89%ef%bc%9f/ 廖康：人“生而平等”还是“被造平等”？
-- https://www.civiced.org/9-11-and-the-constitution-terms-to-know
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
 
 
-*翻译：【doujia】 编辑：【GM80】*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22151659/RG-01.png)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05135530/2-9.jpg)
+文化就是一个群体的价值系统和生活方式，而中国人的价值系统和生活方式的本质可以总结为4点。
+
+1. 挥之不去的实用主义、功利主义。中国人是一个被实用主义和功利主义牢牢捆绑的群体。“民以食为天”，有食物就能混过一天天日子；“有奶便是娘”，人没有原则，相互背叛；“好死不如赖活着”，活着就是为了活着，与野兽无异。中国人很少思考人的问题：人死是否如灯灭？我从哪里来？也不追求自由民主，只要有吃的，能活着就满足了。
+
+2. 真理上的相对主义。实用主义、功利主义必然带来相对主义。既然没有绝对的标准，何为民主、自由、道德、律法？在无神论与进化论的荼毒下，没有准则必然导致社会变成丛林。既无准则，拳头便是准则。于是强者说是民主就是民主，说是自由就是自由，说是正义就是正义……，整个中国社会，四字蔽之——弱肉强食，人为了“变强”可以不择手段。
+
+3. 文化上的表演性。古代皇帝逃跑到四川，称为幸蜀，这就是所谓的避讳文化，本质就是粉饰和表演。文化粉饰和表演本质就是自负、自卑。CCP可谓是把文化表演发扬光大：红军逃生，叫战略大转移；国共内战，叫解放全中国，官员叫人民的公仆，官员以“为人民服务”为宗旨。篡政至今无不是政治表演、文化表演，官媒充满好面子、粉饰、掩盖、谎言、欺骗！中共从来不在乎自己有没有罪，而是在乎自己的罪有没有被发现。中国人本质就不恨罪恶，而是恨自己的罪被发现，只要罪没有被发现，就认为自己是成功人士，这就是表演。
+
+4. 血缘上的排他性。中国人把血缘当神，拜祖先，把孩子当成来世盼望，每个家庭都在崇拜所谓的成功学、成绩、名校、名企……。中国人自古就对血缘有着深深的崇拜，中国几千年的政治、生活都是围绕着血缘展开的——政治上的宗法制、九品中正制、嫡长子继承、兄终弟及……；世俗上的五服“斩齐衰、大小功、至缌麻、五服终”，刑罚上的“诛九族”……，随处可见以血缘为纽带的展开。血缘在空间上的反映就是地缘，血缘上的排他性间接体现在了地缘的排他性上。中国人把故乡当成盼望，不只是光宗耀祖，还有安土重迁。血缘以“我”为中心辐射，地缘也是如此；血缘的排他性体现，可以在地理上找到对应——地理上的五服“甸、侯、绥、要、荒”，形成以帝都为中心的辐射，从地理到外交，再到朝贡体系——这就带来“中国中心，天朝上国”的自傲。这就表明了中国的排外在文化上具有天然性，中国人为什么反资本主义？反外来文化？反保守主义？反民主、自由的思潮？因为我们认为这是外来的。“万物皆备于我，不假外求”这就是中国人无知的自傲。中国人的政治也是通过血缘扩展开来的——封建的核心是以血缘为纽带的宗法制；郡县制则是一种拟血缘关系。除了血缘关系和拟血缘关系，中国人没办法集合其他人，中国人的信任超不过家庭。目前的政治就是一种拟血缘关系——中共组织体系中入党需要介绍人，要进行发誓……。这样的政治、社会体系根本没办法建立契约，人的信用一文不值，社会成本极高。
+
+再来看ccp，从“生殖器治国”“双修”，到“建筑艺术项目”，再到“基因-财富帝国”，不正是依靠血缘、拟血缘在治国吗？从勾兑，到“蓝金黄”，再到各个“白手套”，不正是功利主义、相对主义、丛林法则在作祟吗？而中国人又是在这样的文化塑造之下，无视ccp的恶行、谎言长达70年。过去的文革、六四，今天的香港，中国人对真相视而不见。如果没有爆料革命，没有唯真不破，我们将继续在这样的文化捆绑之下，被ccp裹挟堕入深渊。这就是爆料革命必须存在的理由。如果没有爆料革命，中国人将永绝真相，没法看清楚ccp的真面目，也不可能凝聚如此多战友的力量共同灭共。这就是爆料革命如此重要的原因。
+
+今天的爆料革命是传播真相、全力灭共的主力军之一；“天亮”后，爆料革命又将带着真相破入墙内世界，唤醒那些被谎言蒙骗的人；在新中国联邦的建设中，爆料革命凝聚的战友将成为主力部队；新体制建成后，爆料革命将成为不可或缺的第三方权力监督机构。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05135231/1-21.jpg)
+从中国文化本质看，爆料革命就是拯救中国的不二法门，而唯真不破就是消灭中共的重要准则。
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
 0
