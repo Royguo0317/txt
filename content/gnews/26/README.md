@@ -1,68 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 让美国这个“在上帝庇护下的国家获得自由的新生”：林肯总统葛底斯堡演讲
-` GM80` [轉載自GNews](https://gnews.org/zh-hans/620508/)
+## 众议院通过法案，中共国公司面临审计或退市
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/620526/)
 
-引言：美国宪法以 “ We the people (我们人民）”开篇，1896年11月19日林肯总统在葛底斯堡国家烈士公墓落成典礼上的发表演讲，宣称美国人民拥有一个 “民有、民治、民享” 的政府, 一定让这个 “在上帝庇护下的国家获得自由的新生”！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05131650/Gettysburg-Lincoln.png)图片来源：https://www.history.com/topics/american-civil-war/gettysburg-address
-全文翻译：
+*新闻来源：Zerohedge《零对冲》；作者：泰勒·德登（Tyler Durden）；发布时间：December 2 , 2020 /2020年12月2日*
 
-**Address at the Dedication of the Gettysburg National Cemetery**
+*翻译/简评：Dreamer文童；校对：X-Wing飞得更高；审核：万人往；Page：拱卒*
 
-在葛底斯堡国家烈士公墓落成典礼上的演讲
+**简评：**
 
-(Nov.19, 1863)
+本周三美国众议院通过一项要求在美上市的中共国公司接受美国会计准则的法案，该法案于今年5月份在参议院获得通过，下一步将是川普总统签署，成为正式法律。根据该法案规定，在美上市的中共国公司必须接受美国上市公司会计监督委员会（PCAOB）的审计，否则只能退市。
 
-(1863年11月19日）
+中共国公司往往通过数据造假的审计报告获得在美上市的机会，套取美国人民的财富。因为根据中共国的所谓法律规定，公司审计底稿只能存放于境内，不得以任何形式或手段传送给境外机构或个人，理由是涉及国家机密。由于美国华尔街等黑暗势力与中共勾兑，美国接受了中共国的法律，使得中共国公司在不提供审计底稿的情况下就可以在美上市。这种做法严重损害了美国人民的利益。尤其是近期瑞幸咖啡被爆出财务造假之后，美国已经彻底认识到未经审计而在美上市的中共国公司对美国人民的利益存在严重危害。从另一个方面来看，该法案也是美国对中共国“经济脱钩”的一部分，切断中共赖以续命的经济来源。
 
-Abraham Lincoln
+**原文翻译：**
 
-亚伯拉罕 · 林肯
+# 众议院通过法案迫使中共国公司接受审计监督或从美国退市
 
-Fourscore and seven years ago our fathers brought forth on this continent a new nation, conceived in liberty and dedicated to the proposition that all men are created equal.
+[!\[\]()!\[\](https://spark.adobe.com/page/haFw9AOmimTAb/images/994a23a1-3ea8-4619-8ee5-6a8a64b06978.jpg?asset_id=5f9131d1-b52b-4f87-9b64-43080e7b4b5e&amp;img_etag=%22ab7d231f1d50b3ddf2963bc01c8a37a6%22&amp;size=1024)](https://spark.adobe.com/page/haFw9AOmimTAb/images/994a23a1-3ea8-4619-8ee5-6a8a64b06978.jpg?asset_id=5f9131d1-b52b-4f87-9b64-43080e7b4b5e&amp;img_etag=%22ab7d231f1d50b3ddf2963bc01c8a37a6%22&amp;size=1024)
 
-八十七年前，我们的先辈在这块大陆上创立了一个未曾有过的崭新国度：它以崇尚自由为基石和以信奉上帝造人赐人以平等这一信念为基础建立起来的。
+在一名美国高级情报官员揭露中共国情报操作的存在后不久，众议院通过一项法案，如果该法案成为法律，将迫使在美国上市的中共国公司要么遵守严格的美国会计准则，要么退市去其它地方。
 
-Now we are engaged in a great civil war, testing whether that nation or any nation so conceived and so dedicated can long endure.
+我们已经多次报道推动通过该法案的情况。今年秋季，随着选举日临近，川普将该问题列为高度优先事项。该法案针对一个漏洞，即允许中共国公司在审计方面基本上自己制定规则，这种情况导致几十家公司欺诈，使美国和国际投资者损失数十亿美元。
 
-目前我们卷入了一场浩大的内战，这也正考验着这个国家，或任何一个如此这般坚定的主张自由和致力于人人平等而创建起来的国度，能否永续长存。
+瑞幸咖啡的暴跌和中共对恒大的救市有助于凸显中共国公司基本上按自己的规则行事的事实，如果外国投资者上当受骗，那就自认倒霉吧。
 
-We are met on a great battlefield of that war. We have come to dedicate a portion of that field as a final resting-place for those who here gave their lives that that nation might live. It is altogether fitting and proper that we should do this.
+但川普团队将其作为施压中共国游戏后期的核心，现在立法终于在民主党控制的众议院获得通过。正如其发起人之一的共和党参议员约翰·肯尼迪（John Kennedy）在推特中指出的那样，现在该法案已经在川普掌控之中。尽管我们认为美国可能同时与北京达成某种协议。
 
-我们在此集会的场所是那场战争中的一个非常重大的战场。我们划分出此战场的一个区域来奉献给那些为着这个新国家的生存而奉献了自己生命的烈士们，以此作为他们最后的安息之地，这真是再合适不过的事情了，我们理应如此去做。
-
-But, in a larger sense, we cannot dedicate, we cannot consecrate, we cannot hallow this ground.
-
-但是，其实从更实际的意义上来说，这并不是我们的功劳，我们没能力挑选，也不能使这块土地变成圣地。
-
-The brave men, living and dead who struggled here have consecrated it far above our poor power to add or detract.
-
-而是这些勇士们，这些活着的或已逝去的、曾经在这里浴血奋战过的英雄们，是他们赋予了这块土地以神圣之名，这根本不是以我们的微博之力所能左右的。
-
-The world will little note nor long remember what we say here, but it can never forget what they did here.
-
-世人或许不会去记载或记得今天我们在这里所说的话，但永远不会忘记英雄们曾经在这里为维护自由而浴血奋战过。
-
-It is for us the living rather to be dedicated here to the unfinished work which they who fought here have thus far so nobly advanced.
-
-对我们这些活着的人来说，对英雄们最好的祭奠，不是来此为这圣地命名的典礼，而是投入到他们为之奋斗而尚未完成的崇高的维护自由的事业中去。
-
-It is rather for us to be here dedicated to the great task remaining before us—that from these honored dead we take increased devotion to that cause for which they gave the last full measure of devotion—that we here highly resolve that these dead shall not have died in vain, that this nation under God shall have a new birth of freedom, and that government of the people, by the people, for the people shall not perish from the earth.
-
-但愿我们这里所有的人，都能投身于摆在我们眼前这未尽的崇高事业中去 – 这事业让这些光荣的先烈们付出了生命的最后一丝代价，也鼓舞着我们要加倍奉献于此 – 我们在此下定决心，一定不会让这些烈士的生命白白逝去，一定让这个国度，这个在上帝庇护下的国家获得自由的新生，让这个民有、民治、民享的政府，因上帝子民的永存而永世长存。
-
-参考文献：
-
-- https://historyengine.richmond.edu/episodes/view/6662
-- Civil War Trust, “Gettysburg Address”, Civil War Trust, http://www.civilwar.org/education/history/primarysources/gettysburg-address.html  (accessed Feb. 19 2017)
-- New World Encyclopedia, “Gettysburg Address”, New World Encyclopedia, http://www.newworldencyclopedia.org/entry/Gettysburg\_Address (accessed Feb. 19 2017)
-- http://han-jialiang.hxwk.org/2016/10/16/%E7%BE%8E%E5%9B%BD%E7%8B%AC%E7%AB%8B%E5%AE%A3%E8%A8%80%E7%9A%84%E7%BF%BB%E8%AF%91%E9%97%AE%E9%A2%98/ 美国独立宣言的翻译问题
-- http://www.flrchina.com/le/learning/001/063.htm 如此乱译美国《独立宣言》是为什么？
-- http://hx.cnd.org/2016/10/14/%e5%bb%96%e5%ba%b7%ef%bc%9a%e4%ba%ba%e7%94%9f%e8%80%8c%e5%b9%b3%e7%ad%89%e8%bf%98%e6%98%af%e8%a2%ab%e9%80%a0%e5%b9%b3%e7%ad%89%ef%bc%9f/ 廖康：人“生而平等”还是“被造平等”？
-- https://www.civiced.org/9-11-and-the-constitution-terms-to-know
+[!\[\]()!\[\](https://spark.adobe.com/page/haFw9AOmimTAb/images/f342b449-ed44-4840-9909-103dfe516293.jpg?asset_id=47360ac6-2017-4424-b82c-a6f1efac4bff&amp;img_etag=%226a1abca1248e3fb7c5ac01367fa8f25e%22&amp;size=3106)](https://spark.adobe.com/page/haFw9AOmimTAb/images/f342b449-ed44-4840-9909-103dfe516293.jpg?asset_id=47360ac6-2017-4424-b82c-a6f1efac4bff&amp;img_etag=%226a1abca1248e3fb7c5ac01367fa8f25e%22&amp;size=1024)约翰·肯尼迪 中共国现在正利用美国的证券交易所剥削美国工人和家庭 – 那些把他们的退休和大学储蓄放进上市公司的人们。今天，众议院与参议院携手一致拒绝这种有毒的现状。
 
 
-*翻译：【doujia】 编辑：【GM80】*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22151659/RG-01.png)
+这一消息对离岸人民币造成冲击；这或许也引发了人们的担忧，即美国可能以某种方式错过据称发生在亚洲的经济复苏，亚洲在消灭病毒方面比世界其他地区做得更好。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/haFw9AOmimTAb/images/8f00bf11-a107-412d-b81f-2c83a69af55c.jpg?asset_id=c4a8f87f-c72f-4c9c-8398-bad804de5b69&amp;img_etag=%22589376362855163eca45fa272caaeaf8%22&amp;size=1024)](https://spark.adobe.com/page/haFw9AOmimTAb/images/8f00bf11-a107-412d-b81f-2c83a69af55c.jpg?asset_id=c4a8f87f-c72f-4c9c-8398-bad804de5b69&amp;img_etag=%22589376362855163eca45fa272caaeaf8%22&amp;size=1024)
+
+充满欺诈的中共国公司制造了一种如香橼研究（Citron Research）和浑水研究（Muddy Waters Research）这种做空者铸就声誉（为他们和他们的支持者带来数十亿美元）的氛围，因为他们就像对冲基金血腥运动那样彻底销毁欺诈证据。
+
+这些公司与其他公司共同努力以帮助揭露无数来自中共国公司的欺诈和虚假声明。关于这一主题甚至拍摄了一部电影《中共国飞天大盗》（The China Hustle）。
+
+中共国公司通过在美国首次公开募股筹集到的资金总额
+
+[!\[\]()!\[\](https://spark.adobe.com/page/haFw9AOmimTAb/images/8077f475-e848-4659-b6c8-425dfbb21b2a.jpg?asset_id=1526cd5a-3347-48f3-97aa-1d1db23161a4&amp;img_etag=%22566787cd3e071b5cc4f62ad21665bc33%22&amp;size=2945)](https://spark.adobe.com/page/haFw9AOmimTAb/images/8077f475-e848-4659-b6c8-425dfbb21b2a.jpg?asset_id=1526cd5a-3347-48f3-97aa-1d1db23161a4&amp;img_etag=%22566787cd3e071b5cc4f62ad21665bc33%22&amp;size=1024)
+
+上市公司会计监督委员会（The Public Company Accounting Oversight Board）是由萨班尼斯·奥克斯利（Sarbannes-Oxley）设立，负责监督美国上市公司会计准则的一个实体，该委员会在试图从中共国获得广泛合作的过程中屡次失败。上市公司会计监督委员会（PCAOB）经常不得不起诉中共国审计公司，并与中共国监管机构交涉以获得更多信息。现在，新法规可能使得诸如纳斯达克和纽约证券交易所等上市交易所承担责任，这些交易所选择通过接受中共国实体的上市费用并允许它们在知名交易所上市，从而给这些中共国实体背书。
+
+据报道，政府正试图在即将离任的美国证券交易委员会（SEC）主席杰伊·克莱顿（Jay Clayton）年底离职前通过新规则。拜登政府届时可能会在一定程度上对其进行“调整”。
+
+同样是这些交易所已经帮助诸如阿里巴巴创始人马云这样的中共国商人成为亿万富翁。但他们甚至从未设法对阿里巴巴这样的公司提供任何形式的真正监督。
+
+在公开抱怨中共国一些模糊的监管功能后，马云现在得到应得的惩罚，这显然激怒了中共国领导人，以至于他们取消了阿里巴巴旗下蚂蚁金服的分拆。
+
+[原文链接](https://www.zerohedge.com/geopolitical/house-passes-bill-forcing-chinese-companies-agree-audit-oversight-or-delist-us?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/haFw9AOmimTAb/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/haFw9AOmimTAb/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/haFw9AOmimTAb/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
 0

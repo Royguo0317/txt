@@ -1,23 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独裁体制下兴与亡百姓皆苦
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/618678/)
+## 【突发】林伍德:中共病毒是针对美国投放的生物武器
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/620389/)
 
-```
-作者：阿娜
-校对/发稿人: Ting Guo
-```
+- 编辑：Victor Torres
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05034813/p8170281a538115057.jpg)图片来源: 新唐人电视台
-共产党自打1949年执政以来，只有给中国老百姓带来的是灾难。毛时代整死、饿死了几千万人。中国共产党所谓的八十年代搞改革开放，邓小平搞的“少数人先富，然后带动大部分再富”。可结果怎么样呢？百姓是一再被当作韭菜收割：股市被套、六个钱包被房子掏空、看病难、上学难等等，没有一样不是百姓受苦。催生的是“富二代，官二代”，“笑贫不笑娼”这种畸形的社会氛围。习近平更是更改宪法“永久称帝” 而党内、百姓不敢言，甚至觉得无所谓。习近平 搞的“反腐”， 百万家庭受牵连，多少个私人企业家被杀被消失。而百姓还蒙在鼓里而不知，其实镰刀霍霍，下一步该收割老百姓了。正如郭先生直播里说的“老百姓才吃饱了几天饭呐，结果又要回去了。共产党建起的这堵网络高墙，让百姓们成天意淫着自己有多强大，可现实生活的苦只有百姓自己心里清楚。
 
-共产党妄图用病毒来控制世界的各国政府，可它的如意算盘终是要落空了。它这次造的孽终于让全世界看清楚了共产主义的邪恶面目。到目前为止世界百万人口死亡超过了任何以往的任何战争死亡人口，你说怎么可能就让共产党继续作恶下去呢！但习近平还在继续加速，说什么这是“终极之战”。看来他是一条路走到黑，死不回头了，可怜的就是中国亿万的百姓。
+林伍德：“中共病毒是推销缺席投票和提早投票的借口。有了6英尺的距离要求，嘿伙计，通过邮寄投票是不是让事情变得更容易了！
+欺诈被编程进入投票机软件，并因邮寄缺席选票而加剧。”
 
-据郭先生的情报来源“共产党的最高层已经开始安顿自己真正的家人和后事了。中共的高官是最胆小、最自私、最懦弱、最会保护自己。他们感受到能躲就躲，能跑就跑，现在都在囤这、囤那、囤保命的东西。谁来保护老百姓呢？结果就是我们倒霉，这就是我这几年最最担心的事情。中国人说的很对，在家你不要跟老婆挑战生气，在国际关系上不要向美国挑战，在公司你不要跟老板挑战。在国际关系上你绝对不要惹美国。共产党的疯狂这次给老百姓带来的灾难真的是无穷无尽的。中国的老百姓真的是无知啊， 绝对不是把你打回到原形，打回到石器时代。如果中国老百姓还不觉醒，那个灾难是无法形容的”。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01052933/image0-720x720.png)[***https://discord.gg/77fCxw5mFv**
-**https://gab.com/himalaya\_italy***](https://gab.com/himalaya_italy)
 
+> Covid-19 was excuse to push for mail absentee ballots & early voting. With the 6 feet distance requirement, man oh man, was it ever easier just to vote by mail!
+> 
+> The fraud was programmed into the voting machine software & boosted by the steroids of mail absentee ballots. [pic.twitter.com/mdyDkN7cgy](https://t.co/mdyDkN7cgy)
+> — Lin Wood (@LLinWood) [December 5, 2020](https://twitter.com/LLinWood/status/1335253511232163842?ref_src=twsrc%5Etfw)
+
+
+
+林伍德：“中共病毒是中共针对美国投放的旨在窃取我们自由的生物战略武器。 然后，中国共产党以欺诈手段袭击了我们的大选，为乔和卡巴拉同志偷走他。
+中共多年来公开宣布了接管我国的计划。
+别想在我们的眼皮底下。”
+
+
+
+> Covid-19 was biological strategic weapon launched by Communist China against U.S. to steal our freedom. Then CCP attacked our national election with fraud to steal it for Comrades Joe & Cabala.
+> 
+> CCP has openly stated for years its plan to take over our country.
+> 
+> NOT ON OUR WATCH. [pic.twitter.com/V4ZxQXgJx7](https://t.co/V4ZxQXgJx7)
+> — Lin Wood (@LLinWood) [December 5, 2020](https://twitter.com/LLinWood/status/1335257718358241283?ref_src=twsrc%5Etfw)
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14162240/image0-2-6.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0
