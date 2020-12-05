@@ -1,20 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 林伍德：中国人民是共产主义的受害者
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/618158/)
+## 突发！美国务院宣布终止中共国资助的宣传计划
+` GM101` [轉載自GNews](https://gnews.org/zh-hans/618202/)
 
-- 编辑：文顺
-- 翻译：Victor Torres
+美东时间12月4号，美国国务院官方宣布了“终止中共国资助的宣传计划”的声明。
 
+声明明确中止与中华人民共和国（PRC）五项伪装为“文化交流”的计划，包括中国教育访问计划、中美友谊计划、中美领导力交流计划、美中跨太平洋交流计划和香港教育与文化计划。根据《相互教育和文化交流法》（MECEA）第108A条允许美国政府雇员使用外国政府的资金出行也包括在内。
 
-**西班牙2020年12月5日电/西喜社/**——林伍德周五推文表示，中国人民是共产主义的受害者。 他说：“美国不会在我们的土地上允许它， 美国爱国者与为自由而呐喊的中国公民站在一起。”
+声明指出上述五个计划是由中共国政府完全资助和运营，并作为软实力宣传工具，中共提供精心策划的访问权给不享有言论和集会自由的中国共产党官员，而不是中国人民。声明重申美国欢迎与中国官员和中国人民进行公平的文化交流，而非中共控制的单向文化交流。
 
-
-
-> I agree. Chinese people are victims of Communism. America will not allow it on our soil. American Patriots stand with Chinese citizens who cry out for freedom. [https://t.co/XAD6W5ARNR](https://t.co/XAD6W5ARNR)
-> — Lin Wood (@LLinWood) [December 4, 2020](https://twitter.com/LLinWood/status/1334901395246473225?ref_src=twsrc%5Etfw)
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
 0
