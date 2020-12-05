@@ -1,36 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【重磅】宾州议会要求国会拒绝该州选票结果
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/619012/)
+## 《路德社》每日简报早间版 2020.12.04&#8211;NewYork Time
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/618565/)
 
-**作者：翼族**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/07183905/image0-40.jpg)图片来源：墨尔本雅典娜农场设计组
-美国时间12月4日，来自宾夕法尼亚州州议会的76名成员，联合签署了一封信，要求国会拒绝宾州的选举结果。州议会作为立法机关，此联名信表明了该州选举已经违反了美国联邦选举法，意义重大。
+《路德社》出品； 编辑：路德社精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05023700/1204-AM-ZH-scaled.jpg)
+1204早间要闻-NewYork Time
 
-目前川普总统在宾州公布的选票中，落后乔·拜登81660张选票。
+听写：文宝Porsche        翻译及校对：阿軒Action
 
-这封联名信的重点是民主党籍的州长汤姆·沃尔夫（Tom Wolf）以及州务卿卡西·波克瓦尔（Kathy Boockvar）已经多次违反了美国宪法第二条第一节第2款，具体内容如下：
+**美国防部正式将中建、中海油、中芯国际和国际工程咨询公司列入制裁名单**
 
-**尊敬的参议员和众议员们，**
+由国防部决定的对这四家公司的制裁为永久制裁，直至被众议院三分之二多数投票终止。这四家军民融合公司，表面是安全部牵头的公司，实际上涉及统战部、总参、中联部、外交部等中共情报部门，这些部门派出的每一个人都带着秘密任务。这些公司被正式制裁后，美国人、美国供应商、华尔街都必须停止为其提供服务。
 
-2019年，宾夕法尼亚大会对我们州的联邦选举法进行了全面修改。这些更改通过允许无理由的邮寄选票扩大了投票权，并且实施合理的保障措施来确保新的选举系统的安全和透明，以及确保所有美国人对宾州的选举结果保有信心。这些修改得到了两党的支持，民主党州长汤姆·沃尔夫（Tom Wolf）在上面签了名。
+**DOD**** ****officially**** adds CSCEC, CNOOC, SMIC and CIECC to ****sanction**** blacklist.**
 
-不幸的是，沃尔夫州长和其他人却迅速破坏了这些法律要求的防护措施，尤其是：
+The sanctions imposed by the DOD against these companies are permanent until the House revokes it with two-thirds votes.  These four military-civil-fused companies seems to be under the leadership of Ministry of State Security of CCP, while it in fact ties with the CCP’s intelligence departments, such as the United Front Work Department, (Communist) China Emblem PLA.svg and Ministry of Foreign Affairs, etc., which has expatriated their agents with secret missions. After these companies are officially blacklisted, every American and every American supplier, as well as the Wall Street, are not allowed to provide service for them anymore.
 
-·宾夕法尼亚州选举法规定，所有邮寄选票必须在选举日当天晚上8点之前收到。但沃尔夫州长在大选期间命令某些郡取消该法定期限，而且还寻求在全州范围内取消这个限制。
+**国家情报总监华尔街日报发文：中共对美国会议员的渗透频率是俄罗斯的****12****倍****，是伊朗的****6****倍**
 
-·宾夕法尼亚州选举法禁止各县在选举日上午7点之前检查选票。但是宾夕法尼亚州州务卿发布了指导意见，鼓励各郡忽略此禁令进行选票检查，并在投票之前联系选票残缺的选民。
+渗透频率倍数这个数据的提出，意味着几乎每个国会议员都在FISA法案下被纳入了合法监控范围，这也是众议院能如此顺利通过《外国公司问责法》的原因。拉特克利夫还说，他对自己看到的情报感到震惊，中共对国会议员行贿、勒索，让其只通过对中共有利的法律，包括习近平在内的中共高层知道病毒真相但对全世界撒谎，武汉就是病毒的起源地，中共正在盗窃美国对病毒的研究。
 
-·宾夕法尼亚州选举法禁止对有问题的缺席或邮寄选票进行计数；但在宾州的州务院鼓励下，一些郡的选举委员会忽略了这一禁令，将数千张有缺陷的选票计入核证计数中。
+**DNI said in the Wall Street Journal that Communist China is waging a ****“massive influence campaign” targeting US lawmakers with six times the frequency of Russia and twelve times that of Iran.**** **
 
-·宾夕法尼亚州选举法授权候选人和政党来选择投票观察员，观察员应观察预先拉票和对缺席及邮寄选票进行现场拉票的过程；然而宾夕法尼亚州的某些郡却禁止这些被授权的观察人员进行必要地观察这些预先拉票和现场拉票的活动。
+The noted frequency of “mass influence campaign” demonstrates that almost every congressman or congresswoman is under the surveillance of FISA, which should be the reason why the House easily passed the Holding Foreign Companies Accountable Act. Ratcliffe commented that he was shocked by the intelligence he gets, that CCP bribes and blackmails the congressman into voting for pro-CCP policies and bills. The top CCP leaders including Xi Jinping have known the truth of (CCP)Virus but lie to the world. Wuhan is the origin of the (CCP)Virus and Communist China is stealing the US’ studies about the coronavirus.
 
-美国法典3 U.S.C.第15条，授权国会拒绝“不常规授予”或“被合法认证”的选举人票。而上述行为已经破坏了选举人团宾夕法尼亚州代表在法律上的认证。
+**美参议院通过《技术移民公平法》，对中共军人和党员不予发放签证和绿卡**
 
-出于这些原因，我们宾夕法尼亚州议会以下签名的成员，敦促您们在2021年1月6日举行的国会联席会议上反对在宾夕法尼亚州收到的选举人团的选票，并投票支持这种反对。
+这是该法案最大的亮点，第一次在法律中明确将中共和中国人区别开来。这是爆料革命三年多努力的结果。这让美国这一刀切下去的时候，保留了中国人中的正义力量—新中国联邦的公民，有了这个火种，新中国联邦一定会成为有民主、自由、法治，更是有实力的国家。
 
-参考链接：
-[http://www.pahousegopnews.com/AttachedFiles/12.04.20%20Congress%20Election%202020.pdf](http://www.pahousegopnews.com/AttachedFiles/12.04.20%20Congress%20Election%202020.pdf)
+**US Senate passed Fairness for High Skilled Immigrants Act, banning CCP members from visas and green cards.**
+
+The highlight of the bill is that it explicitly distinguishes Chinese people with CCP, which should be the result of the effort of Whistle-blowers Movement over 3 years. It preserves and protects the righteous power of Chinese, the citizens of New Federal State of China, when US is taking measures to eliminate the CCP. With the tinder of free Chinese, New Federal State of China must be a country of democracy, liberty, rule of law and power.
+
+**FOX****金牌主持人****Tucker****说：习近平轻则过失杀人、重则大屠杀罪**
+
+他还说，閆博士冒着生命危险来到自由世界，揭露病毒源于中共实验室，却被与中共独裁者勾结的高科技公司噤声。閆博士揭露的病毒来源让美国看清中共邪恶本质，而大选被操纵则让美国明白中共是来消灭自己的，忍让几十年后再无退路，唯有反击。
+
+**Fox News’ famous host Tucker Carlson said Xi Jing Ping at best has committed a criminal negligence but at worst is a mass murderer.**
+
+He also said that Dr Li-Meng Yan has risked her life for fleeing to the land of freedom, to reveal that the (CCP)Virus is originated in the CCP’s labs, however, she is muzzled by those Big Techs colludes with the CCP. The Origin of CCPVirus revealed by Dr Yan has US see through the evil of the CCP while the manipulation of the Election make the US truly aware, that CCP is coming for it and there is no way out but to strike back and take it down, as they have tolerated this demon for decades.
+
+**乔拜登说自己与哈里斯有原则分歧就必须辞职**
+
+乔拜登说，如果我与哈里斯有某些原则分歧的时候，我会（被）患上某些疾病，而且我必须辞职。
+
+**Joe Biden said he must resign if he has a “fundamental disagreement” with Harries.**
+
+Joe Biden said should he has a “fundamental disagreement” on a “moral principle,” he would have “developed some disease” and resign.
+
+
+
+文案：《路德社》文编组
+翻译：《路德社》翻译组
+审核校对：玫瑰天空
+上传排版：青葫芦娃&玫瑰天空
 
 0
