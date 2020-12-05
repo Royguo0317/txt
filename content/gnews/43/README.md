@@ -1,52 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统对中共的措施将封堵拜登：对9200万中共党员实施签证限制
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/617505/)
+## 【突发】格拉汉姆公开支持川普废除230条款
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/617519/)
 
-原文作者：泰勒·德登，2020年12月3日，18点40分
-翻译：康州盘古农场 – 文白
-校对：康州盘古农场 – 烟波浩淼
-审核：康州盘古农场 – V
-
-“川普的措施会封堵拜登。” 中共人民大学美国研究中心主任、中共政府顾问时殷弘对彭博社说，川普的施压活动一路升温，进入总统过渡期。
-
-他补充说 “**这是一个不断升级的过程。谈判的起点不断提高。美方不可能回到脱钩前的时代**。以下是川普白宫最新传出的重大升级消息。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04155212/passport.png)
-- 所有中共党员及其家属的旅行签证**已经被大大限制**，达到前所未有的水平。
+- 编辑：Victor Torres
 
 
-- **基于对 “奴役劳工 “的指控**，一家与解放军军方有关联的大型公司的棉花进口被禁止（注#1）。
+***更多真相，请关注*** ***[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+**西班牙2020年12月4日电/西喜社/——**四小时前，参议院多数党领袖林赛•格拉汉姆连发三推，公开支持川普总统废除230条款。
+
+林赛•格拉汉姆说：“我支持川普总统坚持废除第230条款，这是国防授权法案的一部分。‘科技巨头’是美国唯一不能因其商业行为而受到起诉且没有受到有效监管的行业。这必须结束。”
+
+他说：“这是我们改变路线的最佳时机，乘我们还有机会这么做时。在支持我们国家的军事方面，我不会落后于任何人。但是，第230条款允许美国的信息流通从根本上被改变。”
+
+他还表示：“我们有一个国防部来保护我们的自由，但是如果我们不更改第230条款，我们的自由就会受到威胁。”
 
 
-- 而迫在眉睫的是。川普预计将签署众议院通过的法案，对中共公司的账目实施美国审计审查，预计将**导致中共公司可能从美国交易所退市**，因为北京不太可能配合这一措施。
+
+> I support President [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw)'s insistence Section 230 repeal be part of the defense authorization bill. 
+>  
+> Big Tech is the only industry in America that cannot be sued for their business practices and are not meaningfully regulated. 
+> 
+> This must come to an end.
+> — Lindsey Graham (@LindseyGrahamSC) [December 4, 2020](https://twitter.com/LindseyGrahamSC/status/1334901016429522944?ref_src=twsrc%5Etfw)
 
 
-- 单独采取这些行动中的任何一个都已经堪称巨大行动，但如果采取全部行动，可能会导致最终的断裂点，或者如时殷弘所强调的 “脱钩前 “的不归点。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
 
-- 在签证问题上，其主要的意义和广泛影响将体现在一个事实上，即根据大多数人的估计，**大约有****9200万共产党员**。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20124027/PHOTO-2020-11-18-22-21-04.jpg)
 
-
-- 在此之前，党员的待遇与任何寻求进入美国的中共公民一样—能够获得长达10年的美国访问签证。现在，他们和他们的家人将被限制在1次性1个月的单次入境签证上，之后必须寻求新的签证。这或许是迄今为止川普总统对中共施压的最直接方式，**将影响到更多的普通民众，而不仅仅是政府高官**。
-
-
-- 外交部发言人要求美国政府立即改弦更张。”中方向美方提出交涉，我们希望美国民众对中国采取共同的理性看法，放弃对中国的仇恨和不正常心态。” 然而这一行动推出的时间太早，发言人告诉彭博社，她还不知道这一行动。
-
-
-- 同时美国驻中共大使馆发言人将其界定为打击中共宣传的一部分，他在一份书面声明中说：”**中共及其成员在美国积极工作，通过宣传、经济胁迫和其他邪恶活动影响美国人。**”
-
-
-- 这位美国官员补充说 “几十年来，我们允许中共自由、不受限制地进入美国的机构和企业，而这些同样的特权却从来没有自由地给予在中共的美国公民。”
-
-
-- 实际上，鉴于川普在拜登1月20日就职前仅有几周的时间，这些重大政策变化能有多快的执行速度将是有趣的。这些变化来得如此迅速，看来在中美关系恶化的情况下，”封堵 “拜登的策略确实已经达到了顶峰。
-
-
-译者评论：文章任然在假设拜登当选，随着海量的关于民主党勾结中共想通过盗取选举让拜登当选，完全是痴心妄想。川普总统早有防备，“克拉肯”早给他们准备好了，根据美国现行法律以及川普总统援引的2018年的总统行政命令，试图操纵选票根据战争时期的军法，就是叛国罪，以及为盗窃选票活动提供了实质性的协助、赞助，或提供了资金、物质或技术支持的实体都会被美国财政部扣押所有资产，被川普政府彻底查封、关闭或接管。那些封杀真相的媒体大科技巨头参与了隐瞒、鼓吹或支持 “外国干涉 “美国选举，统统逃不了严惩。正如郭先生所说，川普总统一定会当选，邪恶势力一定会被铲除。
-
-注#1：中共新疆生产建设兵团生产的棉花被禁入美国
-
-*原文链接：*[*https://www.zerohedge.com/political/trumps-rapid-fire-hammering-china-mass-visa-restrictions-cotton-imports-looming-delisting*](https://www.zerohedge.com/political/trumps-rapid-fire-hammering-china-mass-visa-restrictions-cotton-imports-looming-delisting)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0

@@ -1,28 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美情报揭露中共试图影响总统换届交接，拜登阵营拒绝就此谴责中共
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/617521/)
+## 【突发】皮特纳瓦罗：选举是被窃取的
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/617567/)
 
-作者：娜塔莉·温特斯(Natalie Winters)，2020年12月3日
-翻译：康州盘古农场-文白
-校对：康州盘古农场-一花一世界
-审核：康州盘古农场-V
+- 编辑：文顺
+- 翻译：Ranting
 
-拜登竞选团队拒绝谴责中共试图影响其过渡团队的成员和关系密切者。
 
-国家情报局反情报处处长威廉·埃瓦尼纳（William Evanina）在阿斯彭研究所（Aspen Institute）演讲时，详细介绍了中共针对前副总统及其核心圈子的影响任务。
+***更多真相，请关注*** ***[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-他指出：”我们也看到，中共对前副总统的影响力正在加大。”我们看到了一个上升的趋势，这是计划中的，我们也预测到了，新的拜登政府中共正调整其影响活动以转向新政府（拜登）。”
+**西班牙2020年12月4日电/西喜社/——**刚刚，皮特·纳瓦罗（Peter Navarro）转发推文表示，他看到的一切表明选举是被窃取的。
 
-埃瓦尼纳继续说，他将 “外国势力的恶意影响 “描述为 “像打了兴奋剂一样（迅速扩大）”。
+皮特·纳瓦罗在推文中说：“我看到了什么：誓约书，证词，视频，照片，法庭文件。错在哪里：彻头彻尾的舞弊、处理不当的选票、正当程序的失误、违反平等保护的规定、投票机的恶作剧、统计上的异常。”
 
-“当我提外国势力的恶意影响，超出正常外交的影响，或像打了兴奋剂一样影响的时候， 我们已经开始看到那些影响力已覆盖全国，不仅仅是影响新政府中的那些人，还影响了紧紧围绕着新政府的那些人。。
 
-建制派媒体《路透社》作此报道时指出，”拜登的过渡团队对此拒绝做出评论”。
 
-许多人担心，拜登的儿子与中共国相关实体企业的商业关系会影响其政府对外国政府采取强硬态度的允诺。而拒绝谴责美国情报界关于中共试图腐蚀拜登可能组建的政府团队的调查结果，似乎证实了这些担心。
+> What I'm seeing: Affidavits, testimony, video, photos, court filings. What's wrong: outright fraud, mishandled ballots, due process fouls, Equal Protection violations, voting machine hijinks, statistical anomalies. [https://t.co/EzwOnSjXe7](https://t.co/EzwOnSjXe7)
+> — Peter Navarro (@RealPNavarro) [December 4, 2020](https://twitter.com/RealPNavarro/status/1334967093373054977?ref_src=twsrc%5Etfw)
 
-原文链接：[https://thenationalpulse.com/breaking/biden-chinese-influence/](https://thenationalpulse.com/breaking/biden-chinese-influence/)
 
-1+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221622/PHOTO-2020-11-26-13-19-21.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+
+0
