@@ -1,35 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【突发】林伍德：是时候让美国决定是要自由还是暴政
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/617592/)
+## 法国“大嘴”埃瑞克.泽穆 （Eric Zemmour）说出了法媒沉默已久的事实：美国大选造假
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/617650/)
 
-- 编辑：文顺
-- 翻译：Victor Torres
+作者：Ikonic   校对： Pv 0
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04173231/cover-3-6.png)
+在12月1日晚CNEWS的时事节目“新闻面对面”(*Face à l’info**)**节目中，法国知名记者，以敢言为名的*埃瑞克.泽穆 （Eric Zemmour）说出了法媒沉默已久的时事话题：美国大选造假，川普千万选票被盗。
 
+节目中泽穆揭露了美国选举大面积造假—-面对泽穆引用的证据，其他嘉宾要么哑口无言，要么嗤之以鼻。就连平日里“公正”的女主持人也选边站，指责泽穆是川普唯一的支持者。显然，真话是不中听的，真话让他们难受了。
 
-***更多真相，请关注*** ***[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+的确，从拜登宣布“胜利”，川普喊冤的那一刻起法国主流媒体从来没有被正面报道过，对大选造假的话题更是讳莫如深。一切舆论导向都朝着什么川普放不下高傲的自尊啦，拒绝面对现实啦，最近欧洲1台竟然采访了川普的侄女玛丽.川普。玛丽川普是希拉里阵营的人，她在节目中直接说出川普还要继续疯狂下去。不出所料，第二天法国纸煤就开始刊登让人引起联想川普有心理疾病的文章。
 
-**西班牙2020年12月4日电/西喜社/——**刚刚，林伍德（Lin Wood）发推表示，中共用生物武器袭击了美国，并试图窃取美国大选，是时候让美国决定是要自由还是暴政。
+以调查出名的法国«绑鸭报»和mediapart面对”没证据”的说法全都沉默了，以世界文明灯塔自居的西方正在走向自我毁灭的路上，一个历史上从未有过的集体自杀现象，如此言论自我审查可以与当今的朝鲜相媲美。
 
-
-
-> Communist China attacked our county with biological weapon, Covid-19. Communist China attacked our country by trying to steal US national election.
-> 
-> Time for America to decide whether it wants freedom or tyranny. Fight for [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw), not for Xi Jinping or his puppet Biden.
-> — Lin Wood (@LLinWood) [December 4, 2020](https://twitter.com/LLinWood/status/1334964371215233027?ref_src=twsrc%5Etfw)
-
-
-
-**推文翻译：**
-中国共产党用生物武器中共病毒袭击了我们的家园。 中国共产党通过试图窃取美国大选，袭击了我们的国家。 是时候让美国决定是要自由还是暴政。 支持川普，而不是习近平或他的木偶拜登。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+为什么沼泽地里的大鳄不让报道？从法国本土情况来看，全球主义推选了他们的代言人马克龙，顺便毁掉了竞争对手法国前总理共和党人菲永。多米尼系统在法国共和党党内选举也有应用，难道是为了避免“拔出萝卜带出泥”？还是说要“效仿”美国，别忘了马克龙所在的共和国前进党党员已经提出重新启动邮寄投票的提案。（注： 1975年由于舞弊法国废除了邮寄选票）。
 
 0
