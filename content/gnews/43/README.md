@@ -1,17 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/11/23-24 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/619240/)
+## 德国科学家接受福克斯采访表示福奇所谓的群体免疫论是胡说八道，并警告不要接种新冠疫苗
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/619399/)
 
-战友之家图文摘要及多语组
+翻译：康州盘古农场-一花一世界
 
-[303-304\_English\_1123-1124\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080534/303-304_English_1123-1124_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080534/303-304_English_1123-1124_CCP_Virus_Updates.pdf)
+校对：康州盘古农场- DIDI
 
-[303-304\_French\_1123-1124\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080615/303-304_French_1123-1124_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080615/303-304_French_1123-1124_CCP_Virus_Updates.pdf)
+字幕+视频制作：康州盘古农场-武汉生化病毒
 
-[303-304\_German\_1123-1124\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080546/303-304_German_1123-1124_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080546/303-304_German_1123-1124_CCP_Virus_Updates.pdf)
+审核：康州盘古农场-Truemanman
 
-[303-304\_Spanish\_1123-1124\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080627/303-304_Spanish_1123-1124_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080627/303-304_Spanish_1123-1124_CCP_Virus_Updates.pdf)
+畅销书《对冠状病毒的错误警报》作者、微生物学家Sucharit Bhakdi博士接受福克斯采访表示：福奇所说的群体免疫是胡说八道，对于福西博士这样地位的人来说，说出这样的话简直不可思议，疫苗很危险，不要接种。
+
+视频详情：
+
+
+[https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05082137/KE018%E6%88%90%E5%93%8122.mp4](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05082137/KE018%E6%88%90%E5%93%8122.mp4)
+
+
+
+
+原视频链接：[https://youtu.be/RZDr3CsfolA](https://youtu.be/RZDr3CsfolA)
 
 0
