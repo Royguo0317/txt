@@ -1,12 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年12月3日文贵直播: 中国人的灾难真正的开始了
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/619082/)
+## 中共病毒大流行- 文字版 第307-308期
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/619154/)
 
-### **直播文字：【[中文PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05070416/CHN2020%E5%B9%B412%E6%9C%883%E6%97%A5%E6%96%87%E8%B4%B5%E7%9B%B4%E6%92%AD%EF%BC%9A%E4%B8%AD%E5%9B%BD%E4%BA%BA%E7%9A%84%E7%81%BE%E9%9A%BE%E7%9C%9F%E6%AD%A3%E7%9A%84%E5%BC%80%E5%A7%8B%E4%BA%86.pdf)】【[英文PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05070727/ENG2020-Dec-3rd-Miles-Guo-Broadcast%EF%BC%9AThe-real-disaster-for-the-Chinese-people-has-only-just-begun.pdf)】
-直播视频：** **[https://youtu.be/pQOW2UW1LFQ](https://youtu.be/pQOW2UW1LFQ)**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05070746/CHN2020%E5%B9%B412%E6%9C%883%E6%97%A5%E6%96%87%E8%B4%B5%E7%9B%B4%E6%92%AD%EF%BC%9A%E4%B8%AD%E5%9B%BD%E4%BA%BA%E7%9A%84%E7%81%BE%E9%9A%BE%E7%9C%9F%E6%AD%A3%E7%9A%84%E5%BC%80%E5%A7%8B%E4%BA%86_00.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05070734/CHN2020%E5%B9%B412%E6%9C%883%E6%97%A5%E6%96%87%E8%B4%B5%E7%9B%B4%E6%92%AD%EF%BC%9A%E4%B8%AD%E5%9B%BD%E4%BA%BA%E7%9A%84%E7%81%BE%E9%9A%BE%E7%9C%9F%E6%AD%A3%E7%9A%84%E5%BC%80%E5%A7%8B%E4%BA%86_01.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05070720/CHN2020%E5%B9%B412%E6%9C%883%E6%97%A5%E6%96%87%E8%B4%B5%E7%9B%B4%E6%92%AD%EF%BC%9A%E4%B8%AD%E5%9B%BD%E4%BA%BA%E7%9A%84%E7%81%BE%E9%9A%BE%E7%9C%9F%E6%AD%A3%E7%9A%84%E5%BC%80%E5%A7%8B%E4%BA%86_02.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05070712/CHN2020%E5%B9%B412%E6%9C%883%E6%97%A5%E6%96%87%E8%B4%B5%E7%9B%B4%E6%92%AD%EF%BC%9A%E4%B8%AD%E5%9B%BD%E4%BA%BA%E7%9A%84%E7%81%BE%E9%9A%BE%E7%9C%9F%E6%AD%A3%E7%9A%84%E5%BC%80%E5%A7%8B%E4%BA%86_03.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05070702/CHN2020%E5%B9%B412%E6%9C%883%E6%97%A5%E6%96%87%E8%B4%B5%E7%9B%B4%E6%92%AD%EF%BC%9A%E4%B8%AD%E5%9B%BD%E4%BA%BA%E7%9A%84%E7%81%BE%E9%9A%BE%E7%9C%9F%E6%AD%A3%E7%9A%84%E5%BC%80%E5%A7%8B%E4%BA%86_04.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05070649/CHN2020%E5%B9%B412%E6%9C%883%E6%97%A5%E6%96%87%E8%B4%B5%E7%9B%B4%E6%92%AD%EF%BC%9A%E4%B8%AD%E5%9B%BD%E4%BA%BA%E7%9A%84%E7%81%BE%E9%9A%BE%E7%9C%9F%E6%AD%A3%E7%9A%84%E5%BC%80%E5%A7%8B%E4%BA%86_05.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05070635/CHN2020%E5%B9%B412%E6%9C%883%E6%97%A5%E6%96%87%E8%B4%B5%E7%9B%B4%E6%92%AD%EF%BC%9A%E4%B8%AD%E5%9B%BD%E4%BA%BA%E7%9A%84%E7%81%BE%E9%9A%BE%E7%9C%9F%E6%AD%A3%E7%9A%84%E5%BC%80%E5%A7%8B%E4%BA%86_06.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05070621/CHN2020%E5%B9%B412%E6%9C%883%E6%97%A5%E6%96%87%E8%B4%B5%E7%9B%B4%E6%92%AD%EF%BC%9A%E4%B8%AD%E5%9B%BD%E4%BA%BA%E7%9A%84%E7%81%BE%E9%9A%BE%E7%9C%9F%E6%AD%A3%E7%9A%84%E5%BC%80%E5%A7%8B%E4%BA%86_07.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05070604/CHN2020%E5%B9%B412%E6%9C%883%E6%97%A5%E6%96%87%E8%B4%B5%E7%9B%B4%E6%92%AD%EF%BC%9A%E4%B8%AD%E5%9B%BD%E4%BA%BA%E7%9A%84%E7%81%BE%E9%9A%BE%E7%9C%9F%E6%AD%A3%E7%9A%84%E5%BC%80%E5%A7%8B%E4%BA%86_08.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05070551/CHN2020%E5%B9%B412%E6%9C%883%E6%97%A5%E6%96%87%E8%B4%B5%E7%9B%B4%E6%92%AD%EF%BC%9A%E4%B8%AD%E5%9B%BD%E4%BA%BA%E7%9A%84%E7%81%BE%E9%9A%BE%E7%9C%9F%E6%AD%A3%E7%9A%84%E5%BC%80%E5%A7%8B%E4%BA%86_09.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05070538/CHN2020%E5%B9%B412%E6%9C%883%E6%97%A5%E6%96%87%E8%B4%B5%E7%9B%B4%E6%92%AD%EF%BC%9A%E4%B8%AD%E5%9B%BD%E4%BA%BA%E7%9A%84%E7%81%BE%E9%9A%BE%E7%9C%9F%E6%AD%A3%E7%9A%84%E5%BC%80%E5%A7%8B%E4%BA%86_10.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05070524/CHN2020%E5%B9%B412%E6%9C%883%E6%97%A5%E6%96%87%E8%B4%B5%E7%9B%B4%E6%92%AD%EF%BC%9A%E4%B8%AD%E5%9B%BD%E4%BA%BA%E7%9A%84%E7%81%BE%E9%9A%BE%E7%9C%9F%E6%AD%A3%E7%9A%84%E5%BC%80%E5%A7%8B%E4%BA%86_11.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05070512/CHN2020%E5%B9%B412%E6%9C%883%E6%97%A5%E6%96%87%E8%B4%B5%E7%9B%B4%E6%92%AD%EF%BC%9A%E4%B8%AD%E5%9B%BD%E4%BA%BA%E7%9A%84%E7%81%BE%E9%9A%BE%E7%9C%9F%E6%AD%A3%E7%9A%84%E5%BC%80%E5%A7%8B%E4%BA%86_12.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05070459/CHN2020%E5%B9%B412%E6%9C%883%E6%97%A5%E6%96%87%E8%B4%B5%E7%9B%B4%E6%92%AD%EF%BC%9A%E4%B8%AD%E5%9B%BD%E4%BA%BA%E7%9A%84%E7%81%BE%E9%9A%BE%E7%9C%9F%E6%AD%A3%E7%9A%84%E5%BC%80%E5%A7%8B%E4%BA%86_13.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05070447/CHN2020%E5%B9%B412%E6%9C%883%E6%97%A5%E6%96%87%E8%B4%B5%E7%9B%B4%E6%92%AD%EF%BC%9A%E4%B8%AD%E5%9B%BD%E4%BA%BA%E7%9A%84%E7%81%BE%E9%9A%BE%E7%9C%9F%E6%AD%A3%E7%9A%84%E5%BC%80%E5%A7%8B%E4%BA%86_14.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05070433/CHN2020%E5%B9%B412%E6%9C%883%E6%97%A5%E6%96%87%E8%B4%B5%E7%9B%B4%E6%92%AD%EF%BC%9A%E4%B8%AD%E5%9B%BD%E4%BA%BA%E7%9A%84%E7%81%BE%E9%9A%BE%E7%9C%9F%E6%AD%A3%E7%9A%84%E5%BC%80%E5%A7%8B%E4%BA%86_15.png)
+校对人员：德州瑞秋、德妹、Redd (文清）
 
+中文补强：文蕊 文灵
+
+定稿：要正义不要正能量
+
+![]()**1.** **11**月**26**日，圆通快递被爆出其内部员工以每条**0.3**到**1**元不等的价格，售卖了**40**万用户个人信息。有媒体报道，网上存在贩卖快递用户信息利益链，申通、德邦、韵达等多家大型快递公司均在其中。
+
+**2. **中共利用蓝金黄手段收买贿赂世卫组织，后者与中共在媒体宣传上互相配合，掩盖病毒来自中共实验室的真相。** (**注：蓝金黄代表蓝色、金色和黄色。蓝，指网络监视和攻击以及信息控制；金，指金钱利益贿赂手段；黄，指利用性的陷阱和控制手段。**)**
+
+**3. **中共通过蓝金黄的手段，对美国实施**3F**计划：搞乱美国，搞弱美国，搞死美国。拜登是中共控制美国的一颗棋子。
+
+**4. **中国保险行业协会称：未来**5**到**10**年，中国预计会有**8**万亿至**10**万亿元的养老金缺口，而且这个缺口会随着时间的推移进一步扩大。与此同时，中共近**4**年对外援助金额却超**6**万亿。
+
+**5. **重庆政府开始分批次逐步征收房产税，进一步把手伸向老百姓的钱袋子。评：在中共国买房简直是一个笑话：第一，房价高**; **第二，土地所有权不是私有，属于国家；第三，房主对房子只有**70**年的所有权。相当于花了买房的钱租房住。
+
+**6. **中共国国家卫健委：将把**“**健康码**”**和公交卡、老年卡进行整合。进一步对不会使用智能手机的老年人进行出行监控。
+
+**7.**《新台湾加油》报道**“**美国侦查机在抵近中国**73**公里的国际空域进行侦察**”**。从**3**月到**11**月，该侦察机已经抵近中国东海、黄海、南海、巴士海峡，进行侦察**160**次。
+
+8.（川普电话连线葛底斯堡听证会，**11/25**，**Newsmax**）
+
+死去的人们注册投票。他们不仅走进投票站投票，而且这些已经去世多年的人居然主动要求投票。全世界都在注视着美利坚合众国，我们不能让他们侥幸逃脱。
+
+因此，我们现在不必担心下一个四年，但是需要弄清楚发生在**11**月**3**日和之前的事情，以及投票截止后放入的非法选票。** **
+
+**9.**（**11/23 **丽兹・约尔：教皇方济各会见**NBA**球员）
+
+推特用户称**, **这是**NBA**和梵蒂冈教皇勾结把自己出卖给中国的会议。他们称这是在梵蒂冈的中共之友会议。当中国信徒最重要的发言人陈日君与方济各五分钟的会面机会都没有，真是对受迫害的中国人实实在在的侮辱。
+
+休斯敦火箭队的总经理达里尔**·**莫雷，他放胆批评中共在香港的所做所为之后，我们知道在他身上发生了什么事。因此，这将教皇与中共的联盟关系摆在了醒目的位置**…**所以人们要关注方济各是怎么运作的。** **
+
+**10.**（**11/26 **郭文贵）我们在这里让全世界知道**: **共产党是人类、天堂和上帝的敌人。我们的媒体告诉世界，消灭共产主义是我们的使命。这是我们的感恩节誓言。
+
+今天，我们发起了一项伟大的行动，创造了一个代表所有忠实于上帝的声音，称为**“ ****G-TV America **卫星电台**”**。将与具有国际知识和背景的战友们和坚信者们建立爆料革命的新时代。
 
 0

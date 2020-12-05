@@ -1,28 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 对中共暴言不予抗议的茂木外务大臣和外务省的无知！软弱外交的病根在哪里?
-` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/619281/)
+## 【世界多语言图文】2020/11/23-24 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/619240/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05074619/%E5%AF%B9%E4%B8%AD%E5%85%B1%E6%9A%B4%E8%A8%80%E4%B8%8D%E4%BA%88%E6%8A%97%E8%AE%AE%E7%9A%84%E8%8C%82%E6%9C%A8%E5%A4%96%E5%8A%A1%E5%A4%A7%E8%87%A3%E5%92%8C%E5%A4%96%E5%8A%A1%E7%9C%81%E7%9A%84%E6%97%A0%E7%9F%A5.png)
-翻译：京都富士会 赤脚医生
+战友之家图文摘要及多语组
 
-校对：待命（文晓）
+[303-304\_English\_1123-1124\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080534/303-304_English_1123-1124_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080534/303-304_English_1123-1124_CCP_Virus_Updates.pdf)
 
-11月24日，中国王毅外长在日中外长会谈后的共同记者招待会上，重申了钓鱼岛（日本尖阁群岛）的主权。因为日本的茂木外务大臣没有当场抗议，招致自民党内部的批评。电子邮件杂志【怀疑NEWS】的首席军事分析师小川和久说：王毅外长的言行仅仅考虑的是中国国内的群体如何反应，根本没有顾及日本方面的感受。外务省预测不足，没有事先制定会谈发言的规则。另外，他对被死规矩束缚起来的外务大臣和外务省的漫不经心感到叹息！ 说中国高层的强硬发言都是说给墙国内的国民听的。
+[303-304\_French\_1123-1124\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080615/303-304_French_1123-1124_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080615/303-304_French_1123-1124_CCP_Virus_Updates.pdf)
 
-28日的【读卖新闻】早刊有这样的文章，说茂木外相在27日晚的记者招待会上，就针对24日，中共国王毅外长所言的派公船进入钓鱼岛海域的正当化，没有当场表示反对作了解释。不仅“告知了王外长日方的要求，而且，记者招待会有每人轮流一次发言的规定”。同时，强调王的言论根本无法接受！试图消除周围的批评声。 本次，自民党内部成员也对茂木氏反应提出不满。27日的参议院本会议上，同党的参院议员山田宏特例地批评到：“ 能够感受到国民希望茂木能当场果断地反对。而当时为什么没有反对呢？” 日本外务省复数官员事后也非常懊悔：“每人轮流发言一次的规则被利用了”；“没有想到王竟然突然讲到这个话题”。东大教授川岛真(东亚国际关系史）说：“在记者招待会上说个没完的事倒是经常有。但规则都是形式，如果这是美国川普总统的话，一定会当场果断反对的。”
+[303-304\_German\_1123-1124\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080546/303-304_German_1123-1124_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080546/303-304_German_1123-1124_CCP_Virus_Updates.pdf)
 
-（11月28日读卖新闻） 读到这里，大脑不仅浮想到：即使在国外发言，也要每时每刻考虑国内的中共高层的行动模式。在中国，特别是对待日本的外交上，软弱表现是绝对不可以的。墙国国民，平时无法对共产党提出这样那样的批评，如果找到对日本软弱外交借口，把这个作为突破口，一定会对中共政权的稳定造成冲击。 习近平主席计划访问日本的时候，曾出现非常矛盾的现象。在钓鱼岛周围海域频繁出现中国公船，这些都可以看做是为改善与日本的关系而在国内做的铺垫。 这样写有人一定会问，“习近平的观念想法值得信任吗？”中国这边为了国益有他们的对日外交态度。日本为了国益也对照着做就可以了。 另外，作为王毅外长个人，曾为驻日大使，是日语和英语都非常流利的知日派。正因如此，更容易被贴上亲日派的标签。如果被认为偏袒日本，那他的政治生涯也就结束了。所以，在必要的时机，表现出严厉的对日态度也是预料之中的事。
-
-
-
-原文链接
-
-
-
-> [中国の暴言に抗議せぬ茂木外相と外務省の無知、弱腰外交の病根とは？](https://www.mag2.com/p/news/476623)
-
-
+[303-304\_Spanish\_1123-1124\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080627/303-304_Spanish_1123-1124_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080627/303-304_Spanish_1123-1124_CCP_Virus_Updates.pdf)
 
 0

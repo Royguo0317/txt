@@ -1,77 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日新闻看点-2020年12月4日
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/618925/)
+## 《路德社》每日简报早间版 2020.12.04&#8211;NewYork Time
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/618565/)
 
-多伦多枫叶农场 大地鲲鹏
+《路德社》出品； 编辑：路德社精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05023700/1204-AM-ZH-scaled.jpg)
+1204早间要闻-NewYork Time
 
-校对上传 XM
+听写：文宝Porsche        翻译及校对：阿軒Action
 
-一、疫情真相
+**美国防部正式将中建、中海油、中芯国际和国际工程咨询公司列入制裁名单**
 
-闫丽梦博士论文：
+由国防部决定的对这四家公司的制裁为永久制裁，直至被众议院三分之二多数投票终止。这四家军民融合公司，表面是安全部牵头的公司，实际上涉及统战部、总参、中联部、外交部等中共情报部门，这些部门派出的每一个人都带着秘密任务。这些公司被正式制裁后，美国人、美国供应商、华尔街都必须停止为其提供服务。
 
-[第一份英文版](https://zenodo.org/record/4028830#.X1_lwj-SlPa)   [第一份中文版](https://drive.google.com/file/d/1vZ0vbPJ9QAhGDjna9pkMxqUHhIdakODW/view?usp=sharing)
+**DOD**** ****officially**** adds CSCEC, CNOOC, SMIC and CIECC to ****sanction**** blacklist.**
 
-[第二份英文版](https://zenodo.org/record/4073131)   [第二份中文版](https://gnews.org/zh-hans/411364/)
+The sanctions imposed by the DOD against these companies are permanent until the House revokes it with two-thirds votes.  These four military-civil-fused companies seems to be under the leadership of Ministry of State Security of CCP, while it in fact ties with the CCP’s intelligence departments, such as the United Front Work Department, (Communist) China Emblem PLA.svg and Ministry of Foreign Affairs, etc., which has expatriated their agents with secret missions. After these companies are officially blacklisted, every American and every American supplier, as well as the Wall Street, are not allowed to provide service for them anymore.
 
-二、新中国联邦新闻
+**国家情报总监华尔街日报发文：中共对美国会议员的渗透频率是俄罗斯的****12****倍****，是伊朗的****6****倍**
 
-1.“路德时评”星期五（12/4/2020）节目部分内容:
+渗透频率倍数这个数据的提出，意味着几乎每个国会议员都在FISA法案下被纳入了合法监控范围，这也是众议院能如此顺利通过《外国公司问责法》的原因。拉特克利夫还说，他对自己看到的情报感到震惊，中共对国会议员行贿、勒索，让其只通过对中共有利的法律，包括习近平在内的中共高层知道病毒真相但对全世界撒谎，武汉就是病毒的起源地，中共正在盗窃美国对病毒的研究。
 
-a.北约以及美国盟军的军事情报已经验证新冠病毒为中共生物武器，俄罗斯也提供了对应情报。中共误判拜登当选得意忘形，已暴露更加详细的病毒和疫苗犯罪证据，中共通知撤离美常住华人13万、游客50万（含香港），北约三周前已通知彻查中共实验室。
+**DNI said in the Wall Street Journal that Communist China is waging a ****“massive influence campaign” targeting US lawmakers with six times the frequency of Russia and twelve times that of Iran.**** **
 
-b.中共生物武器触发北约应对最高级攻击的条款，按照军事冲突对等原则，对共联军将不宣而战。按计划将实施斩首，且彻底清理中共所有军事设施，各缔约国将无条件参战且无需联合国及本国总统、国会授权。
+The noted frequency of “mass influence campaign” demonstrates that almost every congressman or congresswoman is under the surveillance of FISA, which should be the reason why the House easily passed the Holding Foreign Companies Accountable Act. Ratcliffe commented that he was shocked by the intelligence he gets, that CCP bribes and blackmails the congressman into voting for pro-CCP policies and bills. The top CCP leaders including Xi Jinping have known the truth of (CCP)Virus but lie to the world. Wuhan is the origin of the (CCP)Virus and Communist China is stealing the US’ studies about the coronavirus.
 
-c.因中国文化和地理环境的特殊性，战后的中国大陆将有70％的可能性陷入军阀割据状态，此状态是美国为首的联军亦无法解决的问题。墙内战友需确保爆料革命信息畅通、储备粮食，避免区域武装暴乱再次形成独裁政权，新中国联邦将为墙内战友提供必要援助，尽快平息军阀割据。
+**美参议院通过《技术移民公平法》，对中共军人和党员不予发放签证和绿卡**
 
-d.密歇根州法官下令对安特里姆县投票机进行刑事审计、禁止销毁大选证据。Dominion源代码将因此被迫公开，曝光中共操控大选；乔治亚州州长命令审计选票签名；Lin Wood发推再称中共使用生物武器攻击美国，并窃取大选，其言论与灭共联军行动、郭文贵先生爆料革命进程呼应 。
+这是该法案最大的亮点，第一次在法律中明确将中共和中国人区别开来。这是爆料革命三年多努力的结果。这让美国这一刀切下去的时候，保留了中国人中的正义力量—新中国联邦的公民，有了这个火种，新中国联邦一定会成为有民主、自由、法治，更是有实力的国家。
 
-e.美国防部正式将中芯国际、中建、中海油、中建工程咨询列入制裁黑名单，代表了华尔街等美利益集团正式与中共切割。
+**US Senate passed Fairness for High Skilled Immigrants Act, banning CCP members from visas and green cards.**
 
-f.华尔街日报转向，报道美国家情报总监Ratcliffe称中共针对美国会议员的渗透行为“频率6倍于俄罗斯，10倍于伊朗”，习近平等中共高层掩盖病毒真相，美国国会对此震惊且困惑。该报告证实FISA已启用，监听中共及美相关议员。美国家安全委员会顾问委员会推动相关制裁及总统行政命令，展现定海神针的力量。
+The highlight of the bill is that it explicitly distinguishes Chinese people with CCP, which should be the result of the effort of Whistle-blowers Movement over 3 years. It preserves and protects the righteous power of Chinese, the citizens of New Federal State of China, when US is taking measures to eliminate the CCP. With the tinder of free Chinese, New Federal State of China must be a country of democracy, liberty, rule of law and power.
 
-g.美参议院通过绿卡申请法案，今后不得向中共军方及中共党员颁发入境签证以及对其进行身份调整。中共已被美利益集团抛弃，平民主义将取代基辛格主义。
+**FOX****金牌主持人****Tucker****说：习近平轻则过失杀人、重则大屠杀罪**
 
-h.Tucker节目再谈病毒来源和中共实验室。病毒话题比肩大选舞弊，呼应爆料革命；闫博士论文观点已成常识；节目中Tucker指控习近平轻则过失杀人，重则大屠杀。中共病毒是灭共按钮，干扰大选则促使美方下决心。
+他还说，閆博士冒着生命危险来到自由世界，揭露病毒源于中共实验室，却被与中共独裁者勾结的高科技公司噤声。閆博士揭露的病毒来源让美国看清中共邪恶本质，而大选被操纵则让美国明白中共是来消灭自己的，忍让几十年后再无退路，唯有反击。
 
-i.中共翟东升公开宣讲中共勾兑华尔街BGY美国政治，并公开承认中共参与成立亨特·拜登海外基金。
+**Fox News’ famous host Tucker Carlson said Xi Jing Ping at best has committed a criminal negligence but at worst is a mass murderer.**
 
-（[“路德时评”早间节目](https://www.youtube.com/watch?v=j12MEpUlRXY)）
+He also said that Dr Li-Meng Yan has risked her life for fleeing to the land of freedom, to reveal that the (CCP)Virus is originated in the CCP’s labs, however, she is muzzled by those Big Techs colludes with the CCP. The Origin of CCPVirus revealed by Dr Yan has US see through the evil of the CCP while the manipulation of the Election make the US truly aware, that CCP is coming for it and there is no way out but to strike back and take it down, as they have tolerated this demon for decades.
 
-（[“路德时评”晚间节目](https://www.youtube.com/watch?v=qftvYVkpcvk)）
+**乔拜登说自己与哈里斯有原则分歧就必须辞职**
 
-2.美国国务卿彭佩奥于2020年12月4日在国际战略研究所麦纳麦对话中发表了视频讲话。指出中共国没有转变成一个正常国家，总与伊朗站在一起，美国已经看清现实，并将根据国家安全和战略框架，用美国的常识重塑我们(对华)政策。
+乔拜登说，如果我与哈里斯有某些原则分歧的时候，我会（被）患上某些疾病，而且我必须辞职。
 
-蓬佩奥当天表示，决定对中共中央统一战线工作部（简称中央统战部）内从事”有害活动”的官员实施签证限制，他未有点名是哪些中国官员。他称，美方呼吁中共停止使用胁迫手段去压制表达自由。
+**Joe Biden said he must resign if he has a “fundamental disagreement” with Harries.**
 
-其于星期四亦发表声明表示，香港政府对香港勇敢的民主倡导者进行政治迫害，令美国感到震惊。利用法庭压制和平的异议，是威权政权的一个特点，并再次突显出，中国共产党最担心的是人民的言论和思想自由。美国将继续捍卫香港人民的权利和自由。
+Joe Biden said should he has a “fundamental disagreement” on a “moral principle,” he would have “developed some disease” and resign.
 
-3.美国国家情报总监约翰·拉特克里夫（John Ratcliffe）周四（12月3日）发表评论文章说：“美国情报显示，中共甚至已对中共军人进行人体测试，希望发展生物能力增强的士兵。中共对武力的追求没有道德伦理界限。”
 
-4.来自伦敦方面消息，英国正在向香港居民发放自1997年香港回归以来最多的特别旅行证件。据英国政府护照办公室披露的公开信息显示，仅在10月份，该部门就向59798名香港人发出了BNO，比去年同期增加了52%。按平均每天工作8小时计算，相当于每分钟就有超过5个BNO得到发放。
 
-5.挪威央行周五（12月4日）宣布，与一名中国女子结婚的挪威央行副行长尼古拉森因未能延续安全许可而辞去职务，立即生效。作为挪威央行二号人物，尼古拉森主要负责监督挪威的主权财富基金，挪威国家主权财富基金是全球最大的主权财富基金，资产规模超过一万亿欧元。
-
-6.近日美国司法部正与遭加拿大警方“应美国发布的逮捕令”拘押的华为首席财务官（CFO）孟晚舟讨论一项协议，该协议将允许她从加拿大返回中共国，以换取她承认部分控罪。孟一直抵制提议的协议，并认为没有做错任何事情，也拒绝通过华为发言人发表评论。外界认为，目前的僵持状态可能是孟最好的选择，返回中共国反而会有巨大风险。
-
-7.截至11月30日，中共国地方债合计发行已经达到6.26万亿人民币。加上注资中小银行的2000亿人民币专项债即将发行，全年地方债发行规模有望达到6.5万亿人民币。创下了历史新高，地方政府债务率已接近红线。
-
-8.中共国南北大众汽车制造公司 12月4日起开始停产。芯片短缺导致ESP（电子稳定程序系统）和ECO（智能发动机控制系统）两大模块无法生产是此轮停产的主要原因。而国内主要的供应商是大陆集团Continental和博世两家零部件供应商，受到芯片断供影响，两家零部件巨头自身也面临该业务的停工风险。
-
-9.鉴于紧张局势加剧，澳洲小麦商宣布撤出中共国市场，中共国小麦买家正疯狂收购低筋小麦，以满足高档面包店的需求。中共国内小麦需求增长幅度高于产量，未来25年将持续进口大量小麦。特别是国内低筋小麦无法满足市场需求，产自澳洲的低筋小麦，此前占据独特的市场地位。
-
-三、世界新闻
-
-1.12月4日，美国总统川普竞选团队和共和党全国委员会（RNC）宣布，自11月3日大选日以来，他们已经筹集了2.075亿美元。川普2020竞选经理比尔‧斯蒂芬恩说，这个筹款数字显示总统“仍然是共和党的领导者和活力之源，他的支持者致力于为2020年大选正确、合法的结果而战。“
-
-2.林·伍德大律师周四（12月3日）在亚利桑那州发表震撼演讲：美国再次回到1776年建国的关键时刻，我们将为自由而战。告诉北京中共政府，你们选错了对手，在我们的守护下，你们绝对不可能占领我们的国家。
-
-目前他正与西德尼‧鲍威尔大律师合作，共同在几个摇摆州提起诉讼，挑战选举结果。在近日接受采访时林·伍德指出，乔治亚州州长莱恩‧坎普必须召集特别议会会议，仔细审查选举程序；在1月5日乔州参议员2个席位的复选之前，应该修正选举程序。
-
-3.美国贸易代表彼得∙纳瓦罗本周有关中共控股75%的瑞银向Dominion 投票机母公司提供4亿美元的帖子被推特删除后，他再发帖对社交平台寡头表示不满，指他们仿照中共防火墙策略。
-
-4.当地时间周五（12月4日）早上，福奇证实他已经接受邀请同意担任“新一届美国政府”首席医疗顾问。拜登早前表示已与福奇谈话，邀请他在其杜撰的新政府中担任首席医疗顾问和新冠应对小组成员。
+文案：《路德社》文编组
+翻译：《路德社》翻译组
+审核校对：玫瑰天空
+上传排版：青葫芦娃&玫瑰天空
 
 0
