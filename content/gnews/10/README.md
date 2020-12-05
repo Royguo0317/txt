@@ -1,27 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【突发】鲍威尔：我办公室里有一大袋被粉碎了的选票 – 拉芬珀格和加布里埃尔·斯特林应该被调查
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/620330/)
+## 著名律师林伍德明确中共使用新冠病毒向美国发动了生化战争
+` GM101` [轉載自GNews](https://gnews.org/zh-hans/620329/)
 
-- 编辑：Victor Torres
-- 翻译：Goodgo
+美东时间12月6号，著名律师林伍德通过社交媒体推特发布了关于“中共超限生物武器”新冠病毒的推文。
 
+林伍德明确Covid-19（又名中共超限生物武器、新冠病毒、CCP病毒、中共病毒、武汉肺炎等）是共产主义中国针对美国投放，试图颠覆美国主权、拿走美国公民自由等权利的生物武器。
 
-**悉尼·鲍威尔(Sidney Powell)****在周五晚上参加了格兰特·斯金菲尔德(Grant Stinchfield)****在NewsMax****电视台的节目。**
+林伍德指出中共于多年前一直策划渗透并颠覆美国主权，本次对美国发动生化战争后，试图用欺诈手段操控美国总统大选。拜登和贺锦丽在中共及卖美贼的控制下，用邮寄选票、死人投票、一票多投、投票系统造假等手段竞选。
 
-**悉尼(Sidney)****给出了她现在在威斯康辛和乔治亚的选举欺诈案的最新进展。**
-
-鲍威尔权衡了她在佐治亚的案子。
-
-**悉尼(Sidney)呼吁调查拉芬珀格(Raffensperger) 和他的搭档加布里埃尔·斯特林（Gabriel Sterling）。** 鲍威尔说：“在乔治亚，机器中有大量的证据表明存在删除选票和跳票给拜登的情况。他们一直在以最快的速度删除并且毁坏证据。**我的办公室里现在就有一大袋被粉碎了的选票。**我迫不及待想要看看里面有什么。美国人民是不会允许我们的总统被选举欺诈机制打败的。这些人已经用尽了你能想象到的所有选举欺诈行为。是被紧密操控，并有大量资金支持的。他们现在有25名律师对抗我们这些正在为真理和正义、为了美国人民而奋斗的小小团队。拉芬珀格先生明显在全力撒谎。应该对他和他的副秘书长的财务进行犯罪调查，为什么虽然他们并不需要新系统，可是价值1亿7千万美元的多米尼(Dominion)合同会突然在乔治亚州出现。”
-
-**原文链接：**[https://www.thegatewaypundit.com/2020/12/sidney-powell-huge-bag-shredded-ballots-office-raffensperger-gabriel-sterling-investigated-video/](https://www.thegatewaypundit.com/2020/12/sidney-powell-huge-bag-shredded-ballots-office-raffensperger-gabriel-sterling-investigated-video/)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+林伍德做为美国资深著名律师，在社交媒体公开称中共针对美国发射生物战略武器，证明美国掌握了中共生物武器的重要证据。中共对美国投放生物武器等同发动了生化战争，根据北大西洋公约第五条规定，一旦确认成员国受到的攻击，其他成员国将作出即时反应。该条款被理解为各国部队将自动参战，并不再需要各国政府的参战授权。川普政府具备随时斩首中共盗国贼的法理，加上俄罗斯对中共的反戈一击，中共大势已去，灭共第三道大门正式打开。
 
 0
