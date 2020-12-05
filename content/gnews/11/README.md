@@ -1,14 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 停不下来的脚步
-` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/619249/)
+## 【世界多语言图文】2020/11/23-24 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/619240/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05074008/%E5%81%9C%E4%B8%8D%E4%B8%8B%E6%9D%A5%E7%9A%84%E8%84%9A%E6%AD%A5.png)
-作者：京都富士会 神的带领
+战友之家图文摘要及多语组
 
-校对：待命（文晓）
+[303-304\_English\_1123-1124\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080534/303-304_English_1123-1124_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080534/303-304_English_1123-1124_CCP_Virus_Updates.pdf)
 
-随着爆料革命的如火如荼，随着真相的不断涌出，不但是清醒了中国人，也清醒了世界。人们看清了中共的野心、暴行、不择手段。 当我们看清的时候，作为中国人，我们只想推翻共产党，要我们想要的民主、自由、法制、信仰、公平、正确的教育等等。这是一个正常国家应该有的健康体制，一个人所应该享受的权利。 随着西方世界以及各个国家的清醒，它们看透了共产党欲霸权世界、统治世界、管控世界的野心。共产党想利用病毒武器控制世界，当全世界清醒时也会要灭掉共产党。 也就是说，灭共是世界的需要。但灭共的形式和次生灾难的考量就不一样了，我们灭共的同时不想伤害百姓，或把灾难缩小到最小范围。但是，除爆料革命以外的灭共就无法想象了。他们甚至希望中国乱个三五七年，甚至它们想看中国人是怎样吃草啃树皮等等的惨状…… 所以巨变突变就在眼前。同胞们赶快加入新中国联邦吧！这里是你避难的港湾。也希望中共内部的开智者致力于灭掉那几个败类家族、解放中国、使中国走向民主、成为合法政府。国家服务于人民，不是人民服务于某些盗国贼，这是最理想的灭共方式。若是70、80国联军灭共，那灾难的脚步没有人能够叫停的。
+[303-304\_French\_1123-1124\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080615/303-304_French_1123-1124_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080615/303-304_French_1123-1124_CCP_Virus_Updates.pdf)
+
+[303-304\_German\_1123-1124\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080546/303-304_German_1123-1124_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080546/303-304_German_1123-1124_CCP_Virus_Updates.pdf)
+
+[303-304\_Spanish\_1123-1124\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080627/303-304_Spanish_1123-1124_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05080627/303-304_Spanish_1123-1124_CCP_Virus_Updates.pdf)
 
 0
