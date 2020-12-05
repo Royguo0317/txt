@@ -1,32 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 彭佩奥：中共威胁世界的自由与民主
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/617945/)
+## 朱利安尼独家揭密拜登家族罪行视频（系列八）
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/530774/)
 
-- 编辑：文顺
-- 翻译：Victor Torres
+简评/组稿编辑：Julia Win；Page：拱卒
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04215803/1-%E6%9C%B1.png)
 
-***更多真相，请关注*** ***[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+**简评：**
 
-**西班牙2020年12月4日电/西喜社/——**美国国务卿彭佩奥（Secretary Pompeo）转发国家情报总监的推文并表示，中共对世界范围内的自由与民主构成了威胁，美国必须应对这一挑战。
+我们来看这个系列最后一个回顾视频。朱利安尼先生有证据显示：拜登家族及相关者，之所以掩盖乔. 拜登是老大，是大人物的事实，是因为这是犯罪的证据！我们可以从中看到利益相关者之间，以及这个罪恶家族的家庭成员间的尔虞我诈。
 
-彭佩奥在推文中说：“川普政府正在明确指出：中国共产党对世界范围内的自由与民主构成的威胁是真实存在的，美国必须应对这一生中难得一次的挑战。”
+在这个系列视频完成之际，我们看到了，乔·拜登这个盗选“总统”及其家族与外部势力触目惊心的利益勾兑；看到了拜登家族不惜出卖国家利益、国家情报，来换取个人以及家族利益的丑恶！
 
-
-
-> The [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) Administration is making it clear– the threat to freedom and democracy worldwide posed by the Chinese Communist Party is real, and the United States must rise to this once-in-a-generation challenge. [https://t.co/lrtXwoji9Y](https://t.co/lrtXwoji9Y)
-> — Secretary Pompeo (@SecPompeo) [December 4, 2020](https://twitter.com/SecPompeo/status/1334970140597903360?ref_src=twsrc%5Etfw)
+我们期待着卖国者得到应有惩罚的同时，更期待背后输送利益的强盗、世纪之魔、人类共同的敌人-中共覆灭！
 
 
+> **他们之所以要掩盖乔· 拜登是老大，是大人物的事实，因为这是犯罪的证据！**
 
-周五上午，美国国家情报总监约翰·拉特克利夫（John Ratcliffe）警告说，中国是美国目前面临的最大威胁。拉特克利夫表示：“ 我监督情报机构，我的办公室制作了总统每日简报，详细介绍了国家面临的威胁。如果我能从这一独特的角度向美国人民传达一件事，那就是中华人民共和国构成了最大的威胁。 对当今的美国来说，是第二次世界大战以来对全世界民主与自由的最大威胁。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
+**（EP81-3）**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+视频字幕：文府； 翻译：WADE； 校正：草根文人
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+
+
+接下来这封邮件，加上10%的隐藏股权，是让陪审团给乔·拜登定罪的重要证据。这是詹姆士·吉利尔警告托尼·博布林斯基：“永远不要提乔的参与，除非在你们面对面的时候。我知道他们非常敏感。”这是2017年5月20日。所以他们要撒谎，要掩盖乔·拜登是老大、是大人物的事实；掩盖他至少从中获得了3000万美元的事实。这就是他们为什么要掩盖这点，因为这是犯罪意图的证据，因为他们在犯罪。这就是他们为什么要掩盖这点。
+
+
+> **海量的证据表明，拜登家族参与了巨量洗钱腐败！乔.拜登本人也拿到了巨量赃款！**
+
+
+**（EP81-4）**
+
+视频字幕：KK； 翻译：WADE； 校正：草根文人
+
+
+
+拜登家族背着他们的合伙人吉尔利和博布林斯基，私吞了一笔1000万美金的无息可免贷款。1000万美金无息可免贷款，这就是洗钱。这是合同，签署于2017年7月26日，它显示中共能源公司华信（CEFC)，向拜登家族提供第一笔500万美金的无息可免贷款，基于对拜登家族的信任，这不是给亨特个人，而是给拜登家族。然后这里是汇款凭证，总额480万美金。
+
+在2017年8月78日，基于10%的股权协议，乔拜登至少能从这笔钱中得到48万美金，这就是汇款票据。人们还在问，乔拜登有没有拿到钱？他拿到钱了！《纽约时报》在撒谎，他们在所有的事上都撒谎！所以480万无锡可免贷款，是导致拜登和博布林斯基还有吉利尔关系破裂的真正原因，因为他们没有被告知这笔钱的去向，因为这笔钱本应该是给公司的，但是被亨特私吞了。亨特一边从合伙人身上偷钱，一边为他的父亲收受贿赂。
+
+亨特也给自己敲定了一笔独立的小协议，它不仅没把这份协议告诉自己的合伙人，也没告诉自己的家人。这是亨特发的一条信息：“直接把钱汇给我”。亨特是一家律师事务所的成员，但他欺骗了律所这笔钱，他也欺骗了公司这笔钱。这100万是华信能源（CEFC)单独给他个人的（何志平的律师代理费），在2017年9月22日。
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[GTV UK 英国伦敦喜庄园电视台](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】-点击spark adobe版
+
+[!\[\]()!\[\](https://spark.adobe.com/page/uSKzH353lUpmO/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/uSKzH353lUpmO/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0
