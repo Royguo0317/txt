@@ -1,53 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 鲍威尔大律师：佐治亚州务卿和选举办负责人应接受刑事调查
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/620512/)
+## 让美国这个“在上帝庇护下的国家获得自由的新生”：林肯总统葛底斯堡演讲
+` GM80` [轉載自GNews](https://gnews.org/zh-hans/620508/)
 
-蒙特利尔战友团 laotou
+引言：美国宪法以 “ We the people (我们人民）”开篇，1896年11月19日林肯总统在葛底斯堡国家烈士公墓落成典礼上的发表演讲，宣称美国人民拥有一个 “民有、民治、民享” 的政府, 一定让这个 “在上帝庇护下的国家获得自由的新生”！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05131650/Gettysburg-Lincoln.png)图片来源：https://www.history.com/topics/american-civil-war/gettysburg-address
+全文翻译：
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05133215/C.jpg)图片来自The New Yorker
-随着朱利安尼市长“冒烟抢视频”【1】的广泛传播，真相接踵而来地浮出水面，佐治亚州选举舞弊的操盘手拉芬斯佩格（Brad Raffensperger）和加布里埃尔·斯特林（Gabriel Sterling）继续抵赖，面对如此的厚颜无耻，大律师鲍威尔发强音警告,“我办公室里有一大袋碎选票——拉芬斯佩格和斯特林应该接受调查！”
+**Address at the Dedication of the Gettysburg National Cemetery**
 
-拉芬斯佩格，佐治亚州州务卿；斯特林，该州选举办公室负责人，投票系统的实施经理。
+在葛底斯堡国家烈士公墓落成典礼上的演讲
 
-《门道专家》12月5日早发出了以下题目的文章：【2】
+(Nov.19, 1863)
 
-“星期五晚上，西德尼·鲍威尔在Newsmax电视台接受了格兰特·斯蒂奇菲尔德（Grant Stinchfield）的采访。
+(1863年11月19日）
 
-大律师鲍威尔介绍了她目前在威斯康星州和佐治亚州的选举欺诈案的最新情况。
+Abraham Lincoln
 
-鲍威尔律师在电视里说，这是一个一目了然的案子，并呼吁调查拉芬斯佩格和他的助手斯特林。
+亚伯拉罕 · 林肯
 
-在采访中鲍威尔律师说，‘在佐治亚州，有大量选票碎纸和存在机器里、突然转给拜登的投票记录的证据，……他们一直在尽可能快地抹去和销毁证据。我办公室里现在有一大袋碎选票，我迫不及待地想知道这会透露什么……
+Fourscore and seven years ago our fathers brought forth on this continent a new nation, conceived in liberty and dedicated to the proposition that all men are created equal.
 
-美国人民不会允许我们的总统被舞弊的选举方式击败，这些人采用了你能想象得到的各种形式的选举欺诈。
+八十七年前，我们的先辈在这块大陆上创立了一个未曾有过的崭新国度：它以崇尚自由为基石和以信奉上帝造人赐人以平等这一信念为基础建立起来的。
 
-这是高度协调的，而且有大量资金支持，我们的25个律师正在为美国人民的真相和正义而斗争……
+Now we are engaged in a great civil war, testing whether that nation or any nation so conceived and so dedicated can long endure.
 
-我们有大量的证据……拉芬斯珀格先生完全是在撒谎。
+目前我们卷入了一场浩大的内战，这也正考验着这个国家，或任何一个如此这般坚定的主张自由和致力于人人平等而创建起来的国度，能否永续长存。
 
-应该对他和他的副秘书长的财务状况进行刑事调查，这项价值1.7亿美元的多米尼合同在佐治亚州突然签订，当时他们根本不需要新的系统。”
+We are met on a great battlefield of that war. We have come to dedicate a portion of that field as a final resting-place for those who here gave their lives that that nation might live. It is altogether fitting and proper that we should do this.
 
-……
+我们在此集会的场所是那场战争中的一个非常重大的战场。我们划分出此战场的一个区域来奉献给那些为着这个新国家的生存而奉献了自己生命的烈士们，以此作为他们最后的安息之地，这真是再合适不过的事情了，我们理应如此去做。
 
-“冒烟抢视频”流传后，一度被怀疑参与了佐治亚州选举舞弊的州长布莱恩·肯普（Brian Kemp）在第一时间与“邪恶”划清了界限，“指责了州务卿有争议的拉票行为”，“曾要求拉芬斯珀格（州务卿）接受实名选票审计，但州务卿没有这样做”【3】，而拉芬斯珀格仍不认罪，并试图继续拖延，虽要求进行GBI调查（Georgia Bureau of Investigation），但是调查如果还是这个州务卿（或其副手）主导，只能是加快证据销毁进程【4】，那个斯特林更是嚣张无比，众目睽睽下继续抵赖，竟然否认录像内容【5】。
+But, in a larger sense, we cannot dedicate, we cannot consecrate, we cannot hallow this ground.
 
-难怪鲍威尔大律师昨晚发出这重锤警告，“拉芬斯珀格完全是在撒谎！”“应该对他们的财务状况进行刑事调查”。林伍德大律师也刚刚发推，谴责这两个人是“我们中间的叛徒，他们犯有协助和教唆外国干涉我国大选的罪行，两人都在在中共国的工资单上……该把他们关起来！”【6】
+但是，其实从更实际的意义上来说，这并不是我们的功劳，我们没能力挑选，也不能使这块土地变成圣地。
 
-参考链接：
+The brave men, living and dead who struggled here have consecrated it far above our poor power to add or detract.
 
-【1】https://www.youtube.com/watch?v=nVP\_60Hm4P8
+而是这些勇士们，这些活着的或已逝去的、曾经在这里浴血奋战过的英雄们，是他们赋予了这块土地以神圣之名，这根本不是以我们的微博之力所能左右的。
 
-【2】[https://www.thegatewaypundit.com/2020/12/sidney-powell-huge-bag-shredded-ballots-office-raffensperger-gabriel-sterling-investigated-video/](https://www.thegatewaypundit.com/2020/12/sidney-powell-huge-bag-shredded-ballots-office-raffensperger-gabriel-sterling-investigated-video/)
+The world will little note nor long remember what we say here, but it can never forget what they did here.
 
-【3】[https://gnews.org/zh-hans/617106/](https://gnews.org/zh-hans/617106/)
+世人或许不会去记载或记得今天我们在这里所说的话，但永远不会忘记英雄们曾经在这里为维护自由而浴血奋战过。
 
-【4】https://www.walb.com/2020/12/04/gov-kemp-agrees-raffensperger-request-gbi-aid/
+It is for us the living rather to be dedicated here to the unfinished work which they who fought here have thus far so nobly advanced.
 
-【5】[https://time.com/5918093/gabriel-sterling-trump-georgia/](https://time.com/5918093/gabriel-sterling-trump-georgia/)
+对我们这些活着的人来说，对英雄们最好的祭奠，不是来此为这圣地命名的典礼，而是投入到他们为之奋斗而尚未完成的崇高的维护自由的事业中去。
 
-【6】https://twitter.com/LLinWood/status/1335248821551558658
+It is rather for us to be here dedicated to the great task remaining before us—that from these honored dead we take increased devotion to that cause for which they gave the last full measure of devotion—that we here highly resolve that these dead shall not have died in vain, that this nation under God shall have a new birth of freedom, and that government of the people, by the people, for the people shall not perish from the earth.
 
+但愿我们这里所有的人，都能投身于摆在我们眼前这未尽的崇高事业中去 – 这事业让这些光荣的先烈们付出了生命的最后一丝代价，也鼓舞着我们要加倍奉献于此 – 我们在此下定决心，一定不会让这些烈士的生命白白逝去，一定让这个国度，这个在上帝庇护下的国家获得自由的新生，让这个民有、民治、民享的政府，因上帝子民的永存而永世长存。
+
+参考文献：
+
+- https://historyengine.richmond.edu/episodes/view/6662
+- Civil War Trust, “Gettysburg Address”, Civil War Trust, http://www.civilwar.org/education/history/primarysources/gettysburg-address.html  (accessed Feb. 19 2017)
+- New World Encyclopedia, “Gettysburg Address”, New World Encyclopedia, http://www.newworldencyclopedia.org/entry/Gettysburg\_Address (accessed Feb. 19 2017)
+- http://han-jialiang.hxwk.org/2016/10/16/%E7%BE%8E%E5%9B%BD%E7%8B%AC%E7%AB%8B%E5%AE%A3%E8%A8%80%E7%9A%84%E7%BF%BB%E8%AF%91%E9%97%AE%E9%A2%98/ 美国独立宣言的翻译问题
+- http://www.flrchina.com/le/learning/001/063.htm 如此乱译美国《独立宣言》是为什么？
+- http://hx.cnd.org/2016/10/14/%e5%bb%96%e5%ba%b7%ef%bc%9a%e4%ba%ba%e7%94%9f%e8%80%8c%e5%b9%b3%e7%ad%89%e8%bf%98%e6%98%af%e8%a2%ab%e9%80%a0%e5%b9%b3%e7%ad%89%ef%bc%9f/ 廖康：人“生而平等”还是“被造平等”？
+- https://www.civiced.org/9-11-and-the-constitution-terms-to-know
+
+
+*翻译：【doujia】 编辑：【GM80】*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22151659/RG-01.png)
 0
