@@ -1,77 +1,96 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日新闻看点-2020年12月4日
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/618925/)
+## 《路德社》每日简报晚间版 2020.12.03&#8211;NewYork Time
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/618532/)
 
-多伦多枫叶农场 大地鲲鹏
+《路德社》出品； 编辑：路德社精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05023036/12.3-pm-china-1-scaled.jpg)
+1203晚间要闻-NewYork Time
 
-校对上传 XM
+Important news, Dec 3, 2020 Evening, EST
 
-一、疫情真相
+**美国重启星球大战计划**
 
-闫丽梦博士论文：
+**America reboots Star Wars Program**
 
-[第一份英文版](https://zenodo.org/record/4028830#.X1_lwj-SlPa)   [第一份中文版](https://drive.google.com/file/d/1vZ0vbPJ9QAhGDjna9pkMxqUHhIdakODW/view?usp=sharing)
+上周起，北约和俄罗斯的军方彻底看清了，中共完全没有任何底线，不顾任何地球公约，不但全世界发动了病毒生物武器战争、并且还在发动后续更加致命的疫苗战争，为了避免地球被中共毁灭，将启动星球大战计划。
 
-[第二份英文版](https://zenodo.org/record/4073131)   [第二份中文版](https://gnews.org/zh-hans/411364/)
+Since last week, the military of the NATO and Russian have made it clear that the CCP bears no bottom line, regardless of any conventions on the earth. They not only waged a war of viral biological weapons, but also prepared a more fatal one on vaccines. To avoid the destructions of the earth by the CCP, the Star Wars program will be launched.
 
-二、新中国联邦新闻
+爆料革命一直试图唤醒党内的人，呼吁中共的戈尔巴乔夫站出来，但现在时间点已过、仍没有人站出来，全世界已经因病毒死亡150万人，西方世界无法忍耐下去了。
 
-1.“路德时评”星期五（12/4/2020）节目部分内容:
+The Whistleblower Movement have been trying to rouse the members of the CCP and called on the men like Gorbachev to stand up. However, no one came forward in the limited period. The CCP Virus has killed 1.5 million people worldwide, and the West can’t take it anymore.
 
-a.北约以及美国盟军的军事情报已经验证新冠病毒为中共生物武器，俄罗斯也提供了对应情报。中共误判拜登当选得意忘形，已暴露更加详细的病毒和疫苗犯罪证据，中共通知撤离美常住华人13万、游客50万（含香港），北约三周前已通知彻查中共实验室。
+**为什么必须启动星球大战计划才能消灭中共**
 
-b.中共生物武器触发北约应对最高级攻击的条款，按照军事冲突对等原则，对共联军将不宣而战。按计划将实施斩首，且彻底清理中共所有军事设施，各缔约国将无条件参战且无需联合国及本国总统、国会授权。
+Why must the Star Wars program be started to take down the CCP
 
-c.因中国文化和地理环境的特殊性，战后的中国大陆将有70％的可能性陷入军阀割据状态，此状态是美国为首的联军亦无法解决的问题。墙内战友需确保爆料革命信息畅通、储备粮食，避免区域武装暴乱再次形成独裁政权，新中国联邦将为墙内战友提供必要援助，尽快平息军阀割据。
+由于邪恶的中共将核武器藏身于正常人无法想象到的民用设施或闹市区中，他们笃定美国不会100%做到监视和追踪，于是决定要与西方鱼死网破。如果习王被斩首，他们将释放所有的核武器来攻击美国，甚至全部自我引爆毁掉地球。
 
-d.密歇根州法官下令对安特里姆县投票机进行刑事审计、禁止销毁大选证据。Dominion源代码将因此被迫公开，曝光中共操控大选；乔治亚州州长命令审计选票签名；Lin Wood发推再称中共使用生物武器攻击美国，并窃取大选，其言论与灭共联军行动、郭文贵先生爆料革命进程呼应 。
+The evil CCP hides nuclear weapons in the civilian facilities or downtown areas that normal people cannot imagine. They convinced that US cannot do all of the surveillance and tracking 100% and decided to fight the West to the death. If Xi and Wang are beheaded, the CCP will release all their nuclear weapons to attack the US, or even blow themselves up and destroy the earth.
 
-e.美国防部正式将中芯国际、中建、中海油、中建工程咨询列入制裁黑名单，代表了华尔街等美利益集团正式与中共切割。
+这种情况下，只有启动星球大战计划，才能快速摧毁中共的核武器发射点，挽救地球。
 
-f.华尔街日报转向，报道美国家情报总监Ratcliffe称中共针对美国会议员的渗透行为“频率6倍于俄罗斯，10倍于伊朗”，习近平等中共高层掩盖病毒真相，美国国会对此震惊且困惑。该报告证实FISA已启用，监听中共及美相关议员。美国家安全委员会顾问委员会推动相关制裁及总统行政命令，展现定海神针的力量。
+In this case, only the Star Wars program is launched can it rapidly destroy the launch sites of CCP’s nuclear weapons and save the earth.
 
-g.美参议院通过绿卡申请法案，今后不得向中共军方及中共党员颁发入境签证以及对其进行身份调整。中共已被美利益集团抛弃，平民主义将取代基辛格主义。
+**西方消灭中共的预定步骤**
 
-h.Tucker节目再谈病毒来源和中共实验室。病毒话题比肩大选舞弊，呼应爆料革命；闫博士论文观点已成常识；节目中Tucker指控习近平轻则过失杀人，重则大屠杀。中共病毒是灭共按钮，干扰大选则促使美方下决心。
+Predetermined steps by the West to take down the CCP
 
-i.中共翟东升公开宣讲中共勾兑华尔街BGY美国政治，并公开承认中共参与成立亨特·拜登海外基金。
+外交手段用尽，削弱CCP至最弱，定点斩首和铲除军事设施，联军进入中国。同时所有的国家都会共同行动无差别没收所有华人的财产。
 
-（[“路德时评”早间节目](https://www.youtube.com/watch?v=j12MEpUlRXY)）
+Exhausting all diplomatic methods, weakening the CCP to its least, targeted beheading, destroying the military installations and the allied forces entering China. At the same time, all countries will act together to confiscate the property of all Chinese people without discrimination.
 
-（[“路德时评”晚间节目](https://www.youtube.com/watch?v=qftvYVkpcvk)）
+**为什么说中国人的灾难即将开始**
 
-2.美国国务卿彭佩奥于2020年12月4日在国际战略研究所麦纳麦对话中发表了视频讲话。指出中共国没有转变成一个正常国家，总与伊朗站在一起，美国已经看清现实，并将根据国家安全和战略框架，用美国的常识重塑我们(对华)政策。
+**Why  do we say the real disaster of the Chinese people is coming?**
 
-蓬佩奥当天表示，决定对中共中央统一战线工作部（简称中央统战部）内从事”有害活动”的官员实施签证限制，他未有点名是哪些中国官员。他称，美方呼吁中共停止使用胁迫手段去压制表达自由。
+CCP的军民融合政策将国内的军民设施完全融合在一起，打击军事设施必伤己平民；同时海外蓝金黄尤其是基因地图计划经过几十年的渗透，已将特务间谍势力与海外普通华人深度捆绑，完全攻陷了西方世界，西方人根本无法区分是间谍还是普通华人。
 
-其于星期四亦发表声明表示，香港政府对香港勇敢的民主倡导者进行政治迫害，令美国感到震惊。利用法庭压制和平的异议，是威权政权的一个特点，并再次突显出，中国共产党最担心的是人民的言论和思想自由。美国将继续捍卫香港人民的权利和自由。
+The “fusion of military and civilian” policy of the CCP have fully mixed facilities for military and civilian.  The striking on the military facilities is hard to avoid harming civilians. Furthermore, after decades of infiltration, the overseas BGY Project, especially the gene map project, have bound the spy forces with the ordinary overseas Chinese profoundly. The CCP have completely invaded the Western world, and westerners are not able to distinguish between spies and ordinary Chinese at all.
 
-3.美国国家情报总监约翰·拉特克里夫（John Ratcliffe）周四（12月3日）发表评论文章说：“美国情报显示，中共甚至已对中共军人进行人体测试，希望发展生物能力增强的士兵。中共对武力的追求没有道德伦理界限。”
+中共能够肆意横行中国七十年，每一个中国人都难辞其咎；对习近平上台后推行的极端反人类政策，国内民众也没有进行过真正有效的反抗；海外被中共大外宣洗脑的八千万华人中的大多数也在有意无意为独裁唱赞歌。
 
-4.来自伦敦方面消息，英国正在向香港居民发放自1997年香港回归以来最多的特别旅行证件。据英国政府护照办公室披露的公开信息显示，仅在10月份，该部门就向59798名香港人发出了BNO，比去年同期增加了52%。按平均每天工作8小时计算，相当于每分钟就有超过5个BNO得到发放。
+Every Chinese shall be blamed for CCP’s been able to rule China for 70 years. There has been no real effective resistance to the extreme anti-human policies pursued by Xi Jinping since he took office. Most of the 80m of overseas Chinese brainwashed by the CCP’s propaganda are also singing praises of the dictatorship, whether consciously or not.
 
-5.挪威央行周五（12月4日）宣布，与一名中国女子结婚的挪威央行副行长尼古拉森因未能延续安全许可而辞去职务，立即生效。作为挪威央行二号人物，尼古拉森主要负责监督挪威的主权财富基金，挪威国家主权财富基金是全球最大的主权财富基金，资产规模超过一万亿欧元。
+基于以上两方面原因，国内外华人无差别受害已经不可避免，孽障终究是要还的。
 
-6.近日美国司法部正与遭加拿大警方“应美国发布的逮捕令”拘押的华为首席财务官（CFO）孟晚舟讨论一项协议，该协议将允许她从加拿大返回中共国，以换取她承认部分控罪。孟一直抵制提议的协议，并认为没有做错任何事情，也拒绝通过华为发言人发表评论。外界认为，目前的僵持状态可能是孟最好的选择，返回中共国反而会有巨大风险。
+Based on the above two reasons, it is inevitable that the domestic and overseas Chinese will suffer indiscriminately, and the evilness caused here will eventually be repaid.
 
-7.截至11月30日，中共国地方债合计发行已经达到6.26万亿人民币。加上注资中小银行的2000亿人民币专项债即将发行，全年地方债发行规模有望达到6.5万亿人民币。创下了历史新高，地方政府债务率已接近红线。
+**新中国联邦将保护战友**
 
-8.中共国南北大众汽车制造公司 12月4日起开始停产。芯片短缺导致ESP（电子稳定程序系统）和ECO（智能发动机控制系统）两大模块无法生产是此轮停产的主要原因。而国内主要的供应商是大陆集团Continental和博世两家零部件供应商，受到芯片断供影响，两家零部件巨头自身也面临该业务的停工风险。
+**The New Federal State of China always protects our fellow fighters**
 
-9.鉴于紧张局势加剧，澳洲小麦商宣布撤出中共国市场，中共国小麦买家正疯狂收购低筋小麦，以满足高档面包店的需求。中共国内小麦需求增长幅度高于产量，未来25年将持续进口大量小麦。特别是国内低筋小麦无法满足市场需求，产自澳洲的低筋小麦，此前占据独特的市场地位。
+美国和西方在冻结所有海外华人财产的同时，新中国联邦会在美加英等国建立保护区，一个一个去解救战友。但战友之外的大多数华人，将不可避免地受难，这是郭先生也无可奈何的事情。墙内的战友，要远离所有中共军事设施、军事基地。
 
-三、世界新闻
+When the US and the West are going to freeze all the property of overseas Chinese, the NFSC will establish protected areas in the US, Canada, UK and other countries to rescue our fellow men one by one. But the majority of the overseas Chinese outside fighters will inevitably be subjected to affection, this is the unavoidable situation that even Mr. Guo can help. Our fellow fighters within China shall stay far away from all military installations and bases of the CCP.
 
-1.12月4日，美国总统川普竞选团队和共和党全国委员会（RNC）宣布，自11月3日大选日以来，他们已经筹集了2.075亿美元。川普2020竞选经理比尔‧斯蒂芬恩说，这个筹款数字显示总统“仍然是共和党的领导者和活力之源，他的支持者致力于为2020年大选正确、合法的结果而战。“
+**美军承认中共反舰导弹击中了移动目标意味着什么****？**
 
-2.林·伍德大律师周四（12月3日）在亚利桑那州发表震撼演讲：美国再次回到1776年建国的关键时刻，我们将为自由而战。告诉北京中共政府，你们选错了对手，在我们的守护下，你们绝对不可能占领我们的国家。
+**What does it mean for the US military to admit that a CCP’s anti-ship missile hit a moving target?**
 
-目前他正与西德尼‧鲍威尔大律师合作，共同在几个摇摆州提起诉讼，挑战选举结果。在近日接受采访时林·伍德指出，乔治亚州州长莱恩‧坎普必须召集特别议会会议，仔细审查选举程序；在1月5日乔州参议员2个席位的复选之前，应该修正选举程序。
+一旦承认中共反舰导弹有攻击航母的能力，美军就会升级应对措施。在侦测到中共有发射导弹迹象时，一定会先发制人，主动攻击反舰导弹基地。
 
-3.美国贸易代表彼得∙纳瓦罗本周有关中共控股75%的瑞银向Dominion 投票机母公司提供4亿美元的帖子被推特删除后，他再发帖对社交平台寡头表示不满，指他们仿照中共防火墙策略。
+Once the CCP’s anti-ship missile is recognized as capable of attacking aircraft carriers, the US military will upgrade its response. When a CCP’s missile launch is detected, their missile base must be pre-emptively attacked.
 
-4.当地时间周五（12月4日）早上，福奇证实他已经接受邀请同意担任“新一届美国政府”首席医疗顾问。拜登早前表示已与福奇谈话，邀请他在其杜撰的新政府中担任首席医疗顾问和新冠应对小组成员。
+由于中共导弹基地密布于居民区，美军主动攻击势必造成平民的伤亡，但这一切都是中共造的孽。
+
+Since the CCP’s missile bases are densely populated, the active attack of the US military certainly will cause civilian casualties, which, sadly, is all the fault of the CCP
+
+路德金句
+
+The thought-provoking quote of Lude.
+
+文贵先生今天直播说的不仅仅是靠谱，而是100%的情报，他提前告诉大家。更重要的事，中共很多高官包括习的家人都已经意识到了，都准备转移各种财产，都准备逃命。还有中共军方，政法委的人都在秘密行动。
+
+During the broadcast of Mr. Guo today, what he disclosed in advance is not just about incredibility, it’s 100% intelligence. More important, many of the CCP’s top officials, including the family of Xi, have realised and been ready to move their assets and run for their lives. Besides, the officials of the military and the politics and law committee are all under operation secretly.
+
+#CCP\_is\_terrorist   #TakeDownTheCCP
+
+文案：《路德社》文编组
+翻译：《路德社》翻译组
+审核校对：玫瑰天空
+上传排版：青葫芦娃&玫瑰天空
 
 0
