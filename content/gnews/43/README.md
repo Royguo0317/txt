@@ -1,9 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加州任命55名选举人投票支持拜登 12/4
-` Mike迈克小哥` [轉載自GNews](https://gnews.org/zh-hans/618162/)
+## 林伍德：中国人民是共产主义的受害者
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/618158/)
 
-突发：加利福尼亚州已通过认证总统大选结果，并任命55名选举人投票支持乔·拜登，这意味着加州正式将赢得白宫所需的选举人团多数票交给民主党-美联社报道
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04230126/%E5%8A%A0%E5%B7%9E%E8%AE%A4%E8%AF%81%E6%80%BB%E7%BB%9F%E5%A4%A7%E9%80%89%E7%BB%93%E6%9E%9C%EF%BC%8C%E4%BB%BB%E5%91%BD55%E5%90%8D%E9%80%89%E4%B8%BE%E4%BA%BA%E6%8A%95%E7%A5%A8%E6%94%AF%E6%8C%81%E6%8B%9C%E7%99%BB.png)
+- 编辑：文顺
+- 翻译：Victor Torres
+
+
+**西班牙2020年12月5日电/西喜社/**——林伍德周五推文表示，中国人民是共产主义的受害者。 他说：“美国不会在我们的土地上允许它， 美国爱国者与为自由而呐喊的中国公民站在一起。”
+
+
+
+> I agree. Chinese people are victims of Communism. America will not allow it on our soil. American Patriots stand with Chinese citizens who cry out for freedom. [https://t.co/XAD6W5ARNR](https://t.co/XAD6W5ARNR)
+> — Lin Wood (@LLinWood) [December 4, 2020](https://twitter.com/LLinWood/status/1334901395246473225?ref_src=twsrc%5Etfw)
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
 0

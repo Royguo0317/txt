@@ -1,20 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 林伍德：中国人民是共产主义的受害者
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/618158/)
+## 洛夫勒输了，深陷在中共国的钱里 12/4
+` Mike迈克小哥` [轉載自GNews](https://gnews.org/zh-hans/618204/)
 
-- 编辑：文顺
-- 翻译：Victor Torres
-
-
-**西班牙2020年12月5日电/西喜社/**——林伍德周五推文表示，中国人民是共产主义的受害者。 他说：“美国不会在我们的土地上允许它， 美国爱国者与为自由而呐喊的中国公民站在一起。”
-
-
-
-> I agree. Chinese people are victims of Communism. America will not allow it on our soil. American Patriots stand with Chinese citizens who cry out for freedom. [https://t.co/XAD6W5ARNR](https://t.co/XAD6W5ARNR)
-> — Lin Wood (@LLinWood) [December 4, 2020](https://twitter.com/LLinWood/status/1334901395246473225?ref_src=twsrc%5Etfw)
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
+林伍德律师 Lin Wood @LLinWood:
+道格·柯林斯@RepDougCollins赢了50％以上，而@KLoeffler(美国佐治亚州联邦参议员凯利·洛夫勒)输了。 凯利·洛夫勒和她的丈夫深陷在共产主义中国的钱里。 这就是为什么她不要求将佐治亚州立法机关下令召集特别会议(调查选举欺诈)。
+醒来，佐治亚州和美国！ 我们必须反击共产党浪潮。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04232330/%E6%B4%9B%E5%A4%AB%E5%8B%92%E8%BE%93%E4%BA%86%EF%BC%8C%E6%B7%B1%E9%99%B7%E5%9C%A8%E4%B8%AD%E5%85%B1%E5%9B%BD%E7%9A%84%E9%92%B1%E9%87%8C-124.png)
 0
