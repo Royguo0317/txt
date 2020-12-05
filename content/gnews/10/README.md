@@ -1,60 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》每日简报早间版 2020.12.04&#8211;NewYork Time
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/618565/)
+## 美司法部与孟晚舟就解决刑事指控展开谈判
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/619058/)
 
-《路德社》出品； 编辑：路德社精选新闻专栏组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05023700/1204-AM-ZH-scaled.jpg)
-1204早间要闻-NewYork Time
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05064830/Picture91.png)华为财务总监孟晚舟因涉嫌违反美国对伊朗制裁而面临银行欺诈指控
+图片来源：DARRYL DYCK/THE CANADIAN PRESS/ASSOCIATED PRESS
+据知情人士透露，美国司法部正在与华为技术有限公司财务总监孟晚舟讨论一项协议，该协议将允许她从加拿大返回中共国，条件是承认在一件刑事案件中的不法行为，该案件也使得中共与美国和加拿大的关系趋于紧张。
 
-听写：文宝Porsche        翻译及校对：阿軒Action
+## **什么是****“延期起诉协议”**
 
-**美国防部正式将中建、中海油、中芯国际和国际工程咨询公司列入制裁名单**
+据称孟晚舟律师团最近几周与司法部官员正在讨论达成一项“延期起诉协议” 的可能性，这种协议通常用于企业，极少用于个人。孟晚舟被要求承认司法部对她的部分指控，如果她配合的话，检察官会考虑延迟指控甚至随后撤销指控。知情人士说，这项“延期起诉协议”不仅将允许她返回中国，而且会缓解中共和加拿大的关系，但显然会继续恶化中美关系，这笔交易还可能为释放被中共拘留的两名加拿大男子铺平道路。
 
-由国防部决定的对这四家公司的制裁为永久制裁，直至被众议院三分之二多数投票终止。这四家军民融合公司，表面是安全部牵头的公司，实际上涉及统战部、总参、中联部、外交部等中共情报部门，这些部门派出的每一个人都带着秘密任务。这些公司被正式制裁后，美国人、美国供应商、华尔街都必须停止为其提供服务。
+孟晚舟两年前在温哥华转机时被捕并一直被软禁在家，此后她通过可能会花费数年的加拿大上诉程序避免被引渡到美国。一直以来孟晚舟自认没有做错任何事情，一直反对这项协议。两名知情人士说，孟晚舟最近因不同意条款内容而拒绝了一份协议草案。据说孟晚舟和美国司法部双方本周会再次谈判，希望能在川普总统本次任期结束之前达成协议。
 
-**DOD**** ****officially**** adds CSCEC, CNOOC, SMIC and CIECC to ****sanction**** blacklist.**
+川普政府将华为视为国家安全威胁，并表示孟晚舟在伊朗的所为是华为不法活动的典型例子。美国要求引渡孟晚舟的举动激怒了中共，中共指责美国歧视华为，并呼吁加拿大释放孟晚舟。
 
-The sanctions imposed by the DOD against these companies are permanent until the House revokes it with two-thirds votes.  These four military-civil-fused companies seems to be under the leadership of Ministry of State Security of CCP, while it in fact ties with the CCP’s intelligence departments, such as the United Front Work Department, (Communist) China Emblem PLA.svg and Ministry of Foreign Affairs, etc., which has expatriated their agents with secret missions. After these companies are officially blacklisted, every American and every American supplier, as well as the Wall Street, are not allowed to provide service for them anymore.
+## **孟晚舟案件回顾**
 
-**国家情报总监华尔街日报发文：中共对美国会议员的渗透频率是俄罗斯的****12****倍****，是伊朗的****6****倍**
+孟晚舟是华为创始人任正非的女儿，华为一直被美国指控从事技术盗窃并可能协助中共间谍活动，但华为予以否认。 孟晚舟辩称自己遭到了错误的指控，美国的引渡请求是基于政治动机，好让美方在与中共国的贸易谈判和技术纠纷中获得上风。
 
-渗透频率倍数这个数据的提出，意味着几乎每个国会议员都在FISA法案下被纳入了合法监控范围，这也是众议院能如此顺利通过《外国公司问责法》的原因。拉特克利夫还说，他对自己看到的情报感到震惊，中共对国会议员行贿、勒索，让其只通过对中共有利的法律，包括习近平在内的中共高层知道病毒真相但对全世界撒谎，武汉就是病毒的起源地，中共正在盗窃美国对病毒的研究。
+孟晚舟案源于她在2013年一次与金融机构的会谈中做了虚假陈述，掩盖了华为与伊朗的商业关系。该金融机构随后帮助华为处理了数亿美元的交易，而这些交易有可能违反了美国对伊朗的制裁措施。孟晚舟律师团在6月份告诉加拿大法院，美方做出了“不当的陈述”，忽略了那次会谈中已经提及了华为在伊朗的业务的部分。 今年5月，加拿大不列颠哥伦比亚省的一名法官裁定，美国已经通过了一项引渡孟晚舟的关键测试，但预计本月晚些时候和明年将继续进行更多听证会。目前孟晚舟正在保释中，必须佩戴脚踝监控器。
 
-**DNI said in the Wall Street Journal that Communist China is waging a ****“massive influence campaign” targeting US lawmakers with six times the frequency of Russia and twelve times that of Iran.**** **
+她的逮捕引发了一次重大外交对抗，在此期间，两名加拿大人被中方拘捕，其中包括一名正在休假的外交官，两人今年早些时候被指控犯有间谍罪。
 
-The noted frequency of “mass influence campaign” demonstrates that almost every congressman or congresswoman is under the surveillance of FISA, which should be the reason why the House easily passed the Holding Foreign Companies Accountable Act. Ratcliffe commented that he was shocked by the intelligence he gets, that CCP bribes and blackmails the congressman into voting for pro-CCP policies and bills. The top CCP leaders including Xi Jinping have known the truth of (CCP)Virus but lie to the world. Wuhan is the origin of the (CCP)Virus and Communist China is stealing the US’ studies about the coronavirus.
+加拿大总理贾斯汀·特鲁多在6月表示，对迈克尔·科夫里格和迈克尔·斯帕沃的拘捕是不可接受的， “不仅加拿大人，世界各地的人都深表关注，他们认为中共此举是为实现其政治目的。”
 
-**美参议院通过《技术移民公平法》，对中共军人和党员不予发放签证和绿卡**
+斯帕沃的家人尚未公开谈论他的被捕事件，而科夫里格的妻子则表示说他是无辜的。
 
-这是该法案最大的亮点，第一次在法律中明确将中共和中国人区别开来。这是爆料革命三年多努力的结果。这让美国这一刀切下去的时候，保留了中国人中的正义力量—新中国联邦的公民，有了这个火种，新中国联邦一定会成为有民主、自由、法治，更是有实力的国家。
+## **美司法部放弃起诉的可能性**
 
-**US Senate passed Fairness for High Skilled Immigrants Act, banning CCP members from visas and green cards.**
+最近几周，中共党媒《环球时报》还特意发文表示希望孟晚舟的案子可以从即将上任的拜登政府那里获得反转的机会。司法部前国家安全官员戴维·劳夫曼表示：孟晚舟案事关重大，再加上检察官可能会考虑地缘政治利益，他并不认为未来司法部会放弃指控。
 
-The highlight of the bill is that it explicitly distinguishes Chinese people with CCP, which should be the result of the effort of Whistle-blowers Movement over 3 years. It preserves and protects the righteous power of Chinese, the citizens of New Federal State of China, when US is taking measures to eliminate the CCP. With the tinder of free Chinese, New Federal State of China must be a country of democracy, liberty, rule of law and power.
+作为威金律师事务所和达娜律师事务所的私人执业律师，劳夫曼针对此次谈判表示： “司法部放弃刑事定罪属于特例，但是有时候执法利益会被美国的总体外交政策利益所取代。鉴于加拿大孟晚舟案及其对美中关系的影响，该案也许有可能成为这种特例。”
 
-**FOX****金牌主持人****Tucker****说：习近平轻则过失杀人、重则大屠杀罪**
+虽然释放孟晚舟有助于缓解政府间的紧张关系，但该案已导致加拿大人对中共国的负面看法加深，这在很大程度上是由于两个加拿大人被中共拘留所致。
 
-他还说，閆博士冒着生命危险来到自由世界，揭露病毒源于中共实验室，却被与中共独裁者勾结的高科技公司噤声。閆博士揭露的病毒来源让美国看清中共邪恶本质，而大选被操纵则让美国明白中共是来消灭自己的，忍让几十年后再无退路，唯有反击。
+中共表示孟晚舟在加拿大被捕与两加拿大人在中共国被捕之间没有任何直接联系，孟晚舟被捕后九天，加拿大人科夫里格和斯帕沃分别在中共国两个城市相继被捕。然而，中共外交官表示，解决孟晚舟的案子将有助于确保两名加拿大人获得自由。
 
-**Fox News’ famous host Tucker Carlson said Xi Jing Ping at best has committed a criminal negligence but at worst is a mass murderer.**
+司法部对华为的追查是川普政府对中共科技公司的制裁行动之一。检察官于今年早些时候还提出了新指控，指控华为及其两个美国子公司涉嫌敲诈勒索，并密谋窃取商业秘密。美国的制裁不仅限制了华为获得美国关键芯片供应的能力，也鼓励其他国家放弃使用华为5G移动通信网络设备。
 
-He also said that Dr Li-Meng Yan has risked her life for fleeing to the land of freedom, to reveal that the (CCP)Virus is originated in the CCP’s labs, however, she is muzzled by those Big Techs colludes with the CCP. The Origin of CCPVirus revealed by Dr Yan has US see through the evil of the CCP while the manipulation of the Election make the US truly aware, that CCP is coming for it and there is no way out but to strike back and take it down, as they have tolerated this demon for decades.
+[原文链接](https://www.wsj.com/articles/u-s-in-talks-with-huawei-finance-chief-meng-wanzhou-about-resolving-criminal-charges-11607038179)
 
-**乔拜登说自己与哈里斯有原则分歧就必须辞职**
-
-乔拜登说，如果我与哈里斯有某些原则分歧的时候，我会（被）患上某些疾病，而且我必须辞职。
-
-**Joe Biden said he must resign if he has a “fundamental disagreement” with Harries.**
-
-Joe Biden said should he has a “fundamental disagreement” on a “moral principle,” he would have “developed some disease” and resign.
-
-
-
-文案：《路德社》文编组
-翻译：《路德社》翻译组
-审核校对：玫瑰天空
-上传排版：青葫芦娃&玫瑰天空
+翻译报道：小蚂蚁在行动
+校对整理：人间四月
 
 0
