@@ -1,35 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【突发】林伍德：是时候让美国决定是要自由还是暴政
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/617592/)
+## 德意志时讯：1. 德国新冠病毒疫情数据更新 2. 德国猪肘子要对新冠病毒负责吗？3. 病毒已经在中国传播了很长时间
+` Himalaya Friends Germany` [轉載自GNews](https://gnews.org/zh-hans/617666/)
 
-- 编辑：文顺
-- 翻译：Victor Torres
+2020年12月3日
 
+1.**德国新冠病毒疫情数据更新**
 
-***更多真相，请关注*** ***[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+新增确诊病例：22,910
 
-**西班牙2020年12月4日电/西喜社/——**刚刚，林伍德（Lin Wood）发推表示，中共用生物武器袭击了美国，并试图窃取美国大选，是时候让美国决定是要自由还是暴政。
+死亡：448
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04180453/00.jpg)
+**2.德国猪肘子要对新冠病毒负责吗？**
 
+信息来源：德国《图片报》（Bild）
 
+原文标题：[IMMER VERRÜCKTERE PEKING-ENTEN! Deutsche Schweins-Hax’n schuld an Corona?! Chinas dreiste Propaganda-Maschine auf Hochtouren](https://www.bild.de/politik/ausland/politik-ausland/corona-pandemie-chinas-dreiste-propaganda-maschine-auf-hochtouren-74251570.bild.html)
 
-> Communist China attacked our county with biological weapon, Covid-19. Communist China attacked our country by trying to steal US national election.
-> 
-> Time for America to decide whether it wants freedom or tyranny. Fight for [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw), not for Xi Jinping or his puppet Biden.
-> — Lin Wood (@LLinWood) [December 4, 2020](https://twitter.com/LLinWood/status/1334964371215233027?ref_src=twsrc%5Etfw)
+信息提供：Nena
 
+编辑整理：文园
 
+校对：Maria123 自由自在
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04180441/01.jpg)
+德国《图片报》（Bild）报道：全世界都在遭受中国（武汉）爆发的新冠病毒的危害，然而中国领导层却越来越热衷于在国外寻找替罪羊——甚至称病毒是从德国进口的！
 
-**推文翻译：**
-中国共产党用生物武器中共病毒袭击了我们的家园。 中国共产党通过试图窃取美国大选，袭击了我们的国家。 是时候让美国决定是要自由还是暴政。 支持川普，而不是习近平或他的木偶拜登。
+中共的宣传机关英文报纸《环球时报》（Global Times）连续数周每天都在报道，新冠病毒起源于巴西、印度和意大利等地，而非武汉。还说中国的新感染病毒来自美国、巴西以及德国的冷冻食品。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+中国媒体声称新冠病毒根本不是来自中国。《南华早报》（South China Morning Post）报道了一份所谓的科学刊物消息：“根据论文，在武汉疫情发生前，就已经至少有8个国家发现了突变毒株。”病毒传人的第一次传播可能发生在印度次大陆。中国研究人员称，这一结论是基于对该病毒株的研究。他们认为最早爆发的国家是印度或孟加拉国。“尽管新冠病毒最早是在武汉发现的，但并不是起源地。” 中国疾病预防控制中心原首席流行病学专家曾光在一次学术界在线会议上如是说。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
+评论：德国通俗报纸《图片报》是欧洲最畅销的报纸之一，世界范围内发行量也名列前茅。该报今日报道讽刺中共高层和中共国媒体在新冠病毒来源问题上胡乱撒谎，势必引发德国主要媒体大量公开质疑中共国病毒真相的趋势。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
+3. ZDF（德国二台）今日网12月1日报道
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+信息来源：ZDF德国二台
+
+原文标题：[“Virus hat in China schon länger zirkuliert”](https://www.zdf.de/nachrichten/politik/corona-china-kekule-100.html)
+
+标题：病毒已经在中国传播了很长时间
+
+信息提供：Mildseven
+
+翻译编辑：文园
+
+校对：Maria123 自由自在
+
+缘起：病毒学家亚历山大·凯库莱（Alexander Kekulé，德国）曾经在早前接受了ZDF（德国电视二台）新闻节目采访，当时他表示，目前流行的新冠病毒是武汉原始版本的变异版。具体来说，他认为，“现在世界上到处都能检测到的新冠病毒，是在意大利北部传播的病毒，不是在武汉。所以，那里基本上就是世界性大流行的开始。” （注：病毒学家在这里故意偷换概念，病毒来源和病毒变异） 中国凤凰卫视在其新闻节目中引用了这段德国ZDF电视台采访这位科学家的言论，借外国科学家的口来否认病毒来源是武汉。
+
+当ZDF德国二台发现中国凤凰卫视引用了这个采访的言论后，德国电视二台再次连线采访了这位病毒学家。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04180428/02.jpg)
+正文：病毒学家亚历山大·凯库莱的言论（意大利北部发现病毒）被中国媒体解读为，新冠病毒根本没有在武汉扩散。这一言论正遭到凯库莱强烈的反驳。
+
+凯库莱坚决地回绝了中国凤凰电视台对他的言论所做的歪曲解释。他称，大流行的起源就是在中国，必须到现场进行进一步调查。
+
+中国凤凰电视台此前曾解释说，ZDF （德国电视二台）节目主持人马库斯-兰兹（Markus Lanz）节目中（接受采访的）这位病毒学家认为，新冠病毒大流行并非源于中国的武汉，而是意大利北部地区。
+
+凯库莱这次强调：冠状病毒是来自中国的。“尽管意大利人发现，在尚可使用的旧血液样本中，针对这种病毒的抗体可能在2019年9月下旬就已经检测到了。”他解释说：“目前对意大利城市的废水进行的调查，去年12月在巴黎也发现了第一个病毒的证据，而结论表明，它们与中国的（新冠）病毒截然不同。”凯库莱强调，调查新冠病毒的来源非常重要。“而我想提醒大家的是，中国人(中共国)到目前为止还没有让世界卫生组织派人去调查疫情的来源。”
+
+评论：病毒学家亚历山大·凯库莱是没有职业操守的科学家，说话模棱两可、出尔反尔，在ZDF的电视采访中很狡猾，在病毒来源和病毒变异两个词上偷换概念。他第一次接受ZDF电视台采访时明确说，病毒来源不是武汉。中共国凤凰卫视故意引用德国收视率最高的电视台之一德国电视二台的“病毒学家言论”，误导中国及世界不明真相的老百姓，掩盖中共病毒的真相。第二次接受采访时又一再强调调查病毒来源的重要性，而且必须由世卫组织去调查。ZDF主持人在采访时支支吾吾，行为可疑。看似公正，实则在带风向。
 
 0
