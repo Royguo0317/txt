@@ -1,21 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/11/25-26 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/619394/)
+## 看七哥视频——去雾霾难 去心霾更难
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/619493/)
 
-戰友之家圖文摘要及多語組
+```
+作者: 儒为
+校对/发稿人: Ting Guo
+```
 
-[305-306\_English\_1125-1126\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081304/305-306_English_1125-1126_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081304/305-306_English_1125-1126_CCP_Virus_Updates.pdf)
 
-[305-306\_French\_1125-1126\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081230/305-306_French_1125-1126_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081230/305-306_French_1125-1126_CCP_Virus_Updates.pdf)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05085717/Unknown-5-e1607177517583.jpeg)图片来源: 家庭爆笑漫畫
 
-[305-306\_German\_1125-1126\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081156/305-306_German_1125-1126_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081156/305-306_German_1125-1126_CCP_Virus_Updates.pdf)
+2015年在网上看到了前央视著名主持人柴静自费拍摄的聚焦空气污染深度调查视频（穹顶之下），优酷一天点击率将近600万次。相信每个看到这个视频的都会震惊，我们每天都生活在雾霾之下，而不是雾下，我也因此明白了雾霾和雾的区别，也明白了掩藏在雾霾之下的贪婪和堕落。
 
-[305-306\_Japanese\_1125-1126\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081247/305-306_Japanese_1125-1126_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081247/305-306_Japanese_1125-1126_CCP_Virus_Updates.pdf)
+回想自己懵懵懂懂的一路走来，和大多数农村孩子一样，读书是我们唯一能够快速改变自己命运的路，小学 初中 高中 大学 工作 成家立业，我还算是幸运的，能走出父辈赖以生存的一亩三分地来到城市中生活，光荣的当上了房奴，车奴，并甘之如饴。
 
-[305-306\_Korean\_1125-1126\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081213/305-306_Korean_1125-1126_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081213/305-306_Korean_1125-1126_CCP_Virus_Updates.pdf)
+随着生活的改善，才有了一些闲暇时间让我看看外边发生了什么。不仅仅只是低着头，只能看得到自己脚下的那点路，这也是我们生活在中共国中老百姓普遍的生活状态。在别人告诉你一些事实，有的人会思考，会想办法做出改变；但有的人只能在满满的无奈之下选择蒙住自己的眼睛，蒙住自己的心灵；甚至有些人会释放自己的贪婪和邪恶。互害已成中共国当下的生活主流，权钱色成为每个人的追求，底线思维让我们每个人都越来越没有底线。宗教信仰，法律，民主也变成了人们敛财的工具。
 
-[305-306\_Spanish\_1125-1126\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081140/305-306_Spanish_1125-1126_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05081140/305-306_Spanish_1125-1126_CCP_Virus_Updates.pdf)
+我突然感觉到很迷茫，该何去何从，逃离大城市去山清水秀的没有雾霾的小城市当中去生活？但雾霾掩盖下的心霾该怎么逃离？
+
+看七哥视频，七哥说去雾霾难，去心霾更难。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/01052933/image0.png)*[**h**](https://discord.gg/77fCxw5mFv)**[ttps://discord.gg/77fCxw5mFv](https://discord.gg/77fCxw5mFv)**
+**[https://gab.com/himalaya\_italy](https://gab.com/himalaya_italy)***
+
 
 0
