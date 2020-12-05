@@ -1,23 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国收紧对中共的签证政策
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/618273/)
+## 【军事快讯】澳美联合研制超高音速导弹，以应对CCP威胁
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/618319/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04233951/1-19.png)图片来源：IANS
+作者：纽约香草山写作组 人间世
 
-据法新社 (Agence France-Presse)在拉普勒 (Rappler)的报道，本周国务院将针对中共党员发放只能允许一次入境，且最多停留一个月的签证。除此之外，对于那些在网络上以公布个人资料恐吓他人的中共党员，国务卿迈克·蓬佩奧 (Mike Pompeo)官方发表处理结果。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03014137/logo-3-1.jpg)
 
-中共统战部联合一些海外组织，一起恐吓威胁学术界，商界，华侨社区和民间团体等成员，并且打压那些为中国各地受到人权侵犯而发声的人群。那些在网上支持中共政策的运动，都会受到官方媒体的赞扬，相反，对任何违背中共利益的人，中共就会将这些人的家人信息公布与众，以此达到政治恐吓的目的。
 
-对此蓬佩奧表示，根据《移民与国籍法》第212(a)(3)(C)，将会对这些推行中共专制暴力威胁他人，窃取或公布私人信息，从事间谍活动，恶意干涉美国政治，学术自由，个人隐私和商业活动的中共成员实施签证限制。美国不欢迎那些违反国际秩序的人，呼吁中共停止通过胁迫和恐吓手段来压制言论自由。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03085746/%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF.jpeg)
+澳大利亚国防部长于12月1日表示，澳大利亚和美国将联合研制超高音速导弹，以对抗中共国与俄罗斯的威胁。
 
-国家情报局局长约翰·拉特克里夫 (John Ratcliffe)周四称中共是 “自二战以来对全世界民主和自由的最大威胁”。
+美国在夏威夷进行超高音速导弹的发射试验（2020年3月19日）（VOA资料图片）
 
-**简评**：签证政策收紧，防止更多中共间谍对美国多层次的渗透，并且惩罚了那些助纣为虐的人群，现在已经到了最关键的时刻，不要和中共一条路走到黑，希望国内更多同胞们快点醒悟，回头是岸，
+据路透社报道，澳大利亚国防部长雷诺兹（Linda Reynolds）星期二（12月1日）表示，澳大利亚将与美国共同研制超高音速导弹，以应对正在研发类似武器的中国与俄罗斯所构成的威胁。雷诺兹在一份声明中说，“我们将继续对先进（武器）能力进行投资，让澳大利亚国防军有更多的选择来遏制对澳大利亚利益的侵犯。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05000450/ewt.png)
+他没有透露导弹研制的具体费用以及投入使用的时间，但澳大利亚今年编列的预算包括68亿美元的高速和远程导弹防御系统的研制费用，内含超高音速武器的研究。
 
-原文链接[1](https://www.rappler.com/world/us-canada/us-restricts-visas-chinese-online-trolls#Echobox=1607130334) [2](https://www.state.gov/u-s-imposes-sanctions-on-peoples-republic-of-china-officials-engaged-in-coercive-influence-activities/)
+超高音速导弹能够以五倍音速以上的速度飞行，而且机动性和飞行高度令其难以被发现和拦截。俄罗斯去年部署了首批能够携带核弹头的超高音速导弹；美国国防部2017年进行了超高音速导弹试验，目标是在2020年代中期进行部署；防务专家认为，中国已经部署或正接近部署携带常规弹头的超高音速武器系统。
 
-翻译报道： Chris
+澳大利亚今年7月表示，将在未来十年内把国防预算提高40%，以获得空中、海上和陆地的远程打击能力。澳大利亚政府正在将其军事重心从太平洋拓展到印太地区。
+
+校对发稿：悟空
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03014137/logo-3-1.jpg)
+
+
+
+
 
 0
