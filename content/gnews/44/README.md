@@ -1,32 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 彭佩奥：中共威胁世界的自由与民主
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/617945/)
+## 沃达格（Wodarg）博士和叶登（Yeadon）博士要求停止所有新冠疫苗研究，并呼吁共同签署请愿书
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/618002/)
 
-- 编辑：文顺
-- 翻译：Victor Torres
+翻译：康州盘古农场 – 黎明的光芒
+
+校对：康州盘古农场 –  烟波浩淼
+
+审核：康州盘古农场-Truemanman
+
+2020年12月1日，辉瑞公司前呼吸系统研究负责人迈克·叶登（Michael Yeado）博士和肺部专家以及前公共卫生部门负责人沃尔夫冈·沃达格（Wolfgang Wodarg）博士向负责欧盟范围内药品审批的欧洲药品管理局EMA提出申请，要求立即暂停所有SARS CoV2的疫苗研究，尤其是BioNtech/辉瑞关于BNT162b的研究（EudraCT编号2020-002641-42）。
+
+沃达格博士和叶登博士要求，为了保护志愿者的生命和健康，不应继续进行这些疫苗研究设计，除非能够合理解决越来越多的著名科学家对疫苗研究设计表达的重大安全担忧。
+
+一方面，请愿者要求，由于众所周知，在一项关键的研究中，由于PCR检测准确性不足，必须使用所谓的Sanger（桑格）测序。这是唯一 一种能够对Covid-19疫苗的有效性作出可靠表述的方法。 基于许多批次质量差异很大的PCR测试，既无法确定疾病的风险也无法确定疫苗可能带来的好处，这就是为什么在人类身上测试疫苗本身是不道德的。
+
+此外，他们还要求，必须通过动物实验等手段，排除以往研究中已经知道的风险，这些风险部分源于冠状病毒的性质。以下几点尤其值得关注：
+
+- 所谓的“非中和抗体”的形成会导致过度的免疫反应，特别是当测试者在接种疫苗后遭遇到真正的“野生”病毒时。 长期以来，例如从猫的疫苗实验中就知道这种所谓的抗体依赖性增强反应，即ADE现象。 在这些研究过程中，所有最初能耐受疫苗接种的猫都在感染野生病毒后死亡。
 
 
-***更多真相，请关注*** ***[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-**西班牙2020年12月4日电/西喜社/——**美国国务卿彭佩奥（Secretary Pompeo）转发国家情报总监的推文并表示，中共对世界范围内的自由与民主构成了威胁，美国必须应对这一挑战。
-
-彭佩奥在推文中说：“川普政府正在明确指出：中国共产党对世界范围内的自由与民主构成的威胁是真实存在的，美国必须应对这一生中难得一次的挑战。”
+- 预计接种疫苗会产生针对SARS-CoV-2的刺突蛋白的抗体。然而，刺突蛋白里也含有syncytin的同源蛋白，它对人类等哺乳动物胎盘的形成至关重要。所以必须绝对排除SARS-CoV-2疫苗可能引发对syncytin-1的免疫反应，否则可能导致接种疫苗的妇女长期不孕。
 
 
-
-> The [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) Administration is making it clear– the threat to freedom and democracy worldwide posed by the Chinese Communist Party is real, and the United States must rise to this once-in-a-generation challenge. [https://t.co/lrtXwoji9Y](https://t.co/lrtXwoji9Y)
-> — Secretary Pompeo (@SecPompeo) [December 4, 2020](https://twitter.com/SecPompeo/status/1334970140597903360?ref_src=twsrc%5Etfw)
+- BioNTech/辉瑞的mRNA疫苗含有聚乙二醇（PEG）。70%的人都会对这种物质产生抗体–这意味着许多人可能会对疫苗接种产生过敏，甚至是致命的反应。
 
 
+- 由于疫苗研究时间太短，无法对后期影响进行实际评估。如同猪流感疫苗接种后的嗜睡症一样，如果疫苗被紧急批准并进行后续观察其效果，数百万健康人将面临不容忽视的风险。尽管如此，BioNTech/辉瑞仍然在2020年12月1日提交了紧急批准的申请。
 
-周五上午，美国国家情报总监约翰·拉特克利夫（John Ratcliffe）警告说，中国是美国目前面临的最大威胁。拉特克利夫表示：“ 我监督情报机构，我的办公室制作了总统每日简报，详细介绍了国家面临的威胁。如果我能从这一独特的角度向美国人民传达一件事，那就是中华人民共和国构成了最大的威胁。 对当今的美国来说，是第二次世界大战以来对全世界民主与自由的最大威胁。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
+**寻求帮助**：沃达格博士和叶登博士要求尽可能多的欧盟公民共同签署他们的请愿书并发送给欧盟药品管理局EMA。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+尊敬的先生或女士，我谨在此共同签署沃达格博士和叶登博士的请愿书，以支持他们紧急请求，中止BNT162b的III期临床试验（EudraCT号2020-002641-42）和其他临床试验。可在此处找到沃达格博士和叶登博士的请愿书的全文
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+[https://2020news.de/wpontent/uploads/2020/12/Wodarg\_Yeadon\_EMA\_Petition\_Pfizer\_Trial\_FINAL\_01DEC2020\_EN\_unsigned\_with\_Exhibits.pdf](https://2020news.de/wpontent/uploads/2020/12/Wodarg_Yeadon_EMA_Petition_Pfizer_Trial_FINAL_01DEC2020_EN_unsigned_with_Exhibits.pdf) 我谨在此恳请欧盟药品管理局EMA立刻对沃达格博士和叶登博士的请愿采取行动。致敬
+
+译者注：目前全世界第一批上市并准备大规模接种的疫苗是辉瑞公司研发的，而此刻两位来自于辉瑞公司的前高级研发人员提出对疫苗安全性的严重关切，值得我们所有人注意并考虑清楚是否接种新冠疫苗!!!
+
+原文链接：
+
+[https://2020news.de/en/dr-wodarg-and-dr-yeadon-request-a-stop-of-all-corona-vaccination-studies-and-call-for-co-signing-the-petition/](https://2020news.de/en/dr-wodarg-and-dr-yeadon-request-a-stop-of-all-corona-vaccination-studies-and-call-for-co-signing-the-petition/)
 
 0
