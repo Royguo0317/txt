@@ -1,36 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【突发】格拉汉姆公开支持川普废除230条款
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/617519/)
+## 【突发】皮特纳瓦罗：选举是被窃取的
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/617567/)
 
-- 编辑：Victor Torres
+- 编辑：文顺
+- 翻译：Ranting
 
 
 ***更多真相，请关注*** ***[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2020年12月4日电/西喜社/——**四小时前，参议院多数党领袖林赛•格拉汉姆连发三推，公开支持川普总统废除230条款。
+**西班牙2020年12月4日电/西喜社/——**刚刚，皮特·纳瓦罗（Peter Navarro）转发推文表示，他看到的一切表明选举是被窃取的。
 
-林赛•格拉汉姆说：“我支持川普总统坚持废除第230条款，这是国防授权法案的一部分。‘科技巨头’是美国唯一不能因其商业行为而受到起诉且没有受到有效监管的行业。这必须结束。”
-
-他说：“这是我们改变路线的最佳时机，乘我们还有机会这么做时。在支持我们国家的军事方面，我不会落后于任何人。但是，第230条款允许美国的信息流通从根本上被改变。”
-
-他还表示：“我们有一个国防部来保护我们的自由，但是如果我们不更改第230条款，我们的自由就会受到威胁。”
+皮特·纳瓦罗在推文中说：“我看到了什么：誓约书，证词，视频，照片，法庭文件。错在哪里：彻头彻尾的舞弊、处理不当的选票、正当程序的失误、违反平等保护的规定、投票机的恶作剧、统计上的异常。”
 
 
 
-> I support President [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw)'s insistence Section 230 repeal be part of the defense authorization bill. 
->  
-> Big Tech is the only industry in America that cannot be sued for their business practices and are not meaningfully regulated. 
-> 
-> This must come to an end.
-> — Lindsey Graham (@LindseyGrahamSC) [December 4, 2020](https://twitter.com/LindseyGrahamSC/status/1334901016429522944?ref_src=twsrc%5Etfw)
+> What I'm seeing: Affidavits, testimony, video, photos, court filings. What's wrong: outright fraud, mishandled ballots, due process fouls, Equal Protection violations, voting machine hijinks, statistical anomalies. [https://t.co/EzwOnSjXe7](https://t.co/EzwOnSjXe7)
+> — Peter Navarro (@RealPNavarro) [December 4, 2020](https://twitter.com/RealPNavarro/status/1334967093373054977?ref_src=twsrc%5Etfw)
 
 
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221622/PHOTO-2020-11-26-13-19-21.jpg)
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20124027/PHOTO-2020-11-18-22-21-04.jpg)
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
