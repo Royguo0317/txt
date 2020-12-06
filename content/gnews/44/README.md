@@ -1,25 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 20201205晚间路德社新闻总结
-` 东京樱花团-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/622760/)
+## 文贵说｜系列图片连载（六十七）
+` GM98` [轉載自GNews](https://gnews.org/zh-hans/622778/)
 
-HTS-01C-202012-006
+## 463.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06104739/102.jpg)
+佛教的伟大就是，各有各的因缘，各有各的福报，各有自己的轮回、福报，那都是你自己承担的。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06104023/234567.jpg)
+——郭文贵先生2020年8月9日
 
-1、美国情报总监说中共正在进行超级士兵实验；
+## 464.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06104728/103.jpg)
+我们人生在世最高境界就是铲除掉人生对死亡的恐惧，和对衰老、疾病、穷败、失败潦倒的这种恐惧。只要这些没了，你不会对生死、也不会对任何东西再有恐惧。
 
-2、美国国会参议院情报委员会两党领袖发表联合声明警告，中国共产党不会放弃追求主导世界的野心，中共对美国构成重大威胁；
+——郭文贵先生2020年8月9日
 
-3、中共通过超限战造成的对美威胁远超前苏联；
+## 465.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06104639/104.jpg)
+投资爆料革命可能也会失败，不可能百分之百赢，但是如果你没去做，你一定会后悔！
 
-4、彭佩奥演讲说中共国并没有通过经济发展走向民主，CCP就没想过成为正常国家，这不是美国对CCP的战争，而是自由对抗暴政独裁；
+——郭文贵先生2020年8月9日
 
-5、FBI推进了对加州参议员腐败案的调查；
+## 466.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06104715/106.jpg)
+只要你相信有来世，你不会惧怕死亡和恐惧，你会多积德少做恶。
 
-6、CNN处于混乱中，各方撤资转手；
+——郭文贵先生2020年8月9日
 
-7、美国空军中将麦金纳尼最新采访说，美国必须立即执行2018年9月总统令，进入国家紧急状态；实施暴动法，防止按提法、黑命贵骚乱；宣布戒严，暂停人身保护令，设立军事法庭；
+## 467.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06104759/107.png)
+我们不要分党派，就分正义与否，还有一个能否灭共，还有一个如何能让更多人不成为单身母亲、单身父亲。这才是重点！
+
+——郭文贵先生2020年8月9日
+
+## 468.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06105039/108.png)
+我一定要干掉共产党！我只有赢才行！我拯救一两个人是解决不了问题的。
+
+——郭文贵先生2020年8月9日
+
+## 469.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06105049/109.png)
+正义不分党派，正义不分好坏和喜好。
+
+——郭文贵先生2020年8月9日
 
 0
