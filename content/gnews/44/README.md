@@ -1,69 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 北大西洋公约组织 (NATO)是什么组织，为什么北约可以合法地打击中共国
-` GM127` [轉載自GNews](https://gnews.org/zh-hans/621813/)
+## 【文字版】2020年12月06日面具先生直播
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/621905/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04232318/Lude_20201204-PM-coverphoto2.jpg)
-路德12月5日晚节目详细解读什么是北大西洋公约组织（北约），聚焦美国国务院关于北约的连续发推，强调联盟中任何一个国家被攻击就是对联盟的整体攻击；中共国已经犯下反人类罪，北约可以合法打击。
+文稿整理：康州盘古农场-64喜马拉雅、康州盘古农场-Antsee-GTV
+审核：康州盘古农场-文韵
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/28075540/photo_2020-11-28_20-53-52.jpg)
+尊敬的战友们，大家好，我是面具先生
 
-12月5日下午美国国务院的推文：
+1、亲爱的战友们，今天是在线回答战友们的问题和战友们一起乱聊聊接下来即将发生的事情以及战友们最近关心的一系列的问题和该做哪些准备，局势将向哪个方向发展。战友们，接下来活着是最重要的，如何活着？如何能好好的活着。很久没过过这样的日子，但可能这样的日子就要来了，来了我们就面对。面对一定要自信，不要慌张，一定不要失去信念。因为我们有新中国联邦，有爆料革命这么多战友，战友们请把心放进肚子里。接下来的情况会非常糟糕，但是对于做好充足准备(提前未雨绸缪的人是受上天眷顾)的人,总是能顺利渡过难关。福和祸总是相依相伴，大难不死必有后福。
 
+2、现在对于每一个人来讲最重要的问题就是你的心态，心态是最重要的，一定要把心态放好，一定要有信念和信心。战友们别忘了，你的背后还有新中国联邦，你还有爆料革命这么多战友，只要你做好充足准备就没什么好怕的。心态第一，心态要是垮了，即使身边有金山银山也一文不值。第二个就是身体，这就是郭先生三年来告诉大家的要健身。好的心态好的身体至关重要。第三是健康，千万别感染上CCP病毒。做好一切防护，备好必须的医疗用品和日用品，不要太大规模的屯东西，这会引起CCP的关注。郭先生之前直播时说很多大量屯粮的战友被CCP找到并没收。战友们一定要聪明智慧，屯够用的基本就可以了。接下来就是信息时代最重要的东西-信息，它是视力和听力的延伸。太空争夺战是二战之后美苏大战最重要的较量，传输信息的核心就在太空。中共的北斗系统以及依附与它的中过移动中国联通都会完蛋。在那时国内的网络就会陷入瘫痪，与外部信息的输送基本处于隔绝状态。战友们对于网络一定要自信，最近那么多卫星上天，马斯克背后的大股东所在的国家与郭先生关系非同寻常。此时每个战友在经济以及各方面都允许的前提下最需要准备的，就是郭先生在2月29日直播时说的卫星电话。最好的就是铱星电话，它很耐用是最好的，卫星电话超级费电战友们可以多买几块电池。卫星电话需要卡，每种卡的日期和分钟数都有区别。(卡都有限期，有的限期一个月，有的限期一年，都不一样)，卡的价格也很贵，战友们要策略性准备。
 
+3、川普总统大选后首先是外交战，然后就是金融战，货币战，军事，各种战争全方位开始。电话卡的有限期最好买时间长点，做长远准备。卫星电话的接收条件十分苛刻，还要准备能让卫星电话成功连接信号的设备(自制也可以，一定要让卫星电话连上卫星信号)。要准备小锅(卫星电视大锅盖)，所有GTV的节目都会在卫星电视上直播。北约之前的对手也加入到了北约联军，参加联军的范围和国家超出大家的想象，一定不是八国，甚至是180国。把这些国家连接在一起的纽带不只是美国大选，还有在德国法兰克福发现的Dominion作弊软件服务器证明了很多国家的大选都是有问题的。最重要的就是病毒，地球上所有被病毒感染的国家，因为病毒死亡的国家数不胜数，就知道接下来庚午灭共的灭共联军的规模有多大。
 
-> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): NATO is an indispensable pillar of American national security and we will continue to work together to strengthen this important alliance. Read more about the U.S.-NATO Alliance: [https://t.co/mFHpSxcGj4](https://t.co/mFHpSxcGj4) [pic.twitter.com/UbL5Pr7Nql](https://t.co/UbL5Pr7Nql)
-> — Department of State (@StateDept) [December 5, 2020](https://twitter.com/StateDept/status/1335298651279794177?ref_src=twsrc%5Etfw)
+4、郭先生2018年提到一位军火商大佬的视频，郭先生说：“他现在提前到了，这个人等未来我会适当的时候说出来。这个人是美国过去军火商老大，军火商真正的老大！几个大的军火制造公司他都是大股东。他带了他儿子来的，刚才提前就到了。这个人他在头两天跟我说过一句话，他要发起成立反共联盟。邀请了30几位前其他世界各个国家的元首和大的基金金融集团。而且当他知道德克萨斯州开始要发起议案坚决反对任何教育和美国国家的养老基金和退伍基金投资中国的时候，他说他马上就会在所有有关上市公司他会发起反对任何人直接投资CCP。而且他还接着要成立一个基金，专门拯救在海外被陷害的华人，西藏人和新疆人。这个老爷子不简单！行了，马上要来了，我得赶快去等着接待他。他要提前来了他要提前和我说一说。就是说我这个独立顾问，他老发动我让我来当CEO，基金会的CEO。我说我我一辈子不参与组织，一辈子不参与任何的党派。我说我只做独立顾问。
 
+这个老人家他来了，头两天我去他家吃了顿饭，全家都在说服我。他的其中一个儿媳妇是中国人最喜欢的好莱坞演员，一直在说服我。我说你就是给我金山银山，给我什么我都不会做的，这是我的原则。但是这个组织等成立公开宣布以后，大家会知道这是一个什么样力量的组织。大家不用再猜，绝对是这么多年来全世界最有权，最有钱，最有名的人成立的一个反共组织。我可以跟你保证，共产党会吓的尿裤子，睡不着觉。战友们我就不多说了，本来还有其他几个话题，我就不多说了。”
 
+5、虽然接下来发生的事情会很猛烈，但是我们有爆料革命，新中国联邦，爆料革命新中国联邦对战友们的保护以及准备和他在世界上能做的事情，资源，超出战友们的想象。战友们准好心态、身体，和通讯工具，可以联系所有在全世界各地已经存在的农场和准农场，以及接下来更多的履行，帮助，解救中国同胞的农场。战友们一定要和他们密切联系，喜马拉雅农场可以说是将来做的最好，最有实力的可以给所有中国同胞提供最好的解决方案的地方。他们会尽可能帮助满足条件并需要帮助的战友和同胞，保证你们的安全。郭先生为战友和同胞们提供的帮助是超乎想象的。
 
-翻译：北约是美国国家安全不可或缺的支柱，我们将继续合作以加强这一重要的同盟。 请阅读有关美国-北约联盟的更多信息[1]。
+6、现在不管左媒还是右媒都不敢攻击川普总统，不敢再说拜登100%赢川普总统不行了之类的话。一位在Sandy Springs选区投票站担任20多年管理者在作证时表示，在她任职期间从未遇到过像这次选举这般的情况。从未见过如此糟糕的操作。不单是机器处理的问题，而是监管流程从一开始就千疮百孔。她说过手的成批选票大多数都是有磨损的。她们遇到过一批选票，崭新未开封的那批选票是白的，非常的白。她手里是一份正常的邮寄选票，可以看到这个选票是怎么装到信封邮寄的，选票被折过几次。但那批选票一点折痕都没有，选票如果过了折叠机上面一定会有折痕。但那批选票都没有折痕。她用手摸过选票，然后对坐在旁边的人说，摸一下，这些选票摸起来不一样。当你这么长时间一直摸邮寄选票，你会知道选票的触感。就像你知道真钞票摸起来的感觉，跟玩具钞票摸起来的感觉是不一样的。即使它看起来跟真的一样，而真正引起注意的除了选票触感和没有折痕以外，是这批选票的第一个选项(给填写选票的人涂黑的圈圈)。有一片未填满的新月形空白，有不计其数的选票都有百分百相同形状的空白。她干这个工作这么久知道投票一般都是分布均匀的，但这批选票并非如此。一堆选票里90%都只投给一个候选人，这些都是极端不正常的，尤其是整体的投票计数。为什么98张选票在第一个总统选项上有完全相同形状的空白？为什么这些选票几乎一模一样？很容易就能理解:同一张选票被复制了很多份。
 
-12月5日下午美国国务院再次发推：
+7、关于战友们谈论CCP有多少核弹头？这就是节目里一直讲的美国俄罗斯签署无核协议限制核单数量，CCP不敢去签字的原因。爆料革命从2017年爆料开始，绝对是影响人类命运的，只是很多人忽略了。CCP在吉布提，阿塞拜疆，古巴，以及美国周边部署的一系列军事基地，都是时时刻刻要美国命的。接下来的灭共大战一定会打的原因是美国一定要找到病毒真相，CCP知道美国和全世界一起动手它必死无疑，CCP极有可能不等联军动手先下手为强。CCP在全世界放毒并影响美国大选已经证明了它的不择手段。
 
+8、美国前空军中将托马斯·麦金纳尼 (Thomas Mclnerney)接收采访谈到建议川普总统军事管理。他说，首先川普总统2018年9月颁布了行政令，如果有任何外国人干预选举，就将进入国家紧急状态，执行行政令。然后实施暴动发，1800年代中期制定的。根据以往经验，Antifa黑命贵会在美国主要城市骚乱。第三，要宣布戒严，暂停《人身保护令法》设立军事法庭，这些都是在紧急情况下必须做的。这关系到美国要继续作为民主共和国还是走向集权社会。总统处于危险中，必须非常小心。当然佩洛西、舒默会变得更加疯狂。他们确切知道谁知情，谁参与了，虽然不能告知大家如何知道的，但是他们确切知道是谁。借助戒严令和军事法庭，这些人会被逮捕。两党中都有诚实的美国人，应该让这些人进来。
 
+9、那么，接下来川普总统能打的牌（很多），为什么川普总统的对手不希望他赢？不言而喻。（战争）没有人想打，但是不打不行。CCP违反国际公约，它的军事基地随时准备开炮，美国没有选择。所以一定会发生。是不是会有奇迹？如果CCP内部最疯狂的被消灭，有智慧的站出来和国际合作，引领中国人民，那就太好了，我们非常期盼，但是必须做充足的准备，因为概率很低。福祸相依，爆料革命、新中国联邦会得到国际的认可的。
 
-> Formed in 1949 with the signing of the Washington Treaty, [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) is a security alliance of 30 countries from North America and Europe. Read more about the U.S.-NATO Alliance: [https://t.co/mFHpSxcGj4](https://t.co/mFHpSxcGj4) [pic.twitter.com/sB5NXQxBch](https://t.co/sB5NXQxBch)
-> — Department of State (@StateDept) [December 5, 2020](https://twitter.com/StateDept/status/1335314329885958150?ref_src=twsrc%5Etfw)
+10、关于病毒的一些预防的指导，战友们有需要的可以保存下。保命、安全、心态都很重要。咱们的农场会有一系列的信息分享和互助方案，尽最大可能，帮战友、同胞们度过难关。现在的习近平就是希特勒，媒体已经没有了不同的声音，他本人膨胀到变态，普通人无法想象它的状态，什么都敢干，绝对的疯狂，第三次世界大战是一定会发生的，无非是什么形式，多大规模，千万不要幻想。做好一切准备，不要等到那一天到来，一切都晚了。大锤落下的时候，你会看到一泻千里的状态。地球灭亡还是CCP灭亡，必居其一。战友们，国内同胞，咱们应尽可能唤醒一个，叫醒一个是一个，尽我们的所能救人。
 
+11、当美国和联军实施战略的时候，他们第一考虑的是赢，代价是其次考虑的。所以多少人会付出代价要看CCP准备多邪恶。我们要做最坏的准备。战友们，不是只有子弹飞，才是杀人和战争，CCP已经用病毒杀死了多少人？所以联军第一考虑的是赢得胜利。据说CCP在尽一切努力销毁证据，能销毁的完吗？无论什么情况下，战友们不要害怕，咱们有爆料革命、新中国联邦，已经比太多人能提前准备了，已经是万幸了，千万别自暴自弃。团结、信息通畅是最重要的，在哪里都不要绝望。新中国联邦的能量超出战友们的想象，所有战友们一定要团结。根据自己的实际情况，在安全的情况下，做足准备。CCP的末日即将到来，前苏联解体的历史即将在中华大地重演，全世界新中国联邦战友们应团结起来，应对人道灾难的准备。在灾难中尽力救助我们的同胞，经过血与火的洗礼，中华民族必将凤凰涅槃般的重生。
 
-
-翻译：北约（NATO）成立于1949年，签署了《华盛顿条约》，它是由北美和欧洲的30个国家组成的安全联盟。请阅读更多关于美国-北约联盟的信息[1]：
-
-**The North Atlantic Treaty Organization**
-
-**北大西洋公约组织**
-
-Formed in 1949 with the signing of the Washington Treaty, The North Atlantic Treaty Organization  (NATO) is a security alliance of 30 countries from North America and Europe. NATO’s fundamental goal is to safeguard the Allies’ freedom and security by political and military means. NATO remains the principal security instrument of the transatlantic community and expression of its common democratic values. It is the practical means through which the security of North America and Europe are permanently tied together. NATO enlargement has furthered the U.S. goal of a Europe whole, free, and at peace.
-
-北大西洋公约组织（NATO）于1949年与《华盛顿条约》的签署一起成立，是**北美和欧洲****30****个国家的安全联盟**。 北约的根本目标是通过政治和军事手段捍卫盟国的自由与安全。 北约仍然是跨大西洋共同体的主要安全工具，是其共同民主价值的体现。 这是将北美和欧洲的安全永久地联系在一起的实用手段。 北约的扩大进一步推动了美国实现整个欧洲自由、和平的目标。
-
-Article 5 of the Washington Treaty — that an attack against one Ally is an attack against all — is at the core of the Alliance, a promise of collective defense. Article 4 of the treaty ensures consultations among Allies on security matters of common interest, which have expanded from a narrowly defined Soviet threat to the critical mission in Afghanistan, as well as peacekeeping in Kosovo and new threats to security such as cyber attacks, and global threats such as terrorism and piracy that affect the Alliance and its global network of partners.
-
-根据《华盛顿条约》第5条，联盟的核心是：**对一个同盟的攻击即相当于对所有同盟的攻击**，这就是联合防御的承诺。 该条约第4条确保盟国之间就共同关心的安全问题进行磋商，这些问题已从狭义的苏联威胁扩展到对**阿富汗**的关键任务，**科索沃**的维和以及新的安全威胁，例如网络攻击和全球性威胁。 恐怖主义和海盗行为等威胁到联盟及其全球合作伙伴网络的威胁。
-
-In addition to its traditional role in the territorial defense of Allied nations, NATO leads the Resolute Support Mission (RSM) in Afghanistan and has ongoing missions in the Balkans and the Mediterranean; it also conducts extensive training exercises and offers security support to partners around the globe, including the European Union in particular but also the United Nations and the African Union.
-
-北约除了在盟国的领土防御中发挥传统作用外，还领导阿富汗的“坚决支持任务”（RSM），并在**巴尔干地区**和**地中海地区**执行任务； 它还进行了广泛的培训，并向包括欧洲联盟在内的全球合作伙伴以及联合国和非洲联盟提供安全支持。
-
-国务院的网站链接至2017年4月12日川普总统在北约的讲话[2]。以下为节选：
-
-NATO allies defeated communism and liberated the captive nations of the Cold War.  They secured the longest period of unbroken peace that Europe has ever known.  This enduring partnership rooted out of so many different things, but our common security is always number one, and our common devotion to human dignity and freedom.
-
-**北约盟国打败了共产主义**并解放了冷战时期的被共产主义俘虏的国家。 他们确保了欧洲有史以来最长的不间断的和平。 这种持久的伙伴关系植根于许多不同的事物，但我们的**共同安全始终是第一位，我们共同致力于人的尊严和自由**。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06033940/Lude_20201205-PM_NATO-figure1.jpg)Press conference by NATO Secretary General Jens Stoltenberg and US President Donald Trump
-路德社的解读是：
-
-- 北约行动不需要国会、参议院、总统，可以直接发动打击。
-- 科索沃的罪行是反人类罪，所以北约就是合法地灭它。
-- 中共国的网络攻击已经满足对盟国攻击这一条，所以北约可以灭它。
-- 中共国生产生化武器、利用中国人肉载体散播病毒、利用交通工具传播病毒、利用疫苗杀害中国人民、世界人民（如果能证实的话）就已经构成了反人类罪。
-- 美国国务院连续发推谈北约证实此事的正式程度。
-
-
-参考链接：
-
-[1] [https://www.state.gov/key-topics-bureau-of-european-and-eurasian-affairs/#nato](https://www.state.gov/key-topics-bureau-of-european-and-eurasian-affairs/#nato)
-
-[2] [https://nato.usmission.gov/april-12-2017-joint-press-conference-president-trump-nato-secretary-general-stoltenberg/](https://nato.usmission.gov/april-12-2017-joint-press-conference-president-trump-nato-secretary-general-stoltenberg/)
-
-1+
+0

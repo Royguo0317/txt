@@ -1,35 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新疆制裁&#8212;美国禁止从中共国新疆生产建设兵团进口棉花
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/621796/)
+## 12/05/2020 财经快讯: 受益于美国两院讨论新一轮经济刺激方案, 周五美国股指创历史新高
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/621900/)
 
-俄罗斯喀秋莎农场 银河
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05090921/capture-50.jpg)图片来源：https://cn.investing.com/indices/us-30
+1.12月4日，美国国务卿彭培奥(POMPEO)在美国政府官网发表新闻声明称，美国将对从事暴力胁迫，偷窃，间谍，恶意干涉美国内部事务，学术自由和商业活动的中共官员或从事统战活动的个人实施签证限制。该声明表示，中共长期以来一直寻求在世界范围内传播马列主义思想并施加影响。中共统战部一直致力于资助和支持海外组织宣传中共政治思想，威吓和欺凌那些反对中共政府政策的组织和个人。中共恐吓，胁迫的手段通常包括在网上散布目标对象及其家庭成员的个人隐私（“人肉”）。
 
-校对上传 星河
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06033641/Snipaste_2020-12-06_11-49-58.png)
-12月2日，路透社报道，美国川普政府扩大对中共国新疆的经济制裁，将禁止从新疆生产建设兵团进口棉花，称其强迫被拘押的维吾尔族穆斯林劳动。美国国土安全部同日发布声明，美国海关边境保护局(U.S. Customs and Border Protection)发出暂扣令，可扣留新疆生产建设兵团及其下属和附属产业生产的棉制品，或棉衍生品所制造的产品，包括服装和纺织品等。因为新疆生产建设兵团是一家中共国有的准军事组织。该兵团被指使用强迫劳动，包括罪犯劳动。
+[https://www.state.gov/u-s-imposes-sanctions-on-peoples-republic-of-china-officials-engaged-in-coercive-influence-activities/](https://www.state.gov/u-s-imposes-sanctions-on-peoples-republic-of-china-officials-engaged-in-coercive-influence-activities/)
 
-这是美国海关三个月来采取的第六项行动，目的是阻止新疆的强迫劳动产品进口。今年7月，美国对十多家涉嫌参与新疆强迫劳动的中共国公司进行制裁；9月美国海关与边境保护局禁止从新疆多家公司进口棉花、护发产品和电脑部件等。另外全球有超过190个相关的人权组织发起全球倡议行动，呼吁停止使用涉及新疆强迫劳动的原料，并与在新疆有工厂的中共国供应商断绝合作关系。
+2. 美国Newsmax12月3日报道称，石油输出国组织和俄罗斯（简称OPEC+）于本周四达成协议，同意从明年一月份起增加石油产量50万桶/天，但未能在长期石油政策上达成一致。增产意味着石油输出国组织（OPEC ）和俄罗斯将从明年1月起减产720万桶/日（或自1月起全球总需求的7％），而目前的减产量为770万桶/日。该组织决定将在明年1月后每月聚会一次，以商定石油政策。OPEC+今后每月举行石油会议将使油价走势更加动荡。OPEC+作出决定后，原油价格延续涨势，上涨1.2％，至每桶48.83美元。
 
-美国国土安全部助理部长肯·库奇内利（Ken Cuccinell）表示：“川普总统和美国人民不会容忍中共政府的侵犯人权行为” ，“国土安全部执行美国法律，确保那些侵犯人权者及包括美国公司在内不会利用我们的系统从强迫劳动中获利”。
+[https://www.newsmax.com/t/newsmax/article/999908/7](https://www.newsmax.com/t/newsmax/article/999908/7)
 
-新疆生产建设兵团又称“中国新建集团公司”，位于中国新疆维吾尔自治区，是中共国现存的最后一个生产建设兵团。新疆生产建设兵团是半军事化的政治实体，直接参与了中共当局对维吾尔人的镇压，包括全面监控、拘禁和洗脑。
+3. 路透社报道称，川普政府周五拒绝给TikTok要求其从美撤资的行政命令延期。上周，美国外国投资委员会批准字节跳动公司延长一周(到本周五)以剥离TikTok在美资产。川普总统今年8月的行政命令赋予司法部强制执行权：一旦期限届满，便可执行资产剥离命令；但目前尚不清楚政府何时或如何寻求强制资产剥离。
 
-兵团经济目前以农业为支柱，核心是棉花、水果、蔬菜、粮食、油料、甜菜种植等产业，其中商品棉和番茄酱在世界市场上占有举足轻重的地位。《南华早报》报道称，新疆生产建设兵团的棉花产量占中共国棉花总产量的三分之一。
+[https://www.businessinsider.com/exclusive-us-not-extending-tiktok-divestiture-deadline-but-talks-expected-to-continue-sources-2020-12?r=AU&IR=T](https://www.businessinsider.com/exclusive-us-not-extending-tiktok-divestiture-deadline-but-talks-expected-to-continue-sources-2020-12?r=AU&amp;IR=T)
 
-中共“崴脚部”新闻发言人华春莹周四（12月3日）回应，美国政客一直在炮制强迫劳动的虚假新闻，美国的行为破坏了市场规则。“崴脚部”发言人赵立坚早前称，这完全是美西方一些机构和人员凭空捏造，严重违背事实。
+4. 美国CNBC 发文称，川普总统正在考虑签署一项法案，即《外国公司控股责任法案》，英文名为“Holding Foreign Companies Accountable Act”。该法案可能会使数家中国公司退出美国证交所，并加剧美国与中国之间本已紧张的关系。该法案规定：如果外国公司拒绝向美国会计监管机构开放账目，则该公司需要从美国证交所退市；该法案也会阻止外国公司从美国投资者手里筹集资金。尽管该法律广义的讲适用于任何国家的公司，但主要针对的是中国公司。
 
-西方国家和许多国际组织指责中共对维吾尔族人实施大规模迫害，在新疆建设“再教育营”，拘押超过一百万维吾尔族人, 进行全面监控和洗脑教育。同时实施严酷的强制人口控制政策，强制维吾尔族节育、绝育、监禁的做法接近“种族灭绝”。中共否认这一事实，表示“再教育”中心旨在进行职业培训、协助就业以摆脱极端伊斯兰教的诱惑。
+[https://www.cnbc.com/2020/12/04/alibaba-jdcom-petrochina-likely-staying-on-wall-street-despite-trump-push-to-delist-chinese-companies.html](https://www.cnbc.com/2020/12/04/alibaba-jdcom-petrochina-likely-staying-on-wall-street-despite-trump-push-to-delist-chinese-companies.html)
 
-参考链接：
+5. 新浪旗下黑猫投诉平台红黑榜显示，截至2020年11月底，黑猫投诉平台累计收到消费者有效投诉超307万，11月有效投诉21万余件。11月初蛋壳公寓事件引起广泛关注，蛋壳公寓有效投诉量大幅增长，而作为蛋壳合作方的微众银行，也因租金贷问题有效投诉大幅增长，进入月度黑榜前十。
 
-[https://www.cnn.com/2020/12/02/politics/cbp-cotton-imports-china-forced-labor/index.html](https://www.cnn.com/2020/12/02/politics/cbp-cotton-imports-china-forced-labor/index.html)
+[https://tousu.sina.com.cn/articles/view/43831/](https://tousu.sina.com.cn/articles/view/43831/)
 
-[https://www.reuters.com/article/us-usa-trade-china-xinjiang-idUSKBN265350](https://www.reuters.com/article/us-usa-trade-china-xinjiang-idUSKBN265350)
-
-
-
-[https://zh.wikipedia.org/wiki/新疆生产建设兵团](https://zh.wikipedia.org/wiki/新疆生产建设兵团)
+By 秘密翻译组—金融团队—文印
 
 0

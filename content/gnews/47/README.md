@@ -1,62 +1,112 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选主题专栏:川普总统发表就任以来最重要的演讲：作为总统，不会有超过捍卫宪法的更高职责!
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/621547/)
+## 《路德社》每日简报早间版 2020.12.05&#8211;NewYork Time
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/621729/)
 
-《路德社》精选主题专栏組出品
+《路德社》文编组出品； 编辑：路德社精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06024326/20201205-AM-ZH-scaled.jpg)
+1205早间要闻-NewYork Time
+
+**国家情报总监：中共正在研发制造超级士兵**
+
+**Director of National Intelligence: the CCP is developing and manufacturing super soldiers**
+
+中共招募神经科学最顶尖的德国科学家进行猴子换头实验，以获得“将芯片植入大脑控制士兵思想的神经科学技术”；利用基因编辑技术，克隆出特定功能的人体器官；
+
+In order to achieve the neuroscientific technology that implants chips into the brain to control soldiers’ minds. The CCP recruited top German neuroscientists to conduct experiments of switching heads by monkeys. They also clone human organs with specific functions by using gene editing technology.
+
+**参议院情报委员会两党领袖发布联合声明**
+
+**The bipartisan leaders of the Senate Intelligence Committee issued a joint statement**
+
+两党领袖呼应前日国家情报总监“中国是自二战以来对美国和世界民主自由的最大威胁”的论点，发表联合声明称，中共不会放弃主导世界的野心，中共对美国构成了最大威胁。继续为美国即将发出的雷霆行动做铺垫、唤醒民意。
+
+The bipartisan leaders echoed the previous assertion by the director of National Intelligence that China is the greatest threat to the democracy and freedom of the United States and the world since World War II. The joint statement said that the CCP would not give up its ambition to dominate the world and it has posed the greatest threat to the United States. This statement continues to prepare the ground and arouse public opinion for the upcoming thunderous action of the United States.
+
+**蓬佩奥说中共国不是正常的政权**
+
+**Pompeo said the CCP is not a normal regime**
+
+过去数十年来世界所幻想的中共国经济繁荣会引领政治自由化的局面并没有出现；中共永远没有想过成为正常国家，因为其本质就不是一个正常的政权；这不是中美之间的战争而是自由与独裁的对抗；中共深思熟虑地布局与各国的经济往来，蒙蔽了世界几十年；请做对的事情。
+
+The world’s fantasy over the past few decades that China’s economic boom would lead to political liberalisation is not materialised. The CCP never wanted to become a normal state because it is not a normal regime by its very nature. This is not a war between China and the United States but between freedom and dictatorship. The economic engagement with the rest of the world that the CCP deliberated to do has blinded the world for decades. Please do the right thing.
+
+**FBI****正在调查来自加州的参议员范恩斯坦**
+
+**The FBI is investigating Senator Feinstein of California**
+
+FBI正在调查范恩斯坦，要求她交代其丈夫在COVID-19爆发前决定清仓股票的有关情况。该参议员与中共背景的所谓报业大亨方李邦琴来往密切，雇佣中共间谍司机长达五年。
+
+The FBI is investigating Senator Feinstein for the decision of her husband to liquidate stocks before the COVID-19 outbreak. The senator had a close relationship with Fang Li Bangqin, a CCP-backed newspaper tycoon, and employed a CCP spy as her driver for five years.
+
+**前空军中将麦金纳尼：美国必须立即进入国家紧急状态**
+
+**The former air lieutenant general McInerney: The United States of America must immediately enter a state of emergency.**
+
+必须立即执行2018年9月总统令，进入国家紧急状态；实施暴动法，防止Antifa的BLM骚乱；宣布戒严，暂停《人身保护令》，设立军事法庭；佩洛西和舒默都会被逮捕，我们确切知道谁在参与；川普总统注意安全。
+
+The presidential decree of September 2018 must be immediately implemented to enter a state of emergency, implement the Riot Act to prevent BLM riots of Antifa, declare martial law, suspend habeas corpus, and establish military courts. Both Pelosi and Schumer will be arrested, we know exactly who involved. President Trump should take care of security.
+
+金句摘要：
+
+Quotes:
+
+路德：1、中共生物战包括特定的种族遗传袭击。
+
+2、超级士兵：神经科学和基因编辑。
+
+3、美国两党共识：中共是美国历史上最大的威胁，远超前苏联。
+
+4、美国的价值观和体系经过2020年总统大选，让美国人明白这个体制的脆弱。
+
+Lude:
+
+1. CCP’s biological weapon includes specific ethnic genetic attacks.
+
+2. Super Soldiers: Neuroscience and gene editing.
+
+3. A bipartisan consensus of the US: CCP is the greatest threat to the US in history, far ahead of the Soviet Union.
+
+4. Through the 2020 presidential election, Americans will well know the fragility of America’s values and system under current framework.
+
+墨博士：
+
+1. 超级士兵实验是反人类、反人道的罪行。
+2. 当美国说新冠病毒是生物武器的时候，一定对中共立即开战。
+3. 目前美国遭受的所有恐惧和黑暗都是中共给的。
 
 
+Dr. Mo:
 
-> Statement by Donald J. Trump, The President of the United States
-> 
-> Full Video: [https://t.co/EHqzsLbbJG](https://t.co/EHqzsLbbJG) [pic.twitter.com/Eu4IsLNsKD](https://t.co/Eu4IsLNsKD)
-> — Donald J. Trump (@realDonaldTrump) [December 2, 2020](https://twitter.com/realDonaldTrump/status/1334240039639937026?ref_src=twsrc%5Etfw)
+1. The experiment of super soldiers is a crime against humanity.
 
+2. When the US announce that COVID-19 is a biological weapon, it must immediately go to the war with the CCP.
 
+3. All the fear and darkness that US is suffering is due to the CCP.
 
-十二月二日，川普总统在白宫发表了近五十分钟的演讲，他主要详述了在选举中出现的大规模舞弊情况及其手段，并称这些舞弊是蓄意准备、违宪，是在偷取美国人的权利！
+安红：
 
-在演讲开头，川普总统以一贯的直言开场：＂这可能是我自上任以来最重要的一次讲话，比我以往的都重要，我想要告知大家最新的情况，经过我们持续的努力，揭露了超大规模的选举舞弊，这是一次荒谬冗长的选举，我们曾经称之为选举日的十一月三日已经变成了数周乃至数月，在这荒谬的时间里，发生了大量糟糕的事情，你必须要证明你并不能履行你伟大的投票权，作为总统，不会比捍卫法律和宪法更高的职责，这就是为什么我要下定决心保卫我们遭受定点攻击和数月陷入围城的美国选举系统⋯⋯＂
+1、超级士兵的研究实验超越德国纳粹时代的雅利安婴儿。
 
-接着，川普总统说他被警告，不能过早的宣布赢得了选举，被重复的告知得出选举结果将会花掉数周。他的对手拜登（团队）告诉他说，离选举选点，我们不需要你，选举已经结束了！
+2、基因工程实验：普通战士成为中共的小白鼠，而中共高官子女却在海外开枝散叶
 
-＂实际上，他们就像已经知道选举结果一样！他们已经掩盖对我们国家做的非常糟糕的事，在选举后的数天内，所有的事情都变得非常奇怪！＂
+Anhong:
 
-川普总统在演讲中，已经把调查揭露选举舞弊从＂关注选举结果＂上升至＂维护宪法赋予的权利＂，他说，＂宪法保证的选举程序必须要被履行，我们要确保每一张合法的选票能被计算，不合法的要被清除，这不仅仅是关于7400万美国人投票给我的荣誉，也是保证我们对这次选举和未来选举的信仰！＂
+1. The research experiments of the Super soldiers surpassed the Aryan babies in Nazi Germany.
 
-选举舞弊的非法细节和图表、数据也在演讲中呈现，川普总统两次举牌，用图表和数据告知在选举日的次日凌晨，在威斯康星州，突然有大量的投给拜登的选票涌入，这让本来领先的川普总统落后了拜登，这些选票从何而来？为什么会突然出现大量的投拜登的选票？
+2. Genetic engineering experiments: Ordinary soldiers become experimental rats for the CCP, while the children of its top officials spread their wings abroad.
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06011659/d.jpg)
+#CCP\_is\_terrorist   #TakeDownTheCCP
 
-川普总统除了揭露在选举中被大规模使用的、带来巨大灾难的Dominion 投票机，更指出了投票选民的资格认定，＂你在Dominion 机器明明点选的川普，但在机器的背后，却是投给了拜登＂，他说，没有资格投票的人也来替拜登投票，死人，搬出去的人，不是美国公民的都没有资格投票，但是他们就是投票了！有谁来验证过这些人的资格呢？这些都是非法的投票者，在明尼苏达州，就没有人去检查过投票的人有没有资格，一个已经死了二十五年的人来投票，这太荒谬了！
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06013231/3228331776170298547-1.jpg)
-
-更让人难过且无法接受的是，一些支持我的选民，去到投票现场，居然被告知，已经投过票了，但是，他们根本就没有投过，不管是邮寄还是现场！
-
-川普总统类比欧洲国家的选举制度解释为什么不能采用＂邮寄选票＂，他说，在欧洲，有42个国家是禁止邮寄选票的，因为他们知道，这是非常容易选票造假的，但是，为什么在这么重要的美国大选中，民主党却努力大规模采用邮寄选票呢？为什么不会像过去的选举一样拒绝邮寄选票呢？
-
-这是因为自2016年他们败给了我，他们一直处心积虑的想赶我下台，这场选举舞弊只是自从我上任后遭受调查和数次弹劾的延续，他们（民主党）想了四年，想要重掌权力，＂我们把美国放进第一，但他们不是。＂花了4800万美国纳税人的钱，历时两年多的＂通俄门＂调查无果而终，他们找不到我的毛病，所以他们要通过选举舞弊来夺取权力！南希佩洛西第一个法案就是要扩大邮寄选票，那就是为今天的选举舞弊做准备，为什么他们要封锁城市？因为他们要改变选举的流程，让选民只能通过＂邮寄选票＂，中共病毒就给他们提供了这样的借口！他们要借中共病毒来搞邮寄选票！
-
-川普总统在谈到在计票过程中的舞弊违法时，他说＂一些督票员被踢出了房间，检票的房间窗户被封起来，看不到里面＂，＂工作人员被命令不需要看任何的证明认证，被要求盖提前邮戳的日期，几千几万张的选票＂，＂好多的选票被重复计算＂，他引用证人们的话说＂他看到了好几箱的选票都有相同的签名＂，＂他看到了许多的违宪选票，都不是注册选民投的＂，＂他们收到了好多没有信封的缺席选票，这些选票都是投给民主党的＂。
-
-在威斯康辛州，有很多的选民都被归类为缺乏行动力的残障或老人，这类人去年只有七万人申请，今年的申请却突然增至了二十万人，这些都发生在最腐败的郡！
-
-在投票中，宾州的州长和最高法院在选举之前的几周，直接宣布忽视掉签名的认证，这是违反州法的，只有议院可以这么做！
-
-＂我可以接受我输掉选举，但是前提必须是公平的！我们必须要抗争从美国人民手中窃取选举，我已经有证据，有好几十万张的选票来翻转当前的结果，有常识的美国人需要仔细去查看邮寄选票的信封和签名⋯＂
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06011946/0-1.jpg)
-
-＂在最伟大的国家，这不单是关乎你们下一任总统是谁，更是关乎美国的民主和人民的神圣权利，这是美国的先人用鲜血换来的⋯这一次的选举是不公正，不透明的⋯＂
-
-最后，川普总统说，在我任内，我进行了大规模的减税，重建了军队，成立了太空军，照顾了老兵，这些都是巨大的成就，但是，我最大的成就却是当下我正在做的…让2020年总统选举再度公正，让我们剔除本次大选的舞弊，让我们的政府再度被信任…＂
-
-川普总统在这个讲话中，从选举人登记，到投票方式，再到投票机器，计票监票过程，最后到签名、结果确认，用证据详述了民主党拜登方方面面，全流程的大规模系统性舞弊，这是一次针对美国选举的偷窃！
-
-本文作者：上进哥
+文案：《路德社》文编组
+编辑：文宝Porsche
+听写：文宝Porsche
+金句整理：繁体的追逐
+翻译：阿西娜的圣斗士(沙加)
+校对：阿轩Action
+翻译及校对：阿轩Action
 审核校对：玫瑰天空
-上传排版：糖果儿
+上传排版：青葫芦娃&玫瑰天空
 
 0
