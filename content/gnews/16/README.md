@@ -1,62 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选主题专栏:川普总统发表就任以来最重要的演讲：作为总统，不会有超过捍卫宪法的更高职责!
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/621547/)
+## 北大西洋公约组织 (NATO)是什么组织，为什么北约可以合法地打击中共国
+` GM127` [轉載自GNews](https://gnews.org/zh-hans/621813/)
 
-《路德社》精选主题专栏組出品
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04232318/Lude_20201204-PM-coverphoto2.jpg)
+路德12月5日晚节目详细解读什么是北大西洋公约组织（北约），聚焦美国国务院关于北约的连续发推，强调联盟中任何一个国家被攻击就是对联盟的整体攻击；中共国已经犯下反人类罪，北约可以合法打击。
 
-
-
-> Statement by Donald J. Trump, The President of the United States
-> 
-> Full Video: [https://t.co/EHqzsLbbJG](https://t.co/EHqzsLbbJG) [pic.twitter.com/Eu4IsLNsKD](https://t.co/Eu4IsLNsKD)
-> — Donald J. Trump (@realDonaldTrump) [December 2, 2020](https://twitter.com/realDonaldTrump/status/1334240039639937026?ref_src=twsrc%5Etfw)
+12月5日下午美国国务院的推文：
 
 
 
-十二月二日，川普总统在白宫发表了近五十分钟的演讲，他主要详述了在选举中出现的大规模舞弊情况及其手段，并称这些舞弊是蓄意准备、违宪，是在偷取美国人的权利！
+> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): NATO is an indispensable pillar of American national security and we will continue to work together to strengthen this important alliance. Read more about the U.S.-NATO Alliance: [https://t.co/mFHpSxcGj4](https://t.co/mFHpSxcGj4) [pic.twitter.com/UbL5Pr7Nql](https://t.co/UbL5Pr7Nql)
+> — Department of State (@StateDept) [December 5, 2020](https://twitter.com/StateDept/status/1335298651279794177?ref_src=twsrc%5Etfw)
 
-在演讲开头，川普总统以一贯的直言开场：＂这可能是我自上任以来最重要的一次讲话，比我以往的都重要，我想要告知大家最新的情况，经过我们持续的努力，揭露了超大规模的选举舞弊，这是一次荒谬冗长的选举，我们曾经称之为选举日的十一月三日已经变成了数周乃至数月，在这荒谬的时间里，发生了大量糟糕的事情，你必须要证明你并不能履行你伟大的投票权，作为总统，不会比捍卫法律和宪法更高的职责，这就是为什么我要下定决心保卫我们遭受定点攻击和数月陷入围城的美国选举系统⋯⋯＂
 
-接着，川普总统说他被警告，不能过早的宣布赢得了选举，被重复的告知得出选举结果将会花掉数周。他的对手拜登（团队）告诉他说，离选举选点，我们不需要你，选举已经结束了！
 
-＂实际上，他们就像已经知道选举结果一样！他们已经掩盖对我们国家做的非常糟糕的事，在选举后的数天内，所有的事情都变得非常奇怪！＂
+翻译：北约是美国国家安全不可或缺的支柱，我们将继续合作以加强这一重要的同盟。 请阅读有关美国-北约联盟的更多信息[1]。
 
-川普总统在演讲中，已经把调查揭露选举舞弊从＂关注选举结果＂上升至＂维护宪法赋予的权利＂，他说，＂宪法保证的选举程序必须要被履行，我们要确保每一张合法的选票能被计算，不合法的要被清除，这不仅仅是关于7400万美国人投票给我的荣誉，也是保证我们对这次选举和未来选举的信仰！＂
+12月5日下午美国国务院再次发推：
 
-选举舞弊的非法细节和图表、数据也在演讲中呈现，川普总统两次举牌，用图表和数据告知在选举日的次日凌晨，在威斯康星州，突然有大量的投给拜登的选票涌入，这让本来领先的川普总统落后了拜登，这些选票从何而来？为什么会突然出现大量的投拜登的选票？
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06011659/d.jpg)
 
-川普总统除了揭露在选举中被大规模使用的、带来巨大灾难的Dominion 投票机，更指出了投票选民的资格认定，＂你在Dominion 机器明明点选的川普，但在机器的背后，却是投给了拜登＂，他说，没有资格投票的人也来替拜登投票，死人，搬出去的人，不是美国公民的都没有资格投票，但是他们就是投票了！有谁来验证过这些人的资格呢？这些都是非法的投票者，在明尼苏达州，就没有人去检查过投票的人有没有资格，一个已经死了二十五年的人来投票，这太荒谬了！
+> Formed in 1949 with the signing of the Washington Treaty, [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) is a security alliance of 30 countries from North America and Europe. Read more about the U.S.-NATO Alliance: [https://t.co/mFHpSxcGj4](https://t.co/mFHpSxcGj4) [pic.twitter.com/sB5NXQxBch](https://t.co/sB5NXQxBch)
+> — Department of State (@StateDept) [December 5, 2020](https://twitter.com/StateDept/status/1335314329885958150?ref_src=twsrc%5Etfw)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06013231/3228331776170298547-1.jpg)
 
-更让人难过且无法接受的是，一些支持我的选民，去到投票现场，居然被告知，已经投过票了，但是，他们根本就没有投过，不管是邮寄还是现场！
 
-川普总统类比欧洲国家的选举制度解释为什么不能采用＂邮寄选票＂，他说，在欧洲，有42个国家是禁止邮寄选票的，因为他们知道，这是非常容易选票造假的，但是，为什么在这么重要的美国大选中，民主党却努力大规模采用邮寄选票呢？为什么不会像过去的选举一样拒绝邮寄选票呢？
+翻译：北约（NATO）成立于1949年，签署了《华盛顿条约》，它是由北美和欧洲的30个国家组成的安全联盟。请阅读更多关于美国-北约联盟的信息[1]：
 
-这是因为自2016年他们败给了我，他们一直处心积虑的想赶我下台，这场选举舞弊只是自从我上任后遭受调查和数次弹劾的延续，他们（民主党）想了四年，想要重掌权力，＂我们把美国放进第一，但他们不是。＂花了4800万美国纳税人的钱，历时两年多的＂通俄门＂调查无果而终，他们找不到我的毛病，所以他们要通过选举舞弊来夺取权力！南希佩洛西第一个法案就是要扩大邮寄选票，那就是为今天的选举舞弊做准备，为什么他们要封锁城市？因为他们要改变选举的流程，让选民只能通过＂邮寄选票＂，中共病毒就给他们提供了这样的借口！他们要借中共病毒来搞邮寄选票！
+**The North Atlantic Treaty Organization**
 
-川普总统在谈到在计票过程中的舞弊违法时，他说＂一些督票员被踢出了房间，检票的房间窗户被封起来，看不到里面＂，＂工作人员被命令不需要看任何的证明认证，被要求盖提前邮戳的日期，几千几万张的选票＂，＂好多的选票被重复计算＂，他引用证人们的话说＂他看到了好几箱的选票都有相同的签名＂，＂他看到了许多的违宪选票，都不是注册选民投的＂，＂他们收到了好多没有信封的缺席选票，这些选票都是投给民主党的＂。
+**北大西洋公约组织**
 
-在威斯康辛州，有很多的选民都被归类为缺乏行动力的残障或老人，这类人去年只有七万人申请，今年的申请却突然增至了二十万人，这些都发生在最腐败的郡！
+Formed in 1949 with the signing of the Washington Treaty, The North Atlantic Treaty Organization  (NATO) is a security alliance of 30 countries from North America and Europe. NATO’s fundamental goal is to safeguard the Allies’ freedom and security by political and military means. NATO remains the principal security instrument of the transatlantic community and expression of its common democratic values. It is the practical means through which the security of North America and Europe are permanently tied together. NATO enlargement has furthered the U.S. goal of a Europe whole, free, and at peace.
 
-在投票中，宾州的州长和最高法院在选举之前的几周，直接宣布忽视掉签名的认证，这是违反州法的，只有议院可以这么做！
+北大西洋公约组织（NATO）于1949年与《华盛顿条约》的签署一起成立，是**北美和欧洲****30****个国家的安全联盟**。 北约的根本目标是通过政治和军事手段捍卫盟国的自由与安全。 北约仍然是跨大西洋共同体的主要安全工具，是其共同民主价值的体现。 这是将北美和欧洲的安全永久地联系在一起的实用手段。 北约的扩大进一步推动了美国实现整个欧洲自由、和平的目标。
 
-＂我可以接受我输掉选举，但是前提必须是公平的！我们必须要抗争从美国人民手中窃取选举，我已经有证据，有好几十万张的选票来翻转当前的结果，有常识的美国人需要仔细去查看邮寄选票的信封和签名⋯＂
+Article 5 of the Washington Treaty — that an attack against one Ally is an attack against all — is at the core of the Alliance, a promise of collective defense. Article 4 of the treaty ensures consultations among Allies on security matters of common interest, which have expanded from a narrowly defined Soviet threat to the critical mission in Afghanistan, as well as peacekeeping in Kosovo and new threats to security such as cyber attacks, and global threats such as terrorism and piracy that affect the Alliance and its global network of partners.
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06011946/0-1.jpg)
+根据《华盛顿条约》第5条，联盟的核心是：**对一个同盟的攻击即相当于对所有同盟的攻击**，这就是联合防御的承诺。 该条约第4条确保盟国之间就共同关心的安全问题进行磋商，这些问题已从狭义的苏联威胁扩展到对**阿富汗**的关键任务，**科索沃**的维和以及新的安全威胁，例如网络攻击和全球性威胁。 恐怖主义和海盗行为等威胁到联盟及其全球合作伙伴网络的威胁。
 
-＂在最伟大的国家，这不单是关乎你们下一任总统是谁，更是关乎美国的民主和人民的神圣权利，这是美国的先人用鲜血换来的⋯这一次的选举是不公正，不透明的⋯＂
+In addition to its traditional role in the territorial defense of Allied nations, NATO leads the Resolute Support Mission (RSM) in Afghanistan and has ongoing missions in the Balkans and the Mediterranean; it also conducts extensive training exercises and offers security support to partners around the globe, including the European Union in particular but also the United Nations and the African Union.
 
-最后，川普总统说，在我任内，我进行了大规模的减税，重建了军队，成立了太空军，照顾了老兵，这些都是巨大的成就，但是，我最大的成就却是当下我正在做的…让2020年总统选举再度公正，让我们剔除本次大选的舞弊，让我们的政府再度被信任…＂
+北约除了在盟国的领土防御中发挥传统作用外，还领导阿富汗的“坚决支持任务”（RSM），并在**巴尔干地区**和**地中海地区**执行任务； 它还进行了广泛的培训，并向包括欧洲联盟在内的全球合作伙伴以及联合国和非洲联盟提供安全支持。
 
-川普总统在这个讲话中，从选举人登记，到投票方式，再到投票机器，计票监票过程，最后到签名、结果确认，用证据详述了民主党拜登方方面面，全流程的大规模系统性舞弊，这是一次针对美国选举的偷窃！
+国务院的网站链接至2017年4月12日川普总统在北约的讲话[2]。以下为节选：
 
-本文作者：上进哥
-审核校对：玫瑰天空
-上传排版：糖果儿
+NATO allies defeated communism and liberated the captive nations of the Cold War.  They secured the longest period of unbroken peace that Europe has ever known.  This enduring partnership rooted out of so many different things, but our common security is always number one, and our common devotion to human dignity and freedom.
 
-0
+**北约盟国打败了共产主义**并解放了冷战时期的被共产主义俘虏的国家。 他们确保了欧洲有史以来最长的不间断的和平。 这种持久的伙伴关系植根于许多不同的事物，但我们的**共同安全始终是第一位，我们共同致力于人的尊严和自由**。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06033940/Lude_20201205-PM_NATO-figure1.jpg)Press conference by NATO Secretary General Jens Stoltenberg and US President Donald Trump
+路德社的解读是：
+
+- 北约行动不需要国会、参议院、总统，可以直接发动打击。
+- 科索沃的罪行是反人类罪，所以北约就是合法地灭它。
+- 中共国的网络攻击已经满足对盟国攻击这一条，所以北约可以灭它。
+- 中共国生产生化武器、利用中国人肉载体散播病毒、利用交通工具传播病毒、利用疫苗杀害中国人民、世界人民（如果能证实的话）就已经构成了反人类罪。
+- 美国国务院连续发推谈北约证实此事的正式程度。
+
+
+参考链接：
+
+[1] [https://www.state.gov/key-topics-bureau-of-european-and-eurasian-affairs/#nato](https://www.state.gov/key-topics-bureau-of-european-and-eurasian-affairs/#nato)
+
+[2] [https://nato.usmission.gov/april-12-2017-joint-press-conference-president-trump-nato-secretary-general-stoltenberg/](https://nato.usmission.gov/april-12-2017-joint-press-conference-president-trump-nato-secretary-general-stoltenberg/)
+
+1+
