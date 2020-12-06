@@ -1,29 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》新闻快讯（视频版）&#8211;福克斯新闻, 国家情报总监: 共产中国的威胁
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/621018/)
+## 如何使用短波收音机
+` GM127` [轉載自GNews](https://gnews.org/zh-hans/622007/)
 
-《路德社》出品
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06063831/1-26.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06063452/2-9.png)
+作者：【Blacksmith铁匠】
 
-Dec.03.2020 FOX on DNI’s “(Communist) China threat”
-
-内容摘要
-
-1.中共國的威脅是「定義這個時代的事件」
-
-2.情報顯示北京有意圖地用經濟、軍事、科技支配了美國和其他國家
-
-3.中共國是唯一有能力挑戰美國頭號地位的國家
-
-4.同一天，參謀長聯席會議主席Mark Milley將軍也說，長期來看最有可能出現的挑戰就是中共國
-
-翻译：路德社翻译组
-
-制作：路德社视频组
-
-审核校对：玫瑰天空
-
-上传排版：青葫芦娃
+注：本文为作者个人观点；
+封面图片来源：[Frank Albrecht](https://unsplash.com/@shotaspot?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/radio?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText)
 
 0
