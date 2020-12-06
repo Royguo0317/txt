@@ -1,32 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【突发】川普呼吁在2020年发生违规事件后进行彻底的选举改革和身份核实
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/622890/)
+## 【生化危机】4: 香港P3实验室
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/615765/)
 
-- 翻译：Victor Torres
+作者：香草山写作组 Tiffany的早餐 校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
 
 
-***更多真相，请关注*** ***[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2020年12月6日电/西喜社/**—— 川普说：“可耻的是，到2020年，美国没有哪个州能做出任何真正的尝试来核实那些以邮寄方式进行选票的人是合格且合法注册的选民。”
+摘要：满怀科研热情的闫丽梦博士加入香港大学公共卫生学院，却不知已经进入了世界上最邪恶的生化武器的小圈子。自裴伟士定居香港后，香港的团队历经多次公共卫生事件，越做越大，垄断了冠状病毒领域的全球学术资源。
 
-川普总统呼吁进行“具有里程碑意义的选举改革”，包括对11月的竞选活动中的缺席选票进行强制签名验证。
+身材高挑、外表斯文的青岛的少女闫丽梦，从小就是过目不忘的神童，她从青岛二中考入湘雅医学院，2009年获得七年制眼科临床医学硕士学位，2014年在南方医科大学(原解放军第一军医大学)获得眼科博士学位，博士论文题为《普萘洛尔对小鼠角膜碱烧伤模型中新生血管抑制作用的实验研究》。
 
-川普周六晚在乔治亚州举行的一次集会上支持两名共和党参议员候选人。 他们将于1月5日面临决选，这将决定国会参议院的控制权。
+2014年秋，她加入了香港大学公共卫生学院教授潘烈文(Leo Poon)的实验室，开始从眼科学研究逐渐转向病毒学研究。潘烈文就是裴伟士(Malik Peiris)团队的核心研究人员之一。
 
-他宣布：“获胜后，我们需要通过具有里程碑意义的选举改革，包括选民证。”  “有那么糟糕吗？居住证明，就像我们住在这个国家，住在这个州里。公民身份确认。”
+闫丽梦在香港大学的研究风生水起，并且和实验室的同样来自斯里兰卡的世界顶级传染病专家结婚。由于闫博士在大陆深厚的学术联络和临床医学背景，她成为大陆卫生管理当局、大陆各大医疗机构、香港P3实验室和WHO的关键联络沟通渠道。闫博士的丈夫深得裴伟士信任，夫妻两人经常许多天连续住在裴伟士家，帮助裴伟士处理公务。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04045004/image0-1-1.png)潘烈文(前排中)的研究团队，二排右二为闫丽梦
+当闫丽梦还是大学生时，香港发生了SARS事件([香港风云 2:《基本法》第23条和SARS](https://gnews.org/zh-hans/590838/) )。SARS让北京的王岐山、广州的钟南山和香港的裴伟士(Malik Peiris)成为人生赢家。
 
-他补充说：“相信我，这是我们要做的事情。因为我们不允许它发生。”
+香港大学坐落于香港岛西北，公共卫生学院(School of Public Health, The University of Hong Kong)周边都是香港重要的医疗设施，包括玛丽皇后医院(Queen Mary Hospital)。2005年7月，中国科技部批准在港大成立新发传染病国家重点实验室，实验室设施包括生物安全三级实验室(P3)，也就是我们俗称的香港P3实验室。
 
-川普称去年夏天民主党提名大会上与会人员的身份验证比许多投票站都要多。
+整个香港P3团队，除了裴伟士、潘烈文，著名的研究人员还包括管轶、工程院院士袁国勇等。中共将香港P3实验室的经验，复制到大陆的多家实验室，包括高福的CDC疾控中心实验室，陈薇的军事科学院病原微生物生物安全国家重点实验室，以及处于风口浪尖的王延轶、石正丽的中科院武汉P4实验室。香港由于自由世界的地位，得以吸引国际学术界的人才，并成为大陆冠状病毒研究体系的人力资源的来源。
 
-“你知道，民主党全国委员会有他们的代表大会。他们有照片。除非有照片，有带照片的身份证，否则你不能进来。但是在最重要的投票时，他们没有，他们不想这样做。”
+和公众对科学家的理解或许不同，学术是一个江湖。香港P3实验室在国际冠状病毒研究的小圈子里处于领导地位。裴伟士(Malik Peiris)就是这个学术山头的大王。裴伟士来自共产国际控制的斯里兰卡民主社会主义共和国，以裴伟士为代表的斯里兰卡人占据了冠状病毒国际研究领域的半壁江山([生化危机 3: 楞伽山之妖](https://gnews.org/zh-hans/615608/))。
 
-**原文链接：**[https://justthenews.com/politics-policy/elections/trump-calls-sweeping-election-reform-id-verification-after-irregularities](https://justthenews.com/politics-policy/elections/trump-calls-sweeping-election-reform-id-verification-after-irregularities)
+2003年SARS在中港的爆发，以及之后神秘的消失，让香港大学裴伟士的斯里兰卡研究军团得到了极高的学术地位。3月17日裴伟士的研究团队率先分离出病毒，当时在粤港两地拿样本的就是负责的博士后管轶。在SARS上的成果奠定了香港裴伟士研究团队的世界冠状病毒研究第一的地位。在国际学术界的这个小小的专业研究领域，香港裴伟士团队形成了学阀，垄断学术资源，实质上让共产党控制了国际冠状病毒的研究和科技政策的顾问权。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+2004年，WHO为应对H5N1禽流感成立参考实验室网络，香港大学流感H5参考实验室(WHO H5 Reference Lab)成为创始成员之一。H5实验室负责对全球流行病进行病毒鉴定、分享信息、指导各国防疫。实验室主任就是被誉为SARS冠状病毒诊断的绝对先驱、香港大学公共卫生学院教授、WHO顾问潘烈文——闫丽梦所在研究小组的负责人。2006年裴伟士当选为英国皇家学会院士，成为这个领域的事实上的独裁者。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04045338/Ecu1I8tUYAAFblk.jpg)
+其时粤港两地已经交流十分紧密，钟南山、袁国勇等人已经形成利益共同体。在科学家的名头下，这伙人按照中共的授意，以科学之名引导舆论，如炮制了SARS的宿主是果子狸这样的理论。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+香港裴伟士研究团队的强势，加之共产党的支持，也让渗透的手伸向美国。在2020年CCP病毒流行期间，世界上最庞大的研究机构之一、美国国家卫生院(NIH, National Institutes of Health)将数百名研究人员列为可能被渗透名单。NIH众多研究机构中处于风口浪尖的就是美国国家过敏和传染病研究所(NIAID, National Institute of Allergy and Infectiuos Diseases)，多年来这家科研机构的掌门人就是著名的沼泽生物安东尼·福奇(Anthony Fauci)。裴伟士正是NIAID流感研究监控中心(CEIRS, Centers of Excellence for Influenza Research and Surveillance)计划的研究员，该计划旨在应对流感大流行的威胁。
+
+(待续)
+
+相关链接：
+
+【[香港风云0](https://gnews.org/zh-hans/590679/)】【[世纪大案0](https://gnews.org/zh-hans/343534/)】【[盘古相聚 0](https://gnews.org/zh-hans/530411/)】【[生化危机0](https://gnews.org/zh-hans/614294/)】【[生化危机1](https://gnews.org/zh-hans/614371/)】
+
+【[生化危机2](https://gnews.org/zh-hans/615548/)】【[生化危机3](https://gnews.org/zh-hans/615608/)】
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
