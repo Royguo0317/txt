@@ -1,45 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国国家情报总监：中共领导人对新冠知情并撒谎
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/623138/)
+## 中共致力于收集世界DNA 下一种疾病可能比中共病毒更致命
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/623233/)
 
-*新闻来源：BREITBART《布赖特巴特》；作者：易安·汉切特（IAN HANCHETT）；发布时间：2020年12月3日*
+俄罗斯喀秋莎农场 银河
 
-*翻译/简评：Dreamer文童；校对：感恩；审核：万人往；Page：拱卒*
+校对上传 星河
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06154047/Snipaste_2020-12-07_02-49-42.png)
+中共国问题分析师章家敦（Gordon Chang），美国律师、作家、电视评论家，康乃尔大学法律博士。12月5日，章教授接受福克斯新闻（Fox News）采访时发出警告，中共计划利用其所拥有的世界上最大的DNA数据库信息制造针对特定族群的生物武器。他说：“中共病毒不会是从中共国产生的最后一种病原体。所以我们不得不担心下一种比中共病毒更容易传播、也更致命的疾病。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/czRKfIWc37RSn/images/334b9b78-9a00-4255-ac94-29085d0de645.jpg?asset_id=8a33ca9e-6cdb-47cc-923b-ee49b16fe485&amp;img_etag=%22f2311e91d338b7493d99819ebbbd3990%22&amp;size=1024)](https://spark.adobe.com/page/czRKfIWc37RSn/images/334b9b78-9a00-4255-ac94-29085d0de645.jpg?asset_id=8a33ca9e-6cdb-47cc-923b-ee49b16fe485&amp;img_etag=%22f2311e91d338b7493d99819ebbbd3990%22&amp;size=1024)
+中共国拥有8000多万份健康档案，拥有世界上最大的DNA数据库，而且还在不断增长。中共国收集本国公民的DNA是为了执法、追踪持不同政见者，以及建立一个严密控制的监控国家。同时中共国通过购买拥有DNA研究协议的美国公司，为基因公司提供DNA分析研究，以及黑客攻击等方式获取外国人包括美国人的DNA。章家敦表示，“北京正试图通过提供疫苗来扩大其影响力”，与此同时，中共致力于“收集关于中共国境外人士的非常敏感的信息” 。
 
-**简评：**
+对于中共国收集外国人DNA，同时禁止向外国研究人员提供中共国DNA的行为，章加敦分析说: “中共国可能正在努力发展的疾病不只是针对每个人，而是针对某些民族或种族群体。” 基因数据使中共有能力制造针对特定人群的生物武器，中共的险恶动机应该引起美国的高度关注。
 
-美国国家情报总监约翰·拉特克利夫（John Ratcliffe）在周四接受CBS采访时表示，包括习近平在内的中共高层对于COVID-19病毒早已知情，并对世界其他国家撒谎。中共国还一直试图窃取美国的疫苗研究成果。
+章家敦在2001年出版了《中国即将崩溃》（《The Coming Collapse of China》） 一书，指出中共是不可能容许任何民主机制的出现，民主要等到中共国崩溃才有可能。
 
-今年1月19日，路德社根据闫丽梦博士提供的情报，首次向公众爆出中共病毒可以人传人，并且将造成大规模爆发。7月10日闫丽梦博士接受《福克斯新闻》独家采访时指出，中共国早在2019年底就已经知道中共病毒可以人传人，但却与WHO串谋掩盖真相，于2020年1月9日发布声明说中共病毒不会在人与人之间传播。2020年9月14日和10月8日，闫丽梦博士分别发布两篇学术报告，直指中共病毒来自中共军方实验室并且是人工合成产物，以及中共病毒即是超限生物武器。在此期间，爆料革命战友们一直通过各种方式向西方国家传播中共病毒真相。现在，美国国家情报总监首次向公众说出中共高层就病毒真相对世界撒谎，这表明美国即将对造成中共病毒大流行的幕后黑手中共进行追责。
+近期，章家敦多次接受福克斯新闻（Fox News）的采访，揭露中共虚假宣传、煽动美国内部矛盾等真相。
 
-**原文翻译：**
+7月23日，章家敦在福克斯新闻采访时表示，中共“崴脚部”等机构一直在故意进行虚假宣传、加剧美国种族活动紧张形势。中共在“中共病毒”疫情的应对上也做了虚假宣传，章教授公开支持闫丽梦博士揭发的中共病毒真相。
 
-# 拉特克利夫（Ratcliffe）: 包括习在内的中共领导人对他们所知道的COVID情况 “知情并撒谎”
+7月28日，福克斯访谈中章教授将中共国与1930年代的日本相比，警告中共对美国做出“非常危险的活动，特别是针对美国海军和空军”。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/czRKfIWc37RSn/images/20331a4e-7f5e-4cac-8035-65ecf3c9b647.jpg?asset_id=01fe235a-225e-4618-a1dd-30226388b1c1&amp;img_etag=%22c35c5c1a78a0cd071b6a7f37deb38d66%22&amp;size=3624)](https://spark.adobe.com/page/czRKfIWc37RSn/images/20331a4e-7f5e-4cac-8035-65ecf3c9b647.jpg?asset_id=01fe235a-225e-4618-a1dd-30226388b1c1&amp;img_etag=%22c35c5c1a78a0cd071b6a7f37deb38d66%22&amp;size=1024)
+9月7日，在福克斯新闻采访中，章教授敦促川普总统与中共国脱钩，美国不应该再充实“敌对政权”，指出这个敌对政权有杀戮欲，想杀死美国人，想统治世界。他说，“中共国正在配置其军队以杀死美国人”，基于美国国防部最近的一份报告表明，中共计划在十年内将其核弹头的储存量增加一倍，包括专门用于弹道导弹、射程可达美国的核弹头。该报告为川普政府的决定敲响了警钟。
 
-国家情报总监约翰·拉特克利夫（John Ratcliffe）告诉@CBS\_Herridge，中共国主席和中共领导人就有关他们知道的COVID-19的情况“对世界其他国家撒谎”，并且中共国“试图窃取我们对疫苗的研究（成果）”。
+参考链接
 
-国家情报总监约翰·拉特克利夫在周四接受CBS采访的部分内容中表示，包括习近平主席在内的中共“高层领导”“就有关他们知道的COVID-19信息和何时知道的对世界其他国家撒谎。”
-
-拉特克利夫说，“情报显示，包括习主席在内的中共高层知道并就他们知道的COVID-19信息和何时知道的对世界其他国家撒谎。他们做出有意识的决定，关闭经济、封锁中共国内的进出病毒发源地武汉的旅行。但他们允许从武汉到世界其他国家的旅行。他们知道并且他们利用了这件事情。”
-
-他还表示，中共国“一直试图获取我们对COVID-19的研究（信息）。”
-
-[原文链接](https://www.breitbart.com/clips/2020/12/03/ratcliffe-ccp-leaders-including-xi-were-aware-and-lied-about-what-they-knew-about-covid/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】-[点击spak adobe版](https://spark.adobe.com/page/czRKfIWc37RSn/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/czRKfIWc37RSn/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/czRKfIWc37RSn/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+[https://www.foxnews.com/world/china-collecting-worlds-dna-sinister](https://www.foxnews.com/world/china-collecting-worlds-dna-sinister)
 
 0
