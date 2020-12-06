@@ -1,26 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 参众两院的共和党议员到底支持谁当选
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/622736/)
+## 文贵说｜系列图片连载（六十七）
+` GM98` [轉載自GNews](https://gnews.org/zh-hans/622778/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06102709/capture-65.jpg) 图片来源：Wbur
-《华盛顿观察家报》（Washington Examiner）12月5日报道，根据《华盛顿邮报》的调查，国会中只有25名共和党人公开承认拜登在11月总统大选中获胜，在总共249名参众两院共和党人中，绝大多数的222人没有回应调查，或表示对选举结果尚不清楚。
+## 463.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06104739/102.jpg)
+佛教的伟大就是，各有各的因缘，各有各的福报，各有自己的轮回、福报，那都是你自己承担的。
 
-在承认拜登获胜的共和党人中，参议院有11人，众议院有14人。众议院共和党成员中，有六人将于明年1月退休，其中两名来自拜登以绝对优势获胜的选区。只有少数议员称川普赢得了选举，而绝大多数共和党人则回避这个问题。
+——郭文贵先生2020年8月9日
 
-只有8名共和党人表示支持川普总统继续努力保卫其在11月3日的竞选获胜，9名共和党人对此持反对意见， 很少共和党人给出明确的答案，因为法官们一再驳回了川普竞选团队提出的法律诉讼。30名共和党人表示，如果拜登在12月晚些时候赢得选举人团选举，他们将接受他为获胜者，另外217名共和党人没有给出明确答案，只有2名共和党人表示不会接受，他们是阿拉巴马州的莫·布鲁克斯（Mo Brooks）和亚利桑那州的保罗·戈萨（Paul Gosar）。这两名共和党议员坚信川普总统实际上赢得了大选胜利。
+## 464.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06104728/103.jpg)
+我们人生在世最高境界就是铲除掉人生对死亡的恐惧，和对衰老、疾病、穷败、失败潦倒的这种恐惧。只要这些没了，你不会对生死、也不会对任何东西再有恐惧。
 
-国会共和党人对11月大选结果的看法绝大部分都是三缄其口。参议院多数党领袖米奇·麦康奈尔(Mitch McConnell)在很大程度上避免就此事发表意见，似乎在等待未来的发展。
+——郭文贵先生2020年8月9日
 
-*评论：严重怀疑《华盛顿邮报》的这份调查是否公允，鉴于大选前的绝大多数民调都与事实相反，我仍把这个调查看成是挑拨离间，不怀好意的民调。我相信没有回复调查问卷的222名共和党人中，大多数是支持川普总统的。已经明确的川普的叛逆者只有25名。民主党疯狂的盗窃选票是不争的事实，主流媒体掩盖真相，睁眼说瞎话，只能暂时欺骗部分民众，但是共和党为了党派利益应该支持川普，为了顺应民意保住自己在众参两院的位置也应该支持川普连任。让我们拭目以待吧！*
+## 465.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06104639/104.jpg)
+投资爆料革命可能也会失败，不可能百分之百赢，但是如果你没去做，你一定会后悔！
 
-[原报道链接1](https://www.washingtonexaminer.com/news/only-two-dozen-republican-lawmakers-acknowledge-biden-win-survey)
+——郭文贵先生2020年8月9日
 
-[原报道链接2](https://www.washingtonpost.com/graphics/2020/politics/congress-republicans-trump-election-claims/)
+## 466.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06104715/106.jpg)
+只要你相信有来世，你不会惧怕死亡和恐惧，你会多积德少做恶。
 
-翻译： Alton
+——郭文贵先生2020年8月9日
 
-校对：沙拉猫
+## 467.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06104759/107.png)
+我们不要分党派，就分正义与否，还有一个能否灭共，还有一个如何能让更多人不成为单身母亲、单身父亲。这才是重点！
+
+——郭文贵先生2020年8月9日
+
+## 468.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06105039/108.png)
+我一定要干掉共产党！我只有赢才行！我拯救一两个人是解决不了问题的。
+
+——郭文贵先生2020年8月9日
+
+## 469.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06105049/109.png)
+正义不分党派，正义不分好坏和喜好。
+
+——郭文贵先生2020年8月9日
 
 0
