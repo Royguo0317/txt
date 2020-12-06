@@ -12,6 +12,11 @@
 
 
 
+[文贵精心设计打造的北京盘古七星酒店里中国最顶级的餐厅  The finest restaurant in China at the seven star Pan...](/content/getter/content/2020/12/5fcd099520c9025a87dced5a.md)
+
+**郭文贵MILES** `2020-12-06T16:40:53`
+##
+
 [ 12月6号：尊敬的战友们好．这样的卫星电话在战时……绝对不管用，这是首先被CCP毁掉……被打掉被废掉的两个星．危险⚠️，昨天路德先生给大家提醒的卫星电话，绝对...](/content/getter/content/2020/12/5fccad9e20c9025a87dcd3ea.md)
 
 **郭文贵MILES** `2020-12-06T10:08:30`
@@ -155,10 +160,5 @@
 [ 11月22日：我喜欢这样的男人……](/content/getter/content/2020/11/5fbadf79b2a6d15327848380.md)
 
 **郭文贵MILES** `2020-11-22T22:00:25`
-##
-
-[11月22号：尊敬的战友们好，你们健身了吗？你们传统播C C B病毒——香港危机真相了吗？一切都已经开始！](/content/getter/content/2020/11/5fba75f0b2a6d15327846f5d.md)
-
-**郭文贵MILES** `2020-11-22T14:30:08`
 ##
 
