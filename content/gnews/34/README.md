@@ -1,35 +1,112 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】一个没有反对声音的立法会 「明日大屿」前期研究 5.5 亿拨款项目压倒性通过
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/621786/)
+## 《路德社》每日简报早间版 2020.12.05&#8211;NewYork Time
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/621729/)
 
-搜集：诸水响声、JAY（杰伊）
+《路德社》文编组出品； 编辑：路德社精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06024326/20201205-AM-ZH-scaled.jpg)
+1205早间要闻-NewYork Time
 
-编撰：文燕
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06032916/jpg-243342image002.jpg)
-立法会财务委员会今12月4 日继续审议「明日大屿」前期研究5.5 亿拨款项目，会议历时近4 小时，多名建制派议员发言「批评」 42 个月的研究时间过长、质疑未能有效解决房屋问题。发展局局长黄伟纶则强调「有相当信心」计划可以向前走。拨款项目最后以 33 票赞成、2 票反对及 2 票弃权，压倒性通过，其中 2 票反对为郑松泰及医学界陈沛然，2 票弃权为新民党容海恩及民建联何俊贤。
+**国家情报总监：中共正在研发制造超级士兵**
 
-发展局局长黄伟纶回应称，现正研究不同资金的来源，未必需要全数由公帑支出，但指牵涉到公帑部份，就需返回立法会申请拨款。
+**Director of National Intelligence: the CCP is developing and manufacturing super soldiers**
 
-黄伟纶多次强调，估计日后土地收入超过7,030 亿元，但李慧琼认为政府过去亦曾「低估成本、高估回报」，黄则指估算已很保守，因仍未计算屯门西发展带来的卖地收入等。黄伟纶又称，「有相当信心」整个计划可以向前走，但强调并非「政府讲就算」，当中会有不同机制把关。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06032929/jpg-5436fdimage003.jpg)
-战友观点：
+中共招募神经科学最顶尖的德国科学家进行猴子换头实验，以获得“将芯片植入大脑控制士兵思想的神经科学技术”；利用基因编辑技术，克隆出特定功能的人体器官；
 
-长春社、创建香港、绿色和平、守护大屿联盟、香港海豚保育学会等九个环保及关注团体则对立法会的决定表示极度失望，批评政府漠视社会反对的声音一意孤行，他们还呼吁当局临崖勒马，立刻撤回造价至少6240亿元的填海计划，并停止破坏海洋生态及当地公共财政稳建性。
+In order to achieve the neuroscientific technology that implants chips into the brain to control soldiers’ minds. The CCP recruited top German neuroscientists to conduct experiments of switching heads by monkeys. They also clone human organs with specific functions by using gene editing technology.
 
-这九个环保团体强调，东大屿水域的周公岛与邻近水域或海底，生态丰富多样，还有国家二级保护野生动物白腹海雕的鸟巢、港独有的双足蜥及稀有的海笔。若港府执意在敏感生态区域填海造岛，必定破坏珍贵的海洋生态。
+**参议院情报委员会两党领袖发布联合声明**
 
-「明日大屿」前期研究拨款去年5月原已获立法会的工务小组通过，后提交财委会审议，但在泛民「拉布 」下无法在去年通过有关拨款。随着立法会泛民总辞，政府更积极为「明日大屿」议案「开路」，包括特首林郑月娥早前在施政报告当中撤回所有增加人手编制的拨款申请，令「明日大屿」议案成功插队。
+**The bipartisan leaders of the Senate Intelligence Committee issued a joint statement**
 
-在民主派全体被DQ和总辞后，再没有泛民「拉布」，立法会财务委员会4日得以「畅通无阻」通过拨款，会议​​并在财委会主席陈健波画线「赶收工」下，准时结束。一个没有反对党的会议，港共政府提出的前期研究拨款以压倒式通过实属意料中事。
+两党领袖呼应前日国家情报总监“中国是自二战以来对美国和世界民主自由的最大威胁”的论点，发表联合声明称，中共不会放弃主导世界的野心，中共对美国构成了最大威胁。继续为美国即将发出的雷霆行动做铺垫、唤醒民意。
 
-工程公民党前立法会议员谭文豪表示，港府现时有8000多亿元财政储备，预计「明日大屿」具体花费可能超过1万亿元的储备。会议中多名建制派议员发言「批评」 42 个月的研究时间过长、质疑未能有效解决房屋问题，这种卖港献媚，都是林郑淘空库房帮凶，未来一定会受到历史的谴责。有意思的是，2 票弃权是来自建制派，即是连自己人也不支持。
+The bipartisan leaders echoed the previous assertion by the director of National Intelligence that China is the greatest threat to the democracy and freedom of the United States and the world since World War II. The joint statement said that the CCP would not give up its ambition to dominate the world and it has posed the greatest threat to the United States. This statement continues to prepare the ground and arouse public opinion for the upcoming thunderous action of the United States.
 
-「明日大屿」计划极具争议。很多市民都有疑问，既然库房没钱，为何还要「挤」出5.5 亿拨款作「明日大屿」做前期研究？政府财困为何还要推进「明日大屿」庞大工程？林郑接下来还会不会有公众咨询？会不会推第四期抗疫基金？保就业基金11月尾结束，雇主是不必承诺保留一定数量的员工，这时候业界和市民更需要协助，政府有没有派钱帮助各界和市民度过难关的计划？这种劳民伤财的工程，在全球经济极度悲观的情况下，「明日大屿」工程就是「向北放水」赤裸裸卖港，掏空香港几十年的积蓄，牺牲港人未来。
+**蓬佩奥说中共国不是正常的政权**
 
-以上观点仅代表笔者本人
+**Pompeo said the CCP is not a normal regime**
 
-资料来源：[看中国](https://m.secretchina.com/news/gb/2020/12/05/954781.html)、[法广](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20201205-%E5%87%A0%E4%B9%8E%E6%B2%A1%E6%9C%89%E5%8F%8D%E5%AF%B9%E5%A3%B0%E9%9F%B3%E7%9A%84%E7%AB%8B%E6%B3%95%E4%BC%9A-%E5%87%86%E6%97%B6%E7%BB%93%E6%9D%9F%E8%BE%A9%E8%AE%BA-%E8%B5%B6%E6%94%B6%E5%B7%A5)
+过去数十年来世界所幻想的中共国经济繁荣会引领政治自由化的局面并没有出现；中共永远没有想过成为正常国家，因为其本质就不是一个正常的政权；这不是中美之间的战争而是自由与独裁的对抗；中共深思熟虑地布局与各国的经济往来，蒙蔽了世界几十年；请做对的事情。
+
+The world’s fantasy over the past few decades that China’s economic boom would lead to political liberalisation is not materialised. The CCP never wanted to become a normal state because it is not a normal regime by its very nature. This is not a war between China and the United States but between freedom and dictatorship. The economic engagement with the rest of the world that the CCP deliberated to do has blinded the world for decades. Please do the right thing.
+
+**FBI****正在调查来自加州的参议员范恩斯坦**
+
+**The FBI is investigating Senator Feinstein of California**
+
+FBI正在调查范恩斯坦，要求她交代其丈夫在COVID-19爆发前决定清仓股票的有关情况。该参议员与中共背景的所谓报业大亨方李邦琴来往密切，雇佣中共间谍司机长达五年。
+
+The FBI is investigating Senator Feinstein for the decision of her husband to liquidate stocks before the COVID-19 outbreak. The senator had a close relationship with Fang Li Bangqin, a CCP-backed newspaper tycoon, and employed a CCP spy as her driver for five years.
+
+**前空军中将麦金纳尼：美国必须立即进入国家紧急状态**
+
+**The former air lieutenant general McInerney: The United States of America must immediately enter a state of emergency.**
+
+必须立即执行2018年9月总统令，进入国家紧急状态；实施暴动法，防止Antifa的BLM骚乱；宣布戒严，暂停《人身保护令》，设立军事法庭；佩洛西和舒默都会被逮捕，我们确切知道谁在参与；川普总统注意安全。
+
+The presidential decree of September 2018 must be immediately implemented to enter a state of emergency, implement the Riot Act to prevent BLM riots of Antifa, declare martial law, suspend habeas corpus, and establish military courts. Both Pelosi and Schumer will be arrested, we know exactly who involved. President Trump should take care of security.
+
+金句摘要：
+
+Quotes:
+
+路德：1、中共生物战包括特定的种族遗传袭击。
+
+2、超级士兵：神经科学和基因编辑。
+
+3、美国两党共识：中共是美国历史上最大的威胁，远超前苏联。
+
+4、美国的价值观和体系经过2020年总统大选，让美国人明白这个体制的脆弱。
+
+Lude:
+
+1. CCP’s biological weapon includes specific ethnic genetic attacks.
+
+2. Super Soldiers: Neuroscience and gene editing.
+
+3. A bipartisan consensus of the US: CCP is the greatest threat to the US in history, far ahead of the Soviet Union.
+
+4. Through the 2020 presidential election, Americans will well know the fragility of America’s values and system under current framework.
+
+墨博士：
+
+1. 超级士兵实验是反人类、反人道的罪行。
+2. 当美国说新冠病毒是生物武器的时候，一定对中共立即开战。
+3. 目前美国遭受的所有恐惧和黑暗都是中共给的。
+
+
+Dr. Mo:
+
+1. The experiment of super soldiers is a crime against humanity.
+
+2. When the US announce that COVID-19 is a biological weapon, it must immediately go to the war with the CCP.
+
+3. All the fear and darkness that US is suffering is due to the CCP.
+
+安红：
+
+1、超级士兵的研究实验超越德国纳粹时代的雅利安婴儿。
+
+2、基因工程实验：普通战士成为中共的小白鼠，而中共高官子女却在海外开枝散叶
+
+Anhong:
+
+1. The research experiments of the Super soldiers surpassed the Aryan babies in Nazi Germany.
+
+2. Genetic engineering experiments: Ordinary soldiers become experimental rats for the CCP, while the children of its top officials spread their wings abroad.
+
+#CCP\_is\_terrorist   #TakeDownTheCCP
+
+文案：《路德社》文编组
+编辑：文宝Porsche
+听写：文宝Porsche
+金句整理：繁体的追逐
+翻译：阿西娜的圣斗士(沙加)
+校对：阿轩Action
+翻译及校对：阿轩Action
+审核校对：玫瑰天空
+上传排版：青葫芦娃&玫瑰天空
 
 0

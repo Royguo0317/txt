@@ -1,33 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》新闻快讯（视频版）&#8211;12月4日朱利安尼福克斯接受鲁道布斯访谈：中共国拥有乔拜登
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/621273/)
+## 如何使用短波收音机
+` GM127` [轉載自GNews](https://gnews.org/zh-hans/622007/)
 
-《路德社》出品
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06063831/1-26.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06063452/2-9.png)
+作者：【Blacksmith铁匠】
 
-Dec.04 Giuliani & Dobbs
-
-内容摘要 ：
-
-1.中共国在封锁消息上扮演着重要的角色，这一点连在美国都看得到：比如之前的拜登硬盘事件
-
-2.中共国拥有乔拜登
-
-3.这一切都说明，中共国可能无法承受川普总统下一个四年
-
-4.是中共国让美国的疫情达到如此境地，它们想要确保这一切都能完成（应该是指疫情和邮寄选票的关系）
-
-5.硬盘里的信息足以明天就起诉拜登
-
-6.Dominion的软件里，也有中共国参与的部分
-
-7.朱利安尼先生希望共和党人为了宪法、为了做正确的事情而站出来
-
-[援引原文](https://parler.com/post/bfd22cde98b54f30acd3433186e854b3)
-
-审核校对：玫瑰天空
-
-上传排版：青葫芦娃
+注：本文为作者个人观点；
+封面图片来源：[Frank Albrecht](https://unsplash.com/@shotaspot?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/radio?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText)
 
 0
