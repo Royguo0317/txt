@@ -1,23 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 灾难来临，战友请妥善应对！
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/620906/)
+## 川普出席乔治亚州集会，为共和党参议院候选人助选
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/621050/)
 
-俄罗斯喀秋莎农场 小学没毕业
+- 编辑：文顺
+- 翻译：Victor Torres
 
-校对 DongDong 银河 上传 银河
 
+***更多真相，请关注*** ***[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-[![艺术与灾难的缠斗_凤凰艺术](https://lh3.googleusercontent.com/proxy/wP-uRUoO13LOujx7NVunqhZUOmNOznnptK27qWc52dEyASw9Rxfr_7ZmO9ivOSvREmB-lrv048yh8hKdxcR3SVL_3M2og_lqw41-sqhIQTU)](https://www.google.ca/url?sa=i&amp;url=http%3A%2F%2Fwap.art.ifeng.com%2F%3Fapp%3Dsystem%26controller%3Dartmobile%26action%3Dcontent%26contentid%3D3495647&amp;psig=AOvVaw3njamMolyYpPclDdeCI8-z&amp;ust=1607299378094000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCOjop_-GuO0CFQAAAAAdAAAAABAJ)图片来源：凤凰艺术
-美国和北约成员国已验证中共病毒为生化武器，中共使用生化武器和网络攻击等超限战袭击美国主权，干扰美国总统大选。西方文明世界已彻底觉醒。中共内部高层清楚，现在以美国为首的大北约、小北约联盟国家，要对中共进行全面的打击。这些天他们正在准备后事，家属、子女、都在往外跑路，资产用不同方式转移出去，这是比特币和虚拟货币暴涨的原因，因为他们在洗钱。
+**西班牙2020年12月5日电/西喜社/**——川普总统周六出席乔治亚州集会，支持两名面临决胜选举的共和党参议院候选人，这将决定至少未来几年内的参议院控制权。 一月份的两次选举将决定参议院的控制权。
 
-惩罚清算共产邪魔时，中共高层一定会抓住同胞跟他们一起死扛，做肉盾，中国人民将会面临巨大的人道灾难。文贵先生直播里讲到在灾难来临之际，如何为爆料革命战友，特别是国内的战友，应对减轻这次即将到来的危机指明了方向。
+据《Just the News》报道，总统在瓦尔多斯塔地区机场会见了共和党参议院候选人大卫·珀杜（David Perdue）和凯利·洛夫勒（Kelly Loeffler），为共和党基地注入了活力，以确保下个月的高投票率。
 
-第一是要保证准确和快速的信息，破除中共对老百姓的愚民洗脑之术，不被中共利用。
+报道称，上个月珀杜（Perdue）、洛夫勒（Loeffler）和他们的对手都没有在各自的竞争中赢得多数选票，从而使比赛在一月份进入决赛。
 
-第二是确保充足的粮食，要让国内朋友家人有粮，不要因缺粮而造成次生灾难。
+在上个月的选举之后，共和党目前在参议院中仅占50-48的微弱多数（少数派两位独立选举人归入民主党阵营）。 该报道分析表示，民主党人拉斐尔·沃诺克（Raphael Warnock）和约翰·奥索夫（John Ossoff）必须赢得两个席位才能绑定参议院的控制权，而下一任副总统，现任迈克·彭斯(Mike Pence)或挑战者卡马拉·哈里斯(Kamala Harris）则是决胜关键。
 
-国内的战友能出去的尽全力出去，文贵先生己经在东南亚很多国家和俄罗斯准备好接待战友的场所。战友应该加紧行动起来，尽量储备粮食、药品，尤其对中共病毒提高警惕，以防穷途末路的邪恶中共会释放更大程度的病毒。储备多种通讯设备，把真实讯息传递给身边每一位同胞。尽量到安全的地方，远离一切的军事化设施，水坝、实验室，包括地下的设施，核电站。正义与邪恶黑暗势力的终极之战，马上就要开始了，为国内同胞和全世界华人祈福！
+**原文链接：**[https://justthenews.com/politics-policy/elections/trump-heading-georgia-rally-support-senate-gop-runoff-candidates](https://justthenews.com/politics-policy/elections/trump-heading-georgia-rally-support-senate-gop-runoff-candidates)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0
