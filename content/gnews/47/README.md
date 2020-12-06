@@ -1,13 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 如何使用短波收音机
-` GM127` [轉載自GNews](https://gnews.org/zh-hans/622007/)
+## 【热点速评】大众(中国)因芯片短缺已停产|中共“科技”被一枚芯片打回原形！
+` Ronald` [轉載自GNews](https://gnews.org/zh-hans/622171/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06063831/1-26.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06063452/2-9.png)
-作者：【Blacksmith铁匠】
+内新闻/素材:Meilen美伦 校对：加文gavin
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06074411/image0-1-4.jpg)
+据中国经济网2020年12月6日报道 ，12月5日一条关于大众汽车停产的消息迅速引发了多方关注。消息称，上汽大众从12月4日开始停产，一汽大众从12月初起也将进入停产状态。而导致南北大众停产的主要原因是：芯片供应不足。
 
-注：本文为作者个人观点；
-封面图片来源：[Frank Albrecht](https://unsplash.com/@shotaspot?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/radio?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText)
+对此，大众汽车集团（中国）公关部相关负责人徐颖表示，新冠疫情带来的不确定性，影响到一些特定汽车电子元件的芯片供应。
+
+让大众(中国)这个庞然大物轰然倒下的，竟然是一枚小小的芯片！此前中共官媒一直高调宣传中国高科技已超越美日欧等众多发达国家。
+
+然而，美国仅对中芯、华为等一众偷盗世界技术的间谍企业实施制裁数月，大众就因缺芯而被迫停产，关键时刻连替代品都拿不出来。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06074745/image0-23.jpg)
+可见，假的就是假的，中共赶英超美的科技神话已经破灭！此前中共对世界各国的科技不是骗就是偷，改头换面后据为己有，还大肆向不明真相的国民宣传自己世界第一、伟光正，以此收割民心。
+
+接下来会有更多依赖世界科技的企业停产、倒闭，大众(中国)仅仅是开始。随之而来的是越来越大的失业潮，中国人民的至暗时刻已经来临。
+
+(本文仅代表个人观点)
+
+新闻来源：
+[https://baijiahao.baidu.com/s?id=1685305056114398936&wfr=spider&for=pc&searchword=%E5%A4%A7%E4%BC%97%E5%81%9C%E4%BA%A7](https://baijiahao.baidu.com/s?id=1685305056114398936&amp;wfr=spider&amp;for=pc&amp;searchword=%E5%A4%A7%E4%BC%97%E5%81%9C%E4%BA%A7)
 
 0
