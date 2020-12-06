@@ -1,33 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中国正大规模扩大其气候变化计划，以复盖其半个国家
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/622473/)
+## 羅冠聰稱：國安法鎮壓規模已超乎想像　可能跟香港永別
+` 东京樱花团-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/622543/)
 
-作者：香草山写作组 七芒星
+HTS-02C-202012-001
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
+作者：阿恩（喜马拉雅东京樱花团）
 
+香港實施「國安法」僅幾個月時間，港共政權對香港民主運動人士的鎮壓愈見兇狠。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06092752/MOS0619-%EF%BC%BB%E7%86%B1%E9%BB%9E%E6%92%AD%E5%A0%B1%EF%BC%BD%E4%B8%AD%E5%9B%BD%E6%AD%A3%E5%A4%A7%E8%A7%84%E6%A8%A1%E6%89%A9%E5%A4%A7%E5%85%B6%E6%B0%94%E5%80%99%E5%8F%98%E5%8C%96%E8%AE%A1%E5%88%92%EF%BC%8C%E4%BB%A5%E8%A6%86%E8%93%8B%E5%85%B6%E5%8D%8A%E5%80%8B%E5%9B%BD%E5%AE%B6.jpg)
-据Populist Press12月5日消息，《商业内幕》报导， 中共政府周二表示，中国正在大规模扩大其气候控制项目，并力争到2025年能够复盖全国一半的人工降雨降雪。 中共国务院表示，该项目到2035年将处于“全球先进水平”，并将帮助减轻“干旱和冰雹等灾害”，并促进“对森林或草原火灾的应急响应”。
+民主黨副主席林卓廷由元朗7.21恐襲的原告變成「暴動罪」的被告；人民力量副主席譚得志（快必）因言入罪，被告「危害國家安全」未審先判從九月關押至今；
 
-据《卫报》报道，包括美国在内的数十个国家也有此类计划，但中共拥有世界上最大的计划，雇用了约35,000名员工。
+民主黨成員許智峯被控「違反國安法」及「洗黑錢」等罪名，幸成功逃亡丹麥……
 
-中共自1960年代就启动了类似计划。中共在2008年奥运会之前不久也在北京启动了类似的项目，该项目使中共在活动开始之前成功地迫使预期的降雨降下。
+對於普通香港人，中共也絕不手軟，律政司屢次不滿法官對反送示威者的判決過輕，要求從嚴判決。
 
-目前中共政府操纵，控制和制造了几乎所有东西，甚至连气候也不放过。虽然独裁政府控制自然资源会带来所谓的好处，但这样做是极其危险的。中共政府在超过半个国家的地域上拥有控制气候的能力，就从这看来中共不应在美国拥有任何影响力。中共这种严重违背自然规律的做法，必将受到上天的惩罚！
+一對14歲少男少女承認非法集結，被判12個月兒童保護，不留案底，在律政司要求下撴銷兒童保護令及留案底；
 
-原文链结
-[https://populist.press/china-massively-expanding-its-weather-modification-program-to-will-control-half-the-country/](https://populist.press/china-massively-expanding-its-weather-modification-program-to-will-control-half-the-country/)
-[https://www.businessinsider.com/china-expanding-weather-modification-program-artificial-rain-snow-2025-2020-12](https://www.businessinsider.com/china-expanding-weather-modification-program-artificial-rain-snow-2025-2020-12)
+21歲男子燒國旗被判240小時社會浴，律政司要求改判為監禁5周；
 
+18歲學生認踢警被判受感化一年，律政司要下改判即時監禁30日；
 
+酒店職員非法集結被判社會服務令，律政司要求下改判囚禁三個月……
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06092804/12345.png)
+流亡英國的羅冠聰在訪問中難掩憂鬱，直言：雖然預計國安法實施後，香港的言論自由會被衝擊，但沒有人預計到中共的干預程度是如此龐大深入。
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+他說，香港已經改變，要在短期內逆轉的機會很渺茫，所以他把自己視為爭取中國民主的奮鬥的一部分，並希望在國際社會間為香港奮力吶喊，爭取國際輿論焦點，持續為港人帶來一點希望。
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+以上觀點僅代表作者個人觀點
 
 0
