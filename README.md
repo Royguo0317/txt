@@ -12,147 +12,147 @@
 
 
 
-### [【世事解评】浅谈国内被洗脑人群的成因和解决之路](/content/gnews/1/README.md)
- ` 纽约香草山农场`
-
-### [中共希望将其货币武器化 数字货币可能会有所帮助](/content/gnews/2/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [【三票专栏】股市和疫苗是CCP和DS给川普挖的陷阱](/content/gnews/3/README.md)
- ` 纽约香草山农场`
-
-### [视频鲁迪·朱利安尼接受Lou Dobbs采访（节选）](/content/gnews/4/README.md)
- ` 英國倫敦喜莊園 Himalaya UK`
-
-### [第五个摇摆州将举行大选舞弊公开听证](/content/gnews/5/README.md)
+### [塔克-卡尔森重提闫博士，抨击中共全球欺诈导致大流行](/content/gnews/1/README.md)
  ` gnewscanada`
 
-### [为何百姓视而不见诺亚方舟？](/content/gnews/6/README.md)
+### [【世事解评】浅谈国内被洗脑人群的成因和解决之路](/content/gnews/2/README.md)
  ` 纽约香草山农场`
 
-### [蓬佩奥：不是美国对抗中国，是自由对抗暴政](/content/gnews/7/README.md)
+### [中共希望将其货币武器化 数字货币可能会有所帮助](/content/gnews/3/README.md)
+ ` 康州盘古喜马拉雅农场`
+
+### [【三票专栏】股市和疫苗是CCP和DS给川普挖的陷阱](/content/gnews/4/README.md)
+ ` 纽约香草山农场`
+
+### [视频鲁迪·朱利安尼接受Lou Dobbs采访（节选）](/content/gnews/5/README.md)
+ ` 英國倫敦喜莊園 Himalaya UK`
+
+### [第五个摇摆州将举行大选舞弊公开听证](/content/gnews/6/README.md)
+ ` gnewscanada`
+
+### [为何百姓视而不见诺亚方舟？](/content/gnews/7/README.md)
+ ` 纽约香草山农场`
+
+### [蓬佩奥：不是美国对抗中国，是自由对抗暴政](/content/gnews/8/README.md)
  ` GM107`
 
-### [美军最大飞行员训练基地周边已被中共入侵](/content/gnews/8/README.md)
+### [美军最大飞行员训练基地周边已被中共入侵](/content/gnews/9/README.md)
  ` 快慢机`
 
-### [【熱點播報】二次新冠疫情狂襲之際，疫苗之戰紛紛打響](/content/gnews/9/README.md)
+### [【熱點播報】二次新冠疫情狂襲之際，疫苗之戰紛紛打響](/content/gnews/10/README.md)
  ` 纽约香草山农场`
 
-### [CCP治下，一个科研大神的真实故事](/content/gnews/10/README.md)
+### [CCP治下，一个科研大神的真实故事](/content/gnews/11/README.md)
  ` 秘密翻译组G-Translators`
 
-### [川普出席乔治亚州集会，为共和党参议院候选人助选](/content/gnews/11/README.md)
+### [川普出席乔治亚州集会，为共和党参议院候选人助选](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【正道观察】丹麦水貂变异病毒与中共国的可疑关联](/content/gnews/12/README.md)
+### [【正道观察】丹麦水貂变异病毒与中共国的可疑关联](/content/gnews/13/README.md)
  ` 秘密翻译组G-Translators`
 
-### [灾难来临，战友请妥善应对！](/content/gnews/13/README.md)
+### [灾难来临，战友请妥善应对！](/content/gnews/14/README.md)
  ` HimalayaRussia`
 
-### [视频12/4/2020 郭先生直播: 国际黑暗势力不希望中国能平稳过渡到自由民主的国家, 不能指望美国, 联合国, 要靠以共灭共的战友](/content/gnews/14/README.md)
+### [视频12/4/2020 郭先生直播: 国际黑暗势力不希望中国能平稳过渡到自由民主的国家, 不能指望美国, 联合国, 要靠以共灭共的战友](/content/gnews/15/README.md)
  ` 秘密翻译组G-Translators`
 
-### [视频12/4/2020 郭先生直播: 揭露西方资本主义大佬和中共勾兑的真实目的](/content/gnews/15/README.md)
+### [视频12/4/2020 郭先生直播: 揭露西方资本主义大佬和中共勾兑的真实目的](/content/gnews/16/README.md)
  ` 秘密翻译组G-Translators`
 
-### [全球最大基金经理人娶了一名中共国妻子被视为有安全风控问题被迫辞职](/content/gnews/16/README.md)
+### [全球最大基金经理人娶了一名中共国妻子被视为有安全风控问题被迫辞职](/content/gnews/17/README.md)
  ` GM108`
 
-### [亚利桑那州立法机关要求立即对Dominion投票机进行检测](/content/gnews/17/README.md)
+### [亚利桑那州立法机关要求立即对Dominion投票机进行检测](/content/gnews/18/README.md)
  ` gnewscanada`
 
-### [视频561期WARROOM班農就JamesO’Keefe公开了CNN内部录音發表評論](/content/gnews/18/README.md)
+### [视频561期WARROOM班農就JamesO’Keefe公开了CNN内部录音發表評論](/content/gnews/19/README.md)
  ` XMLYG777`
 
-### [视频561期WARROOM班農就JamesO&#8217;Keefe公开了CNN内部录音發表評論](/content/gnews/19/README.md)
+### [视频561期WARROOM班農就JamesO&#8217;Keefe公开了CNN内部录音發表評論](/content/gnews/20/README.md)
  ` XMLYG777`
 
-### [美情报部门称: 中国已展开人体试验以制造超级士兵](/content/gnews/20/README.md)
+### [美情报部门称: 中国已展开人体试验以制造超级士兵](/content/gnews/21/README.md)
  ` 喜马拉雅巴黎七星农场`
 
-### [德意志时讯2020.12.05：疫情数据/中共国粗制滥造的疫情宣传/西方世界奋力抵御中共宣传](/content/gnews/21/README.md)
+### [德意志时讯2020.12.05：疫情数据/中共国粗制滥造的疫情宣传/西方世界奋力抵御中共宣传](/content/gnews/22/README.md)
  ` Himalaya Friends Germany`
 
-### [美国终止对华交流项目，称其为 “政治宣传”](/content/gnews/22/README.md)
+### [美国终止对华交流项目，称其为 “政治宣传”](/content/gnews/23/README.md)
  ` 康州盘古喜马拉雅农场`
 
-### [每日灭共新闻摘要 Ep.017期](/content/gnews/23/README.md)
+### [每日灭共新闻摘要 Ep.017期](/content/gnews/24/README.md)
  ` GM62`
 
-### [视频【字幕】12/03/2020文贵：新中国联邦人是时候团结一致，尽能力帮助你身边的人](/content/gnews/24/README.md)
+### [视频【字幕】12/03/2020文贵：新中国联邦人是时候团结一致，尽能力帮助你身边的人](/content/gnews/25/README.md)
  ` Caihongqiao`
 
-### [视频12/04/2020 Newsmax主持人分析川普转推的佐治亚州富尔顿县计票作弊视频](/content/gnews/25/README.md)
+### [视频12/04/2020 Newsmax主持人分析川普转推的佐治亚州富尔顿县计票作弊视频](/content/gnews/26/README.md)
  ` 秘密翻译组G-Translators`
 
-### [小丑末日狂欢，同胞划清界限](/content/gnews/26/README.md)
+### [小丑末日狂欢，同胞划清界限](/content/gnews/27/README.md)
  ` HimalayaRussia`
 
-### [密歇根州乌烟瘴气的大选舞弊听证会](/content/gnews/27/README.md)
+### [密歇根州乌烟瘴气的大选舞弊听证会](/content/gnews/28/README.md)
  ` gnewscanada`
 
-### [视频【字幕】12/03/2020文贵：为什么共产党要偷美国的大选](/content/gnews/28/README.md)
+### [视频【字幕】12/03/2020文贵：为什么共产党要偷美国的大选](/content/gnews/29/README.md)
  ` Caihongqiao`
 
-### [视频马克·扎克伯格为这次大选投入的4亿美元需调查](/content/gnews/29/README.md)
+### [视频马克·扎克伯格为这次大选投入的4亿美元需调查](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya UK`
 
-### [国际海运费暴涨 中共国粮食危机近在眼前](/content/gnews/30/README.md)
+### [国际海运费暴涨 中共国粮食危机近在眼前](/content/gnews/31/README.md)
  ` HimalayaRussia`
 
-### [再观手持毛语录的自由女神—众生为自由，灭共不可挡](/content/gnews/31/README.md)
+### [再观手持毛语录的自由女神—众生为自由，灭共不可挡](/content/gnews/32/README.md)
  ` HimalayaRussia`
 
-### [视频12/04/2020 蓬佩奥：这不是美国与中国的斗争，这是关于自由与暴政的斗争](/content/gnews/32/README.md)
+### [视频12/04/2020 蓬佩奥：这不是美国与中国的斗争，这是关于自由与暴政的斗争](/content/gnews/33/README.md)
  ` 秘密翻译组G-Translators`
 
-### [视频12/04/2020 乔·拜登不会为中共病毒造成的损失向中共追责](/content/gnews/33/README.md)
+### [视频12/04/2020 乔·拜登不会为中共病毒造成的损失向中共追责](/content/gnews/34/README.md)
  ` 秘密翻译组G-Translators`
 
-### [川普竞选团队提起诉讼，要求在乔治亚州举行新总统选举](/content/gnews/34/README.md)
+### [川普竞选团队提起诉讼，要求在乔治亚州举行新总统选举](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [视频12/04/2020 対中共应为中共病毒负责之事，乔·拜登完全混淆视听拒绝给出一个清晰的答案，就是告诉大家他会让中共逍遥法外](/content/gnews/35/README.md)
+### [视频12/04/2020 対中共应为中共病毒负责之事，乔·拜登完全混淆视听拒绝给出一个清晰的答案，就是告诉大家他会让中共逍遥法外](/content/gnews/36/README.md)
  ` 秘密翻译组G-Translators`
 
-### [视频12/03/2020 两党建制派都从加权竞赛功能中获利，双方共谋反对川普](/content/gnews/36/README.md)
+### [视频12/03/2020 两党建制派都从加权竞赛功能中获利，双方共谋反对川普](/content/gnews/37/README.md)
  ` 秘密翻译组G-Translators`
 
-### [视频12/03/2020 这个电子投票系统的加权竞赛功能侵蚀了一人一票的权利；如果我们不解决这个现代问题，美国将不再有民主](/content/gnews/37/README.md)
+### [视频12/03/2020 这个电子投票系统的加权竞赛功能侵蚀了一人一票的权利；如果我们不解决这个现代问题，美国将不再有民主](/content/gnews/38/README.md)
  ` 秘密翻译组G-Translators`
 
-### [视频12/05/2020 要闻同传⎢西德尼鲍威尔律师采访+川普推荐要闻+福克斯节目精选](/content/gnews/38/README.md)
+### [视频12/05/2020 要闻同传⎢西德尼鲍威尔律师采访+川普推荐要闻+福克斯节目精选](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`
 
-### [看待事物本质的标准](/content/gnews/39/README.md)
+### [看待事物本质的标准](/content/gnews/40/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [为何北京政府迅速推广业主委员会？](/content/gnews/40/README.md)
+### [为何北京政府迅速推广业主委员会？](/content/gnews/41/README.md)
  ` gnewscanada`
 
-### [何为幸福](/content/gnews/41/README.md)
+### [何为幸福](/content/gnews/42/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [2020美国总统选战是美国的宪法、自由和民主保卫战](/content/gnews/42/README.md)
+### [2020美国总统选战是美国的宪法、自由和民主保卫战](/content/gnews/43/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [小米公司股份增发创新高，股价跌幅创纪录](/content/gnews/43/README.md)
+### [小米公司股份增发创新高，股价跌幅创纪录](/content/gnews/44/README.md)
  ` 英國倫敦喜莊園 Himalaya UK`
 
-### [爆革星评：“超级士兵”带来“超级灾难”](/content/gnews/44/README.md)
+### [爆革星评：“超级士兵”带来“超级灾难”](/content/gnews/45/README.md)
  ` gnewscanada`
 
-### [【震惊】邪恶的新冠计划(2)——2010洛克菲勒“Lockstep”行动被曝光](/content/gnews/45/README.md)
+### [【震惊】邪恶的新冠计划(2)——2010洛克菲勒“Lockstep”行动被曝光](/content/gnews/46/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【世事解评】从中国文化本质看爆料革命](/content/gnews/46/README.md)
+### [【世事解评】从中国文化本质看爆料革命](/content/gnews/47/README.md)
  ` 纽约香草山农场`
 
-### [众议院通过法案，中共国公司面临审计或退市](/content/gnews/47/README.md)
+### [众议院通过法案，中共国公司面临审计或退市](/content/gnews/48/README.md)
  ` 英國倫敦喜莊園 Himalaya UK`
-
-### [【震惊】邪恶的新冠计划(1)——2010洛克菲勒“Lockstep”行动被曝光](/content/gnews/48/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
