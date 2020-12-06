@@ -1,19 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世界首位：东京的不动产投资额
-` 东京樱花团-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/622800/)
+## 【突发】川普呼吁在2020年发生违规事件后进行彻底的选举改革和身份核实
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/622890/)
 
-HTS-01C-202012-007
+- 翻译：Victor Torres
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06105025/i9876456.jpg)
 
-根据大手不动产JLL的调查，２０２０年１～９月期，东京商用不动产的投资额193亿美元，跃升世界首位，２０１９年同期为第四位。因为相对欧美各大都市，东京不动产受病毒影响较小，所以受到了海外投资家的追捧，特别是相对安定的物流设施和租赁不动产。
+***更多真相，请关注*** ***[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-据JLL调查，第二位是首尔142亿美元，第三位伦敦134亿美元，在2008年雷曼兄弟迷你債券事件后，东京首位还是在首次。
+**西班牙2020年12月6日电/西喜社/**—— 川普说：“可耻的是，到2020年，美国没有哪个州能做出任何真正的尝试来核实那些以邮寄方式进行选票的人是合格且合法注册的选民。”
 
-就海外投资家对日本不动产的直接投资比例看，今年１～９月期为38%，即使较１９年１～１２月期，也提高17个百分点。
+川普总统呼吁进行“具有里程碑意义的选举改革”，包括对11月的竞选活动中的缺席选票进行强制签名验证。
 
-日本不动产按用途分类，与１９年１～１２月期相比，物流设施增加３０％（同期比１１%増），住宅增加２２％（同９%増）。写字楼减少３１％（同９％減），商业设施减少７％（同７％減）。
+川普周六晚在乔治亚州举行的一次集会上支持两名共和党参议员候选人。 他们将于1月5日面临决选，这将决定国会参议院的控制权。
+
+他宣布：“获胜后，我们需要通过具有里程碑意义的选举改革，包括选民证。”  “有那么糟糕吗？居住证明，就像我们住在这个国家，住在这个州里。公民身份确认。”
+
+他补充说：“相信我，这是我们要做的事情。因为我们不允许它发生。”
+
+川普称去年夏天民主党提名大会上与会人员的身份验证比许多投票站都要多。
+
+“你知道，民主党全国委员会有他们的代表大会。他们有照片。除非有照片，有带照片的身份证，否则你不能进来。但是在最重要的投票时，他们没有，他们不想这样做。”
+
+**原文链接：**[https://justthenews.com/politics-policy/elections/trump-calls-sweeping-election-reform-id-verification-after-irregularities](https://justthenews.com/politics-policy/elections/trump-calls-sweeping-election-reform-id-verification-after-irregularities)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0
