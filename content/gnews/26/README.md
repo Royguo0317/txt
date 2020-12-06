@@ -1,32 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国家情报总监说，通俄门的部分文件将解密
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/621839/)
+## 12/05/2020 财经快讯: 受益于美国两院讨论新一轮经济刺激方案, 周五美国股指创历史新高
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/621900/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06041115/1-25.png)图片来自：wired.com
-《华盛顿观察家报》（Washington Examiner）12月3日报道，美国国家情报总监约翰·拉特克利夫（John Ratcliffe）在周四接受该报记者电话采访时表示，他与美国联邦检察官约翰·达勒姆（John Durham）分享了数千份文件，并期望检察官现在向公众公布他所知道的川普-俄罗斯调查人员的大规模不当行为的真相。但是，情报负责人强调，这并不意味着会按照川普总统在内的一些共和党人所期望的那样，解密所有交给联邦检察官的文件。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05090921/capture-50.jpg)图片来源：https://cn.investing.com/indices/us-30
+1.12月4日，美国国务卿彭培奥(POMPEO)在美国政府官网发表新闻声明称，美国将对从事暴力胁迫，偷窃，间谍，恶意干涉美国内部事务，学术自由和商业活动的中共官员或从事统战活动的个人实施签证限制。该声明表示，中共长期以来一直寻求在世界范围内传播马列主义思想并施加影响。中共统战部一直致力于资助和支持海外组织宣传中共政治思想，威吓和欺凌那些反对中共政府政策的组织和个人。中共恐吓，胁迫的手段通常包括在网上散布目标对象及其家庭成员的个人隐私（“人肉”）。
 
-10月，拉特克利夫解密了前中情局局长约翰-布伦南（John Brennan）的手写笔记，显示他在2016年向时任总统奥巴马通报了一份未经核实的俄罗斯情报报告，声称前国务卿希拉里-克林顿(Hillary Clinton)计划在2016年7月将当时的候选人川普与俄罗斯黑客入侵民主党全国委员会联系起来，以转移她对私人电子邮件服务器的不当使用。他还解密了2016年9月中情局反间谍部门向科米转交的指控报告，并解雇了负责反情报行动的副助理局长彼得-斯特佐克(Peter Strzok)。
+[https://www.state.gov/u-s-imposes-sanctions-on-peoples-republic-of-china-officials-engaged-in-coercive-influence-activities/](https://www.state.gov/u-s-imposes-sanctions-on-peoples-republic-of-china-officials-engaged-in-coercive-influence-activities/)
 
-拉特克利夫的举动遭到了民主党人和国家安全资深人士的强烈反对。布伦南在CNN上回应说，“这令人震惊，他有选择地解密信息，显然是为了增进唐纳德·川普和与他结盟的共和党人的政治利益。”当时，拉特克利夫发表了一份声明，称“这不是俄罗斯的虚假信息，情报机构也没有进行过这样的评估。”
+2. 美国Newsmax12月3日报道称，石油输出国组织和俄罗斯（简称OPEC+）于本周四达成协议，同意从明年一月份起增加石油产量50万桶/天，但未能在长期石油政策上达成一致。增产意味着石油输出国组织（OPEC ）和俄罗斯将从明年1月起减产720万桶/日（或自1月起全球总需求的7％），而目前的减产量为770万桶/日。该组织决定将在明年1月后每月聚会一次，以商定石油政策。OPEC+今后每月举行石油会议将使油价走势更加动荡。OPEC+作出决定后，原油价格延续涨势，上涨1.2％，至每桶48.83美元。
 
-同月，美国情报部门负责人还向情报部门的监督机构发送了一份调查报告，内容涉及2018年由共和党领导的众议院情报委员会(House intelligence Committee)的一份报告，该报告批评了奥巴马时代的情报部门对2017年俄罗斯干预2016年大选的评估中的一些交易化做法。
+[https://www.newsmax.com/t/newsmax/article/999908/7](https://www.newsmax.com/t/newsmax/article/999908/7)
 
-拉特克利夫还说:“我的前任理查德·格伦内尔(Richard Grenell)和我本人已经解密了大部分情报部门的文件，这些文件可供公众查看，不必对消息来源和方法有所担心……我认为我已经向约翰·达勒姆提供了数千份文件，但还有很多文件确实不能公开消息来源和方法，原因很多，包括对正在进行的调查造成危害。”
+3. 路透社报道称，川普政府周五拒绝给TikTok要求其从美撤资的行政命令延期。上周，美国外国投资委员会批准字节跳动公司延长一周(到本周五)以剥离TikTok在美资产。川普总统今年8月的行政命令赋予司法部强制执行权：一旦期限届满，便可执行资产剥离命令；但目前尚不清楚政府何时或如何寻求强制资产剥离。
 
-川普和共和党盟友在大选前对达勒姆寄予厚望，一些人甚至坚持认为，达勒姆在 “通俄门 “争议中，应该尽量透明，应大规模解密奥巴马政府和高级情报人员以及执法官员造成的损害。10月初，他们的愿望似乎实现了。川普在推特上呼吁公开所有的俄罗斯调查文件。”我已完全授权全面解密有关美国历史上最大的政治罪行–通俄骗局的任何&所有文件。同样，希拉里-克林顿(Hillary Clinton)的电子邮件丑闻也是如此。没有删节！” 川普在推特上写道：”所有俄罗斯骗局丑闻信息早已被我解密。不幸的是，人们的行动非常缓慢，尤其因为这可能是我国历史上最大的政治犯罪。行动吧！”
+[https://www.businessinsider.com/exclusive-us-not-extending-tiktok-divestiture-deadline-but-talks-expected-to-continue-sources-2020-12?r=AU&IR=T](https://www.businessinsider.com/exclusive-us-not-extending-tiktok-divestiture-deadline-but-talks-expected-to-continue-sources-2020-12?r=AU&amp;IR=T)
 
-尽管很多人猜测达勒姆可能会在总统大选结束前发布一份报告，但并没有发生，川普甚至对此大发雷霆。司法部长威廉-巴尔（William Barr）本周透露，11月大选前几天，他将达勒姆提升为特别顾问，任务是调查与FBI的 “交火飓风 “行动以及后来罗伯特·穆勒(Robert Mueller)团队的调查有关的所有违法行为。该命令于周二披露，为这位来自康涅狄格州的联邦检察官提供了进一步的保护，防止乔-拜登当选总统后试图关闭刑事调查。
+4. 美国CNBC 发文称，川普总统正在考虑签署一项法案，即《外国公司控股责任法案》，英文名为“Holding Foreign Companies Accountable Act”。该法案可能会使数家中国公司退出美国证交所，并加剧美国与中国之间本已紧张的关系。该法案规定：如果外国公司拒绝向美国会计监管机构开放账目，则该公司需要从美国证交所退市；该法案也会阻止外国公司从美国投资者手里筹集资金。尽管该法律广义的讲适用于任何国家的公司，但主要针对的是中国公司。
 
-达勒姆从2019年开始调查，已经有一项认罪，凯文-克林斯密斯（Kevin Clinesmith ）承认，他欺诈性地改变了中情局电子邮件的措辞，说前川普竞选助手卡特-佩奇（Carter Page） “不是该机构的消息来源”，尽管联邦调查局被告知佩奇多年来一直是中情局的 “业务联系人”。几乎所有针对佩奇的《外国情报监视法》手令的签署者–前司法部副部长罗森斯坦（Rosenstein）、被解雇的FBI副局长安德鲁-麦凯布（Andrew McCabe）和被解雇的司法部副部长萨利-耶茨（Sally Yates）–今年早些时候作证说，如果他们当时知道了有关过程的情况，就不会签署针对佩奇的FISA手令。被解雇的前FBI局长詹姆斯-科米（James Comey）作证说，如果没有经过 “更充分 “的讨论，他不会在FISA申请上签字。
+[https://www.cnbc.com/2020/12/04/alibaba-jdcom-petrochina-likely-staying-on-wall-street-despite-trump-push-to-delist-chinese-companies.html](https://www.cnbc.com/2020/12/04/alibaba-jdcom-petrochina-likely-staying-on-wall-street-despite-trump-push-to-delist-chinese-companies.html)
 
-拉特克利夫说: “这是对权力和法律权威的滥用。问题不在于这些事情是否发生，而是它们确实发生了。我的意思是，有个联邦调查局的律师因为在FISA法庭上伪造证据而进了监狱。所有奥巴马和拜登的高级国家安全官员都表示，在FISA法庭进行非法监听和滥用情报的想法是一派胡言。” 拉特克利夫说道。“我的意思是，从字面上说，他们每个人——科米、麦凯布、耶茨——都说，‘天哪，当我们了解这一切之后太震惊了。美国人民需要一个交代，我当然已经向现在的特别顾问提供了很多信息。我和所有的美国人一样，指望着他来谈很多我知道的我不能谈的事情。
+5. 新浪旗下黑猫投诉平台红黑榜显示，截至2020年11月底，黑猫投诉平台累计收到消费者有效投诉超307万，11月有效投诉21万余件。11月初蛋壳公寓事件引起广泛关注，蛋壳公寓有效投诉量大幅增长，而作为蛋壳合作方的微众银行，也因租金贷问题有效投诉大幅增长，进入月度黑榜前十。
 
-2019年12月，司法部监察长迈克尔-霍洛维茨（Michael Horowitz）发布了一份报告，认为FBI的调查到处是严重失误，他们还向外国情报监视法庭隐瞒信息，开脱罪责。霍洛维茨批评该局在对佩奇的监视中至少有17处 “重大错误和遗漏”，并批评该局把一份由英国前间谍克里斯多夫·斯蒂尔（Christopher Steele）编撰的、名誉扫地的、由民主党资助的档案作为依据。解密脚注显示，FBI知道斯蒂尔的档案可能被俄罗斯的虚假信息所破坏，霍洛维茨说，FBI对斯蒂尔的主要消息来源、在美国的、受过俄罗斯训练的律师伊戈尔-丹琴科（Igor Danchenko）的采访，”对斯蒂尔选举报告的可靠性提出了重大质疑”。
+[https://tousu.sina.com.cn/articles/view/43831/](https://tousu.sina.com.cn/articles/view/43831/)
 
-[原文链接](https://www.washingtonexaminer.com/news/ratcliffe-we-cant-declassify-all-of-russiagates-secrets)
-
-翻译报道： Alton
+By 秘密翻译组—金融团队—文印
 
 0
