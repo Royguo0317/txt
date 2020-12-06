@@ -1,30 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/05/2020 财经快讯: 受益于美国两院讨论新一轮经济刺激方案, 周五美国股指创历史新高
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/621900/)
+## 财经普及关键词: 央行逆回购
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/621910/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05090921/capture-50.jpg)图片来源：https://cn.investing.com/indices/us-30
-1.12月4日，美国国务卿彭培奥(POMPEO)在美国政府官网发表新闻声明称，美国将对从事暴力胁迫，偷窃，间谍，恶意干涉美国内部事务，学术自由和商业活动的中共官员或从事统战活动的个人实施签证限制。该声明表示，中共长期以来一直寻求在世界范围内传播马列主义思想并施加影响。中共统战部一直致力于资助和支持海外组织宣传中共政治思想，威吓和欺凌那些反对中共政府政策的组织和个人。中共恐吓，胁迫的手段通常包括在网上散布目标对象及其家庭成员的个人隐私（“人肉”）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06053945/Picture94.png)图片来源：https://zhuanlan.zhihu.com/p/35244182
+中共央行上周五进行了100亿元7天逆回购操作，本次逆回购和中期借贷便利（MLF）全回笼规模为300亿元。至此，逆回购到期余额降至2000亿元。上周的操作，其实是上月底央行推出的3500亿“MLF+逆回购”组合的一步。那么，本期就由我们来简单普及一下逆回购的本质和其目的。
 
-[https://www.state.gov/u-s-imposes-sanctions-on-peoples-republic-of-china-officials-engaged-in-coercive-influence-activities/](https://www.state.gov/u-s-imposes-sanctions-on-peoples-republic-of-china-officials-engaged-in-coercive-influence-activities/)
+### **公开市场操作**
 
-2. 美国Newsmax12月3日报道称，石油输出国组织和俄罗斯（简称OPEC+）于本周四达成协议，同意从明年一月份起增加石油产量50万桶/天，但未能在长期石油政策上达成一致。增产意味着石油输出国组织（OPEC ）和俄罗斯将从明年1月起减产720万桶/日（或自1月起全球总需求的7％），而目前的减产量为770万桶/日。该组织决定将在明年1月后每月聚会一次，以商定石油政策。OPEC+今后每月举行石油会议将使油价走势更加动荡。OPEC+作出决定后，原油价格延续涨势，上涨1.2％，至每桶48.83美元。
+逆回购，是央行公开市场操作的一个重要手段。公开市场操作是央行释放或回收货币，调节市场流动性的主要货币政策，通过央行与指定交易商进行有价证券和外汇交易，达成调整货币政策的目的。不同于欧美中央银行，其主要通过出售资产，信贷，回购协议等进行公开市场操作，中国人民银行喜欢通过现券交易，央行票据和回购交易来影响货币政策。
 
-[https://www.newsmax.com/t/newsmax/article/999908/7](https://www.newsmax.com/t/newsmax/article/999908/7)
+### **逆回购**
 
-3. 路透社报道称，川普政府周五拒绝给TikTok要求其从美撤资的行政命令延期。上周，美国外国投资委员会批准字节跳动公司延长一周(到本周五)以剥离TikTok在美资产。川普总统今年8月的行政命令赋予司法部强制执行权：一旦期限届满，便可执行资产剥离命令；但目前尚不清楚政府何时或如何寻求强制资产剥离。
+中共央行近日推行的逆回购是回购交易的一种。回购交易分为正回购和逆回购两种，正回购是央行向以及交易商卖出有价证券，并约定未来特定日期买回证券的行为。正回购为央行减少流动性的行为；逆回购为央行向一级交易商购买有价证券，并约定在未来特定日期将有价证券卖回交易商的行为。**逆回购为央行向市场投放流动性的操作，逆回购到期则为央行从市场收回流动性的操作。**
 
-[https://www.businessinsider.com/exclusive-us-not-extending-tiktok-divestiture-deadline-but-talks-expected-to-continue-sources-2020-12?r=AU&IR=T](https://www.businessinsider.com/exclusive-us-not-extending-tiktok-divestiture-deadline-but-talks-expected-to-continue-sources-2020-12?r=AU&amp;IR=T)
+通过上面的解释，可以看出逆回购的本质是笔贷款买卖，其目的是央行为了在短期内给市场注入流动性，通俗点说有点类似“大水漫灌”，钱不值钱。不过既然是贷款买卖，那么利率就是一个重要因素。根据路透社的数据，早在11月9号，中共银行间市场隔夜回购加权利率大幅上行，涨约40个基点（bp），升破2%后探至2.20%附近并保持至今。上个月由于央行还未正式发文宣布逆回购，利率上涨是年末市场对资金紧张的正常表现。可是在11月底宣布并实施3500亿元公开市场操作后，隔夜利率仍然居高不下，这就不得不让人怀疑市场对资金还是持谨慎且不乐观的态度，换言之，**还是缺钱**。我们作为吃瓜群众，自然是不知道钱跑哪儿去了，为啥疫情期间还这么缺钱，钱能花到何处？但是钱的真实性让市场开始担心这擀面杖经济还能不能继续下去，能不能过个踏实年了。央行接下去怎么走，市场仍持观望态度。
 
-4. 美国CNBC 发文称，川普总统正在考虑签署一项法案，即《外国公司控股责任法案》，英文名为“Holding Foreign Companies Accountable Act”。该法案可能会使数家中国公司退出美国证交所，并加剧美国与中国之间本已紧张的关系。该法案规定：如果外国公司拒绝向美国会计监管机构开放账目，则该公司需要从美国证交所退市；该法案也会阻止外国公司从美国投资者手里筹集资金。尽管该法律广义的讲适用于任何国家的公司，但主要针对的是中国公司。
+当了解到逆回购的本质是贷款时，必然又有了第二个问题：这钱到期了咋办？不同与现券交易和央行票据，逆回购是有期限的，往往只有7天至14天，之后央行理论上必须从市场收回流动性。聪明的战友们想必已经看出其中的猫腻，就是“打包”：逆回购控制市场流动性是假，给MLF探路是真。MLF的贷款期限往往是半年，在隔夜利率仍维持相对高位的情况下，如果不继续大水漫灌，中共经济或在半年内就有一场浩劫。
 
-[https://www.cnbc.com/2020/12/04/alibaba-jdcom-petrochina-likely-staying-on-wall-street-despite-trump-push-to-delist-chinese-companies.html](https://www.cnbc.com/2020/12/04/alibaba-jdcom-petrochina-likely-staying-on-wall-street-despite-trump-push-to-delist-chinese-companies.html)
+By【秘翻组·金融法律组】
 
-5. 新浪旗下黑猫投诉平台红黑榜显示，截至2020年11月底，黑猫投诉平台累计收到消费者有效投诉超307万，11月有效投诉21万余件。11月初蛋壳公寓事件引起广泛关注，蛋壳公寓有效投诉量大幅增长，而作为蛋壳合作方的微众银行，也因租金贷问题有效投诉大幅增长，进入月度黑榜前十。
+参考网站：
 
-[https://tousu.sina.com.cn/articles/view/43831/](https://tousu.sina.com.cn/articles/view/43831/)
+- [https://cn.reuters.com/article/](https://cn.reuters.com/article/%E4%B8%AD%E5%9B%BD%E5%85%AC%E5%BC%80%E5%B8%82%E5%9C%BA%EF%BC%9A%E8%BF%9B%E8%A1%8C100%E4%BA%BF%E9%80%86%E5%9B%9E%E8%B4%AD%E6%93%8D%E4%BD%9C%E8%BF%9E%E7%BB%AD%E5%9B%9B%E6%97%A5%E5%87%80%E5%9B%9E%E7%AC%BC%EF%BC%8C%E4%BD%99%E9%A2%9D%E7%BB%AD%E9%99%8D%E8%87%B32%2C000%E4%BA%BF-idCNL4S2IK05P)
 
-By 秘密翻译组—金融团队—文印
+
+- [https://finance.sina.com.cn/roll/2020-12-01/doc-iiznezxs4524529.shtml](https://finance.sina.com.cn/roll/2020-12-01/doc-iiznezxs4524529.shtml)
+
+
+- [https://www.reuters.com/article/](https://www.reuters.com/article/%E4%B8%AD%E5%9B%BD%E8%B4%A7%E5%B8%81%E5%B8%82%E5%9C%BA%EF%BC%9A%E9%80%86%E5%9B%9E%E8%B4%AD%E5%86%8D%E7%BC%BA%E5%B8%AD%E9%9A%94%E5%A4%9C%E5%8D%87%E7%A0%B42%25%EF%BC%8C%E4%BE%9B%E7%BB%99%E4%B8%8D%E7%A8%B3%E5%85%B3%E6%B3%A8%E5%90%8E%E7%BB%AD%E5%85%AC%E5%BC%80%E5%B8%82%E5%9C%BA%E6%93%8D%E4%BD%9C-idCNL4S2HV0MV)
+
+
+- [https://www.investopedia.com/terms/r/reverserepurchaseagreement](https://www.investopedia.com/terms/r/reverserepurchaseagreement.asp#:~:text=A%20reverse%20repo%20is%20a,supply%20via%20open%20market%20operations)
+
+
+- [https://www.investopedia.com/terms/o/openmarketoperations.asp](https://www.investopedia.com/terms/o/openmarketoperations.asp#:~:text=Open%20market%20operations%20%28OMO%29%20refers,out%20to%20businesses%20and%20consumers.)
+
 
 0
