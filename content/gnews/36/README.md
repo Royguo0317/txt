@@ -1,32 +1,112 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国家情报总监说，通俄门的部分文件将解密
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/621839/)
+## 《路德社》每日简报早间版 2020.12.05&#8211;NewYork Time
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/621729/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06041115/1-25.png)图片来自：wired.com
-《华盛顿观察家报》（Washington Examiner）12月3日报道，美国国家情报总监约翰·拉特克利夫（John Ratcliffe）在周四接受该报记者电话采访时表示，他与美国联邦检察官约翰·达勒姆（John Durham）分享了数千份文件，并期望检察官现在向公众公布他所知道的川普-俄罗斯调查人员的大规模不当行为的真相。但是，情报负责人强调，这并不意味着会按照川普总统在内的一些共和党人所期望的那样，解密所有交给联邦检察官的文件。
+《路德社》文编组出品； 编辑：路德社精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06024326/20201205-AM-ZH-scaled.jpg)
+1205早间要闻-NewYork Time
 
-10月，拉特克利夫解密了前中情局局长约翰-布伦南（John Brennan）的手写笔记，显示他在2016年向时任总统奥巴马通报了一份未经核实的俄罗斯情报报告，声称前国务卿希拉里-克林顿(Hillary Clinton)计划在2016年7月将当时的候选人川普与俄罗斯黑客入侵民主党全国委员会联系起来，以转移她对私人电子邮件服务器的不当使用。他还解密了2016年9月中情局反间谍部门向科米转交的指控报告，并解雇了负责反情报行动的副助理局长彼得-斯特佐克(Peter Strzok)。
+**国家情报总监：中共正在研发制造超级士兵**
 
-拉特克利夫的举动遭到了民主党人和国家安全资深人士的强烈反对。布伦南在CNN上回应说，“这令人震惊，他有选择地解密信息，显然是为了增进唐纳德·川普和与他结盟的共和党人的政治利益。”当时，拉特克利夫发表了一份声明，称“这不是俄罗斯的虚假信息，情报机构也没有进行过这样的评估。”
+**Director of National Intelligence: the CCP is developing and manufacturing super soldiers**
 
-同月，美国情报部门负责人还向情报部门的监督机构发送了一份调查报告，内容涉及2018年由共和党领导的众议院情报委员会(House intelligence Committee)的一份报告，该报告批评了奥巴马时代的情报部门对2017年俄罗斯干预2016年大选的评估中的一些交易化做法。
+中共招募神经科学最顶尖的德国科学家进行猴子换头实验，以获得“将芯片植入大脑控制士兵思想的神经科学技术”；利用基因编辑技术，克隆出特定功能的人体器官；
 
-拉特克利夫还说:“我的前任理查德·格伦内尔(Richard Grenell)和我本人已经解密了大部分情报部门的文件，这些文件可供公众查看，不必对消息来源和方法有所担心……我认为我已经向约翰·达勒姆提供了数千份文件，但还有很多文件确实不能公开消息来源和方法，原因很多，包括对正在进行的调查造成危害。”
+In order to achieve the neuroscientific technology that implants chips into the brain to control soldiers’ minds. The CCP recruited top German neuroscientists to conduct experiments of switching heads by monkeys. They also clone human organs with specific functions by using gene editing technology.
 
-川普和共和党盟友在大选前对达勒姆寄予厚望，一些人甚至坚持认为，达勒姆在 “通俄门 “争议中，应该尽量透明，应大规模解密奥巴马政府和高级情报人员以及执法官员造成的损害。10月初，他们的愿望似乎实现了。川普在推特上呼吁公开所有的俄罗斯调查文件。”我已完全授权全面解密有关美国历史上最大的政治罪行–通俄骗局的任何&所有文件。同样，希拉里-克林顿(Hillary Clinton)的电子邮件丑闻也是如此。没有删节！” 川普在推特上写道：”所有俄罗斯骗局丑闻信息早已被我解密。不幸的是，人们的行动非常缓慢，尤其因为这可能是我国历史上最大的政治犯罪。行动吧！”
+**参议院情报委员会两党领袖发布联合声明**
 
-尽管很多人猜测达勒姆可能会在总统大选结束前发布一份报告，但并没有发生，川普甚至对此大发雷霆。司法部长威廉-巴尔（William Barr）本周透露，11月大选前几天，他将达勒姆提升为特别顾问，任务是调查与FBI的 “交火飓风 “行动以及后来罗伯特·穆勒(Robert Mueller)团队的调查有关的所有违法行为。该命令于周二披露，为这位来自康涅狄格州的联邦检察官提供了进一步的保护，防止乔-拜登当选总统后试图关闭刑事调查。
+**The bipartisan leaders of the Senate Intelligence Committee issued a joint statement**
 
-达勒姆从2019年开始调查，已经有一项认罪，凯文-克林斯密斯（Kevin Clinesmith ）承认，他欺诈性地改变了中情局电子邮件的措辞，说前川普竞选助手卡特-佩奇（Carter Page） “不是该机构的消息来源”，尽管联邦调查局被告知佩奇多年来一直是中情局的 “业务联系人”。几乎所有针对佩奇的《外国情报监视法》手令的签署者–前司法部副部长罗森斯坦（Rosenstein）、被解雇的FBI副局长安德鲁-麦凯布（Andrew McCabe）和被解雇的司法部副部长萨利-耶茨（Sally Yates）–今年早些时候作证说，如果他们当时知道了有关过程的情况，就不会签署针对佩奇的FISA手令。被解雇的前FBI局长詹姆斯-科米（James Comey）作证说，如果没有经过 “更充分 “的讨论，他不会在FISA申请上签字。
+两党领袖呼应前日国家情报总监“中国是自二战以来对美国和世界民主自由的最大威胁”的论点，发表联合声明称，中共不会放弃主导世界的野心，中共对美国构成了最大威胁。继续为美国即将发出的雷霆行动做铺垫、唤醒民意。
 
-拉特克利夫说: “这是对权力和法律权威的滥用。问题不在于这些事情是否发生，而是它们确实发生了。我的意思是，有个联邦调查局的律师因为在FISA法庭上伪造证据而进了监狱。所有奥巴马和拜登的高级国家安全官员都表示，在FISA法庭进行非法监听和滥用情报的想法是一派胡言。” 拉特克利夫说道。“我的意思是，从字面上说，他们每个人——科米、麦凯布、耶茨——都说，‘天哪，当我们了解这一切之后太震惊了。美国人民需要一个交代，我当然已经向现在的特别顾问提供了很多信息。我和所有的美国人一样，指望着他来谈很多我知道的我不能谈的事情。
+The bipartisan leaders echoed the previous assertion by the director of National Intelligence that China is the greatest threat to the democracy and freedom of the United States and the world since World War II. The joint statement said that the CCP would not give up its ambition to dominate the world and it has posed the greatest threat to the United States. This statement continues to prepare the ground and arouse public opinion for the upcoming thunderous action of the United States.
 
-2019年12月，司法部监察长迈克尔-霍洛维茨（Michael Horowitz）发布了一份报告，认为FBI的调查到处是严重失误，他们还向外国情报监视法庭隐瞒信息，开脱罪责。霍洛维茨批评该局在对佩奇的监视中至少有17处 “重大错误和遗漏”，并批评该局把一份由英国前间谍克里斯多夫·斯蒂尔（Christopher Steele）编撰的、名誉扫地的、由民主党资助的档案作为依据。解密脚注显示，FBI知道斯蒂尔的档案可能被俄罗斯的虚假信息所破坏，霍洛维茨说，FBI对斯蒂尔的主要消息来源、在美国的、受过俄罗斯训练的律师伊戈尔-丹琴科（Igor Danchenko）的采访，”对斯蒂尔选举报告的可靠性提出了重大质疑”。
+**蓬佩奥说中共国不是正常的政权**
 
-[原文链接](https://www.washingtonexaminer.com/news/ratcliffe-we-cant-declassify-all-of-russiagates-secrets)
+**Pompeo said the CCP is not a normal regime**
 
-翻译报道： Alton
+过去数十年来世界所幻想的中共国经济繁荣会引领政治自由化的局面并没有出现；中共永远没有想过成为正常国家，因为其本质就不是一个正常的政权；这不是中美之间的战争而是自由与独裁的对抗；中共深思熟虑地布局与各国的经济往来，蒙蔽了世界几十年；请做对的事情。
+
+The world’s fantasy over the past few decades that China’s economic boom would lead to political liberalisation is not materialised. The CCP never wanted to become a normal state because it is not a normal regime by its very nature. This is not a war between China and the United States but between freedom and dictatorship. The economic engagement with the rest of the world that the CCP deliberated to do has blinded the world for decades. Please do the right thing.
+
+**FBI****正在调查来自加州的参议员范恩斯坦**
+
+**The FBI is investigating Senator Feinstein of California**
+
+FBI正在调查范恩斯坦，要求她交代其丈夫在COVID-19爆发前决定清仓股票的有关情况。该参议员与中共背景的所谓报业大亨方李邦琴来往密切，雇佣中共间谍司机长达五年。
+
+The FBI is investigating Senator Feinstein for the decision of her husband to liquidate stocks before the COVID-19 outbreak. The senator had a close relationship with Fang Li Bangqin, a CCP-backed newspaper tycoon, and employed a CCP spy as her driver for five years.
+
+**前空军中将麦金纳尼：美国必须立即进入国家紧急状态**
+
+**The former air lieutenant general McInerney: The United States of America must immediately enter a state of emergency.**
+
+必须立即执行2018年9月总统令，进入国家紧急状态；实施暴动法，防止Antifa的BLM骚乱；宣布戒严，暂停《人身保护令》，设立军事法庭；佩洛西和舒默都会被逮捕，我们确切知道谁在参与；川普总统注意安全。
+
+The presidential decree of September 2018 must be immediately implemented to enter a state of emergency, implement the Riot Act to prevent BLM riots of Antifa, declare martial law, suspend habeas corpus, and establish military courts. Both Pelosi and Schumer will be arrested, we know exactly who involved. President Trump should take care of security.
+
+金句摘要：
+
+Quotes:
+
+路德：1、中共生物战包括特定的种族遗传袭击。
+
+2、超级士兵：神经科学和基因编辑。
+
+3、美国两党共识：中共是美国历史上最大的威胁，远超前苏联。
+
+4、美国的价值观和体系经过2020年总统大选，让美国人明白这个体制的脆弱。
+
+Lude:
+
+1. CCP’s biological weapon includes specific ethnic genetic attacks.
+
+2. Super Soldiers: Neuroscience and gene editing.
+
+3. A bipartisan consensus of the US: CCP is the greatest threat to the US in history, far ahead of the Soviet Union.
+
+4. Through the 2020 presidential election, Americans will well know the fragility of America’s values and system under current framework.
+
+墨博士：
+
+1. 超级士兵实验是反人类、反人道的罪行。
+2. 当美国说新冠病毒是生物武器的时候，一定对中共立即开战。
+3. 目前美国遭受的所有恐惧和黑暗都是中共给的。
+
+
+Dr. Mo:
+
+1. The experiment of super soldiers is a crime against humanity.
+
+2. When the US announce that COVID-19 is a biological weapon, it must immediately go to the war with the CCP.
+
+3. All the fear and darkness that US is suffering is due to the CCP.
+
+安红：
+
+1、超级士兵的研究实验超越德国纳粹时代的雅利安婴儿。
+
+2、基因工程实验：普通战士成为中共的小白鼠，而中共高官子女却在海外开枝散叶
+
+Anhong:
+
+1. The research experiments of the Super soldiers surpassed the Aryan babies in Nazi Germany.
+
+2. Genetic engineering experiments: Ordinary soldiers become experimental rats for the CCP, while the children of its top officials spread their wings abroad.
+
+#CCP\_is\_terrorist   #TakeDownTheCCP
+
+文案：《路德社》文编组
+编辑：文宝Porsche
+听写：文宝Porsche
+金句整理：繁体的追逐
+翻译：阿西娜的圣斗士(沙加)
+校对：阿轩Action
+翻译及校对：阿轩Action
+审核校对：玫瑰天空
+上传排版：青葫芦娃&玫瑰天空
 
 0
