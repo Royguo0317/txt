@@ -1,17 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 罗杰·斯通发布比尔·盖茨的计划
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/621626/)
+## 没有中共病毒的颁奖典礼
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/621652/)
 
-Amitofu
+文旦
 
-美国政坛老手被认定为大选廉正运动始祖之一的罗杰·斯通（Roger Stone），11月22日他发布了一段视频，解释说他有证据证明微软在比尔·盖茨的指导下，设计投票的Dominion Voting Systems选举诈欺软件，与竞争公司用来进行选举诈欺的计数。罗杰·斯通解释说，微软按照盖茨的指示，设计了一个名为Election Guard的软件，该软件已被Dominion使用于BPro和SmartMatic，整个Dominion Voting Systems的选举服务，操控邮寄选票计数系统和硬体设备，伤害宪法与公民投票权，影响选举公正，并说到：100％的投票机和投票系统使用的软件与Dominion用来交换投票的软件相同。
+參考資料[https://www.epochtimes.com/b5/20/12/2/n12591177.htm](https://www.epochtimes.com/b5/20/12/2/n12591177.htm)
 
-參考資料[https://twitter.com/EnriqueAleTV/status/1330255407630200835?s=20](https://twitter.com/EnriqueAleTV/status/1330255407630200835?s=20)
+封面擷取自[https://www.epochtimes.com/b5/20/12/2/n12591177.htm](https://www.epochtimes.com/b5/20/12/2/n12591177.htm)
 
-2020年4月14日罗杰·斯通（Roger Stone）就曾经表示，比尔·盖茨参与COVID19病毒的生产和传播计划，以便利用疫苗为人们注射微生物晶片的想法展开激烈的辩论。川普总统长期知己在乔·皮斯科波（Joe Piscopo）节目上说：保守派的朋友说比尔·盖茨已经提供了大约450亿美元用于疫苗接种研究，以应对包括冠状病毒和埃博拉病毒在内的大流行病。但是罗杰·斯通今年2月被判入狱40个月时说：这是我确实知道的事。比尔·盖茨和其他全球主义者，肯定会进行强制性疫苗接种和微生物晶片化。通过模拟可能的情况并对其基础设施进行压力测试，去年12月病毒在中共国武汉首次发现时，就抨击世界各国领导人没有早日投资病毒测试和疫苗设备。
+一年一度的台湾金马奖再度莅临，金马奖是一个华语电影悠久的奖项，每个导演演员等都能够自由的表现出他的作品，能力与语言，让影圈内的人们可以互相补长取短，互相勉励，而能做出更好的作品。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06020026/%E5%9C%96%E7%89%87-1-8.png)
+但这几年变了，因得奖感言被打压了该典礼，禁止中共国内电影人参加该典礼，是什么样的一句话让他们害怕，使中共自己发明金鸡奖，也不敢让国内电影人参加金马奖。
 
-參考資料[https://nationalfile.com/roger-stone-bill-gates-microsoft-designed-election-fraud-software-used-by-dominion/ https://www.dailymail.co.uk/news/article-8215261/Roger-Stone-says-idea-Bill-Gates-created-coronavirus-microchip-people-open-debate.html](https://nationalfile.com/roger-stone-bill-gates-microsoft-designed-election-fraud-software-used-by-dominion/%20%20https://www.dailymail.co.uk/news/article-8215261/Roger-Stone-says-idea-Bill-Gates-created-coronavirus-microchip-people-open-debate.html)
+电影无国界，艺文无国界，这些欣赏是代表个种种故事，创作创意的发展才能带来突破，压制创意创造的界线，永远只会迟滞不前。
+
+今年这届金马让大家了解了更多东南亚的新创作，也更加多元了，能让所有创作者，拥有创作的初衷，实现更多更好的作品，也让更多年轻新人崭露头角，让使更多新的剧作诞生。
+
+缺少了中共的金马奖，让电影更不拘素，让电影更加多元，让电影人更新面孔，让电影更加国际化，也没有政治意识的打压，言语用词的争锋相对，让环境更加的轻松。
+
+相反的中共的金鸡奖，网友们的评论是:从中国去年金鸡奖名单，跟今年百花奖名单来观察，发现都是两年前金马奖的片单，没有金马在前，根本选不出什么极具公信力的得奖者。
+
+变成了停滞不前，没办法创新，因为它们又加入了新的电影法，更加压制了发展，中共病毒，是代表着共产党研拟的压制思想的法案，压制言论的法案，只能宣传他党的伟大等等，让一个人的思考创作举止备受到的极限限制，导致该人的行为举止和民主国家的人不同，这就是最可怕的。
 
 0
