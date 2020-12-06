@@ -1,17 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 罗杰·斯通发布比尔·盖茨的计划
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/621626/)
+## 美国对共产党员实施签证限制
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/621636/)
 
 Amitofu
 
-美国政坛老手被认定为大选廉正运动始祖之一的罗杰·斯通（Roger Stone），11月22日他发布了一段视频，解释说他有证据证明微软在比尔·盖茨的指导下，设计投票的Dominion Voting Systems选举诈欺软件，与竞争公司用来进行选举诈欺的计数。罗杰·斯通解释说，微软按照盖茨的指示，设计了一个名为Election Guard的软件，该软件已被Dominion使用于BPro和SmartMatic，整个Dominion Voting Systems的选举服务，操控邮寄选票计数系统和硬体设备，伤害宪法与公民投票权，影响选举公正，并说到：100％的投票机和投票系统使用的软件与Dominion用来交换投票的软件相同。
+川普政府正在明确表示，中共对世界自由与民主构成严重的威胁，美国必须应对这一项挑战，美国国务卿蓬佩奥4日宣布，国务院已终止佯装成“文化交流”的5项美中交流计划，这些计划包含“政策制定人士中国教育旅行计划”（Policymakers Educational China Trip Program）、“美中友谊计划”（U.S.-China Friendship Program）、“美中领导者交流计划”（U.S.-China Leadership Exchange Program）、“美中跨太平洋交流计划”（U.S.-China Transpacific Exchange Program）及“香港教育与文化计划”（Hong Kong Educational and Cultural Program）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06015711/%E5%9C%96%E7%89%87-1-7.png)圖片來源:U.S. Department of State Twitter
+美国国务卿蓬佩奥指出上述计划是依据美国1961年相互教育与文化交流法（Mutual Educational and Cultural Exchange Act）第108A条进行的此类计划进行，允许美国政府雇员使用外国政府资金旅行，但被中共当成大外宣工具，参与者多数为没有有言论和集会自由的共产党官员而非一般人民。上述五个计划均由中共统战部资助和海外组织宣传运作，威吓欺凌反对北京政策的海外华人。统战部经常恐吓学术界、企业、民间社会团体和华侨，其中包括反对在新疆、西藏和严重侵犯人权的少数民族和宗教人士进行政治恐吓。
 
-參考資料[https://twitter.com/EnriqueAleTV/status/1330255407630200835?s=20](https://twitter.com/EnriqueAleTV/status/1330255407630200835?s=20)
-
-2020年4月14日罗杰·斯通（Roger Stone）就曾经表示，比尔·盖茨参与COVID19病毒的生产和传播计划，以便利用疫苗为人们注射微生物晶片的想法展开激烈的辩论。川普总统长期知己在乔·皮斯科波（Joe Piscopo）节目上说：保守派的朋友说比尔·盖茨已经提供了大约450亿美元用于疫苗接种研究，以应对包括冠状病毒和埃博拉病毒在内的大流行病。但是罗杰·斯通今年2月被判入狱40个月时说：这是我确实知道的事。比尔·盖茨和其他全球主义者，肯定会进行强制性疫苗接种和微生物晶片化。通过模拟可能的情况并对其基础设施进行压力测试，去年12月病毒在中共国武汉首次发现时，就抨击世界各国领导人没有早日投资病毒测试和疫苗设备。
-
-參考資料[https://nationalfile.com/roger-stone-bill-gates-microsoft-designed-election-fraud-software-used-by-dominion/ https://www.dailymail.co.uk/news/article-8215261/Roger-Stone-says-idea-Bill-Gates-created-coronavirus-microchip-people-open-debate.html](https://nationalfile.com/roger-stone-bill-gates-microsoft-designed-election-fraud-software-used-by-dominion/%20%20https://www.dailymail.co.uk/news/article-8215261/Roger-Stone-says-idea-Bill-Gates-created-coronavirus-microchip-people-open-debate.html)
+美国国务卿蓬佩奥根据《移民和国籍法》第212（a）（3）（C）条行使职权，实施签证限制，针对中共官员或参与活动个人实施签证限制。防止中共间谍对海外华人社区，学术界和民间社会团体，以窃盗、恐吓发布私人信息，威胁进行间谍活动，并蓄意破坏美国政治事务、学术自由、个人隐私、恶意干预商业活动等完成中共交付的任务。
 
 0
