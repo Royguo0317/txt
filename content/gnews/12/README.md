@@ -1,46 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》每日简报晚间版 2020.12.04&#8211;NewYork Time
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/621698/)
+## 12/05/2020 财经快讯: 受益于美国两院讨论新一轮经济刺激方案, 周五美国股指创历史新高
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/621900/)
 
-[《路德社》文编组出品； 编辑：路德社精选新闻专栏组](https://gnews.org/zh-hans/621729/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06022359/1204-PM-ZH.png)
-1204晚间要闻-NewYork Time
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05090921/capture-50.jpg)图片来源：https://cn.investing.com/indices/us-30
+1.12月4日，美国国务卿彭培奥(POMPEO)在美国政府官网发表新闻声明称，美国将对从事暴力胁迫，偷窃，间谍，恶意干涉美国内部事务，学术自由和商业活动的中共官员或从事统战活动的个人实施签证限制。该声明表示，中共长期以来一直寻求在世界范围内传播马列主义思想并施加影响。中共统战部一直致力于资助和支持海外组织宣传中共政治思想，威吓和欺凌那些反对中共政府政策的组织和个人。中共恐吓，胁迫的手段通常包括在网上散布目标对象及其家庭成员的个人隐私（“人肉”）。
 
-**摇摆州选举调查，动真格了**
+[https://www.state.gov/u-s-imposes-sanctions-on-peoples-republic-of-china-officials-engaged-in-coercive-influence-activities/](https://www.state.gov/u-s-imposes-sanctions-on-peoples-republic-of-china-officials-engaged-in-coercive-influence-activities/)
 
-密歇根州法官下令对安特里姆县的选举机器进行法医式的检查(Forensic inspection)并禁止销毁与2020大选有关的证据，这意味着Dominion将被迫公开全部的源代码。亚利桑那州立法领导人呼吁对Mariccopa 县的Dominion选举软件和设备进行审核。乔治亚州长GonKemp下令对本州选票的签名进行审核。多种迹象显示，沼泽地的浅层人物正在转向自保。
+2. 美国Newsmax12月3日报道称，石油输出国组织和俄罗斯（简称OPEC+）于本周四达成协议，同意从明年一月份起增加石油产量50万桶/天，但未能在长期石油政策上达成一致。增产意味着石油输出国组织（OPEC ）和俄罗斯将从明年1月起减产720万桶/日（或自1月起全球总需求的7％），而目前的减产量为770万桶/日。该组织决定将在明年1月后每月聚会一次，以商定石油政策。OPEC+今后每月举行石油会议将使油价走势更加动荡。OPEC+作出决定后，原油价格延续涨势，上涨1.2％，至每桶48.83美元。
 
-**林伍德明确中共用****Covid-19****生物武器袭击了美国**
+[https://www.newsmax.com/t/newsmax/article/999908/7](https://www.newsmax.com/t/newsmax/article/999908/7)
 
-他还说，中共袭击了我们的国家以试图窃取美国大选，是时候让美国决定是要自由还是专制了。我们为川普而战而不是为习近平或他的木偶拜登。该推文基于军方情报的重磅推文释放后，推特没有封其账号，也没有标注该推文。
+3. 路透社报道称，川普政府周五拒绝给TikTok要求其从美撤资的行政命令延期。上周，美国外国投资委员会批准字节跳动公司延长一周(到本周五)以剥离TikTok在美资产。川普总统今年8月的行政命令赋予司法部强制执行权：一旦期限届满，便可执行资产剥离命令；但目前尚不清楚政府何时或如何寻求强制资产剥离。
 
-**北约盟军联合灭共一触即发**
+[https://www.businessinsider.com/exclusive-us-not-extending-tiktok-divestiture-deadline-but-talks-expected-to-continue-sources-2020-12?r=AU&IR=T](https://www.businessinsider.com/exclusive-us-not-extending-tiktok-divestiture-deadline-but-talks-expected-to-continue-sources-2020-12?r=AU&amp;IR=T)
 
-如果一个缔约国被攻击，所有其他北约同盟国家自动参战（不需要正式宣战），各国投入资源按事先约定条款自动执行，不需要所在国议会投票和联合国授权。而生物武器和核武器战争是级别最高的攻击方式，盟军反击时必彻底摧毁敌对方的所有军事设施。林伍德的推文表明北约军方已经认定这是恶意的生物武器攻击，联合灭共一触即发。
+4. 美国CNBC 发文称，川普总统正在考虑签署一项法案，即《外国公司控股责任法案》，英文名为“Holding Foreign Companies Accountable Act”。该法案可能会使数家中国公司退出美国证交所，并加剧美国与中国之间本已紧张的关系。该法案规定：如果外国公司拒绝向美国会计监管机构开放账目，则该公司需要从美国证交所退市；该法案也会阻止外国公司从美国投资者手里筹集资金。尽管该法律广义的讲适用于任何国家的公司，但主要针对的是中国公司。
 
-**俄罗斯反水弃中共，北约盟军变世界联军**
+[https://www.cnbc.com/2020/12/04/alibaba-jdcom-petrochina-likely-staying-on-wall-street-despite-trump-push-to-delist-chinese-companies.html](https://www.cnbc.com/2020/12/04/alibaba-jdcom-petrochina-likely-staying-on-wall-street-despite-trump-push-to-delist-chinese-companies.html)
 
-本次盟军即将开展的大行动，俄罗斯出人意料地给予了极度的配合，并提供了重要的情报。俄罗斯的反水，加上亚洲的日本、印度和澳洲、新西兰等国，盟军灭共变联军灭共。
+5. 新浪旗下黑猫投诉平台红黑榜显示，截至2020年11月底，黑猫投诉平台累计收到消费者有效投诉超307万，11月有效投诉21万余件。11月初蛋壳公寓事件引起广泛关注，蛋壳公寓有效投诉量大幅增长，而作为蛋壳合作方的微众银行，也因租金贷问题有效投诉大幅增长，进入月度黑榜前十。
 
-**在华美国人大撤离**
+[https://tousu.sina.com.cn/articles/view/43831/](https://tousu.sina.com.cn/articles/view/43831/)
 
-美方在三周前已经通知中共彻查病毒来源，未被中共理会。美国已经通过非官方渠道，通知在华常驻的十三万美国人和五十万在华（含港澳）旅游的美国人尽快撤离，一场风暴正在来临。
-
-**联军如何灭共？**
-
-在无人站出来解体中共的情况下，联军只有一个选择：同时进行斩首和一次性彻底摧毁支撑中共的3700个目标，让中共的整个体系瞬间失去行动能力，然后联军进入，才能避免军阀割据和人道灾难。
-
-**新中国联邦如何救中国？**
-
-如何避免在联军无法企及的广大边远地区，再次出现几千年悠久历史的占山为王现象？一是保证信息通畅，将GTV和路德社信息传递到每一个角落，避免民众失去方向，被土匪恐吓绑架。二是保障粮食供应，避免人道灾难。
-
-
-
-文案：《路德社》文编组
-翻译：《路德社》翻译组
-审核校对：玫瑰天空
-上传排版：青葫芦娃&玫瑰天空
+By 秘密翻译组—金融团队—文印
 
 0

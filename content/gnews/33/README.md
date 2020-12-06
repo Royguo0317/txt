@@ -1,13 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/4/2020 郭先生直播: 中共的绝招就是防火墙, 让老百姓灯下黑; 我们新中国联邦人, 爆料革命要尽力传播真相,尽量让国内同胞有粮食有信息
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/621514/)
+## 关于预防和治疗CCP virus方案的意见综述
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/621506/)
 
-12/4/2020 郭先生直播（节选）：中共的绝招就是防火墙、让老百姓灯下黑；我们新中国联邦人、爆料革命要尽力传播真相，尽量让国内同胞有粮食、有信息；尽力转发李毅、瞿东升的视频，尤其是自爆中共和亨特·拜登有交易；灭共的第三道大门已经打开，但七哥现在最担心的就是国内同胞。
+原推作者：地郎中（文海）
+整理/撰图：康州盘古农场-千秋
+审核：康州盘古农场-文韵
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06005404/image0-22-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06005421/image0-1-3-scaled.jpg)
+**本文仅供战友们参考，如有症状请及时就医🙏**
 
-
-
-By: 【秘密翻译组G-Translators】
-
-0
+1+

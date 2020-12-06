@@ -1,111 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》每日简报早间版 2020.12.05&#8211;NewYork Time
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/621729/)
+## 《路德社》每日简报晚间版 2020.12.04&#8211;NewYork Time
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/621698/)
 
-《路德社》文编组出品； 编辑：路德社精选新闻专栏组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06024326/20201205-AM-ZH-scaled.jpg)
-1205早间要闻-NewYork Time
+[《路德社》文编组出品； 编辑：路德社精选新闻专栏组](https://gnews.org/zh-hans/621729/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06022359/1204-PM-ZH.png)
+1204晚间要闻-NewYork Time
 
-**国家情报总监：中共正在研发制造超级士兵**
+**摇摆州选举调查，动真格了**
 
-**Director of National Intelligence: the CCP is developing and manufacturing super soldiers**
+密歇根州法官下令对安特里姆县的选举机器进行法医式的检查(Forensic inspection)并禁止销毁与2020大选有关的证据，这意味着Dominion将被迫公开全部的源代码。亚利桑那州立法领导人呼吁对Mariccopa 县的Dominion选举软件和设备进行审核。乔治亚州长GonKemp下令对本州选票的签名进行审核。多种迹象显示，沼泽地的浅层人物正在转向自保。
 
-中共招募神经科学最顶尖的德国科学家进行猴子换头实验，以获得“将芯片植入大脑控制士兵思想的神经科学技术”；利用基因编辑技术，克隆出特定功能的人体器官；
+**林伍德明确中共用****Covid-19****生物武器袭击了美国**
 
-In order to achieve the neuroscientific technology that implants chips into the brain to control soldiers’ minds. The CCP recruited top German neuroscientists to conduct experiments of switching heads by monkeys. They also clone human organs with specific functions by using gene editing technology.
+他还说，中共袭击了我们的国家以试图窃取美国大选，是时候让美国决定是要自由还是专制了。我们为川普而战而不是为习近平或他的木偶拜登。该推文基于军方情报的重磅推文释放后，推特没有封其账号，也没有标注该推文。
 
-**参议院情报委员会两党领袖发布联合声明**
+**北约盟军联合灭共一触即发**
 
-**The bipartisan leaders of the Senate Intelligence Committee issued a joint statement**
+如果一个缔约国被攻击，所有其他北约同盟国家自动参战（不需要正式宣战），各国投入资源按事先约定条款自动执行，不需要所在国议会投票和联合国授权。而生物武器和核武器战争是级别最高的攻击方式，盟军反击时必彻底摧毁敌对方的所有军事设施。林伍德的推文表明北约军方已经认定这是恶意的生物武器攻击，联合灭共一触即发。
 
-两党领袖呼应前日国家情报总监“中国是自二战以来对美国和世界民主自由的最大威胁”的论点，发表联合声明称，中共不会放弃主导世界的野心，中共对美国构成了最大威胁。继续为美国即将发出的雷霆行动做铺垫、唤醒民意。
+**俄罗斯反水弃中共，北约盟军变世界联军**
 
-The bipartisan leaders echoed the previous assertion by the director of National Intelligence that China is the greatest threat to the democracy and freedom of the United States and the world since World War II. The joint statement said that the CCP would not give up its ambition to dominate the world and it has posed the greatest threat to the United States. This statement continues to prepare the ground and arouse public opinion for the upcoming thunderous action of the United States.
+本次盟军即将开展的大行动，俄罗斯出人意料地给予了极度的配合，并提供了重要的情报。俄罗斯的反水，加上亚洲的日本、印度和澳洲、新西兰等国，盟军灭共变联军灭共。
 
-**蓬佩奥说中共国不是正常的政权**
+**在华美国人大撤离**
 
-**Pompeo said the CCP is not a normal regime**
+美方在三周前已经通知中共彻查病毒来源，未被中共理会。美国已经通过非官方渠道，通知在华常驻的十三万美国人和五十万在华（含港澳）旅游的美国人尽快撤离，一场风暴正在来临。
 
-过去数十年来世界所幻想的中共国经济繁荣会引领政治自由化的局面并没有出现；中共永远没有想过成为正常国家，因为其本质就不是一个正常的政权；这不是中美之间的战争而是自由与独裁的对抗；中共深思熟虑地布局与各国的经济往来，蒙蔽了世界几十年；请做对的事情。
+**联军如何灭共？**
 
-The world’s fantasy over the past few decades that China’s economic boom would lead to political liberalisation is not materialised. The CCP never wanted to become a normal state because it is not a normal regime by its very nature. This is not a war between China and the United States but between freedom and dictatorship. The economic engagement with the rest of the world that the CCP deliberated to do has blinded the world for decades. Please do the right thing.
+在无人站出来解体中共的情况下，联军只有一个选择：同时进行斩首和一次性彻底摧毁支撑中共的3700个目标，让中共的整个体系瞬间失去行动能力，然后联军进入，才能避免军阀割据和人道灾难。
 
-**FBI****正在调查来自加州的参议员范恩斯坦**
+**新中国联邦如何救中国？**
 
-**The FBI is investigating Senator Feinstein of California**
-
-FBI正在调查范恩斯坦，要求她交代其丈夫在COVID-19爆发前决定清仓股票的有关情况。该参议员与中共背景的所谓报业大亨方李邦琴来往密切，雇佣中共间谍司机长达五年。
-
-The FBI is investigating Senator Feinstein for the decision of her husband to liquidate stocks before the COVID-19 outbreak. The senator had a close relationship with Fang Li Bangqin, a CCP-backed newspaper tycoon, and employed a CCP spy as her driver for five years.
-
-**前空军中将麦金纳尼：美国必须立即进入国家紧急状态**
-
-**The former air lieutenant general McInerney: The United States of America must immediately enter a state of emergency.**
-
-必须立即执行2018年9月总统令，进入国家紧急状态；实施暴动法，防止Antifa的BLM骚乱；宣布戒严，暂停《人身保护令》，设立军事法庭；佩洛西和舒默都会被逮捕，我们确切知道谁在参与；川普总统注意安全。
-
-The presidential decree of September 2018 must be immediately implemented to enter a state of emergency, implement the Riot Act to prevent BLM riots of Antifa, declare martial law, suspend habeas corpus, and establish military courts. Both Pelosi and Schumer will be arrested, we know exactly who involved. President Trump should take care of security.
-
-金句摘要：
-
-Quotes:
-
-路德：1、中共生物战包括特定的种族遗传袭击。
-
-2、超级士兵：神经科学和基因编辑。
-
-3、美国两党共识：中共是美国历史上最大的威胁，远超前苏联。
-
-4、美国的价值观和体系经过2020年总统大选，让美国人明白这个体制的脆弱。
-
-Lude:
-
-1. CCP’s biological weapon includes specific ethnic genetic attacks.
-
-2. Super Soldiers: Neuroscience and gene editing.
-
-3. A bipartisan consensus of the US: CCP is the greatest threat to the US in history, far ahead of the Soviet Union.
-
-4. Through the 2020 presidential election, Americans will well know the fragility of America’s values and system under current framework.
-
-墨博士：
-
-1. 超级士兵实验是反人类、反人道的罪行。
-2. 当美国说新冠病毒是生物武器的时候，一定对中共立即开战。
-3. 目前美国遭受的所有恐惧和黑暗都是中共给的。
+如何避免在联军无法企及的广大边远地区，再次出现几千年悠久历史的占山为王现象？一是保证信息通畅，将GTV和路德社信息传递到每一个角落，避免民众失去方向，被土匪恐吓绑架。二是保障粮食供应，避免人道灾难。
 
 
-Dr. Mo:
-
-1. The experiment of super soldiers is a crime against humanity.
-
-2. When the US announce that COVID-19 is a biological weapon, it must immediately go to the war with the CCP.
-
-3. All the fear and darkness that US is suffering is due to the CCP.
-
-安红：
-
-1、超级士兵的研究实验超越德国纳粹时代的雅利安婴儿。
-
-2、基因工程实验：普通战士成为中共的小白鼠，而中共高官子女却在海外开枝散叶
-
-Anhong:
-
-1. The research experiments of the Super soldiers surpassed the Aryan babies in Nazi Germany.
-
-2. Genetic engineering experiments: Ordinary soldiers become experimental rats for the CCP, while the children of its top officials spread their wings abroad.
-
-#CCP\_is\_terrorist   #TakeDownTheCCP
 
 文案：《路德社》文编组
-编辑：文宝Porsche
-听写：文宝Porsche
-金句整理：繁体的追逐
-翻译：阿西娜的圣斗士(沙加)
-校对：阿轩Action
-翻译及校对：阿轩Action
+翻译：《路德社》翻译组
 审核校对：玫瑰天空
 上传排版：青葫芦娃&玫瑰天空
 
