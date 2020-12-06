@@ -1,69 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 北大西洋公约组织 (NATO)是什么组织，为什么北约可以合法地打击中共国
-` GM127` [轉載自GNews](https://gnews.org/zh-hans/621813/)
+## 国家情报总监说，通俄门的部分文件将解密
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/621839/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04232318/Lude_20201204-PM-coverphoto2.jpg)
-路德12月5日晚节目详细解读什么是北大西洋公约组织（北约），聚焦美国国务院关于北约的连续发推，强调联盟中任何一个国家被攻击就是对联盟的整体攻击；中共国已经犯下反人类罪，北约可以合法打击。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06041115/1-25.png)图片来自：wired.com
+《华盛顿观察家报》（Washington Examiner）12月3日报道，美国国家情报总监约翰·拉特克利夫（John Ratcliffe）在周四接受该报记者电话采访时表示，他与美国联邦检察官约翰·达勒姆（John Durham）分享了数千份文件，并期望检察官现在向公众公布他所知道的川普-俄罗斯调查人员的大规模不当行为的真相。但是，情报负责人强调，这并不意味着会按照川普总统在内的一些共和党人所期望的那样，解密所有交给联邦检察官的文件。
 
-12月5日下午美国国务院的推文：
+10月，拉特克利夫解密了前中情局局长约翰-布伦南（John Brennan）的手写笔记，显示他在2016年向时任总统奥巴马通报了一份未经核实的俄罗斯情报报告，声称前国务卿希拉里-克林顿(Hillary Clinton)计划在2016年7月将当时的候选人川普与俄罗斯黑客入侵民主党全国委员会联系起来，以转移她对私人电子邮件服务器的不当使用。他还解密了2016年9月中情局反间谍部门向科米转交的指控报告，并解雇了负责反情报行动的副助理局长彼得-斯特佐克(Peter Strzok)。
 
+拉特克利夫的举动遭到了民主党人和国家安全资深人士的强烈反对。布伦南在CNN上回应说，“这令人震惊，他有选择地解密信息，显然是为了增进唐纳德·川普和与他结盟的共和党人的政治利益。”当时，拉特克利夫发表了一份声明，称“这不是俄罗斯的虚假信息，情报机构也没有进行过这样的评估。”
 
+同月，美国情报部门负责人还向情报部门的监督机构发送了一份调查报告，内容涉及2018年由共和党领导的众议院情报委员会(House intelligence Committee)的一份报告，该报告批评了奥巴马时代的情报部门对2017年俄罗斯干预2016年大选的评估中的一些交易化做法。
 
-> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): NATO is an indispensable pillar of American national security and we will continue to work together to strengthen this important alliance. Read more about the U.S.-NATO Alliance: [https://t.co/mFHpSxcGj4](https://t.co/mFHpSxcGj4) [pic.twitter.com/UbL5Pr7Nql](https://t.co/UbL5Pr7Nql)
-> — Department of State (@StateDept) [December 5, 2020](https://twitter.com/StateDept/status/1335298651279794177?ref_src=twsrc%5Etfw)
+拉特克利夫还说:“我的前任理查德·格伦内尔(Richard Grenell)和我本人已经解密了大部分情报部门的文件，这些文件可供公众查看，不必对消息来源和方法有所担心……我认为我已经向约翰·达勒姆提供了数千份文件，但还有很多文件确实不能公开消息来源和方法，原因很多，包括对正在进行的调查造成危害。”
 
+川普和共和党盟友在大选前对达勒姆寄予厚望，一些人甚至坚持认为，达勒姆在 “通俄门 “争议中，应该尽量透明，应大规模解密奥巴马政府和高级情报人员以及执法官员造成的损害。10月初，他们的愿望似乎实现了。川普在推特上呼吁公开所有的俄罗斯调查文件。”我已完全授权全面解密有关美国历史上最大的政治罪行–通俄骗局的任何&所有文件。同样，希拉里-克林顿(Hillary Clinton)的电子邮件丑闻也是如此。没有删节！” 川普在推特上写道：”所有俄罗斯骗局丑闻信息早已被我解密。不幸的是，人们的行动非常缓慢，尤其因为这可能是我国历史上最大的政治犯罪。行动吧！”
 
+尽管很多人猜测达勒姆可能会在总统大选结束前发布一份报告，但并没有发生，川普甚至对此大发雷霆。司法部长威廉-巴尔（William Barr）本周透露，11月大选前几天，他将达勒姆提升为特别顾问，任务是调查与FBI的 “交火飓风 “行动以及后来罗伯特·穆勒(Robert Mueller)团队的调查有关的所有违法行为。该命令于周二披露，为这位来自康涅狄格州的联邦检察官提供了进一步的保护，防止乔-拜登当选总统后试图关闭刑事调查。
 
-翻译：北约是美国国家安全不可或缺的支柱，我们将继续合作以加强这一重要的同盟。 请阅读有关美国-北约联盟的更多信息[1]。
+达勒姆从2019年开始调查，已经有一项认罪，凯文-克林斯密斯（Kevin Clinesmith ）承认，他欺诈性地改变了中情局电子邮件的措辞，说前川普竞选助手卡特-佩奇（Carter Page） “不是该机构的消息来源”，尽管联邦调查局被告知佩奇多年来一直是中情局的 “业务联系人”。几乎所有针对佩奇的《外国情报监视法》手令的签署者–前司法部副部长罗森斯坦（Rosenstein）、被解雇的FBI副局长安德鲁-麦凯布（Andrew McCabe）和被解雇的司法部副部长萨利-耶茨（Sally Yates）–今年早些时候作证说，如果他们当时知道了有关过程的情况，就不会签署针对佩奇的FISA手令。被解雇的前FBI局长詹姆斯-科米（James Comey）作证说，如果没有经过 “更充分 “的讨论，他不会在FISA申请上签字。
 
-12月5日下午美国国务院再次发推：
+拉特克利夫说: “这是对权力和法律权威的滥用。问题不在于这些事情是否发生，而是它们确实发生了。我的意思是，有个联邦调查局的律师因为在FISA法庭上伪造证据而进了监狱。所有奥巴马和拜登的高级国家安全官员都表示，在FISA法庭进行非法监听和滥用情报的想法是一派胡言。” 拉特克利夫说道。“我的意思是，从字面上说，他们每个人——科米、麦凯布、耶茨——都说，‘天哪，当我们了解这一切之后太震惊了。美国人民需要一个交代，我当然已经向现在的特别顾问提供了很多信息。我和所有的美国人一样，指望着他来谈很多我知道的我不能谈的事情。
 
+2019年12月，司法部监察长迈克尔-霍洛维茨（Michael Horowitz）发布了一份报告，认为FBI的调查到处是严重失误，他们还向外国情报监视法庭隐瞒信息，开脱罪责。霍洛维茨批评该局在对佩奇的监视中至少有17处 “重大错误和遗漏”，并批评该局把一份由英国前间谍克里斯多夫·斯蒂尔（Christopher Steele）编撰的、名誉扫地的、由民主党资助的档案作为依据。解密脚注显示，FBI知道斯蒂尔的档案可能被俄罗斯的虚假信息所破坏，霍洛维茨说，FBI对斯蒂尔的主要消息来源、在美国的、受过俄罗斯训练的律师伊戈尔-丹琴科（Igor Danchenko）的采访，”对斯蒂尔选举报告的可靠性提出了重大质疑”。
 
+[原文链接](https://www.washingtonexaminer.com/news/ratcliffe-we-cant-declassify-all-of-russiagates-secrets)
 
-> Formed in 1949 with the signing of the Washington Treaty, [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) is a security alliance of 30 countries from North America and Europe. Read more about the U.S.-NATO Alliance: [https://t.co/mFHpSxcGj4](https://t.co/mFHpSxcGj4) [pic.twitter.com/sB5NXQxBch](https://t.co/sB5NXQxBch)
-> — Department of State (@StateDept) [December 5, 2020](https://twitter.com/StateDept/status/1335314329885958150?ref_src=twsrc%5Etfw)
+翻译报道： Alton
 
-
-
-翻译：北约（NATO）成立于1949年，签署了《华盛顿条约》，它是由北美和欧洲的30个国家组成的安全联盟。请阅读更多关于美国-北约联盟的信息[1]：
-
-**The North Atlantic Treaty Organization**
-
-**北大西洋公约组织**
-
-Formed in 1949 with the signing of the Washington Treaty, The North Atlantic Treaty Organization  (NATO) is a security alliance of 30 countries from North America and Europe. NATO’s fundamental goal is to safeguard the Allies’ freedom and security by political and military means. NATO remains the principal security instrument of the transatlantic community and expression of its common democratic values. It is the practical means through which the security of North America and Europe are permanently tied together. NATO enlargement has furthered the U.S. goal of a Europe whole, free, and at peace.
-
-北大西洋公约组织（NATO）于1949年与《华盛顿条约》的签署一起成立，是**北美和欧洲****30****个国家的安全联盟**。 北约的根本目标是通过政治和军事手段捍卫盟国的自由与安全。 北约仍然是跨大西洋共同体的主要安全工具，是其共同民主价值的体现。 这是将北美和欧洲的安全永久地联系在一起的实用手段。 北约的扩大进一步推动了美国实现整个欧洲自由、和平的目标。
-
-Article 5 of the Washington Treaty — that an attack against one Ally is an attack against all — is at the core of the Alliance, a promise of collective defense. Article 4 of the treaty ensures consultations among Allies on security matters of common interest, which have expanded from a narrowly defined Soviet threat to the critical mission in Afghanistan, as well as peacekeeping in Kosovo and new threats to security such as cyber attacks, and global threats such as terrorism and piracy that affect the Alliance and its global network of partners.
-
-根据《华盛顿条约》第5条，联盟的核心是：**对一个同盟的攻击即相当于对所有同盟的攻击**，这就是联合防御的承诺。 该条约第4条确保盟国之间就共同关心的安全问题进行磋商，这些问题已从狭义的苏联威胁扩展到对**阿富汗**的关键任务，**科索沃**的维和以及新的安全威胁，例如网络攻击和全球性威胁。 恐怖主义和海盗行为等威胁到联盟及其全球合作伙伴网络的威胁。
-
-In addition to its traditional role in the territorial defense of Allied nations, NATO leads the Resolute Support Mission (RSM) in Afghanistan and has ongoing missions in the Balkans and the Mediterranean; it also conducts extensive training exercises and offers security support to partners around the globe, including the European Union in particular but also the United Nations and the African Union.
-
-北约除了在盟国的领土防御中发挥传统作用外，还领导阿富汗的“坚决支持任务”（RSM），并在**巴尔干地区**和**地中海地区**执行任务； 它还进行了广泛的培训，并向包括欧洲联盟在内的全球合作伙伴以及联合国和非洲联盟提供安全支持。
-
-国务院的网站链接至2017年4月12日川普总统在北约的讲话[2]。以下为节选：
-
-NATO allies defeated communism and liberated the captive nations of the Cold War.  They secured the longest period of unbroken peace that Europe has ever known.  This enduring partnership rooted out of so many different things, but our common security is always number one, and our common devotion to human dignity and freedom.
-
-**北约盟国打败了共产主义**并解放了冷战时期的被共产主义俘虏的国家。 他们确保了欧洲有史以来最长的不间断的和平。 这种持久的伙伴关系植根于许多不同的事物，但我们的**共同安全始终是第一位，我们共同致力于人的尊严和自由**。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06033940/Lude_20201205-PM_NATO-figure1.jpg)Press conference by NATO Secretary General Jens Stoltenberg and US President Donald Trump
-路德社的解读是：
-
-- 北约行动不需要国会、参议院、总统，可以直接发动打击。
-- 科索沃的罪行是反人类罪，所以北约就是合法地灭它。
-- 中共国的网络攻击已经满足对盟国攻击这一条，所以北约可以灭它。
-- 中共国生产生化武器、利用中国人肉载体散播病毒、利用交通工具传播病毒、利用疫苗杀害中国人民、世界人民（如果能证实的话）就已经构成了反人类罪。
-- 美国国务院连续发推谈北约证实此事的正式程度。
-
-
-参考链接：
-
-[1] [https://www.state.gov/key-topics-bureau-of-european-and-eurasian-affairs/#nato](https://www.state.gov/key-topics-bureau-of-european-and-eurasian-affairs/#nato)
-
-[2] [https://nato.usmission.gov/april-12-2017-joint-press-conference-president-trump-nato-secretary-general-stoltenberg/](https://nato.usmission.gov/april-12-2017-joint-press-conference-president-trump-nato-secretary-general-stoltenberg/)
-
-1+
+0

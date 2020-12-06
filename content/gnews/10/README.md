@@ -1,35 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】一个没有反对声音的立法会 「明日大屿」前期研究 5.5 亿拨款项目压倒性通过
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/621786/)
+## 北大西洋公约组织 (NATO)是什么组织，为什么北约可以合法地打击中共国
+` GM127` [轉載自GNews](https://gnews.org/zh-hans/621813/)
 
-搜集：诸水响声、JAY（杰伊）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04232318/Lude_20201204-PM-coverphoto2.jpg)
+路德12月5日晚节目详细解读什么是北大西洋公约组织（北约），聚焦美国国务院关于北约的连续发推，强调联盟中任何一个国家被攻击就是对联盟的整体攻击；中共国已经犯下反人类罪，北约可以合法打击。
 
-编撰：文燕
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06032916/jpg-243342image002.jpg)
-立法会财务委员会今12月4 日继续审议「明日大屿」前期研究5.5 亿拨款项目，会议历时近4 小时，多名建制派议员发言「批评」 42 个月的研究时间过长、质疑未能有效解决房屋问题。发展局局长黄伟纶则强调「有相当信心」计划可以向前走。拨款项目最后以 33 票赞成、2 票反对及 2 票弃权，压倒性通过，其中 2 票反对为郑松泰及医学界陈沛然，2 票弃权为新民党容海恩及民建联何俊贤。
+12月5日下午美国国务院的推文：
 
-发展局局长黄伟纶回应称，现正研究不同资金的来源，未必需要全数由公帑支出，但指牵涉到公帑部份，就需返回立法会申请拨款。
 
-黄伟纶多次强调，估计日后土地收入超过7,030 亿元，但李慧琼认为政府过去亦曾「低估成本、高估回报」，黄则指估算已很保守，因仍未计算屯门西发展带来的卖地收入等。黄伟纶又称，「有相当信心」整个计划可以向前走，但强调并非「政府讲就算」，当中会有不同机制把关。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06032929/jpg-5436fdimage003.jpg)
-战友观点：
 
-长春社、创建香港、绿色和平、守护大屿联盟、香港海豚保育学会等九个环保及关注团体则对立法会的决定表示极度失望，批评政府漠视社会反对的声音一意孤行，他们还呼吁当局临崖勒马，立刻撤回造价至少6240亿元的填海计划，并停止破坏海洋生态及当地公共财政稳建性。
+> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): NATO is an indispensable pillar of American national security and we will continue to work together to strengthen this important alliance. Read more about the U.S.-NATO Alliance: [https://t.co/mFHpSxcGj4](https://t.co/mFHpSxcGj4) [pic.twitter.com/UbL5Pr7Nql](https://t.co/UbL5Pr7Nql)
+> — Department of State (@StateDept) [December 5, 2020](https://twitter.com/StateDept/status/1335298651279794177?ref_src=twsrc%5Etfw)
 
-这九个环保团体强调，东大屿水域的周公岛与邻近水域或海底，生态丰富多样，还有国家二级保护野生动物白腹海雕的鸟巢、港独有的双足蜥及稀有的海笔。若港府执意在敏感生态区域填海造岛，必定破坏珍贵的海洋生态。
 
-「明日大屿」前期研究拨款去年5月原已获立法会的工务小组通过，后提交财委会审议，但在泛民「拉布 」下无法在去年通过有关拨款。随着立法会泛民总辞，政府更积极为「明日大屿」议案「开路」，包括特首林郑月娥早前在施政报告当中撤回所有增加人手编制的拨款申请，令「明日大屿」议案成功插队。
 
-在民主派全体被DQ和总辞后，再没有泛民「拉布」，立法会财务委员会4日得以「畅通无阻」通过拨款，会议​​并在财委会主席陈健波画线「赶收工」下，准时结束。一个没有反对党的会议，港共政府提出的前期研究拨款以压倒式通过实属意料中事。
+翻译：北约是美国国家安全不可或缺的支柱，我们将继续合作以加强这一重要的同盟。 请阅读有关美国-北约联盟的更多信息[1]。
 
-工程公民党前立法会议员谭文豪表示，港府现时有8000多亿元财政储备，预计「明日大屿」具体花费可能超过1万亿元的储备。会议中多名建制派议员发言「批评」 42 个月的研究时间过长、质疑未能有效解决房屋问题，这种卖港献媚，都是林郑淘空库房帮凶，未来一定会受到历史的谴责。有意思的是，2 票弃权是来自建制派，即是连自己人也不支持。
+12月5日下午美国国务院再次发推：
 
-「明日大屿」计划极具争议。很多市民都有疑问，既然库房没钱，为何还要「挤」出5.5 亿拨款作「明日大屿」做前期研究？政府财困为何还要推进「明日大屿」庞大工程？林郑接下来还会不会有公众咨询？会不会推第四期抗疫基金？保就业基金11月尾结束，雇主是不必承诺保留一定数量的员工，这时候业界和市民更需要协助，政府有没有派钱帮助各界和市民度过难关的计划？这种劳民伤财的工程，在全球经济极度悲观的情况下，「明日大屿」工程就是「向北放水」赤裸裸卖港，掏空香港几十年的积蓄，牺牲港人未来。
 
-以上观点仅代表笔者本人
 
-资料来源：[看中国](https://m.secretchina.com/news/gb/2020/12/05/954781.html)、[法广](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20201205-%E5%87%A0%E4%B9%8E%E6%B2%A1%E6%9C%89%E5%8F%8D%E5%AF%B9%E5%A3%B0%E9%9F%B3%E7%9A%84%E7%AB%8B%E6%B3%95%E4%BC%9A-%E5%87%86%E6%97%B6%E7%BB%93%E6%9D%9F%E8%BE%A9%E8%AE%BA-%E8%B5%B6%E6%94%B6%E5%B7%A5)
+> Formed in 1949 with the signing of the Washington Treaty, [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) is a security alliance of 30 countries from North America and Europe. Read more about the U.S.-NATO Alliance: [https://t.co/mFHpSxcGj4](https://t.co/mFHpSxcGj4) [pic.twitter.com/sB5NXQxBch](https://t.co/sB5NXQxBch)
+> — Department of State (@StateDept) [December 5, 2020](https://twitter.com/StateDept/status/1335314329885958150?ref_src=twsrc%5Etfw)
 
-0
+
+
+翻译：北约（NATO）成立于1949年，签署了《华盛顿条约》，它是由北美和欧洲的30个国家组成的安全联盟。请阅读更多关于美国-北约联盟的信息[1]：
+
+**The North Atlantic Treaty Organization**
+
+**北大西洋公约组织**
+
+Formed in 1949 with the signing of the Washington Treaty, The North Atlantic Treaty Organization  (NATO) is a security alliance of 30 countries from North America and Europe. NATO’s fundamental goal is to safeguard the Allies’ freedom and security by political and military means. NATO remains the principal security instrument of the transatlantic community and expression of its common democratic values. It is the practical means through which the security of North America and Europe are permanently tied together. NATO enlargement has furthered the U.S. goal of a Europe whole, free, and at peace.
+
+北大西洋公约组织（NATO）于1949年与《华盛顿条约》的签署一起成立，是**北美和欧洲****30****个国家的安全联盟**。 北约的根本目标是通过政治和军事手段捍卫盟国的自由与安全。 北约仍然是跨大西洋共同体的主要安全工具，是其共同民主价值的体现。 这是将北美和欧洲的安全永久地联系在一起的实用手段。 北约的扩大进一步推动了美国实现整个欧洲自由、和平的目标。
+
+Article 5 of the Washington Treaty — that an attack against one Ally is an attack against all — is at the core of the Alliance, a promise of collective defense. Article 4 of the treaty ensures consultations among Allies on security matters of common interest, which have expanded from a narrowly defined Soviet threat to the critical mission in Afghanistan, as well as peacekeeping in Kosovo and new threats to security such as cyber attacks, and global threats such as terrorism and piracy that affect the Alliance and its global network of partners.
+
+根据《华盛顿条约》第5条，联盟的核心是：**对一个同盟的攻击即相当于对所有同盟的攻击**，这就是联合防御的承诺。 该条约第4条确保盟国之间就共同关心的安全问题进行磋商，这些问题已从狭义的苏联威胁扩展到对**阿富汗**的关键任务，**科索沃**的维和以及新的安全威胁，例如网络攻击和全球性威胁。 恐怖主义和海盗行为等威胁到联盟及其全球合作伙伴网络的威胁。
+
+In addition to its traditional role in the territorial defense of Allied nations, NATO leads the Resolute Support Mission (RSM) in Afghanistan and has ongoing missions in the Balkans and the Mediterranean; it also conducts extensive training exercises and offers security support to partners around the globe, including the European Union in particular but also the United Nations and the African Union.
+
+北约除了在盟国的领土防御中发挥传统作用外，还领导阿富汗的“坚决支持任务”（RSM），并在**巴尔干地区**和**地中海地区**执行任务； 它还进行了广泛的培训，并向包括欧洲联盟在内的全球合作伙伴以及联合国和非洲联盟提供安全支持。
+
+国务院的网站链接至2017年4月12日川普总统在北约的讲话[2]。以下为节选：
+
+NATO allies defeated communism and liberated the captive nations of the Cold War.  They secured the longest period of unbroken peace that Europe has ever known.  This enduring partnership rooted out of so many different things, but our common security is always number one, and our common devotion to human dignity and freedom.
+
+**北约盟国打败了共产主义**并解放了冷战时期的被共产主义俘虏的国家。 他们确保了欧洲有史以来最长的不间断的和平。 这种持久的伙伴关系植根于许多不同的事物，但我们的**共同安全始终是第一位，我们共同致力于人的尊严和自由**。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06033940/Lude_20201205-PM_NATO-figure1.jpg)Press conference by NATO Secretary General Jens Stoltenberg and US President Donald Trump
+路德社的解读是：
+
+- 北约行动不需要国会、参议院、总统，可以直接发动打击。
+- 科索沃的罪行是反人类罪，所以北约就是合法地灭它。
+- 中共国的网络攻击已经满足对盟国攻击这一条，所以北约可以灭它。
+- 中共国生产生化武器、利用中国人肉载体散播病毒、利用交通工具传播病毒、利用疫苗杀害中国人民、世界人民（如果能证实的话）就已经构成了反人类罪。
+- 美国国务院连续发推谈北约证实此事的正式程度。
+
+
+参考链接：
+
+[1] [https://www.state.gov/key-topics-bureau-of-european-and-eurasian-affairs/#nato](https://www.state.gov/key-topics-bureau-of-european-and-eurasian-affairs/#nato)
+
+[2] [https://nato.usmission.gov/april-12-2017-joint-press-conference-president-trump-nato-secretary-general-stoltenberg/](https://nato.usmission.gov/april-12-2017-joint-press-conference-president-trump-nato-secretary-general-stoltenberg/)
+
+1+
