@@ -1,68 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 让美国这个“在上帝庇护下的国家获得自由的新生”：林肯总统葛底斯堡演讲
-` GM80` [轉載自GNews](https://gnews.org/zh-hans/620508/)
+## 【震惊】邪恶的新冠计划(1)——2010洛克菲勒“Lockstep”行动被曝光
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/620529/)
 
-引言：美国宪法以 “ We the people (我们人民）”开篇，1896年11月19日林肯总统在葛底斯堡国家烈士公墓落成典礼上的发表演讲，宣称美国人民拥有一个 “民有、民治、民享” 的政府, 一定让这个 “在上帝庇护下的国家获得自由的新生”！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05131650/Gettysburg-Lincoln.png)图片来源：https://www.history.com/topics/american-civil-war/gettysburg-address
-全文翻译：
-
-**Address at the Dedication of the Gettysburg National Cemetery**
-
-在葛底斯堡国家烈士公墓落成典礼上的演讲
-
-(Nov.19, 1863)
-
-(1863年11月19日）
-
-Abraham Lincoln
-
-亚伯拉罕 · 林肯
-
-Fourscore and seven years ago our fathers brought forth on this continent a new nation, conceived in liberty and dedicated to the proposition that all men are created equal.
-
-八十七年前，我们的先辈在这块大陆上创立了一个未曾有过的崭新国度：它以崇尚自由为基石和以信奉上帝造人赐人以平等这一信念为基础建立起来的。
-
-Now we are engaged in a great civil war, testing whether that nation or any nation so conceived and so dedicated can long endure.
-
-目前我们卷入了一场浩大的内战，这也正考验着这个国家，或任何一个如此这般坚定的主张自由和致力于人人平等而创建起来的国度，能否永续长存。
-
-We are met on a great battlefield of that war. We have come to dedicate a portion of that field as a final resting-place for those who here gave their lives that that nation might live. It is altogether fitting and proper that we should do this.
-
-我们在此集会的场所是那场战争中的一个非常重大的战场。我们划分出此战场的一个区域来奉献给那些为着这个新国家的生存而奉献了自己生命的烈士们，以此作为他们最后的安息之地，这真是再合适不过的事情了，我们理应如此去做。
-
-But, in a larger sense, we cannot dedicate, we cannot consecrate, we cannot hallow this ground.
-
-但是，其实从更实际的意义上来说，这并不是我们的功劳，我们没能力挑选，也不能使这块土地变成圣地。
-
-The brave men, living and dead who struggled here have consecrated it far above our poor power to add or detract.
-
-而是这些勇士们，这些活着的或已逝去的、曾经在这里浴血奋战过的英雄们，是他们赋予了这块土地以神圣之名，这根本不是以我们的微博之力所能左右的。
-
-The world will little note nor long remember what we say here, but it can never forget what they did here.
-
-世人或许不会去记载或记得今天我们在这里所说的话，但永远不会忘记英雄们曾经在这里为维护自由而浴血奋战过。
-
-It is for us the living rather to be dedicated here to the unfinished work which they who fought here have thus far so nobly advanced.
-
-对我们这些活着的人来说，对英雄们最好的祭奠，不是来此为这圣地命名的典礼，而是投入到他们为之奋斗而尚未完成的崇高的维护自由的事业中去。
-
-It is rather for us to be here dedicated to the great task remaining before us—that from these honored dead we take increased devotion to that cause for which they gave the last full measure of devotion—that we here highly resolve that these dead shall not have died in vain, that this nation under God shall have a new birth of freedom, and that government of the people, by the people, for the people shall not perish from the earth.
-
-但愿我们这里所有的人，都能投身于摆在我们眼前这未尽的崇高事业中去 – 这事业让这些光荣的先烈们付出了生命的最后一丝代价，也鼓舞着我们要加倍奉献于此 – 我们在此下定决心，一定不会让这些烈士的生命白白逝去，一定让这个国度，这个在上帝庇护下的国家获得自由的新生，让这个民有、民治、民享的政府，因上帝子民的永存而永世长存。
-
-参考文献：
-
-- https://historyengine.richmond.edu/episodes/view/6662
-- Civil War Trust, “Gettysburg Address”, Civil War Trust, http://www.civilwar.org/education/history/primarysources/gettysburg-address.html  (accessed Feb. 19 2017)
-- New World Encyclopedia, “Gettysburg Address”, New World Encyclopedia, http://www.newworldencyclopedia.org/entry/Gettysburg\_Address (accessed Feb. 19 2017)
-- http://han-jialiang.hxwk.org/2016/10/16/%E7%BE%8E%E5%9B%BD%E7%8B%AC%E7%AB%8B%E5%AE%A3%E8%A8%80%E7%9A%84%E7%BF%BB%E8%AF%91%E9%97%AE%E9%A2%98/ 美国独立宣言的翻译问题
-- http://www.flrchina.com/le/learning/001/063.htm 如此乱译美国《独立宣言》是为什么？
-- http://hx.cnd.org/2016/10/14/%e5%bb%96%e5%ba%b7%ef%bc%9a%e4%ba%ba%e7%94%9f%e8%80%8c%e5%b9%b3%e7%ad%89%e8%bf%98%e6%98%af%e8%a2%ab%e9%80%a0%e5%b9%b3%e7%ad%89%ef%bc%9f/ 廖康：人“生而平等”还是“被造平等”？
-- https://www.civiced.org/9-11-and-the-constitution-terms-to-know
+- 翻译：小木头
+- 校对：Victor Torres
 
 
-*翻译：【doujia】 编辑：【GM80】*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22151659/RG-01.png)
-0
+***更多真相，请关注*** ***[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+**西班牙2020年12月5日电/西喜社/**
+
+他们假设模拟全球疫情爆发的不同步骤，阶段，整体时间表和预计的爆发结果。以下都曾在2010年洛克菲勒（基金会）的Lockstep行动中被提到：
+
+- 创造一种传染力很强但是死亡率超低的病毒，以适应计划。利用在迪特里西堡4级实验室培养的SARS，HIV和杂交实验病株，在2008年至2013年期间，作为研究项目的一部分，研究为什么新冠病毒能普遍存在于蝙蝠中但却极其难于感染人类。为了削弱这种（人类极难感染的）情况，他们在病毒中注射了4个HIV 片段。 其中（原本）缺少的ACE-2-受体是免于人类被感染的关键。
+- 备选方案是创造出死亡率更高的武器化的病毒。如果需要的话，这个病毒将会在第三阶段被释放出来。SARS，HIV和MERS三位一体的武器化病毒病株已于2015年就在迪特里西堡的四级实验室中被制造出来。
+- 这些研究病株被运送到了各个不同的四级实验室，在加拿大温尼伯的国家微生物实验室中，“这些病毒被中国偷走”，Xi Jang Lee提到，这是蓄谋为之，病毒被送往了中国唯一的四级实验室，那就是位于中国武汉的武汉病毒研究所。为了合理推诿（责任）并帮助巩固想要的公共备用剧本（计划），以备不时之需。最初的剧本是，病毒是自然产生的。备用版本是中国制造了它，并意外泄漏了病毒。
+- 参与资助这个项目的人有：Fauci, Brix, Tedros和各种机构包括：世界卫生组织，NIAID，疾病预防控制中心还有联合国，他们都会在计划泄露研究病株前就参与到这次疫情反应中来，以确保整个剧本能在这次行动中正常进行。
+- 研发并资助疫苗开发和推广计划，使其能在全球范围类推广开来。盖茨：在2010年至2020年期间，这是一个十年疫苗和全球化疫苗的行动计划。
+- 建立并资助疫苗接种，核查和认证协议，以及数字身份证，以便在强制推出疫苗后执行和确保疫苗接种计划。
+
+
+**盖茨：ID2020**
+
+- 2019年10月201事件：在释放研究病株之前就进行了Lockstep假说模拟，将实战演习作为最终的战争游戏来确保达到预期效果，时间线和成果。
+- 2019年11月，武汉水产市场。武汉病毒研究所自行释放了研究病株，按照早先设定的剧本，把这个责任归咎于天然的替罪羊。这与制定的模拟计划一模一样。
+- 尽可能的淡化人传人的事实，以便在没有任何国家采取封城行动从而减少初期感染之前，让研究病株得以在全球范围内传播。
+- 一旦一个国家出现了感染情况，要首先限制出入境的旅行。让病毒尽可能的在国内长时间传播发酵。
+- 一旦一个国家或地区有足够多的人被感染了，就颁布该地区的强制隔离政策，并伴随着时间的推移，将封锁地区慢慢扩大开来。将研究病株和与其完全不相干的死亡联系起来，夸大病毒的致死率，以便最大限度的制造出恐慌，让人们听从指挥。如果有任何人，无论因什么原因去世，如果发现他感染了新冠病毒，那么就把他的死因归咎于这个病毒。如果有任何人可能有新冠的症状，那么他就会被认为感染了新冠，如果他去世了，那必然会被认为死于新冠。
+- 尽可能的保持大众的隔离，破坏该地区的经济，制造内乱，破坏供应链，造成大规模的食物短缺。缺少与外界细菌的接触，缺少与外界的互动，这就缺少了那些能让我们的免疫系统保持警惕和活跃的东西，人们的免疫系统也会因此被削弱。
+- 淡化和攻击任何潜在的治疗方法，并继续呼吁说对抗这种病毒的唯一办法就是疫苗。
+- 继续实施“两周间隔“的隔离办法。【又是那个两个星期的咒语。这是中情局的一个项目】这会最终导致越来越多的人站起来反抗。蔑视他们。
+- 【这是现在的关键】在第一期阶段的最后，一旦他们得到最够多的大众抗议，预计在2020年6月，会公开表示，他们认为“虽然此刻结束隔离防疫还为时尚早，但无论如何我都会这么做。“
+- 一旦公众恢复正常，几周后，在2020年8月到9月期间，结合人们由于经过几个月的隔离而被削弱的免疫系统，基础疾病死亡率会大幅增加，继续（他们会）过度炒作研究病株的死亡率。【就像我说的：你们应该和经常带口罩的人保持社交距离。这就是他们跟你说过的。 因为这些人的免疫系统已被高度弱化。】以此来进一步帮助他们提高死亡率，同时也为第二阶段封锁到来前的炒作。
+- 最终在2020年10月至11月颁布第二阶段更加严格的隔离措施，并指责抗议的人，那些因为第二波疫情浪潮的来临，已经不再信任政府的人。因此媒体会说“我们告诉过你们。为时尚早。这是你们自己的过错，仅仅因为你们需要理发而已。你们会为自由付出代价的。“ 【如果这一切以这种方式发展开来，美国大选会被取消，延迟或是被叫停。个人观点，你能在第二阶段隔离期间投票吗？不，你不能。】
+- 以尽可能更极端的方式强化第二阶段的隔离措施，加强违反规定的处罚。用监禁代替罚款。将所有旅行视为非必要的旅行，增加检查站，包括军事援助。通过强制性的应用，加强人口监控。接管食品，燃气监控，增加大规模供应短缺，这样人们就只能在获得他们的首肯后才能获取基本的食品和基础服务。
+- 第二阶段封锁的时间会比第一阶段长很多，持续的摧毁全球经济。更进一步的削弱供应链，进一步放大食品短缺的问题。使用极端行为或者武力镇压、平息民愤，将反抗者视为那些屈服于规定的人的头号敌人。
+- 在经历了6个多月长时间的隔离后，推出疫苗接种计划和疫苗认证，强制接种，给那些从一开始就听话的人优先接种，而那些从开始就反抗的人，他们就会说，“这些人是威胁，是造成一切的问题的根本“，诸如此类的话，”一切都无法回到正轨，除非每个人都接种了疫苗。“ 而藐视他们的人则是”破坏我们的生活方式，他们就是敌人。“【换句话说，他们要人们反目成仇。】
+- 如果大多数都同意这个计划，那么就让这些人进入新的系统，新的常态，同时限制那些少数的抗议者的工作，旅行和生活。如果大部分人都反对这个计划，那么他们就会在第三阶段行动中释放SARS/HIV/MERS三合一的武器化病株。这是一种死亡率高达30%以上的病毒，这是对于抗议者最后的通牒，让他们也随大流，最后再对那些不听话的人说，“我们早就告诉过你们了“。
+- 制定新经济模式。微软专利的060606加密货币系统会使用身体活动数据，而这些数据是基于人类行为和意愿提交建立的。
+
+
+这是黑镜（英国独立单元剧）1500万功勋计划的调整版，以食物，水，住所和其他必需品作为新经济系统的强化武器。基本上，做我们（Lockstep行动）想要做的事，就能得到奖励。获得信用积分就能获取更多的生存资源。如果违背我们的意愿就会受到惩罚。失去信用积分，从而失去生存的必需品。
+
+这就是你们新世纪的秩序：科技发展到了极致的话，你就会别无选择只能服从。如果还有人认为这不是真的，那就去中国的一些地方看看吧，因为在一些地区他们已经开始了加密货币系统的建设。
+
+以上就是他们的计划梗概。而我们要做的事，就是在尽可能多的地方把这个计划公布出来，从而阻止他们。同时也请问匿名者Q（QAnon）和川普：你们要阻止这一切吗？
+
+大规模的逮捕无关紧要。但是阻止这一切的发生才是重中之重。
+
+如果这只是一次智囊团的聚会，那么为什么（我们）会被玩弄于股掌之间呢？他们已经分不清自己制造的幻境与现实。这些人都是思维邪恶的怪物。
+
+希望神可以加添智慧与力量给掌权的。上帝已赐给我们一位愿意挺身而出的人，他的名字是唐纳德·约翰·川普。祈求神怜悯我们，让我们脱离这些暴徒所计划的丑陋的未来，以及这未来的无情的全球秩序。
+
+原文链接：[https://themarshallreport.wordpress.com/2020/12/04/doomsday-lockstep-reads-like-2020-headlines-covid-5-g-whofauci-birx-and-gates-all-listed-fact-checkers-pay-attention/](https://themarshallreport.wordpress.com/2020/12/04/doomsday-lockstep-reads-like-2020-headlines-covid-5-g-whofauci-birx-and-gates-all-listed-fact-checkers-pay-attention/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14162240/image0-2-6.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+
+1+
