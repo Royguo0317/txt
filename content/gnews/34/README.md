@@ -1,9 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/4/2020 朱利安尼: 媒体对大选舞弊的封杀是由大科技公司, 大企业, 大媒体和中共等在背后支持
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/622523/)
+## 断网后如何利用局域网站点分享爆料
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/622600/)
 
-By: 【秘密翻譯組G-Translators】
+作者：康州盘古农场-Lioulun
+
+审核：康州盘古农场-Truemanman
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06095145/4707eacbc207f6bd-1_%E7%9C%8B%E5%9B%BE%E7%8E%8B-1.png)
+【本文仅代表作者观点】
 
 0

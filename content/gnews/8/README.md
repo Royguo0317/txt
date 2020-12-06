@@ -1,15 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评】12.03 【精华版粤语配音】：北约军方已定论 中共对全球发起生物战
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/622913/)
+## 【字幕】12/04/2020文贵：Facebook和Twitter背后的真正目的是什么？
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/622959/)
 
-制作单位：战友之家-粤语组
-制作团队：文洪、wikim bao、一帘幽梦、阿恩、霍比特人
-
-
-
-摘要：
-北约及俄军方评估认定病毒为生化武器；认定中共以毒疫苗做二次生化攻击；一致决心灭共且重启星球大战计画
+制作： 【彩虹桥】
 
 0
