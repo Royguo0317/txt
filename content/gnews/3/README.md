@@ -1,26 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中国正大规模扩大其气候变化计划，以复盖其半个国家
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/622473/)
+## 【世事解评】中医的问题在于中草药造假上
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/622567/)
 
-作者：香草山写作组 七芒星
+作者：香草山写作组 程万里
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06092752/MOS0619-%EF%BC%BB%E7%86%B1%E9%BB%9E%E6%92%AD%E5%A0%B1%EF%BC%BD%E4%B8%AD%E5%9B%BD%E6%AD%A3%E5%A4%A7%E8%A7%84%E6%A8%A1%E6%89%A9%E5%A4%A7%E5%85%B6%E6%B0%94%E5%80%99%E5%8F%98%E5%8C%96%E8%AE%A1%E5%88%92%EF%BC%8C%E4%BB%A5%E8%A6%86%E8%93%8B%E5%85%B6%E5%8D%8A%E5%80%8B%E5%9B%BD%E5%AE%B6.jpg)
-据Populist Press12月5日消息，《商业内幕》报导， 中共政府周二表示，中国正在大规模扩大其气候控制项目，并力争到2025年能够复盖全国一半的人工降雨降雪。 中共国务院表示，该项目到2035年将处于“全球先进水平”，并将帮助减轻“干旱和冰雹等灾害”，并促进“对森林或草原火灾的应急响应”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06093923/MOS0620-%E3%80%90%E4%B8%96%E4%BA%8B%E8%A7%A3%E8%AF%84%E3%80%91%E4%B8%AD%E5%8C%BB%E7%9A%84%E9%97%AE%E9%A2%98%E5%9C%A8%E4%BA%8E%E4%B8%AD%E8%8D%89%E8%8D%AF%E9%80%A0%E5%81%87%E4%B8%8A.jpg)
+这里讲两个真实的故事，一家在墙内久负盛名的医药公司，非典后准备进军板蓝根市场，可董事长发现，他们产的板蓝根每包的成本价比市面上的售价还要高出两倍，他想公司这下玩完了，贪污腐败如此恶劣。于是派出了三拨人调查，结果却惊人的相似：成本就是这么多。原来市面上的板蓝根没有一个是用十字花科植物松蓝的根做的，好一点的是松蓝的叶或茎，差的就不知道是什么根了。因为那么一点点的操守，加上价格比较昂贵，销量少，他们退出了板蓝根市场。
 
-据《卫报》报道，包括美国在内的数十个国家也有此类计划，但中共拥有世界上最大的计划，雇用了约35,000名员工。
+另一个故事是，国外有做中草药的商人来到安徽省霍山县采购叫石斛的中药，有当地朋友就直接说，他们整个县产的石斛全是假的，真的根本就没有，有也不准许去挖，只能造假。商人再去调查果然如此。
 
-中共自1960年代就启动了类似计划。中共在2008年奥运会之前不久也在北京启动了类似的项目，该项目使中共在活动开始之前成功地迫使预期的降雨降下。
+这两个真实的例子说明了为什么老中医开的方子的用量越来越多，可病却没有好转的原因。导致的结果就是大家越来越不相信中医，才有了中医无用论。年轻人也不愿去学，再加上政府的限制（如考证），中医慢慢就没有了传承。
 
-目前中共政府操纵，控制和制造了几乎所有东西，甚至连气候也不放过。虽然独裁政府控制自然资源会带来所谓的好处，但这样做是极其危险的。中共政府在超过半个国家的地域上拥有控制气候的能力，就从这看来中共不应在美国拥有任何影响力。中共这种严重违背自然规律的做法，必将受到上天的惩罚！
+但为什么中医院开的药还有疗效呢？有次和中医院的朋友聊天，我告诉他中草药全是假的，不会有效果的，朋友却讳莫如深：还是有点点效果，知道为什么中草药打成粉吗？那是方便掺点西药。
 
-原文链结
-[https://populist.press/china-massively-expanding-its-weather-modification-program-to-will-control-half-the-country/](https://populist.press/china-massively-expanding-its-weather-modification-program-to-will-control-half-the-country/)
-[https://www.businessinsider.com/china-expanding-weather-modification-program-artificial-rain-snow-2025-2020-12](https://www.businessinsider.com/china-expanding-weather-modification-program-artificial-rain-snow-2025-2020-12)
+去中国最大的中草药市场亳州调查，你会发现中草药的造假登峰造极：石灰粉做的龙骨、杏仁做的桃仁、山药蛋做的元胡、枯木做的沉香、米粉做的茯苓等等等等，不胜枚举。
+
+看看这就是我们的中草药市场，中医怎么还能治病救人呢？中医的问题不在中医身上，而在于中草药的造假上。这才是真相。
+
+参考链接：[https://www.soundofhope.org/post/286055](https://www.soundofhope.org/post/286055)
+
+文章仅代表个人观点。
 
 
 
