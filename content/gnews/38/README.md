@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/04/2020 蓬佩奥：这不是美国与中国的斗争，这是关于自由与暴政的斗争
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/620697/)
+## 【字幕】12/03/2020文贵：为什么共产党要偷美国的大选
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/620770/)
 
-By: 【秘密翻译组G-Translators】
+制作： 【彩虹桥】
 
 0

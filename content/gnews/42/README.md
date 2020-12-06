@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/03/2020 两党建制派都从加权竞赛功能中获利，双方共谋反对川普
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/620665/)
+## 12/04/2020 蓬佩奥：这不是美国与中国的斗争，这是关于自由与暴政的斗争
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/620697/)
 
 By: 【秘密翻译组G-Translators】
 

@@ -1,23 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亚利桑那州立法机关要求立即对Dominion投票机进行检测
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/620914/)
+## 灾难来临，战友请妥善应对！
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/620906/)
 
-多伦多枫叶农场（原加喜农场） ctt
-校对 文锦 上传 云起时
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05174906/youtube2.png)图片来源： Youtube
-据大纪元12月4日报道，针对这次大选在亚利桑那州的欺诈和违规行为，川普团队在本周早些时候提起了指控，随即, 亚利桑那州众议院和参议院呼吁对马里科帕县的选举软件和设备进行审检。
+俄罗斯喀秋莎农场 小学没毕业
 
-相当多的选民认为在马里科帕县发生了大量欺诈及违规行为。例如, 有人作证不止一次看到投给川普的选票转移到拜登身上, 对此，证人宣誓并提供了证词。众议院多数党领袖, 共和党控制的立法机构的领导人, 州参议员, 及马里科帕县的监事会都要求对马里科帕县使用的Dominion软件进行独立检测, 他们认为这是一个积极的步骤, 可以保持所有投票者对我们选举的信心。
+校对 DongDong 银河 上传 银河
 
-对此，Dominion公司矢口否认系统可将选票从一个候选人换成另一个候选人身上, 否认能够实时监控选票的制表，否认Dominion公司的员工可以接触到制表，对川普法律团队指出的Dominion公司的系统被入侵，也予以否认。
 
-评：
+[![艺术与灾难的缠斗_凤凰艺术](https://lh3.googleusercontent.com/proxy/wP-uRUoO13LOujx7NVunqhZUOmNOznnptK27qWc52dEyASw9Rxfr_7ZmO9ivOSvREmB-lrv048yh8hKdxcR3SVL_3M2og_lqw41-sqhIQTU)](https://www.google.ca/url?sa=i&amp;url=http%3A%2F%2Fwap.art.ifeng.com%2F%3Fapp%3Dsystem%26controller%3Dartmobile%26action%3Dcontent%26contentid%3D3495647&amp;psig=AOvVaw3njamMolyYpPclDdeCI8-z&amp;ust=1607299378094000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCOjop_-GuO0CFQAAAAAdAAAAABAJ)图片来源：凤凰艺术
+美国和北约成员国已验证中共病毒为生化武器，中共使用生化武器和网络攻击等超限战袭击美国主权，干扰美国总统大选。西方文明世界已彻底觉醒。中共内部高层清楚，现在以美国为首的大北约、小北约联盟国家，要对中共进行全面的打击。这些天他们正在准备后事，家属、子女、都在往外跑路，资产用不同方式转移出去，这是比特币和虚拟货币暴涨的原因，因为他们在洗钱。
 
-这次美国大选中，拜登阵营进行了大量的造假和作弊，其中很多都发生在Dominion投票系统上。目前曝出的越来越多证据显示，外国势力通过控制Dominion投票系统操纵美国大选，为什么选票总是从川普身上转移到拜登身上，个中情况不言而喻。
+惩罚清算共产邪魔时，中共高层一定会抓住同胞跟他们一起死扛，做肉盾，中国人民将会面临巨大的人道灾难。文贵先生直播里讲到在灾难来临之际，如何为爆料革命战友，特别是国内的战友，应对减轻这次即将到来的危机指明了方向。
 
-原文链接
-[Arizona Legislature Calls for Immediate ‘Forensic Audit’ of Dominion Voting Machines](https://www.theepochtimes.com/arizona-legislature-calls-for-immediate-forensic-audit-of-dominion-voting-machines_3605367.html?utm_source=newsnoe&amp;utm_medium=email&amp;utm_campaign=breaking-2020-12-04-4)
+第一是要保证准确和快速的信息，破除中共对老百姓的愚民洗脑之术，不被中共利用。
+
+第二是确保充足的粮食，要让国内朋友家人有粮，不要因缺粮而造成次生灾难。
+
+国内的战友能出去的尽全力出去，文贵先生己经在东南亚很多国家和俄罗斯准备好接待战友的场所。战友应该加紧行动起来，尽量储备粮食、药品，尤其对中共病毒提高警惕，以防穷途末路的邪恶中共会释放更大程度的病毒。储备多种通讯设备，把真实讯息传递给身边每一位同胞。尽量到安全的地方，远离一切的军事化设施，水坝、实验室，包括地下的设施，核电站。正义与邪恶黑暗势力的终极之战，马上就要开始了，为国内同胞和全世界华人祈福！
 
 0
