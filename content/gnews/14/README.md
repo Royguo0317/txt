@@ -1,20 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年12月5日中共病毒疫情要闻快报
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/622430/)
+## 每日重要Twitter播报（中文）12/4期（视频+ PDF下载）
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/622436/)
 
-**重点内容：**
+撰稿记者:CYC文穎 本來 石头
+校对:David XX
+播音:大脚印
 
-- 全球中共病毒死亡人数破150万！
-- 英国批准辉瑞疫苗，本月开始接种；
-- 铁证如山，选票造假瞬间被拍；
-- 中共社科院教授：拜登儿子与我党有“生意”；
-- 生活压力增大，民政部敲警钟：生育率破警戒线。
-
-
-
-
-**By：【秘翻组-上天造灭疫组】**
+[每日重要推文12-4\_PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06090758/12-4_P.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06090758/12-4_P.pdf)
 
 0
