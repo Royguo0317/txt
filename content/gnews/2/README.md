@@ -1,27 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普出席乔治亚州集会，为共和党参议院候选人助选
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/621050/)
+## 美军最大飞行员训练基地周边已被中共入侵
+` 快慢机` [轉載自GNews](https://gnews.org/zh-hans/621149/)
 
-- 编辑：文顺
-- 翻译：Victor Torres
+内军事:快慢机
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/05210640/EoexA1sXcAE8hQ2.jpeg)
+新中国联邦的坚定盟友Kyle Bass先生在其社交媒体上愤慨的表示:位于美墨边境地区美军最大飞行员训练基地的跑道附近,竟然有余18万英亩的得克萨斯州农场土地被中共所购入.
 
+该片农场内拥有30,000平方英呎的房屋以及一条仅供私人飞机起降的跑道.
 
-***更多真相，请关注*** ***[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+该跑道将为中共运送相关物资进出美墨边境提供极大的便利.
 
-**西班牙2020年12月5日电/西喜社/**——川普总统周六出席乔治亚州集会，支持两名面临决胜选举的共和党参议院候选人，这将决定至少未来几年内的参议院控制权。 一月份的两次选举将决定参议院的控制权。
+而美国当局却对此视而不见,不加监管!
 
-据《Just the News》报道，总统在瓦尔多斯塔地区机场会见了共和党参议院候选人大卫·珀杜（David Perdue）和凯利·洛夫勒（Kelly Loeffler），为共和党基地注入了活力，以确保下个月的高投票率。
+Kyle Bass先生同时表示“不敢相信这一采购案是在美国外国投资委员会(CFIUS)的监督允许下通过实施的.”
 
-报道称，上个月珀杜（Perdue）、洛夫勒（Loeffler）和他们的对手都没有在各自的竞争中赢得多数选票，从而使比赛在一月份进入决赛。
+劳夫林空军基地作为美军最大的飞行员训练基地,拥有着极为完善的空地飞行训练设施.
 
-在上个月的选举之后，共和党目前在参议院中仅占50-48的微弱多数（少数派两位独立选举人归入民主党阵营）。 该报道分析表示，民主党人拉斐尔·沃诺克（Raphael Warnock）和约翰·奥索夫（John Ossoff）必须赢得两个席位才能绑定参议院的控制权，而下一任副总统，现任迈克·彭斯(Mike Pence)或挑战者卡马拉·哈里斯(Kamala Harris）则是决胜关键。
+其日均起落架次要远远高于美国全境的其他机场.
 
-**原文链接：**[https://justthenews.com/politics-policy/elections/trump-heading-georgia-rally-support-senate-gop-runoff-candidates](https://justthenews.com/politics-policy/elections/trump-heading-georgia-rally-support-senate-gop-runoff-candidates)
+美军第47飞行训练联队于该基地常驻.
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+中共在如此敏感的美军大型军事基地附近,竟能轻松购入超过18万英亩的大片边境地区私人牧场土地,还拥有私人飞机跑道等设施.
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+这不得不令人联想到美国如今荒谬绝伦的总统大选舞弊丑闻事件的,幕后黑暗势力是否也有参与其中呢?
+
+如此大宗边境地区敏感军事基地附近的土地交易,又是涉及他国背景的投资行为.
+
+没有美国政府的许可是几乎不可能被顺利批准通过的.
+
+美国当下的腐败混乱及黑暗,是幕后沼泽地中的利益集团与中共暗地勾结的结果所导致.
+
+相信美国的敌人不仅仅是中共那么简单,那些出卖了美国的肮脏政客与资本大鳄更是美国内部的毒瘤所在.
 
 0
