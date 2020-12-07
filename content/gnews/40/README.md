@@ -1,20 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发：朱利安尼被中共病毒感染
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/623253/)
+## 英国准备本周推出辉瑞研发的新冠病毒疫苗
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/623272/)
 
-- 编辑：神奇四侠
-- 来源：2pac
+**作者: Estelle Shirbon and Alistair Smout**
 
-
-- ***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+**编译: 莫黎**
 
 
-西班牙2020年12月07日电/喜西社——朱利安尼律师感染中共病毒。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06161525/00123.jpg)图片: REUTERS
 
-北京时间2020年12月7日4：16分，美国总统川普发推文，证明其竞选律师团队主导人朱利安尼感染中共病毒，并认为是朱利安尼是迄今为止纽约市历史上最伟大的市长，并一直不懈地揭露美国历史上最腐败的选举。
 
-川普总统推特链接：[https://twitter.com/realDonaldTrump/status/1335679426516881409](https://twitter.com/realDonaldTrump/status/1335679426516881409)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15080657/portada-15-11-2020-Gnews.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+(路透社) – 英国政府本周日表示，英国正准备在本周成为第一个推出辉瑞/生物技术公司新冠疫苗的国家，最先会为医院提供这种疫苗，然后将剩余库存分发到医生的诊所。
+
+国家卫生服务（NHS）发布的录像显示，装有疫苗剂量的箱子被送到伦敦南部的克罗伊登大学医院，并被储存在一个特殊的、安全上锁的冰箱中。
+
+首批疫苗将于周二接种，NHS将优先为80岁以上老人、一线医护人员、护理院工作人员以及居住人员进行接种。
+
+英国上周批准了辉瑞和BioNTech疫苗的紧急使用，在全球抢先开始历史上最关键的大规模接种计划。
+
+英国总共订购了4000万剂疫苗。由于每个接种的人需要两剂，这足以为这个拥有6700万人口的国家的2000万人接种疫苗。预计约80万剂疫苗将在第一周内提供。
+
+卫生部表示，从比利时运来的首批疫苗已被储存在全国各地的安全地点，并将在那里进行质量检查。
+
+此次疫苗接种计划的推出时间正值英国与欧盟就 “脱欧 “后贸易协定进行谈判的关键和充满风险的时刻。
+
+维持现状的过渡期将于12月31日结束，而无协议的情况将导致英国与比利时等欧盟国家之间的货物流通出现重大混乱。
+
+《观察家报》周日报道称，根据英国政府的应急计划，数千万剂疫苗也许已通过军用飞机飞抵英国，从而避免因脱欧导致的港口延误。
+
+政府拒绝对《观察家报》的报道发表评论。农业和环境部长George Eustice在《天空新闻》中被问及脱欧相关的干扰的担忧以及《观察家报》报告是否属实时表示将不会有任何干扰。
+
+
+
+**女王将接受疫苗接种**
+
+辉瑞/生物科技公司的疫苗需要被保存在零下70度（-94F）的环境中，在普通冰箱中只能保存5天。因此，该疫苗将首先在50家医院实施接种。
+
+英格兰NHS已经写信给社区医生，告知他们准备从12月14日开始接种疫苗。政府表示，当地医生团体将在全国各地设立1000多个疫苗接种中心。
+
+盒装的疫苗有5包975剂，但需要特别的监管许可才能将其进行分拆。一位高级医疗官员表示，他希望能够将这些包装分拆后并直接送到护理院，但并不能保证可以做到。
+
+由于公众对疫苗的高度不信任，使公共卫生专家感到担忧，《泰晤士报》和《星期日邮报》报道说，94岁高龄的伊丽莎白女王与其99岁的丈夫菲利普亲王将在接种疫苗后 “让人们知道”。
+
+据美国全国广播公司 (NBC) 新闻报道，脸书 (Facebook) 本周宣布，将从其平台删除所有被公共卫生专家界定的关于新冠病毒疫苗的虚假信息。脸书在一篇博客文章中表示，全球政策的改变是针对新冠疫苗将很快开始在世界范围内推广的消息的回应。
+
+
+
+
+
+**新闻来源**:
+
+**Britain gets ready for rollout of Pfizer’s COVID-19 vaccine this week**
+
+[https://www.reuters.com/article/amp/idUSKBN28G005](https://www.reuters.com/article/amp/idUSKBN28G005)
+
+
+
+**Facebook Bans ‘Misinformation’ About Coronavirus Vaccine**
+
+[https://www.breitbart.com/tech/2020/12/04/facebook-bans-misinformation-about-coronavirus-vaccine/amp/](https://www.breitbart.com/tech/2020/12/04/facebook-bans-misinformation-about-coronavirus-vaccine/amp/)
+
 0
