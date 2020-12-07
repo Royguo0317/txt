@@ -1,21 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [突发]朱立安尼发推表示感觉很好
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/623900/)
+## 12/06/2020 每日快讯
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/623922/)
 
-编辑：Victor Torres
-
-更多真相，请关注Gtv、Gnews！
-
-**西班牙2020年12月7日电/西喜社/**——朱立安尼周日晚发推说:
-
-感谢所有我的朋友和追随者的祈祷和祝福。
-我得到了很好的照顾，感觉很好。
-快速恢复并跟上一切。
-
-朱立安尼周日早些时候被诊断感染了中共病毒。
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06213927/Screenshot_20201206-212802_Twitter-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+制作：战友之家粤语频道
+主播：【鱼摆摆（文驋）】 资料收集：【蚁蚁（文依）】【Annie喜马拉雅】【星星】【鱼摆摆】【ppt】【文静】 视频制作：【文德】 海报制作：【文绉绉】
 0

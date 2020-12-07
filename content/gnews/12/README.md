@@ -1,30 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 脸书删除黑人女共和党人对腐败的密歇根州务卿提出指控的视频
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/623794/)
+## 【亚利桑那州听证会】朱利安尼市长振聋发聩的讲话
+` GM127` [轉載自GNews](https://gnews.org/zh-hans/623892/)
 
-多伦多枫叶农场（原加喜农场）阿黎
-校对 文锦 上传 云起时
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06204518/rock-the-vote.png)图片来源：Rock the Vote
-据《门户专家》（The Gateway Pundit ）12月6日报道密歇根州共和党活动人士，克里斯蒂娜·卡拉莫项目主持人克里斯蒂娜·卡拉莫（Kristina Karamo），29年州务卿选举诚信联络人琳达·李·塔佛（Linda Lee Tarver）博士，以及安吉利·约翰逊（Angelic Johnson），特意前往密歇根州兰辛市通知密歇根州民主党州务卿乔斯林·本森（Jocelyn Benson），她们已对他提起诉讼。
+2020年11月30日，由朱利安尼市长带队的川普总统的法律团队参加了亚利桑那州议会在凤凰城举行的公开听证会。会议中朱利安尼市长讲话，例举亚利桑那州大选中的种种违法行为。这是继宾州的葛底斯堡听证会后的第二个重要摇摆州的听证会。
 
-琳达·李·塔弗博士和安吉丽克·约翰逊做为原告，起诉密歇根州务卿乔斯林·本森泄露密歇根州居民私人信息，本森将密歇根州居民的私人信息，包括社会安全号、出生日期、地址，甚至眼睛的颜色，给了Rock The Vote。
+朱利安尼市长在听证会上深刻揭露了美国在“精英”的带领下滑向可怕的社会主义和共产主义的严峻现实，扒下以拜登为例的腐败政客的丑陋外衣，更颂赞了以维护世界正义为己任的伟大的美国，警告世界：美国的毁坏将是整个世界的灾难。
+[视频源](https://www.youtube.com/watch?v=C_i5hrJsDCE)
+讲话节选：
 
-卡拉莫三人就此拍摄了一个视频，并将视频发布在脸书叫做“百分百愤怒”（《100% Fed Up》）的节目上。脸书很快将此视频删除，因此《100% Fed Up》节目把它放到了YouTube上。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06205126/facebook1.png)图片来源：Youtube
-那么Rock The Vote 是一个什么样的组织呢？虽然Rock The Vote声称自己是一个 “值得信赖和有效的无党派 “组织，但它在很大程度上是支持左派的。
+“精英们，才是有知识的” —— 哇！难道这听起来不像美国的今天吗？我指的是，那是曾经的俄国，曾经的中国，也是现在的中国，那是曾经的波兰，曾经的保加利亚，曾经的东柏林。老天，我以为我们通过奋斗已赶走了这种思潮，没想到竟然在美国看到了。它就发生在美国。
 
-2016年希拉里·克林顿在总统大选中失利后，Rock The Vote的主席卡罗琳·德威特曾发表声明，声称美国 “正在朝着激进的方向前行”，他将选举结果归咎于 “陈旧而混乱的选举法”、压制选民以及 “整体政治”。 2019年，Rock the Vote散发了一份请愿书，支持废除选举人票制，改用普选制。
+从硬盘的揭露开始，证明了拜登家族犯下的大量重大罪行。这些信息被审查，不允许被公开、不允许出现在电视上，也不允许出现在报纸上。我们就是不愿意见到这些事实，甚至即使这些表明数百万美元都去了一个副总统那里，这些钱是来自中国、俄国、乌克兰、罗马尼亚…… 哦，我都记不得那么多的地方。一个副总统坐在他副总统的办公室里变成了一个百万富翁，这是极其不寻常的，但这就是发生了，而他现在还是民主党候选人。
 
-2009年，Rock The Vote发起了一场多媒体活动，重点支持奥巴马政府颁布的新医保政策-Obama Care，包括一则30秒的电视广告，邀请名人鼓励年轻人 “现在就要求医保”。该广告意在教育年轻选民了解医保改革。配合这则广告，该活动鼓励人们通过签署 “Yes We Care “来要求通过Obama Care。
+当这场选举刚一进入质疑阶段，这些爆料都被掩盖了。他们使用了同样的手法来进行掩盖、掩盖、掩盖。大科技公司、大媒体、歪曲事实的民主党领袖们，以及大型企业正在从现有的体制中获利
 
-根据Rock The Vote 的高级职员和董事会成员的身份，卡拉莫三位共和党女士很容易发现密歇根州州务卿乔斯林·本森为了影响密歇根州的选举结果，把所有密歇根州登记选民的社会安全号、地址和其他个人信息给了谁。
+他们的愿望不是把美国这个国家利益放在首位，而是不管把美国放在什么位置，只要他们能赚钱就行。我们这个国家可以是第三，可以是第五，只要他们能获利，国家也可以不存在，他们完全不理解这个国家的重要性。
 
-根据卡拉莫在视频中所说，密歇根州有十几万张非法邮寄选票，选票上的选举人信息是哪里来的呢？选票上的签名经过验证了吗？州务卿把选民信息给了Rock The Vote，这些信息是否被用在这十几万张非法选票上了呢？
+对于，说真的，对于世界的生存有多么重要的意义，世界上没有任何其它国家愿意为了拯救别国人民，而将本国的男人和女人们的生命置于危险中。那样的国家在地球上是不存在的。而我们是这样的国家。如果我们破坏了这个国家的根本属性，这个世界就会处在可怕的时空里。”
 
-脸书删掉了三位黑人女性对权力说不的视频，我们可以说脸书是种族歧视吗？似乎没有多少这样的声音在主流媒体上传播。如果是三个黑人女性民主党人站出来指控腐共和党人腐败，脸书肯定会大张旗鼓地加以放大和宣传，而且这样的新闻会瞬时间传遍CNN、 NBC、 ABC、CBS、BBC和FOX等主流媒体。
+【编者按】新中国联邦和爆料革命的弟兄姐妹们祝朱利安尼市长先生早日康复，我们爱您！愿上帝保佑祝朱利安尼市长和家人，上帝保佑美国，上帝保佑新中国联邦。
 
-[原文链接](https://www.thegatewaypundit.com/2020/12/three-brave-black-female-republicans-file-charges-corrupt-michigan-secretary-state-facebook-censors-silences/?utm_source=Twitter&amp;utm_campaign=websitesharingbuttons)
+听写：【V%】听写校对：【BruhM（文山）】翻译：【Cyndi】【柠檬草GraceM】校对：【奔腾的长江】字幕：【奔腾的长江】撰文 & 编辑：【Isaiah4031】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22111053/VOG-Rose-Garden-Team.png)
+
+
+> [Arizona State Legislature Holds Hearing on Election Fraud and Irregularities – Invocation](https://gnews.org/607447/)
+
+
+
+
+
+> [Video From GA Shows Suitcases Filled With Ballots Pulled From Under a Table After Poll Workers Left](https://gnews.org/614878/)
+
+
+
+
+
+> [【Gettysburg Hearing】Remarks by Mayor Giuliani (with Subtitles)](https://gnews.org/602865/)
+
+
+
+
 
 0
