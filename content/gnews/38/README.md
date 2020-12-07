@@ -1,25 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 警告！抖音秘密监视苹果手机中的信息！
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/623665/)
+## 【世界多语言图文】2020/11/27-28 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/625345/)
 
-美东香草山
+战友之家图文摘要及多语组
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
+[307-3086\_English\_1127-1128\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085045/307-3086_English_1127-1128_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085045/307-3086_English_1127-1128_CCP_Virus_Updates.pdf)
+
+[307-3086\_French\_1127-1128\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085009/307-3086_French_1127-1128_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085009/307-3086_French_1127-1128_CCP_Virus_Updates.pdf)
+
+[307-308\_German\_1127-1128\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085101/307-308_German_1127-1128_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085101/307-308_German_1127-1128_CCP_Virus_Updates.pdf)
+
+[307-3086\_Japanese\_1127-1128\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085053/307-3086_Japanese_1127-1128_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085053/307-3086_Japanese_1127-1128_CCP_Virus_Updates.pdf)
+
+[307-3086\_Korean\_1127-1128\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085030/307-3086_Korean_1127-1128_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085030/307-3086_Korean_1127-1128_CCP_Virus_Updates.pdf)
+
+[307-3086\_Spanish\_1127-1128\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085108/307-3086_Spanish_1127-1128_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085108/307-3086_Spanish_1127-1128_CCP_Virus_Updates.pdf)
 
 
-
-
-
-参考链接： [https://www.forbes.com/sites/zakdoffman/2020/06/26/warning-apple-suddenly-catches-tiktok-secretly-spying-on-millions-of-iphone-users/?sh=6a3bba9d34ef](https://www.forbes.com/sites/zakdoffman/2020/06/26/warning-apple-suddenly-catches-tiktok-secretly-spying-on-millions-of-iphone-users/?sh=6a3bba9d34ef)
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
