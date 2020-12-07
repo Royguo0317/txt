@@ -1,33 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 报告发现微波能量可能使美国外交官生病
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/624094/)
+## 中南坑惊恐:伊朗核科学家被使用卫星控制的枪暗杀
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/624101/)
 
-翻译： 康州盘古农场 – Antsee-GTV
+- 编辑：Victor Torres
 
-校对： 康州盘古农场 – 轰炸机
 
-审核： 康州盘古农场 –Truemanman
+***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-华盛顿（美联社）-美国国家科学院委员会的一份新报告发现，“定向”微波辐射可能是导致驻古巴和中国美国外交官生病的原因。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06232026/%E5%9B%BE%E7%89%8735.png)
-该疾病于2016下半年在哈瓦那的美国人员中开始出现，寻找神秘致病原因的研究是受国务院委托，并于周六发布了最新的研究尝试。
+半官方的梅尔通讯社报道，伊朗核科学家和军事研究员莫森·法赫里扎德（Mohsen Fakhrizadeh）被利用通过卫星链路控制的先进电子设备暗杀。
+迈尔·法赫里扎德（Mohsen Fakhrizadeh）于11月27日在德黑兰郊区发生的枪击和汽车炸弹袭击中丧生，他在首都以东的高速公路上行驶，当时武器“利用人工智能”“锁定”了他。
+上周，伊朗最高国家安全委员会秘书阿里·沙姆卡尼（Ali Shamkhani）表示，伏击中使用了遥控武器，这夺走了科学家的生命。 行动“非常复杂”，攻击时不需要人员在现场。
+伊朗官员指责以色列策划了法赫里扎德的暗杀活动。 伊朗媒体报道说，从现场回收的杀死他的武器的残骸表明，它源自以色列军方。 作为回应，以色列情报部长埃利·科恩（Eli Cohen）说，他的政府不知道谁杀害了法赫扎迪（Fakhrizadeh）的人，但补充说，不管是谁使，他使得世界变得更加安全，因为伊朗物理学家“积极参与了制造核武器”。
+这是自一月份以来第二次针对伊朗高级官员的针对性杀害，当时美国总统唐纳德·川普下令对卡西姆·索莱马尼将军进行了无人机袭击。
+作为伊朗的老朋友，中共中南坑的老家伙们，“看到花式定点清除法”之后，不知作何感想?好在，他们马上就有机会体验全球最先进的“斩首”科技了!
 
-研究发现，“定向的脉冲射频能量似乎是对包括剧烈的头部压力，头晕和认知困难症状最合理的解释。这种解释比其他先前考虑的原因（例如热带病或心理问题）更有可能。尽管报告确实指出这种类型的伤害研究以前是在前苏联进行的，但没有指出“伤害能量”的来源，也没有说它是袭击的结果。
+参考:
 
-由19名成员组成的委员会在其报告中指出，在试图探究医学奥秘本质时候，他们面临着重大挑战。在这些人中，并非每个人都报告了相同的症状，美国国家科学院的研究无法获得以前所有关于该疾病的研究，其中一些是机密的。
+[https://www.zerohedge.com/markets/iran-says-nuclear-scientist-was-assassinated-using-satellite-controlled-gun](https://www.zerohedge.com/markets/iran-says-nuclear-scientist-was-assassinated-using-satellite-controlled-gun)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221622/PHOTO-2020-11-26-13-19-21.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
-委员会主席、斯坦福大学医学教授戴维·里尔曼（David Relman）表示：“委员会认为这些案件十分令人担忧，一部分担忧是（关于病因）的合理解释，就是定向脉冲射频能量作为一种机制被（应用），其它（担忧）是因为其中一些人遭受的巨大的痛苦和残疾。作为一个国家，我们需要解决这些具体案例，并以协调和全面的方式应对未来可能的案例。”
 
-2017年初，大约有二十多名美国驻古巴大使馆人员以及加拿大外交官和美国驻广州大使馆有关人员产生了健康问题。
-
-一些美国人批评美国政府对待他们的健康投诉没有作为，至少有一个人已对国务院提起诉讼。
-
-在2016年末至2018年5月之间，哈瓦那的几名美国和加拿大外交官抱怨原因不明的健康问题。美国政府的一项统计显示，受影响的美国人员数量达26人。
-
-一些人报告说，在家中或住在旅馆时听到类似蟋蟀发出的高音，这引发了前面提到的声波攻击论（研究）。
-
-原文链接：[https://apnews.com/article/politics-science-havana-cuba-china-8eee2de0d887e67d530d1a6f272d781c](https://apnews.com/article/politics-science-havana-cuba-china-8eee2de0d887e67d530d1a6f272d781c)
-
-0
+1+
