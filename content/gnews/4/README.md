@@ -1,17 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 再次被证实——中共利用定向微波式武器攻击美国使馆人员!
-` 快慢机` [轉載自GNews](https://gnews.org/zh-hans/624010/)
+## 中南坑惊恐:伊朗核科学家被使用卫星控制的枪暗杀
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/624101/)
 
-内军事:快慢机
+- 编辑：Victor Torres
 
-[https://www.voachinese.com/a/report-finds-microwave-energy-likely-made-us-diplomates-ill-20201206/5689202.html](https://www.voachinese.com/a/report-finds-microwave-energy-likely-made-us-diplomates-ill-20201206/5689202.html)
 
-2020年12月5日,由美国国务院授权委托美国国家科学院,对美国驻外使馆外交人员神秘患病事件,所进行的调查研究报告证实指出——自2016年下半年致2018年5月期间,陆续出现的美国驻中国与古巴的使馆外交工作人员,相继神秘患病事件的主因为一种“定向脉冲式无线电微波能量源”所致.被该种微波照射后,会出现包括颅内高压、头晕、认知障碍等严重机能丧失症状反应.
+***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-之前中共军方的高级将领金灿荣将军曾在一次内部会议期间,大谈中共军方是如何利用“定向脉冲式微波武器”袭击印军边防巡逻队,导致其被迫后撤的有关细节.这也直接证实了美国国家科学院关于这次调查研究报告中所得出的结论是准确无误的.
+半官方的梅尔通讯社报道，伊朗核科学家和军事研究员莫森·法赫里扎德（Mohsen Fakhrizadeh）被利用通过卫星链路控制的先进电子设备暗杀。
+迈尔·法赫里扎德（Mohsen Fakhrizadeh）于11月27日在德黑兰郊区发生的枪击和汽车炸弹袭击中丧生，他在首都以东的高速公路上行驶，当时武器“利用人工智能”“锁定”了他。
+上周，伊朗最高国家安全委员会秘书阿里·沙姆卡尼（Ali Shamkhani）表示，伏击中使用了遥控武器，这夺走了科学家的生命。 行动“非常复杂”，攻击时不需要人员在现场。
+伊朗官员指责以色列策划了法赫里扎德的暗杀活动。 伊朗媒体报道说，从现场回收的杀死他的武器的残骸表明，它源自以色列军方。 作为回应，以色列情报部长埃利·科恩（Eli Cohen）说，他的政府不知道谁杀害了法赫扎迪（Fakhrizadeh）的人，但补充说，不管是谁使，他使得世界变得更加安全，因为伊朗物理学家“积极参与了制造核武器”。
+这是自一月份以来第二次针对伊朗高级官员的针对性杀害，当时美国总统唐纳德·川普下令对卡西姆·索莱马尼将军进行了无人机袭击。
+作为伊朗的老朋友，中共中南坑的老家伙们，“看到花式定点清除法”之后，不知作何感想?好在，他们马上就有机会体验全球最先进的“斩首”科技了!
 
-郭文贵先生早前也曾在直播中不止一次提到过,中共军方手中早就拥有“定向脉冲式微波武器.”可以在远距离对目标进行非接触性隐秘照射袭击.中共如今又一罪证被彻底证实,灭共已刻不容缓!
+参考:
 
-0
+[https://www.zerohedge.com/markets/iran-says-nuclear-scientist-was-assassinated-using-satellite-controlled-gun](https://www.zerohedge.com/markets/iran-says-nuclear-scientist-was-assassinated-using-satellite-controlled-gun)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221622/PHOTO-2020-11-26-13-19-21.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+
+
+1+
