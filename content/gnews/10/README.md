@@ -1,30 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 脸书删除黑人女共和党人对腐败的密歇根州务卿提出指控的视频
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/623794/)
+## 【世事解评】TikTok如何窃取用户信息，用于中共对美的网络超限战
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/623891/)
 
-多伦多枫叶农场（原加喜农场）阿黎
-校对 文锦 上传 云起时
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06204518/rock-the-vote.png)图片来源：Rock the Vote
-据《门户专家》（The Gateway Pundit ）12月6日报道密歇根州共和党活动人士，克里斯蒂娜·卡拉莫项目主持人克里斯蒂娜·卡拉莫（Kristina Karamo），29年州务卿选举诚信联络人琳达·李·塔佛（Linda Lee Tarver）博士，以及安吉利·约翰逊（Angelic Johnson），特意前往密歇根州兰辛市通知密歇根州民主党州务卿乔斯林·本森（Jocelyn Benson），她们已对他提起诉讼。
+作者：香草山写作组 村北
 
-琳达·李·塔弗博士和安吉丽克·约翰逊做为原告，起诉密歇根州务卿乔斯林·本森泄露密歇根州居民私人信息，本森将密歇根州居民的私人信息，包括社会安全号、出生日期、地址，甚至眼睛的颜色，给了Rock The Vote。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
 
-卡拉莫三人就此拍摄了一个视频，并将视频发布在脸书叫做“百分百愤怒”（《100% Fed Up》）的节目上。脸书很快将此视频删除，因此《100% Fed Up》节目把它放到了YouTube上。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06205126/facebook1.png)图片来源：Youtube
-那么Rock The Vote 是一个什么样的组织呢？虽然Rock The Vote声称自己是一个 “值得信赖和有效的无党派 “组织，但它在很大程度上是支持左派的。
 
-2016年希拉里·克林顿在总统大选中失利后，Rock The Vote的主席卡罗琳·德威特曾发表声明，声称美国 “正在朝着激进的方向前行”，他将选举结果归咎于 “陈旧而混乱的选举法”、压制选民以及 “整体政治”。 2019年，Rock the Vote散发了一份请愿书，支持废除选举人票制，改用普选制。
 
-2009年，Rock The Vote发起了一场多媒体活动，重点支持奥巴马政府颁布的新医保政策-Obama Care，包括一则30秒的电视广告，邀请名人鼓励年轻人 “现在就要求医保”。该广告意在教育年轻选民了解医保改革。配合这则广告，该活动鼓励人们通过签署 “Yes We Care “来要求通过Obama Care。
+爆料革命很早就揭露过，中共通过高科技手段窃取美国个人和企业的信息，其中一个手段就是手机APP，即通过美国人的手机收集大量的用户信息。通过大数据分析这些信息后，中共可以精准地了解和操纵美国民众，从改变民意到引起社会动荡，甚至推操纵大选。
 
-根据Rock The Vote 的高级职员和董事会成员的身份，卡拉莫三位共和党女士很容易发现密歇根州州务卿乔斯林·本森为了影响密歇根州的选举结果，把所有密歇根州登记选民的社会安全号、地址和其他个人信息给了谁。
+其中一个中共的APP是TikTok。数以千万计的美国人，无论是年轻人还是成年人，每天在TikTok上花费大量的时间。他们不知道的是中共正在观察他们，并悄悄地拿走他们的数据。CCP是怎么做的呢？以下的例子可以知其端倪。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06213004/MOS0637-%E3%80%90%E4%B8%96%E4%BA%8B%E8%A7%A3%E8%AF%84%E3%80%91TikTok%E5%A6%82%E4%BD%95%E7%AA%83%E5%8F%96%E7%94%A8%E6%88%B7%E4%BF%A1%E6%81%AF%EF%BC%8C%E7%94%A8%E4%BA%8E%E4%B8%AD%E5%85%B1%E5%AF%B9%E7%BE%8E%E7%9A%84%E7%BD%91%E7%BB%9C%E8%B6%85%E9%99%90%E6%88%98-1.jpg)
+福布斯网络安全作家Zak Doffman今年6月份曝光过TikTok到底是如何窃取iPhone用户信息的。Zak报道称，早在3月份，安全研究人员Talal Has Bakry和Tommy Mysk就在YouTube上发布了一段视频（中文版字幕请参考[https://gnews.org/zh-hans/623665/](https://gnews.org/zh-hans/623665/)），向人们展示了如何利用“控制台日志”轻松检测到TikTok APP每次被打开时就会下载用户剪贴板的情况。当《福布斯》联系到TikTok的所有者Bytedance询问这个情况时，该公司将责任推给了其嵌入的第三方谷歌广告SDK。
 
-根据卡拉莫在视频中所说，密歇根州有十几万张非法邮寄选票，选票上的选举人信息是哪里来的呢？选票上的签名经过验证了吗？州务卿把选民信息给了Rock The Vote，这些信息是否被用在这十几万张非法选票上了呢？
+然而，Zak继续的调查报道显示，苹果公司在其后的iOS14测试版中发布了剪贴板示警功能后，iPhone用户惊奇地发现TikTok居然在用户使用手机每按1-3次键就会尝试下载用户的剪贴板信息。虽然TikTok这次又找了个借口，但很明显，TikTok(以及其它APP)一直在从用户的手机中获取数据是个不争的事实。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06212847/MOS0637-%E3%80%90%E4%B8%96%E4%BA%8B%E8%A7%A3%E8%AF%84%E3%80%91TikTok%E5%A6%82%E4%BD%95%E7%AA%83%E5%8F%96%E7%94%A8%E6%88%B7%E4%BF%A1%E6%81%AF%EF%BC%8C%E7%94%A8%E4%BA%8E%E4%B8%AD%E5%85%B1%E5%AF%B9%E7%BE%8E%E7%9A%84%E7%BD%91%E7%BB%9C%E8%B6%85%E9%99%90%E6%88%98-2.png)
+而对iPhone用户来说，由于苹果产品之间的同步功能，更糟糕的是同一用户账号下的其它苹果设备上的信息，无论是苹果电脑还是iPad，都被iPhone上TikTok偷走了。
 
-脸书删掉了三位黑人女性对权力说不的视频，我们可以说脸书是种族歧视吗？似乎没有多少这样的声音在主流媒体上传播。如果是三个黑人女性民主党人站出来指控腐共和党人腐败，脸书肯定会大张旗鼓地加以放大和宣传，而且这样的新闻会瞬时间传遍CNN、 NBC、 ABC、CBS、BBC和FOX等主流媒体。
+TikTok的安全问题只是冰山一角。就对自由世界尤其是国的网络渗透和网络战而言，中共通过各种手段取得了巨大成果。例如中共对安提法和黑名贵等组织的精确介入和操纵，从一开始就极大地造成和加剧着美国社会的巨大分裂。他们掌握了许多美国政商腐败分子的肮脏秘密，使美国稳步走入中共的控制之下（如拜登的硬盘门）。当前的美国大选舞弊案，几乎使中共在这场超限战中取得了对美国的最终胜利。美国当前最重要的是要充分而迅速了解中共这种科技渗透的规模并坚定地反击，才能真正让美国这个世界上最后的自由阵地，再次伟大起来。
 
-[原文链接](https://www.thegatewaypundit.com/2020/12/three-brave-black-female-republicans-file-charges-corrupt-michigan-secretary-state-facebook-censors-silences/?utm_source=Twitter&amp;utm_campaign=websitesharingbuttons)
+文章仅代表个人观点。
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

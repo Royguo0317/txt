@@ -1,36 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】活着，就有希望！备战指南供墙内同胞参考
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/623795/)
+## 快評｜烏幹達中國工人集體感染病毒，中共意圖放出“疫苗武器”幹擾烏大選？
+` XMLYG777` [轉載自GNews](https://gnews.org/zh-hans/623993/)
 
-作者：香草山写作组 Daxia
+內病毒專題：Stephen（文文）
+校對：老白
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
+烏幹達中共大使館12月5日公告稱，當地中國務工人員發生新冠肺炎聚集性感染，47名中國公民新冠病毒核酸樣本呈陽性。
 
+根據中共之前公布的情況表明，從6月起國藥新冠滅活疫苗在出國人員中開始接種，特別是央企境外派駐的務工人員，目前接種後離境人員超過5.6萬人。境外務工人員是中共疫苗的主要接種人群，在烏幹達的務工人員理應是接種過中共疫苗的群體。
 
+此次務工人員的集體性感染不但擊碎了中共疫苗的有效性謊言，同時有可能暴露了中共以疫苗作爲武器，進行定向病毒傳播的手段！
 
-热战一触即发！大难来临前，希望墙内的同胞做好一切准备，保护自己及家人。以下是备战指南，供参考。
+烏幹達正值大選前期的關鍵時刻，其總統大選將在2021年1月14日舉行。參選各方頻繁舉行拉票、集會、示威等活動，報道稱已導致超過28人死亡。
 
-1，短波收音机，保证接收外界信息。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06204618/MOS0635-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E6%B4%BB%E7%9D%80%E5%B0%B1%E6%9C%89%E5%B8%8C%E6%9C%9B%EF%BC%81%E5%A4%87%E6%88%98%E6%8C%87%E5%8D%97%E4%BE%9B%E5%A2%99%E5%86%85%E5%90%8C%E8%83%9E%E5%8F%82%E8%80%83-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06204525/MOS0635-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E6%B4%BB%E7%9D%80%E5%B0%B1%E6%9C%89%E5%B8%8C%E6%9C%9B%EF%BC%81%E5%A4%87%E6%88%98%E6%8C%87%E5%8D%97%E4%BE%9B%E5%A2%99%E5%86%85%E5%90%8C%E8%83%9E%E5%8F%82%E8%80%83-2.png)
-2，保证充足食物、饮水、照明等生活物资。具体数量按成员人数调整。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06204656/MOS0635-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E6%B4%BB%E7%9D%80%E5%B0%B1%E6%9C%89%E5%B8%8C%E6%9C%9B%EF%BC%81%E5%A4%87%E6%88%98%E6%8C%87%E5%8D%97%E4%BE%9B%E5%A2%99%E5%86%85%E5%90%8C%E8%83%9E%E5%8F%82%E8%80%83-3.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06204832/MOS0635-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E6%B4%BB%E7%9D%80%E5%B0%B1%E6%9C%89%E5%B8%8C%E6%9C%9B%EF%BC%81%E5%A4%87%E6%88%98%E6%8C%87%E5%8D%97%E4%BE%9B%E5%A2%99%E5%86%85%E5%90%8C%E8%83%9E%E5%8F%82%E8%80%83-4.png)
-![]()
-3，了解中共国的核电分布情况，及时撤离。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06204820/MOS0635-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E6%B4%BB%E7%9D%80%E5%B0%B1%E6%9C%89%E5%B8%8C%E6%9C%9B%EF%BC%81%E5%A4%87%E6%88%98%E6%8C%87%E5%8D%97%E4%BE%9B%E5%A2%99%E5%86%85%E5%90%8C%E8%83%9E%E5%8F%82%E8%80%83-5.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06204910/MOS0635-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E6%B4%BB%E7%9D%80%E5%B0%B1%E6%9C%89%E5%B8%8C%E6%9C%9B%EF%BC%81%E5%A4%87%E6%88%98%E6%8C%87%E5%8D%97%E4%BE%9B%E5%A2%99%E5%86%85%E5%90%8C%E8%83%9E%E5%8F%82%E8%80%83-6.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06205138/MOS0635-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E6%B4%BB%E7%9D%80%E5%B0%B1%E6%9C%89%E5%B8%8C%E6%9C%9B%EF%BC%81%E5%A4%87%E6%88%98%E6%8C%87%E5%8D%97%E4%BE%9B%E5%A2%99%E5%86%85%E5%90%8C%E8%83%9E%E5%8F%82%E8%80%83-7.png)
-文贵先生和爆料革命的战友们多次呼吁，能跑出来的赶紧跑，实在不行，找相对安全的地方，远离危险地，生存下来。等待新中国联邦和世界正义力量的救援。切记！活着，就有希望！
-
-未来将陆续发布求生讯息。敬请关注！
-
-信息及图片源于（G-TALENT技术社区求生公告)
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
+中共的“老朋友”，號稱“一本《毛選》定天下”的現任總統穆塞韋尼從1986年當選後一直連任至今，爲幫助穆塞韋尼連任，遏制反對派的集會示威遊行，中共有動機使用假疫苗定向放出真病毒，以達到其邪惡目的。與操控美國大選如出一轍！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06210554/image0-26.jpg)
 0

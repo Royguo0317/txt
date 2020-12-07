@@ -1,34 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】未来针对中共的斩首行动：美军的炸弹之母已经准备好了
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/623749/)
+## 【热点播报】活着，就有希望！备战指南供墙内同胞参考
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/623795/)
 
-作者：香草山写作组 直截了当
+作者：香草山写作组 Daxia
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
 
 
 
-作者：香草山写作组 直截了当
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06201946/MOS0634-%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91%E6%9C%AA%E6%9D%A5%E9%92%88%E5%AF%B9%E4%B8%AD%E5%85%B1%E7%9A%84%E6%96%A9%E9%A6%96%E8%A1%8C%E5%8A%A8%EF%BC%9A%E7%BE%8E%E5%86%9B%E7%9A%84%E7%82%B8%E5%BC%B9%E4%B9%8B%E6%AF%8D%E5%B7%B2%E7%BB%8F%E5%87%86%E5%A4%87%E5%A5%BD%E4%BA%86-2-rotated.jpg)美国埃格林空军博物馆门口展览的“炸弹之母”MOAB
-近日，郭文贵先生与路德访谈多次预告美军接下来的对中共的一系列军事打击，尤其是斩首行动。直播中，文贵先生提到了美国的一个绰号为“炸弹之母” 武器，全名GBU-43/B巨型空爆炸弹。
+热战一触即发！大难来临前，希望墙内的同胞做好一切准备，保护自己及家人。以下是备战指南，供参考。
 
-GBU-43/B巨型空爆炸弹，英文全称Massive Ordnance Air Blast (缩写MOAB)。因为与Mother of All Bombs的首字母缩写相同，故而获得绰号 “炸弹之母”。炸弹之母的名号可谓实至名归，因为其是美国武器库里最强大的常规炸弹之一，爆炸当量甚至可与最小的战术核武器相媲美。数据显示MOAB重约21,600 lb (9,800 kg)，装有18,700 lb (8,500 kg) H-6炸药，相当于约11吨TNT。据国家评论报道，该炸弹可以摧毁距离爆炸点1000英尺（约300米）的绝大部分物体。同时，它使用了先进的KMU-593/B GP/INS制导系统，可以精确的定点打击目标。
+1，短波收音机，保证接收外界信息。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06204618/MOS0635-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E6%B4%BB%E7%9D%80%E5%B0%B1%E6%9C%89%E5%B8%8C%E6%9C%9B%EF%BC%81%E5%A4%87%E6%88%98%E6%8C%87%E5%8D%97%E4%BE%9B%E5%A2%99%E5%86%85%E5%90%8C%E8%83%9E%E5%8F%82%E8%80%83-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06204525/MOS0635-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E6%B4%BB%E7%9D%80%E5%B0%B1%E6%9C%89%E5%B8%8C%E6%9C%9B%EF%BC%81%E5%A4%87%E6%88%98%E6%8C%87%E5%8D%97%E4%BE%9B%E5%A2%99%E5%86%85%E5%90%8C%E8%83%9E%E5%8F%82%E8%80%83-2.png)
+2，保证充足食物、饮水、照明等生活物资。具体数量按成员人数调整。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06204656/MOS0635-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E6%B4%BB%E7%9D%80%E5%B0%B1%E6%9C%89%E5%B8%8C%E6%9C%9B%EF%BC%81%E5%A4%87%E6%88%98%E6%8C%87%E5%8D%97%E4%BE%9B%E5%A2%99%E5%86%85%E5%90%8C%E8%83%9E%E5%8F%82%E8%80%83-3.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06204832/MOS0635-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E6%B4%BB%E7%9D%80%E5%B0%B1%E6%9C%89%E5%B8%8C%E6%9C%9B%EF%BC%81%E5%A4%87%E6%88%98%E6%8C%87%E5%8D%97%E4%BE%9B%E5%A2%99%E5%86%85%E5%90%8C%E8%83%9E%E5%8F%82%E8%80%83-4.png)
+![]()
+3，了解中共国的核电分布情况，及时撤离。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06204820/MOS0635-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E6%B4%BB%E7%9D%80%E5%B0%B1%E6%9C%89%E5%B8%8C%E6%9C%9B%EF%BC%81%E5%A4%87%E6%88%98%E6%8C%87%E5%8D%97%E4%BE%9B%E5%A2%99%E5%86%85%E5%90%8C%E8%83%9E%E5%8F%82%E8%80%83-5.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06204910/MOS0635-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E6%B4%BB%E7%9D%80%E5%B0%B1%E6%9C%89%E5%B8%8C%E6%9C%9B%EF%BC%81%E5%A4%87%E6%88%98%E6%8C%87%E5%8D%97%E4%BE%9B%E5%A2%99%E5%86%85%E5%90%8C%E8%83%9E%E5%8F%82%E8%80%83-6.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06205138/MOS0635-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E6%B4%BB%E7%9D%80%E5%B0%B1%E6%9C%89%E5%B8%8C%E6%9C%9B%EF%BC%81%E5%A4%87%E6%88%98%E6%8C%87%E5%8D%97%E4%BE%9B%E5%A2%99%E5%86%85%E5%90%8C%E8%83%9E%E5%8F%82%E8%80%83-7.png)
+文贵先生和爆料革命的战友们多次呼吁，能跑出来的赶紧跑，实在不行，找相对安全的地方，远离危险地，生存下来。等待新中国联邦和世界正义力量的救援。切记！活着，就有希望！
 
-2017年4月，炸弹之母首次在阿富汗被美军用于实战。美国防部称，13日美国空军MC-130运输机在阿富汗东部阿钦地区投下了一枚MOAB。据CNN等媒体报道，爆炸摧毁了3个地下通道以及武器弹药，造成了至少96名ISIS战斗人员的死亡，无一个平民伤亡。
+未来将陆续发布求生讯息。敬请关注！
 
-估计中南坑的领导们已如坐针毡。他们也明白，一旦美军决定对他们下手，美国很可能第一时间针对中南坑，以及中共重要军事基地进行斩首行动。如下图显示，只要数枚炸弹之母就可以将中南坑夷为平地。同时，美军还拥有各种精确的斩首武器，例如斩首苏莱曼尼的AGM-114 地狱火导弹，以及带GPS精确制导的巨型钻地弹GBU-57。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06201625/MOS0634-%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91%E6%9C%AA%E6%9D%A5%E9%92%88%E5%AF%B9%E4%B8%AD%E5%85%B1%E7%9A%84%E6%96%A9%E9%A6%96%E8%A1%8C%E5%8A%A8%EF%BC%9A%E7%BE%8E%E5%86%9B%E7%9A%84%E7%82%B8%E5%BC%B9%E4%B9%8B%E6%AF%8D%E5%B7%B2%E7%BB%8F%E5%87%86%E5%A4%87%E5%A5%BD%E4%BA%86-2.png)红色圆圈显示了炸弹之母的爆炸范围
-提醒墙内的战友，一定要注意自己与家人的安全，尽量远离中南坑以及重要的军事设施。虽然美军的导弹拥有精确制导，但是大规模战争总是难免会造成一些平民伤亡。
-
-参考链接：
-
-[http://www.afarmamentmuseum.com/details-gbu43.html](http://www.afarmamentmuseum.com/details-gbu43.html)
-
-[https://www.nationalreview.com/2017/05/moab-mother-all-bombs-afghanistan-use-analysis/](https://www.nationalreview.com/2017/05/moab-mother-all-bombs-afghanistan-use-analysis/)
-
-[https://www.cnn.com/2017/04/15/asia/afghanistan-isis-moab-strike/index.html](https://www.cnn.com/2017/04/15/asia/afghanistan-isis-moab-strike/index.html)
+信息及图片源于（G-TALENT技术社区求生公告)
 
 
 
