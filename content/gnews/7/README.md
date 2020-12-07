@@ -1,31 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】乔治亚州大选上诉最新进展：要求进行特殊调查！
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/623926/)
+## 接种新冠疫苗可能导致不育
+` GM99` [轉載自GNews](https://gnews.org/zh-hans/623946/)
 
-作者：香草山写作组 正义的小新
+#### **翻译评论：billwilliam**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06214410/Cover-4.png)
 
+日前，Zerohedge援引德国媒体2020 News的报道说两位科学家致函欧盟药品管理局，要求立即暂停对中共病毒的疫苗开发。这两人分别是前辉瑞副总兼科技主管Michael Yeadon博士和德国呼吸科专家兼议员Wolfgang Wodarg博士。两位科学家说疫苗研发“应该暂停，直到有研究能解决一系列严重安全担忧”。他们例举了如下几个安全风险：
 
+1. 目前的PCR核酸检测不准确，不可能准确确定疾病风险或疫苗的有效性，“因此人体实验测试疫苗是不道德的“。建议使用病毒基因测序的方法。
 
-周日，鲍威尔律师发推，提出乔治亚州众议院要求进行特殊调查。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06214241/MOS0638-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E4%B9%94%E6%B2%BB%E4%BA%9A%E5%B7%9E%E5%A4%A7%E9%80%89%E4%B8%8A%E8%AF%89%E6%9C%80%E6%96%B0%E8%BF%9B%E5%B1%95%EF%BC%9A%E8%A6%81%E6%B1%82%E8%BF%9B%E8%A1%8C%E7%89%B9%E6%AE%8A%E8%B0%83%E6%9F%A5%EF%BC%81-1.png)
-据悉，乔治亚众议员联合起草动议，要求启动特殊调查。动议指出，根据宪法第二条，在紧急状态下，乔治亚州长及州务卿有义务全面启动特殊调查。
+2. 抗体介导的病毒增强（ADE）也是一个原因。非中和性抗体可能导致免疫系统过激反应。接种过中共病毒疫苗的人之后再接触中共病毒，不但没有免疫，反而病情更重。过去曾有给猫接种冠状病毒疫苗（可能不是新冠）的例子，开始能耐受疫苗的猫在感染病毒后全部死亡。
 
-动议中提到乔治亚州海量的大选舞弊证据，例如，没有被记录的人投了票，用了虚假地址的邮寄选票被记录在内，死人也参与投票并被记录在内，等等。计票也没有在观察员的监视下进行。这些都是对法律的蔑视。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06214230/MOS0638-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E4%B9%94%E6%B2%BB%E4%BA%9A%E5%B7%9E%E5%A4%A7%E9%80%89%E4%B8%8A%E8%AF%89%E6%9C%80%E6%96%B0%E8%BF%9B%E5%B1%95%EF%BC%9A%E8%A6%81%E6%B1%82%E8%BF%9B%E8%A1%8C%E7%89%B9%E6%AE%8A%E8%B0%83%E6%9F%A5%EF%BC%81-2.jpg)
-选举委员会成员表示，这些证据只是冰山一角，更多的证据还在源源不断地被发现，被提交。基于全州的选举系统性的舞弊，乔治亚州长或州务卿认证的选举人不符合由乔治亚州众议院颁布的乔治亚州选举法。因此，参考最高法院对于“布什和戈尔”选举的裁决（Bush v. Gore, 531 U.S. 98 at 104），乔治亚州立法机构有权收回对选举人的任免。
+3. 中共病毒的触手蛋白与人体的胎盘融合蛋白（Syncytin）结构相似，免疫系统不好区分，那么产生的抗体有可能攻击正常的胎盘融合蛋白，这个蛋白对于人类胎盘的形成起关键作用。报告说，“必须绝对排除新冠疫苗不会对胎盘融合蛋白诱发免疫反应，否则会导致接种疫苗的妇女无限期不育”。
 
-乔治亚州议员Burt 表示，“我们有足够的证据表明这次的大选结果不可信。是时候该我们国家的法律部门行动了。”
+4. 一些公司生产的mRNA疫苗含有聚乙烯二醇（PEG），70%的人会对这种化学物质产生抗体，诱发严重过敏反应。
 
+5. 目前疫苗研发的时间过短，不足以评估长期的副作用。举例来说，接种猪流感疫苗后就曾出现嗜睡症（narcolepsy）。
 
+**点评：**
+大家听路德节目都知道ADE，劣质的疫苗可能反而会导致或加重病情。关于中共病毒对人体的危害，目前很多方面尚不清楚，盲目的打疫苗不一定有好处，特别是短时间内赶工做出来的疫苗没有考虑到副作用。对于疫苗导致妇女不育的可能性，这个尚不确定，不过大家不要冒这个风险。不知道这个特点是不是中共故意设计的，如果是故意的，就太邪恶了。难道疫苗战要让全人类都丧失生育能力吗？
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+**原文链接：**[Ex-Pfizer Exec Demands EU Halt COVID-19 Vaccine Studies Over ‘Indefinite Infertility’ And Other Health Concerns](https://www.zerohedge.com/medical/ex-pfizer-exec-demands-eu-halt-covid-19-vaccine-studies-over-indefinite-infertility-and)
 
 0
