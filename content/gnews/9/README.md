@@ -1,39 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国对从事胁迫性影响活动的中共国官员实施制裁
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/625723/)
+## 《路德时评》解析：美国安委将对委内瑞拉有所行动；中共军报再批四名“军虎”
+` GM127` [轉載自GNews](https://gnews.org/zh-hans/626168/)
 
-*新闻来源：美国国务院（the US Department of State）*; *作者：新闻公报*(*PRESS STATEMENT); 发布日期：2020年12月5日15:30；*
+《路德时评》2020年12月7日早间节目主要内容：路德社解析美国安委暗示将对委内瑞拉有所行动；中共军报再批四名“军虎”。
 
-*翻译/简评：Bob1203(文虓); 校对：感恩; 审核：万人往; PAGE：玄天生*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07110630/22-3.jpg)
-#### **简评：**
+一、美国安委暗示将对委内瑞拉有所行动
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07154651/Lude_20201207_AM-figure0.jpg)[图片来源](https://www.whitehouse.gov/wp-content/uploads/2018/09/Photo-Release-of-President-Donald-J.-Trump-and-Vice-President-Mike-Pence-Meeting-with-the-National-Security-Council-Resilience-Directorate.jpg)
+美国国家安全委员会（NSC）[1] 发推：“从12月7日至12月12日，我们鼓励委内瑞拉境内外的委内瑞拉人拒绝该政权的欺诈性立法选举，并通过 Consulta Popular 帮助恢复民主。“由临时总统胡安·瓜伊多（Juan Guaidó）领导的 Consulta Popular 正在委内瑞拉人民发出声音。美国将继续支持委内瑞拉的合法政治活动。自由公正的选举是民主的基础。非法的马杜罗政权通过明天举行欺诈性议会选举继续颠覆民主。” —— 国家安全局 Robert C. O’Brien[2]
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07153301/Lude_20201207_AM-figure1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07153314/Lude_20201207_AM-figure2.png)[图片来源](https://www.apple.com)
+路德社评论如下：
 
-日前，美国国务卿迈克尔·R·彭佩奥(MICHAEL R. POMPEO)根据移民和国籍法案第212条(a) (3) (C)内容，对中共国和中共官员以及中共统战部的相关个人实行签证限制，目的是进一步限制中共国在美国的“大外宣”活动，并阻止其恐吓威胁在美的个人或团体的邪恶行为。结合前几天美国将中海油、中芯国际等多家企业列入制裁名单来看，美国灭共的实际行动已经开始，灭共的大锤越来越有力量！中共离灭亡的时间越来越近了！
+1. 背景：2019年1月瓜伊多站出来指认马杜罗选举造假，随后美国立即宣布不承认马杜罗政府，现在是国家安全委员会发文鼓励委内瑞拉恢复民主；
+2. 美国国家安全委员会说在12月7至12日，美国将用合法的方式让马杜罗政权消失；
+3. 瓜伊多如果上台，他会立马展示马杜罗干扰大选，以及中共与马杜罗政权勾兑的证据，这将是重磅新闻；
+4. **美国对委内瑞拉采取行动的最重要目的就是针对中共，****12****日之前将有很多重磅实锤**；
+5. 美国安全委员会对总统采取行动起到至关重要的作用，委员会内部已通过对委内瑞拉采取行动的计划，就等待川普总统下令采取行动；
 
-#### 原文翻译
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07153336/Lude_20201207_AM-coverphoto.jpeg)
+1. 班农先生推出川普总统就是要重振共和党，重新规划美国的体制，最终**共和党和民主党都可能被打掉，倾向社会主义的民主党将彻底结束，川普总统将成立新的党派**，从共和党中分出来，美国的制度将在此重新规划，不可能走社会主义道路；
+2. 川普总统之所以要去总统山，在林肯纪念堂发表演讲，他就是要重新改革美国制度，让每个州进入真正的两党制，使美国再次伟大；
+3. 川普总统和爆料革命的出世就是要全面改变世界的政治生态，重新创造历史；
+4. 美国民意已经证实川普总统的出色政绩，各大利益集团现在也已经彻底醒悟，今天国家安全委员会发此推特表态，那接下来就等具体行动；
+5. 美国第一步是**直接拿下委内瑞拉，接着就是中共，对待伊朗只是采取斩首行动，对待俄罗斯是拉拢政策**。
 
-#### 
 
-# 美国对从事胁迫性影响活动的中共国官员实施制裁
+二、中共军报再批四名“军虎”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07153325/Lude_20201207_AM-figure3.png)[图片来源](https://news.sina.com.cn/c/2020-12-06/doc-iiznctke5118328.shtml)
+12月3日，解放军报刊发了《在党的旗帜下铸牢军魂》的文章。文中再度提到了郭、徐、房、张四个“军队老虎”。《解放军报》在上述文章中提到，全军坚持把思想政治建设摆在首位：全军坚决抵制敌对势力“颜色革命”暗流，坚决抵制“军队非党化、非政治化”和“军队国家化”等错误政治观点，坚决抵制歪曲我党我军历史、抹黑革命先烈和英雄人物的错误言论，牢牢把握意识形态斗争主动权[3]。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07160059/Lude_20201207_AM-figure4.png)
+路德社评论：
 
-*新闻公报*/ *美国国务卿迈克尔·R·彭佩奥*/ *2020年12月4日*
+1. 中共已经意识到美国下一步要对他们采取行动；
+2. 中共也意识到爆料革命深度渗透到中共内部，中共军队已经在失控的边缘，习要紧抓军队政治思想；
+3. 习内心非常清楚此时要牢抓军队思想建设，这恰恰说明军心的涣散；
+4. 美国国家机器已经开启，中共必死无疑；
 
-中国共产党(CCP)长期以来一直寻求传播马列主义意识形态，并在全世界发挥其影响力。中共统战部资助和支持海外组织进行“大外宣”（活动），并威吓和霸凌那些反对北京政策的人。“统一战线”经常恐吓学术界、商界、民间社会团体和海外华人社区的成员，包括公然反对在新疆、西藏和中国其他地方发生的骇人听闻的侵犯人权行为的少数民族和宗教团体成员。其强制性手段是针对那些被视为反对中共利益的个人。这些手段包括在网上发布目标对象甚至是其家庭成员的个人详细信息（“晒私人资料”），以此作为政治恐吓。
 
-今天,根据移民和国籍法案第212条(a) (3) (C)，我行使我的权力，对中共国和中共官员以及积极参加统战部活动的个人实行签证限制，他们曾使用或威胁使用身体暴力、盗窃和发布私人信息、间谍活动、蓄意破坏或恶意干扰（美国）国内政治事务、学术自由、个人隐私或商业活动。这些邪恶的活动旨在拉拢和胁迫美国和其他国家的地方领导人、海外华人社区、学术界和其他公民社会团体，以促进中国共产党的威权体系和政策倾向。我将继续实施这样的签证限制，以明确那些违反基于规则的国际秩序的行为在美国是不受欢迎的。
+**未来路德社将展示中共内部军事据点具体位置，提醒战友们提前搬离，以免误伤！**
 
-美国呼吁中共国停止使用胁迫和恐吓手段来压制言论自由。美国将继续审查其权限以回应这些关切。
+参考文章：
 
-[原文链接](https://www.state.gov/u-s-imposes-sanctions-on-peoples-republic-of-china-officials-engaged-in-coercive-influence-activities/)
+[1] [https://www.whitehouse.gov/nsc/](https://www.whitehouse.gov/nsc/)
 
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+[2] [https://twitter.com/WHNSC](https://twitter.com/WHNSC)
 
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+[3] [https://news.sina.com.cn/c/2020-12-06/doc-iiznctke5118328.shtml](https://news.sina.com.cn/c/2020-12-06/doc-iiznctke5118328.shtml)
 
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/8SRQBYSOHWbQi/)
-[!\[\]()!\[\](https://spark.adobe.com/page/8SRQBYSOHWbQi/images/38bc9b55-73e1-4f99-b2a6-cc230703e859.jpg?asset_id=01b70e3f-74b8-43e7-aaae-5cab24b1decc&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/8SRQBYSOHWbQi/images/38bc9b55-73e1-4f99-b2a6-cc230703e859.jpg?asset_id=01b70e3f-74b8-43e7-aaae-5cab24b1decc&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-0
+文章撰写：【重生】    编辑：【Isaiah4031】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22111053/VOG-Rose-Garden-Team.png)
+1+

@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/07/2020 要闻同传⎢朱利安尼快讯+OAN要闻合集+川普总统推荐福克斯周日晚间节目
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/625756/)
+## 【字幕】12/07/2020文贵盖特：为朱利安尼先生的祈祷，他现在恢复非常好
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/626084/)
 
-By: 【秘密翻译组G-Translators】
+制作： 【彩虹桥】
 
-1+
+0

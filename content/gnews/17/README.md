@@ -1,29 +1,79 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12月7日美国国家珍珠港纪念日，美国因中共病毒累计死亡28.2万人，珍珠港事件死亡2403人
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/625742/)
+## 美国务院取消中共提供的实质为统战的免费旅行计划
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/626039/)
 
-- 编辑：Victor Torres
-- 作者：Victor Torres
+*新闻来源：华盛顿时报(Washington Times)｜作者：[比尔·格茨](https://www.washingtontimes.com/staff/bill-gertz/)（[Bill Gertz](https://www.washingtontimes.com/staff/bill-gertz/)）；*
 
+*翻译、简评： MikeHua｜校对、审核：TCC｜PAGE：玄天生；*
 
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+**简评：**
 
-**西班牙2020年12月7日电/西喜社/**——川普总统近日宣布，2020年12月7日为国家珍珠港纪念日。 他鼓励所有美国人遵守这一庄严的纪念日，并以适当的仪式和活动来纪念美国过去和现在的军队。 敦促所有联邦机构以及有意愿的组织，团体和个人以半旗方式高举美国国旗，纪念因在珍珠港服务而丧生的美国爱国者。
+美国在选举结果近乎被盗走之后，清楚的认识到了共产党对他们的生死威胁。共产党已经不是那个可控的奴隶主，而是要杀掉美国称霸全球的恶魔。我们的战友彭培奥先生很清楚的区分了中共的工作人员和中国人民，但是美国有多少人能有彭培奥先生这样清楚的认识？这次美国因为选举被操纵而做出的自卫反击行动会有多大？这没人能控制得住，而且更没人控制得住的是中共能有多疯狂。现在再看这些文化交流项目，统战工作都已经是小儿科，这些新闻放在一年前两年前都是重磅实锤”红领带”级别的大事，现在只值得嘴上一提。美国已经觉醒，我们战友做好准备，这次是中国人民真正获得自由的世纪之战，奠定21世纪上半叶基础的历史大事件，给我们的机遇越大，相对的挑战也越大。
 
-根据经修正的第103-308号公法，国会已将每年的12月7日指定为“国家珍珠港纪念日”。
+***原文翻译***
 
-1941年12月7日上午，日军在夏威夷瓦胡岛上伏击了海军驻地珍珠港。 2403名美国人在袭击中不幸丧生，其中包括68名平民。
+## 美国务院取消由中共出资对国会议员的招待
 
-截止今天，美国的中共病毒病例数是1480万，死亡28.2万人。中共发起的生物病毒武器突袭已经对美国造成了百倍，千倍于珍珠港事件的损害。
+[!\[\]()!\[\](https://spark.adobe.com/page/aS35KC8tMNnAm/images/0b2a05bd-b60e-43cb-a3f7-69e14e8aae98.jpg?asset_id=c936090b-9271-44ba-860f-5883c32c65fa&amp;img_etag=%229d5795301c259ac92b667cc302bad7c2%22&amp;size=1024)](https://spark.adobe.com/page/aS35KC8tMNnAm/images/0b2a05bd-b60e-43cb-a3f7-69e14e8aae98.jpg?asset_id=c936090b-9271-44ba-860f-5883c32c65fa&amp;img_etag=%229d5795301c259ac92b667cc302bad7c2%22&amp;size=1024)*在此图片中，国务卿彭培奥正在咛听以色列外交部长加比·艾希肯纳齐 (Gabi Ashkenazi)在以色列控制的以色列-叙利亚边境戈兰高地上的本塔尔山 (Mount Bental)的安全简报之后进行的讲话。摄于2020年11月19日，周四，美联社Patrick Semansky摄。*
 
-美国人不会沉默，他们将再次起来战斗，像二战时击败日本和德国法西斯一样，他们将战胜邪恶的中共，为美国人民，中国人民，以及全人类赢得安全的未来。
+美国务院在周五取消了五项长期的由北京全额资助旅费给国会员工到中共国旅行的文化交流项目。
 
-**新闻来源：**[https://www.whitehouse.gov/presidential-actions/proclamation-national-pearl-harbor-remembrance-day-2020/](https://www.whitehouse.gov/presidential-actions/proclamation-national-pearl-harbor-remembrance-day-2020/)
+该项目由1961年促进教育与文化交流法案（Mutual Educational and Cultural Exchange Act，MECEA）授权，项目被国务卿彭培奥叫停以对抗中国共产党领导的北京所隐秘地进行的“统战工作。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14162240/image0-2-6.jpg)
+取消的通知被作为外交照会送给中共国驻华盛顿大使馆。没有中共国大使馆人员并未予置评。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+官员指出该项目因美国的国家安全威胁被终止，因为中共国旨在影响国会议员让他们成为亲共的大外宣传机器的一部分。
 
-0
+[!\[\]()!\[\](https://spark.adobe.com/page/aS35KC8tMNnAm/images/6e5b5220-f840-4b78-82e4-52dac16a5b80.jpg?asset_id=e919f6ef-c02e-4adf-bc94-f8141a8d5f7e&amp;img_etag=%22f13d86a8a58a1d58b8e80eb04dabd366%22&amp;size=1024)](https://spark.adobe.com/page/aS35KC8tMNnAm/images/6e5b5220-f840-4b78-82e4-52dac16a5b80.jpg?asset_id=e919f6ef-c02e-4adf-bc94-f8141a8d5f7e&amp;img_etag=%22f13d86a8a58a1d58b8e80eb04dabd366%22&amp;size=1024)
+
+中共国的游说工作包含试图阻止他们不喜欢的政策通过，例如对台军售，还有推进美国亲共政策。中共国在过去利用类似的交换项目雇佣访美的核物理学家做间谍。
+
+国家情报总监约翰·拉特克里夫（John Ratcliffe）在本周表示中共政府已经发起了“大规模的影响运动”旨在影响几十名国会议员和议员的秘书。他没有详说。
+
+另外，彭培奥先生在周五宣布国务院正对中共官员采取新的签证限制，包括那些在统战部工作的人。
+
+彭培奥先生在一次演讲中说，中共“长期以来在全球利用他们的影响力传播马克思列宁主义思想。” “中国共产党的统战部资助并且支持海外组织传播马克思主义，并且霸凌那些反对北京的政策。”
+
+这周五开始生效，国务院注销了受中共立法机构的中共人民代表大会外事委员和中共外交部资助的五项文化交流项目的许可。实际上，美国官员说，该项目是中共共产党隐秘性针对国会议员的统战工作。”
+
+北京资助的旅行计划由MECEA法案108条款授权。该条款允许联邦雇员，包括议员和法官，在许可下进行由中共政府资助的文化交流旅行。
+
+国务院继续支持作为外交任务一部分的人员交换。但是国务院说他们希望互惠和透明的和中共国的文化交流项目，该项目由国务院教育文化事务办公室处理的。
+
+一名熟悉此项取消决定的川普行政团队官员说，这些交换项目在被检查后发现存在虚假文化交换行为。这五项计划—四项去中共大陆一项去香港—被利用为中共涉及全球，上百万美元的影响他国的行动。
+
+这项目被终止也是因为美国不能选择或监督被允许到中共国旅行的官员，他们去哪里和他们见什么人。对此事缺少监督被视为重大国家安全威胁。
+
+这次取消应该会令一些希望通过这些以交换项目促进中美关系的议员失望。
+
+但是众议院外事委员会共和党高级议员和国会中共国委员会主席的德州众议员麦克·麦克考 (Michael McCaul)赞扬了此次取消项目。
+
+他说，“我赞成取消这些到中共国的旅行，因为中共国在美国持续进行针对国会议员和雇员的间谍和影响活动。”
+
+“我认为，这些旅行利用教育和文化交流為借口，实质上是为了一个更大的邪恶行动。美国政府不应该允许一個到我们对立国家的文化交流旅行。”
+
+众议院议长佩罗西和参议员领袖麦康奈尔没有回复要求我们要求置评的邮件。
+
+彭培奥先生说此统战部已被利用于学术人员，商人和民间协会，以及在海外发声谴责类似新疆和西藏的华人社群的威胁伎俩。
+
+统战使用了“公开记录”—或说释放他们所针对的群体或个人信息—作为他们政治威胁的手段。
+
+自周五起，新的签证限制将会阻止中共政府人员，共产党员和与统战工作官员入境美国;这些人与暴力威胁，窃取和公开个人信息，间谍活动，对美国政治事务有关的破坏或恶行。这些威胁学术自由，个人隐私安全或生意活动的人也会被限制入境。
+
+彭培奥先生说， “这些恶意行径旨在美国和各国收买和压迫的次国家级领导人，海外华人群体，学术人员和其他民间社团以促进[中共国]的威权主义说词和政策偏好。” “我会继续实行这样的签证限制以确保那些违反法治作为基础的国际公约的人在美国是不受欢迎的。”
+
+[新闻链接](https://webcache.googleusercontent.com/search?q=cache:IyIjVeZVAFEJ:https://www.washingtontimes.com/news/2020/dec/4/state-department-cancels-china-paid-junkets-congre/+&amp;cd=1&amp;hl=zh-CN&amp;ct=clnk&amp;gl=uk)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/aS35KC8tMNnAm/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/aS35KC8tMNnAm/images/3505b003-a503-417e-8ae0-15217719cc9e.jpg?asset_id=e66e8fe5-ae6b-4c66-b421-12caa73b3225&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/aS35KC8tMNnAm/images/3505b003-a503-417e-8ae0-15217719cc9e.jpg?asset_id=e66e8fe5-ae6b-4c66-b421-12caa73b3225&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
+1+
