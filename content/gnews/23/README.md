@@ -1,30 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 脸书删除黑人女共和党人对腐败的密歇根州务卿提出指控的视频
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/623794/)
+## 密歇根州展开大选数据争夺战
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/623867/)
 
-多伦多枫叶农场（原加喜农场）阿黎
-校对 文锦 上传 云起时
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06204518/rock-the-vote.png)图片来源：Rock the Vote
-据《门户专家》（The Gateway Pundit ）12月6日报道密歇根州共和党活动人士，克里斯蒂娜·卡拉莫项目主持人克里斯蒂娜·卡拉莫（Kristina Karamo），29年州务卿选举诚信联络人琳达·李·塔佛（Linda Lee Tarver）博士，以及安吉利·约翰逊（Angelic Johnson），特意前往密歇根州兰辛市通知密歇根州民主党州务卿乔斯林·本森（Jocelyn Benson），她们已对他提起诉讼。
+草原三省战友之家 文莱
 
-琳达·李·塔弗博士和安吉丽克·约翰逊做为原告，起诉密歇根州务卿乔斯林·本森泄露密歇根州居民私人信息，本森将密歇根州居民的私人信息，包括社会安全号、出生日期、地址，甚至眼睛的颜色，给了Rock The Vote。
+校对 鹰嘴逗逗  上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06211610/D-1.jpg)图片来自 NBC News
+据DR新闻日前披露，密歇根州（Michigan）选举委员会下令县级职员从政府计算机中删除与选举有关的数据。事发在12月1日，民主党州务卿乔塞琳·本森（Jocelyn Benson）主导下的选举委员会向所有职员发出一份备忘录，事关重新计票和清空投票设备。备忘录中写到，除非进行了重新计票且尚未完成重新计票，或选举后的审计在进行中，或法院或州务卿下令保留的数据，否则必须在最终选举和选举证明（2020年11月30日）之后的第七日之前，删除所有设备中EPB软件和相关文件。
 
-卡拉莫三人就此拍摄了一个视频，并将视频发布在脸书叫做“百分百愤怒”（《100% Fed Up》）的节目上。脸书很快将此视频删除，因此《100% Fed Up》节目把它放到了YouTube上。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06205126/facebook1.png)图片来源：Youtube
-那么Rock The Vote 是一个什么样的组织呢？虽然Rock The Vote声称自己是一个 “值得信赖和有效的无党派 “组织，但它在很大程度上是支持左派的。
+这激起了州代表马特·霍尔（Matt Hall，R）和参议院州代表埃德·麦克布鲁姆（Ed McBroom，R）的愤怒，他们是监督选举委员会的主席。他们表示该备忘录违反了先前保留选举数据的命令，命令是由众议院议长李·查特菲尔德（Lee Chatfield，R）和参议院多数党领袖迈克·希尔基（Mike Shirkey，R）发出。
 
-2016年希拉里·克林顿在总统大选中失利后，Rock The Vote的主席卡罗琳·德威特曾发表声明，声称美国 “正在朝着激进的方向前行”，他将选举结果归咎于 “陈旧而混乱的选举法”、压制选民以及 “整体政治”。 2019年，Rock the Vote散发了一份请愿书，支持废除选举人票制，改用普选制。
+希尔基和查特菲尔德在11月6日发布的此项命令，霍尔表示，“命令明确说到，底特律市（Detroit）市职员和选举委员会办公室接到命令要保存相关资料，包括相关的电子信息。命令还要求保留从11月3-5日在底特律TCF中心拍摄的所有监视录像。” 霍尔补充道，“我们的工作是恢复对选举过程的信心。当立法机关在调查所发生的事情时，我们要确保获得相关和必要的信息；在调查和诉讼仍在进行时，确保信息完好无缺。”
 
-2009年，Rock The Vote发起了一场多媒体活动，重点支持奥巴马政府颁布的新医保政策-Obama Care，包括一则30秒的电视广告，邀请名人鼓励年轻人 “现在就要求医保”。该广告意在教育年轻选民了解医保改革。配合这则广告，该活动鼓励人们通过签署 “Yes We Care “来要求通过Obama Care。
+就在接到保存证据的命令之后，这份备忘录仍然要求删除大选信息！霍尔和麦克布鲁姆重申必须“立即明确”执行查特菲尔德和希尔基的命令，保存选举数据！监督委员会在本周举行了长时间的听证会，并收集了选举工作人员和观察员的证词，他们证实，底特律TCF中心点票违反了法律、规则和程序。
 
-根据Rock The Vote 的高级职员和董事会成员的身份，卡拉莫三位共和党女士很容易发现密歇根州州务卿乔斯林·本森为了影响密歇根州的选举结果，把所有密歇根州登记选民的社会安全号、地址和其他个人信息给了谁。
+简评：
 
-根据卡拉莫在视频中所说，密歇根州有十几万张非法邮寄选票，选票上的选举人信息是哪里来的呢？选票上的签名经过验证了吗？州务卿把选民信息给了Rock The Vote，这些信息是否被用在这十几万张非法选票上了呢？
+美国败类在大选中的疯狂导致了法律战场的开战， 且愈演愈烈。底特律市的爱国者们挺身而出，维护美国法则。沼泽地用各种手段阻扰正义一方的公正调查，这将激怒更多的爱国者。
 
-脸书删掉了三位黑人女性对权力说不的视频，我们可以说脸书是种族歧视吗？似乎没有多少这样的声音在主流媒体上传播。如果是三个黑人女性民主党人站出来指控腐共和党人腐败，脸书肯定会大张旗鼓地加以放大和宣传，而且这样的新闻会瞬时间传遍CNN、 NBC、 ABC、CBS、BBC和FOX等主流媒体。
+进入12月，正邪终极大战正式开打，一边是爆料革命和美国爱国者们，一边是中共红龙和沼泽妖孽势力。斩红龙，除妖孽，让美国再次伟大！
 
-[原文链接](https://www.thegatewaypundit.com/2020/12/three-brave-black-female-republicans-file-charges-corrupt-michigan-secretary-state-facebook-censors-silences/?utm_source=Twitter&amp;utm_campaign=websitesharingbuttons)
+新闻链接：http://dailyrednews.com/destruction-of-evidence-michigan-board-of-elections-orders-county-clerks-to-delete-election-related-data-from-government-computers/
 
 0

@@ -1,47 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【亚利桑那州听证会】朱利安尼市长振聋发聩的讲话
-` GM127` [轉載自GNews](https://gnews.org/zh-hans/623892/)
+## [突发]朱立安尼发推表示感觉很好
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/623900/)
 
-2020年11月30日，由朱利安尼市长带队的川普总统的法律团队参加了亚利桑那州议会在凤凰城举行的公开听证会。会议中朱利安尼市长讲话，例举亚利桑那州大选中的种种违法行为。这是继宾州的葛底斯堡听证会后的第二个重要摇摆州的听证会。
+编辑：Victor Torres
 
-朱利安尼市长在听证会上深刻揭露了美国在“精英”的带领下滑向可怕的社会主义和共产主义的严峻现实，扒下以拜登为例的腐败政客的丑陋外衣，更颂赞了以维护世界正义为己任的伟大的美国，警告世界：美国的毁坏将是整个世界的灾难。
-[视频源](https://www.youtube.com/watch?v=C_i5hrJsDCE)
-讲话节选：
+更多真相，请关注Gtv、Gnews！
 
-“精英们，才是有知识的” —— 哇！难道这听起来不像美国的今天吗？我指的是，那是曾经的俄国，曾经的中国，也是现在的中国，那是曾经的波兰，曾经的保加利亚，曾经的东柏林。老天，我以为我们通过奋斗已赶走了这种思潮，没想到竟然在美国看到了。它就发生在美国。
+**西班牙2020年12月7日电/西喜社/**——朱立安尼周日晚发推说:
 
-从硬盘的揭露开始，证明了拜登家族犯下的大量重大罪行。这些信息被审查，不允许被公开、不允许出现在电视上，也不允许出现在报纸上。我们就是不愿意见到这些事实，甚至即使这些表明数百万美元都去了一个副总统那里，这些钱是来自中国、俄国、乌克兰、罗马尼亚…… 哦，我都记不得那么多的地方。一个副总统坐在他副总统的办公室里变成了一个百万富翁，这是极其不寻常的，但这就是发生了，而他现在还是民主党候选人。
+感谢所有我的朋友和追随者的祈祷和祝福。
+我得到了很好的照顾，感觉很好。
+快速恢复并跟上一切。
 
-当这场选举刚一进入质疑阶段，这些爆料都被掩盖了。他们使用了同样的手法来进行掩盖、掩盖、掩盖。大科技公司、大媒体、歪曲事实的民主党领袖们，以及大型企业正在从现有的体制中获利
-
-他们的愿望不是把美国这个国家利益放在首位，而是不管把美国放在什么位置，只要他们能赚钱就行。我们这个国家可以是第三，可以是第五，只要他们能获利，国家也可以不存在，他们完全不理解这个国家的重要性。
-
-对于，说真的，对于世界的生存有多么重要的意义，世界上没有任何其它国家愿意为了拯救别国人民，而将本国的男人和女人们的生命置于危险中。那样的国家在地球上是不存在的。而我们是这样的国家。如果我们破坏了这个国家的根本属性，这个世界就会处在可怕的时空里。”
-
-【编者按】新中国联邦和爆料革命的弟兄姐妹们祝朱利安尼市长先生早日康复，我们爱您！愿上帝保佑祝朱利安尼市长和家人，上帝保佑美国，上帝保佑新中国联邦。
-
-听写：【V%】听写校对：【BruhM（文山）】翻译：【Cyndi】【柠檬草GraceM】校对：【奔腾的长江】字幕：【奔腾的长江】撰文 & 编辑：【Isaiah4031】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22111053/VOG-Rose-Garden-Team.png)
+朱立安尼周日早些时候被诊断感染了中共病毒。
 
 
-> [Arizona State Legislature Holds Hearing on Election Fraud and Irregularities – Invocation](https://gnews.org/607447/)
-
-
-
-
-
-> [Video From GA Shows Suitcases Filled With Ballots Pulled From Under a Table After Poll Workers Left](https://gnews.org/614878/)
-
-
-
-
-
-> [【Gettysburg Hearing】Remarks by Mayor Giuliani (with Subtitles)](https://gnews.org/602865/)
-
-
-
-
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06213927/Screenshot_20201206-212802_Twitter-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 0

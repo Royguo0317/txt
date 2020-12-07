@@ -1,28 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快报】重庆市永川区吊水洞煤矿未被相关部门立即关闭，致使矿工伤亡
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/624177/)
+## 爆革星评：朱利安尼染疫正在好转
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/623616/)
 
-内新闻：Wenwu 素材：peterwong 校对：雅典娜的圣斗士(沙加)
+多伦多枫叶农场 文星（一号）
 
-据央视新闻12月5日报道，昨日下午5点多，重庆市永川区的吊水洞煤矿又发生事故。24人困于煤矿井中，并在市委市政府的指挥下，经过30小时搜救完毕。结果一人得救，其余遇难。该厂最早在2012年就被公开报道过安全问题引发的人员死亡事故。
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06190200/R.jpg)图片来自 History.com
+川普总统12月6日发推，纽约历史上至今最伟大的市长—朱利安尼先生，经检测中共病毒阳性。他不知疲劳地揭露美国大选的最大腐败，朱利安尼很快就会恢复健康，我们继续战斗！
 
-那么这次事故就可归咎为相关部门思想没有提高，行动不够积极了。当然，矿主对矿工的生命也没有看重，再者矿工的安全并没有和矿主的营业利润有联系。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06235424/image0-28.jpg)图片来自新京报
-据新京报12月6日引用该厂员工陈刚（化名）、张强（化名）的采访报道，该厂于今年8月16日被通知停业整顿。但矿主仍然要求矿工继续为该厂创造收入，并拖欠矿工的工资。在该报道中，该厂曾多次发生由于安全问题和人员操作不规范（收废铁的员工来拆除煤矿设备）而导致的死亡事故。但相关部门并未采取关闭措施，这已是政府不作为。看来在中共国体制下，人命不值钱。
+这一消息牵动了无数正义人士的心。郭先生在G-TV上马上发Getter，也呼吁全球战友为朱利安尼先生祷告。川普总统曾经带领全美国人民一起向上帝祷告，佑护美国人民。祷告的力量是无穷大的。
 
-这次事故被“事故救援指挥部”认为是私营企业自行拆除井下设备引发的一氧化碳超限伤亡事故。而今年3月、4月就已经相继发现该厂存在严重的安全隐患。
+刚刚郭先生直播时，接到朱利安尼先生的信息，这预示着朱利安尼先生正在恢复健康。有神的佑护，中共的任何病毒都不会阻止美国灭共的步伐。祝福朱利安尼先生。
 
-重庆市应急管理局公告显示，4月15日，《重庆市应急管理局、重庆煤矿安全监察局关于2020年一季度全市煤矿瓦斯防治与利用工作情况的通报》中提到，包括吊水洞煤矿在内的多个矿井供电系统管理存在短板，瓦斯超限事故风险大，多个矿井发生无计划停电停风，引起井下大面积高浓度瓦斯超限。
 
-据2019年5月5日中共国应急管理部就《国务院安委会办公室关于做好关闭不具备安全生产条件非煤矿山工作的通知》的解读。该厂属于第一类必须去关闭的重点，相关部门有无可推卸的责任。
 
-在该【通知】最后一段的第四点提到“要严格督促检查，确保完成任务。强化督促指导，定期调度关闭工作进度。对责任落实不到位、工作开展不得力、不能按期完成任务的地区，要及时采取约谈、通报批评等措施督促落实”。这无疑给官商勾结开辟了广阔的剥削“道路”。而这条“道”的代价是工资没有着落的矿工的权力和生命。
+> .[@RudyGiuliani](https://twitter.com/RudyGiuliani?ref_src=twsrc%5Etfw), by far the greatest mayor in the history of NYC, and who has been working tirelessly exposing the most corrupt election (by far!) in the history of the USA, has tested positive for the China Virus. Get better soon Rudy, we will carry on!!!
+> — Donald J. Trump (@realDonaldTrump) [December 6, 2020](https://twitter.com/realDonaldTrump/status/1335679426516881409?ref_src=twsrc%5Etfw)
 
-新闻来源：
-[https://new.qq.com/omn/TWF20201/TWF2020120500752000.html](https://new.qq.com/omn/TWF20201/TWF2020120500752000.html)
-[https://xw.qq.com/cmsid/20201205A0FG1T00](https://xw.qq.com/cmsid/20201205A0FG1T00)
-[https://www.mem.gov.cn/gk/zcjd/201905/t20190505\_257188.shtml](https://www.mem.gov.cn/gk/zcjd/201905/t20190505_257188.shtml)
 
-1+
+
+0

@@ -1,47 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## &#8220;2021年将是灾难性的&#8221;&#8211;联合国警告人道主义危机，2.7亿人可能会挨饿
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/624038/)
+## 中南坑惊恐:伊朗核科学家被使用卫星控制的枪暗杀
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/624101/)
 
-翻译：康州盘古农场 – 烟波浩淼
+- 编辑：Victor Torres
 
-校对：康州盘古农场 – 轰炸机
 
-审核：康州盘古农场 –Truemanman
+***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-虽然2020年可能是创纪录的一年，但联合国发出新的警告，称一场人道主义灾难可能在2021年上演。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06225819/%E5%9B%BE%E7%89%8731.png)
-据RT新闻报道，世界粮食计划署（WFP）负责人大卫·比斯利（David Beasley）周五在联合国大会会议上就病毒大流行的再次出现以及由此引发的人道主义危机发出了警报。
+半官方的梅尔通讯社报道，伊朗核科学家和军事研究员莫森·法赫里扎德（Mohsen Fakhrizadeh）被利用通过卫星链路控制的先进电子设备暗杀。
+迈尔·法赫里扎德（Mohsen Fakhrizadeh）于11月27日在德黑兰郊区发生的枪击和汽车炸弹袭击中丧生，他在首都以东的高速公路上行驶，当时武器“利用人工智能”“锁定”了他。
+上周，伊朗最高国家安全委员会秘书阿里·沙姆卡尼（Ali Shamkhani）表示，伏击中使用了遥控武器，这夺走了科学家的生命。 行动“非常复杂”，攻击时不需要人员在现场。
+伊朗官员指责以色列策划了法赫里扎德的暗杀活动。 伊朗媒体报道说，从现场回收的杀死他的武器的残骸表明，它源自以色列军方。 作为回应，以色列情报部长埃利·科恩（Eli Cohen）说，他的政府不知道谁杀害了法赫扎迪（Fakhrizadeh）的人，但补充说，不管是谁使，他使得世界变得更加安全，因为伊朗物理学家“积极参与了制造核武器”。
+这是自一月份以来第二次针对伊朗高级官员的针对性杀害，当时美国总统唐纳德·川普下令对卡西姆·索莱马尼将军进行了无人机袭击。
+作为伊朗的老朋友，中共中南坑的老家伙们，“看到花式定点清除法”之后，不知作何感想?好在，他们马上就有机会体验全球最先进的“斩首”科技了!
 
-比斯利说，一场人道主义灾难正在发展，约有2.7亿人正走向 “饥饿 “。
+参考:
 
-*他说 “根据我们现阶段所看到的情况，2021年真的会是灾难性的……因为我们已经花费了19万亿美元，这笔钱可能不会，也不大可能在2021年到位。”*
+[https://www.zerohedge.com/markets/iran-says-nuclear-scientist-was-assassinated-using-satellite-controlled-gun](https://www.zerohedge.com/markets/iran-says-nuclear-scientist-was-assassinated-using-satellite-controlled-gun)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221622/PHOTO-2020-11-26-13-19-21.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
-他补充说：”我们现在从字面上看到2021年将是联合国成立以来最严重的人道主义危机年，我们将不得不加大力度。”
 
-比斯利说，病毒大流行和由此导致的政府封锁正在扰乱供应链和全球经济–他表示，”由于经济连锁反应，治疗可能比疾病更糟糕”。 他还表示，”人为冲突 “正在加剧世界上持续的人道主义挑战，特别提到了叙利亚、也门和南苏丹。
-
-“我们必须结束其中的一些战争。只有让这些战争结束，我们才能实现我们所期望的可持续发展目标。”他将冲突、健康危机和迫在眉睫的饥荒称为 “泰坦尼克号前面的冰山”。
-
-比斯利在8月份也曾发出过类似的警告。当时，他要求提供数十亿美元的人道主义援助，以避免一场威胁世界大部分地区的 “圣经规模的饥荒”。
-
-由于经济萧条失业、供应链断裂、农作物歉收等原因而无法养活自己的人数急剧增加，这是今年可能最早在明年引发全球饥饿危机的一些催化剂。
-
-即使在世界经济发达的美国，粮食不安全问题也在急剧上升，因为有数千万人失业、破产，现在节日期间都有在食物银行排队领取救济食物。
-
-联合国秘书长安东尼奥·古特雷斯（Antonio Guterres）在6月份的另一份粮食不安全报告中警告说，世界正处于二战后有史以来最严重的粮食危机的边缘。
-
-更糟糕的是，世界粮食价格正在迅速上涨，粮食及农业组织指数创下2015年初以来的最高水平。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06225849/%E5%9B%BE%E7%89%8732.png)
-*粮农组织在一份新闻稿中说，”大流行病恶化和加剧了由于冲突、虫害和恶劣天气，包括最近中美洲的飓风和非洲的洪水造成的本已脆弱的状况更加恶化。”*
-
-除了粮食价格飙升，全球经济也再次陷入低迷。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06230117/%E5%9B%BE%E7%89%8734.png)
-如果这还不够的话，我们在9月份描述的一种名为 “拉尼娜 “的自然天气现象正在扰乱全球农业产业，导致一些地区出现干旱天气，而另一些地区出现暴雨，降低了农作物产量，推高了粮食的现货价格。
-
-虽然各国央行已经印刷了数万亿美元来拯救金融市场–他们不能印刷粮食–但世界很可能正处于大规模人道主义危机的边缘。
-
-原文链接：[https://www.zerohedge.com/geopolitical/2021-will-be-catastrophic-un-warns-humanitarian-crisis-270-million-people-starve](https://www.zerohedge.com/geopolitical/2021-will-be-catastrophic-un-warns-humanitarian-crisis-270-million-people-starve)
-
-0
+1+
