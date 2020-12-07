@@ -1,24 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 众议院共和党人提出法案废除“全国选民登记法”
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/623560/)
+## 【战友心声】我的小鱼，你醒了吗？
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/623624/)
 
-多伦多枫叶农场（原加喜农场）春季
-校对 文锦 上传 云起时
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06185102/%E6%B1%BD%E8%BD%A6.jpg)图片来源：Fox 26 Houston
-亚利桑那州凤凰城的美国保守派新闻和政治网站The Western Journal 12月5月报道，鉴于川普总统和其他人指责民主党人通过大量欺诈活动窃取选举，为了减少选民欺诈的途径，一群众议院共和党人提出了一项法案，以废除1993年的“全国选民登记法”。
+作者：香草山写作组 澈澈澈
 
-1993年颁布的“全国选民登记法”，又称为“汽车投票人法”，该法案旨在鼓励美国人在申请驾驶执照或与政府进行其他业务时进行投票登记。目前，亚利桑那州共和党众议员安迪·比格斯（Andy Biggs）正在领导这项工作，以废除这个已经存在了数十年历史的法律。比格斯对“汽车投票人法”只要求各州当选民在表格上签字就可以证明选民是美国公民，而没有其他任何身份认证的状况表示关切。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
 
-据福克斯新闻报道，亚利桑那州的法律要求个人提供公民身份证明，但是联邦法律给了他们机会，可以对’联邦制’选票进行投票，比格斯办公室认为这很容易造成欺诈。
 
-比格斯向福克斯发表了如下声明：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06190542/MOS0630-%E3%80%90%E9%A6%99%E8%8D%89%E8%AF%97%E8%AF%8D%E3%80%91%E6%88%91%E7%9A%84%E5%B0%8F%E9%B1%BC%EF%BC%8C%E4%BD%A0%E9%86%92%E4%BA%86%E5%90%97%EF%BC%9F.jpg)
+我的小鱼，
 
-“这种宽松的程序，在对选民登记有严格公民身份要求的州进行选民登记投票，对我们选举的完整性构成威胁。所有具有政治倾向的美国人都必须知道我们的选举是在最大的诚信下进行的。这就是为什么我希望我的同事们与我一起支持这项立法，以确保各州而不是华盛顿沼泽来维护选举的完整性，并恢复每个居民对我们选举的诚信有信心。”
+你醒了吗？
 
-随着这次美国总统大选的大规模舞弊，媒体与民主党候选人公开勾结的乱象被揭露，越来越多的共和党人和美国的正义力量站出来监督2020年大选的完整性，维护美国的宪法。 因此，任何想颠覆美国的阴谋都是徒劳的，因为伟大的美国人民会不惜任何代价为美国而战。
+还认识这清晨吗？
 
-[原文链接](https://www.westernjournal.com/house-republicans-introduce-bill-repeal-motor-voter-law/?utm_source=push&amp;utm_medium=westernjournalism&amp;utm_content=2020-12-04&amp;utm_campaign=pushtraffic)
+天亮时分，
+
+如风暴的前奏寂静。
+
+
+
+你腮边轻轻滑落的，
+
+是你的泪还是我的泪？
+
+失去自由的那个时代，
+
+不是已经哭过了吗？
+
+
+
+我依稀还记忆着，
+
+阳光的温暖。
+
+遥望喜马拉雅之巅，
+
+那一旌蓝旗飘飘。
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
