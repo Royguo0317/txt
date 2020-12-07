@@ -1,24 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 众议院共和党人提出法案废除“全国选民登记法”
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/623560/)
+## 由北大西洋公约联想到农场的契约精神
+` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/623632/)
 
-多伦多枫叶农场（原加喜农场）春季
-校对 文锦 上传 云起时
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06185102/%E6%B1%BD%E8%BD%A6.jpg)图片来源：Fox 26 Houston
-亚利桑那州凤凰城的美国保守派新闻和政治网站The Western Journal 12月5月报道，鉴于川普总统和其他人指责民主党人通过大量欺诈活动窃取选举，为了减少选民欺诈的途径，一群众议院共和党人提出了一项法案，以废除1993年的“全国选民登记法”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06191218/%E7%94%B1%E5%8C%97%E5%A4%A7%E8%A5%BF%E6%B4%8B%E5%85%AC%E7%BA%A6%E8%81%94%E6%83%B3%E5%88%B0%E5%86%9C%E5%9C%BA%E7%9A%84%E5%A5%91%E7%BA%A6%E7%B2%BE%E7%A5%9E.png)
+**作者：京都富士会 奥法**
 
-1993年颁布的“全国选民登记法”，又称为“汽车投票人法”，该法案旨在鼓励美国人在申请驾驶执照或与政府进行其他业务时进行投票登记。目前，亚利桑那州共和党众议员安迪·比格斯（Andy Biggs）正在领导这项工作，以废除这个已经存在了数十年历史的法律。比格斯对“汽车投票人法”只要求各州当选民在表格上签字就可以证明选民是美国公民，而没有其他任何身份认证的状况表示关切。
+**校对****：****待命（文晓）**
 
-据福克斯新闻报道，亚利桑那州的法律要求个人提供公民身份证明，但是联邦法律给了他们机会，可以对’联邦制’选票进行投票，比格斯办公室认为这很容易造成欺诈。
+路德先生今天在节目中提到北大西洋公约组织，简称北约组织或北约 。是[欧洲](https://zh.m.wikipedia.org/wiki/%E6%AD%90%E6%B4%B2)及[北美洲](https://zh.m.wikipedia.org/wiki/%E5%8C%97%E7%BE%8E%E6%B4%B2)国家，为实现防卫合作而建立的[国际组织](https://zh.m.wikipedia.org/wiki/%E5%9B%BD%E9%99%85%E7%BB%84%E7%BB%87)，是西方的重要军事力量。1949年3月18日，[美国](https://zh.wikipedia.org/wiki/%E7%BE%8E%E5%9C%8B)、[英国](https://zh.wikipedia.org/wiki/%E8%8B%B1%E5%9C%8B)及[法国](https://zh.wikipedia.org/wiki/%E6%B3%95%E5%9C%8B)公开建立北大西洋公约组织，于同年4月4日在美国[华盛顿](https://zh.wikipedia.org/wiki/%E8%8F%AF%E7%9B%9B%E9%A0%93%E7%89%B9%E5%8D%80)签署《[北大西洋公约](https://zh.wikipedia.org/wiki/%E5%8C%97%E5%A4%A7%E8%A5%BF%E6%B4%8B%E5%85%AC%E7%BA%A6)》后正式成立，总部设在[比利时](https://zh.wikipedia.org/wiki/%E6%AF%94%E5%88%A9%E6%99%82)首都[布鲁塞尔](https://zh.wikipedia.org/wiki/%E5%B8%83%E9%AD%AF%E5%A1%9E%E7%88%BE)，至今总共有跨域欧洲和北美的30个国家组成。
 
-比格斯向福克斯发表了如下声明：
+所有成员国以《[北大西洋公约](https://zh.wikipedia.org/wiki/%E5%8C%97%E5%A4%A7%E8%A5%BF%E6%B4%8B%E5%85%AC%E7%BA%A6)》为行动准则，该份条约的关键部分是第五条款（Article V）。要求签署国承诺“**针对任何一个成员国发动的武装攻击****，****应被视为是对全体成员国发动的武装攻击**” 。
 
-“这种宽松的程序，在对选民登记有严格公民身份要求的州进行选民登记投票，对我们选举的完整性构成威胁。所有具有政治倾向的美国人都必须知道我们的选举是在最大的诚信下进行的。这就是为什么我希望我的同事们与我一起支持这项立法，以确保各州而不是华盛顿沼泽来维护选举的完整性，并恢复每个居民对我们选举的诚信有信心。”
+*“**The key section of the treaty is Article 5. Its commitment clause defines the*[*casus foederis*](https://en.wikipedia.org/wiki/Casus_foederis)*. It commits each member state to consider an armed attack against one member state, in Europe or North America, to be an armed attack against them all.”*
 
-随着这次美国总统大选的大规模舞弊，媒体与民主党候选人公开勾结的乱象被揭露，越来越多的共和党人和美国的正义力量站出来监督2020年大选的完整性，维护美国的宪法。 因此，任何想颠覆美国的阴谋都是徒劳的，因为伟大的美国人民会不惜任何代价为美国而战。
+文贵先生数次在直播中提到农场要遵循契约精神。当时，并不是很明白这个契约精神具体指的是什么，更多地是把它理解为相互团结的意思。今天看了路德先生对北约组织的解释，我有了一个新的理解。
 
-[原文链接](https://www.westernjournal.com/house-republicans-introduce-bill-repeal-motor-voter-law/?utm_source=push&amp;utm_medium=westernjournalism&amp;utm_content=2020-12-04&amp;utm_campaign=pushtraffic)
+新中国联邦各地的农场所遵循的契约精神，其中一条包括当某个国家的华人群体受到所在国不公正的待遇甚至欺压的时候，所在国的农场将向全球的喜马拉雅农场发起求助，全球的农场将把那个农场所受的不公或者欺压，视为是针对整个新中国联邦的行为。继而，农场的联盟委员会在经过讨论后，将协同所有农场发起对那个国家的集体行动，比如经济制裁、政治施压。
+
+这一点和所有签署《[北大西洋公约](https://zh.wikipedia.org/wiki/%E5%8C%97%E5%A4%A7%E8%A5%BF%E6%B4%8B%E5%85%AC%E7%BA%A6)》的缔约国一样，所有缔约的喜马拉雅农场必须在这份契约下维护全世界华人的利益。契约一旦缔结，将不受农场主和农场主要管理人员的意志，或者人事的变动而改变。所有农场一致行动，直到那个国家的华人群体收到公正和合法的待遇。
+
+文贵先生还很多次提到过“不抛弃、不放弃，新中国联邦人永不为奴！”
+
+是的，借鉴《[北大西洋公约](https://zh.wikipedia.org/wiki/%E5%8C%97%E5%A4%A7%E8%A5%BF%E6%B4%8B%E5%85%AC%E7%BA%A6)》的第五条，各个农场遵循契约精神，不让任何个体、组织、国家欺负华人。只有这样，我们华人才能度过这次劫难，在全世界生根发芽，广结硕果。
+
+未来，全世界会重新看待华人，感谢华人为这个世界做出的伟大贡献。这需要每个华人的努力，我坚信这个时刻一定会到来。
+
+参考资料：
+
+[https://en.wikipedia.org/wiki/North\_Atlantic\_Treaty](https://en.wikipedia.org/wiki/North_Atlantic_Treaty)
+
+[https://en.wikipedia.org/wiki/NATO](https://en.wikipedia.org/wiki/NATO)
 
 0
