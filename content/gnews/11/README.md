@@ -1,41 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】未来针对中共的斩首行动：美军的炸弹之母已经准备好了
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/623749/)
+## 一颗勇敢的中国心可以拯救中国
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/623858/)
 
-作者：香草山写作组 直截了当
+撰稿：Jenny
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06205732/7e0f7d73-4769-4e90-88ad-b90577192fa3.jpg)澳喜农场森森设计
+自从CCP丧心病狂发起了生化超限战的那一天起，我们已经一只脚迈入了第三次世界大战。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
+最新数据：全球因为CCP“阵亡”158万，美国“阵亡”28.2万。中国“阵亡”人数不详。这些逝去的生命是因为这场没有硝烟的战争而亡，他们不是士兵，但他们是烈士。
 
+川普于2020年10月2日，大选四周前感染CCP病毒，最新消息“美国市长”朱迪·朱利安尼（Rudy Giuliani)感染CCP病毒。据文贵先生说，林伍德等川普的正义之师也都在CCP病毒定点清除的名单上。意大利，法国，英国，西班牙早已于今年2月起全面沦陷。目前又再次面临冬季大爆发。
 
+全世界手忙脚乱疲于应对，共产党却躲在暗处狰狞狂笑，更有李毅那样的傻X在幸灾乐祸。现在CCP又扮作“狼外婆”满世界开始推销“疫苗”，准备发国难财，也顺便再此扩散病毒。
 
-作者：香草山写作组 直截了当
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06201946/MOS0634-%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91%E6%9C%AA%E6%9D%A5%E9%92%88%E5%AF%B9%E4%B8%AD%E5%85%B1%E7%9A%84%E6%96%A9%E9%A6%96%E8%A1%8C%E5%8A%A8%EF%BC%9A%E7%BE%8E%E5%86%9B%E7%9A%84%E7%82%B8%E5%BC%B9%E4%B9%8B%E6%AF%8D%E5%B7%B2%E7%BB%8F%E5%87%86%E5%A4%87%E5%A5%BD%E4%BA%86-2-rotated.jpg)美国埃格林空军博物馆门口展览的“炸弹之母”MOAB
-近日，郭文贵先生与路德访谈多次预告美军接下来的对中共的一系列军事打击，尤其是斩首行动。直播中，文贵先生提到了美国的一个绰号为“炸弹之母” 武器，全名GBU-43/B巨型空爆炸弹。
+真当全球人是傻子吗？！不论CCP如何狡辩，它已经彻底在全世界人民面前暴露了他的终极野心和邪恶的本质。
 
-GBU-43/B巨型空爆炸弹，英文全称Massive Ordnance Air Blast (缩写MOAB)。因为与Mother of All Bombs的首字母缩写相同，故而获得绰号 “炸弹之母”。炸弹之母的名号可谓实至名归，因为其是美国武器库里最强大的常规炸弹之一，爆炸当量甚至可与最小的战术核武器相媲美。数据显示MOAB重约21,600 lb (9,800 kg)，装有18,700 lb (8,500 kg) H-6炸药，相当于约11吨TNT。据国家评论报道，该炸弹可以摧毁距离爆炸点1000英尺（约300米）的绝大部分物体。同时，它使用了先进的KMU-593/B GP/INS制导系统，可以精确的定点打击目标。
+逝去的生命需要讨还公道，因为CCP病毒而失去工作的人们，关门的生意需要得到补偿。真当这一切可以葫芦搅黄瓜，就像共产党在中国最擅长的那样躲过一次次的追责和清算吗？
 
-2017年4月，炸弹之母首次在阿富汗被美军用于实战。美国防部称，13日美国空军MC-130运输机在阿富汗东部阿钦地区投下了一枚MOAB。据CNN等媒体报道，爆炸摧毁了3个地下通道以及武器弹药，造成了至少96名ISIS战斗人员的死亡，无一个平民伤亡。
+美国海军“马金岛”号（USS MakinIsland）两栖战备群兵分两路已于12月6日进入南海。北约与美国在行动，全面清算，火战已然在路上，谁不想把这个魔鬼拎起来揍一顿？CCP病毒被宣布为生化武器的那一刻，就是正义之师联军出手的日子。
 
-估计中南坑的领导们已如坐针毡。他们也明白，一旦美军决定对他们下手，美国很可能第一时间针对中南坑，以及中共重要军事基地进行斩首行动。如下图显示，只要数枚炸弹之母就可以将中南坑夷为平地。同时，美军还拥有各种精确的斩首武器，例如斩首苏莱曼尼的AGM-114 地狱火导弹，以及带GPS精确制导的巨型钻地弹GBU-57。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06201625/MOS0634-%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91%E6%9C%AA%E6%9D%A5%E9%92%88%E5%AF%B9%E4%B8%AD%E5%85%B1%E7%9A%84%E6%96%A9%E9%A6%96%E8%A1%8C%E5%8A%A8%EF%BC%9A%E7%BE%8E%E5%86%9B%E7%9A%84%E7%82%B8%E5%BC%B9%E4%B9%8B%E6%AF%8D%E5%B7%B2%E7%BB%8F%E5%87%86%E5%A4%87%E5%A5%BD%E4%BA%86-2.png)红色圆圈显示了炸弹之母的爆炸范围
-提醒墙内的战友，一定要注意自己与家人的安全，尽量远离中南坑以及重要的军事设施。虽然美军的导弹拥有精确制导，但是大规模战争总是难免会造成一些平民伤亡。
+正义的审判也许会迟到，但从来不会缺席！
 
-参考链接：
+然而，邪恶的共产党居然把导弹发射井藏在人口密集的城市，而且高达3700多处，再看这个密集分布在东部沿海城市的核电站图，这简直就是把人民当肉盾！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06205901/IMG_4407.jpg)网络截图
+共产党的高官们自知时日不多，但他们是宁可与CCP这艘破船一起沉落也不会忏悔改过的！
+14亿苍生怎么办？没有人会顾及，只有我们自救。改变命运的机遇在中国人自己的手里，此时，中华民族呼唤英雄，呼唤一颗勇敢的心。
 
-[http://www.afarmamentmuseum.com/details-gbu43.html](http://www.afarmamentmuseum.com/details-gbu43.html)
+“风萧萧兮易水寒，壮士一去兮不复还”。
 
-[https://www.nationalreview.com/2017/05/moab-mother-all-bombs-afghanistan-use-analysis/](https://www.nationalreview.com/2017/05/moab-mother-all-bombs-afghanistan-use-analysis/)
+历史将赞美永远铭记拯救人民的英雄，永远唾弃和咒诅魔鬼独裁者。
 
-[https://www.cnn.com/2017/04/15/asia/afghanistan-isis-moab-strike/index.html](https://www.cnn.com/2017/04/15/asia/afghanistan-isis-moab-strike/index.html)
+中国人的路在自己的脚下，忏悔和醒悟还有时间，区区几大家族就要挟持14亿陪葬？凭什么？从前我们忍气吞声，只求一个平安的人生，我们曾经为了面包放弃了自由，共产党满足了吗？没有，今天他们想让我们的父母兄弟姐妹跪著为他们陪葬，没门儿！新中国人永不为奴！我们宁可站著死也绝不跪著生！
 
+不论你的信仰是什么，我们都是神的孩子。愿我们那日见主面时 像保罗说的一样“那美好的战我已打过了， 当跑的路我已跑尽了， 当守的道我已守住了。 阿们！
 
+（本文纯属个人观点）
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+澳喜文章[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
+欢迎加入澳喜农场：[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13172650/IMG_3537-1.jpg)
 0

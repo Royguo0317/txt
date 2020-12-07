@@ -1,24 +1,79 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 明年起农村老房子按新规处理
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/623397/)
+## 扎克伯格和脸书这回麻烦惹大了
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/623469/)
 
-撰稿：黑玻璃
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06172014/IMG_4465.jpg)截图自健康无忧网
-1. “地随人走”的原则，农村的土地还是归集体所有，个人只拥有使用权，并且该使用权只能由集体体制内的成员来继承，尽管可以继承旧房子的宅基地上的房子，但这是有条件的。条件是只能根据自己的生活需要进行小规模的装修和装饰，并且不能在现有基础上进行扩展，翻新或重建，因为这些“搬迁”需要物质批准，但必须进行城市居住登记无法提供相关的材料。
-2. “房屋继承”的原则，新版《民法典》规定，宅基地上面建盖的房子为个人所有，且个人拥有继承权，即使户口不在农村的人员也不受影响。
-3. “区分限制”的原则，自从农村土地确权以后，对土地使用和房屋建设两方面有了更加严格的规定，比如个人不能私自新建房屋、改建房屋、扩建房屋，如有需求必须按照规定进行报批申请。
+*新闻来源：The National Pulse《国家脉动》；作者：Raheem Kassam and Natalie Winters；发布时间：2020年12月4日*
 
+*翻译/简评：MikeHua；校对/审核：TCC；Page：拱卒*
 
-简单解释一下，农村的房子属于私有财产，拥有者可以继承，装修，翻新等。但是土地属于集体土地如果要土地和房产一起转让也只有是本村村民，子女没有村户口房子没人住，即使继承给子女了也不能翻新，也就是等房子倒了就收回去了。现在很多农村的村民搬去了城市，留着农村的房子给父母居住，子女拥有了城市户籍，等父母离逝，农村的房子就成了无人居住的危旧房，作为子女你无权修建翻新老房子，最后的命运就是等着房子连同土地一起被国家收回，这就是这个新规的用意。
+[!\[\]()!\[\](https://spark.adobe.com/page/tni1ilptgYtNM/images/c7da5363-1fa7-4fe3-b867-ae602ba0d4d2.png?asset_id=294a0029-ecad-4470-97ad-eecdcda4506c&amp;img_etag=%22b09c295027cd2a408e456638610aeefd%22&amp;size=1024)](https://spark.adobe.com/page/tni1ilptgYtNM/images/c7da5363-1fa7-4fe3-b867-ae602ba0d4d2.png?asset_id=294a0029-ecad-4470-97ad-eecdcda4506c&amp;img_etag=%22b09c295027cd2a408e456638610aeefd%22&amp;size=1024)
 
-世代留下的房子到了中共手里却成了只有居住权，人死了房子也会被国家收回，这就是当下‘为人民服务’的中共政府，无声无息地偷骗枪了14亿大众的私人财产，可悲的是现在的国人为了一套不属于自己的房子（房地产）用尽了几代人的积蓄，半辈子甚至一辈子为了房子而忙绿，结果就像农村的房子一样，死后被政府无情地收回，因为我们从来就不曾拥有过土地。在中国大陆，我们仅仅只是居民。
+**简评：**
 
-审稿：Jenny
+扎克伯格和脸书这回麻烦惹大了。管脸书内容的人都是一堆造假成性的假新闻记者，极左活动人士，而且很多都不是美国公民。脸书对我们闫博士，班农先生和爆料革命内容的打压是种犯罪，如今大选之际他们的犯罪活动几近疯狂。试想如果没有爆料革命站出来，整个世界会快速进入《1984》中预言的，每个人获得的信息被控制，每个人都变成没有思想的僵尸，而少数人控制整个地球财富的局面。这次爆料革命灭的不止是共产党，更大的魔是全世界的邪恶黑暗力量。我们战友每个人的力量都很重要，每个人都在改变世界。
 
-澳喜文章[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+**原文翻译：**
 
-欢迎加入澳喜农场：[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13172650/IMG_3537-1.jpg)
+**以克里斯托弗·斯蒂尔为主的英国支持审查集团体誓言要影响**
+
+**政治并且强迫脸书禁止班农**
+
+**国家脉动爆料:一个自称“真正脸书监管委员会”的团体—加上一个早就已经相当左傾的真正的脸书监管委员会—包含索罗斯支持的活动人士，必須收回了关于通俄腐败言论的记者，以及参与俄罗斯间谍门的托弗·斯蒂尔 (Christopher Steele)。**
+
+该委员会自称想要影响“在美国选举中脸书的角色，”最近宣布它的首此活动：禁止前白宫首席战略师史蒂夫·班农出现在扎克伯格的(脸书)平台上。
+
+奇怪的是，该团体宣称他们的目标是有关美国选举和美国政治的，却建立于英国并包含一些众所皆知，极左激进活动人士，他们因传播假新闻和假信息而知名，特别是在英国脱欧运动和脱欧之后的风波之时。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/tni1ilptgYtNM/images/d91a2594-5998-45f1-b8f2-30756d560411.png?asset_id=b3197493-ec68-45ea-ac2f-b4c8537c3e0f&amp;img_etag=%2291bd19b0bb91ef4287208fcba483d172%22&amp;size=1024)](https://spark.adobe.com/page/tni1ilptgYtNM/images/d91a2594-5998-45f1-b8f2-30756d560411.png?asset_id=b3197493-ec68-45ea-ac2f-b4c8537c3e0f&amp;img_etag=%2291bd19b0bb91ef4287208fcba483d172%22&amp;size=1024)卡德瓦拉德（Cadwalladr）的参与影响了该团体的筹款
+
+最近，名列“真正脸书监管委员会”的卫报新闻激进人士卡罗尔·卡德瓦拉德 (Carole Cadwalladr)在声称英国脱欧资助者亚伦·班克斯 (Arron Banks)违法之后被迫道歉。她也删掉了在她的起诉案件中她的“真相捍卫”的答辩(法官判定，她的指控不是捍卫真相)。
+
+卡德瓦拉德在她新闻报道中的撒谎成性似乎伤害了该团体的集资活动，他们在GoFundMe网站目标是10万英镑（13.5万美元）却只筹集了260英镑（340美元）。
+
+**“绝不挺川普人士”资助外国人**
+
+该团体显然是由来自光明会（Luminate）的初创资金和eBay主席皮埃尔·奥米迪亚 (Pierre Omidyar)所资助的。前者织赞扬該团体带来了 “进步的态度”的升起。奥米迪亚给“绝不挺川普组织（Never Trump groups）”捐助了大量资金，他和林肯计划大佬和新保守主义活动人士例如威廉·克里斯托尔 (Bill Kristol)有深度合作。
+
+皮埃尔·奥米迪亚也给民主党参众两会竞选委员会（Democratic Congressional and Senatorial Campaign Committees）捐钱。
+
+与乔治·索罗斯的开放社会基金会 (Open Society Foundations)合作的光明会自己最近就认捐了将近30万美元给该团体，并且一同举办慈善活动。
+
+前英国情报官员卡德瓦拉德代表了该组织的反川普观点，他曾经给指称川普团队和俄罗斯联系的假文件背书，他与“真正脸书监督委员会”的上头组织有联系，该组织被称为“公民（The Citizens）”。
+
+该团体也包含了沙米尔·三尼（Shahmir Sanni），一个左翼隶属约翰逊的新自由主义“投票脱欧”团队的成员，他之后却谴责英国脱欧，不顾他之前在脱欧运动上的努力；该集团还包括马特·李唯兹（Matt Rivitz），一个极左活动分子，在他和合伙人闹掰之前资助了 “沉睡巨人（Sleeping Giants）” 抗议团体。
+
+尽管设立于英国而且叫做“全体公民”，这个集团声称他们的一个目标是“确保拜登/贺锦丽白宫不会变成一个科技巨头的狗狗”。
+
+“狗狗”的意思是没能用政府力量迫使科技巨头公司删掉右翼思想和个人。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/tni1ilptgYtNM/images/9c136fab-30d7-4bbb-b2fa-ea8a59764109.png?asset_id=12b56b36-d8c9-4485-928d-6168c9c7c09e&amp;img_etag=%221774dd28a13a8bff5941a90913fe0937%22&amp;size=1024)](https://spark.adobe.com/page/tni1ilptgYtNM/images/9c136fab-30d7-4bbb-b2fa-ea8a59764109.png?asset_id=12b56b36-d8c9-4485-928d-6168c9c7c09e&amp;img_etag=%221774dd28a13a8bff5941a90913fe0937%22&amp;size=1024)李唯兹，三尼和斯蒂尔都出现了
+
+**坏审查人**
+
+该集团认为脸书的官方审查委员没能成功审查與选举相关的内容，因为该委员会95%被认为是反川普和超过75%不是美国公民。
+
+根据Axios媒体获得的文件显示，该计划认为“脸书的审查委员会”只不过是“比公司洗白活动还强一点的事情”。
+
+该文件同时保证“真正脸书审查委员”会知道在对反对声音噤声和强制巨头公司进行审查时“如何制造噪音”。
+
+*“我们会用爆炸性新闻，受广泛传播的视频，名人支持背书有技巧的媒体管理将对民主制度的立即威胁从社交媒体平台和科技公司的误用上曝光。我们知道如何制造噪音。民主需要它自己的审核团队和创新人员。我们就是(来做这事)的。”*
+
+Apparently the term “democracy” is now synonymous with “censorship.”
+
+很显然地，对他们而言“民主”和“审查”是同义词。
+
+[原文链接](https://thenationalpulse.com/politics/uk-censorship-company-christopher-steele-bannon/)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/tni1ilptgYtNM/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/tni1ilptgYtNM/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/tni1ilptgYtNM/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
 0

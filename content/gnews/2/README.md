@@ -1,35 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】TikTok如何窃取用户信息，用于中共对美的网络超限战
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/623891/)
+## 接种新冠疫苗可能导致不育
+` GM99` [轉載自GNews](https://gnews.org/zh-hans/623946/)
 
-作者：香草山写作组 村北
+#### **翻译评论：billwilliam**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06214410/Cover-4.png)
 
+日前，Zerohedge援引德国媒体2020 News的报道说两位科学家致函欧盟药品管理局，要求立即暂停对中共病毒的疫苗开发。这两人分别是前辉瑞副总兼科技主管Michael Yeadon博士和德国呼吸科专家兼议员Wolfgang Wodarg博士。两位科学家说疫苗研发“应该暂停，直到有研究能解决一系列严重安全担忧”。他们例举了如下几个安全风险：
 
+1. 目前的PCR核酸检测不准确，不可能准确确定疾病风险或疫苗的有效性，“因此人体实验测试疫苗是不道德的“。建议使用病毒基因测序的方法。
 
-爆料革命很早就揭露过，中共通过高科技手段窃取美国个人和企业的信息，其中一个手段就是手机APP，即通过美国人的手机收集大量的用户信息。通过大数据分析这些信息后，中共可以精准地了解和操纵美国民众，从改变民意到引起社会动荡，甚至推操纵大选。
+2. 抗体介导的病毒增强（ADE）也是一个原因。非中和性抗体可能导致免疫系统过激反应。接种过中共病毒疫苗的人之后再接触中共病毒，不但没有免疫，反而病情更重。过去曾有给猫接种冠状病毒疫苗（可能不是新冠）的例子，开始能耐受疫苗的猫在感染病毒后全部死亡。
 
-其中一个中共的APP是TikTok。数以千万计的美国人，无论是年轻人还是成年人，每天在TikTok上花费大量的时间。他们不知道的是中共正在观察他们，并悄悄地拿走他们的数据。CCP是怎么做的呢？以下的例子可以知其端倪。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06213004/MOS0637-%E3%80%90%E4%B8%96%E4%BA%8B%E8%A7%A3%E8%AF%84%E3%80%91TikTok%E5%A6%82%E4%BD%95%E7%AA%83%E5%8F%96%E7%94%A8%E6%88%B7%E4%BF%A1%E6%81%AF%EF%BC%8C%E7%94%A8%E4%BA%8E%E4%B8%AD%E5%85%B1%E5%AF%B9%E7%BE%8E%E7%9A%84%E7%BD%91%E7%BB%9C%E8%B6%85%E9%99%90%E6%88%98-1.jpg)
-福布斯网络安全作家Zak Doffman今年6月份曝光过TikTok到底是如何窃取iPhone用户信息的。Zak报道称，早在3月份，安全研究人员Talal Has Bakry和Tommy Mysk就在YouTube上发布了一段视频（中文版字幕请参考[https://gnews.org/zh-hans/623665/](https://gnews.org/zh-hans/623665/)），向人们展示了如何利用“控制台日志”轻松检测到TikTok APP每次被打开时就会下载用户剪贴板的情况。当《福布斯》联系到TikTok的所有者Bytedance询问这个情况时，该公司将责任推给了其嵌入的第三方谷歌广告SDK。
+3. 中共病毒的触手蛋白与人体的胎盘融合蛋白（Syncytin）结构相似，免疫系统不好区分，那么产生的抗体有可能攻击正常的胎盘融合蛋白，这个蛋白对于人类胎盘的形成起关键作用。报告说，“必须绝对排除新冠疫苗不会对胎盘融合蛋白诱发免疫反应，否则会导致接种疫苗的妇女无限期不育”。
 
-然而，Zak继续的调查报道显示，苹果公司在其后的iOS14测试版中发布了剪贴板示警功能后，iPhone用户惊奇地发现TikTok居然在用户使用手机每按1-3次键就会尝试下载用户的剪贴板信息。虽然TikTok这次又找了个借口，但很明显，TikTok(以及其它APP)一直在从用户的手机中获取数据是个不争的事实。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06212847/MOS0637-%E3%80%90%E4%B8%96%E4%BA%8B%E8%A7%A3%E8%AF%84%E3%80%91TikTok%E5%A6%82%E4%BD%95%E7%AA%83%E5%8F%96%E7%94%A8%E6%88%B7%E4%BF%A1%E6%81%AF%EF%BC%8C%E7%94%A8%E4%BA%8E%E4%B8%AD%E5%85%B1%E5%AF%B9%E7%BE%8E%E7%9A%84%E7%BD%91%E7%BB%9C%E8%B6%85%E9%99%90%E6%88%98-2.png)
-而对iPhone用户来说，由于苹果产品之间的同步功能，更糟糕的是同一用户账号下的其它苹果设备上的信息，无论是苹果电脑还是iPad，都被iPhone上TikTok偷走了。
+4. 一些公司生产的mRNA疫苗含有聚乙烯二醇（PEG），70%的人会对这种化学物质产生抗体，诱发严重过敏反应。
 
-TikTok的安全问题只是冰山一角。就对自由世界尤其是国的网络渗透和网络战而言，中共通过各种手段取得了巨大成果。例如中共对安提法和黑名贵等组织的精确介入和操纵，从一开始就极大地造成和加剧着美国社会的巨大分裂。他们掌握了许多美国政商腐败分子的肮脏秘密，使美国稳步走入中共的控制之下（如拜登的硬盘门）。当前的美国大选舞弊案，几乎使中共在这场超限战中取得了对美国的最终胜利。美国当前最重要的是要充分而迅速了解中共这种科技渗透的规模并坚定地反击，才能真正让美国这个世界上最后的自由阵地，再次伟大起来。
+5. 目前疫苗研发的时间过短，不足以评估长期的副作用。举例来说，接种猪流感疫苗后就曾出现嗜睡症（narcolepsy）。
 
-文章仅代表个人观点。
+**点评：**
+大家听路德节目都知道ADE，劣质的疫苗可能反而会导致或加重病情。关于中共病毒对人体的危害，目前很多方面尚不清楚，盲目的打疫苗不一定有好处，特别是短时间内赶工做出来的疫苗没有考虑到副作用。对于疫苗导致妇女不育的可能性，这个尚不确定，不过大家不要冒这个风险。不知道这个特点是不是中共故意设计的，如果是故意的，就太邪恶了。难道疫苗战要让全人类都丧失生育能力吗？
 
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+**原文链接：**[Ex-Pfizer Exec Demands EU Halt COVID-19 Vaccine Studies Over ‘Indefinite Infertility’ And Other Health Concerns](https://www.zerohedge.com/medical/ex-pfizer-exec-demands-eu-halt-covid-19-vaccine-studies-over-indefinite-infertility-and)
 
 0

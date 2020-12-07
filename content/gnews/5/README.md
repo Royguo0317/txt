@@ -1,35 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】看看由奥巴马时期的二流政客组成的拜登“内阁”到底要做什么？
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/623853/)
+## [突发]朱立安尼发推表示感觉很好
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/623900/)
 
-作者：香草山写作组 Wilson
+编辑：Victor Torres
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
+更多真相，请关注Gtv、Gnews！
 
+**西班牙2020年12月7日电/西喜社/**——朱立安尼周日晚发推说:
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06210857/MOS0636-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E7%9C%8B%E7%9C%8B%E7%94%B1%E5%A5%A5%E5%B7%B4%E9%A9%AC%E6%97%B6%E6%9C%9F%E7%9A%84%E4%BA%8C%E6%B5%81%E6%94%BF%E5%AE%A2%E7%BB%84%E6%88%90%E7%9A%84%E6%8B%9C%E7%99%BB%E5%86%85%E9%98%81%E5%88%B0%E5%BA%95%E8%A6%81%E5%81%9A%E4%BB%80%E4%B9%88%EF%BC%9F.jpg)
-2020月12月6日，曾任川普总统国家安全和外交政策咨询委员会成员，现为畅销书作家的肯尼斯‧蒂默曼撰文称，拜登近日公布的“内阁”成员，集中了奥巴马任总统时期的二流政客。
+感谢所有我的朋友和追随者的祈祷和祝福。
+我得到了很好的照顾，感觉很好。
+快速恢复并跟上一切。
 
-曾任克里副手的托尼·布林肯被任命为国务卿。他公开承诺恢复和巴勒斯坦的关系，重新加入WHO（世卫组织），无条件恢复失败的伊朗核协议。
-
-艾薇尔·海恩斯为国家情报总监。她是约翰·布伦南的得意门生，她曾在布伦南和赖斯领导的国家安全委员会工作，她声称，上任后她将立即停止对大选舞弊的调查，也会停止与美国流氓情报机构、非法监视川普总统2016年竞选活动和川普白宫团队有关的文件解密。
-
-史蒂夫·里切蒂为白宫高级顾问。里切蒂曾经是一名超级游说者，于1999年至2000年在商务部长比尔·戴利手下任职期间，努力说服美国国会授予中共「最惠国待遇」，这成为中共赶超美国的马拉松竞赛中，柯林顿送给北京当局的最重要礼物。
-
-杰克·沙利文为国家安全顾问。他曾在赫拉里·柯林顿手下长期任职。他曾经在班加西惨剧中扮演重要角色。
-
-还有其他十几人，他们都是众所周知的沼泽中的大鳄。
-
-以上表明，拜登团夥就是一个犯罪组织，他们和中共是一夥的，他们要在全世界范围内进行“大重置”，将全世界拖入极权政权的统治之下，但是，等待他们的是地狱。
+朱立安尼周日早些时候被诊断感染了中共病毒。
 
 
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06213927/Screenshot_20201206-212802_Twitter-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 0

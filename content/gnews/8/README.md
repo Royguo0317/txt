@@ -1,36 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】活着，就有希望！备战指南供墙内同胞参考
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/623795/)
+## 【亚利桑那州听证会】朱利安尼市长振聋发聩的讲话
+` GM127` [轉載自GNews](https://gnews.org/zh-hans/623892/)
 
-作者：香草山写作组 Daxia
+2020年11月30日，由朱利安尼市长带队的川普总统的法律团队参加了亚利桑那州议会在凤凰城举行的公开听证会。会议中朱利安尼市长讲话，例举亚利桑那州大选中的种种违法行为。这是继宾州的葛底斯堡听证会后的第二个重要摇摆州的听证会。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
+朱利安尼市长在听证会上深刻揭露了美国在“精英”的带领下滑向可怕的社会主义和共产主义的严峻现实，扒下以拜登为例的腐败政客的丑陋外衣，更颂赞了以维护世界正义为己任的伟大的美国，警告世界：美国的毁坏将是整个世界的灾难。
+[视频源](https://www.youtube.com/watch?v=C_i5hrJsDCE)
+讲话节选：
+
+“精英们，才是有知识的” —— 哇！难道这听起来不像美国的今天吗？我指的是，那是曾经的俄国，曾经的中国，也是现在的中国，那是曾经的波兰，曾经的保加利亚，曾经的东柏林。老天，我以为我们通过奋斗已赶走了这种思潮，没想到竟然在美国看到了。它就发生在美国。
+
+从硬盘的揭露开始，证明了拜登家族犯下的大量重大罪行。这些信息被审查，不允许被公开、不允许出现在电视上，也不允许出现在报纸上。我们就是不愿意见到这些事实，甚至即使这些表明数百万美元都去了一个副总统那里，这些钱是来自中国、俄国、乌克兰、罗马尼亚…… 哦，我都记不得那么多的地方。一个副总统坐在他副总统的办公室里变成了一个百万富翁，这是极其不寻常的，但这就是发生了，而他现在还是民主党候选人。
+
+当这场选举刚一进入质疑阶段，这些爆料都被掩盖了。他们使用了同样的手法来进行掩盖、掩盖、掩盖。大科技公司、大媒体、歪曲事实的民主党领袖们，以及大型企业正在从现有的体制中获利
+
+他们的愿望不是把美国这个国家利益放在首位，而是不管把美国放在什么位置，只要他们能赚钱就行。我们这个国家可以是第三，可以是第五，只要他们能获利，国家也可以不存在，他们完全不理解这个国家的重要性。
+
+对于，说真的，对于世界的生存有多么重要的意义，世界上没有任何其它国家愿意为了拯救别国人民，而将本国的男人和女人们的生命置于危险中。那样的国家在地球上是不存在的。而我们是这样的国家。如果我们破坏了这个国家的根本属性，这个世界就会处在可怕的时空里。”
+
+【编者按】新中国联邦和爆料革命的弟兄姐妹们祝朱利安尼市长先生早日康复，我们爱您！愿上帝保佑祝朱利安尼市长和家人，上帝保佑美国，上帝保佑新中国联邦。
+
+听写：【V%】听写校对：【BruhM（文山）】翻译：【Cyndi】【柠檬草GraceM】校对：【奔腾的长江】字幕：【奔腾的长江】撰文 & 编辑：【Isaiah4031】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22111053/VOG-Rose-Garden-Team.png)
+
+
+> [Arizona State Legislature Holds Hearing on Election Fraud and Irregularities – Invocation](https://gnews.org/607447/)
 
 
 
-热战一触即发！大难来临前，希望墙内的同胞做好一切准备，保护自己及家人。以下是备战指南，供参考。
 
-1，短波收音机，保证接收外界信息。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06204618/MOS0635-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E6%B4%BB%E7%9D%80%E5%B0%B1%E6%9C%89%E5%B8%8C%E6%9C%9B%EF%BC%81%E5%A4%87%E6%88%98%E6%8C%87%E5%8D%97%E4%BE%9B%E5%A2%99%E5%86%85%E5%90%8C%E8%83%9E%E5%8F%82%E8%80%83-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06204525/MOS0635-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E6%B4%BB%E7%9D%80%E5%B0%B1%E6%9C%89%E5%B8%8C%E6%9C%9B%EF%BC%81%E5%A4%87%E6%88%98%E6%8C%87%E5%8D%97%E4%BE%9B%E5%A2%99%E5%86%85%E5%90%8C%E8%83%9E%E5%8F%82%E8%80%83-2.png)
-2，保证充足食物、饮水、照明等生活物资。具体数量按成员人数调整。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06204656/MOS0635-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E6%B4%BB%E7%9D%80%E5%B0%B1%E6%9C%89%E5%B8%8C%E6%9C%9B%EF%BC%81%E5%A4%87%E6%88%98%E6%8C%87%E5%8D%97%E4%BE%9B%E5%A2%99%E5%86%85%E5%90%8C%E8%83%9E%E5%8F%82%E8%80%83-3.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06204832/MOS0635-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E6%B4%BB%E7%9D%80%E5%B0%B1%E6%9C%89%E5%B8%8C%E6%9C%9B%EF%BC%81%E5%A4%87%E6%88%98%E6%8C%87%E5%8D%97%E4%BE%9B%E5%A2%99%E5%86%85%E5%90%8C%E8%83%9E%E5%8F%82%E8%80%83-4.png)
-![]()
-3，了解中共国的核电分布情况，及时撤离。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06204820/MOS0635-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E6%B4%BB%E7%9D%80%E5%B0%B1%E6%9C%89%E5%B8%8C%E6%9C%9B%EF%BC%81%E5%A4%87%E6%88%98%E6%8C%87%E5%8D%97%E4%BE%9B%E5%A2%99%E5%86%85%E5%90%8C%E8%83%9E%E5%8F%82%E8%80%83-5.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06204910/MOS0635-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E6%B4%BB%E7%9D%80%E5%B0%B1%E6%9C%89%E5%B8%8C%E6%9C%9B%EF%BC%81%E5%A4%87%E6%88%98%E6%8C%87%E5%8D%97%E4%BE%9B%E5%A2%99%E5%86%85%E5%90%8C%E8%83%9E%E5%8F%82%E8%80%83-6.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06205138/MOS0635-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E6%B4%BB%E7%9D%80%E5%B0%B1%E6%9C%89%E5%B8%8C%E6%9C%9B%EF%BC%81%E5%A4%87%E6%88%98%E6%8C%87%E5%8D%97%E4%BE%9B%E5%A2%99%E5%86%85%E5%90%8C%E8%83%9E%E5%8F%82%E8%80%83-7.png)
-文贵先生和爆料革命的战友们多次呼吁，能跑出来的赶紧跑，实在不行，找相对安全的地方，远离危险地，生存下来。等待新中国联邦和世界正义力量的救援。切记！活着，就有希望！
 
-未来将陆续发布求生讯息。敬请关注！
-
-信息及图片源于（G-TALENT技术社区求生公告)
+> [Video From GA Shows Suitcases Filled With Ballots Pulled From Under a Table After Poll Workers Left](https://gnews.org/614878/)
 
 
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+> [【Gettysburg Hearing】Remarks by Mayor Giuliani (with Subtitles)](https://gnews.org/602865/)
+
+
+
+
 
 0
