@@ -1,24 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆革星评：朱利安尼染疫正在好转
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/623616/)
+## 警告！抖音秘密监视苹果手机中的信息！
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/623665/)
 
-多伦多枫叶农场 文星（一号）
+美东香草山
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06190200/R.jpg)图片来自 History.com
-川普总统12月6日发推，纽约历史上至今最伟大的市长—朱利安尼先生，经检测中共病毒阳性。他不知疲劳地揭露美国大选的最大腐败，朱利安尼很快就会恢复健康，我们继续战斗！
-
-这一消息牵动了无数正义人士的心。郭先生在G-TV上马上发Getter，也呼吁全球战友为朱利安尼先生祷告。川普总统曾经带领全美国人民一起向上帝祷告，佑护美国人民。祷告的力量是无穷大的。
-
-刚刚郭先生直播时，接到朱利安尼先生的信息，这预示着朱利安尼先生正在恢复健康。有神的佑护，中共的任何病毒都不会阻止美国灭共的步伐。祝福朱利安尼先生。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
 
 
 
-> .[@RudyGiuliani](https://twitter.com/RudyGiuliani?ref_src=twsrc%5Etfw), by far the greatest mayor in the history of NYC, and who has been working tirelessly exposing the most corrupt election (by far!) in the history of the USA, has tested positive for the China Virus. Get better soon Rudy, we will carry on!!!
-> — Donald J. Trump (@realDonaldTrump) [December 6, 2020](https://twitter.com/realDonaldTrump/status/1335679426516881409?ref_src=twsrc%5Etfw)
 
 
+参考链接： [https://www.forbes.com/sites/zakdoffman/2020/06/26/warning-apple-suddenly-catches-tiktok-secretly-spying-on-millions-of-iphone-users/?sh=6a3bba9d34ef](https://www.forbes.com/sites/zakdoffman/2020/06/26/warning-apple-suddenly-catches-tiktok-secretly-spying-on-millions-of-iphone-users/?sh=6a3bba9d34ef)
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
