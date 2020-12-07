@@ -15,3 +15,7 @@
 <img src="how-to-guide.png" alt="使用方式"/>
 
 * 在刷新列表或者播放電臺時候，如果遇到網絡故障，請重複刷新或者點擊電臺重試。
+
+### 使用問題
+請提交到：
+https://github.com/ourhimalayas/g-radio/issues
