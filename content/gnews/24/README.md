@@ -1,23 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 迈克尔·弗林将军接受鲁道布斯采访，谈论他的总统赦免
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/625553/)
+## 班农疫情作战室551/552/553期
+` GM47` [轉載自GNews](https://gnews.org/zh-hans/625591/)
 
-英听校： 康州盘古农场 – 黎明的光芒
+战友之家新闻译制组制作
 
-翻译：康州盘古农场 –  Robensenna
+更多、更新WAR ROOM中文视频，请前往GTV-班农战斗室中文    》》》
 
-翻译终校：康州盘古农场 – 烟波浩淼
+[https://gtv.org/user/5e8cf14849080f0e9c6ae5b8](https://gtv.org/user/5e8cf14849080f0e9c6ae5b8)
 
-字幕+视频制作：康州盘古农场-武汉生化病毒
+551：威斯康星州干得漂亮
 
-审核**：**康州盘古农场-Truemanman
+史蒂夫·班农（Steve Bannon），杰克·麦克西（Jack Maxey）和格雷格·曼兹（Greg Manz）讨论了有关冠状病毒大流行的最新消息，预计今天大规模诉讼将在威斯康星州开始。 约翰·弗雷德里克斯（John Fredericks）和杰克·波索比耶克（Jack Posobiec）连线发表见解。
 
-弗林将军谈到爱国者遍及美国这个国家，这些朋友从他的孩提时代直到他军旅生涯的所有朋友，但是美国对他的家庭和他造成的影响却是非同寻常的，给了弗林将军韧性，弗林将军得到的祝福使他渡过了难关，真的很感激总统，川普总统和白宫称之为无罪赦免，因为那是事实。
+播出时间：2020年11月30日
+
+==
 
 
 
+GTV:
 
+[https://gtv.org/video/id=5fce3edf20c9025a87dd34df](https://gtv.org/video/id=5fce3edf20c9025a87dd34df)
+
+552：背水一战
+
+史蒂夫·班农（Steve Bannon），杰克·麦克西（Jack Maxey）和格雷格·曼兹（Greg Manz）讨论了有关冠状病毒大流行的最新消息，预计今天大规模诉讼将在威斯康星州开始。闫丽梦博士和迈克尔·沃尔什（Michael Walsh）连线发表见解。
+
+播出时间：2020年11月30日
+
+
+
+GTV:
+
+[https://gtv.org/video/id=5fce406220c9025a87dd353c](https://gtv.org/video/id=5fce406220c9025a87dd353c)
+
+==
+
+553：溶质
+
+史蒂夫·班农（Steve Bannon），杰克·麦克西（Jack Maxey）和格雷格·曼兹（Greg Manz）讨论了有关冠状病毒大流行的最新消息，预计今天大规模诉讼将在威斯康星州开始。 Boris Epshteyn和阿曼达·海德（Amanda Head）连线发表见解。
+
+播出时间：2020年11月30日
+
+
+
+GTV:
+
+[https://gtv.org/video/id=5fce40e620c9025a87dd3557](https://gtv.org/video/id=5fce40e620c9025a87dd3557)
+
+更多、更新WAR ROOM中文视频，请前往GTV-班农战斗室中文 》》》[https://gtv.org/user/5e8cf14849080f0e9c6ae5b8](https://gtv.org/user/5e8cf14849080f0e9c6ae5b8)
 
 0

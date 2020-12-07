@@ -1,35 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美将于近期增加制裁十四名中港官员
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/625383/)
+## 【世界多语言图文】2020/11/27-28 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/625345/)
 
-作者：香草山写作组 人间世
+战友之家图文摘要及多语组
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
+[307-3086\_English\_1127-1128\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085045/307-3086_English_1127-1128_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085045/307-3086_English_1127-1128_CCP_Virus_Updates.pdf)
 
+[307-3086\_French\_1127-1128\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085009/307-3086_French_1127-1128_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085009/307-3086_French_1127-1128_CCP_Virus_Updates.pdf)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085928/MOS0647-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E7%BE%8E%E5%B0%86%E4%BA%8E%E8%BF%91%E6%9C%9F%E5%A2%9E%E5%8A%A0%E5%88%B6%E8%A3%81%E5%8D%81%E5%9B%9B%E5%90%8D%E4%B8%AD%E6%B8%AF%E5%AE%98%E5%91%98.png)图为港人示威时高举争取美国支持的海报（图片来自德国之声）
-2020年12月7日，路透社援引3名消息人士的说法透露，美国政府将于本周内对14名中港官员实施制裁，因为他们在中共取消香港民选反对派议员资格的过程中扮演了重要角色。根据先例，制裁内容或将包括冻结他们在美国的资产，禁止在美人士与被制裁人及其所拥有的实体进行商品或服务交易等。
+[307-308\_German\_1127-1128\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085101/307-308_German_1127-1128_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085101/307-308_German_1127-1128_CCP_Virus_Updates.pdf)
 
-中共于今年6月份强势通过《国安法》之后，美国政府在8月份宣布对香港行政长官林郑月娥、香港现任和前任警察局长等11名中港高官进行制裁。11月份，美国国务院和财政部宣布对香港政府和安全机构中的另外四名官员实施制裁，禁止他们前往美国，并封锁他们可能拥有的任何与美国有关的资产。
+[307-3086\_Japanese\_1127-1128\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085053/307-3086_Japanese_1127-1128_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085053/307-3086_Japanese_1127-1128_CCP_Virus_Updates.pdf)
 
-11月11日，中共利用美国大选的有利时机，进一步打压香港民主人士。香港立法会四名民主派议员被剥夺议员资格，导致反对派议员集体辞职。
+[307-3086\_Korean\_1127-1128\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085030/307-3086_Korean_1127-1128_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085030/307-3086_Korean_1127-1128_CCP_Virus_Updates.pdf)
 
-事件发生后，德、英、美、欧盟都出面批评港府与中共政权的决定，称此举破坏香港自由。英国还召见中共国驻英大使。由澳大利亚、英国、加拿大、新西兰和美国组成的“五眼联盟”情报共享组织也做出表态，呼吁北京收回成命。
-
-然而，习近平领导下的中国共产党对国际社会的口诛笔伐早已习以为常，根本不放在眼里。中共对香港自由和民主的践踏从未收敛。
-
-11月23日，中共迫使香港反送中运动的重要代表人物周庭、黄之锋与林朗彦就去年反对《逃犯条例》修订案示威期间的一起“未经批准集结案”“认罪”，后三人被判监收押。据黄之锋的脸书专页管理员于11月25日透露，友人探访时发现，黄之锋在狱中也遭到颇有CCP特色的非人道对待，比如被单独囚禁且不能放风，囚室24小时亮灯，令黄之锋难以入睡等。12月3日，香港前民主党立法会议员许智峯正式宣布流亡欧洲。之后他和家人在香港的银行户口便遭中共无理冻结。
-
-事实上，自去年香港爆发反送中运动以来，国际社会对香港人的声援大多是“口惠而实不至”。美国政府对中港官员的制裁，和他们所犯下的滔天罪行相比，依然不成比例。整个文明世界眼睁睁地看着曾经的亚洲金融中心香港，在短短一年之内，被中共极权体制的魔掌所吞噬。正如新中国联邦的创立者郭文贵先生所说，全人类已经并正在为此付出代价。
+[307-3086\_Spanish\_1127-1128\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085108/307-3086_Spanish_1127-1128_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085108/307-3086_Spanish_1127-1128_CCP_Virus_Updates.pdf)
 
 
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

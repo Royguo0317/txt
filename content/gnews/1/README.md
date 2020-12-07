@@ -1,13 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发重磅！美国务院宣布冻结十四名中共国人大常委官员及其直系亲属在美资产并限制入境
-` GM101` [轉載自GNews](https://gnews.org/zh-hans/625890/)
+## 彭培奥：我们将追究北京破坏香港自治的责任
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/625951/)
 
-美东时间12月7号，美国国务院官方发布了“制裁中共国人民代表大会官员破坏香港自治权“的相关声明。声明表示北京（中共）通过人大常委会的行动破坏了香港的立法会席位，削弱了香港人民根据《联合声明》和《基本法》赋予的选举权，证明中共撕毁了其在联合国备案的《中英联合声明》。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07122007/2-12.png)
-声明明确制裁十四名负责制定、通过或实施《中华人民共和国香港特别行政区维护国家安全法》的中共国人大常委官员，分别是王晨、曹建明、张春贤、沈躍躍、吉炳轩、艾力更·依明巴海、万鄂湘、陈竺、王东明、白玛赤林、丁仲礼、郝明金、蔡达峰、武维华。
+- 编辑：Victor Torres
+- 翻译：Ranting
 
-声明表示根据13936号行政命令第四（a）（iii）（A）条、七条规定内容禁止本人及其直系亲属前往美国，冻结被制裁人在美国或美国管辖范围内所拥有或控制的资产，禁止美国人与被制裁人打交道。声明强调美国将继续与盟国和伙伴合作，要求北京（中共）对破坏香港承诺的自治负责，美国再次敦促北京遵守其国际承诺，并听取许多谴责其行动的国家的声音。
+
+***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+**西班牙2020年12月07日电/喜西社——**55分钟前，彭培奥发推：美国将制裁与《国家安全法》的制定、通过和实施有关的中国全国人民代表大会高级领导人。我们将追究北京破坏香港自治的责任。
+
+
+
+> The U.S. is sanctioning the senior leadership of China’s National People’s Congress in connection with developing, adopting, and implementing the National Security Law. We will hold Beijing accountable for destroying Hong Kong’s autonomy. [#StandWithHongKong](https://twitter.com/hashtag/StandWithHongKong?src=hash&amp;ref_src=twsrc%5Etfw) [#FightForFreedom](https://twitter.com/hashtag/FightForFreedom?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Secretary Pompeo (@SecPompeo) [December 7, 2020](https://twitter.com/SecPompeo/status/1335989742819794946?ref_src=twsrc%5Etfw)
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0

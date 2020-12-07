@@ -1,23 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/11/27-28 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/625345/)
+## 北京恐慌:美国近期打压中共政策层出不穷
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/625426/)
 
-战友之家图文摘要及多语组
-
-[307-3086\_English\_1127-1128\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085045/307-3086_English_1127-1128_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085045/307-3086_English_1127-1128_CCP_Virus_Updates.pdf)
-
-[307-3086\_French\_1127-1128\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085009/307-3086_French_1127-1128_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085009/307-3086_French_1127-1128_CCP_Virus_Updates.pdf)
-
-[307-308\_German\_1127-1128\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085101/307-308_German_1127-1128_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085101/307-308_German_1127-1128_CCP_Virus_Updates.pdf)
-
-[307-3086\_Japanese\_1127-1128\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085053/307-3086_Japanese_1127-1128_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085053/307-3086_Japanese_1127-1128_CCP_Virus_Updates.pdf)
-
-[307-3086\_Korean\_1127-1128\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085030/307-3086_Korean_1127-1128_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085030/307-3086_Korean_1127-1128_CCP_Virus_Updates.pdf)
-
-[307-3086\_Spanish\_1127-1128\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085108/307-3086_Spanish_1127-1128_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085108/307-3086_Spanish_1127-1128_CCP_Virus_Updates.pdf)
+- 编辑：Victor Torres
+- 作者：天灭中共777
 
 
+***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-0
+**西班牙2020年12月7日电/西喜社**——环球时报2020年12月07日发表评论文章，标题为《美国近期打压中国政策层出不穷，未来六周对华疯狂举动还有哪些》的评论文章。通篇胡言乱语，牢骚不断，指责川普搞乱美中关系，鼓吹共产主义优越论，渴望抓住中共的提线木偶拜登这根所谓的最后稻草。
+
+文章指责全球知名指数服务公司富时罗素日前宣布将8家中国公司的股票从相关指数中删除。
+
+引用德国《南德意志报》称，美国近期几乎每天都有打压中国的新措施出台，川普似乎要在任期的最后时段，将与中国的对抗推向疯狂的高潮。
+
+并引用最新一期的《亚洲周刊》6日发表的评论说：从突袭伊朗的模式来看，不能排除川普在未来6周进行对华冒险的可能，从台海到南海，都是危险的火药库。川普想做的就是打开美中关系的“潘多拉盒子”，搅乱外交浑水，捞取内政油水。
+
+文章谴责美国国务院在美国当地时间5日发布的一份题为美国投资者正通过主要指数资助恶意中国公司的“事实清单”，是顶着“事实名号”的谎言清单。批评川普政府在挑拨共产党和中国人民的关系，结果将适得其反，并指责美国当局纯粹为了政治诽谤而将中美对话大门关上。
+
+文章还引用了美国CNN 的消息，说拜登团队正在考虑美国驻各国大使的人选，预计明年1月将首先公布几个重要职位的安排，同时引用了英国《快报》的评论，称拜登会尝试将川普一些政策往回推。引用《华盛顿邮报》，敦促拜登应该取消对华关税，打破川普咄咄逼人、无效的对华贸易冒险政策。建立美中关系的新框架应该是拜登政府外交政策的优先事项。
+
+文章最后摘取印度《星期日卫报》的评论说：虽然可以争论到底是共产主义还是资本主义的政治制度更优越，但是毫无疑问，中国目前正在赢得竞争。如果美国没法让自己的国家恢复秩序，那么中国就会在很多方面占据领先地位。
+
+可见，北京对美国近期宣布的对华制裁措施以及自身未来的命运感动极度不安和恐惧。他们似乎已经感受到头上的正义之剑正一寸寸往下斩落。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+
+2+
