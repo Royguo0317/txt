@@ -1,36 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港庇护法案有望周一通过——《香港人民自由与选择法》
-` XMLYG777` [轉載自GNews](https://gnews.org/zh-hans/625832/)
+## 突发：朱利安尼被中共病毒感染
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/623253/)
 
-内新闻/素材/TIME（文清）校对：α-Vega
-
-据希望之声2020年12月7日报道，搁置两个多月的《香港人民自由与选择法》有望于12月7日在众议院选举表决，经国会参众两院表决通过后，递交白宫总统签字生效。
-
-美国之音报道，此项法案目前列为“搁置辩论规则”，指法案不存在争议，获得至少三分之二的议员支持，立法得以进入快速通道，内容上不会再增添新的修正案。因此一般预期，此法案可顺利在美东时间7日星期一下午的投票中获得通过。
-
-根据这一法案，美国政府将为目前已持签证在美国，但返回香港可能面临政治迫害的香港人提供“临时保护身份”，还可以加速处理为逃离政治迫害的香港居民赴美难民申请程序，并将此类别申请排除在美国每年整体难民接受人数限制之外。法案也要求美国政府在移民政策类别上，将有别于中国大陆的移民申请，法案还鼓励理念相近的盟国为受到北京压迫的香港人提供庇护。
-
-总部位于华盛顿的香港民主委员会发声明表示这一法案为面临政治迫害的人提供安全通道和避难所是美国及其盟友可能做的最具体、最切实的事情之一。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07115939/image0-1-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07115950/image0-32.jpg)
-笔者观点
-
-自中国共产党强行推进港版国安法以来，大量的香港人被抓捕、被各种死亡的状态一直在持续。然而国际社会除了发声谴责和一些有门槛的移民政策，实际并没有对香港的人道救援有更多的实质性的帮助。寄希望于美国的香港，在美国都将面临被中共颠覆政权的危机之时，无法避免地面临了秋后算账的凛冽寒冬。
-
-中共更加肆无忌惮的抓捕香港民主人士，最新的消息是流亡英国的香港前立法会议员许智峰透露，他和家人的毕生积蓄的银行账户被冻结。今日香港中文大学毕业生杨子隽等8人被捕，疑因上月参加了中大毕业游行有关。仅这一周之內，前香港民主运动人士黄之峰、林朗彥和周庭被法院以“煽动他人非法集会”判刑7至13.5个月。
-
-在民主自由社会成长的几代香港人必然经历这场腥风血雨的命运，中共妄图将香港变成大陆的想法不久即将破灭，因为灭共是全球的趋势，世界潮流，关乎人类生存的希望，这已经是毫无争议板上钉钉的事实。香港人为自由民主而勇敢抗争的伟大事迹必然会永载史册！希望此法案的通过能够给香港人带来更多生存希望。
-
-新闻来源：
-希望之声/美国之音
-[https://www.soundofhope.org/post/450991?lang=b5](https://www.soundofhope.org/post/450991?lang=b5)
-
-香港01
-[https://www.hk01.com/article/558414?utm/\_source=01appshare&utm/\_medium=referral
-希望之聲 www.soundofhope.org](https://www.hk01.com/article/558414?utm/_source=01appshare&amp;utm/_medium=referral
-希望之聲%20www.soundofhope.org)
+- 编辑：神奇四侠
+- 来源：2pac
 
 
+- ***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
+
+西班牙2020年12月07日电/喜西社——朱利安尼律师感染中共病毒。
+
+北京时间2020年12月7日4：16分，美国总统川普发推文，证明其竞选律师团队主导人朱利安尼感染中共病毒，并认为是朱利安尼是迄今为止纽约市历史上最伟大的市长，并一直不懈地揭露美国历史上最腐败的选举。
+
+川普总统推特链接：[https://twitter.com/realDonaldTrump/status/1335679426516881409](https://twitter.com/realDonaldTrump/status/1335679426516881409)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/15080657/portada-15-11-2020-Gnews.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 0

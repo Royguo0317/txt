@@ -1,23 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/11/27-28 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/625345/)
+## 【热点播报】中共是美国最大的国家安全威胁
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/625489/)
 
-战友之家图文摘要及多语组
+作者：香草山写作组 程万里
 
-[307-3086\_English\_1127-1128\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085045/307-3086_English_1127-1128_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085045/307-3086_English_1127-1128_CCP_Virus_Updates.pdf)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
 
-[307-3086\_French\_1127-1128\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085009/307-3086_French_1127-1128_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085009/307-3086_French_1127-1128_CCP_Virus_Updates.pdf)
 
-[307-308\_German\_1127-1128\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085101/307-308_German_1127-1128_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085101/307-308_German_1127-1128_CCP_Virus_Updates.pdf)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07091812/MOS0648-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E4%B8%AD%E5%85%B1%E6%98%AF%E7%BE%8E%E5%9B%BD%E6%9C%80%E5%A4%A7%E7%9A%84%E5%9B%BD%E5%AE%B6%E5%AE%89%E5%85%A8%E5%A8%81%E8%83%81.jpg)
+美东时间2020年12月6日，美国国家情报总监拉特克里夫接受福克斯采访时说：我们的情报汇总向美国人民显示，中国是美国最大的国家安全威胁，关于此次的新冠病毒全球大流行，中共明知病毒高传染性，还让它从中国扩散到全世界，他们在国内存心蓄意淡化疫情，并对世卫组织施压，从而让病毒扩散到全世界，这不仅破坏了世界经济，在全世界杀死了几百万人，其中包括几十万美国人，也造成了非常恶劣的政治灾难。在美国，疫情不仅影响了人民投票给谁，更影响到怎样投票。当我们讨论到选举安全时必须要明白，从情报界的角度，我们确实已经确认外国势力干预并影响大选，有一点你之前提到的，基因编辑，替换人类的DNA，我们的情报表明中共国正在做这件事。中国有两百万军队，他们正试图通过基因编辑增强这些军人的战斗力，而这只是中国试图统治地球和建立世界秩序的手段之一，人们必须要明白为什么此事如此重要，因为这是一个独裁者政权，他们不关心人民的个体利益。我们已经看到他们对维吾尔人的暴行，他们在香港的所作所为。如果中国统治世界，个人自由和企业将岌岌可危。
 
-[307-3086\_Japanese\_1127-1128\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085053/307-3086_Japanese_1127-1128_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085053/307-3086_Japanese_1127-1128_CCP_Virus_Updates.pdf)
-
-[307-3086\_Korean\_1127-1128\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085030/307-3086_Korean_1127-1128_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085030/307-3086_Korean_1127-1128_CCP_Virus_Updates.pdf)
-
-[307-3086\_Spanish\_1127-1128\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085108/307-3086_Spanish_1127-1128_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07085108/307-3086_Spanish_1127-1128_CCP_Virus_Updates.pdf)
+路德今天的直播说，国家情报总监拉特克里夫讲话都是从情报角度出发，都是有十足的证据，这是拉特克里夫第一次在新闻上说外国势力干预大选。基因编辑增强这些军人的战斗力只是中国试图统治地球和建立世界秩序的手段之一，说明还有很多其他手段。中共对维吾尔人的暴行，及在香港的所作所为，从情报角度讲，美国情报部已完全掌握视频等所有反人类罪的证据。美国国家情报总监说的每件事都能导致中共必完蛋。讲出来是为了让大家提前做好准备。普通老百姓提前撤离，内部人提前准备。尽量减少伤亡，尽量速战速决—-这种明牌就是美国的强大。
 
 
 
-0
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+1+

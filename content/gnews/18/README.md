@@ -1,55 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班农疫情作战室551/552/553期
-` GM47` [轉載自GNews](https://gnews.org/zh-hans/625591/)
+## 【军事快讯】中共舰载无人直升机AR-500B首飞成功，“娃娃机”性能几何？
+` XMLYG777` [轉載自GNews](https://gnews.org/zh-hans/625722/)
 
-战友之家新闻译制组制作
+内军事：鹰(文言) 素材：文朝汗(部落) 校对：七哩香
 
-更多、更新WAR ROOM中文视频，请前往GTV-班农战斗室中文    》》》
+新浪网12月7日转载兵工科技文章，中共最新研制的AR-500B舰载无人直升机顺利首飞，后续将装备水面舰艇，用于海面监视和识别。
 
-[https://gtv.org/user/5e8cf14849080f0e9c6ae5b8](https://gtv.org/user/5e8cf14849080f0e9c6ae5b8)
+AR-500B最大起飞重量500kg，载重70kg，续航时间4小时（使用半径100km），实用升限4000米，最大速度140km/h。受限于尺寸重量较小，所以主要用于海上监管、识别和跟踪，不具备战斗能力。
 
-551：威斯康星州干得漂亮
+对比MQ-8C于2013年首飞，最大起飞重量达2721kg，有效载重达1338kg，续航时间长达15小时，最高时速260km/h，搭载7管APKWS火箭吊舱，不仅具备侦察、瞄准支持能力，更可以提供空中火力支援。
 
-史蒂夫·班农（Steve Bannon），杰克·麦克西（Jack Maxey）和格雷格·曼兹（Greg Manz）讨论了有关冠状病毒大流行的最新消息，预计今天大规模诉讼将在威斯康星州开始。 约翰·弗雷德里克斯（John Fredericks）和杰克·波索比耶克（Jack Posobiec）连线发表见解。
+MQ-8C的续航时间是AR-500B的3倍，载重更是后者的19倍，且除了可以为舰艇提供超视距瞄准能力外，其本身更具备火力打击能力。再者，MQ-8C已有实战应用，而AR-500B依旧在研制阶段，从首飞到服役上还有很大跨度，尚需上舰准备等测试，离AR-500B发挥真正效能还有很大距离。
 
-播出时间：2020年11月30日
+现阶段由于中共航母本身补给周期短，航距小，无自身防卫能力，再加上舰载机缺乏实战能力（8月底披露具备7架歼-15带弹滑跃起飞能力），所以美日印澳等国加大对南海海域的军事演练力度后，辽宁舰、山东舰只能远远躲避。鉴于此，中共为提升舰艇实力，大力发展舰载无人直升机，但是受限于技术落后，研制的AR-500B也只是“娃娃机”水平，只能当个摆设，无助于舰艇本身的监测和实战能力。
 
-==
+本文章仅代表本人个人观点。
 
-
-
-GTV:
-
-[https://gtv.org/video/id=5fce3edf20c9025a87dd34df](https://gtv.org/video/id=5fce3edf20c9025a87dd34df)
-
-552：背水一战
-
-史蒂夫·班农（Steve Bannon），杰克·麦克西（Jack Maxey）和格雷格·曼兹（Greg Manz）讨论了有关冠状病毒大流行的最新消息，预计今天大规模诉讼将在威斯康星州开始。闫丽梦博士和迈克尔·沃尔什（Michael Walsh）连线发表见解。
-
-播出时间：2020年11月30日
-
-
-
-GTV:
-
-[https://gtv.org/video/id=5fce406220c9025a87dd353c](https://gtv.org/video/id=5fce406220c9025a87dd353c)
-
-==
-
-553：溶质
-
-史蒂夫·班农（Steve Bannon），杰克·麦克西（Jack Maxey）和格雷格·曼兹（Greg Manz）讨论了有关冠状病毒大流行的最新消息，预计今天大规模诉讼将在威斯康星州开始。 Boris Epshteyn和阿曼达·海德（Amanda Head）连线发表见解。
-
-播出时间：2020年11月30日
-
-
-
-GTV:
-
-[https://gtv.org/video/id=5fce40e620c9025a87dd3557](https://gtv.org/video/id=5fce40e620c9025a87dd3557)
-
-更多、更新WAR ROOM中文视频，请前往GTV-班农战斗室中文 》》》[https://gtv.org/user/5e8cf14849080f0e9c6ae5b8](https://gtv.org/user/5e8cf14849080f0e9c6ae5b8)
+新闻来源：
+中国舰载无人直升机首飞成功 可形成”蜂群”作战模式
+[https://mil.news.sina.com.cn/zhengming/2020-12-07/doc-iiznctke5204935.shtml(已编辑)](https://mil.news.sina.com.cn/zhengming/2020-12-07/doc-iiznctke5204935.shtml%28已编辑%29)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07111244/image0-31.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07111257/image1-1-9.jpg)
+[中国舰载无人直升机首飞成功 可形成”蜂群”作战模式|中国*新浪军事*新浪网
+来源：兵工科技中国航空新闻网发布消息，11月27日，AR-500B舰载型无人直升机在鄱阳试飞基地成功首飞。整个试飞过程约30分钟，由人工操控无人直升机](http://中国舰载无人直升机首飞成功%20可形成&quot;蜂群&quot;作战模式|中国_新浪军事_新浪网%20来源：兵工科技中国航空新闻网发布消息，11月27日，AR-500B舰载型无人直升机在鄱阳试飞基地成功首飞。整个试飞过程约30分钟，由人工操控无人直升机)
 
 0

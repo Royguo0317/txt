@@ -1,30 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】美国代理防长首访印太 在菲律宾发表强硬文章
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/625509/)
+## 【热点播报】美国司法部长巴尔考虑辞职
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/625538/)
 
-作者：香草山写作组 Wilson
+作者：香草山写作组 七芒星
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07092539/MOS0649-%E3%80%90%E5%86%9B%E4%BA%8B%E5%BF%AB%E8%AE%AF%E3%80%91%E7%BE%8E%E5%9B%BD%E4%BB%A3%E7%90%86%E9%98%B2%E9%95%BF%E9%A6%96%E8%AE%BF%E5%8D%B0%E5%A4%AA-%E5%9C%A8%E8%8F%B2%E5%BE%8B%E5%AE%BE%E5%8F%91%E8%A1%A8%E5%BC%BA%E7%A1%AC%E6%96%87%E7%AB%A0.jpg)美国国防部代理部长米勒(Christopher Miller)（路透社2020年11月13日）
-2020年12月7日，美国国防部代理部长米勒抵达雅加达，开始对菲律宾和印度尼西亚的访问，这是米勒上任以来对印太地区的首次访问。据美国国防部官网12月4日消息，米勒将与两国就双边防务关系，以及确保印太地区的自由与开放举行会谈。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07094522/MOS0650-%EF%BC%BB%E7%86%B1%E9%BB%9E%E6%92%AD%E5%A0%B1%EF%BC%BD%E7%BE%8E%E5%9C%8B%E5%8F%B8%E6%B3%95%E9%83%A8%E9%95%B7%E5%B7%B4%E7%88%BE%E8%80%83%E6%85%AE%E8%BE%AD%E8%81%B7-scaled.jpg)
+根据《纽约时报》周日晚间发布的一份报告，司法部长威廉·巴尔正在考虑在川普总统的第一任期1月20日届满之前辞职。
 
-当天米勒在菲律宾发表的文章中说，根据国际法庭在2016年的裁决，北京对南中国海大部分海域的海权主张是非法的。我这次印太之行的目的是通过多边合作强化应对威胁的能力，继续构建彼此间的联系以击退中共政权的胁迫。
+巴尔曾于1991-1993年间担任乔治·布什政府司法部长，2019年11月被特朗普任命以取代不得力的司法部长杰夫·塞申斯。当黑暗力量（Deep State）诬陷川普总统，与俄罗斯勾结并试图通过穆勒调查将川普总统赶出白宫时，杰夫坐视不管。
 
-在访问印尼和菲律宾之后，米勒将访问位于美国夏威夷州的美军印太司令部，在那里通过视讯出席东盟防长扩大会议。
+然而，面对由奥巴马，乔·拜登，詹姆斯·科米和约翰·布伦南等前白宫高官组成的黑暗力量(Deep State)时，巴尔也未能成功对他们提起诉讼。
 
-为了应对野蛮崛起的中共，川普否定了对中共绥靖的奥巴马亚太政策，是冷战后第一个明确提出以中共国为战略对手的美国总统。
+巴尔为抵抗政变阴谋份子所做的努力被认为是软弱无力的。巴尔说，上周他秘密任命了美国检察官John Durham为特别顾问，继续对政变进行调查，但是特朗普和支持者认为巴尔和Durham未能在11月大选前提出起诉令人失望，因为这样使得政变策划者不仅逃脱了计划，而且还干预了大选。
 
-印太战略把印度和印度洋涵盖在内，对中共形成包围圈。另外，中共和中东之间的油气水陆运输线路都失去了安全保障。
+对于纽约时报此时报导的这个新闻的真实性还得进一步验证，但是对于巴尔的离职明显符合美国绝大部分正义力量的呼声。
 
-参考链接：
-
-[https://world.huanqiu.com/article/40yakkiQqye](https://world.huanqiu.com/article/40yakkiQqye)
-
-[https://www.voachinese.com/a/pentagon-acting-chief-asia-trip-20201207/5689916.html](https://www.voachinese.com/a/pentagon-acting-chief-asia-trip-20201207/5689916.html)
+原文链结：
+[https://www.thegatewaypundit.com/2020/12/attorney-general-barr-considering-resigning-report/](https://www.thegatewaypundit.com/2020/12/attorney-general-barr-considering-resigning-report/)
 
 
 
@@ -34,4 +31,4 @@
 
 圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-2+
+1+
