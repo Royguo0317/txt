@@ -1,24 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 众议院共和党人提出法案废除“全国选民登记法”
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/623560/)
+## 爆革星评：朱利安尼染疫正在好转
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/623616/)
 
-多伦多枫叶农场（原加喜农场）春季
-校对 文锦 上传 云起时
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06185102/%E6%B1%BD%E8%BD%A6.jpg)图片来源：Fox 26 Houston
-亚利桑那州凤凰城的美国保守派新闻和政治网站The Western Journal 12月5月报道，鉴于川普总统和其他人指责民主党人通过大量欺诈活动窃取选举，为了减少选民欺诈的途径，一群众议院共和党人提出了一项法案，以废除1993年的“全国选民登记法”。
+多伦多枫叶农场 文星（一号）
 
-1993年颁布的“全国选民登记法”，又称为“汽车投票人法”，该法案旨在鼓励美国人在申请驾驶执照或与政府进行其他业务时进行投票登记。目前，亚利桑那州共和党众议员安迪·比格斯（Andy Biggs）正在领导这项工作，以废除这个已经存在了数十年历史的法律。比格斯对“汽车投票人法”只要求各州当选民在表格上签字就可以证明选民是美国公民，而没有其他任何身份认证的状况表示关切。
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06190200/R.jpg)图片来自 History.com
+川普总统12月6日发推，纽约历史上至今最伟大的市长—朱利安尼先生，经检测中共病毒阳性。他不知疲劳地揭露美国大选的最大腐败，朱利安尼很快就会恢复健康，我们继续战斗！
 
-据福克斯新闻报道，亚利桑那州的法律要求个人提供公民身份证明，但是联邦法律给了他们机会，可以对’联邦制’选票进行投票，比格斯办公室认为这很容易造成欺诈。
+这一消息牵动了无数正义人士的心。郭先生在G-TV上马上发Getter，也呼吁全球战友为朱利安尼先生祷告。川普总统曾经带领全美国人民一起向上帝祷告，佑护美国人民。祷告的力量是无穷大的。
 
-比格斯向福克斯发表了如下声明：
+刚刚郭先生直播时，接到朱利安尼先生的信息，这预示着朱利安尼先生正在恢复健康。有神的佑护，中共的任何病毒都不会阻止美国灭共的步伐。祝福朱利安尼先生。
 
-“这种宽松的程序，在对选民登记有严格公民身份要求的州进行选民登记投票，对我们选举的完整性构成威胁。所有具有政治倾向的美国人都必须知道我们的选举是在最大的诚信下进行的。这就是为什么我希望我的同事们与我一起支持这项立法，以确保各州而不是华盛顿沼泽来维护选举的完整性，并恢复每个居民对我们选举的诚信有信心。”
 
-随着这次美国总统大选的大规模舞弊，媒体与民主党候选人公开勾结的乱象被揭露，越来越多的共和党人和美国的正义力量站出来监督2020年大选的完整性，维护美国的宪法。 因此，任何想颠覆美国的阴谋都是徒劳的，因为伟大的美国人民会不惜任何代价为美国而战。
 
-[原文链接](https://www.westernjournal.com/house-republicans-introduce-bill-repeal-motor-voter-law/?utm_source=push&amp;utm_medium=westernjournalism&amp;utm_content=2020-12-04&amp;utm_campaign=pushtraffic)
+> .[@RudyGiuliani](https://twitter.com/RudyGiuliani?ref_src=twsrc%5Etfw), by far the greatest mayor in the history of NYC, and who has been working tirelessly exposing the most corrupt election (by far!) in the history of the USA, has tested positive for the China Virus. Get better soon Rudy, we will carry on!!!
+> — Donald J. Trump (@realDonaldTrump) [December 6, 2020](https://twitter.com/realDonaldTrump/status/1335679426516881409?ref_src=twsrc%5Etfw)
+
+
 
 0

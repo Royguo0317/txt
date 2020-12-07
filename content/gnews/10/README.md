@@ -1,35 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】看看由奥巴马时期的二流政客组成的拜登“内阁”到底要做什么？
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/623853/)
+## 脸书删除黑人女共和党人对腐败的密歇根州务卿提出指控的视频
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/623794/)
 
-作者：香草山写作组 Wilson
+多伦多枫叶农场（原加喜农场）阿黎
+校对 文锦 上传 云起时
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06204518/rock-the-vote.png)图片来源：Rock the Vote
+据《门户专家》（The Gateway Pundit ）12月6日报道密歇根州共和党活动人士，克里斯蒂娜·卡拉莫项目主持人克里斯蒂娜·卡拉莫（Kristina Karamo），29年州务卿选举诚信联络人琳达·李·塔佛（Linda Lee Tarver）博士，以及安吉利·约翰逊（Angelic Johnson），特意前往密歇根州兰辛市通知密歇根州民主党州务卿乔斯林·本森（Jocelyn Benson），她们已对他提起诉讼。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
+琳达·李·塔弗博士和安吉丽克·约翰逊做为原告，起诉密歇根州务卿乔斯林·本森泄露密歇根州居民私人信息，本森将密歇根州居民的私人信息，包括社会安全号、出生日期、地址，甚至眼睛的颜色，给了Rock The Vote。
 
+卡拉莫三人就此拍摄了一个视频，并将视频发布在脸书叫做“百分百愤怒”（《100% Fed Up》）的节目上。脸书很快将此视频删除，因此《100% Fed Up》节目把它放到了YouTube上。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06205126/facebook1.png)图片来源：Youtube
+那么Rock The Vote 是一个什么样的组织呢？虽然Rock The Vote声称自己是一个 “值得信赖和有效的无党派 “组织，但它在很大程度上是支持左派的。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06210857/MOS0636-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E7%9C%8B%E7%9C%8B%E7%94%B1%E5%A5%A5%E5%B7%B4%E9%A9%AC%E6%97%B6%E6%9C%9F%E7%9A%84%E4%BA%8C%E6%B5%81%E6%94%BF%E5%AE%A2%E7%BB%84%E6%88%90%E7%9A%84%E6%8B%9C%E7%99%BB%E5%86%85%E9%98%81%E5%88%B0%E5%BA%95%E8%A6%81%E5%81%9A%E4%BB%80%E4%B9%88%EF%BC%9F.jpg)
-2020月12月6日，曾任川普总统国家安全和外交政策咨询委员会成员，现为畅销书作家的肯尼斯‧蒂默曼撰文称，拜登近日公布的“内阁”成员，集中了奥巴马任总统时期的二流政客。
+2016年希拉里·克林顿在总统大选中失利后，Rock The Vote的主席卡罗琳·德威特曾发表声明，声称美国 “正在朝着激进的方向前行”，他将选举结果归咎于 “陈旧而混乱的选举法”、压制选民以及 “整体政治”。 2019年，Rock the Vote散发了一份请愿书，支持废除选举人票制，改用普选制。
 
-曾任克里副手的托尼·布林肯被任命为国务卿。他公开承诺恢复和巴勒斯坦的关系，重新加入WHO（世卫组织），无条件恢复失败的伊朗核协议。
+2009年，Rock The Vote发起了一场多媒体活动，重点支持奥巴马政府颁布的新医保政策-Obama Care，包括一则30秒的电视广告，邀请名人鼓励年轻人 “现在就要求医保”。该广告意在教育年轻选民了解医保改革。配合这则广告，该活动鼓励人们通过签署 “Yes We Care “来要求通过Obama Care。
 
-艾薇尔·海恩斯为国家情报总监。她是约翰·布伦南的得意门生，她曾在布伦南和赖斯领导的国家安全委员会工作，她声称，上任后她将立即停止对大选舞弊的调查，也会停止与美国流氓情报机构、非法监视川普总统2016年竞选活动和川普白宫团队有关的文件解密。
+根据Rock The Vote 的高级职员和董事会成员的身份，卡拉莫三位共和党女士很容易发现密歇根州州务卿乔斯林·本森为了影响密歇根州的选举结果，把所有密歇根州登记选民的社会安全号、地址和其他个人信息给了谁。
 
-史蒂夫·里切蒂为白宫高级顾问。里切蒂曾经是一名超级游说者，于1999年至2000年在商务部长比尔·戴利手下任职期间，努力说服美国国会授予中共「最惠国待遇」，这成为中共赶超美国的马拉松竞赛中，柯林顿送给北京当局的最重要礼物。
+根据卡拉莫在视频中所说，密歇根州有十几万张非法邮寄选票，选票上的选举人信息是哪里来的呢？选票上的签名经过验证了吗？州务卿把选民信息给了Rock The Vote，这些信息是否被用在这十几万张非法选票上了呢？
 
-杰克·沙利文为国家安全顾问。他曾在赫拉里·柯林顿手下长期任职。他曾经在班加西惨剧中扮演重要角色。
+脸书删掉了三位黑人女性对权力说不的视频，我们可以说脸书是种族歧视吗？似乎没有多少这样的声音在主流媒体上传播。如果是三个黑人女性民主党人站出来指控腐共和党人腐败，脸书肯定会大张旗鼓地加以放大和宣传，而且这样的新闻会瞬时间传遍CNN、 NBC、 ABC、CBS、BBC和FOX等主流媒体。
 
-还有其他十几人，他们都是众所周知的沼泽中的大鳄。
-
-以上表明，拜登团夥就是一个犯罪组织，他们和中共是一夥的，他们要在全世界范围内进行“大重置”，将全世界拖入极权政权的统治之下，但是，等待他们的是地狱。
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+[原文链接](https://www.thegatewaypundit.com/2020/12/three-brave-black-female-republicans-file-charges-corrupt-michigan-secretary-state-facebook-censors-silences/?utm_source=Twitter&amp;utm_campaign=websitesharingbuttons)
 
 0

@@ -1,41 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 弗林将军：我们必须致力于为真理而战！
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/623327/)
+## 大选舞弊割裂美国社会
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/623408/)
 
-视频字幕：塔奇克马；听写翻译：势不可挡；校正：ROBERTS；
-
-简评：闻風；组稿编辑：Julia Win；Page：拱卒
-
-**简评：**
-
-弗林将军被特赦后首次接受媒体采访时，明确告知美国人民，美国正面对同深层政府的艰难斗争。作为热愛这个國家的一份子，所有个人困难都挡不住为国家战斗的勇气，且随时会启动网络部队，最终一定会捍卫美国的法律和自由。
-
-弗林将军在视频中说：“我们必须要有耐心，我们必须坚持不懈，我们必须致力于为真理而战”。
-
-**弗林将军接受MG Show的采访**
+- 编辑：Victor Torres
+- 作者：神奇四侠
 
 
+- ***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**视频翻译：**
 
-在过去四年中的某个时间点，我和我的妻子不得不做出重大决定，我可能会在未来的节目中或在接下来的几周和几个月内以其它方式谈论这一点。但是，这个重大的决定使我今天再次站在这里，成为真正的美国自由公民。
+西班牙2020年12月06日电/喜西社——大选舞弊割裂美国社会
+2020年美国大选在中共的操纵下，成了美国建国以来最大的选举舞弊案，而在本周日加利福尼亚州举行的挺川游行中，川普总统支持者的汽车有10多辆遭到不同程度的破坏。
+川普总统的支持者丽莎·卡莱尔说：“您可以不同意我说的，我也可以不同意您说的，但是并不意味我们可以使用暴力手段解决问题”
+选举舞弊一天没有解决，美国社会就会一直被割裂，被媒体蒙蔽的美国人，和心存正义的美国人相互之间的对抗，进一步割裂了美国社会。而这恰恰是中共乐见其成的。
+我们呼吁不要使用暴力手段来解决问题，我们要相信美国的宪法，我们也要相信朱利安尼、鲍威尔、林伍德这些大律师能用法律的手段来捍卫民主和自由，也能捍卫美国的价值观。并且川普政府也已经意识到，谁是背后的操纵者，中共你完了
 
-这是一个从悬崖边退却、还是努力走出深渊并站起来反抗的决定，以不同的方式，直接或间接的方式奋起反抗。
+- 新闻来源：
+- [https://www.oann.com/counter-protesters-vandalize-cars-at-calif-pro-trump-rally/](https://www.oann.com/counter-protesters-vandalize-cars-at-calif-pro-trump-rally/)
 
-使用军事策略击败深层政府的腐败，揭露令人难以置信的舞弊和腐败。我们可以做到。我要告诉人们，因为你的节目有许多支持者，是他们激励了我和我的家人。
 
-我可能拥有世界上最大的“律师事务所”，叫做“数字士兵”，你可以加上专业公司或有限责任公司或任何其它后缀。老实说，很快将会发生一些事情，一些资讯会被曝光，然后突然之间数字”士兵就会出手。他们不仅会启发这个国家的人民，而且还会激励我们拥有的战术法律团队，这个团队最终由你们熟知的美国司法守护天使悉尼·鲍威尔（Sydney Powell）领导。
-
-我们现在面临的是，我要开始探究已经发生的这场灾难性大选的选举系统和操作过程。我要告诉你的听众，请保持镇定，就像有个短语“沉稳男孩”一样，我们最终一定获胜。我们必须要有耐心，我们必须坚持不懈，我们必须致力于为真理而战。
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】-点击spark adobe版
-[!\[\]()!\[\](https://spark.adobe.com/page/QlqtoLnjDGK4V/images/1b3bc01d-b85e-4229-9dc8-751a66915677.jpg?asset_id=bece3603-efa5-4c55-ad54-31163b4ed315&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/QlqtoLnjDGK4V/images/1b3bc01d-b85e-4229-9dc8-751a66915677.jpg?asset_id=bece3603-efa5-4c55-ad54-31163b4ed315&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 0
