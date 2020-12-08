@@ -1,24 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆革星评：朱利安尼染疫正在好转
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/623616/)
+## 【突发】【香港要闻】美国宣布对中港官员实施新一轮制裁名单
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/625828/)
 
-多伦多枫叶农场 文星（一号）
+整撰：文燕
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06190200/R.jpg)图片来自 History.com
-川普总统12月6日发推，纽约历史上至今最伟大的市长—朱利安尼先生，经检测中共病毒阳性。他不知疲劳地揭露美国大选的最大腐败，朱利安尼很快就会恢复健康，我们继续战斗！
+覆核：文粤
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07114956/photo_2020-12-08_00-48-03.jpg)
+香港时间 12月8日 0：50更新 [美国财政部](https://home.treasury.gov/policy-issues/financial-sanctions/recent-actions/20201207?fbclid=IwAR1WvVbTLzhOsNogG6I2NH-wNyedMXotQSHiyaFM23T9UQXUXxdww8ewFKo) 公布制裁名单
 
-这一消息牵动了无数正义人士的心。郭先生在G-TV上马上发Getter，也呼吁全球战友为朱利安尼先生祷告。川普总统曾经带领全美国人民一起向上帝祷告，佑护美国人民。祷告的力量是无穷大的。
+美国总统特朗普将在1月20日卸任，他在头四年任期最后向北京施压。根据最新消息，当地时间12月7日，华府将宣布对中国和香港官员进行新一轮制裁。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07115046/image001-3.png)北京谴责美国对香港的相关制裁是对中国内政的干涉。图为港人示威时高举盼美国声援海报。 （德国之声中文网)
+【美国之音】指，路透社引述美国官员的话以及另外两个消息来源发表了一份独家报道，称最新一轮制裁与北京和香港当局取消四名民主派人士的立法会议员资格有关。其中的两个消息来源称，特朗普政府这次制裁的官员可能多达14人，包括中国全国人大常委会委员、中共以及香港政府官员，制裁的手段包括冻结资产和禁止一些金融交易。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07115033/image003.png)香港立法会民主派议员集团辞职后，立法会里民主派议员的席位空荡荡。 （2020年11月12日）
+【立场新闻】11月12日曾报道，美国国家安全顾问奥布莱恩（Robert C. O’Brien）就香港4 名民主派立法会议员被取消议席发声明，指中共公然违反《中英联合声明》及《基本法》，警告会继续制裁扼杀香港自由的人。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07115057/image005-1.png)
+奥布莱恩在声明指，北京的行动无疑违反了《中英联合声明》内对香港人的承诺，而《基本法》下的一国两制现在只不过是用来掩饰中共扩大在香港专政的遮丑布。美国将继续以《香港人权与民主法》，《香港自治法》和《香港正常化行政命令》所赋予的所有权力，查明和制裁那些扼杀香港自由的人。
 
-刚刚郭先生直播时，接到朱利安尼先生的信息，这预示着朱利安尼先生正在恢复健康。有神的佑护，中共的任何病毒都不会阻止美国灭共的步伐。祝福朱利安尼先生。
+中共强行在香港推行【港版国安法】之后，特朗普政府今年8月对香港特首林郑月娥等11名官员，指他们积极参与了北京推动的损害香港自由和民主的行动。
 
+上个月，美国再指定四名北京和香港官员为制裁对象，他们分别是郑若骅、邓炳强、刘赐蕙及李柱华。华府谴责这些官员与实施国安法和「威胁香港的和平、安全和自治」有关。
 
+战友观点：
 
-> .[@RudyGiuliani](https://twitter.com/RudyGiuliani?ref_src=twsrc%5Etfw), by far the greatest mayor in the history of NYC, and who has been working tirelessly exposing the most corrupt election (by far!) in the history of the USA, has tested positive for the China Virus. Get better soon Rudy, we will carry on!!!
-> — Donald J. Trump (@realDonaldTrump) [December 6, 2020](https://twitter.com/realDonaldTrump/status/1335679426516881409?ref_src=twsrc%5Etfw)
+中国人大常委会授权香港特区政府以「危害国家安全」等借口，打压有民意授权的议员，并取消了四名香港泛民议员的资格，引发香港立法会全体泛民派议员集体辞职，以示抗议。
 
+美国、澳大利亚、加拿大、新西兰外长和英国的外长此后发表联合声明说，北京在香港实施《国家安全法》并推迟立法会选举后，又用新规则取消香港立法会议员资格，进一步损害了香港的高度自治、权利和自由。
 
+港府上个月取消了4名反对派议员的资格，造成民主派议员总辞。这件事进一步引起西方国家警惕，由澳大利亚、英国、加拿大、新西兰和美国组成的「五眼联盟”」情报共享组织11月表示，此举在压制异议者，呼吁北京收回成命。
+
+这次的制裁，明显华府兑现了上个月顾问奥布莱恩对港人的承诺。我们明白若中共没钱，自然对美国的威胁减少，政府没了钱，社会所有的发展都会停顿。我们感谢美国与港人站在一起制裁中共和香港舔共一众官员，继续在国际舞台上向中共施压，制裁的手段包括冻结资产和禁止一些金融交易。使中共的傀儡有所顾忌。
+
+香港特首林郑月娥早前在接受媒体专访时承认，美国实施的经济制裁对她和家人产生了影响，称她现在要以现金方式领取薪水，但表示自己能为国家安全效力，是她的「荣誉」。足见林郑的恬不知耻，甘愿与魔鬼共舞，预料她将来的日子会更加悲凉。
+
+资料来源：[美国之音](https://www.voachinese.com/a/us-hk-sanctions-20201207/5689865.html)、[立场新闻](https://www.thestandnews.com/politics/%E4%BA%BA%E5%A4%A7%E6%8E%88%E6%AC%8A-dq-%E7%BE%8E%E5%9C%8B%E5%AE%B6%E5%AE%89%E5%85%A8%E9%A1%A7%E5%95%8F-%E4%B8%AD%E5%9C%8B%E9%81%95%E5%8F%8D%E6%B8%AF%E8%87%AA%E6%B2%BB%E6%89%BF%E8%AB%BE-%E8%AD%A6%E5%91%8A%E7%B9%BC%E7%BA%8C%E5%88%B6%E8%A3%81/)
 
 0

@@ -1,55 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《外国公司问责法案》获得众议院一致通过
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/626112/)
+## 从一起离奇的车祸, 看乔治亚州的政治博弈
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/627105/)
 
-*新闻来源：应对当前中共国威胁委员会（CPDC）网站；发布时间：2020年12月3日*
+作者：翼族
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07231201/Picture105.png)图片来源：墨尔本雅典娜农场设计组
+上周六，川普总统来到乔治亚州参加为两位共和党参议员候选人拉票的集会。在声势浩大的集会后，川普总统周一在推特上连发两推，对乔治亚州州长和州务卿火力全开，进行了严厉的指责，“乔治亚进行（选票）签名验证的话，我们就会轻松获胜，而共和党籍州长却拒绝了，这家伙到底有什么毛病？他要隐瞒什么？”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07231208/Picture106.png)图片来源：推特截图
+以及，“州长Brian Kemp和州务卿Brad Raffensperger不愿进行签名验证，人们已经愤怒！”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07231251/Picture107.png)图片来源：推特截图
+而饱受指责的乔治亚州坎普州长，在前一天被川普总统批评后，他在推特中自我辩驳，“我已经公开呼吁了三次签名认证（11/20，11/24，12/3）……”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07231224/Picture108.png)图片来源：推特截图
+可见发生在乔治亚州的政治博弈已经完全公开化。而就在数小时前，乔治亚州的州务卿布拉德·拉芬斯佩格（Brad Raffensperger）再一次站出来公开宣布是乔·拜登赢得了该州的总统大选。根据《纽约时报》的报道，这已经是该州第三次点票来证明川普总统输掉了选举。州务卿周一上午说，“我们现在已经对合法投票进行了三次统计，结果保持不变。根据机器重新计票的结果显示，拜登先生的领先优势约为12,000票。”
 
-*翻译/简评：随波逐流；校对：X-Wing飞得更高；审核：万人往；Page：拱卒*
+但是，川普总统团队质疑的是乔治亚州选票的真实性，要求对选票上的签名进行认证，而并不是对现有的假选票进行重新点数。由此可见，乔治亚州的坎普州长和拉芬斯佩格州务卿只是在张冠李戴，他们为什么要转换概念说谎？
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gExUnvGENoCer/images/57cf529d-6047-45c6-b0e9-cb274027efa5.jpg?asset_id=40dc6545-6c35-4ae7-a880-7b2f3d7b11df&amp;img_etag=%22d22e2e561b63b9c8cb2c7ca694f74445%22&amp;size=1024)](https://spark.adobe.com/page/gExUnvGENoCer/images/57cf529d-6047-45c6-b0e9-cb274027efa5.jpg?asset_id=40dc6545-6c35-4ae7-a880-7b2f3d7b11df&amp;img_etag=%22d22e2e561b63b9c8cb2c7ca694f74445%22&amp;size=1024)
+继上周乔治亚州听证会上爆出众多选举舞弊的确凿证据和造假视频之后，身为共和党人的坎普州长和拉芬斯佩格州务卿，面对巨大的舆论和法律压力，依旧为造假的拜登站台。人们不禁要问，到底是什么邪恶的力量在控制着这些腐败的官员？也许发生在上周的一起离奇车祸，能够给大家一点启示。
 
-**简评：**
+根据《亚特兰大宪法日报》的报道，乔治亚州共和党参议员候选人凯利·洛夫勒（Kelly Loeffler）的一位竞选团队工作人员，12月4日在南乔治亚州发生的车祸中丧生。因为这起事故，洛夫勒取消了她与坎普州长和彭斯副总统会面的计划。
 
-应对当前中共国威胁委员会（CPDC）昨天在其网页上发文赞扬了国会采取一致行动阻止未经审计的中共国公司进入美国资本市场。 CPDC是2019年3月专为解决中共国对美国威胁而成立的，国会两党能如此一致通过《外国公司问责法案》，CPDC功不可没。它不仅成功地促成国会两党领袖们齐心协力保护美国投资者和退休金储蓄者免受中国共产党控制的欺诈性公司的侵害，也将以实际行动严厉打击美国华尔街那些唯利是图的中共代言人。
+在本次事故中丧生的哈里森·迪尔（Harrison Deal），今年20岁，是洛夫勒（Loeffler）的年轻助手，也是参议员戴维·珀杜（David Perdue）的前实习生，同时也是坎普州长女儿的男朋友。
 
-中共不仅是美国的威胁，更是全世界的威胁。CPDC成功唤醒了美国并引发了全球的关注，它存在的意义不仅是拯救美国，也将拯救其他各国，尤其是在共产集权下饱受欺压折磨的中国人民。
+普尔（Pooler）警方女发言人林赛·海因茨曼（Lindsey Heintzman）说，事故发生在11月4日周五上午10点左右，哈里森·迪尔在普尔大路附近的I-16东高速公路的三车相撞中死亡。据海因茨曼说，普尔警方尚未找到发生车祸的确切原因，目前正在继续调查。她补充说，车祸中的其他三人只受到轻伤，并在现场接受治疗。
 
-**原文翻译：**
+由于迪尔的特殊身份，还有车祸发生的这一敏感时间点，本次车祸引起了乔治亚州人们的普遍质疑。从现场照片来看，车辆受到非常严重的损坏，几乎被烧毁殆尽。而且有很多附近的居民在普尔警方的脸书下发文说，当时听到巨大的爆炸声。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07231238/Picture109.png)图片来源：[https://www.ajc.com](https://www.ajc.com/)
+推特上有人质疑，“您是否认为，乔治亚州坎普州长女儿的男友哈里森·迪尔（Harrison Deal）被暗杀？是因为（听证会）发布了“被劫”的录影带后，坎普州长必须翻转并公开呼吁进行签名审核？这场车祸就是一个地狱之门…”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07231241/Picture110.png)图片来源：推特截图
+正如这位推主所质疑，很有可能就是选举舞弊的幕后黑手们制造了这起车祸，以此来警告坎普州长以及相关的造假官员，不要进行选票的签名认证。
 
-**新闻发布：委员会赞扬国会采取一致行动阻止未经审计的中共公司进入美国资本市场**
+正如这场离奇的车祸，以及朱利安尼先生被高剂量投毒，在这场灭共的终极之战中，中共明显已经杀红了眼，一切的黑招都有可能使用，所以正义的力量们必须保持万分的警惕。一切都已经开始！
 
-### 草案将终结我们的敌人恶意进入美国的特权
+(文章内容仅代表作者观点)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gExUnvGENoCer/images/e89b61f8-6099-4a6a-8cf2-4d6787631137.jpg?asset_id=69b539d7-dc84-464e-96db-24f66d5c80c5&amp;img_etag=%222042c26bd34f663ecbbfe120c65a6ebd%22&amp;size=1024)](https://spark.adobe.com/page/gExUnvGENoCer/images/e89b61f8-6099-4a6a-8cf2-4d6787631137.jpg?asset_id=69b539d7-dc84-464e-96db-24f66d5c80c5&amp;img_etag=%222042c26bd34f663ecbbfe120c65a6ebd%22&amp;size=1024)
+参考链接：
 
-华盛顿特区—应对当前中共国威胁委员会（CPDC）昨天盛赞众议院两党高度一致地通过了《外国公司问责法案》，该法案于今年早些时候在同一基础上获得了参议院的通过。该法案最初是由路易斯安那州共和党参议员约翰·肯尼迪（John Kennedy）和马里兰州民主党参议员克里斯·范·霍伦（Chris Van Hollen）共同发起的，旨在结束允许未经审计甚至欺诈的中共公司在不遵循其美国同行必须遵守的相同的会计标准、法规、规章制度的情况下利用美国投资者的疯狂做法。
+- [https://www.nytimes.com/live/2020/12/07/us/joe-biden-trump?smid=tw-nytimes&smtyp=cur#georgia-recertifies-election-results-affirming-bidens-victory](https://www.nytimes.com/live/2020/12/07/us/joe-biden-trump?smid=tw-nytimes&amp;smtyp=cur#georgia-recertifies-election-results-affirming-bidens-victory)
 
-在领先的独立风险分析公司RWR咨询小组的工作指导下，CPDC一直是提高人们对这一秘密协议的战略和财务风险的认识的主要推动者，2013年5月，时任副总统乔·拜登(Joe Biden)大力支持的一份谅解备忘录使该协议成为可能。
 
-应对当前中共国威胁委员会主席布莱恩·肯尼迪（Brian Kennedy）在庆祝肯尼迪·范·霍伦（Kennedy-Van Hollen）法案得到众议院通过时发言说：“应对当前中共国威胁委员会非常满意它在2019年成立时要做到的使美国人民和他们选出的代表意识到中国共产党构成的致命威胁的工作进程—而且我们甚至将中共从极不可靠上升为更致命的威胁。事实上整个美国国会现在都一致同意这一广为热议的关于当前和未来日益增加的来自中共威胁的观点，并承认绝不能由大多数不知情的美国个人和机构投资者来承担。”
+- [https://www.ajc.com/news/breaking-loeffler-cancels-rally-plans-after-campaign-staffer-dies/BARFFD7WYND27A2M57BMIRP26M/](https://www.ajc.com/news/breaking-loeffler-cancels-rally-plans-after-campaign-staffer-dies/BARFFD7WYND27A2M57BMIRP26M/)
 
-在首席执行官克里斯托弗·拉科维拉（Christopher Iacovella）强大领导下的美国证券协会（ASA）是值得信赖的，能使国会认识到有必要对这些新兴的全球和国内政治现实采取行动。
 
-拉科维拉先生指出：
-
-“美国证券协会赞扬肯尼迪和范霍伦两位参议员以及国会两党领导齐心协力保护美国投资者和退休金储蓄者免受中国共产党（CCP）控制的欺诈性公司的侵害。长期以来，中共一直在利用美国投资者为其网络军队提供资金，而网军利用科技剥夺公民自由、侵犯人权以及破坏环境。
-
-有趣的是，就在国会采取的强有力行动的同一天，《华尔街日报》发表了题为“中共国在美国只剩下一个强大的朋友：华尔街”的文章，在文章中描述了中共如何在美国养肥了北京的银行家，如何颠覆性地把他们转变成愿意为美国敌人增加影响力的代理人—在此过程中，将美国投资者数万亿的资本置于风险之中并使投资者更大胆投入，同时也强大了我们曾面对的最大敌人。
-
-“当前危机委员会”说：中共国非常认可美国证券协会的建议，即美国证券交易委员会“行使官方权力迫使美国交易所到2021年6月（强调）将不符合美国审计要求的中共国公司摘牌。” 这将为任何被认为合适的中共公司提供充足的时间，允许它们进入我们的资本市场，以符合我们的法律法规，并保护美国投资者免受那些拒绝这样做的公司的伤害。同样重要的是，要保持警惕，绝不允许华尔街及在华盛顿特区的盟友已经用过的见利忘义的、欺诈性的“变通办法”取得成功。
-
-[原文链接](https://presentdangerchina.org/2020/12/release-committee-applauds-unanimous-congressional-action-to-block-unaudited-c-c-p-companies-access-to-u-s-capital-markets/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/gExUnvGENoCer/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/gExUnvGENoCer/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/gExUnvGENoCer/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
-0
+2+

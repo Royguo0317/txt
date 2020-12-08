@@ -1,51 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅：重大国家安全问题显示中共国与多米尼（Dominion）投票机有关
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/626270/)
+## 突发！“中共超限生物武器”新冠病毒二次爆发，四川省委书记彭清华宣布进入战时状态
+` GM101` [轉載自GNews](https://gnews.org/zh-hans/627304/)
 
-- 编辑：Victor Torres
-- 翻译：Goodgo
+北京时间12月8日上午11点2分，四川省人民政府官网发布了关于新冠病毒二次爆发的会议。会议由四川省委书记彭清华主持召开，彭清华强调响应习总书记号召让四川迅速进入战时状态，把本次疫情影响控制在最小范围。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08003637/1-40.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08003646/2-14.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08003652/3-3.png)
+会议明确近期成都市郫都区郫筒街道太平村发现新冠肺炎确诊病例证明疫情出现警报，政府须充分利用大数据、社区网格化管理等信息化手段精准管控密切接触者。加强对农贸市场、大型商超、冷链物流、隔离场所及其从业人员的排查力度，全面开展重点场所消杀工作，同时做好进口冷链食品新冠病毒核酸采样检测，严防疫情输入。
+
+编者认为，四川省本次以疫情为由宣布进入战时状态纯属为达到政治目的，一举多得如下：
+
+1. 造假境外输入病例，将中共制造并释放的“超限生物武器”新冠病毒造成的伤亡、经济损失嫁祸给国际社会；
+2. 以疫情为由转移中国人民视线和矛盾，试图将中共执政造成的经济崩溃、强拆、活摘器官、奴杀人民等暴行隐藏；
+3. 以疫情为由，利用大数据、军警等国家机器对人民进行管控奴役，为后续计划供应做铺垫。
 
 
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-**西班牙2020年12月07日电/喜西社——**重大国家安全问题 – 中共国公司生产的设备在多米尼机器上安装！
-
-美国现代自由之儿女正在拯救我们的国家！
-
-一夜之间（感谢Rosco Davis），据一篇推文报道，一家中共国企业所有公司是多米尼投票机使用的调制解调器的制造商。
-
-据另一个互联网英雄称，多米尼使用Edevice CellGo的蜂窝调制解调器。蜂窝调制解调器的费用列在密歇根州Calhoun县的设备清单中。
-
-这些机器盒调制解调器根本不该在美国大选中使用，太骇人听闻了！
-
-有了这些设备就可以远程接入、监控并且可能实时操纵投票机和数据。
-
-Edevice是被一家中共国公司在2016年9月买下：
-
-iHealth是天津安灯集团的美国子公司，花费1.06亿美元收购法国Bordequx的eDevice公司。两家公司都提供移动健康监测设备。eDevice利用其专有技术将患者与大型医疗技术公司和医疗机构联系起来。iHealth总部位于加州Mountain View，提供基本的医护监测设备和一款连接患者的ios智能手机应用。两年前，iHealth从中国电子企业小米创投融资了2500万美元。更多详情。。。。。。
-
-Edevice是由法国开发的专业连接设备。
-
-根据一份在选举中使用的设备说明书：“监听器使用EMS服务器和手机调制解调器，对所有分区的结果进行列表、报告、删除和备份。”
-
-另一个关于密歇根州与多米尼合同的信息展示了系统中嵌入Cell Go连接设备的图标。
-
-密歇根州合同也将Cellgo设备列到了合同中。
-
-我们有证据表明这些设备在威斯康辛州被批准购买了：
-
-在佐治亚州这些设备被包括在多米尼准备的信息请求（RFI）中，我们知道多米尼在整个州被使用了。
-
-这是一个巨大的国家安全危机。为什么美国在使用投票机的连接设备？为什么我们要使用和中共国有关系的连接设备？
-
-**原文链接**：[https://www.thegatewaypundit.com/2020/12/breaking-huge-major-national-security-issue-identified-related-chinas-connection-dominion-voting-machines/](https://www.thegatewaypundit.com/2020/12/breaking-huge-major-national-security-issue-identified-related-chinas-connection-dominion-voting-machines/)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+当习近平、王岐山、许其亮三人决定向全球投放“中共超限生物武器”的时候，就注定了中共的灭亡。中共试图操控美国大选、毒害川普总统、朱利安尼的行为更是激怒了美国人民，独裁者的下场总是惊人的一致，墙内的同胞须拿出破釜沉舟的勇气度过黎明前的黑暗。
 
 0

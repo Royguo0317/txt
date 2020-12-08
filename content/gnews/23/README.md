@@ -1,28 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 彭培奥：我们将追究北京破坏香港自治的责任
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/625951/)
+## 【路德社】【精华版粤语快报】12.06：朱利安尼先生确诊中共病毒 战友们纷纷为其祈祷
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/626942/)
 
-- 编辑：Victor Torres
-- 翻译：Ranting
+制作单位：战友之家-粤语组
 
-
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-**西班牙2020年12月07日电/喜西社——**55分钟前，彭培奥发推：美国将制裁与《国家安全法》的制定、通过和实施有关的中国全国人民代表大会高级领导人。我们将追究北京破坏香港自治的责任。
+制作团队：文东、一帘幽梦、麻辣汤
 
 
 
-> The U.S. is sanctioning the senior leadership of China’s National People’s Congress in connection with developing, adopting, and implementing the National Security Law. We will hold Beijing accountable for destroying Hong Kong’s autonomy. [#StandWithHongKong](https://twitter.com/hashtag/StandWithHongKong?src=hash&amp;ref_src=twsrc%5Etfw) [#FightForFreedom](https://twitter.com/hashtag/FightForFreedom?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Secretary Pompeo (@SecPompeo) [December 7, 2020](https://twitter.com/SecPompeo/status/1335989742819794946?ref_src=twsrc%5Etfw)
+摘要:
 
+朱利安尼先生今天遭到中共的病毒攻击而确诊；法律专家称法律战将上最高院并5:4裁定选举日八点后选票无效；美情报总监在福克斯历数中共罪状或为开战做铺垫；密歇根州也开始进入对多米尼投票机的司法取证阶段；威斯康辛州也即将就选举违规展开听证会；川普总统在集会上表示绝不退缩放弃；美国已证实美国在中国、古巴等地的外交官身体出现问题；中共仍在继续疫苗战略
 
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+[【路德时评】原视频链接](https://youtu.be/X6r9Acm7c1c)
 
 0

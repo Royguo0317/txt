@@ -1,31 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】愿老英雄早日平安归来
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/625792/)
+## 乔治·索罗斯与Smartmatic有什么关系
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/626741/)
 
-作者：香草山写作组 宁静致远 校对/发稿：飞虹
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07232234/1200px-George_Soros_-_Festival_Economia_2012_01.jpeg)图片来源：[Soros Fund Management – Wikipedia](https://en.wikipedia.org/wiki/Soros_Fund_Management)
+《布萊巴特》（ Breitbart） 12月6日报道，亿万富翁左翼政治捐助者和慈善家乔治·索罗斯（George Soros）任命拥有Smartmatic投票软件公司的SGO董事长马克·马洛奇·布朗（Mark Malloch-Brown）担任其全球组织–开放社会基金会(Open Society Foundation)的新总裁。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07015922/logo-3-1-1.jpg)
+在12月4日的一份新闻稿中，开放社会基金会宣布，帕特里克·加斯帕德（Patrick Gaspard）决定在年底辞去开放社会基金会总裁的职务。 在他的三年任期内，他面临着对全球开放社会的重大威胁，包括专制政权的崛起和CCP COVID-19病毒在全球的传播。 在他干练的领导下，开放社会基金会比以往任何时候都更加强大。接替他担任总裁的将是马克·马洛奇-布朗(Mark Malloch-Brown)，他是前联合国副秘书长和英国大臣，目前在基金会的全球理事会任职。马洛奇-布朗将于1月1日接任总裁一职。
 
+马洛奇-布朗是SGO公司的董事长，该公司是Smartmatic的母公司。SGO宣布，马洛奇-布朗将卸任董事长一职，接任索罗斯公司的新职位，并肯定了他在 “Smartmatic公司的工作，该公司自称是世界领先的选举技术公司，其系统在五大洲安全处理过50多亿张选票，安全漏洞为零。”
 
+律师西德尼·鲍威尔(Sidney Powell)指出，Smartmatic是两家被起诉的公司之一，Smartmatic和Dominion投票机器公司一起被指控在2020年的大选中存在大规模的选举舞弊行为。美联社说，Dominion公司不属于Smartmatic，显然只在2020年选举中向全美30多个州提供了软件。 尽管如此，该公司已成为新闻焦点，而且索罗斯与民主党有密切联系。
 
-昨天川普总统的推特宣布，有“美国市长”之称的川普总统私人大律师朱利安尼老先生被确诊感染了中共病毒。另据消息，老先生已经入住华盛顿特区的乔治敦大学医学中心（Georgetown University Medical Center）入院治疗。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07115623/caef76094b36acaf7625d44088b03e1700e99c32.jpg)图片来源：CNN
-朱利安尼老先生是川普总统核心圈的重要领军人物。自大选之日以来，帮助川普总统奔走在各个摇摆州，日夜舟车劳顿，揭露大选舞弊真相。就在离大选结束只有40来天的重要关头，终于中招感染了中共病毒。除了朱利安尼老先生，继白宫新闻秘书凯莉•迈肯妮感染之后，川普总统及第一夫人，还有小儿子巴伦、大儿子及其女友接连感染。包括政治顾问凯利安•康威，川普总统竞选顾问科里•莱万多夫斯基，HUD秘书本•卡森，还有朱利安尼老先生的儿子, 即川普总统的特别助理安德鲁•朱利安尼，这些川普总统核心圈的重要人士，至少有40人相继被感染中共病毒。
+《纽约时报》最近报道称，有关索罗斯对Smartmatic或其运营有任何影响力的猜测已经被彻底揭穿，该公司并不是索罗斯所有。索罗斯与该公司的联系并不密切，主要是通过他与Smartmatic董事长马克•马洛奇-布朗的关系。马洛奇-布朗是索罗斯名下开放社会基金会的董事会成员。
 
-在人们惊讶悲愤之余，不禁发出疑问，为何这个病毒可以如此精准而又智能地打击川普总统的核心圈? 而拜登竞选团队只有二人被感染?再看看最早发现病毒的中共国，从年初大流行至今，中南坑里的最高层官员们未有一人被感染! 事出反常必有妖! 唯一的正解只能是，这个病毒是可控制的，并被操控的，那么它就不是自然的，是有主人的! 就是这个病毒的主人，它操控着受感染人群! 它操控着受感染的时机! 就是这个病毒的主人，正在操控着美国人的生存环境，操控着美国人的思想，甚至操控着美国人的选举方式与结果。而且这个病毒的主人，它已经操控了中华大地70余年，那里的人民犹如提线木偶，被剥削奴役着。只能披星戴月地赶路，不敢抬头问问前程。
+[原文链接](https://www.breitbart.com/politics/2020/12/06/george-soros-appoints-chair-of-smartmatic-parent-company-to-lead-open-society-foundations/)
 
-今天，我们新中国联邦人大声说出CCP 病毒真相，并支持美国追求公平公正的选举，就是要告诉世人，我们与中共国不一样，我们不愿意再被CCP 所代表，不愿意再被CCP 所奴役！此时此刻，我们新中国联邦人为朱利安尼老英雄祈祷，愿他老人家早日康复归来! 归来之日，就是斩妖除魔之时! 我们还要为文贵先生直播中提到的，被中共列入消灭名单上的林伍德大律师，鲍威尔大律师祈祷平安。中共这只妖魔——你完蛋了!
+翻译报道： Alton
 
-（文章仅代表个人观点）
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-0
+3+
