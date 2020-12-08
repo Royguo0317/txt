@@ -1,30 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯：川普总统将否决《国防授权法案》
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/628869/)
+## 中共国禁止包括猫途鹰(TripAdvisor)在内的105款应用程序
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/629791/)
 
-编辑：路德社精选新闻专栏组
+翻译：康州盘古农场- Bruce
+校对：康州盘古农场- 烟波浩淼
+审核：康州盘古农场- V
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08154113/TripAdvisor.png)猫途鹰(TripAdvisor)在被禁止的应用程序列表中，但目前还不清楚原因。
+中共国已经从其应用商店中删除了105个应用程序，作为消除与色情、卖淫、赌博和暴力有关的内容的运动的一部分。
 
-2020年12月8日，川普总统发推：我希望众议院共和党人投票反对这个漏洞百出的《国防授权法》（NDAA），我将否决它。NDAA必须包括终结230条款（出于国家安全目的），保留国家的遗迹，并允许在外国领地减少5G和军队。
+大多数被禁的应用程序是中共的，但美国旅游应用程序猫途鹰(TripAdvisor)也被列入名单。
 
+根据中共网络空间管理局的说法，所有应用程序都违反了三项网络法律中的一项，尽管它没有提供细节。
 
+此前，美国第二家法院裁定反对禁止TikTok（注：美国版的抖音）的计划。
 
-> I hope House Republicans will vote against the very weak National Defense Authorization Act (NDAA), which I will VETO. Must include a termination of Section 230 (for National Security purposes), preserve our National Monuments, & allow for 5G & troupe reductions in foreign lands!
-> — Donald J. Trump (@realDonaldTrump) [December 8, 2020](https://twitter.com/realDonaldTrump/status/1336303563425910785?ref_src=twsrc%5Etfw)
+美国地区法官卡尔·尼科尔斯（Carl Nichols）说，川普总统以安全为由试图禁止这款中共视频分享应用时越权了。他是第二位支持TikTok的法官。
 
+在北京最新的打击行动中，大多数应用都是国内应用，当局表示，禁令是针对公众 “认为具有攻击性 “的内容。
 
+目前还不清楚猫途鹰(TripAdvisor)被禁的原因。 BBC已联系该公司发表评论，但尚未收到回应。
 
-I hope House Republicans will vote against the very weak National Defense Authorization Act (NDAA), which I will VETO. Must include a termination of Section 230 (for National Security purposes), preserve our National Monuments, & allow for 5G & troupe reductions in foreign lands!
+近几个月来，中美之间的紧张关系在网络空间日益上演。
 
-Link: https://twitter.com/realDonaldTrump/status/1336303563425910785
+当川普总统在夏天宣布 TikTok禁令时，中共当局指责美国采取欺凌手段，并表示将采取 “必要措施 “维护中共企业的利益。
 
-川普总统再一次针对《国防授权法》未包含终结230条款发推，首次要求众议院共和党人投票反对，并公开表示将否决此NDAA。川普总统遭遇重重阻碍，表明共和党内部仍有人不支持废除230条款，选择与中共和美国邪恶势力为伍，但同时也暴露出敌人的恐惧所在。230条款的废除将彻底击溃中共引以为豪的海外媒体宣传武器，让正义力量重新夺回话语权，加快真相的传播和民意的唤醒。因此川普总统誓要终结230条款，捍卫真相和言论自由。
+中共的互联网仍然受到严格监管，美国公司谷歌、脸书和推特都被封杀。
 
-本文作者：Stranger
+原文来源：BBC 新闻
 
-审核校对：玫瑰天空
-
-上传排版：青葫芦娃
+原文链接：https://www.bbc.com/news/technology-55230654
 
 0

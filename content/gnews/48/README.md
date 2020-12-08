@@ -1,32 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯：马杜罗再一次操纵选举，真的赢了吗？彭培奥发推表示不认同！
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/627571/)
+## 文贵说｜系列图片连载（六十九）
+` GM98` [轉載自GNews](https://gnews.org/zh-hans/629095/)
 
-出品: 《路德社》 编辑：《路德社》精选新闻专栏组
+## 477.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08102759/207.jpg)
+佛家讲的你的业障还是你的真正的，给你积的福德都是你的。你给不了别人，别人也给不了你，他也拯救不了你。
 
-法新社在12月7日报道说委内瑞拉6日举行国民议会选举，据初步结果显示，总统马杜罗领导的执政党统一社会主义党居于领先地位，在520万选票中获得67.7%的支持率。
+——郭文贵先生2020年8月9日
 
+## 478.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08103016/208.jpg)
+不要怨恨这个社会，你更不要仇恨这个社会，没有人欠你的。
 
+——郭文贵先生2020年8月9日
 
-> The U.S. condemns the illegitimate Maduro regime’s fraudulent Dec. 6 legislative elections. They do not meet any minimum standard of credibility and are nothing more than an attempt to steal Venezuela’s democratic future. We call on all countries to reject this electoral sham.
-> — Secretary Pompeo (@SecPompeo) [December 7, 2020](https://twitter.com/SecPompeo/status/1335972108996841472?ref_src=twsrc%5Etfw)
+## 479.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08103103/209.jpg)
+因为你有怕，你就有在乎；你有在乎，你就有更多的欲望，有更多的想解决这个怕。你永远在人生这种最低的畜生道都不如的里边轮回，因为你的恐惧。
 
+——郭文贵先生2020年8月9日
 
+## 480.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08103151/210.jpg)
+只想赢不想输你永远赢不了。你怕死你永远不可能是成功者。
 
-对此美国国务卿彭培奥发推表示：美国谴责非法的马杜罗政权在12月6日举行的欺诈性立法选举。这些选举不符合任何最低限度的可信度标准，只不过是企图窃取委内瑞拉的民主未来。我们呼吁所有国家拒绝这一选举骗局。
+——郭文贵先生2020年8月12日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08023102/trump.png)
+## 481.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08103241/301.jpg)
+因为你有怕，你就有在乎；你有在乎，你就有更多的欲望，有更多的想解决这个怕。你永远在人生这种最低的畜生道都不如的里边轮回，因为你的恐惧。
 
-另一方面获美国支持的委内瑞拉反对派领袖瓜伊多则呼吁抵制这次选举，并形容这次选举是场“骗局”，因为不存在举行“自由公平”选举的条件。
+——郭文贵先生2020年8月9日
 
-目前委内瑞拉反对派瓜伊多政权已经得到50多个国际主流国家的承认，而独裁者马杜罗并不具备法理性，由于马杜罗控制住委内瑞拉各级机关，包括最高法院和强而有力的军队。所以他的第二届连任是在独裁的环境下窃取民意的表现，对此美国总统特朗普在2019年曾经发表声明：“作为委内瑞拉民众选出的唯一合法政府部门，国民大会援引该国宪法宣布尼古拉斯•马杜罗非法，因此总统职位空缺。”“委内瑞拉民众勇敢地公开反对马杜罗及其政权，要求自由和法治。”“我将继续充分利用美国的经济和外交力量，敦促委内瑞拉恢复民主。”
+## 482.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08103303/302.jpg)
+我一定要干掉共产党！我只有赢才行！我拯救一两个人是解决不了问题的。
 
-综合上述来看，马杜罗非法政权不能给委内瑞拉民主和未来，反抗到底才是国家的未来！依靠窃取民意，选举欺诈上位的非法政权也注定了会被觉醒的人民抛弃！
+——郭文贵先生2020年8月9日
 
-本文作者：楼兰古城
-审核校对：玫瑰天空
-上传排版：糖果儿
+## 483.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08103327/303.jpg)
+不管是谁，我们灭共不分党派、不分男女、不分老幼，不问你出处。你今天要支持爆料革命，你也是我们战友！
 
-0
+——郭文贵先生2020年8月12日
+
+1+
