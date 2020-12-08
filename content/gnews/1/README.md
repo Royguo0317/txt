@@ -1,20 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发！“中共超限生物武器”新冠病毒二次爆发，四川省委书记彭清华宣布进入战时状态
-` GM101` [轉載自GNews](https://gnews.org/zh-hans/627304/)
+## 克鲁兹:如果最高法院审理宾夕法尼亚州的选举上诉，他将发表口头辩论
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/627317/)
 
-北京时间12月8日上午11点2分，四川省人民政府官网发布了关于新冠病毒二次爆发的会议。会议由四川省委书记彭清华主持召开，彭清华强调响应习总书记号召让四川迅速进入战时状态，把本次疫情影响控制在最小范围。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08003637/1-40.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08003646/2-14.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08003652/3-3.png)
-会议明确近期成都市郫都区郫筒街道太平村发现新冠肺炎确诊病例证明疫情出现警报，政府须充分利用大数据、社区网格化管理等信息化手段精准管控密切接触者。加强对农贸市场、大型商超、冷链物流、隔离场所及其从业人员的排查力度，全面开展重点场所消杀工作，同时做好进口冷链食品新冠病毒核酸采样检测，严防疫情输入。
-
-编者认为，四川省本次以疫情为由宣布进入战时状态纯属为达到政治目的，一举多得如下：
-
-1. 造假境外输入病例，将中共制造并释放的“超限生物武器”新冠病毒造成的伤亡、经济损失嫁祸给国际社会；
-2. 以疫情为由转移中国人民视线和矛盾，试图将中共执政造成的经济崩溃、强拆、活摘器官、奴杀人民等暴行隐藏；
-3. 以疫情为由，利用大数据、军警等国家机器对人民进行管控奴役，为后续计划供应做铺垫。
+- 编辑：Victor Torres
 
 
-当习近平、王岐山、许其亮三人决定向全球投放“中共超限生物武器”的时候，就注定了中共的灭亡。中共试图操控美国大选、毒害川普总统、朱利安尼的行为更是激怒了美国人民，独裁者的下场总是惊人的一致，墙内的同胞须拿出破釜沉舟的勇气度过黎明前的黑暗。
+***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
+**西班牙2020年12月8日电/西喜社**——泰德·克鲁兹（Ted Cruz）参议员周一表示，如果美国最高法院同意听取与宾夕法尼亚州选举有关的特定案件的上诉，他将愿意提出口头辩论。
+“由于提出的法律问题的重要性，我公开敦促美国最高法院审理国会议员迈克·凯利(Mike Kelly)提起的诉讼，国会议员肖恩·帕内尔(Sean Parnell)和州众议员万达·洛根(Wanda Logan)质疑宾夕法尼亚州美国总统选举结果的合宪性， 克鲁兹发了推文。
+“诉讼人的法律团队问我，如果法院授予证书，我是否愿意在美国最高法院辩论该案。我已经同意，并告诉他们，如果法院接受上诉，我将随时准备提出口头辩论。”
+
+
+
+> Because of the importance of the legal issues presented, I've publicly urged [#SCOTUS](https://twitter.com/hashtag/SCOTUS?src=hash&amp;ref_src=twsrc%5Etfw) to hear the case brought by Congressman Mike Kelly, congressional candidate Sean Parnell & state rep. candidate Wanda Logan challenging the constitutionality of the POTUS election results in PA.
+> — Ted Cruz (@tedcruz) [December 7, 2020](https://twitter.com/tedcruz/status/1336049094570221570?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Petitioners’ legal team has asked me whether I would be willing to argue the case before [#SCOTUS](https://twitter.com/hashtag/SCOTUS?src=hash&amp;ref_src=twsrc%5Etfw), if the Court grants certiorari. I have agreed, and told them that, if the Court takes the appeal, I will stand ready to present the oral argument.
+> — Ted Cruz (@tedcruz) [December 7, 2020](https://twitter.com/tedcruz/status/1336049095509733377?ref_src=twsrc%5Etfw)
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 0

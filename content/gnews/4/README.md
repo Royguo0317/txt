@@ -1,39 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【突发】【香港要闻】美国宣布对中港官员实施新一轮制裁名单
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/625828/)
+## 重磅：重大国家安全问题显示中共国与多米尼（Dominion）投票机有关
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/626270/)
 
-整撰：文燕
+- 编辑：Victor Torres
+- 翻译：Goodgo
 
-覆核：文粤
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07114956/photo_2020-12-08_00-48-03.jpg)
-香港时间 12月8日 0：50更新 [美国财政部](https://home.treasury.gov/policy-issues/financial-sanctions/recent-actions/20201207?fbclid=IwAR1WvVbTLzhOsNogG6I2NH-wNyedMXotQSHiyaFM23T9UQXUXxdww8ewFKo) 公布制裁名单
 
-美国总统特朗普将在1月20日卸任，他在头四年任期最后向北京施压。根据最新消息，当地时间12月7日，华府将宣布对中国和香港官员进行新一轮制裁。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07115046/image001-3.png)北京谴责美国对香港的相关制裁是对中国内政的干涉。图为港人示威时高举盼美国声援海报。 （德国之声中文网)
-【美国之音】指，路透社引述美国官员的话以及另外两个消息来源发表了一份独家报道，称最新一轮制裁与北京和香港当局取消四名民主派人士的立法会议员资格有关。其中的两个消息来源称，特朗普政府这次制裁的官员可能多达14人，包括中国全国人大常委会委员、中共以及香港政府官员，制裁的手段包括冻结资产和禁止一些金融交易。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07115033/image003.png)香港立法会民主派议员集团辞职后，立法会里民主派议员的席位空荡荡。 （2020年11月12日）
-【立场新闻】11月12日曾报道，美国国家安全顾问奥布莱恩（Robert C. O’Brien）就香港4 名民主派立法会议员被取消议席发声明，指中共公然违反《中英联合声明》及《基本法》，警告会继续制裁扼杀香港自由的人。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07115057/image005-1.png)
-奥布莱恩在声明指，北京的行动无疑违反了《中英联合声明》内对香港人的承诺，而《基本法》下的一国两制现在只不过是用来掩饰中共扩大在香港专政的遮丑布。美国将继续以《香港人权与民主法》，《香港自治法》和《香港正常化行政命令》所赋予的所有权力，查明和制裁那些扼杀香港自由的人。
+***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-中共强行在香港推行【港版国安法】之后，特朗普政府今年8月对香港特首林郑月娥等11名官员，指他们积极参与了北京推动的损害香港自由和民主的行动。
+**西班牙2020年12月07日电/喜西社——**重大国家安全问题 – 中共国公司生产的设备在多米尼机器上安装！
 
-上个月，美国再指定四名北京和香港官员为制裁对象，他们分别是郑若骅、邓炳强、刘赐蕙及李柱华。华府谴责这些官员与实施国安法和「威胁香港的和平、安全和自治」有关。
+美国现代自由之儿女正在拯救我们的国家！
 
-战友观点：
+一夜之间（感谢Rosco Davis），据一篇推文报道，一家中共国企业所有公司是多米尼投票机使用的调制解调器的制造商。
 
-中国人大常委会授权香港特区政府以「危害国家安全」等借口，打压有民意授权的议员，并取消了四名香港泛民议员的资格，引发香港立法会全体泛民派议员集体辞职，以示抗议。
+据另一个互联网英雄称，多米尼使用Edevice CellGo的蜂窝调制解调器。蜂窝调制解调器的费用列在密歇根州Calhoun县的设备清单中。
 
-美国、澳大利亚、加拿大、新西兰外长和英国的外长此后发表联合声明说，北京在香港实施《国家安全法》并推迟立法会选举后，又用新规则取消香港立法会议员资格，进一步损害了香港的高度自治、权利和自由。
+这些机器盒调制解调器根本不该在美国大选中使用，太骇人听闻了！
 
-港府上个月取消了4名反对派议员的资格，造成民主派议员总辞。这件事进一步引起西方国家警惕，由澳大利亚、英国、加拿大、新西兰和美国组成的「五眼联盟”」情报共享组织11月表示，此举在压制异议者，呼吁北京收回成命。
+有了这些设备就可以远程接入、监控并且可能实时操纵投票机和数据。
 
-这次的制裁，明显华府兑现了上个月顾问奥布莱恩对港人的承诺。我们明白若中共没钱，自然对美国的威胁减少，政府没了钱，社会所有的发展都会停顿。我们感谢美国与港人站在一起制裁中共和香港舔共一众官员，继续在国际舞台上向中共施压，制裁的手段包括冻结资产和禁止一些金融交易。使中共的傀儡有所顾忌。
+Edevice是被一家中共国公司在2016年9月买下：
 
-香港特首林郑月娥早前在接受媒体专访时承认，美国实施的经济制裁对她和家人产生了影响，称她现在要以现金方式领取薪水，但表示自己能为国家安全效力，是她的「荣誉」。足见林郑的恬不知耻，甘愿与魔鬼共舞，预料她将来的日子会更加悲凉。
+iHealth是天津安灯集团的美国子公司，花费1.06亿美元收购法国Bordequx的eDevice公司。两家公司都提供移动健康监测设备。eDevice利用其专有技术将患者与大型医疗技术公司和医疗机构联系起来。iHealth总部位于加州Mountain View，提供基本的医护监测设备和一款连接患者的ios智能手机应用。两年前，iHealth从中国电子企业小米创投融资了2500万美元。更多详情。。。。。。
 
-资料来源：[美国之音](https://www.voachinese.com/a/us-hk-sanctions-20201207/5689865.html)、[立场新闻](https://www.thestandnews.com/politics/%E4%BA%BA%E5%A4%A7%E6%8E%88%E6%AC%8A-dq-%E7%BE%8E%E5%9C%8B%E5%AE%B6%E5%AE%89%E5%85%A8%E9%A1%A7%E5%95%8F-%E4%B8%AD%E5%9C%8B%E9%81%95%E5%8F%8D%E6%B8%AF%E8%87%AA%E6%B2%BB%E6%89%BF%E8%AB%BE-%E8%AD%A6%E5%91%8A%E7%B9%BC%E7%BA%8C%E5%88%B6%E8%A3%81/)
+Edevice是由法国开发的专业连接设备。
+
+根据一份在选举中使用的设备说明书：“监听器使用EMS服务器和手机调制解调器，对所有分区的结果进行列表、报告、删除和备份。”
+
+另一个关于密歇根州与多米尼合同的信息展示了系统中嵌入Cell Go连接设备的图标。
+
+密歇根州合同也将Cellgo设备列到了合同中。
+
+我们有证据表明这些设备在威斯康辛州被批准购买了：
+
+在佐治亚州这些设备被包括在多米尼准备的信息请求（RFI）中，我们知道多米尼在整个州被使用了。
+
+这是一个巨大的国家安全危机。为什么美国在使用投票机的连接设备？为什么我们要使用和中共国有关系的连接设备？
+
+**原文链接**：[https://www.thegatewaypundit.com/2020/12/breaking-huge-major-national-security-issue-identified-related-chinas-connection-dominion-voting-machines/](https://www.thegatewaypundit.com/2020/12/breaking-huge-major-national-security-issue-identified-related-chinas-connection-dominion-voting-machines/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0

@@ -1,13 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发重磅！美国务院宣布冻结十四名中共国人大常委官员及其直系亲属在美资产并限制入境
-` GM101` [轉載自GNews](https://gnews.org/zh-hans/625890/)
+## 亚利桑那州最高法院同意加快审查共和党对选举结果的质疑
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/627035/)
 
-美东时间12月7号，美国国务院官方发布了“制裁中共国人民代表大会官员破坏香港自治权“的相关声明。声明表示北京（中共）通过人大常委会的行动破坏了香港的立法会席位，削弱了香港人民根据《联合声明》和《基本法》赋予的选举权，证明中共撕毁了其在联合国备案的《中英联合声明》。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07122007/2-12.png)
-声明明确制裁十四名负责制定、通过或实施《中华人民共和国香港特别行政区维护国家安全法》的中共国人大常委官员，分别是王晨、曹建明、张春贤、沈躍躍、吉炳轩、艾力更·依明巴海、万鄂湘、陈竺、王东明、白玛赤林、丁仲礼、郝明金、蔡达峰、武维华。
+- 翻译：Victor Torres
 
-声明表示根据13936号行政命令第四（a）（iii）（A）条、七条规定内容禁止本人及其直系亲属前往美国，冻结被制裁人在美国或美国管辖范围内所拥有或控制的资产，禁止美国人与被制裁人打交道。声明强调美国将继续与盟国和伙伴合作，要求北京（中共）对破坏香港承诺的自治负责，美国再次敦促北京遵守其国际承诺，并听取许多谴责其行动的国家的声音。
 
+***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+**西班牙2020年12月08日电/西喜社——**亚利桑那州共和党主席在马里科帕县高级法院法官驳回此案后，于上周提出上诉。
+亚利桑那州最高法院已同意审查与州共和党推翻亚利桑那州大选结果的努力有关的快速上诉。
+该州共和党主席凯利·沃德上周提出上诉，随后马里科帕县高级法院法官史蒂文·沃纳法官驳回了与重复选票有关的诉讼。
+“沃德声称，重复选票的错误提供了证明，选举应该被推翻，该州的11个选举人团的选票应该投给唐纳德·川普总统。”
+
+原文:
+
+[https://justthenews.com/government/courts-law/arizonas-supreme-court-will-review-appeal-republican-lawsuit-pertaining](https://justthenews.com/government/courts-law/arizonas-supreme-court-will-review-appeal-republican-lawsuit-pertaining)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/18075158/Portada-Dominion-ccp-1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 0

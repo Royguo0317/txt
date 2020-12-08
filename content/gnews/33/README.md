@@ -1,31 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国务院正式认定并制裁破坏香港自治的全国人大副委员长
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/626698/)
+## 美国再次通过总额2.8亿美元的对台战地通讯系统军售案
+` 快慢机` [轉載自GNews](https://gnews.org/zh-hans/626809/)
 
-翻译：康州盘古农场 – 黎明的光芒
+内军事:快慢机
 
-校对：康州盘古农场 – 烟波浩淼
 
-审核：康州盘古农场 -Truemanman
 
-以下为国务院声明译文：
+> .[@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) authorizes a Foreign Military Sales [#FMS](https://twitter.com/hashtag/FMS?src=hash&amp;ref_src=twsrc%5Etfw) case for [@TECRO\_USA](https://twitter.com/TECRO_USA?ref_src=twsrc%5Etfw) [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) for a Field Information Communications System and related equipment valued at an estimated cost of $280 million [#FMSUpdate](https://twitter.com/hashtag/FMSUpdate?src=hash&amp;ref_src=twsrc%5Etfw)– [https://t.co/MdkOJkuPBE](https://t.co/MdkOJkuPBE) [pic.twitter.com/8fIaF0pfYP](https://t.co/8fIaF0pfYP)
+> — Political-Military Affairs, US Dept of State (@StateDeptPM) [December 7, 2020](https://twitter.com/StateDeptPM/status/1336065650297597955?ref_src=twsrc%5Etfw)
 
-北京对香港民主进程的无情攻击，已经摧毁了香港的立法会，使其成为一个没有实际意义的反对派的橡皮图章。攻击的其中一个方面来自全国人民代表大会常务委员会（「人大常委会」）的行动，这些行动实际上削弱了香港人民根据联合声明和基本法选出民选代表的能力。这些行动再次表明，北京完全无视其根据在联合国注册的《中英联合声明》所作的国际承诺。
 
-今天，国务院将追究这些责任人的无耻行为。我们正在指定14名与制定、通过或实施《中华人民共和国香港特别行政区维护国家安全法》有关的全国人大常委会副委员长。全国人大常委会全票通过了《国家安全法》。北京多次反复使用《国家安全法》来压制异议人士、并逮捕抗议北京高压政策的人。
 
-这14人分别是王晨、曹建明、张春贤、沈跃跃、吉炳轩、艾力更·依明巴海、万鄂湘、陈竺、王东明、帕白玛赤林、丁仲礼、郝明金、蔡达峰和武维华。这些指定是根据第13936号行政命令第4(a)(iii)(A)条作出的。此外，根据第13936号行政命令第7条，这些人还将受到签证限制。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07202058/%E5%9B%BE%E7%89%8736.png)
-这些人及其直系亲属将被禁止前往美国。他们在美国管辖范围内或由美国人拥有或控制的资产将被冻结，一般情况下禁止美国人与他们进行交易。
+2020年12月7日,美国再次批准通过了最新一轮总额2.8亿美元的对台战地通讯系统军售案.该军售案中包括154个战术通讯节点、24个标准通讯继电器、8套网管系统与相关设备、系统技术支援与相关人员培训及后勤保障等.
 
-我们今天的行动明确表明，美国将继续与我们的盟友和伙伴合作，追究北京破坏对香港承诺的自治的责任。美国再次敦促北京遵守其国际承诺，并听取许多谴责其行动的国家的声音。
+美国本轮的对台军售案,应是考虑到中共一旦对台实施大规模军事打击,台军现有通讯系统恐难对外保持有效的通联.从而贻误战机影响战局.因此美军适时的通过该轮军售向台方提供相关通讯设施,增强台军在战时的整个通讯保障.
 
-迈克尔·R·蓬佩奥，国务卿
+“郭文贵”先生及“路德”先生近日在直播中向战友们通知,大陆地区在接下来的不久,将会极大可能遭受北约多国的联合军事打击.届时能否维持基本的通讯保障是关键所在.自救与互助是建立在有效获取外界真实讯息基础上的.战时极端环境下,普通的民用通讯手段与渠道几乎会被彻底切断.因此应急对外通讯联络预案是眼下首当其冲要优先准备的必须.
 
-原文链接：
-
-[https://www.state.gov/designations-of-national-peoples-congress-officials-undermining-the-autonomy-of-hong-kong/](https://www.state.gov/designations-of-national-peoples-congress-officials-undermining-the-autonomy-of-hong-kong/)
-
-5+
+2+

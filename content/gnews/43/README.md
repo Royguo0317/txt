@@ -1,23 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 密歇根州副州长参加与中共秘密会议，牵涉中共军方
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/626615/)
+## 佐治亚州州长不能阻止议员行使宪法权力 12/7
+` Mike迈克小哥` [轉載自GNews](https://gnews.org/zh-hans/626649/)
 
-翻译：康州盘古农场-黎明的光芒
-校对：康州盘古农场-一花一世界
-审核：康州盘古农场-V
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07192824/Gilchrist.png)
-密歇根州副州长加林·吉尔克里斯特（Garlin Gilchrist）出席了中共官员与美国州长之间颇具争议的 “协作峰会”。
-
-此次峰会于2019年5月举行，被誉为中共国政府与美国同行之间建立更加紧密金融联系提供“独家交易机会”。
-
-自2019年起在职，并对川普总统的选举不满并称之为”纸牌屋”的民主党人吉尔克里斯特（Gilchrist），与肯塔基州和田纳西州的州长一起出席了峰会。与此同时，一名中共市长、两名副省长和一名省长也出席了峰会。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07192943/Screen-Shot-2020-12-07-at-4.25.42-PM.png)参加会议的中共高官
-此次峰会的特别之处是美国与中国共产党官员之间的“一对一会晤”，当时，曾因”与北京的海外宣传部门–中国人民对外友好协会(CPAFCC)有关系”而遭到川普政府的严厉批评，该协会是此次会议的联合主办方。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07193014/Picture3-1.png)会议宣传资料
-其上级组织，中共国总商会的董事会中也有许多来自有争议的中共关联企业的高管，如华为、中国电信、中国移动和浪潮集团。 20多年来，上述公司都被美国国防部认定为中国军方的代理人。
-
-原文链接：https://thenationalpulse.com/breaking/michigan-gov-ccp-conference/
-
-2+
+12月7日, 川普总统律师珍娜·埃利斯Jenna Ellis推文:
+@GovKemp(佐治亚州州长布赖恩·肯普)错误解读了法律。 佐治亚州州长布赖恩·肯普，您可能想读宪法。
+值得庆幸的是，佐治亚州的州议会不需要他(佐治亚州州长布赖恩·肯普) — 他没有第二条款所赋予的权力，也不能阻止佐治亚州的州议员们行使其宪法权力。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07194341/%E4%BD%90%E6%B2%BB%E4%BA%9A%E5%B7%9E%E5%B7%9E%E9%95%BF%E4%B8%8D%E8%83%BD%E9%98%BB%E6%AD%A2%E5%B7%9E%E8%AE%AE%E5%91%98%E4%BB%AC%E8%A1%8C%E4%BD%BF%E5%85%B6%E5%AE%AA%E6%B3%95%E6%9D%83%E5%8A%9B.png)
+1+

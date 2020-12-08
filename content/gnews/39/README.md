@@ -1,11 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 佐治亚州州长不能阻止议员行使宪法权力 12/7
-` Mike迈克小哥` [轉載自GNews](https://gnews.org/zh-hans/626649/)
+## 世卫组织希望尽快访问中国以研究冠状病毒的起源
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/626691/)
 
-12月7日, 川普总统律师珍娜·埃利斯Jenna Ellis推文:
-@GovKemp(佐治亚州州长布赖恩·肯普)错误解读了法律。 佐治亚州州长布赖恩·肯普，您可能想读宪法。
-值得庆幸的是，佐治亚州的州议会不需要他(佐治亚州州长布赖恩·肯普) — 他没有第二条款所赋予的权力，也不能阻止佐治亚州的州议员们行使其宪法权力。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07194341/%E4%BD%90%E6%B2%BB%E4%BA%9A%E5%B7%9E%E5%B7%9E%E9%95%BF%E4%B8%8D%E8%83%BD%E9%98%BB%E6%AD%A2%E5%B7%9E%E8%AE%AE%E5%91%98%E4%BB%AC%E8%A1%8C%E4%BD%BF%E5%85%B6%E5%AE%AA%E6%B3%95%E6%9D%83%E5%8A%9B.png)
+翻译：康州盘古农场 – 一花一世界
+
+校对+评论：康州盘古农场-黎明的光芒
+
+审核：康州盘古农场 – V
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07201727/Picture1-2-7.png)
+日内瓦/苏黎世（路透社）-世界卫生组织总干事谭德塞（Tedros Adhanom Ghebreyesus）声称，世界卫生组织希望“尽快”访问中国，研究新冠病毒的起源。他在新闻发布会上说：“我们正在计划并希望尽快开展实地调查工作。”
+
+译者注：
+
+结合环球时报最新报道“病毒从冷链传入武汉？值得溯源”，笔者认为：
+
+1）迫于国际上巨大的压力，尤其是美国即将宣布追查病毒真相，讨伐中共之时，捷足先登，堵住美国人的嘴，拦住美国人的腿，直到他们亲手操控的伪总统瞌睡乔上台为止；
+
+2）病毒已经传播一年了，世卫组织还在计划并希望尽快开展工作，充分说明土共跟世卫组织沆瀣一气，一直在寻找编造最合适的甩锅理由，现在，经过土共几个月来不遗余力地宣布在各种国外进口冷链发现病毒，说明火候也差不多了，世卫组织可以接力往下忽悠了，最终把病毒扔向全世界，就像马航MH370一样，成为一个不解之谜！
+
+出处: [http://www.reuters.com/article/health-coronavirus-who-idUSKBN28H29I?utm\_source=34553&utm\_medium=partner](https://www.reuters.com/article/health-coronavirus-who-idUSKBN28H29I?utm_source=34553&amp;utm_medium=partner)
+
 1+
