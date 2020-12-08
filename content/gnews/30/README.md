@@ -1,23 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】歼-15起降需“护航”，“自曝家丑”为谁扬
-` HAIKUOTIANKONG` [轉載自GNews](https://gnews.org/zh-hans/626935/)
+## 20201207东京樱花团晚间新闻速报
+` 东京樱花团-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/628091/)
 
-内军事：鹰(文言) 素材：文朝汗（部落）校对：加文gavin
+HTS-01C-202012-013
 
-环球网12月7日转载央视新闻报道，每次歼-15舰载机起降前，均需要直-9提前起飞，以防发生意外。
+1、JNN民意调查显示，菅首相内阁支持率比上月重挫11.5%，降至55.3%；
 
-根据中共此前的报道，8月底7架歼-15完成带弹滑跃起飞。以前中共的舰载机飞行员是抽调空军的王牌飞行员进行培训，完成各项科目后再进行着舰实地演练，也就是说以前的歼-15飞行员在驾驶战斗机（包括歼-15）的训练时长是相对有保障的。后来由于训练周期漫长，改为“改装模式”和“生长模式”并行，直接从毕业学员中培训驾驶舰载机，与前者相比，“生长模式”的周期可以极大缩短，但由于平均年龄小和飞行时间短，即便完成着舰资质认证，也只是“花架子”中看不中用。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08051622/0987.jpg)
 
-央视新闻最新报道更是指明歼-15的每次起降均需要直-9的预飞以应对突发事件，此举直接将中共舰载机的最基本舰上起降能力的欠缺和不稳定“公之于众”，可谓是“自曝家丑”。为了“坐实”歼-15有一定战斗力，近4个月前中共才仓促爆出歼-15带弹滑跃起飞视频，虽然其滑跃起飞间隔长、仅7架编队飞行能力根本无法匹敌西方成熟航母战力，但至少可以飞了。而今中共为了“还击”西方即将的军事行动，“多此一举”的爆出舰载机每次起降均需要救援直升机“护航”现状，更是直接打脸前期鼓吹的航母战力，即完整的安全起降仍存在问题。
+2、远程办公兴起，从东京都搬家至乡村最高享100万日元补贴；
 
-如果说以前评价辽宁舰是漂浮的移动模型，现在则是“海上棺材板”，不但没有战斗力，反而舰载机的历次起降都可能发生事故，至于山东舰和3号舰服役海军战力翻倍更是胡扯，不过是填充海上炮灰而已。
+3、日本计划派遣自卫队医疗人员支援旭川市、北海道和大阪府；
 
-新闻来源：
-第一视角看直9为歼-15航母起降保驾护航！
-[https://mil.huanqiu.com/article/410RWA3kBmN](https://mil.huanqiu.com/article/410RWA3kBmN)
-003航母服役在即，116名舰载机飞行员待命！美感慨：这才是大国
-[https://new.qq.com/rain/a/20201108A0BFFR00](https://new.qq.com/rain/a/20201108A0BFFR00)
+4、东京大学一项调查显示，GO TO利用者的CCP病毒感染率是不参与GO TO者的2倍；
 
-3+
+5、日本政府敲定73万亿日元经济支持措施；
+
+6、日本各地神社参拜时间提前，以分散参拜者；
+
+7、违规领取的个人事业、中小企业补助金已有64亿日元主动返还；
+
+8、日本政府决定2021年固定资产税与2020年持平；
+
+9、三菱汽车内退654人，以减少运营成本；
+
+10、JR西日本考虑通过积分返还的方式鼓励使用者避开早晚高峰时段乘车；
+
+11、成田国际机场公司和京成电铁考虑开通专门线路，以运输机场入境的旅客；
+
+12、日本电通本财年预亏237亿日元；
+
+13、东京都12月7日299人确诊CCP病毒。
+
+
+
+以上新闻速报取材于下述链接：
+
+[https://news.yahoo.co.jp/articles/568e9e75d8bc496b8dc40e5798713d579c95c856](https://news.yahoo.co.jp/articles/568e9e75d8bc496b8dc40e5798713d579c95c856)
+
+[https://news.yahoo.co.jp/articles/82ce176045bcd1beda9599e8f64d0c4feaf11e60](https://news.yahoo.co.jp/articles/82ce176045bcd1beda9599e8f64d0c4feaf11e60)
+
+[https://news.yahoo.co.jp/articles/eaf78a2de1365f5fe675a1945f0c4080fe52f18c](https://news.yahoo.co.jp/articles/eaf78a2de1365f5fe675a1945f0c4080fe52f18c)
+
+[https://news.yahoo.co.jp/articles/a7d0b4387b2dab685dff1034968ebecbbb658f78](https://news.yahoo.co.jp/articles/a7d0b4387b2dab685dff1034968ebecbbb658f78)
+
+[https://news.yahoo.co.jp/articles/dfe00129f34a40203a15d6263cc09fb8e587b9e6](https://news.yahoo.co.jp/articles/dfe00129f34a40203a15d6263cc09fb8e587b9e6)
+
+[https://news.yahoo.co.jp/articles/ec9369c8edf126cec7e5dd7ef30bad6296d07daa](https://news.yahoo.co.jp/articles/ec9369c8edf126cec7e5dd7ef30bad6296d07daa)
+
+[https://news.yahoo.co.jp/articles/c1a93d547fc7cb414f80ae3a42b546674063ebbe](https://news.yahoo.co.jp/articles/c1a93d547fc7cb414f80ae3a42b546674063ebbe)
+
+[https://news.yahoo.co.jp/articles/15b993c388e56d6b72f10d7f675c10a2324f9a39](https://news.yahoo.co.jp/articles/15b993c388e56d6b72f10d7f675c10a2324f9a39)
+
+[https://news.yahoo.co.jp/articles/fef26bd1cb92eeb7890d6f575fedf111f5ae8d88](https://news.yahoo.co.jp/articles/fef26bd1cb92eeb7890d6f575fedf111f5ae8d88)
+
+[https://news.yahoo.co.jp/articles/ab22d83c7a57bad9481c50a08b1c4ac18f99f105](https://news.yahoo.co.jp/articles/ab22d83c7a57bad9481c50a08b1c4ac18f99f105)
+
+[https://news.yahoo.co.jp/articles/3b3b6270fd277d983f5ff703217ae9b56a0e9b54](https://news.yahoo.co.jp/articles/3b3b6270fd277d983f5ff703217ae9b56a0e9b54)
+
+[https://news.yahoo.co.jp/articles/150cb3f0040552045e4795959dbbbd02ee42ed69](https://news.yahoo.co.jp/articles/150cb3f0040552045e4795959dbbbd02ee42ed69)
+
+6+

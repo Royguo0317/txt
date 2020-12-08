@@ -1,51 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅：重大国家安全问题显示中共国与多米尼（Dominion）投票机有关
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/626270/)
+## 突发重磅！美国务院宣布冻结十四名中共国人大常委官员及其直系亲属在美资产并限制入境
+` GM101` [轉載自GNews](https://gnews.org/zh-hans/625890/)
 
-- 编辑：Victor Torres
-- 翻译：Goodgo
+美东时间12月7号，美国国务院官方发布了“制裁中共国人民代表大会官员破坏香港自治权“的相关声明。声明表示北京（中共）通过人大常委会的行动破坏了香港的立法会席位，削弱了香港人民根据《联合声明》和《基本法》赋予的选举权，证明中共撕毁了其在联合国备案的《中英联合声明》。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07122007/2-12.png)
+声明明确制裁十四名负责制定、通过或实施《中华人民共和国香港特别行政区维护国家安全法》的中共国人大常委官员，分别是王晨、曹建明、张春贤、沈躍躍、吉炳轩、艾力更·依明巴海、万鄂湘、陈竺、王东明、白玛赤林、丁仲礼、郝明金、蔡达峰、武维华。
 
-
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-**西班牙2020年12月07日电/喜西社——**重大国家安全问题 – 中共国公司生产的设备在多米尼机器上安装！
-
-美国现代自由之儿女正在拯救我们的国家！
-
-一夜之间（感谢Rosco Davis），据一篇推文报道，一家中共国企业所有公司是多米尼投票机使用的调制解调器的制造商。
-
-据另一个互联网英雄称，多米尼使用Edevice CellGo的蜂窝调制解调器。蜂窝调制解调器的费用列在密歇根州Calhoun县的设备清单中。
-
-这些机器盒调制解调器根本不该在美国大选中使用，太骇人听闻了！
-
-有了这些设备就可以远程接入、监控并且可能实时操纵投票机和数据。
-
-Edevice是被一家中共国公司在2016年9月买下：
-
-iHealth是天津安灯集团的美国子公司，花费1.06亿美元收购法国Bordequx的eDevice公司。两家公司都提供移动健康监测设备。eDevice利用其专有技术将患者与大型医疗技术公司和医疗机构联系起来。iHealth总部位于加州Mountain View，提供基本的医护监测设备和一款连接患者的ios智能手机应用。两年前，iHealth从中国电子企业小米创投融资了2500万美元。更多详情。。。。。。
-
-Edevice是由法国开发的专业连接设备。
-
-根据一份在选举中使用的设备说明书：“监听器使用EMS服务器和手机调制解调器，对所有分区的结果进行列表、报告、删除和备份。”
-
-另一个关于密歇根州与多米尼合同的信息展示了系统中嵌入Cell Go连接设备的图标。
-
-密歇根州合同也将Cellgo设备列到了合同中。
-
-我们有证据表明这些设备在威斯康辛州被批准购买了：
-
-在佐治亚州这些设备被包括在多米尼准备的信息请求（RFI）中，我们知道多米尼在整个州被使用了。
-
-这是一个巨大的国家安全危机。为什么美国在使用投票机的连接设备？为什么我们要使用和中共国有关系的连接设备？
-
-**原文链接**：[https://www.thegatewaypundit.com/2020/12/breaking-huge-major-national-security-issue-identified-related-chinas-connection-dominion-voting-machines/](https://www.thegatewaypundit.com/2020/12/breaking-huge-major-national-security-issue-identified-related-chinas-connection-dominion-voting-machines/)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+声明表示根据13936号行政命令第四（a）（iii）（A）条、七条规定内容禁止本人及其直系亲属前往美国，冻结被制裁人在美国或美国管辖范围内所拥有或控制的资产，禁止美国人与被制裁人打交道。声明强调美国将继续与盟国和伙伴合作，要求北京（中共）对破坏香港承诺的自治负责，美国再次敦促北京遵守其国际承诺，并听取许多谴责其行动的国家的声音。
 
 0

@@ -1,20 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发！“中共超限生物武器”新冠病毒二次爆发，四川省委书记彭清华宣布进入战时状态
-` GM101` [轉載自GNews](https://gnews.org/zh-hans/627304/)
+## 亚利桑那州最高法院同意加快审查共和党对选举结果的质疑
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/627035/)
 
-北京时间12月8日上午11点2分，四川省人民政府官网发布了关于新冠病毒二次爆发的会议。会议由四川省委书记彭清华主持召开，彭清华强调响应习总书记号召让四川迅速进入战时状态，把本次疫情影响控制在最小范围。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08003637/1-40.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08003646/2-14.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08003652/3-3.png)
-会议明确近期成都市郫都区郫筒街道太平村发现新冠肺炎确诊病例证明疫情出现警报，政府须充分利用大数据、社区网格化管理等信息化手段精准管控密切接触者。加强对农贸市场、大型商超、冷链物流、隔离场所及其从业人员的排查力度，全面开展重点场所消杀工作，同时做好进口冷链食品新冠病毒核酸采样检测，严防疫情输入。
-
-编者认为，四川省本次以疫情为由宣布进入战时状态纯属为达到政治目的，一举多得如下：
-
-1. 造假境外输入病例，将中共制造并释放的“超限生物武器”新冠病毒造成的伤亡、经济损失嫁祸给国际社会；
-2. 以疫情为由转移中国人民视线和矛盾，试图将中共执政造成的经济崩溃、强拆、活摘器官、奴杀人民等暴行隐藏；
-3. 以疫情为由，利用大数据、军警等国家机器对人民进行管控奴役，为后续计划供应做铺垫。
+- 翻译：Victor Torres
 
 
-当习近平、王岐山、许其亮三人决定向全球投放“中共超限生物武器”的时候，就注定了中共的灭亡。中共试图操控美国大选、毒害川普总统、朱利安尼的行为更是激怒了美国人民，独裁者的下场总是惊人的一致，墙内的同胞须拿出破釜沉舟的勇气度过黎明前的黑暗。
+***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
+**西班牙2020年12月08日电/西喜社——**亚利桑那州共和党主席在马里科帕县高级法院法官驳回此案后，于上周提出上诉。
+亚利桑那州最高法院已同意审查与州共和党推翻亚利桑那州大选结果的努力有关的快速上诉。
+该州共和党主席凯利·沃德上周提出上诉，随后马里科帕县高级法院法官史蒂文·沃纳法官驳回了与重复选票有关的诉讼。
+“沃德声称，重复选票的错误提供了证明，选举应该被推翻，该州的11个选举人团的选票应该投给唐纳德·川普总统。”
+
+原文:
+
+[https://justthenews.com/government/courts-law/arizonas-supreme-court-will-review-appeal-republican-lawsuit-pertaining](https://justthenews.com/government/courts-law/arizonas-supreme-court-will-review-appeal-republican-lawsuit-pertaining)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/18075158/Portada-Dominion-ccp-1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 0
