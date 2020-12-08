@@ -1,35 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻时评】没来的，请举手！好一个闭眼的中华盛世！
-` Ronald` [轉載自GNews](https://gnews.org/zh-hans/627839/)
+## 20201207东京樱花团晚间新闻速报
+` 东京樱花团-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/628091/)
 
-内新闻/素材：小黑姐（文雅） 绘图：麦田67号 校对：雅典娜的圣斗士(沙加)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08034631/image0-8.png)
-人民日报12月7日发表一篇名为《这样的中国需要救赎吗？》的文章，文章讲述一个叫马特的外籍视频博主，在境外社交媒体上发表了一段在西安一旅游景点的视频，讲述自己在中国的所见所闻；
+HTS-01C-202012-013
 
-大意是这里的中国人有奢侈品商场逛、有可口可乐喝、有中国传统服饰穿，上着班养着孩子，享受自己的生活，幸福得很。马特还说：来到这里，我看到了一个美好的世界。
+1、JNN民意调查显示，菅首相内阁支持率比上月重挫11.5%，降至55.3%；
 
-马特的这段在西安的视频也许能让看到的外国人觉得中国的确不错，人们生活得很幸福的样子，并没有想象的差，甚至比他们自己过得都要好！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08051622/0987.jpg)
 
-这篇文章又能让看到的中国人觉得：连外国人都觉得我们幸福，觉得我们国家是个好地方，那我们国家可能确实是又好又强！这么繁荣强盛的中国需要救赎？
+2、远程办公兴起，从东京都搬家至乡村最高享100万日元补贴；
 
-马特拍到的是繁花似锦的中国，他没拍到的呢？红黄蓝幼儿园那些被喂迷幻药供神秘领导性侵的可怜的孩子们和他们控告无门、愤怒绝望的父母们拍到了吗？那些被校园冷暴力、性暴力摧残绝望自杀的学生们拍到了吗？
+3、日本计划派遣自卫队医疗人员支援旭川市、北海道和大阪府；
 
-那些被暴力强拆的绝望户主拍到了吗？那些没钱看病、绝望自杀、被迫溺死自己孩子的悲剧拍到了吗？那些被城管暴力执法、砸烂摊子的底层摊贩拍到了吗？那些老无所依、只能卖菜、捡垃圾维持生计的耄耋老人拍到了吗？
+4、东京大学一项调查显示，GO TO利用者的CCP病毒感染率是不参与GO TO者的2倍；
 
-那些幼无所养、吃不起饭、穿不起衣的孤苦孩子拍到了吗？那些上访维权被驱赶、被镇压的无助百姓拍到了吗？那些……无数个那些我们看得到看不到的苦难每天都在中国大地上演，马特拍到了吗？
+5、日本政府敲定73万亿日元经济支持措施；
 
-就像《清明上河图》上画的车水马龙，热闹繁华的市井，一片盛世太平，但这车水马龙的背后，它隐藏的又是一个怎样悲惨不堪的世界呢？没有画出来它就不存在吗？
+6、日本各地神社参拜时间提前，以分散参拜者；
 
-这让我想起了刘瑜在《观念的水位》里的片段，上世纪三十年代初，英国作家萧伯纳访问了苏联，被领着参观了种种社会主义成就后，他回到英国发表文章，驳斥了各种“污蔑苏联建设伟大成就”的言论。
+7、违规领取的个人事业、中小企业补助金已有64亿日元主动返还；
 
-“我们想证实，没有任何证据表明那里存在着经济奴役、匮乏、失业……在所到之处，我们处处看到充满希望和热情的工人阶级……”事实上，就在他参观苏联前后那几年，强制性农业集体化导致了约七百万人在饥荒中死亡。
+8、日本政府决定2021年固定资产税与2020年持平；
 
-写作《红星照耀中国》的斯诺，在一九六O年和一九六四年两次访问中国后，也将关于中国发生了饥荒的传闻驳斥为“冷战宣传”，他表示：“我在中国没有看到饥饿的人，绝没有像过去那样的饥荒……”
+9、三菱汽车内退654人，以减少运营成本；
 
-你看，没来的人都没有举手，大家都在这里，这样多么好。闭眼是盛世，睁眼是熔炉。好一个闭眼的中华盛世！
+10、JR西日本考虑通过积分返还的方式鼓励使用者避开早晚高峰时段乘车；
 
-新闻来源：[https://mid.hao123.com/mid?from=&key=9675244863169322206&type=rec](https://mid.hao123.com/mid?from=&amp;key=9675244863169322206&amp;type=rec)
+11、成田国际机场公司和京成电铁考虑开通专门线路，以运输机场入境的旅客；
 
-2+
+12、日本电通本财年预亏237亿日元；
+
+13、东京都12月7日299人确诊CCP病毒。
+
+
+
+以上新闻速报取材于下述链接：
+
+[https://news.yahoo.co.jp/articles/568e9e75d8bc496b8dc40e5798713d579c95c856](https://news.yahoo.co.jp/articles/568e9e75d8bc496b8dc40e5798713d579c95c856)
+
+[https://news.yahoo.co.jp/articles/82ce176045bcd1beda9599e8f64d0c4feaf11e60](https://news.yahoo.co.jp/articles/82ce176045bcd1beda9599e8f64d0c4feaf11e60)
+
+[https://news.yahoo.co.jp/articles/eaf78a2de1365f5fe675a1945f0c4080fe52f18c](https://news.yahoo.co.jp/articles/eaf78a2de1365f5fe675a1945f0c4080fe52f18c)
+
+[https://news.yahoo.co.jp/articles/a7d0b4387b2dab685dff1034968ebecbbb658f78](https://news.yahoo.co.jp/articles/a7d0b4387b2dab685dff1034968ebecbbb658f78)
+
+[https://news.yahoo.co.jp/articles/dfe00129f34a40203a15d6263cc09fb8e587b9e6](https://news.yahoo.co.jp/articles/dfe00129f34a40203a15d6263cc09fb8e587b9e6)
+
+[https://news.yahoo.co.jp/articles/ec9369c8edf126cec7e5dd7ef30bad6296d07daa](https://news.yahoo.co.jp/articles/ec9369c8edf126cec7e5dd7ef30bad6296d07daa)
+
+[https://news.yahoo.co.jp/articles/c1a93d547fc7cb414f80ae3a42b546674063ebbe](https://news.yahoo.co.jp/articles/c1a93d547fc7cb414f80ae3a42b546674063ebbe)
+
+[https://news.yahoo.co.jp/articles/15b993c388e56d6b72f10d7f675c10a2324f9a39](https://news.yahoo.co.jp/articles/15b993c388e56d6b72f10d7f675c10a2324f9a39)
+
+[https://news.yahoo.co.jp/articles/fef26bd1cb92eeb7890d6f575fedf111f5ae8d88](https://news.yahoo.co.jp/articles/fef26bd1cb92eeb7890d6f575fedf111f5ae8d88)
+
+[https://news.yahoo.co.jp/articles/ab22d83c7a57bad9481c50a08b1c4ac18f99f105](https://news.yahoo.co.jp/articles/ab22d83c7a57bad9481c50a08b1c4ac18f99f105)
+
+[https://news.yahoo.co.jp/articles/3b3b6270fd277d983f5ff703217ae9b56a0e9b54](https://news.yahoo.co.jp/articles/3b3b6270fd277d983f5ff703217ae9b56a0e9b54)
+
+[https://news.yahoo.co.jp/articles/150cb3f0040552045e4795959dbbbd02ee42ed69](https://news.yahoo.co.jp/articles/150cb3f0040552045e4795959dbbbd02ee42ed69)
+
+6+
