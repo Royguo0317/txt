@@ -1,27 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大数据分析作战室】24小時大V推文显示民意是“川普获胜”
-` [email&#160;protected]` [轉載自GNews](https://gnews.org/zh-hans/628785/)
+## 郭先生为朱利安尼祈福
+` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/628803/)
 
-**喜马拉雅的文雅**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08090958/24%E5%B0%8F%E6%99%82%E6%B0%91%E6%84%8FTrump-won.png)
-据G-Talent分析师曾经傻白甜战友，分析图【12.08.2020｜Twitter 筛选的71位大V推文分析】 是对Twitter过去24小时通过71位网络大V的推文做出的民意分析，图中显示出人们最关注的主题就是TrumpWon（川普获胜），这就是最真实的民意所向。 此外人们关注的热点内容依次还包括海怪团队，为川普而战，奥巴马门（奥巴马丑闻），选举舞弊，反击，选举正直等，。昨日是珍珠港事件纪念日因此很多人也提到了这个话题。这些无一不反映了美国普通民众追求自由和正义、与犯罪做斗争的意愿。
+七哥说视频制作组｜出品
 
-建议涉及相关内容传播信息时，使用井号加以下关键
+咱们一起先为我们的英雄，全球的英雄，当然是美国的大英雄， 朱利安尼先生，我们的好哥们，先为他祈福， 早日回到战场，早日回到战场，兄弟姐妹们， 一起为朱利安尼先生祈福，他是一个渡人的觉者，就是我们说的 。
 
-#trumpwon
+（祈祷…）
 
-#electionfraud （大选舞弊）
+所以说他是一个真正的觉者，渡人的觉者，圣人仁子，这按照历史上按照宗教，按照有人类来说，他是当之无愧的，他在纽约当市长的时候，铲除黑帮，拯救善良的人，还有一个就是在他这么多年都是维护着我们常人很难理解的他是一个虔诚的天主教徒，他心中的那个信仰啊，那是我跟他作为朋友，我是有感觉的，让我最佩服的他是一个真正的让我看到是一个觉者，真正是有信仰的人。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08091859/%E5%B0%81%E9%9D%A2EP06v3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08091846/%E7%89%87%E5%B0%BEEP06.jpg)
+更多精彩内容请关注：
 
-#fightfortrump （为川普而战）
+- [为子孙爱七哥农场官方推特](https://twitter.com/wzsaqg)
+- [为子孙爱七哥农场官方GTV号](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
+- [欢迎加入农场discord官方群](https://discord.gg/2vXAV6G)
 
-#fightlikeaflynn （像福林将军一样作战）
-
-#fightback （反击）
-
-
-
-新闻和图片来源 G-Talent
-
-1+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20123101/%E5%86%9C%E5%9C%BA%E5%B9%BF%E5%91%8Av7-3.jpg)
+0
