@@ -1,26 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国德州众议员巴宾提出“活人才能投票”法案
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/632590/)
+## 接种完辉瑞疫苗高烧达41度 !!!
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/632874/)
 
-多伦多枫叶农场（原加喜农场） ctt
-校对 文锦 上传 云起时
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09123010/vote-1.jpg)
-据西方杂志 (The Western Journal) 12月7日报道，由于在这次2020年大选中，很多州发现有死人投票的现象，德克萨斯州共和党众议员布赖恩·巴宾 (Brian Babin) 提出了 “你必须活着才能投票 “的法案（You Must Be Alive To Vote Act）。
+***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-巴宾说：”有人能够轻易地窃取死者的选票，并投下非法的选票，这应该让每一个美国公民感到震惊和愤怒，为了保护我们的民主进程和美国人对选举的信心，我们必须确保已故的个人不允许留在州选民名单上。”
+**西班牙2020年12月9日电/西喜社——**伦敦卫生与热带医学学院的斯蒂芬·埃文斯教授说：“如果说绝对没有不良影响，那就没有疫苗是“安全的”，没有药物是“安全的”。每种有效的药物都会产生不良影响。”
 
-该法案的目标是让各州检查社会安全局的死亡记录，并将死者从选民名单中清除。巴宾说：”对于这些地方县来说，从选民名单中清除已故个人是世界上最简单的事情，他们所要做的就是进入社会保障系统，然后将他们从选民名单中清除。法案会惩罚不执行的州和县，如果他们不每年都这样做，就无法从交通部和教育部获得任何形式的联邦资金。”
+辉瑞公司的试验中有大约20,000人。实验数据表明，该疫苗使Covid病例减少了约95％，但确实有非常常见的副作用，包括注射引起的疼痛、头痛、发冷和肌肉疼痛。这些可能影响超过十分之一的注射人群。
 
-在几个摇摆州的法庭上，已经提交了许多证明各种选举舞弊的宣誓书。这些宣誓书构成了舞弊的证据。虽然巴宾的法案可能会针对摇摆州，但该法案如果签署成为法律，也会对加州和纽约等人口众多的州产生相当大的影响。
+辉瑞疫苗试验者经历
 
-对此, 社交媒体上的一些人认为该法案没有必要，因为实施选民欺诈已经是违法行为，尤其是目前对那些被认定犯有选民欺诈罪的人的惩罚, 通常是高额罚款和5年监禁。然而，巴宾的提案将有望缓解人们对选举过程的担忧，并使各州对他们如何进行选举负责, 可以维护和建立人们对美国民主体制的信任，这一点两党都应该支持。
+在本周发表的《美国医学会杂志》（JAMA）上发表的一篇题为“一位护理研究人员在COVID-19疫苗试验中的经验”的文章中提到了参加辉瑞试验的情况。
 
-评：
+她在论文中写道：“为这项试验提供志愿服务是一件光荣的事。”
 
-这次美国大选中，拜登阵营进行了大量的造假和作弊，死人投票就是其中的方式之一，因为很多州都发现有死人投票的现象，可以看出美国大选存在很多弊病，正如本文所提到的，必须加以立法才能杜绝这一现象，才能够维护和建立人们对美国民主体制的信任。
+她通过了必要的筛查，并很快成为试验参与者之一。该试验涉及一半的参与者注射安慰剂，然后另一半的参与者注射实验性疫苗，以衡量该疫苗是否真正起作用。
 
-[原文链接](https://www.westernjournal.com/gop-congressman-introduces-must-alive-vote-act/?utm_source=push&amp;utm_medium=westernjournalism&amp;utm_content=2020-12-08&amp;utm_campaign=pushtraffic%20GOP%20Congressman%20Introduces%20'You%20Must%20Be%20Alive%20To%20Vote%20Act')
+注射第一针后，Choi感觉很好，感觉就像是并没有接受安慰剂或疫苗的状态。但她在第二个月注射第二针之后则是另外一个故事。
+
+注射部位比她初次注射时要痛苦得多，并且到一天结束时，她就出现了“头晕、冰冷、恶心并且头痛欲裂”。
+
+当晚她入睡之后，在午夜惊醒来，感觉更糟。根据她在JAMA上的描述，她的高烧严重到连手臂都抬不起来。
+
+凌晨5时30分，她再次醒来，量了自己的体温，温度高达摄氏40.5摄氏度。
+
+Choi对CTV新闻说：“我这次高烧是我有记忆以来温度最高的一次。我最初的直觉是，自己是否以某种方式感染了COVID？”
+
+她在上午9点向研究人员报告了自己的反应，并被告知“第二次注射后很多人有反应”，她只需继续监测自己的症状。
+
+就辉瑞疫苗而言，年龄在56岁以上的人比18至55岁的年轻人群具有更轻的副作用。最常见的副作用是各个年龄段都会出现的疲劳和头痛，多达60％的年轻人在第二次注射后感到疲劳。根据提交给FDA的简报文件，年轻组中有16％的人在第二次注射后发烧，而老年组中只有11％。
+
+Choi发烧的温度非常高，被认为是具有“严重的”副作用，而这种情况仅有0.8％的参与者在第二次用药后经历过。
+
+摩德纳疫苗试验者经历
+
+摩德纳疫苗的一位24岁的年轻人说，当他在10月中旬接受第一次注射时，感觉就像是注射了流感疫苗。他解释说：“我在被射中的左臂上感觉到僵硬和疼痛，但这是极其轻微的。” “到那天晚上，我有些疲劳不想将手臂移到肩膀上方，但是这种感觉第二天就消失了。”
+
+与辉瑞疫苗的试验者一样，第二剂的注射是一个完全不同的故事。
+
+注射后，他有与第一次相同的副作用：局部疼痛和僵硬，但情况稍差一些。我的手臂酸痛得更快，到了我回到家的时候，我开始感到疲倦，就像任何人都会感冒一样。
+
+当天晚上出现更明显的症状，开始发低烧、畏寒，该试验者回忆说，“那天晚上很艰难。”
+
+辉瑞公司和摩德纳公司都表示，它们的疫苗可以产生类似于COVID-19感染症状的副作用，包括疲劳、发冷、头痛、肌肉疼痛和关节痛。
+
+经过一夜不安之后，他打电话给研究医生，医生向他保证这是正常反应，无需担心。该试验者说，直到第二天下午，他才稍微恢复。
+
+UCSF传染病专家Peter Chin-Hong博士说，参与辉瑞和Moderna试验的75,000名患者中有25-50％出现了一些副作用。其中有15％的人出现了严重的副作用，需要一天多的时间才能恢复。
+
+尽管Choi在发烧后本能的恐惧是可以理解的，但显然两种疫苗都不会给接种者带来病毒，因为辉瑞和Moderna生产的mRNA疫苗是不使用活病毒的。
+
+负责为Moderna候选疫苗进行临床试验的Hana El Sahly博士说，mRNA技术的一大优势在于其制造速度。一旦知道了病毒的序列，便能快速大量地生产。
+
+- 新闻来源：
+- [https://www.bbc.com/news/health-55216047](https://www.bbc.com/news/health-55216047)
+- [https://www.ctvnews.ca/health/coronavirus/covid-19-vaccines-have-expected-side-effects-but-experts-say-they-re-no-cause-for-concern-1.5222927](https://www.ctvnews.ca/health/coronavirus/covid-19-vaccines-have-expected-side-effects-but-experts-say-they-re-no-cause-for-concern-1.5222927)
+- [https://www.cnbc.com/2020/12/08/pfizer-moderna-covid-vaccine-side-effects-trials.html](https://www.cnbc.com/2020/12/08/pfizer-moderna-covid-vaccine-side-effects-trials.html)
+- [https://www.nbcbayarea.com/news/local/race-for-a-vaccine/side-effects-of-covid-19-vaccine-trail-participant-speaks-out/2417356/](https://www.nbcbayarea.com/news/local/race-for-a-vaccine/side-effects-of-covid-19-vaccine-trail-participant-speaks-out/2417356/)
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0
