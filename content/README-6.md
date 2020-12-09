@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_down:
@@ -10,8 +10,16 @@
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 [](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
+:fire: [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) 收聽G|TV的直播節目 :fire:
 
+---
 ## 頁面 6/30 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [30](/content/README-30.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
+
+[文字版：2020年3月28日郭文贵先生谈我们要在疫情中强大，在疫情中生存，在疫情中赚钱，在疫情中成功！](/content/2020/03/20200331-7430016907269619361.md)
+
+[文字版：2020年3月27日一切美好再也回不到今天了](/content/2020/03/20200331-6998457737623230780.md)
+
+[文字版：2020年3月25日警示九千万党员不要成为皇帝死前的陪葬](/content/2020/03/20200328-980133680998762013.md)
 
 [文字版：2020年3月23日文贵警示好好活着，一年后再想着上班赚钱](/content/2020/03/20200325-1518205290434863780.md)
 
@@ -56,12 +64,6 @@
 [文字版:2020年2月20日文贵先生和班农先生在作战室和喜马拉雅大使馆共同直播](/content/2020/02/20200221-5201737352028779423.md)
 
 [文字版：2020年2月18日郭文贵先生直播警醒同胞2月29日是武汉疫情的分水岭，别上班，躲深山!](/content/2020/02/20200220-6957915304895832685.md)
-
-[文字版:2020年2月15日文贵告诉战友们一定要耐心在家健身健心，会有解药的！CCP灭了车贷房贷不用还了！](/content/2020/02/20200218-4076658468529416877.md)
-
-[文字版：2020年2月14日文贵试直播谈GTV的武汉疫情视频免费用，战友不树敌只为灭共](/content/2020/02/20200216-8326399150836754935.md)
-
-[文字版：2020年2月12日文贵谈一切都听党的走向火葬场](/content/2020/02/20200214-4470688033484197678.md)
 
 
 ## 頁面 6/30 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [30](/content/README-30.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)

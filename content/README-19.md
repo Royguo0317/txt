@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_down:
@@ -10,8 +10,16 @@
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 [](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
+:fire: [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) 收聽G|TV的直播節目 :fire:
 
+---
 ## 頁面 19/30 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) ... [30](/content/README-30.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)
+
+[文字版2：018年12月17日 文贵报平安关于昨天被删除视频和路德Sara 女士，2018年12月18日 关于各种案件都有重大好消息](/content/2018/12/20181218-205233234738962001.md)
+
+[文字版：2018年12月16日 郭文贵先生和战友之声全体战友互动交流 ](/content/2018/12/20181218-4408266402406274127.md)
+
+[文字版：2018年12月14日感谢战友们的关心，聊天谈谈肖建华死期到了吗？及CCP海外抓铺](/content/2018/12/20181218-3889821236277365249.md)
 
 [文字版：2018年12月12日报平安视频讲讲第一个5000万与香港张志强的关系](/content/2018/12/20181218-8948086997100898897.md)
 
@@ -56,12 +64,6 @@
 [文字版：11月7日报平安直播郭台铭在美投资可能 被没收！中期选举后 焦聚11月19号全球爆料王建之死新闻发布会！美国两党亲共官员离职！两党统一反共！](/content/2018/11/20181108-3694443382811258849.md)
 
 [翻译李小牧先生日本报导：沙特记者被害案和海航（王健身死）疑案的“交叉点”](/content/2018/11/20181102-7756356782375038893.md)
-
-[翻译：司法部长杰夫塞申斯宣布了打击中国经济间谍活动的新举措](/content/2018/11/20181102-2322680967443605626.md)
-
-[文字版：2018年11月1号郭文贵先生华府报平安战友们，我以前说的，我希望你们对照正在发生和即将发生的](/content/2018/11/20181102-6608329269804536528.md)
-
-[文字版：10月31日：郭文贵在华盛顿直播 关于今天参加反共大联盟会议的详情和报告 世界正在巨变！](/content/2018/11/20181101-6081222795262941074.md)
 
 
 ## 頁面 19/30 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) ... [30](/content/README-30.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)

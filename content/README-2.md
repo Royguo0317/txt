@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_down:
@@ -10,8 +10,16 @@
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 [](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
+:fire: [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) 收聽G|TV的直播節目 :fire:
 
+---
 ## 頁面 2/30 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [30](/content/README-30.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
+
+[文字版：2020年8月31日郭先生GTV直播](/content/2020/09/20200909-6393113916959370264.md)
+
+[文字版：2020年8月29日郭先生GTV直播连线台湾游行战友](/content/2020/09/20200909-3958441803573956074.md)
+
+[文字版：2020年8月29日郭先生GTV直播连线图桑游行战友  ](/content/2020/09/20200909-4793138191271001277.md)
 
 [文字版：2020年8月29日郭先生GTV直播连线温哥华游行战友](/content/2020/09/20200909-7406434220057898701.md)
 
@@ -56,12 +64,6 @@
 [文字版：2020年7月27日郭先生GTV直播](/content/2020/07/20200730-5703887795037771842.md)
 
 [文字版：郭先生2020年7月25日GTV直播](/content/2020/07/20200729-6515817926208283674.md)
-
-[文字版：2020年7月22日郭先生8分钟盖特](/content/2020/07/20200726-4617342392146265454.md)
-
-[文字版：郭先生2020年7月22日GTV直播](/content/2020/07/20200726-865086789235456284.md)
-
-[文字版：郭先生2020年7月19号参加大卫小哥采访](/content/2020/07/20200726-1420691719987690334.md)
 
 
 ## 頁面 2/30 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [30](/content/README-30.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)

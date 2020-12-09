@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_down:
@@ -10,8 +10,16 @@
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 [](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
+:fire: [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) 收聽G|TV的直播節目 :fire:
 
+---
 ## 頁面 26/30 [**<**](/content/README-25.md) [1](/content/README.md) ... [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) **26** [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [**>**](/content/README-27.md) [查看全部](/content/README-all.md)
+
+[郭文贵先生遥祝澳洲挺郭后援会新年快乐！呼吁放下私心，团结一致，克服恐惧，排除干扰，一起走向喜马拉雅](/content/2018/04/20180418-3865257394170288457.md)
+
+[2017年12月23日郭文贵直播：关于盘古被掠夺、蛆聋等8个伪类的诉讼，以及下一步的爆料计划，文贵向北京再次提出条件](/content/2018/04/20180418-6993418396066281259.md)
+
+[美国新闻网ThinkProgress报道：中国如何在西方国家进行审查和恐吓活动](/content/2018/04/20180418-4208012880425825380.md)
 
 [曹长青 郭宝胜对谈—郭文贵保卫战白热化](/content/2018/04/20180418-7284381815755271685.md)
 
@@ -56,12 +64,6 @@
 [自由灯塔 Bill Gertz：报告称异议人士遭受来自中国的网络和信息攻击](/content/2018/04/20180418-184430822548389263.md)
 
 [文字版：1115郭先生在Instagram 直播 痛斥唐柏桥](/content/2018/04/20180418-7738901583406026314.md)
-
-[文字版：HBO 频道  VICE 新闻：中国流亡富翁郭文贵用Youtube 向贪腐宣战](/content/2018/04/20180418-2996614567598336236.md)
-
-[路透社：美国国会催促要求中国记者注册为特工](/content/2018/04/20180418-1850311727870023205.md)
-
-[自由灯塔：美国之音因为一个有争议的采访解雇了三名员工](/content/2018/04/20180418-4898378291964960909.md)
 
 
 ## 頁面 26/30 [**<**](/content/README-25.md) [1](/content/README.md) ... [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) **26** [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [**>**](/content/README-27.md) [查看全部](/content/README-all.md)

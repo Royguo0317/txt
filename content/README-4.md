@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_down:
@@ -10,8 +10,16 @@
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 [](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
+:fire: [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) 收聽G|TV的直播節目 :fire:
 
+---
 ## 頁面 4/30 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [30](/content/README-30.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
+
+[新中国联邦六四建国直播图文版](/content/2020/06/20200606-8976575972430129554.md)
+
+[文字版:郭先生6月2日直播-正式宣布GTV完成私募](/content/2020/06/20200604-1889289193459336361.md)
+
+[文字版：5月30日郭先生GTV第二次直播](/content/2020/06/20200602-4381535378837818753.md)
 
 [文字版：2020年5月30日郭先生GTV直播](/content/2020/06/20200602-6823555117302845700.md)
 
@@ -56,12 +64,6 @@
 [文字版：5月6日郭先生GTV直播连线Twins](/content/2020/05/20200510-2903203991693841280.md)
 
 [文字版：郭先生5月5日GTV直播](/content/2020/05/20200507-1653317726052582270.md)
-
-[文字版：5月4日郭先生GTV直播](/content/2020/05/20200507-758917873142808151.md)
-
-[文字版：5月2日郭先生GTV直播爆料香港P3实验室](/content/2020/05/20200504-2906844940978365909.md)
-
-[文字版：4月30日郭先生GTV直播，跟正在看直播的共产党员们聊两句](/content/2020/05/20200503-2344599282144457777.md)
 
 
 ## 頁面 4/30 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [30](/content/README-30.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)

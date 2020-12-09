@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_down:
@@ -10,8 +10,16 @@
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 [](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
+:fire: [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) 收聽G|TV的直播節目 :fire:
 
+---
 ## 頁面 5/30 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [30](/content/README-30.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
+
+[文字版：5月4日郭先生GTV直播](/content/2020/05/20200507-758917873142808151.md)
+
+[文字版：5月2日郭先生GTV直播爆料香港P3实验室](/content/2020/05/20200504-2906844940978365909.md)
+
+[文字版：4月30日郭先生GTV直播，跟正在看直播的共产党员们聊两句](/content/2020/05/20200503-2344599282144457777.md)
 
 [文字版:2020年4月29日郭先生GTV直播](/content/2020/05/20200502-8838486692400180379.md)
 
@@ -56,12 +64,6 @@
 [文字版：2020年4月1日文贵为什么在3月31日要谈第二次世界大战](/content/2020/04/20200403-1478603494714953028.md)
 
 [文字版：2020年3月31日谈亚洲的耶路撒冷香港，和GTV，G-News，G-Fashion](/content/2020/04/20200402-257449982049081995.md)
-
-[文字版：2020年3月28日郭文贵先生谈我们要在疫情中强大，在疫情中生存，在疫情中赚钱，在疫情中成功！](/content/2020/03/20200331-7430016907269619361.md)
-
-[文字版：2020年3月27日一切美好再也回不到今天了](/content/2020/03/20200331-6998457737623230780.md)
-
-[文字版：2020年3月25日警示九千万党员不要成为皇帝死前的陪葬](/content/2020/03/20200328-980133680998762013.md)
 
 
 ## 頁面 5/30 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [30](/content/README-30.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)

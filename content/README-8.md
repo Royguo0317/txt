@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_down:
@@ -10,8 +10,16 @@
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 [](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
+:fire: [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) 收聽G|TV的直播節目 :fire:
 
+---
 ## 頁面 8/30 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [30](/content/README-30.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
+
+[文字版：2020年1月18日文贵谈刘鹤招待会取消预示着什么，爆料革命击中了中共的所有要害](/content/2020/01/20200120-5512396279941051665.md)
+
+[文字版：2020年1月17日文贵谈中美贸易战内幕：中美贸易协议为何一定是滑稽的结局](/content/2020/01/20200119-3958906328707892329.md)
+
+[文字版：2020年1月15日郭先生第二次直播:谈中共在白宫签署2020庚子协议，不让中国人知道的秘密](/content/2020/01/20200117-3671117697820424397.md)
 
 [文字版：2020年1月15日文贵谈美国白宫建筑意义、广场协议的后果以及中美贸易协议签不签中共都必亡](/content/2020/01/20200117-6409722284040678861.md)
 
@@ -56,12 +64,6 @@
 [文字版：2019年12月24日文贵在凤凰城报平安-中共大肆杀狗真相竟是因为迷信](/content/2019/12/20191228-7349804487258741094.md)
 
 [文字版：2019年12月23日文贵在凤凰城提醒香港同胞一定不要被CCP分化](/content/2019/12/20191228-6154119938253081684.md)
-
-[文字版：2019年12月22日文贵在亚利桑那州凤凰城报平安](/content/2019/12/20191224-7733122154135213265.md)
-
-[ 文字版:2019年12月21日文贵报平安谈谈欺诈犯郭宝胜庭审细节和海外华人形象危机](/content/2019/12/20191223-5404079886262729317.md)
-
-[文字版：2019年12月8号文贵报平安直播](/content/2019/12/20191220-6902125038601635282.md)
 
 
 ## 頁面 8/30 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [30](/content/README-30.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)

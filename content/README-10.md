@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_down:
@@ -10,8 +10,16 @@
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 [](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
+:fire: [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) 收聽G|TV的直播節目 :fire:
 
+---
 ## 頁面 10/30 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [30](/content/README-30.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
+
+[文字版：2019年11月23日文贵报平安直播](/content/2019/11/20191125-6475275943691135995.md)
+
+[文字版：2019年11月21日感谢万佛万神，警告海外华人不要帮中共作恶并喊话黄芳](/content/2019/11/20191122-9185268058186409613.md)
+
+[文字版：2019年11月19日庆祝香港人权与民主法案全票通过](/content/2019/11/20191121-5294984680700709371.md)
 
 [文字版：11月19号文贵报平安，有关11.20直播安排和香港理工大的背后故事](/content/2019/11/20191120-7407976853651843177.md)
 
@@ -56,12 +64,6 @@
 [文字版：2019年10月30日特别节目文贵和Sara、路德、江财神在喜马拉雅大使馆谈区块链](/content/2019/11/20191104-6223234375354578515.md)
 
 [文字版：2019年10月29日郭文贵先生与庄烈宏先生直播](/content/2019/11/20191104-6256642616766807144.md)
-
-[文字版：2019年10月28日文贵紧急直播](/content/2019/11/20191104-5535756797858660589.md)
-
-[文字版：2019年10月27日文贵试直播乱聊](/content/2019/11/20191104-2431489573018737402.md)
-
-[文字版：2019年10月26日文贵和战友谈北京局势和四中全会](/content/2019/11/20191104-7849947075695036861.md)
 
 
 ## 頁面 10/30 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [30](/content/README-30.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)

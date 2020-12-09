@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_down:
@@ -10,8 +10,16 @@
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 [](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
+:fire: [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) 收聽G|TV的直播節目 :fire:
 
+---
 ## 頁面 15/30 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) ... [30](/content/README-30.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)
+
+[文字稿：香港時間2019年6月17日上午直播](/content/2019/06/20190618-7972608617443196420.md)
+
+[文字版：2019年6月14日郭文貴先生直播：林鄭月娥必须提出辭職，取消「逃犯條例」](/content/2019/06/20190615-9025117161508016054.md)
+
+[文字版：2019年6月13日傍晚与细丝和庄烈宏直播](/content/2019/06/20190615-8556712015252001819.md)
 
 [文字版：郭先生緊急喊話香港616必須上街！](/content/2019/06/20190615-3492189013164617550.md)
 
@@ -56,12 +64,6 @@
 [文字版：2019年5月10日文贵50岁生日感言](/content/2019/05/20190511-4805446820921789375.md)
 
 [文字版：郭文贵 5月9日 中共玩弄中美贸易协议重大事件！全球金融市场陷入惊慌！美国将对台湾香港采取战略调整](/content/2019/05/20190511-3890850294287177156.md)
-
-[文字版：2019年5月6日文贵直播谈谈，为什么川普总统要突然间的停掉，中美贸易协定共产党必须还回属于14亿中国人民的一切财富一切权力！](/content/2019/05/20190510-4083283175191346612.md)
-
-[文字版：2019年5月8日，文貴聊聊，為什麼中方要求美方不能公開中美的貿易協議內容！為什麼文貴的夢語，郭九條](/content/2019/05/20190510-3983721227880771175.md)
-
-[文字版：2017年4月28日郭先生接受BBC采訪的視頻](/content/2019/05/20190510-8107152999267349007.md)
 
 
 ## 頁面 15/30 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) ... [30](/content/README-30.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)

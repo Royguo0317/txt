@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_down:
@@ -10,8 +10,16 @@
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 [](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
+:fire: [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) 收聽G|TV的直播節目 :fire:
 
+---
 ## 頁面 28/30 [**<**](/content/README-27.md) [1](/content/README.md) ... [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) **28** [29](/content/README-29.md) [30](/content/README-30.md) [**>**](/content/README-29.md) [查看全部](/content/README-all.md)
+
+[2017年10月26日郭文贵直播十九大后爆料计划](/content/2018/04/20180418-5280457825220252571.md)
+
+[翻译：自由灯塔：美国社交媒体堵嘴中国异议人士](/content/2018/04/20180418-8757739535920514791.md)
+
+[翻译：《华盛顿时报》塞申斯威胁要因中国异议人士而辞职](/content/2018/04/20180418-7145054021115241529.md)
 
 [翻译：Breitbart News:中国通过赌场大亨史蒂夫·温恩敦促特朗普将叛逃的亿万富翁驱逐出境](/content/2018/04/20180418-1311698055875889734.md)
 
@@ -56,12 +64,6 @@
 [（二）2017郭文贵爆料到国贼全球发“不”会第四集 ](/content/2018/04/20180418-144661617364703849.md)
 
 [（一）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-7734893512727563056.md)
-
-[1012郭文贵先生分享纽约城市天际线，想大家了没有爆料即兴直播](/content/2018/04/20180418-4451931649943991252.md)
-
-[《海峡时报》中国流亡大亨郭文贵在自己推特上登出一周内连续两次与班农会见合影](/content/2018/04/20180418-1194055060299517840.md)
-
-[翻译：华盛顿自由灯塔：异见人士披露中国对美进行秘密情报刺探计划](/content/2018/04/20180418-2729532853787239400.md)
 
 
 ## 頁面 28/30 [**<**](/content/README-27.md) [1](/content/README.md) ... [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) **28** [29](/content/README-29.md) [30](/content/README-30.md) [**>**](/content/README-29.md) [查看全部](/content/README-all.md)

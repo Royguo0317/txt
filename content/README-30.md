@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_down:
@@ -10,8 +10,16 @@
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 [](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
+:fire: [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) 收聽G|TV的直播節目 :fire:
 
+---
 ## 頁面 30/30 [**<**](/content/README-29.md) [1](/content/README.md) ... [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) **30** [查看全部](/content/README-all.md)
+
+[2017年9月19日明镜专访郭文贵第六期（4）：雷洋生前去盘古见的谁？](/content/2018/04/20180418-5167983296675509473.md)
+
+[2017年9 月19 日 明镜专访郭文贵第六期（6）：王岐山与孟建柱会进国安委](/content/2018/04/20180418-1721457250505894859.md)
+
+[2017年9月19日 明镜专访郭文贵第六期（5）：害死袁宝璟的是孟建柱](/content/2018/04/20180418-4181709165210679355.md)
 
 [文贵9月15日直播第二季第二集：孟建柱的最爱的情人，与政法黑暗到什么程度，除了杀人灭口，他们为什么要杀掉雷洋？杨澜为什么子宫切除？吴征为什么要参与杀雷洋？以黑占有当事人的巨额财富！如何欺骗习主席，党中央！](/content/2018/04/20180418-3737775031867528364.md)
 

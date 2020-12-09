@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_down:
@@ -10,8 +10,16 @@
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 [](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
+:fire: [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) 收聽G|TV的直播節目 :fire:
 
+---
 ## 頁面 23/30 [**<**](/content/README-22.md) [1](/content/README.md) ... [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) **23** [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) ... [30](/content/README-30.md) [**>**](/content/README-24.md) [查看全部](/content/README-all.md)
+
+[文字版5月24日栗战书秘书因为董文彪曲龙王岐山被抓](/content/2018/05/20180525-5314910770568044153.md)
+
+[文字版郭文贵先生2018 05 17 Broadcast试播](/content/2018/05/20180520-991291288208648069.md)
+
+[文字版郭文贵5月10日郭媒体直播:感谢大家的生日祝福!跟大家聊聊天](/content/2018/05/20180512-8900938020145834574.md)
 
 [文字版：2018/05/05——戊戌年 郭文贵先生报料直播](/content/2018/05/20180507-6937287796340481468.md)
 
@@ -56,12 +64,6 @@
 [文字版：2018年4月7号郭文贵爆：吴晓辉在华尔道夫酒店的保险箱藏有什么，吴晓辉与胡舒立-海航．是你么逻辑上的关系！](/content/2018/04/20180418-26077859752910433.md)
 
 [文字版2018年4月6日王岐山抓吴晓辉是打邓家威胁美国总统的一箭多雕之计！ ](/content/2018/04/20180418-6417716069003334186.md)
-
-[文字版2018年4月5日文贵告诉您：吴晓辉的飞机上的牛人是谁！](/content/2018/04/20180418-7188809671168778035.md)
-
-[文字版2018年4月4号吴晓辉的飞机上藏着＂核武器＂！](/content/2018/04/20180418-8927936442107582299.md)
-
-[文字版2018年4月3日健身篇和中国企业家都是盗国贼资本的代孕者](/content/2018/04/20180418-5122406140766697803.md)
 
 
 ## 頁面 23/30 [**<**](/content/README-22.md) [1](/content/README.md) ... [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) **23** [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) ... [30](/content/README-30.md) [**>**](/content/README-24.md) [查看全部](/content/README-all.md)

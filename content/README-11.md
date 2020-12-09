@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_down:
@@ -10,8 +10,16 @@
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 [](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
+:fire: [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) 收聽G|TV的直播節目 :fire:
 
+---
 ## 頁面 11/30 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [30](/content/README-30.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
+
+[文字版：2019年10月28日文贵紧急直播](/content/2019/11/20191104-5535756797858660589.md)
+
+[文字版：2019年10月27日文贵试直播乱聊](/content/2019/11/20191104-2431489573018737402.md)
+
+[文字版：2019年10月26日文贵和战友谈北京局势和四中全会](/content/2019/11/20191104-7849947075695036861.md)
 
 [文字版2019年10月25日文贵跟路德再谈彭斯副总统演讲的重大意义](/content/2019/10/20191028-4834533128406187922.md)
 
@@ -56,12 +64,6 @@
 [文字版：2019年9月30日开篇演讲](/content/2019/10/20191001-5934250796818600450.md)
 
 [文字版：20190928郭先生船上直播，香港即将迎来关键一战，国庆就是CCP的末日，美将清算到国贼资产，以美灭共，依法灭共，以共灭共的伟大时代已经来临](/content/2019/09/20190929-7939918714279530876.md)
-
-[文字版：2019年9月27日郭先生联合班农先生、Kathy Sloan女士直播：江泽民震惊发言：中国要出事！你们准备后路吧！！国庆阅兵没几个国家会参加，川普总统的弹劾程序和对中共的制裁将有大戏上演！](/content/2019/09/20190928-167661051507921662.md)
-
-[文字版：2019年9月24日郭文貴先生和江財神路德三人談政治經濟愛情以及外星人！妄圖彈劾總統是好事！](/content/2019/09/20190927-5347503096158314507.md)
-
-[文字版：9月24日 郭文贵先生直播 红烧肉真香，CCP给人民吃瘟猪肉，还把阅兵后的帅哥美女按领导级别分配，美女当小三，帅哥当领导夫人](/content/2019/09/20190927-2016233729904353338.md)
 
 
 ## 頁面 11/30 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [30](/content/README-30.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)

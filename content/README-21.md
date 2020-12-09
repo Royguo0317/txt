@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_down:
@@ -10,8 +10,16 @@
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 [](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
+:fire: [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) 收聽G|TV的直播節目 :fire:
 
+---
 ## 頁面 21/30 [**<**](/content/README-20.md) [1](/content/README.md) ... [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) **21** [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) ... [30](/content/README-30.md) [**>**](/content/README-22.md) [查看全部](/content/README-all.md)
+
+[文字版：9172018 文贵先生直播王健事件重大进展法国已经正式立案重新调查！](/content/2018/09/20180917-8550776674007589502.md)
+
+[文字版：路德访谈中南海保镖亨利小哥（下）：再次深入曝光中南海常委们的性故事，捞钱的故事，升官的规则](/content/2018/09/20180916-1687313530283465166.md)
+
+[文字版：9月10号马云辞职的真正原因](/content/2018/09/20180913-8040960110830809305.md)
 
 [文字版：2018年9月11日文贵在船上与大家听音乐并承诺给中国老兵捐两亿美元](/content/2018/09/20180913-5367861768541759446.md)
 
@@ -56,12 +64,6 @@
 [文字版： August 9th 2018](/content/2018/08/20180810-4219843988347833039.md)
 
 [文字版：2018年8月6日晚上文贵致王健夫人及兄王伟先生的提示法国这个与王健一起最后晚餐的女人！](/content/2018/08/20180809-4256963212298749895.md)
-
-[文字版：2018.8.7王健被杀死前曾接触过其他国家情报部门并通过香港中间人与文贵有联系！](/content/2018/08/20180809-3627104687795521023.md)
-
-[文字版：8月5号王健被杀的过程和涉及的人](/content/2018/08/20180808-5918968027514942039.md)
-
-[文字版：2018 7月22号王建被杀背后的其他细节！及为什么李红宽输掉了官司！（1，2）](/content/2018/07/20180725-7254204072739066791.md)
 
 
 ## 頁面 21/30 [**<**](/content/README-20.md) [1](/content/README.md) ... [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) **21** [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) ... [30](/content/README-30.md) [**>**](/content/README-22.md) [查看全部](/content/README-all.md)

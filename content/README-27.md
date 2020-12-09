@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_down:
@@ -10,8 +10,16 @@
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 [](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
+:fire: [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) 收聽G|TV的直播節目 :fire:
 
+---
 ## 頁面 27/30 [**<**](/content/README-26.md) [1](/content/README.md) ... [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) **27** [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [**>**](/content/README-28.md) [查看全部](/content/README-all.md)
+
+[文字版：HBO 频道  VICE 新闻：中国流亡富翁郭文贵用Youtube 向贪腐宣战](/content/2018/04/20180418-2996614567598336236.md)
+
+[路透社：美国国会催促要求中国记者注册为特工](/content/2018/04/20180418-1850311727870023205.md)
+
+[自由灯塔：美国之音因为一个有争议的采访解雇了三名员工](/content/2018/04/20180418-4898378291964960909.md)
 
 [国际新闻工作者协会盯上了VOA断播并解雇三位员工事件](/content/2018/04/20180418-6885559451730743203.md)
 
@@ -56,12 +64,6 @@
 [翻译：《每日野兽》报：这支推特水军部队正在围剿一名中国异议分子](/content/2018/04/20180418-3200590908291834579.md)
 
 [文字版 郭先生10月27报平安](/content/2018/04/20180418-1204915936908036259.md)
-
-[2017年10月26日郭文贵直播十九大后爆料计划](/content/2018/04/20180418-5280457825220252571.md)
-
-[翻译：自由灯塔：美国社交媒体堵嘴中国异议人士](/content/2018/04/20180418-8757739535920514791.md)
-
-[翻译：《华盛顿时报》塞申斯威胁要因中国异议人士而辞职](/content/2018/04/20180418-7145054021115241529.md)
 
 
 ## 頁面 27/30 [**<**](/content/README-26.md) [1](/content/README.md) ... [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) **27** [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [**>**](/content/README-28.md) [查看全部](/content/README-all.md)
