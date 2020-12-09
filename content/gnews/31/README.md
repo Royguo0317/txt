@@ -1,31 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 网易“美限CCP及亲属赴美”几获26万叫好，四个时辰过后只剩五毛一条
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/631819/)
+## 为何美国人有枪 而中国人没有抢呢？— 读战友的盖特留言有感
+` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/631992/)
 
-*新闻来源：新之助推文；编辑：英国之声*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09092416/%E4%B8%BA%E4%BD%95%E7%BE%8E%E5%9B%BD%E4%BA%BA%E6%9C%89%E6%9E%AA-%E8%80%8C%E4%B8%AD%E5%9B%BD%E4%BA%BA%E6%B2%A1%E6%9C%89%E6%8A%A2%E5%91%A2%EF%BC%9F%E2%80%94-%E8%AF%BB%E6%88%98%E5%8F%8B%E7%9A%84%E7%9B%96%E7%89%B9%E7%95%99%E8%A8%80%E6%9C%89%E6%84%9F.png)
+作者：京都富士会 ThreeColors
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09083336/IMG_1.jpg)
+GTV上战友的一段留言“美国人也就那样，如果不是有枪，跟中国人一样懦弱！这跟人种没关系，这是人性决定的！ 拿着枪对着你，你就是再勇敢，你敢反抗吗？”，我觉得也对也不对。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09085247/1-37.jpg)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09090233/33-2.jpg)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09090223/44.jpg)
+只要是人就都有弱点，美国人大都有信仰，也尊重普世价值。美国的国父们也深知人性的弱点，所以让美国人民有选举权，人手一张选票。为了防止像中共这样的独裁组织试图破坏其民主选举，也考虑到美国人选出的总统也有可能不合格，所以又创建了参议院和众议院。然后，又唯恐两院不作为，进而设立了大法官制度。但是，大法官也是人，也同样有人性的弱点，因受贿等等不能公允裁断怎么办？于是，又要求媒体不为政治服务。担心新闻媒体控制言论自由，最后才有了最后一道防线：持枪权！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09090117/IMG_2.jpg)
+中国人和美国人可能区别不大，区别在于国家的制度。假如被人拿枪顶着头，就得跪地求饶，所以要做那个拿枪的人，是吗？也许，这就是那一点点的区别吧！是灭共让我们成为战友的，灭共刻不容缓！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09090814/Screenshot-2020-12-09-at-14.04.41.png)
-
-# **还我言论自由！**
-
-【文章仅代表作者观点】
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】
-![]()![](https://spark.adobe.com/page/AwfBxKCmeuDHR/images/6a724ac9-c23e-4613-b464-7394a68c6cb1.jpg?asset_id=d8d2c47a-56e2-49cd-a684-9eb21fa8e121&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-2+
+1+
