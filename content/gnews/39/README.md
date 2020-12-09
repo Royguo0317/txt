@@ -1,38 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 现在还要不要囤粮？怎么囤？
-` GM64` [轉載自GNews](https://gnews.org/zh-hans/629763/)
+## 【热点播报】保卫第二修正案：美国人今年购买2000万支枪支
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/630394/)
 
-供稿：归零
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08152545/image1-1.jpeg)
-据路德和郭文贵先生透露，美国已经确定了斩首及同时定点清除包括核武在内的军事设施的策略，如果党内军内没有人站出来实现和平演变的话，粮食危机、热战和以及随之而来的次生灾难几乎是未来几个月难以避免的。无论是和平演变还是定点爆破，新中国联邦组织的国际救援物资一定会在可能的第一时间进入，尽可能多地救助同胞。那么，我们国内的战友现在还要不要囤粮？
+作者：香草山写作组 wilson
 
-在我看来，食物是一定要囤的，关键是要考虑可能发生的各种情况，有针对性地准备。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07015922/logo-3-1-1.jpg)
 
-一、应对疫情
 
-病毒大爆发和疫苗引发的灾难即将到来，也就是说在热战或和平演变发生之前还有一段时间是在中共治下的，一旦疫情大爆发，会采用全封锁疫情管理模式。这时候储备一定的食物是非常必要的，一来减少外出感染病毒的风险（考虑到即将到来的粮食危机，在线购买都有记录，并不安全，大量购买时最好用现金在实体店购买），二来应对疫情导致的各种封锁，如果出现武汉、新疆那样的封城，可以保障全家的正常所需。这是在粮食不紧缺或局部供给不畅的情况下，可以按照家庭的生活习惯多样化储存。
 
-酯薄膜袋（Mylar Bags）或铝箔袋可以解决粮食短期变质的问题。这种材料防光，防氧，防空气和防水。用聚脂薄膜袋和干燥剂真空包装的大米能够保存10-20年。面粉也可以用此办法，保存10-15年，全麦面大概10年。但面粉需要事先冷冻至少96小时，以杀死虫卵，然后连包装将面粉放入聚脂薄膜袋，再放入干燥剂，真空塑封。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08153040/image2.png)
-二、应对粮食紧缺
 
-这种情况更应该储备一些食物。需要选择可以常温存放且保质期长的方便食品，如真空包装粮食、罐头食品、脱水的食物和冷冻干燥的食物、瓶装水等。并隐藏起来，以应对偷粮和抢粮的情况。曾听说过60年代老人为防止抢粮，将玉米面打成糊抹在墙上。而现在有更高的食品保存工具和技术，需要稍动脑筋。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08152945/image3.png)来源：https://www.thereadystore.com/
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03002405/%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5.jpeg)
+2020 年 12 月 8 日，何塞.尼诺撰文称，来自联邦调查局的数据，今年11月单月售出了1920155支枪支，预计今年将售出超过2000万件枪支，将是2019年的约1.47倍。
+枪支销售创下历史新高，表明美国人不畏邪恶势力，坚定捍卫第二修正案和“天赋人权”的决心。(已编辑)
 
-经过防水、防光和真空处理过的食物可以放在大桶中埋在院子里，没有院子的城市可以分成小包装藏在种着植物的大花盆里、装在任何不透明的（非食品类）商品外包装盒里，还可以藏在枕头中、沙发里、衣橱、抽屉、吊顶等隐蔽处等。
+校对发稿：悟空
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08212509/g-w.jpg)
+参考：https://populist.press/november-set-records-for-gun-sales/
 
-旧电器和电子产品内部也是很好的存储地方。如无法使用的电视、空调，可以将其掏空并放入包装好的食物。甚至可以针对墙壁、壁柜、地板稍加改造，做成小暗室。
+Populist Press 2021 ©
+B K
+November Set Records for Gun Sales
+Read Full Article HereNow that former Vice President Joe Biden is the presumptive president-elect, conservatives are busy re-grouping.Although the presidential election appears to be sorted out, electors still have to cast their ballots on December 14. On top of that, there’s still unsettled business in Georgia.While a 50-50 split by no means gu…
 
-三、应对热战
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-做好随时撤离城市的食物储备和准备。有条件的可以提前找好热战发生时要躲避的地方，并在躲避处埋藏食品、药品、水和其他必须物品。如没有条件，计划在城市等消息的，这就需要精选需要带走的高热量食物（如压缩饼干、葡萄糖、巧克力等），提前做防水处理，缝在大衣里，可以即穿即走。大衣需要准备至少两件，最好是偏硬防水的材质，可以同时套着穿在身上，每一件里面都要有最关键的食品、药品等生存必须品。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08152931/image4.png)
-同时还应准备应急包，包括身份证明、包装食品、急救药品、替换衣物、通讯设备（等新中国联邦的安排）、手电筒和用于基本物品的备用电池。如果可能，带上清洁用品，如肥皂、至少含60％酒精的洗手液、消毒湿巾以及可用于定期清洁触摸表面的一般家庭清洁用品之类的物品。这在疫情期间和核爆炸之后都是维持健康的重要物品。此外，关照到每个人的特殊需要，特别是老人、孩子、病人的需求。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-我们希望战争永远也不要到来，但身处乱世，需要尽可能做好准备，以不变应万变。
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-本文章仅代表个人观点。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07015922/logo-3-1-1.jpg)
 
-1+
+
+
+0

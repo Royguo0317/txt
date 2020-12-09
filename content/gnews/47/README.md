@@ -1,29 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国务院抨击北京军事挑衅
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/629596/)
+## 运-9反潜机投放的新型航空自导深弹标靶竟然设在陆上
+` 快慢机` [轉載自GNews](https://gnews.org/zh-hans/630196/)
 
-- 编辑：Víctor Torres
-- 作者：Víctor Torres
+内军事:快慢机
 
+素材:文朝汗
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08194625/4e4a20a4462309f77f38d368e42260f4d7cad62d.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08194601/fd039245d688d43f760a787beb32be1c0ff43b48.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08194614/71cf3bc79f3df8dc1cab55cd573d1e8c46102888.jpeg)
+近日,中共东部战区海军航空兵某师展开反潜实弹考核演练.响应中共中央总书记习近平以实战背景锤炼部队提高备战水平的要求.该次考核演练中,更是罕见地出现了运-9反潜机搭载新型航空自导深弹,向目标实施投送的“经典画面”!
 
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+中共军方称这款航空自导深弹是专门为运-9反潜机量身定制的新型武器装备.可布置在运-9机腹的大型弹仓内.令其更加如虎添翼.运-9反潜机升空抵达演习目标空域后,机载空中雷达兵随即发现目标,并引导火控指令长对目标实施投放攻击.整个过程中从发现目标到实施攻击,标靶“敌方潜艇”始终都是处于水面悬浮状态.
 
-西班牙2020年12月8日电/西喜社——ShareAmerica周一发文，指控中国共产党在整个印度-太平洋地区采取危险的、具有威胁性的行为，对其比邻构成了威胁。
+从现场的图片可以清晰的看出,拿那艘所谓一直处于水面悬浮状态的“敌方潜艇”标靶.其实是设在陆地上的一个硕大的白色十字准星.这未免太过令人匪夷所思!难不成是运-9反潜机的飞行员是从陆军借调过去的驾驶员吗?是情怀使然旱鸭子只认陆上目标,还是迷路走丢后的误打误撞?运-9反潜机投送新型航空自导深弹演练,不去海上作业,却在对设在陆地上的准星“狂轰滥炸”.而且炸的还是一艘处于水面悬浮状态,不会移动的活靶子.反潜机把轰炸机的活给抢了,全新研制的航空自导深弹瞬间变为钻地弹使用.您还别说,这也算是一弹多用了.
 
-美国正在建设一个自由、开放的印度-太平洋（Indo-Pacific）地区，但北京却通过其军事挑衅，将全世界置于风险之中，并加剧了暴力冲突威胁。
+从这次运-9的实弹考核演练就可以清晰的得出这样一个结论——那就是中共自上而下的自欺欺人,假、大、空遍布中共的各级体系.军队的实弹演练都可以如此的儿戏,“演”是主线,演给谁看呢?这样的军队在实战中又能有多少战力与胜算呢?
 
-ShareAmerica 是美国国务院阐述美国对全世界外交政策的平台。该平台提供的视频资料称，中共在南中国海有争议的区域建立了军事化基地，利用它们阻断获取资源的通道，并封闭航道。
-
-其军队威胁着近邻，其中包括热爱自由的台湾。并加剧了同印度的边境紧张局势。中共国不计后果的行为，增加了引发争端的风险。美国致力于同合作伙伴和盟国共同努力，抵制中国的破坏性行为。并倡导一个自由，开放的印度—太平洋地区。
-
-新闻来源：
-
-[https://share.america.gov/zh-hans/beijings-military-aggression-video/](https://share.america.gov/zh-hans/beijings-military-aggression-video/)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08134658/010101.png)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
-
-0
+2+

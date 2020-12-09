@@ -1,61 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 纳瓦罗：美国在选举拉票审查中目睹了“无懈可击的欺骗”
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/629681/)
+## 富时罗素踢出八家被美国列入黑名单的中共公司
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/629593/)
 
-*新闻来源：福克斯商业（FOX BUSINESS）｜作者：查理斯·克里茨（Charles Creitz）；*
+*新闻来源：路透社(Reuters)｜作者：Ross Kerber, Alexandra Alper*
 
-*翻译、简评：Dreamer文童｜校对：感恩｜审核：万人往｜PAGE：玄天生；*
+*翻译/简评： MikeHua；校对：X-Wing飞得更高；审核：万人往；PAGE：玄天生*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08203654/13223452-1.jpg)
+#### **简评：**
 
-**简评：**
+本文报导英国富时指数将除名八家中共国公司的股票，这是继美国将中共国公司列入制裁黑名单的又一有力举措。其他股票指数公司也将评估事态发展，遵循美国法律，可能制裁更多中共国公司。
 
-白宫贸易顾问皮特·纳瓦罗（Peter Navarro）周五在接受福克斯商业网（FOX Business Network）主持人利兹·克拉曼（Liz Claman）采访时称，他所了解的选举舞弊行为发生在6个州。
+中共在海外上市公司大多是骗钱吸金、充当间谍平台的党企，听党指挥。文贵先生很早就说过，美国一定会制裁这些公司，阻断对中共的输血网络。没有资本、技术的支持，中共就不会有能力制造生化病毒、改选票、毁灭全人类。希望美国和西方世界早日苏醒，认清中共对他们的威胁，和爆料革命、新中国联邦一起行动，为中国和世界人民创造美好未来。
 
-2020年美国选举舞弊最先由爆料革命路德社根据内部情报提前公布于众。随后，川普总统私人律师朱利安尼先生接受采访时表示存在选举舞弊，并代表川普总统在重要摇摆州提起诉讼。紧接着，林·伍德和悉尼·鲍威尔两位律师也站出来揭露选举舞弊，并直接参与选举舞弊相关的诉讼。到目前为止，已经有宾夕法尼亚、亚利桑那、密歇根和内华达四个州的立法机构就美国选举舞弊问题举行公开听证会，威斯康星州也将于12月11日举行听证会。这些听证会是以合法形式向美国人民公开揭露选举舞弊的最好方式，出示实锤证据唤醒民意，为下一步对所有牵涉舞弊行为的个人或组织实施法律制裁做准备。
+#### **原文翻译**
+
+## 富时罗素指数将除名八家被美国列入黑名单的中共公司
+
+波士顿/华盛顿（路透社）–指数提供商富时罗素（FTSE Russell）在周五声称，他们将在美国命令限制投资者购买数家股份之后，在其部分产品中除名视频监控公司海康威视和其他七家中共公司的股票。
+
+![]()![](https://spark.adobe.com/page/AwfBxKCmeuDHR/images/e8e4c67d-4a23-4855-ad60-dc1bef485cb6.png?asset_id=f4292d7e-0726-4641-a7a1-8e0562c36bb6&amp;img_etag=%22d8210f52042664faf5bef65a14af92c7%22&amp;size=2560)*资料图片：街道清洁工走过伦敦金融街的伦敦证交所大楼，英国，2020年3月9日，路透社，Toby Melville摄。*
 
 
-> ***原文翻译***
+这一行政命令在上月由白宫发布并首先由路透社报道，行政命令禁止美国投资者购买黑名单公司的证券，从2021年11月开始。
 
+一名明晟的发言人表示他们已在寻求市场参与者对此行政命令的反馈，包括对明晟指数的实际涵义以及是否会对现存指数有改变或者加入新的指数，这些指数“对维持明晟的相关指数的可投资性有必要或者有帮助，并且帮助投资者配合行政命令。”
 
-**纳瓦罗:美国在选举拉票审查中目睹了“无懈可击的欺骗”**
+“我们到12月4日之前都欢迎反馈。”发言人在邮件中说。“我们会尽快将咨询的结果公开。”
 
-纳瓦罗（Navarro）敦促新的薪资保护项目（PPP）和刺激法案以对抗COVID带来的衰退。
+金融时报报道，纳斯达克（NASDAQ）正在评估此事，并且可能会在下周发表他们的结论，金融时报没有引用来源。纳斯达克没有对此事发表评论。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/0dlDWzVDZqnhP/images/db595f73-fd06-4519-9e6d-e2b9b8af1d9a.jpg?asset_id=98044c25-9c81-4734-a3ea-08913cc72ac7&amp;img_etag=%22696a52d8aeaee3689de6b6aa76842960%22&amp;size=1024)](https://spark.adobe.com/page/0dlDWzVDZqnhP/images/db595f73-fd06-4519-9e6d-e2b9b8af1d9a.jpg?asset_id=98044c25-9c81-4734-a3ea-08913cc72ac7&amp;img_etag=%22696a52d8aeaee3689de6b6aa76842960%22&amp;size=1024)
+富时日前曾表示正在评估证券，可能会根据美国当局的调查结果除名更多公司。
 
-白宫贸易顾问在《克拉曼倒计时》（The Claman Countdown）节目中就冠状病毒救助协商和选举发表意见。
+八家即将被除名的公司被美国国防部列在“中共国军方企业”的名单上。
 
-白宫贸易顾问皮特·纳瓦罗（Peter Navarro）周五告诉福克斯商业网（FOX Business Network）《克拉曼倒计时》（The Claman Countdown）节目，国会在帮助数百万受到冠状病毒疫情和随后的经济停摆影响的美国人方面 “晚两个月且短缺一万亿美元”。
+这八家公司包括中国交通建设公司，中国核工业建设股份有限公司，中国中车，中科曙光和中国化学工程集团。
 
-“不幸的是，救济法案被牵涉进政治因素，我认为很明显，民主党人并不想帮助川普总统。”纳瓦罗说。“但目前我们所面临的，正如我所看到的，是分歧。”
+一名海康威视发言人说该行政命令是“无根据的”，因为海康威视从来没有参与军方用途的研发。
 
-“我不喜欢今天那个（11月份就业）的失业率报告，我们清楚看到我所说的第二个衍生问题。”他接着说。“我们在就业率和类似事情方面有上升趋势，但显然是以下降的速度。这就是第二个衍生问题，我们现在将要看到的是快速翻转，也就是失业率将停止（下降）并开始回升。”
+“海康威视已经全面配合美国政府，并且完全透明地回答了政策制定者的问题。”该发言人在一次声明中说。
 
-纳瓦罗接着将2020年选举描述为 “无懈可击的欺骗”，他对主持人利兹·克拉曼（Liz Claman）说：“我所看到的一切都告诉我，这次大选被窃取了；我所看到的一切发生在6个州。”
+“我们已经尝试纠正对公司和我们业务的误解。我们也会继续这么做。”
 
-克拉曼对纳瓦罗的观点施压，指出几名法官并“没有看到 ”任何将推翻乔·拜登（Joe Biden）选举获胜的证据。她指出，宾夕法尼亚州一起重要选举诉讼案已被美国巡回法院法官斯蒂芬诺斯·比巴斯（Stephanos Bibas）驳回——他本人就是川普任命的。
+中国铁建表示，不能立刻回复置评请求。其他的六个公司在中共国周六非工作日时联系不上。
 
-纳瓦罗的回应则是指向威斯康星州，并称该州最高法院并没有对川普的案件作出裁决，而是将案件发回下级法院。
+本周，五角大楼的禁令名单又新增了四家公司，其中包括中共国最大的芯片制造商中芯国际和石油巨头中海油。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/0dlDWzVDZqnhP/images/6e721a26-8efa-4977-bd8f-43226ff5e3c5.png?asset_id=0d272e54-11ba-4435-b61e-ed95db166bc4&amp;img_etag=%22e76a6ed1840a5f232c8695524c7c44ef%22&amp;size=1024)](https://spark.adobe.com/page/0dlDWzVDZqnhP/images/6e721a26-8efa-4977-bd8f-43226ff5e3c5.png?asset_id=0d272e54-11ba-4435-b61e-ed95db166bc4&amp;img_etag=%22e76a6ed1840a5f232c8695524c7c44ef%22&amp;size=1024)
+富时罗素发言人提姆·本尼迪克（Tim Benedict）表示，公司已经注意到这些新举措，并称：“我们会在适当的时候对其进行评估。”
 
-纳瓦罗还谈到一段视频，在该视频中佐治亚州富尔顿县的拉票员从桌子下面拉出一个手提箱——一些川普支持者坚称里面装满选票。
+[原文链接](https://uk.reuters.com/article/uk-usa-china-indexes/ftse-russell-to-drop-eight-chinese-companies-after-u-s-blacklisting-idUKKBN28F006)
 
-“你看到了视频。”他告诉克拉曼。“这个视频本身就应该让佐治亚州选举是公平的这一观点破灭。你有欺诈问题，你有选民身份证核实不充分的程序有效问题…”
-
-“这是对美国人民无懈可击的欺骗：有人说这是策略，但我认为最重要的是，让这个程序走完，每个美国人都需要认可这次选举是公平的，但基于证据，我们还没有达到这种认可程度。”
-
-[原文链接](https://www.foxbusiness.com/politics/peter-navarro-2020-election-immaculate-deception)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://uk.reuters.com/article/uk-usa-china-indexes/ftse-russell-to-drop-eight-chinese-companies-after-u-s-blacklisting-idUKKBN28F006)
 
 [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
 
 [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
 
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/0dlDWzVDZqnhP/)
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/AwfBxKCmeuDHR/)
+[!\[\]()!\[\](https://spark.adobe.com/page/AwfBxKCmeuDHR/images/6a724ac9-c23e-4613-b464-7394a68c6cb1.jpg?asset_id=d8d2c47a-56e2-49cd-a684-9eb21fa8e121&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/AwfBxKCmeuDHR/images/6a724ac9-c23e-4613-b464-7394a68c6cb1.jpg?asset_id=d8d2c47a-56e2-49cd-a684-9eb21fa8e121&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/0dlDWzVDZqnhP/images/2c62936f-4380-4712-af2a-408eef544b59.jpg?asset_id=400016ae-e819-4cff-a082-60fa8c0b7e2a&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/0dlDWzVDZqnhP/images/2c62936f-4380-4712-af2a-408eef544b59.jpg?asset_id=400016ae-e819-4cff-a082-60fa8c0b7e2a&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
-1+
+0
