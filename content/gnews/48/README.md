@@ -1,78 +1,96 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》每日简报晚间版 2020.12.07&#8211;NewYork Time
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/631051/)
+## 【深度报道】中共核弹来袭, 星链如何拦截?
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/631834/)
 
-出品《路德社》 编辑：路德社精选新闻专栏组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09033758/1207-PM-BREF-ZH-scaled.jpg)
-(编辑：文宝Porsche)
+作者：Giselle
+素材：停云
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09083358/Picture6.png)图片来源：BBC news
+路德曾在节目中提到，习近平已经制定了灭绝人性的核战计划，一旦他本人被斩首，CCP的所有核导弹都会朝美国飞过来，即便无法打到美国本土，也要对整个地球造成最大限度的破坏。
 
-(Editor: Wenbao Porsche)
+为了应对今天这种局面，美国川普政府早在2019年就重启了“星球大战”计划。星际大战计划（Star Wars Program），又名战略防卫先制SDI（Strategic Defense Initiative），是美苏冷战时期，美国为防御前苏联的核弹袭击，在1980年代开发的军事战略计划，目标为在太空中建造激光装置来作为反导系统，以便在敌人的核弹进入大气层之前予以摧毁。
 
-(校准：文宝Porsche)
+12月7日，美国空军部负责空军和太空军科技整合与装备开发的助理部长威尔•罗珀博士发表推文：美国空军将于近期宣布重大事项。对此，《路德访谈》嘉宾Dr. Bo解读称，此事和美国导弹防御系统的重要升级有关。
 
-(Calibrator: Wenbao Porsche)
+## **克林顿废除了星际计划**
 
-1207晚间要闻-NewYork Time
+美国总统里根当初拟定SDI的时候，是为了防范冷战可能带来的最可怕的后果——核大战和核歼灭。里根在1983年3月23日首次宣布SDI，并呼吁“让我们杰出的核武器科学家将其才能转化为人类与世界和平的事业-让这些核武器失效甚至被废弃”。因此，星球大战计划的本质是防御系统，而非侵略系统，制定的初衷也是为了维护人类和平。
 
-1207 Evening News-NewYork Time
+克林顿执政时期，曾废除了此项计划，再加上共和党建制派和民主党主政的这些年美国整体偏左，网络上对于该计划的报道，基本都倾向于负面、批判性的。有意思的是，川普总统却对该项计划非常感兴趣。
 
-小盗国贼的结局：十四名人大副委员长全部被纳入制裁黑名单
+2019年3月12日，美国航天发展局（SDAP）成立，2020年5月15日，美国太空军成立，美国总统川普在白宫主持了太空军（the US Space Force）军旗亮相仪式，并透露美国正在建造 “超级导弹”， “比现在有的导弹快17倍”。据美国广播公司（ABC）的报道，太空军在2021年财政年度要求拨款154亿美元。而太空军的总编制大约为16000人。这预示着星际大战计划不只是用于防御，还成立了一支作战部队。2020年6月17日，美国国防部首次发布的有关太空的战略。
 
-The End of Small Kleptocrats: Fourteen NPC Vice Chairmen Included in Sanctions Blacklist
+## **四道防线确保摧毁来袭导弹**
 
-国务卿蓬佩奥发表声明称，这14人对全国人大常务委员会一致通过可耻的“用来打压任何批评意见及逮捕反抗者的港版国安法”负有直接责任。
+星际大战计划目标为建造太空中的雷射装置来作为反弹道飞弹系统，使敌人的核弹在进入大气层前受到摧毁。美国的许多盟国，包括英国、意大利、德国、意大利、日本等，也在美国的要求下不同程度地参与了这项计划。
 
-这十四人，每人至少两百亿人民币以上身家，其资产主要都在美国。他们被制裁方式包括：在美国管辖范围内或由美国人拥有或控制的资产被冻结、本人及家属禁止入境美国。
+星际大战计划由“洲际弹道导弹防御计划”和“反卫星计划”两部分组成。其预算高达1兆亿美元。
 
-Secretary of State Pompeo issued a statement saying the 14 people were responsible for the NPC Standing Committee’s passing the shameful “Draft of National Security Law from National People’s Congress to Hong Kong”, which is used to suppress any criticism and arrest rebels.
+1，拦截系统由天基侦察卫星、天基反导弹卫星组成第一道防线，用常规弹头或定向武器攻击 在发射和穿越大气层阶段的战略导弹；
 
-The 14, each has at least 20 billion RMB in assets, mostly in US. The sanctions include freezing of assets under U.S. jurisdiction or controlled by U.S. persons, and a visa ban on themselves and their families.
+2，由陆基或舰载激光武器摧毁穿出大气层的分离弹头；
 
-大盗国贼的选项之一：用于伊朗核弹之父的无人车载猎杀系统
+3，由天基定向武器、电磁动能武器或陆基或舰载激光武器攻击再次进入大气层前阶段飞行的核弹头；
 
-First Option for big Kleptocrats: An Unmanned Vehicle-Borne Hunting System for the Father of Iran’s Nuclear Bomb
+4，用反导导弹、动能武器、粒子束等武器摧毁重返大气层后的“漏网之鱼”。
 
-伊朗革命卫队副司令透露，敌人通过卫星以AI操控的机关枪杀害了法赫里扎徳，身旁的妻子未受伤。博博士解读，这是一套由卫星实时控制的车载远程AI无人猎杀系统，集成了卫星接收、数据链、成像系统、伺服系统、轻重机枪等装备，与之携同的还有其他炸弹车。一套系统成本只有高级无人机的十分之一，可以提前启动，待命时间长达3天。在本次行动中，炸弹车炸掉电线杆阻断了目标车辆，然后机枪射击，同时切断了附近医院的电源阻止抢救。该系统的精准猎杀，让盗国贼身边的战友不必担心被误伤。
+经过上述4道防线，可以确保对来袭弹道导弹有极高摧毁率。同时在核战争发生时，以反卫星武器摧毁敌方的军用卫星，打击削弱敌方的监视、预警、通信、导航能力。
 
-The deputy commander of IRGC revealed that Fakhrizadeh was killed by a machine gun via AI satellite, leaving his wife unharmed. Dr. Bo explained it’s an unmanned vehicle-borne hunting system remotely controlled by satellite in real time. It integrates satellite reception, data links, imaging systems, server systems, light and heavy machine guns, and other equipments, along with other bomb vehicles. One set only costs one tenth of the advanced UAV, can be activated in advance, and the standby time is up to 3 days. In this operation, the bomb car blew up a pole to block the target, then fire with machine guns while cutting off power of a nearby hospital to prevent rescue. The precise hunting system allows the comrades around the kleptocrats not to fear of being accidentally injured.
+## **目前星链系统或可一次性拦截656枚飞弹**
 
-大盗国贼的选项之二—蚊子无人机
+2015年1月，美国首席执行官马斯克提出“星链”（StarLink）计划。该计划拟于2019年至2024年间发射12000颗卫星到近地轨道，构建一个巨型三层卫星网络。这三层分别位于距离地面340千米、550千米和1150千米的轨道上，最终使所有卫星联成一个巨大“星座”，为整个地球（包括南北极）全天候提供高速低成本的卫星互联网。
 
-Second Option for big Kleptocrats – Mosquito Drones
+据腾讯“近卫筑垒地域”6月12日发布的一篇文章：美国Space X星链系统具有拦截洲际导弹的功能，在某专业机构用数据模型对星链系统拦截洲际导弹进行模拟的结果表明，截止2019年5月，星链系统可以拦截350枚洲际导弹，无一漏下。每颗导弹都会面对5-7次被拦截的机会。
 
-博博士提供的图片显示，一架尺寸不足5毫米的蚊子正停留在指尖。这是美国防部高等项目研究局在2018年就已经公开的黑科技—一款名为DARPA的无人机。它可在几公里范围内完成摄像、攻击等各种功能，可远程通过激光束和微波束获得能量，短时间内也可飞入室内，能携带足够致命剂量的毒药如氰化物。
+这是基于2019年5月份发布的数据，当时星链一共发射了480颗卫星，截止今年10月24日，星链已经发射了955颗卫星，其中55颗因为衰减，离轨因素坠入大气层烧毁，余下900颗。如果按照以上比例，则目前的星链系统应该可以一次拦截656枚飞弹。
 
-Dr. Bo’s image shows a mosquito less than 5mm staying on a fingertip. This is a black technology disclosed by the U.S. DARPA in 2018, an UAV called DARPA. It can perform such as photoing and attacking within a few kilometers, can gain energy through laser and microwave beams remotely, can fly indoors in a short time, and can carry a sufficiently lethal dose of poisons such as cyanide.
+## **那么，中共国目前究竟有多少颗洲际导弹呢？**
 
-川普总统：接下来几天你会看到很多大事发生
+据腾讯“近卫筑垒地域”这篇文章报道，中共国洲际导弹的数量，外界普遍认为不过百枚，仅为美俄两国的四分之一，而且在中共国的百枚洲际导弹中，除了有东风-41、东风-31、巨浪-2以外，还有中共国在上个世纪70年代研制的东风-5导弹。所以中共国洲际导弹的数量不仅少、性能也参差不齐。目前洲际导弹数量美国450枚以上，俄罗斯400枚左右。
 
-Trump: You’ll See a Lot of Big Things Happening Over the Next Couple of Days.
+关于洲际弹道导弹的数量，中共国军方从未对外公开过，但在2017年的时候，中共国军方罕见地第一次对外公开了其拥有弹道导弹的数量，大约为2000多枚，其中中近程导弹占绝大多数，洲际导弹只占小部分。
 
-他与自由派记者交谈时说，这个大选舞弊是我们国家的耻辱，就像第三世界国家一样。我认为案件已经提出、且已经有了解决方案，接下来几天你会看到很多大事发生。路德分析，这个大事不是指法律层面的，而是指路德社提前预告的实施暴动法、取消人身保护令、大抓捕等真正的大事。
+不过，中共兵器工业总公司当时公布了一项宏伟的计划，那就是以2017年为起点，用五年的时间打造近3万枚战术导弹。这个计划有没有执行，目前不得而知。
 
-Talking to liberal journalists, Trump said that this election fraud was a disgrace to our country, just like a third world country. He thought the case had been raised and a solution had been found, and we would see a lot of big things happening over the next couple of days. Lude analyzed it was not the legal aspects, but the real things like the implementation of riot act, cancellation of habeas corpus act, mass arrests, which Lude Media predicted before.
+## **星链强大的军事意义**
 
-八天内，美国空军和太空军有改变世界的大事宣布
+2019年11月，美空军对“星链”进行了早期的低轨技术验证试验，其中包括卫星和美国空军战斗机的天线阵列进行直接互联的试验。
 
-In 8 days, U.S. Air Force and Space Force will Announce Events that Change the World.
+据称“星链”为美军C-12飞机提供了高达610Mbps带宽的网络服务，相比目前大多数飞机联网所购买的海事卫星的5-50Mbps带宽的上网服务，也整整提高了一个数量级，将使得未来远程无人机的使用成本大幅下降，促使无人机的运用数量将大幅上升。
 
-美国导弹防御系统的组网之父、助理空军部长、负责美空军和太空军科技整合与装备开发的Will Roper博士昨天发推说，你（指CCP还是指谁）准备好了吗？9天之内有大事发生。
+中共国远望智库高级研究员黄志澄发表的一篇题为《从美国对太空的战略定位看“星链”的军事应用潜力》的文章，详细分析了美国星链计划的军事意义。
 
-The father of U.S. NMD, Assistant Secretary of the Air Force, and the head of integrated equipment development for Air Force and the Space Force, Dr. Will Roper, asked if CCP was ready for something to happen in 9 days in his tweet yesterday.
+1、大幅度增强美军宽带通信和精确导航能力。“星链”计划可提供低成本、全球覆盖的高速互联网服务，若用于军事，可提供全球无死角的高速卫星互联网的波束覆盖，这必将大幅增强美军的作战通信能力和GPS精确导航能力。
 
-英国人周二开始争先做中共病毒疫苗小白鼠
+2、“星链”的低时延特性有助于美国抢占有限的低轨轨道和频谱资源，在战时可实行“太空封锁”。在航天领域，轨道位置和频谱资源是一种有限的自然资源，卫星公司需要采取申报的方式向相关机构申请使用资格。根据国际电信联盟（ITU）的规则规定，轨道和频谱资源主要以“先到先得”的方式分配，后申报方不能对先申报国家的卫星产生不利干扰。
 
-British Race to be First White Mice for CCP Virus vaccine on Tuesday
+3、增强太空系统的弹性，改变太空对抗的态势。
 
-中共病毒疫苗接种工作将从12月份开始，在全球各国陆续开展。装载首批八十万剂中共病毒疫苗的超低温冷柜运达英国，从周二开始，在苏格兰威尔士、北爱尔兰、英格兰的五十家医院进行接种。英国卫生部长居然宣称，要把接种疫苗的第一天视为VictoryDay，荒唐！
+过去，高轨卫星作为太空资产的主要组成部分，每颗卫星成本都动辄十亿多。由于其高价值和低发射率，使得动能反卫星武器获得了反对称优势。例如，美国GPS系统只有24颗卫星，一旦以大量动能卫星拦截弹对它们实施攻击，将瘫痪美国的全球导航定位和授时通信系统，对美军的全球兵力部署和多域联合作战造成致命打击。而“星链”的分散的12000颗卫星，能让动能拦截武器的优势不复存在。为了攻击“星链”，动能反卫星武器的制造和维护成本，必将难于负担。而且，一旦硬杀伤击毁若干卫星，就会产生大量碎片，其影响让任何国家都难于接受。
 
-Vaccination against CCP virus will be carried out around the world from December. The first 800,000 doses of the CCP virus vaccine in Ultra-Low Temperature Freezers arrived in UK. From Tuesday, people could be vaccinated in 50 hospitals in Scotland, Wales, Northern Ireland, and England. The British Secretary of State for Health declared that the first day of vaccination would be considered as Victory Day, which is absurd!
+4、增强全天候无缝对地监视侦察和太空感知能力。
 
-文案：《路德社》文编组
-翻译：《路德社》翻译组
-审核校对：玫瑰天空
-上传排版：青葫芦娃&玫瑰天空
+若“星链”卫星同时搭载了光学观测载荷，结合其重访率高的优势，对于全球主要地区，让每个时间段天顶方向都有几颗卫星飞过，可实现24小时不间断光学监控分析，通过大数据系统自动识别、分类跟踪和图像识别系统，使其对真假目标识别率高，抗干扰能力强，这必将大大提升美国对地面移动物体和太空目标的监控能力。
 
-1+
+5、增强美军防御导弹和防御高超声速武器的能力。
+
+“星链”卫星拥有发射全向波束（即在水平方向图上表现为360°都均匀辐射，也就是平常所说的无方向性）的能力，可以对导弹和航天器进行遥测、跟踪和控制，进而提高对敌方运载火箭/导弹轨道的高精度预测和预警能力，为后续的拦截提供信息支撑，并提供了防御弹道导弹的一种最佳方法，即在它们发射之前将其击毁。
+
+因此“星链”计划的成功实施必将改变整个导弹攻防的格局。
+
+## **可自动防御导弹袭击**
+
+2020年8 月，美国航天发展局（SDA）宣布，已授予洛克希德·马丁公司1.875亿美元和约克空间系统公司9400万美元合同，
+
+2020年10 月SDA宣布，已授予SpaceX公司 1.49亿美元和L3Harris公司 1.94亿美元，分别为“跟踪层0期”制造4颗卫星，卫星将使用宽视场红外传感器监视弹道导弹、巡航导弹和高超声速导弹，提供导弹预警和跟踪信息。该计划将在2022年发射这8颗卫星，并展示其能力。
+
+据星际大战计划SDI公开发布的软件说明显示，基于SDI系统的需求，数百个卫星互相之间自动协同配合。战斗管理系统可以追踪成百上千的目标来决定何时和以什么方式来袭击目标，同时最小化或者没有人为干预该系统。
+
+它可作为战区外远程发射，不管武器的末端导航控制平台，或者未来机器人部队与无人作战飞机的数据交换平台。
+
+这就说明，这套计划将带有自动防御的功能。虽然习近平拿着核导弹到处威胁恐吓，但是这些导弹很可能连按钮的机会都不会有，更别说对地球造成无法估量的破坏了，美军可以轻而易举地摧毁中共的北斗卫星导航系统，瘫痪中共军方的通信、导航，所以，在强大的实力面前，中共的这些举动，真的是无异于以卵击石。
+
+（文章内容仅代表作者个人观点）
+
+0

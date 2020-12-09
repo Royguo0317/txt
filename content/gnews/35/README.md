@@ -1,31 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 网易“美限CCP及亲属赴美”几获26万叫好，四个时辰过后只剩五毛一条
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/631819/)
+## 文贵说｜系列图片连载（七十）
+` GM98` [轉載自GNews](https://gnews.org/zh-hans/631915/)
 
-*新闻来源：新之助推文；编辑：英国之声*
+## 484.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09092635/401.jpg)
+人生的精彩就在于无常，人生的精彩就有生有死，就有输有赢。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09083336/IMG_1.jpg)
+——郭文贵先生2020年8月12日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09085247/1-37.jpg)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09090233/33-2.jpg)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09090223/44.jpg)
+## 485.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09092720/402.jpg)
+我们不希望任何战友成为所谓的刘胡兰，但是我们也不能让战友们一点风险你不承担，然后享受整个爆料革命用鲜血换来的前所未有的果实，那是不可以的。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09090117/IMG_2.jpg)
+——郭文贵先生2020年8月12日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09090814/Screenshot-2020-12-09-at-14.04.41.png)
+## 486.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09092755/403.jpg)
+任何人只要被警察喝茶，只要你有证据，你将得到我们全力以赴地支持和保护。记住，兄弟姐妹们，记住我说的话，兄弟姐妹们，这是我的庄严承诺。
 
-# **还我言论自由！**
+——郭文贵先生2020年8月12日
 
-【文章仅代表作者观点】
+## 487.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09092828/404.jpg)
+战友们，有你们真好，有你们太棒了，每一刻每一时、每一天我们都比过去的70年、100年充实而有价值，千万不要让胜利再把我们变麻木！
 
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+——郭文贵先生2020年8月12日
 
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+## 488.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09093410/405.jpg)
+不管是谁，我们灭共不分党派、不分男女、不分老幼，不问你出处。你今天要支持爆料革命，你也是我们战友！
 
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
+——郭文贵先生2020年8月12日
 
-编辑：【喜马拉雅战鹰团】
-![]()![](https://spark.adobe.com/page/AwfBxKCmeuDHR/images/6a724ac9-c23e-4613-b464-7394a68c6cb1.jpg?asset_id=d8d2c47a-56e2-49cd-a684-9eb21fa8e121&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-2+
+## 489.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09093403/406.jpg)
+做好自己，当你自己不能做的时候，不要老张开嘴让别人怎么做！
+
+——郭文贵先生2020年8月12日
+
+## 490.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09093210/407.jpg)
+我们的信仰，没人可以改变，干掉共产党是我们唯一的目标，就叫喜马拉雅目标。
+
+——郭文贵先生2020年8月12日
+
+0

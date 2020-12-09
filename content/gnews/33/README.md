@@ -1,16 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日重要Twitter播报（中文）12/7期（视频+ PDF下载）
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/631927/)
+## 英国监管机构对接种辉瑞疫苗发出过敏警告
+` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/632128/)
 
-撰稿记者:CYC文颖、本来、尘凡3、石頭
-校对:清咖
-播音:大腳印
-剪辑：喜馬拉雅2020
+内新闻：背靠背
 
-[每日重要推文12-7-PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09091407/12-7-Qingka-%E5%B7%B2%E8%BD%89%E6%AA%94.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09091407/12-7-Qingka-%E5%B7%B2%E8%BD%89%E6%AA%94.pdf)
+2020年12月9日RTE报道，英国监管机构已经发出警告，有 “重大 “过敏反应史的人目前不应该接受辉瑞/BioNTech公司的Covid-19（中共病毒）疫苗，因为周二有两个人注射该疫苗后出现过敏反应。
 
+英格兰国家医疗服务系统（NHS）证实2名NHS工作人员在大规模疫苗接种计划的第1天接受了注射，遭受过敏反应，之后NHS证实两人已经恢复。
 
+药品和保健产品监管局（MHRA）已向NHS信托提供预防性建议，任何对药品，食品或疫苗有“严重”过敏反应史的人都不应接种该疫苗。
+
+12月2日，英国已成为世界上首先批准广泛使用辉瑞Pfizer/BioNTech冠状病毒（中共病毒）疫苗的国家。
+
+12月9日，中东时报（aawsat）报道，首批装运辉瑞Covid-19（中共）疫苗抵达以色列，一位分销商预测，到今年年底，该国将有足够的人口供四分之一的人口使用。
+
+新闻来源：https://www.rte.ie/news/coronavirus/2020/1209/1183310-coronavirus-vaccine/
 
 0

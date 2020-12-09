@@ -1,32 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 联邦法官沙利文正式驳回前国家安全顾问弗林的联邦案件
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/632496/)
+## 英国监管机构报告了对辉瑞COVID-19疫苗的两起过敏反应
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/632556/)
 
-- 翻译：Victor Torres
+**翻译:TCC；审核:Grace**
 
+**快报:**
 
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+**英国昨天(12/8)开始全面性接种新的辉瑞抗新冠疫苗，已经发生了两起严重过敏反应，其卫生机构已发出警告有严重过敏病史者，应避免接种此疫苗。有趣的是，医疗保健产品监管局(MHRA)负责人June Raine博士说这种过敏反应并非辉瑞大规模临床实验接报告中的接种反应常态。在这项全球免疫计划启动后，我们将拭目以待其反应与效果。**
 
-**西班牙2020年12月9日电/西喜社——**沙利文将司法部长威廉·巴尔（William Barr）驳回司法部案件的请求推迟了几个月。
+伦敦-英国监管机构周三表示，该机构正在调查该国大规模疫苗接种计划第一天发生的两起不良反应，对过敏反应有“明显病史”的人不应接受新的辉瑞-BioNTech疫苗。
 
-美国联邦法官周二驳回了联邦政府针对前国家安全顾问迈克尔·弗林（Michael Flynn）的诉讼，同时还表示如果川普总统不赦免弗林，他可能不会这样做。
+英国国家卫生局国家医学主任斯蒂芬·波维斯(Stephen Powis)教授表示，卫生当局正在根据医疗保健产品监管局(MHRA)的建议采取行动。
 
-华盛顿巡回法院的法官埃米特·沙利文（Emmet Sullivan）讲司法部长威廉·巴尔（William Barr）驳回司法部案件的请求推迟了几个月，更任命了外部律师来审查该请求。
+波维斯(Powis)在一份声明中说：“与其他新疫苗一样，MHRA已在预防性小心谨慎的基础上建议，在昨天有两名具有严重过敏反应史的人作出不良反应后，具有严重过敏反应史的人，不要接种该疫苗。” “二位(过敏反应者)目前恢复良好。”
 
-沙利文的决定结束了大约三年的法律斗争，这场斗争始于美国司法部指控弗林在2017年初在川普政府就职期间与俄罗斯官员勾结。
+在发表上述评论之际，MHRA负责人June Raine博士告诉国会委员会，监管机构已经收到有关该疫苗产生两起过敏反应的报导。
 
-法院文件显示，沙利文在驳回此案时表示，川普的赦免已使该案成为有争议的案件。
+她说：“我们从广泛的临床试验中知道这不是一个特征。” “但是，如果我们需要加强建议，现在我们在这些被选为优先接种的易得病群体已经获得了这样的经验，那么我们会立即将建议提供给现在正进行(打疫苗) 的地点。
 
-沙利文在备忘录中写道：“法院基于争议拒绝政府解除动议，基于总统赦免而批准政府的同意动议，并就此案予以异议。”
+Raine的评论来自她对其机构(MHRA)将如何继续监控这上周授权用于紧急用途疫苗的人们的一般性讨论的一部分。
 
-弗林（Flynn）是前中将，他在过渡时期就制裁问题向俄罗斯大使讲话，并最终对指控表示认罪。
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-但是，他在今年早些时候雇用了一个新的法律团队，其中包括前联邦检察官悉尼·鲍威尔（Sidney Powell），该团队揭露了联邦调查局在白宫采访弗林时如何违反协议。 这一发现促使巴尔在9月要求解职。 司法部已向沙利文（Sullivan）辩称，川普的赦免使弗林（Flynn）免于因宣誓承认有罪，后自称无辜，而被法院轻视。
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-**原文链接：**[https://justthenews.com/government/courts-law/federal-judge-sullivan-formally-dismisses-feds-case-against-former-national](https://justthenews.com/government/courts-law/federal-judge-sullivan-formally-dismisses-feds-case-against-former-national)
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+编辑：【喜马拉雅战鹰团】[–](https://spark.adobe.com/page/AwfBxKCmeuDHR/)[点击spark adobe版](https://spark.adobe.com/page/QNi12vT9lD66A/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/QNi12vT9lD66A/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/QNi12vT9lD66A/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

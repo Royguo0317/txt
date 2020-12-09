@@ -1,17 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/11/29-11/30 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/630881/)
+## 墙内的战友，了不起
+` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/631966/)
 
-战友之家图文摘要及多语组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09091730/%E5%A2%99%E5%86%85%E7%9A%84%E6%88%98%E5%8F%8B%EF%BC%8C%E4%BA%86%E4%B8%8D%E8%B5%B7.png)
+作者：待命（文晓）
 
-[309-310\_English\_1129-1130\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09010814/309-310_English_1129-1130_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09010814/309-310_English_1129-1130_CCP_Virus_Updates.pdf)
+爆料革命已经3年多了。试着，问过很多在日华人。结果，一多半儿人不知道新中国联邦，一少半儿人知道，但却一副闻声丧胆的样子。为此，更觉得一起战斗的战友们令人起敬。特别是那些冒险翻墙参与爆料革命的战友们，更是不得不敬！这种尊敬，发自内心，每当通过对话偶尔得知对方是墙内战友，会不自觉地送上“致敬”二字。
 
-[309-310\_German\_1129-1130\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09082842/309-310-German.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09082842/309-310-German.pdf)
+墙内战友让我想起了小时候那些偷听美国之音的人。当时，我还小，曾听说还有自己组装收音设备偷听的人。相比之下，几十年后的今天，战友们仍在为之苦恼的那些“家人不让我说”、 “家人怎么说都不相信”等等现状，我们不能不为现在的人们感到痛心。那个年代、那种环境、那些人们，竟然能分清哪种声音最真。实在是了不起啊！
 
-[309-310\_Japanese\_1129-1130\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09010901/309-310_Japanese_1129-1130_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09010901/309-310_Japanese_1129-1130_CCP_Virus_Updates.pdf)
+今天的翻墙人，会不会就是那一代偷听美国之音的人们的传承？哪个时代都有先知先觉的人，哪个时代都有神灵特别关照的人。
 
-[309-310\_Korean\_1129-1130\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09010844/309-310_Korean_1129-1130_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09010844/309-310_Korean_1129-1130_CCP_Virus_Updates.pdf)
+12月3日文贵先生的直播，不仅仅文贵先生开始沉重，所有热爱这个民族的人们心头都笼罩了乌云。各农场开始组建救援队时，我在想，真到了那一天，可能性最大的，应该是墙内的战友置身于战火狼烟中，也应该是他（她）们最能够起到直接的作用。
 
-0
+文贵先生强调过很多次，我们做这些，真的不算什么，真正了不起的是那些在墙内冒着生命危险把重要信息送出来的人。
+
+墙内的战友们，请千万保重！由衷的期待与您们胜利相逢！
+
+1+

@@ -1,35 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英国监管机构报告了对辉瑞COVID-19疫苗的两起过敏反应
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/632556/)
+## COVID-19疫苗引发贝尔麻痹症-FDA否认由注射引起的暂时性面瘫
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/632626/)
 
-**翻译:TCC；审核:Grace**
+- 编辑：Victor Torres
+- 翻译：里奇
 
-**快报:**
 
-**英国昨天(12/8)开始全面性接种新的辉瑞抗新冠疫苗，已经发生了两起严重过敏反应，其卫生机构已发出警告有严重过敏病史者，应避免接种此疫苗。有趣的是，医疗保健产品监管局(MHRA)负责人June Raine博士说这种过敏反应并非辉瑞大规模临床实验接报告中的接种反应常态。在这项全球免疫计划启动后，我们将拭目以待其反应与效果。**
+***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-伦敦-英国监管机构周三表示，该机构正在调查该国大规模疫苗接种计划第一天发生的两起不良反应，对过敏反应有“明显病史”的人不应接受新的辉瑞-BioNTech疫苗。
+**西班牙2020年12月9日电/西喜社/——**最新消息 –《每日邮报》报道，至少有4个人在接种了辉瑞的COVID-19疫苗后感染了贝尔麻痹症。辉瑞与中国之间的关系也受到质疑。
 
-英国国家卫生局国家医学主任斯蒂芬·波维斯(Stephen Powis)教授表示，卫生当局正在根据医疗保健产品监管局(MHRA)的建议采取行动。
+对于大型制药公司而言，疫苗业务是一笔巨款–大型制药公司从疫苗生产中受益。几个月前，小鲍比·肯尼迪（Bobby Kennedy，Jr.）总结了这一点，他列举了这些公司从美国政府获得的保护（类似于保护技术巨头公司的方式）：
 
-波维斯(Powis)在一份声明中说：“与其他新疫苗一样，MHRA已在预防性小心谨慎的基础上建议，在昨天有两名具有严重过敏反应史的人作出不良反应后，具有严重过敏反应史的人，不要接种该疫苗。” “二位(过敏反应者)目前恢复良好。”
+以前已经报道过COVID疫苗的副作用清单，但是今天早晨，《每日邮报》报道了最近辉瑞试验引发的贝尔麻痹病例：
 
-在发表上述评论之际，MHRA负责人June Raine博士告诉国会委员会，监管机构已经收到有关该疫苗产生两起过敏反应的报导。
+根据美国监管机构的接种报告，在辉瑞公司的试验中，有四人接种了公司开发的冠状病毒疫苗后出现了贝尔麻痹，这是一种暂时性的面瘫。
 
-她说：“我们从广泛的临床试验中知道这不是一个特征。” “但是，如果我们需要加强建议，现在我们在这些被选为优先接种的易得病群体已经获得了这样的经验，那么我们会立即将建议提供给现在正进行(打疫苗) 的地点。
+美国食品药品监督管理局（FDA）的监管者表示，尚无明确的途径说明该疫苗引起贝尔麻痹，但警告医生应警惕令人担忧的副作用，辉瑞公司应继续密切关注该疫苗副作用会侵袭多少人。
 
-Raine的评论来自她对其机构(MHRA)将如何继续监控这上周授权用于紧急用途疫苗的人们的一般性讨论的一部分。
+没有人知道是什么实际原因造成了贝尔麻痹，贝尔麻痹在大多数情况下都是自我痊愈的。
 
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+11月13日，MSM报告了辉瑞的进展情况：
 
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+美国制药商辉瑞公司（Pfizer Inc.）和德国生物技术公司BioNTech SE本周宣布，其疫苗在阻止Covid-19感染方面似乎超过90％有效。初步结论刺激了全球股市反弹，并使两家公司在疫苗竞争中脱颖而出。
 
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+大约在同一时间，由于严重的不良事件，中国在巴西暂停了其候选顶级疫苗之一的最终试验。尽管巴西在不到48小时内就撤销了决定，但这一事件凸显了围绕疫苗开发的紧张的地缘政治紧张局势：上个月，总统贾尔·博尔索纳罗（Jair Bolsonaro）表示，中国缺乏信誉，并且人们对于接种来自病毒发源地的疫苗而感到不安全。
 
-编辑：【喜马拉雅战鹰团】[–](https://spark.adobe.com/page/AwfBxKCmeuDHR/)[点击spark adobe版](https://spark.adobe.com/page/QNi12vT9lD66A/)
+上述报告中没有提到的是，辉瑞公司已于8月与吉利德（Gilead）签署了一项协议。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/QNi12vT9lD66A/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/QNi12vT9lD66A/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+辉瑞公司（纽约证券交易所代码：PFE）今天宣布与吉利德科学公司（Gilead Sciences，Inc.）达成一项多年期协议，以生产和提供吉利德的研究性抗病毒药物瑞德昔韦，这是多个外部制造组织之一，旨在支持扩大COVID- 19的研究治疗药物的供应。根据该协议的条款，辉瑞将在辉瑞位于堪萨斯州麦克弗森的工厂提供合同制造服务，为吉利德生产和提供瑞德西韦。
+
+吉利德（Gilead）和福奇（Fauci）博士于2月与中国合作，大量生产瑞德西韦：
+
+令人惊讶的是，有50％的美国人不想接种冠状病毒疫苗。这绝对不应该是强制性的。
+
+**原文链接：**[https://www.thegatewaypundit.com/2020/12/four-volunteers-took-pfizers-covid-19-vaccine-developed-bells-palsy-fda-denies-temporary-facial-paralysis-caused-shot/](https://www.thegatewaypundit.com/2020/12/four-volunteers-took-pfizers-covid-19-vaccine-developed-bells-palsy-fda-denies-temporary-facial-paralysis-caused-shot/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/04155630/COVID-1_NR-1.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09120800/WhatsApp-Image-2020-12-10-at-01.00.25.jpeg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+
+
 
 0
