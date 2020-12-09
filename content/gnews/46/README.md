@@ -1,23 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 滕彪和他请的演员们
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/630257/)
+## 《路德社》精选新闻快讯：川普总统在和朱利安尼先生早晨通话后表示朱利安尼先生情况稳定并无大碍
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/629109/)
 
-香草山综合报道
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
+川普总统在采访中说到，在和朱利安尼先生早晨通话后表示朱利安尼先生情况稳定并无大碍，之后朱利安尼先生推特回复了川普总统谢谢他的关心，他现在状态很好充满精力继续前行。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08103115/image-67.png)
+从郭先生直播可以得知朱利安尼先生在已经知道中共会对他的人生安全下手在有防备，而且在服用羟氯喹的情况下依旧感染了病毒，大概率是中共间谍近距离高浓度投毒，否则不可能没有任何症状突然体内检测到如此高浓度病毒。
 
+中共知道他们的时日不多所以对坚定灭共的先是川普总统和他的家人现在又是朱利安尼先生投毒暗杀，如此的邪恶。如果中共不灭病毒不可能会轻易结束他们会再弄出各种各样持续的袭击全世界。
 
+灭共是上天的需要，是正义的需要，所有灭共者都是有神的使命的。
 
+本文作者：查理
 
+审核校对：玫瑰天空
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+上传排版：查理
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-
-
-2+
+1+
