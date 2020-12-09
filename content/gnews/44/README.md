@@ -1,17 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 311-312疫情直播短视频
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/631869/)
+## 每日重要Twitter播报（中文）12/7期（视频+ PDF下载）
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/631927/)
 
-国政府宣布：从2020年12月31日起停止购买华为设备，2027年前清除所有华为5G设备。
+撰稿记者:CYC文颖、本来、尘凡3、石頭
+校对:清咖
+播音:大腳印
+剪辑：喜馬拉雅2020
 
-人民币升值对外贸影响巨大：纺织企业因人民币汇率上升，导致结汇损失订单大量减少，外贸企业经营困难。
+[每日重要推文12-7-PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09091407/12-7-Qingka-%E5%B7%B2%E8%BD%89%E6%AA%94.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09091407/12-7-Qingka-%E5%B7%B2%E8%BD%89%E6%AA%94.pdf)
 
-为对抗中共威权政府，香港民主派议员集体辞职
 
-中共国大陆的极左分子司马南，金灿荣，李毅和李肃均属于北京中易网天信息技术公司。
-
-（11/28）Bitcoin就是整个美国人和共产党这帮人控制的，都是军方情报背景。 最起码现在这些虚拟货币它没有交易的价值，它没有回避市场风险的能力，它更不存在你马上进马上出的这种所有的基础的金融条件，也不支持迅速兑换。 它当然是人为控制的了。
 
 0

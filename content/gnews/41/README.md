@@ -1,31 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 网易“美限CCP及亲属赴美”几获26万叫好，四个时辰过后只剩五毛一条
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/631819/)
+## 法治、民主、自由的力量
+` 东京樱花团-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/632022/)
 
-*新闻来源：新之助推文；编辑：英国之声*
+HTS-01C-202012-022
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09083336/IMG_1.jpg)
+作者：欲静（喜马拉雅东京樱花团）
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09085247/1-37.jpg)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09090233/33-2.jpg)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09090223/44.jpg)
+随着人类文明的进程大踏步推进时，人类对于法治的依赖和意识也在不断的提高，就算是在专制独裁的中国，百姓们拿起法律武器的意识也在逐年提高。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09090117/IMG_2.jpg)
+今年迎来了美国的4年1度的大选。看似平常的选举，却让美国人民乃至世界人民看到了，欲跳出司法束缚和借助中共的黑手想当总统的拜登和完全拿起法律武器捍卫美国的自由，民主，法治的川普总统的正邪较量。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09090814/Screenshot-2020-12-09-at-14.04.41.png)
+大选舞弊事件一个个地被正义一方的川普总统及团队公开后，美国人民和世界人民看到了，中国共产党对司法的无视，国家的破坏，人类的轻蔑和对世界的贪欲，但川普总统及团队依然在法律的框架内解决一个又一个的荒唐难题。
 
-# **还我言论自由！**
+到了今天，邪恶终将被正义打败的规律没有改变，因为邪恶就是阴暗且不受阳光法律保护的，而正义的一方却能光明正大地，堂堂正正地站在自己国民面前，去阐述自己的观点，这就是被法律允许并保护的自由。
 
-【文章仅代表作者观点】
+林伍德大律师，著名的顶级大律师。他不会说没有根据的话，更不会说没有证据的话，当他说出。
 
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+“你惹错人了”时，法律上已经是稳稳拿住了，这就是法治下自由的力量，法治下自由的权利！
 
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+世界各国都需要法治，民主，自由，这是作为人的基本权利，可是中国共产党正在通过这次的大选要剥夺美国人民乃至全世界人的基本权利，可是它惹错人了，小看了美国，轻视了川普总统，美国的法治框架没有坍塌，美国国民的法治自由意识非常强。
 
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
+中国共产党，这次打错算盘输到底了，因为它不给国民法治，不给人民自由，自然会溃败在法治，民主，自由下。
 
-编辑：【喜马拉雅战鹰团】
-![]()![](https://spark.adobe.com/page/AwfBxKCmeuDHR/images/6a724ac9-c23e-4613-b464-7394a68c6cb1.jpg?asset_id=d8d2c47a-56e2-49cd-a684-9eb21fa8e121&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-2+
+0
