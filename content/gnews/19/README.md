@@ -1,66 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 接种完辉瑞疫苗高烧达41度 !!!
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/632874/)
+## 《探索》频道在中共指导下宣扬社会主义发展
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/632763/)
 
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+*新闻来源：the national pulse《国家脉动》；作者：： NATALIE WINTERS；发布时间：2020年12月7日*
 
-**西班牙2020年12月9日电/西喜社——**伦敦卫生与热带医学学院的斯蒂芬·埃文斯教授说：“如果说绝对没有不良影响，那就没有疫苗是“安全的”，没有药物是“安全的”。每种有效的药物都会产生不良影响。”
+*翻译/简评：Victory；校对/审核：万人往；Page：拱卒*
 
-辉瑞公司的试验中有大约20,000人。实验数据表明，该疫苗使Covid病例减少了约95％，但确实有非常常见的副作用，包括注射引起的疼痛、头痛、发冷和肌肉疼痛。这些可能影响超过十分之一的注射人群。
+**简评：**
 
-辉瑞疫苗试验者经历
+中共对美国的渗透是全方位的，本文讲的是中共对美国传统媒体的控制，利用联合商业合作制作的电视节目，潜移默化输出中共的价值观和虚假繁荣。大量的此类洗脑节目，既可出口，又可内销。这是一场早就开始的战争。
 
-在本周发表的《美国医学会杂志》（JAMA）上发表的一篇题为“一位护理研究人员在COVID-19疫苗试验中的经验”的文章中提到了参加辉瑞试验的情况。
+美国对大疆之类的中共国企业的限制是必然的，中共国没有独立的私人企业。任何来自中共国的公司都会被中共控制。以前美国以法治国家的思维判断中共国内企业和政府的关系，大错特错。如今美国正义力量终于觉醒，亡羊补牢，为时未晚。
 
-她在论文中写道：“为这项试验提供志愿服务是一件光荣的事。”
+**原文翻译：**
 
-她通过了必要的筛查，并很快成为试验参与者之一。该试验涉及一半的参与者注射安慰剂，然后另一半的参与者注射实验性疫苗，以衡量该疫苗是否真正起作用。
+**独家：《探索》频道在中共“指导和监督下”制作节目，吹嘘“社会主义的发展”**
 
-注射第一针后，Choi感觉很好，感觉就像是并没有接受安慰剂或疫苗的状态。但她在第二个月注射第二针之后则是另外一个故事。
+**《国家脉动》透露，**《**探索**》**频道正在制作一档节目–《功夫学徒》，该节目是在中共的 “指示和监督下 ”制作的，推崇共党的言论，宣传被美国各联邦机构禁止的科技公司。**
 
-注射部位比她初次注射时要痛苦得多，并且到一天结束时，她就出现了“头晕、冰冷、恶心并且头痛欲裂”。
+[!\[\]()!\[\](https://spark.adobe.com/page/JusoFPstVd6ib/images/94935e57-1c57-4458-b66d-cf387323140a.jpg?asset_id=3df49bac-e5eb-4aeb-a643-31d7b74fdf96&amp;img_etag=%228a7853ce2fb3e9125f4dd91146e0d14b%22&amp;size=1024)](https://spark.adobe.com/page/JusoFPstVd6ib/images/94935e57-1c57-4458-b66d-cf387323140a.jpg?asset_id=3df49bac-e5eb-4aeb-a643-31d7b74fdf96&amp;img_etag=%228a7853ce2fb3e9125f4dd91146e0d14b%22&amp;size=1024)
 
-当晚她入睡之后，在午夜惊醒来，感觉更糟。根据她在JAMA上的描述，她的高烧严重到连手臂都抬不起来。
+节目近日推出第二季，主题是 “探索社会主义新农村发展走向世界”。
 
-凌晨5时30分，她再次醒来，量了自己的体温，温度高达摄氏40.5摄氏度。
+节目目的是让 “来自世界各地的年轻创业者到中国偏远而神秘的乡村当学徒，亲身体验这个广阔国家不同的民族风情”。
 
-Choi对CTV新闻说：“我这次高烧是我有记忆以来温度最高的一次。我最初的直觉是，自己是否以某种方式感染了COVID？”
+该节目似乎是在代表中共做宣传。
 
-她在上午9点向研究人员报告了自己的反应，并被告知“第二次注射后很多人有反应”，她只需继续监测自己的症状。
+中共湖南省政府吹嘘该节目是探索频道和中共国媒体公司芒果TV合作的，但 “受中共控制的众多机构的指示和监督”。
 
-就辉瑞疫苗而言，年龄在56岁以上的人比18至55岁的年轻人群具有更轻的副作用。最常见的副作用是各个年龄段都会出现的疲劳和头痛，多达60％的年轻人在第二次注射后感到疲劳。根据提交给FDA的简报文件，年轻组中有16％的人在第二次注射后发烧，而老年组中只有11％。
+该节目由芒果TV和探索频道联合制作，由中共国国务院新闻办公室、国家广播电视总局、湖南省人民政府新闻办公室、湖南省互联网信息办公室指导和监督。
 
-Choi发烧的温度非常高，被认为是具有“严重的”副作用，而这种情况仅有0.8％的参与者在第二次用药后经历过。
+中共国的国营媒体也对《功夫学徒》赞不绝口，并引用党内高官的话对该节目大加赞赏。国家新闻出版广电总局国际合作司司长周继红盛赞 “这个节目看中国的角度、内容和播出方式都很新颖”。
 
-摩德纳疫苗试验者经历
+[!\[\]()!\[\](https://spark.adobe.com/page/JusoFPstVd6ib/images/2a4f673b-123c-4a06-9a3b-706c11d7c737.png?asset_id=4c2ca21e-bbb7-4ca2-90bc-fb12bcb1c7da&amp;img_etag=%22f5eaadcc180bbf4b4a8486070b7c2629%22&amp;size=4932)](https://spark.adobe.com/page/JusoFPstVd6ib/images/2a4f673b-123c-4a06-9a3b-706c11d7c737.png?asset_id=4c2ca21e-bbb7-4ca2-90bc-fb12bcb1c7da&amp;img_etag=%22f5eaadcc180bbf4b4a8486070b7c2629%22&amp;size=1024)
 
-摩德纳疫苗的一位24岁的年轻人说，当他在10月中旬接受第一次注射时，感觉就像是注射了流感疫苗。他解释说：“我在被射中的左臂上感觉到僵硬和疼痛，但这是极其轻微的。” “到那天晚上，我有些疲劳不想将手臂移到肩膀上方，但是这种感觉第二天就消失了。”
+探索频道关于该节目开播的新闻稿还鼓吹中共关于其发展的论点：
 
-与辉瑞疫苗的试验者一样，第二剂的注射是一个完全不同的故事。
+今年是中共国成立70周年。在过去的几年里，中共国的科技、文化、经济都经历了巨大的发展阶段，发生了巨大的变化，给中共国的产业和就业带来重大变革。
 
-注射后，他有与第一次相同的副作用：局部疼痛和僵硬，但情况稍差一些。我的手臂酸痛得更快，到了我回到家的时候，我开始感到疲倦，就像任何人都会感冒一样。
+芒果TV的新闻稿同样呼应了中共的论点：
 
-当天晚上出现更明显的症状，开始发低烧、畏寒，该试验者回忆说，“那天晚上很艰难。”
+它描绘了中共国经济发展和通过对外开放全面建设小康社会的生动形象。[……]通过这九个方面的介绍，一幅中共国扶贫的图景正在慢慢展现。
 
-辉瑞公司和摩德纳公司都表示，它们的疫苗可以产生类似于COVID-19感染症状的副作用，包括疲劳、发冷、头痛、肌肉疼痛和关节痛。
+探索频道最近还入股了支持大赦的《旁观者》杂志主席的新 “GB新闻 ”网。
 
-经过一夜不安之后，他打电话给研究医生，医生向他保证这是正常反应，无需担心。该试验者说，直到第二天下午，他才稍微恢复。
+[!\[\]()!\[\](https://spark.adobe.com/page/JusoFPstVd6ib/images/be1913c3-72a3-48e6-8c4e-65b3f4efa186.jpg?asset_id=095ca4b9-049f-4a7b-b95f-58d8fc020ef7&amp;img_etag=%2287432684eec89af88b680785b3c4a8b5%22&amp;size=1024)](https://spark.adobe.com/page/JusoFPstVd6ib/images/be1913c3-72a3-48e6-8c4e-65b3f4efa186.jpg?asset_id=095ca4b9-049f-4a7b-b95f-58d8fc020ef7&amp;img_etag=%2287432684eec89af88b680785b3c4a8b5%22&amp;size=1024)竞争–Saul Stolley参加在亚洲放映的商业节目《我跑中国的一天》。
 
-UCSF传染病专家Peter Chin-Hong博士说，参与辉瑞和Moderna试验的75,000名患者中有25-50％出现了一些副作用。其中有15％的人出现了严重的副作用，需要一天多的时间才能恢复。
+这个与中共有关的节目也是为了宣传大疆无人机等与中共有关的企业，大疆无人机被美国国土安全部认定为 “有选择地针对这些部门中的政府和私营实体，以扩大其收集和利用美国敏感数据的能力”。
 
-尽管Choi在发烧后本能的恐惧是可以理解的，但显然两种疫苗都不会给接种者带来病毒，因为辉瑞和Moderna生产的mRNA疫苗是不使用活病毒的。
-
-负责为Moderna候选疫苗进行临床试验的Hana El Sahly博士说，mRNA技术的一大优势在于其制造速度。一旦知道了病毒的序列，便能快速大量地生产。
-
-- 新闻来源：
-- [https://www.bbc.com/news/health-55216047](https://www.bbc.com/news/health-55216047)
-- [https://www.ctvnews.ca/health/coronavirus/covid-19-vaccines-have-expected-side-effects-but-experts-say-they-re-no-cause-for-concern-1.5222927](https://www.ctvnews.ca/health/coronavirus/covid-19-vaccines-have-expected-side-effects-but-experts-say-they-re-no-cause-for-concern-1.5222927)
-- [https://www.cnbc.com/2020/12/08/pfizer-moderna-covid-vaccine-side-effects-trials.html](https://www.cnbc.com/2020/12/08/pfizer-moderna-covid-vaccine-side-effects-trials.html)
-- [https://www.nbcbayarea.com/news/local/race-for-a-vaccine/side-effects-of-covid-19-vaccine-trail-participant-speaks-out/2417356/](https://www.nbcbayarea.com/news/local/race-for-a-vaccine/side-effects-of-covid-19-vaccine-trail-participant-speaks-out/2417356/)
+这些担忧促使美国内政部以 “越来越担心来自中共国制造商的国家安全风险 ”为由，将所有大疆无人机停飞，国防部和美国陆军也纷纷效仿。
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+
+大疆公司发言人也表示，公司正在 “遵守中共国政府的要求交出数据”。
+
+[原文链接](https://thenationalpulse.com/exclusive/discovery-chinese-communist-party-propaganda/)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】-[点击saprk adobe版](https://spark.adobe.com/page/JusoFPstVd6ib/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/JusoFPstVd6ib/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/JusoFPstVd6ib/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

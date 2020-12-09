@@ -1,67 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 多米尼公司顾问曾与希拉里竞选团队主席会面，妄图击败川普
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/633027/)
+## 突发：17个州加入德克萨斯州向最高法院的诉讼
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/633143/)
 
-*新闻来源：门户专家(The Gateway Pundit )｜作者：卡桑德拉·费尔班克斯(Cassandra Fairbanks)；*
+多伦多枫叶农场  云起时
+校对 文锦 上传 云起时
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09165221/meetamerica.com_.jpg)图片来源：Meetamerican.com
+据12月9日《国家脉动》（National Pulse)报道，密苏里州带领17个州支持德克萨斯州最高法院针对佐治亚州、宾夕法尼亚州、密歇根州和威斯康星州等舞弊严重的州的起诉，阻止它们任命总统选举人。
 
-*翻译、简评：Marialu｜PR、审核:万人往｜PAGE：玄天生；*
+12月9日的案情摘要重申了德克萨斯州诉讼案中概述的论点，强调了被起诉的州政府官员在其司法或行政部门篡改选举法时如何违宪行事，比如推广全民邮寄投票。德州和另外18个州则认为，只有州立法机构才能对选举人的任命进行立法。
 
-**简评：**
+密苏里州司法部长埃里克-施密特（Eric Schmitt）在一份声明中指出：“选举的完整性对于维护我们的国家至关重要，无论是今天还是未来的选举。保护我们的宪法，捍卫自由，并确保所有选票都被公平地计算，这是再正常不过的要求。通过这份简报，我们加入了这场斗争。”
 
-根据维基解密发布的一封电子邮件显示，一名多米尼投票公司顾问在2016年希拉里·克林顿竞选总统期间与约翰·波德斯塔（时任希拉里2016年总统竞选团队的主席）会面，讨论他们可以帮助希拉里击败唐纳德·川普的方法。
+该案情摘要是一项请求允许提出申诉议案的动议，还强调了州行政部门和司法部门颁布的变革如何为大规模选举舞弊奠定了基础。
 
-2018年，多米尼投票公司宣布被其管理团队和总部位于纽约的私募股权(基金) 公司— Staple Street Capital 收购，后者由柯克兰与埃利斯律师事务所（Kirkland＆Ellis LLP）为其提供咨询服务。
+诉状解释道：“申诉书指控，每个被告州的非立法行为者违反宪法、废除或淡化了州议会颁布的防止舞弊的法定保障措施，违反了《总统选举人条款》。申诉书中指出的所有对选举程序的违宪修改都有两个共同的特点：
 
-从维基解密公布的一系列电子邮件中可以看到，在希拉里·克林顿竞选期间，这家律师事务所合伙人卡姆兰·S·巴杰瓦（Kamran S. Bajwa）会见了约翰·波德斯塔，愿意提供“一切”来帮助希拉里击败川普。
+(1) 它们废除了负责任的观察家们长期以来为邮寄投票所建议的防止舞弊的法定保障措施；
+(2) 它们这样做的方式可预见地使总统选举中的一位候选人获得党派优势。”
 
-多米尼投票系统（作弊软件）就是为了操纵选举而设计。从本文中不难看出，2016年此投票软件用在希拉里竞选总统选举中。只是当年“兑水”不足，所以民主党输了。经过四年准备，今年民主党是“志在必得”，竟敢明目张胆、毫无顾忌地作弊。不但在民主党控制的各州，还在几个摇摆州都使用多米尼投票软件，大做手脚、大肆舞弊，企图偷走美国公民的合法选票，即偷走美国宪政和法治。
+评论：极其兴奋地看到越来越多和州加入对选举舞弊州的违宪起诉。这是人类历史上最为关键的时刻，而我们每一天都在见证着历史。
 
-这次民主党“兑水”过多，彻底败露！俗话说，出来混迟早要还的！
-
-注: Staple Street Capital 的唯一注资东家是来自中共控制的瑞银证券。
-
-***原文翻译***
-
-###### 根据维基解密发布的电子邮件，多米尼顾问与约翰·波德斯塔（John Podesta）会面，愿意提供”一切“来帮助击败川普。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/VNezPZkOOZWII/images/68b82010-eb5f-4509-b55c-c5a0816f5bf0.jpg?asset_id=96cf1bb6-acaf-4592-acbf-a23ab571d0e5&amp;img_etag=%2203de77048ba1fcd6c96e3a04bd3d82ab%22&amp;size=2560)](https://spark.adobe.com/page/VNezPZkOOZWII/images/68b82010-eb5f-4509-b55c-c5a0816f5bf0.jpg?asset_id=96cf1bb6-acaf-4592-acbf-a23ab571d0e5&amp;img_etag=%2203de77048ba1fcd6c96e3a04bd3d82ab%22&amp;size=1024)
-
-维基解密先前发布的一封电子邮件显示，一名多米尼投票顾问在希拉里·克林顿竞选期间与约翰·波德斯塔会面，讨论他们可以帮助击败唐纳德·川普的方法。
-
-2018年，多米尼投票公司宣布，已被其管理团队和总部位于纽约的私募股权（基金）公司Staple Street Capital 收购，后者由柯克兰与埃利斯律师事务所（Kirkland＆Ellis LLP）为其提供咨询服务。
-
-根据维基解密公布的一系列电子邮件，在希拉里·克林顿竞选期间，柯克兰德和埃利斯律师事务所合伙人卡姆兰·S·巴杰瓦（Kamran S. Bajwa）会见了约翰·波德斯塔，同时愿意提供“一切”来帮助击败唐纳德·川普。
-
-波德斯塔当时是希拉里·克林顿2016年美国总统竞选的主席。
-
-2015年12月19日星期六，巴杰瓦（Bajwa）写信给波德斯塔：“很高兴周四在纽约见面。正如讨论的那样，我想通过分享想法、筹集资金、招募竞选志愿者以及任何其他有助于你们竞选活动的方式，尽我所能。我希望我向你们介绍一批像我这样日益壮大的专业人士的小小努力，能够加强你们为克林顿国务卿竞选所做的重要工作。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/VNezPZkOOZWII/images/bc7c467f-f0e5-4671-bcff-7b181a26c9f2.jpg?asset_id=059e547b-cb19-4e8d-b7d4-f641aec387ad&amp;img_etag=%22af171294b773009c4d8dd9198bb9bc0b%22&amp;size=2560)](https://spark.adobe.com/page/VNezPZkOOZWII/images/bc7c467f-f0e5-4671-bcff-7b181a26c9f2.jpg?asset_id=059e547b-cb19-4e8d-b7d4-f641aec387ad&amp;img_etag=%22af171294b773009c4d8dd9198bb9bc0b%22&amp;size=1024)
-
-“我经常来纽约，希望有机会与你（坐在）一起讨论协调我们行动的最佳方式。如果你1月5日在纽约，那天我将有空在你方便的任何时间和地点与你见面。”
-
-波德斯塔回应说：“不记得我们是否讨论过川普对伊斯兰国（ISIS）/ 激进派招募的影响。你听懂了吗？”
-
-“约翰，我只想简单说一下，我正在办公室里和我的高级合伙人比尔·辛格（Bill Singer）联系, 并让他知道我打算尽我所能帮助你们的竞选活动。他对你赞不绝口，请我代为问候。短暂的休息之后，我将期待与你保持联系。” 巴杰瓦在12月21日写道。
-
-2016年1月2日，巴杰瓦再次跟进，请求再次与波德斯塔见面。他说：“我想继续几周前我们简短的谈话，看看下周二你是否有空在纽约见面？我将在城里工作，周二的日程安排很灵活，所以如果你能见面，我可以在下午5点之前在方便的时间和地点来找你。”
-
-波德斯塔随后将这封邮件转发给克林顿竞选班子成员米莉亚·费舍（Milia Fisher), 请她找时间安排会面。
-
-多米尼公司已经成为选举舞弊丑闻的中心，因为异常现象和舞弊证据恰好在使用该公司机器的各州中最为严重。
-
-[原文链接](https://www.thegatewaypundit.com/2020/12/dominion-advisor-met-john-podesta-offering-anything-help-defeating-trump-according-email-released-wikileaks/)
-
-[英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】-[点击saprk adobe版](https://spark.adobe.com/page/VNezPZkOOZWII/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/VNezPZkOOZWII/images/d02d93e5-8421-4fe0-b045-f969b5043298.jpg?asset_id=6a0a487c-8810-4558-bda7-ad28476fd7ed&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/VNezPZkOOZWII/images/d02d93e5-8421-4fe0-b045-f969b5043298.jpg?asset_id=6a0a487c-8810-4558-bda7-ad28476fd7ed&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+[原文链接](https://thenationalpulse.com/breaking/supreme-court-case-grows/)
 
 0
