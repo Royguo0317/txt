@@ -1,90 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国会继续悬赏捉拿委内瑞拉的马杜罗吗？
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/631901/)
+## 中共国上演 弟弟醉驾 姐姐顶包 跪地求情
+` GM108` [轉載自GNews](https://gnews.org/zh-hans/632092/)
 
-整撰：文錦  复核：文非
+作者：小妍说
 
-随着美国著名军事律师西德尼-鲍威尔（Sidney Powell）强烈指出美国总统大选是一项“跨国阴谋”，并有确凿证据证明中共及委内瑞拉企图借助投票软件干预了本届总统选举。委内瑞拉再次出现在我们的视野，该国于12月6日开始了充满争议的国会选举。
+近日，在安徽绩溪县，交警查获一起酒驾，车上女子竟然上演了一出顶包、跪地求交警放过她弟弟的闹剧。当天晚上9点左右，绩溪县公安局交管大队城区中队的民警正在华阳城区的印潭路查缉酒驾，一台白色轿车在离现场不远处停了下来，交警立即上前查看，驾驶室里坐着一名女子，神情淡定。虽然驾驶室的女子一口咬定是自己开的车，吹气检测结果也显示女子确实喝了酒，但民警通过执法记录仪上的影像，判断当时开车的是一名男性驾驶人。绩溪县交管大队城区中队民警凌家俊：“我们要求女子出示驾驶证和行驶证，她回答说没有驾驶证，我们又让她拿出车钥匙，口口声声是自己开车的女子竟然不知道车钥匙在哪儿。”这时，现场的一名辅警将躲在离停车位置不远小区内一名可疑男子请了过来。陈姓男子在交警的一再追问下，终于承认自己就是开车的人，刚刚还在狡辩的女子一下子张开双手，挡在男子面前。女子现场求情：“他是我们家的独苗，求你们，我弟弟的惩罚我来承。我就这么一个弟弟，求你们。罚款我来罚，我愿意坐牢我愿意坐牢。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09094842/AE9B9B2F-C267-415C-BAC5-4AE5EB567B6A.png)
+很多人说在这场闹剧中看到了姐弟情深，可我觉得不仅仅是姐弟情深的问题，更是一个被洗脑的姐姐，从小被灌输要照顾弟弟，弟弟以后靠你了的思想，这种环境下，姐弟变成了主仆，姐姐的思想和行为习惯中都会下意识的以弟弟为中心。仅仅用“悲哀”这么一个词汇，已经很难解释这件事情。类似的重男轻女现象在中共国还有很多，而这件事只不过是一个缩影。往往这种家庭长大的女孩，从小都会被教育要照顾好自己的弟弟，直到长大，甚至到成家。这样家庭长大的女孩，所承受的苛责与恶意远比我们想象的多得多。而最多的就来自于她们的父母，父母的重男轻女思想会让这些女孩从小活成奴隶，觉得自己永远是不重要的，永远该做出牺牲成全别人的。父母会无限制的压榨这些女孩的所有价值，从出生就不被期待和祝福，永远活在弟弟的阴影下。
 
-美国国务卿蓬佩奥和白宫国家安全委员会（National Security Council，NSC）纷纷在推特上表示委内瑞拉的选举是一场舞弊和骗局。
+你和她们说男女平等，她们会反驳说姐姐就是要帮助弟弟；你说封建思维，她们会反驳说弟弟是家族唯一独苗；如果她们选择不服从家里，就是家族的罪人，就是不孝。不孝就是禽兽。这是什么？这就是最高级的洗脑。毕竟在中共国的文化环境中，又有谁能抵御住“不孝”两个字带来的巨大压力？虽然肉体是人，但是内心却完全没有意识到自己，是人。在当今这个时代，洗脑洗成这样有多可怕，而更可怕的是这种想法早以隐藏在中共国的各个角落里，已然形成了悲剧的循环。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09095007/18973E20-5074-4EFF-88C7-63B6F779C533.png)
+有人说，中共宣称2020年贫困县全部都脱贫摘帽了，为什么还有这么多人思想上依旧贫瘠？为什么到现在还会有这样的姐姐？这样的家庭？姐姐的这种思想是谁导致的？她为什么是个扶弟魔?她又是怎样变成一个扶弟魔?她什么时候变成一个扶弟魔?这些问题就不值得我们思考吗？难道这个女孩天生就是扶弟魔吗?我们都知道，不是的。毕竟在一个靠武力和暴力实施极权的国家，哪有什么男女平等；一个韭菜和镰刀泾渭分明的国家，哪有什么男女平等；一个户籍歧视低端人口标签大行其道的国家，哪有什么男女平等。别说什么男女平等了，连基本人权都没有，怎么可能会有男女平等？而这一切的罪魁祸首就是中共。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09090436/%E6%88%AA%E5%B1%8F2020-12-09-%E4%B8%8B%E5%8D%889.51.05.png)
+（文章内容仅代表个人观点）
 
-**美国和国际社会揭示委内瑞拉的选举欺诈**
+GNEWS之前文章：
 
-周日（12月6日）开始的国会选举由委内瑞拉的社会主义领导人马杜罗（Nicolás Maduro）倡导，但遭到该国由胡安·瓜伊多（Juan Guaidó）领导的反对派联盟的 抵制，并称该选举是一场欺诈行动。
+邪恶中共为保生育率 践踏婚姻自由 [https://gnews.org/zh-hans/630090/](https://gnews.org/zh-hans/630090/)
 
-据报导，忠于马杜罗的最高法院今年任命了一个新的选举委员会，其中包括三名受到美国和加拿大制裁的成员，且没有按照法律要求让反对派领导的国会参与。反对派计划在选举后几天内举行公投，询问委内瑞拉人民是否希望结束马杜罗的统治，并举行新的总统选举。
+蛋壳公寓 18楼租客放火跳楼 [https://gnews.org/zh-hans/623590/](https://gnews.org/zh-hans/623590/)
 
-美国国务卿蓬佩奥在推特上发文：“委内瑞拉已经发生选举舞弊。马杜罗非法政权宣布的结果，不会反映委内瑞拉人民的意愿。今天发生的是一场舞弊和骗局，而不是一场选举。”
+17岁花季少女在中共警察的“注视”下溺亡[https://gnews.org/zh-hans/619501/](https://gnews.org/zh-hans/619501/)
 
-
-
-> Venezuela's electoral fraud has already been committed. The results announced by the illegitimate Maduro regime will not reflect the will of the Venezuelan people. What's happening today is a fraud and a sham, not an election.
-> — Secretary Pompeo (@SecPompeo) [December 6, 2020](https://twitter.com/SecPompeo/status/1335672345894268938?ref_src=twsrc%5Etfw)
-
-
-
-白宫国家安全委员会（National Security Council，NSC）连续两日（6日-7日）发推文表示，委内瑞拉周日举行的选举是欺诈。“**从****12****月7****日至12****月12****日，我们鼓励委内瑞拉境内外的人民拒绝马杜罗政权的欺诈性立法选举，由临时总统胡安·瓜伊多（JuanGuaid****ó）领导的反对派联盟正在为委内瑞拉人民发出声音，美国将继续支持委内瑞拉的合法政治活动。**” –国家安全局Robert C. O’Brien。
-
-美国会和欧盟一道反对马杜罗对委内瑞拉人民意愿的扼制。
-
-
-
-> (2/3) This election only serves to keep Maduro in power and does nothing to build a better future for the people of Venezuela. The U.S. will continue its unwavering demands for freedom, basic human rights, the rule of law, and truly fair elections in Venezuela.
-> — NSC (@WHNSC) [December 5, 2020](https://twitter.com/WHNSC/status/1335302497032933377?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> (1 of 2) “From December 7th to December 12th, we encourage Venezuelans inside and outside of Venezuela to reject the regime’s fraudulent legislative elections and help restore democracy via the Consulta Popular.
-> — NSC (@WHNSC) [December 6, 2020](https://twitter.com/WHNSC/status/1335699087392378883?ref_src=twsrc%5Etfw)
-
-
-
-白宫国家安全委员会NSC还转发了欧盟理事会发表的《关于委内瑞拉国民议会选举的联合声明》和加拿大政府官网发布的多国联合签署《关于委内瑞拉的联合声明》，明确表示美国会和欧盟及国际社会一起坚定地支持委内瑞拉人民的合法代表胡安-瓜伊多，为委内瑞拉人争取进行自由，公正的选举。
-
-
-
-> We stand together with the European Union to oppose Maduro’s lack of respect for the will of the Venezuelan people and ongoing political crisis. The international community is firmly with the legitimate representatives of the Venezuelan people, [@jguaido](https://twitter.com/jguaido?ref_src=twsrc%5Etfw) and the [@asambleaVe](https://twitter.com/AsambleaVE?ref_src=twsrc%5Etfw). [https://t.co/xFxyOnsovt](https://t.co/xFxyOnsovt)
-> — NSC (@WHNSC) [December 8, 2020](https://twitter.com/WHNSC/status/1336444947755638785?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> The countries of the [#LimaGroup](https://twitter.com/hashtag/LimaGroup?src=hash&amp;ref_src=twsrc%5Etfw) firmly reject Maduro’s fraudulent legislative elections. We continue to support the legitimate representatives of the Venezuelan people, [@jguaido](https://twitter.com/jguaido?ref_src=twsrc%5Etfw) and the [@asambleaVe](https://twitter.com/AsambleaVE?ref_src=twsrc%5Etfw), in demanding free and fair elections for all Venezuelans. [https://t.co/ca8C9WQR0P](https://t.co/ca8C9WQR0P)
-> — NSC (@WHNSC) [December 8, 2020](https://twitter.com/WHNSC/status/1336437150565486593?ref_src=twsrc%5Etfw)
-
-
-
-以上联合声明的签署国是一个受委内瑞拉多层面危机影响的国家集团，包括利马集团成员和其他致力于支持委内瑞拉恢复民主的国家，。签署国有：巴西、加拿大、智利、哥伦比亚、哥斯达黎加、多米尼加共和国、厄瓜多尔、萨尔瓦多、危地马拉、圭亚那、海地、洪都拉斯、巴拿马、巴拉圭、秘鲁、圣卢西亚。
-
-**委内瑞拉参与操纵美国总统选举的阴谋已暴露**
-
-在本次美国总统大选中，被指控涉嫌虚假作票的Smartmatic计票软件，也与委内瑞拉关系匪浅。鲍威尔律师表示，Smartmatic的所有者包括两名委内瑞拉人，与该国的前任独裁者查韦斯（Hugo Chávez）和现任马杜罗政权有联系。
-
-一名证人曾亲眼见过投票软件如何暗箱操作、操控2013年委内瑞拉大选，当时的情形与11月3日大选夜多个州突然停止计票的情况很相似；另一位证人前中情局（CIA）高级官员也表示，大选中出现的违规行为与2004年帮助查韦斯继续执政的投票操纵行为诡异地相似，包括停止计票、费城选举委员会在没有任何民间监督或观察下，处理数十万张邮寄选票等等。
-
-**美国“赏金猎人”捉拿马杜罗**
-
-委内瑞拉总统尼古拉斯-马杜罗周二表示，在与川普政府关系紧张多年后，他希望与美国“当选”总统拜登的新政府打开沟通和对话的渠道。”希望乔-拜登先生的新政府就职，希望他们有时间思考，希望委内瑞拉和美国之间的沟通和对话渠道能够打开。”马杜罗在加拉加斯举行的新闻发布会上说。
-
-委内瑞拉2019年1月21日爆发反对现任总统马杜罗的大规模抗议活动，反对派议长胡安 瓜伊多23日自行宣布就任委内瑞拉“临时总统”。川普政府以及其他大约60个国家承认瓜伊多的“临时总统”地位后，马杜罗于2019年1月与华盛顿断交。**继续承认马杜罗是委内瑞拉当前合法总统的国家则包括俄罗斯、中国、希腊、土耳其、古巴等国。**
-
-在周末（6日）的立法投票中，马杜罗表示在反对派抵制和国际大国抨击的情况下，完全掌握了权力。美国揭露这次选举是欺诈和舞弊，并表示将继续承认瓜伊多是该国的合法总统。
-
-马杜罗对外国记者说，他在得知有人计划暗杀他后，周日突然将投票地点改在加拉加斯的主要军事基地。这位委内瑞拉领导人说：”我们从非常可靠的哥伦比亚情报人员那里得到消息，他们正准备在选举日发动袭击，以暗杀我。”他经常谴责所谓的美国或哥伦比亚谋杀他的阴谋。
-
-今年3月**美国国务院曾发布公告，以参与贩毒、支持恐怖主义和腐败为由对委内瑞拉总统马杜罗及其他****13****名高官提出指控。对马杜罗的悬赏金额为1500****万美元**，制宪大会主席卡韦略、负责经济的副总统艾尔沙米以及2名前军队高级将领四人各1000万美元，同时被指控的还有委内瑞拉最高法院院长莫雷诺和国防部长帕特里诺，但此二人没有悬赏金额。如果被捕，他们将面临终身监禁。这一指控在当时遭到了俄罗斯、伊朗和古巴等国的谴责。
-
-马杜罗的警觉不是空穴来风。美国现已掌握实锤证据马杜罗政府参与中共操纵美国总统选举，这是马杜罗在3月份被指控贩毒和恐怖主义的基础上的罪上加罪。几个邪恶轴心国已纷纷鸟散状，中共和马杜罗仅剩下寄希望于乔-拜登夺取美国总统位置。然而随着美国宣布对中共14位副国级高官的制裁，随着共产国际小伙伴马杜罗的命悬一线，中共盗国贼的死期已不远矣。
-
-参考链接：
-
-[https://www.epochtimes.com/gb/20/12/7/n12600345.htm](https://www.epochtimes.com/gb/20/12/7/n12600345.htm)
+新闻链接：[https://www.sohu.com/a/436971071\_115635](https://www.sohu.com/a/436971071_115635)
 
 1+
