@@ -1,78 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》每日简报晚间版 2020.12.07&#8211;NewYork Time
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/631051/)
+## 川普总统用国防授权法案交换废除230条款解读
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/631771/)
 
-出品《路德社》 编辑：路德社精选新闻专栏组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09033758/1207-PM-BREF-ZH-scaled.jpg)
-(编辑：文宝Porsche)
+作者：康州盘古农场-轰炸机
 
-(Editor: Wenbao Porsche)
+审核：康州盘古农场-Truemanman
 
-(校准：文宝Porsche)
+一直以来，中共与“美国沼泽”通用Facebook 和 Twitter这样的社交媒体巨头控制言论，控制大选，攻击美国。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09080619/%E5%9B%BE%E7%89%8752.png)
+川普总统周二发推说：“必须包括终止230条款(出于国家安全目的)，保护我们的国家纪念碑，允许5G，减少在外国驻军!”230条款是指《通信规范法》第230条，旨在保护科技公司不因用户发布的内容承担责任。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09080612/%E5%9B%BE%E7%89%8753.png)
+**什么是****国防授权法案****？**
 
-(Calibrator: Wenbao Porsche)
+国防授权法案NDAA英文全称是National Defense Authorization Act，该法案是是一系列美国联邦法律的名称，其明确了美国国防部的年度预算和支出。比如反洗钱工作，网络安全，海外军事，甚至美军每年的涨工资幅度，都由它决定。在每一年年未，都要做出下一年度的国防计划，投票，通过，批资金。
 
-1207晚间要闻-NewYork Time
+**什么是2****30****条款?**
 
-1207 Evening News-NewYork Time
+1996年，美国制定了《通讯规范法案》（CDA）尝试将网络中的（儿童可接触到的）低俗言论，以及淫秽言论纳入监管。[在1997年的雷诺诉美国公民自由联盟案中，美国最高法院裁定，本法案中反低俗内容的条款违宪。至今《通讯规范法案》依然有效的部分是第230条，就是大家常说的230条款。
 
-小盗国贼的结局：十四名人大副委员长全部被纳入制裁黑名单
+《第230条》规定，互联网服务供应商无需为第三方用户的言行负法律责任，同时也保护了互联网服务供应商出于善意考虑，而对志愿部分冒犯性的内容进行限制，或者赋予他人技术手段来限制冒犯性内容的行为。
 
-The End of Small Kleptocrats: Fourteen NPC Vice Chairmen Included in Sanctions Blacklist
+**为什么要废除2****30****条款？**
 
-国务卿蓬佩奥发表声明称，这14人对全国人大常务委员会一致通过可耻的“用来打压任何批评意见及逮捕反抗者的港版国安法”负有直接责任。
+如上所述，《通讯规范法案》第230条， 赋予媒体公司审查言论的权力，当这些公司被恐怖势力控制的时候，能左右一个国家的权力走向，向人民传达错误的信息。因美国是法制国家，当向这些公司问讯时，他们会拿出这230条款，躲在后面，证明自已无罪，并有权控制言论。如果要定罪这些媒体公司，必须要先打掉230条款，把护身符废掉。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09080805/%E5%9B%BE%E7%89%8754.png)
+**川普总统的交易（威胁）**
 
-这十四人，每人至少两百亿人民币以上身家，其资产主要都在美国。他们被制裁方式包括：在美国管辖范围内或由美国人拥有或控制的资产被冻结、本人及家属禁止入境美国。
+今天众议院投票以335：78绝大多数通过反否决NDAA法案。
 
-Secretary of State Pompeo issued a statement saying the 14 people were responsible for the NPC Standing Committee’s passing the shameful “Draft of National Security Law from National People’s Congress to Hong Kong”, which is used to suppress any criticism and arrest rebels.
+川普总统用批准国防授权法案交换《通讯规范法案》第230款，现在因为他们不同意废除230条款，所以川普总统需要共和党人反对国防授权法案的通过，反过来想如果哪天国防授权法案被川普总统签字通过了（川普连任的情况下），那说明230条款就要被废除了（得到了大多数力量的认可）。然后那几家大媒体会受到“叛国”审判，最后**新中国联邦GTV是最大的收益者**。
 
-The 14, each has at least 20 billion RMB in assets, mostly in US. The sanctions include freezing of assets under U.S. jurisdiction or controlled by U.S. persons, and a visa ban on themselves and their families.
+【本文仅代表作者观点】
 
-大盗国贼的选项之一：用于伊朗核弹之父的无人车载猎杀系统
+来源：国防授权法案WIKI：[https://zh.wikipedia.org/zh-cn/%E5%9B%BD%E9%98%B2%E6%8E%88%E6%9D%83%E6%B3%95%E6%A1%88](https://zh.wikipedia.org/zh-cn/%E5%9B%BD%E9%98%B2%E6%8E%88%E6%9D%83%E6%B3%95%E6%A1%88)
 
-First Option for big Kleptocrats: An Unmanned Vehicle-Borne Hunting System for the Father of Iran’s Nuclear Bomb
+国防授权法案2021全文PDF版[https://docs.house.gov/billsthisweek/20201207/CRPT-116hrpt617.pdf](https://docs.house.gov/billsthisweek/20201207/CRPT-116hrpt617.pdf)
 
-伊朗革命卫队副司令透露，敌人通过卫星以AI操控的机关枪杀害了法赫里扎徳，身旁的妻子未受伤。博博士解读，这是一套由卫星实时控制的车载远程AI无人猎杀系统，集成了卫星接收、数据链、成像系统、伺服系统、轻重机枪等装备，与之携同的还有其他炸弹车。一套系统成本只有高级无人机的十分之一，可以提前启动，待命时间长达3天。在本次行动中，炸弹车炸掉电线杆阻断了目标车辆，然后机枪射击，同时切断了附近医院的电源阻止抢救。该系统的精准猎杀，让盗国贼身边的战友不必担心被误伤。
+国防授权法案2020全文PDF版[https://www.congress.gov/116/plaws/publ92/PLAW-116publ92.pdf](https://www.congress.gov/116/plaws/publ92/PLAW-116publ92.pdf)
 
-The deputy commander of IRGC revealed that Fakhrizadeh was killed by a machine gun via AI satellite, leaving his wife unharmed. Dr. Bo explained it’s an unmanned vehicle-borne hunting system remotely controlled by satellite in real time. It integrates satellite reception, data links, imaging systems, server systems, light and heavy machine guns, and other equipments, along with other bomb vehicles. One set only costs one tenth of the advanced UAV, can be activated in advance, and the standby time is up to 3 days. In this operation, the bomb car blew up a pole to block the target, then fire with machine guns while cutting off power of a nearby hospital to prevent rescue. The precise hunting system allows the comrades around the kleptocrats not to fear of being accidentally injured.
+230条款：[https://en.wikipedia.org/wiki/Section\_230](https://en.wikipedia.org/wiki/Section_230)
 
-大盗国贼的选项之二—蚊子无人机
-
-Second Option for big Kleptocrats – Mosquito Drones
-
-博博士提供的图片显示，一架尺寸不足5毫米的蚊子正停留在指尖。这是美国防部高等项目研究局在2018年就已经公开的黑科技—一款名为DARPA的无人机。它可在几公里范围内完成摄像、攻击等各种功能，可远程通过激光束和微波束获得能量，短时间内也可飞入室内，能携带足够致命剂量的毒药如氰化物。
-
-Dr. Bo’s image shows a mosquito less than 5mm staying on a fingertip. This is a black technology disclosed by the U.S. DARPA in 2018, an UAV called DARPA. It can perform such as photoing and attacking within a few kilometers, can gain energy through laser and microwave beams remotely, can fly indoors in a short time, and can carry a sufficiently lethal dose of poisons such as cyanide.
-
-川普总统：接下来几天你会看到很多大事发生
-
-Trump: You’ll See a Lot of Big Things Happening Over the Next Couple of Days.
-
-他与自由派记者交谈时说，这个大选舞弊是我们国家的耻辱，就像第三世界国家一样。我认为案件已经提出、且已经有了解决方案，接下来几天你会看到很多大事发生。路德分析，这个大事不是指法律层面的，而是指路德社提前预告的实施暴动法、取消人身保护令、大抓捕等真正的大事。
-
-Talking to liberal journalists, Trump said that this election fraud was a disgrace to our country, just like a third world country. He thought the case had been raised and a solution had been found, and we would see a lot of big things happening over the next couple of days. Lude analyzed it was not the legal aspects, but the real things like the implementation of riot act, cancellation of habeas corpus act, mass arrests, which Lude Media predicted before.
-
-八天内，美国空军和太空军有改变世界的大事宣布
-
-In 8 days, U.S. Air Force and Space Force will Announce Events that Change the World.
-
-美国导弹防御系统的组网之父、助理空军部长、负责美空军和太空军科技整合与装备开发的Will Roper博士昨天发推说，你（指CCP还是指谁）准备好了吗？9天之内有大事发生。
-
-The father of U.S. NMD, Assistant Secretary of the Air Force, and the head of integrated equipment development for Air Force and the Space Force, Dr. Will Roper, asked if CCP was ready for something to happen in 9 days in his tweet yesterday.
-
-英国人周二开始争先做中共病毒疫苗小白鼠
-
-British Race to be First White Mice for CCP Virus vaccine on Tuesday
-
-中共病毒疫苗接种工作将从12月份开始，在全球各国陆续开展。装载首批八十万剂中共病毒疫苗的超低温冷柜运达英国，从周二开始，在苏格兰威尔士、北爱尔兰、英格兰的五十家医院进行接种。英国卫生部长居然宣称，要把接种疫苗的第一天视为VictoryDay，荒唐！
-
-Vaccination against CCP virus will be carried out around the world from December. The first 800,000 doses of the CCP virus vaccine in Ultra-Low Temperature Freezers arrived in UK. From Tuesday, people could be vaccinated in 50 hospitals in Scotland, Wales, Northern Ireland, and England. The British Secretary of State for Health declared that the first day of vaccination would be considered as Victory Day, which is absurd!
-
-文案：《路德社》文编组
-翻译：《路德社》翻译组
-审核校对：玫瑰天空
-上传排版：青葫芦娃&玫瑰天空
-
-1+
+4+

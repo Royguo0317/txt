@@ -1,31 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 网易“美限CCP及亲属赴美”几获26万叫好，四个时辰过后只剩五毛一条
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/631819/)
+## go to eat トラベル后续三
+` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/631978/)
 
-*新闻来源：新之助推文；编辑：英国之声*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09092034/go-to-eat-%E3%83%88%E3%83%A9%E3%83%99%E3%83%AB%E5%90%8E%E7%BB%AD%E4%B8%89.png)
+作者：京都富士会  神的带领
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09083336/IMG_1.jpg)
+最近，随着中共病毒的不断发酵，日本感染者不断增加，重患人数也直线上升。医院的床位开始告急，医护人员更是告急。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09085247/1-37.jpg)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09090233/33-2.jpg)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09090223/44.jpg)
+随着中共病毒的蔓延，日本医护人员要24小时值班。护士不但要参与抢救，下管打针之类的技术活、照顾病人吃喝拉撒睡，甚至打扫卫生都要做。即便病人不再增加，她们的工作量也大幅增加了好多，况且重患越来越多。这些重患不会像人们想象那样，几天痊愈或几天变成轻症的。于是，先住院的还没有起色新患又至，这种绵延循环使得医护杯水车薪，医疗机构已无法正常运转。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09090117/IMG_2.jpg)
+今天，看电视报道大阪府一个三岁心脏病患儿的妈妈哭诉。自己的孩子治疗预约被推迟，她很担心孩子随时都有急需就医的可能。但是，因为医护人员不足，床位不足，孩子很可能不能得到及时的救治。是啊，每个家庭成员都那么重要，每个病患都渴望得到及时的治疗。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09090814/Screenshot-2020-12-09-at-14.04.41.png)
+从另一个角度讲，即使您只是同通常疾病而非CCP病毒感染等到了床位，住进了医院。通常情况下，就可以安心接受治疗了。但是，这个时候，医院有那么多的中共病毒感染者，抵抗力低下的患者们会不会反而被传染了呢？那是不是就更糟糕了呢？
 
-# **还我言论自由！**
+同时，人们开始担忧会不会有差别对待，会不会有虐待等等情况发生？会不会有红包、后门、权利、地位之分呢？
 
-【文章仅代表作者观点】
+所以，人们开始疑虑政府的促销活动（go to eat）是不是合适呢？是不是因为促销扩大了感染呢？
 
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+人们开始失望的同时又谈论起了疫苗，觉得是不是打了疫苗就会象感冒病毒一样被预防了呢？还有人说英国的做法（全民感染，增加抗体）也许是正确的。您觉得这些说法可靠吗？有没有吓到您呢？
 
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+所以我们要听爆料革命的，最严重的时候还没有到来，家人和自己最重要。照顾好家人照顾好自己，少出门，必须出门时一定要戴口罩、戴手套、勤洗手。记住，活着才最重要！
 
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】
-![]()![](https://spark.adobe.com/page/AwfBxKCmeuDHR/images/6a724ac9-c23e-4613-b464-7394a68c6cb1.jpg?asset_id=d8d2c47a-56e2-49cd-a684-9eb21fa8e121&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-2+
+0

@@ -1,17 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评】12.07 【精华版粤语配音】： 美国正式制裁中共盗国贼 美国黑科技秒杀全球恐怖分子
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/631802/)
+## 【世界多语言图文】2020/11/29-11/30 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/630881/)
 
-制作单位：战友之家-粤语组
-制作团队：阿恩
+战友之家图文摘要及多语组
 
+[309-310\_English\_1129-1130\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09010814/309-310_English_1129-1130_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09010814/309-310_English_1129-1130_CCP_Virus_Updates.pdf)
 
+[309-310\_German\_1129-1130\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09082842/309-310-German.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09082842/309-310-German.pdf)
 
-摘要：
-美国正式制裁中共盗国贼
-美国黑科技秒杀全球恐怖分子
-爆料革命 新中国联邦是新中国最终走向民主自由的引路人
+[309-310\_Japanese\_1129-1130\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09010901/309-310_Japanese_1129-1130_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09010901/309-310_Japanese_1129-1130_CCP_Virus_Updates.pdf)
 
-1+
+[309-310\_Korean\_1129-1130\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09010844/309-310_Korean_1129-1130_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09010844/309-310_Korean_1129-1130_CCP_Virus_Updates.pdf)
+
+0
