@@ -15,6 +15,10 @@
 ---
 ## 頁面 25/30 [**<**](/content/README-24.md) [1](/content/README.md) ... [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) **25** [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [**>**](/content/README-26.md) [查看全部](/content/README-all.md)
 
+[文字版：03/09/18郭媒体视频文贵有三急和文贵是不是要反习主席了呢？NO！](/content/2018/04/20180418-3356176592243296603.md)
+
+[文字版：03/07/18路德系列专访袁红冰（一）：袁红冰视角看中共修宪 ](/content/2018/04/20180418-456944924800011468.md)
+
 [文字版：03/0/18郭媒体视频：修宪的本质和盗国有什么区别？以黑治国与2018两会什么关系？](/content/2018/04/20180418-9206841940282105316.md)
 
 [文字版2018年3月7日郭媒体郭先生视频](/content/2018/04/20180418-2835349421572666159.md)
@@ -60,10 +64,6 @@
 [翻译：美籍华人记者声称中国绑架了他的妻子](/content/2018/04/20180418-3894960312910613407.md)
 
 [2018年1月15号郭文贵先生谈蓝金黄陈小平的夫人，孟建柱，王岐山一手策划假报习家财富](/content/2018/04/20180418-6010297384739671403.md)
-
-[郭文贵先生加拿大挺郭后援会2018年首次挺郭聚会发言](/content/2018/04/20180418-5726696199328694940.md)
-
-[2018年1月4号文贵谈习主席李克强两个领导人的女儿进入北大的背后故事](/content/2018/04/20180418-619291156807124954.md)
 
 
 ## 頁面 25/30 [**<**](/content/README-24.md) [1](/content/README.md) ... [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) **25** [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [**>**](/content/README-26.md) [查看全部](/content/README-all.md)

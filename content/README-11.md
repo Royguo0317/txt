@@ -15,6 +15,10 @@
 ---
 ## 頁面 11/30 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [30](/content/README-30.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年10月30日特别节目文贵和Sara、路德、江财神在喜马拉雅大使馆谈区块链](/content/2019/11/20191104-6223234375354578515.md)
+
+[文字版：2019年10月29日郭文贵先生与庄烈宏先生直播](/content/2019/11/20191104-6256642616766807144.md)
+
 [文字版：2019年10月28日文贵紧急直播](/content/2019/11/20191104-5535756797858660589.md)
 
 [文字版：2019年10月27日文贵试直播乱聊](/content/2019/11/20191104-2431489573018737402.md)
@@ -60,10 +64,6 @@
 [文字版：2019年10月5日与郭文贵先生与MIZ宙斯小队连线](/content/2019/10/20191007-4743874505375198179.md)
 
 [文字稿：2019年10月4日郭文贵先生直播谈香港动用紧急法，出台禁止蒙面条例](/content/2019/10/20191007-5253787192699836521.md)
-
-[文字版：2019年9月30日开篇演讲](/content/2019/10/20191001-5934250796818600450.md)
-
-[文字版：20190928郭先生船上直播，香港即将迎来关键一战，国庆就是CCP的末日，美将清算到国贼资产，以美灭共，依法灭共，以共灭共的伟大时代已经来临](/content/2019/09/20190929-7939918714279530876.md)
 
 
 ## 頁面 11/30 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [30](/content/README-30.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)

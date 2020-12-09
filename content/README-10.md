@@ -15,6 +15,10 @@
 ---
 ## 頁面 10/30 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [30](/content/README-30.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
 
+[文字版：郭文贵先生1120一周年再次联手定点爆破，王健之死浮出水面（精华版）](/content/2019/11/20191126-8526960149542259140.md)
+
+[文字版：2019年11月24日郭文贵先生马装助威香港公投选举议员](/content/2019/11/20191125-2755101729158304751.md)
+
 [文字版：2019年11月23日文贵报平安直播](/content/2019/11/20191125-6475275943691135995.md)
 
 [文字版：2019年11月21日感谢万佛万神，警告海外华人不要帮中共作恶并喊话黄芳](/content/2019/11/20191122-9185268058186409613.md)
@@ -60,10 +64,6 @@
 [文字版：2019年11月2日郭文贵先生在中央公园直播](/content/2019/11/20191104-8519209542622441736.md)
 
 [文字版：2019年11月2日文贵谈共产党即将倒台的三大因素](/content/2019/11/20191104-6514911663487933356.md)
-
-[文字版：2019年10月30日特别节目文贵和Sara、路德、江财神在喜马拉雅大使馆谈区块链](/content/2019/11/20191104-6223234375354578515.md)
-
-[文字版：2019年10月29日郭文贵先生与庄烈宏先生直播](/content/2019/11/20191104-6256642616766807144.md)
 
 
 ## 頁面 10/30 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [30](/content/README-30.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)

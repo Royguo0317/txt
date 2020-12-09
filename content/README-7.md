@@ -15,6 +15,10 @@
 ---
 ## 頁面 7/30 [**<**](/content/README-6.md) [1](/content/README.md) ... [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) **7** [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) ... [30](/content/README-30.md) [**>**](/content/README-8.md) [查看全部](/content/README-all.md)
 
+[文字版:2020年2月20日文贵先生和班农先生在作战室和喜马拉雅大使馆共同直播](/content/2020/02/20200221-5201737352028779423.md)
+
+[文字版：2020年2月18日郭文贵先生直播警醒同胞2月29日是武汉疫情的分水岭，别上班，躲深山!](/content/2020/02/20200220-6957915304895832685.md)
+
 [文字版:2020年2月15日文贵告诉战友们一定要耐心在家健身健心，会有解药的！CCP灭了车贷房贷不用还了！](/content/2020/02/20200218-4076658468529416877.md)
 
 [文字版：2020年2月14日文贵试直播谈GTV的武汉疫情视频免费用，战友不树敌只为灭共](/content/2020/02/20200216-8326399150836754935.md)
@@ -60,10 +64,6 @@
 [文字版：2020年1月22日文贵第二次直播谈武汉疫情紧急事件](/content/2020/01/20200124-5709534972923488807.md)
 
 [文字版：2020年1月22日文贵谈中共新4000隐士灭爆计划以及借中美贸易协议之名行盗国之实](/content/2020/01/20200124-8451089471226145185.md)
-
-[文字版：2020年1月20日文贵谈中国正在发生的非典真相并分享西方人如何看待勤劳的中国人却如此多灾多难不受人尊重的原因](/content/2020/01/20200122-2341307363254649322.md)
-
-[文字版：2020年1月19日文贵爆惊天新闻——中美协议是卖港交易](/content/2020/01/20200121-9098198645527028408.md)
 
 
 ## 頁面 7/30 [**<**](/content/README-6.md) [1](/content/README.md) ... [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) **7** [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) ... [30](/content/README-30.md) [**>**](/content/README-8.md) [查看全部](/content/README-all.md)

@@ -15,6 +15,10 @@
 ---
 ## 頁面 16/30 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [30](/content/README-30.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年5月10日文贵50岁生日感言](/content/2019/05/20190511-4805446820921789375.md)
+
+[文字版：郭文贵 5月9日 中共玩弄中美贸易协议重大事件！全球金融市场陷入惊慌！美国将对台湾香港采取战略调整](/content/2019/05/20190511-3890850294287177156.md)
+
 [文字版：2019年5月6日文贵直播谈谈，为什么川普总统要突然间的停掉，中美贸易协定共产党必须还回属于14亿中国人民的一切财富一切权力！](/content/2019/05/20190510-4083283175191346612.md)
 
 [文字版：2019年5月8日，文貴聊聊，為什麼中方要求美方不能公開中美的貿易協議內容！為什麼文貴的夢語，郭九條](/content/2019/05/20190510-3983721227880771175.md)
@@ -60,10 +64,6 @@
 [文字版：2019年4月9号史蒂夫·班农先生在“当前危险委员会-中国”活动上发言](/content/2019/04/20190411-1430890358024836109.md)
 
 [文字版：4月9号文贵报平安直播！谈谈陈小平先生和何频先生．明镜．和龚小夏女士上次直播时没有说清楚的几个事](/content/2019/04/20190409-7580597247840553748.md)
-
-[文字版：2019年4月7日美欧日等将对中资国营，香港自贸协定，中共及香港官员的一系列立法制裁，或调查，或列入黑名单，行动，将是中共灭亡的第一步！](/content/2019/04/20190408-8215608975739288782.md)
-
-[文字版：2019年4月6日班农先生与郭文贵先生谈“当委会”、中美贸易协议与法治基金](/content/2019/04/20190407-6044925743176035036.md)
 
 
 ## 頁面 16/30 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [30](/content/README-30.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)
