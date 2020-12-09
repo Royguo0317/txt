@@ -1,17 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫发言人发推宣布重大利好消息
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/628864/)
+## 祈祷！川普总统律师团队Jenna确诊感染中共病毒
+` GM01` [轉載自GNews](https://gnews.org/zh-hans/629801/)
 
-- 编辑：Víctor Torres
-- 作者：Víctor Torres
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08154624/%E6%88%AA%E5%B1%8F2020-12-08-%E4%B8%8B%E5%8D%881.45.15.png)
+2020年12月8日美东时间下午1点左右，根据外媒消息，川普总统律师团队的一位美女律师Jenna Ellis确诊感染中共病毒。Jenna律师因与朱利安尼先生共同征战选举听证会被战友熟知。
 
+朱利安尼先生于两天前确诊中共病毒，目前身体情况好转，郭先生近日曾直播表示朱利安尼先生为中共重点投毒的打击对象。
 
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+截止2020年12月8日，美国接近1540万人确诊中共病毒，死亡人数超过29万，全球感染人数超过6800万人。死亡人数接近156万人。
 
-西班牙2020年12月8日电/西喜社——20分钟前白宫发言人凯利·麦肯尼宣布得克萨斯州已就选举违规行为起诉佐治亚州，密歇根州，宾夕法尼亚州和威斯康星州！这意味着德克萨斯州将拥有直接向最高法院起诉的原始管辖权。
+请战友们一同为为美女律师Jenna祈祷🙏
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08093345/tueite.png)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 0

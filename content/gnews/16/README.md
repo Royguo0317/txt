@@ -1,89 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》：朱利安尼市长满血回归！天雷滚滚，大事将至，告国内某些人别做炮灰！
-` GM127` [轉載自GNews](https://gnews.org/zh-hans/629618/)
+## CCP病毒疫苗可以攻击胎盘细胞，引起女性不育
+` 温哥华战友之家` [轉載自GNews](https://gnews.org/zh-hans/630306/)
 
-《路德时评》2020年12月8日早间节目主要内容：路德社爆料朱利安尼市长满血回归；解析川普总统转推翟东升视频，Tucker总结情报总监发言；中共外交部强烈回应美制裁行动；德州起诉四州大选违宪。
+*温哥华战友之家 飞龙*
 
+*上传 校对 双鱼侠*
 
+据 HUMANS ARE FREE 12月8日报道，沃尔夫冈·沃达格（Wolfgang Wodarg）博士和迈克尔·耶顿（Michael Yeadon）博士，两位医生警告：CCP病毒疫苗可以攻击胎盘细胞，引起女性不育。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08201749/vaccine1.jpg)
+日前，沃尔夫冈·沃达格（Wolfgang Wodarg）博士和迈克尔·耶顿（Michael Yeadon）博士，两位勇敢的医生针対辉瑞/ BioNTech开发的新型mRNA冠状病毒疫苗向欧洲药品管理局（EMA）发出了行政和监管的行动议案。
 
-一、朱利安尼先生最新病情
+他们警告：疫苗可以攻击胎盘细胞，引起女性不育。
 
-路德社爆料：朱利安尼先生确诊感染中共病毒后，随即住院接受治疗，他接受了再生元公司的单克隆抗体治疗，恢复非常迅速，因他有癌症史，康复过程较为痛苦。朱利安尼先生即将接受班农先生 Warroom 的采访，单克隆抗体是国防部下订单采购的预备药品。目前，商业用途较难买到单克隆抗体，当前产量只够治疗七八万人。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08134750/Lude_20201208_AM-coverphoto.png)[图片来源](https://twitter.com/RudyGiuliani)
-二、川普总统转推翟东升视频
+医生要求采取监管行动，要求确认疗效评估指标。他们希望EMA继续行动，能够中止新疫苗的紧急批准，直到公司可以修改研究设计以确保中共病毒的诊断并确认疗效评估指标是正确的，而非仅仅基于非特异性症状和假阳性高循环的PCR测试（由于高循环PCR测试已被裁定为97％的假阳性，）医生警告说，草率的三期临床试验的研究设计产生了欺诈性的数据点，这将导致误导公共卫生准则，给人类接受者带来未来的伤害。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08201812/vaccine4.jpg)
+他们也详细的描述了包括针对聚乙二醇（PEG）的自身抗体的开发的种种危害。这不仅会使疫苗无效，还会引起过敏反应和致命的伤害。
 
-川普总统转推福克斯新闻 Tucker Show 关于翟东升的一段演讲视频，他在视频中亲口承认华盛顿政界精英层与中共有深度勾兑[1]。
+mRNA纳米颗粒（活性成分）会被PEG包被。此外，疫苗还包含具有生物发光特性的成分mNeonGreen。她想不通为什么会从海洋无脊椎动物中提取这种成分用于疫苗？而最令人担忧的是，疫苗可能导致女性不育。
 
+mRNA疫苗主要在诱导对SARS-CoV-2突突蛋白的免疫反应，但是这些突突蛋白（转录为在细胞核醣体中复制）也包含同源形式的《syncytin-1 合胞素基因-1》，这种天然蛋白质《syncytin-1 合胞素基因-1》是由人类内源性逆转录病毒产生的，并负责哺乳动物和人类的胎盘发育。
 
+该蛋白是成功怀孕所必需的，但是在进行中共病毒疫苗接种后，将会致使一个人的免疫细胞去攻击《syncytin-1 合胞素基因-1》因而导致潜在的流产，先天缺陷和不育症。该研究设计未测试诱变或生殖缺陷，但mRNA疫苗的科学证据，表明可能引起女性生殖系统的长期自身免疫破坏。
 
-> [pic.twitter.com/reenwuelHY](https://t.co/reenwuelHY)
-> — Donald J. Trump (@realDonaldTrump) [December 8, 2020](https://twitter.com/realDonaldTrump/status/1336161955845959680?ref_src=twsrc%5Etfw)
+疫苗研究设计在对照中使用假阳性PCR结果来提高疫苗效力，而且疫苗研究设计不能测试疫苗是否能减轻严重的中共病毒症状，包括住院，重症监护病房或死亡；测试的目的也不在于确定疫苗是否可以中断病毒传播。这些测试旨在查看疫苗是起到预防作用还是治疗作用，但使用不可靠的测试会导致制造欺诈性的评估指标。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08201805/vaccine3.png)
+即使疫苗是有效的预防措施，如果也有造成伤害的危险，对健康，未受感染的人接种疫苗是没有意义的，因为有更好的预防和治疗策略，可以在需要时减少实际症状，来防止并发症和死亡。
 
+而研究设计最糟糕的部分是它基于对SARS-CoV-2（冠状病毒）欺诈性的诊断。医生警告说：“ RT-qPCR测试结果中的高循环阈值或Ct值已被广泛认为会导致假阳性。“疫苗制造商正在对照组中使用伪造的中共病毒假阳性诊断，以使疫苗看起来更有效。但由于“高循环PCR测试”已被裁定为97％的假阳性，因此辉瑞/ BioNTech研究收集的这些评估指标，可能最终表明该疫苗的有效性不足3％，有可能引起严重而持久的健康影响，包括不限于：女性不育。
 
-[图片地址](https://twitter.com/i/status/1336161955845959680)
-路德社评论如下：
+辉瑞公司前首席科学官Yeadon博士表示：辉瑞的中共病毒疫苗以及目前正在进行III期试验的其他中共病毒疫苗为：预期会诱导针对SARS-CoV-2突突蛋白的体液抗体的形成。Syncytin-1（请参阅Gallaher，B.，“对nCoV2019对内源性逆转录病毒的反应” – http://virological.org/t/response-to-ncov2019-against-backdrop-of-endogenous-retroviruses/396），它是人类内源性逆转录病毒（HERV）的产物，负责哺乳动物和人类胎盘的发育，因此是成功怀孕的必要先决条件，在SARS病毒的突触蛋白中也以同源形式存在。没有迹象表明抗SARS病毒的刺突蛋白的抗体是否也像抗Syncytin-1抗体一样起作用。然而，如果是这种情况，那么这也将防止胎盘的形成，这将导致接种疫苗的妇女基本上变得不育。
 
-1. 中共现在只要有任何动向，战友们都会第一时间进行翻译，然发给美国主流媒体和高层；
-2. 翟东升在视频中说中共在华盛顿上面有人，就是指“深层政府” (Deep state)，他认为这是美国军方、商务部和司法系统的中高级事务官群体，这群人都是精英，对川普感到不屑，他们就是华盛顿真正反川势力，这群势力已经被削弱；
-3. 中共官员亲口承认他们对美国高层进行“蓝金黄”，该视频现在在全美疯传，这为川普总统接下来的大行动做铺垫，美国选举系统、公务员体制以及美国沼泽地都将被改革；
-4. 文贵先生早在 2017 年就警告说美国体制有问题，已经被中共深度“蓝金黄”；
-5. 川普总统过去四年执政遇到美国 Deep State 的强烈拦阻，这并非是川普总统的领导能力有问题，他在商界的巨大成功足以证明其拥有出色领导力。
+本文仅代表作者个人观点
 
+资料来源 https://humansarefree.com/2020/12/mrna-vaccines-could-cause-female-infertility.html https://humansarefree.com/2020/12/breaking-ex-pfizer-chief-science-officer-covid-19-vaccine-can-make-females-infertile.html
 
-二、Tucker 总结美国情报总监发言内容
-
-12月7日 Tucker 总结情报总监 Ratcliffe 的文章[2]：
-
-1. 中共国是二战以来对世界范围内民主和自由社会的最大威胁；
-2. 中共国窃取美国的敏感技术以满足习近平的野心；
-3. Tucker 也单独将中共对解放军的基因编辑增强实验拉出来说；
-4. 国家情报总监说很多人为了经济利益、有很多人为了政治目的不愿意将中共国称为头号威胁；
-5. 情报不会撒谎，没有国家像中共国一样有能力、有计划地毁掉美国梦；
-6. Tucker 问，中共国的军队扩张是因为预见到了几年后要跟美国军事冲突吗？Ratcliffe 没有正面回答。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08134711/Lude_20201208_AM-figure1.png)[图片地址](https://twitter.com/i/status/1336281874029707272)
-从这则新闻可以看到：
-
-1. 美国情报总监 Ratcliffe 发言内容现在在美国主流媒体大肆宣传，他就在为川普总统的重磅行动做铺垫；
-2. Ratcliffe 的发言内容就是来自军方情报，这也验证爆料革命的情报信息来源非常准确。
-
-
-三、中共外交部强烈回应美国制裁行动
-
-新华社北京12月8日报导[3]：外交部副部长郑泽光8日召见美国驻华使馆临时代办傅德恩，就美国务院宣称将制裁中国全国人大常委会14位副委员长提出严正抗议。郑泽光指出，美方上述行径严重违反国际关系基本准则，严重干涉中国内政，严重破坏中美关系，蛮横无理，性质恶劣，中方表示强烈愤慨，予以强烈谴责。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08134724/Lude_20201208_AM-figure2.png)[图片地址](http://www.xinhuanet.com/2020-12/08/c_1126837487.htm)
-1. 这验证美国政府此次制裁行动对中共产生巨大打击；
-2. 被制裁的官员级别已上升至副国级领导，接下来的行动将更加重磅，天雷滚滚；
-3. 爆料革命在此提醒中共军方和其他领导不要成为炮灰，否则将面临美国斩首行动；
-4. 只要任何人举报这些被制裁官员的家人信息并且提供证据，都可以获得奖赏，未来所有战友都可以举报这些盗国贼海外资产，美国都会进行高额奖励；
-5. 美国最伟大的就是信仰，正因为他们拥有信仰才决定不和中共勾兑，决定站出来进行改革。
-
-
-四、德州向最高法起诉四个州
-
-BREITBART 新闻网12月7日报导[4]：德州在最高法院就选举规则起诉佐治亚州乔治亚州，密歇根州，宾夕法尼亚州和威斯康星州。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/08134737/Lude_20201208_AM-figure3.png)[图片地址](https://www.breitbart.com/politics/2020/12/07/texas-sues-georgia-michigan-pennsylvania-and-wisconsin-at-supreme-court-election-rules/)
-路德社评论如下：
-
-1. 该诉讼将直接进入最高法进行裁决，起诉这些州违反平等条约；
-2. 川普总统在法律诉讼的策略上采取主动进攻，这优势远大于防守；
-3. 州与州之间的诉讼直接由最高法院进行裁决，被告方以疫情为由采取邮寄选票方式，最终导致大量选票造假，这损害了平等原则，德州铁定能赢下这场官司。
-
-
-川普总统经过多年卧薪尝胆，现在到了冲刺阶段，他将力挽狂澜创造历史。
-
-参考文章：
-
-[1] [https://twitter.com/i/status/1336161955845959680](https://twitter.com/i/status/1336161955845959680)
-
-[2] [https://twitter.com/andy5\_123/status/1336281874029707272](https://twitter.com/andy5_123/status/1336281874029707272)
-
-[3] [http://www.xinhuanet.com/2020-12/08/c\_1126837487.htm](http://www.xinhuanet.com/2020-12/08/c_1126837487.htm)
-
-[4] [https://www.breitbart.com/politics/2020/12/07/texas-sues-georgia-michigan-pennsylvania-and-wisconsin-at-supreme-court-election-rules/](https://www.breitbart.com/politics/2020/12/07/texas-sues-georgia-michigan-pennsylvania-and-wisconsin-at-supreme-court-election-rules/)
-
-文章撰写：【重生】    编辑：【Isaiah4031】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22111053/VOG-Rose-Garden-Team.png)
-1+
+0
