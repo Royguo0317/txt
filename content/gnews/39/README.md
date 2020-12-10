@@ -1,62 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发：乔治亚州参议院就选举舞弊问题发表新声明——挑战拉芬斯伯格与民主党人在选票签名上的交易黑幕
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/633772/)
+## 【军事快讯】提防中共“携手”委内瑞拉，美加强对中共的情报侦察
+` HAIKUOTIANKONG` [轉載自GNews](https://gnews.org/zh-hans/633784/)
 
-翻译：康州盘古农场 – Bruce
+内军事：鹰(文言) 素材：文朝汗（部落）校对：加文gavin
 
-校对：康州盘古农场 – 烟波浩淼
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09214225/10-1.jpg)
 
-审核：康州盘古农场 -Truemanman
+观察者网12月10日转载“南海战略态势感知”消息，继8日四架美军P-8A进入南海区域高强度警戒后，9日美MQ-4C战略无人机驶入南海继续情报侦察。
 
-乔治亚州参议院就选举舞弊发表新声明——挑战布拉德·拉芬斯伯格与民主党人在选票签名上的交易黑幕。
+P-8A反潜巡逻机于2013开始服役，最大速度达907km/h（巡航速度815km/h），作战半径2222km（最大航程8300km）。凭借配备的AN/APS-154雷达（今年初透露基本正式部署），P-8A可轻松掌握“方圆上万公里以内的所有潜水艇”位置信息，可侦察中共周边海域（勃、黄、东、南海）所有的潜艇动作。
 
-乔治亚州参议院共和党核心小组发表了一份长篇声明，呼吁进行缺席选票签名审计、乔治亚州调查局的调查和更多的参议院听证会。
+P-8A搭载的AGM-84反舰弹（作战范围93-315km）、AGM-84K SLAM对地弹、MK 46型鱼雷（最大射程11km，最大深度457.2米可应对中共任意型号潜艇）、MK 50鱼雷、水雷、深水炸弹等反舰反潜武器可实施定点清除。
 
-来自公民的自由新闻-
+MQ-4C无人机可在17000米高空续航30小时以上，速度达330节（约610km/h），搭载的AN/ZPY-3多功能电子扫描阵列雷达可一次扫描5200平方公里的区域（半径约2932km，可覆盖西至青海、北至黑龙江、内蒙古等多半个大陆区域），并对该区域的微弱雷达讯号探测并分析，同时可将探测情报远程发送至舰艇、战机、陆基及卫星链路。
 
+结合近期郭文贵先生和路德先生的爆料，美国在12月7号至12号解决委内瑞拉问题，而82空降师“风暴即将来临”的消息，更验证了美军正在对委内瑞拉开展军事行动。鉴于中共对委内瑞拉的扶持，及中共勾连委内瑞拉操纵美国大选的人证（马杜罗）将被坐实，美军有必要对中共的各种军事活动进行严密的情报搜集和侦察。
 
+一旦委内瑞拉被“雷霆行动”解决，便可斩获中共干预大选实锤证据，减弱共产国际力量，并对中共“杀鸡儆猴”。外有高压“围剿”，内部会逐渐分崩离析，“树倒猴孙散”，中共倒台指日可待。
 
-> The Georgia Senate Republican Caucus has issued a lengthy statement calling for absentee ballot signature audits, a GBI investigation and more Senate hearings. They vow to repeal [@GaSecofState](https://twitter.com/GaSecofState?ref_src=twsrc%5Etfw)’s compromise settlement agreement with the Democrats on absentee ballot signatures. [https://t.co/KMvDmVsHkf](https://t.co/KMvDmVsHkf)
-> — David Shafer (@DavidShafer) [December 8, 2020](https://twitter.com/DavidShafer/status/1336401725826195465?ref_src=twsrc%5Etfw)
+新闻来源：
+南海战略态势感知：过去24小时，美军4架P-8A进入南海
+[https://mil.huanqiu.com/article/411rhqBV0MR](https://mil.huanqiu.com/article/411rhqBV0MR)
+美海军MQ-4C战略无人侦察机进入南海
+[https://www.guancha.cn/military-affairs/2020\_12\_10\_574088.shtml](https://www.guancha.cn/military-affairs/2020_12_10_574088.shtml)
+P-8A配备新雷达系统，可实现更远探测距离，穿透水面发现物体
+[https://dy.163.com/article/FSRQUTN3051498EH.html](https://dy.163.com/article/FSRQUTN3051498EH.html)
 
-
-
-*大卫·谢弗@戴维·沙弗 12月8日：乔治亚州参议院共和党核心小组发表了一份长篇声明，呼吁进行缺席选票签名审计、乔治亚州调查局调查和更多的参议院听证会。他们发誓要废除 @乔治亚州国务卿 与民主党达成的关于缺席选票签名的妥协协议。*
-
-这是对神秘的国务卿的又一次打击，他继续为该州大规模的选举舞弊辩护。
-
-以下是声明
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09213619/%E5%9B%BE%E7%89%8756.png)
-关于选举的多数派声明：
-
-乔治亚州参议院共和党人已经听到了数百万乔治亚州人的呼声，他们对此表示深切和由衷的担忧，即在2020年11月3日的选举中，国家法律被践踏，我们的选举程序被滥用。我们将解决这个问题。我们州的宪法规定，由于两院缺乏五分之三的多数票，我们不能召开特别会议。作为宪法主义者 我们必须尊重这一点，即使我们能获得召开会议所需的人数，我们的法律也没有提供任何途径，让我们追溯性地改变2020年11月3日的选举结果， 然而，现在有一个比特别会议更快地解决这一问题的途径，目前正在等待美国最高法院的审理。作为大会的上议院，根据我们的立法监督特权：
-
-1.我们呼吁选举委员会让乔治亚州调查局参与调查任何和欺诈有关的活动，包括那些在2020年12月3日参议院委员会听证会上被曝光的活动。
-
-2. 我们坚持要求所有县立即保存2020年11月3日大选的所有数据，以便进行法证审计。我们还呼吁这些县进行签名审计。我们呼吁州选举委员会密切监督和监测。
-
-3. 我们将继续举行公开听证会，直到2021年1月5日，以确保欺诈和不当行为不会玷污下一次选举。
-
-4. 我们为州务卿的呼吁提供全部资金，调查那些试图搬到这里来只为了在我们的第二轮选举中投票的外州居民。
-
-5. 我们呼吁州务卿立即公布2020年11月3日大选所有选民的核实名单，以及2020年10月5日至12月7日乔治亚州所有新登记选民的认证名单。
-
-6. 一旦我们可以根据宪法召开会议，我们将通过立法，以扭转2020年3月签订的同意法令的不利影响。
-
-7. 一旦我们可以根据宪法召开会议，我们将改革我们的选举法，消除任意缺席投票，以确保我们的选举进程。我们将要求有原因的缺席投票必须有照片，我们将通过取缔投递箱来打击收集选票的行为。我們的宪法保障了我們共和国的后代和合法性，这需要我們的勤奋、我们的时间和我們最大的关注。不要被左派的伎俩所迷惑，他们会让你们呆在家里，在2021年1月5日不行使投票权。没有你们，我们无法保护共和国。加入参议院共和党核心小组，以确保我们在第二轮选举中获得一切可能的合法投票。我们的参议员和公共服务专员在2021年1月5日取得压倒性的胜利将发出一个强烈的信息!
-
-原文作者：吉姆·霍夫特 （Jim Hoft）
-
-发布时间2020年12月9日上午7点37分
-
-原文链接：
-
-
-
-> [BREAKING: Georgia Senate Issues New Statement on Election Fraud — Challenge Shady Raffensperger’s Deal with Democrats on Ballot Signatures](https://www.thegatewaypundit.com/2020/12/breaking-georgia-senate-issues-a-new-statement-election-fraud-challenge-shady-raffenspergers-deal-democrats-ballot-signatures/)
-
-
-
-3+
+1+

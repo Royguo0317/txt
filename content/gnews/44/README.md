@@ -1,24 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生1208:第三次世界大战第二篇从美国时间1207晚全面开始
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/633688/)
+## 朱利安尼：有多少民主党与中共间谍有密切关系？
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/633729/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09210905/%E5%B0%81%E9%9D%A2-31.jpg)
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+- 编辑：文顺
+- 素材：Victor Torres
 
-据[2020年12月8号 文贵直播做羊肉丸子和蒸大馒头 第二部分 （约翰叔叔向战友谢罪篇，感谢上天造和秘密翻译组）](https://gtv.org/video/id=5fd0522909267020eb46bf2a)5:35时间点：
 
-**［**战友们，我给你们报告个好消息啊，**昨天的下午据说美国某些机构和大佬们对中共操控美国大选和委内瑞拉、伊朗的合作有了新的证据和新的认识。那么，还有一个做出了一系列的决定，现在此时此刻现在是现在正在行动中，正在、正在行动中啊，今天你们就听好消息吧!先在美国内部干，然后再端这些共匪的窝。］**
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-以及12：00时间点——
+**西班牙2020年12月10日电/西喜社/**——美国的沼泽地到底有多深？一小时前，鲁迪·朱利安尼（Rudy W. Giuliani）发推质问：“除了参议员范斯坦（Feinstein）、埃里克·斯沃尔威尔（Eric Swallwell）和乔·拜登（Joe Biden），还有多少民主党与中共间谍有密切关系？”
 
-兄弟姐妹们，大战即将到来，小赢小输、小赢、中赢都不算赢，最终是灭共，是吧？昨天是一个里程碑的日子，我们的无名的战友，严格是有名的,只是你们不知道而已,做出的巨大贡献，这就是我一直里说的，一定是以共灭共，没有这些伟大的、幕后的、没站在你们前边的战友们，他们的贡献是巨大的，这个是你们无法想象的战友们。这白菜梗有点多了，**昨天我要是不搂住啊，昨天晚上就连夜直播了，得了，今天咱做饭吧。**
 
-以及28：37时间点：
 
-［所以说亲爱的兄弟姐妹们，这就是这场中美综合性的全面大战，这是第三次世界大战正在进行时，这叫预告片，已经是世界大战，这叫预告片，**然后到达了所谓的全面的无接触的全面战争片，就是开始啦，从昨天开始啦，经济、信息、科技当然包括网络啦，贸易、文化、心理战，然后排兵布将，这才进入，从昨天晚上进入第二篇，就全面地开始了，大家心照不宣的战争。**
+> How many Chinese Communists spies have been close to Big Democrats?
+> 
+> Senator Feinstein, Eric Swallwell and Joe Biden. 
+> 
+> How many more?
+> — Rudy W. Giuliani (@RudyGiuliani) [December 10, 2020](https://twitter.com/RudyGiuliani/status/1336828438557102080?ref_src=twsrc%5Etfw)
 
-**到第三部才是你看到这火战，还有在物理上有人消失，也有可能有人被绑架呀，对吧？说不定马斯特罗一会儿就给绑到美国来了，绑马斯特罗干嘛啊，也有可能，把马斯特罗，能证明他跟共产党什么勾结呀，对吧？］ **
+
+
+**推文翻译：**
+
+有多少民主党与中共间谍有密切关系？
+参议员范斯坦、埃里克·斯沃尔威尔和乔·拜登。
+还有多少？
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 2+
