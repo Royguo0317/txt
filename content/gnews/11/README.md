@@ -1,49 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵说｜系列图片连载（七十一）
-` GM98` [轉載自GNews](https://gnews.org/zh-hans/634708/)
+## 20201209晚间路德社新闻总结
+` 东京樱花团-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/634977/)
 
-## 491.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/10040435/502.jpg)
-人生的精彩就在于无常，人生的精彩就有生有死，就有输有赢。
+HTS-01C-202012-024
 
-——郭文贵先生2020年8月12日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/10055830/1234.jpg)
 
-## 492.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/10040455/504.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/10040418/501.jpg)
-行动、行动、行动，没有行动的所有的口号，都是自欺欺人或自欺自己。
+1、美国唯一空降师82空降师已完成战争准备，本周将有雷霆行动，发FB宣告风暴即将到来；
 
-——郭文贵先生2020年8月12日
+2、美国早已宣布委内瑞拉马杜罗政权为非法，根据美国法律及国际法，美国有权抓捕马杜罗；
 
-## 493.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/10040740/503.jpg)
-只想赢不想输你永远赢不了。你怕死你永远不可能是成功者。
+3、习已下令开始销毁机密文件；
 
-——郭文贵先生2020年8月12日
+4、Jason接受班农采访说，他爷爷参加过朝鲜战争，一辈子不许他们提起朝鲜战争，爷爷去世之前他问爷爷为什么，爷爷望着远方脸上挂着泪珠说“那些中国士兵赤手空拳伏击美军，他们还都是孩子”；
 
-## 494.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/10040721/505.jpg)
-没有实力的所有的，所谓的追求，都是骗自己，都是失败、loser具体的体现。
+5、国际锐评、环球时报、全国人大发言人等猛批美国制裁，要么无署名，要么三流角色，但中共高没一个敢出来说话。
 
-——郭文贵先生2020年8月12日
+**原新闻视频链接：**
 
-## 495.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/10040730/011.png)
-做好自己，当你自己不能做的时候，不要老张开嘴让别人怎么做！
 
-——郭文贵先生2020年8月12日
 
-## 496.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/10040758/012.jpg)
-中国的玄学是有道理的，就是整个地球、银河系、宇宙、天地之间的变化，也就是我们说的信仰。
-
-——郭文贵先生 2020年8月15日
-
-## 497.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/10041025/013.jpg)
-我们都是被上天选中的，共产党必亡。
-
-——郭文贵先生 2020年8月15日
-
-0
+4+
