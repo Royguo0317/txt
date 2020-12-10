@@ -1,13 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/8/2020 郭先生直播: 翟东升用视频提供了关键证据, 证明华尔街掌控了美国各届总统直到川普总统出现
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/633699/)
+## 中共迟浩田: “我们必须做好两手准备。如果我们的生化武器在这次突袭中取得成功”
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/633783/)
 
-12月8日郭先生直播（节选）：翟东升用视频提供了关键证据，证明华尔街掌控了美国各届总统直到川普总统出现；我们要让全世界认识这些代表中共给中国人民洗脑的败类，让他们“一夜成名”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09214032/%E6%9C%89%E5%85%B3%E8%BF%9F%E6%B5%A9%E7%94%B0%E7%9A%84%E6%8E%A8%E6%96%87_00.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09214019/%E6%9C%89%E5%85%B3%E8%BF%9F%E6%B5%A9%E7%94%B0%E7%9A%84%E6%8E%A8%E6%96%87_01.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09214006/%E6%9C%89%E5%85%B3%E8%BF%9F%E6%B5%A9%E7%94%B0%E7%9A%84%E6%8E%A8%E6%96%87_02.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09213950/%E6%9C%89%E5%85%B3%E8%BF%9F%E6%B5%A9%E7%94%B0%E7%9A%84%E6%8E%A8%E6%96%87_03.png)
 
 
-
-By: 【秘密翻譯組G-Translators】
-
-0
+4+

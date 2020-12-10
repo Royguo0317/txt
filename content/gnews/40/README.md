@@ -1,10 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共迟浩田: “我们必须做好两手准备。如果我们的生化武器在这次突袭中取得成功”
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/633783/)
+## 【台湾军事】共机扰台被驱离，竟回呛请不要干扰我
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/633909/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09214032/%E6%9C%89%E5%85%B3%E8%BF%9F%E6%B5%A9%E7%94%B0%E7%9A%84%E6%8E%A8%E6%96%87_00.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09214019/%E6%9C%89%E5%85%B3%E8%BF%9F%E6%B5%A9%E7%94%B0%E7%9A%84%E6%8E%A8%E6%96%87_01.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09214006/%E6%9C%89%E5%85%B3%E8%BF%9F%E6%B5%A9%E7%94%B0%E7%9A%84%E6%8E%A8%E6%96%87_02.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09213950/%E6%9C%89%E5%85%B3%E8%BF%9F%E6%B5%A9%E7%94%B0%E7%9A%84%E6%8E%A8%E6%96%87_03.png)
+amitofu
 
+中共军机9日上午11时12分、下午4时2度袭扰进入我西南空域，高度7000及6600公尺，空军在空警戒、并广播驱离；但今天共机不再毫无回应，下午这次广播驱离，共机立刻回应“我是中国人民解放军，正在进行例行训练，请不要干扰我”，这也是10月20日以来，共机首次针对我空军广播回应，本月除8日未记录到驱离广播，共机累计进入我空域8天，本月广播驱离纪录共计22次。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09220309/%E5%9C%96%E7%89%87-1-13.png)
+資料來源[https://news.ltn.com.tw/news/politics/breakingnews/3376313](https://news.ltn.com.tw/news/politics/breakingnews/3376313)
 
-4+
+0
