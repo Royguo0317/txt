@@ -1,41 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 揭秘中共國房價“麵粉比麵包貴”的秘密
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/633109/)
+## 重磅新闻：《反叛媒体》获得文件证明加拿大政府一直在训练中国军队 &#8220;寒冷天气作战&#8221;
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/634248/)
 
-作者：寧缺；編輯：海闊天空；Page：拱卒
-[!\[\]()!\[\](https://spark.adobe.com/page/SMd2NFI1VTqLv/images/ecdc6f84-e594-4b4b-9089-3038298e8a60.jpg?asset_id=f9cfca3e-4081-42db-bb71-21a00cf44d95&amp;img_etag=%224d40ce6fb0f4c34c7fc56350a5149cc0%22&amp;size=1024)](https://spark.adobe.com/page/SMd2NFI1VTqLv/images/ecdc6f84-e594-4b4b-9089-3038298e8a60.jpg?asset_id=f9cfca3e-4081-42db-bb71-21a00cf44d95&amp;img_etag=%224d40ce6fb0f4c34c7fc56350a5149cc0%22&amp;size=1024)
-自從中共國參照香港模式開啟房地產商品化時代起，商品房就成了中共壓榨中國百姓的獨門暗器，位列包括股市、期貨、P2P在內的幾大原漿榨汁機之首。中共國多少家庭耗盡幾代人的積蓄換取了百十平方的水泥鴿子籠。拿日本作比較，彈丸之地人口密度顯然遠遠超越中國，但是除了少數幾個特大城市，日本國民幾乎戶戶住別墅，家家有院子。反觀中國百姓，在號稱960萬平方公里面積的泱泱大國的土地上，所有城市奴隸不分地域統統住在密密麻麻的高層猴山里，成為世界奇觀。
+翻译： 康州盘古农场 – 烟波浩淼
 
-中共作為房地產市場事實上的總操盤手，控制著表面上是民營企業的房地產公司，掌握了房地產開發的所有環節審批，攫取了出賣地價、交易稅費等一系列的豐厚利潤，無所不用其極地採用各種手段半哄半騙地讓全國百姓用幾代人的積蓄把自己送進了猴山鴿子籠。現在就結合具體例子來揭開中共政府推高房地產價格手段的秘密，看看中共是如何耍弄百姓的。最近，證券時報報導一條新聞，報導成都市房地產地價快超過房價，出現麵粉價格快超越麵包價格的奇觀。先看具體內容，再詳細解析：
+校对：康州盘古农场 – Robensenna
 
-[!\[\]()!\[\](https://spark.adobe.com/page/SMd2NFI1VTqLv/images/170dda10-1e34-473e-a0d5-ebbb2a197e81.png?asset_id=54a8ce38-39d1-47a9-9266-4efe499aa872&amp;img_etag=%22072d433e99ac6d345f772e4a4faabff0%22&amp;size=3033)](https://spark.adobe.com/page/SMd2NFI1VTqLv/images/170dda10-1e34-473e-a0d5-ebbb2a197e81.png?asset_id=54a8ce38-39d1-47a9-9266-4efe499aa872&amp;img_etag=%22072d433e99ac6d345f772e4a4faabff0%22&amp;size=1024)
+审核：** **康州盘古农场 – Rose
+![](https://lh3.googleusercontent.com/7kAFQeNJE3kgd0wp0GtOXMR2e-twv-E0jEWBLIX7XuE36QB7NiF5p_c2ektugB7M4S4aUox120zIDMCg_vu3DyHs4gZPyIXrq5xyPfiKKEleC4jZ6SpKWHMSiT4ifT2xuZ9hZebD7f3aWHTiAw)
+《反叛媒体》获得文件，证明加拿大政府一直在加拿大军事院校和基地对中国人民解放军进行 “寒冷天气作战 “的训练。
 
-在行為經濟學裡有錨定價格的概念，用簡單的人話說就是賣家用各種手段讓買家對一種不熟悉的商品估算價格提供一個參照物。舉個例子，有個商家拿出一根十五年的野山參，不了解人參的購買者對十五年野山參的價格完全沒有概念。此時商家拿出同仁堂官方網店十五年野山參的價格，假如是2000元。那麼購買者的心理價位瞬間被2000元錨定，接下來就是圍繞2000元上下與商家討論價格。商家提供的這個2000元就是錨定價格。
+《反叛媒体》在回应信息自由请求时获得了删节版的文件，内容是加拿大在2019年派代表团庆祝解放军海军成立70周年。然而，这些文件没有经过适当的编辑，下面的文字清晰易读。
 
-回到中共國房價的套路。房價突破新高上漲到一定階段以後，民眾對超高的價格心裡沒底，不知道會繼續漲還是會下跌。於是，房地產市場會進入一段時間的觀望期，成交量逐漸下降並趨緩。此時，如果中共政府需要引導價格進一步上漲，引誘新一波百姓高位接盤，就會自編自導地使出上面商家同樣的招術，製造一個幻象價格錨定消費者的價格預期。
+加拿大政府打算隐藏的34页文件的敏感部分没有被遮住，他们只是把它们变成灰色了，他们的错误，反而突出了重要信息
 
-騙術的核心就在於如何製造這個迷幻的價格。以新聞中成都最新的地價為例，地塊的賣家毫無疑問是政府國土部門，因為中共國祇有這個最大的黑社會組織才有資格出賣土地。再來看看買家，仔細分析競拍最為激烈的錦江區二號宗地買家錦江統建，實際背景是成都市錦江區國有資產監督管理局100%控股企業。
+根据秘密文件，美国曾反对加拿大训练人民解放军的决定，但贾斯汀•特鲁多反驳说，那只是 “川普政府 “的决定，其他 “五眼 “联盟国家并未感到不安。
 
-秘密就在於此，賣家買家都是中共政府的，這個價格的產生實際就是中共從自己的左手倒到自己右手上。錢在政府的國資公司賬號到國土帳號流轉了一圈，就完全無成本地得到了一個賬面上的成交價格，最後還是通過中共牢牢控制的走狗媒體傳到每個可憐的老百姓耳朵裡。說到底，中共想讓價格的骰子出幾點就出幾點。
+《反叛媒体》报道，文件显示，他们的政府 “在多伦多的加拿大部队学院以及金斯顿的其他军事设施培训中国指挥官。中国军方学员包括1星和2星级将军以及整个特遣队，他们将学习加拿大寒冷天气的军事战术”。
 
-不明就裡的百姓通過商品房一項成本的地價已經超過房價，可能馬上就會得出房價很快就會上漲的預期，有剛需購房和投資需求的民眾在預期引發的焦慮驅使下立刻主動購房，推動房價上漲自我實現。這就是房價不斷上漲，老百姓不斷高位接棒的遊戲模式。再看一個2007年的房地產舊聞，看看開發商配合政府收割韭菜的醜惡嘴臉，所謂的新聞也不過是民眾看不懂的歷史。
+此外，文件还显示，特鲁多一直派加拿大军队到中国参加宣传展示。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/SMd2NFI1VTqLv/images/a7a10b44-994b-4a5b-8f25-d3587c487cb8.png?asset_id=53f3c2ea-86b1-4d09-9d3e-3c9bcb568678&amp;img_etag=%22ca3fab6028e59a3b2f4527b21b6c9a90%22&amp;size=2708)](https://spark.adobe.com/page/SMd2NFI1VTqLv/images/a7a10b44-994b-4a5b-8f25-d3587c487cb8.png?asset_id=53f3c2ea-86b1-4d09-9d3e-3c9bcb568678&amp;img_etag=%22ca3fab6028e59a3b2f4527b21b6c9a90%22&amp;size=1024)
+《反叛媒体》创始人在解释他们的爆炸性独家新闻的视频中指出，即使在敌对国家绑架了两名加拿大公民迈克尔•科夫里格（Michael Kovrig）和迈克尔•斯帕弗（Michael Spavor）之后，他们的政府仍然选择对中国进行战争训练。
 
-之前捏造的新聞里地價都是高過房價，現在中共吹這個牛的膽量已經沒有了，只敢說地價快超過房價，但目的也是一樣的。還有杭州等二線城市，二手房價格與一手房價格出現倒掛的現象，同樣也是欺騙民眾的玩法之一。
+《反叛媒体》已经在TheChinaFiles.com上向公众公开了这些文件的全文。
 
-現在情況已經發生了翻天覆地的變化，中美之間已經從貿易戰打到金融戰、科技戰，甚至馬上要爆發熱戰。支持中共國房價上漲的根本原動力經濟基本面徹底崩盤，現在高企的房價不過是紙上富貴，變現已經很難了。最高點位的房價和中美最危險的熱戰一同舉起了史詩級的最後一棒，奉勸國內民眾珍惜生命，遠離房地產。
+原文作者：卡桑德拉·费尔班克斯（Cassandra Fairbanks）
 
-【文章僅代表作者觀點】
+发布时间：2020年12月9日下午2:27
 
-[點擊閱讀英國倫敦喜莊園在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+原文链接：
 
-[點擊觀看英國倫敦喜莊園在G-TV的精彩視頻](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+[HUGE: Rebel Media Obtains Documents Proving Canadian Gov Has Been Training Chinese Troops in ‘Cold Weather Warfare’ (thegatewaypundit.com)](https://www.thegatewaypundit.com/2020/12/huge-rebel-media-obtains-documents-proving-canadian-gov-training-chinese-troops-cold-weather-warfare/)
 
-[歡迎加入【英國倫敦喜莊園】Discord官方群](https://discord.gg/U9F97ur)
-
-編輯：【喜馬拉雅戰鷹團】[-點擊spark adobe版](https://spark.adobe.com/page/SMd2NFI1VTqLv/)
-[!\[\]()!\[\](https://spark.adobe.com/page/SMd2NFI1VTqLv/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/SMd2NFI1VTqLv/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

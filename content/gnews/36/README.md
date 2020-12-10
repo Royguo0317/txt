@@ -1,25 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统就中共病毒疫苗签署行政命令
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/632591/)
+## 【军事快讯】提防中共“携手”委内瑞拉，美加强对中共的情报侦察
+` HAIKUOTIANKONG` [轉載自GNews](https://gnews.org/zh-hans/633784/)
 
-- 编辑：文顺
-- 作者：神奇四侠
+内军事：鹰(文言) 素材：文朝汗（部落）校对：加文gavin
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09214225/10-1.jpg)
 
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+观察者网12月10日转载“南海战略态势感知”消息，继8日四架美军P-8A进入南海区域高强度警戒后，9日美MQ-4C战略无人机驶入南海继续情报侦察。
 
-**西班牙2020年12月9日电/西喜社/——**据美国白宫官网8日发布的信息，川普总统已经签属了行政命令，确保每个美国人都可以优先获得免费、安全和有效的COVID-19疫苗。
+P-8A反潜巡逻机于2013开始服役，最大速度达907km/h（巡航速度815km/h），作战半径2222km（最大航程8300km）。凭借配备的AN/APS-154雷达（今年初透露基本正式部署），P-8A可轻松掌握“方圆上万公里以内的所有潜水艇”位置信息，可侦察中共周边海域（勃、黄、东、南海）所有的潜艇动作。
 
-根据文章，国家安全顾问罗伯特·奥斯卡布赖恩就COVID-19疫苗发表讲话，他说：“正是在川普总统的推动下，美国政府、私人企业和国际伙伴之间展开紧密的合作，才能快速而有效的为美国人民提供COVID-19疫苗。”
+P-8A搭载的AGM-84反舰弹（作战范围93-315km）、AGM-84K SLAM对地弹、MK 46型鱼雷（最大射程11km，最大深度457.2米可应对中共任意型号潜艇）、MK 50鱼雷、水雷、深水炸弹等反舰反潜武器可实施定点清除。
 
-文章还公布了川普总统制定的他国使用美国COVID-19疫苗的策略：在所有美国人都注射之后才能给盟友供应。
+MQ-4C无人机可在17000米高空续航30小时以上，速度达330节（约610km/h），搭载的AN/ZPY-3多功能电子扫描阵列雷达可一次扫描5200平方公里的区域（半径约2932km，可覆盖西至青海、北至黑龙江、内蒙古等多半个大陆区域），并对该区域的微弱雷达讯号探测并分析，同时可将探测情报远程发送至舰艇、战机、陆基及卫星链路。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09121714/%E5%8E%9F%E6%96%87.png)
+结合近期郭文贵先生和路德先生的爆料，美国在12月7号至12号解决委内瑞拉问题，而82空降师“风暴即将来临”的消息，更验证了美军正在对委内瑞拉开展军事行动。鉴于中共对委内瑞拉的扶持，及中共勾连委内瑞拉操纵美国大选的人证（马杜罗）将被坐实，美军有必要对中共的各种军事活动进行严密的情报搜集和侦察。
 
-原文链接：[https://www.whitehouse.gov/briefings-statements/statement-national-security-advisor-robert-c-obrien-120820/](https://www.whitehouse.gov/briefings-statements/statement-national-security-advisor-robert-c-obrien-120820/)
+一旦委内瑞拉被“雷霆行动”解决，便可斩获中共干预大选实锤证据，减弱共产国际力量，并对中共“杀鸡儆猴”。外有高压“围剿”，内部会逐渐分崩离析，“树倒猴孙散”，中共倒台指日可待。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+新闻来源：
+南海战略态势感知：过去24小时，美军4架P-8A进入南海
+[https://mil.huanqiu.com/article/411rhqBV0MR](https://mil.huanqiu.com/article/411rhqBV0MR)
+美海军MQ-4C战略无人侦察机进入南海
+[https://www.guancha.cn/military-affairs/2020\_12\_10\_574088.shtml](https://www.guancha.cn/military-affairs/2020_12_10_574088.shtml)
+P-8A配备新雷达系统，可实现更远探测距离，穿透水面发现物体
+[https://dy.163.com/article/FSRQUTN3051498EH.html](https://dy.163.com/article/FSRQUTN3051498EH.html)
 
 1+
