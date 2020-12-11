@@ -1,61 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 密歇根州法官下令对22台多米尼投票机进行司法审计
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/639263/)
+## 出于安全考慮，美國聯邦通訊委員會（FCC）對中國采取強硬態度
+` 凤凰农场三区` [轉載自GNews](https://gnews.org/zh-hans/639336/)
 
-*新闻来源：《门户专家》；作者：吉姆·霍夫特（Jim Hoft）；发布时间：2020年12月5日*
+原文鏈接：
+[https://www.cnet.com/news/fcc-gets-tough-on-china-amid-security-concerns/](http://原文鏈接：%20https://www.cnet.com/news/fcc-gets-tough-on-china-amid-security-concerns/)
 
-*翻译/简评：Dreamer文童；校对：感恩；审核：万人往；Page：拱卒*
+新闻翻译：文小森
 
-![This image has an empty alt attribute; its file name is 8e4162e7-e250-40e2-be90-0bf1bdcc5be4.jpg]()![This image has an empty alt attribute; its file name is 8e4162e7-e250-40e2-be90-0bf1bdcc5be4.jpg](https://spark.adobe.com/page/U6BhWyb53g1iz/images/8e4162e7-e250-40e2-be90-0bf1bdcc5be4.jpg?asset_id=57978ae1-c50e-4a0d-9d8d-ff6904aec5d7&amp;img_etag=%225fc536c93f01b6410fc1d5caab345168%22&amp;size=2560)
+該機構表示，所有獲得美國政府補貼並使用中國電信設備的運營商都必須更換其設備。
 
-**简评：**
+美國聯邦通信委員會（FCC）周四下令各州的寬帶和無線公司從中國制造商（如華爲和中興）撤除所有可能構成國家安全風險的設備。它還確認該機構將華爲指定爲國家安全威脅。該機構開始了撤銷授權中國電信在美國運營的程序。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11102113/image0-57.jpg)
+因爲擔心與中國政府有密切聯系的中國公司經營的設備或服務可能會被用于間諜活動。這些舉措都是美國政府加大力度打擊中國在美國電信所扮演角色的一部分。
 
-密歇根州安特里姆郡一名选举工作人员发现，选举软件计算的选票总数与打印的制表带不一致。随后，密歇根州安特里姆郡一名法官下令对密歇根州22台多尼米投票系统机器进行司法鉴定审计。
+FCC以5-0投票通過了建立應從獲得政府補貼的美國網絡中刪除的設備清單，它還建立了一個向運營商賠償更換有安全威脅的設備費用。 一旦國會分配了在三月份成爲法律的立法裏承諾的16億美元，該計劃便開始實施。
 
-法官之所以下达这样的命令，就是因为川普总统律师团队已经向法官提供充分证据，证明多米尼投票机出现错误计票。为进一步查清事实，找出导致错误计票的根本原因，即多米尼投票机内部软件程序或代码是否存在问题，法官此次命令完全符合法律规定。多米尼投票机干扰美国总统选举的真相即将大白于天下。
+FCC表示移除已識別設備的命令將適用于獲得聯邦補貼的寬帶，電話和無線公司。
 
-**原文翻译：**
+在另一次投票中，該機構還決定撤銷中國電信在美國運營的授權，理由是擔心這家中國擁有的電信運營商將被迫遵守中國政府提出的信息要求。中國電信是中國最大的電信公司，並已被授權在美國提供服務近20年。 FCC還確認將華爲指定爲國家安全威脅。
 
-# **鲁迪·朱利安尼：密歇根州法官下令对22台多米尼投票机进行司法审计**
+川普政府在貿易政策和冠狀病毒處理方面與中國的爭議，這一切都和國家安全和中國有關。國家安全機構已警告使用中國華爲和中興通訊設備的危險。他們還警告不要允許中國電信公司在美國開展業務。國會山的政客們也一直在發出警報。
 
-11月5日，总统选举结束后两天，密歇根州安特里姆郡一名选举工作人员发现，选举软件计算的选票总数与打印的制表带不一致。
+盡管自2019年以來，FCC已禁止運營商使用其每年83億美元的通用服務基金向這兩家中國科技巨頭購買設備，FCC正式在今年六月將華爲和中興列爲國家安全威脅。華爲對該指示提出了上訴，但是FCC周四投票確認了。
 
-![This image has an empty alt attribute; its file name is 6068064c-97cb-4309-9bd0-b2d06acfe7e1.jpg]()![This image has an empty alt attribute; its file name is 6068064c-97cb-4309-9bd0-b2d06acfe7e1.jpg](https://spark.adobe.com/page/U6BhWyb53g1iz/images/6068064c-97cb-4309-9bd0-b2d06acfe7e1.jpg?asset_id=548f2951-6931-44c1-b7dc-da7d72fde6c8&amp;img_etag=%22303261bea9f4e7556291783e60bc0a45%22&amp;size=2560)
+FCC專員共和黨人布倫丹·卡爾（Brendan Carr）在一份聲明中說：“這方面的記錄是很清晰的。” “中國政府打算對我們境內的人員進行監視，以確保政府安全，間諜優勢，知識産權和工商業優勢。”
 
-密歇根州用于计算选票的软件出现错误总数，并从川普总统手中拿走近3000张选票移交给乔·拜登（Joe Biden）。
+小型航母運營商受中國設備限制的影響最大。衆所周知，這些公司將最需要幫助以淘汰和更換這些制造商的設備。
 
-![This image has an empty alt attribute; its file name is d358e39c-4dc4-496b-8b67-e6b01712ae64.jpg]()![This image has an empty alt attribute; its file name is d358e39c-4dc4-496b-8b67-e6b01712ae64.jpg](https://spark.adobe.com/page/U6BhWyb53g1iz/images/d358e39c-4dc4-496b-8b67-e6b01712ae64.jpg?asset_id=c435580b-193b-440e-a212-2984a4f1f354&amp;img_etag=%22f1c7794add453173c8de7650c028b2fc%22&amp;size=3011)
+美國聯邦通信委員會（FCC）估計，已有數十家接受政府補貼的農村運營商使用華爲或中興的設備建立網絡。它說，每家公司將花費4000萬至4500萬美元來更換設備，估計拆除和更換華爲和中興通訊設備的聯邦資金總費用在18億美元左右。
 
-密歇根郡工作人员发现“选举软件”计算的选票总数与打印的制表带不一致！所以这一切正在发生。密歇根州一名选举工作人员发现，选举软件计算的选票总数与打印的制表带不一致。再一次——密歇根州用于计算选票的软件出现错误总数! 哇！WILX报道：安特利姆郡工作人员办公室（Antrim County Clerk Office）发现公布的非官方结果有些不准确…
+川普在三月份簽署一項禁止運營商使用政府資金從華爲和中興購買網絡設備的立法。立法還說，它將提供一筆資金來補償運營商因移除和更換裝備而産生的費用。
 
-现在安特里姆郡一名法官下令对密歇根州22台多尼米投票系统机器进行司法审计。
+因擔心華爲與中國政府的緊密聯系，美國，英國和澳大利亞都禁止華爲爲其無線網絡提供5G技術。華爲已多次否認這一指控。
 
-鲁迪·朱利安尼（Rudy Giuliani）在推特上说：
+由于類似的安全問題，FCC還考慮將供應商中國電信拒之門外。2019年5月，FCC一致投票否決了另一家中國國有電信公司中國移動在美國提供服務。
 
-![This image has an empty alt attribute; its file name is abf1ffa8-5820-47bb-8879-97622557694d.jpg]()![This image has an empty alt attribute; its file name is abf1ffa8-5820-47bb-8879-97622557694d.jpg](https://spark.adobe.com/page/U6BhWyb53g1iz/images/abf1ffa8-5820-47bb-8879-97622557694d.jpg?asset_id=31dc2449-d7c0-4608-b138-9d8e1a27c47f&amp;img_etag=%229778b709f546745f8c88af56dd5e0170%22&amp;size=2560)
+今年4月，美國司法部呼籲FCC撤銷中國電信在美國運營的授權。
 
-诚实的选举大获全胜。密歇根州安特里姆郡一名法官下令对22台多米尼投票机进行司法审计。这就是不可靠的多米尼机器将6000张选票从川普手中翻转到拜登手中的地方。多米尼的选票激增发生在整个州。
+**安全問題**
 
-## **《大纪元》（Epoch Times）报道：**
+中國電信設備制造商和供應商的主要問題是與中國政府的親密關系。國家安全官員擔心設備可能被用來監視其他國家和公司，或者電信供應商可能被迫截取通信並與中國政府共享。
 
-据川普的律师鲁迪·朱利安尼透露，密歇根州安特里姆郡一名法官已经授权对22台多米尼投票系统机器进行司法鉴定审计。
+一個令人擔憂的問題是中國的一項法律，該法律要求公司遵守情報服務的要求，並且不得將其透露給任何第三方，這種情況可能會危害全球的通信網絡。
 
-“诚实的选举大获全胜。”前纽约市市长12月4日在推特上写道。“这就是不可靠的多米尼机器将6000张选票从川普手中翻转到拜登手中的地方。多米尼的选票激增发生在整个州。”
+華爲和其他中國公司早就否認他們的設備或服務可能被用來監視或損害美國安全。
+CNET
 
-目前尚不清楚该命令来自几起选举诉讼中的哪一起。密歇根州四起主要选举诉讼的公开案卷并未出现朱利安尼所描述的命令。朱利安尼没有立即回复要求澄清的电子邮件请求。
-
-朱利安尼提到的多米尼机器翻转选票。
-
-[原文链接](https://www.thegatewaypundit.com/2020/12/rudy-giuliani-michigan-judge-orders-forensic-audit-22-dominion-voting-machines/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】–[点](https://spark.adobe.com/page/sYKLxSlT7mdQa/)[击spark adobe版](https://spark.adobe.com/page/U6BhWyb53g1iz/)
-![This image has an empty alt attribute; its file name is 0693d571-8e19-4ced-93ab-0674d167f712.jpg]()![This image has an empty alt attribute; its file name is 0693d571-8e19-4ced-93ab-0674d167f712.jpg](https://spark.adobe.com/page/U6BhWyb53g1iz/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)
 0

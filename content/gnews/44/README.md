@@ -1,28 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》每日简报早间版 2020.12.10&#8211;NewYork Time
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/638051/)
+## 2020年12月10日郭文贵先生直播摘要
+` GM102` [轉載自GNews](https://gnews.org/zh-hans/638671/)
 
-出品《路德社》 编辑：路德社精选新闻专栏组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11041339/1210-AM-BREF-ZH-scaled.jpg)
-1. 美国将很快将定义中共为跨国犯罪组织 该消息印证了，为什么这两天美国媒体风向大变，先是国家情报总监称中国是二战后美国最大威胁、然后班农先生称中共是全人类的敌人、然后国家安全顾问呼吁结束马杜罗政权、FOX连续爆料翟东升和芳芳。一切都在美国的计划之中。 这个决定不是川普总统决定的，而是来自于美国国家安全委员会的投票决定。
+战友之家摘要组
 
+00:01 好多事情发生，很多事情正在发展中，担心一搂不住，说漏了。时时刻刻，正在此时此刻，几个战场正在全面开始中。此时此刻我们的好多战友还没有吃饭，等他们的信息，他们告诉郭先生，事情在发生前千万千万别说出去。很兴奋，期待，高兴，现在每时每刻经历的是过去十年三十年都不能经历的事情。我们在创造历史。
 
-The America will soon officially define the Chinese Communist Party (the CCP) as a transnational criminal organization. This source of information explains the big changes in the U.S. medias these days. First, Director of National Intelligence (DNI) confirmed China as the No.1 threat to America after the World War II. Next, Mr.Bannon claimed that the CCP is the enemy of all mankind. National Security Advisor called on people to end the Maduro regime. Fox News shocked audience with its bombshell reports on Xijinping’s Think Tank Di Dongsheng and Fang Fang, the Chinese “honey trap spy” having sexes with U.S. mayors and targeting Democratic politicians. All is in the control and plan of the U.S. It is not decided by President Trump but the result of each ballot by the National Security Council.
+09:20为什么美国推出的辉瑞公司的疫苗，绝对是共产党病毒的再一次的次生灾难，这是黑暗势力与共产党势力勾结的结果。大家到时候看了就明白了。灭共这个事情到了分分钟都有可能巨大的变化，这与经济、病毒、美国大选没有关系，有关系但没有绝对的关系。真正影响是国内很多事情的发生，这取决于国内的政治与军事，这才是我们期待的上天给我们的另外的奇迹，就是让国内的战友，以共灭共达到一个新高度。
 
-- 为什么美国定义中共为跨国犯罪组织？ 中共是犯罪组织，这是事实，但一直被掩盖。三年前，郭先生置生死于不顾，开始惊天爆料，通过海航事件、王健之死、香港反送中、病毒真相、拜登硬盘门、大选舞弊等事件和实锤的证据，以无数内部战友和香港同胞的生命，以全世界一百五十万人中毒死亡的代价，以川普胜选被翻盘的荒谬及海量的证据，终于唤醒美国人，让他们不得不承认中共就是跨国犯罪组织，让他们意识到美国和中共是你死我活的关系，没有退路。
+11:20此时此刻的中共南京、杭州、海南、南海正在发生着大事，此时此刻华盛顿、洛杉矶、纽约正在和中共连线状态中。我们在等两件事情，第一个共产党中的袁世凯真正的行动，我们已经等了两三年了，最起码两年了。另外一个等，天上发生点儿事，只要东西拿到，美国大选就尘埃落定了，他们就兑现了。赶快注意香港的港币、股票、外汇。
 
+16:30千万别小看了翟东升，这个是上天送给我们的礼物。据说今天上午11点和下午3点的秘密听证上，翟东升都作为证据之一出现。还有与翟东升打交道的人证明翟东升所说的话都是真的，还提供了他在欧洲布鲁塞尔、里昂、达沃斯（的证据）。这就是为什么说一个星期前这个翟东升会影响整个事情的格局，这是多么重要，天意吧！我们刚刚出来的战友对今天这样的局面有重大的贡献，昨天和今天起到了关键的作用。这就是为什么要真心爱战友，唯真不破，只有真心爱战友，才能在关键的时刻有战友挺身而出。整个中南坑都在全面销毁文件，保密局在全国收缴文件的时候，有最重要的文件，战友冒着生命危险，抛家舍业，与我们合作，这多重要啊！我们的战友太伟大了，特别是女士。这位战友冒死拿到的即将销毁的重要材料，她是一位巾帼。
 
-Why America defines the CCP as a transnational criminal organization? It is a fact that the CCP is a criminal organization which has always been covered up by the CCP. Three years ago, Mr. Miles Kwok risking his life launched the great “Whistle-blower Movement”. It is so glad to see that the “Whistle-blower Movement” eventually woke the Americans up, by providing the hard evidence on Hainan Airlines, the truth of the death of Wang Jian, the largest individual shareholder of Hainan Airlines, Hong Kong protests, the truth of the COVID-19, the Hunter Biden’s Drive, the Election fraud and manipulation, etc. Numerous insiders, fellow-fighters of Miles Kwok has made great contribution and even sacrificed their lives like Hong Kong heroes in their protest for democracy. Now American people finally understand that it is a death or live war between the U.S. and the CCP seeing the facts of more than 1,500,000 death from the CCP virus and the stealing of votes from Trump. There is no way out except for fighting.
+22:00翟东升以为了解美国，459高速路圈，司法部FBI情报部门，都是胡扯的事。美国到现在为止真正的权力是民族权力，谈美国就不能不谈种族问题，种族问题就是美国权力的问题。美国的历史就是全人类的一万来个民族和宗教结合的结果，权力的分配和法律的诞生全是因种族而发生的，因种族而决定的。如果你没有与deep state这样的人有同样的财富、经历、信仰，和一样的生活方式和身体，就绝对不可能走进所谓的沼泽地。美国的沼泽地绝对不在华盛顿，沼泽地的人是绝对不上班的。翟东升胡扯八蛋，在美国呆了几天打着共产党的所谓的国家安全委员会战略协会的密干的身份，得到大使馆的背书，见几个美国二三流的三脚猫，连沼泽地在哪儿都不知道，就忽悠了，谈美国货币呢！
 
-3. 这一决定意味着什么？ 这一决定，意味着川普政府已经与美国各大利益集团达成了妥协，一致同意灭共。意味着美国对灭共已经做好了必胜的准备，无论中共如何负隅顽抗也无济于事。意味着中共在海外的所有资产彻底被查封。中共也知道自己作恶多端，罪责难逃，清算的这一天终于要来了。
+25:33美国就两样硬实力，没有了就完蛋了。第一美元货币，第二是航母舰队，国防力量。其它的信仰、法律是国家的基石。共产党是啥呢，就是控制着全国人民的钱袋子和所有的军队、公检法，所以中国人全都是奴隶。今天此时此刻，决定美元命运和美国航空舰队的人，正在酝酿着和我们一起，通过特殊的方式，与我们灭共。大家期望共产党一夜之间灭亡是不可能的，那是自欺欺人。共产党还需要一段时间，我们最想做的是通过共产党内部的力量，将那几个坏蛋瓦解，最起码这几个控制十四亿人的家族。把十四亿人推向世界对立面的时候，中国人即将面临战争、饥饿，天灾人祸战争时，让妇女老人小孩免于战火和灾难。任何一场战争，1比30或1比500，即一个士兵的死亡，可能关联着30到500个老百姓的死亡，更重要的事情，中国老百姓没有过过一天好日子，如果那时发生了，医疗、粮食保障没有，社保没有。
 
-What does this decision mean? It means that the Trump Administration has reached to an agreement with the major interest groups in the U.S. on taking down the CCP. It also means that the U.S. is well prepared for it and has inconvincible confidence. The recalcitrant CCP’s struggling is in vain now. All their assets overseas will be seized. The CCP knows clearly that they will eventually pay back for all the evils they have done and it is time now.
+33:20国内战友给郭先生很多建议、想法，郭先生无法一一回复。灭共没你不行，每个人都很重要。动动手指传播爆料革命，千万要有耐心，不是每个人必须听你的。对方怎么反应与你没有关系，这是他的福报。做该做的事，不要问结果。全人类从未发生过的，全人类的命运成为一体，分分钟都有巨大的变化。
 
-文案：《路德社》文编组
-翻译：《路德社》翻译组
-审核校对：玫瑰天空
-上传排版：青葫芦娃&玫瑰天空
+34:40祈福！阿弥陀佛！等着好消息吧。
+
+更多详情请点击：[https://gtv.org/video/id=5fd2c46f09267020eb4a420f](https://gtv.org/video/id=5fd2c46f09267020eb4a420f)
 
 0
