@@ -1,33 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国颁发的中共军工投资禁令在指数公司落地
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/638539/)
+## 《路德社》每日简报早间版 2020.12.10&#8211;NewYork Time
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/638051/)
 
-翻译：康州盘古农场 – CPA Jim
+出品《路德社》 编辑：路德社精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11041339/1210-AM-BREF-ZH-scaled.jpg)
+1. 美国将很快将定义中共为跨国犯罪组织 该消息印证了，为什么这两天美国媒体风向大变，先是国家情报总监称中国是二战后美国最大威胁、然后班农先生称中共是全人类的敌人、然后国家安全顾问呼吁结束马杜罗政权、FOX连续爆料翟东升和芳芳。一切都在美国的计划之中。 这个决定不是川普总统决定的，而是来自于美国国家安全委员会的投票决定。
 
-审核：康州盘古农场-Truemanman
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11075525/960x0.jpg)
-据金融时报2020年12月11日报道，川普颁发的投资中共国军工企业禁令，让全球指数和交易所指数基金（ETF，Exchange-Traded Fund）供应商在节点日期前匆忙决定如何执行该禁令。
 
-11月川普签署了行政命令，禁止美国人交易美国国防部列出的31家中共国军工企业的证券，行政命令将于2021年1月11日生效。
+The America will soon officially define the Chinese Communist Party (the CCP) as a transnational criminal organization. This source of information explains the big changes in the U.S. medias these days. First, Director of National Intelligence (DNI) confirmed China as the No.1 threat to America after the World War II. Next, Mr.Bannon claimed that the CCP is the enemy of all mankind. National Security Advisor called on people to end the Maduro regime. Fox News shocked audience with its bombshell reports on Xijinping’s Think Tank Di Dongsheng and Fang Fang, the Chinese “honey trap spy” having sexes with U.S. mayors and targeting Democratic politicians. All is in the control and plan of the U.S. It is not decided by President Trump but the result of each ballot by the National Security Council.
 
-亚洲的基金公司咨询执行该禁令的法律意见，然而全球多数指数公司直接去和资管经理、客户和其他指数用户协商是否清仓被制裁公司证券的事宜。
+- 为什么美国定义中共为跨国犯罪组织？ 中共是犯罪组织，这是事实，但一直被掩盖。三年前，郭先生置生死于不顾，开始惊天爆料，通过海航事件、王健之死、香港反送中、病毒真相、拜登硬盘门、大选舞弊等事件和实锤的证据，以无数内部战友和香港同胞的生命，以全世界一百五十万人中毒死亡的代价，以川普胜选被翻盘的荒谬及海量的证据，终于唤醒美国人，让他们不得不承认中共就是跨国犯罪组织，让他们意识到美国和中共是你死我活的关系，没有退路。
 
-上周《早晨之星》发表的研究报告反映“禁令在很多指数供应商炸开了花”。香港的一家交易所指数基金研究公司的董事认为禁令留给全球指数和交易所指数供应商的时间不多。
 
-至少四家主要全球性指数供应商已经开始就是否将中共国军工企业从指数里面踢出去征求意见。最新情况是标普道琼斯指数完成意见咨询采取了剔除行动；富时罗素上周五宣布将在12月21日把美国政府点名制裁的公司从一些指数中剔除掉，包括中铁建、中交建和海康威视；MSCI也已经与指数用户完成意见咨询。
+Why America defines the CCP as a transnational criminal organization? It is a fact that the CCP is a criminal organization which has always been covered up by the CCP. Three years ago, Mr. Miles Kwok risking his life launched the great “Whistle-blower Movement”. It is so glad to see that the “Whistle-blower Movement” eventually woke the Americans up, by providing the hard evidence on Hainan Airlines, the truth of the death of Wang Jian, the largest individual shareholder of Hainan Airlines, Hong Kong protests, the truth of the COVID-19, the Hunter Biden’s Drive, the Election fraud and manipulation, etc. Numerous insiders, fellow-fighters of Miles Kwok has made great contribution and even sacrificed their lives like Hong Kong heroes in their protest for democracy. Now American people finally understand that it is a death or live war between the U.S. and the CCP seeing the facts of more than 1,500,000 death from the CCP virus and the stealing of votes from Trump. There is no way out except for fighting.
 
-对于制定了规则在全球不同时间应对制裁的指数公司来说，禁令落地相对容易。例如，富时罗素就制定了政策来执行禁止英国、美国、欧盟的自然人和法人投资特定国家、行业或与被制裁个人关联的公司的一级制裁和二级制裁，将被制裁对象的相关证券从指数中删除。
+3. 这一决定意味着什么？ 这一决定，意味着川普政府已经与美国各大利益集团达成了妥协，一致同意灭共。意味着美国对灭共已经做好了必胜的准备，无论中共如何负隅顽抗也无济于事。意味着中共在海外的所有资产彻底被查封。中共也知道自己作恶多端，罪责难逃，清算的这一天终于要来了。
 
-一家香港的全球资管公司的高管告诉金融时报，事先公告意见咨询内容是必要的，以便资管经理和机构决定自己的立场；事先咨询不是一个是否决定遵守禁令的问题，而是一个业务具体执行上的问题。指数供应商遵守禁令，又要让用户满意；如果用户只是美国人，那肯定直接把被制裁企业剔除了事。
+What does this decision mean? It means that the Trump Administration has reached to an agreement with the major interest groups in the U.S. on taking down the CCP. It also means that the U.S. is well prepared for it and has inconvincible confidence. The recalcitrant CCP’s struggling is in vain now. All their assets overseas will be seized. The CCP knows clearly that they will eventually pay back for all the evils they have done and it is time now.
 
-中移动和中国电信是被制裁企业中市值最大的企业，10月末在MSCI两个指数的权重分别如下：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11075232/%E8%A1%A8.png)
-摩根大通11月17日就已经通知客户将把被制裁企业的债券从指数从剔除，其管理的亚洲信用指数所受影响最大，摩根大通系列新兴市场指数包括16家被制裁企业发行的72只固定信用证券。
-
-译评：从富时罗素、标普等公司应对中共国军工企业投资禁令的行动可以看出，虽然禁令只是禁止美国人投资被制裁企业，但是指数公司和交易所指数基金公司通过意见咨询发现，很多指数用户一旦得知其指数包含美国国防部确定的中共军工企业，都会做出明智选择，抛弃中国共产党的军工企业。非常感谢川普总统颁发的行政命令。Thanks President Trump very much for order of sanctioning military entities of Chinese Communist Party. Take down CCP.
-
-原文链接：[https://on.ft.com/378MEes](https://on.ft.com/378MEes)
+文案：《路德社》文编组
+翻译：《路德社》翻译组
+审核校对：玫瑰天空
+上传排版：青葫芦娃&玫瑰天空
 
 0

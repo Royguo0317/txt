@@ -1,30 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/11/2020 财经快讯: 凯尔·巴斯报告督促美国对中国电信巨头中兴通讯的腐败行为采取行动
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/638464/)
+## 《路德社》精选新闻快讯：帕克斯顿总检察长起诉摇摆州对 2020年选举法进行违宪修改
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/636479/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11071827/Picture15.png)图片来源：[https://www.washingtontimes.com](https://www.washingtontimes.com/)
-1.对冲基金经理凯尔·巴斯（J. Kyle Bass）最近委托撰写的一份报告显示，中国电信巨头中兴通讯曾参与了多宗国际贿赂事件，但迄今为止，它仍然逃脱了美司法部针对其腐败行为的起诉。
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11083123/%E7%BE%8E%E5%9B%BD%E6%9C%80%E9%AB%98%E6%B3%95%E9%99%A2.jpeg)
+德克萨斯州总检察长肯-帕克斯顿12月8日向美国最高法院提起诉讼，控告佐治亚州、密歇根州、宾夕法尼亚州和威斯康星州。这四个州利用COVID-19疫情为由，无视联邦和州的选举法，在最后时刻非法颁布修改，从而歪曲了2020年大选的结果。摇摆州各州用非法的选票机和选票掩埋了他们人民的意愿，同时无视关于如何接收、评估和计算选票的法定要求。后续更有17个美国其他州在周三向美国最高法院提交了一份简短的文件，以支持德克萨斯州推翻选举结果的提议。
 
-[https://m.washingtontimes.com/news/2020/dec/9/report-urges-us-action-against-chinese-telecom-gia/](https://m.washingtontimes.com/news/2020/dec/9/report-urges-us-action-against-chinese-telecom-gia/)
+“对我们选举过程完整性的信任是神圣不可侵犯的，它将我们的公民和本联盟的各州联系在一起。佐治亚州、密歇根州、宾夕法尼亚州和威斯康星州破坏了这种信任，损害了2020年选举的安全性和完整性。这些州违反了其正式选举的立法机构颁布的法规，从而违反了宪法。帕克斯顿总检察长说：”这些州无视州和联邦法律，不仅玷污了本国公民投票的完整性，而且玷污了德克萨斯州和其他所有举行合法选举的州的完整性。”。”他们不遵守法治，给整个选举的结果蒙上了一层怀疑的阴影。我们现在要求最高法院出面纠正这个严重的错误。”
 
-2.纽约12月9日，波美兰兹律师事务所 (Pomerantz LLP) 宣布已对阿里巴巴集团控股有限公司及部分管理层提起集体诉讼，该诉讼在纽约南区地方法院提交，备案号为20-cv-10267，诉讼原告由2020年7月20日和2020年11月3日间购买或以其他方式收购了阿里巴巴证券的个人和实体构成，并根据1934年的《证券交易法》和据此颁布的规则10b-5向被告提出索赔。如果您在此期间购买过阿里巴巴股票，您仍可在2021年1月12日之前参与该集体讼诉。
+联邦公职的选举必须符合联邦宪法标准。对于总统选举，各州必须以符合宪法的方式指定其选举团的选举人。选举人条款要求，只有州立法机构才能制定选举人的任命和选举规则，不能委托给地方官员。地方官员匆忙做出的大多数决定，都没有得到州立法机构的批准，从而绕过了宪法。
 
-[https://finance.yahoo.com/news/pomerantz-law-firm-reminds-shareholders-025500262.html?guccounter=1](https://finance.yahoo.com/news/pomerantz-law-firm-reminds-shareholders-025500262.html?guccounter=1)
+中共和其美国的被收买的腐败力量在大选选票欺诈中造假如此明显且大量，他们想轻易糊弄几千万支持川普总统的民众无视美国法律，大摇大摆的把中共代言人拜登送入白宫，美国人不是傻子，德州的这一举动表明了美国人民不会坐视不管任由腐败的官员和法官肆意妄为的破坏本国法制和民主体制。相信美国司法终将让真相大白让腐败的黑暗势力认罪伏法捍卫每个美国人的选票的价值，川普总统也必将顺利进入第二任期。
 
-3.华盛顿12月8日，国会执行委员会主席詹姆斯·麦格文（D-MA）和参议员马可·鲁比奥（R-FL）致信给英特尔和英伟达的首席执行官，要求提供有关出售其高端芯片的更多信息，这些芯片提升了中共国安全部队使用的超级计算机算力，被其用于在新疆维吾尔自治区针对维吾尔人，哈萨克人和其他穆斯林少数民族进行大规模监视和其他侵犯人权的活动。
+[援引原文](https://www.texasattorneygeneral.gov/news/releases/ag-paxton-sues-battleground-states-unconstitutional-changes-2020-election-laws)
 
-[https://www.cecc.gov/media-center/press-releases/chairs-ask-ceos-of-intel-and-nvidia-about-possible-involvement-in-human](https://www.cecc.gov/media-center/press-releases/chairs-ask-ceos-of-intel-and-nvidia-about-possible-involvement-in-human)
+本文作者：查理
 
-4.路透社上海12月11日电， 中美紧张态势继续影响市场，在特朗普政府颁布行政命令后，标普道琼斯指数周四成为第二个将部分中国公司从其指数产品中撤出的指数服务商。
+审核校对：玫瑰天空
 
-[https://www.reuters.com/article/us-usa-china-s-p-dji-idUSKBN28K0DT](https://www.reuters.com/article/us-usa-china-s-p-dji-idUSKBN28K0DT)
-
-5.奥兰加巴德12月10日，印度工会部长丹尼尔（Raosaheb Danve）周三声称，中共国和巴基斯坦是该国农民抗议活动的幕后始作俑者，该抗议寻求废除三项新的农业法。
-
-[https://www.indiatoday.in/india/story/union-minister-danve-claims-pakistan-china-behind-farmers-protest-1748191-2020-12-10](https://www.indiatoday.in/india/story/union-minister-danve-claims-pakistan-china-behind-farmers-protest-1748191-2020-12-10)
-
-【G-Translators-Financial Team – Totoro】
+上传排版：查理
 
 0

@@ -1,28 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》每日简报早间版 2020.12.10&#8211;NewYork Time
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/638051/)
+## 苹果公司被起诉案件曝光，对大科技公司的打击马上就到（12月10日路德时评路博艾冠胡谈）
+` GM06` [轉載自GNews](https://gnews.org/zh-hans/638735/)
 
-出品《路德社》 编辑：路德社精选新闻专栏组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11041339/1210-AM-BREF-ZH-scaled.jpg)
-1. 美国将很快将定义中共为跨国犯罪组织 该消息印证了，为什么这两天美国媒体风向大变，先是国家情报总监称中国是二战后美国最大威胁、然后班农先生称中共是全人类的敌人、然后国家安全顾问呼吁结束马杜罗政权、FOX连续爆料翟东升和芳芳。一切都在美国的计划之中。 这个决定不是川普总统决定的，而是来自于美国国家安全委员会的投票决定。
+編輯：文寶Porsche 上官云伊 校对：文寶Porsche
 
 
-The America will soon officially define the Chinese Communist Party (the CCP) as a transnational criminal organization. This source of information explains the big changes in the U.S. medias these days. First, Director of National Intelligence (DNI) confirmed China as the No.1 threat to America after the World War II. Next, Mr.Bannon claimed that the CCP is the enemy of all mankind. National Security Advisor called on people to end the Maduro regime. Fox News shocked audience with its bombshell reports on Xijinping’s Think Tank Di Dongsheng and Fang Fang, the Chinese “honey trap spy” having sexes with U.S. mayors and targeting Democratic politicians. All is in the control and plan of the U.S. It is not decided by President Trump but the result of each ballot by the National Security Council.
 
-- 为什么美国定义中共为跨国犯罪组织？ 中共是犯罪组织，这是事实，但一直被掩盖。三年前，郭先生置生死于不顾，开始惊天爆料，通过海航事件、王健之死、香港反送中、病毒真相、拜登硬盘门、大选舞弊等事件和实锤的证据，以无数内部战友和香港同胞的生命，以全世界一百五十万人中毒死亡的代价，以川普胜选被翻盘的荒谬及海量的证据，终于唤醒美国人，让他们不得不承认中共就是跨国犯罪组织，让他们意识到美国和中共是你死我活的关系，没有退路。
+**越南裔前雇员TrieuPham起诉苹果公司法庭文件被曝光**
 
+该雇员为2014年入职的苹果公司应用程序审核员，因坚持苹果公司公开的审核规则、而违背了公司管理层的意思，被苹果公司于2019年3月18日除名。他起诉苹果公司无正当理由通知其离职，给他造成了收入损失、无经济来源、专业性受损、难找工作、精神压抑、倍感屈辱等伤害，要求赔偿。
 
-Why America defines the CCP as a transnational criminal organization? It is a fact that the CCP is a criminal organization which has always been covered up by the CCP. Three years ago, Mr. Miles Kwok risking his life launched the great “Whistle-blower Movement”. It is so glad to see that the “Whistle-blower Movement” eventually woke the Americans up, by providing the hard evidence on Hainan Airlines, the truth of the death of Wang Jian, the largest individual shareholder of Hainan Airlines, Hong Kong protests, the truth of the COVID-19, the Hunter Biden’s Drive, the Election fraud and manipulation, etc. Numerous insiders, fellow-fighters of Miles Kwok has made great contribution and even sacrificed their lives like Hong Kong heroes in their protest for democracy. Now American people finally understand that it is a death or live war between the U.S. and the CCP seeing the facts of more than 1,500,000 death from the CCP virus and the stealing of votes from Trump. There is no way out except for fighting.
+**苹果公司开除越南裔雇员的真正原因**
 
-3. 这一决定意味着什么？ 这一决定，意味着川普政府已经与美国各大利益集团达成了妥协，一致同意灭共。意味着美国对灭共已经做好了必胜的准备，无论中共如何负隅顽抗也无济于事。意味着中共在海外的所有资产彻底被查封。中共也知道自己作恶多端，罪责难逃，清算的这一天终于要来了。
+苹果公司屈服于中共的审查制度，制定了一套特殊的非公开的自我审查程序DCP（DocumentCoachingPlan），其目的是从苹果商店中删除他们不赞成的APP，并惩罚反对这套审查制度的员工。
 
-What does this decision mean? It means that the Trump Administration has reached to an agreement with the major interest groups in the U.S. on taking down the CCP. It also means that the U.S. is well prepared for it and has inconvincible confidence. The recalcitrant CCP’s struggling is in vain now. All their assets overseas will be seized. The CCP knows clearly that they will eventually pay back for all the evils they have done and it is time now.
+郭媒体APP上线后，苹果公司受到中共的巨大压力，找到责任人TrieumPham，让他从苹果商店中删除过郭媒体APP。但TrieuPham坚持“郭媒体APP揭露中国政府和中国共产党腐败，里面没有任何暴力和煽动暴力的内容，没有违反任何苹果公司关于应用程序的规则，应根据言论自由予以保留”。两次交涉未果，苹果公司遂解除其合同。
 
-文案：《路德社》文编组
-翻译：《路德社》翻译组
-审核校对：玫瑰天空
-上传排版：青葫芦娃&玫瑰天空
+**苹果公司被起诉文件曝光意味着什么？**
+
+苹果公司违反宪法第一修正案的言论自由，为了利益选择向屈服于中共的审查制度；
+
+苹果公司违反劳动法，基于政治派别立场报复员工；苹果公司违反自己制定的应用程序规则，可任意删除他们不赞成的APP；苹果公司无正当理由，仅凭是否顺从领导意志可决定员工去留，已经蜕变成中共的企业；苹果公司凭借自己强大的实力和律师团队，恃强凌弱，早已失去了良知。该起诉讼，在包含有明显的中共指控的内容的情况下，居然能够在民主党大本营加州的法庭被受理，预示着美国政治大气候真的已经变了。案件详细内容的曝光，更是预示着对大科技公司的打击很快就要到来。
+
+**朱利安尼正式出院！**
+
+朱利安尼今天已经康复出院，他说自己比以往任何时候感觉都好。他今天十一点在乔治亚州关于大选舞弊的听证会上作证。
+
+**金灿荣再次叫嚣几小时打败美国**
+
+他号称中共今天就可以打台湾，几个小时就能摧毁美军在东亚地区所有的军事基地，几分钟就可以让美军雷达、指挥中心等设施失去作用，消灭台湾二十万军队一点问题都没有。实际上，美军在万里之外点点鼠标就能完成战斗，中共连对手一根毛都看不到就被消灭了，墙内的军警特宪千万别被忽悠送了命。
+
+**夺得2****018****年世界杯的法国球星格里兹曼解约华为**
+
+格里兹曼现效力于巴塞罗那，他12月10日通过Instagram账户发表声明“在强烈怀疑华为利用人脸识别软件促成了’维吾尔警报’的开发后，我宣布立即终止与该公司的合作。”格里兹曼2017年4月成为华为全球品牌大使，并代言了P10手机等系列产品。
 
 0
