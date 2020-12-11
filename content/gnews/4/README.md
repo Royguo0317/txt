@@ -1,42 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 警惕！有人开始故意混淆中共和中国人！
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/639251/)
+## 澳大利亚中共病毒疫苗接种试验惊现艾滋病毒假阳性
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/639266/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11104011/IMG_9049.jpg)
-**作者：引力波**
-
-近日，有社交媒体大V开始带风向，把矛头指向所有在美国的华人。这位推特上拥有6万粉丝的推主@shipwwreckedcrew今天的这条推非常具有煽动性，他写道：
-
-每个居住在美国的中国人都是得到中共的允许才来到美国的，他们中的每个人都是McMaster的文章中提到的法律（即中华人民共和国情报法）必须遵守的对象。这就意味着根据中国法律，他们全部“合法地”有义务成为中共和军队的情报资产。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11101455/IMG_9047.jpg)
+- 编辑：Victor Torres、文顺
 
 
-不仅如此，当博博士在他的推下回复道：为了证明你是错，我要告诉你，我1999年因为憎恨中共领导这个国家而离开中国，去他的中共法律。
+***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-而@shipwwreckedcrew回复道：你是怎么离开的？你难道不是得到了中共的允许才获得了美国的绿卡？你怎么能呆在美国21年？你还是中共国公民吗？
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11101444/34f34010-4a7e-4b66-b2c8-19d02168b5f8.jpg)
-在他的另一篇长文中，他毫不掩饰自己的种族歧视倾向：The Chinese use sex as a tactic to gain intelligence.  It is not frowned upon.  The paramount consideration is assistance to the Party and the State — by whatever means necessary.（中国人会毫不犹豫地以性为手段来获取情报。他们会通过一切必要手段为党和国家提供帮助。）[原文点此查看](https://redstate.com/shipwreckedcrew/2020/12/09/all-chinese-nationals-in-the-us-are-intelligence-assets-of-chinese-government-sleeping-with-politicians-is-just-at-tactic-n291719)
+**西班牙2020年12月11日电/西喜社/**——据《ZeroHedge》周五消息，在几名参与者测试出现艾滋病毒假阳性后，澳大利亚政府取消了中共病毒疫苗的进一步开发。该疫苗是由昆士兰大学开发的，而澳大利亚生物技术公司CSL Limited已与之签订5100万剂合同。该疫苗原定于2021年中期推出，第二期和第三期临床试验将于12月开始。
 
-他的这种言论代表着一种危险的思潮，就是在反共的名义下开始歧视所有中国人甚至是华裔。
+澳大利亚总理斯科特·莫里森（Scott Morrison）周五宣布，“昆士兰大学的疫苗根据科学建议将无法进行研究，并且将不再作为澳大利亚疫苗计划的一部分，” 我们今天作出的决定应给澳大利亚人很大的保证，即我们正在谨慎进行，我们正在迅速采取行动，但不要在这里草率行事。”
 
-这位大V在推中提到的法律是指【中华人民共和国情报法】第七条：任何组织和公民都应当依法支持、协助和配合国家情报工作，保守所知悉的国家情报工作秘密。
+该疫苗是澳大利亚政府担保的四种疫苗之一，澳大利亚政府现在将重点转向阿斯利康疫苗和辉瑞公司。
 
-这是中共单方面设立的法律，为的是能够以此来要挟任中国人替他卖命。但是就如同港版国安法一样，中共要求全世界人都遵守中共的法律，不允许有任何诋毁“一国两制”的言论，否则就会跨国抓捕。那么我想请问这位大V，我们是否可以默认所有美国人都支持港版国安法呢？
+澳大利亚媒体报道，决定放弃昆士兰大学疫苗的决定是出于担心假阳性结果会使澳大利亚人远离疫苗，尽管患者实际上并未感染该疾病。
 
-中共治下的中国，是一个独裁专制的国家，人民不享有任何法治和民主。中共制定了许许多多的邪恶法律，但这些法律从来没有经得任何中国百姓的同意，因此它们从来都不能代表中国人民的意志。不能因为中共制定了邪恶的法律就认定全美国人都支持他的邪恶，同样的，也不能认定中国百姓都在为中共做邪恶的事情。事实上，在中国以外有接近8000万的华人移民，其中的绝大多数都是勤劳善良，安分守己的人。华人社区在各个国家都是安全平和的代名词。中共一直把海外的华人视为眼中钉肉中刺，因为这些华人正是传递西方普世价值最好的桥梁。正因为如此，中共要不断的渗透华人群体，就跟渗透全世界政坛，全世界媒体一样，中共的目的就是要全世界都默许他们的意识形态。大部分的海外华人因为向往民主自由的普世价值而迁徙到异国他乡，结果发现即使在海外，那些所谓的主流媒体和政客一样在为中共鼓吹。大部分的海外华人因此只能继续保持沉默，或仅仅是有限度的发声，就是因为害怕被西方出卖而被中共迫害。
+**信息来源：**[https://www.zerohedge.com/medical/australia-cancels-covid-vaccine-trial-over-unexpected-false-positives-hiv](https://www.zerohedge.com/medical/australia-cancels-covid-vaccine-trial-over-unexpected-false-positives-hiv)
 
-这位大V质问博博士：你为什么能离开，你又怎么在美国呆了21年。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
 
-我要告诉这位大V的是，中共在改革开放以来华人移民的通路是没有被阻止的，在国外的华人也并没有被全部监控，因为他们并没有这么多的资源。但如果华人胆敢在海外发出正义的声音，那么他就很危险。这位尊敬的博博士作为爆料革命的一员，从在媒体上发声反对中共的统治开始，他就再也不能回到中国，甚至不能去任何一个与中国有引渡条约的第三国，因为中共一定会找到机会让他消失。你在质问这位勇敢的博博士的时候，请蒙心自问一下你有没有冒着生命危险为了正义发声？中共会监控那些他们认为掌握了敏感信息的人，用各种蓝金黄的手段威逼利诱，美国的政坛、司法系统、媒体、好莱坞、华尔街已经被严重渗透腐蚀，难道您能说美国已经没有好人了吗？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
-顺便说一下，Joshua Trevino先生，根据维基百科的信息，您是美国的政治评论员，也是前[乔治·W·布什](https://translate.googleusercontent.com/translate_c?depth=1&amp;hl=zh-CN&amp;prev=search&amp;pto=aue&amp;rurl=translate.google.com&amp;sl=en&amp;sp=nmt4&amp;u=https://en.m.wikipedia.org/wiki/George_W._Bush&amp;usg=ALkJrhi-VQ3nxHduWkeOKqWJ1P1TqMODlQ)政府的演讲作家。2008年的时候您收取了马来西亚政府支付的38万9千美元用以换取大量亲马来西亚政府的宣传文章。因此您的言论究竟代表您自己还是您背后的金主是值得怀疑的。
-
-我要再次重申：中共是邪恶的犯罪组织，独裁政权，不是民选政府。中共不能代表中国人。从2017年以来，在郭文贵先生领导的爆料革命中，无数勇敢的中国人冒着生命危险向文明世界提供了中共内部绝密的情报，就是为了能彻底结束中共的统治。
-
-今天，全世界笼罩在中共邪恶的阴影之下，中共和全世界的deep state沆瀣一气。已经不再是国与国的战争，也不是宗教与宗教之间的战争，而是正义与邪恶的战争。
-
-任何故意混淆这一切，把矛头指向全体中国人的企图必须被所有人抵制。
-
-0
+1+

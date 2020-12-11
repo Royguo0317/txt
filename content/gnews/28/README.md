@@ -1,61 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 密歇根州法官下令对22台多米尼投票机进行司法审计
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/639263/)
+## 【阳之战专栏】主义是社会的DNA 二
+` GM107` [轉載自GNews](https://gnews.org/zh-hans/639422/)
 
-*新闻来源：《门户专家》；作者：吉姆·霍夫特（Jim Hoft）；发布时间：2020年12月5日*
+作者：阳之战
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11114123/2221.png)
+引子：“…所以这也是我写这系列文章的根据的基础”。
 
-*翻译/简评：Dreamer文童；校对：感恩；审核：万人往；Page：拱卒*
+生命的逻辑
 
-![This image has an empty alt attribute; its file name is 8e4162e7-e250-40e2-be90-0bf1bdcc5be4.jpg]()![This image has an empty alt attribute; its file name is 8e4162e7-e250-40e2-be90-0bf1bdcc5be4.jpg](https://spark.adobe.com/page/U6BhWyb53g1iz/images/8e4162e7-e250-40e2-be90-0bf1bdcc5be4.jpg?asset_id=57978ae1-c50e-4a0d-9d8d-ff6904aec5d7&amp;img_etag=%225fc536c93f01b6410fc1d5caab345168%22&amp;size=2560)
+人类现有的知识无法理解生命现象的这种复杂性，拿一个细胞来说，它由许多的细胞器组成，被人类称之为“细胞工场”，而这里面的细胞器不是被特意设计制造出来放到细胞中执行某项职能的，但它的这种巧夺天工，这种精密，却是人类用最高的科技也无法设计制造出来的，而细胞中更是有许多对人类目前来说的一些未解之谜，就算我们解开了这些未解之谜，我们能够真正的理解这些不同职能的细胞器组合成了如此复杂的细胞工场的流水线，他们有条不紊的配合，一个步奏一个步奏的工作，且这些并不是被刻意设计出来的，我们应该如何理解呢？如果有上帝，我相信他绝对不是用镊子把这些细胞器一个一个的放进细胞内的，而是先塑造了太阳系，又塑造了地球的环境，然后在地球放入一些因子，这些因子由简单到复杂，最终形成了地球上复杂而又精密的生命。因此我们可以看到地球生命史的这些阶段，由生命的因子到RNA 是一次飞跃打开了生命的大门，RNA生命到 DNA 原核单细胞生命开始了一次飞跃的阶段，原核单细胞到真核单细胞开始了一次飞跃的阶段，真核单细胞到多细胞生命开始了一次飞跃的阶段，多细胞生物到人类开始了一次飞跃的阶段，而人类开始了知识经验的积累及迭代的传递。
 
-**简评：**
+大家可以看到，生命每到了一个新的阶层，就开始了一次的飞跃，我相信这种飞跃用的是一种相同逻辑，我们是否可以从某次的飞跃过程了解这种生命的逻辑呢？而我们对几次的飞跃了解的最清楚的就是最后的这次阶段，它是从胎生开始的，就是哺乳动物，这意味着幼儿可以和母亲有更多接触和交流，因此可以从母亲哪里学到知识经验和生存技能，最终人类将知识和经验和技术的积累通过言传身教以及文字记录的方式进行积累及迭代的传递，我们发现DNA细胞的生命也是这样，只不过它是通过自然选择的方式将具有优势功能DNA片段通过遗传迭代的方式保留了下来，我觉得RNA生命应该也是这样，在最初地球上这些RNA线性分子应该也是非常的多，只不过具有简单复制和遗传功能RNA保存了下来，最终成为了生命的繁衍，还是因为生命自诞生之日起就有了繁衍的能力了呢？但不管怎样现在生命主要要素就是具有繁殖能力，而现在在复杂的生命系统都是由哪些可以繁衍的生命演进而来的。
 
-密歇根州安特里姆郡一名选举工作人员发现，选举软件计算的选票总数与打印的制表带不一致。随后，密歇根州安特里姆郡一名法官下令对密歇根州22台多尼米投票系统机器进行司法鉴定审计。
+但这些形成了的RNA ,和最终形成了可以进行繁衍生命的那些RNA，最初的原因是因为地球上那些最早的因子，就是碱基 核苷等那些简单的分子的功能和性质，它们形了一种稳定有序以及可以系统自运行的化合物，而且还可以进行复制和繁衍变异或者插入其他的RNA小片段可以产生一些改变，而有效有用的小片段则写进了DNA 之中进行了保存，通过迭代遗传的方式留给下一代，生命就是这样由简单到复杂的一点一点演变，而她的非常行之有效的那些改变，则变成生命在演化史中的一次一次飞跃的阶段。
 
-法官之所以下达这样的命令，就是因为川普总统律师团队已经向法官提供充分证据，证明多米尼投票机出现错误计票。为进一步查清事实，找出导致错误计票的根本原因，即多米尼投票机内部软件程序或代码是否存在问题，法官此次命令完全符合法律规定。多米尼投票机干扰美国总统选举的真相即将大白于天下。
+我相信这种最初生成的可以通过捕获外界能量进行的系统自运行的化合物，无论经过了多少次的迭代变得多么复杂，她自运行的基础逻辑没有变。虽然我们可以解刨“细胞工场”却找不到这种自运行系统的成因，但其实“细胞工厂”只是生命自运行系统的非常宏观的现象，我相信这种自组织自运行的系统的逻辑是独一无二的逻辑，它和我们神奇的生物圈生态系统一样，也和我们的社会生态一样，是相同的基础逻辑，他们有着一种共同的特点，就是都是自组织和自行运行的系统。所以虽然我们通过解刨“细胞工场”找不到这种自运行系统的成因的逻辑，但我们是否可以试着通过“社会生态”找到这种逻辑的运行规则呢？毕竟我们每个人都是社会的一个原子，相对于了解我们的社会来说不那么复杂。所以这也是我写这系列文章的逻辑根据的基础。
 
-**原文翻译：**
-
-# **鲁迪·朱利安尼：密歇根州法官下令对22台多米尼投票机进行司法审计**
-
-11月5日，总统选举结束后两天，密歇根州安特里姆郡一名选举工作人员发现，选举软件计算的选票总数与打印的制表带不一致。
-
-![This image has an empty alt attribute; its file name is 6068064c-97cb-4309-9bd0-b2d06acfe7e1.jpg]()![This image has an empty alt attribute; its file name is 6068064c-97cb-4309-9bd0-b2d06acfe7e1.jpg](https://spark.adobe.com/page/U6BhWyb53g1iz/images/6068064c-97cb-4309-9bd0-b2d06acfe7e1.jpg?asset_id=548f2951-6931-44c1-b7dc-da7d72fde6c8&amp;img_etag=%22303261bea9f4e7556291783e60bc0a45%22&amp;size=2560)
-
-密歇根州用于计算选票的软件出现错误总数，并从川普总统手中拿走近3000张选票移交给乔·拜登（Joe Biden）。
-
-![This image has an empty alt attribute; its file name is d358e39c-4dc4-496b-8b67-e6b01712ae64.jpg]()![This image has an empty alt attribute; its file name is d358e39c-4dc4-496b-8b67-e6b01712ae64.jpg](https://spark.adobe.com/page/U6BhWyb53g1iz/images/d358e39c-4dc4-496b-8b67-e6b01712ae64.jpg?asset_id=c435580b-193b-440e-a212-2984a4f1f354&amp;img_etag=%22f1c7794add453173c8de7650c028b2fc%22&amp;size=3011)
-
-密歇根郡工作人员发现“选举软件”计算的选票总数与打印的制表带不一致！所以这一切正在发生。密歇根州一名选举工作人员发现，选举软件计算的选票总数与打印的制表带不一致。再一次——密歇根州用于计算选票的软件出现错误总数! 哇！WILX报道：安特利姆郡工作人员办公室（Antrim County Clerk Office）发现公布的非官方结果有些不准确…
-
-现在安特里姆郡一名法官下令对密歇根州22台多尼米投票系统机器进行司法审计。
-
-鲁迪·朱利安尼（Rudy Giuliani）在推特上说：
-
-![This image has an empty alt attribute; its file name is abf1ffa8-5820-47bb-8879-97622557694d.jpg]()![This image has an empty alt attribute; its file name is abf1ffa8-5820-47bb-8879-97622557694d.jpg](https://spark.adobe.com/page/U6BhWyb53g1iz/images/abf1ffa8-5820-47bb-8879-97622557694d.jpg?asset_id=31dc2449-d7c0-4608-b138-9d8e1a27c47f&amp;img_etag=%229778b709f546745f8c88af56dd5e0170%22&amp;size=2560)
-
-诚实的选举大获全胜。密歇根州安特里姆郡一名法官下令对22台多米尼投票机进行司法审计。这就是不可靠的多米尼机器将6000张选票从川普手中翻转到拜登手中的地方。多米尼的选票激增发生在整个州。
-
-## **《大纪元》（Epoch Times）报道：**
-
-据川普的律师鲁迪·朱利安尼透露，密歇根州安特里姆郡一名法官已经授权对22台多米尼投票系统机器进行司法鉴定审计。
-
-“诚实的选举大获全胜。”前纽约市市长12月4日在推特上写道。“这就是不可靠的多米尼机器将6000张选票从川普手中翻转到拜登手中的地方。多米尼的选票激增发生在整个州。”
-
-目前尚不清楚该命令来自几起选举诉讼中的哪一起。密歇根州四起主要选举诉讼的公开案卷并未出现朱利安尼所描述的命令。朱利安尼没有立即回复要求澄清的电子邮件请求。
-
-朱利安尼提到的多米尼机器翻转选票。
-
-[原文链接](https://www.thegatewaypundit.com/2020/12/rudy-giuliani-michigan-judge-orders-forensic-audit-22-dominion-voting-machines/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】–[点](https://spark.adobe.com/page/sYKLxSlT7mdQa/)[击spark adobe版](https://spark.adobe.com/page/U6BhWyb53g1iz/)
-![This image has an empty alt attribute; its file name is 0693d571-8e19-4ced-93ab-0674d167f712.jpg]()![This image has an empty alt attribute; its file name is 0693d571-8e19-4ced-93ab-0674d167f712.jpg](https://spark.adobe.com/page/U6BhWyb53g1iz/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)
-0
+2+
