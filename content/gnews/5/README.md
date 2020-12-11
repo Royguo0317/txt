@@ -1,28 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 宾州众议院加入德州针对宾州在内的四个州的诉讼
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/637381/)
+## 【新闻快评】非要祸害美国和全世界 中共一定会为此付出巨大代价
+` 公民之聲` [轉載自GNews](https://gnews.org/zh-hans/638887/)
 
-- 编辑：Victor Torres
+内新闻/素材：sam jeep 封面：麦田67号 校对：加文gavin
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11092028/image0-53.jpg)
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+网易新闻转载海拔新观察11日文章称：“美国在涉港问题上连出两招，上演“最后的疯狂”。事实是美国在保护受中共迫害人士，保护香港的希望，与正义同行，保护香港的民主与法治。
 
-**西班牙2020年12月11日电/西喜社/**——德克萨斯州周一向美国最高法院起诉了佐治亚州、密歇根州、宾夕法尼亚州和威斯康星州，对他们的非法选举程序提出异议。
+针对同一天美国对14位中国全国人大官员实施制裁，文章又称：“美最新制裁开创了一个极其恶劣的先例，堪称是特朗普政府对华敌意又一次歇斯底里的展示。”笔者认为，美国此举是要警告中共党内官员们，是弃暗投明还是继续助纣为虐，希望他们有个清醒的认识。如果继续陪中共继续作恶，只会一起陪葬。
 
-今天下午，宾夕法尼亚州众议院也加入了德克萨斯州一方。德克萨斯州诉称这四个州违反了美国宪法，因为它们通过法院或行政措施对投票规则和程序进行了更改。但是这些州并未通过美国宪法中规定的州立法机构进行更改。
+文章中华春莹犀利反问美国称，“如果不能让绝大多数民众相信你是在为国家谋福利，并且能改善他们的生活，你配得上叫做民主自由吗？你配得上叫民主人权吗？”。我们反问中共，你们制毒放毒，有把人民当人吗？你们造成全世界瘟疫大流行，全世界苦不堪言，经济大衰退，你们这是在为人民谋福利吗？你们树立防火墙，审查言论，掩盖打压封锁疫情真相，散布各种谎言，天天歌颂你们的伟光正，你们这叫民主自由吗？人民没有投票权，你们骑在百姓头上作威作福，你们这叫民主人权吗？你们尊重百姓的生命吗？你们就是一群谎话连篇，坏事做尽的恶棍。
 
-此前，川普总统和其他18个州已经加入了德克萨斯州，并且有106名美国众议院共和党人签署了支持德克萨斯州的简短声明。加入德克萨斯州，参与这场诉讼的州和实体的数量持续增长中。
+美国对中共的行动一定会动真格的，一定会联合其他受到中共病毒祸害的国家，让中共对世界负责，让中共为此付出代价，而且一定会让这个祸害全世界的邪恶独裁体制灭亡，这是一定会实现的，中共恶棍们，你们的末日即将来临。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/10210400/PHOTO-2020-12-11-09-05-07.jpg)
+新闻来源： [非要疯狂惹怒中国，别怪我们不客气！中方宣布对美反击，要动真格](https://dy.163.com/article/FTIGRKCL0550HKO5.html)
 
-**参考链接：**[https://www.thegatewaypundit.com/2020/12/breaking-pennsylvanias-house-representatives-joins-texas-suit-pennsylvania-wisconsin-michigan-georgia/](https://www.thegatewaypundit.com/2020/12/breaking-pennsylvanias-house-representatives-joins-texas-suit-pennsylvania-wisconsin-michigan-georgia/)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
-
-1+
+0

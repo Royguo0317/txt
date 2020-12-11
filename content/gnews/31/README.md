@@ -1,37 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共Covid-19试剂盒背后的阴谋
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/637613/)
+## 12/11/2020 财经快讯: 凯尔·巴斯报告督促美国对中国电信巨头中兴通讯的腐败行为采取行动
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/638464/)
 
-11月3日，美联社刊登一篇文章披露了中共国Covid-19试剂盒背后的腐败利益链。报道指出中共国家疾病控制中心早在2020年1月3日就发现了Covid-19病毒基因序列，1月4日，国家疾病控制中心病毒所紧急技术中心完成检测试剂设计。 随后国家疾病控制中心与三家上海的公司签署了“技术转让”协议， 按照知情人士透漏， 这三家上海公司每家支付给国家疾病控制中心100万人民币，以换取Covid-19试剂盒的独家销售权。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11071827/Picture15.png)图片来源：[https://www.washingtontimes.com](https://www.washingtontimes.com/)
+1.对冲基金经理凯尔·巴斯（J. Kyle Bass）最近委托撰写的一份报告显示，中国电信巨头中兴通讯曾参与了多宗国际贿赂事件，但迄今为止，它仍然逃脱了美司法部针对其腐败行为的起诉。
 
-国家疾病控制中心与上海这三家公司合作流程与正常流程不同，而且整个合作过程完全是在保密下进行，并未向外界公开。2013年H7N9的检测试剂的流程是国家疾病控制中心在完成病毒基因序列后，就将测试设计发给中共国所有符合要求的实验室，同时还给各地医院和疾控中心运送了相关的所需成分，以便于各地能够尽可能快地拿出他们自己的测试试剂。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/10234753/image-113.png)
-国家疾病控制中心对于Covid-19试剂盒的不正常授权流程， 根据美联社的报道，媒体界直接的反应是国家疾控中心谋取私利的腐败行为。根据美联社记者的调查，这三家上海公司包括中国医药集团旗下子公司捷诺生物（GeneoDx Biotech）丶上海辉睿生物(Huirui Biotechnology)和上海伯杰医疗科技公司(BioGerm Medical Technology)，都是国家疾病控制中心的关系户。 捷诺公司虽然人数不足百人，但是由于是国药集团下属的全资央企，因此拥有特殊的优势。 上海辉睿和上海伯杰医疗成立时间不长，但是公司的创始人都为原上海疾控中心的员工，因此与疾控中心关系密切。 国家疾病控制中心在试剂盒供应商选择中采取不公开的方式，与这三家签署合作协议。 并且通过发文的方式，要求各地的医院从这三家企业购买Covid-19试剂盒。 作为回报这三家企业每家给国家疾病控制中心100万人民币。
+[https://m.washingtontimes.com/news/2020/dec/9/report-urges-us-action-against-chinese-telecom-gia/](https://m.washingtontimes.com/news/2020/dec/9/report-urges-us-action-against-chinese-telecom-gia/)
 
-***美联社报道中共******Covid-19试剂盒钱权交易***
+2.纽约12月9日，波美兰兹律师事务所 (Pomerantz LLP) 宣布已对阿里巴巴集团控股有限公司及部分管理层提起集体诉讼，该诉讼在纽约南区地方法院提交，备案号为20-cv-10267，诉讼原告由2020年7月20日和2020年11月3日间购买或以其他方式收购了阿里巴巴证券的个人和实体构成，并根据1934年的《证券交易法》和据此颁布的规则10b-5向被告提出索赔。如果您在此期间购买过阿里巴巴股票，您仍可在2021年1月12日之前参与该集体讼诉。
 
-表面上看这是一个典型的钱权交易的腐败事件，但是腐败的背后还隐藏着一个不为人知的阴谋。 中共疾病控制中心早在1月3日就已经获得了 Covid-19的基因序列，但是中共掩盖病毒真相，并未将Covid-19的基因序列公开给全世界，因此中共疾病控制中心采取秘密的方式与三家上海公司签署的covid-19试剂合作转让协议。至于为什么选择这三家， 其中一个非常重要的原因就是这三个公司都是自己人，按照中共的讲法就是政治上靠得住，不会对外泄露COVID-19的基因信息。
+[https://finance.yahoo.com/news/pomerantz-law-firm-reminds-shareholders-025500262.html?guccounter=1](https://finance.yahoo.com/news/pomerantz-law-firm-reminds-shareholders-025500262.html?guccounter=1)
 
-1月11日，上海公共卫生临床医疗中心实验室张永贞团队在没有国家疾病控制中心授权情况下，对外发布了Covid-19病毒基因序列。但是1月12日，张永贞的实验室就以“整改”的名义被中共关闭。 当天国家疾控中心不得不对外公布了Covid-19病毒基因序列。但是根据闫博士和路德时评的分析， 中共在1月12日故意上传了错误的Covid-19病毒基因序列，以误导海外医学界。
+3.华盛顿12月8日，国会执行委员会主席詹姆斯·麦格文（D-MA）和参议员马可·鲁比奥（R-FL）致信给英特尔和英伟达的首席执行官，要求提供有关出售其高端芯片的更多信息，这些芯片提升了中共国安全部队使用的超级计算机算力，被其用于在新疆维吾尔自治区针对维吾尔人，哈萨克人和其他穆斯林少数民族进行大规模监视和其他侵犯人权的活动。
 
-如果按照正常的逻辑思考， 中共发现病毒的基因序列，应该第一时间公布给世界，利用全世界的医学科技力量尽快拿出可能的方案，控制疫情的蔓延。 但是中共却反其道而行之，发现病毒基因序列后，掩藏疫情真相，控制和打压病毒信息传播，甚至故意给外界传递虚假信息。 这更加验证了中共故意隐瞒病毒，并且有意将病毒扩散到其他国家的罪行。 美联社报道Covid-19试剂盒的内容，却只是将其归咎为中共的腐败行为，而忽略了中共故意隐瞒病毒和有意将病毒扩散到世界的罪行，这也是变相给中共洗白的报道方式。
+[https://www.cecc.gov/media-center/press-releases/chairs-ask-ceos-of-intel-and-nvidia-about-possible-involvement-in-human](https://www.cecc.gov/media-center/press-releases/chairs-ask-ceos-of-intel-and-nvidia-about-possible-involvement-in-human)
 
-直到今天，中共从未同意国际社会进入到中共国实地调查病毒来源。中共国公开和秘密地将各种证据损毁，包括彻底拆除了武汉华南海鲜市场等。 对于爆料病毒真相的相关人士持续进行打击。 闫博士因为揭露中共制造病毒，向世界发动生化武器超限战，而被中共追杀陷害，被迫从香港逃亡到美国。同时中共国不断利用科学界被中共腐败的科学家为中共洗地，造谣病毒起源与自然，混淆视听。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/10235118/image-114.png)
-**闫丽梦博士揭露中共隐瞒疫情伪造基因序列**
+4.路透社上海12月11日电， 中美紧张态势继续影响市场，在特朗普政府颁布行政命令后，标普道琼斯指数周四成为第二个将部分中国公司从其指数产品中撤出的指数服务商。
 
-在全世界各国与中共病毒抗争的过程中，都不会忘记追查中共病毒的真相，这是人类最终能否战胜病毒的关键。 中共刻意隐瞒真相，对世界各国采取威胁和收买并举，企图转移世界追查真相的视线，一定不会得逞。 世界各国最终会意识到如果要彻底战胜中共病毒，就必须重新聚焦到追查真相，中共将会成为世界的众矢之的。
+[https://www.reuters.com/article/us-usa-china-s-p-dji-idUSKBN28K0DT](https://www.reuters.com/article/us-usa-china-s-p-dji-idUSKBN28K0DT)
 
-中共利用病毒向世界发动生化武器的超限战，给中国的老百姓带来了巨大的灾难。 1月中旬，武汉疫情爆发前夕，中共国家疾病控制中心发文要求武汉当地医院只能采购制定的上海三家公司的检测试剂盒。但是这三家公司的试剂盒产能有限，造成武汉当地医院每天试剂盒的供应量远远满足不了需求。更为严重的是，这三家生产的试剂盒质量差，检测准确性极低。 大量的病患因为试剂盒准确性差，多次无法准确测试，而导致治疗拖延，最终失去生命。美联社报道，1月31日前，武汉每19感染Covid-19的患者，只有一个被检测出来，其他人都因为未能检测或检测错误被送回家，造成个大范围的传染。中共官方武汉疫情的死亡数据为3869人，但是实际上大量的病患因为试剂盒不足或试剂盒无法检测，最终死在家中。
+5.奥兰加巴德12月10日，印度工会部长丹尼尔（Raosaheb Danve）周三声称，中共国和巴基斯坦是该国农民抗议活动的幕后始作俑者，该抗议寻求废除三项新的农业法。
 
-此时此刻中共病毒仍然在全世界肆虐，病毒也一刻没有在中国消失。请时刻不要忘记追查真相，这是彻底战胜中共病毒的关键。
+[https://www.indiatoday.in/india/story/union-minister-danve-claims-pakistan-china-behind-farmers-protest-1748191-2020-12-10](https://www.indiatoday.in/india/story/union-minister-danve-claims-pakistan-china-behind-farmers-protest-1748191-2020-12-10)
 
-By Randy Young;
+【G-Translators-Financial Team – Totoro】
 
-【本文内容仅代表作者本人观点 】
-
-【参考文献】 ：【[1](https://www.rfa.org/mandarin/yataibaodao/huanjing/hj-12042020141956.html)】【[2](https://m.chinanews.com/wap/detail/zw/sh/2020/01-28/9071697.shtml)】【[3](http://www.nbd.com.cn/articles/2020-01-24/1402660.html)】 【[4](https://apnews.com/article/china-virus-testing-secret-deals-firms-312f4a953e0264a3645219a08c62a0ad)】【[5](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20200229-%E4%B8%8A%E6%B5%B7%E5%AE%9E%E9%AA%8C%E5%AE%A4%E5%8F%91%E8%A1%A8%E5%85%A8%E7%90%83%E9%A6%96%E4%B8%AA%E7%97%85%E6%AF%92%E5%9F%BA%E5%9B%A0%E6%8E%92%E5%BA%8F%E7%BF%8C%E6%97%A5%E7%AA%81%E9%81%AD%E5%BD%93%E5%B1%80%E5%85%B3%E9%97%AD-1)】
-
-4+
+0

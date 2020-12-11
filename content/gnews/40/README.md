@@ -1,25 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】五角大楼可能剥夺中央情报局使用军方力量的权利
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/637511/)
+## 【热点播报】美国FCC已启动撤销中国电信在美提供相关电信服务的程序
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/638291/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07015922/logo-3-1-1.jpg)
+作者：香草山写作组 程万里
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11061246/MOS0704-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E7%BE%8E%E5%9B%BDFCC%E5%B7%B2%E5%90%AF%E5%8A%A8%E6%92%A4%E9%94%80%E4%B8%AD%E5%9B%BD%E7%94%B5%E4%BF%A1%E5%9C%A8%E7%BE%8E%E6%8F%90%E4%BE%9B%E7%9B%B8%E5%85%B3%E7%94%B5%E4%BF%A1%E6%9C%8D%E5%8A%A1%E7%9A%84%E7%A8%8B%E5%BA%8F.png)
+北京时间12月11日墙内新闻消息：美国联邦通信委员会（FCC）当地时间12月10日发布通知称，其已启动了一项程序，以决定是否终止中国电信（美洲）公司在美国提供相关电信服务。FCC下属的国际局、有线竞争局、执行局于今年4月要求中国电信美洲公司阐述为什么FCC不应启动程序撤销该公司的国内和国际第214款授权。12月10日，FCC认定中国电信美洲公司没有对行政部门的关切做出令人满意的回应。
 
-香草山写作组 村北
+美国已经全面的与中共国脱钩，早已不限于经济领域。正如路德社爆料，美国将为把中共定为跨国犯罪组织加紧做准备。
 
-美国多家媒体12月10日报道，五角大楼在重新检评国防部对中央情报局的资助，并可能从明年初撤销其中有关反恐方面的军力支持。五角大楼公开的理由是要将国防部的相关人员转而用于应对来自中俄两国的竞争。该项检评是由川普总统日前任命的，负责情报的代理副国防部长Ezra Cohen-Watnick负责。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/10225819/12111.png)
-过去20年间，五角大楼因支持中央情报局的反恐需要，派出军事力量配合反恐任务。这部分军事力量被配置在中央情报局的特别行动中心，听从中央情报局指挥。自2018年开始，五角大楼将国防战略从反恐转向应对中俄的挑战。这次重新检评对中央情报局的资助，公开的理由是作为该战略调整的一部分。
 
-现在大选舞弊案中川普同拜登争夺正酣。曾有未经官方证实的消息传出，大选日过后，美国军方从中央情报局在德国的中心武力夺取了多米尼因投票系统的服务器。这不禁令人猜想中央情报局是否真的卷入大选舞弊案，而因此被川普总统抽走使用军方力量的权利，以便川普总统牢牢掌握军方，准备下一步清理沼泽的行动。
-
-审核上传：浪迹天涯
 
 更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
 更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07015922/logo-3-1-1.jpg)
-2+
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+4+

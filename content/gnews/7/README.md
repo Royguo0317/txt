@@ -1,28 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “芳芳”们——中共送向全球的“糖衣炮弹”
-` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/638118/)
+## 第二名法官阻止美国商务部对抖音的禁令
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/638763/)
 
-作者：为子孙爱七哥农场写作组 BLACK 5
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11045856/%E7%B3%96%E8%A1%A3%E7%82%AE%E5%BC%B9.jpg)
-曾几何时，“伟大”领袖毛泽东挥笔疾书，警醒中共党员严防资本主义的“糖衣炮弹”。 数十年沧海桑田，中国特色社会主义的制度优势充分显现，中共国“公仆”无数次展示其特殊材质——邪恶、腐败无出其右，对“糖衣”的需求可谓欲壑难填，自产自销，内循环蓬勃发展。手握14亿奴隶、黑金全球化、“建筑艺术项目”，在红色独裁权贵眼中，西方资本主义的“糖衣炮弹”皆是浮云。
+*新闻来源：《布赖特巴特》；作者：LUCAS NOLAN；发布时间：2020年12月8日*
 
-邪魔恶党气吞日月，誓将红旗插遍世界，何惧“上三路”技不如人？没有条件，创造条件也要上，“下三路”功夫早已在国民党身上屡试不爽，中共有信心，也有能力将这一制胜法宝修炼得炉火纯青，实现国内、国外双循环。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11044928/k1yyyyyyyyyyyyyyyyyyyy.jpg)
-于是乎，陈仓暗渡，海外的各个角落，“芳芳”们分外活跃：舟车劳顿的旅途中，邻座频送秋波；相谈甚酣的酒会上，美酒误撒礼服；井井有序的剧场旁，洗手间激战焦灼；死寂沉沉的办公室内，找钥匙的欢乐突如其来……铁打的剧本，流水的主演，政府、司法、立法、情报、金融、科学、媒体、娱乐界的众多精英，你方唱罢，我登场，共赴温柔乡。
+*翻译/简评：Victory；校对：X-Wing飞得更高；审核：万人往；Page：拱卒*
+[!\[\]()!\[\](https://spark.adobe.com/page/sYKLxSlT7mdQa/images/b125cc52-d2e0-49cc-95a5-b91275bb22a4.jpg?asset_id=a039f276-a86b-48ec-a9bb-1e1e9fa6c2d3&amp;img_etag=%22aec651192988a91929aec27f340d97e1%22&amp;size=2560)](https://spark.adobe.com/page/sYKLxSlT7mdQa/images/b125cc52-d2e0-49cc-95a5-b91275bb22a4.jpg?asset_id=a039f276-a86b-48ec-a9bb-1e1e9fa6c2d3&amp;img_etag=%22aec651192988a91929aec27f340d97e1%22&amp;size=1024)
+**简评：**
 
-黄粱未醒，“芳芳”们已是图穷匕见，主演们既然入戏，就请跟着剧本走，因为你卖国欺民的后半生早已写进剧本，回头无岸的灵魂直堕无间地狱。
+中共动用深层沼泽坚决维护的公司，一定是中共超限战的核心武器。抖音是中共用来窃取个人隐私信息的重要工具之一。本次大选我们可以看到美国个人信息被中共利用，制造大量虚假选票，这就是超限战的一部分。
 
-无论是长袖善舞的芳芳，还是唤起老妪少女心的副总理，还是雌雄难辨的“蝴蝶君”，中共一枚枚量身定制的“糖衣炮弹”总能精确打击要害，层层击毁西方文明世界的民主、法治、自由堡垒，美国危矣！全球危矣！
+美国法官试图阻止川普总统以及商务部对抖音的禁令，一旦成功，无异于放虎归山。如此法官对美国国家安全面临的风险没有深刻认识，对于中共的邪恶程度也缺乏了解。我们拭目以待事情的进展。
 
-正如班农先生所说，中共是全世界安全的最大威胁。消灭中共，是所有正义之必需；消灭中共，全世界重获安全；消灭中共，新中国人永不为奴！
+**原文翻译：**
 
-更多精彩内容请关注：
+# 第二名法官阻止商务部对抖音（TikTok）的禁令
 
-- [为子孙爱七哥农场官方推特](https://twitter.com/wzsaqg)
-- [为子孙爱七哥农场官方GTV号](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
-- [欢迎加入农场discord官方群](https://discord.gg/2vXAV6G)
+**第二位法官已经批准了一项初步禁令，阻止美国商务部对中共国拥有的社交媒体平台抖音（TikTok）进行限制，包括一项本应在11月初实施的禁令。**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20123101/%E5%86%9C%E5%9C%BA%E5%B9%BF%E5%91%8Av7-3.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/sYKLxSlT7mdQa/images/ac20864e-72c6-4d9f-b662-59e7516602f1.jpg?asset_id=bb03e3b2-8b62-42d7-8b4f-b3c4b98fc12d&amp;img_etag=%22c42abcdc8058de44dc00f717a0bfb15d%22&amp;size=2560)](https://spark.adobe.com/page/sYKLxSlT7mdQa/images/ac20864e-72c6-4d9f-b662-59e7516602f1.jpg?asset_id=bb03e3b2-8b62-42d7-8b4f-b3c4b98fc12d&amp;img_etag=%22c42abcdc8058de44dc00f717a0bfb15d%22&amp;size=1024)
+
+CNBC报道称，周一晚些时候，第二位法官批准了一项初步禁令，阻止美国商务部对中资视频分享应用抖音实施限制，该应用可能会在美国被禁止。
+
+华盛顿地区法官卡尔·尼科尔斯（Carl Nichols）在抖音母公司字节跳动提起的诉讼中发布了一项命令，此前一个多月，宾夕法尼亚州的法官温迪·贝特尔斯通（Wendy Bettelstrone）在11月12日抖音热门用户提起的诉讼中阻止了同样的限制生效。
+
+抖音的发言人表示，该公司“很高兴法院同意我们的意见，并授予初步禁令”。尼科尔斯去年被川普总统任命为法官，并裁定商务部在发布抖音禁令时“很可能超越”其法律权限，“而且没有考虑明显的替代方案，行事武断、反复无常”。
+
+商务部对法官的裁决发表评论称，将“大力维护”川普总统的行政命令，并表示该命令“完全符合法律，促进了合法的国家安全利益。政府将继续遵守禁令”。
+
+川普政府拒绝给予字节跳动新的延期，川普总统8月的命令要求该公司剥离抖音的美国资产。财政部周五表示，政府“正在与字节跳动接触，完成剥离和其他必要的步骤，以解决国家安全风险。”
+
+美国上诉法院将于12月14日就尼科尔斯法官颁布的应用商店禁令进行听证。
+
+[原文链接](https://www.breitbart.com/tech/2020/12/08/second-judge-blocks-commerce-departments-tiktok-ban/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+breitbart+%28Breitbart+News%29)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】–[点击spark adobe版](https://spark.adobe.com/page/sYKLxSlT7mdQa/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/sYKLxSlT7mdQa/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/sYKLxSlT7mdQa/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
 0

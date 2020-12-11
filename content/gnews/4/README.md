@@ -1,31 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6个州正在要求加入德克萨斯州在最高法院关于大选的诉讼
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/637396/)
+## 美国联邦通信委员基于安全反对中国电信和华为
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/637649/)
 
-- 编辑：文顺、Victor Torres
+- 编辑：Victor Torres
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2020年12月11日电/西喜社/**——一小时前，白宫新闻秘书凯莱·麦肯内尼（Kayleigh McEnany）发推透露，有6个州正在要求加入德克萨斯州在最高法院的案件中作为当事人，以确保选举诚信。
+**西班牙2020年12月11日电/西喜社/**——据《南华早报》11日消息，美国联邦通信委员会（Federal Federal Commission）反对中共国华为技术有限公司（Huawei Technologies Co.）和中国电信（China Telecom），继续执行一系列旨在保护国家安全不受北京政府损害的裁决。
 
-凯莱·麦肯内尼未公布具体州名，提醒关注电视主持人肖恩·汉尼蒂（Sean Hannity）在福克斯新闻频道晚上 9 点的报道。
+该机构以5-0票命令运营商删除华为制造的设备，并开始了一项程序，讨论是否终止中国电信（美国）公司在美国运营的许可。
 
+“我们这样做是有充分理由的，” 美国联邦通信委员会主席阿吉特·派（Ajit Pai）在投票后不久表示。
 
+派说，安全机构认为该公司没有遵守网络安全和隐私法，并为中国政府资助的经济间谍活动和阻断美国通信提供了机会。他补充说，该公司归中国政府所有。
 
-> 6 STATES are now asking to join Texas as parties in the Supreme Court case to ensure Election Integrity. Many more have filed amicus briefs in support!
-> 
-> Coming up on [@seanhannity](https://twitter.com/seanhannity?ref_src=twsrc%5Etfw) with the latest at 9 pm ET!
-> — Kayleigh McEnany (@kayleighmcenany) [December 11, 2020](https://twitter.com/kayleighmcenany/status/1337210025861935104?ref_src=twsrc%5Etfw)
-
-
-
-**凯莱·麦肯内尼**是美国政治评论员、律师和作家，2017年被任命为共和党全国委员会的国家发言人， 2020年4月7日被任命为特朗普政府的白宫新闻秘书。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
-
-1+
+美国联邦通信委员会，国会和唐纳德·川普总统的政府在一系列问题上与中国对峙，包括贸易和中共病毒。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
+2+

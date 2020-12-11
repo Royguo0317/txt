@@ -1,44 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国终于搞明白了蓝金黄
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/638019/)
+## 【Giselle专栏】马杜罗只是一个诱饵
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/638888/)
 
-翻译：Rosabona
+作者：Giselle
 
-编辑：Jenny
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11040211/IMG_4862.jpg)截图自推特
-**“每一个持中共国护照的在美侨民都是中共的情报资源，每一个人都是。”**
+【摘要】今年3月26日，美国司法部以“毒品恐怖主义阴谋”等罪名起诉马杜罗。按照美国的实力，要斩首马杜罗应该是很轻而易举的事情，为什么要留到现在？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11092041/Screen-Shot-2020-12-12-at-12.19.21-am.png)图片来源：RFI
+12月8日，路德社爆料：美国将对委内瑞拉采取军事行动，活捉马杜罗，如果马杜罗承认参与了美国大选舞弊，承认和中共勾兑等一系列罪行，那将会成为史上最大的污点证人，对中共产生致命打击。
 
-以上引述自于本月9号发表在RedState上的一篇名为“所有中国在美侨民都是中共的情报资产，与美政客发生性关系是其策略之一”的文章。
+中共国与委内瑞拉的勾兑由来已久。中共在委内瑞拉有大规模的投资，用石油换美元只是其中之一。据公开信息，中共贷款给委内瑞拉的金额高达500亿美元。委内瑞拉也是最早使用中共设计的多米尼投票作弊系统的国家。据说美国王牌82空降师已经发出了警告，活捉马杜罗绝不是空穴来风。
 
-该文章作者Shipwreckedcrew 表述了他对中国共产党和其掌控下的军队对美国构成为的威胁的担忧。文章开始曝光了美国常任情报委员会会员 艾瑞克 斯万威尔 （Eric Swalswell）掉入中共设下的色情陷阱并沦为中共的情报线人的新闻。
+有意思的是，活捉马杜罗的行动，为什么发生在现在？笔者记得早在今年3月26日，美国司法部就以“毒品恐怖主义阴谋”等罪名起诉马杜罗。
 
-过去几十年里，中共已经通过各种策略对美国进行渗透和破坏行为。 “红色麻雀”指的是中共培养的女性情报人员，其目的是通过引诱西方官员与其发生性关系来对其进行腐蚀并控制的目的； 还有例如“孔子学院”通过“软性手段”和“以教学为理由的方式”对美国校园进行间谍活动。
+毒品恐怖主义，是很严重的罪行了，完全够得上斩首级别。按照美国的实力，要斩首马杜罗，应该是很轻而易举的事情，为什么当时没有做，而要留到现在？
 
-中共在2014年和2017年均发表声明说所有中国的企业和公民，无论其身处何地，都必须配合中共在世界各地进行情报收集活动。这是由中共颁布的《中国国家情报法》所规定的。
+联想起川普总统在2108年发起贸易战，颁布外国干预美国大选制裁行政令等一系列动作，基本上可以确定，当时不抓捕马杜罗，应该还是为了配合川普总统在2018年布下的棋局，就等着马杜罗、中共、美国黑暗沼泽三方勾结，颠覆美国国家政权，做实他们的罪行，来个排干沼泽地。由此可见，马杜罗很有可能只是一个诱饵，钓鱼的正是我们伟大的川普总统。
 
-文章称**“**Every Chinese national citizen residing in the United States on some kind of visa is a Chinese government intelligence asset — EVERY SINGLE ONE.”每一个持中共国护照的在美侨民都是中共的情报资源-每一个人都是。”
+(文章内容仅代表作者观点)
 
-中国学生，学术界人士以及其他居住在美国的人必须定期拜访中国领事馆，领事馆官员会见该领事馆，作为获准留在美国的一部分。他们被期待收集情报并在面试中报告所学知识。留在中国的亲人是制约他们的原因。
-
-评论：这篇文章可以看作美国彻底领悟了我们爆料革命提到的“蓝金黄”。并开始抓特务的标志，看看今天推特上被曝光的中国女子。
-
-
-
-> 车震学英语是共产党小燕子的长项。 [pic.twitter.com/Rs59lNA5pW](https://t.co/Rs59lNA5pW)
-> — 全民挺郭联盟✊️ ✊️ ✊️ (@redwallpusher) [December 11, 2020](https://twitter.com/redwallpusher/status/1337243723525066752?ref_src=twsrc%5Etfw)
-
-
-
-很显然，中共试图将所有中国人都绑在这一艘正在漏水和下沉的共产主义战船上。全球华人！现在是时候真正的行动起来了抵抗中共了，同时帮助西方人彻底的认清中国人与中共的区别！
-
-**原文链接:**
-
-[https://redstate.com/shipwreckedcrew/2020/12/09/all-chinese-nationals-in-the-us-are-intelligence-assets-of-chinese-government-sleeping-with-politicians-is-just-at-tactic-n291719](https://redstate.com/shipwreckedcrew/2020/12/09/all-chinese-nationals-in-the-us-are-intelligence-assets-of-chinese-government-sleeping-with-politicians-is-just-at-tactic-n291719)
-
-澳喜文章[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
-
-欢迎加入澳喜农场：[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13172650/IMG_3537-1.jpg)
 0
