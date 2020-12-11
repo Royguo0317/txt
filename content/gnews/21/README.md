@@ -1,24 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 克鲁兹：去他的中共党员
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/639002/)
+## 法国足球明星克里兹曼即刻终止与华为的合同
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/639472/)
 
-- 编辑：Victor Torres、文顺
+**编译：仰望中央公园**
 
+« 有理由相信华为参与了开发一个人脸识别软件：维吾尔人警报，因此我宣布即刻终止我与华为的合作 »。法国足球明星，巴塞罗拉俱乐部前锋克里兹曼通过这个声明，抗议华为参与了中国政府对维吾尔的迫害。
 
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+出生于1991年的克里兹曼是法国世界级的球星，喜欢他的人称他为“小王子”。他自2017年出任华为品牌的形象大使。
 
-**西班牙2020年12月11日电/西喜社/**——周四，参议员特德·克鲁兹（R-TX）发表了一条针对众议员埃里克·斯沃威尔的推文，直呼“去他的中共党员” 。
+克里兹曼呼吁华为“不要一味地否认对它的指控，而是要尽快采取实际行动谴责对维吾尔人的大规模镇压”，“华为要充分利用它的影响力为尊重人权做贡献”。
 
-后者曾指责川普总统为俄罗斯特工。但现在，其与中国共产党女间谍如此“亲密”，以至于联邦调查局感到不得不干预。
+这番给华为的喊话是理性的，而且充满善意。但是我们的“小王子”可能还没有搞清楚华为的真面目：华为本身就是共产党，就是解放军。他们没有信仰，是一切恶的源头。这样的喊话能打动他们吗？
 
-克鲁兹在推特上写道：“我不止一次说过，去他的中共党员！我几乎不知道斯沃威尔是否在听。”
+据“华盛顿邮报”报道，一份关于华为的内部报告表示，华为参与了一个人脸识别软件的测试。这个软件是华为与旷世科技公司联合开发的，可以通过人脸识别年龄、性别和种族，发现维吾尔人就会发出警报。当华盛顿邮报和撰写这份内部报告的调查公司联系华为和旷世公司之后，华为很快就在它的网站上删除了有关这个人脸识别软件的资料。
 
-**参考链接：**[https://www.dailywire.com/news/cruz-ive-said-screw-the-chinese-communists-little-did-i-know-how-closely-swalwell-was-listening?%3Futm\_source=twitter&utm\_medium=social&utm\_campaign=dwtwitter](https://www.dailywire.com/news/cruz-ive-said-screw-the-chinese-communists-little-did-i-know-how-closely-swalwell-was-listening?%3Futm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dwtwitter)
+位于美国的“人权观察”组织在一份报告里确认在新疆有维族人被抓，因为这些人被一个软件发现他们的行为举止可疑。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221440/PHOTO-2020-11-18-22-21-04-1.jpg)
+华为参与镇压新疆维吾尔人的事实，直接导致了克里兹曼球星与华为分手。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
-
-0
+1+
