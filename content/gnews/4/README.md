@@ -1,15 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国土安全主席约翰逊福克斯采访指出社交媒体压制真相干预美国大选已构成严重的国家威胁
-` GM101` [轉載自GNews](https://gnews.org/zh-hans/634318/)
+## 6个州正在要求加入德克萨斯州在最高法院关于大选的诉讼
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/637396/)
 
-北京时间12月9号，据美国联邦参议员、国土安全与政府事务委员会主席罗恩‧约翰逊（Ron Johnson接受了美国主流媒体福克斯的采访，约翰逊就亨特接受调查、社交媒体干预大选等事件做出了回应。
+- 编辑：文顺、Victor Torres
 
-约翰逊表示根据麦克劳克林[民意调查](https://mclaughlinonline.com/pols/wp-content/uploads/2020/11/MA-National-Post-Elect-11-4-20-4.pdf)证实拜登的选民中有36％的人从未了解过拜登的故事（拜登家族与中共深入蓝金黄联系），因为故事受到了审查和压制。约翰逊认为真相一旦揭露，36%内将有13％的人不会支持拜登，拜登失去4.6％选票支持后意味着川普总统将赢得选举。
 
-推特等社交媒体此前无理由封停了英雄科学家闫丽梦博士的账号，试图阻止闫博士关于“中共超限生物武器”报告的公开，配合背后势力继续掩盖病毒真相。随后在大选期间封停了包括《纽约邮报》在内的媒体，关于民主党总统候选人乔·拜登犯罪事实的报道。后续更是对川普总统进行审查，至今仍然大量查封川普总统言论。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-约翰逊明确主流媒体（审查言论、查封账号、隐藏真相等）已构成严重的国家威胁，该威胁甚至高过包括中共国在内的境外势力干预。230法案立法初衷为了保护社交言论自由，维护美国自由民主的立国之本，现在成为社交媒体反向破坏美国自由民主体制的保护伞，近期美国各方力量觉醒，230法案废除在即。
+**西班牙2020年12月11日电/西喜社/**——一小时前，白宫新闻秘书凯莱·麦肯内尼（Kayleigh McEnany）发推透露，有6个州正在要求加入德克萨斯州在最高法院的案件中作为当事人，以确保选举诚信。
 
-0
+凯莱·麦肯内尼未公布具体州名，提醒关注电视主持人肖恩·汉尼蒂（Sean Hannity）在福克斯新闻频道晚上 9 点的报道。
+
+
+
+> 6 STATES are now asking to join Texas as parties in the Supreme Court case to ensure Election Integrity. Many more have filed amicus briefs in support!
+> 
+> Coming up on [@seanhannity](https://twitter.com/seanhannity?ref_src=twsrc%5Etfw) with the latest at 9 pm ET!
+> — Kayleigh McEnany (@kayleighmcenany) [December 11, 2020](https://twitter.com/kayleighmcenany/status/1337210025861935104?ref_src=twsrc%5Etfw)
+
+
+
+**凯莱·麦肯内尼**是美国政治评论员、律师和作家，2017年被任命为共和党全国委员会的国家发言人， 2020年4月7日被任命为特朗普政府的白宫新闻秘书。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+
+1+
