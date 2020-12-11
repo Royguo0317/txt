@@ -1,28 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》每日简报早间版 2020.12.10&#8211;NewYork Time
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/638051/)
+## 替亡者控诉中共野蛮计生政策
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/638709/)
 
-出品《路德社》 编辑：路德社精选新闻专栏组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11041339/1210-AM-BREF-ZH-scaled.jpg)
-1. 美国将很快将定义中共为跨国犯罪组织 该消息印证了，为什么这两天美国媒体风向大变，先是国家情报总监称中国是二战后美国最大威胁、然后班农先生称中共是全人类的敌人、然后国家安全顾问呼吁结束马杜罗政权、FOX连续爆料翟东升和芳芳。一切都在美国的计划之中。 这个决定不是川普总统决定的，而是来自于美国国家安全委员会的投票决定。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11085745/RTRDX1C.jpg)Worshippers clean the graves of their ancestors at a cemetery during Chung Yeung festival in Hong Kong October 22, 2004. During the festival, many people visit the graves of family members to perform cleansing rites and pay their respects. REUTERS/Kin Cheung Pictures of the Month October 2004 Pictures of the Year 2004 KC/LA – RTRDX1C
+2020年初，中共病毒爆发之际，我年仅26岁的表弟过世了。他并没有感染中共病毒，而是死于器官衰竭。他这一生，是悲惨、无奈且短暂的一生，是千千万万被中共计划生育政策迫害而毁了一生的国人中的一个。**据估算，中共计划生育政策总共强制堕胎4亿婴孩。 **
 
+我们家世代生活在中国中部的农村地区，表弟是我舅舅的大儿子。当年舅妈怀孕时，因为和舅舅还没有领取结婚登记证，被当地计划生育办公室的人盯上了，舅舅和舅妈在东躲西藏中度过了一段艰难的时光。无奈之下，只好私底下找人帮我舅妈把孩子提前生下来，**我们当地管这种生孩子的方法叫做把孩子“揉”下来，不足月的弟弟就这样从妈妈的肚子里揉了下来，开始了他悲惨的一生。**弟弟的大脑发育正常，能听得懂大家的谈话内容，但始终无法开口说话，双手的肌肉僵硬无知觉，双腿发育不良，无法正常行走，只能终日躺在床上用双脚做一些简单的动作，比如用双脚控制电视遥控器等。
 
-The America will soon officially define the Chinese Communist Party (the CCP) as a transnational criminal organization. This source of information explains the big changes in the U.S. medias these days. First, Director of National Intelligence (DNI) confirmed China as the No.1 threat to America after the World War II. Next, Mr.Bannon claimed that the CCP is the enemy of all mankind. National Security Advisor called on people to end the Maduro regime. Fox News shocked audience with its bombshell reports on Xijinping’s Think Tank Di Dongsheng and Fang Fang, the Chinese “honey trap spy” having sexes with U.S. mayors and targeting Democratic politicians. All is in the control and plan of the U.S. It is not decided by President Trump but the result of each ballot by the National Security Council.
+舅舅和舅妈为了生计，长年在外地务工，表弟成了留守儿童，由我的外公和外婆抚养。外公外婆是中国社会最底层的农民，拥有最淳朴善良的心，本着尊重生命的天性，外公外婆从未想过放弃这个天生“残疾”的弟弟，二十六年如一日的抚养他长大，但直到去世，我的表弟个子也只有1米4高，体重仅有50斤。
 
-- 为什么美国定义中共为跨国犯罪组织？ 中共是犯罪组织，这是事实，但一直被掩盖。三年前，郭先生置生死于不顾，开始惊天爆料，通过海航事件、王健之死、香港反送中、病毒真相、拜登硬盘门、大选舞弊等事件和实锤的证据，以无数内部战友和香港同胞的生命，以全世界一百五十万人中毒死亡的代价，以川普胜选被翻盘的荒谬及海量的证据，终于唤醒美国人，让他们不得不承认中共就是跨国犯罪组织，让他们意识到美国和中共是你死我活的关系，没有退路。
+在2020年初中共病毒爆发之际，刚刚迈入26岁的弟弟也走向了他生命的尽头。舅舅通知我弟弟快不行了，由于疫情爆发，我没能见到弟弟的最后一面，当我见到他时，他已经变成了一把骨灰。送他下葬的那天，我摸着骨灰盒，心在滴血，我在心里告诉他：**弟弟，你的一生是悲惨的，你现在终于解脱了，我知道罪魁祸首就是中共，我已经加入了爆料革命，我这一生都会和中共斗到底，哪怕豁出性命，你一定要在天上等着我的好消息！ **
 
-
-Why America defines the CCP as a transnational criminal organization? It is a fact that the CCP is a criminal organization which has always been covered up by the CCP. Three years ago, Mr. Miles Kwok risking his life launched the great “Whistle-blower Movement”. It is so glad to see that the “Whistle-blower Movement” eventually woke the Americans up, by providing the hard evidence on Hainan Airlines, the truth of the death of Wang Jian, the largest individual shareholder of Hainan Airlines, Hong Kong protests, the truth of the COVID-19, the Hunter Biden’s Drive, the Election fraud and manipulation, etc. Numerous insiders, fellow-fighters of Miles Kwok has made great contribution and even sacrificed their lives like Hong Kong heroes in their protest for democracy. Now American people finally understand that it is a death or live war between the U.S. and the CCP seeing the facts of more than 1,500,000 death from the CCP virus and the stealing of votes from Trump. There is no way out except for fighting.
-
-3. 这一决定意味着什么？ 这一决定，意味着川普政府已经与美国各大利益集团达成了妥协，一致同意灭共。意味着美国对灭共已经做好了必胜的准备，无论中共如何负隅顽抗也无济于事。意味着中共在海外的所有资产彻底被查封。中共也知道自己作恶多端，罪责难逃，清算的这一天终于要来了。
-
-What does this decision mean? It means that the Trump Administration has reached to an agreement with the major interest groups in the U.S. on taking down the CCP. It also means that the U.S. is well prepared for it and has inconvincible confidence. The recalcitrant CCP’s struggling is in vain now. All their assets overseas will be seized. The CCP knows clearly that they will eventually pay back for all the evils they have done and it is time now.
-
-文案：《路德社》文编组
-翻译：《路德社》翻译组
-审核校对：玫瑰天空
-上传排版：青葫芦娃&玫瑰天空
+我是首尔喜韩农场的战友，写下这篇文章就是为了替生命过早凋零的弟弟控诉中共，也为所有受到中共邪恶体制迫害的亡者控诉中共。中国共产党就是杀人的魔鬼，是邪恶的化身，愿万神万佛保佑爆料革命，保佑新中国联邦，早日消灭中国共产党，让老百姓早日过上自由安详的生活！
 
 0

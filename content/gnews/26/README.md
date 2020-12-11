@@ -1,30 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯：林伍德支持德克萨斯州
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/638509/)
+## 《路德社》新闻快讯（视频版）–鲍威尔和鲁道布斯福克斯访谈节目：将此次大选定义为「网络珍珠港袭击」
+` 路德社` [轉載自GNews](https://gnews.org/zh-hans/638308/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
+《路德社》出品
 
-2020年12月11日，林·伍德发推：今晚我向美国最高法院提交意见陈述书，以支持德克萨斯州。11月3日在乔治亚州和其他州的大选违反即违宪又违法。让正义得到声张。
+以下是鲍威尔和鲁道布斯福克斯访谈节目视频：
 
-Tonight I filed an amicus brief in US Supreme Court in support of the State of Texas. 11/3 election in GA & other states was unlawful & unconstitutional. Let justice be done.
+Dec.10.2020 Dobbs&Powell
 
+1.Powell律师和Dobbs反覆将此次大选定义为「网络珍珠港袭击」
 
+2.Powell律师挑明有4个具体人物，设计并研发了舞弊系统，能在投票进行时同时进行选票操纵
 
-> Tonight I filed an amicus brief in US Supreme Court in support of the State of Texas.
-> 
-> 11/3 election in GA & other states was unlawful & unconstitutional.
-> 
-> Let justice be done.[https://t.co/6dCz4bybmq](https://t.co/6dCz4bybmq)
-> — Lin Wood (@LLinWood) [December 11, 2020](https://twitter.com/LLinWood/status/1337232391400812548?ref_src=twsrc%5Etfw)
+3.有越来越多的文件，包括Smartmatic和Dominion的实际文件能证明这些人参与了选举舞弊
 
+4.Smartmatic派人前往德州Tarrant投票县，将其结果红转蓝
 
+5.Powell律师还在浏览大量的文件，但已经掌握那4人的通讯
 
-林·伍德大律师通过此举，向联邦最高法院的大法官们展示美国人民追求正义和捍卫法律的决心。督促他们按照美国宪法，根据选中出现的违法事实，进行公正的判决。
+6.中共国在内的一些国家参与了此次「网络珍珠港袭击」
 
-本文作者：Stranger
+7.「请记住，委内瑞拉是深深地受到中共政府（Chinese）影响的
+
+8.Dobbs先生呼吁乔治亚州爱国者必须站出来，看到11月3日的闹剧却相信什么都不做1月5日结果就会有不同那太愚蠢了
+
+9.这关乎对大选系统的信心
+
+10.Powell律师也说，这关乎共和体制是否存续、我们是否还将以美利坚合众国存续下去
+
+11.Powell律师说「这十年的舞弊」
+
+[援引原文](https://parler.com/post/49128b2b665845ecb918c7523fc06682)
+
+翻译：路德社翻译组
+制作：路德社视频组
 审核校对：玫瑰天空
-上传排版：CharlieNZ查理
+上传排版：青葫芦娃
 
-0
+1+

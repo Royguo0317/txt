@@ -1,18 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 替亡者控诉中共野蛮计生政策
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/638709/)
+## 第二名法官阻止美国商务部对抖音的禁令
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/638763/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11085745/RTRDX1C.jpg)Worshippers clean the graves of their ancestors at a cemetery during Chung Yeung festival in Hong Kong October 22, 2004. During the festival, many people visit the graves of family members to perform cleansing rites and pay their respects. REUTERS/Kin Cheung Pictures of the Month October 2004 Pictures of the Year 2004 KC/LA – RTRDX1C
-2020年初，中共病毒爆发之际，我年仅26岁的表弟过世了。他并没有感染中共病毒，而是死于器官衰竭。他这一生，是悲惨、无奈且短暂的一生，是千千万万被中共计划生育政策迫害而毁了一生的国人中的一个。**据估算，中共计划生育政策总共强制堕胎4亿婴孩。 **
+*新闻来源：《布赖特巴特》；作者：LUCAS NOLAN；发布时间：2020年12月8日*
 
-我们家世代生活在中国中部的农村地区，表弟是我舅舅的大儿子。当年舅妈怀孕时，因为和舅舅还没有领取结婚登记证，被当地计划生育办公室的人盯上了，舅舅和舅妈在东躲西藏中度过了一段艰难的时光。无奈之下，只好私底下找人帮我舅妈把孩子提前生下来，**我们当地管这种生孩子的方法叫做把孩子“揉”下来，不足月的弟弟就这样从妈妈的肚子里揉了下来，开始了他悲惨的一生。**弟弟的大脑发育正常，能听得懂大家的谈话内容，但始终无法开口说话，双手的肌肉僵硬无知觉，双腿发育不良，无法正常行走，只能终日躺在床上用双脚做一些简单的动作，比如用双脚控制电视遥控器等。
+*翻译/简评：Victory；校对：X-Wing飞得更高；审核：万人往；Page：拱卒*
+[!\[\]()!\[\](https://spark.adobe.com/page/sYKLxSlT7mdQa/images/b125cc52-d2e0-49cc-95a5-b91275bb22a4.jpg?asset_id=a039f276-a86b-48ec-a9bb-1e1e9fa6c2d3&amp;img_etag=%22aec651192988a91929aec27f340d97e1%22&amp;size=2560)](https://spark.adobe.com/page/sYKLxSlT7mdQa/images/b125cc52-d2e0-49cc-95a5-b91275bb22a4.jpg?asset_id=a039f276-a86b-48ec-a9bb-1e1e9fa6c2d3&amp;img_etag=%22aec651192988a91929aec27f340d97e1%22&amp;size=1024)
+**简评：**
 
-舅舅和舅妈为了生计，长年在外地务工，表弟成了留守儿童，由我的外公和外婆抚养。外公外婆是中国社会最底层的农民，拥有最淳朴善良的心，本着尊重生命的天性，外公外婆从未想过放弃这个天生“残疾”的弟弟，二十六年如一日的抚养他长大，但直到去世，我的表弟个子也只有1米4高，体重仅有50斤。
+中共动用深层沼泽坚决维护的公司，一定是中共超限战的核心武器。抖音是中共用来窃取个人隐私信息的重要工具之一。本次大选我们可以看到美国个人信息被中共利用，制造大量虚假选票，这就是超限战的一部分。
 
-在2020年初中共病毒爆发之际，刚刚迈入26岁的弟弟也走向了他生命的尽头。舅舅通知我弟弟快不行了，由于疫情爆发，我没能见到弟弟的最后一面，当我见到他时，他已经变成了一把骨灰。送他下葬的那天，我摸着骨灰盒，心在滴血，我在心里告诉他：**弟弟，你的一生是悲惨的，你现在终于解脱了，我知道罪魁祸首就是中共，我已经加入了爆料革命，我这一生都会和中共斗到底，哪怕豁出性命，你一定要在天上等着我的好消息！ **
+美国法官试图阻止川普总统以及商务部对抖音的禁令，一旦成功，无异于放虎归山。如此法官对美国国家安全面临的风险没有深刻认识，对于中共的邪恶程度也缺乏了解。我们拭目以待事情的进展。
 
-我是首尔喜韩农场的战友，写下这篇文章就是为了替生命过早凋零的弟弟控诉中共，也为所有受到中共邪恶体制迫害的亡者控诉中共。中国共产党就是杀人的魔鬼，是邪恶的化身，愿万神万佛保佑爆料革命，保佑新中国联邦，早日消灭中国共产党，让老百姓早日过上自由安详的生活！
+**原文翻译：**
+
+# 第二名法官阻止商务部对抖音（TikTok）的禁令
+
+**第二位法官已经批准了一项初步禁令，阻止美国商务部对中共国拥有的社交媒体平台抖音（TikTok）进行限制，包括一项本应在11月初实施的禁令。**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/sYKLxSlT7mdQa/images/ac20864e-72c6-4d9f-b662-59e7516602f1.jpg?asset_id=bb03e3b2-8b62-42d7-8b4f-b3c4b98fc12d&amp;img_etag=%22c42abcdc8058de44dc00f717a0bfb15d%22&amp;size=2560)](https://spark.adobe.com/page/sYKLxSlT7mdQa/images/ac20864e-72c6-4d9f-b662-59e7516602f1.jpg?asset_id=bb03e3b2-8b62-42d7-8b4f-b3c4b98fc12d&amp;img_etag=%22c42abcdc8058de44dc00f717a0bfb15d%22&amp;size=1024)
+
+CNBC报道称，周一晚些时候，第二位法官批准了一项初步禁令，阻止美国商务部对中资视频分享应用抖音实施限制，该应用可能会在美国被禁止。
+
+华盛顿地区法官卡尔·尼科尔斯（Carl Nichols）在抖音母公司字节跳动提起的诉讼中发布了一项命令，此前一个多月，宾夕法尼亚州的法官温迪·贝特尔斯通（Wendy Bettelstrone）在11月12日抖音热门用户提起的诉讼中阻止了同样的限制生效。
+
+抖音的发言人表示，该公司“很高兴法院同意我们的意见，并授予初步禁令”。尼科尔斯去年被川普总统任命为法官，并裁定商务部在发布抖音禁令时“很可能超越”其法律权限，“而且没有考虑明显的替代方案，行事武断、反复无常”。
+
+商务部对法官的裁决发表评论称，将“大力维护”川普总统的行政命令，并表示该命令“完全符合法律，促进了合法的国家安全利益。政府将继续遵守禁令”。
+
+川普政府拒绝给予字节跳动新的延期，川普总统8月的命令要求该公司剥离抖音的美国资产。财政部周五表示，政府“正在与字节跳动接触，完成剥离和其他必要的步骤，以解决国家安全风险。”
+
+美国上诉法院将于12月14日就尼科尔斯法官颁布的应用商店禁令进行听证。
+
+[原文链接](https://www.breitbart.com/tech/2020/12/08/second-judge-blocks-commerce-departments-tiktok-ban/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+breitbart+%28Breitbart+News%29)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】–[点击spark adobe版](https://spark.adobe.com/page/sYKLxSlT7mdQa/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/sYKLxSlT7mdQa/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/sYKLxSlT7mdQa/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0
