@@ -1,21 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/12/01-12/02 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/638963/)
+## 国内快讯 | 中共“改法”引外资，啖以重利时不待
+` 公民之聲` [轉載自GNews](https://gnews.org/zh-hans/639019/)
 
-战友之家图文摘要及多语组
+内新闻/素材：鹰(文言) 校对：加文gavin
 
-[311-312\_English\_1201-1202\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11092318/311-312_English_1201-1202_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11092318/311-312_English_1201-1202_CCP_Virus_Updates.pdf)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11094143/image0-56.jpg)
 
-[311-312\_French\_1201-1202\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11092350/311-312_French_1201-1202_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11092350/311-312_French_1201-1202_CCP_Virus_Updates.pdf)
+澎湃网12月11日转载新华社报道，中共伪国务院为促进《中华人民共和国外商投资法》实施，继续蒙骗外资活血注入，删改之前颁布的与之不符的行政法规。
 
-[311-312\_German\_1201-1202\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11092406/311-312_German_1201-1202_CCP_Virus_Updates_German.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11092406/311-312_German_1201-1202_CCP_Virus_Updates_German.pdf)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11094250/image1-1-16.jpg)
 
-[311-312\_Korean\_1201-1202\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11092334/311-312_Korean_1201-1202_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11092334/311-312_Korean_1201-1202_CCP_Virus_Updates.pdf)
+《中华人民共和国外商投资法》于2019年末由伪国务院颁布，自2020年1月1日起实施，目的是为了缓减少中美脱钩造成的外资大量外逃以及中共经济萎靡困境。但事与愿违，自中美贸易战开打以来，美国政府要求的和自愿撤出的资本越来越多，加剧了中共经济运行压力，再加上习近平在国内大搞“公私合营”，肆意敛夺私营企业资产，国内大量中小企业倒闭或被收编。
 
-[311-312\_Spanish\_1201-1202\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11092419/311-312_Spanish_1201-1202_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11092419/311-312_Spanish_1201-1202_CCP_Virus_Updates.pdf)
+2020年随着CCP病毒全球大爆发，世界经济愈见下滑，大量跨国公司和企业变卖破产，由此引发的外国资本的投入进一步减少，而中共假擀面杖子经济的维系严重依赖外资的盘活，再加上各级地方政府债务高筑，债务偿还压力巨大，中共经济到了崩溃边缘，被逼无奈下继续“画大饼”诱骗境外资金。
 
+11日删改的22条法规形式上是放宽了对外商投资和经营的各种限制，如允许外商在境内设立娱乐场所，允许合资设立出版物印刷企业等，但中共向来不信守承诺，加上以假治国、以骗治国、以黑治国，社会生态破败以及信用体系崩溃，放宽法规限制不过是又一次的“文字游戏”，本质依旧是以短期利益骗取外资的本金。
 
+中共现在是垂死挣扎，鉴于CCP病毒真相的披露，中共干预美国大选证据确凿，蓝金黄渗透美国司法、行政等间谍行为曝光，中共即将被列为国际犯罪集团，到那时即便中共许以重利也无法诱使国际资本违反美国及世界意志对其资助；再者，因为中共制造并恶意投放了CCP病毒，杀害全世界百万千万的人民，而今全世界已经认清中共的“种族灭绝”行径，接下来只能对中共灭顶式的打击，更谈不上为其续命了。现今全世界为了生存只能灭共，各国政府为了向本国人民交代只能灭共，为了维护正义和平只能灭共，所以中共，你完了，你彻底完了。
+
+新闻来源： [国务院对与外商投资法不符的行政法规进行清理](https://www.thepaper.cn/newsDetail_forward_10360777)
 
 0

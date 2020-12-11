@@ -1,42 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 提供给FBI的电子邮件显示，亨特·拜登存在税务问题
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/638837/)
+## 更新：18个州支持德州起诉大选违宪，向最高法院控告四个摇摆州选举舞弊
+` 喜马拉雅凤凰农场–旧金山-金喜站` [轉載自GNews](https://gnews.org/zh-hans/637063/)
 
-- 编辑：Victor Torres
+编译：**迷迭香，**凤凰农场旧金山-金喜站 信息来源:CBSDFW.com 见文末备注。
 
+*据来自德州奥斯汀/华盛顿特区(CBSDFW.COM)的消息报道， 目前已有18个州–包括最新加入的亚利桑那州–宣布支持德克萨斯州总检察长，对威斯康星州、密歇根州、宾夕法尼亚州和佐治亚州提起的大选违宪诉讼案。*
 
-***更多真相，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+继德克萨斯州总检察长肯-帕克斯顿 在星期一12月7日直接向最高法院起诉四个州，威斯康星州（Wisconsin）、密歇根州（Michigan）、宾夕法尼亚州（Pennsylvania）和佐治亚（Goergia），指控这些州在2020年选举中有违反宪法的操作，从法律上质疑这四个摇摆州2020年大选的合法性。德州向美国最高法院要求，宣布佐治亚州、密歇根州、宾夕法尼亚州和威斯康星州的选举人票无效。
 
-**西班牙2020年12月11日电/西喜社/**——根据一封电子邮件，川普就任总统前四天，一位商业伙伴警告亨特·拜登，他没有为2014年乌克兰一家天然气公司支付给他的约40万美元纳税，需要提交一份修正的纳税申报表给联邦调查局。
+总检察长帕克斯顿代表德州起诉，称四个’被告州’在2020年大选前对其法律进行了违宪修改。诉讼要求法院下令’被告州’的立法机构置换这些州的 “污点 “选举结果，并选择自己的选举人名单。他说，这些州玷污了德克萨斯州和所有州的投票完整性。
 
-据两位知情人士透露，这封电子邮件最初位于亨特·拜登（Hunter Biden）的笔记本电脑上，据称是在特拉华州的一家修理厂遗留下来的，随后在2019年被移交给了联邦调查局。
+美国其他的州相继响应，加入德州，一起捍卫美国的宪法。该诉讼是周一直接向美国最高法院提出的。以下是截止到12月10日美西时间晚上10点的最新消息。
 
-参议院调查人员也意识到了该电子邮件，并试图追踪其作者，以调查Burisma 控股公司和文件中称为“幻像收入”的其他交易。
+1）川普总统要求参议员克鲁兹论证德州选举诉讼案，最高法院应继续推进。
 
-据信，这特别标记了亨特·拜登从2014年开始从乌克兰天然气公司Burisma获得的收入，当时年轻的拜登在公司面临腐败指控时加入了公司董事会，同时他的父亲乔·拜登接管了美国-乌克兰政策事务 。
+2）周二晚间，最高法院命令各“被告”州在12月10日星期四下午3点前作出答复。
 
-乔·拜登（Joe Biden）的总统过渡办公室星期三透露，特拉华州的总检察长办公室正对亨特·拜登（Hunter Biden）进行刑事调查，以调查他的“税务”。
+3）截至周三（12/9）向高等法院提交的一份“法庭之友”简报（amicus curiae）显示：密苏里州(Missouri)、阿拉巴马州(Alabama)、阿肯色州(Arkansas)、佛罗里达州(Florida)、印第安纳州(Indiana)、堪萨斯州(Kansas)、路易斯安那州(Louisiana)、密西西比州(Mississippi)、蒙大拿州(Montana)、内布拉斯加州(Nebraska)、北达科他州(North Dakoda) 、俄克拉荷马州(Oklahoma)、南卡罗来纳州(South Carolina)、南达科他州(South Dakoda)、田纳西州(Tennessee)、犹他州(Utah)和西弗吉尼亚州(West Virginia)都已经签署了支持德克萨斯州诉讼的状子。最新加入的是亚利桑那州(Arizona)，也於周三早上提交了非当事人意见书，声援州总计达到18个州。
 
-但是两个直接熟悉笔记本电脑内容的人证实，当联邦调查局（FBI）在2019年12月保管其硬盘副本时，什未林和亨特·拜登之间的2017年1月16日的这份电子邮件已在计算机上。
+根据美国律师协会的说法，”‘法庭之友’或法庭之友案情摘要通常在美国最高法院和州最高法院以及中级上诉法院审理的上诉案件中提交。而且有相当多的证据表明，法庭之友案情摘要具有影响力。”
 
-最初，民主党人暗示笔记本电脑是俄罗斯的虚假信息。 然而，此后不久，美国最高情报官员约翰·拉特克利夫（John Ratcliffe）说，没有证据表明这是外国的虚假信息。 联邦调查人员一直将笔记本电脑的内容视为调查税收和洗钱问题的重要路线图。
+“这并不罕见，”SMU宪法法教授戴尔-卡彭特告诉CBS 11电视台。”我不认为这表明了什么非常重要的事情……我认为法院将在周四迅速采取行动。”
 
-国务院官员最近还向参议院财政委员会和国土安全委员会作证，这些委员会一直在调查拜登家族的生意往来，他们认为Burisma公司存在腐败，甚至可能在亨特·拜登任职于董事会期间向乌克兰官员行贿。 拜登（Hunter Biden）说他没有做任何不道德的行为。
+“各州违反了其正式选举的立法机构制定的法规，从而违反了宪法。通过无视州和联邦法律，这些州不仅玷污了自己公民投票的完整性，而且玷污了德克萨斯州和其他每个举行合法选举的州，”帕克斯顿说。”他们不遵守法治，给整个选举的结果蒙上了一层疑云。我们现在要求最高法院出面纠正这个严重的错误。”
 
-曾在基辅美国大使馆担任高级官员的副国务卿乔治·肯特（George Kent）作证说，他和他的同事相信亨特·拜登（Hunter Biden）在Burisma的角色，而他的父亲监督乌克兰政策造成了利益冲突，削弱了美国在乌克兰打击腐败的努力。
+“肯-帕克斯顿要求允许四个州的共和党州议会取代这些州选民的意愿，选择他们自己的选民名单，大概是为了在1月将选举交给唐纳德-特朗普。”卡彭特说。”最高法院是不会允许这种情况发生的。”
 
-委员会的两位主席罗恩·约翰逊（Ron Johnson）和查尔斯·格拉斯利（Charles Grassley），周四晚上对《新闻报》说，他们的调查人员在继续寻找了解亨特·拜登在乌克兰， 俄罗斯，中国和其他外国的业务往来的证人。参议员说：“委员会继续调查与拜登的财务往来有关的事项，并已联络了许多与之有联系的人。”
+更多来自CBSDFW：[https://dfw.cbslocal.com/2020/12/10/18-states-join-texas-general-election-supreme-court-lawsuit-swing-states/](https://dfw.cbslocal.com/2020/12/10/18-states-join-texas-general-election-supreme-court-lawsuit-swing-states/)
 
-参议院调查人员已经发布了一份报告，警告称拜登（Hunter Biden）的外国业务交易为其家人带来了潜在的安全漏洞。 现在，他们急于约谈什未林和其他证人，以阐明电子邮件和最近收集的其他文件中提到的复杂财务交易。
+德州起诉书：[https://drive.google.com/file/d/1V5Bg5bgFUSLohu1Bpe9CFvkjKfgOUJvj/view](https://drive.google.com/file/d/1V5Bg5bgFUSLohu1Bpe9CFvkjKfgOUJvj/view)
+![起诉书]()![起诉书](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11005957/18states.jpg)
 
-**参考链接：**[https://justthenews.com/accountability/russia-and-ukraine-scandals/hold-email-given-fbi-states-hunter-biden-hadnt-paid](https://justthenews.com/accountability/russia-and-ukraine-scandals/hold-email-given-fbi-states-hunter-biden-hadnt-paid)
+审校：Bingo，凤凰农场-旧金山-金喜站
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/21174404/image0-178.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
-
-0
+1+

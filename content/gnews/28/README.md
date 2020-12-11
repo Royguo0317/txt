@@ -1,33 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点速评】医院挂横幅庆祝成为新冠检测定点医院 | 赤裸裸彰显医疗产业化的吃人嗜血本性
-` 公民之聲` [轉載自GNews](https://gnews.org/zh-hans/638742/)
+## 第二名法官阻止美国商务部对抖音的禁令
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/638763/)
 
-内新闻/素材：Meilen美伦 校对：雅典娜的圣斗士(沙加)
+*新闻来源：《布赖特巴特》；作者：LUCAS NOLAN；发布时间：2020年12月8日*
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11090106/Snipaste_2020-12-11_22-00-33.png)
+*翻译/简评：Victory；校对：X-Wing飞得更高；审核：万人往；Page：拱卒*
+[!\[\]()!\[\](https://spark.adobe.com/page/sYKLxSlT7mdQa/images/b125cc52-d2e0-49cc-95a5-b91275bb22a4.jpg?asset_id=a039f276-a86b-48ec-a9bb-1e1e9fa6c2d3&amp;img_etag=%22aec651192988a91929aec27f340d97e1%22&amp;size=2560)](https://spark.adobe.com/page/sYKLxSlT7mdQa/images/b125cc52-d2e0-49cc-95a5-b91275bb22a4.jpg?asset_id=a039f276-a86b-48ec-a9bb-1e1e9fa6c2d3&amp;img_etag=%22aec651192988a91929aec27f340d97e1%22&amp;size=1024)
+**简评：**
 
-据澎湃新闻2020年12月10日报道：成都武侯区第三人民医院某负责人12月10日回应称，该院主楼悬挂“热烈祝贺我院成为新冠核酸检测定点医院”的初衷是告诉群众，医院已成为核酸检测定点医院，可就近做核酸检测，但存在用词不当，9日已将横幅撤掉(见下图)。
+中共动用深层沼泽坚决维护的公司，一定是中共超限战的核心武器。抖音是中共用来窃取个人隐私信息的重要工具之一。本次大选我们可以看到美国个人信息被中共利用，制造大量虚假选票，这就是超限战的一部分。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11090650/1607667926958.jpg)
+美国法官试图阻止川普总统以及商务部对抖音的禁令，一旦成功，无异于放虎归山。如此法官对美国国家安全面临的风险没有深刻认识，对于中共的邪恶程度也缺乏了解。我们拭目以待事情的进展。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11090401/1607667946489.jpg)
+**原文翻译：**
 
-这一条有歧义的横幅引起不小争议，且已荣登今日热搜榜。院方“热烈庆贺”成为核酸定点检测医院，大敛横财的狂喜溢于文字之间、横幅之上，医疗产业化不过是把健康和盈利挂钩，欣喜若狂的样子真是让人大跌眼镜，而这和救死扶伤却完全没有任何关系。
+# 第二名法官阻止商务部对抖音（TikTok）的禁令
 
-在全球都爆发疫情的一年时间里，因为疫情而赚钱的国家政府只有一个，也就是北大国发院教授根据调查结果发布的狂赚67万亿的中共伪政府。
+**第二位法官已经批准了一项初步禁令，阻止美国商务部对中共国拥有的社交媒体平台抖音（TikTok）进行限制，包括一项本应在11月初实施的禁令。**
 
-可见，人民的钱袋子时刻都逃不掉被中共掠夺的厄运，即使没有疫情，它们也要人为制造灾难，掠夺民脂民膏！而防控隔离和核酸检测产业就是中共强制性掠夺民财的新生大产业。这从成都第三人民医院的庆祝横幅可见，核酸检测项目是中共新推出的最抢手的吃人嗜血项目之一。
+[!\[\]()!\[\](https://spark.adobe.com/page/sYKLxSlT7mdQa/images/ac20864e-72c6-4d9f-b662-59e7516602f1.jpg?asset_id=bb03e3b2-8b62-42d7-8b4f-b3c4b98fc12d&amp;img_etag=%22c42abcdc8058de44dc00f717a0bfb15d%22&amp;size=2560)](https://spark.adobe.com/page/sYKLxSlT7mdQa/images/ac20864e-72c6-4d9f-b662-59e7516602f1.jpg?asset_id=bb03e3b2-8b62-42d7-8b4f-b3c4b98fc12d&amp;img_etag=%22c42abcdc8058de44dc00f717a0bfb15d%22&amp;size=1024)
 
-与此同时，这一事件也体现了中共国的疫情依然严峻，中共官媒极力掩盖的真相，正被医疗机构的各种行动现实打脸，同胞们仍需谨慎。
+CNBC报道称，周一晚些时候，第二位法官批准了一项初步禁令，阻止美国商务部对中资视频分享应用抖音实施限制，该应用可能会在美国被禁止。
 
-古代医疗机构秉承“但愿世间人无恙，宁可架上药生尘”，对比现在的医疗机构，不是大促销就是大抽奖，对于民众而言，再优惠的药品，也不比粗茶淡饭吃着舒服。
+华盛顿地区法官卡尔·尼科尔斯（Carl Nichols）在抖音母公司字节跳动提起的诉讼中发布了一项命令，此前一个多月，宾夕法尼亚州的法官温迪·贝特尔斯通（Wendy Bettelstrone）在11月12日抖音热门用户提起的诉讼中阻止了同样的限制生效。
 
-中共伪政府推行的医疗产业化和把医疗产业定为支柱产业的吃人政策已让整个医疗体系的医德、伦理毁灭殆尽，更让医务工作者人性都泯灭，也随着中共变成魔。
+抖音的发言人表示，该公司“很高兴法院同意我们的意见，并授予初步禁令”。尼科尔斯去年被川普总统任命为法官，并裁定商务部在发布抖音禁令时“很可能超越”其法律权限，“而且没有考虑明显的替代方案，行事武断、反复无常”。
 
-因此，14亿人民生活在此，处处可见”刀光血影“，希望同胞们都能看清中共这嗜血魔鬼的真面目，早日觉醒，争取夺回属于自己的权力！ (本文仅代表个人观点)
+商务部对法官的裁决发表评论称，将“大力维护”川普总统的行政命令，并表示该命令“完全符合法律，促进了合法的国家安全利益。政府将继续遵守禁令”。
 
-新闻来源： [**战时状态与“热烈祝贺”，成都某医院的旧条幅制造了新荒诞**](https://m.thepaper.cn/newsDetail_forward_10346147)
+川普政府拒绝给予字节跳动新的延期，川普总统8月的命令要求该公司剥离抖音的美国资产。财政部周五表示，政府“正在与字节跳动接触，完成剥离和其他必要的步骤，以解决国家安全风险。”
+
+美国上诉法院将于12月14日就尼科尔斯法官颁布的应用商店禁令进行听证。
+
+[原文链接](https://www.breitbart.com/tech/2020/12/08/second-judge-blocks-commerce-departments-tiktok-ban/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+breitbart+%28Breitbart+News%29)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】–[点击spark adobe版](https://spark.adobe.com/page/sYKLxSlT7mdQa/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/sYKLxSlT7mdQa/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/sYKLxSlT7mdQa/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

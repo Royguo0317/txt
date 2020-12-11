@@ -1,70 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 哇噻！“斩首神曲”一不小心改编自“洗脑神曲”
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/638869/)
+## 【世界多语言图文】2020/12/01-12/02 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/638963/)
 
-首尔喜韩农场  作者：夷陵老祖
+战友之家图文摘要及多语组
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11092649/image0-1-11.jpg)
+[311-312\_English\_1201-1202\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11092318/311-312_English_1201-1202_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11092318/311-312_English_1201-1202_CCP_Virus_Updates.pdf)
+
+[311-312\_French\_1201-1202\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11092350/311-312_French_1201-1202_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11092350/311-312_French_1201-1202_CCP_Virus_Updates.pdf)
+
+[311-312\_German\_1201-1202\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11092406/311-312_German_1201-1202_CCP_Virus_Updates_German.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11092406/311-312_German_1201-1202_CCP_Virus_Updates_German.pdf)
+
+[311-312\_Korean\_1201-1202\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11092334/311-312_Korean_1201-1202_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11092334/311-312_Korean_1201-1202_CCP_Virus_Updates.pdf)
+
+[311-312\_Spanish\_1201-1202\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11092419/311-312_Spanish_1201-1202_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11092419/311-312_Spanish_1201-1202_CCP_Virus_Updates.pdf)
 
 
-尊敬的战友们好，这首《我们是共产主义接班人》，本是在墙内学校里广泛流传的“洗脑神曲”。从小学开始，共匪就每天循环播放这首歌给小学生们听，给他们洗脑。为了帮助墙内的小学生们，也就是我们的下一代也开智，传播爆料革命真相，我决心把这首歌改编成“反洗脑神曲”。结果这灵感一来，一不小心改编成了“斩首神曲”。
 
-**斩首神曲：《我们是共产主义揭发人》**
-
-我们是共产主义揭发人，
-
-扒掉共匪先人的光荣内裤，
-
-爱祖国，爱人民，
-
-哪来的擀面杖戳到了前胸？
-
-猪头皇帝，不怕报应，
-
-胆敢放毒，坚决加速。
-
-向着包子勇敢前进，
-
-向着包子勇敢前进前进，
-
-向着包子勇敢前进，
-
-我们是共产主义揭发人。
-
-2
-
-我们是共产主义揭发人，
-
-斩断共匪先人的擀面杖子，
-
-爱祖国，爱人民，
-
-爆料革命是我们骄傲的名称。
-
-时刻准备，斩首包子，
-
-要把心霾，消灭干净。
-
-为着斩首勇敢前进，
-
-为着斩首勇敢前进前进，
-
-为着斩首勇敢前进，
-
-我们是共产主义揭发人。
-
-***原曲：《我们是共产主义接班人》***
-
-*我们是共产主义接班人，*
-
-*继承革命先辈的光荣传统，*
-
-*爱祖国，爱人民，*
-
-*鲜艳的红领巾飘扬在前胸。*
-
-…………….
-
-2+
+0

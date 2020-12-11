@@ -1,28 +1,85 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》每日简报早间版 2020.12.10&#8211;NewYork Time
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/638051/)
+## 当委会强烈反对司法部向华为提供“平安符”
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/638640/)
 
-出品《路德社》 编辑：路德社精选新闻专栏组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11041339/1210-AM-BREF-ZH-scaled.jpg)
-1. 美国将很快将定义中共为跨国犯罪组织 该消息印证了，为什么这两天美国媒体风向大变，先是国家情报总监称中国是二战后美国最大威胁、然后班农先生称中共是全人类的敌人、然后国家安全顾问呼吁结束马杜罗政权、FOX连续爆料翟东升和芳芳。一切都在美国的计划之中。 这个决定不是川普总统决定的，而是来自于美国国家安全委员会的投票决定。
+*新闻来源：《当前危机委员会-中国》；作者：Hamilton Strategies；发布时间：2020年12月5日*
 
+*翻译/简评：helloworld；校对：X-Wing飞得更高；审核：万人往；Page：拱卒*
+[!\[\]()!\[\](https://spark.adobe.com/page/dc8MsSxtu19td/images/b095a11a-6295-4a63-89d2-5f733ae33e8c.jpg?asset_id=9b0e4bd5-84b3-49e6-a869-aa6a388d108d&amp;img_etag=%221007a1b184f0d8f9a3f3182131312501%22&amp;size=2560)](https://spark.adobe.com/page/dc8MsSxtu19td/images/b095a11a-6295-4a63-89d2-5f733ae33e8c.jpg?asset_id=9b0e4bd5-84b3-49e6-a869-aa6a388d108d&amp;img_etag=%221007a1b184f0d8f9a3f3182131312501%22&amp;size=1024)
+**简评：**
 
-The America will soon officially define the Chinese Communist Party (the CCP) as a transnational criminal organization. This source of information explains the big changes in the U.S. medias these days. First, Director of National Intelligence (DNI) confirmed China as the No.1 threat to America after the World War II. Next, Mr.Bannon claimed that the CCP is the enemy of all mankind. National Security Advisor called on people to end the Maduro regime. Fox News shocked audience with its bombshell reports on Xijinping’s Think Tank Di Dongsheng and Fang Fang, the Chinese “honey trap spy” having sexes with U.S. mayors and targeting Democratic politicians. All is in the control and plan of the U.S. It is not decided by President Trump but the result of each ballot by the National Security Council.
+美国的黑暗力量正在与正义角逐，在川普总统即将事实上再次当选并排干沼泽的当下，司法部内部的深层政府与中共勾结，尝试遣返孟晚舟以消灭勾兑的证据。当委会在此时此刻强烈表态，阐明了美国的立场，警告了此事的严重性。值得关注的是，孟晚舟并没有完全站在中共的立场上，反而提出了更多的要求，让被遣返变得更困难。
 
-- 为什么美国定义中共为跨国犯罪组织？ 中共是犯罪组织，这是事实，但一直被掩盖。三年前，郭先生置生死于不顾，开始惊天爆料，通过海航事件、王健之死、香港反送中、病毒真相、拜登硬盘门、大选舞弊等事件和实锤的证据，以无数内部战友和香港同胞的生命，以全世界一百五十万人中毒死亡的代价，以川普胜选被翻盘的荒谬及海量的证据，终于唤醒美国人，让他们不得不承认中共就是跨国犯罪组织，让他们意识到美国和中共是你死我活的关系，没有退路。
+毋庸置疑，华为孟晚舟的作为对于美国而言是很大的威胁。但我们知道，其中有三方势力正在角逐，美国方面，希望孟晚舟能够被引渡，得到法律的审判，并作为污点证人揭露中共的野心和行径。而美国的深层政府、中共的野心家们，希望释放孟晚舟，让她回到中共国，趁机毁掉人证物证。而作为当事人，孟晚舟表面上需要保持和中共的立场一致，但是她一定会尽其所能地自保。孟晚舟的决定，让她能够自保，同时以自身为筹码，让中共国忌惮，从而让被困在国内的家人得以平安。
 
+在美国不断施压，国际形势越来越逆转的今天，中共的行径不断暴露，从情报层面渐渐过渡到司法层面，这会让国际上的行动从过去的防范中共变为取证、布控，以及未来的全面审判。在此时，中共的高层一定会为了自保而不惜销毁一切证据，而这也包括昔日合作“紧密无间”的白手套和傀儡们。这种压力会让中共国体系更加紧张，互相猜疑，从而加速其灭亡。
 
-Why America defines the CCP as a transnational criminal organization? It is a fact that the CCP is a criminal organization which has always been covered up by the CCP. Three years ago, Mr. Miles Kwok risking his life launched the great “Whistle-blower Movement”. It is so glad to see that the “Whistle-blower Movement” eventually woke the Americans up, by providing the hard evidence on Hainan Airlines, the truth of the death of Wang Jian, the largest individual shareholder of Hainan Airlines, Hong Kong protests, the truth of the COVID-19, the Hunter Biden’s Drive, the Election fraud and manipulation, etc. Numerous insiders, fellow-fighters of Miles Kwok has made great contribution and even sacrificed their lives like Hong Kong heroes in their protest for democracy. Now American people finally understand that it is a death or live war between the U.S. and the CCP seeing the facts of more than 1,500,000 death from the CCP virus and the stealing of votes from Trump. There is no way out except for fighting.
+法治国家不会放弃追责，但是这种追责有法律的限制，不会无限扩大。望有识之士能看清现实，做出正确的选择。
 
-3. 这一决定意味着什么？ 这一决定，意味着川普政府已经与美国各大利益集团达成了妥协，一致同意灭共。意味着美国对灭共已经做好了必胜的准备，无论中共如何负隅顽抗也无济于事。意味着中共在海外的所有资产彻底被查封。中共也知道自己作恶多端，罪责难逃，清算的这一天终于要来了。
+**原文翻译：**
 
-What does this decision mean? It means that the Trump Administration has reached to an agreement with the major interest groups in the U.S. on taking down the CCP. It also means that the U.S. is well prepared for it and has inconvincible confidence. The recalcitrant CCP’s struggling is in vain now. All their assets overseas will be seized. The CCP knows clearly that they will eventually pay back for all the evils they have done and it is time now.
+# “应对中共国当前危机委员会”强烈反对司法部向华为提供“免罪辩诉交易”的努力
 
-文案：《路德社》文编组
-翻译：《路德社》翻译组
-审核校对：玫瑰天空
-上传排版：青葫芦娃&玫瑰天空
+[!\[\]()!\[\](https://spark.adobe.com/page/dc8MsSxtu19td/images/8087974a-3c9e-46c7-bff7-54e6948190a1.jpg?asset_id=8b88c6bf-183a-478f-a117-34523715bfc8&amp;img_etag=%2279c1ace8e108cce76262d16d3dbeeb11%22&amp;size=2560)](https://spark.adobe.com/page/dc8MsSxtu19td/images/8087974a-3c9e-46c7-bff7-54e6948190a1.jpg?asset_id=8b88c6bf-183a-478f-a117-34523715bfc8&amp;img_etag=%2279c1ace8e108cce76262d16d3dbeeb11%22&amp;size=1024)
+
+发布日期：2020年12月5日
+
+**来自美国国家情报局(DNI)拉特克里夫(Ratcliffe)警告，政治投机将削弱川普总统政策的力度。持反共立场的卢比奥参议员(Rubio)与沃纳参议员(Warner)也对此发声力挺这一观点**
+
+华盛顿特区—据报道，“应对中共国当前危险委员会”(CPDC)谴责了一项正在由美国司法部谈判的辩诉协议，该协议将导致加拿大释放华为首席财务官孟晚舟，而她是创始人任正非的女儿。作为在中国共产党控制的最危险的公司之一参与行动、具有实权并制定战略的人，如果孟晚舟能够成功躲过这些指控，并逃过参与危害美国国家安全行为的应有惩罚，而且美国对此默认不加干涉，那这将是一个滑稽的结局。
+
+加拿大当局值得称赞，他们在2018年于温哥华凭借美国逮捕令逮捕了孟晚舟，而这与华为涉嫌违反美国对伊朗的制裁有关。之后，她一直与美国就引渡作斗争。
+
+据《华尔街日报》12月3日的报道，与孟晚舟的谈判旨在寻求与司法部达成“延期起诉协议”，协议将允许孟晚舟承认一些华为涉嫌违反的欺诈和共谋指控，然后可以返回中国。
+
+《华尔街日报》报道说，双方都希望在川普政府即将结束之际达成协议，但是孟晚舟拒绝承认任何不法行为。
+
+“当委会”表示，中共国提出的任何这样的协议都与司法部保护国家安全不受中国共产党以及像华为这样傀儡公司侵害的职责相违背，并强烈敦促尽快将孟晚舟引渡到美国，并在法律的最大范围内对其进行起诉。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/dc8MsSxtu19td/images/eba5578a-68b2-4d4f-a886-f5adb63f50a9.jpg?asset_id=7082577b-90cf-4faa-9fcd-ad791031a801&amp;img_etag=%22eaf46a9ff9b41208b024f35d91d5a9d5%22&amp;size=2560)](https://spark.adobe.com/page/dc8MsSxtu19td/images/eba5578a-68b2-4d4f-a886-f5adb63f50a9.jpg?asset_id=7082577b-90cf-4faa-9fcd-ad791031a801&amp;img_etag=%22eaf46a9ff9b41208b024f35d91d5a9d5%22&amp;size=1024)
+
+美国国家情报总监约翰•拉特克利夫(John Ratcliffe)
+
+12月3日，美国国家情报总监约翰•拉特克利夫(John Ratcliffe)发表在《华尔街日报》(Wall Street Journal)上的一篇评论文章，有力地强调了接受这一观点的必要性。他声称:
+
+*如果我能从这个独特的有利位置向美国人民传达一件事，那就是中共国是美国当前最大的威胁，也是二战以来对全世界民主和自由的最大威胁。*
+
+*情报十分明确：北京当局密谋在经济、军事和技术上统治美国和地球的其他地区。。中共国许多主要的公共事业和知名公司只是对中国共产党活动的伪装。*
+
+*中共国有一套经济间谍活动的策略，我将其归纳为“抢劫、复制和替代”。中共国抢夺美国公司的知识产权，复制其技术，然后在全球市场上取代他们。*
+
+如果放任这样的行为，让能够做污点证人揭发中共国罪行的人逍遥法外，这简直是疯了。
+
+参议院情报委员会共和党代理主席马克·卢比奥(Marco Rubio)和民主党副主席马克·沃纳(Mark Warner)也在今天发表了一份两党联合声明，支持国家情报局拉特克里夫的评估，并进一步强化了这一底线。其内容如下：
+
+*我们同意国家情报局拉特克里夫的观点，即中共国对美国构成最大的国家安全威胁。我们的情报很明确，中国共产党为了实现对全世界的统治不惜一切代价。*
+
+*北京当局对于美国社会的渗透是蓄意而阴险的，他们利用一切可能的手段加速自身的崛起，而美国却因此付出了代价。*
+
+*我们的民主价值也在中共国试图取代美国领导地位、重塑其国际形象的过程中受到威胁。中国共产党的专制领导人试图威胁我们的言论自由、政治、技术、经济、军事，甚至还包括我们抵御CCP病毒大流行的努力。*
+
+*更不幸的是，美国并不是北京当局试图渗透和颠覆的唯一国家，我们的盟国及全世界许多国家也是他们的目标。*
+
+*现在，正是这场对抗的分水岭，我们必须坚持自己的立场。**美国绝对不能也无法忍受北京对于统治地位的追求，及其违反国际法、严重侵犯人权以实现其目标的行为。***
+
+*我们在重新平衡美中关系方面取得了相当大的进展，并为美国未来的政策奠定了明确的标志，**中国共产党试图破坏我们的经济和国家安全时，我们不会再坐视不管**。*
+
+*要传达给北京当局和全世界的信息是，**中共国的行径不会再被容忍**，其所作所为一定会受到来自我们的盟友和伙伴国家民主价值观的挑战。（强调部分已标注）*
+
+可以预见，一旦让中国共产党看到美国在施压下屈服，中共国的行径只会变得愈发危险和激进，也将更加严重地“破坏我们的经济和国家安全”。我们绝不能允许这样的情况发生。
+
+[原文链接](https://presentdangerchina.org/2020/12/release-committee-vehemently-opposes-justice-department-effort-to-give-huawei-a-get-out-of-jail-free-card/)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】–[点](https://spark.adobe.com/page/fZit29pN9woJb/)[击spark adobe版](https://spark.adobe.com/page/dc8MsSxtu19td/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/dc8MsSxtu19td/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/dc8MsSxtu19td/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0
