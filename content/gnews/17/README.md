@@ -1,26 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 特鲁多承认为中共军队举办了冬季战备训练
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/640377/)
+## 《路德社》精选新闻快讯：川普总统转推Newsmax主持人Greg Kelly《拜登一生的谎言》节目视频
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/640218/)
 
-多伦多枫叶农场（原加喜农场） ctt
-校对 文锦 上传 云起时
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11201948/4-2-1.jpg)图片来源：Twitter
-据反叛新闻 (Rebel News)12月10日报道，特鲁多 (Justin Trudeau) 的发言人在《多伦多太阳报》(Toronto Sun)采访时承认，2018年2月中共军方代表团在加拿大进行了冬季战备训练。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11202721/5-4.jpg)图片来源：加拿大军队官方Twitter 图片文字：2018年2月9日，陆军从加拿大陆军高级战争中心向中共国派遣了一个由四名观察员组成的小组，中共军方接受了加拿大军方邀请，在petawawa观察冬季生存训练。
-这是一个惊人的消息，一位加拿大总理竟瞒着加拿大人，允许向中共国军队传授冬季作战秘密。而由特鲁多掌控的国家广播公司CBC对此允许一字未提。
+出品：《路德社》 编辑：《路德社》精选主题专栏组出品
 
-Rebel News昨天已发表一篇题为“特鲁多邀请中共军队在加拿大军事基地训练”的文章, 其中就披露了特鲁多及其整个政府对中共采取非常顺服的政策。而且在TheChinaFiles.com的网站上，可以找到一份34页的军事机密文件，在上面详细说明了加拿大武装部队(Canadian Armed Forces)如何与中共国军队进行军事训练。
+十多个小时前，川普总统转推了Newsmax主持人Greg Kelly 的一档节目视频，这段视频回溯了拜登在辩论及采访中说谎的数个片段！主持人说虚假的主流媒体，他们对于拜登与俄罗斯的共谋只字不提，社交媒体则帮助拜登审查揭发言论，我们的川普总统真可怜！但是司法部已经对其家人展开了调查！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11182031/sjg2.jpg)
+．亨特拜登已接受联邦调查〈NPR／POLITICO〉
 
-该文件透露, 在2019年, 特鲁多邀请中共军队进行了18个不同的军事项目训练, 并且自由党会为解放军训练的正常进行做了一切努力。中共军方将学习加拿大寒冷天气军事战术, 而这种训练可以使中共军队掌握CAF的一些军事秘密，因此CAF决定取消原定在安省CFB Petawawa为中共军方举办的冬季训练。
+．在总统选举第一轮辩论中，川普总统提拜登通俄，主持人华莱士打断说，我们该讨论气候改变了，帮腔民主党
 
-对此，特鲁多非常愤怒，他命令CAF未经他的许可，不得再取消为中共军方举办的任何训练课程。而在今天的提问中，特鲁多的国防部长试图把取消那场训练的功劳归咎于自由党，而将责任归咎于前总理哈珀(Stephen Harper)。
+．在最后一轮辩论中，川普总统再提拜登通俄，新主持人依旧打断，我们应该讨论种族话题
 
-评：
+．乔拜登在采访中说他在Scranton长大，有过艰难的人生 ，主持人却在一本书中发现乔拜登写道：他的父亲买了一个机场在美丽的花园城市长岛，我们（很少）住在那里！
 
-加拿大的政府、金融及媒体等方面已经被中共深度渗透， 从没有媒体报道中共病毒的来源，我们的借款项目被冻结及本文就可以看得出。但相信川普总统大选获胜后，反共浪潮会横扫加拿大。
+．乔拜登谈到他在Wilmington 的青少年（1950s）, 他见到两个男人亲吻他爸爸…Greg Kelly表示不相信，但没有证据!
 
-[原文链接](https://www.rebelnews.com/trudeau_admits_winter_warfare_training_of_chinese_military_did_happen%20BREAKING%20UPDATE:%20Trudeau%20admits%20winter%20warfare%20training%20of%20Chinese%20military%20DID%20HAPPEN)
+． 乔拜登在自己的宣传片中，叙述方式、桥段神似电影《命运规划局》（《The adjustment bureau》）
 
-2+
+[援引原文](https://twitter.com/realDonaldTrump/status/1337267355949391872)
+
+本文作者：上進哥
+审核校对：玫瑰天空
+上传排版：青葫芦娃
+
+0
