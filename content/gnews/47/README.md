@@ -1,31 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻时评】中共治下的国民真的不是“冷血动物”吗？
-` PHX14 凤凰十四` [轉載自GNews](https://gnews.org/zh-hans/641694/)
+## 20201211东京樱花团晚间新闻速报
+` 东京樱花团-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/641657/)
 
-作者：雅典娜的圣斗士(沙加)
+HTS-01C-202012-034
 
-编辑：彩虹
+![]()![](https://gnews.org/wp-content/uploads/2020/12/76543-1.jpg)
 
-腾讯网12月11日发布了一则视频新闻，题为《监控：河北一老人过马路摔倒 十多人路过无人扶》。
+1、日本政府否决暂停GO TO的提议；
 
-监控视频中，一个老太摔倒在路边。在摔倒的瞬间，她身边就有一个骑车的人，但那人没有理会，而是快速离开了现场。之后的10秒内，老太身边驶过来来往往的车辆都无人理会，直到11秒才有第一个人停车询问老太，随后老太身边在7秒内围了很多人。短短19秒的视频并没有交代最后有没有人扶起老太，送往医院。
+2、大阪市将对本市内新增病床提供1000万日元补助；
 
-看到这则视频的时候，我想起了自己上初中时的一个画面。那天我正骑着自行车往学校赶，途中看到一个人躺在地上，周围也是很多人，但并没有帮助他(她)，更没有将其送往医院，虽然事发地点离医院只有步行5分钟的距离。
+3、日本旅游巨头HIS财报显示销售额比去年下降46.8%，亏损250.37亿日元；
 
-我当时没有停顿，直奔学校，一路上心中一直疑惑着，“为什么那么多人只是围观？不送去医院呢？难道人都是冷血动物吗？”。我把这个问题和当时的初中班主任东老师(化名)说了，令我没想到的是东老师竟然回问我：“你知道什么是冷血动物吗？” 我当时一下蒙了，说：“不知道。”而后东老师就跟我说：“冷血动物是恐龙之类的，你不能把人称为冷血动物……” 说完这番话，东老师就扬长而去了……
+4、大阪世博会造价增加1.5倍，达到1850亿日元；
 
-当时我还小，被这样一顿教育之后不明所以，心中的疑惑没有寻得答案，但这个画面却一直留在我的脑海里。
+5、日本政府疫情对策小组，建议餐饮行业营业到晚上8点；
 
-无论是这则新闻本身，还是我的这段回忆，究其根本，都是社会教化出了问题。于我个人而言，我年幼时的疑惑无人解答，没有得到应有的引导，若是自己去社会上寻找答案，得到的更多的也是“不能扶、不敢扶、怕被讹诈……”
+6、日本央行可能在18日宣布将企业支持措施延长半年；
 
-诚然，在生物学的划分上，人类不是冷血动物！但是在中共治下，国民真的不是“冷血动物”吗？
+7、厚生劳动省与英国制药公司阿斯利康正式签署合同，后者将提供6000万剂新冠疫苗；
 
-新闻链接：[https://new.qq.com/rain/a/20201211V0EEUR00](https://new.qq.com/rain/a/20201211V0EEUR00)
-![]()![](https://gnews.org/wp-content/uploads/2020/12/a2.png)![]()![](https://gnews.org/wp-content/uploads/2020/12/a3.png)![]()![](https://gnews.org/wp-content/uploads/2020/12/a4.png)![]()![](https://gnews.org/wp-content/uploads/2020/12/a5.png)
+8、东京都12月11日595人确诊CCP病毒。
 
 
-(以上内容仅代表作者观点)
 
-2+
+新闻速报取材于下述链接：
+
+[https://news.yahoo.co.jp/pickup/6379041](https://news.yahoo.co.jp/pickup/6379041)
+
+[https://news.yahoo.co.jp/articles/d16663536f12502093125c25014117bb4b8e352d](https://news.yahoo.co.jp/articles/d16663536f12502093125c25014117bb4b8e352d)
+
+[https://news.yahoo.co.jp/articles/c4fdc49a9013530327f7305c5774f0ad05ca1e5b](https://news.yahoo.co.jp/articles/c4fdc49a9013530327f7305c5774f0ad05ca1e5b)
+
+[https://news.yahoo.co.jp/articles/0d1d626e3692abf007a236ed618d306d089601eb](https://news.yahoo.co.jp/articles/0d1d626e3692abf007a236ed618d306d089601eb)
+
+[https://news.yahoo.co.jp/articles/c64db4c3040f035421262ceb1302eed5914c7e61](https://news.yahoo.co.jp/articles/c64db4c3040f035421262ceb1302eed5914c7e61)
+
+[https://news.yahoo.co.jp/articles/460a6fcd1e38aa4b9a040de76975be36617b2855](https://news.yahoo.co.jp/articles/460a6fcd1e38aa4b9a040de76975be36617b2855)
+
+[https://news.yahoo.co.jp/articles/1d44cc97fe172b954eb76a2a4fde347eeaa19c11](https://news.yahoo.co.jp/articles/1d44cc97fe172b954eb76a2a4fde347eeaa19c11)
+
+1+
