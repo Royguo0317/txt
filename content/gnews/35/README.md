@@ -1,30 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 普通民警黄元雄被制裁意味着中共迫害法轮功的整个系统的末日
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/640222/)
+## 「一贷一路」逾期了 王毅：我们是最大缓债国
+` α-Vega` [轉載自GNews](https://gnews.org/zh-hans/640027/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11181944/%E5%B0%81%E9%9D%A2-15.png)
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+内新闻：α-Vega
 
-据[黄元雄 – 百度百科](https://www.baidu.com/link?url=GlMSBePXh2ZEYGZfWHK0sp0JElxkfmxn6yvG0AO6iwwBKvBDn5uFFj6TLF17MIsYvapjX_UefkI0BoyujfXht3zLYKHkzV5vhbo85yxpXbEmNphHSW3rfv7wqC57Ss3k&amp;wd=&amp;eqid=8c6b559f0016a405000000065fd3f714)：走红事件，2020年12月，美国国务院于宣布了一批制裁国外官方人员的名单，其中包括来自中国厦门市的民警黄元雄。
+12月11日，中共外交部长王毅在京出席“2020年国际形势与中国外交”研讨会开幕式并发表演讲。王毅表示，我们积极参与制定二十国集团缓债倡议，全面落实符合倡议要求的缓债申请，成为G20成员中缓债金额最大的国家。
 
-这起所谓走红事件的消灭来源是[Public Designations of Current and Former Government Officials Under Section 7031(c) of the Department of State, Foreign Operations, and Related Programs Appropriations Act Due to Involvement in Gross Violations of Human Rights](https://www.state.gov/public-designations-of-current-and-former-government-officials-under-section-7031c-of-the-department-of-state-foreign-operations-and-related-programs-appropriations-act-due-to-involvement-in-gross/)：
+中国是世界贫穷国家的最大债主。世界银行的一项研究显示，全球最贫穷国家与G20的官方双边债务在2019年达到了1780亿美元，其中，欠中国的总债务就占63％。
 
-［Finally, the State Department is designating Chief Huang Yuanxiong of the Xiamen Public Security Bureau Wucun Police Station for his involvement in gross violations of human rights in Xiamen, China.  Huang is associated with particularly severe violations of religious freedom of Falun Gong practitioners, namely his involvement in the detention and interrogation of Falun Gong practitioners for practicing their beliefs.  Today’s action also applies to Mr. Huang’s spouse.  The world cannot stand idly by as the PRC government perpetrates horrific and systematic abuses against people in China, including violating the internationally recognized right to freedom of thought, conscience, and religion or belief.
+根据国际金融协会(IIF)5月发布的一份报告，中国目前是世界上低收入国家最大的债权国，未偿债务从2004年的8750亿美元上升到2019年的5.5兆美元。
 
-中文大意：最后，国务院指定厦门公安局武村派出所所长黄元雄，因为他参与了中国厦门的严重侵犯人权行为。 黄与法轮功学员的宗教自由受到特别严重的侵害有关联，即他参与了为实践信仰而对法轮功学员的拘留和审讯。 今天的行动也适用于黄先生的配偶。 随着中国政府对中国人民实施可怕和系统的虐待，包括侵犯国际公认的思想，良心，宗教或信仰自由权，世界不能袖手旁观。 ］
+2013年提出“一带一路”后，至少7300亿美元流向112个国家。其中一半贷款提供给了违约高风险的国家。2017年，巴基斯坦从中国贷款210亿美元，南非贷款140亿美元。其中，吉布提、埃塞俄比亚和吉尔吉斯坦的中国贷款占其GDP比例为80%、20%和40%。疫情造成世界经济倒退后，巴基斯坦外长库雷希打电话给王毅，提出紧急需求，希望能对数十亿美元贷款进行债务重组。
 
-这一起事件被中共媒体蓄意引导成为一个笑料，据[环球时报新媒体](https://mp.weixin.qq.com/s/Bsf0PP3bVgCEjf9Gt_s1WQ)于2020-12-11 18:02发布的[不是玩笑：中国一位派出所民警被美国制裁了](https://world.huanqiu.com/article/413jwLkGz4W) ：
+受疫情的影响，这些高风险债务眼看要还不上了。习近平今年5月17日曾宣布，中国将在“中非合作论坛”架构下，免除对有关非洲国家截至今年底到期的无息贷款债务。而中国财政部长刘昆近日表示，中国落实缓债金额最大，总额达到21亿美元，有23个国家受惠。
 
-［而这位黄警官被美国政府制裁的事情之所以特别好笑，主要有以下两个原因：首先，虽然蓬佩奥在美国国务院的制裁名单中将黄警官的头衔说得很“大”，按照英文语序直译的话是“黄元雄警长，厦门公安局梧村警察局”，但实际上人家黄警官只是梧村派出所一位很普通的基层民警。不过，虽然身份普通，但对待工作黄警官却是认真负责的。公开资料显示，他曾在2015年获得过福建省全省（首届）“十大法治新闻人物”的表彰，他在服务社区方面非常用心。］
+中国近十年来为众多国家提供了总量巨大的贷款，当一些国家无力还贷时，中国通常也愿意进行债务重组，或同意延长还款期限。中国国家开发银行和中国进出口银行可以对与中国友好的国家提供主权贷款减免，如降低利率或取消利息，甚至适当减少本金。
 
-［其次，美国国务院制裁黄警官的理由，即他“侵犯”邪教法X功分子的“宗教自由”，就更可笑了。因为除了传播违法害人的邪教思想在中国被打击，这个当年被美国政府敞开双臂接到美国去的邪教组织，如今更因为不断干涉美国大选，为败选的美国现任总统特朗普传播政治阴谋论，甚至还在新冠疫情上散布大量谣言，而引起了美国主流社会的反感。多家美国主流媒体在过去这一两年更是不断刊文，揭露这个邪教组织。所以，如今黄警官被美国国务院因为法X功而制裁，就让人不得不怀疑是不是迄今都不愿意承认败选的特朗普当局，在滥用美国的公权力迫害他人，以进一步收买这个邪教组织。若果真如此，那这届美国政府可真算得上是“人类之癌”了。］
+王毅还在研讨会中提到中国外交2021的核心任务，我们将以习近平外交思想为指引，在以习近平同志为核心的党中央坚强领导下，于危机中育先机，在变局中开新局，全面推进新时代中国特色大国外交，努力构建新型国际关系，继续推动人类命运共同体的建设。
 
-黄元雄被美国政府制裁这件事真的像中共媒体所宣称的这样是非常可笑的吗？其实未必，美国政府的制裁中列明黄元雄参与对法轮功迫害的事实，这应该算一个里程碑事件，黄元雄被制裁标志着所有对法轮功实施抓捕和侵犯人权事件的中共鹰犬及610办公室系统的官员们在接下来将正式进入美国的制裁名单！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11180331/IMG_0648.jpg)
 
-黄元雄被制裁可笑吗？它一点也不可笑，尤其是对于那些参与迫害法轮功的中共官员来说，黄元雄被制裁是否意味着法轮功事件始作俑者的江泽民最终进入制裁名单呢？关于这一点笔者不敢妄言，但是我们必须铭记黄元雄被制裁的这一刻——它意味着中共迫害法轮功的整个系统的末日已经到来，它更意味着中共所有参与法轮功之外的其它宗教迫害者的末日！
+中共的“人类命运共同体”翻译过来就是韭菜的命运不分国界。“一带一路”带走中国人的钱，一路薅着非洲人民的羊毛，钱在海外走一圈，再把钱洗进几个人兜里。中共所谓的“一带一路”，其实就是一路放高利贷的权钱交易，政府不会创造价值，所有的钱都是来自于人民，不管是放贷还是还钱，都是用的老百姓的血汗钱。
 
-（文章内容仅代表作者个人观点）
+每个老百姓都应该思考思考，我们的钱都去哪了？为什么工时越来越长，兜里的钱越来越少，教育、医疗、养老的钱国家能省就省，给别国缓债，老百姓的贷款晚一天都不行。因为中共整个经济都在借新还旧，银行早就空空如也，靠着老百姓每天的劳动价值还着这些亏空。
 
-3+
+贸易战、疫情打击下导致大量失业，老百姓贷款还不上，企业的贷款也还不上，海外的贷款更别提，银行面临破产，经济岌岌可危。所以，你的钱还存银行吗？
+
+更多真相请查阅：
+GNews/G-TV /路德社
+
+新闻来源：
+[中国巨债难收 穷国还不出钱怎么办?](https://www.dw.com/zh/中国巨债难收-穷国还不出钱怎么办/a-53521895)
+[王毅谈2020年中国外交：中国同发展中国家团结合作](https://www.fmprc.gov.cn/web/wjbz_673089/xghd_673097/t1839408.shtml)
+[中国稳坐世界最大债主的压力：疫情令缓债免债呼声四起](https://www.zaobao.com.sg/realtime/china/story20201120-1102595)
+
+1+

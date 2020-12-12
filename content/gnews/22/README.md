@@ -1,33 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发:川普总统将五角大楼和中情局力量从国际反恐转至中俄
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/640427/)
+## 特鲁多承认为中共军队举办了冬季战备训练
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/640377/)
 
-**翻译&校对：喜马拉雅**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11203021/The_Pentagon_January_2008-scaled.jpg)
-五角大楼宣布，计划在1月前撤回对中央情报局国际反恐任务的军事支援。
+多伦多枫叶农场（原加喜农场） ctt
+校对 文锦 上传 云起时
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11201948/4-2-1.jpg)图片来源：Twitter
+据反叛新闻 (Rebel News)12月10日报道，特鲁多 (Justin Trudeau) 的发言人在《多伦多太阳报》(Toronto Sun)采访时承认，2018年2月中共军方代表团在加拿大进行了冬季战备训练。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11202721/5-4.jpg)图片来源：加拿大军队官方Twitter 图片文字：2018年2月9日，陆军从加拿大陆军高级战争中心向中共国派遣了一个由四名观察员组成的小组，中共军方接受了加拿大军方邀请，在petawawa观察冬季生存训练。
+这是一个惊人的消息，一位加拿大总理竟瞒着加拿大人，允许向中共国军队传授冬季作战秘密。而由特鲁多掌控的国家广播公司CBC对此允许一字未提。
 
-据报道，五角大楼计划在1月5日前削减对中央情报局反恐行动的大部分军力。
+Rebel News昨天已发表一篇题为“特鲁多邀请中共军队在加拿大军事基地训练”的文章, 其中就披露了特鲁多及其整个政府对中共采取非常顺服的政策。而且在TheChinaFiles.com的网站上，可以找到一份34页的军事机密文件，在上面详细说明了加拿大武装部队(Canadian Armed Forces)如何与中共国军队进行军事训练。
 
-据ABC新闻报道，代理国防部长克里斯托弗-米勒在给中情局局长吉娜-哈斯佩尔的信中透露了这一令人吃惊的决定。
+该文件透露, 在2019年, 特鲁多邀请中共军队进行了18个不同的军事项目训练, 并且自由党会为解放军训练的正常进行做了一切努力。中共军方将学习加拿大寒冷天气军事战术, 而这种训练可以使中共军队掌握CAF的一些军事秘密，因此CAF决定取消原定在安省CFB Petawawa为中共军方举办的冬季训练。
 
-**据《防务一号》，五角大楼决定撤回支援，同时在审查中东冲突期间分配给中情局反恐行动的军事人员，是否可以转移到俄罗斯和中国的任务。**
+对此，特鲁多非常愤怒，他命令CAF未经他的许可，不得再取消为中共军方举办的任何训练课程。而在今天的提问中，特鲁多的国防部长试图把取消那场训练的功劳归咎于自由党，而将责任归咎于前总理哈珀(Stephen Harper)。
 
-《防务一号》报道：周三几乎未见关于审查范围的细节报导。两名知情人士称，代理国防部长克里斯-米勒Chris Miller已致信中情局局长吉娜-哈斯佩尔，称向该机构提供国防部支援的长期安排有一定风险。
+评：
 
-这项审查是负责情报的代理国防部副部长Ezra Cohen-Watnick喜爱的任务，他是川普大选日失利后被指派到五角大楼担任代理角色的几位高层政治官员之一。其中包括科恩-瓦特尼克Cohen-Watnick在内的几名官员被视为川普的忠诚人士。
+加拿大的政府、金融及媒体等方面已经被中共深度渗透， 从没有媒体报道中共病毒的来源，我们的借款项目被冻结及本文就可以看得出。但相信川普总统大选获胜后，反共浪潮会横扫加拿大。
 
-有人可能猜测，提出的这项1月份行动可能与总统最近更换国防部长的行动有关，也与对中情局的影响有关。 自2020年大选后，中情局局长哈斯佩尔已经不再露面。
+[原文链接](https://www.rebelnews.com/trudeau_admits_winter_warfare_training_of_chinese_military_did_happen%20BREAKING%20UPDATE:%20Trudeau%20admits%20winter%20warfare%20training%20of%20Chinese%20military%20DID%20HAPPEN)
 
-五角大楼的行动也可能与总统关于外国干预大选的行政命令有关，我们最近写过这个问题。国家情报局局长约翰-拉特克利夫将在一周内提交关于此事的报告**：总统有理由将军事和中情局的支援力量从中东地区撤出，而更多地放在中国和俄罗斯。也许下周拉特克利夫的报告会谈到这个问题。**
-
-原文：
-
-
-
-> [BREAKING: President Trump Shifting the Pentagon’s and the CIA’s Assets Away From International Counterterrorism and Towards China and Russia](https://www.thegatewaypundit.com/2020/12/breaking-president-trump-shifting-pentagons-cias-focus-away-international-counterterrorism-towards-china-russia/)
-
-
-
-5+
+2+
