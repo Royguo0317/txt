@@ -14,38 +14,38 @@
 
 ---
 
-### [文字版2020年11月27日郭先生GTV直播](/content/gnews/1/README.md)
+### [“妈妈生病了，捡瓶子可以换钱给妈妈买药治病”—说实话，除了同情和怜惜，我是感动不起来！](/content/gnews/1/README.md)
+ ` 首尔喜韩农场`
+
+### [文字版2020年11月27日郭先生GTV直播](/content/gnews/2/README.md)
  ` GM01`
 
-### [2020-12-12 康州盘古农场本日新闻热点](/content/gnews/2/README.md)
+### [2020-12-12 康州盘古农场本日新闻热点](/content/gnews/3/README.md)
  ` 康州盘古喜马拉雅农场`
 
-### [英喜时评第六期（12.11）- 英喜節目](/content/gnews/3/README.md)
+### [英喜时评第六期（12.11）- 英喜節目](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya UK`
 
-### [国际劳工组织总干事：中国为全球脱贫事业树立榜样](/content/gnews/4/README.md)
+### [国际劳工组织总干事：中国为全球脱贫事业树立榜样](/content/gnews/5/README.md)
  ` 首尔喜韩农场`
 
-### [文字版2020年11月24日郭先生GTV直播](/content/gnews/5/README.md)
+### [文字版2020年11月24日郭先生GTV直播](/content/gnews/6/README.md)
  ` GM01`
 
-### [亚利桑那州成为支持德州诉讼的第18个州！](/content/gnews/6/README.md)
+### [亚利桑那州成为支持德州诉讼的第18个州！](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya UK`
 
-### [【热点播报】路德爆料：1月20日前灭共](/content/gnews/7/README.md)
+### [【热点播报】路德爆料：1月20日前灭共](/content/gnews/8/README.md)
  ` 纽约香草山农场`
 
-### [CCP限制银行借外债为时已晚](/content/gnews/8/README.md)
+### [CCP限制银行借外债为时已晚](/content/gnews/9/README.md)
  ` 首尔喜韩农场`
 
-### [视频【大卫作战室】12/10直播精要- 英国伦敦喜庄园出品](/content/gnews/9/README.md)
+### [视频【大卫作战室】12/10直播精要- 英国伦敦喜庄园出品](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya UK`
 
-### [谎言与间谍的交易-瑞士与中共](/content/gnews/10/README.md)
+### [谎言与间谍的交易-瑞士与中共](/content/gnews/11/README.md)
  ` gnewscanada`
-
-### [【战友观点】战友谈“自信”灭共](/content/gnews/11/README.md)
- ` HAIKUOTIANKONG`
 
 ### [12月10日郭先生GTV直播摘要 英国伦敦喜庄园出品](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya UK`
