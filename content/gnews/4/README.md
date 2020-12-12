@@ -1,33 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 电邮显示，拜登父子和中国华信能源有染
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/642463/)
+## 推特竟阻止用户点赞、回复川普的推文
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/642480/)
 
-- 编辑：Victor Torres
-- 翻译：小玉
+蒙特利尔皇家山战友团Spirit
+校对 文锦 上传 云起时
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12144258/Tech-Crunch.jpg)图片来源：Tech Crunch
+据The National Pulse12月12日报道，周六上午，川普在三条不同的推文中，对最高法院决定驳回德克萨斯州旨在使当选总统拜登在威斯康星州、密歇根州、佐治亚州和宾夕法尼亚州的胜选无效的诉讼做出了回应。
 
+川普援引大法官克拉伦斯-托马斯和塞缪尔-阿利托的反对意见，表达了法院有义务审理州际纠纷。这两位比较保守的大法官表示法院的其他七位成员站在了德克萨斯州的对立面。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+“这是一个巨大而可耻的误判，”川普写道。”美国人民被欺骗了，我们的国家蒙羞了。甚至从来没有给我们上法庭的机会！”
 
-**西班牙2020年12月12日电/西喜社——**据福克斯新闻获得的一封2017年9月20日的电子邮件显示，亨特·拜登在要求为他的新 “办公室伙伴 “制作钥匙，他列出了他的父亲：乔·拜登，吉尔·拜登和他的叔叔吉姆·拜登，他们计划与中国华信能源公司董事长的”使者”共享“瑞典之家”大楼内的办公室。
-“请为办公室的新同事提供钥匙：乔·拜登、吉尔·拜登、吉姆·拜登”，这封主题为 “507”的邮件说。
-在邮件中，亨特·拜登还为董公文申请了钥匙，他称董功文是中国华信能源公司主席叶简明的”使者”。
-“我希望办公室的牌子能体现出以下内容”，他继续要求 “拜登基金会”和 “哈德逊西部（CEFC美国）”。
-他继续说：”租约仍将以我公司的名字Rosemont Seneca为名。”他提供了被他称为 “我的合伙人 “的董和叶的详细情况，以及他们的联系方式。
-根据这封邮件，亨特还提供了乔·拜登和吉姆·拜登的个人手机号码。
-在福克斯新闻获得的另一封邮件中，该大楼经理回应称，”我们非常兴奋和荣幸地欢迎你们的新同事”。随后，该经理要求确认亨特·拜登想多要四把钥匙，并 “在门上和北面入口处换上名字”。
-“瑞典之家”向福克斯新闻证实，亨特·拜登的公司Rosemont Seneca确实在那个时间段租用了办公空间。不过，他们拒绝透露更多信息。
-乔·拜登曾多次否认与儿子的商业交易有关。
-据参议院国土安全委员会和财政委员会称，亨特·拜登与叶简明主席、董公文和其他中国公民的商业联系，”导致数百万美元的可疑交易”。
-委员会还发现，亨特与董公文开设了一个银行账户，该账户为他的叔叔吉姆•拜登及其妻子萨拉的10万美元全球消费提供了资金。
+推特周六阻止用户点赞和回复川普总统的一系列推文，在这些推文中，川普重复了他赢得大选、比赛被 “偷 “走的错误说法。在推特限定的另一条推文中，总统称他 “以压倒性优势赢得了选举”，佐治亚州州长布莱恩-坎普（Brian Kemp）和亚利桑那州州长道格-杜西（Doug Ducey）允许选票被 “偷走”。总统周六的推文只是过去一个月来一系列最新的推文，宣传关于选举的虚假说法，未对推翻结果的州和民选官员表示不满。
 
-**原文链接**：[https://www.foxnews.com/politics/hunter-biden-requested-keys-new-office-mates-joe-biden-chinese-emissary-cefc-chairman.amp?\_\_twitter\_impression=true](https://www.foxnews.com/politics/hunter-biden-requested-keys-new-office-mates-joe-biden-chinese-emissary-cefc-chairman.amp?__twitter_impression=true)
+而当用户试图对这条推特做出反应或分享时，平台弹出了一条消息，内容是：”我们试图防止像这样违反推特规则的推特接触到更多的人，所以我们已经禁用了大部分的参与方式。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
+推特限制川普总统发布真实消息的行径与美国自由、民主、法治相违背，越来越多人意识到推特已经悄无声息的被中共“共产”了，这反而会有助于人民对真相的挖掘和觉醒。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20124027/PHOTO-2020-11-18-22-21-04.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+[原文链接](https://thenationalpulse.com/breaking/twitter-now-stops-americans-from-liking-replying-to-trump-tweets/)
 
 0

@@ -1,45 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 20201211东京樱花团晚间新闻速报
-` 东京樱花团-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/641657/)
+## 法国福迪扬(Fourtillan)医生因将新冠源头甩锅巴斯特研究所被关进精神病院
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/641763/)
 
-HTS-01C-202012-034
+作者：Ikonic 校对：Pv0
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/76543-1.jpg)
+今天的法国又被另一件事刷屏了，揭露新观冠真相纪录片Hold up里出镜的福迪扬医生被关进了加尔省（法国南部）精神病院。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/Holdup.jpg)
+**给中共洗地为那般？**
 
-1、日本政府否决暂停GO TO的提议；
+福迪扬医生在纪录片里明确说明是法国巴斯特研究所发明了新冠病毒而并非中共。他的论据是巴斯特研究所设计并创造了Sars Cov-1，并在2003年注册第一份专利。并在2003年到2011年间制造了Chadox-1疫苗。同年注册了第二份新冠病毒的专利。然而，闫博士已经多次说过新冠病毒是从舟山蝙蝠身上提取的，其专利权归中共解放军所有。
 
-2、大阪市将对本市内新增病床提供1000万日元补助；
+他的论据被很多法国自媒体引用，不知不觉间为中共洗地。诸如：中国白白的替法国背了锅，引起国际紧张局势。
 
-3、日本旅游巨头HIS财报显示销售额比去年下降46.8%，亏损250.37亿日元；
+**受争议的医生被关进精神病院**
 
-4、大阪世博会造价增加1.5倍，达到1850亿日元；
+福迪扬医生的言论引起了众多反响，在主流媒体公信力每况日下的法国，法国人也纷纷在自媒体里寻找各种“真相”。福迪扬医生被送精神病院的消息在推特上被吵的沸沸扬扬，多个大v转发了消息，公开了精神病院的地址和联系方式。顿时，医院接待室电话被打爆，中午时分再次爆出福迪扬医生入院是由该省的警察局局长亲自部署的。法国人纷纷大呼在自由法国发生如此事件简直不可相信。
 
-5、日本政府疫情对策小组，建议餐饮行业营业到晚上8点；
-
-6、日本央行可能在18日宣布将企业支持措施延长半年；
-
-7、厚生劳动省与英国制药公司阿斯利康正式签署合同，后者将提供6000万剂新冠疫苗；
-
-8、东京都12月11日595人确诊CCP病毒。
-
-
-
-新闻速报取材于下述链接：
-
-[https://news.yahoo.co.jp/pickup/6379041](https://news.yahoo.co.jp/pickup/6379041)
-
-[https://news.yahoo.co.jp/articles/d16663536f12502093125c25014117bb4b8e352d](https://news.yahoo.co.jp/articles/d16663536f12502093125c25014117bb4b8e352d)
-
-[https://news.yahoo.co.jp/articles/c4fdc49a9013530327f7305c5774f0ad05ca1e5b](https://news.yahoo.co.jp/articles/c4fdc49a9013530327f7305c5774f0ad05ca1e5b)
-
-[https://news.yahoo.co.jp/articles/0d1d626e3692abf007a236ed618d306d089601eb](https://news.yahoo.co.jp/articles/0d1d626e3692abf007a236ed618d306d089601eb)
-
-[https://news.yahoo.co.jp/articles/c64db4c3040f035421262ceb1302eed5914c7e61](https://news.yahoo.co.jp/articles/c64db4c3040f035421262ceb1302eed5914c7e61)
-
-[https://news.yahoo.co.jp/articles/460a6fcd1e38aa4b9a040de76975be36617b2855](https://news.yahoo.co.jp/articles/460a6fcd1e38aa4b9a040de76975be36617b2855)
-
-[https://news.yahoo.co.jp/articles/1d44cc97fe172b954eb76a2a4fde347eeaa19c11](https://news.yahoo.co.jp/articles/1d44cc97fe172b954eb76a2a4fde347eeaa19c11)
+天真的法国人不知道，跟中共走的近了，什么都学的会。这种把异见人士关入精神病院的事情在中共天朝里已经是司空见惯了。只要中共一日存在，今天在法国的警察野蛮执法，异见人士送精神病院会愈演愈烈，明天还会有被消失，被自杀。
 
 1+
