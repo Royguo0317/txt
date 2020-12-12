@@ -1,29 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 特鲁多的碳税计划将加剧贫富分化
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/639936/)
+## 【突发】中共CCTV 台湾分台&#8211;中天新闻台被关!
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/639983/)
 
-翻译/简评：草原三省战友团 文莱
-校对 文锦 上传 云起时
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11165232/fraser-institute.jpg)图片来源：www.fraserinstitute.org
-据后千禧年报（The Post Millennial）12月11日报道，加拿大总理贾斯汀·特鲁多（Justin Trudeau）日前宣布，他的自由党政府将在周五的新闻发布会上将污染排放价格每吨每年提高15加元，届时部长乔纳森·威尔金森（Jonathan Wilkinson），史蒂芬·吉尔伯特（Steven Guilbeault）和凯瑟琳·麦肯纳（Catherine McKenna）也将出席。
-
-按计划从2022年开始，碳价将每年持续上涨直至2030年达到每吨170加元。环境部长威尔金森说：“通过该计划， 加拿大人将超过《巴黎协定》规定的2030年温室气体排放目标。不过我们将为在2050年之前建立零净排放奠定基础，并在该国每个地区建立长期、可持续的社区。这个计划将会吸取投资用于建设包括零排放汽车计划等。”
-
-据《布莱克洛克的记者》（Blacklock’s Reporter）披露，该计划实施的第一年中拿到了186,079,748加元的回扣，并且纳税人还支付了超过7000万加元以补贴购买加利福尼亚州（California）的电动汽车。除了先前承诺的600亿加元，特鲁多自由主义者计划实施总额为150亿加元。
-
-特鲁多警告加拿大人，没有方法可以抵御气候变化。特鲁多说：“没有方法可以解决一个被污染的星球。我们已经付出了史无前例的风暴、山火、洪水和热浪的代价，这些都将带来实际的经济成本并威胁我们的健康。因此为了加快努力，我们将通过该计划投资152亿加元，并且还会有更多的投资，我们的计划将提高房屋和建筑物的能源效率，以减少能源浪费，同时还可以帮助人们减少开支。1月将看到‘永久性公共交通资金计划’，从2023年开始，我们通过将污染价格每年每吨增加15加元的方式把更多的钱投入加拿大人的口袋里。”
-
-根据《全球新闻》（Global News）的数据，加拿大人将在2030年之前每升汽油多支付39.6分。
-
-简评：
-碳税的首要目的是为了减少温室气体的排放量，不过过量的增加碳税会提高能源价格，公司支出上升，因此会产生一定量的社会次生灾难比如失业率上升，本地产业竞争力下降，最终贫富分化加剧。由于中共病毒的肆虐，加拿大目前的状况并不乐观，救济金的分发不公平，以及接下来的碳税增加，试问自由派为何在这危难之时不断地剥削加拿大人的利益？
-
-[原文链接](https://thepostmillennial.com/trudeau-announces-carbon-tax-increase?utm_source=pushly)
+- 编辑：Victor Torres
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
+**西班牙2020年12月11日电/西喜社——**台湾当地时间，12月12日零时，中天新闻台停播，将转移至YouTube播出。
+中天新闻台，是旺旺中时媒体集团中天电视旗下的新闻频道，于1994年9月1日开播，前身为传讯电视中天频道。2020年11月18日被中华民国国家通讯传播委员会裁定不获续照，其执照在12月11日到期。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11171213/001.jpeg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11171202/002.jpeg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 2+

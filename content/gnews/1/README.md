@@ -1,38 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 出现艾滋病假阳性测试结果 澳洲取消疫苗开发
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/640730/)
+## 从几条线看CCP对美国的渗透方式-英喜原创
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/640793/)
 
-多伦多枫叶农场 文𤦍(Manpui）
-校对 上传 云起时
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12002438/pharmalive.com-2.jpg)图片来源：pharmalive.com
-零对冲(Zerohedge)网站创办人泰勒·杜顿 （TYLER DURDEN）于2020年12月11日报道；由于出现了人类免疫缺乏症病毒(HIV) 假阳性测试结果，澳大利亚取消了中共病毒疫苗的进一步研发。
+**作者：freedust｜编辑：海阔天空｜PAGE：玄天生**
 
-在几名参与者对HIV测试呈假阳性后，澳大利亚政府取消了中共病毒疫苗的进一步开发。 该疫苗是由昆士兰大学开发的，而澳大利亚生物技术公司CSL Limited已与之签订合同，提供5100万剂疫苗。 该疫苗原定于2021年中期推出，第二期和第三期临床试验将于12月开始。
+首先我们来看一下事实：
 
-该疫苗的联合首席研究员保罗·杨教授说，可以对它进行重新设计，以避免假阳性，但是时间不够。 他说：“这样做将使开发又推迟12个月左右，虽然这是一个艰难的决定，但迫切需要疫苗是每个人的当务之急。”
+#### 一、赵美心、方芳与（美国）中国和平统一促进会联盟
 
-澳大利亚总理斯科特·莫里森（Scott Morrison）週五宣布，“昆士兰大学的疫苗无法根据科学建议继续进行开发，并且将不再作为澳大利亚疫苗计划的一部分。”“ 我们今天作出的决定应给了澳大利亚人足够的保证，我们正在谨慎行事，以及正在迅速採取行动，并不要在这裡有任何不当之急。”
+1. CA Dem Rep. Judy Chu, 赵美心，生于美国加州，祖籍广东省新会，美国联邦众议员，代表民主党在加州第32选区当选，历史上第一位华裔女性众议员，美国国会联邦众议院教育与劳动委员会委员。（来自维基百科）。
 
-CSL也在周五的一份声明中说：“在与澳大利亚政府协商之后，CSL将不会使该候选疫苗进入2/3期临床试验。”
+2. 这是一张赵与最近被暴露的中共间谍Fang Fang的照片
 
-“我们的程序将不会受到妥恊。最终，都是必须由治疗用品管理局予以批准。如果得不到批准，在这个国家就不会当成疫苗使用。 对于Covid-19疫苗而言，这是正确的，对在澳大利亚这裡施用的任何其他疫苗而言，做法也是如此。”
+[!\[\]()!\[\](https://spark.adobe.com/page/CsaZKdVkmLsmc/images/ad8932d3-0935-4957-a22a-d916a08c5834.png?asset_id=5188f80d-beec-47e0-9433-67eb1c95c730&amp;img_etag=%228eb6f30735cc212b563acdc0740c4546%22&amp;size=3138)](https://spark.adobe.com/page/CsaZKdVkmLsmc/images/ad8932d3-0935-4957-a22a-d916a08c5834.png?asset_id=5188f80d-beec-47e0-9433-67eb1c95c730&amp;img_etag=%228eb6f30735cc212b563acdc0740c4546%22&amp;size=1024)
 
-根据澳大利亚十大新闻，放弃昆士兰大学疫苗的决定是出于担心假阳性结果会使澳大利亚人因恐惧而远离该疫苗，儘管事实上患者实际并未感染该疾病。
+3. 赵美心被聘为（美国）中国和平统一促进会联盟（美国统促会联盟）荣誉主席
 
-该疫苗是澳大利亚政府掌握的四种疫苗之一，现在澳大利亚政府将重点转移到阿斯利康(AstraZeneca)疫苗和辉瑞公司(Pfizer’s)的疫苗上。
+[原文：美国统促会联盟换届 美国会议员赵美心被聘联盟荣誉主席](http://acprusa.com/news/08252019sCA..html)
 
-现已取消的疫苗是专注于使用“分子钳”技术，将中共病毒的“穗蛋白”锁定为一种可以被人类免疫系统识别和中和的形状。 为了确保免疫反应，选择用来诱骗免疫系统攻击的箝位包含HIV中存在的两种蛋白质片段，它们本身并不构成威胁。
+[!\[\]()!\[\](https://spark.adobe.com/page/CsaZKdVkmLsmc/images/2b88debf-b886-42b1-97d9-693e27073f1c.jpg?asset_id=b981d131-64fb-458d-85f9-c6e9dc2d704a&amp;img_etag=%229f73201f8969494419edc99b4c8d0ebc%22&amp;size=2560)](https://spark.adobe.com/page/CsaZKdVkmLsmc/images/2b88debf-b886-42b1-97d9-693e27073f1c.jpg?asset_id=b981d131-64fb-458d-85f9-c6e9dc2d704a&amp;img_etag=%229f73201f8969494419edc99b4c8d0ebc%22&amp;size=1024)
 
-衞报（The Guardian)说: “试验参与者已被告知可能会检测到疫苗诱导的HIV抗体的可能性。”虽然如此，结果依旧出人意料之外。 随后为试验参与者提供的艾滋病毒检测确定结果为阴性。
+4. 中国和平统一促进会联盟（CCPPNR）是中共统战部于1988年成立的组织，目的是按照中共国单独指定的条件促进中国大陆与台湾之间的统一。理事会由俞正声任主席，副主席为孙春兰。2019年，佛罗里达州议会副主席Li “Cindy” Yang试图进入Mar-a-Lago后被捕并被定罪。
 
-儘管艾滋病毒检测呈假阳性，并且没有给试验参与者带来风险，但他们认为仍需要对完善的艾滋病毒检测程序进行重大改变以适应这种疫苗的推出。 1期试验将继续进行，进一步的数据分析将显示抗体持续存在多长时间。
+#### 二、密歇根州副州长与“中国人民对外友好协会”
 
-卫生部长格雷格·亨特（Greg Hunt）表示，儘管艾滋病毒检测结果是错误的，但“科学建议是，疫苗风险的信任度在这裡是主要问题。”亨特还说:”与此同时，澳大利亚已经签定了1.4亿剂疫苗的合同，这是世界上购买疫苗和获得疫苗的比例最高的国家之一”
+1. 密歇根州副州长Garlin Gilchrist参加了中共党员和美国州长间的“合作峰会”，该峰会举行于2019年5月，当时被川普政府严厉批评的“中国人民对外友好协会”一起主持了会议。同时与会的还有肯塔基和田纳西的州长，一个中共市长，两个副省长和一名省长。
 
-评：由此可见澳洲政府仍未看清楚“中共”的伎俩。不论是蒙闭双眼还是已被人“蓝金黄”，中共所谓的“全球命运共同体”不止要你的钱袋子、还要你的自由、你的国家、你的信仰，是时候全球正义联盟展开战略合作，把这个即将定性“跨国犯罪组织”的中共团伙彻底清除。还地球一片光明！
+[原文：Michigan Lt Gov Attended Chinese Communist Party Conference With Secret Meetings, Chinese Military Ties](https://thenationalpulse.com/breaking/michigan-gov-ccp-conference/)
 
-[原文链接](https://www.zerohedge.com/medical/australia-cancels-covid-vaccine-trial-over-unexpected-false-positives-hiv)
+2. 中国人民对外友好协会（CPAFFC）是中华人民共和国的三大外交组织之一。它的既定目的是促进中国人民与外国之间的友谊和相互理解，但观察家指出，它在统一战线系统中起着领导组织的作用，该系统曾经影响和共同选择精英来促进中国共产党的利益。（维基百科））
 
-1+
+3. MEDC数据显示，中国对密歇根州的外商直接投资（FDI）在2011至2017年达到了12.1亿美元，其中42%来自汽车零部件和原始设备制造商。自2011年以来，中资在该州通过FDI方式创造了6000余个就业机会，在全美排名第三。2017年，中国企业在该州投资了1.9亿多美元，创造了1078个就业岗位。目前，在密歇根州活跃着300多家中企。这其中也包括2015年，Henniges Automotives被中航集团（AVIC）的全资子公司收购事件，这是历史上司对美国汽车制造公司中国公司对美国一家汽车制造公司的历史上最大的一笔收购。此次收购还与渤海金控的建立有联系。
+
+[原文（后半部为维基及那个Hunter Biden腐败的PDF内容）](https://www.sohu.com/a/255888274_114986)
+
+#### 三、乔治城大学与正大集团
+
+乔治城大学最近受到审查，该大学从与中共有关系的泰国公司收到了1000万美元的资助。乔治城大学是美国政府高级安全官员的摇篮。乔治城（Georgetown）官员坚称，由总部位于曼谷的正大集团的Spring Breeze Foundation的赠款不会限制该计划的学术独立性，但他们拒绝公开该合同。正大集团的高级主席，华裔泰国亿万富翁达宁·谢拉瓦农（Dhanin Chearavanont）在去年在北京举行的一次会议上被一个名为“中国海外友好协会”的联合阵线组织授予了荣誉，在那里他与中国国家主席习近平坐在一起。
+
+[原文：Congress shines light on Georgetown’s CCP-linked foreign funding](https://www.washingtonpost.com/opinions/2020/12/09/congress-shines-light-georgetowns-ccp-linked-foreign-funding/)
+
+由以上事实可以看出，中共对西方社会全方位渗透和中共统战部在其中扮演的重要角色，他们通过金钱和美色，利用民主建设的漏洞和政治沼泽中的灰色地带，一步步蚕食学术、安全、商务、决策等机构。
+
+同时我们也可以通过这张织网中的每根丝寻找到与中共勾兑的每个节点，将其绳之于法。沼泽排干在即，我们希望那些曾经与中共同流，或是被胁迫的人悬崖勒马，揭露这其中的丑恶真相，才是助人助己，减少伤害的不二途径。
+
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/CsaZKdVkmLsmc/)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/CsaZKdVkmLsmc/images/bcbc66cf-ec26-4038-9f3a-41f9ca2a1fd3.jpg?asset_id=4844c804-b01a-49ba-b9fe-89b1303363ba&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/CsaZKdVkmLsmc/images/bcbc66cf-ec26-4038-9f3a-41f9ca2a1fd3.jpg?asset_id=4844c804-b01a-49ba-b9fe-89b1303363ba&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
+0
