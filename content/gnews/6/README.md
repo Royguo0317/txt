@@ -1,33 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 20201211晚间路德社新闻总结
-` 东京樱花团-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/641831/)
+## 【突发】法证调查证明多米尼投票机操纵了选票
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/642352/)
 
-HTS-01C-202012-033
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12101021/666-3.jpg)
-
-1、彭配奥演讲说，中共终奖崩溃，美国为了维护繁荣，已经无法再等待，我们有义务保护自己；
-
-2、美国将以北约联军的形式灭共；
-
-3、美国驻华使馆发推特说，中国共产党最大的受害者其实是无辜的中国公民自己，这是一个悲剧；
-
-4、中共国防部长魏凤和在东盟防长扩大会议说，中国军队坚决维护国家主权、安全和领土完整，妄图挑唆东盟对抗美国，国防部长魏凤和没有实际军权，军权在中共军委；
-
-5、王毅突然改口呼吁中美双方开启各层级、各领域平等对话，与四天前居高临下的对美态度截然相反；
-
-6、只要北约成员国有一国确认被中共侵略，北约就可以对中共进行军事打击；
-
-7、应美国要求，加拿大取消中共军队训练营；
-
-8、彭佩奥无视中国对等制裁，再宣布包括厦门公安局在内的17人制裁名单；
+- 编辑：Victor Torres
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**原新闻视频：**
+**西班牙2020年12月12日电/西喜社——**昨晚，密歇根州安特里姆县多米尼投票机的法证信息技术检查结果证明，该县的多米尼投票机将川普的选票改到了拜登名下。
+据报道，一个月前该县将6000张选票从川普总统转移给了乔·拜登。
+昨晚马特·德佩诺(Matt DePerno)律师在Newsmax上，与格雷格·凯利(Greg Kelly)分享了爆炸性信息:
+“好吧，州务卿乔塞琳·本森(Jocelyn Benson)说这是人为错误造成的。 我们发现那不是事实，那是谎言。 这不是人为错误造成的。 这是通过名为多米尼投票系统(Dominion Voting System)的计算机程序发生的。 通过诉讼，我们得以访问该程序。而我的团队在上周日去了，我们在该计算机系统上拍摄了取证图像，取得了16个CF数据卡，16个优盘，并获得目前在安特里姆县办公室的机器的取证图像。
 
+**新闻来源：**[https://www.thegatewaypundit.com/2020/12/yesterdays-biggest-story-dominion-voting-machines-caught-manipulating-votes-per-forensic-investigation/](https://www.thegatewaypundit.com/2020/12/yesterdays-biggest-story-dominion-voting-machines-caught-manipulating-votes-per-forensic-investigation/)
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/18075158/Portada-Dominion-ccp-1.jpeg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0
