@@ -1,59 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 从几条线看CCP对美国的渗透方式-英喜原创
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/640793/)
+## 【重磅快递】鲍威尔律师向最高法院提交四个大选舞弊州的紧急诉案
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/640910/)
 
-**作者：freedust｜编辑：海阔天空｜PAGE：玄天生**
+作者：Shawn【㊙️翻Gnews原创组】
+责编：Skagen
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12015017/Picture23.png)
+图片来源：Doug Chayka / NBC News
+美国最高法院在12月11日美东时间傍晚驳回了德克萨斯州对佐治亚、密歇根、亚利桑那和威斯康星州的起诉案。晚上大约10点的时候，川普总统原律师团队成员西德尼・鲍威尔（Sidney Powell）大律师向最高法院提交了关于佐治亚州和密歇根州的紧急诉案。而且很快会提交关于亚利桑那州和威斯康星州的紧急诉案。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12014930/Picture24.png)来源：Twitter/SidneyPowell1
+鲍威尔律师表示，所有这四个州的诉案提出了(违背)宪法问题，能证明这次总统大选存在大量的选举盗窃行为。作为原告方的美国人民，我们有资格发起这些诉案。我们作为美国人民不会允许贿选舞弊行为。
 
-首先我们来看一下事实：
+下午最高法院驳回德州关于这四个州存在的大选舞弊行为诉案的理由是，根据宪法第三条规定，德州没有资格提起诉讼。德州无法证明其他州的选举行为如何影响其司法上认可的利益。所有其他未决动议均因无意义而被驳回。
 
-#### 一、赵美心、方芳与（美国）中国和平统一促进会联盟
+附带这个很简单的判决理由的是阿利托大法官（Samuel Alito）的声明，托马斯大法官(Clarence Thomas)也认可这一声明。阿里托个人认为，“我们没有自由裁量权来拒绝属于我们原管辖范围的案件的申诉。见亚利桑那州诉加利福尼亚州，589 U.S. \_\_\_(2020年2月24日) (托马斯, J., 不同意见)。因此，我将批准提交申诉书的动议，但不会批准暂停确证大选诉求。对任何其他问题不发表意见。”![]()
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12014937/Picture25.png)来源：[https://www.supremecourt.gov/orders/courtorders/121120zr\_p860.pdf](https://www.supremecourt.gov/orders/courtorders/121120zr_p860.pdf)
+可见最高法院里阿利托大法官和托马斯大法官是同意受理关于控诉这四个州的大选舞弊案的。但他们不同意德州总检察长提出的这个案子中关于紧急停止对大选结果进行确证的动议。然后这个案子毕竟是被驳回了。左派媒体一片欢呼雀跃。认为最高法院的这个判决结果，直接宣判了总统律师团队通过最高法院进行上诉的“死刑”结果，无力扭转拜登获胜的选举结果。
 
-1. CA Dem Rep. Judy Chu, 赵美心，生于美国加州，祖籍广东省新会，美国联邦众议员，代表民主党在加州第32选区当选，历史上第一位华裔女性众议员，美国国会联邦众议院教育与劳动委员会委员。（来自维基百科）。
+但事实并非如此，最高法院的简单的裁决理由认为德州没有控告其他州大选舞弊的资格。但阿里托和托马斯大法官，明确表示最高法院应该受理不同州之间的纠纷。但他们不同意该法案中关于停止确证大选结果的诉求。根据这一事实，所以鲍威尔律师才连夜发出了对这四个大选舞弊争议州的紧急诉案。
 
-2. 这是一张赵与最近被暴露的中共间谍Fang Fang的照片
+新中国联邦奠基人郭文贵先生说过，美国大选的结果一定是川普总统获胜。因为有铁一样的证据（人证、物证和情报信息）可以证明拜登团队是靠选票机器修改数据和填充大量假票而“赢”得大选的。今天的高院判决已经开始展现美国大选结果滑稽的一面了。本以为六名保守派大法官，肯定会很安全地受理并认定大选舞弊的事实，最终确定川普总统顺利连任成功。但事实就是这样，像过山车一样，让川普总统及其支持者们认清了现实的残酷和复杂性。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/CsaZKdVkmLsmc/images/ad8932d3-0935-4957-a22a-d916a08c5834.png?asset_id=5188f80d-beec-47e0-9433-67eb1c95c730&amp;img_etag=%228eb6f30735cc212b563acdc0740c4546%22&amp;size=3138)](https://spark.adobe.com/page/CsaZKdVkmLsmc/images/ad8932d3-0935-4957-a22a-d916a08c5834.png?asset_id=5188f80d-beec-47e0-9433-67eb1c95c730&amp;img_etag=%228eb6f30735cc212b563acdc0740c4546%22&amp;size=1024)
+最伟大的成功，必定是经历最艰险阻的挑战之后的成功。现在依然存在其他的渠道，比如州一级的立法机构的听证和召开特别议会来判定结果。而且还有情报与军事法庭的渠道，川普总统还没有打开呢。相信正义一定战胜邪恶，光明一定战胜黑暗，川普总统一定会再次当选！
 
-3. 赵美心被聘为（美国）中国和平统一促进会联盟（美国统促会联盟）荣誉主席
-
-[原文：美国统促会联盟换届 美国会议员赵美心被聘联盟荣誉主席](http://acprusa.com/news/08252019sCA..html)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/CsaZKdVkmLsmc/images/2b88debf-b886-42b1-97d9-693e27073f1c.jpg?asset_id=b981d131-64fb-458d-85f9-c6e9dc2d704a&amp;img_etag=%229f73201f8969494419edc99b4c8d0ebc%22&amp;size=2560)](https://spark.adobe.com/page/CsaZKdVkmLsmc/images/2b88debf-b886-42b1-97d9-693e27073f1c.jpg?asset_id=b981d131-64fb-458d-85f9-c6e9dc2d704a&amp;img_etag=%229f73201f8969494419edc99b4c8d0ebc%22&amp;size=1024)
-
-4. 中国和平统一促进会联盟（CCPPNR）是中共统战部于1988年成立的组织，目的是按照中共国单独指定的条件促进中国大陆与台湾之间的统一。理事会由俞正声任主席，副主席为孙春兰。2019年，佛罗里达州议会副主席Li “Cindy” Yang试图进入Mar-a-Lago后被捕并被定罪。
-
-#### 二、密歇根州副州长与“中国人民对外友好协会”
-
-1. 密歇根州副州长Garlin Gilchrist参加了中共党员和美国州长间的“合作峰会”，该峰会举行于2019年5月，当时被川普政府严厉批评的“中国人民对外友好协会”一起主持了会议。同时与会的还有肯塔基和田纳西的州长，一个中共市长，两个副省长和一名省长。
-
-[原文：Michigan Lt Gov Attended Chinese Communist Party Conference With Secret Meetings, Chinese Military Ties](https://thenationalpulse.com/breaking/michigan-gov-ccp-conference/)
-
-2. 中国人民对外友好协会（CPAFFC）是中华人民共和国的三大外交组织之一。它的既定目的是促进中国人民与外国之间的友谊和相互理解，但观察家指出，它在统一战线系统中起着领导组织的作用，该系统曾经影响和共同选择精英来促进中国共产党的利益。（维基百科））
-
-3. MEDC数据显示，中国对密歇根州的外商直接投资（FDI）在2011至2017年达到了12.1亿美元，其中42%来自汽车零部件和原始设备制造商。自2011年以来，中资在该州通过FDI方式创造了6000余个就业机会，在全美排名第三。2017年，中国企业在该州投资了1.9亿多美元，创造了1078个就业岗位。目前，在密歇根州活跃着300多家中企。这其中也包括2015年，Henniges Automotives被中航集团（AVIC）的全资子公司收购事件，这是历史上司对美国汽车制造公司中国公司对美国一家汽车制造公司的历史上最大的一笔收购。此次收购还与渤海金控的建立有联系。
-
-[原文（后半部为维基及那个Hunter Biden腐败的PDF内容）](https://www.sohu.com/a/255888274_114986)
-
-#### 三、乔治城大学与正大集团
-
-乔治城大学最近受到审查，该大学从与中共有关系的泰国公司收到了1000万美元的资助。乔治城大学是美国政府高级安全官员的摇篮。乔治城（Georgetown）官员坚称，由总部位于曼谷的正大集团的Spring Breeze Foundation的赠款不会限制该计划的学术独立性，但他们拒绝公开该合同。正大集团的高级主席，华裔泰国亿万富翁达宁·谢拉瓦农（Dhanin Chearavanont）在去年在北京举行的一次会议上被一个名为“中国海外友好协会”的联合阵线组织授予了荣誉，在那里他与中国国家主席习近平坐在一起。
-
-[原文：Congress shines light on Georgetown’s CCP-linked foreign funding](https://www.washingtonpost.com/opinions/2020/12/09/congress-shines-light-georgetowns-ccp-linked-foreign-funding/)
-
-由以上事实可以看出，中共对西方社会全方位渗透和中共统战部在其中扮演的重要角色，他们通过金钱和美色，利用民主建设的漏洞和政治沼泽中的灰色地带，一步步蚕食学术、安全、商务、决策等机构。
-
-同时我们也可以通过这张织网中的每根丝寻找到与中共勾兑的每个节点，将其绳之于法。沼泽排干在即，我们希望那些曾经与中共同流，或是被胁迫的人悬崖勒马，揭露这其中的丑恶真相，才是助人助己，减少伤害的不二途径。
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/CsaZKdVkmLsmc/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/CsaZKdVkmLsmc/images/bcbc66cf-ec26-4038-9f3a-41f9ca2a1fd3.jpg?asset_id=4844c804-b01a-49ba-b9fe-89b1303363ba&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/CsaZKdVkmLsmc/images/bcbc66cf-ec26-4038-9f3a-41f9ca2a1fd3.jpg?asset_id=4844c804-b01a-49ba-b9fe-89b1303363ba&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+（本文仅代表作者观点）
 
 0
