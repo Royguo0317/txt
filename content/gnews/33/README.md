@@ -1,30 +1,106 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 普通民警黄元雄被制裁意味着中共迫害法轮功的整个系统的末日
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/640222/)
+## 中国资金通过TikTok资助了Facebook的事实检查
+` GM06` [轉載自GNews](https://gnews.org/zh-hans/640154/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11181944/%E5%B0%81%E9%9D%A2-15.png)
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+作者：文小森
 
-据[黄元雄 – 百度百科](https://www.baidu.com/link?url=GlMSBePXh2ZEYGZfWHK0sp0JElxkfmxn6yvG0AO6iwwBKvBDn5uFFj6TLF17MIsYvapjX_UefkI0BoyujfXht3zLYKHkzV5vhbo85yxpXbEmNphHSW3rfv7wqC57Ss3k&amp;wd=&amp;eqid=8c6b559f0016a405000000065fd3f714)：走红事件，2020年12月，美国国务院于宣布了一批制裁国外官方人员的名单，其中包括来自中国厦门市的民警黄元雄。
+尽管脸书将其事实检查人员队伍描述为独立的，但背后的钱不只一个带有明显的污点。事实检查员Lead Stories通过与抖音（TikTok）的合作而获得部分报酬，抖音是一家由中国公司运营的社交媒体平台，该公司应效忠于中国共产党（CCP）。美国当局目前正在将抖音视为国家安全威胁。
 
-这起所谓走红事件的消灭来源是[Public Designations of Current and Former Government Officials Under Section 7031(c) of the Department of State, Foreign Operations, and Related Programs Appropriations Act Due to Involvement in Gross Violations of Human Rights](https://www.state.gov/public-designations-of-current-and-former-government-officials-under-section-7031c-of-the-department-of-state-foreign-operations-and-related-programs-appropriations-act-due-to-involvement-in-gross/)：
+此外，抖音的另一位合作伙伴波因特学院（Poynter Institute）负责监督事实检查人员的质量。
 
-［Finally, the State Department is designating Chief Huang Yuanxiong of the Xiamen Public Security Bureau Wucun Police Station for his involvement in gross violations of human rights in Xiamen, China.  Huang is associated with particularly severe violations of religious freedom of Falun Gong practitioners, namely his involvement in the detention and interrogation of Falun Gong practitioners for practicing their beliefs.  Today’s action also applies to Mr. Huang’s spouse.  The world cannot stand idly by as the PRC government perpetrates horrific and systematic abuses against people in China, including violating the internationally recognized right to freedom of thought, conscience, and religion or belief.
+Lead Stories表示，它已与字节跳动签订合同，“用于事实检查相关工作”，指的是抖音在今年早些时候宣布与多个组织合作，“以进一步帮助我们减少错误信息的传播，”特别是关于源自中国的中共病毒大流行，并因中共政权的掩盖而加剧的消息。
 
-中文大意：最后，国务院指定厦门公安局武村派出所所长黄元雄，因为他参与了中国厦门的严重侵犯人权行为。 黄与法轮功学员的宗教自由受到特别严重的侵害有关联，即他参与了为实践信仰而对法轮功学员的拘留和审讯。 今天的行动也适用于黄先生的配偶。 随着中国政府对中国人民实施可怕和系统的虐待，包括侵犯国际公认的思想，良心，宗教或信仰自由权，世界不能袖手旁观。 ］
+Lead Stories由比利时网站开发人员Maarten Schenk，CNN老兵Alan Duke以及两名来自佛罗里达和科罗拉多州的律师于2015年开始的。它在2017年列出的运营费用不到50,000美元，但到2019年增长了7倍，这很大程度上要归功于Facebook在2018年和2019年支付了超过460,000美元的事实检查服务费。该公司雇用了十几名员工，其中约有一半是CNN校友，并成为Facebook美国内容调查中最多产的事实检查者之一。
 
-这一起事件被中共媒体蓄意引导成为一个笑料，据[环球时报新媒体](https://mp.weixin.qq.com/s/Bsf0PP3bVgCEjf9Gt_s1WQ)于2020-12-11 18:02发布的[不是玩笑：中国一位派出所民警被美国制裁了](https://world.huanqiu.com/article/413jwLkGz4W) ：
+今年，资金来源包括谷歌，脸书，字节跳动和一些在线广告服务。该组织说，去年的广告收入不到25,000美元。它说，其资金的大部分仍来自Facebook。
 
-［而这位黄警官被美国政府制裁的事情之所以特别好笑，主要有以下两个原因：首先，虽然蓬佩奥在美国国务院的制裁名单中将黄警官的头衔说得很“大”，按照英文语序直译的话是“黄元雄警长，厦门公安局梧村警察局”，但实际上人家黄警官只是梧村派出所一位很普通的基层民警。不过，虽然身份普通，但对待工作黄警官却是认真负责的。公开资料显示，他曾在2015年获得过福建省全省（首届）“十大法治新闻人物”的表彰，他在服务社区方面非常用心。］
+其收入的一部分来自对病毒式内容跟踪工具“ Trendolizer”的订阅。它说：“出于隐私的原因，我们无法透露Trendolizer用户的名单……但是，没有一个人单独占我们收入的5％以上。”
 
-［其次，美国国务院制裁黄警官的理由，即他“侵犯”邪教法X功分子的“宗教自由”，就更可笑了。因为除了传播违法害人的邪教思想在中国被打击，这个当年被美国政府敞开双臂接到美国去的邪教组织，如今更因为不断干涉美国大选，为败选的美国现任总统特朗普传播政治阴谋论，甚至还在新冠疫情上散布大量谣言，而引起了美国主流社会的反感。多家美国主流媒体在过去这一两年更是不断刊文，揭露这个邪教组织。所以，如今黄警官被美国国务院因为法X功而制裁，就让人不得不怀疑是不是迄今都不愿意承认败选的特朗普当局，在滥用美国的公权力迫害他人，以进一步收买这个邪教组织。若果真如此，那这届美国政府可真算得上是“人类之癌”了。］
+Trendolizer网站仅显示三个由其“支持”的页面：Trendolizer.com，LeadStories.com和StoryTide.com，这是LeadStories在2016年启动的新闻汇总器。Lead Stories没有回复通过电子邮件发送的问题。
 
-黄元雄被美国政府制裁这件事真的像中共媒体所宣称的这样是非常可笑的吗？其实未必，美国政府的制裁中列明黄元雄参与对法轮功迫害的事实，这应该算一个里程碑事件，黄元雄被制裁标志着所有对法轮功实施抓捕和侵犯人权事件的中共鹰犬及610办公室系统的官员们在接下来将正式进入美国的制裁名单！
 
-黄元雄被制裁可笑吗？它一点也不可笑，尤其是对于那些参与迫害法轮功的中共官员来说，黄元雄被制裁是否意味着法轮功事件始作俑者的江泽民最终进入制裁名单呢？关于这一点笔者不敢妄言，但是我们必须铭记黄元雄被制裁的这一刻——它意味着中共迫害法轮功的整个系统的末日已经到来，它更意味着中共所有参与法轮功之外的其它宗教迫害者的末日！
 
-（文章内容仅代表作者个人观点）
+审查制度
 
-3+
+Facebook的事实检查合作伙伴关系因为其促进了审查制度而受到批评。该公司在其网站上说，被合作伙伴标记为假的帖子不仅带有警告标签和事实检查链接，而且Facebook“大大减少了看到该帖子的人数”。
+
+事实检查人员自己可以选择要审查的内容，并确定哪些内容以及为什么标记为虚假。有关裁决的任何投诉都必须向哪些不会轻易逆转他们自身想法的事实检查员提出，即使他们的事实检查本身也需要事实检查。
+
+Lead Stories最近专注于声称有关选民欺诈的争议，这有助于在Facebook上对该话题进行审查。
+
+
+
+字节跳动
+
+抖音的所有者，北京的字节跳动，也有自己的审查制度之争。
+
+2019年9月，《卫报》报道说，抖音指示其主持人审查提及某些被中国政权视为“敏感”的话题的视频，例如天安门大屠杀和法轮功，法轮功是自1999年以来在中国遭到严重迫害的精神修行。该报告基于泄露的文档，其中详细介绍了该应用程序的审核准则。
+
+抖音回应说，此类政策已于2019年5月被替换，不再使用。
+
+但在12月，该平台再次因暂停一名美国青少年的帐户而遭到抨击。该名青少年发布了一段视频，批评北京在中国偏远的西部新疆地区镇压维吾尔族穆斯林。
+
+字节跳动未回复有关事实检查员合作伙伴关系的电子邮件问题。
+
+六月，该应用程序关闭了一名在新泽西州的中国留学生的帐户，原因是他发布了一段戏弄中国国歌的视频。
+
+效忠党
+
+中国企业被要求走上党派路线，《字节跳动》的创始人张一鸣发现了甚至连对中共审查制度缺乏热情也是无法被容忍的。
+
+2018年，中共官方关闭了他的幽默和模因应用程序“内涵段子”。作为回应，张发了一封自我批评信，誓言效忠党的议程。
+
+信中说：“我们的产品走错了路，出现的内容与社会主义核心价值观不符，未能正确执行民意指导。”
+
+张承诺他的公司将专注于“加强党的建设，在全体员工中进行“四种意识”，社会主义核心价值观，正确引导舆论，法律法规的教育，正确的承担公司的社会责任。”
+
+“四个意识”是指中共领导人习近平几年前发布的意识形态指示，要求党员紧紧拥护中共意识形态，支持习近平，与党的领导保持一致，并思考“大局”。
+
+张还承诺“进一步深化与官媒的合作，提高权威媒体内容的传播，确保官媒声音被有力的传播。”
+
+美国司法部在最近的法庭文件中援引了张的来信，称他是中共政权的“喉舌”。
+
+
+
+国家安全威胁
+
+特朗普政府正在审查字节跳动在2017年对Musical.ly的收购，Musical.ly是一个在美国青少年中由于口型同步视频而广受欢迎的中国视频共享平台。收购后，字节跳动关闭了该平台，其数百万用户被迫切换到抖音，该应用程序开始在美国年轻人之间知名度的大幅增长。
+
+美国政府和一些国会议员表示，抖音是一项国家安全威胁，因为《字节跳动》受中国法律管辖，其中包括一项规定，即公司必须使其所有数据均受中国政府控制。字节跳动表示，其抖音服务在美国托管，在新加坡备份。中共与新加坡政府保持着密切的关系。
+
+美国商务部对抖音发出了有效禁令，该禁令原定于11月12日生效，但此举已被法院阻止。
+
+美国政府正在与字节跳动进行谈判，以将其在美国的资产出售给沃尔玛和甲骨文。
+
+
+
+谁检查事实检查员？
+
+脸书通过说事实调查员需要得到国际事实检查网络（IFCN）的认证，来加强其使用事实调查的理由。该组织成立于2015年，由非营利性新闻学院波因特学院（Poynter Institute）经营。
+
+抖音将波因特（Poynter）及其另一个事实检查项目MediaWise列为合作伙伴。
+
+波因特市场总监Tina Dyakon拒绝透露字节跳动支付给该组织多少钱。
+
+“我们没有透露商业合同的细节，”她通过电子邮件告诉《大纪元》。 “ 波因特今年与抖音合作进行事实检查和媒体素养工作。”
+
+她说波因特保持编辑独立性，并遵循其道德政策。
+
+在2019年，IFCN几乎完全由eBay创始人皮埃尔·奥米迪亚 (Pierre Omidyar)
+（民主党的主要捐助者）以及谷歌和左倾的亿万富翁乔治.索罗斯资助。 脸书也被列为以前的捐助者之一。
+
+谁获得认证是由IFCN的七人咨询委员会（由事实检查组织的代表组成）决定的。似乎只有两个人没有涉及美国政治新闻的经验。一个是格伦·凯斯勒（Glenn Kessler），他是前外交政策记者，现在是《华盛顿邮报》的事实检查机构负责人。凯斯勒（Kessler）和他的团队在今年早些时候出版了一本书，名为“唐纳德·川普及其对事实的攻击”。
+
+另一个是由波因特拥有的PolitiFact主编Angie Drobnic Holan。
+
+IFCN董事Baybars Orsek此前曾向《大纪元》（The Epoch Times）表示，董事会成员对自己所担任的主要职务的组织不再投票和审议证书。
+
+路透社对此报告做出了贡献。
+
+
+
+原文链接：https://www.theepochtimes.com/facebook-fact-checker-funded-by-chinese-money-through-tiktok\_3610009.html?utm\_source=newsnoe&utm\_medium=email&utm\_campaign=breaking-2020-12-10-2
+
+0
