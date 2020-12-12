@@ -14,11 +14,11 @@
 
 ---
 
-### [林伍德重磅推文: 中共用“超限生物武器”袭击了美国并窃取选举权，爱国者们须迅速行动](/content/gnews/1/README.md)
- ` GM101`
+### [中共对澳洲的制裁引发企业及民众抵制中国货](/content/gnews/1/README.md)
+ ` Himalaya Australia`
 
-### [【重磅快递】鲍威尔律师向最高法院提交四个大选舞弊州的紧急诉案](/content/gnews/2/README.md)
- ` 秘密翻译组G-Translators`
+### [林伍德重磅推文: 中共用“超限生物武器”袭击了美国并窃取选举权，爱国者们须迅速行动](/content/gnews/2/README.md)
+ ` GM101`
 
 ### [War Room 576 总结](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
@@ -154,7 +154,4 @@
 
 ### [FDA授权辉瑞中共病毒疫苗用于紧急用途](/content/gnews/47/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [【军事快讯】美国国会通过2021财年国防授权法案，涉中共国条款多达近40项](/content/gnews/48/README.md)
- ` 纽约香草山农场`
 
