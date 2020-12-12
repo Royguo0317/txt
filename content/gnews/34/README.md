@@ -1,61 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 密歇根州法官下令对22台多米尼投票机进行司法审计
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/639263/)
+## 特鲁多的碳税计划将加剧贫富分化
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/639936/)
 
-*新闻来源：《门户专家》；作者：吉姆·霍夫特（Jim Hoft）；发布时间：2020年12月5日*
+翻译/简评：草原三省战友团 文莱
+校对 文锦 上传 云起时
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11165232/fraser-institute.jpg)图片来源：www.fraserinstitute.org
+据后千禧年报（The Post Millennial）12月11日报道，加拿大总理贾斯汀·特鲁多（Justin Trudeau）日前宣布，他的自由党政府将在周五的新闻发布会上将污染排放价格每吨每年提高15加元，届时部长乔纳森·威尔金森（Jonathan Wilkinson），史蒂芬·吉尔伯特（Steven Guilbeault）和凯瑟琳·麦肯纳（Catherine McKenna）也将出席。
 
-*翻译/简评：Dreamer文童；校对：感恩；审核：万人往；Page：拱卒*
+按计划从2022年开始，碳价将每年持续上涨直至2030年达到每吨170加元。环境部长威尔金森说：“通过该计划， 加拿大人将超过《巴黎协定》规定的2030年温室气体排放目标。不过我们将为在2050年之前建立零净排放奠定基础，并在该国每个地区建立长期、可持续的社区。这个计划将会吸取投资用于建设包括零排放汽车计划等。”
 
-![This image has an empty alt attribute; its file name is 8e4162e7-e250-40e2-be90-0bf1bdcc5be4.jpg]()![This image has an empty alt attribute; its file name is 8e4162e7-e250-40e2-be90-0bf1bdcc5be4.jpg](https://spark.adobe.com/page/U6BhWyb53g1iz/images/8e4162e7-e250-40e2-be90-0bf1bdcc5be4.jpg?asset_id=57978ae1-c50e-4a0d-9d8d-ff6904aec5d7&amp;img_etag=%225fc536c93f01b6410fc1d5caab345168%22&amp;size=2560)
+据《布莱克洛克的记者》（Blacklock’s Reporter）披露，该计划实施的第一年中拿到了186,079,748加元的回扣，并且纳税人还支付了超过7000万加元以补贴购买加利福尼亚州（California）的电动汽车。除了先前承诺的600亿加元，特鲁多自由主义者计划实施总额为150亿加元。
 
-**简评：**
+特鲁多警告加拿大人，没有方法可以抵御气候变化。特鲁多说：“没有方法可以解决一个被污染的星球。我们已经付出了史无前例的风暴、山火、洪水和热浪的代价，这些都将带来实际的经济成本并威胁我们的健康。因此为了加快努力，我们将通过该计划投资152亿加元，并且还会有更多的投资，我们的计划将提高房屋和建筑物的能源效率，以减少能源浪费，同时还可以帮助人们减少开支。1月将看到‘永久性公共交通资金计划’，从2023年开始，我们通过将污染价格每年每吨增加15加元的方式把更多的钱投入加拿大人的口袋里。”
 
-密歇根州安特里姆郡一名选举工作人员发现，选举软件计算的选票总数与打印的制表带不一致。随后，密歇根州安特里姆郡一名法官下令对密歇根州22台多尼米投票系统机器进行司法鉴定审计。
+根据《全球新闻》（Global News）的数据，加拿大人将在2030年之前每升汽油多支付39.6分。
 
-法官之所以下达这样的命令，就是因为川普总统律师团队已经向法官提供充分证据，证明多米尼投票机出现错误计票。为进一步查清事实，找出导致错误计票的根本原因，即多米尼投票机内部软件程序或代码是否存在问题，法官此次命令完全符合法律规定。多米尼投票机干扰美国总统选举的真相即将大白于天下。
+简评：
+碳税的首要目的是为了减少温室气体的排放量，不过过量的增加碳税会提高能源价格，公司支出上升，因此会产生一定量的社会次生灾难比如失业率上升，本地产业竞争力下降，最终贫富分化加剧。由于中共病毒的肆虐，加拿大目前的状况并不乐观，救济金的分发不公平，以及接下来的碳税增加，试问自由派为何在这危难之时不断地剥削加拿大人的利益？
 
-**原文翻译：**
+[原文链接](https://thepostmillennial.com/trudeau-announces-carbon-tax-increase?utm_source=pushly)
 
-# **鲁迪·朱利安尼：密歇根州法官下令对22台多米尼投票机进行司法审计**
 
-11月5日，总统选举结束后两天，密歇根州安特里姆郡一名选举工作人员发现，选举软件计算的选票总数与打印的制表带不一致。
 
-![This image has an empty alt attribute; its file name is 6068064c-97cb-4309-9bd0-b2d06acfe7e1.jpg]()![This image has an empty alt attribute; its file name is 6068064c-97cb-4309-9bd0-b2d06acfe7e1.jpg](https://spark.adobe.com/page/U6BhWyb53g1iz/images/6068064c-97cb-4309-9bd0-b2d06acfe7e1.jpg?asset_id=548f2951-6931-44c1-b7dc-da7d72fde6c8&amp;img_etag=%22303261bea9f4e7556291783e60bc0a45%22&amp;size=2560)
 
-密歇根州用于计算选票的软件出现错误总数，并从川普总统手中拿走近3000张选票移交给乔·拜登（Joe Biden）。
 
-![This image has an empty alt attribute; its file name is d358e39c-4dc4-496b-8b67-e6b01712ae64.jpg]()![This image has an empty alt attribute; its file name is d358e39c-4dc4-496b-8b67-e6b01712ae64.jpg](https://spark.adobe.com/page/U6BhWyb53g1iz/images/d358e39c-4dc4-496b-8b67-e6b01712ae64.jpg?asset_id=c435580b-193b-440e-a212-2984a4f1f354&amp;img_etag=%22f1c7794add453173c8de7650c028b2fc%22&amp;size=3011)
-
-密歇根郡工作人员发现“选举软件”计算的选票总数与打印的制表带不一致！所以这一切正在发生。密歇根州一名选举工作人员发现，选举软件计算的选票总数与打印的制表带不一致。再一次——密歇根州用于计算选票的软件出现错误总数! 哇！WILX报道：安特利姆郡工作人员办公室（Antrim County Clerk Office）发现公布的非官方结果有些不准确…
-
-现在安特里姆郡一名法官下令对密歇根州22台多尼米投票系统机器进行司法审计。
-
-鲁迪·朱利安尼（Rudy Giuliani）在推特上说：
-
-![This image has an empty alt attribute; its file name is abf1ffa8-5820-47bb-8879-97622557694d.jpg]()![This image has an empty alt attribute; its file name is abf1ffa8-5820-47bb-8879-97622557694d.jpg](https://spark.adobe.com/page/U6BhWyb53g1iz/images/abf1ffa8-5820-47bb-8879-97622557694d.jpg?asset_id=31dc2449-d7c0-4608-b138-9d8e1a27c47f&amp;img_etag=%229778b709f546745f8c88af56dd5e0170%22&amp;size=2560)
-
-诚实的选举大获全胜。密歇根州安特里姆郡一名法官下令对22台多米尼投票机进行司法审计。这就是不可靠的多米尼机器将6000张选票从川普手中翻转到拜登手中的地方。多米尼的选票激增发生在整个州。
-
-## **《大纪元》（Epoch Times）报道：**
-
-据川普的律师鲁迪·朱利安尼透露，密歇根州安特里姆郡一名法官已经授权对22台多米尼投票系统机器进行司法鉴定审计。
-
-“诚实的选举大获全胜。”前纽约市市长12月4日在推特上写道。“这就是不可靠的多米尼机器将6000张选票从川普手中翻转到拜登手中的地方。多米尼的选票激增发生在整个州。”
-
-目前尚不清楚该命令来自几起选举诉讼中的哪一起。密歇根州四起主要选举诉讼的公开案卷并未出现朱利安尼所描述的命令。朱利安尼没有立即回复要求澄清的电子邮件请求。
-
-朱利安尼提到的多米尼机器翻转选票。
-
-[原文链接](https://www.thegatewaypundit.com/2020/12/rudy-giuliani-michigan-judge-orders-forensic-audit-22-dominion-voting-machines/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】–[点](https://spark.adobe.com/page/sYKLxSlT7mdQa/)[击spark adobe版](https://spark.adobe.com/page/U6BhWyb53g1iz/)
-![This image has an empty alt attribute; its file name is 0693d571-8e19-4ced-93ab-0674d167f712.jpg]()![This image has an empty alt attribute; its file name is 0693d571-8e19-4ced-93ab-0674d167f712.jpg](https://spark.adobe.com/page/U6BhWyb53g1iz/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)
-0
+2+

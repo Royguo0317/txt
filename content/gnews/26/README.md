@@ -1,85 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 秘密协议曝光：中共间谍可以在瑞士自由活动
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/639461/)
+## 普通民警黄元雄被制裁意味着中共迫害法轮功的整个系统的末日
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/640222/)
 
-*新闻来源：The Guardian《卫报》；作者：Helen Davidson；发布时间：2020年12月9日*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11181944/%E5%B0%81%E9%9D%A2-15.png)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-*翻译/简评：Cathy r；校对/审核：万人往；Page：拱卒*
+据[黄元雄 – 百度百科](https://www.baidu.com/link?url=GlMSBePXh2ZEYGZfWHK0sp0JElxkfmxn6yvG0AO6iwwBKvBDn5uFFj6TLF17MIsYvapjX_UefkI0BoyujfXht3zLYKHkzV5vhbo85yxpXbEmNphHSW3rfv7wqC57Ss3k&amp;wd=&amp;eqid=8c6b559f0016a405000000065fd3f714)：走红事件，2020年12月，美国国务院于宣布了一批制裁国外官方人员的名单，其中包括来自中国厦门市的民警黄元雄。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/akCVbm3pycYLk/images/063d4a91-9e51-4561-872e-36558feaf3ab.jpg?asset_id=24da7148-20ef-416d-944d-bfef18a7b313&amp;img_etag=%22885dcff5d5a591822b5a37c94fe7bd47%22&amp;size=1024)](https://spark.adobe.com/page/akCVbm3pycYLk/images/063d4a91-9e51-4561-872e-36558feaf3ab.jpg?asset_id=24da7148-20ef-416d-944d-bfef18a7b313&amp;img_etag=%22885dcff5d5a591822b5a37c94fe7bd47%22&amp;size=1024)
+这起所谓走红事件的消灭来源是[Public Designations of Current and Former Government Officials Under Section 7031(c) of the Department of State, Foreign Operations, and Related Programs Appropriations Act Due to Involvement in Gross Violations of Human Rights](https://www.state.gov/public-designations-of-current-and-former-government-officials-under-section-7031c-of-the-department-of-state-foreign-operations-and-related-programs-appropriations-act-due-to-involvement-in-gross/)：
 
-**简评：**
+［Finally, the State Department is designating Chief Huang Yuanxiong of the Xiamen Public Security Bureau Wucun Police Station for his involvement in gross violations of human rights in Xiamen, China.  Huang is associated with particularly severe violations of religious freedom of Falun Gong practitioners, namely his involvement in the detention and interrogation of Falun Gong practitioners for practicing their beliefs.  Today’s action also applies to Mr. Huang’s spouse.  The world cannot stand idly by as the PRC government perpetrates horrific and systematic abuses against people in China, including violating the internationally recognized right to freedom of thought, conscience, and religion or belief.
 
-今年8月，瑞士当地一家新闻媒体首次报道了中瑞之间的秘密协议，包括安排中共国公安部特工用瑞士纳税人的钱进入瑞士，会见瑞士当局，希望将“可疑”的中国公民驱逐出境。在两周的任务期间，没有任何规定来监督中共特工的活动，他们可以自由进入整个申根地区。瑞士议会和外交事务委员会对于该协议都毫不知情，这引起了公众的震惊和愤怒。人权运动团体说，瑞士可能违反了不遣返的原则。
+中文大意：最后，国务院指定厦门公安局武村派出所所长黄元雄，因为他参与了中国厦门的严重侵犯人权行为。 黄与法轮功学员的宗教自由受到特别严重的侵害有关联，即他参与了为实践信仰而对法轮功学员的拘留和审讯。 今天的行动也适用于黄先生的配偶。 随着中国政府对中国人民实施可怕和系统的虐待，包括侵犯国际公认的思想，良心，宗教或信仰自由权，世界不能袖手旁观。 ］
 
-**原文翻译：**
+这一起事件被中共媒体蓄意引导成为一个笑料，据[环球时报新媒体](https://mp.weixin.qq.com/s/Bsf0PP3bVgCEjf9Gt_s1WQ)于2020-12-11 18:02发布的[不是玩笑：中国一位派出所民警被美国制裁了](https://world.huanqiu.com/article/413jwLkGz4W) ：
 
-# 秘密协议的细节透露，中共国间谍可以自由在瑞士活动
+［而这位黄警官被美国政府制裁的事情之所以特别好笑，主要有以下两个原因：首先，虽然蓬佩奥在美国国务院的制裁名单中将黄警官的头衔说得很“大”，按照英文语序直译的话是“黄元雄警长，厦门公安局梧村警察局”，但实际上人家黄警官只是梧村派出所一位很普通的基层民警。不过，虽然身份普通，但对待工作黄警官却是认真负责的。公开资料显示，他曾在2015年获得过福建省全省（首届）“十大法治新闻人物”的表彰，他在服务社区方面非常用心。］
 
-**从中共国出发的特工花瑞士纳税人的钱会见被驱逐的目标人物**
+［其次，美国国务院制裁黄警官的理由，即他“侵犯”邪教法X功分子的“宗教自由”，就更可笑了。因为除了传播违法害人的邪教思想在中国被打击，这个当年被美国政府敞开双臂接到美国去的邪教组织，如今更因为不断干涉美国大选，为败选的美国现任总统特朗普传播政治阴谋论，甚至还在新冠疫情上散布大量谣言，而引起了美国主流社会的反感。多家美国主流媒体在过去这一两年更是不断刊文，揭露这个邪教组织。所以，如今黄警官被美国国务院因为法X功而制裁，就让人不得不怀疑是不是迄今都不愿意承认败选的特朗普当局，在滥用美国的公权力迫害他人，以进一步收买这个邪教组织。若果真如此，那这届美国政府可真算得上是“人类之癌”了。］
 
-[!\[\]()!\[\](https://spark.adobe.com/page/akCVbm3pycYLk/images/2d219dff-9b1f-4af1-af97-285528f21074.jpg?asset_id=5737fe86-10d7-4038-aea6-904c47193ac0&amp;img_etag=%2299d2ae2f63a18b8f553d0bed97b1cd49%22&amp;size=2560)](https://spark.adobe.com/page/akCVbm3pycYLk/images/2d219dff-9b1f-4af1-af97-285528f21074.jpg?asset_id=5737fe86-10d7-4038-aea6-904c47193ac0&amp;img_etag=%2299d2ae2f63a18b8f553d0bed97b1cd49%22&amp;size=1024)瑞士苏黎世。中共特工无需官方身份即可入境
+黄元雄被美国政府制裁这件事真的像中共媒体所宣称的这样是非常可笑的吗？其实未必，美国政府的制裁中列明黄元雄参与对法轮功迫害的事实，这应该算一个里程碑事件，黄元雄被制裁标志着所有对法轮功实施抓捕和侵犯人权事件的中共鹰犬及610办公室系统的官员们在接下来将正式进入美国的制裁名单！
 
-随着瑞士政府推动续签，瑞士与中共之间的一项秘密协议的全文首次被披露，该协议允许中共国安全官员用瑞士纳税人的钱进入瑞士。
+黄元雄被制裁可笑吗？它一点也不可笑，尤其是对于那些参与迫害法轮功的中共官员来说，黄元雄被制裁是否意味着法轮功事件始作俑者的江泽民最终进入制裁名单呢？关于这一点笔者不敢妄言，但是我们必须铭记黄元雄被制裁的这一刻——它意味着中共迫害法轮功的整个系统的末日已经到来，它更意味着中共所有参与法轮功之外的其它宗教迫害者的末日！
 
-这项为期五年的“重新接纳协议”在2015年签署，于星期一到期，该协议规定了中共特工前往瑞士，并对瑞士当局希望驱逐的疑似中国公民进行面谈的条款。
+（文章内容仅代表作者个人观点）
 
-与瑞士和其它国家签署的50多项类似协议不同，瑞士政府从未对外发布过该协议，直到八月才让公众知晓。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/akCVbm3pycYLk/images/0805cfd4-5ef2-426e-9872-a55a4346e5c3.jpg?asset_id=024c792c-f1c3-4da6-a1ac-f9f4c5252f83&amp;img_etag=%229869d13cc11e8d9215f7f235d71e3310%22&amp;size=1024)](https://spark.adobe.com/page/akCVbm3pycYLk/images/0805cfd4-5ef2-426e-9872-a55a4346e5c3.jpg?asset_id=024c792c-f1c3-4da6-a1ac-f9f4c5252f83&amp;img_etag=%229869d13cc11e8d9215f7f235d71e3310%22&amp;size=1024)
-
-该协议的官方英文译本已由专注于亚洲的人权运动组织“保护卫士”（Safeguard Defenders）获得。该组织说，这表明，在一份协议中，他们对保密做出了非同寻常的承诺，而这份协议本身一直不向公众披露。
-
-在为期两周的“任务”中必须邀请（中共）公安部(MPS)“专家”，但是一旦发出邀请，中共国可以选择未经瑞士批准的特工。
-
-他们可以在没有官方身份的情况下进入瑞士，瑞士承诺对他们的身份保密。他们为瑞士当局提供的报告也是保密的。
-
-重新接纳协议是国际法的常规组成部分，但“保护卫士”说，2015年瑞士与北京达成的协议并非互惠协议，与瑞士签署的其它协议具有“完全不同的性质”。
-
-围绕协议本身和中共特工工作的保密，选择一个职权广泛的超级安全部门作为合作伙伴，包括警察和情报部门，甚至特工的存在，都是不寻常的。
-
-“在少数情况下[其他重新接纳]协议允许另一方派遣代表陪同要返回的个人，并且在这些情况下，[代表]仅限于特定的活动，这是一个公开的、官方职责的贯彻执行。”“保护卫士” 说。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/akCVbm3pycYLk/images/33225920-9ade-4b54-bcc9-a2a6d937a5c9.jpg?asset_id=c7d5db05-9c7a-4582-8a59-ba8b8df6aac0&amp;img_etag=%221cdb68aeb5f541afe0c57cecce98c08d%22&amp;size=1024)](https://spark.adobe.com/page/akCVbm3pycYLk/images/33225920-9ade-4b54-bcc9-a2a6d937a5c9.jpg?asset_id=c7d5db05-9c7a-4582-8a59-ba8b8df6aac0&amp;img_etag=%221cdb68aeb5f541afe0c57cecce98c08d%22&amp;size=1024)
-
-美国西东大学（Seton Hall University）法学教授玛格丽·刘易斯（Margaret Lewis）说，这个协议对中国人极为有利，而且超出了正常的移民信息共享安排。
-
-她说：“令我感到奇怪的是，如果它的级别和非法逗留在瑞士的人一样低，中共国将会费心派遣官员来。[公安部官员出行] 的诱因很可能是……中共国政府感兴趣的人。”
-
-除了与瑞士当局的合作以外，没有任何规定来监督特工的活动。更重要的是，由于特工的非官方身份可能意味着他们是通过旅游签证出行的，所以他们可以进入整个申根地区，“保护卫士”的负责人彼得·达林（Peter Dahlin）说。
-
-“他们在这两个星期内所做的工作完全不受监督。”达林说。“从理论上讲，允许这样做的事实是引人注目的……如果这是保密的，那就意味着其它政府不会知道。”
-
-今年8月，瑞士一家当地新闻媒体首次报道了这项协议的存在，这在瑞士引发了愤怒。当时，国际社会对中共国针对持不同政见者和反对派人士的做法越来越感到担忧。
-
-在此之前，这个协议一直被保密，以至于瑞士议会和外交事务委员会都不知道它的存在。此后，该委员会投票要求在续期之前进行磋商。
-
-瑞士移民秘书处（SEM）为该协议辩护，认为这是遏制非法移民的必要措施，称其控制了提供给中共国官员的信息。瑞士移民秘书处说，协议只在2016年被使用过一次，当时13人中有4名寻求庇护者被驱逐出境。
-
-（人权）运动团体说，瑞士可能会违反不遣返原则，该原则禁止难民返回他们可能面临危险的地方。他们担心，没有机制可以监控被遣返者返回中共国后的待遇。
-
-中共国人权捍卫者运动组织发言人蓝宁（LeoLan）说：“鉴于中共国令人震惊的被拘留者的人权记录，如果被遣返者被拘留，他们是否会遭受酷刑或其它虐待，这也是一个合理的关切。”
-
-一位瑞士移民秘书处发言人对瑞士媒体表示，只有那些没有在本国遭受迫害危险的人才会成为目标，因此寻求庇护的藏族人和维吾尔人被排除在外，但这项保护并未写入协议。
-
-居住在中国南方城市广州的社会活动家王爱忠表示，由于香港领土在中共国的更大控制之下，该协议还可能危及离开香港的人们。王说，中瑞之间继续签署这项协议可能会使瑞士陷入“尴尬或不道德的境地”。
-
-近年来，中共国越来越积极地利用双边和多边渠道（例如国际刑警组织），以及非正式地进入其它国家，追踪相关的中国公民。在国内被拘留者的待遇也引起了更大的人权关切。
-
-刘易斯说，这使公众更加震惊，瑞士将允许（中共）公安部官员在几乎没有监督下入境。她说：“通常，政府希望密切关注其领土上的任何外国特工。如果在瑞士，公安部官员有时间自由活动 [在瑞士发起的采访之外]，我担心可能会与其他中国公民进行非正式的互动，以及可能出现的胁迫。”
-
-[原文链接](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/akCVbm3pycYLk/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/akCVbm3pycYLk/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/akCVbm3pycYLk/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
-0
+3+
