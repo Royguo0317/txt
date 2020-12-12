@@ -1,148 +1,103 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 谎言与间谍的交易-瑞士与中共
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/640483/)
+## 从&#8221;抹黑运动&#8221;俄罗斯造谣自由派媒体联手驳斥亨特·拜登的故事
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/641630/)
 
-多伦多枫叶农场 金不換
-校对 文锦 上传 云起时
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11214020/swiss-chinese-550x270-1.png)图片来源：castroandco.com
-中共国的安全和情报人员可以不受限制地出入一个西欧国家，是不是有点不可想象？可惜，这是真的。2015年12月8日，瑞士和中共国达成一项秘密协议（“再入境协议”，两国公民的互惠协议），允许中共国公安部（MPS）的探员在无人监督的情况下在境内自由活动。这项交易是秘密进行的，直到今年夏末，瑞士方面因为原始协议即将到期开始寻求续约，该交易才为大众所知。 Safeguard Defender组织获得了这份协议，并于12月9日公布于众。
+翻译：康州盘古农场 – 烟波浩淼
+校对：康州盘古农场 – Antsee-GTV
+审核： 康州盘古农场 –文韵
 
-首先，什么叫“再入境协议”？这是国家或管辖区之间的双边协议，为两国间相互交流和帮助建立渠道。 例如，如果瑞士当局发现一个非法居住在瑞士的人，也许是因为没有正确的证件，当局怀疑该人是瑞典人，他们会使用正规渠道与该国移民或类似部门进行沟通，以确定这个人是否是瑞典人。 如果他们能确定此人是瑞典人的话，他们将与瑞典合作，将其遣送回国。 作为回报，另一方也执行相同的职责。 简而言之，它们是对等的。
+原文作者：约瑟夫·沃夫森（Joseph A. Wulfsohn），福克斯新闻
 
-在特殊情况下，除了将人员遣返外，瑞士方面还可以要求另一方派遣相关部门的代表陪同该人员返回自己的祖国，尽管这只是协议条款中的一部分。
+National Public Radio （NP）R宣称：”我们不想把时间浪费在不是真是的故事上
 
-与中共国的协议一直用虚假借口被保密，与这些常规的“再入境协议”几乎没有关系，性质完全不同。
+自从拜登过渡期发布新闻稿承认亨特·拜登因所谓的 “税务事务 “而接受调查以来，主流媒体拒绝报道《纽约邮报》关于亨特·拜登的爆炸性报道， 最近受到了很多批评，但这些媒体远远不止是简单地无视争议。
 
-瑞士议会，外交事务委员，和瑞士公众在八月份看到瑞士德语报纸《NZZ am Sonntag》的报道时才知道此事，深感震惊。而包括内阁大臣在内的瑞士政府漏洞百出的辩解，更为这一可疑交易蒙上了一层阴影。
+《华盛顿邮报》专栏作家格雷格·萨金特（Greg Sargent）在《纽约邮报》首次开始报道亨特·拜登笔记本电脑涉嫌内容的第二天，就迅速宣称这是 “川普伪造的拜登丑闻”，并称这些指控 “弱得可笑”
 
-**欲盖弥彰**
+萨金特10月15日报道：”虽然川普和他的宣传员肯定更希望有引人注目的丑闻来吹捧，这种新粥的稀薄程度在很大程度上是次要的。”他强调史蒂夫·班农参与了笔记本电脑内容的分发。”川普最后的希望是给拜登蒙上一层模糊的腐败阴影……。但显然，掩盖污点和造谣的事实，即使是消极的，本身也会给提供者带来奖励。”
 
-《NZZ am Sonntag》8月23日爆料时，移民国家秘书处（SEM）说之所以没有公布该协议，是因为它只是“行政协议”。 SEM发言人说，该协议并不影响藏族和维吾尔族的寻求庇护者，他们永远不会被遣送回去，因为瑞士意识到如果这样会令这些人遭受残酷迫害。
+同一天，《纽约时报》发表了一篇报告，似乎是敲响了 “俄罗斯造谣 “的警钟，称川普总统被警告说，俄罗斯人正在 “利用 “他的私人律师鲁迪·朱利安尼（Rudy Giuliani）散布有关拜登家族的虚假丑闻，在向新闻界提供笔记本电脑内容前朱利安尼得到了笔记本电脑。
 
-第二天，内阁大臣马里奥·加蒂克（Mario Gattiker）出席议会外交事务委员会，并重申该协议未公开，是因为这是一项 “行政” 或“ 技术” 协议。 几天后，SEM发言人重申这个协议没什么特别，他说瑞士与60个国家都有这样的协议，与中共国和印度两国的此类交易是“技术性的”。
+“据《泰晤士报》当时报道，四名美国现任和前任官员称，情报机构去年年底警告白宫，俄罗斯情报人员正在利用川普总统的私人律师鲁迪·朱利安尼作为造谣的渠道，旨在破坏乔·拜登的总统竞选。”
 
-问题是，与印度的协议是公开的。完整版就在瑞士政府的官方网站上。 政府的网站总共公开了52项协议（而非60项），其中包括与非国家辖区（例如，香港和澳门）的协议。
+目前还不清楚正在进行的税务调查是否与笔记本电脑的内容有关。
 
-面对质疑，SEM及其部长的解释变得更加不一致。 9月12日SEM表示：与中共国的协议未发布的原因是因为 “没有必要”。这项协议位列瑞士政府官方网站的 “国际条约” 之下，列出了协议名字，但内容还是空缺。而按照规定，所有“国际条约”必须公开。协议的 “技术” 性质并不能改变这一点。
+早在10月，《政客》就发表了一封由 “50多名前高级情报官员 “签署的联名信，他们坚持认为，公布的据称来自亨特·拜登笔记本电脑的邮件具有 “俄罗斯信息行动的所有典型特征”。
 
-**他们隐瞒了什么**？
+这封信被许多主流媒体模仿，毫无根据地提出，电子邮件被黑客入侵，它们可能被克里姆林宫篡改，以使其内容看起来具有罪恶性。
 
-Safeguard Defender 将这个协议与瑞士和瑞典，英国，香港和印度之间的类似协议进行了比较。不比不知道，一比就发现马脚了。
+该信的签署者包括直言不讳的川普批评者约翰·布伦南（John Brennan）、詹姆斯·克拉珀（James Clapper）、迈克尔·海登（Michael Hayden）、莱昂·帕内塔（Leon Panetta）和杰里米·巴什（Jeremy Bash），他们中的许多人在MSNBC和CNN担任广播分析师。
 
-其他所有协议均与另一方的移民部门或同等机构缔结。 比如印度，是与印度外交部合作，就领事、签证和护照事宜达成协议。
+NPR公共编辑凯利·麦克布莱德（Kelly McBride）回答了一位听众关于该新闻机构对亨特·拜登的报道进行封锁的问题。在声称《邮报》的报道有 “很多很多的危险信号”，包括其与俄罗斯的潜在关系之后，NPR显然认定 “这些说法并没有什么意义”。
 
-就中共国而言，相关职能由中共国公安部（MPS）负责。但问题是，该部同时也是国家警察局，负责治安，国家安全，并设有专门从事间谍和反情报工作的部门。它同时也是臭名昭著、牵涉广泛和系统性的侵犯人权的机构。这一点对理解以下细节内容十分关键。
+“我们不想把时间浪费在那些不是真实的故事上，我们也不想把听众和读者的时间浪费在那些纯粹是分散注意力的故事上，” NPR总编辑特伦斯·塞缪尔告诉麦克布莱德。”而且很坦率地说，这就是我们的结论，这是一个政治驱动的事件，我们决定以这种方式对待它。”
 
-在和其它国家签订的类似协议中，一般都会有大量文字解释“限制性条款”， 包括提供难民身份在内的国际人权保护，不会牵涉到任何与引渡过程相关的内容。与其它国家签署的协议，协议是对等的，相关文书都是公开的，甚至用于索取信息以确立某人国籍的表格都是公开的。 仅在少数情况下才会允许另一国派遣代表陪同该个人返回，仅限于特定活动，并秉承公开的原则，由官方正式执行。
+与NPR不同的是，CNN在炒作亨特-拜登事件上的努力并没有那么透明。上周，Project Veritas泄露了CNN高层敦促员工在选举期间避开拜登丑闻的电话会议录音。
 
-但是和中共国的这个协议，交易不是对等的，此协议仅向中共国提供援助。 其目的是扩大合作以对抗 “非正常移民” ，而不是 “非法移民”（更常见的术语）。
+CNN政治总监大卫-查利安（David Chalian）在10月14日的一次电话会议上说：”很明显，我们现在不会采用《纽约邮报》关于亨特·拜登的报道。”同一天，《邮报》发表了第一篇关于亨特·拜登电子邮件的报道。查利安后来坚称，这篇报道是向 ‘右翼回声效应’  在‘下达行军令’，告诉他们今天该谈什么。”
 
-这项协议的主要目的是允许中共国公安部人员（在中共国被指控犯有危害人类罪的机构）在瑞士不受限制地自由行动。瑞士方同意对公安的身份保密。公安人员由中共国选择，瑞士不参与。 也就是说中共国可以将公安部任何成员送往瑞士，这些人当中并没有任何移民官员。任何其他国家或地区的协议都没有这种条款。
+“川普媒体，你知道，立即从–好吧，好吧，没关系–[迈克尔·弗林]的揭发，你知道，被发现是完全无稽之谈，到最新的所谓丑闻，并希望每个人都只是效仿，”CNN总裁杰夫·扎克10月16日告诉他的员工。”所以，我不认为我们应该重复未经证实的诽谤，只是因为右翼媒体暗示我们该这样做。”
 
-此外，这些公安被正式允许秘密进入瑞士，也就是说，他们不需要声明自己的身份。 如果以此和与英国的协议相比，所有进入瑞士的英国官员必须得到瑞士的批准，并且必须以其官方身份公开进入。
+显然，这样的信号被CNN明星主播杰克·塔珀采纳了，他认为对亨特·拜登的指控 “太恶心了”，不能在节目中重复，”右派发疯了”。
 
-**中共国特工的秘密旅行**
+*塔珀：“**右派发疯了，关于拜登及其家人的种种指控实在令人厌恶，以至于在这里都无法重复。我从总统儿子那里看到的一些指控以及，实在是疯狂的不正常。”*
 
-中共国公安在瑞士可以完全自由且无人看管。 他们可以自由地与他人会面（那些被瑞士怀疑 “不正常” 逗留的中共国公民）并进行 “面谈”。他们可以停留两个星期，每天最多可以评估六个人，这样每名公安每次入境可以“面谈”60人。
+共和党发言人伊丽莎白·哈灵顿（Elizabeth Harrington）挑战CNN首席国际主播克里斯蒂安·阿曼普尔（Christiane Amanpour），在激烈的交流中深入探究拜登家族的外交关系时，CNN对报道拜登家族故事的不满充分展现。
 
-在大多数 “再入境协议” 中，都有一个条款，用冗长而详尽的文字规定，除非获得另一方授权，一方不得与其国内其他部门分享信息。但在与中共国的协议中，所有的重点都集中在保护中共国公安部的秘密。公安身份要秘密，他们到底来瑞士干什么，也是秘密。而且由于公安部几乎涵盖了中共国治安和司法控制的各个方面，因此该条款即使扩大，也毫无意义。
+“你很清楚，我是一名记者和记者，我遵循事实，在腐败方面从来没有任何问题。”阿曼普尔断言。
 
-此外，作为正常业务的一部分，中共国公安在瑞士逗留期间，可以自由与中共国驻瑞士大使馆进行交流，也可以自由向国内公安部报告。
+“等等，等等，你怎么知道的！？” 哈灵顿反驳道。
 
-每次行程结束时，中方均提交报告。根据报告，瑞士与中共国大使馆合作，决定哪些人将被遣返回中共国。 值得注意的是，瑞士无权对中共国公安提供的信息进行任何核实。
+“我说的是报道和任何证据。”阿曼普尔回应道。
 
-此外，瑞士承担了中方的全部费用。包括航班、住宿、每日津贴、通讯、办公空间和任何其他运营成本。 中共国公安可以秘密进入瑞士，针对在瑞士的华人进行活动，此过程无人监督，而瑞士纳税人要为此付钱。
+“好吧，我很希望你们能开始进行挖掘，开始进行核实。”哈灵顿说，他指的是已公布的亨特-拜登的电子邮件。
 
-根据该协议，2016年有13人被遣返中共国，其中包括4名寻求庇护者. 中共国公安关于这些人的M并未公开。所以他们是谁，返回中共国后发生了什么事，以及瑞士方面采取了哪些步骤以确保他们的安全（如果有的话）也就无人知晓了。
+“不，我们不会替你做你的工作的。”阿曼普尔斥责共和党发言人。
 
-**中共的目的**
+“那是记者的工作！” 哈林顿大声道。”这是记者的工作，要查清这是否经过核实。”
 
-自中共领导人习近平于2012年上台以来，他的一项标志性政策（自2014年开始）一直是在海外追捕中共国逃犯，包括其资产。它试图通过引渡请求和与更多国家扩大引渡条约来实现这一目标。
+类似的交流也发生在 “60分钟 “节目中，资深记者莱斯利·斯塔尔（Lesley Stahl）在大选前几天播出的一次采访中，嘲笑了川普总统关于拜登 “身陷丑闻 “的说法。
 
-据中共党媒报道，到2019年中期，大约6,000人被遣返回中共国。这个人数只是所谓 “经济逃犯”，实际被遣返的人数可能高得多。其中只有一小部分是通过引渡。 大多数人经历了中共国所谓的 “自愿返回”。 实际上，这些通常是非自愿返回，而是受到各种威胁后的迫不得已。
+“他不是。”斯塔尔兴高采烈地回答。
 
-今年10月下旬，美国司法部发布起诉书，指控八人非法充当中共国代理人，试图“说服” 居住在美国的中共国公民返回中共国，实际就是 “骚扰受害者”。
+“他当然是，莱斯利。”川普厉声反驳。
 
-“被告称在中共政府官员的指示下进行各种监视和并骚扰，跟踪和胁迫美国某些居民返回中共国。即所谓 “猎狐行动”。
+“不，拜托，”斯塔尔继续拒绝总统的说法，然后说他，”这里是’60分钟’，我们不能把无法核实的事情放上去。”
 
-早前有大量媒体报道，中共国国家安全部（MSS）特工秘密前往美国，对付高调的流亡中共国商人郭文贵（又名Miles Kwok），此举被美国查获，这些特工被允许返回中共国 ，但联邦调查局没收了他们的通讯设备。
+“我希望你能像采访我一样采访乔·拜登”川普总统对莱斯利·斯塔尔说。
 
-许多海外中共国公民曾多次与保障捍卫者（Safeguard Defender）联系，中共国国安对他们进行各种威胁利诱。通常是对他们在中共国的家人的威胁。 以著名的流亡艺术家巴丢草为例，他的身份被暴露后，立刻受到国安威胁。联合国强迫失踪问题专门机构（WGEID）在其提交给人权理事会的2020年8月7日报告中提到，中共政府的“海外绑架和强迫返回” 令人震惊，单就海外维吾尔族人，已有 “300人多从16个不同国家被强行返回中共国”。
+在竞选期间，乔·拜登大多成功地避开了《邮报》的报道，因为在竞选活动中随行的代表记者们都没有问他这个问题。然而，有一位这样做的记者，哥伦比亚广播公司新闻记者博·埃里克森（Bo Erickson）面临了其他记者的敌意回击，包括他自己的一位同事。
 
-尽管信息不多，也没有专门的国际组织进行大型的协调和救援，但这类绑架行动还是引起国际社会的关注。对一些个别受害者，全球各地许多媒体都有一些报道。“保障捍卫者”也在启动有关此问题的研究，并将于2021年中发布报告。
+“我的@CBSEveningNews报告明确列出了关于朱利安尼与俄罗斯虚假信息的警告，”CBS新闻白宫记者保拉·里德（Paula Reid）在推特上说，试图削弱埃里克森向拜登提问的合法性。
 
-美国阻止国安进入并从事此类非法活动，瑞典正在努力揭露和防止中共国难民间谍活动，防止其蔓延到整个北欧，并率先利用《欧洲人权公约》禁止到中共国的引渡。中共政府以国内家人的安危相威胁，绑架海外中共国人，已经激起众怒和反弹。但与此同时瑞士却还在做中共的同路人，帮助中共遣返那些中共国希望遣返的人，帮助中共国的秘密警察扩大的瑞士的影响。到今天，瑞士政府还在试图悄悄地和中共续约，继续这种秘密交易。
+《观点》联合主持人尚尼·霍斯汀（Sunny Hostin）在接受ABC日间节目采访时试图安慰吉尔·拜登博士，同时在话题上小心翼翼，并指责特朗普总统用”不尊重 “她的家人，常”人身攻击 “。
 
-此外，瑞士方面还同意中共国国家安全部来访代表团为非官方代表团，这样他们就能拿到定期旅游签证，可以自由访问整个申根区。 理论上在为期两周的访问期间内，来自中共国的秘密警察和情报人员可以直接秘密地进入几乎整个欧盟。欧盟不存在边境管制，因此将带来非常重大的安全风险。
+MSNBC主播凯蒂·图尔（Katy Tur）嘲讽《邮报》的报道，说它 “看似投下了一枚炸弹”，但却是 “在一枚失效弹，并未引爆”。NBC新闻国家安全记者肯·迪拉尼安称这是一个 “蹊跷的故事”，尽管他承认来自笔记本电脑的各种电子邮件和图像看起来 “合法”。
 
-**曝光了，还会续签吗**？
+“我们不知道，《纽约邮报》也不知道，其中是否有被篡改、伪造或造假的。而这也是为什么主流新闻媒体拒绝真正触及这个故事的原因，因为它只是缺乏可信度，”迪拉尼安告诉图尔。”我们现在知道，俄罗斯的虚假信息与这些邮件中暴露的任何一样东西对我们的民主来说都同样危险。”
 
-该协议已于2020年12月7日到期。令人欣慰的是，据NZZ am Sonntag报道，反对续约的声音正在增加。现在已经被捕的香港亲民主抗议组织者黄宗超（Joshua Wong）指出，协议可用来对付持不同政见者。 10月20日，瑞士外交事务委员会以14票对7票决定，要对任何新的类似协议进行协商，2021年春季进行辩论。 不过，协商产生的任何投票或决定均不具有法律约束力，瑞士政府可以自由续签该协议。
+在最后一场总统辩论之前，川普总统就其对手之子的商业交易敲打他的民主党对手，NBC新闻记者哈莉·杰克逊(Hallie Jackson)为将到来的政治对决提供了一个的有倾向性的预见。
 
-围绕着本协议的几个问题：
+“预计总统还将提起亨特·拜登和未经核实的商业交易电子邮件，许多情报专家将其描述为具有外国虚假信息活动的特征，”杰克逊报道。”拜登竞选团队表示，他们已经做好了进攻的准备，希望通过质疑总统对拜登家族过度执迷，更甚于对美国人民家庭（的关心）来翻转剧本。”
 
-（1）为什么要保密；
+杰克逊还努力贬低川普总统的辩论嘉宾、前亨特·拜登的助手托尼·波布林斯基，他称这位前副总统直接参与了他儿子的商业交易。
 
-（2）为什么瑞士官员要极力掩盖；
+“乔·拜登预计会带来在这一大流行中挣扎的小企业主们而川普总统预计带来的是亨特·拜登的前商业伙伴”杰克逊告诉NBC的莱斯特·霍尔特。
 
-（3）为什么中共的国安可以在赋予在瑞士的土地上自由活动，不受监督；
+辩论结束后，CBS政治分析师约翰·迪克森指出，拜登 “在新闻届有一个盟友”，暗示媒体对正在进行的冠状病毒大流行的报道将掩盖这一丑闻，这对前副总统有利。
 
-（4）欧盟内部免签，如何确保这些人不会将活动触角探入欧盟其它地区。
+“如果川普总统试图将赛场转移到拜登家族身上，以达到抹黑乔·拜登的目的，那么新闻届就会不断回到这场竞选的核心部分，也就是冠状病毒和总统的应对措施，而国家对此的看法是非常负面的，”迪克森向 “CBS今晨 “联合主持人安东尼·梅森解释道。”而随着这些数字的持续，会使选民聚焦在总统的这个非常糟糕的问题上。”
 
-因此人们不得不担心，这些已经臭名昭著的秘密警察和特工得以继续进行他们的威胁与绑架行为。
+微软全国广播公司（MSNBC）主播斯蒂芬妮·鲁尔（Stephanie Ruhle）抨击了那些报道亨特·拜登争议的人，称这是一个“未经证实的说法”的“所谓故事”
 
-大赦国际发言人纳迪亚·博伦（Nadia Boehlen）说，中共国安向SEM提交的报告建立在强制遣返的基础上，“对此，SEM的回应是不充分的。 既没有进行风险分析，也没有任何对中共国的监督与跟进。”
+“我们现在离选举还有四天，真相比以往任何时候都更重要，”鲁尔告诉她的观众，事实上，我们正处于一场大流行病之中。真相是数百万美国人失业了。事实是，我们必须听从科学。而在这最后的日子里，与其争论人群规模或未经证实的说法或阴谋论，我们应该讨论政策、价值观和想法。”
 
-瑞士自由党的国会议员汉斯·彼得·波特曼说：“我们跟很多国家都有关于人权的讨论，中共国不应该有特殊待遇。” 。 12月3日右翼民族保守党瑞士人民党（SVP）通过电子邮件告诉Safeguard Defender，反对该协议符合该党利益与精神。欧洲人民党（EPP）的议员尼克·古格（Nik Gugger）总结得很好。瑞士很善于做生意，但也很善于对罪恶视若无睹。
 
-[原文链接](https://safeguarddefenders.com/en/blog/lies-and-spies-switzerland-s-secret-deal-chinese-police)
 
-**协议**
-在此处下载（英语）PDF：
+原文链接：
 
-[https://safeguarddefenders.com/sites/default/files/2015.12.08\_Vereinbarung%20Identifikation%20von%20mutmasslich%20chinesischen%20Staatsangeh%C3%B6rigen\_angl.pdf](https://safeguarddefenders.com/sites/default/files/2015.12.08_Vereinbarung%20Identifikation%20von%20mutmasslich%20chinesischen%20Staatsangeh%C3%B6rigen_angl.pdf)
-
-[i] [https://www.swissinfo.ch/eng/politics/swiss-explore-renewal-of–secret-deal–with-china/45985878](https://www.swissinfo.ch/eng/politics/swiss-explore-renewal-of--secret-deal--with-china/45985878)
-
-[ii] [https://www.swissinfo.ch/eng/details-emerge-of-swiss-deal-with-chinese-agents/45993296](https://www.swissinfo.ch/eng/details-emerge-of-swiss-deal-with-chinese-agents/45993296)
-
-[iii] [https://www.swissinfo.ch/eng/politics/swiss-explore-renewal-of–secret-deal–with-china/45985878](https://www.swissinfo.ch/eng/politics/swiss-explore-renewal-of--secret-deal--with-china/45985878)
-
-[iv][https://www.swissinfo.ch/eng/details-emerge-of-swiss-deal-with-chinese-agents/45993296](https://www.swissinfo.ch/eng/details-emerge-of-swiss-deal-with-chinese-agents/45993296)
-
-[v] [https://www.swissinfo.ch/eng/details-emerge-of-swiss-deal-with-chinese-agents/45993296](https://www.swissinfo.ch/eng/details-emerge-of-swiss-deal-with-chinese-agents/45993296)
-
-[vi] [https://www.sem.admin.ch/sem/en/home/internationales/internat-zusarbeit/bilateral/rueckuebernahme.html](https://www.sem.admin.ch/sem/en/home/internationales/internat-zusarbeit/bilateral/rueckuebernahme.html)
-
-[vii] [https://www.swissinfo.ch/eng/sino-swiss-migration-deal-sparks-controversy/46029270](https://www.swissinfo.ch/eng/sino-swiss-migration-deal-sparks-controversy/46029270)
-
-[viii] [https://www.admin.ch/opc/de/classified-compilation/20022529/index.html](https://www.admin.ch/opc/de/classified-compilation/20022529/index.html)
-
-[ix][https://www.admin.ch/opc/de/classified-compilation/20052705/index.html](https://www.admin.ch/opc/de/classified-compilation/20052705/index.html)
-
-[x] [https://www.admin.ch/opc/de/classified-compilation/20002317/index.html](https://www.admin.ch/opc/de/classified-compilation/20002317/index.html)
-
-[xi] [https://www.admin.ch/opc/de/classified-compilation/20162251/index.html](https://www.admin.ch/opc/de/classified-compilation/20162251/index.html)
-
-[xii] [https://safeguarddefenders.com/en/blog/rampant-repression-30000-disappeared-china-s-rsdl-jails-2013](https://safeguarddefenders.com/en/blog/rampant-repression-30000-disappeared-china-s-rsdl-jails-2013)
-
-[xiii] [http://www.xinhuanet.com/2019-06/27/c\_1124675957.htm](http://www.xinhuanet.com/2019-06/27/c_1124675957.htm)
-
-[xiv] [https://www.justice.gov/opa/pr/eight-individuals-charged-conspiring-act-illegal-agents-people-s-republic-china](https://www.justice.gov/opa/pr/eight-individuals-charged-conspiring-act-illegal-agents-people-s-republic-china)
-
-[xv] [https://cartoonistsrights.org/badiucao-unmasks-defying-chinas-threats/](https://cartoonistsrights.org/badiucao-unmasks-defying-chinas-threats/)
-[xvi] [https://nzzas.nzz.ch/schweiz/widerstand-gegen-china-abkommen-waechst-ld.1590586#register](https://nzzas.nzz.ch/schweiz/widerstand-gegen-china-abkommen-waechst-ld.1590586#register)
-
-[xvii] [https://www.parlament.ch/press-releases/Pages/mm-apk-n-2020-10-20.aspx](https://www.parlament.ch/press-releases/Pages/mm-apk-n-2020-10-20.aspx)
-
-[xviii] [https://nzzas.nzz.ch/schweiz/widerstand-gegen-china-abkommen-waechst-ld.1590586#register](https://nzzas.nzz.ch/schweiz/widerstand-gegen-china-abkommen-waechst-ld.1590586#register)
-
-[xix] [https://www.swissinfo.ch/eng/sino-swiss-migration-deal-sparks-controversy/46029270](https://www.swissinfo.ch/eng/sino-swiss-migration-deal-sparks-controversy/46029270)
-
-[xx] [https://nzzas.nzz.ch/schweiz/widerstand-gegen-china-abkommen-waechst-ld.1590586#register](https://nzzas.nzz.ch/schweiz/widerstand-gegen-china-abkommen-waechst-ld.1590586#register)
-
-[xxi] [https://nzzas.nzz.ch/schweiz/widerstand-gegen-china-abkommen-waechst-ld.1590586#register](https://nzzas.nzz.ch/schweiz/widerstand-gegen-china-abkommen-waechst-ld.1590586#register)
+[https://www.foxnews.com/media/hunter-biden-coverage-liberal-media-smear-campaign-russian-disinformation](https://www.foxnews.com/media/hunter-biden-coverage-liberal-media-smear-campaign-russian-disinformation)
 
 0

@@ -1,33 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】路德爆料：1月20日前灭共
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/640637/)
+## FDA授权辉瑞中共病毒疫苗用于紧急用途
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/641651/)
 
-作者：香草山写作组  程万里 校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03014137/logo-3-1.jpg)
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11231747/%E5%9B%BE%E7%89%878-2.png)
-美东时间2020年12月11日早，路德时评直播解读《王毅：中方愿意同美方开启各层级、各领域平等对话》。
-
-4天前王毅对美国的对话，提出五点建议是一种居高临下的感觉：奴才，我们拿着你的小把柄呢，你要端正自己，要多给我们汇报，要多利我、你多损失，有啥事你们自己解决别把火引到我们中共，你还要处理好你的民意，不能针对我们中共。
-
-而现在，王毅表示愿意开启平等对话，意思就是原来不平等，原来太居高自大了，各层级就是不仅要和拜登还要和川普总统开启沟通。原来已经没有了对话，现在看到北约准备对中共动手，才意识到要各层级各领域的沟通。
-
-这种态度的改变说明中共已经得到情报，知道1月20号之前灭共绰绰有余，他们已经意识到1月20号之前，美国和北约会随时在各方面都会出手，现在想办法要继续拖，用所谓的时间换空间，开始现在的各层级在白宫在华盛顿的各方面势力的勾兑、渗透和影响川普总统，他们知道他们彻底输了，这就是以美灭共的战场为什么在美国，在决策这一块，他们已经输了。
-
-文贵先生早在直播中提到：战争很快就要来了，呼吁战友们保护好自己，远离一线城市，二线城市远离军事设施，路德社的爆料正好斧正了这一切。
-
-（文章内容仅代表作者个人观点）
+- 编辑：Victor Torres
+- 作者：Victor Torres
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+**西班牙2020年12月12日电/西喜社——**美国食品药品监督管理局（FDA）周五批准了辉瑞（Pfizer）的中共病毒疫苗，并授权其在美国紧急使用。人们最早可能在下周一接受疫苗。
+这是第一款获准在美国使用的疫苗，并且是在FDA咨询委员会批准了针对16岁及16岁以上人群注射的疫苗之后进行的。
+“极速行动”项目促成了历史上最快的疫苗开发。
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+- 新闻来源：[https://justthenews.com/politics-policy/coronavirus/fda-authorizes-pfizers-coronavirus-vaccine-emergency-use](https://justthenews.com/politics-policy/coronavirus/fda-authorizes-pfizers-coronavirus-vaccine-emergency-use)
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-0
+![]()![](https://gnews.org/wp-content/uploads/2020/12/3232325.png)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+
+1+

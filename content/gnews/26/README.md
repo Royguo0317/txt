@@ -1,26 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 特鲁多承认为中共军队举办了冬季战备训练
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/640377/)
+## 【军事快讯】中共CR500远逊MQ-8B，超级无人直升机成“绣花枕头”
+` Ronald` [轉載自GNews](https://gnews.org/zh-hans/641419/)
 
-多伦多枫叶农场（原加喜农场） ctt
-校对 文锦 上传 云起时
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11201948/4-2-1.jpg)图片来源：Twitter
-据反叛新闻 (Rebel News)12月10日报道，特鲁多 (Justin Trudeau) 的发言人在《多伦多太阳报》(Toronto Sun)采访时承认，2018年2月中共军方代表团在加拿大进行了冬季战备训练。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11202721/5-4.jpg)图片来源：加拿大军队官方Twitter 图片文字：2018年2月9日，陆军从加拿大陆军高级战争中心向中共国派遣了一个由四名观察员组成的小组，中共军方接受了加拿大军方邀请，在petawawa观察冬季生存训练。
-这是一个惊人的消息，一位加拿大总理竟瞒着加拿大人，允许向中共国军队传授冬季作战秘密。而由特鲁多掌控的国家广播公司CBC对此允许一字未提。
+内军事：鹰(文言) 素材：文朝汗（部落） 校对：文迹～见证神迹
+![]()![](https://gnews.org/wp-content/uploads/2020/12/PSX_20201212_193908.jpg)
+新浪网12月12日报道，中共研制的金雕CR500无人直升机，可携带8枚蓝剑9，挂载能力直逼直9，作战性能“强于那些不入流的无人机”。
 
-Rebel News昨天已发表一篇题为“特鲁多邀请中共军队在加拿大军事基地训练”的文章, 其中就披露了特鲁多及其整个政府对中共采取非常顺服的政策。而且在TheChinaFiles.com的网站上，可以找到一份34页的军事机密文件，在上面详细说明了加拿大武装部队(Canadian Armed Forces)如何与中共国军队进行军事训练。
+根据披露出的参数指标，中共号称的超级无人直升机CR500最大有效载荷150kg（最大起飞重量达500kg级别），实用升限4000米，续航5小时，最大速度140km/h。
 
-该文件透露, 在2019年, 特鲁多邀请中共军队进行了18个不同的军事项目训练, 并且自由党会为解放军训练的正常进行做了一切努力。中共军方将学习加拿大寒冷天气军事战术, 而这种训练可以使中共军队掌握CAF的一些军事秘密，因此CAF决定取消原定在安省CFB Petawawa为中共军方举办的冬季训练。
+根据新浪网刊文提到的蓝剑9（最大射程6km）重约26.5kg，对应8枚的重量约212kg，超出上述150kg最大载荷41.3%，所以合理地推测为挂载8枚AKD-9的CR500仅能用来展出。
 
-对此，特鲁多非常愤怒，他命令CAF未经他的许可，不得再取消为中共军方举办的任何训练课程。而在今天的提问中，特鲁多的国防部长试图把取消那场训练的功劳归咎于自由党，而将责任归咎于前总理哈珀(Stephen Harper)。
+又由于中共媒体宣传没有CR500飞行状态下的图片和视频，所以CR500的实际性能是否能达到设计指标仍未可知。
 
-评：
+截至2018年2月，美国海军已服役23种MQ-8B变体。MQ-8B火力侦察兵无人直升机于2006年12月首飞，有效载荷272kg，最大起飞重量1430kg（超CR500最大起飞重量2倍多），最大速度213km/h，在具备高飞行速度的同时可以续航达8小时（满载达5h），实用升限达6100米。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/PSX_20201212_193841.jpg)
+MQ-8B飞行和实用性能上领先于CR500，其配备的合成孔径雷达可对80km范围内的20个空地目标搜索和跟踪，根据监视雷达的性能，MQ-8B最多可跟踪多达200个目标。搭载地狱火（作战范围8km）、毒蛇（作战范围10km）、APKWS激光制导火箭（最大射程14km），作战距离远大于CR500。
 
-加拿大的政府、金融及媒体等方面已经被中共深度渗透， 从没有媒体报道中共病毒的来源，我们的借款项目被冻结及本文就可以看得出。但相信川普总统大选获胜后，反共浪潮会横扫加拿大。
+综上，中共鼓吹的无人直升机相比一些小的和微型的无人机有优势，但是和美军的主战MQ-8B相比仍存在巨大差距，更何况CR500目前只是徒有其表，根本不具备战斗力，后续的“蜂群”作战前景更是遥不可及。
 
-[原文链接](https://www.rebelnews.com/trudeau_admits_winter_warfare_training_of_chinese_military_did_happen%20BREAKING%20UPDATE:%20Trudeau%20admits%20winter%20warfare%20training%20of%20Chinese%20military%20DID%20HAPPEN)
+新闻来源：
+中国超级无人直升机问世 带8枚导弹火力堪比直9(图)
+[https://mil.news.sina.com.cn/zhengming/2020-12-12/doc-iiznctke6097013.shtml](https://mil.news.sina.com.cn/zhengming/2020-12-12/doc-iiznctke6097013.shtml)
+又一国产察打无人直升机问世，拥有传统无人直升机无法比拟的优势
+[https://baijiahao.baidu.com/s?id=1684572003174717260&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1684572003174717260&amp;wfr=spider&amp;for=pc)
 
 2+
