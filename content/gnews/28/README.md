@@ -1,30 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 林伍德：美国及乔治亚州官员明年将入狱
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/645707/)
+## 实至名归的2020年爱国者&#8211;朱利安尼先生
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/645732/)
 
-- 编辑：Victor Torres
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13142914/1-80.png) 图片来源：[看传媒新闻网](https://vct.news/news/7e7645a2-3ce1-460b-9bb2-3d80e573f31e)
+12月11日，保守派新闻和调查领军网站《国家脉动》向外界公布，他们将“年度爱国者”奖颁给了前纽约市长、川普总统私人人律师鲁迪·朱利安尼先生（Rudy Giuliani）。
 
+《国家脉动》赞许朱利安尼先生称，他几十年来一直在全球政治中扮演着重要角色。在担任纽约市长期间，朱利安尼先生曾捣毁了纽约黑手党组织，扳倒华尔街强盗大亨。他因为带领美国度过了9·11 恐怖袭击后的艰难时期而声名大噪， 并获得了英国女王授予的大英帝国骑士司令勋章和《时代》杂志的年度人物奖。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+2020年，朱利安尼再次名震四方。面对栽赃川普总统的弹劾丑闻，朱利安尼挺身而出为川普总统英勇辩护，同时揭露了美国左翼政客在乌克兰等国的腐败丑行。同年年末，朱利安尼携手律师詹娜·埃利斯（Jenna Ellis），勇敢地揭发和指控了美国大选期间各地出现的令人瞠目结舌的大选舞弊欺诈案。虽然功绩卓越，但在揭露“来自地狱的亨特·拜登硬盘”事件中，朱利安尼先生却遭到来自主流媒体的攻击和嘲笑。尽管硬盘提供了数不胜数的拜登家族恶行的证据，但媒体和司法系统却大量的确凿证据视而不见。
 
-**西班牙2020年12月13日电/西喜社——**林伍德周日发推，批评中共渗透全球。
-他说: “中共的共产主义渗透遍及全球，包括英国，美国和乔治亚州。”
-他批评反情报机构“不去调查渗透美国的中共，反而浪费时间监视川普，弗林和卡特•佩奇。”
-林伍德律师还补充到，“美国和乔治亚州的官员将于2021年入狱。”
+《国家脉动》主编拉希姆·卡萨姆（Raheem Kassam）表示，在众多出色的人中挑选出首届年度爱国者非常不易。在2020年这个特殊的时刻，一批杰出的爱国者脱颖而出，他们当中有战斗在第一线的救护人员，今年不断受到攻击的警员们，还有美国总统本人，以及全球其他英勇的人们。然而，朱利安尼市长，在76岁这个年纪，甚至还染上中共病毒的情况下，给所有美国人树立了一个榜样，他的努力不懈向人们展示了如何在形势不利的情况下继续战斗。朱利安尼先生已经并将继续尽其所能让世界变得美好，为此我们要感谢并祝福他。
 
+**评**： 作为律师得朱利安尼先生一生都在捍卫美国的宪法和法律，主持公平和正义。纽约市长时期的他打败黑手党维护正义，并带领人们度过最艰难的911灾后重建时期。过去几十年中，他总是在美国处在历史转折点时出现并力挽狂澜。如今，美国遭遇了前所未有的来自中共的威胁，不但政府遭到了严重的共产势力的渗透，整个国家也正在经历着生物武器的袭击，美国陷入了国家安全危机。朱利安尼先生再一次挺身而出，勇敢直面国内外的黑暗势力并与之抗争。里根总统曾经说过：“如果美国失去的自由，那么这个地球上再也没有任何地方会是自由的。” 美国的伟大就在于有朱利安尼先生这样一群勇于与邪恶对抗的爱国的自由战士，他们永远都会与上帝的荣光站在一起，拯救世界。
 
+[原文链接](https://thenationalpulse.com/news/patriot-of-the-year-rudolph-william-louis-giuliani/)
 
-> Communist infiltration by CCP is worldwide, including U.K., U.S., & GA.
-> 
-> Instead of investigating CCP in U.S., counterintelligence was wasted time spying on [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw), [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) & [@carterwpage](https://twitter.com/carterwpage?ref_src=twsrc%5Etfw).
-> 
-> U.S. & GA officials will be going to prison in 2021.[https://t.co/4oYEX1cFL9](https://t.co/4oYEX1cFL9)
-> — Lin Wood (@LLinWood) [December 13, 2020](https://twitter.com/LLinWood/status/1338189940174237703?ref_src=twsrc%5Etfw)
+翻译：Hakunamatata
 
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+校对：沙拉猫
 
 0

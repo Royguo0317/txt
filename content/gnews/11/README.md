@@ -1,22 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【突发】弗林：我们现在就有确凿的外国影响美国大选的证据
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/645959/)
+## 法国治安特警的«闪电干预»新思维
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/644871/)
 
-- 编辑：Victor Torres
+作者：仰望中央公园   校对：Ikonic
 
+在法国特别是在首都巴黎,每年都会有大量的游行抗议示威活动，这已经是巴黎人生活的一部分。每次游行活动，对法国治安特警及机动宪兵都是一次不小的考验。既要避免游行过程中发生打砸抢暴力事件，又不可以以暴制暴。这样只要有游行发生，经常会有公共巴士站被砸烂，汽车被烧毁，甚至有商店被抢劫。人们应该还记得法国农民的壮举：拔掉警察局的铁围栏，将好几吨的牛粪倒在警察局的大院里。对政府来说这些都不重要，只是损失几百万欧元而已，好过因为警察干预而有人受伤，甚至是有人丧命。过去40多年来，巴黎治安部门对游行暴力事件就是这样睁一只眼闭一只眼，采取息事宁人的包容政策。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+随着一股如“黑命贵”，“ANTIFA”的极左思潮在西方世界泛滥，一些法国人开始抛弃传统的劳动价值观，崇尚不劳而获，通过劫富济贫实现他们所谓的社会正义。长此下去，在法国通过暴力革命，实现“人类命运共同体”也是指日可待。
 
-**西班牙2020年12月13日电/西喜社——**周日上午，弗林将军接受Sunday Morning Futures的玛丽亚·巴蒂罗莫采访，他说：“我们在多米尼投票机上，存在非常非常严重的外国影响。”
-弗林将军指出，每个人都应访问悉尼·鲍威尔（Sidney Powell）的网站DefendingtheRepublic.org，以获取更多信息。
-他补充说：“我们现在就有确凿的外国影响美国大选的证据。”
+但是发生在昨天的5千人反对“全面安全法”的游行却受到了安全特警和机动宪兵的干预。警察昨天总共进行了142次问讯，而且有的干预是在游行开始之前。警察有时还会直接冲入游行队伍对可疑人员进行盘问。用巴黎警察总局的话说，这些干预行动就是为了阻止游行队伍中出现“黑衣人团伙”。
 
-**原文链接：**[https://www.thegatewaypundit.com/2020/12/huge-serious-serious-foreign-influence-dominion-voting-machines-general-flynn-says-conclusive-evidence-foreign-influence-us-election-right-now/](https://www.thegatewaypundit.com/2020/12/huge-serious-serious-foreign-influence-dominion-voting-machines-general-flynn-says-conclusive-evidence-foreign-influence-us-election-right-now/)
+法国政府似乎要改变过去对游行过程中的违法行为采取的包容政策，这种“闪电干预”的新策略是否奏效呢？请听法国社会学家，洛桑大学教授Olivier Fillieule在法国新闻电台Franceinfo的分析。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/18075158/Portada-Dominion-ccp-1.jpeg)
+法国新闻台：这些“闪电式干预”是减少暴力的好办法吗？
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+Olivier Fillieule：这取决于从那个角度去看：从纯技术层面来看，警察在暴力事件发生之前就开始干预和盘问，这是非常奏效的。我们可以看到星期六的游行就没有多少暴力现象。警察提前锁定游行队伍里面的暴力嫌疑人，对这些人尽早进行抓捕。这是通过威慑策略，将暴力和违法行动消灭在萌芽状态。从技术层面来讲，这的确是成功的。
+
+法国新闻台：那从政治层面又怎么说？
+
+Olivier Fillieule：从政治上来说，我是相当不安的。今天在法国游行已非易事。在非选举时期，很难表达与政府不同的观点。政府听不进去抗议的诉求。这一切始自2014年。如今的情况越来越严峻，警民关系也越来越紧张。双方死亡的机率是一样的，这是谁都不想看到的。
 
 0
