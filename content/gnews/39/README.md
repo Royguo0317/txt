@@ -1,19 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国内几百万死于冠状病毒
-` GM103` [轉載自GNews](https://gnews.org/zh-hans/642515/)
+## 【突发】川普支持者在华盛顿特区游行集会
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/642578/)
 
-在2020年12月6日的直播中，郭文贵先生表示看着每天的新增病例感到着急。整个世界158万人死亡，但真实数字两倍也不止，有多少人死了是不确认冠状病毒的。当发生大面积的瘟疫传染病的时候，得病率和死亡数字永远会小于真实数字，因为医疗条件和得病者差距太大了。
-视频来源：[https://gtv.org/video/id=5fcd62d6ee9d341c2b48f0d3](https://gtv.org/video/id=5fcd62d6ee9d341c2b48f0d3)
-我着急呀战友们，你们看看纽约，一天一万多（新增）呀，一天一万多个啊。加州，整个世界，158万人死亡全世界，这个158万死亡人数，我给你说，打一倍两倍也不止，有多少人死了是不确认冠状病毒的。你们一定要相信文贵说的这个，多少专家，上星期一个超级专家，也是咱们国内的一位战友，我说国内死了大100万了，他说文贵你相信这数吗，我说应该是吧。
+- 编辑：Victor Torres
 
-他说我告诉你，5倍也不止，我把这话给，不含国内啊，他说有多少人死了不给你确认病毒啊，那怎么可能。
 
-医学上有一句话，当你发生大面积的瘟疫传染病的时候，你的得病率和死亡数字永远会小于真实数字，一般来讲小于3倍5倍10倍是正常的。因为医疗条件和得病者差距太大了，不可能每个人给你都准确的看出是这个病毒传染病死的，它只能漏掉。它不可能说，有人想领那1万多美金报，那胡扯的事儿。那是一条命，你能用1万美金杀死一个人去，怎么可能啊，纯胡说八道的。不要相信这种假的信息，这是个基本常识。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-听写：【VOG听写组】翻译：【noraTina】字幕：【相机过热啊】视频解码：【小螺号】编辑：【GM103】
+**西班牙2020年12月12日电/西喜社——**周六，支持川普总统的游行队伍淹没了华盛顿特区的街道，挤满了距离白宫约一个街区的自由广场，人群要求”停止窃取”2020年大选。 在集会上，迈克尔·弗林（Michael Flynn）呼吁对上个月选举中的渎职行为进行追究。 弗林告诉广大群众：”诚实永远战胜腐败。”
+他补充说：“我们只是要求我们表现出一点透明度。”他呼吁对投票机进行彻底的审计。
+挺川游行全国巴士之旅的发起人“美国女性优先”组织的执行董事凯莉·克雷默（Kylie Kremer）周五在Just the News戴维·布洛迪（David Brody）节目中说，他们想要的是选举诚信，维护宪法和透明度。
 
-战友之家玫瑰园小队出品
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26153509/footer_t.png)
+**新闻来源：**[https://justthenews.com/politics-policy/elections/march-trump-rally-scheduled-saturday-noon-washington-dc](https://justthenews.com/politics-policy/elections/march-trump-rally-scheduled-saturday-noon-washington-dc)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+
 0
