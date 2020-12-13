@@ -1,35 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 保护澳大利亚主权的新法案获得通过
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/642943/)
+## 被抓现行！巴尔藏匿调查文件以庇护拜登犯罪家族
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/643024/)
 
-撰稿: 文治武力 审稿：Jenny 编辑：文远Bruce
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12205312/2020%E5%B9%B412%E6%9C%8813%E6%97%A5%E6%96%87%E6%B2%BB%E6%AD%A6%E5%8A%9B%E6%8A%95%E7%A8%BF%E5%9B%BE1.png)(图片来源：Tripsavvy.com)
-澳洲议会已于2020年12月10日通过了几项重要法案. 这些法案旨在阻止中共渗透，保护澳大利亚家庭、主权、繁荣、价值和利益。
+翻译： 康州盘古农场-一花一世界
 
-中共在过去几周对澳洲施展了其霸道的，经济和外交胁迫的方式，包括实行近于可笑的惩罚性进口关税、推特上发表的假照片、以及战狼式的外交对话。
+校对：康州盘古农场- Robensenna
 
-中共的这些做法想是让澳洲屈服。但是总理莫里森坚定地站在为我们国家的的立场上。
+审核：康州盘古农场-Truemanman
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04214939/GettyImages-1184761873W.jpg)
+看来唐纳德•川普总统不能指望任何人，即使是最亲近他的人，（此种状况）已经有一段时候了，而且他本人都还不知道。
 
-上周议会一起强化并通过了几项重大立法。
+据《每日邮报》报道，总检查长比尔•巴尔（Bill Barr）是我们大家都认为属于”让美国再次伟大“（MAGA）团队的人，他显然知道对前副总统乔•拜登（Joe Biden）的儿子亨特·拜登（Hunter• Biden）的调查已有数月之久，但对此三缄其口。
 
-**2020****年****12****月****10****日通过的几项重大法案**
+他不仅了解调查情况，还积极运作以防止调查工作被公开。
 
-首先是通过了《澳洲外交关系法案》。这个法案将确保联邦政府在对澳大利亚外交事务有顾虑时，可以有优先决定权。它意味着联邦可以拒绝州政府做的不利于澳洲利益的决定和安排；比如否决维多利亚州政府与中共签的有关一带一路的协议。
+据一份报告称，比尔•巴尔至少从春季开始就知道乔•拜登的儿子亨特被调查，并竭尽全力防止在大选前泄露此信息。
 
-次之是《外国投资改革法案》。这个法案将保护国家不受某些外国投资伪装成正常合法，但实际上是含有狡猾的意图和战略计划，在一些关键行业和基础设施中渗透澳大利亚的投资。 该法案包括强化国家安全测试工具和增加各种实力来管理可疑的投资者。
+《华尔街日报》报道说，该司法部长（据称其工作可能不保）采取行动阻止了调查的公开，他的老板唐纳德•川普为此震怒。
 
-此外是《澳大利亚安全情报组织（ASIO）修正法案》。该法案为ASIO提供了更大的权力，面对巨大的安全威胁环境, 使他们的审查结构现代化，更有力的提供打击恐怖主义和间谍活动的设备，。
+司法部的指南建议调查人员不要在选举前采取公开行动，以免会被认为影响选举结果。
 
-在过去的十到二十年里，澳大利亚一直专注于发展国家经济。这给了中共使用使用蓝金黄计划的机会，利用西方人的天真, 真诚和人性中贪婪的弱点，从政治、媒体、华人社区、高校科研, 到关键基础设施、主要产业等方面无孔不入的渗透到澳大利亚的各个领域。
+“如果拜登当选，亨特或乔什么事都不会有；巴尔什么都不会做，新组建的党派杀手将很快封杀此事。达勒姆（Durham）也一样。 我们让他们猝不及防，间谍罪，叛国罪等等（还有更严重的）， 虽然是正义来得太晚，但绝不会缺席！”川普总统在周六的一条推文中说。
 
-澳洲政府终于开始觉醒，对中共采取强硬措施，它正在通过加强一些相关法案，阻止中共控制我们的国家。
 
-**参考数据**
 
-1. [https://www.aph.gov.au/](https://www.aph.gov.au/)
+> IF Biden gets in, nothing will happen to Hunter or Joe. Barr will do nothing, and the new group of partisan killers coming in will quickly kill it all. Same thing with Durham. We caught them cold, spying, treason & more (the hard part), but “Justice” took too long. Will be DOA!
+> — Donald J. Trump (@realDonaldTrump) [December 12, 2020](https://twitter.com/realDonaldTrump/status/1337755490563010560?ref_src=twsrc%5Etfw)
 
-2. [https://www.andrewhastie.com.au/](https://www.andrewhastie.com.au/)
 
-0
+
+“为什么比尔•巴尔（Bill Barr）没有在大选前向公众透露关于亨特·拜登（Hunter Biden）受调查的真相。乔在总统辩论上撒谎说没问题或什么事都没有发生-媒体确认的。置共和党人在民意调查中于极不利地位！”他说。
+
+
+
+> Why didn’t Bill Barr reveal the truth to the public, before the Election, about Hunter Biden. Joe was lying on the debate stage that nothing was wrong, or going on – Press confirmed. Big disadvantage for Republicans at the polls!
+> — Donald J. Trump (@realDonaldTrump) [December 12, 2020](https://twitter.com/realDonaldTrump/status/1337772511870799872?ref_src=twsrc%5Etfw)
+
+
+
+坚称无辜的亨特•拜登（Hunter Biden），也已于星期三首次承认知道对他的调查。
+
+现年50岁的（亨特）拜登说：“我昨天第一次得知，特拉华州的美国检察官办公室也在昨天告知我的法律顾问，他们正在调查我的税务事务。”
+
+他说：“我非常认真地对待这一问题，但我相信，对这些问题进行专业和客观的审查将证明我合法且适当地处理了我的事务，包括受益于咨询专业税务顾问。”
+
+他的父亲，媒体宣布的“当选总统”，经由拜登- 哈里斯换届过渡小组公开表达对其儿子感到骄傲。
+
+“总统当选人拜登对其儿子深感自豪，他克服了艰苦的挑战，包括最近几个月的对他本人恶毒的人身攻击，（这些）只会让他变得更加强大的。”他说。
+
+当然，他为他感到骄傲。当知道自己的儿子是前吸毒成瘾者，经常去脱衣舞俱乐部，试图避免支付孩子抚养费时，但为他与脱衣舞女一起生的孩子付账单并因此卷入国际丑闻时，哪个父母不会为此时正在接受联邦调查的儿子从头到脚得感到骄傲啊？！
+
+十月份，川普总统在接受福克斯新闻采访时说，他相信巴尔有义务对亨特拜登的丑闻采取行动。
+
+这是他在回答会不会任命一名特别律师调查亨特的问题时的回应，据说他正在考虑这件事。
+
+“我们必须让总检查长采取行动。他必须采取行动，而且必须迅速采取行动。他必须任命一个人。这是严重的腐败，必须在大选之前就要调查清楚。”
+
+原文链接：[https://ussanews.com/News1/2020/12/12/caught-barr-caught-covering-for-biden-crime-family-hid-documents/](https://ussanews.com/News1/2020/12/12/caught-barr-caught-covering-for-biden-crime-family-hid-documents/)
+
+1+

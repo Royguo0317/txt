@@ -1,25 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共正在通过利用美国的研究机构，学术界和私营企业的关键技术来谋求军队建设
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/643358/)
+## CCP病毒墙内的感染人群趋向幼童了吗
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/643447/)
 
-英听校：    康州盘古农场 – Mike Li
+撰稿：Jim大叔
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13021137/IMG_4952.jpg)澳喜农场森森设计
+现在墙内的信息在不断的报道各地都有病例增加，具体数据来看属于遍地开花的节奏：
 
-翻译：       康州盘古农场 –  Mike Li
+12月12日0—24时，31个省（自治区、直辖市）和新疆生产建设兵团报告新增确诊病例24例，其中境外输入病例19例（上海10例，北京2例，四川2例，黑龙江1例，江苏1例，山东1例，广东1例，云南1例），本土病例5例（黑龙江4例，四川1例）；无新增死亡病例；新增疑似病例1例，为境外输入病例（在上海）。
 
-翻译终校：康州盘古农场 – Robensenna
+另外一个值得大家关注的地方是下面的这个黑龙江的情况：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13014553/IMG_4951.jpg)网络截图
+CCP在即将结束的时候，加大对墙内的镇压，唯一现在能够让百姓恐怖的就是让疫情重新复燃，来达到控制百姓的目的。
 
-字幕+视频制作：康州盘古农场-小腾腾说
+黑龙江的新增病例，居然有两个幼童感染，已经从易感染老年人的的群体扩展到了幼儿群体。细思极恐。
 
-审核：康州盘古农场-Truemanman
+无论是海外战友还是墙内战友，在保护好自己和家人的前提下，尽可能传播病毒真相，这个应该是ccp最后疯狂的反扑了，现在全世界都处于战斗中，大家一定要警惕谨慎。
 
-中共谋求建设世界级军队通过各种方式、形态和资源，计划的名字叫MCF
+（本文纯属个人观点）
 
-军–民融合军民融合利用美国的开放性和价值观，目标锁定：研究机构、学术界、中共国以外私营企业、人工智能、量子计算、高级半导体、航空航天天技术、5G技术、军民融合损害并削弱了国际间研究合作全是为了建设中共国军事未来。
+审稿：Jenny
 
+澳喜文章[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
 
-[https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13005450/%E4%B8%AD%E5%85%B1%E6%AD%A3%E5%9C%A8%E9%80%9A%E8%BF%87%E5%88%A9%E7%94%A8%E7%BE%8E%E5%9B%BD%E7%9A%84%E7%A0%94%E7%A9%B6%E6%9C%BA%E6%9E%84%EF%BC%8C%E5%AD%A6%E6%9C%AF%E7%95%8C%E5%92%8C%E7%A7%81%E8%90%A5%E4%BC%81%E4%B8%9A%E7%9A%84%E5%85%B3%E9%94%AE%E6%8A%80%E6%9C%AF%E6%9D%A5%E8%B0%8B%E6%B1%82%E5%86%9B%E9%98%9F%E5%BB%BA%E8%AE%BE.mp4](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13005450/%E4%B8%AD%E5%85%B1%E6%AD%A3%E5%9C%A8%E9%80%9A%E8%BF%87%E5%88%A9%E7%94%A8%E7%BE%8E%E5%9B%BD%E7%9A%84%E7%A0%94%E7%A9%B6%E6%9C%BA%E6%9E%84%EF%BC%8C%E5%AD%A6%E6%9C%AF%E7%95%8C%E5%92%8C%E7%A7%81%E8%90%A5%E4%BC%81%E4%B8%9A%E7%9A%84%E5%85%B3%E9%94%AE%E6%8A%80%E6%9C%AF%E6%9D%A5%E8%B0%8B%E6%B1%82%E5%86%9B%E9%98%9F%E5%BB%BA%E8%AE%BE.mp4)
-
-
+欢迎加入澳喜农场：[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13172650/IMG_3537-1.jpg)
 0
