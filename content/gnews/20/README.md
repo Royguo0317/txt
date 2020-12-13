@@ -1,29 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 布伦特原油价格自3月以来首次突破50美元
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/643928/)
+## 林伍德炮轰“中共想占领我们的土地”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/644357/)
 
-整撰：文錦 ；复核：文非
+- 编辑：Victor Torres
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13042559/%E5%9B%BE%E7%89%87-1-17.png)
 
-在科技股持续疲软的背景下，尽管股市疲软，但自3月份布伦特原油价格首次突破50美元以来，能源行业呈现出良好的发展势头。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13042541/%E5%9B%BE%E7%89%87-2-2.png)
+**西班牙2020年12月13日电/西喜社——**
 
-截至美国时间10日收盘，明年1月交货的WTI原油期货价格上涨2.77%，报收46.78美元/桶；明年2月交货的布伦特原油期货价格上涨2.84%，报收50.25美元/桶。这已是布伦特原油期货连续三日上涨，也是其自3月初以来首次收于50美元/桶以上。
+林伍德大律师周日发推称，中国共产党拿走了我们的钱和技术。 现在他们想占领我们的土地，给他们的人种粮食。
 
-12月3日，欧佩克+联合部长级监督委员会（JMMC）最终达成新一轮协议，将自2021年起缓慢放松石油产量限制，即自2021年1月起，减产额度保持在720万桶/日，此后再根据市场走势进行及时调整，这相较于此前770万桶/日的产量限制，增产了50万桶/日。由此看来，此协议的促成提振了油价本月的上涨势头。
+我不支持任何想使中共再次伟大的候选人。 或像乔·拜登（Joe Biden）这样的欺诈者，他企图窃取我们的选举并接受中共贿赂。
 
-彭博社指出来自亚洲的强劲需求也是今天大宗商品市场走强的主要动力。零对冲在8日发表了一篇名为[《中国正在抢购世界上大部分 “失踪 “的石油桶》](https://www.zerohedge.com/commodities/astounding-china-snapping-most-worlds-missing-barrels-oil)的报道，其中引用了来自牛津能源研究所（OIES）的报告，截至10月，中国进口量平均为11.09MB/日，较2019年水平上升超过1MB/日，并保持2019年的增速。根据OIES的报告，”这是令人震惊的，因为经济活动相当疲软，2020年前10个月的平均运行量为13.3mb/日，增长了0.47mb/日，但仍低于去年同期的0.82mb/日增量。”**简而言之，数据表明中共已经通过购买大量原油来储存。**
 
-美国能源署（EIA）刚刚公布的数据显示，截至12月4日，美国除却战略储备的商业原油库存大幅增加超1500万桶，远超市场预期，同时精炼油库存和汽油库存都大幅超预期。EIA数据公布后美国原油价格短线重挫0.9美元。
 
-因此零对冲在10日指出这一奇怪的现象，布伦特原油今天的暴涨是在昨天美国能源部（EIA）披露美国原油库存大规模增加后，石油价格出现下滑的情况下发生的。更令人困惑的是，石油（一种通货膨胀商品）在今晨的飙升是在进一步限制措施的影响下，显示出失业救济人数增长的形势之后发生的。
+> Chinese Communist Party has taken our money & our technology. Now they want to take our land to grow food for their people. (Ask Africa). 
+> 
+> I do not support any candidate who wants to Make CCP GreatAgain. Or fraud like Joe Biden who tried to steal our election & takes CCP bribes.
+> — Lin Wood (@LLinWood) [December 13, 2020](https://twitter.com/LLinWood/status/1337993743090278401?ref_src=twsrc%5Etfw)
 
-参考链接：
 
-[https://www.zerohedge.com/markets/brent-crude-surges-above-50-first-time-march](https://www.zerohedge.com/markets/brent-crude-surges-above-50-first-time-march)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0

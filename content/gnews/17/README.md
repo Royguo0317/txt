@@ -1,21 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 首尔喜韩战友送闫博士七律诗《天使》
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/643905/)
+## 20201212东京樱花团晚间新闻速报
+` 东京樱花团-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/644337/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13050237/image0-2-6.jpg)
-闫丽梦博士作为一个年轻有为的科学家，她前途光明，不愁吃喝不愁钱，生活非常安逸，但是共产党偷偷地当初生化武器杀人，要看中国无数无辜生命被杀戮，并将全世界爆发，为了拯救闫博士挺身而出揭露中共的阴险，邪恶，为此她被迫逃离祖国，投奔爆料革命，她的英勇故事深深的感动着我，赋一首七律《天使》表达敬意，送给她！
+HTS-01C-202012-036
 
-娇柔女子骨铮铮，
-侠义心肠我吼声。
-玉指轻扬魔颤抖，
-朱唇小启毒分明。
-沙场无意身投入，
-恶鬼有心疫虐城。
-拯救人间唯使命，
-歼灭共匪为苍生！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13072007/12345.jpg)
 
-酒色姐姐
+1、日本政府暂停札幌、大阪、东京、爱知、名古屋的GO TO政策；
 
-0
+2、东京都政府要求餐饮、卡拉OK等营业至晚上10点；
+
+3、每日新闻社会调查研究中心于12日进行了全国舆论调查，菅内阁的支持率为40%，比上月下降了17个百分点，不支持率为49%（上次36%），这是菅内阁上台后，不支持率首次超过支持率；
+
+4、日本旅游巨头HIS拟在5年内上市4家左右集团内企业；
+
+5、由于各自治体财政困难，日本总务省拟进行财政援助；
+
+6、东京都12月12日621人确诊CCP病毒。
+
+新闻取材于下述链接：
+
+[https://news.yahoo.co.jp/articles/458a8b79fbb7718563aba1f9aab373870349cc97](https://news.yahoo.co.jp/articles/458a8b79fbb7718563aba1f9aab373870349cc97)
+
+[https://news.yahoo.co.jp/articles/7d367e68ca08789dd46fa74ce19f5e572c88150f](https://news.yahoo.co.jp/articles/7d367e68ca08789dd46fa74ce19f5e572c88150f)
+
+[https://news.yahoo.co.jp/articles/0dbd3d9dfbda63132722715c45e51bad58f33672](https://news.yahoo.co.jp/articles/0dbd3d9dfbda63132722715c45e51bad58f33672)
+
+[https://news.yahoo.co.jp/articles/0080b68ab6f0f0178a620df529699c8df20cfa20](https://news.yahoo.co.jp/articles/0080b68ab6f0f0178a620df529699c8df20cfa20)
+
+[https://news.yahoo.co.jp/articles/7298a757d8e17357f831c89f5b1666b50de4e2f3](https://news.yahoo.co.jp/articles/7298a757d8e17357f831c89f5b1666b50de4e2f3)
+
+4+
