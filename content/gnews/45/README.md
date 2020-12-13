@@ -1,31 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 1212新中国联邦人新西兰伊甸农场大型车队游行活动
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/642944/)
+## 被抓现行！巴尔藏匿调查文件以庇护拜登犯罪家族
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/643024/)
 
-作者：玫瑰天空; 视频及照片：新西兰伊甸农场车游战友团队
+翻译： 康州盘古农场-一花一世界
 
-2020**年**12**月**12**日，新中国联邦人在太阳升起的国家新西兰再次走上街头采取行动！我们始终相信行动的力量，力求在每一次行动中向世界展示新中国联邦人的形象和普及**CCP**不等于中国人的概念。并且要告诉世界，**CCP**不能代表中国人！**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12205114/1212-00.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12205033/1212-4.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12205134/1212-1.jpeg)
-**这次新西兰农场战友行动是大规模车队游行。靓丽的车队贴起美好的新中国联邦标志与旗帜，气宇轩昂的战友们，车队整齐有序排列，战友们一如既往着装整洁气度非凡，一切祥和有序，战友们的游行车队在新西兰的碧海蓝天衬托之下顺畅行进！**
+校对：康州盘古农场- Robensenna
 
-**随着**2020**年新冠病毒全球肆虐，以及美国大选的争夺战不断，许多人感到疲倦和绝望。**
+审核：康州盘古农场-Truemanman
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04214939/GettyImages-1184761873W.jpg)
+看来唐纳德•川普总统不能指望任何人，即使是最亲近他的人，（此种状况）已经有一段时候了，而且他本人都还不知道。
 
-**在这世界格局和历史转折的时刻，新中国联邦人是与众不同的一群人，新中国联邦人是充满朝气，满怀正义，对上天心存感恩敬畏的人，我们爱和平崇尚自由和民主，尊重人性与万物生灵。我们全球各地的新中国联邦人都在持续行动中。每时每刻新中国联邦人都参与在改变历史，开创历史的队伍之中。**
+据《每日邮报》报道，总检查长比尔•巴尔（Bill Barr）是我们大家都认为属于”让美国再次伟大“（MAGA）团队的人，他显然知道对前副总统乔•拜登（Joe Biden）的儿子亨特·拜登（Hunter• Biden）的调查已有数月之久，但对此三缄其口。
 
-**我们相信自己的内在力量！善胜于恶！真理胜过谎言！我们崇尚民主，自由，和谐，信仰和正义！**
+他不仅了解调查情况，还积极运作以防止调查工作被公开。
 
-**在太阳升起的地方，第一缕阳光照亮的是新中国联邦的旗帜和新中国联邦人的身影。**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12205309/1212-2.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12205325/1212-3.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12205345/1212-10.jpeg)
-**我们新中国联邦人在每一次行动中，锻炼身心，蓄积力量！团结协作！**
+据一份报告称，比尔•巴尔至少从春季开始就知道乔•拜登的儿子亨特被调查，并竭尽全力防止在大选前泄露此信息。
 
-**战友们英姿飒爽，向世界展现新中国联邦人满怀正义和勇气的精神面貌；文化素养以及自律和礼仪待人的友好之心。战友们所行之处洋溢着我们对正义与尊严的美好追求。**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12205904/1212-08.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12205916/1212-07.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12205938/12121%E5%B0%81%E9%9D%A2.jpeg)
-**在全世界暴风雨来临的时刻，我们成为一道亮丽的彩虹，我们在一次次行动中学会找回勇气，放下恐惧！召回真心和尊严！展示新中国联邦人与**CCP**的不同！告知世界：我们是新中国联邦人！**CCP**不能代表我们中国人！新中国联邦宣言是我们对世界和对信仰的承诺！我们的信仰之星，我们新中国联邦的国旗会从阳光升起的地方一直飘扬到太阳落下的地方！**
+《华尔街日报》报道说，该司法部长（据称其工作可能不保）采取行动阻止了调查的公开，他的老板唐纳德•川普为此震怒。
 
-**新中国联邦的信仰之星旗帜会飘扬在世界的每一个角落！**
+司法部的指南建议调查人员不要在选举前采取公开行动，以免会被认为影响选举结果。
 
-**我们新中国联邦人**，**我们可爱的战友们也会遍布世界的每一个角落！以每一次行动参与并且创造着开启新世界的每个精彩的历史瞬间**！
+“如果拜登当选，亨特或乔什么事都不会有；巴尔什么都不会做，新组建的党派杀手将很快封杀此事。达勒姆（Durham）也一样。 我们让他们猝不及防，间谍罪，叛国罪等等（还有更严重的）， 虽然是正义来得太晚，但绝不会缺席！”川普总统在周六的一条推文中说。
 
-0
+
+
+> IF Biden gets in, nothing will happen to Hunter or Joe. Barr will do nothing, and the new group of partisan killers coming in will quickly kill it all. Same thing with Durham. We caught them cold, spying, treason & more (the hard part), but “Justice” took too long. Will be DOA!
+> — Donald J. Trump (@realDonaldTrump) [December 12, 2020](https://twitter.com/realDonaldTrump/status/1337755490563010560?ref_src=twsrc%5Etfw)
+
+
+
+“为什么比尔•巴尔（Bill Barr）没有在大选前向公众透露关于亨特·拜登（Hunter Biden）受调查的真相。乔在总统辩论上撒谎说没问题或什么事都没有发生-媒体确认的。置共和党人在民意调查中于极不利地位！”他说。
+
+
+
+> Why didn’t Bill Barr reveal the truth to the public, before the Election, about Hunter Biden. Joe was lying on the debate stage that nothing was wrong, or going on – Press confirmed. Big disadvantage for Republicans at the polls!
+> — Donald J. Trump (@realDonaldTrump) [December 12, 2020](https://twitter.com/realDonaldTrump/status/1337772511870799872?ref_src=twsrc%5Etfw)
+
+
+
+坚称无辜的亨特•拜登（Hunter Biden），也已于星期三首次承认知道对他的调查。
+
+现年50岁的（亨特）拜登说：“我昨天第一次得知，特拉华州的美国检察官办公室也在昨天告知我的法律顾问，他们正在调查我的税务事务。”
+
+他说：“我非常认真地对待这一问题，但我相信，对这些问题进行专业和客观的审查将证明我合法且适当地处理了我的事务，包括受益于咨询专业税务顾问。”
+
+他的父亲，媒体宣布的“当选总统”，经由拜登- 哈里斯换届过渡小组公开表达对其儿子感到骄傲。
+
+“总统当选人拜登对其儿子深感自豪，他克服了艰苦的挑战，包括最近几个月的对他本人恶毒的人身攻击，（这些）只会让他变得更加强大的。”他说。
+
+当然，他为他感到骄傲。当知道自己的儿子是前吸毒成瘾者，经常去脱衣舞俱乐部，试图避免支付孩子抚养费时，但为他与脱衣舞女一起生的孩子付账单并因此卷入国际丑闻时，哪个父母不会为此时正在接受联邦调查的儿子从头到脚得感到骄傲啊？！
+
+十月份，川普总统在接受福克斯新闻采访时说，他相信巴尔有义务对亨特拜登的丑闻采取行动。
+
+这是他在回答会不会任命一名特别律师调查亨特的问题时的回应，据说他正在考虑这件事。
+
+“我们必须让总检查长采取行动。他必须采取行动，而且必须迅速采取行动。他必须任命一个人。这是严重的腐败，必须在大选之前就要调查清楚。”
+
+原文链接：[https://ussanews.com/News1/2020/12/12/caught-barr-caught-covering-for-biden-crime-family-hid-documents/](https://ussanews.com/News1/2020/12/12/caught-barr-caught-covering-for-biden-crime-family-hid-documents/)
+
+1+
