@@ -1,46 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 胡锡进喉舌质疑美国辉瑞新冠疫苗的安全性
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/642443/)
+## 足球明星因“维吾尔面部识别警报”取消华为赞助
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/642644/)
 
-*新闻来源：*the Washington Free Beacon*《*华盛顿自由灯塔*》；作者：*杰克·贝勒 (Jack Beyrer )*；发布时间：2020年12月9日*
+*新闻来源：Breitbart《布莱特巴特》；作者：John Hayward；发布时间：2020年12月10日*
 
-*翻译/简评：*Marialu*；校对：感恩；审核：万人往；Page：赞赞*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12141501/22-7.jpg)
-#### **简评：**
+*翻译/简评：MikeHua；校对/审核：万人往；Page：拱卒*
 
-中共大外宣《环球时报》总编胡锡进发推说：“辉瑞疫苗真的可以信赖吗？”他质疑美国辉瑞公司生产的冠状病毒疫苗的有效性，这正值美国即将批准几款冠状病毒疫苗之际。据报道，辉瑞公司的疫苗对预防冠状病毒疾病有效率95%。
+[!\[\]()!\[\](https://spark.adobe.com/page/s3CwHctPYyS6k/images/366c06fa-acc7-422d-8938-78584b1a3364.jpg?asset_id=2deb8f3a-95f5-43c9-9db6-6127f8dcb475&amp;img_etag=%221972e7e902ff8891cf582b33df056b76%22&amp;size=1024)](https://spark.adobe.com/page/s3CwHctPYyS6k/images/366c06fa-acc7-422d-8938-78584b1a3364.jpg?asset_id=2deb8f3a-95f5-43c9-9db6-6127f8dcb475&amp;img_etag=%221972e7e902ff8891cf582b33df056b76%22&amp;size=1024)
 
-此时此刻，中共大外宣又在兴风作浪，重新编造冠状病毒起源的错误信息，称该病毒可能通过进口冷冻食品进入武汉。中共国驻印度外交官查立友也散布谬论，称冠状病毒起源于美国军方。
+**简评：**
 
-美国一些民主党人和中共沆瀣一气，在疫苗上大作文章，如所谓的美国当选副总统卡马拉·哈里斯告诉记者，她不会相信“川普”和“川普”疫苗。真是逢川必反啊！
+中共绑架中国人民这个庞大的市场，控制了整个西方的文化产业。中共一句话就足以让一个足球俱乐部失去巨大的观看量和文化产品的销售，这对任何一个文化相关企业都是致命打击。中共的这种行为只会牺牲老百姓的利益和中国人在国际上的形象，其根本目的是维护盗国贼和海外私生子女的利益。
 
-在中共极权统治下，靠偷窃、撒谎、骗人、黑客等手段构建的所谓科技偷盗体系。爆料革命战友们都知道，真正的疫苗出来还早着呢。谁都可以质疑疫苗的安全性，除了中共。难道从来没自主研发生产过疫苗的中共所生产的新冠病毒疫苗会更值得信赖吗？
+巴塞罗那队的前锋安托万·格里兹曼站出来公开和华为切割，代表体育界的良知。他们没有为金钱屈服，不屑于拿华为带血的钱。中共灭亡后，14亿人的市场真正对外开放，这些有良知的球员有机会赚更多合法、干净的钱。同时，中国人也可以享受全世界文化、经济发展带来的成果。
 
-#### **原文翻译：**
+**原文翻译：**
 
-# 中共国顶级大外宣人士对新冠病毒疫苗的安全性表示怀疑
+#### 足球明星因“维吾尔面部识别警报”取消了华为的赞助
 
-[!\[\]()!\[\](https://spark.adobe.com/page/vMPfieKv2gNDh/images/37c52ab0-718f-471b-a849-b9ebe2e2eb77.png?asset_id=00f8194e-8704-4758-9b2d-aff227e6cb52&amp;img_etag=%222a8f4a1c74f69911ed9427a87610c96e%22&amp;size=1024)](https://spark.adobe.com/page/vMPfieKv2gNDh/images/37c52ab0-718f-471b-a849-b9ebe2e2eb77.png?asset_id=00f8194e-8704-4758-9b2d-aff227e6cb52&amp;img_etag=%222a8f4a1c74f69911ed9427a87610c96e%22&amp;size=1024)辉瑞公司的新冠病毒疫苗/盖蒂图片社
+[!\[\]()!\[\](https://spark.adobe.com/page/s3CwHctPYyS6k/images/8628fdde-f64c-450a-b91a-c830318745a9.jpg?asset_id=fb161d40-87f9-432b-a053-7ac7e9900fbf&amp;img_etag=%22fa7008f86846e703f60bd07f2a11b1a6%22&amp;size=2560)](https://spark.adobe.com/page/s3CwHctPYyS6k/images/8628fdde-f64c-450a-b91a-c830318745a9.jpg?asset_id=fb161d40-87f9-432b-a053-7ac7e9900fbf&amp;img_etag=%22fa7008f86846e703f60bd07f2a11b1a6%22&amp;size=1024)照片拍摄： KOMUnews via Flickr, CC BY 2.0
 
-一位中共国顶级大外宣人士对美国生产的辉瑞冠状病毒疫苗的有效性表示怀疑。
+**法国足球明星安托万·格里兹曼 (Antoine Griezmann)在周四结束了他和中共电信巨头华为的合作。格里兹曼曾效力于2018年世界杯冠军球队，目前是巴塞罗那队的前锋。**
 
-“我的问题是：辉瑞疫苗真的可以信赖吗？”周三，中共大外宣、国有《环球时报》总编胡锡进在推特上发推问道。
+格里兹曼引用一份报告称，华为参与开发的人工智能系统可以识别中国受迫害的维吾尔族人，并向警方发送“维吾尔族警报”。
 
-胡锡进对疫苗安全性的质疑正值美国即将批准几款冠状病毒疫苗之际，其中一款疫苗由美国制药公司辉瑞生产。据说辉瑞公司的疫苗对预防冠状病毒疾病有效率为95%。美国食品药物管理局（FDA) 官员将于周四开会，决定是否批准该疫苗，该疫苗最早可能于下周在美国上市。
+格里兹曼周四早上将该文章发布在Instagram上，从法语翻译成英语，内容如下：
 
-中共大外宣们也在努力重提关于冠状病毒起源的错误说法。中共官员已经提出了未经证实的指控，称该病毒可能通过进口冷冻食品进入武汉。
+*出于对华为公司参与研发利用面部识别软件发出“维吾尔警告”的怀疑，我宣布立刻终止与华为合作的关系。*
 
-“如果现在冷冻食品链成为可能，武汉被病毒诬陷的可能性也不排除，”，中共国外交官查立友写道。查立友还兜售了冠状病毒来源于美国军方的错误理论。
+*借此机会，我希望华为不仅能够否认这些指责，而且能够尽快采取实际行动谴责这种大规模的镇压，并利用其影响力为尊重人权和妇女权利做出贡献。*
 
-中共国企图在疫苗上散布不信任的言论反映了一些民主党人也企图有这样做的尝试。今年9月，候任副总统卡马拉·哈里斯（Kamala Harris，加州地区）告诉记者，她不会相信川普疫苗。
+29岁的格里兹曼自2017年起担任华为全球品牌大使。欧亚体育产业(Eurasian Sports Industry)教授西蒙·查德威克 (Simon Chadwick)形容他周四的行为是“非常史无前例”和“非常重要”，因为该球星和球队的大量收入都来自中共国。
 
-“我不会相信唐纳德·特朗普，这必须是一个可信的信息来源，来谈论他所说的任何功效和可靠性，”哈里斯在接受美国有线电视新闻网CNN的《国情咨文》采访时说，”我不会相信他的话。”
+“格里兹曼所做的是，不仅是他说了，而且他行动了”，查德威克告诉半岛电视台(Al Jazeera News)。
 
-辉瑞疫苗很可能在未来几周，即川普政府任期的最后一个月在美国分发。这款疫苗是利用川普政府授权的““曲速行动””（Operation Warp Speed）计划的联邦资金而研发的四款疫苗的其中之一。
+维吾尔运动人士捷乌尔·伊拉姆(Jewher Ilham)的父亲伊拉姆·托西(Ilham Tothi自2014年以来一直被中共国监禁。捷乌尔告诉半岛电视台，他对格里兹曼和其他“愿意在金钱面前选择良心的人”非常尊重。她警告格里兹曼，他“可能会因为自己的行为而面临报复”。
 
-[原文链接](https://freebeacon.com/coronavirus/top-chinese-propagandist-casts-doubt-on-safety-of-covid-vaccine/)
+一名华为发言人告诉BBC，该公司“对格里兹曼结束与该公司关系的决定表示非常遗憾”。
+
+“我们会继续邀请他亲自与我们谈话，解释公司内部最高层目前正在做的工作，以解决各个层面的人权、平等和歧视问题，并向他、我们的所有客户和合作伙伴保证，华为非常重视这些问题”，发言人说。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/s3CwHctPYyS6k/images/655e6592-4d86-4651-b685-d60212e7722b.jpg?asset_id=6cf29975-86fd-4f82-863c-94c088f5b169&amp;img_etag=%22a9f92ba3dbb9d361da08fcf2d6592420%22&amp;size=2560)](https://spark.adobe.com/page/s3CwHctPYyS6k/images/655e6592-4d86-4651-b685-d60212e7722b.jpg?asset_id=6cf29975-86fd-4f82-863c-94c088f5b169&amp;img_etag=%22a9f92ba3dbb9d361da08fcf2d6592420%22&amp;size=1024)
+
+华为没有质疑关于“维吾尔警告”监控系统的报告的准确性，但却不一致地声称“无歧视是公司的核心价值观”，其产品“不是为识别种族群体而设计的”。尽管报告中有文件证明，华为与另一家中共国公司合作开发了一个系统，可以直观地识别维吾尔族和其他少数民族。
+
+另一个足球运动员、阿森纳俱乐部的梅苏特·厄齐尔(Mesut Ozil)称维吾尔人是“反抗迫害的战士”，并批评世界各地的穆斯林在2019年12月没有代表他们说话。俱乐部与他的言论保持距离，而作为报复，中共国取消了一些阿森纳比赛的转播。
+
+在美国体育界，为保护中共国镇压的受害者而采取的类似行动基本上没有出现。当休斯敦火箭队总经理莫雷在2019年10月表达了对香港民主抗议者的支持时，NBA迅速向来自中共国的压力低头，谴责莫雷的言论“不恰当”，并迫使他道歉。众所周知，NBA和它的球员在批评美国和美国人民时没有这种沉默。尽管NBA与中共国关系密切，但只有一位球员公开谴责了对维吾尔人的压制：犹他爵士队的鲁迪·戈贝尔 (Rudy Gobert)。
+
+[原文链接](https://www.breitbart.com/sports/2020/12/10/soccer-star-cancels-huawei-sponsorship-uyghur-alert-facial-id/)
 
 [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
@@ -48,6 +58,8 @@
 
 [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/vMPfieKv2gNDh/)
-[!\[\]()!\[\](https://spark.adobe.com/page/vMPfieKv2gNDh/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/vMPfieKv2gNDh/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/s3CwHctPYyS6k/)
+
+![]()![](https://spark.adobe.com/page/s3CwHctPYyS6k/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
 0
