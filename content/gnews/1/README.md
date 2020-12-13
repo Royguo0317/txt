@@ -1,29 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】缅因州5万中国军人被炸死
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/642947/)
+## 保护澳大利亚主权的新法案获得通过
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/642943/)
 
-作者：香草山写作组 叮咚猫
+撰稿: 文治武力 审稿：Jenny 编辑：文远Bruce
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12205312/2020%E5%B9%B412%E6%9C%8813%E6%97%A5%E6%96%87%E6%B2%BB%E6%AD%A6%E5%8A%9B%E6%8A%95%E7%A8%BF%E5%9B%BE1.png)(图片来源：Tripsavvy.com)
+澳洲议会已于2020年12月10日通过了几项重要法案. 这些法案旨在阻止中共渗透，保护澳大利亚家庭、主权、繁荣、价值和利益。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
+中共在过去几周对澳洲施展了其霸道的，经济和外交胁迫的方式，包括实行近于可笑的惩罚性进口关税、推特上发表的假照片、以及战狼式的外交对话。
 
+中共的这些做法想是让澳洲屈服。但是总理莫里森坚定地站在为我们国家的的立场上。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12205000/MOS0721-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E7%BC%85%E5%9B%A0%E5%B7%9E5%E4%B8%87%E4%B8%AD%E5%9B%BD%E5%86%9B%E4%BA%BA%E8%A2%AB%E7%82%B8%E6%AD%BB.png)
-据内部消息及12月10日哈尔-特纳电台（**Hal Turner Radio Show**）节目报道：”5万中国士兵在缅因州被炸死，这被报告为地震造成。” 一架F16在密歇根州被击落。3个航母战斗群部署在西海岸，2个航母战斗群部署在东海岸。
+上周议会一起强化并通过了几项重大立法。
 
-因为信息太危险，政府切断了哈尔的广播节目。
+**2020****年****12****月****10****日通过的几项重大法案**
 
-该消息并未被证实，我们会继续跟踪报道。
+首先是通过了《澳洲外交关系法案》。这个法案将确保联邦政府在对澳大利亚外交事务有顾虑时，可以有优先决定权。它意味着联邦可以拒绝州政府做的不利于澳洲利益的决定和安排；比如否决维多利亚州政府与中共签的有关一带一路的协议。
 
-资料及图片来源：[https://darkoutpost.com/news/50000-chinese-soldiers-were-bombed-and-killed-in-maine-which-was-listed-as-an-earthquake/](https://darkoutpost.com/news/50000-chinese-soldiers-were-bombed-and-killed-in-maine-which-was-listed-as-an-earthquake/)
+次之是《外国投资改革法案》。这个法案将保护国家不受某些外国投资伪装成正常合法，但实际上是含有狡猾的意图和战略计划，在一些关键行业和基础设施中渗透澳大利亚的投资。 该法案包括强化国家安全测试工具和增加各种实力来管理可疑的投资者。
 
+此外是《澳大利亚安全情报组织（ASIO）修正法案》。该法案为ASIO提供了更大的权力，面对巨大的安全威胁环境, 使他们的审查结构现代化，更有力的提供打击恐怖主义和间谍活动的设备，。
 
+在过去的十到二十年里，澳大利亚一直专注于发展国家经济。这给了中共使用使用蓝金黄计划的机会，利用西方人的天真, 真诚和人性中贪婪的弱点，从政治、媒体、华人社区、高校科研, 到关键基础设施、主要产业等方面无孔不入的渗透到澳大利亚的各个领域。
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+澳洲政府终于开始觉醒，对中共采取强硬措施，它正在通过加强一些相关法案，阻止中共控制我们的国家。
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+**参考数据**
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+1. [https://www.aph.gov.au/](https://www.aph.gov.au/)
+
+2. [https://www.andrewhastie.com.au/](https://www.andrewhastie.com.au/)
 
 0

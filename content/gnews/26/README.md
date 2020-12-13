@@ -1,24 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 推特竟阻止用户点赞、回复川普的推文
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/642480/)
+## 【突发】川普支持者在华盛顿特区游行集会
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/642578/)
 
-蒙特利尔皇家山战友团Spirit
-校对 文锦 上传 云起时
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12144258/Tech-Crunch.jpg)图片来源：Tech Crunch
-据The National Pulse12月12日报道，周六上午，川普在三条不同的推文中，对最高法院决定驳回德克萨斯州旨在使当选总统拜登在威斯康星州、密歇根州、佐治亚州和宾夕法尼亚州的胜选无效的诉讼做出了回应。
+- 编辑：Victor Torres
 
-川普援引大法官克拉伦斯-托马斯和塞缪尔-阿利托的反对意见，表达了法院有义务审理州际纠纷。这两位比较保守的大法官表示法院的其他七位成员站在了德克萨斯州的对立面。
 
-“这是一个巨大而可耻的误判，”川普写道。”美国人民被欺骗了，我们的国家蒙羞了。甚至从来没有给我们上法庭的机会！”
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-推特周六阻止用户点赞和回复川普总统的一系列推文，在这些推文中，川普重复了他赢得大选、比赛被 “偷 “走的错误说法。在推特限定的另一条推文中，总统称他 “以压倒性优势赢得了选举”，佐治亚州州长布莱恩-坎普（Brian Kemp）和亚利桑那州州长道格-杜西（Doug Ducey）允许选票被 “偷走”。总统周六的推文只是过去一个月来一系列最新的推文，宣传关于选举的虚假说法，未对推翻结果的州和民选官员表示不满。
+**西班牙2020年12月12日电/西喜社——**周六，支持川普总统的游行队伍淹没了华盛顿特区的街道，挤满了距离白宫约一个街区的自由广场，人群要求”停止窃取”2020年大选。 在集会上，迈克尔·弗林（Michael Flynn）呼吁对上个月选举中的渎职行为进行追究。 弗林告诉广大群众：”诚实永远战胜腐败。”
+他补充说：“我们只是要求我们表现出一点透明度。”他呼吁对投票机进行彻底的审计。
+挺川游行全国巴士之旅的发起人“美国女性优先”组织的执行董事凯莉·克雷默（Kylie Kremer）周五在Just the News戴维·布洛迪（David Brody）节目中说，他们想要的是选举诚信，维护宪法和透明度。
 
-而当用户试图对这条推特做出反应或分享时，平台弹出了一条消息，内容是：”我们试图防止像这样违反推特规则的推特接触到更多的人，所以我们已经禁用了大部分的参与方式。”
+**新闻来源：**[https://justthenews.com/politics-policy/elections/march-trump-rally-scheduled-saturday-noon-washington-dc](https://justthenews.com/politics-policy/elections/march-trump-rally-scheduled-saturday-noon-washington-dc)
 
-推特限制川普总统发布真实消息的行径与美国自由、民主、法治相违背，越来越多人意识到推特已经悄无声息的被中共“共产”了，这反而会有助于人民对真相的挖掘和觉醒。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
 
-[原文链接](https://thenationalpulse.com/breaking/twitter-now-stops-americans-from-liking-replying-to-trump-tweets/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0

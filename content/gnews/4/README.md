@@ -1,31 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共叫嚣强军，妄图苟延残喘
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/642906/)
+## 【热点播报】缅因州5万中国军人被炸死
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/642947/)
 
-- 编辑：Victor Torres
-- 作者：喜妹
+作者：香草山写作组 叮咚猫
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12205000/MOS0721-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E7%BC%85%E5%9B%A0%E5%B7%9E5%E4%B8%87%E4%B8%AD%E5%9B%BD%E5%86%9B%E4%BA%BA%E8%A2%AB%E7%82%B8%E6%AD%BB.png)
+据内部消息及12月10日哈尔-特纳电台（**Hal Turner Radio Show**）节目报道：”5万中国士兵在缅因州被炸死，这被报告为地震造成。” 一架F16在密歇根州被击落。3个航母战斗群部署在西海岸，2个航母战斗群部署在东海岸。
 
-**西班牙2020年12月13日电/西喜社——**
+因为信息太危险，政府切断了哈尔的广播节目。
 
-近日，央视网发表题为《育新机开新局 | 实现富国和强军相统一》的新闻，鼓吹强军，显示其恐惧灭亡命运，妄图负隅顽抗。
+该消息并未被证实，我们会继续跟踪报道。
 
-该消息称，强国必须强军，军强才能国安。当前，世界百年未有之大变局加速演进，中共病毒疫情对国际格局产生深刻影响，中共国安全形势不确定性不稳定性增大。
+资料及图片来源：[https://darkoutpost.com/news/50000-chinese-soldiers-were-bombed-and-killed-in-maine-which-was-listed-as-an-earthquake/](https://darkoutpost.com/news/50000-chinese-soldiers-were-bombed-and-killed-in-maine-which-was-listed-as-an-earthquake/)
 
-世界新军事革命迅猛发展，中共面临严峻挑战。提出加快国防和军队现代化建设。
 
-中共政权在当前形势下，已嗅出自身所处的危机。它的包括发动病毒武器攻击等无底线的恶行被爆料革命一桩桩揭穿之后，世界人民逐渐觉醒。
 
-全世界自由、民主、法治的，代表着正义力量的国家正在集结。中共意识到，瞒天过海大摇大摆的欺骗世界人民的“好日子”一去不复返了。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-在末日将临的压力和恐惧之下，中共妄想通过加固它的“假擀面杖”，负隅顽抗，为苟延残喘的邪恶政权续命。殊不知，“擀面杖”再硬，终是假的。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-中共邪恶政权必将被世界人民的怒火和联军的炮火焚尽。这一天已经近了。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
