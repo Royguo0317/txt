@@ -1,21 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 双12这天，钟南山在为自己的铜像揭幕
-` GM06` [轉載自GNews](https://gnews.org/zh-hans/645413/)
+## 【香草诗词汇】除贼
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/645422/)
 
-作者: Free monkey
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13125414/image-18.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13125437/image-19.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13125525/image-20.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13125631/image-21.jpeg)
-2020年12月12日是华南师范大学附属中学132周年校庆的日子，今天的华南师范大学附属中学有了”牛X的资本”，因为学校来了一个”客人”。
+作者：香草山写作组 修文 校对/发稿：飞虹
 
-华南师范大学附属中学曾经走出过以为可以称道的毕业生。
-它这次来母校，一是参加校庆，一是给自己的铜像揭幕。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07015922/logo-3-1-1.jpg)
 
-**活着给自己的铜像揭幕，这是第一次听说，也是第一次亲眼看到，前无古人后无来者，绝对是稀罕事。**这个铜像很有价值。
-通过铜像下半部分的石材表层纹理判断，这绝对是上等的好材料，价值不菲，充分体现出学校对塑像的重视程度。通体紫红色，是对当前声名显赫红的发紫的现状的真实反映。1936年10月只有起点没有终点，是无声的情感艺术表达形式。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13125723/image-22.jpeg)
-美中不足的是，整个铜像完全没有表达出中共国第一带货网红的神奇本领。
 
-板蓝根、空气净化器、冬虫夏草、氢氧雾化机、连花清瘟胶囊、血必净注射液、安慕希酸奶、刺梨饮料……都应该刻在上面, 难道不是吗？!
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13130341/2-27.jpg)
+定点清除趁夜光，中南海上现金芒。
+士卒未惊中国梦，辕营早沉小池塘。
+唯送导弹一包火，何劳盟军众木仓。
+流血五步斩贼首，天下可免战乱殇。
+
+注释
+1.辕营：战车军营。泛指导弹装备部队。
+2.池塘：轰炸过后地下导弹井深坑凹陷。
+3.包：数量词例如一包月饼。也是一人名。
+4.流血五步：出自《战国策·唐雎不辱使命》”若士必怒，伏尸二人，流血五步，天下缟素，今日是也”。指一人之亡，倒地血淌。含血容量，五步即光。
+5.贼首：贼的首级，也指代贼的首领。
+6.殇：为国战死者，称国殇。
+
+译文
+也许某个夜晚，导弹从天而降。定点同时清除，包括中南海上。
+士兵梦中惊醒，听得一阵巨响，军营已被吓平，敌人却在何方。
+但见天空流火，四野不时闪光。不需劳师动众，更不需要开枪。
+某处灯火殿堂，血淌八九平方。国家人民解放，军队免于杀伤。
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
