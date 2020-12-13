@@ -1,33 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 电邮显示，拜登父子和中国华信能源有染
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/642463/)
+## 国内几百万死于冠状病毒
+` GM103` [轉載自GNews](https://gnews.org/zh-hans/642515/)
 
-- 编辑：Victor Torres
-- 翻译：小玉
+在2020年12月6日的直播中，郭文贵先生表示看着每天的新增病例感到着急。整个世界158万人死亡，但真实数字两倍也不止，有多少人死了是不确认冠状病毒的。当发生大面积的瘟疫传染病的时候，得病率和死亡数字永远会小于真实数字，因为医疗条件和得病者差距太大了。
+视频来源：[https://gtv.org/video/id=5fcd62d6ee9d341c2b48f0d3](https://gtv.org/video/id=5fcd62d6ee9d341c2b48f0d3)
+我着急呀战友们，你们看看纽约，一天一万多（新增）呀，一天一万多个啊。加州，整个世界，158万人死亡全世界，这个158万死亡人数，我给你说，打一倍两倍也不止，有多少人死了是不确认冠状病毒的。你们一定要相信文贵说的这个，多少专家，上星期一个超级专家，也是咱们国内的一位战友，我说国内死了大100万了，他说文贵你相信这数吗，我说应该是吧。
 
+他说我告诉你，5倍也不止，我把这话给，不含国内啊，他说有多少人死了不给你确认病毒啊，那怎么可能。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+医学上有一句话，当你发生大面积的瘟疫传染病的时候，你的得病率和死亡数字永远会小于真实数字，一般来讲小于3倍5倍10倍是正常的。因为医疗条件和得病者差距太大了，不可能每个人给你都准确的看出是这个病毒传染病死的，它只能漏掉。它不可能说，有人想领那1万多美金报，那胡扯的事儿。那是一条命，你能用1万美金杀死一个人去，怎么可能啊，纯胡说八道的。不要相信这种假的信息，这是个基本常识。
 
-**西班牙2020年12月12日电/西喜社——**据福克斯新闻获得的一封2017年9月20日的电子邮件显示，亨特·拜登在要求为他的新 “办公室伙伴 “制作钥匙，他列出了他的父亲：乔·拜登，吉尔·拜登和他的叔叔吉姆·拜登，他们计划与中国华信能源公司董事长的”使者”共享“瑞典之家”大楼内的办公室。
-“请为办公室的新同事提供钥匙：乔·拜登、吉尔·拜登、吉姆·拜登”，这封主题为 “507”的邮件说。
-在邮件中，亨特·拜登还为董公文申请了钥匙，他称董功文是中国华信能源公司主席叶简明的”使者”。
-“我希望办公室的牌子能体现出以下内容”，他继续要求 “拜登基金会”和 “哈德逊西部（CEFC美国）”。
-他继续说：”租约仍将以我公司的名字Rosemont Seneca为名。”他提供了被他称为 “我的合伙人 “的董和叶的详细情况，以及他们的联系方式。
-根据这封邮件，亨特还提供了乔·拜登和吉姆·拜登的个人手机号码。
-在福克斯新闻获得的另一封邮件中，该大楼经理回应称，”我们非常兴奋和荣幸地欢迎你们的新同事”。随后，该经理要求确认亨特·拜登想多要四把钥匙，并 “在门上和北面入口处换上名字”。
-“瑞典之家”向福克斯新闻证实，亨特·拜登的公司Rosemont Seneca确实在那个时间段租用了办公空间。不过，他们拒绝透露更多信息。
-乔·拜登曾多次否认与儿子的商业交易有关。
-据参议院国土安全委员会和财政委员会称，亨特·拜登与叶简明主席、董公文和其他中国公民的商业联系，”导致数百万美元的可疑交易”。
-委员会还发现，亨特与董公文开设了一个银行账户，该账户为他的叔叔吉姆•拜登及其妻子萨拉的10万美元全球消费提供了资金。
+听写：【VOG听写组】翻译：【noraTina】字幕：【相机过热啊】视频解码：【小螺号】编辑：【GM103】
 
-**原文链接**：[https://www.foxnews.com/politics/hunter-biden-requested-keys-new-office-mates-joe-biden-chinese-emissary-cefc-chairman.amp?\_\_twitter\_impression=true](https://www.foxnews.com/politics/hunter-biden-requested-keys-new-office-mates-joe-biden-chinese-emissary-cefc-chairman.amp?__twitter_impression=true)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20124027/PHOTO-2020-11-18-22-21-04.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
-
+战友之家玫瑰园小队出品
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26153509/footer_t.png)
 0
