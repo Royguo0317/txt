@@ -1,34 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 鲍威尔：大选舞弊是网络版珍珠港事件
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/642770/)
+## 【热点播报】等同宣战：林伍德发推称川普即将宣布中共用生物武器攻击美国
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/642832/)
 
-多伦多枫叶农场 阿黎
-校对 文锦 上传 云起时
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12184520/253.png)图片来源：Foxnews
-据DJHJ12月11日报道，律师西德尼-鲍威尔(Sidney Powell)12月10日在鲁-多布斯（Lou Dobbs）节目中，详细讲述了她对2020年总统选举中使用的Dominion 投票系统的调查所暴露出的大规模欺诈行为。
+作者：纽约香草山 wilson
 
-“这关系到我们是否能继续作为美利坚合众国存在……我们已经失去了州长席位、国会席位、参议院席位，”鲍威尔说。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07015922/logo-3-1-1.jpg)
 
-多布斯说：”我们愿全力支持你。这是一个网络版珍珠港事件。我们已经有了巨量的证据，我很乐意在这次直播中展示你所拥有的任何证据，我们将很乐意立即这么做，通宵工作。我们将使用所有节目所允许的时间，甚至超越这个直播的允许范围。”
 
-西德尼-鲍威尔在鲁-多布斯节目中透露，她和团队与4个人进行了直接的沟通，他们是： Jorge Rodriguez[前委内瑞拉前通信部长]；Khalil Majid Mazoub[前台人员]；Gustavo Reyes-Zumeta[程序员]；Antonio Mugica[Smartmatic CEO]。沟通后的结果表明，这四人直接参与了窃取选举的活动。”他们设计并开发了Smartmatic+Dominion程序和机器，其中包括一个控制器模块，这套系统允许人们登录并操纵投票，甚至在投票时也可以即时操纵投票结果。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09170802/Vaccine_Picture.png)
+2020年12月12日，林伍德律师发推号召所有的美国爱国者，在未来几天，要做好战斗准备。
+林伍德说，美国总统唐纳德.川普将宣布：
+中共用生物武器攻击了我们的国家。
+中共通过干预我们的大选和破坏我们的民主体制，夺走我们的合法选举，进而窃取我们的国家。
+中共企图（利用生物武器残害我们的人民）侵占我们的土地，用来种植粮食，我们决不能让他们夺走。祈祷吧！
+一旦由美国总统宣布，中共对美国发动了病毒生物战，和中共干预和破坏美国大选，就是美国对中共的正式宣战，因为中共投毒全世界和干涉美国大选都属于战争行为。
 
-西德尼-鲍威尔团队得到的证据有来自Smartmatic和Dominion的一摞一摞的实际文件，包括他们计划和执行这一切的证据；4亿美元在大选前几周从中共国汇入Smartmatic公司；关于软件如何被设计翻转选票和所有这些欺诈选举结果是如何发生的证据。 乔治-索罗斯与整个事件有关联。马洛赫-布朗（Malloch -Brown）勋爵和Dominion的其他人也参与了其中。埃里克-库默拥有一些软件专利，也参与其中。鲍威尔最近甚至提出，中情局可能参与了创建多米尼克公司使用的软件。软件和程序有可能是中情局开发，然后出口，再引进使用。
+**校对发稿：悟空**
 
-鲍威尔曾多次提出，美国的选举在舞弊方面与第三世界的选举没有区别。多布斯指出，2020年大选是一个网络珍珠港。左翼机构已经联合他们的力量来推翻美国政府。
+参考来源：[https://twitter.com/llinwood/status/1337812090686480391?s=21](https://twitter.com/llinwood/status/1337812090686480391?s=21)
 
-鲍威尔上个月呼吁中央情报局局长吉娜-哈斯佩尔 “立即被解雇”，她认为不应该允许Dominion投票系统在选举中使用，同时呼吁对批准购买该投票机的州官员进行调查。
 
-鲍威尔表示，由于 “全球主义利益”，一些非常重要的、有权势的、极其富有的人可能参与操纵选举，因为他们可以从中获利。
 
-评：
+> American Patriots be prepared.
+> 
+> Events will unfold quickly over next several days.
+> 
+> Listen to [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw). 
+> 
+> CCP attacked our country with a biological weapon. CCP attacked us again to steal election.
+> 
+> CCP wants our land to grow food.
+> 
+> We shall NEVER let them take it.
+> 
+> Pray. [https://t.co/JPmb4zdFLj](https://t.co/JPmb4zdFLj)
+> — Lin Wood (@LLinWood) [December 12, 2020](https://twitter.com/LLinWood/status/1337812090686480391?ref_src=twsrc%5Etfw)
 
-尽管美国司法系统被中共严重渗透，占有重要地位的法官、检察官和知名大律师很大程度上被中共收买，但在危急时刻，总有有勇敢和爱国的人士站出来维护正义，不顾个人生死安危，为国家效忠。朱利安尼、林-伍德、鲍威尔等数名大律师如海啸般的诉讼让左翼选举欺诈罪犯无处遁形。
 
-网络版珍珠港袭击已经发生，幕后由中共发起，中共病毒疫情如同另一次珍珠港袭击，两次都是不宣而战，让美国遭受了有史以来最严重的创伤。中共病毒让美国已失去30万人的生命，经济大幅滑落；大选被操纵，面临着两百年前美国先人所创建的美利坚合众国是否还能存在。二战时期日本偷袭珍珠港，美国投下两颗原子弹，使日本投降。面对今天的珍珠港袭击，美国已经开始采取行动，消灭中共，更严厉的行动会接踵而至。
 
-[原文链接](https://djhjmedia.com/kari/going-for-the-heart-of-the-country-election-was-a-cyber-pearl-harbor-powell-said-on-dobbs-show/)
+American Patriots be prepared.Events will unfold quickly over next several days.
+
+CCP attacked our country with a biological weapon. CCP attacked us again to steal election.
+
+CCP wants our land to grow food.
+
+We shall NEVER let them take it.
+
+Twitter•今天12:30
+
+
 
 0
