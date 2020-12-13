@@ -1,17 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## GTV在SimilarWeb排名创造奇迹 战友共同铸造未来潜力巨大
-` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/645250/)
+## 班农作战室WARROOM精选 578 期（1）
+` XMLYG777` [轉載自GNews](https://gnews.org/zh-hans/645222/)
 
-内新闻：背靠背
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13115620/image-137.png)
-根据SimilarWeb数据显示，gtv.org在SimilarWeb新闻和媒体（News and Media）分类中排名第44。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13115633/image-138.png)
-根据SimilarWeb数据显示，Gtv.org流量按国家排名前五分别是：中国大陆占37.91%，美国22.06%，台湾6.92%，加拿大6.35%，香港3.67%。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13115643/image-139.png)
-根据SimilarWeb数据显示，Gtv.org最近六个月访问130.42百万次。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13115714/image-140.png)
-通过gtv.org直接访问占82.83%，通过搜索占9.32%。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13115729/image-141.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13115749/image-142.png)
-2+
+供稿：VOG班农译制组
+
+是吧，现在知道比尔·巴尔从春天开始就知道这一点，这与亨特·拜登无关。这是对我们有史以来最大的敌人的妥协。我国遭受过的最大生存威胁，中国共产党。他奴役着对中国人民奴役的锁链从来就没有被切断。
+
+请记住尽管中华文明很伟大，但是在他们从未有过一天的自由。这些老百姓一万年里从未有过一天自由，从来没有。在这场漫长的斗争中 ，我们从雅典 罗马和大宪章，这一切历经了千百年 。 都是关于自由尤其是平民的自由，中国人从来没有过。
+
+现在我们知道拜登的金主，妥协真是令人作呕。这很糟糕 这些媒体，但是是司法部和它的美国司法部长。然后凯里克先生。我让你进行评估和分析表明，因为你已经为执法奉献了一生。
+
+你知道吗？ 史蒂夫我…我为此感到震惊吗？不 ，因为傻子才会认为司法部长巴尔和克里斯托弗··雷不知道发生了什么，有证据证明我要这么说，你知道 过去三天有关亨特·拜登 乔·拜登 吉姆·拜登的所有头条新闻。你知道它产生了什么效果，这澄清了鲁迪·朱利安尼（Rudy Giuliani），这澄清了川普总统。
+
+它在美国和世界范围内传达了我们受到审查的信息，史蒂夫 脸书推特 想到了所有的那些把这些下架  。不允许我们公开发表或谈论这些的人们。你们知道说到审查制度那是在谈论共产主义中国。我们已经变成那样由于大型技术 大型媒体公司，这是正在这个国家发生这种情况
+
+太离谱了。司法部长和联邦调查局局长他们是同谋。他们是同谋，这是底线。
+
+他们知道，他们知道这一切。他们什么也没说，实际上他们压制一切与其有关的事物以免影响选举。但实际上他们做到了，他们做到了你无法对我说他们的压制对总统选举没有负面影响。因此总而言之我想你知道我只希望在六个月前一年以前。
+
+川普总统摆脱这个检察长，摆脱克里斯托弗·雷（Christopher ray），摆脱从来就不会支持过的川普的人。致力于这个国家的宪法的人和真正的执法者放在位子上。
+
+0
