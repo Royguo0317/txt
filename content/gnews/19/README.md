@@ -1,60 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 战友之间的信仰：大爱与小我
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/642466/)
+## 【突发】川普支持者在华盛顿特区游行集会
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/642578/)
 
-撰稿：提拉米苏
+- 编辑：Victor Torres
 
-审稿：Jenny
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12144939/IMG_4929.jpg)网络截图
-我们在爆料革命的路上，为什么会跟随？除了希望广大同胞不要再过猪狗不如的生活外，也是我们修炼的过程，在这路上我们找回我们自己，塑造更好的灵魂。改掉一些我们身上不好的习性。**就是贪嗔痴漫疑**。这七个属性是都是来源于自我。我们在一个丛林法则的社会成长，什么都靠抢骗来生存，就是郭先生所说的茅屎坑文化。这种生态地下长大的我们，自我，自私，自大又自卑。
 
-当自我太大的时候，觉得自己做一点小事就了不起，太高看自己。我们为什么焦虑不安，因为缺少了大爱与无我，也就是我们的信仰。我们对别人小事上的不足，充满了怒气，对自己的不足却视而不见。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-我身在爆料革命中，发现我正在改变，变得幸福。为什么幸福？因为钱多了，房子大了？不是的。是因为安心，能睡个安稳觉，是任何时候都可以大声的说，我没有对不起其他人，我做的事情是在为其他人带来未来和幸福。虽然默默无闻，但是我早已有了回报，就是心里面的满足，就是这种利他的行为。
+**西班牙2020年12月12日电/西喜社——**周六，支持川普总统的游行队伍淹没了华盛顿特区的街道，挤满了距离白宫约一个街区的自由广场，人群要求”停止窃取”2020年大选。 在集会上，迈克尔·弗林（Michael Flynn）呼吁对上个月选举中的渎职行为进行追究。 弗林告诉广大群众：”诚实永远战胜腐败。”
+他补充说：“我们只是要求我们表现出一点透明度。”他呼吁对投票机进行彻底的审计。
+挺川游行全国巴士之旅的发起人“美国女性优先”组织的执行董事凯莉·克雷默（Kylie Kremer）周五在Just the News戴维·布洛迪（David Brody）节目中说，他们想要的是选举诚信，维护宪法和透明度。
 
-今天得知了我们澳喜农场11位战友为大家汇款的事，心里面非常感动，原来这么多人在同一个价值观下前行，为了广大战友的的利益，默默的做了那么了不起的事。由衷地敬佩，我有感而发，不禁想到反共作词人林夕的词：
+**新闻来源：**[https://justthenews.com/politics-policy/elections/march-trump-rally-scheduled-saturday-noon-washington-dc](https://justthenews.com/politics-policy/elections/march-trump-rally-scheduled-saturday-noon-washington-dc)
 
-《人造卫星》
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14114819/15_20201104203619_mh1604494242867-scaled.jpg)
 
-你会看到 一颗颗绿豆
-紧紧包围 蓝色的河流
-甚至看到 流动公路上谁在漫游
-
-你会看到 闪亮的黄豆
-那是一栋 摩天大楼
-甚至看到 某个地下铁的出口
-
-我们像蚂蚁东奔西走
-我们在谁的家 暂时逗留
-
-两万公里蓦然回首 拍下天长地久
-人造卫星围绕这地球
-
-我们却围绕着快乐哀愁
-躲不过卫星的镜头
-
-你会看到 燃烧的红豆
- 落在这个蓝色的气球
-
-一朵玫瑰 点缀着兵工厂的伤口
-看得到森林化为乌有
-
-拍不到你我变成了朋友
-看到那个摩天大楼
-
-拍不到我们在哪里分手
-
-拍不到眼泪的丝绸
-我们只是 一颗蚕豆
-
-（本文纯属个人观点）
-
-澳喜文章[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
-
-欢迎加入澳喜农场：[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13172650/IMG_3537-1.jpg)
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0
