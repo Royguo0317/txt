@@ -14,68 +14,68 @@
 
 ---
 
-### [视频中共国内大事正在发生](/content/gnews/1/README.md)
+### [视频共产党不可能一夜之间灭亡](/content/gnews/1/README.md)
  ` 为子孙爱七哥农场`
 
-### [视频我们正在等待两件事情发生](/content/gnews/2/README.md)
+### [视频中共国内大事正在发生](/content/gnews/2/README.md)
  ` 为子孙爱七哥农场`
 
-### [12/12/2020 每日快讯](/content/gnews/3/README.md)
+### [视频我们正在等待两件事情发生](/content/gnews/3/README.md)
+ ` 为子孙爱七哥农场`
+
+### [12/12/2020 每日快讯](/content/gnews/4/README.md)
  ` GM132 每日快訊`
 
-### [【世事解评】《个人收入和财产信息系统建设总体方案》：民众早已被公布财产](/content/gnews/4/README.md)
+### [【世事解评】《个人收入和财产信息系统建设总体方案》：民众早已被公布财产](/content/gnews/5/README.md)
  ` 纽约香草山农场`
 
-### [视频谁将受益于废除230法案？](/content/gnews/5/README.md)
+### [视频谁将受益于废除230法案？](/content/gnews/6/README.md)
  ` 为子孙爱七哥农场`
 
-### [视频CCP阴招：毒杀支持川普总统的人](/content/gnews/6/README.md)
+### [视频CCP阴招：毒杀支持川普总统的人](/content/gnews/7/README.md)
  ` 为子孙爱七哥农场`
 
-### [央视罕见公布城市“巷战计划”为决战做准备](/content/gnews/7/README.md)
+### [央视罕见公布城市“巷战计划”为决战做准备](/content/gnews/8/README.md)
  ` GM77`
 
-### [《路德社》每日简报早间版 2020.12.12&#8211;NewYork Time](/content/gnews/8/README.md)
+### [《路德社》每日简报早间版 2020.12.12&#8211;NewYork Time](/content/gnews/9/README.md)
  ` 路德社精选`
 
-### [《路德社》精选主题专栏：开干！川普总统正式吹响号角！](/content/gnews/9/README.md)
+### [《路德社》精选主题专栏：开干！川普总统正式吹响号角！](/content/gnews/10/README.md)
  ` 路德社精选`
 
-### [【文雍漫谈】朱利安尼先生说的“B计划”是什么](/content/gnews/10/README.md)
+### [【文雍漫谈】朱利安尼先生说的“B计划”是什么](/content/gnews/11/README.md)
  ` 为子孙爱七哥农场`
 
-### [爱国贼！聪明爱国者！愚蠢的爱国者！](/content/gnews/11/README.md)
+### [爱国贼！聪明爱国者！愚蠢的爱国者！](/content/gnews/12/README.md)
  ` 喜马拉雅 日本京都富士会`
 
-### [视频「重大泄密」195万海外中共党员的名单炸弹明天将曝光](/content/gnews/12/README.md)
+### [视频「重大泄密」195万海外中共党员的名单炸弹明天将曝光](/content/gnews/13/README.md)
  ` Himalaya Australia`
 
-### [国内战友要做好一年的准备](/content/gnews/13/README.md)
+### [国内战友要做好一年的准备](/content/gnews/14/README.md)
  ` 喜马拉雅 日本京都富士会`
 
-### [首尔喜韩战友送闫博士七律诗《天使》](/content/gnews/14/README.md)
+### [首尔喜韩战友送闫博士七律诗《天使》](/content/gnews/15/README.md)
  ` 首尔喜韩农场`
 
-### [别样网红](/content/gnews/15/README.md)
+### [别样网红](/content/gnews/16/README.md)
  ` 喜马拉雅 日本京都富士会`
 
-### [快讯！ 弗林将军：美国处关键时刻 人民决定总统](/content/gnews/16/README.md)
+### [快讯！ 弗林将军：美国处关键时刻 人民决定总统](/content/gnews/17/README.md)
  ` GM77`
 
-### [布伦特原油价格自3月以来首次突破50美元](/content/gnews/17/README.md)
+### [布伦特原油价格自3月以来首次突破50美元](/content/gnews/18/README.md)
  ` GM77`
 
-### [【文字版】路德时评2020.12.12早间：《华尔街日报》报道“司法部巴尔故意隐瞒亨特硬盘门调查”；解释五大家族，七大机构的形成和影响力](/content/gnews/18/README.md)
+### [【文字版】路德时评2020.12.12早间：《华尔街日报》报道“司法部巴尔故意隐瞒亨特硬盘门调查”；解释五大家族，七大机构的形成和影响力](/content/gnews/19/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [从郭先生的乱聊中来启迪智慧：12月11日郭先生直播话题整理](/content/gnews/19/README.md)
+### [从郭先生的乱聊中来启迪智慧：12月11日郭先生直播话题整理](/content/gnews/20/README.md)
  ` 为子孙爱七哥农场`
 
-### [中共统治下人们的信任危机](/content/gnews/20/README.md)
+### [中共统治下人们的信任危机](/content/gnews/21/README.md)
  ` GM77`
-
-### [视频班農作戰室WarRoom 569期 深挖翟東升（普通話配音）](/content/gnews/21/README.md)
- ` WarRoom中文組 文乐`
 
 ### [[热点解读]疫苗造成的次生灾难](/content/gnews/22/README.md)
  ` Himalaya Australia`
