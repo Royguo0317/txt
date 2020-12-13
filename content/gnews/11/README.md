@@ -1,25 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法国治安特警的«闪电干预»新思维
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/644871/)
+## 库莫助理称遭其性骚扰“多年”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/646059/)
 
-作者：仰望中央公园   校对：Ikonic
+- 编辑：Victor Torres
+- 翻译：Ranting
 
-在法国特别是在首都巴黎,每年都会有大量的游行抗议示威活动，这已经是巴黎人生活的一部分。每次游行活动，对法国治安特警及机动宪兵都是一次不小的考验。既要避免游行过程中发生打砸抢暴力事件，又不可以以暴制暴。这样只要有游行发生，经常会有公共巴士站被砸烂，汽车被烧毁，甚至有商店被抢劫。人们应该还记得法国农民的壮举：拔掉警察局的铁围栏，将好几吨的牛粪倒在警察局的大院里。对政府来说这些都不重要，只是损失几百万欧元而已，好过因为警察干预而有人受伤，甚至是有人丧命。过去40多年来，巴黎治安部门对游行暴力事件就是这样睁一只眼闭一只眼，采取息事宁人的包容政策。
 
-随着一股如“黑命贵”，“ANTIFA”的极左思潮在西方世界泛滥，一些法国人开始抛弃传统的劳动价值观，崇尚不劳而获，通过劫富济贫实现他们所谓的社会正义。长此下去，在法国通过暴力革命，实现“人类命运共同体”也是指日可待。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-但是发生在昨天的5千人反对“全面安全法”的游行却受到了安全特警和机动宪兵的干预。警察昨天总共进行了142次问讯，而且有的干预是在游行开始之前。警察有时还会直接冲入游行队伍对可疑人员进行盘问。用巴黎警察总局的话说，这些干预行动就是为了阻止游行队伍中出现“黑衣人团伙”。
+**西班牙2020年12月13日电/西喜社——**纽约市政客林齐·博兰周日在推特上声称，纽约州长安德鲁•库莫 “对我进行了多年的性骚扰”。
+博兰在她的推特账户上将自己描述为一个进步主义者，根据她的LinkedIn简介，她在2015年到2018年间为库莫的政府工作。
+她曾在该州的经济发展公益组织 – 纽约州帝国发展公司工作，直到2018年3月，她成为负责经济发展的副部长和库莫的特别顾问。
+“是的，库莫对我进行了多年的性骚扰，”博兰写道。”很多人都看到了。我永远无法预料到会发生什么：我会被盘问我的工作（其实非常好）还是因为我的长相被骚扰。还是会在同一次谈话中两者兼而有之？多年来都是这样”。
+“不知道什么是最让人难过的地方，除了知道即使有人看到了也没有人会做什么，”博兰继续说道。”没有人。而且我知道我不是唯一(被骚扰)的女人。”
 
-法国政府似乎要改变过去对游行过程中的违法行为采取的包容政策，这种“闪电干预”的新策略是否奏效呢？请听法国社会学家，洛桑大学教授Olivier Fillieule在法国新闻电台Franceinfo的分析。
 
-法国新闻台：这些“闪电式干预”是减少暴力的好办法吗？
 
-Olivier Fillieule：这取决于从那个角度去看：从纯技术层面来看，警察在暴力事件发生之前就开始干预和盘问，这是非常奏效的。我们可以看到星期六的游行就没有多少暴力现象。警察提前锁定游行队伍里面的暴力嫌疑人，对这些人尽早进行抓捕。这是通过威慑策略，将暴力和违法行动消灭在萌芽状态。从技术层面来讲，这的确是成功的。
+> Not knowing what to expect what’s the most upsetting part aside from knowing that no one would do a damn thing even when they saw it. 
+> 
+> No one. 
+> 
+> And I \*know\* I am not the only woman.
+> — Lindsey Boylan (@LindseyBoylan) [December 13, 2020](https://twitter.com/LindseyBoylan/status/1338125793973706752?ref_src=twsrc%5Etfw)
 
-法国新闻台：那从政治层面又怎么说？
 
-Olivier Fillieule：从政治上来说，我是相当不安的。今天在法国游行已非易事。在非选举时期，很难表达与政府不同的观点。政府听不进去抗议的诉求。这一切始自2014年。如今的情况越来越严峻，警民关系也越来越紧张。双方死亡的机率是一样的，这是谁都不想看到的。
+
+博兰没有提供任何指控事件的细节或说出证人的名字，她没有回应福克斯新闻的询问。她在12月初指责州长办公室是一个 “有毒 “的工作环境。
+库莫的办公室周日没有回应福克斯新闻的评论请求。
+博兰是2021年竞选曼哈顿区长的众多民主党人之一。根据Ballotpedia的数据，她今年还在纽约第10选区与民主党众议员杰里-纳德勒（Jerry Nadler）竞选，但输了40多个百分点。
+“要说明的是：我没有兴趣与记者交谈，”博兰周日在推特上写道。”我是为了证明无数女性的经历，并确保停止虐待。我最担心的是，这种情况会继续下去。”
+
+
+
+> To be clear: I have no interest in talking to journalists. 
+> 
+> I am about validating the experience of countless women and making sure abuse stops. 
+> 
+> My worst fear is that this continues. And as [@FKAtwigs](https://twitter.com/FKAtwigs?ref_src=twsrc%5Etfw) said yesterday, my second worst fear is having to talk about and relive this.
+> — Lindsey Boylan (@LindseyBoylan) [December 13, 2020](https://twitter.com/LindseyBoylan/status/1338136790817976321?ref_src=twsrc%5Etfw)
+
+
+
+“我的第二大恐惧是不得不谈论和重温这些。”她说。
+
+**原文链接**：[https://www.foxnews.com/politics/andrew-cuomo-sexual-harassment-accusation-former-aide-boylan](https://www.foxnews.com/politics/andrew-cuomo-sexual-harassment-accusation-former-aide-boylan)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0
