@@ -1,17 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## GTV在SimilarWeb排名创造奇迹 战友共同铸造未来潜力巨大
-` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/645250/)
+## 郭文贵先生今日动态（2020年12月13日）
+` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/645321/)
 
-内新闻：背靠背
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13115620/image-137.png)
-根据SimilarWeb数据显示，gtv.org在SimilarWeb新闻和媒体（News and Media）分类中排名第44。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13115633/image-138.png)
-根据SimilarWeb数据显示，Gtv.org流量按国家排名前五分别是：中国大陆占37.91%，美国22.06%，台湾6.92%，加拿大6.35%，香港3.67%。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13115643/image-139.png)
-根据SimilarWeb数据显示，Gtv.org最近六个月访问130.42百万次。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13115714/image-140.png)
-通过gtv.org直接访问占82.83%，通过搜索占9.32%。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13115729/image-141.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13115749/image-142.png)
-2+
+战友之家摘要组
+
+【持续更新】GTV排名太牛了，还没真正开始，未来会比这更好！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13121520/image-145.png)
+00:01 就是因为这个GTV的排名，GTV的排名太牛了。兄弟姐妹们，所有GTV的投资者，你们可以很好很好的去庆贺一下了。这可是了不得了。华盛顿、伦敦、巴黎、东京、台湾、俄罗斯，无数人发信息，“Miles，太牛了，GTV，太牛了。”
+
+00:24 兄弟姐妹们，数据不会骗人。这真的是GTV，这还是刚刚开始，兄弟姐妹们，相信你自己，这回，用你的手和你的钱证明你自己真的是大智慧，还是大笨蛋，这个数据是了不得了，无人串改，但未来会比这更好，更好，更好，更好。咱还没真正开始呢。
+
+00:51 接下来，文贵会展示给大家，它将多厉害，多牛。今天是个伟大的日子，唔该晒。
+
+（视频结束）
+
+更多信息请点：https://gtv.org/getter/5fd624aa20c9025a87df256a
+
+1+
