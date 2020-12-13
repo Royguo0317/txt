@@ -1,44 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共产党不可能一夜之间灭亡
-` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/644270/)
+## 林伍德炮轰“中共想占领我们的土地”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/644357/)
 
-七哥说视频制作组｜出品
+- 编辑：Victor Torres
 
-美国人就两样东西，是硬实力，他没了他就完蛋了。
 
-第一就是货币美元，第二就是他的航母舰队、国防力量。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-没这两样，这美国美利坚共和国United States绝对不是世界的帝国，
+**西班牙2020年12月13日电/西喜社——**
 
-其他你再说他的信仰法律，这是国家的基石。
+林伍德大律师周日发推称，中国共产党拿走了我们的钱和技术。 现在他们想占领我们的土地，给他们的人种粮食。
 
-但在国际上这些东西是长期的，严格讲叫内部国家基石的实力，在国际上你的力量是什么，就两样，你的美元和你的军队。
+我不支持任何想使中共再次伟大的候选人。 或像乔·拜登（Joe Biden）这样的欺诈者，他企图窃取我们的选举并接受中共贿赂。
 
-共产党是啥呀，就是控制着所有中国人的钱袋子和所有的军队呢，公检法呢。
 
-所以中国人全都是奴隶，那么今天此时此刻，决定美元命运的人和决定美国航空舰队的人正在酝酿着和我们一起，通过特殊的方式与我们灭共。
 
-大家期望一夜之间共产党灭亡的事是不可能的，那是自欺欺人，那是疯了。
+> Chinese Communist Party has taken our money & our technology. Now they want to take our land to grow food for their people. (Ask Africa). 
+> 
+> I do not support any candidate who wants to Make CCP GreatAgain. Or fraud like Joe Biden who tried to steal our election & takes CCP bribes.
+> — Lin Wood (@LLinWood) [December 13, 2020](https://twitter.com/LLinWood/status/1337993743090278401?ref_src=twsrc%5Etfw)
 
-共产党还需要一段时间，真的还需要一段时间。
 
-而且我们最希望的就是今天想做的事情，通过内部的力量，将共产党的那几个坏蛋给瓦解。
 
-最起码把这几个家族，现在控制着整个中国的十四亿中国人民的一切，和即将把十四亿中国人推向世界对立面的时候，和中国人即将面临战争，即将面临饥饿，天灾人祸战争都将到来的时候，让妇女老人孩子免于战祸免于灾难。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
-任何一场战争，一比五百或是一比三十。
-
-就是一个士兵的死亡可能关联着三十个到五百个老百姓的死亡。
-
-更重要的事情，我们中国老百姓没过过一天好日子，如果到那个时候发生的时候，医疗没有，医疗保障没有，粮食保障没有，社保系统没有。
-
-更多精彩内容请关注：
-
-- [为子孙爱七哥农场官方推特](https://twitter.com/wzsaqg)
-- [为子孙爱七哥农场官方GTV号](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
-- [欢迎加入农场discord官方群](https://discord.gg/2vXAV6G)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20123101/%E5%86%9C%E5%9C%BA%E5%B9%BF%E5%91%8Av7-3.jpg)
 0

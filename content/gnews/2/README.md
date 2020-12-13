@@ -1,34 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国内大事正在发生
-` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/644243/)
+## 班农作战室WarRoom 569期 深挖翟东升（普通话配音）
+` WarRoom中文組 文乐` [轉載自GNews](https://gnews.org/zh-hans/644296/)
 
-七哥说视频制作组｜出品
+> 杰克·波索比克向美国人民介绍翟东升视频的背景，包括人民大学是共产党的大学，多位政商高层毕业于人大。所以翟东升知道他自己在讲什麽，他不是个普通教授，讲的东西可信度很高。翟的视频是绝佳的证据，因为它从中共内部印证了：中共对美国精英阶层的渗透、收买、控制是100%真实存在的！
 
-兄弟姐妹们，你们要知道，灭共这个事情已经到了分分钟钟都有可能巨大的变化。
 
-它跟经济没关系，它跟现在病毒也没关系，它跟美国的现在大选也没关系，就没有…都不是绝对的关系。
+作者：WarRoom作战室
+配音：文名
 
-应该说有关系，但没有绝对的关系。
+https://www.youtube.com/watch?v=3vRsFQ4VKQE
+569期完整節目
+原始英文视频链接：[https://www.youtube.com/watch?v=DLrglL\_-DA4](https://www.youtube.com/watch?v=DLrglL_-DA4)
 
-真正这个影响的，是国内很多事情的发生。
-
-国内的事情发生，关键取决于国内的政治和国内的军事。
-
-所以说兄弟姐妹们，这才是真正的，我们期待的，上天给我们另外个奇迹。 就是让国内的战友和共产党内部的“以共灭共”达到一个新高度。
-
-此时此刻的中共南京、杭州、现在杭州和南京，正在发生着大事。
-
-此时此刻的海南和南海，正在发生着大事。
-
-此时此刻华盛顿、洛杉矶、纽约正在和中共连线状态中。
-
-更多精彩内容请关注：
-
-- [为子孙爱七哥农场官方推特](https://twitter.com/wzsaqg)
-- [为子孙爱七哥农场官方GTV号](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
-- [欢迎加入农场discord官方群](https://discord.gg/2vXAV6G)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20123101/%E5%86%9C%E5%9C%BA%E5%B9%BF%E5%91%8Av7-3.jpg)
 0
