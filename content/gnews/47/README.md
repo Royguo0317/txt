@@ -1,23 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【突发】法证调查证明多米尼投票机操纵了选票
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/642352/)
+## 【热点播报】德州倾向独立 美国面临分裂
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/642320/)
 
-- 编辑：Victor Torres
+作者：香草山写作组 Wilson 校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/03014137/logo-3-1.jpg)
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2020年12月12日电/西喜社——**昨晚，密歇根州安特里姆县多米尼投票机的法证信息技术检查结果证明，该县的多米尼投票机将川普的选票改到了拜登名下。
-据报道，一个月前该县将6000张选票从川普总统转移给了乔·拜登。
-昨晚马特·德佩诺(Matt DePerno)律师在Newsmax上，与格雷格·凯利(Greg Kelly)分享了爆炸性信息:
-“好吧，州务卿乔塞琳·本森(Jocelyn Benson)说这是人为错误造成的。 我们发现那不是事实，那是谎言。 这不是人为错误造成的。 这是通过名为多米尼投票系统(Dominion Voting System)的计算机程序发生的。 通过诉讼，我们得以访问该程序。而我的团队在上周日去了，我们在该计算机系统上拍摄了取证图像，取得了16个CF数据卡，16个优盘，并获得目前在安特里姆县办公室的机器的取证图像。
+2020年12月11日，美国联邦最高法院以“德州不能证明其利益，因其他州的选举问题而受到影响”为由，驳回德州针对4个摇摆州的诉讼。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12131029/1920px-Flag_of_Texas.png)德克萨斯州旗 图片来源：维基百科
+最高法院的这份裁决，缘于德州政府在12月7日向联邦最高法院提起的诉讼，在诉讼中，德州对乔治亚州、密歇根州、宾夕法尼亚州和威斯康星州的选举程序提出异议，认为他们违反了宪法，四个州通过法院而不是州立法机构非法修改投票规则，违反了宪法的“平等保护条款”。
 
-**新闻来源：**[https://www.thegatewaypundit.com/2020/12/yesterdays-biggest-story-dominion-voting-machines-caught-manipulating-votes-per-forensic-investigation/](https://www.thegatewaypundit.com/2020/12/yesterdays-biggest-story-dominion-voting-machines-caught-manipulating-votes-per-forensic-investigation/)
+最高法院的裁决公布后，代表德州发起本次诉讼的德州总检察长帕克斯顿，随即发表不认可裁决的声明：最高法院不受理此案，也不确定这四个州是否遵守联邦和州选举法的行为是否符合《宪法》。我将继续不懈地捍卫选举诚信和安全性，并让那些为自己利益而推翻既定选举法的人承担责任。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/18075158/Portada-Dominion-ccp-1.jpeg)
+德州共和党主席艾伦‧韦斯特的反应则颇具侵略性，他说：分离出去可能是亲川普州的回应，也许守法州应该团结起来，组成一个将遵守《宪法》的国家联盟。因为最高法院的裁决意味着各州可以违反美国《宪法》，而不需要承担责任，这一裁定将对我们的立宪共和国的未来产生深远影响。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+艾伦.韦斯特的意思再明白不过：不守法的州明明严重侵害了守法州的权益，但最高法院却不维护法律的公正性，其后果不堪设想！我们德州和其他守法的州独立出去算了。
+
+艾伦.韦斯特的独立言论可不是口炮，德州的独立倾向是有历史渊源的。Dr.Bo博士在路德节目上谈到德州的诉讼时直达本质：德州人在坚持正义方面非常执着，当正义受到严重侵犯时，德州人甚至会选择牺牲和平来维护正义。
+
+独立学者如松指出，美利坚合众国由50个州组成，这五十个州相当于五十个“国家”，靠宪法将这五十个“国家”联系在一起，各个州（国家）具有高度的独立性，这是美国与其他任何国家之间的根本差别。
+
+德州的面积比法国还大，原本是墨西哥的一部分，1835年德克萨斯人民认为墨西哥政府违背了1824年宪法，从而导致德克萨斯革命。1835年12月20日，德克萨斯人签署声明，要求当时的墨西哥总统安纳将军尊重1824年的宪法，但安纳却以平叛的名义率兵攻打德克萨斯，因此，德克萨斯在1836年3月2日正式宣布独立，成立了德克萨斯共和国，1845年得克萨斯选择加入美国联邦。
+
+美国是以宪政立国的合众国，既然是宪法把松散的各个州（国家）联结在一起，那么，如果连总统都可以靠作弊当选，拜登这样的大大小小腐败官僚，明目张胆地犯法而不需要承担法律责任，美利坚合众国将必然走向分裂或内战。
+
+美国不会就此沉沦，但将经历痛苦的重生。
+
+（文章内容仅代表作者个人观点）
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
