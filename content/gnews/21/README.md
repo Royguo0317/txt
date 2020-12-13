@@ -1,35 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统观看陆海军橄榄球比赛遇史诗般呐喊 “美国！美国！”
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/642786/)
+## 【热点播报】等同宣战：林伍德发推称川普即将宣布中共用生物武器攻击美国
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/642832/)
 
-多伦多枫叶农场 老熊
+作者：纽约香草山 wilson
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12185358/N.jpg)图片来自News BBT
-12月12日川普总统在密切关注了华盛顿特区10多万人反选举舞弊欺诈大游行后【1】，飞往费城观看一年一度的陆海军橄榄球比赛。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07015922/logo-3-1-1.jpg)
 
-《门道专家》最新消息，“今天早些时候，当成千上万的支持者高唱国歌时，美国总统唐纳德·川普乘坐的海军陆战队一号（Marine One）从华盛顿特区上空飞过，然后前往费城观看陆军/海军的橄榄球比赛。”
 
-报道说，当川普总统出现在球场时，陆军和海军的人群爆发出史诗般地欢呼，“美国！美国！”【2】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09170802/Vaccine_Picture.png)
+2020年12月12日，林伍德律师发推号召所有的美国爱国者，在未来几天，要做好战斗准备。
+林伍德说，美国总统唐纳德.川普将宣布：
+中共用生物武器攻击了我们的国家。
+中共通过干预我们的大选和破坏我们的民主体制，夺走我们的合法选举，进而窃取我们的国家。
+中共企图（利用生物武器残害我们的人民）侵占我们的土地，用来种植粮食，我们决不能让他们夺走。祈祷吧！
+一旦由美国总统宣布，中共对美国发动了病毒生物战，和中共干预和破坏美国大选，就是美国对中共的正式宣战，因为中共投毒全世界和干涉美国大选都属于战争行为。
 
-《门道专家》的报道如此简单【3】，我们不想过度解读。
+**校对发稿：悟空**
 
-面对暗势力的猖獗，最高法院竟然连公开听证会的机会都不给，明显是企图阻断美国人民了解选举舞弊、欺诈的途径；以巴尔为首的司法部，一直拖着、压着对亨特·拜登案件的调查，主流媒体不报道、不透露，不让美国人民对腐败的拜登家族有了解……
+参考来源：[https://twitter.com/llinwood/status/1337812090686480391?s=21](https://twitter.com/llinwood/status/1337812090686480391?s=21)
 
-还能有更好的解决方案吗？就这样坐以待毙，直到邪恶势力篡权成功？
 
-我敢说，不！
 
-川普总统不会答应，美国人民不会答应！！！
+> American Patriots be prepared.
+> 
+> Events will unfold quickly over next several days.
+> 
+> Listen to [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw). 
+> 
+> CCP attacked our country with a biological weapon. CCP attacked us again to steal election.
+> 
+> CCP wants our land to grow food.
+> 
+> We shall NEVER let them take it.
+> 
+> Pray. [https://t.co/JPmb4zdFLj](https://t.co/JPmb4zdFLj)
+> — Lin Wood (@LLinWood) [December 12, 2020](https://twitter.com/LLinWood/status/1337812090686480391?ref_src=twsrc%5Etfw)
 
-参考链接：
 
-【1】 [https://twitter.com/realDonaldTrump/status/1337833603309465600](https://twitter.com/realDonaldTrump/status/1337833603309465600)
 
-【2】 [https://twitter.com/KamVTV/status/1337856242702819328](https://twitter.com/KamVTV/status/1337856242702819328)
+American Patriots be prepared.Events will unfold quickly over next several days.
 
-【3】https://www.thegatewaypundit.com/2020/12/epic-army-navy-crowd-erupts-chants-usa-usa-president-trump-steps-football-field-game-video/
+CCP attacked our country with a biological weapon. CCP attacked us again to steal election.
+
+CCP wants our land to grow food.
+
+We shall NEVER let them take it.
+
+Twitter•今天12:30
+
+
 
 0
