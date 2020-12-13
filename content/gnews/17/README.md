@@ -1,35 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 20201212东京樱花团晚间新闻速报
-` 东京樱花团-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/644337/)
+## 【突发】林伍德：许多叛徒卷入了外国干预大选
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/645759/)
 
-HTS-01C-202012-036
+- 编辑：Victor Torres
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13072007/12345.jpg)
 
-1、日本政府暂停札幌、大阪、东京、爱知、名古屋的GO TO政策；
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-2、东京都政府要求餐饮、卡拉OK等营业至晚上10点；
+**西班牙2020年12月13日电/西喜社——**林伍德周日发推称:
+“中共已大量渗透乔治亚州的商业，乔治亚地方和州，以及国家领导人。”
+他说，很快，许多叛徒将被确定卷入了外国对美国大选的干预。
 
-3、每日新闻社会调查研究中心于12日进行了全国舆论调查，菅内阁的支持率为40%，比上月下降了17个百分点，不支持率为49%（上次36%），这是菅内阁上台后，不支持率首次超过支持率；
 
-4、日本旅游巨头HIS拟在5年内上市4家左右集团内企业；
 
-5、由于各自治体财政困难，日本总务省拟进行财政援助；
+> CCP has heavily infiltrated GA businesses as well as GA local, state & national leaders. 
+> 
+> Soon many will be identified as having been involved in foreign interference with our national election.
+> 
+> Traitors. [https://t.co/qZgKLIljnD](https://t.co/qZgKLIljnD)
+> — Lin Wood (@LLinWood) [December 13, 2020](https://twitter.com/LLinWood/status/1338201050101280769?ref_src=twsrc%5Etfw)
 
-6、东京都12月12日621人确诊CCP病毒。
 
-新闻取材于下述链接：
 
-[https://news.yahoo.co.jp/articles/458a8b79fbb7718563aba1f9aab373870349cc97](https://news.yahoo.co.jp/articles/458a8b79fbb7718563aba1f9aab373870349cc97)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
-[https://news.yahoo.co.jp/articles/7d367e68ca08789dd46fa74ce19f5e572c88150f](https://news.yahoo.co.jp/articles/7d367e68ca08789dd46fa74ce19f5e572c88150f)
-
-[https://news.yahoo.co.jp/articles/0dbd3d9dfbda63132722715c45e51bad58f33672](https://news.yahoo.co.jp/articles/0dbd3d9dfbda63132722715c45e51bad58f33672)
-
-[https://news.yahoo.co.jp/articles/0080b68ab6f0f0178a620df529699c8df20cfa20](https://news.yahoo.co.jp/articles/0080b68ab6f0f0178a620df529699c8df20cfa20)
-
-[https://news.yahoo.co.jp/articles/7298a757d8e17357f831c89f5b1666b50de4e2f3](https://news.yahoo.co.jp/articles/7298a757d8e17357f831c89f5b1666b50de4e2f3)
-
-4+
+3+
