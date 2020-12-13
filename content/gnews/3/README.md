@@ -1,50 +1,78 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【文雍漫谈】朱利安尼先生说的“B计划”是什么
-` 为子孙爱七哥农场` [轉載自GNews](https://gnews.org/zh-hans/643954/)
+## 《路德社》每日简报早间版 2020.12.12&#8211;NewYork Time
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/643421/)
 
-作者：为子孙爱七哥农场 文雍
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13050730/%E6%96%87%E9%9B%8D%E6%BC%AB%E8%AB%8728.jpg)
-昨夜基本未睡，满脑子都是最高院的九名大法官，确切地说是川普总统任命的那三名。试图把一不小心种在记忆里的那三张脸剥除，很困难。
+出品《路德社》 编辑：路德社精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13013316/1212-AM-ZH-scaled.jpg)
+(编辑：文宝Porsche   译校：Arvin江牧)
 
-《文雍漫谈》专栏开启以来，日日笔耕不辍，虽说名为漫谈，但实际上却比较写实，今天是周末，索性“漫”一下。
+1212早间要闻-NewYork Time
 
-难得的晴天，拽着女儿出去走走，疫情以来，她基本没怎么出门，在家除了上网课，就是做义工翻译资料，倒也忙得不亦乐乎。这个亲密的小战友，在这非同寻常的一年，给了我们太多的慰籍。
+**LuDe Media 20201212 Morning News, New York Time**
 
-敏感的女儿看着人烟稀少的街道说：怎么好像一切都不一样了？
+**巴尔隐瞒亨特拜登被调查的事实长达数月**
 
-是真的不一样了，人们之间不再用眼神打招呼，好像病毒可以通过眼神传播一样；也不再互致问候，而是把对面走来的同类当成了危险品，距离还很远就互相绕开。这场病毒，正在一点点地蚕食掉人与人之间的信任、友善与温情，这样的状况持续下去，是对文明社会的一种考验。 女儿难过地说：我们是不是真的再也回不到从前的状态了？ 无法否认，从某种程度上是这样的。这场病毒改变了太多的人和事，同时也在时时刻刻地拷问着我们心中的道德。包括这次美国的大选，如果没有病毒从中作梗，以川普总统这四年取得的骄人业绩，应该毫无悬念地卫冕，根本不用面对这些形形色色的明枪暗箭。有些事，给人的心理造成的伤痕可能永世都无法弥合。
+**Barr Hid the Fact that Hunter Biden Was Being Investigated for Months**
 
-随着最高法的9名大法官以7：2驳回德州的上诉请求，人们刚想放下心又悬了起来。
+曼哈顿联邦检察官至少对亨特拜登进行税务欺诈调查了一年多，但司法部一直未对亨特拜登刑事起诉。亨特拜登的资金来源，也一直在接受调查。巴尔在大选前给司法部下达了指导性文件，要求不要透露有关调查的消息，以免影响大选。
 
-今天，朱利安尼先生说川普总统将启动B计划，即“在每一个州提起诉讼”！真担心这样一个个地过一遍之后，沼泽变成了汪洋。我们可以通过视频看到今天挺川普总统的游行声势浩大、蔚为壮观。正义的力量在集结、民意占了上风。但最终，当川普总统取得了胜利，我们，也借此次大选看清了人性，要想继续充满阳光地生活，的确需要强悍的内心世界做支撑。
+Manhattan federal prosecutors have been investigating Hunter Biden for tax fraud for at least a year, but the Department of Justice has not criminally prosecuted Hunter Biden. The source of Hunter Biden’s funds has also been under investigation. Barr gave guidance to the Department of Justice not to disclose information about the investigation before the election so as not to influence the election.
 
-纵观这次本来毫无悬念的大选，感慨良多，也更加理解了郭文贵先生说的“真、善、狠”，“真”和“善”是目的，是我们最终追求的境界，严责己、宽待人，惟真不破、惟善是从，而“狠”是手段，是我们要达成真善的正道之上对待这些大大小小的沼泽的一种霹雳手段，没有这种“狠”的霹雳手段，“真”和“善”的目标我们永远也达不到。在目的和手段的问题上，“真”与“善”的目的是“菩萨心肠”，而“狠”就是“霹雳手段”，是实现“真”“善”要经历的一段必经之路。川普总统想必更有一番感触吧？
+**亨特拜登事件被隐瞒背后的深谋远虑**
 
-这次大选有几个让人唏嘘的节点：司法部长巴尔隐瞒对拜登家族的调查，为这场滑稽剧保驾护航，这是一个节点。巴尔此举让本该成为罪犯的人几乎登上一国总统的位置，这是对美国司法体制的挑衅和对人类智商的侮辱、亵渎。以至于后来的“执法者乱法”一次次重演。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13051315/merlin_140982027_fa324317-fdcf-474d-a6dc-c6e5393fd7e3-mobileMasterAt3x.jpg)
-另一个节点是新上任的巴雷特大法官，在宾州选票延期是否违宪的案子上含糊其辞，最后没有表态。谁能相信一个“久经考验”“天赋异禀”的大法官以“刚上任，对情况不熟悉”为理由搪塞是因为专业知识不足？这样的案子从专业角度对她来说有难度吗？她本可以公正客观地依法表决，判宾州“选票延期”违宪，最后就不至于有后面的一系列闹剧了。
+**The Far-sightedness Behind the Concealment of Hunter Biden Case**
 
-再就是昨天最高法驳回德州的诉讼请求了。巴雷特大法官投了反对票。这三轮下来，我们没有看到法律的威严和尊严，只看到了无休无止的权衡、勾兑、表演，让美国的法律一次次蒙羞，让善良的人们不再相信公平正义。当选民们最终不得不拿起手中的枪维护自己的权利的时候，美国还剩什么了？
+大选前如果巴尔爆出亨特拜登调查案，民主党会以“巴尔是川普提名的司法部长”为由，说川普搞政治陷害而轻松解套，丝毫不影响拜登选情。川普虽然一直说要调查亨特拜登，但并没有采取强硬措施，因为那样做的话，容易被政治对手扣上“通过司法手段干预大选、用政治手段进行陷害”的帽子。现在，这起在反川普地盘曼哈顿南区进行的、一直被巴尔隐瞒的、现在由偏左的华尔街日报爆出来的亨特拜登案，如果后期司法部迫于压力公布出全部真相，就没有人会质疑了。
 
-当然，任何人没有权利要求巴雷特等三名川普总统任命的大法官作出有利于川普总统的判决，但人民有权利要求他们依法秉公判决！勇气、智慧、正义、信仰是大法官依法行政的必要条件，没有了这些基本的德行，大法官也沦为了这场滑稽剧中的小丑，法律的威严也会荡然无存。
+川普要想在选情差距不是极其巨大的情况下确保大选胜利，就需要像NBA总决赛一样打到第七场甚至是加时赛，这就需要从一开始制定全面的应对措施，并按照计划一步步推进。
 
-好在来自各州的一场场诉讼大幕已经拉开，威斯康星州最高法已经接了讼案，雷霆万钧的逆转已经在路上了。真相可期、正义必胜，让我们拭目以待！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13051423/1200px-John_Trumbull_-_John_Adams_-_Google_Art_Project.jpg)
-美国的开国元勋约翰·亚当斯曾说：我们的政府不具备能力去对付不受伦理和宗教约束的人类情感，我们的宪法只为有道德和宗教信仰的民族约定的，它远远不足于管理任何其他民族，此宪法只适合于有道德有信仰的人民。
+If Barr revealed the Hunter Biden investigation before the election, the Democrats would have used “Barr was nominated by Trump for Attorney General” as a reason to say that Trump had engaged in a political frame-up and would have easily dismantled it, without affecting Biden’s election campaign in any way. Although Trump has been talking about investigating Hunter Biden, but did not take strong measures, because that would be easily labelled “judicial interference in the election, using political means to frame” by political opponents. Now, this Hunter Biden case, which was conducted on anti-Trump territory——South Manhattan and has been concealed by Barr and is now being broken by the left-leaning Wall Street Journal, will not be questioned if the Department of Justice is pressured to release the whole truth at a later stage.
 
-几十年来，中共对美国的腐蚀无所不用其极，今天我们借由这次大选看到的一切乱象，就是他们这些年来“深耕细作”的成果。
+For Trump to secure a general election victory in the case of the electoral gap is not extremely huge, he needs to play to Game 7 or even overtime like the NBA Finals, which requires to develop a comprehensive response from the beginning, and follow the plan to move step by step.
 
-中共这个蒸不熟煮不烂跺不碎赶不走的撒旦，对人类行的恶罄竹难书。最最不可饶恕的就是勾结资本的势力对文明国家的法律的荼毒，用蓝金黄对文明社会政要的拉拢绑架和腐蚀，人类自由的灯塔——美国，正在被中共弱化、黑化和腐化，中共一旦得逞，全世界再也没有力量对付这个邪恶的组织，人类将进入万劫不复的奴隶制时代。
+**路德讲解美国的权力和中共的命运**
 
-目前我们能做的，唤醒人们认清中共的本质，一起抵制这股邪恶的力量，同时，也为川普总统祷告，为美国祷告，为世界祷告，让这场胜利来得漂亮些，让正义的力量借着这场胜利，清理中共制造的人类垃圾，共同创建人类的新秩序，给这个世界一个美好的未来！
+**LuDe Explains the Power of the United States and the Fate of the CCP**
 
-更多精彩内容请关注：
+美国的真正权力，存在于不需要走冗长法律程序就直接可以办成事的政府执法机构如可以直接抓人的各情报机构和ICE，和民间机构如美联储和Swift、Chips和Fedwire三大金融系统等。
 
-- [为子孙爱七哥农场官方推特](https://twitter.com/wzsaqg)
-- [为子孙爱七哥农场官方GTV号](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
-- [欢迎加入农场discord官方群](https://discord.gg/2vXAV6G)
+以班农先生为代表的爱尔兰裔美国人天生勇敢、具有反抗精神，以发展实业为主，控制着美国的军队、情报机构和顶尖大学， 45位总统中有14名宣称自己是爱尔兰血统。以朱利安尼为代表的包括意大利、西班牙和葡萄牙语系的拉丁裔美国人势力集中在国土安全部、移民局尤其是移民及海关执法局（ICE），控制着美国的黑社会和地下力量。犹太裔美国人则控制着美国以及世界的金融体系。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/20123101/%E5%86%9C%E5%9C%BA%E5%B9%BF%E5%91%8Av7-3.jpg)
+这些族裔能够成为美国力量的一极，是因为在几百年的时间沉淀中，族裔内部建立起绝对的信任，拥有强大的凝聚力。对这些族裔来说，政治派别是表象，谁能维护其利益才是核心。
+
+美国同意中共加入WTO就是给它机会建立信任，但短短20年时间已经证明中共不仅不值得信任，而且已危及到这些族裔的利益甚至安全，所以必须灭掉它。
+
+The real power in the United States exists in law enforcement agencies of the government that can get things done directly without going through lengthy legal procedures, such as the various intelligence agencies and Immigration and Customs Enforcement (ICE) that can arrest people directly, as well as private institutions such as the Federal Reserve and the three major financial systems, Swift, Chips and Fedwire.
+
+The Irish-Americans, represented by Mr. Bannon, are naturally brave and rebellious, with a focus on developing industry, controlling the U.S. military, intelligence agencies and top universities, and 14 of the 45 presidents claiming Irish ancestry. Latino Americans, including Italian, Spanish and Portuguese speakers, represented by Giuliani, are concentrated in the Department of Homeland Security, Immigration Bureau, especially Immigration and Customs Enforcement （ICE）, and control the U.S. underworld and underground forces. Jewish-Americans, on the other hand, control the financial systems of U.S. and the world.
+
+These ethnic groups have been able to become a pole of American power because of the absolute trust and strong cohesiveness built up within them over centuries. For these ethnic groups, political affiliation is superficial, and it is who can defend their interests that really matters.
+
+The U.S. agreed to the CCP’s WTO membership to give it the opportunity to build trust, but in just 20 years it has been proven that the CCP is not only untrustworthy, but has endangered the interests and even the security of these ethnic groups, so it must be exterminated.
+
+**香港政府暂停英航客机执飞伦敦至香港航班**
+
+**Hong Kong Government Suspends Passenger Flights of British Airway from London to Hong Kong**
+
+停飞日期是12日至25日，理由是在本周二的BA027航班上有4人确诊中共病毒，港府真实意图不得而知。
+
+The flight suspension dates are from December 12 to 25, and the reason is that four people were diagnosed with the Chinese Communist virus on board flight BA027 on Tuesday, while the real intention of the Hong Kong government is not known.
+
+**北京市政府发布新时代公民道德建设实施方案**
+
+**Beijing Municipal Government Releases Implementation Plan for Civic Morality Construction in the New Era**
+
+中共开始用所谓的道德赤裸裸绑架民众、控制其一言一行，可预见的人道灾难正在酝酿中。
+
+The Chinese Communist Party has begun to use so-called morality to nakedly kidnap people and control their every word and deed, and a foreseeable humanitarian disaster is brewing.
+
+#CCP\_is\_terrorist   #TakeDownTheCCP
+
+文案：《路德社》简报组：文寶Porsche；
+翻译：《路德社》翻译组
+审核校对：玫瑰天空
+上传排版：青葫芦娃
+
 0
