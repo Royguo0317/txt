@@ -1,33 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共对澳洲的制裁引发企业及民众抵制中国货
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/642439/)
+## 电邮显示，拜登父子和中国华信能源有染
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/642463/)
 
-撰稿：Shirley
-
-编辑：Jenny
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12135841/IMG_4920.jpg)网络截图
-在澳大利亚国防部长玛丽斯·佩恩四月公开呼吁世界卫生组织调查中共病毒的起源后，中共国开始对澳洲产品实施制裁，首先是澳洲农产品大麦、铜和糖制品等，接著是牛肉和煤，然后是龙虾、木材和葡萄酒。周三，中共国在制裁的一长串澳大利亚产品名单中又加入了羊肉，预计下一步将是棉花。
-
-澳大利亚在与中国的经济对决中面临著严峻的选择。要麽屈膝，要麽放弃。面对中共国对澳大利亚出口商的持续钳制，澳洲居民和企业讨论抵制中共国产品的呼声越来越高。Kennards的自助仓储公司CEO Sam Kennard发出号召，呼吁澳洲企业反击，放弃亚洲超级大国的供应商。
-
-日前澳洲超市业巨头Woolworth也莫名其妙地上了舆论的风头浪尖，起因就是这款纸质购物贷，印在纸袋底部的“Made in China”严重刺激了澳洲消费者的爱国心，澳大利亚的经济与全球一样共同承受了CCP病毒的双重打击，民众收入大幅下降，百业雕零，还要再次承受来自中共国的霸陵制裁，谁能咽下这憋肚子气，民众纷纷发起‘购买澳洲制造产品”运动，一是支持国货重振澳洲制造业，二也是民间对中共制裁的反击。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12140749/IMG_4920-1.jpg)
+- 编辑：Victor Torres
+- 翻译：小玉
 
 
-对于澳洲反制中共国制裁的呼声日益高涨，澳大利亚一些“专家” 表示，抵制中共国商品和企业的呼声 “简直是愚蠢的”，可能会对澳大利亚产生严重的反作用。这些“专家”包括悉尼大学商学院教授Hans Hendrischke和格里菲斯大学名誉教授Colin Mackerras。Hendrischke先生表示，”我们并没有像美国那样想要封锁中国的战略”，并主张慢慢远离中国。”可能会有更多针对澳大利亚的经济制裁，它们可能出现在任何地方和每个行业”，他说。Mackerras先生说，中国并不是试图颠覆澳大利亚的民主，而是在寻求尊重，可是澳大利亚几乎没有注意到这一点。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-这里我们想问的是，做为澳洲的教授专家，为什麽要帮独裁的中共说话？如果澳洲的反制对中共国没有任何影响，那他们需要跳出来为中共洗地？中共国不仅是要颠覆澳洲的民主，而是要颠覆全世界的民主，统治全地球。
+**西班牙2020年12月12日电/西喜社——**据福克斯新闻获得的一封2017年9月20日的电子邮件显示，亨特·拜登在要求为他的新 “办公室伙伴 “制作钥匙，他列出了他的父亲：乔·拜登，吉尔·拜登和他的叔叔吉姆·拜登，他们计划与中国华信能源公司董事长的”使者”共享“瑞典之家”大楼内的办公室。
+“请为办公室的新同事提供钥匙：乔·拜登、吉尔·拜登、吉姆·拜登”，这封主题为 “507”的邮件说。
+在邮件中，亨特·拜登还为董公文申请了钥匙，他称董功文是中国华信能源公司主席叶简明的”使者”。
+“我希望办公室的牌子能体现出以下内容”，他继续要求 “拜登基金会”和 “哈德逊西部（CEFC美国）”。
+他继续说：”租约仍将以我公司的名字Rosemont Seneca为名。”他提供了被他称为 “我的合伙人 “的董和叶的详细情况，以及他们的联系方式。
+根据这封邮件，亨特还提供了乔·拜登和吉姆·拜登的个人手机号码。
+在福克斯新闻获得的另一封邮件中，该大楼经理回应称，”我们非常兴奋和荣幸地欢迎你们的新同事”。随后，该经理要求确认亨特·拜登想多要四把钥匙，并 “在门上和北面入口处换上名字”。
+“瑞典之家”向福克斯新闻证实，亨特·拜登的公司Rosemont Seneca确实在那个时间段租用了办公空间。不过，他们拒绝透露更多信息。
+乔·拜登曾多次否认与儿子的商业交易有关。
+据参议院国土安全委员会和财政委员会称，亨特·拜登与叶简明主席、董公文和其他中国公民的商业联系，”导致数百万美元的可疑交易”。
+委员会还发现，亨特与董公文开设了一个银行账户，该账户为他的叔叔吉姆•拜登及其妻子萨拉的10万美元全球消费提供了资金。
 
-（本文纯属个人观点）
+**原文链接**：[https://www.foxnews.com/politics/hunter-biden-requested-keys-new-office-mates-joe-biden-chinese-emissary-cefc-chairman.amp?\_\_twitter\_impression=true](https://www.foxnews.com/politics/hunter-biden-requested-keys-new-office-mates-joe-biden-chinese-emissary-cefc-chairman.amp?__twitter_impression=true)
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/11143234/PHOTO-2020-11-11-23-38-59.jpg)
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/20124027/PHOTO-2020-11-18-22-21-04.jpg)
 
-澳喜文章[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
-
-欢迎加入澳喜农场：[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13172650/IMG_3537-1.jpg)
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0
