@@ -1,19 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共藏族间谍昂旺曾与纽约众议员科尔特斯同框出现
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/645866/)
+## 【突发】弗林：我们现在就有确凿的外国影响美国大选的证据
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/645959/)
 
-*草原三省战友之家 文莱
-校对 鹰嘴逗逗 上传 WJ*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13151013/SPYYYYYYYYYYYY.jpg)图片来源：BBC
-据《国家脉动》9月24日报道，有一张照片发布在纽约众议员奥卡西奥-科尔特斯（Ocasio-Cortez）的Instagram上，科尔特斯坐在被指控为中共非法特工的达杰·昂旺（Baimadajie Angwang）和另外一个女人中间。照片中达杰·昂旺穿着警察制服，当时他们正在参加参加西藏新年晚会。几个月来科尔特斯组队要求削减警察经费，并发表了臭名昭著的言论：“削减警察的资金意味着削减警力（的资金）。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13151048/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE258.png)图片来源：Instagram
-CNBC报道了达杰·昂旺被捕的细节。当局说，现年33岁的警察昂旺也是美国陆军预备军人，被指控为中共非法特工而被捕，罪名是他对藏族同胞进行非法监控活动，并向驻纽约中共国领事馆报告。目前昂旺被拘留，不许保释，如果罪名成立，将面临最高55年的监禁。马达杰·昂旺出生于中国西藏自治区，事发前在皇后区东北部第111区纽约警察局工作，他“最初是通过文化交流签证来到了美国。”但是在逾期第二次签证之后，他最终在美国寻求了庇护，理由是他在中共国被捕并遭受酷刑，部分原因是他是藏族。诉状控诉称，昂旺早在2014年就与领事馆的一位中国官员保持联系，然后在2018年与那里的第二位官员发展了联系，第二位官员就是他的直接联络人，他称之为“老板”。
+- 编辑：Victor Torres
 
-简评：
-中共蓝金黄的计划正在逐步被曝光，中共统治世界的阴谋正在被一步步发掘，从日前的中共警察间谍，到如今的方芳色诱事件，无一不显示出中共渗透的威胁。作为世界民主自由灯塔的美利坚合众国正在经历着最严酷的超限战，世界人民正站在正义与邪恶的交叉路口。越来越多的蓝金黄黑幕被曝光正在唤醒绝更多的民众；消灭中共幽灵，让美国回归和平时代。
 
-*[原文链接](https://thenationalpulse.com/breaking/aoc-chinese-spy/)*
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-2+
+**西班牙2020年12月13日电/西喜社——**周日上午，弗林将军接受Sunday Morning Futures的玛丽亚·巴蒂罗莫采访，他说：“我们在多米尼投票机上，存在非常非常严重的外国影响。”
+弗林将军指出，每个人都应访问悉尼·鲍威尔（Sidney Powell）的网站DefendingtheRepublic.org，以获取更多信息。
+他补充说：“我们现在就有确凿的外国影响美国大选的证据。”
+
+**原文链接：**[https://www.thegatewaypundit.com/2020/12/huge-serious-serious-foreign-influence-dominion-voting-machines-general-flynn-says-conclusive-evidence-foreign-influence-us-election-right-now/](https://www.thegatewaypundit.com/2020/12/huge-serious-serious-foreign-influence-dominion-voting-machines-general-flynn-says-conclusive-evidence-foreign-influence-us-election-right-now/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/18075158/Portada-Dominion-ccp-1.jpeg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+
+0

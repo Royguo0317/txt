@@ -1,34 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【突发】林伍德：这是一场颜色革命
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/646080/)
+## “所有GTV的投资者，你们可以很好很好地庆贺一下了！”
+` GM127` [轉載自GNews](https://gnews.org/zh-hans/646121/)
 
-- 编辑：Victor Torres
+郭文贵先生在12月13日早晨发布 GTV 盖特视频，公布 GTV 的最新排名数据，并恭喜所有GTV的投资者，并说未来会比这更好。
 
+全文：
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+“疯了，就是因为这个GTV的排名。GTV的排名太牛了，兄弟姐妹们！所有GTV的投资者，你们可以很好很好地庆贺一下了。这可是了不得了。华盛顿、伦敦、巴黎、东京、台湾、俄罗斯，无数人发信息：“Miles，太牛了，GTV，太牛了！”
 
-**西班牙2020年12月13日电/西喜社——**林伍德周日发推，警告美国的叛徒和敌人忘记了一个简单的事实： 每一个通过空中的(信号)传输都会被国家情报局和以色列接收。
-“还是他们忘记了？”
-他说，他已经说了几个月，这不是一个关于选举(的问题)，而是一场旨在推翻美国宪法的颜色革命。
-林伍德的推文暗示国家情报局已掌握破坏美国大选的通信数据证据。
-
-
-
-> Traitors & enemies of America forgot one simple fact. Every transmission through the airways is picked up by DNI. Israel too.
-> 
-> Or did they forget?
-> 
-> I have said for months this was NOT about an election
-> 
-> This is a color revolution intended to overthrow our Constitution.
-> 
-> Steady.
-> — Lin Wood (@LLinWood) [December 13, 2020](https://twitter.com/LLinWood/status/1338230122311274499?ref_src=twsrc%5Etfw)
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
-
+兄弟姐妹们，数据不会骗人，啊，这可是真的GTV。这才是刚刚开始。兄弟姐妹们，相信你自己。这回用你的手和你的钱证明自己是真的大智慧，还是大笨蛋。这个数据是了不得的，无人篡改。但是，未来会比这更好、更好、更好、更好。咱还没真正开始呢。接下来，文贵会展示给大家，它会多厉害，多牛。今天是个伟大的日子，mugaisai（谢谢啦）。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13175423/Miles_20201213_Getter-figure1.png)
+翻译：【Isaiah4031】字幕：【相机过热啊】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22111053/VOG-Rose-Garden-Team.png)
 0
