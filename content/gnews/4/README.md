@@ -1,55 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】等同宣战：林伍德发推称川普即将宣布中共用生物武器攻击美国
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/642832/)
+## 美国人将获得免费的辉瑞COVID-19疫苗
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/642887/)
 
-作者：纽约香草山 wilson
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12200038/1-74.png)图片来自：nytimes.com
+据（Republic World）12月12日报道，对辉瑞（Pfizer）和德国生物科技公司（BioNTech）联合研发的COVID-19疫苗授予了紧急使用权后，川普保证 “为所有美国人提供免费疫苗”。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07015922/logo-3-1-1.jpg)
+美国上周五已经为全国首个COVID-19疫苗开了绿灯。此前，美国食品和药物管理局（FDA）授权辉瑞公司及其合作伙伴BioNTech公司紧急推出一种疫苗，此后，美国食品和药物管理局进行了开发。美国总统唐纳德-川普对这一进展做出了回应，保证为所有美国人提供免费疫苗，并“将在24小时内派药”。美国政府还与联邦快递和联合包裹公司(UPS)合作，向国内各州运送疫苗。
 
+川普在Twitter上宣布，FDA决定授权紧急使用辉瑞公司的Covid疫苗。川普将这一决定称为 “医学奇迹”，他感谢了所有科学家、医生和工人对疫苗的支持。此外，川普还表示，他的政府已经向辉瑞公司支付了超过两亿美元，用于研发超过一亿剂的疫苗。川普还保证，该疫苗将免费提供给所有美国人。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09170802/Vaccine_Picture.png)
-2020年12月12日，林伍德律师发推号召所有的美国爱国者，在未来几天，要做好战斗准备。
-林伍德说，美国总统唐纳德.川普将宣布：
-中共用生物武器攻击了我们的国家。
-中共通过干预我们的大选和破坏我们的民主体制，夺走我们的合法选举，进而窃取我们的国家。
-中共企图（利用生物武器残害我们的人民）侵占我们的土地，用来种植粮食，我们决不能让他们夺走。祈祷吧！
-一旦由美国总统宣布，中共对美国发动了病毒生物战，和中共干预和破坏美国大选，就是美国对中共的正式宣战，因为中共投毒全世界和干涉美国大选都属于战争行为。
+美国政府对全国首支COVID-19疫苗的批准，标志着一场已导致近30万美国人死亡的疫情可能会就此结束。在川普宣布这一消息，并向全国发表讲话后，在FDA授权紧急推出辉瑞公司生产的强效保护性疫苗后，医疗工作者和养老院居民的注射预计将在未来几天开始。此举掀起了美国历史上最大的疫苗接种运动，但它也会对全球产生影响，因为它会成为许多其他国家解决同样问题的榜样。
 
-**校对发稿：悟空**
+**评论**：
 
-参考来源：[https://twitter.com/llinwood/status/1337812090686480391?s=21](https://twitter.com/llinwood/status/1337812090686480391?s=21)
+按理说辉瑞快速开发出COVID-19疫苗是件好事，但想到闫博士对此疫苗的审慎态度，不得不对这个疫苗保持戒心。闫博士认为CCP COVID-19病毒是中共人为制造的，在没有搞到原始毒株之前，大家对这个CCP病毒并不完全了解。很难做出真正有效的疫苗。辉瑞匆忙做出的疫苗，没有足够长的时间验证，很容易出现不可预料的情况。
 
+郭先生也从另一方面指出这个疫苗的问题。中共制造了CCP病毒，并向全世界传播了 CCP病毒，现在是向全世界推销疫苗，既赚钱又增加影响力。辉瑞研发疫苗背后的资本投资者就长期与中共勾结。郭先生指出，“病毒疫苗是中共和黑暗势力勾结的结果，一定会再次发生次生灾难。” 郭先生的话和闫博士的话都是一个意思，就是疫苗不可靠，会给人类造成伤害。因此我们要慎重对待疫苗，不要轻易去试。
 
+[原文链接](https://www.republicworld.com/world-news/us-news/trump-promises-free-vaccines-after-pfizers-covid-19-vaccine-earns-fda-nod.html)
 
-> American Patriots be prepared.
-> 
-> Events will unfold quickly over next several days.
-> 
-> Listen to [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw). 
-> 
-> CCP attacked our country with a biological weapon. CCP attacked us again to steal election.
-> 
-> CCP wants our land to grow food.
-> 
-> We shall NEVER let them take it.
-> 
-> Pray. [https://t.co/JPmb4zdFLj](https://t.co/JPmb4zdFLj)
-> — Lin Wood (@LLinWood) [December 12, 2020](https://twitter.com/LLinWood/status/1337812090686480391?ref_src=twsrc%5Etfw)
-
-
-
-American Patriots be prepared.Events will unfold quickly over next several days.
-
-CCP attacked our country with a biological weapon. CCP attacked us again to steal election.
-
-CCP wants our land to grow food.
-
-We shall NEVER let them take it.
-
-Twitter•今天12:30
-
-
+翻译报道： Alton
 
 0

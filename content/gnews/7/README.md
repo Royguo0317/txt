@@ -1,43 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国最高法院周五驳回德克萨斯州提出的旨在翻转选举结果的诉讼
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/642791/)
+## 【热点播报】等同宣战：林伍德发推称川普即将宣布中共用生物武器攻击美国
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/642832/)
 
-编撰：JAY 、WENJUN；审核：文非
+作者：纽约香草山 wilson
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/截屏2020-12-12-下午10.23.33.png)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07015922/logo-3-1-1.jpg)
 
-PHOTO: EPA-EFE
 
-美国最高法院周五驳回了由德克萨斯州提出并得到总统唐纳德-川普支持的一项长期诉讼，该诉讼要求撤销四个州的投票结果，使他在寻求挽回在选举中不利结果时遭遇了严重的挫折。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09170802/Vaccine_Picture.png)
+2020年12月12日，林伍德律师发推号召所有的美国爱国者，在未来几天，要做好战斗准备。
+林伍德说，美国总统唐纳德.川普将宣布：
+中共用生物武器攻击了我们的国家。
+中共通过干预我们的大选和破坏我们的民主体制，夺走我们的合法选举，进而窃取我们的国家。
+中共企图（利用生物武器残害我们的人民）侵占我们的土地，用来种植粮食，我们决不能让他们夺走。祈祷吧！
+一旦由美国总统宣布，中共对美国发动了病毒生物战，和中共干预和破坏美国大选，就是美国对中共的正式宣战，因为中共投毒全世界和干涉美国大选都属于战争行为。
 
-大法官们在一份简短的命令中表示，德克萨斯州没有法律地位对佐治亚州、密歇根州、宾夕法尼亚州和威斯康星州提起诉讼。加上宾夕法尼亚州的案件，这是本周保守派占多数的法院第二次拒绝推翻选举结果尝试。
+**校对发稿：悟空**
 
-德克萨斯州的案件是由川普的盟友–该州的共和党总检察长在周二提出的。共和党总统周三提出动议，要求介入并成为原告。
+参考来源：[https://twitter.com/llinwood/status/1337812090686480391?s=21](https://twitter.com/llinwood/status/1337812090686480391?s=21)
 
-最高法院6-3的保守派多数派包括川普任命的三名大法官，他们都没有在未签署的命令中发表评论。在11月3日大选前，川普总统表示，他预计大选结果将由最高法院决定。另外，共和党控制的参议院在大选前迅速确认了他任命的大法官之一——艾米-科尼-巴雷特。
 
-“德克萨斯州没有表现出对另一个州进行选举的方式有司法上可承认的利益，”法院的命令说。
 
-法院的两位保守派大法官塞缪尔-阿利托和大法官克拉伦斯-托马斯表示，他们会允许德克萨斯州起诉，但不会阻止这四个州最终确定选举结果。
+> American Patriots be prepared.
+> 
+> Events will unfold quickly over next several days.
+> 
+> Listen to [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw). 
+> 
+> CCP attacked our country with a biological weapon. CCP attacked us again to steal election.
+> 
+> CCP wants our land to grow food.
+> 
+> We shall NEVER let them take it.
+> 
+> Pray. [https://t.co/JPmb4zdFLj](https://t.co/JPmb4zdFLj)
+> — Lin Wood (@LLinWood) [December 12, 2020](https://twitter.com/LLinWood/status/1337812090686480391?ref_src=twsrc%5Etfw)
 
-白宫和川普竞选团队没有立即做出回应。拜登发言人说，高等法院拒绝了否认川普输掉选举的 “毫无根据的企图”，这 “并不奇怪”。
 
-“我们国家的最高法院看穿了这种对我们选举过程的煽动性滥用，”宾夕法尼亚州司法部长乔什-夏皮罗（Josh Shapiro），民主党人在Twitter上说。
 
-同样是民主党人的密歇根州检察长Dana Nessel在一份声明中说，这项裁决 “是一个重要的提醒，我们是一个法律的国家，尽管有些法律可能会屈从于一个人的欲望，但法院不会。”
+American Patriots be prepared.Events will unfold quickly over next several days.
 
-联邦最高法的这次的快速判决反映了美国社会的撕裂：一边是汹涌民意对大选欺诈犯罪的声讨，一边是各利益集团的对大选的渗透和操控。
+CCP attacked our country with a biological weapon. CCP attacked us again to steal election.
 
-川普总统在高法判决之际发推说：我只是想阻止世界自杀！美国的这次选举关乎美国的宪法和民主自由，也关乎世界和人类文明的走向！
+CCP wants our land to grow food.
 
-这次美国大选尘埃落定之时，我们每一个参与者见证者，特别是爆料革命坚定的支持者都会感概时势的起伏，感慨我们正确的判断并对此付出努力。
+We shall NEVER let them take it.
 
-文贵先生在19年的一次直播中说过：当我们大家遇到任何事情的时候，一定要记住：任何一个有身份、有修养的人，你要客观的看待你面对的好事和坏事，更高的境界就是“起而伏之、伏而起之”。当你走下坡路的时候你必须挺直了胸，你骑着马走下坡路，你要敢趴在马背上你就摔下去了，上坡的时候你要敢挺起胸你就摔下去了，上坡你得趴在马背上，下坡你得挺直了。“起而伏之、伏而起之”，然后中间那个词是“居中制衡“，当你懂得这个的时候你就知道应该怎么来面对这些事情。
+Twitter•今天12:30
 
-参考链接：
 
-[https://www.reuters.com/article/idUSKBN28L2YY](https://www.reuters.com/article/idUSKBN28L2YY)
 
 0
