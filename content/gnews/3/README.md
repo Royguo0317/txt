@@ -1,86 +1,137 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》每日简报晚间版 2020.12.11&#8211;NewYork Time
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/643393/)
+## 川普总统行政令：关于在外国干涉美国选举时实施某些制裁的行政命令
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/643568/)
 
-出品《路德社》 编辑：路德社精选新闻专栏组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13011958/1211-PM-CN-scaled.jpg)
-(编辑：文宝Porsche 上官云伊)
+翻译：康州盘古农场-烟波浩淼
+校对：康州盘古农场-Robensenna
+审核：康州盘古农场-文韵
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12003356/image1-8.png)
+外交政策| 发布时间 2018年9月12日
 
-翻译统筹：阿轩Action
+根据《宪法》和美利坚合众国法律赋予我作为总统的权力，包括《国际紧急经济权力法》(《美国联邦法典》第50卷第1701条及以后各条)、《国家紧急状态法》(《美国联邦法典》第50卷第1601条及以后各条)、1952年《移民和国籍法》第212(f)条(《美国联邦法典》第8卷第1182(f)条)和《美国联邦法典》第3卷第301条。
 
-译校：Arvin江牧
+我，美利坚合众国总统唐纳德-J-川普，发现在全部或大部分位于美国境外地区，人为地干扰或破坏公众对美国选举的信心，包括未经授权进入选举和竞选基础设施或秘密分发宣传品和虚假信息，这对美国的国家安全和外交政策构成了不寻常和特殊的威胁。虽然还没有证据表明外国势力改变美国任何一次选举的结果或投票製表，但外国势力历来试图利用美国的自由和开放的政治制度。近年来，数字设备和基于互联网的通信激剧增加，造成了重大漏洞，并放大了外国干涉威胁的范围和强度，如2017年情报界评估所示。我特此宣布进入国家紧急状态，以应对这一威胁。
 
-1211晚间要闻-NewYork Time
+因此，我特此下令。
 
-LuDe Media 20201211 Evening News New York Time
+第1节. (a)在美国大选结束后不迟于45天，国家情报局局长应与任何其他适当的行政部门和机构(机关)的负责人协商，对任何表明外国政府或作为外国政府代理人或代表外国政府行事的人有干涉该选举的意图或目的的信息进行评估。评估应在可确定的最大范围内，确定任何外国干涉的性质和为实施干涉而采用的任何方法、所涉人员以及授权、指挥、赞助或支持干涉的外国政府。国家情报局局长应向总统、国务卿、财政部长、国防部长、司法部长和国土安全部部长提供这一评估和适当的信息支持。
 
-**联邦最高法院7:2驳回德州诉讼**
+（b） 在收到本命令第1（a）节所述的评估和信息后45天内，总检察长和国土安全部长应与任何其他相关机构的负责人以及（视情况而定）州和地方官员协商，向总统、国务卿，财政部长和国防部长就第1（a）节所述评估主题的美国大选提交一份评估报告：
 
-**Federal Supreme Court Dismissed Texas lawsuit 7-2**
+（i） 以选举基础设施为目标的任何外国干预在多大程度上对该基础设施的安全或完整性、投票制表或选举结果的及时传送产生了重大影响；以及
 
-包括川普最新任命的Coney Barrett等3人在内的7名最高大法官驳回的理由是，德州缺乏能够起诉其他州的宪法地位。2名布什政府提名的法官Samuel Alito和Clarence Thomas则支持受理该起诉讼，理由是该案件属于联邦最高法院的管辖范围，最高大法官无权否决德州提交的诉状。
+（ii）如果任何外国干涉涉及针对政治组织、竞选活动或候选人的基础设施或与之相关的活动，此类活动对该基础设施的安全或完整性造成重大影响的程度，包括未经授权访问、披露或威胁披露，或更改、伪造信息或数据。
 
-Seven top justices, including three of Trump’s most recent appointees, including Coney Barrett, dismissed the case on the grounds that Texas lacked the constitutional standing to sue other states. Two Bush administration nominees, Justices Samuel Alito and Clarence Thomas, upheld the case on the grounds that it fell within the jurisdiction of the federal Supreme Court, which has no authority to overrule a lawsuit filed by Texas.
+报告应当查明当下总检察长和国土安全部部长无法评估或达成一致的任何重大事实问题。报告还应酌情包括关于美国政府将采取的补救行动的最新情况和建议，但不含本命令第2节和第3节所述之制裁措施。
 
-**读懂最高法院判决背后内容，川普总统连任无悬念**
+(c) 所有相关机构的负责人应酌情并在符合适用法律的情况下，向国家情报局局长转交与局长根据本命令履行职责有关的任何信息。如果在提交本命令第1(a)节规定的报告后出现相关信息，局长应与任何其他有关机构的负责人协商，酌情修改报告，司法部长和国土安全部部长应酌情修改第1(b)节要求的报告。
 
-**Understanding the Content Behind the Supreme Court Decision, President Trump’s Re-election is Not in Doubt**
+(d) 本命令中的任何内容都不妨碍任何机构的负责人或任何其他适当的官员在任何时候通过适当的渠道向总统提交关于外国干涉美国选举的任何分析、信息、评估或评价。
 
-如果联邦最高法院同意受理德州诉讼案，那民主党州也可以反过来起诉共和党州，目前川普占据主动的法律战将变成一场混战，短时间分不出胜负，反而打乱川普团队的整体战术。
+（e）一旦发现外国干涉美国境内州、部落或地方选举的信息，可酌情将其纳入本命令第1（a）节规定的评估或本命令第1（b）节规定的报告中，或者以独立报告的形式提交给总统。
 
-川普团队的战术，是在临近1月6日前，放出大招绝杀，让对手没有时间翻盘。若提前放出大招，会给对手反击时间，让自己陷于被动挨打局面、极易被攻破。
+（f） 国务卿、财政部长、总检察长、国土安全部长和国家情报局局长应在本命令发布后的30天内制定一个程序框架，用于根据本命令履行各自的职责。该框架可全部或部分分类，其重点应是确保各机构按照本命令履行其职责，以保持方法上的一致性；保护执法或其他敏感信息和情报来源及方法；保持情报职能与政策和法律判断的适当分离；确保保护选举进程和机构的努力不受政治偏见的影响；尊重言论自由和公开辩论的原则。
 
-川普提名的3名大法官都否决了共和党州的诉讼，在民主党和中间派选民中极大地提升了公正性，为其以后判决的权威性奠定了坚实民意基础。
+第2 节.（a） 所有在美国境内、以后进入美国境内的财产和财产权益，或由以下人士的任何美国人拥有或控制的所有财产和财产权益均被冻结，不得转让、支付、出口、撤回，或以其他方式处理：由财政部长与国务卿、司法部长和国土安全部长协商确定的任何外国人：
 
-德州诉讼案，吸引了包括阿拉斯加在内的近20个州加入支持，引起了巨大轰动效应，唤醒了更多的民众。强大的民意将影响最高法院的最终判决。
+（i） 直接或间接参与、赞助、隐瞒或以同谋方式参与外国干涉美国选举；
 
-If the federal Supreme Court agrees to accept the Texas lawsuit, the Democratic states can also countersuit the Republican states, and the current legal battle in which Trump takes the initiative will become a melee, hence the merits of the case cannot be divided in a short time, but to disrupt the overall tactic of the Trump team.
+（ii）曾为本节第（a）（i）小节所述的任何活动或其财产和财产权益依据本命令被冻结的任何人提供实质性协助、赞助或提供财务、物质或技术支持，或向其提供物资或服务；或
 
-The Trump team’s tactic is to release a big move close to January 6, so that the opponent does not have much time to turn the tide. If the big move is released too early, it will give the opponent time to counterattack, which put themselves in a passive situation and will be easily broken.
+（iii）直接或间接由其财产或财产权益根据本命令被冻结的任何人拥有或控制，或曾作为或看来是代表该人行事。
 
-The three justices nominated by Trump all overruled the Republican states’ lawsuit, which greatly enhanced its impartiality among Democratic and centrist voters and laid a solid public foundation for the authority of its future decisions.
+（b） 经2016年12月28日第13757号行政命令修订的2015年4月1日第13694号行政命令仍然有效。本命令无意也不限制财政部长行使第13694号行政命令规定的权力的自由裁量权。在适当的情况下，财政部长在与总检察长和国务卿协商后，可行使第13694号行政命令所述的权力，或在财政部长行使本命令规定的权力的同时行使其他权力。
 
-The Texas lawsuit, which attracted nearly 20 states, including Alaska, to join in support, caused a huge sensational effect and awakened more people. The strong public opinion will influence the final decision of the Supreme Court.
+（c） 本节第（a）小节中的禁令适用，除非法规或根据本命令发布的法规、命令、指令或许可证另有规定，且尽管在本命令日期之前签订了任何合同或授予了任何执照或许可证。
 
-**如何理解郭先生直播提到的沼泽地！**
+第3节. 在递交第1（a）节规定的评估和第1（b）节规定的报告之后：
 
-**How to Understand the Swamp Mentioned by Mr. Guo in Live Broadcast**
+（a） 财政部长应审查第1（a）节规定的评估和第1（b）节规定的报告，并与国务卿、司法部长和国土安全部长协商，根据本命令第2（a）条和本命令第2（b）条规定实施所有适当制裁；以及
 
-就像江河湖泊，沼泽地也是自然生态的组成部分，美国政治沼泽地也是其政治生态的组成部分。它的存在，是因为其背后的力量、也就是决定美国和世界秩序的核心利益集团，他们需要这个沼泽地。
+（b） 国务卿和财政部长与其他有关机构的负责人协商，应根据本命令第1（b）节规定的报告中的评估，就针对已查明的外国干涉是否适宜对外国人实施额外制裁，共同向总统提出建议，包括酌情并符合适用法律，针对在政府授权、指导、赞助或支持选举干预的国家获得许可或注册的最大商业实体的拟议制裁，包括来自以下每个部门的至少一个实体：金融服务、国防、能源、技术和运输（或者，如果不适用该国最大的商业实体、与该外国政府具有同等战略意义的部门）。建议应包括评估所建议的制裁对美国及其盟国经济和国家安全利益的影响。任何建议的制裁措施都应与确定的外国干涉的范围相适应，并可包括针对每一个目标外国人的以下一项或多项措施：
 
-他们最看重的是实力，而不是民主、自由；同时，为了维持自己建立的这个世界秩序，他们需要有信仰、需要有底线。
+（i） 阻止和禁止在受美国管辖的个人财产和财产权益中的所有交易；
 
-这个力量如此强大，没有谁能抽干。谁想代表美国、谁想代表中国，都要与他们合作，他们决定着美国、也决定着中国的命运。
+（ii）根据任何法规或法规规定的出口许可证限制，要求美国政府事先审查和批准，作为货物或服务出口或再出口的条件；
 
-他们以前默许毛贼东制造的巨大人道灾难，是因为没损害他们利益，不会多管闲事；与邓、江、胡合作，是因为有巨大利益；但习近平在香港事件、病毒生物武器、大选操纵上挑战他们，让他们的利益受到巨大损害，他们真正感到了恐惧，遂下了决心灭共。
+（iii）禁止美国金融机构向某人发放贷款或提供信贷；
 
-他们唯一担心的是，灭共后谁代表中国能给他们带来最大的利益。在最恰当的时间点，有信仰的新中国联邦横空出世，成了他们可选的、不一定是最佳的、但是唯一的选择。
+（iv）限制个人拥有任何利益的外汇交易；
 
-Just as rivers and lakes, swamps are part of the natural ecology, so is the U.S. political swamp part of its political ecology. It exists because the forces behind it, the core interest groups that determine the U.S. and world order, need this swamp.
+（v） 禁止金融机构之间，或由任何金融机构、通过任何金融机构或向任何金融机构转移信贷或付款，以利于个人；
 
-What they value most is strength, not democracy or freedom. and meanwhile, they have faith and bottom lines in order to maintain this world order that they built.
+（vi）禁止美国人投资或购买当事人的股权或债务；
 
-This swamp is so powerful that no one can completely drain it. Anyone who wants to represent the United States and anyone who wants to represent China has to cooperate with them, and they decide the fate of the United States and also of China.
+（vii）将当事人的外国公司高级职员排除在美国之外；
 
-They used to acquiesce to the huge humanitarian disasters caused by Mao because it did not harm their interests, so they would not meddle; they cooperated with Deng, Jiang, and Hu because there were huge interests; but Xi Jinping challenged them on the Hong Kong Affair, the virus bio-weapons, and the election rigging, which caused huge damage to their interests, so they felt a real fear and resolved to exterminate the CCP.
+（viii）对任何人的外籍首席执行官施加本条所述的任何制裁；或
 
-Their only concern is who can bring them the greatest benefit on behalf of China after the destruction of the CCP. At the most opportune moment, the New Federal State of China with faith emerged and became their choice, not necessarily the best, but the only one.
+（ix）法律授权的其他措施。
 
-**黑名单上的王晨在北京参加美国商会晚宴**
+第4节. 我在此决定，如果向其财产和财产利益根据本命令被冻结的任何人捐赠或为其捐赠《国际紧急经济权力法》第203(b)(2)节（《美国联邦法典》第50篇第1702(b)(2)条）规定的物品，将严重损害到我处理本命令宣布的国家紧急状态的能力，因此我在此禁止本命令第2节规定的此类捐赠。
 
-**Blacklisted Wang Chen Attends American Chamber of Commerce Dinner in Beijing**
+第5节. 本命令第2节中的禁令包括以下内容：
 
-中共再耍无赖招数，派已经被美国列入制裁黑名单的人大副委员长王晨，参加了12月10日**在北京**举行的中国美国商会晚宴并致辞。该商会代表了与中共勾兑的主要美国企业。
+（a）向其财产和财产权益根据本命令被冻结的任何人提供或为其提供任何资金、货物或服务；以及
 
-In another rogue move, the Chinese Communist Party sent Wang Chen, vice chairman of the National People’s Congress (NPC), who has been blacklisted by the United States for sanctions, to attend and address a dinner at the American Chamber of Commerce in China in Beijing on December 10. The Chamber of Commerce represents major U.S. companies that have colluded with the Chinese Communist Party.
+（b） 接受任何此类人员的任何捐助或提供的资金、货物或服务。
 
-#CCP\_is\_terrorist   #TakeDownTheCCP
+第6节. 我特此认定，根据本命令其财产和财产利益被冻结的外国人不受限制地移民和非移民进入美国将损害美国的利益，我特此暂停这些人作为移民或非移民进入美国。这些人应被视为2011年7月24日第8693号公告第1节（暂停受联合国安全理事会旅行禁令和《国际紧急经济权力法》制裁的外国人入境）所涵盖的人员。
 
-文案：《路德社》简报组：文寶Porsche；
-翻译：《路德社》翻译组
-审核校对：玫瑰天空
-上传排版：青葫芦娃
+第7节.（a） 禁止任何规避或避免、以逃避或避免为目的、导致违反或企图违反本命令所列任何禁令的交易。
+
+（b） 禁止违反本命令中规定的任何阴谋活动。
+
+第8节 在本命令中：
+
+（a） “人”一词是指个人或实体；
+
+（b） “实体”一词是指合伙企业、协会、信托、合资企业、公司、集团、子集团或其他组织；
+
+（c） “美国的人”一词是指任何美国公民、永久居民外国人、根据美国法律或美国境内任何司法管辖区组建的实体（包括外国分支机构），或在美国境内的任何人（包括外国人）；
+
+（d） “选举基础设施”一词是指联邦政府或州或地方政府或其代表在管理选举过程中使用的信息和通信技术和系统，包括选民登记数据库、投票机、投票制表设备，以及安全传送选举结果的设备；
+
+（e） “美国选举”一词是指在本命令发布之日或之后举行的任何联邦职位选举；
+
+（f） 就选举而言，“外国干涉”一词包括外国政府或作为外国政府代理人或代表外国政府行事的任何人的任何秘密、欺诈、欺骗性或非法行为或企图采取的行动，其目的或效果是影响、破坏信任或改变选举的结果或报告的结果，或破坏公众对选举过程或选举机构的信心；
+
+（g） “外国政府”一词是指除美国以外的任何国家、州、省或其他管理当局、任何政党或任何管理当局或政党的任何官员；
+
+（h） “秘密”一词，就一项行动或未遂行动而言，是指外国政府的作用不会明显或公开承认的意图或明显意图；以及
+
+i） “州”一词是指美国的几个州或任何领土、属地或所有地。
+
+第9节. 对于其财产和财产权益根据本命令被冻结的人，如果他们在美国有宪法规定的合法身份，我认为，由于能够即时转移资金或其他资产，事先通知这些人根据本命令采取的措施将使这些措施无效。因此，我决定，要使这些措施能有效地应对本命令中宣布的国家紧急状态，就不需要事先通知根据本命令第2节所做出的清單或裁定。
+
+第10节. 本命令并不禁止雇员、受赠人或承办商为处理美国政府公务而进行的交易。
+
+第11节. 财政部长经与司法部长和国务卿协商，特此授权采取行动，包括颁布规章制度，并根据需要使用《国际紧急经济权力法》授予总统的所有权力，以达到本命令的目的。财政部长可在符合适用法律的情况下，将这些职能转交给财政部的其他官员。兹指示美国政府所有机构在其权限范围内采取一切适当措施，执行本命令的规定。
+
+第12节 财政部长经与总检察长和国务卿协商，特此授权根据《国家紧急状态法》第401(c)条(《美国联邦法典》第50编第1641(c)条)和《国际紧急经济权力法》第204(c)条(《美国联邦法典》第50编第1703(c)条)，向国会提交关于本命令宣布的国家紧急状态的定期报告和最终报告。
+
+第13节. 本命令应根据《美国联邦法典》第 50 篇第 1702(b)(1)和(3)条执行。
+
+第14节.（a） 本命令中的任何内容不得解释为损害或以其他方式影响：
+
+（i） 法律赋予行政部门或机构或其负责人的权力；或
+
+（ii）管理和预算办公室主任与预算、行政或立法提案有关的职能。
+
+（b） 本命令应按照适用法律执行，并视拨款情况而定。
+
+（c） 本命令无意于也不会产生任何一方均可針對美國，其部門，機關或實體，其高級職員，僱員或代理商或任何其他人依法或強制執行的实质性或程序性权利或利益。
+
+唐纳德·J·川普
+
+白宫，
+
+2018年9月12日。
+
+原文链接：
+
+[Executive Order on Imposing Certain Sanctions in the Event of Foreign Interference in a United States Election | The White House](https://www.whitehouse.gov/presidential-actions/executive-order-imposing-certain-sanctions-event-foreign-interference-united-states-election/)
 
 0
