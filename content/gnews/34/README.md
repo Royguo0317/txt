@@ -1,35 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯：证据表明Facebook用来审查川普支持者的 &#8220;事实检查员 &#8220;是中共
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/642675/)
+## 《路德社》精选新闻快讯：据报道，总检察长威廉-巴尔将对亨特-拜登的两项联邦调查隐瞒了数月
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/642673/)
 
 出品：《路德社》 编辑：《路德社》精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12223428/%E6%88%AA%E5%B1%8F2020-12-13-16.33.56.png)
+据一份新的报告称，司法部长威廉-巴尔（William Barr）知道对亨特-拜登的两项同期联邦调查已有数月之久–并努力在大选前不让公众知道。
 
-彼得-纳瓦罗推文表示马克-扎克伯格似乎打算把美国交给中共。 他的大手笔把他的拇指放在了总统选举的天平上，现在我们看到的证据表明，脸书的”事实检查员 “项目是由中国资金通过抖音支持
+一位知情人士告诉《华尔街日报》，这位国家最高执法官员在没有解释的情况下，避免向国会中的共和党人提供有关这些调查的信息。
 
+其中一项调查于本周公开，当选总统乔-拜登50岁的儿子周三披露，他正因可能的税务欺诈而受到调查。
 
+两名知情人士告诉本刊记者，亨特-拜登还牵涉到曼哈顿联邦检察官进行的一项更广泛的国际金融调查。这一调查至少已经持续了一年。不过，据该刊报道，亨特-拜登从未成为刑事起诉的具体目标。
 
-> Mark Zuckerberg seems intent on handing America over to the Chinese Communist Party. His big bucks put his thumb on the presidential election scale and now we see evidence that the "fact checkers" Facebook uses to censor pro-Trumpers are CCP. [https://t.co/2KwCchkEzy](https://t.co/2KwCchkEzy)
-> — Peter Navarro (@RealPNavarro) [December 11, 2020](https://twitter.com/RealPNavarro/status/1337506592149942275?ref_src=twsrc%5Etfw)
+诸多证据表明亨特利用其父乔拜登的政治地位获取海外大量利益，和中共暗中勾兑，只要拜登舞弊窃取总统计划失败，恐怕拜登全家都会被沼泽地抛弃让他们扛下所有罪行，以明哲保身。巴尔在这期间扮演的角色和掩盖相关消息拖延发布，故意隐瞒亨特案件调查等行为也有着更深层的原因。其结果是使美国的国家安全处于更加危机的境地。反观，如果乔拜登真的当选了，亨特拜登和乔拜登则会安然无恙。巴尔尸位素餐，不会采取任何行动，并且也许他们的党羽会抹掉一切相关人事物。可见，美国司法部内部的沼泽地远比民众想象的更加隐蔽和危机四伏。光和黑暗的战争一切都迫在眉睫！
 
-
-
-虽然Facebook把它的事实核查员大军描绘成独立的，但至少有一个明显的污点”事实核查员”背后的资金来源。
-
-其中一个事实核查机构Lead Stories的部分报酬是通过与TikTok合作获得的，TikTok是一家由中国公司运营的社交媒体平台，该公司效忠于中共。TikTok目前正被美国官员作为国家安全威胁进行调查。
-
-此外，本应监督事实核查者质量的组织是由TikTok的另一个合作伙伴Poynter Institute管理的。
-
-**审查制度**
-
-脸书的事实检查伙伴关系引起了批评，因为它们为审查提供了便利。被合作方标记为虚假的帖子不仅会得到一个警告标签和事实检查的链接，而且Facebook “大大减少了看到它的人数”，该公司在其网站上说。
-
-**ByteDance**
-
-TikTok的老板，总部位于北京的字节跳动，也有自己的审查争议。2019年9月，《卫报》报道称，TikTok指示其版主审查某些提到中国政权认为 “敏感 “话题的视频，如天安门广场大屠杀和自1999年以来在中国受到严重迫害的精神修炼法轮功等。
-
-[援引原文](https://www.theepochtimes.com/facebook-fact-checker-funded-by-chinese-money-through-tiktok_3610009.html)
+[援引原文](https://nypost.com/2020/12/11/william-barr-hid-two-federal-probes-into-hunter-biden-for-months/)
 
 本文作者：CharlieNZ查理
 
@@ -37,4 +24,4 @@ TikTok的老板，总部位于北京的字节跳动，也有自己的审查争�
 
 上传排版：CharlieNZ查理
 
-1+
+0
