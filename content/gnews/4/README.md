@@ -1,19 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/12/03-4 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/648325/)
+## 武汉惨剧隐现 四川一女子逃离隔离小区遭中共警察暴力执法
+` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/649130/)
 
-战友之家图文摘要及多语组
+素材：诸水响声 | 内新闻：背靠背
 
-[313-314\_English\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011203/313-314_English_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011203/313-314_English_CCP_Virus_Updates.pdf)
+2020年12月12日，四川省成都市郫都区一个隔离社区内，一位女士提着行李箱强行翻越隔离墙后，被中共警方暴力执法，强制带离。
 
-[313-314\_French\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011202/313-314_French_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011202/313-314_French_CCP_Virus_Updates.pdf)
+视频中，四川省成都市郫都区一女子带着行李爬墙逃离隔离小区后，被中共警方扑倒，该女士手臂被一位中共警察反关节锁住，摁倒在地，不得动弹。
+视频来自推特号martopirlo1
+12月8日，四川省省委书记宣布迅速进入战时状态，当日疫情防控会议上明确要把疫情防控作为当前最重要、最紧迫的任务来抓，分秒必争、不留死角堵住防疫漏洞，尽快把疫情控在萌芽、禁在局部。
 
-[313-314\_German\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011202/313-314_German_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011202/313-314_German_CCP_Virus_Updates.pdf)
+澎湃新闻报道，12月8日0时至6时，四川成都市新增3例新冠肺炎确诊病例。其中一位患者的停留场所包括多个酒吧。
 
-[313-314\_Japanese\_CCP\_Virus\_Updates-](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011202/313-314_Japanese_CCP_Virus_Updates-.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011202/313-314_Japanese_CCP_Virus_Updates-.pdf)
 
-[313-314\_Spanish\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011200/313-314_Spanish_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011200/313-314_Spanish_CCP_Virus_Updates.pdf)
 
 0
