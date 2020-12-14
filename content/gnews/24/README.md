@@ -1,21 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/12/05-6 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/648382/)
+## 寒风中的战斗
+` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/648939/)
 
-战友之家图文摘要及多语组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14091521/%E5%AF%92%E9%A3%8E%E4%B8%AD%E7%9A%84%E6%88%98%E6%96%97.png)
+作者：喜马拉雅京都富士会 华夏的文丽
 
-[315-316\_English\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14071527/315-316_English_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14071527/315-316_English_CCP_Virus_Updates.pdf)
+最近，日本的疫情暴增，全国平均每天新增感染人数高达3000人，东京有几天超过了600人。现在是12月份，日本人在忙着办年货迎接2021年的新年，每天看着新增感染人数和联想到每个数字后面的家庭，情况不容乐观很揪心。
 
-[315-316\_French\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14071527/315-316_French_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14071527/315-316_French_CCP_Virus_Updates.pdf)
+12月13号，喜马拉雅京都富士会的战友们，在严寒中的街头～在东京的繁华地区原宿车站，大声宣传病毒真相，用日文喊口号和演讲。可是，很多日本人行色匆匆并没有停下来仔细聆听战友们的大声疾呼。战友们也给路人派发印有闫丽梦博士和病毒真相的日文传单，希望日本民众能回家仔细阅读，从而了解所谓的新冠不是流感，而是来自中共军方实验室的生化武器。
 
-[315-316\_German\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14071527/315-316_German_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14071527/315-316_German_CCP_Virus_Updates.pdf)
+到现在为止，日本的电视台、广播电台及报纸等媒体，没有提醒民众减少不必要的外出。相反，鼓励大家在外就餐和四处旅游。跟第一次日本全国进入紧急状态时相比，现在每天的新增感染人数的数字远远大于当时，非常令人遗憾。
 
-[315-316\_Japanese\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14071526/315-316_Japanese_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14071526/315-316_Japanese_CCP_Virus_Updates.pdf)
+投身爆料革命的新中国联邦人，此时在街头大声疾呼，希望能够将病毒真相传达给日本人。尽管能仔细聆听的人很少，但战友们的满腔热忱令人感动。很多在其它国家和地区的战友也通过观看富士会在G-TV的直播，给在现场的战友们加油打气。全世界战友都在祈祷同一件事～传递病毒真相，祈祷世界和平、健康、安宁、祥和。
 
-[315-316\_Korean\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14071526/315-316_Korean_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14071526/315-316_Korean_CCP_Virus_Updates.pdf)
-
-[315-316\_Spanish\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14071527/315-316_Spanish_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14071527/315-316_Spanish_CCP_Virus_Updates.pdf)
-
-0
+1+

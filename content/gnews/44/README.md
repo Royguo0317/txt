@@ -1,34 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【突发】安全总比后悔好，林伍德发推警告美国公民存储物资
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/648431/)
+## 【世事解评】末法时期，佛陀还在&#8212;送给战友们
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/648538/)
 
-- 编辑：Victor Torres、文顺
-- 素材：hellokity
+作者：香草山写作组 程万里
 
-
-***更多真相请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-**西班牙2020年12月14日电/西喜社/**——林伍德（Lin Wood）六小时前发推提醒美国公民做好物资储备，其中包括合法武器。
-
-他说：“确保你有充足的水、食物、手电筒和电池、蜡烛、收音机、第二修正案用品，以及与你的社区领袖会面的计划。”
-
-美国宪法**第二修正案**是美国权利法案之一，并于1791年12月15日正式通过，它保障人民**持有和携带武器**的权利，亦即公民享有正當防卫的公民权力。
-
-他还说：“请记住，我们每次只有一位总统。我们的领袖是唐纳德·川普，而不是拜登。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14081102/MOS0734-%E3%80%90%E4%B8%96%E4%BA%8B%E8%A7%A3%E8%AF%84%E3%80%91%E6%9C%AB%E6%B3%95%E6%97%B6%E6%9C%9F%EF%BC%8C%E4%BD%9B%E9%99%80%E8%BF%98%E5%9C%A8-%E9%80%81%E7%BB%99%E6%88%98%E5%8F%8B%E4%BB%AC.jpeg)图片来源：https://www.pexels.com/
+这几天多家媒体报道了关于195万中共党员的泄露名单：195万共产党员被指划分为79000多个党支部，其中许多分支隶属于公司或机构。如美英等驻华机构、国防、化工、银行、航空航天、生物制药等领域，这其中包括英国汇丰银行、渣打银行、辉瑞、阿斯特捷利康公司、空中巴士、波音、劳斯莱斯等等。据说195万的名单早就被曝光过，现在又被重提，极有可能是西方对中共的大清洗要开始了，省的一刀切了，这也许对海外中国人是一个好消息。
 
-> Better to be safe than sorry.
-> 
-> Make sure you have PLENTY of water, food, flashlights & batteries, candles, radio, 2nd Amendment supplies, & a plan to meet with leaders of your communities.
-> 
-> Remember we only have 1 President at a time. Our leader is [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw), not Biden. [pic.twitter.com/Z8cuPw1Md6](https://t.co/Z8cuPw1Md6)
-> — Lin Wood (@LLinWood) [December 14, 2020](https://twitter.com/LLinWood/status/1338360655016058881?ref_src=twsrc%5Etfw)
+中共靠渗透起家，根据中共《党章》  第三十条：企业、农村、机关、学校、科研院所、街道社区、社会组织、人民解放军连队和其他基层单位，凡是有正式党员三人以上的，都应当成立党的基层组织。墙内各行各业早就被中共渗透，没想到国外的重要组织和机构也早被渗透。
+
+可能很多战友都听过这个故事，魔罗对佛陀道：“到你末法时期，我的徒子徒孙就会混入你的僧宝内，穿你的袈裟，破坏你的佛法，曲解你的经典，破坏你的戒律”。 佛陀听了魔罗的话，久久无语，两行热泪缓缓流了下来。末法真相的故事不正是现在所发生的吗？中共早已渗透到了西方的方方面面，占其庙堂，乱其朝纲，毁其法治，现在世界早已经到了末法时期。不过这个故事还有后半段，佛陀回答说：那你也奈何不了我，那时我真正的弟子将脱掉袈裟，穿起便衣，到世间去。那时红尘将变成庙宇，庙宇将成你徒子徒孙的监狱。
+
+两千五百年过去了的末法今天，世间多佛法，便衣佛陀在。佛陀早已化身为平凡和普通，或许就在你身边，静观这世界，传递着佛法，你见过便衣佛陀吗？见过！就是像郭文贵先生这样的无数的战友们。我们早已开了天眼，已是那便衣佛陀，我们早就脱去了袈裟，穿起了便衣，成了爆料革命的一员，我们是有使命的：拯救我们自己，拯救我们身边的人，拯救我们的国家，拯救全世界。
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

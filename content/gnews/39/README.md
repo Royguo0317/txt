@@ -1,32 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共人海战术渗透西方：195万中共党员信息据报外泄 涉及各行各业
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/648555/)
+## 2020年12月7日【大卫作战室观点】
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/646325/)
 
-收集：文W
-编撰: WENJUN 
-复核：文錦
+[!\[\]()!\[\](https://spark.adobe.com/page/qjEcfOE9kCcdG/images/01d25a7c-11ea-4ea5-8526-6d97e702df9b.jpg?asset_id=d4a3ab17-69d1-4098-92e9-b52fa689ae99&amp;img_etag=%22ee30c1aa3aecdb61d55343d323d5192c%22&amp;size=2560)](https://spark.adobe.com/page/qjEcfOE9kCcdG/images/01d25a7c-11ea-4ea5-8526-6d97e702df9b.jpg?asset_id=d4a3ab17-69d1-4098-92e9-b52fa689ae99&amp;img_etag=%22ee30c1aa3aecdb61d55343d323d5192c%22&amp;size=1024)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14081853/11-8.png)图片来自6parknews链接.
+## *大卫作战室 GTV UK 首秀，强势归来：中共的疫苗战究竟有多邪恶， 美英制裁中国企业，关系不可修复；美国制裁人大副委员长，制裁力度陡然升级；中国高校的毕业生要重新上山下乡？*
 
-澳洲《澳大利亚人报》和英国《每日邮报》等媒体周末报导称，一名中国异议人士今年9月在加密通信软件Telegram上，将一个包含195万中共党员信息的外流资料库，传给了关注中国政府活动的“对华政策跨国议会联盟”（IPAC）。该名单被指划分为79000多个党部分支，其中许多分支隶属于公司或机构当中。
+主播：大卫、 Mary 、 Castle 、 文诚、Stella
 
-报道称，这份名单的时间可回溯至2016年，被披露的信息包含上海地区的党员姓名、出生日期、族裔，有些还有地址和电话号码。在数据安全分析机构“Internet 2.0”的帮助下，IPAC在对材料进行认证后，将数据库传给了包括《每日邮报》在内的全球四家媒体机构。《每日邮报》查看发现，一名曾在英国圣安德鲁斯大学学习的中共党员，曾在包括英国在内的多个外国驻上海领事馆工作过。
+制作：乐禧禧 、小鱼；PR:CharlesS；Page:
 
-报道指，党员身份的不少中国学者在英国大学就读，他们参与了包括航天工程和化学在内的潜在敏感领域的研究；2016年，英国汇丰银行和渣打银行工作的19个分行有600多名党员。而这两家银行近来都因为其回应北京打压香港的方式遭受国内外批评。
 
-报道指，研发新冠病毒疫苗的辉瑞公司（Pfizer）和阿斯特捷利康公司（AstraZeneca），一共聘雇了123名中共党员；空中巴士（Airbus）、波音（Boeing）、劳斯莱斯（Rolls-Royce）等涉及英国及其盟友国防产业利益的公司，也聘雇了数百名中共党员等等。
 
-IPAC通过推特发表声明对相关报道回应称，“一名IPAC的代表从一个非政府来源获得了这一清单，但不能对其内容进行核实，因此将它交给了专家们。记者们此后进行了调查，其结果确实令人不适”。声明称，“IPAC将推动政府和公司回应如何在面对渗透时保障它们的价值。”
+[👉GTV精彩回看链接](https://gtv.org/video/id=5fcecdf6ee9d341c2b4af2eb)
 
-195万中共党员在西方各个行业和机构工作，其目的绝不会是单纯的工作，或至少部分不会是单纯的职业工作，因为劣迹斑斑的中共一直以来有各种无底线手段渗透西方的事实，看来这次人员名单的外泄表明了中共渗透手段又添一“杰作”—人海作战渗透。
+## *全世界推广强制接种，中共的疫苗战究竟有多邪恶*
 
-这一消息算是旧闻，这一事实也是中共一直以来的手段和运作。结合到爆料革命的分析，媒体这个时候把这个事情拿出来说，同时媒体爆出外国黑客攻击美财政部、商务部和国家电信与信息管理局，且部分攻击采用内部渗透外部攻击分工合作的形式，虽然并未指明是中共，但可以大胆推测等这些细节和报告出来的时候，一定是指向中共。报告之后，联军会依据北约规则对中共动手，中共明不久矣！
 
-这将近200万被外泄的中共名单中不知又多少是无辜中枪者，但肯定会受到很大的牵连和影响。他们所能做的能够减少他们被影响的程度的事情是能够加入爆料革命来揭示中共渗透的罪行，而不至于完全沦落为美国接下来雷霆行动中的中共的炮灰。
 
-参考链接：
-[https://www.rfi.fr/cn](https://www.rfi.fr/cn)
+- 大选没结束，病毒疫苗情况接踵而至，全世界政客和医疗公司都欲推广中共疫苗，各国政府以疫苗来恢复信心和经济。把中共国的监控技术跟疫苗结合，可以监控个人情况和信息。
+- 用疫苗测试来收集不同民族DNA，章家敦讲中共收集DNA去发展对某一种族的生物武器。
+- 一条线：美国的科技企业和资金跟中共病毒有关联，如NIH、福奇研究所、比尔盖茨基金。
+- 另一条线：“谁能把毒解了”谁有话语权。实际都是套路，都是为了攻击美国、攻击全世界做准备。
+- 疫苗能治病这个逻辑会让人们陷入很被动。
 
+
+[!\[\]()!\[\](https://spark.adobe.com/page/qjEcfOE9kCcdG/images/f069fc0c-d860-43fd-be6d-398798f97087.jpg?asset_id=68176396-4cd4-444f-9892-db8bea30c232&amp;img_etag=%22f43fd924d2ec9c722e23701f6633a2d4%22&amp;size=1024)](https://spark.adobe.com/page/qjEcfOE9kCcdG/images/f069fc0c-d860-43fd-be6d-398798f97087.jpg?asset_id=68176396-4cd4-444f-9892-db8bea30c232&amp;img_etag=%22f43fd924d2ec9c722e23701f6633a2d4%22&amp;size=1024)
+
+## 美英制裁中共国企业，关系不可能修复
+
+
+
+- 英国富时罗素指数删除美黑名单内八家中共公司股票，证明共产党的经济不可能回到从前。
+- 假如罗素基金继续投资被制裁中共军企，罗素指数也可能被制裁，直接除名，对中共国的资本加入是一个巨大的打击。
+- 中共国股票有非常大的危险性，及割韭菜性质。美国逐渐对中共股市切断血管，未来中共金融系统会遭到非常大的打击。
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/qjEcfOE9kCcdG/images/f250ee4c-1a93-4039-a69f-84a3bb415fa3.jpg?asset_id=84024b4f-1adc-452b-b760-02ded619a354&amp;img_etag=%2271ea92887151a859ee83c9e3b05968c4%22&amp;size=1024)](https://spark.adobe.com/page/qjEcfOE9kCcdG/images/f250ee4c-1a93-4039-a69f-84a3bb415fa3.jpg?asset_id=84024b4f-1adc-452b-b760-02ded619a354&amp;img_etag=%2271ea92887151a859ee83c9e3b05968c4%22&amp;size=1024)
+
+## 美国制裁中共副委员长，制裁力度徒然升高
+
+
+
+- 共产党的钱有多少来自美国。它超限战的危险性来自用军民融合窃取经济和科技，以及外交情报。冻结他们在美资产，禁止入境美国非常重要。
+- 共产党到了最后的阶段，党内官员心态发生变化。有畏罪心理，恐惧心理，他们都知道自己做了什么
+- 这次制裁给9千万党员不同层级的施压，制裁关键那几个人。不同层级施压促进觉醒，离间之术，是战略战术。心理暗示，有些人就可能戴罪立功。在灭共的最后关头倒戈一击。
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/qjEcfOE9kCcdG/images/c9bbd9d7-4a6f-4a5b-a9e3-a7d7e9aee855.jpg?asset_id=0b7d8e2c-9d0e-46b1-a1d5-3ec29e992bfe&amp;img_etag=%2283c2666ce995e18a8bd5fb3c991a1a99%22&amp;size=1024)](https://spark.adobe.com/page/qjEcfOE9kCcdG/images/c9bbd9d7-4a6f-4a5b-a9e3-a7d7e9aee855.jpg?asset_id=0b7d8e2c-9d0e-46b1-a1d5-3ec29e992bfe&amp;img_etag=%2283c2666ce995e18a8bd5fb3c991a1a99%22&amp;size=1024)
+
+**[👉点击关注大卫作战室Parler](https://parler.com/profile/David008/posts)**
+
+[**👉点击关注英喜庄园文宣电台**](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[**👉点击观看英喜庄园在G-TV的精彩视频**](https://gtv.org/user/5ee680a45bd6f123dd104807)
+
+编辑【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/qjEcfOE9kCcdG/)
+[!\[\]()!\[\](https://spark.adobe.com/page/qjEcfOE9kCcdG/images/b8ef29af-f45e-42c2-b1ad-e74d612af605.jpg?asset_id=3ffc2570-5006-4847-8876-1ad2ff1c72d5&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=1024)](https://spark.adobe.com/page/qjEcfOE9kCcdG/images/b8ef29af-f45e-42c2-b1ad-e74d612af605.jpg?asset_id=3ffc2570-5006-4847-8876-1ad2ff1c72d5&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=1024)
 0

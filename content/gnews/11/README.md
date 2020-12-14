@@ -1,92 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》每日简报晚间版 2020.12.12&#8211;NewYork Time
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/646724/)
+## GTV的未来已来
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/649093/)
 
-出品《路德社》 编辑：路德社精选新闻专栏组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13234518/1212-PM-ZH-scaled.jpg)
-撰稿：文宝Porsche   译校：Arvin江牧
+HTS-02C-202012-006
 
-翻译统筹：阿轩Action
+贻人小筑 （喜马拉雅东京樱花团）
 
-1212晚间要闻-NewYork Time
+目前一则信息在喜马拉雅战友群中引起轰动：
 
-**LuDe Media 20201212 Evening News, New York Time**
+“GTV已经成为世界奇迹，战友共同铸造。在similarweb网站上的排名稳定在‘世界新闻与媒体’前50。总浏览上升7.62%。来自中国大陆的流量上升18.6%，占总浏览的37.91%。爆料革命终归是中国人最关心，利益攸关。翻墙浏览GTV 是救命保财的必须。在所有的浏览中，82.83%是直接输入GTV.org网址，9.32% 是搜索后浏览，这反映读者主要是用电脑浏览，不是App浏览。浏览者是自自主浏览，没有借助营销导流。GTV的价值可见一斑。
 
-**国家情报总监将在****18****日前报告大选评估信息**
+230条款取消后，世界华文媒体只有GTV了，GTV投资者们想不富都不行，边灭共、边致富。感谢文贵先生！”
 
-**Director of National Intelligence to Report Election Assessment by Dec. 18**
+对于刚完成手续不久的GTV原始投资者而言，在2020年行将结束前，没有比这更棒的消息了。
 
-根据2018年9月12日通过的《在外国干预美国大选时实施某些制裁的行政令》，国家情报总监必须在大选投票结束后的45天之内（即18日前）对任何外国政府或其代理人干预大选的意图、行为等信息进行评估，并报告给总统、国务卿、财政部、国防部长、司法部长和国土安全部长。
+GTV在众多在线视频平台中，一直以非常特殊的形式存在。它是基于UGC/PUGC为主的短中视频内容生态的社区，同时还囊括类Twitter功能的盖特（盖特将很快从GTV剥离出去独立运营）。这与PGC内容的高度集中不同，整体内容生态更为长尾、与粉丝的互动更为短平快、内容也更容易进化。
 
-司法部长和国土安全部长在收到评估信息后与相关部门机构负责人商讨，然后向总统、国务卿、财政部长和国防部长提交关于“外国干预大选对基础设施安全性、对投票和选举结果的影响”的评估报告。
+那么对标同类型的YouTube平台，GTV又有哪些特色呢？
 
-Under the Executive Order Implementing Certain Sanctions in the Event of Foreign Interference in U.S. Elections, adopted on September 12, 2018, the Director of National Intelligence must evaluate and report to the President, the Secretary of State, the Treasury Department, the Secretary of Defense, the Attorney General, and the Secretary of Homeland Security, within 45 days of the close of voting in the general election (i.e., by Dec. 18), information on the intents, conducts, etc., of any foreign government or its agents to interfere the general election.
+我们先看看YouTube上最热门的播主：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14095557/%E7%94%BB%E5%83%8F1-11.png)
+从下载量上看，YouTube上前五大频道分别是游戏（31%）、娱乐（19%）、个人（12%）、音乐（11%）、喜剧（8%）。显而易见，作为视频分享平台翘楚的YouTube，其主要用户集中在30岁以下、对娱乐内容热衷的年轻互联网用户。
 
-After receiving the assessment information, the Attorney General and the Secretary of Homeland Security will consult with the heads of the relevant agencies, and then submit an assessment of “the impact of foreign interference in the election on infrastructure security, voting, and election outcomes” to the President, the Secretary of State, the Secretary of the Treasury, and the Secretary of Defense.
+GTV作为互联网媒体的用户自由表达权不断收到压制的特殊时期孕育而生，上线伊始便汇聚了全球大量华人，且内容主要集中在时政、金融等领域，这决定了GTV的用户相较YouTube更加成熟，在社会结构中占据更重要的经济地位，也决定了其未来具有更强的内容延展性和社区影响力。
 
-**行政命令和大选评估报告将自动引爆灭共核弹**
+对于GTV的未来，它的机会还包括：
 
-**Executive Order and Election Assessment Report Will Automatically Detonate Nukes to Exterminate the CCP**
+1. 由于互联网防火墙的限制，华人媒体一直处于高压管理状态中，GTV是唯一具有丰富华语内容且不受防火墙控制的视频分享媒体平台。随着防火墙的倒塌，14亿华人市场的井喷效应，将带来GTV价值指数级的增长机会；
+2. 5G时代的到来，结合不同广播媒介的融合，为GTV成为跨渠道媒体运营平台提供了最好的契机；
+3. 政治环境、法律环境的变化（如美国230法案的废除），让同类媒介（如YouTube）面临新的政策压力和风险，一个旧媒体时代的黄金十年将成为过去；
+4. G金融，特别是G币的推出，为GTV用户提供了一个变现方案，促成其快速形成一个良性发展生态。
 
-行政命令将评估对象限于外国干预大选的情况，避免两党之争和国家分裂。总统无权干预整个评估流程，避免被扣上“政治偏见”的帽子。
 
-情报总监由总统直接领导，下辖16个情报部门和4个任务单元，不可能全部被中共蓝金黄。任何机构和个人如果发现有干预美国大选的信息，也可以单独向总统报告。
+GTV的未来已来，请大家系好安全带，一同出发！
 
-该行政令借助2年前民主党捏造的通俄门事件得以顺利发布，已经整合到各部门工作流程中2年多，执行无阻力。
 
-行政令把情报信息变成了直接制裁的行动，避免了冗长的法律程序。该制裁行动避开受外交豁免权保护的中共政府，直接针对盗国贼家族及其白手套实际藏匿资产的组织和个人采取行动。
 
-正式报告一旦递交，直接或间接从事干预美国大选的个人、机构和其代理人在美国境内拥有或控制的资产将被自动查封，不得转让、支付、出口、撤回或其他方式处理。
-
-The executive order limits the assessment to foreign interference in the election to avoid bipartisan strife and national division. The President has no authority to intervene in the entire assessment process to avoid being labelled as “politically biased”.
-
-The Director of Intelligence is under the direct supervision of the President, with 16 intelligence departments and 4 mission units, which are unlikely all to be Blue-Gold-Yellowed by the Chinese Communist Party. Any agency or individual who discovers information about interference in the U.S. election can also report it separately to the president. The executive order, which was issued smoothly with the help of the Russia-gate affair fabricated by the Democratic Party 2 years ago, has been integrated into the departments’ workflow for more than 2 years and has been executed without resistance.
-
-The executive order turns intelligence information into a direct sanctions action, avoiding a lengthy legal process. The sanctions action bypasses the Chinese Communist government, which is protected by diplomatic immunity, and directly targets organizations and individuals whose assets are actually hidden by the kleptocrats family and their white-gloves (assets agents).
-
-Once the official report is filed, assets owned or controlled in the United States by individuals, institutions, and their agents, who directly or indirectly engaged in interference with the U.S. election, will be automatically seized and may not be transferred, paid, exported, withdrawn, or otherwise disposed of.
-
-**林伍德再发重磅檄文讨伐中共**
-
-**Lin Wood Issued Another Heavyweight Diatribe Against the CCP**
-
-他发推说，美国爱国者们做好准备，听川普总统的，行动将在接下来几天迅速展开，中共享生物武器袭击了我们的国家，又再次（网络）攻击我们以窃取选举，我们绝不能接受。川普接着发推回应，我们刚刚开始战斗。
-
-He tweeted, “American patriots get ready, listen to President Trump, the action will start quickly in the next few days, the Chinese Communist Party attacked our country with bio-weapons, and again (cyber) attacked us to steal the election, we must not accept. ” Trump then tweeted in response, “We have just begun the fight. “
-
-**华盛顿举行挺川大游行**
-
-**March for Trump held in Washington**
-
-弗林将军在游行现场发表演讲时，川普总统乘坐的空军一号从天空飞过，民众纷纷向飞机挥手致意。
-
-As General Flynn addressed at the parade, the Air Force One in which President Trump was riding flew through the sky and the crowd waved to the plane.
-
-**被中共间谍方芳渗透的****Eric Swalwell****将被调查**
-
-**Eric Swalwell, Infiltrated by Chinese Communist Spy Fangfang, to be Investigated**
-
-共和党众议员Jim Sensenbrenner，12月11日向众议院道德委员会提交一份投诉，敦促该委员会立即调查有关Eric Swalwell疑遭中共间谍渗透的指控。
-
-Republican Rep. Jim Sensenbrenner, filed a complaint Dec. 11 to the House Ethics Committee, urging the committee to immediately investigate allegations that Eric Swalwell was suspected of being infiltrated by Chinese Communist spy.
-
-**俄罗斯核潜艇同时发射****4****枚弹道导弹**
-
-**Russian Nuclear Submarine Launches Four Ballistic Missiles Simultaneously**
-
-这4枚由部署在太平洋的北风之神级核潜艇“弗拉基米尔.诺莫马赫”号发射的“布拉瓦”导弹，从靠近美阿拉斯加的太平洋海域发射，命中靠近挪威的卡林半岛的预定目标。俄罗斯北海舰队有1艘、太平洋舰队有2艘的北风之神级核潜艇，每枚布拉瓦导弹可携带10枚核弹头。
-
-The four “Bulava” missiles, mounted on the Vladimir Nomomakh, a Dolgorukiy-class
-
-nuclear submarine deployed in the Pacific Ocean, launched from the Pacific Ocean near Alaska, hit their intended targets on the Carlin Peninsula near Norway. The Dolgorukiy-class nuclear submarines, on which “Bulava” missiles mounted and each missile can carry 10 nuclear warheads, one owned by the Russian North Sea Fleet and two by the Russian Pacific Fleet.
-
-#CCP\_is\_terrorist   #TakeDownTheCCP
-
-文案：《路德社》简报组：文寶Porsche；
-翻译：《路德社》翻译组
-审核校对：玫瑰天空
-上传排版：青葫芦娃
-
-0
+1+
