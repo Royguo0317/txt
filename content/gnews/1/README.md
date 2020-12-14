@@ -1,25 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 我的修心工具：闻、思、修
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/650024/)
+## 报告显示，多米尼投票系统在密歇根州安特里姆县的错误率为68%
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/650091/)
 
-```
-作者：阿娜
-校对/发稿人: Ting Guo
-```
+- 编辑：Victor Torres
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14151127/D780ADFA7.jpg)图片来源: 入门开市
-若干年前喜欢上佛学，开始懵懵懂懂的读起来，几年下来沉淀在自己心里，感觉给自己带来了很多安慰。对于郭先生所说的觉悟、悟空的阶段，我觉得自己也就是处于觉醒的阶段，对于万物万事有了一点认识，对于人生有了些想法和感悟。但还是凡胎一个，离觉悟还远着呢。好在我还在不断精进自己，至于是否到达觉悟、悟空尽人力听天命吧！
 
-我认为，很多人要达到觉醒的阶段也是很不容易的。比如说我，从前别人一骂我，我就生气，甚至回骂；别人一夸我，我就高兴。我是否高兴都是随着别人的态度、外界的环境变化而变化。那这样的生活就是无意识的生活，我的心并非由我自己主宰。推及到生活中一切事物都是一样的道理，如果想要过自己的人生， 就要首先，心要自己主宰。那如何主宰自己的心呢？拿我自己来说：听闻佛法，思考佛法讲的道理，然后要不断实践也就是修行。那我是爆料革命中的一名战友，我是听了郭先生直播后，认真思考，并去实施、不断的修正自己的。这也就是我所说的修心工具：闻、思、修。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-我很相信自己这样不断的修行，就是一个不断开启自我智慧的过程。生活中、人生中，处处需要智慧，没有智慧怎么能分辨真假善恶。在我看来，那些独裁者，一定是没有智慧的人。否则，看看历史上，哪个独裁者有好下场，都没有呐！可为什么这些独裁者，还要选择走一条独裁体制的路呢？所有这些在佛学中，都能找到答案。所以说是哲学，哲学也就是智慧。那这些独裁者应该也有看过佛学的，但他们真正的按着佛法讲的, 来修行了吗? 我想一定没有。
+**西班牙2020年12月13日电/西喜社——**据just the news周一报道，美国密歇根州法官当天允许发布一份报告，该报告发现多米尼投票系统设计的程序存在故意的系统性错误，而且这些错误是为了影响选举结果。
+创建该报告的分析者Allied Security Operations Group公布了其对密歇根州安特里姆县选举的取证结果。
+“我们的结论是，多米尼投票系统是故意和有目的地设计了固有的错误，以制造系统性的欺诈和影响选举结果，”报告中写道。”该系统故意产生大量的选票错误。然后将电子选票转为裁决。”
+这份鉴证报告是针对安特里姆县居民威廉•贝利的诉讼而编写的，他指控投票机存在问题。
+这份鉴证报告在周一之前一直处于密封状态，报告验证了贝利的说法。
+“故意的错误导致选票的批量裁决，没有监督，没有透明度，没有审计线索，”报告写道。 “这导致了选民或选举舞弊。根据我们的研究，我们的结论是，多米尼投票系统不应该在密歇根州使用。我们进一步得出结论，安特里姆县的结果不应该被认证。”
+审计发现选票表格的错误率异常高。
+“联邦选举委员会准则规定的允许选举错误率是25万张选票中的1张（0.0008%），”报告称：”我们观察到的错误率为68.05%。这表明在安全和选举诚信方面存在重大和致命的错误。”
 
-**本文章仅代表战友个人观点**
+**原文链接：**[https://justthenews.com/politics-policy/elections/judge-orders-release-report-says-dominion-systems-are-designed-throw](https://justthenews.com/politics-policy/elections/judge-orders-release-report-says-dominion-systems-are-designed-throw)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09040658/image0.png-13-1280x720.jpeg)***[https://discord.gg/77fCxw5mFv](https://discord.gg/77fCxw5mFv)**
-[**https://**](https://https://discord.gg/77fCxw5mFv)[**gab.com/himalaya\_italy**](https://gab.com/himalaya_italy)*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/18075158/Portada-Dominion-ccp-1.jpeg)
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0

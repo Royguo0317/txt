@@ -1,39 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12月14日，愿天佑川普总统！
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/649874/)
+## 对于近期中国境内CCP病毒爆发官方态度转变的看法
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/649930/)
 
-*作者：此心不变；校对：宁缺；审核：海阔天空；Page：拱卒*
+```
+作者：帕丁顿
+校对/发稿人: Ting Gus
+```
 
-### 12月14日，愿天佑川普总统！
-[!\[\]()!\[\](https://spark.adobe.com/page/2YG3kKCfrci8j/images/97731597-e55c-4c5e-a736-18e15552d6c2.jpg?asset_id=f039f9a0-76e5-44b1-8ef2-ecbf5c63fb60&amp;img_etag=%22fbb6e5b289802e2c769b2c447d6e0f8f%22&amp;size=2560)](https://spark.adobe.com/page/2YG3kKCfrci8j/images/97731597-e55c-4c5e-a736-18e15552d6c2.jpg?asset_id=f039f9a0-76e5-44b1-8ef2-ecbf5c63fb60&amp;img_etag=%22fbb6e5b289802e2c769b2c447d6e0f8f%22&amp;size=1024)
-When asked about Monday’s Electoral College vote, which is when the country officially elects the president, Trump recognized that he is under a time crunch.
 
-新闻来源：[Foxnews](https://www.foxnews.com/politics/trump-fox-and-friends-election-challenges-not-over-electoral-college-vote)
+自从2020年1月23号宣布武汉封城以后，CCP对外界长期以控制能力位居世界首位自居。加之世卫组织的谭德塞为之摇唇鼓舌，迷惑了大多数国内的活著的民众，染上的死了也就死了。很多身居海外的中国人也相信CCP疫情控制的最好。每当有新的疫情出现CCP除了对当地按老规矩宁可错杀一千绝不放过一个封锁小区，明面上则是尽可能大事化小小事化了，以此作为一个维持假擀麵杖经济的手段。
 
-**简评：**
+8月5号我和大连的朋友联繫，他说他的小区被封了，接下来云南、新疆、西安、上海、浦东、成都，我都没啥感觉。直到我住的小区频繁发CCP病毒的通知，附表是我曾经住过的小区发的通知，我才有身临其境的感觉，而这种紧张的氛围弥漫了一段时间。前几天我忽然意识到，这一切都是在做大的管控做准备，以达到变相的全国戒严，应付北约联军的打击。一旦攻击开始，十四亿肉票已经定点准备好。 这样做的目的一是CCP深谙此道，可以随时上手。二是趁机借核酸检测大肆搜刮民财。因为依据成都武侯区第三人民医院，挂出了“热烈庆祝我院成为新冠核酸检测定点医院”。有知情者透露，核酸检测成本20块，医院对个人收费200多块。三是随时可以转成被CCP喊了70年的人民战争，摆开鱼死网破的架势，赌北约不敢对混入平民中的党卫军动手。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14132421/IMG_20201214_191225-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14132452/IMG_20201214_191339-scaled.jpg)
+总之一句话，原来是捂，骗，现在捂不住了，不得不硬著头皮上了。按照共产党自己的歌词“种瓜滴得瓜种豆滴得豆，谁种下仇恨他自己遭殃”。几十年如一日在人民群众心里播种仇恨的CCP，你逃不出你给自己的诅咒。也没有无辜的人，每一个人的所作所为，所思所想都决定你即生的命运和来世的去处。面对恶选择沉默，不是无辜。如同韩寒说的，通往朝鲜的路，是每一个沉默者铸就。
 
-今天是12月14号选举团日，是川普总统最艰难的日子。这个艰难会持续到国家情报总监重磅报告出来为止，但是很多人担心那个报告也好不到哪里去。我觉得没必要这么想。与神对立的力量，虽然看似非常强大，强大到能将川普所有的出路都堵死。但是与神同行的川普从过去到现在看似到哪都碰壁，却到哪都会得到最好的结果。
+在社会动荡时刻，唯一能救你的是自己的善恶抉择，而不是你的财富，学识。明辨善恶必然赋予你敏锐的社会洞察力，从而此生有一个好的归宿。
 
-这样的事若发生在普通人身上一定扛不下来，基本上都会放弃。但川普是英雄，他的成长经历告诉我，他会永不言败。
+**本文章仅代表战友个人观点**
 
-这是一个出英雄的时代，中国有郭文贵先生，美国有川普总统。人类历史上的英雄从来都是个人主义，无论当时的运动有多大，最终都会落到英雄个人身上。比如CCP动用国家机器打压和封杀郭先生，Deep State动用所有力量打压和封杀川普，所以英雄都必须是经得起所有考验的个人主义。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09040658/image0.png-13.jpeg)***[https://discord.gg/77fCxw5mFv](https://discord.gg/77fCxw5mFv)**
+[**https://**](https://https://discord.gg/77fCxw5mFv)[**gab.com/himalaya\_italy**](https://gab.com/himalaya_italy)*
 
-一个英雄带动一群英雄，一个郭文贵带动一群中国英雄，一个川普带动一群美国英雄，然后无数英雄凝聚在一起，最后的胜利一定属于所有的英雄。
-
-香港反送中运动中没有领袖，每一个抗争者都是自己的领袖，这是一场运动能走向胜利的首要条件。香港运动没有结束，但最后赢家一定会是香港人。
-
-CCP的邪恶就是个体必须服从集体，它宣扬的为人民服务的本质就是扼杀个体的存在，所有附庸他的个体最终都会被它消灭。Deep State也是一样，个体不过是附庸者，附庸它的拜登最终必被Deep State斩杀。
-
-从采访中可看出川普的表情很凝聚，他知道今天12月14日不好过，但是他是英雄，他只会撑下去，直至最后胜利。
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/2YG3kKCfrci8j/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-[!\[\]()!\[\](https://spark.adobe.com/page/2YG3kKCfrci8j/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/2YG3kKCfrci8j/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

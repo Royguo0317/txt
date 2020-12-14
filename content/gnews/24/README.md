@@ -1,26 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【重磅速递】Youtube/谷歌全球网络大崩溃及其警醒信号
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/649621/)
+## 林伍德：川普有勇气采取行动
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/649648/)
 
-作者：Skagen【㊙️翻Gnews原创组】
-责编：心声
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14115233/capture-111.jpg)来源：Google
-2020年12月14号周一全球许多用户无法使用谷歌提供的其他几项服务，现在已经恢复。其他下线的服务包括视频分享平台YouTube和Google Drive。清单中还包括谷歌docs和国际公司的许多应用。
+- 编辑：文顺
+- 翻译：Ranting
+- 素材：Victor Torres、神奇四侠
 
-Gmail用户的屏幕上显示着同样的信息：”我们很抱歉，但您的账户暂时不可用。我们对造成的不便表示歉意，建议几分钟后再试。您可以查看G Suite状态仪表板，了解服务的当前状态。”
 
-YouTube在推特中写道：”我们意识到，你们中的许多人现在在访问YouTube时遇到了问题–我们的团队已经意识到并正在研究。一旦有更多消息，我们会尽快在这里向您更新。”今天全球Youtube、Gmail、谷歌全部断网。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-今天节目中路德先生说他感受到了1.19的紧张感。有网友发孩子们在家看Youtube突然齐声说网断了，而且家里的电视信号也停止了。除此之外，Discord有网友说也上不了了。
+**西班牙2020年12月14日电/西喜社/——**1小时前，林伍德（Lin Wood）就大选发推表示，如果最高法院没有勇气采取行动，相信川普总统有勇气。
 
-路德先生解读了全球网络大崩溃背后意味着反对川普的力量将可能控制川普政府发声的渠道，包括班农先生战争室、朱利安尼油管频道等。因为所有的有线电视网控制在敌对力量手中，包括Newsmax 和OAN。川普总统现在主要发声渠道是推特和油管，如果这个节点上突然断网，全美民众只能通过有线电视网，比如川普总统接下来的一系列大行动出来时，通过操纵有线新闻放出假消息，开始造谣。
+林伍德在推文中说：“今天任何州都不应该有选举团的投票。各州选举中的舞弊现象十分猖獗。如果美国最高法院没有勇气采取行动，我相信川普总统有勇气（采取行动）。”
 
-结合昨天晚上林·伍德律师突然发推让所有人立即准备好水、食物、收音机、枪弹等末日物资，以及准备好建社区领导的计划。伍德提醒要记住我们的总统是川普不是拜登。路德先生分析这次断网是中共还击的重要信号。可能渗透在世界各地的中共力量都已经准备好了超限战，伪类特务具有专业手法散播虚假信息、混肴视听、制造混乱，令川普总统失去指挥能力。这是中共主动全面的一次反击。
 
-路德先生希望战友们坚信自己做的是正义的事业，一定要学会分析，无论在多么艰难的环境中，即使听不到郭文贵先生直播和路德节目的情况下，一定要相信上帝的力量。相信上帝和万神万佛掌管宇宙的力量，意识到自己从万佛万神那里而来的使命和担当，坚持独立而智慧的判断和行动，这样每个人都是英雄，每个人都是超人！
 
-（本文仅代表作者观点）
+> There should be NO Electoral College vote in any state today.
+> 
+> Fraud is rampant in all state elections. If U.S. Supreme Court does not have courage to act, I believe our President [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) has the courage. He loves America & freedom.[@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw)[@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) [pic.twitter.com/xfkCjwNDJ1](https://t.co/xfkCjwNDJ1)
+> — Lin Wood (@LLinWood) [December 14, 2020](https://twitter.com/LLinWood/status/1338499888238252033?ref_src=twsrc%5Etfw)
 
-4+
+
+
+随后，林伍德转发川普总统推文，并说：“真相。”川普总统在推文中说：“为什么摇摆州在半夜停止计数？因为他们在等着找出他们必须制作多少张选票，以便窃取被操纵的选举。他们落后得太多，以至于他们需要时间，以及一个假的”水管破裂”来恢复。”
+
+
+
+> TRUTH. [https://t.co/izijRmB1tv](https://t.co/izijRmB1tv)
+> — Lin Wood (@LLinWood) [December 14, 2020](https://twitter.com/LLinWood/status/1338500559532384256?ref_src=twsrc%5Etfw)
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+
+0
