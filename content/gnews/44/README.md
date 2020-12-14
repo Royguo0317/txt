@@ -1,70 +1,86 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》每日简报早间版 2020.12.13&#8211;NewYork Time
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/646779/)
+## 《路德社》每日简报晚间版 2020.12.12&#8211;NewYork Time
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/646724/)
 
 出品《路德社》 编辑：路德社精选新闻专栏组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14000255/1213-AM-ZH-scaled.jpg)
-撰稿：文寶Porsche   译校：Arvin江牧
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13234518/1212-PM-ZH-scaled.jpg)
+撰稿：文宝Porsche   译校：Arvin江牧
 
 翻译统筹：阿轩Action
 
-1213早间要闻-NewYork Time
+1212晚间要闻-NewYork Time
 
-**LuDe Media 20201213 Morning News, New York Time**
+**LuDe Media 20201212 Evening News, New York Time**
 
-**美国驻华使领馆发推警告中共军事威胁**
+**国家情报总监将在****18****日前报告大选评估信息**
 
-**U.S. Embassy and Consulate in China Tweeted Warning of Military Threat from CCP**
+**Director of National Intelligence to Report Election Assessment by Dec. 18**
 
-推文说，北京的军事挑衅将全世界置于风险之中，加剧了从喜马拉雅地区到南中国海的暴力冲突威胁。中共不计后果地使用军队，破坏了印度-太平洋地区及全世界的稳定。中共在存在争议的南中国海区域建立了军事化基地，利用它来阻断通道，封闭航路。美国致力于与盟国和合作伙伴共同努力抵制中共的破坏性行为，倡导一个开放的印太地区。
+根据2018年9月12日通过的《在外国干预美国大选时实施某些制裁的行政令》，国家情报总监必须在大选投票结束后的45天之内（即18日前）对任何外国政府或其代理人干预大选的意图、行为等信息进行评估，并报告给总统、国务卿、财政部、国防部长、司法部长和国土安全部长。
 
-Beijing’s military provocations are putting the world at risks and increasing the threat of violent conflicts from the Himalayan region to the South China Sea, the tweet said. The CCP’s reckless use of military forces has destabilized the Indo-Pacific region and the world. The Chinese Communist Party has established militarized bases in the disputed South China Sea region, using it to block access and close shipping routes. The United States is committed to working together with allies and partners to resist the destructive behavior of the CCP and to advocate for an open Indo-Pacific region.
+司法部长和国土安全部长在收到评估信息后与相关部门机构负责人商讨，然后向总统、国务卿、财政部长和国防部长提交关于“外国干预大选对基础设施安全性、对投票和选举结果的影响”的评估报告。
 
-**推文深度分析：这是要对中共动手的信号**
+Under the Executive Order Implementing Certain Sanctions in the Event of Foreign Interference in U.S. Elections, adopted on September 12, 2018, the Director of National Intelligence must evaluate and report to the President, the Secretary of State, the Treasury Department, the Secretary of Defense, the Attorney General, and the Secretary of Homeland Security, within 45 days of the close of voting in the general election (i.e., by Dec. 18), information on the intents, conducts, etc., of any foreign government or its agents to interfere the general election.
 
-**Deep Analysis of the Tweet: Signal to Take Actions Against the CCP**
+After receiving the assessment information, the Attorney General and the Secretary of Homeland Security will consult with the heads of the relevant agencies, and then submit an assessment of “the impact of foreign interference in the election on infrastructure security, voting, and election outcomes” to the President, the Secretary of State, the Secretary of the Treasury, and the Secretary of Defense.
 
-中共如何将世界置于风险中？南海军事化，阻断航道，给全球经济带来了风险；台湾是美国最重要的供应基地，中共威胁台湾给美国经济带来了风险。
+**行政命令和大选评估报告将自动引爆灭共核弹**
 
-当初伊拉克占领科威特给世界能源供应带来风险，所以被灭；当年的巴拿马独裁政府控制了运河，给世界经济带来风险，所以也被灭；而沙特也是独裁，但对世界不产生风险还每年购买美国军火，所以美国不会灭它甚至保护它。
+**Executive Order and Election Assessment Report Will Automatically Detonate Nukes to Exterminate the CCP**
 
-推文跳过中国政府（有外交豁免权），直接点名中共（没有外交豁免权），暗示美国对其动手没有法律障碍，时机一到，随时可以行动。此推文发布出来就暗示一定要解决这个威胁，否则美国将彻底失信于天下。
+行政命令将评估对象限于外国干预大选的情况，避免两党之争和国家分裂。总统无权干预整个评估流程，避免被扣上“政治偏见”的帽子。
 
-How the CCP puts the world at risks? The militarization of the South China Sea, blocking shipping routes, puts the global economy in danger; Taiwan is the most important supply base for the United States, and the Chinese Communist Party’s threat to Taiwan puts the U.S. economy at risks.
+情报总监由总统直接领导，下辖16个情报部门和4个任务单元，不可能全部被中共蓝金黄。任何机构和个人如果发现有干预美国大选的信息，也可以单独向总统报告。
 
-Years ago, Iraq’s occupation of Kuwait brought risks to the world’s energy supply, so it was destroyed. The Panamanian dictatorship of the day controlled the canal and posed risks to the world economy, and it was also exterminated. Although Saudi Arabia is also a dictatorship, it poses no risks to the world and buys arms & weapons from the U.S. every year, therefore the U.S. does not eliminate it and even protects it.
+该行政令借助2年前民主党捏造的通俄门事件得以顺利发布，已经整合到各部门工作流程中2年多，执行无阻力。
 
-The tweet skipped the Chinese government (which has diplomatic immunity) and directly named the Chinese Communist Party (which does not have diplomatic immunity), implying that there are no legal obstacles for the U.S. to move against it and is ready to take actions when the time comes. This tweet was released to imply that the threat must be resolved, otherwise the U.S. will completely lose its credibility to the world.
+行政令把情报信息变成了直接制裁的行动，避免了冗长的法律程序。该制裁行动避开受外交豁免权保护的中共政府，直接针对盗国贼家族及其白手套实际藏匿资产的组织和个人采取行动。
 
-**习近平提出十大国家安全观，政治安全放首位**
+正式报告一旦递交，直接或间接从事干预美国大选的个人、机构和其代理人在美国境内拥有或控制的资产将被自动查封，不得转让、支付、出口、撤回或其他方式处理。
 
-**Xi Jinping Proposed Ten National Security Concepts, Putting Political Security First**
+The executive order limits the assessment to foreign interference in the election to avoid bipartisan strife and national division. The President has no authority to intervene in the entire assessment process to avoid being labelled as “politically biased”.
 
-习近平在政治局会议中虽然提出了十条安全观，其实他真正在乎的只有政治安全。所谓的政治安全就是习近平的安全，不服从他领导的人就是在政治上不安全。
+The Director of Intelligence is under the direct supervision of the President, with 16 intelligence departments and 4 mission units, which are unlikely all to be Blue-Gold-Yellowed by the Chinese Communist Party. Any agency or individual who discovers information about interference in the U.S. election can also report it separately to the president. The executive order, which was issued smoothly with the help of the Russia-gate affair fabricated by the Democratic Party 2 years ago, has been integrated into the departments’ workflow for more than 2 years and has been executed without resistance.
 
-其他官话翻译成大白话，主要内容是：统一由他领导；要人人过关；打着人民的名义为几个家族服务；以安全的名义随时限制百姓自由、没收人民财产；建立一支几万人的、刘胡兰式风格的安全队伍，安插到军队的每一个角落，用杠杆效应来监视控制几百万军人。
+The executive order turns intelligence information into a direct sanctions action, avoiding a lengthy legal process. The sanctions action bypasses the Chinese Communist government, which is protected by diplomatic immunity, and directly targets organizations and individuals whose assets are actually hidden by the kleptocrats family and their white-gloves (assets agents).
 
-Although Xi Jinping put forward ten security concepts in the Political Bureau meeting, in fact the only thing he really cares about is political security. The so-called political security is Xi Jinping’s security, and those who do not submit to his leadership are politically insecure.
+Once the official report is filed, assets owned or controlled in the United States by individuals, institutions, and their agents, who directly or indirectly engaged in interference with the U.S. election, will be automatically seized and may not be transferred, paid, exported, withdrawn, or otherwise disposed of.
 
-Translating other official words into the vernacular, the contents mainly are: unified leadership under him; political censorship for each individual; to serve several families in the name of the people; to restrict the freedom of the people and to confiscate people’s property casually in the name of security; to build a Liu Hulan style security team of tens of thousands of people, and to plant into every corner of the PLA to monitor and control millions of soldiers using leverage effects.
+**林伍德再发重磅檄文讨伐中共**
 
-**官话之外的真正内容—如何保护习近平**
+**Lin Wood Issued Another Heavyweight Diatribe Against the CCP**
 
-**The Real Content Beyond the Official Words – How to Protect Xi Jinping**
+他发推说，美国爱国者们做好准备，听川普总统的，行动将在接下来几天迅速展开，中共享生物武器袭击了我们的国家，又再次（网络）攻击我们以窃取选举，我们绝不能接受。川普接着发推回应，我们刚刚开始战斗。
 
-内部战友透露会议的实质性内容是，讨论在美国和北约采取行动时，怎样保护习近平的安全（政治安全）；游说、渗透美国和北约，阻止其采取行动，化解危机；如果化解不了，首先要保障习近平安全，方式是通过安全队伍的杠杆效应发动全军做肉盾；只要保护好了习近平的安全，就有奖赏。
+He tweeted, “American patriots get ready, listen to President Trump, the action will start quickly in the next few days, the Chinese Communist Party attacked our country with bio-weapons, and again (cyber) attacked us to steal the election, we must not accept. ” Trump then tweeted in response, “We have just begun the fight. “
 
-Internal battle companions revealed that the substance of the Politburo meeting was: to discuss how to protect Xi Jinping (political security) when the U.S. and NATO take actions; to lobby and infiltrate the U.S. and NATO to prevent them from taking actions in order to resolve the crisis; if the crisis cannot be resolved, Xi Jinping’s safety should be ensured first, leveraging the security team to motivate the entire PLA military as a flesh shield; as long as Xi Jinping is well protected, there will be a big reward.
+**华盛顿举行挺川大游行**
 
-**香港公务员被要求宣誓拥护基本法和香港特区**
+**March for Trump held in Washington**
 
-**Hong Kong Civil Servants Asked to Swear to Uphold the Basic Law and the HKSAR**
+弗林将军在游行现场发表演讲时，川普总统乘坐的空军一号从天空飞过，民众纷纷向飞机挥手致意。
 
-全港的十八万名公务员从下月初起，一个月内必须完成宣誓或签署声明，拥护《基本法》和效忠特区政府，拒绝者将被解雇或被勒令退休。
+As General Flynn addressed at the parade, the Air Force One in which President Trump was riding flew through the sky and the crowd waved to the plane.
 
-All 180,000 civil servants in Hong Kong are required to complete an oath or sign a declaration to uphold the Basic Law and pledge allegiance to the Hong Kong SAR government within a month from the beginning of next month, and those who refuse will be dismissed or ordered to retire.
+**被中共间谍方芳渗透的****Eric Swalwell****将被调查**
+
+**Eric Swalwell, Infiltrated by Chinese Communist Spy Fangfang, to be Investigated**
+
+共和党众议员Jim Sensenbrenner，12月11日向众议院道德委员会提交一份投诉，敦促该委员会立即调查有关Eric Swalwell疑遭中共间谍渗透的指控。
+
+Republican Rep. Jim Sensenbrenner, filed a complaint Dec. 11 to the House Ethics Committee, urging the committee to immediately investigate allegations that Eric Swalwell was suspected of being infiltrated by Chinese Communist spy.
+
+**俄罗斯核潜艇同时发射****4****枚弹道导弹**
+
+**Russian Nuclear Submarine Launches Four Ballistic Missiles Simultaneously**
+
+这4枚由部署在太平洋的北风之神级核潜艇“弗拉基米尔.诺莫马赫”号发射的“布拉瓦”导弹，从靠近美阿拉斯加的太平洋海域发射，命中靠近挪威的卡林半岛的预定目标。俄罗斯北海舰队有1艘、太平洋舰队有2艘的北风之神级核潜艇，每枚布拉瓦导弹可携带10枚核弹头。
+
+The four “Bulava” missiles, mounted on the Vladimir Nomomakh, a Dolgorukiy-class
+
+nuclear submarine deployed in the Pacific Ocean, launched from the Pacific Ocean near Alaska, hit their intended targets on the Carlin Peninsula near Norway. The Dolgorukiy-class nuclear submarines, on which “Bulava” missiles mounted and each missile can carry 10 nuclear warheads, one owned by the Russian North Sea Fleet and two by the Russian Pacific Fleet.
 
 #CCP\_is\_terrorist   #TakeDownTheCCP
 

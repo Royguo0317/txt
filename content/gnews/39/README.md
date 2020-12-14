@@ -1,29 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [独家新闻] 彭培奥表示，川普对抗激进的伊斯兰恐怖主义使美国和世界更加安全
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/649033/)
+## 密歇根州立法机构着手调查选举违规
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/649109/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14092131/GNEW-GTV-MOS-LOGO-2.jpg)
+- 编辑：Victor Torres、文顺
+- 素材：hellokity
 
 
+***更多真相请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-作者：香草山农场写作组 – 七芒星
+**西班牙2020年12月14日电/西喜社/**——据《Just the News》14日报道，尽管2020年大选结果的各种挑战者遭遇了一连串的法律挫折，但密歇根州立法机构仍在紧锣密鼓地推进对该战地州投票违规行为指控的调查。
 
-日期：2020年12月14日
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14091829/202012141.jpg)图片来自布賴特巴特网
-布赖特巴特12月13日消息，国务卿彭培奥上周在其办公室接受布赖特巴特新闻独家采访时表示，特朗普总统直接对抗激进的伊斯兰恐怖主义，使美国和世界变得更加安全，为诸如亚伯拉罕协议的历史性和平协议铺平了道路。
+密歇根州已经认证乔•拜登为获胜者；该州的官方结果显示，民主党人以略高于15.4万张选票的优势赢得其选举人票。然而，该州在大选后一直充斥着传言和争议。
 
-彭培奥解释说，特朗普政府明白来自当地激进恐怖分子的“风险”是“多方面的”，并以此作为方法方法来对付恐怖主义。 因此，总统和他的团队一直致力于授权该地区志趣相投的国家，直接面对和挑战那些会给大家造成伤害的国家。 特朗普已经在以色列和几个阿拉伯国家（如巴林，阿拉伯联合大公国，苏丹，以及上周提及的的摩洛哥）之间进行了和平谈判，这被称为《亚伯拉罕协议》。
+现在，一位共和党州议员誓言，即使在包括川普竞选团队提起的多起选举相关诉讼不断被法院驳回的情况下，立法机构仍将继续调查此类指控。
 
-彭培奥还表示，特朗普政府并非不愿使用美国的权力，但他的团队以某种方式实际上解决了所面对的真正威胁，例如，当激进恐怖主义使用苏莱曼尼时，总统做出了坚决的回应。 与选择诉诸军事手段相比，特朗普的团队更频繁地使用外交和经济手段来做到这一点。
+代表密歇根州众议院103区的众议员黛尔·伦登(Daire Rendon)告诉《Just the News》：”有很多选民对我们选举过程的方式非常非常不满。”伦登说，在选举后的几天和几周内，选民们 “发现了违规行为。他们听到了证词，程序没有得到遵守。”
 
-但是，许多右翼人士担心，如果拜登担任下一任总统后，可能会试图重新进入奥巴马时代失败的伊朗核协议（JCPOA）。 当被问及伊朗协议时，彭培奥表示重新进入该协议或类似协议将是一个巨大的错误。 伊朗的交易使美国损失了数百亿美元的资源，但没有解决核问题。
+“就在昨天，我收到了1300封电子邮件。”她说：“它们都是关于‘你们对选举做了什么？’的投诉。”
 
-原文链接：
+她说：“即使在选举结束一个多月后，全州仍有很高的兴趣来探讨这些违规行为。”伦登指出，州议会一直在举行关于2020年选举的听证会。
 
-[https://www.breitbart.com/politics/2020/12/13/exclusive-pompeo-trump-confronting-islamic-terrorism-made-america-world-safer/](https://www.breitbart.com/politics/2020/12/13/exclusive-pompeo-trump-confronting-islamic-terrorism-made-america-world-safer/)
+本周，众议院监督委员会主席马特-霍尔（Matt Hall）通知Dominion Voting Systems首席执行官约翰•普洛斯（John Poulos），如果他拒绝参加听证会，立法机构将考虑发出传票，要求他出庭。
 
-审核：浪迹天涯
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14092131/GNEW-GTV-MOS-LOGO-2.jpg)
+伦登是密歇根州共和党代表之一，他们签署了德克萨斯州的诉讼，挑战四个关键战场州的选举结果。该诉讼在上周五被最高法院驳回。
+
+不过，伦登表示，调查仍将继续。她指出，她的选民 “按照州政府的规定进行了投票”，并要求证明州内其他地方也是这样做的。
+
+“我的人民在叫犯规。”她说。
+
+**原文链接：**[https://justthenews.com/government/state-houses/amid-lawsuit-setbacks-michigan-continues-oversight-hearings-election](https://justthenews.com/government/state-houses/amid-lawsuit-setbacks-michigan-continues-oversight-hearings-election)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26221622/PHOTO-2020-11-26-13-19-21.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+
 0
