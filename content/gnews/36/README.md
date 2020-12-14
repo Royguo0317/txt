@@ -1,23 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国多个政府机构被外国黑客网络入侵
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/648915/)
+## 母亲教诲我做事先做人！
+` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/648977/)
 
-- 编辑：Victor Torres
-- 作者：神奇四侠
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14092416/%E6%AF%8D%E8%A6%AA%E6%95%99%E8%AA%A8%E6%88%91%E5%81%9A%E4%BA%8B%E5%85%88%E5%81%9A%E4%BA%BA.png)
+作者：京都富士會 ThreeColors
 
+这段母亲的教诲，愿与战友们一起分享：
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+對善人禮貌、友善、熱情，對惡人強悍強硬；
 
-**西班牙2020年12月14日电/西喜社——**
+日常生活中早起、早睡，堅持鍛鍊身體，充滿活力和衝勁兒；
 
-据美国之音报道，12月13日美国政府表示，近日多个政府机构遭到网络攻击，政府制定的互联网和电信政策有关的信息被窃取。
+養成自己對自己、对家人和社區負責的習慣；
 
-美国商务部也证实了下属一个机构遭到网络破坏，联邦调查局和国土安全部网络安全局都在调查此次黑客的攻击行动。
+不干涉他人，更不讓他人干涉自己；
 
-国家安全委员会官员周六开会讨论了这次黑客攻击事件，确信黑客窃取了与美国政府制定互联网和电信政策有关的信息。
+傳承傳統文化；
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+廣交與自己經歷相同、價值觀相近的朋友… …
 
 0
