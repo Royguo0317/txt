@@ -1,41 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 我的爆料革命心路历程
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/645937/)
+## 【突发】弗林：我们现在就有确凿的外国影响美国大选的证据
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/645959/)
 
-作者：一位新战友；校对：宁缺；审核：海阔天空；Page：拱卒
-[!\[\]()!\[\](https://spark.adobe.com/page/Ml2giV5UBCFFz/images/8b33de97-2b82-45e0-804d-c35a26f890ca.jpg?asset_id=36822899-3414-41e7-8eac-3d7e9f681f05&amp;img_etag=%223b0aa8179361283e384aaf1a39ee2e17%22&amp;size=1024)](https://spark.adobe.com/page/Ml2giV5UBCFFz/images/8b33de97-2b82-45e0-804d-c35a26f890ca.jpg?asset_id=36822899-3414-41e7-8eac-3d7e9f681f05&amp;img_etag=%223b0aa8179361283e384aaf1a39ee2e17%22&amp;size=1024)
-回想自己从无知到了解、支持、到最终加入爆料革命的经历，作为墙内的普通民众，我经历了漫长的心路历程。
+- 编辑：Victor Torres
 
-2019年年中，中美贸易战在当时进行了很久，那时我关注新闻，知道川普总统希望与中共国建立外交上对等关系的诉求，也能看到墙内的有识之士分析，如果一旦对等关系实现，必然会影响中共国现有的政治体制（所谓改革进入深水区）。我当时的立场是如果美国赢，则中共国制度会变好，而中共国赢，我们就能像美国一样全世界吸血，所以一直抱着坐山观虎斗的心态。
 
-后来一次偶然的机会，父亲向我抱怨其国外同学向他传达香港人抗争并被欺压的新闻，并提到墙内也流传很多香港人袭击警察的新闻，结论是他的国外同学反动。但是事情的真相只有一个。老话说，兼听则明，好奇心驱使着我去翻墙查看更多的信息，期间也到过伪类的平台，甚至差点被钓鱼。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-在没接触到爆料革命的时候，各种伪类提供的信息也曾让我着迷，但最终伪类的平台被我一一放弃。伪类的信息在知识面、目标、价值观、方法论诸方面始终有缺陷。弱智信息就不说了，宣称世界上没有基因修改技术这样的一点即破的信息我会很快过滤。当时能入我耳的有三类信息，一类信息是鼓吹刺杀习近平，并不断描述习近平的邪恶。其最大的问题就是，屠龙者终将变成恶龙。一类信息认为应该分裂华夏甚至屠支，这确实能够消灭华夏民族对欧美的威胁，但是这样的想法包含着对中华民族深深的恶意，只是很多人为了出恶气而趁口舌之快而已，他们绝对无法想象屠刀真正地举向他家人和亲朋的时刻。还有一类信息不断地咒骂和宣扬共产党的恶，并将捕风捉影的消息添油加醋，作为喂给观众们的精神食粮。我不想说最后一类是恶人，他们可能明白共产党的坏，但是并不知道如何让它变好，最终只能用忙碌消磨自己的迷茫。
+**西班牙2020年12月13日电/西喜社——**周日上午，弗林将军接受Sunday Morning Futures的玛丽亚·巴蒂罗莫采访，他说：“我们在多米尼投票机上，存在非常非常严重的外国影响。”
+弗林将军指出，每个人都应访问悉尼·鲍威尔（Sidney Powell）的网站DefendingtheRepublic.org，以获取更多信息。
+他补充说：“我们现在就有确凿的外国影响美国大选的证据。”
 
-更不用说暗藏阴谋的钓鱼信息了。无数想要觉醒的人，抱着绝望的心情，在钓鱼群和无数五毛的鼓动下，冲塔、直播、自爆，将自己化为壮丽的烟花。五毛和走狗们，在暗处窃笑，又一批的麻烦被消灭了。
+**原文链接：**[https://www.thegatewaypundit.com/2020/12/huge-serious-serious-foreign-influence-dominion-voting-machines-general-flynn-says-conclusive-evidence-foreign-influence-us-election-right-now/](https://www.thegatewaypundit.com/2020/12/huge-serious-serious-foreign-influence-dominion-voting-machines-general-flynn-says-conclusive-evidence-foreign-influence-us-election-right-now/)
 
-相比不断被打脸的傻逼媒体，路德社最初对于羟氯喹和黄金的分析真是如清风一般。由于之前丁香园的讨论，我知道了ADE，路德社也同样提到了ADE。而中共国政府应对中共病毒的做法，特别是在WHO的荒谬操作下一定会造成大流行。我还曾经在国内论坛甚至留言说这种操作会让中国盟国受害，唉，天真如我。路德社还提到黄金作为避险资产一定会上涨，再加上羟氯喹与国内信息的互相验证，特别是药理分析和验证，让我更加确定了路德社消息的真实性。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/18075158/Portada-Dominion-ccp-1.jpeg)
 
-回想起来，最初翻墙的时候，我还天真地相信着兼听则明。但是看到一些加入的聊天群中有人直言这个群里全是五毛，甚感唏嘘。现在想来，待在鱼龙混杂的信息陷阱里还迷信兼听则明，自己真是太天真了。
-[!\[\]()!\[\](https://spark.adobe.com/page/Ml2giV5UBCFFz/images/f5b53511-6677-4b6d-8769-4bc79889db67.jpg?asset_id=d68fa8bc-55f4-4af4-b35e-d6bfeab53c36&amp;img_etag=%2283d4a48d1009c3f12a7a7420378e92d1%22&amp;size=1024)](https://spark.adobe.com/page/Ml2giV5UBCFFz/images/f5b53511-6677-4b6d-8769-4bc79889db67.jpg?asset_id=d68fa8bc-55f4-4af4-b35e-d6bfeab53c36&amp;img_etag=%2283d4a48d1009c3f12a7a7420378e92d1%22&amp;size=1024)
-墙内的同胞明事理，有人性，有着强大的判断分析能力。只是因为恐惧，害怕翻墙被抓，并抱有自尊，觉得墙外的观点对中国人都带有偏见和歧视。若能换位思考，晓之以理，动之以情，一切事情都可以靠逻辑解决。我们一定要让他们自主思考，抵达真相，这样才能真正地去除心霾，唤醒同胞。就像路德社很多观点一样，证据充分，逻辑通顺，不是通过权威性而是通过事实的真实性让战友们团结和相信。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
-走在因投毒造成虚假疫情而封锁的校园内，看到一无所知的学生们还在喂着流浪猫。我不禁隐隐落泪，这是一个多么可怜的民族，也多么值得战友们努力拯救！去买菜时，我看见了有着同样理想的兄弟们，已经在纸币上印出了“瘟疫为灭中共来”。他们也尽力了。
-
-在爆料革命的学校中，我还是小学生，很多内容我仍然不是很懂。但我知道，我开始接触真相，开始以不一样的眼光看待世界，并能够用一点一滴的努力践行我的理想。
-
-感恩有你，爆料革命！
-
-【文章仅代表作者观点】
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团[-点击spark adobe版](https://spark.adobe.com/page/Ml2giV5UBCFFz/)
-[!\[\]()!\[\](https://spark.adobe.com/page/Ml2giV5UBCFFz/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/Ml2giV5UBCFFz/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

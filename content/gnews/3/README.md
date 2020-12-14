@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/8/2020 美国参议院关于羟氯喹的听证会, 终于有医疗界专家站出来说一点点真话了, 支持羟氯喹, 支持居家治疗
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/646298/)
+## 2020年12月13日CCP冠状病毒大流行第323集
+` GM30` [轉載自GNews](https://gnews.org/zh-hans/646300/)
 
-By: 【秘密翻译组G-Translators】
+川普发推谴责大选舞弊与媒体的虚假报道；齐鲁银行信用减损严重，员工降薪高管涨薪；“暴涨”的新农合，农民家庭承受不起；德州男子上访申诉遭抓捕……
 
 0
