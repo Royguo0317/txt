@@ -1,59 +1,92 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国前国家情报总监：中共深入渗透美国
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/648888/)
+## 《路德社》每日简报晚间版 2020.12.12&#8211;NewYork Time
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/646724/)
 
-*新闻来源：newsmax; 作者：Eric Mack; 发布时间：2020年12月10日*
+出品《路德社》 编辑：路德社精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13234518/1212-PM-ZH-scaled.jpg)
+撰稿：文宝Porsche   译校：Arvin江牧
 
-*翻译/简评：Victory；校对：感恩；审核：万人往；PAGE：玄天生*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14091159/BGY.jpg)
-#### **简评：**
+翻译统筹：阿轩Action
 
-本文讲的正是郭文贵先生3年前就开始揭露的中共对美国和世界的“蓝金黄”渗透。当时绝大多数人都会觉得危言耸听，随着爆料革命的逐步深入，所有的“蓝金黄”渗透都被一一验证。现在美国媒体也开始报道中共间谍对美国渗透已经非常深入和广泛。
+1212晚间要闻-NewYork Time
 
-与本文呼应的案例之一，翟东升说中共在美国上面有人的视频已在美国政界引起巨大反响。此外，方芳色诱美国政客的新闻也被媒体大篇幅报道。美国媒体开始向公众揭露中共“蓝金黄”手段。这也是美国对中共出重拳之前的必要民意铺垫之一。
+**LuDe Media 20201212 Evening News, New York Time**
 
-#### 原文翻译
+**国家情报总监将在****18****日前报告大选评估信息**
 
-## （前国家情报总监）里克·格伦内尔（Ric Grenell）告诉Newsmax电视台：中共国对美国的间谍活动 “极度深入”
+**Director of National Intelligence to Report Election Assessment by Dec. 18**
 
-根据前国家情报局代理局长里克·格伦内尔（Ric Grenell）在Newsmax TV上的说法，国会中的民主党人妥协于中共国的渗透，特别是那些与情报委员会有关的人，如加州民主党众议员埃里克·史瓦维尔（Eric Swalwell）。
+根据2018年9月12日通过的《在外国干预美国大选时实施某些制裁的行政令》，国家情报总监必须在大选投票结束后的45天之内（即18日前）对任何外国政府或其代理人干预大选的意图、行为等信息进行评估，并报告给总统、国务卿、财政部、国防部长、司法部长和国土安全部长。
 
-“他们已经渗透到学术界以及政界，需要做些什么了”格伦内尔在周四的 “斯丁克菲尔德 ”节目中表示，他呼吁在保密环境下调查众议院和参议院情报委员会的中共国间谍活动。
+司法部长和国土安全部长在收到评估信息后与相关部门机构负责人商讨，然后向总统、国务卿、财政部长和国防部长提交关于“外国干预大选对基础设施安全性、对投票和选举结果的影响”的评估报告。
 
-“这是极深的，这不是唯一的案例。我可以向你保证，有很多国会议员、民主党的州长和地方官员都被中共盯上了，中共已加以利用。”
+Under the Executive Order Implementing Certain Sanctions in the Event of Foreign Interference in U.S. Elections, adopted on September 12, 2018, the Director of National Intelligence must evaluate and report to the President, the Secretary of State, the Treasury Department, the Secretary of Defense, the Attorney General, and the Secretary of Homeland Security, within 45 days of the close of voting in the general election (i.e., by Dec. 18), information on the intents, conducts, etc., of any foreign government or its agents to interfere the general election.
 
-在全球新冠病毒大流行的情况下，大规模外国间谍活动影响力 “有所回升”，格伦内尔向主持人格兰特·斯丁克菲尔德补充道。
+After receiving the assessment information, the Attorney General and the Secretary of Homeland Security will consult with the heads of the relevant agencies, and then submit an assessment of “the impact of foreign interference in the election on infrastructure security, voting, and election outcomes” to the President, the Secretary of State, the Secretary of the Treasury, and the Secretary of Defense.
 
-“因为情报部门明确表示新冠病毒始于中共国，中共已经知道自己名声狼藉。”
+**行政命令和大选评估报告将自动引爆灭共核弹**
 
-“所以，我们正在面对危机。”
+**Executive Order and Election Assessment Report Will Automatically Detonate Nukes to Exterminate the CCP**
 
-美国总统唐纳德·川普的现任国家情报局约翰·拉特克利夫（John Ratcliffe）警告国会，在民主党人推动俄罗斯勾结的说法试图抹黑总统之后，中共国大规模干预。
+行政命令将评估对象限于外国干预大选的情况，避免两党之争和国家分裂。总统无权干预整个评估流程，避免被扣上“政治偏见”的帽子。
 
-“首先，我可以向你保证，我知道一个事实，许多人已经成为目标并且得到了防卫性简报”，格伦内尔说。“现在，我们应该解释一下什么是防御性简报。”
+情报总监由总统直接领导，下辖16个情报部门和4个任务单元，不可能全部被中共蓝金黄。任何机构和个人如果发现有干预美国大选的信息，也可以单独向总统报告。
 
-“当情报部门知道并感觉到一个政客或者美国的任何个人被外国政府盯上了并被利用了，那么我们就会介入，并向他们通报我们所知道的情况，因为他们并不总是知道发生了什么。”
+该行政令借助2年前民主党捏造的通俄门事件得以顺利发布，已经整合到各部门工作流程中2年多，执行无阻力。
 
-据格伦内尔说，众议院议长南希·佩洛西(Nancy Pelosi，加州民主党)在周四的新闻发布会上驳斥了这一说法后，她正在“模糊”并“错过重点”。
+行政令把情报信息变成了直接制裁的行动，避免了冗长的法律程序。该制裁行动避开受外交豁免权保护的中共政府，直接针对盗国贼家族及其白手套实际藏匿资产的组织和个人采取行动。
 
-“用来针对美国政客和美国人员的中共国官员是他们拥有的一些最老练的中共国间谍”，格雷内尔说。“他们必须能说英语，必须知道美国的方式，但他们也必须对中共文化和政治有很深的了解。”
+正式报告一旦递交，直接或间接从事干预美国大选的个人、机构和其代理人在美国境内拥有或控制的资产将被自动查封，不得转让、支付、出口、撤回或其他方式处理。
 
-“所以他们在最高层得到了利用。”
+The executive order limits the assessment to foreign interference in the election to avoid bipartisan strife and national division. The President has no authority to intervene in the entire assessment process to avoid being labelled as “politically biased”.
 
-格伦内尔在联合国工作了8年，曾任川普政府驻德国大使，他补充说，中共国间谍也潜伏在世界各地。
+The Director of Intelligence is under the direct supervision of the President, with 16 intelligence departments and 4 mission units, which are unlikely all to be Blue-Gold-Yellowed by the Chinese Communist Party. Any agency or individual who discovers information about interference in the U.S. election can also report it separately to the president. The executive order, which was issued smoothly with the help of the Russia-gate affair fabricated by the Democratic Party 2 years ago, has been integrated into the departments’ workflow for more than 2 years and has been executed without resistance.
 
-“他们非常优秀，我们必须做得更好”，格伦内尔总结道。“我们的美国情报机构必须始终比其他所有针对我们人民的外国政府先行一步。”
+The executive order turns intelligence information into a direct sanctions action, avoiding a lengthy legal process. The sanctions action bypasses the Chinese Communist government, which is protected by diplomatic immunity, and directly targets organizations and individuals whose assets are actually hidden by the kleptocrats family and their white-gloves (assets agents).
 
-[原文链接](https://www.newsmax.com/politics/ricgrenell-espionage-spies-compromised/2020/12/10/id/1001023/)
+Once the official report is filed, assets owned or controlled in the United States by individuals, institutions, and their agents, who directly or indirectly engaged in interference with the U.S. election, will be automatically seized and may not be transferred, paid, exported, withdrawn, or otherwise disposed of.
 
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+**林伍德再发重磅檄文讨伐中共**
 
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+**Lin Wood Issued Another Heavyweight Diatribe Against the CCP**
 
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
+他发推说，美国爱国者们做好准备，听川普总统的，行动将在接下来几天迅速展开，中共享生物武器袭击了我们的国家，又再次（网络）攻击我们以窃取选举，我们绝不能接受。川普接着发推回应，我们刚刚开始战斗。
 
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/R3msEx8yms4xq/)
-[!\[\]()!\[\](https://spark.adobe.com/page/R3msEx8yms4xq/images/1eaee80a-b8d0-4fd0-9ea9-5c8ba5ef0172.jpg?asset_id=e41653a2-ea7a-40ed-95b6-125ff03b022b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/R3msEx8yms4xq/images/1eaee80a-b8d0-4fd0-9ea9-5c8ba5ef0172.jpg?asset_id=e41653a2-ea7a-40ed-95b6-125ff03b022b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+He tweeted, “American patriots get ready, listen to President Trump, the action will start quickly in the next few days, the Chinese Communist Party attacked our country with bio-weapons, and again (cyber) attacked us to steal the election, we must not accept. ” Trump then tweeted in response, “We have just begun the fight. “
+
+**华盛顿举行挺川大游行**
+
+**March for Trump held in Washington**
+
+弗林将军在游行现场发表演讲时，川普总统乘坐的空军一号从天空飞过，民众纷纷向飞机挥手致意。
+
+As General Flynn addressed at the parade, the Air Force One in which President Trump was riding flew through the sky and the crowd waved to the plane.
+
+**被中共间谍方芳渗透的****Eric Swalwell****将被调查**
+
+**Eric Swalwell, Infiltrated by Chinese Communist Spy Fangfang, to be Investigated**
+
+共和党众议员Jim Sensenbrenner，12月11日向众议院道德委员会提交一份投诉，敦促该委员会立即调查有关Eric Swalwell疑遭中共间谍渗透的指控。
+
+Republican Rep. Jim Sensenbrenner, filed a complaint Dec. 11 to the House Ethics Committee, urging the committee to immediately investigate allegations that Eric Swalwell was suspected of being infiltrated by Chinese Communist spy.
+
+**俄罗斯核潜艇同时发射****4****枚弹道导弹**
+
+**Russian Nuclear Submarine Launches Four Ballistic Missiles Simultaneously**
+
+这4枚由部署在太平洋的北风之神级核潜艇“弗拉基米尔.诺莫马赫”号发射的“布拉瓦”导弹，从靠近美阿拉斯加的太平洋海域发射，命中靠近挪威的卡林半岛的预定目标。俄罗斯北海舰队有1艘、太平洋舰队有2艘的北风之神级核潜艇，每枚布拉瓦导弹可携带10枚核弹头。
+
+The four “Bulava” missiles, mounted on the Vladimir Nomomakh, a Dolgorukiy-class
+
+nuclear submarine deployed in the Pacific Ocean, launched from the Pacific Ocean near Alaska, hit their intended targets on the Carlin Peninsula near Norway. The Dolgorukiy-class nuclear submarines, on which “Bulava” missiles mounted and each missile can carry 10 nuclear warheads, one owned by the Russian North Sea Fleet and two by the Russian Pacific Fleet.
+
+#CCP\_is\_terrorist   #TakeDownTheCCP
+
+文案：《路德社》简报组：文寶Porsche；
+翻译：《路德社》翻译组
+审核校对：玫瑰天空
+上传排版：青葫芦娃
+
 0
