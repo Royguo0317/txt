@@ -1,18 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欢声笑语闹革命！
-` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/648877/)
+## 【世界多语言图文】2020/12/03-4 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/648325/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14090148/%E6%AC%A2%E5%A3%B0%E7%AC%91%E8%AF%AD%E9%97%B9%E9%9D%A9%E5%91%BD.png)
-作者：京都富士会   神的带领
+战友之家图文摘要及多语组
 
-校对：京都富士会   待命（文晓）
+[313-314\_English\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011203/313-314_English_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011203/313-314_English_CCP_Virus_Updates.pdf)
 
-这一场推翻共产党的革命，进行得如火如荼。起初，战友们都很着急，每天经历着共匪的暴行，经历着惊魂动魄的生死考验，经历着共匪蓝金黄背后的力量，经历着亲人被当要挟的靶子，经历着病毒的危险。战友们每天都在不安中度过，恨不得下一秒就把共产党消灭掉。
+[313-314\_French\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011202/313-314_French_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011202/313-314_French_CCP_Virus_Updates.pdf)
 
-随着时间的推移，共产党还在疯狂，但我们都知道已经进入黎明前的黑暗。想着共匪灭亡的一刻，都能把自己从梦中笑醒。是的，灭共是我们的使命，也是最快乐的事情。
+[313-314\_German\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011202/313-314_German_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011202/313-314_German_CCP_Virus_Updates.pdf)
 
-刚刚看战友发来富士会的灭共、宣传病毒真相游行的视频。他（她）们笑着、跳着、挥舞着双手，唱着“Take  down  the  ccp……”那一刻，我们都沸腾了。禁不住跟着跳，跟着唱Take  down  the  ccp…… 这，就是我们跟着七哥快乐的灭共潮，这般潮如滔滔江水，如海啸般呼啸而来！
+[313-314\_Japanese\_CCP\_Virus\_Updates-](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011202/313-314_Japanese_CCP_Virus_Updates-.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011202/313-314_Japanese_CCP_Virus_Updates-.pdf)
+
+[313-314\_Spanish\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011200/313-314_Spanish_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011200/313-314_Spanish_CCP_Virus_Updates.pdf)
 
 0

@@ -1,29 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】末法时期，佛陀还在&#8212;送给战友们
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/648538/)
+## 2020年12月7日【大卫作战室观点】
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/646325/)
 
-作者：香草山写作组 程万里
+[!\[\]()!\[\](https://spark.adobe.com/page/qjEcfOE9kCcdG/images/01d25a7c-11ea-4ea5-8526-6d97e702df9b.jpg?asset_id=d4a3ab17-69d1-4098-92e9-b52fa689ae99&amp;img_etag=%22ee30c1aa3aecdb61d55343d323d5192c%22&amp;size=2560)](https://spark.adobe.com/page/qjEcfOE9kCcdG/images/01d25a7c-11ea-4ea5-8526-6d97e702df9b.jpg?asset_id=d4a3ab17-69d1-4098-92e9-b52fa689ae99&amp;img_etag=%22ee30c1aa3aecdb61d55343d323d5192c%22&amp;size=1024)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
+## *大卫作战室 GTV UK 首秀，强势归来：中共的疫苗战究竟有多邪恶， 美英制裁中国企业，关系不可修复；美国制裁人大副委员长，制裁力度陡然升级；中国高校的毕业生要重新上山下乡？*
 
+主播：大卫、 Mary 、 Castle 、 文诚、Stella
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14081102/MOS0734-%E3%80%90%E4%B8%96%E4%BA%8B%E8%A7%A3%E8%AF%84%E3%80%91%E6%9C%AB%E6%B3%95%E6%97%B6%E6%9C%9F%EF%BC%8C%E4%BD%9B%E9%99%80%E8%BF%98%E5%9C%A8-%E9%80%81%E7%BB%99%E6%88%98%E5%8F%8B%E4%BB%AC.jpeg)图片来源：https://www.pexels.com/
-这几天多家媒体报道了关于195万中共党员的泄露名单：195万共产党员被指划分为79000多个党支部，其中许多分支隶属于公司或机构。如美英等驻华机构、国防、化工、银行、航空航天、生物制药等领域，这其中包括英国汇丰银行、渣打银行、辉瑞、阿斯特捷利康公司、空中巴士、波音、劳斯莱斯等等。据说195万的名单早就被曝光过，现在又被重提，极有可能是西方对中共的大清洗要开始了，省的一刀切了，这也许对海外中国人是一个好消息。
-
-中共靠渗透起家，根据中共《党章》  第三十条：企业、农村、机关、学校、科研院所、街道社区、社会组织、人民解放军连队和其他基层单位，凡是有正式党员三人以上的，都应当成立党的基层组织。墙内各行各业早就被中共渗透，没想到国外的重要组织和机构也早被渗透。
-
-可能很多战友都听过这个故事，魔罗对佛陀道：“到你末法时期，我的徒子徒孙就会混入你的僧宝内，穿你的袈裟，破坏你的佛法，曲解你的经典，破坏你的戒律”。 佛陀听了魔罗的话，久久无语，两行热泪缓缓流了下来。末法真相的故事不正是现在所发生的吗？中共早已渗透到了西方的方方面面，占其庙堂，乱其朝纲，毁其法治，现在世界早已经到了末法时期。不过这个故事还有后半段，佛陀回答说：那你也奈何不了我，那时我真正的弟子将脱掉袈裟，穿起便衣，到世间去。那时红尘将变成庙宇，庙宇将成你徒子徒孙的监狱。
-
-两千五百年过去了的末法今天，世间多佛法，便衣佛陀在。佛陀早已化身为平凡和普通，或许就在你身边，静观这世界，传递着佛法，你见过便衣佛陀吗？见过！就是像郭文贵先生这样的无数的战友们。我们早已开了天眼，已是那便衣佛陀，我们早就脱去了袈裟，穿起了便衣，成了爆料革命的一员，我们是有使命的：拯救我们自己，拯救我们身边的人，拯救我们的国家，拯救全世界。
+制作：乐禧禧 、小鱼；PR:CharlesS；Page:
 
 
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+[👉GTV精彩回看链接](https://gtv.org/video/id=5fcecdf6ee9d341c2b4af2eb)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+## *全世界推广强制接种，中共的疫苗战究竟有多邪恶*
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
+
+- 大选没结束，病毒疫苗情况接踵而至，全世界政客和医疗公司都欲推广中共疫苗，各国政府以疫苗来恢复信心和经济。把中共国的监控技术跟疫苗结合，可以监控个人情况和信息。
+- 用疫苗测试来收集不同民族DNA，章家敦讲中共收集DNA去发展对某一种族的生物武器。
+- 一条线：美国的科技企业和资金跟中共病毒有关联，如NIH、福奇研究所、比尔盖茨基金。
+- 另一条线：“谁能把毒解了”谁有话语权。实际都是套路，都是为了攻击美国、攻击全世界做准备。
+- 疫苗能治病这个逻辑会让人们陷入很被动。
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/qjEcfOE9kCcdG/images/f069fc0c-d860-43fd-be6d-398798f97087.jpg?asset_id=68176396-4cd4-444f-9892-db8bea30c232&amp;img_etag=%22f43fd924d2ec9c722e23701f6633a2d4%22&amp;size=1024)](https://spark.adobe.com/page/qjEcfOE9kCcdG/images/f069fc0c-d860-43fd-be6d-398798f97087.jpg?asset_id=68176396-4cd4-444f-9892-db8bea30c232&amp;img_etag=%22f43fd924d2ec9c722e23701f6633a2d4%22&amp;size=1024)
+
+## 美英制裁中共国企业，关系不可能修复
+
+
+
+- 英国富时罗素指数删除美黑名单内八家中共公司股票，证明共产党的经济不可能回到从前。
+- 假如罗素基金继续投资被制裁中共军企，罗素指数也可能被制裁，直接除名，对中共国的资本加入是一个巨大的打击。
+- 中共国股票有非常大的危险性，及割韭菜性质。美国逐渐对中共股市切断血管，未来中共金融系统会遭到非常大的打击。
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/qjEcfOE9kCcdG/images/f250ee4c-1a93-4039-a69f-84a3bb415fa3.jpg?asset_id=84024b4f-1adc-452b-b760-02ded619a354&amp;img_etag=%2271ea92887151a859ee83c9e3b05968c4%22&amp;size=1024)](https://spark.adobe.com/page/qjEcfOE9kCcdG/images/f250ee4c-1a93-4039-a69f-84a3bb415fa3.jpg?asset_id=84024b4f-1adc-452b-b760-02ded619a354&amp;img_etag=%2271ea92887151a859ee83c9e3b05968c4%22&amp;size=1024)
+
+## 美国制裁中共副委员长，制裁力度徒然升高
+
+
+
+- 共产党的钱有多少来自美国。它超限战的危险性来自用军民融合窃取经济和科技，以及外交情报。冻结他们在美资产，禁止入境美国非常重要。
+- 共产党到了最后的阶段，党内官员心态发生变化。有畏罪心理，恐惧心理，他们都知道自己做了什么
+- 这次制裁给9千万党员不同层级的施压，制裁关键那几个人。不同层级施压促进觉醒，离间之术，是战略战术。心理暗示，有些人就可能戴罪立功。在灭共的最后关头倒戈一击。
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/qjEcfOE9kCcdG/images/c9bbd9d7-4a6f-4a5b-a9e3-a7d7e9aee855.jpg?asset_id=0b7d8e2c-9d0e-46b1-a1d5-3ec29e992bfe&amp;img_etag=%2283c2666ce995e18a8bd5fb3c991a1a99%22&amp;size=1024)](https://spark.adobe.com/page/qjEcfOE9kCcdG/images/c9bbd9d7-4a6f-4a5b-a9e3-a7d7e9aee855.jpg?asset_id=0b7d8e2c-9d0e-46b1-a1d5-3ec29e992bfe&amp;img_etag=%2283c2666ce995e18a8bd5fb3c991a1a99%22&amp;size=1024)
+
+**[👉点击关注大卫作战室Parler](https://parler.com/profile/David008/posts)**
+
+[**👉点击关注英喜庄园文宣电台**](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[**👉点击观看英喜庄园在G-TV的精彩视频**](https://gtv.org/user/5ee680a45bd6f123dd104807)
+
+编辑【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/qjEcfOE9kCcdG/)
+[!\[\]()!\[\](https://spark.adobe.com/page/qjEcfOE9kCcdG/images/b8ef29af-f45e-42c2-b1ad-e74d612af605.jpg?asset_id=3ffc2570-5006-4847-8876-1ad2ff1c72d5&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=1024)](https://spark.adobe.com/page/qjEcfOE9kCcdG/images/b8ef29af-f45e-42c2-b1ad-e74d612af605.jpg?asset_id=3ffc2570-5006-4847-8876-1ad2ff1c72d5&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=1024)
 0
