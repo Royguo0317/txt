@@ -1,30 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 对“恶搞”耶稣诞生场景的个人观点
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/649957/)
+## 报告显示，多米尼投票系统在密歇根州安特里姆县的错误率为68%
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/650091/)
 
-```
-作者: 阿娜
-校对/发稿人: Ting Guo
-```
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14141353/IMG_3265.jpg)图片来源: 维基百科
-在基督教的传统中，耶稣降生的场景（也称为马槽场景，在意大利presepio或presepe中）是艺术品的特别展览，特别是在圣诞节期间代表耶稣的诞生。耶稣降生的场景展示了代表婴儿耶稣，他的母亲玛丽和她的丈夫约瑟夫的人物。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14141608/IMG_3268.jpg)&lt;星球大战&gt;中的虚构人物![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14141625/IMG_3257.jpg)图片来源: Twitter
-上周五晚上，梵蒂冈在圣彼得广场揭幕了其官方的耶稣诞生场景，其中描绘了一名宇航员和另一位戴着达斯·维达（Darth Vader）风格头盔的人物来敬拜基督孩子。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14141928/IMG_3259.jpg)图片来源: Twitter
-据“美国杂志”报道：艺术史学家伊丽莎白·列夫（Elizabeth Lev）在罗马生活了20多年。她说，意大利有一种急于看新艺术品并发表意见的传统，就像昨天在推特上发生的那样。列夫女士在推特上发布了一张宇航员和“达斯·维达”角色的照片，标题是：“因此，梵蒂冈的秘密已经揭幕……事实证明2020年可能会更糟……” 根据英文的翻译是这样的意思。而“ Presepe ”是意大利语术语耶稣降生的场景；它来自拉丁语manger。我理解的是这位艺术家也是不赞同这次展览是在“恶搞”耶稣诞生场景。
-
-从这位列夫艺术家推特下面的留言就可以看出来很多人都是不赞同这样的”恶搞“展览：背后的东西看起来像是邪恶的存在-实际上使整个场景充满异端。邪恶不能与神圣物品存在于同一空间。难以置信…只有弗兰克和他的“ Minny-Me’s”可以找到创建异端耶稣诞生场景的方法。一个深信天主教的人怎么会制造出这样的怪物？显然，这并不是由任何理智的人虔诚地创造出来的。列夫女士说，今年的场面有可能通过挑起有关展示的争论来掩盖团结人民的根本目的。列夫女士说：“在经历了非常艰难的一年之后，让人们武装起来并不是最好的决定，圣诞节重点是为了要团结大家，我恐怕[这次展览]的结果是分裂而不是团结。” “天主教会有著令人难以置信的美丽传统，然而，经过一年的艰辛，我们提出了使人们嘲笑耶稣的东西。” 也有人说出“你不能因为’天主教徒的规则‘ 因为它很奇怪，就不喜欢这个耶稣诞生场景。”有人留言“这就是我的感受，很可怕”。
-
-我的观点是因为西方的基督信仰真的是到了危机的时刻，就连天主教的中心梵蒂冈都是“丑闻”不断，也难怪世俗生活中的一个展览可以“搞怪”耶稣诞生的场景。这是宗教体系出了问题，西方的社会、文化环境产生了问题，进而影响了人们的宗教信仰概念和传统观念。我觉得这是否是现代艺术的一种展示方式并不重要，重要的是真正的宗教、信仰价值观念的缺失，这才是可怕的。
-
-**本文章仅代表个人观点，不涉及任何宗教派别，仅供参考。**
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09040658/image0.png-13-1280x720.jpeg)***[https://discord.gg/77fCxw5mFv](https://discord.gg/77fCxw5mFv)***
-*[**https://**](https://https://discord.gg/77fCxw5mFv)[**gab.com/himalaya\_italy**](https://gab.com/himalaya_italy)*
+- 编辑：Victor Torres
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+**西班牙2020年12月13日电/西喜社——**据just the news周一报道，美国密歇根州法官当天允许发布一份报告，该报告发现多米尼投票系统设计的程序存在故意的系统性错误，而且这些错误是为了影响选举结果。
+创建该报告的分析者Allied Security Operations Group公布了其对密歇根州安特里姆县选举的取证结果。
+“我们的结论是，多米尼投票系统是故意和有目的地设计了固有的错误，以制造系统性的欺诈和影响选举结果，”报告中写道。”该系统故意产生大量的选票错误。然后将电子选票转为裁决。”
+这份鉴证报告是针对安特里姆县居民威廉•贝利的诉讼而编写的，他指控投票机存在问题。
+这份鉴证报告在周一之前一直处于密封状态，报告验证了贝利的说法。
+“故意的错误导致选票的批量裁决，没有监督，没有透明度，没有审计线索，”报告写道。 “这导致了选民或选举舞弊。根据我们的研究，我们的结论是，多米尼投票系统不应该在密歇根州使用。我们进一步得出结论，安特里姆县的结果不应该被认证。”
+审计发现选票表格的错误率异常高。
+“联邦选举委员会准则规定的允许选举错误率是25万张选票中的1张（0.0008%），”报告称：”我们观察到的错误率为68.05%。这表明在安全和选举诚信方面存在重大和致命的错误。”
+
+**原文链接：**[https://justthenews.com/politics-policy/elections/judge-orders-release-report-says-dominion-systems-are-designed-throw](https://justthenews.com/politics-policy/elections/judge-orders-release-report-says-dominion-systems-are-designed-throw)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/18075158/Portada-Dominion-ccp-1.jpeg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0
