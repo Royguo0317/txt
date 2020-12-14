@@ -1,59 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国前国家情报总监：中共深入渗透美国
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/648888/)
+## 《路德社》精选主题专栏：鲁·道布斯发推声称2020年选举为“网络珍珠港事件”
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/646351/)
 
-*新闻来源：newsmax; 作者：Eric Mack; 发布时间：2020年12月10日*
+《路德社》精选主题专栏组出品
 
-*翻译/简评：Victory；校对：感恩；审核：万人往；PAGE：玄天生*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14091159/BGY.jpg)
-#### **简评：**
+12月11日，美国福克斯（FOX）电视台著名节目主持人鲁·道布斯发送推文，声称：2020年选举是“网络珍珠港”事件，左翼机构已经联合起来推翻美国政府。
 
-本文讲的正是郭文贵先生3年前就开始揭露的中共对美国和世界的“蓝金黄”渗透。当时绝大多数人都会觉得危言耸听，随着爆料革命的逐步深入，所有的“蓝金黄”渗透都被一一验证。现在美国媒体也开始报道中共间谍对美国渗透已经非常深入和广泛。
 
-与本文呼应的案例之一，翟东升说中共在美国上面有人的视频已在美国政界引起巨大反响。此外，方芳色诱美国政客的新闻也被媒体大篇幅报道。美国媒体开始向公众揭露中共“蓝金黄”手段。这也是美国对中共出重拳之前的必要民意铺垫之一。
 
-#### 原文翻译
+> The 2020 Election is a cyber Pearl Harbor:
+> 
+> The leftwing establishment have aligned their forces to overthrow the United States government [#MAGA](https://twitter.com/hashtag/MAGA?src=hash&amp;ref_src=twsrc%5Etfw) [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw) [#Dobbs](https://twitter.com/hashtag/Dobbs?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/v1hOAPMqGY](https://t.co/v1hOAPMqGY)
+> — Lou Dobbs (@LouDobbs) [December 10, 2020](https://twitter.com/LouDobbs/status/1337154346795012098?ref_src=twsrc%5Etfw)
 
-## （前国家情报总监）里克·格伦内尔（Ric Grenell）告诉Newsmax电视台：中共国对美国的间谍活动 “极度深入”
 
-根据前国家情报局代理局长里克·格伦内尔（Ric Grenell）在Newsmax TV上的说法，国会中的民主党人妥协于中共国的渗透，特别是那些与情报委员会有关的人，如加州民主党众议员埃里克·史瓦维尔（Eric Swalwell）。
 
-“他们已经渗透到学术界以及政界，需要做些什么了”格伦内尔在周四的 “斯丁克菲尔德 ”节目中表示，他呼吁在保密环境下调查众议院和参议院情报委员会的中共国间谍活动。
+伴随推文的还有一份文件截屏，其中提到了四位人物：政治领袖豪尔赫·罗德里格斯（Jorge Rodriguez），委内瑞拉通讯社的部长；政治领袖哈利勒·马吉德·马祖布（Khalil Majid Mazoub），黎巴嫩裔的委内瑞拉人；技术专家古斯塔沃·雷耶斯·祖梅塔（Gustavo Reyes Zumeta），美籍委内瑞拉人；首席执行官安东尼奥·穆吉卡（Antonio Mujica）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13200452/ddd.jpg)
+“……这四人和他们的同伙计划实施了针对美国的9-11式的选举，同伙包含媒体、民主党和中国。这是一个网络珍珠港事件。……”
 
-“这是极深的，这不是唯一的案例。我可以向你保证，有很多国会议员、民主党的州长和地方官员都被中共盯上了，中共已加以利用。”
+“……我们有Dominion（系统）的身份，角色和背景。Smartmatic（公司）的人。这将变成大量的RICO备案。……“
 
-在全球新冠病毒大流行的情况下，大规模外国间谍活动影响力 “有所回升”，格伦内尔向主持人格兰特·斯丁克菲尔德补充道。
+“……古巴、委内瑞拉与乔治·索罗斯，中国共产党，民主党和美国媒体违反了美国人民的意愿。……”
 
-“因为情报部门明确表示新冠病毒始于中共国，中共已经知道自己名声狼藉。”
+“……我们已经发现了中国在选举前四个星期就向Dominion注入了4亿美元的投资。……”
 
-“所以，我们正在面对危机。”
+“……我们拥有的系统显示了如何通过互联网从外部来控制（投票）机器，（这种行为）违反投票标准，联邦法律，州法律和合同。……”
 
-美国总统唐纳德·川普的现任国家情报局约翰·拉特克利夫（John Ratcliffe）警告国会，在民主党人推动俄罗斯勾结的说法试图抹黑总统之后，中共国大规模干预。
+文中如是说。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13200620/333.gif)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13200632/555.jpg)
+这份文件无疑又是一记重锤砸向了选举舞弊案之后的利益集团。同时，我们也看到随着2020年美国总统大选舞弊案件的持续发酵，美国各个部门也紧锣密鼓地通过各自情报网收集相关地舞弊证据，一场由此而生地情报大战已经悄无声息地拉开了帷幕。
 
-“首先，我可以向你保证，我知道一个事实，许多人已经成为目标并且得到了防卫性简报”，格伦内尔说。“现在，我们应该解释一下什么是防御性简报。”
+通过近期“路德时评”节目我们了解到美国地情报部门不仅有CIA（中央情报局），还有隶属于不同部门的其他15个组织（如图），他们分别有各自的情报来源，这样不仅可以使他们相互协调、相互验证情报的真实性，同时也避免了其中任何一个部门被渗透之后而造成的整个情报机构的瘫痪，这就是为何中共在“蓝、金、黄”美国的CIA之后而并没有造成美国整个情报系统失效的真正原因。
 
-“当情报部门知道并感觉到一个政客或者美国的任何个人被外国政府盯上了并被利用了，那么我们就会介入，并向他们通报我们所知道的情况，因为他们并不总是知道发生了什么。”
+#文章仅代表作者个人观点#
 
-据格伦内尔说，众议院议长南希·佩洛西(Nancy Pelosi，加州民主党)在周四的新闻发布会上驳斥了这一说法后，她正在“模糊”并“错过重点”。
+本文作者：灭共文翰
+审核校对：玫瑰天空
+上传排版：糖果儿
 
-“用来针对美国政客和美国人员的中共国官员是他们拥有的一些最老练的中共国间谍”，格雷内尔说。“他们必须能说英语，必须知道美国的方式，但他们也必须对中共文化和政治有很深的了解。”
-
-“所以他们在最高层得到了利用。”
-
-格伦内尔在联合国工作了8年，曾任川普政府驻德国大使，他补充说，中共国间谍也潜伏在世界各地。
-
-“他们非常优秀，我们必须做得更好”，格伦内尔总结道。“我们的美国情报机构必须始终比其他所有针对我们人民的外国政府先行一步。”
-
-[原文链接](https://www.newsmax.com/politics/ricgrenell-espionage-spies-compromised/2020/12/10/id/1001023/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/R3msEx8yms4xq/)
-[!\[\]()!\[\](https://spark.adobe.com/page/R3msEx8yms4xq/images/1eaee80a-b8d0-4fd0-9ea9-5c8ba5ef0172.jpg?asset_id=e41653a2-ea7a-40ed-95b6-125ff03b022b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/R3msEx8yms4xq/images/1eaee80a-b8d0-4fd0-9ea9-5c8ba5ef0172.jpg?asset_id=e41653a2-ea7a-40ed-95b6-125ff03b022b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

@@ -1,45 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福建小女孩无人照顾，一条小狗陪伴，一日三餐只吃白米饭
-` XMLYG777` [轉載自GNews](https://gnews.org/zh-hans/649735/)
+## 财经普及关键词：CPI
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/649801/)
 
-内新闻/素材：霹雳鼠年  校对：七哩香
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14124442/capture-112.jpg)图片来源： [therealnews.com](https://therealnews.com/overall-and-core-cpi-up-0-1-percent-in-may-overall-index-up-1-8-percent-over-last-year)
+CPI，消费价格指数，是反映居民家庭一般所购买的消费商品和服务价格水平变动情况的经济指标，CPI是衡量通货膨胀的主要指标之一。一般定义为超过3%为通货膨胀，超过5%就是严重通货膨胀。如果CPI升幅过大，表明通胀已经成为经济不稳定因素，从而造成经济前景不明朗。因此，CPI过高升幅往往不被市场欢迎。
 
-近日，福建省福州市罗源县一名小学四年级的女孩因长期缺乏照顾、吃饭没有菜、只能干吃大米饭一事被广大网友关注。
+CPI测量的是随时间变化，包含多种商品和服务价格的平均变化值。多种商品和服务会被分为几个主要类别，每个类别都有个能显示其重要性的权数，**且权数会经常修正**。**CPI无法反映商品品质的改进或者下降**，对新产品也不加考虑。
 
-小女孩是凤山镇人，母亲得癌症去世，家里只剩她与父亲两人，以及一堆未还的债务。小女孩父亲白天在外务工不能回家，家里也没有其他人照顾小女孩，只有一条小狗与她为伴。
+中共国的CPI构成包含食品、烟酒及用品、衣着、家庭设备、医疗保健、交通通信、娱乐教育文化、和居住八大类产品价格，在八大类产品中权重最高的是食品，约为30%左右。中共国家统计局每5年一次大调，每年还进行“小的”调整。据查最近一次大调在2016年，其中调低了食品价格在CPI的权重，而提高了居住权重，从而使得食品价格涨幅难以波动太高。当时将食品口径占CPI的权重调整下降3.2%，居住口径上升2.2%，约达到15%。由于国家统计局太过“神秘”，这边无法获得近几年详细CPI“微调”数据，但可以肯定的是中共国的CPI数据基本水分爆表，且光权重这一细节上就能玩出不少花活。
 
-小女孩的家是一间脏乱不堪的小房间，里面堆满了破旧发霉的生活用具。床上堆着的衣服是女孩母亲去世前买的，早已经不合身了，有的已经小到穿不下。小女孩在现在一年四季穿的都是别人不要的校服。
-![pastedGraphic.png]()![pastedGraphic.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14123157/image2-2.png)
-看看在网易的本条新闻下，网友如何评价：
+上周经济圈出了一个不大不小的新闻，即中共国的CPI意外转负。据路透报道，11月中共国CPI环比下降0.5%, 自09年来首次。网上也纷纷传出诸如食品价格下滑，抑或是中国进入通缩阶段，并且央行可能借机减缓货币正常化的脚步。11月CPI数据有没有可能是真的？当然很有可能。但我对食品价格下滑之类的说法是嗤之以鼻的。在此我做出个大胆的猜想：即统计局继续调低食品权重且提高了其他产品，尤其是居住的权重。居住消费在CPI中主要是指租房和水电煤之类的开销。如果居住消费下滑就间接指出中共国的楼市正面临又一次大危机。楼市若贬值，那真的会进入通缩时代，人民币就的购买力就加强了么？不一定，房子不值钱，势必威胁到银行，央行能做的，当然是继续开印钞机救市，并且持续收紧外汇管制，到时候又将进入所谓的“内贬外升”的可笑局面。
 
-1.这个小女孩是幸运的，这样的事各地都有，只是有没有被关注，救助一个这样的孩子花不了多少钱，但就是宁可扔钱去国外喂狗，也不愿意分给他们一丁点。
+参考网站：
 
-2.唉，都2020了，还有这种事，祝福小姑娘。
 
-3.肯定是假新闻，我们都在解决非洲儿童午餐问题了，怎么可能还有孩子饿肚子。
-![pastedGraphic_1.png]()![pastedGraphic_1.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14123351/image3-1.png)
-2020年12月10日，罗源县妇联一名工作人员表示，社区和乡镇妇联已经介入，乡镇妇联已经为孩子争取了2000元的补助，并且县、乡、社区妇联正在帮忙联系当地托管机构。罗源县妇联工作人员表示，帮扶小女孩进入托管机构后，孩子白天放学，可以让机构老师把她接走，照顾孩子吃饭、写作业。
+1. [http://m.21jingji.com/article/20160223/8f6c15b578c3d197c29076e2be4dba4c.html](https://m.21jingji.com/article/20160223/8f6c15b578c3d197c29076e2be4dba4c.html)
+2. [https://en.wikipedia.org/wiki/Consumer\_price\_index](https://en.wikipedia.org/wiki/Consumer_price_index)
+3. [https://www.investopedia.com/terms/c/consumerpriceindex.asp#:~:text=The%20Consumer%20Price%20Index%20(CPI,of%20goods%20and%20averaging%20them.](https://www.investopedia.com/terms/c/consumerpriceindex.asp#:~:text=The%20Consumer%20Price%20Index%20%28CPI,of%20goods%20and%20averaging%20them.)
+4. [https://cn.reuters.com/article/instant-view-china-nov-cpi-ppi-1209-idCNKBS28J08N](https://cn.reuters.com/article/instant-view-china-nov-cpi-ppi-1209-idCNKBS28J08N)
 
-但是，我们都知道2000元的补助没有办法实质性地改善小女孩的生活状况。2000块很快就会花完，然后小女孩该怎么办呢？托管机构也代替不了父母。这个年纪的小女孩最需要的是父母的照顾和关爱，这样才能让小女孩有一个正常、温馨的童年，使其健康成长。但是小女孩的父亲为了维持这个贫困的家庭，不得不部分放弃履行作为父亲的责任和义务。
 
-如果没有网友爆料，妇联等相关部门是否还会上门作“秀”？这个“秀”最终又能持续多久呢？
 
-况且中共治下，中共国还有六千多万留守儿童，三千六百多万流动未成年人，总数近亿，大约占全国三亿未成年人的三分之一。他们的生存条件甚至比这个小女孩更恶劣。妇联和其他政府部门有想过去帮助和如何帮助他们吗？能为这一亿儿童都做一次“秀”吗？
-![pastedGraphic_2.png]()![pastedGraphic_2.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14123351/image3-1.png)
-图片来源：[http://www.xinhuanet.com//politics/2016-11/09/c\_1119882442.htm](http://www.xinhuanet.com//politics/2016-11/09/c_1119882442.htm)（新华网）
-![pastedGraphic_3.png]()![pastedGraphic_3.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14123536/image5-1.png)
-图片来源：[https://www.thepaper.cn/newsDetail\_forward\_1448987](https://www.thepaper.cn/newsDetail_forward_1448987)（澎湃网）
-
-作为一个6亿人还处在月收入1000元左右的国家，所谓对外援助动辄百亿美金，却不肯把老百姓创造的财富花在老百姓自己身上，用来保障其基本生活条件。一个不关心老百姓甚至儿童死活，只把其当作韭菜和造血机器的政党和政权，不应该允许其继续存在。
-
-老百姓正在觉醒，中共邪党恶政时日不多。
-
-本文章仅代表本人个人观点。
-
-新闻来源：
-
-[https://dy.163.com/article/FTO330TR0534NE4B.html](https://dy.163.com/article/FTO330TR0534NE4B.html)
+【秘翻组·金融法律组】
 
 0
