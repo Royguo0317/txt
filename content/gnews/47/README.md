@@ -1,25 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 荒谬的国家公祭日
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/648664/)
+## 【大数据分析作战室】Parler代表正义之声的话题分析
+` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/648703/)
 
-**作者：桂花酒｜校对：宁缺｜PAGE：玄天生**
-[!\[\]()!\[\](https://spark.adobe.com/page/vByULxEGqpz8M/images/4d8e9a59-1537-432a-b18a-bd884ae71326.png?asset_id=5a1efd1c-afc8-4359-a15d-161158d08f40&amp;img_etag=%22e6ca423a4133103b0cdd789c68d1efe9%22&amp;size=4991)](https://spark.adobe.com/page/vByULxEGqpz8M/images/4d8e9a59-1537-432a-b18a-bd884ae71326.png?asset_id=5a1efd1c-afc8-4359-a15d-161158d08f40&amp;img_etag=%22e6ca423a4133103b0cdd789c68d1efe9%22&amp;size=1024)
-当我看到这幅中共国的《国家公祭日》写的——铭记历史、不忘初心、勿忘国耻图片的时候，心理满是悲愤。
+**分析**师 童谣
 
-中共自1921年成立之日起，从来都是利用人民的善良，用谎言欺骗民众，用暴力镇压人民，用被歪曲的事实给人们洗脑。他们亲手制造并投放全球的生化武器仍在不断地夺去世界各国无辜百姓的生命。他们此时却猫哭老鼠，要给抗战时期被日军杀害的30万同胞实施所谓“公祭”，真是滑天下之大稽。
+**通讯员 喜马拉雅的文雅**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14084049/1213Parler.jpeg)
+据G-Talent， 2020年12月13日Parler热门话题分析图是对社交平台Parler 上账号GatewayPundit, ZeroHedge, RudyGiuliani, Raheem, theNationalPulse 的信息所做出的分析。
 
-从抗战时期与日寇勾结大搞破坏，到1948年长春围城饿死几十万百姓；他们可曾反省历史？从49年篡政后杀戮中国社会的乡绅，到“抗美援朝”旗帜下把投降的国军送到朝鲜战场消灭，他们何尝忘记过共党丑恶的初心？从文革被消失的夹边沟知识分子，到89年64运动被坦克碾压的学生，他们一直掩盖、篡改历史，又何曾想到他们的无情杀戮才是真正的国耻！在美国和全世界正义力量要跟中共算总账的当口，他们一面冬季征兵，送百姓子女当炮灰，一面宣布全国小康，取消了国家贫困地区那些孤苦无依者的扶贫款。这样的流氓政府，到底有什么资格代表国家，对30罹难同胞公祭！
+热门话题按关注度依次为，第一，转发、点赞最高的头号热门话题是“ELECTION NIGHT ERRORS” （大选夜错误），朱利安尼先生、GatewayPundit同时在Parler发文，展示科学家证词、视频等纷纷证明大选夜数据造假的证据 。
 
-【文章仅代表作者观点】
+热门话题2，China Communist Party Members Leaked，（流出中共党员名单），澳大利亚《天空新闻》今日报道中共在全球近200万中共党员名单出现前所未有重大泄漏 。
 
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+热门话题3，Prove Fraud in Election （证实选举中的舞弊行为）。
 
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+热门话题4，Wisconsin Supreme Court Justice（威斯康星州最高法院大法官），GatewayPundit报道一位威斯康星州大法官吉尔·卡洛夫斯基（Jill Karofsky）疯狂诋毁川普为种族主义，称此人根本不配坐在法官位置上。另一位憎恨川普总统的威州大法官丽贝卡·达莱特（Rebecca Dallet）被揭露其背后接受了埃里克·霍尔德（Eric Holder）以及乔治·索罗斯（George Soros）的资金支持。
 
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
+热门话题5，Photos Alleged Georgia Mail Ballots, 即出示的照片指控乔治亚州的投机选票问题。
 
-编辑 【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/vByULxEGqpz8M/)
-[!\[\]()!\[\](https://spark.adobe.com/page/vByULxEGqpz8M/images/8b16340f-11d7-466f-a4e3-a139456f58b2.jpg?asset_id=f99a6c10-4e5e-4c60-896b-1d7f43b7a157&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/vByULxEGqpz8M/images/8b16340f-11d7-466f-a4e3-a139456f58b2.jpg?asset_id=f99a6c10-4e5e-4c60-896b-1d7f43b7a157&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+热门话题6，Conclusive Evidence Foreign Influence Election，即选举欺诈、邮寄选票造假以及外国势力干预大选的证据确凿有。
+
+热门话题7，Obama Crime Database，前CIA官员和反情报专家发现奥巴马在TEVUS系统犯罪数据库中刻意掩盖BLM和ANTIFA的暴力行为，并试图记录实际上几乎没有暴力的白人和右翼人士。
+
+热门话题8，Powell Asks Supreme Court Decertify States Results，鲍威尔律师要求最高法院对密歇根州，亚利桑那州，乔治亚州和威斯康星州的选举结果进行干预并取消。
+
+建议传播相关内容时，使用井号加以下关键字：
+
+#ELECTION NIGHT ERRORS
+
+#Prove Fraud in Election
+
+#Conclusive Evidence
+
+#CCP Members
+
+#Obama Crime Database
+
+新闻和图片来源於 G-Talent
+
+(以上仅代表分析师观点。)
+
 0

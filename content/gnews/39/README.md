@@ -1,58 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “新任总统”拜登绝对是反日亲中。可为什么日美关系依然？
-` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/648895/)
+## 【世界多语言图文】2020/12/03-4 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/648325/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14090551/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2020-12-14-230522.png)
-作者：京都富士会   待命（文晓）
+战友之家图文摘要及多语组
 
-校对：京都富士会   待命（文晓）
+[313-314\_English\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011203/313-314_English_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011203/313-314_English_CCP_Virus_Updates.pdf)
 
-译者按：
+[313-314\_French\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011202/313-314_French_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011202/313-314_French_CCP_Virus_Updates.pdf)
 
-以下译文，是当前日本媒体言论的真实写照。文中可以看到日本媒体对拜登是如何评价的、可以看到日本媒体对美国大选结果是如何认识的。当然，也可以看到日本媒体揭露拜登及其家族与中共之间的暧昧关系。这，正是我们爆料革命需要的。非常荣幸，能为爆料革命尽点微薄之力！
+[313-314\_German\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011202/313-314_German_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011202/313-314_German_CCP_Virus_Updates.pdf)
 
-【“新任总统”拜登绝对是反日亲中。可为什么日美关系依然？】
+[313-314\_Japanese\_CCP\_Virus\_Updates-](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011202/313-314_Japanese_CCP_Virus_Updates-.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011202/313-314_Japanese_CCP_Virus_Updates-.pdf)
 
-一些 “证据”表明，即将成为美国第46任总统的拜登持有有反日亲中的思想。因此，担心日美关系恶化的唏嘘声随之高涨。这种担忧会成为现实吗？
-
-在本期免费通讯《俄罗斯政治经济杂志》中，国际关系记者北野之学表示，拜登绝对是反日亲华的。并解释了为什么日本不会因此受到困扰，以及为何美中争霸战不会结束。
-
-为什么日本不会因为反日亲中的拜登政府诞生而受到困扰？
-
-在日本，人们说：”如果反日亲中的拜登当上总统，那就麻烦大了！”。 我不这么认为 ，为什么呢？
-
-没错，拜登绝对是反日亲中。
-
-首先，拜登真的是 “抗日亲华 “吗？ 这点，是毋庸置疑的。
-
-关于 “亲中”，他的二儿子亨特-拜登从中国收了不少钱。 这不是 “阴谋论”，也不是 “胡编乱造”。以下是来自2019年5月20日，来自日本公共媒体FNN Prime Online报道的事实。
-
-【候选人拜登次子与中国的不正当关系】
-
-据施韦泽介绍，2013年12月，亨特陪同乔-拜登对中国进行正式访问，当时他是现任副总统。
-
-不到两周后，中国银行向亨特先生管理的对冲基金Rosemont Seneca Partners汇入了10亿美元(按当前汇率计算约1100亿日元)资金，后来又增加到15亿美元(约1650亿日元)，作为出资用资金。
-
-当时的美国副总统拜登，就中国宣布在包括尖阁诸岛在内的东海上空设立防空识别区，曾表示 “绝对不能接受”。但在与习近平主席的会晤中，他只传达了 “深切关注”（中新社），令日本等国非常失望。
-
-接下来，我们再谈谈 “抗日”。 关于这一点，有两段著名的情节想与大家分享。
-
-拜登曾在2013年12月要求安倍总理 “停止参拜靖国神社”。 据报道，当安倍对他的要求置之不理，并坚持参观了神社后，拜登非常不开心。他还在2016年8月15日说：”日本的宪法是我们写的。
-
-4月15日，当时的美国副总统拜登在宾夕法尼亚州发表演讲，在批评共和党总统候选人川普时说：”难道他（川普）不知道日本宪法是我们写的吗？其中不是规定日本不能成为核大国吗？
-
-（産経新聞2016年8月16日）
-
-
-
-
-
-
-
-原文链接
-
-[https://www.mag2.com/p/news/478005](https://www.mag2.com/p/news/478005)
+[313-314\_Spanish\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011200/313-314_Spanish_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011200/313-314_Spanish_CCP_Virus_Updates.pdf)
 
 0

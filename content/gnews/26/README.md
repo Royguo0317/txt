@@ -1,76 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》每日简报早间版 2020.12.13&#8211;NewYork Time
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/646779/)
+## 【热点播报】跨国犯罪组织定义必将落下&#8211;滚天雷行动即将开始
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/648956/)
 
-出品《路德社》 编辑：路德社精选新闻专栏组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14000255/1213-AM-ZH-scaled.jpg)
-撰稿：文寶Porsche   译校：Arvin江牧
+**作者：纽约香草山写作组 喜马之光**
 
-翻译统筹：阿轩Action
+![](https://gnews.org/2bbed47f-dc42-471c-a77b-a88c452b669f)
 
-1213早间要闻-NewYork Time
 
-**LuDe Media 20201213 Morning News, New York Time**
 
-**美国驻华使领馆发推警告中共军事威胁**
+前言：滚天雷行动即将开始，任何行动要师出有名。美国是文明法治国家更会如此。定义CCP 为跨国犯罪组织，将拿掉它身上的最后的护身符—政权合法性。
 
-**U.S. Embassy and Consulate in China Tweeted Warning of Military Threat from CCP**
+川普总统在推特上发推开始战斗
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14092542/r-t-1.png)
+图片源自推特
 
-推文说，北京的军事挑衅将全世界置于风险之中，加剧了从喜马拉雅地区到南中国海的暴力冲突威胁。中共不计后果地使用军队，破坏了印度-太平洋地区及全世界的稳定。中共在存在争议的南中国海区域建立了军事化基地，利用它来阻断通道，封闭航路。美国致力于与盟国和合作伙伴共同努力抵制中共的破坏性行为，倡导一个开放的印太地区。
+11月4日总统大选日至今，美国大选还没定论。这是在美国历史上罕见的。那么阻碍这次川普连任的各种力量较量中，中共和Deep State的各种影响力逐渐露出水面。离2021年1月20日总统就职日已无多日，川普总统已经没有退路必然主动奋起反击。
 
-Beijing’s military provocations are putting the world at risks and increasing the threat of violent conflicts from the Himalayan region to the South China Sea, the tweet said. The CCP’s reckless use of military forces has destabilized the Indo-Pacific region and the world. The Chinese Communist Party has established militarized bases in the disputed South China Sea region, using it to block access and close shipping routes. The United States is committed to working together with allies and partners to resist the destructive behavior of the CCP and to advocate for an open Indo-Pacific region.
+CCP virus 铁证如山
 
-**推文深度分析：这是要对中共动手的信号**
+从Dr闫的两份无可辩驳的科学报告，从各国的情报口的汇总。CCP Virus 罪证已被牢牢证实和验证。美国国家地理杂志反驳Dr闫的报告这一非常业余可笑的反击。可以看到CCP 已经日薄西山，因为有识之士都明白，再去跟随邪恶势力那将在以后被法律追责。及时的转向将会勒马于悬崖。主流左媒已无法再掩盖，美国的民意正在质疑病毒的真相。Dr闫的报告80万的下载量就说明科学家大部分是质疑WTO和CCP的自然来源的说辞的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14092550/3561.png)
+图片源自网络
 
-**Deep Analysis of the Tweet: Signal to Take Actions Against the CCP**
+主宰世界的势力已抛弃CCP
 
-中共如何将世界置于风险中？南海军事化，阻断航道，给全球经济带来了风险；台湾是美国最重要的供应基地，中共威胁台湾给美国经济带来了风险。
+地球70亿人一直是需要主宰力量和秩序的。中国进入联合国是沼泽地的主人需要这个国家能恢复秩序，与世界能和平相处。基辛格是这次中美建交的功臣。当时的世界需要中国与西方联合抗击苏联。尼克松总统适势而行，进行了中美破冰之旅。但CCP 的所作所为，8964 已昭然于天下，在北京奥运会后更是野心勃勃。二战后的国际秩序正遭受着巨大的破坏。美国的力量正在逐渐被侵蚀，铁锈地带的出现又使得美国中产阶级的利益受到了极大的挑战。欧洲核心国家德法在一带一路等项目上与中共频抛媚眼。政治家与既得利益集团的逐利已经是赤裸裸的。连神圣的梵蒂冈与CCP 秘密签订了私下协议。整个国际秩序正在受到极大的挑战。美国再不苏醒将面临巨大威胁。这次CCP virus 更是将美国推到了生死抉择的边缘。主宰世界的正义势力必须作出最后抉择。当初养大CCP的是他们，现在解决CCP的一定也是他们。
 
-当初伊拉克占领科威特给世界能源供应带来风险，所以被灭；当年的巴拿马独裁政府控制了运河，给世界经济带来风险，所以也被灭；而沙特也是独裁，但对世界不产生风险还每年购买美国军火，所以美国不会灭它甚至保护它。
+路德社爆料分蛋糕已经完毕
 
-推文跳过中国政府（有外交豁免权），直接点名中共（没有外交豁免权），暗示美国对其动手没有法律障碍，时机一到，随时可以行动。此推文发布出来就暗示一定要解决这个威胁，否则美国将彻底失信于天下。
+据路德社12月13日节目中谈到美国总统令，它是经过美国国家安全会反复经过论证才能通过的。是背后各种势力的妥协与合作，并不是总统一个人的意志能决定的。妥协的结局是各个代表势力能和平的解决问题，不会造成社会大动荡。妥协也是一种平衡，各种势力利益的平衡。CCP 的拿手戏就是蓝金黄，支撑其实力的就是金钱。那么拿掉它的钱，CCP 的 势力就作鸟兽散。无论国际国内也就没有人会跟随它了。另一方面，原有与其勾兑的利益集团也要从CCP 的蛋糕里分得一块。比如：华尔街这么多年与其往来，必然存在利益。那么分得一杯羹，也就能平衡和补偿他们的损失。又比如：在华的各种大型企业，很多资产和资金是很难撤出的。那也会有部分的补偿。只有蛋糕在各个势力分配完成后，才能统一来解决 CCP 。资本是无情的、资本没有正义，但资本可以被好地利用。
 
-How the CCP puts the world at risks? The militarization of the South China Sea, blocking shipping routes, puts the global economy in danger; Taiwan is the most important supply base for the United States, and the Chinese Communist Party’s threat to Taiwan puts the U.S. economy at risks.
 
-Years ago, Iraq’s occupation of Kuwait brought risks to the world’s energy supply, so it was destroyed. The Panamanian dictatorship of the day controlled the canal and posed risks to the world economy, and it was also exterminated. Although Saudi Arabia is also a dictatorship, it poses no risks to the world and buys arms & weapons from the U.S. every year, therefore the U.S. does not eliminate it and even protects it.
 
-The tweet skipped the Chinese government (which has diplomatic immunity) and directly named the Chinese Communist Party (which does not have diplomatic immunity), implying that there are no legal obstacles for the U.S. to move against it and is ready to take actions when the time comes. This tweet was released to imply that the threat must be resolved, otherwise the U.S. will completely lose its credibility to the world.
 
-**习近平提出十大国家安全观，政治安全放首位**
 
-**Xi Jinping Proposed Ten National Security Concepts, Putting Political Security First**
+图片源自 GTV
 
-习近平在政治局会议中虽然提出了十条安全观，其实他真正在乎的只有政治安全。所谓的政治安全就是习近平的安全，不服从他领导的人就是在政治上不安全。
+司法部与FBI即将领导换人代表滚天雷的开始
 
-其他官话翻译成大白话，主要内容是：统一由他领导；要人人过关；打着人民的名义为几个家族服务；以安全的名义随时限制百姓自由、没收人民财产；建立一支几万人的、刘胡兰式风格的安全队伍，安插到军队的每一个角落，用杠杆效应来监视控制几百万军人。
+路德社14日爆料美司法部与FBI领导人即将被换，新上任的领导可能会是独立法官。这一重磅信息，说明美国政府层面与司法层面已经快速进行行动。司法部在拜登案子上迟迟不立案，FBI对外国势力渗透总统大选反应迟钝。这些本不应该发生的事，在换人后会立竿见影。这四年川普总统真正得力干将没几个，其行政效力受到大大影响和制约。这些重要部门如今“一一回归”到川普身边。那么川普总统凝聚力量可以开始打出重拳。
 
-Although Xi Jinping put forward ten security concepts in the Political Bureau meeting, in fact the only thing he really cares about is political security. The so-called political security is Xi Jinping’s security, and those who do not submit to his leadership are politically insecure.
+综上，定义跨国犯罪组织是必然，也是滚天雷行动的开始。拿掉CCP 的外交豁免，才能开始切蛋糕。更是师出有名的正义需要。
 
-Translating other official words into the vernacular, the contents mainly are: unified leadership under him; political censorship for each individual; to serve several families in the name of the people; to restrict the freedom of the people and to confiscate people’s property casually in the name of security; to build a Liu Hulan style security team of tens of thousands of people, and to plant into every corner of the PLA to monitor and control millions of soldiers using leverage effects.
+校对发稿：悟空
 
-**官话之外的真正内容—如何保护习近平**
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-**The Real Content Beyond the Official Words – How to Protect Xi Jinping**
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-内部战友透露会议的实质性内容是，讨论在美国和北约采取行动时，怎样保护习近平的安全（政治安全）；游说、渗透美国和北约，阻止其采取行动，化解危机；如果化解不了，首先要保障习近平安全，方式是通过安全队伍的杠杆效应发动全军做肉盾；只要保护好了习近平的安全，就有奖赏。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14092131/GNEW-GTV-MOS-LOGO-2.jpg)
 
-Internal battle companions revealed that the substance of the Politburo meeting was: to discuss how to protect Xi Jinping (political security) when the U.S. and NATO take actions; to lobby and infiltrate the U.S. and NATO to prevent them from taking actions in order to resolve the crisis; if the crisis cannot be resolved, Xi Jinping’s safety should be ensured first, leveraging the security team to motivate the entire PLA military as a flesh shield; as long as Xi Jinping is well protected, there will be a big reward.
 
-**香港公务员被要求宣誓拥护基本法和香港特区**
 
-**Hong Kong Civil Servants Asked to Swear to Uphold the Basic Law and the HKSAR**
-
-全港的十八万名公务员从下月初起，一个月内必须完成宣誓或签署声明，拥护《基本法》和效忠特区政府，拒绝者将被解雇或被勒令退休。
-
-All 180,000 civil servants in Hong Kong are required to complete an oath or sign a declaration to uphold the Basic Law and pledge allegiance to the Hong Kong SAR government within a month from the beginning of next month, and those who refuse will be dismissed or ordered to retire.
-
-#CCP\_is\_terrorist   #TakeDownTheCCP
-
-文案：《路德社》简报组：文寶Porsche；
-翻译：《路德社》翻译组
-审核校对：玫瑰天空
-上传排版：青葫芦娃
-
-0
+2+
