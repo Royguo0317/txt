@@ -1,25 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 终极之战，杀敌一百自损八千
-` 喜马拉雅凤凰农场–旧金山-金喜站` [轉載自GNews](https://gnews.org/zh-hans/646254/)
+## 【军事快讯】美军舰战力优越，直9D反舰形同虚设
+` 国内新闻组(Ronald)` [轉載自GNews](https://gnews.org/zh-hans/648036/)
 
-配图：[**天機**](https://gtv.org/user/5e8a5c76490f470e21d5fc01)
+内军事：鹰(文言) 素材：文朝汗（部落） 校对：老蚂蚁666
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14053900/unknown-11.png)
+环球网2020年12月14日报道，12月11日中共南部战区海军舰载航空兵团进行反舰导弹实弹射击训练。
 
-配文：**百合的家**
+因为9月份以来中共国周边海域，先后有“环太平洋2020”、印日联合反潜演练、“利剑2021”、“马拉巴尔”联合军演等军事行动，而中共为了避免可能的“擦枪走火”和实力对比悬殊，军舰大都蛰伏于港口附近，鲜有出航。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14053859/unknown-1-1.png)
+所以，参与实弹射击训练的数架直-9D舰载直升机是从岸上机库拖出来的。从视频中可见，平均每架直-9D需要近10名机务进行一系列的检查及上弹后，才可起飞奔赴目标海域进行攻击。
 
-编辑：[**Amos文也**](https://gtv.org/user/5e750fdd7fdb1049cc747023)
+直-9D续航时间为4小时，限于机载雷达的探测能力，可对载舰半径40-50km海域巡逻警戒，其携带的鹰击-9反舰导弹，巡航速度为0.85马赫，射程较短仅为15km，打击目标为1000吨以下的舰船或小型船只。
 
-### 没有吃没有穿，自有那美国送上前；
+在美军主力战舰中，量级较小的佩里级护卫舰，满载排水量已超过3600吨，远超鹰击-9的可打击舰船吨位上限，再加上舰基的AGM-84鱼叉反舰弹（舰射型射程达209km），即可在直-9D防区外对其进行打击；
 
-### 没有枪没有炮，美国给我们造！
+另外美军海军主力伯克级驱逐舰，量级更达8000吨以上，还配有AGM-158C LRASM（空射型射程达980km），直-9D反舰能力更加形同虚设。
 
-### ——70年中国梦
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13184337/lin_wood-1.jpg)
+近期随着北约军事行动即成定局，中共一方面煽动民族主义，加大媒体宣传——“备战打仗”，蒙蔽底层大众勇当炮灰；
 
+另一方面则是加大实弹军演。但这些不过是“走夜路吹口哨”。一旦中共被美国认定为跨国犯罪集团，不但国际上人人喊打，墙内的民众也会更快看清其剥削和压迫人民的本质，进而起来反抗，内外合力下一举推翻中共统治。
 
-### **终极之战，杀敌一百，自损八千！**
+新闻来源：
+屏住呼吸！反舰导弹实射瞬间画面超燃
+[https://mil.huanqiu.com/article/41633yl3NWe](https://mil.huanqiu.com/article/41633yl3NWe)
+我海军轻型反舰导弹——鹰击9
+[https://www.sohu.com/a/234894134\_677685](https://www.sohu.com/a/234894134_677685)
+2020年美军反舰导弹发展：构建1600公里打击体系，LRASM是关键！
+[https://www.sohu.com/a/380418686\_100007345](https://www.sohu.com/a/380418686_100007345)
 
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13184346/stock-photo-usa-and-china-trade-war-us-of-america-and-chinese-flags-crashed-containers-on-sky-at-sun-1.jpg)
 0

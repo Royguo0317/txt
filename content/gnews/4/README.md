@@ -1,38 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生1211: 新中国联邦人把中国人和中共分开没让中国人成为公敌
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/646578/)
+## 【突发】安全总比后悔好，林伍德发推警告美国公民存储物资
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/648431/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13223801/%E5%B0%81%E9%9D%A2-45.jpg)
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+- 编辑：Victor Torres、文顺
+- 素材：hellokity
 
-篇首说明：郭文贵先生在[2020年12月11日 文贵直播谈真实的川普总统；正义的力量超乎我们的想象！](https://gtv.org/video/id=5fd3fb5209267020eb4bd0f0)直播中谈到了多个方面的问题，现逐个列明郭文贵先生直播中涉及到的内容，本文为第八部分：新中国联邦人把中国人和中共分开没让中国人成为公敌——
 
-据[2020年12月11日 文贵直播谈真实的川普总统；正义的力量超乎我们的想象！](https://gtv.org/video/id=5fd3fb5209267020eb4bd0f0)时间点**1：39：30**——
+***更多真相请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**所以说坚决不能把共产党等同于中国人民，绝不能让全世界人民把中国人民和共产党等同，这是核心的核心，这是新中国联邦人给中国人带来最大的贡献。未来被中国人认可最大的原因就是——你把共产党和我们分开了，你没让中国人成为世界的仇敌，你没让中国人成为世界的靶子。新中国联邦人将是中国人历史上最大的功臣。**
+**西班牙2020年12月14日电/西喜社/**——林伍德（Lin Wood）六小时前发推提醒美国公民做好物资储备，其中包括合法武器。
 
-所以战友们，永远牢记，不要忘了这个，**第一条，在任何情况下，少树敌，维护中国人的利益和中国人的形象，你包括那些欺民贼，如果真要是咱遇到其他种族打他，咱一定帮他，他们的利益咱一样维护，你必须的，必须以一切的力量维护海外华人、和中国人在海外的利益、和中国人在世界的形象，彻底地把中国人和共产党区分开来，否则就是死路一条，你就是人民的公敌，**不是国家敌人，那国家就是现在权力都是非法的，是吧？**你一定要记住，你越爱中国人，发自内心的你会得到美好的未来，千万别动不动中国人怎么不行，我们中国人有毛病，大胆的面对，大胆地说，但是中国人不等同于共产党，共产党不等同于中国人。**外国人、哪国人都有毛病。
+他说：“确保你有充足的水、食物、手电筒和电池、蜡烛、收音机、第二修正案用品，以及与你的社区领袖会面的计划。”
 
-我们有优秀的东西 ，我们有美好的东西，我们也有很多糟粕，这为啥说唯真不破呀，万佛万神啊，你不能反任何人的教，你不能反任何人家的种族文化，你不要掺乎到任何人的种族冲突去，咱更不掺乎，不管是民主党、共和党，咱们的战友在采访中说的特别好，谁反共谁就是我们的朋友，谁反共我们支持谁。
+美国宪法**第二修正案**是美国权利法案之一，并于1791年12月15日正式通过，它保障人民**持有和携带武器**的权利，亦即公民享有正當防卫的公民权力。
 
-不论在世界任何地方，所以现在世界上越来越多人看到这一点，这是我们爆料革命新中国联邦最大的成功、最大的财富，妙不可言，力量不可限制，
+他还说：“请记住，我们每次只有一位总统。我们的领袖是唐纳德·川普，而不是拜登。”
 
-接上篇——
 
-[郭先生1211:中共国好混的三种爱国者,翟东升是愚蠢的爱国者](https://gnews.org/zh-hans/643872/)
 
-[郭先生1211:中共没一个人见过沼泽地,中共最大问题是方向错了](https://gnews.org/zh-hans/644843/)
+> Better to be safe than sorry.
+> 
+> Make sure you have PLENTY of water, food, flashlights & batteries, candles, radio, 2nd Amendment supplies, & a plan to meet with leaders of your communities.
+> 
+> Remember we only have 1 President at a time. Our leader is [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw), not Biden. [pic.twitter.com/Z8cuPw1Md6](https://t.co/Z8cuPw1Md6)
+> — Lin Wood (@LLinWood) [December 14, 2020](https://twitter.com/LLinWood/status/1338360655016058881?ref_src=twsrc%5Etfw)
 
-[郭先生1211:中共的多方渗透威胁了沼泽地病毒让沼泽地决定灭共](https://gnews.org/zh-hans/645012/)
 
-[郭先生1211:新中国联邦是能和沼泽地对话的要打造好我们的能力](https://gnews.org/zh-hans/645172/)
 
-[郭先生1211:新中国联邦给出开战能赢共产党的答案和难题的对策](https://gnews.org/zh-hans/645333/)
-
-[郭先生1211:初步判断开火战灭共的窗口是四至六月份或两会后](https://gnews.org/zh-hans/645396/)
-
-[郭先生1211: 世界上一系列事件的发展都注定绝不可再容忍共产党](https://gnews.org/zh-hans/646532/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0

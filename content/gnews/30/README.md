@@ -1,13 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【突发】林伍德 ：中共和几千个美国人勾兑试图偷走大选
-` 喜马拉雅凤凰农场–旧金山-金喜站` [轉載自GNews](https://gnews.org/zh-hans/646128/)
+## 12/10/2020 要闻同传⎢朱利安尼最新报平安+蓬佩奥重磅讲话+NEWSMAX要闻+福克斯晚间4档节目精选
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/648016/)
 
-旧金山时间 12月13日 12时29分，林伍德律师发推：
-
-中共和与几千个美国人勾兑，想要偷走2020年美国大选，从总统选举到一些下面各级的选举都有。涉及的人员包括： 塞尔维亚，加拿大，委内瑞拉，古巴，中央情报局，乔治·索罗斯，比尔·盖茨，拜登，克林顿基金会以及许多国家和地方的两党官员。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13180254/LLinWood_12-13.jpg)
-资料搜集：小雯 编发：文真真
+**By【秘密翻译组 G-Translators】**
 
 0

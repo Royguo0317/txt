@@ -1,17 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “所有GTV的投资者，你们可以很好很好地庆贺一下了！”
-` GM127` [轉載自GNews](https://gnews.org/zh-hans/646121/)
+## 20201213东京樱花团晚间新闻速报
+` 东京樱花团-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/647949/)
 
-郭文贵先生在12月13日早晨发布 GTV 盖特视频，公布 GTV 的最新排名数据，并恭喜所有GTV的投资者，并说未来会比这更好。
+HTS-01C-202012-043
 
-全文：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14051621/98.jpg)
 
-“疯了，就是因为这个GTV的排名。GTV的排名太牛了，兄弟姐妹们！所有GTV的投资者，你们可以很好很好地庆贺一下了。这可是了不得了。华盛顿、伦敦、巴黎、东京、台湾、俄罗斯，无数人发信息：“Miles，太牛了，GTV，太牛了！”
+1、日本全国主要车站和商业街人流量并未减少；
 
-兄弟姐妹们，数据不会骗人，啊，这可是真的GTV。这才是刚刚开始。兄弟姐妹们，相信你自己。这回用你的手和你的钱证明自己是真的大智慧，还是大笨蛋。这个数据是了不得的，无人篡改。但是，未来会比这更好、更好、更好、更好。咱还没真正开始呢。接下来，文贵会展示给大家，它会多厉害，多牛。今天是个伟大的日子，mugaisai（谢谢啦）。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13175423/Miles_20201213_Getter-figure1.png)
-翻译：【Isaiah4031】字幕：【相机过热啊】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22111053/VOG-Rose-Garden-Team.png)
-0
+2、因共产党病毒疫情北海道许多寺庙暂停新年参拜；
+
+3、日本政府拟发行112万亿日元国债，是2009年雷曼危机（52万亿日元）的两倍多，创历史新高；
+
+4、东京都地区血液库存紧张；
+
+5、东京都12月13日480人被确诊已感染共产党冠状病毒。
+
+
+
+新闻速报取材于下述链接：
+
+[https://news.yahoo.co.jp/articles/6e91abaa5602ea61bd8a9afc483af3bcdbbca797](https://news.yahoo.co.jp/articles/6e91abaa5602ea61bd8a9afc483af3bcdbbca797)
+
+[https://news.yahoo.co.jp/articles/5c8b9c1decba95ebbcdadca0c5d789cf2811dda0](https://news.yahoo.co.jp/articles/5c8b9c1decba95ebbcdadca0c5d789cf2811dda0)
+
+[https://news.yahoo.co.jp/articles/0dbd3d9dfbda63132722715c45e51bad58f33672](https://news.yahoo.co.jp/articles/0dbd3d9dfbda63132722715c45e51bad58f33672)
+
+[https://news.yahoo.co.jp/articles/84d49fe42486aa694ed5debbe2a7bef875f7e8ee](https://news.yahoo.co.jp/articles/84d49fe42486aa694ed5debbe2a7bef875f7e8ee)
+
+6+

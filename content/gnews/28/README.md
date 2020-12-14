@@ -1,9 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语】12/4/2020文贵：一旦开战，将出现中国的华盛顿，中国的袁世凯
-` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/646167/)
+## 要闻同传: “川普 VS 拜登” 威斯康辛州听证会
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/648048/)
 
-制作：战友之家粤语频道
-统筹：【文武全才】 剪輯：【文莱】 【文桥】 配音：【文静】 文本【铁锅侠】 字幕：【文桥】
+12/10/2020 要闻同传: “川普 VS 拜登” 威斯康辛州听证会
+
+
+
+12/11/2020 要闻同传: “川普 VS 拜登” 威斯康辛州听证会
+
+
+
+**By【秘密翻译组 G-Translators】**
+
 0

@@ -1,13 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/11/2020 郭先生直播: 什么是美国真正的沼泽地? 是谁控制着这一切并拥有沼泽地最终的决策权?
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/646235/)
+## 12/11/2020 要闻同传⎢朱利安尼出席听证会讲话+NEWSMAX精选+福克斯晚间4档节目精选+玛丽亚节目即时同传
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/648089/)
 
-12/11/2020郭先生直播：什么是美国真正的沼泽地？是谁控制着这一切并拥有沼泽地最终的决策权？中共对沼泽地有错误理解，且在过去四年忽悠川普从而拖延时间，寄希望于其任期结束。
+**By【秘密翻译组 G-Translators】**
 
-https://youtu.be/RCILyyLVySM
-
-By: 【秘密翻译组G-Translators】
-
-0
+1+
