@@ -14,8 +14,8 @@
 
 ---
 
-### [[Threerights&#8217;s Column] The People of the New Federal State of China Support the American People’s Demand for Fair Elections](/content/gnews/1/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [律师确认多猫腻投票机把川普选票改为拜登](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya UK`
 
 ### [鲍威尔转推：川普赢得内华达州六张选举人票](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
