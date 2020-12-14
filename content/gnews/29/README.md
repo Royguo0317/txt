@@ -1,25 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法国治安特警的«闪电干预»新思维
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/644871/)
+## 美国联邦通信委员会终止中国电信在美运营资格
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/645971/)
 
-作者：仰望中央公园   校对：Ikonic
+*新闻来源：Reuters《路透社》；作者：David Shepardson；发布时间：2020年12月10日*
 
-在法国特别是在首都巴黎,每年都会有大量的游行抗议示威活动，这已经是巴黎人生活的一部分。每次游行活动，对法国治安特警及机动宪兵都是一次不小的考验。既要避免游行过程中发生打砸抢暴力事件，又不可以以暴制暴。这样只要有游行发生，经常会有公共巴士站被砸烂，汽车被烧毁，甚至有商店被抢劫。人们应该还记得法国农民的壮举：拔掉警察局的铁围栏，将好几吨的牛粪倒在警察局的大院里。对政府来说这些都不重要，只是损失几百万欧元而已，好过因为警察干预而有人受伤，甚至是有人丧命。过去40多年来，巴黎治安部门对游行暴力事件就是这样睁一只眼闭一只眼，采取息事宁人的包容政策。
+*翻译/简评：MikeHua；校对/审核：万人往；Page：拱卒*
 
-随着一股如“黑命贵”，“ANTIFA”的极左思潮在西方世界泛滥，一些法国人开始抛弃传统的劳动价值观，崇尚不劳而获，通过劫富济贫实现他们所谓的社会正义。长此下去，在法国通过暴力革命，实现“人类命运共同体”也是指日可待。
+[!\[\]()!\[\](https://spark.adobe.com/page/a5szeY3uuB9mB/images/f5d5d91c-550b-41a6-8084-8256741f117f.jpg?asset_id=477c2d49-9a45-4dd0-8c28-575c8bdb408f&amp;img_etag=%223baca2ec94a750df5eeb6c180615ab8c%22&amp;size=1024)](https://spark.adobe.com/page/a5szeY3uuB9mB/images/f5d5d91c-550b-41a6-8084-8256741f117f.jpg?asset_id=477c2d49-9a45-4dd0-8c28-575c8bdb408f&amp;img_etag=%223baca2ec94a750df5eeb6c180615ab8c%22&amp;size=1024)
 
-但是发生在昨天的5千人反对“全面安全法”的游行却受到了安全特警和机动宪兵的干预。警察昨天总共进行了142次问讯，而且有的干预是在游行开始之前。警察有时还会直接冲入游行队伍对可疑人员进行盘问。用巴黎警察总局的话说，这些干预行动就是为了阻止游行队伍中出现“黑衣人团伙”。
+#### **简评：**
 
-法国政府似乎要改变过去对游行过程中的违法行为采取的包容政策，这种“闪电干预”的新策略是否奏效呢？请听法国社会学家，洛桑大学教授Olivier Fillieule在法国新闻电台Franceinfo的分析。
+美国终于对中共在美国的间谍通信公司进行彻底的清理，禁止他们在美国运行。这些通信企业都是打着公司商务合作的旗号，实质上做的是间谍监视的勾当。踢出这些企业会对中共造成一定的打击，但还不是致命伤害。结合郭先生近日对沼泽地、美国真正的背后实力的爆料，美国真正的国家力量还没有出手。现在这些行动只是开胃菜，好戏还在后头。。
 
-法国新闻台：这些“闪电式干预”是减少暴力的好办法吗？
+现在，新中国联邦给世界展示了新中国人的形象，我们可以代表十四亿中国人民和全世界融合发展。我们和共产党不一样，我们既可以拥有民主，也可以拥有繁荣。这就是我们GTV和GNews的重要性，这是我们新中国人的平台，让全世界看到我们坚守正义、传播真相，而不是像中共在美企业一样，打着合作共赢旗号，在桌子底下使着卑鄙技俩。
 
-Olivier Fillieule：这取决于从那个角度去看：从纯技术层面来看，警察在暴力事件发生之前就开始干预和盘问，这是非常奏效的。我们可以看到星期六的游行就没有多少暴力现象。警察提前锁定游行队伍里面的暴力嫌疑人，对这些人尽早进行抓捕。这是通过威慑策略，将暴力和违法行动消灭在萌芽状态。从技术层面来讲，这的确是成功的。
+#### **原文翻译：**
 
-法国新闻台：那从政治层面又怎么说？
+# 美联邦通信委员会（FCC）开始终止中国电信在美运营
 
-Olivier Fillieule：从政治上来说，我是相当不安的。今天在法国游行已非易事。在非选举时期，很难表达与政府不同的观点。政府听不进去抗议的诉求。这一切始自2014年。如今的情况越来越严峻，警民关系也越来越紧张。双方死亡的机率是一样的，这是谁都不想看到的。
+[!\[\]()!\[\](https://spark.adobe.com/page/a5szeY3uuB9mB/images/e07dbb64-e8b4-44a4-bc95-5c033fde203c.jpg?asset_id=eaecdd3d-4741-4d2b-bbde-3d30c357775f&amp;img_etag=%226df14a7d4decfb8017990a89239c7a38%22&amp;size=1024)](https://spark.adobe.com/page/a5szeY3uuB9mB/images/e07dbb64-e8b4-44a4-bc95-5c033fde203c.jpg?asset_id=eaecdd3d-4741-4d2b-bbde-3d30c357775f&amp;img_etag=%226df14a7d4decfb8017990a89239c7a38%22&amp;size=1024)FCC主席Ajit Pai, 路透社/Aaron P. Bernstein/资料图片
 
+华盛顿路透社报道—美国联邦通信委员会(U.S. Federal Communications Commission, FCC)周四表示，他们已经开始处理撤销中国电信在美国运营的授权，并采取进一步行动打压中共在美国电信行业扮演的角色。
+
+FCC主席阿吉特·派 (Ajit Pai)指出，几个美国政府部门以国家安全为由，建议撤销中国电信在美运营许可。
+
+派表示，人们“非常担心”中国电信将被迫遵守中共国政府提供信息的要求，包括通信拦截。中国电信，中共国内最大的电信公司，被授权在美国提供电信服务近20年。
+
+中国电信美洲公司(China Telecom Americas)没有立即发表评论。
+
+FCC在四月曾以国家安全风险为由警告可能关闭三家中共国有电信公司的美国业务，包括中国电信美洲公司、中国联通美洲公司(China Unicom Americas)、太平洋网络集团(Pacific Networks Corp)和他们全资控股的ComNet美国公司(ComNet (USA) LLC)。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/a5szeY3uuB9mB/images/fc20bdf8-f004-49b7-8b8b-8e17f478c115.jpg?asset_id=8ca18bb2-2676-4830-8990-8b01ab957562&amp;img_etag=%22eccd931b06c941ae0c41b966934fcea1%22&amp;size=1024)](https://spark.adobe.com/page/a5szeY3uuB9mB/images/fc20bdf8-f004-49b7-8b8b-8e17f478c115.jpg?asset_id=8ca18bb2-2676-4830-8990-8b01ab957562&amp;img_etag=%22eccd931b06c941ae0c41b966934fcea1%22&amp;size=1024)
+
+美国司法部和其他联邦部门在四月呼吁FCC撤销中国电信在美国运营的许可。
+
+2019年5月，FCC投票一致同意撤销另一家中共国有电信公司—中国移动，在美国提供服务的许可，理由是中共国政府可能会利用这一许可对美国政府进行间谍活动。
+
+FCC在周四还拒绝了华为提出的请求，即要求FCC重新考虑将这家中共国公司列为美国通信网络国家安全威胁的决定。
+
+FCC在六月表示，已正式将中共的华为和中兴列为威胁，这项声明禁止美国公司使用83亿美元的政府资金用于从这些公司购买设备。FCC上个月确认了对中兴的认定。
+
+FCC周四最终确定了一些规定，要求拥有中兴或华为设备的运营商“拆除和替换”这些设备，并建立了一个补偿计划，为规模较小的运营商拆除和更换这些服务和设备提供补贴。
+
+派指出，该委员会“无法真正实行该补偿计划，除非国会给予必要的资金”。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/a5szeY3uuB9mB/images/627276af-0c18-41ce-803c-6114d8bfa922.jpg?asset_id=b3e2e90e-7be9-4cdb-8a5e-830f52db6c36&amp;img_etag=%22618c3e1caf9406ef78f07c324d77ec27%22&amp;size=1024)](https://spark.adobe.com/page/a5szeY3uuB9mB/images/627276af-0c18-41ce-803c-6114d8bfa922.jpg?asset_id=b3e2e90e-7be9-4cdb-8a5e-830f52db6c36&amp;img_etag=%22618c3e1caf9406ef78f07c324d77ec27%22&amp;size=1024)
+
+华为在一份声明中表示，他们“对FCC强行移除我们在通信网络中的产品表示遗憾。这种长臂管辖将美国大量没有网络服务的农村地区公民置于危险之中—特别是在疫情大流行期间—这种时候可靠的通信必不可少。”
+
+[原文链接](https://www.reuters.com/article/usa-china-tech/fcc-affirms-huawei-poses-u-s-national-security-threat-idUSKBN28K2ER?il=0)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/a5szeY3uuB9mB/)
+[!\[\]()!\[\](https://spark.adobe.com/page/a5szeY3uuB9mB/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/a5szeY3uuB9mB/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0
