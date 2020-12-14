@@ -1,47 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5位澳大利亚前总理联手为疫苗站台
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/647840/)
+## 文贵先生12月11，12号直播感想
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/648218/)
 
-撰稿：RunningAway
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13021137/IMG_4952.jpg)澳喜农场
-日前澳大利亚昆士兰大学与澳大利亚全球生物技术公司CSL合作研发的疫苗，因临床试验者中出现HIV阳性症状而宣告失败，莫里森政府随即宣布终止早前计划从该公司购买5000万剂疫苗的采购计划。
+```
+作者：帕丁頓
+校對/發稿人: Ting Guo
+```
 
-澳大利亚政府已投资3.63亿澳元以支持COVID-19疫苗的研发工作，同时也投资了超过33亿澳元与4家国际公司与机构（辉瑞、诺华、阿斯利康以及疫苗联盟）签署协议，以确保及时获得安全有效的疫苗。
 
-尽管昨日美国FDA紧急批准了辉瑞公司的COVID-19疫苗，但澳大利亚卫生当局仍然坚持明年3月开始应用抗冠状病毒疫苗的计划。代理首席医学官保罗·凯利（Paul Kelly）重申“我们将以快速的但是谨慎的方式进行自己的全面评估和审批”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14053949/Unknown-1-5.jpeg)图片来源: Britannica
 
-然而有意思的是，之前从不参与公共事务的5位澳大利亚前总理却联手敦促澳大利亚人接种冠状病毒疫苗, 他们是Malcolm Turnbull,Tony Abbott, julia Gillard, kevin rudd,John Howard.
+Everglades National Park是位於美國佛羅里達州南部的亞熱帶沼澤地，形成了世間絕無僅有的生態系统，這塊濕地包括大片的草地沼澤，有160千米長，97千米寬的地帶，其中有上萬個由不到一米高的小樹組成的島嶼，這些島嶼從4千到4萬平方米大小，另外有650平方千米的比較乾燥的地區覆蓋著松科樹木，有6200平方千米是生長著高大的熱帶柏科樹木的沼澤，810平方千米的紅樹林，2100平方千米的佛羅里達海灣，生長著大量的水草，被成為「草的海洋」（以上来自维基百科）。
 
-爆料革命闫博士早已以科学的论证说明，对中共病毒目前不会有有效疫苗，使用疫苗会导致次生灾难。大型医药企业利用病毒和疫苗牟取暴利，媒体和政客们前所未有的为一款疫苗站台，背后究竟是什么样的势力和利益所驱使？是谁制造了这个病毒，并导致全世界的病毒大流行和经济萧条，不找出元凶，灾难不会自己结束！
-
-相关链接:
-
-Australian COVID vaccine terminated due to HIV ‘false positives’
-
-[https://www.smh.com.au/politics/federal/australian-covid-vaccine-terminated-due-to-hiv-false-positives-20201210-p56mju.html](https://www.smh.com.au/politics/federal/australian-covid-vaccine-terminated-due-to-hiv-false-positives-20201210-p56mju.html)
-
-2. Australia’s vaccine agreements
-
-[https://www.health.gov.au/australias-vaccine-agreements](https://www.health.gov.au/australias-vaccine-agreements)
-
-3. Australian health authorities stand firm on COVID-19 vaccination timeline despite Pfizer emergency approval in United States
-
-[https://www.abc.net.au/news/2020-12-12/cmo-paul-kelly-pfizer-australia-vaccine-covid19-timeline/12978340](https://www.abc.net.au/news/2020-12-12/cmo-paul-kelly-pfizer-australia-vaccine-covid19-timeline/12978340)
-
-4. Former prime ministers join forces to urge Australians to get coronavirus vaccine
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14054546/Unknown-13.jpeg)
 
 
 
-> [Former prime ministers join forces to urge Australians to get coronavirus vaccine | 7NEWS](https://theglobalherald.com/news/former-prime-ministers-join-forces-to-urge-australians-to-get-coronavirus-vaccine-7news/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14054347/images-10.jpeg)图片来源: blog.sina
 
+此地按照公开资料介绍15000年前就有人类居住，估计是有考古证据。欧洲人去之前是两个部落统治该地区。这种是美洲短吻鳄，白垩纪晚期（1亿-6500萬年前）第一次出現。沼澤地是叫國家公園，網絡查不到管理機構。這個地方的擁有者是維護地球秩序的嗎？按照普通人性判斷，衣錦夜行是辦不到的，而這些家族行事風格沿襲幾百年，不為人知，確實非常人可為。
 
+我印像中只有Amish人能夠過遠離現代視野的生活，可是他們只是自給自足，與世無爭。那麼沼澤地的擁有者是蜥蜴人嗎？是外星人（地球人的創造者）派到地球上的管理者？像湯米·李·瓊斯及威爾·史密斯主演的《黑衣人》。
 
-（本文纯属个人观点）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14055329/getImage.jpeg)图片来源: books.com
 
-澳喜文章[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+文貴先生又說他們也是人，那我只能推論這幾個家族的基因非常優秀，我在王海龍的《紐約意識流》裡讀到過一個類似人物“金主子”，隱居在大宅裡，一個很體面的家族幾代人給“金主子”家做管家，金先生祖先是清朝駐美國的公使。他根本不會說滿洲話。王海龍90年代初到了美國，一番周折遇到了金先生，他氣質高雅，70多歲。家裡字畫令王海龍驚嘆。清朝的財富估摸著有部分是在這家族裡。他一定是以孫大砲意想不到的方式把財富移到了海外，不然孫文也用不著頂著罵名向日本借錢。一個證據是網裡找不到《紐約意識流》裡面的內容，只有一個封面照片。
 
-欢迎加入澳喜农场：[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13172650/IMG_3537-1.jpg)
-2+
+文貴先生的直播我聽了好幾遍，他去山里兩次開會第一次是打破中國人只有CCP才能管住的謊言，第二次就是和沼澤地的主人談論滅共後如何讓中國14億人有序過渡？我也相信地球是有主人的，希望這個地球的管理者是真正的替天行道。長期以來我一直被周圍的人認作思維獨特的人，聽了郭先生爆料革命，路德訪談，我越發感到自己過去幾十年是活在謊言中（共產黨的謊言早已騙不了我）。喜馬拉雅是我世間的唯一追求，到了那裡再繼續另一種追求。
+
+**本文章僅代表戰友個人觀點**
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09040658/image0.png-13-400x225.jpeg)***[https://discord.gg/77fCxw5mFv](https://discord.gg/77fCxw5mFv)**
+[**https://**](https://https://discord.gg/77fCxw5mFv)[**gab.com/himalaya\_italy**](https://gab.com/himalaya_italy)*
+
+1+

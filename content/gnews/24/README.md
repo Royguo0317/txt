@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/12/2020 要闻同传⎢川普总统讲话+ Father Frank Pavone为川普总统祈祷并接受采访+OAN要闻+福克斯3档节目精华
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/648120/)
+## 【粤语】12/10/2020文贵：辉瑞疫苗将带来次生灾难，南京、杭州有大事發生
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/648424/)
 
-**By【秘密翻译组 G-Translators】**
-
+制作：战友之家粤语频道
+统筹：【文武全才】 剪輯：【文德】 【文桥】 配音：【John Chen】 字幕：【文桥】
 0
