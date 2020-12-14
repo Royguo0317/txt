@@ -1,13 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/11/2020 郭先生直播: 什么是美国真正的沼泽地? 是谁控制着这一切并拥有沼泽地最终的决策权?
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/646235/)
+## 终极之战，杀敌一百自损八千
+` 喜马拉雅凤凰农场–旧金山-金喜站` [轉載自GNews](https://gnews.org/zh-hans/646254/)
 
-12/11/2020郭先生直播：什么是美国真正的沼泽地？是谁控制着这一切并拥有沼泽地最终的决策权？中共对沼泽地有错误理解，且在过去四年忽悠川普从而拖延时间，寄希望于其任期结束。
+配图：[**天機**](https://gtv.org/user/5e8a5c76490f470e21d5fc01)
 
-https://youtu.be/RCILyyLVySM
+配文：**百合的家**
 
-By: 【秘密翻译组G-Translators】
+编辑：[**Amos文也**](https://gtv.org/user/5e750fdd7fdb1049cc747023)
 
+### 没有吃没有穿，自有那美国送上前；
+
+### 没有枪没有炮，美国给我们造！
+
+### ——70年中国梦
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13184337/lin_wood-1.jpg)
+
+
+### **终极之战，杀敌一百，自损八千！**
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13184346/stock-photo-usa-and-china-trade-war-us-of-america-and-chinese-flags-crashed-containers-on-sky-at-sun-1.jpg)
 0

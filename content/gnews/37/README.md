@@ -1,63 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国联邦通信委员会终止中国电信在美运营资格
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/645971/)
+## 川普总统2年前颁布13848行政命令：对外国干涉美选举实施制裁
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/646031/)
 
-*新闻来源：Reuters《路透社》；作者：David Shepardson；发布时间：2020年12月10日*
+蒙特利尔皇家山战友团laotou
 
-*翻译/简评：MikeHua；校对/审核：万人往；Page：拱卒*
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13165652/W.png)图片来自 whitehouse.gov
+2018年9月12日，在民主党“通俄门”调查进行得如火如荼之际，襟怀坦荡的川普总统发布了行政命令，“外国干涉美国选举实施某些制裁的行政命令”【1】，即13848号行政命令【2】。这项行政命令旨在防止和惩罚外国干涉美国大选，对参与、实施干预美国选举的个人、实体或国家实施制裁。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/a5szeY3uuB9mB/images/f5d5d91c-550b-41a6-8084-8256741f117f.jpg?asset_id=477c2d49-9a45-4dd0-8c28-575c8bdb408f&amp;img_etag=%223baca2ec94a750df5eeb6c180615ab8c%22&amp;size=1024)](https://spark.adobe.com/page/a5szeY3uuB9mB/images/f5d5d91c-550b-41a6-8084-8256741f117f.jpg?asset_id=477c2d49-9a45-4dd0-8c28-575c8bdb408f&amp;img_etag=%223baca2ec94a750df5eeb6c180615ab8c%22&amp;size=1024)
+川普总统此举一方面告诉陷害者，“通俄门”是子虚乌有，同时也在警告贼喊捉贼者，要守规矩，否则必将受到惩罚。
 
-#### **简评：**
+然而，那些利令智昏、孤注一掷，愿与恶魔中共沆瀣一气的政客要员们，不顾两年多前川普总统的警告，一定要欺骗舞弊的恶剧在本次大选上演。虽然，主流媒体、深藏的暗势力在极力掩盖真相，并为叛国贼拜登造势，企图以“既成事实”蒙蔽美国人，但是，舞弊必露马脚，正义不容邪恶，越来越多的美国人已经认清拜登家族通共卖国的本来面目。
 
-美国终于对中共在美国的间谍通信公司进行彻底的清理，禁止他们在美国运行。这些通信企业都是打着公司商务合作的旗号，实质上做的是间谍监视的勾当。踢出这些企业会对中共造成一定的打击，但还不是致命伤害。结合郭先生近日对沼泽地、美国真正的背后实力的爆料，美国真正的国家力量还没有出手。现在这些行动只是开胃菜，好戏还在后头。。
+《戴维哈里斯媒体》发表了题为“川普总统关于外国干预美国大选的行政命令可能会给拜登家族和其他人带来危险后果”的文章【3】
 
-现在，新中国联邦给世界展示了新中国人的形象，我们可以代表十四亿中国人民和全世界融合发展。我们和共产党不一样，我们既可以拥有民主，也可以拥有繁荣。这就是我们GTV和GNews的重要性，这是我们新中国人的平台，让全世界看到我们坚守正义、传播真相，而不是像中共在美企业一样，打着合作共赢旗号，在桌子底下使着卑鄙技俩。
+文章说，“早在2018年，川普总统就针对外国（势力有可能）干涉我们的大选发布了一项行政命令，结果发现这很适合拜登和中共国。随着更多证据的显现，这项行政命令可能具有更大的意义。
 
-#### **原文翻译：**
+中共国多年来一直在向民主党渗透，民主党从中共国大肆敛财的同时，在没有证据的情况下指责共和党是俄罗斯特工，民主党对总统进行了22个月的调查和4000万美元的花费，结果一无所获。”
 
-# 美联邦通信委员会（FCC）开始终止中国电信在美运营
+文章在行政命令的要点处作了标记，“行政命令解释了外国势力可能采取的行动是触犯法律的，它还向民主党候选人展示了他们（外国势力）需要掩盖的东西，以便继续行骗：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13165921/%E5%9B%BE%E4%B8%80-2.jpg)
+这项命令要求国家情报局局长，在本案中，即约翰·拉特克利夫（John Ratcliffe）局长，在（大选日后）45天内提交一份关于选举的报告，解释是否有任何明显的外国干涉行为，当然还要调查民主党人是否参与了那些干涉或信息误导的活动。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13170109/%E5%9B%BE%E4%BA%8C-2.jpg)
+如果有国家干涉，政府有权在美国境内没收属于该国的财产。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13170001/%E5%9B%BE%E4%B8%89-2.jpg)
+文章最后说，在最近几天和几周里，我们听到了许多外国人曾经或可能一直在干涉美国事务，甚至是我们的选举的事例。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/a5szeY3uuB9mB/images/e07dbb64-e8b4-44a4-bc95-5c033fde203c.jpg?asset_id=eaecdd3d-4741-4d2b-bbde-3d30c357775f&amp;img_etag=%226df14a7d4decfb8017990a89239c7a38%22&amp;size=1024)](https://spark.adobe.com/page/a5szeY3uuB9mB/images/e07dbb64-e8b4-44a4-bc95-5c033fde203c.jpg?asset_id=eaecdd3d-4741-4d2b-bbde-3d30c357775f&amp;img_etag=%226df14a7d4decfb8017990a89239c7a38%22&amp;size=1024)FCC主席Ajit Pai, 路透社/Aaron P. Bernstein/资料图片
+我们有很多关于加拿大多米尼公司的文章，这家公司在海外有业务，还有他们为美国大选生产的机器。昨天，我们甚至注意到，与多米尼系统一起销售的部分硬件（一种连接设备），允许远程访问这些机器，并且与中共国公司旗下的一家法国公司有关。
 
-华盛顿路透社报道—美国联邦通信委员会(U.S. Federal Communications Commission, FCC)周四表示，他们已经开始处理撤销中国电信在美国运营的授权，并采取进一步行动打压中共在美国电信行业扮演的角色。
+我们报道了一名中共国告密者，他声称中共国制造了被送到美国参加这次选举的虚假选票。
 
-FCC主席阿吉特·派 (Ajit Pai)指出，几个美国政府部门以国家安全为由，建议撤销中国电信在美运营许可。
+在过去的24小时里，我们听说了民主党人埃里克·斯沃韦尔与中共间谍的关系。如前所述，一名中共国间谍为民主党众议员斯沃韦尔筹集资金，并在其国会办公室安排了一名“实习生”。（原文完）
 
-派表示，人们“非常担心”中国电信将被迫遵守中共国政府提供信息的要求，包括通信拦截。中国电信，中共国内最大的电信公司，被授权在美国提供电信服务近20年。
+在刚刚播放的福克斯《周日早间未来》节目【4】，弗林将军对采访他的玛利亚说，“我们受到了严重、严重的外国影响，这些影响通过多米尼投票机，我们有确凿的证据表明外国（势力）影响了美国大选”。弗林将军让大家访问西德尼·鲍威尔大律师的网站DefendingtheRepublic.org，那里能够了解更多信息。
 
-中国电信美洲公司(China Telecom Americas)没有立即发表评论。
+“确凿的证据表明外国（势力）影响了美国大选”，乱局需用重典，13848行政命令为你们量身定制，我们期待情报委员会报告的出炉，将这些叛国者绳之以法，将恶魔中共曝光于世，并将其铲除！
 
-FCC在四月曾以国家安全风险为由警告可能关闭三家中共国有电信公司的美国业务，包括中国电信美洲公司、中国联通美洲公司(China Unicom Americas)、太平洋网络集团(Pacific Networks Corp)和他们全资控股的ComNet美国公司(ComNet (USA) LLC)。
+参考链接：
 
-[!\[\]()!\[\](https://spark.adobe.com/page/a5szeY3uuB9mB/images/fc20bdf8-f004-49b7-8b8b-8e17f478c115.jpg?asset_id=8ca18bb2-2676-4830-8990-8b01ab957562&amp;img_etag=%22eccd931b06c941ae0c41b966934fcea1%22&amp;size=1024)](https://spark.adobe.com/page/a5szeY3uuB9mB/images/fc20bdf8-f004-49b7-8b8b-8e17f478c115.jpg?asset_id=8ca18bb2-2676-4830-8990-8b01ab957562&amp;img_etag=%22eccd931b06c941ae0c41b966934fcea1%22&amp;size=1024)
+【1】https://www.whitehouse.gov/presidential-actions/executive-order-imposing-certain-sanctions-event-foreign-interference-united-states-election/
 
-美国司法部和其他联邦部门在四月呼吁FCC撤销中国电信在美国运营的许可。
+【2】https://www.govinfo.gov/app/details/DCPD-201800593
 
-2019年5月，FCC投票一致同意撤销另一家中共国有电信公司—中国移动，在美国提供服务的许可，理由是中共国政府可能会利用这一许可对美国政府进行间谍活动。
+【3】https://davidharrisjr.com/steven/exclusive-president-trumps-executive-order-regarding-foreign-intervention-in-us-elections-could-result-in-perilous-consequences-for-biden-family-and-others/
 
-FCC在周四还拒绝了华为提出的请求，即要求FCC重新考虑将这家中共国公司列为美国通信网络国家安全威胁的决定。
+【4】https://www.thegatewaypundit.com/2020/12/huge-serious-serious-foreign-influence-dominion-voting-machines-general-flynn-says-conclusive-evidence-foreign-influence-us-election-right-now/
 
-FCC在六月表示，已正式将中共的华为和中兴列为威胁，这项声明禁止美国公司使用83亿美元的政府资金用于从这些公司购买设备。FCC上个月确认了对中兴的认定。
-
-FCC周四最终确定了一些规定，要求拥有中兴或华为设备的运营商“拆除和替换”这些设备，并建立了一个补偿计划，为规模较小的运营商拆除和更换这些服务和设备提供补贴。
-
-派指出，该委员会“无法真正实行该补偿计划，除非国会给予必要的资金”。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/a5szeY3uuB9mB/images/627276af-0c18-41ce-803c-6114d8bfa922.jpg?asset_id=b3e2e90e-7be9-4cdb-8a5e-830f52db6c36&amp;img_etag=%22618c3e1caf9406ef78f07c324d77ec27%22&amp;size=1024)](https://spark.adobe.com/page/a5szeY3uuB9mB/images/627276af-0c18-41ce-803c-6114d8bfa922.jpg?asset_id=b3e2e90e-7be9-4cdb-8a5e-830f52db6c36&amp;img_etag=%22618c3e1caf9406ef78f07c324d77ec27%22&amp;size=1024)
-
-华为在一份声明中表示，他们“对FCC强行移除我们在通信网络中的产品表示遗憾。这种长臂管辖将美国大量没有网络服务的农村地区公民置于危险之中—特别是在疫情大流行期间—这种时候可靠的通信必不可少。”
-
-[原文链接](https://www.reuters.com/article/usa-china-tech/fcc-affirms-huawei-poses-u-s-national-security-threat-idUSKBN28K2ER?il=0)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/a5szeY3uuB9mB/)
-[!\[\]()!\[\](https://spark.adobe.com/page/a5szeY3uuB9mB/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/a5szeY3uuB9mB/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0
