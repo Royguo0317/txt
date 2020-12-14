@@ -1,14 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日重要Twitter播报（中文）12/13期
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/649491/)
+## 2020年12月14日CCP冠状病毒大流行第324集
+` GM30` [轉載自GNews](https://gnews.org/zh-hans/649478/)
 
-撰稿记者:本来、石頭、
- 校對:任意東西
- 播音:大腳印 
-剪辑：今晚打老虎
-
-[每日重要Twitter播报（中文）12/13期PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14112327/12-13-P.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14112327/12-13-P.pdf)
+中共用生物武器攻击美国并窃取大选；武汉一小区紧急排查隔离；郑州中原水产物流港停业；中共国再关停6000家银行，上亿储户措手不及……
 
 0
