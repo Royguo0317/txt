@@ -1,57 +1,92 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】跨国犯罪组织定义必将落下&#8211;滚天雷行动即将开始
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/648956/)
+## 《路德社》每日简报晚间版 2020.12.12&#8211;NewYork Time
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/646724/)
 
-**作者：纽约香草山写作组 喜马之光**
+出品《路德社》 编辑：路德社精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13234518/1212-PM-ZH-scaled.jpg)
+撰稿：文宝Porsche   译校：Arvin江牧
 
-![](https://gnews.org/2bbed47f-dc42-471c-a77b-a88c452b669f)
+翻译统筹：阿轩Action
 
+1212晚间要闻-NewYork Time
 
+**LuDe Media 20201212 Evening News, New York Time**
 
-前言：滚天雷行动即将开始，任何行动要师出有名。美国是文明法治国家更会如此。定义CCP 为跨国犯罪组织，将拿掉它身上的最后的护身符—政权合法性。
+**国家情报总监将在****18****日前报告大选评估信息**
 
-川普总统在推特上发推开始战斗
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14092542/r-t-1.png)
-图片源自推特
+**Director of National Intelligence to Report Election Assessment by Dec. 18**
 
-11月4日总统大选日至今，美国大选还没定论。这是在美国历史上罕见的。那么阻碍这次川普连任的各种力量较量中，中共和Deep State的各种影响力逐渐露出水面。离2021年1月20日总统就职日已无多日，川普总统已经没有退路必然主动奋起反击。
+根据2018年9月12日通过的《在外国干预美国大选时实施某些制裁的行政令》，国家情报总监必须在大选投票结束后的45天之内（即18日前）对任何外国政府或其代理人干预大选的意图、行为等信息进行评估，并报告给总统、国务卿、财政部、国防部长、司法部长和国土安全部长。
 
-CCP virus 铁证如山
+司法部长和国土安全部长在收到评估信息后与相关部门机构负责人商讨，然后向总统、国务卿、财政部长和国防部长提交关于“外国干预大选对基础设施安全性、对投票和选举结果的影响”的评估报告。
 
-从Dr闫的两份无可辩驳的科学报告，从各国的情报口的汇总。CCP Virus 罪证已被牢牢证实和验证。美国国家地理杂志反驳Dr闫的报告这一非常业余可笑的反击。可以看到CCP 已经日薄西山，因为有识之士都明白，再去跟随邪恶势力那将在以后被法律追责。及时的转向将会勒马于悬崖。主流左媒已无法再掩盖，美国的民意正在质疑病毒的真相。Dr闫的报告80万的下载量就说明科学家大部分是质疑WTO和CCP的自然来源的说辞的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14092550/3561.png)
-图片源自网络
+Under the Executive Order Implementing Certain Sanctions in the Event of Foreign Interference in U.S. Elections, adopted on September 12, 2018, the Director of National Intelligence must evaluate and report to the President, the Secretary of State, the Treasury Department, the Secretary of Defense, the Attorney General, and the Secretary of Homeland Security, within 45 days of the close of voting in the general election (i.e., by Dec. 18), information on the intents, conducts, etc., of any foreign government or its agents to interfere the general election.
 
-主宰世界的势力已抛弃CCP
+After receiving the assessment information, the Attorney General and the Secretary of Homeland Security will consult with the heads of the relevant agencies, and then submit an assessment of “the impact of foreign interference in the election on infrastructure security, voting, and election outcomes” to the President, the Secretary of State, the Secretary of the Treasury, and the Secretary of Defense.
 
-地球70亿人一直是需要主宰力量和秩序的。中国进入联合国是沼泽地的主人需要这个国家能恢复秩序，与世界能和平相处。基辛格是这次中美建交的功臣。当时的世界需要中国与西方联合抗击苏联。尼克松总统适势而行，进行了中美破冰之旅。但CCP 的所作所为，8964 已昭然于天下，在北京奥运会后更是野心勃勃。二战后的国际秩序正遭受着巨大的破坏。美国的力量正在逐渐被侵蚀，铁锈地带的出现又使得美国中产阶级的利益受到了极大的挑战。欧洲核心国家德法在一带一路等项目上与中共频抛媚眼。政治家与既得利益集团的逐利已经是赤裸裸的。连神圣的梵蒂冈与CCP 秘密签订了私下协议。整个国际秩序正在受到极大的挑战。美国再不苏醒将面临巨大威胁。这次CCP virus 更是将美国推到了生死抉择的边缘。主宰世界的正义势力必须作出最后抉择。当初养大CCP的是他们，现在解决CCP的一定也是他们。
+**行政命令和大选评估报告将自动引爆灭共核弹**
 
-路德社爆料分蛋糕已经完毕
+**Executive Order and Election Assessment Report Will Automatically Detonate Nukes to Exterminate the CCP**
 
-据路德社12月13日节目中谈到美国总统令，它是经过美国国家安全会反复经过论证才能通过的。是背后各种势力的妥协与合作，并不是总统一个人的意志能决定的。妥协的结局是各个代表势力能和平的解决问题，不会造成社会大动荡。妥协也是一种平衡，各种势力利益的平衡。CCP 的拿手戏就是蓝金黄，支撑其实力的就是金钱。那么拿掉它的钱，CCP 的 势力就作鸟兽散。无论国际国内也就没有人会跟随它了。另一方面，原有与其勾兑的利益集团也要从CCP 的蛋糕里分得一块。比如：华尔街这么多年与其往来，必然存在利益。那么分得一杯羹，也就能平衡和补偿他们的损失。又比如：在华的各种大型企业，很多资产和资金是很难撤出的。那也会有部分的补偿。只有蛋糕在各个势力分配完成后，才能统一来解决 CCP 。资本是无情的、资本没有正义，但资本可以被好地利用。
+行政命令将评估对象限于外国干预大选的情况，避免两党之争和国家分裂。总统无权干预整个评估流程，避免被扣上“政治偏见”的帽子。
 
+情报总监由总统直接领导，下辖16个情报部门和4个任务单元，不可能全部被中共蓝金黄。任何机构和个人如果发现有干预美国大选的信息，也可以单独向总统报告。
 
+该行政令借助2年前民主党捏造的通俄门事件得以顺利发布，已经整合到各部门工作流程中2年多，执行无阻力。
 
+行政令把情报信息变成了直接制裁的行动，避免了冗长的法律程序。该制裁行动避开受外交豁免权保护的中共政府，直接针对盗国贼家族及其白手套实际藏匿资产的组织和个人采取行动。
 
+正式报告一旦递交，直接或间接从事干预美国大选的个人、机构和其代理人在美国境内拥有或控制的资产将被自动查封，不得转让、支付、出口、撤回或其他方式处理。
 
-图片源自 GTV
+The executive order limits the assessment to foreign interference in the election to avoid bipartisan strife and national division. The President has no authority to intervene in the entire assessment process to avoid being labelled as “politically biased”.
 
-司法部与FBI即将领导换人代表滚天雷的开始
+The Director of Intelligence is under the direct supervision of the President, with 16 intelligence departments and 4 mission units, which are unlikely all to be Blue-Gold-Yellowed by the Chinese Communist Party. Any agency or individual who discovers information about interference in the U.S. election can also report it separately to the president. The executive order, which was issued smoothly with the help of the Russia-gate affair fabricated by the Democratic Party 2 years ago, has been integrated into the departments’ workflow for more than 2 years and has been executed without resistance.
 
-路德社14日爆料美司法部与FBI领导人即将被换，新上任的领导可能会是独立法官。这一重磅信息，说明美国政府层面与司法层面已经快速进行行动。司法部在拜登案子上迟迟不立案，FBI对外国势力渗透总统大选反应迟钝。这些本不应该发生的事，在换人后会立竿见影。这四年川普总统真正得力干将没几个，其行政效力受到大大影响和制约。这些重要部门如今“一一回归”到川普身边。那么川普总统凝聚力量可以开始打出重拳。
+The executive order turns intelligence information into a direct sanctions action, avoiding a lengthy legal process. The sanctions action bypasses the Chinese Communist government, which is protected by diplomatic immunity, and directly targets organizations and individuals whose assets are actually hidden by the kleptocrats family and their white-gloves (assets agents).
 
-综上，定义跨国犯罪组织是必然，也是滚天雷行动的开始。拿掉CCP 的外交豁免，才能开始切蛋糕。更是师出有名的正义需要。
+Once the official report is filed, assets owned or controlled in the United States by individuals, institutions, and their agents, who directly or indirectly engaged in interference with the U.S. election, will be automatically seized and may not be transferred, paid, exported, withdrawn, or otherwise disposed of.
 
-校对发稿：悟空
+**林伍德再发重磅檄文讨伐中共**
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+**Lin Wood Issued Another Heavyweight Diatribe Against the CCP**
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+他发推说，美国爱国者们做好准备，听川普总统的，行动将在接下来几天迅速展开，中共享生物武器袭击了我们的国家，又再次（网络）攻击我们以窃取选举，我们绝不能接受。川普接着发推回应，我们刚刚开始战斗。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14092131/GNEW-GTV-MOS-LOGO-2.jpg)
+He tweeted, “American patriots get ready, listen to President Trump, the action will start quickly in the next few days, the Chinese Communist Party attacked our country with bio-weapons, and again (cyber) attacked us to steal the election, we must not accept. ” Trump then tweeted in response, “We have just begun the fight. “
 
+**华盛顿举行挺川大游行**
 
+**March for Trump held in Washington**
 
-2+
+弗林将军在游行现场发表演讲时，川普总统乘坐的空军一号从天空飞过，民众纷纷向飞机挥手致意。
+
+As General Flynn addressed at the parade, the Air Force One in which President Trump was riding flew through the sky and the crowd waved to the plane.
+
+**被中共间谍方芳渗透的****Eric Swalwell****将被调查**
+
+**Eric Swalwell, Infiltrated by Chinese Communist Spy Fangfang, to be Investigated**
+
+共和党众议员Jim Sensenbrenner，12月11日向众议院道德委员会提交一份投诉，敦促该委员会立即调查有关Eric Swalwell疑遭中共间谍渗透的指控。
+
+Republican Rep. Jim Sensenbrenner, filed a complaint Dec. 11 to the House Ethics Committee, urging the committee to immediately investigate allegations that Eric Swalwell was suspected of being infiltrated by Chinese Communist spy.
+
+**俄罗斯核潜艇同时发射****4****枚弹道导弹**
+
+**Russian Nuclear Submarine Launches Four Ballistic Missiles Simultaneously**
+
+这4枚由部署在太平洋的北风之神级核潜艇“弗拉基米尔.诺莫马赫”号发射的“布拉瓦”导弹，从靠近美阿拉斯加的太平洋海域发射，命中靠近挪威的卡林半岛的预定目标。俄罗斯北海舰队有1艘、太平洋舰队有2艘的北风之神级核潜艇，每枚布拉瓦导弹可携带10枚核弹头。
+
+The four “Bulava” missiles, mounted on the Vladimir Nomomakh, a Dolgorukiy-class
+
+nuclear submarine deployed in the Pacific Ocean, launched from the Pacific Ocean near Alaska, hit their intended targets on the Carlin Peninsula near Norway. The Dolgorukiy-class nuclear submarines, on which “Bulava” missiles mounted and each missile can carry 10 nuclear warheads, one owned by the Russian North Sea Fleet and two by the Russian Pacific Fleet.
+
+#CCP\_is\_terrorist   #TakeDownTheCCP
+
+文案：《路德社》简报组：文寶Porsche；
+翻译：《路德社》翻译组
+审核校对：玫瑰天空
+上传排版：青葫芦娃
+
+0
