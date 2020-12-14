@@ -1,14 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日重要Twitter播报（中文）12/13期
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/649491/)
+## 【路德时评】12.12 【精华版粤语配音】： 何为沼泽地 ？
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/649694/)
 
-撰稿记者:本来、石頭、
- 校對:任意東西
- 播音:大腳印 
-剪辑：今晚打老虎
+制作单位：战友之家-粤语组
+制作团队：螃蟹团长、 打杂的、文东、羟氯喹、joey文乔
 
-[每日重要Twitter播报（中文）12/13期PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14112327/12-13-P.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14112327/12-13-P.pdf)
+
+
+摘要：
+美国爱尔兰裔以波士顿为基地控制名牌大学，学历高且是警察军队消防队等的主力。但川普不属于任何势力。
 
 0

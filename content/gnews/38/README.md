@@ -1,18 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 寒风中的战斗
-` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/648939/)
+## 《路德社》精选主题专栏：鲁·道布斯发推声称2020年选举为“网络珍珠港事件”
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/646351/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14091521/%E5%AF%92%E9%A3%8E%E4%B8%AD%E7%9A%84%E6%88%98%E6%96%97.png)
-作者：喜马拉雅京都富士会 华夏的文丽
+《路德社》精选主题专栏组出品
 
-最近，日本的疫情暴增，全国平均每天新增感染人数高达3000人，东京有几天超过了600人。现在是12月份，日本人在忙着办年货迎接2021年的新年，每天看着新增感染人数和联想到每个数字后面的家庭，情况不容乐观很揪心。
+12月11日，美国福克斯（FOX）电视台著名节目主持人鲁·道布斯发送推文，声称：2020年选举是“网络珍珠港”事件，左翼机构已经联合起来推翻美国政府。
 
-12月13号，喜马拉雅京都富士会的战友们，在严寒中的街头～在东京的繁华地区原宿车站，大声宣传病毒真相，用日文喊口号和演讲。可是，很多日本人行色匆匆并没有停下来仔细聆听战友们的大声疾呼。战友们也给路人派发印有闫丽梦博士和病毒真相的日文传单，希望日本民众能回家仔细阅读，从而了解所谓的新冠不是流感，而是来自中共军方实验室的生化武器。
 
-到现在为止，日本的电视台、广播电台及报纸等媒体，没有提醒民众减少不必要的外出。相反，鼓励大家在外就餐和四处旅游。跟第一次日本全国进入紧急状态时相比，现在每天的新增感染人数的数字远远大于当时，非常令人遗憾。
 
-投身爆料革命的新中国联邦人，此时在街头大声疾呼，希望能够将病毒真相传达给日本人。尽管能仔细聆听的人很少，但战友们的满腔热忱令人感动。很多在其它国家和地区的战友也通过观看富士会在G-TV的直播，给在现场的战友们加油打气。全世界战友都在祈祷同一件事～传递病毒真相，祈祷世界和平、健康、安宁、祥和。
+> The 2020 Election is a cyber Pearl Harbor:
+> 
+> The leftwing establishment have aligned their forces to overthrow the United States government [#MAGA](https://twitter.com/hashtag/MAGA?src=hash&amp;ref_src=twsrc%5Etfw) [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw) [#Dobbs](https://twitter.com/hashtag/Dobbs?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/v1hOAPMqGY](https://t.co/v1hOAPMqGY)
+> — Lou Dobbs (@LouDobbs) [December 10, 2020](https://twitter.com/LouDobbs/status/1337154346795012098?ref_src=twsrc%5Etfw)
 
-1+
+
+
+伴随推文的还有一份文件截屏，其中提到了四位人物：政治领袖豪尔赫·罗德里格斯（Jorge Rodriguez），委内瑞拉通讯社的部长；政治领袖哈利勒·马吉德·马祖布（Khalil Majid Mazoub），黎巴嫩裔的委内瑞拉人；技术专家古斯塔沃·雷耶斯·祖梅塔（Gustavo Reyes Zumeta），美籍委内瑞拉人；首席执行官安东尼奥·穆吉卡（Antonio Mujica）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13200452/ddd.jpg)
+“……这四人和他们的同伙计划实施了针对美国的9-11式的选举，同伙包含媒体、民主党和中国。这是一个网络珍珠港事件。……”
+
+“……我们有Dominion（系统）的身份，角色和背景。Smartmatic（公司）的人。这将变成大量的RICO备案。……“
+
+“……古巴、委内瑞拉与乔治·索罗斯，中国共产党，民主党和美国媒体违反了美国人民的意愿。……”
+
+“……我们已经发现了中国在选举前四个星期就向Dominion注入了4亿美元的投资。……”
+
+“……我们拥有的系统显示了如何通过互联网从外部来控制（投票）机器，（这种行为）违反投票标准，联邦法律，州法律和合同。……”
+
+文中如是说。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13200620/333.gif)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13200632/555.jpg)
+这份文件无疑又是一记重锤砸向了选举舞弊案之后的利益集团。同时，我们也看到随着2020年美国总统大选舞弊案件的持续发酵，美国各个部门也紧锣密鼓地通过各自情报网收集相关地舞弊证据，一场由此而生地情报大战已经悄无声息地拉开了帷幕。
+
+通过近期“路德时评”节目我们了解到美国地情报部门不仅有CIA（中央情报局），还有隶属于不同部门的其他15个组织（如图），他们分别有各自的情报来源，这样不仅可以使他们相互协调、相互验证情报的真实性，同时也避免了其中任何一个部门被渗透之后而造成的整个情报机构的瘫痪，这就是为何中共在“蓝、金、黄”美国的CIA之后而并没有造成美国整个情报系统失效的真正原因。
+
+#文章仅代表作者个人观点#
+
+本文作者：灭共文翰
+审核校对：玫瑰天空
+上传排版：糖果儿
+
+0

@@ -1,76 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》每日简报早间版 2020.12.13&#8211;NewYork Time
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/646779/)
+## GTV的未来已来
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/649093/)
 
-出品《路德社》 编辑：路德社精选新闻专栏组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14000255/1213-AM-ZH-scaled.jpg)
-撰稿：文寶Porsche   译校：Arvin江牧
+HTS-02C-202012-006
 
-翻译统筹：阿轩Action
+贻人小筑 （喜马拉雅东京樱花团）
 
-1213早间要闻-NewYork Time
+目前一则信息在喜马拉雅战友群中引起轰动：
 
-**LuDe Media 20201213 Morning News, New York Time**
+“GTV已经成为世界奇迹，战友共同铸造。在similarweb网站上的排名稳定在‘世界新闻与媒体’前50。总浏览上升7.62%。来自中国大陆的流量上升18.6%，占总浏览的37.91%。爆料革命终归是中国人最关心，利益攸关。翻墙浏览GTV 是救命保财的必须。在所有的浏览中，82.83%是直接输入GTV.org网址，9.32% 是搜索后浏览，这反映读者主要是用电脑浏览，不是App浏览。浏览者是自自主浏览，没有借助营销导流。GTV的价值可见一斑。
 
-**美国驻华使领馆发推警告中共军事威胁**
+230条款取消后，世界华文媒体只有GTV了，GTV投资者们想不富都不行，边灭共、边致富。感谢文贵先生！”
 
-**U.S. Embassy and Consulate in China Tweeted Warning of Military Threat from CCP**
+对于刚完成手续不久的GTV原始投资者而言，在2020年行将结束前，没有比这更棒的消息了。
 
-推文说，北京的军事挑衅将全世界置于风险之中，加剧了从喜马拉雅地区到南中国海的暴力冲突威胁。中共不计后果地使用军队，破坏了印度-太平洋地区及全世界的稳定。中共在存在争议的南中国海区域建立了军事化基地，利用它来阻断通道，封闭航路。美国致力于与盟国和合作伙伴共同努力抵制中共的破坏性行为，倡导一个开放的印太地区。
+GTV在众多在线视频平台中，一直以非常特殊的形式存在。它是基于UGC/PUGC为主的短中视频内容生态的社区，同时还囊括类Twitter功能的盖特（盖特将很快从GTV剥离出去独立运营）。这与PGC内容的高度集中不同，整体内容生态更为长尾、与粉丝的互动更为短平快、内容也更容易进化。
 
-Beijing’s military provocations are putting the world at risks and increasing the threat of violent conflicts from the Himalayan region to the South China Sea, the tweet said. The CCP’s reckless use of military forces has destabilized the Indo-Pacific region and the world. The Chinese Communist Party has established militarized bases in the disputed South China Sea region, using it to block access and close shipping routes. The United States is committed to working together with allies and partners to resist the destructive behavior of the CCP and to advocate for an open Indo-Pacific region.
+那么对标同类型的YouTube平台，GTV又有哪些特色呢？
 
-**推文深度分析：这是要对中共动手的信号**
+我们先看看YouTube上最热门的播主：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14095557/%E7%94%BB%E5%83%8F1-11.png)
+从下载量上看，YouTube上前五大频道分别是游戏（31%）、娱乐（19%）、个人（12%）、音乐（11%）、喜剧（8%）。显而易见，作为视频分享平台翘楚的YouTube，其主要用户集中在30岁以下、对娱乐内容热衷的年轻互联网用户。
 
-**Deep Analysis of the Tweet: Signal to Take Actions Against the CCP**
+GTV作为互联网媒体的用户自由表达权不断收到压制的特殊时期孕育而生，上线伊始便汇聚了全球大量华人，且内容主要集中在时政、金融等领域，这决定了GTV的用户相较YouTube更加成熟，在社会结构中占据更重要的经济地位，也决定了其未来具有更强的内容延展性和社区影响力。
 
-中共如何将世界置于风险中？南海军事化，阻断航道，给全球经济带来了风险；台湾是美国最重要的供应基地，中共威胁台湾给美国经济带来了风险。
+对于GTV的未来，它的机会还包括：
 
-当初伊拉克占领科威特给世界能源供应带来风险，所以被灭；当年的巴拿马独裁政府控制了运河，给世界经济带来风险，所以也被灭；而沙特也是独裁，但对世界不产生风险还每年购买美国军火，所以美国不会灭它甚至保护它。
+1. 由于互联网防火墙的限制，华人媒体一直处于高压管理状态中，GTV是唯一具有丰富华语内容且不受防火墙控制的视频分享媒体平台。随着防火墙的倒塌，14亿华人市场的井喷效应，将带来GTV价值指数级的增长机会；
+2. 5G时代的到来，结合不同广播媒介的融合，为GTV成为跨渠道媒体运营平台提供了最好的契机；
+3. 政治环境、法律环境的变化（如美国230法案的废除），让同类媒介（如YouTube）面临新的政策压力和风险，一个旧媒体时代的黄金十年将成为过去；
+4. G金融，特别是G币的推出，为GTV用户提供了一个变现方案，促成其快速形成一个良性发展生态。
 
-推文跳过中国政府（有外交豁免权），直接点名中共（没有外交豁免权），暗示美国对其动手没有法律障碍，时机一到，随时可以行动。此推文发布出来就暗示一定要解决这个威胁，否则美国将彻底失信于天下。
 
-How the CCP puts the world at risks? The militarization of the South China Sea, blocking shipping routes, puts the global economy in danger; Taiwan is the most important supply base for the United States, and the Chinese Communist Party’s threat to Taiwan puts the U.S. economy at risks.
+GTV的未来已来，请大家系好安全带，一同出发！
 
-Years ago, Iraq’s occupation of Kuwait brought risks to the world’s energy supply, so it was destroyed. The Panamanian dictatorship of the day controlled the canal and posed risks to the world economy, and it was also exterminated. Although Saudi Arabia is also a dictatorship, it poses no risks to the world and buys arms & weapons from the U.S. every year, therefore the U.S. does not eliminate it and even protects it.
 
-The tweet skipped the Chinese government (which has diplomatic immunity) and directly named the Chinese Communist Party (which does not have diplomatic immunity), implying that there are no legal obstacles for the U.S. to move against it and is ready to take actions when the time comes. This tweet was released to imply that the threat must be resolved, otherwise the U.S. will completely lose its credibility to the world.
 
-**习近平提出十大国家安全观，政治安全放首位**
-
-**Xi Jinping Proposed Ten National Security Concepts, Putting Political Security First**
-
-习近平在政治局会议中虽然提出了十条安全观，其实他真正在乎的只有政治安全。所谓的政治安全就是习近平的安全，不服从他领导的人就是在政治上不安全。
-
-其他官话翻译成大白话，主要内容是：统一由他领导；要人人过关；打着人民的名义为几个家族服务；以安全的名义随时限制百姓自由、没收人民财产；建立一支几万人的、刘胡兰式风格的安全队伍，安插到军队的每一个角落，用杠杆效应来监视控制几百万军人。
-
-Although Xi Jinping put forward ten security concepts in the Political Bureau meeting, in fact the only thing he really cares about is political security. The so-called political security is Xi Jinping’s security, and those who do not submit to his leadership are politically insecure.
-
-Translating other official words into the vernacular, the contents mainly are: unified leadership under him; political censorship for each individual; to serve several families in the name of the people; to restrict the freedom of the people and to confiscate people’s property casually in the name of security; to build a Liu Hulan style security team of tens of thousands of people, and to plant into every corner of the PLA to monitor and control millions of soldiers using leverage effects.
-
-**官话之外的真正内容—如何保护习近平**
-
-**The Real Content Beyond the Official Words – How to Protect Xi Jinping**
-
-内部战友透露会议的实质性内容是，讨论在美国和北约采取行动时，怎样保护习近平的安全（政治安全）；游说、渗透美国和北约，阻止其采取行动，化解危机；如果化解不了，首先要保障习近平安全，方式是通过安全队伍的杠杆效应发动全军做肉盾；只要保护好了习近平的安全，就有奖赏。
-
-Internal battle companions revealed that the substance of the Politburo meeting was: to discuss how to protect Xi Jinping (political security) when the U.S. and NATO take actions; to lobby and infiltrate the U.S. and NATO to prevent them from taking actions in order to resolve the crisis; if the crisis cannot be resolved, Xi Jinping’s safety should be ensured first, leveraging the security team to motivate the entire PLA military as a flesh shield; as long as Xi Jinping is well protected, there will be a big reward.
-
-**香港公务员被要求宣誓拥护基本法和香港特区**
-
-**Hong Kong Civil Servants Asked to Swear to Uphold the Basic Law and the HKSAR**
-
-全港的十八万名公务员从下月初起，一个月内必须完成宣誓或签署声明，拥护《基本法》和效忠特区政府，拒绝者将被解雇或被勒令退休。
-
-All 180,000 civil servants in Hong Kong are required to complete an oath or sign a declaration to uphold the Basic Law and pledge allegiance to the Hong Kong SAR government within a month from the beginning of next month, and those who refuse will be dismissed or ordered to retire.
-
-#CCP\_is\_terrorist   #TakeDownTheCCP
-
-文案：《路德社》简报组：文寶Porsche；
-翻译：《路德社》翻译组
-审核校对：玫瑰天空
-上传排版：青葫芦娃
-
-0
+1+
