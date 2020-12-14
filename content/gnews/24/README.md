@@ -1,26 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 排沼泽新行动：川普总统要解雇司法部长巴尔?
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/645917/)
+## 【突发】弗林：我们现在就有确凿的外国影响美国大选的证据
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/645959/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13153732/280e11981e73c76ffbbf5fd228c65dcc.jpg)图片来源：[**上游新闻**](https://www.cqcb.com/headline/2020-12-13/3412860_pc.html)
-据美国有线电视新闻网（CNN）12月12日报道，川普总统在白宫周五的会议上讨论了解雇司法部长威廉·巴尔（William Barr ）的可能性，但没有迹象表明他会在1月份第一任总统任期结束前采取这样的行动。
-
-报道声称，川普总统在与顾问的一次会面中表达了对巴尔的不满，因为在2020年总统竞选期间，巴尔对亨特·拜登（Hunter Biden）税收的联邦调查一事一直秘而不宣。亨特是民主党总统候选人乔·拜登（Joe Biden）之子。在总统竞选期间，川普团队曾愤怒地谴责亨特·拜登利用他父亲担任副总统的便利，寻求到多项商业交易和利益。尽管CNN声称川普团队对亨特及其父亲的指控缺乏证据，但不久前沸沸扬扬的亨特硬盘事件无疑是对CNN的强力反驳。
-
-CNN还称，川普总统得知巴尔在考虑在总统结束第一任期前离职而感到愤怒。到12月初，川普总统对巴尔的不满达到了爆发点，但顾问们请求他让巴尔继续留职。本周六早上，川普总统还在推特（Twitter）上抱怨巴尔，声称巴尔令他”非常失望”，并公开谴责巴尔在选举前对披露亨特·拜登的司法调查上无所为。
-
-威廉·巴尔曾于1991年11月至1993年1月期间，在当时的乔治·布什（George H. W. Bush）总统内阁中担任过司法部长一职。2019年2月，威廉·巴尔接替他的前任杰夫·塞普斯（Jeff Sessions），再次担任司法部长至今。杰夫·塞普斯部长在其任期内备受争议、麻烦不断，因为故意回避了对川普总统的通俄门调查，也使得川普总统对他一直不满意，最后辞职下台。
-
-**评论**：川普总统一直谴责CNN是假新闻（Fake News），出自CNN的上述报道真假难辨，读者应慎重对待，独立思辨。巴尔部长对于亨特·拜登门的遮掩处理，可以说他是作为大沼泽（deep swamp）的一部分，合谋对拜登家族进行包庇和维护，暗地危害川普总统的2020年竞选；但也可以说，他作为川普总统的核心阁员，与川普总统一道，深谋远虑，深耕布局，着眼大局，等待关键时刻做出致命一击。孰是孰非，自在人心，在于巴尔部长的良知、道义和担当。但我们相信，纸包不住火，邪不压正，阴谋真相终将被揭露，阳光必将摧毁黑暗，胜利一定属于川普总统，属于美利坚合众国。God bless USA!
+- 编辑：Victor Torres
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**[原文链接](https://www.businessinsider.com/trump-barr-attorney-general-hunter-biden-taxes-election-2020-12)**
+**西班牙2020年12月13日电/西喜社——**周日上午，弗林将军接受Sunday Morning Futures的玛丽亚·巴蒂罗莫采访，他说：“我们在多米尼投票机上，存在非常非常严重的外国影响。”
+弗林将军指出，每个人都应访问悉尼·鲍威尔（Sidney Powell）的网站DefendingtheRepublic.org，以获取更多信息。
+他补充说：“我们现在就有确凿的外国影响美国大选的证据。”
 
-翻译：Diego
+**原文链接：**[https://www.thegatewaypundit.com/2020/12/huge-serious-serious-foreign-influence-dominion-voting-machines-general-flynn-says-conclusive-evidence-foreign-influence-us-election-right-now/](https://www.thegatewaypundit.com/2020/12/huge-serious-serious-foreign-influence-dominion-voting-machines-general-flynn-says-conclusive-evidence-foreign-influence-us-election-right-now/)
 
-校对：沙拉猫
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/18075158/Portada-Dominion-ccp-1.jpeg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0
