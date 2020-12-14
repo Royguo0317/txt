@@ -1,19 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/12/03-4 CCP病毒每日疫情直播简报
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/648325/)
+## 澳洲议员：政府应效仿美国，禁中共党员入籍
+` GM77` [轉載自GNews](https://gnews.org/zh-hans/648900/)
 
-战友之家图文摘要及多语组
+整撰：文錦  复核：WENJUN
 
-[313-314\_English\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011203/313-314_English_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011203/313-314_English_CCP_Virus_Updates.pdf)
+在西方媒体报导中共利用195万党员，大规模渗透西方政府机构、跨国企业、科技学术领域，以实现其全球霸权的目的后，澳洲联邦参议员阿贝兹（ Eric Abetz）表示，中国共产党组织是丑陋专制的团伙，其成员的第一承诺就是推进中共的专制利益，澳洲应效仿美国，禁止中共党员入澳籍。
 
-[313-314\_French\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011202/313-314_French_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011202/313-314_French_CCP_Virus_Updates.pdf)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14090848/%E5%9B%BE%E7%89%87-1-24.png)
 
-[313-314\_German\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011202/313-314_German_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011202/313-314_German_CCP_Virus_Updates.pdf)
+图为参议员阿贝兹出席2020 CPAC会议
 
-[313-314\_Japanese\_CCP\_Virus\_Updates-](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011202/313-314_Japanese_CCP_Virus_Updates-.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011202/313-314_Japanese_CCP_Virus_Updates-.pdf)
+12月14日，《澳洲人报》披露中共党员大规模任职于跨国公司，包括与澳洲有上亿国防合同的波音公司、正在开发中共病毒（冠状病毒）疫苗的制药公司辉瑞（Pfizer）和阿斯利康（AstraZeneca）、驻上海的领事馆、澳新银行（ANZ）以及西方大学。
 
-[313-314\_Spanish\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011200/313-314_Spanish_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14011200/313-314_Spanish_CCP_Virus_Updates.pdf)
+参议员阿贝兹在接受澳洲英文大纪元采访时表示，《澳洲人报》披露的数据库进一步揭示了中共独裁政权有目的地将其成员安排在有影响力的职位上，意图在经济和政治上进行颠覆和干预，实现其不良目的。他说：“中国共产党组织不是一个良性的关系网，其成员必须宣誓效忠‘对党忠诚、为共产主义奋斗终身、永不叛党’”。
+
+阿贝兹呼吁澳洲效仿美国，禁止中共党员入籍澳洲。他说：“中共组织是丑陋专制的团伙，它的成员的第一承诺就是推进专制的利益”。他表示美国国会已经认定，中共的价值观和其成员对中共的忠诚，与对美国的忠诚是不相容的。“中共党员在对美国做出承诺之前，需要先对外国（中共）独裁政权的政治机器做出承诺”，他说。
+
+10月2日，美国公民及移民服务局（USCIS）发布政策通告说，共产党员或其它极权主义政党的党员，或其附属组织的成员申请移民，都不会获得受理。
+
+12月3日，美国国务院对中国共产党党员赴美旅行签证实行新限制。根据新规定，中共党员及其直系亲属的非移民签证（B1/B2）将由十年减至为一个月，并且将是一次入境签证。
+
+阿贝兹表示，澳洲需要仔细考虑一个类似美国的程序，即禁止中共现役党员和极权主义政权的成员成为澳洲公民，以保护澳洲不受外国干涉。他说：“人们不能在保证对澳洲及其人民忠诚并分享其民主价值观的同时，又拥有一个外国极权主义政党的党员身份。特别是这个政党犯下了许多侵犯人权的罪行，这是一个与我们价值观相悖的外国政党”。
+
+相信会有越来越多自由国家会跟随美国的脚步，阻挡中共党员身份的人入境和入籍，也会逐步清理在籍和在职的中共党员，这是伴随中共走向灭亡的必经之路。新中国联邦将成为搭建追求自由民主价值观的中国人及全球华人与自由国家之间的桥梁，即使是在册的中共党员，现在跟随爆料革命一起消灭中共还来得及，不要愚蠢到做中共的殉葬品，为自己争取一张未来全球清算的“免死牌”吧。
+
+参考链接：
+
+[https://www.epochtimes.com/gb/20/12/14/n12618781.htm](https://www.epochtimes.com/gb/20/12/14/n12618781.htm)
 
 0
