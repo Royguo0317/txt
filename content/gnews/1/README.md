@@ -1,28 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西方医药巨头潜伏着大量中共党员
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/653015/)
+## 中共成功渗透到辉瑞、阿斯利康和葛兰素史克等疫苗巨头，“超限战”已全面打响
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/653063/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15150351/Capture-117.jpg)图片来源：（www.sohu.com）
-据“国家档案”（National File）网站近日报道，今年早些时候，一份包含近200万名中共党员的名单泄露给了英国、澳大利亚、比利时和瑞典的国际媒体，其中清晰可见成千上万生活和工作在西方国家的党员姓名，他们供职的单位包括英国政府和横跨整个西方世界的顶级军工企业、金融机构和医疗公司。
+俄罗斯莫斯科喀秋莎农场  文喜
 
-英国《每日邮报》（The Daily Mail）证实，一份有“详细分析”的报告披露，“参与新冠疫苗研发的医药巨头，辉瑞（Pfrizer）和阿斯利康（AstraZeneca），共计雇佣了123名中共死忠分子。”这两家公司目前都在参与新冠疫苗的开发工作。
+校对上传   银河
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15151540/54.png)
+英国《每日邮报》12月13日报道，全球议员联盟“议会间中国联盟”(inter-parliament Alliance on China，简称 IPAC)从一位不愿透露姓名的中共国异见人士手中获得了一个数据库，其中包含近200万中共党员的海外部署详情【1】。《每日邮报》揭露，航空航天巨头空中客车、劳斯莱斯和波音等公司有数百名中共党员雇员。此外，在辉瑞和英国制药商阿斯利康发现123名共党雇员。
 
-《每日邮报》指出，“这不仅仅是对涉事公司形象以及国家道德规范的威胁，而是对国家安全的威胁。”涉事公司还包括在军工制造业中举足轻重的波音（Boeing）、空客（Airbus）、泰雷兹（Thales）和劳斯莱斯（Rolls-Royce）等巨头。这些设计和制造最先进武器的公司，本应该责无旁贷地保卫英国最敏感的资产和设施秘密，然而，它们却大量地雇佣了数以百计的中共死忠分子。除了辉瑞和阿斯利康，葛兰素史克（GlaxoSmithKline）也雇用了许多中共党员，其结果是，大量中共党员得以进入这类重要企业的网络系统，窃取设计资料和供应链等方面的信息。
+目前多个媒体都已获得此数据库的共享权限。澳大利亚天空新闻（SkyNews.com.au）在同天节目中披露中共对全球的严重渗透，目前事件持续发酵中。【2】
 
-“国家档案”的报道披露，被指控利用自己儿子亨特·拜登（Hunter Biden）从中共大获其利的乔·拜登（Joe Biden），最近为FDA批准辉瑞新冠疫苗大唱赞歌，称其是“划破无端黑暗的一道光”。除此之外，拜登还会见了几大疫苗生产商的负责人，其中就包括辉瑞和阿斯利康的代表。
+引起世界警觉的是，根据自然新闻（Natural News）报道，经过多次分析这份中共党员部署的数据库，其中很多人已经成功渗透到各国的疫苗行业。很多名单中的中共党员在医药巨头辉瑞(Pfizer)、阿斯利康(AstraZeneca)和葛兰素史克(GlaxoSmithKline)就职，从事中共冠状病毒疫苗生产研发。【3】
 
-前不久，“国家档案”报道了美国国家情报总监约翰·拉特克利夫（John Ratcliffe）指控中共双管齐下，用贿赂和敲诈的手法，胁迫美国国会议员通过有益于中共国的政策。此外，一份新挖出的备忘录把贺锦丽（Kamala Harris）也卷入了拜登家族与中共国的是非中。这份备忘录把贺锦丽列为拜登家族“第一阶段国内联络/项目”的“关键联络人”。
+自然新闻记者还补充，中共改造了冠状病毒成为生物武器，结合这份数据库的内容，有理由相信中共利用其间谍渗透进入疫苗制造企业，目的是让疫苗变成“第二波”生物武器。一些推行疫苗授权的企业与个人可能已经被中共的蓝金黄控制，这是中共组织超限战摧毁美国战术部署的一部分。
 
-评论：
+根据郭文贵先生12月13日直播透露，中共与世界黑暗势力在疫苗生产研发上已经深度勾结【4】。中共党员海外部署数据库仍待挖掘，目前公布的8192个名字仅仅是冰山一角，但我们不断看到科技巨头如谷歌，脸书，YouTube 和推特等网络平台帮助中共进行舆论审查，镇压真相的发声。种种线索都指向中共在美国本土全面发动了生物病毒及信息媒体“超限战”的事实。这些大科技公司一定有大量中共党员的身影。最被熟知的莫过于推特独立董事李飞飞和中共的关系。
 
-这份海外党员名单早在今年8月份就已曝光，之后的近四个月的时间里，“对华政策跨国议会联盟”对名单进行了彻底调查，厘清了中共对西方世界关键领域的渗透。对与中共关系暧昧的西方政客和企业家来说，中共的“蓝金黄”手段“魅力难挡”，但哪怕是这些人，如今也从宏观视角看到自己生活的自由世界几乎要被中共“转基因”成功，也难免会吓出一身冷汗吧？根据路德先生12月10日爆料，美国即将把中共定性为“国际犯罪组织”，这意味着名单上的中共党员全部都会是犯罪组织的成员。现在这份名单再次被媒体“炒热”，说明美国实施对中共的制裁已经到了倒计时阶段。无论是享受过“蓝金黄”的西方精英，还是被中共操纵的棋子，此时都应该好好想一想自己到底何去何从？识时务者为俊杰，反水灭共，还是余生如纳粹战犯一般活在被全球猎杀的恐惧中，答案不言自明。
+换句话说，大科技公司与中共深度勾兑，疑似故意招募中共背景雇员来建立言论审核制度，以此控制和引导舆论，删除掩盖所有选举盗窃的证据。同时，这些选票篡改被证明是通过有中共背景的多明尼投票系统进行的。这是一系列阴谋颠覆美国的大规模国际犯罪。
 
-[原文](https://nationalfile.com/chinese-virus-chinese-vaccine-ccp-leak-confirms-pfizer-astrazeneca-employed-123-communist-party-members/)
+（文章仅代表作者个人观点）
 
-翻译：萌萌的朋克
+**参考链接：**
 
-校对：文旺
+- 泄露的数据库揭露了中国共产党对英国公司的大规模渗透，其中包括阿斯利康、劳斯莱斯、汇丰和捷豹路虎。
+
+
+[https://www.dailymail.co.uk/news/article-9046783/Leaked-files-expose-mass-infiltration-UK-firms-Chinese-Communist-Party.html](https://www.dailymail.co.uk/news/article-9046783/Leaked-files-expose-mass-infiltration-UK-firms-Chinese-Communist-Party.html)
+
+- 重大泄密事件暴露了中共党员信息，“揭开了中共的秘密”
+
+
+[https://www.skynews.com.au/details/\_6215946537001](https://www.skynews.com.au/details/_6215946537001)
+
+- 战争:中共国成功地渗透到疫苗巨头辉瑞、阿斯利康和葛兰素史克，作为“超限战”的一部分，打败美国军队，征服北美
+
+
+[https://www.naturalnews.com/2020-12-13-communist-china-infiltrated-vaccine-giants-pfizer-astrazeneca-glaxosmithkline.html#](https://www.naturalnews.com/2020-12-13-communist-china-infiltrated-vaccine-giants-pfizer-astrazeneca-glaxosmithkline.html#)
+
+【4】12/10 Miles Guo: Don’t believe in vaccine, resulting from collusion between the CCP and dark power
+
+
 
 0

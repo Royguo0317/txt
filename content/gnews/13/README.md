@@ -1,30 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【突发】林伍德：麦康奈尔是叛徒，他的审判日将至
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/652790/)
+## 中共隐秘的核威胁：中共核弹数量知多少？
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/652861/)
 
-- 编辑：Victor Torres
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15142816/20200705012903173.png)图片来源：禁闻网
+据《国防新闻》（Defense News）近日发自澳大利亚墨尔本的报道，位于伊利诺伊州芝加哥的《原子科学家简讯》发表的一篇报告估计，中共国拥有多达350枚的核弹头，大大超过了美国国防部的最新估算。该报告由美国科学家联合会(FAS)核信息项目主任汉斯·克里斯滕森（Hans Kristensen）和研究助理马特·科达（Matt Korda）撰写。 他们通过计算现有弹头和“仍在研发”的新型核武器，得出了该数字。这些核武器包括超音速导弹，固定式和公路机动式洲际弹道导弹，以及相应的潜射导弹，其核弹总数远超过五角大楼在其“中国军事2020年报告“中估计的“200多枚”。
 
+该智库的报告指出，中共军队将350枚核弹头中的272枚左右作为战略常备，包括204枚陆基导弹弹头，48枚潜射弹头和20枚空投弹头。中共的空投弹头研发曾一度处于停止状态，但最近已重新启动。据报道，中共国正在研发一种能够携带核弹的空射弹道导弹。近期还发现，在中国西安，一架H-6轰炸机可能携带了一种疑是超音速助推滑翔导弹的模型，不过，其研发进展尚不清楚。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+预估中的350枚核弹不包括研发的空射超音速弹道导弹和那些将安装在东风-5C洲际弹道导弹（DF-5C ICBM）上的多款独立弹头。因此，即使剔除那些被淘汰的老导弹系统，中共的核武弹头总数也应该更多。
 
-**西班牙2020年12月15日电/西喜社/——**周二下午，林伍德发推批评米奇·麦康奈尔(Mitch McConnell )不是一个爱国者。
-“麦康奈尔只是想要权力、影响力和金钱。他愿意出卖美国来得到他想要的东西。麦康奈尔是美国爱国者的叛徒。”
-“他的审判日即将到来。”
-当天上午，麦康奈尔刚刚承认乔•拜登当选下届美国总统，并向他和贺锦丽表示祝贺。
+不过，报告也指出，中国的核武库还是大大低于美俄两国。美国和俄罗斯各自拥有数千枚核武器。川普政府的军备控制特使马歇尔•比林斯利（Marshall Billingslea）曾指出，中国正在致力于与美俄实现“核对等”，但作者认为，这似乎没有多少现实可能性。
 
+报告还指出，传统上，中共军队对其核战力保持在较低的警戒水平，大多数核弹头都被集中存储保管，只有较少的弹头分散保存在不同地区的核设施中。
 
+报道称，五角大楼不仅赞同上述评估，还补充说，中共是把发射架、导弹和核弹头分开保存的，不过， 五角大楼认为中共解放军导弹部队经常进行“战斗就绪执勤”和“高度警戒执勤”演练，按月轮换到待命状态，周期不定。其中，“高度警戒执勤”演练还包括派遣导弹营去做好准备，等待发射。
 
-> Mitch McConnell [@senatemajldr](https://twitter.com/senatemajldr?ref_src=twsrc%5Etfw) is NOT a Patriot. Ask his wife. She knows. 
-> 
-> McConnell just wants power, influence, & money. He is willing to sell America to get what he wants. McConnell is a traitor to American Patriots.
-> 
-> His day of judgment is coming. [https://t.co/d0ECDfk5Tk](https://t.co/d0ECDfk5Tk)
-> — Lin Wood (@LLinWood) [December 15, 2020](https://twitter.com/LLinWood/status/1338914009660133378?ref_src=twsrc%5Etfw)
+中共自称其核武库处于“适度戒备状态”，由中共中央军事委员会直接控制指挥。这篇报告认为，在和平时期，这可能意味着将部队布置在邻近核武库的地区，时刻处于战斗准备就绪的状态，如有必要，核弹就可以迅速发放给部队。
 
+评论：
+本文对中共的核武库和战备进行了粗略的评估和评价，中共的实际核能力估计远不至于此，核弹总数近千枚应该更加准确些。因为中共对核武器的生产和研发一直是高度保密的，没有丝毫透明性，公开报道和公布的数字是极端不可信的。本文论述的，只是大当量的战略核武器弹头，但中共上世纪80年代就投入大量人力物力研究小型化的战术核武器和小型中子弹，估计早已研制成功。如果算上这些小型化的核武器，其弹头总数就难以估量了。已有报道称，中共已经将核武库和发射基地分散建立在广阔的城市和乡村，混于普通百姓之间，可见极其阴险狡诈恶毒。中共肆意发展其核武力，既是对西方文明世界的威胁和挑战，更是对中国人民的威慑和胁迫；不是为国为民，而是为一党之私，为了中共自己的苟延残喘和继续残剥奴役中国人民。
 
+[原文](https://www.defensenews.com/global/asia-pacific/2020/12/14/report-estimates-chinese-nuclear-stockpile-at-350-warheads/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+翻译：Diego
+校对：文旺
 
 0

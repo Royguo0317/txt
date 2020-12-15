@@ -1,35 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 至暗穹顶（十二）——美国大选
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/652592/)
+## 【突发】林伍德：麦康奈尔是叛徒，他的审判日将至
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/652790/)
 
-```
-作者: Tito
-校对/发稿人: Ting Guo
-```
+- 编辑：Victor Torres
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15133900/US_election_day_main_Image_Socialist_Revolution.jpg)图片来源: Marxist 网站
-美国大选直到今天依然没能出结果，虽然说要等到一月二十日可以清楚的知道谁是真正的赢家，但是媒体依然宣布拜登已经当选。
 
-早在研究中国股市的时候，笔者已经发现国内的媒体已经是说风就是雨了。那个年代，只要是经历过媒体一系列对股市的宣传，都不可能再相信国内的媒体。笔者相信，中国股灾后，有很多投资人开始把获取信息的方向转到了海外，毫无疑问，法治，民主，自由的魅力是巨大的，人们需要真相，人们也想知道真相，因为有了真相的判断，才叫判断。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-爆料革命的惊雷始于四一九断播门，起初的时候，人们只是觉得美国之音台长阿曼达是被中共渗透了的。可是随着时间的推移，人们惊讶的发现，被爆料革命郭先生牵出来的人越来越多。也是从那个时候开始，追随爆料革命的人越来越多。当然，其中有好多伪类，先是捧爆料的郭先生，然后再去砸郭先生，可就是这一捧一砸，让好多人开始觉醒，开始怀疑自媒体，但是对美国主流媒体依然还是深信不疑的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15134419/11-1-696x314-1.jpg)图片来源: 禁闻网
-随着爆料革命的深入，人们发现所谓美国主流媒体也是满嘴谎话，引荐的文章也都是中共大外宣的文章。其实笔者当时是很恐惧的，也是怀疑的，而这种怀疑是可悲的，怀疑的是爆料革命能不能走下去，因为这个阶段的中共确实表现出来了惊人的渗透力和影响力。
+**西班牙2020年12月15日电/西喜社/——**周二下午，林伍德发推批评米奇·麦康奈尔(Mitch McConnell )不是一个爱国者。
+“麦康奈尔只是想要权力、影响力和金钱。他愿意出卖美国来得到他想要的东西。麦康奈尔是美国爱国者的叛徒。”
+“他的审判日即将到来。”
+当天上午，麦康奈尔刚刚承认乔•拜登当选下届美国总统，并向他和贺锦丽表示祝贺。
 
-爆料革命的战友多少都是好奇心重的人，也对生活有憧憬的人，好奇这世界真正的模样，希望能去改变这个世界，希望能够创造属于自己的未来。而战友们的心脏是被锻炼到今天这个地步的。今天华盛顿沼泽的面目被逐渐的揭开，美国主流媒体是如何的流氓，美国政客是多么的无耻，无不令人触目惊心。假如爆料革命不是给了战友们这么长得时间做铺垫，笔者相信一开始说华盛顿背后沼泽的时候，爆料革命就已经会沉沦了。
 
-这次美国大选给于美国人的震惊，和四一九断播们给于中国人的震惊是如出一辙的。美国人肯定也发现了，他们的社交媒体和主流媒体是如此的黑暗，对于真实信息的封锁已经令人发指了。从大选被中共严重干涉开始，爆料革命已经从爆料共产党对于中国人的迫害，转变到共产党对全世界人的迫害，而共产党不仅是对中国人进行了信息封锁，对美国民众也进行了信息欺骗。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15134134/trump_swamp.jpg)图片来源： theweek.com
-更深一层的是，沼泽力量或许已经感受到，连他们都已经被欺骗了，共产党的欺骗大网已经盖住他们的视野。至暗穹顶的形成，我相信这些背后的沼泽大佬都是参与者，这些人沼泽力量后续一直都认为可以掌握一切，但是美国大选到今天这个地步，证实了一件事，黑暗永远会吞噬一切，没有谁能控制得住。
 
-接下来，共产党越猖狂，反抗越激烈，越不受控制，沼泽力量就越心惊，灭共力量就会越坚决越强大，而且双方都是箭在弦上，不得不发。
+> Mitch McConnell [@senatemajldr](https://twitter.com/senatemajldr?ref_src=twsrc%5Etfw) is NOT a Patriot. Ask his wife. She knows. 
+> 
+> McConnell just wants power, influence, & money. He is willing to sell America to get what he wants. McConnell is a traitor to American Patriots.
+> 
+> His day of judgment is coming. [https://t.co/d0ECDfk5Tk](https://t.co/d0ECDfk5Tk)
+> — Lin Wood (@LLinWood) [December 15, 2020](https://twitter.com/LLinWood/status/1338914009660133378?ref_src=twsrc%5Etfw)
 
-**本文章仅代表战友个人观点**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09040658/image0.png-13-1280x720.jpeg)**[h](https://discord.gg/77fCxw5mFv)*****[ttps://discord.gg/77fCxw5mFv](https://discord.gg/77fCxw5mFv)**
-[**https://**](https://https://discord.gg/77fCxw5mFv)[**gab.com/himalaya\_italy**](https://gab.com/himalaya_italy)*
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0

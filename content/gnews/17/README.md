@@ -1,37 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## GTV全球排名意味着什么
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/652609/)
+## 评网易置顶新闻
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/652419/)
 
-撰稿：文西 Eric
+```
+作者: Tito
+校对/发稿人: Ting Guo
+```
 
-美东时间12月13日，郭先生发表盖文如下：
 
-文贵先生12月13号：尊敬的战友们好……GTV升值……G系列真正的走向商业的标准运行……和真正的价值体现还需要半年的时间，虽然我们已经创造了奇迹，这距离我的要求还差远了……所有G系列将是商这几个独立的领域新的标准的建立者……不过，今天这些GTV的排数据确实让GTV的投资者们应该到洗手间照照镜子亲亲脸了……好好的……好好的庆祝一番了！CNN都被咱灭了！【1】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15133340/b457f0f4-7248-42eb-b322-c494f1b1c4f3.jpg)网络截图![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15133437/dc8e77bb-a1e8-46d7-80fb-b4ee12fe8d74.jpg)网络截图
-郭先生的喜悦溢于言表，相信投资了GTV的爆料革命战友也会偷着笑。那么这个排名到底有没有公信力呢？我们先了解下这个SimilarWeb网站。
+**《消除贫困是人类共同理想 习近平为世界贡献中国智慧》**
 
-SimilarWeb.com是一家免费提供网站排名和竞争性数据分析的网络平台。该网络平台依据大数据分析技术进行工作。其用户只需输入域名信息，就可以评估相应网站的人气，并实时监控该网站的表现；进而掌握行业竞争对手的动态，以期提高用户自身的网络访问量和市场占有率。【2】相对于同类网站Alexa和Quantcast，Similarweb的数据更加准确，详细。
+***标题评价:***
 
-郭先生的喜悦溢于言表，相信投资了GTV的爆料革命战友也会偷着笑。那么这个排名到底有没有公信力呢？我们先了解下这个SimilarWeb网站。
+人类的共同理想已经往消灭中共的方向上无限靠近。而习近平为世界贡献的中国智慧就是；
 
-SimilarWeb.com是一家免费提供网站排名和竞争性数据分析的网络平台。该网络平台依据大数据分析技术进行工作。其用户只需输入域名信息，就可以评估相应网站的人气，并实时监控该网站的表现；进而掌握行业竞争对手的动态，以期提高用户自身的网络访问量和市场占有率。【2】相对于同类网站Alexa和Quantcast，Similarweb的数据更加准确，详细。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15133657/IMG_5126.jpg)SimilarWeb网站英文主页
-数据和排名不造假，GTV在短短半年时间，在CCP全球封锁以及主流媒体联手抵制下，就在“新闻与媒体”稳定排名前50名。11月访问量总数1.3亿次，上升7.62%。来自中国大陆的流量占到37.91%，上升18.6%，说明墙内战友和其他渴望真相的国人在翻越防火墙了解真相，特别是在郭先生123直播后，相信GTV也会在真正灾难到来时为国人带来真实及时的消息、保命保财。而美国的流量占到22.06%，虽然有57.8%的下降，分析原因应该是10月底到11月初亨特拜登硬盘门13天曝光后，热度有所下降。在所有的浏览中，82.83%是直接输入gtv.org的网址，9.32%是搜索后浏览，这反映读者主要是用电脑浏览、不是APP浏览。浏览者是自发、自主浏览，没有借助营销导流。【3】当然，通过数据我们也可以看到GTV存在平均浏览时长短、其他语言人群浏览占比小等不足，随着GTV功能和内容的不断完善，以及未来230条款取消等外部因素，GTV价值可见一斑！
+习近平想：“我要拉上全党全中国人民给我当垫背。”
 
-参考资料
+党内各派别各元老各部属想：“无人机要来就去炸习近平好了，我们随时反水。”
 
-【1】[郭文贵MILES – Getter – G|TV](https://gtv.org/getter/5fd61c2220c9025a87df2244)
+中国人民想：“习近平就在瞎忽悠，不过见他还是要喊万岁的。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15140125/nimg.ws_.126.net_.jpeg)
+***图一评价**:*
 
-【2】[SimilarWeb – 维基百科，自由的百科全书 (wikipedia.org)](https://zh.wikipedia.org/wiki/SimilarWeb)
+中国人的心早就伤的差不多了，而从文革到八九六四，民早就寒透了，也没见咋伤国，毕竟不是赵家人，毕竟只是中国居民。
 
-【3】[Manitou – Getter – G|TV](https://gtv.org/getter/5fd6101b20c9025a87df1eb0)
+十一亿脱贫中国有几人？没几人关你屁事？你们最担忧的就是你们自己屁股底下的那把权力椅子。
 
-（本文纯属个人观点）
+真正任重道远的是看清中共的真相。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15140215/nimg-1.ws_.126.net_.jpeg)
+***图二评价:***
 
-澳喜文章[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+你说消除就消除？你说包容就包容？你说可持续就可持续？你是国际社会代表？
 
-欢迎加入澳喜农场：[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/13172650/IMG_3537-1.jpg)
+与民争利，我党天下第一。党造就现代奴隶的本事不可估量，释放有效需要，你就又要开始炒房地产了。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15140258/nimg-2.ws_.126.net_.jpeg)
+***图三评价:***
+
+你更改定义贫困的标准，和全球经济增长更加包容有什么必然联系么？你改了标准，你就有内需了？你改了标准， 你是增加了进口，还是增加的出口？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15140353/nimg-3.ws_.126.net_.jpeg)
+***图四评价:***
+
+大外宣加蓝金黄，我党还真是加强了国际间的合作，给我党气吞天下提供了坚实的基础。另外，我党在中国的发展从来不是可持续性的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15140438/nimg-4.ws_.126.net_.jpeg)
+***图五评价:***
+
+减贫党最行，数据在手，天下你有，制定标准，你定封王。就算太监再生，党说你是忠臣你好就是忠臣，就算生理有缺，党给你定标准，你就是完人了。就算百姓撅腚累死，你都得笑，你不笑就是负能量，给你个标准，你可能都不是人了，现在中国人像人么？
+
+减贫能加快？你啥时候不偷人美国人的种子再来吹吧！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15140520/nimg-5.ws_.126.net_.jpeg)
+***图六评价:***
+
+一亿人脱贫啊，美国人快来卖你们的产品啊，随便就多了一亿人的市场，美国的华尔街们，你们感受到了么？
+
+**本文章仅代表战友个人观点**
+
+***资料来源：***[*https://news.163.com/20/1215/16/FTTBS11G000189FH.html?clickfrom=w\_yw*](https://news.163.com/20/1215/16/FTTBS11G000189FH.html?clickfrom=w_yw)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09040658/image0.png-13.jpeg)***[https://discord.gg/77fCxw5mFv](https://discord.gg/77fCxw5mFv)**
+[**https://**](https://https://discord.gg/77fCxw5mFv)[**gab.com/himalaya\_italy**](https://gab.com/himalaya_italy)*
+
+
+
 0

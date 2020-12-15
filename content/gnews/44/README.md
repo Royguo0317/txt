@@ -1,35 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普转推:乔治亚州州长和州务卿即将入狱
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/652244/)
+## 【热点播报】执法部门突袭SolarWinds公司总部
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/652296/)
 
-- 编辑：Victor Torres
+作者： 香草山写作组 村北
 
+媒体Gateway Pundit于12月14日晚间发布新闻：美国福克斯电视台Hannity节目透露，联邦调查局，德州侦查执法部门德州游骑兵，和美国司法部旗下的联邦法警突袭了信息管理软件公司SolarWinds位于德州奥斯丁的总部。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+美国网络及基础设施安全局13日非常罕见地发布了紧急指示，要求所有联邦部门马上断开或关掉使用SolarWinds Orion信息管理软件的所有计算机系统，表示发现骇客入侵了该软件系统，并有可能对广泛使用该软件的机构进行网络盗窃和攻击。
 
-**西班牙2020年12月15日电/西喜社——**
-
-周二，川普转发林伍德推特。
-该推称赞川普总统是一个真正的好人。声称乔治亚州州长和州务卿即将入狱。
-林伍德说:“他并不真的喜欢解雇人。我打赌他不喜欢把人关进监狱，尤其是 ‘共和党人’。”
-“他给了乔治亚州州长和州务卿每一次机会来纠正它。他们拒绝了。他们很快就会进监狱。”
-前一天晚上传来了美国司法部长巴尔辞职的消息，副部长杰弗里·罗森将出任代理司法部长。
-林伍德的这一表态可能和上述人事变动有关。
-川普的转推印证了林伍德的表态，一场席卷大选舞弊犯罪的大风暴似乎正在酝酿中。
+Gateway Pundit指出，被发现进行大规模选举欺诈的多米尼投票系统也采用SolarWinds Orion软件。该媒体还提及，更多的有关此次执法部门突袭的信息以及有关SolarWinds公司高管的新闻将会逐渐曝光。
 
 
 
-> President Trump [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) is a genuinely good man. He does not really like to fire people. I bet he dislikes putting people in jail, especially “Republicans.”
-> 
-> He gave [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw) & [@GaSecofState](https://twitter.com/GaSecofState?ref_src=twsrc%5Etfw) every chance to get it right. They refused. They will soon be going to jail. [pic.twitter.com/7PMBLc8L2N](https://t.co/7PMBLc8L2N)
-> — Lin Wood (@LLinWood) [December 15, 2020](https://twitter.com/LLinWood/status/1338715369566048256?ref_src=twsrc%5Etfw)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
-
-西班牙巴塞罗那喜悦农场官方Parlar二维码，敬请关注
-
-2+
+3+

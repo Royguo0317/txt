@@ -1,28 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧盟全面施加压力，辉瑞疫苗将提前于12月21日获批上市!
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/652915/)
+## 【新闻快评】独裁指责民主 中国独裁代言人华春莹满嘴喷粪
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/653064/)
 
-- 作者：Free monkey
-- 校队：天灭中共7777
+内新闻/素材：sam jeep 绘图：麦田67号 校对：三娃
 
+12月14日虹国际在百度新闻发表的一篇题为《美国疫情比9·11还惨，美方喊中国人站出来，华春莹反击火力全开》的文章。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+中共隐瞒疫情，故意扩散全球，在美中共卧底释放病毒与挑起暴乱，造成美国病毒肆虐，社会不安。中共病毒对全世界以及美国造成巨大的伤亡，中共独裁代言人华春莹反而幸灾乐祸，完全说明中共不把美国人民与世界人民放在眼里，故意挑事。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15151338/image0-6-4.jpg)
+中华大地至中共统治以来，毫无人权可言。居然说美国虚伪，那中共的红色权贵们为什么趋之若鹜，纷纷向美国转移财产和家人移民。中共的红色权贵们为什么不去你们赞扬有制度优势的朝鲜？中共所谓的人权是否是屠杀六四争取民主自由的学生？计划生育强制流产，强制上环？对网民言论审查？城管可以打百姓？警察可以随意拘留上访人士？让百姓孩子喝毒奶粉，让百姓孩子打假疫苗？没有投票权，只能被代表？这就是你中共所谓的有人权的中共墙国？这就是你们压迫人民的制度优势？为了中共的政权稳定，让百姓血流成河，手段残忍。
 
-随着英国、美国以及加拿大先后开始大规模的疫苗接种，欧洲药品管理局（EMA）加速批准疫苗的压力越来越大。
+百姓的生活靠自己的辛勤劳动，全是人民劳作养中共。然而中共不知羞耻，居然说养活了百姓。全世界哪个民主法治国家敢这样说？也只有中共这个不要脸的政权大言不惭。中共的血汗工厂，灵活就业，以药养医，医疗教育腐败，被你们说的天花乱坠，谎话连篇，毫无人性。再多词汇都不能描述你们的邪恶。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15145255/WhatsApp-Image-2020-12-16-at-03.52.18.jpeg)
+疫情期间，中共封门闭户，环境恶劣的方舱医院，移动焚化炉，封锁武汉真相，禁止传播疫情信息。中共的政治行为极为恶劣，毫无人性。
 
-欧洲药品管理局周二宣布，已将针对covid-19的辉瑞-BioNTech疫苗的审查会议提前至12月21日，这意味着应于当天批准在欧盟国家中使用该疫苗。
-欧洲药品管理局（EMA）负责监管欧盟的药品批准，该审查会议原定于12月29日举行，但在德国卫生部长詹斯·斯潘（JensSpahn）施压要求加速批准该疫苗之后，欧洲药品管理局最早应在12月21日向抗击covid-19的第一种疫苗给予“绿灯 ”。 德国卫生部长认为情况“特别令人恼火”，因为由德国BioNTech和北美制药公司Pfizer开发的疫苗已经在英国和美国等国家授权使用，但欧盟却仍在等待批准，无法在德国或27个欧盟国家中的任何一个国家使用。
-“我们的目标是在圣诞节前获得许可证，并在今年开始接种疫苗”，德国卫生部长詹斯·斯潘（Jens Spahn）周一表示。
-德国医院协会今天也发表声明，要求欧盟缩短漫长的批准程序，尽快批准辉瑞-BioNTech疫苗的紧急授权。 辉瑞公司及其德国合作伙伴在11月中旬宣布，他们的疫苗对covid-19具有95％的有效性。此后不久，即12月8日，英国领先于世界其他地区，并宣布了使用疫苗的监管机构的绿灯，美国在本周六紧随其后，并获得了FDA的批准。 在欧盟，计划在监管机构批准后立即开始疫苗接种，并在成员国之间进行协调，正如上周欧洲理事会后葡萄牙总理安东尼奥·科斯塔所证实的那样。 当时，假设欧洲药品管理局（European MedicinesAgency）可以在12月29日批准，科斯塔加指出疫苗接种将于1月5日开始。
+对此，亿万受压迫的中华儿女感慨，中国人有千万个理由推翻中共，建立真正民主法治的正统中华。
 
-原文链接：
+（本文仅代表个人观点）
 
-[https://www.jornaldenegocios.pt/economia/coronavirus/detalhe/europa-encurta-prazos-e-da-ok-a-vacina-da-pfizer-a-23-de-dezembro](https://www.jornaldenegocios.pt/economia/coronavirus/detalhe/europa-encurta-prazos-e-da-ok-a-vacina-da-pfizer-a-23-de-dezembro)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+新闻来源： [https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news\_10809931229643150365%22%7D&n\_type=0&p\_from=1](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_10809931229643150365%22%7D&amp;n_type=0&amp;p_from=1)
 
 0
