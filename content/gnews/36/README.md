@@ -1,42 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文】-自由与极权的斗争进入高潮
-` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/651962/)
+## 《路德社》精选主题专栏:巴尔退出代理司法部长将由副司法部长杰弗里·罗森（Jeffrey Rosen）暂时担任。 杰弗里·罗森是谁？
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/651823/)
 
-12月14日林伍德律师引用了大纪元的一篇文章题为“川普总统到了行动的关键时刻”，内容主要表达了美国大选本质上是自由与共产主义的斗争，自由不能向共产主义妥协。
+《路德社》精选主题专栏组出品
 
-他称，“我100%同意这篇社论的观点，写得很好。”
+关于杰弗里·罗森
 
-“这次选举是自由和共产主义之间的斗争的高潮，是正义和邪恶之间的斗争。”
+于1958年出生现年62岁的共和党人罗森，毕业于西北大学经济学学士学位，并在哈佛法学院获得法学博士，于1982年加入Kirkland＆Ellis律师事务所。
 
-“我也百分之百肯定川普总统将采取行动。川普是个天才。他有一个计划。”
+Kirkland＆Ellis LLP是一家在芝加哥成立的律师事务所。按收入计算，它是世界上最大的律师事务所，世界上第一家收入达到40亿美元，按律师人数排名第七。罗森是这家律师事务所的高级合伙人。
 
-林伍德律师在接下来的推文中称，美国急需进行一次彻底的大扫除。太多的腐败和贪婪。川普总统将会为我们人民清理干净。稳住。”他在配图中再次鼓励大家“不要恐惧。”
+他于2003年离开公司，开始为美国政府工作。从2003年到2006年即小布什总统任期中，罗森担任美国运输部总顾问
 
-评论，这样的观点在爆料革命战友中早已不陌生，郭先生无数次让我们看到中共使用蓝金黄渗透全世界、使用3F计划影响美国多年，终于发展到操控美国大选的结局；路德节目也早已“站在未来说历史”，告诉我们中共使用病毒生化武器操控全世界的真相。灭共的过程就是自由世界与极权主义中共斗争的过程，是全民放下恐惧、让中共恐惧的过程，这是全世界都面临的问题，谁都不能逃避。3年前，郭先生在2017哈德逊研究所演讲被取消后、一个中秋节的次日，只身向全世界宣布：“黑夜即将到来，一定要做好准备，来自中共盗国贼的黑夜即将到来，将弥漫在世界和西方的文明世界，我们每个人都将不安全，大家做好准备。”遗憾的是，西方世界凭借自身在经济上的巨大成功，对自身所标榜的世界文明之价值基石过于“自信”，他们没有认识到共产主义、中共这个恶魔已经来到身边，正在肆无忌惮侵蚀、攻击和嗜血并不完美的西方文明的肌体，这样的代价是让美国大选命悬一线，人类文明几近灭亡。然而所幸的又是，上天、我们的天父、万佛万神并不想让人类被共产主义吞噬，才让美国正义力量在大选的教训下、在中共病毒依旧肆虐的威胁下，逐渐认识到这一问题的严重性并且奋力反抗，未来我们将看到西方世界联手重振旗鼓，为找回自由、文明乃至没有中共病毒的健康环境，把中共砸碎在历史的垃圾里。与此同时，我们看到，爆料革命这些珍贵的观点、认识和理念，尚未被西方完全认识，战友向西方媒体传播和文化融合的时候仍然有不少空间向同行学习，而目前的不足也与中共“毁人不倦”的教育模式密不可分，作为过渡一代的爆料革命战友，未来对没有共产党的新中国建设、对教育的投入任重道远。
+2006年到2009年，罗森在OMB全称Office of Management and Budget工作，担任总顾问和高级政策顾问。2009年罗森结束OMB工作之后又重返Kirkland＆Ellis。
 
-新闻素材和图片来自林伍德律师推特
+从2015年到2016年，罗森担任美国律师协会行政法和监管实践部门的主席。
 
+2017年5月16日即特兰普任期中，罗森以56票对42票被确认为美国运输部副部长
 
+2019年2特朗普总统提名罗森出任美国副检察长，成为司法部总检察长巴尔的副手。2019年5月罗森宣誓就职美国司法部副检察长。
 
-> I agree 100% with this statement in well-written editorial:
-> 
-> “This election is the climax of the battle between freedom and communism, between good and evil.”
-> 
-> I am also 100% certain [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) will take action. Trump is a genius. He has a plan.[https://t.co/Xa7Wb1FpHs](https://t.co/Xa7Wb1FpHs)
-> — Lin Wood (@LLinWood) [December 15, 2020](https://twitter.com/LLinWood/status/1338719208268570624?ref_src=twsrc%5Etfw)
+日前，川普总统接受了巴尔辞呈，代理司法部长将由副司法部长杰夫·罗赞暂时担任。
 
+随着巴尔退出，杰弗里·罗森（Jeffrey Rosen）将于2020年12月23日接替巴尔暂时成为代理司法部长。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15025738/images-1-2.jpg)
+[援引](https://en.m.wikipedia.org/wiki/Jeffrey_A._Rosen)
 
-
-
-
-> America is in dire need of a good housecleaning. Way too much corruption & greed. [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) is going to clean it up for We The People. Steady.
-> 
-> “But now the LORD my God hath given me rest on every side, so that there is neither adversary nor evil occurrent.”
-> – 1 Kings 5:4 [pic.twitter.com/JPZHFJiQhM](https://t.co/JPZHFJiQhM)
-> — Lin Wood (@LLinWood) [December 15, 2020](https://twitter.com/LLinWood/status/1338726421955571712?ref_src=twsrc%5Etfw)
-
-
+本文作者：文森特
+审核校对：玫瑰天空
+上传排版：糖果儿
 
 2+

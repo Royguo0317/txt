@@ -1,25 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】多米尼投票机被法务审计认为“具有国家安全问题”
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/652173/)
+## 美国司法部长巴尔辞职隐藏深意
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/652242/)
 
-作者： 香草山写作组 七芒星；校对/发稿：村北
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13153732/280e11981e73c76ffbbf5fd228c65dcc.jpg)图片来源：[https://united.states.news/](https://united.states.news/trump-pressures-barr-to-investigate-bidens-as-election-nears/)
+据澳洲新闻网(news.com.au)报道，川普总统周一(12月14日）发推宣布司法部长巴尔（Barr）离职并附上巴尔的辞职信。同时，川普宣布现任代理部长杰夫罗森（Jeff Rosen）出任执行部长，新的代理部长由理查德 多纳戈（Richard Donoghue）出任。
 
-根据Populist Press 12月14日的消息，有公司对密歇根州一个小县的22台多米尼投票系统进行了法务审计，并得出结论认为该系统的设计是有意和有目的地带有固有误差，用于制造系统性舞弊并影响选举结果。
+之前，川普曾在公开场合几次对巴尔对亨特拜登(Hunter Biden)案的调查不作为表示不满。但在这次宣布巴尔辞职的推文中川普却赞扬了巴尔的工作能力，并表示和巴尔关系一直很好。而巴尔也发推，盛赞了川普的政绩是历史性的。同时，巴尔提到了司法部对总统选举舞弊的调查还会继续，并表示所有有关的政府机构部门都要尽职来保证选举公正，以此提高民众对选举结果的信心。
 
-该公司在星期一发布的报告中建议川普总统采取措施，使用2018年关于外国干涉的行政命令，以确保美国的国家安全。
+几乎与巴尔辞职同时进行的是各州选举人团正式”确认”拜登当选总统。拜登也发表演讲，鼓励美国是时候翻开新的一页。
 
-该报告还详细说明了该系统有意地产生大量选票”错误“，然后将标有“错误”的电子选票移交给“裁决”步骤，然后在没有监督，没有透明度，也没有审计追踪的情况下对选票的进行“裁决”。这最终导致选民或选举欺诈。
+评：当然左派媒体一时间欢呼雀跃，并且嘲讽川普不肯认输。我们唯真不破的路德社则宣布重锤即将落下。与此同时，司法部关于亨特拜登案的24张刑事传票已经发出。巴尔的离职和正式行动的开始完美地对接，可见一切是有意安排，是川普和巴尔背后的势力谈好彼此都给足面子的积极的一个结果。我们一起拭目以待，相信正义终将战胜邪恶。川普才是真正的民选总统。
 
-美国国家情报总监日前在接受媒体采访时指出2020美国大选存在外国干预，根据川普总统2018年发布的关于外国干涉大选的行政命令，情报总监将在大选后45天内也就是12月18日内发布其最终调查报告。据路德社透露，中共干预美国大选已基本做实。
+[原文链接](https://www.news.com.au/world/north-america/us-politics/us-attorneygeneral-bill-barr-announces-resignation/news-story/2ce601deae627abad4b9885372dbd381)
 
+作者：Forguo
+校对：人间四月
 
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-0
+3+

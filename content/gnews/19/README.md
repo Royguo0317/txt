@@ -1,29 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## &#8220;这次选举是自由与共产主义、正义与邪恶之战的高潮&#8221;&#8211;林伍德称川普总统即将收拾残局
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/652300/)
+## 【热点播报】执法部门突袭SolarWinds公司总部
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/652296/)
 
-- 编辑：Victor Torres
+作者： 香草山写作组 村北
 
+媒体Gateway Pundit于12月14日晚间发布新闻：美国福克斯电视台Hannity节目透露，联邦调查局，德州侦查执法部门德州游骑兵，和美国司法部旗下的联邦法警突袭了信息管理软件公司SolarWinds位于德州奥斯丁的总部。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+美国网络及基础设施安全局13日非常罕见地发布了紧急指示，要求所有联邦部门马上断开或关掉使用SolarWinds Orion信息管理软件的所有计算机系统，表示发现骇客入侵了该软件系统，并有可能对广泛使用该软件的机构进行网络盗窃和攻击。
 
-**西班牙2020年12月15日电/西喜社/——**
-
-林伍德（Lin Wood）周二发推表示，川普总统将清理沼泽并解决从中国传入美国的大规模腐败。
-林伍德随后分享了这次选举是善与恶之间的高潮，川普总统将采取行动， 他是一个天才。
-他接着指出美国的大媒体如何成为中共的武器。 昨天，没有一家大媒体报告了多米尼投票机的法证审计结果，该结果显示了闻所未闻的欺诈行为：将选票转移给拜登，天知道将记录发送到哪里（中国）进行裁决（移交给拜登）!还有许多闻所未闻的， 在良好控制的环境中的其他问题。
-伍德随后抨击了乔治亚州的共和党州长和州务卿。
+Gateway Pundit指出，被发现进行大规模选举欺诈的多米尼投票系统也采用SolarWinds Orion软件。该媒体还提及，更多的有关此次执法部门突袭的信息以及有关SolarWinds公司高管的新闻将会逐渐曝光。
 
 
 
-> [“This Election Is the Climax of the Battle Between Freedom and Communism, Between Good and Evil” – Lin Wood Claims President Trump Is Going to Clean Things Up](https://www.thegatewaypundit.com/2020/12/election-climax-battle-freedom-communism-good-evil-lin-wood-claims-president-trump-going-clean-things/)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
-
-西班牙巴塞罗那喜悦农场官方Parlar二维码，敬请关注
-
-1+
+3+

@@ -1,82 +1,84 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》每日简报晚间版 2020.12.13&#8211;NewYork Time
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/651653/)
+## 《路德社》每日简报早间版 2020.12.14&#8211;NewYork Time
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/651726/)
 
 出品《路德社》 编辑：路德社精选新闻专栏组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15020754/1213-PM-ZH-scaled.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15021718/1214-AM-ZH-scaled.jpg)
 撰稿：文寶Porsche   译校：Arvin江牧
 
 翻译统筹：阿轩Action
 
-1213晚间要闻-NewYork Time
+1214早间要闻-NewYork Time
 
-**LuDe Media 20201213 Evening News, New York Time**
+**LuDe Media 20201214 Morning News, New York Time**
 
-**美将成立制裁中共专门委员会，美军将进入战备状态**
+**全球网络和美有线电视突现短暂大崩溃**
 
-**U.S. to Establish Special Committee on Sanctions Against CCP & U.S. Military to Enter Operational Readiness**
+**The Global Networks and U.S. Cable Television Suddenly & Briefly Crashed**
 
-路德社称据知情人士爆料，经过美国国家安全委员会讨论通过，从明天开始，川普将正式Fire掉Barr和Ray，并任命新的独立检察官（准备正式的大选评估报告）。美国国家安全委员会内部已经认定了中共是跨国犯罪组织，将成立制裁中共的专门委员会，实质性灭掉中共的实力（只是干、不会宣布）。军方将会进入针对中共的战备状态，随后会有戒严、军管等行动。
+路德分析，这次行动是中共主动进攻美国的一次预演，中共最擅长的是浑水摸鱼。他们行动的目的，就是搞乱美国、颠覆美国。中共长期训练的特工早就掌握了一整套在没电、没网络条件下的行动预案。这次短暂大崩溃让人嗅到了大决战来临的味道。
 
-LuDe Media said according to informed sources, after the U.S. National Security Council discussed and passed, Trump will officially fire off Barr and Ray tomorrow, and appoint a new independent prosecutor (to prepare the final election assessment report). The U.S. National Security Council has internally identified the CCP as a transnational criminal organization, and will set up a special committee to sanction the CCP and substantially extinguish its power (just action, without announcement).  The military will enter a state of war readiness against the CCP, followed by martial law, military control, and other actions.
+LuDe Media analyzed the operation as a rehearsal of the Chinese Communist Party’s active attack on the United States, and the CCP is best at muddying the waters. The purpose of their operation is to mess up and subvert the United States. The CCP’s long-trained agents have long mastered a whole set of pre-planned operations in the absence of electricity and internet. This short-lived crash smells of an impending decisive battle.
 
-**此前迟迟没有行动的原因**
+**如何看待即将到来的大决战？**
 
-**Reasons for Previous Delay of Action**
+**How to View the Impending Decisive Battle?**
 
-路德分析，国家情报总监的报告早几天已经出来了，一直在国家安全委员会进行讨论。讨论的焦点是，查封后的中共资产如何分配？国家安全委员会的每一个人都代表了沼泽地背后掌控美国的力量，需要讨价还价瓜分中共资产这个大蛋糕。郭先生直播时说，与这些力量相比，新中国联邦的实力还不够，表明了蛋糕的最后分配方案即将完成。一旦分配方案确定，后面的灭共行动就一马平川了。
+美国如果出现几天的短暂混乱，川普一定会采用戒严、军管等手段直接接管或关闭假媒体。爆料革命说不定会利用类似CNN这样的主流媒体播放真相。
 
-此外，中共知道美国将采取行动后，也试图与沼泽地背后力量谈判，但因为中共作恶超过了边界、失去信誉，它开再高的价码也不会有人合作。
+爱国者们不用担心川普在大战面前犹豫不决，因为这次不是川普一个人做的决定、也不是他一个人做战斗，而是沼泽地背后的力量与中共之间你死我活的决战，必须果断消灭中共。
 
-LuDe Media analyzed that the Director of National Intelligence’s report was completed a few days ago and has been in discussion at the National Security Council. The discussion focused on how the seized assets of the CCP would be divided. Everyone on the National Security Council represents the forces behind the swamp that control the United States and need to bargain to divide the big cake of seized CCP assets. Mr. Guo said during the live broadcast that the New Federal State of China is not strong enough compared to these forces, which indicates that the final distribution plan for the cake is nearing completion. Once the distribution plan is determined, actions followed to exterminate the CCP will be smooth.
+另外，根据习近平的要求，拜登已经提名最反川普的纽约市长Andrew Cuomo为司法部长人选，他一旦上台不仅会立即抓捕川普全家，而且会把所有右翼力量全灭。川普和整个右翼力量已经没有退路。
 
-Moreover, knowing that the United States would take actions, the CCP tried to negotiate with the forces behind the swamp, but because the CCP has done evil beyond its borders and lost credibility, no one will cooperate even if it offered a higher price.
+If there is brief chaos for several days in the U.S., Trump will surely adopt martial law, military regulation and other means to take over or shut down the fake media directly. Hence, Whistleblower Movement may use mainstream media like CNN to broadcast the truth.
 
-**大选评估报告意味着新中国联邦的时代已经到来**
+Patriots do not have to worry about Trump’s hesitation in front of the decisive battle, because this time it is not a decision made by Trump alone, nor is he fighting alone, but a showdown of life and death between the forces behind the swamp and the Chinese Communist Party, where the CCP must be decisively eliminated.
 
-**Election Assessment Report Means the Era of the New Federal State of China Arrived**
+In addition, according to Xi Jinping’s request, Biden has nominated Andrew Cuomo, the most anti-Trump New York mayor, as his choice for Attorney General, who will not only arrest Trump’s whole family immediately once in power, but will also wipe out all right-wing forces. There is no way back for Trump and the entire right-wing forces.
 
-大选评估报告一旦正式公布，就意味着分配方案已经确定，意味着必须采取行动，也即意味着新中国联邦的法律地位被美国正式认可。新中国联邦将正式代表中国人，来接收被查封的中共盗国贼资产。
+**林伍德发推提醒民众准备末日物资且记住只有一个总统是川普**
 
-Once the election assessment report officially released, it means that the distribution plan has been determined, and that actions must be taken, as well as that the legal status of the New Federal State of China is officially recognized by the United States. The New Federal State of China will officially represent the Chinese people to receive the seized assets of the CCP kleptocrats.
+**Lin Wood Tweeted to Remind People to Prepare Doomsday Supplies and Remember That Only One President is Trump**
 
-**美财政部数据库被外国政府支持的黑客攻击**
+末日物资清单包括足够的水、食物、手电筒、电池、蜡烛、收音机、枪弹和会见社区领导的计划。该推文提醒民众，请记住我们在一个时期只有一个总统，我们的领导是川普、不是拜登。
 
-**U.S. Treasury Database Hacked by Foreign Government-backed Hackers**
+The list of doomsday supplies includes plenty of water, food, flashlights, batteries, candles, radio, guns and ammunition (2nd Amendment supplies), and a plan to meet with community leaders. The tweet reminded the public to remember that we only have one president at a time and our leader is Trump, not Biden.
 
-国土安全部在回应网络攻击时说，这次攻击是国家行动，但没有点出国家名字。因为一旦点名，就意味着北约必须马上开战。这些黑客训练有素，是通过内外勾结、钓鱼的方式，从Office365的后门攻入数据库。黑客同时攻击的还有商务部下属的国家电信和信息管理局。
+**川普发布关于代理国防部长继承顺位的行政令**
 
-In response to the cyber-attack, the Department of Homeland Security said that the attack was a government-backed action, but did not name the country. Once the country is named, NATO must immediately go to war. These hackers were very well trained and attacked the database from a backdoor of Office365 through internal and external collusion and phishing. These hackers also attacked the National Telecommunications and Information Administration under the Department of Commerce.
+**Trump Issued Executive Order on Successors to Acting Secretary of Defense**
 
-**200****万名中共党员已经渗透到7.9万个国际机构**
+战时来临，国会和司法体系无法正常工作时，总统令就是一切，是掌控社会秩序的唯一力量。12月10日发出的这个行政令，明确了代理国防部长的继承顺位是：国防部副部长、军事部门秘书、国防政策大臣、国防情报和安全局长、国防部首席管理官，以确保指挥权始终掌握在川普绝对信赖的人手里。
 
-**2 Million CCP Members Penetrated 79,000 International Institutions**
+When war comes, Congress and the judicial system may not function properly, where presidential decree is everything and the only force that takes control of social order. This executive order, issued on December 10, specified the succession order of the acting Secretary of Defense as follows: Deputy Minister of Defense, Secretary of the Military Department, Minister of Defense Policy, Director of Defense Intelligence and Security, and Chief Management Officer of Department of Defense, to ensure that command remains in the hands of someone Trump absolutely trusts.
 
-事件在8月份被爆出后，西方国家经过验证，确认这些党员已经渗透到汇丰银行、渣打银行、Airbus、Boeing、RR等公司及众多的国际组织和机构。
+**川普总统更换作战司令部指挥官**
 
-After the incident broke in August, Western countries verified and confirmed that these CCP members had penetrated companies such as HSBC, Standard Chartered Bank, Airbus, Boeing, Rolls Royce and numerous international organizations and institutions.
+**President Trump Replaced Commander of Combatant Command**
 
-**网络攻击和党员名单再被曝光，就是为军事行动做铺垫**
+12月7日，经总统提名，代理国防部长米勒宣布，任命四星上将、美国太平洋舰队司令约翰.阿奎利诺担任印太司令部司令。他十分彪悍, 曾多次延长部署，支持海外军事行动 “拒绝飞行”、”慎重部队”、”南方观察”、”贵族之鹰”、”持久自由 “和 “伊拉克自由”。颤抖吧，中共。
 
-**Cyber Attacks and CCP Member List Revealed Again to Set the Stage for Military Action**
+On Dec. 7, following the presidential nomination, Acting Secretary of Defense Miller announced the appointment of four-star Admiral John Aquilino, commander of the U.S. Pacific Fleet, as commander of Indo-Pacific Command.Aquilino is a very tough man and has made several extended deployments in support of overseas military Operation Deny Flight, Deliberate Force, Southern Watch, Noble Eagle, Enduring Freedom and Iraqi Freedom, and so on. Tremble, CCP!
 
-中共的网络攻击和党员渗透由来已久，此时再次爆出，就是为美国即将采取的军事行动进行舆论铺垫。
+**大战来临，我们怎么办？**
 
-The Chinese Communist Party has a long history of cyberattacks and penetration, and the re-breaking of the story at this time is to set the stage for public opinion on the upcoming U.S. military actions.
+**What to Do for Impending War**
 
-**Oracle****跟随Tesla逃离加州**
+我们为正义而来，坚信正义必定战胜邪恶。我们内心有光明，无论眼前多么黑暗，也无法阻挡我们奔向光明。魔鬼已经疯狂，魔鬼必然灭亡。
 
-**Oracle Fled California Following Tesla**
+请每一位战友准备好末日物资，不忘每日传播爆料革命信息、传递真相。
 
-这两家公司都一致从左派大本营加利福尼亚硅谷，搬迁至德州的首府Austin。硅谷元老Oracle用脚投票，坐实了硅谷正在逐渐失去其科技中心的地位。
+We are here for justice, and we believe that justice will prevail over evil. We have light within us, and no matter how dark it is ahead, it will not stop us from running to the light. The devil has gone mad and it is bound to perish.
 
-Both companies relocated from the leftist stronghold of Silicon Valley, California, to the Texas capital of Austin. Oracle, one of the Silicon Valley founders, voted with its feet, confirming that Silicon Valley is losing its status as a technology hub.
+To every battle companion: Please prepare doomsday supplies, and never forget to spread news of the Whistleblower Movement to deliver the truth every day.
+
+#CCP\_is\_terrorist   #TakeDownTheCCP
 
 文案：《路德社》简报组：文寶Porsche；
 翻译：《路德社》翻译组
 审核校对：玫瑰天空
 上传排版：青葫芦娃
 
-0
+4+
