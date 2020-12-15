@@ -1,53 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发：总检察长、司法部长威廉∙巴尔将在圣诞节前离职
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/651926/)
+## 《路德社》精选主题专栏:巴尔退出代理司法部长将由副司法部长杰弗里·罗森（Jeffrey Rosen）暂时担任。 杰弗里·罗森是谁？
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/651823/)
 
-作者：克里斯蒂娜∙莱拉
+《路德社》精选主题专栏组出品
 
-翻译：康州盘古农场-Mike Li
+关于杰弗里·罗森
 
-校对：康州盘古农场-DIDI
+于1958年出生现年62岁的共和党人罗森，毕业于西北大学经济学学士学位，并在哈佛法学院获得法学博士，于1982年加入Kirkland＆Ellis律师事务所。
 
-审核：康州盘古农场-Truemanman
+Kirkland＆Ellis LLP是一家在芝加哥成立的律师事务所。按收入计算，它是世界上最大的律师事务所，世界上第一家收入达到40亿美元，按律师人数排名第七。罗森是这家律师事务所的高级合伙人。
 
-川普于周一晚上在推特上宣布了这一消息，总检察长、司法部长威廉**∙**巴尔将在圣诞节前离职。
+他于2003年离开公司，开始为美国政府工作。从2003年到2006年即小布什总统任期中，罗森担任美国运输部总顾问
 
-川普表示：“司法部副部长杰夫∙罗森将任命为代理部长**”**。
+2006年到2009年，罗森在OMB全称Office of Management and Budget工作，担任总顾问和高级政策顾问。2009年罗森结束OMB工作之后又重返Kirkland＆Ellis。
 
+从2015年到2016年，罗森担任美国律师协会行政法和监管实践部门的主席。
 
+2017年5月16日即特兰普任期中，罗森以56票对42票被确认为美国运输部副部长
 
-> Just had a very nice meeting with Attorney General Bill Barr at the White House. Our relationship has been a very good one, he has done an outstanding job! As per letter, Bill will be leaving just before Christmas to spend the holidays with his family…
-> — Donald J. Trump (@realDonaldTrump) [December 14, 2020](https://twitter.com/realDonaldTrump/status/1338614499981602819?ref_src=twsrc%5Etfw)
+2019年2特朗普总统提名罗森出任美国副检察长，成为司法部总检察长巴尔的副手。2019年5月罗森宣誓就职美国司法部副检察长。
 
+日前，川普总统接受了巴尔辞呈，代理司法部长将由副司法部长杰夫·罗赞暂时担任。
 
+随着巴尔退出，杰弗里·罗森（Jeffrey Rosen）将于2020年12月23日接替巴尔暂时成为代理司法部长。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15025738/images-1-2.jpg)
+[援引](https://en.m.wikipedia.org/wiki/Jeffrey_A._Rosen)
 
-…副总检察长杰夫∙罗森是一位杰出的人，他将成为代理总检察长。德高望重的理查德∙多诺霍将接任副总检察长一职。谢谢大家！pic.twitter.com/V5sqOJT9PM。
+本文作者：文森特
+审核校对：玫瑰天空
+上传排版：糖果儿
 
-- 唐纳德∙J∙川普（@真实的唐纳德·川普）2020年12月14日
-
-
-几周前，川普总统被问及是否仍然相信美国司法部长威廉∙巴尔，因为巴尔本周早些时候向美联社发表了关于选民欺诈的言论。
-
-川普总统说，如果司法部真正研究大规模选民欺诈的证据，他们会看到它是证据确凿的。
-
-“这不是民事违法，而是刑事犯罪。”川普说。
-
-关于他是否对巴尔有信心，川普回答说：”几周后再问我吧。”
-
-争议始于本周早些时候，威廉∙巴尔告诉美联社，司法部没有发现会改变2020年大选结果的大范围舞弊证据。
-
-巴尔告诉美联社，”到目前为止，我们还没有看到可能影响选举结果的大规模欺诈行为。”
-
-巴尔称，FBI已经对具体的选民舞弊投诉进行了跟踪调查，但他们却没有发现任何会改变选举结果的证据。
-
-最近还有人透露说，威廉∙巴尔为了避免干预选举，对亨特∙拜登的调查进行了保密。
-
-川普总统对巴尔感到失望，并表示司法部长应该出面澄清对亨特·拜登进行了调查。
-
-川普本周在接受《福克斯与朋友》采访时说，“乔∙拜登在辩论台上撒了谎，他说什么都没有发生，什么都没有发生，威廉∙巴尔应该提高调查力度。”
-
-原文链接：[https://www.thegatewaypundit.com/2020/12/breaking-attorney-general-bill-barr-step-just-christmas/](https://www.thegatewaypundit.com/2020/12/breaking-attorney-general-bill-barr-step-just-christmas/)
-
-1+
+2+

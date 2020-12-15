@@ -1,25 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美代理司法部长杰弗里•罗森任职经历简介
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/652250/)
+## 【热点播报】执法部门突袭SolarWinds公司总部
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/652296/)
 
-- 编辑：Victor Torres
+作者： 香草山写作组 村北
+
+媒体Gateway Pundit于12月14日晚间发布新闻：美国福克斯电视台Hannity节目透露，联邦调查局，德州侦查执法部门德州游骑兵，和美国司法部旗下的联邦法警突袭了信息管理软件公司SolarWinds位于德州奥斯丁的总部。
+
+美国网络及基础设施安全局13日非常罕见地发布了紧急指示，要求所有联邦部门马上断开或关掉使用SolarWinds Orion信息管理软件的所有计算机系统，表示发现骇客入侵了该软件系统，并有可能对广泛使用该软件的机构进行网络盗窃和攻击。
+
+Gateway Pundit指出，被发现进行大规模选举欺诈的多米尼投票系统也采用SolarWinds Orion软件。该媒体还提及，更多的有关此次执法部门突袭的信息以及有关SolarWinds公司高管的新闻将会逐渐曝光。
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2020年12月15日电/西喜社/——**在司法部长威廉•巴尔辞职后，杰弗里•罗森将接任代理司法部长一职。
-罗森此前曾担任副检察长，在罗德•罗森斯坦离职后，他于2019年5月被确认担任这一职务。
-“司法部副部长杰夫•罗森是一位杰出的人，将成为代理司法部长，”川普总统周一宣布。”德高望重的理查德-多诺霍将接任副司法部长一职。谢谢大家！”
-罗森接任司法部负责人之时，正值川普及其竞选团队对总统选举结果提出挑战之时。今年8月，罗森警告说，外国势力可能干预选举。
-“一些外国势力正在暗中试图破坏对我们选举的信心，因为他们是反对代议制民主的独裁政府，”罗森告诉战略与国际研究中心。
-在加入司法部之前，罗森是交通部副部长。在此之前，他曾在乔治•W•布什总统执政期间担任白宫管理和预算办公室的总顾问和高级政策顾问，并在1982年从哈佛法学院毕业后加入的Kirkland & Ellis律师事务所担任合伙人。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-新闻来源：[https://www.foxnews.com/politics/who-is-jeffrey-rosen-william-barr-replacement-attorney-general](https://www.foxnews.com/politics/who-is-jeffrey-rosen-william-barr-replacement-attorney-general)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-西班牙巴塞罗那喜悦农场官方Parlar二维码，敬请关注
-
-0
+3+
