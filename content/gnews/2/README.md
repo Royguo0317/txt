@@ -1,20 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文】-爱国者党
-` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/650557/)
+## 【重磅速递】密歇根州政府警察阻止共和党选举人团进入州议会大厦投票
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/650563/)
 
-《Deep State Target》（沼泽地目标）作者**George Papadopoulos**发推“我喜欢爱国者党的声音”，林伍德律师回复“这是1776（美国建国）党，美国爱国者党。”
+作者：Shawn、阳光脑袋【㊙️翻Gnews原创组】【㊙️翻北美组】
+责编：松鼠
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14173017/capture-113.jpg)图片来源：James Atoa/UPI Photo/Newscom/picture alliance
+按照美国宪法，12月14日各州的选举人团开始投票确认总统大选结果。但2020年总统大选过程，特别是密歇根州、宾夕法尼亚亚州、佐治亚州、威斯康星州和亚利桑那州存在的各种违规和造假问题，使得今天的选举人团投票现场诡谲滑稽，像是小偷偷了东西还要认证为合法所有一样的荒唐闹剧。
 
+当地下午2点左右，当密歇根州共和党人支持川普总统的选举人试图进入州议会大厦投票时，遭到州政府警察的阻拦，而不能入内。
 
+州政府警察向过来投票的共和党选举人说，“只有州议会选举人团，州长办公室，州众议院发言人和州参议院发言人才能进入议会议事厅。”在场的共和党选举人对警察说，他们也是选举人。但警察回复说，“所有16个选举人已经验证进入议事厅了。他们正在准备投票，确证大选结果，他们已经在这了。”言外之意，该进的人已经进了， 即使你们也是州选举人，但投川普总统的这些共和党选举人不算数。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14173114/capture1-22.jpg)来源： [https://twitter.com/BGOnTheScene/status/1338569994767101956?s=20](https://twitter.com/BGOnTheScene/status/1338569994767101956?s=20)
+下面这个视频显示的是警察与另外一个名共和党选举人的对话。这名共和党人刚一介绍，他是州长确证的共和党选举人。该警察立即说，“我不想和你进行政治辩论”。共和党选举人，说“这不是政治辩论。他的同事都是经过州长确认的共和党选举人，他们聚在这里，依据宪法责任，要进入议事厅履行宪法权利。”警察说，“我明白。但你们没有被允许进入选举团议事厅”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14173054/capture2-5.jpg)来源：[https://twitter.com/BGOnTheScene/status/1338572018523000836?s=20](https://twitter.com/BGOnTheScene/status/1338572018523000836?s=20)
+密歇根州众议院共和党女议员接受采访时，表示“我们共和党选举人认为，今天我们也需要参加投票。 “因为对密歇根州的选举造假状况正进行调查，所以共和党选举人团也应该选出他们的总统和副总统名额。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14173055/capture3-2.jpg)来源：[https://twitter.com/BGOnTheScene/status/1338597478833250304?s=20](https://twitter.com/BGOnTheScene/status/1338597478833250304?s=20)
+今天各个大选舞弊严重的这些州所举行的选举团人投票现场，更加清晰暴露了，是谁造成了这场美国历史上最严重的宪法危机和选举灾难。所有参与到这场对美国宪法的攻击和诋毁当中的人和势力，对各种荒唐离谱的造假行为视而不见，说没有选举造假的证据。然后慌慌张张，像小偷一样，把民主党人、绿党和自由派人士拉到现场，去进行所谓的选举人团确证。机关算尽太聪明，还误了卿卿性命。等明天川普总统的独立检察官任命和2018年行政令调查吧。所有今天猖狂谄笑的精英盗贼们，你们的荒唐违法行为都将作为明天呈堂定罪的罪证。
 
-> The 1776 Party – The Party of American Patriots. [https://t.co/gWPfA2537a](https://t.co/gWPfA2537a)
-> — Lin Wood (@LLinWood) [December 14, 2020](https://twitter.com/LLinWood/status/1338605605024624640?ref_src=twsrc%5Etfw)
-
-
-
-新闻素材和图片来自林伍德律师推特
-
-
+（本文仅代表作者观点）
 
 0

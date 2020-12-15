@@ -1,64 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世纪大案】36: 纽约州长
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/649322/)
+## 【林伍德律师推文】-巴尔是个爱国者
+` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/650793/)
 
-作者：香草山写作组 Tiffany 的早餐 校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07015922/logo-3-1-1.jpg)
+12月14日林伍德律师发推文称，（司法部长）比尔-巴尔是个爱国者。他给川普总统的信是优秀的。我相信巴尔会在12/23之前宣布重大举措，而不是停留在起诉上。他已经完成了他的工作，并很好地为国尽忠。新的总检察长和助理将起诉即将到来的大量的案件。
 
 
 
-摘要：串谋夺权的乔·拜登在习近平的授意下安排纽约州州长安德鲁·库莫做未来的司法部长，以便把川普家族和反对中共的美国保守力量一网打尽。
-
-2020年12月14日，美东时间上午7点40分左右，全球各地YouTube，以及Google旗下产品Gmail、Discord等产品无法登录账号。一小时后，路德的早间节目命题为：
-
-《路德时评（路安墨谈）：Youtube/谷歌等全球网络大崩溃，结合林伍德律师突然发推让所有人立即准备好水食物收音机等末日物资，再结合白宫突然发布国防部继承顺序行政命令意味着什么？》
-
-Google公司的大规模停止服务、川普总统的大律师林·伍德(Lin Wood)发出末日警告、白宫明确表明战时军事应急方案，这一切把美国箭在弦上的内战展露在世人面前。
-
-路德透露，在所谓的当选总统乔·拜登(Joe Biden)的人事安排中，重中之重的司法部长的被提名人，就是现任纽约州州长安德鲁·库莫(Andrew Cuomo)，而这一人事安排的背后就是习近平的授意。
-
-亨特·拜登(Hunter Biden)和中国华信能源公司(CEFC)董事长叶简明合作成立SinoHawk Holdings，其CEO托尼·波布林斯基(Tony Bobulinski)在拜登家族硬盘门事件中站出来，成为公开的爆料人。他透露，中共对美国许多政要进行了渗透，其中之一就是安德鲁-库莫([世纪大案 17：贼喊捉贼](https://gnews.org/zh-hans/441412/))([世纪大案 27：黑命贵催债](https://gnews.org/zh-hans/550586/))。
-
-路德在当日的节目中惊爆，如果老拜登的计划成功，夺取总统政权后，其首要事项之一就是让安德鲁·库莫成为司法部长。假设安德鲁·库莫能够上任，他在24小时内就有可能签发命令对川普总统家族立案，甚至立即逮捕。
-
-当然，也不仅仅是私人恩怨。路德还透露，所谓当选总统拜登的行政班子，将对美国保守力量进行大规模清洗。除了川普全家外，还要在全国范围内迫害和共产党-极左势力对抗的美国人。习近平和中共希望借此机会悉数剿灭美国政坛上的反共派，而沦为共产党傀儡的民主党则希望一举清理两百年的政敌，让美国成为实质上的一党专政。
-
-安德鲁·库莫是何许人也？2020年CCP冠状病毒大流行中，世人已经充分了解了纽约州的抗疫情况，州长安德鲁·库莫的言行，被公众和舆论多有批评。纽约州处处和联邦政府对抗，疫情也是最严重的。除了疫情，还有臭名昭著的BLM、ANTIFA，各种骚乱，纽约州到底在做什么？
-
-纽约州州长在美国的政治版图上有特别的意义：
-
-- 44任州长：富兰克林·罗斯福(Franklin Roosevelt)
-- 47任州长：托马斯·杜威(Thomas Deway)：前共和党总统候选人，败给哈里-杜鲁门(Harry Truman)，深刻地影响了中国的命运 ([盘古相聚 2. 同一个世界、同一片沼泽——民主党和共产国际](https://gnews.org/zh-hans/530585/))
-- 49任州长：纳尔逊-洛克菲勒(Nelson Rockefeller)，来自显赫的洛克菲勒家族
+> Bill Barr is a Patriot. His letter to [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) was excellent. I believe Barr will announce major moves before 12/23 but does not want to stay to prosecute. He has done his job & served country well. New AG & assistants will prosecute the massive number of cases coming.
+> — Lin Wood (@LLinWood) [December 14, 2020](https://twitter.com/LLinWood/status/1338623862486020096?ref_src=twsrc%5Etfw)
 
 
-此外就是本文中的库莫父子。第56任纽约州州长安德鲁·库莫，民主党籍，1957年生于纽约皇后区——川普总统的故乡。然而安德鲁·库莫最恨的政界人士，也许就是川普总统。库莫也是官二代，他的父亲马里奥·库莫(Mario Cuomo)是纽约州52任州长。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14110222/5ba2a16418afa.image_.jpg)安德鲁-库莫和克里-肯尼迪 图片来源：AP
+
+新闻素材和图片来自林伍德律师推特
 
 
-安德鲁-库莫的配偶克里·肯尼迪(Kerry Kennedy)来自民主党显赫的肯尼迪家族。肯尼迪三兄弟：总统约翰·肯尼迪(JFK, John F. Kennedy)、司法部长/纽约州参议员罗伯特·肯尼迪(Robert Kennedy)、马萨诸塞州参议员参议员爱德华·肯尼迪(Ted Kennedy)。库莫夫人即是被刺杀的罗伯特-肯尼迪的女儿。安德鲁·库莫和克里·肯尼迪于1990年结婚，2005年离婚。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14110339/150102071410-cuomo-clinton-history-file-horizontal-large-gallery-1.jpg)从左到右：马里奥·库莫、安德鲁·库莫、比尔·克林顿，摄于2013年 图片来源：CNN
-安德鲁·库莫的父亲马里奥·库莫从1983年到1994年担任了十多年纽约州长，2011年安德鲁·库莫做州长至今也接近十年。安德鲁·库莫的州长父亲、和民主党大佬肯尼迪家族的政治联姻，无不反应了官僚家族复杂的裙带关系。
 
-现代民主党的腐败在某些方面已经相当接近共产党。安德鲁·库莫的从政之路从他父亲竞选州长的团队开始，之后在纽约州担任一些公职。在比尔·克林顿(Bill Clinton)任上，开始进入联邦政府作房屋和城市发展部助理部长、部长。克林顿离任后，他成为纽约州检察总长，直至州长。
-
-在2020的CCP冠状病毒疫情、BLM全国性骚乱，以及大选中，民主党政要的表现惊人地一致——反川普、反保守主义传统。另一个惊人的一致，就是他们都在波布林斯基给出的中共渗透对象的名单中。
-
-恐怕老态龙钟的拜登是让CCP的中组部安排了美国的下一届领导班子吧？CCP力推的安德鲁·库莫，也就是CCP所幻想的美国的刀把子——司法部长，难道将是美国版的孟建柱吗([世纪大案 9：南普陀计划](https://gnews.org/zh-hans/377802/))？
-
-可是，我们恐怕没有机会看到安德鲁·库莫成为司法部长了。川普总统、爆料革命已经在准备绝地反击的一战。被CCP多年蓝金黄安德鲁·库莫先生的去处，会是哪里呢？
-
-(待续)
-
-相关链接：
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/10104056/image0-2-1-768x493-1.png)](https://gnews.org/zh-hans/624473/)
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-0
+5+

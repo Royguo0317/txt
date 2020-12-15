@@ -1,38 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 林伍德：川普有勇气采取行动
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/649648/)
+## 中共病毒疫苗生产工厂的地板上沾有粪便
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/650975/)
 
-- 编辑：文顺
-- 翻译：Ranting
-- 素材：Victor Torres、神奇四侠
+多伦多枫叶农场（原加喜农场） ctt
+校对 文锦 上传 云起时
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14204338/npr.org-2.jpg)图片来源：npr.org
+据《自然新闻》(Natural News)12月13日报道，前美国食品和药物管理局(FDA)质量控制专家阿里·梅纳克姆 (Arie Menachem)爆料，他观察到中共病毒疫苗生产工厂默克公司（Merck）的生产工厂存在严重的安全违规行为。
 
+梅纳克姆是一个由13人组成的”生物制品小组”的一员，该小组被称为精英小组，负责检查大约280家不同的疫苗和血液制品生产厂。他告诉《名利场》(Vanity Fair )，默克公司疫苗组装的生产车间卫生条件非常恶劣，看后会让人无比震惊。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+对此，在2018年11月，梅纳克姆向美国特别顾问办公室提交了一份举报信, 信上说：“在无菌生产车间里，上厕所休息可能会很困难，因为需要额外的时间，脱衣服可能需要15分钟，重新穿衣服可能需要15分钟，而在夜班，在这段时间内可能没有其他人来顶替。工人们似乎穿着制服便溺，而且在工厂生产区的地板上发现了涂抹的粪便。”
 
-**西班牙2020年12月14日电/西喜社/——**1小时前，林伍德（Lin Wood）就大选发推表示，如果最高法院没有勇气采取行动，相信川普总统有勇气。
+在提交这份报告之前，梅纳克姆曾将这个严重安全违规问题告知美国食品和药物管理局（FDA），但FDA拒绝认真对待，因为FDA将授予中共病毒疫苗的紧急使用授权，大药厂在以最快的速度生产和销售疫苗，让它们开始以最快的速度流向市场。联邦机构更关心的是制药行业的利润，而不是让公众免受潜在的疫苗污染的影响。
 
-林伍德在推文中说：“今天任何州都不应该有选举团的投票。各州选举中的舞弊现象十分猖獗。如果美国最高法院没有勇气采取行动，我相信川普总统有勇气（采取行动）。”
+据《名利场》报道，目前还不清楚，FDA会不会要求对生产工厂进行全面检查, 以作为批准疫苗投放市场的先决条件，因为FDA需要的是速度。而约翰-霍普金斯大学公共卫生学院副院长说，”允许中共病毒疫苗产生错误的空间不大”。儿童健康保护组织 (CHD) 的一位评论者写道: “绝对恶心！所有这些制造商都需要以反人类罪被送上法庭。”
 
+在其他制药厂也有类似事件发生，例如儿童健康保护组织也曾报道，一家制药巨头礼来公司（Eli Lilly）多年来因其生产工厂的质量控制问题而与FDA发生冲突。
 
+评：
 
-> There should be NO Electoral College vote in any state today.
-> 
-> Fraud is rampant in all state elections. If U.S. Supreme Court does not have courage to act, I believe our President [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) has the courage. He loves America & freedom.[@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw)[@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) [pic.twitter.com/xfkCjwNDJ1](https://t.co/xfkCjwNDJ1)
-> — Lin Wood (@LLinWood) [December 14, 2020](https://twitter.com/LLinWood/status/1338499888238252033?ref_src=twsrc%5Etfw)
+现今世界上的中共病毒疫苗都没有大规模、经得起时间检验的测试，且已有人接种后，产生严重不良反应。而本文所提到的生产车间卫生恶劣的条件，将使疫苗质量雪上加霜，要知道，劣质的中共病毒疫苗给人们健康带来的损害是金钱所无法弥补的，这或许是中共病毒次生灾难的开始。
 
+[原文链接](https://www.naturalnews.com/2020-12-13-merck-covid19-vaccines-biohazard-nightmare-feces-filth.html)
 
-
-随后，林伍德转发川普总统推文，并说：“真相。”川普总统在推文中说：“为什么摇摆州在半夜停止计数？因为他们在等着找出他们必须制作多少张选票，以便窃取被操纵的选举。他们落后得太多，以至于他们需要时间，以及一个假的”水管破裂”来恢复。”
-
-
-
-> TRUTH. [https://t.co/izijRmB1tv](https://t.co/izijRmB1tv)
-> — Lin Wood (@LLinWood) [December 14, 2020](https://twitter.com/LLinWood/status/1338500559532384256?ref_src=twsrc%5Etfw)
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
-
-0
+4+
