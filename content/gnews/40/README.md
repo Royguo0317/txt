@@ -1,23 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯：美网络安全和设备安全局（CISA）紧急指令警示Solarwinds（太阳风）软件风险伤害
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/651795/)
+## 20201215东京樱花团晚间新闻速报
+` 东京樱花团-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/652125/)
 
-出品：《路德社》 编辑：《路德社》精选主题专栏组出品
+HTS-01C-202012-046
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15081631/%E5%86%99%E7%9C%9F%E2%91%A0.jpg)
+1、日本首相菅义伟宣布全国暂停GO TO；
 
-美国国家网络安全和设备安全局（ClSA）十四日签署紧急指令 [Emergency Directive 21-01](https://cyber.dhs.gov/ed/21-01/), ，以应对利用太阳风软件漏洞的恶意网络行为，该紧急指令呼吁所有联邦机构检查民用网络，发现其危害的迹象，并立即断开或关闭SolarWinds Orion产品的电源。
+2、爱知县、大阪市要求辖区内餐饮、卡拉OK等缩短营业时间；
 
-这是CISA根据国会在2015年《网络安全法》中授予的权限发布的第五个紧急指令。所有运行SolarWinds产品的机构都应在2020年12月14日星期一美国东部标准时间下午12点之前向CISA提供完成报告。
+3、日立决定将海外家电业务出售给土耳其家电巨头；
 
-据＂零对冲＂Zerohedge 推特，北约官方同样也发出了关于solarwinds的风险警示！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15023002/1215-1-2.jpg)
-[援引原文](https://www.cisa.gov/news/2020/12/13/cisa-issues-emergency-directive-mitigate-compromise-solarwinds-orion-network)
+4、日本邮政因出售违法的人寿保险处罚343人；
 
-本文作者：上進哥
+5、厚生劳动省已与各自治体建立行政联系，建立咨询系统，及时帮助失业人口；
 
-审核校对：玫瑰天空
+6、日本今年年度代表汉字是“密”字；
 
-上传排版：青葫芦娃
+7、日本银行发表12月“短评”，大企业·制造业的判断指数（DI）比9月改善了17个百分点，为负10。大企业·非制造业改善7个百分点为负5；
 
-3+
+8、东京都12月14日305人确诊CCP病毒。
+
+新聞速报取材于下述链接：
+
+[https://news.yahoo.co.jp/articles/faf6375746c31edee8e96ca07d7cf1f48a7fdde3](https://news.yahoo.co.jp/articles/faf6375746c31edee8e96ca07d7cf1f48a7fdde3)
+
+[https://news.yahoo.co.jp/articles/36a02ecd0519176d3eb4377454b1d01f68e7d11f](https://news.yahoo.co.jp/articles/36a02ecd0519176d3eb4377454b1d01f68e7d11f)
+
+[https://news.yahoo.co.jp/articles/4384bbc339ab818fcbeb24f1473fbcfd4259a1c5](https://news.yahoo.co.jp/articles/4384bbc339ab818fcbeb24f1473fbcfd4259a1c5)
+
+[https://news.yahoo.co.jp/articles/c8d0e548e7283f95ff19e83d1cea3b4d909b7db2](https://news.yahoo.co.jp/articles/c8d0e548e7283f95ff19e83d1cea3b4d909b7db2)
+
+[https://news.yahoo.co.jp/articles/25f3e606cd702341b0cebf84c93b273eaf756c77](https://news.yahoo.co.jp/articles/25f3e606cd702341b0cebf84c93b273eaf756c77)
+
+[https://news.yahoo.co.jp/articles/1000341a0482a8ad2a2b16ac97ed232652e44e77](https://news.yahoo.co.jp/articles/1000341a0482a8ad2a2b16ac97ed232652e44e77)
+
+
+
+9+

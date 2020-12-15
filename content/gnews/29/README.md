@@ -1,35 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普转推:乔治亚州州长和州务卿即将入狱
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/652244/)
+## 中共疫苗遭质疑 巴西总统签署临时采购措施
+` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/652369/)
 
-- 编辑：Victor Torres
+内新闻：背靠背
 
+2020年12月15日，据雅虎报道，巴西卫生监管机构-安维萨（Anvisa）周一指责中共国在努力争取其Covid-19（中共病毒）CoronaVac疫苗紧急批准方面不透明，目前该疫苗正处于试验的最后阶段。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+安维萨在一份声明中表示，在中国（中共国）紧急批准使用标准是不透明的。
 
-**西班牙2020年12月15日电/西喜社——**
+CoronaVac疫苗，由中共国私人实验室科-北京科兴物制品有限公司（简称科兴Sinovac）与巴西圣保罗巴坦坦研究所合作生产。
 
-周二，川普转发林伍德推特。
-该推称赞川普总统是一个真正的好人。声称乔治亚州州长和州务卿即将入狱。
-林伍德说:“他并不真的喜欢解雇人。我打赌他不喜欢把人关进监狱，尤其是 ‘共和党人’。”
-“他给了乔治亚州州长和州务卿每一次机会来纠正它。他们拒绝了。他们很快就会进监狱。”
-前一天晚上传来了美国司法部长巴尔辞职的消息，副部长杰弗里·罗森将出任代理司法部长。
-林伍德的这一表态可能和上述人事变动有关。
-川普的转推印证了林伍德的表态，一场席卷大选舞弊犯罪的大风暴似乎正在酝酿中。
+12月14日，Labsnews报道，巴西圣保罗州周一推迟的CoronaVac疫苗疗效数据。随后，巴西总统签署临时采购措施。
 
+早前疑似一名试验志愿者死亡，巴西卫生监管部门，11月10日，暂停了科兴中共病毒疫苗的临床试验。
 
+据路透社报道，12月15日报道，巴西总统贾尔·博尔索纳罗（Jair Bolsonaro）周二签署一项临时措施，该措施将释放200亿美元购买针对Covid-19（中共病毒）疫苗 ，但他再次强调，该国将不会强制使用疫苗，任何想要接种该疫苗的人都会签署责任豁免。
 
-> President Trump [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) is a genuinely good man. He does not really like to fire people. I bet he dislikes putting people in jail, especially “Republicans.”
-> 
-> He gave [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw) & [@GaSecofState](https://twitter.com/GaSecofState?ref_src=twsrc%5Etfw) every chance to get it right. They refused. They will soon be going to jail. [pic.twitter.com/7PMBLc8L2N](https://t.co/7PMBLc8L2N)
-> — Lin Wood (@LLinWood) [December 15, 2020](https://twitter.com/LLinWood/status/1338715369566048256?ref_src=twsrc%5Etfw)
+除了与阿斯利康/牛津的协议（尚未完成临床试验）外，政府正试图与制造商进行谈判，尤其是与辉瑞公司（其已在英国和美国使用了其免疫剂）进行谈判，以购买疫苗剂量。
 
+博尔索纳罗尤其质疑中共企业科兴生产的CoronaVac疫苗。
 
+他还表示接种中共病毒疫苗存在风险，那些决定接种该疫苗的人必须签署一项责任条款。他说，辉瑞在合同中非常明确：“我们不对副作用负责”。“有些人想接受，所接受它。这是您的责任。想拿，拿。如果那里有问题……我希望不会。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+早在11月26日，博尔索纳罗曾明确表示，他不会接种中共病毒疫苗。
 
-西班牙巴塞罗那喜悦农场官方Parlar二维码，敬请关注
+调查数据表明，博尔索纳罗总统否认Covid-19（中共病毒）疫苗的立场，更多巴西人选择不接种中共病毒疫苗。Datafolha于本周日发布的最新调查显示，22％的受访者不打算接种该疫苗。八月份，该指数为9％。 巴西总人口约2.2亿人，根据Worldometer数据，截止2020年12月15日，累计确诊中共病毒6,929,409例，累计死亡181,945例。
 
-2+
+0
