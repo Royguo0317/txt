@@ -1,41 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 20201215东京樱花团晚间新闻速报
-` 东京樱花团-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/652125/)
+## 《路德社》精选新闻快讯：林伍德发推“川普即将开始大扫除”
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/652130/)
 
-HTS-01C-202012-046
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15081631/%E5%86%99%E7%9C%9F%E2%91%A0.jpg)
-1、日本首相菅义伟宣布全国暂停GO TO；
+出品《路德社》编辑：路德社精选新闻专栏组
 
-2、爱知县、大阪市要求辖区内餐饮、卡拉OK等缩短营业时间；
-
-3、日立决定将海外家电业务出售给土耳其家电巨头；
-
-4、日本邮政因出售违法的人寿保险处罚343人；
-
-5、厚生劳动省已与各自治体建立行政联系，建立咨询系统，及时帮助失业人口；
-
-6、日本今年年度代表汉字是“密”字；
-
-7、日本银行发表12月“短评”，大企业·制造业的判断指数（DI）比9月改善了17个百分点，为负10。大企业·非制造业改善7个百分点为负5；
-
-8、东京都12月14日305人确诊CCP病毒。
-
-新聞速报取材于下述链接：
-
-[https://news.yahoo.co.jp/articles/faf6375746c31edee8e96ca07d7cf1f48a7fdde3](https://news.yahoo.co.jp/articles/faf6375746c31edee8e96ca07d7cf1f48a7fdde3)
-
-[https://news.yahoo.co.jp/articles/36a02ecd0519176d3eb4377454b1d01f68e7d11f](https://news.yahoo.co.jp/articles/36a02ecd0519176d3eb4377454b1d01f68e7d11f)
-
-[https://news.yahoo.co.jp/articles/4384bbc339ab818fcbeb24f1473fbcfd4259a1c5](https://news.yahoo.co.jp/articles/4384bbc339ab818fcbeb24f1473fbcfd4259a1c5)
-
-[https://news.yahoo.co.jp/articles/c8d0e548e7283f95ff19e83d1cea3b4d909b7db2](https://news.yahoo.co.jp/articles/c8d0e548e7283f95ff19e83d1cea3b4d909b7db2)
-
-[https://news.yahoo.co.jp/articles/25f3e606cd702341b0cebf84c93b273eaf756c77](https://news.yahoo.co.jp/articles/25f3e606cd702341b0cebf84c93b273eaf756c77)
-
-[https://news.yahoo.co.jp/articles/1000341a0482a8ad2a2b16ac97ed232652e44e77](https://news.yahoo.co.jp/articles/1000341a0482a8ad2a2b16ac97ed232652e44e77)
+2020年12月15日，林·伍德发推：美国急需彻底的大扫除。太多的贪婪和腐败。川普总统即将为人民彻底进行清除。淡定。
 
 
 
-9+
+> America is in dire need of a good housecleaning. Way too much corruption & greed. [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) is going to clean it up for We The People. Steady.
+> 
+> “But now the LORD my God hath given me rest on every side, so that there is neither adversary nor evil occurrent.”
+> – 1 Kings 5:4 [pic.twitter.com/JPZHFJiQhM](https://t.co/JPZHFJiQhM)
+> — Lin Wood (@LLinWood) [December 15, 2020](https://twitter.com/LLinWood/status/1338726421955571712?ref_src=twsrc%5Etfw)
+
+
+
+继林·伍德大律师号召美国民众准备充足的食物、设备和枪支弹药后，今天他明确表示川普总统将马上采取行动，彻底清理美国政府内部的贪污和腐败问题。结合司法部长巴尔的离职，川普总统的反击计划正有条不紊地实施，等待合适时机完成致命一击。
+
+本文作者：Stranger
+
+审核校对：玫瑰天空
+
+上传排版：青葫芦娃
+
+4+

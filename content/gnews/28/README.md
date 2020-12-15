@@ -1,24 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 微软比尔·盖茨对未来几个月的中共病毒疫情表示担忧
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/652045/)
+## 12/15/2020 财经快讯: 羊肉价格连续八周上涨, A股退市新规出炉, 新增多个退市红线!
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/652137/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12200038/1-74.png)图片来源：[http://www.radiorural.com.br/noticias](http://www.radiorural.com.br/noticias/40933-sc-planeja-ter-vacina-contra-a-covid-19-em-janeiro-e-reserva-r-300-milhoes-para-comprar-doses)
-据MarketWatch报道，微软创始人之一的比尔·盖茨（Bill Gates）在周日（2020年12月13日）接受美国有线电视新闻网（CNN）的杰克塔帕（Jake Tapper）采访中对于第一批中共病毒疫苗问世后的疫情曲线表示担忧。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/19092840/Picture9-2.png)图片来源：[https://static.reuters.com/](https://static.reuters.com/resources/r/?m=02&amp;d=20201118&amp;t=2&amp;i=1541688382&amp;r=LYNXMPEGAH1SP&amp;w=1024)
 
-比尔·盖茨说：“不幸的是未来四到六个月的疫情可能会是大流行以来最糟糕的。IHME模型预计这段时间中将会有超过20万人死于中共病毒。但如果我们能遵守规定，比如戴口罩和保持社交距离，那么死亡人数可能大大低于模型的预计。” 也就是说，盖茨希望民众对疫苗克制疫情的效果不要过于乐观。
+1.道琼斯工业指数跌0.48%，收报29,900.96点；标普500指数跌0.32%，收报3,651.92点；纳斯达克指数涨0.61%，收报12,453.96点。美股迪士尼拖累标普500指数收低，迪士尼股价下跌3.65%；亚马逊领涨非必需消费品板块，股价上涨1.4%。
+[https://cn.reuters.com/article/usa-stock-1214-mon-idCNKBS28P012?il=0](https://cn.reuters.com/article/usa-stock-1214-mon-idCNKBS28P012?il=0)
 
-盖茨还表示：“目前疫情当下的美国和全球经济比我五年前关于大流行的经济预言影响要大很多。最早2021年夏天我们期盼已久的正常生活可能有希望逐渐回归。但疫情也可能持续到2022年初，除非我们在美国本土高疫苗接种率的基础上帮助其他国家摆脱疫情。否则如果疫情卷土重来，世界经济的低迷势必很大程度上影响美国经济的复苏。”
+2.经过一年多的调查和传讯，美籍华裔研究人员对向中共出售商业秘密的指控认罪。美国司法部发布公告，曾在美国俄亥俄州哥伦布市国家儿童医院做研究工作的华裔男子周宇（Yu Zhou）12月11日在美国地区法院对窃取与外泌体相关的各种儿科疾病的研究、鉴定和治疗的商业机密，并从中图谋私利认罪。
+[https://www.voachinese.com/a/Yu-Zhou-pleads-guilty-conspiring-to-steal-trade-secrets-and-sell-them-China-20201214/5698991.html](https://www.voachinese.com/a/Yu-Zhou-pleads-guilty-conspiring-to-steal-trade-secrets-and-sell-them-China-20201214/5698991.html)
 
-**译评：**
+3.被控窃取美国技术让华为受益的中共国教授毛波12月14日被判有罪，因其向美国联邦调查局撒谎，之后计划返回中共国。毛波曾与矽谷的CNEX Labs公司达成了协议，表面上获得其电路板用于学术研究，但是最终与华为共享专利信息。
+[https://cn.reuters.com/article/chinese-usa-professor-huawei-1214-mon-idCNKBS28P033?il=0](https://cn.reuters.com/article/chinese-usa-professor-huawei-1214-mon-idCNKBS28P033?il=0)
 
-比尔·盖茨上CNN推疫苗有点含糊其辞，进进退退，云里雾里，也没说自己是否会接种疫苗。笔者认为，如果像川普总统和朱利安尼律师那样高龄并且感染极高浓度的病毒都能快速恢复，美国本土仍然每天几千人死亡是不应该的。比尔·盖茨访谈提到说美国在未来半年仍有20多万人死亡的预期更是毫无根据和滑稽的。
+4.12月14日晚间，沪深交易所发布了改革后的退市制度。本次修订完善了4类强制退市指标，分别是取消单一退市指标，新增组合财务指标、新增市值退市指标、新增信息披露、规范运作退市指标、明确财务造假退市判定标准。值得注意的是，新规仍存在漏洞，以财务造假退市判断标准为例，该新规标准实在太低，上市公司可以通过改动财务报表轻松躲过该指标。
+[http://stock.jrj.com.cn/2020/12/15001631489820.shtml](http://stock.jrj.com.cn/2020/12/15001631489820.shtml)
 
-这次造成美国大规模感染和死亡的罪魁祸首是福奇领导下的官僚主义医疗体系拖延治疗，并且在批准药物不够用的情况下死活不给价廉物美的羟氯喹治疗的结果。更加荒唐的是，即使遇到了肯开羟氯喹的医生，发药的药师也可以有权拒绝给药。参议院近期有关于羟氯喹的听证会，希望能有进展而拯救生命。另外，让医生护士先打中共病毒疫苗也可能倒逼更多医生护士站出来推广羟氯喹作为民众可以选择的一个与疫苗并行的预防中共病毒的选项。
+5.据农业农村部对全国500个集贸市场监测，2020年12月第二周，全国羊肉价格为每公斤82.66元，由于供应不足，连续八周上涨，同比上涨3.6%。山东德州一家羊肉屠宰企业的负责人告诉记者，他们企业屠宰量增加了50%，但是依然无法满足订单需求。
+[https://finance.sina.com.cn/chanjing/cyxw/2020-12-15/doc-iiznctke6537052.shtml](https://finance.sina.com.cn/chanjing/cyxw/2020-12-15/doc-iiznctke6537052.shtml)
 
-[原文链接](https://www.marketwatch.com/story/bill-gates-on-the-next-few-months-of-the-coronavirus-pandemic-its-bad-news-11607893787)
+By 【秘翻组 – 金融法律团队 -Tracy】
 
-翻译：Forguo
-
-2+
+5+

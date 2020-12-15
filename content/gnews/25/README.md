@@ -1,29 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯：林伍德发推“川普即将开始大扫除”
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/652130/)
+## 【热点播报】多米尼投票机被法务审计认为“具有国家安全问题”
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/652173/)
 
-出品《路德社》编辑：路德社精选新闻专栏组
+作者： 香草山写作组 七芒星；校对/发稿：村北
 
-2020年12月15日，林·伍德发推：美国急需彻底的大扫除。太多的贪婪和腐败。川普总统即将为人民彻底进行清除。淡定。
+根据Populist Press 12月14日的消息，有公司对密歇根州一个小县的22台多米尼投票系统进行了法务审计，并得出结论认为该系统的设计是有意和有目的地带有固有误差，用于制造系统性舞弊并影响选举结果。
 
+该公司在星期一发布的报告中建议川普总统采取措施，使用2018年关于外国干涉的行政命令，以确保美国的国家安全。
 
+该报告还详细说明了该系统有意地产生大量选票”错误“，然后将标有“错误”的电子选票移交给“裁决”步骤，然后在没有监督，没有透明度，也没有审计追踪的情况下对选票的进行“裁决”。这最终导致选民或选举欺诈。
 
-> America is in dire need of a good housecleaning. Way too much corruption & greed. [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) is going to clean it up for We The People. Steady.
-> 
-> “But now the LORD my God hath given me rest on every side, so that there is neither adversary nor evil occurrent.”
-> – 1 Kings 5:4 [pic.twitter.com/JPZHFJiQhM](https://t.co/JPZHFJiQhM)
-> — Lin Wood (@LLinWood) [December 15, 2020](https://twitter.com/LLinWood/status/1338726421955571712?ref_src=twsrc%5Etfw)
+美国国家情报总监日前在接受媒体采访时指出2020美国大选存在外国干预，根据川普总统2018年发布的关于外国干涉大选的行政命令，情报总监将在大选后45天内也就是12月18日内发布其最终调查报告。据路德社透露，中共干预美国大选已基本做实。
 
 
 
-继林·伍德大律师号召美国民众准备充足的食物、设备和枪支弹药后，今天他明确表示川普总统将马上采取行动，彻底清理美国政府内部的贪污和腐败问题。结合司法部长巴尔的离职，川普总统的反击计划正有条不紊地实施，等待合适时机完成致命一击。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-本文作者：Stranger
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-审核校对：玫瑰天空
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-上传排版：青葫芦娃
-
-4+
+0

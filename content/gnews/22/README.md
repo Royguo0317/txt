@@ -1,35 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普转推:乔治亚州州长和州务卿即将入狱
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/652244/)
+## 美代理司法部长杰弗里•罗森任职经历简介
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/652250/)
 
 - 编辑：Victor Torres
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2020年12月15日电/西喜社——**
+**西班牙2020年12月15日电/西喜社/——**在司法部长威廉•巴尔辞职后，杰弗里•罗森将接任代理司法部长一职。
+罗森此前曾担任副检察长，在罗德•罗森斯坦离职后，他于2019年5月被确认担任这一职务。
+“司法部副部长杰夫•罗森是一位杰出的人，将成为代理司法部长，”川普总统周一宣布。”德高望重的理查德-多诺霍将接任副司法部长一职。谢谢大家！”
+罗森接任司法部负责人之时，正值川普及其竞选团队对总统选举结果提出挑战之时。今年8月，罗森警告说，外国势力可能干预选举。
+“一些外国势力正在暗中试图破坏对我们选举的信心，因为他们是反对代议制民主的独裁政府，”罗森告诉战略与国际研究中心。
+在加入司法部之前，罗森是交通部副部长。在此之前，他曾在乔治•W•布什总统执政期间担任白宫管理和预算办公室的总顾问和高级政策顾问，并在1982年从哈佛法学院毕业后加入的Kirkland & Ellis律师事务所担任合伙人。
 
-周二，川普转发林伍德推特。
-该推称赞川普总统是一个真正的好人。声称乔治亚州州长和州务卿即将入狱。
-林伍德说:“他并不真的喜欢解雇人。我打赌他不喜欢把人关进监狱，尤其是 ‘共和党人’。”
-“他给了乔治亚州州长和州务卿每一次机会来纠正它。他们拒绝了。他们很快就会进监狱。”
-前一天晚上传来了美国司法部长巴尔辞职的消息，副部长杰弗里·罗森将出任代理司法部长。
-林伍德的这一表态可能和上述人事变动有关。
-川普的转推印证了林伍德的表态，一场席卷大选舞弊犯罪的大风暴似乎正在酝酿中。
-
-
-
-> President Trump [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) is a genuinely good man. He does not really like to fire people. I bet he dislikes putting people in jail, especially “Republicans.”
-> 
-> He gave [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw) & [@GaSecofState](https://twitter.com/GaSecofState?ref_src=twsrc%5Etfw) every chance to get it right. They refused. They will soon be going to jail. [pic.twitter.com/7PMBLc8L2N](https://t.co/7PMBLc8L2N)
-> — Lin Wood (@LLinWood) [December 15, 2020](https://twitter.com/LLinWood/status/1338715369566048256?ref_src=twsrc%5Etfw)
-
-
+新闻来源：[https://www.foxnews.com/politics/who-is-jeffrey-rosen-william-barr-replacement-attorney-general](https://www.foxnews.com/politics/who-is-jeffrey-rosen-william-barr-replacement-attorney-general)
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 西班牙巴塞罗那喜悦农场官方Parlar二维码，敬请关注
 
-2+
+0

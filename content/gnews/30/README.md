@@ -1,84 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》每日简报早间版 2020.12.14&#8211;NewYork Time
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/651726/)
+## 2020年12月15日面具先生直播文字版
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/652072/)
 
-出品《路德社》 编辑：路德社精选新闻专栏组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15021718/1214-AM-ZH-scaled.jpg)
-撰稿：文寶Porsche   译校：Arvin江牧
+文稿整理：康州盘古农场-64喜马拉雅 & 康州盘古农场-Antsee-GTV
+审核：康州盘古农场-文韵
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/04060019/%E9%80%9F%E8%AE%B0%E5%B0%81%E9%9D%A2.jpg)
+尊敬的战友们，大家好，我是面具先生
 
-翻译统筹：阿轩Action
+1、战友们，昨天大家看了吧？最近的大事太多了。再听完今天郭先生直播，相信战友们就会对发生的大事有一个更高的认识。所有大事的发生都直指一个目标：Take Down The CCP。郭先生发布的这首《Take Down The CCP》的同名歌也将响遍全球，因为拯救全人类遇到的最大挑战的最佳良方就是郭先生三年前说的：Take Down The CCP，干掉共产党！每一次听郭先生的音乐都会让我无比感动，兴奋和激动。这首歌非常契合今天的节目主题。另外，每当听到郭先生唱《妈妈》这首歌时，我每一次都会哭。战友们，有人为了钱在唱歌，有人为了利在唱歌，有人为了所谓的情，色在唱歌。但是全人类只有一个人为了灭共而歌唱。这是发自内心的声音也是最美的旋律，因为它太真实了。在CCP统治下的邪恶王朝全是红歌。我们以后要唱发自我们内心真实的歌曲，内心的艺术，只有真实它才能与艺术更加接近。为了心中的信仰，为了14亿同胞和整个世界而灭共的郭先生已经失去了他的妈妈。所以尊敬的郭先生不仅仅是我们的战友，也是灭共的孩子。无私无我，有利他之心，这就是爆料革命！
 
-1214早间要闻-NewYork Time
+2、全世界的社交媒体、网络因为美过和CCP的较量和碰撞被影响暂时瘫痪时，只有我们的GTV GNEWS不受影响。我们的G系列的强大，绝不仅仅是因为川普总统的230法案，更重要的是依靠我们的实力。这些年所有各大社交媒体平台为了打进中国市场，为了利益和CCP勾兑，挤破脑袋给CCP当孙子，帮CCP说假话，帮CCP干掉美国。我们的G系列告诉全世界，我们也要让中国这个大市场加入，但我们靠的不是和CCP勾兑，我们靠的是真相，实力和利他。为全世界(不仅仅是中国同胞)所有人民提供最真实，有效，帮你避灾，避险，避难，能救命的信息。
 
-**LuDe Media 20201214 Morning News, New York Time**
+3、有消息川普总统将赦免阿桑奇，阿桑奇作为维基解密的创始人曾公布了相当数量的机密文件，他称维基解密所发布的机密文件数量超过世界上其他新闻媒体加起来的总和。他说：一个5个人的团队公布了比其他媒体加起来都多的机密文件，这是媒体业的耻辱。实现公正的社会文明这是他们干事情背后的推动力。“透明公开”是公正社会文明的标志。他手上的料很多和美国军方有关，因此他绝对是这个世界的核弹，可以影响美国政治。当年通缉阿桑奇是哪些部门发号施令？在川普总统之前的几届政府都急迫的想干掉阿桑奇，这是为什么？ 2019年4月郭先生爆料阿桑奇被抓是川普总统登上另一个政治高峰的开始，同时郭先生说一切的结果都将在2020年大选见分晓。
 
-**全球网络和美有线电视突现短暂大崩溃**
+4、这些年美国两党和两党背后的利益集团的较量以及美国的问题都在2020年大选前爆发出来。始作俑者CCP这七十年除了给中国人民带来了除了灾难还是灾难，除了贫穷还是贫穷，对中国人民犯下了滔天罪行，也对世界形成威胁。对一带一路所有国家的BGY和威胁，对美国的3F，BGY，这所有的账也会在2020年大选彻底清算。在这个最关键的转折点出现了爆料革命，爆料革命做到了很多国家和政府没做到的事情。在前所未有的“危和机”面前，郭先生带领爆料革命抓住了最伟大的机会，G系列正在打造的亿万帝国是基于郭先生对世界政治，金融和世界未来的发展方向的整体脉络的把握和各方面的实力。“跟着蜜蜂找花朵，跟着屎壳郎滚粪球。”亲爱的战友们，CCP的屎壳郎时代彻底结束了，我们的“蜂蜜、花朵”时代已经到来。
 
-**The Global Networks and U.S. Cable Television Suddenly & Briefly Crashed**
+5、郭先生12月14日直播中谈到：昨晚GOOGLE YOUTUBE全部断网的谜底会未来在GTV揭开，真相会超出战友们的想象。推翻CCP防火墙的行动在几个小时前已经开始。在全球全部断网时只有GTV很顺畅的运作，后台数据显示国内的包括国外的战友全部爆发式的登上GTV，GTV表现稳定。推翻CCP防火墙后，G系列会展示给全世界爆料革命和新中国联邦的力量。不仅仅是勇气，智慧，和内心的正义，还有更重要的，对世界局势的把握和对自我的控制。光有良知，光有信仰，藏在内心里不变成行动，不把智慧变成行动这都是没有什么实际作用的。另外郭先生再次提醒战友们，黑暗已经来临，中国人民要做好准备，好日子一去不复返。战争已经在家门口，房子，车子一文不值，甚至是累赘。所有看到听到的信息都是假的。
 
-路德分析，这次行动是中共主动进攻美国的一次预演，中共最擅长的是浑水摸鱼。他们行动的目的，就是搞乱美国、颠覆美国。中共长期训练的特工早就掌握了一整套在没电、没网络条件下的行动预案。这次短暂大崩溃让人嗅到了大决战来临的味道。
+林伍德律师也发推让美国人民准备好末日物资，也预示着很可能因为双方的较量会有网络战和太空战的全方位综合战争。具体细节会在GTV和GNEWS中独家爆料，给未来战友们行动的参考。
 
-LuDe Media analyzed the operation as a rehearsal of the Chinese Communist Party’s active attack on the United States, and the CCP is best at muddying the waters. The purpose of their operation is to mess up and subvert the United States. The CCP’s long-trained agents have long mastered a whole set of pre-planned operations in the absence of electricity and internet. This short-lived crash smells of an impending decisive battle.
+6、2020年三四月份时候的时候，郭先生谈五大机构七大组织已经做出了决定，他说五大组织七大机构各自代表了不同的势力，不同的势力代表了美国绝对的力量，也就是沼泽地的力量。当时郭先生建议的消灭CCP第一招就是推倒防火墙。那么昨天的断网事件，就不是偶然，接下来大家会看到美国和CCP之间全方位的战役已经全面打响，就差最后的一锤定音那一下，因为大选还没有落定。但是CCP一定会妄想通过自己在美国的残余势力，能继续苟延残喘拖延时间或者采取极端措施比如针对台湾转移目标。所以每时每刻都可能发生重大的事情，但是结局已定。所有力量的强强联合，老账旧账会一起算。通过郭先生不经意透露出的只言片语我们可以知道新中国联邦和美国真正沼泽地力量的联合，以及G系列的强大和他们的关联。新中国联邦与美国最重要的人以及组织有着共同的利益，这是其他人根本无法谈及的，因为他们根本没有机会能与这些力量对话。灭共将符合他们的利益，因为CCP对全世界人类带来了恐惧和黑暗。这世界上所有的恩怨，所有的矛盾，在2020年大选这个时点都将见分晓。沼泽地所养的鳄鱼，沼泽地的力量，军方、情报部门的大鱼、CCP的沉默的力量、CCP的杀手锏、媒体战、信息战、病毒…这就是终极之战的含义。
 
-**如何看待即将到来的大决战？**
+7、2019年4月份郭先生一次视频中说“阿桑奇被抓，将是川普总统走向另外一个政治高峰的开始。”并且当时郭先生就说美国会彻底变天，现在快到2021年了，大家看美国变天了吗？美国这已经是要乾坤颠倒了。这就是爆料革命我们的自信的原因，也是为什么所有同胞未来会拥抱G系列，世界也会拥抱。为什么？因为我们带给世界的是真相。是良知是利他。我们传递的信息是有价值的。我们为正义服务。哪一家所谓的大科技公司敢出来这么说？我也就随便蒙一蒙，川普总统能去其它这些社交媒体为什么不能来盖特呢？230法案绝对只是第一步，接下来战友们你们能看到不敢想象的动作，大家做好准备吧。
 
-**How to View the Impending Decisive Battle?**
+8、在消灭CCP上，川普总统和美国是有准备的，但是也确实没有想到CCP会出这样的招。大选还耽误这么长时间，这绝对是没想到的。所谓算总账，美国现在就是在跟这些被CCP蓝金黄的在算总账了？这帮孙子和CCP合作，把美国搞成这样，这不是美国的卖国贼吗？全世界除了郭先生、爆料革命、GNEWS GTV，你能到哪儿去找这些真相去？谁能一年两年前就对世界局势有这样的把握？大家现在再去回顾下当年717，818，919的爆料，爆出的那些私生子女的账号，和今天美国即将采取的对盗国贼资产的查封，文贵先生的隔空取钱有没有关联？消灭CCP之后，谁能代表新中国人民？只有新中国联邦，爆料革命。一切都已经开始。
 
-美国如果出现几天的短暂混乱，川普一定会采用戒严、军管等手段直接接管或关闭假媒体。爆料革命说不定会利用类似CNN这样的主流媒体播放真相。
+9、今天蓬佩奥国务卿在演讲中提到：CCP是美国人民安全最大的威胁，也是每一个自由世界人民安全的最大威胁。习近平试图用国有企业力量和军事力量结合在一起，也就是所谓的军民融合打造霸权主义。以达到扩张其控制力和权力的目的。通过商业行为偷窃上百万美国的就业机会，此类行为实实在在对美国人民造成了威胁。而两党都视而不见向CCP下跪，只有川普总统说：够了！此后美国才开始转向。建立了全球民主制度与自由经济同盟对抗这一威胁。另外，习近平破坏了对香港50年自由的承诺，他现在用《国安法》把香港人民的自由全部剥夺了。这再次证明美国绝不能相信CCP的话。
 
-爱国者们不用担心川普在大战面前犹豫不决，因为这次不是川普一个人做的决定、也不是他一个人做战斗，而是沼泽地背后的力量与中共之间你死我活的决战，必须果断消灭中共。
+10、前2天弗林将军在接受玛利亚采访时说：如果要问他到底有多少把握川普总统会当选？他说是十成把握。除了在最高法院等待开庭审判的案件。已有绝对证据证明外国势力干预美国选举。相关资料已经在指定网站上发布。国家情报总监本周五将出台一份全面综合的报告。他的建议总统应启动18年签署的行政令，并指定一位特别检察官调查此事。
 
-另外，根据习近平的要求，拜登已经提名最反川普的纽约市长Andrew Cuomo为司法部长人选，他一旦上台不仅会立即抓捕川普全家，而且会把所有右翼力量全灭。川普和整个右翼力量已经没有退路。
+现在就差官方定义外国势力干预美国大选，CCP操纵美国大选了。胜利已经向我们走来，所以战友们要特别注意安全，保护好自己和家人远离病毒，加强健身锻炼，迎接胜利的来临。下期再见！
 
-If there is brief chaos for several days in the U.S., Trump will surely adopt martial law, military regulation and other means to take over or shut down the fake media directly. Hence, Whistleblower Movement may use mainstream media like CNN to broadcast the truth.
 
-Patriots do not have to worry about Trump’s hesitation in front of the decisive battle, because this time it is not a decision made by Trump alone, nor is he fighting alone, but a showdown of life and death between the forces behind the swamp and the Chinese Communist Party, where the CCP must be decisively eliminated.
 
-In addition, according to Xi Jinping’s request, Biden has nominated Andrew Cuomo, the most anti-Trump New York mayor, as his choice for Attorney General, who will not only arrest Trump’s whole family immediately once in power, but will also wipe out all right-wing forces. There is no way back for Trump and the entire right-wing forces.
+回放链接：
 
-**林伍德发推提醒民众准备末日物资且记住只有一个总统是川普**
 
-**Lin Wood Tweeted to Remind People to Prepare Doomsday Supplies and Remember That Only One President is Trump**
 
-末日物资清单包括足够的水、食物、手电筒、电池、蜡烛、收音机、枪弹和会见社区领导的计划。该推文提醒民众，请记住我们在一个时期只有一个总统，我们的领导是川普、不是拜登。
-
-The list of doomsday supplies includes plenty of water, food, flashlights, batteries, candles, radio, guns and ammunition (2nd Amendment supplies), and a plan to meet with community leaders. The tweet reminded the public to remember that we only have one president at a time and our leader is Trump, not Biden.
-
-**川普发布关于代理国防部长继承顺位的行政令**
-
-**Trump Issued Executive Order on Successors to Acting Secretary of Defense**
-
-战时来临，国会和司法体系无法正常工作时，总统令就是一切，是掌控社会秩序的唯一力量。12月10日发出的这个行政令，明确了代理国防部长的继承顺位是：国防部副部长、军事部门秘书、国防政策大臣、国防情报和安全局长、国防部首席管理官，以确保指挥权始终掌握在川普绝对信赖的人手里。
-
-When war comes, Congress and the judicial system may not function properly, where presidential decree is everything and the only force that takes control of social order. This executive order, issued on December 10, specified the succession order of the acting Secretary of Defense as follows: Deputy Minister of Defense, Secretary of the Military Department, Minister of Defense Policy, Director of Defense Intelligence and Security, and Chief Management Officer of Department of Defense, to ensure that command remains in the hands of someone Trump absolutely trusts.
-
-**川普总统更换作战司令部指挥官**
-
-**President Trump Replaced Commander of Combatant Command**
-
-12月7日，经总统提名，代理国防部长米勒宣布，任命四星上将、美国太平洋舰队司令约翰.阿奎利诺担任印太司令部司令。他十分彪悍, 曾多次延长部署，支持海外军事行动 “拒绝飞行”、”慎重部队”、”南方观察”、”贵族之鹰”、”持久自由 “和 “伊拉克自由”。颤抖吧，中共。
-
-On Dec. 7, following the presidential nomination, Acting Secretary of Defense Miller announced the appointment of four-star Admiral John Aquilino, commander of the U.S. Pacific Fleet, as commander of Indo-Pacific Command.Aquilino is a very tough man and has made several extended deployments in support of overseas military Operation Deny Flight, Deliberate Force, Southern Watch, Noble Eagle, Enduring Freedom and Iraqi Freedom, and so on. Tremble, CCP!
-
-**大战来临，我们怎么办？**
-
-**What to Do for Impending War**
-
-我们为正义而来，坚信正义必定战胜邪恶。我们内心有光明，无论眼前多么黑暗，也无法阻挡我们奔向光明。魔鬼已经疯狂，魔鬼必然灭亡。
-
-请每一位战友准备好末日物资，不忘每日传播爆料革命信息、传递真相。
-
-We are here for justice, and we believe that justice will prevail over evil. We have light within us, and no matter how dark it is ahead, it will not stop us from running to the light. The devil has gone mad and it is bound to perish.
-
-To every battle companion: Please prepare doomsday supplies, and never forget to spread news of the Whistleblower Movement to deliver the truth every day.
-
-#CCP\_is\_terrorist   #TakeDownTheCCP
-
-文案：《路德社》简报组：文寶Porsche；
-翻译：《路德社》翻译组
-审核校对：玫瑰天空
-上传排版：青葫芦娃
-
-4+
+6+

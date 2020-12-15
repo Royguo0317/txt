@@ -1,32 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生1214:14日断网把共产党从小偷变成大偷为灭共创造必需证据
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/652489/)
+## 《路德时评》解读：美国选举人票认证结果公布，国务院推特直指中共威胁
+` GM127` [轉載自GNews](https://gnews.org/zh-hans/652494/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13221338/%E5%B0%81%E9%9D%A2-44.jpg)
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+直播视频：
 
-篇首说明：郭文贵先生在[2020年12月14号 文贵直播](https://gtv.org/video/id=5fd7fa9e09267020eb51302e)中谈到了多个方面的问题，现逐个列明郭文贵先生直播中涉及到的内容，本文为第三部分：14日断网把共产党从小偷变成大偷为灭共创造必需证据——
 
-据[2020年12月14号 文贵直播](https://gtv.org/video/id=5fd7fa9e09267020eb51302e)17：15时间点——
 
-接下来呀，你会看到更多精彩，**今天全球的网络被攻击，我可以告诉大家百分之百不是共产党干的，共产党既没有这个能力它也没有这个胆量，太高看它了，但是最终这个锅是它一定会背上的，这是灭共的战略需要，推倒共产党的防火墙这是第一步。**
+《路德时评》2020年12月15日早间节目主要内容：美国选举人票认证结果公布；国务院推特直指中共威胁；美游骑兵率领 FBI 发起突袭行动。
 
-接下来还会有更多的事情发生，共产党会使用黑的人家也会使用，人家就是不使用，人家的黑招比它多，是吧？就像那些欺民贼一样，咱要想用像他那样的坏招，咱比他多，咱不那么干，但有时候我们也得用点战略、战术。
+一、美国选举人票认证结果公布
 
-西方世界也不是傻子，干倒你防火墙特别是中共和西方的网络秘密联系，和在西方所有网络上存的大量信息，特别是GMAIL啊、社交媒体呀，它们植入的软件啊，他们藏的所谓的软件当中的漏洞啊、监听系统啊，**只有这种猝死的办法才能找到根源，只有这种猝死的办法才能找到中共的大数据和真正地在科技领域包括天空的所有的通讯网络特别是国家的海底电缆。**
+12月14日选举人票结果公布：有七个州82张票是两属，属于废票。媒体计拜登得票 220 票 + 82 票 = 302，七个州同时投给川普和拜登，这就算是媒体所谓的302票。照这样，川普得票 232 + 82 票 = 314（七个州同时投给川普和拜登）。媒体所谓的 232 票。2021年1月6日国会裁决，媒体公布的选举人票算法有问题，作死的节奏。拭目以待！
 
-这就像给人检查病一样，如果你不全面做一个检查是不行的，休克疗法或者给身体上打上一个显影剂才能在B超下面看清楚你身体上哪里有问题，**这是一场巨大的风险，但是是有互联网以来最大的一次行动，但是最后一定是共产党黑客了西方的科技确实它也做了，它做得比较小，人家就着它做得比较大，由小偷到某人家去偷东西 ，人家就顺着你偷，你偷了人家家一个鸡蛋，人家顺手拿走了两颗比鸡蛋还大的钻石，但是小偷是你，你说不清楚你偷鸡蛋时你有没有拿钻石。**
+1. 两属的意思是州政府与立法机构投票对象不同，此次投票的有效性最终由国会进行裁决，左媒大肆报道拜登赢得美国总统，这完全是虚假报道，以最终结果为准；
+2. 赢得总统凭的是民意和核心实力，川普总统背后有八千万美国民众的支持，现在各大利益集团也转向支持他。
 
-在法庭上说偷鸡蛋了吗，偷了吗？入室了吗？入室了；在哪进来的？窗户进来的；人家丢什么了？人家丢了个鸡蛋；还丢了什么？丢了像鸡蛋大的几个钻石；那就是你干的，你有口说不出来。**最后法官判决的时候，一定不说你偷了个鸡蛋，一定说你偷了一个鸡蛋和还有比鸡蛋还大的几个钻石，定罪的时候就按鸡蛋大的钻石来给你定罪。**
 
-所以说呀，蓬佩奥国务卿头一段时间一直说推倒中共的防火墙，靠什么行动啊？可不是大家想像的弄几个什么黑客一下，那不可能，在天空WIFI投入之前，只有推倒防火墙，让共产党才能真正的尊重国际上的通信和网络秩序，它本来它想干点这个小偷的小事，人家把它变成大偷了，**所有的这一切都在是给灭掉中共消灭中共在创造条件，创造必需灭共的需要的法律证据，对吧？必需掌握这些事实才能在西方的法理和行政管理系统才能有合法的行动。**
+二、国务院推特直指中共威胁
 
-接上篇——
+美国国务院12月15日发推[1]：美国人必须知道中共如何为达到自己的目的毒害我们的高等教育，以及这些行为如何损害我们的自由和国家安全。
 
-[郭先生1214:如无巨大反转1月6号佩罗西当总统川普最后会赢](https://gnews.org/zh-hans/652386/)
 
-[郭先生1214:共产党造成的大选乱局更向世界证明爆料革命的重要](https://gnews.org/zh-hans/652423/)
+
+> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): Americans must know how the CCP is poisoning the well of our higher education for its own ends, and how those actions degrade our freedoms and our national security. [pic.twitter.com/5cyV5nMCFX](https://t.co/5cyV5nMCFX)
+> — Department of State (@StateDept) [December 15, 2020](https://twitter.com/StateDept/status/1338822052636188672?ref_src=twsrc%5Etfw)
+
+
+
+路德社评论：
+
+1. 国务院发此推是要强调中共对美国高等教育的毒害非常深，提醒人民警惕；
+2. 文贵先生前几天直播中爆料美国真正权利的核心掌控着常春藤学校董事会，中共长期从美国高等教育机构窃取知识产权，蓝金黄海外高校科技人才，已经严重威胁到美国的根本利益；
+3. 此推暗指这些学术机构与美国安全息息相关，中共病毒来源理论与羟氯喹治疗事件彻底暴露出美国学术机构的深度腐败，闫丽梦博士发表的两篇报告未来将被验证；
+4. 美国教育界沼泽一旦被排干净后，中共病毒真相将很快被揭露。
+
+
+三、美游骑兵率领 FBI 发起突袭行动
+
+GATEWAY PUNDIT 12月14日报导[2]：美国元帅和得克萨斯游骑兵突袭 SolarWinds 德克萨斯州奥斯汀总部。
+
+
+
+> [BREAKING REPORT: SolarWinds HQ Raided in Austin — More News Coming on CEO and Executive Vice President (Update)](https://www.thegatewaypundit.com/2020/12/breaking-fbi-texas-rangers-us-marshals-raid-solarwinds-hq-austin/)
+
+
+
+1. 美国境内多米尼投票系统核心就在该总部；
+2. 该行动由法警率领游骑兵执行突袭行动，FBI只是配合行动，该行动一定已经获取到重要证据；
+3. 路德社昨天节目提及北约也在评估SolarWinds软件安全性，各方都在紧锣密鼓地行动；
+4. 由于中共越界行事，游戏规则已经彻底改变，川普总统这两天已经开始用“沼泽地”的规则对付中共。
+
+
+参考文章：
+
+[1] [https://twitter.com/StateDept/status/1338822052636188672](https://twitter.com/StateDept/status/1338822052636188672)
+
+[2] [https://www.thegatewaypundit.com/2020/12/breaking-fbi-texas-rangers-us-marshals-raid-solarwinds-hq-austin/?utm\_source=Twitter&utm\_medium=PostTopSharingButtons&utm\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/12/breaking-fbi-texas-rangers-us-marshals-raid-solarwinds-hq-austin/?utm_source=Twitter&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
+
+文章撰写：【重生】   音频 & 图片设计：【V%】  编辑：【Isaiah4031】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22111053/VOG-Rose-Garden-Team.png)
+
+
+Tags: 《路德时评》，国务院，游骑兵，SolarWinds
 
 0

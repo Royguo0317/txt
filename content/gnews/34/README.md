@@ -1,35 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选主题专栏:巴尔退出代理司法部长将由副司法部长杰弗里·罗森（Jeffrey Rosen）暂时担任。 杰弗里·罗森是谁？
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/651823/)
+## 《路德社》精选新闻快讯：美网络安全和设备安全局（CISA）紧急指令警示Solarwinds（太阳风）软件风险伤害
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/651795/)
 
-《路德社》精选主题专栏组出品
+出品：《路德社》 编辑：《路德社》精选主题专栏组出品
 
-关于杰弗里·罗森
+美国国家网络安全和设备安全局（ClSA）十四日签署紧急指令 [Emergency Directive 21-01](https://cyber.dhs.gov/ed/21-01/), ，以应对利用太阳风软件漏洞的恶意网络行为，该紧急指令呼吁所有联邦机构检查民用网络，发现其危害的迹象，并立即断开或关闭SolarWinds Orion产品的电源。
 
-于1958年出生现年62岁的共和党人罗森，毕业于西北大学经济学学士学位，并在哈佛法学院获得法学博士，于1982年加入Kirkland＆Ellis律师事务所。
+这是CISA根据国会在2015年《网络安全法》中授予的权限发布的第五个紧急指令。所有运行SolarWinds产品的机构都应在2020年12月14日星期一美国东部标准时间下午12点之前向CISA提供完成报告。
 
-Kirkland＆Ellis LLP是一家在芝加哥成立的律师事务所。按收入计算，它是世界上最大的律师事务所，世界上第一家收入达到40亿美元，按律师人数排名第七。罗森是这家律师事务所的高级合伙人。
+据＂零对冲＂Zerohedge 推特，北约官方同样也发出了关于solarwinds的风险警示！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15023002/1215-1-2.jpg)
+[援引原文](https://www.cisa.gov/news/2020/12/13/cisa-issues-emergency-directive-mitigate-compromise-solarwinds-orion-network)
 
-他于2003年离开公司，开始为美国政府工作。从2003年到2006年即小布什总统任期中，罗森担任美国运输部总顾问
+本文作者：上進哥
 
-2006年到2009年，罗森在OMB全称Office of Management and Budget工作，担任总顾问和高级政策顾问。2009年罗森结束OMB工作之后又重返Kirkland＆Ellis。
-
-从2015年到2016年，罗森担任美国律师协会行政法和监管实践部门的主席。
-
-2017年5月16日即特兰普任期中，罗森以56票对42票被确认为美国运输部副部长
-
-2019年2特朗普总统提名罗森出任美国副检察长，成为司法部总检察长巴尔的副手。2019年5月罗森宣誓就职美国司法部副检察长。
-
-日前，川普总统接受了巴尔辞呈，代理司法部长将由副司法部长杰夫·罗赞暂时担任。
-
-随着巴尔退出，杰弗里·罗森（Jeffrey Rosen）将于2020年12月23日接替巴尔暂时成为代理司法部长。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15025738/images-1-2.jpg)
-[援引](https://en.m.wikipedia.org/wiki/Jeffrey_A._Rosen)
-
-本文作者：文森特
 审核校对：玫瑰天空
-上传排版：糖果儿
 
-2+
+上传排版：青葫芦娃
+
+3+

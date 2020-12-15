@@ -1,23 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯：美网络安全和设备安全局（CISA）紧急指令警示Solarwinds（太阳风）软件风险伤害
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/651795/)
+## 《路德社》精选新闻快讯：法医报告显示：多猫腻（Dominion)投票系统机器错误率达68%
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/651651/)
 
 出品：《路德社》 编辑：《路德社》精选主题专栏组出品
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15020623/4545.jpg)
+据《国家脉动》网站（the national pulse ）12月14日引用的一份17页的《Allied Security Operations Group》法医报告，该报告证明密歇根州的Antrim县的Dominion 投票机系统是故意、有目的在机器内部制造错误，从而达到系统性的选举舞弊，改变选举结果！
 
-美国国家网络安全和设备安全局（ClSA）十四日签署紧急指令 [Emergency Directive 21-01](https://cyber.dhs.gov/ed/21-01/), ，以应对利用太阳风软件漏洞的恶意网络行为，该紧急指令呼吁所有联邦机构检查民用网络，发现其危害的迹象，并立即断开或关闭SolarWinds Orion产品的电源。
+这份报告显示Dominion 的投票系统错误率高达68·05%，而联邦选举委员会公布的选举错误标准是25万张选票只能出现1张错误！报告结果显示：在该县，机器将数千张千张选票由川普划给了拜登。
 
-这是CISA根据国会在2015年《网络安全法》中授予的权限发布的第五个紧急指令。所有运行SolarWinds产品的机构都应在2020年12月14日星期一美国东部标准时间下午12点之前向CISA提供完成报告。
-
-据＂零对冲＂Zerohedge 推特，北约官方同样也发出了关于solarwinds的风险警示！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15023002/1215-1-2.jpg)
-[援引原文](https://www.cisa.gov/news/2020/12/13/cisa-issues-emergency-directive-mitigate-compromise-solarwinds-orion-network)
+[援引原文](https://thenationalpulse.com/breaking/michigan-dominion-report/)
 
 本文作者：上進哥
-
 审核校对：玫瑰天空
+上传排版：糖果儿
 
-上传排版：青葫芦娃
-
-3+
+4+

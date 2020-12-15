@@ -1,24 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文】-解雇是结束，审判才是开始
-` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/651893/)
+## 12/14日康州农场前沿觀察: 第三次世界大战早已开打
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/651903/)
 
-12月14日林伍德律师推文说，特朗普总统是一个真正的好人，他并不真的喜欢解雇人。我打赌他不喜欢把人关进监狱，尤其是 “共和党人”。
+撰文/播报：寒郁冰
+视频：Buzz文珂
+编辑：1984文姝
+图片素材：沧海一粟、海媚
+审片：皮亚纳
 
-他给了 乔治亚州州长Brian @BrianKempGA 和州务卿Brad @GaSecofState 每一个机会，让事情好起来。但是他们拒绝了。他们很快就会进监狱。
+审核：Truemanman
 
-川普总统所作所为让我们看到民主国家和独裁国家办事流程的区别，具有法律意识的领导者和无知的独裁者的不同，文明的价值观和愚昧的风俗惯例的区别，宽仁的态度和狭隘的观念的区别。与此同时，川普总统所为恐怕和放长线钓大鱼、尽可能排干沼泽的策略也不无关系。
+鲍威尔律师所提到的“珍珠港袭击”是二战时日本政府策划的一起偷袭美国太平洋海军舰队基地－－珍珠港军事事件，它成为了二战爆发的导火索。如今鲍威尔大律师严正指出，这是中共对美国的“网络式珍珠港”袭击，可见事件的严重性。中共通过多猫腻（Dominion） 公司操纵美国大选的犯罪行为已经直接危害到了美国的国家安全，也危害到了世界的安全。中共所有相关犯罪证据都将被掌握被曝光。这是一个犯罪网，其背后就是中共，第三次世界大战已经来临，我们就身处其中!
 
-新闻素材和图片来自林伍德律师推特
-
-
-
-> President Trump [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) is a genuinely good man. He does not really like to fire people. I bet he dislikes putting people in jail, especially “Republicans.”
-> 
-> He gave [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw) & [@GaSecofState](https://twitter.com/GaSecofState?ref_src=twsrc%5Etfw) every chance to get it right. They refused. They will soon be going to jail. [pic.twitter.com/7PMBLc8L2N](https://t.co/7PMBLc8L2N)
-> — Lin Wood (@LLinWood) [December 15, 2020](https://twitter.com/LLinWood/status/1338715369566048256?ref_src=twsrc%5Etfw)
+康州盘古农场报道
 
 
 
-3+
+1+
