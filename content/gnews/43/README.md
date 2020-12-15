@@ -1,24 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 微软比尔·盖茨对未来几个月的中共病毒疫情表示担忧
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/652045/)
+## 美代理司法部长杰弗里•罗森任职经历简介
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/652250/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12200038/1-74.png)图片来源：[http://www.radiorural.com.br/noticias](http://www.radiorural.com.br/noticias/40933-sc-planeja-ter-vacina-contra-a-covid-19-em-janeiro-e-reserva-r-300-milhoes-para-comprar-doses)
-据MarketWatch报道，微软创始人之一的比尔·盖茨（Bill Gates）在周日（2020年12月13日）接受美国有线电视新闻网（CNN）的杰克塔帕（Jake Tapper）采访中对于第一批中共病毒疫苗问世后的疫情曲线表示担忧。
+- 编辑：Victor Torres
 
-比尔·盖茨说：“不幸的是未来四到六个月的疫情可能会是大流行以来最糟糕的。IHME模型预计这段时间中将会有超过20万人死于中共病毒。但如果我们能遵守规定，比如戴口罩和保持社交距离，那么死亡人数可能大大低于模型的预计。” 也就是说，盖茨希望民众对疫苗克制疫情的效果不要过于乐观。
 
-盖茨还表示：“目前疫情当下的美国和全球经济比我五年前关于大流行的经济预言影响要大很多。最早2021年夏天我们期盼已久的正常生活可能有希望逐渐回归。但疫情也可能持续到2022年初，除非我们在美国本土高疫苗接种率的基础上帮助其他国家摆脱疫情。否则如果疫情卷土重来，世界经济的低迷势必很大程度上影响美国经济的复苏。”
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**译评：**
+**西班牙2020年12月15日电/西喜社/——**在司法部长威廉•巴尔辞职后，杰弗里•罗森将接任代理司法部长一职。
+罗森此前曾担任副检察长，在罗德•罗森斯坦离职后，他于2019年5月被确认担任这一职务。
+“司法部副部长杰夫•罗森是一位杰出的人，将成为代理司法部长，”川普总统周一宣布。”德高望重的理查德-多诺霍将接任副司法部长一职。谢谢大家！”
+罗森接任司法部负责人之时，正值川普及其竞选团队对总统选举结果提出挑战之时。今年8月，罗森警告说，外国势力可能干预选举。
+“一些外国势力正在暗中试图破坏对我们选举的信心，因为他们是反对代议制民主的独裁政府，”罗森告诉战略与国际研究中心。
+在加入司法部之前，罗森是交通部副部长。在此之前，他曾在乔治•W•布什总统执政期间担任白宫管理和预算办公室的总顾问和高级政策顾问，并在1982年从哈佛法学院毕业后加入的Kirkland & Ellis律师事务所担任合伙人。
 
-比尔·盖茨上CNN推疫苗有点含糊其辞，进进退退，云里雾里，也没说自己是否会接种疫苗。笔者认为，如果像川普总统和朱利安尼律师那样高龄并且感染极高浓度的病毒都能快速恢复，美国本土仍然每天几千人死亡是不应该的。比尔·盖茨访谈提到说美国在未来半年仍有20多万人死亡的预期更是毫无根据和滑稽的。
+新闻来源：[https://www.foxnews.com/politics/who-is-jeffrey-rosen-william-barr-replacement-attorney-general](https://www.foxnews.com/politics/who-is-jeffrey-rosen-william-barr-replacement-attorney-general)
 
-这次造成美国大规模感染和死亡的罪魁祸首是福奇领导下的官僚主义医疗体系拖延治疗，并且在批准药物不够用的情况下死活不给价廉物美的羟氯喹治疗的结果。更加荒唐的是，即使遇到了肯开羟氯喹的医生，发药的药师也可以有权拒绝给药。参议院近期有关于羟氯喹的听证会，希望能有进展而拯救生命。另外，让医生护士先打中共病毒疫苗也可能倒逼更多医生护士站出来推广羟氯喹作为民众可以选择的一个与疫苗并行的预防中共病毒的选项。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
-[原文链接](https://www.marketwatch.com/story/bill-gates-on-the-next-few-months-of-the-coronavirus-pandemic-its-bad-news-11607893787)
+西班牙巴塞罗那喜悦农场官方Parlar二维码，敬请关注
 
-翻译：Forguo
-
-2+
+0

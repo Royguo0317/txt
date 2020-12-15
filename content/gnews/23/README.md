@@ -1,68 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》解读：美国选举人票认证结果公布，国务院推特直指中共威胁
-` GM127` [轉載自GNews](https://gnews.org/zh-hans/652494/)
+## 【看七哥视频】得道多助、失道寡助
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/652525/)
 
-直播视频：
+```
+作者: 儒为
+校对/发稿人: Ting Guo
+```
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15124228/t01ce61dc5449a0967d.jpg)图片来源: 快资讯
+得道多助，失道寡助，出自《孟子》，指站在正义、仁义方面，会得到多数人的支持帮助；违背道义、仁义，必然陷于孤立.
+ 
+七哥在视频中提到：支持川普是工人、农民、中产阶级，这是被中共残害最深的，如同中国人一样。农民被控制剥削，中产阶级被吸血，永远生活在房贷中，这些人在华盛顿最恨共产党。爆料革命和中产阶级以及最穷的穷人等绝大多数的人站在一起，我们的敌人就是极少数人的利益集团。
+ 
+我们反对以假治国、以黑治国、以骗治国，这是全世界任何人民都反对的，现在共产党把这弄到了全世界。所谓以贪反贪造成了多少家庭破碎。共产党一旦控制了美国选举就控制了全人类，不夸张的说，也控制了宇宙，因为美国是外太空技术发展最好的。所有目的就是要奴役平民，在全球开展猎狐行动，抓捕反对人士，就像控制西方媒体一样，必须一个鼻孔喘气。全世界人民以牺牲自由、民主、宗教信仰为代价。
+ 
+这就是国际共产主义，他们的手段就是冠状病毒。以毒控制世界和分享利益，利用疫苗威胁，左手决定你死，右手决定你活，中间第三只手是生殖器。我们人类已经到了一个最危险的转折点，需要做出改变，否则后果不敢想象。
+ 
+GTV、GNEWS、世界上的正义媒体、正义力量正在逐步向世界人民曝光真相，揭露掩藏在华美外衣下包裹的肮脏、丑陋。我们要唤醒更多的人，了解共产党的邪恶本质，通过输出专制的手段，奴役全世界人民。让越来越多的人跟随我们，因为我们是选择站在正义的一方。
+ 
+ **本文章仅代表战友个人观点**
 
-
-《路德时评》2020年12月15日早间节目主要内容：美国选举人票认证结果公布；国务院推特直指中共威胁；美游骑兵率领 FBI 发起突袭行动。
-
-一、美国选举人票认证结果公布
-
-12月14日选举人票结果公布：有七个州82张票是两属，属于废票。媒体计拜登得票 220 票 + 82 票 = 302，七个州同时投给川普和拜登，这就算是媒体所谓的302票。照这样，川普得票 232 + 82 票 = 314（七个州同时投给川普和拜登）。媒体所谓的 232 票。2021年1月6日国会裁决，媒体公布的选举人票算法有问题，作死的节奏。拭目以待！
-
-1. 两属的意思是州政府与立法机构投票对象不同，此次投票的有效性最终由国会进行裁决，左媒大肆报道拜登赢得美国总统，这完全是虚假报道，以最终结果为准；
-2. 赢得总统凭的是民意和核心实力，川普总统背后有八千万美国民众的支持，现在各大利益集团也转向支持他。
-
-
-二、国务院推特直指中共威胁
-
-美国国务院12月15日发推[1]：美国人必须知道中共如何为达到自己的目的毒害我们的高等教育，以及这些行为如何损害我们的自由和国家安全。
-
-
-
-> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): Americans must know how the CCP is poisoning the well of our higher education for its own ends, and how those actions degrade our freedoms and our national security. [pic.twitter.com/5cyV5nMCFX](https://t.co/5cyV5nMCFX)
-> — Department of State (@StateDept) [December 15, 2020](https://twitter.com/StateDept/status/1338822052636188672?ref_src=twsrc%5Etfw)
-
-
-
-路德社评论：
-
-1. 国务院发此推是要强调中共对美国高等教育的毒害非常深，提醒人民警惕；
-2. 文贵先生前几天直播中爆料美国真正权利的核心掌控着常春藤学校董事会，中共长期从美国高等教育机构窃取知识产权，蓝金黄海外高校科技人才，已经严重威胁到美国的根本利益；
-3. 此推暗指这些学术机构与美国安全息息相关，中共病毒来源理论与羟氯喹治疗事件彻底暴露出美国学术机构的深度腐败，闫丽梦博士发表的两篇报告未来将被验证；
-4. 美国教育界沼泽一旦被排干净后，中共病毒真相将很快被揭露。
-
-
-三、美游骑兵率领 FBI 发起突袭行动
-
-GATEWAY PUNDIT 12月14日报导[2]：美国元帅和得克萨斯游骑兵突袭 SolarWinds 德克萨斯州奥斯汀总部。
-
-
-
-> [BREAKING REPORT: SolarWinds HQ Raided in Austin — More News Coming on CEO and Executive Vice President (Update)](https://www.thegatewaypundit.com/2020/12/breaking-fbi-texas-rangers-us-marshals-raid-solarwinds-hq-austin/)
-
-
-
-1. 美国境内多米尼投票系统核心就在该总部；
-2. 该行动由法警率领游骑兵执行突袭行动，FBI只是配合行动，该行动一定已经获取到重要证据；
-3. 路德社昨天节目提及北约也在评估SolarWinds软件安全性，各方都在紧锣密鼓地行动；
-4. 由于中共越界行事，游戏规则已经彻底改变，川普总统这两天已经开始用“沼泽地”的规则对付中共。
-
-
-参考文章：
-
-[1] [https://twitter.com/StateDept/status/1338822052636188672](https://twitter.com/StateDept/status/1338822052636188672)
-
-[2] [https://www.thegatewaypundit.com/2020/12/breaking-fbi-texas-rangers-us-marshals-raid-solarwinds-hq-austin/?utm\_source=Twitter&utm\_medium=PostTopSharingButtons&utm\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/12/breaking-fbi-texas-rangers-us-marshals-raid-solarwinds-hq-austin/?utm_source=Twitter&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
-
-文章撰写：【重生】   音频 & 图片设计：【V%】  编辑：【Isaiah4031】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22111053/VOG-Rose-Garden-Team.png)
-
-
-Tags: 《路德时评》，国务院，游骑兵，SolarWinds
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09040658/image0.png-13-1280x720.jpeg)**[*https://discord.gg/77fCxw5mFv*](https://discord.gg/77fCxw5mFv)**
+[***https://***](https://https://discord.gg/77fCxw5mFv)[***gab.com/himalaya\_italy***](https://gab.com/himalaya_italy)
 
 0

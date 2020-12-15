@@ -1,29 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯：林伍德发推“川普即将开始大扫除”
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/652130/)
+## 【热点播报】执法部门突袭SolarWinds公司总部
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/652296/)
 
-出品《路德社》编辑：路德社精选新闻专栏组
+作者： 香草山写作组 村北
 
-2020年12月15日，林·伍德发推：美国急需彻底的大扫除。太多的贪婪和腐败。川普总统即将为人民彻底进行清除。淡定。
+媒体Gateway Pundit于12月14日晚间发布新闻：美国福克斯电视台Hannity节目透露，联邦调查局，德州侦查执法部门德州游骑兵，和美国司法部旗下的联邦法警突袭了信息管理软件公司SolarWinds位于德州奥斯丁的总部。
 
+美国网络及基础设施安全局13日非常罕见地发布了紧急指示，要求所有联邦部门马上断开或关掉使用SolarWinds Orion信息管理软件的所有计算机系统，表示发现骇客入侵了该软件系统，并有可能对广泛使用该软件的机构进行网络盗窃和攻击。
 
-
-> America is in dire need of a good housecleaning. Way too much corruption & greed. [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) is going to clean it up for We The People. Steady.
-> 
-> “But now the LORD my God hath given me rest on every side, so that there is neither adversary nor evil occurrent.”
-> – 1 Kings 5:4 [pic.twitter.com/JPZHFJiQhM](https://t.co/JPZHFJiQhM)
-> — Lin Wood (@LLinWood) [December 15, 2020](https://twitter.com/LLinWood/status/1338726421955571712?ref_src=twsrc%5Etfw)
+Gateway Pundit指出，被发现进行大规模选举欺诈的多米尼投票系统也采用SolarWinds Orion软件。该媒体还提及，更多的有关此次执法部门突袭的信息以及有关SolarWinds公司高管的新闻将会逐渐曝光。
 
 
 
-继林·伍德大律师号召美国民众准备充足的食物、设备和枪支弹药后，今天他明确表示川普总统将马上采取行动，彻底清理美国政府内部的贪污和腐败问题。结合司法部长巴尔的离职，川普总统的反击计划正有条不紊地实施，等待合适时机完成致命一击。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-本文作者：Stranger
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-审核校对：玫瑰天空
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-上传排版：青葫芦娃
-
-4+
+3+

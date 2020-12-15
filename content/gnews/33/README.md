@@ -1,35 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 甲骨文将总部从硅谷迁至德克萨斯州奥斯汀
-` 凤凰农场三区` [轉載自GNews](https://gnews.org/zh-hans/652276/)
+## 多米尼试图掩盖与SolarWinds关系
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/652461/)
 
-新闻编辑：文小森
+- 编辑：Victor Torres
+- 翻译：Ranting
 
-审稿：Jenny(文雪）
 
-新闻要点：
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-- 甲骨文是最新搬出加利福尼亚的科技公司。
-- 冠状病毒大流行为许多科技公司撤出硅谷提供了理由。
-- HPE本月初宣布迁至休斯顿。
+**西班牙2020年12月15日电/西喜社——**Gateway Pundit周二报道，多米尼正试图掩盖他们与SolarWinds的关系。
+周日深夜，网络安全和基础设施安全局（CISA）罕见地发布了紧急指令21-01，以应对涉及SolarWinds Orion产品的已知泄密事件。
+据报道，多米尼删除了他们网站上”SolarWinds”的参考资料和链接。
+一位读者分享了关于SolarWinds技术的一些想法：
+*“我在IT行业工作，我现在很想知道SolarWinds是否被用作进入多米尼机器的后门‘跳跃主机’。如果每台机器都有一个唯一的主机名，并且它们被连接到一个中心网络，这是一个合理的解释方式。一个‘跳跃主机’是一个服务器（顺便说一句，这是非常糟糕的安全做法），它包含了网络上所有主机的主机名和IP地址，所以你可以直接”跳跃”到它们或者远程控制它们。如果他们真的在SolarWinds里放了一个后门，并将这些连接到网络上，那么他们将这样做：SolarWinds可能会被黑客入侵成为一个‘跳跃主机’。”
+“我不能肯定地说这是真的，但值得深究。一个‘跳跃主机’是不好的，因为它把你所有的主机和设备放在一个篮子里，如果一个黑客进入那里，你可以想象他们会创造一个多么可怕的噩梦。”*
+难怪多米尼要隐藏他们与SolarWinds的关系。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/11102418/image0-58.jpg)
-小编点评：
+**新闻来源：**[https://www.thegatewaypundit.com/2020/12/dominion-voting-machines-trying-hide-relationship-solar-winds/](https://www.thegatewaypundit.com/2020/12/dominion-voting-machines-trying-hide-relationship-solar-winds/)
 
-众所周知，加州是美国民主党大本营，民主党对非法移民的支持达到了极致。2017年9月加州议会通过民主党籍州参议长凯文·德莱昂提出的SB54号州法案。该法严格限制加州州属及地方执法部门动用人力、资金或其他公共资源，与联邦机构在处理非法移民问题上开展合作，如参与调查、盘问、拘留、侦查和逮捕等行动。同年10月，加州成为法律上的“庇护州”。其后加州通过多项立法，依法可为非法移民提供住房，高额补贴，全额医疗保险，免费学校等。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/18075158/Portada-Dominion-ccp-1.jpeg)
 
-更夸张的是加州通过的47号法案，该法案规定无法指控少于950美元的犯罪为重罪，除非被告有犯罪记录。该法案助长了屡犯，继续犯罪几乎不需要承担任何后果。加州公共政策研究所在2018年6月进行的一项研究发现，证据表明47号提案可能助长了盗窃和砸车盗窃案。2019年，有组织的零售店窃案趋于增加，警方将其归因于47号提案。
-
-加州民主党支持禁枪，解散警察，也间接纵容了BLM组织对店铺的打砸抢烧和ATIFA对人身安全的威胁。另外让人奇怪的是，加州山火不断，自2020年初以来，加州的山火已经摧毁了大约4000座建筑，烧毁了320万英亩、相当于16个纽约市面积大小的土地。有人称是气候变暖所致，但其中也不乏BLM和Antifa的影子。与之相反，德州是共和党执政州，反对非法移民。民风彪悍，人人持枪，极大的震慑住了犯罪份子，社会治安要远远好于加州。
-
-在征税方面，加州有美国最高的州所得税率(最高13.3%，面向年收入100万美元以上人群)，而且还在考虑提升最高税率到16.8%。资本利得税上除了面临着20%的联邦资本利得税，还要向加州缴纳13.3%的资本利得税(同样是美国最高)。而德州不仅没有州个人所得税，还没有资本利得税。这也是马斯克等富豪搬至德州的主要原因之一。另外德州也不征收企业所得税。
-
-在疫情防控方面，加州支持封锁，一再颁布“居家令”限制居民出行和店铺营业。加州的封锁政策严重侵犯宪法赋予的人身自由权，也使得很多企业的经营难以为续，纷纷倒闭。反观德州，德州州长力排众议在今年三月就宣布德州不再会有封锁。从企业经营的角度来看，无封锁的州当然更加友好。
-
-不管是个人还是企业都偏好好的社会治安，更少缴纳税款，更少的限制。很明显，德州比加州更适合个人和企业生存。
-以上观点仅代表个人观点。
-
-新闻链接：[https://www.cnbc.com/2020/12/11/oracle-is-moving-its-headquarters-from-silicon-valley-to-austin-texas.html](https://www.cnbc.com/2020/12/11/oracle-is-moving-its-headquarters-from-silicon-valley-to-austin-texas.html)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0
