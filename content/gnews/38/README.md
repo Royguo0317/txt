@@ -1,68 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》解读：美国选举人票认证结果公布，国务院推特直指中共威胁
-` GM127` [轉載自GNews](https://gnews.org/zh-hans/652494/)
+## 郭先生1214:美国将在灭共和内战两场战争中重生,共产党必被灭
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/652527/)
 
-直播视频：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13125106/%E5%B0%81%E9%9D%A2-43.jpg)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
+篇首说明：郭文贵先生在[2020年12月14号 文贵直播](https://gtv.org/video/id=5fd7fa9e09267020eb51302e)中谈到了多个方面的问题，现逐个列明郭文贵先生直播中涉及到的内容，本文为第四部分：美国将在灭共和内战两场战争中重生,共产党必被灭——
 
+据[2020年12月14号 文贵直播](https://gtv.org/video/id=5fd7fa9e09267020eb51302e)22：04时间点——
 
-《路德时评》2020年12月15日早间节目主要内容：美国选举人票认证结果公布；国务院推特直指中共威胁；美游骑兵率领 FBI 发起突袭行动。
+所以说姐妹们，可不是大家想象的灭共那么简单，一周前某个体制内的高官跟我说，快来吧，斩首是最痛快的，我说你都到这级别了，你还那么天真，斩首那么痛快斩首完了咋办，这不是一个个人行为，这是关系到全人类的生死存亡的行为，经济、金融、技术、法理都不能毁掉。
 
-一、美国选举人票认证结果公布
+**美国面临着两场战争，灭共的战争和国内的内战，在这种情况下，美国要么把握住这个机会把美国这几十年的内部的政治积压的问题彻底地解决，不要说沼泽地，也不要说DEEP STATE，这是两个不同的概念，**就像过去民主党和共和党一样，民主党是替老百姓说话的，这要自由、法治、民主的，共和党是替富人说话的，是维护富人利益的。现在颠倒过来了，共和党替穷人说话，要法治、民主、自由，然后民主党现在是要独裁、是要奴役穷人、是替富人说话，它已经颠倒过来了。
 
-12月14日选举人票结果公布：有七个州82张票是两属，属于废票。媒体计拜登得票 220 票 + 82 票 = 302，七个州同时投给川普和拜登，这就算是媒体所谓的302票。照这样，川普得票 232 + 82 票 = 314（七个州同时投给川普和拜登）。媒体所谓的 232 票。2021年1月6日国会裁决，媒体公布的选举人票算法有问题，作死的节奏。拭目以待！
+这种彻底的解放不是沼泽地和所谓的DEEP STATE，大鳄鱼，鳄鱼是活在沼泽地里的，鳄鱼是有主人的，恶人是有管理的，管理鳄鱼的沼泽地的主人才是真正的最世界的隐形的力量。**DEEP STATE就是一些在国家内的一些和其它利益集团操控的组织，它在沼泽地那还太远啦，沼泽地会永远存在，想抽干是不可能的，抽干一些坏的东西，继续保持平衡那是必须的。**
 
-1. 两属的意思是州政府与立法机构投票对象不同，此次投票的有效性最终由国会进行裁决，左媒大肆报道拜登赢得美国总统，这完全是虚假报道，以最终结果为准；
-2. 赢得总统凭的是民意和核心实力，川普总统背后有八千万美国民众的支持，现在各大利益集团也转向支持他。
+大家看到最近的洛杉矶、纽约，大的企业基金是落荒而逃啊，你们只看到MASK你只看到甲骨文、你只看到高盛的 ，那你没有看到那些你不知名的基金呐，兄弟姐妹们，那多了去了，**这是一场美国内部的经济、技术、金融、科技、种族利益一次彻底的洗牌，**对待美国还是那句话，**要么在这次危机中重生，要么就是被这次危机给灭了，我百分之一百地相信美国会在这次危机中重生，不会被灭，因为结果要么就是共产党统治美国、全世界，要么就是把共产党给灭了，不论怎么折腾共产党都会被灭。川普总统等美国的保守派不让川普总统行使他应有的手里掌握的巨大的权力，就是美国还没失控，还没到危险那个程度。**
 
+接上篇——
 
-二、国务院推特直指中共威胁
+[郭先生1214:如无巨大反转1月6号佩罗西当总统川普最后会赢](https://gnews.org/zh-hans/652386/)
 
-美国国务院12月15日发推[1]：美国人必须知道中共如何为达到自己的目的毒害我们的高等教育，以及这些行为如何损害我们的自由和国家安全。
+[郭先生1214:共产党造成的大选乱局更向世界证明爆料革命的重要](https://gnews.org/zh-hans/652423/)
 
-
-
-> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): Americans must know how the CCP is poisoning the well of our higher education for its own ends, and how those actions degrade our freedoms and our national security. [pic.twitter.com/5cyV5nMCFX](https://t.co/5cyV5nMCFX)
-> — Department of State (@StateDept) [December 15, 2020](https://twitter.com/StateDept/status/1338822052636188672?ref_src=twsrc%5Etfw)
-
-
-
-路德社评论：
-
-1. 国务院发此推是要强调中共对美国高等教育的毒害非常深，提醒人民警惕；
-2. 文贵先生前几天直播中爆料美国真正权利的核心掌控着常春藤学校董事会，中共长期从美国高等教育机构窃取知识产权，蓝金黄海外高校科技人才，已经严重威胁到美国的根本利益；
-3. 此推暗指这些学术机构与美国安全息息相关，中共病毒来源理论与羟氯喹治疗事件彻底暴露出美国学术机构的深度腐败，闫丽梦博士发表的两篇报告未来将被验证；
-4. 美国教育界沼泽一旦被排干净后，中共病毒真相将很快被揭露。
-
-
-三、美游骑兵率领 FBI 发起突袭行动
-
-GATEWAY PUNDIT 12月14日报导[2]：美国元帅和得克萨斯游骑兵突袭 SolarWinds 德克萨斯州奥斯汀总部。
-
-
-
-> [BREAKING REPORT: SolarWinds HQ Raided in Austin — More News Coming on CEO and Executive Vice President (Update)](https://www.thegatewaypundit.com/2020/12/breaking-fbi-texas-rangers-us-marshals-raid-solarwinds-hq-austin/)
-
-
-
-1. 美国境内多米尼投票系统核心就在该总部；
-2. 该行动由法警率领游骑兵执行突袭行动，FBI只是配合行动，该行动一定已经获取到重要证据；
-3. 路德社昨天节目提及北约也在评估SolarWinds软件安全性，各方都在紧锣密鼓地行动；
-4. 由于中共越界行事，游戏规则已经彻底改变，川普总统这两天已经开始用“沼泽地”的规则对付中共。
-
-
-参考文章：
-
-[1] [https://twitter.com/StateDept/status/1338822052636188672](https://twitter.com/StateDept/status/1338822052636188672)
-
-[2] [https://www.thegatewaypundit.com/2020/12/breaking-fbi-texas-rangers-us-marshals-raid-solarwinds-hq-austin/?utm\_source=Twitter&utm\_medium=PostTopSharingButtons&utm\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/12/breaking-fbi-texas-rangers-us-marshals-raid-solarwinds-hq-austin/?utm_source=Twitter&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
-
-文章撰写：【重生】   音频 & 图片设计：【V%】  编辑：【Isaiah4031】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22111053/VOG-Rose-Garden-Team.png)
-
-
-Tags: 《路德时评》，国务院，游骑兵，SolarWinds
+[郭先生1214:14日断网把共产党从小偷变成大偷为灭共创造必需证据](https://gnews.org/zh-hans/652489/)
 
 0

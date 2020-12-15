@@ -1,25 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻快评】独裁指责民主 中国独裁代言人华春莹满嘴喷粪
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/653064/)
+## 中共成功渗透到辉瑞、阿斯利康和葛兰素史克等疫苗巨头，“超限战”已全面打响
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/653063/)
 
-内新闻/素材：sam jeep 绘图：麦田67号 校对：三娃
+俄罗斯莫斯科喀秋莎农场  文喜
 
-12月14日虹国际在百度新闻发表的一篇题为《美国疫情比9·11还惨，美方喊中国人站出来，华春莹反击火力全开》的文章。
+校对上传   银河
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15151540/54.png)
+英国《每日邮报》12月13日报道，全球议员联盟“议会间中国联盟”(inter-parliament Alliance on China，简称 IPAC)从一位不愿透露姓名的中共国异见人士手中获得了一个数据库，其中包含近200万中共党员的海外部署详情【1】。《每日邮报》揭露，航空航天巨头空中客车、劳斯莱斯和波音等公司有数百名中共党员雇员。此外，在辉瑞和英国制药商阿斯利康发现123名共党雇员。
 
-中共隐瞒疫情，故意扩散全球，在美中共卧底释放病毒与挑起暴乱，造成美国病毒肆虐，社会不安。中共病毒对全世界以及美国造成巨大的伤亡，中共独裁代言人华春莹反而幸灾乐祸，完全说明中共不把美国人民与世界人民放在眼里，故意挑事。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15151338/image0-6-4.jpg)
-中华大地至中共统治以来，毫无人权可言。居然说美国虚伪，那中共的红色权贵们为什么趋之若鹜，纷纷向美国转移财产和家人移民。中共的红色权贵们为什么不去你们赞扬有制度优势的朝鲜？中共所谓的人权是否是屠杀六四争取民主自由的学生？计划生育强制流产，强制上环？对网民言论审查？城管可以打百姓？警察可以随意拘留上访人士？让百姓孩子喝毒奶粉，让百姓孩子打假疫苗？没有投票权，只能被代表？这就是你中共所谓的有人权的中共墙国？这就是你们压迫人民的制度优势？为了中共的政权稳定，让百姓血流成河，手段残忍。
+目前多个媒体都已获得此数据库的共享权限。澳大利亚天空新闻（SkyNews.com.au）在同天节目中披露中共对全球的严重渗透，目前事件持续发酵中。【2】
 
-百姓的生活靠自己的辛勤劳动，全是人民劳作养中共。然而中共不知羞耻，居然说养活了百姓。全世界哪个民主法治国家敢这样说？也只有中共这个不要脸的政权大言不惭。中共的血汗工厂，灵活就业，以药养医，医疗教育腐败，被你们说的天花乱坠，谎话连篇，毫无人性。再多词汇都不能描述你们的邪恶。
+引起世界警觉的是，根据自然新闻（Natural News）报道，经过多次分析这份中共党员部署的数据库，其中很多人已经成功渗透到各国的疫苗行业。很多名单中的中共党员在医药巨头辉瑞(Pfizer)、阿斯利康(AstraZeneca)和葛兰素史克(GlaxoSmithKline)就职，从事中共冠状病毒疫苗生产研发。【3】
 
-疫情期间，中共封门闭户，环境恶劣的方舱医院，移动焚化炉，封锁武汉真相，禁止传播疫情信息。中共的政治行为极为恶劣，毫无人性。
+自然新闻记者还补充，中共改造了冠状病毒成为生物武器，结合这份数据库的内容，有理由相信中共利用其间谍渗透进入疫苗制造企业，目的是让疫苗变成“第二波”生物武器。一些推行疫苗授权的企业与个人可能已经被中共的蓝金黄控制，这是中共组织超限战摧毁美国战术部署的一部分。
 
-对此，亿万受压迫的中华儿女感慨，中国人有千万个理由推翻中共，建立真正民主法治的正统中华。
+根据郭文贵先生12月13日直播透露，中共与世界黑暗势力在疫苗生产研发上已经深度勾结【4】。中共党员海外部署数据库仍待挖掘，目前公布的8192个名字仅仅是冰山一角，但我们不断看到科技巨头如谷歌，脸书，YouTube 和推特等网络平台帮助中共进行舆论审查，镇压真相的发声。种种线索都指向中共在美国本土全面发动了生物病毒及信息媒体“超限战”的事实。这些大科技公司一定有大量中共党员的身影。最被熟知的莫过于推特独立董事李飞飞和中共的关系。
 
-（本文仅代表个人观点）
+换句话说，大科技公司与中共深度勾兑，疑似故意招募中共背景雇员来建立言论审核制度，以此控制和引导舆论，删除掩盖所有选举盗窃的证据。同时，这些选票篡改被证明是通过有中共背景的多明尼投票系统进行的。这是一系列阴谋颠覆美国的大规模国际犯罪。
 
-新闻来源： [https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news\_10809931229643150365%22%7D&n\_type=0&p\_from=1](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_10809931229643150365%22%7D&amp;n_type=0&amp;p_from=1)
+（文章仅代表作者个人观点）
+
+**参考链接：**
+
+- 泄露的数据库揭露了中国共产党对英国公司的大规模渗透，其中包括阿斯利康、劳斯莱斯、汇丰和捷豹路虎。
+
+
+[https://www.dailymail.co.uk/news/article-9046783/Leaked-files-expose-mass-infiltration-UK-firms-Chinese-Communist-Party.html](https://www.dailymail.co.uk/news/article-9046783/Leaked-files-expose-mass-infiltration-UK-firms-Chinese-Communist-Party.html)
+
+- 重大泄密事件暴露了中共党员信息，“揭开了中共的秘密”
+
+
+[https://www.skynews.com.au/details/\_6215946537001](https://www.skynews.com.au/details/_6215946537001)
+
+- 战争:中共国成功地渗透到疫苗巨头辉瑞、阿斯利康和葛兰素史克，作为“超限战”的一部分，打败美国军队，征服北美
+
+
+[https://www.naturalnews.com/2020-12-13-communist-china-infiltrated-vaccine-giants-pfizer-astrazeneca-glaxosmithkline.html#](https://www.naturalnews.com/2020-12-13-communist-china-infiltrated-vaccine-giants-pfizer-astrazeneca-glaxosmithkline.html#)
+
+【4】12/10 Miles Guo: Don’t believe in vaccine, resulting from collusion between the CCP and dark power
+
+
 
 0

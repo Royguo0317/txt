@@ -1,27 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 金融暴雷：燃起一片火海
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/652108/)
+## 【突发】林伍德：麦康奈尔是叛徒，他的审判日将至
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/652790/)
 
-作者：Serenbe
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15135905/Picture3-3.png)Unsplash: Jacob Kiesow
-此前人们熟悉的所谓金融“灰犀牛”，一个个暴露出来，成群结队，摧古拉朽；又宛如霹雳闪电，燃起摧毁经济的熊熊大火。
+- 编辑：Victor Torres
 
-## **一、国企逃废  坑国害民**
 
-华晨集团作为拥有2000亿资产的重点国企，竟然因为10亿的债务违约，破产重组；央企华阳违约本息70亿以上；河南永煤10月份账面资金500多亿元，但10亿到期债券违约不还。堂堂的工商银行也耍赖不兑付到期债券。有数据显示，在前两年信用债违约民企占80%以上，而今年，民企违约规模只占45%。国企是否故意“逃废债”，尚未有定论，但事实是，事发之前都还是AAA级或AA级高等级债券，这只能说明评级机构、会计师事务所、券商，甚至地方政府“联手作假、为虎作伥”。国企违约走向常态化。企业恶意违约、评级机构信用崩塌。没信用的金融，是流氓金融。那么其恶果的受害人自然是百姓。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-## **二、行业倒闭  百姓遭殃**
+**西班牙2020年12月15日电/西喜社/——**周二下午，林伍德发推批评米奇·麦康奈尔(Mitch McConnell )不是一个爱国者。
+“麦康奈尔只是想要权力、影响力和金钱。他愿意出卖美国来得到他想要的东西。麦康奈尔是美国爱国者的叛徒。”
+“他的审判日即将到来。”
+当天上午，麦康奈尔刚刚承认乔•拜登当选下届美国总统，并向他和贺锦丽表示祝贺。
 
-从海南发展银行到包商银行的倒闭；5000家P2P平台从11月中旬完全归零，已退推出历史舞台；今年中国每天倒闭一家以上房地产企业。从一开始就是庞氏骗局的 “e租宝”，诈骗了80多万投资人，涉案金额700亿。如果说是某一个地区某几个人金融诈骗尚可理解，但是行业性专门化的诈骗百姓，情何以堪？！良心何在？！成千上万的百姓满用血汗一分一分积累的生活希望瞬间变成泡影。面对这些血淋淋的事件，人们不禁要问是谁给他们合法的资质？政府的监管呢？钱去哪了？遭殃的又是百姓。
 
-## **三、专业骗民  盗国杀人**
 
-笔者分析了去年以来国内金融暴雷近千案例，发现不乏从一开始就是专业诈骗。例如虚构平台，以假期货骗钱；打着以房养老旗号，行非法集资之实；捏造数据，虚增利润；骗税骗补贴，管理层掏空资产；虚构数字货币，骗兑主流货币；重复抵押资产，洗钱海外犯罪。注册资本1千万的私企海航洗劫了国家近万亿的金钱，如今又把这个残障送回海南省政府抚养，如此等等。这些违法犯罪行为，非一夜之功，也非一人所为。他们有的披着合法外衣，有着处心积虑的顶层设计，或者长期传销拉人入伙，更有大肆虚假宣传、领导明星站台。正是鼠猫成亲，沆瀣一气。伤害了百姓的善良，损害了投资者权益，祸害了人民的幸福生活。
+> Mitch McConnell [@senatemajldr](https://twitter.com/senatemajldr?ref_src=twsrc%5Etfw) is NOT a Patriot. Ask his wife. She knows. 
+> 
+> McConnell just wants power, influence, & money. He is willing to sell America to get what he wants. McConnell is a traitor to American Patriots.
+> 
+> His day of judgment is coming. [https://t.co/d0ECDfk5Tk](https://t.co/d0ECDfk5Tk)
+> — Lin Wood (@LLinWood) [December 15, 2020](https://twitter.com/LLinWood/status/1338914009660133378?ref_src=twsrc%5Etfw)
 
-多米诺骨牌依次倒下，百姓对美好生活的向往哪里去寻？
 
-(文章内容仅代表作者观点)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0

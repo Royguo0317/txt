@@ -1,40 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 窃取美国知识产权的华裔科学家认罪
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/653122/)
+## 多米尼的出错率如此之高：密歇根68% 内华达约70%
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/653182/)
 
-多伦多枫叶农场 春季
-校对 文锦 上传 云起时
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15153656/express.co_.uk-2.jpg)图片来源：express.co.uk 
-美国司法部公共事务办公室于2020年12月11日发布了题为“在当地研究所工作了10年的男子认罪，承认共谋窃取商业秘密并在中国出售”的公告。
+蒙特利尔皇家山战友团laotou
 
-美国司法部在公告中指出，现年50岁的周宇（音译：Zhou Yu）今天在美国地方法院认罪，承认与他的妻子犯有串谋诈骗罪，共谋从俄亥俄州都柏林（Dublin, Ohio）全国儿童医院研究所（Nationwide Children’s Hospital’s Research Institute）窃取与研究，鉴定和治疗多种儿科疾病有关的外泌体和外泌体隔离有关的科学商业秘密，以谋取在中国的个人经济利益。他们在中国成立公司，以个人名义从其在全国儿童医院的尖端工作中获利。
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15162342/S-3.jpg)图片来自 Shutterstock.com
+12月14日惊爆了密歇根州多米尼投票机68%的错误率，密歇根州特里姆郡（Antrim County）的16台多米尼投票机，经过法学检验后，有数千张选票在2020年11月3日从川普总统名下转给了乔·拜登【1】，这不是坊间传闻，而是密歇根州的法官授权发布。专业部门做了统计，特里姆郡的多米尼投票机，错误率达68%【2】。
 
-外泌体在一系列医学疾病的研究、鉴定和治疗中起着关键作用，包括坏死性小肠结肠炎（早产儿发现的疾病）、肝纤维化和肝癌。
+68%的错误率听上去很可笑，但还不只密歇根，内华达州也有，《门道专家》12月15日早晨报道，这是一个系统的有目的欺诈，内华达州的克拉克郡多米尼投票机也蹦出了“大约70%的（错误）选票”—— 这是通过设置（进行的）！
 
-周宇和他的妻子，现年47岁的陈丽（音译：Li Chen）各自在俄亥俄州全国儿童医院研究所不同的医学研究实验室工作了10年（周宇从2007年至2017年，陈丽从2008年至2018年）。他们共谋窃取了全国儿童医院与外泌体研究有关的商业秘密。
+文章回顾了密歇根州特里姆郡多米尼投票机68.05%的错误率事件，指出，“这是一个非常重要的发现，多米尼机器设立了68.05% “选票批量裁决”，这些选票被收集到一个文件夹内，随后被送到“另一个地点”，那里的人可以改变选票。
 
-这份公告还说，根据周宇的认罪协议，周宇和陈丽合谋通过制造和出售外泌体“隔离药盒”来窃取其中的一项商业秘密并获得利益。周宇在全美儿童医院的研究包括一种新型的隔离方法，该方法可以从一滴血液中分离出外泌体。这种方法的研究对于周宇的实验室至关重要。因为坏死性小肠结肠炎是主要发生在早产儿中的一种状况，因此只能从早产儿身体里抽取少量体液，以确保安全。
+《门道专家》继续说，这是选举舞弊。现在看来，这并不是多米尼克投票机的一个孤立事件。同样的事情也发生在内华达州的克拉克郡。
 
-被告承认在中国成立了一家销售这种隔离套件的公司。 他们还从中国政府，如中国国家外国专家事务管理局和中国国家自然科学基金中国政府那里得到好处。
+内华达州克拉克郡选举官员也碰巧报告了一个“大约70%选票”的“错误扫描”。
 
-周宇和陈丽于2019年7月在加利福尼亚被捕，他们于2019年8月在哥伦布联邦法院出庭，案件从此开始审理。陈丽于2020年7月认罪，承认合谋窃取商业秘密和实施电讯欺诈。
+原文附上了发布此消息的推特链接【3】
 
-作为认罪协议的一部分，这对夫妇同意没收与其犯罪有关的财产或收益。 陈霞同意缴纳140万美元，包括500,000股Avalon GloboCare Corp公司的普通股和400股GenExosome Technologies,Inc公司的普通股。周宇的罚没款细节将通过量刑程序最终确定。
+正如律师马修·德佩诺（Matthew DePerno）指出的，这种多米尼投票设置是一个“故意的、有目的”的设置错误。【4】
 
-美国国家安全助理总检察长约翰·戴默斯（John C. Demers）表示：“今天的认罪协议强调了司法部致力于保护美国的研究和商业秘的承诺，使其免受来自中共国政府项目激励的人的窃取。我们对中共为抢夺、复制和替代自己没能力开发的产品的特定行为不会置之不理，那些试图通过窃取商业秘密牟利的人将被追究责任。”
+需要近70%的“选票批量裁决”设置，说明川普总统领先优势得多大？多么的人心所向！仅仅4年，这位老人就将外强中干的美国恢复了元气，走向更加强大。邪恶势力不会眼睁睁被束手就擒，会作垂死挣扎。但是正义的力量不可阻挡，任何的反扑只会暴露潜伏在深层的小丑，只会加速邪恶的灭亡。胜利属于正义，属于爆料革命！
 
-美国检察官戴维·戴维勒斯（David M. DeVillers）表示：“中国政府为了窃取美国的智慧产权已经建立了大规模的，复杂的体系。我们希望这个案件的定罪能够证明我们将与这一系统作斗争。”
+参考链接：
 
-俄亥俄州南区检察官戴维·M·德维尔勒斯（David M. DeVillers）、国家安全助理总检察长约翰·C·戴默斯（John C. Demers）；联邦调查局（FBI）辛辛那提分部特别负责人克里斯·霍夫曼（Chris Hoffman）共同宣布了这对夫妇今天在美国地方法院法官莎拉·莫里森（Sarah D. Morrison）面前的认罪请求。
+【1】https://www.thegatewaypundit.com/2020/12/breaking-bombshell-mi-judge-grants-attorney-matt-deperno-permission-release-results-forensic-examination-16-dominion-voting-machines-antrim-co-video/
 
-十分痛心的看到国人为了自己的利益充当了中共的炮灰，替中共盗取美国的知识产权。最近195万中共党员名单的外泄，涉及到中共对全球各国的渗透。值得庆幸的是，美国已经看清了中共妄图颠覆美国，控制世界的野心，中共必将收到清算和惩罚。在此呼吁所有的国人看清中共的邪恶本质，参与到推翻中共的世界大潮之中，使中国成为自由民主之国度。
+【2】[https://www.washingtontimes.com/news/2020/dec/14/forensic-auditors-find-shocking-68-error-rate-one-/](https://www.washingtontimes.com/news/2020/dec/14/forensic-auditors-find-shocking-68-error-rate-one-/)
 
-[原文链接](https://www.justice.gov/opa/pr/man-who-worked-local-research-institute-10-years-pleads-guilty-conspiring-steal-trade-secrets)
+【3】[https://twitter.com/KanekoaTheGreat/status/1338631925716566017](https://twitter.com/KanekoaTheGreat/status/1338631925716566017)
 
+【4】[https://twitter.com/mdeperno/status/1338815484955942913](https://twitter.com/mdeperno/status/1338815484955942913)
 
-
-
+原文链接：https://www.thegatewaypundit.com/2020/12/systemic-purposeful-fraud-clark-county-nevada-dominion-machines-also-kicked-70-ballots-settings/
 
 0
