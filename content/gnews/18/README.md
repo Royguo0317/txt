@@ -1,30 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【突发】林伍德：麦康奈尔是叛徒，他的审判日将至
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/652790/)
+## 中国民营企业&#8212;逆习者亡，顺习者亦亡
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/651940/)
 
-- 编辑：Victor Torres
+俄罗斯莫斯科喀秋莎农场 银河
 
+校对上传 星河
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15135555/Snipaste_2020-12-15_12-41-56.png)
+继中共中央政治局12月11日的2021年经济分析研究会议上提出“强化反垄断和防止资本无序扩张”之后，12月12日，中共又在北京举行“张謇精神”时代意义论坛，再向民企喊话，“与国家同进退、共荣辱，同呼吸、共命运。” 在经济崩塌，财政吃紧之际，中共撕掉最后伪装，霍霍屠刀举向民营企业羔羊。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+11月份，习近平在江苏要求民企学习张骞“产业报国”，把报国与“爱国”挂钩。中共中央办公厅印发意见要求民营企业家“坚定不移听党话，跟党走，做政治上的明白人”，明确了收割民企的信号。习近平领导下的中共政权希望加强政府对经济的控制，要求大大小小的民营企业“产业报国”。如果不愿做张骞，中共会推出强硬政策，对于没有“救党”、“报国”觉悟的民企，政府不惜强取豪夺，完全接管，收为国有。
 
-**西班牙2020年12月15日电/西喜社/——**周二下午，林伍德发推批评米奇·麦康奈尔(Mitch McConnell )不是一个爱国者。
-“麦康奈尔只是想要权力、影响力和金钱。他愿意出卖美国来得到他想要的东西。麦康奈尔是美国爱国者的叛徒。”
-“他的审判日即将到来。”
-当天上午，麦康奈尔刚刚承认乔•拜登当选下届美国总统，并向他和贺锦丽表示祝贺。
+近年，在中共国，民营企业家被定罪、没收资产的消息层出不穷。各行各业富商或企业集团负责人，均被扣以不同罪名纷纷落马。据《日本经济新闻》报道，被中共政府“国有化”的中国私人企业，在2018年约20家，2019年约30家，而今年则已有51家。短短三年，约百家以上私人企业惨遭中共洗劫。
 
+诸多迹象显示，在疫情困境、中共因生物病毒武器及信息超限战干预美国大选将被追责，内外交困陷入绝境之际，彻底露出“匪”性，欺诈抢夺，美其名曰“共命运”、“产业报国”，实则开始全面掠夺富人财富，“共”私营企业的产。
 
+中国民营企业人士深知，政府一旦不需要他们，就会把他们当成牛羊宰割。2019年上海研究机构胡润研究院调查465名富人的结果显示，只有1/3受访者对中共国经济前景非常有信心，较两年前的近2/3大幅减少；完全没信心的比例升至14%，比上一年调查结果高一倍多；近半受访者表示考虑移民他国，或已开始着手移民。自2017年开始，受爆料革命影响，已有大批的中国企业家变卖资产逃向海外。
 
-> Mitch McConnell [@senatemajldr](https://twitter.com/senatemajldr?ref_src=twsrc%5Etfw) is NOT a Patriot. Ask his wife. She knows. 
-> 
-> McConnell just wants power, influence, & money. He is willing to sell America to get what he wants. McConnell is a traitor to American Patriots.
-> 
-> His day of judgment is coming. [https://t.co/d0ECDfk5Tk](https://t.co/d0ECDfk5Tk)
-> — Lin Wood (@LLinWood) [December 15, 2020](https://twitter.com/LLinWood/status/1338914009660133378?ref_src=twsrc%5Etfw)
+尚在中共治下的民营企业家当放下幻想，认清中共面目，逃离尚有一线生机。深陷中共国的民营企业，逆习者亡，顺习者亦亡。
 
+参考链接：
 
+[https://www.rfi.fr/cn/中国/20201213-北京弘扬-张謇精神-动员企业家-与国家同进退-共命运](https://www.rfi.fr/cn/中国/20201213-北京弘扬-张謇精神-动员企业家-与国家同进退-共命运)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+[https://www.rfi.fr/cn/中国/20201214-北京反垄断还是宰肥羊-阿里巴巴祸不单行](https://www.rfi.fr/cn/中国/20201214-北京反垄断还是宰肥羊-阿里巴巴祸不单行)
 
 0
