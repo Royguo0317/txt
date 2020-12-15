@@ -1,25 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 因中共病毒致死的首位国家领导人，斯威士兰首相去世
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/650855/)
+## 情报界在亨特·拜登调查中玩政治
+` LORI` [轉載自GNews](https://gnews.org/zh-hans/651644/)
 
-- 编辑：神奇四侠
+作者：文小森
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15015839/123155.png)
 
-**西班牙2020年12月14日电/西喜社——**
+十月份，当亨特·拜登的笔记本电脑内容在保守派媒体公布时，一个颇有影响力的华盛顿小组急忙去寻求他的父亲——现假定的总统当选人乔·拜登的帮助。
 
-斯威士兰王国首相安布罗斯·曼德武洛·德拉米尼当地时间12月13日晚在南非的医院因感染中共病毒去世，享年52岁。
+退休的美国情报官员成为了政治活动家，直接将他们的信用运用到了总统大选中。他们签署了一封公开信，声称关于亨特·拜登从乌克兰和中国流出现金的短信以及他父亲是如何帮助的是俄罗斯的阴谋。
 
-美国国务卿蓬佩奥发推文表示哀悼。
+没有证据表明俄罗斯与笔记本电脑有联系，但这申明为民主党和自由派媒体提供了一个无视拜登兜售其影响力的反驳借口。
 
+中情局秘密官员肯特·克利兹贝（Kent Clizbe）告诉《华盛顿时报》：“情报界的政治化以及IC退休人员肆意妄为地参加任何反川普运动，是美国政治戏剧且危险的发展。”“精灵从瓶子里跑出来了。”
 
+这并不是情报界的第一次联邦调查局（FBI），中央情报局（CIA），国家情报局局长办公室（DNI）和其他机构的退休现役成员试图暗中阻碍川普总统。泄密、间谍和虚假陈述使川普政府受缚长达四年。
 
-> On behalf of the U.S., I offer the people of the Kingdom of Eswatini our heartfelt condolences on the passing of Prime Minister Ambrose Dlamini, a true leader and friend. The U.S. stands with the people of Eswatini during this period of mourning.
-> — Secretary Pompeo (@SecPompeo) [December 14, 2020](https://twitter.com/SecPompeo/status/1338634710856110082?ref_src=twsrc%5Etfw)
+一位国会共和党工作人员说：“英特尔领导人表现得就像是在香蕉共和国而不是在民主国家。” “至少要等到川普当选。”
 
+纽约民主党人参议院少数党领袖查尔斯·舒默（Charles E. Schumer）在过渡时期曾警告川普总统，指责情报界对俄罗斯的网络调查会带来报复。
 
+**编者评论：**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+– 班农先生在War Room节目中曾提及FBI在2019年就已获得拜登硬盘但FBI局长克里斯托弗·雷选择帮助亨特隐瞒了该事件。
+– 2020年10/20日爆料革命《路德社》早间节目透露雷即将被开除。 
+– 2020/11/14位于德国法兰克福的CIA服务器因操纵美大选遭美国特种部队突袭。传言CIA局长吉娜也当场被捕。
+– 2020/11/17，美代理国防部长警告“美军随时能在72h对中共展开毁灭性军事打击”。 
+– 2020/11/18美代理国防部长克里斯·米勒宣布美军所有特种作战部队及情报部门越过所有官僚渠道，向他直接汇报。
 
-3+
+从时间线也可以看出，川普总统得力干将米勒已经将架空了CIA、FBI权力高层，以后情报部门必须直接向他汇报。在此状况下20120/12/18国家情报总监评估报告应时出台。川普总统高瞻远瞩，在2018年签署了外国干预选举制裁行政令。行政令规定大选结束后45天内，国家情报总监应出评估报告，是否有任何外国政府或外国政府代理人或任何代表外国政府代理人的个人干预美国选举的意图和行动。仿佛是看到未来一般，在2018年设置了请君入瓮的陷阱，也同时在20120/12/18这个关键节点之前提前抽干了情报部门的沼泽。这是巧合么？这世界哪来的那么巧合，所有的巧合都是精心的安排。战友们务必保持信仰，相信川普团队，God bless USA！
+
+原文出处：
+[https://www.washingtontimes.com/news/2020/dec/13/hunter-biden-probe-politicized-intelligence-commun/](https://www.washingtontimes.com/news/2020/dec/13/hunter-biden-probe-politicized-intelligence-commun/)
+
+1+

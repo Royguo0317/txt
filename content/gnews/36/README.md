@@ -1,21 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 宾夕法尼亚州爱国者挺警运动显现人性闪光点
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/650898/)
+## 【林伍德律师推文】-解雇是结束，审判才是开始
+` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/651893/)
 
-翻译/简评：草原三省战友之家 文莱
-校对 文锦 上传 云起时
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14200352/yakimaherald.com-2.jpg)图片来源:yakimaherald.com
-据《布雷特巴特新闻》12月13日报道，由一名来自宾夕法尼亚州杜波依斯市（DuBois, Pennsylvania）的男子和数家当地企业最近发起了“挺蓝“运动以示对当地执法人员的支持。居民尼克·苏普利齐奥（Nick Suplizio）提出了出售挺警察T恤和帽衫并将钱捐给当地警察部门的想法，他随后向《信使快报》（Courier Express）表示：“我对全国范围内有关削减警察经费的说法感到非常厌倦，我想让位于杜波依斯市和桑迪镇的当地警察局知道我们作为一个社区整体支持他们及其工作。”
+12月14日林伍德律师推文说，特朗普总统是一个真正的好人，他并不真的喜欢解雇人。我打赌他不喜欢把人关进监狱，尤其是 “共和党人”。
 
-据报道，一位来自于CVB媒体的员工乍得·巴纳德（Chad Barnard）设计了支持警察的衬衫和连帽衫，并且印刷店亚伦·费尔曼（Aaron Fairman）和刺绣商店市区烙印（Downtown Imprints）将生产制作这些商品。随后在12月4日的脸书（Facebook）帖子中，Dubois商会分享了一张可供出售的商品信息图，并写道：“他们一直在为我们服务，现在该轮到我们为他们服务了。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14200547/facebook-2.jpg)图片来源：facebook
-桑迪镇警察局长克里斯·克鲁泽拉（Kris Kruzela）表示在这不平凡的一年中经常看到民众通过不同的方式支持警察的工作。此外，不同的组织和人员不断地在车站提供午餐，其他人则以捐款的方式帮助我们购买一些防护设备。我认为，在过去的一年中，全国其他地方都在与警察对抗，但是我们的社区却更加支持我们。最后，他表示感谢两个社区，所有警察对此表示赞赏和感激。杜波依斯市警察局长布莱恩·克拉克（Blaine Clark）说，他相信该警察局与公民之间的关系很好，并补充说：“我真的认为，我们远远超出了全国各地对警察的态度。” DuBois经理约翰·“赫姆”·苏普利齐奥（John “Herm” Suplizio）还称赞了居民利用他们的创造力向警察们展示了支持。他说：“人们想出了办法并付诸实践，表明这里是生活和工作的好地方。”
+他给了 乔治亚州州长Brian @BrianKempGA 和州务卿Brad @GaSecofState 每一个机会，让事情好起来。但是他们拒绝了。他们很快就会进监狱。
 
-简评：
-2020年总统大选闹剧配合着叛国者、盗国贼们组织的安提法（Antifa），美国民众的生命财产安全一度受到了前所未有的威胁与冲击。一些地区的警察在自身生命安全受到威胁时，一些党派的决策竟是削减经费，这也就意味着减少对安提法的控制。安提法在近一年打着“种族”运动的口号却做着伤天害理的事情，例如打砸抢，消灭文化等，而背后的黑暗势力所推崇的就是共产主义全球化。但是觉醒的民众，以及一些地区的爱国者们肯定警察的工作并提供支持以帮助警察们在此紧要关头渡过难关。而这一团结的行动正是共产主义恐惧的，当正义力量配合民意团结起来的时候，全世界共产萌芽的种子将烟消云散。
+川普总统所作所为让我们看到民主国家和独裁国家办事流程的区别，具有法律意识的领导者和无知的独裁者的不同，文明的价值观和愚昧的风俗惯例的区别，宽仁的态度和狭隘的观念的区别。与此同时，川普总统所为恐怕和放长线钓大鱼、尽可能排干沼泽的策略也不无关系。
 
-[原文链接](https://www.breitbart.com/local/2020/12/13/pennsylvania-man-local-businesses-launch-back-blue-campaign-its-our-turn-be-there-them/)
+新闻素材和图片来自林伍德律师推特
 
-1+
+
+
+> President Trump [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) is a genuinely good man. He does not really like to fire people. I bet he dislikes putting people in jail, especially “Republicans.”
+> 
+> He gave [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw) & [@GaSecofState](https://twitter.com/GaSecofState?ref_src=twsrc%5Etfw) every chance to get it right. They refused. They will soon be going to jail. [pic.twitter.com/7PMBLc8L2N](https://t.co/7PMBLc8L2N)
+> — Lin Wood (@LLinWood) [December 15, 2020](https://twitter.com/LLinWood/status/1338715369566048256?ref_src=twsrc%5Etfw)
+
+
+
+3+

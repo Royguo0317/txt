@@ -1,30 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 封城带来的影响-小企业被摧毁了
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/651362/)
+## 多米尼试图掩盖与SolarWinds关系
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/652461/)
 
-多伦多枫叶农场 阿黎
-校对 文锦 上传 云起时
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15001031/twitter7.jpg)图片来源：Twitter.com
-据Gen Z Conservative 12月13日报道，封城真正的问题-摧毁了小企业，这是除了人民失去自由、抑郁症、酗酒、吸毒、家庭矛盾等问题外，需要被关注的问题。
+- 编辑：Victor Torres
+- 翻译：Ranting
 
-自从中共病毒疫情爆发以来，各地封城。能在家里办公的，继续工作，其他的全部下岗或失业，呆在家里。学生们不能去学校上学。人们与亲人朋友的联系和社交限定在网上。人们最大限度地在网上购物。市场上只有有限的几家超级连锁商场和超市被允许开业，如沃尔玛，Costco, Home Depot, Business Depot 等。那些小商店、小超市、餐馆，电影院、健身房等小企业全部关闭。
 
-Yelp上的数据显示，在3月1日至8月31日期间，由于美国各地的州政府开始实施封锁，迫使企业关闭，共有163，735家企业关闭，其中97,966家企业（60%）的关闭将是永久性的。小企业22%永久性关闭，总营业收入下降30%。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-再看看那几个巨型公司在疫情期间封城后的业绩。
+**西班牙2020年12月15日电/西喜社——**Gateway Pundit周二报道，多米尼正试图掩盖他们与SolarWinds的关系。
+周日深夜，网络安全和基础设施安全局（CISA）罕见地发布了紧急指令21-01，以应对涉及SolarWinds Orion产品的已知泄密事件。
+据报道，多米尼删除了他们网站上”SolarWinds”的参考资料和链接。
+一位读者分享了关于SolarWinds技术的一些想法：
+*“我在IT行业工作，我现在很想知道SolarWinds是否被用作进入多米尼机器的后门‘跳跃主机’。如果每台机器都有一个唯一的主机名，并且它们被连接到一个中心网络，这是一个合理的解释方式。一个‘跳跃主机’是一个服务器（顺便说一句，这是非常糟糕的安全做法），它包含了网络上所有主机的主机名和IP地址，所以你可以直接”跳跃”到它们或者远程控制它们。如果他们真的在SolarWinds里放了一个后门，并将这些连接到网络上，那么他们将这样做：SolarWinds可能会被黑客入侵成为一个‘跳跃主机’。”
+“我不能肯定地说这是真的，但值得深究。一个‘跳跃主机’是不好的，因为它把你所有的主机和设备放在一个篮子里，如果一个黑客进入那里，你可以想象他们会创造一个多么可怕的噩梦。”*
+难怪多米尼要隐藏他们与SolarWinds的关系。
 
-大公司的股价都涨到了历史新高。 亚马逊送货上门，可以满足客户网购的需求，所以它做得很好。沃尔玛在小商店都不准开门的时候还能继续营业，自然生意都流到了那里。谷歌、苹果、微软、Facebook、Twitter、Zoom和其他科技公司的营业额比以往任何时候都高，因为我们都被困在家里，需要他们的服务来工作和交流。航空公司在裁员的同时也得到了救助。
+**新闻来源：**[https://www.thegatewaypundit.com/2020/12/dominion-voting-machines-trying-hide-relationship-solar-winds/](https://www.thegatewaypundit.com/2020/12/dominion-voting-machines-trying-hide-relationship-solar-winds/)
 
-封城对大企业的影响是，由于他们的政治拉拢和有效的游说策略，他们做得相当好，并获得了丰厚的利润。据《美国伟人》报道，由于封城，在短短8个多月的时间里，650名美国人获得了超过1万亿美元的财富。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/18075158/Portada-Dominion-ccp-1.jpeg)
 
-这次疫情封城对小企业造成了毁灭性重创。行业垄断加剧，中产阶级又一次被大大削减，大量的中产阶级变成低产或无产阶级，贫富悬殊再次加大。中产阶级是社会的主要消费者，中产阶级的消失，预示着社会总体购买力的下降，从而使经济丧失动力而停滞不前。
-
-然而，疫情中大面积长时间封城，关闭小企业，允许大公司开业-这种对大企业倾斜的政策对小企业的影响和对经济的影响，政策制定者应该是有一定的预测的。之所以这样做，不排除那些巨型公司对政府的影响力起了相当大的作用。
-
-小企业、中产阶级是美国经济的支柱。在恢复经济的过程中，笔者认为政府应当在给予资金和税务优惠方面，大力度扶持小企业，帮助他们恢复经营和重建，促进中产阶级队伍的壮大，让美国经济早日恢复，让美国再次强大。
-
-[原文链接](https://genzconservative.com/the-effect-of-the-lockdowns/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0

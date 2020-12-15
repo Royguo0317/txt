@@ -1,23 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【时效打脸简讯】纳斯达克将移除中共四家军民融合企业
-` HAIKUOTIANKONG` [轉載自GNews](https://gnews.org/zh-hans/651236/)
+## 《路德社》精选新闻快讯：林伍德发推“川普即将开始大扫除”
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/652130/)
 
-内新闻：铜豌豆 校对：加文gavin
+出品《路德社》编辑：路德社精选新闻专栏组
 
-新华社北京12月14日电，针对纳斯达克近日发布的公告——将从其股票交易指数中移除4家中共国企业，外交部发言人汪文斌表示：这一举动不妨碍国际投资者通过其他多种方式投资这些企业。
-
-据路透社报道，美国纳斯达克在上周五12月11日发布消息表示，将从其电子股票交易市场中移除四家中共国建设和制造企业，其不参与纳斯达克电子股票交易的证券部分，将于12月21日移除。这四家企业是：中国交通建设公司、中国铁道建筑总公司、中国中车股份有限公司、中芯国际集成电路制造有限公司。
-
-纳斯达克公告指出，这一做法是对美国政府的行政令——要求限制以上四家企业的股票交易而做出的反应。白宫在上个月下达了行政令，从2021年11月开始禁止美国投资者购买任何在黑名单上的企业证劵。原因在于：这些上了黑名单的企业已经被美国政府确认，跟中共军方有千丝万缕的联系。换句话说，这些企业都属于中共军民融合企业。因此汪文斌答记者问时指责美国政府无端打压中共国企业，是故意隐瞒真相和混淆视听。
-
-中共从2006年开始，将大量的军民融合企业披上民营企业的外衣输出到美国上市圈钱，跟华尔街的大投资机构狼狈为奸，一方面大量吸取美国民众和美国民间投资机构的资金，另一方面在美国到处锁定出卖美国利益的政客及其代理人，如拜登家族，全面买断美国高科技军民融合企业和进行大规模技术偷盗，以壮大中共的监控能力，最终达到使用高科技手段全面控制和镇压中国老百姓的目的。
-
-新闻来源：
-[http://www.xinhuanet.com/world/2020-12/14/c\_1126860076.htm](http://www.xinhuanet.com/world/2020-12/14/c_1126860076.htm)
-[https://finance.yahoo.com/news/nasdaq-remove-shares-4-chinese-230744021.html](https://finance.yahoo.com/news/nasdaq-remove-shares-4-chinese-230744021.html)
+2020年12月15日，林·伍德发推：美国急需彻底的大扫除。太多的贪婪和腐败。川普总统即将为人民彻底进行清除。淡定。
 
 
 
-1+
+> America is in dire need of a good housecleaning. Way too much corruption & greed. [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) is going to clean it up for We The People. Steady.
+> 
+> “But now the LORD my God hath given me rest on every side, so that there is neither adversary nor evil occurrent.”
+> – 1 Kings 5:4 [pic.twitter.com/JPZHFJiQhM](https://t.co/JPZHFJiQhM)
+> — Lin Wood (@LLinWood) [December 15, 2020](https://twitter.com/LLinWood/status/1338726421955571712?ref_src=twsrc%5Etfw)
+
+
+
+继林·伍德大律师号召美国民众准备充足的食物、设备和枪支弹药后，今天他明确表示川普总统将马上采取行动，彻底清理美国政府内部的贪污和腐败问题。结合司法部长巴尔的离职，川普总统的反击计划正有条不紊地实施，等待合适时机完成致命一击。
+
+本文作者：Stranger
+
+审核校对：玫瑰天空
+
+上传排版：青葫芦娃
+
+4+

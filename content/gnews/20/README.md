@@ -1,26 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【Comments From Fighter fellow】Are you ready for the Cultural Revolution to hit Hong Kong?
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/651263/)
+## 【热点播报】多米尼投票机被法务审计认为“具有国家安全问题”
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/652173/)
 
-Compilation: 酒色姐姐、净水-源、MY
+作者： 香草山写作组 七芒星；校对/发稿：村北
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14225940/%E6%96%87%E9%9D%A9%E8%A5%B2%E6%B8%AF-%E9%85%8D%E5%9C%96-1.jpg)
+根据Populist Press 12月14日的消息，有公司对密歇根州一个小县的22台多米尼投票系统进行了法务审计，并得出结论认为该系统的设计是有意和有目的地带有固有误差，用于制造系统性舞弊并影响选举结果。
 
-On December 14, the Hong Kong media revealed that all 180,000 civil servants will have to swear allegiance to the government at the end of the month at the earliest. Those who refuse to take the oath will be fired directly. Those who take the oath will be dismissed or directly ordered to retire if they misbehave or break the oath in the future! In short, whether you take oaths or not, neither has good results. Some people refused to take the oath.
+该公司在星期一发布的报告中建议川普总统采取措施，使用2018年关于外国干涉的行政命令，以确保美国的国家安全。
 
-This news tells us that Hong Kong, under the control of the Chinese Communist Party, is becoming more and more abject and is all operating according to the template set by the Chinese Communist Party long ago. The word allegiance is not at all new to mainlanders, especially those over 60 years old.  The most typical was the Cultural Revolution launched during the Maoist era. The Cultural Revolution had six main themes: 1. glorification and allegiance, 2. revolution and struggle, 3. heroes and role models, 4. contrast between old and new, 5. progress and backwardness, 6. love and affection. The Chinese Communist Party puts glorification and allegiance in the first place, which shows that the Chinese Communist Party requires the people to be absolutely loyal to the Party leadership. The most representative literary work that asked people to glorify, praise and appreciate the Chinese Communist Party as an expression of reverence for the Party and Mao Zedong, as well as for the theoretical doctrine and system they believed in, was the “Loyalty Dance.” Decades have passed, and the damage done to mainlanders by the Ten-Year Cultural Revolution has persisted. When Xi Jinping came to power, his policy was to retrace the Maoist line all over again. It is not difficult to see the shadow of the Cultural Revolution in our culture in these years. The songs of that era can be heard everywhere in the big cities. Old people wearing straw green uniforms, red armbands, and holding red books can be seen dancing the loyalty dance on the stage, on the street, in the park, etc. These are not accidental; they are the inevitable product of retracing the route. It is also the CCP’s all-encompassing indoctrination into the ideology of the Cultural Revolution, disguised as glorification of the Cultural Revolution, and brainwashing tactics planted deep into people’s heads.
+该报告还详细说明了该系统有意地产生大量选票”错误“，然后将标有“错误”的电子选票移交给“裁决”步骤，然后在没有监督，没有透明度，也没有审计追踪的情况下对选票的进行“裁决”。这最终导致选民或选举欺诈。
 
-Officials are also popping up all over the china to show loyalty to the CCP and to Xi Jinping. In 2016, Li Hongzhong, who had just become secretary of the Tianjin Municipal Committee, shouted for the first time at a meeting: absolute loyalty. It is to imply his loyalty to Xi Jinping. Four years later, Secretary of Shandong Provincial Committee liu dingyi, ,publicly stated in Jinan cadre adjustment: absolute loyalty to the General Secretary.
+美国国家情报总监日前在接受媒体采访时指出2020美国大选存在外国干预，根据川普总统2018年发布的关于外国干涉大选的行政命令，情报总监将在大选后45天内也就是12月18日内发布其最终调查报告。据路德社透露，中共干预美国大选已基本做实。
 
-The legacy of the Cultural Revolution has been clamping down on people’s minds, and there are countless people who want to be promoted and get rich, thinking that by showing loyalty and allegiance they can have a bright career, but in fact the officials are just a tool of the rulers.
 
-Today’s Hong Kong, the demonic wind has long been rampant, the villain in power, settle scores at an opportune moment; curb freedom, to eliminate the street march, control the mind, unified brainwashing is in full swing. It is not surprising that all civil servants have to take an oath of allegiance. But I believe that Hong Kong people have been living under the British mindset for a long time, their pursuit of freedom, democracy and human rights will not change. Hong Kong is only a temporary setback, freedom, democracy and rights will definitely come back!
 
-The above views are the author’s own
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-Source：
-[https://gnews.org/zh-hans/647863/](https://gnews.org/zh-hans/647863/)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

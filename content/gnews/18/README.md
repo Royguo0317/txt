@@ -1,23 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Raheem揭秘左媒洗脑术：思想控制最基本的形式是不断地重复
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/651288/)
+## 川普转推:乔治亚州州长和州务卿即将入狱
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/652244/)
 
-英听校：    康州盘古农场 – Mike Li
-
-翻译：       康州盘古农场 –  Mike Li
-
-翻译终校：康州盘古农场 – Bruce
-
-字幕+视频制作：康州盘古农场-喜马拉雅2020
-
-审核：康州盘古农场-Truemanman
-
-Raheem通过《新闻爆料》短视频制作的一份短视频告诉大家：左媒不断利用假新闻给美国民众洗脑，三人成虎，通过不断重复假消息来控制美国大众的思想，亨特拜登事件就是最好的例子，现阶段，美国左媒还企图利用假新闻来发动政变，窃取大选，也同样是洗脑的体现。
+- 编辑：Victor Torres
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-原视频链接: [https://twitter.com/raheemkassam/status/1337165095386947585?s=21](https://twitter.com/raheemkassam/status/1337165095386947585?s=21)
+**西班牙2020年12月15日电/西喜社——**
 
-1+
+周二，川普转发林伍德推特。
+该推称赞川普总统是一个真正的好人。声称乔治亚州州长和州务卿即将入狱。
+林伍德说:“他并不真的喜欢解雇人。我打赌他不喜欢把人关进监狱，尤其是 ‘共和党人’。”
+“他给了乔治亚州州长和州务卿每一次机会来纠正它。他们拒绝了。他们很快就会进监狱。”
+前一天晚上传来了美国司法部长巴尔辞职的消息，副部长杰弗里·罗森将出任代理司法部长。
+林伍德的这一表态可能和上述人事变动有关。
+川普的转推印证了林伍德的表态，一场席卷大选舞弊犯罪的大风暴似乎正在酝酿中。
+
+
+
+> President Trump [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) is a genuinely good man. He does not really like to fire people. I bet he dislikes putting people in jail, especially “Republicans.”
+> 
+> He gave [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw) & [@GaSecofState](https://twitter.com/GaSecofState?ref_src=twsrc%5Etfw) every chance to get it right. They refused. They will soon be going to jail. [pic.twitter.com/7PMBLc8L2N](https://t.co/7PMBLc8L2N)
+> — Lin Wood (@LLinWood) [December 15, 2020](https://twitter.com/LLinWood/status/1338715369566048256?ref_src=twsrc%5Etfw)
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+
+西班牙巴塞罗那喜悦农场官方Parlar二维码，敬请关注
+
+2+

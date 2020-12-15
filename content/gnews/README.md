@@ -14,147 +14,141 @@
 
 ---
 
-### [美国商务部,财政部确认被黑客攻击](/content/gnews/1/README.md)
- ` 喜马拉雅凤凰农场–旧金山-金喜站`
-
-### [【重磅速递】密歇根州政府警察阻止共和党选举人团进入州议会大厦投票](/content/gnews/2/README.md)
- ` 秘密翻译组G-Translators`
-
-### [中共承担星箭弹船探测器研究的航天科技811所党支部一览表](/content/gnews/3/README.md)
- ` NewFOC`
-
-### [澳大利亚最大的盟友们谋划应对残酷的贸易战而对中国进行反击](/content/gnews/4/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [视频12/2/2020密歇根州听证会:一名监票员作证,计票现场出现各种诡异现象](/content/gnews/5/README.md)
- ` 秘密翻译组G-Translators`
-
-### [中共研究精确制导探测与遥感的上海航天802所党支部一览表](/content/gnews/6/README.md)
- ` NewFOC`
-
-### [封城带来的影响-小企业被摧毁了](/content/gnews/7/README.md)
- ` gnewscanada`
-
-### [中共研究卫星飞船导弹火箭的上海航天动力机械所党支部一览表](/content/gnews/8/README.md)
- ` NewFOC`
-
-### [【国内快讯】维稳进行时— —北京推出1万元创业补贴](/content/gnews/9/README.md)
- ` HAIKUOTIANKONG`
-
-### [视频【字幕】12/11/2020文贵：共产党眼中的沼泽地](/content/gnews/10/README.md)
- ` Caihongqiao`
-
-### [恐怖主义谭德赛面临起诉](/content/gnews/11/README.md)
- ` 秘密翻译组G-Translators`
-
-### [视频12/2/2020密歇根州听证会:选举现场为多米尼工作的IT人员作证 &#8211; 多米尼公司所谓的“芝加哥库房”有猫腻](/content/gnews/12/README.md)
- ` 秘密翻译组G-Translators`
-
-### [美国红衣主教：“大重置”借中共病毒攻击 “自由” 和 “家庭”](/content/gnews/13/README.md)
- ` gnewscanada`
-
-### [中共国人口红利即将被耗尽经济楼市都将成为过眼云烟](/content/gnews/14/README.md)
- ` GM08`
-
-### [美司法部长巴尔的辞职信](/content/gnews/15/README.md)
- ` gnewscanada`
-
-### [视频【字幕】12/11/2020文贵：造成沼泽地恐慌的是什么？](/content/gnews/16/README.md)
- ` Caihongqiao`
-
-### [对第三次世界大战的基本认知](/content/gnews/17/README.md)
- ` PHX14 凤凰十四`
-
-### [视频Raheem揭秘左媒洗脑术：思想控制最基本的形式是不断地重复](/content/gnews/18/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [军兵力调整部署开始选拔格斗特长兵](/content/gnews/19/README.md)
- ` 快慢机`
-
-### [【Comments From Fighter fellow】Are you ready for the Cultural Revolution to hit Hong Kong?](/content/gnews/20/README.md)
- ` GM77`
-
-### [【时效打脸简讯】纳斯达克将移除中共四家军民融合企业](/content/gnews/21/README.md)
- ` HAIKUOTIANKONG`
-
-### [视频【字幕】12/11/2020文贵：美国的沼泽地最在乎的是什么？](/content/gnews/22/README.md)
- ` Caihongqiao`
-
-### [惊世骇俗发现！全是“邪恶战胜正义”，当我Google搜索“正义战胜邪恶”时 &#8230;&#8230;](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [林·伍德律师呼吁川普总统实施戒严令](/content/gnews/24/README.md)
- ` 秘密翻译组G-Translators`
-
-### [中共大规模渗透阿斯利康、劳斯莱斯、汇丰银行、捷豹路虎等英国公司](/content/gnews/25/README.md)
- ` 英國倫敦喜莊園 Himalaya UK`
-
-### [共产党，你完蛋了](/content/gnews/26/README.md)
- ` XMLYG777`
-
-### [【选情进展】川普总统赢得威斯康星州最高法院一项裁决](/content/gnews/27/README.md)
- ` 墨尔本雅典娜农场`
-
-### [【林伍德律师推文】-弗林将军](/content/gnews/28/README.md)
- ` Himalaya Wenya`
-
-### [2020年12月14日全球断网是不是摧毁图谋颠覆川普总统的战斗](/content/gnews/29/README.md)
- ` NewFOC`
-
-### [班农作战室WARROOM精选 581期](/content/gnews/30/README.md)
- ` XMLYG777`
-
-### [共产党员们，在这历史关键时刻请选择站在正义一方！](/content/gnews/31/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [英喜时评第七期（2020.12.14）](/content/gnews/32/README.md)
- ` 英國倫敦喜莊園 Himalaya UK`
-
-### [中共病毒疫苗生产工厂的地板上沾有粪便](/content/gnews/33/README.md)
- ` gnewscanada`
-
-### [1214 – 全球每日要闻摘要](/content/gnews/34/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [班农作战室WARROOM精选 583期](/content/gnews/35/README.md)
- ` XMLYG777`
-
-### [宾夕法尼亚州爱国者挺警运动显现人性闪光点](/content/gnews/36/README.md)
- ` gnewscanada`
-
-### [【热点播报】林伍德凌晨发出内战警示](/content/gnews/37/README.md)
+### [【香港风云】15: 敦刻尔克大撤退](/content/gnews/1/README.md)
  ` 纽约香草山农场`
 
-### [通过应纳税收入看澳中两国福利制度](/content/gnews/38/README.md)
- ` Himalaya Australia`
+### [古今中外七大商道典范（一）](/content/gnews/2/README.md)
+ ` 温哥华圆成农场🇨🇦`
 
-### [所有善良的人们，你愿意继续和CCP一起共存嘛？](/content/gnews/39/README.md)
- ` 首尔喜韩农场`
+### [郭先生1214:美国将在灭共和内战两场战争中重生,共产党必被灭](/content/gnews/3/README.md)
+ ` NewFOC`
 
-### [众议员斯沃韦尔与中共特工有染，引起国家安全问题](/content/gnews/40/README.md)
- ` 英國倫敦喜莊園 Himalaya UK`
+### [疫苗是救命还是害命](/content/gnews/4/README.md)
+ ` 温哥华圆成农场🇨🇦`
 
-### [震惊美国、被黑客入侵的“太阳风”与中共、加拿大有何关系？](/content/gnews/41/README.md)
- ` gnewscanada`
+### [《路德时评》解读：美国选举人票认证结果公布，国务院推特直指中共威胁](/content/gnews/5/README.md)
+ ` GM127`
 
-### [因中共病毒致死的首位国家领导人，斯威士兰首相去世](/content/gnews/42/README.md)
+### [郭先生1214:14日断网把共产党从小偷变成大偷为灭共创造必需证据](/content/gnews/6/README.md)
+ ` NewFOC`
+
+### [多米尼试图掩盖与SolarWinds关系](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [希望移居英国的香港人数超过英国政府预期](/content/gnews/43/README.md)
- ` 英國倫敦喜莊園 Himalaya UK`
+### [郭先生1214:共产党造成的大选乱局更向世界证明爆料革命的重要](/content/gnews/8/README.md)
+ ` NewFOC`
 
-### [【林伍德律师推文】-巴尔是个爱国者](/content/gnews/44/README.md)
- ` Himalaya Wenya`
+### [《路德时评》重磅：美成立制裁中共紧急安委会，解读巴尔离职真相](/content/gnews/9/README.md)
+ ` GM127`
 
-### [【林伍德律师推文】-乔治亚州重复作弊的选举](/content/gnews/45/README.md)
- ` Himalaya Wenya`
+### [郭先生1214:如无巨大反转1月6号佩罗西当总统川普最后会赢](/content/gnews/10/README.md)
+ ` NewFOC`
 
-### [面对邪恶势力对美国的渗透，川普总统不会放弃直到赢得最后胜利](/content/gnews/46/README.md)
+### [中共疫苗遭质疑 巴西总统签署临时采购措施](/content/gnews/11/README.md)
+ ` vog_dongdong_vog`
+
+### [中共遮羞布下的真实墙内经济](/content/gnews/12/README.md)
+ ` 康州盘古喜马拉雅农场`
+
+### [【热点播报】执法部门突袭SolarWinds公司总部](/content/gnews/13/README.md)
+ ` 纽约香草山农场`
+
+### [&#8220;这次选举是自由与共产主义、正义与邪恶之战的高潮&#8221;&#8211;林伍德称川普总统即将收拾残局](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [甲骨文将总部从硅谷迁至德克萨斯州奥斯汀](/content/gnews/15/README.md)
+ ` 凤凰农场三区`
+
+### [美国太空军切断中共通信网络-火箭军](/content/gnews/16/README.md)
+ ` G-NEWS TAIWAN`
+
+### [美代理司法部长杰弗里•罗森任职经历简介](/content/gnews/17/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [川普转推:乔治亚州州长和州务卿即将入狱](/content/gnews/18/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美国司法部长巴尔辞职隐藏深意](/content/gnews/19/README.md)
  ` 秘密翻译组G-Translators`
 
-### [突发：司法部长比尔·巴尔将在圣诞节前下台](/content/gnews/47/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [【热点播报】多米尼投票机被法务审计认为“具有国家安全问题”](/content/gnews/20/README.md)
+ ` 纽约香草山农场`
 
-### [美国司法部长巴尔将于圣诞节前离职](/content/gnews/48/README.md)
- ` GM65`
+### [《路德社》精选新闻快讯：林伍德发推“川普即将开始大扫除”](/content/gnews/21/README.md)
+ ` 路德社精选`
+
+### [20201215东京樱花团晚间新闻速报](/content/gnews/22/README.md)
+ ` 东京樱花团-Tokyo Sakura Group`
+
+### [12/15/2020 财经快讯: 羊肉价格连续八周上涨, A股退市新规出炉, 新增多个退市红线!](/content/gnews/23/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [微软比尔·盖茨对未来几个月的中共病毒疫情表示担忧](/content/gnews/24/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [2020年12月15日面具先生直播文字版](/content/gnews/25/README.md)
+ ` 康州盘古喜马拉雅农场`
+
+### [《路德社》每日简报早间版 2020.12.14&#8211;NewYork Time](/content/gnews/26/README.md)
+ ` 路德社精选`
+
+### [《路德社》每日简报晚间版 2020.12.13&#8211;NewYork Time](/content/gnews/27/README.md)
+ ` 路德社精选`
+
+### [《路德社》精选新闻快讯：法医报告显示：多猫腻（Dominion)投票系统机器错误率达68%](/content/gnews/28/README.md)
+ ` 路德社精选`
+
+### [《路德社》精选新闻快讯：美网络安全和设备安全局（CISA）紧急指令警示Solarwinds（太阳风）软件风险伤害](/content/gnews/29/README.md)
+ ` 路德社精选`
+
+### [《路德社》精选主题专栏:巴尔退出代理司法部长将由副司法部长杰弗里·罗森（Jeffrey Rosen）暂时担任。 杰弗里·罗森是谁？](/content/gnews/30/README.md)
+ ` 路德社精选`
+
+### [【林伍德律师推文】-自由与极权的斗争进入高潮](/content/gnews/31/README.md)
+ ` Himalaya Wenya`
+
+### [《路德社》精选新闻快讯：秘鲁暂停中国疫苗试验 受试者出现神经问题](/content/gnews/32/README.md)
+ ` 路德社精选`
+
+### [视频《路德社》参议院关于羟氯喹的听证会！](/content/gnews/33/README.md)
+ ` 路德社`
+
+### [突发：总检察长、司法部长威廉∙巴尔将在圣诞节前离职](/content/gnews/34/README.md)
+ ` 康州盘古喜马拉雅农场`
+
+### [视频12/14日康州农场前沿觀察: 第三次世界大战早已开打](/content/gnews/35/README.md)
+ ` 康州盘古喜马拉雅农场`
+
+### [【林伍德律师推文】-解雇是结束，审判才是开始](/content/gnews/36/README.md)
+ ` Himalaya Wenya`
+
+### [【林伍德律师推文】-乔治亚州再搞骗局，选民为真相而战](/content/gnews/37/README.md)
+ ` Himalaya Wenya`
+
+### [视频【每日快讯】14/12/2020](/content/gnews/38/README.md)
+ ` GM132 每日快訊`
+
+### [郭文贵先生今日动态（2020年12月14日）](/content/gnews/39/README.md)
+ ` vog_dongdong_vog`
+
+### [【文字版】路德时评2020.12.14早间：全球网络大崩溃，林伍德让所有人准备好末日物资，白宫发布国防部继承顺序行政命令](/content/gnews/40/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [【林伍德律师推文】-美国选举人团将不负使命、创造历史](/content/gnews/41/README.md)
+ ` Himalaya Wenya`
+
+### [情报界在亨特·拜登调查中玩政治](/content/gnews/42/README.md)
+ ` LORI`
+
+### [2020-12-15康州盘古农场本日新闻热点](/content/gnews/43/README.md)
+ ` 康州盘古喜马拉雅农场`
+
+### [【林伍德律师推文】-大选最终就是灭共](/content/gnews/44/README.md)
+ ` Himalaya Wenya`
+
+### [【香港要闻】警察福利基金收到捐款暴增 香港过去一年警民矛盾是异常尖锐](/content/gnews/45/README.md)
+ ` GM42`
+
+### [【快讯】广东红海大桥建成3年未通车，“面子工程”谁来背锅？](/content/gnews/46/README.md)
+ ` HAIKUOTIANKONG`
 
