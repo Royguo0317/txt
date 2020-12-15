@@ -1,23 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯：美网络安全和设备安全局（CISA）紧急指令警示Solarwinds（太阳风）软件风险伤害
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/651795/)
+## 微软比尔·盖茨对未来几个月的中共病毒疫情表示担忧
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/652045/)
 
-出品：《路德社》 编辑：《路德社》精选主题专栏组出品
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12200038/1-74.png)图片来源：[http://www.radiorural.com.br/noticias](http://www.radiorural.com.br/noticias/40933-sc-planeja-ter-vacina-contra-a-covid-19-em-janeiro-e-reserva-r-300-milhoes-para-comprar-doses)
+据MarketWatch报道，微软创始人之一的比尔·盖茨（Bill Gates）在周日（2020年12月13日）接受美国有线电视新闻网（CNN）的杰克塔帕（Jake Tapper）采访中对于第一批中共病毒疫苗问世后的疫情曲线表示担忧。
 
-美国国家网络安全和设备安全局（ClSA）十四日签署紧急指令 [Emergency Directive 21-01](https://cyber.dhs.gov/ed/21-01/), ，以应对利用太阳风软件漏洞的恶意网络行为，该紧急指令呼吁所有联邦机构检查民用网络，发现其危害的迹象，并立即断开或关闭SolarWinds Orion产品的电源。
+比尔·盖茨说：“不幸的是未来四到六个月的疫情可能会是大流行以来最糟糕的。IHME模型预计这段时间中将会有超过20万人死于中共病毒。但如果我们能遵守规定，比如戴口罩和保持社交距离，那么死亡人数可能大大低于模型的预计。” 也就是说，盖茨希望民众对疫苗克制疫情的效果不要过于乐观。
 
-这是CISA根据国会在2015年《网络安全法》中授予的权限发布的第五个紧急指令。所有运行SolarWinds产品的机构都应在2020年12月14日星期一美国东部标准时间下午12点之前向CISA提供完成报告。
+盖茨还表示：“目前疫情当下的美国和全球经济比我五年前关于大流行的经济预言影响要大很多。最早2021年夏天我们期盼已久的正常生活可能有希望逐渐回归。但疫情也可能持续到2022年初，除非我们在美国本土高疫苗接种率的基础上帮助其他国家摆脱疫情。否则如果疫情卷土重来，世界经济的低迷势必很大程度上影响美国经济的复苏。”
 
-据＂零对冲＂Zerohedge 推特，北约官方同样也发出了关于solarwinds的风险警示！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15023002/1215-1-2.jpg)
-[援引原文](https://www.cisa.gov/news/2020/12/13/cisa-issues-emergency-directive-mitigate-compromise-solarwinds-orion-network)
+**译评：**
 
-本文作者：上進哥
+比尔·盖茨上CNN推疫苗有点含糊其辞，进进退退，云里雾里，也没说自己是否会接种疫苗。笔者认为，如果像川普总统和朱利安尼律师那样高龄并且感染极高浓度的病毒都能快速恢复，美国本土仍然每天几千人死亡是不应该的。比尔·盖茨访谈提到说美国在未来半年仍有20多万人死亡的预期更是毫无根据和滑稽的。
 
-审核校对：玫瑰天空
+这次造成美国大规模感染和死亡的罪魁祸首是福奇领导下的官僚主义医疗体系拖延治疗，并且在批准药物不够用的情况下死活不给价廉物美的羟氯喹治疗的结果。更加荒唐的是，即使遇到了肯开羟氯喹的医生，发药的药师也可以有权拒绝给药。参议院近期有关于羟氯喹的听证会，希望能有进展而拯救生命。另外，让医生护士先打中共病毒疫苗也可能倒逼更多医生护士站出来推广羟氯喹作为民众可以选择的一个与疫苗并行的预防中共病毒的选项。
 
-上传排版：青葫芦娃
+[原文链接](https://www.marketwatch.com/story/bill-gates-on-the-next-few-months-of-the-coronavirus-pandemic-its-bad-news-11607893787)
 
-3+
+翻译：Forguo
+
+2+

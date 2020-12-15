@@ -1,41 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 20201215东京樱花团晚间新闻速报
-` 东京樱花团-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/652125/)
+## 美代理司法部长杰弗里•罗森任职经历简介
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/652250/)
 
-HTS-01C-202012-046
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15081631/%E5%86%99%E7%9C%9F%E2%91%A0.jpg)
-1、日本首相菅义伟宣布全国暂停GO TO；
-
-2、爱知县、大阪市要求辖区内餐饮、卡拉OK等缩短营业时间；
-
-3、日立决定将海外家电业务出售给土耳其家电巨头；
-
-4、日本邮政因出售违法的人寿保险处罚343人；
-
-5、厚生劳动省已与各自治体建立行政联系，建立咨询系统，及时帮助失业人口；
-
-6、日本今年年度代表汉字是“密”字；
-
-7、日本银行发表12月“短评”，大企业·制造业的判断指数（DI）比9月改善了17个百分点，为负10。大企业·非制造业改善7个百分点为负5；
-
-8、东京都12月14日305人确诊CCP病毒。
-
-新聞速报取材于下述链接：
-
-[https://news.yahoo.co.jp/articles/faf6375746c31edee8e96ca07d7cf1f48a7fdde3](https://news.yahoo.co.jp/articles/faf6375746c31edee8e96ca07d7cf1f48a7fdde3)
-
-[https://news.yahoo.co.jp/articles/36a02ecd0519176d3eb4377454b1d01f68e7d11f](https://news.yahoo.co.jp/articles/36a02ecd0519176d3eb4377454b1d01f68e7d11f)
-
-[https://news.yahoo.co.jp/articles/4384bbc339ab818fcbeb24f1473fbcfd4259a1c5](https://news.yahoo.co.jp/articles/4384bbc339ab818fcbeb24f1473fbcfd4259a1c5)
-
-[https://news.yahoo.co.jp/articles/c8d0e548e7283f95ff19e83d1cea3b4d909b7db2](https://news.yahoo.co.jp/articles/c8d0e548e7283f95ff19e83d1cea3b4d909b7db2)
-
-[https://news.yahoo.co.jp/articles/25f3e606cd702341b0cebf84c93b273eaf756c77](https://news.yahoo.co.jp/articles/25f3e606cd702341b0cebf84c93b273eaf756c77)
-
-[https://news.yahoo.co.jp/articles/1000341a0482a8ad2a2b16ac97ed232652e44e77](https://news.yahoo.co.jp/articles/1000341a0482a8ad2a2b16ac97ed232652e44e77)
+- 编辑：Victor Torres
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-9+
+**西班牙2020年12月15日电/西喜社/——**在司法部长威廉•巴尔辞职后，杰弗里•罗森将接任代理司法部长一职。
+罗森此前曾担任副检察长，在罗德•罗森斯坦离职后，他于2019年5月被确认担任这一职务。
+“司法部副部长杰夫•罗森是一位杰出的人，将成为代理司法部长，”川普总统周一宣布。”德高望重的理查德-多诺霍将接任副司法部长一职。谢谢大家！”
+罗森接任司法部负责人之时，正值川普及其竞选团队对总统选举结果提出挑战之时。今年8月，罗森警告说，外国势力可能干预选举。
+“一些外国势力正在暗中试图破坏对我们选举的信心，因为他们是反对代议制民主的独裁政府，”罗森告诉战略与国际研究中心。
+在加入司法部之前，罗森是交通部副部长。在此之前，他曾在乔治•W•布什总统执政期间担任白宫管理和预算办公室的总顾问和高级政策顾问，并在1982年从哈佛法学院毕业后加入的Kirkland & Ellis律师事务所担任合伙人。
+
+新闻来源：[https://www.foxnews.com/politics/who-is-jeffrey-rosen-william-barr-replacement-attorney-general](https://www.foxnews.com/politics/who-is-jeffrey-rosen-william-barr-replacement-attorney-general)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+
+西班牙巴塞罗那喜悦农场官方Parlar二维码，敬请关注
+
+0

@@ -1,42 +1,84 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文】-自由与极权的斗争进入高潮
-` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/651962/)
+## 《路德社》每日简报早间版 2020.12.14&#8211;NewYork Time
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/651726/)
 
-12月14日林伍德律师引用了大纪元的一篇文章题为“川普总统到了行动的关键时刻”，内容主要表达了美国大选本质上是自由与共产主义的斗争，自由不能向共产主义妥协。
+出品《路德社》 编辑：路德社精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15021718/1214-AM-ZH-scaled.jpg)
+撰稿：文寶Porsche   译校：Arvin江牧
 
-他称，“我100%同意这篇社论的观点，写得很好。”
+翻译统筹：阿轩Action
 
-“这次选举是自由和共产主义之间的斗争的高潮，是正义和邪恶之间的斗争。”
+1214早间要闻-NewYork Time
 
-“我也百分之百肯定川普总统将采取行动。川普是个天才。他有一个计划。”
+**LuDe Media 20201214 Morning News, New York Time**
 
-林伍德律师在接下来的推文中称，美国急需进行一次彻底的大扫除。太多的腐败和贪婪。川普总统将会为我们人民清理干净。稳住。”他在配图中再次鼓励大家“不要恐惧。”
+**全球网络和美有线电视突现短暂大崩溃**
 
-评论，这样的观点在爆料革命战友中早已不陌生，郭先生无数次让我们看到中共使用蓝金黄渗透全世界、使用3F计划影响美国多年，终于发展到操控美国大选的结局；路德节目也早已“站在未来说历史”，告诉我们中共使用病毒生化武器操控全世界的真相。灭共的过程就是自由世界与极权主义中共斗争的过程，是全民放下恐惧、让中共恐惧的过程，这是全世界都面临的问题，谁都不能逃避。3年前，郭先生在2017哈德逊研究所演讲被取消后、一个中秋节的次日，只身向全世界宣布：“黑夜即将到来，一定要做好准备，来自中共盗国贼的黑夜即将到来，将弥漫在世界和西方的文明世界，我们每个人都将不安全，大家做好准备。”遗憾的是，西方世界凭借自身在经济上的巨大成功，对自身所标榜的世界文明之价值基石过于“自信”，他们没有认识到共产主义、中共这个恶魔已经来到身边，正在肆无忌惮侵蚀、攻击和嗜血并不完美的西方文明的肌体，这样的代价是让美国大选命悬一线，人类文明几近灭亡。然而所幸的又是，上天、我们的天父、万佛万神并不想让人类被共产主义吞噬，才让美国正义力量在大选的教训下、在中共病毒依旧肆虐的威胁下，逐渐认识到这一问题的严重性并且奋力反抗，未来我们将看到西方世界联手重振旗鼓，为找回自由、文明乃至没有中共病毒的健康环境，把中共砸碎在历史的垃圾里。与此同时，我们看到，爆料革命这些珍贵的观点、认识和理念，尚未被西方完全认识，战友向西方媒体传播和文化融合的时候仍然有不少空间向同行学习，而目前的不足也与中共“毁人不倦”的教育模式密不可分，作为过渡一代的爆料革命战友，未来对没有共产党的新中国建设、对教育的投入任重道远。
+**The Global Networks and U.S. Cable Television Suddenly & Briefly Crashed**
 
-新闻素材和图片来自林伍德律师推特
+路德分析，这次行动是中共主动进攻美国的一次预演，中共最擅长的是浑水摸鱼。他们行动的目的，就是搞乱美国、颠覆美国。中共长期训练的特工早就掌握了一整套在没电、没网络条件下的行动预案。这次短暂大崩溃让人嗅到了大决战来临的味道。
 
+LuDe Media analyzed the operation as a rehearsal of the Chinese Communist Party’s active attack on the United States, and the CCP is best at muddying the waters. The purpose of their operation is to mess up and subvert the United States. The CCP’s long-trained agents have long mastered a whole set of pre-planned operations in the absence of electricity and internet. This short-lived crash smells of an impending decisive battle.
 
+**如何看待即将到来的大决战？**
 
-> I agree 100% with this statement in well-written editorial:
-> 
-> “This election is the climax of the battle between freedom and communism, between good and evil.”
-> 
-> I am also 100% certain [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) will take action. Trump is a genius. He has a plan.[https://t.co/Xa7Wb1FpHs](https://t.co/Xa7Wb1FpHs)
-> — Lin Wood (@LLinWood) [December 15, 2020](https://twitter.com/LLinWood/status/1338719208268570624?ref_src=twsrc%5Etfw)
+**How to View the Impending Decisive Battle?**
 
+美国如果出现几天的短暂混乱，川普一定会采用戒严、军管等手段直接接管或关闭假媒体。爆料革命说不定会利用类似CNN这样的主流媒体播放真相。
 
+爱国者们不用担心川普在大战面前犹豫不决，因为这次不是川普一个人做的决定、也不是他一个人做战斗，而是沼泽地背后的力量与中共之间你死我活的决战，必须果断消灭中共。
 
+另外，根据习近平的要求，拜登已经提名最反川普的纽约市长Andrew Cuomo为司法部长人选，他一旦上台不仅会立即抓捕川普全家，而且会把所有右翼力量全灭。川普和整个右翼力量已经没有退路。
 
+If there is brief chaos for several days in the U.S., Trump will surely adopt martial law, military regulation and other means to take over or shut down the fake media directly. Hence, Whistleblower Movement may use mainstream media like CNN to broadcast the truth.
 
-> America is in dire need of a good housecleaning. Way too much corruption & greed. [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) is going to clean it up for We The People. Steady.
-> 
-> “But now the LORD my God hath given me rest on every side, so that there is neither adversary nor evil occurrent.”
-> – 1 Kings 5:4 [pic.twitter.com/JPZHFJiQhM](https://t.co/JPZHFJiQhM)
-> — Lin Wood (@LLinWood) [December 15, 2020](https://twitter.com/LLinWood/status/1338726421955571712?ref_src=twsrc%5Etfw)
+Patriots do not have to worry about Trump’s hesitation in front of the decisive battle, because this time it is not a decision made by Trump alone, nor is he fighting alone, but a showdown of life and death between the forces behind the swamp and the Chinese Communist Party, where the CCP must be decisively eliminated.
 
+In addition, according to Xi Jinping’s request, Biden has nominated Andrew Cuomo, the most anti-Trump New York mayor, as his choice for Attorney General, who will not only arrest Trump’s whole family immediately once in power, but will also wipe out all right-wing forces. There is no way back for Trump and the entire right-wing forces.
 
+**林伍德发推提醒民众准备末日物资且记住只有一个总统是川普**
 
-2+
+**Lin Wood Tweeted to Remind People to Prepare Doomsday Supplies and Remember That Only One President is Trump**
+
+末日物资清单包括足够的水、食物、手电筒、电池、蜡烛、收音机、枪弹和会见社区领导的计划。该推文提醒民众，请记住我们在一个时期只有一个总统，我们的领导是川普、不是拜登。
+
+The list of doomsday supplies includes plenty of water, food, flashlights, batteries, candles, radio, guns and ammunition (2nd Amendment supplies), and a plan to meet with community leaders. The tweet reminded the public to remember that we only have one president at a time and our leader is Trump, not Biden.
+
+**川普发布关于代理国防部长继承顺位的行政令**
+
+**Trump Issued Executive Order on Successors to Acting Secretary of Defense**
+
+战时来临，国会和司法体系无法正常工作时，总统令就是一切，是掌控社会秩序的唯一力量。12月10日发出的这个行政令，明确了代理国防部长的继承顺位是：国防部副部长、军事部门秘书、国防政策大臣、国防情报和安全局长、国防部首席管理官，以确保指挥权始终掌握在川普绝对信赖的人手里。
+
+When war comes, Congress and the judicial system may not function properly, where presidential decree is everything and the only force that takes control of social order. This executive order, issued on December 10, specified the succession order of the acting Secretary of Defense as follows: Deputy Minister of Defense, Secretary of the Military Department, Minister of Defense Policy, Director of Defense Intelligence and Security, and Chief Management Officer of Department of Defense, to ensure that command remains in the hands of someone Trump absolutely trusts.
+
+**川普总统更换作战司令部指挥官**
+
+**President Trump Replaced Commander of Combatant Command**
+
+12月7日，经总统提名，代理国防部长米勒宣布，任命四星上将、美国太平洋舰队司令约翰.阿奎利诺担任印太司令部司令。他十分彪悍, 曾多次延长部署，支持海外军事行动 “拒绝飞行”、”慎重部队”、”南方观察”、”贵族之鹰”、”持久自由 “和 “伊拉克自由”。颤抖吧，中共。
+
+On Dec. 7, following the presidential nomination, Acting Secretary of Defense Miller announced the appointment of four-star Admiral John Aquilino, commander of the U.S. Pacific Fleet, as commander of Indo-Pacific Command.Aquilino is a very tough man and has made several extended deployments in support of overseas military Operation Deny Flight, Deliberate Force, Southern Watch, Noble Eagle, Enduring Freedom and Iraqi Freedom, and so on. Tremble, CCP!
+
+**大战来临，我们怎么办？**
+
+**What to Do for Impending War**
+
+我们为正义而来，坚信正义必定战胜邪恶。我们内心有光明，无论眼前多么黑暗，也无法阻挡我们奔向光明。魔鬼已经疯狂，魔鬼必然灭亡。
+
+请每一位战友准备好末日物资，不忘每日传播爆料革命信息、传递真相。
+
+We are here for justice, and we believe that justice will prevail over evil. We have light within us, and no matter how dark it is ahead, it will not stop us from running to the light. The devil has gone mad and it is bound to perish.
+
+To every battle companion: Please prepare doomsday supplies, and never forget to spread news of the Whistleblower Movement to deliver the truth every day.
+
+#CCP\_is\_terrorist   #TakeDownTheCCP
+
+文案：《路德社》简报组：文寶Porsche；
+翻译：《路德社》翻译组
+审核校对：玫瑰天空
+上传排版：青葫芦娃
+
+4+

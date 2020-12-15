@@ -1,26 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文】-乔治亚州再搞骗局，选民为真相而战
-` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/651833/)
+## 《路德社》精选新闻快讯：秘鲁暂停中国疫苗试验 受试者出现神经问题
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/649960/)
 
-12月14日乔治亚州州务卿宣布在科布县进行签名匹配审核。一名当地计算机软件开发者选民发推称，“州长Brian 和州务卿Brad知道这件事，这是一个骗局。”
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-林伍德律师就此回复称，州长布莱恩 @BrianKempGA 和州务卿 Brad @GaSecofState 认为乔治亚州的爱国者都是笨蛋。我们人民不是。布莱恩和布拉德是。而且他们正在给自己深深地挖坑….犯罪不好，掩盖真相更糟糕。#为真相而战”
+秘鲁当局在国内对中国国营的国药集团（Sinopharm）2019冠状病毒疾病（COVID-19）疫苗试验中，发现一名受试者出现神经问题的情况后，已经暂停这项疫苗的临床试验。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15045727/%E5%9B%BD%E8%8D%AF%E9%9B%86%E5%9B%A2.png)
+当地媒体报导，秘鲁国立卫生研究院（National Institute of Health，INS）今天表示，在一名受试者出现手臂难以活动的情况后，院方决定暂停这支疫苗的试验。
 
-揭开美国大选中舞弊造假层层面纱时，斗争在反复和困境中前进，美国犯罪人员的所作所为师从中共，在美国人为真相和正义而战的过程中，我们仿佛看到爆料革命三年多以前挺身而出抗争的身影。
+首席研究员马拉加（German Malaga）在记者会上表示：「我们几天前依要求告知监管当局，我们（试验中）有一名受试者出现神经症状，可能符合一种名为吉兰-巴雷氏症候群（Guillain-Barre syndrome）的症状。」吉兰-巴雷氏症候群是一种罕见、非感染性的神经病变，会影响手脚四肢的活动。
 
-新闻素材和图片来自林伍德律师推特
+中国国药集团在秘鲁的疫苗临床试验受试者约1万2000人，原定在本周结束。
 
+如果这支疫苗试验成功，秘鲁政府预计将购买最多2000万剂疫苗，提供国内2/3人口接种。这项疫苗试验成功与否，要到2021年年中后才会知晓。
 
+全球约6万人已经接种国药集团的疫苗，其中包括在阿根廷、俄罗斯和沙乌地阿拉伯等国的受试者。
 
-> Brian [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw) & Brad [@GaSecofState](https://twitter.com/GaSecofState?ref_src=twsrc%5Etfw) think GA Patriots are stupid. We The People are not. Brian & Brad are. And they are digging their hole deeper.
-> 
-> Why not do the “dog & pony” show in Fulton, DeKalb or Gwinnett.
-> 
-> The crime was bad. The coverup is worse.[#FightBack](https://twitter.com/hashtag/FightBack?src=hash&amp;ref_src=twsrc%5Etfw) for Truth [https://t.co/Vb8wC8vahL](https://t.co/Vb8wC8vahL)
-> — Lin Wood (@LLinWood) [December 15, 2020](https://twitter.com/LLinWood/status/1338714567459942400?ref_src=twsrc%5Etfw)
+秘鲁是全球染疫人均死亡率最高国家之一，截至今天已有3万6499人病逝、97万9111人染疫。秘鲁经济受到疫情重创，第2季国内生产毛额（GDP）大幅萎缩逾30%。
 
+中共国重来就没有成功研发过一款疫苗只是按着他国研发的疫苗配方制造，即使这样还存在很多假疫苗毒疫苗的情况，如今他们所谓的冠状病毒疾病（COVID-19）疫苗在没有足够的临床数据的情况下就推向市场这是完全就是谋杀，更甚至中共可能想利用疫苗接种让病毒继续扩大的嫌疑。
 
+[援引原文](https://www.rfi.fr/cn/%E7%A7%98%E9%B2%81%E6%9A%82%E5%81%9C%E4%B8%AD%E5%9B%BD%E7%96%AB%E8%8B%97%E8%AF%95%E9%AA%8C-%E5%8F%97%E8%AF%95%E8%80%85%E5%87%BA%E7%8E%B0%E7%A5%9E%E7%BB%8F%E9%97%AE%E9%A2%98)
 
-0
+本文作者：CharlieNZ查理
+
+审核校对：玫瑰天空
+
+上传排版：CharlieNZ查理
+
+1+
