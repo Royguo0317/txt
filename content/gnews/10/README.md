@@ -1,25 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻快评】独裁指责民主 中国独裁代言人华春莹满嘴喷粪
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/653064/)
+## 多米尼的出错率如此之高：密歇根68% 内华达约70%
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/653182/)
 
-内新闻/素材：sam jeep 绘图：麦田67号 校对：三娃
+蒙特利尔皇家山战友团laotou
 
-12月14日虹国际在百度新闻发表的一篇题为《美国疫情比9·11还惨，美方喊中国人站出来，华春莹反击火力全开》的文章。
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15162342/S-3.jpg)图片来自 Shutterstock.com
+12月14日惊爆了密歇根州多米尼投票机68%的错误率，密歇根州特里姆郡（Antrim County）的16台多米尼投票机，经过法学检验后，有数千张选票在2020年11月3日从川普总统名下转给了乔·拜登【1】，这不是坊间传闻，而是密歇根州的法官授权发布。专业部门做了统计，特里姆郡的多米尼投票机，错误率达68%【2】。
 
-中共隐瞒疫情，故意扩散全球，在美中共卧底释放病毒与挑起暴乱，造成美国病毒肆虐，社会不安。中共病毒对全世界以及美国造成巨大的伤亡，中共独裁代言人华春莹反而幸灾乐祸，完全说明中共不把美国人民与世界人民放在眼里，故意挑事。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15151338/image0-6-4.jpg)
-中华大地至中共统治以来，毫无人权可言。居然说美国虚伪，那中共的红色权贵们为什么趋之若鹜，纷纷向美国转移财产和家人移民。中共的红色权贵们为什么不去你们赞扬有制度优势的朝鲜？中共所谓的人权是否是屠杀六四争取民主自由的学生？计划生育强制流产，强制上环？对网民言论审查？城管可以打百姓？警察可以随意拘留上访人士？让百姓孩子喝毒奶粉，让百姓孩子打假疫苗？没有投票权，只能被代表？这就是你中共所谓的有人权的中共墙国？这就是你们压迫人民的制度优势？为了中共的政权稳定，让百姓血流成河，手段残忍。
+68%的错误率听上去很可笑，但还不只密歇根，内华达州也有，《门道专家》12月15日早晨报道，这是一个系统的有目的欺诈，内华达州的克拉克郡多米尼投票机也蹦出了“大约70%的（错误）选票”—— 这是通过设置（进行的）！
 
-百姓的生活靠自己的辛勤劳动，全是人民劳作养中共。然而中共不知羞耻，居然说养活了百姓。全世界哪个民主法治国家敢这样说？也只有中共这个不要脸的政权大言不惭。中共的血汗工厂，灵活就业，以药养医，医疗教育腐败，被你们说的天花乱坠，谎话连篇，毫无人性。再多词汇都不能描述你们的邪恶。
+文章回顾了密歇根州特里姆郡多米尼投票机68.05%的错误率事件，指出，“这是一个非常重要的发现，多米尼机器设立了68.05% “选票批量裁决”，这些选票被收集到一个文件夹内，随后被送到“另一个地点”，那里的人可以改变选票。
 
-疫情期间，中共封门闭户，环境恶劣的方舱医院，移动焚化炉，封锁武汉真相，禁止传播疫情信息。中共的政治行为极为恶劣，毫无人性。
+《门道专家》继续说，这是选举舞弊。现在看来，这并不是多米尼克投票机的一个孤立事件。同样的事情也发生在内华达州的克拉克郡。
 
-对此，亿万受压迫的中华儿女感慨，中国人有千万个理由推翻中共，建立真正民主法治的正统中华。
+内华达州克拉克郡选举官员也碰巧报告了一个“大约70%选票”的“错误扫描”。
 
-（本文仅代表个人观点）
+原文附上了发布此消息的推特链接【3】
 
-新闻来源： [https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news\_10809931229643150365%22%7D&n\_type=0&p\_from=1](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_10809931229643150365%22%7D&amp;n_type=0&amp;p_from=1)
+正如律师马修·德佩诺（Matthew DePerno）指出的，这种多米尼投票设置是一个“故意的、有目的”的设置错误。【4】
+
+需要近70%的“选票批量裁决”设置，说明川普总统领先优势得多大？多么的人心所向！仅仅4年，这位老人就将外强中干的美国恢复了元气，走向更加强大。邪恶势力不会眼睁睁被束手就擒，会作垂死挣扎。但是正义的力量不可阻挡，任何的反扑只会暴露潜伏在深层的小丑，只会加速邪恶的灭亡。胜利属于正义，属于爆料革命！
+
+参考链接：
+
+【1】https://www.thegatewaypundit.com/2020/12/breaking-bombshell-mi-judge-grants-attorney-matt-deperno-permission-release-results-forensic-examination-16-dominion-voting-machines-antrim-co-video/
+
+【2】[https://www.washingtontimes.com/news/2020/dec/14/forensic-auditors-find-shocking-68-error-rate-one-/](https://www.washingtontimes.com/news/2020/dec/14/forensic-auditors-find-shocking-68-error-rate-one-/)
+
+【3】[https://twitter.com/KanekoaTheGreat/status/1338631925716566017](https://twitter.com/KanekoaTheGreat/status/1338631925716566017)
+
+【4】[https://twitter.com/mdeperno/status/1338815484955942913](https://twitter.com/mdeperno/status/1338815484955942913)
+
+原文链接：https://www.thegatewaypundit.com/2020/12/systemic-purposeful-fraud-clark-county-nevada-dominion-machines-also-kicked-70-ballots-settings/
 
 0

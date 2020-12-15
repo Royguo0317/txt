@@ -1,39 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 多米尼的出错率如此之高：密歇根68% 内华达约70%
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/653182/)
+## 【林伍德律师推文1215】-中共是邪恶的
+` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/653283/)
 
-蒙特利尔皇家山战友团laotou
+12月15日一名乔治亚州的军人选民针对本州要进行的新的投票竞选发推称：
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15162342/S-3.jpg)图片来自 Shutterstock.com
-12月14日惊爆了密歇根州多米尼投票机68%的错误率，密歇根州特里姆郡（Antrim County）的16台多米尼投票机，经过法学检验后，有数千张选票在2020年11月3日从川普总统名下转给了乔·拜登【1】，这不是坊间传闻，而是密歇根州的法官授权发布。专业部门做了统计，特里姆郡的多米尼投票机，错误率达68%【2】。
+乔治亚州州务卿Brad Raffensperger获得了民主党青睐，他转党了…. 他已经表现得像个民主党人了! @BrianKempGA （乔治亚州州长）会加入他吗？
 
-68%的错误率听上去很可笑，但还不只密歇根，内华达州也有，《门道专家》12月15日早晨报道，这是一个系统的有目的欺诈，内华达州的克拉克郡多米尼投票机也蹦出了“大约70%的（错误）选票”—— 这是通过设置（进行的）！
+林伍德律师回复该推文称，
 
-文章回顾了密歇根州特里姆郡多米尼投票机68.05%的错误率事件，指出，“这是一个非常重要的发现，多米尼机器设立了68.05% “选票批量裁决”，这些选票被收集到一个文件夹内，随后被送到“另一个地点”，那里的人可以改变选票。
+“几年前，当他们开始从多猫腻（公司）和中共收取回扣时，他们就转党了。
 
-《门道专家》继续说，这是选举舞弊。现在看来，这并不是多米尼克投票机的一个孤立事件。同样的事情也发生在内华达州的克拉克郡。
+“他们从共和党转为共产党。
 
-内华达州克拉克郡选举官员也碰巧报告了一个“大约70%选票”的“错误扫描”。
+“对钱的热衷是万恶之源。中共是邪恶的。”
 
-原文附上了发布此消息的推特链接【3】
+评议：林伍德律师应该早以掌握了被中共贿赂的共和党人的证据才出此言，乔治亚州的州务卿和州长已经沦为中共的走狗。伍德律师同时认识到中共的贿赂之风已经带偏了美国人的意识形态，对金钱的崇拜导致价值观沦丧是美国当前的主要问题，而中共就是这背后搞乱、搞弱、搞死美国的罪魁祸首。美国民众在正义力量的带领下，未来川普总统赢得大选后，对中共的声讨和谴责将是舆论重心，幸亏爆料革命把中国人和中共区分开来，中共不等于中国人，也不能代表中国，这是中国人的救身符，也是为中国人思想解毒的关键。爆料革命战友走在了历史前沿，身兼救赎自己和中国同胞的使命。
 
-正如律师马修·德佩诺（Matthew DePerno）指出的，这种多米尼投票设置是一个“故意的、有目的”的设置错误。【4】
+新闻素材和图片来自林伍德律师推特
 
-需要近70%的“选票批量裁决”设置，说明川普总统领先优势得多大？多么的人心所向！仅仅4年，这位老人就将外强中干的美国恢复了元气，走向更加强大。邪恶势力不会眼睁睁被束手就擒，会作垂死挣扎。但是正义的力量不可阻挡，任何的反扑只会暴露潜伏在深层的小丑，只会加速邪恶的灭亡。胜利属于正义，属于爆料革命！
 
-参考链接：
 
-【1】https://www.thegatewaypundit.com/2020/12/breaking-bombshell-mi-judge-grants-attorney-matt-deperno-permission-release-results-forensic-examination-16-dominion-voting-machines-antrim-co-video/
+> Brian [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw) & Brad [@GaSecofState](https://twitter.com/GaSecofState?ref_src=twsrc%5Etfw) switched parties years ago when they started taking kickbacks from Dominion & CCP.
+> 
+> They switched from Republican Party to Communist Party.
+> 
+> The love of money is the root of all evil. CCP is evil. [https://t.co/slkRj0JGZA](https://t.co/slkRj0JGZA)
+> — Lin Wood (@LLinWood) [December 15, 2020](https://twitter.com/LLinWood/status/1338945917341356035?ref_src=twsrc%5Etfw)
 
-【2】[https://www.washingtontimes.com/news/2020/dec/14/forensic-auditors-find-shocking-68-error-rate-one-/](https://www.washingtontimes.com/news/2020/dec/14/forensic-auditors-find-shocking-68-error-rate-one-/)
 
-【3】[https://twitter.com/KanekoaTheGreat/status/1338631925716566017](https://twitter.com/KanekoaTheGreat/status/1338631925716566017)
-
-【4】[https://twitter.com/mdeperno/status/1338815484955942913](https://twitter.com/mdeperno/status/1338815484955942913)
-
-原文链接：https://www.thegatewaypundit.com/2020/12/systemic-purposeful-fraud-clark-county-nevada-dominion-machines-also-kicked-70-ballots-settings/
 
 0

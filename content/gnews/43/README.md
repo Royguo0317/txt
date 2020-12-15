@@ -1,68 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》解读：美国选举人票认证结果公布，国务院推特直指中共威胁
-` GM127` [轉載自GNews](https://gnews.org/zh-hans/652494/)
+## 郭先生1214:非圈内人的川普必赢但最终必遵守政治家要玩的规则
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/652552/)
 
-直播视频：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14004653/%E5%B0%81%E9%9D%A2-88.jpg)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
+篇首说明：郭文贵先生在[2020年12月14号 文贵直播](https://gtv.org/video/id=5fd7fa9e09267020eb51302e)中谈到了多个方面的问题，现逐个列明郭文贵先生直播中涉及到的内容，本文为第五部分：非圈内人的川普必赢但最终必遵守政治家要玩的规则——
 
+据[2020年12月14号 文贵直播](https://gtv.org/video/id=5fd7fa9e09267020eb51302e)26：09时间点——
 
-《路德时评》2020年12月15日早间节目主要内容：美国选举人票认证结果公布；国务院推特直指中共威胁；美游骑兵率领 FBI 发起突袭行动。
+咱别老百姓上两下google、看两下推特， 你就替美国总统着急了，然后又指挥美国总统了，这就像一个七八岁的孩子上两次手机就告诉那些神枪手、打了一辈子枪的人说你该左打右打、端准、往左射右射，结局是你被枪给灭了。
 
-一、美国选举人票认证结果公布
+**这就是普遍的政治与老百姓的关系，政治关系学里面有一句特别重要的话，什么叫政治家，就是政治家是玩弄和利用、平衡绝大多数的被统治者的想法和意志的，最终还是维护自己的权力、和自己的地位、和利益，玩弄啊，玩弄平衡，现在又加上个大媒体，全世界叫媒体引导，过去是控制媒体现在是引导，这叫政治家。**
 
-12月14日选举人票结果公布：有七个州82张票是两属，属于废票。媒体计拜登得票 220 票 + 82 票 = 302，七个州同时投给川普和拜登，这就算是媒体所谓的302票。照这样，川普得票 232 + 82 票 = 314（七个州同时投给川普和拜登）。媒体所谓的 232 票。2021年1月6日国会裁决，媒体公布的选举人票算法有问题，作死的节奏。拭目以待！
+**但是老百姓是跟政治家啥关系呢？非常想、永远地想去让政治家听自己的，包括很享受政治家被自己推翻和政治家听了自己话所采取的行动，实际上这是政治家跟你玩的最大花招，所谓的听你的或者政治家被你推翻了的游戏，只不过是一个障眼法。**
 
-1. 两属的意思是州政府与立法机构投票对象不同，此次投票的有效性最终由国会进行裁决，左媒大肆报道拜登赢得美国总统，这完全是虚假报道，以最终结果为准；
-2. 赢得总统凭的是民意和核心实力，川普总统背后有八千万美国民众的支持，现在各大利益集团也转向支持他。
+政治家轮替更换咱就别提那共产党那独裁了，它就根本就不让你换更流氓了，西方的更换就是把你的气给你解掉，然后再换一个人上来，给你一个新的希望，满足了你的虚荣心所谓的听了你的话，**从来政治家要求的和原则没改变——始终是玩弄民意、平衡老百姓的所谓的绝大多数的要求和利益。**
 
+所以咱们老百姓你替这些人操心的时候，你上街、你支持谁、你呼吁都是被利用的，都是利用的工具，只要你入了政治圈，你就得按政治圈的游戏规则来。
 
-二、国务院推特直指中共威胁
+**川普总统非圈内人，这是他的劣势，得到了人民的欢欣这是他的优势，但是他最后他还必须按政治家的游戏规则玩。**
 
-美国国务院12月15日发推[1]：美国人必须知道中共如何为达到自己的目的毒害我们的高等教育，以及这些行为如何损害我们的自由和国家安全。
+所以说兄弟姐妹们，千万你们别着急，我看到有些战友们，真是皇帝不急太监比他急的着急得很，而且是用心的急，用心的急，真着急，因为你无知啊，还有个你太善良了，因为你把游戏、你把这些表面东西当成了真的，你把它吸出的烟当成云彩了，千万不要。
 
+**最终的结果都在那摆着呢，绝对没有任何可能是拜登赢，一定川普赢，赢的方式、赢的结果和赢的时间、和美国国家和人民付出什么样的代价，还有一个，他是在赢的过程当中是否更坚定地灭共，或者说他更坚定地坚持正义和法治，这是个政治家要玩的规则他遵守的规则，**
 
+接上篇——
 
-> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): Americans must know how the CCP is poisoning the well of our higher education for its own ends, and how those actions degrade our freedoms and our national security. [pic.twitter.com/5cyV5nMCFX](https://t.co/5cyV5nMCFX)
-> — Department of State (@StateDept) [December 15, 2020](https://twitter.com/StateDept/status/1338822052636188672?ref_src=twsrc%5Etfw)
+[郭先生1214:如无巨大反转1月6号佩罗西当总统川普最后会赢](https://gnews.org/zh-hans/652386/)
 
+[郭先生1214:共产党造成的大选乱局更向世界证明爆料革命的重要](https://gnews.org/zh-hans/652423/)
 
+[郭先生1214:14日断网把共产党从小偷变成大偷为灭共创造必需证据](https://gnews.org/zh-hans/652489/)
 
-路德社评论：
-
-1. 国务院发此推是要强调中共对美国高等教育的毒害非常深，提醒人民警惕；
-2. 文贵先生前几天直播中爆料美国真正权利的核心掌控着常春藤学校董事会，中共长期从美国高等教育机构窃取知识产权，蓝金黄海外高校科技人才，已经严重威胁到美国的根本利益；
-3. 此推暗指这些学术机构与美国安全息息相关，中共病毒来源理论与羟氯喹治疗事件彻底暴露出美国学术机构的深度腐败，闫丽梦博士发表的两篇报告未来将被验证；
-4. 美国教育界沼泽一旦被排干净后，中共病毒真相将很快被揭露。
-
-
-三、美游骑兵率领 FBI 发起突袭行动
-
-GATEWAY PUNDIT 12月14日报导[2]：美国元帅和得克萨斯游骑兵突袭 SolarWinds 德克萨斯州奥斯汀总部。
-
-
-
-> [BREAKING REPORT: SolarWinds HQ Raided in Austin — More News Coming on CEO and Executive Vice President (Update)](https://www.thegatewaypundit.com/2020/12/breaking-fbi-texas-rangers-us-marshals-raid-solarwinds-hq-austin/)
-
-
-
-1. 美国境内多米尼投票系统核心就在该总部；
-2. 该行动由法警率领游骑兵执行突袭行动，FBI只是配合行动，该行动一定已经获取到重要证据；
-3. 路德社昨天节目提及北约也在评估SolarWinds软件安全性，各方都在紧锣密鼓地行动；
-4. 由于中共越界行事，游戏规则已经彻底改变，川普总统这两天已经开始用“沼泽地”的规则对付中共。
-
-
-参考文章：
-
-[1] [https://twitter.com/StateDept/status/1338822052636188672](https://twitter.com/StateDept/status/1338822052636188672)
-
-[2] [https://www.thegatewaypundit.com/2020/12/breaking-fbi-texas-rangers-us-marshals-raid-solarwinds-hq-austin/?utm\_source=Twitter&utm\_medium=PostTopSharingButtons&utm\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/12/breaking-fbi-texas-rangers-us-marshals-raid-solarwinds-hq-austin/?utm_source=Twitter&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
-
-文章撰写：【重生】   音频 & 图片设计：【V%】  编辑：【Isaiah4031】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22111053/VOG-Rose-Garden-Team.png)
-
-
-Tags: 《路德时评》，国务院，游骑兵，SolarWinds
+[郭先生1214:美国将在灭共和内战两场战争中重生,共产党必被灭](https://gnews.org/zh-hans/652527/)
 
 0

@@ -1,30 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【突发】林伍德：麦康奈尔是叛徒，他的审判日将至
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/652790/)
+## 唯物论 vs 唯心论之我见
+` 凤凰农场三区` [轉載自GNews](https://gnews.org/zh-hans/652611/)
 
-- 编辑：Victor Torres
+作者：Cyndi
 
+审稿：Jenny(文雪）
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+中共对人民的统治是全方位、多角度的，从政治、经济、文化到信仰，渗透至社会生活的方方面面。中共在宗教信仰、哲学理念上推崇马克思主义唯物辩证法。在此，我想简单谈一下个人对马克思主义唯物论的解读，以期抛砖引玉。首先，何为“马克思主义唯物论”？简单来讲，根据中共的中学教材所述，物质世界是万物的本源，物质决定意识，意识是对物质世界的主观映像，意识对物质有反作用，这一反作用既可以是积极的，也可以是消极的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15140729/image0-76.jpg)
+根据马克思主义唯物观，人的意识是无法超越物质而存在的。但是，我们知道，当前社会上的主要宗教信仰，都是偏向唯心主义的，比如基督教、天主教和佛教。因此，通过中共推崇的哲学理念，我们可以看出，其在本质上是否认神及宗教信仰的。纵观中国的封建历史，类似的事件也曾发生过，比如郭先生曾在一次直播中提及的历史上的几次灭佛运动。没有宗教信仰或者说没有信仰，中共掌权者们一代代贪婪、疯狂成性，被贪嗔痴慢疑包围。现在，他们不仅要奴役14亿中国同胞，还想通过蓝金黄联合国际邪恶势力奴役全球的普通老百姓。追求正道主义，向往真善美的人们，现在是时候让我们团结在一起，为我们的信仰而奋斗！
 
-**西班牙2020年12月15日电/西喜社/——**周二下午，林伍德发推批评米奇·麦康奈尔(Mitch McConnell )不是一个爱国者。
-“麦康奈尔只是想要权力、影响力和金钱。他愿意出卖美国来得到他想要的东西。麦康奈尔是美国爱国者的叛徒。”
-“他的审判日即将到来。”
-当天上午，麦康奈尔刚刚承认乔•拜登当选下届美国总统，并向他和贺锦丽表示祝贺。
+历史总是惊人的相似。我们以为，世界发展是不断前进的，殊不知，社会的发展也可以是停滞不前甚至是严重倒退的。线索按冀可寻，比如2018年的修宪行为（删除国家主席和副主席的任期限制），89年的六四学运（武装镇压手无寸铁的学生），66-76年的文化大革命（导致人性扭曲、家庭伦理丧失）等等。我们不希望悲剧一直萦绕在中华大地上，我们不希望这片生我、育我的土地归于毁灭，所以，我们要前仆后继，完成曾经为了自由、民主、法治而浴血奋战的先辈们所未完成的使命。
 
-
-
-> Mitch McConnell [@senatemajldr](https://twitter.com/senatemajldr?ref_src=twsrc%5Etfw) is NOT a Patriot. Ask his wife. She knows. 
-> 
-> McConnell just wants power, influence, & money. He is willing to sell America to get what he wants. McConnell is a traitor to American Patriots.
-> 
-> His day of judgment is coming. [https://t.co/d0ECDfk5Tk](https://t.co/d0ECDfk5Tk)
-> — Lin Wood (@LLinWood) [December 15, 2020](https://twitter.com/LLinWood/status/1338914009660133378?ref_src=twsrc%5Etfw)
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+灭共路上，我们一起用实际行动虔诚的走下去，与神同行，与真我同行。
 
 0
