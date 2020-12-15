@@ -1,46 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共成功渗透到辉瑞、阿斯利康和葛兰素史克等疫苗巨头，“超限战”已全面打响
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/653063/)
+## 多米尼的出错率如此之高：密歇根68% 内华达约70%
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/653182/)
 
-俄罗斯莫斯科喀秋莎农场  文喜
+蒙特利尔皇家山战友团laotou
 
-校对上传   银河
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15151540/54.png)
-英国《每日邮报》12月13日报道，全球议员联盟“议会间中国联盟”(inter-parliament Alliance on China，简称 IPAC)从一位不愿透露姓名的中共国异见人士手中获得了一个数据库，其中包含近200万中共党员的海外部署详情【1】。《每日邮报》揭露，航空航天巨头空中客车、劳斯莱斯和波音等公司有数百名中共党员雇员。此外，在辉瑞和英国制药商阿斯利康发现123名共党雇员。
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15162342/S-3.jpg)图片来自 Shutterstock.com
+12月14日惊爆了密歇根州多米尼投票机68%的错误率，密歇根州特里姆郡（Antrim County）的16台多米尼投票机，经过法学检验后，有数千张选票在2020年11月3日从川普总统名下转给了乔·拜登【1】，这不是坊间传闻，而是密歇根州的法官授权发布。专业部门做了统计，特里姆郡的多米尼投票机，错误率达68%【2】。
 
-目前多个媒体都已获得此数据库的共享权限。澳大利亚天空新闻（SkyNews.com.au）在同天节目中披露中共对全球的严重渗透，目前事件持续发酵中。【2】
+68%的错误率听上去很可笑，但还不只密歇根，内华达州也有，《门道专家》12月15日早晨报道，这是一个系统的有目的欺诈，内华达州的克拉克郡多米尼投票机也蹦出了“大约70%的（错误）选票”—— 这是通过设置（进行的）！
 
-引起世界警觉的是，根据自然新闻（Natural News）报道，经过多次分析这份中共党员部署的数据库，其中很多人已经成功渗透到各国的疫苗行业。很多名单中的中共党员在医药巨头辉瑞(Pfizer)、阿斯利康(AstraZeneca)和葛兰素史克(GlaxoSmithKline)就职，从事中共冠状病毒疫苗生产研发。【3】
+文章回顾了密歇根州特里姆郡多米尼投票机68.05%的错误率事件，指出，“这是一个非常重要的发现，多米尼机器设立了68.05% “选票批量裁决”，这些选票被收集到一个文件夹内，随后被送到“另一个地点”，那里的人可以改变选票。
 
-自然新闻记者还补充，中共改造了冠状病毒成为生物武器，结合这份数据库的内容，有理由相信中共利用其间谍渗透进入疫苗制造企业，目的是让疫苗变成“第二波”生物武器。一些推行疫苗授权的企业与个人可能已经被中共的蓝金黄控制，这是中共组织超限战摧毁美国战术部署的一部分。
+《门道专家》继续说，这是选举舞弊。现在看来，这并不是多米尼克投票机的一个孤立事件。同样的事情也发生在内华达州的克拉克郡。
 
-根据郭文贵先生12月13日直播透露，中共与世界黑暗势力在疫苗生产研发上已经深度勾结【4】。中共党员海外部署数据库仍待挖掘，目前公布的8192个名字仅仅是冰山一角，但我们不断看到科技巨头如谷歌，脸书，YouTube 和推特等网络平台帮助中共进行舆论审查，镇压真相的发声。种种线索都指向中共在美国本土全面发动了生物病毒及信息媒体“超限战”的事实。这些大科技公司一定有大量中共党员的身影。最被熟知的莫过于推特独立董事李飞飞和中共的关系。
+内华达州克拉克郡选举官员也碰巧报告了一个“大约70%选票”的“错误扫描”。
 
-换句话说，大科技公司与中共深度勾兑，疑似故意招募中共背景雇员来建立言论审核制度，以此控制和引导舆论，删除掩盖所有选举盗窃的证据。同时，这些选票篡改被证明是通过有中共背景的多明尼投票系统进行的。这是一系列阴谋颠覆美国的大规模国际犯罪。
+原文附上了发布此消息的推特链接【3】
 
-（文章仅代表作者个人观点）
+正如律师马修·德佩诺（Matthew DePerno）指出的，这种多米尼投票设置是一个“故意的、有目的”的设置错误。【4】
 
-**参考链接：**
+需要近70%的“选票批量裁决”设置，说明川普总统领先优势得多大？多么的人心所向！仅仅4年，这位老人就将外强中干的美国恢复了元气，走向更加强大。邪恶势力不会眼睁睁被束手就擒，会作垂死挣扎。但是正义的力量不可阻挡，任何的反扑只会暴露潜伏在深层的小丑，只会加速邪恶的灭亡。胜利属于正义，属于爆料革命！
 
-- 泄露的数据库揭露了中国共产党对英国公司的大规模渗透，其中包括阿斯利康、劳斯莱斯、汇丰和捷豹路虎。
+参考链接：
 
+【1】https://www.thegatewaypundit.com/2020/12/breaking-bombshell-mi-judge-grants-attorney-matt-deperno-permission-release-results-forensic-examination-16-dominion-voting-machines-antrim-co-video/
 
-[https://www.dailymail.co.uk/news/article-9046783/Leaked-files-expose-mass-infiltration-UK-firms-Chinese-Communist-Party.html](https://www.dailymail.co.uk/news/article-9046783/Leaked-files-expose-mass-infiltration-UK-firms-Chinese-Communist-Party.html)
+【2】[https://www.washingtontimes.com/news/2020/dec/14/forensic-auditors-find-shocking-68-error-rate-one-/](https://www.washingtontimes.com/news/2020/dec/14/forensic-auditors-find-shocking-68-error-rate-one-/)
 
-- 重大泄密事件暴露了中共党员信息，“揭开了中共的秘密”
+【3】[https://twitter.com/KanekoaTheGreat/status/1338631925716566017](https://twitter.com/KanekoaTheGreat/status/1338631925716566017)
 
+【4】[https://twitter.com/mdeperno/status/1338815484955942913](https://twitter.com/mdeperno/status/1338815484955942913)
 
-[https://www.skynews.com.au/details/\_6215946537001](https://www.skynews.com.au/details/_6215946537001)
-
-- 战争:中共国成功地渗透到疫苗巨头辉瑞、阿斯利康和葛兰素史克，作为“超限战”的一部分，打败美国军队，征服北美
-
-
-[https://www.naturalnews.com/2020-12-13-communist-china-infiltrated-vaccine-giants-pfizer-astrazeneca-glaxosmithkline.html#](https://www.naturalnews.com/2020-12-13-communist-china-infiltrated-vaccine-giants-pfizer-astrazeneca-glaxosmithkline.html#)
-
-【4】12/10 Miles Guo: Don’t believe in vaccine, resulting from collusion between the CCP and dark power
-
-
+原文链接：https://www.thegatewaypundit.com/2020/12/systemic-purposeful-fraud-clark-county-nevada-dominion-machines-also-kicked-70-ballots-settings/
 
 0

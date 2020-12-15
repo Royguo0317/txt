@@ -1,33 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 多米尼（Dominion）投票机可以自行创建选票!
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/652939/)
+## 中共成功渗透到辉瑞、阿斯利康和葛兰素史克等疫苗巨头，“超限战”已全面打响
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/653063/)
 
-蒙特利尔皇家山战友团 Tao
-校对 文锦 上传 云起时
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15150048/naturalnews.com_.jpg)图片来源：naturenews.com
-多米尼投票系统居然有内置创建选票的功能，可以轻而易举的自动生成假选票。正如DataDude316在推特中所说：多米尼投票系统很容易被黑客；可以创建拜登的选票并记入其名下；可以完全删除川普总统的选票。这些可是写在多米尼投票系统的用户手册里的！([推特截图](https://twitter.com/JPMediaBoss/status/1326360346617995265))
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15150134/twitter9.jpg)图片来源：twitter.com
-[多米尼网站](https://www.dominionvoting.com/optional-solutions/)在介绍投票系统功能时写道：
-“自动测试平台生成器可以创建完整的测试平台，以实现高效的逻辑测试和准确性测试。测试平台使用的选举项目数据库可以随机生成一组已填写完整的选票，这样的测试可以确保系统的准确性。当扫描这些生成的选票时，测试平台会自动比较系统的结果和扫描的结果，这种测试不仅可以验证选票印刷的质量，还可以验证每个选票统计机器的准确性。”
+俄罗斯莫斯科喀秋莎农场  文喜
 
-关于这个功能，在多米尼投票系统用户手册的第30页有进一步的解释说明：
+校对上传   银河
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15151540/54.png)
+英国《每日邮报》12月13日报道，全球议员联盟“议会间中国联盟”(inter-parliament Alliance on China，简称 IPAC)从一位不愿透露姓名的中共国异见人士手中获得了一个数据库，其中包含近200万中共党员的海外部署详情【1】。《每日邮报》揭露，航空航天巨头空中客车、劳斯莱斯和波音等公司有数百名中共党员雇员。此外，在辉瑞和英国制药商阿斯利康发现123名共党雇员。
 
-“如果贵国的司法部门允许，则可以使用多米尼投票系统的自动测试平台。该程序可从多米尼投票系统购买，它可以自动生成适当的测试选票和预期的选举统计结果”
+目前多个媒体都已获得此数据库的共享权限。澳大利亚天空新闻（SkyNews.com.au）在同天节目中披露中共对全球的严重渗透，目前事件持续发酵中。【2】
 
-乔治亚州的投票机采购文件的第59页显示该州购买了多米尼投票系统的“自动测试平台”。
+引起世界警觉的是，根据自然新闻（Natural News）报道，经过多次分析这份中共党员部署的数据库，其中很多人已经成功渗透到各国的疫苗行业。很多名单中的中共党员在医药巨头辉瑞(Pfizer)、阿斯利康(AstraZeneca)和葛兰素史克(GlaxoSmithKline)就职，从事中共冠状病毒疫苗生产研发。【3】
 
-“自动测试平台的创建 – 完整自动的创建测试平台是多米尼系统提供的一项可选服务，以协助客户进行系统的逻辑性和准确性测试。使用系统中的总统大选日数据库，系统会根据算法自动生成一系列已填写完整的选票，以确保系统测试的准确性。”
+自然新闻记者还补充，中共改造了冠状病毒成为生物武器，结合这份数据库的内容，有理由相信中共利用其间谍渗透进入疫苗制造企业，目的是让疫苗变成“第二波”生物武器。一些推行疫苗授权的企业与个人可能已经被中共的蓝金黄控制，这是中共组织超限战摧毁美国战术部署的一部分。
 
-乔治亚州富尔顿（Fulton）县投票站经理苏珊-沃尔斯（Susan Voyles）在听证会上作证说大批选票上对候选人勾选的标记几乎一模一样，并且98%以上都是投给拜登的，这些选票是不是多米诺投票系统的自动测试平台创建产生的？我们还在哪里看到过一摞选票，有些甚至是没有拆封，而其中投给拜登的选票达95%以上的？
+根据郭文贵先生12月13日直播透露，中共与世界黑暗势力在疫苗生产研发上已经深度勾结【4】。中共党员海外部署数据库仍待挖掘，目前公布的8192个名字仅仅是冰山一角，但我们不断看到科技巨头如谷歌，脸书，YouTube 和推特等网络平台帮助中共进行舆论审查，镇压真相的发声。种种线索都指向中共在美国本土全面发动了生物病毒及信息媒体“超限战”的事实。这些大科技公司一定有大量中共党员的身影。最被熟知的莫过于推特独立董事李飞飞和中共的关系。
 
-有证据表明，费城选区和密歇根州采购多米尼投票机时也购买了其“自动测试平台”。
+换句话说，大科技公司与中共深度勾兑，疑似故意招募中共背景雇员来建立言论审核制度，以此控制和引导舆论，删除掩盖所有选举盗窃的证据。同时，这些选票篡改被证明是通过有中共背景的多明尼投票系统进行的。这是一系列阴谋颠覆美国的大规模国际犯罪。
 
-这些多米尼投票系统软件自动生成的”测试选票”是否被当成了”裸票”，然后这些裸票被正常计票以达到预期的结果？（译者注：裸票是指那些没有放在邮寄信封里的选票，这种选票是无效选票）。这些海量的“测试选票”在选举结束后的凌晨被偷偷倒进了系统里，这就是川普总统由大幅度领先到落后的真实原因。
+（文章仅代表作者个人观点）
 
-很难相信，世界上最强大的国家，科技军事无人匹敌的美国在最关键的总统大选上，居然使用漏洞如此惊人的投票机。在大量实锤证据指向多米尼投票系统操纵选举时，当初极力推动采购多米尼投票设备的人都值得怀疑。
+**参考链接：**
 
-[原文链接](https://www.thegatewaypundit.com/2020/12/breaking-exclusive-dominion-voting-machines-ability-create-ballots/?utm_source=Twitter&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
+- 泄露的数据库揭露了中国共产党对英国公司的大规模渗透，其中包括阿斯利康、劳斯莱斯、汇丰和捷豹路虎。
+
+
+[https://www.dailymail.co.uk/news/article-9046783/Leaked-files-expose-mass-infiltration-UK-firms-Chinese-Communist-Party.html](https://www.dailymail.co.uk/news/article-9046783/Leaked-files-expose-mass-infiltration-UK-firms-Chinese-Communist-Party.html)
+
+- 重大泄密事件暴露了中共党员信息，“揭开了中共的秘密”
+
+
+[https://www.skynews.com.au/details/\_6215946537001](https://www.skynews.com.au/details/_6215946537001)
+
+- 战争:中共国成功地渗透到疫苗巨头辉瑞、阿斯利康和葛兰素史克，作为“超限战”的一部分，打败美国军队，征服北美
+
+
+[https://www.naturalnews.com/2020-12-13-communist-china-infiltrated-vaccine-giants-pfizer-astrazeneca-glaxosmithkline.html#](https://www.naturalnews.com/2020-12-13-communist-china-infiltrated-vaccine-giants-pfizer-astrazeneca-glaxosmithkline.html#)
+
+【4】12/10 Miles Guo: Don’t believe in vaccine, resulting from collusion between the CCP and dark power
+
+
 
 0
