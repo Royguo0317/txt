@@ -1,25 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 安提法在华府重伤了4名挺川者
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/652331/)
+## 中共成功渗透到辉瑞、阿斯利康和葛兰素史克等疫苗巨头，“超限战”已全面打响
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/653063/)
 
-加拿大多伦多枫叶农场 文𤦍(Manpui）
-校对 文锦 上传 云起时
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15140758/theguardian-2.jpg)图片来源：Theguardian
-据《西方杂志》（The Western Journal） 12月13日报道，令人毛骨悚然的视频显示，安提法（Antifa）在华府刺伤了4名川普支持者，该组织暴力和蓄意破坏，恐吓无辜者，摧毁、伤害企业并烧毁建筑物。据美国广播公司（ABC）称，四名川普支持者正处于危急状态。
+俄罗斯莫斯科喀秋莎农场  文喜
 
-12月12日，挺川者聚在自由广场，谴责美国大选严重舞弊，支持川普总统。当四名挺川者被刺伤时，挺川集会被安提法演变成暴力。社交媒体上纷纷指责安提法成员在 “Stop The Steal（停止偷票）” 集会中刺伤挺川人士。据WUSA-TV电视称，这次游行集会冲突导致33人被捕并有9人受伤。
+校对上传   银河
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15151540/54.png)
+英国《每日邮报》12月13日报道，全球议员联盟“议会间中国联盟”(inter-parliament Alliance on China，简称 IPAC)从一位不愿透露姓名的中共国异见人士手中获得了一个数据库，其中包含近200万中共党员的海外部署详情【1】。《每日邮报》揭露，航空航天巨头空中客车、劳斯莱斯和波音等公司有数百名中共党员雇员。此外，在辉瑞和英国制药商阿斯利康发现123名共党雇员。
 
-据《新闻周刊》(News Week)报导；星期六集会的成员包括骄傲男孩(Proud Boys)，华府自由广场聚集了大批的美国民众，前国安顾问迈克尔‧弗林（Michael Flynn）将军，在获川普总统赦免后首次公开露面。弗林说：“法院不会决定谁会是美国下一任总统。” “唯一是我们人民决定。”
-他说： “我会再告诉你一次，因为有人问我，谁将成为美国下一任总统，答案轻重是1至10，我说，川普10”。
+目前多个媒体都已获得此数据库的共享权限。澳大利亚天空新闻（SkyNews.com.au）在同天节目中披露中共对全球的严重渗透，目前事件持续发酵中。【2】
 
-弗林再跟听众说：“川普总统知道他可以信任的人是他从未见过的人。 就是你们，他之所以信任你们是因为他知道你们知道发生了什麽事情，并且你们不会允许我们国家发生这样的事情。”
+引起世界警觉的是，根据自然新闻（Natural News）报道，经过多次分析这份中共党员部署的数据库，其中很多人已经成功渗透到各国的疫苗行业。很多名单中的中共党员在医药巨头辉瑞(Pfizer)、阿斯利康(AstraZeneca)和葛兰素史克(GlaxoSmithKline)就职，从事中共冠状病毒疫苗生产研发。【3】
 
-在12月2日集会期间，弗林将军呼吁人们在舆论战中坚定信念，不要被左派和主流媒体的谎言击垮。他在发言中表示，这些“舞弊”不只关系到川普，这关乎美国的总统之位、关乎我们国家的灵魂，我们将会把这一切纠正过来。
+自然新闻记者还补充，中共改造了冠状病毒成为生物武器，结合这份数据库的内容，有理由相信中共利用其间谍渗透进入疫苗制造企业，目的是让疫苗变成“第二波”生物武器。一些推行疫苗授权的企业与个人可能已经被中共的蓝金黄控制，这是中共组织超限战摧毁美国战术部署的一部分。
 
-一次次的挺川集会，看出美国民心所向，而受暗黑势力操纵的安提法行刺挺川者，再次展露他们丑陋肮脏、无底线的行为。
+根据郭文贵先生12月13日直播透露，中共与世界黑暗势力在疫苗生产研发上已经深度勾结【4】。中共党员海外部署数据库仍待挖掘，目前公布的8192个名字仅仅是冰山一角，但我们不断看到科技巨头如谷歌，脸书，YouTube 和推特等网络平台帮助中共进行舆论审查，镇压真相的发声。种种线索都指向中共在美国本土全面发动了生物病毒及信息媒体“超限战”的事实。这些大科技公司一定有大量中共党员的身影。最被熟知的莫过于推特独立董事李飞飞和中共的关系。
 
-[原文链接](https://www.westernjournal.com/sickening-video-shows-antifa-allegedly-stab-4-trump-supporters-washington-dc/?utm_source=push&amp;utm_medium=westernjournalism&amp;utm_content=2020-12-13&amp;utm_campaign=pushtraffic)
+换句话说，大科技公司与中共深度勾兑，疑似故意招募中共背景雇员来建立言论审核制度，以此控制和引导舆论，删除掩盖所有选举盗窃的证据。同时，这些选票篡改被证明是通过有中共背景的多明尼投票系统进行的。这是一系列阴谋颠覆美国的大规模国际犯罪。
+
+（文章仅代表作者个人观点）
+
+**参考链接：**
+
+- 泄露的数据库揭露了中国共产党对英国公司的大规模渗透，其中包括阿斯利康、劳斯莱斯、汇丰和捷豹路虎。
+
+
+[https://www.dailymail.co.uk/news/article-9046783/Leaked-files-expose-mass-infiltration-UK-firms-Chinese-Communist-Party.html](https://www.dailymail.co.uk/news/article-9046783/Leaked-files-expose-mass-infiltration-UK-firms-Chinese-Communist-Party.html)
+
+- 重大泄密事件暴露了中共党员信息，“揭开了中共的秘密”
+
+
+[https://www.skynews.com.au/details/\_6215946537001](https://www.skynews.com.au/details/_6215946537001)
+
+- 战争:中共国成功地渗透到疫苗巨头辉瑞、阿斯利康和葛兰素史克，作为“超限战”的一部分，打败美国军队，征服北美
+
+
+[https://www.naturalnews.com/2020-12-13-communist-china-infiltrated-vaccine-giants-pfizer-astrazeneca-glaxosmithkline.html#](https://www.naturalnews.com/2020-12-13-communist-china-infiltrated-vaccine-giants-pfizer-astrazeneca-glaxosmithkline.html#)
+
+【4】12/10 Miles Guo: Don’t believe in vaccine, resulting from collusion between the CCP and dark power
+
+
 
 0

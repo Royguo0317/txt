@@ -1,28 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西方医药巨头潜伏着大量中共党员
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/653015/)
+## 多米尼的出错率如此之高：密歇根68% 内华达约70%
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/653182/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15150351/Capture-117.jpg)图片来源：（www.sohu.com）
-据“国家档案”（National File）网站近日报道，今年早些时候，一份包含近200万名中共党员的名单泄露给了英国、澳大利亚、比利时和瑞典的国际媒体，其中清晰可见成千上万生活和工作在西方国家的党员姓名，他们供职的单位包括英国政府和横跨整个西方世界的顶级军工企业、金融机构和医疗公司。
+蒙特利尔皇家山战友团laotou
 
-英国《每日邮报》（The Daily Mail）证实，一份有“详细分析”的报告披露，“参与新冠疫苗研发的医药巨头，辉瑞（Pfrizer）和阿斯利康（AstraZeneca），共计雇佣了123名中共死忠分子。”这两家公司目前都在参与新冠疫苗的开发工作。
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15162342/S-3.jpg)图片来自 Shutterstock.com
+12月14日惊爆了密歇根州多米尼投票机68%的错误率，密歇根州特里姆郡（Antrim County）的16台多米尼投票机，经过法学检验后，有数千张选票在2020年11月3日从川普总统名下转给了乔·拜登【1】，这不是坊间传闻，而是密歇根州的法官授权发布。专业部门做了统计，特里姆郡的多米尼投票机，错误率达68%【2】。
 
-《每日邮报》指出，“这不仅仅是对涉事公司形象以及国家道德规范的威胁，而是对国家安全的威胁。”涉事公司还包括在军工制造业中举足轻重的波音（Boeing）、空客（Airbus）、泰雷兹（Thales）和劳斯莱斯（Rolls-Royce）等巨头。这些设计和制造最先进武器的公司，本应该责无旁贷地保卫英国最敏感的资产和设施秘密，然而，它们却大量地雇佣了数以百计的中共死忠分子。除了辉瑞和阿斯利康，葛兰素史克（GlaxoSmithKline）也雇用了许多中共党员，其结果是，大量中共党员得以进入这类重要企业的网络系统，窃取设计资料和供应链等方面的信息。
+68%的错误率听上去很可笑，但还不只密歇根，内华达州也有，《门道专家》12月15日早晨报道，这是一个系统的有目的欺诈，内华达州的克拉克郡多米尼投票机也蹦出了“大约70%的（错误）选票”—— 这是通过设置（进行的）！
 
-“国家档案”的报道披露，被指控利用自己儿子亨特·拜登（Hunter Biden）从中共大获其利的乔·拜登（Joe Biden），最近为FDA批准辉瑞新冠疫苗大唱赞歌，称其是“划破无端黑暗的一道光”。除此之外，拜登还会见了几大疫苗生产商的负责人，其中就包括辉瑞和阿斯利康的代表。
+文章回顾了密歇根州特里姆郡多米尼投票机68.05%的错误率事件，指出，“这是一个非常重要的发现，多米尼机器设立了68.05% “选票批量裁决”，这些选票被收集到一个文件夹内，随后被送到“另一个地点”，那里的人可以改变选票。
 
-前不久，“国家档案”报道了美国国家情报总监约翰·拉特克利夫（John Ratcliffe）指控中共双管齐下，用贿赂和敲诈的手法，胁迫美国国会议员通过有益于中共国的政策。此外，一份新挖出的备忘录把贺锦丽（Kamala Harris）也卷入了拜登家族与中共国的是非中。这份备忘录把贺锦丽列为拜登家族“第一阶段国内联络/项目”的“关键联络人”。
+《门道专家》继续说，这是选举舞弊。现在看来，这并不是多米尼克投票机的一个孤立事件。同样的事情也发生在内华达州的克拉克郡。
 
-评论：
+内华达州克拉克郡选举官员也碰巧报告了一个“大约70%选票”的“错误扫描”。
 
-这份海外党员名单早在今年8月份就已曝光，之后的近四个月的时间里，“对华政策跨国议会联盟”对名单进行了彻底调查，厘清了中共对西方世界关键领域的渗透。对与中共关系暧昧的西方政客和企业家来说，中共的“蓝金黄”手段“魅力难挡”，但哪怕是这些人，如今也从宏观视角看到自己生活的自由世界几乎要被中共“转基因”成功，也难免会吓出一身冷汗吧？根据路德先生12月10日爆料，美国即将把中共定性为“国际犯罪组织”，这意味着名单上的中共党员全部都会是犯罪组织的成员。现在这份名单再次被媒体“炒热”，说明美国实施对中共的制裁已经到了倒计时阶段。无论是享受过“蓝金黄”的西方精英，还是被中共操纵的棋子，此时都应该好好想一想自己到底何去何从？识时务者为俊杰，反水灭共，还是余生如纳粹战犯一般活在被全球猎杀的恐惧中，答案不言自明。
+原文附上了发布此消息的推特链接【3】
 
-[原文](https://nationalfile.com/chinese-virus-chinese-vaccine-ccp-leak-confirms-pfizer-astrazeneca-employed-123-communist-party-members/)
+正如律师马修·德佩诺（Matthew DePerno）指出的，这种多米尼投票设置是一个“故意的、有目的”的设置错误。【4】
 
-翻译：萌萌的朋克
+需要近70%的“选票批量裁决”设置，说明川普总统领先优势得多大？多么的人心所向！仅仅4年，这位老人就将外强中干的美国恢复了元气，走向更加强大。邪恶势力不会眼睁睁被束手就擒，会作垂死挣扎。但是正义的力量不可阻挡，任何的反扑只会暴露潜伏在深层的小丑，只会加速邪恶的灭亡。胜利属于正义，属于爆料革命！
 
-校对：文旺
+参考链接：
+
+【1】https://www.thegatewaypundit.com/2020/12/breaking-bombshell-mi-judge-grants-attorney-matt-deperno-permission-release-results-forensic-examination-16-dominion-voting-machines-antrim-co-video/
+
+【2】[https://www.washingtontimes.com/news/2020/dec/14/forensic-auditors-find-shocking-68-error-rate-one-/](https://www.washingtontimes.com/news/2020/dec/14/forensic-auditors-find-shocking-68-error-rate-one-/)
+
+【3】[https://twitter.com/KanekoaTheGreat/status/1338631925716566017](https://twitter.com/KanekoaTheGreat/status/1338631925716566017)
+
+【4】[https://twitter.com/mdeperno/status/1338815484955942913](https://twitter.com/mdeperno/status/1338815484955942913)
+
+原文链接：https://www.thegatewaypundit.com/2020/12/systemic-purposeful-fraud-clark-county-nevada-dominion-machines-also-kicked-70-ballots-settings/
 
 0
