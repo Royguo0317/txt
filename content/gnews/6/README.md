@@ -1,19 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法国电台欧洲一台刊文：2020年被监禁的记者人数创历史新高，中国首当其冲
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/653280/)
+## 乔·拜登妹夫拥有多米尼投票系统公司部分所有权
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/653285/)
 
-翻译：Charline   校对：Ikonic
+*多伦多枫叶农场（原加喜农场） ctt*
 
-根据保护记者委员会的数据，中国连续第二年是监禁记者人数最多的国家，其中47名记者至今还在被关押。据保护记者委员会（CPJ）周二称，2020年新闻工作者入狱的人数创了世界纪录。
+*校对、上传 文锦*
 
-该委员会指责世界各国政府在Covid-19大流行期间，压制媒体并提供虚假信息。 根据CPJ的年度报告，在过去的一年中，有274名记者被判入狱，有26名记者和媒体工作者被杀害。
+据盖勒报告 (Geller Report) 12月14日报道，拜登的妹妹瓦莱丽·拜登·欧文斯 (Valerie Biden Owens)嫁给了约翰-欧文斯 (John Owens)。而约翰的哥哥凯文·欧文斯 (R.Kevin Owens) 是Staple Street Investors的创始人，该公司拥有多米尼投票系统公司（Dominion Voting Systems）。Staple Street Capital是一家私募股权公司，2009年成立于纽约。2018年，多米尼投票公司被Staple Street Capital 收购，
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15172739/biden-dominion-voting-system.jpg)图片来源：lesmanchettes.com
+在纽约时报上，可以看到乔-拜登妹妹与约翰-欧文斯的[婚礼公告](https://www.nytimes.com/1975/10/12/archives/bridal-at-un-for-miss-biden.html)。而约翰的哥哥凯文·欧文斯是多米尼公司的部分所有者, 现在看来拜登胜选的结果应该正式作废了。
 
-保護記者委員會执行董事乔尔·西蒙（Joel Simon）在一份声明中说：“这令人震惊和沮丧。” CPJ称，中国是监禁记者人数最多的国家，有47名记者被捕入狱。
+据报道, 收购多米尼投票系统公司的Staple Street Capital已经关闭了他们的大部分网站。蹊跷的是一周前还有投资组合持股说明页面。10月08日，Staple Street资本曾向美国证券交易委员会（简称SEC）提交了增资8亿美元的申请, 为什么这个时候关闭私募股权投资公司的网站呢？令人不解。
 
-保护记者委员会（CPJ）报告调查结果于无国界记者协会（RSF）一致
+评：
 
-土耳其，埃及和沙特阿拉伯，以及白俄罗斯和埃塞俄比亚，也是新闻记者被关押入狱的人数最多的国家。保护记者委员会（CPJ）报告的调查结果与无国界记者协会（RSF）的调查结果一致，RSF在周一发布的年度报告中指出，到2020年，世界各地被任意监禁的新闻工作者（无论是专业记者还是非专业记者）的人数“创历史上新高”，接近400人，而健康危机将伴随着侵犯新闻自由的现象还会增多。
+这次美国大选中，拜登阵营进行了大量的造假和作弊，其中很多都发生在多米尼投票系统上。目前曝出的越来越多证据显示，外国势力通过控制多米尼投票系统操纵美国大选，而本文则可以使人们看到，不仅仅是外国势力，连拜登家族的势力都在控制多米尼投票系统，看来这次拜登胜选的结果绝不可信。
+
+[原文链接](https://gellerreport.com/2020/12/dominion-voting-machines-is-part-owned-by-joe-bidens-brother-in-law.html/)
 
 0

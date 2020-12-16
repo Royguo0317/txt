@@ -1,34 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1215】-中共是邪恶的
-` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/653283/)
+## 法国电台欧洲一台刊文：2020年被监禁的记者人数创历史新高，中国首当其冲
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/653280/)
 
-12月15日一名乔治亚州的军人选民针对本州要进行的新的投票竞选发推称：
+翻译：Charline   校对：Ikonic
 
-乔治亚州州务卿Brad Raffensperger获得了民主党青睐，他转党了…. 他已经表现得像个民主党人了! @BrianKempGA （乔治亚州州长）会加入他吗？
+根据保护记者委员会的数据，中国连续第二年是监禁记者人数最多的国家，其中47名记者至今还在被关押。据保护记者委员会（CPJ）周二称，2020年新闻工作者入狱的人数创了世界纪录。
 
-林伍德律师回复该推文称，
+该委员会指责世界各国政府在Covid-19大流行期间，压制媒体并提供虚假信息。 根据CPJ的年度报告，在过去的一年中，有274名记者被判入狱，有26名记者和媒体工作者被杀害。
 
-“几年前，当他们开始从多猫腻（公司）和中共收取回扣时，他们就转党了。
+保護記者委員會执行董事乔尔·西蒙（Joel Simon）在一份声明中说：“这令人震惊和沮丧。” CPJ称，中国是监禁记者人数最多的国家，有47名记者被捕入狱。
 
-“他们从共和党转为共产党。
+保护记者委员会（CPJ）报告调查结果于无国界记者协会（RSF）一致
 
-“对钱的热衷是万恶之源。中共是邪恶的。”
-
-评议：林伍德律师应该早以掌握了被中共贿赂的共和党人的证据才出此言，乔治亚州的州务卿和州长已经沦为中共的走狗。伍德律师同时认识到中共的贿赂之风已经带偏了美国人的意识形态，对金钱的崇拜导致价值观沦丧是美国当前的主要问题，而中共就是这背后搞乱、搞弱、搞死美国的罪魁祸首。美国民众在正义力量的带领下，未来川普总统赢得大选后，对中共的声讨和谴责将是舆论重心，幸亏爆料革命把中国人和中共区分开来，中共不等于中国人，也不能代表中国，这是中国人的救身符，也是为中国人思想解毒的关键。爆料革命战友走在了历史前沿，身兼救赎自己和中国同胞的使命。
-
-新闻素材和图片来自林伍德律师推特
-
-
-
-> Brian [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw) & Brad [@GaSecofState](https://twitter.com/GaSecofState?ref_src=twsrc%5Etfw) switched parties years ago when they started taking kickbacks from Dominion & CCP.
-> 
-> They switched from Republican Party to Communist Party.
-> 
-> The love of money is the root of all evil. CCP is evil. [https://t.co/slkRj0JGZA](https://t.co/slkRj0JGZA)
-> — Lin Wood (@LLinWood) [December 15, 2020](https://twitter.com/LLinWood/status/1338945917341356035?ref_src=twsrc%5Etfw)
-
-
+土耳其，埃及和沙特阿拉伯，以及白俄罗斯和埃塞俄比亚，也是新闻记者被关押入狱的人数最多的国家。保护记者委员会（CPJ）报告的调查结果与无国界记者协会（RSF）的调查结果一致，RSF在周一发布的年度报告中指出，到2020年，世界各地被任意监禁的新闻工作者（无论是专业记者还是非专业记者）的人数“创历史上新高”，接近400人，而健康危机将伴随着侵犯新闻自由的现象还会增多。
 
 0
