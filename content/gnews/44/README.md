@@ -1,37 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点速评】一纸限电通知击穿中共多年谎言！
-` XMLYG777` [轉載自GNews](https://gnews.org/zh-hans/656647/)
+## 林伍德:麦康奈尔收了多米尼公司捐款
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/656717/)
 
-内新闻/素材：Meilen美伦 校对：加文gavin
+- 编辑：Victor Torres
 
-据每日经济新闻2020年12月15日报道，浙江省机关事务管理局近日发通知称，依据12月11日上午全省能源“双控”和“减煤”攻坚电视电话会议精神要求，年底前省级各有关单位办公区域在气温达到3℃以下（含3℃）时方可开启空调等取暖设备，且设置温度不得超过16℃。
 
-同时，浙江多个地市相继发布相关通知，包括金华、温州、宁波、嘉兴等地。(通知内容见下图)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16114950/image0-87.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16115646/image1-1-25.jpg)
-“双控”是指对能源消费总量和能源消费强度进行控制；“减煤”即削减煤炭消费总量。在网络上搜索“限电”即可将近期发布过此类限电通知的省份和地区都罗列出来，覆盖了多个南方省份及沿海多个工业地区。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-泱泱大国为何如此缺电？究其原因或与本月11日南方财富网报道的，9日俄罗斯电力公司InterRAO在给市场委员会（能源市场监管机构）的信函中宣称冬季可能大幅减少或者完全停止对中国供应电力，以及日前中共外交部公开宣称停止进口澳洲煤炭有关。
+**西班牙2020年12月16日电/西喜社/**——
 
-中共官方向来宣称自己是煤电能源大国，而今被这一纸“限电”通知影响到日常生活的民众，可能不知道息息相关的煤电竟然离不开“外国势力”！一旦离开别人，“伟光正”的中共连内循环都做不到。
-
-对于工业化程度高的地区，限电必然影响企业产能，甚至导致企业停产。停产或减产导致失业潮加剧是毋庸置疑的，能把人直接逼到墙角没有活路。
-
-真相就是这么残酷，它甚至把中共用人民血汗钱打造的，欺骗人民几十年的三峡大坝发电工程的谎言也揭穿了。芯片造不出来还情有可原，电力居然都无法自给自足。“三峡电站每天发电量2.73亿千瓦时”非但没有给我们带来“八分钱”的优惠电价，现在居然闹起电荒来！
-
-中共纂权执政71年，对人民的各种欺瞒造假终究掩盖不住，而恶果却都报应在了人民身上。这也应验了一句话：当谎言被揭穿的一天，我们终于看到了一个天大的笑话。
-
-这样的笑话，在中共被爆料革命联合国际正义联盟的打击和制裁下，会越来越多。中共独裁政权被灭是必然的，限电仅仅是中共献给大家的一碟小菜，同胞们还需做好充足准备，囤粮、囤物资以自救自保，不要让自己成为中共的陪葬品。
-(本文仅代表个人观点)
-
-本文章仅代表本人个人观点。
-
-新闻来源：
-[https://m.sohu.com/a/438420748\_115362](https://m.sohu.com/a/438420748_115362)
-[感动北方人！为了节能减排，这个省要求：机关单位3℃以下才能开空调！\_手机搜狐网](http://感动北方人！为了节能减排，这个省要求：机关单位3℃以下才能开空调！_手机搜狐网)
-浙江温州市机关事务管理局12月12日也发布了类似通知，针对目前省、市能源“双控”和“减煤”工作面临的严峻形势和绿色发展的要求，从即日起至12月31日，市级各有关单位办公区域在气温达到3℃以下（含3℃）时…
+林伍德周三发推称，对米奇·麦康奈尔（Mitch McConnell）在过去的竞选中收到了多米尼公司的捐款，并不感到惊讶。
+他说“我们的政府官员腐败。 他们不从事我们人民的生意。 他们只为自己在政府中任职。”
+据报道，去年7月，米奇·麦康奈尔（Mitch McConnell）在阻止选举安全法案通过之前，从多米尼公司的说客那里收到了捐款。
+“我们必须清理房子”，林伍德说。
 
 
 
-1+
+> I am not surprised to learn that Mitch McConnell [@senatemajldr](https://twitter.com/senatemajldr?ref_src=twsrc%5Etfw) received past campaign contributions from Dominion Voting. Are you?
+> 
+> Our government officials are corrupt. They do not do business of We The People. They are in government solely for themselves.
+> 
+> We must clean house. [https://t.co/SkrLdZ7BZM](https://t.co/SkrLdZ7BZM)
+> — Lin Wood (@LLinWood) [December 16, 2020](https://twitter.com/LLinWood/status/1339248167154376704?ref_src=twsrc%5Etfw)
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+
+0

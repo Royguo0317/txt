@@ -1,42 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共操纵媒体舆论以绑架和洗脑旅英华侨
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/657140/)
+## 辉瑞、阿斯利康雇佣了123名共产党员
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/657050/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16145321/capture1-23.jpg) 图片来源： BBC
-在英国的很多第一代甚至第二代英国华侨，尤其是没有在英国受过教育的华侨都非常容易被中共欺骗，原因到底为何？笔者认为最重要的一点就是中共独揽宣传口的控制权，用严厉的审查舆论制度来确保中共一家独唱，并利用其所谓的道德制高点进行思想绑架和控制。中共遍及世界的外交部门就是其海外洗脑的执行部门。
+*新闻来源：国家档案(National File)｜作者：Tom Pappert* / *发表日期：2020年12月13日*
 
-我们以英国为例，通过几个例子来说明中共的外交部和媒体喉舌是如何一方面对外假装亲善，另一方面对内大肆抹黑歪曲报道，从而通过混淆视听来实现绑架中国人的目的的。
+*翻译、简评： MikeHua｜校对：Beicy-数学老师｜审核：万人往｜PAGE：玄天生*
 
-**事例一：刘晓明对英的感谢之词 vs 新浪网散布的英国”反华“论**
+***简评：***
 
-2020年2月12日，中共驻英大使刘晓明在伦敦煌庭餐厅英国保守党举行的“华人之友”春节晚宴上发表了名为《努力做好“三友”，助力中英合作》的演讲，“情真意切”地感谢了在英华侨、英女皇及首相这些让中共“备受感动”的人，表现得文质彬彬和儒雅可亲。
-![](https://lh5.googleusercontent.com/ZO9Fx-FeiUAbVhgG88ucC4DD7_2xKPlwtOthbx8cb8LVKc-ATbnjBW2TX30-cwJM79as6-mCPdTBCTqehrUIgsGNsNJDjEygIzBtOm_Jl91HOykOvJ8mK8sO1yZauehuuJVKYF9b)刘晓明讲话链接：[http://www.chinese-embassy.org.uk/chn/dsxx/t1744193.htm](http://www.chinese-embassy.org.uk/chn/dsxx/t1744193.htm)
-而当转向国内关于英国的报道时，中共立即用完全不同的态度来宣传批评英国进行拉仇恨。
-![](https://lh5.googleusercontent.com/qsRM7e7prVfQ5PJBB21kvn5fEFI2M72uf03smlSUaMQhFV19_u5SVumGkqbL90NDsrRgHkA6SIqwN_U2Wh67S-KyTIfSkNjwyMY0Cx17PiQ3W4UFD-IHjBylNDKgj4S39H5fb8xh)文章链接：[https://mil.sina.cn/2020-07-20/detail-iivhuipn4144569.d.html](https://mil.sina.cn/2020-07-20/detail-iivhuipn4144569.d.html)
-大家可以注意到，英文原文报道的是“中国共产党\*\*\*\*\*施加影响”，但到了新浪网转述《每日邮报》对共产党的报道时，则变成了“反华潮”，其目的就是要把共产党和华人划上了等号，在民众脑子里植下“中共就是中国人，共产党代表中国人”的观念，这样的例子比比皆是。
+中共在海外渗透数十年，已经深入西方世界的骨髓，无孔不入。这次疫苗事件的背后就是中共的黑手。全世界的精英为了中共给他们的一点钱，配合中共在全世界搞病毒、卖假疫苗，完全无视道德底线，对上天没有一点尊敬，对生命没有一丝怜悯。这样黑白颠倒的日子该结束了。
 
-**事例二：中共媒体避重就轻，歪曲外媒报道**
-![](https://lh4.googleusercontent.com/vhY-09C8X4KpojDXv25FeHKCDNg8E-IkDUq624ckGgUYLgOcJu30_6gk7XT6wrnSSu-YyvEbhxPCY_VOlb523FptygngLM2blYTcS6YUWkBi4SiT-goH5k2O6493QcMsti7MlAeZ)原文链接：[http://column.cankaoxiaoxi.com/2020/0716/2415744.shtml](http://column.cankaoxiaoxi.com/2020/0716/2415744.shtml)
-中共在国内的宣传口径一向都是将西方国家描述为中国人民的“敌人”。从中共所谓严肃报刊《参考消息》的报道中我们可以明显看到，中共为了在国内民众眼里塑造一种“不畏西方国家“的“正面形象”，一反其外交部在国外友好的形象，用尽了蔑视的语气对英国进行评论，将英国矮化比作美国的小弟。
+然而这次疫苗的灾难还没有结束，病毒带来的次生灾害才刚刚开始，全人类在过去几十年享受中国人民廉价、没有人权的劳动力，纵容中共胡作非为，付出的代价就是病毒带来的一系列灾难。虽然我们不希望这些事发生，但这是不可避免的，是上天给人类的惩罚。我们每个战友在这场灾难中都是上天派来度人的使者，不做行尸走肉，抗争不分先后，传播真相不管黑夜白昼，唤醒所有能唤醒的人。
 
-但具体看英国《卫报》的内容却是与《参考消息》大相径庭。《卫报》指出英国一开始是接受华为参与其5G建设的，后来拒绝华为完全是在首相约翰逊新冠病毒康复后，出于国家安全的考虑而为之。我们都知道，中美贸易战早在2018年就开始了，要是英国真的是美国的小弟，为什么要在2020年2月份时接受华为加入其5G建设呢？但国内的报道将重心偷偷转换成英国是软骨头的形象，却从来不提华为是中共军企业的背景，也更不敢讨论华为对其他国家带来的国防安全隐患问题。
+原文翻译：
 
-**事例三：带风向评论西方人或事，误导民众以拉仇恨**
-![](https://lh3.googleusercontent.com/8_M4wCT96ZWmzYObUfCV09DrqfidoCmTm3-C96gOD1pnd4Xy1NgBadV51Q82Lm8VGmk8etpzKqr8rsCrSQFP77b1aTa7KfqVI1WJXpoGBAz1KZYn2QUTRQnf-hOsw-gH4iBbTfTC)报道链接：[https://www.guancha.cn/internation/2020\_07\_22\_558622.shtml](https://www.guancha.cn/internation/2020_07_22_558622.shtml)
-国内另一所谓严肃媒体的《观察者》曾对英国《泰晤士报》有关抖音的一篇报道发表了评论，文章前面引用了《泰晤士报》原文，但重点都放在英媒如何把抖音描述成为一个和华为一样的对英国的国家安全威胁，随即展开评论，直接开始了针对批评抖音的英前保守党领袖伊恩的批斗。《观察者》将伊恩比作“英国政界中反华的急先锋”，而且还故意加黑字体。总之就一个思想：西方无论什么人， 只要是批评华为和抖音的，就是和中国人过不去，再一次将中共和中国人划上了等号，绑架全体中国人，要中国人去仇视任何批评中共的外国人。然而现实中，有多少中国人真的了解华为和抖音的真实军方背景呢？不明真相的人很容易陷入中共的舆论陷阱。
+# **中共病毒，中共疫苗？：中国共产党泄露的文件证实辉瑞，阿斯利康制药雇佣123名共产党员**
 
-只会看中共媒体的华侨其实内心都是非常爱国的，都希望他们曾经的祖国强大，中共正是利用了这一点，一方面操控媒体宣传中国在中共领导下不断强大，另一方面却鼓吹西方要遏制中国的“崛起”，丝毫不提中共的全球霸权野心，造成无法了解中共真实嘴脸的华侨默认了中共代表中国和中国人。
+中国共产党员已经渗透了辉瑞(Pfizer)和阿斯利康制药(AstraZeneca)，这两家公司是制作中共病毒疫苗的先锋。
 
-中共不但掌握国内宣传机器，国外不少西方媒体在金钱的操纵下也沦为了中共的大外宣。只有打破中共的防火墙，摆脱中共的金钱操控，包括中国人在内的全球各国人民才能真正了解共产党对世界的野心和危害，中国人才能真正摆脱被洗脑被绑架的境遇。我们坚信，随着灭共战火的愈演愈烈，爆料革命的GTV、GNEWS等各种平台一定会成为越来越多人了解真相的重要渠道，成为在思想上解放中国人的不二途径！
+[!\[\]()!\[\](https://spark.adobe.com/page/7paBStUPn3d3G/images/1aa4d63d-b871-48bc-9201-3329ce053fa6.jpg?asset_id=c07597ea-167a-486c-9f81-f6f3e0d07a38&amp;img_etag=%225f544f09e9f7644b4b6bb624eeef64f4%22&amp;size=2560)](https://spark.adobe.com/page/7paBStUPn3d3G/images/1aa4d63d-b871-48bc-9201-3329ce053fa6.jpg?asset_id=c07597ea-167a-486c-9f81-f6f3e0d07a38&amp;img_etag=%225f544f09e9f7644b4b6bb624eeef64f4%22&amp;size=1024)
 
+一份泄露195万共产党员名单的列表中明显包含了许多在生活在西方并且在政府或者顶尖企业就职的人，其中包括123名制药巨头辉瑞和阿斯利康制药的员工。这两家公司目前都在研发中共病毒疫苗。
 
+正如《国家档案》之前所报道的，今年早些时候，一份包含将近200万党员名单的列表被泄露到英国、澳大利亚、比利时和瑞典的国际媒体上。该列表包含目前生活在西方的共产党员名单，包括在英国政府、顶级军方、金融和医疗公司的雇员。
 
-（本文仅代表作者观点）
+英国《每日邮报》证实一份“详细分析”，现在“显示医药巨头辉瑞和阿斯利康制药两家研发中共病毒疫苗的公司——雇佣了总共123名共产党员”。
 
-作者：Katniss
+***《每日邮报》指出：***
 
-校对：沙拉猫
+顺便说一句，这种威胁不光是针对他们的公司形象，也不是针对我们国家的道德标准，这是一种国家安全威胁。例如波音、空客、泰雷兹集团和劳斯莱斯都在我们的空军装备生产中扮演重要角色。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/7paBStUPn3d3G/images/a0d55f8f-af00-451f-88c2-d168a3f05d18.jpg?asset_id=cd995f49-deec-4956-af4e-08fc63f364d7&amp;img_etag=%22e203160e9c307d367b6a3475138cd083%22&amp;size=2560)](https://spark.adobe.com/page/7paBStUPn3d3G/images/a0d55f8f-af00-451f-88c2-d168a3f05d18.jpg?asset_id=cd995f49-deec-4956-af4e-08fc63f364d7&amp;img_etag=%22e203160e9c307d367b6a3475138cd083%22&amp;size=1024)
+
+他们生产一些最高端的武器并且被授权为我们最敏感的资产和设施的绝密设计提供保护。但是他们共同雇佣了上百名共产党员，这些共产党员宣誓为党服务高于一切。
+
+其他关键的公司，例如辉瑞、阿斯利康制药和葛兰素史克(GlaxoSmithKline)雇佣了上百名共产党员，授权他们登录内部网络、获取设计信息和供应链资料。
+
+乔·拜登被指在其儿子亨特·拜登的推动下，与中共国建立了有利可图的金融关系，乔·拜登最近赞扬美国食品药品监督管理局(Food and Drug Administration, FDA)授权辉瑞疫苗的决定，称这是“黑暗时期必要的一盏明灯”。
+
+拜登也同疫苗厂家的关键领导人进行了会面，包括来自阿斯利康制药和辉瑞的代表。
+
+近期，《国家档案》报道了国家情报总监约翰·拉特克里夫(John Ratcliffe)指控中共国使用贿赂和敲诈手段威胁美国立法人员施行利于中共国的政策。
+
+另外，一份刚刚新曝光的备忘录将参议员卡马拉·哈里斯（Kamala Harris）牵涉到拜登和中共国的关系中。该备忘录将卡马拉·哈里斯（Kamala Harris）列为拜登家族企业“第一阶段国内合同/项目”的“关键联系人”之一。
+
+[新闻链接](https://nationalfile.com/chinese-virus-chinese-vaccine-ccp-leak-confirms-pfizer-astrazeneca-employed-123-communist-party-members/)
+
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/7paBStUPn3d3G/)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/7paBStUPn3d3G/images/951396f9-23fd-4474-bf23-7d45fa17165e.jpg?asset_id=035b4ee8-a026-4d7b-bad5-8db79a1fadd8&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/7paBStUPn3d3G/images/951396f9-23fd-4474-bf23-7d45fa17165e.jpg?asset_id=035b4ee8-a026-4d7b-bad5-8db79a1fadd8&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0
