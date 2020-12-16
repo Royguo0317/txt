@@ -1,144 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 150张“以画灭共”作品，给战友提供足够灭共弹药&#8212;-“以歌灭共”，“以酒灭共”，咱还有“以画灭共”
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/654324/)
+## “美国优先”永远是未来最重要的考量
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/654996/)
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003456/0771f00c-d863-4a0e-a0b3-4e3d4bd0409a.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003502/990.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003512/75173a41317a6e9a.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003537/image0-2-9-scaled.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003606/image0-1-15.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003618/image0-1-1-3.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003627/image0-1photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003647/image0-2-10.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003704/image0-2-3.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003721/image0-2photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003742/image0-3-9.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003752/image0-3-2.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003803/image0-3photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003818/image0-4-4.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003826/image0-4photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003841/image0-5-5.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003851/image0-5-1.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003900/image0-5photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003918/image0-6-6.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003927/image0-6-1.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003938/image0-6photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003956/image0-7-7.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004006/image0-7-1.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004019/image0-7photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004033/image0-8-3.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004042/image0-8photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004055/image0-9-3.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004101/image0-9photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004113/image0-10-1-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004120/image0-10photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004133/image0-11-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004139/image0-11photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004151/image0-12-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004159/image0-12photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004207/image0-13photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004218/image0-14-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004226/image0-14photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004645/image0-15-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004656/image0-16-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004707/image0-17-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004715/image0-17photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004727/image0-18-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004735/image0-18photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004746/image0-19-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004753/image0-19photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004804/image0-20-3.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004810/image0-20photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004821/image0-21-3.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004829/image0-22-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004837/image0-22photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004844/image0-23-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004852/image0-24-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004858/image0-24photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004912/image0-25-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004924/image0-26-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004935/image0-27-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004944/image0-28-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004952/image0-29-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005002/image0-30-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005340/image0photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005417/image1-1-21.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005425/image1-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005434/image1-3.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005509/image1-1-22.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005549/image1-1-23-scaled.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005559/image1photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005605/image02.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005616/image018.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005624/image020.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005633/image024.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005640/IMG_3512.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005648/IMG_3532.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005656/IMG_3546.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005703/IMG_3547.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005711/IMG_3555.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005718/IMG_3561.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005726/IMG_3567.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005733/IMG_3570.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005741/IMG_3572.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005749/IMG_3602.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005759/IMG_3606.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005809/IMG_3759.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005817/IMG_3776.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005823/IMG_3782.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005829/IMG_3787.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005836/IMG_3854.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005843/IMG_3863.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005849/IMG_3926.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005855/IMG_3927.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005901/IMG_3938.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005907/IMG_3992.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005915/IMG_4012.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005923/IMG_4048.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005930/IMG_4052.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005940/Screen-Shot-2020-09-19-at-1.11.25-AM.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005955/Screen-Shot-2020-09-20-at-3.53.31-PM.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16010014/Screen-Shot-2020-09-20-at-7.36.21-PM.png)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16020113/1-107.png)
+川普2020年竞选战略高级顾问史蒂夫•科尔特斯（Steve Cortes）表示，面对2020美国总统选举盗窃案，美国人首先要考量的还是川普总统所提倡的「美国优先」的利益及未来。虽然在这场大选舞弊的战斗中，美国人必须要集中精力对抗选举舞弊中可能遭受的挫折，其中包括不幸被本该公正的法院迴避处理及摇摆州无能的政府领导人对汙点选票的无意确认。然而美国人必须更确切地洞察现实可能带来的影响，然后确认为了推动“美国优先”运动的未来而做出的最积极正面的方向。
 
+首先，无论未来几周發生甚麽事，美国人都必须坚定地相信正义及真理，并且拒绝失败主义。如果乔･拜登在几周内宣誓就职美国总统,那麽可以确定，两个选举体系早已扭曲变形，才会让舞弊大行其道。
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002412/2-23.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002431/3-11.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002436/909090-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002442/EiITkHLVgAAM4Q1-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002451/image0-copy-2-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002601/image0-copy.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002608/image0-1-copy-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002612/image0-1-copy.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002638/image0-1-14.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002655/image0-2-7.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002712/image0-3-8.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002724/image0-4-3.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002737/image0-5-4.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002751/image0-6-5.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002808/image0-7-6.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002818/image0-8-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002829/image0-9-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002838/image0-10-1-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002846/image0-11-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002855/image0-12-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002905/image0-13-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002915/image0-14-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002924/image0-15-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002933/image0-16-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002951/image0-18-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003000/image0-19-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003013/image0-20-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003023/image0-21-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003031/image0-21photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003039/image0-23photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003048/image0-25-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003057/image0-26-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003310/image1-1-20.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003319/image028.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003327/IMG_3612.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003334/IMG_3614.jpg)
+第一个是来自于不公正的政府官员的欺骗。他们利用“中共病毒流行病的大爆發”掩盖了大规模、非法及违宪破坏的投票程序，这些对流程的误导导致无法解释清楚的深夜暂停计票，之后却出现拜登的统计上难以置信的投票高峰，再加上大量可被验证的欺诈行为，种种迹象显示政府官员的不作为及欺诈行为
 
+第二个对选举完整性的攻击是利用了美国情报界同侪，企业媒体和一些不只在美国、在世界的资讯科技产业也佔有龙头地位的“Big Tech”，如在美国信息技术中最大、最具主导地位的公司亚马逊公司、苹果公司、谷歌、脸书和微软。当整个竞选活动的最大谎言在十月藉由《纽约邮报》揭露时，这些有权势的团体公然隐瞒了中国共产党向拜登卡特尔输送高达数百万美元利益的真相，其中还包括乔･拜登本人作为“大傢伙”(big guy)从中获利的可信证据。
 
-2+
+前中央情报局局长约翰•布伦南（John Brennan），美国有线电视新闻网（CNN）首席执行官杰夫•扎克（Jeff Zucker）和推特（Twitter）首席执行官杰克•多尔西（Jack Dorsey）等一些有实力的机构霸主很大程度上成功地抹黑川普，完全无视事实并掩盖了这一爆炸性的新闻。这些人正是与多年来沉浸于想像川普”勾结”俄罗斯“通俄门幻想的同一批人，他们毫无掩饰的在公开场合粗鲁地彼此勾结以操纵2020年大选。
+
+但是，尽管他们存在着如此渎职的行为，川普所倡导的“美国优先”运动也不能因此而沦为意志消沉的空谈。可以肯定的是，最近几週發生的许多事件的确让美国爱国者有挫败感，对美国的宪法及生活方式也存在着真实的威胁。但是，美国人必须痛苦地意识到一点：“美国人在美国社会中努力的数十年的法治制度已腐朽！”左派长期巧妙地發挥作用，成功地利用了美国从传统媒体到学术界再到娱乐圈的关键影响力。因此，我们无法合理地期望我们的美国能够迅速恢復到以往的优势。
+
+所谓的菁英统治阶层是从2016年之前的全球主义和文化虚无主义中受益最大的一群人，他们显然不会优雅地放弃权力。如果这些长期的政治阶级可以成功地非法任命乔•拜登为总统，那麽属于这个捍卫美国宪法及人民民主自由的阵营就不该屈服于对「美国优先」运动不利的悲观主义。
+
+具体来说，以下是维持“平民主义与国家主义”并且加速復兴美国的三种方法：
+
+**1.继续战斗**
+
+继续争取法庭实际判决或利用新闻媒体来影响法庭判决。接下来的几周对于诉讼人和媒体来说都会是忙碌的，川普阵营将持续对11月3日总统选举所發生的全民投票系统性的骗局进行辩论。即使该努力仍无法阻止2021年1月20日正午的拜登就职典礼，但川普阵营现在的活动也为未来几年的美国復兴奠定了良好的基础。
+
+另一方面，川普总统不应对偷窃总统大选的小偷拜登及哈里斯表示任何尊敬。川普阵营必须团结以便赢得佐治亚州美国参议院的决胜投票。许多桃州民族主义者对他们的州共和党官员布拉德•拉芬斯珀格(Brad Raffensperger)声称川普的支持者是被误导的行为感到震惊，但是将美国参议院的控制权交给民主党现任参议员少数党领袖查克•舒默(Chuck Schmer)也是在惩罚美国，只是与佐治亚州州秘书布拉德•拉芬斯珀格(Brad Raffensperger)那样没肝没肺的州共和党公职人员又有所不同。共和党不能冒险，因为民主党控制的参议院在立法中可能做出激进而无信仰的改变，譬如华盛顿特区的法院重组方案(court packing)，开放边界和国家主权的流失。
+
+**2.对中共及拜登关係的忠告**
+
+现在，即使是同谋的主流媒体也承认拜登家族成员是真正的危险的犯罪。大家请注意，强有力的证据显示，乔•拜登本人正是这些有着叛国本质、属于黑钱计划的参与者和受益者。因此，作为美国国家安全的捍卫者，川普总统必须保护美国，避免美国落入其最危险的敌人“中国共产党”通过买收作假扶持上去的领导人之手。如果被揭穿，拜登将在阴霾笼罩下就职总统，并且需要独立检察官进行全面的调查审查
+
+**3.「美国优先」候选人的重新招募**
+
+川普总统在这次选举中证明了他的巨大影响力，当川普总统的选票增加了相当1100万的新选票时，他同时还轻鬆的让共和党人从州议会大厦到美国参议院赢得了全美的胜利。与此同时，“美国优先”运动也如火如荼地展开，无论是在人数或者是区域的扩展，都表现出强劲的成长。在佛罗里达州共和党赢得了西班牙裔选民的50％选票，与2016年相比，在深蓝色的洛杉矶县共和党获得了惊人的50万新选票（同时得到4％的保证金）。 为了持续加速“美国优先”这一趋势，必须招募、资助和培训扎实的“美国优先”的候选人，以便掌握2022年在众议院的优势地位。没有人能比川普更好地领导这一平民运动。此外，还必须让认真的候选人有完整装备，以便挑战最近几週在运动中被挤压而失败的许多共和党人，例如佐治亚州州长肯普（Kemp）和全球主义推销者的共和党参议员们，他们呼吁与所谓的拜登总统合作进行大赦。“让我们去芜存菁的让从新共和党脱壳而出！”史蒂夫•科尔特斯（Steve Cortes）慷慨激昂地说。
+
+无论下一任期是2021年1月或是2025年1月开始，坚定地追求这三个目标将使川普总统的第二个任期比他的第一个任期更加成功。无论川普第二任期从哪一天开始，他将继续保持这一运动的核心地位。在接下来的四年中，他会为美国的工人创造历史上最佳的经济环境，并将“美国优先”的事业转变为超越种族、族裔和地域界限的大规模工人运动。美国国家主义的这种有力运动将更为坚定、深刻地面对即将發生的政治挑战及转机，这种繁荣将持续数十年，从而建立一个主权独立，维护经济和权力得以扩张的国家。
+
+**点评:**
+
+美国成熟而稳健的民主制度在经历中国共产党企图染指总统大选、中共病毒肆虐美国之后，不但没被击垮，反而得以浴火重生！川普2020年竞选战略高级顾问史蒂夫•科尔特斯（Steve Cortes）指出的三个方向，分别从法律、政治、平民主义运动为“美国优先“的未来铺路，扎下深厚的基础。对于中国共产党灭亡之后的“中国优先”，同样也可以是“新中国联邦人”洞察先机的提醒。
+
+[原文链接](https://lm.facebook.com/l.php?u=https%3A%2F%2Fthenationalpulse.com%2Fcommentary%2Fcortes-the-future-of-america-first-in-the-face-of-electoral-larceny/)
+
+翻译报道:牛小妹
+
+0

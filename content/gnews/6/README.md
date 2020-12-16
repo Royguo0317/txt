@@ -1,8 +1,12 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/15/2020 白宫发言人 Kayleigh McEnany 打脸媒体对亨特·拜登自相矛盾的报道
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/655206/)
+## 12/9/2020 国务卿蓬佩奥: 中国共产党在校园的最大受害者中，有一些是无辜的中国公民
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/655233/)
+
+12/9/2020 国务卿蓬佩奥: 中国共产党在校园的最大受害者中，有一些是无辜的中国公民。但中共不仅仅只是把中国公民作为他们的标靶，他们也瞄准并试图影响美国学生、教授和学校的管理者。
+
+
 
 By: 【秘密翻译组G-Translators】
 
