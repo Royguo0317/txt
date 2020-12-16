@@ -1,49 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 特鲁多的加拿大何去何从？
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/657172/)
+## 解析中共“地球梦”的现世与幻想
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/657251/)
 
-加拿大多伦多枫叶农场 枫叶小哥
-
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16152718/T-5.jpg)图片来自 CTV News
-美国的总统世纪大选按部就班进入了冲刺阶段，1月20日就职典礼的主人已经没有悬念，川普总统将突破重重黑暗及沼泽地势力，开启第二任任期。作为美国最紧密的伙伴国家加拿大，过去一个月发生的事情让人捏把汗，让我们站在非主流媒体的视角看看它的总理特鲁多。
-
-2020年11月7日，在大选舞弊案的背景下，特鲁多迫不及待地恭喜拜登当选总统1，为其站台的意味明显。我们都知道，亨特·拜登的“硬盘门”事件彻底暴露了拜登家族和中共深度勾结，妄图“赤化”美国，控制全世界的野心，特鲁多是看不见还是假装看不见？
-
-11月19日，鲍威尔（Sydney Powell）大律师公告美国大选舞弊调查进展2，金融大鳄索罗斯（George Soros）就是美国大选投票系统多米尼Dominion Voting System的背后力量，揭开了沼泽地鳄鱼的面纱。
-
-2020年12月13日，调查美国大选舞弊案的林·伍德（Lin Wood）大律师的推文证实3，中共联合美国的Deep State操纵偷窃美国大选；索罗斯和加拿大也卷入其中。作为加拿大总理的特鲁多，有没有参与其中？和背后的共产主义势力CCP有什么不为人知的秘密？
-
-12月11日，一则来源于真相媒体GNEWS.ORG的新闻4：加拿大政府意图训练中共CCP军队。 帮助独裁国家训练军队意味着什么？
-
-2020年美国大选是正义和邪恶之战，未来百年的人类文明的灯塔将再次站立。在这历史的十字路口，特鲁多选择和邪恶的共产主义站在一起，他的命运结局如何？加拿大何去何从？
-
-以下的几则旧闻是不是能帮我们找到更多的蛛丝马迹？
-
-2020年7月24日，特鲁多和索罗斯的照片中不难发现，谁是老师，谁是学生？5
-
-2013年4月10日，特鲁多在Flickr的个人账号贴出其为多米尼投票系统（Dominon Voting System）站台。6
-
-2018年2月23日，一则新闻：特鲁多是古巴已故共产党领导人卡斯特罗的儿子7。这一切难道是巧合吗？
+- 作者：LadyRose
+- 校对：天灭中共777
+- 制图：小木头
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-参考来源：
+**西班牙2020年12月16日电/西喜社——**
 
-1,[https://www.cbc.ca/news/politics/trudeau-congratulates-joe-biden-1.5794006](https://www.cbc.ca/news/politics/trudeau-congratulates-joe-biden-1.5794006)
+随着中共病毒全球进入第二轮爆发，令人翘首期盼的疫苗终于来了；于是世界人民尽管疼得是龇牙咧嘴，也都拿出壮士断腕的勇气，撸胳膊挽袖子但求一针！海外华人微信群更是一片欢腾，民族自豪感陡然提升至全新的高度，看吧！在世界陷入一片哀鸿遍野之时，还要靠我中华科技的解救！中共代表们也纷纷各国走动，大有将此“普世良药”撒遍全球之势，之前的习式“大撒币”已升级为“现世白求恩”才是崭新的国际形象，中共一统地球的梦想似乎已触手可及，我想它们连做梦都会笑醒吧！
 
-2,[https://niagaraindependent.ca/george-soros-and-his-canadian-chess-game-part-3/](https://niagaraindependent.ca/george-soros-and-his-canadian-chess-game-part-3/)
+然尔，对于一个患有“代理型孟乔森氏综合症”【1】的“精神病党”来说，这一切也仅仅是疯子们满嘴的疯话而已。“代理型孟乔森氏综合症”，这个专业变态心理学名词对于普通人来说也许显得相当陌生，这是一种多发生于照顾者（多见于父母、长辈等）通过捏造、夸大甚至对被照顾者投毒促成其对照顾者的依赖的变态心理疾病。虽然说我们并不能真正把一个执政党当作一个病人来做出临床诊断，但对于一个“精神思想”高度统一的执政党来说，也与一个“活人”无异，做一下精神分析是非常必要的！
 
-3,[https://www.vice.com/en/article/n7vzqg/trumps-qanon-lawyer-inspired-even-more-george-soros-disinformation](https://www.vice.com/en/article/n7vzqg/trumps-qanon-lawyer-inspired-even-more-george-soros-disinformation)
+首先，共产党作为中共国的统治阶级，不管它愿意或不愿意都充当了照顾者的角色，而百姓就是它的“被照顾”对象。为了制造老百姓“被照顾”的假象，就必须让人民从心理上对其产生依赖，从骨子里认为“没有共产党，国家就会乱”，把中共对人民的控制和吸血理解为“照顾和恩典”；中共针对各年龄层民众的洗脑工作在此就不做复述了，能突破中共“九层妖塔”重新审视中共政权的人，实在都是真英雄！中共眼中的“顺民”，除了“相信政府、相信党”的红袖箍小脚老太太们，就是规规矩矩还车贷还房贷的劳工一族，面对中共的层层盘剥和压榨，绝不敢说出半个不字，还要主动高唱赞歌！
 
-4,[https://nyulocal.com/new-world-university-justin-trudeau-is-fidel-castros-son-bccf01403a86](https://nyulocal.com/new-world-university-justin-trudeau-is-fidel-castros-son-bccf01403a86)
+其次，“代理型孟乔森氏综合症”的另一个显著特点就是下毒！虽然这些疯子未必是什么化学专业或药剂师出身，但其配制各种引起人身体异样的毒药手艺，那真是手到擒来。在实际病例中，它们会采用各种普通人意想不到的材料，比如除草剂、家用清洁剂、洁厕灵混合各种杀虫剂或其它药物制成他们特有的配方然后不是偷偷掺在食物中就是一本正经的利用长辈或父母身份权威要求被照顾方服用这些“药物”，并且为了保持“疗效”会让对方持续服用。所以说，这次全球的疫情，不就是中共刻意投毒所致吗？而且它们发动了各国潜伏的力量，提前买断各国的医疗用品，再择机把“驰援某地”的物品拿出来表“爱心”；但凡是拿出来白给的，包括各国中共地区代表们所发出的“健康包”，里面都是三无产品的破烂货，目的是为了进一步统计海外华人的身份信息；但凡是拿出来卖的，那都是趁机垄断，赚得盆满钵满。如此“爱心”，试问谁人能消费得起？
 
-5,[https://gnews.org/639940/](https://gnews.org/639940/)
+再来说说，现今横空出世的“疫苗”，大家千万不要忘了，“代理型孟乔森氏综合症”的变态们所擅长的，是制作毒药，而不是解药！控制和削弱被照顾者是这类变态的唯一目的。甭管这“药”是披了哪个国际药厂的外衣，背后东家还是这个“变态党”！它统治地球梦的现世，还要靠在此一举滴！
 
-6,[https://twitter.com/llinwood/status/1338219546684121089](https://twitter.com/llinwood/status/1338219546684121089)
+最后，让我们来谈一谈“代理型孟乔森氏综合症”的控制欲到底有多强？相信很多人都看过《流浪地球》这部中共国产“科幻大片”，在我看来，这就是一部中共洗脑片，电影充分展示了一个典型的“代理型孟乔森氏综合症”患者病入膏肓的“终极幻想”。电影中的未来所示，当地球上只剩下这个中共变态者时，它便会不遗余力地抱着“杀出”整个银河系也要找到你的决心，不惜给残破的地球装上火箭发动机，来奋力地挣脱一切“束缚的引力”，去找到你！！！总之就是就算你已经展开全新的生活，或者就算你已经开始和过去的一切进行了切割，但它就是要“死缠烂打”这种关系；而且它还要表现的特别“有情怀”，因为有“英雄们”为了找到你而被牺牲了！当然这笔新债肯定要算在你的头上，且还要用于“继续”加强“新关系”上。总之，当我看完这部电影，啥科幻，我到愣是没看出来，却弄得我非常压抑！！！
 
-7,[https://www.boomlive.in/world/justin-trudeaus-photo-linked-with-dominion-voting-fraud-claims-11074](https://www.boomlive.in/world/justin-trudeaus-photo-linked-with-dominion-voting-fraud-claims-11074)
+尤其是看到电影中的吴京，眼含热泪去赴死，我只想对他说：谢谢你，小同志！你“牺牲”的唯一的价值，就是响应了习主席节约的号召，为中共省了一笔关键的口粮啊！！！
+
+- 参考资料：
+
+
+- 1 [https://zh.wikipedia.org/wiki/代理型孟喬森症候群](https://zh.wikipedia.org/wiki/代理型孟喬森症候群)
+- 2 [https://en.wikipedia.org/wiki/Run\_(2020\_American\_film)](https://en.wikipedia.org/wiki/Run_%282020_American_film%29)
+- 3 [https://zh.wikipedia.org/wiki/利器\_(電視劇)](https://zh.wikipedia.org/wiki/利器_%28電視劇%29)
+- 4 [https://zh.wikipedia.org/wiki/惡行\_(電視劇)](https://zh.wikipedia.org/wiki/惡行_%28電視劇%29)
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0

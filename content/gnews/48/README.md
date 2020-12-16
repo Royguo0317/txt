@@ -1,43 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 谈密执安州法官的勇敢行为
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/656687/)
+## 班农作战室WARROOM精选583 期
+` XMLYG777` [轉載自GNews](https://gnews.org/zh-hans/656808/)
 
-作者：此心不变；校对：宁缺；审核：海阔天空；Page：拱卒
+供稿：VOG班农译制组
 
-[!\[\]()!\[\](https://spark.adobe.com/page/COqzXfePmcMkO/images/8a0a6d59-cdb9-4dbe-bd66-ffef81ad9d7b.jpg?asset_id=faa122e2-351f-4d25-8af2-fa82013c0c0a&amp;img_etag=%22b8f42139fd588efb8cbfcbf69ea10824%22&amp;size=1024)](https://spark.adobe.com/page/COqzXfePmcMkO/images/8a0a6d59-cdb9-4dbe-bd66-ffef81ad9d7b.jpg?asset_id=faa122e2-351f-4d25-8af2-fa82013c0c0a&amp;img_etag=%22b8f42139fd588efb8cbfcbf69ea10824%22&amp;size=1024)
-
-密执安州法官授予律师Matt DePerno许可发布Antrim Co.的16台Dominion投票机的法医检查结果：
-
-1. 经过查证，机器错误率高达68.5%；
-2. 有些不正式的票需要裁决，但是没有这个裁决的纪录；
-3. Dominion机器被发现曾经与互联网连接过，这是违法的；
-4. 还发现有一个user进入Dominion机器意图修改过结果。
+- 
 
 
-**新闻来源：**[https://www.thegatewaypundit.com/2020/12/breaking-bombshell-mi-judge-grants-attorney-matt-deperno-permission-release-results-forensic-examination-16-dominion-voting-machines-antrim-co-video/](https://www.thegatewaypundit.com/2020/12/breaking-bombshell-mi-judge-grants-attorney-matt-deperno-permission-release-results-forensic-examination-16-dominion-voting-machines-antrim-co-video/)
+这都是密不可分的，我们说了这么多年的中共在西方渗透的问题。记住喽我们这里的问题不仅仅是中共的问题，而是那些积极与中共合作 为中共工作的人。而现在你看到拜登的所有这些事 那就要问个为什么了？是不是为什么巴尔在2019年12月拿到这个硬盘的时候，没有立即对这个事情采取行动。
 
-这真是巨大的好消息，虽然目前还不知道最后的结果对2020年大选的影响力会有多大。因为恶势力完全不顾一切耍流氓，他们对正常人的胡搅盲缠和极端恐吓会严重扭曲司法公平正义。
+不用花很大力的嘛，杰克•麦克斯知道要深挖这一点，探究里面到底是怎么回事他可以很快确定。因为纽约邮报 还有很棒的技术团队在那里，律师也在那里 他就明白那里有什么风险 。 并明白这是真正的交易，这些都是收据 因为我们说这是谎言在国家安全机关里。这帮人在总统川普问题上和俄罗斯问题上都撒谎，这帮人上来拿着《华尔街日报》上的一个广告说这是俄罗斯的抹黑运动。这是谎言 ，好吧这不是错误这是谎言
 
-这个法官在恶势力的重压之下，能迅速做出这样勇敢的决定，伟大之极，让人钦佩。这个结果不仅能让密执安州将那几个以恐吓为手段阻扰公布结果的恶人定罪，而且还能佐证在这次大选中所有dominion机器都涉嫌欺诈。在调查过程中，密执安州总检察长十分疯狂，一度威胁要吊销这个律师的执业执照。
+这是一个赤裸裸的谎言和派去那里的这些人都是撒谎者。他们是美国国家安全的威胁
 
-此项检查结果公布后，按照法律的要求，所有使用该dominion机器的州都不应该认证拜登，否则就是犯法，并且所有使用过dominion机器的州应该对该州的所有dominion机器进行检测，以确定是不是同样存在欺诈。别看它是个小case，虽然只是一个居民通过他的律师告了dominion机器的欺诈行为，也许最后能掀起巨大层浪，把整个选举结果推翻。Attorney Matthew DePerno 律师经州法官授权亮出证据，证明该州的投票机将投给川普的票翻转到拜登名下
+为什么 因为这帮人中的布伦南一直都是睁一只眼闭一只眼。听着这是我的不满，我是一名前海军军官对吧。我相信国家安全  这是我对国家安全情报机构的不满，他们总是出错 他们搞错了911事件。是的， 是有那么几个人在那儿说 但他们实质上搞错了911事件。对吧 ，错了 ，对吧。
 
-在美国，我们经常看到的都是一个一个个体的行为，一个小村民，一个小律师，去对抗整个Deep State。川普总统同样也是一个人，他没有动用国家机器，而是请他的律师团队帮他打不同的官司。这些律师也是个人的组合，跟小村民、小律师一样，这些个体在自己勇敢无畏的行动中，完整地体现了生命的意义和生命的本质。而每一个个体这样勇敢的行动，却能产生巨大的惊涛骇浪的效果。
+他们搞错了伊拉克战争 大错特错，他们在阿富汗所干的一切都错了。他们在让中共崛起，成为我们这个共和国的历史上最大的生存威胁这一问题上，完全错了。
 
-所以，对于我们每一个人来说，我们都需要认识和尊重自己独一无二的存在，并能够独立地去认识世界，认识天理，并通过勇敢的行动去践行天理，这样我们就能够改变世界、与天同行、与神同行。
+让我看看他们赢在哪里，让我看看他们哪里做对过，让我看看他们在什么重要的事情上做对过。你知道 当他们提出安全简报的时候，我经常让他们恼怒。为什么这是个机密呢，会让他们抓狂 为什么这是个机密。他们是有料的，如果你读了《金融时报》《经济学家》，还有一些国防网站对吧。除了对一些有趣玩意的照片的八卦外，并没有很多深度聪明的分析。海瑟 ，嗯他们什么都错了。他们搞错了是什么导致了911事件。有几个论调 我说那些机构都错了，我们措手不及珍珠港式的攻击。
 
-不知道川普总统是否拿到了这个得到法律背书的法医检查报告。希望这份报告尽早发给总统、副总统、国土安全部、国家情报中心，让正义早日得到彰显！
+他们错得很离谱，实际上是在伊拉克战争问题上撒谎和歪曲事实。顺便说一YouTube又在这个基础上添加了一个。情报机构的官方版本 是谎言 歪曲和无能，是的就像肯尼迪暗杀案一样。
 
-【文章仅代表作者观点】
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/COqzXfePmcMkO/)
-[!\[\]()!\[\](https://spark.adobe.com/page/COqzXfePmcMkO/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/COqzXfePmcMkO/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0
