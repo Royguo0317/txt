@@ -1,144 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 150张“以画灭共”作品，给战友提供足够灭共弹药&#8212;-“以歌灭共”，“以酒灭共”，咱还有“以画灭共”
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/654324/)
+## 最新报道：SolarWinds奥斯汀总部被突击搜查——关于首席执行官和执行副总裁的更多新闻（更新）
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/655008/)
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003456/0771f00c-d863-4a0e-a0b3-4e3d4bd0409a.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003502/990.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003512/75173a41317a6e9a.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003537/image0-2-9-scaled.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003606/image0-1-15.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003618/image0-1-1-3.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003627/image0-1photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003647/image0-2-10.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003704/image0-2-3.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003721/image0-2photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003742/image0-3-9.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003752/image0-3-2.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003803/image0-3photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003818/image0-4-4.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003826/image0-4photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003841/image0-5-5.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003851/image0-5-1.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003900/image0-5photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003918/image0-6-6.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003927/image0-6-1.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003938/image0-6photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003956/image0-7-7.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004006/image0-7-1.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004019/image0-7photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004033/image0-8-3.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004042/image0-8photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004055/image0-9-3.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004101/image0-9photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004113/image0-10-1-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004120/image0-10photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004133/image0-11-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004139/image0-11photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004151/image0-12-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004159/image0-12photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004207/image0-13photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004218/image0-14-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004226/image0-14photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004645/image0-15-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004656/image0-16-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004707/image0-17-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004715/image0-17photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004727/image0-18-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004735/image0-18photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004746/image0-19-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004753/image0-19photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004804/image0-20-3.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004810/image0-20photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004821/image0-21-3.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004829/image0-22-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004837/image0-22photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004844/image0-23-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004852/image0-24-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004858/image0-24photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004912/image0-25-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004924/image0-26-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004935/image0-27-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004944/image0-28-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004952/image0-29-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005002/image0-30-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005340/image0photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005417/image1-1-21.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005425/image1-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005434/image1-3.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005509/image1-1-22.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005549/image1-1-23-scaled.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005559/image1photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005605/image02.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005616/image018.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005624/image020.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005633/image024.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005640/IMG_3512.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005648/IMG_3532.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005656/IMG_3546.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005703/IMG_3547.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005711/IMG_3555.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005718/IMG_3561.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005726/IMG_3567.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005733/IMG_3570.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005741/IMG_3572.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005749/IMG_3602.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005759/IMG_3606.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005809/IMG_3759.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005817/IMG_3776.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005823/IMG_3782.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005829/IMG_3787.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005836/IMG_3854.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005843/IMG_3863.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005849/IMG_3926.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005855/IMG_3927.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005901/IMG_3938.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005907/IMG_3992.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005915/IMG_4012.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005923/IMG_4048.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005930/IMG_4052.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005940/Screen-Shot-2020-09-19-at-1.11.25-AM.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005955/Screen-Shot-2020-09-20-at-3.53.31-PM.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16010014/Screen-Shot-2020-09-20-at-7.36.21-PM.png)
+作者：吉姆·霍夫特（Jim Hoft ）
+发布日期：2020年12月14日；下午：7:02
+翻译：康州盘古农场-Bruce
+校对：康州盘古农场-光头波波
+审核：康州盘古农场-V
 
+昨晚，网络安全和基础设施安全局（CISA）针对已知的涉及SolarWinds Orion产品的泄密事件，罕见地发布了[21-01号紧急指令](https://www.thegatewaypundit.com/2020/12/breaking-big-cisa-emergency-directive-calls-federal-civilian-agencies-review-compromise-disconnect-power-solarwinds-orion-products-immediately/?ff_source=Twitter&amp;ff_medium=PostTopSharingButtons&amp;ff_campaign=websitesharingbuttons)。
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002412/2-23.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002431/3-11.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002436/909090-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002442/EiITkHLVgAAM4Q1-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002451/image0-copy-2-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002601/image0-copy.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002608/image0-1-copy-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002612/image0-1-copy.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002638/image0-1-14.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002655/image0-2-7.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002712/image0-3-8.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002724/image0-4-3.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002737/image0-5-4.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002751/image0-6-5.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002808/image0-7-6.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002818/image0-8-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002829/image0-9-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002838/image0-10-1-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002846/image0-11-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002855/image0-12-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002905/image0-13-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002915/image0-14-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002924/image0-15-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002933/image0-16-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002951/image0-18-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003000/image0-19-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003013/image0-20-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003023/image0-21-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003031/image0-21photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003039/image0-23photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003048/image0-25-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003057/image0-26-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003310/image1-1-20.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003319/image028.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003327/IMG_3612.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003334/IMG_3614.jpg)
+这只是CISA根据国会在2015年《网络安全法》中授予的权限发布的第五条紧急指令。
 
+CISA报告了SolarWinds Orion产品的漏洞。
 
-2+
+该紧急指令呼吁所有联邦民用机构审查其网络是否存在泄密迹象，并立即断开或关闭SolarWinds Orion产品的电源。
+
+趋势：爆炸性新闻：密歇根州法官批准马特-德佩尔诺律师公布安特里姆公司16台多米尼克投票机的法医检查结果。[视频]
+
+猜猜谁在使用SolarWinds？
+
+多米尼投票系统（Dominion Voting Systems） 使用 SolarWinds 產品。
+
+在他们的[网站](http://dvsfileshare.dominionvoting.com/Web%20Client/Mobile/MLogin.htm)上就有。
+
+今天下午汉尼提节目的一位嘉宾告诉这位受欢迎的保守派主持人, 联邦调查局、美国法警和德州巡警正在突袭位于德州奥斯汀的SolarWinds总部！
+
+嘉宾汉尼迪：这种类型的木马病毒会影响到国家甚至是世界，相关负责监察的机构，应该找到它们，但是，他们都“睡着了”。他们并没有发现该木马病毒从三月份就开始扩散。我有一个突发新闻要告诉你，肖恩。我在德州，我有个好朋友是个巡警，他告诉我联邦调查局，德州巡警和美国法警都正在位于德克萨斯州奥斯汀市的太阳能风公司总部，他们正在非常严肃仔细的审查该公司的系统… 同时，马上会有关于公司首席执行官和执行副总裁的消息。
+
+*【推文】[email protected]*
+
+*来自BREAKING @seanhannity广播节目的嘉宾：“联邦调查局，德州巡警和美国法警都在德克萨斯州奥斯汀的SolarWinds总部办公”，他们在研究系统。注意！执行副总裁在11月9日卖出了57,000股[120万美元]。首席执行官凯文·汤普森（Kevin Thompson）在10天后售出了70万股[1500万美元]*
+
+*【推文】*
+
+*TheSharpEdge*
+*@TheSharpEdge1*
+*关于主要的SolarWinds网络安全威胁…*
+*这是必须听的。*
+*声音开启：*
+[https://radio.com/talk1370/listen](https://radio.com/talk1370/listen)
+
+**郑重声明**——我们一直在寻找更多关于这次所谓突袭的信息，并联系了奥斯汀的朋友，但还没有确认这次事件。
+
+**更多关于SolarWinds攻击的消息。**
+
+[Krebs on Security](https://krebsonsecurity.com/2020/12/u-s-treasury-commerce-depts-hacked-through-solarwinds-compromise/)报道了此次攻击事件。
+
+在一份[安全咨询报告](https://www.solarwinds.com/securityadvisory)中，总部位于德克萨斯州奥斯汀的SolarWinds承认其系统 “SolarWinds Orion在2020年3月至2020年6月期间发布的软件平台（版本从2019.4 HF 5至2020.2.1），经历了高度复杂的供应链攻击(manual supply chain attack)。”
+
+为了应对针对财政部和商务部的入侵，国土安全部的网络安全和基础设施安全局（CISA）采取了不寻常的步骤，发布了一项紧急指令，命令所有联邦机构立即将受影响的Orion产品从其网络中断开。
+
+原文链接：https://www.thegatewaypundit.com/2020/12/breaking-fbi-texas-rangers-us-marshals-raid-solarwinds-hq-austin/?utm\_source=Twitter&utm\_medium=PostTopSharingButtons&utm\_campaign=websitesharingbuttons
+
+0
