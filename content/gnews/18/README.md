@@ -1,24 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国台办答《国家统一法》提问
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/655802/)
+## 12/16/2020 财经快讯: 俄罗斯削减电力供应, 浙江加工厂全部停产, 菲律宾与中国圣诺华生物技术有限公司洽谈采购COVID-19疫苗
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/655968/)
 
-- 编辑：Victor Torres
-- 素材：七白石
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16082013/Picture10-1.png)图片来源: http://innoplex-agri.org
+1.12月14日，因俄罗斯突然宣布停止对中国30亿度电的供应，浙江当地政府要求许多工厂从即日起至12月31日实施限电，所有加工厂全部停产， 省级有关单位办公区域在气温达到3度及以下时方可开启取暖设备，且最高温度不得超过16℃。
+[https://www.soundofhope.org/post/453556](https://www.soundofhope.org/post/453556)
 
+2.12月14日，一名菲律宾冠状病毒特别工作组官员宣布，菲律宾计划在本周与中共国Sinovac生物技术公司完成谈判，以期获得2500万剂的COVID-19疫苗，并于明年3月获得交付。 菲律宾正在评估Sinovac在该国进行第三阶段临床试验的计划。[https://www.reuters.com/article/health-coronavirus-philippines/philippines-targets-deal-for-25-million-doses-of-sinovac-covid-19-vaccine-idUSKBN28O10G](https://www.reuters.com/article/health-coronavirus-philippines/philippines-targets-deal-for-25-million-doses-of-sinovac-covid-19-vaccine-idUSKBN28O10G)
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+3.中共国债务市场是世界第二大债务市场，最近几周遭受了一系列国有企业违约的打击。 证券监督管理委员会12月15日表示，由于东方金诚国际信用评估有限公司不足以支撑开展评级业务的内控及合规管理要求，暂停了该机构的牌照，三个月内禁止开展新业务。 该机构被责令“加强内部控制和合规管理，严格规范业务并提高评级质量”。 该机构管理层声称暂停牌照是出于“政治考量”，迫使其他机构遵守规定。
+[https://www.usa-vision.com/china-suspends-top-credit-rating-agency-as-defaults-hit-market/](https://www.usa-vision.com/china-suspends-top-credit-rating-agency-as-defaults-hit-market/)
 
-**西班牙2020年12月16日电/西喜社/——**
+4.澳大利亚总理斯科特·莫里森周二表示，中共国对澳大利亚煤炭进口的禁令违反世界贸易组织规定，澳洲贸易部长西蒙·伯明翰 (Simon Birmingham) 还表示，中国煤炭禁令是一种“歧视性贸易做法”。 自从十月份中共国要求港口不得卸载澳大利亚煤炭以来，已有超过50艘船只被困。 在被问及该禁令时，外交部发言人王文彬声称中国政府并不知此事，并坚持认为中国一直在依法和国际惯例行事。
+[https://www.bloomberg.com/news/articles/2020-12-14/australia-deeply-troubled-by-reports-of-china-coal-import-ban](https://www.bloomberg.com/news/articles/2020-12-14/australia-deeply-troubled-by-reports-of-china-coal-import-ban)
 
-在12月16日上午，国务院台湾事务办公室举行例行新闻发布会上，国台办发言人朱凤莲回答了记者关于《国家统一法》的提问。
-有记者问，我们注意到国台办账号在12月4日国家宪法日当天发布了一张“国家宪法日，一起来看看宪法关于国家统一的规定”的宣传海报。请问在当前两岸关系形势下，发布这方面的宣传内容是否意味着大陆可能推出《国家统一法》？
-朱凤莲表示，宪法关于国家统一的规定是明确的，我们坚决贯彻执行。我们将采取各种必要措施，坚定推动两岸关系和平发展、推进祖国和平统一进程，坚决地粉碎任何“台独”分裂图谋，捍卫国家主权和领土完整。
-中共在台湾问题上持续施压，此时抛出《国家统一法》的提法，宣称统一是宪法的明确规定，意指包括“武统”在内的一切选项均具备法理基础。
+5.中共党媒《环球时报》周二承认，在中共国开展业务的外国公司很可能会有许多有中共党员背景的员工，但该报坚称外国公司应该为其有这些雇员而高兴，因为这些党员在能力和道德上都很优秀。
+[https://www.breitbart.com/national-security/2020/12/15/chinese-state-media-foreign-companies-bound-to-have-communist-party-members-on-staff/](https://www.breitbart.com/national-security/2020/12/15/chinese-state-media-foreign-companies-bound-to-have-communist-party-members-on-staff/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+By 【Financial Team – Kate】
 
-
-
-0
+5+

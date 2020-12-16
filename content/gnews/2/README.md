@@ -1,49 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵说｜系列图片连载（七十七）
-` GM98` [轉載自GNews](https://gnews.org/zh-hans/656014/)
+## 我申请加入京都富士会
+` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/656197/)
 
-## 533.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16083906/2025-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16084138/4003.png)
-你在美国享受这蓝天白云。你必须尊重这个法律系统，不要有任何侥幸心理。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16091840/%E6%88%91%E7%94%B3%E8%AF%B7%E5%8A%A0%E5%85%A5%E4%BA%AC%E9%83%BD%E5%AF%8C%E5%A3%AB%E4%BC%9A.png)
+作者： Microsoft（京都富士会）
 
-——郭文贵先生 2020年8月21日
+校对： 待命（文晓）（京都富士会）
 
-## 534.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16083941/2027.png)
-一个人没看透生死，看透荣华富贵，解决不了性的需要和金钱的需要，你干不了大事。
+排版： 山頂之風（京都富士会）
 
-——郭文贵先生 2020年8月21日
-
-## 535.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16083956/4001.png)
-永远赢的一定不是战争，永远赢的一定是骗局。哪有你永远赢的时候？
-
-——郭文贵先生 2020年8月21日
-
-## 536.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16084030/4002.png)
-你必须要接受人生是无常的这个事实，你才能说追求信仰，过着与常人不一样的生活。
-
-——郭文贵先生 2020年8月21日
-
-## 537.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16084154/4004-scaled.jpg)
-共产党露出自己的凶器，你就会让世界感觉到恐惧。我相信西方人对付恐惧的办法绝对不是躲起来，他一定是迎头而战，将你这个恐惧的根源消灭！
-
-——郭文贵先生 2020年8月21日
-
-## 538.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16084238/4005-scaled.jpg)
-这个世界上，正在威胁这人类的共产党和共产主义。对正义、对善良、所带来的威胁。我们更加的要坚定灭共，更加要同时看到建造独立的法治系统。多重要！还有我们必须要守法，唯真不破。
-
-——郭文贵先生 2020年8月21日
-
-## 539.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16084250/4006.jpg)
-班农事件更加坚定了我们新中国联邦要的法治、民主、信仰独立的社会。
-
-——郭文贵先生 2020年8月22日
+在我出生的那个年代，正值计划生育这一政策推行。我的妈妈因为生了两个孩子，家里被砸了，妈妈甚至被带走强行做了结扎。此后，发现少了一只卵巢，无处申诉。这使我从小对中共就有不共戴天之仇，但却敢怒而不敢言。当美东农场的Brioni战友告诉我爆料革命后，更是对中共这种邪恶的本质与欺骗的行为极为愤概。所以，有幸了解到新中国联邦以后，我发自内心的非常向往能参与到这场革命当中。虽然我接触爆料革命时间比较短，不过郭先生说抗争不分先后。之前的捐款金额也比较小，但是我申请打钱到农场帮我捐一些。购买gclub对爆料革命应该也是有帮忙的，所以，我申请加入日本京都富士会。恳望批准！
 
 0

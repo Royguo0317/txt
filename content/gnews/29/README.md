@@ -1,49 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵说｜系列图片连载（七十六）
-` GM98` [轉載自GNews](https://gnews.org/zh-hans/655625/)
+## 香港今日“沦陷”—特区政府宣誓效忠
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/655744/)
 
-## 526.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16065234/2019.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16065208/2017.jpg)
-早一点灭共产党，人类可能增加一点确定性，但是灾难不可确定，解药不可能。这是核心的问题！
+- 编辑：Victor Torres
+- 素材：七白石
 
-——郭文贵先生 2020年8月16日
 
-## 527.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16065304/2018.png)
-我们是人类走向新世界，我们是走在最前边的人，我们已经改变了这个世界，谁也改变不了这个事实。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-——郭文贵先生 2020年8月16日
+**西班牙2020年12月16日电/西喜社/——**
 
-## 528.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16065326/2021.jpg)
-班农等和美国有正义、有良知的灭共派，坚定的和我们站在一起，这就是遇难成祥。
+香港特别行政区政府今日（16日）上午在政府总部举行副局长和政治助理宣誓仪式，全体12位副局长和14位政治助理在行政长官林郑月娥见证下，宣誓拥护《中华人民共和国香港特别行政区基本法》，效忠中华人民共和国香港特别行政区。标志着香港自治地位彻底丧失，沦为中共的战利品。
+仪式现场奏唱国歌，各人面向国旗、区旗宣誓。
+除政治委任官员外，香港特区公务员事务局于今年10月发出通告，要求所有在今年7月1日或之后加入特区政府的公务员宣誓或签署声明，作为聘用条件的一部分。公务员事务局会在短期内公布有关要求现职公务员签署声明的具体安排。
+另悉，常任秘书长及部门首长的宣誓仪式将于12月18日举行。
+去年以来，香港人民反抗暴政，反对恶法的斗争从未停止。香港成为了华人心中的一面旗帜，成为了华人世界的“圣城”。
+香港和香港人民感召着我们所有人去战斗，土地虽已沦陷，香港精神长存！
+战斗!我们将夺回香港!
 
-——郭文贵先生 2020年8月22日
-
-## 529.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16065414/4b96c3010c14437e.png)
-客观地对待自己，客观地看待别人，理性地面对事实，而且不能有畸形的心理，就是羡慕妒忌恨，贪、嗔、痴、慢、疑。
-
-——郭文贵先生 2020年8月16日
-
-## 530.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16065443/2026.png)
-我们爆料革命是唯一一个敢说出这是共产党的病毒、人传人的、生化武器的。
-
-——郭文贵先生 2020年8月16日
-
-## 531.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16065526/2022.jpg)
-战友们如果你们，要记住，当你体会到任何一次成功的时候，和你在没干成功之前是完全不一样的。
-
-——郭文贵先生 2020年8月16日
-
-## 532.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16065554/2024-scaled.jpg)
-坚决支持的班农先生继续更加猛烈的，未来这些天，天天去传播真相的，坚决跟班农先生站在一起的，那是生死战友。
-
-——郭文贵先生 2020年8月21日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0

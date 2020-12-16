@@ -1,10 +1,12 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 作战室581期精选 拜登团队不择手段 残疾人的票都坑（粤语配音）
-` WarRoom中文組 文乐` [轉載自GNews](https://gnews.org/zh-hans/652366/)
+## 作战室583期精选 中共在英国的无声入侵（粤语/潮汕话/普通话配音）
+` WarRoom中文組 文乐` [轉載自GNews](https://gnews.org/zh-hans/655793/)
 
-声优：卡尔爱丽丝 
+粤语声优：卡尔爱丽丝
+潮汕话声优：Rainer
+普通话声优：JJM
 制作：WarRoom中文组
-粤语版
+粤语版潮汕话版普通话版
 1+
