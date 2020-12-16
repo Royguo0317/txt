@@ -1,29 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 辉瑞公司CEO解释为什么自己还没有服用COVID-19疫苗
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/652307/)
+## 普京贺拜登赢得大选？
+` XMLYG777` [轉載自GNews](https://gnews.org/zh-hans/654126/)
 
-整撰：文錦
-审核：WLQF
+内新闻：人民公敌 素材：文曲小妹 校对：老蚂蚁666
 
-辉瑞公司CEO阿尔伯特-伯拉（Albert Bourla）周一表示，他还没有服用COVID-19疫苗——但这仅仅是因为他不想被别人认为是行不通的。
+正当2020年美国总统大选舞弊案处于司法诉讼阶段，还未水落石出之时，北京时间12月15日，各大媒体曝出俄国总统普京祝贺拜登赢得大选的消息。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15231637/12.16-1.png)辉瑞公司CEO阿尔伯特-伯拉（Albert Bourla）
+此消息一出，网络一片哗然。有网友联想到不久前，俄罗斯的“末日核战专机”于维护保养之时，该机上极为敏感的通迅设施被窃一事。感到普京祝贺拜登赢的大选极为蹊跷。
 
-《纽约邮报》10月14日报道，Bourla告诉CNN的首席医学记者Sanjay Gupta博士，*“我还没有服用，我们正在让一个伦理委员会处理谁服用的问题，”*。
 
-Bourla指出，疾病预防控制中心已经同意，一线医护人员和养老院的居民和工作人员应该优先考虑。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15232517/unknown-12.png)
+另据中共媒体新浪网11月14日消息，俄罗斯领导人发言人德米特里•佩斯科夫曾对记者表示，今年的美国总统选举与往年不同，一些法律程序正在进行，而那些程序是由现任总统宣布的，因此，普京政府认为等待美国官方宣布结果才是正确的。
 
-“鉴于疾病预防控制中心已经投票通过了非常严格的分配规则，我们非常敏感，不要提前排队接种疫苗，”Bourla说。
+然而，时隔一个月后，当美国大选司法程序仍在进行时，普京就“改口”不等美官宣结果了。这一个月里到底发生了什么事？
 
-但他并没有排除如果能提高对疫苗信心的话，很快就注射疫苗的可能性。”如果CEO接种疫苗，人们会更相信（疫苗的安全性），”他告诉CNN。
+此外，中共官媒环球网、人民网也迫不及待地宣称，普京祝贺拜登当选美国总统，而不是英语的winning u.s. election(赢得大选)｡
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15232620/unknown-1-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15232626/unknown-2-1.png)
+从字面意义看，对普京贺拜登赢选一事的报道，中共官方媒体报道口风比西方媒体似乎更偏向拜登胜选一些。
 
-在美国食品和药物管理局上周五授予该药物紧急使用授权后，美国第一批人周一开始接受该疫苗。长岛犹太医疗中心的重症护士（Sandra Lindsay）在镜头下接受了注射–成为全美第一个接受该疫苗的人。
+普京祝贺拜登赢选，此事出有因极为蹊跷，是普京“失误”？对谁最有利？谁最喜闻乐见？为什么？
 
-**辉瑞公司CEO****对外展现了恪守疫苗分配规则的形象，无论该疫苗的有效性和时效性是否经得起时间的考验，从大选后疫苗的出现导致辉瑞公司股票的震荡，以及乔-****拜登和福奇博士在疫苗问题上显现出积极的态度，加上闫丽梦博士揭示COVID-19****是中共制造的生物武器的有力分析，将这些作为Bourla****解释为何没有打自家公司疫苗的理由似乎更为充分。**
+本文章仅代表本人个人观点。
 
 参考链接：
-[https://nypost.com/2020/12/14/pfizer-ceo-explains-why-hes-yet-to-take-covid-19-vaccine/?utm\_campaign=SocialFlow&utm\_source=NYPTwitter&utm\_medium=SocialFlow](https://nypost.com/2020/12/14/pfizer-ceo-explains-why-hes-yet-to-take-covid-19-vaccine/?utm_campaign=SocialFlow&amp;utm_source=NYPTwitter&amp;utm_medium=SocialFlow)
+[https://k.sina.cn/article\_5527041414\_1496ff58602000or18.html?from=cul(已编辑)](https://k.sina.cn/article_5527041414_1496ff58602000or18.html?from=cul%28已编辑%29)
+[普京领导的俄罗斯是最后一个祝贺拜登获胜的主要国家](http://普京领导的俄罗斯是最后一个祝贺拜登获胜的主要国家)
 
 0

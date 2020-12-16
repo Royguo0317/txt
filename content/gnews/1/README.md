@@ -1,26 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1215】-乔治亚州继续艰辛抗争
-` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/654784/)
+## 富人纷纷逃离，中共病毒带给纽约市前所未有的人口结构变化
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/654741/)
 
-12月15日林伍德律师推文，“乔治亚州政府的州长和州务卿已经永远把头栽进中共的沙子里。司法部应该要求乔治亚州在有法律规程进入时再继续新选举。不能再使用多猫腻投票机。”
+多伦多枫叶农场 文𤦍(Manpui）
+校对 上传 云起时
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16011323/nypost2-2_LI.jpg)图片来源：nypost.com
+每日传讯新闻网（Dailycaller.com）记者马洛·萨菲（Marlo Safi) 于2020年12月15日报导：有钱人正离开纽约市，并带走340亿美元。人口变化可能会对这座以高昂的生活成本闻名的城市产生长远影响。
 
-他强调了 #为真相而反击 的内容。
+据路透社(Reuter)报导，在中共病毒大流行期间，纽约市富有的居民正逃离纽约市。路透社的另一份研究移民趋势报告指出在高收入居民离开时，低收入者正在取代他们的位置。
 
-随后他补充道，“乔治亚州议员  [@KLoeffler](https://twitter.com/KLoeffler) 和 [@sendavidperdue](https://twitter.com/sendavidperdue) 不能找借口反对 。他们是不是想要公平和诚实的选举？”
+位置分析公司 （Unacast）通过分析匿名手机数据研究发现，在1月1日至12月7日期间，有357万人离开了纽约市。 然而，有将近350万的低收入者进入了这座城市，这一进一出，今年离开该地区的人口淨值为7万人。数据显示由于病毒大流行而导致的数月封锁和其他限制之后，纽约人的外逃并没有预期的那麽大。
 
-在按法律规定推进去除舞弊、找回真正选举结果的过程总是曲折和艰辛的，每一步都不易，然每一步都通往成功。美国已经被深度渗透太久太深，赤匪之疾已非凑里。
+位置分析公司首席执行官兼联合创始人托马斯·沃勒（Thomas Walle）说；“在曼哈顿市区一个富裕的社区翠贝卡（Tribeca）一般居民在2020年离开时，平均收入约为14万美元，而现在在这个富裕社区中就职的人的平均收入为82,000美元。这些低收入的人口结构可能需要在城市中使用比较低廉的生活选择，并且将来，出售昂贵，奢侈品的商店可能会被价格更实惠的品牌所取代。”
 
-新闻素材和图片来自林伍德律师推特
+这些收入的损失可能会带来长期的后果，尤其是如果人口的大量减少加剧了收入的损失。
 
+病毒大流行产生相关的问题，纽约市还面临著一波生意倒闭潮，9月的一项调查发现，87％的餐厅，酒吧和夜生活场所在8月份无法付清全部租金，而34％差不多一点都无法付。
 
+由于担心疫情会改变购买者的偏好，曼哈顿的房地产销售额在7月份经历30年来最大的跌幅。 地产经纪说，租赁市场将面临最紧迫的压力，因为租房者可以轻易离开这座城市。
 
-> There is NO EXCUSE for [@KLoeffler](https://twitter.com/KLoeffler?ref_src=twsrc%5Etfw) & [@sendavidperdue](https://twitter.com/sendavidperdue?ref_src=twsrc%5Etfw) to oppose this action. They want a fair & honest election, don’t they? Or do they??? [https://t.co/rKEPmOe7R9](https://t.co/rKEPmOe7R9)
-> — Lin Wood (@LLinWood) [December 16, 2020](https://twitter.com/LLinWood/status/1339077595200061442?ref_src=twsrc%5Etfw)
+数据显示，有钱人在纷纷选择逃离那些限制措施严厉的州和地区。许多纽约人将前往城市以外本州的其他地区，或正在迁移至附近的州份，包括新泽西州和康涅狄格州。 近10％的人口流向南部，尤其是佛罗里达州。
 
+沃勒说：“也许更大的影响是人口和人口结构所发生的变化。最大的问题，特别是房地产和零售业如何适应这一情况？’”
 
+评：中共病毒在全球噬掠、对人类生命健康以及经济的破坏无法计算。闫丽梦博士曾在班农战斗室再三呼吁；“只有除掉中共这个政权，不然我们无法进行彻底的调查来研究这个病毒，进而得到对人类更好的治疗-更好的预防措施。已一年时间了，全球健康仍面临著疫情严重的打击，人们都活在一种恐惧和极度不安的生活中。就因为这个病毒，整个科学界加上世卫组织和中共已经摆明了他们能做什麽和做了什麽。如果再给它们机会，我们会看到更多（危机）。
 
-
+[原文链接](https://dailycaller.com/2020/12/15/new-york-city-unacast-rich-leaving-income-pandemic/?utm_medium=push&amp;utm_source=daily_caller&amp;utm_campaign=push)
 
 0
