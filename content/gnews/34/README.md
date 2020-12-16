@@ -1,34 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1215】-中共是邪恶的
-` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/653283/)
+## 【香草诗词汇】我们正在并肩战斗
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/652210/)
 
-12月15日一名乔治亚州的军人选民针对本州要进行的新的投票竞选发推称：
+作者：香草山写作组 木白
 
-乔治亚州州务卿Brad Raffensperger获得了民主党青睐，他转党了…. 他已经表现得像个民主党人了! @BrianKempGA （乔治亚州州长）会加入他吗？
-
-林伍德律师回复该推文称，
-
-“几年前，当他们开始从多猫腻（公司）和中共收取回扣时，他们就转党了。
-
-“他们从共和党转为共产党。
-
-“对钱的热衷是万恶之源。中共是邪恶的。”
-
-评议：林伍德律师应该早以掌握了被中共贿赂的共和党人的证据才出此言，乔治亚州的州务卿和州长已经沦为中共的走狗。伍德律师同时认识到中共的贿赂之风已经带偏了美国人的意识形态，对金钱的崇拜导致价值观沦丧是美国当前的主要问题，而中共就是这背后搞乱、搞弱、搞死美国的罪魁祸首。美国民众在正义力量的带领下，未来川普总统赢得大选后，对中共的声讨和谴责将是舆论重心，幸亏爆料革命把中国人和中共区分开来，中共不等于中国人，也不能代表中国，这是中国人的救身符，也是为中国人思想解毒的关键。爆料革命战友走在了历史前沿，身兼救赎自己和中国同胞的使命。
-
-新闻素材和图片来自林伍德律师推特
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
 
 
 
-> Brian [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw) & Brad [@GaSecofState](https://twitter.com/GaSecofState?ref_src=twsrc%5Etfw) switched parties years ago when they started taking kickbacks from Dominion & CCP.
-> 
-> They switched from Republican Party to Communist Party.
-> 
-> The love of money is the root of all evil. CCP is evil. [https://t.co/slkRj0JGZA](https://t.co/slkRj0JGZA)
-> — Lin Wood (@LLinWood) [December 15, 2020](https://twitter.com/LLinWood/status/1338945917341356035?ref_src=twsrc%5Etfw)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15185350/MOS0746-%E3%80%90%E9%A6%99%E8%8D%89%E8%AF%97%E8%AF%8D%E6%B1%87%E3%80%91%E6%88%91%E4%BB%AC%E6%AD%A3%E5%9C%A8%E5%B9%B6%E8%82%A9%E6%88%98%E6%96%97.jpg)
+
+清早起来，阳光从《路德访谈》开始
+
+晚上不困，做完义工才睡
+
+若有七哥直播，定好闹钟，就怕错过
+
+都想被点名，无论网名有多长，多拗口
+
+搬起小板凳，作一个专心聆听的小学生
+
+三年下来，随“北美教练”，减了肥
+
+强壮的身体里住着更强大的灵魂
+
+断播事件、找钥匙澜、反送中、73仁波切……
+
+法治基金、gtv、新中国联邦、全球农场……
+
+我们被唤醒，黑白之间，邪不压正
+
+我们拥抱正义，跟随、团结、强大
+
+这是我们唯一的选择
+
+也是此生最幸运的选择
+
+如今，路德的嘴播报着雨点般的重磅
+
+如今，你操劳的白发让我们心疼
+
+战友——你时刻牵挂的我们
+
+除了行动，行动，行动
+
+我们怎么对得住这个词
+
+信仰之心于亿万颗蓝色的心中燃烧
+
+万佛万神庇佑着这颗幸运的蓝色星球
+
+这个苦难的民族正走过千万年的不幸与哀痛
+
+而我们正在并肩战斗，是该我们赢一回了
+
+2020年12月15日
 
 
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
