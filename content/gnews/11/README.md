@@ -1,44 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 钟南山的真面目—中共培养的小鬼
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/655263/)
+## 《路德社》每日简报晚间版 2020.12.14&#8211;NewYork Time
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/654301/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16042121/WhatsApp-Image-2020-12-16-at-5.20.31-PM.jpeg)**(图片来自网络)**
-2020.12.13日，中共国华南师范大学附中，为钟南山雕像举行揭幕仪式。钟南山本人也亲临现场。大家都知道，中共一直给老百姓洗脑，灌输无神论，却把自己伪装成能主宰世界的神。同时，为了方便其控制中国的14亿老百姓，中共还要塑造很多的 牛鬼蛇神，围绕在它的周边，替他吆喝。
+出品《路德社》 编辑：路德社精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16001331/1214-PM-ZH-scaled.jpg)
+1214晚间要闻-NewYork Time
 
-钟南山，就是其塑造的最典型的牛鬼蛇神中的一个。中共要把他塑造成一个百分百完美的形象，让老百姓信任他的为人，听从他说的话。所以，中共是绝不允许有任何的质疑他的声音的出现的。
+**LuDe Media 20201214 Evening News, New York Time**
 
-还记得吗？就在不久之前，有个叫沈佳欣的女艺人，质疑钟南山：整天在镜头前忙碌，作为被中共政府强力吹捧的院士科学家，到底发明了什么药？治好了几个人？除了推销白云山牌板蓝根和莲花清瘟胶囊。
+**美国成立专门委员会，负责制裁中共**
 
-结果，整个墙国的网络世界，对这个女艺人骂声一片，所有的网络媒体，腾讯，新浪，网易，微博…都在刊文抨击沈佳欣，而且几乎所有的跟帖评论也都是清一色的谩骂，说她是一个没有名气的小艺人，故意用这种下流手段，质疑钟南山，就是为了蹭热度，为了出名。即使这个女艺人后来不得不公开道歉，网络世界对其的谩骂抨击也没有消停。
+**U.S. Established Special Committee to Sanction CCP**
 
-我们先不管这个艺人是不是为了出名而蹭钟南山的热度，她质疑的内容似乎没有什么问题啊？钟南山发明了什么药？没有吧！钟南山救了几个人？没有任何新闻媒体报道过吧！他本人也没有提及过吧！如果真的如他卖力吆喝的，板蓝根和莲花清瘟胶囊有效，还费事费力费金钱的研制疫苗干什么？这个药材遍地都是而且便宜的很。为什么这几个药材的相关企业股票猛涨一轮之后，钟南山也不再提这些药材对新冠的积极作用了？
+美国在国家安全委员会之上，成立了更高级别的国家紧急状态委员会，里面有两位华人（郭先生和谁？）和两位爆料革命的美国战友（朱利安尼、班农？）。在这个国家紧急状态委员会里面，有一个专门委员会，负责制定对中共的制裁方案。
 
-其实，这个女艺人质疑的几个问题：有没有发明新药？有没有救活人？很是简洁明了接地气啊？有什么难回答的呢？钟南山只要稍微花个半分钟就可以回复了呀。事实求是的回答，如果有新药，有救活人，那大家听到了不是更敬佩你吗？而且也能让这个小艺人心服口服。如果没有新药，没有救活人，那也没有人会去抨击你，谩骂你吧？老百姓还是讲道理的。
+Above the National Security Council, National Emergency Committee, a higher-level, has been established, which includes two Chinese (Mr. Guo and who?) and two American battle-companions of the Whistleblower Movement (Giuliani and Bannon?). Within this Committee, a special committee is set up to develop the sanctions program against the CCP.
 
-可是，钟南山对此不闻不问不表态，反倒是网络上的小丑们按耐不住了，上窜下跳，齐声对这个小女艺人的破口谩骂。好像她是他们的杀父仇人似的。
+**北约评估中共网络攻击，防火墙真的要倒了**
 
-这些网络小丑这么卖力的谩骂是为哪般？说到底就是为了那5毛钱。据说，中共政府雇佣了很多网络水军，专门在网络世界配合中共政府的宣传，给老百姓制造一些假象。他们每发布一条信息就可以领到五毛钱的奖赏。所以，这些人也被称作五毛党。
+**NATO Assessed CCP Cyber Attacks, and CCP Firewall Going Down**
 
-对于钟南山，中共政府就是要把他塑造成一个抗疫英雄，政府写手每发布一篇关于钟南山的报道，五毛党就在报道的评论区添加海量的评论，歌颂他的“丰功伟绩”。网上一旦有任何质疑钟南山的声音，五毛党就会立马群起攻之，发布大量的谩骂信息，把质疑声音压下去。这样做的唯一目的，就是让老百姓以为这个钟南山是个了不起的家伙，是个“值得信赖的专家”。所以当这个专家配合中共政府的各种宣传，说出的那些话，老百姓就会深信不疑。比如，中共为了推高那几个中药股票，钟南山就说中药对新冠有效；中共为了让老百姓去复工复产，钟南山就说疫情得到有效控制了；中共要把老百姓关在墙国内，钟南山就说海外疫情很严重；中共现在想限制老百姓的出行，钟南山又跳出来说疫情要二次复发；中共想他邪恶的疫苗计划得逞，钟南山就鼓吹疫苗安全…
+Zerohedge发推，北约正在评估中共刚刚发动的网络攻击的风险，意味着调查工作已经基本完成了。评估结果很快出炉，不管表面上是谁在攻击，最终必然证实是中共干的，因为找出真相的调查权、裁判权都在美国和北约手里。之前川普总统在打击中共上优柔寡断，是因为沼泽地背后的力量在犹豫，只要这股力量下决心灭共了，什么招都可以用。一旦正式认定中共发动了网络攻击，美国和北约自动还击，破掉防火墙指日可待。
 
-总之，这个老贼表面上一副道貌岸然的样子，实际上就是个确确实实的伪君子。他真的是住在一个老破旧的小区？他的家真的是一个只有80平的，年久失修的老房子？他肯定也没有什么公司，没有什么巨额财产吧？最近网络上有人质疑他儿子的裤带是价值几千的爱马仕，估计肯定是跟他没有关系吧？
+Zerohedge tweeted that NATO was assessing the risks of the cyber-attacks just launched by the CCP, which means that the investigation has been almost completed. The assessment will come out soon, and no matter who launched the attacks appearingly, it will inevitably be confirmed that the CCP committed it in the end, for the power to investigate and adjudicate to find out the truth is in the hands of the United States and NATO. President Trump was indecisive in cracking down on the CCP previously because the forces behind the swamp was hesitant, and now as long as the forces resolved to exterminate the CCP, any trick could be applied. Once it is formally recognized that the CCP launched the cyber-attacks, the U.S. and NATO will automatically fight back and the CCP firewall will be pushed down soon.
 
-不过，这些都没有关系的，等中共一灭，中共包装塑造的各类牛鬼蛇神也就立马原形毕露。你到底是个真正的“抗疫英雄”，还是个听命于中共主子，罔顾中国老百姓性命的小鬼刽子手，大家很快就会知道了。到那时专属于你的审判也会等着你的，而我也肯定不会缺席。
+**蓬佩奥：中共是世界安全的最大威胁**
 
-（本文纯属个人观点）
+**Pompeo: CCP is the Biggest Threat to World Security**
 
-沈佳欣质疑钟南山：[https://news.china.com/socialgd/10000169/20201129/39017791\_all.html](https://news.china.com/socialgd/10000169/20201129/39017791_all.html)
+蓬佩奥接受采访时说：中共是美国人民安全的最大威胁，也是世界人民安全最大的威胁；中共用所谓的军民融合打造霸权主义，通过商业行为偷取美国上百万的就业机会，对美国人民造成了实实在在的威胁；用香港国安法夺走了香港人民的全部自由，破坏了对香港50年自由的承诺。
 
-钟南山雕像：[https://www.sohu.com/a/437985653\_492332](https://www.sohu.com/a/437985653_492332)
+Pompeo said in an interview: the CCP is the greatest threat to the security of the Americans and people of the world; the CCP has used the so-called civil-military fusion to construct hegemony, stealing millions of jobs from the United States through commercial practices, posing a real threat to the American people; and the CCP took away all the freedoms of the HongKongers through the Hong Kong National Security Law, breaking its promise of 50 years of freedom for Hong Kong.
 
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+**司法部长Barr今天正式辞职**
 
-[【澳喜文章】](https://gnews.org/zh-hans/author/aujenny/)
+**Attorney General Barr Officially Resigned Today**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16044714/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%87.jpg)
+川普总统随后任命了代理司法部长Jeffrey A. Rosen及其助手Richard Donoghue，确保司法部下一步行动在总统掌控之中。所有各州将在12月14日进行选举人投票，并由选举人签字证明选举结果，这意味着司法部将在这天拿到坐实选举舞弊的各州签字证据。12月15日以后，司法部的一系列行动就要开始。据路德了解，几个与拜登相关的重要人士已经被抓。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16044753/%E6%BE%B3%E5%96%9C%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+Barr原为老布什政府的司法部长，在川普内阁再次上任是各派妥协的结果，主要任务是完成通俄门调查。现在司法部重心转入灭共，Barr因为自己的利益纠葛，其身份已不再适合继续留任。
 
-1+
+President Trump then appointed Acting Attorney General Jeffrey A. Rosen and his aide Richard Donoghue to ensure that the Justice Department’s next move is under the president’s control. All states will conduct their electoral votes on Dec. 14, and the election results will be certified by their signatures, which means that the Department of Justice will obtain the signed evidences that substantiate election fraud from these states on this date. After Dec. 15, a series of actions by the Department of Justice will begin. According to LuDe Media, several significant figures related to Biden have been arrested.
+
+Barr was formerly the Attorney General in the old Bush administration, and his reappointment in the Trump cabinet was the result of a compromise between various factions, with the main task to complete the Russia-gate investigation. Now that the focus of the Department of Justice has shifted to extinguishing the CCP, Barr’s status is no longer suitable to remain in office because of his own entangled interests.
+
+**Rosen****上任第一天就给亨特拜登发出了24张刑事传票**
+
+**Rosen Issued 24 Criminal Summonses to Hunter Biden on His First Day in Power**
+
+所有左媒随Barr的辞职来了个180度大转向，一致报道亨特拜登与中共的勾兑，表明民主党正在抛弃乔拜登，将推出贺锦丽来填补总统候选人的空缺，而贺锦丽正是中共背后藏的那把刀。
+
+With Barr’s resignation, all the leftist media made a 180 degree turn and unanimously reported Hunter Biden’s collusion with the Chinese Communist Party, indicating that the Democratic Party is abandoning Joe Biden and will introduce Kamala Harris to fill the vacancy of the presidential candidate, but Harris is the very knife hiding behind the Chinese Communist Party.
+
+**WHO****总干事谭德塞被指控为群体灭绝罪**
+
+**WHO Director General Tedros Charged with Mass Genocide**
+
+曾获诺贝尔奖提名的美国经济学家David Stenman，近日向国际刑事法院起诉谭德塞犯有群体灭绝罪。谭德塞2005-2016年担任埃塞俄比亚卫生部长、外交部长，其所领导的组织提格里人民解放阵线（TPLF）被美国政府列为全球恐怖组织。谭德塞在2013-2015年间为控制该国安全部门的三大领袖之一，为政府的谋杀、酷刑、滥捕、抢地等暴行负责。
+
+David Stenman, a Nobel Prize-nominated American economist, recently filed an indictment with the International Criminal Court against Tedros for mass genocide. Tedros served as Ethiopia’s Minister of Health and Minister of Foreign Affairs from 2005-2016, and had led the Tigray People’s Liberation Front (TPLF), which is listed as a global terrorist organization by the United States. Tedros was one of the three leaders who controlled Ethiopian security services from 2013-2015 and was responsible for the government’s murder, torture, indiscriminate arrests, land grabbing and other atrocities.
+
+文案：《路德社》简报组：文寶Porsche；
+翻译：《路德社》翻译组；翻译统筹：阿轩Action；译校：Arvin江牧
+审核校对：玫瑰天空
+上传排版：青葫芦娃
+
+0

@@ -1,38 +1,80 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【文雍漫谈】天雷滚滚 地火熊熊 光明将至 因果不空
-` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/651974/)
+## 《路德社》每日简报早间版 2020.12.15&#8211;NewYork Time
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/654480/)
 
-作者：美国纽约七星会农场｜文雍
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16043143/%E6%96%87%E9%9B%8D%E6%BC%AB%E8%AB%8730.jpg)
-持之以恒地做一件事，给人带来的鼓舞和喜悦，会超过这件事本身。每天，为了把漫谈完成好，要浏览许多信息，最终会圈定一个主题并挖掘其背后的逻辑。最近发现，每天多选几个主题也不错，只要秉持文散而情挚，形散而意专的原则，即可。
+出品《路德社》 编辑：路德社精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003138/1215-AM-ZH-scaled.jpg)
+撰稿：文寶Porsche   译校：Arvin江牧
 
-57岁的中国政法大学法律教授杨玉圣“绝食维权”事件在中国墙内的网络上被转发，他的家［香堂新村］位于北京郊区，据说延长线可达北京中轴线，压到了龙脉上。可能龙最近感觉浑身不自在，发现脉被压到了，于是就要拆。
+翻译统筹：阿轩Action
 
-杨教授做了大半辈子学问，眼看着就要退休了，要不是为自己维权，还真是没怎么听说过。北京的冬天狂风呼号，这两天还大雪纷飞，真应景。杨教授家的社区，3900户人家，突然被断水断电，强行清场，没有说法、没有补偿、更没有丝毫歉意，简直是一场悲惨世界的感觉。一夜之间，北京又多了上万访民，少了几千户岁月静好的中产。庚子岁末，这场遭遇说唐突也唐突，说必然也不过分。法律教授无法用法律维权，反而需要绝食秀苦情、求关注，也是被逼到死胡同了。教授绝食，平时不食人间烟火，今天是彻底从生理上断了人间烟火。平时不过问百姓疾苦，没有为别人被强拆发声，今天，似乎也遭受了同样的待遇，桃李满天下的教授，这次维权并没有多少“桃李”出面支持。造物弄人，仿佛教授还没有苦透，要再尝一次人情冷暖才肯罢休。
+1215早间要闻-NewYork Time
 
-官家自然是不怕的，更不会在乎，杨教授绝食，顶多算自我了断，曾经以为是“自己人”的人，摆出花样为邪恶政权擂鼓助威，现在终于亲自被强拆了，又出演“不食周粟”的苦肉计，真是病急乱投医！中共最不缺的就是杨教授这样让人省心的知识分子，颂圣派，饿死一个，立刻又会有成千上万的来补位。党妈丢出一块大饼就会像雨后的松蘑一样冒出一大批，还屁颠屁颠地唱着红歌。文人无状，专制之下要求文人有气节，也是难为手无缚鸡之力的文人了。
+**LuDe Media 20201215 Morning News, New York Time**
 
-杨教授们现在最应该反思的是为什么没有人站出来替他们说话。在北京前年“清低端”的时候，他们也没有替低端说话；在北京要“天际线”强拆人家牌匾的时候，法律教授们也没有替那些商户说话；在去年北京大肆拆除宋庄、画家村的时候，他们也没有为那些舞文弄墨的穷书生说话；现在，轮到他们被强拆了，环顾四周，没有人替他们说话，也就再正常不过了。
+**美国务院发推“中共危害了美国的自由和国家安全”**
 
-那些手握铲车方向盘的人，他们可能不具备反思精神，他们只知道执行命令，他们把高大威猛的铲车开向别人房子的时候，可能想不到有朝一日他们也会是那个维权的人；他们在执行混蛋任务的时候，并不觉得自己是混蛋的一部分，而是“秉公办事”，脸上沾满奴才的殊荣，他们不会想到有一天他们也会被“公”吞噬。体制强大到不容置喙，不容思考，他们只能如机器一样执行命令。他们不会听到滚滚天雷已经到了他们的头顶，不会看到熊熊地火已经在他们脚下燃烧！就如杨教授，在饿几天之后，会不会想到曾经站在讲台上奉命胡说那些自己都不信的理论的时候，怎么就没顺带着教自己的学生“路见不平一声吼”！怎么就没夹带一点教育学生在执恶法的时候，“枪口抬高一寸”？他是不是该反思一下，当社会主义大棒无情落下的时候，这些“私货”可能有一天会救他的一条老命？
+**State Department Tweeted “CCP Endangered U.S. Freedom and National Security”**
 
-美国大选的进程仍然惊心动魄。白宫今天发布行政命令：公布国防部长若出现意外的继承顺位！看到这条消息，瞬间难以自持，情绪几近失控！显然，川普总统和他的支持者们已经做了最坏的打算，当一个国家处于危难之际，总有真正的大写的“人”挺身而出，捍卫国家的尊严。破斧沉舟、背水一战，这才是真正的爱国者。
+推文说，美国人必须知道中共如何为自己的目的毒害了我们的高等教育，以及这些行为如何损害了我们的自由和我们的国家安全。这些蓬佩奥早前说过的话，今天由国务院推特账户再次发表，指向性非常明显。
 
-当暗势力遍布全国、掌控了各个领域，当作为“压舱石”的最高大法官也压不住舱，做了缩头乌龟的时候，川普总统难过之情溢于言表，他说那几个大法官“没有智慧、没有勇气”！尽管他早已筹划万全，最终必胜，但他一定在期待、在盼望自己钦点的人能在关键时刻显示出应有的担当，站在正义的一面，捍卫法律的尊严。那才不辜负他点将时的虔诚与渴望，他多么希望这些才俊们能像他那样为这个国家担起责任，可是他失望了，那一刻，他的梦碎了。他必须要用必杀之器替自己和美国讨回公道了。
+The tweet said Americans must know how the Chinese Communist Party has poisoned our higher education for its own purposes and how those actions have damaged our freedoms and national security. These words, which Pompeo said earlier, were re-posted today by the State Department’s Twitter account, pointing in a quite clear direction.
 
-他的对手们，老千出到这个分上，把人性中所有的恶都逼出来，怎么会有好结果呢？没有什么争议了，就算我们选个群主，都不能去选小偷吧？何况是掌管一个国的总统？主媒、副媒统统发霉，删帖封号禁言，无所不用其极，还把作案手段展示了一路，不是瞎子的都能看到，如果在这种时候还说小偷是当选总统，这样的睁眼瞎大家请远离吧，不然他掉到粪坑里会溅你一身屎！
+**大学如何与国家安全相联系**
 
-灯塔已毁、正义蒙羞，美国人，无论用多么粗暴的方式夺回自己的家园，都不算过分！烂透了也好，一网打尽，减少交叉感染。川普总统此刻应该没有顾虑了，对于幕后这个无良的流氓集团，能动手就别吵吵了！揍丫的。
+**How Universities Connected to National Security**
 
-相比于这些站出来为国而战、为正义而战的美国人，厉害国绝食为自己维权的法律教授，成了一地鸡毛。为什么中国人不能为别人站出来？为什么不能为正义、为公平、为自由站出来？非要等到刀架在脖子上才发出几声最后的哀鸣？我们这个民族，难道是最没种、最没担当的民族？当然不是，新中国联邦已经用行动证明了这一点，同胞们，你们听到了吗？天雷滚滚、地火熊熊，一切该来的都在路上，光明将至、因果不虚，加入我们，一起灭掉共产党，趁着他们的刀还没架在我们的脖子上，我们要替14亿同胞维权，替一百多万死于中共病毒的人讨回公道，替被他们的黑手割裂的灯塔之国讨回公道！站出来，灭共，已经是人类必须的选择！
+中共对大学的渗透，造成了教育界、学术界和医学界的腐败，导致了全世界主流专家学者无视病毒真相、在閆博士的病毒来源报告面前保持沉默，阻止民众使用羟氯喹，直接导致了美国人民的生命安全和国家经济、国防等各方面安全受到巨大损害。
 
-更多精彩内容请关注：
+The Chinese Communist Party’s infiltration of universities has caused corruption in education, academia, and medical community, resulting in mainstream experts and scholars around the world ignoring the truth about the virus and remaining silent in the face of Dr. Yan’s reports on the source of the virus, and preventing the public from taking hydroxychloroquine, and it has directly led to tremendous damage to American lives, economics, defense, and other aspects.
 
-- [美国纽约七星会农场（为子孙爱七哥农场）官方推特](https://twitter.com/wzsaqg)
-- [美国纽约七星会农场（为子孙爱七哥农场）官方GTV号](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
-- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
+**路德再谈美国沼泽地与生态系统**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14020420/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-copy.jpg)
+**LuDe Talked Again about America Swamp and Ecosystem**
+
+作为美国真正权力一极的哈佛、耶鲁等常青藤学校，是培养美国沼泽地鳄鱼的基地。无论董事会、校长、院长、教授如何变更，这些学校背后的真正老板不会改变，他们或是某个家族，或是其他某个利益集团。
+
+长期以来，美国一直存在沼泽地，范围局限于政客、华尔街等很小的精英圈中，与普通大众的圈子相隔离，各自遵循各自的规则不越界，从而维持了社会生态系统的平衡，推动了美国长期的繁荣和稳定。在这样的生态中，沼泽地的存在始终提醒着民众要小心鳄鱼，要时刻保持警惕、维护自己的安全。
+
+As one pole of the real power in America, the Ivy League schools such as Harvard and Yale are the bases for cultivating alligators of swamp in the United States. No matter how the board of trustees, presidents, deans, and professors change, the real owners behind these schools do not change, either a family or some other interest group.
+
+For a long time, there has been a swamp in the United States, and it is confined to a very small elite circle of politicians, Wall Street, etc., isolated from circles of the general public. These circles follow their own rules without crossing, thus they maintain the balance of the social ecosystem, promoting the long-term prosperity and stability of the United States. In such an ecology, the existence of the swamp always reminds the public to beware of crocodiles and to be alert to maintain their own safeties.
+
+**鳄鱼越界要被消灭**
+
+**Crocodiles Crossing the Border to be ****Exterminated**
+
+在生态系统中，如果鳄鱼越过自己的边界，危及到了其他物种生存和生态系统的平衡，它就会被消灭。当年纽约黑帮将地盘扩大化，危及到了老百姓正常生活和社会正常秩序，就被朱利安尼剿灭了。
+
+In an ecosystem, if a crocodile crosses its border and endangers the survival of other species and the balance of the ecosystem, it will be exterminated. Back then, the New York gangs were eliminated by Giuliani when they expanded their territories and endangered the normal life and social order of ordinary citizens.
+
+**中共渗透美国大学触碰了美国权力的根本，必被灭**
+
+**CCP****‘s Infiltration of U.S. Universities Touched foundation of U.S., Must Be Eliminated**
+
+因为中共将自己不讲游戏规则那一套玩法渗透到大学，传导给教授和学生，将导致整个美国都变成沼泽地，鳄鱼越界到处乱跑，快把沼泽地背后养鳄鱼的人给吃掉了。
+
+美国人今天看清楚中共已经严重越界了，它是要彻底破坏沼泽地的规则、把整个美国变成沼泽地。美国人开始放弃天真的幻想，将以其人之道还治其身对付中共。这就是川普总统突然换下和平时期的司法部长Barr、换上能打大仗的代理部长和副部长的原因。美国对中共的行为规则已经变了。
+
+The CCP’s infiltration of its own set of rules-less game into universities and its transmission to professors and students will cause the entire United States to be a swamp, and all the alligators run around across the borders and are about to eat the people who raise them behind the swamp.
+
+Americans today have seen clearly that the Chinese Communist Party has seriously overstepped its bounds and it is trying to completely break the rules of the swamp and turn the entire United States into a swamp. Now Americans are beginning to give up their naive illusions and will deal with the CCP in the CCP way. This is the reason why President Trump suddenly replaced Barr, the peacetime Attorney General, with an Acting Attorney General and a Deputy Secretary, those who can fight big battles. The rules of American actions against the Chinese Communist Party have changed.
+
+**美国突袭Solarwinds公司获得选举造假铁证**
+
+**U.S. Raid on Solarwinds Got Solid Evidences of Election Fraud**
+
+美国联邦法警、德州骑警和FBI联合行动突袭了Solarwinds公司位于奥斯汀的总部，获取了Dominion系统选票造假的铁证。该行动的级别之高、保密程度之高，前所未见。
+
+A joint operation by the U.S. Marshals, the Texas Rangers and the FBI raided Solarwinds’ headquarter in Austin and obtained solid evidences of ballots fraud in the Dominion system. The operation was unprecedented in its level of rank and secrecy.
+
+#CCP\_is\_terrorist   #TakeDownTheCCP
+
+文案：《路德社》简报组：文寶Porsche；
+翻译：《路德社》翻译组
+审核校对：玫瑰天空
+上传排版：青葫芦娃
+
 0
