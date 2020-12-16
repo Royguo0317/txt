@@ -1,48 +1,80 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【文雍漫谈】正义！我拿什么来捍卫你？
-` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/655309/)
+## 《路德社》每日简报早间版 2020.12.15&#8211;NewYork Time
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/654480/)
 
-作者：美国纽约七星会农场｜文雍
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16061745/%E6%96%87%E9%9B%8D%E6%BC%AB%E8%AB%8731.jpg)
-今天下午，看到微信朋友圈嗨翻天了，一群没有选票但有情怀的人因为美国的大选已经势不两立了，一些群友宣布“不与脑残共群”，另一些群友则表示“一切才刚刚开始”，美国人民还没怎么着，我们的群先分裂了。
+出品《路德社》 编辑：路德社精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003138/1215-AM-ZH-scaled.jpg)
+撰稿：文寶Porsche   译校：Arvin江牧
 
-从我自己来说，11月3日以来，拉黑的老网友和退的群也数不过来了，那些口口声声不关心政治的人，转发起黑川普总统的脑残文倒是热情高涨，仿佛把别人弄惨，自己就幸福了一样，厉害国这70年的洗脑，从这个角度说，很成功。那些对于公然的舞弊、偷窃、威胁选民等行为无动于衷的人，视川普总统那些热情洋溢的选民为不存在，公然叫嚣说数千人出席的听证会为阴谋论，这样的人，他们的良知已经死了，人格已经腐烂了，他们敲打键盘转发那些公然抹黑的文字的时候，正在掘开自己的坟墓。
+翻译统筹：阿轩Action
 
-今天看到的一条视频：中国东莞的网约车司机，为了抢时间救一个病危的宝宝，连闯三次红灯，被交警扣罚18分。中共国要求司机每年违章扣分不能高于12分，扣18分也就是吊销驾照了。驾照当然就是司机的饭碗。
+1215早间要闻-NewYork Time
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16061946/432.jpg)
+**LuDe Media 20201215 Morning News, New York Time**
 
-于是司机提交证据自辩，并希望被救助的宝宝家长可以作为证人澄清闯红灯的原因。可是，万万没想到，他们竟然拒绝作证。
+**美国务院发推“中共危害了美国的自由和国家安全”**
 
-总有这样一些人，能把农夫和蛇的故事演绎到极致。也总有这样一些人，让你穷尽所有能想到的词，忘恩负义、狼心狗肺，也还难泄心头之恨。
+**State Department Tweeted “CCP Endangered U.S. Freedom and National Security”**
 
-网约车内有监控录像，清清楚楚地还原了当时的场景：孩子已经口吐白沫，孩子的爸爸声嘶力竭地求司机闯红灯抢时间救人，司机师傅真的拼了，尽力为孩子争分夺秒，让人感动。
+推文说，美国人必须知道中共如何为自己的目的毒害了我们的高等教育，以及这些行为如何损害了我们的自由和我们的国家安全。这些蓬佩奥早前说过的话，今天由国务院推特账户再次发表，指向性非常明显。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16063742/WhatsApp_Image_2020-12-15_at_21.00.55.jpg)
+The tweet said Americans must know how the Chinese Communist Party has poisoned our higher education for its own purposes and how those actions have damaged our freedoms and national security. These words, which Pompeo said earlier, were re-posted today by the State Department’s Twitter account, pointing in a quite clear direction.
 
-这个视频和司机的说明报告提交之后，交警取消了对他的处罚，他依然可以凭网约车讨生活。这件事就算过去了。
+**大学如何与国家安全相联系**
 
-还好，司机这次遇到了有良知的交警，在依法行政的同时，知道人间有一种高于法律的东西，叫正义。
+**How Universities Connected to National Security**
 
-这让人不由想起当年南京的彭宇案，无良的法官把扶起老人的彭宇定罪后，见义勇为在厉害国成了危险的事，从那以后，老人在路上跌倒没人扶的事件屡屡发生。
+中共对大学的渗透，造成了教育界、学术界和医学界的腐败，导致了全世界主流专家学者无视病毒真相、在閆博士的病毒来源报告面前保持沉默，阻止民众使用羟氯喹，直接导致了美国人民的生命安全和国家经济、国防等各方面安全受到巨大损害。
 
-我们的视角再回到美国的大选。当法律掌握在没勇气没担当的人手里，无法主持正义的时候，谁来保证正义的伸张呢？
+The Chinese Communist Party’s infiltration of universities has caused corruption in education, academia, and medical community, resulting in mainstream experts and scholars around the world ignoring the truth about the virus and remaining silent in the face of Dr. Yan’s reports on the source of the virus, and preventing the public from taking hydroxychloroquine, and it has directly led to tremendous damage to American lives, economics, defense, and other aspects.
 
-首先，华盛顿就是用手中的剑为美国人讨回了正义。面对大英帝国刮地三尺、苍蝇腿上刮肉的难看吃相，美国的先贤们没有退缩，他们站出来，率领美国人民，打出了一个独立的美利坚。然后是林肯总统，在遭遇执法黑哨的时候，毅然抓捕大法官，扭转乾坤，化被动为主动，用武力捍卫了正义，才有了后面强大的美国。虽然当时也是屡受诟病，但历史的迷人之处恰恰就在这里，真相需要时间来沉淀，文明的果实也是时间与正义的结晶。
+**路德再谈美国沼泽地与生态系统**
 
-事实证明，没有强大的武力保障，文明在独裁者和野心家的觊觎之下，永远危如累卵。拥有利器，可以不战而屈人之兵，遇到流氓，也可以一战而摧枯拉朽，如果美国没有强悍的军事势力做保障，中共这个流氓政权早就称霸世界了，现在，连个像样的芯片都造不出来，怂成这样了还叫嚣“人类命运共同体”，脸皮也真是够厚的。
+**LuDe Talked Again about America Swamp and Ecosystem**
 
-川普总统的背后，有7500万支持者，完美超过历届美国总统的票数，他怎么可能接受不清不楚的败选呢？怎么可能容忍一个小偷勾结流氓众在目睽睽之下窃国呢？川普总统是君子，他不被逼到绝路，总是对他的对手抱有一丝希望，希望他们能够顺应民意，主动结束这场闹剧，没到绝境，他都不想动用武力这把最后的正义之剑为自己、也为美国人民讨回公道，以他的善良，他想像不到他的对手是怎样的穷凶恶极，怎样的蹬鼻子上脸。我们完全可以相信：谁是美国人民的总统，谁是世界文明灯塔的捍卫者，“多猫腻”投票机说了不算、媒体说了不算、法官说了不算、只有美国人民才是历史的捍卫者！当然，这句话不适合专制独裁的国家，厉害中共国统治者们，永远也不会有这个觉悟，他们统治下的人民，自我解嘲为屁民，其实，那也是一厢情愿，在那几个流氓统治者眼中，人民连个屁都不是。
+作为美国真正权力一极的哈佛、耶鲁等常青藤学校，是培养美国沼泽地鳄鱼的基地。无论董事会、校长、院长、教授如何变更，这些学校背后的真正老板不会改变，他们或是某个家族，或是其他某个利益集团。
 
-当法律无法给你一个公平的结果的时候，请拿出勇气，擎起手中的利剑，恢复法律的尊严，把那些乱法的窃贼、罪犯绳之以法，正义的捍卫者，不能让法律蒙尘！
+长期以来，美国一直存在沼泽地，范围局限于政客、华尔街等很小的精英圈中，与普通大众的圈子相隔离，各自遵循各自的规则不越界，从而维持了社会生态系统的平衡，推动了美国长期的繁荣和稳定。在这样的生态中，沼泽地的存在始终提醒着民众要小心鳄鱼，要时刻保持警惕、维护自己的安全。
 
-更多精彩内容请关注：
+As one pole of the real power in America, the Ivy League schools such as Harvard and Yale are the bases for cultivating alligators of swamp in the United States. No matter how the board of trustees, presidents, deans, and professors change, the real owners behind these schools do not change, either a family or some other interest group.
 
-- [美国纽约七星会农场（为子孙爱七哥农场）官方推特](https://twitter.com/wzsaqg)
-- [美国纽约七星会农场（为子孙爱七哥农场）官方GTV号](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
-- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
+For a long time, there has been a swamp in the United States, and it is confined to a very small elite circle of politicians, Wall Street, etc., isolated from circles of the general public. These circles follow their own rules without crossing, thus they maintain the balance of the social ecosystem, promoting the long-term prosperity and stability of the United States. In such an ecology, the existence of the swamp always reminds the public to beware of crocodiles and to be alert to maintain their own safeties.
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14020420/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-copy.jpg)
+**鳄鱼越界要被消灭**
+
+**Crocodiles Crossing the Border to be ****Exterminated**
+
+在生态系统中，如果鳄鱼越过自己的边界，危及到了其他物种生存和生态系统的平衡，它就会被消灭。当年纽约黑帮将地盘扩大化，危及到了老百姓正常生活和社会正常秩序，就被朱利安尼剿灭了。
+
+In an ecosystem, if a crocodile crosses its border and endangers the survival of other species and the balance of the ecosystem, it will be exterminated. Back then, the New York gangs were eliminated by Giuliani when they expanded their territories and endangered the normal life and social order of ordinary citizens.
+
+**中共渗透美国大学触碰了美国权力的根本，必被灭**
+
+**CCP****‘s Infiltration of U.S. Universities Touched foundation of U.S., Must Be Eliminated**
+
+因为中共将自己不讲游戏规则那一套玩法渗透到大学，传导给教授和学生，将导致整个美国都变成沼泽地，鳄鱼越界到处乱跑，快把沼泽地背后养鳄鱼的人给吃掉了。
+
+美国人今天看清楚中共已经严重越界了，它是要彻底破坏沼泽地的规则、把整个美国变成沼泽地。美国人开始放弃天真的幻想，将以其人之道还治其身对付中共。这就是川普总统突然换下和平时期的司法部长Barr、换上能打大仗的代理部长和副部长的原因。美国对中共的行为规则已经变了。
+
+The CCP’s infiltration of its own set of rules-less game into universities and its transmission to professors and students will cause the entire United States to be a swamp, and all the alligators run around across the borders and are about to eat the people who raise them behind the swamp.
+
+Americans today have seen clearly that the Chinese Communist Party has seriously overstepped its bounds and it is trying to completely break the rules of the swamp and turn the entire United States into a swamp. Now Americans are beginning to give up their naive illusions and will deal with the CCP in the CCP way. This is the reason why President Trump suddenly replaced Barr, the peacetime Attorney General, with an Acting Attorney General and a Deputy Secretary, those who can fight big battles. The rules of American actions against the Chinese Communist Party have changed.
+
+**美国突袭Solarwinds公司获得选举造假铁证**
+
+**U.S. Raid on Solarwinds Got Solid Evidences of Election Fraud**
+
+美国联邦法警、德州骑警和FBI联合行动突袭了Solarwinds公司位于奥斯汀的总部，获取了Dominion系统选票造假的铁证。该行动的级别之高、保密程度之高，前所未见。
+
+A joint operation by the U.S. Marshals, the Texas Rangers and the FBI raided Solarwinds’ headquarter in Austin and obtained solid evidences of ballots fraud in the Dominion system. The operation was unprecedented in its level of rank and secrecy.
+
+#CCP\_is\_terrorist   #TakeDownTheCCP
+
+文案：《路德社》简报组：文寶Porsche；
+翻译：《路德社》翻译组
+审核校对：玫瑰天空
+上传排版：青葫芦娃
+
 0

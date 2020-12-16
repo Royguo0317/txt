@@ -1,70 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》每日简报晚间版 2020.12.14&#8211;NewYork Time
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/654301/)
+## 喀秋莎新闻参考- 2020年12月15日 (星期二)
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/655720/)
 
-出品《路德社》 编辑：路德社精选新闻专栏组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16001331/1214-PM-ZH-scaled.jpg)
-1214晚间要闻-NewYork Time
+俄罗斯喀秋莎农场 Sydney
 
-**LuDe Media 20201214 Evening News, New York Time**
+校对上传 星河
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16070852/1956565.jpg)
+一、新中国联邦新闻
 
-**美国成立专门委员会，负责制裁中共**
+1.“路德时评”本日摘要（[早间](https://www.youtube.com/watch?v=9B2YWABFv_Q)、[晚间](https://www.youtube.com/watch?v=baeqaVu3q8s)）:
 
-**U.S. Established Special Committee to Sanction CCP**
+Ⅰ.12月14日，美国选举人团认证选民投票结果。7个摇摆州的州政府和州立法机构对选票归属认证不统一。1月6日国会将对这86张选举人票进行归属裁决。
 
-美国在国家安全委员会之上，成立了更高级别的国家紧急状态委员会，里面有两位华人（郭先生和谁？）和两位爆料革命的美国战友（朱利安尼、班农？）。在这个国家紧急状态委员会里面，有一个专门委员会，负责制定对中共的制裁方案。
+Ⅱ.美国务院推文提醒，美国人必须知道中共如何毒害我们的高等教育，以及这些行为如何危害美国国家安全。暗示中共对美国高等教育的渗透，触动了美国利益集团的根本利益和国家安全。灭共将是利益集团的整体行动。
 
-Above the National Security Council, National Emergency Committee, a higher-level, has been established, which includes two Chinese (Mr. Guo and who?) and two American battle-companions of the Whistleblower Movement (Giuliani and Bannon?). Within this Committee, a special committee is set up to develop the sanctions program against the CCP.
+Ⅲ.美国12月8日参议院听证会披露，羟氯喹使用遭到医学杂志和医疗界的打压，导致美国疫情的死亡率高于卫生条件一般的印度等国。此举已涉嫌反人类罪行，进一步证实了中共渗透造成的危害。
 
-**北约评估中共网络攻击，防火墙真的要倒了**
+Ⅳ.中共使得美国沼泽地规则蔓延到教育、学术、医学、司法等各界，危害到中美百姓的生活，灭共势在必行。
 
-**NATO Assessed CCP Cyber Attacks, and CCP Firewall Going Down**
+Ⅴ.美国德州游骑兵特警、FBI突袭Solarwinds奥斯汀总部，获取了Dominion投票系统重要罪证。北约也在调查Solarwinds公司。12月14日之后，川普总统开始以沼泽地的手段对付中共。
 
-Zerohedge发推，北约正在评估中共刚刚发动的网络攻击的风险，意味着调查工作已经基本完成了。评估结果很快出炉，不管表面上是谁在攻击，最终必然证实是中共干的，因为找出真相的调查权、裁判权都在美国和北约手里。之前川普总统在打击中共上优柔寡断，是因为沼泽地背后的力量在犹豫，只要这股力量下决心灭共了，什么招都可以用。一旦正式认定中共发动了网络攻击，美国和北约自动还击，破掉防火墙指日可待。
+Ⅵ.参议院多数党领袖麦康纳尔承认拜登当选，并呼吁其他国会共和党议员承认拜登当选，其11月10日曾拒绝祝贺拜登当选，支持川普重新计票。共和党建制派以权谋利遭民众唾弃。WarRoom等媒体曝光麦康纳尔妻子赵小兰家族与中共勾兑的事实，麦康纳尔在共和党的影响力大打折扣。
 
-Zerohedge tweeted that NATO was assessing the risks of the cyber-attacks just launched by the CCP, which means that the investigation has been almost completed. The assessment will come out soon, and no matter who launched the attacks appearingly, it will inevitably be confirmed that the CCP committed it in the end, for the power to investigate and adjudicate to find out the truth is in the hands of the United States and NATO. President Trump was indecisive in cracking down on the CCP previously because the forces behind the swamp was hesitant, and now as long as the forces resolved to exterminate the CCP, any trick could be applied. Once it is formally recognized that the CCP launched the cyber-attacks, the U.S. and NATO will automatically fight back and the CCP firewall will be pushed down soon.
+Ⅶ.川普总统律师Jenna Ellis介绍选举流程：12月15日选举人团票盖章发送华盛顿，1月6日参众两院联合会议后选举人公开投票；参议院议长彭斯副总统将裁决该票归属，选出总统；若国会议员对彭斯裁决提异议，众议院将每州一票选出总统，参议院议员将每人一票选出副总统；1月6日众议院多数党领袖佩洛西恐将拖延投票。麦康纳尔对之后的选举过程几无影响。
 
-**蓬佩奥：中共是世界安全的最大威胁**
+VIII.美联社证实路德社爆料，川普将任命特别检察官调查亨特·拜登硬盘门事件。依据《独立检察官法》，独立检察官为独立调查团体，不被现行司法系统、检察系统、法律系统所管辖，经费不受限制；拥有特别的组织权、调查权、诉讼权，超越总统的传询权；非严重不当行为或严重伤残，不得被罢免或替换。
 
-**Pompeo: CCP is the Biggest Threat to World Security**
+2.巴西卫生监管机构安维萨周一（12月14日）表示，中共国卫生当局在授权用于紧急用途的病毒疫苗方面并不透明，这一声明可能进一步加剧南美国家的政治紧张局势。
 
-蓬佩奥接受采访时说：中共是美国人民安全的最大威胁，也是世界人民安全最大的威胁；中共用所谓的军民融合打造霸权主义，通过商业行为偷取美国上百万的就业机会，对美国人民造成了实实在在的威胁；用香港国安法夺走了香港人民的全部自由，破坏了对香港50年自由的承诺。
+3.12月15日，美国官方对休斯顿的Winland International/Super Tire公司和十多人发起控诉，认为相关公司与个人涉嫌长期为中共国制造的轮胎逃避进口关税。德克萨斯南部区联邦检察官帕特里克在一份声明中称，“中共和其工业想要抢劫、复制、代替美国制造的货物和技术…非法进口并倾销这些货物，为的是系统性削弱其美国的竞争对手”。
 
-Pompeo said in an interview: the CCP is the greatest threat to the security of the Americans and people of the world; the CCP has used the so-called civil-military fusion to construct hegemony, stealing millions of jobs from the United States through commercial practices, posing a real threat to the American people; and the CCP took away all the freedoms of the HongKongers through the Hong Kong National Security Law, breaking its promise of 50 years of freedom for Hong Kong.
+4.中共计划投资2亿美元在巴布亚新几内亚西部省首府达鲁岛建设一个综合多功能渔业工业园区，引起澳大利亚的担心。从长远来看，这一项目可能会演变为中共的海军基地。
 
-**司法部长Barr今天正式辞职**
+5.中共国务院国家民族事务委员会官网日前公布消息，由中共中央纪委副书记、国家监委副主任陈小江出任中共民委党组书记，接替蒙古族的巴特尔，成为66年来首位中共民委汉族主任。巴特尔中途下马，实属非常，疑与内蒙古强制推行国家统编汉语教材有关。
 
-**Attorney General Barr Officially Resigned Today**
+6.由多国国会议员组成的对华政策跨国议会联盟(IPAC)星期二（12月15日）联合行动，敦促所在国的外交部长发表声明支持澳大利亚抵制中共的欺凌和胁迫。稍早前，中共媒体证实，国家发改委下令全面开放煤炭进口，但继续限制进口澳大利亚煤炭。澳大利亚已要求中共澄清限制令，并警告称这样的举动将违反WTO规则。
 
-川普总统随后任命了代理司法部长Jeffrey A. Rosen及其助手Richard Donoghue，确保司法部下一步行动在总统掌控之中。所有各州将在12月14日进行选举人投票，并由选举人签字证明选举结果，这意味着司法部将在这天拿到坐实选举舞弊的各州签字证据。12月15日以后，司法部的一系列行动就要开始。据路德了解，几个与拜登相关的重要人士已经被抓。
+7.在中共高调限制澳洲牛肉、煤炭、红酒等货品进口后，国内部分粮价开始出现异常波动。据中共国农业农村部对全国500个集贸市场监测，2020年12月第二周，全国羊肉价格为每公斤82.66元，已连续八周上涨，同比上涨3.6%。
 
-Barr原为老布什政府的司法部长，在川普内阁再次上任是各派妥协的结果，主要任务是完成通俄门调查。现在司法部重心转入灭共，Barr因为自己的利益纠葛，其身份已不再适合继续留任。
+8.华为确认将于12月16日在北京发布鸿蒙OS 2.0手机开发者Beta版本。该系统实为安卓系统套壳，预计在重要的手机应用生态环境上将继续受到制裁。
 
-President Trump then appointed Acting Attorney General Jeffrey A. Rosen and his aide Richard Donoghue to ensure that the Justice Department’s next move is under the president’s control. All states will conduct their electoral votes on Dec. 14, and the election results will be certified by their signatures, which means that the Department of Justice will obtain the signed evidences that substantiate election fraud from these states on this date. After Dec. 15, a series of actions by the Department of Justice will begin. According to LuDe Media, several significant figures related to Biden have been arrested.
+9.上周日（12月13日），《纽约时报》关于美国互联网公司如何因个人的喜恶或商业决定，而扼杀观众选择权的文章中，披露了苹果互联网软件与服务资深副总裁寇尔为他的合作伙伴划定红线，“两样东西我们绝对不碰，狂野的色情以及中共的（负面）题材”。此信息证实了中共对美国科技公司和媒体的全面渗透和控制。
 
-Barr was formerly the Attorney General in the old Bush administration, and his reappointment in the Trump cabinet was the result of a compromise between various factions, with the main task to complete the Russia-gate investigation. Now that the focus of the Department of Justice has shifted to extinguishing the CCP, Barr’s status is no longer suitable to remain in office because of his own entangled interests.
+10.尽管中共官方吹嘘习近平的脱贫工作，百姓仍然要面对经济衰败的现实。中共国社科院最新发布的民调显示，有高达44.4%的受访民众指出，过去一年内，他们只花了1,000元人民币(美金154元)在休闲消费开支上，也就是说，每人每月平均的玩乐基金只有83元人民币。
 
-**Rosen****上任第一天就给亨特拜登发出了24张刑事传票**
+11.12月15日早间，中共央行在官网公告称，为维护银行体系“流动性合理充裕”，当天开展规模高达9500亿规模MLF操作，创下单日投放量历史新高，远超市场预期。同日，央行还开展了100亿7天期逆回购操作。此番操作实际是为了应对市场上频繁出现的债务违约危机。
 
-**Rosen Issued 24 Criminal Summonses to Hunter Biden on His First Day in Power**
+二、世界新闻
 
-所有左媒随Barr的辞职来了个180度大转向，一致报道亨特拜登与中共的勾兑，表明民主党正在抛弃乔拜登，将推出贺锦丽来填补总统候选人的空缺，而贺锦丽正是中共背后藏的那把刀。
+1.12月14日，美国各州选举人团投票选举总统。有消息指，除了州选举官员指定的选举人团外，今年至少包括宾州、乔治亚州、密歇根州、威斯康星州、亚利桑那州、内华达州和新墨西哥州的共和党选举人团也向国会投票，和州政府分庭抗礼，使得这些州都同时有两组选举人投票，共和党人的投票为川普总统保留了纠正选举舞弊的权利。
 
-With Barr’s resignation, all the leftist media made a 180 degree turn and unanimously reported Hunter Biden’s collusion with the Chinese Communist Party, indicating that the Democratic Party is abandoning Joe Biden and will introduce Kamala Harris to fill the vacancy of the presidential candidate, but Harris is the very knife hiding behind the Chinese Communist Party.
+根据目前的“选举人结果”，俄罗斯总统普京、巴西总统博索纳罗、墨西哥总统欧布拉多宣布祝贺拜登在美国本次总统选举当中胜出。
 
-**WHO****总干事谭德塞被指控为群体灭绝罪**
+白宫新闻发言人凯利·麦肯纳尼12月15日表示，川普总统不会放弃，仍在参与正在进行的诉讼，挑战大选舞弊。
 
-**WHO Director General Tedros Charged with Mass Genocide**
-
-曾获诺贝尔奖提名的美国经济学家David Stenman，近日向国际刑事法院起诉谭德塞犯有群体灭绝罪。谭德塞2005-2016年担任埃塞俄比亚卫生部长、外交部长，其所领导的组织提格里人民解放阵线（TPLF）被美国政府列为全球恐怖组织。谭德塞在2013-2015年间为控制该国安全部门的三大领袖之一，为政府的谋杀、酷刑、滥捕、抢地等暴行负责。
-
-David Stenman, a Nobel Prize-nominated American economist, recently filed an indictment with the International Criminal Court against Tedros for mass genocide. Tedros served as Ethiopia’s Minister of Health and Minister of Foreign Affairs from 2005-2016, and had led the Tigray People’s Liberation Front (TPLF), which is listed as a global terrorist organization by the United States. Tedros was one of the three leaders who controlled Ethiopian security services from 2013-2015 and was responsible for the government’s murder, torture, indiscriminate arrests, land grabbing and other atrocities.
-
-文案：《路德社》简报组：文寶Porsche；
-翻译：《路德社》翻译组；翻译统筹：阿轩Action；译校：Arvin江牧
-审核校对：玫瑰天空
-上传排版：青葫芦娃
-
+2.爱尔兰数据保护委员会（DPC）周二（12月15日）对Twitter处以45万欧元的罚款，原因是Twitter未能按照欧洲数据隐私法规《通用数据保护条例》（GDPR）的规定，及时公布并妥善记录一起数据泄露事件。这是DPC首次依据GDPR做出的跨境罚款决定。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16070903/498998.jpg)
 0
