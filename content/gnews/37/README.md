@@ -1,52 +1,144 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国闹血荒 基层发通告强制摊派献血
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/654760/)
+## 150张“以画灭共”作品，给战友提供足够灭共弹药&#8212;-“以歌灭共”，“以酒灭共”，咱还有“以画灭共”
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/654324/)
 
-收集：CPA Jim
-编撰：WENJUN
-复核：文錦
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003456/0771f00c-d863-4a0e-a0b3-4e3d4bd0409a.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003502/990.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003512/75173a41317a6e9a.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003537/image0-2-9-scaled.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003606/image0-1-15.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003618/image0-1-1-3.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003627/image0-1photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003647/image0-2-10.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003704/image0-2-3.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003721/image0-2photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003742/image0-3-9.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003752/image0-3-2.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003803/image0-3photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003818/image0-4-4.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003826/image0-4photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003841/image0-5-5.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003851/image0-5-1.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003900/image0-5photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003918/image0-6-6.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003927/image0-6-1.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003938/image0-6photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003956/image0-7-7.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004006/image0-7-1.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004019/image0-7photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004033/image0-8-3.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004042/image0-8photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004055/image0-9-3.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004101/image0-9photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004113/image0-10-1-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004120/image0-10photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004133/image0-11-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004139/image0-11photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004151/image0-12-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004159/image0-12photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004207/image0-13photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004218/image0-14-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004226/image0-14photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004645/image0-15-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004656/image0-16-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004707/image0-17-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004715/image0-17photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004727/image0-18-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004735/image0-18photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004746/image0-19-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004753/image0-19photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004804/image0-20-3.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004810/image0-20photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004821/image0-21-3.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004829/image0-22-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004837/image0-22photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004844/image0-23-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004852/image0-24-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004858/image0-24photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004912/image0-25-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004924/image0-26-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004935/image0-27-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004944/image0-28-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004952/image0-29-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005002/image0-30-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005340/image0photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005417/image1-1-21.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005425/image1-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005434/image1-3.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005509/image1-1-22.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005549/image1-1-23-scaled.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005559/image1photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005605/image02.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005616/image018.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005624/image020.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005633/image024.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005640/IMG_3512.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005648/IMG_3532.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005656/IMG_3546.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005703/IMG_3547.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005711/IMG_3555.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005718/IMG_3561.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005726/IMG_3567.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005733/IMG_3570.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005741/IMG_3572.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005749/IMG_3602.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005759/IMG_3606.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005809/IMG_3759.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005817/IMG_3776.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005823/IMG_3782.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005829/IMG_3787.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005836/IMG_3854.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005843/IMG_3863.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005849/IMG_3926.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005855/IMG_3927.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005901/IMG_3938.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005907/IMG_3992.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005915/IMG_4012.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005923/IMG_4048.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005930/IMG_4052.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005940/Screen-Shot-2020-09-19-at-1.11.25-AM.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005955/Screen-Shot-2020-09-20-at-3.53.31-PM.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16010014/Screen-Shot-2020-09-20-at-7.36.21-PM.png)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005329/1010.png)献血示意图。(Getty Images)
 
-近日，中国各地号召市民、高校学生进行献血活动。据广东省顺德区中心血站发布的公告称，受疫情影响，无偿献血正面临挑战，血液供应紧张。
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002412/2-23.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002431/3-11.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002436/909090-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002442/EiITkHLVgAAM4Q1-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002451/image0-copy-2-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002601/image0-copy.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002608/image0-1-copy-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002612/image0-1-copy.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002638/image0-1-14.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002655/image0-2-7.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002712/image0-3-8.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002724/image0-4-3.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002737/image0-5-4.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002751/image0-6-5.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002808/image0-7-6.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002818/image0-8-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002829/image0-9-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002838/image0-10-1-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002846/image0-11-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002855/image0-12-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002905/image0-13-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002915/image0-14-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002924/image0-15-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002933/image0-16-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002951/image0-18-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003000/image0-19-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003013/image0-20-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003023/image0-21-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003031/image0-21photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003039/image0-23photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003048/image0-25-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003057/image0-26-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003310/image1-1-20.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003319/image028.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003327/IMG_3612.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003334/IMG_3614.jpg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005416/1111.png)
 
-苏州某单位的内部通知显示，该单位规定12月15日统一组织干部职工开展无偿献血活动。根据市血站2020年度献血指标任务，结合上半年献血情况等，将缺口指标进行了分配。
-
-该内部通知，还对“献血要求”进行了具体规定。要求：近期无感冒、发烧症状，且没有进出疫区，没有亲密接触来自疫区人员；男性体重50公斤以上，女性体重45公斤以上等。
-
-知情人向大纪元记者透露，“这是全市的一个缩影。以前也曝光过类似摊派献血的现象，随后很多基层单位就改为‘口头摊派’。这一次又出现了这种直接发内部通知摊派的现象。”
-
-苏州知情人表示，“因为疫情大家都不敢献血，苏州儿童医院是全国治疗血液病最好的医院，所以患者多，缺血。今年又是各种天灾人祸的，需要救治的人也多。”
-
-基层员工强制献血与绩效挂钩 政府单位可“自愿献血”
-
-今年10月初，湖南耒阳市教育局为了完成献血任务，给全市114所学校，按照教职工人数比例摊派了献血指标。且以下发《通知》的方式将无偿献血工作纳入学校年度考核范畴，对任务完成不好的学校将给予适当扣除绩效考核分。
-
-而对于教育局机关单位的官员和公务员，则拥有“自愿献血”的特权。据陆媒透露，在无偿献血者的构成中，官员、公务员的比例一直偏低。
-
-早前就有教师在网上发文透露，“单位有献血任务，每个教研组摊派到头上的个人，即使身体不适，也要交200元，六月份又是一年卖血季，教师要靠它，来换取年终考核的2分。”
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005515/1212-1.png)
-
-# 2020年10月初，湖南耒阳市教育局为了完成献血任务，[强制摊派献血](https://www.epochtimes.com/gb/tag/%E5%BC%BA%E5%88%B6%E6%91%8A%E6%B4%BE%E7%8C%AE%E8%A1%80.html)，与教职员工绩效挂钩。（网络截图）
-
-谈到中国采血乱象，知情人透露，“血头背后都是官方的，医院支持的。没办法，患者需求在，大血头一年几百万元（收入）吧，在长三角这里。根本原因就是需求大，尤其大城市，车祸多。血小板是给钱的，一个单位的血小板，几十（元）到二百（元）不等。”
-
-“一般小血头就是在贴吧、Q群发布（找血源），都是缺钱的底层人多，缺钱的看见就会加了。大血头都是在医院，会去病房问，或者医院卖信息给他们。”
-
-关于[强制摊派献血](https://www.epochtimes.com/gb/tag/%E5%BC%BA%E5%88%B6%E6%91%8A%E6%B4%BE%E7%8C%AE%E8%A1%80.html)，知情人表示，“我们这强制摊派的，也给钱，1000元400cc血。给现金，财政拨款。这就不对了，和无偿献血的（口号）冲突。”
-
-90年代国内开始爆出的河南、山西、山东、安徽等地因为百姓卖血浆导致的艾滋病的大面积感染悲剧的阴影依然留在国人特别是感染者或失去亲人的家人心头。
-
-中共向来以一种很高的道德标准要求百姓欺骗百姓，中共宣传要求百姓无偿献血，献血达到一定量后献血者和其直系亲属可以免费使用，当百姓真正要用时，即使你拿出献血证也很难真正落实并免费试用。中共红十字会拿到百姓无偿献出的血后会卖给医院，医院再加价卖给患者。中共对百姓的收割无处不在。
-
-中共不但把百姓的血当作生意来做，也把器官移植当作生意招徕全世界的患者并把其作为一种稀缺资源和手段渗透腐蚀世界“重要人士”为其所用。中共治下的百姓活得何其惨烈！中共何其灭绝人性！
-
-参考链接：
-[https://www.epochtimes.com/gb/20/12/14/n12620480.htm](https://www.epochtimes.com/gb/20/12/14/n12620480.htm)
-
-0
+2+
