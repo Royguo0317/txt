@@ -1,33 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 多米尼（Dominion）投票机可以自行创建选票!
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/652939/)
+## 多米尼的出错率如此之高：密歇根68% 内华达约70%
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/653182/)
 
-蒙特利尔皇家山战友团 Tao
-校对 文锦 上传 云起时
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15150048/naturalnews.com_.jpg)图片来源：naturenews.com
-多米尼投票系统居然有内置创建选票的功能，可以轻而易举的自动生成假选票。正如DataDude316在推特中所说：多米尼投票系统很容易被黑客；可以创建拜登的选票并记入其名下；可以完全删除川普总统的选票。这些可是写在多米尼投票系统的用户手册里的！([推特截图](https://twitter.com/JPMediaBoss/status/1326360346617995265))
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15150134/twitter9.jpg)图片来源：twitter.com
-[多米尼网站](https://www.dominionvoting.com/optional-solutions/)在介绍投票系统功能时写道：
-“自动测试平台生成器可以创建完整的测试平台，以实现高效的逻辑测试和准确性测试。测试平台使用的选举项目数据库可以随机生成一组已填写完整的选票，这样的测试可以确保系统的准确性。当扫描这些生成的选票时，测试平台会自动比较系统的结果和扫描的结果，这种测试不仅可以验证选票印刷的质量，还可以验证每个选票统计机器的准确性。”
+蒙特利尔皇家山战友团laotou
 
-关于这个功能，在多米尼投票系统用户手册的第30页有进一步的解释说明：
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15162342/S-3.jpg)图片来自 Shutterstock.com
+12月14日惊爆了密歇根州多米尼投票机68%的错误率，密歇根州特里姆郡（Antrim County）的16台多米尼投票机，经过法学检验后，有数千张选票在2020年11月3日从川普总统名下转给了乔·拜登【1】，这不是坊间传闻，而是密歇根州的法官授权发布。专业部门做了统计，特里姆郡的多米尼投票机，错误率达68%【2】。
 
-“如果贵国的司法部门允许，则可以使用多米尼投票系统的自动测试平台。该程序可从多米尼投票系统购买，它可以自动生成适当的测试选票和预期的选举统计结果”
+68%的错误率听上去很可笑，但还不只密歇根，内华达州也有，《门道专家》12月15日早晨报道，这是一个系统的有目的欺诈，内华达州的克拉克郡多米尼投票机也蹦出了“大约70%的（错误）选票”—— 这是通过设置（进行的）！
 
-乔治亚州的投票机采购文件的第59页显示该州购买了多米尼投票系统的“自动测试平台”。
+文章回顾了密歇根州特里姆郡多米尼投票机68.05%的错误率事件，指出，“这是一个非常重要的发现，多米尼机器设立了68.05% “选票批量裁决”，这些选票被收集到一个文件夹内，随后被送到“另一个地点”，那里的人可以改变选票。
 
-“自动测试平台的创建 – 完整自动的创建测试平台是多米尼系统提供的一项可选服务，以协助客户进行系统的逻辑性和准确性测试。使用系统中的总统大选日数据库，系统会根据算法自动生成一系列已填写完整的选票，以确保系统测试的准确性。”
+《门道专家》继续说，这是选举舞弊。现在看来，这并不是多米尼克投票机的一个孤立事件。同样的事情也发生在内华达州的克拉克郡。
 
-乔治亚州富尔顿（Fulton）县投票站经理苏珊-沃尔斯（Susan Voyles）在听证会上作证说大批选票上对候选人勾选的标记几乎一模一样，并且98%以上都是投给拜登的，这些选票是不是多米诺投票系统的自动测试平台创建产生的？我们还在哪里看到过一摞选票，有些甚至是没有拆封，而其中投给拜登的选票达95%以上的？
+内华达州克拉克郡选举官员也碰巧报告了一个“大约70%选票”的“错误扫描”。
 
-有证据表明，费城选区和密歇根州采购多米尼投票机时也购买了其“自动测试平台”。
+原文附上了发布此消息的推特链接【3】
 
-这些多米尼投票系统软件自动生成的”测试选票”是否被当成了”裸票”，然后这些裸票被正常计票以达到预期的结果？（译者注：裸票是指那些没有放在邮寄信封里的选票，这种选票是无效选票）。这些海量的“测试选票”在选举结束后的凌晨被偷偷倒进了系统里，这就是川普总统由大幅度领先到落后的真实原因。
+正如律师马修·德佩诺（Matthew DePerno）指出的，这种多米尼投票设置是一个“故意的、有目的”的设置错误。【4】
 
-很难相信，世界上最强大的国家，科技军事无人匹敌的美国在最关键的总统大选上，居然使用漏洞如此惊人的投票机。在大量实锤证据指向多米尼投票系统操纵选举时，当初极力推动采购多米尼投票设备的人都值得怀疑。
+需要近70%的“选票批量裁决”设置，说明川普总统领先优势得多大？多么的人心所向！仅仅4年，这位老人就将外强中干的美国恢复了元气，走向更加强大。邪恶势力不会眼睁睁被束手就擒，会作垂死挣扎。但是正义的力量不可阻挡，任何的反扑只会暴露潜伏在深层的小丑，只会加速邪恶的灭亡。胜利属于正义，属于爆料革命！
 
-[原文链接](https://www.thegatewaypundit.com/2020/12/breaking-exclusive-dominion-voting-machines-ability-create-ballots/?utm_source=Twitter&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
+参考链接：
+
+【1】https://www.thegatewaypundit.com/2020/12/breaking-bombshell-mi-judge-grants-attorney-matt-deperno-permission-release-results-forensic-examination-16-dominion-voting-machines-antrim-co-video/
+
+【2】[https://www.washingtontimes.com/news/2020/dec/14/forensic-auditors-find-shocking-68-error-rate-one-/](https://www.washingtontimes.com/news/2020/dec/14/forensic-auditors-find-shocking-68-error-rate-one-/)
+
+【3】[https://twitter.com/KanekoaTheGreat/status/1338631925716566017](https://twitter.com/KanekoaTheGreat/status/1338631925716566017)
+
+【4】[https://twitter.com/mdeperno/status/1338815484955942913](https://twitter.com/mdeperno/status/1338815484955942913)
+
+原文链接：https://www.thegatewaypundit.com/2020/12/systemic-purposeful-fraud-clark-county-nevada-dominion-machines-also-kicked-70-ballots-settings/
 
 0

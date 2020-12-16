@@ -1,30 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【突发】林伍德：麦康奈尔是叛徒，他的审判日将至
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/652790/)
+## 【热点播报】望江县又有人跳河，警察6人施救：戏演得好却演砸了
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/652198/)
 
-- 编辑：Victor Torres
+作者：香草山写作组 程万里 校对/发稿：飞虹
 
-
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-**西班牙2020年12月15日电/西喜社/——**周二下午，林伍德发推批评米奇·麦康奈尔(Mitch McConnell )不是一个爱国者。
-“麦康奈尔只是想要权力、影响力和金钱。他愿意出卖美国来得到他想要的东西。麦康奈尔是美国爱国者的叛徒。”
-“他的审判日即将到来。”
-当天上午，麦康奈尔刚刚承认乔•拜登当选下届美国总统，并向他和贺锦丽表示祝贺。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14092131/GNEW-GTV-MOS-LOGO-2.jpg)
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15142356/%E5%9B%BE%E7%89%8717-2.png)
+2020年12月14日，距上次警察放任女孩溺水时隔十天，墙内安徽省望江县再次有人跳河，与上次地点相距50米。这次有6名警察施救，官方说人第一时间被救上岸。
 
-> Mitch McConnell [@senatemajldr](https://twitter.com/senatemajldr?ref_src=twsrc%5Etfw) is NOT a Patriot. Ask his wife. She knows. 
-> 
-> McConnell just wants power, influence, & money. He is willing to sell America to get what he wants. McConnell is a traitor to American Patriots.
-> 
-> His day of judgment is coming. [https://t.co/d0ECDfk5Tk](https://t.co/d0ECDfk5Tk)
-> — Lin Wood (@LLinWood) [December 15, 2020](https://twitter.com/LLinWood/status/1338914009660133378?ref_src=twsrc%5Etfw)
+有网友评论此为三好：男子跳河跳得好，警察救人救得好，市民视频拍得好。望江警察有点操之过急了，都说自己不是超人，却派了一群超人来施救；央视帮你们教育了民众：挽救一个生命不应以牺牲另一生命为前提，你们却不听央视的谆谆教诲，拿六个人的生命开玩笑，这不是让自己口是心非吗？这不是和国家媒体对着干吗？这不是此地无银三百两吗？
+
+本来事情对你们来说已经过去了，你们却不忘自导自演，非要证明自己的伟光正，结果被网友识破了假恶丑，颜面何在？现在看来你们不是在向上邀功而是给自己埋坑了。
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

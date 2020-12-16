@@ -1,66 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 评网易置顶新闻
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/652419/)
+## 安提法在华府重伤了4名挺川者
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/652331/)
 
-```
-作者: Tito
-校对/发稿人: Ting Guo
-```
+加拿大多伦多枫叶农场 文𤦍(Manpui）
+校对 文锦 上传 云起时
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15140758/theguardian-2.jpg)图片来源：Theguardian
+据《西方杂志》（The Western Journal） 12月13日报道，令人毛骨悚然的视频显示，安提法（Antifa）在华府刺伤了4名川普支持者，该组织暴力和蓄意破坏，恐吓无辜者，摧毁、伤害企业并烧毁建筑物。据美国广播公司（ABC）称，四名川普支持者正处于危急状态。
 
+12月12日，挺川者聚在自由广场，谴责美国大选严重舞弊，支持川普总统。当四名挺川者被刺伤时，挺川集会被安提法演变成暴力。社交媒体上纷纷指责安提法成员在 “Stop The Steal（停止偷票）” 集会中刺伤挺川人士。据WUSA-TV电视称，这次游行集会冲突导致33人被捕并有9人受伤。
 
-**《消除贫困是人类共同理想 习近平为世界贡献中国智慧》**
+据《新闻周刊》(News Week)报导；星期六集会的成员包括骄傲男孩(Proud Boys)，华府自由广场聚集了大批的美国民众，前国安顾问迈克尔‧弗林（Michael Flynn）将军，在获川普总统赦免后首次公开露面。弗林说：“法院不会决定谁会是美国下一任总统。” “唯一是我们人民决定。”
+他说： “我会再告诉你一次，因为有人问我，谁将成为美国下一任总统，答案轻重是1至10，我说，川普10”。
 
-***标题评价:***
+弗林再跟听众说：“川普总统知道他可以信任的人是他从未见过的人。 就是你们，他之所以信任你们是因为他知道你们知道发生了什麽事情，并且你们不会允许我们国家发生这样的事情。”
 
-人类的共同理想已经往消灭中共的方向上无限靠近。而习近平为世界贡献的中国智慧就是；
+在12月2日集会期间，弗林将军呼吁人们在舆论战中坚定信念，不要被左派和主流媒体的谎言击垮。他在发言中表示，这些“舞弊”不只关系到川普，这关乎美国的总统之位、关乎我们国家的灵魂，我们将会把这一切纠正过来。
 
-习近平想：“我要拉上全党全中国人民给我当垫背。”
+一次次的挺川集会，看出美国民心所向，而受暗黑势力操纵的安提法行刺挺川者，再次展露他们丑陋肮脏、无底线的行为。
 
-党内各派别各元老各部属想：“无人机要来就去炸习近平好了，我们随时反水。”
-
-中国人民想：“习近平就在瞎忽悠，不过见他还是要喊万岁的。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15140125/nimg.ws_.126.net_.jpeg)
-***图一评价**:*
-
-中国人的心早就伤的差不多了，而从文革到八九六四，民早就寒透了，也没见咋伤国，毕竟不是赵家人，毕竟只是中国居民。
-
-十一亿脱贫中国有几人？没几人关你屁事？你们最担忧的就是你们自己屁股底下的那把权力椅子。
-
-真正任重道远的是看清中共的真相。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15140215/nimg-1.ws_.126.net_.jpeg)
-***图二评价:***
-
-你说消除就消除？你说包容就包容？你说可持续就可持续？你是国际社会代表？
-
-与民争利，我党天下第一。党造就现代奴隶的本事不可估量，释放有效需要，你就又要开始炒房地产了。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15140258/nimg-2.ws_.126.net_.jpeg)
-***图三评价:***
-
-你更改定义贫困的标准，和全球经济增长更加包容有什么必然联系么？你改了标准，你就有内需了？你改了标准， 你是增加了进口，还是增加的出口？
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15140353/nimg-3.ws_.126.net_.jpeg)
-***图四评价:***
-
-大外宣加蓝金黄，我党还真是加强了国际间的合作，给我党气吞天下提供了坚实的基础。另外，我党在中国的发展从来不是可持续性的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15140438/nimg-4.ws_.126.net_.jpeg)
-***图五评价:***
-
-减贫党最行，数据在手，天下你有，制定标准，你定封王。就算太监再生，党说你是忠臣你好就是忠臣，就算生理有缺，党给你定标准，你就是完人了。就算百姓撅腚累死，你都得笑，你不笑就是负能量，给你个标准，你可能都不是人了，现在中国人像人么？
-
-减贫能加快？你啥时候不偷人美国人的种子再来吹吧！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15140520/nimg-5.ws_.126.net_.jpeg)
-***图六评价:***
-
-一亿人脱贫啊，美国人快来卖你们的产品啊，随便就多了一亿人的市场，美国的华尔街们，你们感受到了么？
-
-**本文章仅代表战友个人观点**
-
-***资料来源：***[*https://news.163.com/20/1215/16/FTTBS11G000189FH.html?clickfrom=w\_yw*](https://news.163.com/20/1215/16/FTTBS11G000189FH.html?clickfrom=w_yw)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09040658/image0.png-13.jpeg)***[https://discord.gg/77fCxw5mFv](https://discord.gg/77fCxw5mFv)**
-[**https://**](https://https://discord.gg/77fCxw5mFv)[**gab.com/himalaya\_italy**](https://gab.com/himalaya_italy)*
-
-
+[原文链接](https://www.westernjournal.com/sickening-video-shows-antifa-allegedly-stab-4-trump-supporters-washington-dc/?utm_source=push&amp;utm_medium=westernjournalism&amp;utm_content=2020-12-13&amp;utm_campaign=pushtraffic)
 
 0
