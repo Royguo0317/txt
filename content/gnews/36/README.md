@@ -1,27 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 有感恩但不要有图报，你才是仁者
-` LORI` [轉載自GNews](https://gnews.org/zh-hans/652054/)
+## 【林伍德律师推文1215】-你被针对是因为敌人恐惧了
+` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/654057/)
 
-作者：铁人雪茄（文铁）
+12月15日林伍德律师转推一篇lawandcrime（“法律和犯罪”）发表的文章，题为“底特律律师正在让鲍威尔律师被罚款、禁止、其海妖团队被立案”，文章报道了一名底特律律师David Fink要求法庭对鲍威尔律师进行各种法律裁决以阻止其维护正义为川普总统竞选找回公正的行动。
 
-郭先生每次直播，我总要反复观看，仔细揣摩，作为一个普普通通的小蚂蚁，我知识有限，水平一般，理解能力不高，郭先生总能在我迷茫时，仿佛惊雷一般让我醍醐灌顶，血液沸腾，激动不已，深知我像大多数战友一样深受共产党的洗脑，以及邪恶思想的影响，短时间难以清理干净，因此总盼望郭先生这盏明灯来指引，每每看完直播我总是意犹未尽，不仅仅是很多东西需要我消化吸收，更多是被郭先生魅力所折服，深深地不舍。看完直播，我喜欢在战友群乐此不疲沟通交流学习郭先生的直播内容，喜欢这样的氛围，四面八方的战友在郭先生带领下汇聚在一起共襄盛举，谋划伟业！
+林伍德律师称，当你被错误控诉时，比如被David Fink 和希拉里克林顿的公司Perkins Coie里的Marc Elias，就像在“法律和犯罪”的宣传毯里一样，你就可以微笑了，因为你知道自己被针对为打击对象，是因为敌人感到恐惧了。
 
-今天（12月14日）听了郭先生的直播，感触良多，再次拜服于郭先生的无我无私包容的胸怀，如果每个战友都能做到无我无私包容，那爆料革命将是披荆斩棘无坚不摧攻无不克战无不胜！战友们都知道在当前的疫情情况下，做实事难！何况我们做的是正义之事，难上加难！可我们再难，有郭先生压力大？有前线的战友压力大？
+他随后回覆该推文，继续幽默地说，“我告诉（宠物狗）Thee 和 Motley，有来自Fink和Elias的威胁，他们却没有笑。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15213404/111111111111.001.jpeg)
+林伍德律师临危仍能泰然处之，他以诙谐的方式反映出美国当前所面临问题的严重性，试想有多少爱国者们忧国思民，是笑不出来的。大战在即，那就让我们在凯旋之后再一起纵声欢笑吧。
 
-天降大任，战友们必须扛起来，每个战友都有自己的优点和长处，只要做到无愧于心尽力就行，郭先生是指挥官，我们做好爆料革命这艘航母战舰的螺丝就行，在当前紧张的局势下，我们更要开足马力传播爆料革命，让全球更多正义人士认清CCP的邪恶，让更多华人华侨加入新中国联邦，把我们的战友搞得多多，把我们的敌人搞的少少，我们的战友越多，CCP的野心就不会轻易实现，爆料革命能有今天都是郭先生的带领下战友们的努力下取得的，战友们的付出郭先生看在眼里记在心里，GTV的椅子、借款，G-coin，G-dollar，以后还有无数个G系列等着战友加入。
+截稿時，网友回复林伍德律师的推文说，“好像有人应该去调查一下 (希拉里克林顿的公司) Perkins Coie，他们费多大劲来想掩盖真相。” 律师回推称：
 
-“每个战友都很重要，每个战友都是一颗射向敌人的子弹，没你不行”。雄关漫道“真”如铁，战友们应该牢记郭先生的警言：唯真不破，任何情况下，都不能欺骗战友，欺骗爆料革命，爆料革命发展到今日，就是坚持这条准则逐渐壮大的，唯真才能让人坚信，唯真才能让人认可，战友们就要做射向敌人的真子弹，而不是做向敌人发射预警的假空弹。
+“我们知道蓬佩奥国务卿已经承认政府掌握了希拉里的邮件….”
 
-在郭先生的感召下，能加入到爆料革命这场伟业的队伍中，无疑每个战友都是心存正义，心存仁爱的，心存善良的，对待有不同意见的战友，只要坚持灭共这个初心，我们应该互相包容，互相团结，郭先生总是强调：我们不能树敌太多。
+新闻素材和图片来自林伍德律师推特
 
-感恩郭先生的伟大人格魅力，善良让我们同情彼此，慈爱让我们互相包容。 当然对待敌人，我们就要果断坚决，对敌人仁慈，那就是对自己残忍，对那些顽固不化的伪类特务5毛，坚决铲除，对于阻碍爆料革命的绊脚石，坚决铲除，对于破坏欺骗爆料革命的伪战友，坚决铲除，对待敌人就要狠，就要威慑，就要让他们痛，就要让他们后怕。
 
-郭先生的“真、善、狠”，几乎囊括了战友的日常行为准则，我们应该牢记、持之以恒、毫不动摇。郭先生无我无私包容的精神，每个战友都应该发扬光大，众人拾柴火焰高，亲爱的战友们，爆料革命胜利的曙光就在眼前了，但是我们不能有任何松懈，我坚信每个战友的涓涓细流终会汇聚成爆料革命的滚滚洪流，谁都挡不住，该我们赢了！
 
-【本文章仅代表作者观点】
+> When you get falsely accused by the likes of David Fink & Marc Elias of Perkins Coie (The Hillary Clinton Firm) in a propaganda rag like Law & Crime, you smile because you know you are over the target & the enemy is running scared![https://t.co/g3LA7llOLq](https://t.co/g3LA7llOLq)
+> — Lin Wood (@LLinWood) [December 16, 2020](https://twitter.com/LLinWood/status/1339042558077366272?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Uh oh. I told Thee & Motley about the threats by Fink & Elias. They are not smiling. [https://t.co/yC2hoSb1jS](https://t.co/yC2hoSb1jS) [pic.twitter.com/5FCgrryIWr](https://t.co/5FCgrryIWr)
+> — Lin Wood (@LLinWood) [December 16, 2020](https://twitter.com/LLinWood/status/1339043202985168896?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Well, we do know that Secretary Pompeo has acknowledged that the government has the Hillary Clinton emails . . . [https://t.co/cqUJbDBRel](https://t.co/cqUJbDBRel)
+> — Lin Wood (@LLinWood) [December 16, 2020](https://twitter.com/LLinWood/status/1339049537705365505?ref_src=twsrc%5Etfw)
+
+
 
 0

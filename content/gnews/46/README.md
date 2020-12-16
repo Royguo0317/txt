@@ -1,30 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 五角大楼紧急关闭秘密互联网协议路由器网络
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/653792/)
+## 12/15日康州农场前沿观察: 谁是&#8221;沼泽地&#8221;的制造者?
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/653878/)
 
-- 编辑：Victor Torres
-
-
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-**西班牙2020年12月16日电/西喜社/——**
-
-五角大楼周二对处理机密材料的计算机网络实施紧急关闭。
-此前，网络安全和基础设施安全局（CISA）于上周日晚上针对SolarWinds Orion发布了罕见的紧急指令21-01。
-据Just the News报道，五角大楼已经对其秘密互联网协议路由器网络实施了紧急关闭，该网络处理的机密信息高达秘密级别。
-一位官员说：”这种情况从来没有在工作日中发生过。”
-三名国防部消息人士证实，五角大楼周二下令紧急关闭一个内部机密通信网络。
-这次史无前例的白天关机是在最近揭露包括国土安全部在内的其他联邦机构被黑客入侵的情况下发生的。
-消息人士说，国防部在深夜提醒员工，SIPRNET系统将在深夜关闭，以进行紧急软件更新。
+主播： 美国小李
+撰文：寒郁冰
+视频：Buzz文珂
+编辑：1984文姝
+图片素材：沧海一粟、海媚
+审片：皮亚纳
+审核:Truemanman
 
 
 
-> [Breaking: Pentagon Imposes Emergency Shutdown of Its Secret Internet Protocol Router Network – Handles Classified Information Up to the Secret Level](https://www.thegatewaypundit.com/2020/12/pentagon-imposes-emergency-shutdown-secret-internet-protocol-router-network-handles-classified-information-secret-level/)
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+在阴阳相生正邪相抗的世界，光明的背后永远有黑暗的影子，黑暗之中却永远孕育着阳光。在代表国家利益的最高权柄之后，却深藏着能够左右这柄权杖的“沼泽地”势力。
+12月12日，文贵先生在盖特中再次谈到“沼泽地”。“沼泽地”是有组织的统领全世界的组织或机构，他们才是左右世界权柄的真正力量。SWIFT环球银行金融电信协会、IMF世界银行、美国常青藤学校的建立者、骷髅会、耶鲁神秘学校组织、哈佛精英汇……这些组织背后的拥有者，他们才是“沼泽地”的制造者，而敢于挑战“沼泽地”的结果往往就是身败名裂。
+ “这是我们文明历史的一个十字路口。它会决定我们的人民，能否重新掌控我们的政府。”面对深不可测的“沼泽地”，川普总统正用行动捍卫着美国人民的利益，守护着光明的力量。
+川普总统11月8日当选演讲时就坚定地说过： “这是我们最后一次机会来拯救它，这次选举会决定我们是一个自由的国度，还是我们只有民主的假象，实际上却被一小撮的全球利益集团控制，来操纵制度……”
+站在人类命运的十字路口，面对“沼泽地”深渊，我们是坚守正义，还是被它所吞噬；我们是在黑白轮转中走向光明，还是在正邪较量中沦为邪恶……这才是对人类的真正挑战。
+“我会为你们拿回这个国家！”
+天雷滚滚，72小时内，川普总统的雷霆行动已经展开，灭共大计又将提速。这世界正发生着本质的变化！
+ 
+康州盘古农场报道
 
 0

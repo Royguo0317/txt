@@ -1,26 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1215】-制裁外国干预总统大选
-` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/654151/)
+## 中共在中缅边境再建铁网围栏 防止国民外逃
+` GM77` [轉載自GNews](https://gnews.org/zh-hans/654216/)
 
-12月15日，林伍德律师引用早先的推文和川普总统于2018年9月12日签署的“制裁外国政府干预总统大选的行政命令”，对乔治亚州的州务卿和州长喊话：
+收集：jay
+编撰: WENJUN
+复核：文錦
 
-如果你是Brian Kemp (州长）或Brad（州务卿），早上醒来看到美利坚合众国总统的推文，今晚你还能睡得好吗？如果你和外国干预势力合作的话，回答一定是不会。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15234915/88-1.png)图片来自参考链接。围墙中方一侧按装的警示牌。（缅甸掸邦北部第一特区推特）
 
-评议：川普总统律师团已经把“制裁”外国干预势力提上日程，至于谁是这个外国势力，已经很清楚，林伍德律师今天早些时候的推文早已给出答案，“这次大选的角逐早已不是川普总统和拜登，而是美国和中共之间的战斗”！至于如何制裁，何时制裁，我们拭目以待。
+继广西[中越](https://www.epochtimes.com/gb/tag/%E4%B8%AD%E8%B6%8A.html)[边境](https://www.epochtimes.com/gb/tag/%E8%BE%B9%E5%A2%83.html)之后，今年年初中共当局又在云南[中缅](https://www.epochtimes.com/gb/tag/%E4%B8%AD%E7%BC%85.html)[边境](https://www.epochtimes.com/gb/tag/%E8%BE%B9%E5%A2%83.html)地区建造[围墙](https://www.epochtimes.com/gb/tag/%E5%9B%B4%E5%A2%99.html)，以阻隔国民偷越国境。据报，长度660公里的缅中边境隔断一期工程全部完工。
 
-新闻素材和图片来自林伍德律师推特
+社媒推特账号缅甸掸邦北部第一特区（果敢民族）近日（12月12日）发文写道，中国政府为防止本国公民偷渡外逃缅甸，代号“南方长城”的缅中边境隔断一期工程全部完工。长度660公里，全部由带刺的铁网拉成。
 
+此外，二期工程将于明年底完工，届时，缅中边境2000多公里将全部隔断。三期工程将于2022年十月完工，届时重点偷渡路段将安装高压电网。所有地方将安装天网摄像系统，及红外报警。
 
+关注[中缅](https://www.epochtimes.com/gb/tag/%E4%B8%AD%E7%BC%85.html)关系的学者司令14日接受自由亚洲电台采访时说，中共在中缅边界线修建高墙，阻止境外新冠病毒（中共）输入中国不是此举的主要原因。
 
-> If you were [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw) & [@GaSecofState](https://twitter.com/GaSecofState?ref_src=twsrc%5Etfw) waking up this morning & seeing this re-tweet by the President of the United States of America, would you be sleeping well tonight? Not if you worked with a foreign country to interfere in a U.S. Election.
-> 
-> Every lie will be revealed. [pic.twitter.com/mCOzn8s1UO](https://t.co/mCOzn8s1UO)
-> — Lin Wood (@LLinWood) [December 16, 2020](https://twitter.com/LLinWood/status/1339055591247945729?ref_src=twsrc%5Etfw)
+司令说：中国修建这道墙，并不是一朝一夕而是通过非常严密的策划完成的。因为过去，[中越](https://www.epochtimes.com/gb/tag/%E4%B8%AD%E8%B6%8A.html)、中缅边境很容易跨过去，所以两国老百姓今天在中国，明天去越南，甚至当天往返。中国建这个墙另外一个目的就是防止中国老百姓外逃，中国不愿意这种趋势继续下去。
 
+在youtube平台，一位叫“阿木”的云南边民在中缅边境畹町口岸发出一段短片称，今年年初，当局就开始修建围墙，把原来的简易木头围墙换成真正的金属围墙。
 
+阿木介绍说：建围墙是为防止缅甸人偷渡到中国来打工，也阻止中共病毒流入中国。另一位到过缅甸的中国居民说，中共在边境建围墙之后，几乎切断了中缅两国的民间交往，包括经济援助。
 
+山西太原一位学者王先生对自由亚洲表示，东南亚是中国人外逃的通道。政府在边境大兴土木建围墙，可理解为中国改革开放四十年来，调转维稳风向标的明显标志，此前各地警察劝告异议人士离开中国，但现在，当局反其道而行之。
 
+今年10月，媒体报导中共当局正在中越边境线上修建数百公里长的边境围墙，墙高超过2米，据说是为了防止国人出逃。中越陆地边境长达1300公里，有网民说，该条边境将全建高墙。
 
-0
+随着中共国内经济的恶化，国内老百姓的就业机会也大为减少。大概两个月前媒体报道越南北方谅山省公安边防局在境内抓获中国广西籍偷渡越南的中国人76名，河靖省边防局拘留25名中国广西籍偷渡者。经初步审讯，被捕者原本在广东打工，但自去年初以来，大批外贸企业撤离，导致工人失业，当他们得知撤资企业已搬到越南，便打算前往岘港打工。
+
+并且随着美国及西方对中共制造并释放生物武器COVID 19给全世界和其对美国大选的不法影响的追责，中共必将面对接踵而至的政治、金融、科技和军事等方面难以承受的压力，这必将导致国内老百姓生活的方方面面出现难以想象的困难。中共在中越中缅边境的建墙，相信是为了防止出现百姓的外逃。中共在西方各方面压力之下必然走向覆灭，但是邪恶的中共妄图临死之前拉上百姓陪葬！
+
+参考链接：
+[https://www.epochtimes.com/gb/20/12/14/n12620119.htm](https://www.epochtimes.com/gb/20/12/14/n12620119.htm)
+
+1+
