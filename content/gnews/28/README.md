@@ -1,19 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德社】【精华版粤语快报】12.15：国务院指中共渗透威胁美国安 拜登选举人团获胜为假消息
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/654681/)
+## 【林伍德律师推文1215】-谎言将被揭穿，真相最终取胜
+` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/654961/)
 
-制作单位：战友之家-粤语组
+12月15日网友转发了一则 ABSCBN News的视频，其中Smartmatic公司主席Mark Malloch-Brown信誓旦旦否认多猫腻系统和调查中的舞弊存在关系。
 
-制作团队：Andy Su、文乔、麻辣汤
+林伍德律师回复称“每一个谎言都会被揭穿。”
+
+随后他继续说，“我们必须为真理而战。明天战斗会继续。真相最终取胜。”
+
+新闻素材和图片来自林伍德律师推特
 
 
 
-摘要:
+> Every lie will be revealed. [https://t.co/BYjjg4EmRN](https://t.co/BYjjg4EmRN)
+> — Lin Wood (@LLinWood) [December 16, 2020](https://twitter.com/LLinWood/status/1339065393378250755?ref_src=twsrc%5Etfw)
 
-国务院发推指中共渗透威胁美国安；美执法部门突袭SolarWinds公司；拜登选举人团获胜为假消息
 
-[【路德时评】原视频链接](https://youtu.be/9B2YWABFv_Q)
+
+
+
+> Time for rest. Thank you for your kind & supportive messages. We must always fight for truth. So the battle continues tomorrow. Truth will prevail.
+> 
+> “The LORD our God be with us, as he was with our fathers: let him not leave us, nor forsake us:”
+> – 1 Kings 8:57
+> — Lin Wood (@LLinWood) [December 16, 2020](https://twitter.com/LLinWood/status/1339083963554381826?ref_src=twsrc%5Etfw)
+
+
+
+
 
 0
