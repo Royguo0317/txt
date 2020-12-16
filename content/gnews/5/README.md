@@ -1,26 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1215】-制裁外国干预总统大选
-` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/654151/)
+## 福克斯玛利亚采访弗林将军：我们必须先纠正眼前的选举
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/654227/)
 
-12月15日，林伍德律师引用早先的推文和川普总统于2018年9月12日签署的“制裁外国政府干预总统大选的行政命令”，对乔治亚州的州务卿和州长喊话：
+中听校：Antsee-GTV
 
-如果你是Brian Kemp (州长）或Brad（州务卿），早上醒来看到美利坚合众国总统的推文，今晚你还能睡得好吗？如果你和外国干预势力合作的话，回答一定是不会。
+翻译： Antsee-GTV
 
-评议：川普总统律师团已经把“制裁”外国干预势力提上日程，至于谁是这个外国势力，已经很清楚，林伍德律师今天早些时候的推文早已给出答案，“这次大选的角逐早已不是川普总统和拜登，而是美国和中共之间的战斗”！至于如何制裁，何时制裁，我们拭目以待。
+翻译终校：烟波浩淼
 
-新闻素材和图片来自林伍德律师推特
+字幕+视频制作：天涯行
 
+审核：康州盘古农场-Truemanman
 
-
-> If you were [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw) & [@GaSecofState](https://twitter.com/GaSecofState?ref_src=twsrc%5Etfw) waking up this morning & seeing this re-tweet by the President of the United States of America, would you be sleeping well tonight? Not if you worked with a foreign country to interfere in a U.S. Election.
-> 
-> Every lie will be revealed. [pic.twitter.com/mCOzn8s1UO](https://t.co/mCOzn8s1UO)
-> — Lin Wood (@LLinWood) [December 16, 2020](https://twitter.com/LLinWood/status/1339055591247945729?ref_src=twsrc%5Etfw)
+弗林将军近日接受福克斯玛利亚采访，弗林将军称：如果被问及从1 到10谁会是下届总统，我会说10唐纳德·川普，途径之一，像西德尼·鲍威尔目前有四个诉讼在最高法院等待（判决），还有其它在最高法院等待（判决）的案子很可能会于本周开庭，我还想强调的是我们有确凿证据表明外国（势力）干预我们的大选，这些（信息）目前已经对公众开放，可以在defendingtherepublic.org 或 Kraken Dashwood.com网站查询。
 
 
 
-
+原视频链接:  https://www.youtube.com/watch?v=ZQYHqPdHUMY&feature=emb\_logo&ab\_channel=GatewayPundit
 
 0

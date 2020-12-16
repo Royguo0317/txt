@@ -1,42 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1215】-你被针对是因为敌人恐惧了
-` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/654057/)
+## 普京贺拜登赢得大选？
+` XMLYG777` [轉載自GNews](https://gnews.org/zh-hans/654126/)
 
-12月15日林伍德律师转推一篇lawandcrime（“法律和犯罪”）发表的文章，题为“底特律律师正在让鲍威尔律师被罚款、禁止、其海妖团队被立案”，文章报道了一名底特律律师David Fink要求法庭对鲍威尔律师进行各种法律裁决以阻止其维护正义为川普总统竞选找回公正的行动。
+内新闻：人民公敌 素材：文曲小妹 校对：老蚂蚁666
 
-林伍德律师称，当你被错误控诉时，比如被David Fink 和希拉里克林顿的公司Perkins Coie里的Marc Elias，就像在“法律和犯罪”的宣传毯里一样，你就可以微笑了，因为你知道自己被针对为打击对象，是因为敌人感到恐惧了。
+正当2020年美国总统大选舞弊案处于司法诉讼阶段，还未水落石出之时，北京时间12月15日，各大媒体曝出俄国总统普京祝贺拜登赢得大选的消息。
 
-他随后回覆该推文，继续幽默地说，“我告诉（宠物狗）Thee 和 Motley，有来自Fink和Elias的威胁，他们却没有笑。”
-
-林伍德律师临危仍能泰然处之，他以诙谐的方式反映出美国当前所面临问题的严重性，试想有多少爱国者们忧国思民，是笑不出来的。大战在即，那就让我们在凯旋之后再一起纵声欢笑吧。
-
-截稿時，网友回复林伍德律师的推文说，“好像有人应该去调查一下 (希拉里克林顿的公司) Perkins Coie，他们费多大劲来想掩盖真相。” 律师回推称：
-
-“我们知道蓬佩奥国务卿已经承认政府掌握了希拉里的邮件….”
-
-新闻素材和图片来自林伍德律师推特
+此消息一出，网络一片哗然。有网友联想到不久前，俄罗斯的“末日核战专机”于维护保养之时，该机上极为敏感的通迅设施被窃一事。感到普京祝贺拜登赢的大选极为蹊跷。
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15232517/unknown-12.png)
+另据中共媒体新浪网11月14日消息，俄罗斯领导人发言人德米特里•佩斯科夫曾对记者表示，今年的美国总统选举与往年不同，一些法律程序正在进行，而那些程序是由现任总统宣布的，因此，普京政府认为等待美国官方宣布结果才是正确的。
 
-> When you get falsely accused by the likes of David Fink & Marc Elias of Perkins Coie (The Hillary Clinton Firm) in a propaganda rag like Law & Crime, you smile because you know you are over the target & the enemy is running scared![https://t.co/g3LA7llOLq](https://t.co/g3LA7llOLq)
-> — Lin Wood (@LLinWood) [December 16, 2020](https://twitter.com/LLinWood/status/1339042558077366272?ref_src=twsrc%5Etfw)
+然而，时隔一个月后，当美国大选司法程序仍在进行时，普京就“改口”不等美官宣结果了。这一个月里到底发生了什么事？
 
+此外，中共官媒环球网、人民网也迫不及待地宣称，普京祝贺拜登当选美国总统，而不是英语的winning u.s. election(赢得大选)｡
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15232620/unknown-1-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15232626/unknown-2-1.png)
+从字面意义看，对普京贺拜登赢选一事的报道，中共官方媒体报道口风比西方媒体似乎更偏向拜登胜选一些。
 
+普京祝贺拜登赢选，此事出有因极为蹊跷，是普京“失误”？对谁最有利？谁最喜闻乐见？为什么？
 
+本文章仅代表本人个人观点。
 
-
-> Uh oh. I told Thee & Motley about the threats by Fink & Elias. They are not smiling. [https://t.co/yC2hoSb1jS](https://t.co/yC2hoSb1jS) [pic.twitter.com/5FCgrryIWr](https://t.co/5FCgrryIWr)
-> — Lin Wood (@LLinWood) [December 16, 2020](https://twitter.com/LLinWood/status/1339043202985168896?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> Well, we do know that Secretary Pompeo has acknowledged that the government has the Hillary Clinton emails . . . [https://t.co/cqUJbDBRel](https://t.co/cqUJbDBRel)
-> — Lin Wood (@LLinWood) [December 16, 2020](https://twitter.com/LLinWood/status/1339049537705365505?ref_src=twsrc%5Etfw)
-
-
+参考链接：
+[https://k.sina.cn/article\_5527041414\_1496ff58602000or18.html?from=cul(已编辑)](https://k.sina.cn/article_5527041414_1496ff58602000or18.html?from=cul%28已编辑%29)
+[普京领导的俄罗斯是最后一个祝贺拜登获胜的主要国家](http://普京领导的俄罗斯是最后一个祝贺拜登获胜的主要国家)
 
 0

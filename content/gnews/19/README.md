@@ -1,13 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/14/2020郭先生直播：预测12月18号到2021年2月美国大选进程；川普总统手中有三张“王炸”未出手
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/653780/)
+## 每日重要Twitter播报（中文）12/14期
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/653739/)
 
-12/14/2020郭先生直播：预测12月18号到2021年2月美国大选进程；川普总统手中有三张“王炸”未出手，即：新的司法部长和特别法律顾问对拜登家族的调查、军方行动和某组织可能会提供更有说服力的证据
+撰稿记者:CYC文颖、本来、尘凡3、石頭
+校对：清咖
+播音:愛明州（文根根）
+剪辑：喜马拉雅2020
+
+[每日重要推文12-14.PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15222155/12-14-converted.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15222155/12-14-converted.pdf)
 
 
-
-By: 【秘密翻译组G-Translators】
 
 0
