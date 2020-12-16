@@ -1,169 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家重磅：乌克兰总检察长办公室公布的文件揭示，数以百万计的资金流向亨特·拜登和约翰·克里家族
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/655799/)
+## 【茧新闻】海内专题：紧急！“限电”来了！所有加工厂全部限电和停限产！
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/655855/)
 
-翻译： 康州盘古农场 – 烟波浩淼
-校对：康州盘古农场 – Robensenna
-审核：康州盘古农场 – 文韵
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16073237/%E5%9B%BE%E7%89%871-18.png)
-*我的天哪。今晚公布的文件将来自外国的数百万美元与亨特•拜登、德文•阿切尔和约翰•克里及其家人联系在一起！*
+作者：玫瑰天空
 
-据报道，从乌克兰总检察长办公室泄露的文件显示，复杂的资金从国外渠道转移到了前总统奥巴马的副总统和国务卿家中。
+2020年12月16日中共国 多家媒体报道，由于电力供应不足，中共国多地已经开始陆续发布有关限电的通知。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16075149/%E6%88%AA%E5%B1%8F2020-12-17-01.51.08.png)
+据最新消息，浙江义乌、金华和湖南长沙等多地已经开始陆续发布有关限电的通知，由于近期电力部门的压力和电力紧缺，要求即日起至12月31日，所有加工厂全部停止生产，政府机关也收到通知，要求气温在3度以上不得开空调。
 
+据《浙江省进一步加强能源“双控”推动高质量发展实施方案（2018-2020年）》要求，到2020年，浙江将建立能源“双控”倒逼转型升级体系；在各市平衡基础上，累计腾出用能空间600万吨标准煤以上；完成“十三五”能源“双控”和煤炭消费总量控制目标任务，全省单位GDP能耗年均下降3.7%以上，能源消耗总量年均增长2.3%以内，煤炭消费总量比2015年下降5%以上、控制在1.31亿吨以内。
 
+**大部分浙江外贸工厂均已收到“停电限产”的通知，**温州钱库镇某供应商晒出通知，通知显示：根据全县能源“双控”、“减煤”工作会议精神的要求，将对全镇高耗能、低产值的企业将在12月15日至12月31日期间实行有序用电，在此期间供电部门将对您的企业生产用电情况进行24小时监控，如有发现不按规定开工生产的，将被强制断电停止生产20天。
 
-> BOMBSHELL:
-> 
-> Leaked documents from the Ukrainian General Prosecutor’s office indicate complex money transfers from foreign sources into the control of a “slush fund” owned and operated by Devon Archer, John Kerry Senior, John Kerry Junior, Heinz Jr, and Hunter Biden.
-> — Mike Coudrey (@MichaelCoudrey) [November 14, 2019](https://twitter.com/MichaelCoudrey/status/1194782001422721024?ref_src=twsrc%5Etfw)
+根据有序用电时间安排表显示：第一次停产休息时间为12月15日至12月19日；第二次停产休息时间为12月22日至12月25日；第三次停产休息时间为12月28日至12月31日。
 
+根据卖家提供的金华市12月工业用电停电计划表显示，根据金华市节能降耗的要求，12月13日至12月底，实行节能降耗措施，具体标准如下：A类企业开一停一；B类企业开一停二；C类企业开一停三；D类企业全停。（不同地区标准不同）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16080613/%E6%88%AA%E5%B1%8F2020-12-17-02.05.41.png)
+据悉，不仅是浙江地区，众多地区都于近期发文，对于近期电力部门的压力和电力紧缺等问题采取了相关措施。
 
+**湖南长沙：**已开展有序用电工作， **当前有序用电时间段（用电高峰时段）为：每天10：30-12：00、16：30-20：30。**为缓解全市用电紧张压力，做到科学用电、合理用电、节约用电，避免因用电负荷缺口造成生产、生活不便，长沙市发展改革委特向广大市民倡议，**全市所有空调一律控制在20℃以下，不使用电炉、电烤炉等高耗能电器。**
 
-*迈克·**库德瑞 @MichaelCoudrey  2019**年11**月13**日*
+**湖南益阳：**根据益阳市工业和信息化局关于印发《益阳电网2020年迎峰度冬有序用电预案》的通知， **我县即日起17:00-20:00关停景观灯，路灯减半开启。待上级通知后再恢复正常。**请广大市民予以谅解！
 
-*爆炸性新闻。*
+**湖南衡阳祁东：**从即日起，我县启动有序用电措施， **在全县范围内将分线路、分批次进行轮流拉闸限电，最大限度保障用电供电工作有序运行。**会议希望各用电企业、广大居民**在每天上午10：00-12：00下午17:00-20:00高峰期错峰避峰用电，节约用电、安全用电。**
 
-*乌克兰总检察长办公室泄露的文件表明，源于外国的复杂资金转移到一个 “贿赂基金 “的控制之下，该基金由德文*•*阿切尔，老约翰*•*克里，小约翰*•*克里，小海因茨和亨特*•*拜登拥有和运作。*
+**湖南株洲：**国网株洲供电公司呼吁， **在每日10：30～12：00、16：30～20：30之间，希望大型工业企业主动承担社会责任，严格执行有序用电方案，主动错峰、避峰生产，**让电于民，广大居民、党政机关、企事业单位在此期间减少空调、电暖器、微波炉、电水壶、电热水器等大功率电器使用频率，做好安全用电、节约用电、科学用电，减轻供电压力，共同确保居民生活用电和电网安全稳定运行。
 
-**根据拉脱维亚的反情报，*布里斯玛（Burisma）控股有限公司*获得了大约400万美元，然后转给了亨特•拜登和德文•阿切尔**。
+**内蒙：**乌兰察布电力面临短缺，由于系统出力不足，乌兰察布地区预计缺额300万KW，不排除后期电力短缺会加大，前期乌兰察布发布有序用电方案通知， **自4季度开始乌兰察布地区铁合金实行有序电力调整，针对不同容量电炉实施不同电力安排。**
 
+**江西：**省发改委决定从12月15日起， **每日早晚高峰段实施可中断负荷，并启动有序用电工作。**
 
+除以上地区外，湖南怀化、永州等地**已于12月5日起正式启动有序用电。**网络上也有不少工厂“晒”出了现状并表示，确实已经开始限电和停限产了。
 
-> According to the Department of Financial Monitoring (Counter-intelligence) of Latvia, the following sums of money were obtained from Busima Holding Limited (Cyprus) which is open at AS PrivatBank in Latvia: [pic.twitter.com/vSG1LLwqvA](https://t.co/vSG1LLwqvA)
-> — Mike Coudrey (@MichaelCoudrey) [November 14, 2019](https://twitter.com/MichaelCoudrey/status/1194782088018350080?ref_src=twsrc%5Etfw)
+限电消息的发布，让许多中小外贸工厂感到棘手，上半年开不了工，下半年面临材料涨，汇率跌，集装箱缺，货物运不出去堆积成山。对此，许多卖家也为自己的货物供应感到担忧。
 
+**物流形势严峻，跨境和外贸行业难题不断**
 
+据某义乌外贸工厂负责人表示，现在整个外贸行业都在为物流而感到担忧，有些工厂的货物已经四处堆积都运不出去，海运、铁路和快递都面临着延误，拥堵十分严重。
 
-*迈克·**库德瑞 @MichaelCoudrey  2019**年11**月13**日*
+以上限电造成的工厂减产停产正把摇摇欲坠的中共国经济拉向停摆和自由落体的下行状态。由此，令早已因汇率浮动造成了巨额损失的外贸企业雪上加霜，进入了贸易寒冬。而经济发展趋势的没落，自然会造成经济和民生领域的连锁反应。限电曹成的停产会导致市场原料及商品的供需失调，由此就会带来物价上涨，通货膨胀，产销恶性循环；那么，最终的失业潮，以及物资匮乏和由此产生的社会问题就可能会成为国内老百姓所可能不得不面对的诸多难题。
 
-*根据拉脱维亚财务监督部（反情报）部门的资料，从在拉脱维亚AS**私人银行布里斯玛（Burisma**）控股有限公司（塞浦路斯）获得以下款项*
+[援引](https://www.sohu.com/a/438483653_310421)：https://news.smm.cn/news/101347203
 
-*迈克·**库德瑞 @MichaelCoudrey  2019**年11**月13**日*
 
-*“Wire logic Technology AS**”**提供14,655,982**美元和366,015**欧元，以及*
 
-*“Digitex Organization LLP**”提供1,964,375**美元。*
-
-*此外，上述款项的一部分转给了阿兰•阿普特、亚历山大•克瓦希涅夫斯基、德文•阿切尔和亨特•拜登。*
-
-**布里斯玛（Burisma）控股随后通过摩根士丹利向亨特•拜登和约翰•克里家族汇去350万美元**。
-
-
-
-> BURISMA HOLDINGS LIMITED, during a period from November 18th 2014 to November 16th 2015 transacted 45 money transfers through MORGAN STANLEY SMITH BARNEY LLC in the sum of $3.5M dollars. 
-> 
-> The recipient of the money transfer is Rosemont Seneca Bohai LLC.
-> — Mike Coudrey (@MichaelCoudrey) [November 14, 2019](https://twitter.com/MichaelCoudrey/status/1194782093831622656?ref_src=twsrc%5Etfw)
-
-
-
-*迈克·**库德瑞 @MichaelCoudrey  2019**年11**月13**日*
-
-*从2014**年11**月18**日至2015**年11**月16**日期间，布里斯玛控股有限公司通过摩根士丹利史密斯巴尼有限责任公司进行了45**笔汇款，总金额为350**万美元。*
-
-*汇款的收款人是罗斯蒙特塞内卡渤海有限责任公司*
-
-*迈克·**库德瑞 @MichaelCoudrey  2019**年11**月13**日*
-
-*罗斯蒙特塞内卡渤海有限责任公司由德文•**阿切尔拥有，克里家族包括老约翰•克里、小约翰•克里、小海因茨和亨特•拜登拥有和运营。*
-
-*所有这些人也是都罗斯蒙特塞内卡基金和其他附属于罗斯蒙特塞内卡公司的合伙人。*
-
-**钱被转移后，布里斯玛就不再接受调查了**。
-
-正如《门户专家》昨晚报道的那样，布里斯马向亨特•拜登和克里家族支付的款项包括38笔**8.3万美元**的付款，总额超过**310万美元**。
-
-
-
-> BURISMA HOLDINGS LIMITED, during a period from November 18th 2014 to November 16th 2015 transacted 45 money transfers through MORGAN STANLEY SMITH BARNEY LLC in the sum of $3.5M dollars. 
-> 
-> The recipient of the money transfer is Rosemont Seneca Bohai LLC.
-> — Mike Coudrey (@MichaelCoudrey) [November 14, 2019](https://twitter.com/MichaelCoudrey/status/1194782093831622656?ref_src=twsrc%5Etfw)
-
-
-
-*迈克·**库德瑞 @MichaelCoudrey  2019**年11**月13**日*
-
-*泄露的银行交易记录显示，乌克兰能源公司Burisma**控股有限公司向罗斯蒙特塞内卡有限责任公司注入大笔款项，似乎每月支付83,333.33**美元*
-
-*为什么一家正在接受乌克兰总检察官办公室腐败调查的外国公司突然聘用和招揽与政府有联系的美国知名人士，并付给他们如此大笔的钱？*
-
-**确切原因在这里：**
-
-
-
-> Joe Biden at the Council on Foreign Relations:
-> 
-> "So I said to Poroshenko (Ukrainian President) & Yatsenuk (Ukr PM):
-> 
-> If you don't fire the prosecutor investigating my son, we're going to withhold the $1 billion in aid."
-> 
-> Would be a shame if this went viral! [pic.twitter.com/Wd1x7tsFFn](https://t.co/Wd1x7tsFFn)
-> — Mike Coudrey (@MichaelCoudrey) [September 26, 2019](https://twitter.com/MichaelCoudrey/status/1177028193569538048?ref_src=twsrc%5Etfw)
-
-
-
-*迈克·**库德瑞 @MichaelCoudrey  2019**年9**月25**日*
-
-*对外关系委员会的乔•拜登（Joe Biden**）：*
-
-*“所以我对波罗申科（乌克兰总统）和耶特努克（乌克兰总理）说：如果您不解雇调查我儿子的检察官，我们将扣留这10亿美元的援助。”如果(这事)病毒式传播，那将是一个耻辱！*
-
-**在拜登扣留了向乌克兰提供的10亿美元援助后，对布里斯马的调查被终止。**
-
-
-
-> Soon after high profile US persons were paid off, including the son of US politician and Vice President Joe Biden, the corruption probe into Burisma and Hunter Biden was shut down under threat from the US administration withholding $1B in aid.
-> 
-> See here:[https://t.co/34R7HYVoGY](https://t.co/34R7HYVoGY)
-> — Mike Coudrey (@MichaelCoudrey) [November 14, 2019](https://twitter.com/MichaelCoudrey/status/1194782110923415552?ref_src=twsrc%5Etfw)
-
-
-
-*迈克·**库德瑞 @MichaelCoudrey  2019**年11**月13**日*
-
-*美国知名人士包括美国政治家的儿子和副总统乔•拜登（Joe Biden）获得报酬后不久，在美国政府扣留10亿美元援助的威胁下，针对布里斯马和亨特•拜登的腐败调查被终止。*
-
-
-
-> BREAKING: A large cache of confidential foreign documents have just been leaked implicating Joe Biden, George Soros, Hillary Clinton and Joseph Misfud's collusion and possible criminal activity in Ukraine.
-> 
-> Download and start digging! ⬇️[https://t.co/7XD9Tzkqkj](https://t.co/7XD9Tzkqkj) [pic.twitter.com/UvDXpGxAlT](https://t.co/UvDXpGxAlT)
-> — Mike Coudrey (@MichaelCoudrey) [September 26, 2019](https://twitter.com/MichaelCoudrey/status/1177370086182551552?ref_src=twsrc%5Etfw)
-
-
-
-*看这儿：*
-
-*“波罗申科（乌克兰总统）在美国总统府的压力，特别是美国副总统乔•拜登的压力，要求我辞职。拜登威胁要扣留给乌克兰的10亿美元补贴，直到我被免职为止 。”*
-
-*综上所述，据我所知，腐败的外国天然气公司曾恳请美国政府下属的知名人士非法影响美国的官方外交政策，并向乌克兰政府施加压力，要求其停止对腐败的调查。*
-
-**与乌克兰的交换涉及的是乔•拜登和约翰•克里，而不是唐纳德•川普总统。**
-
-
-
-> Further more, it has been determined that after significant payments were made to the firm partly owned by Hunter Biden, Joe Biden while the Vice President operated in an official capacity to change US Foreign Policy to help enrich and protect his son, Hunter Biden.
-> — Mike Coudrey (@MichaelCoudrey) [November 14, 2019](https://twitter.com/MichaelCoudrey/status/1194782116480831490?ref_src=twsrc%5Etfw)
-
-
-
-*迈克·**库德瑞 @MichaelCoudrey  2019**年11**月13**日*
-
-*此外，据确定，在向亨特•拜登和部分拥有的公司付款后，而副总統乔•**拜登则以正式身份运作来改变美国外交政策的，以帮助丰富和保护他的儿子亨特•拜登。*
-
-**涉及美国的真正犯罪的是约翰•克里、克里的家族和拜登家族，而不是唐纳德•川普总统！**
-
-
-
-原文作者：乔·霍夫特
-
-发布于2019年11月13日晚上9:55
-
-原文链接：
-
-[HUGE! EXCLUSIVE BOMBSHELL: Documents Released by Ukrainian General Prosecutor’s Office Reveal MILLIONS Funneled to Hunter Biden and the John Kerry Family (thegatewaypundit.com)](https://www.thegatewaypundit.com/2019/11/huge-exclusive-bombshell-documents-released-by-ukrainian-general-prosecutors-office-reveal-millions-funneled-to-hunter-biden-and-the-john-kerry-family/)
-
-4+
+2+

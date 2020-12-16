@@ -1,23 +1,80 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友寄语】 毋忘初心 实现共同信念
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/655326/)
+## 《路德社》每日简报早间版 2020.12.15&#8211;NewYork Time
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/654480/)
 
-编撰：心听见
+出品《路德社》 编辑：路德社精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003138/1215-AM-ZH-scaled.jpg)
+撰稿：文寶Porsche   译校：Arvin江牧
 
-审核：MY
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16044311/%E9%A6%99%E6%B8%AF%E6%B0%91%E9%96%93%E4%BA%BA%E6%AC%8A%E9%99%A3%E7%B7%9A%E5%AE%A3%E5%B8%83.jpg)图片：2019年6月16日 当日参与游行人数超过200万，创香港示威人数最高纪录
-在中共独裁暴政虚伪的谎言教育制度下，想当年的我，没有去了解什么是「宪法」公民权利、民主自由之前，也是不知道民主自由法治为何物。而在今天的香港所发生的一切，墙内很多人都不理解香港人为何这样义无反顾的追求自由，当中共是以邪恶流氓手段、谎言建国之后，展开各种变态的肃清运动，杀害几千万中国人的一些违反人权、惨无人道的“丰功伟绩”。至今为止，中共也没有停止鱼肉百姓、灭绝人性的滔天罪行擢发难数，正因如此，有了前车之鉴的血淋淋的历史事实，香港在政权移交回归以来，香港人就开始警惕中共邪恶力量对香港的影响，以防历史循环不息，百年民主体制累之，毁之一旦，所以多年以来一直坚持为正义而发声表达意愿。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16044257/%E6%96%87%E9%9D%A9%E6%89%B9%E9%AC%A5-%E6%B3%AF%E6%BB%85%E4%BA%BA%E6%80%A7.jpg)图片：中共发动的文革批斗 泯灭人性
-也是好景不常，中共专制邪恶本质令历史重演，没有人会想到科技文明时代的今日香港正经历着，当年中国人民被文革式打压的处境，逃不过极权暴政镇压和统一思想改革，利用极权专制剥弱了市民原有的基本权利。而今港共政府，只是一群被中共钦点，没有灵魂驯服在中共的权威之下，面目狰狞的奴颜媚骨所占领，为了偷合苟容，不惜成为邪恶中共血腥镇压港人的帮凶。当《基本法》被废「一国两制」形同虚设，香港管治只剩「国安法」政治高压手段，随之而来每日都有黑警针对性的滥权滥捕，司法的滥告判罪行动，因此政治立场不同而遭报复，最近我们看到留守的抗争年轻勇士以及年长的和平抗争人士都一一扣上不同罪名被判刑，而有幸离开走向流亡海外的港人，继续为香港真相向世界发声保留一席之地，在香港整个社会，每个行业都成为政治监管改革打压对象，不得安宁。
+翻译统筹：阿轩Action
 
-反恶法修例风波不断，由于信息不对称，大陆国内信息渠道闭塞，一些在墙内曾经享受着香港特区的优惠政策得益的国人，却冷嘲热讽香港人，赞成港共政府通过恶法，黑警暴力镇压。愚昧无知从不去了解真相，令笔者我感叹墙内这些嘲讽者都是一群麻木不仁的白眼狼。而港人是为了捍卫多年建立的民主体制价值观不被暴政极权所取代，作为公民的责任，实质是当暴政成为事实时，而革命抗争发声行动就是向政府表明，维护一个公民合法权益不被暴政吞噬。悲哀的是，在中国大陆被邪恶中共暴政专制统治下，老百姓从来就没有享受过民主、言论自由、法治，而且也不被当作公民对待，也没有权力行使《宪法》中所言的「公民基本权利和义务」，更可悲的事实，被一群披着人皮的「橡皮图章」所代表了，也因为被愚昧无知，公民可以享受的「权力和义务」被代表了，也觉得理所当然。
+1215早间要闻-NewYork Time
 
-而被中共谎言忽悠的老百姓是无法体验，民主、言论自由、法治制度的美好，在邪恶中共的意识形态洗脑之下，大部分的老百姓只能活在谎言和被欺骗、被欺凌而也无处申诉的党国恶梦中，也不敢越雷池一步，苟且偷安，难以觉醒，有些甚至愿意做装睡不被叫醒的人。被中共邪恶意识形态单一思想洗脑的人民，只相信邪恶的谎言和欺骗，是非黑白，颠倒不分。每天都被在邪共『假大空』的吹牛模式欺骗，乐此不疲，使其有眼如盲。这样的一个群体，因失去了信仰，甘心被魔鬼共产党奴役成为韭菜人们，是很难理解有信仰信念的香港人追求民主自由的心声。有幸的是，从爆料革命中我们看到，有很大一部分对共产党有清晰认识的中国人及遍布海外的华人，与反对暴政争取自由的香港人因为有着共同的信念，而成为肩并肩的战友一起用行动支持香港。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16044325/7f681bd67af4482188865c4a62dda490.jpg)图片：面对港共政权无情打压，香港人仍坚毅不屈走上街头表达诉求
-香港人民为捍卫民主自由价值观的行动，虽受到暴力打压却始终没有放弃初心，他们坚毅勇敢的社会责任感，得到了全世界人民的尊重。我们正经历着邪恶与正义决战的年代，无论邪恶的中共组织怎么样的垂死挣扎，小编我坚信，不忘初心，方得始终，坚守信念，最后正义一定会胜利。初心不变也是我们每个爆料革命战友坚持灭共行动的信念。
+**LuDe Media 20201215 Morning News, New York Time**
 
-以上观点仅代表笔者本人
+**美国务院发推“中共危害了美国的自由和国家安全”**
+
+**State Department Tweeted “CCP Endangered U.S. Freedom and National Security”**
+
+推文说，美国人必须知道中共如何为自己的目的毒害了我们的高等教育，以及这些行为如何损害了我们的自由和我们的国家安全。这些蓬佩奥早前说过的话，今天由国务院推特账户再次发表，指向性非常明显。
+
+The tweet said Americans must know how the Chinese Communist Party has poisoned our higher education for its own purposes and how those actions have damaged our freedoms and national security. These words, which Pompeo said earlier, were re-posted today by the State Department’s Twitter account, pointing in a quite clear direction.
+
+**大学如何与国家安全相联系**
+
+**How Universities Connected to National Security**
+
+中共对大学的渗透，造成了教育界、学术界和医学界的腐败，导致了全世界主流专家学者无视病毒真相、在閆博士的病毒来源报告面前保持沉默，阻止民众使用羟氯喹，直接导致了美国人民的生命安全和国家经济、国防等各方面安全受到巨大损害。
+
+The Chinese Communist Party’s infiltration of universities has caused corruption in education, academia, and medical community, resulting in mainstream experts and scholars around the world ignoring the truth about the virus and remaining silent in the face of Dr. Yan’s reports on the source of the virus, and preventing the public from taking hydroxychloroquine, and it has directly led to tremendous damage to American lives, economics, defense, and other aspects.
+
+**路德再谈美国沼泽地与生态系统**
+
+**LuDe Talked Again about America Swamp and Ecosystem**
+
+作为美国真正权力一极的哈佛、耶鲁等常青藤学校，是培养美国沼泽地鳄鱼的基地。无论董事会、校长、院长、教授如何变更，这些学校背后的真正老板不会改变，他们或是某个家族，或是其他某个利益集团。
+
+长期以来，美国一直存在沼泽地，范围局限于政客、华尔街等很小的精英圈中，与普通大众的圈子相隔离，各自遵循各自的规则不越界，从而维持了社会生态系统的平衡，推动了美国长期的繁荣和稳定。在这样的生态中，沼泽地的存在始终提醒着民众要小心鳄鱼，要时刻保持警惕、维护自己的安全。
+
+As one pole of the real power in America, the Ivy League schools such as Harvard and Yale are the bases for cultivating alligators of swamp in the United States. No matter how the board of trustees, presidents, deans, and professors change, the real owners behind these schools do not change, either a family or some other interest group.
+
+For a long time, there has been a swamp in the United States, and it is confined to a very small elite circle of politicians, Wall Street, etc., isolated from circles of the general public. These circles follow their own rules without crossing, thus they maintain the balance of the social ecosystem, promoting the long-term prosperity and stability of the United States. In such an ecology, the existence of the swamp always reminds the public to beware of crocodiles and to be alert to maintain their own safeties.
+
+**鳄鱼越界要被消灭**
+
+**Crocodiles Crossing the Border to be ****Exterminated**
+
+在生态系统中，如果鳄鱼越过自己的边界，危及到了其他物种生存和生态系统的平衡，它就会被消灭。当年纽约黑帮将地盘扩大化，危及到了老百姓正常生活和社会正常秩序，就被朱利安尼剿灭了。
+
+In an ecosystem, if a crocodile crosses its border and endangers the survival of other species and the balance of the ecosystem, it will be exterminated. Back then, the New York gangs were eliminated by Giuliani when they expanded their territories and endangered the normal life and social order of ordinary citizens.
+
+**中共渗透美国大学触碰了美国权力的根本，必被灭**
+
+**CCP****‘s Infiltration of U.S. Universities Touched foundation of U.S., Must Be Eliminated**
+
+因为中共将自己不讲游戏规则那一套玩法渗透到大学，传导给教授和学生，将导致整个美国都变成沼泽地，鳄鱼越界到处乱跑，快把沼泽地背后养鳄鱼的人给吃掉了。
+
+美国人今天看清楚中共已经严重越界了，它是要彻底破坏沼泽地的规则、把整个美国变成沼泽地。美国人开始放弃天真的幻想，将以其人之道还治其身对付中共。这就是川普总统突然换下和平时期的司法部长Barr、换上能打大仗的代理部长和副部长的原因。美国对中共的行为规则已经变了。
+
+The CCP’s infiltration of its own set of rules-less game into universities and its transmission to professors and students will cause the entire United States to be a swamp, and all the alligators run around across the borders and are about to eat the people who raise them behind the swamp.
+
+Americans today have seen clearly that the Chinese Communist Party has seriously overstepped its bounds and it is trying to completely break the rules of the swamp and turn the entire United States into a swamp. Now Americans are beginning to give up their naive illusions and will deal with the CCP in the CCP way. This is the reason why President Trump suddenly replaced Barr, the peacetime Attorney General, with an Acting Attorney General and a Deputy Secretary, those who can fight big battles. The rules of American actions against the Chinese Communist Party have changed.
+
+**美国突袭Solarwinds公司获得选举造假铁证**
+
+**U.S. Raid on Solarwinds Got Solid Evidences of Election Fraud**
+
+美国联邦法警、德州骑警和FBI联合行动突袭了Solarwinds公司位于奥斯汀的总部，获取了Dominion系统选票造假的铁证。该行动的级别之高、保密程度之高，前所未见。
+
+A joint operation by the U.S. Marshals, the Texas Rangers and the FBI raided Solarwinds’ headquarter in Austin and obtained solid evidences of ballots fraud in the Dominion system. The operation was unprecedented in its level of rank and secrecy.
+
+#CCP\_is\_terrorist   #TakeDownTheCCP
+
+文案：《路德社》简报组：文寶Porsche；
+翻译：《路德社》翻译组
+审核校对：玫瑰天空
+上传排版：青葫芦娃
 
 0
