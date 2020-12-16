@@ -1,615 +1,144 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美当局向亨特·拜登发出传票 索要与二十多个实体信息，涉及乌中交易（玫瑰看新闻2020.12.14）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/649796/)
+## 150张“以画灭共”作品，给战友提供足够灭共弹药&#8212;-“以歌灭共”，“以酒灭共”，咱还有“以画灭共”
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/654324/)
+
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003456/0771f00c-d863-4a0e-a0b3-4e3d4bd0409a.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003502/990.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003512/75173a41317a6e9a.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003537/image0-2-9-scaled.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003606/image0-1-15.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003618/image0-1-1-3.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003627/image0-1photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003647/image0-2-10.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003704/image0-2-3.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003721/image0-2photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003742/image0-3-9.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003752/image0-3-2.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003803/image0-3photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003818/image0-4-4.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003826/image0-4photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003841/image0-5-5.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003851/image0-5-1.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003900/image0-5photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003918/image0-6-6.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003927/image0-6-1.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003938/image0-6photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003956/image0-7-7.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004006/image0-7-1.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004019/image0-7photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004033/image0-8-3.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004042/image0-8photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004055/image0-9-3.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004101/image0-9photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004113/image0-10-1-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004120/image0-10photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004133/image0-11-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004139/image0-11photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004151/image0-12-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004159/image0-12photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004207/image0-13photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004218/image0-14-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004226/image0-14photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004645/image0-15-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004656/image0-16-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004707/image0-17-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004715/image0-17photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004727/image0-18-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004735/image0-18photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004746/image0-19-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004753/image0-19photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004804/image0-20-3.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004810/image0-20photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004821/image0-21-3.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004829/image0-22-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004837/image0-22photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004844/image0-23-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004852/image0-24-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004858/image0-24photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004912/image0-25-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004924/image0-26-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004935/image0-27-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004944/image0-28-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004952/image0-29-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005002/image0-30-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005340/image0photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005417/image1-1-21.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005425/image1-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005434/image1-3.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005509/image1-1-22.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005549/image1-1-23-scaled.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005559/image1photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005605/image02.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005616/image018.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005624/image020.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005633/image024.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005640/IMG_3512.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005648/IMG_3532.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005656/IMG_3546.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005703/IMG_3547.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005711/IMG_3555.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005718/IMG_3561.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005726/IMG_3567.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005733/IMG_3570.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005741/IMG_3572.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005749/IMG_3602.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005759/IMG_3606.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005809/IMG_3759.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005817/IMG_3776.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005823/IMG_3782.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005829/IMG_3787.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005836/IMG_3854.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005843/IMG_3863.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005849/IMG_3926.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005855/IMG_3927.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005901/IMG_3938.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005907/IMG_3992.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005915/IMG_4012.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005923/IMG_4048.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005930/IMG_4052.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005940/Screen-Shot-2020-09-19-at-1.11.25-AM.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005955/Screen-Shot-2020-09-20-at-3.53.31-PM.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16010014/Screen-Shot-2020-09-20-at-7.36.21-PM.png)
+
 
-编辑：玫瑰天空； 采集：楼兰古城
-
-**新中国联邦追求的新七条**
-
-1.加大力量发展GTV，Gnews，Gclub，Ｇfashion，Gcoin, Gdollar 把各个投资者和股东的利益紧紧的联系在一起，让投资者，战友们，机构投资者能赚大钱，发展第一实力：经济实力
-
-2.把全世界的华人以最快的速度绝对化的连在一起，让喜马拉雅农场联盟委员会以最快的速度成长，国际化，标准化，法治化.
-
-3.以最快的速度，绝对的速度，建立世界上的政治准联盟关系
-
-4.做好没有共产党的新中国在国际上的绝对代表的力量，争取更多的国际机构承认我们
-
-5.绝对化的把战友们的利益和战友们的安全和战友们的资源以最快的速度标准化，法治化，固定化的连系在一起，形成战友之间最忠诚强大的联盟.
-
-6.从各个领域要加大，最大的媒体的宣传力度，一致行动，音乐，时尚，生活方式，网上商业，网络上的各种联系在一起；在美国，和美国的媒体界，金融界，商业界，建立良好的关系，迅速联系在一起，我们要减少敌人，增加合作伙伴
-
-7.让法治基金，法治社会，Ｇ系列的全球联盟合作者，机构投资者，让更多国际上的各种势力和战友们一起致富，让他们跟我们站在一起。战友们一定要听文贵的，一致行动，掀起西方媒体市场，资本市场和巨大的现代经济，网络经济，网络金融一个新的时代。
-
-🦋🦋🦋🦋🦋🦋🦋🦋🦋🦋🦋🦋🦋
-
-**美国新闻板块：**
-
-**1.美当局向亨特·拜登发出传票 索要与二十多个实体信息，涉及乌中交易**
-
-自华盛顿方面消息，据一位熟悉美国司法部对当选总统拜登的儿子进行调查的人士透露，向亨特·拜登（Hunter Biden）索取文件的传票要求他提供与二十多个实体有关的信息，其中包括他在乌克兰和中国等地的商业往来。
-
-美联社12月12日报导指，检方8日向亨特·拜登发出的传票范围之广，凸显了调查人员正以广泛的角度审查拜登之子的国际商业活动和财务状况。特别是亨特·拜登与乌克兰天然气公司布利斯玛（Burisma ）的关系，长期以来一直困扰着拜登的政策工作和政治抱负。目前还不清楚亨特·拜登在布利斯玛的工作是否是联邦调查的核心部分，还是检察官只是在寻求有关他近年来所有收入来源的信息。
-
-消息人士未获授权公开讨论美国司法部门正在进行的调查，是在匿名的情况下向美联社透露的相关消息。亨特·拜登的律师乔治-梅西雷斯（George Mesires）没有立即回复电话质询，拜登过渡团队的发言人也拒绝评论。此前，亨特·拜登9日证实，他的税收正在接受联邦调查。这一披露正值拜登进行人事提名的微妙时刻，他正在组建新政府的内阁人选，并将很快决定他对未来司法部长的提名。而司法部将是接下来继续相关调查的责任部门。
-
-除了与乌克兰有关的信息索取要求外，传票还要求亨特·拜登提供有关他在中国的商业交易和其他金融交易的信息。据了解，美国检方的这项调查是在2018年启动的，也就是拜登宣布竞选总统的前一年。两位知情人士告诉美联社记者称，在调查中，联邦检察官还一度在审查亨特·拜登潜在的洗钱行为。综合消息显示，美司法部门对拜登家族已知有4项调查。
-
-除了特拉华州检方对亨特·拜登的税务调查外，纽约州联邦调查人员还对他的外国关系，及可能存在的洗钱行为进行调查。此外，宾夕法尼亚州检方也在调查一家已破产的美国医疗保健公司与拜登弟弟，詹姆斯·拜登（James Biden）的关系。另据《纽约时报》报导指，宾州匹兹堡检方还在对特朗普总统律师朱利安尼提供的相关信息展开调查，包括对亨特·拜登和拜登家族的贪腐指控。
-
-特朗普近日也在推特上痛批自己任命的司法部长巴尔（William Barr），因为据《华尔街日报》和美国有线电视新闻网（CNN）报导，巴尔今年稍早即掌握亨特·拜登因税务遭到调查，后者因选前司法不得介入大选的惯例为由却没让消息于11月大选前曝光。此外，按司法部规则，任命以至撤换特别检察官的决定，都要由司法部长作出，总统无权直接过问。
-
-共和党籍参议员汤姆·科顿(Tom Cotton)星期四曾公开呼吁，美国司法部应在明年1月20日拜登就职典礼前，任命一位特别检察官以对拜登家人的相关指控进行调查。
-
-援引：https://www.rfi.fr/cn/政治/20201213-美当局向亨特·拜登发出传票-索要与二十多个实体信息，涉及乌中交易
-
-**2.鲍威尔提紧急请求 要高院命令摇摆州撤销认证**
-
-美国知名律师西德尼·鲍威尔（Sidney Powell）正在要求联邦最高法院立即行动，处理她对多个摇摆州提出的有关选举诚信和大选结果的法律诉讼，并命令这些州撤销认证。
-
-鲍威尔在周五（12月11日）表示，她已经向美国最高法院提交了紧急请求，要求大法官们命令乔治亚州、密歇根州和亚利桑那州的官员立即撤销对2020年选举结果的认证，并阻止这些州的选举人进行投票。
-
-预计鲍威尔也将就她的威斯康星州案提出紧急请求。这些请求旨在维持各州的现状，以便最高法院有时间考虑她诉讼中提出的指控。
-
-「这些案子提出了宪法问题，并证明了大规模的舞弊行为。我们的原告有资格、『我们人民』不会允许选举被操纵，」鲍威尔周五在推特发表声明说。
-
-相关摘要显示，鲍威尔的法律团队正准备提交一份复审请愿书，要求高等法院审查下级法院驳回她在四个州诉讼的裁决。团队律师们分别向各州的巡回法院提出了上诉，但由于最后期限的临近，各团队将同时向最高法院提出上诉。
-
-每个州的选举人预计将于12月14日碰头，并进行投票。
-
-鲍威尔的团队认为，这些诉讼是“揭露和扭转一个前所未有的多州合谋，窃取2020年大选”的努力的一部分。律师们认为，原告被民主党政客和活动人士定性为“阴谋论者”，他们无视正站出来讲述潜在欺诈和出示其它证据的诸多目击者、举报者和专家证人。
-
-“2020年大选受到了违宪选举舞弊的玷污，其规模之大前所未有，至少在美国前所未有。”律师们指控说。
-
-鲍威尔团队提交的指控说，大量“非法、欺诈、不符合资格、或纯属虚构的选票被投给了拜登（还有数十万张川普的选票被故意销毁、丢失或转换给拜登），这将（大选）结果从拜登失利变为拜登『胜出』”。
-
-律师们在许多案件中指称，选举官员没有通过州立法机构就改变了选举规则；这些改变后的规则存在漏洞，使投票工作人员、投票软件Dominion和可能的第三方能够有意或无意地引入舞弊程序。
-
-“虽然法院的任何决定都无法修复我们社会的裂痕，但只有公平公开的调查，让真相被发现，才能做到这一点，因为只有真相才能让我们获得自由。”律师们在乔治亚州的诉状中写道。
-
-律师们还说，反之，关闭对这次选举中违宪和非法行为的案情实质的任何调查，将是对数百万相信这次选举被窃的美国人的重大打击。律师们要求法庭就案情实质给予回答，而不是程序上的回避。
-
-援引：[https://mingdemedia.org/baoweiertijinjiqingqiu-yaogaoyuanminglingyaobaizhouchexiaorenzheng/](https://mingdemedia.org/baoweiertijinjiqingqiu-yaogaoyuanminglingyaobaizhouchexiaorenzheng/)
-
-**3.美媒：中国正在培养「超级士兵」**
-
-** **根据中国官媒环球网报导引述今日俄罗斯（RT）12日发布报导，一名调查记者汤姆·塞克(Tom Secker)的文章， 深入解读MSNBC新闻台一篇关于「中国超级士兵」的文章，称该文章证明美媒与美国中情局（CIA）之间可疑关系的存在
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14103145/1-60.jpg)
-环时报导引述的报导称，MSNBC新闻台记者表示，中国正在培养所谓的「视距是普通人两倍的超级狙击手」，宣称中国政府正在进行实验，培养能力更强的超级士兵。新闻消息来源，出自一位名叫肯·迪拉尼安(Ken Dilarian)的作者的文章。
-
-对此，调查记者汤姆·塞克认为，文章作者迪拉尼安的报道很明显是基于即将离任的美国国家情报总监约翰·拉特克里夫（John Ratcliffe）在《华尔街日报》的一篇评论文章，该文章表示中国是「美国国家安全头号威胁」。
-
-汤姆·塞克同时提到，迪拉尼安的报道，以及他接受采访时发表的评论，包含了拉特克里夫文章中没有的细节，包括中国正在努力培养「超级狙击手」这一点。
-
-汤姆·塞克认为，这就引出一系列问题，「迪拉尼安的这个想法是从哪里来的？」并且合理怀疑，他与美国情报部门的密切关系是否影响了他的文章？
-
-环球时报进一步引述报导称，汤姆·塞克透露，早在2014年，迪拉尼安就被曝出与CIA公共事务办公室关系密切，也因此导致《洛杉矶时报》与其断绝关系。他还被发现在发表文章前经常先发给CIA进行审查，承诺对其进行正面报道，有时还会根据CIA的要求修改文章。
-
-文章最后说，内容只关注中国计划「增强人体行动」，作者迪拉尼安的文章呈现出对超人类技术发展的军事部署的一个异常片面的版本。或许更重要的是，这也让他得以推动恐惧因素，继续让美国媒体不断加剧中美之间的相互猜疑和敌意。
-
-援引：http://news.seehua.com/?p=638439
-
-**4.特朗普将否决国防授权法案　称中国将成最大赢家**
-
-美国联邦参议院和众议院近日通过2021年国防授权法案，正待美国总统特朗普签署。但特朗普于13日再度扬言否决法案，他宣称这项法案的最大赢家是中国。
-
-特朗普曾批评这项涉及7405亿美元的2021财政年度国防授权法案，部分原因是法案没能终结“通讯端正法”第230条。
-
-据报导，“通讯端正法”第230条让网路平台经营商对于他人侵权资讯或不当内容得以免责，并允许进行内容审查。特朗普认为“通讯端正法”第230条提供大型科技公司规避责任的空间，也对美国国家安全和选举诚信构成严重威胁。
-
-特朗普也曾表示，面子书和谷歌（Google ）等社群媒体巨擘对他抱持偏见。
-
-特朗普今日在推特发文：“我们新国防法案的最大赢家是中国。我会否决！”
-
-参议院近日以84票赞成、13票反对，通过国防授权法案，众议院也以335票赞成、78票反对而通过。由于两院都是远超过2/3的“超级多数”（super majority），特朗普若真否决法案，国会也足以推翻否决。
-
-援引：[http://news.seehua.com/?p=638445](http://news.seehua.com/?p=638445)
-
-**5.美国正副总统和其他高层官员周一起将接种新冠疫苗–消息人士**
-
-一位消息人士称，美国总统特朗普、副总统彭斯和其他美国高层官员将从周一开始接种新获批的新冠疫苗，作为确保政府持续性的部分计划。
-
-消息人士称，白宫的重要人士和政府三大分支的特定官员将在未来10天内接种疫苗。
-
-暂时还不清楚特朗普是否能够立即接种疫苗，因为他已经感染过新冠并且康复。
-
-也不清楚候任总统拜登、候任副总统贺锦丽(Kamala Harris)和拜登过渡团队的其他成员是否会接种疫苗。
-
-白宫国家安全会议(NSC)发言人John Ullyot称，行政部门、国会和司法部门的高级官员也将接种疫苗，遵守旨在确保美国政府能够在疫情或灾难性紧急状况下继续运行的法规。
-
-援引：[https://cn.reuters.com/article/CNTopGenNews/idCNKBS28O03S?irpc=932](https://cn.reuters.com/article/CNTopGenNews/idCNKBS28O03S?irpc=932)
-
-**6.美国大选迎来大事！美国选举人团今日投票 特朗普暗示将继续质疑大选结果**
-
-福克斯新闻当地时间12月13日报道称，美国总统特朗普(Donald Trump)誓言，尽管选举人团将在周一(12月14日)投票，但他和他的竞选团队“将继续推进”对11月选举结果的法律挑战。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14100946/2-21.png)
-得克萨斯州此前对宾夕法尼亚州、佐治亚州、密歇根州与威斯康星州等4大战场州提起选举无效诉讼，于当地时间12月11日被美国联邦最高法院驳回。
-
-美国联邦最高法院12月11日表示，根据美国宪法，得克萨斯州提起的动议理据不足，没有显示出其他州的选举对得州具有可受理的利害关系。
-
-特朗普在当地时间12月13日上午播出的福克斯新闻《福克斯与朋友》节目中表示，尽管最高法院驳回了得克萨斯州针对几个摇摆州的选举提起的诉讼，但他的法律团队仍将继续挑战选举结果。
-
-特朗普说道：“不，事情还没有结束。我们将继续前进。我们有很多地区案件，我们赢了宾夕法尼亚州、密歇根州和佐治亚州，在威斯康星州也有正在进行的案件。”
-
-当被问及周一的选举人团投票时，特朗普承认他面临着时间危机。特朗普强调竞选团队将尽可能地加快脚步。
-
-特朗普表示：“我不知道，我们将尽全力加快速度，但步伐只能这样。他们给我们的时间很少。”
-
-特朗普并称：“我们抓到他们许多违法事实，但却没人相信，甚至过程中有死人票，有成千上万张选票是非法投下的。”
-
-特朗普称，这是一场“被操纵的选举”。特朗普指出，由于大选舞弊行为，他担心美国拥有一名“非法总统”。大选发生的这些舞弊事件让美国看起来像个“第三世界国家”。
-
-当被问及他是否会参加拜登的就职典礼时，特朗普没有回答。他说道：“我不想谈这件事。”
-
-美国50个州和华盛顿哥伦比亚特区已确认2020年大选结果。当地时间12月14日，美国将举行选举人团会议，共538位选举人届时按照各州选举结果，投下选举人票。
-
-美国新一届国会将于明年1月6日召开参众两院联席会议清点选举人票，并宣布总统选举获胜者。
-
-美国哥伦比亚广播公司(CBS)报道称，出现失信选举人是可能的。不过，自2016年大选出现众多失信选举人后，美国大多数州都制定了使失信选举人投票无效的法律，因此预计此次不会出现改变选举结果所需要的足够多的选举人。
-
-援引：[https://www.fx168.ca/news/2012/4483830.shtml](https://www.fx168.ca/news/2012/4483830.shtml)
-
-**7.华尔街日报刊文呼吁勿忘香港自由斗士，彭斯等政要发推要求港府释放黎智英**
-
-香港壹传媒集团创办人黎智英遭港府收押后，《华尔街日报》发表该报编辑委员会题为“香港的自由斗士”评论文章，指出，中国仍持续逮捕、惩罚勇敢的香港自由斗士，全球不应忘记他们。近日，副总统彭斯等美国政要连续发推，要求港府释放黎智英。
-
-《华尔街日报》的文章指出，[香港警方11日以《港区国安法》指控黎智英勾结外国势力危害国家安全罪](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20201212-%E8%AD%A6%E6%96%B9%E6%AC%B2%E4%BB%A5%E9%BB%8E%E6%99%BA%E8%8B%B1%E7%9A%84%E5%B8%96%E6%96%87%E5%92%8C%E8%AE%BF%E9%97%AE%E5%AE%9A%E5%85%B6%E5%8B%BE%E7%BB%93%E5%A4%96%E5%9B%BD%E5%8A%BF%E5%8A%9B%E7%BD%AA-%E8%BF%98%E6%9F%99%E6%98%8E%E5%B9%B44%E6%9C%88%E5%8F%97%E5%AE%A1%20/t%20_self)，但黎智英真正的“犯行”是批评北京政府并支持外国予以制裁，因为北京损害中英联合声明允诺的香港自治。
-
-除了黎智英，《华尔街日报》也提到香港民运人士梁颂恒赴美国寻求庇护。梁颂恒2016年当选香港立法会议员，但在北京压力下，被取消议员资格。他因支持香港自决，成为北京《港区国安法》锁定的目标。
-
-《华尔街日报》写道：未来拜登政府的准国安顾问苏利文（Jake Sullivan）发推文表达自己对香港当局逮捕异议人士的忧心，说他已准备好“帮助受迫害者寻找安全避风港”。《华尔街日报》认为这是好的迹象，美国应该发给这些人签证和绿卡。
-
-另据报道，美国多名政要分别发推文，要求港府释放黎智英。副总统彭斯的推文加上了“#FreeJimmyLai”（释放黎智英）的标签，并配上他去年在白宫会见黎智英的照片。国务卿蓬佩奥发文要求撤销控罪立即释放黎智英。参议员卢比奥在推特发文，要求“必须撤销相关控罪”。参议员斯科特11日致函香港行政长官林郑月娥，要求她释放前香港众志成员黄之锋、壹传媒创办人黎智英等人。斯科特写道：“你让香港人民失望，若你再不开始为港人所被允诺的自由奋斗，历史将会对你做出严厉的批判。”
-
-援引：https://www.rfi.fr/cn/政治/20201213-华尔街日报刊文呼吁勿忘香港自由斗士，彭斯等政要发推要求港府释放黎智英
-
-**8.遵循白宫限制措施 纳斯达克将剔除4家中国公司**
-
-美国纳斯达克指数12月11日发布消息称，将把四家中国建筑和制造业公司的股票从纳斯达克指数中除名，以回应美国特朗普政府限制购买这些公司股票的命令。
-
-纳斯达克在一份声明中表示，这些公司包括中国交通建设股份有限公司、中国铁建股份有限公司、中国中车股份有限公司和中芯国际股份有限公司。这些公司在纳斯达克交易所未交易的证券将于12月21日从两大股指中移除。白宫于上个月发布行政命令，从2021年11月开始禁止美国投资者购买被列入“黑名单”公司的证券。特朗普政府称，这些公司与中国军方有关联。
-
-指数提供商明晟指数（ MSCI Inc ）的一位发言人周五通过电子邮件表示，该公司已与客户就可能发生的变化进行了沟通，并将很快就“任何必要的变化”进行沟通。此前，富时罗素指数（FTSE Russell）4日表示，鉴于白宫的决定，将删除8家中国公司的股票。
-
-标普-道琼斯指数（S&P Dow Jones Indices）10日宣布，将在本月21日上市之前，从所有股票指数中移除包括杭州海康威视数字技术有限公司在内的10家公司的内地上市A股、香港上市H股和美国存托凭证（ADR）。
-
-分析人士指出，指数提供商的步骤显示了美国投资的实际影响。美国投资人经常将他们的中国股票放在基于广泛指数的被动型产品中。一位发言人说，被纳斯达克除名的四家中国公司是白宫名单上仅有的出现在纳斯达克指数上的四家公司。纳斯达克领导人没有立即发表进一步置评。
-
-援引：https://www.rfi.fr/cn/政治/20201213-遵循白宫限制措施-纳斯达克将4家中国公司剔除
-
-**9.美国财政部遭黑客入侵 FBI被要求介入**
-
-海外网消息，综合美国《国会山报》、福克斯商业频道等美媒13日报道，有外国政府支持的黑客侵入了美国财政部以及美商务部一个下属机构。美国国家安全委员会发言人约翰·尤利奥特（John Ullyot）表示，美政府已确认相关消息，正在采取一切必要措施，防止任何可能情况发生。报道称，美商务部一名发言人证实了此事，并表示已要求美联邦调查局（FBI）介入调查。稍早前，路透社报道称，美财政部以及美商务部下属的国家电信和信息管理局（NTIA）遭精心策划的网络攻击。消息人士透露，这次黑客攻击非常严重，美国国家安全委员会周六（12日）紧急召开了应对会议。
-
-援引：[https://m.nbd.com.cn/articles/2020-12-14/1570819.html](https://m.nbd.com.cn/articles/2020-12-14/1570819.html)
-
-**亚太中东新闻板块：**
-
-**1.医师若生日当天动刀　研究：患者死亡率较高**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14103109/12-4.png)
-日本庆应大学等组成的研究团队，在分析美国医师动刀与患者死亡率等医疗资料后发现，如果在外科医师生日当天动刀，患者术后死亡率会较其他日子来得高。
-
-日本时事通信社报导，研究团队说明，这是暗示外科医师表现可能受到个人主要因素影响的首项研究，但现阶段没有必要过度担心。
-
-这篇论文12日前已发表在「英国医学期刊」（British Medical Journal）。
-
-外科医师面对眼前手术专注力降低的主因很多，庆应大学特任助理研究员加藤弘陆，与美国加州大学洛杉矶分校副教授津川友介等人组成的研究团队，则关注医师「生日」对手术带来的影响。
-
-这项研究以很难选择手术日期的紧急手术作为对象，调查2011年到2014年美国65岁以上高龄者约98万笔手术资料，再结合执刀的外科医师约4万7500人资料进行分析。
-
-经过统计分析，并排除患者年龄、性别等影响后，比较同一位外科医师生日所进行的手术，与生日以外日期进行手术的术后30天死亡率，结果显示医师生日当天动刀的术后死亡率为6.9%，较其他日期动刀的术后死亡率5.6%高1.3个百分点。
-
-援引：[http://news.seehua.com/?p=638437](http://news.seehua.com/?p=638437)
-
-**2.《环时》社评：中美间不是价值观冲突 是利益之争**
-
-中国官媒《环球时报》13日发出社评表示，西方领导人常用“价值观”强调建立反华统一战线是“价值观同盟”，但实际上中西方的价值观差异被夸大。而中美之间主要是利益之争。
-
-社评指称，一些西方元首喜欢使用“价值观”，把与中国的摩擦界定为“价值观冲突”，强调建立反华统一阵线是“价值观同盟”。社评又指北京提出的“人类共同价值”，与西方所说的普世价值的含义很接近的。只是普世价值这个词的使用伴随了西方的扩张主义，它不仅仅是个概念，更多让人想到的是政策。
-
-社评指出，中国价值体系与西方价值体系的差异被严重夸大了，民主、自由、法治、平等也都被总结到中国社会主义核心价值观中来。并称将中西方尤其是中美摩擦描述成两个价值体系的对立不符合事实，是从西方中心主义出发对当今世界的顶层误判。反而中西更多的差异体现在意识形态层面。
-
-社评最后指出，华盛顿不断激化中美意识形态冲突，并将之歪曲成中西价值观对立。中方不能上当。 相反要冷静处理中美和中西之间的意识形态摩擦，让中美的利益之争从所谓“价值观冲突”中彰显出来，在国际社会的见证之下对其实施管控。
-
-援引：[https://www.rfi.fr/cn/中国/20201213-环时-社评-中美间不是价值观从冲突-是利益之争](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20201213-%E7%8E%AF%E6%97%B6-%E7%A4%BE%E8%AF%84-%E4%B8%AD%E7%BE%8E%E9%97%B4%E4%B8%8D%E6%98%AF%E4%BB%B7%E5%80%BC%E8%A7%82%E4%BB%8E%E5%86%B2%E7%AA%81-%E6%98%AF%E5%88%A9%E7%9B%8A%E4%B9%8B%E4%BA%89)
-
-**欧洲及中东新闻板块：**
-
-**1.德国16日起实施严格封锁措施**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14103333/123-2.png)
-德国总理默克尔周日宣布，德国从12月16日起实行严格的隔离检疫措施，大部分商店将关门歇业。
-
-根据俄罗斯卫星通讯社报道，在2021年1月10日之前，公共场所将禁止饮酒和销售烟火及器材。
-
-德国媒体曾报道将从12月15日起封城，有关决定原本在默克尔与联邦各州总理会晤后作出。
-
-自11月2日起，德国实施程度较轻的封城措施，中小学、幼儿园、购物中心和非食品商店仍在工作。
-
-援引：[https://www.themalaysianinsight.com/chinese/s/289785](https://www.themalaysianinsight.com/chinese/s/289785)
-
-**2.继续谈！英国和欧盟同意延长贸易谈判**
-
-虽然欧盟和英国尚未达成贸易协议，但欧委会主席冯德莱恩和英国首相约翰逊周日通话后发表了一份联合声明，称双方都有向前迈一步，有心达成协议的意愿。
-
-这周日（12月13日），英国和欧盟的贸易谈判踏入早前设置的截止日期。英国首相约翰逊和欧盟委员会主席冯德莱恩周日当天互通电话后，双方发布了一份联合声明。声明指出：“尽管经过近一年的谈判各方已筋疲力尽，但双方都想更进一步。”已经指派谈判人员继续对话。
-
-冯德莱恩在布鲁塞尔宣读了这份联合声明，其中指出：“我们的谈判团队在过去几天里日夜不停地工作。”她与约翰逊在通话中就 “重要的，尚未解决的问题”进行了商讨。
-
-欧洲理事会主席米歇尔(Charles Michel)对继续谈判的决定表示欢迎，称应尽一切可能达成 “良好协议”。
-
-双方进行谈判的时间所剩无几，英国脱欧过渡期即将于今年12月31日结束。在过渡期期间，欧盟和英国尚未就脱欧后的贸易协定进行谈判。假如没有达成共识，没有免关税协议，2021年双方贸易将面临高额关税，这将给经济带来严重后果。
-
-援引：[https://m.dw.com/zh/继续谈英国和欧盟同意延长贸易谈判/a-55924429](https://m.dw.com/zh/%E7%BB%A7%E7%BB%AD%E8%B0%88%E8%8B%B1%E5%9B%BD%E5%92%8C%E6%AC%A7%E7%9B%9F%E5%90%8C%E6%84%8F%E5%BB%B6%E9%95%BF%E8%B4%B8%E6%98%93%E8%B0%88%E5%88%A4/a-55924429)
-
-**疫情和病毒主题板块：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14103812/1-61.jpg)
-1.四川惊见武汉封城惨况 网友大惊：这么快重演 小编忙删帖
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14104114/1-62.jpg)
-中国境内中共病毒（武汉肺炎，COVID-19）疫情愈趋不乐观，黑龙江东宁市、绥芬河市、新疆吐鲁番，以及四川成都等相继暴发疫情，多地宣布进入战时状态，并实施社区封闭管理。成都一小区入夜后，被隔离在家的居民开始高歌，互相打气加油。影片曝光后，有网民惊呼，“武汉历史这么快又重演了”。
-
-四川首府成都7日起爆出本土疫情后，截至今日(13)累計确诊病例为11人，其中郫都区12日新增2例无症状感染者。该地区有一名不想被隔离，要出去打工生活的年轻女性翻墙出去时，被守在墙外的警察用暴力火速制服。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14104954/1-65.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14105037/2-31.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14105015/3-11.jpg)
-此外，郫都区被隔离在家的居民，于12月12日入夜后，他们透过家中阳台、窗户互相高歌，整个社区响彻台湾动力火车《当》与欧阳菲菲《感恩的心》，以及台湾1985大合唱《明天会更好》。
-
-影片曝光后令中国网友不禁忆起今年年初湖北省武汉封城期间，起初也是许多民众隔离在家、晚上唱歌，“不久后就有人死在家了”，更有网友指出，“这不是重现当初的武汉吗？历史总是惊人的相似”。晚上唱歌视频目前在中国已经禁止上传， 一传到社交媒体上就会被删除。
-
-援引：[https://mingdemedia.org/shipinsichuanjingjianwuhanfengchengcankuang-wangyoudajingzhemekuaizhongyan-xiaobianmangshantie/](https://mingdemedia.org/shipinsichuanjingjianwuhanfengchengcankuang-wangyoudajingzhemekuaizhongyan-xiaobianmangshantie/)
-
-**2.冠病大爆发全境扩散 日本国内旅游计划急喊停**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14105249/1-66.jpg)
-日本政府为提振受到冠病影响甚钜的观光旅游业，日前推动Go To Travel（去旅行）振兴方案，不过由于冠病全境扩散，传出继札幌市与大阪市后，东京都及名古屋市也可能被排除。
-
-日本朝日新闻报导，中央政府正在协调将东京都暂时排除在Go To Travel适用范围内，日本经济再生担当大臣西村康稔今天下午将和东京都知事小池百合子商议此事。
-
-西村上午在电视节目上表示，希望跟个别知事协商，今天下午也会对谈，将基于知事的想法来做出中央政府最后判断。
-
-TBS电视台报导，日本政府目前除了延长大阪市与札幌市的排除适用期间，也已开始检讨是否将名古屋市纳入排除适用。
-
-首相菅义伟今天傍晚将和西村等相关部会首长商议，预料将于预订14日举行的防疫对策会议上，公布相关因应作为。
-
-日本经济新闻报导，西村表示，将针对冠病扩大的北海道、首都圈（以东京都为首的都会区）、中部圈（以名古屋市为首的都会区）及关西圈（包括京阪神在内都会区）4大区域，全力采取防疫对策。
-
-西村谈到Go To Travel时表示，政府防疫对策分科委员会已提出建议，针对上述4大区域必须要提出因应措施。
-
-至于东京都及名古屋市是否会被排除在适用范围内，西村说，会再持续跟个别知事协商。
-
-但西村否认将全面暂停Go To Travel，他说，例如岛根县民与鸟取县民相互往来，不会有染疫的高风险。鸟取县累计病例数仅67例，是日本冠病最轻微的县；岛根县累计病例数也仅165例，是倒数第3轻微的县。
-
-日本放送协会（NHK）报导，西村说，最近几天冠病都出现创新高纪录的情况，政府抱持极其强烈危机感因应冠病发展。
-
-他说，这个周末也跟冠病扩大地区的知事紧密合作，大家都认为有必要进一步强化防疫对策。
-
-西村说，分科委员会认为有必要采取因应第3阶段对策的地区，包括北海道、首都圈、中部圈及关西圈，政府会尽全力在这4个区域采取防疫对策。
-
-日本境内冠病进入11月已呈现「第3波」感染形势，在医疗专家及在野党人士间，当时已出现包括Go To Travel在内的Go To Campaign是冠病扩散「元凶」的批评。
-
-援引：[http://news.seehua.com/?p=638443](http://news.seehua.com/?p=638443)
-
-**3.Covid-19：北京在东南亚推介中国疫苗**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14105627/1-67.jpg)
-Covid-19病毒突现时曾一度在全球引发“口罩战”，如今，已演变为疫苗领域中的竞赛，而且具有了地缘政治角度的考量，尤其是在东南亚。
-
-就全球当前所关注抗Covid-19病毒药品的研发和使用，北京承诺向东南亚国家，优先提供中国的疫苗。就此，本台RFI法文网星期天（2020年12月13日）刊出了记者[Gabrielle.M](https://www.rfi.fr/fr/podcasts/fr%C3%A9quence-asie/20201212-la-diplomatie-des-vaccins-chinois%20/t%20_self)发自东南亚的一篇采访长文，在此予以着重介绍。
-
-这篇报道提到，有关中国向东南亚国家承诺提供疫苗的消息几乎没有引起太大的关注，但中国官方透过视讯会议和外交渠道，已向印度尼西亚ˎ 马来西亚ˎ 柬埔寨ˎ 菲律宾ˎ 老挝ˎ 泰国和越南等国做出了承诺。
-
-印尼学者谈其观点
-
-部分观察家觉得，中国的承诺太慷慨了，无需回报。印尼雅加达国际战略研究中心的一名学者认为，在谈论中国疫苗的后果之前，应该首先重申一下，上述国家没有很多选择。这些国家不具备自己研发ˎ 生产和测试疫苗的能力。欧美ˎ 其它国家在此领域不够尖端。而中国似乎成功控制住了疫情的大流行。而且中国具备依东南亚国家水平，提高疫苗产量的能力。因为，那不是要几百万支疫苗，而是要几亿支。
-
-对中国的依赖增强
-
-中国已承诺向东南亚地区提供大量疫苗。仅向印尼，至2021年初就![]()将提供近一亿支疫苗。中国与一些期待疫苗国家之间的外交紧张突然缓和了。马来西亚释放了其抓捕的60位中国渔民。印尼则向中国遣返了三名维吾尔人。如果说，印尼的这位学者对上述情况是否与疫苗有关持极其谨慎的态度，但他注意到，可能会对外交及地缘政治产生影响。
-
-中国疫苗的有效力
-
-据说，中国疫苗在印尼的有效率达到97%。但目前还无法得知这种抗Covid-19病毒疫苗能确保免疫有效期多久。 医学刊物«柳叶刀»（The Lancet ）发布的一项研究结果也持这种观点。如果需要多次接种，那中国的疫苗外交将得以源远流长。
-
-援引：[https://www.rfi.fr/cn/中国/20201213-covid-19-北京在东南亚推介中国疫苗](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20201213-covid-19-%E5%8C%97%E4%BA%AC%E5%9C%A8%E4%B8%9C%E5%8D%97%E4%BA%9A%E6%8E%A8%E4%BB%8B%E4%B8%AD%E5%9B%BD%E7%96%AB%E8%8B%97)
-
-**4.”中国是最好的选择” 巴基斯坦寄希望中国疫苗**
-
-巴基斯坦的新冠感染人数不断上升。一支由中国研发的疫苗正在该国的三家医院进行临床试验。伊斯兰堡已斥资上亿美元订购疫苗，该国人民是否很快有望接种疫苗？
-
-中国疫苗制造商正在巴基斯坦进行一种新冠疫苗的最后试验。巴基斯坦的新冠病毒感染人数不断上升，上周新增感染病例约为２万起。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14105657/2-32.jpg)
-巴基斯坦政府11月拨款逾1.5亿美元向中国等不同国家开发商订购新冠疫苗。
-
-在今年春季的第一波疫情期间，中国向巴基斯坦提供了医疗器材及防护装备，并派遣医疗专家协助该国应对疫情。两国多次针对新冠疫苗举行会谈，9月时一家中国生产商开始在巴基斯坦进行疫苗临床试验。
-
-这支疫苗是由中国希康诺生物股份公司与中国人民解放军军事科学院联合研发。第一和第二阶段的临床试验已在中国完成，最终的第三阶段试验则在巴基斯担、沙特阿拉伯和俄罗斯等国进行。
-
-巴基斯坦超过8000名志愿者已经在伊斯兰堡、拉合尔和卡拉奇的医院中接种疫苗。据巴基斯坦的药品监管机构透露，第二轮实验将增加1万名志愿者。
-
-援引：[https://m.dw.com/zh/中国是最好的选择-巴基斯坦寄希望中国疫苗/a-55915628](https://m.dw.com/zh/%E4%B8%AD%E5%9B%BD%E6%98%AF%E6%9C%80%E5%A5%BD%E7%9A%84%E9%80%89%E6%8B%A9-%E5%B7%B4%E5%9F%BA%E6%96%AF%E5%9D%A6%E5%AF%84%E5%B8%8C%E6%9C%9B%E4%B8%AD%E5%9B%BD%E7%96%AB%E8%8B%97/a-55915628)
-
-**5.过敏症患者小心：新冠疫苗或引起过激反应**
-
-获紧急批准后，英国已有数百人接种新冠疫苗。但由于两名接种者出现过敏反应，英国卫生当局建议，过敏症患者应暂停接种。
-
-新冠疫苗接种行动刚进行了两天，英国卫生当局即发出警告：严重过敏症患者最好暂不接种。英国在全球第一个紧急批准使用德国BioNTech和美国伙伴辉瑞（Pfizer）合作研发的新冠疫苗。接种项目实施首天即有数百人接种，其中两人有严重过敏反应。
-
-对过敏症患者示警
-
-英当局称，主要针对过敏症患者的这一警示纯属谨慎的防御措施。过敏症患者接种BioNTech/辉瑞研发的新冠疫苗后很可能出现相关反应。那两名国民医疗服务体系（NHS）工作人员接种后便出现了这一反应。
-
-不过，这两人在接种前即已有过敏症候。英国国民医疗服务体系负责人波维斯（Stephen Powis ）在国会一委员会上称，两人目前恢复良好。
-
-致命反应
-
-因此，过敏症患者，尤其是过去曾罹患过敏性休克的人，需谨慎从事。过敏性休克指的是对食品、药物或疫苗的”严重过敏性反应”，是人体的一种完全可能致命的激烈过敏反应。在所有已知过敏反应中，它是最强烈的一种。
-
-通常情况下，至少会有两种不同的机体系统作出反应：呼吸道和皮肤。但是，胃肠系统或心血管系统有时也会作出反应。如此极端的人体反应多为突然发生，当事人的状况会在最短时间里恶化。医学上，过敏性休克被视为绝对紧急情况。
-
-提供相关数据是必要的
-
-过敏反应种类繁多，并非都像过敏性休克那样复杂并在最严重情况下危及生命。人体可表现出多种反应：例如，皮肤红疹或者呼吸困难、脸、舌发肿。
-
-英国当局要求，向所有过敏症的患者讲明接种的这一风险。依据个人的过敏史，这些人暂时不要接种。需随时携带肾上腺素针剂的过敏症患者尤其如此。那两名NHS的工作人员便是这种情况。
-
-迄今最大规模接种项目
-
-合作开发在英国被批准紧急上市的美国辉瑞对德新社表示，第三期临床试验结果显示，受试者总体适应，独立的数据监控委员会未报告有任何严重安全疑虑。
-
-辉瑞称，共有4.4万人受试，其中，4.2万人已第二次接种。
-
-90高龄的英国女性基南也将接受第二次接种。本周二，她成为英国正式接种新冠疫苗第一人。她仍呼吁国人参与国家这一最大规模的疫苗接种项目。
-
-援引：[https://m.dw.com/zh/过敏症患者小心新冠疫苗或引起过激反应/a-55909062](https://m.dw.com/zh/%E8%BF%87%E6%95%8F%E7%97%87%E6%82%A3%E8%80%85%E5%B0%8F%E5%BF%83%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E6%88%96%E5%BC%95%E8%B5%B7%E8%BF%87%E6%BF%80%E5%8F%8D%E5%BA%94/a-55909062)
-
-**6.俄新冠疫苗“卫星-V”免疫保护期可达2年**
-
-据CGTN，罗斯加马列亚流行病学与微生物学研究所所长亚历山大·金茨堡表示，新冠疫苗“卫星-V”的免疫保护期可能达2年左右，辉瑞制药公司（Pfizer）疫苗保护期为4至5个月，但以上数据均需要通过试验加以证实。金茨堡补充称：“疫苗能够确保96%的接种者不受感染，4%的接种者可能会感染”。如果接种疫苗后仍然成为4%感染者之一，症状也比没有接种疫苗的患者轻很多，很可能只是流鼻涕、咳嗽以及体温稍微升高，但病原体不会侵入肺部。
-
-援引：[https://m.nbd.com.cn/articles/2020-12-13/1570654.html](https://m.nbd.com.cn/articles/2020-12-13/1570654.html)
-
-**7.确诊接连创新高 韩国拟首次全国封城**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14112158/1-72.jpg)
-韩国确诊病例连两日创新高，总统文在寅说，如果现阶段无法遏制蔓延趋势，就需要考虑将防疫级别上调到第3级，第3级意味着韩国有可能首度全国封城。
-
-自韩国防疫部门10月中将防疫级别下调至1级以来，首都圈地区的冠病呈现激增趋势，政府虽一再升级防疫措施，单日新增确诊病例增加趋势仍然不减。
-
-首尔市的防疫级别从10月中到11月中始终维持在1级，这已经为日后染疫激增埋下伏笔。防疫部门在11月7日起开始实施新版防疫分级标准，首尔市维持1级（生活防疫），防疫力度进一步降低。
-
-此后日均新增病例开始倍数增加，政府虽分别于11月19日、24日和12月1日将首尔的防疫级别分别上调到1.5级、2级和加强版2级，但并不足以遏制染疫激增。目前适用的2.5级防疫措施也没有显现出效果。
-
-韩国今天通报新增1030起确诊病例，连续第2天创下单日新高纪录。在新增病例中，有1002例为本土病例。韩国疾病管理厅（Korea Disease Control and Prevention Agency）表示，境内目前累计4万2766人确诊、580人不治。
-
-京畿道知事李在明今天表示，他将寻求紧急措施，动员私立大学宿舍，容纳新的确诊病患。
-
-李在明推文宣布他的第一个这样的计划，将动员私人机构来应对公共卫生保健危机，因为京畿道医院床位和其他设施都不够，无法治疗越来越多确诊患者。
-
-京畿道在今天稍早向位于首尔南方45公里的水原市的京畿大学（Kyonggi University）递交文件，请求合作。京畿道今天通报新增328起病例，而韩国今天新增1030人染疫。
-
-根据韩联社报导，文在寅今天在中央政府首尔办公楼紧急召开会议表示，如果现阶段无法遏制冠病蔓延趋势，就需要考虑将防疫级别上调至3级，并要求中央灾难安全对策本部在必要时果断上调级别。
-
-韩国首都圈目前防疫等级为2.5级，若升至3级，意味这个亚洲第4大经济体可能首次全国封城。学校将改采远距教学，非必要人员则在家办公，并禁止10人以上聚会。
-
-援引：[http://news.seehua.com/?p=638432](http://news.seehua.com/?p=638432)
-
-**8.【新冠肺炎】美展开疫苗配送　料明年首季上亿人接种**
-
-美国政府新冠肺炎疫苗研发计画“神速行动”（Operation Warp Speed）首席顾问施劳威说，美国预计要在2021年3月底之前为1亿人接种疫苗。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14110018/2-33.jpg)
-美国食品暨药物管理局（FDA）11日批准辉瑞大药厂（Pfizer）与德国生技公司BioNTech共同研发的新冠疫苗紧急使用授权后，辉瑞疫苗全美配送行动从周一展开。
-
-施劳威于美东时间13日接受福斯电视网（Fox）节目“福斯周日新闻”访问说：“到了2021年第1季，我们将为1亿人接种疫苗。”
-
-他指出，美国希望在12月底之前配送大约4000万剂疫苗。其中包括辉瑞疫苗和生技公司莫德纳（Moderna）的疫苗，莫德纳疫苗可望在本周稍晚获得紧急使用授权的批准。
-
-施劳威提到，2021年1月将再配送5000万至8000万剂疫苗，2月也会配送同样数量。
-
-施劳威还说：“我们正跟辉瑞药厂合作，继续协助并支持他们，以达成2021年第2季再提供我们1亿剂疫苗的目标。”
-
-美国约翰霍普金斯大学的疫情数据显示，截至大马时间14日凌晨2时左右，美国累计确诊总数超过1610万例，其中有29万8000多人病殁。
-
-援引：[http://news.seehua.com/?p=638441](http://news.seehua.com/?p=638441)
-
-**9.美国展开历史性新冠疫苗分发行动 将“希望”运送给民众**
-
-路透12月13日 – 美国周日清晨用卡车和飞机运出第一批新冠疫苗，展开历史性的行动，力求终止这场每天造成逾2,400位美国人死亡的新冠疫情。
-
-美东时间周日早上6:30(1130 GMT)刚过不久，在密西根州的辉瑞工厂，配戴口罩的工人开始用乾冰包装第一批辉瑞与德国BioNTech SE共同研发的疫苗。
-
-在安保人员的护送下，载着低温冷藏疫苗的卡车驶离Kalamazoo工厂。疫苗接着被装运上联邦快递(FedEx)和联合包裹(优比速,UPS)的飞机，将这批珍贵的货品迅速送往全美各地。
-
-“今天，我们不是搬运货物，我们运送的是希望。”Boyle Transportation的联席董事长Andrew Boyle说。UPS聘请该公司将疫苗从工厂运送到在密西根Lansing等待的飞机。
-
-美国医院为周一开始第一轮疫苗接种做准备，但大多数美国人将要等上几个月才能接种新冠疫苗。医护人员和养老院的长期居住者将是疫苗首批接种对象。
-
-美国曲速行动首席顾问Moncef Slaoui博士周日接受福克斯新闻采访时表示，到3月底时将有超过1亿美国人(约占美国人口的30%)接种疫苗。
-
-这距离实现群体免疫还很遥远，因此未来几个月，戴口罩和保持社交距离仍是控制疫情的必要措施。
-
-Slaoui表示，美国有望在12月底前发放约4,000万剂疫苗–可供2,000万人接种。这将包括辉瑞和Moderna的疫苗。美国食品药物管理局(FDA)的一个外部顾问小组周四将考虑Moderna疫苗，预计不久后将批准紧急使用。
-
-援引：[https://cn.reuters.com/article/CNTopGenNews/idCNKBS28O03E?irpc=932](https://cn.reuters.com/article/CNTopGenNews/idCNKBS28O03E?irpc=932)
-
-**10.美国最新消息！美媒：特朗普与彭斯据悉将在周一接种新冠疫苗**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14110622/1-69.jpg)
-据多家美媒消息，知情人士称，美国总统唐纳德·特朗普(Donald Trump)和其他美国高级官员将在几天内接种新批准的冠状病毒疫苗，这是一项计划的一部分，以确保政府在大流行期间的连续性。
-
-疫苗接种将提供给政府所有三级部门中被认为至关重要的关键人员，最早可能在周一(12月14日)开始。
-
-路透引述消息人士称，美国总统特朗普、副总统彭斯，以及其他政府高级官员将于周一接种辉瑞药厂的新冠疫苗。
-
-接种将在接下来的10天中交错进行，以监测可能的副作用。同时，卫生官员也在寻求建立公众对接种疫苗的信心。
-
-知情人士说，向政府高官提供疫苗是由公共卫生官员和职业国家安全人员推荐的。
-
-美国卫生官员周日警告说，许多美国人对疫苗持怀疑态度，这可能是美国实现针对冠状病毒的“群体免疫”的障碍。
-
-美国食品和药物管理局局长Stephen Hahn在美国广播公司的节目中说：“我们解决这个问题的方法是实现群体免疫。这意味着我们需要给这个国家相当多的人接种疫苗，包括那些犹豫不决的人。”
-
-援引：[https://www.fx168.ca/news/2012/4483996.shtml](https://www.fx168.ca/news/2012/4483996.shtml)
-
-**中共墙国新闻板块：**
-
-**1.追逃追赃成绩单：追回外逃人员8363人 追赃208.4亿**
-
-据中国纪检监察报，刚刚更新的追逃追赃成绩单，是“天网”威力的有力见证。2014年至2020年10月，我国共从120多个国家和地区追回外逃人员8363人，包括党员和国家工作人员2212人、“红通人员”357人、“百名红通人员”60人，追回赃款208.4亿元。
-
-援引：[https://m.nbd.com.cn/articles/2020-12-14/1570817.html](https://m.nbd.com.cn/articles/2020-12-14/1570817.html)
-
-**2.安徽合肥投产新冠病毒灭活口罩， 可重复使用60次**
-
-近日，一款可灭活新冠病毒口罩在安徽合肥投产。这款口罩在外形上和普通口罩并无区别，唯一的不同在于，这款口罩是橙红色的，这是因为它使用的无纺布中含有活性金属铜离子。实验证明，铜离子可以杀灭空气中附着的细菌或者病毒，一只新冠病毒灭活口罩可以反复使用60次。（中国新闻网）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14110939/1-70.jpg)
-援引：[https://m.nbd.com.cn/articles/2020-12-13/1570590.html](https://m.nbd.com.cn/articles/2020-12-13/1570590.html)
-
-**国际新闻摘要:**
-
-[沙乌地吉达港油轮爆炸 无人受伤](https://www.swissinfo.ch/chi/afp/%E6%B2%99%E4%B9%8C%E5%9C%B0%E5%90%89%E8%BE%BE%E6%B8%AF%E6%B2%B9%E8%BD%AE%E7%88%86%E7%82%B8-%E6%97%A0%E4%BA%BA%E5%8F%97%E4%BC%A4/46222430)
-
-[此内容发布于 2020年12月14日](https://www.swissinfo.ch/chi/afp/%E6%B2%99%E4%B9%8C%E5%9C%B0%E5%90%89%E8%BE%BE%E6%B8%AF%E6%B2%B9%E8%BD%AE%E7%88%86%E7%82%B8-%E6%97%A0%E4%BA%BA%E5%8F%97%E4%BC%A4/46222430)
-
-[2020年12月14日 （法新社利雅德14日电） 总部设在新加坡的Hafnia航运公司表示，旗下挂新加坡旗的BW Rhine油轮，今天在沙乌地阿拉伯吉达市（Jeddah）的港口外爆炸。这是沙乌地最新一起能源基础设施遇袭事件。…](https://www.swissinfo.ch/chi/afp/%E6%B2%99%E4%B9%8C%E5%9C%B0%E5%90%89%E8%BE%BE%E6%B8%AF%E6%B2%B9%E8%BD%AE%E7%88%86%E7%82%B8-%E6%97%A0%E4%BA%BA%E5%8F%97%E4%BC%A4/46222430)
-
-[大雨来得正是时候 澳世界遗产岛屿野火终获控制](https://www.swissinfo.ch/chi/afp/%E5%A4%A7%E9%9B%A8%E6%9D%A5%E5%BE%97%E6%AD%A3%E6%98%AF%E6%97%B6%E5%80%99-%E6%BE%B3%E4%B8%96%E7%95%8C%E9%81%97%E4%BA%A7%E5%B2%9B%E5%B1%BF%E9%87%8E%E7%81%AB%E7%BB%88%E8%8E%B7%E6%8E%A7%E5%88%B6/46222432)
-
-[此内容发布于 2020年12月14日](https://www.swissinfo.ch/chi/afp/%E5%A4%A7%E9%9B%A8%E6%9D%A5%E5%BE%97%E6%AD%A3%E6%98%AF%E6%97%B6%E5%80%99-%E6%BE%B3%E4%B8%96%E7%95%8C%E9%81%97%E4%BA%A7%E5%B2%9B%E5%B1%BF%E9%87%8E%E7%81%AB%E7%BB%88%E8%8E%B7%E6%8E%A7%E5%88%B6/46222432)
-
-[2020年12月14日 （法新社布里斯本14日电） 澳洲弗雷泽岛野火延烧2个月后，消防员今天终于控制住火势。这场野火疑因非法营火引发，至今已烧毁岛上逾半林地。…](https://www.swissinfo.ch/chi/afp/%E5%A4%A7%E9%9B%A8%E6%9D%A5%E5%BE%97%E6%AD%A3%E6%98%AF%E6%97%B6%E5%80%99-%E6%BE%B3%E4%B8%96%E7%95%8C%E9%81%97%E4%BA%A7%E5%B2%9B%E5%B1%BF%E9%87%8E%E7%81%AB%E7%BB%88%E8%8E%B7%E6%8E%A7%E5%88%B6/46222432)
-
-[美选举人团14日投票 川普续作困兽之斗](https://www.swissinfo.ch/chi/afp/%E7%BE%8E%E9%80%89%E4%B8%BE%E4%BA%BA%E5%9B%A214%E6%97%A5%E6%8A%95%E7%A5%A8-%E5%B7%9D%E6%99%AE%E7%BB%AD%E4%BD%9C%E5%9B%B0%E5%85%BD%E4%B9%8B%E6%96%97/46222318)
-
-[此内容发布于 2020年12月14日](https://www.swissinfo.ch/chi/afp/%E7%BE%8E%E9%80%89%E4%B8%BE%E4%BA%BA%E5%9B%A214%E6%97%A5%E6%8A%95%E7%A5%A8-%E5%B7%9D%E6%99%AE%E7%BB%AD%E4%BD%9C%E5%9B%B0%E5%85%BD%E4%B9%8B%E6%96%97/46222318)
-
-[2020年12月14日 （法新社华盛顿13日电） 长久以来美国的选举人团（Electoral College）投票都不过是总统大选后聊备一格的正式确认程序，但今年因现任总统川普拒认输，使得14日的选举人团投票罕见具有指标意义。…](https://www.swissinfo.ch/chi/afp/%E7%BE%8E%E9%80%89%E4%B8%BE%E4%BA%BA%E5%9B%A214%E6%97%A5%E6%8A%95%E7%A5%A8-%E5%B7%9D%E6%99%AE%E7%BB%AD%E4%BD%9C%E5%9B%B0%E5%85%BD%E4%B9%8B%E6%96%97/46222318)
-
-[贸易协议未敲定 英国欧盟14日重返谈判桌](https://www.swissinfo.ch/chi/afp/%E8%B4%B8%E6%98%93%E5%8D%8F%E8%AE%AE%E6%9C%AA%E6%95%B2%E5%AE%9A-%E8%8B%B1%E5%9B%BD%E6%AC%A7%E7%9B%9F14%E6%97%A5%E9%87%8D%E8%BF%94%E8%B0%88%E5%88%A4%E6%A1%8C/46222322)
-
-[此内容发布于 2020年12月14日](https://www.swissinfo.ch/chi/afp/%E8%B4%B8%E6%98%93%E5%8D%8F%E8%AE%AE%E6%9C%AA%E6%95%B2%E5%AE%9A-%E8%8B%B1%E5%9B%BD%E6%AC%A7%E7%9B%9F14%E6%97%A5%E9%87%8D%E8%BF%94%E8%B0%88%E5%88%A4%E6%A1%8C/46222322)
-
-[2020年12月14日 （法新社布鲁塞尔13日电） 英国和欧洲联盟（EU）同意放弃原订英国脱欧后贸易协议的最后期限，将于明天重返谈判桌。 欧盟执委会主席范德赖恩（Ursula von der Leyen…](https://www.swissinfo.ch/chi/afp/%E8%B4%B8%E6%98%93%E5%8D%8F%E8%AE%AE%E6%9C%AA%E6%95%B2%E5%AE%9A-%E8%8B%B1%E5%9B%BD%E6%AC%A7%E7%9B%9F14%E6%97%A5%E9%87%8D%E8%BF%94%E8%B0%88%E5%88%A4%E6%A1%8C/46222322)
-
-[德国疫情升温 民众得在封城严令下过耶诞新年](https://www.swissinfo.ch/chi/afp/%E5%BE%B7%E5%9B%BD%E7%96%AB%E6%83%85%E5%8D%87%E6%B8%A9-%E6%B0%91%E4%BC%97%E5%BE%97%E5%9C%A8%E5%B0%81%E5%9F%8E%E4%B8%A5%E4%BB%A4%E4%B8%8B%E8%BF%87%E8%80%B6%E8%AF%9E%E6%96%B0%E5%B9%B4/46222320)
-
-[此内容发布于 2020年12月14日](https://www.swissinfo.ch/chi/afp/%E5%BE%B7%E5%9B%BD%E7%96%AB%E6%83%85%E5%8D%87%E6%B8%A9-%E6%B0%91%E4%BC%97%E5%BE%97%E5%9C%A8%E5%B0%81%E5%9F%8E%E4%B8%A5%E4%BB%A4%E4%B8%8B%E8%BF%87%E8%80%B6%E8%AF%9E%E6%96%B0%E5%B9%B4/46222320)
-
-[2020年12月14日 （法新社柏林13日电） 由于几周以来相对温和的限制措施挡不住新型冠状病毒疫情反扑，导致新增确诊与病故人数不断翻新，德国总理梅克尔今天宣布须严格封城，等于耶诞与新年要在严格限令里度过。 梅克尔（Angela…](https://www.swissinfo.ch/chi/afp/%E5%BE%B7%E5%9B%BD%E7%96%AB%E6%83%85%E5%8D%87%E6%B8%A9-%E6%B0%91%E4%BC%97%E5%BE%97%E5%9C%A8%E5%B0%81%E5%9F%8E%E4%B8%A5%E4%BB%A4%E4%B8%8B%E8%BF%87%E8%80%B6%E8%AF%9E%E6%96%B0%E5%B9%B4/46222320)
-
-[巴西疫苗计画一团乱 总统波索纳洛饱受批评](https://www.swissinfo.ch/chi/afp/%E5%B7%B4%E8%A5%BF%E7%96%AB%E8%8B%97%E8%AE%A1%E7%94%BB%E4%B8%80%E5%9B%A2%E4%B9%B1-%E6%80%BB%E7%BB%9F%E6%B3%A2%E7%B4%A2%E7%BA%B3%E6%B4%9B%E9%A5%B1%E5%8F%97%E6%89%B9%E8%AF%84/46222190)
-
-[此内容发布于 2020年12月13日](https://www.swissinfo.ch/chi/afp/%E5%B7%B4%E8%A5%BF%E7%96%AB%E8%8B%97%E8%AE%A1%E7%94%BB%E4%B8%80%E5%9B%A2%E4%B9%B1-%E6%80%BB%E7%BB%9F%E6%B3%A2%E7%B4%A2%E7%BA%B3%E6%B4%9B%E9%A5%B1%E5%8F%97%E6%89%B9%E8%AF%84/46222190)
-
-[2020年12月13日 （法新社里约热内卢13日电） 全球染疫死亡人数第2高的巴西，对于对抗2019冠状病毒疾病（COVID-19）疫苗的规划却乱成一团，总统波索纳洛因此饱受批评。…](https://www.swissinfo.ch/chi/afp/%E5%B7%B4%E8%A5%BF%E7%96%AB%E8%8B%97%E8%AE%A1%E7%94%BB%E4%B8%80%E5%9B%A2%E4%B9%B1-%E6%80%BB%E7%BB%9F%E6%B3%A2%E7%B4%A2%E7%BA%B3%E6%B4%9B%E9%A5%B1%E5%8F%97%E6%89%B9%E8%AF%84/46222190)
-
-[染疫后首度现身 阿尔及利亚总统：很快痊愈回家](https://www.swissinfo.ch/chi/afp/%E6%9F%93%E7%96%AB%E5%90%8E%E9%A6%96%E5%BA%A6%E7%8E%B0%E8%BA%AB-%E9%98%BF%E5%B0%94%E5%8F%8A%E5%88%A9%E4%BA%9A%E6%80%BB%E7%BB%9F-%E5%BE%88%E5%BF%AB%E7%97%8A%E6%84%88%E5%9B%9E%E5%AE%B6/46222158)
-
-[此内容发布于 2020年12月13日](https://www.swissinfo.ch/chi/afp/%E6%9F%93%E7%96%AB%E5%90%8E%E9%A6%96%E5%BA%A6%E7%8E%B0%E8%BA%AB-%E9%98%BF%E5%B0%94%E5%8F%8A%E5%88%A9%E4%BA%9A%E6%80%BB%E7%BB%9F-%E5%BE%88%E5%BF%AB%E7%97%8A%E6%84%88%E5%9B%9E%E5%AE%B6/46222158)
-
-[2020年12月13日 （法新社阿尔及尔13日电） 阿尔及利亚总统塔布纳10月底飞往德国住院后宣布确诊2019冠状病毒疾病（COVID-19），他今天首度现身表示自己正在复元中，很快就会返家。…](https://www.swissinfo.ch/chi/afp/%E6%9F%93%E7%96%AB%E5%90%8E%E9%A6%96%E5%BA%A6%E7%8E%B0%E8%BA%AB-%E9%98%BF%E5%B0%94%E5%8F%8A%E5%88%A9%E4%BA%9A%E6%80%BB%E7%BB%9F-%E5%BE%88%E5%BF%AB%E7%97%8A%E6%84%88%E5%9B%9E%E5%AE%B6/46222158)
-
-[史瓦帝尼总理戴安柏 确诊后去世](https://www.swissinfo.ch/chi/afp/%E5%8F%B2%E7%93%A6%E5%B8%9D%E5%B0%BC%E6%80%BB%E7%90%86%E6%88%B4%E5%AE%89%E6%9F%8F-%E7%A1%AE%E8%AF%8A%E5%90%8E%E5%8E%BB%E4%B8%96/46222150)
-
-[此内容发布于 2020年12月13日](https://www.swissinfo.ch/chi/afp/%E5%8F%B2%E7%93%A6%E5%B8%9D%E5%B0%BC%E6%80%BB%E7%90%86%E6%88%B4%E5%AE%89%E6%9F%8F-%E7%A1%AE%E8%AF%8A%E5%90%8E%E5%8E%BB%E4%B8%96/46222150)
-
-[2020年12月13日 （法新社约翰尼斯堡13日电） 台湾非洲友邦史瓦帝尼的政府在声明中表示，总理戴安柏（Ambrose Dlamini）在确诊后，今天于南非的医院过世。…](https://www.swissinfo.ch/chi/afp/%E5%8F%B2%E7%93%A6%E5%B8%9D%E5%B0%BC%E6%80%BB%E7%90%86%E6%88%B4%E5%AE%89%E6%9F%8F-%E7%A1%AE%E8%AF%8A%E5%90%8E%E5%8E%BB%E4%B8%96/46222150)
-
-[纽约教堂外发生枪击 枪手遭警击伤送医不治](https://www.swissinfo.ch/chi/afp/%E7%BA%BD%E7%BA%A6%E6%95%99%E5%A0%82%E5%A4%96%E5%8F%91%E7%94%9F%E6%9E%AA%E5%87%BB-%E6%9E%AA%E6%89%8B%E9%81%AD%E8%AD%A6%E5%87%BB%E4%BC%A4%E9%80%81%E5%8C%BB%E4%B8%8D%E6%B2%BB/46222152)
-
-[此内容发布于 2020年12月13日](https://www.swissinfo.ch/chi/afp/%E7%BA%BD%E7%BA%A6%E6%95%99%E5%A0%82%E5%A4%96%E5%8F%91%E7%94%9F%E6%9E%AA%E5%87%BB-%E6%9E%AA%E6%89%8B%E9%81%AD%E8%AD%A6%E5%87%BB%E4%BC%A4%E9%80%81%E5%8C%BB%E4%B8%8D%E6%B2%BB/46222152)
-
-[2020年12月13日 纽约教堂外发生枪击 枪手遭警击伤送医不治（中央社纽约13日法新电）美国纽约曼哈顿一座教堂外今天下午4时前后发生枪击事件，数以百计群众齐聚参加户外耶诞颂歌音乐会才刚散场，一名男子便在附近开火，枪手随后遭警方射击，伤势严重送医不治。…](https://www.swissinfo.ch/chi/afp/%E7%BA%BD%E7%BA%A6%E6%95%99%E5%A0%82%E5%A4%96%E5%8F%91%E7%94%9F%E6%9E%AA%E5%87%BB-%E6%9E%AA%E6%89%8B%E9%81%AD%E8%AD%A6%E5%87%BB%E4%BC%A4%E9%80%81%E5%8C%BB%E4%B8%8D%E6%B2%BB/46222152)
-
-[史瓦帝尼总理戴安柏过世 享年52岁](https://www.swissinfo.ch/chi/afp/%E5%8F%B2%E7%93%A6%E5%B8%9D%E5%B0%BC%E6%80%BB%E7%90%86%E6%88%B4%E5%AE%89%E6%9F%8F%E8%BF%87%E4%B8%96-%E4%BA%AB%E5%B9%B452%E5%B2%81/46222130)
-
-[此内容发布于 2020年12月13日](https://www.swissinfo.ch/chi/afp/%E5%8F%B2%E7%93%A6%E5%B8%9D%E5%B0%BC%E6%80%BB%E7%90%86%E6%88%B4%E5%AE%89%E6%9F%8F%E8%BF%87%E4%B8%96-%E4%BA%AB%E5%B9%B452%E5%B2%81/46222130)
-
-[2020年12月13日 （法新社约翰尼斯堡13日电） 非洲友邦史瓦帝尼政府透过声明表示，总理戴安柏（Ambrose Dlamini）今天在南非医院过世，但没有宣布死因。…](https://www.swissinfo.ch/chi/afp/%E5%8F%B2%E7%93%A6%E5%B8%9D%E5%B0%BC%E6%80%BB%E7%90%86%E6%88%B4%E5%AE%89%E6%9F%8F%E8%BF%87%E4%B8%96-%E4%BA%AB%E5%B9%B452%E5%B2%81/46222130)
-
-[川普誓言否决国防授权法案 宣称中国将成最大赢家](https://www.swissinfo.ch/chi/afp/%E5%B7%9D%E6%99%AE%E8%AA%93%E8%A8%80%E5%90%A6%E5%86%B3%E5%9B%BD%E9%98%B2%E6%8E%88%E6%9D%83%E6%B3%95%E6%A1%88-%E5%AE%A3%E7%A7%B0%E4%B8%AD%E5%9B%BD%E5%B0%86%E6%88%90%E6%9C%80%E5%A4%A7%E8%B5%A2%E5%AE%B6/46222084)
-
-[此内容发布于 2020年12月13日](https://www.swissinfo.ch/chi/afp/%E5%B7%9D%E6%99%AE%E8%AA%93%E8%A8%80%E5%90%A6%E5%86%B3%E5%9B%BD%E9%98%B2%E6%8E%88%E6%9D%83%E6%B3%95%E6%A1%88-%E5%AE%A3%E7%A7%B0%E4%B8%AD%E5%9B%BD%E5%B0%86%E6%88%90%E6%9C%80%E5%A4%A7%E8%B5%A2%E5%AE%B6/46222084)
-
-[2020年12月13日 （法新社华盛顿13日电） 美国联邦参议院和众议院近日通过2021年国防授权法案，正待美国总统川普（Donald Trump）签署。但川普今天再度扬言否决法案，他宣称这项法案的最大赢家是中国。…](https://www.swissinfo.ch/chi/afp/%E5%B7%9D%E6%99%AE%E8%AA%93%E8%A8%80%E5%90%A6%E5%86%B3%E5%9B%BD%E9%98%B2%E6%8E%88%E6%9D%83%E6%B3%95%E6%A1%88-%E5%AE%A3%E7%A7%B0%E4%B8%AD%E5%9B%BD%E5%B0%86%E6%88%90%E6%9C%80%E5%A4%A7%E8%B5%A2%E5%AE%B6/46222084)
-
-[摩洛哥外长：与以色列关系原本就正常](https://www.swissinfo.ch/chi/afp/%E6%91%A9%E6%B4%9B%E5%93%A5%E5%A4%96%E9%95%BF-%E4%B8%8E%E4%BB%A5%E8%89%B2%E5%88%97%E5%85%B3%E7%B3%BB%E5%8E%9F%E6%9C%AC%E5%B0%B1%E6%AD%A3%E5%B8%B8/46221744)
-
-[此内容发布于 2020年12月13日](https://www.swissinfo.ch/chi/afp/%E6%91%A9%E6%B4%9B%E5%93%A5%E5%A4%96%E9%95%BF-%E4%B8%8E%E4%BB%A5%E8%89%B2%E5%88%97%E5%85%B3%E7%B3%BB%E5%8E%9F%E6%9C%AC%E5%B0%B1%E6%AD%A3%E5%B8%B8/46221744)
-
-[2020年12月13日 （法新社耶路撒冷13日电） 摩洛哥外交部长波利塔（Nasser Bourita）今天接受以色列媒体访问表示，在阿拉伯世界，摩洛哥与以色列关系独一无二，在「正常化」协议宣布前，双边关系「原已正常」。…](https://www.swissinfo.ch/chi/afp/%E6%91%A9%E6%B4%9B%E5%93%A5%E5%A4%96%E9%95%BF-%E4%B8%8E%E4%BB%A5%E8%89%B2%E5%88%97%E5%85%B3%E7%B3%BB%E5%8E%9F%E6%9C%AC%E5%B0%B1%E6%AD%A3%E5%B8%B8/46221744)
-
-[美国川粉集会爆发冲突 华府4人遭刺伤](https://www.swissinfo.ch/chi/afp/%E7%BE%8E%E5%9B%BD%E5%B7%9D%E7%B2%89%E9%9B%86%E4%BC%9A%E7%88%86%E5%8F%91%E5%86%B2%E7%AA%81--%E5%8D%8E%E5%BA%9C4%E4%BA%BA%E9%81%AD%E5%88%BA%E4%BC%A4/46221704)
-
-[此内容发布于 2020年12月13日](https://www.swissinfo.ch/chi/afp/%E7%BE%8E%E5%9B%BD%E5%B7%9D%E7%B2%89%E9%9B%86%E4%BC%9A%E7%88%86%E5%8F%91%E5%86%B2%E7%AA%81--%E5%8D%8E%E5%BA%9C4%E4%BA%BA%E9%81%AD%E5%88%BA%E4%BC%A4/46221704)
-
-[2020年12月13日 （法新社华盛顿12日电） 美国总统川普指控大选舞弊，支持他的群众今天在美国各大城发动集会时，爆发多起冲突，已知有4人遭利器刺伤及发生一起枪击事件。…](https://www.swissinfo.ch/chi/afp/%E7%BE%8E%E5%9B%BD%E5%B7%9D%E7%B2%89%E9%9B%86%E4%BC%9A%E7%88%86%E5%8F%91%E5%86%B2%E7%AA%81--%E5%8D%8E%E5%BA%9C4%E4%BA%BA%E9%81%AD%E5%88%BA%E4%BC%A4/46221704)
-
-[英欧继续贸易协商 但英相坦言仍极可能失败](https://www.swissinfo.ch/chi/afp/%E8%8B%B1%E6%AC%A7%E7%BB%A7%E7%BB%AD%E8%B4%B8%E6%98%93%E5%8D%8F%E5%95%86-%E4%BD%86%E8%8B%B1%E7%9B%B8%E5%9D%A6%E8%A8%80%E4%BB%8D%E6%9E%81%E5%8F%AF%E8%83%BD%E5%A4%B1%E8%B4%A5/46221706)
-
-[此内容发布于 2020年12月13日](https://www.swissinfo.ch/chi/afp/%E8%8B%B1%E6%AC%A7%E7%BB%A7%E7%BB%AD%E8%B4%B8%E6%98%93%E5%8D%8F%E5%95%86-%E4%BD%86%E8%8B%B1%E7%9B%B8%E5%9D%A6%E8%A8%80%E4%BB%8D%E6%9E%81%E5%8F%AF%E8%83%BD%E5%A4%B1%E8%B4%A5/46221706)
-
-[2020年12月13日 （法新社伦敦13日电） 英国首相强生和欧洲联盟执委会主席范德赖恩今天同意继续推动贸易谈判。强生说，他仍希望与欧盟达成英国脱欧（Brexit）后的贸易协议，但目前失败依然是「最可能的」结果。 强生（Boris…](https://www.swissinfo.ch/chi/afp/%E8%8B%B1%E6%AC%A7%E7%BB%A7%E7%BB%AD%E8%B4%B8%E6%98%93%E5%8D%8F%E5%95%86-%E4%BD%86%E8%8B%B1%E7%9B%B8%E5%9D%A6%E8%A8%80%E4%BB%8D%E6%9E%81%E5%8F%AF%E8%83%BD%E5%A4%B1%E8%B4%A5/46221706)
-
-[欧盟促中国释放因报导新闻遭拘留者](https://www.swissinfo.ch/chi/afp/%E6%AC%A7%E7%9B%9F%E4%BF%83%E4%B8%AD%E5%9B%BD%E9%87%8A%E6%94%BE%E5%9B%A0%E6%8A%A5%E5%AF%BC%E6%96%B0%E9%97%BB%E9%81%AD%E6%8B%98%E7%95%99%E8%80%85/46221708)
-
-[此内容发布于 2020年12月13日](https://www.swissinfo.ch/chi/afp/%E6%AC%A7%E7%9B%9F%E4%BF%83%E4%B8%AD%E5%9B%BD%E9%87%8A%E6%94%BE%E5%9B%A0%E6%8A%A5%E5%AF%BC%E6%96%B0%E9%97%BB%E9%81%AD%E6%8B%98%E7%95%99%E8%80%85/46221708)
-
-[2020年12月13日 （法新社北京12日电） 在彭博（BloombergNews）员工范若伊遭北京当局拘留后，欧洲联盟今天敦促中国释放所有因为从事报导而被关押的记者和公民。 彭博表示，中国籍的范若伊（Haze…](https://www.swissinfo.ch/chi/afp/%E6%AC%A7%E7%9B%9F%E4%BF%83%E4%B8%AD%E5%9B%BD%E9%87%8A%E6%94%BE%E5%9B%A0%E6%8A%A5%E5%AF%BC%E6%96%B0%E9%97%BB%E9%81%AD%E6%8B%98%E7%95%99%E8%80%85/46221708)
-
-[共产古巴罕见爆发抗议 天主教会吁对话](https://www.swissinfo.ch/chi/afp/%E5%85%B1%E4%BA%A7%E5%8F%A4%E5%B7%B4%E7%BD%95%E8%A7%81%E7%88%86%E5%8F%91%E6%8A%97%E8%AE%AE-%E5%A4%A9%E4%B8%BB%E6%95%99%E4%BC%9A%E5%90%81%E5%AF%B9%E8%AF%9D/46221710)
-
-[此内容发布于 2020年12月13日](https://www.swissinfo.ch/chi/afp/%E5%85%B1%E4%BA%A7%E5%8F%A4%E5%B7%B4%E7%BD%95%E8%A7%81%E7%88%86%E5%8F%91%E6%8A%97%E8%AE%AE-%E5%A4%A9%E4%B8%BB%E6%95%99%E4%BC%9A%E5%90%81%E5%AF%B9%E8%AF%9D/46221710)
-
-[2020年12月13日 （法新社哈瓦那12日电） 共产国家古巴日前爆发罕见抗议活动争取表达自由后，唯一获政府认可能与其进行政治对话的天主教教会，今天呼吁展开「对话与协商」。…](https://www.swissinfo.ch/chi/afp/%E5%85%B1%E4%BA%A7%E5%8F%A4%E5%B7%B4%E7%BD%95%E8%A7%81%E7%88%86%E5%8F%91%E6%8A%97%E8%AE%AE-%E5%A4%A9%E4%B8%BB%E6%95%99%E4%BC%9A%E5%90%81%E5%AF%B9%E8%AF%9D/46221710)
-
-[法国民众连续第3个周末抗议安全法](https://www.swissinfo.ch/chi/afp/%E6%B3%95%E5%9B%BD%E6%B0%91%E4%BC%97%E8%BF%9E%E7%BB%AD%E7%AC%AC3%E4%B8%AA%E5%91%A8%E6%9C%AB%E6%8A%97%E8%AE%AE%E5%AE%89%E5%85%A8%E6%B3%95/46221712)
-
-[此内容发布于 2020年12月13日](https://www.swissinfo.ch/chi/afp/%E6%B3%95%E5%9B%BD%E6%B0%91%E4%BC%97%E8%BF%9E%E7%BB%AD%E7%AC%AC3%E4%B8%AA%E5%91%A8%E6%9C%AB%E6%8A%97%E8%AE%AE%E5%AE%89%E5%85%A8%E6%B3%95/46221712)
-
-[2020年12月13日 （法新社巴黎12日电） 法国民众持续抗争反对引发争议的安全法案，今天有数以万计群众连续第3个周末走上全国各地街头。…](https://www.swissinfo.ch/chi/afp/%E6%B3%95%E5%9B%BD%E6%B0%91%E4%BC%97%E8%BF%9E%E7%BB%AD%E7%AC%AC3%E4%B8%AA%E5%91%A8%E6%9C%AB%E6%8A%97%E8%AE%AE%E5%AE%89%E5%85%A8%E6%B3%95/46221712)
-
-[川普女婿居间穿梭 以色列与阿拉伯国家关系正常化](https://www.swissinfo.ch/chi/afp/%E5%B7%9D%E6%99%AE%E5%A5%B3%E5%A9%BF%E5%B1%85%E9%97%B4%E7%A9%BF%E6%A2%AD--%E4%BB%A5%E8%89%B2%E5%88%97%E4%B8%8E%E9%98%BF%E6%8B%89%E4%BC%AF%E5%9B%BD%E5%AE%B6%E5%85%B3%E7%B3%BB%E6%AD%A3%E5%B8%B8%E5%8C%96/46221630)
-
-[此内容发布于 2020年12月13日](https://www.swissinfo.ch/chi/afp/%E5%B7%9D%E6%99%AE%E5%A5%B3%E5%A9%BF%E5%B1%85%E9%97%B4%E7%A9%BF%E6%A2%AD--%E4%BB%A5%E8%89%B2%E5%88%97%E4%B8%8E%E9%98%BF%E6%8B%89%E4%BC%AF%E5%9B%BD%E5%AE%B6%E5%85%B3%E7%B3%BB%E6%AD%A3%E5%B8%B8%E5%8C%96/46221630)
-
-[2020年12月13日 （法新社华盛顿13日电） 美国总统川普女婿库许纳3年多来被嘲笑是个无足轻重的毛头小子，他却赶在川普任期接近尾声之际取得非正统外交胜利，促成几个阿拉伯国家与以色列关系正常化，表现终获肯定。 库许纳（Jared…](https://www.swissinfo.ch/chi/afp/%E5%B7%9D%E6%99%AE%E5%A5%B3%E5%A9%BF%E5%B1%85%E9%97%B4%E7%A9%BF%E6%A2%AD--%E4%BB%A5%E8%89%B2%E5%88%97%E4%B8%8E%E9%98%BF%E6%8B%89%E4%BC%AF%E5%9B%BD%E5%AE%B6%E5%85%B3%E7%B3%BB%E6%AD%A3%E5%B8%B8%E5%8C%96/46221630)
-
-[冠状病毒全球确诊逾7166万 超过160万人病故](https://www.swissinfo.ch/chi/afp/%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92%E5%85%A8%E7%90%83%E7%A1%AE%E8%AF%8A%E9%80%BE7166%E4%B8%87-%E8%B6%85%E8%BF%87160%E4%B8%87%E4%BA%BA%E7%97%85%E6%95%85/46221632)
-
-[此内容发布于 2020年12月13日](https://www.swissinfo.ch/chi/afp/%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92%E5%85%A8%E7%90%83%E7%A1%AE%E8%AF%8A%E9%80%BE7166%E4%B8%87-%E8%B6%85%E8%BF%87160%E4%B8%87%E4%BA%BA%E7%97%85%E6%95%85/46221632)
-
-[2020年12月13日 （法新社巴黎13日电） 法新社汇整官方数据显示，截至格林威治标准时间13日11时（台湾13日晚间7时），全球至少160万5583人死于2019冠状病毒疾病（COVID-19），至少7166万20例确诊。…](https://www.swissinfo.ch/chi/afp/%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92%E5%85%A8%E7%90%83%E7%A1%AE%E8%AF%8A%E9%80%BE7166%E4%B8%87-%E8%B6%85%E8%BF%87160%E4%B8%87%E4%BA%BA%E7%97%85%E6%95%85/46221632)
-
-[英欧领袖同意继续贸易协商](https://www.swissinfo.ch/chi/afp/%E8%8B%B1%E6%AC%A7%E9%A2%86%E8%A2%96%E5%90%8C%E6%84%8F%E7%BB%A7%E7%BB%AD%E8%B4%B8%E6%98%93%E5%8D%8F%E5%95%86/46221534)
-
-[此内容发布于 2020年12月13日](https://www.swissinfo.ch/chi/afp/%E8%8B%B1%E6%AC%A7%E9%A2%86%E8%A2%96%E5%90%8C%E6%84%8F%E7%BB%A7%E7%BB%AD%E8%B4%B8%E6%98%93%E5%8D%8F%E5%95%86/46221534)
-
-[2020年12月13日 （法新社布鲁塞尔13日电） 欧洲联盟执行委员会（EU Commission）主席范德赖恩（Ursula von der Leyen）与英国首相强生（Boris Johnson），今天同意就英国脱欧（Brexit）后的贸易协议继续谈判。…](https://www.swissinfo.ch/chi/afp/%E8%8B%B1%E6%AC%A7%E9%A2%86%E8%A2%96%E5%90%8C%E6%84%8F%E7%BB%A7%E7%BB%AD%E8%B4%B8%E6%98%93%E5%8D%8F%E5%95%86/46221534)
-
-援引:[https://www.swissinfo.ch/chi/afp](https://www.swissinfo.ch/chi/afp)
-
-**冠状病毒实时新：**
-![此图像的alt属性为空；文件名为1-71.jpg]()![此图像的alt属性为空；文件名为1-71.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14111254/1-71.jpg)
-疫情最新消息！美国累计确诊突破1671万例、死亡人数超过30.6万 美国单日死亡超过1300例 美国新冠住院人数再创疫情爆发以来新高
-![此图像的alt属性为空；文件名为2-34.jpg]()![此图像的alt属性为空；文件名为2-34.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14111340/2-34.jpg)
-FX168财经报社(香港)讯 根据最新数据统计，全球新冠肺炎累计确诊病例数突破7259万例。目前全球有25个国家累计确诊数超过50万，除美国外，还有印度、巴西、俄罗斯、法国、英国、意大利、土耳其、西班牙、阿根廷、哥伦比亚、德国、墨西哥、波兰、伊朗、秘鲁、乌克兰、南非、印尼、荷兰、比利时、捷克、伊拉克、智利和罗马尼亚。累计死亡病例超过10万例的则有美国、巴西、印度和墨西哥四个国家。美国累计确诊病例超过1671万例，死亡人数超过30.6万。
-
-全球新冠肺炎疫情持续蔓延。美国疫情仍高速发展，单日死亡病例继续超过1000例。
-
-目前全球累计确诊病例超过100万例的共有美国、印度、巴西、俄罗斯、法国、英国、意大利、土耳其、西班牙、阿根廷、哥伦比亚、德国、墨西哥、波兰和伊朗十五个国家。
-
-Worldometers世界实时统计数据显示，截至香港时间12月14日7时28分，全球新冠肺炎累计确诊病例突破7259万例，达到72,597,687例；累计死亡病例超过161.8万例，达到1,618,353例。
-
-美国新冠肺炎累计确诊病例突破1671万例，达到16,710,961例；累计死亡病例超过30.6万例，达306,387例，单日死亡病例超过1300例。
-
-美国疾病控制与预防中心数据显示，过去7天美国单日新增新冠肺炎确诊病例有5天超过20万例。
-
-美国《大西洋月刊》发起的追踪全美疫情项目公布的最新数据显示，全美新冠肺炎患者入院人数达到108,487人，再次刷新疫情以来的最高纪录。
-
-在异常严重的疫情下，美国媒体报道称，全美几乎每个医院都受到确诊病例激增的影响，超负荷运转。
-
-华盛顿大学医学院健康指标与评估研究所(IHME)预测，到明年1月20日新任总统上任之际，美国因新冠病毒死亡人数可能突破38万人。
-
-其它累计确诊病例超过50万例的国家方面，截至香港时间12月14日7时28分，印度累计确诊9,884,716例，巴西新冠肺炎累计确诊6,901,990例，俄罗斯累计确诊2,653,928例，法国累计确诊2,376,852例，英国累计确诊1,849,403例，意大利累计确诊1,843,712例，土耳其累计确诊1,836,728例，西班牙累计确诊1,741,439例，阿根廷累计确诊1,498,160例，哥伦比亚累计确诊1,425,774例，德国累计确诊1,338,483例，墨西哥累计确诊1,241,436例，波兰累计确诊1,135,676例，伊朗累计确诊1,108,269例，秘鲁累计确诊983,045例，乌克兰累计确诊894,215例，南非累计确诊860,964例，印尼累计确诊617,820例，荷兰累计确诊613,487例，比利时累计确诊605,966例，捷克累计确诊579,079例，伊拉克累计确诊574,634例，智利累计确诊571,919例，罗马尼亚累计确诊556,335例。
-
-当地时间12月13日，德国总理默克尔宣布，德国将从12月16日开始大规模收紧对公共生活的限制，施行“硬性封锁令”至2021年1月10日。
-
-援引：[https://www.fx168.ca/news/2012/4483608.shtmlhttps://www.nzherald.co.nz/nz/news/article.cfm?c\_id=1&objectid=12322890](https://www.fx168.ca/news/2012/4483608.shtmlhttps://www.nzherald.co.nz/nz/news/article.cfm?c_id=1&amp;objectid=12322890)
-![此图像的alt属性为空；文件名为1-73.jpg]()![此图像的alt属性为空；文件名为1-73.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14112825/1-73.jpg)
-
-
-0
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002412/2-23.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002431/3-11.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002436/909090-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002442/EiITkHLVgAAM4Q1-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002451/image0-copy-2-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002601/image0-copy.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002608/image0-1-copy-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002612/image0-1-copy.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002638/image0-1-14.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002655/image0-2-7.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002712/image0-3-8.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002724/image0-4-3.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002737/image0-5-4.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002751/image0-6-5.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002808/image0-7-6.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002818/image0-8-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002829/image0-9-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002838/image0-10-1-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002846/image0-11-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002855/image0-12-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002905/image0-13-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002915/image0-14-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002924/image0-15-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002933/image0-16-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002951/image0-18-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003000/image0-19-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003013/image0-20-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003023/image0-21-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003031/image0-21photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003039/image0-23photo.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003048/image0-25-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003057/image0-26-1.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003310/image1-1-20.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003319/image028.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003327/IMG_3612.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003334/IMG_3614.jpg)
+
+
+2+

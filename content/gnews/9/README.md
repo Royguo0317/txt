@@ -1,144 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 150张“以画灭共”作品，给战友提供足够灭共弹药&#8212;-“以歌灭共”，“以酒灭共”，咱还有“以画灭共”
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/654324/)
+## 斯诺登2019年预言他该回家了！
+` 东京樱花团-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/655087/)
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003456/0771f00c-d863-4a0e-a0b3-4e3d4bd0409a.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003502/990.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003512/75173a41317a6e9a.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003537/image0-2-9-scaled.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003606/image0-1-15.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003618/image0-1-1-3.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003627/image0-1photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003647/image0-2-10.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003704/image0-2-3.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003721/image0-2photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003742/image0-3-9.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003752/image0-3-2.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003803/image0-3photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003818/image0-4-4.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003826/image0-4photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003841/image0-5-5.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003851/image0-5-1.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003900/image0-5photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003918/image0-6-6.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003927/image0-6-1.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003938/image0-6photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003956/image0-7-7.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004006/image0-7-1.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004019/image0-7photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004033/image0-8-3.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004042/image0-8photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004055/image0-9-3.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004101/image0-9photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004113/image0-10-1-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004120/image0-10photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004133/image0-11-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004139/image0-11photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004151/image0-12-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004159/image0-12photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004207/image0-13photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004218/image0-14-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004226/image0-14photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004645/image0-15-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004656/image0-16-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004707/image0-17-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004715/image0-17photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004727/image0-18-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004735/image0-18photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004746/image0-19-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004753/image0-19photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004804/image0-20-3.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004810/image0-20photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004821/image0-21-3.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004829/image0-22-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004837/image0-22photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004844/image0-23-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004852/image0-24-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004858/image0-24photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004912/image0-25-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004924/image0-26-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004935/image0-27-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004944/image0-28-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16004952/image0-29-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005002/image0-30-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005340/image0photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005417/image1-1-21.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005425/image1-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005434/image1-3.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005509/image1-1-22.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005549/image1-1-23-scaled.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005559/image1photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005605/image02.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005616/image018.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005624/image020.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005633/image024.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005640/IMG_3512.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005648/IMG_3532.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005656/IMG_3546.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005703/IMG_3547.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005711/IMG_3555.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005718/IMG_3561.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005726/IMG_3567.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005733/IMG_3570.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005741/IMG_3572.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005749/IMG_3602.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005759/IMG_3606.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005809/IMG_3759.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005817/IMG_3776.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005823/IMG_3782.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005829/IMG_3787.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005836/IMG_3854.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005843/IMG_3863.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005849/IMG_3926.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005855/IMG_3927.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005901/IMG_3938.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005907/IMG_3992.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005915/IMG_4012.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005923/IMG_4048.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005930/IMG_4052.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005940/Screen-Shot-2020-09-19-at-1.11.25-AM.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005955/Screen-Shot-2020-09-20-at-3.53.31-PM.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16010014/Screen-Shot-2020-09-20-at-7.36.21-PM.png)
+HTS-02C-202012-009
 
+小雨Rain（喜马拉雅东京樱花团）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16032520/%E7%85%A7%E7%89%871.png)
+2019年9月17日
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002412/2-23.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002431/3-11.png)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002436/909090-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002442/EiITkHLVgAAM4Q1-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002451/image0-copy-2-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002601/image0-copy.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002608/image0-1-copy-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002612/image0-1-copy.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002638/image0-1-14.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002655/image0-2-7.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002712/image0-3-8.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002724/image0-4-3.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002737/image0-5-4.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002751/image0-6-5.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002808/image0-7-6.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002818/image0-8-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002829/image0-9-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002838/image0-10-1-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002846/image0-11-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002855/image0-12-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002905/image0-13-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002915/image0-14-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002924/image0-15-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002933/image0-16-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16002951/image0-18-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003000/image0-19-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003013/image0-20-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003023/image0-21-2.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003031/image0-21photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003039/image0-23photo.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003048/image0-25-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003057/image0-26-1.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003310/image1-1-20.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003319/image028.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003327/IMG_3612.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003334/IMG_3614.jpg)
+2020年9月11日
 
+MSNBC
 
-2+
+美国国家有线广播电视频道
+
+著名主持人Brian Williams采访斯诺登
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16032553/%E7%85%A7%E7%89%872.png)
+斯诺登，前美国中央情报局CIA职员，美国国家安全局NSA外包技术员。
+
+爆料whistle blower一词来自2013年5月斯诺登对美国政府的爆料。
+
+现斯诺登拥有俄罗斯永久居留权，美国是他真正的家，并预计自己很快回家。
+
+我回家的唯一条件是：我没有犯罪，陪审团才有最终决定权。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16032618/%E7%85%A7%E7%89%873.png)
+当时的司法部长Eric Holder回复他，你可以回来，但是我们不会保证你没有犯罪，我们只答应你，我们不会折磨你。
+
+2020年的今天，回首斯诺登在电视中的采访，我们看到了几个重要陈述：
+
+如果政府需要我，我会义务地不收钱地帮助政府保护投票过程。
+
+我的父母站在我这一边，我是在做对的事情。
+
+数据武器，个人信息，被政府以数百万美元购买，创建共享收集和拦截每一个人的信息。
+
+政府在出售我们的身份，我们的过去，我们的历史和我们的将来，最重要的是在出卖我们的力量。
+
+我效忠国家，效忠宪法。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16032717/%E7%85%A7%E7%89%874.png)
+有美国隐私法第四修正案的存在，所以我挺身站出来！
+
+国家的创始人们，如果看到今天的情形，他们会极其震惊！
+
+这些政府掌权者们是否读了《人权法案Bill of Right》？！
+
+政府存在的有效性，不是让老百姓们害怕政府。
+
+政府正在犯罪，政府违反了法律。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16032744/%E7%85%A7%E7%89%875.png)
+7年了！不知道，背后的错综复杂，也不知道采访中提到的外交秘密和中国网络监控人民的详细，我们只看到了：
+
+斯诺登多次强调，看事实，不要凭感觉。
+
+国家系统性的腐败早在2013年就被斯诺登爆料了！正义永远存在，只是有时迟到。
+
+参考链接：[https://discordapp.com/channels/727408322558427138/784022737433788476/788577848579063828](https://discordapp.com/channels/727408322558427138/784022737433788476/788577848579063828)
+
+0

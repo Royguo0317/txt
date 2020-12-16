@@ -1,43 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共背后发威，大鳄被逼现形
-` XMLYG777` [轉載自GNews](https://gnews.org/zh-hans/654074/)
+## 福奇博士建议川普总统、拜登和贺锦丽尽快接种COVID-19疫苗
+` GM77` [轉載自GNews](https://gnews.org/zh-hans/654250/)
 
-内新闻/素材：铜豌豆 校对：文迹～见证神迹
+整撰：文錦
+复核：WENJUN
 
-新华社北京时间12月15日17点24分报道，称12月16日第24期《求是》杂志将发表中国共产党党主席习近平在2017年1月17日瑞士达沃斯国际会议中心出席世界经济论坛开幕式时的主旨演讲。
+安东尼-福奇博士（Dr. Anthony Fauci）周二表示，总统乔-拜登（Joe Biden）和卡马拉-哈里斯（Kamala Harris，中文名贺锦丽）应该尽快接种新的COVID-19疫苗。他还敦促川普总统接种疫苗，尽管总统刚在10月份从该病毒感染中恢复过来。、
 
-6小时后，美东时间12月15日上午10点20分，美国参议院多数党领袖米奇·麦克康奈尔做出了惊人之举：宣布拜登及贺锦丽胜选。中共养在华盛顿的一条大鳄在关键时刻露出了狰狞的真面目。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15235451/12.16-6.png)
 
-《求是》杂志是中共中央委员会机关刊物。在这个刊物上刊登出来的任何过去的讲话，都是有深意的。习近平2017年的达沃斯讲话，是他代表中共，在经济全球化国际局势的大背景下，唯我独尊、洋洋得意的称霸宣言。今天，中共把那次讲话重新拿出来，是耀武扬威的告诉美国政府：中国共产党认为他们渗透和干预美国2020年总统大选的阴谋得逞了。
+《纽约邮报》12月15日报道，福奇博士称，”如果总统要求我，我会建议他这么做，还有副总统彭斯。你仍然希望保护现在对我们国家非常重要的人。”
 
-据《国会山报》今天的报道，麦克康奈尔提到，“选举人票已经表明了结果，今天我想祝贺乔·拜登当选了总统”。他还说，“我们中的许多人希望总统选举有不一样的结果，但是我们政权体系的操作已经决定了谁会在1月20日宣誓就职”。
+福奇指出，川普总统可能有冠状病毒抗体。”我们不确定这种保护能持续多久。所以为了加倍确定，我会建议他和副总统一样接种疫苗，”他补充道。
 
-更蹊跷的是，他专门提到了贺锦丽——乔拜登的副总统人选。他说：“美国人将骄傲地在我们的国家第一次迎来一位女性副总统。”
+福奇刚被乔-拜登任命作自己的首席医疗顾问，他在美国广播公司的 “早安美国 “节目中说，”出于安全原因，我真的强烈地感觉到，我们应该尽可能快地让他们接种疫苗。我们希望他（乔-拜登）在1月份进入总统任期时得到充分保护。所以，这将是我的强烈建议。”
 
-麦克康奈尔虽然跟拜登有几十年的交情，在奥巴马政府时期通力协作，做过很多事。但是几个星期以来，麦克康奈尔都拒绝直接恭贺乔·拜登通过大量选举舞弊造假得到的虚假胜选。然而，今天，他突然作出这个举动是非常不正常的。
+第一支美国联邦政府批准的COVID-19疫苗周一在美国推出–同一天，美国因疫情造成的死亡人数超过30万。
 
-更不正常的是，乔·拜登在周二下午跟所有人透露，他对于麦克康奈尔对他的祝贺非常感谢，并且他们之间有过很好的对话。更诡异的部分是，麦克康奈尔的发言人、众议院少数党领袖和众议院少数党党鞭对于他的异常举动，都不愿作出任何评价。
+福奇博士身为白宫病毒特别工作组成员，这位全世界顶尖传染病专家在病毒爆发初期对川普总统下令禁航的否定、坚持不明确羟氯喹对于预防病毒的作用，以及在美国总统大选结果还悬而未决的时刻，为乔-拜登“当选“总统和疫苗出台积极造势，福奇博士的行为让我们对其背后的动机表示深深的怀疑，相信川普总统也一定不会就疫苗的问题向福奇博士寻求意见。
 
-众所周知，美国的左派媒体已经开始准备重新炮轰拜登硬盘丑闻，这预示着左派媒体要把拜登家族全面抛出，以求自保。对于拜登来说，当然不可能坐以待毙，一定会牵出跟他是同一根线上的蚂蚱——麦克康奈尔。于是就上演了滑稽的一幕。
+有关COVID-19疫苗的ADE（抗体依赖增强效应）及其他潜在的风险，闫丽梦博士早有警告。编者倒是建议福奇博士一定要真实地进行接种，做到心口合一。
 
-愚蠢狂妄的中共别得意得太早！你们养的大鳄也好，牵线的木偶也好，还会再跳出来的。但是美国老百姓选出来的川普总统，一定会成为美国人民的伟大总统！别做黄粱美梦了！还是想想怎么把中共好好解体，给自己和家人留条性命吧！
-
-本文章仅代表本人个人观点。
-
-打脸的新闻链接：
-[http://www.xinhuanet.com/politics/leaders/2020-12/15/c\_1126864194.htm](http://www.xinhuanet.com/politics/leaders/2020-12/15/c_1126864194.htm)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15230510/PSX_20201216_091231-1.jpg)
-参考的新闻链接：
-[https://thehill.com/homenews/senate/530242-mcconnell-congratulates-biden-on-white-house-win](https://thehill.com/homenews/senate/530242-mcconnell-congratulates-biden-on-white-house-win)
-
-[《求是》杂志发表习近平总书记重要文章《共担时代责任，共促全球发展》-新华网](http://《求是》杂志发表习近平总书记重要文章《共担时代责任，共促全球发展》-新华网)
-《求是》杂志发表习近平总书记重要文章《共担时代责任，共促全球发展》
-—12月16日出版的第24期《求是》杂志将发表中共中央总书记、国家主席、中央军委主席习近平的重要文章《共担时代责任，共促全球发展》。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15230503/image0_1-1.png)
-TheHill
-[McConnell congratulates Biden on White House win](http://McConnell%20congratulates%20Biden%20on%20White%20House%20win)
-Senate Majority Leader Mitch McConnell (R-Ky.) congratulated President-elect Joe Biden and Vice President-elect Kamala Harris on Tuesday, marking the first time he has directly acknowledged their victory.
+参考链接：
+[https://nypost.com/2020/12/15/fauci-biden-harris-and-trump-should-get-covid-19-vaccine/?utm\_campaign=SocialFlow&utm\_medium=SocialFlow&utm\_source=NYPTwitter](https://nypost.com/2020/12/15/fauci-biden-harris-and-trump-should-get-covid-19-vaccine/?utm_campaign=SocialFlow&amp;utm_medium=SocialFlow&amp;utm_source=NYPTwitter)
 
 0

@@ -1,27 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1215】-历史、法律、音乐和信仰是我们做出决定的依据
-` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/654289/)
+## 【大数据分析作战室】24小時Parler热度媒体和话题分析
+` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/652055/)
 
-> I love music, especially listening to songs sung by our courageous United States Marines.[https://t.co/bd4jdnQPmq](https://t.co/bd4jdnQPmq)
-> — Lin Wood (@LLinWood) [December 16, 2020](https://twitter.com/LLinWood/status/1339063059399110657?ref_src=twsrc%5Etfw)
+**分析师 童谣**
 
+**通讯员 喜马拉雅的文雅**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16014354/1213Parler-1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16014358/1213Parler2.jpg)
+据G-Talent， 2020年12月13日Parler热门媒体分析显示，母语为英文的媒体中，GatewayPundit发布的话题热度最高，评论、转发与点赞的人数最多。
 
+华人媒体中，himalayaMontreal2020的评论、转发与点赞人数仅次于GatewayPundit，Epoch Times （大纪元新闻）的热度位居第三。
 
-12月15日林伍德律师连发数推，分别说，“我爱研读美国历史”，“我喜欢研究法律，特别是美国法律”，“我爱音乐，特别是美国海军鼓舞士气的歌曲”，“我爱圣经，特别是 赞美诗Psalm 23节。”
+himalayaMontreal2020是爆料革命蒙特利尔皇家山战友团成立的媒体账号，其发布的两个高热度话题分别是：
 
-随后，他继续发推说，“我们的军队是世界上最棒的。男人和女人发誓要为保卫国家而战，为捍卫自由而战。他们是战士，今晚和每一天，我们都应该向他们的服役表示致敬，荣誉属于他们。自由和安全在他们手中，他们太了不起了。”
+乔治亚州邮寄选票箱藏在富尔顿县的仓库里，FBI、GBI、州长等不作为。
 
-林伍德律师的连连发问，是业余时间粉丝互动秀吗？一定不是。除了展示爱国者、正义人士有追求、有信仰、有情怀，他们以史为鉴，即将做出如美国历史上每一次里程碑一般的行动，我们仿佛看到，寂静的夜空下，海军舰队紧张地穿越太平洋，正在驶向上帝加持和庇佑之下的自由之战，通往让美国得以安全的回归正义价值观的彼岸。
+CCP（中共）联合美国社会主义民主党、投资人共同作案，窃取美国大选。
 
-新闻素材和图片来自林伍德律师推特
+Epoch Times发布的热度最高的话题是：
 
+西德尼·鲍威尔律师明确表示，由于外国势力涉嫌干涉11月3日大选，“足以触发”川普总统于2018年发布的关于外国势力干预选举的行政命令被执行。
 
+司法部对亨特拜登进行调查。
 
-> I love studying history, especially American History.[https://t.co/VHyVbAbl5V](https://t.co/VHyVbAbl5V)
-> — Lin Wood (@LLinWood) [December 16, 2020](https://twitter.com/LLinWood/status/1339061323548659713?ref_src=twsrc%5Etfw)
+综上所述，华人媒体受众人群最关注的是美国大选舞弊案进展，被中共渗透和勾结的美国内部势力的动向，以及针对外国势力干预大选、人们期待总统行政命令的发布。
 
+建议传播相关内容时，使用井号加以下关键字：
 
+#DrainTheSwamp，#DeepState，#TakeAction
+
+新闻和图片来源 G-Talent
+
+(以上仅代表分析师观点)
 
 0
