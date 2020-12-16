@@ -1,80 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》每日简报早间版 2020.12.15&#8211;NewYork Time
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/654480/)
+## 喀秋莎新闻参考- 2020年12月15日 (星期二)
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/655720/)
 
-出品《路德社》 编辑：路德社精选新闻专栏组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16003138/1215-AM-ZH-scaled.jpg)
-撰稿：文寶Porsche   译校：Arvin江牧
+俄罗斯喀秋莎农场 Sydney
 
-翻译统筹：阿轩Action
+校对上传 星河
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16070852/1956565.jpg)
+一、新中国联邦新闻
 
-1215早间要闻-NewYork Time
+1.“路德时评”本日摘要（[早间](https://www.youtube.com/watch?v=9B2YWABFv_Q)、[晚间](https://www.youtube.com/watch?v=baeqaVu3q8s)）:
 
-**LuDe Media 20201215 Morning News, New York Time**
+Ⅰ.12月14日，美国选举人团认证选民投票结果。7个摇摆州的州政府和州立法机构对选票归属认证不统一。1月6日国会将对这86张选举人票进行归属裁决。
 
-**美国务院发推“中共危害了美国的自由和国家安全”**
+Ⅱ.美国务院推文提醒，美国人必须知道中共如何毒害我们的高等教育，以及这些行为如何危害美国国家安全。暗示中共对美国高等教育的渗透，触动了美国利益集团的根本利益和国家安全。灭共将是利益集团的整体行动。
 
-**State Department Tweeted “CCP Endangered U.S. Freedom and National Security”**
+Ⅲ.美国12月8日参议院听证会披露，羟氯喹使用遭到医学杂志和医疗界的打压，导致美国疫情的死亡率高于卫生条件一般的印度等国。此举已涉嫌反人类罪行，进一步证实了中共渗透造成的危害。
 
-推文说，美国人必须知道中共如何为自己的目的毒害了我们的高等教育，以及这些行为如何损害了我们的自由和我们的国家安全。这些蓬佩奥早前说过的话，今天由国务院推特账户再次发表，指向性非常明显。
+Ⅳ.中共使得美国沼泽地规则蔓延到教育、学术、医学、司法等各界，危害到中美百姓的生活，灭共势在必行。
 
-The tweet said Americans must know how the Chinese Communist Party has poisoned our higher education for its own purposes and how those actions have damaged our freedoms and national security. These words, which Pompeo said earlier, were re-posted today by the State Department’s Twitter account, pointing in a quite clear direction.
+Ⅴ.美国德州游骑兵特警、FBI突袭Solarwinds奥斯汀总部，获取了Dominion投票系统重要罪证。北约也在调查Solarwinds公司。12月14日之后，川普总统开始以沼泽地的手段对付中共。
 
-**大学如何与国家安全相联系**
+Ⅵ.参议院多数党领袖麦康纳尔承认拜登当选，并呼吁其他国会共和党议员承认拜登当选，其11月10日曾拒绝祝贺拜登当选，支持川普重新计票。共和党建制派以权谋利遭民众唾弃。WarRoom等媒体曝光麦康纳尔妻子赵小兰家族与中共勾兑的事实，麦康纳尔在共和党的影响力大打折扣。
 
-**How Universities Connected to National Security**
+Ⅶ.川普总统律师Jenna Ellis介绍选举流程：12月15日选举人团票盖章发送华盛顿，1月6日参众两院联合会议后选举人公开投票；参议院议长彭斯副总统将裁决该票归属，选出总统；若国会议员对彭斯裁决提异议，众议院将每州一票选出总统，参议院议员将每人一票选出副总统；1月6日众议院多数党领袖佩洛西恐将拖延投票。麦康纳尔对之后的选举过程几无影响。
 
-中共对大学的渗透，造成了教育界、学术界和医学界的腐败，导致了全世界主流专家学者无视病毒真相、在閆博士的病毒来源报告面前保持沉默，阻止民众使用羟氯喹，直接导致了美国人民的生命安全和国家经济、国防等各方面安全受到巨大损害。
+VIII.美联社证实路德社爆料，川普将任命特别检察官调查亨特·拜登硬盘门事件。依据《独立检察官法》，独立检察官为独立调查团体，不被现行司法系统、检察系统、法律系统所管辖，经费不受限制；拥有特别的组织权、调查权、诉讼权，超越总统的传询权；非严重不当行为或严重伤残，不得被罢免或替换。
 
-The Chinese Communist Party’s infiltration of universities has caused corruption in education, academia, and medical community, resulting in mainstream experts and scholars around the world ignoring the truth about the virus and remaining silent in the face of Dr. Yan’s reports on the source of the virus, and preventing the public from taking hydroxychloroquine, and it has directly led to tremendous damage to American lives, economics, defense, and other aspects.
+2.巴西卫生监管机构安维萨周一（12月14日）表示，中共国卫生当局在授权用于紧急用途的病毒疫苗方面并不透明，这一声明可能进一步加剧南美国家的政治紧张局势。
 
-**路德再谈美国沼泽地与生态系统**
+3.12月15日，美国官方对休斯顿的Winland International/Super Tire公司和十多人发起控诉，认为相关公司与个人涉嫌长期为中共国制造的轮胎逃避进口关税。德克萨斯南部区联邦检察官帕特里克在一份声明中称，“中共和其工业想要抢劫、复制、代替美国制造的货物和技术…非法进口并倾销这些货物，为的是系统性削弱其美国的竞争对手”。
 
-**LuDe Talked Again about America Swamp and Ecosystem**
+4.中共计划投资2亿美元在巴布亚新几内亚西部省首府达鲁岛建设一个综合多功能渔业工业园区，引起澳大利亚的担心。从长远来看，这一项目可能会演变为中共的海军基地。
 
-作为美国真正权力一极的哈佛、耶鲁等常青藤学校，是培养美国沼泽地鳄鱼的基地。无论董事会、校长、院长、教授如何变更，这些学校背后的真正老板不会改变，他们或是某个家族，或是其他某个利益集团。
+5.中共国务院国家民族事务委员会官网日前公布消息，由中共中央纪委副书记、国家监委副主任陈小江出任中共民委党组书记，接替蒙古族的巴特尔，成为66年来首位中共民委汉族主任。巴特尔中途下马，实属非常，疑与内蒙古强制推行国家统编汉语教材有关。
 
-长期以来，美国一直存在沼泽地，范围局限于政客、华尔街等很小的精英圈中，与普通大众的圈子相隔离，各自遵循各自的规则不越界，从而维持了社会生态系统的平衡，推动了美国长期的繁荣和稳定。在这样的生态中，沼泽地的存在始终提醒着民众要小心鳄鱼，要时刻保持警惕、维护自己的安全。
+6.由多国国会议员组成的对华政策跨国议会联盟(IPAC)星期二（12月15日）联合行动，敦促所在国的外交部长发表声明支持澳大利亚抵制中共的欺凌和胁迫。稍早前，中共媒体证实，国家发改委下令全面开放煤炭进口，但继续限制进口澳大利亚煤炭。澳大利亚已要求中共澄清限制令，并警告称这样的举动将违反WTO规则。
 
-As one pole of the real power in America, the Ivy League schools such as Harvard and Yale are the bases for cultivating alligators of swamp in the United States. No matter how the board of trustees, presidents, deans, and professors change, the real owners behind these schools do not change, either a family or some other interest group.
+7.在中共高调限制澳洲牛肉、煤炭、红酒等货品进口后，国内部分粮价开始出现异常波动。据中共国农业农村部对全国500个集贸市场监测，2020年12月第二周，全国羊肉价格为每公斤82.66元，已连续八周上涨，同比上涨3.6%。
 
-For a long time, there has been a swamp in the United States, and it is confined to a very small elite circle of politicians, Wall Street, etc., isolated from circles of the general public. These circles follow their own rules without crossing, thus they maintain the balance of the social ecosystem, promoting the long-term prosperity and stability of the United States. In such an ecology, the existence of the swamp always reminds the public to beware of crocodiles and to be alert to maintain their own safeties.
+8.华为确认将于12月16日在北京发布鸿蒙OS 2.0手机开发者Beta版本。该系统实为安卓系统套壳，预计在重要的手机应用生态环境上将继续受到制裁。
 
-**鳄鱼越界要被消灭**
+9.上周日（12月13日），《纽约时报》关于美国互联网公司如何因个人的喜恶或商业决定，而扼杀观众选择权的文章中，披露了苹果互联网软件与服务资深副总裁寇尔为他的合作伙伴划定红线，“两样东西我们绝对不碰，狂野的色情以及中共的（负面）题材”。此信息证实了中共对美国科技公司和媒体的全面渗透和控制。
 
-**Crocodiles Crossing the Border to be ****Exterminated**
+10.尽管中共官方吹嘘习近平的脱贫工作，百姓仍然要面对经济衰败的现实。中共国社科院最新发布的民调显示，有高达44.4%的受访民众指出，过去一年内，他们只花了1,000元人民币(美金154元)在休闲消费开支上，也就是说，每人每月平均的玩乐基金只有83元人民币。
 
-在生态系统中，如果鳄鱼越过自己的边界，危及到了其他物种生存和生态系统的平衡，它就会被消灭。当年纽约黑帮将地盘扩大化，危及到了老百姓正常生活和社会正常秩序，就被朱利安尼剿灭了。
+11.12月15日早间，中共央行在官网公告称，为维护银行体系“流动性合理充裕”，当天开展规模高达9500亿规模MLF操作，创下单日投放量历史新高，远超市场预期。同日，央行还开展了100亿7天期逆回购操作。此番操作实际是为了应对市场上频繁出现的债务违约危机。
 
-In an ecosystem, if a crocodile crosses its border and endangers the survival of other species and the balance of the ecosystem, it will be exterminated. Back then, the New York gangs were eliminated by Giuliani when they expanded their territories and endangered the normal life and social order of ordinary citizens.
+二、世界新闻
 
-**中共渗透美国大学触碰了美国权力的根本，必被灭**
+1.12月14日，美国各州选举人团投票选举总统。有消息指，除了州选举官员指定的选举人团外，今年至少包括宾州、乔治亚州、密歇根州、威斯康星州、亚利桑那州、内华达州和新墨西哥州的共和党选举人团也向国会投票，和州政府分庭抗礼，使得这些州都同时有两组选举人投票，共和党人的投票为川普总统保留了纠正选举舞弊的权利。
 
-**CCP****‘s Infiltration of U.S. Universities Touched foundation of U.S., Must Be Eliminated**
+根据目前的“选举人结果”，俄罗斯总统普京、巴西总统博索纳罗、墨西哥总统欧布拉多宣布祝贺拜登在美国本次总统选举当中胜出。
 
-因为中共将自己不讲游戏规则那一套玩法渗透到大学，传导给教授和学生，将导致整个美国都变成沼泽地，鳄鱼越界到处乱跑，快把沼泽地背后养鳄鱼的人给吃掉了。
+白宫新闻发言人凯利·麦肯纳尼12月15日表示，川普总统不会放弃，仍在参与正在进行的诉讼，挑战大选舞弊。
 
-美国人今天看清楚中共已经严重越界了，它是要彻底破坏沼泽地的规则、把整个美国变成沼泽地。美国人开始放弃天真的幻想，将以其人之道还治其身对付中共。这就是川普总统突然换下和平时期的司法部长Barr、换上能打大仗的代理部长和副部长的原因。美国对中共的行为规则已经变了。
-
-The CCP’s infiltration of its own set of rules-less game into universities and its transmission to professors and students will cause the entire United States to be a swamp, and all the alligators run around across the borders and are about to eat the people who raise them behind the swamp.
-
-Americans today have seen clearly that the Chinese Communist Party has seriously overstepped its bounds and it is trying to completely break the rules of the swamp and turn the entire United States into a swamp. Now Americans are beginning to give up their naive illusions and will deal with the CCP in the CCP way. This is the reason why President Trump suddenly replaced Barr, the peacetime Attorney General, with an Acting Attorney General and a Deputy Secretary, those who can fight big battles. The rules of American actions against the Chinese Communist Party have changed.
-
-**美国突袭Solarwinds公司获得选举造假铁证**
-
-**U.S. Raid on Solarwinds Got Solid Evidences of Election Fraud**
-
-美国联邦法警、德州骑警和FBI联合行动突袭了Solarwinds公司位于奥斯汀的总部，获取了Dominion系统选票造假的铁证。该行动的级别之高、保密程度之高，前所未见。
-
-A joint operation by the U.S. Marshals, the Texas Rangers and the FBI raided Solarwinds’ headquarter in Austin and obtained solid evidences of ballots fraud in the Dominion system. The operation was unprecedented in its level of rank and secrecy.
-
-#CCP\_is\_terrorist   #TakeDownTheCCP
-
-文案：《路德社》简报组：文寶Porsche；
-翻译：《路德社》翻译组
-审核校对：玫瑰天空
-上传排版：青葫芦娃
-
+2.爱尔兰数据保护委员会（DPC）周二（12月15日）对Twitter处以45万欧元的罚款，原因是Twitter未能按照欧洲数据隐私法规《通用数据保护条例》（GDPR）的规定，及时公布并妥善记录一起数据泄露事件。这是DPC首次依据GDPR做出的跨境罚款决定。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16070903/498998.jpg)
 0

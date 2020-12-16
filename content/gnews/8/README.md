@@ -1,43 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【独家纪实】兵分两路包抄打狗-香草山打伪惩贼之滕彪（7）
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/656250/)
+## 中共及其黑暗势力对美国进行大面积网络攻击，偷窃核心数据
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/656262/)
 
-作者：香草山写作组 Kathy（文艺）
+作者：freedust；校对/审核：海阔天空；Page：拱卒
+[!\[\]()!\[\](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/88458ac7-ad7d-4f9f-92ad-7d449c05348b.jpg?asset_id=6b1d906c-7559-4561-b0a2-e7f0c650e752&amp;img_etag=%2297651d73e12b050f635c8c4258f3e198%22&amp;size=1024)](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/88458ac7-ad7d-4f9f-92ad-7d449c05348b.jpg?asset_id=6b1d906c-7559-4561-b0a2-e7f0c650e752&amp;img_etag=%2297651d73e12b050f635c8c4258f3e198%22&amp;size=1024)
+**2020年12月14日 美国网络安全和基础设施安全局发出紧急指令21-01，呼吁所有联邦民用机构检查其网络是否有损坏迹象，并立即断开或关闭SolarWinds Orion产品。**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/38ba1313-4a46-4cfd-a107-401487bd564d.png?asset_id=b07e701b-a1cb-44f0-b9d5-b58bfe9c9c8e&amp;img_etag=%221729a15f5625e016402c3dccd4b4bc80%22&amp;size=2560)](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/38ba1313-4a46-4cfd-a107-401487bd564d.png?asset_id=b07e701b-a1cb-44f0-b9d5-b58bfe9c9c8e&amp;img_etag=%221729a15f5625e016402c3dccd4b4bc80%22&amp;size=1024)
 
+**据《路透社》公布这是一起严重的“黑客事件”，以至于美国国家安全委员会上周六为此在白宫召开了一次会议。**美国官员没有公开发表过多言论，只是美国商务部证实其一个机构受到了攻击，并表示他们已要求美国网络安全和基础设施安全局(Cybersecurity and Infrastructure Security Agency，简称CISA)和美国联邦调查局(FBI)展开调查。
 
+[《路透社》原文](https://www.reuters.com/article/us-usa-cyber-amazon-com-exclsuive/exclusive-u-s-treasury-breached-by-hackers-backed-by-foreign-government-sources-idUSKBN28N0PG)
 
-12月15日，香草山打伪惩贼活动进入实质性的高潮。针对伪类伪民权律师滕彪的特殊身份，采取了不一样的策略，就是兵分两路，包抄打狗。
+SolarWinds的客户包括美国财富500强中多于425家企业，美国前10 的电信公司、美国军方、五角大楼、国务院、美国航空航天局、美国国家安全局、邮政服务、美国司法部、美国总统办公室、美国五大会计事务所及数百所遍布全球的大学。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16093549/MOS0748-%E3%80%90%E7%8B%AC%E5%AE%B6%E7%BA%AA%E5%AE%9E%E3%80%91%E5%85%B5%E5%88%86%E4%B8%A4%E8%B7%AF%E5%8C%85%E6%8A%84%E6%89%93%E7%8B%97-%E9%A6%99%E8%8D%89%E5%B1%B1%E6%89%93%E4%BC%AA%E6%83%A9%E8%B4%BC%E4%B9%8B%E6%BB%95%E5%BD%AA%EF%BC%887%EF%BC%89-4.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/db458b5d-7794-48cb-b3e4-cdb5fc7511d1.png?asset_id=aa4be2ab-3542-4406-996f-08f2697b24c1&amp;img_etag=%220128887845c17a3df6ec1be0b36d6e4e%22&amp;size=2560)](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/db458b5d-7794-48cb-b3e4-cdb5fc7511d1.png?asset_id=aa4be2ab-3542-4406-996f-08f2697b24c1&amp;img_etag=%220128887845c17a3df6ec1be0b36d6e4e%22&amp;size=1024)
 
-老凯带领笔者等十人团队，进入滕彪曾做过访问学者的普林斯顿大学校园，摆桌，挥旗，发传单，传播病毒真相，宣传新中国联邦。战友们冒着寒风，不惧冷眼，热情地对过往民众招呼，解释。无论遇到何种反应，均面带笑容，以礼相待，最后总是说声谢谢，God bless you。一天下来，共发出150 张包括闫丽梦博士关于病毒真相和新中国联邦的宣传单。按照三分之一比率计算，我们一天接触到并口头接触到信息的民众多达450人左右，还有自己驻足观看的人群不算在内。
+**文件是通过复杂的操作植入**SolarWinds的文件中，通过后门进入系统后被触发的。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16092943/MOS0748-%E3%80%90%E7%8B%AC%E5%AE%B6%E7%BA%AA%E5%AE%9E%E3%80%91%E5%85%B5%E5%88%86%E4%B8%A4%E8%B7%AF%E5%8C%85%E6%8A%84%E6%89%93%E7%8B%97-%E9%A6%99%E8%8D%89%E5%B1%B1%E6%89%93%E4%BC%AA%E6%83%A9%E8%B4%BC%E4%B9%8B%E6%BB%95%E5%BD%AA%EF%BC%887%EF%BC%89-1.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/f487772a-7d5e-4dc1-a427-962991c4b85b.jpg?asset_id=d9051115-e7c5-4694-a1ad-1ce2ae2ecfc5&amp;img_etag=%222d5a9c8f9efc90a20f0d366799cfa857%22&amp;size=2560)](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/f487772a-7d5e-4dc1-a427-962991c4b85b.jpg?asset_id=d9051115-e7c5-4694-a1ad-1ce2ae2ecfc5&amp;img_etag=%222d5a9c8f9efc90a20f0d366799cfa857%22&amp;size=1024)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16093006/MOS0748-%E3%80%90%E7%8B%AC%E5%AE%B6%E7%BA%AA%E5%AE%9E%E3%80%91%E5%85%B5%E5%88%86%E4%B8%A4%E8%B7%AF%E5%8C%85%E6%8A%84%E6%89%93%E7%8B%97-%E9%A6%99%E8%8D%89%E5%B1%B1%E6%89%93%E4%BC%AA%E6%83%A9%E8%B4%BC%E4%B9%8B%E6%BB%95%E5%BD%AA%EF%BC%887%EF%BC%89-2.jpg)
+**表面上，我们看起来似乎，SolarWinds是此次黑客事件的受害者，将为此蒙受巨大损失，但另一些信息似乎为我们透露了另一种可能。**
 
-这是普林斯顿大学一侧校门，对面是繁华的商业街，有书店，礼品店，咖啡店，杂货店等，来往行人各色各样。虽然大部分人反应冷淡，不感兴趣，也有人说：我就支持CCP。但也有几个人表示很感兴趣，或早已知道一点关于病毒真相的信息。笔者碰到一个年轻人表示:我是学政治的，对你们的信息很感兴趣。笔者鼓励他到我们的GTV、Gnews网站多了解信息。
+我们查到SolarWinds在2016年被以科技为重点的私募股权公司Thoma Bravo LLC和Silver Lake Partners以45亿美元的价格私有化。上市后，银湖和布拉沃将拥有大约88%的股权，使SolarWinds成为一家控股公司。两家公司都保留了董事会的职位。而Silver Lake Partners对与中共有千丝万缕联系的阿里巴巴集团进行了投资。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16093029/MOS0748-%E3%80%90%E7%8B%AC%E5%AE%B6%E7%BA%AA%E5%AE%9E%E3%80%91%E5%85%B5%E5%88%86%E4%B8%A4%E8%B7%AF%E5%8C%85%E6%8A%84%E6%89%93%E7%8B%97-%E9%A6%99%E8%8D%89%E5%B1%B1%E6%89%93%E4%BC%AA%E6%83%A9%E8%B4%BC%E4%B9%8B%E6%BB%95%E5%BD%AA%EF%BC%887%EF%BC%89-3.jpg)
+在一篇援引自Bloomberg的文章中说，蚂蚁金服的IPO，将为众多美国私募股权投资公司带来丰厚收益。据一位不愿透露姓名的知情人士表示，Silver Lake Management LLC, Warburg Pincus LLC, and Carlyle Group Inc.是蚂蚁金服2018年最新一轮融资的美国最大投资者，分别向其投资了至少5亿美元。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16100850/MOS0748-%E3%80%90%E7%8B%AC%E5%AE%B6%E7%BA%AA%E5%AE%9E%E3%80%91%E5%85%B5%E5%88%86%E4%B8%A4%E8%B7%AF%E5%8C%85%E6%8A%84%E6%89%93%E7%8B%97-%E9%A6%99%E8%8D%89%E5%B1%B1%E6%89%93%E4%BC%AA%E6%83%A9%E8%B4%BC%E4%B9%8B%E6%BB%95%E5%BD%AA%EF%BC%887%EF%BC%89-5.jpg)
+[《布隆伯格网》原文](https://www.bloomberg.com/news/articles/2020-07-29/silver-lake-warburg-carlyle-poised-for-gains-from-ant-s-ipo)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16100915/MOS0748-%E3%80%90%E7%8B%AC%E5%AE%B6%E7%BA%AA%E5%AE%9E%E3%80%91%E5%85%B5%E5%88%86%E4%B8%A4%E8%B7%AF%E5%8C%85%E6%8A%84%E6%89%93%E7%8B%97-%E9%A6%99%E8%8D%89%E5%B1%B1%E6%89%93%E4%BC%AA%E6%83%A9%E8%B4%BC%E4%B9%8B%E6%BB%95%E5%BD%AA%EF%BC%887%EF%BC%89-6.jpg)
+Silver Lake通过三个主要业务开展业务，所有业务均专注于技术投资：Silver Lake Partners对大型科技公司和高科技公司进行私募股权投资。 Silver Lake Partners占公司管理资产的大部分。
 
-另一边，小斯基带领十五人左右，在滕彪家门口一如既往的继续与伪类周旋。同一拨邻居，假牧师，印裔共和党主席路可，滕彪的另一位华裔摄影都来了。据现场视频可见，那个华裔摄影故意挑起冲突，直接钻进战友群近拍，被小斯基等战友阻挡时站立不稳，栽了个狗吃屎。随即又是那一套，报警，恶人先告状。警察来了，像以前一样，劝说双方冷静，不要有肢体冲突。就像小斯基说的：伪类们打着假招牌，浪费各种人力物力警力，真是一种浪费的生物种类。
+Silver Lake成立于1999年，他的创始人中有来自黑石集团的Glenn Hutchins，曾在克林顿政府早期担任经济和医疗政策特别顾问。
 
-寒冬来临，大雪将至。但既已深冬，春天还会远吗？新中国联邦的旗帜，就像在白雪覆盖中顽强挺立的那一枝红梅，迎风招展，绝世傲雄！
+（来自维基百科）
 
+Silver Lake与大选舞弊的Dominion公司的金主Carlyle Group Inc.也曾有多次合作投资的经历。
 
+SolarWinds首席执行官凯文·汤普森（Kevin Thompson）在一份声明中表示:“我们认为，这一漏洞是由一个国家对供应链实施的高度复杂、有针对性的人工攻击造成的。”
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+而网络安全专家表示SolarWinds的漏洞将为黑客提供进入网络的“上帝模式”，使一切都可见。
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+[**KXAN原文**](https://www.kxan.com/news/local/austin/austin-based-solarwinds-at-center-of-massive-us-government-hack/amp/)
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+而SolarWinds总监在上周CISA宣布之前，售出了4,570万美元的股票期权。
 
+[**《网络观察家》原文**](https://www.thegatewaypundit.com/2020/12/revealed-solarwinds-director-sold-45-7-million-stock-options-last-week-cisa-announcement-sunday/?utm_source=Twitter&amp;utm_campaign=websitesharingbuttons)
+
+尽管有些媒体及一些官方声音将此次黑客事件指向俄罗斯，但据以上种种信息看来，中共在此次的事件中一定扮演了极其重要的角色，这又是一个中共及其勾兑的黑暗势力埋藏在美国的深度沼泽，而这一次事件的定性及影响，在超限战的范畴来看，更接近一次军事行动。
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/QpAUgJzNBR1Fb/)
+[!\[\]()!\[\](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

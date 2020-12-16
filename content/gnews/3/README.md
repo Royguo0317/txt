@@ -1,61 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共及其黑暗势力对美国进行大面积网络攻击，偷窃核心数据
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/656262/)
+## BioNTech与复星医药宣布达成协议向中共国供应mRNA新冠核酸疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/656435/)
 
-作者：freedust；校对/审核：海阔天空；Page：拱卒
-[!\[\]()!\[\](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/88458ac7-ad7d-4f9f-92ad-7d449c05348b.jpg?asset_id=6b1d906c-7559-4561-b0a2-e7f0c650e752&amp;img_etag=%2297651d73e12b050f635c8c4258f3e198%22&amp;size=1024)](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/88458ac7-ad7d-4f9f-92ad-7d449c05348b.jpg?asset_id=6b1d906c-7559-4561-b0a2-e7f0c650e752&amp;img_etag=%2297651d73e12b050f635c8c4258f3e198%22&amp;size=1024)
-**2020年12月14日 美国网络安全和基础设施安全局发出紧急指令21-01，呼吁所有联邦民用机构检查其网络是否有损坏迹象，并立即断开或关闭SolarWinds Orion产品。**
+- 作者：Free monkey
+- 校对：天灭中共777
 
-[!\[\]()!\[\](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/38ba1313-4a46-4cfd-a107-401487bd564d.png?asset_id=b07e701b-a1cb-44f0-b9d5-b58bfe9c9c8e&amp;img_etag=%221729a15f5625e016402c3dccd4b4bc80%22&amp;size=2560)](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/38ba1313-4a46-4cfd-a107-401487bd564d.png?asset_id=b07e701b-a1cb-44f0-b9d5-b58bfe9c9c8e&amp;img_etag=%221729a15f5625e016402c3dccd4b4bc80%22&amp;size=1024)
 
-**据《路透社》公布这是一起严重的“黑客事件”，以至于美国国家安全委员会上周六为此在白宫召开了一次会议。**美国官员没有公开发表过多言论，只是美国商务部证实其一个机构受到了攻击，并表示他们已要求美国网络安全和基础设施安全局(Cybersecurity and Infrastructure Security Agency，简称CISA)和美国联邦调查局(FBI)展开调查。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-[《路透社》原文](https://www.reuters.com/article/us-usa-cyber-amazon-com-exclsuive/exclusive-u-s-treasury-breached-by-hackers-backed-by-foreign-government-sources-idUSKBN28N0PG)
+**西班牙2020年12月16日电/西喜社/**——
 
-SolarWinds的客户包括美国财富500强中多于425家企业，美国前10 的电信公司、美国军方、五角大楼、国务院、美国航空航天局、美国国家安全局、邮政服务、美国司法部、美国总统办公室、美国五大会计事务所及数百所遍布全球的大学。
+• 供应协议体现了两家公司的共同承诺，双方为努力实现高品质新冠疫苗在中国的可及性和可负担性迈出了重要一步；
+• 截至目前，mRNA新冠核酸疫苗BNT162b2在中国江苏省进行Ⅱ期临床试验；
 
-[!\[\]()!\[\](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/db458b5d-7794-48cb-b3e4-cdb5fc7511d1.png?asset_id=aa4be2ab-3542-4406-996f-08f2697b24c1&amp;img_etag=%220128887845c17a3df6ec1be0b36d6e4e%22&amp;size=2560)](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/db458b5d-7794-48cb-b3e4-cdb5fc7511d1.png?asset_id=aa4be2ab-3542-4406-996f-08f2697b24c1&amp;img_etag=%220128887845c17a3df6ec1be0b36d6e4e%22&amp;size=1024)
+（中国上海和德国美因茨，2020年12月16日）[BioNTech SE](https://biontech.de/)（“BioNTech”或“公司”，纳斯达克股票代码：BNTX）和[上海复星医药（集团）股份有限公司](https://www.fosunpharma.com/en/)（“复星医药”或“集团”，股票代码：600196.SH，02196.HK）宣布，双方就mRNA新冠核酸疫苗于中国大陆供应和生产事项达成协议，一旦BNT162 mRNA新冠核酸疫苗获得中国大陆上市批准，BioNTech预计将于2021年向中国大陆供应至少1亿剂BNT162 mRNA新冠核酸疫苗，以应对新冠肺炎疫情。首批疫苗将由BioNTech在德国的生产工厂供应。
 
-**文件是通过复杂的操作植入**SolarWinds的文件中，通过后门进入系统后被触发的。
+“我们要感谢中国政府和国家药监局对我们疫苗研发工作的支持与信任，以帮助应对全球疫情威胁，”**BioNTech首席执行官兼联合创始人Ugur Sahin医学博士说**。“此次和复星医药在疫苗开发工作上的共同努力证明了全球合作的重要性，这也是我们在全球范围内供应疫苗战略计划的重要组成部分。此次供应协议是朝着我们为全世界人民带来安全有效疫苗的共同目标迈出的重要一步。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/f487772a-7d5e-4dc1-a427-962991c4b85b.jpg?asset_id=d9051115-e7c5-4694-a1ad-1ce2ae2ecfc5&amp;img_etag=%222d5a9c8f9efc90a20f0d366799cfa857%22&amp;size=2560)](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/f487772a-7d5e-4dc1-a427-962991c4b85b.jpg?asset_id=d9051115-e7c5-4694-a1ad-1ce2ae2ecfc5&amp;img_etag=%222d5a9c8f9efc90a20f0d366799cfa857%22&amp;size=1024)
+**复星医药董事长兼首席执行官吴以芳**表示，“自新冠疫情暴发以来，我们和BioNTech始终紧密合作，在国务院联防联控机制特别是国家药监局、国家卫健委、科技部等相关主管部门的关心和支持下，迅速推进mRNA新冠核酸疫苗在中国的临床研发工作，并在确保疫苗安全性和有效性的前提下，积极推动疫苗在中国上市。BNT162b2 mRNA新冠核酸疫苗是国际研发合作的成功范例。很高兴能和BioNTech达成未来在中国的供应协议，这是复星医药和BioNTech为努力实现高品质新冠疫苗在中国的可及性和可负担性迈出的重要一步。”
 
-**表面上，我们看起来似乎，SolarWinds是此次黑客事件的受害者，将为此蒙受巨大损失，但另一些信息似乎为我们透露了另一种可能。**
+2020年3月13日，BioNTech和复星医药达成战略合作协议，双方将共同在中国大陆及港澳台地区开发、商业化基于BioNTech专有的mRNA技术平台研发的针对新冠病毒的疫苗产品。
 
-我们查到SolarWinds在2016年被以科技为重点的私募股权公司Thoma Bravo LLC和Silver Lake Partners以45亿美元的价格私有化。上市后，银湖和布拉沃将拥有大约88%的股权，使SolarWinds成为一家控股公司。两家公司都保留了董事会的职位。而Silver Lake Partners对与中共有千丝万缕联系的阿里巴巴集团进行了投资。
+双方已于2020年11月24日在中国江苏泰州和涟水启动候选mRNA新冠核酸疫苗BNT162b2国内的II期临床试验，该试验计划招募960名健康受试者，年龄段在18至85岁，以评估该候选疫苗的安全性和免疫原性，用于支持该疫苗未来在中国上市申请。
 
-在一篇援引自Bloomberg的文章中说，蚂蚁金服的IPO，将为众多美国私募股权投资公司带来丰厚收益。据一位不愿透露姓名的知情人士表示，Silver Lake Management LLC, Warburg Pincus LLC, and Carlyle Group Inc.是蚂蚁金服2018年最新一轮融资的美国最大投资者，分别向其投资了至少5亿美元。
+**关于BioNTech**
+BioNTech是新一代免疫治疗公司，致力于开创性研发肿瘤和其他重症的新型治疗药物。公司探索了大量的计算类研发与治疗药物平台，以快速研发新的生物制药产品。其广泛的肿瘤候选产品包括个体化的和基于mRNA 的现成治疗药物、创新的嵌合抗原受体T 细胞、双特异性检查点的免疫调节剂、靶向癌症抗体和小分子药物。凭借在mRNA 疫苗研发领域和内部生产能力方面的深厚的专业知识，BioNTech 及其合作者正在不断研发针对一系列传染性疾病和肿瘤产品线的多种mRNA 候选疫苗。BioNTech 与全球多家制药合作伙伴建立了广泛的关系，包括Genmab 公司、赛诺菲公司、拜尔动物保健、罗氏集团的成员基因泰克、Genevant 、雷杰纳荣制药、复星医药和辉瑞。
 
-[《布隆伯格网》原文](https://www.bloomberg.com/news/articles/2020-07-29/silver-lake-warburg-carlyle-poised-for-gains-from-ant-s-ipo)
+如需了解更多资讯， 请参阅[www.BioNTech.de](https://biontech.de/)。
 
-Silver Lake通过三个主要业务开展业务，所有业务均专注于技术投资：Silver Lake Partners对大型科技公司和高科技公司进行私募股权投资。 Silver Lake Partners占公司管理资产的大部分。
+**BioNTech公司前瞻性声明：**
+本新闻稿包含了BioNTech公司根据1995年私人证券诉讼改革法案的相关定义而公布的“前瞻性声明”，包括但不限于：BioNTech公司抗击新冠疫情的努力；BioNTech公司和复星医药之间为研发潜在的新冠肺炎疫苗而开展的合作；根据迄今为止的数据观察对BNT162b2在Ⅱ/Ⅲ期临床试验中潜在特性和/或商业化使用的预期；Ⅱ/Ⅲ期临床试验中BNT162b2有效性数据的预期时间节点；临床数据的性质，其需要进行同行评审、监管审查和市场解读；数据提交以及接收任何潜在紧急使用授权或上市审批的时间安排；预期的疫苗运输和储存计划，包括我们在不同温度下对产品保质期预估；BioNTech公司为支持临床研发而供应必要的BNT162数量的能力，和此类疫苗获批后的市场需求，包括我们对2020年和2021年的产量估计。本新闻稿中的各种前瞻性声明，都是基于BioNTech管理层当前的期望和对未来事件的信念，其中包含诸多风险和不确定性，因而可能导致实际的结果与此类前瞻性声明的内容之间存在较大的和不利的差异。这些风险和不确定性包括但不限于：在临床试验中达到预设终点的能力；在研发新冠肺炎疫苗方面的竞争；产生可比较临床或其他结果的能力，包括迄今为止在试验的剩余阶段或在更大、更多样化的人群中观察到的疫苗有效性、安全性和耐受性情况；有效扩大生产力的能力和其他潜在的困难。
 
-Silver Lake成立于1999年，他的创始人中有来自黑石集团的Glenn Hutchins，曾在克林顿政府早期担任经济和医疗政策特别顾问。
+如需了解这些和其它相关风险与不确定性的讨论，参见BioNTech截至2020年9月30日的三个月和九个月的季度报告，该报告在11月10日作为附件99.2以表格6-K形式提交给美国证券交易委员会（SEC），可在SEC网站上查阅[www.sec.gov](https://www.sec.gov/)。本新闻稿的所有信息都以截止于发布之日为准，除非应法律要求，否则BioNTech公司没有更新这些信息的义务。 
 
-（来自维基百科）
+**关于复星医药：**
+上海复星医药（集团）股份有限公司（简称“复星医药”，股票代码：600196.SH，02196.HK）成立于1994 年，是中国领先的医疗健康产业集团。复星医药的业务发展立足中国、布局全球，以药品制造与研发为核心，覆盖医疗器械与医学诊断、医疗服务、医药分销与零售。
 
-Silver Lake与大选舞弊的Dominion公司的金主Carlyle Group Inc.也曾有多次合作投资的经历。
+复星医药集团以创新研发为核心驱动因素，持续完善“仿创结合”的药品研发体系，打造了小分子创新药、高价值仿制药、生物药、细胞治疗等国际研发平台。
 
-SolarWinds首席执行官凯文·汤普森（Kevin Thompson）在一份声明中表示:“我们认为，这一漏洞是由一个国家对供应链实施的高度复杂、有针对性的人工攻击造成的。”
+面向未来，复星医药集团在“4IN”（创新 Innovation、国际化 Internationalization、整合 Integration、智能化 Intelligentization）战略的指导下，秉承“持续创新·乐享健康”的品牌理念，致力于成为全球主流医疗健康市场的一流企业。
 
-而网络安全专家表示SolarWinds的漏洞将为黑客提供进入网络的“上帝模式”，使一切都可见。
+- 相关链接：[www.fosunpharma.com](https://www.fosunpharma.com/)
 
-[**KXAN原文**](https://www.kxan.com/news/local/austin/austin-based-solarwinds-at-center-of-massive-us-government-hack/amp/)
 
-而SolarWinds总监在上周CISA宣布之前，售出了4,570万美元的股票期权。
+[https://www.fosunpharma.com/news/news-details-3820.html](https://www.fosunpharma.com/news/news-details-3820.html)
 
-[**《网络观察家》原文**](https://www.thegatewaypundit.com/2020/12/revealed-solarwinds-director-sold-45-7-million-stock-options-last-week-cisa-announcement-sunday/?utm_source=Twitter&amp;utm_campaign=websitesharingbuttons)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16102232/01020304-1.jpeg)
 
-尽管有些媒体及一些官方声音将此次黑客事件指向俄罗斯，但据以上种种信息看来，中共在此次的事件中一定扮演了极其重要的角色，这又是一个中共及其勾兑的黑暗势力埋藏在美国的深度沼泽，而这一次事件的定性及影响，在超限战的范畴来看，更接近一次军事行动。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/QpAUgJzNBR1Fb/)
-[!\[\]()!\[\](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-0
+1+

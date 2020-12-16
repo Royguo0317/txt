@@ -1,35 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 只有57% 的意大利人愿意接种新冠疫苗， 许多人持怀疑态度
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/656209/)
+## “这是一个RICO案” ––菲顿谈亨特·拜登刑事案件
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/656451/)
 
-```
-编译: 小白鸽
-发稿人: Ting Guo
-```
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16093613/Screenshot_20201216_153500_com.android.chrome-e1608129460197.jpg)图片来源: LASTAMPA
-据意大利《新闻报》记者 Di Tina Simoniello 12月10日报道，只有57%的意大利人愿意接种新冠疫苗。
-
-自从中共病毒爆发以来全世界一直在等待疫苗的出现， 英国和俄国已率先开始了疫苗接种活动。很多人认为，大多数意大利人已经在焦急地等待接种新冠疫苗， 但是实际情况并非如此， 只有57%的意大利人愿意接种疫苗， 许多人持怀疑态度。
-
-据EngageMinds HUB 11月27日至12月3日的最新调查（这是Cremona天主教大学研究中心定期对全国的抽样调查，他们发现：43%的意大利人对接种新冠疫苗表现出拒绝、迟疑和怀疑的态度。这一人数比5月的调查数据有所增加。相反自九月底以来， 肯定不愿接种疫苗的人数有所减少。( 现在是16%,前一期调查结果是20%)， 持不确定态度的人数不变占27%。妇女和年轻人对疫苗最持怀疑态度。最愿意接种疫苗的是60岁以上人群（ 75% 的这一类人群愿意接种）。 这一数据让专家感到以外，因为一般来说，妇女在健康、饮食和预防疫病方面在家庭中起着表率作用， 而对接种新冠疫苗的态度却是个例外。
-
-在抽样调查中，有33%的人认为通常疫苗是制药公司为了发财而进行的操作， 28%的人认为疫苗的数据很容易造假，23%的人认为预防新冠疫苗是政府的一个政治操作……
-
-Guendalina Graffigna是一位心理学家， 也是意大利Piacenza天主教大学健康和消费心理专业教授，他是EngageMinds HUB研究团队负责人。他指出任何怀疑疫苗的人不应被污名化或受到指责，而应得到足够的信息以促使他们接种疫苗。他认为从科学和心理价度来看， 如果强迫接种会引发心理反应， 会由此产生“拒绝”反应， 这不是我们需要的。
-
-笔者还注意到一位名叫Andrea Crisanti 的意大利微生物教授在12月10日的一次电视访谈节目中谈到是否会强制推行新冠疫苗时说：“疫苗刚接种阶段， 不能强制打疫苗，因为存在着道德问题， 现在还处在授权阶段而不是批准阶段， 强制注射疫苗还需要等待一段时间， 再过5、6个月， 也许值得强制推行。”
-
-***评*：** 郭先生在12月10号的直播中说到“将来你会看到，为什么美国推出的辉瑞制药的疫苗，绝对是共产党病毒的再次的次生灾难。 这是共产党的势力与黑暗势力勾结的结果， 大家到时候看着就明白了。”闫博士也早就说过如果不找到所有的原始毒株，是开发不出有效的疫苗。那么今天当我们看到那些白发苍苍的老者和奋战在医疗第一线的医护人员， 他们首当其冲的作为第一批实验的小老鼠时， 不禁黯然神伤。这场人类大劫难，会带走多少无辜的百姓，会引发多少次生灾难……真是一切都已经开始了。
-
-***原文链接:
-[https://www.lastampa.it/salute/2020/12/10/news/covid\_solo\_il\_57\_degli\_italiani\_vuole\_vaccinarsi-277739608/](https://www.lastampa.it/salute/2020/12/10/news/covid_solo_il_57_degli_italiani_vuole_vaccinarsi-277739608/)***
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09040658/image0.png-13.jpeg)***[https://discord.gg/77fCxw5mFv](https://discord.gg/77fCxw5mFv)**
-[**https://**](https://https://discord.gg/77fCxw5mFv)[**gab.com/himalaya\_italy**](https://gab.com/himalaya_italy)*
+- 编辑：Victor Torres
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+**西班牙2020年12月16日电/西喜社/**——
+
+汤姆·菲顿（Tom Fitton）周二晚在Newsmax上接受采访，他分享了有关亨特·拜登（Hunter Biden）和拜登家族（Biden Family）腐败并且与中国有联系的观点。 他说，参与外国犯罪活动的个人绝对不可能靠近白宫。
+菲顿是美国保守主义者和司法观察组织的主席。以挺川普的言论而闻名。
+他对Newsmax说：
+“这是对新闻报道的腐败镇压，以帮助受偏袒的政治候选人。 这不仅是亨特·拜登的丑闻和乔·拜登的丑闻，而且我猜是拜登副总统的兄弟詹姆斯·拜登的丑闻。 这是FBI的丑闻，是司法部的丑闻，因为他们在大选之前就掩盖了这一点。”
+“这是国会丑闻。 记得亚当·希夫（Adam Schiff）曾试图将川普总统免职，因为川普对拜登（Biden）确凿的腐败行为提出了问题。 现在是媒体，我们应该相信媒体对这一丑闻的分析。 我告诉你，美国人民受到那些声称要代表他们的媒体的虐待。 您不能相信媒体会告诉您任何事情的真相。”
+拜登家族的人腐败而恶心。 在大选前我们就知道：拜登（Biden）正在与中国一起对抗美国。 他们永远不应该在白宫附近，尤其是在与反美实体合作窃取2020年大选之后。
+
+新闻来源：[https://www.thegatewaypundit.com/2020/12/rico-case-involves-potentially-incoming-president-united-states-assuming-installed-tom-fitton-hunter-bidens-criminal-case/](https://www.thegatewaypundit.com/2020/12/rico-case-involves-potentially-incoming-president-united-states-assuming-installed-tom-fitton-hunter-bidens-criminal-case/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0

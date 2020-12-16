@@ -1,49 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵说｜系列图片连载（七十六）
-` GM98` [轉載自GNews](https://gnews.org/zh-hans/655625/)
+## 《路德社》精选新闻快讯：彭培奥直指中共言论审查！
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/654150/)
 
-## 526.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16065234/2019.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16065208/2017.jpg)
-早一点灭共产党，人类可能增加一点确定性，但是灾难不可确定，解药不可能。这是核心的问题！
+出品《路德社》编辑：路德社精选新闻专栏组
 
-——郭文贵先生 2020年8月16日
+美东时间15日下午，国务卿彭培奥发推直指中共对校园的影响，“有些在校园中受中共迫害最严重的就是中共公民，这是个悲剧。我们有责任对此执法。另一个例子，就今年在普林斯顿大学，一位中国学生不得不使用”代号“以免中共发现他们的身份并因对香港事件和中共发表意见而使用新《国安法》起诉他们，这就发生在这里，美国。美国的学生说到”安全区“是指没有不喜欢他们观点的避风港，中国学生则需要安全区来学习他们热爱的观点。多么鲜明的对比！“
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15233130/ppo-1.png)
+而针对中共对校园以及意识形态的控制和审查，最重要的手段就是通过网络和防火墙。这周我们看到了针对youtube，Gmail发动的大规模攻击。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15233151/ppo-2.png)
+谷歌邮箱再次挂机。
 
-## 527.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16065304/2018.png)
-我们是人类走向新世界，我们是走在最前边的人，我们已经改变了这个世界，谁也改变不了这个事实。
+而有消息显示，五角大楼据报道，据国防部消息人士称，周二对处理机密材料的计算机网络实施紧急关闭。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15233205/ppo-3.png)
+五角大楼紧急关闭处理机密材料的计算机网络，是否是为了应对此次受到的网络攻击？
 
-——郭文贵先生 2020年8月16日
+亦或许是为了收集罪证？我们知道这与中共必定有关。中共防火墙已时日无多！
 
-## 528.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16065326/2021.jpg)
-班农等和美国有正义、有良知的灭共派，坚定的和我们站在一起，这就是遇难成祥。
+[援引原文](https://twitter.com/SecPompeo/status/1338977651797659648?s=20)
 
-——郭文贵先生 2020年8月22日
+本文作者：Ruby（文曉）
+审核校对：玫瑰天空
+上传排版：青葫芦娃
 
-## 529.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16065414/4b96c3010c14437e.png)
-客观地对待自己，客观地看待别人，理性地面对事实，而且不能有畸形的心理，就是羡慕妒忌恨，贪、嗔、痴、慢、疑。
-
-——郭文贵先生 2020年8月16日
-
-## 530.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16065443/2026.png)
-我们爆料革命是唯一一个敢说出这是共产党的病毒、人传人的、生化武器的。
-
-——郭文贵先生 2020年8月16日
-
-## 531.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16065526/2022.jpg)
-战友们如果你们，要记住，当你体会到任何一次成功的时候，和你在没干成功之前是完全不一样的。
-
-——郭文贵先生 2020年8月16日
-
-## 532.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16065554/2024-scaled.jpg)
-坚决支持的班农先生继续更加猛烈的，未来这些天，天天去传播真相的，坚决跟班农先生站在一起的，那是生死战友。
-
-——郭文贵先生 2020年8月21日
-
-0
+1+

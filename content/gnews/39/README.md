@@ -1,79 +1,169 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中国人应该知道的-朝鲜战争的几个真相
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/655509/)
+## 独家重磅：乌克兰总检察长办公室公布的文件揭示，数以百万计的资金流向亨特·拜登和约翰·克里家族
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/655799/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16055741/chinese-korean-war-Bugle-wiht-carry-bag-.jpg)网路截图https://enemymilitaria.com
-作者：潜水艇2020
+翻译： 康州盘古农场 – 烟波浩淼
+校对：康州盘古农场 – Robensenna
+审核：康州盘古农场 – 文韵
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16073237/%E5%9B%BE%E7%89%871-18.png)
+*我的天哪。今晚公布的文件将来自外国的数百万美元与亨特•拜登、德文•阿切尔和约翰•克里及其家人联系在一起！*
 
-首先我想声明下， 我不是史料专家，这些信息都整理自网络，如果有疑问的，欢迎大家查询论证。中共把入朝作战宣扬成是一场抗击美国侵略者，帮助朝鲜人民的正义战争。本人和其他中国的老百姓一样，自小就是被灌输了这样的教育。现在有机会发发现一些不一样的论点，希望我的同胞们，能如我一样，对于下面强烈冲击认知的几点信息，也能好好的看一看，冷静的想一想，就算你质疑这些信息的真实性，那也请质疑你以前被灌输的信息的真实性。真相往往不是靠别人给予，只能靠自己去论证。一旦你经过论证发现我列举的都是事实，我相信，那你就醒悟了，不再被中共蒙蔽了。
-
-1–—中共虐待战俘：
-
-1950年冬至1951年期间，中国人民志愿军战俘营中43%的美军士兵死于饥荒和疾病。有联合国军战俘则认为，“战俘营都在鸭绿江旁，很易取得补给，管理方是故意少发粮食造成饥荒。美方《敌军工作史料》中指出，美军战俘“在碧潼每天死亡三人”、“晚上没有被子盖”。
-
-美国参议院常设调查小组委员会对朝鲜战争中美国战俘遭遇到的暴行举行听证会，美国战争罪行调查组长陶德中校作证称，在1953年11月底之前，依保守计算，美军战俘因为中华人民共和国和朝鲜战争罪行而死亡的人数是5639人。美方埃伯特（Abbott）中校作证称，“军医将美军战俘受伤的手臂缝入鸡肝，再缝合伤口，声称这会帮助伤口愈合。而他看到的是多数战俘因此伤口溃烂，痛苦不堪”。
-
-有西方学者认为中华人民共和国“对战俘进行洗脑”，到1953年时，7190名美军战俘中有70%批评美国参战，而不合作的战俘则遭到殴打、被迫跑步、跪在雪地里被泼冷水等惩罚
-
-2——中共入朝作战的目的：毛泽东支持金日成挑起朝鲜战争有他自已的目的：要求斯大林帮助毛泽东快速建成军事工业，取得原子弹技术，迅速成为军事强国，趁机处置大量原国军投降部队，刻意将他们送至朝鲜当炮灰，以除后患。
-
-3——中共高层对入朝作战的态度：1950年10月2日至10月5日，毛泽东连续四天主持召开了政治局扩大会议，讨论朝鲜半岛局势和出兵朝鲜问题。几乎所有政治局成员皆强烈反对出兵，包括刘少奇、朱德；后来毛泽东说援朝决定是一个半人作出决定的，这半个人即是周恩来。
-
-而林彪对此强烈反对，指出与美国对抗将引发巨大问题，美国有绝对控空权，大炮优势达四十比一，若中国介入，美国可能轰炸中国大城市，摧毁中国工业基地，还可能向中国投掷原子弹。最终，毛泽东没有听从林彪的意见，决定由彭德怀带兵。
-
-4——中共对待战俘的态度 ：
-
-1951年7月10日，联合国军与中朝联军开始停战谈判，所有事项均顺利，唯遣返战俘问题上，美国坚持自愿非强制原则，毛泽东坚持一揽子全部返中国。两万中国战俘大多是原国军，绝大多数不愿意回中国大陆。美军主要出于人道和政治因素坚持非强制遣返，而毛泽东却指示谈判者“不许放走一个人”。中共代表在周恩来、李克农的指挥下，每天5~6人以超长时间轮番向每一名志愿军战俘发动“解释”攻心战。
-
-但是志愿军战俘，有三分之二共计14,235人拒绝返回大陆，而是选择去台湾。
-
-5—回归大陆的战俘的结局：最终回到大陆的6,064名战俘大多受到政治审查，他们没想到历经苦难活着回来竟然成了罪人，在历次政治运动中被扣上“叛国投敌分子”、“里通外国分子”、“叛徒”、“特务”等帽子加以整肃迫害。
-
-6—— 入朝作战的伤亡人数 ：
-
-原中共《解放军文艺》副总编的刘家驹，在他《我经历过的[朝鲜战争](https://www.ntdtv.com/gb/%25E6%259C%259D%25E9%25B2%259C%25E6%2588%2598%25E4%25BA%2589.htm)》中披露，彭德怀的老秘书王亚志说，朝鲜战争中，中共志愿军负伤、阵亡、病故、失踪、被俘占入朝作战总人数190万人的51.5%。（注：中共官方宣称志愿军伤亡人数是36万人，而联合国军伤亡人数是 225万人。）
-
-7—— 关于真实的后勤补给情况：原中共《解放军文艺》副总编的刘家驹说，自己经历的朝鲜战争第五次战役，是从1951年4月22日开始的，到6月10日结束，历时50天，中间只给他们补给了一次干粮，就是说有36天军队粮弹双断，期间靠吃树叶为生，当柴火的老苞米芯子、虱子都是好食物，还抢光老百姓东西、吃战友死尸等。
-
-8–—美军参展老兵的回忆：80岁海军陆战队下士Salvatore Scarlato回忆当年对战，缺武器的中共军往往是一个带枪的后面跟着十个没枪的，前面倒下后面捡起武器。　　他还披露：“许多中共军身上有毒品，用来壮胆。那里（朝鲜半岛）山上随处都（种）有大麻。”有不少死去的中国军人，只有15、6岁的样子。
-
-9——长津湖战役真相：
-
-1950年11月25日至12月24日是中共志愿军在韩战中的第二次战役期间，其中长津湖战役是中共一直吹虚包围美军一个团以上兵力的两次战例之一，中共称歼灭了美军第7师第31团一个整团，而且31团的军旗也挂在中共军事博物馆。
-
-实际上在长津湖战役中，中共军队第9兵团对美军进行突袭并分割包围，但却无法将之歼灭，反被美军大量杀伤。第9兵团以近15万兵力，事先埋伏好袭击美军2万人，不但让美军突围，最后成建制撤离，而自己还被打得减员近9万人，
-
-激战过后，这3个“被全歼”的营原有人数2500人，此战后归队1050人
-
-10——没有冬衣
-
-据《血地冰天：抗美援朝长津湖战役纪实》记载，在长津湖血战中，原华东野战军主力第9兵团的15万人中，竟然有3万多人被冻伤，4万多人被冻死，其中第20军人员损失特别惨重。
-
-，当时，华东战区的第9兵团在来不及做充裕准备的情况下，就仓促赴朝作战。在进入朝鲜前的沈阳火车站，前来检查部队准备情况的东北军区副司令员贺晋年发现其中的第20军战士穿着单皮鞋，带着薄薄一层棉花的冬装衣被。部队本来有两个小时的时间来获得必要的御寒物资。但在兵团部命令之下，有三个师还没有得到御寒物资就随列车过了鸭绿江。
-
-据《谢有法将军文辑》记载，9兵团仓促从福建前线紧急入朝，到丹东时还穿着单衣，东北后勤部的人说，你们穿这衣服，见不着敌人就已经被冻死了。但彭德怀命令必须立即出发到达指定位置，时任中国人民志愿军副司令员宋时轮提出衣服问题，彭德怀说他不管这些。宋时轮过江之前曾打电话给高岗，提出推迟两天过江，但高岗拒绝了这个要求。最后只给团级以上配发了冬装，团级以下战士依然单衣赤脚。
-
-有资料称，当时高岗在各个铁路车站囤积了大量被服，以供部队拿了就走。但毛泽东下令9兵团火车中途不停车，迅速入朝，致使这些士兵未能及时换装就仓促进入严寒的朝鲜。
-
-审稿：Yumi
-
-文章来源:
-
-朝鲜战争铸“冰雕连”志愿军数万人冻死谁之过？
-[https://www.ntdtv.com/gb/2014/02/19/a1065221.html](https://www.ntdtv.com/gb/2014/02/19/a1065221.html)
-
-彭德怀秘书揭韩战内幕 亲历36天断粮断弹:
-[https://www.ntdtv.com/gb/2017/11/18/a1351481.html](https://www.ntdtv.com/gb/2017/11/18/a1351481.html)
-
-解密：志愿军伤亡人数对比美韩联合国军伤亡人数令人震惊[http://www.globalview.cn/html/history/info\_13807.html](http://www.globalview.cn/html/history/info_13807.html)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07055127/7e0f7d73-4769-4e90-88ad-b90577192fa3-1.jpg)
-澳喜文章:[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
-
-欢迎加入澳喜农场：
-[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16061402/IMG_3537-1-715x720-1-3.jpg)
+据报道，从乌克兰总检察长办公室泄露的文件显示，复杂的资金从国外渠道转移到了前总统奥巴马的副总统和国务卿家中。
 
 
-1+
+
+> BOMBSHELL:
+> 
+> Leaked documents from the Ukrainian General Prosecutor’s office indicate complex money transfers from foreign sources into the control of a “slush fund” owned and operated by Devon Archer, John Kerry Senior, John Kerry Junior, Heinz Jr, and Hunter Biden.
+> — Mike Coudrey (@MichaelCoudrey) [November 14, 2019](https://twitter.com/MichaelCoudrey/status/1194782001422721024?ref_src=twsrc%5Etfw)
+
+
+
+*迈克·**库德瑞 @MichaelCoudrey  2019**年11**月13**日*
+
+*爆炸性新闻。*
+
+*乌克兰总检察长办公室泄露的文件表明，源于外国的复杂资金转移到一个 “贿赂基金 “的控制之下，该基金由德文*•*阿切尔，老约翰*•*克里，小约翰*•*克里，小海因茨和亨特*•*拜登拥有和运作。*
+
+**根据拉脱维亚的反情报，*布里斯玛（Burisma）控股有限公司*获得了大约400万美元，然后转给了亨特•拜登和德文•阿切尔**。
+
+
+
+> According to the Department of Financial Monitoring (Counter-intelligence) of Latvia, the following sums of money were obtained from Busima Holding Limited (Cyprus) which is open at AS PrivatBank in Latvia: [pic.twitter.com/vSG1LLwqvA](https://t.co/vSG1LLwqvA)
+> — Mike Coudrey (@MichaelCoudrey) [November 14, 2019](https://twitter.com/MichaelCoudrey/status/1194782088018350080?ref_src=twsrc%5Etfw)
+
+
+
+*迈克·**库德瑞 @MichaelCoudrey  2019**年11**月13**日*
+
+*根据拉脱维亚财务监督部（反情报）部门的资料，从在拉脱维亚AS**私人银行布里斯玛（Burisma**）控股有限公司（塞浦路斯）获得以下款项*
+
+*迈克·**库德瑞 @MichaelCoudrey  2019**年11**月13**日*
+
+*“Wire logic Technology AS**”**提供14,655,982**美元和366,015**欧元，以及*
+
+*“Digitex Organization LLP**”提供1,964,375**美元。*
+
+*此外，上述款项的一部分转给了阿兰•阿普特、亚历山大•克瓦希涅夫斯基、德文•阿切尔和亨特•拜登。*
+
+**布里斯玛（Burisma）控股随后通过摩根士丹利向亨特•拜登和约翰•克里家族汇去350万美元**。
+
+
+
+> BURISMA HOLDINGS LIMITED, during a period from November 18th 2014 to November 16th 2015 transacted 45 money transfers through MORGAN STANLEY SMITH BARNEY LLC in the sum of $3.5M dollars. 
+> 
+> The recipient of the money transfer is Rosemont Seneca Bohai LLC.
+> — Mike Coudrey (@MichaelCoudrey) [November 14, 2019](https://twitter.com/MichaelCoudrey/status/1194782093831622656?ref_src=twsrc%5Etfw)
+
+
+
+*迈克·**库德瑞 @MichaelCoudrey  2019**年11**月13**日*
+
+*从2014**年11**月18**日至2015**年11**月16**日期间，布里斯玛控股有限公司通过摩根士丹利史密斯巴尼有限责任公司进行了45**笔汇款，总金额为350**万美元。*
+
+*汇款的收款人是罗斯蒙特塞内卡渤海有限责任公司*
+
+*迈克·**库德瑞 @MichaelCoudrey  2019**年11**月13**日*
+
+*罗斯蒙特塞内卡渤海有限责任公司由德文•**阿切尔拥有，克里家族包括老约翰•克里、小约翰•克里、小海因茨和亨特•拜登拥有和运营。*
+
+*所有这些人也是都罗斯蒙特塞内卡基金和其他附属于罗斯蒙特塞内卡公司的合伙人。*
+
+**钱被转移后，布里斯玛就不再接受调查了**。
+
+正如《门户专家》昨晚报道的那样，布里斯马向亨特•拜登和克里家族支付的款项包括38笔**8.3万美元**的付款，总额超过**310万美元**。
+
+
+
+> BURISMA HOLDINGS LIMITED, during a period from November 18th 2014 to November 16th 2015 transacted 45 money transfers through MORGAN STANLEY SMITH BARNEY LLC in the sum of $3.5M dollars. 
+> 
+> The recipient of the money transfer is Rosemont Seneca Bohai LLC.
+> — Mike Coudrey (@MichaelCoudrey) [November 14, 2019](https://twitter.com/MichaelCoudrey/status/1194782093831622656?ref_src=twsrc%5Etfw)
+
+
+
+*迈克·**库德瑞 @MichaelCoudrey  2019**年11**月13**日*
+
+*泄露的银行交易记录显示，乌克兰能源公司Burisma**控股有限公司向罗斯蒙特塞内卡有限责任公司注入大笔款项，似乎每月支付83,333.33**美元*
+
+*为什么一家正在接受乌克兰总检察官办公室腐败调查的外国公司突然聘用和招揽与政府有联系的美国知名人士，并付给他们如此大笔的钱？*
+
+**确切原因在这里：**
+
+
+
+> Joe Biden at the Council on Foreign Relations:
+> 
+> "So I said to Poroshenko (Ukrainian President) & Yatsenuk (Ukr PM):
+> 
+> If you don't fire the prosecutor investigating my son, we're going to withhold the $1 billion in aid."
+> 
+> Would be a shame if this went viral! [pic.twitter.com/Wd1x7tsFFn](https://t.co/Wd1x7tsFFn)
+> — Mike Coudrey (@MichaelCoudrey) [September 26, 2019](https://twitter.com/MichaelCoudrey/status/1177028193569538048?ref_src=twsrc%5Etfw)
+
+
+
+*迈克·**库德瑞 @MichaelCoudrey  2019**年9**月25**日*
+
+*对外关系委员会的乔•拜登（Joe Biden**）：*
+
+*“所以我对波罗申科（乌克兰总统）和耶特努克（乌克兰总理）说：如果您不解雇调查我儿子的检察官，我们将扣留这10亿美元的援助。”如果(这事)病毒式传播，那将是一个耻辱！*
+
+**在拜登扣留了向乌克兰提供的10亿美元援助后，对布里斯马的调查被终止。**
+
+
+
+> Soon after high profile US persons were paid off, including the son of US politician and Vice President Joe Biden, the corruption probe into Burisma and Hunter Biden was shut down under threat from the US administration withholding $1B in aid.
+> 
+> See here:[https://t.co/34R7HYVoGY](https://t.co/34R7HYVoGY)
+> — Mike Coudrey (@MichaelCoudrey) [November 14, 2019](https://twitter.com/MichaelCoudrey/status/1194782110923415552?ref_src=twsrc%5Etfw)
+
+
+
+*迈克·**库德瑞 @MichaelCoudrey  2019**年11**月13**日*
+
+*美国知名人士包括美国政治家的儿子和副总统乔•拜登（Joe Biden）获得报酬后不久，在美国政府扣留10亿美元援助的威胁下，针对布里斯马和亨特•拜登的腐败调查被终止。*
+
+
+
+> BREAKING: A large cache of confidential foreign documents have just been leaked implicating Joe Biden, George Soros, Hillary Clinton and Joseph Misfud's collusion and possible criminal activity in Ukraine.
+> 
+> Download and start digging! ⬇️[https://t.co/7XD9Tzkqkj](https://t.co/7XD9Tzkqkj) [pic.twitter.com/UvDXpGxAlT](https://t.co/UvDXpGxAlT)
+> — Mike Coudrey (@MichaelCoudrey) [September 26, 2019](https://twitter.com/MichaelCoudrey/status/1177370086182551552?ref_src=twsrc%5Etfw)
+
+
+
+*看这儿：*
+
+*“波罗申科（乌克兰总统）在美国总统府的压力，特别是美国副总统乔•拜登的压力，要求我辞职。拜登威胁要扣留给乌克兰的10亿美元补贴，直到我被免职为止 。”*
+
+*综上所述，据我所知，腐败的外国天然气公司曾恳请美国政府下属的知名人士非法影响美国的官方外交政策，并向乌克兰政府施加压力，要求其停止对腐败的调查。*
+
+**与乌克兰的交换涉及的是乔•拜登和约翰•克里，而不是唐纳德•川普总统。**
+
+
+
+> Further more, it has been determined that after significant payments were made to the firm partly owned by Hunter Biden, Joe Biden while the Vice President operated in an official capacity to change US Foreign Policy to help enrich and protect his son, Hunter Biden.
+> — Mike Coudrey (@MichaelCoudrey) [November 14, 2019](https://twitter.com/MichaelCoudrey/status/1194782116480831490?ref_src=twsrc%5Etfw)
+
+
+
+*迈克·**库德瑞 @MichaelCoudrey  2019**年11**月13**日*
+
+*此外，据确定，在向亨特•拜登和部分拥有的公司付款后，而副总統乔•**拜登则以正式身份运作来改变美国外交政策的，以帮助丰富和保护他的儿子亨特•拜登。*
+
+**涉及美国的真正犯罪的是约翰•克里、克里的家族和拜登家族，而不是唐纳德•川普总统！**
+
+
+
+原文作者：乔·霍夫特
+
+发布于2019年11月13日晚上9:55
+
+原文链接：
+
+[HUGE! EXCLUSIVE BOMBSHELL: Documents Released by Ukrainian General Prosecutor’s Office Reveal MILLIONS Funneled to Hunter Biden and the John Kerry Family (thegatewaypundit.com)](https://www.thegatewaypundit.com/2019/11/huge-exclusive-bombshell-documents-released-by-ukrainian-general-prosecutors-office-reveal-millions-funneled-to-hunter-biden-and-the-john-kerry-family/)
+
+4+

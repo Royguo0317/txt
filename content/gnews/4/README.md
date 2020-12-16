@@ -1,30 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 五角大楼紧急关闭机密系统网络，破墙才是刚刚开始！
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/656339/)
+## 良人尸骨未寒 奴才丰碑已矗
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/656422/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16095204/capture-118.jpg)图片来源：[coincentral.com](http://coincentral.com/)
-据GATEWAY PUBDIT 网站12月15日最新报道称，五角大楼于周二紧急关闭处理机密材料的计算机网络。
+作者：宁缺；校对/审核：海阔天空；Page：拱卒
 
-报道认为此举正是遵循了12月14日美国国家网络安全和设备安全局（CISA）紧急签署的 Emergency Directive21-01指令, 以应对SolarWinds Orion产品已知漏洞所带来的潜在安全隐患。该紧急指令呼吁所有的联邦机构检查民用网络，一旦发现迹象，立即断开并关闭SolarWinds Orion产品的电源。 此次行动是CISA依据国会2015年网络安全法授权发布的第5条紧急指令。
+## **评钟南山为其塑像揭幕**
 
-根据另一家美媒“Just the News”称， 此次紧急关闭的系统是处理上至国防部最高机密的“秘密互联协议路由器网络” （Secret Internet Protocol Router Network）。五角大楼官员称从来没有发生过这样的事情，此消息已由三位国防部人士证实。
+[!\[\]()!\[\](https://spark.adobe.com/page/bYI3wWeygK7XN/images/9b45c792-f0f9-4357-9be1-7d9f90580986.jpg?asset_id=2bb8b06f-c2d2-406d-8934-10ac3d3846c1&amp;img_etag=%22d7631344a3ae9b41ae92b56c6cfb77c7%22&amp;size=1024)](https://spark.adobe.com/page/bYI3wWeygK7XN/images/9b45c792-f0f9-4357-9be1-7d9f90580986.jpg?asset_id=2bb8b06f-c2d2-406d-8934-10ac3d3846c1&amp;img_etag=%22d7631344a3ae9b41ae92b56c6cfb77c7%22&amp;size=1024)
 
-**评**：  根据12月14日路德时评（路博艾冠），在YouTube被断网后， YouTube在公司层面没有能力也没有办法调查， 美国国防部需要开始调查， 北约已经开始调查关于SolarWinds网络攻击。 而这正是破防火墙的必经之路。SolarWinds公司是一个网络监控型公司，其最大股东跟阿里巴巴中共的千丝万缕的关系， 博士军团分析此次攻击属于“供应链攻击”类型，此次很多重要信息的泄露之后，美国对于科技被中共控制的情况，已经开始了全面的反击。美国及北约已经掌握了实锤调查证据。 网络攻击和SolarWinds 的漏洞最终会证明是中共所为。
+12月12日，广州市华南师范大学附属中学举行132周年校庆。该校1955届校友、中国工程院院士钟南山到场为“钟南山雕像”揭幕。
 
-在全球断网和网络大崩溃，以及SolarWinds软件漏洞被发现， 北约开始全面调查之际，文贵先生15号的视频中说，全球已经进入自动灭共，联合灭共的新时代！而盖文已经道出了14号这一天的意义， “12月15号还有24小时，所有的断网的背后的真相和最后推倒共产党的防火墙，都是紧密相联的关系，好日子和机会……前所未有的摆在我们的面前，一切都已经开始！”
+[!\[\]()!\[\](https://spark.adobe.com/page/bYI3wWeygK7XN/images/a550de5f-466a-4e06-804c-434c0b4dc256.jpg?asset_id=cf1305b2-9820-4ce5-a483-78bf2217d3e8&amp;img_etag=%2273e5cc42c73e5c484b01eef27c01ea0a%22&amp;size=1024)](https://spark.adobe.com/page/bYI3wWeygK7XN/images/a550de5f-466a-4e06-804c-434c0b4dc256.jpg?asset_id=cf1305b2-9820-4ce5-a483-78bf2217d3e8&amp;img_etag=%2273e5cc42c73e5c484b01eef27c01ea0a%22&amp;size=1024)
 
-结合以上分析，此次紧急关闭也许正是五角大楼升级系统补漏洞，从而为即将到来了实战做好准备的必要步骤。
+在中共病毒依然疯狂肆虐的当下，中共又一次在所有人面前把全世界的丧事办成了自己家的大喜事。自此，中共国多了一位优秀党员、好干部、大救星，而人间被中共迫害致死的累累白骨又再次在喜大普奔的场面里销声匿迹了。
 
-1. [原文链接](https://www.thegatewaypundit.com/2020/12/pentagon-imposes-emergency-shutdown-secret-internet-protocol-router-network-handles-classified-information-secret-level/)
-2. [路德先生相关直播链接](https://www.youtube.com/watch?v=V_bAzGcqgC8)
-3. [郭先生盖特相关链接](https://gtv.org/getter/5fd798ed20c9025a87df7ec0)
+党的好奴才是需要被祭祀、需要进神社、需要放上圣坛的。奴才的名字和捏造的事迹也会被写在光伟正的党刊上，走进洗脑的教材里。只有这样才会涌现出更多的犬奴蛆虫，争抢主子的残羹冷炙，狗粮恩宠。
 
+[!\[\]()!\[\](https://spark.adobe.com/page/bYI3wWeygK7XN/images/91f39c6c-c709-40c9-a150-d4524422b0aa.jpg?asset_id=82269e0b-38fd-48af-98d9-4fae88df502c&amp;img_etag=%2290df5f5b675cd2ef53a5d6dc3da9ecb2%22&amp;size=4549)](https://spark.adobe.com/page/bYI3wWeygK7XN/images/91f39c6c-c709-40c9-a150-d4524422b0aa.jpg?asset_id=82269e0b-38fd-48af-98d9-4fae88df502c&amp;img_etag=%2290df5f5b675cd2ef53a5d6dc3da9ecb2%22&amp;size=1024)
 
+眼前一次次热闹狂欢的表功会却让我更加怀念那位圣洁不屈的灵魂，真正的英雄从来都深藏在人民的心中。李文亮医生不畏强权，勇敢揭露中共掩盖疫情真相，为百姓争取应对时间的英雄壮举，怎么会需要党媒的涂脂抹粉，又怎么会被遗忘在专制王权的嚣张跋扈之下？
 
-翻译：喜相逢
-校对：沙拉猫
+斯大林在苏联的地界上竖起过一座座塑像，萨达姆也在伊拉克的土地上处处为自己立碑作画。这些强迫人民膜拜和景仰的暴政垃圾最后都随着集权政府的垮台而烟消云散了。只有真正关心民众安危的英雄才能在人民心中永存。
 
+我坚信新中国联邦很快就能顺应真正的民意，将李文亮医生的塑像矗立在人民真正当家作主的新世界!
 
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/bYI3wWeygK7XN/)
+[!\[\]()!\[\](https://spark.adobe.com/page/bYI3wWeygK7XN/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/bYI3wWeygK7XN/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

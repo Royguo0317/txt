@@ -1,22 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 黑暗势力利用CCP病毒实现它们的邪恶计划
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/655797/)
+## 12/16/2020 财经快讯: 俄罗斯削减电力供应, 浙江加工厂全部停产, 菲律宾与中国圣诺华生物技术有限公司洽谈采购COVID-19疫苗
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/655968/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16073630/1-111.png)图片来自： churchmilitant.com
-（Alpha News MN）12月14日刊登了红衣主教雷蒙德-伯克（Raymond Burke）周六晚上在威斯康星州拉克罗斯的朝圣地发表的布道。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16082013/Picture10-1.png)图片来源: http://innoplex-agri.org
+1.12月14日，因俄罗斯突然宣布停止对中国30亿度电的供应，浙江当地政府要求许多工厂从即日起至12月31日实施限电，所有加工厂全部停产， 省级有关单位办公区域在气温达到3度及以下时方可开启取暖设备，且最高温度不得超过16℃。
+[https://www.soundofhope.org/post/453556](https://www.soundofhope.org/post/453556)
 
-伯克是瓜达卢佩圣母圣殿的创始人，他在周六的一次布道中说：当”我们需要在基督徒的爱中彼此接近时，世俗的势力就会孤立我们，使我们相信我们是孤独的，需要依赖世俗的力量，让我们成为他们无神和谋杀议程的奴隶”。
+2.12月14日，一名菲律宾冠状病毒特别工作组官员宣布，菲律宾计划在本周与中共国Sinovac生物技术公司完成谈判，以期获得2500万剂的COVID-19疫苗，并于明年3月获得交付。 菲律宾正在评估Sinovac在该国进行第三阶段临床试验的计划。[https://www.reuters.com/article/health-coronavirus-philippines/philippines-targets-deal-for-25-million-doses-of-sinovac-covid-19-vaccine-idUSKBN28O10G](https://www.reuters.com/article/health-coronavirus-philippines/philippines-targets-deal-for-25-million-doses-of-sinovac-covid-19-vaccine-idUSKBN28O10G)
 
-“我们怀着忧虑而沉重的心情来到瓜达卢佩圣母圣殿。 我们的国家正在经历一场威胁到自由民主未来的危机。 马克思主义唯物主义在世界范围内的传播，已经给许多人的生活带来了破坏和死亡，它几十年来动摇了我们国家的根基，现在似乎正在夺取对我们国家的统治权。”伯克讲道：“为了获得经济利益，我们已经成为一个依赖中国共产党的国家，而共产党的意识形态是以反对基督教为基础的，而基督教基础使家庭和我们的国家保持安全和繁荣，”  “显然，许多其他国家也在经历类似的、最令人担忧的危机。”他继续说。
+3.中共国债务市场是世界第二大债务市场，最近几周遭受了一系列国有企业违约的打击。 证券监督管理委员会12月15日表示，由于东方金诚国际信用评估有限公司不足以支撑开展评级业务的内控及合规管理要求，暂停了该机构的牌照，三个月内禁止开展新业务。 该机构被责令“加强内部控制和合规管理，严格规范业务并提高评级质量”。 该机构管理层声称暂停牌照是出于“政治考量”，迫使其他机构遵守规定。
+[https://www.usa-vision.com/china-suspends-top-credit-rating-agency-as-defaults-hit-market/](https://www.usa-vision.com/china-suspends-top-credit-rating-agency-as-defaults-hit-market/)
 
-“然后是一种神秘的CCP病毒，关于其性质和预防日常传播，我们获得的信息是相互矛盾的。 但很清楚，某些势力对家庭和国家自由是有害的，某些势力已经利用它来推进其邪恶的进程。 这些势力告诉我们，我们现在是所谓的“大重置”和“新常态”，这是由于他们通过无知和恐惧操纵了公民和国家。考虑到这些“严峻”的情况，现在要求美国人在“疾病及其预防”中找到“理解和指导”他们生活的方式”。伯克说：“教会的许多人似乎不了解基督如何在瘟疫和灾难时继续他的救赎工作。”
+4.澳大利亚总理斯科特·莫里森周二表示，中共国对澳大利亚煤炭进口的禁令违反世界贸易组织规定，澳洲贸易部长西蒙·伯明翰 (Simon Birmingham) 还表示，中国煤炭禁令是一种“歧视性贸易做法”。 自从十月份中共国要求港口不得卸载澳大利亚煤炭以来，已有超过50艘船只被困。 在被问及该禁令时，外交部发言人王文彬声称中国政府并不知此事，并坚持认为中国一直在依法和国际惯例行事。
+[https://www.bloomberg.com/news/articles/2020-12-14/australia-deeply-troubled-by-reports-of-china-coal-import-ban](https://www.bloomberg.com/news/articles/2020-12-14/australia-deeply-troubled-by-reports-of-china-coal-import-ban)
 
-“是的，我们的心情很沉重，这是可以理解的，但基督通过他圣母的代祷，将我们的心提升了，使我们重新信任他，他已答应在教会中给我们永恒的救赎。 他将永远忠于自己的诺言。 他永远不会放弃我们，”伯克总结道。 “让我们不要被世界的力量和假先知所迷惑。 我们不要放弃基督，却在永远找不到的地方寻求我们的救赎。”
+5.中共党媒《环球时报》周二承认，在中共国开展业务的外国公司很可能会有许多有中共党员背景的员工，但该报坚称外国公司应该为其有这些雇员而高兴，因为这些党员在能力和道德上都很优秀。
+[https://www.breitbart.com/national-security/2020/12/15/chinese-state-media-foreign-companies-bound-to-have-communist-party-members-on-staff/](https://www.breitbart.com/national-security/2020/12/15/chinese-state-media-foreign-companies-bound-to-have-communist-party-members-on-staff/)
 
-[原文链接](https://alphanewsmn.com/cardinal-burke-forces-of-the-great-reset-have-used-covid-to-advance-evil-agenda/)
+By 【Financial Team – Kate】
 
-翻译报道： Alton
-
-0
+5+
