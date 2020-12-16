@@ -1,31 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 带货界鼻祖“病毒党院士”钟南山又一战绩&#8212;-获香港理工大学荣誉博士
-` 公民之聲` [轉載自GNews](https://gnews.org/zh-hans/655795/)
+## 12/16/2020 财经快讯: 俄罗斯削减电力供应, 浙江加工厂全部停产, 菲律宾与中国圣诺华生物技术有限公司洽谈采购COVID-19疫苗
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/655968/)
 
-内新闻/素材：文婷 校对：α-Vega
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16082013/Picture10-1.png)图片来源: http://innoplex-agri.org
+1.12月14日，因俄罗斯突然宣布停止对中国30亿度电的供应，浙江当地政府要求许多工厂从即日起至12月31日实施限电，所有加工厂全部停产， 省级有关单位办公区域在气温达到3度及以下时方可开启取暖设备，且最高温度不得超过16℃。
+[https://www.soundofhope.org/post/453556](https://www.soundofhope.org/post/453556)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16073028/image0-83.jpg)
+2.12月14日，一名菲律宾冠状病毒特别工作组官员宣布，菲律宾计划在本周与中共国Sinovac生物技术公司完成谈判，以期获得2500万剂的COVID-19疫苗，并于明年3月获得交付。 菲律宾正在评估Sinovac在该国进行第三阶段临床试验的计划。[https://www.reuters.com/article/health-coronavirus-philippines/philippines-targets-deal-for-25-million-doses-of-sinovac-covid-19-vaccine-idUSKBN28O10G](https://www.reuters.com/article/health-coronavirus-philippines/philippines-targets-deal-for-25-million-doses-of-sinovac-covid-19-vaccine-idUSKBN28O10G)
 
-12日，钟南山在母校华南师范大学附属中学校庆之际，返校为其塑像揭幕。网友纷纷表示，“活着给自己的塑像揭幕，这是第一次听说，也是第一次亲眼看到，前无古人后无来者，绝对是稀罕事。”“塑像下面应该刻上钟南山的功绩：肯定了莲花清瘟、板蓝根抗击新冠病毒的重大研究”。
+3.中共国债务市场是世界第二大债务市场，最近几周遭受了一系列国有企业违约的打击。 证券监督管理委员会12月15日表示，由于东方金诚国际信用评估有限公司不足以支撑开展评级业务的内控及合规管理要求，暂停了该机构的牌照，三个月内禁止开展新业务。 该机构被责令“加强内部控制和合规管理，严格规范业务并提高评级质量”。 该机构管理层声称暂停牌照是出于“政治考量”，迫使其他机构遵守规定。
+[https://www.usa-vision.com/china-suspends-top-credit-rating-agency-as-defaults-hit-market/](https://www.usa-vision.com/china-suspends-top-credit-rating-agency-as-defaults-hit-market/)
 
-没过几天，香港理工大学(理大)也在15日宣布，钟南山获该校荣誉博士学位。
+4.澳大利亚总理斯科特·莫里森周二表示，中共国对澳大利亚煤炭进口的禁令违反世界贸易组织规定，澳洲贸易部长西蒙·伯明翰 (Simon Birmingham) 还表示，中国煤炭禁令是一种“歧视性贸易做法”。 自从十月份中共国要求港口不得卸载澳大利亚煤炭以来，已有超过50艘船只被困。 在被问及该禁令时，外交部发言人王文彬声称中国政府并不知此事，并坚持认为中国一直在依法和国际惯例行事。
+[https://www.bloomberg.com/news/articles/2020-12-14/australia-deeply-troubled-by-reports-of-china-coal-import-ban](https://www.bloomberg.com/news/articles/2020-12-14/australia-deeply-troubled-by-reports-of-china-coal-import-ban)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16073209/image0-84.jpg)
+5.中共党媒《环球时报》周二承认，在中共国开展业务的外国公司很可能会有许多有中共党员背景的员工，但该报坚称外国公司应该为其有这些雇员而高兴，因为这些党员在能力和道德上都很优秀。
+[https://www.breitbart.com/national-security/2020/12/15/chinese-state-media-foreign-companies-bound-to-have-communist-party-members-on-staff/](https://www.breitbart.com/national-security/2020/12/15/chinese-state-media-foreign-companies-bound-to-have-communist-party-members-on-staff/)
 
-去年反送中运动中，香港理工大学的学子们不屈不服，英勇就义，不畏牺牲的精神震惊世界。今日香港理工大学领导层却舔着中共的狗腿钟南山，为自己洗白拉关系。如此奴才嘴脸相比学子们形成了鲜明的对比！那些为香港民主、自由牺牲的莘莘学子们的英灵能否得到安息，香港理工大学的领导们不感觉自愧吗？
+By 【Financial Team – Kate】
 
-钟南山自从被习近平授予“共和国勋章”以来更加无耻。一切听党指挥，充当中共的马前卒，地位堪比胡锡进。
-
-伴随着新冠病毒在香港的蔓延，他在7月29日谈香港防疫提出：尽快开展全民筛查，要坚决打击搞聚集集会人士！香港亚博方舱, 也以中国速度在几天内开舱启用。这一措施加快了港人DNA的采集，更以病毒为由为政治迫害打掩护。
-
-9月30日，钟南山提出了香港的教育出了问题，没有政治课，孩子从小不知道爱党爱国。香港人不接受中共的洗脑教育，钟南山反而倒打一耙，简直是混淆视听、颠倒黑白。
-
-象征着自由独立思想的香港知识学术界，在中共这种强权、恐吓、暴力的统治下沦为了“跪族”。像钟南山这种中共的吹鼓手，在香港招摇撞骗到处获奖的事迹也就不足为奇了。
-
-新闻来源： [钟南山等三人获颁香港理工大学荣誉博士学位](https://m.sohu.com/a/438646363_115479/?pvid=000115_3w_a)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13072500/111-1.png)
-
-0
+5+

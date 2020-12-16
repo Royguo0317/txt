@@ -1,65 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港专题】香港 Deep State「紫荆党」（五）中共「留岛不留人」在香港进行大换血
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/656271/)
+## 中共及其黑暗势力对美国进行大面积网络攻击，偷窃核心数据
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/656262/)
 
-整撰：文燕
+作者：freedust；校对/审核：海阔天空；Page：拱卒
+[!\[\]()!\[\](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/88458ac7-ad7d-4f9f-92ad-7d449c05348b.jpg?asset_id=6b1d906c-7559-4561-b0a2-e7f0c650e752&amp;img_etag=%2297651d73e12b050f635c8c4258f3e198%22&amp;size=1024)](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/88458ac7-ad7d-4f9f-92ad-7d449c05348b.jpg?asset_id=6b1d906c-7559-4561-b0a2-e7f0c650e752&amp;img_etag=%2297651d73e12b050f635c8c4258f3e198%22&amp;size=1024)
+**2020年12月14日 美国网络安全和基础设施安全局发出紧急指令21-01，呼吁所有联邦民用机构检查其网络是否有损坏迹象，并立即断开或关闭SolarWinds Orion产品。**
 
-审核：MY
+[!\[\]()!\[\](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/38ba1313-4a46-4cfd-a107-401487bd564d.png?asset_id=b07e701b-a1cb-44f0-b9d5-b58bfe9c9c8e&amp;img_etag=%221729a15f5625e016402c3dccd4b4bc80%22&amp;size=2560)](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/38ba1313-4a46-4cfd-a107-401487bd564d.png?asset_id=b07e701b-a1cb-44f0-b9d5-b58bfe9c9c8e&amp;img_etag=%221729a15f5625e016402c3dccd4b4bc80%22&amp;size=1024)
 
-一群「海归派」财经界人士于今年5月成立新政党「紫荆党」。有分析相信，这意味着潜伏在香港的中共地下党员逐步「地上化」，也显示北京对香港亲北京阵营的不信任。根据其党章，该党的建党目的包括支持【一国两制】，改善中央政府及特区政府的关系等。紫荆党的出现，可能体现中共全面「改造 」香港的大计，中共要「留岛不留人」，在香港进行大换血。
+**据《路透社》公布这是一起严重的“黑客事件”，以至于美国国家安全委员会上周六为此在白宫召开了一次会议。**美国官员没有公开发表过多言论，只是美国商务部证实其一个机构受到了攻击，并表示他们已要求美国网络安全和基础设施安全局(Cybersecurity and Infrastructure Security Agency，简称CISA)和美国联邦调查局(FBI)展开调查。
 
-据【立场新闻】报道，非建制派议员总辞后，建制派马上面对生存危机，为彰显自己的存在价值以保就业，唯有由大安旨意的「一生都不说话」到「分身饰演自己」，担任所谓的忠诚反对派。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16092425/image001-11.png)建制派立法会议员 （图片来源：立场新闻）
-不过，忘我的演出，却无法阻止成为弃卒的命运。如今，商界天天上演中资取代港资的戏码，建制派岂可幸免于难？
+[《路透社》原文](https://www.reuters.com/article/us-usa-cyber-amazon-com-exclsuive/exclusive-u-s-treasury-breached-by-hackers-backed-by-foreign-government-sources-idUSKBN28N0PG)
 
-《南华早报》早前披露由新香港人组成的「紫荆党」，就是一例。 「紫荆党」的横空出世，打正旗号就是要下一个「五十年不变」，要维持所谓「一国两制」」。该党创办人黄秋智夸下海口要招收廿五万党员，数目远超植根多年、四万五千会员的民建联。
+SolarWinds的客户包括美国财富500强中多于425家企业，美国前10 的电信公司、美国军方、五角大楼、国务院、美国航空航天局、美国国家安全局、邮政服务、美国司法部、美国总统办公室、美国五大会计事务所及数百所遍布全球的大学。
 
-人从何来？自不然是「地下党员」。共产党是很奇妙的，他们透过中联办实然地管治香港，却永远不承认管香港的人有共产党党籍。 「飞鸟尽，良弓藏」，道理显浅不过，当非建制派都不玩这个烂透的游戏，北京仍然需要养着一群尸位素餐的垃圾吗？更何况，这些劣质建制派，连「良弓」也说不上。
+[!\[\]()!\[\](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/db458b5d-7794-48cb-b3e4-cdb5fc7511d1.png?asset_id=aa4be2ab-3542-4406-996f-08f2697b24c1&amp;img_etag=%220128887845c17a3df6ec1be0b36d6e4e%22&amp;size=2560)](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/db458b5d-7794-48cb-b3e4-cdb5fc7511d1.png?asset_id=aa4be2ab-3542-4406-996f-08f2697b24c1&amp;img_etag=%220128887845c17a3df6ec1be0b36d6e4e%22&amp;size=1024)
 
-不少迹象也反映，北京不再需要擦鞋仔，而是根正苗红、流着内地血统的自己人。
+**文件是通过复杂的操作植入**SolarWinds的文件中，通过后门进入系统后被触发的。
 
-公民党主席、资深大律师梁家杰在接受《看中国》专访时表示，香港时处政局纷乱，当议会政治走到尽头的时候，横空出世的25万人政党的鸿图大志，「如果我是李慧琼，是工联会会长，我会很担忧，要紧急谋求对策，这个势头不对，视乎是留岛不留人，香港人要大换血」 释放保皇党将被废弃的一个信号。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16092402/image003-7.png)公民党主席、资深大律师梁家杰在接受《看中国》专访时质疑中央「留岛不留人，香港人大换血」，释放保皇党将被废弃的一个信号。
-梁家杰指，当11.11人大常委决定DQ四名民主派立法会议员时，他已经预计到今日局面，「我已同保皇党的一位朋友在公开的电视节目中讲过，别以为没有反对派你们可以很过瘾，可以同时做反对派? 56亿「明日大屿」一个下午通过，扮演反对派的亲保皇党在干什么? 」
+[!\[\]()!\[\](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/f487772a-7d5e-4dc1-a427-962991c4b85b.jpg?asset_id=d9051115-e7c5-4694-a1ad-1ce2ae2ecfc5&amp;img_etag=%222d5a9c8f9efc90a20f0d366799cfa857%22&amp;size=2560)](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/f487772a-7d5e-4dc1-a427-962991c4b85b.jpg?asset_id=d9051115-e7c5-4694-a1ad-1ce2ae2ecfc5&amp;img_etag=%222d5a9c8f9efc90a20f0d366799cfa857%22&amp;size=1024)
 
-梁家杰直言，「没有了敌人，还需要西环契仔契女吗? 」（由于西环是香港中联办所处的位置，故用「西环」；「契仔契女」指一些由中央驻香港中联办背后扶植的香港建制派阵营人士）。
+**表面上，我们看起来似乎，SolarWinds是此次黑客事件的受害者，将为此蒙受巨大损失，但另一些信息似乎为我们透露了另一种可能。**
 
-他指，保皇党土共的存在只是为了暂时顶住民主派反对阵营这班敌人，非「根正苗红」又在香港殖民地时代为港英服务的人，1997年后服务中共时，又如何深得中共信任呢? 保皇党过去23年「交白卷」的表现，去年11.24民主派区议员赢到开巷，388个议席的丢失，还需「阿爷」每年以亿计的维稳费去养活吗?
+我们查到SolarWinds在2016年被以科技为重点的私募股权公司Thoma Bravo LLC和Silver Lake Partners以45亿美元的价格私有化。上市后，银湖和布拉沃将拥有大约88%的股权，使SolarWinds成为一家控股公司。两家公司都保留了董事会的职位。而Silver Lake Partners对与中共有千丝万缕联系的阿里巴巴集团进行了投资。
 
-**战友观点：**
+在一篇援引自Bloomberg的文章中说，蚂蚁金服的IPO，将为众多美国私募股权投资公司带来丰厚收益。据一位不愿透露姓名的知情人士表示，Silver Lake Management LLC, Warburg Pincus LLC, and Carlyle Group Inc.是蚂蚁金服2018年最新一轮融资的美国最大投资者，分别向其投资了至少5亿美元。
 
-熟悉中国政治的前《文汇报》记者刘锐绍在接受【大纪元】采访时指，现时整体的动向，显示北京并不信任香港人，包括现时的香港亲北京阵营。
+[《布隆伯格网》原文](https://www.bloomberg.com/news/articles/2020-07-29/silver-lake-warburg-carlyle-poised-for-gains-from-ant-s-ipo)
 
-刘锐绍说：「中共对所谓「白区」的管治从来没有信心，所谓「白区 」即不是由中共直接管治，而是要透过代理人，即透过特首管治。而这些人又长期在外，在港英政府浸淫下，亲北京阵营也是如此，所以中共不会有绝对信心。已经有人说，未来的特首可能不是香港出生，不是地道香港人，可能通过国内某些法例修改，成为特首。 」
+Silver Lake通过三个主要业务开展业务，所有业务均专注于技术投资：Silver Lake Partners对大型科技公司和高科技公司进行私募股权投资。 Silver Lake Partners占公司管理资产的大部分。
 
-他补充道，除了不信任外，北京对亲北京阵营的能力也有不满，包括未能争取香港主流民意，亲北京阵营得到的每一个议席都非常昂贵；甚至在关键时间「帮倒忙 」。
+Silver Lake成立于1999年，他的创始人中有来自黑石集团的Glenn Hutchins，曾在克林顿政府早期担任经济和医疗政策特别顾问。
 
-自媒体人徐时论认为，中共不信任香港传统建制派已经有一段日子了，中央用「分而治之」，由中联办统一管理，例如成立「京盟联」、 「新民党」去分割「自由党」的和「民建联」，又用栽培的「西环契仔契女」，用自己挑选的李慧琼去取代太有影响力的曾钰成；还有一堆所谓会计师、律师专业资格的年轻一辈去取代香港意识太强以致不完全听话的老左派。
+（来自维基百科）
 
-不过在编者看来，上述人士都只不过是中共实施「全面管制」的过渡人物，主角现在终于出场了，就是「紫荆党」这些拥有中国共产党党籍的海归派精英。他们忠心又可靠，能力又高，又符合一尊的「大湾区」融合计划。
+Silver Lake与大选舞弊的Dominion公司的金主Carlyle Group Inc.也曾有多次合作投资的经历。
 
-徐时论分析，对中共来说，林郑只不过是一个过渡人物，是用来暂时取代梁振英，但是她不可能是中共的核心人物，也不可能是中共信任的人物，中共过一段日子要在香港落实「全面管治权」，传统的建制派不是被清洗，就是被赋予新的角色。
+SolarWinds首席执行官凯文·汤普森（Kevin Thompson）在一份声明中表示:“我们认为，这一漏洞是由一个国家对供应链实施的高度复杂、有针对性的人工攻击造成的。”
 
-至于传统建制派这班「旧电池」、「旧奴才」不一定会被清洗，但会进一步被管理，仍可以做「啦啦队」甚至因为真正的反对派被消灭以后，他们需要扮演由木偶师扯线的反对派以增加民心。这就解释了为什么最近林郑成为了被追杀的「丧尸」，人人得以诛之。
+而网络安全专家表示SolarWinds的漏洞将为黑客提供进入网络的“上帝模式”，使一切都可见。
 
-当所有敌人都被杀光了，英雄必将「无用武之地」。既然泛民已除，那么「阿爷」还愿意每年以亿计的维稳费去养活这班传统建制派吗？
+[**KXAN原文**](https://www.kxan.com/news/local/austin/austin-based-solarwinds-at-center-of-massive-us-government-hack/amp/)
 
-这班同声同气的新香港人志在改善中央政府及特区政府的关系。 「紫荆党」的出现，可能体现中共全面「改造 」香港的大计，在香港落实「全面管治权」，中共要「留岛不留人」，在香港进行大换血。
+而SolarWinds总监在上周CISA宣布之前，售出了4,570万美元的股票期权。
 
-【香港专题】香港 Deep State「紫荆党」报导专题
+[**《网络观察家》原文**](https://www.thegatewaypundit.com/2020/12/revealed-solarwinds-director-sold-45-7-million-stock-options-last-week-cisa-announcement-sunday/?utm_source=Twitter&amp;utm_campaign=websitesharingbuttons)
 
-[【香港专题】香港 Deep State「紫荆党」（一）三名创办人 ：李山、陈健文、黄秋智](https://gnews.org/zh-hans/638003/)
+尽管有些媒体及一些官方声音将此次黑客事件指向俄罗斯，但据以上种种信息看来，中共在此次的事件中一定扮演了极其重要的角色，这又是一个中共及其勾兑的黑暗势力埋藏在美国的深度沼泽，而这一次事件的定性及影响，在超限战的范畴来看，更接近一次军事行动。
 
-[【香港专题】香港 Deep State「紫荆党」（二）李山「治港」构想：将「政协」搬到香港](https://gnews.org/zh-hans/639414/)
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-[【香港专题】香港 Deep State「紫荆党」（三）「紫荆党」出现意味香港下一届特首可能是「名正言顺」共产党治港](https://gnews.org/zh-hans/641130/)
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-[【香港专题】香港 Deep State「紫荆党」（四）「紫荆党」强调给港府「输送人才 」关键时刻发挥作用](https://gnews.org/zh-hans/647056/)
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-以上观点仅代表笔者本人
-
-资料来源：[立场新闻](https://www.thestandnews.com/politics/%E7%B4%AB%E8%8D%8A%E9%BB%A8-%E5%BB%BA%E5%88%B6%E6%B4%BE%E7%9A%84%E7%94%9F%E5%AD%98%E5%8D%B1%E6%A9%9F/)、[看中国](https://m.secretchina.com/news/gb/2020/12/13/955640.html)、[大纪元香港](https://www.epochtimes.com/gb/20/12/10/n12611539.htm)、[自媒体徐时论（Tsuis Talk)](https://youtu.be/gy36c4owT1Q)
-
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/QpAUgJzNBR1Fb/)
+[!\[\]()!\[\](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

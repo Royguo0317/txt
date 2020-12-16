@@ -1,49 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄罗斯只是个问题,中共国才是危机
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/656148/)
+## 帮中共盗取美国医院商业秘密的华人学者认罪
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/656301/)
 
-*新闻来源：newsmax｜作者：Eric Mack 发布时间：2020年12月12日*
+*文章来源：国家脉动（the national pulse）｜作者：娜塔莉·温特斯（NATALIE WINTERS）｜发表日期：2020年12月14日*
 
-*翻译、简评：Victory｜校对：Beicy-数学老师｜审核：万人往｜PAGE：玄天生*
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16092601/wolves-2969361_960_720.png)
+*翻译、简评：随波逐流｜校对：Beicy-数学老师｜审核：万人往｜PAGE：玄天生*
 
 **简评：**
 
-报道是来自美国前国家情报代理总监格雷内尔的信息，其中指名道姓地说出了一些与中共勾兑的民主党议员，还包括佩洛西在内的重要人物。这是严重指控，而且一定有切实证据。
+日前，俄亥俄州的一名华人研究员周宇承认犯有偷窃罪，他与他人共谋窃取美国儿童医院“有关一系列儿科病症的研究、鉴定和治疗的商业秘密”。该名男子也承认与人串谋犯有电信欺诈罪，他与妻子陈莉都曾在美国全国儿童医院研究所工作。据美国司法部透露，目前两人已和法院达成认罪协议，根据认罪书，陈莉同意缴交大约140万美元罚金，包括500000股Avalon GloboCare Corp.公司的普通股和400股GenExosome Technologies Inc公司的普通股 ，周宇方面的细节将通过量刑程序最终确定。
 
-中共的威胁早就超过俄罗斯。一大批和中共勾兑的美国人（包含民主党人和共和党人）都是中共入侵美国的特洛伊木马。这些被操控的政客帮助中共向美国人释放各种虚假消息，制造混乱，甚至操控大选。中共已经在入侵美国战争中占得先机。决战一触即发，现在是美国正义力量反击的时候。
+这起案例只是众多中共国涉及窃取美国商业机密案件之一。多年来中共设立了多项人才计划，通过发放科学基金以及分配公司股份等手段吸引在国外有一定资历及技术底蕴的行业尖端专家或学者，由他们将在国外学习掌握到的研究和技术转移到国内。他们抢夺、复制和替换自己没有能力发展的产品，疯狂盗窃美国的创造力和辛勤研究成果，这种违背传统价值观和规范的做法将遭到美国的严厉打击。
 
-**原文翻译**:
+*原文翻译*
 
-# **Ric Grenell对Newsmax电视台说：“俄罗斯是问题，中共国是危机”**
+# **帮助中共国窃取儿童医院商业秘密的学者认罪**
 
-里克·格雷内尔周六在出席Newsmax电视节目时说。根据已证实的民主党人与中共国间谍活动相关的证据，他们急不可耐地推动川普竞选活动通俄门事件被证明是“虚假的”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16094129/bd9a5aa4-1c83-4ff4-9b87-da120d2fc571.jpg)
 
-“我们知道的是，俄罗斯是一个问题，但中共国是一个危机，”格雷内尔告诉周六的 “美国当下（节目名America Right Now.）”。“埃里克·斯沃尔韦尔（Eric Swalwell）多年来一直在淡化中共国问题，我认为这就是现在所发生事情的核心问题。”
+## ***俄亥俄州的一名研究员承认犯有偷窃罪，他与他人共谋窃取“有关一系列儿科病症的研究，鉴定和治疗的商业秘密”。***
 
-“当然，华盛顿的虚伪不是什么新鲜事，我们都只是对华盛顿的虚伪有点司空见惯，他是个伪君子。这是毫无疑问的。”
+该男子姓名为周宇，还承认与人密谋犯有电信欺诈罪。
 
-加利福尼亚州众议员斯沃尔韦尔被曝出有一名中共国间谍与他的竞选和筹款密切相关，而他一直在致力于抹黑和弹劾总统唐纳德·川普。
+周某窃取的研究集中于美国全国儿童医院研究所的“与外泌体和外泌体分离有关的科学商业秘密”。 周宇与妻子陈莉都曾在这所医院工作过。
 
-“他和民主党一起，多年来传递的信息正是中共希望他传递的，那就是他们不是威胁，‘看看那边，看看俄罗斯’，假装不关心发生了什么。”格雷内尔告诉主持人汤姆·巴西尔（Tom Basile）。“我还想说，作为一个加州人，我非常关注旧金山发生的事情。”
+[![](https://spark.adobe.com/page/VXVSQcwLwhdXB/images/8faee0cd-235d-4809-bae0-c24f8983bfee?asset_id=a43e57c6-3c48-4b43-acaa-14d98e0ce3db&amp;img_etag=%22ea0fe944ab418c9e314c44223c3e5b7b%22&amp;size=2560)](https://spark.adobe.com/page/VXVSQcwLwhdXB/images/8faee0cd-235d-4809-bae0-c24f8983bfee?asset_id=a43e57c6-3c48-4b43-acaa-14d98e0ce3db&amp;img_etag=%22ea0fe944ab418c9e314c44223c3e5b7b%22&amp;size=1024)
 
-“我们有太多的人被中共国间谍攻陷，在加州周围。例如[参议员]戴安·范斯坦（Dianne Feinstein），埃里克·斯沃尔韦尔（Eric Swalwell），还有[众议院议长]南希·佩洛西（Nancy Pelosi）。她的信息正是中共在冠状病毒上想要的。她在一开始就告诉人们出门，‘到唐人街去，没什么大不了的’”。
+根据司法部的说法：
 
-格雷内尔还说：“需要对旧金山发生的事情进行调查。”
+**作为他们认罪协议的一部分，这对夫妇同意没收与犯罪有关的财产或收益。 陈莉被没收的资产包括约140万美元、Avalon GloboCare Corp公司的500000股普通股和GenExosome Technologies，Inc公司的400股普通股。周宇被没收资产的细节将通过量刑程序最终确定。**
 
-[原文链接](https://www.newsmax.com/politics/ric-grenell-espionage-chinese-eric-swalwell/2020/12/12/id/1001209/)
+[原文链接](https://thenationalpulse.com/breaking/chinese-researchers-guilty/)
 
 [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
 
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
 
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/WRBNXYklVYKFy)
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/VXVSQcwLwhdXB/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16092005/%E6%88%98%E9%B9%B0%E5%9B%A2%E5%B0%BE%E6%A0%87%E6%96%B0.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/VXVSQcwLwhdXB/images/1859f5f2-ad4d-4686-817f-aa3b2e21d625.jpg?asset_id=4165158c-a080-4292-b5c5-3fdc25df4310&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/VXVSQcwLwhdXB/images/1859f5f2-ad4d-4686-817f-aa3b2e21d625.jpg?asset_id=4165158c-a080-4292-b5c5-3fdc25df4310&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

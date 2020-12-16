@@ -1,47 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 帮中共盗取美国医院商业秘密的华人学者认罪
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/656301/)
+## 【世事解评】墙内众多地区限电：经济下滑严重的直接体现
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/656383/)
 
-*文章来源：国家脉动（the national pulse）｜作者：娜塔莉·温特斯（NATALIE WINTERS）｜发表日期：2020年12月14日*
+作者：香草山写作组 程万里
 
-*翻译、简评：随波逐流｜校对：Beicy-数学老师｜审核：万人往｜PAGE：玄天生*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
 
-**简评：**
 
-日前，俄亥俄州的一名华人研究员周宇承认犯有偷窃罪，他与他人共谋窃取美国儿童医院“有关一系列儿科病症的研究、鉴定和治疗的商业秘密”。该名男子也承认与人串谋犯有电信欺诈罪，他与妻子陈莉都曾在美国全国儿童医院研究所工作。据美国司法部透露，目前两人已和法院达成认罪协议，根据认罪书，陈莉同意缴交大约140万美元罚金，包括500000股Avalon GloboCare Corp.公司的普通股和400股GenExosome Technologies Inc公司的普通股 ，周宇方面的细节将通过量刑程序最终确定。
 
-这起案例只是众多中共国涉及窃取美国商业机密案件之一。多年来中共设立了多项人才计划，通过发放科学基金以及分配公司股份等手段吸引在国外有一定资历及技术底蕴的行业尖端专家或学者，由他们将在国外学习掌握到的研究和技术转移到国内。他们抢夺、复制和替换自己没有能力发展的产品，疯狂盗窃美国的创造力和辛勤研究成果，这种违背传统价值观和规范的做法将遭到美国的严厉打击。
+近日，浙江地区众多任务厂反应，收到了紧急通知，要求即日起至12月31日，所有加工厂全部停止生产，政府机关也收到通知，要求气温在3度以上不得开空调。当然不只是浙江，还有湖南、内蒙、江西、福建等地也拉闸限电。有新闻分析是因为俄罗斯突然宣布停止对中国30亿度电的供应。也有说是中共国对澳洲进口煤炭采取抵制措施所致。其实真正的原因是经济的下滑导致发电厂无电可发而已。
 
-*原文翻译*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16095845/MOS0749-%E3%80%90%E4%B8%96%E4%BA%8B%E8%A7%A3%E8%AF%84%E3%80%91%E5%A2%99%E5%86%85%E4%BC%97%E5%A4%9A%E5%9C%B0%E5%8C%BA%E9%99%90%E7%94%B5%EF%BC%9A%E7%BB%8F%E6%B5%8E%E4%B8%8B%E6%BB%91%E4%B8%A5%E9%87%8D%E7%9A%84%E7%9B%B4%E6%8E%A5%E4%BD%93%E7%8E%B0-2.png)
 
-# **帮助中共国窃取儿童医院商业秘密的学者认罪**
+中共国经济几十年的高速增长，不管质量好不好都会导致的大量的投资。所有企业在经济增长时考虑的是投入更多的资金，希望短时间内赚取更多的利润，其结果是无续的投资和扩张，这种投资和扩张不会在原材料和科技上（大多数人的想法都在快钱上），而都在了大量的基建上和房地产上（尤其是所谓的国有企业），因此不会有闲钱用在基本的原材料上，公司的收入只要增长，就可以借助这些红利去购买原材料，最终的结果是所有的公司都有大量的应收款和应付款，只有企业增长才可以继续维持这种三角债状态，这也就是为什么我们看到上市公司收入很高，但基本没有资金流的原因。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16094129/bd9a5aa4-1c83-4ff4-9b87-da120d2fc571.jpg)
+因为CCP 病毒，企业不但没有增长，而且下滑严重，三角债一下就暴露出来。企业没有了现金却有很多债务被催还，导致企业都在要求现付交易，可业务的下滑无现金流无法支撑企业运营，那还有资金支付原材料呢？用电量是最重要的经济晴雨表，最能表现经济的寒冬。据报道，2019年第二产业用电量占全社会用电量的比重为68.3%。经济的严重下滑，直接导致第二产业用电量的断崖式下滑，导致电力系统现金流（经济好时电力系统是最不缺钱的）直线下滑。而之前的大基建大投资导致的应付款出现问题，到2020年末基本就无钱再购买基本的原材料了，只能拉闸限电，等待上峰的救援。试想下那么多的共和国长子到底先救哪一个呢？他自身都难保了。最后的结果显而易见，大家一起玩完，看谁先死，而电力公司极有可能成为成为多米诺骨牌的第一张。
 
-## ***俄亥俄州的一名研究员承认犯有偷窃罪，他与他人共谋窃取“有关一系列儿科病症的研究，鉴定和治疗的商业秘密”。***
+（本文仅代表个人观点。）
 
-该男子姓名为周宇，还承认与人密谋犯有电信欺诈罪。
 
-周某窃取的研究集中于美国全国儿童医院研究所的“与外泌体和外泌体分离有关的科学商业秘密”。 周宇与妻子陈莉都曾在这所医院工作过。
 
-[![](https://spark.adobe.com/page/VXVSQcwLwhdXB/images/8faee0cd-235d-4809-bae0-c24f8983bfee?asset_id=a43e57c6-3c48-4b43-acaa-14d98e0ce3db&amp;img_etag=%22ea0fe944ab418c9e314c44223c3e5b7b%22&amp;size=2560)](https://spark.adobe.com/page/VXVSQcwLwhdXB/images/8faee0cd-235d-4809-bae0-c24f8983bfee?asset_id=a43e57c6-3c48-4b43-acaa-14d98e0ce3db&amp;img_etag=%22ea0fe944ab418c9e314c44223c3e5b7b%22&amp;size=1024)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-根据司法部的说法：
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-**作为他们认罪协议的一部分，这对夫妇同意没收与犯罪有关的财产或收益。 陈莉被没收的资产包括约140万美元、Avalon GloboCare Corp公司的500000股普通股和GenExosome Technologies，Inc公司的400股普通股。周宇被没收资产的细节将通过量刑程序最终确定。**
-
-[原文链接](https://thenationalpulse.com/breaking/chinese-researchers-guilty/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/VXVSQcwLwhdXB/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/VXVSQcwLwhdXB/images/1859f5f2-ad4d-4686-817f-aa3b2e21d625.jpg?asset_id=4165158c-a080-4292-b5c5-3fdc25df4310&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/VXVSQcwLwhdXB/images/1859f5f2-ad4d-4686-817f-aa3b2e21d625.jpg?asset_id=4165158c-a080-4292-b5c5-3fdc25df4310&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
