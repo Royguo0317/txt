@@ -1,21 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 麦康奈尔因挺拜登言论遭保守派炮轰
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/656022/)
+## 【战友寄语】港版国安恶法的刀刃已架在每个香港人的脖子上
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/656181/)
 
-- 编辑：Victor Torres
+编撰：恩典
 
+审核：MY
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16091307/%E6%B8%AF%E7%89%88%E5%9C%8B%E5%AE%89%E6%83%A1%E6%B3%95%E7%9A%84%E5%88%80%E5%88%83-%E9%85%8D%E5%9C%96.jpg)
+《Hong Kong Free Press》报导，美国作家Kent Ewing所出版的新书《前线香港1997 – 2020》原定今年9月面世，却被香港连锁书店Bookazine禁卖，更向作者表示在中共对港实施《国安恶法》后，书店希望保持低调，故不会将该书寄放到店中售卖。
 
-**西班牙2020年12月16日电/西喜社/——**
+一个违反了国际法律依据的港版国安恶法7月1日开始强行实施以来，港共魔警得到中共犯罪集团的颁令授权，大肆滥捕、滥告、滥权抓香港人，魔警如此嚣张如同黑社会，当然少不了中共早就未雨绸缪，操控傀儡政府律政司长及安插埋没良知的审判官掌控法律界，可大派用场了，所有中共精心布局，令魔警更加肆无忌惮地疯狂作恶
 
-参议院多数党领袖米奇·麦康奈尔（Mitch McConnell）周二祝贺乔·拜登（Joe Biden）胜选美国总统的决定，立即引发了保守派在社交媒体上的强烈反对。
-唐纳德·川普总统的一名支持者在推特上写道：“你让所有MSM（主流媒体），尤其是CNN都对你的声明感到非常满意。共和党选民和被欺负的投票监测人员可并不那么满意。”
-还有人写道：“叛国者。麦康奈尔一直是川普的仇敌。他是深层政府。”
-还有一个人，在Twitter上自称“理性之声”，指出：“你刚刚承认叛国者拜登和哈里斯为候任总统/副总统。你也是个叛国者么?我是这样认为的。”
+中国人在大陆内对这些面目狰狞警匪司空见惯，香港人就不一定，以为理想当然有的50年不变＂舞照跳、马照跑＂这句中共诈骗集团的承诺，善良的香港人曾经信以为真，曾经皇家香港警察良好自律名誉国际，但今天由中共控制的香港警察得以恶名昭彰鸣震天下。
 
-新闻来源：[https://www.newsmax.com/t/newsmax/article/1001633?section=politics&keywords=mcconnell-twitter-electoral-college&year=2020&month=12&date=15&id=1001633&oref=t.co](https://www.newsmax.com/t/newsmax/article/1001633?section=politics&amp;keywords=mcconnell-twitter-electoral-college&amp;year=2020&amp;month=12&amp;date=15&amp;id=1001633&amp;oref=t.co)
+相信在中国生活过的都知道，中共硬实力最出名的是枪杆子出政权，中共最崇拜的商鞅变法之中就是弃道而用权，废德而任力。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+只一味追求极权集团富强，罔顾伦理道德，只会尔虞我诈邪门歪道的技俩，这必定走向地狱之门，今天的香港人也自我审查了，因为很多香港人领教过港共魔警的滥用职权，杀一儆百的案例骇人听闻。
 
-1+
+现在国安恶法的刀刃都架在每个香港人的脖子上，人人自危，当香港人连呼吸都是罪的时候，难道我们就安全吗？中共恶势力已经席卷全球了，但我们爆料革命新中国联邦与正义力量也团结起来了人类正处以生死存亡的时候，灭邪共是我们的责任。
+
+以上观点仅代表笔者本人
+
+0

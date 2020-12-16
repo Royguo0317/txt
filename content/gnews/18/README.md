@@ -1,24 +1,91 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/16/2020 财经快讯: 俄罗斯削减电力供应, 浙江加工厂全部停产, 菲律宾与中国圣诺华生物技术有限公司洽谈采购COVID-19疫苗
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/655968/)
+## 风暴在路上&#8212;&#8211;记在德州被否决后
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/656063/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16082013/Picture10-1.png)图片来源: http://innoplex-agri.org
-1.12月14日，因俄罗斯突然宣布停止对中国30亿度电的供应，浙江当地政府要求许多工厂从即日起至12月31日实施限电，所有加工厂全部停产， 省级有关单位办公区域在气温达到3度及以下时方可开启取暖设备，且最高温度不得超过16℃。
-[https://www.soundofhope.org/post/453556](https://www.soundofhope.org/post/453556)
+作者：xiaopan；校对：宁缺；审核：海阔天空；Page：拱卒
 
-2.12月14日，一名菲律宾冠状病毒特别工作组官员宣布，菲律宾计划在本周与中共国Sinovac生物技术公司完成谈判，以期获得2500万剂的COVID-19疫苗，并于明年3月获得交付。 菲律宾正在评估Sinovac在该国进行第三阶段临床试验的计划。[https://www.reuters.com/article/health-coronavirus-philippines/philippines-targets-deal-for-25-million-doses-of-sinovac-covid-19-vaccine-idUSKBN28O10G](https://www.reuters.com/article/health-coronavirus-philippines/philippines-targets-deal-for-25-million-doses-of-sinovac-covid-19-vaccine-idUSKBN28O10G)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16085048/115180621_day_2_graphics_promo_976-nc_3.jpg)
 
-3.中共国债务市场是世界第二大债务市场，最近几周遭受了一系列国有企业违约的打击。 证券监督管理委员会12月15日表示，由于东方金诚国际信用评估有限公司不足以支撑开展评级业务的内控及合规管理要求，暂停了该机构的牌照，三个月内禁止开展新业务。 该机构被责令“加强内部控制和合规管理，严格规范业务并提高评级质量”。 该机构管理层声称暂停牌照是出于“政治考量”，迫使其他机构遵守规定。
-[https://www.usa-vision.com/china-suspends-top-credit-rating-agency-as-defaults-hit-market/](https://www.usa-vision.com/china-suspends-top-credit-rating-agency-as-defaults-hit-market/)
+所有静悄悄的期盼
 
-4.澳大利亚总理斯科特·莫里森周二表示，中共国对澳大利亚煤炭进口的禁令违反世界贸易组织规定，澳洲贸易部长西蒙·伯明翰 (Simon Birmingham) 还表示，中国煤炭禁令是一种“歧视性贸易做法”。 自从十月份中共国要求港口不得卸载澳大利亚煤炭以来，已有超过50艘船只被困。 在被问及该禁令时，外交部发言人王文彬声称中国政府并不知此事，并坚持认为中国一直在依法和国际惯例行事。
-[https://www.bloomberg.com/news/articles/2020-12-14/australia-deeply-troubled-by-reports-of-china-coal-import-ban](https://www.bloomberg.com/news/articles/2020-12-14/australia-deeply-troubled-by-reports-of-china-coal-import-ban)
+看似又像一场空谈
 
-5.中共党媒《环球时报》周二承认，在中共国开展业务的外国公司很可能会有许多有中共党员背景的员工，但该报坚称外国公司应该为其有这些雇员而高兴，因为这些党员在能力和道德上都很优秀。
-[https://www.breitbart.com/national-security/2020/12/15/chinese-state-media-foreign-companies-bound-to-have-communist-party-members-on-staff/](https://www.breitbart.com/national-security/2020/12/15/chinese-state-media-foreign-companies-bound-to-have-communist-party-members-on-staff/)
+北半球的寒冬里
 
-By 【Financial Team – Kate】
+枯叶飘落得凄凄惨惨
 
-5+
+当现实在浓雾中显露狰狞
+
+恶魔的身躯遮天蔽日
+
+理想啊
+
+就如同暴风雪中的小枝丫
+
+摇摇欲断
+
+却又似乎宁折不弯
+
+你可看到人民在聚集
+
+正义在呼喊
+
+如果大地在黑暗里长眠
+
+请相信
+
+有彗星来燃亮天空
+
+阴暗的乌云延续到天际
+
+有煞白的雪花飘下
+
+层层叠叠 漫天起舞
+
+头顶的天幕总会砸下来
+
+覆盖住所有的不堪
+
+或美好
+
+剩下的就是等待
+
+等待阳光侵蚀
+
+溶解
+
+清洗
+
+让整个沼泽开始翻滚
+
+沸腾
+
+会有雷声在冬日想起
+
+会有弹夹被压满
+
+会有枪栓跳动
+
+车辆在大路上长鸣
+
+脚步在小路上奔跑
+
+你可听到人民在怒吼
+
+正义在咆哮
+
+如果黑暗不退
+
+整个天地将颤抖
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/8Chy9GiLIGItP/)
+[!\[\]()!\[\](https://spark.adobe.com/page/8Chy9GiLIGItP/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/8Chy9GiLIGItP/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+0
