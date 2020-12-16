@@ -1,49 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵说｜系列图片连载（七十七）
-` GM98` [轉載自GNews](https://gnews.org/zh-hans/656014/)
+## 【香草诗词汇】开始
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/656553/)
 
-## 533.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16083906/2025-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16084138/4003.png)
-你在美国享受这蓝天白云。你必须尊重这个法律系统，不要有任何侥幸心理。
+作者：香草山写作组 木白
 
-——郭文贵先生 2020年8月21日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
 
-## 534.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16083941/2027.png)
-一个人没看透生死，看透荣华富贵，解决不了性的需要和金钱的需要，你干不了大事。
 
-——郭文贵先生 2020年8月21日
 
-## 535.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16083956/4001.png)
-永远赢的一定不是战争，永远赢的一定是骗局。哪有你永远赢的时候？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16105616/MOS0751-%E3%80%90%E9%A6%99%E8%8D%89%E8%AF%97%E8%AF%8D%E6%B1%87%E3%80%91%E5%BC%80%E5%A7%8B.png)
 
-——郭文贵先生 2020年8月21日
+万物都有它的歌谣
 
-## 536.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16084030/4002.png)
-你必须要接受人生是无常的这个事实，你才能说追求信仰，过着与常人不一样的生活。
+醒来的夜市摊在恐龙的眼睛里闭眼——
 
-——郭文贵先生 2020年8月21日
+没有被驯服的，还有休止符
 
-## 537.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16084154/4004-scaled.jpg)
-共产党露出自己的凶器，你就会让世界感觉到恐惧。我相信西方人对付恐惧的办法绝对不是躲起来，他一定是迎头而战，将你这个恐惧的根源消灭！
+霓虹灯穿过路人的心脏
 
-——郭文贵先生 2020年8月21日
+鲜红的血管，黑暗的屋顶
 
-## 538.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16084238/4005-scaled.jpg)
-这个世界上，正在威胁这人类的共产党和共产主义。对正义、对善良、所带来的威胁。我们更加的要坚定灭共，更加要同时看到建造独立的法治系统。多重要！还有我们必须要守法，唯真不破。
+夜色像一口痰
 
-——郭文贵先生 2020年8月21日
+咽在口中
 
-## 539.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16084250/4006.jpg)
-班农事件更加坚定了我们新中国联邦要的法治、民主、信仰独立的社会。
+此刻
 
-——郭文贵先生 2020年8月22日
+鬼影拖住鳄鱼的脚步
+
+正毁灭于更深的沼泽
+
+屏住呼吸，休止符
+
+他们按下了加速键:
+
+在红绿灯解放的大街上
+
+那一刻
+
+黎明会把黑夜唱得更响
+
+而就在此刻
+
+你打开了时间的秘密:
+
+这不断循环的歌谣——
+
+万物如迷
+
+2020年12月16日
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
