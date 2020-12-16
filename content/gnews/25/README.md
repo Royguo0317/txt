@@ -1,41 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 一带一路给澳大利亚维多利亚州带来的将是灾难
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/656891/)
+## 班农作战室WARROOM精选582 期
+` XMLYG777` [轉載自GNews](https://gnews.org/zh-hans/657000/)
 
-撰稿：澳喜战友
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16130537/IMG_5198.jpg)网络截图
-据《澳大利亚人报》12月12日报道，维多利亚州州长丹-安德鲁斯（Dan Andrews）为与中国签署 的一带一路进行辩护，称该协议是为了给他所在的州创造就业机会。澳大利亚联邦议会已经通过了政府的对外关系立法，赋予外交部长玛丽斯-佩恩（Marise Payne）终止大学、州和地方政府或议会与外国签署协议的权力。
+供稿：VOG班农译制组
 
-一带一路为参与国带来了负面的经济影响。从2013年启动一带一路以来，在亚洲，巴基斯坦因债务问题日益严重而缩减中巴经济走廊；缅甸的大型港口交易也遭缩减；斯里兰卡的一个港口在政府无法偿还贷款后，不得不租给中共国99年。在欧洲，希腊举步维艰的比雷埃夫斯港由于一带一路的债务，被迫由中国远洋运输公司接管。
+欢迎回到作战室大流行，即将由拉希姆和引擎室的团队带来最新新闻
+你能帮我吗？我想我们还没有做好準备，那我开门见山了。
+我们以前有这么直接吗？我就开始了，Dominion投票系统报告我猜已经发布了。拉希姆 看来报告要出炉了，
+这是我引用大纪元时代的报道。他们看起来好像已经获取了报告。我并不是说法官同意这份报告。
+但是他们向法官提供的这份报告，得出结论认為Dominion投票系统，是有缺陷的故意设计有固有错误。
+从而造成系统性欺诈，并影响选举。
+我继续这是从报告中得出的，根据FEC(联邦选举委员会)的指导原则，容许选举错误率是25万张选票中的一张
+即0.0008％。我们观察到错误率是68.05％，这几乎是非同寻常的。这在选举安全完整性方面显示出严重的致命错误。
+我们只引用报告中的内容，这是从今天的“赛场”泄漏出来的事件。
+今天是“一场大赛”发生了三件重要的事。
+第一
+特朗普总统和斯蒂芬·米勒，今天早上在福克斯和朋友们上说，鲁迪刚刚也证实了这一点他们将把选举人
+送到州府首都。為什么呢？这是為一月份确定那些选举人的一种方式，此外这份报告。
+将由密歇根州的法官出具并将会有某种裁决。我相信可能是因為密歇根州国务卿正在试图关闭一切。
+但是这正试图提出可能的原因，以抢占所有机器，包括所有软件。
+请别胡说八道了，在机器被清理之前让我们先去看一下，乔治亚州那可笑的国务卿。
+竟宣称他们是為了1月5日的选举清理机器，这里有未完成的工作和未完成的重任。
+现在这是唯一重要的事情，1月5日自有办法。当然最后但并非最不重要的一点是拉希姆 ，因為主持节目时。
+我并不完全擅长同时关註Twitter。尽管如此我有比往常还优秀的。
+边锋 Maggie Vandenberg和Jack MaxieRaheem Kassam都不同，我还没有见到威斯康星州的消息。
+我会告诉你威斯康星州激进左翼本以為爱国者打算在周六举行的这一非同寻常的，最高法院听证会上争论一两个小时。
+然后他们要回去喝杯咖啡，然后就悲哀得抱怨起来。然而他们一直进行下去。
+拉希姆 ，我还没有看到威斯康星州的最高法院有任何回应。
+我知道事实是左媒现在都很紧张 ，原因是一个州跌倒，其他州都会随著跌倒。
+我们从一开始就说过威斯康星州这些伟大爱国者的权利被窃取和作弊所害。
+他们向您展示了共和党可以做什么。
 
-中共不遵守国际法则，信誉丧失殆尽。中共想通过一带一路来统治世界，并对其他国家实行独裁统治。为了控制香港，中共废除了《中英联合声明》，并通过了范围广泛的港版国安法。澳洲呼吁调查中共病毒来源后，中共撕毁与澳洲签署的自由贸易协定，对多项澳洲产品进行制裁。世界已经意识到过度依赖中共国的风险。
-
-维多利亚州因一带一路而已出现经济混乱的迹象。根据评级机构标普的数据，维州已失去AAA信用评级，其债务在2023年将达到营业收入的200%左右，远超2019年的70%。预计维州的债务水平将多年持高不下。
-
-在一带一路已给维州带来明显负面影响的情况下，丹-安德鲁斯却依然一意孤行。相信美国的国会议员被中共间谍诱骗进蜜糖陷阱，而出卖国家为中共效力绝不是个案。调查丹-安德鲁斯在这个协议中是否出卖维州利益以及得到多少个人利益势在必行。
-
-（本文纯属个人观点）
-
-审稿：Jenny
-
-[https://www.theaustralian.com.au/nation/politics/belt-and-road-still-a-good-fit-says-daniel-andrews/news-story/e40a929fe08823666ffd9045c4f804f2](https://www.theaustralian.com.au/nation/politics/belt-and-road-still-a-good-fit-says-daniel-andrews/news-story/e40a929fe08823666ffd9045c4f804f2)
-
-
-
-> [One Belt, One Road, One Big Mistake](https://foreignpolicy.com/2018/12/06/bri-china-belt-road-initiative-blunder/)
-
-
-
-[https://www.forbes.com/sites/wadeshepard/2020/01/30/is-chinas-belt-and-road-already-in-retreat/?sh=2c23696a5ebe](https://www.forbes.com/sites/wadeshepard/2020/01/30/is-chinas-belt-and-road-already-in-retreat/?sh=2c23696a5ebe)
-
-[https://www.heraldsun.com.au/business/victoria-loses-aaa-credit-rating-as-sp-downgrades-over-weaker-outlook/news-story/f8bed1f8272cd5ddfe5b781b7865dfee](https://www.heraldsun.com.au/business/victoria-loses-aaa-credit-rating-as-sp-downgrades-over-weaker-outlook/news-story/f8bed1f8272cd5ddfe5b781b7865dfee)
-
-[https://www.theaustralian.com.au/world/the-times/chinese-spy-christine-fang-lured-aspiring-politicians-into-honey-trap/news-story/87e0135c03bc138ec157ddf3c45587a5](https://www.theaustralian.com.au/world/the-times/chinese-spy-christine-fang-lured-aspiring-politicians-into-honey-trap/news-story/87e0135c03bc138ec157ddf3c45587a5)
-
-澳喜文章[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
-
-欢迎加入澳喜农场：[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16044753/%E6%BE%B3%E5%96%9C%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16044714/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%87.jpg)
 0

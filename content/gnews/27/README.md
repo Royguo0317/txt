@@ -1,15 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共灭亡前最后的疯狂，习总书记强拆北京香堂文化新村以保龙脉续命，近万人无家可归
-` GM101` [轉載自GNews](https://gnews.org/zh-hans/656879/)
+## 布莱克本推特配图“习维尼”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/656981/)
 
-北京时间12月16日晚，据大纪元透露，中共习近平总书记为保龙脉续命，指使中共当局强拆北京香堂文化新村。导致三千户人家、近万人在恶劣的气候下面临无家可归的危机。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16132806/2-38.jpg)
-中共当局从12月10日开始强拆[香堂文化新村](https://www.epochtimes.com/gb/tag/%E9%A6%99%E5%A0%82%E6%96%87%E5%8C%96%E6%96%B0%E6%9D%91.html)，12日当局以“聚众扰乱公共场所秩序”拘留了业主、著名诗人郭小川的女儿，七十多岁的郭岭梅，因为她带头维权。流亡美国的中共中央党校前教授蔡霞的透露在推文中表示有“高人”给习近平看风水做京城规划，认为香堂村房屋压了龙脉气口，于是习下令强拆。
+- 编辑：Victor Torres
 
-本次强拆的北京香堂文化新村涉及3800户住户，上万居民，市值逾200亿人民币。入住居民包含了不少中共[红色后代](https://www.epochtimes.com/gb/tag/%E7%BA%A2%E8%89%B2%E5%90%8E%E4%BB%A3.html)家属，除已故中共红色诗人郭小川的女儿，中央新影厂资深编导郭岭梅外。据悉还有中共前领导人陈铸之女，作家陶斯亮。中共大将粟裕的女儿粟惠宁以及李立三女儿等人，传言邓小平之女邓琳也曾在此买房。
 
-中共对中国人民进行无神论洗脑，而自身却非常迷信。中共盗国贼对美国及世界发动生物战争造成百万人死亡，难逃被清算的结局，习近平试图保龙脉续命的举动，证明其内心的恐惧。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+**西班牙2020年12月16日电/西喜社/**——玛莎•布莱克本参议员今天发布了一条有趣的推特，批评中共的言论审查。
+她说:“言论自由就是可以在推特上发这张习近平像维尼熊的照片。如果你在共产中国这样做，你会被逮捕。”
+小编觉得配图不错，您呢?
+
+
+
+> Freedom of speech is being able to tweet this photo of Xi Jinping looking like Winnie. If you did this in Communist China, you’d be arrested. [pic.twitter.com/0AnVtA3JYM](https://t.co/0AnVtA3JYM)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [December 16, 2020](https://twitter.com/MarshaBlackburn/status/1339270050168131597?ref_src=twsrc%5Etfw)
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0
