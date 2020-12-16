@@ -1,17 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德社】【精华版粤语快报】12.15：巴尔圣诞前离任给即将展开的一系列行动铺平道路
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/653876/)
+## 每日重要Twitter播报（中文）12/14期
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/653739/)
 
-制作单位：战友之家-粤语组
+撰稿记者:CYC文颖、本来、尘凡3、石頭
+校对：清咖
+播音:愛明州（文根根）
+剪辑：喜马拉雅2020
 
-制作团队：文东、哥阿、麻辣汤
+[每日重要推文12-14.PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15222155/12-14-converted.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15222155/12-14-converted.pdf)
 
 
-
-摘要:
-
-巴尔圣诞前离任给即将展开的一系列行动铺平道路；司法部给亨特发出24张刑事传票，此事尚有后招；北约正在调查美国遭受的网络攻击。
 
 0

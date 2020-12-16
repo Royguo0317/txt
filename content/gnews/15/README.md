@@ -1,23 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥: 我们不能允许中共颠覆学术自由
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/654070/)
+## 【林伍德律师推文1215】-尚未公开解决的案件
+` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/654237/)
 
-英听校：    康州盘古农场 – Mike Li
+12月15日，林伍德律师推文称蓬佩奥国务卿承认政府已经掌握了希拉里克林顿的邮件，网友就此发问，“蓬佩奥大选前就宣布了，为什么还不公布这些邮件？”
 
-翻译：       康州盘古农场 – Mike Li
+林伍德律师回复说，“我没有这件事情的一手资料，但是我知道司法部很多事情在大选前以非公开方式解决了。如果情况是这样的话，拜登、克林顿、奥巴马都会对干扰大选而尖叫。
 
-翻译终校：康州盘古农场 -DIDI
+”随后林伍德律师补充说，还有些没有公开解决的案件包括Jeffrey Epstein 虐童案，希拉里邮件犯罪，Durham调查案，Anthony Weiner 笔记本犯罪，亨特拜登笔记本犯罪。
 
-字幕+视频制作：康州盘古农场-喜马拉雅2020
+“在此基础上，再加上外国势力干预美国大选的犯罪。”
 
-审核：康州盘古农场-Truemanman
-
-蓬佩奥国务卿近日在乔治亚理工学院发表演讲，演讲强烈抨击了中共这个暴虐的政权来窃取美国的东西用来建立其军事力量和洗脑美国人民，并且收买美国的机构，帮助中共掩盖非法活动，美国不能再让中共压制学术自由。
+新闻素材和图片来自林伍德律师推特
 
 
 
-原视频链接: [https://twitter.com/StateDept/status/1338580627126448130?s=20](https://twitter.com/StateDept/status/1338580627126448130?s=20)
+> Some of matters not yet publicly resolved include Jeffrey Epstein buddies’ pedophilia crimes, Hillary Email crimes, Durham Investigation, Anthony Weiner laptop crimes & Hunter Biden laptop crimes.
+> 
+> Add to that list, crimes arising from foreign interference with U.S. Election. [https://t.co/ygnLaaQv3V](https://t.co/ygnLaaQv3V)
+> — Lin Wood (@LLinWood) [December 16, 2020](https://twitter.com/LLinWood/status/1339060809406693376?ref_src=twsrc%5Etfw)
+
+
+
+
 
 0

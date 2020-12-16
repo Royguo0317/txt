@@ -1,16 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日重要Twitter播报（中文）12/14期
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/653739/)
+## 普京贺拜登赢得大选？
+` XMLYG777` [轉載自GNews](https://gnews.org/zh-hans/654126/)
 
-撰稿记者:CYC文颖、本来、尘凡3、石頭
-校对：清咖
-播音:愛明州（文根根）
-剪辑：喜马拉雅2020
+内新闻：人民公敌 素材：文曲小妹 校对：老蚂蚁666
 
-[每日重要推文12-14.PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15222155/12-14-converted.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15222155/12-14-converted.pdf)
+正当2020年美国总统大选舞弊案处于司法诉讼阶段，还未水落石出之时，北京时间12月15日，各大媒体曝出俄国总统普京祝贺拜登赢得大选的消息。
+
+此消息一出，网络一片哗然。有网友联想到不久前，俄罗斯的“末日核战专机”于维护保养之时，该机上极为敏感的通迅设施被窃一事。感到普京祝贺拜登赢的大选极为蹊跷。
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15232517/unknown-12.png)
+另据中共媒体新浪网11月14日消息，俄罗斯领导人发言人德米特里•佩斯科夫曾对记者表示，今年的美国总统选举与往年不同，一些法律程序正在进行，而那些程序是由现任总统宣布的，因此，普京政府认为等待美国官方宣布结果才是正确的。
+
+然而，时隔一个月后，当美国大选司法程序仍在进行时，普京就“改口”不等美官宣结果了。这一个月里到底发生了什么事？
+
+此外，中共官媒环球网、人民网也迫不及待地宣称，普京祝贺拜登当选美国总统，而不是英语的winning u.s. election(赢得大选)｡
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15232620/unknown-1-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15232626/unknown-2-1.png)
+从字面意义看，对普京贺拜登赢选一事的报道，中共官方媒体报道口风比西方媒体似乎更偏向拜登胜选一些。
+
+普京祝贺拜登赢选，此事出有因极为蹊跷，是普京“失误”？对谁最有利？谁最喜闻乐见？为什么？
+
+本文章仅代表本人个人观点。
+
+参考链接：
+[https://k.sina.cn/article\_5527041414\_1496ff58602000or18.html?from=cul(已编辑)](https://k.sina.cn/article_5527041414_1496ff58602000or18.html?from=cul%28已编辑%29)
+[普京领导的俄罗斯是最后一个祝贺拜登获胜的主要国家](http://普京领导的俄罗斯是最后一个祝贺拜登获胜的主要国家)
 
 0

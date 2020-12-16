@@ -1,27 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1215】-尚未公开解决的案件
-` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/654237/)
+## 【林伍德律师推文1215】-上帝会击败邪魔
+` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/654391/)
 
-12月15日，林伍德律师推文称蓬佩奥国务卿承认政府已经掌握了希拉里克林顿的邮件，网友就此发问，“蓬佩奥大选前就宣布了，为什么还不公布这些邮件？”
+12月15日林伍德律师夜晚的声音：
 
-林伍德律师回复说，“我没有这件事情的一手资料，但是我知道司法部很多事情在大选前以非公开方式解决了。如果情况是这样的话，拜登、克林顿、奥巴马都会对干扰大选而尖叫。
+“你有没有看到邪恶和腐败在我们国家和全世界在我们有生以来达到了前所未有的水平？
 
-”随后林伍德律师补充说，还有些没有公开解决的案件包括Jeffrey Epstein 虐童案，希拉里邮件犯罪，Durham调查案，Anthony Weiner 笔记本犯罪，亨特拜登笔记本犯罪。
+“请记住：万能的上帝只创造美好和正义。他让恶魔存在，这样他在掌管的时间以自己的方式可以击败他们。当他这样做的时候，他的子民赞美和荣耀天父。”
 
-“在此基础上，再加上外国势力干预美国大选的犯罪。”
+这些内容何尝不是爆料革命战友感同身受的，邪恶的赤魔共匪奴役中国人71年，也该去见上帝了。
 
 新闻素材和图片来自林伍德律师推特
 
 
 
-> Some of matters not yet publicly resolved include Jeffrey Epstein buddies’ pedophilia crimes, Hillary Email crimes, Durham Investigation, Anthony Weiner laptop crimes & Hunter Biden laptop crimes.
+> Have you noticed evil & corruptness in our country & world is at level never seem in our lifetimes?
 > 
-> Add to that list, crimes arising from foreign interference with U.S. Election. [https://t.co/ygnLaaQv3V](https://t.co/ygnLaaQv3V)
-> — Lin Wood (@LLinWood) [December 16, 2020](https://twitter.com/LLinWood/status/1339060809406693376?ref_src=twsrc%5Etfw)
-
-
+> Remember: Almighty God creates only good. He wills evil to exist so that on his time & in his manner, He will defeat it. When He does, His children praise & glorify Him.
+> 
+> Amen. 🙏
+> — Lin Wood (@LLinWood) [December 16, 2020](https://twitter.com/LLinWood/status/1339070500312469506?ref_src=twsrc%5Etfw)
 
 
 
