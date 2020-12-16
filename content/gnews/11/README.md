@@ -1,35 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 只有57% 的意大利人愿意接种新冠疫苗， 许多人持怀疑态度
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/656209/)
+## 良人尸骨未寒 奴才丰碑已矗
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/656422/)
 
-```
-编译: 小白鸽
-发稿人: Ting Guo
-```
+作者：宁缺；校对/审核：海阔天空；Page：拱卒
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16093613/Screenshot_20201216_153500_com.android.chrome-e1608129460197.jpg)图片来源: LASTAMPA
-据意大利《新闻报》记者 Di Tina Simoniello 12月10日报道，只有57%的意大利人愿意接种新冠疫苗。
+## **评钟南山为其塑像揭幕**
 
-自从中共病毒爆发以来全世界一直在等待疫苗的出现， 英国和俄国已率先开始了疫苗接种活动。很多人认为，大多数意大利人已经在焦急地等待接种新冠疫苗， 但是实际情况并非如此， 只有57%的意大利人愿意接种疫苗， 许多人持怀疑态度。
+[!\[\]()!\[\](https://spark.adobe.com/page/bYI3wWeygK7XN/images/9b45c792-f0f9-4357-9be1-7d9f90580986.jpg?asset_id=2bb8b06f-c2d2-406d-8934-10ac3d3846c1&amp;img_etag=%22d7631344a3ae9b41ae92b56c6cfb77c7%22&amp;size=1024)](https://spark.adobe.com/page/bYI3wWeygK7XN/images/9b45c792-f0f9-4357-9be1-7d9f90580986.jpg?asset_id=2bb8b06f-c2d2-406d-8934-10ac3d3846c1&amp;img_etag=%22d7631344a3ae9b41ae92b56c6cfb77c7%22&amp;size=1024)
 
-据EngageMinds HUB 11月27日至12月3日的最新调查（这是Cremona天主教大学研究中心定期对全国的抽样调查，他们发现：43%的意大利人对接种新冠疫苗表现出拒绝、迟疑和怀疑的态度。这一人数比5月的调查数据有所增加。相反自九月底以来， 肯定不愿接种疫苗的人数有所减少。( 现在是16%,前一期调查结果是20%)， 持不确定态度的人数不变占27%。妇女和年轻人对疫苗最持怀疑态度。最愿意接种疫苗的是60岁以上人群（ 75% 的这一类人群愿意接种）。 这一数据让专家感到以外，因为一般来说，妇女在健康、饮食和预防疫病方面在家庭中起着表率作用， 而对接种新冠疫苗的态度却是个例外。
+12月12日，广州市华南师范大学附属中学举行132周年校庆。该校1955届校友、中国工程院院士钟南山到场为“钟南山雕像”揭幕。
 
-在抽样调查中，有33%的人认为通常疫苗是制药公司为了发财而进行的操作， 28%的人认为疫苗的数据很容易造假，23%的人认为预防新冠疫苗是政府的一个政治操作……
+[!\[\]()!\[\](https://spark.adobe.com/page/bYI3wWeygK7XN/images/a550de5f-466a-4e06-804c-434c0b4dc256.jpg?asset_id=cf1305b2-9820-4ce5-a483-78bf2217d3e8&amp;img_etag=%2273e5cc42c73e5c484b01eef27c01ea0a%22&amp;size=1024)](https://spark.adobe.com/page/bYI3wWeygK7XN/images/a550de5f-466a-4e06-804c-434c0b4dc256.jpg?asset_id=cf1305b2-9820-4ce5-a483-78bf2217d3e8&amp;img_etag=%2273e5cc42c73e5c484b01eef27c01ea0a%22&amp;size=1024)
 
-Guendalina Graffigna是一位心理学家， 也是意大利Piacenza天主教大学健康和消费心理专业教授，他是EngageMinds HUB研究团队负责人。他指出任何怀疑疫苗的人不应被污名化或受到指责，而应得到足够的信息以促使他们接种疫苗。他认为从科学和心理价度来看， 如果强迫接种会引发心理反应， 会由此产生“拒绝”反应， 这不是我们需要的。
+在中共病毒依然疯狂肆虐的当下，中共又一次在所有人面前把全世界的丧事办成了自己家的大喜事。自此，中共国多了一位优秀党员、好干部、大救星，而人间被中共迫害致死的累累白骨又再次在喜大普奔的场面里销声匿迹了。
 
-笔者还注意到一位名叫Andrea Crisanti 的意大利微生物教授在12月10日的一次电视访谈节目中谈到是否会强制推行新冠疫苗时说：“疫苗刚接种阶段， 不能强制打疫苗，因为存在着道德问题， 现在还处在授权阶段而不是批准阶段， 强制注射疫苗还需要等待一段时间， 再过5、6个月， 也许值得强制推行。”
+党的好奴才是需要被祭祀、需要进神社、需要放上圣坛的。奴才的名字和捏造的事迹也会被写在光伟正的党刊上，走进洗脑的教材里。只有这样才会涌现出更多的犬奴蛆虫，争抢主子的残羹冷炙，狗粮恩宠。
 
-***评*：** 郭先生在12月10号的直播中说到“将来你会看到，为什么美国推出的辉瑞制药的疫苗，绝对是共产党病毒的再次的次生灾难。 这是共产党的势力与黑暗势力勾结的结果， 大家到时候看着就明白了。”闫博士也早就说过如果不找到所有的原始毒株，是开发不出有效的疫苗。那么今天当我们看到那些白发苍苍的老者和奋战在医疗第一线的医护人员， 他们首当其冲的作为第一批实验的小老鼠时， 不禁黯然神伤。这场人类大劫难，会带走多少无辜的百姓，会引发多少次生灾难……真是一切都已经开始了。
+[!\[\]()!\[\](https://spark.adobe.com/page/bYI3wWeygK7XN/images/91f39c6c-c709-40c9-a150-d4524422b0aa.jpg?asset_id=82269e0b-38fd-48af-98d9-4fae88df502c&amp;img_etag=%2290df5f5b675cd2ef53a5d6dc3da9ecb2%22&amp;size=4549)](https://spark.adobe.com/page/bYI3wWeygK7XN/images/91f39c6c-c709-40c9-a150-d4524422b0aa.jpg?asset_id=82269e0b-38fd-48af-98d9-4fae88df502c&amp;img_etag=%2290df5f5b675cd2ef53a5d6dc3da9ecb2%22&amp;size=1024)
 
-***原文链接:
-[https://www.lastampa.it/salute/2020/12/10/news/covid\_solo\_il\_57\_degli\_italiani\_vuole\_vaccinarsi-277739608/](https://www.lastampa.it/salute/2020/12/10/news/covid_solo_il_57_degli_italiani_vuole_vaccinarsi-277739608/)***
+眼前一次次热闹狂欢的表功会却让我更加怀念那位圣洁不屈的灵魂，真正的英雄从来都深藏在人民的心中。李文亮医生不畏强权，勇敢揭露中共掩盖疫情真相，为百姓争取应对时间的英雄壮举，怎么会需要党媒的涂脂抹粉，又怎么会被遗忘在专制王权的嚣张跋扈之下？
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09040658/image0.png-13.jpeg)***[https://discord.gg/77fCxw5mFv](https://discord.gg/77fCxw5mFv)**
-[**https://**](https://https://discord.gg/77fCxw5mFv)[**gab.com/himalaya\_italy**](https://gab.com/himalaya_italy)*
+斯大林在苏联的地界上竖起过一座座塑像，萨达姆也在伊拉克的土地上处处为自己立碑作画。这些强迫人民膜拜和景仰的暴政垃圾最后都随着集权政府的垮台而烟消云散了。只有真正关心民众安危的英雄才能在人民心中永存。
 
+我坚信新中国联邦很快就能顺应真正的民意，将李文亮医生的塑像矗立在人民真正当家作主的新世界!
 
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/bYI3wWeygK7XN/)
+[!\[\]()!\[\](https://spark.adobe.com/page/bYI3wWeygK7XN/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/bYI3wWeygK7XN/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

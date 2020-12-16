@@ -1,25 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “这是一个RICO案” ––菲顿谈亨特·拜登刑事案件
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/656451/)
+## 【香草诗词汇】开始
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/656553/)
 
-- 编辑：Victor Torres
+作者：香草山写作组 木白
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2020年12月16日电/西喜社/**——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16105616/MOS0751-%E3%80%90%E9%A6%99%E8%8D%89%E8%AF%97%E8%AF%8D%E6%B1%87%E3%80%91%E5%BC%80%E5%A7%8B.png)
 
-汤姆·菲顿（Tom Fitton）周二晚在Newsmax上接受采访，他分享了有关亨特·拜登（Hunter Biden）和拜登家族（Biden Family）腐败并且与中国有联系的观点。 他说，参与外国犯罪活动的个人绝对不可能靠近白宫。
-菲顿是美国保守主义者和司法观察组织的主席。以挺川普的言论而闻名。
-他对Newsmax说：
-“这是对新闻报道的腐败镇压，以帮助受偏袒的政治候选人。 这不仅是亨特·拜登的丑闻和乔·拜登的丑闻，而且我猜是拜登副总统的兄弟詹姆斯·拜登的丑闻。 这是FBI的丑闻，是司法部的丑闻，因为他们在大选之前就掩盖了这一点。”
-“这是国会丑闻。 记得亚当·希夫（Adam Schiff）曾试图将川普总统免职，因为川普对拜登（Biden）确凿的腐败行为提出了问题。 现在是媒体，我们应该相信媒体对这一丑闻的分析。 我告诉你，美国人民受到那些声称要代表他们的媒体的虐待。 您不能相信媒体会告诉您任何事情的真相。”
-拜登家族的人腐败而恶心。 在大选前我们就知道：拜登（Biden）正在与中国一起对抗美国。 他们永远不应该在白宫附近，尤其是在与反美实体合作窃取2020年大选之后。
+万物都有它的歌谣
 
-新闻来源：[https://www.thegatewaypundit.com/2020/12/rico-case-involves-potentially-incoming-president-united-states-assuming-installed-tom-fitton-hunter-bidens-criminal-case/](https://www.thegatewaypundit.com/2020/12/rico-case-involves-potentially-incoming-president-united-states-assuming-installed-tom-fitton-hunter-bidens-criminal-case/)
+醒来的夜市摊在恐龙的眼睛里闭眼——
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+没有被驯服的，还有休止符
+
+霓虹灯穿过路人的心脏
+
+鲜红的血管，黑暗的屋顶
+
+夜色像一口痰
+
+咽在口中
+
+此刻
+
+鬼影拖住鳄鱼的脚步
+
+正毁灭于更深的沼泽
+
+屏住呼吸，休止符
+
+他们按下了加速键:
+
+在红绿灯解放的大街上
+
+那一刻
+
+黎明会把黑夜唱得更响
+
+而就在此刻
+
+你打开了时间的秘密:
+
+这不断循环的歌谣——
+
+万物如迷
+
+2020年12月16日
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

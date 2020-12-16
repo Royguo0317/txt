@@ -1,61 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共及其黑暗势力对美国进行大面积网络攻击，偷窃核心数据
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/656262/)
+## 【世事解评】墙内众多地区限电：经济下滑严重的直接体现
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/656383/)
 
-作者：freedust；校对/审核：海阔天空；Page：拱卒
-[!\[\]()!\[\](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/88458ac7-ad7d-4f9f-92ad-7d449c05348b.jpg?asset_id=6b1d906c-7559-4561-b0a2-e7f0c650e752&amp;img_etag=%2297651d73e12b050f635c8c4258f3e198%22&amp;size=1024)](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/88458ac7-ad7d-4f9f-92ad-7d449c05348b.jpg?asset_id=6b1d906c-7559-4561-b0a2-e7f0c650e752&amp;img_etag=%2297651d73e12b050f635c8c4258f3e198%22&amp;size=1024)
-**2020年12月14日 美国网络安全和基础设施安全局发出紧急指令21-01，呼吁所有联邦民用机构检查其网络是否有损坏迹象，并立即断开或关闭SolarWinds Orion产品。**
+作者：香草山写作组 程万里
 
-[!\[\]()!\[\](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/38ba1313-4a46-4cfd-a107-401487bd564d.png?asset_id=b07e701b-a1cb-44f0-b9d5-b58bfe9c9c8e&amp;img_etag=%221729a15f5625e016402c3dccd4b4bc80%22&amp;size=2560)](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/38ba1313-4a46-4cfd-a107-401487bd564d.png?asset_id=b07e701b-a1cb-44f0-b9d5-b58bfe9c9c8e&amp;img_etag=%221729a15f5625e016402c3dccd4b4bc80%22&amp;size=1024)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
 
-**据《路透社》公布这是一起严重的“黑客事件”，以至于美国国家安全委员会上周六为此在白宫召开了一次会议。**美国官员没有公开发表过多言论，只是美国商务部证实其一个机构受到了攻击，并表示他们已要求美国网络安全和基础设施安全局(Cybersecurity and Infrastructure Security Agency，简称CISA)和美国联邦调查局(FBI)展开调查。
 
-[《路透社》原文](https://www.reuters.com/article/us-usa-cyber-amazon-com-exclsuive/exclusive-u-s-treasury-breached-by-hackers-backed-by-foreign-government-sources-idUSKBN28N0PG)
 
-SolarWinds的客户包括美国财富500强中多于425家企业，美国前10 的电信公司、美国军方、五角大楼、国务院、美国航空航天局、美国国家安全局、邮政服务、美国司法部、美国总统办公室、美国五大会计事务所及数百所遍布全球的大学。
+近日，浙江地区众多任务厂反应，收到了紧急通知，要求即日起至12月31日，所有加工厂全部停止生产，政府机关也收到通知，要求气温在3度以上不得开空调。当然不只是浙江，还有湖南、内蒙、江西、福建等地也拉闸限电。有新闻分析是因为俄罗斯突然宣布停止对中国30亿度电的供应。也有说是中共国对澳洲进口煤炭采取抵制措施所致。其实真正的原因是经济的下滑导致发电厂无电可发而已。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/db458b5d-7794-48cb-b3e4-cdb5fc7511d1.png?asset_id=aa4be2ab-3542-4406-996f-08f2697b24c1&amp;img_etag=%220128887845c17a3df6ec1be0b36d6e4e%22&amp;size=2560)](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/db458b5d-7794-48cb-b3e4-cdb5fc7511d1.png?asset_id=aa4be2ab-3542-4406-996f-08f2697b24c1&amp;img_etag=%220128887845c17a3df6ec1be0b36d6e4e%22&amp;size=1024)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16095845/MOS0749-%E3%80%90%E4%B8%96%E4%BA%8B%E8%A7%A3%E8%AF%84%E3%80%91%E5%A2%99%E5%86%85%E4%BC%97%E5%A4%9A%E5%9C%B0%E5%8C%BA%E9%99%90%E7%94%B5%EF%BC%9A%E7%BB%8F%E6%B5%8E%E4%B8%8B%E6%BB%91%E4%B8%A5%E9%87%8D%E7%9A%84%E7%9B%B4%E6%8E%A5%E4%BD%93%E7%8E%B0-2.png)
 
-**文件是通过复杂的操作植入**SolarWinds的文件中，通过后门进入系统后被触发的。
+中共国经济几十年的高速增长，不管质量好不好都会导致的大量的投资。所有企业在经济增长时考虑的是投入更多的资金，希望短时间内赚取更多的利润，其结果是无续的投资和扩张，这种投资和扩张不会在原材料和科技上（大多数人的想法都在快钱上），而都在了大量的基建上和房地产上（尤其是所谓的国有企业），因此不会有闲钱用在基本的原材料上，公司的收入只要增长，就可以借助这些红利去购买原材料，最终的结果是所有的公司都有大量的应收款和应付款，只有企业增长才可以继续维持这种三角债状态，这也就是为什么我们看到上市公司收入很高，但基本没有资金流的原因。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/f487772a-7d5e-4dc1-a427-962991c4b85b.jpg?asset_id=d9051115-e7c5-4694-a1ad-1ce2ae2ecfc5&amp;img_etag=%222d5a9c8f9efc90a20f0d366799cfa857%22&amp;size=2560)](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/f487772a-7d5e-4dc1-a427-962991c4b85b.jpg?asset_id=d9051115-e7c5-4694-a1ad-1ce2ae2ecfc5&amp;img_etag=%222d5a9c8f9efc90a20f0d366799cfa857%22&amp;size=1024)
+因为CCP 病毒，企业不但没有增长，而且下滑严重，三角债一下就暴露出来。企业没有了现金却有很多债务被催还，导致企业都在要求现付交易，可业务的下滑无现金流无法支撑企业运营，那还有资金支付原材料呢？用电量是最重要的经济晴雨表，最能表现经济的寒冬。据报道，2019年第二产业用电量占全社会用电量的比重为68.3%。经济的严重下滑，直接导致第二产业用电量的断崖式下滑，导致电力系统现金流（经济好时电力系统是最不缺钱的）直线下滑。而之前的大基建大投资导致的应付款出现问题，到2020年末基本就无钱再购买基本的原材料了，只能拉闸限电，等待上峰的救援。试想下那么多的共和国长子到底先救哪一个呢？他自身都难保了。最后的结果显而易见，大家一起玩完，看谁先死，而电力公司极有可能成为成为多米诺骨牌的第一张。
 
-**表面上，我们看起来似乎，SolarWinds是此次黑客事件的受害者，将为此蒙受巨大损失，但另一些信息似乎为我们透露了另一种可能。**
+（本文仅代表个人观点。）
 
-我们查到SolarWinds在2016年被以科技为重点的私募股权公司Thoma Bravo LLC和Silver Lake Partners以45亿美元的价格私有化。上市后，银湖和布拉沃将拥有大约88%的股权，使SolarWinds成为一家控股公司。两家公司都保留了董事会的职位。而Silver Lake Partners对与中共有千丝万缕联系的阿里巴巴集团进行了投资。
 
-在一篇援引自Bloomberg的文章中说，蚂蚁金服的IPO，将为众多美国私募股权投资公司带来丰厚收益。据一位不愿透露姓名的知情人士表示，Silver Lake Management LLC, Warburg Pincus LLC, and Carlyle Group Inc.是蚂蚁金服2018年最新一轮融资的美国最大投资者，分别向其投资了至少5亿美元。
 
-[《布隆伯格网》原文](https://www.bloomberg.com/news/articles/2020-07-29/silver-lake-warburg-carlyle-poised-for-gains-from-ant-s-ipo)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-Silver Lake通过三个主要业务开展业务，所有业务均专注于技术投资：Silver Lake Partners对大型科技公司和高科技公司进行私募股权投资。 Silver Lake Partners占公司管理资产的大部分。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-Silver Lake成立于1999年，他的创始人中有来自黑石集团的Glenn Hutchins，曾在克林顿政府早期担任经济和医疗政策特别顾问。
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-（来自维基百科）
-
-Silver Lake与大选舞弊的Dominion公司的金主Carlyle Group Inc.也曾有多次合作投资的经历。
-
-SolarWinds首席执行官凯文·汤普森（Kevin Thompson）在一份声明中表示:“我们认为，这一漏洞是由一个国家对供应链实施的高度复杂、有针对性的人工攻击造成的。”
-
-而网络安全专家表示SolarWinds的漏洞将为黑客提供进入网络的“上帝模式”，使一切都可见。
-
-[**KXAN原文**](https://www.kxan.com/news/local/austin/austin-based-solarwinds-at-center-of-massive-us-government-hack/amp/)
-
-而SolarWinds总监在上周CISA宣布之前，售出了4,570万美元的股票期权。
-
-[**《网络观察家》原文**](https://www.thegatewaypundit.com/2020/12/revealed-solarwinds-director-sold-45-7-million-stock-options-last-week-cisa-announcement-sunday/?utm_source=Twitter&amp;utm_campaign=websitesharingbuttons)
-
-尽管有些媒体及一些官方声音将此次黑客事件指向俄罗斯，但据以上种种信息看来，中共在此次的事件中一定扮演了极其重要的角色，这又是一个中共及其勾兑的黑暗势力埋藏在美国的深度沼泽，而这一次事件的定性及影响，在超限战的范畴来看，更接近一次军事行动。
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/QpAUgJzNBR1Fb/)
-[!\[\]()!\[\](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

@@ -1,31 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】墙内众多地区限电：经济下滑严重的直接体现
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/656383/)
+## “这是一个RICO案” ––菲顿谈亨特·拜登刑事案件
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/656451/)
 
-作者：香草山写作组 程万里
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
+- 编辑：Victor Torres
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-近日，浙江地区众多任务厂反应，收到了紧急通知，要求即日起至12月31日，所有加工厂全部停止生产，政府机关也收到通知，要求气温在3度以上不得开空调。当然不只是浙江，还有湖南、内蒙、江西、福建等地也拉闸限电。有新闻分析是因为俄罗斯突然宣布停止对中国30亿度电的供应。也有说是中共国对澳洲进口煤炭采取抵制措施所致。其实真正的原因是经济的下滑导致发电厂无电可发而已。
+**西班牙2020年12月16日电/西喜社/**——
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16095845/MOS0749-%E3%80%90%E4%B8%96%E4%BA%8B%E8%A7%A3%E8%AF%84%E3%80%91%E5%A2%99%E5%86%85%E4%BC%97%E5%A4%9A%E5%9C%B0%E5%8C%BA%E9%99%90%E7%94%B5%EF%BC%9A%E7%BB%8F%E6%B5%8E%E4%B8%8B%E6%BB%91%E4%B8%A5%E9%87%8D%E7%9A%84%E7%9B%B4%E6%8E%A5%E4%BD%93%E7%8E%B0-2.png)
+汤姆·菲顿（Tom Fitton）周二晚在Newsmax上接受采访，他分享了有关亨特·拜登（Hunter Biden）和拜登家族（Biden Family）腐败并且与中国有联系的观点。 他说，参与外国犯罪活动的个人绝对不可能靠近白宫。
+菲顿是美国保守主义者和司法观察组织的主席。以挺川普的言论而闻名。
+他对Newsmax说：
+“这是对新闻报道的腐败镇压，以帮助受偏袒的政治候选人。 这不仅是亨特·拜登的丑闻和乔·拜登的丑闻，而且我猜是拜登副总统的兄弟詹姆斯·拜登的丑闻。 这是FBI的丑闻，是司法部的丑闻，因为他们在大选之前就掩盖了这一点。”
+“这是国会丑闻。 记得亚当·希夫（Adam Schiff）曾试图将川普总统免职，因为川普对拜登（Biden）确凿的腐败行为提出了问题。 现在是媒体，我们应该相信媒体对这一丑闻的分析。 我告诉你，美国人民受到那些声称要代表他们的媒体的虐待。 您不能相信媒体会告诉您任何事情的真相。”
+拜登家族的人腐败而恶心。 在大选前我们就知道：拜登（Biden）正在与中国一起对抗美国。 他们永远不应该在白宫附近，尤其是在与反美实体合作窃取2020年大选之后。
 
-中共国经济几十年的高速增长，不管质量好不好都会导致的大量的投资。所有企业在经济增长时考虑的是投入更多的资金，希望短时间内赚取更多的利润，其结果是无续的投资和扩张，这种投资和扩张不会在原材料和科技上（大多数人的想法都在快钱上），而都在了大量的基建上和房地产上（尤其是所谓的国有企业），因此不会有闲钱用在基本的原材料上，公司的收入只要增长，就可以借助这些红利去购买原材料，最终的结果是所有的公司都有大量的应收款和应付款，只有企业增长才可以继续维持这种三角债状态，这也就是为什么我们看到上市公司收入很高，但基本没有资金流的原因。
+新闻来源：[https://www.thegatewaypundit.com/2020/12/rico-case-involves-potentially-incoming-president-united-states-assuming-installed-tom-fitton-hunter-bidens-criminal-case/](https://www.thegatewaypundit.com/2020/12/rico-case-involves-potentially-incoming-president-united-states-assuming-installed-tom-fitton-hunter-bidens-criminal-case/)
 
-因为CCP 病毒，企业不但没有增长，而且下滑严重，三角债一下就暴露出来。企业没有了现金却有很多债务被催还，导致企业都在要求现付交易，可业务的下滑无现金流无法支撑企业运营，那还有资金支付原材料呢？用电量是最重要的经济晴雨表，最能表现经济的寒冬。据报道，2019年第二产业用电量占全社会用电量的比重为68.3%。经济的严重下滑，直接导致第二产业用电量的断崖式下滑，导致电力系统现金流（经济好时电力系统是最不缺钱的）直线下滑。而之前的大基建大投资导致的应付款出现问题，到2020年末基本就无钱再购买基本的原材料了，只能拉闸限电，等待上峰的救援。试想下那么多的共和国长子到底先救哪一个呢？他自身都难保了。最后的结果显而易见，大家一起玩完，看谁先死，而电力公司极有可能成为成为多米诺骨牌的第一张。
-
-（本文仅代表个人观点。）
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0
