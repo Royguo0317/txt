@@ -1,34 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1215】-中共是邪恶的
-` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/653283/)
+## 乔·拜登妹夫拥有多米尼投票系统公司部分所有权
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/653285/)
 
-12月15日一名乔治亚州的军人选民针对本州要进行的新的投票竞选发推称：
+*多伦多枫叶农场（原加喜农场） ctt*
 
-乔治亚州州务卿Brad Raffensperger获得了民主党青睐，他转党了…. 他已经表现得像个民主党人了! @BrianKempGA （乔治亚州州长）会加入他吗？
+*校对、上传 文锦*
 
-林伍德律师回复该推文称，
+据盖勒报告 (Geller Report) 12月14日报道，拜登的妹妹瓦莱丽·拜登·欧文斯 (Valerie Biden Owens)嫁给了约翰-欧文斯 (John Owens)。而约翰的哥哥凯文·欧文斯 (R.Kevin Owens) 是Staple Street Investors的创始人，该公司拥有多米尼投票系统公司（Dominion Voting Systems）。Staple Street Capital是一家私募股权公司，2009年成立于纽约。2018年，多米尼投票公司被Staple Street Capital 收购，
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15172739/biden-dominion-voting-system.jpg)图片来源：lesmanchettes.com
+在纽约时报上，可以看到乔-拜登妹妹与约翰-欧文斯的[婚礼公告](https://www.nytimes.com/1975/10/12/archives/bridal-at-un-for-miss-biden.html)。而约翰的哥哥凯文·欧文斯是多米尼公司的部分所有者, 现在看来拜登胜选的结果应该正式作废了。
 
-“几年前，当他们开始从多猫腻（公司）和中共收取回扣时，他们就转党了。
+据报道, 收购多米尼投票系统公司的Staple Street Capital已经关闭了他们的大部分网站。蹊跷的是一周前还有投资组合持股说明页面。10月08日，Staple Street资本曾向美国证券交易委员会（简称SEC）提交了增资8亿美元的申请, 为什么这个时候关闭私募股权投资公司的网站呢？令人不解。
 
-“他们从共和党转为共产党。
+评：
 
-“对钱的热衷是万恶之源。中共是邪恶的。”
+这次美国大选中，拜登阵营进行了大量的造假和作弊，其中很多都发生在多米尼投票系统上。目前曝出的越来越多证据显示，外国势力通过控制多米尼投票系统操纵美国大选，而本文则可以使人们看到，不仅仅是外国势力，连拜登家族的势力都在控制多米尼投票系统，看来这次拜登胜选的结果绝不可信。
 
-评议：林伍德律师应该早以掌握了被中共贿赂的共和党人的证据才出此言，乔治亚州的州务卿和州长已经沦为中共的走狗。伍德律师同时认识到中共的贿赂之风已经带偏了美国人的意识形态，对金钱的崇拜导致价值观沦丧是美国当前的主要问题，而中共就是这背后搞乱、搞弱、搞死美国的罪魁祸首。美国民众在正义力量的带领下，未来川普总统赢得大选后，对中共的声讨和谴责将是舆论重心，幸亏爆料革命把中国人和中共区分开来，中共不等于中国人，也不能代表中国，这是中国人的救身符，也是为中国人思想解毒的关键。爆料革命战友走在了历史前沿，身兼救赎自己和中国同胞的使命。
-
-新闻素材和图片来自林伍德律师推特
-
-
-
-> Brian [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw) & Brad [@GaSecofState](https://twitter.com/GaSecofState?ref_src=twsrc%5Etfw) switched parties years ago when they started taking kickbacks from Dominion & CCP.
-> 
-> They switched from Republican Party to Communist Party.
-> 
-> The love of money is the root of all evil. CCP is evil. [https://t.co/slkRj0JGZA](https://t.co/slkRj0JGZA)
-> — Lin Wood (@LLinWood) [December 15, 2020](https://twitter.com/LLinWood/status/1338945917341356035?ref_src=twsrc%5Etfw)
-
-
+[原文链接](https://gellerreport.com/2020/12/dominion-voting-machines-is-part-owned-by-joe-bidens-brother-in-law.html/)
 
 0

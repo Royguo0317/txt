@@ -1,30 +1,81 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 五角大楼紧急关闭秘密互联网协议路由器网络
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/653792/)
+## 川普总统等政要推特整理（12.11-12.12）
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/653752/)
 
-- 编辑：Victor Torres
+*来源：[川普彭斯等政要⋯直譯](https://twitter.com/zhiyitw33)*
 
+*整理：文侦1776; 编辑：海阔天空*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15212002/trump2.jpg)
+#### 川普总统（12月11日）：
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+今天的另一项历史性的突破！我们两个伟大的朋友，以色列和摩洛哥王国，同意建立全面外交关系——中东和平正在发生重大突破！
 
-**西班牙2020年12月16日电/西喜社/——**
+#### 川普总统转推（12月11日）：
 
-五角大楼周二对处理机密材料的计算机网络实施紧急关闭。
-此前，网络安全和基础设施安全局（CISA）于上周日晚上针对SolarWinds Orion发布了罕见的紧急指令21-01。
-据Just the News报道，五角大楼已经对其秘密互联网协议路由器网络实施了紧急关闭，该网络处理的机密信息高达秘密级别。
-一位官员说：”这种情况从来没有在工作日中发生过。”
-三名国防部消息人士证实，五角大楼周二下令紧急关闭一个内部机密通信网络。
-这次史无前例的白天关机是在最近揭露包括国土安全部在内的其他联邦机构被黑客入侵的情况下发生的。
-消息人士说，国防部在深夜提醒员工，SIPRNET系统将在深夜关闭，以进行紧急软件更新。
+每个人对选举欺诈都有他们自己的观点。
 
+我对观点不感兴趣，我要的是事实！
 
+（转推视频为NEWSMAX 对兰斯·高登议员的采访）
 
-> [Breaking: Pentagon Imposes Emergency Shutdown of Its Secret Internet Protocol Router Network – Handles Classified Information Up to the Secret Level](https://www.thegatewaypundit.com/2020/12/pentagon-imposes-emergency-shutdown-secret-internet-protocol-router-network-handles-classified-information-secret-level/)
+#### 川普总统（12月11日）：
 
+“人民很生气，他们有权生气。乔治亚不仅仅在2016年支持了川普，就是现在也支持他。这是美国深南部(南方腹地Deep South)唯一一个支持拜登的州？他们疯了吗？这一切都戏剧性地恶化了。这是我们历史上非常危险的时刻。
 
+事实上我们的国家被偷盗了。一场政变正在我们眼前发生，公众不能再容忍了。”一个川普支持者在乔治亚集会上说。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+@OANN 报道。糟透了！
 
+#### 川普总统 (12月11日)：
+
+【附白宫官网发文：
+
+2020年光明节总统致辞
+
+今天是犹太光明节的第一天，总统和第一夫人向美国和全世界的犹太人送出最温暖的问候】
+
+#### 川普总统(12月11日)
+
+为什么假新闻媒体，联邦调查局和美国司法部没有在选举之前报道拜登事件？哦，好吧，但我们还是赢得了选举——75,000,000票！！！
+
+#### 川普总统（12月11日）：
+
+与其任由拜灯的班底在未来的数年成为一个陷于丑闻的烂摊子，对联邦最高法院来说，更好的做法莫如遵从宪法，做人人皆知应做的事。他们必须要展现出智慧与勇气。拯救美利坚！！！
+
+#### 川普总统（12月11日）：
+
+现在民主党想把最高法院扩容到26名法官。这太可怕了，必须被阻止。甚至是金斯伯格大法官都会强烈反对！
+
+川普总统：我只是想制止这个世界毁了它自己！
+
+#### 美国国务院(12月11日)：
+
+自2017年开始，超过一百万的个人消失在 #中国共产党 的新疆拘留营当中。许多家庭还是不知道他们的所爱之人是不是还活着。我们在这里分享他们的故事
+
+#### 白宫经济顾问彼得·纳瓦罗(12月12日)：
+
+马克·扎克伯格似乎有意将美国拱手交给 #中国共产党。他的大笔资金使得他可以染指总统选举。现在我们看到有证据表明，脸书用于审查支持川普者的“事实检查员”是 #中共。
+
+#### 众议员道格·柯林斯(12月12日)：
+
+高科技寡头不仅仅是忽略亨特拜登的丑闻，根本就是在积极压制它。
+
+一定要为此追究他们的责任。
+
+废除230条款
+
+#### 川普总统(12月12日)：
+
+如果两位佐治亚州的参议员候选人输掉的话，对我们国家来说就太可怕了。我就成了挡在填塞高院和保留原样之间唯一的人（上次听说民主党要加成26人）。无论如何我不会让他们填塞高院!
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】
+[!\[\]()!\[\](https://spark.adobe.com/page/uKCewCDqYs9wc/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/uKCewCDqYs9wc/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0
