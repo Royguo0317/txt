@@ -1,52 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国闹血荒 基层发通告强制摊派献血
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/654760/)
+## 【林伍德律师推文1215】-谎言将被揭穿，真相最终取胜
+` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/654961/)
 
-收集：CPA Jim
-编撰：WENJUN
-复核：文錦
+12月15日网友转发了一则 ABSCBN News的视频，其中Smartmatic公司主席Mark Malloch-Brown信誓旦旦否认多猫腻系统和调查中的舞弊存在关系。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005329/1010.png)献血示意图。(Getty Images)
+林伍德律师回复称“每一个谎言都会被揭穿。”
 
-近日，中国各地号召市民、高校学生进行献血活动。据广东省顺德区中心血站发布的公告称，受疫情影响，无偿献血正面临挑战，血液供应紧张。
+随后他继续说，“我们必须为真理而战。明天战斗会继续。真相最终取胜。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005416/1111.png)
+新闻素材和图片来自林伍德律师推特
 
-苏州某单位的内部通知显示，该单位规定12月15日统一组织干部职工开展无偿献血活动。根据市血站2020年度献血指标任务，结合上半年献血情况等，将缺口指标进行了分配。
 
-该内部通知，还对“献血要求”进行了具体规定。要求：近期无感冒、发烧症状，且没有进出疫区，没有亲密接触来自疫区人员；男性体重50公斤以上，女性体重45公斤以上等。
 
-知情人向大纪元记者透露，“这是全市的一个缩影。以前也曝光过类似摊派献血的现象，随后很多基层单位就改为‘口头摊派’。这一次又出现了这种直接发内部通知摊派的现象。”
+> Every lie will be revealed. [https://t.co/BYjjg4EmRN](https://t.co/BYjjg4EmRN)
+> — Lin Wood (@LLinWood) [December 16, 2020](https://twitter.com/LLinWood/status/1339065393378250755?ref_src=twsrc%5Etfw)
 
-苏州知情人表示，“因为疫情大家都不敢献血，苏州儿童医院是全国治疗血液病最好的医院，所以患者多，缺血。今年又是各种天灾人祸的，需要救治的人也多。”
 
-基层员工强制献血与绩效挂钩 政府单位可“自愿献血”
 
-今年10月初，湖南耒阳市教育局为了完成献血任务，给全市114所学校，按照教职工人数比例摊派了献血指标。且以下发《通知》的方式将无偿献血工作纳入学校年度考核范畴，对任务完成不好的学校将给予适当扣除绩效考核分。
 
-而对于教育局机关单位的官员和公务员，则拥有“自愿献血”的特权。据陆媒透露，在无偿献血者的构成中，官员、公务员的比例一直偏低。
 
-早前就有教师在网上发文透露，“单位有献血任务，每个教研组摊派到头上的个人，即使身体不适，也要交200元，六月份又是一年卖血季，教师要靠它，来换取年终考核的2分。”
+> Time for rest. Thank you for your kind & supportive messages. We must always fight for truth. So the battle continues tomorrow. Truth will prevail.
+> 
+> “The LORD our God be with us, as he was with our fathers: let him not leave us, nor forsake us:”
+> – 1 Kings 8:57
+> — Lin Wood (@LLinWood) [December 16, 2020](https://twitter.com/LLinWood/status/1339083963554381826?ref_src=twsrc%5Etfw)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16005515/1212-1.png)
 
-# 2020年10月初，湖南耒阳市教育局为了完成献血任务，[强制摊派献血](https://www.epochtimes.com/gb/tag/%E5%BC%BA%E5%88%B6%E6%91%8A%E6%B4%BE%E7%8C%AE%E8%A1%80.html)，与教职员工绩效挂钩。（网络截图）
 
-谈到中国采血乱象，知情人透露，“血头背后都是官方的，医院支持的。没办法，患者需求在，大血头一年几百万元（收入）吧，在长三角这里。根本原因就是需求大，尤其大城市，车祸多。血小板是给钱的，一个单位的血小板，几十（元）到二百（元）不等。”
 
-“一般小血头就是在贴吧、Q群发布（找血源），都是缺钱的底层人多，缺钱的看见就会加了。大血头都是在医院，会去病房问，或者医院卖信息给他们。”
-
-关于[强制摊派献血](https://www.epochtimes.com/gb/tag/%E5%BC%BA%E5%88%B6%E6%91%8A%E6%B4%BE%E7%8C%AE%E8%A1%80.html)，知情人表示，“我们这强制摊派的，也给钱，1000元400cc血。给现金，财政拨款。这就不对了，和无偿献血的（口号）冲突。”
-
-90年代国内开始爆出的河南、山西、山东、安徽等地因为百姓卖血浆导致的艾滋病的大面积感染悲剧的阴影依然留在国人特别是感染者或失去亲人的家人心头。
-
-中共向来以一种很高的道德标准要求百姓欺骗百姓，中共宣传要求百姓无偿献血，献血达到一定量后献血者和其直系亲属可以免费使用，当百姓真正要用时，即使你拿出献血证也很难真正落实并免费试用。中共红十字会拿到百姓无偿献出的血后会卖给医院，医院再加价卖给患者。中共对百姓的收割无处不在。
-
-中共不但把百姓的血当作生意来做，也把器官移植当作生意招徕全世界的患者并把其作为一种稀缺资源和手段渗透腐蚀世界“重要人士”为其所用。中共治下的百姓活得何其惨烈！中共何其灭绝人性！
-
-参考链接：
-[https://www.epochtimes.com/gb/20/12/14/n12620480.htm](https://www.epochtimes.com/gb/20/12/14/n12620480.htm)
 
 0

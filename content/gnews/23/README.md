@@ -1,26 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1215】-制裁外国干预总统大选
-` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/654151/)
+## 普京贺拜登赢得大选？
+` XMLYG777` [轉載自GNews](https://gnews.org/zh-hans/654126/)
 
-12月15日，林伍德律师引用早先的推文和川普总统于2018年9月12日签署的“制裁外国政府干预总统大选的行政命令”，对乔治亚州的州务卿和州长喊话：
+内新闻：人民公敌 素材：文曲小妹 校对：老蚂蚁666
 
-如果你是Brian Kemp (州长）或Brad（州务卿），早上醒来看到美利坚合众国总统的推文，今晚你还能睡得好吗？如果你和外国干预势力合作的话，回答一定是不会。
+正当2020年美国总统大选舞弊案处于司法诉讼阶段，还未水落石出之时，北京时间12月15日，各大媒体曝出俄国总统普京祝贺拜登赢得大选的消息。
 
-评议：川普总统律师团已经把“制裁”外国干预势力提上日程，至于谁是这个外国势力，已经很清楚，林伍德律师今天早些时候的推文早已给出答案，“这次大选的角逐早已不是川普总统和拜登，而是美国和中共之间的战斗”！至于如何制裁，何时制裁，我们拭目以待。
-
-新闻素材和图片来自林伍德律师推特
+此消息一出，网络一片哗然。有网友联想到不久前，俄罗斯的“末日核战专机”于维护保养之时，该机上极为敏感的通迅设施被窃一事。感到普京祝贺拜登赢的大选极为蹊跷。
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15232517/unknown-12.png)
+另据中共媒体新浪网11月14日消息，俄罗斯领导人发言人德米特里•佩斯科夫曾对记者表示，今年的美国总统选举与往年不同，一些法律程序正在进行，而那些程序是由现任总统宣布的，因此，普京政府认为等待美国官方宣布结果才是正确的。
 
-> If you were [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw) & [@GaSecofState](https://twitter.com/GaSecofState?ref_src=twsrc%5Etfw) waking up this morning & seeing this re-tweet by the President of the United States of America, would you be sleeping well tonight? Not if you worked with a foreign country to interfere in a U.S. Election.
-> 
-> Every lie will be revealed. [pic.twitter.com/mCOzn8s1UO](https://t.co/mCOzn8s1UO)
-> — Lin Wood (@LLinWood) [December 16, 2020](https://twitter.com/LLinWood/status/1339055591247945729?ref_src=twsrc%5Etfw)
+然而，时隔一个月后，当美国大选司法程序仍在进行时，普京就“改口”不等美官宣结果了。这一个月里到底发生了什么事？
 
+此外，中共官媒环球网、人民网也迫不及待地宣称，普京祝贺拜登当选美国总统，而不是英语的winning u.s. election(赢得大选)｡
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15232620/unknown-1-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15232626/unknown-2-1.png)
+从字面意义看，对普京贺拜登赢选一事的报道，中共官方媒体报道口风比西方媒体似乎更偏向拜登胜选一些。
 
+普京祝贺拜登赢选，此事出有因极为蹊跷，是普京“失误”？对谁最有利？谁最喜闻乐见？为什么？
 
+本文章仅代表本人个人观点。
 
+参考链接：
+[https://k.sina.cn/article\_5527041414\_1496ff58602000or18.html?from=cul(已编辑)](https://k.sina.cn/article_5527041414_1496ff58602000or18.html?from=cul%28已编辑%29)
+[普京领导的俄罗斯是最后一个祝贺拜登获胜的主要国家](http://普京领导的俄罗斯是最后一个祝贺拜登获胜的主要国家)
 
 0

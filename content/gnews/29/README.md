@@ -1,42 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1215】-你被针对是因为敌人恐惧了
-` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/654057/)
+## 【新闻快讯】中共国多地限制用电，到底是用电量急剧攀升还是另有隐情？
+` XMLYG777` [轉載自GNews](https://gnews.org/zh-hans/654058/)
 
-12月15日林伍德律师转推一篇lawandcrime（“法律和犯罪”）发表的文章，题为“底特律律师正在让鲍威尔律师被罚款、禁止、其海妖团队被立案”，文章报道了一名底特律律师David Fink要求法庭对鲍威尔律师进行各种法律裁决以阻止其维护正义为川普总统竞选找回公正的行动。
+内新闻/素材：小黑姐（文雅） 校对：雅典娜的圣斗士(沙加)
 
-林伍德律师称，当你被错误控诉时，比如被David Fink 和希拉里克林顿的公司Perkins Coie里的Marc Elias，就像在“法律和犯罪”的宣传毯里一样，你就可以微笑了，因为你知道自己被针对为打击对象，是因为敌人感到恐惧了。
+近日，多地企业和小区突然接到节约、有序、错峰用电的通知，理由都是因入冬后，低温天气导致用电负荷急剧攀升、供电形式严峻等，只能通过节约用电、减少用电来缓解供电压力，浙江机关事业单位甚至规定3度以下才能开空调。今年的用电量真的突然陡增到需要如此大张旗鼓的倡导节约用电的地步了吗？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15225434/image0-2-5.jpg)
+据人民网12月15日消息称，今年1-11月，全社会用电量累计66772亿千瓦时，平均每月6070亿千瓦时。对比2019年的用电数据（全社会用电量72255亿千瓦时，平均每月6021亿千瓦时），2020年每月的平均全社会用电量基本与2019年持平，并不存在用电负荷急剧攀升的情况。
 
-他随后回覆该推文，继续幽默地说，“我告诉（宠物狗）Thee 和 Motley，有来自Fink和Elias的威胁，他们却没有笑。”
+这样突然的大面积限制用电，到底是能源供应不足？还是为了应对即将到来的战争需要、断网断电做准备呢？
 
-林伍德律师临危仍能泰然处之，他以诙谐的方式反映出美国当前所面临问题的严重性，试想有多少爱国者们忧国思民，是笑不出来的。大战在即，那就让我们在凯旋之后再一起纵声欢笑吧。
+本文章仅代表本人个人观点。
 
-截稿時，网友回复林伍德律师的推文说，“好像有人应该去调查一下 (希拉里克林顿的公司) Perkins Coie，他们费多大劲来想掩盖真相。” 律师回推称：
-
-“我们知道蓬佩奥国务卿已经承认政府掌握了希拉里的邮件….”
-
-新闻素材和图片来自林伍德律师推特
-
-
-
-> When you get falsely accused by the likes of David Fink & Marc Elias of Perkins Coie (The Hillary Clinton Firm) in a propaganda rag like Law & Crime, you smile because you know you are over the target & the enemy is running scared![https://t.co/g3LA7llOLq](https://t.co/g3LA7llOLq)
-> — Lin Wood (@LLinWood) [December 16, 2020](https://twitter.com/LLinWood/status/1339042558077366272?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> Uh oh. I told Thee & Motley about the threats by Fink & Elias. They are not smiling. [https://t.co/yC2hoSb1jS](https://t.co/yC2hoSb1jS) [pic.twitter.com/5FCgrryIWr](https://t.co/5FCgrryIWr)
-> — Lin Wood (@LLinWood) [December 16, 2020](https://twitter.com/LLinWood/status/1339043202985168896?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> Well, we do know that Secretary Pompeo has acknowledged that the government has the Hillary Clinton emails . . . [https://t.co/cqUJbDBRel](https://t.co/cqUJbDBRel)
-> — Lin Wood (@LLinWood) [December 16, 2020](https://twitter.com/LLinWood/status/1339049537705365505?ref_src=twsrc%5Etfw)
-
-
+新闻来源：
+[https://weibo.com/ttarticle/p/show?id=2309404582358882845266
+http://finance.people.com.cn/n1/2020/1215/c1004-31966220.html
+http://www.gov.cn/xinwen/2020-01/21/content\_5471157.htm](https://weibo.com/ttarticle/p/show?id=2309404582358882845266
+http://finance.people.com.cn/n1/2020/1215/c1004-31966220.html
+http://www.gov.cn/xinwen/2020-01/21/content_5471157.htm)
 
 0
