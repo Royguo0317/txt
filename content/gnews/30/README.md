@@ -1,28 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧盟全面施加压力，辉瑞疫苗将提前于12月21日获批上市!
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/652915/)
+## 多米尼（Dominion）投票机可以自行创建选票!
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/652939/)
 
-- 作者：Free monkey
-- 校队：天灭中共7777
+蒙特利尔皇家山战友团 Tao
+校对 文锦 上传 云起时
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15150048/naturalnews.com_.jpg)图片来源：naturenews.com
+多米尼投票系统居然有内置创建选票的功能，可以轻而易举的自动生成假选票。正如DataDude316在推特中所说：多米尼投票系统很容易被黑客；可以创建拜登的选票并记入其名下；可以完全删除川普总统的选票。这些可是写在多米尼投票系统的用户手册里的！([推特截图](https://twitter.com/JPMediaBoss/status/1326360346617995265))
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15150134/twitter9.jpg)图片来源：twitter.com
+[多米尼网站](https://www.dominionvoting.com/optional-solutions/)在介绍投票系统功能时写道：
+“自动测试平台生成器可以创建完整的测试平台，以实现高效的逻辑测试和准确性测试。测试平台使用的选举项目数据库可以随机生成一组已填写完整的选票，这样的测试可以确保系统的准确性。当扫描这些生成的选票时，测试平台会自动比较系统的结果和扫描的结果，这种测试不仅可以验证选票印刷的质量，还可以验证每个选票统计机器的准确性。”
 
+关于这个功能，在多米尼投票系统用户手册的第30页有进一步的解释说明：
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+“如果贵国的司法部门允许，则可以使用多米尼投票系统的自动测试平台。该程序可从多米尼投票系统购买，它可以自动生成适当的测试选票和预期的选举统计结果”
 
-随着英国、美国以及加拿大先后开始大规模的疫苗接种，欧洲药品管理局（EMA）加速批准疫苗的压力越来越大。
+乔治亚州的投票机采购文件的第59页显示该州购买了多米尼投票系统的“自动测试平台”。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15145255/WhatsApp-Image-2020-12-16-at-03.52.18.jpeg)
+“自动测试平台的创建 – 完整自动的创建测试平台是多米尼系统提供的一项可选服务，以协助客户进行系统的逻辑性和准确性测试。使用系统中的总统大选日数据库，系统会根据算法自动生成一系列已填写完整的选票，以确保系统测试的准确性。”
 
-欧洲药品管理局周二宣布，已将针对covid-19的辉瑞-BioNTech疫苗的审查会议提前至12月21日，这意味着应于当天批准在欧盟国家中使用该疫苗。
-欧洲药品管理局（EMA）负责监管欧盟的药品批准，该审查会议原定于12月29日举行，但在德国卫生部长詹斯·斯潘（JensSpahn）施压要求加速批准该疫苗之后，欧洲药品管理局最早应在12月21日向抗击covid-19的第一种疫苗给予“绿灯 ”。 德国卫生部长认为情况“特别令人恼火”，因为由德国BioNTech和北美制药公司Pfizer开发的疫苗已经在英国和美国等国家授权使用，但欧盟却仍在等待批准，无法在德国或27个欧盟国家中的任何一个国家使用。
-“我们的目标是在圣诞节前获得许可证，并在今年开始接种疫苗”，德国卫生部长詹斯·斯潘（Jens Spahn）周一表示。
-德国医院协会今天也发表声明，要求欧盟缩短漫长的批准程序，尽快批准辉瑞-BioNTech疫苗的紧急授权。 辉瑞公司及其德国合作伙伴在11月中旬宣布，他们的疫苗对covid-19具有95％的有效性。此后不久，即12月8日，英国领先于世界其他地区，并宣布了使用疫苗的监管机构的绿灯，美国在本周六紧随其后，并获得了FDA的批准。 在欧盟，计划在监管机构批准后立即开始疫苗接种，并在成员国之间进行协调，正如上周欧洲理事会后葡萄牙总理安东尼奥·科斯塔所证实的那样。 当时，假设欧洲药品管理局（European MedicinesAgency）可以在12月29日批准，科斯塔加指出疫苗接种将于1月5日开始。
+乔治亚州富尔顿（Fulton）县投票站经理苏珊-沃尔斯（Susan Voyles）在听证会上作证说大批选票上对候选人勾选的标记几乎一模一样，并且98%以上都是投给拜登的，这些选票是不是多米诺投票系统的自动测试平台创建产生的？我们还在哪里看到过一摞选票，有些甚至是没有拆封，而其中投给拜登的选票达95%以上的？
 
-原文链接：
+有证据表明，费城选区和密歇根州采购多米尼投票机时也购买了其“自动测试平台”。
 
-[https://www.jornaldenegocios.pt/economia/coronavirus/detalhe/europa-encurta-prazos-e-da-ok-a-vacina-da-pfizer-a-23-de-dezembro](https://www.jornaldenegocios.pt/economia/coronavirus/detalhe/europa-encurta-prazos-e-da-ok-a-vacina-da-pfizer-a-23-de-dezembro)
+这些多米尼投票系统软件自动生成的”测试选票”是否被当成了”裸票”，然后这些裸票被正常计票以达到预期的结果？（译者注：裸票是指那些没有放在邮寄信封里的选票，这种选票是无效选票）。这些海量的“测试选票”在选举结束后的凌晨被偷偷倒进了系统里，这就是川普总统由大幅度领先到落后的真实原因。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+很难相信，世界上最强大的国家，科技军事无人匹敌的美国在最关键的总统大选上，居然使用漏洞如此惊人的投票机。在大量实锤证据指向多米尼投票系统操纵选举时，当初极力推动采购多米尼投票设备的人都值得怀疑。
+
+[原文链接](https://www.thegatewaypundit.com/2020/12/breaking-exclusive-dominion-voting-machines-ability-create-ballots/?utm_source=Twitter&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
 
 0
