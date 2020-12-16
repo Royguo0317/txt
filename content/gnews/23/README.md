@@ -1,91 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 风暴在路上&#8212;&#8211;记在德州被否决后
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/656063/)
+## 我申请加入京都富士会
+` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/656197/)
 
-作者：xiaopan；校对：宁缺；审核：海阔天空；Page：拱卒
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16091840/%E6%88%91%E7%94%B3%E8%AF%B7%E5%8A%A0%E5%85%A5%E4%BA%AC%E9%83%BD%E5%AF%8C%E5%A3%AB%E4%BC%9A.png)
+作者： Microsoft（京都富士会）
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16085048/115180621_day_2_graphics_promo_976-nc_3.jpg)
+校对： 待命（文晓）（京都富士会）
 
-所有静悄悄的期盼
+排版： 山頂之風（京都富士会）
 
-看似又像一场空谈
+在我出生的那个年代，正值计划生育这一政策推行。我的妈妈因为生了两个孩子，家里被砸了，妈妈甚至被带走强行做了结扎。此后，发现少了一只卵巢，无处申诉。这使我从小对中共就有不共戴天之仇，但却敢怒而不敢言。当美东农场的Brioni战友告诉我爆料革命后，更是对中共这种邪恶的本质与欺骗的行为极为愤概。所以，有幸了解到新中国联邦以后，我发自内心的非常向往能参与到这场革命当中。虽然我接触爆料革命时间比较短，不过郭先生说抗争不分先后。之前的捐款金额也比较小，但是我申请打钱到农场帮我捐一些。购买gclub对爆料革命应该也是有帮忙的，所以，我申请加入日本京都富士会。恳望批准！
 
-北半球的寒冬里
-
-枯叶飘落得凄凄惨惨
-
-当现实在浓雾中显露狰狞
-
-恶魔的身躯遮天蔽日
-
-理想啊
-
-就如同暴风雪中的小枝丫
-
-摇摇欲断
-
-却又似乎宁折不弯
-
-你可看到人民在聚集
-
-正义在呼喊
-
-如果大地在黑暗里长眠
-
-请相信
-
-有彗星来燃亮天空
-
-阴暗的乌云延续到天际
-
-有煞白的雪花飘下
-
-层层叠叠 漫天起舞
-
-头顶的天幕总会砸下来
-
-覆盖住所有的不堪
-
-或美好
-
-剩下的就是等待
-
-等待阳光侵蚀
-
-溶解
-
-清洗
-
-让整个沼泽开始翻滚
-
-沸腾
-
-会有雷声在冬日想起
-
-会有弹夹被压满
-
-会有枪栓跳动
-
-车辆在大路上长鸣
-
-脚步在小路上奔跑
-
-你可听到人民在怒吼
-
-正义在咆哮
-
-如果黑暗不退
-
-整个天地将颤抖
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/8Chy9GiLIGItP/)
-[!\[\]()!\[\](https://spark.adobe.com/page/8Chy9GiLIGItP/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/8Chy9GiLIGItP/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

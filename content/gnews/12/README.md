@@ -1,46 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 读《利维坦》有感——关于人的探究(OF MAN)-1
-` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/656246/)
+## 中共及其黑暗势力对美国进行大面积网络攻击，偷窃核心数据
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/656262/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16093016/%E8%AF%BB%E3%80%8A%E5%88%A9%E7%BB%B4%E5%9D%A6%E3%80%8B%E6%9C%89%E6%84%9F.png)
-作者： 勉强生#3186(京都富士会)
+作者：freedust；校对/审核：海阔天空；Page：拱卒
+[!\[\]()!\[\](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/88458ac7-ad7d-4f9f-92ad-7d449c05348b.jpg?asset_id=6b1d906c-7559-4561-b0a2-e7f0c650e752&amp;img_etag=%2297651d73e12b050f635c8c4258f3e198%22&amp;size=1024)](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/88458ac7-ad7d-4f9f-92ad-7d449c05348b.jpg?asset_id=6b1d906c-7559-4561-b0a2-e7f0c650e752&amp;img_etag=%2297651d73e12b050f635c8c4258f3e198%22&amp;size=1024)
+**2020年12月14日 美国网络安全和基础设施安全局发出紧急指令21-01，呼吁所有联邦民用机构检查其网络是否有损坏迹象，并立即断开或关闭SolarWinds Orion产品。**
 
-校对： 待命（文晓）（京都富士会）
+[!\[\]()!\[\](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/38ba1313-4a46-4cfd-a107-401487bd564d.png?asset_id=b07e701b-a1cb-44f0-b9d5-b58bfe9c9c8e&amp;img_etag=%221729a15f5625e016402c3dccd4b4bc80%22&amp;size=2560)](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/38ba1313-4a46-4cfd-a107-401487bd564d.png?asset_id=b07e701b-a1cb-44f0-b9d5-b58bfe9c9c8e&amp;img_etag=%221729a15f5625e016402c3dccd4b4bc80%22&amp;size=1024)
 
-排版： 山頂之風（京都富士会）
+**据《路透社》公布这是一起严重的“黑客事件”，以至于美国国家安全委员会上周六为此在白宫召开了一次会议。**美国官员没有公开发表过多言论，只是美国商务部证实其一个机构受到了攻击，并表示他们已要求美国网络安全和基础设施安全局(Cybersecurity and Infrastructure Security Agency，简称CISA)和美国联邦调查局(FBI)展开调查。
 
-## 前言
+[《路透社》原文](https://www.reuters.com/article/us-usa-cyber-amazon-com-exclsuive/exclusive-u-s-treasury-breached-by-hackers-backed-by-foreign-government-sources-idUSKBN28N0PG)
 
-经过一年多以来对“爆料革命”的持续关注和跟踪，虽然根本目的是要在中华大地上实现推翻共产党统治的世纪胜利，但不得不说美国是这场即将到来的“千百年来未有之变局”的极为重要的角力场。经历中美贸易争端、香港抗争运动、新冠病毒大流行以及现在正在如火如荼上演的美国大选大戏一次次的历史事件，让一个原本对西方政治制度懵懂的我也从不了解美国的体制到了解参议院、众议院以及白宫等国家机器机构扮演的各自不同的角色；从理所当然地以为川普总统作为一国的元首掌“天下生杀大权”到明白他也必须在美国政治生态中面对各种力量时妥协和迂回的无奈；从迷信美国作为民主灯塔完美无垢到分明看清了美国自由女神像光明的外表下深深的黑暗湖水的搅动。
+SolarWinds的客户包括美国财富500强中多于425家企业，美国前10 的电信公司、美国军方、五角大楼、国务院、美国航空航天局、美国国家安全局、邮政服务、美国司法部、美国总统办公室、美国五大会计事务所及数百所遍布全球的大学。
 
-因此，我有了想从经典的西方政治哲学书籍中一窥西方政治文明的起源的动机，想从理论上来理解为什么以美国为首的西方国家会是这样建立和运行，为什么美国的民众和政府之间的关系和中国的情况如此的不同，同时也为在不远的将来当共产党在神州大地烟消云散后中国人应该学会怎么看待人民、政府和国家之间的关系，避免重复千百年来的灾难打下一个坚实正确的世界观。
+[!\[\]()!\[\](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/db458b5d-7794-48cb-b3e4-cdb5fc7511d1.png?asset_id=aa4be2ab-3542-4406-996f-08f2697b24c1&amp;img_etag=%220128887845c17a3df6ec1be0b36d6e4e%22&amp;size=2560)](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/db458b5d-7794-48cb-b3e4-cdb5fc7511d1.png?asset_id=aa4be2ab-3542-4406-996f-08f2697b24c1&amp;img_etag=%220128887845c17a3df6ec1be0b36d6e4e%22&amp;size=1024)
 
-我选择的第一本书是英国政治家、哲学家托马斯·霍布斯(Thomas Hobbes)在17世纪写就的《利维坦》一书，经过半年多陆陆续续的阅读，有种醍醐灌顶，豁然开朗的感觉，这种收获感激励我整理一系列的读后感与各位战友分享，希冀能打开大家的思路，坚定大家奋斗的信心，在柔软感性的灭共激情上撒上坚实理性的科学的种子。我以为，未来的中国是否能变成我们希望的样子，作为走在时代前沿的爆料革命战友、新中国联邦公民，有义务不断提高自己，毕竟就像郭文贵先生说的，“中国人的软弱和愚昧造就了今天的疯狂的共产党”，那么同理未来勇敢和聪明的中国人也必将推出一个真正代表全体人民的统治者(sovereign)。关键还是我们自己！
+**文件是通过复杂的操作植入**SolarWinds的文件中，通过后门进入系统后被触发的。
 
-## 正文
+[!\[\]()!\[\](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/f487772a-7d5e-4dc1-a427-962991c4b85b.jpg?asset_id=d9051115-e7c5-4694-a1ad-1ce2ae2ecfc5&amp;img_etag=%222d5a9c8f9efc90a20f0d366799cfa857%22&amp;size=2560)](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/f487772a-7d5e-4dc1-a427-962991c4b85b.jpg?asset_id=d9051115-e7c5-4694-a1ad-1ce2ae2ecfc5&amp;img_etag=%222d5a9c8f9efc90a20f0d366799cfa857%22&amp;size=1024)
 
-一如西方文明中闪耀的科学所表现出来的品质，托马斯·霍布斯在论述国家这样的看似感性的问题时，也秉承了由点及面，丝丝入扣的严密逻辑的论述思路。我们都知道国家是由人组成的，为了说明国家应该是怎样组织？其权利和义务有哪些？理所当然的，十分有必要对“人”这个我们再熟悉不过的词一起随着作者的思路重新认识一遍，相信你一定也会从中有些启示。
+**表面上，我们看起来似乎，SolarWinds是此次黑客事件的受害者，将为此蒙受巨大损失，但另一些信息似乎为我们透露了另一种可能。**
 
-首先，作者在第二章(CHAPTER II. OF IMAGINATION)中指出人的思维的运动(Thoughts)不是一种无由的运动，而是受制于人自身的器官构造和外界刺激的可认识的物理运动。其基本的概念由如下图给出：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16094304/1-117.png)
-我们可以看出，人的思维活动根本是对外界的感知，作者经过一个个定义拨开了人的思想运动的朦胧的面纱，为认识“人”提供了一个起点。虽然作者指出很多地方人和其他动物没有本质上的区别，但他还是指出人之所以为人与其他生物能区别出来，是由于人类拥有“特有的理解”(Special Understanding)这个高级的思维运动，基于此才发展出了人类的文明，也承认了人的特殊性。而对于何谓“特有的理解”，我在后面的系列文章会逐一分析。
+我们查到SolarWinds在2016年被以科技为重点的私募股权公司Thoma Bravo LLC和Silver Lake Partners以45亿美元的价格私有化。上市后，银湖和布拉沃将拥有大约88%的股权，使SolarWinds成为一家控股公司。两家公司都保留了董事会的职位。而Silver Lake Partners对与中共有千丝万缕联系的阿里巴巴集团进行了投资。
 
-顺带提一句，因为承认人的思维活动是基于感知，而感官能感受的都是有限的东西，没有人能跳脱感官产生内心行为，所以我们内心任何的想象都是“有限”的，即我们不能真正理解“无限”的概念。这一点在宗教信仰中尤为明显，比如我们用“GOD”来称呼上帝，不是说我们用这个词或者概念将它放入我们的想象中，而仅仅是通过这个词来荣誉他(因为他是万能的(Almigthty)，不可理解的( Incomprehensible))。关于宗教这方面的内容以后继续深入讨论。
+在一篇援引自Bloomberg的文章中说，蚂蚁金服的IPO，将为众多美国私募股权投资公司带来丰厚收益。据一位不愿透露姓名的知情人士表示，Silver Lake Management LLC, Warburg Pincus LLC, and Carlyle Group Inc.是蚂蚁金服2018年最新一轮融资的美国最大投资者，分别向其投资了至少5亿美元。
 
-以上这些概念是后续一切讨论的开始。
+[《布隆伯格网》原文](https://www.bloomberg.com/news/articles/2020-07-29/silver-lake-warburg-carlyle-poised-for-gains-from-ant-s-ipo)
 
-接着上面的概念，作者继续在第三章(CHAPTER III. OF THE CONSEQUENCE OR TRAYNE OF IMAGINATIONS)对想象(imagination)展开了更为深入的论述，从另一个纬度剖析了想象：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16093509/2-28.png)
-从上图可看出，所谓的“思维活动”，本质上是一个有一个想象的有序显现，如果无序的话根本也不会有自然中各种生物有规律地行动方式，而这也是无法想象的事情，与现实观察矛盾的。同样的，作者特别指出了精明(Prudence)的概念中极为重要的两大特点：主观性和后验性——即没有绝对的精明的人，也不能在最终的结果出现前说一个人是精明的，人们只能在追求精明的过程中让自己无限趋近。而且作者特别指出精明(Prudence)不是区分人和其他动物的特质，作为一个天然利己的生物(包括人)都会天然地利用自己的记忆(Remembrance)和观察到的迹象(Signs)来对未来做估计，从而让某件事的后果更符合自己的预期。
+Silver Lake通过三个主要业务开展业务，所有业务均专注于技术投资：Silver Lake Partners对大型科技公司和高科技公司进行私募股权投资。 Silver Lake Partners占公司管理资产的大部分。
 
-精明(Prudence)是一个简单但极为重要的概念。下至拥有神工鬼斧般精妙技艺的各业巧匠，上至位居庙堂胸怀佐国之谋的封疆大吏，就他们所从事的事情来说，本质上都是在各自的领域内拥有最多的经验也是最为精明的人。也就是说，人人都可以在各种领域表现出精明，既然在杀猪这个事情上一个人可以达到庖丁解牛的程度，那么这个人自然也可以在治国安邦这件事情上达到如烹小鲜的水平。
+Silver Lake成立于1999年，他的创始人中有来自黑石集团的Glenn Hutchins，曾在克林顿政府早期担任经济和医疗政策特别顾问。
 
-因为精明本身只是利用了人天然的想象的能力，经过长时间的经验的不断积累获得的品质，而想象的能力是每个人都有的，甚至也是动物拥有的能力。从而继续可以引申出：各行各业的人所从事的工作没有高低之分，仅仅是因为个人的偏好、境遇造成了他们所处的行业的不同(比如有些人天生喜欢统御他人，那么他可能时刻观察和获取公共管理的经验，进而从事政治；有人家境困难且辍学参与水电工作，长时间的锻炼后他获得了该行业内的精明)
+（来自维基百科）
 
-也许你会不同意每个人都可能在各个行业达到精明的程度，比如在现实中观察到从事某些行业的人可能相较于其他行业的人更为“优秀”(比如在实验室从事科研工作的研究员比扫大街的环卫工人显得更聪明)，但这里需要指出，精明这个品质无关一个人的情感偏好以及推理能力、道德水平的高低。引入“精明”这个概念，不是说人人都可以去坐在中南海的会议堂里指点江山，因为他可能没有对于治国方面的经验和正确的想象，这里只是承认了这种可能，即如果保持其他条件一致，那么每个人都有达到精明的机会，而且无需人的其他能力即可获得不错的结果。这种认识的后果和影响是多方面的：①为区分了理性的科学和经验的精明提供了基础 ②间接提供了人人平等的依据 ③由于精明的主观性和后验性，理所当然不存在永远正确的政府，而且每个人都有参政的潜在的能力 ④最为重要的，纠正中国人深埋在骨子里的对三皇五帝、青天大老爷这些手握公共权力超乎普通人的错误认识，为正确看待统治者(政客、法官、官员等)与被统治者(民众)之间的关系提供了理论依据。这种关系以后具体分析。
+Silver Lake与大选舞弊的Dominion公司的金主Carlyle Group Inc.也曾有多次合作投资的经历。
 
-关于精明(Prudence)以及其他衍生的讨论，还有很多内容需要理清，这些内容我会继续撰文说明。百年前的西方先贤给我们留下了完全不同于东方文明的看世界的角度，值此新旧世界交替、灭共的关键时期，我们更应该用思想武装自己的头脑，才能不至于在纷繁错乱的世界浪潮中迷失了自己。如果你对此有兴趣，请关注后续的系列文章，当然，最好是你自己拿起一本好书细细品读，你会发现不一样的世界的。
+SolarWinds首席执行官凯文·汤普森（Kevin Thompson）在一份声明中表示:“我们认为，这一漏洞是由一个国家对供应链实施的高度复杂、有针对性的人工攻击造成的。”
 
+而网络安全专家表示SolarWinds的漏洞将为黑客提供进入网络的“上帝模式”，使一切都可见。
+
+[**KXAN原文**](https://www.kxan.com/news/local/austin/austin-based-solarwinds-at-center-of-massive-us-government-hack/amp/)
+
+而SolarWinds总监在上周CISA宣布之前，售出了4,570万美元的股票期权。
+
+[**《网络观察家》原文**](https://www.thegatewaypundit.com/2020/12/revealed-solarwinds-director-sold-45-7-million-stock-options-last-week-cisa-announcement-sunday/?utm_source=Twitter&amp;utm_campaign=websitesharingbuttons)
+
+尽管有些媒体及一些官方声音将此次黑客事件指向俄罗斯，但据以上种种信息看来，中共在此次的事件中一定扮演了极其重要的角色，这又是一个中共及其勾兑的黑暗势力埋藏在美国的深度沼泽，而这一次事件的定性及影响，在超限战的范畴来看，更接近一次军事行动。
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/QpAUgJzNBR1Fb/)
+[!\[\]()!\[\](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/QpAUgJzNBR1Fb/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

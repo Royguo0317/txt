@@ -1,49 +1,91 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵说｜系列图片连载（七十七）
-` GM98` [轉載自GNews](https://gnews.org/zh-hans/656014/)
+## 风暴在路上&#8212;&#8211;记在德州被否决后
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/656063/)
 
-## 533.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16083906/2025-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16084138/4003.png)
-你在美国享受这蓝天白云。你必须尊重这个法律系统，不要有任何侥幸心理。
+作者：xiaopan；校对：宁缺；审核：海阔天空；Page：拱卒
 
-——郭文贵先生 2020年8月21日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16085048/115180621_day_2_graphics_promo_976-nc_3.jpg)
 
-## 534.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16083941/2027.png)
-一个人没看透生死，看透荣华富贵，解决不了性的需要和金钱的需要，你干不了大事。
+所有静悄悄的期盼
 
-——郭文贵先生 2020年8月21日
+看似又像一场空谈
 
-## 535.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16083956/4001.png)
-永远赢的一定不是战争，永远赢的一定是骗局。哪有你永远赢的时候？
+北半球的寒冬里
 
-——郭文贵先生 2020年8月21日
+枯叶飘落得凄凄惨惨
 
-## 536.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16084030/4002.png)
-你必须要接受人生是无常的这个事实，你才能说追求信仰，过着与常人不一样的生活。
+当现实在浓雾中显露狰狞
 
-——郭文贵先生 2020年8月21日
+恶魔的身躯遮天蔽日
 
-## 537.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16084154/4004-scaled.jpg)
-共产党露出自己的凶器，你就会让世界感觉到恐惧。我相信西方人对付恐惧的办法绝对不是躲起来，他一定是迎头而战，将你这个恐惧的根源消灭！
+理想啊
 
-——郭文贵先生 2020年8月21日
+就如同暴风雪中的小枝丫
 
-## 538.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16084238/4005-scaled.jpg)
-这个世界上，正在威胁这人类的共产党和共产主义。对正义、对善良、所带来的威胁。我们更加的要坚定灭共，更加要同时看到建造独立的法治系统。多重要！还有我们必须要守法，唯真不破。
+摇摇欲断
 
-——郭文贵先生 2020年8月21日
+却又似乎宁折不弯
 
-## 539.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16084250/4006.jpg)
-班农事件更加坚定了我们新中国联邦要的法治、民主、信仰独立的社会。
+你可看到人民在聚集
 
-——郭文贵先生 2020年8月22日
+正义在呼喊
 
+如果大地在黑暗里长眠
+
+请相信
+
+有彗星来燃亮天空
+
+阴暗的乌云延续到天际
+
+有煞白的雪花飘下
+
+层层叠叠 漫天起舞
+
+头顶的天幕总会砸下来
+
+覆盖住所有的不堪
+
+或美好
+
+剩下的就是等待
+
+等待阳光侵蚀
+
+溶解
+
+清洗
+
+让整个沼泽开始翻滚
+
+沸腾
+
+会有雷声在冬日想起
+
+会有弹夹被压满
+
+会有枪栓跳动
+
+车辆在大路上长鸣
+
+脚步在小路上奔跑
+
+你可听到人民在怒吼
+
+正义在咆哮
+
+如果黑暗不退
+
+整个天地将颤抖
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/8Chy9GiLIGItP/)
+[!\[\]()!\[\](https://spark.adobe.com/page/8Chy9GiLIGItP/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/8Chy9GiLIGItP/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

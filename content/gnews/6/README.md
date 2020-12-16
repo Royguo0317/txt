@@ -1,23 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】Newsmax令人跌破眼镜，开始对所谓的“当选总统”乔·拜登表达暧昧
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/656208/)
+## “这是一个RICO案” ––菲顿谈亨特·拜登刑事案件
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/656451/)
 
-作者：香草山写作组 七芒星； 校对/发稿：村北
-
-据Populist Press新闻网12月15日消息，由于上个月发生的大选欺诈事件，Newsmax新闻曾因支持川普总统而名声大噪。相对于主流媒体福克斯新闻因为背叛川普总统及其支持者的收视率大降，Newsmax的收视率获得了令人难以置信的提升。然而，最近Newsmax的行为却另人大跌眼镜。
-
-Newsmax的发言人向《国会山报》表示，由于选举团的投票，乔·拜登是“当选总统”，在Newsmax中将被称为“当选总统“。 尽管发言人同时也说到 “我们也认识到川普总统继续对结果进行辩论，我们将涵盖该新闻报导的各个方面”。 Newsmax的表态与参议院多数党领袖麦康奈尔的表态发生在同一天。麦康纳尔在15日公开发布讲话祝贺了乔·拜登当选总统。
-
-作为新贵右翼新闻媒体Newsmax突然而出人意料地崛起，然后又突然的投降，使人不难理解其背后控制力量隐藏如此之深，先是表面支持川普总统以博得正义力量的认可，然后突然转向开始以“当选总统”称呼拜登，有效地参与了民主党颜色革命政变背后的宣传运动，正在事实推翻宪法和人权法案。
+- 编辑：Victor Torres
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+**西班牙2020年12月16日电/西喜社/**——
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+汤姆·菲顿（Tom Fitton）周二晚在Newsmax上接受采访，他分享了有关亨特·拜登（Hunter Biden）和拜登家族（Biden Family）腐败并且与中国有联系的观点。 他说，参与外国犯罪活动的个人绝对不可能靠近白宫。
+菲顿是美国保守主义者和司法观察组织的主席。以挺川普的言论而闻名。
+他对Newsmax说：
+“这是对新闻报道的腐败镇压，以帮助受偏袒的政治候选人。 这不仅是亨特·拜登的丑闻和乔·拜登的丑闻，而且我猜是拜登副总统的兄弟詹姆斯·拜登的丑闻。 这是FBI的丑闻，是司法部的丑闻，因为他们在大选之前就掩盖了这一点。”
+“这是国会丑闻。 记得亚当·希夫（Adam Schiff）曾试图将川普总统免职，因为川普对拜登（Biden）确凿的腐败行为提出了问题。 现在是媒体，我们应该相信媒体对这一丑闻的分析。 我告诉你，美国人民受到那些声称要代表他们的媒体的虐待。 您不能相信媒体会告诉您任何事情的真相。”
+拜登家族的人腐败而恶心。 在大选前我们就知道：拜登（Biden）正在与中国一起对抗美国。 他们永远不应该在白宫附近，尤其是在与反美实体合作窃取2020年大选之后。
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+新闻来源：[https://www.thegatewaypundit.com/2020/12/rico-case-involves-potentially-incoming-president-united-states-assuming-installed-tom-fitton-hunter-bidens-criminal-case/](https://www.thegatewaypundit.com/2020/12/rico-case-involves-potentially-incoming-president-united-states-assuming-installed-tom-fitton-hunter-bidens-criminal-case/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0
