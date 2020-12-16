@@ -1,25 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 布莱克本推特配图“习维尼”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/656981/)
+## 巴尔的辞职信似乎可以嗅到狐狸的味道
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/657007/)
 
-- 编辑：Victor Torres
+***作者: 此心不变、海阔天空; 校对: 宁缺; 审核：海阔天空; PAGE：玄天生***
 
+[!\[\]()!\[\](https://spark.adobe.com/page/OrgxiX1grSW2h/images/053ef62d-90c9-4e2c-8fd6-59e37501a18c.png?asset_id=b7ea9ae2-009a-4751-8b2f-c94edd7e93ce&amp;img_etag=%226c54ed806fd4488056671eb413978535%22&amp;size=1024)](https://spark.adobe.com/page/OrgxiX1grSW2h/images/053ef62d-90c9-4e2c-8fd6-59e37501a18c.png?asset_id=b7ea9ae2-009a-4751-8b2f-c94edd7e93ce&amp;img_etag=%226c54ed806fd4488056671eb413978535%22&amp;size=1024)
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+川普总统在推特上说，刚刚在白宫与司法部长比尔·巴尔(Bill Barr) 进行了非常愉快的会面。我们的关系一直很好，他做得很出色！ 如信中所说，比尔将在圣诞节前离开，好与他的家人一起度过这个假期……司法部副部长杰夫·罗森 (Jeff Rosen)，一个出类拔萃的人，将成为代理司法部长。 备受尊敬的理查德·多诺休 (Richard Donoghue)将接任司法部副部长的职务。 谢谢你们所有人！ （附巴尔的辞职信）
 
-**西班牙2020年12月16日电/西喜社/**——玛莎•布莱克本参议员今天发布了一条有趣的推特，批评中共的言论审查。
-她说:“言论自由就是可以在推特上发这张习近平像维尼熊的照片。如果你在共产中国这样做，你会被逮捕。”
-小编觉得配图不错，您呢?
+巴尔的辞职信写得令人大跌眼镜。辞职信原文译文如下：
 
+尊敬的总统先生：
 
+感谢您今天给我机会向您汇报司法部审查大选舞弊的指控。司法部的调查将继续进行。当我们的国家如此分裂的时候，确保选举公正，提升公众对选举的信任，是各级政府和每个部门的职责。您任命我司法部长，我深感荣幸。您为美国人民做了很多，创下了前所未有的功绩，我为能够助你一臂之力而自豪。
 
-> Freedom of speech is being able to tweet this photo of Xi Jinping looking like Winnie. If you did this in Communist China, you’d be arrested. [pic.twitter.com/0AnVtA3JYM](https://t.co/0AnVtA3JYM)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [December 16, 2020](https://twitter.com/MarshaBlackburn/status/1339270050168131597?ref_src=twsrc%5Etfw)
+面对无休无止和不可逾越的阻力，您的成就更是史无前例的。您在2016年获胜感言中向对手抛出橄榄枝，呼吁团结，共同为美国人民奋斗，但是随即遭遇的却是无所不用其极的迫害，手段极其残酷和狡诈。打破底线的做法，是通俄门，试图瘫痪，甚至夺取您的政府…
 
+没有谁能够抵御这些攻击，更别说一往直前为这个国家拼搏了。您创建了美国历史上最强大和坚韧的经济 – 为那些被遗忘的人带来了前所未有的改善；您重建了美军的实力。中东和平协议，是绝大多数人认为不可思议的事，您做到了；您消减了非法移民，巩固了边境；您任命了尊重宪法的法官，数量之多创下历史记录，为法制的前行铺平了道路。通过神速计划，您推出了新冠疫苗，速度之快超出任何人的想象，无疑会挽救数百万人的生命。司法部一直在不遗余力地工作，保护民众不受暴力伤害，跟墨西哥密切合作打击毒枭，严厉打击中国针对我们的工人和经济占便宜的行为，保护市场竞争，特别是高科技领域，大力支持执法人员。他们无私地冒着生命危险保护民众，却得不到应有的感谢。
 
+正如我们讨论的一样，下周我会把几件重要的事收尾，然后在12月23号离职。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+祝您和梅拉尼亚，还有全家，圣诞快乐，节日愉快！
 
+上帝保佑
+
+威廉姆斯·巴尔 司法部长， 2020年12月14日
+
+[!\[\]()!\[\](https://spark.adobe.com/page/OrgxiX1grSW2h/images/d5783d78-350c-4f63-a972-e093da55e689.jpg?asset_id=4956b6dc-3aaf-4963-99ec-c6c9764dc3a7&amp;img_etag=%220444e012b34a26286f301db6b3c8f054%22&amp;size=1024)](https://spark.adobe.com/page/OrgxiX1grSW2h/images/d5783d78-350c-4f63-a972-e093da55e689.jpg?asset_id=4956b6dc-3aaf-4963-99ec-c6c9764dc3a7&amp;img_etag=%220444e012b34a26286f301db6b3c8f054%22&amp;size=1024)
+
+这封信是巴尔辞职离开后在没有压力的情况下写给川普的，接近他真实的内心世界。巴尔在信中没有阐述自己对选举欺诈的观点，可能因为他不想得罪Deep State。但他却毫无掩饰地盛赞川普，而且是在Deep State要通过选举团司法认证拜登获胜的这个时间点上，这对Deep State非常不利。
+
+巴尔在信中毫不吝啬对川普总统的赞美，认为川普的功绩在美国历史上完全起奠基作用。从巴尔的辞职信看出，他是非常非常佩服川普，但是他和最高法院川普提名的三位大法官一样，不想站队，是骑墙派。他曾说，若川普需要他的话，他愿意继续留下来，为美国人民服务。但是因为深度的利益捆绑，巴尔没有十足的勇气，没有办法配合川普总统接下来的雷霆行动。
+
+巴尔的信主流媒体无一刊登，说明巴尔不与Deep State处于同一战线。这点也可以从巴尔任命达勒姆特别检察官这一举动上得以验证。因为未来若拜登政府真的上台，这个达勒姆特别检察官就是个甩不掉的定时炸弹，所以当时左派媒体说巴尔很狡猾。但美国政治的沼泽过深，对于明哲保身的巴尔来说，还是选择了退出这场政治游戏。
+
+在这份信里，巴尔直言不讳追究大选舞弊，各级政府都有责任，将烫手山芋扔出去了，也为日后可能针对自己的调查开脱。同时巴尔也为自己的司法部鸣冤，希望川普总统最后能对司法部手下留情。对于老谋深算的巴尔来说，估计已经嗅到了川普胜利的味道，也给自己留下伏笔，免得秋后算帐。
+
+【文章仅代表作者观点】
+
+编辑 【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/OrgxiX1grSW2h/)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
+[!\[\]()!\[\](https://spark.adobe.com/page/OrgxiX1grSW2h/images/21435358-65fb-48dd-aada-6137b51594b2.jpg?asset_id=0e71eea4-4060-4cb7-b2dc-91520bceb514&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/OrgxiX1grSW2h/images/21435358-65fb-48dd-aada-6137b51594b2.jpg?asset_id=0e71eea4-4060-4cb7-b2dc-91520bceb514&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

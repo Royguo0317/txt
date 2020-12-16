@@ -1,21 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 华为狸猫换太子，但是终究还是走向死亡
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/656771/)
+## “还未到放弃之时”&#8212;-川普致麦康奈尔
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/656853/)
 
-撰稿：澳喜战友
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16121914/IMG_5177-2.jpg)网络截图
-华为作为中共的帮凶，在中共拓展海外过程中不得不说起到了至关重要的作用，但是随着美国对华为的技术制裁。随后首当其冲的就是华为子品牌的手机荣耀，高端手机的芯片无法获得台积电的订单，导致发布会开完后，市场上的的货奇缺无比，但是中共在借助这边被制裁的事情，还不忘在墙内把老百姓进行一波洗脑，华为打着所谓的“爱国情怀”再继续收割墙内韭菜。
+- 编辑：Victor Torres
 
-随后荣耀迫于芯片的供应压力无法持续生产，被迫进行拍卖，其实懂得情况的人，都知道，这是中共把荣耀进行一次包装，让一批国资委拉接盘。第一：对于墙内继续洗脑，让百姓知道国家的伪强大；第二：对美国及西方正义力量制裁进行偷换概念，想继续进行行骗偷盗。
 
-但是在最近一篇墙内技术论坛52RD的上面出现一篇《即将获售高通，联发科芯片，荣耀要超越华为做国内第一》的文章让我们又多了一些思考。文章中荣耀CEO赵明在北京，西安，深圳做了三场员工沟通会，只是谈心，根本没有谈及具体的战略和打法。脑瓜稍微清晰的人都知道，即使你更换一身伪装，怎么可能逃避开美国的精准打击和制裁，后面搞不定电子器件和操作系统，照样依旧，只是后面能残喘多久而已。如果你们不能跟邪恶的中共进行彻底切割，想继续在中共的控制下去偷盗和监控世界，是根本不可能的。无论怎么在墙内的媒体进行宣传，综合来看荣耀的路就是随后整个华为要走的灭亡之路。在此奉劝那些跟中共沆瀣一气的企业尽快进行切割，否则就是文贵先生那就话，跟着共产党，走进火葬场。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-（本文纯属个人观点）
+**西班牙2020年12月16日电/西喜社/**——
 
-澳喜文章[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+川普总统周三上午，告诉参议院多数党领袖麦康奈尔，还未到放弃选举的时候。
+川普在推特上向麦康奈尔发推文说：“米奇（Mitch），有7千5百万票，这是在任总统的记录（很多）。” “太早放弃了。共和党必须最终学会战斗。人们很生气！”
+川普的推文针对麦康奈尔祝贺拜登当选的表态。
 
-欢迎加入澳喜农场：[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16050459/%E6%BE%B3%E5%96%9C%E4%BA%8C%E7%BB%B4%E7%A0%81-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16050431/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%87-1.jpg)
+- 新闻来源：[https://www.newsmax.com/t/newsmax/article/1001769/1](https://www.newsmax.com/t/newsmax/article/1001769/1)
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+
 0

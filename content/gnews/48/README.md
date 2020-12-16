@@ -1,33 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美医学会对羟氯喹预防令进行表决 结果令人失望
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/656597/)
+## 谈密执安州法官的勇敢行为
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/656687/)
 
-加拿大多伦多枫叶农场 向真
+作者：此心不变；校对：宁缺；审核：海阔天空；Page：拱卒
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16111324/H.png)图片来自 Yahoo Canada Style
-12月15日，吉姆·霍夫在《门道专家》（GATEWAY PUNDIT）上撰文报道，美国医学会（AMA）对羟氯喹预防令进行了表决，但表决结果令人失望地维持原状，没有取消之前反对在治疗新冠病毒患者中使用羟氯喹（HCQ），还不允许医生自行决定是否使用该药物。 【1】
+[!\[\]()!\[\](https://spark.adobe.com/page/COqzXfePmcMkO/images/8a0a6d59-cdb9-4dbe-bd66-ffef81ad9d7b.jpg?asset_id=faa122e2-351f-4d25-8af2-fa82013c0c0a&amp;img_etag=%22b8f42139fd588efb8cbfcbf69ea10824%22&amp;size=1024)](https://spark.adobe.com/page/COqzXfePmcMkO/images/8a0a6d59-cdb9-4dbe-bd66-ffef81ad9d7b.jpg?asset_id=faa122e2-351f-4d25-8af2-fa82013c0c0a&amp;img_etag=%22b8f42139fd588efb8cbfcbf69ea10824%22&amp;size=1024)
 
-由福奇领导的AMA，此前一直打击这种有效药物。该组织于今年3月禁止医生将羟氯喹用于新冠病毒早期治疗，他们声称，没有证据表明它对治疗新冠病毒有效，使用HCQ可能是有害的。
+密执安州法官授予律师Matt DePerno许可发布Antrim Co.的16台Dominion投票机的法医检查结果：
 
-在10月30日发布的AMA备忘录第18页（第509号决议，第3页）中，该组织改变了其对HCQ的立场，指出其潜在的好处目前可能会取代任何潜在的有害副作用的威胁。但AMA的投票拒绝了这个509号决议。
+1. 经过查证，机器错误率高达68.5%；
+2. 有些不正式的票需要裁决，但是没有这个裁决的纪录；
+3. Dominion机器被发现曾经与互联网连接过，这是违法的；
+4. 还发现有一个user进入Dominion机器意图修改过结果。
 
-享誉世界的病毒专家闫丽梦博士，早早于今年2月通过路德节目，就向全世界公开推荐廉价有效的羟氯喹，用于冠状病毒的预防和早期治疗，川普总统也认可并推荐这种药物。据可靠资料，一旦检测呈阳性或出现症状，如果服用羟氯喹和阿奇霉素、锌的组合配方，住院抢救的风险降低80%以上，此前，如果这种药物被允许使用，许多的生命本可以得到挽救。
 
-美国参议院于今年12月8日举行了关于羟氯喹的听证会【2】 ，出席听证会的医疗专家介绍，印度和美国相比，人口密度要大很多，病毒传播也比美国严重。印度每100万人感染中共病毒，死亡100人；美国每感染100万人，死亡800人，高出印度7倍。原因是印度在发现病毒后，就使用羟氯喹为主的鸡尾酒疗法，让病毒感染者在家服用治疗，他们就是通过这种办法控制住了疫情。以上事实，印度的顶级医生愿意来美国作证。
+**新闻来源：**[https://www.thegatewaypundit.com/2020/12/breaking-bombshell-mi-judge-grants-attorney-matt-deperno-permission-release-results-forensic-examination-16-dominion-voting-machines-antrim-co-video/](https://www.thegatewaypundit.com/2020/12/breaking-bombshell-mi-judge-grants-attorney-matt-deperno-permission-release-results-forensic-examination-16-dominion-voting-machines-antrim-co-video/)
 
-这位医疗专家进一步指出，造成严重后果的主要原因是学术界的渎职，两篇发表在顶级医学杂志《柳叶刀》和《新英格内科医学杂志》上的文章，造成了医疗界和读者对羟氯喹的恐惧。此后又有类似的几十篇文章发表，是想作恶而不顾羟氯喹益处的人发表的，他们犯下了学术欺诈罪，“我认为他们正在犯下反人类罪”，这背后肯定有某种动机。 【3】
+这真是巨大的好消息，虽然目前还不知道最后的结果对2020年大选的影响力会有多大。因为恶势力完全不顾一切耍流氓，他们对正常人的胡搅盲缠和极端恐吓会严重扭曲司法公平正义。
 
-毫无疑问，背后的黑手是中共。可怕的是，全美国甚至全世界所谓的医学、科学“精英”们几乎都像福奇那样罔顾事实，站在中共帮凶的一边。在人类面临生死存亡的关键时刻，像闫丽梦博士这样的英雄挺身而出，还有极少数美国正义的医生们在不懈努力，美国医学会还没有纠正他们的错误。
+这个法官在恶势力的重压之下，能迅速做出这样勇敢的决定，伟大之极，让人钦佩。这个结果不仅能让密执安州将那几个以恐吓为手段阻扰公布结果的恶人定罪，而且还能佐证在这次大选中所有dominion机器都涉嫌欺诈。在调查过程中，密执安州总检察长十分疯狂，一度威胁要吊销这个律师的执业执照。
 
-参考链接：
+此项检查结果公布后，按照法律的要求，所有使用该dominion机器的州都不应该认证拜登，否则就是犯法，并且所有使用过dominion机器的州应该对该州的所有dominion机器进行检测，以确定是不是同样存在欺诈。别看它是个小case，虽然只是一个居民通过他的律师告了dominion机器的欺诈行为，也许最后能掀起巨大层浪，把整个选举结果推翻。Attorney Matthew DePerno 律师经州法官授权亮出证据，证明该州的投票机将投给川普的票翻转到拜登名下
 
-【1】https://www.thegatewaypundit.com/2020/12/american-medical-association-rescinds-hydroxychloroquine-prevention-order-many-people-died-hacks-wanted-hurt-trump/
+在美国，我们经常看到的都是一个一个个体的行为，一个小村民，一个小律师，去对抗整个Deep State。川普总统同样也是一个人，他没有动用国家机器，而是请他的律师团队帮他打不同的官司。这些律师也是个人的组合，跟小村民、小律师一样，这些个体在自己勇敢无畏的行动中，完整地体现了生命的意义和生命的本质。而每一个个体这样勇敢的行动，却能产生巨大的惊涛骇浪的效果。
 
-【2】  [https://twitter.com/drlimengyan1/status/1338887606415798285?s=](https://twitter.com/drlimengyan1/status/1338887606415798285?s=)
+所以，对于我们每一个人来说，我们都需要认识和尊重自己独一无二的存在，并能够独立地去认识世界，认识天理，并通过勇敢的行动去践行天理，这样我们就能够改变世界、与天同行、与神同行。
 
-【3】[https://twitter.com/g\_translators6/status/1338297343779725312?s=21](https://twitter.com/g_translators6/status/1338297343779725312?s=21)
+不知道川普总统是否拿到了这个得到法律背书的法医检查报告。希望这份报告尽早发给总统、副总统、国土安全部、国家情报中心，让正义早日得到彰显！
 
-1+
+【文章仅代表作者观点】
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/COqzXfePmcMkO/)
+[!\[\]()!\[\](https://spark.adobe.com/page/COqzXfePmcMkO/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/COqzXfePmcMkO/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+0

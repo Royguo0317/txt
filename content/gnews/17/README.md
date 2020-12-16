@@ -1,36 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 选举审计传票在亚利桑那州的命运
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/657181/)
+## 特鲁多的加拿大何去何从？
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/657172/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16153327/capture-121.jpg)图片来源： （[upload.wikimedia.org/](https://upload.wikimedia.org/wikipedia/commons/e/e2/Boss_Tweed%2C_Nast.jpg)）
-据《亚利桑那镜报》（AZ Mirror）12月14日报道，在唐纳德·川普(Donald Trump)总统和亚利桑那州共和党领袖广泛宣传选举舞弊之时，星期一，州立法会针对11月的大选召开了长达六小时的听证会，一名共和党高级参议员在听证会结束时宣布，亚利桑那州参议院将发出传票，检查和审计马里科帕县（Maricopa County）的计票机。
+加拿大多伦多枫叶农场 枫叶小哥
 
-报道指出，在州参议院司法委员会的听证会上，参议员们听取了该县选举主任、监事会主席、一名首席检察官关于2020年大选的证词，以及亚利桑那州总检察长选举廉政办公室两名官员的证词。他们作证说，没有证据表明拜登（Joe Biden）的胜利是通过欺诈、操纵或篡改实现的。
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16152718/T-5.jpg)图片来自 CTV News
+美国的总统世纪大选按部就班进入了冲刺阶段，1月20日就职典礼的主人已经没有悬念，川普总统将突破重重黑暗及沼泽地势力，开启第二任任期。作为美国最紧密的伙伴国家加拿大，过去一个月发生的事情让人捏把汗，让我们站在非主流媒体的视角看看它的总理特鲁多。
 
-尽管如此，委员会主席埃迪·法恩斯沃斯(Eddie Farnsworth)表示，他将发出传票，要求对多米诺（Dominion）投票机器——以及为其提供算法的软件——进行审计。他说，传票将“确保立法机构至少有一个适当的程序”来审查2020年选举的“真实性”。他补充说，立法会的传票将有助于恢复人们对选举没有“篡改、操纵和舞弊”的信心。
+2020年11月7日，在大选舞弊案的背景下，特鲁多迫不及待地恭喜拜登当选总统1，为其站台的意味明显。我们都知道，亨特·拜登的“硬盘门”事件彻底暴露了拜登家族和中共深度勾结，妄图“赤化”美国，控制全世界的野心，特鲁多是看不见还是假装看不见？
 
-报道认为，尚不清楚法恩斯沃斯是否可以利用立法机构的传票权力迫使进行这样的审计。州法律允许立法委员会就证人证词和相关文件发出传票，但似乎没有赋予委员会主席强迫另一个政府实体采取行动的权力。与民主党合作的律师吉姆·巴顿(Jim Barton)表示，“这似乎在法规中并不完全符合规定。”“我认为这在立法机构的权力范围内是值得怀疑的。”
+11月19日，鲍威尔（Sydney Powell）大律师公告美国大选舞弊调查进展2，金融大鳄索罗斯（George Soros）就是美国大选投票系统多米尼Dominion Voting System的背后力量，揭开了沼泽地鳄鱼的面纱。
 
-但一位未获授权的共和党参议员对媒体发表讲话表示，州法律允许传唤“证据”，并包括对证人未能“出示与传票有关的材料”进行处罚。这位共和党官员说，“立法传票的权力显然不仅限于令人信服的证词。”
+2020年12月13日，调查美国大选舞弊案的林·伍德（Lin Wood）大律师的推文证实3，中共联合美国的Deep State操纵偷窃美国大选；索罗斯和加拿大也卷入其中。作为加拿大总理的特鲁多，有没有参与其中？和背后的共产主义势力CCP有什么不为人知的秘密？
 
-报道指出，传票可能被证明是没有必要的，因为马里科帕县监事会主席克林特·希克曼（Clint Hickman）告诉委员会，他已经准备要求司法委员会其他成员批准由他们自己对投票机进行法医式审计，以及手工重新计票所有210万张选票。但这个计划在上周被搁置，因为一起质疑大选结果的案子被拒后立即上诉到了美国最高法院。
+12月11日，一则来源于真相媒体GNEWS.ORG的新闻4：加拿大政府意图训练中共CCP军队。 帮助独裁国家训练军队意味着什么？
 
-但是该县选举主任司各特·贾勒特（Scott Jarrett）说，在诉讼进行期间，不能完成对选票的审计和重新计票，因为机器和选票将会是潜在的证据。担任监事会法律顾问的副县检察官汤姆·利迪(Tom Liddy)表示，诉讼有可能在本周末之前全部结束，为监管者批准审计和重新计票扫清道路。利迪说：“我们必须等待这场诉讼结束，一旦诉讼结束，选举结束，监事会就有了更多的自由。”
+2020年美国大选是正义和邪恶之战，未来百年的人类文明的灯塔将再次站立。在这历史的十字路口，特鲁多选择和邪恶的共产主义站在一起，他的命运结局如何？加拿大何去何从？
 
-希克曼表示，马里科帕县希望与立法机构合作，解决人们对选举的担忧，但在这种控罪紧张的环境中很难沟通。他说：“当谈到这次选举的透明度和信心时，我们希望共同努力，我们希望合作。”
+以下的几则旧闻是不是能帮我们找到更多的蛛丝马迹？
 
-在听证会过程中，贾特勒和共和党人就多米诺投票系统是否篡改投票结果进行了辩论。有消息称，参与马里科帕县选举工作的两名多米诺公司员工与县选举官员一起篡改选举结果，或秘密编控选举机器，以改变有利于拜登的选票。对此，贾特勒反驳说，那些说法是没有根据的，“投票机没有连接到互联网，必须有两张相同的存储卡在完全相同的时间下才能操作，如果其中一张存储卡被取出或更换，机器将不会扫描任何选票。”
+2020年7月24日，特鲁多和索罗斯的照片中不难发现，谁是老师，谁是学生？5
 
-但是，太阳城（Sun City）共和党参议员里克·格雷(Rick Gray)指出，多米诺投票机安装有后门软件，可以篡改投票结果。同样，哈瓦苏湖市（Lake Havasu City）的共和党参议员桑尼·博雷利(Sonny Borrelli)也相信，多米诺员工可以通过公司的电脑进入马里科帕县购买的多米诺投票机。他告诉贾勒特，“没有任何电子设备是安全的。““如果人们想作弊，他们就会作弊。”“任何一台计算机都可以被编程来做各种事情。很难相信你这种说法：它不仅安全，而且百分之百准确。”
+2013年4月10日，特鲁多在Flickr的个人账号贴出其为多米尼投票系统（Dominon Voting System）站台。6
 
-报道指出，与选举廉政办公室合作的州助理总检察长詹妮弗·赖特(Jennifer Wright)表示，选举廉政办公室通过在线表格，收到了数千起关于选举的投诉。但其中大多数都不太具体，没有准确指出谁有欺诈行为或违反了亚利桑那州的法律。然而她证实，选举廉政办公室目前正在审查一项指控，即亚利桑那州有38人“不合法或非法投票”。她说，该办公室在12月8日收到了这份名单和对这些人的指控详情。
+2018年2月23日，一则新闻：特鲁多是古巴已故共产党领导人卡斯特罗的儿子7。这一切难道是巧合吗？
 
-[原文](https://www.azmirror.com/2020/12/14/arizona-senate-will-subpoena-maricopa-county-for-election-audit/)
 
-翻译：Wendy
 
-校对：文旺
+参考来源：
+
+1,[https://www.cbc.ca/news/politics/trudeau-congratulates-joe-biden-1.5794006](https://www.cbc.ca/news/politics/trudeau-congratulates-joe-biden-1.5794006)
+
+2,[https://niagaraindependent.ca/george-soros-and-his-canadian-chess-game-part-3/](https://niagaraindependent.ca/george-soros-and-his-canadian-chess-game-part-3/)
+
+3,[https://www.vice.com/en/article/n7vzqg/trumps-qanon-lawyer-inspired-even-more-george-soros-disinformation](https://www.vice.com/en/article/n7vzqg/trumps-qanon-lawyer-inspired-even-more-george-soros-disinformation)
+
+4,[https://nyulocal.com/new-world-university-justin-trudeau-is-fidel-castros-son-bccf01403a86](https://nyulocal.com/new-world-university-justin-trudeau-is-fidel-castros-son-bccf01403a86)
+
+5,[https://gnews.org/639940/](https://gnews.org/639940/)
+
+6,[https://twitter.com/llinwood/status/1338219546684121089](https://twitter.com/llinwood/status/1338219546684121089)
+
+7,[https://www.boomlive.in/world/justin-trudeaus-photo-linked-with-dominion-voting-fraud-claims-11074](https://www.boomlive.in/world/justin-trudeaus-photo-linked-with-dominion-voting-fraud-claims-11074)
 
 0

@@ -1,32 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 林伍德:麦康奈尔收了多米尼公司捐款
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/656717/)
+## 【热点播报】从提倡戴口罩，到禁止有功效的硫酸氢氯奎药，疫苗战交响曲?
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/656849/)
 
-- 编辑：Victor Torres
+作者：香草山写作组 Daxia 校对/发稿：飞虹
+
+据峰会新闻(Summit News )报道，众议院议长南希·佩洛西周二宣布，任何不戴口罩的众议院议员“将不会被承认”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16123302/1-120.png)
+佩洛西宣布，即使代表们说话，也不允许她摘下口罩，要距离任何人超过六英尺，她肯定会被贴上终极面具“凯伦”的烙印。
+
+佩洛西说：“关于冠状病毒大流行期间在众议院大厅戴口罩的问题。主席希望再次强调众议院诉讼期间安全做法的重要性。”
+
+佩洛西继续说：“……因此，现在众议院大厅将毫无例外地随时需要口罩，包括在成员获得承认期间。”
+
+佩洛西称，这是房间的秩序和礼仪问题。
+
+佩洛西又补充说：“需要澄清的是，除非会员戴着口罩，否则他们不会被认可，如果他们在说话时摘下口罩，他们的认可将被撤回。”
+
+佩洛西是终极口罩的倡导者，现在她似乎已经想好了如何正确佩戴口罩。2020**年**9**月**1**日：高风险年龄的卡利民主党人南希·佩洛西（**Nancy Pelosi**）享年**80岁，她一直在责骂美国，并向美国讲授戴口罩的必要性。然而，有些时候她似乎并不在乎。几周前她在旧金山一发廊中被发现没戴口罩，如下图：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16123505/2-29.png)
+同样，没有任何科学证据表明口罩可以防止冠状病毒的传播。丹麦一项关于口罩使用的大规模研究发现，口罩佩戴者和非口罩佩戴者之间的冠状病毒感染率没有统计学上的显着差异。 实际上，根据数据，使用口罩实际上可能会增加感染的可能性。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16123827/3-12.png)
+但来自东谷的共和党国会议员安迪·比格斯在推特上发帖说：“马里科帕县证明了口罩未能减缓传播速度。”比格斯随后列出了该县在夏季自要求戴口罩以来死亡人数和病例的增加。** **
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16124118/5-7.png)
+再结合12月16日路德社早间报道，美医疗界大佬福奇博士在五月份报告称，目前快速研发的疫苗存在很大风险，现在假煤宣布拜登当选，话锋又突转，而价廉高效的硫酸氢氯依然躺在仓库里(以往大量数据证明其药副作用极小，读者可以去自己查阅验证)，任死亡率上升却视而不见。不禁试问，这一系列的避重就轻，提倡戴口罩，禁止到目前唯一的有效药，难道是疫苗战的交响进行曲？敬请继续关注。
+
+（文章内容仅代表作者个人意见）
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2020年12月16日电/西喜社/**——
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-林伍德周三发推称，对米奇·麦康奈尔（Mitch McConnell）在过去的竞选中收到了多米尼公司的捐款，并不感到惊讶。
-他说“我们的政府官员腐败。 他们不从事我们人民的生意。 他们只为自己在政府中任职。”
-据报道，去年7月，米奇·麦康奈尔（Mitch McConnell）在阻止选举安全法案通过之前，从多米尼公司的说客那里收到了捐款。
-“我们必须清理房子”，林伍德说。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-
-
-> I am not surprised to learn that Mitch McConnell [@senatemajldr](https://twitter.com/senatemajldr?ref_src=twsrc%5Etfw) received past campaign contributions from Dominion Voting. Are you?
-> 
-> Our government officials are corrupt. They do not do business of We The People. They are in government solely for themselves.
-> 
-> We must clean house. [https://t.co/SkrLdZ7BZM](https://t.co/SkrLdZ7BZM)
-> — Lin Wood (@LLinWood) [December 16, 2020](https://twitter.com/LLinWood/status/1339248167154376704?ref_src=twsrc%5Etfw)
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

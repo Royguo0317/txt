@@ -1,36 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【看七哥视频】消灭共产党是正义的需要
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/656757/)
+## 布莱克本推特配图“习维尼”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/656981/)
 
-```
-作者: 儒为
-校对/发稿人: Ting Guo
-```
+- 编辑：Victor Torres
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16124720/ELMT1524052358134176_1524714805.jpg)图片来源: 共产党员网
-1920年夏末，共产主义这个幽灵悄无声息的来到了我们中国的这块土地上，鼓励无产阶级推翻资产阶级的统治，进而建立无产阶级专政。
 
-1949年10月1日，中国共产党在前苏联的支持下通过邪恶手段窃取了政权，国民党被迫撤到台湾。中国人民的灾难从此开始。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16131052/v2-59ca6763cc7d4b10a6f21b1cc0eb03e4_1440w.jpg)图片来源: 知乎网站
-1950年10月，中国共产党主席毛泽东为了巩固独裁统治，悍然发动了朝鲜战争，并使朝鲜一直分化至今。毛泽东的目的就是要把他不信任的国民党投降军队送到朝鲜战场上送死，甚至武器，粮草都不备足的。战争后阵亡与失踪大概60万人，负伤71.6万人，共计131.6万人。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16130640/Screen-Shot-2019-06-14-at-09.42.56.png)图片来源: 大医精诚
-1951年共产党又发起“三反五反运动”，并厚颜无耻的宣布成立具有中国特色的社会主义；1957年又发起了整顿思想的“反右运动”，大批有进步思想的知识分子遭到迫害；1958年，中国共产党发动主张“赶英超美”的大跃进，反而造成国民经济的倒退和大饥荒的发生，实际死亡人数大概9600万人；1966年2月3日，毛泽东为了自己的专制统治不受影响，又发动了骇人听闻的“文化大革命”，长达10年的政治斗争，死亡人数将近1亿。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16125048/1WggqHM7BIsQdA6A1NLukUQ.jpeg)图片来源: medium
-1989年天安门大屠杀，使用坦克机枪残杀中国青年学生，死亡1万多人；1999年至今对法轮功的迫害，死亡人数无法统计；中共在新疆，关押了最多达300万新疆人民；并对西藏同胞进行残酷镇压、重庆唱红打黑，死亡人数无法统计。2019年至今对香港的大屠杀，上万人死亡，数万人失踪。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-2020年1月，中共全球投放covid-19病毒，迄今为止已造成7000多万人感染，死亡人数高达160多万。而且应为新冠病毒感染和死亡的人数每天都在快速的增加，不只知道什么时间能够停止？
+**西班牙2020年12月16日电/西喜社/**——玛莎•布莱克本参议员今天发布了一条有趣的推特，批评中共的言论审查。
+她说:“言论自由就是可以在推特上发这张习近平像维尼熊的照片。如果你在共产中国这样做，你会被逮捕。”
+小编觉得配图不错，您呢?
 
-以上数字有来自维基百科，有来自战友们之前的整理和自己的搜集。重新列出这些数字心情备感压抑和愤怒，这些还只是中共犯下的罪恶一部分。
 
-我现在唯一能想到的就是感谢新中国联邦、感谢爆料革命、感谢那些为了消灭邪共付出鲜血和生命的亲爱的战友们，感谢全球的正义力量、感谢七哥。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16124333/101114322_2842362099209945_3419313370896007168_o.jpg)图片来源: fackbok
-2020年6月4日，郝海东先生宣读【新中国联邦宣言】：“消灭中共是正义的需要… …”这是我们每个新中国联邦人的心声。
 
-**本文章仅代表战友个人观点**
+> Freedom of speech is being able to tweet this photo of Xi Jinping looking like Winnie. If you did this in Communist China, you’d be arrested. [pic.twitter.com/0AnVtA3JYM](https://t.co/0AnVtA3JYM)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [December 16, 2020](https://twitter.com/MarshaBlackburn/status/1339270050168131597?ref_src=twsrc%5Etfw)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09040658/image0.png-13-1280x720.jpeg)***[https://discord.gg/77fCxw5mFv](https://discord.gg/77fCxw5mFv)**
-[**https://**](https://https://discord.gg/77fCxw5mFv)[**gab.com/himalaya\_italy**](https://gab.com/himalaya_italy)*
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
 
 0

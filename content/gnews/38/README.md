@@ -1,39 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 彩票不过是中共又一敛财的工具
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/656796/)
+## 一带一路给澳大利亚维多利亚州带来的将是灾难
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/656891/)
 
-撰稿：潜水艇
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16124125/IMG_5197.jpg)网络截图
-中共政府很早就开始发行彩票。到目前为止，主要有福利彩票和体育彩票两种。据中共官方介绍，福利彩票的主旨是：筹集社会福利资金，兴办残疾人、老年人、孤儿福利事业和帮助有困难的人。而发行体育彩票，自然就是为了筹集资金发展体育事业。
+撰稿：澳喜战友
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16130537/IMG_5198.jpg)网络截图
+据《澳大利亚人报》12月12日报道，维多利亚州州长丹-安德鲁斯（Dan Andrews）为与中国签署 的一带一路进行辩护，称该协议是为了给他所在的州创造就业机会。澳大利亚联邦议会已经通过了政府的对外关系立法，赋予外交部长玛丽斯-佩恩（Marise Payne）终止大学、州和地方政府或议会与外国签署协议的权力。
 
-据网上不完全统计，中国大概有3亿的彩民，61.7%的人文化程度是大学。其中，18-30岁的彩民量约占40.11%。换句话说，大部分的彩民都是受过良好教育的年轻人。我也是其中一员。我相信，其他的彩民也是和我的想法一样，要是运气爆发，能中奖发笔横财自然最好，当然，不能中奖也无所谓，就当为国家发展福利和体育事业做点贡献了。
+一带一路为参与国带来了负面的经济影响。从2013年启动一带一路以来，在亚洲，巴基斯坦因债务问题日益严重而缩减中巴经济走廊；缅甸的大型港口交易也遭缩减；斯里兰卡的一个港口在政府无法偿还贷款后，不得不租给中共国99年。在欧洲，希腊举步维艰的比雷埃夫斯港由于一带一路的债务，被迫由中国远洋运输公司接管。
 
-但是，事实真相如何？我就列举几个新闻，供大家参考：
+中共不遵守国际法则，信誉丧失殆尽。中共想通过一带一路来统治世界，并对其他国家实行独裁统治。为了控制香港，中共废除了《中英联合声明》，并通过了范围广泛的港版国安法。澳洲呼吁调查中共病毒来源后，中共撕毁与澳洲签署的自由贸易协定，对多项澳洲产品进行制裁。世界已经意识到过度依赖中共国的风险。
 
-1–2018年11月13日 据 [澎湃新闻](http://www.thepaper.cn/newsDetail_forward_2628325) 报道，中共福彩中心四个主任鲸吞1360亿，而统计数据显示，2017年中共国彩票销售收入超4000亿元，其中福利彩票销售收入2100亿元。也就是说一大半都被贪污掉了。
+维多利亚州因一带一路而已出现经济混乱的迹象。根据评级机构标普的数据，维州已失去AAA信用评级，其债务在2023年将达到营业收入的200%左右，远超2019年的70%。预计维州的债务水平将多年持高不下。
 
-2– 2009年6月9日福彩2009066期居然开出九注头奖，同一人中，每注奖金661万。中一注双色球的概率为1772万分之一，一人同中九注的概率是多少？那就是1772万的九次方呀，这个数字计算出来恐怕比宇宙还大，从科学统计上来说，一人同中9注一等奖，恐怕在地球毁灭之前都轮不上一次。
-
-3—而在2018055期，当期开出39注头奖，其中30注头奖落于深圳同一投注站，中奖票为60元自选票，总奖金1.61亿元。一站同出30注，那那就是1772万的30次方呀，多么令人难以置信的概率咯！
-
-4–—2009年10月8日，安阳一投注站中出的3.599亿元。购买人以总计88倍的投注单一号码。双色球中大奖的概率本就极低，大约为1772万分之一。而像本期大奖得主那样在一个号码上进行88倍投注，那是对这个号码有多大的信心呢？
-
-5–2012年，北京一彩民购买双色球彩票中得5.7亿元大奖，110倍投注单一号码。
-
-6–2014年10月5日，中国福利彩票双色球第14115期，山西太原市同一家站点，中了101注头奖，奖金5.2亿元，其中100注是100倍投同一个号码。同一个站点中101注头奖？概率是1772万分之一的101次方，又是100倍押注这样的超级宇宙低概率，那是何等的自信？
-
-超出宇宙极限的低概率中奖消息，一次一次推翻了概率学。后来彩民才慢慢发现，一旦奖池金膨胀以后，类似的情形都会如期上演，有些人会明目张胆地掏光了奖池金。哪些人有能力这样做？当然是“内部人”。中国老百姓也开始明白了，中共发行彩票，不管借着什么冠冕堂皇的名义，其本质就是从民间吸纳资金，等到这个资金池积累到一定程度后，通过内部操作，把这个钱拿走，占为己有。完完全全的小偷行径。
+在一带一路已给维州带来明显负面影响的情况下，丹-安德鲁斯却依然一意孤行。相信美国的国会议员被中共间谍诱骗进蜜糖陷阱，而出卖国家为中共效力绝不是个案。调查丹-安德鲁斯在这个协议中是否出卖维州利益以及得到多少个人利益势在必行。
 
 （本文纯属个人观点）
 
 审稿：Jenny
 
-相关材料链接：
+[https://www.theaustralian.com.au/nation/politics/belt-and-road-still-a-good-fit-says-daniel-andrews/news-story/e40a929fe08823666ffd9045c4f804f2](https://www.theaustralian.com.au/nation/politics/belt-and-road-still-a-good-fit-says-daniel-andrews/news-story/e40a929fe08823666ffd9045c4f804f2)
 
-[http://news.sina.com.cn/c/2018-11-13/doc-ihmutuea9606364.shtml](https://news.sina.com.cn/c/2018-11-13/doc-ihmutuea9606364.shtml)
 
-[http://news.hsw.cn/system/2014/1014/164356.shtml](http://news.hsw.cn/system/2014/1014/164356.shtml)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16050459/%E6%BE%B3%E5%96%9C%E4%BA%8C%E7%BB%B4%E7%A0%81-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16050431/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%87-1.jpg)
+
+> [One Belt, One Road, One Big Mistake](https://foreignpolicy.com/2018/12/06/bri-china-belt-road-initiative-blunder/)
+
+
+
+[https://www.forbes.com/sites/wadeshepard/2020/01/30/is-chinas-belt-and-road-already-in-retreat/?sh=2c23696a5ebe](https://www.forbes.com/sites/wadeshepard/2020/01/30/is-chinas-belt-and-road-already-in-retreat/?sh=2c23696a5ebe)
+
+[https://www.heraldsun.com.au/business/victoria-loses-aaa-credit-rating-as-sp-downgrades-over-weaker-outlook/news-story/f8bed1f8272cd5ddfe5b781b7865dfee](https://www.heraldsun.com.au/business/victoria-loses-aaa-credit-rating-as-sp-downgrades-over-weaker-outlook/news-story/f8bed1f8272cd5ddfe5b781b7865dfee)
+
+[https://www.theaustralian.com.au/world/the-times/chinese-spy-christine-fang-lured-aspiring-politicians-into-honey-trap/news-story/87e0135c03bc138ec157ddf3c45587a5](https://www.theaustralian.com.au/world/the-times/chinese-spy-christine-fang-lured-aspiring-politicians-into-honey-trap/news-story/87e0135c03bc138ec157ddf3c45587a5)
+
+澳喜文章[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+
+欢迎加入澳喜农场：[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16044753/%E6%BE%B3%E5%96%9C%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16044714/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%87.jpg)
 0
