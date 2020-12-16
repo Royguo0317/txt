@@ -1,28 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧盟全面施加压力，辉瑞疫苗将提前于12月21日获批上市!
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/652915/)
+## 特鲁多政府向世卫组织的“行动加速器”项目大撒币
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/653031/)
 
-- 作者：Free monkey
-- 校队：天灭中共7777
+*加拿大多伦多枫叶农场 文锦*
+
+*校对 小鸥 上传 WJ*
+
+加拿大政府网站（canada.ca）在12月14日发文——《加拿大为支持公平获得中共病毒测试、治疗和疫苗而进行的投资》。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15150734/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE269.png)
+文中提到自2020年2月以来，加拿大政府宣布将向全球抗击中共病毒疫情投入近16亿加元。其中包括超过8.65亿加元的资金，用于中共病毒“行动加速器”（Access to COVID-19 Tools Accelerator，简称“行动加速器”）。“行动加速器”框架的核心是3个，疫苗、治疗和诊断。加拿大于2020年5月4日加入“行动加速器”，担任联合牵头人。
+
+迄今为止，加拿大已拨款超过8.65亿加元，以支持低收入和中等收入国家通过“行动加速器”获得中共病毒疫苗、测试和治疗方法。这包括今天宣布的4.85亿加元用于抗体治疗，并支持“行动加速器“的健康系统和疫苗资助。它还包括：
+
+- 2020年9月25日宣布捐款2.2亿加元，以支持通过Gavi COVAX AMC（Gavi 是全球疫苗和免疫联盟，Gavi COVAX AMC是一种融资工具）市场承诺为中低收入国家购买疫苗
+- 2020年6月27日宣布提供1.2亿加元支持”行动加速器”
+- 2020年4月5日宣布向流行病防备创新联盟捐款4000万加元
+- 之前向Gavi COVAX AMC提供了高达3,100万加元的初始捐款
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+加拿大目前是Gavi COVAX AMC的第二大财政支持国，它将在官方发展援助资金的支持下让92个中低收入国家获得疫苗。
 
-随着英国、美国以及加拿大先后开始大规模的疫苗接种，欧洲药品管理局（EMA）加速批准疫苗的压力越来越大。
+**什么是“行动加速器”基金？**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15152203/ACT-A-logo-white-bgrd.jpg)图片来源：FIND
+这是二十国集团（G20）亲任主席穆罕默德-贾丹于2020年4月24日宣布的一项G20倡议。中共走狗世卫组织于4月24日同时发布了行动呼吁。9月10日，联合国和欧盟共同举办了“行动加速器”促进委员会成立大会。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15145255/WhatsApp-Image-2020-12-16-at-03.52.18.jpeg)
+世卫组织与比尔和梅琳达·盖茨基金会、 流行病防范创新联盟、 促进创新诊断方法基金会、全球疫苗免疫联盟、全球基金、国际药品采购机制、威康信托基金会和世界银行等创建共同推出了“行动加速器”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15150815/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE268.png)部分参与组织 图片来源：FIND
+到目前为止，在确保获得20亿剂疫苗，2.45亿剂疫苗和500剂疫苗所需的350亿美元中，已收到27亿美元。该计划认为有必要进行数百万次测试，以缩短流感大流行并加速全球经济复苏。
 
-欧洲药品管理局周二宣布，已将针对covid-19的辉瑞-BioNTech疫苗的审查会议提前至12月21日，这意味着应于当天批准在欧盟国家中使用该疫苗。
-欧洲药品管理局（EMA）负责监管欧盟的药品批准，该审查会议原定于12月29日举行，但在德国卫生部长詹斯·斯潘（JensSpahn）施压要求加速批准该疫苗之后，欧洲药品管理局最早应在12月21日向抗击covid-19的第一种疫苗给予“绿灯 ”。 德国卫生部长认为情况“特别令人恼火”，因为由德国BioNTech和北美制药公司Pfizer开发的疫苗已经在英国和美国等国家授权使用，但欧盟却仍在等待批准，无法在德国或27个欧盟国家中的任何一个国家使用。
-“我们的目标是在圣诞节前获得许可证，并在今年开始接种疫苗”，德国卫生部长詹斯·斯潘（Jens Spahn）周一表示。
-德国医院协会今天也发表声明，要求欧盟缩短漫长的批准程序，尽快批准辉瑞-BioNTech疫苗的紧急授权。 辉瑞公司及其德国合作伙伴在11月中旬宣布，他们的疫苗对covid-19具有95％的有效性。此后不久，即12月8日，英国领先于世界其他地区，并宣布了使用疫苗的监管机构的绿灯，美国在本周六紧随其后，并获得了FDA的批准。 在欧盟，计划在监管机构批准后立即开始疫苗接种，并在成员国之间进行协调，正如上周欧洲理事会后葡萄牙总理安东尼奥·科斯塔所证实的那样。 当时，假设欧洲药品管理局（European MedicinesAgency）可以在12月29日批准，科斯塔加指出疫苗接种将于1月5日开始。
+世卫组织总干事曾在该加项目的启动仪式上致辞。安德鲁·维蒂爵士（Sir Andrew Witty）和恩戈齐·奥孔乔·伊维拉（Ngozi Okonjo-Iweala）担任“行动加速器”特使。
 
-原文链接：
+**特使背景简介**
 
-[https://www.jornaldenegocios.pt/economia/coronavirus/detalhe/europa-encurta-prazos-e-da-ok-a-vacina-da-pfizer-a-23-de-dezembro](https://www.jornaldenegocios.pt/economia/coronavirus/detalhe/europa-encurta-prazos-e-da-ok-a-vacina-da-pfizer-a-23-de-dezembro)
+安德鲁·维蒂爵士是英国商业主管，曾担任诺丁汉大学校长，有着深厚的政商背景：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+2000年至2002年，曾担任中共国广州市长经济顾问；2008年至2017年间担任葛兰素史克公司首席执行官；2018年7月，维蒂成为联合健康集团（Optical Health）旗下分公司光学（Optum）的首席执行官；2020年4月，维蒂开始从光学公司休假，以协助世界卫生组织开发针对中共病毒的疫苗。
+
+从2017年到2018年，维蒂领导了美国国家卫生服务局的“加速通道协作”。2020年5月，在中共病毒大流行期间，他被任命为英国政府疫苗工作组咨询小组的专家。
+
+伊维拉是尼日利亚裔经济学家和国际发展专家。她是推特、全球疫苗和免疫联盟（Gavi）的董事会成员。此前，她在世界银行工作了25年。
+
+可见“行动加速器”的支持者都是与中共等邪恶势力沆瀣一气的“专家“。
+
+评：
+
+美国明智的川普政府早就明确表示拒绝加入“行动加速器”，并已正式通知联合国退出世卫组织。而在加拿大，许多小企业倒闭，本国人民亟需帮助时，政府却从纳税人的血汗钱中冠冕堂皇地拿走了超过10亿加元，这里有多少中饱私囊？！自加拿大版总加速师特鲁多上台以来，讲尧舜之言，行桀纣之实，对内苛捐杂税，对外大撒币，与中共、世卫组织等邪恶势力为伍，加拿大老百姓的苦日子还会远吗？！
+
+*参考链接：*
+
+[Canada’s investments to support equitable access to COVID-19 tests, treatments and vaccines](https://www.canada.ca/en/global-affairs/news/2020/12/canadas-investments-to-support-equitable-access-to-covid-19-tests-treatments-and-vaccines.html)
+
+[Gavi COVAX AMC](https://www.gavi.org/gavi-covax-amc)
+
+[获取COVID-19工具（ACT）加速计划是一项新的、开创性全球合作，旨在加速COVID-19检测工具、治疗方法和疫苗的开发、生产及公平获取。](https://www.who.int/zh/initiatives/act-accelerator)
 
 0

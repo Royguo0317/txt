@@ -1,23 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 乔·拜登妹夫拥有多米尼投票系统公司部分所有权
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/653285/)
+## 【香草诗词汇】我们正在并肩战斗
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/652210/)
 
-*多伦多枫叶农场（原加喜农场） ctt*
+作者：香草山写作组 木白
 
-*校对、上传 文锦*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
 
-据盖勒报告 (Geller Report) 12月14日报道，拜登的妹妹瓦莱丽·拜登·欧文斯 (Valerie Biden Owens)嫁给了约翰-欧文斯 (John Owens)。而约翰的哥哥凯文·欧文斯 (R.Kevin Owens) 是Staple Street Investors的创始人，该公司拥有多米尼投票系统公司（Dominion Voting Systems）。Staple Street Capital是一家私募股权公司，2009年成立于纽约。2018年，多米尼投票公司被Staple Street Capital 收购，
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15172739/biden-dominion-voting-system.jpg)图片来源：lesmanchettes.com
-在纽约时报上，可以看到乔-拜登妹妹与约翰-欧文斯的[婚礼公告](https://www.nytimes.com/1975/10/12/archives/bridal-at-un-for-miss-biden.html)。而约翰的哥哥凯文·欧文斯是多米尼公司的部分所有者, 现在看来拜登胜选的结果应该正式作废了。
 
-据报道, 收购多米尼投票系统公司的Staple Street Capital已经关闭了他们的大部分网站。蹊跷的是一周前还有投资组合持股说明页面。10月08日，Staple Street资本曾向美国证券交易委员会（简称SEC）提交了增资8亿美元的申请, 为什么这个时候关闭私募股权投资公司的网站呢？令人不解。
 
-评：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15185350/MOS0746-%E3%80%90%E9%A6%99%E8%8D%89%E8%AF%97%E8%AF%8D%E6%B1%87%E3%80%91%E6%88%91%E4%BB%AC%E6%AD%A3%E5%9C%A8%E5%B9%B6%E8%82%A9%E6%88%98%E6%96%97.jpg)
 
-这次美国大选中，拜登阵营进行了大量的造假和作弊，其中很多都发生在多米尼投票系统上。目前曝出的越来越多证据显示，外国势力通过控制多米尼投票系统操纵美国大选，而本文则可以使人们看到，不仅仅是外国势力，连拜登家族的势力都在控制多米尼投票系统，看来这次拜登胜选的结果绝不可信。
+清早起来，阳光从《路德访谈》开始
 
-[原文链接](https://gellerreport.com/2020/12/dominion-voting-machines-is-part-owned-by-joe-bidens-brother-in-law.html/)
+晚上不困，做完义工才睡
+
+若有七哥直播，定好闹钟，就怕错过
+
+都想被点名，无论网名有多长，多拗口
+
+搬起小板凳，作一个专心聆听的小学生
+
+三年下来，随“北美教练”，减了肥
+
+强壮的身体里住着更强大的灵魂
+
+断播事件、找钥匙澜、反送中、73仁波切……
+
+法治基金、gtv、新中国联邦、全球农场……
+
+我们被唤醒，黑白之间，邪不压正
+
+我们拥抱正义，跟随、团结、强大
+
+这是我们唯一的选择
+
+也是此生最幸运的选择
+
+如今，路德的嘴播报着雨点般的重磅
+
+如今，你操劳的白发让我们心疼
+
+战友——你时刻牵挂的我们
+
+除了行动，行动，行动
+
+我们怎么对得住这个词
+
+信仰之心于亿万颗蓝色的心中燃烧
+
+万佛万神庇佑着这颗幸运的蓝色星球
+
+这个苦难的民族正走过千万年的不幸与哀痛
+
+而我们正在并肩战斗，是该我们赢一回了
+
+2020年12月15日
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
