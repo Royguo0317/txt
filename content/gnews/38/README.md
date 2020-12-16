@@ -1,22 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】15/12/2020:美国大选正式进入滑稽阶段 习近平主打的是贺锦丽这张牌
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/654392/)
+## 【林伍德律师推文1215】-乔治亚州继续艰辛抗争
+` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/654784/)
 
-制作:战友之家粤语频道
-**播报：【安妮 】资料收集:【Cathy】【An】【Ruby】【星星】【安妮】视频制作：【文德】
- 海报制作：【文静】【文绉绉】**
-## 摘要:
+12月15日林伍德律师推文，“乔治亚州政府的州长和州务卿已经永远把头栽进中共的沙子里。司法部应该要求乔治亚州在有法律规程进入时再继续新选举。不能再使用多猫腻投票机。”
 
-1.    川普总统不会宣布反叛戒严法，因为还不到时候,那样做对美国的伤害太大
+他强调了 #为真相而反击 的内容。
 
-2.    如果各方最后认定，共产党干预了这次总统大选，那么斩首行动，或全面战争就开始了
+随后他补充道，“乔治亚州议员  [@KLoeffler](https://twitter.com/KLoeffler) 和 [@sendavidperdue](https://twitter.com/sendavidperdue) 不能找借口反对 。他们是不是想要公平和诚实的选举？”
 
-3.    相信川普总统很快只有一条路，美国也会只有一条路
+在按法律规定推进去除舞弊、找回真正选举结果的过程总是曲折和艰辛的，每一步都不易，然每一步都通往成功。美国已经被深度渗透太久太深，赤匪之疾已非凑里。
 
-4.    英格兰南部发现了比现在的中共病毒传播更快的新变种毒株，传播更快，致命性更高。
+新闻素材和图片来自林伍德律师推特
 
-5.    习近平主要打的是贺锦丽这张牌。拜登被调查，贺锦丽会补上。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16000212/IMAGE-2020-12-16-130152.jpg)
+
+
+> There is NO EXCUSE for [@KLoeffler](https://twitter.com/KLoeffler?ref_src=twsrc%5Etfw) & [@sendavidperdue](https://twitter.com/sendavidperdue?ref_src=twsrc%5Etfw) to oppose this action. They want a fair & honest election, don’t they? Or do they??? [https://t.co/rKEPmOe7R9](https://t.co/rKEPmOe7R9)
+> — Lin Wood (@LLinWood) [December 16, 2020](https://twitter.com/LLinWood/status/1339077595200061442?ref_src=twsrc%5Etfw)
+
+
+
+
+
 0
