@@ -1,43 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 众议员克里斯·斯图尔特（Chris Stewart）：中共间谍瞄准了国会的多名议员
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/657630/)
+## 【林伍德律师推文1216】-乔治亚州年轻的女副州务卿
+` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/657732/)
 
-原文作者：杰克·菲利普斯
-发表时间：2020年12月15日
-翻译：康州盘古农场-光头波波
-校对：康州盘古农场-黎明的光芒
-审稿：康州盘古农场- V
+乔治亚州在进行重新投票的时候，舞弊行为和腐败分子相继被爆出。继向中共屈服的州务卿和州长之后，副州务卿 Jordan M. Fuchs被揭露。
 
-犹他州共和党众议员克里斯·斯图尔特周二透露，中国共产党（CCP）的间谍对国会多名议员进行间谍渗透活动，而不仅仅是被报道的加州民主党众议员埃里克·斯沃威尔（Eric Swalwell）。
+12月16日林伍德律师转发了Jordan早前劝说共和党议员Geoff Duncan“投靠”拜登的推文，并说她是乔治亚州验票表演的操作人。林伍德律师继续发推说，“一个30岁、仅有1年政府工作经验的人，和多米尼交易进行谈判、并实质上行驶州务卿之职，你能相信吗？….乔治亚州确实有问题。”
 
-“我们知道国会议员，特别是那些担任非常敏感职位的国会议员是被间谍渗透的目标。以我们的经验可知，这是不可避免的，这不应该让任何人感到惊讶，”斯图尔特告诉福克斯新闻。“我们知道中国共产党的间谍目标有企业，学者，国会议员，参议院议员和政府成员。那不应该让任何人感到惊讶。”
 
-斯图尔特说，被怀疑是中共间谍的克里斯汀·方（Christine Fang）（芳芳），是一名中国学生，据报道她能够接近加州民主党人斯沃威尔。
 
-“她刚来美国不久，就非常积极地与政治人物建立关系，并帮助他们筹集资金。我的老天，一个大学生如何有能力帮助国会议员筹集资金？这都是各种各样的危险信号。”，他说。“ 联邦调查局和其他人都对国会议员反复强调，要小心，你们将成为目标，”他补充说。
+> Here is Jordan Fuchs retweet of [@GeoffDuncanGA](https://twitter.com/GeoffDuncanGA?ref_src=twsrc%5Etfw) call to move on from [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw).
+> 
+> How does this truth make you feel, GA Patriots? [https://t.co/knGwVFqZzG](https://t.co/knGwVFqZzG) [pic.twitter.com/lW8YuHfaTw](https://t.co/lW8YuHfaTw)
+> — Lin Wood (@LLinWood) [December 17, 2020](https://twitter.com/LLinWood/status/1339368701448003584?ref_src=twsrc%5Etfw)
 
-目前尚不清楚哪些众议院或参议院成员已被中共盯上。
 
-但是斯图尔特说，斯沃威尔必须解释他与芳芳的关系。
 
-采访中，斯图尔特驳斥了众议院议长南希·佩洛西近日的声明，即情报机构已向众议院的所有成员通报了芳芳的情况。他补充说，关于是否有其他国会议员知道这一情况，佩洛西必须回答这个问题。
 
-斯沃威尔上周告诉 CNN (有线新闻网)，他没有做错任何事情。
 
-他告诉CNN：“有人告诉我这个人，我愿意提供帮助。” “我所做的只是合作，联邦调查局昨天也这么说。” 斯沃威尔然后指责共和党人试图将Axios的报告武器化。
+新闻素材和图片来自林伍德律师推特
 
-斯沃威尔只向媒体发布了一份关于Axios报告的简短声明，这份报告详细介绍了他与芳芳的关系，据报道，芳芳还能够接近包括市长在内的其他几位政治人物。
 
-从那时起，越来越多的人要求斯沃威尔退出众议院情报委员会。几位众议院共和党领袖致信佩洛西，要求她将斯沃威尔从众议院情报委员会中撤下。
 
-“众议员斯沃威尔向众议院情报委员会（House Intelligence Committee）隐瞒了五年有关正在进行中的针对他和他的同事的中国间谍活动的信息，”众议院共和党人告诉佩洛西。
-
-“很明显，众议员斯沃威尔与中国间谍的交往比司法部长杰夫·塞申斯与俄罗斯外交官的会谈更加危险和不寻常。但令情况更糟的是，众议员斯沃威尔不仅隐瞒信息，而且在反复利用他在[众议院情报小组]中的地位，鼓吹负面且毫无根据，未经证实的关于唐纳德·川普总统与俄罗斯有关联的阴谋。同时，他仍然拒绝评论关于Axios的重磅炸弹报告中所揭示的他与中共间谍的关系。”
-
-大纪元（Epoch Times）向斯沃威尔的办公室寻求有关Axios报告的评论。佩洛西的办公室尚未回复置评请求。
-
-原文连接：[https://www.theepochtimes.com/rep-chris-stewart-chinese-spies-targeted-multiple-members-of-congress\_3619850.html](https://www.theepochtimes.com/rep-chris-stewart-chinese-spies-targeted-multiple-members-of-congress_3619850.html)
-
-0
+1+
