@@ -1,31 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 大陆可能推出《国家统一法》？国台办回应
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/658072/)
+## 【世界多语言图文】2020/12/07-8 CCP病毒每日疫情直播简报
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/659176/)
 
-整撰：文錦  复核：WENJUN
+战友之家图文摘要及多语组
 
-中共媒体《凤凰网》12月16日报道， 在今日上午的例行新闻发布会上，有记者问及大陆是否有可能推出《国家统一法》，国台办发言人朱凤莲表示，“我们将采取各种必要措施…推进祖国和平统一进程…”
+[317-318\_English\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17070120/317-318_English_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17070120/317-318_English_CCP_Virus_Updates.pdf)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16221757/%E5%9B%BE%E7%89%87-1-27.png)
+[317-318\_German\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17065209/317-318_German.traditional.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17065209/317-318_German.traditional.pdf)
 
-12月16日上午，国务院台湾事务办公室举行例行新闻发布会，国台办发言人朱凤莲就两岸政党交流、两岸军事互信和两岸文化往来等热点问题回答记者提问。
+[317-318\_Korean\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17070121/317-318_Korean_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17070121/317-318_Korean_CCP_Virus_Updates.pdf)
 
-有记者问，我们注意到国台办账号在12月4日国家宪法日当天发布了一张“国家宪法日，一起来看看宪法关于国家统一的规定”的宣传海报。请问在当前两岸关系形势下，发布这方面的宣传内容是否意味着大陆可能推出《国家统一法》？
-
-朱凤莲表示，相信大家都注意到，在宪法宣传周，大家有学习到很多宪法的内容和知识。宪法是国家的根本大法，具有最高的法律地位、法律权威和法律效力。宪法关于国家统一的规定是明确的，我们坚决贯彻执行。我们将采取各种必要措施，坚定推动两岸关系和平发展、推进祖国和平统一进程，坚决地粉碎任何“台独”分裂图谋，捍卫国家主权和领土完整。
-
-编者观点：
-
-中共单方面撕毁《中英联合声明》，公然违背香港“一国两制”50年不变 的承诺，强行在香港实施《港国安法》，国安法下的香港人失去了自由和活力，港英政府保留下来的百年文明体制被破坏，香港已基本丧失了昔日国际金融中心和自由独立关税的地位。
-
-中共最近频频开展抢滩登陆战和巷战的演练，并不间断在台湾海峡附近加强军事行动，甚至在近期还制定出了“台独”顽固分子清单，这一系列的动作已暴露出中共“贼喊捉贼”的险恶动机， 中共极有可能假借指责台湾被幕后推手操纵欲施“台独”，绑架14亿不明真相老百姓的意志，用对待香港的方式在台湾重演强推恶法，最后乘乱而入实现一统台湾的“中国梦”。
-
-无论中共会不会实施攻打台湾的行动，以美国为首的北约联军已做好充足的准备，一旦中共对台湾或者南中国海、印太海域等有争议地区实施或图谋攻击，必将受到多国联军的重击包括瓦解中共所有的军事目标从而结束中共70多年的残暴独裁统治。
-
-参考链接：
-
-[https://news.ifeng.com/c/82FG9AdLSVK](https://news.ifeng.com/c/82FG9AdLSVK)
+[317-318\_Spanish\_CCP\_Virus\_Updates](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17070119/317-318_Spanish_CCP_Virus_Updates.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17070119/317-318_Spanish_CCP_Virus_Updates.pdf)
 
 0

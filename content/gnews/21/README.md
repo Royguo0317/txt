@@ -1,20 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 针对苹果公司提出的抗辩,原告提出异议之要点及法律依据备忘录【法庭文件全文翻译】
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/658360/)
+## 越来越像共产党媒体: 美国主流媒体的3大特点
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/659837/)
 
-### 【[法庭文件英文原文PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17021920/%E3%80%90EN%E3%80%914-29-Pham-v.-Apple_Plaintiff-Opp-MTD-1.pdf)】【[中文全文翻译PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17022004/%E3%80%90CN%E3%80%91Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1.pdf)】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17030905/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_00.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17030910/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_01.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17030912/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_02.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17030916/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_03.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17030919/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_04.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17030923/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_05.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17030927/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_06.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17030947/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_07.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17030950/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_08.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17030956/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_09.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17030957/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_10.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17031002/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_11.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17031004/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_12.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17031016/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_14.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17031018/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_15.png)
-**前员工起诉苹果公司的进展情况：**
+翻译：嫣嫣123
 
-1. [前员工起诉苹果公司: 因政治派别不同而遭受其歧视, 报复, 骚扰以及解雇等不当行为](https://gnews.org/zh-hans/646660/)
-2. [被告苹果公司要求删除申诉的动议要点和授权备忘录](https://gnews.org/zh-hans/646888/)
-3. [原告提出异议并请求法院驳回被告苹果公司的全部罢诉动议](https://gnews.org/zh-hans/646967/)
-4. [法庭驳回被告苹果公司对原告《民事诉讼法》中的第一和第二 项诉讼理由提出的抗辩](https://gnews.org/zh-hans/647110/)
-5. [针对苹果公司提出的抗辩,原告提出异议之要点及法律依据备忘录](https://gnews.org/zh-hans/658360/)
+校对+编辑：美丽的新国度
 
+原文：韩国某人士
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17094045/%E7%BE%8E%E5%9B%BD%E4%B8%BB%E6%B5%81%E5%AA%92%E4%BD%933.jpeg)
+11月26日（以下为当地时间），在感恩节期间，美国总统唐纳德·特朗普（Donald Trump）在新闻发布会上表示，媒体正在施压，要求他承认失败，并询问他是否离开白宫。
 
-#### **By【秘密翻译组 G-Translators】**
+这一幕让我想起了中国文革时中国共产党媒体如何攻击当时的国家主席刘佐奇。
 
-0
+刘佐奇是1959年至1968年担任中国国家主席的人物。然而，在中国共产党决定肃清他之后，他日夜受到媒体的攻击。最后，在几天内，他退出了主席的职务。被红卫兵公开虐待，孤独地独自死去。连他的家人也没有收到死亡消息。
+
+在火葬场，他只是一具无名的尸体。火葬场的管理人员甚至不知道这些尸体是曾经担任中国国家主席的高级官员。庆祝他垮台的游行在中国各地举行。
+
+在我在中国成长的时候，共产主义国家的官方媒体只给我们一个声音。我们说，只有中国共产党才能关心人民，社会主义才是人生正确的道路，只有这样才能给我们带来幸福的生活。
+
+随着我成长和移居美国，我过着不同的生活。当我读得更多，旅途更时，我开始明白，共产主义媒体机构就像毒药。这种毒药渗透到人类的头脑中，并感染社会。
+
+共产主义媒体的主要目的不是信息.它们是制造共产党谎言的机器。用谎言掩盖真相，控制人。不是小谎言，而是将整个社会引导到他们想要的方向的系统性、广泛性、严肃的谎言。
+
+这与人性背道而驰，也与传统背道而驰。通过注入敌视我国文化遗产的理论、解说和理念，洗脑整个社会成员，使是非标准不再存在。他们推翻了价值观和标准。邪恶是正确，善是错的。
+
+共产主义媒体不求相互了解。他们播下了分裂的种子。共产党人把人民推向了对立的群体，产生仇恨，并以让领导群体争吵的方式破坏人类社会。
+
+共产主义的宣传使农民杀害了地主，工人杀死了企业主。在所有小组中，彼此互相残杀。这就是在前苏联，俄罗斯人杀害同一俄罗斯人，在共产主义中国，中国人互相残杀的原因。在共产主义统治下，中国人民被杀害了8000万人。这比一、二战中死亡的人还要多。
+
+共产主义的宣传是把恶意伪装成政治正当性，所以很难拿起来。共产党人认为，他们”为人民服务”，”实现平等”和”帮助穷人”。
+
+听起来是理想的。年轻人被拉到这里，陷入共产主义。
+
+在共产主义完全占领中国之前，共产党人就叫自己为人民”救世主”。但是权力被抓住后，共产党人中的核心团体忙于进行权力斗争，享受着安逸的生活。富人成为穷人，穷人更穷。
+
+现在，在美国，你可以见证美国媒体的行为，就像共产主义国家的媒体一样。
+
+美国有线电视新闻网（CNN）和《纽约时报》称，美国社会的种族主义问题非常严重，就像共产党媒体声称”为人民服务”一样，他们似乎想用好心去解决它。
+
+事实上，美国主流媒体通过关闭种族主义一言，助长了分裂。
+
+去年夏天，在美国几个大城市，一群年轻人暴动和纵火。这不仅仅是一个意外事件。就像共产党人把仇恨训练给中国人民一样，美国的年轻人也受到了仇恨的教育。
+
+在中国，阶级斗争被用作共产主义革命的工具。美国主流媒体挥舞的”种族主义”的棒子就像中国的阶级斗争。
+
+美国主流媒体认为，在国际社会中展示美国的形象时，应该把美国描绘成邪恶，对权力和繁荣感到内疚。
+
+他们追随前苏联主张的普罗法甘达，现在却追随中国共产党媒体主张的普罗法甘达。
+
+在国民节日感恩节，在和解和感恩的时候，美国主流媒体纷纷发布新闻，要求特朗普总统承认失败。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17094045/%E7%BE%8E%E5%9B%BD%E4%B8%BB%E6%B5%81%E5%AA%92%E4%BD%933.jpeg)
+据美国弗吉尼亚州雷斯顿媒体研究中心（MRC）统计，2020年4月至5月，ABC、CBS、NBC三家电视台报道的有关特朗普总统的新闻中，94%是负面内容。
+
+特别是5月份创下了99.5%的史无前例的记录。MRC 调查结果自特朗普总统当选以来，关于特朗普的负面文章超过90%。
+
+这类似于席卷美国的政治合法性（PC）成为共产党的武器，他们甚至没有提出反对的余地，就打打对方。媒体确信，特朗普总统和保守派没有权利表明任何分歧。
+
+媒体却忘却了社会赋予他们权力的理由，以及满足人们了解的权利的本性任务。
+
+数百甚至数千人揭露了2020年美国总统选举团投票时发生的不正之风，但美国主流媒体没有报道。故意控制和审查人们的声音。这不是媒体要做的。
+
+对反对派领导人的不间断攻击，政治正确性，对不同观点的口吻。这些都是共产党媒体的三大代表特征。经历过共产主义社会的人就是知道。
+
+迄今为止，美国一直羡慕世界自由和繁荣。美国的媒体一直被视为独立和自由的媒体的表像。其他国家的媒体也跟着美国媒体，信任美国媒体。
+
+有媒体像美国一样享有自由吗？如果美国的自由崩溃，胜利者是美国还是共产主义者？
+
+1+

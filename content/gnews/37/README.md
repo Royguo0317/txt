@@ -1,34 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1216】-金发辫子弃暗投明
-` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/658269/)
+## 共和党众议员莫·布鲁克斯要求麦康奈尔，佩洛西启动国会选举诚信听证会
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/659383/)
 
-12月16日网友劲爆发推称，之前乔治亚州录像中出现的（摆好黑色长桌为非法选票做准备的）金发辫子女Ruby Freeman反水！她已经招供。为了自身安全，她已经进入证人保护（程序）。
-
-网友激动地说“结束（水落石出）！！！”
-
-林伍德律师称赞说，
-
-这是“很好的信息来源。
-
-“她反水了吗？时间会告诉我们。 但是，当你在2020年大选中实施规模巨大的欺诈计划时，许多参与其中的人更愿意与之交易以减少惩罚。
-
-“犯罪集团的头目对那些在地面上做肮脏工作的人并不关心。”
+- 编辑：Victor Torres
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-> DigitalWarrior [@Mickeegee2020](https://twitter.com/Mickeegee2020?ref_src=twsrc%5Etfw) is good source for information.
-> 
-> Did Freeman flip? Time will tell. But when you run fraud scheme of magnitude of 2020 Election, many involved prefer to make a deal & reduce punishment.
-> 
-> Ringleaders care little for those on ground doing dirty work. [https://t.co/yG7OkyZUP3](https://t.co/yG7OkyZUP3)
-> — Lin Wood (@LLinWood) [December 17, 2020](https://twitter.com/LLinWood/status/1339429325846708225?ref_src=twsrc%5Etfw)
+**西班牙2020年12月17日电/西喜社——**
 
+National File周三透露，众议员莫·布鲁克斯（Mo Brooks）已经写了一封信，目前正在众议院征集签名，以敦促众议院议长南希·佩洛西（Nancy Pelosi）和参议院多数党领袖米奇·麦康奈尔（Mitch McConnell）立即启动国会听证会，以确保选举的公正性。
+在给麦康奈尔，佩洛西和其他国会领导人的信中，布鲁克斯和数目不详的众议院共和党人将要求国会立即举行听证会，以讨论自11月3日以来美国人广泛听到的选举舞弊的报道。
+他们指出，总统选举已受到“数十次”诉讼，1月6日国会评估选举人票时可能演变为激烈的辩论。 由于国会是“所有有争议选举的最终法官，陪审团和仲裁人”，因此国会必须立即举行听证会：
+我们要求您的委员会代表我们的国家开展工作，并立即且毫不拖延地举行必要的举证和其他听证会，以全面调查2020年大选的异常情况，以便在面对质询时向国会议员和参议员提供充分的信息，以及有关2020年11月3日举行的所有联邦选举的合法性和有效性的问题。
+该信要求听证会“调查所有关于选举的非法行为的指控； 调查影响我们选举的系统性问题； 听取选举专家的意见，以探索立法解决方案，以减轻欺诈性和非法投票的影响，并恢复人们对美国可以举行自由公正选举的信念。”
+保罗·戈萨尔（Paul Gosar）将是最早签署该条约的人之一。 自11月份的选举以来，戈萨尔一直是选举诚信的代名词，并出现在亚利桑那州的停止偷窃集会上。
+目前，十多名众议员都表示将在信上签字。
+美国众议院和参议院的成员们都在考虑加入布鲁克斯，以在关键州对结果进行辩论，并有可能触发临时选举。
+“以我的判断，如果只记有资格的美国公民合法的票数，唐纳德·川普会以显著优势赢得选举人团，国会的认证应反映这点，”布鲁克斯在月初宣布他对抗结果的计划。 他补充说：“这次选举是由使用极端选民欺诈和选举盗窃手段的社会主义者偷走的。”
+在参议院，共和党参议员兰德·保罗，罗恩·约翰逊，特德·克鲁兹和参议员汤米·图伯维尔都表示有兴趣加入布鲁克斯的运动。 保罗参议员上周表示，他将在看到有关选举的“所有法律挑战”后做出决定。
 
+新闻来源：[https://nationalfile.com/exclusive-mo-brooks-house-gop-to-demand-mcconnell-pelosi-launch-congressional-election-integrity-hearings/](https://nationalfile.com/exclusive-mo-brooks-house-gop-to-demand-mcconnell-pelosi-launch-congressional-election-integrity-hearings/)
 
-新闻素材和图片来自林伍德律师推特
-
-
-
-0
+2+
