@@ -1,50 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国学术界的堕落与悲哀&#8211;美国国家科学院（NAS）企图逃避追求CCP病毒起源的真相
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/658762/)
+## 《路德社》每日简报早间版 2020.12.16&#8211;NewYork Time
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/657953/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17032835/1-97.jpg)[图片来源](https://aasldpubs.onlinelibrary.wiley.com/doi/10.1002/cld.969)
-据在线媒体《美国知情权》（U.S.RIGHT TO KNOW, usrtk.org）报道，从最新得到的电子邮件中，我们对于某些科学家们如何商量着统一口径来一口咬定CCP病毒来源于自然有了部分的认识，虽然许多关键性的科学问题仍然悬而未决。科学家们内部的讨论和一份科学家之前信件的原稿显示，专家们的讨论包含知识上的分歧和一些关于病毒来自实验室尚未解答的问题，甚至有些人还尝试压制有关病毒来自实验室可能性的所谓“边缘”理论。
+出品《路德社》 编辑：路德社精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16215955/1216-AM-ZH-scaled.jpg)
+1216早间要闻-NewYork Time
 
-有影响力的科学家们和许多新闻媒体早已将“病毒起源自野生动植物，而不是实验室”形容为“无法被抗拒的”证据。然而，在经过中国武汉市CCP病毒被报告的第一个病例一年之后，对于病毒是如何或者在哪里起源的问题仍然鲜为人知。了解CCP病毒的起源对于预防下一次大流行其实至关重要。
+**LuDe Media 20201216 Morning News, New York Time**
 
-通过《美国之情权》（U.S.Right to Know）的公开记录要求，我们获得冠状病毒专家拉尔夫·巴里克（Ralph Baric）的电子邮件，其中显示美国国家科学院（NAS）的代表与来自美国大学和生态健康联盟(EcoHealth Alliance)的生物安全和传染病专家之间的对话。
+**特别检察官人选已经确定**
 
-2020年2月3日，白宫科技政策办公室（OSTP）要求美国国家科学研究院、美国国家工程与医学研究院（NASEM）“召开专家会议……评估解决未知问题所需的数据，信息和样本，以便了解2019-nCoV的进化的起源，并更有效地同时应对可能的流行病爆发和因此产生的任何的错误信息。”
+**Special Prosecutor Selected**
 
-巴里克和其他传染病专家参与了这份草稿的撰写，电子邮件显示了专家的内部讨论和一份2月4日的草稿。该草稿描述了“专家最开始的观点”：“现有的基因序列与自然演化的一致，目前并无证据显示该病毒经过人工改造以便在人群中传播得更快。” 然而该草稿有一个放在括号里的问题：“【问问专家要不要加点关于结合位点的细节？】” 草稿里还有一个脚注：“【或许还需要快加一些简略的解释，以便说明上述的观点并没有完全排除病毒是从正在研究相关冠状病毒演化的实验室无意泄漏出来的】。”
+路德透露，该检察官曾与林伍德律师共事，服务于布什家族，是为灭共而来的律师。川普总统没有答应麦康纳尔赦免乔拜登的请求，并且任命了特别检察官彻底调查亨特拜登事件。
 
-在一封2月4日的电子邮件中，传染病专家崔福·贝德福（Trevor Bedford）评论道：“我在这里不想提及病毒与受体的结合位点。因为如果开始权衡证据，那么两种情况都需要考虑很多因素。” 对于“两种情况”，贝德福德似乎指的是实验室起源和自然起源的两种情况。
+LuDe revealed that the prosecutor had worked with attorney Lin Wood, served the Bush family and was a lawyer who came for the extermination of the CCP. Because President Trump did not grant McConnell’s request to pardon Joe Biden, and appointed a special prosecutor to thoroughly investigate the Hunter Biden affair.
 
-结合位点的问题对于CCP病毒起源的争辩是很重要的。独特的CCP病毒的刺突蛋白上的结合位点 “几近完美”，以便进入人体细胞，使得CCP病毒的传染性比其他SARS类冠状病毒要来得高。科学家们争辩道，CCP病毒的独特结合位点要么是由于在自然界中快速演化，要么是实验室里刻意用CCP病毒迄今尚未被发现的自然始组基因重组而成。
+**白宫律师办公室建议川普总统不要Fire掉FBI局长**
 
-最后一封2月7日公开发表的信件中并没有提及结合位点或实验室起源的可能性。然而它确实表明为了确认CCP病毒的起源，（他们）需要更多信息。信中写道：“专家们告知我们，需要从地理上和时间上分散的病毒样本中去获得更多的基因组序列数据，以便确定病毒的起源和进化。武汉爆发时早期采集的样品和野外采集的样品将特别有意义。”
+**White House Counsel’s Office Advised President Trump Not to Fire FBI Director**
 
-电子邮件还显示某些所谓的专家在讨论用直截了当的话语反驳他们所称的“没救的阴谋论”——CCP病毒实验室起源。克里斯蒂安·安德森（Kristian Andersen）是发表在《自然》期刊上某篇高影响因子的论文作者，该文一口咬定CCP病毒来源于自然。他提到第一版草稿虽然“很棒”，但他怀疑他们“是否有必要对病毒人工改造理论更强硬一些。” 他继续说：“如果本文的主要目的之一是反驳这些‘阴谋论’，那么我认为我们应该用直截了当的语言达到我们的目的。”
+国会山报报道的上述消息，一方面印证了川普总统即将解除Ray的FBI局长职务，另一方面也是在威胁川普总统，称如果Fire掉Ray的话，会被认视为报复行为，欲劝阻川普收回决定。
 
-在他的回应中，巴里克专注在为CCP病毒的自然起源说提供所谓的科学依据。“我觉得必须说的是，与SARS-CoV-2这种病毒最接近的亲戚（96％）是从生存在中国云南的山洞中的蝙蝠身上被发现的，而这是自然起源的强有力的证据。”（译注：[“云南矿洞”说已经被闫丽梦博士带领的博士团成功打假](https://www.youtube.com/watch?v=QokZ392yxLc)）
+The Capitol Hill newspaper reported the above news, on the one hand, confirms that President Trump is about to dismiss the FBI director, Ray, on the other hand, is also threatening President Trump, saying that if fire off Ray, it will be recognized as an act of retaliation, trying to dissuade Trump from retracting his decision.
 
-最后的信件来自于美国国家工程与医学研究院 (NASEM)的院长，他对病毒的来源不持任何立场。信中非常圆滑地指出：“关于2019-nCoV的起源及其与蝙蝠身上的病毒和其他病毒的关系，这类研究已经正在进行中了。与2019-nCoV最接近的已知亲戚目前看上去像是从在中国收集的蝙蝠身上分离出的冠状病毒。” 该信件引用了生态健康联盟和武汉病毒研究所发表的两篇文章，而这两篇文上均认为CCP病毒来源于自然。
+**美国防部突然关闭秘密互联网协议路由器**
 
-几周后，一群科学家在《柳叶刀》上发文，文章中显示他们更加确信CCP病毒来源于自然，而这篇文章的“权威”信息来源就是上一段话中提到的美国国家工程与医学研究院院长们的信。美国知情权(U.S Right to Know) 先前曾报导，生态健康联盟主席彼得•达萨克（Peter Daszak）起草了该声明，该声明断言“来自多个国家的科学家……压倒性地认为这种冠状病毒起源于野生生物。” 声明指出，这一立场“得到了美国国家科学，工程和医学研究院院长通过公开信表示的进一步的支持。”
+**U.S. Defense Department Abruptly Shut Down Secret Internet Protocol Routers**
 
-接下来彼得•达扎克被任命到世界卫生组织CCP病毒来源调查团，生态健康联盟成员们被任命到柳叶刀CCP病毒委员会，都说明了这些努力的可信度因为没有回避利益冲突而受到了损害，而且看起来他们早就已经未演先判。
+这是美国务院和国防部发送机密信息的一种路由器网络协议SIPRNet，疑已被（中共）攻击和解密。此次被关闭是为了进行升级，以全面提升保密性和安全性，避免再被攻击和解密，为日后的重大行动做好准备。
 
-**“我们应该避免的问题”**
+This is a network protocol of routers, SIPRNet, used by the U.S. Department of State and the Department of Defense to send classified information that is suspected to have been attacked and decrypted (by the CCP). It was shut down for an upgrade to fully enhance confidentiality and security to avoid further attacks and decryption, and to prepare for future major operations.
 
-巴里克的电子邮件还显示了美国国家科学院（NAS）的代表对美国科学家们建议，他们应在与中国CCP病毒专家计划的双边会议中“尽可能避免”提及有关病毒起源的问题。 2020年5月和6月的电子邮件讨论了会议计划，在参与的美国科学家们之中，许多人是美国国家科学院(NAS)的成员，包括新兴传染病和“21世纪健康威胁”常委会成员：拉尔夫·巴里克（Ralph Baric），彼得·达萨克（Peter Daszak），大卫·弗朗兹（David Franz），詹姆斯·勒杜克（James Le Duc），斯坦利·波尔曼（Stanley Perlman），大卫·雷尔曼（David Relman），琳达·赛义夫（Linda Saif）和施裴永（Peiyong Shi），与会的中国科学家包括高福，石正丽和袁志明。高福是中国疾病预防控制中心主任，石正丽是武汉病毒研究所的冠状病毒研究的领导，袁志明是武汉病毒所的研究员。
+**美国联邦贸易委员会FTC14日宣布调查推特、脸书等九家大公司**
 
-在一封电子邮件中显示，美国国家科学院 (NAS)计划会议上向美国与会人员介绍会议的目的：“提供背景信息，讨论主题/问题（邀请函中列出并随附）以及我们可能应该避免的问题（起源问题，政治）……”
+**FTC Announced Dec. 14 to Investigate Nine Major Companies, Including Twitter and Facebook**
 
-**点评:**
+被调查的公司还有Whatsapp、Youtube、字节跳动、Amazon、Reddit、Snap和Discord。调查内容包括，在收集与使用用户隐私数据上是否存在违规行为，如何确定向用户展示广告内容的方式，是否对个人信息使用算法或数据分析，数据政策对儿童和青少年的影响。此项调查的回复时限是45天。该调查将为未来的执法提供确凿依据。但路德分析这些公司早就有应对之策，比如提供海量的信息，让FTC无法在大海中找出证据，不了了之。
 
-美国国家科学院 (NAS)在追求CCP病毒是否为自然起源的过程中，闪躲逃避的态度借由电子邮件的揭露，均一一现形而无所遁逃！这些傲慢的所谓学者利用信息不对称，以为自己是某方面的专家，就用高深的词汇把大家绕晕，再趁机与中共勾兑，真把大家当傻子忽悠。学术界的腐败与堕落让人叹息连连！再次证明中共的渗透无孔不入，唯有灭掉共产党，世界秩序才得以重新建立。
+Other companies surveyed include WhatsApp, YouTube, ByteDance, Amazon, Reddit, SnapChat and Discord. The survey covers whether there are violations in the collection and use of users’ private data, as well as the way users display advertising contents, whether algorithms or data analytics are used on personal information, and the impact of data policies on children and adolescents. The survey, which has a 45-day response time, will provide a conclusive basis for future enforcement. However, LuDe analyzed these companies have long had a response strategy, such as providing massive amounts of information, so that the FTC cannot find evidences in the data-sea, and have to stop.
 
-[原文链接](https://usrtk.org/biohazards-blog/new-emails-show-scientists-deliberations-on-how-to-discuss-sars-cov-2-origins/)
+**我们每个人都处在超限战中**
 
-翻译：牛小妹
+**Each of Us in Wars Beyond Limits**
 
-校对：卡拉马佐夫姐姐
+无论郭先生直播和路德社直播中有多少虚虚实实的战略战术，每一个战友都必须抱有必胜的信念，我们一直在创造历史、改变历史，战友们的群体潜意识是站在正义一边，胜利必然属于我们。
 
-1+
+同时要清醒认识到，这个过程必然是艰辛的。如果中共那么容易就被干掉，爆料革命哪里还有价值？正因为来之不易，我们战友和体制内的精英们才会倍加珍惜，今后把自己国家建设得更好。
+
+如果拜登主动退出，川普轻松取胜，放过了沼泽地内暗藏的鳄鱼，反而后患无穷。如果没有中共对美国的全面渗透及必然导致的操纵美国大选的滑稽场面，新中国联邦哪里有在美国存在的价值？郭先生又怎么会提前三年爆料中共蓝金黄？
+
+No matter real or false strategies and tactics in live broadcasting of Mr. Guo and Mr. LuDe, every warrior must keep the belief that we will win. We have been making history and changing history. Our group subconscious is on the justice side, and victory is bound to belong to us.
+
+At the same time, it is important to realize that the process is bound to be arduous. If the Chinese Communist Party is so easily to be exterminated, where is the value of Whistleblower Movement? It is because victory is not easy that we battle companions and the elites in the institutions will cherish it, and will build our country better in the future.
+
+If Biden withdraw voluntarily, Trump will win easily, sparing the crocodiles hidden within the swamp, then the consequences would be endless. Without the CCP’s full infiltration into the U.S. and the inevitable comical spectacles of rigged elections, where is the value of the New Federal State of China in the United States? How did Mr. Guo come out three years early to break the news about the Chinese Communist Party’s blue and gold yellow? And why did Mr. Guo reveal the CCP’s Blue-Gold-Yellow plan three years in advance?
+
+文案：《路德社》简报组：文寶Porsche；
+翻译：《路德社》翻译组；翻译统筹：阿轩Action；译校：Arvin江牧
+审核校对：玫瑰天空
+上传排版：青葫芦娃
+
+0

@@ -1,37 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1216】-想赢就作弊吗？
-` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/658144/)
+## 朱利安•阿桑奇已正式向美国总统唐纳德•川普提出赦免请求
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/658267/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16225437/EpZJIgmUUAA3u1e.jpg)
-12月16日林伍德律师推文：
+翻译： 康州盘古农场－烟波浩淼
 
-“乔治亚州的爱国者，你能够想象有多少你的同胞公民协助和教唆了11/3选举欺诈？没有几千也有几百人。
+校对： 康州盘古农场－Robensenna
 
-”他们犯下了严重的罪行。他们的罪行花费了大家数百万美元的税收。他们面临漫长监禁的审判。
+审核：康州盘古农场-Truemanman
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17002627/%E5%BE%AE%E4%BF%A1%E6%88%AA%E5%9B%BE_20201217132553.png)
+《门户专家》（Gateway Pundit）现在可以透露，朱利安•阿桑奇在周二上午正式向唐纳德•川普总统提出了赦免请求。
 
-“他们晚上能睡着吗？
+来自各个政治范围的人都呼吁川普总统赦免这位维基解密创始人，理由是出版自由的重要性。
 
-另一则推文：
+阿桑奇的未婚妻斯特拉•莫里斯（Stella Morris），也就是他两个年幼孩子的母亲，此前曾呼吁特赦阿桑奇–但直到本周才向白宫提出正式请求。
 
-“为了赢你愿意付出什么代价？你愿意撒谎、欺骗和偷窃吗？你是否愿意为了赢得参议员席位而参与欺诈和非法选举？如果你作弊，你又是否容忍对手作弊？
+阿桑奇被囚禁在英国，等待关于他被引渡到美国的决定，在美国他将因为发表了伊拉克和阿富汗战争日志面临《间谍法》的指控。如果罪名成立，他可能会因公开美国政府不想让民众知道的材料的 “罪行 “而面临最高175年的刑期。
 
-“我们的国家面临着宪法和道德危机。”
+2018年，川普总统的律师在整个法律文件中悄悄为维基解密辩护，回应民主党捐款人提起的诉讼，他们指控竞选活动和前顾问罗杰•斯通与俄罗斯人合谋，公布泄露的民主党全国委员会邮件。
+
+**他们的评估是正确的。**
+
+埋藏在数百页的案卷中，在2018年10月提交的一份动议中，川普律师迈克尔•卡文（Michael A. Carvin）认为，根据《通信尊严法》（47 U.S.C. § 230）第230条，“一个提供论坛的网站，’第三方可以发布信息’，网站对于第三方发布的信息不承担责任。”
+
+**“申请书认为’**** ****即使网站执行’编辑功能’比如决定是否发布****‘ ****时也是如此”。“由于维基解密为第三方（匿名的’俄罗斯行动者’）提供了一个论坛，发布了由该第三方开发的内容（被黑客****获取****的电子邮件），因此不能要求它对发布的内容负责。”**
+
+这一辩护对阿桑奇被指控出版的战争日志是真切的。
+
+**卡文写道：”此外，第一修正案****普遍****否认政府有权惩罚真实的言论。”**** ****他补充说，隐私不能****为****这些违反第一修正案核心规范****做辩护****。****案卷****随后提到了1989年的 “佛罗里达之星诉B.J.F. “案，该案认定 “以隐私的名义惩罚真实的出版物 “是一种 “****异乎寻常的****措施”。**
+
+正式的赦免请求是在川普的一位盟友声称总统将赦免出版商的病毒性言论之后提出的。虽然他最终撤消了声明，称自己的消息来源有问题，但很明显，这是政治派别双方的支持。在被撤消之前，这条推文在大约一个小时内在推特上获得了超过75,000个点 赞。
+
+国家安全局举报人爱德华•斯诺登对这一消息发表评论说：”我非常希望这是真的。针对阿桑奇的案件是基于一种法律理论，这种理论将把国内外每一个记者的工作都定为犯罪。”
+
+斯诺登此前一直在游说赦免阿桑奇，甚至在赦免自己之前，他也曾游说过。
+
+斯诺登本月初发推说：”总统先生，如果您在任期内只给予一个宽大处理，请您：释放朱利安•阿桑奇。只有您才能拯救他的生命。”
 
 
 
-> What price are you willing to pay to win? Are you willing to lie, cheat, & steal? Are you willing to be complicit in fraudulent & unlawful election just to win a Senate seat? If you cheat, do you condone cheating by opponent?
-> 
-> This country faces a Constitutional & moral crisis.
-> — Lin Wood (@LLinWood) [December 16, 2020](https://twitter.com/LLinWood/status/1339339512254623744?ref_src=twsrc%5Etfw)
+> Mr. President, if you grant only one act of clemency during your time in office, please: free Julian Assange. You alone can save his life. [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw)
+> — Edward Snowden (@Snowden) [December 3, 2020](https://twitter.com/Snowden/status/1334608745192677380?ref_src=twsrc%5Etfw)
 
 
 
-从林伍德律师言辞诚恳的推文，我们看到美国醒来的正义力量的反省和呐喊。察人观己，想想我们中国人在受到中共欺骗和蛊惑时，是否能够自省。中共让我们为了成功和利益变得贪婪无知，在利益面前不择手段，甚至不惜违法犯罪铤而走险。然而当每个人都认为一句谎言无妨、一次舞弊无碍，反正能给自己带来眼前的利益，可是殊不知每个人一点作恶积累起来，最终损害和动摇的是保护每一个公民权益的法律和价值体系，乃至形成互害模式，受益的不是当时作恶换来的小恩小惠，而是在我们的协助和容忍下成长起来硕大无比的恶魔，恶魔是来嗜血蚕食我们的，中共就是这个恶魔，它的本性永远都不会变，所以我们只有灭共，才能获得长久的自由、安全与财富。
+*爱德华•斯诺登@斯诺登*
 
-毋以善小而不为，勿以恶小而为之。让我们为灭共消灾行动起来！
+*12月3日*
 
-新闻素材和图片来自林伍德律师推特
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16230629/Wenya-Logo.png)
-2+
+*总统先生，如果你的任期内只给予一个宽大处理，请您： 赦免朱利安•阿桑奇。只有您**才能**拯救他的生命。*
+
+*@**真正的唐纳德**•**川普*
+
+原文作者：卡桑德拉•费尔班克斯（Cassandra Fairbanks）
+
+发布时间：2020年12月16日上午7:30
+
+原文链接：
+
+[Julian Assange Has Formally Requested a Pardon From President Donald Trump (thegatewaypundit.com)](https://www.thegatewaypundit.com/2020/12/julian-assange-formally-requested-pardon-president-donald-trump/)
+
+1+

@@ -1,11 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 作战室583期精选 纽约邮报记者爆美领馆有三名中共女党员（粤语/潮汕话配音）
-` WarRoom中文組 文乐` [轉載自GNews](https://gnews.org/zh-hans/657751/)
+## 【字幕】12/11/2020文贵：只有灭共才能带来金融世界的未来
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/657933/)
 
-粤语声优：卡尔爱丽丝
-潮汕话声优：Rainer
-制作：WarRoom中文组
-粤语版潮汕话版
+制作： 【彩虹桥】
+
 0

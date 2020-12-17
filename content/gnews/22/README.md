@@ -1,33 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/16日康州农场前沿观察: G系列—新中国联邦的&#8221;诺亚方舟&#8221;
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/658457/)
+## 中天新闻熄灯号！
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/658413/)
 
-播音：小静不静
-撰文：文法了得
-视频：Buzz文珂、银龙
-编辑：1984文姝
-审片：皮亚纳
-审核：Truemanman
+撰稿：Yumi
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17020334/%E4%B8%AD%E5%A4%AE%E7%A4%BE%E4%B8%AD%E5%A4%A9%E5%9C%96%E7%89%87.jpg)圖片來源中央社
+台湾国家通讯传播委员会（NCC）决议对中天新闻台「不予换照」，中天电视公司声请假处分遭台北高等行政法院驳回后，提起抗告，最高行政法院今（11）日裁定驳回抗告。全案确定，不得再抗告。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17021112/nowtoday.jpg)图片来源 nowtoday
 
 
+中央社报导中天新闻12日凌晨时开始将无法在有线电视频道拨出。
+国民党主席江启臣、前总统马英九今天召开国际记者会，声援中天；马英九说，他怀着沉痛心情，穿上公祭的衣服，哀悼台湾即将消失的新闻自由.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17021837/%E5%8F%8D%E7%B4%85%E5%AA%92.jpg)图片来源自由时报
+去年馆长陈之汉和前立委黄国昌在凯道发起几十万人反红媒体。第一步关中天电视台一个由与中国政商关系紧密的旺旺集团蔡衍明买下来的媒体。长年在台湾沦为中共的CCTV.负责对台大外宣。立委段宜康形容红色媒体是心战武器。换言之新闻自由的糖衣的毒药。馆长在脸书上表示（有些东西可以用钱买到，尊严不是每个人可以卖给你。
+抗争了一年后中天关门了。但中天去哪里了？那还有多少人支持中天新闻？
+ptt台湾最大社群讨论平台。乡民在八卦区问卦中天还有多少支持率？一部分网友说4％（柯文哲的支持率）一部分说9.2％（国民党支持率。有大部分的人表示4％不能再多了。至于中天12日开始Youtube频道当起Youtuber订阅人数将近200万。平台乡民质疑对岸网军所为。想想这几日Youtube大动作的封杀言论不禁令人心颤。在这样自媒体的时代保持资讯的流畅度和没有鲜明的立场似乎是新媒体考验。
 
-12月13号文贵先生兴奋地发盖文表示，“所有G系列将是这几个独立的领域新的标准的建立者”， GTV的排名数据值得所有GTV投资者们很好很好地去庆贺一番！传统媒体如CNN等都将灰飞烟灭！“这确实是个了不起的奇迹……金融和商业奇迹！GTV的投资者，用自己的智慧和金钱证明了自己到底是聪明人，还是大笨蛋……好日子只是刚刚开始！”
-“GTV的数据不会骗人”，无人可以篡改，未来将会“更好更好更好更好”！文贵先生连续用了“四个更好”表达了对GTV将来前景的极大信心！
-10月20日，路德节目爆出“爆料革命”已被认为成为主流声音。此后，GTV网站访问量从几百万陡增至一亿多次。日前，文贵先生盖文显示，GTV已经在新闻类排名中上升到第44位，超过传统的左媒CNN和Politico。我们清晰地看到新中国联邦的媒体GTV、GNEWS将要在中文圈带来不可估量的影响力和经济价值，G系列正真正成为新中国联邦的“诺亚方舟”。
-G系列创造的奇迹有目共睹，从GNEWS、GTV上线,到虚拟货币GCOIN GDOLLAR的运营，再到GCLUB、GFASHION的成功发行，G系列——“诺亚方舟”逐步壮大。
-  在“爆料革命”参与书写历史的伟大进程中，G系列为了传播真相、守护真理而生，也必定是捍卫新中国联邦正道主义的阵地，捍卫世界民主法治秩序的战场。她不仅是新中国联邦立国的物质基础之一，更是所有新中国联邦人追求正义的精神园地，是世界格局重构的重要力量！
-G系列——新中国联邦的“诺亚方舟”！
- 
-——康州盘古农场报道
- 
- 
-素材来源：
-文贵2020.12.13盖特
-[https://gtv.org/getter/5fd61c2220c9025a87df2244](https://gtv.org/getter/5fd61c2220c9025a87df2244)
-[https://gtv.org/getter/5fd624aa20c9025a87df256a](https://gtv.org/getter/5fd624aa20c9025a87df256a)
-路德时评10.20视频
-[https://www.youtube.com/watch?v=CpBCExFl\_Ko](https://www.youtube.com/watch?v=CpBCExFl_Ko)
+(本文纯属个人观点)
 
-0
+新闻连结：
+
+最高行驳回抗告：中天新闻台确定走入历史，12日零时电视停播[https://www.thenewslens.com/article/144568](https://www.thenewslens.com/article/144568)
+
+中天新闻台换照假处分最高行驳回确定[https://www.cna.com.tw/news/firstnews/202012115005.aspx](https://www.cna.com.tw/news/firstnews/202012115005.aspx)
+
+澳喜文章 [https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+
+欢迎加入澳喜农场：
+[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16061402/IMG_3537-1-715x720-1-3.jpg)
+
+
+2+
