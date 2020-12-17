@@ -1,49 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 特鲁多的加拿大何去何从？
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/657172/)
+## 假公济私，恩出私门——报恩道德之批判（一）
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/657135/)
 
-加拿大多伦多枫叶农场 枫叶小哥
+***作者：孙行者; 编辑：海阔天空; PAGE：玄天生***
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16160017/pirates-3277848_960_720-1.jpg)
+随着爆料革命的发展，全球喜马拉雅联盟农场不断涌现，爆料革命的队伍日益壮大，农场内部难免出现一些力量、利益的整合，因此会引起一些矛盾。如何处理这些矛盾，2020年12月14日，郭文贵先生在直播视频中谈农场建设的时候，告诫战友要有气量和胸怀，并再三强调施恩不能图报。
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16152718/T-5.jpg)图片来自 CTV News
-美国的总统世纪大选按部就班进入了冲刺阶段，1月20日就职典礼的主人已经没有悬念，川普总统将突破重重黑暗及沼泽地势力，开启第二任任期。作为美国最紧密的伙伴国家加拿大，过去一个月发生的事情让人捏把汗，让我们站在非主流媒体的视角看看它的总理特鲁多。
+这不是郭先生第一次谈报恩了。在2020年1月2日报平安视频中，他就说道：历史上中国人常常说到 “忘恩负义” 这个词，我认为是最不好的词。它的意思是我帮助你就是 “恩” ，你必须无条件的回报我，无限期的回报我，这才是 “义” ，指责别人 “忘恩负义” 的人要的是利益、是交换，这绝对是不好的。
 
-2020年11月7日，在大选舞弊案的背景下，特鲁多迫不及待地恭喜拜登当选总统1，为其站台的意味明显。我们都知道，亨特·拜登的“硬盘门”事件彻底暴露了拜登家族和中共深度勾结，妄图“赤化”美国，控制全世界的野心，特鲁多是看不见还是假装看不见？
+结合郭先生的多次视频讲话来看，他对传统道德中的“感恩图报”观念是持否定态度的，这在多数人听来，可能会觉得刺耳，但它实在是闪烁着智慧的真知灼见。所谓“上士闻道，勤而行之；中士闻道，若存若亡；下士闻道，大笑之。不笑不足以为道”。本文试对此进行详细的分析，揭示“报恩”这一道德观念的荒谬和对社会健康发展产生的危害。
 
-11月19日，鲍威尔（Sydney Powell）大律师公告美国大选舞弊调查进展2，金融大鳄索罗斯（George Soros）就是美国大选投票系统多米尼Dominion Voting System的背后力量，揭开了沼泽地鳄鱼的面纱。
+道德是一个社会的“非正式的公共机制”（维基百科）。合理的社会道德，通过对个体行为的规范，实现社会整体利益最大化。但利益总是具体的，有些社会道德，虽然能够维护社会一定范围内成员的利益, 但放在一个长远的时间段考察，它会侵害其他人的利益，损害社会整体利益。这样的道德实际上是不合理的，只是非智者不能觉察、指明。
 
-2020年12月13日，调查美国大选舞弊案的林·伍德（Lin Wood）大律师的推文证实3，中共联合美国的Deep State操纵偷窃美国大选；索罗斯和加拿大也卷入其中。作为加拿大总理的特鲁多，有没有参与其中？和背后的共产主义势力CCP有什么不为人知的秘密？
+什么是“恩”？《康熙字典》引《说文解字》对“恩”字的解释是“惠也，从心因声。”《广韵》的注释是：“隐也，私也”。从这两个解释看“恩”是私人的恩惠，是社会中个体之间或曰私人之间的利益关系。
 
-12月11日，一则来源于真相媒体GNEWS.ORG的新闻4：加拿大政府意图训练中共CCP军队。 帮助独裁国家训练军队意味着什么？
+与“恩”相对，《康熙字典》对“义”的解释则是：“仗正道曰义”，“众所尊戴曰义”。“与衆共之曰义”、“至行过人曰义”。在线《汉语字典》对“义”的解释也是”公正合宜的道理或举动；合乎正义或公益的行为“。 由此可见，“义”是维护社会公共利益的高尚品行。
+[![](https://spark.adobe.com/page/Tul1log298jLR/images/bf98b250-360e-42a7-be98-7943a35cacbb?asset_id=71145e02-c586-4ca9-8465-156a57d120d1&amp;img_etag=%22d729a1592036872d931c6674357d248a%22&amp;size=1024)](https://spark.adobe.com/page/Tul1log298jLR/images/bf98b250-360e-42a7-be98-7943a35cacbb?asset_id=71145e02-c586-4ca9-8465-156a57d120d1&amp;img_etag=%22d729a1592036872d931c6674357d248a%22&amp;size=1024)
+从字典给出的定义可以看出，“恩”，追求的是个人利益；“义”，追求的是公共利益。在现实社会中，这两者有的时候是一致、统一的，有的时候是矛盾、对立的。说到“报恩”，就要分析“恩”的具体内容和来源。
 
-2020年美国大选是正义和邪恶之战，未来百年的人类文明的灯塔将再次站立。在这历史的十字路口，特鲁多选择和邪恶的共产主义站在一起，他的命运结局如何？加拿大何去何从？
+一种情况，给予他人的利益属于个人合法拥有的财产资源，这是我们通常意义上说的“行善”。
 
-以下的几则旧闻是不是能帮我们找到更多的蛛丝马迹？
+另外一种情况则是，给予他人的利益是一种公共资源，属于社会财富，如果这种利益是对方应得的，将这种利益归为个人的“恩”，是公器私用，廉者不为。晋朝羊祜每次向朝廷推荐人才后，都会将推荐的奏章焚烧掉，羊祜病危时，晋武帝司马炎亲自去探望他。羊祜向他推荐杜预接替自己的职位，完成伐吴事业。武帝问道：“ 举善荐贤，乃美事也，卿何荐人于朝，即自焚奏稿，不令人知耶？” 羊祜回答说，“拜官公朝，谢恩私门，臣所不取也。“
 
-2020年7月24日，特鲁多和索罗斯的照片中不难发现，谁是老师，谁是学生？5
+第三种情况是，给他人的利益是对方不应得到的社会财富，公共资源。比如发放不合条件的补助，选择不规范的投标，提拔不合格的人选……这种利用公共资源，为自己和他人谋求不正当利益的行为，实质是徇私枉法。今天中国政治和商业生态中，说到 “恩”，大多是指这种与公共利益矛盾对立的个人利益。它是不法之徒互相勾结的纽带，是结党营私的方式和途径。
 
-2013年4月10日，特鲁多在Flickr的个人账号贴出其为多米尼投票系统（Dominon Voting System）站台。6
+文贵先生在2017年最早爆料时说，王岐山的众多情人和下属很少有背叛他的人，原因就在他舍得给。这个“给” 当然给的是国家利益，忠诚就是获利者 “报恩” 的方式。通过这种恩主关系，王岐山才能在金融领域建立一个王国，并牢牢掌控它。
 
-2018年2月23日，一则新闻：特鲁多是古巴已故共产党领导人卡斯特罗的儿子7。这一切难道是巧合吗？
+一个政治黑暗的社会，就是公权力无法约束、制衡私权的社会，是一个“恩”凌驾于“法”，道德践踏法律的社会。社会秩序不是通过法律来维持，而是通过“恩”结成大大小小的利益集团，集团中的个人唯利是图，唯恩是从，正常的社会秩序被破坏，既定的社会规则被践踏，造成社会价值观的紊乱，最后的结果就是潜规则盛行下私恩爆表，社会陷入无序、互害的混乱状态。
 
+不问“恩”的具体内容，不问个人利益与公共利益的关系，盲目倡导报恩道德观，是中国社会产生种种问题的根源之一。
 
+【文章仅代表作者观点】
 
-参考来源：
+编辑 【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/Tul1log298jLR/)
 
-1,[https://www.cbc.ca/news/politics/trudeau-congratulates-joe-biden-1.5794006](https://www.cbc.ca/news/politics/trudeau-congratulates-joe-biden-1.5794006)
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-2,[https://niagaraindependent.ca/george-soros-and-his-canadian-chess-game-part-3/](https://niagaraindependent.ca/george-soros-and-his-canadian-chess-game-part-3/)
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
 
-3,[https://www.vice.com/en/article/n7vzqg/trumps-qanon-lawyer-inspired-even-more-george-soros-disinformation](https://www.vice.com/en/article/n7vzqg/trumps-qanon-lawyer-inspired-even-more-george-soros-disinformation)
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
+[!\[\]()!\[\](https://spark.adobe.com/page/Tul1log298jLR/images/6975c476-cccc-4490-bfc2-f8ac0b4f016b.jpg?asset_id=6f8981c7-0dae-4dd8-8fa2-73b062d2d2c0&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/Tul1log298jLR/images/6975c476-cccc-4490-bfc2-f8ac0b4f016b.jpg?asset_id=6f8981c7-0dae-4dd8-8fa2-73b062d2d2c0&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
-4,[https://nyulocal.com/new-world-university-justin-trudeau-is-fidel-castros-son-bccf01403a86](https://nyulocal.com/new-world-university-justin-trudeau-is-fidel-castros-son-bccf01403a86)
-
-5,[https://gnews.org/639940/](https://gnews.org/639940/)
-
-6,[https://twitter.com/llinwood/status/1338219546684121089](https://twitter.com/llinwood/status/1338219546684121089)
-
-7,[https://www.boomlive.in/world/justin-trudeaus-photo-linked-with-dominion-voting-fraud-claims-11074](https://www.boomlive.in/world/justin-trudeaus-photo-linked-with-dominion-voting-fraud-claims-11074)
 
 0
