@@ -1,41 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 一带一路给澳大利亚维多利亚州带来的将是灾难
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/656891/)
+## 什么是财富（2）
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/656936/)
 
-撰稿：澳喜战友
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16130537/IMG_5198.jpg)网络截图
-据《澳大利亚人报》12月12日报道，维多利亚州州长丹-安德鲁斯（Dan Andrews）为与中国签署 的一带一路进行辩护，称该协议是为了给他所在的州创造就业机会。澳大利亚联邦议会已经通过了政府的对外关系立法，赋予外交部长玛丽斯-佩恩（Marise Payne）终止大学、州和地方政府或议会与外国签署协议的权力。
+撰稿：闲云野鹤
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/06151747/IMG_4456-1.jpg)网络截图
+贵先生创建了**G**系列，使财富这个概念浮现在人们面前，一时间人心浮动，**“**湾流**”**飞起。私募、公募、母币、公币、喜联储等，很多从没接触过的金融词汇也接踵而至，作为一个金融从业者，尝试开通**“**闲话财经**”**这个专栏，意图抛砖引玉，和大家分享金融咨讯的同时，对其他热门话题做一些个人解读，结合多年来积累的实例，从人心、人性、人生感悟等方面和大家分享。同时欢迎大家反馈互动。互动邮箱**[email protected]**
 
-一带一路为参与国带来了负面的经济影响。从2013年启动一带一路以来，在亚洲，巴基斯坦因债务问题日益严重而缩减中巴经济走廊；缅甸的大型港口交易也遭缩减；斯里兰卡的一个港口在政府无法偿还贷款后，不得不租给中共国99年。在欧洲，希腊举步维艰的比雷埃夫斯港由于一带一路的债务，被迫由中国远洋运输公司接管。
+**  —–**闲云野鹤
 
-中共不遵守国际法则，信誉丧失殆尽。中共想通过一带一路来统治世界，并对其他国家实行独裁统治。为了控制香港，中共废除了《中英联合声明》，并通过了范围广泛的港版国安法。澳洲呼吁调查中共病毒来源后，中共撕毁与澳洲签署的自由贸易协定，对多项澳洲产品进行制裁。世界已经意识到过度依赖中共国的风险。
+第一篇：什么是财富（2）
 
-维多利亚州因一带一路而已出现经济混乱的迹象。根据评级机构标普的数据，维州已失去AAA信用评级，其债务在2023年将达到营业收入的200%左右，远超2019年的70%。预计维州的债务水平将多年持高不下。
+上文引出了有形财富和无形财富两个概念，以下是个人对有形财富的理解。
 
-在一带一路已给维州带来明显负面影响的情况下，丹-安德鲁斯却依然一意孤行。相信美国的国会议员被中共间谍诱骗进蜜糖陷阱，而出卖国家为中共效力绝不是个案。调查丹-安德鲁斯在这个协议中是否出卖维州利益以及得到多少个人利益势在必行。
+前文提到的房产汽车、游艇飞机、金银珠宝、古董字画，股票存款等等，更多的是有形财富的象征。而我们很多人，眼光也是大多停留再这里，毕竟这是看得见、摸得着的东西，既可以满足感官刺激，又能满足虚荣心，这也是物质社会必然的表现，以金钱数量衡量是否成功。同时，更多的人为了逐利，无视亲情友谊，放下自尊，放弃道德，甚至不择手段，泯灭人性，目的只有一个——自身财富的膨胀。
 
-（本文纯属个人观点）
+我们要问：中华几千年文明传承就是这样的吗？
 
-审稿：Jenny
+当然不是，我们有着上千年的文化传统，各个时期，佛、道、儒、法在不同时期传承发扬，深植人心，中华民族也曾经屹立在世界东方。究其原因，一切的变化就始于70年前，一次次运动，一个个革命，一句句口号，一个个荒谬的判决，一步步摧毁人心，催毁道心，摧毁本心，摧毁了法治，摧毁了全社会的价值观，摧毁了全社会的道德体系，整个社会出现了悬崖式崩塌，把整个人心打散了，把整个社会拖入了深渊。一步步把人心引导到逐利一条死路上。
 
-[https://www.theaustralian.com.au/nation/politics/belt-and-road-still-a-good-fit-says-daniel-andrews/news-story/e40a929fe08823666ffd9045c4f804f2](https://www.theaustralian.com.au/nation/politics/belt-and-road-still-a-good-fit-says-daniel-andrews/news-story/e40a929fe08823666ffd9045c4f804f2)
+愚民，驭民，驭愚民。这就是现实社会一味追求有形资产的本源。
 
+现实社会，早已迷失在金钱物欲中，崇尚金钱、惟利是图。当我们打开电视，鉴宝收藏节目长期稳居流量前列，各种编造的捡漏暴富“事例”充斥视野。电视导购节目，满屏限量版收藏买到就是赚到。各种真人秀节目，嘻嘻哈哈就收入千万。还有各种投资理财推荐，铺天盖地。普通老百姓完全被这种信息洗劫。还有报纸杂志，一个个成功人士自曝所谓艰苦创业发家史，给人一种“靠自己努力可以快速致富”的假象。长久以往，人们脑子里只有自我和物欲，期待一夜成名，一夜暴富。
 
+有形财富，可以给人舒适享乐，可以造成一种虚幻，一般人很容易迷失其中。在国内这样的体制中，要想获得更多的有形财富，必定离不开红黄黑白（红——官商勾结，黄——色情行业，黑——偷税漏税，白——毒品走私，以后会详细解读），这种获得途径极其脆弱，一旦发生意外变故，也极易失去。比如王健，非但要失财，还要丢命。
 
-> [One Belt, One Road, One Big Mistake](https://foreignpolicy.com/2018/12/06/bri-china-belt-road-initiative-blunder/)
+所以，真正能体现一个人价值的，不仅仅是有形财富的多少，更多更重要的是长期被人忽视的无形财富。正如文贵先生所说的，德要配位，财也要配位。重视另一种财富——无形财富的积累，才是正确的财富观。
 
-
-
-[https://www.forbes.com/sites/wadeshepard/2020/01/30/is-chinas-belt-and-road-already-in-retreat/?sh=2c23696a5ebe](https://www.forbes.com/sites/wadeshepard/2020/01/30/is-chinas-belt-and-road-already-in-retreat/?sh=2c23696a5ebe)
-
-[https://www.heraldsun.com.au/business/victoria-loses-aaa-credit-rating-as-sp-downgrades-over-weaker-outlook/news-story/f8bed1f8272cd5ddfe5b781b7865dfee](https://www.heraldsun.com.au/business/victoria-loses-aaa-credit-rating-as-sp-downgrades-over-weaker-outlook/news-story/f8bed1f8272cd5ddfe5b781b7865dfee)
-
-[https://www.theaustralian.com.au/world/the-times/chinese-spy-christine-fang-lured-aspiring-politicians-into-honey-trap/news-story/87e0135c03bc138ec157ddf3c45587a5](https://www.theaustralian.com.au/world/the-times/chinese-spy-christine-fang-lured-aspiring-politicians-into-honey-trap/news-story/87e0135c03bc138ec157ddf3c45587a5)
+（待续）
 
 澳喜文章[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
 
 欢迎加入澳喜农场：[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16044753/%E6%BE%B3%E5%96%9C%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16044714/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%87.jpg)
+
+
 0
