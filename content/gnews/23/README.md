@@ -1,27 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 7.3万海外蓝金黄力量终于回国啦
-` XMLYG777` [轉載自GNews](https://gnews.org/zh-hans/660472/)
+## 【突发】彭佩奥批中共无所不用其极
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/660570/)
 
-内新闻/素材：文婷 校对：三娃
+- 编辑：Victor Torres
 
-12月17日，外交部领事司司长崔爱民表示，中方已安排351架次航班，从意大利、英国、美国、南非、伊朗等92个国家接回超过7.3万名海外人员。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17133110/image0-97.jpg)
-中共此举与前段时间曝光的一个包含近200万中共党员数据库有关。据悉，该数据库中包含了姓名、党职、生日、身份证号码和民族。这人类第一事件，将暴露中共党员通过蓝金黄在全球各政府、组织和公司进行滲透的间谍活动。
 
-随着爆料革命对中共海外蓝金黄真相的揭露，引起了世界各国对中共的警惕和反击，采取措施和抓捕间谍。各国媒体争相报道。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-《澳大利亚人报》12月13日报导，中共已经渗透到澳大利亚、英国和美国驻上海领事馆，甚至在世界各地的大型企业都设有支部。
+**西班牙2020年12月17日电/西喜社——**周四，美国国务院官方推特发布国务卿彭佩奥讲话：
+“中国共产党想要我们拥有的东西，为了得到它，将无所不用其极，从窃取我们的东西到迫使中共的批评者保持沉默。”
 
-英国的《星期日邮报》报导也提到中共党员在英国上海领事馆工作。美国联邦众议员麦卡锡和麦考尔共同于10月1日这天在《国家评论》上撰文说，全面反击中共对美国的渗透和在国际国内的凌霸。
 
-美国媒体Axios也揭露，一名称作“方芳”的女子在2011到2015年间，在美国政界交游广阔，还与至少两名市长发展暧昧关系，借此影响美国政治圈。被发现后逃回中共国。
 
-中共对海外渗透由来已久，利用”合法掩护非法”渗透校园、媒体、海外华人社群、海外公司，甚至外国政府。中共利用统战系统向世界输出自身的政治模式，此举将破坏其它国家的社会凝聚力、增加种族间的紧张、影响他国内政、打压异议运动。还在试图影响海外英文中文媒体、鼓励科技转让，鼓励海外科学家参加中共千人计划。
+> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): The Chinese Communist Party wants what we have, and it’ll do whatever it takes to get it, from stealing our stuff to pressuring critics of the CCP to keep quiet. [pic.twitter.com/W5wetXzQBf](https://t.co/W5wetXzQBf)
+> — Department of State (@StateDept) [December 17, 2020](https://twitter.com/StateDept/status/1339617671420268547?ref_src=twsrc%5Etfw)
 
-如今中共利用蓝金黄在各国渗透的丑行遭到彻底的曝光，犹如过街老鼠人人喊打。此次接回海外间谍，证明了此地无银三百两。又一次印证了什么叫做贼心虚，搬起石头砸自己的脚！
 
-本文仅代表个人观点。
 
-1+
+2+

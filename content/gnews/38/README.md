@@ -1,112 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大银行业行为与合规（一）
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/657997/)
+## 密歇根州立法机构授权可对涉嫌大选舞弊的区域发出传票
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/660355/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16220630/%E5%8A%A0%E8%A1%8C%E4%B8%9A1.png)**Picture Source: www.groomassocies.com/**
-1. Withdraw和Recession
+*加拿大多伦多枫叶农场（原加喜农场） ctt*
 
+*校对、上传 文锦*
 
-— 时间泛指After Provided Fund Fact
+据《大纪元时报》(The Epoch Times) 12月16日报道, 密歇根州的立法机构于12月15日授予该州参议院和众议院监督委员会权力，可向底特律和利沃尼亚郊区发出传票，这样官员们就能够进一步调查11月3日选举中选民舞弊指控。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17121235/B9328131629Z.1_20170619180850_000_G5PIMLC9S.3-0.jpg)密歇根议会大厦 图片来源：freep.com
+这项决议在参众两院获得通过, 按照此决议, 书记员们将不得不交出硬盘、电子邮件、缺席选民计票委员会的笔记本电脑以及其他与选举有关的材料。
 
-— 需要时直接向法律部门报告Head Office Legal Department / RCO
+该决议是在对该州多米尼（Dominion） 投票机进行核查后提出的，在核查中发现，该设备可以产生大量的制表错误，并且这是人为故意这样设计的。对密歇根州安特里姆县审核还发现，多米尼投票机可能存在的硬件问题时，有1400多张选票发生了变化。
 
-— 若没有递送 客户将持续拥有撤回权力 /Continuing Right to Withdrew
+对此，密歇根州众议院监督委员会主席马特·霍尔 (Matt Hall) 周二说，这项决议对于确保该州选举程序的透明度、效率和可信度极其重要。另一名作为州众议员的共和党人说, 我们可以通过进行彻底和完整的调查来开始这个过程，以了解这些报告的真相，并提供选民应得的答案。而一名参议院民主党人也支持这项措施，他说，传票要求底特律书记员在1月12日下午5时前，出示有关他们如何进行选举的文件。
 
-1. BCO RCO HCO三者关联关系
+密歇根州官员对该州存在选举舞弊的说法提出质疑，多米尼投票系统公司也否认该系统存在舞弊或换票行为。
 
+但霍尔表示，他已经看到了几份关于选举出现违规行为的报告，我们需要审查底特律和利沃尼亚缺席选民计票结构的计划和大纲，以及合格的选民档案信息和投票工作人员的名单，他们的党派和培训程序。证据就在记录、文件和通信中，它们来自监督选举过程的地方官员。
 
-— BCO作为联络人Liaison
+评：
 
-— BCO直接向RCO报告合规责任
+这次美国大选中，拜登阵营进行了大量的造假和作弊，其中很多都发生在多米尼投票系统上。目前曝出的越来越多证据显示，外国势力通过控制多米尼投票系统操纵美国大选，并且连拜登家族的势力在控制多米尼投票系统，为什么这么多地区的投票机都有问题呢？看来这次拜登胜选的结果绝不可信。
 
-— HCO虽担任高级官员，但通讯交流仅限于极特殊情况下
+原文链接
 
-1. Security Regulator
+[Michigan Legislators Subpoena Election Evidence Over Alleged Irregularities](https://www.theepochtimes.com/michigan-oversight-committees-subpoena-election-evidence-over-alleged-irregularities_3620611.html?st=1RbAUSBlBeGH_BKUHz3bski1vu3N-deedKDVLEEmsYuxlY9EEDTwedc57Hvm36-afiq6bmRxTOrTplb0MbCHngGWGm6p-6Tne6I)
 
-
-— 有权起诉涉嫌违反证券法规条例的行为
-
-1. Representative  / Dealer
-
-
-— 两者必须在同一司法管辖区注册，对于客户来说
-
-1. Manitoba和 Northwest Territories明确禁止向非客户拨打电话出售证券
-
-
-— 魁北克则是有条件的允许
-
-1. 为避免利益冲突，
-
-
-— BCO应该检查销售代表账户的所有交易在最初六个月中Six Month
-
-1. 重大材料改变，五个工作日内向MFDA报告
-2. 81-102：Mutual Fund Primary Regulation一级管理条例Primary
-3. NI31-103：
-— 负责注册，披露，从业资格，合规，交易披露
-
-
-— 物理上Dealer从属在Branch Of Financial Institution中的运营
-
-1. 魁北克要求=两年内，30个PDU的学习
-
-
-1. BC省 /AB省允许销售人员，推广/宣传注册身份 /展示从业资格证书
-
-
-1. 任何奖励费用支付必须经由Mutual Fund Dealer (Trailer Fee/Commission）
-
-
-— 禁止Mutual Fund Company 直接支付得到奖励
-
-1. BCO确保销售不会收到任何Unauthorized Sales Incentives
-
-
-— 工资和其他补偿将会被决定在Head Office
-
-1. MDAF Policy No.1
-
-
-规定了注册之日起，六个月内BCO对所有新销售人员的监管要求
-
-First 90-Days*=*90天内*/*前三个月
-
-— 所有新账户任何交易活动之前（100%），必须获得BCO的批准
-
-Approved By BCO Prior To Any Trading
-
-— Subsequent Trading随后交易须在交易日后一个工作日内交由BCO审查，
-
-— 且交易前必须由BCO审查杠杆交易的使用（LOAN）
-
-Subsequent 90-Days=90天—180天 /后三到六个月
-
-— 所有新账号必须在交易前或一个工作日内获得BCO批准
-
-1. 持续注册要求（Ongoing Registration Requirement）
-
-
-会触发更改的情景Notice of Change
-
-BCO填写NoticeofChange报告给RCO/RD，且在五个工作日继续向
-
-Security Regulator递交，通过NRD系统（National Registration Database）
-
-— 同一省份内，分行转换
-
-— 终止Termination
-
-— 姓名，个人破产情况Personal Circumstance / Bankruptcy
-
-— 刑事犯罪Criminal Offence
-
-Author：搞笑排行榜
-
-Original opinion article by Himalaya GFarm Vancouver
-
-2020/12/17
-
-0
+2+

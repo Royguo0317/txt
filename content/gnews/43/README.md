@@ -1,140 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统公布关于国防部内部继承顺位的行政令
-` GM127` [轉載自GNews](https://gnews.org/zh-hans/660263/)
+## 斯伯丁将军: 我们对中共暴行的沉默是可怕的
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/660327/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17112502/WH_20201210_Order_of_Succession-coverphoto.jpg)Photo by [Jon Sailer](https://unsplash.com/@eyefish73?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/american-flag?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText); [https://en.wikipedia.org/wiki/United\_States\_Department\_of\_Defense](https://en.wikipedia.org/wiki/United_States_Department_of_Defense) 
-[阅读白宫行政令原文](https://www.whitehouse.gov/presidential-actions/executive-order-providing-order-succession-within-department-defense/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17115708/notka-ipp-spalding-coronavirus-againstthetidetv-1.jpg)图片来源：Aganist The Tide TV
+美国退役空军准将、哈德逊研究所（Hudson Institute）的高级研究员、《隐形战争》一书作者斯伯丁将军（Gen. Robert Spalding)于2020年12月14日在Realclearworld新闻评论网发表文章，指出中共暴行已经对自由世界造成威胁，然而鲜有相关的报道和评论文章。
 
-**EXECUTIVE ORDERS**
+在文章中，斯伯丁将军首先讲述了香港自2020年7月通过国安法以来各阶层异议人士受中共迫害的事实。斯伯丁指出，香港自由的沦陷和中共病毒在世界的流行在时间上并行，造成各国对各自疫情自顾不暇而无心过问的状态，但是他告诫世界不要以疫情为借口而忽略了中共对自由世界的威胁。他强调，越是疫情蔓延，我们越要清醒地认识到中共的本质从未改变。
 
-**行政命令**
+无论是对香港的镇压还是对中共病毒吹哨人的迫害，中共对人权的迫害如出一辙。世界对中共暴行的可怕沉默和默默接受另人担忧，而且成为一种新常态，并一致地出现在了全球商界、媒体、以及政府机构。当川普政府限制中共的应用软体、喉舌媒体和中共控制的公司时，却遭到了此起彼伏的批评声，更有甚者竟然要求赋予违规的中共公司与自由世界规范公司同等的待遇。
 
-**Executive Order on Providing an Order of Succession within the Department of Defense**
+斯伯丁进一步提到，西方意义上的法治和契约约束在中共国根本不存在。中共的法律依据就是凌驾一切的中国共产党的一党专政，所以在中共国实际是没有公有和私有之分的。中共参与和控制了那些所谓的私有企业以及它们的海外分支，并利用那些海外分支对自由世界不断渗透来传播
 
-**关于国防部内部继承顺位的行政命令**
+其意识形态以及盗取专利和科研成果，达到巩固和扩张政权的目的。斯伯丁将军特别点名了阿里巴巴和马云。
 
-Issued on: December 10, 2020
+在文章末尾，斯伯丁提醒，和中共的商业互动永远不可能是正常社会认为的商业利益交换。中共唯一的目的是利用西方的漏洞来达到其对内暴政对外扩张的野心。香港的现状、新疆的屠杀、和南海局势的紧张都是中共实现其野心的几个棋子。
 
-发行日期：2020年12月10日
+**译评**：斯伯丁将军在这个节骨眼上一锅端地悉数了中共对内和对外的各种恶行，包括强调自由世界不要因为中共病毒而放松警惕。很有可能是在为接下来的暴风行动做舆论热身。现在美国大选在中共病毒和干预大选下仍在走司法程序。同时，已有各方暗示接下来佐治亚州长和州务卿以及一些政坛要员可能不久会锒铛入狱。我们需要足够的耐心和信仰，才能在乱世看清方向做好心理准备。
 
-By the authority vested in me as President by the Constitution and the laws of the United States of America, including the Federal Vacancies Reform Act of 1998, as amended, 5 U.S.C. 3345 et seq., it is hereby ordered as follows:
+[原文链接](https://www.realclearworld.com/articles/2020/12/14/our_alarming_silence_on_chinas_violations_of_rights_653133.html)
 
-根据美利坚合众国宪法和法律赋予我作为总统的权力，包括经修订的《1998年联邦空缺改革法案》，《美国法典》第5章第3345节及后刊。特此命令如下:
+编译：forguo1
 
-Section 1. Order of Succession. (a) Subject to the provisions of section 2 of this order, the following officials of the Department of Defense, in the order listed, shall act as and perform the functions and duties of the office of the Secretary of Defense (Secretary) during any period in which the Secretary has died, resigned, or otherwise become unable to perform the functions and duties of the office of the Secretary, until such time as the Secretary is able to perform the functions and duties of that office:
+校对：沙拉猫
 
-第一条、继承顺位。（a）在不违反本命令第2条规定的原则下，任何国防部长去世、辞职或无法履行部长职务的情况下，国防部的以下官员应按所列出的顺序担任（部长）办公室并履行其职能和职责，直到部长能够履行其职务和职责为止：
-
-(i) Deputy Secretary of Defense;
-
-(i) 国防部副部长；
-
-(ii) Secretaries of the Military Departments;
-
-(ii) 军事部部长；
-
-(iii) Under Secretary of Defense for Policy;
-
-(iii) 国防部政策部副部长；
-
-(iv) Under Secretary of Defense for Intelligence and Security;
-
-(iv) 国防情报和安全部副部长；
-
-(v) Chief Management Officer of the Department of Defense;
-
-(v) 国防部首席管理官；
-
-(vi) Under Secretary of Defense for Acquisition and Sustainment;
-
-(vi) 国防部采购与后勤支持部副部长；
-
-(vii) Under Secretary of Defense for Research and Engineering;
-
-(vii) 国防研究与工程部副部长；
-
-(viii) Under Secretary of Defense (Comptroller);
-
-(viii) 副国防部长（审计长）；
-
-(ix) Under Secretary of Defense for Personnel and Readiness;
-
-(ix) 国防部人事和预备部副部长；
-
-(x) Deputy Under Secretary of Defense for Policy;
-
-(x) 国防政策部副代理部长；
-
-(xi) Deputy Under Secretary of Defense for Intelligence and Security;
-
-(xi) 国防情报与安全局部副代理部长；
-
-(xii) Deputy Under Secretary of Defense for Acquisition and Sustainment;
-
-(xii) 国防采购与后勤支持部副代理部长；
-
-(xiii) Deputy Under Secretary of Defense for Research and Engineering;
-
-(xiii) 国防研究与工程部副代理部长；
-
-(xiv) Deputy Under Secretary of Defense (Comptroller);
-
-(xiv) 国防部副代理部长（审计长）；
-
-(xv) Deputy Under Secretary of Defense for Personnel and Readiness;
-
-(xv) 国防人事与战备部代理副部长；
-
-(xvi) General Counsel of the Department of Defense, Assistant Secretaries of Defense, Director of Cost Assessment and Program Evaluation, Director of Operational Test and Evaluation, and Chief Information Officer of the Department of Defense;
-
-(xvi) 国防部总顾问，国防部长助理，成本评估和方案评估主任，作战测试和评估主任以及国防部首席资讯官；
-
-(xvii) Under Secretaries of the Military Departments; and
-
-(xvii) 军事部副部长；和
-
-(xviii) Assistant Secretaries of the Military Departments and General Counsels of the Military Departments.
-
-(xviii) 军事部门部长助理和军事部门总顾问。
-
-(b) Precedence among officers designated within the same paragraph of subsection (a) of this section shall be determined by the order in which they have been appointed to such office. Where officers designated within the same paragraph of subsection (a) of this section have the same appointment date, precedence shall be determined by the order in which they have taken the oath to serve in that office.
-
-(b) 在本条 (a) 款同一款所指定的人员中，优先顺序应由其被任命担任该职务的顺位决定。如果在本条 (a) 款的同一段中指定的官员具有相同的任命日期，则应根据其宣誓就职于该办公室的顺位来确定优先次序。
-
-Sec. 2. Exceptions. (a) No individual who is serving in an office listed in section 1(a) of this order in an acting capacity, by virtue of so serving, shall act as Secretary pursuant to this order.
-
-第 2条. 免责条款 。(a) 在本命令第1 (a) 条所列办公室中担任职务的个人，不得凭藉担任这种职务的身份而担任秘书。
-
-(b) No individual listed in section l (a) of this order shall act as Secretary unless that individual was appointed to an office for which appointment is required to be made by the President, by and with the advice and consent of the Senate, and that individual is otherwise eligible to so serve under the Federal Vacancies Reform Act of 1998, as amended.
-
-(b) 本命令第 l (a) 条所列人员不得担任部长，除非该人员经总统要求任命参议院的建议和同意被指派到相关办公室，并且该个人根据经修订的1998年《联邦空缺改革法案》（Vederal Vaaccies Reform Act of 1998）有资格担任此项职务。
-
-(c) Notwithstanding the provisions of this order, the President retains discretion, to the extent permitted by law, to depart from this order in designating an Acting Secretary.
-
-(c) 尽管有本命令的条文规定，总统在法律许可的范围内，有保留委任代理部长的酌情权。
-
-Sec. 3. Revocation. Executive Order 13533 of March 1, 2010 (Providing an Order of Succession Within the Department of Defense), is hereby revoked.
-
-第三条、 撤销。特此撤销2010年3月1日的第13533号行政命令（提供给国防部内部的继任命令）。
-
-Sec. 4. General Provision. This order is not intended to, and does not, create any right or benefit, substantive or procedural, enforceable at law or in equity by any party against the United States, its departments, agencies, or entities, its officers, employees, or agents, or any other person.
-
-第四条、一般规定。本命令无意也不创造任何针对美国、各部门、机构或实体、各官员、雇员或代理人或任何其他人在法律上或衡平法上可执行的实质性或程式性权利或利益。
-
-DONALD J. TRUMP
-
-唐纳德·川普
-
-THE WHITE HOUSE
-
-白宫
-
-December 10, 2020.
-
-2020年12月10日
-
-翻译：【Guanghan宝宝】 校对：【重生】 编辑：【Isaiah4031】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22111053/VOG-Rose-Garden-Team.png)
-1+
+0
