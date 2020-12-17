@@ -1,55 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 数据安全的垄断霸权已经形成，将对世界提出严峻挑战
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/657250/)
+## 劫贫济富，弱肉强食——报恩道德之批判（三）
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/657111/)
 
-*作者：Freedust；校对/审核：海阔天空；Page：拱卒*
+***作者：孙行者; 编辑：海阔天空; PAGE：玄天生***
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16165906/402116.jpg)
+前面两篇文章都从施恩的一方分析了报恩道德对社会风气的恶劣影响，本文将从受施一方分析它的危害。
 
-# **数据安全的垄断霸权已经形成，将对世界提出严峻挑战**
+物质生产是人类存在发展的条件。一切社会道德归根结底都是鼓励劳动的，否则社会会失去发展的物质基础。所以，劳动获酬可以看作是所有道德的原点，没有人愿意承认自己是不劳而获的人。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/xcHk5vWqyhcGz/images/e49a8606-7506-400e-9c1f-7af857f5de50.jpg?asset_id=4e462be8-5042-41d9-a08e-593225a8f5ea&amp;img_etag=%22d5cc4ba25c233f886eb1ceae195bd210%22&amp;size=2560)](https://spark.adobe.com/page/xcHk5vWqyhcGz/images/e49a8606-7506-400e-9c1f-7af857f5de50.jpg?asset_id=4e462be8-5042-41d9-a08e-593225a8f5ea&amp;img_etag=%22d5cc4ba25c233f886eb1ceae195bd210%22&amp;size=1024)
+行善是社会中个体自愿对他人提供的劳动或物资帮助。正常状态下，人们在“施恩”的时候没有期望报酬，但对于行善的对象、受恩人来说，行善就是他人付出了劳动或给予了物资。不劳而获的羞耻心会驱使受恩人在有能力的时候去为这个劳动提供相应报酬，或等价偿还他获得的物资。不这样做，在他内心就存在亏欠，愧疚。
 
-近日被网络攻击推上风口浪尖的SolarWinds引起的公众关注，SolarWinds在2016年被科技为重点的私募股权公司Thoma Bravo LLC和Silver Lake Partners以45亿美元的价格私有化。两家公司都有该公司的大量股权并保留了董事会职位，而Silver Lake Partners与中共控制的阿里巴巴集团有千丝万缕的关系。
+从这个意义上说，报恩也是人的一种自觉、自愿的自然行为，无可厚非。虽然受恩人同时也会受到善行感染，去帮助他人，传递善行。但报恩可能产生的一个结果是，激发行善对回报的期望，使社会中行善无偿自愿的性质发生异化。
+[!\[\]()!\[\](https://spark.adobe.com/page/mvFXl6wYpsiGu/images/f8b3a49a-7c85-4021-b4b1-85294b25df85.jpg?asset_id=7255da07-fa35-4c24-96d5-3b5576115bc4&amp;img_etag=%22f6efc8ce3a239c2ebfb0a352b7be6467%22&amp;size=1024)](https://spark.adobe.com/page/mvFXl6wYpsiGu/images/f8b3a49a-7c85-4021-b4b1-85294b25df85.jpg?asset_id=7255da07-fa35-4c24-96d5-3b5576115bc4&amp;img_etag=%22f6efc8ce3a239c2ebfb0a352b7be6467%22&amp;size=1024)
+道德教化的积极意义就在于，消弭人的自然行为对社会可能产生的危害，引导个体朝对社会整体、长远利益有积极作用的方向行动。具体到行善，就是要弱化“施恩”、“报恩”意识，鼓励利他之心，倡导博爱精神。这样，善行才会在一个社会里生生不息、循环往复。
 
-那么现在，让我们把视角转移到Thoma Bravo身上，Thoma Bravo是一家总部位于芝加哥的美国私募股权和成长型资本公司。自2003年以来，Thoma Bravo已经完成了230笔价值超过680亿美元的软件交易，并管理着38家软件公司的投资组合，这些公司每年产生约120亿美元的收入，拥有4万名员工。
+与此相反，报恩道德却是通过强化报恩意识来鼓励善行，结果是南辕北辙，除了产生前文所说的使社会价值观矛盾混乱，人际关系冷漠的后果，更因它不断放大报恩的要求，使得社会人际关系并不会因个人的行善而变得和谐，而是变得更加尖锐和对立。
 
-DigiCert，Inc.是一家专注于数字安全的美国技术公司，总部位于犹他州的利希，在澳大利亚，爱尔兰，日本，印度，南非，瑞士和英国设有国际办事处。 作为证书颁发机构（CA）和受信任的第三方，DigiCert提供了颁发数字证书或TLS / SSL证书所需的公钥基础结构（PKI）和验证。 这些证书用于验证和验证组织和域的身份，并保护用户与Web浏览器，电子邮件客户端，文档，软件程序，应用程序，网络和连接的IoT设备进行数字交互的隐私和数据完整性。[1] 独立调查公司Netcraft表示：“ DigiCert是世界上最大的高保证证书颁发机构，在扩展验证证书市场上占有60％的份额，在全球范围内拥有96％的组织验证证书。”
+天道损有余以补不足；人道损不足以补有余。在报恩道德的无限要求下，行善，本应救助社会的弱者；报恩，使得社会资源和财富反而更加集中在权贵手中，日益加剧了社会的不公。报恩道德，不仅异化了个人自我救赎的手段，消除了民间救助的途径，也使社会陷入弱肉强食的丛林世界状态。
 
-2015年，DigiCert从Verizon Enterprise Solutions手中收购了CyberTrust Enterprise SSL业务，成为全球第二大高安全性或扩展验证（EV）TLS / SSL证书颁发机构。
+中共从建政以来，就以”吃水不忘挖井人，翻身不忘共产党“的说教对人民进行戕害，利用强大的宣传机器，将社会的一切劳动成果，归功于自己，要求人民对它感恩戴德，利用人们的报恩观念来驯化、统治、奴役人民。
 
-2015年8月28日，私募股权公司Thoma Bravo收购了DigiCert的多数股权，TA Associates是一家领先的全球成长型私募股权公司，持有少数股权，这是迄今为止对犹他州公司最大的投资之一。引用Thoma Bravo的话说，“DigiCert代表了一个出色的投资机会，以支持其一贯的创新和一流的客户服务闻名的市场领导者。
+改革开放以来，以红色家族为主的中共权贵阶层，世袭垄断国家权力，霸占一切资源和财富。在以权力分配公共资源的过程中，公器私用，私相授受，再以恩主自居，和受益人结成各种关系圈子和利益集团，进一步盗取国家财富，压迫剥削人民。报恩道德成为盗国贼家族进行罪恶统治的思想和道德工具。
 
-(以上来自维基百科)
+清楚认识报恩道德的危害，不仅对墙内人民挣脱中共权贵的道德枷锁，积极参与爆料革命的灭共斗争有重要意义，对解决爆料革命过程中面临的队伍建设问题以及未来新中国联邦的社会重建都有积极的意义。
 
-早在2009年7月29日，Thoma Bravo LLC完成了对软件制造商和数字安全提供商Entrust公司的1.24亿美元的收购。（[原文](https://www.thomabravo.com/press-releases/thoma-bravo-completes-124m-acquisition-of-entrust)）
+墙内特别是体制内的人士，人生或多或少遇到过一些“恩人”，接受过来自他人各种“恩惠“，比如，升学、提干、升迁，致富等。人民需要端正的认识是，这些“恩惠”的实质是公共资源、国家财富。只要你不是投机取巧，没有搞歪门邪道，这些财富就是你的正常劳动所得，是个人合法应得的财富，而不是拜哪个人的恩惠所赐，不应该受报恩道德绑架，以为自己是在做一个有道德的人，实际上是人格和人身自由被权贵以国家资源，社会利益控制和绑架，成为了中共犯罪集团的一员。明白这一点，才能勇敢地站出来，参与爆料革命，将自己和中国人民从中共的罪恶统治下解放出来，实现个人的自由和社会的公正。
 
-Jerry C. Jones，56岁，于1999年加入Acxiom，负责监督法律和隐私事物，并协助制定战略，执行合并和同盟以及公司的战略计划，是公司的首席法律官，执行副总裁兼助理秘书。加入Acxiom之前，他在阿肯色州小石城的Rose Law Firm律师事务所工作了19年，担任律师。（[原文](http://www.clubmadrid.org/miembro/jerry-jones/)）
+当然，如果是通过不正当手段获得的地位和财富，则是一种主动卖身，加入中共黑社会团伙的行为。对于一个眼中只有利益，没有道德的人，又要以“报恩”为名坚持与中共沆瀣一气，不过是掩耳盗铃，自欺欺人的表演，这种“报恩“的实质对施受双方都不过是一种利益的交易，利在恩在，利尽恩绝，古往今来，莫不如此。
+[!\[\]()!\[\](https://spark.adobe.com/page/mvFXl6wYpsiGu/images/acb64122-1e37-45de-95e2-9bf77b6ff4cc.jpg?asset_id=30913ab2-1b79-4c8d-acdd-80e6155a7332&amp;img_etag=%22be78042fc915679967077e7032005720%22&amp;size=1024)](https://spark.adobe.com/page/mvFXl6wYpsiGu/images/acb64122-1e37-45de-95e2-9bf77b6ff4cc.jpg?asset_id=30913ab2-1b79-4c8d-acdd-80e6155a7332&amp;img_etag=%22be78042fc915679967077e7032005720%22&amp;size=1024)
+郭文贵先生在成长过程中，多少老领导对他都有过帮助，提携，但在灭共大义前，所有这些，都被他放在了一边。2020年1月2日他在报平安视频中更提到，几年前，在哥哥、侄子等多人被抓进监狱之后，跟母亲一样把他从小带大的嫂子，是最悲惨的、最痛苦的人。嫂子当时听信孙立军的话，求他不要爆料。文贵说：“嫂子你说的是家里边的私情，我要干的事情是灭共， 这是大义，不可能听你的。你就当我死了，这弟弟已经没了。” 这就是忘記私恩，担负道义的表率。唯非常之人，才有非常之志；唯有非常之志，才有非常之行。
 
-Acxiom与entrust联系紧密。
+中国社会历来弊端重重，究其病根，实在是由报恩道德引起。报恩道德造成的伪善和世风的败坏，是爆料革命和新中国联邦建设中同样会面临，需要引起重视、戒备的问题。郭文贵先生屡次批评、否定报恩意识，提倡爆料革命的“无我”精神的意义就在这里。
 
-恰好，Hillary Clinton也是Rose Law Firm律师实务所的重要合伙人，与Jerry是同事。Jones也在Clinton Presidential Center担任特别顾问。（[原文](https://informationaccountability.org/2020/04/jerry-jones/)）而Clinton总统的顾问Mr. McLarty则是Acxiom Corporation的董事。（[原文](https://maglobal.com/team/thomas-f-mclarty-iii/)）
+一灯能除千年暗，一智能除万年愚。在一个弊病丛生，积重难返的社会中，否定、批判报恩道德，尤其显得振聋发聩，是一记匡正人心风俗的当头棒喝，也是一记灭共的重拳。战友在革命斗争的过程中，应该以此为戒，谨防私恩爆表，帮助他人，努力践行正道主义，传递善行，追求公益。这样，善行才会像种子一般，通过传递，植入社会，开花结果，惠及大众，建设一个美好的新中国。
 
-DigiCert, Thoma Bravo, and CyberTrust somehow verify ALL ELECTIONS IN ALL STATES
+【文章仅代表作者观点】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/xcHk5vWqyhcGz/images/6b673525-f2b3-4f80-a654-4b5a18ef5a14.png?asset_id=c93b6a23-3a48-4776-a6de-d4ac042a9b9d&amp;img_etag=%2217ab7fb1b04b0022552a357002ee7486%22&amp;size=2971)](https://spark.adobe.com/page/xcHk5vWqyhcGz/images/6b673525-f2b3-4f80-a654-4b5a18ef5a14.png?asset_id=c93b6a23-3a48-4776-a6de-d4ac042a9b9d&amp;img_etag=%2217ab7fb1b04b0022552a357002ee7486%22&amp;size=1024)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/xcHk5vWqyhcGz/images/7be18019-4f4d-41e8-ae36-666c8b1263ca.png?asset_id=9edac78a-1ddf-440e-8f21-b12e171617df&amp;img_etag=%22873332adc2b3e81d20c7ead4f3ef0474%22&amp;size=2953)](https://spark.adobe.com/page/xcHk5vWqyhcGz/images/7be18019-4f4d-41e8-ae36-666c8b1263ca.png?asset_id=9edac78a-1ddf-440e-8f21-b12e171617df&amp;img_etag=%22873332adc2b3e81d20c7ead4f3ef0474%22&amp;size=1024)
-
-## ***简评：***
-
-这是对SolarWinds进行投资的两个投资公司中的另一个，SolarWinds Orion的后门造成了此前美国商务部的黑客攻击，且在阿里巴巴的IPO中扮演了重要角色，而另外这个Thoma Bravo旗下的企业却承包了很大一部分美国大选的选票验证工作，可以说，两个私募投资公司对美国的国家安全起着至关重要的作用。鉴于最近由The Gateway Pundit爆出Dominion系统也在使用SolarWinds相关的软件，那么我们就有充分的理由怀疑这两家公司在此次贿选中扮演了重要的角色。同时，我们似乎也看到了Clinton家族的影子。
-
-另外，SolarWinds，DigiCert和CyberTrust已经构成了全球大部分企业数据部分的安全大门，无论从SolarWinds的客户来看，还是从DigiCert和CyberTrust占有的主流安全方式（数字证书和TLS / SSL证书的公钥）的市场份额来看，数据安全的垄断已经形成，这将对全球的重要的官方和企业数据安全提出严峻挑战。
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/xcHk5vWqyhcGz/)
+编辑 【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/Tul1log298jLR/)
 
 [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
 
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/xcHk5vWqyhcGz/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/xcHk5vWqyhcGz/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
+[!\[\]()!\[\](https://spark.adobe.com/page/mvFXl6wYpsiGu/images/a7d3511f-78fc-40f9-8fe0-db6578fdabaf.jpg?asset_id=dbf455a5-e0fe-430c-bce3-bccb63f80475&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/mvFXl6wYpsiGu/images/a7d3511f-78fc-40f9-8fe0-db6578fdabaf.jpg?asset_id=dbf455a5-e0fe-430c-bce3-bccb63f80475&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

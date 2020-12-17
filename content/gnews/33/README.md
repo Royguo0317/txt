@@ -1,32 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 沼泽的恐惧
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/657107/)
+## 特鲁多的加拿大何去何从？
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/657172/)
 
-```
-作者: Tito
-校对/发稿人: Ting Guo
-```
+加拿大多伦多枫叶农场 枫叶小哥
+
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16152718/T-5.jpg)图片来自 CTV News
+美国的总统世纪大选按部就班进入了冲刺阶段，1月20日就职典礼的主人已经没有悬念，川普总统将突破重重黑暗及沼泽地势力，开启第二任任期。作为美国最紧密的伙伴国家加拿大，过去一个月发生的事情让人捏把汗，让我们站在非主流媒体的视角看看它的总理特鲁多。
+
+2020年11月7日，在大选舞弊案的背景下，特鲁多迫不及待地恭喜拜登当选总统1，为其站台的意味明显。我们都知道，亨特·拜登的“硬盘门”事件彻底暴露了拜登家族和中共深度勾结，妄图“赤化”美国，控制全世界的野心，特鲁多是看不见还是假装看不见？
+
+11月19日，鲍威尔（Sydney Powell）大律师公告美国大选舞弊调查进展2，金融大鳄索罗斯（George Soros）就是美国大选投票系统多米尼Dominion Voting System的背后力量，揭开了沼泽地鳄鱼的面纱。
+
+2020年12月13日，调查美国大选舞弊案的林·伍德（Lin Wood）大律师的推文证实3，中共联合美国的Deep State操纵偷窃美国大选；索罗斯和加拿大也卷入其中。作为加拿大总理的特鲁多，有没有参与其中？和背后的共产主义势力CCP有什么不为人知的秘密？
+
+12月11日，一则来源于真相媒体GNEWS.ORG的新闻4：加拿大政府意图训练中共CCP军队。 帮助独裁国家训练军队意味着什么？
+
+2020年美国大选是正义和邪恶之战，未来百年的人类文明的灯塔将再次站立。在这历史的十字路口，特鲁多选择和邪恶的共产主义站在一起，他的命运结局如何？加拿大何去何从？
+
+以下的几则旧闻是不是能帮我们找到更多的蛛丝马迹？
+
+2020年7月24日，特鲁多和索罗斯的照片中不难发现，谁是老师，谁是学生？5
+
+2013年4月10日，特鲁多在Flickr的个人账号贴出其为多米尼投票系统（Dominon Voting System）站台。6
+
+2018年2月23日，一则新闻：特鲁多是古巴已故共产党领导人卡斯特罗的儿子7。这一切难道是巧合吗？
 
 
-最近我相信大家谈论最多的就是沼泽力量了。笔者认为的富翁，是经常开的车不同就觉得已经很了不起了。而有私人飞机的人，笔者总是觉得他们飞机烧油好贵。对于我这样，开小车油费都要算计的人来说，感觉好奢侈。再想想私人游艇，可以说贫穷限制了我想象。飞机跑道有两条，每次见到的飞机都不同，这般富裕的人，难怪连当初中国的领导人都懒得见，就算现在的盗国贼，私人飞机都要通过盗取国家财富才能买的到，可想而知沼泽力量当真富可敌国。
 
-这些沼泽大佬，视比尔盖茨为骗子，他也确实是，懒得和巴菲特交流，我真的相信是懒的理那个天天买卖股票的人。可是，我能体会到，他们确实害怕两件事，一件是没有秩序，一件是没有信仰。
+参考来源：
 
-没有秩序，这个可以理解。往大了说，如今的国际秩序，是二战打出来的，用一场死亡人数达七千万的代价，确立今天的国际秩序。因此，除了疯子，没有任何一个人想要开启三战，无论是哪种形式的三战。可悲的是，世界总是有疯子，而这次就偏偏出现在中国，以超限战和生化战的模式开启了三战。二战后国际秩序一定会被打破，只是不知道这种战争模式下，中国百姓会有怎样的痛苦和伤亡。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/15134134/trump_swamp.jpg)图片来源： theweek.com
-往小了说，没有社会秩序也是异常可怕的。如今的财富取得，已经不是当初的战争可以打出来的了，科技的发展，金融业的兴盛给这个时代带来了不同的光景，可以这么讲，就算经济再差，社会秩序稳定的情况下，维持金融的稳定可以保证沼泽家族的利益。我认为沼泽家族至今不出手，不是因为恐惧共产党，是恐惧社会不稳定给他们的利益带来影响，直到共产党影响美国大选。无论沼泽家族可以灭共产党多少次，一个不争的事实是，如果大选不是拜登当选，共产党立刻通过黑命贵ANTIFA搞乱美国，这是在赤裸裸的在挑战沼泽力量，逼其交出真正的国际控制权。
+1,[https://www.cbc.ca/news/politics/trudeau-congratulates-joe-biden-1.5794006](https://www.cbc.ca/news/politics/trudeau-congratulates-joe-biden-1.5794006)
 
-在中国长大的人，对于信仰的缺失不会感到太大的惊讶，因为国内从来都不会宣传信仰，还会通过打击封建迷信活动顺手敲打宗教。信仰的作用到底是什么呢？我一度思考这个问题。那个时候还相信“人之初，性本善”这类古语，未察觉人性恶与贪。信仰是为人施加道德束缚的，人应当有畏惧，最畏惧的，应当是神，神戒世人。道德约束，如果全凭自己，几乎没有什么约束力，而人约束人的，只能是法律。另外，神，人的一种心灵寄托，一种倾诉寄托。所以，对于社会的稳定来说，信仰是相当的重要，神是相当的重要。
+2,[https://niagaraindependent.ca/george-soros-and-his-canadian-chess-game-part-3/](https://niagaraindependent.ca/george-soros-and-his-canadian-chess-game-part-3/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16143747/images-14.jpeg)图片来源: 多维新闻
+3,[https://www.vice.com/en/article/n7vzqg/trumps-qanon-lawyer-inspired-even-more-george-soros-disinformation](https://www.vice.com/en/article/n7vzqg/trumps-qanon-lawyer-inspired-even-more-george-soros-disinformation)
 
-宗教教化众人，而且还不能为政府所用，不然其职能便不是为人加道德束缚，而是通过人对神的精神寄托兴乱。可中共对世界宗教的渗透，偏偏是让宗教更多的参与了更多的政治，对国内宗教的打压也正好是习近平上台对外挑战国际秩序的开始。民众失去了对宗教的心理寄托。中国国内又道德沦丧，这种背景下，一个没有信仰的族群，让人心感不安啊，或许这对于沼泽力量来说，只是有小小不安吧。沼泽力量可能一直认为，这种威胁离美国很遥远。但三年爆料革命下来，一件件事实的呈现，证明中共想用各种方法干倒美国。只不过对于大佬级别的人来说，可能不痛不痒。最近再让美国选举如此摇摆，沼泽的人物会感到一丝丝的恐惧么？会不会让他们出一点点手？
+4,[https://nyulocal.com/new-world-university-justin-trudeau-is-fidel-castros-son-bccf01403a86](https://nyulocal.com/new-world-university-justin-trudeau-is-fidel-castros-son-bccf01403a86)
 
-**本文章仅代表战友个人观点**
+5,[https://gnews.org/639940/](https://gnews.org/639940/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09040658/image0.png-13.jpeg)***[https://discord.gg/77fCxw5mFv](https://discord.gg/77fCxw5mFv)**
-[**https://**](https://https://discord.gg/77fCxw5mFv)[**gab.com/himalaya\_italy**](https://gab.com/himalaya_italy)*
+6,[https://twitter.com/llinwood/status/1338219546684121089](https://twitter.com/llinwood/status/1338219546684121089)
+
+7,[https://www.boomlive.in/world/justin-trudeaus-photo-linked-with-dominion-voting-fraud-claims-11074](https://www.boomlive.in/world/justin-trudeaus-photo-linked-with-dominion-voting-fraud-claims-11074)
 
 0

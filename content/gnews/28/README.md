@@ -1,54 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## War Room 585 总结
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/657217/)
+## 数据安全的垄断霸权已经形成，将对世界提出严峻挑战
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/657250/)
 
-- 编辑：Ranting
-- 作者：Jenny Ball
+*作者：Freedust；校对/审核：海阔天空；Page：拱卒*
 
+# **数据安全的垄断霸权已经形成，将对世界提出严峻挑战**
 
-**莫·布鲁克斯在福克斯****的****娄·多布斯采访中讲到**：如果没有诚实和准确的投票系统，那么最好不用再叫自己是共和国，因为你已经失去了共和国的权利，失去了政府的控制权。那些靠欺诈获得最多选票，最多选民的人将逃脱罪责，将成为华盛顿的统治者。那不是我们开国元勋们想要的。那不是成百万在战争中丧生的美国人想要给我们的共和国，一个我们可以控制自己的命运，自己的民主的共和国。所以，我可以选择坐下来投降，成为投降小组的一分子。我也可以选择为我们的国家而战，而这就是我要做的。
+[!\[\]()!\[\](https://spark.adobe.com/page/xcHk5vWqyhcGz/images/e49a8606-7506-400e-9c1f-7af857f5de50.jpg?asset_id=4e462be8-5042-41d9-a08e-593225a8f5ea&amp;img_etag=%22d5cc4ba25c233f886eb1ceae195bd210%22&amp;size=2560)](https://spark.adobe.com/page/xcHk5vWqyhcGz/images/e49a8606-7506-400e-9c1f-7af857f5de50.jpg?asset_id=4e462be8-5042-41d9-a08e-593225a8f5ea&amp;img_etag=%22d5cc4ba25c233f886eb1ceae195bd210%22&amp;size=1024)
 
-**致观众：你们正在改变历史的进程**。
+近日被网络攻击推上风口浪尖的SolarWinds引起的公众关注，SolarWinds在2016年被科技为重点的私募股权公司Thoma Bravo LLC和Silver Lake Partners以45亿美元的价格私有化。两家公司都有该公司的大量股权并保留了董事会职位，而Silver Lake Partners与中共控制的阿里巴巴集团有千丝万缕的关系。
 
-**亚利桑那州议员马克·芬赫姆**是11月13日11个小时听证会的主要推动者，这个听证会让总统和参议院昨天授权司法委员会听证会。有足够的证据表明让他们相信，选举是欺诈，今天早上，司法主席埃迪·法恩斯沃思已经发出传票：仅在马里科帕县，查封所有投票机，450万人的马里科帕县，是美国最大的城市之一，占亚利桑那州大约3/5的选票，即60％的选票。
+那么现在，让我们把视角转移到Thoma Bravo身上，Thoma Bravo是一家总部位于芝加哥的美国私募股权和成长型资本公司。自2003年以来，Thoma Bravo已经完成了230笔价值超过680亿美元的软件交易，并管理着38家软件公司的投资组合，这些公司每年产生约120亿美元的收入，拥有4万名员工。
 
-今天第二个重大新闻：这将导致对该县投票机全面的司法鉴定。
+DigiCert，Inc.是一家专注于数字安全的美国技术公司，总部位于犹他州的利希，在澳大利亚，爱尔兰，日本，印度，南非，瑞士和英国设有国际办事处。 作为证书颁发机构（CA）和受信任的第三方，DigiCert提供了颁发数字证书或TLS / SSL证书所需的公钥基础结构（PKI）和验证。 这些证书用于验证和验证组织和域的身份，并保护用户与Web浏览器，电子邮件客户端，文档，软件程序，应用程序，网络和连接的IoT设备进行数字交互的隐私和数据完整性。[1] 独立调查公司Netcraft表示：“ DigiCert是世界上最大的高保证证书颁发机构，在扩展验证证书市场上占有60％的份额，在全球范围内拥有96％的组织验证证书。”
 
-第三则消息是，共和党昨天召集选举团投票给了川普总统，我们认为，如果我们的选举被推翻，很有可能取决于司法鉴定的结果，该审核是由专业人员进行的详细审核。 这种情况可能会发生，但我对投票机全面的司法鉴定充满信心，至少它将取消非法投票的资格。
+2015年，DigiCert从Verizon Enterprise Solutions手中收购了CyberTrust Enterprise SSL业务，成为全球第二大高安全性或扩展验证（EV）TLS / SSL证书颁发机构。
 
-**布莱恩·肯尼迪**：我认为安特里姆县报告的重要性是，该县有24,000人，16,000名选民，投票机的错误率至少是68％。按这个统计，有200万票的马里科帕县的非法选票，将是一个巨大的数字。
+2015年8月28日，私募股权公司Thoma Bravo收购了DigiCert的多数股权，TA Associates是一家领先的全球成长型私募股权公司，持有少数股权，这是迄今为止对犹他州公司最大的投资之一。引用Thoma Bravo的话说，“DigiCert代表了一个出色的投资机会，以支持其一贯的创新和一流的客户服务闻名的市场领导者。
 
-查封那些机器太重要了，意义巨大。佐治亚州有三种盗窃：那些传统的欺诈行为是其一；第二个是邮寄选票，没有监管链，没有签名验证。第三就是多猫腻投票机欺诈。
+(以上来自维基百科)
 
-**班农先生**：是什么促使乔·拜登昨晚敢去向美国人民讲话？我们的观众让他们吓呆了，各种欺诈证据层出不穷，美国人民开始说，嘿，这次选举可能真有欺诈。除了投票支持川普总统的7400万人之外，他们还对地狱硬盘的调查感到非常紧张，过去司法部长巴尔有意掩盖了对地狱硬盘的调查。现在他们害怕了，人们正看到越来越多的真相信息。
+早在2009年7月29日，Thoma Bravo LLC完成了对软件制造商和数字安全提供商Entrust公司的1.24亿美元的收购。（[原文](https://www.thomabravo.com/press-releases/thoma-bravo-completes-124m-acquisition-of-entrust)）
 
-**约翰·弗雷德里克**：在科布县，十五万人中有五万人投票支持川普。显然，他们选择了他们认为欺诈性选票最小或差异最小的县。但是，如果能够表明3％的选民不存在，那就足以取消选举认证的资格。
+Jerry C. Jones，56岁，于1999年加入Acxiom，负责监督法律和隐私事物，并协助制定战略，执行合并和同盟以及公司的战略计划，是公司的首席法律官，执行副总裁兼助理秘书。加入Acxiom之前，他在阿肯色州小石城的Rose Law Firm律师事务所工作了19年，担任律师。（[原文](http://www.clubmadrid.org/miembro/jerry-jones/)）
 
-在佐治亚州，11月3日的选举中，有130万选民。这比2018年增加了100万，有22万张邮寄选票。当然不堪重负，没有人检查邮寄选票签名，他们什么都不检查。
+Acxiom与entrust联系紧密。
 
-1月5日选举后，从11月3日至12月7日，他们又增加了80,000名新选民，没人知道他们来自哪里。州务卿拒绝公布他们的身份，拒绝透露名单，共和党州主席对此提出了起诉。
+恰好，Hillary Clinton也是Rose Law Firm律师实务所的重要合伙人，与Jerry是同事。Jones也在Clinton Presidential Center担任特别顾问。（[原文](https://informationaccountability.org/2020/04/jerry-jones/)）而Clinton总统的顾问Mr. McLarty则是Acxiom Corporation的董事。（[原文](https://maglobal.com/team/thomas-f-mclarty-iii/)）
 
-1月5日将会有更多的选票观察员，但问题是他们没什么可看，因为州务卿只允许他们看选票从信封中抽出来，不允许他们检查签名匹配。
+DigiCert, Thoma Bravo, and CyberTrust somehow verify ALL ELECTIONS IN ALL STATES
 
-**作战室**：
+[!\[\]()!\[\](https://spark.adobe.com/page/xcHk5vWqyhcGz/images/6b673525-f2b3-4f80-a654-4b5a18ef5a14.png?asset_id=c93b6a23-3a48-4776-a6de-d4ac042a9b9d&amp;img_etag=%2217ab7fb1b04b0022552a357002ee7486%22&amp;size=2971)](https://spark.adobe.com/page/xcHk5vWqyhcGz/images/6b673525-f2b3-4f80-a654-4b5a18ef5a14.png?asset_id=c93b6a23-3a48-4776-a6de-d4ac042a9b9d&amp;img_etag=%2217ab7fb1b04b0022552a357002ee7486%22&amp;size=1024)
 
-- 我们是第一个要求解雇巴尔的人，他被解雇了；
-- 我们呼吁针对所有这些州的选举舞弊行为任命特别检察官，具有无限的传票权和预算能力，并具有刑事起诉的能力；
-- 我们还呼吁任命特别检察官，调查拜登**地狱硬盘**。他们的妥协，达沃斯党，民主党人现在陷入了困境，不仅让我们的国家陷入到宪法危机，而且也构成了国家安全的危机。
+[!\[\]()!\[\](https://spark.adobe.com/page/xcHk5vWqyhcGz/images/7be18019-4f4d-41e8-ae36-666c8b1263ca.png?asset_id=9edac78a-1ddf-440e-8f21-b12e171617df&amp;img_etag=%22873332adc2b3e81d20c7ead4f3ef0474%22&amp;size=2953)](https://spark.adobe.com/page/xcHk5vWqyhcGz/images/7be18019-4f4d-41e8-ae36-666c8b1263ca.png?asset_id=9edac78a-1ddf-440e-8f21-b12e171617df&amp;img_etag=%22873332adc2b3e81d20c7ead4f3ef0474%22&amp;size=1024)
 
+## ***简评：***
 
-米特·罗姆尼，领导人麦康奈尔，是使我们陷入困境的人，是使我们国家整个制造业基地被运往中国的人，从而享受中共治下可怜不幸的奴隶劳动制造的一切，而不用付钱，那就是他们达沃斯商业模式中不可或缺的一部分。这不是阴谋吗？
+这是对SolarWinds进行投资的两个投资公司中的另一个，SolarWinds Orion的后门造成了此前美国商务部的黑客攻击，且在阿里巴巴的IPO中扮演了重要角色，而另外这个Thoma Bravo旗下的企业却承包了很大一部分美国大选的选票验证工作，可以说，两个私募投资公司对美国的国家安全起着至关重要的作用。鉴于最近由The Gateway Pundit爆出Dominion系统也在使用SolarWinds相关的软件，那么我们就有充分的理由怀疑这两家公司在此次贿选中扮演了重要的角色。同时，我们似乎也看到了Clinton家族的影子。
 
-麦康奈尔对拜登的程序认可是政治自杀。为什么不调查这次是否是公平的选举呢？
+另外，SolarWinds，DigiCert和CyberTrust已经构成了全球大部分企业数据部分的安全大门，无论从SolarWinds的客户来看，还是从DigiCert和CyberTrust占有的主流安全方式（数字证书和TLS / SSL证书的公钥）的市场份额来看，数据安全的垄断已经形成，这将对全球的重要的官方和企业数据安全提出严峻挑战。
 
-但这个国家有很多人在致力于深入调查真相，他们已经拿到了真凭实据。也有很多人生活在幻想世界中。
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/xcHk5vWqyhcGz/)
 
-昨天，揭示了在全球各地的美国公司和英国政府的数百万中共党员名单，甚至在美国的上海领事馆里就有中共间谍。因为成为中共党员，就必须成为情报资产。请记住，这不是中国人民，中国人民是中共最大的受害者。
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-**视频链接：**[https://www.youtube.com/watch?v=7Cjc3KkvG5I](https://www.youtube.com/watch?v=7Cjc3KkvG5I)
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/xcHk5vWqyhcGz/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/xcHk5vWqyhcGz/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

@@ -1,25 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 布莱克本推特配图“习维尼”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/656981/)
+## 麦康奈尔家族与中共银行及中共顶级航运公司的紧密关系
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/657041/)
 
-- 编辑：Victor Torres
+*加拿大多伦多枫叶农场（原加喜农场） ctt*
 
+*校对、上传 文锦*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16142546/res02_attpic_brief.jpg)图片来源：Twitter
+据国家档案 (National File) 12月15日报道，当天参议院多数党领袖米奇-麦康奈尔 (Mitch McConnell)宣布并祝贺乔-拜登当选美国总统, 其对本次大选 “进程 “的赞美之词也溢于言表，然而他与赵氏家族的福茂集团（Foremost Group）、中共造船公司和中共银行的家族关系也再次浮出水面。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16142756/EW4e4SfVcAEANSY.png)图片来源：Twitter
+麦康奈尔与中共国有着广泛的家族关系。他的妻子赵小兰是航运大亨赵锡成和赵朱木兰的女儿，妻妹赵安吉在2016年被任命为中共国银行董事会的非执行职务。赵安吉的另一个重要职位就是福茂集团公司的CEO，该公司属于赵氏家族，价值数十亿美元，从事海运业务。虽然福茂集团表面上是一家美国公司，但该公司的绝大部分业务都在亚洲。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+在麦康奈尔担任参议院议员期间，即使在行业遭遇多次经济低迷，福茂集团的业绩也在稳定上升，该公司船队的估计净值为12亿美元，是2019年总部位于美国的干散货航运业务中最有价值的船队。
 
-**西班牙2020年12月16日电/西喜社/**——玛莎•布莱克本参议员今天发布了一条有趣的推特，批评中共的言论审查。
-她说:“言论自由就是可以在推特上发这张习近平像维尼熊的照片。如果你在共产中国这样做，你会被逮捕。”
-小编觉得配图不错，您呢?
+赵安吉担任非执行董事的中国银行是中共航运公司的最大贷款人, 福茂集团曾从中共政府获得的价值数亿美元的合同贷款，航运大亨赵锡成和赵朱木兰也曾在中共国营船舶公司董事会任职, 该公司为中共政府拥有。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16143507/EpX0WpkUUAA5OoI.png)图片来源：Twitter
+自从麦康奈尔成为赵家女婿后，他与赵氏家族利益在中共国的商业利益都在不断增加。赵小兰在与麦康奈尔结婚之后，于1996年辞去了当时担任的联合基金会会长职务，全力辅佐丈夫竞选参议员。2007年丈母娘过世后，麦康奈尔资产出现了大规模飙升，在2007年和2008年这两年的时间里，他的资产从300万美元跃升至3300万美元，并且赵家还给了他超过100万美元的捐款从事连任竞选活动。
 
+据《泰晤士报》报道，在赵小兰担任交通部长期间，她在该机构的预算中，多次要求削减海运业的项目，而该项目有利于稳定美国的财政。报道还指出，虽然赵家为中国水手提供奖学金和船舶模拟器，但赵小兰的交通部却一再克扣那些让美国国内船舶继续服役项目的补助资金。
 
+评：
 
-> Freedom of speech is being able to tweet this photo of Xi Jinping looking like Winnie. If you did this in Communist China, you’d be arrested. [pic.twitter.com/0AnVtA3JYM](https://t.co/0AnVtA3JYM)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [December 16, 2020](https://twitter.com/MarshaBlackburn/status/1339270050168131597?ref_src=twsrc%5Etfw)
+此次美国大选让全世界人看得瞠目结舌，拜登带领的民主党造假舞弊竟能到了如此程度, 主流媒体竟是如此黑暗。而一些面目不清的人也终于显露出了他们的真面目。赵小兰是不是老版中共潜伏在美国的间谍“方芳”呢？这是一场正邪的大较量，也是各种人真实面目的大暴露，该来的一定会来，但我们相信上天，相信正义，此志不改。
 
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+[*原文链接*](https://nationalfile.com/china-mitch-mcconnell-has-family-ties-to-bank-of-china-top-chinese-shipping-firm/)
 
 0
