@@ -1,26 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP多家媒体刊文呼吁加强备战，可如今的共军还能打仗吗？主编选题系列
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/659890/)
+## 川普总统通知延续针对严重侵犯人权和腐败的国家的紧急状态法
+` GM127` [轉載自GNews](https://gnews.org/zh-hans/660610/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17104016/4ef20847ef694a1dadaf29dec2d1c7fb_th-scaled.jpg)
-美国最高院驳回德州选举诉讼案预示着美国的救赎之路只能通过热战来解决，与之热战的对象自然是中共红魔犯罪组织，近期中共也很配合的多家媒体刊文呼吁加强备战，其中中共央视标题“罕见公布城市巷战计划，解放军96A紧急操练：为决战做战前准备。”还有环球时报网用狂妄无知的口吻刊登“美军打算拿自杀无人机群蜂跟解放军打？对轰起来真不一定谁怕谁。”解放军被沦为炮灰的意思显露无疑。可是如果热战开启，如今的共军还能打仗吗？
+新闻简述：川普美国总统2017年12月20日的一项针对世界范围内严重侵犯人权和腐败的国家紧急状态的行政令将继续延期，以应对对美国国家安全，外交政策和经济的非同寻常的威胁。
 
-从正邪道义来看，中共早就用超限战的方式侵略美国，**病毒战，媒体战，舆论战，“蓝金黄”**美国政府各个机构，又偷窃美国大选用这样的战略方式侵略美国，**热战是美国不得已自保，而中共是侵略的一方，谁正谁邪，天理昭昭。**当然中共必定会用洗脑的方式，宣称自己为弱势方，被攻击侵略，用来绑架更多的炮灰。不明所以的炮灰们陷入危险之中，清醒的士兵和人们也不再少数。此时炮灰的命运完全掌握在自己手里。最好的结局就是中共无兵可用，但理智告诉我们，还是会有炮灰要与中共一起灭亡。
+[阅读白宫原文](https://www.whitehouse.gov/briefings-statements/text-notice-continuation-national-emergency-respect-serious-human-rights-abuse-corruption-121620/)
 
-从作战意志来看，军队要有战斗力，必须有信仰有理念，我为谁而战，过去的共军还接受欺骗，认为是为了解放全中国，如今还有这种信念吗？军人还接受这种洗脑吗？党管军队明面化，如今中共军队掌握权力的不是师长，军长与司令，而是各级党委政委，军队军心涣散，内部权力争夺暗涛汹涌，当遇到强劲的敌人时，很大一部分士兵恐怕没有与之战斗的意愿。
+Text of a Notice on the Continuation of the National Emergency with Respect to Serious Human Rights Abuse and Corruption
 
-从军队人员战力来看，自中越战争以来，共军已连续三十多年没打仗，没有战争锻炼，即使号称有作战经验的联合参谋部参谋长李作成等，在越战中也仅仅是指挥过连级战斗，**没有现代化作战经验**。共军军官不花钱不走关系没法升官，文恬武嬉，上位后就疯狂敛财，贪财必怕死，根本就不愿意打仗。士兵很多是独生子女，且在互联网时代接收了多方面信息，恐怕也不会为共匪卖命。军官欺压、虐待下级现象很严重，根本就没有什么战斗力。平时欺压百姓或弱国的时候耀武扬威。而遇到绝对优势的敌人的时候，中共军队自己知道自己有几斤几两，不是被逼无奈的话，恐怕无人主动应战，就算被逼上前线的士兵，也因疏于实操锻炼，战力也是低等的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17104024/20200617094936962.jpg)
-从装备来看，中共军队的贪腐，尤胜于中国政府，装备上利益无疑是军队罪大的蛋糕， 等到真正装备到军队的时候，那些装备不知道已经被剥削了多少层，装备质量不达标，装备数量苛扣，装备性能低下，恐怕只有那些士兵知道。**驻扎在中印边境高原的士兵居然没有高原防化作战服。** 中共军队的装备不要说落后西方了，还不如俄罗斯，山寨的武器性能很差。很多武器、通讯设备用的国外芯片，一旦打仗，就会在西方的打击下迅速失灵，就算有北斗卫星，但在美国太空部队下，中国北斗卫星早已成为人家的掌中鱼，嘴中肉。而且因为军队的贪腐到了极致很多购买装备的钱都被贪污浪费了，买的大多数装备只是装装样子，能用的装备没有几个。
+关于严重侵犯人权和腐败的国家紧急状态法的延续的通知文本
 
-从训练来看，各级军官怕训练出事、死人，影响个人升迁，因此平时很少训练，都是到年底突击训练，突击消耗物资，而且训练方式很不科学，训练效果很差。一旦训练中出现设备故障，如飞机训练中出现问题，往往是保装备重于保人命，让军官战士寒心。**再说中共军队的军事演练，红蓝对抗双方谁输谁赢怎么输怎么赢，剧本早已写好，参加军演的士兵也只是应付演戏而已。**所谓军事演习，不如说是像在拍电影而已。这样的假军队能打仗么？
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17104034/20200516063446878.jpg)
-从国际大环境来看，灭共已经是大势所趋、国际共识，昔日曾帮共匪拿下大陆的俄罗斯这次可能也会对土匪的被灭袖手旁观甚至落井下石，共匪撒币买下的老朋友们也会作壁上观。先是释放生化武器病毒让世界各国陷入半瘫痪状态，后又公然参与偷窃美国大选，美国军队早已咬牙切齿，其他各国军队也是对中共痛恨至极，一旦热战开战，中共面临的不止是清末8国联军了，恐怕80国联军也不止，面对这样的敌人，中共哪支部队赶真心上前替中共卖命呢。
+LAW & JUSTICE
 
-综上，中共治下的军队，早就已经丢了军人的样子，党管部队，外行管内行制造的矛盾和隐患十分复杂，军队士兵人员素质低下，军事本领欠缺，缺乏实战经验，连士兵都很少实枪训练。军队装备层层剥削质量与性能堪忧，部队作战意识低下，这次又不占道义与法理加上遇到超过80国的联军，中共如今是四面楚歌的数倍不止。 与其说现在的中共军队是军人，更不如说中共的军队像是土匪强盗或黑帮。专门欺负百姓与弱小。面对真正强大的敌人，只怕逃兵者甚多。**但是也不能因此松懈，毕竟中共军队虽假，纸老虎尤在，也有昙花一现般的实力为世界表演，但他的实力确实也只能昙花一现般的短促，时间一过必定溃不成军。**
+法律与司法
 
-作者：希望之巅的希望
+Issued on: December 16, 2020
 
-2+
+发布日期：2020年12月16日
+
+On December 20, 2017, by Executive Order 13818, the President declared a national emergency with respect to serious human rights abuse and corruption around the world and, pursuant to the International Emergency Economic Powers Act (50 U.S.C. 1701 et seq.), took related steps to deal with the unusual and extraordinary threat to the national security, foreign policy, and economy of the United States.
+
+2017年12月20日，美国总统根据第 13818 号行政命令，宣布了一项针对世界范围内严重侵犯人权和腐败的国家紧急状态，并根据《国际紧急经济权力法》（《美国法典》第 50 卷第 1701 条及以下）采取相关的措施以应对对美国国家安全，外交政策和经济的非同寻常的威胁。
+
+The prevalence and severity of human rights abuse and corruption that have their source, in whole or in substantial part, outside the United States, continue to pose an unusual and extraordinary threat to the national security, foreign policy, and economy of the United States.  For this reason, the national emergency declared on December 20, 2017, must continue in effect beyond December 20, 2020.  Therefore, in accordance with section 202(d) of the National Emergencies Act (50 U.S.C. 1622(d)), I am continuing for 1 year the national emergency declared in Executive Order 13818 with respect to serious human rights abuse and corruption.
+
+其全部或大部分来自美国境外的侵犯人权和腐败的普遍性和严重性，继续对美国的国家安全，外交政策和经济构成非同寻常的威胁。根据这个原因，2017年12月20日宣布的国家紧急状态必须在2020年12月20日之后继续有效。因此，根据《国家紧急状态法》（《美国法典》第50卷第202条），我继续执行一年 13818 号行政命令宣布的关于严重侵犯人权和腐败的国家紧急状态。
+
+This notice shall be published in the Federal Register and transmitted to the Congress.
+
+该通知应在《联邦公报》上发布并发送给国会。
+
+DONALD J. TRUMP
+
+唐纳德·川普
+
+THE WHITE HOUSE,
+
+白宫
+
+December 16, 2020.
+
+2020年12月16日。
+
+翻译：【JennyL】编辑：【Isaiah4031】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22111053/VOG-Rose-Garden-Team.png)
+0

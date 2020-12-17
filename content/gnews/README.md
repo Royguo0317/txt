@@ -14,141 +14,141 @@
 
 ---
 
-### [美国务院重磅推文：为了维护美国的自由、繁荣、未来，美国及其盟国必须继续跨大西洋唤醒中共国的挑战](/content/gnews/1/README.md)
- ` GM101`
+### [“一个马克龙被中共病毒感染，全欧盟的政要首脑被隔离??”](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [法国总统马克龙感染新冠](/content/gnews/2/README.md)
  ` 喜马拉雅巴黎七星农场`
 
-### [文贵先生无我-站在巨人的肩膀](/content/gnews/3/README.md)
- ` G-NEWS TAIWAN`
+### [英国商人充当政府中间人采购中共防护用品，回扣达180万英镑！](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya UK`
 
-### [视频【路德时评】12.11 【精华版粤语配音】： 彭培奥的演讲以及美驻华大使馆发布重要灭共时间线信息](/content/gnews/4/README.md)
- ` GM42`
-
-### [喀秋莎新闻参考- 2020年12月16日 (星期三)](/content/gnews/5/README.md)
- ` HimalayaRussia`
-
-### [20201216喜马拉雅东京樱花小学生团晚间新闻速报](/content/gnews/6/README.md)
- ` 东京樱花团-Tokyo Sakura Group`
-
-### [美国国家情报局内部的拉锯战：选举操纵的调查报告被推迟](/content/gnews/7/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [川普发推称内华达州有大量非公民投票](/content/gnews/8/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [郭爆料串珠（131）什么才是真正的美国政治沼泽地、影子政府、Deep State？](/content/gnews/9/README.md)
- ` GM99`
-
-### [亨特·拜登从中国公司获得可观报酬并索要1000万美元](/content/gnews/10/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [今天路德说了啥20201216晚间](/content/gnews/11/README.md)
- ` 东京樱花团-Tokyo Sakura Group`
-
-### [郭爆料串珠（130）中共在暗网布局很深](/content/gnews/12/README.md)
- ` GM99`
-
-### [文贵说｜系列图片连载（七十八）](/content/gnews/13/README.md)
- ` GM98`
-
-### [CCP多家媒体刊文呼吁加强备战，可如今的共军还能打仗吗？主编选题系列](/content/gnews/14/README.md)
- ` 首尔喜韩农场`
-
-### [七哥的这盘大棋，绝对在Reset世界秩序！](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [今天路德说了啥20201216午间](/content/gnews/16/README.md)
- ` 东京樱花团-Tokyo Sakura Group`
-
-### [“阻止偷窃”运动挑战不支持川普的共和党参议员](/content/gnews/17/README.md)
+### [蓝丝李偲嫣之死 令人聚焦中共病毒疫苗](/content/gnews/4/README.md)
  ` gnewscanada`
 
-### [【突发】法国总统马克龙感染中共病毒，曾接触众多欧洲政要](/content/gnews/18/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [对“自由”的一点个人见解](/content/gnews/5/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [【精华版国粤双语配音】班农战斗室 431期： 阎博士介绍学术背景和港大实验室](/content/gnews/19/README.md)
- ` GM42`
+### [视频【字幕】12/17/2020文贵：寄语战友对农场的认知，以战友为第一前提](/content/gnews/6/README.md)
+ ` Caihongqiao`
 
-### [12/17/2020 财经快讯: 不顾国内百姓水深火热,中共国继续大撒币!](/content/gnews/20/README.md)
- ` 秘密翻译组G-Translators`
+### [视频川普总统出席西点军校陆海军橄榄球赛，受到了陆军海军军校师生史无前例的欢迎](/content/gnews/7/README.md)
+ ` GM127`
 
-### [越来越像共产党媒体: 美国主流媒体的3大特点](/content/gnews/21/README.md)
- ` 首尔喜韩农场`
+### [12月11日《马歇尔报告》：美国和中共国正在为战争做准备](/content/gnews/8/README.md)
+ ` GM64`
 
-### [德国刚刚宣布将向亚太派遣军舰其国内新冠疫情指数随即爆表](/content/gnews/22/README.md)
- ` 快慢机`
+### [【简讯】纳瓦罗发布2020美国大选舞弊调查报告](/content/gnews/9/README.md)
+ ` GM65`
 
-### [川普律师埃利斯说不会退缩](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [军备竞赛和俄罗斯的经济历程：普京记者会关键内容](/content/gnews/24/README.md)
- ` GM128`
-
-### [【世界多语言图文】2020/12/07-8 CCP病毒每日疫情直播简报](/content/gnews/25/README.md)
- ` GM62`
-
-### [多猫腻投票系统错误率68%，专为舞弊而设计](/content/gnews/26/README.md)
+### [多猫腻说客向麦康奈尔支付数千美元，随后选举诚信法案被压制](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya UK`
 
-### [视频2020年12月17日中共病毒疫情要闻快报](/content/gnews/27/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【突发】美国务院发布警告&#8211;“中国共产党构成真正威胁”](/content/gnews/28/README.md)
+### [【突发】美国务院称中共为邪恶独裁者](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [国台办声嘶力竭，称绝不为台独分裂活动留空间](/content/gnews/29/README.md)
- ` 英國倫敦喜莊園 Himalaya UK`
+### [2021年1月6日，彭斯副总统的抉择会决定这场大选的滑稽程度](/content/gnews/12/README.md)
+ ` 康州盘古喜马拉雅农场`
 
-### [Sara主动退出凤凰农场，凤凰农场战友们请加入自己喜欢的农场《每日快报 &#8212; 2020.12.17》](/content/gnews/30/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [【文字版】路德时评2020.12.16晚间：计划18日出台的国家情报总监报告不得不推迟意味着什么较量在白宫展开？](/content/gnews/31/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [科罗拉多州的多米尼选举舞弊法律攻防战](/content/gnews/32/README.md)
- ` gnewscanada`
-
-### [突发信息速递：中共军委签署命令 新修订版《军队计量条例》](/content/gnews/33/README.md)
- ` GM128`
-
-### [奥巴马留下的影子力量迫害川普总统](/content/gnews/34/README.md)
- ` 英國倫敦喜莊園 Himalaya UK`
-
-### [大鳄现身 麦康奈尔祝贺拜登当选为哪般？](/content/gnews/35/README.md)
- ` 首尔喜韩农场`
-
-### [【香港要闻】单靠BNO或回乡证不可证明永久离港 不能提早提取MPF](/content/gnews/36/README.md)
- ` GM42`
-
-### [共和党众议员莫·布鲁克斯要求麦康奈尔，佩洛西启动国会选举诚信听证会](/content/gnews/37/README.md)
+### [【突发】彭佩奥将中共与朝鲜和伊朗并列](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【战友观点】三大战役的真相](/content/gnews/38/README.md)
- ` 墨尔本雅典娜农场`
+### [川普总统通知延续针对严重侵犯人权和腐败的国家的紧急状态法](/content/gnews/14/README.md)
+ ` GM127`
 
-### [【热点播报】法国总统马克龙CCP病毒检测呈阳性](/content/gnews/39/README.md)
+### [【热点播报】中共将进口至少1亿支辉瑞疫苗，表明对自家产品信心不足](/content/gnews/15/README.md)
  ` 纽约香草山农场`
 
-### [视频12/16/2020 朱利安尼: 拜登出卖美国利益及国家安全, 人们却视而不见! 这个国家已经变得如此腐败!](/content/gnews/40/README.md)
- ` 秘密翻译组G-Translators`
+### [林伍德发布生平最重要推文](/content/gnews/16/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [【香港专题】是时候解决BNO「双重国籍」（一）「政治忠诚」与「国籍」没有关系](/content/gnews/41/README.md)
- ` GM42`
+### [【突发】彭佩奥批中共无所不用其极](/content/gnews/17/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [视频12/16/2020 朱利安尼: 是希拉里出资搞的乌克兰勾兑这么一出戏, 她才是真正和俄罗斯勾兑之人](/content/gnews/42/README.md)
- ` 秘密翻译组G-Translators`
+### [【世事解评】商道：从张謇到马云—民营企业家的盘中餐命运](/content/gnews/18/README.md)
+ ` 纽约香草山农场`
 
-### [视频12/16/2020 塔克·卡尔森: 拜登政府不可能会调查他自己的儿子, 甚至是他本人](/content/gnews/43/README.md)
- ` 秘密翻译组G-Translators`
+### [让子弹飞](/content/gnews/19/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [上海近二百万党员中的港台籍是中共建政前的地下党还是别的](/content/gnews/44/README.md)
+### [【热点播报】推特对反对疫苗的言论，出台了新的措施](/content/gnews/20/README.md)
+ ` 纽约香草山农场`
+
+### [2名阿拉斯加的护理人员在接种辉瑞疫苗后出现严重过敏反应](/content/gnews/21/README.md)
+ ` GM122 小雨`
+
+### [【新闻快讯】“差别化入户”施行广州掀起“抢人潮”，意为带动消费？](/content/gnews/22/README.md)
+ ` XMLYG777`
+
+### [7.3万海外蓝金黄力量终于回国啦](/content/gnews/23/README.md)
+ ` XMLYG777`
+
+### [新冠病毒是中共对抗美国的武器](/content/gnews/24/README.md)
+ ` 英國倫敦喜莊園 Himalaya UK`
+
+### [郭先生1217:战友不是任何人的资产农场都是服务的只有领没有导](/content/gnews/25/README.md)
  ` NewFOC`
 
-### [视频12/16/2020 塔克·卡尔森: 2017年亨特·拜登给时任中国能源公司董事长的一封邮件显示拜登家族与中共关系深厚](/content/gnews/45/README.md)
+### [War Room 589 总结](/content/gnews/26/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【看七哥视频】参考消息网报道中国男妆市场吸引力大](/content/gnews/27/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [川普总统等政要推特整理（12.17）](/content/gnews/28/README.md)
+ ` 英國倫敦喜莊園 Himalaya UK`
+
+### [War Room 590 总结](/content/gnews/29/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [&#8220;他们害怕我，他们应该害怕&#8221;—多米尼公司举报人指控CEO在密歇根州作证时撒谎](/content/gnews/30/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [功成名遂身退，天之道](/content/gnews/31/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [密歇根州立法机构授权可对涉嫌大选舞弊的区域发出传票](/content/gnews/32/README.md)
+ ` gnewscanada`
+
+### [林肯总统带给我们的启迪](/content/gnews/33/README.md)
+ ` GM126`
+
+### [情报人士证实，川普才是2020年大选的赢家](/content/gnews/34/README.md)
+ ` LONG JING`
+
+### [视频【路德社】【精华版粤语快报】12.16：沼泽地利益争夺激烈 情报评估报告难产](/content/gnews/35/README.md)
+ ` GM42`
+
+### [古今中外七大商道典范（二）](/content/gnews/36/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [斯伯丁将军: 我们对中共暴行的沉默是可怕的](/content/gnews/37/README.md)
  ` 秘密翻译组G-Translators`
 
-### [视频12/16/2020 塔克·卡尔森: 拜登如果成为美国总统, 他的驻华大使可能是这样的一个人](/content/gnews/46/README.md)
- ` 秘密翻译组G-Translators`
+### [加拿大银行业行为与合规（一）](/content/gnews/38/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [2020年表现远超标普500的三家公司](/content/gnews/39/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [视频【大卫作战室】12/14直播精要 -英国伦敦喜庄园出品](/content/gnews/40/README.md)
+ ` 英國倫敦喜莊園 Himalaya UK`
+
+### [解放军缺席海上作战与航空安全对话，美中军事摩擦风险升高](/content/gnews/41/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [秋月夜，纪念香港反送中&#8212;-酒色姐姐诗歌](/content/gnews/42/README.md)
+ ` 首尔喜韩农场`
+
+### [川普总统公布关于国防部内部继承顺位的行政令](/content/gnews/43/README.md)
+ ` GM127`
+
+### [格雷厄姆:签名验证应在问题最大的县进行](/content/gnews/44/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [我年薪50万，孩子在高端幼儿园的鄙视链底端](/content/gnews/45/README.md)
+ ` 首尔喜韩农场`
+
+### [中共阻挠澳大利亚动力煤清关与目前局部地区拉闸限电有何关联](/content/gnews/46/README.md)
+ ` NewFOC`
 
