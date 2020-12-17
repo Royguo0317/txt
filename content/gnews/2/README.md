@@ -1,71 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1216】-矛盾重重、靶心中共
-` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/657633/)
+## 北航等院校在加拿大前空军基地等处进行飞行员培训
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/657650/)
 
-2020年12月16日林伍德律师推文继续围绕**乔治亚州重新选举舞弊**、**沼泽地里的鳄鱼**和**媒体腐败**展开，所有问题最终落脚至中共，中共已经成为美国解决所有矛盾的靶心，将成为万箭穿心的众矢之的。
+*加拿大多伦多枫叶农场 文锦*
 
-围绕**乔治亚州重新亲自投票**的问题，林伍德律师在推文中说，“乔治亚州州务卿继续绕过州立法为1月5日议员舞弊敞开大门。”由于1月6日联邦参众两院联席会议将启封各州寄达的《投票结果确认书》和该州的选举人团签署的投票证书，并正式宣布总统选举结果，林伍德律师已经预见到乔治亚州此次重新选举不解决根本问题就是舞弊行为的继续，他引用该州选举宣传巴士的照片说，“舞弊投票已经上路。” 他连续数日不断对乔治亚州的投票舞弊进行揭露和抨击，我们也看到民意和大选的真实结果也已上路。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16193402/EpXUmyNU0AcJR2L.jpg)林伍德律师说“选举舞弊在乔治亚的车轮上”
-乔治亚州女议员Kelly Loeffler被网友挖出支付了$56,000美元买下“共产主义杀人犯”毛贼东的头像，挂在家里。林伍德律师回推说：
+*校对 小鸥 上传 WJ*
 
-“嘿，凯里！
+继中共军方在加拿大军事基地训练被爆出后，12月15日Rebel News报道在加拿大阿省红鹿市（Red Deer, Alberta）附近的前军事基地，包括北京航空航天大学在内的中共国学员在此进行飞行培训。
 
-“你花了五万六买下共产主义领袖的头像挂在豪宅里，你对Doug Collins律师怎么解释？
+**前加拿大空军基地彭霍尔德**
 
-“你丈夫的公司每年和中共勾兑了几十亿？
+前加拿大空军基地彭霍尔德（Penhold）于1940年开放，用于二战中培训英联邦飞行员。在冷战期间曾作为北约组织成员国飞行学校培训飞行员。1966年，红鹿市接管了该机场的运营，并将其命名为红鹿工业机场。该基地也是松树线雷达站和阿省紧急政府总部掩体所在地。在1994年退役并关闭。1999年，红鹿市地区机场管理局接管了机场运营。
 
-“找一个朋友问问。”
+**蒙代尔飞行学院** (Montair Aviation)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16193558/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE273.png)图片来源：Montair
+蒙代尔飞行学院总裁是孙克华。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16193933/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE276.png)图片来源：Montair
+该学院有两处机场，一处是皮特草原机场（Pitt Meadows Airport）在温哥华东部，另一处即在红鹿市。2016 年，蒙代尔飞行学院在红鹿市基地正式开始运营。
 
+自2005年起，蒙代尔飞行学院是全世界范围内的24家，加拿大的3家被中共国民用航空局授权的民航飞行培训机构之一，为中共国各大航空公司及航空大学输送飞行员。该学院的客户有中国国际航空、厦门航空、昆明航空、山东航空、吉祥航空、南方航空、北京航空航天大学、中国民用航空飞行学院等中共国以及包括加拿大航空在内的各大航空公司及院校。
 
+该学院提供三项综合培训项目：
 
-> Hey Kelly [@KLoeffler](https://twitter.com/KLoeffler?ref_src=twsrc%5Etfw)!
-> 
-> What was your answer to [@RepDougCollins](https://twitter.com/RepDougCollins?ref_src=twsrc%5Etfw) about the $56K painting of a Communist leader/murderer hanging in your mansion?
-> 
-> How many billions of dollars in business does your husband conduct each year with CCP?
-> 
-> Asking for a friend. [https://t.co/xtTYgyk6Ut](https://t.co/xtTYgyk6Ut)
-> — Lin Wood (@LLinWood) [December 16, 2020](https://twitter.com/LLinWood/status/1339293637922807809?ref_src=twsrc%5Etfw)
+• 综合商用飞行执照 （ICPL）
 
+• 综合商用仪表飞行执照 （ICPL/IR）
 
+• 中国航空公司（Part 141 ）要求的综合运输飞行员执照 （IATPL）
 
-对美国**参议院多数党领袖米奇-麦康奈尔**(Mitch McConnell)的揭露继续发酵，川普总统今日早些时候转发了英国每日邮报的报道“川普同盟抨击麦康奈尔祝贺拜登, 向强盗和中国屈服”，川普总统称麦康奈尔忽视7500万选民对在任总统的选票，放弃得太早了。共和党必须学会战斗。人民愤怒了。”
+还提供加拿大最高级别的飞行培训项目——加拿大交通部授权的“航线运输飞行员执照（ATPL）整体课程”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16194252/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE274.png)图片来源：优酷
+**安省万锦市巴顿维尔机场**
 
-林伍德律师转发了川普总统的推文，称“米奇-麦康奈尔应该被谴责，或许应该调查一下他和中共资金的关系。共产中国在美国遍地留下了指纹（理解为势力范围或作案证据）。美国的爱国者们，该醒来了。”
+除了红鹿市之外，自2009年起加拿大飞行学院（Canadian Flight Academy Ltd）与北京航空航天大学签署联合培训协议，学生到巴顿维尔机场（Buttonvillle Airport）处的飞行学院留学，该学校有近8成是来自中共国的学员。这是由于中共国的低空空域不开放，因此目视飞行训练几乎无法开展，国内的飞行培训学校寥寥可数。**就北航来说，所有的飞行员都是在国外培训，北航仅仅是提供地面理论学习。**再就是国内机场大部分都属于繁忙的大中型民航机场，不可能让飞行学员随意着陆或者临空。
 
-林伍德律师在另一则推文中称，“麦康奈尔在总统竞选活动中从多猫腻投票系统收取了捐款，我感到太吃惊了，你们觉得呢？我们的政府官员太腐败了，他们不和我们人民为伍（做生意），他们在政府内部就是中饱私囊。我们必须清理房间。”
+2019年7月13日，安省万锦市巴顿维尔机场，海南航空多伦多办事处与加拿大飞行者国际公司（Canadian Flyers International Inc.简称CFI航校） 举行企业客户合作签约仪式。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16194112/WeChat-Image_20190713190547.jpg)海南航空多伦多办事处总经理祝振华（左）和CFI航校总裁戴一雄（右）
+**新布伦瑞克省蒙顿航校**（ Moncton Flight College）
 
-林伍德律师继续发推把矛盾的焦点集中到了中共。他说：
+蒙顿飞行学院于2006年2006年接受了第一批中共国民航委派学员，培训容量为每年360名中共国学员，从那时起到现在，蒙顿飞行学院与多家中国航空公司包括中国国际航空公司、中国国际货运航空公司、北京航空航天大学（中国南方航空公司）、中国厦门航空公司、中国深圳航空公司、中国东方航空公司，中国顺丰航空公司，上海吉祥航空公司展开合作，为这些航空公司培养了大量飞行员。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16194921/d2b9db2334dd49b998457a1dd426d86d_th.jpeg)2017年4月18日摄于北航， 院党委副书记韩炜，学院驻蒙顿航校辅导员宁启智及15级全体辅导员出席了座谈会及欢送会。 图片来源：北航飞院
+评：
 
-“问：为什么对11月3日选举舞弊进行彻查对我们自由（价值观和权利）是至关重要的？
+所有出国留学学习飞行的学生，事先必须得到航空管理部门的批准和认可才能留学。因此，这个市场管制非常严格，要谈必须和各航空公司及航空院校谈，说白了，就是由中共控制。民航飞行员都得到国外培养，那么空军飞行员呢？北京航空航天大学就是有军方背景的大学。加拿大基本上被中共侵蚀得差不多了，不仅培训中共党卫军的陆军还培训空军，蓝瘦香菇。
 
-“答：因为如果我们同意领导人被一群选举舞弊集团分子所支付和决定，那么选举就是最高利益竞标者的事，就不是从我们人民中选出。
+*参考链接：*
 
-“请注意：是中共买下了2020美国大选。”
+[Chinese pilots training at former Canadian military base in Alberta](https://www.rebelnews.com/chinese_pilots_training_at_former_canadian_military_base_in_alberta)
 
+[Penhold Base 1939-1995](http://www.paulpettypiece.com/penhold_base.htm)
 
+[加拿大蒙代尔飞行学院](https://i.youku.com/i/UNDI5OTU2Mjk2OA==/videos?spm=a2hzp.8244740.0.0)-Youku
 
-> Mitch McConnell [@senatemajldr](https://twitter.com/senatemajldr?ref_src=twsrc%5Etfw) deserves to be slammed & perhaps investigated for links to CCP money.
-> 
-> Communist China fingerprints are everywhere in America.
-> 
-> Wake up Patriots. [https://t.co/407wImBFFV](https://t.co/407wImBFFV)
-> — Lin Wood (@LLinWood) [December 16, 2020](https://twitter.com/LLinWood/status/1339278701205180416?ref_src=twsrc%5Etfw)
+[加国最大飞行学校在多伦多 八成学员是中国90后](https://info.vanpeople.com/667704.html)
 
+[海南航空与CFI航校举行企业合作签约仪式](https://dushi.singtao.ca/toronto/%E7%A4%BE%E5%8C%BA/%E7%A4%BE%E5%9B%A2%E6%B6%88%E6%81%AF/%E6%B5%B7%E5%8D%97%E8%88%AA%E7%A9%BA%E4%B8%8Ecfi%E8%88%AA%E6%A0%A1%E4%B8%BE%E8%A1%8C%E6%88%98%E7%95%A5%E5%90%88%E4%BD%9C%E7%AD%BE%E7%BA%A6%E4%BB%AA%E5%BC%8F/?variant=zh-cn)
 
+[加拿大蒙顿航校 Moncton Flight College](http://www.tyhk.com.cn/Html/Train/jigou/3999.html)
 
-林伍德律师在回复川普总统竞选律师Jenna Ellis 的推文时称揭露了**主流媒体**的罪恶。他表示，
+[飞行学院蒙顿第52批出国学员行前座谈会与欢送会](https://www.sohu.com/a/135718289_718460)
 
-“我们国家的主流媒体是中共/全球主义/CIA（国家情报局）的宣传机构，MSM制造了所谓川普精神错乱综合症来分裂国家。
+[空军“金头盔”飞行员与北大清华北航学员班代表共话成长故事](http://www.xinhuanet.com/mil/2016-01/14/c_128628687.htm)
 
-“太多美国人都被玩弄了。我们被宣传机构洗脑了4年。”
-
-从今日林伍德律师的推文我们进一步看到中共对美国长期以来进行3F计划，试图搞乱美国、搞弱美国、搞死美国，已经“成绩突出”地在大选中见效。对沼泽地里的大鳄、对过去几届美国总统、政府各部门要人到基层干事，乃至对情报机构，和几乎所有美国的主流媒体实施影响，输出共产主义，从意识形态到治国理政全面渗透，美国爱国者领导人们正在疾呼并唤醒被灌下迷魂汤、不明真相的美国人，同时继续鼓励更多爱国者要放下恐惧，坚持正义。从乔治亚州审计选票、调查舞弊到重新投票，每一步都陷阱重重，虽然步履艰难，却继续稳步推进，中共布局的泥潭广泛而深重，但是我们已经看到正义力量如潮水般涌出，沼泽地正在被泛起，一条条污浊的鳄鱼被曝光、准备接受调查。这场反共的浪潮将是美国从上到下，由表及里、由内而外的全民运动。
-
-**中共走到了末路绝境**，**即将成为众矢之的，中国同胞们，请期待与中共的决战，做一棵压死骆驼的稻草，准备好迎接光明。**
-
-新闻素材和图片来自林伍德律师推特
-
-2+
+0
