@@ -1,43 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法国欲步中共后尘 发展超级士兵
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/657518/)
+## 【林伍德律师推文1216】-多貓膩投票系統
+` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/658307/)
 
-*加拿大多伦多枫叶农场 文𤦍(Manpui）*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17003621/EpahKPeVEAApm3p.jpg)
+12月16日，一名IT技术人员回复林伍德律师的推文说，乔治亚州官方在收货前预付了90%的合同款。林伍德律师回复说：
 
-*校对、上传 文锦*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16181011/Thales-Proceeds-On-Soldier-Weapon-Systems-for-Australia.png)图片来源：GBP
-据零对冲网络(Zerohedge.com)12月16日报道， 法国称也在发展仿生超级士兵因为“其他人都在这样做”。该国军事领导人认为，必须开发这项技术，因为如果不这样做，将使其他国家取得成功并获得军事优势。这引起法国军事道德委员会的关注。
+“我认为Dominion公司是在无标书的基础上授予合同的。就我所知有人出价更低。但是争辩的声音是，他们的投标书晚了3小时，所以副州务卿 @JordyFuchs 就拒绝这个竞标。
 
-TheMindUnleashed.com网络报导：”法国军事道德委员会星期二发表的一份报告表明，法国已经开始了仿生强化士兵的开发技术。该报告讨论了使用诸如植入物体之类的方法来改善士兵在战场的表现。”报告说，保持明确的道德准则对仿生士兵的发展尤其重要。
+“毕竟，这只是纳税人的钱。
 
-该报告呼吁禁止优生或遗传学应用在该技术上以及任何事物可能危及士兵融入社会或重返平民生活。
+“请乔治亚州长Brian来告诉我们。”
 
-法国国防部长弗洛伦斯·帕利（Florence Parly）在上周的一次讲话中回应；“该国军方不打算立即开发任何极具“侵略性”的选项，但他说，将来这可能是一种 选择，因为其他国家将把这种技术推向，他们会尽所能。”他说：”我们必须面对事实。 并不是每个人都有我们的顾虑，我们必须为未来的未来做好准备。”
 
-帕里继续承诺说：”法国政府将寻求平衡，并会找到在不背弃我们价值观的情况下保持我们战略优势的方法。”帕里还指出，类似的技术，例如神经植入物，已经引入民用领域而没有太大争议。
 
-“人类长期以来一直在寻求提升自身的体能以及认知能力的方法借以用于以战场上。 最终的发展可能是将能力增强引入士兵的身体中，”英国广播公司（BBC）表示。
+> I thought Dominion awarded contract on no-bid basis. However I have learned there was at least one other bid which was LOWER. There is some contention lower bid was 3 hours late so Jordan [@JordyFuchs](https://twitter.com/JordyFuchs?ref_src=twsrc%5Etfw) rejected it.
+> 
+> After all, it is just taxpayer money.[@GaSecofState](https://twitter.com/GaSecofState?ref_src=twsrc%5Etfw) can tell us. [https://t.co/42SZNIxQd6](https://t.co/42SZNIxQd6)
+> — Lin Wood (@LLinWood) [December 17, 2020](https://twitter.com/LLinWood/status/1339431241586671624?ref_src=twsrc%5Etfw)
 
-美国情报官员也暗示中共军队对其士兵已进行生物测试，期望建立一支强化型超级士兵部队。
 
-美国国家情报总监约翰·拉特克利夫（John Ratcliffe）在最近的《华尔街日报》（Wall Street Journal） 社论中提出了令人不安的说法。
 
-拉特克利夫在他的文章中声称：“情报很清楚：中共打算在经济、军事和技术上主宰美国和地球的其余部分。 中共许多重大的公共举措和权威公司只是作为中共政府活动的掩护。”他说： “美国情报显示，中共甚至对解放军进行人体实验，想要发展出具有生物增强能力的士兵。 中共政府追求权力没有道德界限”。
+新闻素材和图片来自林伍德律师推特
 
-评：
 
-一方面中共的还在极力忽悠国内炮灰们超级战士的“优点”。同胞们，快醒醒，请让领导先走，不要让老百姓的儿女做无谓的牺牲。
 
-另一方面，通过爆料革命，我们知道了法国和中共的紧密关系。王健之死、中共病毒等与法国都脱不了干系，现在想和中共上一条贼船，看起来前途不妙。
-
-*[原文连接](https://www.zerohedge.com/technology/france-says-its-developing-bionic-supersoldiers-because-everyone-else-doing-it)*
-
-相关链接：
-
-[根据中共媒体的描述解析中共将为超级士兵打造哪些恐怖功能](https://gnews.org/zh-hans/621646/)-Gnews
-
-[【热点播报】超级士兵和超级病毒—— 中共将科学武器化](https://gnews.org/zh-hans/629179/)-Gnews
-
-0
+2+

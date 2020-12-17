@@ -14,147 +14,147 @@
 
 ---
 
-### [针对全球严重侵犯人权和国家腐败，川普总统宣布紧急状态持续至2021年以应对国家安全](/content/gnews/1/README.md)
- ` GM101`
-
-### [美国务院宣布制裁中共国东海国际船舶、石化东南有限公司，冻结管辖区内被制裁人财产及收益](/content/gnews/2/README.md)
- ` GM101`
-
-### [《路德时评》解读：外国干预大选报告延期，及凤凰农场拆分真意](/content/gnews/3/README.md)
- ` GM141`
-
-### [活在中共荼毒的国度之下的孩子永远最容易被伤害的](/content/gnews/4/README.md)
- ` GM08`
-
-### [墙内急于推出“个人破产法”意味着什么？](/content/gnews/5/README.md)
- ` GM77`
-
-### [视频【字幕】12/11/2020文贵：只有灭共才能带来金融世界的未来](/content/gnews/6/README.md)
- ` Caihongqiao`
-
-### [作战室583期精选 班农细数美国情报界近几十年来犯下的大错（粤语/潮汕话配音）](/content/gnews/7/README.md)
- ` WarRoom中文組 文乐`
-
-### [中共是无法在贸易上轻易把澳大利亚“替换”掉的](/content/gnews/8/README.md)
- ` Himalaya Australia`
-
-### [视频《路德社》精选新闻快讯：国家安全总监约翰.莱特克里夫：中国，伊朗和俄国在11月大选中对美国进行了干预。但报告要一月份才会公布于众！](/content/gnews/9/README.md)
- ` 路德社精选`
-
-### [《路德社》精选新闻快讯：林伍德发推直指中共是美国敌人](/content/gnews/10/README.md)
- ` 路德社精选`
-
-### [《路德社》精选主题专栏：休克疗法，中共大盗现形](/content/gnews/11/README.md)
- ` 路德社精选`
-
-### [《路德社》精选新闻快讯：麦康奈尔警告共和党不要在国会进行选举团争斗](/content/gnews/12/README.md)
- ` 路德社精选`
-
-### [《路德社》精选主题专栏：中共国否认一切事故灾害的发生,包括这次福清核电站泄漏的质疑！](/content/gnews/13/README.md)
- ` 路德社精选`
-
-### [作战室583期精选 纽约邮报记者爆美领馆有三名中共女党员（粤语/潮汕话配音）](/content/gnews/14/README.md)
- ` WarRoom中文組 文乐`
-
-### [【战友观点】三大战役的真相](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
-
-### [视频【字幕】12/14/2020文贵：什么是美国当选的滑稽](/content/gnews/16/README.md)
- ` Caihongqiao`
-
-### [【战友观点】川普胜选与灭共的关系](/content/gnews/17/README.md)
- ` 墨尔本雅典娜农场`
-
-### [【林伍德律师推文1216】-乔治亚州年轻的女副州务卿](/content/gnews/18/README.md)
- ` Himalaya Wenya`
-
-### [中共死忠派准备煽动民族主义情绪](/content/gnews/19/README.md)
- ` XMLYG777`
-
-### [北航等院校在加拿大前空军基地等处进行飞行员培训](/content/gnews/20/README.md)
- ` gnewscanada`
-
-### [视频2020年12月16中共病毒疫情要闻快报](/content/gnews/21/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【林伍德律师推文1216】-矛盾重重、靶心中共](/content/gnews/22/README.md)
- ` Himalaya Wenya`
-
-### [众议员克里斯·斯图尔特（Chris Stewart）：中共间谍瞄准了国会的多名议员](/content/gnews/23/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [中共的米奇：麦康奈尔家族与赵家的福茂航运公司、中国银行、中共国家造船公司有关联](/content/gnews/24/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [视频【粤语】12/11/2020文贵：沼泽地背后得深层奥秘](/content/gnews/25/README.md)
- ` Caihongqiao`
-
-### [视频【粤语】12/11/2020文贵：共产党眼中的沼泽地](/content/gnews/26/README.md)
- ` Caihongqiao`
-
-### [法国欲步中共后尘 发展超级士兵](/content/gnews/27/README.md)
- ` gnewscanada`
-
-### [德意志时讯 2020.12.16:疫情数据/德国关门中国庆祝/拒绝接种疫苗者无法获得保险/医生在疫苗接种中心工作将获得的报酬](/content/gnews/28/README.md)
- ` Himalaya Farm Germany 喜马拉雅德国慕尼黑感恩农场`
-
-### [视频【粤语】12/11/2020文贵：中共的战争为甚麽一定要打](/content/gnews/29/README.md)
- ` Caihongqiao`
-
-### [数百央企外派员工接种“灭活疫苗”后感染中共病毒](/content/gnews/30/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [【快讯】中共教育部“十不得”，意为论文“内循环”？](/content/gnews/31/README.md)
- ` wenwu`
-
-### [劫贫济富，弱肉强食——报恩道德之批判（三）](/content/gnews/32/README.md)
- ` 英國倫敦喜莊園 Himalaya UK`
-
-### [马克龙：在需要的情况下我会接种疫苗](/content/gnews/33/README.md)
+### [法国总统马克龙感染新冠](/content/gnews/1/README.md)
  ` 喜马拉雅巴黎七星农场`
 
-### [视频【粤语】12/14/2020文贵：怎么滑稽？南希.佩洛西很可能会在1月6日担任临时总统](/content/gnews/34/README.md)
- ` Caihongqiao`
+### [针对全球严重侵犯人权和国家腐败，川普总统宣布紧急状态持续至2021年以应对国家安全](/content/gnews/2/README.md)
+ ` GM101`
 
-### [施恩图报，假仁假义——报恩道德之批判（二）](/content/gnews/35/README.md)
- ` 英國倫敦喜莊園 Himalaya UK`
+### [美国务院宣布制裁中共国东海国际船舶、石化东南有限公司，冻结管辖区内被制裁人财产及收益](/content/gnews/3/README.md)
+ ` GM101`
 
-### [视频【粤语】12/11/2020文贵：任何人都不可以挑戰美元](/content/gnews/36/README.md)
- ` Caihongqiao`
+### [【精华版国粤双语配音】班农战斗室 431期：阎博士是美国的英雄 中国人民的英雄](/content/gnews/4/README.md)
+ ` GM42`
 
-### [防范中共数字货币网络金融诈骗指南](/content/gnews/37/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [【文字版】路德时评2020.12.16早间：川普总统任命特别检察官调查拜登硬盘门和大选；国防部关闭秘密协议路由器；包括推特脸书在内的九家科技公司被调查；](/content/gnews/5/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [东方的共产主义和西方的反基督文化始于同一种邪教](/content/gnews/38/README.md)
+### [中共极权高压管制 导致社会三观扭曲 让孩子手里的刀指向了母亲](/content/gnews/6/README.md)
+ ` GM108`
+
+### [罪恶体制下普通民众的生存环境（就业部分）&#8211;爆料革命随笔之三](/content/gnews/7/README.md)
+ ` JPHIMALAYA`
+
+### [视频【路德社】【精华版粤语快报】12.16：国防部突关闭秘密协议路由器 灭共之路愈艰难 灭共结果才愈发珍贵](/content/gnews/8/README.md)
+ ` GM42`
+
+### [美国将瑞士和越南列为汇率操纵国，中国被列入观察名单](/content/gnews/9/README.md)
+ ` GM77`
+
+### [美国学术界的堕落与悲哀&#8211;美国国家科学院（NAS）企图逃避追求CCP病毒起源的真相](/content/gnews/10/README.md)
  ` 秘密翻译组G-Translators`
 
-### [数据安全的垄断霸权已经形成，将对世界提出严峻挑战](/content/gnews/39/README.md)
- ` 英國倫敦喜莊園 Himalaya UK`
+### [中芯国际被爆CEO梁孟松请辞，且暂停香港交易](/content/gnews/11/README.md)
+ ` GM77`
 
-### [呼吁羟氯喹防治中共病毒的泽连科医生遭人身威胁](/content/gnews/40/README.md)
- ` gnewscanada`
+### [【聚焦】米奇·麦康奈尔接受多米尼投票机游说公司捐款](/content/gnews/12/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [解析中共“地球梦”的现世与幻想](/content/gnews/41/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [假公济私，恩出私门——报恩道德之批判（一）](/content/gnews/42/README.md)
- ` 英國倫敦喜莊園 Himalaya UK`
-
-### [视频11/07/2020 郭先生直播：对美国大选进程预测](/content/gnews/43/README.md)
+### [针对苹果公司提出的抗辩,原告提出异议之要点及法律依据备忘录【法庭文件全文翻译】](/content/gnews/13/README.md)
  ` 秘密翻译组G-Translators`
 
-### [特鲁多的加拿大何去何从？](/content/gnews/44/README.md)
+### [中天新闻熄灯号！](/content/gnews/14/README.md)
+ ` Himalaya Australia`
+
+### [法国佩罗恩教授：辉瑞和Moderna疫苗并非疫苗，而是一种基因疗法](/content/gnews/15/README.md)
+ ` GM62`
+
+### [每日祈祷：期盼“袁英雄”早日出现，斩首“习包子”，踏习尸骨唱凯旋！](/content/gnews/16/README.md)
+ ` 首尔喜韩农场`
+
+### [大陆可能推出《国家统一法》？国台办回应](/content/gnews/17/README.md)
+ ` GM77`
+
+### [【每日快讯】16/12/2020:凤凰农场宣告解散，请战友们另行加入经农场联盟委员会认证的农场 7个摇摆州的选票最后归属由彭斯副总统决定](/content/gnews/18/README.md)
+ ` GM132 每日快訊`
+
+### [视频文贵先生：接下来你们会看到滑稽的真正的开始](/content/gnews/19/README.md)
+ ` GM113`
+
+### [视频【路德社】【精华版粤语快报】12.15：麦康奈尔承认拜登当选显玄机 川普将任命特别检察官](/content/gnews/20/README.md)
+ ` GM42`
+
+### [【福林将军师推文1216】-微小概率事件](/content/gnews/21/README.md)
+ ` Himalaya Wenya`
+
+### [视频12/16日康州农场前沿观察: G系列—新中国联邦的&#8221;诺亚方舟&#8221;](/content/gnews/22/README.md)
+ ` 康州盘古喜马拉雅农场`
+
+### [SolarWinds更新服务器的密码是“ solarwinds123”](/content/gnews/23/README.md)
  ` gnewscanada`
 
-### [视频【字幕】12/11/2020文贵：新中国联邦人将是中国人历史上最大的功臣](/content/gnews/45/README.md)
+### [波士顿咨询公司的党员们是否在国际业务咨询中执行党的蓝金黄](/content/gnews/24/README.md)
+ ` NewFOC`
+
+### [英国新冠病毒毒株发生关键突变](/content/gnews/25/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [【林伍德律师推文1216】-反被攻击](/content/gnews/26/README.md)
+ ` Himalaya Wenya`
+
+### [【林伍德律师推文1216】-多貓膩投票系統](/content/gnews/27/README.md)
+ ` Himalaya Wenya`
+
+### [朱利安•阿桑奇已正式向美国总统唐纳德•川普提出赦免请求](/content/gnews/28/README.md)
+ ` 康州盘古喜马拉雅农场`
+
+### [【林伍德律师推文1216】-金发辫子弃暗投明](/content/gnews/29/README.md)
+ ` Himalaya Wenya`
+
+### [当党的利益与毕马威全球利益冲突时党支部成员们到底选择哪方](/content/gnews/30/README.md)
+ ` NewFOC`
+
+### [无间道连环上演又如何？川普见招拆招](/content/gnews/31/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [情报报告推迟公布：“中共国干预2020美大选”内容有人试图删除](/content/gnews/32/README.md)
+ ` gnewscanada`
+
+### [共和党众议员莫·布鲁克斯将反对各州提交的选举人团选票](/content/gnews/33/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【热点解读】结合美国大选，谷歌，油管死机的深度思考](/content/gnews/34/README.md)
+ ` Himalaya Australia`
+
+### [爆革星评：自由且有保障 Sara 的解释很重要](/content/gnews/35/README.md)
+ ` gnewscanada`
+
+### [【林伍德律师推文1216】-想赢就作弊吗？](/content/gnews/36/README.md)
+ ` Himalaya Wenya`
+
+### [《路德时评》解读：外国干预大选报告延期，及凤凰农场拆分真意](/content/gnews/37/README.md)
+ ` GM141`
+
+### [活在中共荼毒的国度之下的孩子永远最容易被伤害的](/content/gnews/38/README.md)
+ ` GM08`
+
+### [墙内急于推出“个人破产法”意味着什么？](/content/gnews/39/README.md)
+ ` GM77`
+
+### [视频【字幕】12/11/2020文贵：只有灭共才能带来金融世界的未来](/content/gnews/40/README.md)
  ` Caihongqiao`
 
-### [War Room 585 总结](/content/gnews/46/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [作战室583期精选 班农细数美国情报界近几十年来犯下的大错（粤语/潮汕话配音）](/content/gnews/41/README.md)
+ ` WarRoom中文組 文乐`
 
-### [视频班农作战室WARROOM精选583 期（2）](/content/gnews/47/README.md)
- ` XMLYG777`
+### [中共是无法在贸易上轻易把澳大利亚“替换”掉的](/content/gnews/42/README.md)
+ ` Himalaya Australia`
 
-### [辉瑞、阿斯利康雇佣了123名共产党员](/content/gnews/48/README.md)
- ` 英國倫敦喜莊園 Himalaya UK`
+### [视频《路德社》精选新闻快讯：国家安全总监约翰.莱特克里夫：中国，伊朗和俄国在11月大选中对美国进行了干预。但报告要一月份才会公布于众！](/content/gnews/43/README.md)
+ ` 路德社精选`
+
+### [《路德社》精选新闻快讯：林伍德发推直指中共是美国敌人](/content/gnews/44/README.md)
+ ` 路德社精选`
+
+### [《路德社》精选主题专栏：休克疗法，中共大盗现形](/content/gnews/45/README.md)
+ ` 路德社精选`
+
+### [《路德社》精选新闻快讯：麦康奈尔警告共和党不要在国会进行选举团争斗](/content/gnews/46/README.md)
+ ` 路德社精选`
+
+### [《路德社》精选主题专栏：中共国否认一切事故灾害的发生,包括这次福清核电站泄漏的质疑！](/content/gnews/47/README.md)
+ ` 路德社精选`
+
+### [作战室583期精选 纽约邮报记者爆美领馆有三名中共女党员（粤语/潮汕话配音）](/content/gnews/48/README.md)
+ ` WarRoom中文組 文乐`
 

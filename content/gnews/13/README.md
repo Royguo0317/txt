@@ -1,38 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选主题专栏：中共国否认一切事故灾害的发生,包括这次福清核电站泄漏的质疑！
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/657581/)
+## 针对苹果公司提出的抗辩,原告提出异议之要点及法律依据备忘录【法庭文件全文翻译】
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/658360/)
 
-《路德社》精选主题专栏组出品
+### 【[法庭文件英文原文PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17021920/%E3%80%90EN%E3%80%914-29-Pham-v.-Apple_Plaintiff-Opp-MTD-1.pdf)】【[中文全文翻译PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17022004/%E3%80%90CN%E3%80%91Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1.pdf)】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17030905/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_00.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17030910/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_01.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17030912/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_02.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17030916/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_03.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17030919/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_04.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17030923/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_05.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17030927/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_06.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17030947/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_07.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17030950/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_08.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17030956/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_09.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17030957/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_10.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17031002/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_11.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17031004/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_12.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17031016/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_14.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17031018/Tracy-Pham-v.-Apple_Plaintiff-Opp-MTD-1_15.png)
+**前员工起诉苹果公司的进展情况：**
 
-15日美国知音刊发文章，表示中国否认它的一座新的国产核电站在一次涉及主蒸汽管道事故“自动关闭”后发生了任何的核辐射泄漏。
+1. [前员工起诉苹果公司: 因政治派别不同而遭受其歧视, 报复, 骚扰以及解雇等不当行为](https://gnews.org/zh-hans/646660/)
+2. [被告苹果公司要求删除申诉的动议要点和授权备忘录](https://gnews.org/zh-hans/646888/)
+3. [原告提出异议并请求法院驳回被告苹果公司的全部罢诉动议](https://gnews.org/zh-hans/646967/)
+4. [法庭驳回被告苹果公司对原告《民事诉讼法》中的第一和第二 项诉讼理由提出的抗辩](https://gnews.org/zh-hans/647110/)
+5. [针对苹果公司提出的抗辩,原告提出异议之要点及法律依据备忘录](https://gnews.org/zh-hans/658360/)
 
-![]()
-中国福清核电站位于中国福建省福州市的县级市福清市三山镇前薛村岐尾山前沿。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16190943/1701.png)
-在中共官媒新华网11月30日曾经这样描述：“11月27日00时41分，‘华龙一号’全球首堆——中核集团福清核电5号机组首次并网成功。经现场确认，这一机组各项技术指标均符合设计要求，机组状态良好，为后续机组投入商业运行奠定坚实基础，并创造了全球第三代核电首堆建设的最佳业绩”。
 
-但是香港媒体香港01 星期二（12月15日）报道，中国国家核安全局12月初的一封信函称，在检查福清核电站5号机组的抽汽系统时，主蒸汽管道的振荡引发了机组的自动关闭。
-
-中国国家核安全局网站12月14日全文刊发了该局12月9日的信函，称“2020年10月27日，福清核电厂5号机组在执行蒸汽排放连锁检查调试试验期间，二回路第二环路主蒸汽管道压力出现震荡，触发蒸汽管道间主蒸汽压差高保护信号，安全注入系统动作（未实际注入），机组自动停堆，定为1起0级运行事件”。
-
-中国核安局的信函说，“事件期间，福清核电厂5号机组反应堆正常自动停堆，安注系统动作符合设计要求，人员操作未见明显重大异常”。还说，“本事件未造成放射性释放，未对人员和环境安全造成不良影响”。
-
-据资料介绍，所谓自动停堆指的是，核电厂运行时发生设计规定的异常情况触发保护系统动作导致控制棒下落使反应堆停运。
-
-据中国核能行业协会的统计，截至2020年6月底，中国大陆正在运行的核电机组共47台。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16191128/772A7359-0B3E-46B0-AED0-9D3A8999FE12_cx0_cy10_cw0_w1023_r1_s.jpg)
-**作者观点：**
-
-美国知音，香港01等媒体看似在自由世界，实际美国媒体已经被邪恶势力中共渗透控制，香港媒体中共已经完全控制，所以这类媒体大多以小骂大帮忙为主，中共统治下的中国有着无数惨遭屠戮的亡灵，中共血债帮制造各种危机杀害国人，现在甚至生化病毒攻击世界，拿下世界的领导权，从而替代美国。任何对中共不利的真相，中共首先想的是解决说真相的人，摆平传播真相的媒体！暂且不论这福清放射性泄漏是否为真，从发动生化病毒战的这一波大规模操作看，掩盖真相，买通人马，打造的瞒天过海之能让人叹为观止，而最终事件的发酵也再次证明了中共的谎言被拆穿和画皮背后的骷髅，给美国以及西方再一次的震撼。所以这次放射性泄漏的真相，中共已经陷入“塔西陀陷阱”，它否认什么，什么就是真相！
-
-【文章仅代表作者个人观点】
-
-[援引](https://www.voachinese.com/a/china-denies-radiation-leak-from-nuke-plant-across-taiwan-20201215/5700272.html)
-
-本文作者：楼兰古城
-审核校对：玫瑰天空
-上传排版：糖果儿
+#### **By【秘密翻译组 G-Translators】**
 
 0
