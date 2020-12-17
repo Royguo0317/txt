@@ -1,57 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共的米奇：麦康奈尔家族与赵家的福茂航运公司、中国银行、中共国家造船公司有关联
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/657590/)
+## 【林伍德律师推文1216】-乔治亚州年轻的女副州务卿
+` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/657732/)
 
-原文作者：加布里埃尔·基恩（Gabriel Keane）
-发布日期：2020年12月15日
-翻译：康州盘古农场 – 文白
-校对：康州盘古农场 – 烟波浩淼
-审核：康州盘古农场 – V
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16191226/mitch_mcconnell_china.jpg)在这位肯塔基州参议员宣布乔·拜登获胜后，其（麦·康奈尔）家族与赵家的福茂（Foremost）  航运公司、中共国家造船公司和中国银行的联系再次浮出水面。
-随着周二参议院多数党领袖米奇·麦康奈尔对美国大选 “进程 “的赞美和对 “当选总统乔·拜登 “宣布 “祝贺 “的消息传出，这位肯塔基州参议员与中共广泛的家族关系再次成为话题。
+乔治亚州在进行重新投票的时候，舞弊行为和腐败分子相继被爆出。继向中共屈服的州务卿和州长之后，副州务卿 Jordan M. Fuchs被揭露。
 
-麦康奈尔入赘赵家王朝的同时，麦康奈尔和赵家王朝的个人利益以及中共国的商业利益也进入了只赚不赔的轨道。
-
-**中国银行（BANK OF CHINA）**
-
-麦康奈尔的妻子——赵小兰（Elaine Chao）是航运大亨赵锡成(James S.C. Chao)           和赵朱木兰（Ruth Chao）的女儿，也是赵安吉（Angela Chao）的姐姐，后者在2016年被任命为中国银行董事会的非执行职务。
-
-**赵氏家族财富**
-
-2007年和2008年赵朱木兰去世后，麦康奈尔的财务披露出现了大规模的飙升，据《福布斯》报道，在这两年的时间里，这位参议员的联邦披露金额从300万美元跃升至3300万美元。
-
-根据《纽约时报》2019年的报道，麦康奈尔的连任竞选活动已经收到了詹姆斯和安吉拉在内的伊莱恩·赵家族超过100万美元的捐款。
-
-**赵氏航运帝国**
-
-除了在中国银行的职位外，赵安吉还担任福茂集团的CEO，该公司是赵氏家族价值数十亿美元的海运帝国。虽然福茂集团是一家表面上的美国公司，办公室位于纽约市，但《福布斯》指出，该公司的船队  “悬挂利比里亚和香港注册的旗帜航行，公司的绝大部分业务都在亚洲。”
-
-在麦康奈尔担任参议院议员期间，福茂集团的轨迹一直保持稳定上升，即使在行业多次经济低迷时，该公司也持续繁荣。 航运数据库VesselsValue估计该公司船队的净值为12亿美元，是2019年总部设在美国的此类干散货航运业务中价值最高的船队。
-
-也许福茂集团的好运有一部分可以归功于它从中共政府获得的价值数亿美元的合同贷款，或者是自称是美国人的赵锡成和赵安吉曾在中共政府拥有的中共国营船舶公司——中国船舶工业总公司（China State Shipbuilding Corporation）董事会任职。
-
-《纽约时报》在2019年的报道中指出，赵安吉担任非执行董事的中国银行是中共国船舶的最大放贷者。
-
-**美国交通部奉行的“中共优先，美国垫底”政治**
-
-据《泰晤士报》报道，在赵小兰担任交通部长期间，该机构的预算 “多次要求削减旨在稳定美国陷入财政困境的海运业的项目，着手削减对小型商业船厂的联邦拨款和对国内造船商的联邦贷款担保的新资金”。
-
-报道还指出，虽然赵氏家族为中共提供奖学金和为中共水手提供船舶模拟器的中共项目支付了费用，但赵小兰的交通部却多次试图克扣那些让美国国内船舶继续服役的项目的补助资金，并购买那些将用于培训美国海员的船舶。
-
-麦康奈尔和赵小兰多次驳斥了人们对参议院多数党领袖家族与福茂集团和北京之间关系产生的利益冲突的担忧，赵小兰暗示她与麦康奈尔的关系只是因为反华偏见而受到审查。
-
-不过，有批评人士指出，麦康奈尔公开拒绝帮助川普总统争取恢复选举诚信的斗争，可能是受到川普总统亲美，强硬的对华贸易立场对麦康奈尔身边的商业利益构成威胁这一事实的影响。
+12月16日林伍德律师转发了Jordan早前劝说共和党议员Geoff Duncan“投靠”拜登的推文，并说她是乔治亚州验票表演的操作人。林伍德律师继续发推说，“一个30岁、仅有1年政府工作经验的人，和多米尼交易进行谈判、并实质上行驶州务卿之职，你能相信吗？….乔治亚州确实有问题。”
 
 
 
-原文链接：
+> Here is Jordan Fuchs retweet of [@GeoffDuncanGA](https://twitter.com/GeoffDuncanGA?ref_src=twsrc%5Etfw) call to move on from [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw).
+> 
+> How does this truth make you feel, GA Patriots? [https://t.co/knGwVFqZzG](https://t.co/knGwVFqZzG) [pic.twitter.com/lW8YuHfaTw](https://t.co/lW8YuHfaTw)
+> — Lin Wood (@LLinWood) [December 17, 2020](https://twitter.com/LLinWood/status/1339368701448003584?ref_src=twsrc%5Etfw)
 
 
 
-> [CHINA MITCH: McConnell Has Family Ties to Bank of China, Top Chinese Shipping Firm](https://nationalfile.com/china-mitch-mcconnell-has-family-ties-to-bank-of-china-top-chinese-shipping-firm/)
+
+
+新闻素材和图片来自林伍德律师推特
 
 
 
-0
+1+

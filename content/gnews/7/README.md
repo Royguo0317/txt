@@ -1,26 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1216】-乔治亚州年轻的女副州务卿
-` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/657732/)
+## 《路德社》精选新闻快讯：麦康奈尔警告共和党不要在国会进行选举团争斗
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/656501/)
 
-乔治亚州在进行重新投票的时候，舞弊行为和腐败分子相继被爆出。继向中共屈服的州务卿和州长之后，副州务卿 Jordan M. Fuchs被揭露。
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16103346/16081328111.png)
+在佐治亚州参议院第二轮选举之前，抵御一场可能损害共和党人的混乱斗争，多数党领袖米奇-麦康奈尔周二警告其他共和党参议员不要加入唐纳德-特朗普总统对选举团结果的延伸攻击。
 
-12月16日林伍德律师转发了Jordan早前劝说共和党议员Geoff Duncan“投靠”拜登的推文，并说她是乔治亚州验票表演的操作人。林伍德律师继续发推说，“一个30岁、仅有1年政府工作经验的人，和多米尼交易进行谈判、并实质上行驶州务卿之职，你能相信吗？….乔治亚州确实有问题。”
+首先，这位共和党领袖在上午的参议院演讲中向当选总统拜登表示祝贺时，对特朗普的 “无尽 “成就大加赞赏。然后，他转了个弯，私下里警告共和党参议员，在1月6日国会召开联席会议确认结果时，不要对选举团的计票结果提出异议。
 
+“我要祝贺当选总统乔-拜登，”麦康奈尔在参议院开幕式上说。
 
+麦康奈尔在此刻跳出来祝贺拜登当选总统，无疑是想平衡双方想左右逢源争取更多利益，当越来越靠近最终时间节点越来越多的反转滑稽的事情陆续发生完全印证了文贵先生的预言。
 
-> Here is Jordan Fuchs retweet of [@GeoffDuncanGA](https://twitter.com/GeoffDuncanGA?ref_src=twsrc%5Etfw) call to move on from [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw).
-> 
-> How does this truth make you feel, GA Patriots? [https://t.co/knGwVFqZzG](https://t.co/knGwVFqZzG) [pic.twitter.com/lW8YuHfaTw](https://t.co/lW8YuHfaTw)
-> — Lin Wood (@LLinWood) [December 17, 2020](https://twitter.com/LLinWood/status/1339368701448003584?ref_src=twsrc%5Etfw)
+本文作者：CharlieNZ查理
 
+审核校对：玫瑰天空
 
+上传排版：CharlieNZ查理
 
-
-
-新闻素材和图片来自林伍德律师推特
-
-
-
-1+
+0
