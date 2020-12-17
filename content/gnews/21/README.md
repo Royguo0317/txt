@@ -1,23 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共将进口至少1亿支辉瑞疫苗，表明对自家产品信心不足
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/659899/)
+## 【简讯】纳瓦罗发布2020美国大选舞弊调查报告
+` GM65` [轉載自GNews](https://gnews.org/zh-hans/660645/)
 
-作者：香草山写作组  七芒星； 编辑/发稿：村北
+2020年12月17日，美国白宫经济顾问皮特·纳瓦罗博士发布《完美骗局：选举违规的六个方面》报告，对2020年美国大选的公正性和完整性进行了全面、客观的评估，该报告结论的得出基于六个州的50多项诉讼中获得的证据，包括成千上万的宣誓书和证词、分析报告，媒体报道等等。
 
-据Breitbart消息，上海复星医药集团周三宣布，已与BioNTech直接签署了协议，以购买其与美国辉瑞公司共同开发的至少1亿剂量的新冠病毒疫苗—这是首款在美国获”紧急使用授权“的疫苗。该协议与BioNTech直接交易，表明这些疫苗将在德国而非美国生产。
+报告从六个方面进行了分析和总结（如图），从事实证据的角度说明了本次大选存在的舞弊现象。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17144452/Screen-Shot-2020-12-17-at-14.31.13.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17144537/Screen-Shot-2020-12-17-at-13.59.00.png)图片来自纳瓦罗报告
+[报告原文](https://bannonswarroom.com/wp-content/uploads/2020/12/The-Immaculate-Deception-12.15.20-1.pdf)
 
-上海复星集团与中共政府共同拥有国药集团，后者是一家研发自己的新冠病毒疫苗的公司。目前，国药集团公布的其开发的疫苗有效性约为86％，而辉瑞和BioNTech的疫苗公布的早期有效性数据为95％。除国药集团外，中共公司科兴生物目前正在巴西测试其疫苗，但是巴西卫生监督局表示，共产党政府并没有提供足够的证明表明这种疫苗可能有效。巴西总统贾尔·博尔索纳罗也表示过坚决反对从中共进口任何疫苗，并反对强制公民注射该疫苗。
-
-虽然中国疾病预防控制中心主任高福曾声称，“辉瑞和Moderna表示他们的疫苗非常有效，但是请相信我，中国的疫​​苗也非常有效”，但是从一家美国公司大量进口其开发的疫苗，表明中共政府对自己开发的疫苗并没有信心。
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+[新闻来源](https://www.prnewswire.com/news-releases/dr-peter-navarro-releases-report-on-2020-election-301195191.html)
 
 0

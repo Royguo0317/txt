@@ -1,60 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】推特对反对疫苗的言论，出台了新的措施
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/660480/)
+## 川普总统通知延续针对严重侵犯人权和腐败的国家的紧急状态法
+` GM127` [轉載自GNews](https://gnews.org/zh-hans/660610/)
 
-**作者：香草山写作组** Daxia 校对/发稿：飞虹
+新闻简述：川普美国总统2017年12月20日的一项针对世界范围内严重侵犯人权和腐败的国家紧急状态的行政令将继续延期，以应对对美国国家安全，外交政策和经济的非同寻常的威胁。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07015922/logo-3-1-1.jpg)
+[阅读白宫原文](https://www.whitehouse.gov/briefings-statements/text-notice-continuation-national-emergency-respect-serious-human-rights-abuse-corruption-121620/)
 
+Text of a Notice on the Continuation of the National Emergency with Respect to Serious Human Rights Abuse and Corruption
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17133023/%E5%9B%BE%E7%89%871-20.png)图片来源：Microstockhub
-推特安全(Twitter safety)网消息，原文翻译如下:
+关于严重侵犯人权和腐败的国家紧急状态法的延续的通知文本
 
-随着世界继续抗击新冠病毒疫情，并为疫苗的全球分发做准备，人们将继续在推特上讨论正在发生的事情，并找到最新的权威公共卫生信息。
+LAW & JUSTICE
 
-今年早些时候，我们在推特上分享了围绕新冠病毒对话的方法，今天，我们计划就如何处理有关新冠病毒疫苗接种的误导性信息提供额外指导。从下周开始，我们将优先删除最有害的误导性信息，并在未来几周内开始在那些包含有关疫苗的潜在误导性信息的推文上贴标签。
+法律与司法
 
-我们扩展的方法
+Issued on: December 16, 2020
 
-在全球大流行的背景下，疫苗错误信息构成了重大且日益严重的公共卫生挑战——我们都可以发挥作用。我们专注于减少误导性信息，这些信息会对人们的健康和福祉造成最大潜在伤害。推特作为围绕这些关键的公共卫生问题进行真诚的公众辩论和讨论的场所，可以发挥重要作用＂。
+发布日期：2020年12月16日
 
-根据我们目前的政策，我们已经要求删除包含以下虚假或误导性信息的推文。
+On December 20, 2017, by Executive Order 13818, the President declared a national emergency with respect to serious human rights abuse and corruption around the world and, pursuant to the International Emergency Economic Powers Act (50 U.S.C. 1701 et seq.), took related steps to deal with the unusual and extraordinary threat to the national security, foreign policy, and economy of the United States.
 
-1. 病毒的性质，例如它如何在社区内传播；
+2017年12月20日，美国总统根据第 13818 号行政命令，宣布了一项针对世界范围内严重侵犯人权和腐败的国家紧急状态，并根据《国际紧急经济权力法》（《美国法典》第 50 卷第 1701 条及以下）采取相关的措施以应对对美国国家安全，外交政策和经济的非同寻常的威胁。
 
+The prevalence and severity of human rights abuse and corruption that have their source, in whole or in substantial part, outside the United States, continue to pose an unusual and extraordinary threat to the national security, foreign policy, and economy of the United States.  For this reason, the national emergency declared on December 20, 2017, must continue in effect beyond December 20, 2020.  Therefore, in accordance with section 202(d) of the National Emergencies Act (50 U.S.C. 1622(d)), I am continuing for 1 year the national emergency declared in Executive Order 13818 with respect to serious human rights abuse and corruption.
 
-2. 缓解或治疗疾病的预防措施、治疗或其他预防措施的有效性和/或安全性；
+其全部或大部分来自美国境外的侵犯人权和腐败的普遍性和严重性，继续对美国的国家安全，外交政策和经济构成非同寻常的威胁。根据这个原因，2017年12月20日宣布的国家紧急状态必须在2020年12月20日之后继续有效。因此，根据《国家紧急状态法》（《美国法典》第50卷第202条），我继续执行一年 13818 号行政命令宣布的关于严重侵犯人权和腐败的国家紧急状态。
 
-3. 与健康咨询有关的官方法规、限制或豁免；
+This notice shall be published in the Federal Register and transmitted to the Congress.
 
-4. 以及感染或死亡的流行程度或风险。
+该通知应在《联邦公报》上发布并发送给国会。
 
-展望未来，从下周开始，我们将扩大该项政策，并可能要求人们删除那些关于新冠病毒疫苗接种的有害、虚假或误导性言论的推文，包括：
+DONALD J. TRUMP
 
-1. 虚假的说法表明，免疫和疫苗被用来故意伤害或控制人群，包括关于疫苗的言论，这些声明援引了蓄意阴谋；
+唐纳德·川普
 
-2. 关于接种疫苗的不利影响或影响被广泛揭穿的虚假声明；
+THE WHITE HOUSE,
 
-3. 虚假地声称新冠病毒不是真的或不严重的，因此没有必要接种疫苗。
+白宫
 
-从2021年初开始，我们可能会在推文上进行标记或发出警告，这些推文会发布未经证实的谣言、有争议的说法以及关于疫苗的不完整或断章取义的信息。根据本扩展指南标记的推文可能链接到权威公共卫生信息或推特规则，为人们提供有关新冠病毒的额外背景和权威信息。
+December 16, 2020.
 
-接下来是什么
+2020年12月16日。
 
-我们将结合技术和人工审查，于12**月**21日开始执行这一更新政策，并在接下来的几周内扩大我们的行动。我们将与世界各地的地方、国家和全球公共卫生当局密切协商，执行这项政策，并将努力使我们的方法具有迭代性和透明度。我们仍然专注于帮助人们找到可信的健康信息，验证公共卫生专家，并以迭代和透明的方式更新我们的政策。
-
-关于推特对发表反对、抹黑、造谣疫苗的不当言论，将重新启动釆取新措施，各位吃瓜群众，你怎么看？
-
-本文章只是转发推特安全网内容，仅供阅读。
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
+翻译：【JennyL】编辑：【Isaiah4031】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22111053/VOG-Rose-Garden-Team.png)
 0

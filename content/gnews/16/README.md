@@ -1,85 +1,74 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 多猫腻说客向麦康奈尔支付数千美元，随后选举诚信法案被压制
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/660613/)
+## “一个马克龙被中共病毒感染，全欧盟的政要首脑被隔离??”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/660726/)
 
-*新闻来源：National File《国家档案》；作者：JACK HADFIELD；发布时间：2020年12月15日*
+- 作者：Free monkey
 
-*翻译/简评：Dreamer文童；校对：Beicy-数学老师；审核：万人往；Page：拱卒*
 
-**简评：**
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-12月15日（周二），参议院多数党领袖米奇·麦康奈尔（Mitch McConnell）祝贺乔·拜登成为当选总统，立即在网络上引起热议。很多网友挖出麦康奈尔的华裔太太赵小兰（现任美国运输部长）家族与中共的关系，包括赵小兰父亲赵锡成与江泽民同为校友，赵氏家族的航运公司福茂集团绝大部分业务都在亚洲，麦康奈尔的竞选团队收到赵氏家族超过100万美元捐款等等。这些事实结合中共几十年一贯的“蓝金黄”手段，让人不得不猜测麦康奈尔是否就是被中共渗透和控制的一条大鳄。
+**西班牙2020年12月17日电/西喜社——**
 
-《国家档案》（National File）此篇报道爆出，一年前，麦康奈尔在接受多猫腻（Dominion）说客捐款后，压制了两项旨在确保投票安全的法案。在此次美国大选中，多猫腻投票系统出现的种种荒谬现象已经能够证明该投票系统存在人为操纵的舞弊行为，并且是受外国势力（中共）的干涉。结合上述所有信息，可以推测此次美国大选舞弊是蓄谋已久的涉及多方人士参与的有组织犯罪行为，而幕后黑手就是中共。
+12月10日至11日，马克龙曾在比利时布鲁塞尔参加欧洲理事会。有法国专家指出，就算马克龙在开会时全程佩戴口罩，也总有摘下口罩吃饭的时候，此时感染风险相当高。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17151826/011-1.png)12月10日，在比利时布鲁塞尔的欧盟总部，欧洲理事会主席米歇尔（左三）与多名欧盟领导人在欧盟冬季峰会召开前交谈（图片来源：新华社）
 
-**原文翻译：**
+当天，**法国巴斯德研究所发表的一项研究结果显示，去餐厅吃饭和出国都是感染中共病毒的高风险行为。**（马克龙两个都占了……）
 
-**多猫腻的说客在麦康奈尔压制选举诚信法案、忽视选举竞争之前向其支付数千美元**
+“**活动”多、“饭局”多总统请客“不守规矩”？**
 
-**参议院多数党领袖去年7月份不允许对该法案进行表决**
+据法新社报道，周三（16日）晚，马克龙组织工作晚餐会，约有12人参加，包括总理卡斯泰、国会议长费朗、执政党“共和国前进党”负责人卡斯塔内，民主运动党（MoDem）弗朗索瓦·白鲁，总统府秘书长科莱（Alexis Kohler）等人。
+为遏制节后疫情反弹，法国政府多次强烈建议民众圣诞节聚餐不要超过每桌6人。既如此，为何总统请客可以不遵守规定，一桌坐12人？参加晚餐会的白鲁解释说，**餐桌有15米长，每人间隔足足有1.6米至2米**，是严格遵守了防疫规定的。卡斯塔内也补充说，**晚餐宴会厅本可以容纳700人，并且当晚一直有良好通风。**
+爱丽舍宫透露，马克龙确诊后，已取消所有访问日程，原定下周二、三（22/23日）的黎巴嫩之行也随之泡汤。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17152249/02-1.png)今年8月6日布鲁特大爆炸后，马克龙在再去慰问民众（法新社图）
+**三天三顿工作餐会法国、欧盟政要纷纷隔离**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/q3QK9h1Gf6Nab/images/6a8f052a-d85a-48cd-a7e6-aeb4ba2fbfca.jpg?asset_id=bed38897-4ecc-4d89-aa97-d5fb80bc6634&amp;img_etag=%2230c25a395256453d7105dfcf0b4cecf1%22&amp;size=1024)](https://spark.adobe.com/page/q3QK9h1Gf6Nab/images/6a8f052a-d85a-48cd-a7e6-aeb4ba2fbfca.jpg?asset_id=bed38897-4ecc-4d89-aa97-d5fb80bc6634&amp;img_etag=%2230c25a395256453d7105dfcf0b4cecf1%22&amp;size=1024)
+法国公共卫生局对新冠确诊患者的密切接触者定义为：
 
-参议院多数党领袖米奇·麦康奈尔（Mitch McConnell）在接受多猫腻说客的数千美元捐款后，于去年7月份撤销两项选举诚信法案。
+- 与确诊者共同生活者；
+- 与确诊者曾在一米之内的距离接触过（无论接触时长）；
+- 与确诊者在封闭场所共处超过15分钟者（连续或24小时内累计时长）；
+- 面对面时，确诊者曾咳嗽或打喷嚏。
 
-7月，麦康奈尔阻止两项法案，其中一项是提供7.75亿美元以“加强选举安全”，同时要求对郡内投出的每一张选票进行实物书面记录；第二项是强制要求党派候选人、其工作人员及其家属，如果有任何外国政府提供协助，必须通知FBI。
 
-“很明显，这项要求并非一个认真的制定法律的努力。显然，如此党派化的事情，在众议院仅得到共和党单独一张投票的情况下，是不会通过参议院一致同意的。”麦康奈尔在参议院说，他拒绝对这些法案进行表决。
+依此标准，马克龙夫人布丽吉特首先被隔离。总统夫人办公室称，截至目前，布丽吉特“未出现任何新冠病征”。就在12月15日，布丽吉特在前往巴黎圣路易医院儿科部慰问时已经做了核酸检测，当时结果为阴性。**周四傍晚，布丽吉特最新核酸检测结果仍为阴性。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17152518/03.png)布丽吉特1953年生人，今年67岁，按法国公共卫生局的标准，算是中共病毒的高风险人群
+此外，总理卡斯泰作为总统马克龙的密接者之一，也已开始隔离。马提尼翁宫方面表示，总理未出现任何病症，周四早上的核酸检测结果呈阴性，按规定，卡斯泰还将在7天后进行二次检测。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17152659/04.png)这是卡斯泰总理第二次作为确诊患者“密接者”进行隔离，上一次是9月初接触了环法自行车赛总监普鲁多姆。（法新社图）
+除了第一夫人和总理，法国总统府秘书长科莱（Alexis Kohler）以及多名顾问也被算作是马克龙的密接者。
+此外，**马克龙本周内就举行了三顿工作餐会（！）**，还在各种活动中接触了这些人：
 
-然而，在前一年，代表多猫腻投票系统和选举系统以及软件的多名说客向麦康奈尔竞选团队捐赠数千美元，这两家公司合计占全美国投票机的80%左右。
+**12月16日周三**，**会见葡萄牙总理科斯塔（Antonio Costa）**
 
-2019年为多猫腻游说的说客大卫·科恩（David Cohen）和布莱恩·威尔德（Brian Wild），两人均为布朗斯坦·海特·法伯·施雷克（Brownstein Hyatt Farber Schreck）的说客，分别向麦康奈尔的竞选基金捐赠2000美元和1000美元。并且在同一时间，曾为ES&S游说的艾米莉·柯林（Emily Kirlin）和珍·奥尔森（Jen Olson）也分别捐赠1000美元。
+科斯塔总理办公室今天发表声明说，**周三会见马克龙后返葡还不到24小时的科斯塔已自主隔离，并取消了职务上的行程。**目前他尚无症状，正等候今天稍早接受检测的结果出炉。
 
-有趣的是，这些捐款都发生在2020年3月份，当时冠状病毒大流行首次蔓延至美国，邮寄投票几乎成为2020年选举的必然结果。
+**召开疫情特别会议和部长会议。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17153022/05.png)
+爱丽舍宫强调，参加本周三国防会议的部长不属于密接者，因为大家在开会时严格遵守了防疫措（戴口罩、安全距离）。图为11月12日举行的部长会议。（法新社图）
+与法国国民议会议长费朗（Richard Ferrand）、执政党“共和国前进党”党团领袖卡斯塔内（Christophe Castaner）和弗朗索瓦·白鲁（François Bayrou）**举行晚餐会**。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/q3QK9h1Gf6Nab/images/c590102a-9491-4ae0-937c-7a25e41df135.jpg?asset_id=f19e0942-5d22-4c3a-ad67-6c8d5950c7d1&amp;img_etag=%22ff3481657e89c1c95eca69f8e294fad4%22&amp;size=3107)](https://spark.adobe.com/page/q3QK9h1Gf6Nab/images/c590102a-9491-4ae0-937c-7a25e41df135.jpg?asset_id=f19e0942-5d22-4c3a-ad67-6c8d5950c7d1&amp;img_etag=%22ff3481657e89c1c95eca69f8e294fad4%22&amp;size=1024)
+**12月15日周二**
 
-闪回：“参议院多数党领袖米奇·麦康奈尔压制了两项旨在确保投票安全的法案…”
+与国会议长费朗、议会联络事务部长费斯诺（Marc Fesneau），以及国会各党团领袖**举行午餐会**，其中包括：社会党（PS）党团领袖Valérie Rabault、“行动”党团领袖贝什（Olivier Becht）、极左“不屈的法兰西”党魁梅朗雄、法共议会党团领袖沙塞涅André Chassaigne、共和党议会党团主席阿巴德（Damien Abad）等。据法媒透露，**周二的午餐会全程未开窗透风。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17153310/06.png)梅朗雄周四表示，当时他坐得离总统非常远，“有10米、20米远”，（梅朗雄吐槽自己坐的是“穷人”的位子），所以不能算密接者，因此无意隔离。图为梅朗雄周四发推特称，自己核酸检测结果为阴性。
+**12月14日周一**
 
-在接受这家外国公司说客的\*数千美元\*后，麦康奈尔扼杀了一项本可以打击多猫腻的投票安全法案。https://t.co/MmedjAojM7
+**出席气候问题公民咨询委员会（CCC）代表大会。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17153453/07.png)14日，马克龙在公民咨询委员会（CCC）代表大会上。（推特截图）
+- **出席经合组织成立60周年仪式，**期间接触了：**欧洲理事会主席米歇尔（Charles Michel）**
 
-– 凯尔·贝克尔（Kyle Becker）@kylenabecker 2020年12月15日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17153841/09.png)Barend Leyts发推特说，米歇尔15日的定期筛检结果呈现阴性，并且法国官方也告知其“不属于密者”
+，但米歇尔仍决定从今天开始隔离。图为本周一米歇尔与马克龙会面时互相问候。（法新社图）
+**西班牙首相桑切斯（Pedro Sanchez），将自主隔离至12月24日；**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17154008/10-2.png)12月14日，马克龙出席经合组织成立60周年仪式，并在位于巴黎的经合组织总部与西班牙首相桑切斯、经合组织秘书长古里亚共同为60周年纪念牌匾揭幕。（法新社图）
+**欧委会主席冯德莱恩（Ursula Von der Leyen）；**
 
-![]()![](https://spark.adobe.com/page/q3QK9h1Gf6Nab/images/6f255f49-3543-4ca8-b089-f990bd05ed01.jpg?asset_id=d31fb613-347c-4b60-ba97-d37f50a9b329&amp;img_etag=%22cc0a59a0885b620a28297e638daa59c8%22&amp;size=2560)
+**经合组织秘书长古里亚（Angel Gurría）。**
 
-重磅新闻：米奇·麦康奈尔接受来自多猫腻的资金，压制两项选民安全法案。https://t.co/bntzOB3KFL
+欧委会主席冯德莱恩（Ursula Von der Leyen）与经合组织秘书长古里亚（Angel Gurría）曾在本周一在爱丽舍宫与马克龙共进午餐。**但欧盟执委会发言人17日指出，法国当局认为，当时两人的会面并不属于密切接触，因此冯德莱恩“无意自主隔离”。**
+此外，**比利时首相亚历山大·德克鲁（Alexander De Croo）因上周四与马克龙会面，也于今天开始自主隔离**，直至核酸检测结果出炉。
 
-– 美国第一川普总统（当选总统）@ChiefTrumpster 2020年12月15日
-
-麦康奈尔周二赞扬了总统选举的过程和结果，并似乎与副总统拜登结盟。“美国人在今年大选中进行投票。从那时起，法律和宪法程序持续发挥作用，”麦康奈尔说。“截止今天上午，我们国家正式产生一位当选总统和一位当选副总统。”
-
-参议院多数党领袖没有提及目前正在进行的曝光在选举中缺乏诚信的任何诉讼，也没有提及有争议的州提供的几份候补选举人名单。“我们的政府体系有决定谁将在1月20日宣誓就职的程序，选举团已经宣布。”麦康奈尔补充道。“所以今天我要祝贺当选总统乔·拜登。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/q3QK9h1Gf6Nab/images/88bb3e67-d954-48da-91f0-62b3e64855f4.jpg?asset_id=f7a8e422-54f5-4c6b-85b0-3e4862655cd4&amp;img_etag=%22ab789e5eb18d0eee3fa3f14139c25f54%22&amp;size=2560)](https://spark.adobe.com/page/q3QK9h1Gf6Nab/images/88bb3e67-d954-48da-91f0-62b3e64855f4.jpg?asset_id=f7a8e422-54f5-4c6b-85b0-3e4862655cd4&amp;img_etag=%22ab789e5eb18d0eee3fa3f14139c25f54%22&amp;size=1024)
-
-感谢参与，@DonBlankenship. #WVSen
-
-[https://t.co/TV1ETgQdmu](https://t.co/TV1ETgQdmu)
-
-– 米奇团队（给米奇发信息至47360）@Team\_Mitch 2018年5月19日
-
-《国家档案》（National File）11月报道，川普的长期盟友兼好友罗杰·斯通说，“这个国家100%的投票机和投票系统都在使用与多猫腻一直在使用的转换选票相同的软件。”斯通称，这款名为“选举卫士”的软件是微软在比尔·盖茨本人授意下创作的。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/q3QK9h1Gf6Nab/images/a1d2a111-e210-4624-9b33-3e4f8f74f9fc.jpg?asset_id=adf485d4-8176-4cf1-a9e7-d87ff8e4ffca&amp;img_etag=%2229fa668aadc297348d1abc1dd104c61c%22&amp;size=3428)](https://spark.adobe.com/page/q3QK9h1Gf6Nab/images/a1d2a111-e210-4624-9b33-3e4f8f74f9fc.jpg?asset_id=adf485d4-8176-4cf1-a9e7-d87ff8e4ffca&amp;img_etag=%2229fa668aadc297348d1abc1dd104c61c%22&amp;size=1024)
-
-罗杰·斯通透露2020年选票的大规模操纵者：就是比尔·盖茨@BillGates。
-
-[https://t.co/NiiT9qpkUt](https://t.co/NiiT9qpkUt)
-
-– 恩里克·亚历杭德罗（Enrique Alejandro）@EnriqueAleTV 2020年11月21日
-
-[原文链接](https://nationalfile.com/dominion-lobbyists-paid-mcconnell-thousands-before-he-crushed-election-integrity-bills-ignored-election-contests/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/q3QK9h1Gf6Nab/)
-
-![]()![](https://spark.adobe.com/page/q3QK9h1Gf6Nab/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)
+文贵先生有说， 美国的国家利益一直都是在欧洲!!!现在一个法国总统确诊，连带着葡萄牙总理、西班牙首相、比利时首相、欧洲理事会主席全部隔离……
 
 0

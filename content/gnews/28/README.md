@@ -1,28 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻快讯】“差别化入户”施行广州掀起“抢人潮”，意为带动消费？
-` XMLYG777` [轉載自GNews](https://gnews.org/zh-hans/660522/)
+## 林伍德发布生平最重要推文
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/660601/)
 
-内新闻/素材：鹰(文言) 封面：麦田67号 校对：雅典娜的圣斗士(沙加)
+- 编辑：Victor Torres
 
-澎湃网12月15日报道，中共广州市发布《广州市差别化入户市内迁移管理办法（公开征求意见稿）》，放宽下辖7个行政区的户籍迁入限制。
 
-1、满足以下条件的可将户籍迁入广州市：拥有全日制本科学历或学士学位、或全日制大专学历、或全日制技师学院预备技师班、高级工班毕业者；年龄不超过28周岁；在规定的7个行政区（白云区、黄埔区、花都区、番禺区、南沙区、从化区和增城区）内连续缴纳社保满12个月。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-2、差别化入户人员在本市没有合法住宅房屋的，户籍为人力资源市场集体户口或工作单位集体户口或政府公共集体户口。入户广州市后，若在7个行政区内缴纳社保满12个月但不满3年的，仅限在上述区域购置合法住宅并将户口迁至住宅房屋地址；若入户后在7个行政区内缴纳社保满3年的，可在全市购置房屋并在全市范围内办理户口迁移。
-
-综上，所谓的“差别化入户”除了吸收外来高学历人口外，其规定的缴纳社保满12个月也可增加当地社保“收入”，同时28岁的年龄上限也将带动当地的消费。即广州市以“一纸空文”——户籍这张纸，就带来了大量青年人口劳动力和购房消费市场以及社保收入，《意见稿》中对户籍迁移的规定也佐证了“入户是假、社保填充和购置房屋为真”这一目的。
-
-今年11月越南通过了《居住法修正案》，正式废除户籍制度，现今全世界只有中共和朝鲜依旧执行万恶的户籍制。中共掌权以来，通过土改将土地变成“国有”，更将农民划分阶级（地主、富农、中农、贫农、工人）；其后利用阶级斗争分而治之，在大跃进三年饥荒期间，户籍制度逼迫老百姓饿死在自家土地上；近年来更是利用户籍限制以学区房、城镇化等方式驱赶人民为后代教育苦苦挣扎。小小的一个本儿成了中共屡试不爽的镰刀，可以肆意的盘剥敛夺人民财富，并将财富家族化、个人化，所以在墙内人民越发觉醒并起来反抗后，户口簿这一狠毒的制度必将跟随中共化为乌有。
-
-文章仅代本表本人个人观点。
-
-新闻来源：
-[https://www.thepaper.cn/newsDetail\_forward\_10422892
-https://new.qq.com/rain/a/20201216A0FD8D00](https://www.thepaper.cn/newsDetail_forward_10422892
-https://new.qq.com/rain/a/20201216A0FD8D00)
+**西班牙2020年12月17日电/西喜社——**林伍德大律师周四发推要求反川普的腐败法官辞职，他说:
+“这可能是我一生中最重要的推文。”
+“首席大法官约翰·罗伯茨（John Roberts）腐败，应立即辞职。 斯蒂芬·布雷耶（Stephen Breyer）法官也应立即辞职。”
+林伍德称他们是“反川普者”，致力于防止公众知道川普总统连任的真相。
 
 
 
-1+
+> This may be most important tweet of my life.
+> 
+> Chief Justice John Roberts is corrupt & should resign immediately. Justice Stephen Breyer should also resign immediately.
+> 
+> They are “anti-Trumpers” dedicated to preventing public from knowing TRUTH of [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) re-election.
+> — Lin Wood (@LLinWood) [December 17, 2020](https://twitter.com/LLinWood/status/1339635670017445888?ref_src=twsrc%5Etfw)
+
+
+
+3+
