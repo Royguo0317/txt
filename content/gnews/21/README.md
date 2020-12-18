@@ -1,31 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发重磅：凯瑟琳·赫里奇报道，国家情报局局长约翰·拉特克利夫确认 &#8220;中共、伊朗和俄罗斯在11月进行选举干预
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/661689/)
+## 美中双方军事安全对话通道彻底关闭武装冲突风险陡然升级
+` 快慢机` [轉載自GNews](https://gnews.org/zh-hans/661720/)
 
-英听校：     康州盘古农场 – Mike Li
+内军事：快慢机
 
-翻译：    康州盘古农场 – Mike Li
+中共党媒“人民海军权威发布”于当地时间17日就美中军事安全对话通道关闭一事，刊发了中共海军新闻发言人刘文胜大校的答记者问相关内容。刘文胜一开始便宣称这完全是美方颠倒黑白、混淆视听的把戏，是美方没有遵守双方基本共识，责任完全在于美方。中共此种新闻发布会的开场白，几乎场场如出一辙，给人一种既熟悉又乏味的陈词滥调之感。
 
-翻译终校：康州盘古农场 – 烟波浩淼
+美军印太司令部可不是中共的“口炮外交部”，满嘴跑火车信口开河！作为印太防区的核心指挥机构，对外界的讯息公布都是会经过层级安全审核才能通过的。美军本次给出的解释及其简明扼要，最后一次机会给你中共了，你却装大尾巴狼不当回事。那就没有再继续沟通对话的必要。需要动手才能解决的问题靠嘴谈已经根本不切实际了。
 
-字幕+视频制作：康州盘古农场-武汉生化病毒
+美军印太司令部是西太平洋防区的指挥中枢，这次直截了当的彻底关闭了美中军事安全对话通道，已用实际行动向中共表明，接下来在南中国海、台湾海峡、东海以及黄/渤海等诸多争议性水域，美军将把一切中共军方的挑衅动作视为高风险等级军事威胁的准战争行为，美军将会第一时间作出强烈回击反应。这也意味着美中双方的军事对峙更加有随时擦枪走火的可能。如今在南中国海战备巡弋的“马辛岛”号两栖打击集群，极有可能会在不久后闪电执行“南海72小时军事强拆”打击任务。
 
-审片**：**康州盘古农场-Truemanman
-
-哥伦比亚广播公司记者凯瑟琳·赫里奇周三报道说，国家情报局局长约翰·拉特克利夫告诉哥伦比亚广播公司，”中共、伊朗和俄罗斯在11月进行选举干预”。
-
-
-[https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17231619/KE32%E4%BA%A7%E5%93%8111.mp4](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17231619/KE32%E4%BA%A7%E5%93%8111.mp4)
-
-
-原文链接：
-
-
-
-> [BREAKING: Catherine Herridge Reports DNI John Ratcliffe Confirmed “There Was Foreign Election Interference by China, Iran, Russia in November” (VIDEO)](https://www.thegatewaypundit.com/2020/12/breaking-catherine-herridge-reports-dni-john-ratcliffe-confirmed-foreign-election-interference-china-iran-russia-november-video/)
-
-
-
-1+
+0

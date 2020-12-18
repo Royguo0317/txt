@@ -1,35 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统的战争
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/661314/)
+## 【林伍德律师推文1217】-最高法院的腐败
+` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/661405/)
 
-撰稿：人文综合部教育组
-审稿：Yumi
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17201110/Screen-Shot-2020-12-18-at-12.09.18-pm.png)图片来源 NBC News
-12月3日以来，我们以中国式思考，怀着紧张的心情，总希望川普总统采取雷霆手段立即获得胜利。结果在一次次挫败中感受到一次次的失望。在不同的文化下，我们所想、所说的都是我们自己。我们只能以自己能理解的方式来思考，我们的思维方式跟美国人的思维方式完全不同。
+当日西德尼-鲍威尔律师发推文称，
 
-川普总统怀着对神的信仰，年轻时就提出，当必须有人出来拯救美国的时候，他会参选美国总统。他一直观察美国的现实，他当然清楚美国需要怎样的改变。而且当需要他站出来的时候，并不是简单的“赢”就能够解决美国的问题的。四年的总统经历更加让他清醒认识到“小赢”不算赢，他要真正清理美国的沼泽地。
+“最高法院的电子申请系统显示，我们在乔治亚州和密歇根州的紧急请愿书有备案，但进展缓慢，州政府回应截止日期是1月14日！今天它最终上交了我们对亚利桑那州和威斯康星州在周五提交的紧急请愿书，但被（最高法院）无情地拒绝了。
 
-美国的信仰、宪法和法律体系的伟大在于，它的预见性及自我改进和修复的能力。这让川普总统得以在美国现有的法律体系下，一步步围绕巨大的沼泽地布局他的意图。他依照美国法律一步步向美国人揭示沼泽地中的罪恶及美国所面临的巨大风险，从而给美国人民上了一堂生动的加深对邪恶和黑暗认识的认知课。将美国甚至整个西方社会意识从“傻白甜”整体转变为能够洞察黑暗本质的智慧社会。
+林伍德律师对此回推说，“我想很多人今天都知道了为什么最高法院要拒绝寻求公平审查的请愿书。罗伯茨（John Roberts）和布雷耶(Stephen Breyer)是 “反川者”，他们应该立即辞职。罗伯茨有其他理由辞职。他是（法官）办公室和国家的耻辱。”
 
-美国此战一胜利，就会将地球文明世代以来无洞察力的轮回给超越，地球文明立即获得升华。因为它补全了人类对邪恶和黑暗的洞察力——智慧是有洞察力的爱。
+林伍德律师今日早些时候的推文称，
 
-在新时代运动的知识中，亚特兰蒂斯时代，以亚特兰蒂斯文明为最高代表的人类，取得的心灵和科技上的成就远高于当代。然而，在对黑暗的认识水平上却不高。因此，当黑暗势力入侵的时候，整个亚特兰蒂斯文明败下阵来。现在，地球文明再次来到相同的境地，以美国文明为最高代表的人类，再次面对邪恶和黑暗，人类再次面对生死存亡的选择。
+“我对最高大法官罗伯茨在艾普斯坦（Jeffrey Epstein）私人飞机飞行记录一直有疑问。 我怀疑（他就）是我们的首席大法官。主流媒体没有任何兴趣去调查问题、寻找真相。
 
-川普总统战斗到现在，世界人民都已经洞察了邪恶和黑暗的力量。此时，当补全了洞察力，爱的力量是否能够跟得上，这将决定本世代人类文明的命运。
+“美国现在有权知道答案。
+
+“每一个谎言都会被揭穿。
+
+“祈祷吧。”
+
+林伍德律师的另外一则推文写道，
+
+“腐败和欺骗已经侵入了我们国家最有权力的办公室—美国最高法院首席大法官。
+
+“这是我们国家的悲哀，但也是我们必须醒悟和面对真相的一天。
+
+“罗伯茨就是最高法院没有对选举案件采取行动的原因。其他人也有涉案。”
 
 
 
-**这不是川普一个人的战争，这是整个人类文明跳出轮回之战！**
-
-本文纯属个人观点
-
+> I think many are today learning why SCOTUS is rejecting petitions seeking FAIR review. Roberts & Breyer are “anti-Trumpers” They should resign immediately. CJ Roberts has other reasons to resign. He is a disgrace to office & to country.[@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw)[@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) [https://t.co/KvjihiLvLT](https://t.co/KvjihiLvLT)
+> — Lin Wood (@LLinWood) [December 17, 2020](https://twitter.com/LLinWood/status/1339674878996148224?ref_src=twsrc%5Etfw)
 
 
-澳喜文章:[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
 
-欢迎加入澳喜农场：
-[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17200511/hm-4.jpg)
-1+
+
+
+> I have long had questions about “the John Roberts” on Jeffrey Epstein private jet flight logs. I suspected it was our Chief Justice. MSM has shown no interest in investigating issue to find TRUTH.
+> 
+> America is now entitled to know the answer.
+> 
+> Every lie will be revealed.
+> 
+> Pray.
+> — Lin Wood (@LLinWood) [December 17, 2020](https://twitter.com/LLinWood/status/1339640105800089600?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Corruption & deceit have reached most powerful office in our country – the Chief Justice of U.S. Supreme Court.
+> 
+> This is a sad day for our country but a day on which we must wake up & face the truth.
+> 
+> Roberts is reason that SCOTUS has not acted on election cases. Others involved.
+> — Lin Wood (@LLinWood) [December 17, 2020](https://twitter.com/LLinWood/status/1339639287827062796?ref_src=twsrc%5Etfw)
+
+
+
+新闻素材和图片来自林伍德律师推特
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17195020/Wenya-Logo-5.png)
+
+
+
+0

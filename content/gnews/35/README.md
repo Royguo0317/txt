@@ -1,70 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1217】-最高法院的腐败
-` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/661405/)
+## “滑稽”的美国大选-曲线中取得终局胜利
+` GM77` [轉載自GNews](https://gnews.org/zh-hans/661490/)
 
-当日西德尼-鲍威尔律师发推文称，
+编撰：peacelv； 审核：WLQF
 
-“最高法院的电子申请系统显示，我们在乔治亚州和密歇根州的紧急请愿书有备案，但进展缓慢，州政府回应截止日期是1月14日！今天它最终上交了我们对亚利桑那州和威斯康星州在周五提交的紧急请愿书，但被（最高法院）无情地拒绝了。
+**12****月14日郭先生GTV直播摘要：「**亲爱的兄弟姐妹们。咱们之前爆料革命说了，14号15号，尤其15号很重要。这个大事牵动着每个人的心，文贵在27天之前就告诉大家，滑稽的结果，严格来讲，从这个周末从高院开始，才从滑到稽了，刚开始。接下来18号，然后是20几号，然后到1月6号。如果在这个中间，没有在其他州司法和欺诈选票选举有巨大的一个翻转的话。结果可能是，到了1月6日，可能是谁当总统呢？由南西佩洛西当总统。记得文贵说过吗？参议院众议院，南西佩洛西当临时总统。然后这个事情会继续往下选举，经过以后，再争夺来，最后欺诈选举被确定，然后参众两院再最后共同选举总统副总统，然后最后川普赢。也不排除，1月6号，或者是15号，宣布拜登当总统。但是这事一直到1月6号有争执不确定对方不认，各出诉讼。到达1月6号由南西佩洛西当总统，最后还是川普当总统。很有可能，百分之十二的可能，到达2021年2月份。2020年的年底，你知道这结果了，2021年1月份南西佩洛西就上去了，到2021年2月份，川普总统才过渡当总统。参众两院共同重新选举以后任命总统副总统，这时副总统很关健，可能就到2月份不一定，文贵从来没说过，今天跟大家说一下，所以说，这才叫美国大选，在这之前，对共产党的事情是最不确定的。」
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17205414/%E6%88%AA%E5%B1%8F2020-12-18-%E4%B8%8A%E5%8D%889.53.08.png)
+根据文贵先生直播内容,在1月20日前大选结果不到最后一秒都不会揭晓,另外需要重点关注两位副总统,在1月6日,彭斯作为参议院议长在参议院表决中当支持反对票数相同时可投下关键性的一票。
 
-林伍德律师对此回推说，“我想很多人今天都知道了为什么最高法院要拒绝寻求公平审查的请愿书。罗伯茨（John Roberts）和布雷耶(Stephen Breyer)是 “反川者”，他们应该立即辞职。罗伯茨有其他理由辞职。他是（法官）办公室和国家的耻辱。”
+那在1月20日谜底揭晓前,同时会在各州和最高院进行司法战,以及情报战,这些也最终会影响到立法会最终对总统选举挑战的情况.日前六个摇摆州的诉讼案也正在进行中,德州发起的对摇摆州结果的挑战失败而引发大规模游行,由此可见民意认可大选舞弊的情况存在,但是沼泽中鳄鱼的力量不可能放弃手中的利益。**由日前「美国大选被外国操控干涉报告」的延迟发布可以预见司法战和情报战的激烈程度**,沼泽中的鳄鱼当然也会采取各种措施。
 
-林伍德律师今日早些时候的推文称，
+在12月14日郭先生GTV直播摘要中,文贵先生提到还有三个渠道可对大选结果进行改变。**一、****如果说，各方最后确定，这是由外国势力干涉美国总统选举**；证据确凿，而且还来自于某国，或者是共产党中南坑。那随时就是斩首行动，或者全面战争都是随时的事情。这个是不管谁当总统都挡不住。另外一个，就是从今天开始起，司法部长已经退休了，新的司法部长上来，对拜登家族全面调查。在这个中间，如果说，有什么组织，给美国提供了更铁的证据，那调查可能会有突发性的进展。这个时候那是有抓人的可能。然后会废除选举，废除选举以后，一是认定川普总统作为当选人；**二、到参众两院去，在这之前，特别检察官经过调查之后，对拜登家族施行一个废选欺诈选举。**但案子调查需要一个很长的时间。在这个过程当中，废除的选举是可能的，定罪需要一两年。**另一个王炸，军队行动了，采取战时紧急命令。这三条都可以用。**
 
-“我对最高大法官罗伯茨在艾普斯坦（Jeffrey Epstein）私人飞机飞行记录一直有疑问。 我怀疑（他就）是我们的首席大法官。主流媒体没有任何兴趣去调查问题、寻找真相。
+现在其中两条线都在进行中。另外鲍威尔律师以及川普律师团队对摇摆州的选举结果的法律诉讼也在紧张进行中。
 
-“美国现在有权知道答案。
+因为2020总统投票结果将会递交至首都华盛顿，在1月6日由现任副总统彭斯（Mike Pence）主持的国会联席会议中被正式点算。虽然选举团之前的投票非常重要，但认证发生在1月6日，在那之前，总统川普有权利寻求他想要追求的法律补救途径，并（让大众）听取他的意见。编者认为1月6日是（今年选举的）关键日期。”参议员霍利话中指的是定于2021年1月6日召开的国会联席会议，届时将统计各州的选举人票。
 
-“每一个谎言都会被揭穿。
+根据国会规则，任何联邦参众议员都可以在联席会议期间共同对某州的选举人票提出异议，使国会两院进行全体投票，决定是否接受该州提交的选举人票，之后参众两院将对此进行辩论，辩论时间将限制在两个小时内结束。
 
-“祈祷吧。”
+这个过程可能会导致一些选票作废，如果两位候选人都拿不到270张选举人票，国会将进行第二投票系统，那1月6日就会由佩罗西进行代理总统,而后由众议院各州代表团在1月20日进行第二投票，川普有可能因此赢得下一任期。
 
-林伍德律师的另外一则推文写道，
+目前，至少有四名联邦众议员或当选议员承诺在联席会议期间反对摇摆州的选举人票，三名参议员对此做法持开放态度，不排除在1月6日会挑战选举结果。
 
-“腐败和欺骗已经侵入了我们国家最有权力的办公室—美国最高法院首席大法官。
+浩浩荡荡,民意不可违,如文贵先生所说,坚信美国式的民主政治最终会取得胜利,川普总统会赢得最终的胜利,入主白宫。
 
-“这是我们国家的悲哀，但也是我们必须醒悟和面对真相的一天。
-
-“罗伯茨就是最高法院没有对选举案件采取行动的原因。其他人也有涉案。”
-
-
-
-> I think many are today learning why SCOTUS is rejecting petitions seeking FAIR review. Roberts & Breyer are “anti-Trumpers” They should resign immediately. CJ Roberts has other reasons to resign. He is a disgrace to office & to country.[@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw)[@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) [https://t.co/KvjihiLvLT](https://t.co/KvjihiLvLT)
-> — Lin Wood (@LLinWood) [December 17, 2020](https://twitter.com/LLinWood/status/1339674878996148224?ref_src=twsrc%5Etfw)
+**参考链接:**
 
 
 
-
-
-> I have long had questions about “the John Roberts” on Jeffrey Epstein private jet flight logs. I suspected it was our Chief Justice. MSM has shown no interest in investigating issue to find TRUTH.
-> 
-> America is now entitled to know the answer.
-> 
-> Every lie will be revealed.
-> 
-> Pray.
-> — Lin Wood (@LLinWood) [December 17, 2020](https://twitter.com/LLinWood/status/1339640105800089600?ref_src=twsrc%5Etfw)
+> [12月14日郭先生GTV直播摘要-英喜庄园出品](https://gnews.org/zh-hans/655919/)
 
 
 
-
-
-> Corruption & deceit have reached most powerful office in our country – the Chief Justice of U.S. Supreme Court.
-> 
-> This is a sad day for our country but a day on which we must wake up & face the truth.
-> 
-> Roberts is reason that SCOTUS has not acted on election cases. Others involved.
-> — Lin Wood (@LLinWood) [December 17, 2020](https://twitter.com/LLinWood/status/1339639287827062796?ref_src=twsrc%5Etfw)
-
-
-
-新闻素材和图片来自林伍德律师推特
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17195020/Wenya-Logo-5.png)
-
-
+[https://news.have8.tv/2731716.html](https://news.have8.tv/2731716.html)
 
 0
