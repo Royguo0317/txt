@@ -1,34 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 墙内部分地区限电的真实原因——看中共如何愚民
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/661719/)
+## 【朱利安尼推文1712】-犯罪分子乔拜登绝不能当总统
+` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/661916/)
 
-撰稿：Albus  -gtv
+朱利安尼市長周四的节目纠正了主流媒体一个错误，就是：
 
-审稿：Jenny
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17214445/power-outage-china.jpg)网络截图
-据中共国搜狐等新闻报道，近日湖南、浙江多地出台措施拉闸限电。共匪给出的理由是国外企业受疫情情影响处于关停状态，圣诞新年的前大量高耗能的订单转移到国内。这样国内企业的需要的电量增多；另为保障空气好而减少煤炭的用量；共匪同时在墙內宣传俄罗斯限制对中共的送电以转移矛盾，实际上俄罗斯的供电对中共的影响很小。
+“拜登犯罪家族图腾柱的顶端是： 乔‧拜登！
 
-此次限电的真实原因是因为澳洲政府与美国正义力量一同揭露疫情的真相。中共要制裁澳大利亚，停止从澳大利亚进口优质煤炭。对于以火电为主的中共国供电系统，停止从澳大利亚进口后供电的压力非常大，所以出台了这样的措施。
-
-共匪的新闻就要反的去看。中共最擅长的就是洗脑和与那愚弄国内的百姓，且全然不顾寒冬里瑟瑟发抖的墙内韭菜的死活。
-
-相信共产党跑步进入火葬场。对于即将到来的热战、疫情、粮荒、通胀，墙内的华人即将会面临严重的生存危机;墙外的华人则可能因共匪的投放病毒引起的疫情，引起其他文明世界的排斥和敌对。
-
-海内外的华人，你做好准备了吗？如果你还相信他们所谓的报道，那么雪崩到来的时候没有一片雪花是无辜的，也不可能独善其身！
-
-个人观点仅供参考。
-
-引用的内容的出处
-
-[https://www.sohu.com/a/438723053\_313745](https://www.sohu.com/a/438723053_313745)
+“主流媒体试图将所犯的罪行推到亨特-拜登身上。不能让他们逍遥法外!”
 
 
 
-> 禁止澳洲煤进口，发电厂煤炭紧张，动力煤价格飙升，导致限电，为了掩盖这个问题，大力鼓吹俄罗斯停止供电的消息。实际上买俄罗斯电只不过是找个由头给点钱给俄罗斯罢了，对整体供电没有影响。
-> — 曾畅 (@f1Fce4BQgUnJoFo) [December 16, 2020](https://twitter.com/f1Fce4BQgUnJoFo/status/1339151158359719936?ref_src=twsrc%5Etfw)
+> The top of the BIDEN CRIME FAMILY totem pole: Joe Biden!
+> 
+> The MSM is attempting to push the crimes committed off on Hunter Biden. Don’t let them get away with it!
+> 
+> Rudy Giuliani breaks it down here: [https://t.co/DqqxcvdgXb](https://t.co/DqqxcvdgXb) [pic.twitter.com/H80c26nUdF](https://t.co/H80c26nUdF)
+> — Rudy W. Giuliani (@RudyGiuliani) [December 16, 2020](https://twitter.com/RudyGiuliani/status/1339350926021292034?ref_src=twsrc%5Etfw)
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16050459/%E6%BE%B3%E5%96%9C%E4%BA%8C%E7%BB%B4%E7%A0%81-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16050431/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%87-1.jpg)
-1+
+
+朱利安尼先生继续发推称：
+
+“乔拜登是30年RICO法案间谍的头号人物，亨特只是替罪羊。” 推文同时引用了硬盘门曝光的亨特的信，表明乔拜登才是这个家庭里真正贪婪和罪恶的元凶。
+
+
+
+> Joe is the top of the 30 year Rico conspiracy. Hunter is the scapegoat. [pic.twitter.com/m0xPSSSrcs](https://t.co/m0xPSSSrcs)
+> — Rudy W. Giuliani (@RudyGiuliani) [December 18, 2020](https://twitter.com/RudyGiuliani/status/1339817748562665473?ref_src=twsrc%5Etfw)
+
+
+
+在亨特拜登硬盘门的海量证据和民意面前，一些主流媒体不得不面对拜登家族与中共勾兑卖国犯罪的事实，然而仍在力保乔拜登，顾左右而言他，转移矛盾到亨特拜登。殊不知如果不是亨特的副总统父亲乔拜登在位，而其实权早已在当时奥巴马总统之上，怎会出现如此惊天卖国大案、置国家安危于不顾，将中共这个诈骗小怪兽姑息并放养成今天的邪恶巨兽？乔拜登的犯罪事实绝不能被转移，中共这一罪恶的根源绝不能被弱化。
+
+
+
+新闻素材和图片来源于朱利安尼推文和爆料革命战友
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17195020/Wenya-Logo-5.png)
+
+0

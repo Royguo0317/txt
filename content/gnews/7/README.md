@@ -1,15 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评】12.09 【精华版粤语配音】： 福林将军曾隶属美国黄牌82空降师 该将有重要行动
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/662422/)
+## 每日重要Twitter播报（中文）12/16期
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/662633/)
 
-制作单位：战友之家-粤语组
-制作团队：阿恩、哥阿，麻辣汤
+撰稿记者:CYC文颖、本来、尘凡3、石頭
+校对:Magician文心
+播音:愛明州（文根根）
+剪辑：喜马拉雅2020
 
-
-
-摘要：
-福林将军曾经就在82空降师服役，绝对的美国英雄。 82空降师说面对委内瑞拉他们已经完全准备好活捉，活捉才有可能来验证美国的完全的正义，接下来活捉中共习近平也有绝对可能性，。美国真正的强大是，不仅要把你抓了，还要绳之以法。
+[每日重要推文12-16\_PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18065523/12-16_Done_1-converted.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18065523/12-16_Done_1-converted.pdf)
 
 0

@@ -1,142 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》深度解析：美国务院火力全开直指中共
-` GM141` [轉載自GNews](https://gnews.org/zh-hans/661613/)
+## 真实世界中的“神盾局”：“回形针计划” 的始末
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/661856/)
 
-视频来源：
+撰稿：喜妈 三只松鼠
 
-1. [https://www.youtube.com/watch?v=00CKdcx6vmw](https://www.youtube.com/watch?v=00CKdcx6vmw)
-2. [https://www.youtube.com/watch?v=Wh6nIz5Bl3Q](https://www.youtube.com/watch?v=Wh6nIz5Bl3Q)
-3. [https://www.youtube.com/watch?v=7ZIvMbyE5as](https://www.youtube.com/watch?v=7ZIvMbyE5as)
+审稿：Jenny
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18005906/IMG_5281.jpg)截图自bilibili.com
+漫威迷应该都知道，“神盾局特工”和他们所执行的回形针行动。而这一点，却是有真实原型的。探索世界格局中，笔者认为今日世界脱胎于历史与过往。也就是说，我们要弄清楚一些今天的现实问题，就有必要对曾经和既往进行回溯。本文对“回形针计划”的探索溯源，就是希望通过介绍此项行动，让很多朋友了解爆料革命与当今美国和整个世界关系，也可以对人们能更好理解在此之间的某些现实关键点有所帮助。
 
+首先，什么是“回形针计划”？“回形针计划”也被称为“回形针行动”（Operation Paperclip), 它是第二次世界大战结束前，由美国情报机构所进行的一项规划。目的是将即将战败的德国的科学家、工程师、和高级技术人员秘密地引入美国。这里面有很多都是非常重要和著名的人物，包括有火箭研究团队、航空航天研究团队、建筑精英、电子学专家团队、材料学专家、物理学专家和情报人员等。
 
+第二，这个计划从1945年到1990年一直都在执行。说到底，这个计划就是美国抢人才，争夺纳粹德国科学家的人才规划。当时的德国举全国之力，形成了在国际上一流的火箭技术、喷气发动机、制导导弹等先进的武器装备和技术团队。盟军曾经在这些方面吃了大亏，面临了很大的挑战；因此在德国面对明显的败局下，美国和其他西方联盟国家都在抢夺德国的技术人才。曾经这个计划叫做“云遮雾绕工程”；但由于这个计划受到美国国内声音的反对，而改为“回形针计划”。
 
+第三，根本上，“回形针计划”的存在就是服务于利益。本来，美军有规定不能和战争罪犯打交道；而几乎所有的“回形针计划”所涉及的人员都和纳粹党有关系；甚至有些人还有被追究战争罪的嫌疑。可是，为了让这些人服务于美国的利益，美国政府有专人负责替这些人抹去那些不太光明的历史，并把相关人员的家属子女都在美国妥善安置。事实上，该计划其实就是避实就虚，绕过了那些道德规则，目的就是想让美国在这个历史的机遇下，抢夺到发展的先机。据统计，截至1990年，“回形针计划”共从德国收揽1800名科技人员，创造了价值100亿美元的专利和科技贡献。也是这个计划，形成了美国在美苏两国几十年的冷战期间强大的竞争优势，这当中，包括了“阿波罗登月计划”等。
 
-《路德时评》2020年12月17日晚间节目主要内容：
+在明白了“回形针计划”的基本历史源流之后，我们知道：美国当今的领先科技，其中就有这些承前继后的缘由。简言之，资本主义，就是有资本有利益就有主义。不论是技术还是资本，根本上都是服从于利益。“回形针计划”帮助美国更加先进和强大，本质上就是利益跨越了道德和正义。因此，我们就可以更好地理解当下的邪共统治和当今的国际格局。
 
-一、美国国务院火力全开直指中共
+当我们今天站在爆料革命队伍中，将灭除邪共作为己任，我们深感这个与邪共勾连在一起的黑暗利益集团多么复杂。与此同时，我们因为灭共的正义方向汇流于世界人民正义需求，以至于成为了和美国2020年大选酣战之际，美国之外重要的呼应力量。爆料革命因为正义而站在了世界的潮头，并成为与世界密切相关的部分。世界正义经由爆料革命之所以能够团结一致，就是因为各国各民族都在感受到黑暗的利益共同体已经危急整个人类的生存。
 
-美国国务院12月18日发推[1]：中国共产党构成了真正的威胁。我们希望中国以我们要求其他国家参与的方式参与世界舞台。
+我们必须清楚一点，技术、资本本身都是不存在邪与正。重要的是这些技术和资本到底掌握在什么人的手上。确切地说，如果技术和资本为正义所用，那么就会扶残就弱，畅行光明；而当技术和资本为邪恶所用，那么，就会成为恶魔帮凶，黑暗打手。正如我们揭示邪共的丑陋，很多技术用于对百姓的残害，也是基于执行人的道德沦丧与缺失。美国当今的乱局和很多无底线的科技精英、金融骄子能够和邪恶站在一起，本质上和“回形针计划”的当初规划是一个道理。也就是说，我们需要明白，凡事都要有一个基本底线，再好的技术，再有用的资本力量，服务于恶魔，就是付之流水，最终只会对人类产生更大的冲击和伤害。
 
+作者相关文章链接： [召唤恶魔就会为恶魔所用：从**“**乌云行动**”**到**“**回形针计划**”**](http://召唤恶魔就会为恶魔所用：从“乌云行动”到“回形针计划”)
 
 
 
+> [召唤恶魔就会为恶魔所用：从“乌云行动”到“回形针计划”](https://gnews.org/zh-hans/661837/)
 
-> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): The Chinese Communist Party poses a real threat. We want China to engage on the world stage the way we ask every other nation to. [pic.twitter.com/mQ7bHnXES1](https://t.co/mQ7bHnXES1)
-> — Department of State (@StateDept) [December 17, 2020](https://twitter.com/StateDept/status/1339526199794675712?ref_src=twsrc%5Etfw)
 
 
+本文纯属个人观点
 
+澳喜文章[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
 
-
-随后，国务院再次发推[2]：中国共产党对美国国家安全的威胁延伸到我们的金融市场，并影响了美国投资者。了解流入主要指数的资金如何支持参与军事生产和侵犯人权行为的中国公司：
-
-
-
-
-
-> The Chinese Communist Party’s threat to American national security extends into our financial markets and impacts U.S. investors. Learn how money flowing into major indices supports Chinese companies involved in military production and human rights abuses: [https://t.co/ahxkGBFpjL](https://t.co/ahxkGBFpjL)
-> — Department of State (@StateDept) [December 17, 2020](https://twitter.com/StateDept/status/1339560255580205059?ref_src=twsrc%5Etfw)
-
-
-
-
-
-两小时后，再次发推[3]：为了维护我们的自由社会，我们的繁荣和我们的未来，我们必须共同努力，唤醒北大西洋公约组织应对中共国的挑战。
-
-
-
-
-
-> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): We have to work together to continue the Transatlantic awakening to the China challenge, in the interest of preserving our free societies, our prosperity, and our future. [pic.twitter.com/fLYIHemPUk](https://t.co/fLYIHemPUk)
-> — Department of State (@StateDept) [December 17, 2020](https://twitter.com/StateDept/status/1339586746393063425?ref_src=twsrc%5Etfw)
-
-
-
-
-
-两小时后，又再次发推[4]：中国共产党想要我们拥有的一切，它竭尽所能地从窃取我们的东西到迫使中共批评家保持沉默。
-
-
-
-
-
-> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): The Chinese Communist Party wants what we have, and it’ll do whatever it takes to get it, from stealing our stuff to pressuring critics of the CCP to keep quiet. [pic.twitter.com/W5wetXzQBf](https://t.co/W5wetXzQBf)
-> — Department of State (@StateDept) [December 17, 2020](https://twitter.com/StateDept/status/1339617671420268547?ref_src=twsrc%5Etfw)
-
-
-
-
-
-路德社评论如下：
-
-- 国务院连续多次发推直指中共对世界构成重大威胁，同时又希望中国按其他国家一样参与世界舞台，可以看出美国国务院有意将中共与中国分开；
-
-
-- 国务院也提及要唤醒北大西洋公约组织应对中共的威胁，这都在为接下来一系列行动做准备；
-
-
-- 这几十年，中共利用创造的财富加强权力的控制，这财富是从中国百姓手中掠夺而来，是从世界人民手中欺骗来的，他们利用高科技对百姓进行压迫，习的一系列行为已经表明他的意图；
-
-
-- 从国务院发推内容可以看出，彭佩奥国务卿已经和北约达成行动协议，同时也细数了中共危害自由、人权、网络安全、美国金融、军事安全和美国国家主权安全的种种罪行。
-
-
-
-
-二、中共解放军爽约中美海空军事安全对话
-
-美国印太司令部12月16日发文[5]：解放军（PLA）拒绝参加原定于2020年12月14日至16日举行的与美国印度太平洋司令部举行的海空军事安全对话，中国解放军单方面未提前通知就爽约，一定是中共高层下达禁止参会命令。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17223336/%E5%86%9B%E4%BA%8B%E5%AF%B9%E8%AF%9D.jpg)[图片地址](https://media.defense.gov/2020/Dec/16/2002553415/-1/-1/0/201214-N-XC372-0104.JPG)
-
-
-路德社评论：
-
-- 此次对话称为“MMCA”，是中美双方在1998年共同签署一项定期举行军方对话会议，旨在加强海上和空中安全，降低两军误伤等风险展开一系列对话；
-
-
-- 中共军方单方面缺席该会，意味着双方军事对话通道关闭，再加上中共在南海的种种违反国际法的行为，双方擦枪走火的可能性大大提高；
-
-
-- 中共爽约此次对话极有可能是想拖延时间，避免谈及南海违建岛礁问题，他们想等待拜登上任后再展开对话。
-
-
-
-
-三、纳瓦罗发布36页报告揭露美国大选舞弊
-
-《大纪元》12月18日报导[6]：美国白宫贸易与产业顾问纳瓦罗（Peter Navarro）周四（12月17日）发布题为“完美欺诈：选举违规的六大关键层面”的分析报告，揭示美国2020总统大选中六个摇摆州的异常表现。报告共36页，对近期公开的选举违规证据进行了审查和分析，并评估和确定了六个关键战场州存在的主要选举违规行为指控。这六个关键战场州分别是：亚利桑那州、乔治亚州、密歇根州、内华达州、宾夕法尼亚州和威斯康星州。选举违规行为概括为六个层面，包括：直接的选民舞弊、选票处理不当、有争议的程序犯规、违反平等保护条款、投票机违规和重大统计异常。
-
-路德社评论：
-
-- 该报告是纳瓦罗在Warroom平台发布的个人报告，并非代表白宫；
-
-
-- 纳瓦罗曾任职于某名校经济学教授，有极高的学术素养，他在报告中汇总了六个州大选舞弊的信息，提供了一系列数据和图表，还有论点、论据和最终结论，该报告是以学术文献的形式发表，与媒体报导大相径庭；
-
-
-- 这份报告具有独特的学术报告框架，不但可以永久保存，未来其他学术机构或个人撰写学术报告时，还可以对该报告进行引用。
-
-
-
-
-
-
-参考文章：
-
-[1]https://twitter.com/StateDept/status/1339526199794675712
-
-[2]https://twitter.com/StateDept/status/1339560255580205059
-
-[3]https://twitter.com/StateDept/status/1339586746393063425
-
-[4]https://twitter.com/StateDept/status/1339617671420268547
-
-[5]https://www.pacom.mil/Media/News/News-Article-View/Article/2449543/pla-a-no-show-for-operational-maritime-and-aviation-safety-dialogue/#.X9uAoSjEdNA.twitter
-
-[6]https://www.epochtimes.com/gb/20/12/17/n12628200.htm
-
-文章撰写：【重生】   编辑：【GM141】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14081816/%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%95%86%E6%A0%87.png)
-1+
+欢迎加入澳喜农场：[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16050431/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%87-1.jpg)
+0

@@ -1,51 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 间谍长这样喔？
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/658738/)
+## 川普总统等政要推特整理（12.14-12.15）
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/662398/)
 
-作者：Yumi
-两天前中共国女间谍方芳（Fang Fang，又称Christina Fang被指控渗透美国政坛与国会，其中加州民主党籍众议员、情报委员会成员史沃威尔（Eric Swalwell）更作为色诱的目标。根据美媒《Axios》长达一年多的调查，要求匿名的多名情报官员及美国政府人员指出，方芳与至少2名市长交往约3年。在FBI监控方芳的房间时，直击她与2民选官员发生性关系，1名俄亥俄州的市长更在车上与她进行性行为。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17035510/spy.jpg)图片来源 Axios
-不禁想知道西方人如何看这事。分享一位称海怪艺术农场的推文对这新闻的反应史沃威尔众议员是一个被中国政府设下诱饵上钩为中国和华尔街服务的完美例子。他接触这女间谍开始大力的推动宣传俄罗斯对美国的威胁比中国大的假新闻和大外宣。这样的明显炒作的方法再也不能起作用了。
+来源：川普彭斯等政要–直譯 ；整理：文侦1776；编辑：桂花酒；审核：海阔天空；Page：赞赞
 
+[!\[\]()!\[\](https://spark.adobe.com/page/5xE2NVd8Ok2oX/images/d2a346e9-8edc-4fcc-b728-2d5c5190e4e5.jpg?asset_id=03f429c3-0a66-458e-ac23-71427f6c565a&amp;img_etag=%221f9d060cd43ac322e1ca203c644d49d2%22&amp;size=2560)](https://spark.adobe.com/page/5xE2NVd8Ok2oX/images/d2a346e9-8edc-4fcc-b728-2d5c5190e4e5.jpg?asset_id=03f429c3-0a66-458e-ac23-71427f6c565a&amp;img_etag=%221f9d060cd43ac322e1ca203c644d49d2%22&amp;size=1024)
 
+朱利安尼（12月14日）：
 
-> 🤡🇨🇳Eric Stalwell is a perfect example of a SHILL FOR CHYNA & WALL STREET. He goes on the Fake News & serves them both by pushing the propaganda narrative that Russia is more of a danger than Chyna
-> 🙄It’s a pathetically obvious method of manipulation that’s not working anymore [pic.twitter.com/VMWiDLUY3a](https://t.co/VMWiDLUY3a)
-> — 🇺🇸KrakenArtsFarm🇺🇸 (@hppyjesusfreak) [December 11, 2020](https://twitter.com/hppyjesusfreak/status/1337441249582714880?ref_src=twsrc%5Etfw)
+不要让他们把这些都推到亨特头上。“老板”是乔·拜登。三十年来，他得到了这些非法巨款的50%。全部都在硬盘里的书面文档中。我得到了它。
 
+朱利安尼（12月14日）：
 
-图片来源twitter 
-这让人想起前几年有一部李安翻拍张爱玲小说的色戒。共惨党色诱在腐化在纷纷扰扰你妤我诈国家安全中。特务和间谍似乎就像带着炸弹的人肉炸弹带着任务骗取敌方的国安机密，借着用床边耳语，性爱，摸索人性的弱点一步一步的吞食猎物。共产党也就是知道人性般的渗透政商关系的国安决定或是破坏。
+我们在倾听人民！我们在为人民而战！我们要真相和公义！
 
-此时令人不禁好奇分别新闻中的特务和间谍的差别。在前一阵子被人拿来讨论在八卦区写道相信一般人想特务就是穿着紧身衣在红色雷射光中扭腰摆臀飞来飞去的偷名单拿去卖。话题被热烈讨论如『特务腰穿紧身衣，间谍不一定。女的常常不穿衣服』，特务要做间谍不用做的事情，间谍是执行外国任务，特务是国内机关对付国人。一个情深一个可以治国。「李安的色戒有看过吗？女间谍通常比较能干」。也有专业一点的分析，『间谍就是出卖与背叛』。『双标，我国派的叫特务，敌国来的叫间谍』, 『特务是agent ,间谍叫spy』 .经典的有『特务是国家养的狗，间谍是各种组织都有的卧底』。网友更是总结说基本上工作内容差不多，但特务还有暗杀工作，间谍主偷资料。沸沸扬扬的讨论后看看外交关系的冰点，也透露美方早就警觉了。
-从最近国务院的对千人计划等中国全球间谍活动，据自由时报报导美国中央情报局（CIA）反间谍部门前主任奥尔森（James M. Olson）接受外媒专访时提出紧告中国情报机关正透过外国学生及专业人员在社群媒体上的资讯，实施针对性谍报行动。看来美国慢慢醒来了。
+林伍德（12月14日）：
 
-（本文纯属个人观点）
+中共和几千名美国公民一起合作，试图窃取2020年的总统大选和次级选举。塞尔维亚、加拿大、委内瑞拉、古巴、CIA、乔治·索罗斯、比尔·盖茨、拜登、克林顿基金会以及许多国家和地方的两党官员都参与其中。
 
-原文连结：
-美国媒体报道中国女间谍方芳曾活跃于美国政界色诱官员现已逃回中国[https://rfi.my/6vQf](https://rfi.my/6vQf)
+林伍德（12月14日）：
 
-拆穿中国技俩！CIA前高官曝这两族群最易受中谍报机构吸收
-https://news.ltn.com.tw/news/world/breakingnews/3351466
+正是共产党人/全球主义者/深层政府试图抹去那些历史将打败他们。看看美国的记录吧，中共/索罗斯/中情局。美国会为自由而战，美国会胜利。你找错了战斗的对象。
 
-Exclusive: Suspected Chinese spy targeted California politicians
-[https://www.ptt.cc/bbs/Gossiping/M.1591000124.A.3DC.html](https://www.ptt.cc/bbs/Gossiping/M.1591000124.A.3DC.html)
+林伍德（12月14日）：
 
-After entanglement with Chinese spy, Eric Swalwell warned of ‘influx of Russians’ inUS politics under Trump
-[https://www.foxnews.com/politics/eric-swalwell-chinese-spy-influx-of-russians](https://www.foxnews.com/politics/eric-swalwell-chinese-spy-influx-of-russians)
+中共的共产主义渗透是世界性的，包括英国、美国和乔治亚州。反间谍部门在美国不调查中共，反而浪费时间监视川普总统、弗林将军和Carter Page。2021年，美国和乔治亚的官员将会进监狱。
 
-间谍特务差在哪里
-[https://www.ptt.cc/bbs/Gossiping/M.1591000124.A.3DC.html](https://www.ptt.cc/bbs/Gossiping/M.1591000124.A.3DC.html)
+林伍德（12月14日）：
 
+我们的国家正处在一个十字路口。我们是一个法治国家还是一个无法无天的国家？如果美国最高法院不暂缓选举团，@realDonaldTrump川普总统应当遵守他的誓言，实施部分戒严。总统有责任确保我们的法律得到执行。
 
+川普总统（12月15日）：
 
-澳喜文章:[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+这是个大新闻。多猫腻（Dominion）投票机是遍布全国的灾难。改变了一场压倒性（胜利）大选的结果。不能再让它发生。感谢法官的杰出、勇敢和爱国。（他）应该获得勋章！（转推-密歇根州Dominion投票机的司法鉴定报告。某县有33％的选票是通过电子方式从川普转换到拜登。电子转换和清除数据）
 
-欢迎加入澳喜农场：
-[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16044512/IMG_3537-1-715x720-1-1.jpg)
+川普总统（12月15日）：
+
+刚刚在白宫与司法部长比尔·巴尔(Bill Barr) 进行了非常愉快的会面。 我们的关系一直很好，他做得很出色！ 如信中所说，比尔将在圣诞节前离开，好与他的家人一起度过这个假期……司法部副部长杰夫·罗森 (Jeff Rosen)，一个出类拔萃的人，将成为代理司法部长。 备受尊敬的理查德·多诺休 (Richard Donoghue)将接任司法部f副部长的职务。 谢谢你们所有人！ （附巴尔的辞职信）
+
+参议员玛莎·布莱克本（12月15日）：
+
+#中共 的记录显示，中共国间谍已经渗透了我们的公司和我们在国外的领事馆。这些间谍需要立即清除。【转链接文章文章来自Foxnews，主要是借200万中共党员名单泄露之事发酵 #中共 对西方渗透的威胁】
+
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/5xE2NVd8Ok2oX/)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/5xE2NVd8Ok2oX/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/5xE2NVd8Ok2oX/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
 
 
 0
