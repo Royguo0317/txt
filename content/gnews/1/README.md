@@ -1,32 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/17日康州农场前沿观察: 被污名的羟氯喹
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/661663/)
+## 【林伍德律师推文1217】-川普确保大选正直的选项
+` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/661863/)
 
-播音：县搭县
-撰文：文法了得
-视频：Buzz文珂、银龙
-编辑：1984文姝
-图片素材：沧海一粟、海媚
-审片：皮亚纳
-审核：Truemanman
+当日林伍德律师转推一则新闻称，
+
+“弗林将军具有战士般准备战斗的战略头脑。
+
+“我们人民很幸运能从他的智慧和经验中受益。
+
+“川普总统做出自己的决定，因为他是我们的总统。但他会倾听和考虑可靠的建议。”
 
 
 
-“这不是政府没有重视，对羟氯喹造成的过失和渎职，这是学术上的渎职！”一位医生在12月8日美国参议院关于羟氯喹听证会上的发言证词时说道。他对顶级医学期刊 《新英格兰内科医学杂志》和《柳叶刀》上发布的针对羟氯喹的虚假论文造成的恐慌提出了严厉的批评。“因此，学术医学是在行骗，我认为他们正在犯下反人类罪。”他对比了美国与印度的每百万人的死亡数，发现早期使用了羟氯喹的印度的死亡率远低于美国。他还以自己的长期医疗经验反驳了“羟氯喹会对心脏病造成巨大副作用的学术恐吓”。这位医生的公开证词，从侧面佐证了天使科学家闫博士关于使用羟氯喹预防和治疗CCP病毒的建议的有效性。
-自从CCP病毒在全球肆虐，大多数国家实施封城时，世界知名药厂为了各自利益，罔顾人道主义，联合堕落媒体、医学界妄图掩盖廉价的羟氯喹真实疗效的真相。然而，他们没有想到会不断有勇敢的人站出来呼吁和传播羟氯喹的真相。从墨博士、闫博士，到美国教授泽伦科（Dr.Zelenko）,再到法国教授拉乌尔特的团队，他们一直在为羟氯喹作为廉价且可居家治疗的药物而呼吁。川普总统也曾在推特中大力推荐。到目前为止，已经有很多国家开始重视并应用羟氯喹用于早期的预防和治疗。
-“NO ONE CAN STOP TRUTH！”闫丽梦博士在推特上大声疾呼。请传播真相，为羟氯喹正名，这不仅是治病的需要，更是正义的需要！
-康州盘古农场报道
+> Gen. Flynn [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) has strategic mind of warrior preparing for battle.
+> 
+> We The People are fortunate to have benefit of his wisdom & experience.[@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) makes his own decisions as he is our President. But he listens & considers solid advice.[https://t.co/6Y3PTtGYrb](https://t.co/6Y3PTtGYrb)
+> — Lin Wood (@LLinWood) [December 18, 2020](https://twitter.com/LLinWood/status/1339800343660560384?ref_src=twsrc%5Etfw)
 
-素材来源：
-12.08美国参议院关于羟氯喹的听证会视频
-[https://twitter.com/G\_Translators6/status/1338297343779725312](https://twitter.com/G_Translators6/status/1338297343779725312)
 
-闫博士12.15推特
-[https://twitter.com/DrLiMengYAN1/status/1338878600251105280](https://twitter.com/DrLiMengYAN1/status/1338878600251105280)
 
-川普03.21推特
-[https://twitter.com/realDonaldTrump/status/1241367239900778501](https://twitter.com/realDonaldTrump/status/1241367239900778501)
+被转推的新闻是迈克尔-弗林将军在接受Newsmax电视台采访的讲话，内容大体如下。
 
+前国家安全顾问迈克尔-弗林说，唐纳德-川普总统可以选择确保2020年大选的正直性，包括在全国各地查封投票机，并使用军事能力在摇摆州重新举行选举。
+
+”我不知道他是否会采取这些选择。总统必须为每一个可能发生的情况做计划，因为我们不能允许这次选举和我们选举的完整性以这种方式进行，’’弗林将军周四在参见Newsmax 电视的Greg Kelly Reports节目时说。
+
+现在（选举被操控）完全不能令人满意。我们绝对不能如此进展。
+
+川普总统“可以根据他的命令，立即在全国各地扣押每一台这些机器。他还可以下令，在摇摆州内，如果他愿意，可以采取军事能力，他可以把它们放在这些州，基本上在每个州重新举行选举。弗林补充说：”这并非史无前例。
+
+五角大楼本月早些时候解雇了9名国防商业委员会成员，取而代之的是11项新的任命，其中包括川普的忠诚者Corey Lewandowski和David Bossie。另一位被任命者Scott O’Grady在Twitter上分享了阴谋论，称总统输给乔-拜登就是”政变’。他还表示赞同戒严法。
+
+弗林说，这个概念并不新鲜。
+
+”这些人在那里谈论戒严法，就像我们从来没有做过的事情一样，”弗林告诉凯利。”戒严法已经实行了64次。我没有要求这样做。我们有一个宪法程序。…… 这必须被遵循。但我会告诉你，我有点担心最高法院的首席大法官约翰-罗伯茨。我们不能对美国宪法的结构进行愚弄”。
+
+川普上个月赦免了他的前国家安全顾问弗林将军，结束了长达一年的通俄调查起诉，弗林两次向FBI认罪撒谎。与最近的大选结果一样，总统称通俄调查是一场旷日持久的骗局。
+
+新闻素材和图片来自林伍德律师推特
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17195020/Wenya-Logo-5.png)
 0
