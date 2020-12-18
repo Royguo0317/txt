@@ -1,44 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1217】-川普确保大选正直的选项
-` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/661863/)
+## 中国多地电力供应出现紧张
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/661961/)
 
-当日林伍德律师转推一则新闻称，
+作者：Evalu
 
-“弗林将军具有战士般准备战斗的战略头脑。
+校对：卡拉马佐夫姐姐
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18015555/1-140.png)
+图片来源
 
-“我们人民很幸运能从他的智慧和经验中受益。
+据多家中文媒体报道，浙江、湖南、内蒙、江西等多地已经开始陆续发布有关限电的通知，称由于近期“电力部门的压力和电力紧缺”，要求从即日起至年底，所有加工厂全部停止生产，政府机关也被要求气温在3度以上不得开空调。目前正值冬季取暖用电高峰，发生电力短缺，对民众生活与生产将造成很大的影响。
 
-“川普总统做出自己的决定，因为他是我们的总统。但他会倾听和考虑可靠的建议。”
+屋漏偏逢连夜雨，近日俄罗斯电企InterRAO突然宣布，在今年冬季，公司可能大幅减少或完全停止向中共国供电。俄罗斯的电力供应是我国北方地区的一个重要来源，值此冬季寒冷季节却要停止向中共国供电，再次表明两国间的“友谊”并不是像中共所描述的那样美好。
 
+更糟糕的是，这件事又正好发生在中共政府为了向澳大利亚施压，用抵制煤炭进口以报复澳大利亚对中共的强硬立场。中共国从原本长期从澳大利亚进口优质煤炭，从之前几个月开始，中共国对澳大利亚的煤炭进口就采取不明确的限制措施，直至11月6日终止向澳大利亚购买优质煤炭，转而不得不向其他国家购买低质煤炭，这导致环境污染更加严重，而现在又显示出了大范围电力供应不足，可见中共政府为共产党的利益，完全可以出卖人民的利益。
 
+**点评：**中共政府为了达到其全球战略目标，企图利用中共国这个巨大的市场作为筹码来控制外国政府，但澳大利亚政府没有屈服，尽力在阻止中共的进一步渗透， 为此，中共政府不顾国际自由贸易原则，公然于上月终止向澳大利亚进口包括煤炭在内的七种物品，可能是造成中共国多地出现电力供应不足的一个重要原因，严重影响民众的生活和工作。这一示例再次显示中共政府完全是不顾人民，也是不顾国际关系公约的流氓政府。
 
-> Gen. Flynn [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) has strategic mind of warrior preparing for battle.
-> 
-> We The People are fortunate to have benefit of his wisdom & experience.[@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) makes his own decisions as he is our President. But he listens & considers solid advice.[https://t.co/6Y3PTtGYrb](https://t.co/6Y3PTtGYrb)
-> — Lin Wood (@LLinWood) [December 18, 2020](https://twitter.com/LLinWood/status/1339800343660560384?ref_src=twsrc%5Etfw)
+参考链接：[1](https://3g.163.com/dy/article/FTQRT50L0534NAC0.html) [2](https://cn.nytimes.com/asia-pacific/20201217/china-coal-climate-moon-mission-rocks/) [3](https://m.sohu.com/a/438723053_313745/?pvid=000115_3w_a%20%20%20https://finance.ifeng.com/c/82Fl60SZj0o) [4](https://finance.sina.cn/futuremarket/gypzx/2020-12-17/detail-iiznezxs7367897.d.html?from=wap) [5](https://finance.sina.cn/futuremarket/gypzx/2020-12-17/detail-iiznezxs7367897.d.html?from=wap)
 
-
-
-被转推的新闻是迈克尔-弗林将军在接受Newsmax电视台采访的讲话，内容大体如下。
-
-前国家安全顾问迈克尔-弗林说，唐纳德-川普总统可以选择确保2020年大选的正直性，包括在全国各地查封投票机，并使用军事能力在摇摆州重新举行选举。
-
-”我不知道他是否会采取这些选择。总统必须为每一个可能发生的情况做计划，因为我们不能允许这次选举和我们选举的完整性以这种方式进行，’’弗林将军周四在参见Newsmax 电视的Greg Kelly Reports节目时说。
-
-现在（选举被操控）完全不能令人满意。我们绝对不能如此进展。
-
-川普总统“可以根据他的命令，立即在全国各地扣押每一台这些机器。他还可以下令，在摇摆州内，如果他愿意，可以采取军事能力，他可以把它们放在这些州，基本上在每个州重新举行选举。弗林补充说：”这并非史无前例。
-
-五角大楼本月早些时候解雇了9名国防商业委员会成员，取而代之的是11项新的任命，其中包括川普的忠诚者Corey Lewandowski和David Bossie。另一位被任命者Scott O’Grady在Twitter上分享了阴谋论，称总统输给乔-拜登就是”政变’。他还表示赞同戒严法。
-
-弗林说，这个概念并不新鲜。
-
-”这些人在那里谈论戒严法，就像我们从来没有做过的事情一样，”弗林告诉凯利。”戒严法已经实行了64次。我没有要求这样做。我们有一个宪法程序。…… 这必须被遵循。但我会告诉你，我有点担心最高法院的首席大法官约翰-罗伯茨。我们不能对美国宪法的结构进行愚弄”。
-
-川普上个月赦免了他的前国家安全顾问弗林将军，结束了长达一年的通俄调查起诉，弗林两次向FBI认罪撒谎。与最近的大选结果一样，总统称通俄调查是一场旷日持久的骗局。
-
-新闻素材和图片来自林伍德律师推特
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17195020/Wenya-Logo-5.png)
 0

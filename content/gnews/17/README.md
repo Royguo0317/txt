@@ -1,31 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共的绞肉机在逐渐吞噬的世界
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/662394/)
+## 每日重要Twitter播报（中文）12/16期
+` GM62` [轉載自GNews](https://gnews.org/zh-hans/662633/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18052716/Screen-Shot-2020-12-18-at-9.26.05-pm.png)图片来源:环球网
-路透巴黎12月17日 法国总统马克龙新冠检测阳性 
-撰稿: 悉尼澳喜农场-Jim 大叔
+撰稿记者:CYC文颖、本来、尘凡3、石頭
+校对:Magician文心
+播音:愛明州（文根根）
+剪辑：喜马拉雅2020
 
-审稿：Yumi
-
-中共的体制不仅仅在墙内吞噬着每个人的鲜血，如果你在光鲜的时候可以呼风唤雨， 每个人都感觉是人生巅峰，只是那个绞肉机的刀片没有转到你的身上而已，一旦轮到你 后，就像是王建，叶简明，徐明等等这些大佬一样，死的都是最悲催的。 随着中共把病毒成功的投放到全球各个地方后，全球经济都暂停了摇摆，这个让中共 对控制世界的野心更加有信心了。对于那些跟中共沆瀣一气的帮凶国家在这次“第三方次世 界大战”中都付出了多少代价。
-
-在病毒初期，伊朗，意大利，英国，法国等国，这些被中共国抓着小鸡鸡的国家，都 让本国人民付出了惨痛的代价，多少无辜的生命被 CCP 病毒夺走了生命。 后面随着美国的大选，中共通过他们多年布局的暗势力，对川普团队进行定点投毒， 川普的竞选团队的关键核心成员，先后中招，中共的邪恶程度，让人膛目结舌。他们不仅 仅对正义的力量进行打压，还对他们控制的帮凶逐一进行时刻性命威胁。开始的英国首相 约翰逊中招感染，到现在法国总统马克龙中招感染，期间马克龙参加国欧洲峰会，这个明 细是 CCP 直指欧洲各国领导人，如果不听话的，随时让你生命结束。
-
-我们坚信在爆料革命和郭先生的带领下，正义和真相会大白于天下，邪恶终将被终 结，让我们一起行动起来，传播真相。否则中共的绞肉机会让全世界人民都处于危险之 中，永远生活在恐怖的笼罩下。为了光明和自由，我们必须战斗到底。
-
-本文纯属个人观点
-
-原文连结:
-法国总统马克龙新冠检测阳性 将隔离七日https://www.reuters.com/article/france-covid-macron-positive-1217-idCNKBS28R1CE
-
-澳喜文章:[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
-
-欢迎加入澳喜农场：
-[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18054100/hm-8.jpg)
-
+[每日重要推文12-16\_PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18065523/12-16_Done_1-converted.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18065523/12-16_Done_1-converted.pdf)
 
 0

@@ -1,45 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【朱利安尼推文1712】-犯罪分子乔拜登绝不能当总统
-` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/661916/)
+## 【热点播报】湄公大坝监测：美国开始破局中共国对湄公河下游国家的控制和威胁
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/662108/)
 
-朱利安尼市長周四的节目纠正了主流媒体一个错误，就是：
+作者：香草山写作组 程万里 校对/发稿：飞虹
 
-“拜登犯罪家族图腾柱的顶端是： 乔‧拜登！
-
-“主流媒体试图将所犯的罪行推到亨特-拜登身上。不能让他们逍遥法外!”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14092131/GNEW-GTV-MOS-LOGO-2.jpg)
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18025633/13-1.png)
+北京时间2020年12月18日美国驻华使领馆在推特上发布信息：新的“湄公大坝监测” 项目是面向公众开放的工具，它将大幅增加这一流域可获得的水文数据，将信息交到那些最需要它们的人们手中。这些人需要这些信息来做出关系生计和地区安全的知情决定。美国长久以来支持湄公河流域社区对提高水文数据可及性的呼声。美国国务院近日资助的“湄公大坝监测”计划，利用卫星数据监控中国和其他国家的水坝水位，计划于14日启动。
 
-> The top of the BIDEN CRIME FAMILY totem pole: Joe Biden!
-> 
-> The MSM is attempting to push the crimes committed off on Hunter Biden. Don’t let them get away with it!
-> 
-> Rudy Giuliani breaks it down here: [https://t.co/DqqxcvdgXb](https://t.co/DqqxcvdgXb) [pic.twitter.com/H80c26nUdF](https://t.co/H80c26nUdF)
-> — Rudy W. Giuliani (@RudyGiuliani) [December 16, 2020](https://twitter.com/RudyGiuliani/status/1339350926021292034?ref_src=twsrc%5Etfw)
+中国外交部对此回应：中方坚决反对恶意的挑拨，将坚定不移地推进澜湄水资源合作，为六国共同应对旱灾。
 
+湄公河，发源于中国西藏高原，在中国境内叫澜沧江，干流全长4180公里，是世界第十二长河流。流经中国西藏、云南省经老挝、缅甸、泰国、柬埔寨和越南，进入南海。卫星数据显示，去年湄公河在泰国的河段，创下 50 多年来最低水位，但上游的中国云南省却还是水量丰沛。
 
-
-朱利安尼先生继续发推称：
-
-“乔拜登是30年RICO法案间谍的头号人物，亨特只是替罪羊。” 推文同时引用了硬盘门曝光的亨特的信，表明乔拜登才是这个家庭里真正贪婪和罪恶的元凶。
+中共国一直通过水资源控制威胁着湄公河下游国家。1986年以来中共国在湄公河上游兴建11个水坝，控制湄公河的水源。今年2月，中国外长王毅曾在第五次澜沧江-湄公河合作（LMC）外长会上表示，中国同样遭受干旱困扰，让水流向下游是中国领导层的慷慨之举，尤其是在新冠疫情爆发之际。而美国水资源监测机构Eyes on Earth 2020年4月在报告中作出结论，位于湄公河上游的中国，以水坝阻控了470亿立方公尺的水量。
 
 
 
-> Joe is the top of the 30 year Rico conspiracy. Hunter is the scapegoat. [pic.twitter.com/m0xPSSSrcs](https://t.co/m0xPSSSrcs)
-> — Rudy W. Giuliani (@RudyGiuliani) [December 18, 2020](https://twitter.com/RudyGiuliani/status/1339817748562665473?ref_src=twsrc%5Etfw)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-
-在亨特拜登硬盘门的海量证据和民意面前，一些主流媒体不得不面对拜登家族与中共勾兑卖国犯罪的事实，然而仍在力保乔拜登，顾左右而言他，转移矛盾到亨特拜登。殊不知如果不是亨特的副总统父亲乔拜登在位，而其实权早已在当时奥巴马总统之上，怎会出现如此惊天卖国大案、置国家安危于不顾，将中共这个诈骗小怪兽姑息并放养成今天的邪恶巨兽？乔拜登的犯罪事实绝不能被转移，中共这一罪恶的根源绝不能被弱化。
-
-
-
-新闻素材和图片来源于朱利安尼推文和爆料革命战友
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17195020/Wenya-Logo-5.png)
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
