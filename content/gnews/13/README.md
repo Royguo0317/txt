@@ -1,65 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家： 要求删除大选数据的密歇根州州务卿在习近平母校向中共学生讲授美国大选细节
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/662085/)
+## 间谍长这样喔？
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/658738/)
 
-翻译：康州盘古农场 – 烟波浩淼
+作者：Yumi
+两天前中共国女间谍方芳（Fang Fang，又称Christina Fang被指控渗透美国政坛与国会，其中加州民主党籍众议员、情报委员会成员史沃威尔（Eric Swalwell）更作为色诱的目标。根据美媒《Axios》长达一年多的调查，要求匿名的多名情报官员及美国政府人员指出，方芳与至少2名市长交往约3年。在FBI监控方芳的房间时，直击她与2民选官员发生性关系，1名俄亥俄州的市长更在车上与她进行性行为。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17035510/spy.jpg)图片来源 Axios
+不禁想知道西方人如何看这事。分享一位称海怪艺术农场的推文对这新闻的反应史沃威尔众议员是一个被中国政府设下诱饵上钩为中国和华尔街服务的完美例子。他接触这女间谍开始大力的推动宣传俄罗斯对美国的威胁比中国大的假新闻和大外宣。这样的明显炒作的方法再也不能起作用了。
 
-校对： 康州盘古农场 – Robensenna
 
-审核：康州盘古农场 –Truemanman
 
-**《国家脉搏》透露，密歇根州州务卿****乔塞****琳·****本****森（Jocelyn Benson）–目前正在努力阻挠调查密歇根州选举结果–与中国的国立大学建立了联系，并为中共培训律师–甚至在中共总书记习近平的母校****举办讲座****。**
+> 🤡🇨🇳Eric Stalwell is a perfect example of a SHILL FOR CHYNA & WALL STREET. He goes on the Fake News & serves them both by pushing the propaganda narrative that Russia is more of a danger than Chyna
+> 🙄It’s a pathetically obvious method of manipulation that’s not working anymore [pic.twitter.com/VMWiDLUY3a](https://t.co/VMWiDLUY3a)
+> — 🇺🇸KrakenArtsFarm🇺🇸 (@hppyjesusfreak) [December 11, 2020](https://twitter.com/hppyjesusfreak/status/1337441249582714880?ref_src=twsrc%5Etfw)
 
-本森在担任密歇根州底特律市韦恩法学院院长期间，承担了协助中共的工作。
 
-本森曾监管着一个被指充斥选举舞弊的州，并告诉县书记员 “销毁某些选举数据和软件”–2013年6月访问中国，她试图争取中共大学的学生到韦恩州立大学法学院（Wayne State University Law School）学习。
+图片来源twitter 
+这让人想起前几年有一部李安翻拍张爱玲小说的色戒。共惨党色诱在腐化在纷纷扰扰你妤我诈国家安全中。特务和间谍似乎就像带着炸弹的人肉炸弹带着任务骗取敌方的国安机密，借着用床边耳语，性爱，摸索人性的弱点一步一步的吞食猎物。共产党也就是知道人性般的渗透政商关系的国安决定或是破坏。
 
-**‘大力宣传’。**
+此时令人不禁好奇分别新闻中的特务和间谍的差别。在前一阵子被人拿来讨论在八卦区写道相信一般人想特务就是穿着紧身衣在红色雷射光中扭腰摆臀飞来飞去的偷名单拿去卖。话题被热烈讨论如『特务腰穿紧身衣，间谍不一定。女的常常不穿衣服』，特务要做间谍不用做的事情，间谍是执行外国任务，特务是国内机关对付国人。一个情深一个可以治国。「李安的色戒有看过吗？女间谍通常比较能干」。也有专业一点的分析，『间谍就是出卖与背叛』。『双标，我国派的叫特务，敌国来的叫间谍』, 『特务是agent ,间谍叫spy』 .经典的有『特务是国家养的狗，间谍是各种组织都有的卧底』。网友更是总结说基本上工作内容差不多，但特务还有暗杀工作，间谍主偷资料。沸沸扬扬的讨论后看看外交关系的冰点，也透露美方早就警觉了。
+从最近国务院的对千人计划等中国全球间谍活动，据自由时报报导美国中央情报局（CIA）反间谍部门前主任奥尔森（James M. Olson）接受外媒专访时提出紧告中国情报机关正透过外国学生及专业人员在社群媒体上的资讯，实施针对性谍报行动。看来美国慢慢醒来了。
 
-韦恩州立大学自己的网站上保留着2013年的新闻稿，该新闻稿将本森与中共联系的努力描述为 “强有力的”。
+（本文纯属个人观点）
 
-“预计在2014年，将有越来越多来自中国的学生到韦恩州立大学法学院学习–这是学校决定提供美国法律硕士学位并大力推广的结果。”
+原文连结：
+美国媒体报道中国女间谍方芳曾活跃于美国政界色诱官员现已逃回中国[https://rfi.my/6vQf](https://rfi.my/6vQf)
 
-本森希望提供可以在中国“参与与美国谈判的政府部门”工作的人，在她位于底特律的大学接受法律培训：
+拆穿中国技俩！CIA前高官曝这两族群最易受中谍报机构吸收
+https://news.ltn.com.tw/news/world/breakingnews/3351466
 
-“韦恩的新的美国法律硕士学位课程 是为其他国家的优秀法律学生设计的。这对于那些寻求在美国从事法律工作的学生、在本国从事跨国法律工作的学生、可能在与美国谈判的政府部门工作，或者打算从事高级学位和事业学者的学生，都将是一个有吸引力的课程。”
+Exclusive: Suspected Chinese spy targeted California politicians
+[https://www.ptt.cc/bbs/Gossiping/M.1591000124.A.3DC.html](https://www.ptt.cc/bbs/Gossiping/M.1591000124.A.3DC.html)
 
-本森形容这次近一周的行程 “非常有成效”，她访问了几所中国的法学院，其中一所–中国政法大学与韦恩法学院建立了合作关系，”包括教授的交流以及新的法律学生来底特律学习美国法律”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18024423/%E5%9B%BE%E7%89%8768.png)本森就美国大选给清华法学系学生做讲座 (2013)
-**阿尔玛·马克思尔。**
+After entanglement with Chinese spy, Eric Swalwell warned of ‘influx of Russians’ inUS politics under Trump
+[https://www.foxnews.com/politics/eric-swalwell-chinese-spy-influx-of-russians](https://www.foxnews.com/politics/eric-swalwell-chinese-spy-influx-of-russians)
 
-本森似乎也曾在中共专制领导人习近平的母校–清华大学讲学。
+间谍特务差在哪里
+[https://www.ptt.cc/bbs/Gossiping/M.1591000124.A.3DC.html](https://www.ptt.cc/bbs/Gossiping/M.1591000124.A.3DC.html)
 
-习近平与该校保持着密切的联系，最近在北京中共人民大会堂会见了该校的顾问委员会。
 
-对 “一群学生和教授谈及《公民联合诉联邦选举委员会》案，以及2009年最高法院在该案中对竞选活动资金和第一修正案权利的裁决 “，本森选择与这所培养中共附庸的学校结缘。
 
-清华大学经济管理学院（TUSEM）是国家资助和控制的机构，其教职员工中有无数的中共党员。该院院长是中国工商银行的常务副行长，该银行由中共所有，资金来自国家财政部。
+澳喜文章:[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
 
-习主席在清华学习了8年，1975年至1979年攻读化学工程专业；1998年至2002年，在他担任中共福建省委副书记期间， “在人文社会科学学院在职研究生班学习马克思主义理论和思想政治教育”。
+欢迎加入澳喜农场：
+[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16044512/IMG_3537-1-715x720-1-1.jpg)
 
-前国防情报局高级情报官员、国务院官员尼古拉斯•埃夫蒂米迪斯称，清华大学还 “在讨论（他们）能为国家安全做些什么时，他们与国家科技和工业管理部门之间有着明显的联系”。
-
-该校甚至对美国政府发起过网络攻击，并与CNN和《纽约时报》等西方机构合作开展 “马克思主义新闻 “项目。
-
-**孔子学院。**
-
-现任密歇根州务卿还到北京的西北政法大学和中央财经大学访问，以招募学生。
-
-大约半年后，本森的雇员、韦恩州立大学法学院副教授保罗•杜宾斯基也同样访问了中国，以增进联系。在与北京师范大学签署谅解备忘录之前，他访问了五所中国国立院校。除了促进韦恩大学在中国招生，该备忘录还为中共聘用的教授在韦恩法学院任教奠定了基础。
-
-“我访问过的中国法学院都非常希望有一名或多名韦恩法学院的教师在那里教授课程。那里的一些初级教师也很有可能来到这里，或许会和韦恩共同教授课程。”
-
-杜宾斯基此行是与韦恩州立大学的孔子学院 “协调 “， 孔子学院是被川普政府盯着的中共资助的宣传网络。
-
-原文作者：拉希姆·卡萨（Raheem Kassa），娜塔莉·温特斯（Natalie Winters）
-
-发布时间：2020年12月17日
-
-原文链接：
-
-[BEIJING BENSON: State Sec Demanding Data Deletion Taught U.S. Election Details to CCP Students at Xi Jinping’s Alma Mater (thenationalpulse.com)](https://thenationalpulse.com/exclusive/benson-michigan-taught-election-law-to-ccp-xi-students/)
 
 0

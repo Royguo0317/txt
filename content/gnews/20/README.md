@@ -1,45 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【朱利安尼推文1712】-犯罪分子乔拜登绝不能当总统
-` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/661916/)
+## 拆掉网络防火墙，国人不做傻爱国者
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/661899/)
 
-朱利安尼市長周四的节目纠正了主流媒体一个错误，就是：
+撰稿：澳喜农场增广贤文
 
-“拜登犯罪家族图腾柱的顶端是： 乔‧拜登！
+审稿：Jenny
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18012605/IMG_5285-1.jpg)澳喜农场森森设计
+2020年12月11日郭先生直播揭露，中共豢养学者以翟东升、李毅、金灿荣、张绍忠为代表聪明和傻的爱国。贼如何欺骗欧美政客，忽悠中南坑老领导的内情。从中可以看出共产党最希望把学者、年轻人洗脑成傻爱国者，让这些人从心里感觉到共产党领导无所不能,中国已经是可以与美国叫板的国家了。这种愚民宣传、洗脑十分危险，年轻人一旦被中共绑上战争的战车，灭共进程中将会造成无数生命的消失。因此让更多墙内的人们知道中共假、丑、恶的真相就显得刻不容缓。
 
-“主流媒体试图将所犯的罪行推到亨特-拜登身上。不能让他们逍遥法外!”
+爆料革命一直揭露共产党以假治国、以骗治国，因为现实是中共国最好混的两种人，一是绝对会撒谎的骗子，这种人有极大生存空间，而且不受惩罚；二是没有任何道德底线、没有任何法律观念的人，像岳文海那样的官员奉行“当官就是又弄钱又弄姑娘；千里做官，为的吃穿”。爆料革命揭露过王岐山和范冰冰、许晴；孙立军和董卿，孟建柱的情人杨澜、王芳；而周永康除了娶了贾晓烨，还有央视情人帮，前几天美国公布制裁的副国级曹建民娶了王小丫；张春贤娶了李修平。笔者发现这么多政法委实权人物和地方大员都喜欢包养最出名的主持人或是演艺明星，这除了满足高官对大众情人的征服欲望之外，再就是他们为自己物色“绝对会撒谎”的基因，双方都是超级会撒谎的人，想必一定会为将来的建筑艺术项目选好“会撒谎”基因。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18013149/IMG_5286.jpg)
+如果这些真相传给墙内更多人，会迅速扒掉共产党虚伪的外衣，灭共会减少很多阻力。中共宣传机器七十年来一直把高级官员描绘成“忘我工作、清正廉洁、不循私情”，实则都是盗国贼、卖国贼、私生子女无数。绑架14亿奴隶同时，盗空国库全都转入私生子女海外账户。只可惜因为中共防火墙的原因，墙内绝大多数同胞一直生活在中共编织的谎言中，对爆料革命内容持怀疑态度或是觉得事不关己。
 
+12月14发生的油管宕机45分钟事件，就可以认为是北约组织拆掉中共防火墙第一枪。希望西方世界在查清中共网络袭击事件之后，迅速拆掉那座防火墙，让墙内同胞都能从GTV、Gnews、盖特获取到真实信息，认识到中共的邪恶和虚假，与新中国联邦和北约一起take down CCP，而不是在共党的脑控下成为冤死的傻爱国者。
 
+本文纯属个人观点
 
-> The top of the BIDEN CRIME FAMILY totem pole: Joe Biden!
-> 
-> The MSM is attempting to push the crimes committed off on Hunter Biden. Don’t let them get away with it!
-> 
-> Rudy Giuliani breaks it down here: [https://t.co/DqqxcvdgXb](https://t.co/DqqxcvdgXb) [pic.twitter.com/H80c26nUdF](https://t.co/H80c26nUdF)
-> — Rudy W. Giuliani (@RudyGiuliani) [December 16, 2020](https://twitter.com/RudyGiuliani/status/1339350926021292034?ref_src=twsrc%5Etfw)
+（本文纯属个人观点）
 
+澳喜文章[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
 
-
-朱利安尼先生继续发推称：
-
-“乔拜登是30年RICO法案间谍的头号人物，亨特只是替罪羊。” 推文同时引用了硬盘门曝光的亨特的信，表明乔拜登才是这个家庭里真正贪婪和罪恶的元凶。
-
-
-
-> Joe is the top of the 30 year Rico conspiracy. Hunter is the scapegoat. [pic.twitter.com/m0xPSSSrcs](https://t.co/m0xPSSSrcs)
-> — Rudy W. Giuliani (@RudyGiuliani) [December 18, 2020](https://twitter.com/RudyGiuliani/status/1339817748562665473?ref_src=twsrc%5Etfw)
-
-
-
-在亨特拜登硬盘门的海量证据和民意面前，一些主流媒体不得不面对拜登家族与中共勾兑卖国犯罪的事实，然而仍在力保乔拜登，顾左右而言他，转移矛盾到亨特拜登。殊不知如果不是亨特的副总统父亲乔拜登在位，而其实权早已在当时奥巴马总统之上，怎会出现如此惊天卖国大案、置国家安危于不顾，将中共这个诈骗小怪兽姑息并放养成今天的邪恶巨兽？乔拜登的犯罪事实绝不能被转移，中共这一罪恶的根源绝不能被弱化。
-
-
-
-新闻素材和图片来源于朱利安尼推文和爆料革命战友
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17195020/Wenya-Logo-5.png)
-
-0
+欢迎加入澳喜农场：[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17030543/hm.jpg)
+1+

@@ -1,17 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【国内观察】中共“治国术”之文字骗局（一）——“总体”
-` HAIKUOTIANKONG` [轉載自GNews](https://gnews.org/zh-hans/662305/)
+## 中共将永远被钉在历史的耻辱柱上
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/662395/)
 
-内新闻/素材：文帝 校对：加文gavin
+作者： Cindy
 
-狂妄的中共要为世界开药方，向世界输出它的治国之策，这股自信源于长久以来对中国人民的成功欺骗。今天我们来扒一扒中共“治国术”之文字骗局——“总体”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18043042/image014.jpg)
-中共各官方机构回应面临的危机与问题，常用一句“总体”平稳或“总体”很好，用“总体”性宣传去模糊问题的本身。举个例子，你感觉物价涨了，中共会洗脑说“物价总体平稳”，你个人只是“总体”之外的局部错觉。如果依照中共的“总体论”，宇宙初始至今，哪有一次“总体”不对的时候？一次就什么都不存在了。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18043042/image014.jpg)
-面对国内外各种各样的问题，只需要告诉你“总体稳定”，就可以消除你个人的困惑。将全社会普遍面临的问题描绘成局部地区的问题或是某些特定人群的问题，将人们拆开，无法形成合力。国家永远向好，至于你个人的生存问题，只是“局部”，不做为“总体”参考。
-中共一贯用政治套话洗脑和毒害国内同胞，墙内民众长期身处其中根本无法察觉。已经觉醒的战友们有责任把这些毒挖出来。
-最后，让我们用中共的套路来总结中共的前途和命运：“中共倒塌总体不可避免”，“中国人民总体不支持中国共产党”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18043046/image0-120.jpg)
+编辑：Jenny
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18041921/Picture1-2-21.png)
+◆美国联邦众议员斯科特佩里在众议院提出法案，要求认定中共为“跨国性有组织犯罪集团”，。这个法案将在近期通过并被川普总统签署。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18042011/Picture4-4.png)
+◆2020年12月12日，林伍德律师说，美国总统川普将宣布：中共用生化武器攻击了我们国家。中共通过干预我们的大选和破坏我们的民主体制，夺走我们的合法选举，进而窃取我们的国家。中共企图侵占我们的土地用来种植粮食，我们绝不能让他们夺走。
+
+◆鲍威尔12月10日接受FOX采访说：中国人在大选前的仅仅四个星期就向Dominion公司投资了4个亿，这是一个非常令人担忧、令人不安的犯罪网。这是中共对美国的“网络珍珠港”袭击！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18042055/Picture5-5.png)
+● 评：中共作恶多端荼毒百姓破坏世界和平地狱之门已为他们打开。颤抖吧！魔鬼！
+
+本文纯属个人观点
+
+澳喜文章: [https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+
+欢迎加入澳喜农场：[discord.com/invite/mBH2fYY](http://discord.com/invite/mBH2fYY)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18034741/hm-7.jpg)
 0
