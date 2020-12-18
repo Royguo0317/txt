@@ -1,44 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 七十年的谎言（一）
-` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/662482/)
+## 林伍德:如果你们继续为中共向我们人民撒谎，我们会解雇你们
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/662760/)
 
-作者：美国纽约七星会农场｜Charline
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18062819/70%E5%B9%B4%E7%9A%84%E8%B0%8E%E8%A8%80-copy.jpg)
-作为被CCP洗脑为”和祖国同生长 ” 的一代，我有幸逃出了“社会主义”的爪牙，来到了欧洲。
+- 编辑：Victor Torres
 
-本以为一切都会改变。没想到华人在海外竟然是一盘散沙。
 
-三年多前，郭文贵先生的出现，彻底改变了我的生活。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-郭先生所说的一切是那样的真实，郭先生所做的事是我们渴望已久的未来。
+**西班牙2020年12月18日电/西喜社——**
 
-多少年的等待，多少次的失望，多少年的向往，多少年的挣扎。
+林伍德周五凌晨发布四连推，引用了圣经内容，来奉劝那些腐败的民选官员说出真相，不要再为中共服务。
+他说“我们人民已经看够，受够了我们政府中的腐败。 够了。
+“我们的民选官员是肮脏的。 他们需要被清理。”
+林伍德为腐败官员提出三点建议:
+（1）遵守上帝的十诫之一-说出真相。
+“你不可对你的邻居作虚假的见证。”
+–出埃及记20:16
+“遵循这个简单的规则将使我们人民焕然一新。 真理将把光带到我们现在的黑暗中”。
+（2）如果你们讲真话，就会受到我们人民的青睐。 你们的回报将是巨大的。
+“执行诫命的人是有福的，因为他们有权拥有生命之树，并可以通过城门进入城市。”
+–启示录22:14
+林伍德还奉劝他们击败中共的金钱。
+（3）如果你们继续为中共的金钱，权力和影响力向我们人民撒谎，那么你们的下场不会好。 我们会解雇你们。
+“没有狗，巫师，皮条客，杀人犯，偶像崇拜者，以及任何热爱谎言的人。”
+–启示录22:15
 
-苍天有灵，给我们带来了神的力量，那就是郭文贵先生。
 
-他说的句句是实话，他做的事件件合理，到位。
 
-“与祖国同生长”的这一代就是最好的见证人。
+> We The People have reached the point where we have seen & experienced enough corruption in OUR government. Enough is always enough. 
+> 
+> Our elected officials are dirty. They need to come clean
+> 
+> Here is some simple advise on how to clean up the mess you have made of our country.
+> — Lin Wood (@LLinWood) [December 18, 2020](https://twitter.com/LLinWood/status/1339823199693938689?ref_src=twsrc%5Etfw)
 
-祖辈的被羞辱，被枪杀，祖业的被掠夺，被占有。父辈的入狱，被强奸。
 
-我们这一代还真有幸被宠为“和祖国同生长”。这一代幸运儿学会了人斗人，撒谎，拍马，学会了叼文凭，叼学位。学会了不脸红。
 
-为什么要脸红呢? 共匪王乞三不是说了吗 : “玩几个女人算啥 ？” 。
-
-难道我们的子子孙孙将拿着这本充满血腥，充满邪恶的历史书一代一代传下去？
-
-现在不用担心了，被篡改的七十历史在爆料革命和新中国联邦带领下将会重新撰写。
-
-我们的子子孙孙将会重新认识什么是真理，什么是正义。什么是和谐，什么是友善。
-
-更多精彩内容请关注：
-
-- [美国纽约七星会农场（为子孙爱七哥）官方推特](https://twitter.com/wzsaqg)
-- [美国纽约七星会农场（为子孙爱七哥）官方GTV号](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
-- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17061916/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-1.jpg)
-0
+2+
