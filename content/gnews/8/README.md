@@ -1,31 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《心灵的力量》读后感
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/662164/)
+## 中共将永远被钉在历史的耻辱柱上
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/662395/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18032829/mind-power.jpg)google 截圖
-作者：太妃糖（文成）
+作者： Cindy
 
-审稿：Yumi
+编辑：Jenny
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18041921/Picture1-2-21.png)
+◆美国联邦众议员斯科特佩里在众议院提出法案，要求认定中共为“跨国性有组织犯罪集团”，。这个法案将在近期通过并被川普总统签署。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18042011/Picture4-4.png)
+◆2020年12月12日，林伍德律师说，美国总统川普将宣布：中共用生化武器攻击了我们国家。中共通过干预我们的大选和破坏我们的民主体制，夺走我们的合法选举，进而窃取我们的国家。中共企图侵占我们的土地用来种植粮食，我们绝不能让他们夺走。
 
-闲暇的时候读毕溯敏《心灵的力量》，这是一部有关思想的书，作者以生活中的点点滴滴来告诉读者：面对人生应采取怎样的态度。
-
-书中有这样一段话：“是的，我很重要。我们每一个人都应该有勇气这样说。我们的地位可能很卑微，我们的身份可能很渺小，但这丝毫不意味着我们不重要。重要并不是伟大的同义词，它是心灵对生命的允诺。”
-
-今天站在历史的转折点，读到这句话尤为感慨。作为一只小蚂蚁，常常觉得自己既无才也无财，特别害怕做错事，其实这就是自我否定。反观文贵先生，在他的字典里找不到“害怕，不可能”这些词。他也常常说“我们不做第一，我们是唯一”“每个战友都很重要”。这就是自我肯定。
-
-只有肯定“我很重要”，才会拥有强大的心灵，才能创造无穷的力量，开发我们无尽的潜能。也能让我们明白不能成天按部就班人云亦云做个老好人。我们要根据自己的喜好发挥自己的特长，在爆料革命的洪流中增加自己的那一抹色彩。
-
-我很重要。是的，我很重要。
+◆鲍威尔12月10日接受FOX采访说：中国人在大选前的仅仅四个星期就向Dominion公司投资了4个亿，这是一个非常令人担忧、令人不安的犯罪网。这是中共对美国的“网络珍珠港”袭击！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18042055/Picture5-5.png)
+● 评：中共作恶多端荼毒百姓破坏世界和平地狱之门已为他们打开。颤抖吧！魔鬼！
 
 本文纯属个人观点
 
-澳喜文章:[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+澳喜文章: [https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
 
-欢迎加入澳喜农场：
-[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18033345/hm-6.jpg)
-
-
+欢迎加入澳喜农场：[discord.com/invite/mBH2fYY](http://discord.com/invite/mBH2fYY)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18034741/hm-7.jpg)
 0

@@ -1,25 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共将永远被钉在历史的耻辱柱上
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/662395/)
+## 马云是“煮熟的鸭子嘴硬?还是玩火者必自焚?!”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/662445/)
 
-作者： Cindy
+- 编辑：神奇四侠
+- 作者：Free monkey
 
-编辑：Jenny
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18041921/Picture1-2-21.png)
-◆美国联邦众议员斯科特佩里在众议院提出法案，要求认定中共为“跨国性有组织犯罪集团”，。这个法案将在近期通过并被川普总统签署。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18042011/Picture4-4.png)
-◆2020年12月12日，林伍德律师说，美国总统川普将宣布：中共用生化武器攻击了我们国家。中共通过干预我们的大选和破坏我们的民主体制，夺走我们的合法选举，进而窃取我们的国家。中共企图侵占我们的土地用来种植粮食，我们绝不能让他们夺走。
 
-◆鲍威尔12月10日接受FOX采访说：中国人在大选前的仅仅四个星期就向Dominion公司投资了4个亿，这是一个非常令人担忧、令人不安的犯罪网。这是中共对美国的“网络珍珠港”袭击！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18042055/Picture5-5.png)
-● 评：中共作恶多端荼毒百姓破坏世界和平地狱之门已为他们打开。颤抖吧！魔鬼！
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-本文纯属个人观点
+**西班牙2020年12月18日电/西喜社——**
 
-澳喜文章: [https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+12月18日下午消息，阿里巴巴表示，有关外媒报道中央联合调查组进驻阿里巴巴一事，纯属谣言。
 
-欢迎加入澳喜农场：[discord.com/invite/mBH2fYY](http://discord.com/invite/mBH2fYY)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18034741/hm-7.jpg)
+**严正声明**
+
+有关外媒报道中央联合调查组进驻阿里巴巴一事，纯属谣言，我们将追究造谣者的责任。
+我们一直认为，阿里巴巴的发展，得益于政府鼓励发展和创新的各种政策，得益于中国这个全球最大的市场。我们相信，监管让平台型企业不仅自身发展好，还能更好地服务于整个社会的可持续健康发展，带来更多百花齐放的创新，这是我们真实的态度和行动原则。
+心怀坦荡地倾听是我们应该有的态度，但是我们绝不能容忍纯粹的捏造，我们也绝不放弃追究造谣者的责任的权利。
+
+阿里巴巴集团2020年12月18日
+
+
+
+
+
 0

@@ -1,34 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 墙内部分地区限电的真实原因——看中共如何愚民
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/661719/)
+## 【热点播报】骇客侵入美国核安全局
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/661821/)
 
-撰稿：Albus  -gtv
+作者：香草山写作组 村北 校对/发稿：飞虹
 
-审稿：Jenny
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17214445/power-outage-china.jpg)网络截图
-据中共国搜狐等新闻报道，近日湖南、浙江多地出台措施拉闸限电。共匪给出的理由是国外企业受疫情情影响处于关停状态，圣诞新年的前大量高耗能的订单转移到国内。这样国内企业的需要的电量增多；另为保障空气好而减少煤炭的用量；共匪同时在墙內宣传俄罗斯限制对中共的送电以转移矛盾，实际上俄罗斯的供电对中共的影响很小。
-
-此次限电的真实原因是因为澳洲政府与美国正义力量一同揭露疫情的真相。中共要制裁澳大利亚，停止从澳大利亚进口优质煤炭。对于以火电为主的中共国供电系统，停止从澳大利亚进口后供电的压力非常大，所以出台了这样的措施。
-
-共匪的新闻就要反的去看。中共最擅长的就是洗脑和与那愚弄国内的百姓，且全然不顾寒冬里瑟瑟发抖的墙内韭菜的死活。
-
-相信共产党跑步进入火葬场。对于即将到来的热战、疫情、粮荒、通胀，墙内的华人即将会面临严重的生存危机;墙外的华人则可能因共匪的投放病毒引起的疫情，引起其他文明世界的排斥和敌对。
-
-海内外的华人，你做好准备了吗？如果你还相信他们所谓的报道，那么雪崩到来的时候没有一片雪花是无辜的，也不可能独善其身！
-
-个人观点仅供参考。
-
-引用的内容的出处
-
-[https://www.sohu.com/a/438723053\_313745](https://www.sohu.com/a/438723053_313745)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14092131/GNEW-GTV-MOS-LOGO-2.jpg)
 
 
 
-> 禁止澳洲煤进口，发电厂煤炭紧张，动力煤价格飙升，导致限电，为了掩盖这个问题，大力鼓吹俄罗斯停止供电的消息。实际上买俄罗斯电只不过是找个由头给点钱给俄罗斯罢了，对整体供电没有影响。
-> — 曾畅 (@f1Fce4BQgUnJoFo) [December 16, 2020](https://twitter.com/f1Fce4BQgUnJoFo/status/1339151158359719936?ref_src=twsrc%5Etfw)
+美媒Gateway Pundit 12月17日晚间报道，负责管理美国核武器的美国核安全局的信息系统被骇客侵入。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18002956/12-5.png)
+美国网络和基础设施安全局上周日公布的紧急指示，是关于在美国被广泛使用的SolarWinds Orion信息系统管理软件被骇客事件。SolarWinds的用户中不乏美国主要的政府机构。这其中就有美国核安全局。日前，核安全局的确发现了系统被骇客的证据。另外，相关的联邦能源监管委员会、桑迪亚国家实验室，和拉莫斯国间实验室，运输办公室，能源部Richland办公室均发现了可疑的网络行为。
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16050459/%E6%BE%B3%E5%96%9C%E4%BA%8C%E7%BB%B4%E7%A0%81-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16050431/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%87-1.jpg)
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
 1+

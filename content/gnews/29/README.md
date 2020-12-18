@@ -1,49 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国多地限制用电企业百姓陷入困境
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/661766/)
+## 【朱利安尼推文1712】-犯罪分子乔拜登绝不能当总统
+` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/661916/)
 
-潜水艇2020
+朱利安尼市長周四的节目纠正了主流媒体一个错误，就是：
 
-审稿：Jenny
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18000305/IMG_5278.jpg)网络截图
-12月15日，湖南长沙市民反映长沙多区现拉闸限电现象，正常生活秩序受严重影响。市民称因写字楼停电，需爬二三十层楼上班。供电局回应：冬季用电超限 预留指标也超了。
+“拜登犯罪家族图腾柱的顶端是： 乔‧拜登！
 
-目前，浙江义乌、金华、宁波、温州等市陆续发布通知：为了落实能源“双控”“减煤”专项督查组工作要求，根据下达的能源“双控”和用煤目标任务清单，将目标分解到重点用能企业和单位，采取了有效措施。大部分浙江外贸工厂均已收到“停电限产”的通知，温州钱库镇某供应商晒出通知，通知显示：根据全县能源“双控”、“减煤”工作会议精神的要求，将对全镇高耗能、低产值的企业将在2020年12月15日至12月31日期间实行有序用电，在此期间供电部门将对企业生产用电情况进行24小时监控，如有发现不按规定开工生产的，将被强制断电停止生产20天。
-
-湖南益阳：根据益阳市工业和信息化局关于印发《益阳电网2020年迎峰度冬有序用电预案》的通知， 我县即日起17:00-20:00关停景观灯，路灯减半开启。待上级通知后再恢复正常。
-
-湖南株洲：国网株洲供电公司呼吁，在每日10：30～12：00、16：30～20：30之间，希望广大居民、党政机关、企事业单位在此期间减少空调、电暖器、微波炉、电水壶、电热水器等大功率电器使用频率，做好安全用电、节约用电、科学用电，减轻供电压力，共同确保居民生活用电和电网安全稳定运行。
-
-浙江省机关事务管理局近日发通知称，针对目前省能源“双控”和“减煤”工作面临的严峻形势和绿色发展的要求，从即日起至12月31日，省级各有关单位办公区域在气温达到3℃以下（含3℃）时方可开启空调等取暖设备，且设置温度不得超过16℃。同时，省级各有关单位的餐厅在用餐时可开启空调等取暖设备，用餐结束后立即关闭，设置温度不超过18℃。
-
-2020.8.17日，衡阳政府网发布，衡阳市发展和改革委员会《关于做好全市当前有序用电工作的紧急通知》要求：我市从即日起关停城市景观照明、亮化和美化工程用电，路灯减半开启。待上级通知后再恢复正常。请广大市民予以谅解！
-
-我相信，爆料革命的战友都能很轻易的明白，中共国其实早已经国库空虚，本就有限的外汇储备，被盗国贼偷去大部，剩下的由于最近一两年的出口萎缩而进口大增，估计也消耗的差不多了。中共其实已经没有钱再进口大量的煤炭了。澳大利亚是中共最大的煤炭进口国，截止2020年8月底，中共进口了2.21亿吨煤炭，占年度配额的四分之三，其中来自澳大利亚的煤炭进口占32%。上周末中共几家煤炭企业已经透露，已经接到上级的口头命令，停止继续购买澳大利亚的炼焦煤和动力煤。而分析公司IHS Markit也表示，一些中共港口被告知不允许接受澳大利亚进口的煤炭，导致很多煤炭滞留在中国的港口后，被转售给其他国家。
-
-为了糊弄老百姓，故意和澳大利亚制造贸易摩擦，给老百姓一个假象：是澳大利亚针对中国，不卖煤给中国了，所以导致发电用的煤炭减少，而不得不控制老百姓的用电。这个手法，和当年宣称：因为苏联逼债，中国不得不把粮食抵押给苏联，导致骇人听闻的大饥荒，不是一模一样吗？
-
-很明显，中共的擀面杖子，真的硬不了几天了。CCP快完蛋了。
-
-（本文纯属个人观点）
-
-长沙限电：[https://dy.163.com/article/FTT9210N0512D3VJ.html](https://dy.163.com/article/FTT9210N0512D3VJ.html)
-
-多地限电：[https://www.sohu.com/a/438483269\_653352](https://www.sohu.com/a/438483269_653352)
-
-浙江限电：[https://dy.163.com/article/FTU17Q7N0539GTK1.html](https://dy.163.com/article/FTU17Q7N0539GTK1.html)
-
-限制开空调：[https://www.sohu.com/a/438371709\_162758](https://www.sohu.com/a/438371709_162758)
-
-限制开路灯：[https://www.hengyang.gov.cn/cgj/xxgk/gzdt/cgdt/20200810/i2116050.html](https://www.hengyang.gov.cn/cgj/xxgk/gzdt/cgdt/20200810/i2116050.html)
-
-煤炭：
-
-澳喜文章[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
-
-欢迎加入澳喜农场：[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17202228/hm-5.jpg)
+“主流媒体试图将所犯的罪行推到亨特-拜登身上。不能让他们逍遥法外!”
 
 
-2+
+
+> The top of the BIDEN CRIME FAMILY totem pole: Joe Biden!
+> 
+> The MSM is attempting to push the crimes committed off on Hunter Biden. Don’t let them get away with it!
+> 
+> Rudy Giuliani breaks it down here: [https://t.co/DqqxcvdgXb](https://t.co/DqqxcvdgXb) [pic.twitter.com/H80c26nUdF](https://t.co/H80c26nUdF)
+> — Rudy W. Giuliani (@RudyGiuliani) [December 16, 2020](https://twitter.com/RudyGiuliani/status/1339350926021292034?ref_src=twsrc%5Etfw)
+
+
+
+朱利安尼先生继续发推称：
+
+“乔拜登是30年RICO法案间谍的头号人物，亨特只是替罪羊。” 推文同时引用了硬盘门曝光的亨特的信，表明乔拜登才是这个家庭里真正贪婪和罪恶的元凶。
+
+
+
+> Joe is the top of the 30 year Rico conspiracy. Hunter is the scapegoat. [pic.twitter.com/m0xPSSSrcs](https://t.co/m0xPSSSrcs)
+> — Rudy W. Giuliani (@RudyGiuliani) [December 18, 2020](https://twitter.com/RudyGiuliani/status/1339817748562665473?ref_src=twsrc%5Etfw)
+
+
+
+在亨特拜登硬盘门的海量证据和民意面前，一些主流媒体不得不面对拜登家族与中共勾兑卖国犯罪的事实，然而仍在力保乔拜登，顾左右而言他，转移矛盾到亨特拜登。殊不知如果不是亨特的副总统父亲乔拜登在位，而其实权早已在当时奥巴马总统之上，怎会出现如此惊天卖国大案、置国家安危于不顾，将中共这个诈骗小怪兽姑息并放养成今天的邪恶巨兽？乔拜登的犯罪事实绝不能被转移，中共这一罪恶的根源绝不能被弱化。
+
+
+
+新闻素材和图片来源于朱利安尼推文和爆料革命战友
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17195020/Wenya-Logo-5.png)
+
+0

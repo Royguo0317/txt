@@ -1,51 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 间谍长这样喔？
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/658738/)
+## 【军事快讯】“锆石”失色，美军反舰战力无出其右
+` HAIKUOTIANKONG` [轉載自GNews](https://gnews.org/zh-hans/662261/)
 
-作者：Yumi
-两天前中共国女间谍方芳（Fang Fang，又称Christina Fang被指控渗透美国政坛与国会，其中加州民主党籍众议员、情报委员会成员史沃威尔（Eric Swalwell）更作为色诱的目标。根据美媒《Axios》长达一年多的调查，要求匿名的多名情报官员及美国政府人员指出，方芳与至少2名市长交往约3年。在FBI监控方芳的房间时，直击她与2民选官员发生性关系，1名俄亥俄州的市长更在车上与她进行性行为。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17035510/spy.jpg)图片来源 Axios
-不禁想知道西方人如何看这事。分享一位称海怪艺术农场的推文对这新闻的反应史沃威尔众议员是一个被中国政府设下诱饵上钩为中国和华尔街服务的完美例子。他接触这女间谍开始大力的推动宣传俄罗斯对美国的威胁比中国大的假新闻和大外宣。这样的明显炒作的方法再也不能起作用了。
+内军事：鹰(文言) 素材：文朝汗（部落）校对：三娃
 
+环球网12月18日转载俄罗斯《消息报》报道，明年俄罗斯北海舰队演习中，将利用“亚森”核潜艇为“锆石”高超音速导弹提供目标指引。
 
+“锆石”高超音速反舰弹，作为俄罗斯最先进的高超音速武器于2016年首次试射成功，作战范围1000-2000km，速度可达8马赫。在11月25日的试射时，击中距离450km外的目标，离装备军队又进一步。
 
-> 🤡🇨🇳Eric Stalwell is a perfect example of a SHILL FOR CHYNA & WALL STREET. He goes on the Fake News & serves them both by pushing the propaganda narrative that Russia is more of a danger than Chyna
-> 🙄It’s a pathetically obvious method of manipulation that’s not working anymore [pic.twitter.com/VMWiDLUY3a](https://t.co/VMWiDLUY3a)
-> — 🇺🇸KrakenArtsFarm🇺🇸 (@hppyjesusfreak) [December 11, 2020](https://twitter.com/hppyjesusfreak/status/1337441249582714880?ref_src=twsrc%5Etfw)
+中共研制的鹰击18，作为其最先进的反舰巡航导弹自2015年服役，作战范围超600km，末端攻击速度达2-3马赫，采用超音速突防来增加拦截难度，可通过舰载、潜基平台发射。鹰击-12作为大型超音速反舰弹，末端速度可达4马赫，但作战范围缩短至400km以内，可通过空射、舰载、岸基发射。
 
+今年7月份美五角大楼公开承认，川普总统于5月份透露“超级导弹”的真实性。该导弹速度达音速的17倍，不但完全凌驾全世界最快的战斗机速度，更完全超越现有的一切高超音速导弹性能，其后续改进，作为反舰弹更是可将一切防御措施视于无物。此外，美空军即将推出AGM-183A的高超音速导弹，最大射程超过1600公里，飞行速度可达6.5-8马赫（设定指标为20马赫）。新型反舰版”战斧”BLOCK V巡航导弹也将作战距离延伸至1667km，都大大超越上述中共反舰导弹的战力。
 
-图片来源twitter 
-这让人想起前几年有一部李安翻拍张爱玲小说的色戒。共惨党色诱在腐化在纷纷扰扰你妤我诈国家安全中。特务和间谍似乎就像带着炸弹的人肉炸弹带着任务骗取敌方的国安机密，借着用床边耳语，性爱，摸索人性的弱点一步一步的吞食猎物。共产党也就是知道人性般的渗透政商关系的国安决定或是破坏。
+在反舰导弹和高超音速导弹技术突飞猛进的同时，美军对弹道导弹的拦截能力也取得显著成果。在11月16日利用宙斯盾系统协同“标准”-3 2A导弹成功拦截5500km外袭来的靶弹（末端速度基金20马赫），将中俄所谓的“反舰”威慑彻底破灭，“东风打航母”（东风26作战范围4500km，速度18马赫）更是成为泡影。
 
-此时令人不禁好奇分别新闻中的特务和间谍的差别。在前一阵子被人拿来讨论在八卦区写道相信一般人想特务就是穿着紧身衣在红色雷射光中扭腰摆臀飞来飞去的偷名单拿去卖。话题被热烈讨论如『特务腰穿紧身衣，间谍不一定。女的常常不穿衣服』，特务要做间谍不用做的事情，间谍是执行外国任务，特务是国内机关对付国人。一个情深一个可以治国。「李安的色戒有看过吗？女间谍通常比较能干」。也有专业一点的分析，『间谍就是出卖与背叛』。『双标，我国派的叫特务，敌国来的叫间谍』, 『特务是agent ,间谍叫spy』 .经典的有『特务是国家养的狗，间谍是各种组织都有的卧底』。网友更是总结说基本上工作内容差不多，但特务还有暗杀工作，间谍主偷资料。沸沸扬扬的讨论后看看外交关系的冰点，也透露美方早就警觉了。
-从最近国务院的对千人计划等中国全球间谍活动，据自由时报报导美国中央情报局（CIA）反间谍部门前主任奥尔森（James M. Olson）接受外媒专访时提出紧告中国情报机关正透过外国学生及专业人员在社群媒体上的资讯，实施针对性谍报行动。看来美国慢慢醒来了。
+新闻来源：
+俄军将用核潜艇为“锆石”高超音速导弹进行目标指引
+[https://mil.huanqiu.com/article/419G9P7D3LH](https://mil.huanqiu.com/article/419G9P7D3LH)
+美媒评全球致命反舰导弹：YJ18上榜但性能却差太远
+[https://mil.news.sina.com.cn/china/2020-12-17/doc-iiznctke7000295.shtml](https://mil.news.sina.com.cn/china/2020-12-17/doc-iiznctke7000295.shtml)
+迟来的反舰导弹，美军试射反舰型战斧导弹，射程高达1667公里
+[https://www.sohu.com/a/438787208\_335714](https://www.sohu.com/a/438787208_335714)
 
-（本文纯属个人观点）
-
-原文连结：
-美国媒体报道中国女间谍方芳曾活跃于美国政界色诱官员现已逃回中国[https://rfi.my/6vQf](https://rfi.my/6vQf)
-
-拆穿中国技俩！CIA前高官曝这两族群最易受中谍报机构吸收
-https://news.ltn.com.tw/news/world/breakingnews/3351466
-
-Exclusive: Suspected Chinese spy targeted California politicians
-[https://www.ptt.cc/bbs/Gossiping/M.1591000124.A.3DC.html](https://www.ptt.cc/bbs/Gossiping/M.1591000124.A.3DC.html)
-
-After entanglement with Chinese spy, Eric Swalwell warned of ‘influx of Russians’ inUS politics under Trump
-[https://www.foxnews.com/politics/eric-swalwell-chinese-spy-influx-of-russians](https://www.foxnews.com/politics/eric-swalwell-chinese-spy-influx-of-russians)
-
-间谍特务差在哪里
-[https://www.ptt.cc/bbs/Gossiping/M.1591000124.A.3DC.html](https://www.ptt.cc/bbs/Gossiping/M.1591000124.A.3DC.html)
-
-
-
-澳喜文章:[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
-
-欢迎加入澳喜农场：
-[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16044512/IMG_3537-1-715x720-1-1.jpg)
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18042445/image0-114.jpg)
 
 0

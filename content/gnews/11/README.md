@@ -1,62 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】口罩殇
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/660376/)
+## 【大数据分析作战室】24小時CCP热点话题
+` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/662321/)
 
-作者：香草山写作组 Daxia 校对/发稿：飞虹
+**分析师 曾经傻白甜**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14092131/GNEW-GTV-MOS-LOGO-2.jpg)
+**通讯员 喜马拉雅的文雅**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18043759/1216-Google-CCP-%E7%86%B1%E9%96%80%E6%90%9C%E7%B4%A2.jpg)
+据G-Talent，【12.16.2020 Google Trends】分析图显示了围绕CCP（中共）在Google相关搜索上升最快的词排名。上升最快的内容依次是米奇-麦康奈尔（Mitch McConnell ）的妻子赵小兰，195万党员名单泄露，CCP渗透，辉端疫苗。
 
+12月15日参议院邻袖米奇-麦康奈尔宣布乔拜登（Joe Biden）当选总统，而他与赵氏家族的福茂集团和中共银行的家族关系也浮出水面。他的夫人赵小兰是航运大享赵锡成的女儿，自麦康奈尔成为赵家女婿后，他与赵氏家族的在中共国的商业利益在不断增加，资产大幅飙升。
 
+关于热门话题China Communist Party Members Leaked（中共党员泄漏名单），澳大利亚《天空新闻》报道中共在全球的195万中共党员名单泄露，揭露中共在海外的渗透之深。名单中包括123名制药巨头辉瑞和阿斯利康制药的员工，而这两家公司又是研发病毒疫苗的重点制药厂。关于疫苗未来将有很多话题出现。
 
-它
-一个密不透风的布墙
-挂在耳朵
-耷拉在脸上
-套着口鼻
-阻隔着空气、声音与光
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17122336/merlin_171348084_73011776-c31e-4784-b9bd-1fcf998ce7ce-master1050.jpg)图片来源：《纽约时报》
-可以遮丑和假装
-就象童话故事里
-巫婆的毒苹果
-悲剧正在上演
+以上可见，在各种势力角逐下，对灭共的呼声日益清晰和响亮，沼泽地里中共豢养的鳄鱼将不断浮出，后续的曝光和制裁行动也会越来越密集。我们持续关注。
 
-布墙后面
-双唇时常紧闭
-在心与肺的剧烈碰撞
-一呼一吸的化学物质
-令人窒息
+建议传播相关内容时，使用井号加以下关键字：
 
-巧舌敲打着双唇
-伴着下巴抖动节奏
-口和鼻串通一气
-片片谎言
-淹没了声声呐喊
+#CCP
 
-天空乌云密布
-黎明前的暴风骤雨
-无法风干咸湿的双唇
-还有那酸臭的布墙
+#CCPVirus
 
-紧锁双眉的下边
-惊恐无助的双眼
-满是对生命的渴望
-只与天地诉哀伤
+#CCPmembers
 
-何时，眉鼻之间
-不再被一堵布墙设防
-打开心房，也晒晒太阳
-渐行渐远的
-亲情，友情和爱情
-与往常一样
+#ElectionFraud
 
+#Drain the Swamp
 
+#JustSayNotoVaccines
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+新闻和图片来源於 G-Talent
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+(以上仅代表分析师观点)
 
 0
