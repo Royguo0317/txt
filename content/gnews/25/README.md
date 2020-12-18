@@ -1,226 +1,103 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统否决2021国防授权法案，因为没有保护废除230条款《每日快报 &#8212; 2020.11.18.》
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/663147/)
+## 《路德时评》解读：中芯国际被列入实体清单，委内瑞拉大变革及中共扩大限电范围
+` GM141` [轉載自GNews](https://gnews.org/zh-hans/663480/)
 
-** *作者：心声，星空无垠***
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01081922/%E6%AF%8F%E6%97%A5%E5%BF%AB%E6%8A%A5.png)
-# ***今日摘要***
+视频来源：
+[https://www.youtube.com/watch?v=nFOaR91BV1g](https://www.youtube.com/watch?v=nFOaR91BV1g)
+[https://www.youtube.com/watch?v=IbXkrDrYgBc](https://www.youtube.com/watch?v=IbXkrDrYgBc)
 
-1. 众议员莫-布鲁克斯和18位同事要求在1月6日选举团投票前举行选举舞弊听证会
-2. 新任GOP众议员要求佩洛西调查欺诈行为
-3. 所有的战友们要对农场和战友和农场的关系有一个标准清透的认识，这符合每个战友和农场的利益和未来
-4. 川普总统否决2021国防授权法案，因为没有保护废除230条款
 
 
-# 重要事件
+《路德时评》2020年12月18日早间节目主要内容：
 
-- **12.17. **[**Gateway Pundit 众议员莫-布鲁克斯和18位同事要求在1月6日选举团投票前举行选举舞弊听证会。Rep. Mo Brooks and 18 Colleagues Request Election Fraud Hearing Before January 6th Electoral College Vote**](https://www.thegatewaypundit.com/2020/12/rep-mo-brooks-18-colleagues-request-election-fraud-hearings-january-6th-electoral-college-vote/)
+一、美国将数十家公司列入贸易黑名单
 
+路透华盛顿12月17日报导[1]：两名熟悉情况的消息人士周四告诉路透，美国定于周五将包括芯片制造商中芯国际在内的数十家中国公司加入贸易黑名单。总体而言，预计美国将在所谓的实体名单中增加约80家公司和关联企业，几乎都是中国公司。
 
-周四，众议员莫-布鲁克斯(Mo Brooks)和18名众议院同事致信米奇-麦康奈尔(Mitch McConnel)、南希-佩洛西(Nancy Pelosi)和多位参众两院主席，要求在1月6日选举团投票提交前举行舞弊听证会。
 
-- **12.17. Yellow Hammer **[**突发 塔伯维尔在决定国会对选举团投票的质疑前会进行**** “尽职调查Exclusive: Tuberville doing ‘due diligence’ before making decision on congressional challenge to Electoral College votes**](https://yellowhammernews.com/exclusive-tuberville-doing-due-diligence-before-making-decision-on-congressional-challenge-to-electoral-college-votes/)
-- **12.18. Epoch Times [新任GOP众议员要求佩洛西调查欺诈行为New GOP Reps Ask Pelosi to Probe Fraud](https://www.theepochtimes.com/new-gop-reps-ask-pelosi-to-probe-fraud_3623337.html)**
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18104634/%E4%B8%AD%E8%8A%AF%E5%9B%BD%E9%99%85-1.jpg)[图片地址](https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fnews.rthk.hk%2Frthk%2Fch%2Fcomponent%2Fk2%2F1565541-20201216.htm&amp;psig=AOvVaw3nwpZLggcPaRHZlW86Z20T&amp;ust=1608392651410000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCPiUyKjv1-0CFQAAAAAdAAAAABAa)
 
-26名新当选的共和党人众议员给议长南希-佩洛西写了一封信。他们敦促她对选民欺诈的指控展开调查。这些议员写道：”美国人民期待并应该获得自由和公平的选举。任何围绕2020年总统选举的欺诈活动都应该被彻底调查。保护我们国家选举过程的完整性不是党派问题。”
 
-- **12.17. Just The News **[**疑点？多米尼克警告内存卡可能需要提前从投票机上取下****Suspicious? Dominion warned memory cards might need to be prematurely removed from voting machines**](https://justthenews.com/politics-policy/elections/dominion-procedure-included-possible-removal-memory-cards-voting-machines)
 
+路德社评论如下：
 
-根据Just the News通过公开记录请求获得的记录，多米尼克选票系统在2020年大选前向佐治亚州官员发出警告，称在大选结束前可能需要从选票制表机中移除存储卡，以处理其系统中的一个限制。
+1、12月5日，中芯国际等四家公司就已经被美国国防部列入由中共军方控制的企业黑名单；
 
-# 每日文贵说
-![]()![](https://www.himalayawashingtondc.org/wp-content/uploads/2020/12/image-48.png)
-# 文贵直播和盖特
+2、这些企业之所以能别列入实体清单，是需要证据和法律支持的，只有推翻原始文件才能被清除出制裁清单；
 
-### 盖特：
+3、一旦被美国商务部列入贸易实体清单，制裁级别就与华为制裁级别相当，只要美国技术和服务占有量超过20%的产品都将被禁止出口给这些公司，安卓、苹果系统、微软系统等也都将被禁止使用；
 
-2月17号：尊敬的战友们好！你们传播C C P病毒！香港危机真相了吗？所有的战友们要对农场和战友和农场的关系有一个标准清透的认识，这是符合每个战友和农场的利益和未来！
+4、这是美国对中共军民融合项目开展的一次打击和清洗行动，这将导致大量半导体从业人员失业；
 
-[郭文贵MILES – Getter – G|TV](https://gtv.org/getter/5fdb85e593a06b22d9deea9e)
-![]()![](https://www.himalayawashingtondc.org/wp-content/uploads/2020/12/image-49.png)
-新中国联邦，还有我们的喜马拉雅农场系列。只有一条，谁为战友好，谁就会长远。战友不是任何人的资产。战友不能被任何人，战友只跟新中国联邦。只跟喜马拉雅系列。所有的农场都是服务的。任何人不能把农场战友作为一个武器，作为一个资源，来和喜马拉雅农场或新中国联邦谈任何条件。绝不可以。任何一个战友，都有自我选择的权利。
+5、川普总统在位四年时间促成了众多大事，以色列使馆搬至耶稣撒冷，消灭IS恐怖组织，增加美国就业机会，他用真正实力证明了他的能力。
 
-我更加有感触。我昨天我晚上坐在这，开着视频会，我更加有感触。绝对不能再让喜马拉雅农场和新中国联邦任何一个战友旋入到我们小时候的经历。中心化，这是为什么我们要去中心化。第二，被独裁，被哪些人给垄断，那绝对不可以。任何人都不能决定战友的命运。必须是集体决定。任何一个战友，都不能屈服于任何一个人。或勉强地听任何人。绝对不可以。任何一个战友的利益，必须是至高无上的。
 
-# 班农战斗室 War Room
 
-War Room: Pandemic Ep 591
+二、美祝贺委内瑞拉成功举行公投
 
+美国驻华使领馆12月17日发推[2]：“我们祝贺委内瑞拉人民成功举行‘人民公投’。数以百万计的委内瑞拉人团结在一起，高声疾呼，要求国家有民主的未来。在委内瑞拉的每个城市和小镇，以及数百个海外委内瑞拉侨民服务点，人民公投清晰地表明了委内瑞拉人民的意愿。” ―蓬佩奥国务卿
 
+该条推特透露出众多信息：
 
-War Room: Pandemic Ep 592
+1、暗示马杜罗政权已经被美国拿下，委内瑞拉人民已经迎来自由，中共已经彻底失去对委内瑞拉的控制权；
 
+2、该信息通过驻华使领馆发出，就是要告知中共委内瑞拉问题已经解决，马杜罗政权之所以能存在就是中共不断为其提供资金支持；
 
+3、路德社再次奉劝墙内外贸企业立即停止生产委内瑞拉的订单产品，以免造成不必要的损失。
 
-War Room: Pandemic Ep 593
 
 
+三、中共国扩大停电范围
 
-War Room: Pandemic E
+《自由亚洲》12月18日报导[3]：中共国扩大停电范围，外界盛传，中国为了报复澳大利亚坚持独立彻查新冠肺炎源头，限制澳大利亚煤炭进口，导致中国国内减少用煤，进而减少发电量。继浙江、湖南两省之后，江西、内蒙也出台限电措施。一向大力替中共说好话的《环球时报》总编辑胡锡进发文，称限电是「响应节能减排号召」。但有学者指出，「节能减排」的说法并不可信，因为若然中国真的要「减排」就应该全国推行，但现在只在少数几个省。
 
-# 秘密翻译组：
+路德社评论如下：
 
-[川普总统之所以否决了2021国防授权法案，是因为DNAA中把废除230条和允许机构打击孔子学院的条款拿掉了。川普总统已经真正明白了中共是如何利用社交媒体平台来散播虚假宣传的。 – YouTube](https://www.youtube.com/watch?v=MIdk5434vXk)
+1、路德爆料澳大利亚的煤炭产热能比国产煤炭高，中共国67.4%的进口煤炭来自澳大利亚，中共现用国产煤炭替代进口煤炭，产热效率大大降低，这就导致局部地区供电不足；
 
+2、中共此前一直吹嘘自己是水电大国，现在彻底露出马脚；
 
+3、这是中共带领中国百姓进入计划经济的开始，未来还会出现有序购粮、有序出行、有序住房等情况，也是一次权力再分配的开始；
 
-皮特·纳瓦罗提出“选举违规行为的六个维度”
+4、美国此前已开始对中共国海外贸易公司实施制裁，这将大大影响煤炭进口，另一方面中共数家企业被制裁后，也极度缺乏美元；
 
+5、中共极有可能在为备战提前限电，确保在危急时刻有足够的能源供应；
 
+6、中共已提前知道北约组织即将对他们采取军事行动，此举也有可能是让百姓提前适应危机环境。
 
-# 喜马拉雅国际工作站：
 
-班农：我们正在取得胜利！老百姓不会屈服，因为他们热爱美国！热爱自由！
 
+四、美国务院晒拜登“内阁”旧电邮藏玄机
 
+《大纪元》12月17日报导[4]：自认“当选总统”的拜登上月底宣布了他的首批“内阁”成员，提名布林肯（Antony Blinken）出任国务卿，克里（John Kerry）担任“总统气候特使”。随即，美国国务院12月2日公布了两人在2015年奥巴马时期任职时的部分电邮，有助于公众了解他们，了解拜登挑选他们所发出的信号。
 
-[参议员霍利: 7千4百万美国人不会沉默的！(12/16参议院大选舞弊听证会) – YouTube](https://www.youtube.com/watch?v=NCpp_Lir2Lc)
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18105255/145734-600x400-1.png)[图片地址](https://i.epochtimes.com/assets/uploads/2020/12/145734-600x400.png)
 
-# 路德社节目：
 
-### 12/17/2020 早 路德时评（路安墨谈）：
 
-川普总统延长严重侵犯人权和腐败的国际经济紧急权力法状态一年意味着什么？
+1、拜登提名的国务卿布林肯、白宫新闻秘书莎琪（Jen Psaki），连同国安顾问以及热门国防部长人选等一干人马，都出自这家被形容为“等候入阁”的“西政咨询”（WestExec Advisors）战略顾问公司；
 
+2、该公司可以帮客户“打进中国市场”，这家公司就是拜登腐败的利益公司，以上四个人都进入拜登现在的内阁成员名单；
 
+3、他们将利用“节能减排，绿色能源”配合中共进行权力重分配，剥夺权力。
 
-1. 川普将“严重侵犯人权和腐败国家紧急状态法案”延长一年，未雨绸缪打造灭共三法案
-2. 中共外交部声明不打自招其勾兑美情报部门导致美国家情报总监评估报告推迟
-3. 美国组织松散恰是其体制优越保障，战友需剔除中共思维
 
 
-（海狼整理）
+参考文章：
 
-### 12/17/2020 晚 路德时评（路博艾冠谈）：
+[1]https://cn.reuters.com/article/usa-china-sanctions-smic-1217-thur-idCNKBS28S0QS
 
-美国务院火力全开，系列推指控“中共是全世界的威胁；中共正在颠覆自由世界”等意味着什么？
+[2]https://twitter.com/USA\_China\_Talk/status/1339519469325086720
 
+[3]https://www.rfa.org/cantonese/news/electricity-12182020050554.html
 
+[4]https://www.epochtimes.com/gb/20/12/17/n12626474.htm
 
-1. 美国务院罕见火力全开连发六推文历数中共威胁美国家安全，传递美外交政策转向等重大信息；
-2. 美印太司令部披露中共拒绝出席双方军事海事安全协商会议，军事对话通道关闭，中共拖延时间借机碰瓷美军；
-3. 川普内阁纳瓦罗发布36页学术报告揭示大选舞弊证据足够川普翻盘，影响深远；
-
-
-（海狼整理）
-
-# 推特文摘
-
-
-
-到底打没打疫苗？在观看埃尔帕索（EL Paso）前5名护士接受COVID-19疫苗的录像时，KFOX14注意到第二名护士去接种疫苗时出现了偏差。所使用的注射器是空的。
-
-所有这一切都是演戏。所有的一切。我们生活在一个虚假的世界里。苏联更可信。我们被公司、学院和银行家出卖了。他们都是骗子。我们应该摧毁他们的世界，摧毁对他们的偶像崇拜。够了!
-
-
-
-
-
-> All of this theater. All of it. We live in a fake world. USSR is more believable. We've been betrayed by the Corporations, Colleges, and Bankers. They're all liars. We should demolish their world and destroy their icons. ENOUGH! [https://t.co/WqP5w68zYd](https://t.co/WqP5w68zYd)
-> — Ali 🟧 #StopTheSteal (@ali) [December 18, 2020](https://twitter.com/ali/status/1339804362839896065?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-我们人民已经达到了这样的地步，我们已经看到和经历了我们政府的足够腐败。无法再忍受更多了。我们的当选官员是肮脏的。他们需要坦白。
-
-这里有一些简单的建议，关于如何清理你给我们国家造成的混乱。如果你说真话，你会得到我们人民的支持。你所得到将是巨大的。打击中共的脏钱。 如果您为了中共的资金、权力和影响而继续对我们人民撒谎，您将不会有好下场。我们会解雇你。这很糟糕
-
-
-
-
-
-> We The People have reached the point where we have seen & experienced enough corruption in OUR government. Enough is always enough. 
-> 
-> Our elected officials are dirty. They need to come clean
-> 
-> Here is some simple advise on how to clean up the mess you have made of our country.
-> — Lin Wood (@LLinWood) [December 18, 2020](https://twitter.com/LLinWood/status/1339823199693938689?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-乔-拜登是30年来进行组织犯罪的罪魁祸首。他儿子亨特-拜登是替罪羊。 亨特-拜登：我爱你们所有。我没有收到任何尊重。这对我来说也没关系。我希望你们所有能做到我所做的，支付这个家族过去30年的所有花销。这非常困难。但你也别担心，我不会像我的父亲那样，要求交出一半的收入
-
-
-
-
-
-> Joe is the top of the 30 year Rico conspiracy. Hunter is the scapegoat. [pic.twitter.com/m0xPSSSrcs](https://t.co/m0xPSSSrcs)
-> — Rudy W. Giuliani (@RudyGiuliani) [December 18, 2020](https://twitter.com/RudyGiuliani/status/1339817748562665473?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-朱利安尼：”这是一个令人厌恶的、腐败的职业犯罪生涯，在选举期间一直瞒着你们……我无法想象，这些做这些腐败行为的人怎么能看着美国国旗，或怎么能面对镜子里的自己
-
-
-
-
-
-> “This is a career of crime that disgustingly, corruptly was kept from you during the election…I can’t imagine how these people who did it can look at an American flag or can look at themselves in the mirror.”
-> 
-> MUST-WATCH [@RudyGiuliani](https://twitter.com/RudyGiuliani?ref_src=twsrc%5Etfw): [https://t.co/Y9AS52qJ9K](https://t.co/Y9AS52qJ9K)
-> — Natalie Harp (@NatalieJHarp) [December 17, 2020](https://twitter.com/NatalieJHarp/status/1339647799051182080?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-川普：“这是因为他是一个伟大冠军和勇敢的人。更多的共和党参议员应该效仿他。我们取得了压倒性的胜利，然后胜利被从共和党手里骗走了–但我们抓住了他们。行动吧! ”
-
-
-
-
-
-> That’s because he is a great champion and man of courage. More Republican Senators should follow his lead. We had a landslide victory, and then it was swindled away from the Republican Party – but we caught them. Do something! [https://t.co/nZU0czsZgB](https://t.co/nZU0czsZgB)
-> — Donald J. Trump (@realDonaldTrump) [December 18, 2020](https://twitter.com/realDonaldTrump/status/1339748940380577792?ref_src=twsrc%5Etfw)
-
-
-
-
-
-# 墙内咨讯
-
-**12.18. 澎湃新闻 新华社调查：部分地区为何“限电”？电力供应能否保障？**
-
-近期，湖南、江西电力供应偏紧，浙江也出现限制用电情况，引发当地企业和居民广泛关注。
-
-近期，湖南、江西、浙江等地相继发布有序用电或限电通知。湖南长沙等多地启动有序用电工作。湖南省有关部门倡议，各类工商企业要主动错峰生产，关闭不必要的景观亮化设施，居民、党政机关、企事业单位在高峰负荷时段尽量不使用高耗能电器。
-
-一些城市的部分区域出现停电现象，多地市民反映工作和生活产生诸多不便。有市民在网上“晒”自己的遭遇：有的人因为公司写字楼停电，要爬20层楼上班；有的公司职员午间吃饭时，发现餐馆因为停电歇业了。
-
-***简评：严寒冬季，在湖南等这些省份对工业生产和居民生活进行大面积停电。中共哪管百姓死活，冻死、饿死、穷死，特权阶层照样“朱门酒肉臭、路有冻死骨”。***
-
-**12.18.** **环球网**** 知情人士透露美国将在周五将数十家中企列入黑名单，汪文斌：如果属实，中方坚决反对**
-
-路透社当地时间周四报道，有知情人士透露，美国将在周五将数十家中国企业列入贸易黑名单，其中包括中国最大的芯片制造商中芯国际(SMIC)。路透社指出，这一此前从未被报道过的举动，被视为美国总统特朗普巩固其对华强硬政策遗产的最新努力。
-
-***简评：对中共的滚天雷打击中很重要的一部分，就是要扎紧中共在华尔街等西方金融经济领域吸血全世界的管道，冻结其资产，饿死和困死中共。***
-
-**12.18. 人民日报海外版中国驻非盟使团谴责路透社不实报道：有违新闻道德！**
-
-党的喉舌人民日报海外版，批评路透社所谓“中国监听非盟总部”报道纯粹是无中生有、彻头彻尾的假新闻。非盟委员会和多位非洲国家领导人早已予以有力批驳。但两年多来，一些势力喋喋不休、反复炒作这一早已被非洲朋友扔进“垃圾箱”的无稽之谈，挑拨中非关系，污蔑中非友谊。这是无知，无良，还是无耻？我们对此表示强烈不满，中非人民也绝不接受。有大量证据表明，有窃听嗜好的既不是非洲人，更不是中国人。中非是好朋友、好伙伴、好兄弟，何来窃听？何须窃听？我们从不会干涉非洲内政，也从不会做任何损害非方利益的事情。
-
-今年是中非合作论坛成立20周年，中非关系正站在新的历史起点上。我们奉劝一些别有用心者停止对中非关系说三道四，客观公正看待中非合作，少花些时间散播谣言，多花些精力为非洲发展做实事。
-
-***简评：中非合作论坛******20周年，又要海外大撒币多少人民的血汗钱！在今年尤其寒冷的冬天，对居民和工业大面积停电。人民在中共眼里贱如草芥，是死是活完全不在乎。***
-
+文章撰写：【重生】   编辑：【GM141】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14081816/%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%95%86%E6%A0%87.png)
 0

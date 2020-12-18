@@ -1,26 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/18/2020 财经快讯: 瑞幸咖啡因财务造假被美证监会罚款1.8亿美元
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/663136/)
+## 护士长接种辉瑞公司中共病毒疫苗后在电视直播中晕倒
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/663477/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18085704/Picture29-1.png)图片来源：[https://www.ctvnews.ca](https://www.ctvnews.ca/mobile/business/china-s-luckin-coffee-to-pay-us-180-million-fine-in-fraud-case-1.5235066)
-1.近日美国证监会称中共国瑞幸咖啡已同意支付1.8亿美元的罚款以达成和解。此前证监会指控瑞幸咖啡通过虚报收入，支出和营业净亏损等手段欺骗投资者，使得其实际利润看上去更高，增长速度更快，并且符合公司的盈利预期。对此瑞幸咖啡并未承认也未否认。
-[https://www.ctvnews.ca/mobile/business/china-s-luckin-coffee-to-pay-us-180-million-fine-in-fraud-case-1.5235066](https://www.ctvnews.ca/mobile/business/china-s-luckin-coffee-to-pay-us-180-million-fine-in-fraud-case-1.5235066)
+*加拿大多伦多枫叶农场 ctt*
 
-2.伦敦（路透社）12月7日电 – 随着大额投资者兴趣激增，比特币价格周三突破里程碑式的20,000美元后，周四继续上涨10.5%，达到23,655美元历史新高，今年累计涨幅超过220％，其快速增长的潜力以及可以对冲通胀的特性大幅提振了投资者的需求。
-[https://mobile.reuters.com/article/amp/idUSKBN28R0WW?\_\_twitter\_impression=true](https://mobile.reuters.com/article/amp/idUSKBN28R0WW?__twitter_impression=true)
+*校对、上传 文锦*
 
-3.根据 Wind Information的数据，截至12月16日，中国企业信用债券销售总额为11.2万亿元人民币，净融资3.5万亿美元，债券发行量达到了2020年的新高，这项宽松的货币政策旨在提振遭受病毒袭击的经济，然而分析人士警告称明年上半年大量债务将到期，企业的再融资能力将受到挑战。
-[https://www.yuantalks.com/chinas-corporate-bond-issuance-hit-new-record-high-in-2020-analysts-warns-default-risks-in-h1-next-year-as-policy-tightens/](https://www.yuantalks.com/chinas-corporate-bond-issuance-hit-new-record-high-in-2020-analysts-warns-default-risks-in-h1-next-year-as-policy-tightens/)
+辉瑞公司及其德国合作伙伴在11月中旬宣布，他们的疫苗对中共病毒具有95％的有效性。现在这种疫苗已经全面上市，并在一些国家开始接种使用，它的效果究竟如何呢？
 
-4.12月17日消息，银保监会发布关于资产管理有限责任公司开业的批复。批复显示，银保监会同意中国银河资产管理有限责任公司开业，公司注册资本为100亿元人民币。公开资料显示，中国银河资产管理有限责任公司是经国务院和银保监会批准成立的第五家全国性金融资产管理公司。这也是自1999年中国四大资产管理公司（AMC）成立以来，再次批复成立全国性资产管理公司。
-[https://finance.sina.cn/bank/yhgd/2020-12-17/detail-iiznezxs7465925.d.html?cref=cj](https://finance.sina.cn/bank/yhgd/2020-12-17/detail-iiznezxs7465925.d.html?cref=cj)
+据门户专家 (gateway pundit) 12月17日报道，本周四，在田纳西州CHI纪念医院 (CHI Memorial Hospital)，一名护士长在接种辉瑞公司中共病毒疫苗后，在电视直播中晕倒。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18104056/EphvvMNW4AEHgeI.jpg)图片来源：Twitter
+本想通过这次直播来宣传推广这种疫苗，却出现这种情况。事情是这样的，护士长蒂芙尼·多佛 (Tiffany Dover) 在向媒体介绍接种疫苗的情况时，感觉好像有什么突然袭击了她， 她告诉记者开始感到头晕, 几分钟后，多佛晕倒了，但幸好身后的一位医生接住了她。
 
-5，商务部：12月16日，澳大利亚在世贸组织争端解决机制项下就中国对自澳大利亚进口大麦采取的反倾销和反补贴措施向中方提出磋商请求。中方已经收到该磋商请求。根据中国国内业界申请，中国商务部对原产于澳大利亚的进口大麦依法发起反倾销、反补贴调查，并依法采取相应贸易救济措施。中方一贯以符合世贸组织规则的方式开展贸易救济。我们对澳方提出磋商请求表示遗憾，将根据世贸组织争端解决程序进行处理。
-评：中共一贯的套路就是“你跟它讲法律它就跟你耍流氓，你跟它“耍流氓”它就跟你讲法律”，国内粮食危机已经初显，中共变相阻断冷冻肉类和其他食品进口，将政治利益置于人民利益之上，完全不顾老百姓死活！
-[https://finance.sina.com.cn/china/gncj/2020-12-17/doc-iiznezxs7422310.shtml?cref=cj](https://finance.sina.com.cn/china/gncj/2020-12-17/doc-iiznezxs7422310.shtml?cref=cj)
+事后，医疗团队称，她的晕倒与辉瑞公司研制的中共病毒疫苗无关。多佛也说，她经常在感到疼痛时晕倒。
 
-【Financial Team】
+评：
 
-0
+现今世界上的中共病毒疫苗都没有大规模、经得起时间检验的测试，且已有人接种后，产生严重不良反应。已爆出有2名阿拉斯加的护理人员在接种辉瑞疫苗后，出现严重过敏反应。要知道劣质的中共病毒疫苗给人们健康带来的损害是金钱所无法弥补的，但愿这不是中共病毒次生灾难的开始。
+
+*[原文链接](https://www.thegatewaypundit.com/2020/12/watch-nurse-passes-live-television-taking-coronavirus-vaccine/?utm_source=Parler&amp;utm_campaign=websitesharingbuttons)*
+
+1+

@@ -1,19 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普法律团队大律师珍娜·埃利斯：为我们国家为上帝做正确的事情
-` GM31` [轉載自GNews](https://gnews.org/zh-hans/661851/)
+## 《爆料革命发起人—郭文贵视频精品荟萃》第一集
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/663073/)
 
-主持人：
+撰稿人：澳喜 cindy 视频剪辑：cindy 
+剪辑指导：光耀华夏 文远
+审稿：Yumi
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18085740/Picture-1-4.png)
+2017 年 2 月由郭文贵先生发起的爆料革命至今已持续近 4 年了。三年前的星星之火， 现在已形成熊熊烈火� 在全世界蔓延。他用那契而不舍、永不放弃、无我无畏的精神唤醒了 在酣睡中的世界人民！他用自己的身躯做靶子，让 CCP 这个恶魔的枪林弹雨射向自己，以 换来世界人们对 CCP 假恶丑本质的认识。
 
-珍娜，我们还有一分钟时间。我注意到，您最近在推特上发布了越来越多的圣经内容。这看起来像是战斗、嘲笑等等一切您正在经历的事情，当然，鲁迪朱利安尼现在染上了新冠病毒，非常艰难。我只是，我很好奇您是如何忍受，并如何保持现在的乐观的？
+如今他再次告诉人们：中美大战不可避免，这不是简单的信息战、网络战、病毒大战。这是 你死我活的终极之战！因为 CCP 用生化武器袭击了美国袭击了全世界，导致几千万人染病， 几百万人死亡。全球经济毁灭性的打击！ 他呼吁国内的老百姓做好准备，至 2021 年 6 月左右，中国将出现粮荒。美国只是围堵你而 不打都会将消耗殆尽。
 
-珍娜**·**埃利斯：
+国内的同胞们，为了我们的子孙后代能过上平等、自由、没有恐惧的人的生活，靠你们的智 慧和勇气一起站起来，推翻这个杀人不眨眼的魔王！
 
-我非常感谢您这么说，查尔斯。您知道，我的一生是为了服务和荣耀主耶稣基督。所以，无论任何其他人说什么，都不会打扰到我。我希望自己能成为一道光对他人有所启发。无论任何人如何说您，您是由上帝以祂的形象造的和在基督之内的，最终，归根结底，我只要知道我是在追求真相，我是在为我们国家、为上帝做正确的事情。这才是关键所在。因此，我能保持乐观和充满希望。很感激您问这个问题。
+郭文贵先生 2020 年 12 月 3 日精彩视频
+[https://youtu.be/QuvglTckKLQ](https://youtu.be/QuvglTckKLQ)
 
-视频来源：[https://twitter.com/JennaEllisEsq/status/1336057398075805698](https://twitter.com/JennaEllisEsq/status/1336057398075805698)
+澳喜文章:[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
 
-*听写 & 翻译：【Cyndi】校对：【BruhM（文山）】【Isaiah4031】字幕：【班仔】编辑：【GM31】*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22111053/VOG-Rose-Garden-Team.png)
-1+
+欢迎加入澳喜农场：
+[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18084623/hm-14.jpg)
+
+
+0

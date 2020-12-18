@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《爆料革命发起人—郭文贵视频精品荟萃》第一集
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/663073/)
+## 快讯：五角大楼取消与拜登过渡团队的所有预定会议
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/663517/)
 
-撰稿人：澳喜 cindy 视频剪辑：cindy 
-剪辑指导：光耀华夏 文远
-审稿：Yumi
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18085740/Picture-1-4.png)
-2017 年 2 月由郭文贵先生发起的爆料革命至今已持续近 4 年了。三年前的星星之火， 现在已形成熊熊烈火� 在全世界蔓延。他用那契而不舍、永不放弃、无我无畏的精神唤醒了 在酣睡中的世界人民！他用自己的身躯做靶子，让 CCP 这个恶魔的枪林弹雨射向自己，以 换来世界人们对 CCP 假恶丑本质的认识。
+多伦多枫叶农场  云起时
 
-如今他再次告诉人们：中美大战不可避免，这不是简单的信息战、网络战、病毒大战。这是 你死我活的终极之战！因为 CCP 用生化武器袭击了美国袭击了全世界，导致几千万人染病， 几百万人死亡。全球经济毁灭性的打击！ 他呼吁国内的老百姓做好准备，至 2021 年 6 月左右，中国将出现粮荒。美国只是围堵你而 不打都会将消耗殆尽。
+校对  文锦   上传   云起时
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18110017/KTLA.jpg)图片来源：KTLA
+AXIOS12月18日报道：周四晚，代理国防部长克里斯-米勒（Chris Miller）下令在五角大楼范围内取消预定的所有与拜登过渡团队会议。
 
-国内的同胞们，为了我们的子孙后代能过上平等、自由、没有恐惧的人的生活，靠你们的智 慧和勇气一起站起来，推翻这个杀人不眨眼的魔王！
+政府高级官员告诉Axios，这一指令让许多国防部的官员感到震惊。这些官员不确定是什么原因促使米勒采取行动，也不明确川普总统是否批准。
 
-郭文贵先生 2020 年 12 月 3 日精彩视频
-[https://youtu.be/QuvglTckKLQ](https://youtu.be/QuvglTckKLQ)
+一名国防部高级官员试图淡化这一举动，称其为 “简单地将最后几次预定的会议推迟到新年之后”。
 
-澳喜文章:[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+这位官员说：”我们今天和下周的时间表上只剩下不到二十几次会议。国防部负责会议的工作人员被会议数量压得喘不过气来。”
 
-欢迎加入澳喜农场：
-[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18084623/hm-14.jpg)
+根据[博博士的推文](https://twitter.com/BoDiplo/status/1339959714654941187?s=20)，川普总统今天下午三点半将在白宫椭圆形办公室会见代理国防部长米勒将军。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18110411/T1.png)图片来源：Twitter
+评：事实上五角大楼从一开始就没有与拜登所谓的“过渡团队”有过任何合作。而目前令这些官员“震惊”的消息，只不过是受中共控制的五角大楼内部人士与拜登勾连的再一次尝试成功地被阻止。
 
+[原文链接](https://www.axios.com/pentagon-biden-transition-briefings-123a9658-4af1-4632-a6e6-770117784d60.html)
 
-0
+1+
