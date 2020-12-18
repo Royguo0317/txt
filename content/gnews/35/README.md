@@ -1,22 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【突发】美国务院称中共为邪恶独裁者
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/660637/)
+## 蓝丝李偲嫣之死 令人聚焦中共病毒疫苗
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/660759/)
 
-- 编辑：Victor Torres
+*加拿大多伦多枫叶农场 文𤦍(Manpui）*
 
+*校对、上传 文锦*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17153659/2020-12-16-19-09-00HwXkS1LU.jpg)
+升旗易日报12月17日最新消息报道：「私烟生化危机」消息指私烟接种中共国疫苗出事，中联办急令：「马上火化！」
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+《香港01》收到可靠消息证实，正义联盟创会主席李偲嫣12月16日送院后证实不治，终年56岁。消息指，李偲嫣初步对中共病毒呈阳性反应。怀疑死于中共病毒肺炎，但未能百分百肯定，医院会循这个方向追查，将验尸确定。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17154519/php8xc50C.jpg)
+虽然暂未知李偲嫣死因是否与中共病毒有关，但事件再次引起外界关注正在本港肆虐的第4波中共病毒疫情。卫生防护中心周二（12月15日）更警告，送院中共病毒危殆病人急增，呼吁市民做好防疫措施。
 
-**西班牙2020年12月17日电/西喜社——**美国国务院周四发推称:
-“清洁网络计划是一项全面的工作，旨在应对中国共产党等邪恶独裁者对自由世界中数据隐私，安全和人权的长期威胁。”
+医管局总行政经理庾慧玲今日表示，近日的危殆及严重个案呈上升趋势，有4名危殆及3名严重患者昨日才入院，指即使平日非常健康的市民，病情都可以恶化得很快，呼吁不要轻视疫情，要保持最高警戒，若有不适应尽快求医。
 
+特首林郑月娥曾于12月11日下午率领一众官员见记者，讲述中共病毒疫苗供港及指定检疫隔离酒店。林郑月娥表示，香港疫情持续，采购疫苗一事今日有突破性进展。她透露，首批来自内地的百万剂中共病毒疫苗最快下月抵港。
 
+有消息指李偲嫣早前应中联办表示忠心，第一批注射了内地疫苗。其丈夫谢铖浚指她有心脏病史。
 
-> The Clean Network initiative is a comprehensive effort to address the long-term threat to data privacy, security, and human rights in the free world posed by authoritarian malign actors such as the Chinese Communist Party. [https://t.co/x1jdhOOcsu](https://t.co/x1jdhOOcsu) [pic.twitter.com/3zlPYVajW8](https://t.co/3zlPYVajW8)
-> — Department of State (@StateDept) [December 17, 2020](https://twitter.com/StateDept/status/1339646504571682816?ref_src=twsrc%5Etfw)
+**「僵尸灭迹」**
 
+李偲嫣响应中联办号召，第一批就注射了“安心出门行”国产疫苗，结果真的“安心上路”了，还有香港政府送行。现在中联办急急“烧尸”意欲何为？
 
+昔日林则徐虎门销烟，如今中联办烧嫣。「私烟生化危机」不得不慎防⋯⋯
 
 0

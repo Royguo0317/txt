@@ -1,14 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统出席西点军校陆海军橄榄球赛，受到了陆军海军军校师生史无前例的欢迎
-` GM127` [轉載自GNews](https://gnews.org/zh-hans/660704/)
+## 彭佩奥:四方安全对话越来越重要
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/660836/)
 
-[视频来源](https://www.youtube.com/watch?v=2PPHtKg20m8)
-新闻简述：美国总统川普于上周六在西点军校出席了年度的陆军海军橄榄球赛，现场欢声雷动，川普总统受到了陆军和海军军校师生们的史无前例的热烈欢迎。士兵们高呼 “USA”，表现出对总统的拥戴，场面十分壮观。而就在同一时间，当总统前往西点军校中途中飞过华盛顿上空时，成千上万支持川普的民众正在华盛顿最高法院外集会，人们仰望着总统座机激动地高呼 “USA”，场面同样格外壮观。12月12日注定是不寻常的一天，无论是军队将士，或是美国普通大众，他们全都表现出对川普总统的热爱和坚定的支持，他们传递出一种空前的爱国之情，传递出誓死捍卫自由和美国宪法的正义和勇士之精神。这向试图击垮美国的外国敌对势力和美国本土的邪恶势力传递了一个无比清晰的信号：川普总统得民心、得军心、顺天意！✊✊✊
+编辑：Victor Torres
+
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+**西班牙2020年12月17日电/西喜社——**
+
+美国国务卿彭佩奥周四发推说:
+“今天很高兴与澳大利亚外交大臣玛莉丝·佩恩（Marise Payne）谈话。 美澳联盟很强大，在我们寻求建立自由开放的印度太平洋地区时，我们在四方安全对话(Quad)的集体工作越来越重要。”
+四方安全对话(Quad)是美国，日本，澳大利亚和印度之间的非正式战略论坛，由成员国之间的半定期峰会，信息交流和军事演习维持。又被称为“亚洲北约”
+该组织的外交和军事安排被普遍视为对中共经济和军事力量增强的回应，而中共政府通过向其成员发出正式外交抗议来回应。
+彭佩奥与佩恩谈话后的发言，表明四方安全对话组织为维护印太地区的自由开放，将采取越来越积极的态度和手段针对中共的威胁。
 
 
 
-听写 & 翻译 & 字幕：【奔腾的长江】编辑：【Isaiah4031】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22111053/VOG-Rose-Garden-Team.png)
+> It was a pleasure speaking today with Australian Foreign Minister [@MarisePayne](https://twitter.com/MarisePayne?ref_src=twsrc%5Etfw). The U.S.-Australia Alliance is strong and our collective work in the Quad is increasingly critical as we seek to build a free and open Indo-Pacific region.
+> — Secretary Pompeo (@SecPompeo) [December 17, 2020](https://twitter.com/SecPompeo/status/1339663109745729536?ref_src=twsrc%5Etfw)
+
+
+
 0

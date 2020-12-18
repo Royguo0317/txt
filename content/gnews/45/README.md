@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2名阿拉斯加的护理人员在接种辉瑞疫苗后出现严重过敏反应
-` GM122 小雨` [轉載自GNews](https://gnews.org/zh-hans/660541/)
+## 【突发】彭佩奥将中共与朝鲜和伊朗并列
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/660624/)
 
-作者：小雨
+- 编辑：Victor Torres
 
-据多家外媒报道，美国阿拉斯加州同一家医院的两名护理人员在接种辉瑞COVID-19疫苗几分钟后就出现严重过敏反应，其中包括一名继续住院观察到星期四（12月17日）的员工。
 
-第一名护理人员是一名没有过敏史的中年女性，她是星期二（12月15日）在巴特利特地区医院（Bartlett Regional Hospital）接种了疫苗。据巴特利特急诊室主任林迪·琼斯（Dr. Lindy Jones）披露，该员工在接种疫苗十分钟后，就表现出过敏反应，心跳加快，呼吸急促，皮疹遍及脸和身体躯干部。 她立即被给予肾上腺素和苯海拉明注射来缓解她的过敏反应，但是随后病情出现了反弹，接下来她接受了激素和肾上腺素的输液治疗。当病情稳定后，医生决定停止输液时，她的症状再次出现反弹。医生只能将她收入重症监护室进行整夜的监护，在周三凌晨才彻底停了静脉输液。医院周三晚间最终决定这名员工将在星期四（12月17日）出院。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-在医院的另一份声明中披露，第二名员工是星期三（12月16日）在接种疫苗10分钟之后出现了眼部浮肿，头晕，和嗓子发痒的症状。虽然医院不承认发生了过敏反应，但是这名员工还是被送往急诊室，接受了肾上腺素，法莫替丁和苯海拉明这些应对过敏反应的治疗。庆幸地是，他在一小时内恢复了正常并出院。
-
-截至星期三晚上，这家医院共施行接种了144剂疫苗。这两名发生过敏反应的员工均表示不希望他们的经历会给其它准备接种疫苗的人带来负面影响。
-
-阿拉斯加州首席医疗官安妮·辛克（Anne Zink）博士在一份声明中表示，不会因此而更改任何的疫苗推行计划。
-
-这是继12月8日英国NHS两名工作人员在接种疫苗后出现严重过敏反应后又两例涉及辉瑞COVID-19疫苗的过敏反应事件。无论如何，各国都不会承认现今推行的COVID-19疫苗存在严重的安全问题。由于涉及各方利益，他们一定会继续在疫苗的路上跑到黑。
-
-新闻来源
+**西班牙2020年12月17日电/西喜社——**彭佩奥周四发推，将中共与朝鲜和伊朗并列，他说:
+“中国共产党的科学家并不是癌症治疗的先驱， 我们是。”
+“朝鲜的生物化学家并未生产安全的中共病毒疫苗， 我们是。”
+“伊朗人在超级计算方面并不领先。 我们是。”
+他称赞自由世界和自由人民产生卓越的结果。 “我们应该为此感到自豪。”
 
 
 
-https://www.cbsnews.com/news/alaska-covid-vaccine-allergic-reaction-health-care-worker/
+> Chinese Communist Party scientists aren’t pioneering cancer cures. We are. North Korean biochemists aren’t producing safe COVID vaccines. We are. Iranians aren’t ahead in supercomputing. We are. The free world and free people produce superior results. We should be proud of that. [pic.twitter.com/Zl4QU91OOk](https://t.co/Zl4QU91OOk)
+> — Secretary Pompeo (@SecPompeo) [December 17, 2020](https://twitter.com/SecPompeo/status/1339643335905079296?ref_src=twsrc%5Etfw)
+
+
 
 1+

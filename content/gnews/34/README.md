@@ -1,76 +1,84 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 多猫腻说客向麦康奈尔支付数千美元，随后选举诚信法案被压制
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/660613/)
+## 英国商人充当政府中间人采购中共防护用品，回扣达180万英镑！
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/660749/)
 
-*新闻来源：National File《国家档案》；作者：JACK HADFIELD；发布时间：2020年12月15日*
+*新闻来源：Daily Mail《每日邮报》；作者：丹妮尔·侯赛因；发布时间：2020年12月13日*
 
-*翻译/简评：Dreamer文童；校对：Beicy-数学老师；审核：万人往；Page：拱卒*
+*翻译/简评：wmorpho；校对：Beicy-数学老师；审核：万人往；Page：拱卒*
+
+[!\[\]()!\[\](https://spark.adobe.com/page/f1GzU87CwXnba/images/9c214a42-dd3d-4ea8-bd24-fedf3a1f4c04.jpg?asset_id=8430f996-0612-40f3-bf28-e25f2ea2ea2f&amp;img_etag=%223c9f035cb29ccb249271f8dbd54a948b%22&amp;size=2560)](https://spark.adobe.com/page/f1GzU87CwXnba/images/9c214a42-dd3d-4ea8-bd24-fedf3a1f4c04.jpg?asset_id=8430f996-0612-40f3-bf28-e25f2ea2ea2f&amp;img_etag=%223c9f035cb29ccb249271f8dbd54a948b%22&amp;size=1024)
 
 **简评：**
 
-12月15日（周二），参议院多数党领袖米奇·麦康奈尔（Mitch McConnell）祝贺乔·拜登成为当选总统，立即在网络上引起热议。很多网友挖出麦康奈尔的华裔太太赵小兰（现任美国运输部长）家族与中共的关系，包括赵小兰父亲赵锡成与江泽民同为校友，赵氏家族的航运公司福茂集团绝大部分业务都在亚洲，麦康奈尔的竞选团队收到赵氏家族超过100万美元捐款等等。这些事实结合中共几十年一贯的“蓝金黄”手段，让人不得不猜测麦康奈尔是否就是被中共渗透和控制的一条大鳄。
+本文意在颂扬英国政府通过与私人公司合作，在中共病毒肆虐期间为前线医护人员和大众提供了及时的中共病毒防护用品。但讽刺的是那些中共病毒防护用品竟然是从中共国运送过来的，而那些商人充当了中间人！
 
-《国家档案》（National File）此篇报道爆出，一年前，麦康奈尔在接受多猫腻（Dominion）说客捐款后，压制了两项旨在确保投票安全的法案。在此次美国大选中，多猫腻投票系统出现的种种荒谬现象已经能够证明该投票系统存在人为操纵的舞弊行为，并且是受外国势力（中共）的干涉。结合上述所有信息，可以推测此次美国大选舞弊是蓄谋已久的涉及多方人士参与的有组织犯罪行为，而幕后黑手就是中共。
+这不仅反映出中共国垄断了中共病毒防护用品，利用病毒大发不义之财，还透视出英国政府对中共认识的不足，用英国纳税人的钱喂饱了中共，得到的却不一定是合格的产品。另一方面也让人怀疑那些得到购买合同的商人与政府是不是有腐败的裙带关系，因为他们并没有购买与检验病毒防护用品的经验，例如哈立德·哈桑，他之前是经营手机配件公司的英国商人，他得到政府购买合同的资格令人质疑。
+
+同时本文还揭示了另一个可怕的事实，那就是中共国有意扩大中共病毒疫情在英国的蔓延。据哈桑说，他告诉中共公司，这些病毒防护用品是运往巴基斯坦的，他之所以这样说，是因为如果他说这些物品是运往英国，那些中共国公司就会把订单移到“等待顶部”，就会有两个月的延迟。这不是蓄意谋杀吗？中共渗透无孔不入，世界该醒醒了！
 
 **原文翻译：**
 
-**多猫腻的说客在麦康奈尔压制选举诚信法案、忽视选举竞争之前向其支付数千美元**
+# **经营手机配件公司的英国商人充当英国政府从中共国购买中共病毒防护用品的中间人, 并获得180万英镑的“回扣”**
 
-**参议院多数党领袖去年7月份不允许对该法案进行表决**
+• 哈立德·哈桑，38岁，经营一家名为伯明翰的电话公司，资产只有12000英镑
 
-[!\[\]()!\[\](https://spark.adobe.com/page/q3QK9h1Gf6Nab/images/6a8f052a-d85a-48cd-a7e6-aeb4ba2fbfca.jpg?asset_id=bed38897-4ecc-4d89-aa97-d5fb80bc6634&amp;img_etag=%2230c25a395256453d7105dfcf0b4cecf1%22&amp;size=1024)](https://spark.adobe.com/page/q3QK9h1Gf6Nab/images/6a8f052a-d85a-48cd-a7e6-aeb4ba2fbfca.jpg?asset_id=bed38897-4ecc-4d89-aa97-d5fb80bc6634&amp;img_etag=%2230c25a395256453d7105dfcf0b4cecf1%22&amp;size=1024)
+• 然而，他因帮助英国政府从中共国购买中共病毒防护用品而得到超过100万英镑的报酬
 
-参议院多数党领袖米奇·麦康奈尔（Mitch McConnell）在接受多猫腻说客的数千美元捐款后，于去年7月份撤销两项选举诚信法案。
+• 这个商人以充当“中间人”的角色来获得“回扣”
 
-7月，麦康奈尔阻止两项法案，其中一项是提供7.75亿美元以“加强选举安全”，同时要求对郡内投出的每一张选票进行实物书面记录；第二项是强制要求党派候选人、其工作人员及其家属，如果有任何外国政府提供协助，必须通知FBI。
+一家英国手机配件公司老板充当英国政府从中共国购买中共病毒防护用品的中间人,并获得180万英镑的“回扣”。
 
-“很明显，这项要求并非一个认真的制定法律的努力。显然，如此党派化的事情，在众议院仅得到共和党单独一张投票的情况下，是不会通过参议院一致同意的。”麦康奈尔在参议院说，他拒绝对这些法案进行表决。
+现年38岁的哈立德·哈桑经营一家名为伯明翰字节科技的公司，该公司专门从事手机配件和备件的业务——尽管公司的最新账目显示，其资产只有12000英镑。
 
-然而，在前一年，代表多猫腻投票系统和选举系统以及软件的多名说客向麦康奈尔竞选团队捐赠数千美元，这两家公司合计占全美国投票机的80%左右。
+据透露，在中共病毒开始大流行时，哈桑帮助英国卫生部与中共国制造商签订了一份2.88亿件中共病毒防护用品的合同。
 
-2019年为多猫腻游说的说客大卫·科恩（David Cohen）和布莱恩·威尔德（Brian Wild），两人均为布朗斯坦·海特·法伯·施雷克（Brownstein Hyatt Farber Schreck）的说客，分别向麦康奈尔的竞选基金捐赠2000美元和1000美元。并且在同一时间，曾为ES&S游说的艾米莉·柯林（Emily Kirlin）和珍·奥尔森（Jen Olson）也分别捐赠1000美元。
+[!\[\]()!\[\](https://spark.adobe.com/page/f1GzU87CwXnba/images/98150310-9bcc-471f-8394-f27cc952397d.jpg?asset_id=3534fc85-0e52-4519-9596-df6d3a61269b&amp;img_etag=%220ef1c76e372137e3fc26078f3de0dace%22&amp;size=2560)](https://spark.adobe.com/page/f1GzU87CwXnba/images/98150310-9bcc-471f-8394-f27cc952397d.jpg?asset_id=3534fc85-0e52-4519-9596-df6d3a61269b&amp;img_etag=%220ef1c76e372137e3fc26078f3de0dace%22&amp;size=1024)哈立德·哈桑说，从中共国抵达英国的每批中共病毒防护装备，他都会从中得到现金“回扣”。
 
-有趣的是，这些捐款都发生在2020年3月份，当时冠状病毒大流行首次蔓延至美国，邮寄投票几乎成为2020年选举的必然结果。
+[!\[\]()!\[\](https://spark.adobe.com/page/f1GzU87CwXnba/images/559f2854-6c36-4fa2-abae-f5443ca76136.jpg?asset_id=2715363a-6636-48ec-8c52-e5b40e312fad&amp;img_etag=%22fbf4c9ac6aaa95f000ccfe64f9bfa3b0%22&amp;size=2560)](https://spark.adobe.com/page/f1GzU87CwXnba/images/559f2854-6c36-4fa2-abae-f5443ca76136.jpg?asset_id=2715363a-6636-48ec-8c52-e5b40e312fad&amp;img_etag=%22fbf4c9ac6aaa95f000ccfe64f9bfa3b0%22&amp;size=1024)他最近在LinkedIn上发帖说：“相比无现金社会、数字货币等，我们中的一些人更喜欢老一点的支付方式……现金交易”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/q3QK9h1Gf6Nab/images/c590102a-9491-4ae0-937c-7a25e41df135.jpg?asset_id=f19e0942-5d22-4c3a-ad67-6c8d5950c7d1&amp;img_etag=%22ff3481657e89c1c95eca69f8e294fad4%22&amp;size=3107)](https://spark.adobe.com/page/q3QK9h1Gf6Nab/images/c590102a-9491-4ae0-937c-7a25e41df135.jpg?asset_id=f19e0942-5d22-4c3a-ad67-6c8d5950c7d1&amp;img_etag=%22ff3481657e89c1c95eca69f8e294fad4%22&amp;size=1024)
+这些从中共国公司购买的中共病毒防护用品大部分是口罩，哈桑告诉这些公司这些口罩是运往巴基斯坦的。
 
-闪回：“参议院多数党领袖米奇·麦康奈尔压制了两项旨在确保投票安全的法案…”
+他声称，他之所以这样做，是因为如果他说这些物品是运往英国，那些中共国公司就会把订单移到“等待顶部”，就会有两个月的延迟。
 
-在接受这家外国公司说客的\*数千美元\*后，麦康奈尔扼杀了一项本可以打击多猫腻的投票安全法案。https://t.co/MmedjAojM7
+哈桑说，作为回报，每一批中共病毒防护用品抵达英国后，他都会收到现金“回扣”。
 
-– 凯尔·贝克尔（Kyle Becker）@kylenabecker 2020年12月15日
+他最近在LinkedIn上发帖说：“相比无现金社会、数字货币等，我们中的一些人更喜欢老一点的支付方式……现金交易”。
 
-![]()![](https://spark.adobe.com/page/q3QK9h1Gf6Nab/images/6f255f49-3543-4ca8-b089-f990bd05ed01.jpg?asset_id=d31fb613-347c-4b60-ba97-d37f50a9b329&amp;img_etag=%22cc0a59a0885b620a28297e638daa59c8%22&amp;size=2560)
+哈桑告诉《太阳报》，他不愿意卫生部用银行转账的方式付款给他，因为他的账户所在的汇丰银行会花费太长的时间来处理巨额资金转账。
 
-重磅新闻：米奇·麦康奈尔接受来自多猫腻的资金，压制两项选民安全法案。https://t.co/bntzOB3KFL
+他还说，延迟支付他的报酬会导致推迟中共病毒防护用品的交付时间。
 
-– 美国第一川普总统（当选总统）@ChiefTrumpster 2020年12月15日
+为了摆脱这种情况，他告诉英国官员，直接从中共国供应商购买中共病毒防护用品，他只负责采购和检查产品。
 
-麦康奈尔周二赞扬了总统选举的过程和结果，并似乎与副总统拜登结盟。“美国人在今年大选中进行投票。从那时起，法律和宪法程序持续发挥作用，”麦康奈尔说。“截止今天上午，我们国家正式产生一位当选总统和一位当选副总统。”
+然后，他将以实物现金的形式获得“回扣”。
 
-参议院多数党领袖没有提及目前正在进行的曝光在选举中缺乏诚信的任何诉讼，也没有提及有争议的州提供的几份候补选举人名单。“我们的政府体系有决定谁将在1月20日宣誓就职的程序，选举团已经宣布。”麦康奈尔补充道。“所以今天我要祝贺当选总统乔·拜登。”
+哈桑说，他把钱存放在保险柜里，有些钱存入了一个中共国银行账户。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/q3QK9h1Gf6Nab/images/88bb3e67-d954-48da-91f0-62b3e64855f4.jpg?asset_id=f7a8e422-54f5-4c6b-85b0-3e4862655cd4&amp;img_etag=%22ab789e5eb18d0eee3fa3f14139c25f54%22&amp;size=2560)](https://spark.adobe.com/page/q3QK9h1Gf6Nab/images/88bb3e67-d954-48da-91f0-62b3e64855f4.jpg?asset_id=f7a8e422-54f5-4c6b-85b0-3e4862655cd4&amp;img_etag=%22ab789e5eb18d0eee3fa3f14139c25f54%22&amp;size=1024)
+他还声称，英国卫生部“完全了解”他所作的一切。
 
-感谢参与，@DonBlankenship. #WVSen
+哈桑补充道：“我跟英国国防部的人讲：‘我会告诉他们（中共国供应商）这些物品会去巴基斯坦。’国防部的人笑着说：‘试试看吧。’”
 
-[https://t.co/TV1ETgQdmu](https://t.co/TV1ETgQdmu)
+[!\[\]()!\[\](https://spark.adobe.com/page/f1GzU87CwXnba/images/4bc51c21-0f90-4d4d-9935-b1afae1c6f2e.jpg?asset_id=985780bd-8e63-4f18-825a-85a196bf926e&amp;img_etag=%2265eeb7725c978aab80f90a1fc82efea6%22&amp;size=2560)](https://spark.adobe.com/page/f1GzU87CwXnba/images/4bc51c21-0f90-4d4d-9935-b1afae1c6f2e.jpg?asset_id=985780bd-8e63-4f18-825a-85a196bf926e&amp;img_etag=%2265eeb7725c978aab80f90a1fc82efea6%22&amp;size=1024)哈桑的帖子透露，他还得到一份向国家卫生服务部提供数百万件中共病毒防护用品的合同
 
-– 米奇团队（给米奇发信息至47360）@Team\_Mitch 2018年5月19日
+[!\[\]()!\[\](https://spark.adobe.com/page/f1GzU87CwXnba/images/f77ff7ff-7678-4783-9424-5fbae2e97f20.jpg?asset_id=35a4adcf-9e93-4025-bade-6bb9909e1ce0&amp;img_etag=%225e5a2b15c0b0c08932d3797ad82fd869%22&amp;size=2972)](https://spark.adobe.com/page/f1GzU87CwXnba/images/f77ff7ff-7678-4783-9424-5fbae2e97f20.jpg?asset_id=35a4adcf-9e93-4025-bade-6bb9909e1ce0&amp;img_etag=%225e5a2b15c0b0c08932d3797ad82fd869%22&amp;size=1024)哈桑从中国运到英国的部分个人防护用品，大部分是口罩。
 
-《国家档案》（National File）11月报道，川普的长期盟友兼好友罗杰·斯通说，“这个国家100%的投票机和投票系统都在使用与多猫腻一直在使用的转换选票相同的软件。”斯通称，这款名为“选举卫士”的软件是微软在比尔·盖茨本人授意下创作的。
+哈桑补充说，他32岁时就赚到了第一个一百万，他这样做的目的是帮助国家。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/q3QK9h1Gf6Nab/images/a1d2a111-e210-4624-9b33-3e4f8f74f9fc.jpg?asset_id=adf485d4-8176-4cf1-a9e7-d87ff8e4ffca&amp;img_etag=%2229fa668aadc297348d1abc1dd104c61c%22&amp;size=3428)](https://spark.adobe.com/page/q3QK9h1Gf6Nab/images/a1d2a111-e210-4624-9b33-3e4f8f74f9fc.jpg?asset_id=adf485d4-8176-4cf1-a9e7-d87ff8e4ffca&amp;img_etag=%2229fa668aadc297348d1abc1dd104c61c%22&amp;size=1024)
+一位政府发言人说：“在整个中共病毒大流行期间，全球对中共病毒防护用品的需求一直很高，创造了高度竞争的市场。我们使用最快、最方便的路线，为一线员工采购了必要的中共病毒防护用品。”
 
-罗杰·斯通透露2020年选票的大规模操纵者：就是比尔·盖茨@BillGates。
+“正如英国国家审计署最近的报告所说的，在这个史无前例的中共病毒大流行期间，所有被审计的国家卫生服务部门总是能够及时得到他们需要的中共病毒防护用品，这要归功于政府、国民保健系统、武装部队、公务员和工业界的努力，他们以创纪录的速度向前线交付了超过51亿件中共病毒防护用品。”
 
-[https://t.co/NiiT9qpkUt](https://t.co/NiiT9qpkUt)
+上个月的一项调查显示，没有经营中共病毒防护用品经验的公司，通过与英国政府合作，在中共病毒肆虐最严重时赢得了丰厚利润。
 
-– 恩里克·亚历杭德罗（Enrique Alejandro）@EnriqueAleTV 2020年11月21日
+政府放宽了采购法规，允许官员在没有竞争性招标程序的情况下授予合同。
 
-[原文链接](https://nationalfile.com/dominion-lobbyists-paid-mcconnell-thousands-before-he-crushed-election-integrity-bills-ignored-election-contests/)
+这项政策使得一个由多个部门450多名员工组成的中共病毒防护用品政府采购团队，与私人公司签订了6900多份合同，价值180亿英镑。
+
+有争议的是，给与没有经营中共病毒防护用品经验的公司数百万的合同，这一过程被抨击为“裙带关系”。
+
+[原文链接](https://www.dailymail.co.uk/news/article-9048271/British-businessman-paid-1-8million-kickback-source-PPE-China.html)
 
 [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
@@ -78,8 +86,8 @@
 
 [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/q3QK9h1Gf6Nab/)
+编辑：【喜马拉雅战鹰团】-[点击spark adobe](https://spark.adobe.com/page/f1GzU87CwXnba/)[版](https://spark.adobe.com/page/q3QK9h1Gf6Nab/)
 
-![]()![](https://spark.adobe.com/page/q3QK9h1Gf6Nab/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)
+[!\[\]()!\[\](https://spark.adobe.com/page/f1GzU87CwXnba/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/f1GzU87CwXnba/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

@@ -1,103 +1,74 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年1月6日，彭斯副总统的抉择会决定这场大选的滑稽程度
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/660426/)
+## “一个马克龙被中共病毒感染，全欧盟的政要首脑被隔离??”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/660726/)
 
-作者/翻译：康州盘古农场 – Feiyi
-校对：康州盘古农场 -Freeearth
-审核：康州盘古农场 -V
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17140813/vp.png)
-2020年12月15日， 7个州的共和党人勇敢地行使了宪法赋予选举人的权力，用行动维护选举诚信，送上了支持川普总统和彭斯副总统的选举人。这是目前的选举人团票数。84张有争议的选举人票将在1月6日由国会做出选择。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17140824/elector.png)
-据战友西行小宝的总结翻译（如下图）：“12/14 今天在亚利桑那，宾州，密歇根州，威斯康星，乔治亚和内华达的立法机关确认川普选举人很重要：如果1月6日至少有1名国会议员（莫.布鲁克斯）和1名参议员（兰德·保罗）反对一套选举人的合法性，副总统可以拒绝该提名。 他不必验证备用选举人。他可以将决定发送给国会，其中1州= 1票（川普胜）！”
+- 作者：Free monkey
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-> 12/14 今天在亚利桑那，宾州，密歇根州，威斯康星，乔治亚和内华达的立法机关确认川普选举人很重要：如果1月6日至少有1名国会议员（莫.布鲁克斯）和1名参议员（兰德·保罗）反对一套选举人的合法性，副总统可以拒绝该提名。 他不必验证备用选举人。他可以将决定发送给国会，其中1州= 1票（川普胜）！ [https://t.co/s4WAHPOAtC](https://t.co/s4WAHPOAtC)
-> — 西行小宝 (@htommy998) [December 15, 2020](https://twitter.com/htommy998/status/1338680700598284289?ref_src=twsrc%5Etfw)
+**西班牙2020年12月17日电/西喜社——**
 
+12月10日至11日，马克龙曾在比利时布鲁塞尔参加欧洲理事会。有法国专家指出，就算马克龙在开会时全程佩戴口罩，也总有摘下口罩吃饭的时候，此时感染风险相当高。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17151826/011-1.png)12月10日，在比利时布鲁塞尔的欧盟总部，欧洲理事会主席米歇尔（左三）与多名欧盟领导人在欧盟冬季峰会召开前交谈（图片来源：新华社）
 
+当天，**法国巴斯德研究所发表的一项研究结果显示，去餐厅吃饭和出国都是感染中共病毒的高风险行为。**（马克龙两个都占了……）
 
-另外一名美国推友@Eyconik针对美国大选的进一步走势发了一个长推（如下图）：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17141501/Screen-Shot-2020-12-17-at-11.14.33-AM.png)
-此系列推文推演了川普总统最后如何胜出，不但交叉验证了西行小宝战友的总结， 而且对今后选举的各个步骤预测得更加有条理。笔者全文翻译如下：
+“**活动”多、“饭局”多总统请客“不守规矩”？**
 
-——————————————————–
+据法新社报道，周三（16日）晚，马克龙组织工作晚餐会，约有12人参加，包括总理卡斯泰、国会议长费朗、执政党“共和国前进党”负责人卡斯塔内，民主运动党（MoDem）弗朗索瓦·白鲁，总统府秘书长科莱（Alexis Kohler）等人。
+为遏制节后疫情反弹，法国政府多次强烈建议民众圣诞节聚餐不要超过每桌6人。既如此，为何总统请客可以不遵守规定，一桌坐12人？参加晚餐会的白鲁解释说，**餐桌有15米长，每人间隔足足有1.6米至2米**，是严格遵守了防疫规定的。卡斯塔内也补充说，**晚餐宴会厅本可以容纳700人，并且当晚一直有良好通风。**
+爱丽舍宫透露，马克龙确诊后，已取消所有访问日程，原定下周二、三（22/23日）的黎巴嫩之行也随之泡汤。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17152249/02-1.png)今年8月6日布鲁特大爆炸后，马克龙在再去慰问民众（法新社图）
+**三天三顿工作餐会法国、欧盟政要纷纷隔离**
 
-1. The Stage – The legal effort – Make no mistake that Sydney Powell, Rudy Giuliani, Lin Wood, Ted Cruz and the Texas AG are quite familiar with standing. They knew they had little to no chance of the cases being heard, and even less chance of favorable relief.
+法国公共卫生局对新冠确诊患者的密切接触者定义为：
 
-1. 阶段 – 法律努力 – 毫无疑问，悉尼·鲍威尔、鲁迪·朱利安尼、林·伍德、特德·克鲁兹和德州AG都非常熟悉胜诉概率。他们知道这些案件被审理的机会很小，甚至没有; 获得有利的补救的机会就更小了。
-
-2. The BIG one – The Texas SCOTUS filing – This case was 50/50 on standing but it wouldn’t have offered relief. The Justices Trump appointed had no issue dismissing the case and deferring power back to the state legislatures. The reason will become clear in just a moment.
-
-2.很重要 – 德州最高法院提起诉讼 – 这一案件的胜诉率是一半对一半，但它不会起到缓解作用。川普任命的大法官对驳回此案并将权力移交给州立法机构没有异议。原因马上就会清楚了。
-
-3. The Reason – The various court filings were never meant to prevail. Their only purpose was to inform the pubic. It allowed people see the fraud. The actual filing docs allowed Anons to read and share so that people could see the problems with our elections.
-
-3. 原因 – 各种各样的法庭诉讼从来就不意味着胜利。他们唯一的目的就是向公众宣传。它让人们看到了欺诈行为。实际提交的文件允许无名之辈阅读和分享，这样人们就可以看到我们选举中的问题。
-
-4. The Fire – MSM and the trolls continue to assist in Trump’s path to victory. They only fuel the fire when they ignore or antagonize Republicans. Why is that a good thing? Every pissed off Republican is another call to Congress reps and senators demanding action.
-
-4. 怒火 – 主流媒体和喷子继续帮助川普走向胜利。只有当他们忽视或对抗共和党时，他们才会火上浇油。为什么这是一件好事? 每一个愤怒的共和党人都是要求国会代表和参议员采取行动的另一个呼吁。
-
-5. The Clout – The calls matter! Why? Republicans know that Trump is the way to the Republican voters’ hearts. When the media tried to shame Trump for overshadowing the senators in the GA rally – they basically provided incentive for every Republican to have Trumps back instead.
-
-5. 影响力 – 这些呼吁很重要! 为什么? 共和党人知道，川普是赢得共和党选民芳心的途径。当媒体试图羞辱特朗普在乔治亚州(GA)大会上掩盖了参议员们的光彩时——他们基本上是在激励每个共和党人去支持川普。
-
-**6. The Election Rejection – On January 6th Congress will convene to count the electoral votes. At this time the sitting VP, Mike Pence, has the ability to challenge by refusing to accept the votes from states in which he believes the vote was compromised. Which – he will do.**
-
-**6. ****选举否决****——****国会将于****1****月****6****日召开会议，清点选举人票。此时，现任副总统迈克****·****彭斯****(Mike Pence)****有能力****提出****质疑****，拒绝接受他认为投票受到舞弊影响的州的投票。他会这么做的。**
-
-7. The Second Vote – As directed by the US Federal constitution – a challenged election is settled by a simple majority house vote by ballot. However, the house gets one vote per state not per representative – Giving Trump the Republican majority 26-23 (or 22). Winner takes all.
-
-7. 第二次选举 – 根据美国联邦宪法的指示，一个有争议的选举通过众议院的简单多数投票来解决。然而，众议院每个州而不是每个代表都有一票，这让特朗普在共和党中占26-23(或22)的多数。赢家通吃。
-
-8. The Appeal – Democrats will panic and immediately appeal this decision to SCOTUS. But SCOTUS having set a very clear legal precedent that the power lies with the state legislatures – will again – dismiss the case on standing.
-
-8.上诉 — 民主党人会惊慌失措，立即向联邦最高法院提出上诉。但是联邦最高法院已经建立了一个非常明确的法律先例，即权力属于州立法机构 — 将再次 — 驳回该案件。
-
-9. The Democracy Hypocrisy – Dems and MSM will call Trumps actions unprecedented, claiming irrevocable damage to our Democracy. Except – Biden honored the EXACT same challenge attempted by Democrats in 2016. In which the house majority voted in favor of Trump.
-
-9. 民主的虚伪 — 民主党和主流媒体会称川普的行为是前所未有的，声称对我们的民主造成了不可挽回的损害。除了–拜登对民主党在2016年试图发起的相同挑战表示敬意。那次，众议院多数派投票支持川普。
-
-Edit to #9 – The 2016 challenge did not go to vote due to lack of support from the Senate. The challenge was rejected before the vote took place.
-
-本条更正：由于缺乏参议院的支持，2016年没有对质疑进行投票。这项质疑在投票之前就被否决了。
-
-10. Checkmate – Sauce in form of links to follow: Link 1 was written by a Harvard Government Professor who figured this out way before me (make sure to click full article to see where Trump himself outlined this plan months ago) Link 2 outlines the Dem challenge on Jan 6th 2016.
-
-10.将军 — 资料链接: 链接1是由哈佛大学政府教授，远比我早发现了这些(请点击全文查看几个月前特朗普本人对该计划的概述)。链接2概述了民主党在2016年1月6日的挑战。
-
-———————————————————–
-
-作者认为，最大的悬疑在于：1月6号，在至少有一名众议员和一名参议员提出异议的前提下，现任副总统彭斯会否如上述第6条所述，**拒绝接受他认为投票受到舞弊影响的州的投票，**也就是拒绝州政府提交的84张选票（投民主党），而承认另一套由州议会提交的备用选票（投共和党），从而导致众议院一州一票选出总统（川普必胜），而参议院选出副总统呢？    记得郭文贵先生的“关注两个副总统”的提醒吗？班农大师说过，不相信阴谋论，也不相信巧合。于是，笔者仔仔细细浏览了彭斯副总统总今年11月3日大选到现在的新闻轨迹。 他的推文中，有关大选舞弊的内容只能以个位数计，而且绝对没有明显的“选举舞弊”，“选举欺诈”，“多猫腻系统”，“邮寄选票”，“死人票”等等敏感词的揭露，最明确的表态也不过是11月6日发出的：“我支持川普总统。我们必须计算每一张合法选票！”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17141043/vp-rt1.png)
-随后，11月10日，他又转发了参议院多数党领袖麦.康纳尔的演讲视频：“我们必须计算每一张合法选票！”不巧的是，此位领袖昨天刚刚恭喜了拜登，贺锦丽为当选总统！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17141059/vprt2.png)
-翻阅彭斯副总统近一个多月的推文，给人总体感觉是，满满的正能量，高大上，遍布彩旗飘扬，人头攒动的集会现场图片和视频，政治正确且极少涉及敏感话题，更别提批评CCP、民主党和大选舞弊。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17141122/nyp-vp.png)
-耐热寻味的是，12月16日传出彭斯副总统将要在本周五，在镜头面前注射疫苗。哦，下周拜登也要这么做了。对了，大家还记得还有谁说过要在摄像头前注射疫苗不？
+- 与确诊者共同生活者；
+- 与确诊者曾在一米之内的距离接触过（无论接触时长）；
+- 与确诊者在封闭场所共处超过15分钟者（连续或24小时内累计时长）；
+- 面对面时，确诊者曾咳嗽或打喷嚏。
 
 
+依此标准，马克龙夫人布丽吉特首先被隔离。总统夫人办公室称，截至目前，布丽吉特“未出现任何新冠病征”。就在12月15日，布丽吉特在前往巴黎圣路易医院儿科部慰问时已经做了核酸检测，当时结果为阴性。**周四傍晚，布丽吉特最新核酸检测结果仍为阴性。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17152518/03.png)布丽吉特1953年生人，今年67岁，按法国公共卫生局的标准，算是中共病毒的高风险人群
+此外，总理卡斯泰作为总统马克龙的密接者之一，也已开始隔离。马提尼翁宫方面表示，总理未出现任何病症，周四早上的核酸检测结果呈阴性，按规定，卡斯泰还将在7天后进行二次检测。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17152659/04.png)这是卡斯泰总理第二次作为确诊患者“密接者”进行隔离，上一次是9月初接触了环法自行车赛总监普鲁多姆。（法新社图）
+除了第一夫人和总理，法国总统府秘书长科莱（Alexis Kohler）以及多名顾问也被算作是马克龙的密接者。
+此外，**马克龙本周内就举行了三顿工作餐会（！）**，还在各种活动中接触了这些人：
 
-> 奥巴马，布什，克林顿三位前总统决定等疫苗通过后，在公众面前公开注射疫苗，向普通民众宣传疫苗的安全性，鼓励大家都接种疫苗。这哥仨凑一块去了。话说拜登比他们仨年纪都大，理应最早注射，估计拜登也会比较高调地注射疫苗。如果四个人一起打，就正好凑成一桌麻将了😜 [https://t.co/phSwAbXIjU](https://t.co/phSwAbXIjU)
-> — CalicoCatCaptain (@CalicoCatCapta1) [December 3, 2020](https://twitter.com/CalicoCatCapta1/status/1334383470747897858?ref_src=twsrc%5Etfw)
+**12月16日周三**，**会见葡萄牙总理科斯塔（Antonio Costa）**
 
+科斯塔总理办公室今天发表声明说，**周三会见马克龙后返葡还不到24小时的科斯塔已自主隔离，并取消了职务上的行程。**目前他尚无症状，正等候今天稍早接受检测的结果出炉。
 
+**召开疫情特别会议和部长会议。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17153022/05.png)
+爱丽舍宫强调，参加本周三国防会议的部长不属于密接者，因为大家在开会时严格遵守了防疫措（戴口罩、安全距离）。图为11月12日举行的部长会议。（法新社图）
+与法国国民议会议长费朗（Richard Ferrand）、执政党“共和国前进党”党团领袖卡斯塔内（Christophe Castaner）和弗朗索瓦·白鲁（François Bayrou）**举行晚餐会**。
 
-**彭斯副总统先生，人民在看着您，美国是否会再次伟大，取决于您的正确选择！**
+**12月15日周二**
 
-参考资料：
+与国会议长费朗、议会联络事务部长费斯诺（Marc Fesneau），以及国会各党团领袖**举行午餐会**，其中包括：社会党（PS）党团领袖Valérie Rabault、“行动”党团领袖贝什（Olivier Becht）、极左“不屈的法兰西”党魁梅朗雄、法共议会党团领袖沙塞涅André Chassaigne、共和党议会党团主席阿巴德（Damien Abad）等。据法媒透露，**周二的午餐会全程未开窗透风。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17153310/06.png)梅朗雄周四表示，当时他坐得离总统非常远，“有10米、20米远”，（梅朗雄吐槽自己坐的是“穷人”的位子），所以不能算密接者，因此无意隔离。图为梅朗雄周四发推特称，自己核酸检测结果为阴性。
+**12月14日周一**
 
+**出席气候问题公民咨询委员会（CCC）代表大会。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17153453/07.png)14日，马克龙在公民咨询委员会（CCC）代表大会上。（推特截图）
+- **出席经合组织成立60周年仪式，**期间接触了：**欧洲理事会主席米歇尔（Charles Michel）**
 
-```
-https://twitter.com/Eyconik/status/1338228261483110403?s=20
-https://twitter.com/Victori93908916/status/1338699939686330368?s=20
-https://twitter.com/XiaosongWangUSA/status/1338889090058625026?s=20
-https://twitter.com/htommy998/status/1338680700598284289?s=20
-https://twitter.com/CalicoCatCapta1/status/1334383470747897858?s=20
-```
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17153841/09.png)Barend Leyts发推特说，米歇尔15日的定期筛检结果呈现阴性，并且法国官方也告知其“不属于密者”
+，但米歇尔仍决定从今天开始隔离。图为本周一米歇尔与马克龙会面时互相问候。（法新社图）
+**西班牙首相桑切斯（Pedro Sanchez），将自主隔离至12月24日；**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17154008/10-2.png)12月14日，马克龙出席经合组织成立60周年仪式，并在位于巴黎的经合组织总部与西班牙首相桑切斯、经合组织秘书长古里亚共同为60周年纪念牌匾揭幕。（法新社图）
+**欧委会主席冯德莱恩（Ursula Von der Leyen）；**
 
+**经合组织秘书长古里亚（Angel Gurría）。**
 
-1+
+欧委会主席冯德莱恩（Ursula Von der Leyen）与经合组织秘书长古里亚（Angel Gurría）曾在本周一在爱丽舍宫与马克龙共进午餐。**但欧盟执委会发言人17日指出，法国当局认为，当时两人的会面并不属于密切接触，因此冯德莱恩“无意自主隔离”。**
+此外，**比利时首相亚历山大·德克鲁（Alexander De Croo）因上周四与马克龙会面，也于今天开始自主隔离**，直至核酸检测结果出炉。
+
+文贵先生有说， 美国的国家利益一直都是在欧洲!!!现在一个法国总统确诊，连带着葡萄牙总理、西班牙首相、比利时首相、欧洲理事会主席全部隔离……
+
+0

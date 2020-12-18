@@ -1,41 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欢迎加入英国伦敦喜庄园
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/661081/)
+## YouTube断网后……
+` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/661273/)
 
-## 🇬🇧🇬🇧🇬🇧 欢迎战友们加入英国伦敦喜庄园🌹🌹🌹
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17191829/YouTube%E6%96%AD%E7%BD%91%E5%90%8E%E2%80%A6%E2%80%A6.png)
+作者：神的带领（京都富士会）
+校对：待命（文晓）（京都富士会）
+排版：山頂之風　（京都富士会）
 
-🔹英国喜庄园资管经验丰富，成功地为多国多地的农场战友操作借款！
+国内断网，推倒防火墙是迟早的事，是有充分预期的。但是，YouTube断网确实是我没想到的。这预示着什么？
 
-🔹英国喜庄园在大卫农场主带领下已孵化自己的媒体平台《英国伦敦喜庄园电视台GTV UK》！
+这绝不是共匪的力量。那么，我猜想全球撒谎媒体都快了。我们的GTV、Gnews将成为全世界的唯一，将迎来世界四面八方的人来使用，G TV将成为全世界最稳定的平台。
 
-🔹英国喜庄园绝对保证战友们G系列的投资利益！
+国内义乌、浙江等地先后遭受了突如其来，旷日持久的断电。真不敢想象，漆黑的夜晚怎样回家，怎样吃饭。家住的楼层不高还好，住在高层的，估计只好爬楼梯回家，得从天黑走到天亮。美国还没开始打中共呢，中共就开始对自己的孩子下手了。一旦打起来会是什么样呢？所以，七哥一直说躲到越偏远的地方越好。国内的同胞们，想想七哥哪样都说得那么精准，这次也一定会精准的。保命最要紧，赶紧远离城市、远离军事基地、远离喧嚣繁华的地方。
 
-🔹英国喜庄园潜力巨大，投资环境良好，后面英国在做GCoin发展上有得天独厚的法律和金融优势！
-
-🔹英国喜庄园事儿上见，欢迎战友们背靠背，跟大卫一起建设英国喜庄园！非常感谢💙
-
-🌹请点击🇬🇧英国伦敦喜庄园Discord邀请链接：[https://discord.gg/U9F97ur](https://discord.gg/U9F97ur)
-
-1. 请填写英国伦敦喜庄园（农场）问卷：[问卷链接](https://docs.google.com/forms/d/e/1FAIpQLSeMfpcPiHGwoRW6Za25D183euw0Y_Lwr4ir2f7vNPqBEFLWeA/viewform)
-2. 进入Discord新战友房间报到，与英国伦敦喜庄园办公室负责人进行验证和审核, 然后和大卫（telegram： @David007）确认加入农场， 谢谢！
-
-
-## 大卫介绍如何加入英国伦敦喜庄园
-
-英国伦敦喜庄园：*广结英才, 灭共路上，没你不行，咱们喜马拉雅山巅相聚！支撑着每一位战友的是同一个信仰：新中国联邦！*
-
-
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/093rrtq2YNZe1/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/093rrtq2YNZe1/images/df9c87a0-0986-4672-b5f8-3420b6b3cbbe.jpg?asset_id=d3c22c5d-19d4-4f17-aec3-da1d1d327672&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/093rrtq2YNZe1/images/df9c87a0-0986-4672-b5f8-3420b6b3cbbe.jpg?asset_id=d3c22c5d-19d4-4f17-aec3-da1d1d327672&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
-0
+1+
