@@ -1,25 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 彭佩奥:四方安全对话越来越重要
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/660836/)
+## 彭佩奥继澳洲之后再与日本外相谈四方安全对话
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/661205/)
 
-编辑：Victor Torres
+- 编辑：Victor Torres
+
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2020年12月17日电/西喜社——**
-
-美国国务卿彭佩奥周四发推说:
-“今天很高兴与澳大利亚外交大臣玛莉丝·佩恩（Marise Payne）谈话。 美澳联盟很强大，在我们寻求建立自由开放的印度太平洋地区时，我们在四方安全对话(Quad)的集体工作越来越重要。”
-四方安全对话(Quad)是美国，日本，澳大利亚和印度之间的非正式战略论坛，由成员国之间的半定期峰会，信息交流和军事演习维持。又被称为“亚洲北约”
-该组织的外交和军事安排被普遍视为对中共经济和军事力量增强的回应，而中共政府通过向其成员发出正式外交抗议来回应。
-彭佩奥与佩恩谈话后的发言，表明四方安全对话组织为维护印太地区的自由开放，将采取越来越积极的态度和手段针对中共的威胁。
-
+**西班牙2020年12月17日电/西喜社——**彭佩奥周四晚发推说:
+“今天很高兴与日本外相茂木敏昌谈美日同盟的实力以及我们为推动自由，开放和包容的印度太平洋而进行的四方集体努力。”
+几个小时前，他发推称与澳大利亚外交大臣玛丽丝•佩恩谈“四方安全对话的集体工作越来越重要。”
+美国今天分别与澳，日会谈，并发表声明，表明澳大利亚和日本已接受美国提出的相关战略，形成一致意见。而他们的共同目标，就是中国共产党。
+现在只剩下印度了，让我们拭目以待彭佩奥的下一个推。
+集齐四颗“龙珠”之后，会放什么大招呢?
 
 
-> It was a pleasure speaking today with Australian Foreign Minister [@MarisePayne](https://twitter.com/MarisePayne?ref_src=twsrc%5Etfw). The U.S.-Australia Alliance is strong and our collective work in the Quad is increasingly critical as we seek to build a free and open Indo-Pacific region.
-> — Secretary Pompeo (@SecPompeo) [December 17, 2020](https://twitter.com/SecPompeo/status/1339663109745729536?ref_src=twsrc%5Etfw)
+
+> A pleasure to speak with Japanese Foreign Minister [@moteging](https://twitter.com/moteging?ref_src=twsrc%5Etfw) today about the strength of the U.S.-Japan Alliance and our collective Quad efforts to advance a free, open, and inclusive Indo-Pacific.
+> — Secretary Pompeo (@SecPompeo) [December 17, 2020](https://twitter.com/SecPompeo/status/1339698070737608707?ref_src=twsrc%5Etfw)
 
 
 

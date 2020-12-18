@@ -1,57 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## War Room 589 总结
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/660453/)
+## 川普总统通知延续针对严重侵犯人权和腐败的国家的紧急状态法
+` GM127` [轉載自GNews](https://gnews.org/zh-hans/660610/)
 
-- 编辑：Ranting
-- 作者：Jenny Ball
+新闻简述：川普美国总统2017年12月20日的一项针对世界范围内严重侵犯人权和腐败的国家紧急状态的行政令将继续延期，以应对对美国国家安全，外交政策和经济的非同寻常的威胁。
 
+[阅读白宫原文](https://www.whitehouse.gov/briefings-statements/text-notice-continuation-national-emergency-respect-serious-human-rights-abuse-corruption-121620/)
 
-**CNN之流的主流媒体，成天叫嚷着，一切都要基于科学的数据和基本事实根据。那就仔细看看下面三大类各种选举欺诈的数据和证据吧：**
-1.传统的各种欺诈行为，例如，不满年龄，非本地居民，提前投票等各种猫腻，实际上在亚利桑那州和佐治亚州，有数十万非法选票；
-2. 邮寄选票欺诈，例如，投递箱选票收集，投递箱没有监管链，选票没有进行签名匹配检查；
-3. 多猫腻投票机软件系统欺诈，它们就是计算器制表机。
+Text of a Notice on the Continuation of the National Emergency with Respect to Serious Human Rights Abuse and Corruption
 
-马克·塞拉诺，主动沟通总裁：我们将在今天中午12点的新闻发布会上，发布一份主要报告，内容涉及脸书创始人马克·扎克伯格在2020年大选中，用私人资金影响联邦和州选举的合法性，已经有扎克伯格的黑钱网络证据。
+关于严重侵犯人权和腐败的国家紧急状态法的延续的通知文本
 
-扎克伯格拥有密集的非营利组织和私人资助组织网络，他在选举中投入了5亿美元，而具有讽刺意味的是，三亿五千万美元汇入由前奥巴马特工管理的技术和公民生活中心。他们在整个选举系统中都使用扎克伯格的钱，特别是在亚特兰大，费城，底特律，密尔沃基，明尼阿波利斯和凤凰城。他们将资金投给民主党阵营，以增加摇摆州的民主党投票率。
+LAW & JUSTICE
 
-扎克伯格为选举筹集资金，是我们美国大选历史上所见过的最黑暗的一笔钱，尤其是与州政府合作，将左翼组织直接联网选民登记册。问题是，你不能用私人资金来资助政府机构进行选举。请注意，还是纳税人的钱在帮助他提供资金，因为他通过将资金赠予非盈利组织，从而获得了税收减免。
+法律与司法
 
-这份报告详细介绍了扎克伯格的资金如何通过民主基金，新创基金，学校基金会，骑士基金会，公民设计中心，电子创新中心，研究国家选民，家庭研究所，安全监控中心等团体，参与操纵选举和投票。
+Issued on: December 16, 2020
 
-本诉讼的三个核心内容是：
-1. 我们选举管理及点票工作中看到的，发生在选举日及之后的欺诈行为；
-2. 越过州立法机构所做的法律修改；
-3. 实地发生的欺诈行为。
+发布日期：2020年12月16日
 
-没有任何主流媒体去深入研究这个报告。实际上，大多数主流媒体都有意忽略它，并指责报告内容是欺诈。我们希望立法者调查这些证据，以便进一步采取行动。这样才能做到，人们的选择就是白宫的最终选择，并且不让这种欺诈行为再次发生。主流媒体非常令人失望，他们的不齿也不是新鲜事了。
+On December 20, 2017, by Executive Order 13818, the President declared a national emergency with respect to serious human rights abuse and corruption around the world and, pursuant to the International Emergency Economic Powers Act (50 U.S.C. 1701 et seq.), took related steps to deal with the unusual and extraordinary threat to the national security, foreign policy, and economy of the United States.
 
-**亚利桑那州州代表马克·芬赫姆**：12月18日，下周一，董事会监事要求我们将报告中的信息发回给法医小组。因此，令人欣慰的是，有了这些数据，我们可以以此类推，用安特里姆郡得到的数据，推算出约有450万选民的马里科帕县非法选票数据。因此，这是一个巨大的发展。
+2017年12月20日，美国总统根据第 13818 号行政命令，宣布了一项针对世界范围内严重侵犯人权和腐败的国家紧急状态，并根据《国际紧急经济权力法》（《美国法典》第 50 卷第 1701 条及以下）采取相关的措施以应对对美国国家安全，外交政策和经济的非同寻常的威胁。
 
-如果我们关注那些我们怀疑的欺诈可能性最高的目标，从现在的数字开始，我要挑战亚利桑那州每个县的选举官员和每个县的选举记录，因为我们只看了十五分之一。我要他们自愿将选票图像发送给我们，实际上在1月1日之后，它们就是公开记录信息了，必须保留两年。
+The prevalence and severity of human rights abuse and corruption that have their source, in whole or in substantial part, outside the United States, continue to pose an unusual and extraordinary threat to the national security, foreign policy, and economy of the United States.  For this reason, the national emergency declared on December 20, 2017, must continue in effect beyond December 20, 2020.  Therefore, in accordance with section 202(d) of the National Emergencies Act (50 U.S.C. 1622(d)), I am continuing for 1 year the national emergency declared in Executive Order 13818 with respect to serious human rights abuse and corruption.
 
-如果没有班农先生作战室的节目，我们的11个小时听证会和这份报告发布将不会发生。我认为人们应该引起注意，并不断轰炸参议员和代表，向他们施加足够的压力，让他们开始行动。观看此节目的人们，都能识别其他虚假新闻的节目，那些节目在极力误导民众，他们这样的黑手党媒体，不希望这些信息传播出去。
+其全部或大部分来自美国境外的侵犯人权和腐败的普遍性和严重性，继续对美国的国家安全，外交政策和经济构成非同寻常的威胁。根据这个原因，2017年12月20日宣布的国家紧急状态必须在2020年12月20日之后继续有效。因此，根据《国家紧急状态法》（《美国法典》第50卷第202条），我继续执行一年 13818 号行政命令宣布的关于严重侵犯人权和腐败的国家紧急状态。
 
-我认为，这样做是因为我们热爱我们的国家，是平民民族主义思维方式，当有人无视所提供的证据时，我们不会袖手旁观。必须要理解这个重要性。
+This notice shall be published in the Federal Register and transmitted to the Congress.
 
-**班农先生**：总统先生可以做到的有，1，解密信息；2宣布，像斯塔尔法官这样的人士为特别检察官，调查选举欺诈或选民欺诈；3，指定特别检察官，调查拜登犯罪家族和中国共产党对美国的渗透。**十字路口节目主持人约书亚·菲利普的**90分钟纪录片，将说明这样做的原因，约书亚一年前还做了类似的纪录片，研究CCP病毒的起源。
+该通知应在《联邦公报》上发布并发送给国会。
 
-**约书亚·菲利普：**选举日，我在选举，到晚上11点，看起来川普已经获胜，从统计数据看，他不可能失去统计数据，那也是看到媒体在宣布选举结果，但是所有那些摇摆州都拒绝宣布选举结果，尽管川普在那些州的领先程度，比那些已经宣布结果的州高出很多。更奇怪的是，所有这些州突然全体停止计票，然后又突然在凌晨3点左右，他们都又开始计票，而且数据突变发生了反转。
+DONALD J. TRUMP
 
-这些都告诉我，发生了非常怪异的事情，调查记者关注什么？关注异常的事情。这就是我们开始调查的原因。
+唐纳德·川普
 
-最初的分析是基于第一天晚上的数学结果。这是看到媒体开始行动，2016年至2017年期间，《纽约时报》，CNN这些大型媒体，他们一直在告诉我们，多猫腻投票机有问题，选举制度存在问题，存在所有的漏洞。而这些漏洞不仅没有堵住，而且在2020年选举中给放大了。
+THE WHITE HOUSE,
 
-由于CCP病毒，州政府宣布封城，他们不合法地绕过州立法机构，来更改这些州的法律。当把所有这些异象放在一起时，您会开始发现这些事件之间的联系，再看媒体对真相的掩盖，您会知道发生了什么，中共利用中共病毒来影响美大选，并把中共独裁模式扩展到世界各地。
+白宫
 
-这是“大重置”原因。这就是这个国家权势阶层想要模仿中共，想要国家资本主义的威权主义。这些都是司马昭之心，显而易见的。
+December 16, 2020.
 
-**拉希姆·卡萨姆**：在参议员听证会上，左派试图将一切，无论是有关多猫腻软件的新闻，还是有关地狱硬盘的新闻，全都说成是“俄罗斯的虚假信息”。
+2020年12月16日。
 
-**班农先生**：我们需要像罗恩·约翰逊和兰德·保罗这样的参议员，他们也需要人民的支持。请大家都上网，去打电话，发电子邮件，告诉他们：我们想要更多这样的行动。我们热爱你们的战斗行动。
-
-
-
+翻译：【JennyL】编辑：【Isaiah4031】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22111053/VOG-Rose-Garden-Team.png)
 0
