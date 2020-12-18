@@ -1,37 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 彭斯副总统将在白宫电视上直播接种疫苗？
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/661362/)
+## 【林伍德律师推文1217】-最高法院的腐败
+` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/661405/)
 
-整撰：文錦 复核：WENJUN
+当日西德尼-鲍威尔律师发推文称，
 
-据NEWSMAX 12月17日报道，为了增强 美国人民的”疫苗信心”，美国副总统迈克-彭斯（Mike Pence）计划周五在白宫的镜头下接种辉瑞公司的第一剂疫苗。
+“最高法院的电子申请系统显示，我们在乔治亚州和密歇根州的紧急请愿书有备案，但进展缓慢，州政府回应截止日期是1月14日！今天它最终上交了我们对亚利桑那州和威斯康星州在周五提交的紧急请愿书，但被（最高法院）无情地拒绝了。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17201154/%E5%9B%BE%E7%89%87-1-30.png)
+林伍德律师对此回推说，“我想很多人今天都知道了为什么最高法院要拒绝寻求公平审查的请愿书。罗伯茨（John Roberts）和布雷耶(Stephen Breyer)是 “反川者”，他们应该立即辞职。罗伯茨有其他理由辞职。他是（法官）办公室和国家的耻辱。”
 
-彭斯副总统是川普总统最初指定白宫冠状病毒工作组的领导人，但是我们看到美国疫情爆发时期，川普总统一直坚持在抗疫的最前沿。彭斯副总统预计电视将对这一事件进行报道，第二夫人凯伦-彭斯和外科医生杰罗姆-亚当斯将出席这一活动。亚当斯是一名黑人，他还希望在少数族裔中灌输对疫苗的信心。
+林伍德律师今日早些时候的推文称，
 
-“根据最新一期的Axios/ Ipsos冠状病毒指数，表示一旦有COVID-19疫苗就会接种的美国人的比例自9月以来增加了一倍，现在有超过四分之一的人举手，”Axios的玛格丽特-塔列夫（Margaret Talev）报道。
+“我对最高大法官罗伯茨在艾普斯坦（Jeffrey Epstein）私人飞机飞行记录一直有疑问。 我怀疑（他就）是我们的首席大法官。主流媒体没有任何兴趣去调查问题、寻找真相。
 
-“总体而言，每周进行的全国民意调查第33轮调查中有27％的受访者表示，他们计划尽快向他们提供疫苗，高于9月份的13%。另有11%的人说他们会在几周后接种；25%的人说会在几个月后接种；15%的人说会等一年或更长时间。
+“美国现在有权知道答案。
 
-“现在有40%的65岁以上的美国人表示，只要有药就会服用–比起三个月前只有15%的比例有了很大的提高。”
+“每一个谎言都会被揭穿。
 
-不过，据塔列夫称，”29%的美国黑人、26%的共和党人和21%的整体受访者表示，无论时间过了多久，他们都不打算注射疫苗。”
+“祈祷吧。”
 
-编者观点：
+林伍德律师的另外一则推文写道，
 
-从中共病毒在美国爆发至今，福奇博士一直扮演着站在总统身后，实际却干着与川普政府背道而驰的“勾当”。《路德社》墨博士指出，当川普总统积极拟定疫苗“神速行动”计划时，福奇博士也站在对立面。今年5月份（疫情）国会内部听证会和7月份的众议院疫苗听证会上，福奇博士都提出了质疑，称疫苗无法挽救和阻止病情，特别是紧急开发的疫苗会存在着巨大的风险。
+“腐败和欺骗已经侵入了我们国家最有权力的办公室—美国最高法院首席大法官。
 
-而当美国总统大选结果还悬而未决的时刻，福奇博士却为乔-拜登“当选“总统和疫苗的出台积极造势，最近福奇被拜登任命为首席医疗顾问，川普总统的身边很长时间也看不到这位全球顶尖传染病专家的身影。
+“这是我们国家的悲哀，但也是我们必须醒悟和面对真相的一天。
 
-如今根据这则报道，“为提振全美人民对COVID-19疫苗的信心，彭斯总统计划亲力而为向全美直播自己接种辉瑞公司疫苗”，如果这一消息属实，则正好与福奇博士15日发出的强烈希望川普总统、彭斯副总统及乔-拜登和贺锦丽接种疫苗的建议不谋而合。到目前为止，仅彭斯副总统一人响应了福奇博士的“号召”。
+“罗伯茨就是最高法院没有对选举案件采取行动的原因。其他人也有涉案。”
 
-彭斯副总统作为一个美国人，他权利和自由决定是否接种疫苗，作为一个政治人物，他的举动当然也有政治含义，也会代表着一定利益指向。站在爆料革命倡导的唯真不破的立场，我们更愿意推崇闫丽梦博士的专业观点：解决新冠病毒的唯一办法是先追责中共让其交出毒株，然后研究解决病毒的方案，例如研发疫苗等。
 
-参考链接：
 
-[https://www.newsmax.com/politics/mike-pence-vice-president-vaccination-immunization/2020/12/16/id/1001908/](https://www.newsmax.com/politics/mike-pence-vice-president-vaccination-immunization/2020/12/16/id/1001908/)
+> I think many are today learning why SCOTUS is rejecting petitions seeking FAIR review. Roberts & Breyer are “anti-Trumpers” They should resign immediately. CJ Roberts has other reasons to resign. He is a disgrace to office & to country.[@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw)[@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) [https://t.co/KvjihiLvLT](https://t.co/KvjihiLvLT)
+> — Lin Wood (@LLinWood) [December 17, 2020](https://twitter.com/LLinWood/status/1339674878996148224?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> I have long had questions about “the John Roberts” on Jeffrey Epstein private jet flight logs. I suspected it was our Chief Justice. MSM has shown no interest in investigating issue to find TRUTH.
+> 
+> America is now entitled to know the answer.
+> 
+> Every lie will be revealed.
+> 
+> Pray.
+> — Lin Wood (@LLinWood) [December 17, 2020](https://twitter.com/LLinWood/status/1339640105800089600?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Corruption & deceit have reached most powerful office in our country – the Chief Justice of U.S. Supreme Court.
+> 
+> This is a sad day for our country but a day on which we must wake up & face the truth.
+> 
+> Roberts is reason that SCOTUS has not acted on election cases. Others involved.
+> — Lin Wood (@LLinWood) [December 17, 2020](https://twitter.com/LLinWood/status/1339639287827062796?ref_src=twsrc%5Etfw)
+
+
+
+新闻素材和图片来自林伍德律师推特
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17195020/Wenya-Logo-5.png)
+
+
 
 0

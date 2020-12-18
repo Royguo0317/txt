@@ -1,26 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 彭佩奥继澳洲之后再与日本外相谈四方安全对话
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/661205/)
+## 纳瓦罗报告确认：2020年大选存在六大欺诈行为，媒体掩盖事实真相
+` GM107` [轉載自GNews](https://gnews.org/zh-hans/661237/)
 
-- 编辑：Victor Torres
+一份详述困扰2020年大选的大规模欺诈行为的最新报告称，”在六个层面和六个战场州 “存在着广泛的、”大刀阔斧式 “的盗窃策略。报告引用了全面的证据，揭露了存在**制造假票、贿赂、死亡选民、重罪犯/非法移民 、选票的多次计算、州外选民**等六大欺诈行为，并抨击媒体未能准确报道此事。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17191048/Fx7hRhCH.jpg)
+在报告中，作为白宫贸易顾问的彼得-纳瓦罗概述了发生在亚利桑那州、佐治亚州、密歇根州、内华达州、宾夕法尼亚州和威斯康星州的 “针对川普和彭斯的有效抵消选举赢面的的协调战略”。
 
+纳瓦罗报告还指出，**川普总统在佐治亚州、宾夕法尼亚州、密歇根州和威斯康星州的领先优势如何被 “大量的邮寄选票和缺席选票 “逆转**。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+报告解释了 “赤裸裸的选民舞弊”，包括 “大规模制造假选票、贿赂和死亡选民”，以及 “重罪犯和非法移民等无资格选民投下的选票，多次计算的选票，以及非法的州外选民 “，是如何扰乱着摇摆州。
 
-**西班牙2020年12月17日电/西喜社——**彭佩奥周四晚发推说:
-“今天很高兴与日本外相茂木敏昌谈美日同盟的实力以及我们为推动自由，开放和包容的印度太平洋而进行的四方集体努力。”
-几个小时前，他发推称与澳大利亚外交大臣玛丽丝•佩恩谈“四方安全对话的集体工作越来越重要。”
-美国今天分别与澳，日会谈，并发表声明，表明澳大利亚和日本已接受美国提出的相关战略，形成一致意见。而他们的共同目标，就是中国共产党。
-现在只剩下印度了，让我们拭目以待彭佩奥的下一个推。
-集齐四颗“龙珠”之后，会放什么大招呢?
+纳瓦罗还声称，**“选票处理不当”，通过 “缺乏足够的选民身份检查”、”滥用签名匹配”、”回溯选票”、”保管链断裂 “等方式，危害了选举结果。**
 
+滥用投票监督员和观察员、允许不正当登记的人投票、非法篡改选票等有争议的程序性错误也扰乱着每个摇摆州。
 
+所有六个州还违反了平等保护条款，对选票固化、投票监督员待遇以及亲自和邮寄选票的认证，执行不同的标准。
 
-> A pleasure to speak with Japanese Foreign Minister [@moteging](https://twitter.com/moteging?ref_src=twsrc%5Etfw) today about the strength of the U.S.-Japan Alliance and our collective Quad efforts to advance a free, open, and inclusive Indo-Pacific.
-> — Secretary Pompeo (@SecPompeo) [December 17, 2020](https://twitter.com/SecPompeo/status/1339698070737608707?ref_src=twsrc%5Etfw)
+**用于进行选举的机器也助长了舞弊行为，出现了 “大规模的不准确，加上莫名其妙的选票转换和选票激增，往往有利于乔-拜登”**。
 
+纳瓦罗列举了过高的选民投票率、 不寻常的选票激增 ，以及从各县的党派历史和选民登记情况来看 ，不可能出现的统计结果。
 
+纳瓦罗的结论是：**本报告中发现的大量选举欺诈证据和违规模式，对任何人来说都是不负责任的，特别是主流媒体——声称 “没有证据 “表明存在欺诈或违规行为**。
 
-0
+新闻来源：国家脉动
+原文链接：[https://thenationalpulse.com/news/navarro-report-conclusive-slams-media/](https://thenationalpulse.com/news/navarro-report-conclusive-slams-media/)
+
+1+
