@@ -1,45 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【朱利安尼推文1712】-犯罪分子乔拜登绝不能当总统
-` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/661916/)
+## 【林伍德律师推文1217】-信仰的力量摆脱中共金钱诱惑
+` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/662012/)
 
-朱利安尼市長周四的节目纠正了主流媒体一个错误，就是：
+经过了一天紧张的战斗，林伍德律师当天深夜连发三条推文，针砭大选中的舞弊行为和犯罪分子，他指出要摆脱中共金钱的诱惑，战胜邪恶，战胜弱点，并鼓励人们从善如流，用信仰指引方向，否则将面对丢掉饭碗接受法律和道德审判的结局。
 
-“拜登犯罪家族图腾柱的顶端是： 乔‧拜登！
+推文内容如下：
 
-“主流媒体试图将所犯的罪行推到亨特-拜登身上。不能让他们逍遥法外!”
+我们人民已经到达如此的地步，我们已经看到和经历了政府中足够的腐败。受够了。
 
+我们当选的官员是肮脏的。他们需要坦白。
 
+这里有一些简单的建议，关于如何清理你们给我们国家造成的混乱。
 
-> The top of the BIDEN CRIME FAMILY totem pole: Joe Biden!
-> 
-> The MSM is attempting to push the crimes committed off on Hunter Biden. Don’t let them get away with it!
-> 
-> Rudy Giuliani breaks it down here: [https://t.co/DqqxcvdgXb](https://t.co/DqqxcvdgXb) [pic.twitter.com/H80c26nUdF](https://t.co/H80c26nUdF)
-> — Rudy W. Giuliani (@RudyGiuliani) [December 16, 2020](https://twitter.com/RudyGiuliani/status/1339350926021292034?ref_src=twsrc%5Etfw)
+如果你说真话，你会发现我们人民的青睐。你的回报将是巨大的。
 
+“遵行他的诫命的人有福了，他们可以得到生命树的权利，并可以从城门进去。”
 
+– 启示录22: 14
 
-朱利安尼先生继续发推称：
+击败中共的钱。
 
-“乔拜登是30年RICO法案间谍的头号人物，亨特只是替罪羊。” 推文同时引用了硬盘门曝光的亨特的信，表明乔拜登才是这个家庭里真正贪婪和罪恶的元凶。
+如果你继续为了中共的金钱、权力和影响力而对我们人民撒谎，你的结局不会好的。我们就炒掉你。
 
+这样就不好了。
 
+“因为没有狗，巫师，行凶者，杀人犯，没有偶像崇拜，也没撒谎者。”
 
-> Joe is the top of the 30 year Rico conspiracy. Hunter is the scapegoat. [pic.twitter.com/m0xPSSSrcs](https://t.co/m0xPSSSrcs)
-> — Rudy W. Giuliani (@RudyGiuliani) [December 18, 2020](https://twitter.com/RudyGiuliani/status/1339817748562665473?ref_src=twsrc%5Etfw)
-
-
-
-在亨特拜登硬盘门的海量证据和民意面前，一些主流媒体不得不面对拜登家族与中共勾兑卖国犯罪的事实，然而仍在力保乔拜登，顾左右而言他，转移矛盾到亨特拜登。殊不知如果不是亨特的副总统父亲乔拜登在位，而其实权早已在当时奥巴马总统之上，怎会出现如此惊天卖国大案、置国家安危于不顾，将中共这个诈骗小怪兽姑息并放养成今天的邪恶巨兽？乔拜登的犯罪事实绝不能被转移，中共这一罪恶的根源绝不能被弱化。
+– 启示录22: 15
 
 
 
-新闻素材和图片来源于朱利安尼推文和爆料革命战友
 
 
+新闻素材和图片来自林伍德律师推特
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17195020/Wenya-Logo-5.png)
 
-0
+1+
