@@ -1,55 +1,142 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 林郑月娥令香港人做中共疫苗小白鼠
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/661586/)
+## 《路德时评》深度解析：美国务院火力全开直指中共
+` GM141` [轉載自GNews](https://gnews.org/zh-hans/661613/)
 
-*加拿大多伦多枫叶农场 文𤦍(Manpui）
-校对、上传 文锦*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17215646/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE278.png)
-据No Stake 医学生12月11日报道：林郑宣佈，首批中共病毒疫苗一百万剂预计将会下个月到港，打到香港人身上。关于中共科兴公司生产的疫苗，香港人有至少三件事要清楚。
+视频来源：
 
-1. **疫苗有效率不明确**。
-
-
-一般来说，任何药物要经过三期临床试验，确保有效、安全，才可正式采用。但第一批到港的中共科兴疫苗，并未完成三期临床试验！有报导误传有效率达八成甚至 97%，都是假消息。早在三日前，科兴已澄清，97% 只是血清内出现抗体的比率，不代表临床可以避免感染中共病毒的「有效率」。真正有效的临床安全数据尚未公佈，因为试验仍然在巴西等各国进行。
-
-公司指第三期数据在一月有可能公佈，林郑就放言一月会帮一百万香港人打这种成效未明的中共国疫苗。你听完放不放心，就自己判断啦。
-
-1. **科兴公司曾贿赂官员，加快疫苗审批**
+1. [https://www.youtube.com/watch?v=00CKdcx6vmw](https://www.youtube.com/watch?v=00CKdcx6vmw)
+2. [https://www.youtube.com/watch?v=Wh6nIz5Bl3Q](https://www.youtube.com/watch?v=Wh6nIz5Bl3Q)
+3. [https://www.youtube.com/watch?v=7ZIvMbyE5as](https://www.youtube.com/watch?v=7ZIvMbyE5as)
 
 
-2016 年，科兴生物创始人兼首席执行官尹卫东在法庭证词中承认，由 2002 年到 2011 年，他曾向负责疫苗审核的药监官员尹红章行贿 55 万人民币。药监官员则承认，作为回报，加快了批准科兴的疫苗（SARS、禽流感、甲型流感疫苗等）。尹红章后来因受贿罪被判 10 年监禁，而科兴生物 CEO 则免予起诉（这就是中共司法）。
-科兴公司这次中共病毒疫苗未公布临床试验数据，就可在香港大量使用，又会是什么原因呢？
-
-1. **曾有接种者出现不明严重不良反应**
 
 
-如上述，疫苗目前在巴西进行试验。曾经有报导指出，有参加试验者出现“严重不良反应”，结果试验一度被叫停。结果有位志愿者的官方死亡原因被列为自杀，然后巴西当局批准中共疫苗试验重新开始进行。
-实际上这位志愿者究竟出现什么“不良反应”，又有多少接种疫苗者有各种不良反应，我们无从得知，因为都是那句，他们还未出试验报告。
+《路德时评》2020年12月17日晚间节目主要内容：
 
-《自由亚洲电台》早前报道，数百名接种过疫苗的外派员工，仍然集体感染中共病毒。
+一、美国国务院火力全开直指中共
 
-在塞尔维亚的天津电力建设公司内部，也传出400名员工中，已有约300人确诊。内部人员向《自由亚洲电台》证实，从6月起，外派员工需要接种过国药集团的疫苗。
+美国国务院12月18日发推[1]：中国共产党构成了真正的威胁。我们希望中国以我们要求其他国家参与的方式参与世界舞台。
 
-中共驻安哥拉大使馆的说法是，当事人没有严格遵守接种规定和程序导致疫苗无效。而没有任何帮助。
 
-林郑宣佈，一月会帮一百万香港人打这种成效未明的中共疫苗。香港也是按照优先群组次序进行大规模疫苗接种，首先安排医护人员、长者、长期病患者、安老或残疾院舍员工等约300万人接种疫苗。目标在明年内为大部分巿民免费注射疫苗。
 
-另据中共大陆媒体报导；“公开资料显示，国药集团是中国唯一一家由国务院国资委直接管理的中央医药企业，旗下有1500多家子公司，其中6家为上市公司。国药集团共有2款灭活新冠疫苗，由旗下的子公司中国生物研发（国药集团持股比为95%）。受疫苗申请上市的好消息影响，中国生物上个月一度上涨9%，国药控股、国药一致上涨4%。”
 
-一句到尾都同“利益”有关，事实摆在大家面前。
-但无论大家怎样想，我们亲爱的林郑政府已经不考虑香港人接不接受、同不同意的情况下订了一百万剂中共病毒疫苗，可能下个月就帮你家中二老打啦，大家自求多福。
 
-**评：**
+> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): The Chinese Communist Party poses a real threat. We want China to engage on the world stage the way we ask every other nation to. [pic.twitter.com/mQ7bHnXES1](https://t.co/mQ7bHnXES1)
+> — Department of State (@StateDept) [December 17, 2020](https://twitter.com/StateDept/status/1339526199794675712?ref_src=twsrc%5Etfw)
 
-中共首先在武汉放毒害自己的老百姓，然后故意全球放毒，岂止是制裁香港学生不听话，其目的是全球利益集团联盟控制美国大选、制造大选“舞弊”。沼泽地的“鳄鱼”张牙舞爪让他们一手捧上台的傀儡帮助他们用全球纳税人的钱购买中共病毒疫苗。拿走你的钱袋子，拿走你的基因数据。
 
-地球人哪个不听话？这就是为什么比尔·盖茨、马克·扎克伯格、马云等一众功臣帮凶的贪婪行为。
 
-*资料来源：*
-科兴生物澄清新冠疫苗尚无有效率数据
-科兴疫苗　早年行贿黑料再被揭
-新冠疫苗：巴西志愿者之死引发的关注
 
-0
+
+随后，国务院再次发推[2]：中国共产党对美国国家安全的威胁延伸到我们的金融市场，并影响了美国投资者。了解流入主要指数的资金如何支持参与军事生产和侵犯人权行为的中国公司：
+
+
+
+
+
+> The Chinese Communist Party’s threat to American national security extends into our financial markets and impacts U.S. investors. Learn how money flowing into major indices supports Chinese companies involved in military production and human rights abuses: [https://t.co/ahxkGBFpjL](https://t.co/ahxkGBFpjL)
+> — Department of State (@StateDept) [December 17, 2020](https://twitter.com/StateDept/status/1339560255580205059?ref_src=twsrc%5Etfw)
+
+
+
+
+
+两小时后，再次发推[3]：为了维护我们的自由社会，我们的繁荣和我们的未来，我们必须共同努力，唤醒北大西洋公约组织应对中共国的挑战。
+
+
+
+
+
+> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): We have to work together to continue the Transatlantic awakening to the China challenge, in the interest of preserving our free societies, our prosperity, and our future. [pic.twitter.com/fLYIHemPUk](https://t.co/fLYIHemPUk)
+> — Department of State (@StateDept) [December 17, 2020](https://twitter.com/StateDept/status/1339586746393063425?ref_src=twsrc%5Etfw)
+
+
+
+
+
+两小时后，又再次发推[4]：中国共产党想要我们拥有的一切，它竭尽所能地从窃取我们的东西到迫使中共批评家保持沉默。
+
+
+
+
+
+> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): The Chinese Communist Party wants what we have, and it’ll do whatever it takes to get it, from stealing our stuff to pressuring critics of the CCP to keep quiet. [pic.twitter.com/W5wetXzQBf](https://t.co/W5wetXzQBf)
+> — Department of State (@StateDept) [December 17, 2020](https://twitter.com/StateDept/status/1339617671420268547?ref_src=twsrc%5Etfw)
+
+
+
+
+
+路德社评论如下：
+
+- 国务院连续多次发推直指中共对世界构成重大威胁，同时又希望中国按其他国家一样参与世界舞台，可以看出美国国务院有意将中共与中国分开；
+
+
+- 国务院也提及要唤醒北大西洋公约组织应对中共的威胁，这都在为接下来一系列行动做准备；
+
+
+- 这几十年，中共利用创造的财富加强权力的控制，这财富是从中国百姓手中掠夺而来，是从世界人民手中欺骗来的，他们利用高科技对百姓进行压迫，习的一系列行为已经表明他的意图；
+
+
+- 从国务院发推内容可以看出，彭佩奥国务卿已经和北约达成行动协议，同时也细数了中共危害自由、人权、网络安全、美国金融、军事安全和美国国家主权安全的种种罪行。
+
+
+
+
+二、中共解放军爽约中美海空军事安全对话
+
+美国印太司令部12月16日发文[5]：解放军（PLA）拒绝参加原定于2020年12月14日至16日举行的与美国印度太平洋司令部举行的海空军事安全对话，中国解放军单方面未提前通知就爽约，一定是中共高层下达禁止参会命令。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17223336/%E5%86%9B%E4%BA%8B%E5%AF%B9%E8%AF%9D.jpg)[图片地址](https://media.defense.gov/2020/Dec/16/2002553415/-1/-1/0/201214-N-XC372-0104.JPG)
+
+
+路德社评论：
+
+- 此次对话称为“MMCA”，是中美双方在1998年共同签署一项定期举行军方对话会议，旨在加强海上和空中安全，降低两军误伤等风险展开一系列对话；
+
+
+- 中共军方单方面缺席该会，意味着双方军事对话通道关闭，再加上中共在南海的种种违反国际法的行为，双方擦枪走火的可能性大大提高；
+
+
+- 中共爽约此次对话极有可能是想拖延时间，避免谈及南海违建岛礁问题，他们想等待拜登上任后再展开对话。
+
+
+
+
+三、纳瓦罗发布36页报告揭露美国大选舞弊
+
+《大纪元》12月18日报导[6]：美国白宫贸易与产业顾问纳瓦罗（Peter Navarro）周四（12月17日）发布题为“完美欺诈：选举违规的六大关键层面”的分析报告，揭示美国2020总统大选中六个摇摆州的异常表现。报告共36页，对近期公开的选举违规证据进行了审查和分析，并评估和确定了六个关键战场州存在的主要选举违规行为指控。这六个关键战场州分别是：亚利桑那州、乔治亚州、密歇根州、内华达州、宾夕法尼亚州和威斯康星州。选举违规行为概括为六个层面，包括：直接的选民舞弊、选票处理不当、有争议的程序犯规、违反平等保护条款、投票机违规和重大统计异常。
+
+路德社评论：
+
+- 该报告是纳瓦罗在Warroom平台发布的个人报告，并非代表白宫；
+
+
+- 纳瓦罗曾任职于某名校经济学教授，有极高的学术素养，他在报告中汇总了六个州大选舞弊的信息，提供了一系列数据和图表，还有论点、论据和最终结论，该报告是以学术文献的形式发表，与媒体报导大相径庭；
+
+
+- 这份报告具有独特的学术报告框架，不但可以永久保存，未来其他学术机构或个人撰写学术报告时，还可以对该报告进行引用。
+
+
+
+
+
+
+参考文章：
+
+[1]https://twitter.com/StateDept/status/1339526199794675712
+
+[2]https://twitter.com/StateDept/status/1339560255580205059
+
+[3]https://twitter.com/StateDept/status/1339586746393063425
+
+[4]https://twitter.com/StateDept/status/1339617671420268547
+
+[5]https://www.pacom.mil/Media/News/News-Article-View/Article/2449543/pla-a-no-show-for-operational-maritime-and-aviation-safety-dialogue/#.X9uAoSjEdNA.twitter
+
+[6]https://www.epochtimes.com/gb/20/12/17/n12628200.htm
+
+文章撰写：【重生】   编辑：【GM141】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14081816/%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%95%86%E6%A0%87.png)
+1+

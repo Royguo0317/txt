@@ -1,34 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 墙内部分地区限电的真实原因——看中共如何愚民
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/661719/)
+## 鲍威尔和林伍德敦促扣押投票机
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/661736/)
 
-撰稿：Albus  -gtv
+- 编辑：Victor Torres
 
-审稿：Jenny
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17214445/power-outage-china.jpg)网络截图
-据中共国搜狐等新闻报道，近日湖南、浙江多地出台措施拉闸限电。共匪给出的理由是国外企业受疫情情影响处于关停状态，圣诞新年的前大量高耗能的订单转移到国内。这样国内企业的需要的电量增多；另为保障空气好而减少煤炭的用量；共匪同时在墙內宣传俄罗斯限制对中共的送电以转移矛盾，实际上俄罗斯的供电对中共的影响很小。
 
-此次限电的真实原因是因为澳洲政府与美国正义力量一同揭露疫情的真相。中共要制裁澳大利亚，停止从澳大利亚进口优质煤炭。对于以火电为主的中共国供电系统，停止从澳大利亚进口后供电的压力非常大，所以出台了这样的措施。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-共匪的新闻就要反的去看。中共最擅长的就是洗脑和与那愚弄国内的百姓，且全然不顾寒冬里瑟瑟发抖的墙内韭菜的死活。
+**西班牙2020年12月18日电/西喜社——**
 
-相信共产党跑步进入火葬场。对于即将到来的热战、疫情、粮荒、通胀，墙内的华人即将会面临严重的生存危机;墙外的华人则可能因共匪的投放病毒引起的疫情，引起其他文明世界的排斥和敌对。
-
-海内外的华人，你做好准备了吗？如果你还相信他们所谓的报道，那么雪崩到来的时候没有一片雪花是无辜的，也不可能独善其身！
-
-个人观点仅供参考。
-
-引用的内容的出处
-
-[https://www.sohu.com/a/438723053\_313745](https://www.sohu.com/a/438723053_313745)
+周四晚，悉尼•鲍威尔和林伍德分别发推，要求扣押投票机。
+鲍威尔说: “为即时取证检查扣押(投票)机器。 如果没有欺诈，那么左派应该欢迎它！ 没有什么可以隐藏的人，什么都不掩饰。”
+林伍德称:“我代表我们人民，敦促川普总统行使他的行政权力，以指示美国法警扣押11月3日选举中使用的投票机。 我们只要求收到我们应得的：我们要知道我们珍贵的投票权没有被偷走。”
 
 
 
-> 禁止澳洲煤进口，发电厂煤炭紧张，动力煤价格飙升，导致限电，为了掩盖这个问题，大力鼓吹俄罗斯停止供电的消息。实际上买俄罗斯电只不过是找个由头给点钱给俄罗斯罢了，对整体供电没有影响。
-> — 曾畅 (@f1Fce4BQgUnJoFo) [December 16, 2020](https://twitter.com/f1Fce4BQgUnJoFo/status/1339151158359719936?ref_src=twsrc%5Etfw)
+> Impound the machines for immediate forensic inspections. If there was no fraud, the [#Left](https://twitter.com/hashtag/Left?src=hash&amp;ref_src=twsrc%5Etfw) should welcome it! 
+> People who have nothing to hid, hide nothing. [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) [@RealJamesWoods](https://twitter.com/RealJamesWoods?ref_src=twsrc%5Etfw) [@RealRLimbaugh](https://twitter.com/RealRLimbaugh?ref_src=twsrc%5Etfw) [@marklevinshow](https://twitter.com/marklevinshow?ref_src=twsrc%5Etfw) [@Scavino45](https://twitter.com/Scavino45?ref_src=twsrc%5Etfw) [@BillWhiteNY](https://twitter.com/BillWhiteNY?ref_src=twsrc%5Etfw) [https://t.co/yNpjnA6jRa](https://t.co/yNpjnA6jRa)
+> — Sidney Powell 🇺🇸⭐⭐⭐ (@SidneyPowell1) [December 18, 2020](https://twitter.com/SidneyPowell1/status/1339760298484482049?ref_src=twsrc%5Etfw)
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16050459/%E6%BE%B3%E5%96%9C%E4%BA%8C%E7%BB%B4%E7%A0%81-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16050431/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%87-1.jpg)
-1+
+
+
+
+> On behalf of We The People, I urge [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) to exercise his executive power to direct US Marshals to impound voting machines used in 11/3 election.
+> 
+> We The People only ask to receive what we deserve: the knowledge that our cherished right to vote was not stolen from us. [https://t.co/uBGS9OGuOh](https://t.co/uBGS9OGuOh)
+> — Lin Wood (@LLinWood) [December 18, 2020](https://twitter.com/LLinWood/status/1339777297608396802?ref_src=twsrc%5Etfw)
+
+
+
+
+
+0

@@ -1,62 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】口罩殇
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/660376/)
+## 《心灵的力量》读后感
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/662164/)
 
-作者：香草山写作组 Daxia 校对/发稿：飞虹
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18032829/mind-power.jpg)google 截圖
+作者：太妃糖（文成）
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14092131/GNEW-GTV-MOS-LOGO-2.jpg)
+审稿：Yumi
 
+闲暇的时候读毕溯敏《心灵的力量》，这是一部有关思想的书，作者以生活中的点点滴滴来告诉读者：面对人生应采取怎样的态度。
 
+书中有这样一段话：“是的，我很重要。我们每一个人都应该有勇气这样说。我们的地位可能很卑微，我们的身份可能很渺小，但这丝毫不意味着我们不重要。重要并不是伟大的同义词，它是心灵对生命的允诺。”
 
-它
-一个密不透风的布墙
-挂在耳朵
-耷拉在脸上
-套着口鼻
-阻隔着空气、声音与光
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17122336/merlin_171348084_73011776-c31e-4784-b9bd-1fcf998ce7ce-master1050.jpg)图片来源：《纽约时报》
-可以遮丑和假装
-就象童话故事里
-巫婆的毒苹果
-悲剧正在上演
+今天站在历史的转折点，读到这句话尤为感慨。作为一只小蚂蚁，常常觉得自己既无才也无财，特别害怕做错事，其实这就是自我否定。反观文贵先生，在他的字典里找不到“害怕，不可能”这些词。他也常常说“我们不做第一，我们是唯一”“每个战友都很重要”。这就是自我肯定。
 
-布墙后面
-双唇时常紧闭
-在心与肺的剧烈碰撞
-一呼一吸的化学物质
-令人窒息
+只有肯定“我很重要”，才会拥有强大的心灵，才能创造无穷的力量，开发我们无尽的潜能。也能让我们明白不能成天按部就班人云亦云做个老好人。我们要根据自己的喜好发挥自己的特长，在爆料革命的洪流中增加自己的那一抹色彩。
 
-巧舌敲打着双唇
-伴着下巴抖动节奏
-口和鼻串通一气
-片片谎言
-淹没了声声呐喊
+我很重要。是的，我很重要。
 
-天空乌云密布
-黎明前的暴风骤雨
-无法风干咸湿的双唇
-还有那酸臭的布墙
+本文纯属个人观点
 
-紧锁双眉的下边
-惊恐无助的双眼
-满是对生命的渴望
-只与天地诉哀伤
+澳喜文章:[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
 
-何时，眉鼻之间
-不再被一堵布墙设防
-打开心房，也晒晒太阳
-渐行渐远的
-亲情，友情和爱情
-与往常一样
+欢迎加入澳喜农场：
+[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18033345/hm-6.jpg)
 
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

@@ -1,44 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1217】-川普确保大选正直的选项
-` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/661863/)
+## 【朱利安尼推文1712】-犯罪分子乔拜登绝不能当总统
+` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/661916/)
 
-当日林伍德律师转推一则新闻称，
+朱利安尼市長周四的节目纠正了主流媒体一个错误，就是：
 
-“弗林将军具有战士般准备战斗的战略头脑。
+“拜登犯罪家族图腾柱的顶端是： 乔‧拜登！
 
-“我们人民很幸运能从他的智慧和经验中受益。
-
-“川普总统做出自己的决定，因为他是我们的总统。但他会倾听和考虑可靠的建议。”
+“主流媒体试图将所犯的罪行推到亨特-拜登身上。不能让他们逍遥法外!”
 
 
 
-> Gen. Flynn [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) has strategic mind of warrior preparing for battle.
+> The top of the BIDEN CRIME FAMILY totem pole: Joe Biden!
 > 
-> We The People are fortunate to have benefit of his wisdom & experience.[@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) makes his own decisions as he is our President. But he listens & considers solid advice.[https://t.co/6Y3PTtGYrb](https://t.co/6Y3PTtGYrb)
-> — Lin Wood (@LLinWood) [December 18, 2020](https://twitter.com/LLinWood/status/1339800343660560384?ref_src=twsrc%5Etfw)
+> The MSM is attempting to push the crimes committed off on Hunter Biden. Don’t let them get away with it!
+> 
+> Rudy Giuliani breaks it down here: [https://t.co/DqqxcvdgXb](https://t.co/DqqxcvdgXb) [pic.twitter.com/H80c26nUdF](https://t.co/H80c26nUdF)
+> — Rudy W. Giuliani (@RudyGiuliani) [December 16, 2020](https://twitter.com/RudyGiuliani/status/1339350926021292034?ref_src=twsrc%5Etfw)
 
 
 
-被转推的新闻是迈克尔-弗林将军在接受Newsmax电视台采访的讲话，内容大体如下。
+朱利安尼先生继续发推称：
 
-前国家安全顾问迈克尔-弗林说，唐纳德-川普总统可以选择确保2020年大选的正直性，包括在全国各地查封投票机，并使用军事能力在摇摆州重新举行选举。
+“乔拜登是30年RICO法案间谍的头号人物，亨特只是替罪羊。” 推文同时引用了硬盘门曝光的亨特的信，表明乔拜登才是这个家庭里真正贪婪和罪恶的元凶。
 
-”我不知道他是否会采取这些选择。总统必须为每一个可能发生的情况做计划，因为我们不能允许这次选举和我们选举的完整性以这种方式进行，’’弗林将军周四在参见Newsmax 电视的Greg Kelly Reports节目时说。
 
-现在（选举被操控）完全不能令人满意。我们绝对不能如此进展。
 
-川普总统“可以根据他的命令，立即在全国各地扣押每一台这些机器。他还可以下令，在摇摆州内，如果他愿意，可以采取军事能力，他可以把它们放在这些州，基本上在每个州重新举行选举。弗林补充说：”这并非史无前例。
+> Joe is the top of the 30 year Rico conspiracy. Hunter is the scapegoat. [pic.twitter.com/m0xPSSSrcs](https://t.co/m0xPSSSrcs)
+> — Rudy W. Giuliani (@RudyGiuliani) [December 18, 2020](https://twitter.com/RudyGiuliani/status/1339817748562665473?ref_src=twsrc%5Etfw)
 
-五角大楼本月早些时候解雇了9名国防商业委员会成员，取而代之的是11项新的任命，其中包括川普的忠诚者Corey Lewandowski和David Bossie。另一位被任命者Scott O’Grady在Twitter上分享了阴谋论，称总统输给乔-拜登就是”政变’。他还表示赞同戒严法。
 
-弗林说，这个概念并不新鲜。
 
-”这些人在那里谈论戒严法，就像我们从来没有做过的事情一样，”弗林告诉凯利。”戒严法已经实行了64次。我没有要求这样做。我们有一个宪法程序。…… 这必须被遵循。但我会告诉你，我有点担心最高法院的首席大法官约翰-罗伯茨。我们不能对美国宪法的结构进行愚弄”。
+在亨特拜登硬盘门的海量证据和民意面前，一些主流媒体不得不面对拜登家族与中共勾兑卖国犯罪的事实，然而仍在力保乔拜登，顾左右而言他，转移矛盾到亨特拜登。殊不知如果不是亨特的副总统父亲乔拜登在位，而其实权早已在当时奥巴马总统之上，怎会出现如此惊天卖国大案、置国家安危于不顾，将中共这个诈骗小怪兽姑息并放养成今天的邪恶巨兽？乔拜登的犯罪事实绝不能被转移，中共这一罪恶的根源绝不能被弱化。
 
-川普上个月赦免了他的前国家安全顾问弗林将军，结束了长达一年的通俄调查起诉，弗林两次向FBI认罪撒谎。与最近的大选结果一样，总统称通俄调查是一场旷日持久的骗局。
 
-新闻素材和图片来自林伍德律师推特
+
+新闻素材和图片来源于朱利安尼推文和爆料革命战友
+
+
+
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17195020/Wenya-Logo-5.png)
+
 0
