@@ -1,35 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国计划以武装渔民方式进驻澳大利亚的邻国
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/660966/)
+## 欢迎加入英国伦敦喜庄园
+` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/661081/)
 
-撰稿人：Shirley
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17181834/IMG_1773.png)google截图
-澳洲新闻网12月13日报道，中共国有控股的福建中宏渔业公司已经与巴布亚新几内亚政府签署协议，将在那里建设一个 “综合性多功能渔业产业园”。澳大利亚战略政策研究所(ASPI)强调，北京将斥资2亿美元在巴新南部的达鲁村建造一个大型渔港。中共国大刀阔斧的新捕鱼计划加剧了地区紧张局势。
+## 🇬🇧🇬🇧🇬🇧 欢迎战友们加入英国伦敦喜庄园🌹🌹🌹
 
-巴新政府前事务顾问杰弗里·沃尔表示，”对巴新渔业有了解的人向我保证，达鲁附近没有商业渔场，但达鲁在战略上却离澳大利亚很近。”达鲁是巴新距离澳洲最近的城镇，位于狭窄的，具有重要战略意义的托雷斯海峡之上。
+🔹英国喜庄园资管经验丰富，成功地为多国多地的农场战友操作借款！
 
-美国海军战争学院国际海事法教授詹姆斯·克拉斯卡说，“北京的渔船是世界上最严重的非法、未报告和无管制捕捞的最大罪犯。它也是北京侵略性领土扩张政策的主要工具。美国海军将把这些船只的侵略行为当作武装部队的一部分来应对。“
+🔹英国喜庄园在大卫农场主带领下已孵化自己的媒体平台《英国伦敦喜庄园电视台GTV UK》！
 
-兰德公司在最近的一份报告中指出：”中国的武装渔民在北京实施其在南海和东海的主权主张的战略中发挥着重要作用，用成群的渔船压倒对手，并与海岸警卫队或海军舰艇一起合作。”
+🔹英国喜庄园绝对保证战友们G系列的投资利益！
 
-沃尔认为，“如果澳大利亚要阻止该项目进一步进行，就需要快速行动，应对措施必须是实质性的，以人为本的，并且是随时可以实现的。”
+🔹英国喜庄园潜力巨大，投资环境良好，后面英国在做GCoin发展上有得天独厚的法律和金融优势！
 
-中共国处心积虑，计划用受过训的武装渔民，在达鲁建立一个支持民兵和海岸警卫队船只的主要后勤设施，协助人民解放军，以维护北京的领土要求。用尽民脂民膏的”强国梦”，实现的概率会是多大？
+🔹英国喜庄园事儿上见，欢迎战友们背靠背，跟大卫一起建设英国喜庄园！非常感谢💙
 
-（本文纯属个人观点）
+🌹请点击🇬🇧英国伦敦喜庄园Discord邀请链接：[https://discord.gg/U9F97ur](https://discord.gg/U9F97ur)
 
-审稿:Yumi
+1. 请填写英国伦敦喜庄园（农场）问卷：[问卷链接](https://docs.google.com/forms/d/e/1FAIpQLSeMfpcPiHGwoRW6Za25D183euw0Y_Lwr4ir2f7vNPqBEFLWeA/viewform)
+2. 进入Discord新战友房间报到，与英国伦敦喜庄园办公室负责人进行验证和审核, 然后和大卫（telegram： @David007）确认加入农场， 谢谢！
 
-原文连结:
 
-China’s bold new fishing plan on Australia’s doorstep increases tensions
-[https://www.news.com.au/technology/innovation/military/chinas-bold-new-fishing-plan-on-australias-doorstep-increases-tensions/news-story/a27224ce439fe490a93a7be81efb6148](https://www.news.com.au/technology/innovation/military/chinas-bold-new-fishing-plan-on-australias-doorstep-increases-tensions/news-story/a27224ce439fe490a93a7be81efb6148)
+## 大卫介绍如何加入英国伦敦喜庄园
 
-澳喜文章:[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+英国伦敦喜庄园：*广结英才, 灭共路上，没你不行，咱们喜马拉雅山巅相聚！支撑着每一位战友的是同一个信仰：新中国联邦！*
 
-欢迎加入澳喜农场：
-[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17082402/hm-1.jpg)
+
+
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/093rrtq2YNZe1/)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/093rrtq2YNZe1/images/df9c87a0-0986-4672-b5f8-3420b6b3cbbe.jpg?asset_id=d3c22c5d-19d4-4f17-aec3-da1d1d327672&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/093rrtq2YNZe1/images/df9c87a0-0986-4672-b5f8-3420b6b3cbbe.jpg?asset_id=d3c22c5d-19d4-4f17-aec3-da1d1d327672&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
 0
