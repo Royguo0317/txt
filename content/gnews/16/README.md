@@ -1,26 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 彭佩奥继澳洲之后再与日本外相谈四方安全对话
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/661205/)
+## YouTube断网后……
+` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/661273/)
 
-- 编辑：Victor Torres
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17191829/YouTube%E6%96%AD%E7%BD%91%E5%90%8E%E2%80%A6%E2%80%A6.png)
+作者：神的带领（京都富士会）
+校对：待命（文晓）（京都富士会）
+排版：山頂之風　（京都富士会）
 
+国内断网，推倒防火墙是迟早的事，是有充分预期的。但是，YouTube断网确实是我没想到的。这预示着什么？
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+这绝不是共匪的力量。那么，我猜想全球撒谎媒体都快了。我们的GTV、Gnews将成为全世界的唯一，将迎来世界四面八方的人来使用，G TV将成为全世界最稳定的平台。
 
-**西班牙2020年12月17日电/西喜社——**彭佩奥周四晚发推说:
-“今天很高兴与日本外相茂木敏昌谈美日同盟的实力以及我们为推动自由，开放和包容的印度太平洋而进行的四方集体努力。”
-几个小时前，他发推称与澳大利亚外交大臣玛丽丝•佩恩谈“四方安全对话的集体工作越来越重要。”
-美国今天分别与澳，日会谈，并发表声明，表明澳大利亚和日本已接受美国提出的相关战略，形成一致意见。而他们的共同目标，就是中国共产党。
-现在只剩下印度了，让我们拭目以待彭佩奥的下一个推。
-集齐四颗“龙珠”之后，会放什么大招呢?
+国内义乌、浙江等地先后遭受了突如其来，旷日持久的断电。真不敢想象，漆黑的夜晚怎样回家，怎样吃饭。家住的楼层不高还好，住在高层的，估计只好爬楼梯回家，得从天黑走到天亮。美国还没开始打中共呢，中共就开始对自己的孩子下手了。一旦打起来会是什么样呢？所以，七哥一直说躲到越偏远的地方越好。国内的同胞们，想想七哥哪样都说得那么精准，这次也一定会精准的。保命最要紧，赶紧远离城市、远离军事基地、远离喧嚣繁华的地方。
 
-
-
-> A pleasure to speak with Japanese Foreign Minister [@moteging](https://twitter.com/moteging?ref_src=twsrc%5Etfw) today about the strength of the U.S.-Japan Alliance and our collective Quad efforts to advance a free, open, and inclusive Indo-Pacific.
-> — Secretary Pompeo (@SecPompeo) [December 17, 2020](https://twitter.com/SecPompeo/status/1339698070737608707?ref_src=twsrc%5Etfw)
-
-
-
-0
+1+
