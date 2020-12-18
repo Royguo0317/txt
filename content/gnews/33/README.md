@@ -1,41 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欢迎加入英国伦敦喜庄园
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/661081/)
+## 1217 – 加拿大财经速递
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/661220/)
 
-## 🇬🇧🇬🇧🇬🇧 欢迎战友们加入英国伦敦喜庄园🌹🌹🌹
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17190419/stock1.jpg)
+加拿大股市在星期四收高，其中材料、IT信息科技和清洁科技等上涨的板块带领股指走高。
 
-🔹英国喜庄园资管经验丰富，成功地为多国多地的农场战友操作借款！
+加拿大多伦多收盘时，加拿大多伦多S&P/TSX 综合指数涨幅为0.49%，创半年新高。
 
-🔹英国喜庄园在大卫农场主带领下已孵化自己的媒体平台《英国伦敦喜庄园电视台GTV UK》！
+加拿大多伦多S&P/TSX 综合指数中表现最好的股票为Seabridge Gold Inc (TSX:SEA)，上涨9.27%（2.23点），收盘报价为26.28。同时，大洋黄金公司 (TSX:OGC)上涨了9.01%（0.210点），收于2.540；MAG Silver Corp (TSX:MAG)涨8.04%（1.73 点），尾盘收报23.24。
 
-🔹英国喜庄园绝对保证战友们G系列的投资利益！
+盘面表现最弱的股票为Aurinia Pharmaceuticals Inc (TSX:AUP)，下跌14.81%（2.86点），收盘报于16.45。Aphria Inc (TSX:APHA)下跌8.90%（0.945点），收于9.670；西岸码头投资公司 (TSX:WTE)收盘时跌6.76%（1.14点），报价15.72。
 
-🔹英国喜庄园潜力巨大，投资环境良好，后面英国在做GCoin发展上有得天独厚的法律和金融优势！
+多伦多证券交易所637只个股上涨，数量上超过收低个股数——441，同时105只股票未涨未跌，基本持平。
 
-🔹英国喜庄园事儿上见，欢迎战友们背靠背，跟大卫一起建设英国喜庄园！非常感谢💙
+黄金期货2月期权合约价格上涨1.74%（32.35点），到达1891.45美元。其余的期货方面，1月交割WTI原油期货期货合约价格上升1.32%（0.63点），报价48.45美元，同时2月伦敦布伦特原油期货期货合约上涨0.92%（0.47），交易价格为51.55美元。
 
-🌹请点击🇬🇧英国伦敦喜庄园Discord邀请链接：[https://discord.gg/U9F97ur](https://discord.gg/U9F97ur)
+CAD/USD上涨0.17%，汇价0.7857；同时CAD/EUR走低0.38%，报价0.6405。
 
-1. 请填写英国伦敦喜庄园（农场）问卷：[问卷链接](https://docs.google.com/forms/d/e/1FAIpQLSeMfpcPiHGwoRW6Za25D183euw0Y_Lwr4ir2f7vNPqBEFLWeA/viewform)
-2. 进入Discord新战友房间报到，与英国伦敦喜庄园办公室负责人进行验证和审核, 然后和大卫（telegram： @David007）确认加入农场， 谢谢！
+美元指数期货下跌0.72%，报于89.707。
 
+加拿大圆成农场小象整理
 
-## 大卫介绍如何加入英国伦敦喜庄园
-
-英国伦敦喜庄园：*广结英才, 灭共路上，没你不行，咱们喜马拉雅山巅相聚！支撑着每一位战友的是同一个信仰：新中国联邦！*
-
-
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/093rrtq2YNZe1/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/093rrtq2YNZe1/images/df9c87a0-0986-4672-b5f8-3420b6b3cbbe.jpg?asset_id=d3c22c5d-19d4-4f17-aec3-da1d1d327672&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/093rrtq2YNZe1/images/df9c87a0-0986-4672-b5f8-3420b6b3cbbe.jpg?asset_id=d3c22c5d-19d4-4f17-aec3-da1d1d327672&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+2012/12/17
 
 0
