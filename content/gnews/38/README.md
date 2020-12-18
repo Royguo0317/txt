@@ -1,39 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国出现首例CCP病毒疫苗过敏反应
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/662534/)
+## 中芯国际“内讧”爆发，100 亿市值一天蒸发
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/662985/)
 
-撰稿：Running Away
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18081905/Screen-Shot-2020-12-19-at-12.16.50-am.png)google截图
+撰稿人: 澳喜农场会员服务部 东南
 
-审稿：Gradient Boost
+审稿：Yumi
 
-据CNN报道，一名阿拉斯加的医护人员周二在注射辉瑞疫苗后产生过敏反应。
+12 月 16 日早间，中芯国际 A 股开盘大跌，同时发布关于其 执行董事及联合首席执行官梁孟松有可能辞任公告。公告显示，中 芯国际已知悉梁孟松的有条件辞任意愿，目前中芯国际正积极与梁 核实其真实辞任之意愿。受此消息影响，中芯国际 A 股股价最多下 跌近 10%，最终报收 55.2 元/股 跌幅 5.53%。与此同时，公司港股 暂停交易。同时发布关于其执行董事及联合首席执行官梁孟松有可 能辞任的公告。 就在 15 日中芯国际召开临时董事会，宣布蒋尚义正式加盟 中芯国际，任董事会副董事长、第二类执行董事及战略委员会成 员，两位联席 CEO 梁孟松、赵海军直接向蒋尚义汇报。蒋尚义曾于 2016 年 12 月 20 日至 2019 年 6 月 21 日担任中芯国际独立非执行 董事，加入中芯国际，蒋尚义算不上完全的“新人”。然而，正是 蒋尚义的加入，使得梁孟松突然提出离职。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18063140/001-4.jpg)图片来源于网络
+但紧跟爆料革命消息的战友知道，发生这种情况不得不说到上月 美国众议院通过了《外国公司问责法》，这阻止一些包括在中芯国际 在内的中企在美交易所上市。该法案将对在美国交易所上市的中国 公司施加限制。我们看看上月华大妈的反应就知道，这绝对是一个 对中共伤及金融命脉的法案。她回答记者说：我想你刚才提到的这 个问题再次的表明，美国对中国的公司采取了歧视性的政策，是对 中国企业进行政治打压。 正义力量的步步进逼，使得从中兴到华为、从大疆海康威视的党 产面临摧毁式的收割，现在仅存的中芯国际也紧随其中，一个个钱 袋子被蚕食殆尽。中共用金钱来维系的体制，被这番制裁后还能够 再维系多久？要知道这还只是个开始。
 
-该接种者在疫苗注射后的最初10分钟内，出现脸红发热，呼吸急促和心律加快的症状，同时脸部和躯干出现皮疹。治疗医生琼斯担心出现更严重的过敏反应，因此给她注射了标准剂量的肌内肾上腺素，并服用抗组胺药，患者症状有所减轻，但仍然心跳加快，呼吸急促。因此，琼斯医生又给她注射了一剂肾上腺素，以及类固醇，另一种治疗不良过敏反应的药物。在重症监护室观察了一晚上后，患者基本康复。
+本文纯属个人观点
 
-这名疫苗接种者之前没有疫苗过敏史，在注射疫苗后进入疫苗监测区，并服用了贝纳德利尔。当她报告呼吸急促时被带到急诊室治疗。
-
-“正常情况下，每百万接种疫苗的人中有大约一人会对疫苗产生严重的过敏反应，我们需要找出具体诱发了这种过敏反应的原因”，目前CDC的建议是，“如果您对可注射的医疗产品产生严重的过敏反应，则不应接种这种疫苗。”
-
-评：在美国全面实施辉瑞疫苗接种计划的首日，接种者即出现严重的过敏反应，这说明疫苗的安全性和有效性令人担忧。川普总统已下令白宫工作人员暂不接种新冠疫苗。正如爆料革命闫博士所指出的，不找到新冠病毒的原始毒株，不会有有效的疫苗来控制疫情，甚至会产生更多的灾难。CCP制造了新冠病毒，并千方百计阻挠病毒溯源，给人类带来的危害罄竹难书，只有消灭CCP，才能根除新冠病毒——这一有史以来对人类造成最严重危害的病毒。
-
-（本文纯属个人观点）
-
-信息来源:
-
-[https://edition.cnn.com/2020/12/16/health/alaska-allergic-reaction-coronavirus-pfizer-vaccine/index.html?utm\_medium=social&utm\_content=2020-12-16T21%3A59%3A09&utm\_source=twCNN&utm\_term=link](https://edition.cnn.com/2020/12/16/health/alaska-allergic-reaction-coronavirus-pfizer-vaccine/index.html?utm_medium=social&amp;utm_content=2020-12-16T21%3A59%3A09&amp;utm_source=twCNN&amp;utm_term=link)
-
-澳喜文章：
-
-[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+澳喜文章:[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
 
 欢迎加入澳喜农场：
-
 [https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18041919/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872.jpg)
-
-0
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18081425/hm-13.jpg)
+1+

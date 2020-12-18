@@ -1,41 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法国传染病科主任佩罗内Perronne教授被辞退：猎巫行动愈演愈烈。
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/663068/)
+## 文贵说｜系列图片连载（七十九）
+` GM98` [轉載自GNews](https://gnews.org/zh-hans/663290/)
 
-编译：道一   校对：Ikonic
+## 547.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18094649/4014.png)
+永远赢的一定不是战争，永远赢的一定是骗局。哪有你永远赢的时候？
 
-12月17日星期四，Christian Perronne克里斯迪安.佩罗内教授在他的脸书页面上发布新闻稿称巴黎公立医院集团总经理Hirsch先生12月17日上午8点向他发出了终止其主任职务的命令。
+——郭文贵先生 2020年8月21日
 
-Christian Perronne佩罗内教授因有关新冠病毒的言论而备受指责。
+## 548.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18094731/4015.png)
+你今天爆料革命参与的事情，一定要记住这个无我这个根本基础，就是什么东西你都可能得不到，而且你什么都可能付出，甚至你的生命，这就叫暴料革命。但是我们从不会要求你冒风险、牺牲生命、失去财富，这绝对不是我要的，而且我们避免。
 
-他的律师贝纳日Benages称：”由于被辞退理由有争议，Perronne佩罗内教授将很快向巴黎行政法院提出上诉”。
+——郭文贵先生 2020年8月16日
 
-Christian Perronne佩罗内教授接受了《法国晚报》FranceSoir编辑部的联系：
+## 549.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18094816/4016.png)
+有人倒下，不能证明你就是巨人；有人暂时或者被别人伤害，也不能证明你是好人。我们的敌人还是我们的朋友，任何人遇到了困难和挑战，都不能证明你的伟大，也不能证明你的错误，你就是你。
 
-*“我很惊讶在自己**没有违反医德规范**的情况下，竟然会为因发表言论而受到攻击。我不理解这种对大学教授学术言论自由的攻击行为。但请病人们放心，我会继续执业行医，我最关心的问题亦是继续救治病人。”*
+——郭文贵先生 2020年8月21日
 
-自1994年以来，Perronne佩罗内教授一直担任Raymond-Poincaré de Garches 加尔什市雷蒙德-普恩卡雷医院传染病和热带病科主任。12月4日，他就曾被粗暴的方式警告威胁将对他提起诉讼。
+## 550.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18094831/4017.png)
+班农事件更加坚定了我们新中国联邦要的法治、民主、信仰独立的社会。
 
-佩罗内教授Perronne惊人的从业履历在网上可以查到，无论在传染病领域，还是在他的新书里对医疗体系中的更新危机认知都有很高的建树。但令人惊讶的是巴黎公立医院集团竟然作出解职的决定，辞退一位国际知名的专家。
+——郭文贵先生 2020年8月22日
 
-佩罗内教授Perronne收到了众多来自社交网络、医生工会、普通市民、患者和同行的支持和慰问。这是继路易.福歇医生（Louis Fouché）、拉乌尔教授 (Raoult)、埃尔伯斯坦医生(Dr Erbstein) 之后在法国医学界内部开展的猎巫行动。
+## 551.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18094925/4018.png)
+民主的第一条，要学会尊重别人，要相信法律。
 
-原作者：《法国晚报》FranceSoir
+——郭文贵先生 2020年8月22日
 
-原文链接：
+## 552.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18095033/2020-9-26v2.jpg)
+司法部的文件那是勿容置疑的！那是铁的事实，超越政治、超越国家主权的，那是美利坚国家对这些人、对共产党的一个宣战——司法宣战。
 
-[https://www.francesoir.fr/societe-sante/le-pr-perronne-demis-de-sa-chefferie-de-service-la-chasse-aux-sorcieres-sintensifie](https://www.francesoir.fr/societe-sante/le-pr-perronne-demis-de-sa-chefferie-de-service-la-chasse-aux-sorcieres-sintensifie)
+——郭文贵先生 2020年8月22日
 
-译者按：
+## 553.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18095103/2020-9-25V1-scaled.jpg)
+希望战友们在这个关键时刻，一定要每天除了你正常的休息、在安全的情况下，一定要用脑子、用手抓住这个历史的时刻，把这个司法部的司法文件，每个字、每个故事的解读和班农连在一起，和爆料革命联系在一起，发到全世界的媒体，发到全世界有影响力的人的手中。
 
-自由，平等，博爱是法兰西共和国的基石。是写在了1958年10月4日的法国宪法第2条里的。而言论自由，更是法国人民呼吸空气的一部分。Pr Perronne佩罗内教授所发表的公共言论，是以极其专业的医科人士的良心而发，再无其它。
-
-如今法国社会的种种异象，都已清楚地表现出，白左，伪共主义和CCP狼狈为奸的事实，在此2020年末呈显在我们眼前的，是已超越了物理国境的，一场伪和真的世纪较量，一场善与恶的能量之战。
-
-借引17世纪法国文豪伏尔泰的一句名言：我不同意你说的话，但我拼死捍卫你说话的权利。
-
-让天下所有善的能量，集结一起，维护和平，维护博爱的权利。
+——郭文贵先生 2020年8月22日
 
 0

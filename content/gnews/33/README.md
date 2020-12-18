@@ -1,41 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 林伍德:如果你们继续为中共向我们人民撒谎，我们会解雇你们
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/662760/)
+## 【选情进展】乔治亚州宣布将对选票签名匹配进行重新审查
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/663056/)
 
-- 编辑：Victor Torres
+作者：翼族
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18083630/Picture25-1.png)图片来源：https://justthenews.com/
+该来的终于来了，在全国上下一片质疑选票造假的舆论声和美国民众的愤怒之中，乔治亚州将不得不对2020年总统选举投票的签名匹配进行审查。
 
+美国时间12月17日星期四，乔治亚州的州务卿布拉德·拉芬斯佩格（Brad Raffensperger）宣布了这项将在全州范围实施的措施，审查选票上的签名与该州所有159个县郡的缺席选票是否匹配。而在这之前，乔治亚对该州所有的选票已经进行了三次重新点票。在第三次也是最后一次重新点票后，乔治亚州发现了数千张被错计给拜登的选票，但目前拜登仍以11779票领先。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+州务卿拉芬斯佩格宣布将与乔治亚大学合作进行这项审查，对2020年总统选举中的邮寄选票进行随机抽样，审查签名是否匹配。并且拉芬斯珀格说：“我们对乔治亚州选举的安全可靠和有效性持有信心。”但很明显拉芬斯佩格只是在说谎而已，因为已经有大量的证据证明乔治亚州发生了惊人的舞弊行为。
 
-**西班牙2020年12月18日电/西喜社——**
+乔治亚州最大城市亚特兰大的国家农场体育场是一个大型的缺席选票中心，从这里流出的视频显示了在选举日的晚上，有几个人操作一台机器打印更换过的新选票，而这一切发生时没有任何投票观察人员在场。另外，乔治亚州富尔顿郡的一名投票站经理在听证会上亲自作证说，她遇到过一盒一盒处于“原始状态”的未折叠的选票。既有造假视频又有证人，州务卿对选举安全可靠的信心不知从何而来！并且还有大量的证据证明乔治亚州使用的多米尼Dominion投票机软件存在巨大漏洞。
 
-林伍德周五凌晨发布四连推，引用了圣经内容，来奉劝那些腐败的民选官员说出真相，不要再为中共服务。
-他说“我们人民已经看够，受够了我们政府中的腐败。 够了。
-“我们的民选官员是肮脏的。 他们需要被清理。”
-林伍德为腐败官员提出三点建议:
-（1）遵守上帝的十诫之一-说出真相。
-“你不可对你的邻居作虚假的见证。”
-–出埃及记20:16
-“遵循这个简单的规则将使我们人民焕然一新。 真理将把光带到我们现在的黑暗中”。
-（2）如果你们讲真话，就会受到我们人民的青睐。 你们的回报将是巨大的。
-“执行诫命的人是有福的，因为他们有权拥有生命之树，并可以通过城门进入城市。”
-–启示录22:14
-林伍德还奉劝他们击败中共的金钱。
-（3）如果你们继续为中共的金钱，权力和影响力向我们人民撒谎，那么你们的下场不会好。 我们会解雇你们。
-“没有狗，巫师，皮条客，杀人犯，偶像崇拜者，以及任何热爱谎言的人。”
-–启示录22:15
+其实在本周的早些时候，乔治亚州官员已经宣布了对亚特兰大郊区的科布县的邮寄选票进行签名审核，但是川普总统的竞选团队随后发布声明，称科布县并没有根据选民6月份申请缺席选票时预留的签名进行匹配。由此来看，乔治亚州的腐败官员们还在继续通过一手遮天的手法，希望能够瞒天过海逃过真正的签名匹配审查。毕竟只要进行真实的抽样检查，会很容易发现选票造假的问题，因为乔治亚州有数十万张假选票。
 
+无论如何，这次乔治亚州在全州范围的签名匹配审查，是已经觉醒的美国人民获得的一个胜利！
 
+（文章内容仅代表作者观点）
 
-> We The People have reached the point where we have seen & experienced enough corruption in OUR government. Enough is always enough. 
-> 
-> Our elected officials are dirty. They need to come clean
-> 
-> Here is some simple advise on how to clean up the mess you have made of our country.
-> — Lin Wood (@LLinWood) [December 18, 2020](https://twitter.com/LLinWood/status/1339823199693938689?ref_src=twsrc%5Etfw)
+参考链接：
 
+[https://justthenews.com/politics-policy/elections/georgia-announces-signature-matching-review-all-counties-over](https://justthenews.com/politics-policy/elections/georgia-announces-signature-matching-review-all-counties-over)
 
-
-2+
+0

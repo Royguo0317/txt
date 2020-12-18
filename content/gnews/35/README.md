@@ -1,14 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日重要Twitter播报（中文）12/16期
-` GM62` [轉載自GNews](https://gnews.org/zh-hans/662633/)
+## 【精华版国粤双语配音】班农战斗室 431C期： 潘烈文让阎博士秘密调查中共病毒
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/663041/)
 
-撰稿记者:CYC文颖、本来、尘凡3、石頭
-校对:Magician文心
-播音:愛明州（文根根）
-剪辑：喜马拉雅2020
+【精华版国语配音】
+制作单位：战友之家-粤语组
+制作团队：文恩、coco22、乔巴、之之、农夫
 
-[每日重要推文12-16\_PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18065523/12-16_Done_1-converted.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18065523/12-16_Done_1-converted.pdf)
+
+
+【精华版粤语配音】
+制作单位：战友之家-粤语组
+制作团队：文恩、coco22、乔巴、麻辣汤、哥阿、NancyTT
+
+
+
+摘要：
+1.裴伟士和潘烈文12月底就知道中共国出现了类似SARS一样的肺炎
+2.潘烈文在2019年12月31号让阎博士去秘密调查，去收集信息查明类似SARS的病毒，他还告诉阎博士要小心保密，因为中共政府不想把消息传出去，也不允许任何专家去武汉调查情况
 
 0
