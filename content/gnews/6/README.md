@@ -1,142 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》深度解析：美国务院火力全开直指中共
-` GM141` [轉載自GNews](https://gnews.org/zh-hans/661613/)
+## 大战在即，澳大利亚做好准备了吗？
+` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/661748/)
 
-视频来源：
+12月18日凌晨，澳洲外交部长Marise Payne，发推文，
 
-1. [https://www.youtube.com/watch?v=00CKdcx6vmw](https://www.youtube.com/watch?v=00CKdcx6vmw)
-2. [https://www.youtube.com/watch?v=Wh6nIz5Bl3Q](https://www.youtube.com/watch?v=Wh6nIz5Bl3Q)
-3. [https://www.youtube.com/watch?v=7ZIvMbyE5as](https://www.youtube.com/watch?v=7ZIvMbyE5as)
+“我的朋友 @SecPompeo （迈克蓬佩奥国务卿）在我们应对本地区挑战的过程中，一直是澳大利亚的重要伙伴。我们今晚的谈话，反映了我们共同的价值观，我们的联盟是如何成长的，以及它将继续在地区安全和繁荣中发挥关键作用。”
 
 
 
+> My friend [@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw) has been a vital partner to Australia as we have addressed the challenges across our region. We spoke tonight, reflecting on the values we share, how our Alliance has grown & the critical role it will continue to play in regional security & prosperity. 🇦🇺🇺🇸
+> — Marise Payne (@MarisePayne) [December 17, 2020](https://twitter.com/MarisePayne/status/1339554529612709888?ref_src=twsrc%5Etfw)
 
-《路德时评》2020年12月17日晚间节目主要内容：
 
-一、美国国务院火力全开直指中共
 
-美国国务院12月18日发推[1]：中国共产党构成了真正的威胁。我们希望中国以我们要求其他国家参与的方式参与世界舞台。
+此前数小时，（12月17日）澳大利亚早间广播节目主持人John Laws采访莫里森总理时，总理在关键问题上表达了自己的意见，总结摘录如下：
 
+**东北部交通上**，太平洋公路升级为双车道，从Hexham一直到昆士兰边境。
 
+在**对中共政府的关系**上，莫里森总理的态度是，“我们是一个自由、民主的国家，我不是说党派意义上的自由，但我们是一个自由民主的国家。我们是一个以市场为基础的经济，而不是国家管理的经济。所以我们做的事情是不同的，我们不会妥协任何这些原则。而这不应该成为一个问题。而当我们在重要问题上有意见时，比如人权，或者大流行病或者类似的事情，那么很明显，这就是你在自由民主制度下所做的事情。你一直是一个广播员， 和记者很长一段时间，约翰，你在一个自由的国家一直拥有一个开放的麦克风。这也是我们在这里庆祝的事情之一。”
 
+在**对共贸易**上，莫里森总理表示，“这需要时间。世贸组织总是这样，但他们是这里的裁判。而中国一直说他们会尊重世贸组织的规则。我们当然会尊重。这些规则对世界贸易非常重要。但这不仅仅是它们的文字，还有它的精神。所以我们要把大麦问题提交给世贸组织。目前还有其他一些问题，我们正在评估下一步的行动。但我的意思是，我们的出口行业时常会出现中断。你会记得欧洲共同市场。”
 
+“这对澳大利亚的出口商来说是一个巨大的破坏。但澳大利亚挺过来了，它适应了，它创新了，它克服了，它建立了自己的产业。而我们在中国出口市场的大部分、很多增长都发生在过去的五六年里。这就是大部分增长的地方，资源已经比这更久了。因此，只要他们继续，我们将与各部门合作，应对这些变化。但归根结底，一个好的交易是双方都受益的。而这在很大程度上是澳大利亚和中国之间长期以来的交易。但是，我们不能通过放弃我们作为澳大利亚人的身份来解决这个问题。我的意思是，没有一个澳大利亚人会希望这样。我真的很感谢大家在这方面的一贯立场。”
 
-> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): The Chinese Communist Party poses a real threat. We want China to engage on the world stage the way we ask every other nation to. [pic.twitter.com/mQ7bHnXES1](https://t.co/mQ7bHnXES1)
-> — Department of State (@StateDept) [December 17, 2020](https://twitter.com/StateDept/status/1339526199794675712?ref_src=twsrc%5Etfw)
+Law问：**中国正在离澳大利亚北部只有160公里远达鲁岛上建造一个鱼类加工厂，**你是否担心他们会开始在我们的海域捕鱼？
 
+莫里森总理说，当非法捕鱼发生时，那是在夺取人们的生计和主权生计，不仅仅是影响澳大利亚，而是影响整个印度尼西亚或太平洋岛屿，这就是为什么这些国际法律和规则如此重要。如果我们在世界各地没有这些基于规则的体系，那么事情就无法正常运转，人们就无法有把握地去生活和谋生。我们希望每个人都能做到这一点。这不是任何一个国家的问题。这只是全球的法治。我们尊重这一点，并呼吁其他所有人也这样做。
 
+在**中共病毒疫情方面**，莫里森总理说，失业率下降了几个点，11月又增加了9万个工作岗位。他对本国的情况感到乐观和骄傲。
 
+Law： 这是一个非常有趣的时间。我是说，先是火灾，然后是洪水，然后是大流行病。现在是不是受够了？
 
+总理：我是一个基督教信仰者，约翰，它让我坚持下去，今年我花了不少时间，和一些人一起祷告，为此我磨损了多少膝盖下的毛毯。我可以向你保证。而且在许多和大多数情况下，他们已经得到了（上帝的）回应。”
 
-随后，国务院再次发推[2]：中国共产党对美国国家安全的威胁延伸到我们的金融市场，并影响了美国投资者。了解流入主要指数的资金如何支持参与军事生产和侵犯人权行为的中国公司：
+Law：圣诞节新年期间的**休假计划**？
 
+总理：今年圣诞节，我期待着和家人度过没有父亲的第一个圣诞节。你知道，在欧洲和美国和许多地方仍然在疫情封锁状态，但是我们的边界是开放的，就像我们一起努力实现的。我认为澳大利亚人可以为自己感到骄傲。一月后，副总理上任一周，我们会在家里和附近度过假期，不会走太远。
 
+我们从澳大利亚总理在目前与中共国紧张的贸易关系之下，仍然保持对信仰、保卫国家、自由价值观一贯坚持的态度。连“任性”的佩尼外交部长都改口称蓬佩奥国务卿为朋友，一改之前坚持“澳洲与贸易伙伴关系”的说法。笔者大胆猜想，美国正在紧锣密鼓的战争筹备中，各国联盟严阵以待，我们期待圣诞节前拉起正义的炮响，这样元旦后总理就可以和家人小聚畅饮澳洲红酒了。当然，前提是中共团伙头目丧心病狂的恶战被及时和成功地拦截阻击完毕，墙内有识之士的同胞坚决与犯罪团伙划清了界限，做出了正确明知的决定和行动。
 
+不过，即使莫里森总理没有对形势过于乐观和低估，我们也要做好不乐观的准备，正如澳洲自由党参议员吉姆-莫兰（ Jim Molan）所说，他对2021年的预测是，”可能会与中国发生扩大的灰色地带冲突 “或 “实际战争”。  “不幸的是，我会说比COVID和火灾更糟糕的事情可能发生在我们身上。” 他对天空新闻主持人保罗-默里说，”概率很低，但我们必须做好准备”。  这是在整个2020年两国之间的外交紧张局势加剧之际发生的。 （笔者按，其实不仅如此，这将是在美国吹响灭共号角进行反击，全球正义同盟醒来时、各种力量博弈后及时跟进而发生的。）
 
 
-> The Chinese Communist Party’s threat to American national security extends into our financial markets and impacts U.S. investors. Learn how money flowing into major indices supports Chinese companies involved in military production and human rights abuses: [https://t.co/ahxkGBFpjL](https://t.co/ahxkGBFpjL)
-> — Department of State (@StateDept) [December 17, 2020](https://twitter.com/StateDept/status/1339560255580205059?ref_src=twsrc%5Etfw)
 
+新闻来源 Twitter of Marise Payne, 天空新闻，澳洲政府网https://www.pm.gov.au/media/statement-us-presidential-election
 
 
 
-
-两小时后，再次发推[3]：为了维护我们的自由社会，我们的繁荣和我们的未来，我们必须共同努力，唤醒北大西洋公约组织应对中共国的挑战。
-
-
-
-
-
-> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): We have to work together to continue the Transatlantic awakening to the China challenge, in the interest of preserving our free societies, our prosperity, and our future. [pic.twitter.com/fLYIHemPUk](https://t.co/fLYIHemPUk)
-> — Department of State (@StateDept) [December 17, 2020](https://twitter.com/StateDept/status/1339586746393063425?ref_src=twsrc%5Etfw)
-
-
-
-
-
-两小时后，又再次发推[4]：中国共产党想要我们拥有的一切，它竭尽所能地从窃取我们的东西到迫使中共批评家保持沉默。
-
-
-
-
-
-> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): The Chinese Communist Party wants what we have, and it’ll do whatever it takes to get it, from stealing our stuff to pressuring critics of the CCP to keep quiet. [pic.twitter.com/W5wetXzQBf](https://t.co/W5wetXzQBf)
-> — Department of State (@StateDept) [December 17, 2020](https://twitter.com/StateDept/status/1339617671420268547?ref_src=twsrc%5Etfw)
-
-
-
-
-
-路德社评论如下：
-
-- 国务院连续多次发推直指中共对世界构成重大威胁，同时又希望中国按其他国家一样参与世界舞台，可以看出美国国务院有意将中共与中国分开；
-
-
-- 国务院也提及要唤醒北大西洋公约组织应对中共的威胁，这都在为接下来一系列行动做准备；
-
-
-- 这几十年，中共利用创造的财富加强权力的控制，这财富是从中国百姓手中掠夺而来，是从世界人民手中欺骗来的，他们利用高科技对百姓进行压迫，习的一系列行为已经表明他的意图；
-
-
-- 从国务院发推内容可以看出，彭佩奥国务卿已经和北约达成行动协议，同时也细数了中共危害自由、人权、网络安全、美国金融、军事安全和美国国家主权安全的种种罪行。
-
-
-
-
-二、中共解放军爽约中美海空军事安全对话
-
-美国印太司令部12月16日发文[5]：解放军（PLA）拒绝参加原定于2020年12月14日至16日举行的与美国印度太平洋司令部举行的海空军事安全对话，中国解放军单方面未提前通知就爽约，一定是中共高层下达禁止参会命令。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17223336/%E5%86%9B%E4%BA%8B%E5%AF%B9%E8%AF%9D.jpg)[图片地址](https://media.defense.gov/2020/Dec/16/2002553415/-1/-1/0/201214-N-XC372-0104.JPG)
-
-
-路德社评论：
-
-- 此次对话称为“MMCA”，是中美双方在1998年共同签署一项定期举行军方对话会议，旨在加强海上和空中安全，降低两军误伤等风险展开一系列对话；
-
-
-- 中共军方单方面缺席该会，意味着双方军事对话通道关闭，再加上中共在南海的种种违反国际法的行为，双方擦枪走火的可能性大大提高；
-
-
-- 中共爽约此次对话极有可能是想拖延时间，避免谈及南海违建岛礁问题，他们想等待拜登上任后再展开对话。
-
-
-
-
-三、纳瓦罗发布36页报告揭露美国大选舞弊
-
-《大纪元》12月18日报导[6]：美国白宫贸易与产业顾问纳瓦罗（Peter Navarro）周四（12月17日）发布题为“完美欺诈：选举违规的六大关键层面”的分析报告，揭示美国2020总统大选中六个摇摆州的异常表现。报告共36页，对近期公开的选举违规证据进行了审查和分析，并评估和确定了六个关键战场州存在的主要选举违规行为指控。这六个关键战场州分别是：亚利桑那州、乔治亚州、密歇根州、内华达州、宾夕法尼亚州和威斯康星州。选举违规行为概括为六个层面，包括：直接的选民舞弊、选票处理不当、有争议的程序犯规、违反平等保护条款、投票机违规和重大统计异常。
-
-路德社评论：
-
-- 该报告是纳瓦罗在Warroom平台发布的个人报告，并非代表白宫；
-
-
-- 纳瓦罗曾任职于某名校经济学教授，有极高的学术素养，他在报告中汇总了六个州大选舞弊的信息，提供了一系列数据和图表，还有论点、论据和最终结论，该报告是以学术文献的形式发表，与媒体报导大相径庭；
-
-
-- 这份报告具有独特的学术报告框架，不但可以永久保存，未来其他学术机构或个人撰写学术报告时，还可以对该报告进行引用。
-
-
-
-
-
-
-参考文章：
-
-[1]https://twitter.com/StateDept/status/1339526199794675712
-
-[2]https://twitter.com/StateDept/status/1339560255580205059
-
-[3]https://twitter.com/StateDept/status/1339586746393063425
-
-[4]https://twitter.com/StateDept/status/1339617671420268547
-
-[5]https://www.pacom.mil/Media/News/News-Article-View/Article/2449543/pla-a-no-show-for-operational-maritime-and-aviation-safety-dialogue/#.X9uAoSjEdNA.twitter
-
-[6]https://www.epochtimes.com/gb/20/12/17/n12628200.htm
-
-文章撰写：【重生】   编辑：【GM141】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14081816/%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%95%86%E6%A0%87.png)
-1+
+以上仅代表作者观点。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17195020/Wenya-Logo-5.png)
+0

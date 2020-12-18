@@ -1,124 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1217】-中共军民融合下的美股恶意中资公司
-` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/661325/)
+## 【林伍德律师推文1217】-最高法院的腐败
+` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/661405/)
 
-当日林伍德律师转推美国政府网推文，该推文是12月8日美国政府公布的“美国投资者正在主要指数上为恶意中国公司提供资金。”
+当日西德尼-鲍威尔律师发推文称，
 
-该政府公文主要内容是，“在习近平的领导下，中共将所谓的 “军民融合 “列为优先事项。……中国公司和研究人员必须……在惩罚法律约束下….与中国军方分享技术。目标是确保人民解放军拥有军事优势。  而解放军的核心任务是维持中共对权力的控制。
+“最高法院的电子申请系统显示，我们在乔治亚州和密歇根州的紧急请愿书有备案，但进展缓慢，州政府回应截止日期是1月14日！今天它最终上交了我们对亚利桑那州和威斯康星州在周五提交的紧急请愿书，但被（最高法院）无情地拒绝了。
 
-中共对美国国家安全的威胁已经延伸到我们的金融市场，并影响到美国投资者。  主要股票和债券指数都包含了被列入商务部实体名单和/或国防部 “中共军工企业”（CCMCs）名单的恶性中国公司。这些指数基金的资金通常是来自美国散户投资者的被动资金，用于支持参与民用和军用生产的中国公司。  其中一些公司生产用于监视平民和压制人权的技术，中国新疆的维吾尔族和其他穆斯林少数群体以及伊朗和委内瑞拉等其他镇压政权的情况就是如此。
+林伍德律师对此回推说，“我想很多人今天都知道了为什么最高法院要拒绝寻求公平审查的请愿书。罗伯茨（John Roberts）和布雷耶(Stephen Breyer)是 “反川者”，他们应该立即辞职。罗伯茨有其他理由辞职。他是（法官）办公室和国家的耻辱。”
 
-该政府公文列示了截至2020年12月，35个母体级中共军工企业实体名单
+林伍德律师今日早些时候的推文称，
 
-中国航空工业集团公司（中航工业）
+“我对最高大法官罗伯茨在艾普斯坦（Jeffrey Epstein）私人飞机飞行记录一直有疑问。 我怀疑（他就）是我们的首席大法官。主流媒体没有任何兴趣去调查问题、寻找真相。
 
-中国航天科技集团公司（CASC） 不是上市公司。
+“美国现在有权知道答案。
 
-中国航天科工集团公司（CASIC） 非上市公司
+“每一个谎言都会被揭穿。
 
-中国电子科技集团有限公司（CETC） 非上市公司
+“祈祷吧。”
 
-中国南方工业集团股份有限公司（CSGC） 非上市公司
+林伍德律师的另外一则推文写道，
 
-中国船舶工业集团公司（CSSC）
+“腐败和欺骗已经侵入了我们国家最有权力的办公室—美国最高法院首席大法官。
 
-中国船舶工业集团公司（中船重工）
+“这是我们国家的悲哀，但也是我们必须醒悟和面对真相的一天。
 
-中国北方工业集团有限公司（诺林柯集团）
-
-杭州海康威视数码科技有限公司（Hikvision Digital Technology Co. (海康威视)
-
-华为技术有限公司 不是上市公司。
-
-Inspur集團 香港，
-
-中国航空发动机集团公司（AECC）
-
-中国铁道建筑总公司（CRCC）
-
-熊猫电子集团 不是上市公司
-
-曙光信息产业有限公司 (Sugon)
-
-中国移动通信集团
-
-中国国家核电集团公司（中核集团）
-
-中国电信股份有限公司
-
-华润公司
-
-中国核电总公司
-
-中国交通建设股份有限公司（中交建）
-
-中国运载火箭技术研究院（CALT） 不是上市公司
-
-中国空间卫星
-
-中国联合网络通信集团（中国联通）
-
-中国电子股份有限公司（CEC） 不是上市公司
-
-中国化学工程集团有限公司 (CNCEC)
-
-中国化工集团公司(ChemChina)
-
-中化集团有限公司
-
-中国建筑集团有限公司
-
-中国三峡股份有限公司
-
-中国核电工程建设集团公司(CNECC)
-
-名单还包括上百家中共军工企业的附属实体名单，以及中国实体上市公司在MSCI和FTSE指数上的名单，包括海康威视、iFlyTek、烽火通信和大华股份是被广泛认为与维吾尔族人受压迫有关的中国公司的突出例子。
-
-此外，中共军工公司在纽约证券交易所（NYSE）的关联公司包括，
-
-中国移动通信集团(NYSE: CHL)
-
-中国海洋石油总公司 (NYSE: CEO)
-
-中国电信股份有限公司（NYSE: CHA）。 (NYSE: CHA)
-
-中国联合网络通信集团有限公司 (NYSE: CHU)
-
-中概股直接影响美国工人和退休人员的养老金资产。
-
-根据美国人口普查局的数据，美国有超过5000个公共养老金系统。
-
-投资于私人养老金计划的10.7万亿美元受《雇员退休收入保障法》（ERISA）保护。
-
-节约储蓄计划的理事会研究报告显示，大多数养老基金使用MSCI新兴市场指数作为投资指南，包括。
-
-所有10家最大的美国上市公司的401K基金：
-
-十大联邦承包商的401K
-
-所有20个最大的州养老金计划
-
-所有6个最大的目标日期共同基金提供商，截至2019年6月，其持有量为1.9万亿美元。
-
-养老金福利担保公司（PBGC），拥有1310亿美元的养老保险储备。
-
-众多保险基金。
-
-众多大学和学院捐赠基金。
-
-详细内容请参考美国政府网公文
-
-[https://www.state.gov/u-s-investors-are-funding-malign-prc-companies-on-major-indices/](https://www.state.gov/u-s-investors-are-funding-malign-prc-companies-on-major-indices/)
+“罗伯茨就是最高法院没有对选举案件采取行动的原因。其他人也有涉案。”
 
 
 
-> TRUTH. [https://t.co/QbCjc5ZR73](https://t.co/QbCjc5ZR73)
-> — Lin Wood (@LLinWood) [December 17, 2020](https://twitter.com/LLinWood/status/1339699775713763329?ref_src=twsrc%5Etfw)
+> I think many are today learning why SCOTUS is rejecting petitions seeking FAIR review. Roberts & Breyer are “anti-Trumpers” They should resign immediately. CJ Roberts has other reasons to resign. He is a disgrace to office & to country.[@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw)[@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) [https://t.co/KvjihiLvLT](https://t.co/KvjihiLvLT)
+> — Lin Wood (@LLinWood) [December 17, 2020](https://twitter.com/LLinWood/status/1339674878996148224?ref_src=twsrc%5Etfw)
 
 
 
-新闻素材和图片来自林伍德律师推特和美国政府网
+
+
+> I have long had questions about “the John Roberts” on Jeffrey Epstein private jet flight logs. I suspected it was our Chief Justice. MSM has shown no interest in investigating issue to find TRUTH.
+> 
+> America is now entitled to know the answer.
+> 
+> Every lie will be revealed.
+> 
+> Pray.
+> — Lin Wood (@LLinWood) [December 17, 2020](https://twitter.com/LLinWood/status/1339640105800089600?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Corruption & deceit have reached most powerful office in our country – the Chief Justice of U.S. Supreme Court.
+> 
+> This is a sad day for our country but a day on which we must wake up & face the truth.
+> 
+> Roberts is reason that SCOTUS has not acted on election cases. Others involved.
+> — Lin Wood (@LLinWood) [December 17, 2020](https://twitter.com/LLinWood/status/1339639287827062796?ref_src=twsrc%5Etfw)
+
+
+
+新闻素材和图片来自林伍德律师推特
+
+
+
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17195020/Wenya-Logo-5.png)
+
+
+
 0
