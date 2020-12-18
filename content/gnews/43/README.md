@@ -1,21 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【突发】美国务院称中共为邪恶独裁者
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/660637/)
+## 对“自由”的一点个人见解
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/660647/)
 
-- 编辑：Victor Torres
+```
+作者：文同
+校对/发稿人: Ting Guo
+```
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17150010/b0ee217c-c34b-48a5-b9c3-9da86662e0cc.jpeg)图片来源: Matters
+#### **生命诚可贵，爱情价更高。 若为自由故 ，两者皆可抛。**
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+这首匈牙利诗人裴多菲在1847年创作的短诗“自由与爱情”，在中国可谓家喻户晓。这首诗歌在上世纪三十年代被”殷夫”译成中文，并成为那个年代，追求中国自由民主人士的座右铭，甚至在这句诗歌的激励下，为自由而舍身就义。这句诗歌在中共国的专制集权统治下，并没有被禁止，甚至在很多学校的教室里作为张贴画悬挂。然而，这句话的真实内涵却逐渐被人遗忘，最后成为某些人炫耀自己的文化水平的一个工具，而在实际的生活中，却完全是另外一个版本：
 
-**西班牙2020年12月17日电/西喜社——**美国国务院周四发推称:
-“清洁网络计划是一项全面的工作，旨在应对中国共产党等邪恶独裁者对自由世界中数据隐私，安全和人权的长期威胁。”
+#### **自由诚可贵，爱情价更高。 若为金钱故， 两者皆可抛**。
 
+其实自由并不是独立存在的，自由也是有限制的，对自由的理解偏差，也导致许多人对自由的滥用。 大处讲，我们现在所面临的中共盗国贼家族利用病毒，蓝金黄手段，对美国大选的操纵。对他们来说，未尝不是一种对不受束缚的”自由”的一种追求，然而这种不受约束的自由却是以继续奴役十四亿国人，牺牲道德和公义，并妄图左右美国的经济军事力量来实现的。从小处讲，一个人在午夜时分大声播放音乐是他的自由，但是对邻居来说就是一种折磨。在生活中那些滥用自由的例证比比皆是，无一不是严以律人，宽以待己，是一种把无限放纵自己的欲望，并把自己的舒适建立在别人的牺牲之上的表现。
 
+那么什么才是真正的自由？什么才是新中国联邦宣言中所希望实现的自由？中国古人有句话说“随心所欲，而不逾矩”，或许能比较恰当的为自由做注解。 对个人来说，那就是对内做到平衡个人欲望和能力，对外互相尊重，公平交换。 对政府来说，就是要创造最适合的社会民主法法制来保障每个个体的这份自由，限制甚至惩罚那些把自己的享受建立在别人的痛苦之上的不公平行为。也唯有在民主法制的保障下，在这份公平的自由环境中，才能激发整个社会大多数人的创造力，为社会贡献源源不断的物质和精神产品，从而实现实现个人欲望的随心所欲。
 
-> The Clean Network initiative is a comprehensive effort to address the long-term threat to data privacy, security, and human rights in the free world posed by authoritarian malign actors such as the Chinese Communist Party. [https://t.co/x1jdhOOcsu](https://t.co/x1jdhOOcsu) [pic.twitter.com/3zlPYVajW8](https://t.co/3zlPYVajW8)
-> — Department of State (@StateDept) [December 17, 2020](https://twitter.com/StateDept/status/1339646504571682816?ref_src=twsrc%5Etfw)
+**本文章仅代表战友个人观点**
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09040658/image0.png-13-1280x720.jpeg)***[https://discord.gg/77fCxw5mFv](https://discord.gg/77fCxw5mFv)**
+[**https://**](https://https://discord.gg/77fCxw5mFv)[**gab.com/himalaya\_italy**](https://gab.com/himalaya_italy)*
 
 
 
