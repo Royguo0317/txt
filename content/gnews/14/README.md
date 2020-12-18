@@ -1,25 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共对全球规则的不屑一顾无疑是自杀行为
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/661655/)
+## 鲍威尔和林伍德敦促扣押投票机
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/661736/)
 
-撰稿：Shirley
+- 编辑：Victor Torres
 
-审稿：Jenny
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17231120/IMG_5277.jpg)图片来源： Johannes Leak
-中共国对澳洲大麦征收关税，澳大利亚联邦政府16日将中共国告上世界贸易组织。中共国今年在大麦、牛肉、煤炭、葡萄酒和木材等对澳洲发起的制裁行动，证明中共国正把贸易作为一种政治报复措施。当澳大利亚寻求就各种贸易问题进行讨论时，中方切断了沟通。澳大利亚认为，贸易是一个独立的问题，应受中共国在世贸组织签署的协议的约束。
 
-2001年急切加入的世贸组织的中共国，在加入世贸组织的有利条件下获益很多，与世界其他国家的贸易水平达到前所未有的水平。习近平主席2017年在达沃斯论坛的演讲中，也把自己描绘成全球自由贸易的拥护者，批评川普总统的”美国优先”（America First）政策。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-由于中共对澳大利亚的5G政策及外国投资审查委员会的决定非常不满，更对澳大利亚呼吁调查中共病毒的来源感到愤怒，不遵守贸易协议以及撕毁合同也就成了中共国唯一的选项。
+**西班牙2020年12月18日电/西喜社——**
 
-澳大利亚需要与志同道合的国家合作，不仅是五眼国家的英美圈，也要与日本和欧盟以及其他国家在印太地区合作。中共国对国际社会秩序的破坏，将使其他国家凝聚起来，一起对付中共国。
+周四晚，悉尼•鲍威尔和林伍德分别发推，要求扣押投票机。
+鲍威尔说: “为即时取证检查扣押(投票)机器。 如果没有欺诈，那么左派应该欢迎它！ 没有什么可以隐藏的人，什么都不掩饰。”
+林伍德称:“我代表我们人民，敦促川普总统行使他的行政权力，以指示美国法警扣押11月3日选举中使用的投票机。 我们只要求收到我们应得的：我们要知道我们珍贵的投票权没有被偷走。”
 
-（以上纯属个人观点）
 
-澳喜文章[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
 
-欢迎加入澳喜农场：[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16050459/%E6%BE%B3%E5%96%9C%E4%BA%8C%E7%BB%B4%E7%A0%81-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16050431/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%87-1.jpg)
-1+
+> Impound the machines for immediate forensic inspections. If there was no fraud, the [#Left](https://twitter.com/hashtag/Left?src=hash&amp;ref_src=twsrc%5Etfw) should welcome it! 
+> People who have nothing to hid, hide nothing. [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) [@RealJamesWoods](https://twitter.com/RealJamesWoods?ref_src=twsrc%5Etfw) [@RealRLimbaugh](https://twitter.com/RealRLimbaugh?ref_src=twsrc%5Etfw) [@marklevinshow](https://twitter.com/marklevinshow?ref_src=twsrc%5Etfw) [@Scavino45](https://twitter.com/Scavino45?ref_src=twsrc%5Etfw) [@BillWhiteNY](https://twitter.com/BillWhiteNY?ref_src=twsrc%5Etfw) [https://t.co/yNpjnA6jRa](https://t.co/yNpjnA6jRa)
+> — Sidney Powell 🇺🇸⭐⭐⭐ (@SidneyPowell1) [December 18, 2020](https://twitter.com/SidneyPowell1/status/1339760298484482049?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> On behalf of We The People, I urge [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) to exercise his executive power to direct US Marshals to impound voting machines used in 11/3 election.
+> 
+> We The People only ask to receive what we deserve: the knowledge that our cherished right to vote was not stolen from us. [https://t.co/uBGS9OGuOh](https://t.co/uBGS9OGuOh)
+> — Lin Wood (@LLinWood) [December 18, 2020](https://twitter.com/LLinWood/status/1339777297608396802?ref_src=twsrc%5Etfw)
+
+
+
+
+
+0

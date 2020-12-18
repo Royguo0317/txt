@@ -1,44 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1217】-川普确保大选正直的选项
-` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/661863/)
+## 海上威胁：中共对美国海军的挑战
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/661926/)
 
-当日林伍德律师转推一则新闻称，
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18013729/1-139.png)[图片来源](https://www.straitstimes.com)
 
-“弗林将军具有战士般准备战斗的战略头脑。
+据每日电讯网报道，来自海军的报告说，美国对中共的军事优势正以惊人的速度被侵蚀。
 
-“我们人民很幸运能从他的智慧和经验中受益。
+该报告称，中共和俄罗斯的海军在全球的活动日益增加，正试图在印太乃至全球范围内打破美军的势力均衡。报告尤其强调了中国的挑战，警告说，中共国正致力于“破坏国际海事管理，拒绝美军使用传统的停留港口，限制海洋自由，控制海上关键隘口，并取代美国成为世界各国的首选合作伙伴”。
 
-“川普总统做出自己的决定，因为他是我们的总统。但他会倾听和考虑可靠的建议。”
+报告称，中共为了实现其对海洋资源的控制并限制他国进入相关海域，中共海军正不断增强活动和威慑，极大地压制了美军在西太平洋地区保护美国利益的能力。结合中共海军力量的迅猛发展，远程精确制导技术的广泛使用，使美军已经无法在冲突爆发时，可以不受限制地进入全球海上的任何区域。
 
+为扭转当前态势，该报告呼吁在整个海域建立一支综合性的海军力量，并提出了一系列建议，其中包括关注对军事人员的多样化培训、在冲突和危机中加强与盟军的合作以及提供远程精确火力等。
 
+**评论：**毫无疑问，美国拥有全球无与伦比的海军力量，正面挑战美军，中共海军没有这个能力和底气，尽管中共海军的装备近年得到了飞速发展，包括不少的新舰艇、潜艇甚至航空母舰下水服役，由于其武器技术、战术水平和综合实力远在美国海军之下，仍不堪一击。即使其战略核潜艇有能力潜行至美国本土附近，最多也只能做出一些自杀性的骚扰式攻击。然而，真正对美军包括美海军构成威胁的是中共的超限战，比如利用“蓝金黄”收买控制美国的军事、情报和政府官员，网络窃取、冠状病毒攻击等。日益强势、活跃的中共海军紧随中共国的“一带一路”，触觉遍及全球，尤其是到处建立海外军事基地和港口，海外钻井平台的密藏军事据点，军事化南海岛礁，用武装渔船的群狼战术对付骚扰邻邦等，以牺牲普通民众为代价，用军民混合的超限战方式出现，这对美国海军也将是一个新的课题和挑战。
 
-> Gen. Flynn [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) has strategic mind of warrior preparing for battle.
-> 
-> We The People are fortunate to have benefit of his wisdom & experience.[@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) makes his own decisions as he is our President. But he listens & considers solid advice.[https://t.co/6Y3PTtGYrb](https://t.co/6Y3PTtGYrb)
-> — Lin Wood (@LLinWood) [December 18, 2020](https://twitter.com/LLinWood/status/1339800343660560384?ref_src=twsrc%5Etfw)
+[原文链接](https://dailycaller.com/2020/12/17/navy-says-chinas-aggressive-actions-are-compromising-american-power-at-an-alarming-rate/?utm_source=piano&amp;utm_medium=onsite&amp;utm_campaign=622)
 
+翻译报道：Diego
 
-
-被转推的新闻是迈克尔-弗林将军在接受Newsmax电视台采访的讲话，内容大体如下。
-
-前国家安全顾问迈克尔-弗林说，唐纳德-川普总统可以选择确保2020年大选的正直性，包括在全国各地查封投票机，并使用军事能力在摇摆州重新举行选举。
-
-”我不知道他是否会采取这些选择。总统必须为每一个可能发生的情况做计划，因为我们不能允许这次选举和我们选举的完整性以这种方式进行，’’弗林将军周四在参见Newsmax 电视的Greg Kelly Reports节目时说。
-
-现在（选举被操控）完全不能令人满意。我们绝对不能如此进展。
-
-川普总统“可以根据他的命令，立即在全国各地扣押每一台这些机器。他还可以下令，在摇摆州内，如果他愿意，可以采取军事能力，他可以把它们放在这些州，基本上在每个州重新举行选举。弗林补充说：”这并非史无前例。
-
-五角大楼本月早些时候解雇了9名国防商业委员会成员，取而代之的是11项新的任命，其中包括川普的忠诚者Corey Lewandowski和David Bossie。另一位被任命者Scott O’Grady在Twitter上分享了阴谋论，称总统输给乔-拜登就是”政变’。他还表示赞同戒严法。
-
-弗林说，这个概念并不新鲜。
-
-”这些人在那里谈论戒严法，就像我们从来没有做过的事情一样，”弗林告诉凯利。”戒严法已经实行了64次。我没有要求这样做。我们有一个宪法程序。…… 这必须被遵循。但我会告诉你，我有点担心最高法院的首席大法官约翰-罗伯茨。我们不能对美国宪法的结构进行愚弄”。
-
-川普上个月赦免了他的前国家安全顾问弗林将军，结束了长达一年的通俄调查起诉，弗林两次向FBI认罪撒谎。与最近的大选结果一样，总统称通俄调查是一场旷日持久的骗局。
-
-新闻素材和图片来自林伍德律师推特
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17195020/Wenya-Logo-5.png)
 0

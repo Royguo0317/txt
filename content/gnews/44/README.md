@@ -1,25 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 彭佩奥继澳洲之后再与日本外相谈四方安全对话
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/661205/)
+## 非洲疫情二次爆发，王国首相感染中共病毒去世
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/661280/)
 
-- 编辑：Victor Torres
+俄罗斯莫斯科喀秋莎农场 文秋
 
+校对上传   银河
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+斯威士兰（Eswatini）王国首相安布罗斯·曼德武洛·德拉米尼（Ambrose  Mandvulo Dlamini）在12月1日确诊感染中共病毒后随即转至南非医院治疗，当地时间13日因中共病毒病发症去世，终年52岁。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17192515/Snipaste_2020-12-18_08-24-55.png)图片： 俄罗斯莫斯科喀秋莎农场 KC
+斯威士兰(Eswatini)，英文旧称Swaziland，原属于英国的保护区。在1968年9月6日独立日后与台湾建交，是台湾在非洲唯一的邦交国。 最新的中共病毒疫情报告显示，斯威士兰共有人口120万，其中感染人数为6768例，死亡127例。遗憾的是在这个疫情感染率和死亡率都不是过于严重的国家，国家首相是120万人中127例死亡概率的一员。这很难不让人联想到美国川普总统及川普总统的竞选团队集体感染中共病毒的蹊跷概率。
 
-**西班牙2020年12月17日电/西喜社——**彭佩奥周四晚发推说:
-“今天很高兴与日本外相茂木敏昌谈美日同盟的实力以及我们为推动自由，开放和包容的印度太平洋而进行的四方集体努力。”
-几个小时前，他发推称与澳大利亚外交大臣玛丽丝•佩恩谈“四方安全对话的集体工作越来越重要。”
-美国今天分别与澳，日会谈，并发表声明，表明澳大利亚和日本已接受美国提出的相关战略，形成一致意见。而他们的共同目标，就是中国共产党。
-现在只剩下印度了，让我们拭目以待彭佩奥的下一个推。
-集齐四颗“龙珠”之后，会放什么大招呢?
+作为台湾的邦交国，非洲大陆唯一没有跟中共国建交的国家，该国首领安布罗斯·曼德武洛·德拉米尼是世界上首位死于中共病毒的首相。
 
+与之相邻的南非疫情也极速恶化，成为非洲大陆感染人数最多国家，截止15日，统计感染人数达到866127例，每天感染从2000例上下暴增至5000-8000例。南非卫生部长在12月9日宣布南非正经历第二波疫情。南非9个省的省长有五位以上感染，国防部长、卫生部长陆续确诊，总统也因为跟确诊的患者曾经去过共同的地方而进行自我隔离。
 
+全世界都迎来了中共病毒疫情的二次爆发。如爆料革命创始人郭文贵先生对中共病毒疫情的预测：疫情在2021年6月前都会一直反复，唯一能消除疫情的方法就是推翻中共非法政权。
 
-> A pleasure to speak with Japanese Foreign Minister [@moteging](https://twitter.com/moteging?ref_src=twsrc%5Etfw) today about the strength of the U.S.-Japan Alliance and our collective Quad efforts to advance a free, open, and inclusive Indo-Pacific.
-> — Secretary Pompeo (@SecPompeo) [December 17, 2020](https://twitter.com/SecPompeo/status/1339698070737608707?ref_src=twsrc%5Etfw)
+参考链接：www.news24.com
 
 
 
