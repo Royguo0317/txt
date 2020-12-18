@@ -1,46 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【G时评】话语权托拉斯, 美国媒体沼泽复杂的生态, 搞定媒体川普才能成功逆袭
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/661428/)
+## 【林伍德律师推文1217】-最高法院的腐败
+` Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/661405/)
 
-主持人：Giselle 嘉宾：猫本小哥 般若
-整理 ：Ping 时间：2020.12.17
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17202829/Picture18-1.png)
-#### **本期视频链接：**
-**[https://gtv.org/video/id=5fdb387ec0544c3d9728da33](https://gtv.org/video/id=5fdb387ec0544c3d9728da33)**
+当日西德尼-鲍威尔律师发推文称，
 
-## **一， 新闻热点概要**
+“最高法院的电子申请系统显示，我们在乔治亚州和密歇根州的紧急请愿书有备案，但进展缓慢，州政府回应截止日期是1月14日！今天它最终上交了我们对亚利桑那州和威斯康星州在周五提交的紧急请愿书，但被（最高法院）无情地拒绝了。
 
-- 网传拜登感染中共病毒；
-- 深入解读媒体舆论对政治经济的严重影响；
-- DNI美国情报总监外国人干涉大选报告，为什么会宣布延迟。
+林伍德律师对此回推说，“我想很多人今天都知道了为什么最高法院要拒绝寻求公平审查的请愿书。罗伯茨（John Roberts）和布雷耶(Stephen Breyer)是 “反川者”，他们应该立即辞职。罗伯茨有其他理由辞职。他是（法官）办公室和国家的耻辱。”
+
+林伍德律师今日早些时候的推文称，
+
+“我对最高大法官罗伯茨在艾普斯坦（Jeffrey Epstein）私人飞机飞行记录一直有疑问。 我怀疑（他就）是我们的首席大法官。主流媒体没有任何兴趣去调查问题、寻找真相。
+
+“美国现在有权知道答案。
+
+“每一个谎言都会被揭穿。
+
+“祈祷吧。”
+
+林伍德律师的另外一则推文写道，
+
+“腐败和欺骗已经侵入了我们国家最有权力的办公室—美国最高法院首席大法官。
+
+“这是我们国家的悲哀，但也是我们必须醒悟和面对真相的一天。
+
+“罗伯茨就是最高法院没有对选举案件采取行动的原因。其他人也有涉案。”
 
 
-## **二， 新闻热点播报**
 
-1，美东时间12月16日，美国国务院官方发布了“制裁伊朗石油和石化行业的支持者”的相关声明。声明明确制裁包括中共国东海国际船舶、石化东南有限公司在内的四家公司，以上公司通过购买伊朗石油为其提供经济帮助，导致伊朗政权持续压迫本国人民。
+> I think many are today learning why SCOTUS is rejecting petitions seeking FAIR review. Roberts & Breyer are “anti-Trumpers” They should resign immediately. CJ Roberts has other reasons to resign. He is a disgrace to office & to country.[@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw)[@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) [https://t.co/KvjihiLvLT](https://t.co/KvjihiLvLT)
+> — Lin Wood (@LLinWood) [December 17, 2020](https://twitter.com/LLinWood/status/1339674878996148224?ref_src=twsrc%5Etfw)
 
-2，《门户专家》透露，朱利安•阿桑奇在周二上午正式向唐纳德•川普总统提出了赦免请求。阿桑奇被囚禁在英国，等待关于他被引渡到美国的决定，在美国他将因为发表了伊拉克和阿富汗战争日志面临《间谍法》的指控。如果罪名成立，他可能会因公开美国政府不想让民众知道的材料的 “罪行 “而面临最高175年的刑期。
 
-国家安全局举报人爱德华•斯诺登：“针对阿桑奇的案件是基于一种法律理论，这种理论将把国内外每一个记者的工作都定为犯罪。”
 
-3，美国情报总监外国干预大选情报分析报告将延期。
 
-4，乔治亚州录像中出现的（摆好黑色长桌为非法选票做准备的）金发辫子女Ruby Freeman已经招供。为了自身安全，她已经进入证人保护（程序）。
 
-大规模的反水将出现。
+> I have long had questions about “the John Roberts” on Jeffrey Epstein private jet flight logs. I suspected it was our Chief Justice. MSM has shown no interest in investigating issue to find TRUTH.
+> 
+> America is now entitled to know the answer.
+> 
+> Every lie will be revealed.
+> 
+> Pray.
+> — Lin Wood (@LLinWood) [December 17, 2020](https://twitter.com/LLinWood/status/1339640105800089600?ref_src=twsrc%5Etfw)
 
-## **三，热点评论**
 
-1，1983年是美国媒体沼泽的分水岭。
 
-2，媒体托拉斯垄断话语权。
 
-3，董事会交叉任职形成复杂沼泽生态。
 
-4，美国媒体垄断势必面临拆分。
+> Corruption & deceit have reached most powerful office in our country – the Chief Justice of U.S. Supreme Court.
+> 
+> This is a sad day for our country but a day on which we must wake up & face the truth.
+> 
+> Roberts is reason that SCOTUS has not acted on election cases. Others involved.
+> — Lin Wood (@LLinWood) [December 17, 2020](https://twitter.com/LLinWood/status/1339639287827062796?ref_src=twsrc%5Etfw)
 
-5，1914年美国联邦政府制定的“Clayon Act”法律与上世纪60年代美国联邦通信委员会（FCC）制定的14条媒体公共服务职责，被深度抛弃。
+
+
+新闻素材和图片来自林伍德律师推特
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17195020/Wenya-Logo-5.png)
+
+
 
 0

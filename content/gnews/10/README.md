@@ -1,32 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/17日康州农场前沿观察: 被污名的羟氯喹
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/661663/)
+## 【热点播报】骇客侵入美国核安全局
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/661821/)
 
-播音：县搭县
-撰文：文法了得
-视频：Buzz文珂、银龙
-编辑：1984文姝
-图片素材：沧海一粟、海媚
-审片：皮亚纳
-审核：Truemanman
+作者：香草山写作组 村北 校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14092131/GNEW-GTV-MOS-LOGO-2.jpg)
 
 
 
-“这不是政府没有重视，对羟氯喹造成的过失和渎职，这是学术上的渎职！”一位医生在12月8日美国参议院关于羟氯喹听证会上的发言证词时说道。他对顶级医学期刊 《新英格兰内科医学杂志》和《柳叶刀》上发布的针对羟氯喹的虚假论文造成的恐慌提出了严厉的批评。“因此，学术医学是在行骗，我认为他们正在犯下反人类罪。”他对比了美国与印度的每百万人的死亡数，发现早期使用了羟氯喹的印度的死亡率远低于美国。他还以自己的长期医疗经验反驳了“羟氯喹会对心脏病造成巨大副作用的学术恐吓”。这位医生的公开证词，从侧面佐证了天使科学家闫博士关于使用羟氯喹预防和治疗CCP病毒的建议的有效性。
-自从CCP病毒在全球肆虐，大多数国家实施封城时，世界知名药厂为了各自利益，罔顾人道主义，联合堕落媒体、医学界妄图掩盖廉价的羟氯喹真实疗效的真相。然而，他们没有想到会不断有勇敢的人站出来呼吁和传播羟氯喹的真相。从墨博士、闫博士，到美国教授泽伦科（Dr.Zelenko）,再到法国教授拉乌尔特的团队，他们一直在为羟氯喹作为廉价且可居家治疗的药物而呼吁。川普总统也曾在推特中大力推荐。到目前为止，已经有很多国家开始重视并应用羟氯喹用于早期的预防和治疗。
-“NO ONE CAN STOP TRUTH！”闫丽梦博士在推特上大声疾呼。请传播真相，为羟氯喹正名，这不仅是治病的需要，更是正义的需要！
-康州盘古农场报道
+美媒Gateway Pundit 12月17日晚间报道，负责管理美国核武器的美国核安全局的信息系统被骇客侵入。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18002956/12-5.png)
+美国网络和基础设施安全局上周日公布的紧急指示，是关于在美国被广泛使用的SolarWinds Orion信息系统管理软件被骇客事件。SolarWinds的用户中不乏美国主要的政府机构。这其中就有美国核安全局。日前，核安全局的确发现了系统被骇客的证据。另外，相关的联邦能源监管委员会、桑迪亚国家实验室，和拉莫斯国间实验室，运输办公室，能源部Richland办公室均发现了可疑的网络行为。
 
-素材来源：
-12.08美国参议院关于羟氯喹的听证会视频
-[https://twitter.com/G\_Translators6/status/1338297343779725312](https://twitter.com/G_Translators6/status/1338297343779725312)
 
-闫博士12.15推特
-[https://twitter.com/DrLiMengYAN1/status/1338878600251105280](https://twitter.com/DrLiMengYAN1/status/1338878600251105280)
 
-川普03.21推特
-[https://twitter.com/realDonaldTrump/status/1241367239900778501](https://twitter.com/realDonaldTrump/status/1241367239900778501)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-0
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+1+
