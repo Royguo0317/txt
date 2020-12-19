@@ -1,36 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 林伍德谴责腐败主流媒体，民选官员和法官
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/666828/)
+## 看中共如何利用环保埋雷
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/666885/)
 
-- 编辑：Victor Torres
+```
+听写 : shuizhuyu
+整理 : 阿娜
+发稿人: Ting Guo
+```
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19131309/20180907063643626-e1608401680307.jpg)图片来源:阿波罗网
+全球的环保的巴黎协定，就是要控制全世界。要让全世界的人们按照统治阶级的要求，有序用电，有序用能源。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+节能减排的核心就是剥夺你的权力。但是中共就是通过改数据来达到目标，而其他的国家趋势要减少百分之二十。什么叫命运共同体，就是我限电，你也要限电，这就是全球化。而中共用一个命令就可以达到有序用能源，而其他国家呢，它就有权利控制。限制你的自由，你的权力。就像230法案，法案本来是限制黄色的言论，结果，就是他们想限制什么，想删什么样的帖子就删什么。
 
-**西班牙20202年12月19日电/西喜社——**
+中共在环保问题上，一直在埋雷。它自己是最大的能源国，却要求其他国家节能减排。中国要到众怒人怨的地步了。中共就是牺牲自己百姓的利益，来要挟全世界的人民，以达到统治全世界的目的。那国际环保公约就可以被利用。
 
-林伍德周六发推称:
-“过去我们太多人睡着了。
-我们相信主流媒体。 他们是骗子和叛徒。
-我们太相信民选官员了。 他们许多人都是骗子和叛徒。
-我们太相信法官了。 他们许多人是腐败的叛徒。
-美国正在醒来。”
+美国国务院发出来一个亨特拜登的邮件，就提到了一个拜登的顾问布林肯，还有一个克里，拜登宣布克里担任气候特使，就是跟巴黎协议有关。就是要剥夺人权，拜登入阁的公司，叫西政咨询，主要就是帮助开拓中国市场，还有外交部长等等，都是奥巴马时期的副国务卿。可以控制艾森豪威尔大楼的所有，打入中国市场。言外之意就是认识我的公司，就直通中国最高层。然后用气候危机，进入紧急状态，干任何事情，剥夺你的人权和自由。也就是把中国的党校开到了美国。只要是退役的和现役的高管都可以来就职。太可怕了！
 
-
-
-> Too many of us have been asleep at switch in the past.
-> 
-> We believed mainstream media. They are liars & traitors.
-> 
-> We believed too many of our elected officials. Many are liars & traitors.
-> 
-> We believed too many of our judges. Many are corrupt & traitors.
-> 
-> America is waking up.
-> — Lin Wood (@LLinWood) [December 19, 2020](https://twitter.com/LLinWood/status/1340337704664518657?ref_src=twsrc%5Etfw)
-
-
-
-0
+***参考: 12月18号路德时评***
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19034520/image0-121.jpg)***[https://discord.gg/77fCxw5mFv](https://discord.gg/77fCxw5mFv)***
+*[**https://**](https://https://discord.gg/77fCxw5mFv)[**gab.com/himalaya\_italy**](https://gab.com/himalaya_italy)*
+1+

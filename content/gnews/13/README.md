@@ -1,63 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国议员接受中共员工捐款
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/666870/)
+## 耶鲁大学流行病学家说，羟氯喹是“击败COVID-19的关键”
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/666961/)
 
-*新闻来源：National Pulse《国家脉动》；作者：NATALIE WINTERS；发布时间：2020年12月14日*
-
-*翻译/简评：Dreamer文童；校对：感恩；审核：万人往；Page：拱卒*
-
-[!\[\]()!\[\](https://spark.adobe.com/page/2d9blWjLD6hEd/images/44f9547f-07a1-4560-894c-b05906da1b53.png?asset_id=78112aaa-5999-43ad-bce2-bb0dd304eb97&amp;img_etag=%22ad70747210d1640ca6053b6a32f5659d%22&amp;size=1024)](https://spark.adobe.com/page/2d9blWjLD6hEd/images/44f9547f-07a1-4560-894c-b05906da1b53.png?asset_id=78112aaa-5999-43ad-bce2-bb0dd304eb97&amp;img_etag=%22ad70747210d1640ca6053b6a32f5659d%22&amp;size=1024)
-
-**简评：**
-
-12月8日，福克斯新闻主持人塔克·卡尔森在节目中报道，加州众议院情报委员会成员埃里克·斯沃韦尔（Eric Swalwell）与中共国情报人员方芳（又名克莉丝汀·方）相识于2012年，两人关系密切。《国家脉动》此篇报道又曝光出，斯沃韦尔在2014年和2015年间多次接受中共国国有公司中国国际航空公司员工的捐款。
-
-中共通过“蓝金黄”方式对美国渗透几十年，在目标人物从政初期就开始渗透培养，直至成为有影响力的政客。斯沃韦尔就是这种“蓝金黄”的典型例子。2012年，斯沃韦尔仅仅是加州都柏林市一名市议员，通过中共暗中提供的多方支持，现今已成为加州众议院情报委员会成员，有能力接触美国重要情报。目前媒体的曝光说明，美国已经掌握部分被中共“蓝金黄”渗透人员的情况，现已处于收网阶段。
-
-**原文翻译：**
-
-**独家：斯沃韦尔（Swalwell）接受中共员工捐款**
-
-**《国家脉动》透露，众议员埃里克·斯沃韦尔（Eric Swalwell）——他与中共情报人员的密切关系最近被曝光——接受了中共拥有的公司员工捐款。**
-
-在2014年和2015年，这位加州议员共接受了中国国际航空公司（Air China）员工维多利亚·李（Victoria Li）的6000美元，中国国际航空公司是一家中共经营的国有公司。
-
-这家航空公司多次获得中共的政治性激励奖项，在其网站上标榜“全国国有企业创建‘四好班子’先进集体”：
-
-*国航领导班子被中共中央组织部、国资委党委授予“全国国有企业创建‘四好班子’先进集体”。2008年9月29日，党中央、国务院在人民大会堂隆重举行北京奥运会、残奥会总结表彰大会并颁奖。国航被评为“北京奥运会、残奥会先进集体”。*
-
-[!\[\]()!\[\](https://spark.adobe.com/page/2d9blWjLD6hEd/images/aa05b21f-1c6c-419f-bf0e-63b0232789bf.png?asset_id=da0d069b-4f20-4cef-87af-726f074140f8&amp;img_etag=%226f0b90bc21b32573911b2eb8161f61bf%22&amp;size=1024)](https://spark.adobe.com/page/2d9blWjLD6hEd/images/aa05b21f-1c6c-419f-bf0e-63b0232789bf.png?asset_id=da0d069b-4f20-4cef-87af-726f074140f8&amp;img_etag=%226f0b90bc21b32573911b2eb8161f61bf%22&amp;size=1024)斯沃韦尔FEC记录
+```
+作者: Daniel Payne
+翻译: eva7788
+校对：旦旦
+发稿人: Ting Guo
+```
 
 
+“成千上万的COVID-19患者在没有药物的情况下正在进行不必要地死亡”，他认为。
 
-**捐助者姓名 接受人 州 雇主 接受日期 金额**
+常春藤联盟的流行病学教授声称，羟氯喹–过去几个月来一直置于政治化的医学辩论的焦点中-是“打败COVID-19的关键”，医学官员应该广泛地使用它来挽救了数千名冠状病毒患者的生命。
 
-- 李维多利亚 国会议员斯沃韦尔 加州 国航 2015年3月11日 1000美元
-- 李维多利亚 国会议员斯沃韦尔 加州 国航 2014年5月14日 2400美元
-- 李维多利亚 国会议员斯沃韦尔 加州 国航 2014年5月14日 100美元
-- 李维多利亚 国会议员斯沃韦尔 加州 国航 2014年3月11日 2500美元
+耶鲁大学流行病学教授，该校癌症分子流行病学实验室主任哈维·里施（Harvey Risch）在本周的《新闻周刊》上评论说，”这些数据完全支持“羟氯喹可以作为一项治疗COVID-19的有效方法被广泛使用。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19134909/Picture-1-1-1.png)图片来源：[https://images.app.goo.gl/xwVwYb4jnGNNC3dC7](https://images.app.goo.gl/xwVwYb4jnGNNC3dC7)
+Risch在专栏中说：“当这种廉价的口服药物在病程的早期就被使用时，在病毒还没有不可控地繁殖之前，它已经被证明是非常有效的。
 
+在川普总统于3月中旬表示该药物在治疗COVID-19方面显示出令人鼓舞的效果之后，过去几个月，羟氯喹一直是激烈而持久的政治辩论主题。此后不久，媒体和评论员就开始大肆宣传与该药所谓的致命危险相关的故事以及据传的它对治疗该疾病的无效性。
 
-国航也服务于中共国国旗运输，负责党政要员在国内和国际乘机的飞行任务。
+Risch在《新闻周刊》上说，过去几个月的多项研究表明，该药物是一种既安全又有效的治疗COVID-19的方法。
 
-在中共国国资公司担任客服经理的李，在一年内分别四次向寻求连任国会议员的斯沃韦尔捐款。
+他写道，在成功的治疗实验中，有“额外的400名由弗拉基米尔·泽连科（Vladimir Zelenko）博士治疗的高风险患者，死亡人数为零；四项研究总计近500名在美国的疗养院和诊所接受治疗的高风险患者中，没有死亡案例；一项在巴西进行的超过700例的高危患者对照试验中，住院风险有显着的降低，接受羟氯喹治疗的334例患者中只有2例死亡；在法国进行的另一项398例匹配患者的研究中，住院风险也有着显著的降低。”
 
-斯沃韦尔竞选团队愿意接受中共衍生的数千美元，使得国会议员与中共国关系的清单越来越多。
+Risch说，这种药物是最有效的，“如果在病程早期，在病毒还没有无法控制地繁殖之前被用于治疗。”
 
-此前，Axios的一篇报道披露了斯沃韦尔与中共国情报人员克里斯汀‧方（Christine Fang）的关系，并对她的筹款努力和人事任用表示欢迎。
+尽管根据Risch所说，这种药物的好处是显而易见的，但他还是不情愿的承认，这个话题“已经被高度政治化了”。
 
-[原文链接](https://thenationalpulse.com/exclusive/swalwell-ccp-donations/)
+他说：“对于许多人来说，在左右两派，都将它看成是政治认同的一个标志。” “没有人需要我去提醒，这不是医学应该前进的方式。
 
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+他还认为，“该药物在许多研究中并未被正确使用”，并且在管理方面的延误已经降低了其本身的有效性。
 
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+Risch在专栏中说：“将来，我相信这个关于羟氯喹的一连串极不合理的事件，将会被医学社会学家作为科学以外的因素，是如何推翻显而易见的医学证据的经典例子去研究。”
 
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+他补充说：“但就目前而言，现实需要清晰的，科学的去看这个证据和它所指向的地方。
 
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/2d9blWjLD6hEd/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/2d9blWjLD6hEd/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/2d9blWjLD6hEd/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
+***原文: [https://justthenews.com/politics-policy/coronavirus/yale-epidemiologist-says-hydroxychloroquine-key-defeating-covid-19](https://justthenews.com/politics-policy/coronavirus/yale-epidemiologist-says-hydroxychloroquine-key-defeating-covid-19)***
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19034520/image0-121.jpg)***[https://discord.gg/77fCxw5mFv](https://discord.gg/77fCxw5mFv)***
+*[**https://**](https://https://discord.gg/77fCxw5mFv)[**gab.com/himalaya\_italy**](https://gab.com/himalaya_italy)*
 0

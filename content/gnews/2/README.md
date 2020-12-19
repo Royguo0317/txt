@@ -1,39 +1,81 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国非主流媒体相继报道G-TV发布的亨特-拜登犯罪事实
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/666913/)
+## 【林伍德律师推文1219】-统计分析Dominion/Hart机造假
+` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/667086/)
 
-多伦多枫叶农场 文来
-校对 上传 云起时
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19142336/biden-scaled.jpg)
-近日，美国茶党（Tea Party）和其他自媒体相继报道了新中国联邦的G-TV网络媒体揭露的亨特拜登硬盘里吸毒及性爱录像的内容。
+12月19日林伍德律师转推了一则对针对 Dominion 和 Har 投票机在大选中使用数据的统计分析报告。读过报告后的结论，如林伍德律师所说，
 
-茶党网站近日发表文章指出，中文新闻网站G-TV早已发布了亨特·拜登的缺乏人性的录像带，证明拜登家族已被中共收买和被黑材料所控制。文中认为像乔-拜登这样的政客正在以令人难以置信的妥协立场，通过赋与中共特权来为自己积累财富。
+“川普总统压倒性赢得连任。”
 
-作者指出，视频中可以看到亨特·拜登边吸食毒品边与身份不明之人在发生性行为。人们如果完全不知道总统候选人乔-拜登肆意妄为儿子这一系列丑行，均是因为政要和主流媒体一直在努力试图掩盖这一事实。
+他同时说，“稳住。耐心。祈祷。”
 
-另一个知名自媒体门道专家（Gateway Pundit）也以“独家！亨特·拜登的性爱录像带，中共蓝金黄渗透美国，邪恶联盟统治世界”为标题报导了该视频的内容。
 
-报道称，这只是属于亨特-拜登笔记本电脑上许多属于他本人视频的一部分。该笔记本电脑于去年在特拉华州的一家计算机商店被亨特本人遗弃了。 G-TV宣布将发布更多视频。
 
-文中还特意播报了GTV视频中对观众的警告：
-如果这张照片给您造成了严重的不适，我们深表歉意！但是为了公正起见，我们（新中国联邦）已公开了这张照片。因为共产党的朋友就是我们的敌人。他们利用那些渴望中国财富和他们的家人的利益的所有西方政治人物和名人的贪婪，通过抓住并录制他们的性爱和毒品视频来威胁他们，迫使他们卖掉他们自己的国家和人民，甚至国家安全，来迎合中国共产党的世界统治。
+> Good Saturday morning!
+> 
+> Today is a good day to visit [@KanekoaTheGreat](https://twitter.com/KanekoaTheGreat?ref_src=twsrc%5Etfw) home page & read the thread beginning with this tweet. [@KanekoaTheGreat](https://twitter.com/KanekoaTheGreat?ref_src=twsrc%5Etfw) is a truth-giver. Read carefully.[@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) won re-election by a landslide.
+> 
+> Steady. Patience. Pray. [https://t.co/6zgL3YtY0s](https://t.co/6zgL3YtY0s)
+> — Lin Wood (@LLinWood) [December 19, 2020](https://twitter.com/LLinWood/status/1340328875532967938?ref_src=twsrc%5Etfw)
 
-唐纳德·川普总统的私人律师，前纽约市市长鲁迪·朱利安尼（Rudy Giuliani）也得到了亨特拜登的硬盘并展开了调查。朱利安尼指正FBI早已得到硬盘证据，但故意把它扣押下来。大选前《纽约邮报》发布了关于亨特拜登硬盘的新闻。但迫于各种压力，相继的报道被搁置下来。
 
-在关键时刻，G-TV和GNEWs挺身而出，及时报道了亨特拜登的硬盘门，使许多美国人看清了拜登家族和中共勾兑的事实。茶会通过G-TV和它的相关报导了解到，乔拜登（Joe Biden）在他做副总统期间曾引领奥巴马政府努力改善与中共的外交政策。在此期间，他带着儿子亨特·拜登进行了对中共的国事访问。然后亨特以一笔丰厚的商业交易离开了这个共产党国家。
 
-同时一些非主流媒体也透露了关于亨特拜登的过去的斑斑劣迹。据他的前妻说，他早已知道自己是一名吸毒者和性变态者，曾性侵华盛顿的脱衣舞娘，与哥哥的遗孀约会，并因为将全部金钱花在酒，毒品和妇女身上而破坏了第一次婚姻。
+笔者分享统计分析的主要推文如下。
 
-随着人们更多地了解臭名昭著的亨特，他过着肮脏的，丑闻缠身的生活，并似乎已经从父亲在白宫的职位中获得了可观的利润。关于拜登家族的不当行为已引起了人们严重的质疑，它背后的交易可能不只是肮脏的钱。
+对美国3000多个县进行的无差别分析显示，乔-拜登在使用多米尼克投票系统的县里多得了5.6%的选票。”如果利用计算机的网络系统来欺诈性地影响选票统计……结果会是这样的。”
 
-文中认为关于亨特的指控非常非常严重。不论是为了换取奥巴马政府的支持，或者是奥巴马政府对他的可疑商业伙伴的偏爱，这些指控都非常严重。文中还指出了拜登家庭的几项重大罪行，其中任意一项就应立即使拜登丧失担任总统候选人的资格。因为如果总统家族中有可疑的外国业务往来，它将构成巨大的国家安全风险。
+2/无论县里的多数党派，也无论城市、郊区或农村地区的人口统计，都能观察到这种Dominion的优势。拜登在民主党州超过预期表现的量，与他在支持川普的县所表现有相同量值。
 
-评：新中国联邦的G-TV和GNEWs作为新兴的新闻媒体，由于一直致力与揭露中共及其黑暗势力的丑闻，越来越引起全世界的关注。在亨特拜登硬盘内容被美国FBI掩盖了超过半年之久的情况下，爆料革命的战友们在大选之前的13天内向全世界爆料了亨特拜登的硬盘内容，尽管被主流媒体和社交媒体大鳄们极力封杀，但还是在最短的时间内及时的把真相传递出去，让很多美国人了解了拜登家族的罪行。为川普在大选日的以压倒性选票完胜起到了极其重要的关键作用。
+3/ 该分析并不是针对单一或少数几个县。相反，这些信息使用了美国所有县的数据，以查看是否存在涉及投票机类型和选票总数上有明显的普遍模式。
 
-由于川普的选票远远超出拜登的选票，使背后黑手中共不得不大量造假，以至于让他们的罪证无法被掩盖。正像郭文贵先生所预见的那样，美国大选是人类历史上最滑稽但也是最重要的一次选举。相信当川普总统力挽狂澜，最终再次当选之后，GTV和GNEWs 将成为未来的主流媒体，因为它遵循信仰正义，坚持揭露丑恶，和唯真不破。
+4/在第一张图中，我们看到拜登2020年的实际选举结果。蓝线是我们的中心预测线。一半县应该在蓝线之上，一半县在蓝线之下。这一点被证实是真实的，拜登在45%的县表现超群，55%的县表现不佳。
 
-[原文链接](https://www.teaparty.org/breaking-chinese-dissidents-release-hunter-biden-crack-smoking-sex-tapes-with-chilling-warning-457667/)
+5/ 我们从美国选举援助委员会取得数据，显示各县使用的投票机。这次只限于使用Dominion机的县，看到大部分的县（78%）都在预测线之上。
 
-1+
+
+
+> 5/ We obtained data from the U.S. Election Assistance Commission showing the voting machines used by each county. Compare this graph with the same data, except this time limited to counties using Dominion. This time the majority of counties (78%) are ABOVE the prediction line. [pic.twitter.com/QXyeVbxl6y](https://t.co/QXyeVbxl6y)
+> — Kanekoa (@KanekoaTheGreat) [December 18, 2020](https://twitter.com/KanekoaTheGreat/status/1340046613994037248?ref_src=twsrc%5Etfw)
+
+
+
+6/ 县级数据按投票机过滤分类显示，候选人拜登在Dominion机器上的表现超出约5%，在Hart机器上也超出约6%。
+
+7/在使用Dominion和Hart机器的县，这个时间拜登的表现高于预期78%。这高度表明(99.9%统计学意义)，操纵投票结果可能发生在Dominion和Hart机器上。
+
+
+
+> 7/ In the Dominion/Hart machine counties, Biden performs above expectations 78% of the time. This is highly indicative (and 99.9% statistically significant) that result manipulation could be occurring with Dominion & Hart machines. [pic.twitter.com/IlAGvWIb4f](https://t.co/IlAGvWIb4f)
+> — Kanekoa (@KanekoaTheGreat) [December 18, 2020](https://twitter.com/KanekoaTheGreat/status/1340046620180639744?ref_src=twsrc%5Etfw)
+
+
+
+8/在这张图中，绿点代表使用Dominion/Hart机器的县的选票。绿点应该以类似的混合/随机方式覆盖蓝点。但我们没有看到这一点。相反，我们看到绿点的中心点位（总是）比蓝点的中心点位高。
+
+9/为了帮助上图分析，我们为使用Dominion/Hart的县和 使用其他机器的县添加了中心线。绿色的中心线保持在蓝色中心线之上，清楚地表明拜登在Dominion/Hart县持续 “胜出”。
+
+
+
+> 9/ To aid in this graphical analysis we added center lines for the Dominion/Hart counties and the “other machine” counties. The green centerline stays above the blue centerline – clearly indicating Biden continuously "outperforming" in Dominion/Hart counties. [pic.twitter.com/qXgu3GyLkS](https://t.co/qXgu3GyLkS)
+> — Kanekoa (@KanekoaTheGreat) [December 18, 2020](https://twitter.com/KanekoaTheGreat/status/1340046627327729664?ref_src=twsrc%5Etfw)
+
+
+
+10/选票增加发生在全美数百个Dominion/Hart县，值得强调的是，在使用这些机器的县，拜登在民主党州胜出表现，与他在支持川普县的胜出表现，保持了相同量。
+
+这表明，一些或所有的Dominion/Hart投票机可能被编程或操纵，使拜登的实际选票数被系统地增加了5个多百分点。注意，这些结果的统计显著性水平高于99.9%。
+
+观看完整统计分析视频
+
+
+
+阅读完整统计报告
+
+[https://gofile.io/d/WtDVhe](https://gofile.io/d/WtDVhe)
+
+新闻素材和图片来自林伍德律师及其所转发的推特，和以上链接。
+
+
+
+0
