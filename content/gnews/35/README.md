@@ -1,34 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【文心雕龙】“大胡子医生”给川普总统发公开信，公布有效新冠治疗方案
-` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/667001/)
+## 【热点播报】杨安泽发推建议人们应该获得条形码来证明疫苗接种
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/667045/)
 
-作者：美国纽约七星会农场｜Bolu文龍
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19141906/%E6%96%87%E5%BF%83%E9%9B%95%E9%BE%993-copy.jpg)
-不久前，美国犹太裔医生弗拉基米尔·泽连科Vladimir Zelenko 医生公布了一封他写给川普总统的公开信，呼吁政府将他的临床经验用于全国性预防和治疗，并公布了他的新冠病毒临床治疗方案。
+**作者：香草山写作组** Daxia 校对/发稿：飞虹
 
-新冠疫情全球爆发以来，泽连科医生因持续坚持使用羟氯喹和锌治疗患者而获得关注，很多人特别是爆料革命战友都亲切的称呼他为“大胡子医生”。他刚刚出版了与哈佛大学及耶鲁医学院同仁合著的有关该项治疗过程的新书，书中详细记载了治疗COVID-19患者的经验，他们在2020年3月份首次使用羟氯喹和锌治疗了350例患者，至今100％成功治愈！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07015922/logo-3-1-1.jpg)
 
-泽连科医生在信中还说道：“这是（病毒对人类的）第三次世界大战！我们不能像在和平时期那样进行研究和运作，在我们等待的过程中将有数百万人死亡，经济将崩溃！” 我们一并将泽连科医生的这封公开信及的详细预防和治疗方案中文版链接奉上分享。
 
-1.泽连科医生给川普总统的公开信：
 
-[https://www.chinasona.org/Thiaoouba/Zelenko-Trump.html](https://www.chinasona.org/Thiaoouba/Zelenko-Trump.html)
+本文信息来自welovetrupm网站。
 
-2. 泽连科医生处方：
+根据该网站的消息，前民主党总统候选人杨安泽昨天在推特上发帖称，人们应该标注条形码来显示巳注射疫苗，并说他认为这是个好主意。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19143220/14-4.png)
+原贴中文翻译：＂有没有办法让某人轻松地表明自己已经接种了疫苗——就像可以下载到手机上的条形码一样？ 应该有。＂原文如下图所示。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19143246/15-1-2.png)
+据BBC报道：中国政府主席习近平正在推动建立一个使用QR码的全球跟踪系统，建立一个使用二维码开放国际旅行的“全球机制”。他说：“我们需要进一步统一政策和标准，并建立‘**快速通道**’，以促进人员有序流动。以监视人员和任何源自的冠状病毒的潜在暴露。这些代码可用于识别‘基于核酸检测结果的健康证书’”。但习近平没有进一步详细说明旅行计划应该如何运作，也没有以中国的二维码应用程序为模型，这些应用程序已被用于帮助遏制中国大陆的病毒。
 
-[https://www.chinasona.org/Thiaoouba/coronavirus-treatment-plan-cn.html](https://www.chinasona.org/Thiaoouba/coronavirus-treatment-plan-cn.html)
+但人权倡导者警告说，“这些方法可用于更广泛的政治监测和排斥”。
 
-3. 泽连科医生的预防方案：
+种种迹象表明，杨安泽推荐向中共国照葫芦画瓢的作法，与中共提倡的人类命运共同体策略有某种必然联系，敬请继续关注下步新动态。
 
-[https://www.chinasona.org/Thiaoouba/coronavirus-prophylaxis-plan-cn.html](https://www.chinasona.org/Thiaoouba/coronavirus-prophylaxis-plan-cn.html)
 
-更多精彩内容请关注：
 
-- [美国纽约七星会农场（为子孙爱七哥）官推](https://twitter.com/wzsaqg)
-- [美国纽约七星会农场（为子孙爱七哥）GTV](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
-- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19044815/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-2.jpg)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
 0

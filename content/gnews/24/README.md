@@ -1,53 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1219】-搞笑的乔拜登访谈
-` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/667186/)
+## 【林伍德律师推文1219】- CCPVirus 中共病毒
+` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/667235/)
 
-媒体Rumble报道了当天News Max 主播 Greg Kelly 剖析了乔拜登参加Colbert采访时，“笨拙和精神涣散”的对话。Greg对现场采访的距离、拜登谈话内容和反应等作出分析和讽刺，说他们偷走了大选，他们是盗贼。又病又懒的乔拜登赢得人类史上最多选票8000万。
-
-
-视频来源 NewsMax
-林伍德律师在推文中说，
+林伍德律师当日发推：
 
 
-> “Greg Kelly 是一个真相提供者。请仔细聆听这次采访。
+> Covid-19是上呼吸道流感病毒。它是CCP病毒。
 > 
-> “乔 “贿赂 “（拜登）永远不会成为我们伟大国家的总统。
+> 它杀死了许多美国人。医学治疗被查封。本可以挽救很多生命。
 > 
-> “仇视川普总统的人，以及中共/全球主义者/中情局的粉丝们将很快面对这个真相。
+> 它使我们分裂和孤立，使我们更容易被控制。主流媒体用谎言吓唬我们。
 > 
-> “川普总统还将再任4年。”
-
-
-紧接着，林伍德律师再次发推称，
-
-
-> “乔 “贿赂 “拜登永远不会就职。
+> 它是邮寄投票的借口。
+> 
+> 所有都是计划好的。
 
 
 
 
-
-
-> “是的，共产党人和暴君作弊，企图在我们的国家选举中从川普总统偷走（选举的胜利果实。）
-
-
-
-> “川普赢了。他们输了。
-
-
-
-> “美国很快就会醒悟过来，知道真相。”
-
-
+> Covid-19 was upper respiratory flu virus. It was CCP Virus.
+> 
+> It killed many Americans. Medical treatments were censored. Lives could have been saved. 
+> 
+> It divided & isolated us making us easier to control. MSM scared us with lies.
+> 
+> It was excuse for mail ballots.
+> 
+> All planned.
+> — Lin Wood (@LLinWood) [December 19, 2020](https://twitter.com/LLinWood/status/1340339189536141312?ref_src=twsrc%5Etfw)
 
 
 
-
-
-新闻素材和图片来自林伍德律师推特，Rumble.com
+新闻素材和图片来自林伍德律师推特
 
 
 
-1+
+0

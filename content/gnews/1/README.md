@@ -1,112 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1219】-乔州、爱国者、无畏
-` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/667553/)
+## 【推特摘录1219】-为川普而战
+` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/667612/)
 
-新闻摘录 喜马拉雅的文雅
-
-
-### **关于醒悟**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19182538/trump-won.jpg)
 
 
-> “比较你对11月3日之前和现对政府腐败程度的了解。
-> 
-> “你的眼睛被打开了吗？
-> 
-> “你现在清醒了吗？
-> 
-> “你准备好#现在就反击吗？”
+12月19日弗林将军转发了一篇视频，该视频被点击观看120万次，播放了美国人和全球各地支持川普总统的场景，包括一开始香港运动中人们手举美国国旗的场面，群体集会，街头支持，有人在讲台陈辞，有人在商场演讲，有万头攒动，有个人视频，背景是音乐加“为川普而战”的集体呼声，观后甚是激动人心。
 
 
 
+> .[@cjtruth](https://twitter.com/cjtruth?ref_src=twsrc%5Etfw) [@SharletaBasset1](https://twitter.com/SharletaBasset1?ref_src=twsrc%5Etfw) [@kelliwardaz](https://twitter.com/kelliwardaz?ref_src=twsrc%5Etfw) [@tracybeanz](https://twitter.com/tracybeanz?ref_src=twsrc%5Etfw) [@BarbaraRedgate](https://twitter.com/BarbaraRedgate?ref_src=twsrc%5Etfw) [@flynn\_neill](https://twitter.com/flynn_neill?ref_src=twsrc%5Etfw) [@lofly727](https://twitter.com/lofly727?ref_src=twsrc%5Etfw) [#FightForTrump](https://twitter.com/hashtag/FightForTrump?src=hash&amp;ref_src=twsrc%5Etfw) & [#FightForAmerica](https://twitter.com/hashtag/FightForAmerica?src=hash&amp;ref_src=twsrc%5Etfw) !!! [https://t.co/JTDNIvH7E0](https://t.co/JTDNIvH7E0)
+> — General Flynn (@GenFlynn) [December 19, 2020](https://twitter.com/GenFlynn/status/1340358982452588546?ref_src=twsrc%5Etfw)
 
 
 
-### **申诉的结果**
-
-
-> “哈哈哈！我肯定证明了昨晚我多次承认的真理，我是不完美的。
-> 
-> “关于核实验证乔治亚州第二轮选票的诉讼被错写成“大量”(plenty)，应该是“惩罚”（penalty)
-> 
-> “投诉（申诉）的结果就是核实验证。我猜很多人读了整个申诉就知道了？好!!!”
+川普总统的宪法律师 Jenna Ellis 转推，“自2016年选举以来，川普总统一直被诬陷、被恶意攻击。他告诉我们，他的竞选活动被监视。他说的没错，他告诉我们他没有腐败勾兑。事实证明他是对的。当他说选举被盗走了，我就相信他。”
 
 
 
+> Since the 2016 election, [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) has been falsely accused, maligned, and attacked. He told us his campaign was spied on. He was right. He told us there was no collusion. He was proven right. When he says this election was rigged or stolen, I tend to believe him.
+> — Franklin Graham (@Franklin\_Graham) [December 19, 2020](https://twitter.com/Franklin_Graham/status/1340341310415319040?ref_src=twsrc%5Etfw)
 
 
 
-### 爱国者
-
-
-> 林伍德律师发推：“我们的第一任总统乔治-华盛顿是一个说真话的人，一个爱国者，和一个自由的战士。仔细阅读他的话。明智的选择。”
-> 
-> 推文引用华盛顿总统的话：
-> 
-> “是时候该决定美国人是要自由还是当奴隶；是否能够拥有自己的财产；是否家园被摧毁, 自己陷入悲惨的境地,任何人都无法被解救。无数未来的生命都将取决于上帝的庇佑，取决于这支军队的勇气和行为。我们残酷无情的敌人留给我们的选择只有勇敢的抵抗，或最卑微的屈服。因此，我们必须下定决心，要么战胜，要么死亡。
-
-
-
-
-
-
-### 乔治亚州
-
-
-> “尽管我不完美，我讲出了真相。这段视频讲的是真理。
-> 
-> “乔治亚州州长，必须辞职，承认他的罪行，并要求宽恕。他是乔州的叛徒。他是我们国家的叛徒。”
-> 
-> 视频“Brian Kemp (乔州州长）与中国、多米尼和乔治亚州关联的腐败的网”引用了福克斯新闻报道翟东升大放厥词作证中共蓝金黄的铁证视频，以及中方谈论乔治亚州作为重要港口进行投资（渗透）的位置，和更多乔治亚州与中共国经贸往来的记录。
-
-
-
-### [**观看视频**](https://odysee.com/@Spirit-of-Admetos:d/brian-kemp-and-the-web-of-corruption:f)
-
-
-
-
-### 首席大法官
-
-
-> “现在是首席大法官约翰-罗伯茨辞职的时候了，承认他的腐败并请求宽恕。
-> 
-> “罗伯茨已经背叛了他神圣的宣誓职务。他背叛了他的国家。他背叛了我们人民。”
-
-
-
-
-
-
-### 无畏
-
-
-> “卡洛斯 @CarlosESilva65 是一个讲真话的人。
-> 
-> “我的申诉中的指控揭示了 “大量的伪证”。
-> 
-> “很多人很快就会知道伪证罪的惩罚。
-> 
-> “我不会是其中之一。我说的是真相。我无所畏惧。”
-
-
-
-
-
-
-### 社会主义
-
-
-> 美国不会成为社会主义国家，这是真理。
-
-
-
-
-
-
-
-新闻素材和图片来自林伍德律师推特及其转发的推特和新闻链接https://odysee.com/@Spirit-of-Admetos:d/brian-kemp-and-the-web-of-corruption:f
+新闻素材和图片来自福林将军推文，Jenna Ellis 推文
 
 
 

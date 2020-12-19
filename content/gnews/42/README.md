@@ -1,48 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发：国家情报总监确认“中共国、伊朗、俄罗斯干预大选”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/666893/)
+## 【世事解评】商道：GCLUB成就一代贵族
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/666897/)
 
-*新闻来源：The Gateway Pundit《门户网站评论员》；作者：Jim Hoft 吉姆·霍夫；发布时间：2020年12月16日*
+作者：**香草山写作组 如水** 校对/发稿：飞虹
 
-*翻译/简评：Cathy r；校对：Beicy-数学老师；审核：万人往；Page：拱卒*
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/1076be0e-7ad2-4652-89da-0adb3a1eca4c.jpg?asset_id=f94bc42a-4d68-4ee1-ab37-dad404fd1e1c&amp;img_etag=%22be30f6745250168128cde19f1a8f8ba4%22&amp;size=1024)](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/1076be0e-7ad2-4652-89da-0adb3a1eca4c.jpg?asset_id=f94bc42a-4d68-4ee1-ab37-dad404fd1e1c&amp;img_etag=%22be30f6745250168128cde19f1a8f8ba4%22&amp;size=1024)
-
-**简评：**
-
-美国国家情报总监拉特克利夫不甘对反对势力退让，率先爆出中共国、伊朗和俄罗斯进行了外国大选干预，为给接下来的行动提前进行舆论吹风，给干预选举的黑暗势力施加压力，灭共的扳机已经上弦了。
-
-**原文翻译：**
-
-# 爆炸新闻：凯瑟琳·赫里奇（Catherine Herridge）报告国家情报总监（DNI）约翰·拉特克利夫（John Ratcliffe）确认“ 在11月，中共国、伊朗和俄罗斯进行了外国大选干预。”
-
-![]()![](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/083dd5e8-c8b2-430d-9817-695188d89292.jpg?asset_id=39e0f744-0a04-4787-81de-13a54d1a241c&amp;img_etag=%22c33315ed7237f0ec930f618b0fee9608%22&amp;size=2560)
-
-**哥伦比亚广播公司 （CBS）记者凯瑟琳·赫里奇（Catherine Herridge）周三报道说，国家情报总监约翰·拉特克利夫（DNI John Ratcliffe）对哥伦比亚广播公司说：“今年11月的外国大选干预有中共国、伊朗和俄罗斯(参与)。”**
-
-哥伦比亚广播公司记者：拉特克利夫对选举欺诈和干预有何评论？
-
-*凯瑟·赫里奇：国家情报总监拉特克利夫领导着17个情报机构，他可以接触到美国政府拥有的最高机密的信息。他告诉哥伦比亚广播公司新闻部，今年11月美国(大选)受到了中共国、伊朗和俄罗斯的外国干预，他预计将在一月份就这些发现进行公开报道。*
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/0aec87d0-7bfb-4d8d-8c26-619a94cbd93f.jpg?asset_id=dc7e7c0b-d493-46ee-a65b-c3a8e2e81d4e&amp;img_etag=%225faf9306aad79973befcce19a6ba6ad8%22&amp;size=2669)](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/0aec87d0-7bfb-4d8d-8c26-619a94cbd93f.jpg?asset_id=dc7e7c0b-d493-46ee-a65b-c3a8e2e81d4e&amp;img_etag=%225faf9306aad79973befcce19a6ba6ad8%22&amp;size=1024)(推文翻译)突发 哥伦比亚广播公司新闻高级记者赫里奇报道，约翰·拉特克利夫 “告诉哥伦比亚广播公司新闻，今年[2020年]11月有中共国、伊朗和俄罗斯外国干涉选举”。 更多的内容还在后面。
-
-**记录在案，国家情报总监拉特克利夫上周末与川普总统一起参加了陆军—-海军比赛！**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/66d5b8e2-d75a-4a80-a71a-8d5ec47f2663.jpg?asset_id=839fd416-2392-4347-88ca-7193a86f7787&amp;img_etag=%22d0fb76b86ead59aecc098fabdd059769%22&amp;size=3049)](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/66d5b8e2-d75a-4a80-a71a-8d5ec47f2663.jpg?asset_id=839fd416-2392-4347-88ca-7193a86f7787&amp;img_etag=%22d0fb76b86ead59aecc098fabdd059769%22&amp;size=1024)(推文翻译)不做头条。国家情报局局长拉特克利夫与川普总统一起出席陆海军橄榄球赛, 不只是巧合？周六没有被注意到的是，国家情报局局长（DNI）约翰·拉特克利夫今天和川普总统一起参加了陆军-海军的足球赛。前代表、现任国家情报局局长约翰·拉特克利夫今天在推特上表示，他和总统一起参加了陆军-海军的橄榄球比赛。与川普总统同行……
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14092131/GNEW-GTV-MOS-LOGO-2.jpg)
 
 
-[原文链接](https://www.thegatewaypundit.com/2020/12/breaking-catherine-herridge-reports-dni-john-ratcliffe-confirmed-foreign-election-interference-china-iran-russia-november-video/)
 
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+GCLUB会员，将是我们新中国联邦最早的一批贵族，有一份承托社会发展的责任，有一个社会尊重认可的地位，有一份时尚体面的生活，有一定的财富和文化修养，是我们新中国联邦建设中不可缺少的中坚力量。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19135007/0-6.jpg)
+**何谓贵族？**
 
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+“贵族”除了是一种生活方式外，更重要的是具有丰富人文内涵的一种特指，最早的贵族起源于欧洲。作为一种历史文化传统，贵族不仅意味着一种地位和头衔，也意味着社会行为准则、价值标准和社会责任，也就是我们称为“贵族精神”的东西。
 
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+贵族精神的一个特点是骑士精神，勇敢尚武，光明磊落，尊重女性及孺弱。另一个特点则是强烈的主人意识和社会责任感。贵族精神中社会责任的主要元素其实就是平民意识，“俯身而下”，对弱势群体的同情和关怀。这是对社会的担当，严于自律，珍惜声誉，扶助弱势群体，担当起社会与国家的责任。
 
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/Rk7BD9nYbeUe2/)
+“贵族精神”并不为“贵族”所垄断，贵族精神跟物质条件，有的时候可以说没有什么关系。当年张爱玲记载过一个旧上海公寓里的电梯工，一定要衣冠楚楚，领带打得整整齐齐，才肯出来给顾客开电梯，这也体现了一种贵族风度。还比如许纪霖教授所说的，有一个下岗的三轮车夫，靠自己蹬三轮车的微薄收入，养活了几十个孤儿，一个一个送他们去上学，这体现的也是一种贵族精神。所以说，贵族精神说离我们远也远，说离我们近也很近，我们每个人都可以成为一个精神上的贵族。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+如今国内很多人对于贵族的理解只停留在物质上，例如拥有高档住宅、豪车、美女如云、消费奢侈品、子女上“贵族学校”和出国留学等。其实这只是一种形式主义的贵族生活。这种所谓贵族实际只是一种非常肤浅、粗糙的理解。从某种意义上来讲，精神的贵族和所谓富有之人应该是没有关系的。精神的贵族不一定富有，富有之人不一定是贵族。因为这种贵族精神不是用钱可以买来的。
 
-1+
+贵族必须是与其品德、学识、行为相符合的。否则，即使其权倾天下，富可敌国，亦不能进入贵族的行列中。贵族精神的三个原则是，自尊精神，这是非常重要的最根本的精神；原则精神，尊重自己尊重别人，要讲规则讲原则，这是贵族非常重要的一个精神；低调精神，要有自知之明，知道世界有多大，历史有多长，摆正自己的位置，知道自己的有限性。他们有文化的教养，能抵御物欲主义的诱惑，有高贵的道德情操，同时有自由的灵魂，有独立的意志，在权力与金钱面前敢于说不。具有知性与道德的自主性，不为政治强权与多数人的意见所奴役。
+
+GCLUB会员是新中国联邦的贵族，需要承担新中国联邦社会发展的责任。新中国联邦贵族，从爆料革命战友做起，以加入GCLUB升级，共同组建担负新中国联邦建设的群体。我们需要这个群体来清除中共七十余年的思想余毒，共同创造和维持市场秩序，建立社会的自我良性治理与民间文化的健康发展。我们新中国联邦需要从旧体制到新体制的转型，那么贵族精神就非常重要，没有一个分布在社会各层面、各角落的具有贵族精神的群体，就很难实现社会自我治理，很难有平稳的制度转型和理性的政治。
+
+新中国联邦需要GCLUB会员们引领贵族精神的潮流，带领全民发扬这种贵族精神，并承担起社会责任，抵御恶势力，秉持正道主义，坚持新联邦信仰，维护新联邦宣言，改善华人形象，把新中国联邦建设发展成可良性循环的民主自由法治的社会。
+
+（详解请关注：香草山之声《商道》栏目第十八期）
+
+（本文内容仅代表作者个人观点）
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+0

@@ -1,37 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 一如既往的愚蠢还是假冒伪善？
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/667533/)
+## 五角大楼紧急关闭网络
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/667562/)
 
-摘要：乔·拜登将《诗篇》（Psalms）念成“手掌书”（palms）[译者注：Psalms 和 palms 的英文发音相近]。
+新闻来源：《The Gateway Pundit》；作者：Jim Hoft；发布时间：December 15 , 2020 /2020年12月15日
 
-【编者按】一个小小的滑稽的失误表明了几个严重的问题：他是一如既往的愚蠢还是一个假冒伪善者，也许两者都是。
-[视频来源](https://youtu.be/eNrEODVKAO0)
-Transcript (全文)：
+翻译/简评：Victory；校对：感恩；审核：万人往；Page：小雨
 
-And friends, seeing you as it’s Sunday and lord’s day. I thought we might have a little reading from the scripture from America’s punitive next president that self-proclaimed devout mass-going catholic Joe Biden, take it away deacon Joe and:
+**简评：**
 
-朋友们，在周日这个上帝的日子里见到你们。 我想，我们可以从自称是虔诚的大众化天主教徒、美国应受惩罚的下一任总统乔·拜登的经文里读到一点，请看乔执事：
+一般网络升级会尽量选在非工作时间进行。这次国防部在工作时间紧急关闭网络进行升级，一定是有非常事件发生。很可能是发现正在遭受攻击或者有重大安全漏洞。暂时还没有看到证据表明此事和中共有关，但考虑到中共一贯地操纵黑客攻击美国的行为，此事他们难脱干系。我们期待后续报道。
 
-Joe Biden: If we do and I’m sure we can, we can proclaim the promised with “palms” (psalm) who wrote the following words: the lord is my strength and my shield…
+**原文翻译：**
 
-乔·拜登：如果我们这样做，我相信我们可以，我们可以用以下几句来称颂应许的手掌（诗篇）：主是我的力量，是我的盾牌…
+# 
+突发：五角大楼对其秘密的互联网协议路由器网络实施紧急关闭–处理机密信息至秘密级别
 
-Sorry, did he just call the book of psalms the book of palms? Now I know you don’t even have to be Pope Francis to be pronounce the word psalms. Rita is such a staunch atheist and you know how to pronounce it, right? Yeah, I think she does. It’s a small hilarious slip up that has a serious point though and actually there’s several serious points behind this latest Joe Biden blooper.
+[!\[\]()!\[\](https://spark.adobe.com/page/z3LcPGGrqOzjA/images/ad3e7d44-228a-4028-b7b1-9d25367b30d2.jpg?asset_id=a60232b4-b7a7-48ae-86b6-54b15a13d90a&amp;img_etag=%222e650e25fa65739f75fdc58ee4caa77e%22&amp;size=1024)](https://spark.adobe.com/page/z3LcPGGrqOzjA/images/ad3e7d44-228a-4028-b7b1-9d25367b30d2.jpg?asset_id=a60232b4-b7a7-48ae-86b6-54b15a13d90a&amp;img_etag=%222e650e25fa65739f75fdc58ee4caa77e%22&amp;size=1024)
 
-抱歉，他刚刚是在称圣经的诗篇为手掌书吗？现在，我知道您不必是弗朗西斯教皇就能够念诗篇。丽塔是一位坚定的无神论者，你知道如何发诗篇的音，对吗？是的，我想她知道。这是一个有严重问题的小小的滑稽的失误。实际上，最近乔·拜登新的吹牛的背后有几个重要的问题。
+五角大楼周二对处理机密材料的计算机网络实施紧急关闭。
 
-Number one, for all Joe Baden’s claim to the mantle of religion, he is something of a false teacher. It’s not just his unfamiliarity with basic bits of scripture. I mean as a catholic, he would know that every Sunday’s mass features a responsorial psalm but the fact that the media is fawning over his faith. I mean do you really think there’s chance the guardian among other outlets would be promoting Biden’s religiosity as a good thing？
+此前，网络安全和基础设施安全局(CISA)于周日晚间罕见地发布了21-01号紧急指令，以应对涉及太阳风（SolarWinds） Orion产品的已知让步。
 
-第一，对于所有乔·拜登宣称的宗教信仰而言，他不是个真正的老师。 这不仅是他不熟悉圣经的基本知识。 我的意思是说，作为一个天主教徒，他会知道每个星期天的弥撒都带有赞美诗篇，但事实是，媒体讨好他的信仰。 我的意思是说，您真的认为《卫报》和其他机构推崇拜登的宗教信仰是一件好事吗？
+周日晚上的指令仅是CISA根据国会在2015年《网络安全法》中授予的权力发布的第五个紧急指令。
 
-If they thought for a second, he might actually believe it or if he might let inform his views on anything from abortion to modern liberalism’s unending assault on the family? Not a chance! But the second point is this for all this stumbles, Joe Biden is just as dopey as ever. Remember this is the witness protection candidate, the democrats, the media and the Washington swamp hold across the line against all odds so that they could use him as a stalking horse to get all the old failed establishment banned back together.
+据《Just the News》报道，五角大楼已经对其秘密互联网协议路由器网络实施了紧急关闭，该网络处理的机密信息达到了秘密级别。
 
-如果他们想一下，他可能会真正相信它，或者如果他愿意就从堕胎到现代自由主义无休止的对家庭的攻击等任何事情发表自己的见解？没机会！而第二个重点是，在这一切的蹒跚中，乔·拜登还是一如既往的愚蠢。请记住，这是证人保护候选人，民主党人、媒体和华盛顿沼泽越线反对所有可能性，以确保他们可以利用他作为掩护性候选人，让所有失败的、被禁止的老机构团结到一起。
+一位官员说：”这种情况从来没有在工作日中发生过。”
 
-听写 & 翻译：【JennyL】校对:【Cyndi】字幕：【绒绒兔】新闻线索：【John】
+《Just the News》报道：
 
-玫瑰园小队出品
+*国防部三名消息人士证实，五角大楼周二下令紧急关闭一个机密的内部通信网络。*
+
+*这次史无前例的日间停摆，是在最近揭露包括国土安全部在内的其它联邦机构被黑客入侵的情况下发生的。*
+
+*消息人士告诉《Just the News》，国防部提醒员工，SIPRNET系统在晚些时候关闭，进行紧急软件更新。*
+
+*……该系统被称为秘密互联网协议路由器网络，处理机密信息，最高达到秘密级别，被关闭了几个小时。*
+
+[原文链接](https://www.thegatewaypundit.com/2020/12/pentagon-imposes-emergency-shutdown-secret-internet-protocol-router-network-handles-classified-information-secret-level/?utm_source=Twitter&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】 –[点击spark adobe版](https://spark.adobe.com/page/z3LcPGGrqOzjA/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/z3LcPGGrqOzjA/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/z3LcPGGrqOzjA/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 1+

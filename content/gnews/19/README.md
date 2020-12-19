@@ -1,26 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 安全专家在安特里姆县审计后说：将有大事发生，未来几天出现的证据将彻底改变战局！（视频）
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/667208/)
+## 民主党人保护中共宣传机器—&#8221;孔子学院 &#8220;团体不受惩罚
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/667296/)
 
-作者：吉姆·霍夫特, 2020年12月18日
-翻译： 康州盘古农场 – Antsee-GTV
-校对： 康州盘古农场 – Bruce
-编辑： 康州盘古农场 – V
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19154445/Antrim-Dominion.png)视频采访链接：**[https://www.youtube.com/watch?v=Ykjjr8KUgSQ&feature=emb\_logo&ab\_channel=GatewayPundit](https://www.youtube.com/watch?v=Ykjjr8KUgSQ&amp;feature=emb_logo&amp;ab_channel=GatewayPundit)**
-星期五晚上，选举技术和安全专家拉塞尔·拉姆斯兰德（Russell Ramsland）参加了格雷格·凯利（Greg Kelly，Newsmax电视节目主持人）的节目，讨论了他的公司在密歇根州安特里姆县多米尼投票机检查（Dominion Voting Machines）中的发现。
+作者：娜塔丽·温特斯（Natalie Winters）于2020年12月18日
+翻译：康州盘古农场-文白
+校对：康州盘古农场-挺郭大刺猬
+审核：康州盘古农场- V
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19160849/Confucius_Institute_Troy_University_nationalpulse.jpg)孔子学院，图源：thenationalpulse.com
+众议院民主党人修改了一项针对容纳中共政府资助的 “孔子学院 “的大学的法案，阻止教育部限制其经费，遏制中共在校园的影响力。
 
-拉姆斯兰德的情报小组分析了安特里姆县的16台多米尼投票机，在该县2020年11月3日（的大选）有数千张选票从特朗普总统“翻转”给了乔·拜登。
+该法案在参议院一致通过，其中有一条规定，允许教育部扣留举办中共政府支持的 “孔子学院 “大学的经费。
 
-他们的报告是压倒性的。 多米尼投票机被“抓住”换票、故意产生大量选票错误，然后将其转移到场外裁决。
+而12月11日国会通过的修订版，大大阉割了这一条款。现在，只有国防部才能扣留联邦对大学的资助。
 
-星期五晚上（的节目中），拉姆斯兰德告诉Newsmax，川普竞选（团队）可能无法在法庭上获胜，因为诉讼在甚至没有听取证据之前就被驳回了。
+据一名国会高级助手称，修正案将法案的范围缩小到 “保障国防部资助的研究活动，而不是原法案所设想的广泛保护”。这也将使孔子学院更容易在小学、初中和高中阶段继续运作。
 
-拉姆斯兰德接着对格雷格·凯利说：“但我认为，未来几天将会出现的一些信息将彻底改变战局。 真正的问题将是人们会对此进行报道。”
+特朗普政府将孔子学院指定为 “外国使团”，是考虑到它们得到中共政府的资助，以及传播旨在让学生 “为中共利益代言 “的宣传。
 
-译者注：现在是风暴来临前的短暂宁静。（视频采访中）拉姆斯兰德在凯利的节目中说：报告发布后，密歇根州州务卿下达的“禁言令”，显得非常“有趣”，她怕什么？另外拉姆斯兰德提到一位在佐治亚州作证的区域主管在作证时说他上传到了错误的选区，于是打电话给客服寻求帮助，客服说会联系科罗拉多州的（服务团队），随后科罗拉多州的团队说稍等他们会处理。但问题是投票机不是“不联网”的吗？关于这些矛盾点，拉姆斯兰德在凯利的采访中提出都是非常值得探究的。最后听到拉姆斯兰德说未来几天出现的证据会改变战局，主持人凯利表示他的胃口已经完全被“吊起”，迫不及待想知道未来几天会出现什么“证据”了。一切都已经开始！
+然而，民主党人似乎不这么认为，这激怒了他们的共和党同事。
 
-文章链接： [https://www.thegatewaypundit.com/2020/12/going-evidence-comes-forward-next-days-will-drastically-change-playing-field-security-expert-behind-antrim-county-audit-says-something-big-coming-video/](https://www.thegatewaypundit.com/2020/12/going-evidence-comes-forward-next-days-will-drastically-change-playing-field-security-expert-behind-antrim-county-audit-says-something-big-coming-video/)
+帮助撰写反孔子学院措施的参议员约翰·肯尼迪说，民主党人 “挖空了 “对抗中共在学术界影响力的重要武器。
+
+他补充说：”中共仍在购买美国校园的影响力，然而民主党人却把一项《国防授权法》修正案给挖掉了，该修正案将保护学术自由，并让美国高校控制孔子学院在我们的土地上教什么”。
+
+众议院少数党领袖凯文·麦卡锡同样抨击民主党人未能解决中共政府的问题。
+
+他补充说：”《国防授权法》中对孔子学院措辞的修改是民主党人中共问题的又一个例子。美国人知道，要打击中共对我们民主自由的攻击，需要采取全社会的方法。我们必须采取全面的方法，特别是借鉴中共问题特别工作组的建议，这样我们的解决方案就不会在范围上受到这样的限制。”。
+
+原文链接：[https://thenationalpulse.com/breaking/democrats-protect-chinese-communist-propaganda-confucius-groups-from-punitive-action/](https://thenationalpulse.com/breaking/democrats-protect-chinese-communist-propaganda-confucius-groups-from-punitive-action/)
 
 0
