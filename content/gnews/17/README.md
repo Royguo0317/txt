@@ -1,26 +1,197 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【文心雕龙】CCP病毒疫情已对全球儿童现状和成长造成深远影响
-` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/667039/)
+## 美国商务部制裁60家中共实体清单
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/667223/)
 
-作者：美国纽约七星会农场｜Bolu文龍
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19143559/%E6%96%87%E5%BF%83%E9%9B%95%E9%BE%994.jpg)
-2020年11月总部设在纽约的联合国儿童基金会发布报告称：冠状病毒病大流行疫情已经对全球儿童造成日益严重的影响和潜在后果。
+俄罗斯莫斯科喀秋莎农场 Sydney
 
-这份名为“避免儿童成为疫情下失落一代”的报告，是联合国儿基会首个全面概述疫情持续对全球儿童造成怎样影响的报告。关于此次新冠病毒的一个谣言是儿童几乎不会感染，但事实是儿童同样会感染并传播病毒！同时报告指出数据表明，学校并非社区内传播疫情的主要途径，学生在校外的感染风险仍远高于校内。但伴随着学校停课/社会停摆/父母失业/情感波动/家庭纷争和潜在暴力等次生效应，疫情持续的时间越长，对儿童的教育、健康、营养和福祉的影响就越深，甚至影响整整一代人的未来，改变他们的一生。
+校对上传 银河
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19153821/Snipaste_2020-12-20_04-38-05.png)图片：俄罗斯莫斯科喀秋莎农场 银河
+美国政府商务部周五（12月18日）决定把数十家企业加入制裁实体清单。据美商务部发言人当天在新闻发布会上的表示，这次被列入清单的企业大部分是中共国公司。它们在协助解放军提高军事能力方面发挥着重要的作用。
 
-在报告中，儿基会官员亨丽埃塔·福尔说：“未来当我们重新构想并开始建设疫情后的世界时，我们必须优先考虑到疫情影响下的全球儿童。”
+以下是对来自美国商务部下属机构工业和安全局 (Bureau of Industry and Security)官方文件涉及中共企业清单的翻译(人名音译)：
 
-参考链接:
+摘自今天要发布的《联邦公报》通知：出于上述原因，最终规则将以下77个实体（总共78个条目）添加到实体清单：
 
-[联合国儿童基金会呼吁避免让儿童成为失落的一代，因为2019冠状病毒病疫情可能会对儿童的教育、营养和福祉造成不可挽回的伤害](https://www.unicef.org/zh/%E6%96%B0%E9%97%BB%E7%A8%BF/%E8%81%94%E5%90%88%E5%9B%BD%E5%84%BF%E7%AB%A5%E5%9F%BA%E9%87%91%E4%BC%9A%E5%91%BC%E5%90%81%E9%81%BF%E5%85%8D%E8%AE%A9%E5%84%BF%E7%AB%A5%E6%88%90%E4%B8%BA%E5%A4%B1%E8%90%BD%E7%9A%84%E4%B8%80%E4%BB%A3%EF%BC%8C%E5%9B%A0%E4%B8%BA2019%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92%E7%97%85%E7%96%AB%E6%83%85%E5%8F%AF%E8%83%BD%E4%BC%9A%E5%AF%B9%E5%84%BF%E7%AB%A5%E7%9A%84%E6%95%99%E8%82%B2%E3%80%81%E8%90%A5%E5%85%BB%E5%92%8C%E7%A6%8F%E7%A5%89%E9%80%A0%E6%88%90%E4%B8%8D%E5%8F%AF%E6%8C%BD%E5%9B%9E%E7%9A%84%E4%BC%A4%E5%AE%B3)
+保加利亚（4）
 
-更多精彩内容请关注：
+·Dimitar Milanov Dimitrov;
 
-- [美国纽约七星会农场（为子孙爱七哥）官推](https://twitter.com/wzsaqg)
-- [美国纽约七星会农场（为子孙爱七哥）GTV](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
-- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
+·Mariana Marinova Gargova;
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19044815/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-2.jpg)
+·Milan Dimitrov; *and*
+
+·Multi Technology Integration Group EOOD (MTIG).
+
+中国（60）
+
+·无锡中德美联生物技术有限公司；
+
+·北京理工大学；
+
+·北京邮电大学；
+
+·中国交通建设股份有限公司；
+
+·中国科学器材公司；
+
+·中国船舶集团有限公司（CSSC）第七研究院；
+
+·中国船舶集团有限公司（CSSC）第十二研究所；
+
+·中国船舶集团有限公司（CSSC）701研究所；
+
+·中国船舶集团有限公司（CSSC）702研究所；
+
+·中国船舶集团有限公司（CSSC）703研究所；
+
+·中国船舶集团有限公司（CSSC）704研究所；
+
+·中国船舶集团有限公司（CSSC）705研究所；
+
+·中国船舶集团有限公司（CSSC）707研究所；
+
+·中国船舶集团有限公司（CSSC）709研究所；
+
+·中国船舶集团有限公司（CSSC）710研究所；
+
+·中国船舶集团有限公司（CSSC）711研究所；
+
+·中国船舶集团有限公司（CSSC）712研究所；
+
+·中国船舶集团有限公司（CSSC）713研究所；
+
+·中国船舶集团有限公司（CSSC）714研究所；
+
+·中国船舶集团有限公司（CSSC）715研究所；
+
+·中国船舶集团有限公司（CSSC）716研究所；
+
+·中国船舶集团有限公司（CSSC）717研究所；
+
+·中国船舶集团有限公司（CSSC）718研究所；
+
+·中国船舶集团有限公司（CSSC）719号研究所；
+
+·中国船舶集团有限公司（CSSC）723研究所；
+
+·中国船舶集团有限公司（CSSC）724研究所；
+
+·中国船舶集团有限公司（CSSC）725研究所；
+
+·中国船舶集团有限公司（CSSC）726研究所；
+
+·中国船舶集团有限公司（CSSC）750测试中心；
+
+·中国船舶集团有限公司（CSSC）760研究所；
+
+·重庆川东重工船舶有限公司；
+
+·周冲（Chong Zhou）；
+
+·中船黄埔文冲船舶有限公司；
+
+·大疆创新；
+
+·广新海事重工股份有限公司；
+
+·广州市泰诚船舶工业有限公司；
+
+·张惠穗（Huisui Zhang）；
+
+·江苏恒翔智产信息技术股份有限公司；
+
+·陈金平（Jinping Chen）；
+
+·深圳光启集团；
+
+·南京资产管理有限公司；
+
+·南京航空航天大学
+
+·南京理工大学；
+
+·宁波半导体国际公司；
+
+·诺思(天津)微系统有限责任公司；
+
+·中芯国际(北京)有限公司;；
+
+·中芯国际半导体制造公司；
+
+·中芯国际(深圳)有限公司；
+
+·中芯国际(天津)有限公司；
+
+·中芯南方集成电路制造有限公司；
+
+·中芯国际；
+
+·中芯国际控股有限公司；
+
+·中芯北方集成电路制造(北京)有限公司；
+
+·中芯半导体制造(上海)有限公司；
+
+·天津市微纳制造技术工程中心；
+
+·天津大学；
+
+·同方威视技术股份有限公司.
+
+·庞伟（Wei Pang）；*和*
+
+·赵刚（Zhao Gang）
+
+法国（2）
+
+·France Tech Services; *and*
+
+·Satori Corporation.
+
+德国（2）
+
+·Maintenance Services International (MSI) GmbH; *and*
+
+·MRS GmbH.
+
+香港
+
+·中芯香港国际有限公司
+
+意大利
+
+·Zigma Aviation
+
+马耳他（2）
+
+·Feroz Ahmed Akbar; *and*
+
+·Sparx Air Ltd.
+
+巴基斯坦（2）
+
+·Geo Research, and
+
+·Link Lines (Pvt.) Limited
+
+俄罗斯（3）
+
+·Cosmos Complect;
+
+·Ilias Kharesovich Sabirov; and
+
+·OOO Sovtest Comp.
+
+阿拉伯联合酋长国（2）
+
+·Satori Corporation; and
+
+·Sky Float Aviation FZE.
+
+BIS官方文件链接：
+
+[https://www.bis.doc.gov/index.php/documents/about-bis/2678-77-entity-list-additions/file](https://www.bis.doc.gov/index.php/documents/about-bis/2678-77-entity-list-additions/file)
+
 0

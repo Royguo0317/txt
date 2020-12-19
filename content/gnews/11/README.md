@@ -1,81 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1219】-统计分析Dominion/Hart机造假
-` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/667086/)
+## 疫苗真的令人更健康吗？
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/667276/)
 
-12月19日林伍德律师转推了一则对针对 Dominion 和 Har 投票机在大选中使用数据的统计分析报告。读过报告后的结论，如林伍德律师所说，
+蒙特利尔皇家山战友团 Tao
+校对 文锦 上传 云起时
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19155418/singleCare.png)图片来源：SingleCare
+据Natural News报道，近十年的研究表明，没有接种疫苗的人比接种疫苗的同龄人健康得多，相比之下，接种疫苗的人当中有更多的人患有呼吸道感染、哮喘、过敏等疾病。
 
-“川普总统压倒性赢得连任。”
+疾病控制中心(CDC)、卫生与人类服务部(HHS)和国家卫生研究所(NIH)等相关研究机构拒绝进行任何疫苗使用对比研究，即将未接种疫苗的儿童与其同龄人进行比较。根据1986年实施的《国家儿童疫苗伤害法》之规定，HHS有义务每两年进行一次疫苗安全调查研究并向国会报告，但在2018年的一项法院裁决表明，这些疫苗安全研究在过去的三十年里都没有进行过!
 
-他同时说，“稳住。耐心。祈祷。”
+这种赤裸裸的医疗欺诈行为使得疫苗行业强势兴起，相关研究机构和企业赚得盆满钵满，儿童被推荐接种的疫苗数量也越来越多。令人震惊的是，随着儿童疫苗接种量的增加，美国儿童的健康状况在过去三十年里并没有得到改善。儿童呼吸道感染猖獗，看儿科医生的次数倍增。现在美国有高达54%的儿童和年轻人患有慢性病，他们需要终生服药来克服疾病带来的困扰。
 
+**未接种疫苗的儿童在多项指标上更健康**
 
+近十年研究发现，未接种疫苗的儿童在多项指标上更健康，比较而言，他们的儿科就诊次数减少了25倍。
 
-> Good Saturday morning!
-> 
-> Today is a good day to visit [@KanekoaTheGreat](https://twitter.com/KanekoaTheGreat?ref_src=twsrc%5Etfw) home page & read the thread beginning with this tweet. [@KanekoaTheGreat](https://twitter.com/KanekoaTheGreat?ref_src=twsrc%5Etfw) is a truth-giver. Read carefully.[@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) won re-election by a landslide.
-> 
-> Steady. Patience. Pray. [https://t.co/6zgL3YtY0s](https://t.co/6zgL3YtY0s)
-> — Lin Wood (@LLinWood) [December 19, 2020](https://twitter.com/LLinWood/status/1340328875532967938?ref_src=twsrc%5Etfw)
+发表在《国际环境研究与公共卫生杂志》上的一项新研究发现，未接种疫苗的儿童远比接种疫苗的儿童更健康。随着疫苗接种率的提高，哮喘、过敏性鼻炎、呼吸道感染、湿疹等一系列慢性疾病也随之而来。俄勒冈州由医学博士保罗-托马斯（Paul Thomas）经营的儿科诊所进行了一项为期十年的研究，该研究对3,300名儿童进行了跟踪调查。研究表明，儿童疫苗接种导致了儿科就诊人数不断增加，诊断次数也急剧攀升。
 
+在研究过程中，托马斯医生完全遵循美国医学会的知情同意原则（译者注：知情同意权是指患者有权知道自己的病情，并对医务人员要采取的医疗措施进行决定），并优先考虑家长的决定。如果出现任何疫苗带来的伤害，该计划允许家长停止或推迟接种疫苗。每个孩子的身体对疫苗的反应都是不一样的，湿疹、发育迟缓、过敏或自身免疫性疾病等情况是他们身体无法处理疫苗的典型迹象。托马斯医生的儿科诊所的儿童有一些从未接种疫苗，一些孩子只是接种了部分疫苗，还有一些根据美国疾控中心（CDC）的指南接种了全部的疫苗。这种分布为调查研究提供了完美的样本。
 
+研究发现，未接种疫苗的儿童在健康检查时，呼吸道感染的症状较少，发烧也较少。未接种疫苗的孩子在10年的时间里需要的儿科护理减少了25倍! 美国疾控中心推荐在孩子18岁之前，需要使用70剂16种疫苗。接受了90%至95%的CDC推荐疫苗的儿童，其年龄组看儿科医生的可能性是未接种疫苗组的25倍。
 
-笔者分享统计分析的主要推文如下。
+**接种疫苗的儿童遭受的痛苦更大**
 
-对美国3000多个县进行的无差别分析显示，乔-拜登在使用多米尼克投票系统的县里多得了5.6%的选票。”如果利用计算机的网络系统来欺诈性地影响选票统计……结果会是这样的。”
+与未接种疫苗的同龄人相比，接种疫苗的儿童（有自身免疫问题家族史）遭受的痛苦更大。耶胡达·肖恩菲尔德（Yehuda Shoenfeld）博士在这项研究中有一个重要发现，他指出了一种由佐剂诱发的疫苗伤害。如果有自身免疫系统疾病的家族史，与同样有自身免疫问题家族史的未接种疫苗者相比，接种疫苗的儿童更容易患耳部感染、哮喘、过敏和皮疹。疫苗中的铝佐剂和其他各种化学物质可能会激活自身免疫系统问题的基因。家族病史对决定是否应该给孩子使用疫苗很重要。
 
-2/无论县里的多数党派，也无论城市、郊区或农村地区的人口统计，都能观察到这种Dominion的优势。拜登在民主党州超过预期表现的量，与他在支持川普的县所表现有相同量值。
+**接种疫苗的儿童患贫血、过敏、鼻窦炎和哮喘的可能性增加6倍**
 
-3/ 该分析并不是针对单一或少数几个县。相反，这些信息使用了美国所有县的数据，以查看是否存在涉及投票机类型和选票总数上有明显的普遍模式。
+这项研究的发现中最令人担忧的是，接种疫苗的儿童中慢性疾病问题的增加。接种疫苗的儿童到儿医诊所治疗贫血、过敏、鼻窦炎和哮喘的可能性增加了三到六倍。与未接种疫苗的儿童相比，接种疫苗的儿童患各种呼吸道感染的可能性也高出70%。疫苗是否会削弱免疫力，使孩子更容易受到其他感染？有关报道指出，接种疫苗的孩子面临过敏性鼻炎的风险增加了30倍。
 
-4/在第一张图中，我们看到拜登2020年的实际选举结果。蓝线是我们的中心预测线。一半县应该在蓝线之上，一半县在蓝线之下。这一点被证实是真实的，拜登在45%的县表现超群，55%的县表现不佳。
+**未接种疫苗的人没有多动症**
 
-5/ 我们从美国选举援助委员会取得数据，显示各县使用的投票机。这次只限于使用Dominion机的县，看到大部分的县（78%）都在预测线之上。
+在被调查的儿童群体中，未接种疫苗的儿童完全没有多动症，但随着疫苗接种率的提高，多动症和行为问题增多。托马斯医生在发现大量多动症征兆以后停止了疫苗接种，这也是为什么他在医疗实践中看到的多动症的比率总体上比一般人群低一半的原因。
 
+**疫苗可预防的疾病并不常见**
 
+奇怪的是，四分之一的接种者被诊断出患有疫苗本应预防的感染，包括水痘或百日咳。在未接种疫苗的人群中，水痘和百日咳的发病率略有上升，但他们都康复了，并获得了对这些感染的终身免疫力。接种疫苗的儿童没有出现麻疹、腮腺炎、风疹、破伤风、肝炎或任何其他病例，令人惊讶的是，在整个10年半的研究期间，未接种疫苗的儿童也没有出现这些感染病例。这就引出了一个关键问题，疫苗是否有必要？它们是否给儿童带来不必要的伤害？
 
-> 5/ We obtained data from the U.S. Election Assistance Commission showing the voting machines used by each county. Compare this graph with the same data, except this time limited to counties using Dominion. This time the majority of counties (78%) are ABOVE the prediction line. [pic.twitter.com/QXyeVbxl6y](https://t.co/QXyeVbxl6y)
-> — Kanekoa (@KanekoaTheGreat) [December 18, 2020](https://twitter.com/KanekoaTheGreat/status/1340046613994037248?ref_src=twsrc%5Etfw)
+评：对广泛接种疫苗的质疑一向被媒体描述成“疯人疯语”。经过2020年主流媒体和科学界的集体信誉扫地，也许人们应该对主流媒体和所谓科学界的各种叙事多打几个问号，因为质疑精神真正才是人类社会及科技发展的基石。
 
-
-
-6/ 县级数据按投票机过滤分类显示，候选人拜登在Dominion机器上的表现超出约5%，在Hart机器上也超出约6%。
-
-7/在使用Dominion和Hart机器的县，这个时间拜登的表现高于预期78%。这高度表明(99.9%统计学意义)，操纵投票结果可能发生在Dominion和Hart机器上。
-
-
-
-> 7/ In the Dominion/Hart machine counties, Biden performs above expectations 78% of the time. This is highly indicative (and 99.9% statistically significant) that result manipulation could be occurring with Dominion & Hart machines. [pic.twitter.com/IlAGvWIb4f](https://t.co/IlAGvWIb4f)
-> — Kanekoa (@KanekoaTheGreat) [December 18, 2020](https://twitter.com/KanekoaTheGreat/status/1340046620180639744?ref_src=twsrc%5Etfw)
-
-
-
-8/在这张图中，绿点代表使用Dominion/Hart机器的县的选票。绿点应该以类似的混合/随机方式覆盖蓝点。但我们没有看到这一点。相反，我们看到绿点的中心点位（总是）比蓝点的中心点位高。
-
-9/为了帮助上图分析，我们为使用Dominion/Hart的县和 使用其他机器的县添加了中心线。绿色的中心线保持在蓝色中心线之上，清楚地表明拜登在Dominion/Hart县持续 “胜出”。
-
-
-
-> 9/ To aid in this graphical analysis we added center lines for the Dominion/Hart counties and the “other machine” counties. The green centerline stays above the blue centerline – clearly indicating Biden continuously "outperforming" in Dominion/Hart counties. [pic.twitter.com/qXgu3GyLkS](https://t.co/qXgu3GyLkS)
-> — Kanekoa (@KanekoaTheGreat) [December 18, 2020](https://twitter.com/KanekoaTheGreat/status/1340046627327729664?ref_src=twsrc%5Etfw)
-
-
-
-10/选票增加发生在全美数百个Dominion/Hart县，值得强调的是，在使用这些机器的县，拜登在民主党州胜出表现，与他在支持川普县的胜出表现，保持了相同量。
-
-这表明，一些或所有的Dominion/Hart投票机可能被编程或操纵，使拜登的实际选票数被系统地增加了5个多百分点。注意，这些结果的统计显著性水平高于99.9%。
-
-观看完整统计分析视频
-
-
-
-阅读完整统计报告
-
-[https://gofile.io/d/WtDVhe](https://gofile.io/d/WtDVhe)
-
-新闻素材和图片来自林伍德律师及其所转发的推特，和以上链接。
-
-
+[原文链接](https://www.naturalnews.com/2020-12-13-unvaccinated-children-are-healthier-than-vaccinated-peers.html)
 
 0

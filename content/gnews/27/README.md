@@ -1,48 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发：国家情报总监确认“中共国、伊朗、俄罗斯干预大选”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/666893/)
+## 【文心雕龙】CCP病毒疫情已对全球儿童现状和成长造成深远影响
+` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/667039/)
 
-*新闻来源：The Gateway Pundit《门户网站评论员》；作者：Jim Hoft 吉姆·霍夫；发布时间：2020年12月16日*
+作者：美国纽约七星会农场｜Bolu文龍
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19143559/%E6%96%87%E5%BF%83%E9%9B%95%E9%BE%994.jpg)
+2020年11月总部设在纽约的联合国儿童基金会发布报告称：冠状病毒病大流行疫情已经对全球儿童造成日益严重的影响和潜在后果。
 
-*翻译/简评：Cathy r；校对：Beicy-数学老师；审核：万人往；Page：拱卒*
+这份名为“避免儿童成为疫情下失落一代”的报告，是联合国儿基会首个全面概述疫情持续对全球儿童造成怎样影响的报告。关于此次新冠病毒的一个谣言是儿童几乎不会感染，但事实是儿童同样会感染并传播病毒！同时报告指出数据表明，学校并非社区内传播疫情的主要途径，学生在校外的感染风险仍远高于校内。但伴随着学校停课/社会停摆/父母失业/情感波动/家庭纷争和潜在暴力等次生效应，疫情持续的时间越长，对儿童的教育、健康、营养和福祉的影响就越深，甚至影响整整一代人的未来，改变他们的一生。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/1076be0e-7ad2-4652-89da-0adb3a1eca4c.jpg?asset_id=f94bc42a-4d68-4ee1-ab37-dad404fd1e1c&amp;img_etag=%22be30f6745250168128cde19f1a8f8ba4%22&amp;size=1024)](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/1076be0e-7ad2-4652-89da-0adb3a1eca4c.jpg?asset_id=f94bc42a-4d68-4ee1-ab37-dad404fd1e1c&amp;img_etag=%22be30f6745250168128cde19f1a8f8ba4%22&amp;size=1024)
+在报告中，儿基会官员亨丽埃塔·福尔说：“未来当我们重新构想并开始建设疫情后的世界时，我们必须优先考虑到疫情影响下的全球儿童。”
 
-**简评：**
+参考链接:
 
-美国国家情报总监拉特克利夫不甘对反对势力退让，率先爆出中共国、伊朗和俄罗斯进行了外国大选干预，为给接下来的行动提前进行舆论吹风，给干预选举的黑暗势力施加压力，灭共的扳机已经上弦了。
+[联合国儿童基金会呼吁避免让儿童成为失落的一代，因为2019冠状病毒病疫情可能会对儿童的教育、营养和福祉造成不可挽回的伤害](https://www.unicef.org/zh/%E6%96%B0%E9%97%BB%E7%A8%BF/%E8%81%94%E5%90%88%E5%9B%BD%E5%84%BF%E7%AB%A5%E5%9F%BA%E9%87%91%E4%BC%9A%E5%91%BC%E5%90%81%E9%81%BF%E5%85%8D%E8%AE%A9%E5%84%BF%E7%AB%A5%E6%88%90%E4%B8%BA%E5%A4%B1%E8%90%BD%E7%9A%84%E4%B8%80%E4%BB%A3%EF%BC%8C%E5%9B%A0%E4%B8%BA2019%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92%E7%97%85%E7%96%AB%E6%83%85%E5%8F%AF%E8%83%BD%E4%BC%9A%E5%AF%B9%E5%84%BF%E7%AB%A5%E7%9A%84%E6%95%99%E8%82%B2%E3%80%81%E8%90%A5%E5%85%BB%E5%92%8C%E7%A6%8F%E7%A5%89%E9%80%A0%E6%88%90%E4%B8%8D%E5%8F%AF%E6%8C%BD%E5%9B%9E%E7%9A%84%E4%BC%A4%E5%AE%B3)
 
-**原文翻译：**
+更多精彩内容请关注：
 
-# 爆炸新闻：凯瑟琳·赫里奇（Catherine Herridge）报告国家情报总监（DNI）约翰·拉特克利夫（John Ratcliffe）确认“ 在11月，中共国、伊朗和俄罗斯进行了外国大选干预。”
+- [美国纽约七星会农场（为子孙爱七哥）官推](https://twitter.com/wzsaqg)
+- [美国纽约七星会农场（为子孙爱七哥）GTV](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
+- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
 
-![]()![](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/083dd5e8-c8b2-430d-9817-695188d89292.jpg?asset_id=39e0f744-0a04-4787-81de-13a54d1a241c&amp;img_etag=%22c33315ed7237f0ec930f618b0fee9608%22&amp;size=2560)
-
-**哥伦比亚广播公司 （CBS）记者凯瑟琳·赫里奇（Catherine Herridge）周三报道说，国家情报总监约翰·拉特克利夫（DNI John Ratcliffe）对哥伦比亚广播公司说：“今年11月的外国大选干预有中共国、伊朗和俄罗斯(参与)。”**
-
-哥伦比亚广播公司记者：拉特克利夫对选举欺诈和干预有何评论？
-
-*凯瑟·赫里奇：国家情报总监拉特克利夫领导着17个情报机构，他可以接触到美国政府拥有的最高机密的信息。他告诉哥伦比亚广播公司新闻部，今年11月美国(大选)受到了中共国、伊朗和俄罗斯的外国干预，他预计将在一月份就这些发现进行公开报道。*
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/0aec87d0-7bfb-4d8d-8c26-619a94cbd93f.jpg?asset_id=dc7e7c0b-d493-46ee-a65b-c3a8e2e81d4e&amp;img_etag=%225faf9306aad79973befcce19a6ba6ad8%22&amp;size=2669)](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/0aec87d0-7bfb-4d8d-8c26-619a94cbd93f.jpg?asset_id=dc7e7c0b-d493-46ee-a65b-c3a8e2e81d4e&amp;img_etag=%225faf9306aad79973befcce19a6ba6ad8%22&amp;size=1024)(推文翻译)突发 哥伦比亚广播公司新闻高级记者赫里奇报道，约翰·拉特克利夫 “告诉哥伦比亚广播公司新闻，今年[2020年]11月有中共国、伊朗和俄罗斯外国干涉选举”。 更多的内容还在后面。
-
-**记录在案，国家情报总监拉特克利夫上周末与川普总统一起参加了陆军—-海军比赛！**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/66d5b8e2-d75a-4a80-a71a-8d5ec47f2663.jpg?asset_id=839fd416-2392-4347-88ca-7193a86f7787&amp;img_etag=%22d0fb76b86ead59aecc098fabdd059769%22&amp;size=3049)](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/66d5b8e2-d75a-4a80-a71a-8d5ec47f2663.jpg?asset_id=839fd416-2392-4347-88ca-7193a86f7787&amp;img_etag=%22d0fb76b86ead59aecc098fabdd059769%22&amp;size=1024)(推文翻译)不做头条。国家情报局局长拉特克利夫与川普总统一起出席陆海军橄榄球赛, 不只是巧合？周六没有被注意到的是，国家情报局局长（DNI）约翰·拉特克利夫今天和川普总统一起参加了陆军-海军的足球赛。前代表、现任国家情报局局长约翰·拉特克利夫今天在推特上表示，他和总统一起参加了陆军-海军的橄榄球比赛。与川普总统同行……
-
-
-[原文链接](https://www.thegatewaypundit.com/2020/12/breaking-catherine-herridge-reports-dni-john-ratcliffe-confirmed-foreign-election-interference-china-iran-russia-november-video/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/Rk7BD9nYbeUe2/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
-1+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19044815/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-2.jpg)
+0
