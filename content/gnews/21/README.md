@@ -1,27 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 那段在海外打工的日子
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/664810/)
+## 盛世 “良民”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/666416/)
 
-撰稿：大漠
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18223606/IMG_5333.jpg)网络截图
-那年我在国外，我们很多人一起在国外打工，几乎没有人会和当地人交流，每天都和国内差不多，照样做自己的工作，当然也有极少数人会和当地人交流，这样的很少，每天都谈论着祖国的强大，多么牛叉，看不起当地人，觉得自己就是老大！天天刷抖音快手，当然，如果有人看到不同的消息，获取了不同的消息，他们会表现的非常惊讶。很感兴趣，可惜的是他们都用国产手机，自己不能进一步了解详细信息，于是又回到了他原来的生活状态中，他不舍得买一部能看到外部信息的手机，还是把自己封闭在墙国内。
+*作者：桂花酒；校对/审核：海阔天空；Page：拱卒*
 
-国外的生活也很辛苦，劳动强度很大，工作时间基本都在十二小时以上，同时还有各种各样的宣传活动，隔三差五的来一次政治学习，不停的接受组织的照顾，生怕你控制不住自己，错误的“走进误区”，脱离组织“误入歧途”！
+# **盛世“良民”**
 
-在国外，外出需要组织批准，私自不可以随意走动，他们的理由就是签证问题，不得外出！党的关怀无微不至，你也就习惯了这样的生活，觉得生活就是这样的，没人管着的生活还是生活吗？没人管那还有天理吗？
+[!\[\]()!\[\](https://spark.adobe.com/page/AmVTkyIYMjVwB/images/81517448-b9d4-43e7-bd79-f898698719e5.jpg?asset_id=da55b504-9e03-4473-a5c5-3bf67a9fcf30&amp;img_etag=%22de5f021c4d8a8087af6044e5eee34e22%22&amp;size=2560)](https://spark.adobe.com/page/AmVTkyIYMjVwB/images/81517448-b9d4-43e7-bd79-f898698719e5.jpg?asset_id=da55b504-9e03-4473-a5c5-3bf67a9fcf30&amp;img_etag=%22de5f021c4d8a8087af6044e5eee34e22%22&amp;size=1024)
 
-悲哀莫过于此！在他们的世界里，必须要有人管！
+《告密者》画家：韦伯A.保罗 1962年
 
-我想在共匪灭亡之后，他们怎么会自主的选择生活呢？王岐山说中国人就的拿鞭子抽打！不是没有道理的。
+有一种病叫斯德哥尔摩，有一句话叫狗咬吕洞宾，有一种污染叫心霾。
 
-日本人也是在麦克阿瑟将军大兵的枪口下转变为民主国家，我们的转变是不是也需要联军进入强行改变我们的生活状态呢？我不知道，至少我没有那么乐观，想要改变这帮被奴役千年的民族，不是消灭了共匪的那几个头头脑脑那么简单！我们需要做的还有很多，很多……
+江苏网民举报网吧翻墙软件应当发给一张“盛世良民证”。
 
-（本文纯属个人观点）
+中国从来不缺良民：有活着给自己塑像揭幕的医学良民钟南山（台上勉学台下卖药）；有孩子被救却说司机闯红灯与自己无关的交法良民；更有从思想源头掐断与我党不同步、有怀疑念头的无脑良民。
 
-审稿：Jenny
+[!\[\]()!\[\](https://spark.adobe.com/page/AmVTkyIYMjVwB/images/5ba34654-10ab-4a0e-a03d-588340198da0.jpg?asset_id=45661fdf-b972-4354-8ad3-d43a0c57cc6a&amp;img_etag=%22a8f9d4e1ec461b4571e5a1a2f01cbeb3%22&amp;size=5609)](https://spark.adobe.com/page/AmVTkyIYMjVwB/images/5ba34654-10ab-4a0e-a03d-588340198da0.jpg?asset_id=45661fdf-b972-4354-8ad3-d43a0c57cc6a&amp;img_etag=%22a8f9d4e1ec461b4571e5a1a2f01cbeb3%22&amp;size=1024)
 
-澳喜文章[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18041919/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872.jpg)
+网吧凭着良知、甘冒风险提供一个看到真相的“收费”窗口，换来被举报被洗劫300万的悲催结局，举报人看似维护正义，实则为虎作伥的卑鄙小人！中共国劣币驱逐良币的闹剧几时休？
+
+中共篡政以来，边发动运动挑动群众互相揭发、借刀杀人，边歪曲事实修改历史散布谎言，对百姓洗脑从未停止。如今更是变本加厉在全球造谣说美、意、澳，说冷冻肉都是病毒来源，21世纪互联网时代，筑高墙、蒙眼睛，让人民闭目塞听。而墙内网民获取真相的唯一渠道只有翻墙。面对7000万的感染，CCP已有了精心研发的疫苗。我党始终把人民生命财产作为根本出发点，对于这位江苏“良民”为代表的、失去起码是非标准的人，应当优先注射。
+
+“那些许诺我们天堂的人除了地狱什么都没搞出来”——委内瑞拉已经成功全民公决了，“良民”们也即将完成历史使命，跳进历史的垃圾堆啦！
+
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/AmVTkyIYMjVwB/)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+[!\[\]()!\[\](https://spark.adobe.com/page/AmVTkyIYMjVwB/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/AmVTkyIYMjVwB/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

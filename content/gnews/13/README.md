@@ -1,31 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1218】-黑客偷了资料偷不了人心
-` Himalaya Wenya 喜馬拉雅的文雅` [轉載自GNews](https://gnews.org/zh-hans/665090/)
+## 继中共国各地限电 华港燃气集团下发限气通知
+` vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hans/666479/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18234748/haike2-removebg-preview-2.jpg)
-当晚林伍德律师发推称，
+素材：文也 | 内新闻：背靠背
 
-“我们国家的计算机系统正在经历一场大规模的网络攻击。
+据燕晚新闻报道，2020年12月16日，一份印有华港燃气集团有限公司任丘事业部公章《限气通知》显示，集团通知，因气源紧张，保障居民用气，即日起停止向工业用户供气。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19110451/2-1-1.jpg)图片来自燕晚新闻
+任丘读者向燕晚新闻记者爆料称，华港燃气突然对农户、工业用户限停天然气，严重响了当地群众的日常生活。
 
-“一个外国实体或几个外国实体可以骇客我们最保护的国家安全计算机系统，但他们不可能玩弄我们11/3选举及其计算机系统。
+该读者反映，任丘市北畅支二村、南畅支村等均发生了天然气限停情况。同时，还向记者提供一份限停天然气时间表，显示限停时间为每天上午8时至11时30分，下午为1时30至5时30分，限停时间暂定为一周，包括农村用气。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19110510/2-45.jpg)图片来自燕晚新闻
+任丘市政府办公室一位工作人员称，近日，任丘部分区域确实发生了燃气限停供应的情况。
 
-“没错。”
+据任丘市发改局一位张姓负责人确认了上游供气单位采取的限气措施导致任丘部分区域出现限停天然气的情况，并称已协调其他单位向华港燃气供气，企业和居民用气情况仍待进一步确认。
 
+此前媒体报道，中共国湖南、浙江、江西、内蒙古等省份用电紧张，甚至拉闸限电。2020年的冬天，格外得寒冷。
 
+据河北新闻网，2017年6月28日报道，华港燃气集团助推“气化任丘”工程，计划2017年10月实现“户户通”的目标。据测算，每户农民安装天然气需支付人工、材料费6000多元，加上天然气壁挂炉和燃气灶5000元左右，总计成本11000元左右。任丘市委、市政府和华港燃气集团，所谓的积极“降费”措施，任丘市每户安装天然气成本降至4000元以内，给每户节省了7000元的资金。
 
-> Our country is undergoing a massive cyberattack of its computer systems.
-> 
-> A foreign entity or entities can hack into our most protected national security computer systems but no way they played games with our 11/3 election & its computer systems.
-> 
-> Right.
-> — Lin Wood (@LLinWood) [December 19, 2020](https://twitter.com/LLinWood/status/1340147131320025091?ref_src=twsrc%5Etfw)
-
-
-
-新闻素材来自林伍德律师推特
-
-
+新闻来源：https://author.baidu.com/home?from=bjh\_article&app\_id=1680063345892152
 
 0

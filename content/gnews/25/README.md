@@ -1,20 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1218】状告乔治亚州选举委员会
-` Himalaya Wenya 喜馬拉雅的文雅` [轉載自GNews](https://gnews.org/zh-hans/664821/)
+## 【热点播报】台湾民众挺川普灭共大游行
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/666383/)
 
-12月18日林伍德律师向乔治亚州当地联邦法院提交诉状，起诉州务卿及州选举委员会成员。他在推文中说，“自11月3日选举以来，有破坏证据的明显事例已经记录下来。GA法院必须在采取紧急行动，结束妨碍司法的行为。法官会制止这些非法行为吗？法治会得到尊重吗？”
+作者：香草山写作组 程万里
 
+当地时间2020年12月19日下午，台湾民众聚集在台北101旁信义广场，参加由大纪元组织的挺川灭共大游行活动，借此提出6大诉求：支持川普台美合作，抗共灭共。支持有正义良知，不受中共控制的独立媒体。反对主流媒体被染红、站队于中共，制造社会对立和分化族群。反对社群媒体和大科技公司审查言论、封锁消息。反对腐败政客与中共勾兑和权钱交易。反对大财团为集团利益出卖国家权益。声援反舞弊、反中共，支持美国总统川普连任。爆料革命台湾众多战友也参与了此游行，并提出『要求病毒真相，推翻共产极权』的诉求。据大纪元报导，此次游行有两千多台湾民众参与。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19102545/Untitled3.png)
+台湾战友台湾大牛在接受大纪元采访中说：我们是爆料革命台湾队，之所以站出来是因为这是一场偷窃美国的选举，中共从通过蓝金黄，病毒，邮寄选票，到通过多米尼系统，一直在试图控制美国，是非常邪恶的。我们人民被隐形的防火墙控制永远得不到真相，相信未来全民都会知道这事情，会掀起全球化的平民运动。只要中共的存在，人类就不会有自由的一天。
 
-
-> Since 11/3 election, clear instances of destruction of evidence have been documented. GA court must act on emergency basis to end these acts which constitute obstruction of justice. Will a judge stop these illegal acts? Will rule of law be respected?[https://t.co/7bNOan8uLv](https://t.co/7bNOan8uLv)
-> — Lin Wood (@LLinWood) [December 19, 2020](https://twitter.com/LLinWood/status/1340125342393131010?ref_src=twsrc%5Etfw)
-
-
-
-新闻素材和图片来自林伍德律师推特
+相信美国总统可以看到，台湾不只是有政府的声音，还有民众的呼声，民众是支持川普总统的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19102715/Untitled2.png)
 
 
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

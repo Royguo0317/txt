@@ -1,18 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拿的起 放的下
-` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/665215/)
+## 林伍德:为什么哈里斯不从参议院辞职?
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/666666/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19004625/Img350496526-1.jpg)
-作者：清风明月来（京都富士会）
+- 编辑：Victor Torres
 
-校对：待命（文晓）（京都富士会）
 
-排版：山頂之風（京都富士会）
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-这几个字，说说容易，身体力行又何其难。但是，能做到的人真如宇宙之星点。美国是唯一能真正代表民主、自由，而且是全世界民族自由代表性的国家。可是，依然有那么多为了一己私欲，至国家与人民不义的人。我很多时候都在问自己 ，当自己面对种种诱惑的时候，我会如何？答案很不理想，多半会选择利益。但是，少半的答案让我自己感动。因为这少半答案里，能让我真正的感觉到存在于这个世界里，和作为人类一员的价值。因为这一少部分的答案里，全部都是“爱”。一个人，如果失去了感情，就算把全世界都给我了，让我享受世上最好的物质 ，可却让我活在孤单、寂寞、恐惧之中。这时候我想问这样的自己，你开心么 ？快乐么？
+**西班牙20202年12月19日电/西喜社——**
 
-客观点，如果没有朋友、没有团队、没有支持、没有信任，根本就造就不出来这些富豪。只有爱才能造就每一个人。无我，其实更能体现你自己。战友们，好希望在我们这个大家庭里，都用心去爱。只要你用心爱每一个战友，我相信，你所拥有的一定会更多。
+林伍德周六上午发推:
+“今天早上问自己这个问题：
+为什么卡巴拉·哈里斯（Cabala Harris）不从美国参议院辞职？”
+他说这不是巧合。
+正如林伍德所说，如果哈里斯确信自己已经当选美国副总统，她应该早就辞去参议员职务了
 
-2+
+
+
+> Ask yourself this question this morning:
+> 
+> Why has Cabala Harris NOT resigned from U.S. Senate?
+> 
+> There are no coincidences.[#FightBack](https://twitter.com/hashtag/FightBack?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Lin Wood (@LLinWood) [December 19, 2020](https://twitter.com/LLinWood/status/1340331233511940099?ref_src=twsrc%5Etfw)
+
+
+
+0
