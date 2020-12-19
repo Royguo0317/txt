@@ -1,26 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【文心雕龙】CCP病毒疫情已对全球儿童现状和成长造成深远影响
-` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/667039/)
+## 美国国防部紧急暂停与拜登权力交接工作
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/667056/)
 
-作者：美国纽约七星会农场｜Bolu文龍
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19143559/%E6%96%87%E5%BF%83%E9%9B%95%E9%BE%994.jpg)
-2020年11月总部设在纽约的联合国儿童基金会发布报告称：冠状病毒病大流行疫情已经对全球儿童造成日益严重的影响和潜在后果。
+俄罗斯莫斯科喀秋莎农场 文强
 
-这份名为“避免儿童成为疫情下失落一代”的报告，是联合国儿基会首个全面概述疫情持续对全球儿童造成怎样影响的报告。关于此次新冠病毒的一个谣言是儿童几乎不会感染，但事实是儿童同样会感染并传播病毒！同时报告指出数据表明，学校并非社区内传播疫情的主要途径，学生在校外的感染风险仍远高于校内。但伴随着学校停课/社会停摆/父母失业/情感波动/家庭纷争和潜在暴力等次生效应，疫情持续的时间越长，对儿童的教育、健康、营养和福祉的影响就越深，甚至影响整整一代人的未来，改变他们的一生。
+校对上传 银河
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19144907/Snipaste_2020-12-20_03-48-37.png)图片：俄罗斯莫斯科喀秋莎农场 银河
+12月18日美国新闻网站 Axios独家报导，美国国防部已全面暂停拜登与贺锦丽过渡团队的交接工作。
 
-在报告中，儿基会官员亨丽埃塔·福尔说：“未来当我们重新构想并开始建设疫情后的世界时，我们必须优先考虑到疫情影响下的全球儿童。”
+11月23日美国总务管理局(GSA)致函拜登团队启动权力交接过程，美国国防部随即展开权力交接计划。然而周五上午美国代理国防部长克里斯托弗·米勒(Christopher Miller)紧急下令，全面暂停与当选总统拜登的权力过渡合作，且并未说明暂停交接的原因。随后国防部发表声明，说五角大楼从未取消任何相关工作，只是与拜登团队商定暂停两周，1月将恢复。
 
-参考链接:
+周五下午3:30, 川普总统在椭圆形办公室会见代理国防部长米勒。据高级政府官员透露，米勒的举动震惊了整个五角大楼的官员，这是迄今为止川普政府高层对拜登团队不信任的最大爆发。
 
-[联合国儿童基金会呼吁避免让儿童成为失落的一代，因为2019冠状病毒病疫情可能会对儿童的教育、营养和福祉造成不可挽回的伤害](https://www.unicef.org/zh/%E6%96%B0%E9%97%BB%E7%A8%BF/%E8%81%94%E5%90%88%E5%9B%BD%E5%84%BF%E7%AB%A5%E5%9F%BA%E9%87%91%E4%BC%9A%E5%91%BC%E5%90%81%E9%81%BF%E5%85%8D%E8%AE%A9%E5%84%BF%E7%AB%A5%E6%88%90%E4%B8%BA%E5%A4%B1%E8%90%BD%E7%9A%84%E4%B8%80%E4%BB%A3%EF%BC%8C%E5%9B%A0%E4%B8%BA2019%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92%E7%97%85%E7%96%AB%E6%83%85%E5%8F%AF%E8%83%BD%E4%BC%9A%E5%AF%B9%E5%84%BF%E7%AB%A5%E7%9A%84%E6%95%99%E8%82%B2%E3%80%81%E8%90%A5%E5%85%BB%E5%92%8C%E7%A6%8F%E7%A5%89%E9%80%A0%E6%88%90%E4%B8%8D%E5%8F%AF%E6%8C%BD%E5%9B%9E%E7%9A%84%E4%BC%A4%E5%AE%B3)
+米勒下令五角大楼停止与所谓“当选总统”拜登团队的“过渡交接”合作，说明在权力交接过程中，各方势力博弈角力加剧。这意味着在1月份到来的十几天里，国防部很有可能有重要的行动。
 
-更多精彩内容请关注：
+参考链接：
 
-- [美国纽约七星会农场（为子孙爱七哥）官推](https://twitter.com/wzsaqg)
-- [美国纽约七星会农场（为子孙爱七哥）GTV](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
-- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
+[https://www.axios.com/pentagon-biden-transition-briefings-123a9658-4af1-4632-a6e6-770117784d60.html](https://www.axios.com/pentagon-biden-transition-briefings-123a9658-4af1-4632-a6e6-770117784d60.html)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19044815/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-2.jpg)
+[https://www.bannedbook.org/bnews/topimagenews/20201219/1450570.html](https://www.bannedbook.org/bnews/topimagenews/20201219/1450570.html)
+
+[https://www.aboluowang.com/2020/1219/1535867.html](https://www.aboluowang.com/2020/1219/1535867.html)
+
 0

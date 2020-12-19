@@ -1,36 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统呼吁1月6日在华盛顿举行抗议活动：“来这里，将是狂野的”
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/667419/)
+## 俄罗斯被指所谓入侵美国政府 需重新审视与中共关系
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/667515/)
 
-作者：卡桑德拉·费尔班克斯（Cassandra Fairbanks）
-翻译：康州盘古农场 – 文白
-校对：康州盘古农场 – 挺郭大刺猬
-审核：康州盘古农场 – V
+俄罗斯莫斯科喀秋莎农场 银河
 
-在周六凌晨1点42分的一条推文中，唐纳德·川普总统提倡在华盛顿举行 “大抗议”，反对在11月显现出的选举舞弊。
+校对上传 星河
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19171704/56559.jpg)图片来源：oko-planet.su
+法新社华盛顿18日报道，美国国务卿蓬佩奥（Mike Pompeo）指责俄罗斯骇客入侵美国财政部、商务部与国土安全部等部门网络。蓬佩奥表示，“这是一种非常值得关注的入侵，而我认为，我现在可以明确指出，俄罗斯人涉入其中”。
 
+美国川普总统随即表示，“假新闻媒体中的网络黑客比实际情况要严重得多，目前一切都处于控制之中，媒体对讨论黑客可能是中共国的可能性感到震惊。”
 
+微软总裁史密斯（Brad Smith）发文表示，遭遇骇客袭击的客户中， 80%源自美国，其他国家如比利时、英国、加拿大、以色列、墨西哥、西班牙与阿拉伯联合大公国也发现骇客袭击。
 
-> Peter Navarro releases 36-page report alleging election fraud 'more than sufficient' to swing victory to Trump [https://t.co/D8KrMHnFdK](https://t.co/D8KrMHnFdK). A great report by Peter. Statistically impossible to have lost the 2020 Election. Big protest in D.C. on January 6th. Be there, will be wild!
-> — Donald J. Trump (@realDonaldTrump) [December 19, 2020](https://twitter.com/realDonaldTrump/status/1340185773220515840?ref_src=twsrc%5Etfw)
+同日，美国有线电视新闻网（CNN）引述国务院12月10日致函国会的信件内容报导，美国拟关闭位于俄罗斯远东地区的海参崴（Vladivostok）领事馆，并暂停叶卡捷琳堡（Yekaterinburg）领事馆。美俄关系可能出现再次紧张。
 
+但是，川普总统拒绝指责俄罗斯有据可查的敌对行动，包括干涉2016年选举以帮助他当选。他指责O先生是俄罗斯吞并克里米亚的原因，他赞同允许俄罗斯回到G-7国家集团。此次，川普总统并未表示网络黑客是俄罗斯所为。
 
-*唐纳德·J·川普（@realDonaldTrump）2020年12月19日。川普总统推文写道：*
-*皮特·纳瓦罗发布36页的报告，指控选举舞弊 “绰绰有余”，将胜利指向川普。皮特的报告很精彩。据统计，2020年大选不可能输掉。1月6日在华盛顿举行的大抗议活动。来这里，将是狂野的!*
-川普总统附上了《华盛顿观察家报》关于皮特·纳瓦罗36页的报告的链接，该报告指控选举舞弊，”足以 “左右胜利。
+12月19日，以情报准确、唯真不破而广受关注的爆料革命和新中国联邦创始人郭文贵在视频中指出：中共会与盟友俄罗斯产生巨大分歧。中共利用俄罗斯平台进行骇客袭击，俄罗斯成为中共的背锅侠。俄罗斯强烈谴责中共，中共强硬警告威胁俄罗斯，中共与俄罗斯的盟友关系岌岌可危，俄罗斯总统普京，必将在美国总统大选尘埃落定之际选择最符合俄罗斯利益的应对方案，重新审视与中共的关系。
 
-纳瓦罗是贸易和制造业政策办公室主任。
+参考链接：
 
-“皮特的报告很棒。从统计学上讲，不可能在2020年大选中失利。1月6日在华盛顿举行的大抗议活动。来这里，将是狂野的！”。川普总统写道。
+[https://www.news18.com/news/world/pompeo-says-russia-pretty-clear-behind-cyberattack-on-us-3194027.html](https://www.news18.com/news/world/pompeo-says-russia-pretty-clear-behind-cyberattack-on-us-3194027.html)
 
-该报告 “通过研究六个关键战场州涉嫌选举违规的六个维度来评估2020年总统选举的公平性和公正性”，并得出结论：”选举违规的模式……在六个战场州是如此一致，以至于它们表明了一种协调的策略，即使不是偷窃选举，也是战略性地游戏选举过程，以便……不公平地将竞争环境倾斜到有利于拜登-哈里斯的票。”
+[https://www.rfi.fr/cn/蓬佩奥-骇客入侵美国政府-俄罗斯指使](https://www.rfi.fr/cn/蓬佩奥-骇客入侵美国政府-俄罗斯指使)
 
-安德鲁·马克·米勒（Andrew Mark Miller）在《华盛顿观察家报》上解释说，”报告中关于投票违规的六个维度包括：彻底的选民欺诈、选票处理不当、可争夺的程序犯规、违反平等保护条款、投票机违规和重大统计异常。”
-
-“根据报告，这六个投票问题至少在两个关键州都存在，共有六个战场州出现了其他层面的多个例子。”报告称。
-
-原文链接：[https://www.thegatewaypundit.com/2020/12/president-donald-trump-calls-protest-dc-jan-6-says-will-wild/?utm\_source=Parler&utm\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/12/president-donald-trump-calls-protest-dc-jan-6-says-will-wild/?utm_source=Parler&amp;utm_campaign=websitesharingbuttons)
+[https://www.rfi.fr/cn/美媒披露美国拟关闭在俄罗斯仅存两座领事馆](https://www.rfi.fr/cn/美媒披露美国拟关闭在俄罗斯仅存两座领事馆)
 
 0
