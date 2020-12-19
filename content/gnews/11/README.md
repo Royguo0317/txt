@@ -1,62 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 扎克伯格花费5亿美元迫使各州采取亲民主党投票措施
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/663913/)
+## 拒用中国疫苗！柬埔寨总理：我们不是垃圾桶
+` GM77` [轉載自GNews](https://gnews.org/zh-hans/664794/)
 
-*新闻来源：National Pulse《国家脉动》；作者：NATALIE WINTERS；发布时间：2020年12月16日*
+编撰：jay、WENJUN；审核：WLQF
 
-*翻译/简评：Dreamer文童；校对：SilverSpurs7；审核：万人往；Page：拱卒*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18222440/%E6%88%AA%E5%B1%8F2020-12-19-%E4%B8%8A%E5%8D%8811.22.57.png)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7e8j9Co8eqeIc/images/05c7a02a-28d7-4217-b39c-a6a5d80873dc.jpg?asset_id=13a851a2-1542-4cc7-938f-23b0e0c21d2c&amp;img_etag=%22bd9aaf692dfa2c7877a46bc90e6d719b%22&amp;size=1024)](https://spark.adobe.com/page/7e8j9Co8eqeIc/images/05c7a02a-28d7-4217-b39c-a6a5d80873dc.jpg?asset_id=13a851a2-1542-4cc7-938f-23b0e0c21d2c&amp;img_etag=%22bd9aaf692dfa2c7877a46bc90e6d719b%22&amp;size=1024)
+COVID-19（中共病毒）疫苗示意图。(JOEL SAGET/AFP via Getty Images)
 
-**简评：**
+中共病毒（武汉肺炎）疫情蔓延全球，各国积极研发疫苗，中共宣称已生产多支疫苗，会在其它国家进行“接种实验”，并承诺让东南亚、非洲等国家优先使用。**不过，立场亲近中共的柬埔寨总理洪森15日表示，只会使用国际认可的疫苗，更直言“柬埔寨不是垃圾桶，也不是疫苗实验场”。**
 
-选举监督组织“阿米斯塔德项目”（Amistad Project）的一份报告指出，脸书创始人马克·扎克伯格花费5亿美元资金利用不当手段影响2020年美国大选，包括迫使各州立法机构采取全民邮寄投票的方式，规避州和联邦的拨款程序等，试图“从根本上破坏选举制度”。
+中共虽然宣称国产疫苗已进入“临床实验”阶段，并再三保证疫苗很安全、很有效，不过已有多国对此提出质疑。**巴西总统波索纳洛（Jair Bolsonaro）10月时曾表示，中国核准紧急使用授权的标准不透明，也无法取得相关资讯，因此决定“拒当中国白老鼠”。**
 
-最近脸书一直处于风口浪尖，前几日被爆出中共资金通过“字节跳动”对脸书的事实审查机构进行资助，现在又被曝光其利用巨额资金不当支持备受争议的民主党候选人乔·拜登，而根据“来自地狱的硬盘”里的证据，拜登家族与中共有长期的利益勾兑。结合这些事实可以断定，脸书在此次美国大选中明显倾向于乔·拜登的种种操作与中共有直接关系。
+秘鲁卫生单位12日也表示，1名志愿者在接种中国国药集团研发的疫苗后，出现“神经系统症状”，手臂变得难以移动，目前已紧急暂停疫苗临床试验。
 
-**原文翻译：**
+柬埔寨总理洪森周二（15日）也宣布，柬埔寨已透过由世界卫生组织（WHO）、全球疫苗免疫联盟（GAVI）、流行病应对创新联盟（CEPI）共同领导的国际平台“新冠肺炎疫苗全球取得机制”（COVAX）采购首批100万剂病毒疫苗。
 
-**报告：扎克伯格花费5亿美元迫使各州采取亲民主党的投票措施**
+洪森说，只会购买经世卫批准的疫苗，又说柬埔寨不会进行疫苗试验，直言“柬埔寨不是垃圾桶，也不是疫苗实验场”。
 
-**《国家脉动》透露，选举监督组织“阿米斯塔德项目”（Amistad Project）强调脸书创始人马克·扎克伯格（Mark Zuckerberg）和一些左翼非营利组织在整个2020年大选中的不当影响，通过输送数亿美元资金以夸大民主党的选民投票率。**
+据自由亚洲报导，洪森的态度表明了不相信中国研发的疫苗，暗示中国现在推广的疫苗，不是按照疫苗的国际专业规范生产。在最后中国产疫苗没有确切有效的情况下，柬埔寨可以等，等到中国的使用效果出来后，再决定是否购买使用。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7e8j9Co8eqeIc/images/c80b7306-603f-4121-b975-67a9434a143f.jpg?asset_id=3f002805-4d96-4838-9340-86c70f5c910c&amp;img_etag=%22acce1840421daa705a7c52b8916423df%22&amp;size=1024)](https://spark.adobe.com/page/7e8j9Co8eqeIc/images/c80b7306-603f-4121-b975-67a9434a143f.jpg?asset_id=3f002805-4d96-4838-9340-86c70f5c910c&amp;img_etag=%22acce1840421daa705a7c52b8916423df%22&amp;size=1024)
+疫苗的研发周期决定了仓促推出的疫苗的安全性必定有隐患，我们最近不断看到美国等也都在呼吁国民进行疫苗注射并开始进行接种的报道，并且也看到了接种后出现面瘫等神经受损的报道。稍微展开去想象都能联想到这种疫苗接种背后的经济和政治利益的影响。
 
-该组织在一份全新报告中详细介绍了扎克伯格如何利用5亿美元资金资助“由5个基金会资助的10家非营利组织组成的黑钱组织”，试图“从根本上破坏选举制度。”
+**中共的疫苗的安全性和初衷更是让人不可信甚至细思极恐，因为中共的疫苗研发技术水平无法让人有信心，这里并非妄自猜测，毕竟国内的毒疫苗时间层出不穷。中共自己实验室造出的袭击全世界的生物武器，然后再拿出并不可靠的解药给全世界，这里面的逻辑和初衷无法让人不脊背发凉。**
 
-在他投入近5亿美元的资金中，3.5亿美元被输送至“技术与公民生活中心”（CTCL），“作为这项工作的一部分，该中心使用这笔资金非法夸大民主党关键摇摆州的投票率。”正如《国家脉动》此前报道那样，该组织实行“有利于民主党选区的不平等资金分配。”
+柬埔寨总理提出我们不是垃圾桶来拒用中共疫苗，就是直白地指出中共的疫苗是垃圾，柬埔寨人民不是小白鼠。
 
-根据“阿米斯塔德项目”，“在从‘技术与公民生活中心’（CTCL）获得最多‘资助’的17个市和郡中，总金额超过5100万美元，仅有不到30万美元分配给”倾向于共和党的几个郡。
+参考链接：
 
-换言之，扎克伯格99.4%的资助都投向民主党人密集的地区。
-
-“阿米斯塔德项目”将“技术与公民生活中心”（CTCL）的努力与巴拉克·奥巴马总统的前竞选经理和扎克伯格·陈（Zuckerberg Chan）倡议战略家大卫·普洛夫（David Plouffe）联系起来，普洛夫写过一本书“击败唐纳德·川普的公民指南。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/7e8j9Co8eqeIc/images/ac0b5181-a9f0-43b2-be03-a2f6bff5bf9f.jpg?asset_id=dc9f3116-c065-4849-9ea3-837b3073ee1b&amp;img_etag=%22cb94ce5dfdc87df48a8091650f2a1a7c%22&amp;size=1024)](https://spark.adobe.com/page/7e8j9Co8eqeIc/images/ac0b5181-a9f0-43b2-be03-a2f6bff5bf9f.jpg?asset_id=dc9f3116-c065-4849-9ea3-837b3073ee1b&amp;img_etag=%22cb94ce5dfdc87df48a8091650f2a1a7c%22&amp;size=1024)计划让扎克伯格出售股票，保持投票控制权
-
-
-*在他的书中第81页，普洛夫准确指出，2020年大选将落实到“逐个街区的街头大战”，最终在民主党选票的大本营城市核心区进行投票。普洛夫特别强调密尔沃基、底特律和费城的高投票率是民主党获胜的关键。不久之后，我们见证了之前沉寂的名为“技术与公民生活中心”（CTCL）的501(c)(3)组织的传言，该组织以往的年收入从未超过120万美元。*
-
-其它被认定为帮助“选举私有化”的黑钱组织包括民主基金（The Democracy Fund）、新创投基金（New Venture Fund）、斯科尔基金会（Skoll Foundation）和骑士基金会（The Knight Foundation）。它们的对应机构 – 技术与公民生活中心（CTCL）、电子创新研究中心（Center for Electronic Innovation Research）、城市设计中心（Center for Civic Design）、全国家庭投票研究所（National Vote at Home Institute）、安全和现代选举中心（Center for Secure and Modern Elections）以及摇滚选票（Rock the Vote）- 在分配这些资金方面发挥关键作用。
-
-这些组织共同迫使州立法机构采用全民邮递投票方式，试图扩大民主党选民的投票率。
-
-然而，“阿米斯塔德项目”称，选民投票组织运作的前提一开始就存在问题。通过《协助美国投票法案》（Help America Vote Act）和《救助法案》（CARES Act），各州有充足资金进行选举。
-
-“阿米斯塔德项目”还指出，“向郡和市级选举注入私人资金规避了州和联邦的拨款程序，违反了《协助美国投票法案》（HAVA）在州执行计划中的协议，并导致在《协助美国投票法案》（HAVA）254(a)(5)条款下的报告不准确。”
-
-[原文链接](https://thenationalpulse.com/news/zuckerberg-election-influence/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/7e8j9Co8eqeIc/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/7e8j9Co8eqeIc/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/7e8j9Co8eqeIc/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+[https://www.epochtimes.com/gb/20/12/17/n12627465.htm](https://www.epochtimes.com/gb/20/12/17/n12627465.htm)
 
 0
