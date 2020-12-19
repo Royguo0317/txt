@@ -1,31 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 林伍德:为什么哈里斯不从参议院辞职?
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/666666/)
+## 【看七哥视频】特色社会主义是什么玩意儿？
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/666723/)
 
-- 编辑：Victor Torres
+```
+作者：儒为
+校对/发稿人: Ting Guo
+```
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19120349/20161023051148709.jpg)图片来源：禁闻网
+七哥在视频当中聊自己当年的一段经历：当年一位吉林副省长说过，共产主义是拿来骗傻子的，社会主义是拿来圈钱的，什么信仰，那都是骗那些无知的劳动人民的，讲神话那是为了掏你钱包的。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+我对特色社会主义的理解是：国际共产主义幽灵逃出来一缕魂魄，来到了我们这个具有悠久文化历史的封建王朝帝治思想深种的土地上，附身在一些流氓、骗子、垃圾身上，再包上一个为无产阶级当家做主的华丽的外衣摇身一变就成为了所谓的具有中国特色的社会主义。
 
-**西班牙20202年12月19日电/西喜社——**
+究其本质，特色社会主义就是个畸形儿、变态。从成立之初就是靠假、骗、偷、权、钱、色……窃取了中国政权，从而实现了另类的封建社会来统治中国人民，灭掉老百姓心中的信仰自己来当神和上帝。视法律、民主、自由为儿戏，法律是给老百姓的定的，民主是骗骗西方人的，自由是什么东西？党给了老百姓能活下去的机会就是最大的施舍了，老百姓得感恩戴德。
 
-林伍德周六上午发推:
-“今天早上问自己这个问题：
-为什么卡巴拉·哈里斯（Cabala Harris）不从美国参议院辞职？”
-他说这不是巧合。
-正如林伍德所说，如果哈里斯确信自己已经当选美国副总统，她应该早就辞去参议员职务了
+中国共产党都快灭亡了，还在拿特色的社会主义全球在讲故事。比如：新加坡学者说中国经济表现亮眼助力全球经济复苏，太不要脸了；嫦娥五号“挖土”归来！中国探月工程嫦娥五号任务取得圆满成功，世界为嫦娥五号揽月归来喝彩，我只知道今年发射卫星失败了好几次；外媒关注中国“太极拳”申遗成功，我之前了解到是徐晓冬打假，揍了好多太极吹牛皮的所谓太极大师；俄媒评述，中国脱贫经验值得学习，难道是学习怎么把中国最好的产品出口到国外，最垃圾的产品给自己的国民用，他们敢学吗？
 
+现在越来越多的中国人知道了真相，越来越多的世界人民知道了共产党的邪恶本质，共产党不灭，中国人没有未来，世界人民也没有未来。特色的社会主义这么个玩意儿，一定遗臭万年。
 
+**本文章仅代表战友个人观点**
 
-> Ask yourself this question this morning:
-> 
-> Why has Cabala Harris NOT resigned from U.S. Senate?
-> 
-> There are no coincidences.[#FightBack](https://twitter.com/hashtag/FightBack?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Lin Wood (@LLinWood) [December 19, 2020](https://twitter.com/LLinWood/status/1340331233511940099?ref_src=twsrc%5Etfw)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19034520/image0-121.jpg)**[*https://discord.gg/77fCxw5mFv*](https://discord.gg/77fCxw5mFv)**
+[***https://***](https://https://discord.gg/77fCxw5mFv)[***gab.com/himalaya\_italy***](https://gab.com/himalaya_italy)
 
-
-
-0
+1+

@@ -1,48 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发：国家情报总监确认“中共国、伊朗、俄罗斯干预大选”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/666893/)
+## 美国非主流媒体相继报道G-TV发布的亨特-拜登犯罪事实
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/666913/)
 
-*新闻来源：The Gateway Pundit《门户网站评论员》；作者：Jim Hoft 吉姆·霍夫；发布时间：2020年12月16日*
+多伦多枫叶农场 文来
+校对 上传 云起时
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19142336/biden-scaled.jpg)
+近日，美国茶党（Tea Party）和其他自媒体相继报道了新中国联邦的G-TV网络媒体揭露的亨特拜登硬盘里吸毒及性爱录像的内容。
 
-*翻译/简评：Cathy r；校对：Beicy-数学老师；审核：万人往；Page：拱卒*
+茶党网站近日发表文章指出，中文新闻网站G-TV早已发布了亨特·拜登的缺乏人性的录像带，证明拜登家族已被中共收买和被黑材料所控制。文中认为像乔-拜登这样的政客正在以令人难以置信的妥协立场，通过赋与中共特权来为自己积累财富。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/1076be0e-7ad2-4652-89da-0adb3a1eca4c.jpg?asset_id=f94bc42a-4d68-4ee1-ab37-dad404fd1e1c&amp;img_etag=%22be30f6745250168128cde19f1a8f8ba4%22&amp;size=1024)](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/1076be0e-7ad2-4652-89da-0adb3a1eca4c.jpg?asset_id=f94bc42a-4d68-4ee1-ab37-dad404fd1e1c&amp;img_etag=%22be30f6745250168128cde19f1a8f8ba4%22&amp;size=1024)
+作者指出，视频中可以看到亨特·拜登边吸食毒品边与身份不明之人在发生性行为。人们如果完全不知道总统候选人乔-拜登肆意妄为儿子这一系列丑行，均是因为政要和主流媒体一直在努力试图掩盖这一事实。
 
-**简评：**
+另一个知名自媒体门道专家（Gateway Pundit）也以“独家！亨特·拜登的性爱录像带，中共蓝金黄渗透美国，邪恶联盟统治世界”为标题报导了该视频的内容。
 
-美国国家情报总监拉特克利夫不甘对反对势力退让，率先爆出中共国、伊朗和俄罗斯进行了外国大选干预，为给接下来的行动提前进行舆论吹风，给干预选举的黑暗势力施加压力，灭共的扳机已经上弦了。
+报道称，这只是属于亨特-拜登笔记本电脑上许多属于他本人视频的一部分。该笔记本电脑于去年在特拉华州的一家计算机商店被亨特本人遗弃了。 G-TV宣布将发布更多视频。
 
-**原文翻译：**
+文中还特意播报了GTV视频中对观众的警告：
+如果这张照片给您造成了严重的不适，我们深表歉意！但是为了公正起见，我们（新中国联邦）已公开了这张照片。因为共产党的朋友就是我们的敌人。他们利用那些渴望中国财富和他们的家人的利益的所有西方政治人物和名人的贪婪，通过抓住并录制他们的性爱和毒品视频来威胁他们，迫使他们卖掉他们自己的国家和人民，甚至国家安全，来迎合中国共产党的世界统治。
 
-# 爆炸新闻：凯瑟琳·赫里奇（Catherine Herridge）报告国家情报总监（DNI）约翰·拉特克利夫（John Ratcliffe）确认“ 在11月，中共国、伊朗和俄罗斯进行了外国大选干预。”
+唐纳德·川普总统的私人律师，前纽约市市长鲁迪·朱利安尼（Rudy Giuliani）也得到了亨特拜登的硬盘并展开了调查。朱利安尼指正FBI早已得到硬盘证据，但故意把它扣押下来。大选前《纽约邮报》发布了关于亨特拜登硬盘的新闻。但迫于各种压力，相继的报道被搁置下来。
 
-![]()![](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/083dd5e8-c8b2-430d-9817-695188d89292.jpg?asset_id=39e0f744-0a04-4787-81de-13a54d1a241c&amp;img_etag=%22c33315ed7237f0ec930f618b0fee9608%22&amp;size=2560)
+在关键时刻，G-TV和GNEWs挺身而出，及时报道了亨特拜登的硬盘门，使许多美国人看清了拜登家族和中共勾兑的事实。茶会通过G-TV和它的相关报导了解到，乔拜登（Joe Biden）在他做副总统期间曾引领奥巴马政府努力改善与中共的外交政策。在此期间，他带着儿子亨特·拜登进行了对中共的国事访问。然后亨特以一笔丰厚的商业交易离开了这个共产党国家。
 
-**哥伦比亚广播公司 （CBS）记者凯瑟琳·赫里奇（Catherine Herridge）周三报道说，国家情报总监约翰·拉特克利夫（DNI John Ratcliffe）对哥伦比亚广播公司说：“今年11月的外国大选干预有中共国、伊朗和俄罗斯(参与)。”**
+同时一些非主流媒体也透露了关于亨特拜登的过去的斑斑劣迹。据他的前妻说，他早已知道自己是一名吸毒者和性变态者，曾性侵华盛顿的脱衣舞娘，与哥哥的遗孀约会，并因为将全部金钱花在酒，毒品和妇女身上而破坏了第一次婚姻。
 
-哥伦比亚广播公司记者：拉特克利夫对选举欺诈和干预有何评论？
+随着人们更多地了解臭名昭著的亨特，他过着肮脏的，丑闻缠身的生活，并似乎已经从父亲在白宫的职位中获得了可观的利润。关于拜登家族的不当行为已引起了人们严重的质疑，它背后的交易可能不只是肮脏的钱。
 
-*凯瑟·赫里奇：国家情报总监拉特克利夫领导着17个情报机构，他可以接触到美国政府拥有的最高机密的信息。他告诉哥伦比亚广播公司新闻部，今年11月美国(大选)受到了中共国、伊朗和俄罗斯的外国干预，他预计将在一月份就这些发现进行公开报道。*
+文中认为关于亨特的指控非常非常严重。不论是为了换取奥巴马政府的支持，或者是奥巴马政府对他的可疑商业伙伴的偏爱，这些指控都非常严重。文中还指出了拜登家庭的几项重大罪行，其中任意一项就应立即使拜登丧失担任总统候选人的资格。因为如果总统家族中有可疑的外国业务往来，它将构成巨大的国家安全风险。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/0aec87d0-7bfb-4d8d-8c26-619a94cbd93f.jpg?asset_id=dc7e7c0b-d493-46ee-a65b-c3a8e2e81d4e&amp;img_etag=%225faf9306aad79973befcce19a6ba6ad8%22&amp;size=2669)](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/0aec87d0-7bfb-4d8d-8c26-619a94cbd93f.jpg?asset_id=dc7e7c0b-d493-46ee-a65b-c3a8e2e81d4e&amp;img_etag=%225faf9306aad79973befcce19a6ba6ad8%22&amp;size=1024)(推文翻译)突发 哥伦比亚广播公司新闻高级记者赫里奇报道，约翰·拉特克利夫 “告诉哥伦比亚广播公司新闻，今年[2020年]11月有中共国、伊朗和俄罗斯外国干涉选举”。 更多的内容还在后面。
+评：新中国联邦的G-TV和GNEWs作为新兴的新闻媒体，由于一直致力与揭露中共及其黑暗势力的丑闻，越来越引起全世界的关注。在亨特拜登硬盘内容被美国FBI掩盖了超过半年之久的情况下，爆料革命的战友们在大选之前的13天内向全世界爆料了亨特拜登的硬盘内容，尽管被主流媒体和社交媒体大鳄们极力封杀，但还是在最短的时间内及时的把真相传递出去，让很多美国人了解了拜登家族的罪行。为川普在大选日的以压倒性选票完胜起到了极其重要的关键作用。
 
-**记录在案，国家情报总监拉特克利夫上周末与川普总统一起参加了陆军—-海军比赛！**
+由于川普的选票远远超出拜登的选票，使背后黑手中共不得不大量造假，以至于让他们的罪证无法被掩盖。正像郭文贵先生所预见的那样，美国大选是人类历史上最滑稽但也是最重要的一次选举。相信当川普总统力挽狂澜，最终再次当选之后，GTV和GNEWs 将成为未来的主流媒体，因为它遵循信仰正义，坚持揭露丑恶，和唯真不破。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/66d5b8e2-d75a-4a80-a71a-8d5ec47f2663.jpg?asset_id=839fd416-2392-4347-88ca-7193a86f7787&amp;img_etag=%22d0fb76b86ead59aecc098fabdd059769%22&amp;size=3049)](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/66d5b8e2-d75a-4a80-a71a-8d5ec47f2663.jpg?asset_id=839fd416-2392-4347-88ca-7193a86f7787&amp;img_etag=%22d0fb76b86ead59aecc098fabdd059769%22&amp;size=1024)(推文翻译)不做头条。国家情报局局长拉特克利夫与川普总统一起出席陆海军橄榄球赛, 不只是巧合？周六没有被注意到的是，国家情报局局长（DNI）约翰·拉特克利夫今天和川普总统一起参加了陆军-海军的足球赛。前代表、现任国家情报局局长约翰·拉特克利夫今天在推特上表示，他和总统一起参加了陆军-海军的橄榄球比赛。与川普总统同行……
-
-
-[原文链接](https://www.thegatewaypundit.com/2020/12/breaking-catherine-herridge-reports-dni-john-ratcliffe-confirmed-foreign-election-interference-china-iran-russia-november-video/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/Rk7BD9nYbeUe2/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+[原文链接](https://www.teaparty.org/breaking-chinese-dissidents-release-hunter-biden-crack-smoking-sex-tapes-with-chilling-warning-457667/)
 
 1+

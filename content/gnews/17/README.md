@@ -1,23 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普敦促共和党不要在选举结果上成为“弱者”，并承诺在华盛顿大举抗议
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/666932/)
+## 【文心雕龙】CCP病毒疫情已对全球儿童现状和成长造成深远影响
+` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/667039/)
 
-- 编辑：Victor Torres
+作者：美国纽约七星会农场｜Bolu文龍
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19143559/%E6%96%87%E5%BF%83%E9%9B%95%E9%BE%994.jpg)
+2020年11月总部设在纽约的联合国儿童基金会发布报告称：冠状病毒病大流行疫情已经对全球儿童造成日益严重的影响和潜在后果。
 
+这份名为“避免儿童成为疫情下失落一代”的报告，是联合国儿基会首个全面概述疫情持续对全球儿童造成怎样影响的报告。关于此次新冠病毒的一个谣言是儿童几乎不会感染，但事实是儿童同样会感染并传播病毒！同时报告指出数据表明，学校并非社区内传播疫情的主要途径，学生在校外的感染风险仍远高于校内。但伴随着学校停课/社会停摆/父母失业/情感波动/家庭纷争和潜在暴力等次生效应，疫情持续的时间越长，对儿童的教育、健康、营养和福祉的影响就越深，甚至影响整整一代人的未来，改变他们的一生。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+在报告中，儿基会官员亨丽埃塔·福尔说：“未来当我们重新构想并开始建设疫情后的世界时，我们必须优先考虑到疫情影响下的全球儿童。”
 
-**西班牙20202年12月19日电/西喜社——**
+参考链接:
 
-川普总统敦促共和党人反对支持拜登的2020年选举认证，并承诺下个月初在美国国会大厦进行一次大规模抗议活动，届时国会将对本周进行的选举人投票进行最后投票。
-川普在周六凌晨发推文说，“川普和彭斯输掉2020年大选，这在统计学上是不可能的。1月6日，华盛顿特区将举行大规模抗议活动。去那儿，会很热烈。”
-1月6日是国会开始计算和证明选举人团在2020年选举中的投票的日期。
-周六早上晚些时候，总统进一步发推文说: “民主党挑战者乔·拜登以很大差距丢掉了所有六个摇摆州，”此后他认为，阴谋者在每个州都倾泻了数十万张选票，并被抓住了。
-“现在，共和党政客们必须战斗，以免其伟大的胜利被窃取。不要成为软弱的傻瓜！” 他继续。
-选举人团本周正式投票选举拜登总统。 川普总统以违规行为和欺诈指控为由尚未承认败选。
+[联合国儿童基金会呼吁避免让儿童成为失落的一代，因为2019冠状病毒病疫情可能会对儿童的教育、营养和福祉造成不可挽回的伤害](https://www.unicef.org/zh/%E6%96%B0%E9%97%BB%E7%A8%BF/%E8%81%94%E5%90%88%E5%9B%BD%E5%84%BF%E7%AB%A5%E5%9F%BA%E9%87%91%E4%BC%9A%E5%91%BC%E5%90%81%E9%81%BF%E5%85%8D%E8%AE%A9%E5%84%BF%E7%AB%A5%E6%88%90%E4%B8%BA%E5%A4%B1%E8%90%BD%E7%9A%84%E4%B8%80%E4%BB%A3%EF%BC%8C%E5%9B%A0%E4%B8%BA2019%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92%E7%97%85%E7%96%AB%E6%83%85%E5%8F%AF%E8%83%BD%E4%BC%9A%E5%AF%B9%E5%84%BF%E7%AB%A5%E7%9A%84%E6%95%99%E8%82%B2%E3%80%81%E8%90%A5%E5%85%BB%E5%92%8C%E7%A6%8F%E7%A5%89%E9%80%A0%E6%88%90%E4%B8%8D%E5%8F%AF%E6%8C%BD%E5%9B%9E%E7%9A%84%E4%BC%A4%E5%AE%B3)
 
-新闻来源：[https://justthenews.com/politics-policy/elections/trump-urges-republicans-fight-over-election-results-promises-big-protest](https://justthenews.com/politics-policy/elections/trump-urges-republicans-fight-over-election-results-promises-big-protest)
+更多精彩内容请关注：
 
+- [美国纽约七星会农场（为子孙爱七哥）官推](https://twitter.com/wzsaqg)
+- [美国纽约七星会农场（为子孙爱七哥）GTV](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
+- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19044815/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-2.jpg)
 0

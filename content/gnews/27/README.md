@@ -1,28 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【看七哥视频】特色社会主义是什么玩意儿？
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/666723/)
+## 突发：国家情报总监确认“中共国、伊朗、俄罗斯干预大选”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/666893/)
 
-```
-作者：儒为
-校对/发稿人: Ting Guo
-```
+*新闻来源：The Gateway Pundit《门户网站评论员》；作者：Jim Hoft 吉姆·霍夫；发布时间：2020年12月16日*
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19120349/20161023051148709.jpg)图片来源：禁闻网
-七哥在视频当中聊自己当年的一段经历：当年一位吉林副省长说过，共产主义是拿来骗傻子的，社会主义是拿来圈钱的，什么信仰，那都是骗那些无知的劳动人民的，讲神话那是为了掏你钱包的。
+*翻译/简评：Cathy r；校对：Beicy-数学老师；审核：万人往；Page：拱卒*
 
-我对特色社会主义的理解是：国际共产主义幽灵逃出来一缕魂魄，来到了我们这个具有悠久文化历史的封建王朝帝治思想深种的土地上，附身在一些流氓、骗子、垃圾身上，再包上一个为无产阶级当家做主的华丽的外衣摇身一变就成为了所谓的具有中国特色的社会主义。
+[!\[\]()!\[\](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/1076be0e-7ad2-4652-89da-0adb3a1eca4c.jpg?asset_id=f94bc42a-4d68-4ee1-ab37-dad404fd1e1c&amp;img_etag=%22be30f6745250168128cde19f1a8f8ba4%22&amp;size=1024)](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/1076be0e-7ad2-4652-89da-0adb3a1eca4c.jpg?asset_id=f94bc42a-4d68-4ee1-ab37-dad404fd1e1c&amp;img_etag=%22be30f6745250168128cde19f1a8f8ba4%22&amp;size=1024)
 
-究其本质，特色社会主义就是个畸形儿、变态。从成立之初就是靠假、骗、偷、权、钱、色……窃取了中国政权，从而实现了另类的封建社会来统治中国人民，灭掉老百姓心中的信仰自己来当神和上帝。视法律、民主、自由为儿戏，法律是给老百姓的定的，民主是骗骗西方人的，自由是什么东西？党给了老百姓能活下去的机会就是最大的施舍了，老百姓得感恩戴德。
+**简评：**
 
-中国共产党都快灭亡了，还在拿特色的社会主义全球在讲故事。比如：新加坡学者说中国经济表现亮眼助力全球经济复苏，太不要脸了；嫦娥五号“挖土”归来！中国探月工程嫦娥五号任务取得圆满成功，世界为嫦娥五号揽月归来喝彩，我只知道今年发射卫星失败了好几次；外媒关注中国“太极拳”申遗成功，我之前了解到是徐晓冬打假，揍了好多太极吹牛皮的所谓太极大师；俄媒评述，中国脱贫经验值得学习，难道是学习怎么把中国最好的产品出口到国外，最垃圾的产品给自己的国民用，他们敢学吗？
+美国国家情报总监拉特克利夫不甘对反对势力退让，率先爆出中共国、伊朗和俄罗斯进行了外国大选干预，为给接下来的行动提前进行舆论吹风，给干预选举的黑暗势力施加压力，灭共的扳机已经上弦了。
 
-现在越来越多的中国人知道了真相，越来越多的世界人民知道了共产党的邪恶本质，共产党不灭，中国人没有未来，世界人民也没有未来。特色的社会主义这么个玩意儿，一定遗臭万年。
+**原文翻译：**
 
-**本文章仅代表战友个人观点**
+# 爆炸新闻：凯瑟琳·赫里奇（Catherine Herridge）报告国家情报总监（DNI）约翰·拉特克利夫（John Ratcliffe）确认“ 在11月，中共国、伊朗和俄罗斯进行了外国大选干预。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19034520/image0-121.jpg)**[*https://discord.gg/77fCxw5mFv*](https://discord.gg/77fCxw5mFv)**
-[***https://***](https://https://discord.gg/77fCxw5mFv)[***gab.com/himalaya\_italy***](https://gab.com/himalaya_italy)
+![]()![](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/083dd5e8-c8b2-430d-9817-695188d89292.jpg?asset_id=39e0f744-0a04-4787-81de-13a54d1a241c&amp;img_etag=%22c33315ed7237f0ec930f618b0fee9608%22&amp;size=2560)
+
+**哥伦比亚广播公司 （CBS）记者凯瑟琳·赫里奇（Catherine Herridge）周三报道说，国家情报总监约翰·拉特克利夫（DNI John Ratcliffe）对哥伦比亚广播公司说：“今年11月的外国大选干预有中共国、伊朗和俄罗斯(参与)。”**
+
+哥伦比亚广播公司记者：拉特克利夫对选举欺诈和干预有何评论？
+
+*凯瑟·赫里奇：国家情报总监拉特克利夫领导着17个情报机构，他可以接触到美国政府拥有的最高机密的信息。他告诉哥伦比亚广播公司新闻部，今年11月美国(大选)受到了中共国、伊朗和俄罗斯的外国干预，他预计将在一月份就这些发现进行公开报道。*
+
+[!\[\]()!\[\](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/0aec87d0-7bfb-4d8d-8c26-619a94cbd93f.jpg?asset_id=dc7e7c0b-d493-46ee-a65b-c3a8e2e81d4e&amp;img_etag=%225faf9306aad79973befcce19a6ba6ad8%22&amp;size=2669)](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/0aec87d0-7bfb-4d8d-8c26-619a94cbd93f.jpg?asset_id=dc7e7c0b-d493-46ee-a65b-c3a8e2e81d4e&amp;img_etag=%225faf9306aad79973befcce19a6ba6ad8%22&amp;size=1024)(推文翻译)突发 哥伦比亚广播公司新闻高级记者赫里奇报道，约翰·拉特克利夫 “告诉哥伦比亚广播公司新闻，今年[2020年]11月有中共国、伊朗和俄罗斯外国干涉选举”。 更多的内容还在后面。
+
+**记录在案，国家情报总监拉特克利夫上周末与川普总统一起参加了陆军—-海军比赛！**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/66d5b8e2-d75a-4a80-a71a-8d5ec47f2663.jpg?asset_id=839fd416-2392-4347-88ca-7193a86f7787&amp;img_etag=%22d0fb76b86ead59aecc098fabdd059769%22&amp;size=3049)](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/66d5b8e2-d75a-4a80-a71a-8d5ec47f2663.jpg?asset_id=839fd416-2392-4347-88ca-7193a86f7787&amp;img_etag=%22d0fb76b86ead59aecc098fabdd059769%22&amp;size=1024)(推文翻译)不做头条。国家情报局局长拉特克利夫与川普总统一起出席陆海军橄榄球赛, 不只是巧合？周六没有被注意到的是，国家情报局局长（DNI）约翰·拉特克利夫今天和川普总统一起参加了陆军-海军的足球赛。前代表、现任国家情报局局长约翰·拉特克利夫今天在推特上表示，他和总统一起参加了陆军-海军的橄榄球比赛。与川普总统同行……
+
+
+[原文链接](https://www.thegatewaypundit.com/2020/12/breaking-catherine-herridge-reports-dni-john-ratcliffe-confirmed-foreign-election-interference-china-iran-russia-november-video/)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/Rk7BD9nYbeUe2/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 1+
