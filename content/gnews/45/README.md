@@ -1,45 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## AOC遭民主党指导委员会反对，此前曾希望佩络西和舒默离职
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/664252/)
+## 【林伍德律师推文1218】-乔州投票车公然误导
+` Himalaya Wenya 喜馬拉雅的文雅` [轉載自GNews](https://gnews.org/zh-hans/664395/)
 
-- 编辑：Victor Torres
-- 翻译：Goodgo
+当日一名为Constellations集团的CEO、美国退伍军人的网友发推：
+
+“发生在乔治亚州。再次发生。提醒州立农场是一个投票区。选举暴力/犯罪的重要时刻。”
+
+林伍德律师回推称，
+
+“在参议院第二轮选举中，乔治亚州继续忽视选举法。现在，在投票区的流动车标语正在误导。
+
+“为什么你会参加一个虚假的过程？为什么乔治亚州的 “领导层 “不关心我们投票的完整性？
+
+“#反击选民舞弊”
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2020年12月18日电/西喜社——**据福克斯新闻周四报道，众议院民主党指导和政策委员会当天投票决定安排众议员凯瑟琳·赖斯（Kathleen Rice）而不是她的纽约同僚众议员亚历山德里亚·奥卡西奥·科尔特斯（Alexandria Ocasio-Cortez），加入一个令人觊觎的委员会；这是众议院民主党反对代表布朗克斯（Bronx）及皇后区（Queens）的煽动叛乱者们的最新例子。
+> HAPPENING IN GEORGIA. 
+> 
+> AGAIN. 
+> 
+> Reminder State Farm Arena is a VOTING PRECINCT 
+> 
+> BIG TIME ELECTION VIOLATION/CRIME[@GaSecofState](https://twitter.com/GaSecofState?ref_src=twsrc%5Etfw) [@GabrielSterling](https://twitter.com/GabrielSterling?ref_src=twsrc%5Etfw) [@JordyFuchs](https://twitter.com/JordyFuchs?ref_src=twsrc%5Etfw) [@GBI\_GA](https://twitter.com/GBI_GA?ref_src=twsrc%5Etfw) [pic.twitter.com/wnsXpkW1Cr](https://t.co/wnsXpkW1Cr)
+> — Bill White ATL (@BillWhiteNY) [December 18, 2020](https://twitter.com/BillWhiteNY/status/1340039687113728000?ref_src=twsrc%5Etfw)
 
-根据Politico的报道，众议院能源与商业委员会有五个职位空缺；加州民主党人众议院议长南希·佩洛西（Nancy Pelosi），提名了四人，将第五个空缺职位让委员会成员在这两位纽约人之间投票选出。福克斯新闻证实，赖斯以46比13大幅赢得投票。
 
-能源与商业委员会在众议院中处理一些最重要的立法：从环境到医保，到核设施。其网站中描述：“在国会的授权委员会中拥有最广泛的管辖权。”
 
-奥卡西奥·科尔特斯的失败发生在这位高调的立法者进入她的第二任期时，在她本周在“The Intercept”采访中发表了关于国会民主党领导层的敌对评论之后。
 
-AOC称，佩洛西及舒默（Schumer）必须离开，但警告民主党政权真空
+推文引用的照片显示，乔治亚州的投票车上赫然印著“选举民主党，获赠$1200”的广告，这是公然贿赂和犯罪，民主党冒美国宪法和民意之大不韪，乱象丛生，在乔治亚州愈演愈烈。林伍德律师连续多日揭发和谴责乔治亚州的舞弊行为和犯罪分子，他们仍不知悔改，甚至更加肆无忌惮。今日早些时候，林伍德律师已经向川普总统隔空喊话，呼吁在该州实施戒严令。川普总统当日发推也确认了乔治亚州的犯罪行为。接下来的行动，我们拭目以待。
 
-“我确实认为民主党需要新的领导层，” 纽约民主党人奥卡西奥·科尔特斯说，她担心政权真空，因为民主党领导人不一定在一直培养接班人。她还表示，她自己还没有做好竞选众议院议长的准备。
 
-奥卡西奥·科尔特斯在民主党委员会内具有争议性，不仅因为她的极左政策，这些政策导致了她和西维吉尼亚州民主党人温和派参议员乔·曼钦（Joe Manchin）的公开争执，还因为她支持了针对其同僚的初选挑战。
 
-据Politico报道，德州民主党人众议员亨利·奎利亚尔（Henry Cuellar），在能源与商业委员会周四召开的电话会议中表示：“我在考虑谁在初选中与其他成员作对，谁没有做对。”
+新闻素材和图片来自林伍德律师推特及其转发的推特
 
-奥卡西奥·科尔特斯在今年早些时候支持了杰西卡·希斯内罗丝（Jessica Cisneros）对奎利亚尔的初选。希斯内罗丝在周四回应，猛烈抨击了奎利亚尔，并发布了一张2018年奎利亚尔为一位共和党人筹款的报道截图。
 
-佩洛西明年将如何面对坎坷的议长之路
-
-希斯内罗丝发推称：“至少AOC支持其他民主党人。”
-
-明尼苏达州民主党人，众议员安吉·克雷格（Angie Craig）；得克萨斯州民主党人丽兹·弗莱彻（Lizzie Fletcher）；华盛顿州的金·施里尔（Kim Schrier）及马萨诸塞州民主党人洛里·特拉汉（Lori Trahan）都会在能源与商业委员会加入莱斯。
-
-奥卡西奥·科尔特斯及奎利亚尔办公室并没有立即回复评论请求。
-
-“很荣幸宣布这些杰出的成员被提名为第117届国会专门委员会成员，”佩洛西在周四宣布指导委员会提名的声明中称。“众议院民主党人在重建更好的使命中团结一致，有了这些强有力的声音，我们将会兑现神圣的承诺，为所有的美国人带来真正的改变。”
-
-这些提名还没有最终确定，还需要提交到民主党委员会全体成员，但预计会得到批准。
-
-**原文链接：**[https://www.foxnews.com/politics/dem-steering-committee-bucks-aoc-picks-other-new-york-lawmaker-committee](https://www.foxnews.com/politics/dem-steering-committee-bucks-aoc-picks-other-new-york-lawmaker-committee)
 
 2+

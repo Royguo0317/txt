@@ -1,28 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1218】-白宫下丑陋的灵魂
-` Himalaya Wenya 喜馬拉雅的文雅` [轉載自GNews](https://gnews.org/zh-hans/665059/)
+## 拿的起 放的下
+` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/665215/)
 
-当日美国大选中的支持舞弊的乔治亚州州长Brian Kemp 在推特发布了和家人参加白宫圣诞晚会的照片。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19004625/Img350496526-1.jpg)
+作者：清风明月来（京都富士会）
 
-林伍德律师回推称，
+校对：待命（文晓）（京都富士会）
 
-“看起来像布莱恩 @GovKemp @BrianKempGA，他可以从地下室出来去白宫拍照，但却不能面对佐治亚州的公民或真相。
+排版：山頂之風（京都富士会）
 
-“这个人毫无廉耻之心。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18233225/WhatsApp-Image-2020-12-19-at-3.26.40-PM.jpeg)
+这几个字，说说容易，身体力行又何其难。但是，能做到的人真如宇宙之星点。美国是唯一能真正代表民主、自由，而且是全世界民族自由代表性的国家。可是，依然有那么多为了一己私欲，至国家与人民不义的人。我很多时候都在问自己 ，当自己面对种种诱惑的时候，我会如何？答案很不理想，多半会选择利益。但是，少半的答案让我自己感动。因为这少半答案里，能让我真正的感觉到存在于这个世界里，和作为人类一员的价值。因为这一少部分的答案里，全部都是“爱”。一个人，如果失去了感情，就算把全世界都给我了，让我享受世上最好的物质 ，可却让我活在孤单、寂寞、恐惧之中。这时候我想问这样的自己，你开心么 ？快乐么？
 
+客观点，如果没有朋友、没有团队、没有支持、没有信任，根本就造就不出来这些富豪。只有爱才能造就每一个人。无我，其实更能体现你自己。战友们，好希望在我们这个大家庭里，都用心去爱。只要你用心爱每一个战友，我相信，你所拥有的一定会更多。
 
-> Looks like Brian [@GovKemp](https://twitter.com/GovKemp?ref_src=twsrc%5Etfw) [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw) can come out of his basement to go for photo op at White House but he cannot face the citizens of the State of GA or the truth.
-> 
-> This man has no shame. [https://t.co/OGs2xHqbtn](https://t.co/OGs2xHqbtn)
-> — Lin Wood (@LLinWood) [December 19, 2020](https://twitter.com/LLinWood/status/1340144088197308419?ref_src=twsrc%5Etfw)
-
-
-
-新闻素材和图片来自林伍德律师推特
-
-
-
-0
+2+

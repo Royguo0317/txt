@@ -1,20 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1218】状告乔治亚州选举委员会
-` Himalaya Wenya 喜馬拉雅的文雅` [轉載自GNews](https://gnews.org/zh-hans/664821/)
+## 那段在海外打工的日子
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/664810/)
 
-12月18日林伍德律师向乔治亚州当地联邦法院提交诉状，起诉州务卿及州选举委员会成员。他在推文中说，“自11月3日选举以来，有破坏证据的明显事例已经记录下来。GA法院必须在采取紧急行动，结束妨碍司法的行为。法官会制止这些非法行为吗？法治会得到尊重吗？”
+撰稿：大漠
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18223606/IMG_5333.jpg)网络截图
+那年我在国外，我们很多人一起在国外打工，几乎没有人会和当地人交流，每天都和国内差不多，照样做自己的工作，当然也有极少数人会和当地人交流，这样的很少，每天都谈论着祖国的强大，多么牛叉，看不起当地人，觉得自己就是老大！天天刷抖音快手，当然，如果有人看到不同的消息，获取了不同的消息，他们会表现的非常惊讶。很感兴趣，可惜的是他们都用国产手机，自己不能进一步了解详细信息，于是又回到了他原来的生活状态中，他不舍得买一部能看到外部信息的手机，还是把自己封闭在墙国内。
 
+国外的生活也很辛苦，劳动强度很大，工作时间基本都在十二小时以上，同时还有各种各样的宣传活动，隔三差五的来一次政治学习，不停的接受组织的照顾，生怕你控制不住自己，错误的“走进误区”，脱离组织“误入歧途”！
 
+在国外，外出需要组织批准，私自不可以随意走动，他们的理由就是签证问题，不得外出！党的关怀无微不至，你也就习惯了这样的生活，觉得生活就是这样的，没人管着的生活还是生活吗？没人管那还有天理吗？
 
-> Since 11/3 election, clear instances of destruction of evidence have been documented. GA court must act on emergency basis to end these acts which constitute obstruction of justice. Will a judge stop these illegal acts? Will rule of law be respected?[https://t.co/7bNOan8uLv](https://t.co/7bNOan8uLv)
-> — Lin Wood (@LLinWood) [December 19, 2020](https://twitter.com/LLinWood/status/1340125342393131010?ref_src=twsrc%5Etfw)
+悲哀莫过于此！在他们的世界里，必须要有人管！
 
+我想在共匪灭亡之后，他们怎么会自主的选择生活呢？王岐山说中国人就的拿鞭子抽打！不是没有道理的。
 
+日本人也是在麦克阿瑟将军大兵的枪口下转变为民主国家，我们的转变是不是也需要联军进入强行改变我们的生活状态呢？我不知道，至少我没有那么乐观，想要改变这帮被奴役千年的民族，不是消灭了共匪的那几个头头脑脑那么简单！我们需要做的还有很多，很多……
 
-新闻素材和图片来自林伍德律师推特
+（本文纯属个人观点）
 
+审稿：Jenny
 
-
+澳喜文章[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18041919/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872.jpg)
 0
