@@ -1,40 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1219】- CCPVirus 中共病毒
-` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/667235/)
+## 拉斯穆森的民调显示：56%的人认为亨特向乔·拜登咨询过他的商业交易
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/667277/)
 
-林伍德律师当日发推：
+作者：杰弗里·罗达克（Jeffrey Rodack）
+发布时间：2020年12月18日，星期五，上午11:37
+翻译：康州盘古农场-烟波浩淼
+校对：康州盘古农场-Bruce
+审核：康州盘古农场-V
 
+拉斯穆森（Rasmussen）的一项民调显示，56%的美国人认为，乔·拜登很可能是被咨询过的，或许从他儿子亨特的海外商业交易中获利，其中至少有一笔交易涉及中国大陆的公司。
 
-> Covid-19是上呼吸道流感病毒。它是CCP病毒。
-> 
-> 它杀死了许多美国人。医学治疗被查封。本可以挽救很多生命。
-> 
-> 它使我们分裂和孤立，使我们更容易被控制。主流媒体用谎言吓唬我们。
-> 
-> 它是邮寄投票的借口。
-> 
-> 所有都是计划好的。
+以下是民调结果的细分：
 
+43%的人说 “很有可能” 乔·拜登被咨询过，也许从亨特的交易中获利。
+22%的受访者认为乔·拜登与儿子的商业往来 “完全不可能”
+52%的人认为许多新闻机构忽视了亨特·拜登的报道，以帮助他父亲竞选总统。
 
+这项调查是在12月13日至14日进行的，不到一周，亨特·拜登承认特拉华州的美国检察官办公室正在调查他的税务申报。拉斯穆森调查了1000名可能是选民的民众。这项民意测验的误差幅度为±3个百分点。
 
+作者：杰弗里·罗达克（Jeffrey Rodack）
+发布时间：2020年12月18日星期五上午11:37
 
-> Covid-19 was upper respiratory flu virus. It was CCP Virus.
-> 
-> It killed many Americans. Medical treatments were censored. Lives could have been saved. 
-> 
-> It divided & isolated us making us easier to control. MSM scared us with lies.
-> 
-> It was excuse for mail ballots.
-> 
-> All planned.
-> — Lin Wood (@LLinWood) [December 19, 2020](https://twitter.com/LLinWood/status/1340339189536141312?ref_src=twsrc%5Etfw)
-
-
-
-新闻素材和图片来自林伍德律师推特
-
-
+原文链接：
+[https://www.newsmax.com/politics/rasmussen-poll-biden-hunter/2020/12/18/id/1002213/](https://www.newsmax.com/politics/rasmussen-poll-biden-hunter/2020/12/18/id/1002213/)
 
 0
