@@ -1,27 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 那段在海外打工的日子
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/664810/)
+## 【林伍德律师推文1218】-白宫下丑陋的灵魂
+` Himalaya Wenya 喜馬拉雅的文雅` [轉載自GNews](https://gnews.org/zh-hans/665059/)
 
-撰稿：大漠
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18223606/IMG_5333.jpg)网络截图
-那年我在国外，我们很多人一起在国外打工，几乎没有人会和当地人交流，每天都和国内差不多，照样做自己的工作，当然也有极少数人会和当地人交流，这样的很少，每天都谈论着祖国的强大，多么牛叉，看不起当地人，觉得自己就是老大！天天刷抖音快手，当然，如果有人看到不同的消息，获取了不同的消息，他们会表现的非常惊讶。很感兴趣，可惜的是他们都用国产手机，自己不能进一步了解详细信息，于是又回到了他原来的生活状态中，他不舍得买一部能看到外部信息的手机，还是把自己封闭在墙国内。
+当日美国大选中的支持舞弊的乔治亚州州长Brian Kemp 在推特发布了和家人参加白宫圣诞晚会的照片。
 
-国外的生活也很辛苦，劳动强度很大，工作时间基本都在十二小时以上，同时还有各种各样的宣传活动，隔三差五的来一次政治学习，不停的接受组织的照顾，生怕你控制不住自己，错误的“走进误区”，脱离组织“误入歧途”！
+林伍德律师回推称，
 
-在国外，外出需要组织批准，私自不可以随意走动，他们的理由就是签证问题，不得外出！党的关怀无微不至，你也就习惯了这样的生活，觉得生活就是这样的，没人管着的生活还是生活吗？没人管那还有天理吗？
+“看起来像布莱恩 @GovKemp @BrianKempGA，他可以从地下室出来去白宫拍照，但却不能面对佐治亚州的公民或真相。
 
-悲哀莫过于此！在他们的世界里，必须要有人管！
+“这个人毫无廉耻之心。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18233225/WhatsApp-Image-2020-12-19-at-3.26.40-PM.jpeg)
 
-我想在共匪灭亡之后，他们怎么会自主的选择生活呢？王岐山说中国人就的拿鞭子抽打！不是没有道理的。
 
-日本人也是在麦克阿瑟将军大兵的枪口下转变为民主国家，我们的转变是不是也需要联军进入强行改变我们的生活状态呢？我不知道，至少我没有那么乐观，想要改变这帮被奴役千年的民族，不是消灭了共匪的那几个头头脑脑那么简单！我们需要做的还有很多，很多……
+> Looks like Brian [@GovKemp](https://twitter.com/GovKemp?ref_src=twsrc%5Etfw) [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw) can come out of his basement to go for photo op at White House but he cannot face the citizens of the State of GA or the truth.
+> 
+> This man has no shame. [https://t.co/OGs2xHqbtn](https://t.co/OGs2xHqbtn)
+> — Lin Wood (@LLinWood) [December 19, 2020](https://twitter.com/LLinWood/status/1340144088197308419?ref_src=twsrc%5Etfw)
 
-（本文纯属个人观点）
 
-审稿：Jenny
 
-澳喜文章[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18041919/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872.jpg)
+新闻素材和图片来自林伍德律师推特
+
+
+
 0

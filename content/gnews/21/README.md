@@ -1,25 +1,97 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鲍威尔律师推文1218】-多猫腻机2019年报告曝光
-` Himalaya Wenya 喜馬拉雅的文雅` [轉載自GNews](https://gnews.org/zh-hans/664623/)
+## 《路德时评》解读：外企问责法生效&amp;数家企业被制裁——脱钩进行时
+` GM141` [轉載自GNews](https://gnews.org/zh-hans/664701/)
 
-12月18日鲍威尔律师转发了一则推文，
-
-重磅！参议院两党情报委员会2019年报告了投票机对欺诈，黑客，网络攻击，改变投票，黑钱的脆弱性。
-
-早在2010年5月，埃里克霍尔德（Eric Holder）批准了DominionVotingSystems优级出售。
+直播视频：
 
 
 
-> [#BREAKING](https://twitter.com/hashtag/BREAKING?src=hash&amp;ref_src=twsrc%5Etfw) Bipartisan Senate Intel Committee reported in 2019 [#VotingMachines](https://twitter.com/hashtag/VotingMachines?src=hash&amp;ref_src=twsrc%5Etfw) vulnerability to fraud, hacking, cyber attacks, changing votes, dark money. 
-> Back in May 2010, Eric Holder approved sale of [#Premier](https://twitter.com/hashtag/Premier?src=hash&amp;ref_src=twsrc%5Etfw) to DominionVotingSystems. [@SenateFloor](https://twitter.com/SenateFloor?ref_src=twsrc%5Etfw) [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) [pic.twitter.com/vpE6B2PYce](https://t.co/vpE6B2PYce)
-> — Sidney Powell 🇺🇸⭐⭐⭐ (@SidneyPowell1) [December 19, 2020](https://twitter.com/SidneyPowell1/status/1340091702271496193?ref_src=twsrc%5Etfw)
+
+
+《路德时评》2020年12月18日晚间节目主要内容：
+
+一、川普总统正式签署《外国公司问责法案》
+
+路透华盛顿12月18日报导[1]：白宫表示，美国总统特朗普周五将一项议案签署成法。这项立法将阻止一些中资企业在美国交易所挂牌上市，除非他们遵守美国的审计标准。如果外国公司连续三年未能通过美国公众公司会计监督委员会(PCAOB)的审计，《外国公司问责法案》(The Holding Foreign Companies Accountable Act)将禁止这些外企的证券在美国的任何交易所上市。
+
+1、该法案此前于2020年5月份参议院投票通过该法案，随后12月2日众议院投票通过，川普总统今天正式签字生效，这也意味着华尔街资本已经就此达成共识；
+
+2、会计和审计完全不同，审计是根据帐目查看原始凭证（交易记录、支出凭证等）是否真实有效，审计帐目都将公开，投资者完全有权质疑审计真实性，如果造假，将面临美国监管机构的巨额罚款；
+
+3、只要中概股公司接受美国相关部门审计，它们的真实运营情况就将曝光与众，真实的业绩完全无法支撑当前的股票市值，股价暴跌是必然的；
+
+4、中概股如果退市，退市前必须偿还美国股民的投资金额，中共国从美国股市骗钱这条路被彻底封死，数家中概股股价将面临暴跌或退出美国股市；
+
+5、该法案正式立法生效，如果要推翻该法案，则需要参众两院三分之二投票支持才可以废除该法案；
+
+6、大量中概股转战香港上市，企图从香港股市融资后再从美国退市，美国即将对香港实施一系列制裁，接下如果采取港币美元脱钩和撤出所有投资，那中概股企图从香港市场融资的后手将被封堵，这就是要彻底击垮中共金融生态圈；
+
+7、文贵先生今天盖特直播中再次穿上那件“脱钩”黑T恤，这也是暗示着中美脱钩取得重大进展。
 
 
 
-新闻素材和图片来自鲍威尔推特
+二、商务部正式制裁中芯国际等数家公司
+
+美国商务部12月18日正式发文[2]：商务部将中国的中芯国际（SMIC）添加到实体列表中，限制了对关键启用美国技术的访问，有数家船舶制造公司和中国大学（北京理工大学、南京航空航天大学，北京邮电大学和天津大学）被列入制裁名单。
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18221655/%E5%95%86%E5%8A%A1%E9%83%A8-1.png)[图片地址](https://www.commerce.gov/news/press-releases/2020/12/commerce-adds-chinas-smic-entity-list-restricting-access-key-enabling)
+
+
+路德社评论如下：
+
+1、这些大学被制裁后，基本意味着与美国大学合作的终结，北京理工大学属于北方工业集团，是陆军科研院所，南京航空航天大学是空军科研院所，海康威视旗下公司也被制裁，它涉及安全监控设备；
+
+2、国际清算银行[3]还将超过60个其他实体添加到“实体列表”中，这六十家实体的国际结算将被彻底终结；
+
+3、川普总统对中共的制裁正在不断加码，制裁领域不断扩大，中美“脱钩”是靠一步步具体行动执行出来的。
 
 
 
-0
+三、代理国防部长暂停与拜登团队过度
+
+《大纪元》2020年12月18日讯[4]：美国在线网站Axios周五（12月18日）报导，代理国防部长克里斯‧米勒（Chris Miller）下令，五角大楼暂停与拜登团队的“过渡交接”合作。但随后国防部发表声明，说五角大楼从未取消或拒绝任何相关工作。
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18221747/%E4%BA%94%E8%A7%92%E5%A4%A7%E6%A5%BC.jpg)[图片地址](https://i.epochtimes.com/assets/uploads/2015/09/1509041611272003-600x400.jpg)
+
+
+路德社评论如下；
+
+1、此新闻暗示代理国防部长确实有依法发布该命令，只是提前被某些媒体曝光，随后国防部出来辟谣，这就是背后势力角逐的结果；
+
+2、国防部代理部长米勒绝对是川普总统的实力干将，国防部在最后12天之内将有重大行动，国家情报总监调查报告还未出炉。
+
+
+
+四、美国大选最新进展
+
+在刚当选的共和党众议员莫布鲁克决定在1月6号挑战六个摇摆州拜登选举团人投票后，仍需要一名参议员才能够推翻本次选举结果。两名参议员兰德。保尔和兰约翰逊逊已经确认参加这场保卫美国宪法的选举团大战！这意味着民主候选人拜登无法成为胜选总统。国会必须通过每州一票重新选总统[5]！
+
+1、这几天只要共和党众议员不反水，基本就确立国会将通过每州一票重新选举总统，但现在双方角逐非常激烈，随时都有可能会发生重大转折；
+
+2、川普总统此前拒绝在大选前确立中共病毒就是一次生物武器攻击，否则他将轻松赢得此次大选，但现在他还有大杀招未放矢。
+
+路德社节目从2018年直播坚持至今，证明了选择爆料革命的正确。新中国联邦与中共之争就是体系之争，我们的体系一定要优于中共大一统的体系，新中国联邦需要建立法制、民主和自由的生态圈，让每个人都可以发挥作用，最终由中国人民决定中国的未来。
+
+
+
+参考文章：
+
+[1]https://cn.reuters.com/article/us-trump-foreign-firms-ipo-1219-idCNKBS28T036
+
+[2]https://www.commerce.gov/news/press-releases/2020/12/commerce-adds-chinas-smic-entity-list-restricting-access-key-enabling
+
+[3]https://zh.wikipedia.org/wiki/%E5%9C%8B%E9%9A%9B%E6%B8%85%E7%AE%97%E9%8A%80%E8%A1%8C
+
+[4]https://www.epochtimes.com/gb/20/12/18/n12630478.htm
+
+[5]https://twitter.com/htommy998/status/1340055578173820928
+
+文章撰写：【重生】    编辑：【GM141】
+
+
+
+3+

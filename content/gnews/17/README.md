@@ -1,22 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 信息战升级！中共首称美大选作弊是“阴谋论”
-` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/664669/)
+## 【林伍德律师推文1218】状告乔治亚州选举委员会
+` Himalaya Wenya 喜馬拉雅的文雅` [轉載自GNews](https://gnews.org/zh-hans/664821/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18214050/p2793141a835205426-ss.jpg)
-作者：招财娘娘（京都富士会）
+12月18日林伍德律师向乔治亚州当地联邦法院提交诉状，起诉州务卿及州选举委员会成员。他在推文中说，“自11月3日选举以来，有破坏证据的明显事例已经记录下来。GA法院必须在采取紧急行动，结束妨碍司法的行为。法官会制止这些非法行为吗？法治会得到尊重吗？”
 
-校对：待命（文晓）（京都富士会）
 
-排版：山頂之風（京都富士会）
 
-12月18日下午，中共官媒《环球时报》微博回应白宫贸易顾问皮特纳瓦罗(Peter Navarro)发布的《36页长报告》，首次公开否认美国大选存在作弊。在中共官媒这篇几百字的“回击”中，不仅给纳瓦罗安了一个“美国疯鹰”的头衔，还表示纳瓦罗的报告是“编造”而成。中共彻底撕下美国大选风波以来“事不关己”的伪装，首次公开定论美国大选舞弊是“阴谋论”。
+> Since 11/3 election, clear instances of destruction of evidence have been documented. GA court must act on emergency basis to end these acts which constitute obstruction of justice. Will a judge stop these illegal acts? Will rule of law be respected?[https://t.co/7bNOan8uLv](https://t.co/7bNOan8uLv)
+> — Lin Wood (@LLinWood) [December 19, 2020](https://twitter.com/LLinWood/status/1340125342393131010?ref_src=twsrc%5Etfw)
 
-美国白宫顾问皮特纳瓦罗早前以个人身份发布的36页名为“完美无缺的欺诈：选举违规行为的六大关键层面”(The Immaculate Deception: Six Key Dimensions of Election Irregularities)的报告，引起世人关注。报告得出无可辩驳的结论，认为2020年美国总统选举在六个关键摇摆州存在异常现象，并称这些违规数量足以翻转票数倾向民主党总统候选人拜登的最终结果。同时也集结了“反舞弊”的正义力量，将“彻查舞弊”的民意呼声推向顶峰。
 
-然而就在这个时候，一向在外交层面伪装“从不干涉他国内政”的中共，派出《环球时报》这条老狗，在社交媒体上发表声明，称纳瓦罗这个“美国疯鹰”对中国的意识形态偏见极为激烈，是导致两国经贸往来不断恶化的罪魁祸首。令读者和笔者感到奇怪的是，纳瓦罗写报告说美国大选舞弊的事，再怎么说也是人家“自家事”，中共为什么到了这个关头却坐不住了呢？这么坐不住，简直等于自我暴露啊！
 
-美国大选风波以来，中共高层和媒体一直伪装“看客”。所有关于大选的报道，一般皆为引用，“据外媒”、或者“据美媒”。这一次急不可耐的冲上来指责“阴谋论”，不知道纳瓦罗的《36页长报告》打到了中共的什么痛处？当然了，美国大选舞弊是不是“阴谋论”，肯定不能由中共说了算，真正参与干涉这次美国大选的外国势力、参与做坏事动了手脚的人，一定会遭到历史的审判和惩罚。
-![]()
-1+
+新闻素材和图片来自林伍德律师推特
+
+
+
+0
