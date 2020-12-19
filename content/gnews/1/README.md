@@ -1,29 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “带路党”与“爱国贼”—那些战争那些谎言
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/666941/)
+## 【文心雕龙】CCP病毒疫情已对全球儿童现状和成长造成深远影响
+` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/667039/)
 
-整理：1984； 视频制作：健身建心；审核：海阔天空；Page：拱卒
+作者：美国纽约七星会农场｜Bolu文龍
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19143559/%E6%96%87%E5%BF%83%E9%9B%95%E9%BE%994.jpg)
+2020年11月总部设在纽约的联合国儿童基金会发布报告称：冠状病毒病大流行疫情已经对全球儿童造成日益严重的影响和潜在后果。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/TlWiSbtBlqiPS/images/b2fc5cf4-7b97-427a-b1e5-3262e21bae45.jpg?asset_id=a889741f-6f35-48be-9eac-c17ab8159c61&amp;img_etag=%220045423eb188de3481da89066cf0d4e9%22&amp;size=1024)](https://spark.adobe.com/page/TlWiSbtBlqiPS/images/b2fc5cf4-7b97-427a-b1e5-3262e21bae45.jpg?asset_id=a889741f-6f35-48be-9eac-c17ab8159c61&amp;img_etag=%220045423eb188de3481da89066cf0d4e9%22&amp;size=1024)
+这份名为“避免儿童成为疫情下失落一代”的报告，是联合国儿基会首个全面概述疫情持续对全球儿童造成怎样影响的报告。关于此次新冠病毒的一个谣言是儿童几乎不会感染，但事实是儿童同样会感染并传播病毒！同时报告指出数据表明，学校并非社区内传播疫情的主要途径，学生在校外的感染风险仍远高于校内。但伴随着学校停课/社会停摆/父母失业/情感波动/家庭纷争和潜在暴力等次生效应，疫情持续的时间越长，对儿童的教育、健康、营养和福祉的影响就越深，甚至影响整整一代人的未来，改变他们的一生。
 
-# 《围炉夜话》12月12日直播（上）
+在报告中，儿基会官员亨丽埃塔·福尔说：“未来当我们重新构想并开始建设疫情后的世界时，我们必须优先考虑到疫情影响下的全球儿童。”
 
-简介：
+参考链接:
 
-本期《围炉夜话》栏目重点谈及CCP偷换概念，把爱国说成是爱党、爱国家。其实，“国家”是指军队、警察、法庭、监狱等暴力机器，这是CCP的老祖宗列宁的说法，而“祖国”是指自己的故土，和世世代代生活在这块土地上的人民。“爱国家、爱党”和“爱祖国”根本就不是一回事。
+[联合国儿童基金会呼吁避免让儿童成为失落的一代，因为2019冠状病毒病疫情可能会对儿童的教育、营养和福祉造成不可挽回的伤害](https://www.unicef.org/zh/%E6%96%B0%E9%97%BB%E7%A8%BF/%E8%81%94%E5%90%88%E5%9B%BD%E5%84%BF%E7%AB%A5%E5%9F%BA%E9%87%91%E4%BC%9A%E5%91%BC%E5%90%81%E9%81%BF%E5%85%8D%E8%AE%A9%E5%84%BF%E7%AB%A5%E6%88%90%E4%B8%BA%E5%A4%B1%E8%90%BD%E7%9A%84%E4%B8%80%E4%BB%A3%EF%BC%8C%E5%9B%A0%E4%B8%BA2019%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92%E7%97%85%E7%96%AB%E6%83%85%E5%8F%AF%E8%83%BD%E4%BC%9A%E5%AF%B9%E5%84%BF%E7%AB%A5%E7%9A%84%E6%95%99%E8%82%B2%E3%80%81%E8%90%A5%E5%85%BB%E5%92%8C%E7%A6%8F%E7%A5%89%E9%80%A0%E6%88%90%E4%B8%8D%E5%8F%AF%E6%8C%BD%E5%9B%9E%E7%9A%84%E4%BC%A4%E5%AE%B3)
 
-那么满清和CCP这样的“国家”值得人们爱吗？在节目中，各位嘉宾通过分析有关火烧圆明园和义和团的8个谎言和真相，展示了清政府的腐朽、义和团的丑恶与世界文明之间的冲突，说明了为什么当时的人们对清政府不仅爱不起来，反而要当带路党，也说明了义和团运动实质上就是祸国殃民。
+更多精彩内容请关注：
 
-最后，《围炉夜话》点出了CCP制造这些谎言的真实目的：因为集权专制的CCP与腐朽的满清是一脉相承的，他们都必须通过洗白满清、宣传仇外一系列荒唐的行为来说明自己的合法性。
+- [美国纽约七星会农场（为子孙爱七哥）官推](https://twitter.com/wzsaqg)
+- [美国纽约七星会农场（为子孙爱七哥）GTV](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
+- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
 
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/TlWiSbtBlqiPS/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-[!\[\]()!\[\](https://spark.adobe.com/page/TlWiSbtBlqiPS/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/TlWiSbtBlqiPS/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19044815/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-2.jpg)
 0

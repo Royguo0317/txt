@@ -1,37 +1,99 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 盛世 “良民”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/666416/)
+## 《路德时评》：从系列时事新闻分析美国体系的伟大
+` GM141` [轉載自GNews](https://gnews.org/zh-hans/666505/)
 
-*作者：桂花酒；校对/审核：海阔天空；Page：拱卒*
+直播视频：
 
-# **盛世“良民”**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/AmVTkyIYMjVwB/images/81517448-b9d4-43e7-bd79-f898698719e5.jpg?asset_id=da55b504-9e03-4473-a5c5-3bf67a9fcf30&amp;img_etag=%22de5f021c4d8a8087af6044e5eee34e22%22&amp;size=2560)](https://spark.adobe.com/page/AmVTkyIYMjVwB/images/81517448-b9d4-43e7-bd79-f898698719e5.jpg?asset_id=da55b504-9e03-4473-a5c5-3bf67a9fcf30&amp;img_etag=%22de5f021c4d8a8087af6044e5eee34e22%22&amp;size=1024)
 
-《告密者》画家：韦伯A.保罗 1962年
+《路德时评》2020年12月19日早间节目主要内容：
 
-有一种病叫斯德哥尔摩，有一句话叫狗咬吕洞宾，有一种污染叫心霾。
+一、美国证券交易委员会发表声明
 
-江苏网民举报网吧翻墙软件应当发给一张“盛世良民证”。
+美国证券交易委员会12月18日发表声明[1]，对川普总统签署《外国控股公司问责法案》表示支持，并会就法案中内容采取具体行动，保护证券投资者利益。
 
-中国从来不缺良民：有活着给自己塑像揭幕的医学良民钟南山（台上勉学台下卖药）；有孩子被救却说司机闯红灯与自己无关的交法良民；更有从思想源头掐断与我党不同步、有怀疑念头的无脑良民。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/AmVTkyIYMjVwB/images/5ba34654-10ab-4a0e-a03d-588340198da0.jpg?asset_id=45661fdf-b972-4354-8ad3-d43a0c57cc6a&amp;img_etag=%22a8f9d4e1ec461b4571e5a1a2f01cbeb3%22&amp;size=5609)](https://spark.adobe.com/page/AmVTkyIYMjVwB/images/5ba34654-10ab-4a0e-a03d-588340198da0.jpg?asset_id=45661fdf-b972-4354-8ad3-d43a0c57cc6a&amp;img_etag=%22a8f9d4e1ec461b4571e5a1a2f01cbeb3%22&amp;size=1024)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19110005/%E8%AF%81%E5%88%B8%E4%BA%A4%E6%98%93%E5%A7%94%E5%91%98%E4%BC%9A.png)[图片地址](https://www.sec.gov/news/public-statement/clayton-hfcaa-2020-12)
 
-网吧凭着良知、甘冒风险提供一个看到真相的“收费”窗口，换来被举报被洗劫300万的悲催结局，举报人看似维护正义，实则为虎作伥的卑鄙小人！中共国劣币驱逐良币的闹剧几时休？
 
-中共篡政以来，边发动运动挑动群众互相揭发、借刀杀人，边歪曲事实修改历史散布谎言，对百姓洗脑从未停止。如今更是变本加厉在全球造谣说美、意、澳，说冷冻肉都是病毒来源，21世纪互联网时代，筑高墙、蒙眼睛，让人民闭目塞听。而墙内网民获取真相的唯一渠道只有翻墙。面对7000万的感染，CCP已有了精心研发的疫苗。我党始终把人民生命财产作为根本出发点，对于这位江苏“良民”为代表的、失去起码是非标准的人，应当优先注射。
+路德社评论如下：
 
-“那些许诺我们天堂的人除了地狱什么都没搞出来”——委内瑞拉已经成功全民公决了，“良民”们也即将完成历史使命，跳进历史的垃圾堆啦！
+1、外国企业在美国上市不接受审计本身就是一件非常荒唐的事情，此前之所以如此，就是美国背后沼泽力量推动的；
 
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/AmVTkyIYMjVwB/)
+2、该法案通过之后，针对外国企业的审查全面开始，由上市公司会计监督委员会负责推动执行，并有国会、财政部和其他金融机构对其进行监督；
 
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+3、美国人依法行事的习惯非常值得国人学习，起先，他们依据原始证据进行立法，执行时，由相关专业部门进行审计调查，权力非常分散，并要接受监督，到最后全面退市需要时间；
 
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+4、中共国随时可以发布命令执行任何行动，不按规则行事，香港7月刚通过国安法，七天之内就开始执行抓捕，完全不经过审理，而美国即使面对再困难的情况都依然按照规矩行事，这就是不同的生态圈；
 
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-[!\[\]()!\[\](https://spark.adobe.com/page/AmVTkyIYMjVwB/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/AmVTkyIYMjVwB/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+5、爆料革命以爆料为主，揭露中共的腐败和邪恶，未来新中国联邦则是要建立一个法制、民主和自由的生态圈，让每个人都有发言权，能从不同的角度表达观点，最终受益的是中国老百姓。
+
+
+
+二、国网湖南电力进入“战时状态”
+
+12月19日，国家电网有限公司官方网站消息[2]，入冬以来，湖南因气温骤降、居民取暖、工业用电量大幅攀升等多重因素叠加，电网最大负荷达到3150万千瓦，创冬季用电负荷历史新高。国网湖南电力积极应对、多措并举，全力确保电力可靠供应和电网平稳运行。
+
+路德社评论：
+
+1、所谓的“战时状态”是又一次的权力重分配，一旦进入战时状态，意味着分配权非常集中；
+
+2、中共在国内破坏环境建造无数个大坝，冬天进入严寒就出现供电紧张，这些所谓的大坝完全就是吹嘘。
+
+
+
+三、拜登家族随时面临起诉
+
+汤姆·科顿（Tom Cotton）18日接受FOX著名主持人塔克采访时说：“鉴于目前针对拜登（Biden）家族的调查报告的状态，起诉随时可能发生。”
+
+
+
+> Tom Cotton: Indictment could happen at any time given the state of these investigations that are currently being reported for Biden family
+> 汤姆·科顿议员：基于现有的相关调查报道，对拜登家族的起诉随时可能发生
+> 
+> 秘翻組油管2台火熱上線：[https://t.co/zusvytlkWu](https://t.co/zusvytlkWu) [pic.twitter.com/hYaxKUzA8L](https://t.co/hYaxKUzA8L)
+> — 秘密翻译组 (@G\_Translators6) [December 18, 2020](https://twitter.com/G_Translators6/status/1339900440981327872?ref_src=twsrc%5Etfw)
+
+
+
+如果拜登当选美国总统，只要他儿子接受刑事调查就无法胜任总统一职，最终由副总统贺锦丽担任，中共现在真正打的是贺锦丽这张牌。
+
+
+
+四、福林将军直指中共攻击美国网络
+
+福林将军最新福克斯采访说[3]，对美国的网络攻击就像用武器热战一样，是对美国的直接攻击。网络攻击的头号敌人是中共。有直接证据证明外国势力干预大选，与这次太阳风系统（solarwinds）攻击也有关联Gen Flynn：我们有直接证据表明外国干预了选举。
+
+
+
+> 福林将军最新福克斯采访说，对美国的网络攻击如同用武器热战一样，是对美国的直接攻击。网络攻击的头号敌人是中共。
+> 有直接证据证明外国势力干预大选，与这次太阳风系统(solarwinds)攻击也有关联
+> 
+> Gen Flynn: We have direct evidence of foreign interference on the Election.
+> 
+> 🆕囍站新号，欢迎关注 [pic.twitter.com/MEcXCjEKbu](https://t.co/MEcXCjEKbu)
+> — 囍战 (@another\_xi\_123) [December 19, 2020](https://twitter.com/another_xi_123/status/1340267182396084225?ref_src=twsrc%5Etfw)
+
+
+
+路德社评论如下：
+
+1、虽然美国掌握大量中共作案的证据，但是针对中共的行动却迟迟没有发生，最大原因就是中共渗透的力量，这是中共最厉害的招，渗透后就对你进行人格分析，当你烦躁时，借你手攻击身边最亲近的人；
+
+2、思维是要经过碰撞才出现火花，这样才能分析和讨论得透彻，认清形式分清敌我，位置越高越要谨慎，一旦失去信任，权力的杠杆就不复存在；
+
+3、美国的生态造就了美国的伟大，承认沼泽存在的合理性，承认人的罪性，去中心化，从体系去解决问题，中国最大的问题就是不承认罪性的存在，人人都希望成为圣人。
+
+参考文章：
+
+[1]https://www.sec.gov/news/public-statement/clayton-hfcaa-2020-12
+
+[2]https://news.163.com/20/1219/19/FU7VFGOQ0001899O.html
+
+[3]https://twitter.com/another\_xi\_123/status/1340267182396084225
+
+文章撰写：【重生】  编辑：【GM141】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14081816/%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%95%86%E6%A0%87.png)
 0

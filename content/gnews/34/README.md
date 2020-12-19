@@ -1,99 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》：从系列时事新闻分析美国体系的伟大
-` GM141` [轉載自GNews](https://gnews.org/zh-hans/666505/)
+## 中共吹风本土又发现多起新冠，用意何在？
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/666491/)
 
-直播视频：
+*作者：桂花酒； 校对/审核：海阔天空；Page：拱卒*
 
+# **中共吹风本土又发现多起新冠，用意何在？**
 
+国家卫健委新闻发言人米锋11/25说：近30天我国累计新增本土确诊98例，是此前30天的7.5倍。中国疾病预防控制中心首席流行病学专家吴尊友强调新疆喀什引发137例感染的源头来自境外集装箱。那些背锅的冷冻肉，真的携带病毒？
 
-《路德时评》2020年12月19日早间节目主要内容：
+[!\[\]()!\[\](https://spark.adobe.com/page/ZuDUhhm23qcwq/images/134908e5-7a23-49cb-aabf-475c754964f2.jpg?asset_id=501d60ba-a0d9-4c73-86ca-877679be483a&amp;img_etag=%22e8ff878eb201ef25d7f4985cb7292a4d%22&amp;size=2560)](https://spark.adobe.com/page/ZuDUhhm23qcwq/images/134908e5-7a23-49cb-aabf-475c754964f2.jpg?asset_id=501d60ba-a0d9-4c73-86ca-877679be483a&amp;img_etag=%22e8ff878eb201ef25d7f4985cb7292a4d%22&amp;size=1024)
 
-一、美国证券交易委员会发表声明
+临近元旦春节中共释放病毒可能爆发的信号，有何不可告人的目的？前有大连、北京、青岛爆发疫情，后有新疆喀什、内蒙满洲里、上海、天津、黑龙江、成都加入，疫情版图持续扩大，显示中共国从未能够控制疫情，一切宣传服务于政治、服务于党的需求。世卫组织，美国cdc的福奇，他们配合中共的表演已经让我们审丑疲劳了。
 
-美国证券交易委员会12月18日发表声明[1]，对川普总统签署《外国控股公司问责法案》表示支持，并会就法案中内容采取具体行动，保护证券投资者利益。
+再看国际形势，美国及其盟友军事力量对中共形成的包围圈，始终保持高压。中共与美国内部勾结的卖国贼正做最后的垂死挣扎。
 
+习总加速师一月内三次号召备战，今年二次征兵，凸显了对党国的“不自信”，内忧外患下，疫情是个多好的抓手：一旦爆发，可以封城，高价菜、粮食短缺、冷冻肉更别想了；面对失业潮和可能抗议的民众，既有国安法按需抓人，又有党和政府始终心系人民生命安全的弥天大谎掩护，用病毒检测、注射疫苗狠狠赚上一笔；同时在最后关头拉着14亿百姓一起陪葬——这“一石数鸟”的如意算盘！想想李文亮，被群殴的老兵，放在首位的，始终只有一小撮盗国家族的利益。司马昭之心，不得不防。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19110005/%E8%AF%81%E5%88%B8%E4%BA%A4%E6%98%93%E5%A7%94%E5%91%98%E4%BC%9A.png)[图片地址](https://www.sec.gov/news/public-statement/clayton-hfcaa-2020-12)
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/ZuDUhhm23qcwq/)
 
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-路德社评论如下：
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-1、外国企业在美国上市不接受审计本身就是一件非常荒唐的事情，此前之所以如此，就是美国背后沼泽力量推动的；
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-2、该法案通过之后，针对外国企业的审查全面开始，由上市公司会计监督委员会负责推动执行，并有国会、财政部和其他金融机构对其进行监督；
+[!\[\]()!\[\](https://spark.adobe.com/page/ZuDUhhm23qcwq/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/ZuDUhhm23qcwq/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
-3、美国人依法行事的习惯非常值得国人学习，起先，他们依据原始证据进行立法，执行时，由相关专业部门进行审计调查，权力非常分散，并要接受监督，到最后全面退市需要时间；
-
-4、中共国随时可以发布命令执行任何行动，不按规则行事，香港7月刚通过国安法，七天之内就开始执行抓捕，完全不经过审理，而美国即使面对再困难的情况都依然按照规矩行事，这就是不同的生态圈；
-
-5、爆料革命以爆料为主，揭露中共的腐败和邪恶，未来新中国联邦则是要建立一个法制、民主和自由的生态圈，让每个人都有发言权，能从不同的角度表达观点，最终受益的是中国老百姓。
-
-
-
-二、国网湖南电力进入“战时状态”
-
-12月19日，国家电网有限公司官方网站消息[2]，入冬以来，湖南因气温骤降、居民取暖、工业用电量大幅攀升等多重因素叠加，电网最大负荷达到3150万千瓦，创冬季用电负荷历史新高。国网湖南电力积极应对、多措并举，全力确保电力可靠供应和电网平稳运行。
-
-路德社评论：
-
-1、所谓的“战时状态”是又一次的权力重分配，一旦进入战时状态，意味着分配权非常集中；
-
-2、中共在国内破坏环境建造无数个大坝，冬天进入严寒就出现供电紧张，这些所谓的大坝完全就是吹嘘。
-
-
-
-三、拜登家族随时面临起诉
-
-汤姆·科顿（Tom Cotton）18日接受FOX著名主持人塔克采访时说：“鉴于目前针对拜登（Biden）家族的调查报告的状态，起诉随时可能发生。”
-
-
-
-> Tom Cotton: Indictment could happen at any time given the state of these investigations that are currently being reported for Biden family
-> 汤姆·科顿议员：基于现有的相关调查报道，对拜登家族的起诉随时可能发生
-> 
-> 秘翻組油管2台火熱上線：[https://t.co/zusvytlkWu](https://t.co/zusvytlkWu) [pic.twitter.com/hYaxKUzA8L](https://t.co/hYaxKUzA8L)
-> — 秘密翻译组 (@G\_Translators6) [December 18, 2020](https://twitter.com/G_Translators6/status/1339900440981327872?ref_src=twsrc%5Etfw)
-
-
-
-如果拜登当选美国总统，只要他儿子接受刑事调查就无法胜任总统一职，最终由副总统贺锦丽担任，中共现在真正打的是贺锦丽这张牌。
-
-
-
-四、福林将军直指中共攻击美国网络
-
-福林将军最新福克斯采访说[3]，对美国的网络攻击就像用武器热战一样，是对美国的直接攻击。网络攻击的头号敌人是中共。有直接证据证明外国势力干预大选，与这次太阳风系统（solarwinds）攻击也有关联Gen Flynn：我们有直接证据表明外国干预了选举。
-
-
-
-> 福林将军最新福克斯采访说，对美国的网络攻击如同用武器热战一样，是对美国的直接攻击。网络攻击的头号敌人是中共。
-> 有直接证据证明外国势力干预大选，与这次太阳风系统(solarwinds)攻击也有关联
-> 
-> Gen Flynn: We have direct evidence of foreign interference on the Election.
-> 
-> 🆕囍站新号，欢迎关注 [pic.twitter.com/MEcXCjEKbu](https://t.co/MEcXCjEKbu)
-> — 囍战 (@another\_xi\_123) [December 19, 2020](https://twitter.com/another_xi_123/status/1340267182396084225?ref_src=twsrc%5Etfw)
-
-
-
-路德社评论如下：
-
-1、虽然美国掌握大量中共作案的证据，但是针对中共的行动却迟迟没有发生，最大原因就是中共渗透的力量，这是中共最厉害的招，渗透后就对你进行人格分析，当你烦躁时，借你手攻击身边最亲近的人；
-
-2、思维是要经过碰撞才出现火花，这样才能分析和讨论得透彻，认清形式分清敌我，位置越高越要谨慎，一旦失去信任，权力的杠杆就不复存在；
-
-3、美国的生态造就了美国的伟大，承认沼泽存在的合理性，承认人的罪性，去中心化，从体系去解决问题，中国最大的问题就是不承认罪性的存在，人人都希望成为圣人。
-
-参考文章：
-
-[1]https://www.sec.gov/news/public-statement/clayton-hfcaa-2020-12
-
-[2]https://news.163.com/20/1219/19/FU7VFGOQ0001899O.html
-
-[3]https://twitter.com/another\_xi\_123/status/1340267182396084225
-
-文章撰写：【重生】  编辑：【GM141】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14081816/%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%95%86%E6%A0%87.png)
 0
