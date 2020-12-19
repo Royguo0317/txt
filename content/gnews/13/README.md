@@ -1,25 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1218】-专业又正直的爱国者
-` Himalaya Wenya 喜馬拉雅的文雅` [轉載自GNews](https://gnews.org/zh-hans/664987/)
+## 【林伍德律师推文1218】-黑客偷了资料偷不了人心
+` Himalaya Wenya 喜馬拉雅的文雅` [轉載自GNews](https://gnews.org/zh-hans/665090/)
 
-当日林伍德律师在被不公正取消出庭律师资格后发推，
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18234748/haike2-removebg-preview-2.jpg)
+当晚林伍德律师发推称，
 
-“我们司法系统的正直、完整性是通过律师来维护的，他们在被蒙住眼睛的司法机构面前热心地为客户辩护。
+“我们国家的计算机系统正在经历一场大规模的网络攻击。
 
-“我知道我在为维护法律制度的正直、完整性尽自己的一份力量。我不能控制司法机构。
+“一个外国实体或几个外国实体可以骇客我们最保护的国家安全计算机系统，但他们不可能玩弄我们11/3选举及其计算机系统。
 
-“司法系统的存在是为了服务于我们人民。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18231226/EpVjWpkVQAAtjDZ-2.jpg)
-林伍德律师在坚持伸张正义、为国而战的路上，遇到职业生涯被黑恶势力打击甚至摧毁的危险，他大义凌然，坚守信仰，他坚信司法体系的公正和完整性靠每一位良心热忱的律师来履行，反过来司法体系又保障和服务于“我们人民”。他是既有专业能力又有正直品质的爱国者，我们为美国涌现出无数这样的平凡的勇士感到欣慰，也不禁感慨这正是未来我们新中国所急需和呼唤的的力量。不要畏惧困难，因为正义应该勇敢起来，邪恶终将恐惧消亡，引用林伍德律师的一句话即，“光明总能战胜黑暗 真理总是战胜谎言。”
-
+“没错。”
 
 
 
+> Our country is undergoing a massive cyberattack of its computer systems.
+> 
+> A foreign entity or entities can hack into our most protected national security computer systems but no way they played games with our 11/3 election & its computer systems.
+> 
+> Right.
+> — Lin Wood (@LLinWood) [December 19, 2020](https://twitter.com/LLinWood/status/1340147131320025091?ref_src=twsrc%5Etfw)
 
-新闻素材和图片来自林伍德律师推特
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17195020/Wenya-Logo-5.png)
+新闻素材来自林伍德律师推特
+
+
+
 0

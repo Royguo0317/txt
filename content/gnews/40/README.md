@@ -1,41 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欢迎加入英国伦敦喜庄园
-` 英國倫敦喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/661081/)
+## 川普总统离最后的选项越来越近
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/664504/)
 
-## 🇬🇧🇬🇧🇬🇧 欢迎战友们加入英国伦敦喜庄园🌹🌹🌹
+作者： 康州盘古农场-勇敢的新
+审核： 康州盘古农场-V
 
-🔹英国喜庄园资管经验丰富，成功地为多国多地的农场战友操作借款！
+**一、司法系统**。郭文贵先生在直播中提到，中共对美国司法界和法官的渗透超乎想象，有的法官有了权力后就想点性。昨天林武德律师发推揭发大法官罗伯茨的“保证”不让川普连任，并且和克林顿一起光顾爱泼斯坦的小岛。德克萨斯州诉讼宾夕法尼亚州的选举违宪，美国17个州加入并支持德州的诉讼，最高法院拒绝受理此案。最高法院的不作为，让川普通过司法程序拿回选举结果的渠道可能已经断了。
 
-🔹英国喜庄园在大卫农场主带领下已孵化自己的媒体平台《英国伦敦喜庄园电视台GTV UK》！
+** 二、情报系统。**国家情报总监約翰·拉特克里夫正式发文表示，对于外国是否干涉大选的报告，不能按照总统令的要求在12月18日前做出来。CBS所谓的独家新闻称拉特克里已经在11月讲过中国、俄罗斯和伊朗干涉美国大选，正式报告会在1月出来。这是一个典型的“拖字诀”，1月份能出什么样的报告，无从得知，会不会和彭斯副总统的打一个配合？国会将于1月6日在众议院举行联席会议，正式清点选票，副总统将主持会议。彭斯副总统在中国媒体上的形象可好呢。再看看彭皮奥和皮特.纳瓦罗在中国的媒体上受到的待遇，为啥同样是川普的左膀右臂，差距就这么大呢？我们不知里面的具体原因，但是可以从表象推断，川普通过情报口拿回美国大选结果的方式可能行不通了。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18191038/Screen-Shot-2020-12-18-at-4.09.52-PM.png)
+**三、五角大楼**。美国代理国防部长托弗·米勒，11月19日宣布所有特种部队和情报单位直接向他汇报，绕过内部的任何官僚组织。军方有自己的情报机构，大约有28,000名军事人员和3,800名文职人员被分配到情报工作，并拥有通过卫星，潜艇和飞机等高科技手段收集情报的能力。
 
-🔹英国喜庄园绝对保证战友们G系列的投资利益！
+什么是武器，这是由军方专家来定义的。新冠病毒是否为生物武器，需要军方做出判断。郭文贵先生反复提到过，病毒来源将是决定性的因素，所有的斗争可能最终回到病毒上面来。如果军方定义新冠病毒是CCP的生物武器，然后就没有然后了。
 
-🔹英国喜庄园潜力巨大，投资环境良好，后面英国在做GCoin发展上有得天独厚的法律和金融优势！
+川普总统昨日发推“我对美国最高法院非常失望，这个国家也对它失望”。从目前的进展看，川普总统处处受挫，但是敌人在把川普往这个最终的选项上逼。有些人把别人逼到角落里，同时把自己也逼进了死胡同。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18191055/Screen-Shot-2020-12-18-at-4.10.01-PM.png)
+参考信息来源：
 
-🔹英国喜庄园事儿上见，欢迎战友们背靠背，跟大卫一起建设英国喜庄园！非常感谢💙
+[https://en.wikipedia.org/wiki/Military\_Intelligence\_Corps\_(United\_States\_Army)](https://en.wikipedia.org/wiki/Military_Intelligence_Corps_%28United_States_Army%29)
+[https://cn.nytimes.com/usa/20201214/electoral-college/](https://cn.nytimes.com/usa/20201214/electoral-college/)
+[https://club.1688.com/threadview/53421295.htm](https://club.1688.com/threadview/53421295.htm)
 
-🌹请点击🇬🇧英国伦敦喜庄园Discord邀请链接：[https://discord.gg/U9F97ur](https://discord.gg/U9F97ur)
-
-1. 请填写英国伦敦喜庄园（农场）问卷：[问卷链接](https://docs.google.com/forms/d/e/1FAIpQLSeMfpcPiHGwoRW6Za25D183euw0Y_Lwr4ir2f7vNPqBEFLWeA/viewform)
-2. 进入Discord新战友房间报到，与英国伦敦喜庄园办公室负责人进行验证和审核, 然后和大卫（telegram： @David007）确认加入农场， 谢谢！
-
-
-## 大卫介绍如何加入英国伦敦喜庄园
-
-英国伦敦喜庄园：*广结英才, 灭共路上，没你不行，咱们喜马拉雅山巅相聚！支撑着每一位战友的是同一个信仰：新中国联邦！*
-
-
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/093rrtq2YNZe1/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/093rrtq2YNZe1/images/df9c87a0-0986-4672-b5f8-3420b6b3cbbe.jpg?asset_id=d3c22c5d-19d4-4f17-aec3-da1d1d327672&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/093rrtq2YNZe1/images/df9c87a0-0986-4672-b5f8-3420b6b3cbbe.jpg?asset_id=d3c22c5d-19d4-4f17-aec3-da1d1d327672&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
-0
+2+

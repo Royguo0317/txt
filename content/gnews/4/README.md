@@ -1,79 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国将中芯国际、大疆创新等数十家中国企业列入黑名单
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/665315/)
+## 突发新闻：凯文·麦卡锡说国家情报总监约翰·拉特克利夫递交了关于斯沃维尔的报告
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/664869/)
 
-翻译：康州盘古农场 – 烟波浩淼
+翻译： 康州盘古农场 – Antsee-GTV
+校对： 康州盘古农场 – 烟波浩淼
+编辑： 康州盘古农场 – 文韵
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18224249/%E5%9B%BE%E7%89%871-21.png)
+**重大新闻：****
+福克斯（FOX News）新闻记者查德·****珀格拉姆（Chad Pergram）周五下午晚些时候报道说，国家情报总监（DNI）约翰·拉特克利夫今天递交了关于埃里克·斯沃威尔(Eric Swalwell)的报告。**
 
-校对：康州盘古农场 – Robensenna
+今天应提交的报告是川普总统签署的行政命令所要求的。
 
-审核：康州盘古农场 – Rose
+*麦卡锡（**McCarthy**，众议院少数党领袖）与佩洛西（**Pelosi**）一同听取了国家情报总监递交的关于中国和斯沃威尔的简报。**–**查德**·**珀格拉姆（**@ChadPergram**）*[*2020**年**12**月**18**日*](https://twitter.com/ChadPergram/status/1340041670465892352)
 
-华盛顿（路透社）-美国周五证实，将把数十家中国公司列入贸易黑名单，其中包括中国最大的芯片制造商中芯国际（SMIC）和中国无人机制造商深圳大疆科技有限公司。
+联邦调查局周五向共和党人，众议院少数党领袖凯文·麦卡锡和议长佩洛西简要汇报了民主党众议员埃里克·斯沃维尔与中国间谍方芳的关系。
 
-路透社首次报道这一举动，被视为共和党总统川普巩固其对华强硬遗产的最新举措。这距离民主党“当选总统”拜登将于1月20日就职只有几周。
+麦卡锡周五下午在简报会上露面，[并在国会大厦告诉记者](https://www.foxnews.com/politics/mccarthy-gets-fbi-briefing-on-swalwell-he-should-not-be-on-intel-committee)们，斯沃威尔“不应该待在众议员情报”委员会了。
 
-美国商务部周五早些时候证实了这一决定，称针对中芯国际的行动“源于中国军民融合（MCF）理论，以及中芯国际与中国军工联合体相关实体之间的活动证据”
+麦卡锡说：“我想我所认识的绝对有200个其他民主党人可以填补这个职位。”
 
-美国商务部一名官员在电话会议上对记者说，全球最大的无人机公司大疆创新正在被列入名单。大疆创新没有立即回复置评请求。
+斯沃维尔目前是众议院情报委员会的成员，拥有访问美国一些最高机密信息的权限。
 
-美国商务部长威尔伯•罗斯在一份声明中说，美国商务部将“不允许美国先进技术帮助建立一个日益好战的对手的军队。”
+# **原文作者：吉姆·霍夫特**
 
-罗斯说，政府将推定拒绝许可证，以阻止中芯国际获得生产先进技术水平（10纳米或以下）的半导体。
-
-中国国务委员兼外交部长王毅周五在亚洲协会发表讲话，他注意到美国的制裁名单不断扩大，并呼吁华盛顿停止对中国企业的“任意压制”。
-
-美国商务部表示，在所谓的实体名单中，总共有77家公司和附属公司，其中包括60家中国公司。路透社早些时候报道说，商务部增加了大约80家公司，其中大部分是中国公司。
-
-中国外交部表示，如果属实，黑名单将成为美国压迫中国企业的证据，北京将继续采取“必要措施”保护中国企业的权利。
-
-外交部发言人汪文斌周五在北京的例行记者会上说：“我们敦促美国停止对外国公司无端压迫的错误行为。”
-
-中芯国际没有立即回复置评请求。
-![](https://lh4.googleusercontent.com/-imFexQXhkr35trJK3FeBJTbnYVj0R08Eh6Pf5ExyOss8E7i4KwYzfKC4TrdyHyRrm5KTGKLgjLk2YprT93R5eeVN5doRxFwoi-00s0WjGSpLDPIbuwZPGm0V_6e3Z6FzpDKbivcoGYYCs-jtg)
-资料图片：2019年5月28日，在中国北京举行的中国国际服务贸易博览会期间，美国国际商会（AICC）的展位上展示了美国和中国的国旗。路透社/杰森·李
-
-商务部称，由美国商务部认定的名单包括中国境内一些涉嫌侵犯人权的实体，还有一些帮助中共在南中国海建造和军事化人工岛屿的机构。
-
-报告还列举了为支持人民解放军计划而获取美国原产品的实体，以及参与窃取美国商业机密的实体和个人。
-
-此前被列入名单的公司包括电信设备巨头华为技术公司（Huawei Technologies Co.）和它的150家附属公司 ，中兴通讯（ZTE Corp.）因违反制裁规定，以及监控摄像机制造商海康威视（Hikvision）因镇压中国维吾尔族少数民族而被列入名单。
-
-虚幻结盟
-
-星期五，香港半导体制造业国际集团（SMIC）股价下跌5.2%，而该公司在上海上市的股票下跌1.8%。两个市场的基准指数下跌不到1%。
-
-华盛顿已经瞄上了中芯国际。
-
-今年9月，美国商务部在认定供应给该公司的设备存在“不可接受的风险”后，要求该公司的某些设备供应商申请出口许可证。
-
-上个月，美国国防部将该公司列入涉嫌中国军工企业的黑名单，实际上从明年下半年生效禁止美国投资者购买其股票。
-
-中芯国际一再表示，它与中国军方没有任何关系。
-
-这一实体名单将迫使中芯国际在美国供应商向其发送关键商品之前，需要向商务部申请特殊许可证，这是美国政府限制其获取美国先进芯片制造技术之努力的一部分。
-
-罗斯说，美国商务部正在把将近12家中芯国际下属公司列入实体名单。
-
-中芯国际是中国最大的芯片制造商，但落后于行业的市场领导者台湾半导体制造有限公司。该公司一直在寻求建立能与台积电竞争的计算机芯片制造厂。
-
-华盛顿和北京之间的关系在过去的一年里变得越来越对立，因为世界前两大经济体对北京处理冠状病毒爆发、强行在香港实施国家安全法以及南海的紧张局势加剧都争执不下。
-
-报道：David Shepardson和Alexandra Alper；
-
-补充报道：Humeyra Pamuk，Mike Stone，Karen Freifeld，Tom Daly Gabriel Crossley和Tom Westbrook；
-
-著作：Humeyra Pamuk和David Shepardson；
-
-编辑：William Mallard，Steve Orlofsky和Jonathan Oatis
-
-原文作者：亚历山德拉•阿尔珀（Alexandra Alper），大卫•谢泼德森（David Shepardson），胡米拉•帕慕克（Humeyra Pamuk）
-
-发布时间： 2020年12月17日
+# **2020****年12月18日**
 
 原文链接：
 
-[U.S. blacklists dozens of Chinese firms including SMIC, DJI | Reuters](https://in.reuters.com/article/usa-china-sanctions-exclusive-idINKBN28S0HP)
+
+
+> [BREAKING REPORT: Kevin McCarthy Says DNI John Ratcliffe Delivered the Report on Swalwell](https://www.thegatewaypundit.com/2020/12/breaking-report-kevin-mccarthy-says-dni-john-ratcliffe-delivered-elections-intel-briefing-due-today/)
+
+
 
 0

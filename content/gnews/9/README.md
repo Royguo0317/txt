@@ -1,31 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1218】-黑客偷了资料偷不了人心
-` Himalaya Wenya 喜馬拉雅的文雅` [轉載自GNews](https://gnews.org/zh-hans/665090/)
+## 美国对中华人民共和国所属实体的恶意行为实施新的制裁
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/665289/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18234748/haike2-removebg-preview-2.jpg)
-当晚林伍德律师发推称，
+翻译：康州盘古农场- 一花一世界
 
-“我们国家的计算机系统正在经历一场大规模的网络攻击。
+校对：康州盘古农场- Robensenna
 
-“一个外国实体或几个外国实体可以骇客我们最保护的国家安全计算机系统，但他们不可能玩弄我们11/3选举及其计算机系统。
+审核：康州盘古农场- Rose
 
-“没错。”
+新闻声明
 
+国务卿，迈克尔·R·蓬佩奥
 
+2020年12月18日
 
-> Our country is undergoing a massive cyberattack of its computer systems.
-> 
-> A foreign entity or entities can hack into our most protected national security computer systems but no way they played games with our 11/3 election & its computer systems.
-> 
-> Right.
-> — Lin Wood (@LLinWood) [December 19, 2020](https://twitter.com/LLinWood/status/1340147131320025091?ref_src=twsrc%5Etfw)
+中共在国内外的恶性活动损害了美国利益，破坏了我们盟国和伙伴的主权。美国将采取一切可能的反制措施来阻止包括防止中华人民共和国（PRC）的公司和机构利用美国商品和技术在内的一切恶意行为。今天的举动又一次表明了我们决绝的决心。
 
+美国正在对一些破坏我们国家安全和外交政策利益的实体实施新的限制。具体来说，商务部正将59个中国实体添加到其出口控制实体列表中。
 
+**大规模监视，军事现代化和侵犯人权**
 
-新闻素材来自林伍德律师推特
+美国正在将四个实体添加到“因通过向中共国政府提供DNA检测材料或高科技监视设备而侵犯人权”的制裁实体列表中。我们敦促中国共产党尊重包括藏传佛教徒，基督徒，法轮功成员，维吾尔族穆斯林以及其他种族和宗教少数群体成员在内的中国人民的人权。
 
+此外，商务部正在将另外19个实体添加到“制裁实体列表”中，因这些公司或机构涉嫌系统地协调和实施在十多个美国公司盗窃商业机密的事件，以促进中国国防工业园区的发展；或破坏美国打击核材料和其它放射性物质非法贩运活动的行动；或利用美国的出口来支持解放军和中共国的国防工业基地，其最终目标是超越他们认为是竞争对手的其它国家（特别是美国）。
 
+**南中国海**
+
+这些新制裁也增加了北京在南中国海的非法胁迫行为成本。美国商务部将“中国船舶工业集团公司”（China State Shipbuilding Corporation）下属的25家造船研究机构以及其它六个“为人民解放军海军提供研究，开发和制造支持或试图获取美国原产产品用来支持人民解放军项目”的实体机构加到制裁实体名单中。商务部还增加了五家中国国有企业，包括中国交通建设公司（China Communications Construction Company），因其在南中国海压迫原告国的行为。
+
+出处: [https://www.state.gov/u-s-imposes-new-sanctions-on-peoples-republic-of-china-actors-linked-to-malign-activities/](https://www.state.gov/u-s-imposes-new-sanctions-on-peoples-republic-of-china-actors-linked-to-malign-activities/)
 
 0
