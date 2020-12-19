@@ -1,52 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 斯诺登爆了谁的雷？谁又在阻挠美国大选干预报告？
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/666629/)
+## 新冠大流行期间，中共国公司从意大利赚取了15亿欧元
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/666846/)
 
-*作者：此心不变；校对：宁缺；审核：海阔天空；Page：拱卒*
+*新闻来源：Breitbart《布赖特巴特》；作者：克里斯·汤姆林森(CHRIS TOMLINSON )；发布时间：2020年12月11日*
 
-# **斯诺登爆了谁的雷？谁又在阻挠美国大选干预报告？**
+*翻译/简评：Marialu；校对：感恩；审核：InAHurry；Page：拱卒*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/SribIxKHZvOSA/images/bb6f917b-4da6-4c51-9af0-abf32e9fd116.jpg?asset_id=4d8970dc-5e9b-4196-a470-d96d8f9a23bf&amp;img_etag=%22701441b37dd2b91b54683a6ed4529fd2%22&amp;size=2560)](https://spark.adobe.com/page/SribIxKHZvOSA/images/bb6f917b-4da6-4c51-9af0-abf32e9fd116.jpg?asset_id=4d8970dc-5e9b-4196-a470-d96d8f9a23bf&amp;img_etag=%22701441b37dd2b91b54683a6ed4529fd2%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/xHqG7VVDzQSm9/images/2a9f6cc3-a11e-48ce-89ff-d4353258ccf7.jpg?asset_id=cd0d94c4-08c8-4fbd-a13b-1a67988417d7&amp;img_etag=%22f7eeeec8da53c9ffcf4309149383bdf8%22&amp;size=1024)](https://spark.adobe.com/page/xHqG7VVDzQSm9/images/2a9f6cc3-a11e-48ce-89ff-d4353258ccf7.jpg?asset_id=cd0d94c4-08c8-4fbd-a13b-1a67988417d7&amp;img_etag=%22f7eeeec8da53c9ffcf4309149383bdf8%22&amp;size=1024)
 
-## **新闻1: 兰德·保罗呼吁特朗普赦免爱德华·斯诺登**
+**简评：**
 
-[点击来源](https://www.foxnews.com/politics/rand-paul-trump-pardon-edward-snowden)
+中共一手炮制的CCP病毒，最初在武汉爆发，正是中共隐瞒疫情，使CCP病毒扩散到全世界，旨在使世界大部分发达国家经济瘫痪，而中共国成为唯一受益者。
 
-## **新闻2: 拉特克利夫拒绝签署大选干预报告，直到这份报告能突出CCP对大选的干预**
+本文以意大利为例，看到在CCP病毒大瘟疫期间，中共国从意大利一国就赚取了15亿欧元。意大利左翼政府斥资15.7亿欧元购买中共国公司的医疗用品。意大利兄弟党（民族保守派）领䄂批评现任意大利总理孔戴，在面对危机时，意大利政府对中共政权“绝对依赖”、完全屈从于外国利益集团及被外国利益集团所奴役等等言辞。
 
-[点击来源](https://www.breitbart.com/politics/2020/12/16/deep-state-pushes-to-deep-six-intelligence-report-demonstrating-chinese-interference-in-2020-election/)
+文中特别提到：今年4月中共国竟然强迫意大利回购之前捐赠给中共国的防疫用品。作为海外华人，当初也是捐钱捐物，希望帮助一线的医护人员。中共善于利用他人的善良，把各国人民捐赠的医用物资不是堆积在仓库，就是贪官们据为已有，而一线的很多医护人员缺少防护用品。在世界各国饱受CCP病毒摧残时，中共又想包装自己为救世主的模样，现在真相大白，中共的行径人神共愤，真的没有最无耻，只有更无耻！
 
-## ***两则新闻合并简评：***
+**原文翻译：**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/SribIxKHZvOSA/images/745c14ab-1176-4796-9c76-cae5f1aa9210.jpg?asset_id=71fa8e24-f2fc-4a8b-9838-5780e2968d9c&amp;img_etag=%22e127ede9ef581303d4c7432421d951b1%22&amp;size=2560)](https://spark.adobe.com/page/SribIxKHZvOSA/images/745c14ab-1176-4796-9c76-cae5f1aa9210.jpg?asset_id=71fa8e24-f2fc-4a8b-9838-5780e2968d9c&amp;img_etag=%22e127ede9ef581303d4c7432421d951b1%22&amp;size=1024)
+# 新冠大流行期间，中共国公司从意大利赚取了15亿欧元
 
-**斯诺登**
+[!\[\]()!\[\](https://spark.adobe.com/page/xHqG7VVDzQSm9/images/da228197-3ffb-4838-87e0-1caa26bb4f6d.png?asset_id=3d3a64f5-ba51-47fe-b2c8-d07aed68bc08&amp;img_etag=%226475d6e92fa78c3cf3de0aa5d449ae99%22&amp;size=2560)](https://spark.adobe.com/page/xHqG7VVDzQSm9/images/da228197-3ffb-4838-87e0-1caa26bb4f6d.png?asset_id=3d3a64f5-ba51-47fe-b2c8-d07aed68bc08&amp;img_etag=%226475d6e92fa78c3cf3de0aa5d449ae99%22&amp;size=1024)法新社/ STR文件
 
-第一则新闻讲的是斯诺登。斯诺登实际是奥巴马总统的死对头，并且是前国家安全局承包商。这个特殊的身份让他深知奥巴马政府是如何做假、如何欺骗、如何腐败的，包括时任国务卿希拉里的很多丑闻。因为他是2013年泄露政府机密监控计划信息的举报人，所以奥巴马对他恨之入骨，曾试图以叛徒罪名监禁斯诺登。为了避免奥巴马政府操纵的联邦法院起诉陷害，斯诺登只好逃离美国，过去几年里一直在俄罗斯避难。现在，兰德·保罗在多人呼吁川普总统赦免斯诺登的背景下再次发力力挺斯诺登，他说：“斯诺登不是叛徒，他是一个真正的告密者，试图揭露像克拉伯这种秘密使用深层权力追捕美国公民的人。”
+**在武汉病毒大流行期间，意大利左翼政府斥资15.7亿欧元购买了中共国公司的产品。**
 
-第二则新闻讲的是大选干预报告。这份报告原本发布期限是12月18日，而现在出现难产，原因是各腐败部门的那些精英在辩论中竭尽全力地淡化CCP对大选的干预，并千方百计地想将干预大选的矛头转向俄罗斯。文中特别提到其中一个腐败部门CIA，不想让川普总统谈论CCP影响选举的话题。一天前我看到文章提到另一个腐败部门FBI总裁雷坚称俄罗斯的角色最重，而这篇文章现在已经被消失不见了。巴尔在其辞职信中痛斥通俄门的卑鄙，但是这些精英却依然要延续通俄门的罪恶。拉特克利夫现在拒绝签署大选干预报告，直到这份报告能突出CCP对大选的干预。
+从1月31日到11月17日，意大利的左翼联盟共花费47.3亿欧元，其中大部分用于医疗用品和其它物品，其中36.25%的现金流向了外国公司。
 
-两则新闻是有关联的。斯诺登举报的就是奥巴马期间情报系统的丑恶行径，而现在这份报告无法按时出具依然归结于这些丑恶。如果川普总统赦免了斯诺登，一定会产生极大的震摄效果，很多精英会感到很害怕。斯诺登去年接受《CBS今晨》采访时表示，如果他的行为得到“公开审判”，他愿意返回美国。目前还不知道斯诺登是否还有没揭示出来的内容，他手中掌握的解密资料肯定对奥巴马邪恶势力具有巨大的威胁。如果川普要实施戒严令抓捕奥巴马深层政府势力的话，斯诺登绝对是一个不可或缺的证人。
+在向海外支出的17.1亿欧元中，15.7亿欧元（占比91.7%）流向了中资企业。据《国际日报》报道，韩国公司是意大利新冠大流行的第二大外国受益者，赚取了2900万欧元。
 
-今年8月，川普总统在共和党人中举行了一场关于斯诺登命运的激烈辩论，他提出可能会赦免斯诺登。当时，巴尔将斯诺登描述为叛徒，并表示强烈反对赦免。巴尔是布什时代获得提升的人，斯诺登所揭示的内容可能同样会涉及到巴尔在司法部时的事务，因为司法部是奥巴马嵌入精英最多的地方。
+[!\[\]()!\[\](https://spark.adobe.com/page/xHqG7VVDzQSm9/images/dbf306c0-c0b4-4cbf-a99f-b9e23e4849b6.jpg?asset_id=61dd9af2-981c-432c-b0d6-9c1f42c3e022&amp;img_etag=%2265b2facc042d4d8d8b7ac0fd16ce33ac%22&amp;size=2711)](https://spark.adobe.com/page/xHqG7VVDzQSm9/images/dbf306c0-c0b4-4cbf-a99f-b9e23e4849b6.jpg?asset_id=61dd9af2-981c-432c-b0d6-9c1f42c3e022&amp;img_etag=%2265b2facc042d4d8d8b7ac0fd16ce33ac%22&amp;size=1024)
 
-参议员格雷厄姆本月早些时候猛烈抨击要求川普总统赦免斯诺登的呼吁，他在推特上表示举报人不是受害者。格雷厄姆是参议员司法委员会的主席，他和麦康奈尔都是出卖川普总统最关键的人物。两人起先都表示支持川普去打官司，让人们以为他们是站在正义这边。但是在12月14日，川普最艰难的时刻，他们却一前一后给予川普总统沉重的打击。
+意大利民族保守主义兄弟党（FdI）领袖乔治•梅洛尼（Giorgia Meloni）批评称，在危机期间，三分之一的现金支出最终流向了中共国公司。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/SribIxKHZvOSA/images/a09cefa8-0dc8-479e-95ce-f649f790b358.png?asset_id=69223862-072c-490d-885b-d0d07663955e&amp;img_etag=%22aa3b2c8833acbc50acb5256624e81135%22&amp;size=2560)](https://spark.adobe.com/page/SribIxKHZvOSA/images/a09cefa8-0dc8-479e-95ce-f649f790b358.png?asset_id=69223862-072c-490d-885b-d0d07663955e&amp;img_etag=%22aa3b2c8833acbc50acb5256624e81135%22&amp;size=1024)
+梅洛尼称这些数字“令人不安”，并声称这些数字揭示了朱塞佩·孔戴总理（Giuseppe Conte）领导的政府对北京中共政权的“绝对依赖”。
 
-综上所述，我们可以得出这样的结论： 抨击斯诺登的人和阻挠大选报告的人源于同一伙人。他们是谁？我们能看见站在前台的是一群高级行政人员（SES），或称精英；我们看不见站在后台的是奥巴马们（不只一个奥巴马）以及他们背后的CCP。
+她说：“不幸中的不幸是，在必须面对一个健康、社会和经济的紧急状况（危机）的同时，政府完全屈从于外国利益集团。”
 
-什么是高级行政人员？我在另一篇文章中详述过这个组织的形成。它是一只强大的精英团队，成立于1979年9月19日（卡特政府期间）。现在这只团队大约有8000名员工，其中有6000多名被奥巴马们控制着。他们的地位仅次于国家高级政治领导人，级别等同于部队中的军官或旗官。他们被认为是专业的管理通才，在政府各部门里担任重要角色，管理整个部门，还参与制定政府政策。
+她还说：“这是意大利共和国历史上最糟糕的政治阶层：无能、无远见、为外国利益集团所奴役，只因渴望拥有事业和确保席位而兴致勃勃。”
 
-在奥巴马之前，这只精英团队虽有腐败但并不严重，因为不是终身制。奥巴马上任后，不但给他们大幅加薪，他们现在的薪金表从最高公务员（GS-15）开始，最低US$127,914美元到最高US$192,300不等。最高的薪金已跟国务卿彭培奥的差不多，而且用行政令将他们保护起来，保证永不被解雇。而国务卿彭培奥尚且最多只能做八年。
+在新冠大流行初期，意大利和许多其他欧洲国家向中共国供应商寻求医疗用品，但发现他们购买的大量个人防护装备（PPE）存在缺陷。
 
-奥巴马用了两届任期时间清洗了这只精英团队中的6000多名成员，组建了一只听从他指挥的政治特工留守大军，成为Deep State的一部分。在这只大军中，我们看到司法部和国土安全部人数最多，司法部有821人，国土安全部有639人。负责抓捕斯诺登的正是是这两部门，阻挠总统大选报告的也是这两部门。今天美国所有问题的根源都是因为这群精英，可见1979年美国改走精英制度是一条错误的路。
+[!\[\]()!\[\](https://spark.adobe.com/page/xHqG7VVDzQSm9/images/c638704a-4661-4327-bceb-6bd6e2e85b2d.jpg?asset_id=b42a8222-ba45-4633-8e18-4323f5670398&amp;img_etag=%2299cf13c449c6b86e6173238b9c2bde4d%22&amp;size=2578)](https://spark.adobe.com/page/xHqG7VVDzQSm9/images/c638704a-4661-4327-bceb-6bd6e2e85b2d.jpg?asset_id=b42a8222-ba45-4633-8e18-4323f5670398&amp;img_etag=%2299cf13c449c6b86e6173238b9c2bde4d%22&amp;size=1024)
 
-从生命的角度来看，精英是AI产品，与信仰是相违背。每一个生命都是独一无二的，也就是说每一个人都是最完美的，根本不存在什么精英。郭文贵先生12月16日说，喜马拉雅农场只有喜马拉雅联盟委员会和战友们两头，中间没有什么是固定的，新中国联邦绝对不能产生任何的大佬机构，我的理解就是绝对不能产生精英机构。这真是大智慧啊！
+《旁观者》杂志美国版今年4月有一篇报道声称，中共国强迫意大利回购几周前意大利本国捐赠给中共国的防疫用品。
 
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/SribIxKHZvOSA/)
+今年10月，英国政府被曝出向与北京中共当局有关联的公司投入了超过3.2亿英镑，其中大部分花在购买个人防护装备（PPE) 和呼吸机。
+
+[原文链接](https://www.breitbart.com/europe/2020/12/11/italy-gave-e1-5-billion-chinese-companies-during-pandemic/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+breitbart+%28Breitbart+News%252)
 
 [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
@@ -54,6 +56,8 @@
 
 [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/SribIxKHZvOSA/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/SribIxKHZvOSA/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/xHqG7VVDzQSm9/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/xHqG7VVDzQSm9/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/xHqG7VVDzQSm9/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

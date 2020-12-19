@@ -1,29 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国制裁中共和马杜罗支持者
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/666309/)
+## 中共吹风本土又发现多起新冠，用意何在？
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/666491/)
 
-- 编辑：Victor Torres
+*作者：桂花酒； 校对/审核：海阔天空；Page：拱卒*
 
+# **中共吹风本土又发现多起新冠，用意何在？**
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+国家卫健委新闻发言人米锋11/25说：近30天我国累计新增本土确诊98例，是此前30天的7.5倍。中国疾病预防控制中心首席流行病学专家吴尊友强调新疆喀什引发137例感染的源头来自境外集装箱。那些背锅的冷冻肉，真的携带病毒？
 
-**西班牙20202年12月19日电/西喜社——**
+[!\[\]()!\[\](https://spark.adobe.com/page/ZuDUhhm23qcwq/images/134908e5-7a23-49cb-aabf-475c754964f2.jpg?asset_id=501d60ba-a0d9-4c73-86ca-877679be483a&amp;img_etag=%22e8ff878eb201ef25d7f4985cb7292a4d%22&amp;size=2560)](https://spark.adobe.com/page/ZuDUhhm23qcwq/images/134908e5-7a23-49cb-aabf-475c754964f2.jpg?asset_id=501d60ba-a0d9-4c73-86ca-877679be483a&amp;img_etag=%22e8ff878eb201ef25d7f4985cb7292a4d%22&amp;size=1024)
 
-美国周五对委内瑞拉和中国采取了行动，因为他们破坏了自由公正的选举，破坏了美国的国家安全。
-国务院在一份新闻声明中，对帮助马杜罗政权窃取委内瑞拉最近的12月大选的人采取了行动：
-美国已制裁Ex-Cle SolucionesBiométricasC.A. （Ex-Cle C.A.）因其对非法的马杜罗政权12月6日的欺诈性选举的支持。 财政部的行动还针对吉列尔莫·卡洛斯·圣奥古斯丁和马科斯·贾维尔·马查多·雷奎纳，他们曾代表或为Ex-Cle C.A.行事。圣奥古斯丁有阿根廷和意大利双重身份，是Ex-Cle C.A.的共同董事，管理人，大股东和最终实益拥有人。 马查多（Machado）是委内瑞拉国民，是Ex-Cle C.A的共同董事，总裁小股东。
-…那些企图破坏委内瑞拉自由公正选举的人必须承担责任。 马杜罗依靠Ex-Cle C.A.等公司以及最近批准的中国科技公司CEIEC操纵选举程序的做法，无疑使12月6日的立法选举是欺诈性的，并不反映委内瑞拉人民的意愿。 我们敦促所有致力于民主的国家谴责12月6日的欺诈性选举和非法政权为摧毁委内瑞拉民主而持续作出的努力。
-在另一份新闻声明中，美国国务院对中共主体的恶性行为实施了更多制裁。 国务院和其他部门已将多家公司列入通告：
-中共在国内外的恶性活动损害了美国利益，破坏了我们盟国和伙伴的主权。 美国将使用所有可用的对策，包括阻止中华人民共和国（PRC）公司和机构为恶性目的利用美国商品和技术的行动。 今天的举动是我们决心的又一个标志。
-美国对某些实体，因其进行破坏我们国家安全和外交政策利益的活动实施新的限制。
-Investing.com宣布，总统还签署了将使中国公司退出美国证券交易所的立法：
-白宫表示，唐纳德·川普总统周五签署了一项立法，将把中国的美国公司踢出美国证券交易所，除非它们遵守美国的审计标准。
-…《外国公司控股责任法》禁止连续三年未遵守美国公共会计监督委员会审计规定的外国公司的证券，在任何美国交易所上市。
-虽然适用于任何国家的公司，但该法案的拥护者都打算将其针对在美国上市的中国公司，例如阿里巴巴（K：BABA），科技公司拼多多（NASDAQ：PDD）Inc和石油巨头中石油（PetroChina Co Ltd）。
-川普总统坚信保护美国人和世界人民不受独裁政权的侵害。
+临近元旦春节中共释放病毒可能爆发的信号，有何不可告人的目的？前有大连、北京、青岛爆发疫情，后有新疆喀什、内蒙满洲里、上海、天津、黑龙江、成都加入，疫情版图持续扩大，显示中共国从未能够控制疫情，一切宣传服务于政治、服务于党的需求。世卫组织，美国cdc的福奇，他们配合中共的表演已经让我们审丑疲劳了。
 
-新闻链接：[https://www.thegatewaypundit.com/2020/12/us-makes-moves-maduro-venezuela-china-interfere-free-fair-elections-undermine-national-security-targeted/](https://www.thegatewaypundit.com/2020/12/us-makes-moves-maduro-venezuela-china-interfere-free-fair-elections-undermine-national-security-targeted/)
+再看国际形势，美国及其盟友军事力量对中共形成的包围圈，始终保持高压。中共与美国内部勾结的卖国贼正做最后的垂死挣扎。
+
+习总加速师一月内三次号召备战，今年二次征兵，凸显了对党国的“不自信”，内忧外患下，疫情是个多好的抓手：一旦爆发，可以封城，高价菜、粮食短缺、冷冻肉更别想了；面对失业潮和可能抗议的民众，既有国安法按需抓人，又有党和政府始终心系人民生命安全的弥天大谎掩护，用病毒检测、注射疫苗狠狠赚上一笔；同时在最后关头拉着14亿百姓一起陪葬——这“一石数鸟”的如意算盘！想想李文亮，被群殴的老兵，放在首位的，始终只有一小撮盗国家族的利益。司马昭之心，不得不防。
+
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/ZuDUhhm23qcwq/)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/ZuDUhhm23qcwq/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/ZuDUhhm23qcwq/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

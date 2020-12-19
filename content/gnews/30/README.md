@@ -1,19 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德社】【精华版粤语快报】12.18：中概股正式面临被美审计 国防部宣布暂停总统过渡
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/666334/)
+## 参议员布莱克本拒绝社会主义
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/666556/)
 
-制作单位：战友之家-粤语组
-
-制作团队：德二组（西林、一帘幽梦、文恩）
+- 编辑：Victor Torres
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-摘要:
+**西班牙20202年12月19日电/西喜社——**
 
-今天川普总统签署外国公司审计法案；外国公司审计法案让中共国的在美上市的公司无处遁形；瑞幸公司就是一个典型的在美国圈钱的完美案例；美对中共60家公司实体进行国际清算银行制裁；代理防长暂停与拜登团队交接工作
+美国参议员玛莎•布莱克本周六发推说:
+“美国不是，也永远不会是社会主义国家。”
+该发言可能针对民主党内拥护社会主义的言论。
 
-[【路德时评】原视频链接](https://youtu.be/Me06Rbf9FyA)
 
-0
+
+> America is not and will never be a socialist country.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [December 19, 2020](https://twitter.com/MarshaBlackburn/status/1340318620895883267?ref_src=twsrc%5Etfw)
+
+
+
+1+

@@ -1,29 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】NROL-44卫星升空，灭共军事行动情报先行
-` XMLYG777` [轉載自GNews](https://gnews.org/zh-hans/666708/)
+## 突发：国家情报总监确认“中共国、伊朗、俄罗斯干预大选”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/666893/)
 
-内军事：鹰(文言) 素材：文朝汗（部落）校对：文迹～见证神迹
+*新闻来源：The Gateway Pundit《门户网站评论员》；作者：Jim Hoft 吉姆·霍夫；发布时间：2020年12月16日*
 
-凤凰网12月19日报道，美国于11日成功发射一枚当今世界上最大的情报侦察卫星NROL-44。
+*翻译/简评：Cathy r；校对：Beicy-数学老师；审核：万人往；Page：拱卒*
 
-NROL-44的天线孔径超100米，运行在距地表3900km的地球同步轨道，可以采集整个北半球的卫星信号。与以往的大型情报侦察卫星相比，NROL-44的灵敏度和侦察精度更高，可以侦测到地面的微弱通信信号，更大的频谱覆盖面积更是将中共的各种卫星通讯频段涵盖其中，不但抗干扰能力大增，更可以实时将获取的信息发送至美国本土，用于解密和情报提取。
+[!\[\]()!\[\](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/1076be0e-7ad2-4652-89da-0adb3a1eca4c.jpg?asset_id=f94bc42a-4d68-4ee1-ab37-dad404fd1e1c&amp;img_etag=%22be30f6745250168128cde19f1a8f8ba4%22&amp;size=1024)](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/1076be0e-7ad2-4652-89da-0adb3a1eca4c.jpg?asset_id=f94bc42a-4d68-4ee1-ab37-dad404fd1e1c&amp;img_etag=%22be30f6745250168128cde19f1a8f8ba4%22&amp;size=1024)
 
-依赖情报卫星的常态化情报搜集，美军可以实时、长时侦测无线电、舰船通信、军事通讯等电磁信号，通过累积分析，可在战时情况下对比识别出加密通信信号，将敌方的通信系统进行定点摧毁。同时，凭借NROL-44侦测到的军用加密指令，美军可针对提及的军事设施和发射场地等进行精确轰炸，利用敌人提供的信息，摧毁敌人的一切有生力量。
+**简评：**
 
-结合郭先生和路德访谈中提及的、北约和美国盟军即将展开的军事行动，第一步就是要摧毁中共的一切通讯手段，瘫痪中共的一切反击力量。此时发射NROL-44卫星，旨在强化对中共情报搜集，尤其是监测中共为应对军事打击所作出的种种军事安排，为美军“太空武器”和盟军的轰炸提供坚实的位置信息。
+美国国家情报总监拉特克利夫不甘对反对势力退让，率先爆出中共国、伊朗和俄罗斯进行了外国大选干预，为给接下来的行动提前进行舆论吹风，给干预选举的黑暗势力施加压力，灭共的扳机已经上弦了。
 
-目前，中共仍在负隅顽抗，一方面对内加强洗脑宣传，号召征兵献身，鼓吹民族主义；另一方面却在国际上“服软”，借沟通之名换取残喘时限。但归根结底，中共的恶意投放病毒已经犯下反人类的罪行，全世界灭共形势也已不可回转。中共的军队一向“假、大、空”，正义盟军的雷霆行动，将可彻底铲除中共威胁，全世界才能从病毒阴影中得以喘息。
+**原文翻译：**
 
-而只有彻底灭共，将共产主义从地球上根除，人类才能真正的战胜邪恶，回归信仰。
+# 爆炸新闻：凯瑟琳·赫里奇（Catherine Herridge）报告国家情报总监（DNI）约翰·拉特克利夫（John Ratcliffe）确认“ 在11月，中共国、伊朗和俄罗斯进行了外国大选干预。”
 
-文章仅代本表本人个人观点。
+![]()![](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/083dd5e8-c8b2-430d-9817-695188d89292.jpg?asset_id=39e0f744-0a04-4787-81de-13a54d1a241c&amp;img_etag=%22c33315ed7237f0ec930f618b0fee9608%22&amp;size=2560)
 
-新闻来源：
-美又射巨型卫星，发射费用超中国一年
-[https://mil.ifeng.com/c/82K6CQtd68z](https://mil.ifeng.com/c/82K6CQtd68z)
+**哥伦比亚广播公司 （CBS）记者凯瑟琳·赫里奇（Catherine Herridge）周三报道说，国家情报总监约翰·拉特克利夫（DNI John Ratcliffe）对哥伦比亚广播公司说：“今年11月的外国大选干预有中共国、伊朗和俄罗斯(参与)。”**
 
-[美又射巨型卫星，发射费用超中国一年](http://美又射巨型卫星，发射费用超中国一年)
+哥伦比亚广播公司记者：拉特克利夫对选举欺诈和干预有何评论？
 
-0
+*凯瑟·赫里奇：国家情报总监拉特克利夫领导着17个情报机构，他可以接触到美国政府拥有的最高机密的信息。他告诉哥伦比亚广播公司新闻部，今年11月美国(大选)受到了中共国、伊朗和俄罗斯的外国干预，他预计将在一月份就这些发现进行公开报道。*
+
+[!\[\]()!\[\](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/0aec87d0-7bfb-4d8d-8c26-619a94cbd93f.jpg?asset_id=dc7e7c0b-d493-46ee-a65b-c3a8e2e81d4e&amp;img_etag=%225faf9306aad79973befcce19a6ba6ad8%22&amp;size=2669)](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/0aec87d0-7bfb-4d8d-8c26-619a94cbd93f.jpg?asset_id=dc7e7c0b-d493-46ee-a65b-c3a8e2e81d4e&amp;img_etag=%225faf9306aad79973befcce19a6ba6ad8%22&amp;size=1024)(推文翻译)突发 哥伦比亚广播公司新闻高级记者赫里奇报道，约翰·拉特克利夫 “告诉哥伦比亚广播公司新闻，今年[2020年]11月有中共国、伊朗和俄罗斯外国干涉选举”。 更多的内容还在后面。
+
+**记录在案，国家情报总监拉特克利夫上周末与川普总统一起参加了陆军—-海军比赛！**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/66d5b8e2-d75a-4a80-a71a-8d5ec47f2663.jpg?asset_id=839fd416-2392-4347-88ca-7193a86f7787&amp;img_etag=%22d0fb76b86ead59aecc098fabdd059769%22&amp;size=3049)](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/66d5b8e2-d75a-4a80-a71a-8d5ec47f2663.jpg?asset_id=839fd416-2392-4347-88ca-7193a86f7787&amp;img_etag=%22d0fb76b86ead59aecc098fabdd059769%22&amp;size=1024)(推文翻译)不做头条。国家情报局局长拉特克利夫与川普总统一起出席陆海军橄榄球赛, 不只是巧合？周六没有被注意到的是，国家情报局局长（DNI）约翰·拉特克利夫今天和川普总统一起参加了陆军-海军的足球赛。前代表、现任国家情报局局长约翰·拉特克利夫今天在推特上表示，他和总统一起参加了陆军-海军的橄榄球比赛。与川普总统同行……
+
+
+[原文链接](https://www.thegatewaypundit.com/2020/12/breaking-catherine-herridge-reports-dni-john-ratcliffe-confirmed-foreign-election-interference-china-iran-russia-november-video/)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/Rk7BD9nYbeUe2/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/Rk7BD9nYbeUe2/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
+1+
