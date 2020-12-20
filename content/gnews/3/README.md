@@ -1,53 +1,111 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 泄露的文件显示了中共政权下指令窃取外国技术
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/670217/)
+## 加拿大银行业行为与合规（二）
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/668316/)
 
-作者：ALEX WU，于2020年12月18日， 大纪元
-翻译： 康州盘古农场 – 烟波浩淼
-校对：康州盘古农场 –Freeearth
-审核：康州盘古农场 –V
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16220630/%E5%8A%A0%E8%A1%8C%E4%B8%9A1.png)Picture Source: www.groomassocies.com
+在本文中更多的是介绍关于最新用户的账户收集，以及后续的信息更新方面的规定。有助于读者进一步了解加拿大零售银行的基本工作流程，并维护自己的合法利益不受侵犯.
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20133707/china-spy-cloud-hopper-global-hacking-campaign-700x420-1.jpg)2013年2月28日，一名男子在波兰华沙的电脑键盘上打字。澳大利亚，新西兰，加拿大和英国对代表中国国家安全部（MSS）采取行动的一个组织表示严重关切；截至2018年12月21日，该组织正在通过恶意全球黑客活动（俗称Cloud Hopper）窃取商业知识产权。凯珀·潘佩尔（Kacper Pempel /路透社）
+1. 注册人员重大材料改变Material Change的报告和合规责任
 
-《大纪元》最近获得的一系列泄露的政府文件显示，中共当局资助了一些项目，这些项目旨在通过与国际研究机构的合作来获得外国先进技术。公开记录显示，中国科技部是这個項目的幕后推手
 
-**“转让 “外国技术的预算**
+立刻通知RCO，且RCO会立即转向Security Regulator
 
-河北省国际人才交流协会（又称国际技术转移中心）于1988年成立于河北省。该组织拥有200余项国际技术项目，外国专家300余人，涵盖了人工智能（AI）、信息通信、生物学、医疗和健康等十余个领域。
+- 终止/注册Termination/Registration
 
-11月17日，该组织发布了一份报告《河北省预算项目绩效评估表》，其中明确指出该组织的目标是 “引进国外先进技术……实现（向中国）的技术转让”。
 
-为了实现这一目标，文件指出该组织将扩大到至少50个国际组织的合作渠道，至少开展四项国际科学技术合作活动，至少维持50个国外技术项目；至少获得五份合作意向协议，定向招聘60至80名外国技术专家。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20134321/22Hebei-Provincial-Budget-Project-Performance-Evaluation-Form22-1200x752-1.jpg)在《河北省预算项目绩效评价表》的报告中，列出了“轉讓”外國技术 的预算和目标，并盖有河北省国际人才交流协会的公章。(大纪元记者提供)
-这份报告列出了该协会一个100万元人民币（约15.3万美元）的预算，用于这个协会从海外招聘人才，并资助他们将要在河北省设立的项目。该协会还预计，通过向河北省的中国企业“转让”外国先进技术，可以实现1000万元人民币（约153万美元）的利润。
+离开分行/省份转换 一律视为终止，并在新省份重新注册
 
-在另一份同期发布的名为 《河北国际科技合作基地建设专项补助资金使用计划 》的报告中提到了转让国外技术的目的。报告称，这些国外技术将提升河北的技术水平，改善产品，增强国际竞争力。
+- 同一省份内，分行转换
 
-驻美国的中国事务评论员李临沂对《大纪元时报》说，这一举措是一个有利可图的计划，也是一个公然窃取其他国家先进技术和知识产权讓，以使中共政权受益的计划。
 
-根据公开记录，河北省国际人才交流协会是在国有的中国国际人才交流协会（CAIEP）下运作。中国国际人才交流协会由国家外国专家事务局直接管理。该局是中共政权的科技部下属机构。
+- 姓名，个人情况，地址
 
-**要求高等教育机构“转让”外国技术 **
 
-河北省教育部门还通过2019年发布的“河北工业大学国际技术转讓中心的2020年工作计划”设定了获取国外技术的要求和目标。《大纪元》获得了该文件的副本。
+- 犯罪控告
 
-其中的一些说明包括建立一个国际技术转移中心网站；在国际技术转让工作中 “大力引进”国际高新技术人才、高层次管理团队和先进技术资源；“全方位”加强国际合作和技术转让；“完善各项工作制度。”以河北工程大学为例，该校今年11月21日发布的《河北国际联合中心基地站》报告中概述，该校与国际学校建立了合作关系，以开发高端科技项目。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20134359/Hebei-tech-base-info.jpg)河北工程大学河北国际联合中心基地的网站，列出了该基地从国外获取技术的目标以及与国外大学合作所获得的技术优势。（河北国际联合中心基地网站截图）
-在文件中的 “合作单位和研究小组”一节中，该大学与法国勒芒大学和巴黎萨克雷大学、英国伦敦大学学院和新加坡南洋理工大学结成了伙伴关系。
 
-文件指出，伦敦大学学院是世界顶尖的理工科大学，位列世界大学前十名；勒芒大学教授P.皮卡特（P.Picart）是数字全息显示的权威专家。
+2. Joint Account所有持有人，且KYC所有人一起更新
 
-今年10月，在中共五中全会上，中共的领导人习近平在中共第五次全体会议上讲话中强调“自主科技”，“加强基础研究，注重原創创新”。
+时间预期 /风险承受力 /投资目标=应保持一直. 否则禁止开户
 
-分析人士观察到，习近平的讲话是对国际社会对中共窃取西方国家，特别是美国的知识产权和技术的日益增長多的批评的回应。
+3. Know Your Client 收集范围（第一步）
 
-12月9日，美国国务卿迈克·蓬佩奥（Mike Pompeo）在佐治亚理工学院发表了演讲，他在讲话中直指中共窃取其他国家的知识产权和技术。 他说：“中国内部许多高端工业基地都是基于被盗技术或从其他国家购买的技术。 它不是自己研发的。
+- 有交易权限的人/Trading Authority（Mandatory强制性）
 
-Gu Qing’er对此报告做出了贡献
-原文作者：吴亚
-发布时间：2020年12月18日
-原文链接：[Leaked Documents Reveal Chinese Regime’s Orders to Steal Foreign Technologies (theepochtimes.com)](https://www.theepochtimes.com/leaked-documents-reveal-chinese-regimes-orders-to-steal-foreign-technologies_3619005.html)
+
+- 受益人 /Financial Interest / Beneficiary
+
+
+- 首次购买之前强制执行，无论顾问是否推荐都要提供
+
+
+- 信息检查要求，每十二个月（一年）/魁北克12-24个月
+
+
+- 账户关闭时，需要客户的纸质签名文件保留七年/魁北克五年，
+
+
+以防止纠纷和维护法律主张，
+
+- 材料改变/Material Change，即更新
+
+
+**Know Your Client 细节要求**
+
+Portfolio Value
+
+- 应包含全部不同金融机构下的资产 All Other Financial Institution，而并不仅是交易商所在金融机构的资产
+
+
+Investment Knowledge
+
+- 投资知识和交易记录/经验必须是一致的Consistency
+- 若不一致的情况出现，
+
+
+A：与客户协商中修改订单申请，并且递交给分支合规官BCO。
+
+Correct Order Form and Resubmit目的是如实反映客观真实的情况
+
+B：若无法解决差异，则应该直接拒绝或转交至区域合规官RCO
+
+4. Fund Fact Document 递送时间
+
+- Before或At The Time Accepted Purchase
+
+
+- 并且会触发Right of Withdraw的时间起点
+
+
+5. Power Of Attorney 指定代理交易
+
+- 需要书面授权，Officer/Director可接受代理授权
+
+
+- 禁止授予交易代表，若被任命则被禁止DiscretionaryTrade
+
+
+- 为一例外=是被直系亲属任命的代理授权交易
+
+
+但需另一个销售代表进行交易，
+
+Another representative enters trade transaction
+
+- 企业交易 = Corporation Trading Resolution 在Corporation获取
+
+
+并会授权一位有具体头衔的Authorized Person 代表行事
+
+- 合伙人交易 =Certificated Partnership Resolution
+
+
+作者：搞笑排行榜
+
+原创观点文章 – 2020/12/20
+
+温哥华圆成农场
 
 0
