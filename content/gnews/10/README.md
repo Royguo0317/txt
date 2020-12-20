@@ -1,53 +1,261 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## War Room 597 总结
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/669705/)
+## 美国商务部实体名单新增中共国60个实体名录
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/669756/)
 
-- 编辑：Ranting
-- 作者：Jenny Ball
+撰稿： 夏大铭 编辑：文远Bruce
 
+美国商务部工业与安全局当前未正式发布的《实体清单的增加，修订与移除》文件，修订了总计78家实体中的77个。这些实体已被美国政府认定有违反美国国家安全或外交政策利益的行为，涉及包括中国及中国香港在内的十个国家，其中中共国59个实体，香港1个实体。
 
-总统行政令要求大选后45天，情报局长要出外国势力干预选举的调查报告。川普总统今天没有拿到这个报告，但他得到了通报。
+这些实体分类列表如下：
 
-**伦敦政策研究中心网络安全总裁托尼·谢弗（Tony Shaffer****）上校**，是一名真正的爱国者，他深度参与对911恐怖事件的调查，是五角大楼的网络战士。
+**中芯国际系（****10****个）**
 
-**谢弗上校**：克拉布说这次选举是美国历史上最安全的选举，这绝对是错的，对中共说法也是错的。对核心太阳风的理解将能够证明他是错误的。
+Semiconductor Manufacturing International (Beijing) Corporation
 
-太阳风实际上是其他IT公司，政府部门，非政府组织部门用来管理数据库的中间件。因此，请考虑一下，太阳风所接触的一切都受到了损害。我们现了解到，太阳风实际上在管理着政府和多个公司。
+中芯国际集成电路制造（北京）有限公司
 
-此时我们必须分析和弄明白它影响的范围。我们知道该操作至少已经进行了9个月，甚至更长的时间，而且还有隐患，让我给非IT专业的听众解释一下：
+Semiconductor Manufacturing International (Tianjin) Corporation
 
-当您在计算机上下载软件时，通常由Microsoft进行认证，如果您有防病毒功能，则它是数字认证的。现在是，黑客通过嵌入恶意软件，破坏了太阳风的整个结构。这也称为舒适熊软件，理论上与俄罗斯人使用的软件相同，还进行其他骇客。
+中芯国际集成电路制造（天津）有限公司
 
-由于用户对这个技术完全不知晓，因此很明显，使用它的人很精明，他们知道锁定目标，就可以访问多个其他公司，而且这些其他公司的整个公基础架构都对太阳风开放。这是邪恶的，而且范围很大。我们仍在尝试找出答案。
+Semiconductor Manufacturing International (Shenzhen) Corporation
 
-至于他们将从今天开始，处于对国家安全的考虑，五角大楼的情况通报不与拜登分享，会向川普总统施加压力，谢弗上校说，目前拜登团队对此还无能为力。在我们弄清楚发生的一切之前，给他们任何访问权限都没有任何好处。我要非常清楚地强调影响的范围，我们在说的是美国国立卫生研究院，是商务部，交通运输部，国土安全部和国务院。
+中芯国际集成电路制造（天津）有限公司
 
-这些都是现任政府必须处理的主要事情。在这一点上，拜登的人甚至想都别想参与。他们也不应该这样要参与。毫不怀疑他们会借机攻击川普总统，但我认为他们参与其中是不安全的。你不想让客人进厨房，他们不需要在那里。
+SMIC Semiconductor Manufacturing (Shanghai) Co., Ltd.
 
-**班农先生**：说到反叛乱，我们无需召集军队，因为威斯康星州，佐治亚州和亚利桑那州这三个州的立法机关掌握着国家的命运。我们可以毫无疑问地证明这次选举被盗，存在欺诈性，非合法性，无证明的投票，无监护链的邮寄选票，这些都已计算在内。 这是不应该的，这意味着必须取消认证。这些都是共和党州长，共和党的立法机构，不是民主党。
+中芯国际集成电路制造（上海）有限公司
 
-**约翰·弗雷德里克**（John Fredericks）：秀笑脸这样的选票日子已经过去了。乔治亚州见识了州政府的欺骗和腐败程度。
+SMIC Holdings Limited
 
-这基本上不是什么秘密，上我节目的议员们说，众议院议长戴维·拉尔斯顿（David Ralston）对总统撒谎，他说他将支持特别会议的请愿书，这本来可以结束所有这一切危机的行动。但是相反，他在强力威胁代表，威胁他们说，如果他们签名召开特别会议的请愿书，他将剥夺他们的委员会席位，并把他们的席位剔除。
+中芯国际控股有限公司
 
-人们想要看到他们采取行动，他们正在寻找领导者。我已经说了一遍又一遍，在乔治亚州正在发酵的运动，我认为，人们正在超越其目前的共和党领导人。这就是为什么这两个参议院席位很危险。对州长的认同率已经降至11％。
+Semiconductor Manufacturing South China Corporation
 
-**朱利安尼市长**，常识节目主持人：我认为，乔治亚州没有他们这些人，我们才可以取得成功。现在要采取完全不同的策略，即我们主要关注从这些投票机得到的证据，这些投票机就是为委内瑞拉操纵选举而设计的，这可能会在一两天内完成。我认为，尽管共和党州长极力抵抗和掩盖，我们还是可以实现这些目标。我们不用考虑他们，这个周末会看到这个不同策略的效果。
+中芯南方集成电路制造有限公司
 
-我们还需要让乔治亚州州长知道，他是公平选举的叛徒。
+SMIC Northern Integrated Circuit Manufacturing(Beijing) Co., Ltd.
 
-左派说有50个起诉被法院驳回，这是谎言，总共就起诉了一宗。法官一分钟都没有听取证据，那么，如何在不听取证据的情况下裁定案件呢？
+中芯北方集成电路制造（北京）有限公司
 
-唯一能够提供证据的地方是州议会，这是唯一支持推翻这次选举的地方。
+SMIC Hong Kong International Company Limited
 
-白宫就像个迷宫，总统有我的建议，还有其他人的建议，想法各异。但是，我要说的是，总统是否会提名特别检察官调查选举欺诈，我相信这会发生。
+中芯国际香港（国际）有限公司
 
-**班农先生**：作战室的大量观众是民主党人，我们的观点有所不同，但在重要的事情上，我想我们在很多方面都有共识。因此，我现在想说，让我们共同战斗。
+SJ Semiconductor
 
-**川普总统就像是一个工具，他自己也知道， 他是对抗那些精英们的工具，他们仍在企图使美国永久衰落下去**。
+中芯长电半导体有限公司
 
+Ningbo Semiconductor International Corporation (NSI)
 
+中芯集成电路（宁波）有限公司
 
+**海事船舶系（****30****个）**
+
+Chongqing Chuandong Shipbuilding Industry Co Ltd.
+
+重庆川东船舶重工有限责任公司
+
+CSSC Huangpu Wenchong Shipbuilding Co., Ltd.
+
+中船黄埔文冲船舶有限公司
+
+Guangxin Shipbuilding and Heavy Industry Co., Ltd.
+
+广新海事重工股份有限公司
+
+Guangzhou Taicheng Shipbuilding Industry Co., Ltd.
+
+广州市泰诚船舶工业有限公司
+
+China State Shipbuilding Corporation, Ltd.
+
+中国船舶工业集团公司
+
+(CSSC) 7th Research Academy,
+
+中国船舶工业集团公司第七研究院
+
+CSSC 12th Research Institute,
+
+中国船舶重工集团有限公司第十二研究所
+
+CSSC 701st Research Institute,
+
+中国船舶重工股份有限公司701研究所
+
+CSSC 702nd Research Institute,
+
+中国船舶重工股份有限公司702研究所
+
+CSSC 703rd Research Institute,
+
+中国船舶重工股份有限公司703研究所
+
+CSSC 704th Research Institute,
+
+中国船舶重工股份有限公司704研究所
+
+CSSC 705th Research Institute,
+
+中国船舶重工股份有限公司705研究所
+
+CSSC 707th Research Institute,
+
+中国船舶重工股份有限公司707研究所
+
+CSSC 709th Research Institute,
+
+中国船舶重工股份有限公司707研究所
+
+CSSC 710th Research Institute,
+
+中国船舶重工股份有限公司710研究所
+
+CSSC 711th Research Institute,
+
+中国船舶重工股份有限公司711研究所
+
+CSSC 712th Research Institute,
+
+中国船舶重工股份有限公司712研究所
+
+CSSC 713th Research Institute,
+
+中国船舶重工股份有限公司713研究所
+
+CSSC 714th Research Institute,
+
+中国船舶重工股份有限公司714研究所
+
+CSSC 715th Research Institute,
+
+中国船舶重工股份有限公司715研究所
+
+CSSC 716th ResearchInstitute,
+
+中国船舶重工股份有限公司716研究所
+
+CSSC 717th Research Institute,
+
+中国船舶重工股份有限公司717研究所
+
+CSSC 718th Research Institute,
+
+中国船舶重工股份有限公司718研究所
+
+CSSC 719th Research Institute,
+
+中国船舶重工股份有限公司719研究所
+
+CSSC 723rd Research Institute,
+
+中国船舶重工股份有限公司723研究所
+
+CSSC 724th Research Institute,
+
+中国船舶重工股份有限公司724研究所
+
+CSSC 725th Research Institute,
+
+中国船舶重工股份有限公司725研究所
+
+CSSC 726th Research Institute,
+
+中国船舶重工股份有限公司726研究所
+
+CSSC 750th Test Center,
+
+中国船舶重工集团公司750试验中心
+
+CSSC 760th Research Institute
+
+中国船舶重工集团公司第760研究所
+
+**院校系**** ****（****5****个）**
+
+Beijing Institute of Technology
+
+北京理工大学
+
+Nanjing University of Science and Technology
+
+南京理工大学
+
+Nanjing University of Aeronautics and Astronautics
+
+南京航空航天大学
+
+Tianjin University
+
+天津大学
+
+Beijing University of Posts and Telecommunications
+
+北京邮电大学
+
+**个人（****5****个）**
+
+Chong Zhou   周冲
+
+Huisui Zhang  张惠穗
+
+Jinping Chen  陈金平
+
+Wei Pang   庞伟
+
+Zhao Gang  赵刚
+
+**其他单位（****10****个）**
+
+AGCU Scientech
+
+无锡中德美联生物技术有限公司
+
+China National Scientific Instruments and Materials (CNSIM)
+
+中国科学器材有限公司
+
+DJI
+
+深圳市大疆创新科技有限公司
+
+Kuang-Chi Group
+
+深圳光启集团
+
+China Communications Construction Company Ltd,
+
+中国交通建设股份有限公司
+
+Nanjing Asset Management Co., Ltd.
+
+南京资产管理有限公司
+
+Jiangsu Hengxiang Science and Education Equipment Co., Ltd.
+
+江苏恒翔智产信息技术股份有限公司
+
+Tongfang Technology Ltd. (NucTech)
+
+同方威视技术股份有限公司
+
+ROFS Microsystems
+
+诺思(天津)微系统有限责任公司
+
+Tianjin Micro Nano Manufacturing
+
+天津市微纳制造技术工程中心
+
+附：美国商务部《实体清单的增加，修订与移除》文件链接
+
+[https://public-inspection.federalregister.gov/2020-28031.pdf](https://public-inspection.federalregister.gov/2020-28031.pdf)
+
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+
+[【澳喜文章】](https://gnews.org/zh-hans/author/aujenny/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040800/IMG_1836-1.jpg)
 0

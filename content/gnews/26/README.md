@@ -1,40 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 即将发布的Dominion调查讯息将对选举结果产生影响
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/669397/)
+## 12/19/2020 财经快讯：美国商务部将中芯国际等60多家企业列入实体清单
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/669498/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20081137/1-187.png)[图面来源](https://federalinquirer.com/dominion-took-over-georgia-voting-machines-remotely-during-2020-election/)
-据《华盛顿观察家报》（Washington Examiner）丹尼尔·柴廷（Daniel Chaitin）的报导，联合安全行动小组（Allied Security Operations Group）的联合创始人罗素·拉姆斯兰德（Russell Ramsland Jr）告诉Newsmax新闻格雷格·凯利（Greg Kelly）说他认为未来几天会出现一些关于Dominion调查的信息，这将大大改变大选状态。拉姆斯兰德还说，仅管有大量证据表明选举违规，法院却继续选择置若罔闻。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20085610/capture-122.jpg)图片来源： https://www.breitbart.com/
+1.[美国商务部周五宣布，在出口黑名单中又增加了60多家中共国实体企业，其中包括最大的计算机芯片生产商中芯国际。此举源于中共军民融合项目，美方获取了中芯国际与中共国军工企业之间活动的证据](https://www.breitbart.com/asia/2020/12/18/us-blacklists-smic-chinas-top-chip-maker-plus-60-other-entities/)。
 
-**Dominion****的错误率高达****68.05****％**
+2. [川普签署法案可能将中共国公司赶出美国证券交易所。白宫表示，川普总统周五正式签署《外国公司问责法案》，如果中共国企业不遵守美国的审计标准，它们将必须退出美国证券交易所](https://www.reuters.com/article/us-usa-china-stocks/trump-signs-bill-that-could-kick-chinese-firms-off-u-s-stock-exchanges-idUSKBN28S2ZJ?il=0&amp;utm_medium=Social&amp;utm_source=Twitter)。
 
-联合安全运营小组本周发表的报告表示，对位于密歇根州（Michigan）北部安特里姆郡（Antrim County）的Dominion设备的检查显示其错误率高达68.05％，这个错误率远远超过了由联邦选举委员会所规定的可接受的水准0.0008％。并且这个设备在安全性和选举完整性方面显示出严重的致命错误。拉姆斯兰德在报告中的数据证据，在经过Dominion的内部程式计算后，可以发现大量的错误消息以及投票结果被互换的事项。
+3. [推特财经真相发文：无论是微博、微信这些墙内大V，还是墙外油管、推特财经自媒体，对于本次中国内地限电基本上全都是在扯淡与乱分析，国内各大财经媒体新闻所谓的专业分析师，他们不是不懂真正的根源，而是不敢说，全都在拿什么环保、气温低等表象进行忽悠！煤电两者债务矛盾，已经大到党国无法调和了！](https://twitter.com/caijingxiang/status/1339802979046629376?s=24)
 
-**Dominion****否认报告**
+4. [12月16日， 复星医药与德国BioNTech公司联合宣布，双方已就mRNA新冠核酸疫苗BNT162b2的供应和生产事项达成协议，一旦该疫苗获得中共国的上市批准，双方预计将于2021年可向中国大陆供应至少1亿剂BNT162新冠疫苗](https://finance.sina.cn/bank/yhgd/2020-12-17/detail-iiznezxs7465925.d.html?cref=cj)。
+评：该BioNTech疫苗有效率95%，中共国国产疫苗有效率86%，单价都是200元，高低立现！
 
-在法官允许发布报告的第二天，Dominion首席执行官约翰·普洛斯(John Poulos)在密歇根州参议院监督委员会的誓言下自愿作证，以回应对选举舞弊的指控。他谴责了拉姆斯兰德对Dominion机器的描述，说联合安全运营小组是一个有偏见的，非独立的组织，并且该报告绝对是虚假的，在技术上难以理解。
-
-
-```
-对Dominion投票设备的调查结果是影响大选结果的关键
-```
+5. [12月17日，四部委发布公告，集成电路生产企业最高免十年所得税。 国家鼓励的重点集成电路设计企业和软件企业，自获利年度起，第一年至第五年免征企业所得税，接续年度减按10%的税率征收企业所得税](http://www.xinhuanet.com/fortune/2020-12/18/c_1126876432.htm)。
+评：“大炼钢铁”又来了。
 
 
-本周四进行的审计确认了川普在安特里姆郡的胜利，在15962票中，总统领先了12票。由于拜登以大约150,000票赢得了密歇根州和其16个选举团的选票，川普微弱的优势没有改变竞选结果，但川普及其盟友指出，检查Dominion机才是关键。亚利桑那州（Arizona）马里科帕郡（Macicopa county）也是如此，该郡监事会周五投票表决，拒绝高级州参议员为该郡机器审计的调查传唤。
 
-**川普团队坚定挑战大选舞弊**
+【Financial Team】
 
-领导川普法律工作的鲁迪·朱利安尼（Rudy Giuliani）告诉保守派电台节目主持人格伦·贝克（Glenn Beck），说还有很多事情要调查。该团队的计划是将亚利桑那州马里科帕郡和密西根州安特里姆郡的Dominion设备进行比较。代表安特里姆郡居民提起诉讼的马修·德佩尔诺（Matthew DePerno）呼吁川普应该对安特里姆郡Dominion设备审核的结果采取行动。
-
-德佩尔诺周一对Newsmax新闻的凯莉（Kelly）表示，“事情还没有结束”，他还指出了报告中针对2018年有关外国干预的行政命令的一部分，该命令允许大选后45天国家情报局长评估表明外国政府的信息或担任外国政府代理人的人干预选举，并且向总统和某些内阁成员提交调查报告。
-
-[原文链接](https://www.washingtonexaminer.com/news/cybersecurity-analyst-antrim-county-audit-election-disclosure)
-
-翻译报道：william
-
-**译评:**
-
-随着美国代理司法部长杰夫·罗森(Jeff Rosen)上任，调查的行动将会展开。操控舞弊的证据早已掌握，就等着一个行动接着一个行动的进行。不管是拜登家族、沼泽大鳄、政府官员以及科技巨头，都将一个一个接受调查。全世界现在最大的利益就是灭掉 CCP，川普一定会在1月20日宣誓就任总统，重建自由民主法治的美国，世界也将回到民主法治的运行。
-
-1+
+0

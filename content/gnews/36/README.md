@@ -1,121 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《God Bless the U.S.A. 天佑美国!》歌词翻译
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/669169/)
+## 中共利用网军：“塑造中共病毒故事”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/669368/)
 
-翻译者：Lucky Star Maggie
+- 编辑：Victor Torres
 
 
-视频出处：[Home Free – God Bless the U.S.A. (featuring Lee Greenwood and The United States Air Force Band)](https://www.youtube.com/watch?v=SrMftm6Km3g&amp;feature=youtu.be)
-**歌词翻译：**
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-If tomorrow all the things were gone
-如果明天我将丧失我所有的一切
+**西班牙2020年12月20日电/西喜社——**
 
-I’d work for all my life
-我将再次拼搏
+据报道，有关一名中国医生感染中共病毒死亡的消息警告了公众关于该病毒的信息，这引发了大规模的宣传和审查工作，以帮助中国政府重新控制国内迅速增长的有关危机的叙述。
+ProPublica和《纽约时报》在周六联合发表的文章中概述了泄漏的文件，概述了对2月7日李文亮医生死亡和其他事件的回应。
+报告说，中国政府努力的两个主要目标似乎是使病毒影响看起来不那么严重，并使政府官员在对疫情方面的控制力显得比实际要高。
+美联社4月报道，中国官员可能还担心引发恐慌。 它指出，中国领导人在一月份的六天时间里没有采取行动-从他们得知自己正面临大流行的那一天到通知公众的那一天-尽管在此期间有数百名受感染的人出现在医院。
+ProPublica和《纽约时报》援引加州大学伯克利分校的一位教授的话说，中国的宣传和审查工作是世界上任何其他国家都无法比拟的。
+加州大学伯克利分校信息学院的研究员肖强对媒体说：“这是一件大事。” “没有其他国家能做到这一点。”
+该报告称，中共国家主席习近平于2014年启动了名为中国网络空间管理局（CAC）的行动。
+中国的审查员担心有关李文亮之死的消息会引起随后有关该病毒新闻报道的“蝴蝶效应”，这可能会对政府造成破坏，因此他们下令新闻媒体不要宣传有关李文亮的故事，并指示社交媒体网站将他的名字从热门话题列表删除，报告称。
+随着中共病毒逐渐成为一个更大的新闻事件，审查员还雇用了网军在互联网上发布分散注意力的信息，以帮助影响公众舆论。
+报告还说，中国政府还命令安全部门迫使那些与政府观点不一致的评论者噤声。
+报告说，泄露的文件表明，大量部署的人力，技术和金钱，可以控制叙述。
+该信息来自于3,200多个指令和1,800条备忘录以及CAC的其他文件，以及中国公司Urun Big Data Services的计算机代码，Urun Big Data Services是地方政府的服务提供商。
+ProPublica和《泰晤士报》将黑客组织CCP Unmasked确定为文件来源-–媒体声称他们已验证了许多材料的真实性。
+这些文件包括在标题中应避免使用哪些词的说明，例如“无法治愈的”和“致命的”，以及在旅行文章中避免使用“封锁”一词。
+该报告似乎与川普总统和许多共和党人对中共在中共病毒的全球传播中涉嫌犯罪的关切有关。截至周日早间，根据约翰·霍普金斯大学的数据，中共病毒已感染了全球超过7600万人，并杀死了160万人，其中包括超过316,000个美国人。
+川普和共和党其他人指责中共政府低估了病毒爆发的严重性，许多起源可追溯到中国武汉，并指责世界卫生组织不要求中共官员提供更准确的数据。
+美国总统和其他人声称，来自中共的虚假信息对其他国家有能力为该病毒在其境内的传播做好准备产生了不利影响。
 
-And I had to start again With just my children and my wife
-不得不和我的妻儿一道重新开始
+新闻来源：[https://www.foxnews.com/world/china-used-internet-troll-army-to-shape-coronavirus-narrative-report](https://www.foxnews.com/world/china-used-internet-troll-army-to-shape-coronavirus-narrative-report)
 
-I’d thank my lucky stars To be living here today
-我会感激我的幸运星今天仍飘扬在这里
-
-‘Cause the flag still stands for freedom
-因为我们的国旗依旧代表着自由
-
-And they can’t take that away
-他们不能夺走我们的自由
-
-And I’m proud to be an American
-我为我是一个美国人而骄傲
-
-Where at least I know I’m free
-在这里至少我知道我是自由的
-
-And I won’t forget the men who died Who gave that right to me
-我不会忘记那些为我们争取自由而牺牲的人们
-
-And I gladly stand up next to you
-今天我愿意站起来和你肩并肩
-
-And defend her still today
-再次为保卫我们自由的国家而战斗
-
-‘Cause there ain’t no doubt I love this land
-毫无疑问因为我深深地爱着这片土地
-
-God Bless the U.S.A.
-天佑美国
-
-From the lakes of Minnesota
-从明苏尼达州的湖泊
-
-To the hills of Tennessee
-到田纳西州的小山
-
-Across the plains of Texas
-横越德克萨斯州的平原
-
-From sea to shining sea
-从大西洋到闪耀的太平洋（源自“美丽美国”的诗）
-
-From Detroit down to Houston
-从底特律到休斯顿
-
-And New York to L.A.
-纽约到洛杉矶 （意指美国全境）
-
-Where there’s pride in every American heart
-所到之处每个美国人的心中都充满自豪
-
-And it’s time we stand and say that
-在这个时刻，我们站起来宣告，
-
-I’m proud to be an American
-我为我是一个美国人而骄傲
-
-Where at least I know I’m free
-在这片土地上至少我知道我是自由的
-
-And I won’t forget the men who died Who gave that right to me
-我不会忘记那些为争取我们的自由牺牲的人们
-
-And I gladly stand up next to you
-我愿意站起来和你肩并肩
-
-And defend her still today
-再次为保卫我们自由的国度而战斗
-
-‘Cause there ain’t no doubt I love this land
-毫无疑问因为我深深地爱着这片土地
-
-God Bless the U.S.A.
-天佑美国
-
-God Bless this country
-天佑这个国家
-
-And I’m proud to be an American
-我为我是一个美国人而骄傲
-
-Where at least I know I’m free
-在这里至少我知道我是自由的
-
-And I won’t forget the men who died Who gave that right to me
-我不会忘记那些为争取我们的自由牺牲的人们
-
-And I gladly stand up next to you
-我愿意站起来和你肩并肩
-
-And defend her still today
-再次为保卫我们自由的国家而战斗
-
-‘Cause there ain’t no doubt I love this land
-毫无疑问因为我深深地爱着这片土地
-
-God Bless the U.S.A.
-天佑美国
-
-0
+1+

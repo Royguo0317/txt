@@ -1,26 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共自以为两肋插刀的兄弟 关键时刻再插中共两刀
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/669482/)
+## 亨特·拜登代表家族向中共索取1000万美元
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/669918/)
 
-*作者：大明；编辑：宁缺；审核：海阔天空；Page：小雨*
+*新闻来源：The Federalist《联邦人》； 作者：Tristan Justice； 发布时间：2020年12月16日*
 
-# **中共自以为两肋插刀的兄弟 关键时刻再插中共两刀**
+*翻译/简评：MikeHua；校对：InAHurry；审核：万人往；Page：拱卒*
 
-根据搜狐网新闻资料显示，俄罗斯每年供应中国约三十亿度电。按每一千克煤发电2.3度计算，发出30亿度电大约需要烧13.05亿吨煤。在中共报复澳大利亚要求彻查中共病毒来源的背景下，断然停止进口澳大利亚的优质煤炭。向来被认为是中共最仰赖的好兄弟、好伙伴，当年苏联老大哥的继承者俄罗斯为何此时传出消息，要停止对华供电？
+[!\[\]()!\[\](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/5c8aca9a-fb89-4a54-9df6-d691d5f1548f.jpg?asset_id=d21d381e-2d0a-41c3-9b13-6446115e7797&amp;img_etag=%224d11f66cbadb89338f8f3416f20a7ea9%22&amp;size=2560)](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/5c8aca9a-fb89-4a54-9df6-d691d5f1548f.jpg?asset_id=d21d381e-2d0a-41c3-9b13-6446115e7797&amp;img_etag=%224d11f66cbadb89338f8f3416f20a7ea9%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yGRPylcXT1n8F/images/90b4d028-5697-4452-8fa3-5a048fd1ed70.jpg?asset_id=f7925726-674c-42b9-8085-046b1fb5f468&amp;img_etag=%229258376b56b2dac498052aad0be3406b%22&amp;size=2560)](https://spark.adobe.com/page/yGRPylcXT1n8F/images/90b4d028-5697-4452-8fa3-5a048fd1ed70.jpg?asset_id=f7925726-674c-42b9-8085-046b1fb5f468&amp;img_etag=%229258376b56b2dac498052aad0be3406b%22&amp;size=1024)
+**简评：**
 
-难道是中共外汇枯竭，俄罗斯怕被拖欠购电费用？中共过去即使外汇再紧张也不敢拖欠俄爹的钱。之前普京卖给中共价格高得离谱的石油，而且提前收款的案例就可以说明，俄罗斯与中共国绝不可能做亏本买卖。在这样一半兄弟，一半大爷的关系面前，中共还幻想拉俄罗斯共同对抗美国和西方世界，真是可笑至极。
+亨特·拜登的事情还没完呢。美国的司法体系虽然慢，但是正义不会缺席。在大选前，主流媒体对拜登家族卖国捞钱的事情避而不谈。如今却出现了一些报道，比如福克斯爆出猛料，称亨特·拜登代表整个拜登家族出卖美国。
 
-中国南方多省甚至连一向是向外输出电力的内蒙古也被传出限电，充分说明中共国电力十分紧缺。笔者认为，北约和俄罗斯前不久认定中共病毒是生化武器，评估核战争，生化战的经济和人道损失，并且积极备战……是主要原因。正是俄罗斯配合美国和西方世界从经济上制裁中共，才是最真正的原因。
+美国的内部生态允许拜登这样的鳄鱼存在，这是美国政治生态的一部分；但现在这些鳄鱼越界，通过共产党抢劫中国老百姓的钱，就该被惩罚。虽然现在拜登表面上看起来占优势，但是郭先生早已明确表示，最后一定是川普总统当选。许多媒体看到风向要变，在这个时候要把拜登抛出去，提前给自己找退路。拜登只不过是中共利用的棋子，无论现在怎么瞎折腾，灭共是一定的！
 
-64侩子手李鹏都去见马克思了，中国人民八分钱的电费只是个笑话，再次暴露了共产党以骗治国、以假治国的虚伪本质。当年极力反对修建三峡大坝的黄万里先生，生前曾向毛贼东的前秘书李锐先生说，要在白帝城摆三个跪像，两男一女和岳飞墓前的秦桧跪像一样。两位反中共暴政的楷模，都已经仙逝。他们无法改变的中共国，现在终于已经摇摇欲坠了。
+**原文翻译：**
 
-中共国经济必然在基础能源电力，煤炭石油全面短缺后，先是通货膨胀，然后彻底崩溃。世界各国即将确定中共病毒为攻击全世界的生化武器，灭共热战在所难免。内忧外患的中共，灭亡之日就在眼前！
+# **新文件显示，亨特·拜登代表‘整个拜登家族’向中共索取1000万美元**
 
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/yGRPylcXT1n8F/)
+**《福克斯新闻》周四报道的新文件提供了更多对有关亨特·拜登和一名与中国共产党有深层联系的生意人之间1000万美元交易的细节，这对当选总统乔·拜登和科技巨头以及大媒体公司之间的丑闻无疑是火上浇油。**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/7973b7bb-3320-40f0-ab71-531a103a14ec.jpg?asset_id=afa2ecea-e320-4f6b-9099-e684beda03b2&amp;img_etag=%22c8525aa0a0b895a705a8056476f0c7fa%22&amp;size=2560)](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/7973b7bb-3320-40f0-ab71-531a103a14ec.jpg?asset_id=afa2ecea-e320-4f6b-9099-e684beda03b2&amp;img_etag=%22c8525aa0a0b895a705a8056476f0c7fa%22&amp;size=1024)
+
+根据福克斯获取的通信记录，亨特·拜登被指他在2017年向华信能源(CEFC)主席叶简明表达了“来自整个拜登家族最好的祝福”，并且敦促与中国共产党有深层联系的合伙人叶简明尽快电汇1000万美元以便“合理资助和运行”拜登的基金。
+
+“我希望你一切安好。我对上次你来美国时没能见你表示遗憾”，亨特·拜登六月在一封信件上写道，“请接受来自整个拜登家族以及我的商业伙伴最诚挚的问候”。
+
+在这封要求叶简明的合伙人转账1000万美元的信上，亨特·拜登提到了托尼·伯布林斯基(Tony Bobulinski)，曾经是拜登的合伙人，在今年站出来爆料。
+
+“如果你能快点转账我会很感激”，拜登写道，他想资助拜登领导的公司华鹰(Sinohawk)，该公司与伯布林斯基合伙，并由伯布林斯基担任CEO。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/f8c3fc8e-c9d2-4ccd-ab6d-a11f27f647c1.jpg?asset_id=f04fd247-5298-45e0-8a1f-1e6a9467e431&amp;img_etag=%220d6f2bd60901fc01ede6363b1367fa32%22&amp;size=2560)](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/f8c3fc8e-c9d2-4ccd-ab6d-a11f27f647c1.jpg?asset_id=f04fd247-5298-45e0-8a1f-1e6a9467e431&amp;img_etag=%220d6f2bd60901fc01ede6363b1367fa32%22&amp;size=1024)
+
+亨特·拜登-叶简明
+
+在福克斯查阅的后续邮件中，一封七月回复给亨特·拜登的邮件显示叶简明很热情地安排了拜登的请求，以“加快”汇款工作。
+
+这些通信往来都发生在《纽约邮报》十月报道的叶简明提出1000万美元给拜登作为一个年度合约的“介绍费”之前。报道还提到，1000万美元介绍费的一部分是预留给乔·拜登的，会由亨特输送给乔·拜登。
+
+《福克斯新闻》的重磅爆料给纽约邮报之前的爆料增加了信度，而之前采用民主党言论的媒体公司都曾驳斥了纽约邮报的爆料，他们将纽约邮报的报道打成俄罗斯的虚假信息，并且和科技巨头一起在11月大选前几天打压了这个信息。
+
+[原文链接](https://thefederalist.com/2020/12/16/new-documents-show-hunter-biden-requesting-10-million-from-chinese-on-behalf-of-entire-biden-family/)
 
 [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
@@ -28,6 +50,8 @@
 
 [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yGRPylcXT1n8F/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/yGRPylcXT1n8F/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/AXZTpGtGKTGuH/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

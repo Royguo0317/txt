@@ -1,49 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵说｜系列图片连载（八十一）
-` GM98` [轉載自GNews](https://gnews.org/zh-hans/669297/)
+## 【弗林将军推文1220】-自由的土地、勇敢的家园
+` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/669452/)
 
-## 561.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20073649/c37c9299e5b8d71f.png)
-在民主的路上永远没有终结，没有结果，只有过程。这个过程就要享受，你不舒服就是你想要的，因为它接近真相，它能基本平衡，它是基本公平，这就叫民主。
+> .[@skifflegirl](https://twitter.com/skifflegirl?ref_src=twsrc%5Etfw) We have the land of the free because of the brave. Thank you for reminding me of why I do what I do. Freedom is an innate human desire and must never be taken for granted. God bless you and may God bless and always protect America and our way of life 🇺🇸[@lofly727](https://twitter.com/lofly727?ref_src=twsrc%5Etfw) [https://t.co/q6qu1H0JqK](https://t.co/q6qu1H0JqK)
+> — General Flynn (@GenFlynn) [December 20, 2020](https://twitter.com/GenFlynn/status/1340631111916019713?ref_src=twsrc%5Etfw)
 
-——郭文贵先生 2020年8月22日
 
-## 562.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20073941/2a5cac3c4c9288a9.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20073735/s32.jpg)
-人世间永远都是有规则的。
 
-——郭文贵先生 2020年8月23日
+12月20日清晨，弗林将军对推友发的一则视频回推，视频是美国国歌之下无数人民上街支持川普总统、在各种集会中人潮涌动的热烈场面，文字说“自由的土地、勇敢的家园”。林伍德律师称，
 
-## 563.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20073821/s31.jpg)
-把我们的G-News、G-TV、G系列做强做大，这是我们目前必须要有的基础；我们绝对要记住，不要寄希望于西方媒体给我们说话，是不可能的，只能寄希望于我们自己的媒体，我们强大了才有话语权。
+“ 我们拥有自由的土地是因为有我们勇敢的人。谢谢你提醒我，我为什么要这样做。自由是人类与生俱来的愿望，决不能认为是理所当然的（需要争取而得到，必要时为之而战）。上帝保佑你，愿上帝保佑并永远保护美国和我们的生活方式。”
 
-——郭文贵先生 2020年8月22日
 
-## 564.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20073855/s33.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20074112/32f935ba027d75cc.png)
-你们一定要做好思想准备！一定更猛烈的、更坏的时刻还没有到来。全人类都没有人准备好！
 
-——郭文贵先生 2020年8月23日
+看着美国人为自由而勇敢发声、坚决行动、奋起反抗的场景，我不禁呐喊，我们中国同胞弟兄姊妹们，让我们也为自由，推翻压迫我们71年的诈骗暴政极权团伙吧！让我们像美国人一样自由呼吸、说话和快乐地生活吧！行动吧！
 
-## 565.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20074029/2bc2e99cf36318e4.png)
-富裕奢华的生活会让人失去一切的，包括你一个做人的本能。
 
-——郭文贵先生 2020年8月23日
 
-## 566.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20074259/2020-9-27V1-01-01-01-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20074332/6f5a50b9165e48ac.png)
-当你想贪的时候，就像我渴了喝杯水行，你想把大海给喝干了，你就会被大海给淹死。你永远别想着把海能喝干，你喝不干的。
-
-——郭文贵先生 2020年8月23日
-
-## 567.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20074426/45babe3b7737a43e.png)
-希望战友们在这个关键时刻，一定要每天除了你正常的休息、在安全的情况下，一定要用脑子、用手抓住这个历史的时刻，把这个司法部的司法文件，每个字、每个故事的解读和班农连在一起，和爆料革命联系在一起，发到全世界的媒体，发到全世界有影响力的人的手中。
-
-——郭文贵先生 2020年8月22日
-
+新闻素材和图片来自弗林将军推特
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17185700/Wenya-Logo-4.png)
 0
