@@ -1,26 +1,121 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 在中共病毒的危险中挣扎着、活着！
-` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/669033/)
+## 《God Bless the U.S.A. 天佑美国!》歌词翻译
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/669169/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20044807/xinguan.jpg)
-作者： 神的带领（京都富士会）
-
-校正： 待命（文晓）（京都富士会）
-
-排版： 待命（文晓）（京都富士会）
-
-曾经的我无忧无虑，因为丈夫的收入还可以。中共病毒的蔓延开始后，我们浪漫的日子就一去不复返了。
-
-丈夫退休后，开始用退休金抚养尚未成年的孩子。想打个小工，一是打发时间二是自己挣个零花钱，让自己充实不老。可想法很浪漫现实很骨感，在中共病毒的影响下年轻人都找不到工作，更何况是他呢？
-
-起初，我的工作很顺利。每天打打电话约约客人，喝个茶吃个饭，做做题案。但是，中共病毒的到来，使得企业已经约不到客人。即便约到客人，也不能喝茶聊天，彼此无法融合，只能冷冰冰的站在酷暑严寒中，以最快速度完成回访业务。这样，我就无法知道客人会有什么样的潜在需求，无法签到新的合约。可是，公司不可能白养你，每个月的任务照旧，想要完成任务必须付出以前的百倍努力。可是，在看不到的病毒中每多见一个客人就多一次危险。
-
-之前，我的同事因为恐惧中共病毒，还不得不工作而得了抑郁症。那一刻我们都沉默了，不是同情是共鸣。紧接着，我接触的一个客人因中共病毒逝世。我的领导偷偷把我叫到一边问我身体有没有异常，我的回答是我身心都异常。又问我发烧没？问我味觉异常不？当然没有了。因为我听爆料革命的，吃了盐酸羟氯喹。但是，每个月2000万的任务确实是压力山大。虽然我是我们组里唯一一个得到公司C奖的，但是我每天都想逃跑，每天都想辞职。可是辞职以后该怎样去生活呢？被逼无奈，我们得活着，就不得不在中共病毒中挣扎着活着。
-
-中共病毒出现后，有许许多多的苦难落在每个人的生活中。我恨中共病毒，更恨中国共产党。紧跟爆料革命，战友们团结一心消灭魔鬼共产党。
+翻译者：Lucky Star Maggie
 
 
-![]()
+视频出处：[Home Free – God Bless the U.S.A. (featuring Lee Greenwood and The United States Air Force Band)](https://www.youtube.com/watch?v=SrMftm6Km3g&amp;feature=youtu.be)
+**歌词翻译：**
+
+If tomorrow all the things were gone
+如果明天我将丧失我所有的一切
+
+I’d work for all my life
+我将再次拼搏
+
+And I had to start again With just my children and my wife
+不得不和我的妻儿一道重新开始
+
+I’d thank my lucky stars To be living here today
+我会感激我的幸运星今天仍飘扬在这里
+
+‘Cause the flag still stands for freedom
+因为我们的国旗依旧代表着自由
+
+And they can’t take that away
+他们不能夺走我们的自由
+
+And I’m proud to be an American
+我为我是一个美国人而骄傲
+
+Where at least I know I’m free
+在这里至少我知道我是自由的
+
+And I won’t forget the men who died Who gave that right to me
+我不会忘记那些为我们争取自由而牺牲的人们
+
+And I gladly stand up next to you
+今天我愿意站起来和你肩并肩
+
+And defend her still today
+再次为保卫我们自由的国家而战斗
+
+‘Cause there ain’t no doubt I love this land
+毫无疑问因为我深深地爱着这片土地
+
+God Bless the U.S.A.
+天佑美国
+
+From the lakes of Minnesota
+从明苏尼达州的湖泊
+
+To the hills of Tennessee
+到田纳西州的小山
+
+Across the plains of Texas
+横越德克萨斯州的平原
+
+From sea to shining sea
+从大西洋到闪耀的太平洋（源自“美丽美国”的诗）
+
+From Detroit down to Houston
+从底特律到休斯顿
+
+And New York to L.A.
+纽约到洛杉矶 （意指美国全境）
+
+Where there’s pride in every American heart
+所到之处每个美国人的心中都充满自豪
+
+And it’s time we stand and say that
+在这个时刻，我们站起来宣告，
+
+I’m proud to be an American
+我为我是一个美国人而骄傲
+
+Where at least I know I’m free
+在这片土地上至少我知道我是自由的
+
+And I won’t forget the men who died Who gave that right to me
+我不会忘记那些为争取我们的自由牺牲的人们
+
+And I gladly stand up next to you
+我愿意站起来和你肩并肩
+
+And defend her still today
+再次为保卫我们自由的国度而战斗
+
+‘Cause there ain’t no doubt I love this land
+毫无疑问因为我深深地爱着这片土地
+
+God Bless the U.S.A.
+天佑美国
+
+God Bless this country
+天佑这个国家
+
+And I’m proud to be an American
+我为我是一个美国人而骄傲
+
+Where at least I know I’m free
+在这里至少我知道我是自由的
+
+And I won’t forget the men who died Who gave that right to me
+我不会忘记那些为争取我们的自由牺牲的人们
+
+And I gladly stand up next to you
+我愿意站起来和你肩并肩
+
+And defend her still today
+再次为保卫我们自由的国家而战斗
+
+‘Cause there ain’t no doubt I love this land
+毫无疑问因为我深深地爱着这片土地
+
+God Bless the U.S.A.
+天佑美国
+
 0

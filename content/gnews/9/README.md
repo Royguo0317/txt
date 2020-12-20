@@ -1,24 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【弗林将军推文1219】-亚利桑那州集会要求“停止盗窃”
-` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/669212/)
+## 《路德社》精选新闻快讯: 美国校园里的中国共产党
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/668834/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20063738/EppTQvcUcAACvNU.jpg)图片来源 arizonadailyindependent.com
-12月19日成百上千的美国爱国者聚集到亚利桑那州国会区进行抗议，要求调查Maricopa 县和其他地区舞弊行为，他们打出口号“停止盗窃”。亚利桑那州共和党主席周议员Kelli Ward博士发推称，
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040714/1220.png)
+从蓬佩奥国务卿2020年12月9日在佐治亚理工学院的演讲可以得出出一个结论：中共——这个邪恶独裁政权是美国和全世界的威胁，让我们站起来捍卫国家安全，抵抗中共吧！
 
+从蓬佩奥国务卿举的几个校园案例中， 不难看出中共为了窃取各行各业各类技术, 使出浑身解数——威逼、利诱，恐吓、招募美国高校的人才为中共集权所使用（特别是无辜的华裔); 不惜一切代价地让美国高校自我审查, 压制言论自由, 让批评中共的人禁言.
 
-> “总统先生- 我们在#亚利桑那州与您一起。我们正通过各种途径阻止这场政变，阻止我们的共和国坍塌。爱国者是团结的。那些反对我们的人正在暴露自己。#自由 阵线”
+在此，希望海外华人看清楚中共的险恶用心，替中共卖命，换不来尊重与地位，却会让你的子孙被世界唾弃。
 
+希望中共党员们看清楚中共卸磨杀驴的嘴脸，给中共做事，结局你懂的，回头是岸，做污点证人也好过王建，不是么。
 
-弗林将军转推了这一推文称，
+希望中共国墙内的人们看清楚中共的邪恶政权，在安全的情况下， 保存好各种罪证。
 
+[援引](https://www.state.gov/the-chinese-communist-party-on-the-american-campus/)
 
-> “Kelli 对亚利桑那州和美国的人民有伟大的感情。她继续以勇气和信念#为川普而战。”
-
-
-新闻素材和图片来自弗林将军推特和https://arizonadailyindependent.com/2020/12/19/arizona-stop-the-steal-rally-draws-enthusiastic-crowd/
-
-
+本文作者：一切心皆不可得！
+审核校对：玫瑰天空
+上传排版：糖果儿
 
 0

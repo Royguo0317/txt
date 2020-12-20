@@ -1,34 +1,85 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 挺川灭共大游行! 蔡政府听得到吗？
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/668345/)
+## 《路德时评》重磅：习下令1月2日前（最迟6日前）让川普总统彻底消失
+` GM141` [轉載自GNews](https://gnews.org/zh-hans/668618/)
 
-作者：Yumi
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20002423/File_003.jpeg)照片提供孙玮芒先生
-昨日十九日，挺川灭共大游行在台北如火如荼地举行。主办单位大纪元时报现场直播在Youtube频道。网路上的网民生气的说着为什么大多数主流媒体一面不报导这大游行？
-不禁让人问起亲红色和亲绿色媒体去哪里了？据美国大选前TVBS网路民调台湾有42%的民众挺川普连任。大选后主流媒体的一面倒的恭喜拜登当选总统小英总统的twitter对拜登的贺电。台湾民间一片哗然！台湾主流媒体突然转向讨论起莱猪议题，立院闹剧。还有第四权的网路社交平台的封号发言不准讲舞弊证据。以为人们就拜登政府是事实。在众多网民的焦虑地想要大选舞弊的证据透明化，于是关了电视上网去。爱国者们疯传用讯雷不及掩耳的海量最新的消息出现。尤其在台湾使用fb的人众多不少挺川的社团雨后春笋般的建起。处处有爆料革命的踪迹。接续着海量的舞弊案件出现在在次次挑起台湾人对中共的红色渗透的痛楚点。
+音频下载地址：
 
-焦虑加深了近期川普总统对230法案没加入国防授权法中不满意而可以否决签署。美国联邦参众两院2021财政年度国防授权法（NDDA）将持续协助台湾维持自我防卫能力，并建立太频扬威社倡议强化美国在硬态地区抗衡的能力。自由时报提到『挺台抗中的法案』。此时川普抗中友台川普是全球灭共品牌的代言人，而拜登亲中卖台声浪加上家新闻的肆虐加上共军绕台把台海当作他家后厨房一样。闷很久了！挺川灭共大游行昨日出现。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20002632/File_002.jpeg)照片提供孙玮芒先生
-自媒体网友小Q说台湾需要川普。世界需要公义。他在现场也采访了与会的民众对选举舞弊的观点。
-观点一，台媒也煽风点火转向左眉，以为就可以全盘吸收媒体喂给你的东西。大部分的民众说他们有眼睛，自己会去找真相从网路上找。据大纪元的记者采访现场的民众多数表达Big tech和左媒打压新闻的透明度。
-观点二，大多数的民众都说川普是历任总统中对台湾最好的总统。他是台湾的朋友他要连任。我们要站出来！
-观点三，蔡英文去祝贺拜登不代表台湾人的立场。在youtube大纪元记者访问God Damn PRC社团的招集人说到要求蔡英文撤twitter对拜登的贺文。网友小Q表示与会的人都说蔡英文的言论不是我们的民意。
-观点四，灭掉共产党。与会者表示海量的爆料和选举舞弊后所有台面上的以为的正义都在法律战的爆料中台湾网民都看见。今天的战争是民主和社会主义的战争，现场更呼喊着以爱灭共口号。一个干净没有共产党的邪恶的世界。
-尽管台湾主流媒体只字不提挺川面共大游行。像红媒报导罢韩团体游行为遮羞布下没多少人，其实游行人数众多。会后网友小Q表示在游行中Gnews ，G-tv真相的牌子吸引吸引他的眼光。上前交谈是新中国联邦的旗帜。他说这就是爆料革命好熟在网上常看到他们。笔者询问后小Q情绪激昂的决定参加爆料革命一起网路上灭共挖掘真相。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20003247/%E4%B8%AD%E5%9C%8B%E6%96%B0%E8%81%AF%E9%82%A6.png)網友小Q照片提供
-（本文纯属个人观点）
+[https://mega.nz/file/tPxkDK4S#G3kAghL6Js\_RyL8YV6exJMnb96RCfzkuYdYXF3LsHAM](https://mega.nz/file/tPxkDK4S#G3kAghL6Js_RyL8YV6exJMnb96RCfzkuYdYXF3LsHAM)
 
-新闻来源：
-
-挺川灭共站出来游行集会
-https://www.youtube.com/watch?v=emnP9PvqpJs
+直播视频：
 
 
-大紀元油管
-「挺台抗中」法案恐不过关川普再扬言否决国防授权法
 
-[https://news.ltn.com.tw/news/world/breakingnews/3384982?fbclid=IwAR0B2KdR6B98V6jvrMCxMloxDdh6-3OpnrP75GpIR9Q\_QTLnbyK8DAE6Kbk](https://news.ltn.com.tw/news/world/breakingnews/3384982?fbclid=IwAR0B2KdR6B98V6jvrMCxMloxDdh6-3OpnrP75GpIR9Q_QTLnbyK8DAE6Kbk)
 
+
+《路德时评》2020年12月19日晚间节目主要内容：
+
+一、川普总统会见鲍威尔律师和弗林将军
+
+12月19日，川普总统在白宫椭圆形办公室会见西德尼·鲍威尔（Sidney Powell）和弗林将军，商讨军事部署，将鲍威尔命名为选举欺诈特别检察官[1]。
+
+
+
+> REPORT: President Trump Met with Sidney Powell and General Flynn in Oval Office – Discussed Deploying Military, Naming Powell as Special Counsel on Election Fraud…
+> — Chuck Callesto (@ChuckCallesto) [December 19, 2020](https://twitter.com/ChuckCallesto/status/1340406843856850944?ref_src=twsrc%5Etfw)
+
+
+
+Politico网站12月19日也报道[2]：川普总统计划聘请悉尼·鲍威尔（Sidney Powell）作为选举欺诈的特别检察官。
+
+路德社评论如下：
+
+1、总统、国会和三名法官组成的小组都有权任命特别检察官，该职位是独立于政府和司法之外的一个体系，有专门的团队和办公地点供其使用；
+
+2、路德社节目是第一个说司法部长将被解雇，同时川普总统会任命鲍威尔律师为特别独立检察官，这就是新中国联邦、爆料革命、路德社的特殊情报来源；
+
+3、多尼米投票系统和造假选票涉及海外势力有组织地干预美国大选，独立检察官就可以调查跨州、跨总统、甚至跨国案件，并能够调动最顶尖的资源与专业人员；
+
+4、路德社爆料：弗林将军近期接受采访时多次表态要推动全国戒严，他今天与川普总统讨论军队部署，就是在为戒严做准备，**文贵先生直播中提及川普总统不相信习要搞死他，但某人已经将习的会议录音发给川普总统，习表示：最迟要在1月6日前让川普总统彻底消失，甚至要在1月2日之前让他消失**；
+
+5、路德社再爆料：**美国国家情报总监关于外国势力干预美国大选的调查报告都已经获得北约组织的认可，包括北约某些重要机构都已经认定中共病毒就是生物武器攻击**；
+
+6、目前，美国民调显示已经有9000万美国人相信此次大选有舞弊行为。
+
+
+
+二、川普总统首提中共网络攻击美国大选
+
+川普总统12月20日发推表示[3]：假新闻媒体报导的网络黑客比实际情况要严重得多。我已经得到了充分的汇报，一切都在控制之中。主流媒体可能因为缺钱就将俄罗斯列为发生任何事情的优先选择。主流媒体一讨论到中共国就吓僵了，选举期间，投票机也可能遭受重创，现在看来我赢得了大奖，这对美国来说是一种极度的羞耻。
+
+
+
+
+
+> The Cyber Hack is far greater in the Fake News Media than in actuality. I have been fully briefed and everything is well under control. Russia, Russia, Russia is the priority chant when anything happens because Lamestream is, for mostly financial reasons, petrified of….
+> — Donald J. Trump (@realDonaldTrump) [December 19, 2020](https://twitter.com/realDonaldTrump/status/1340333618691002368?ref_src=twsrc%5Etfw)
+
+
+
+
+
+1、川普总统提及主流媒体都惧怕中共，它们将所有问题都推卸给俄罗斯，俄罗斯只是垫背，普金总统肯定已经认清形势，绝对不会让俄罗斯背黑锅；
+
+2、川普总统明确调查报告已经出炉，就是中共网络攻击美国大选，鲍威尔和弗林将军前往白宫的事情被媒体爆料出来都有一定目的，这就为接下来更重磅的金融制裁和围剿行动做铺垫；
+
+3、现在万事俱备，只欠东风。
+
+
+
+
+
+参考文章：
+
+[1]https://twitter.com/ChuckCallesto/status/1340406843856850944
+
+[2]https://www.politico.com/news/2020/12/19/sidney-powell-trump-special-counsel-448694
+
+[3]https://twitter.com/realDonaldTrump/status/1340333618691002368
+
+文章撰写：【重生】  封面设计&音频：【V%】  编辑：【GM141】
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14081816/%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%95%86%E6%A0%87.png)
 0

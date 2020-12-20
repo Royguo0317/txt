@@ -1,21 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 针对苹果公司提出的第一修订本中诉讼理由的抗辩,原告提出异议之要点及法律依据备忘录【法庭文件全文翻译】
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/668810/)
+## 在中共病毒的危险中挣扎着、活着！
+` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/669033/)
 
-## 【[法庭文件英文原文PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040643/2-Pham-v.-Apple_Plaintiff-Opp-MTD-2-10-14.pdf)】【[中文全文翻译PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040715/v2.0-Tracy-Pham-v.-Apple_2nd-Memo.pdf)】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040803/PDFtoJPG.me-01-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040809/PDFtoJPG.me-02-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040811/PDFtoJPG.me-03-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040814/PDFtoJPG.me-04-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040819/PDFtoJPG.me-05-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040821/PDFtoJPG.me-06-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040825/PDFtoJPG.me-07-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040827/PDFtoJPG.me-08-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040830/PDFtoJPG.me-09-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040939/PDFtoJPG.me-10-1-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040837/PDFtoJPG.me-11-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040839/PDFtoJPG.me-12-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040844/PDFtoJPG.me-13-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040848/PDFtoJPG.me-14-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040851/PDFtoJPG.me-15-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040854/PDFtoJPG.me-16-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20041006/PDFtoJPG.me-17-scaled.jpg)
-**前员工起诉苹果公司的进展情况：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20044807/xinguan.jpg)
+作者： 神的带领（京都富士会）
 
-1. [前员工起诉苹果公司: 因政治派别不同而遭受其歧视, 报复, 骚扰以及解雇等不当行为](https://gnews.org/zh-hans/646660/)
-2. [被告苹果公司要求删除申诉的动议要点和授权备忘录](https://gnews.org/zh-hans/646888/)
-3. [原告提出异议并请求法院驳回被告苹果公司的全部罢诉动议](https://gnews.org/zh-hans/646967/)
-4. [法庭驳回被告苹果公司对原告《民事诉讼法》中的第一和第二 项诉讼理由提出的抗辩](https://gnews.org/zh-hans/647110/)
-5. [针对苹果公司提出的抗辩,原告提出异议之要点及法律依据备忘录](https://gnews.org/zh-hans/658360/)
-6. [针对苹果公司提出的第一修订本中诉讼理由的抗辩,原告提出异议之要点及法律依据备忘录](https://gnews.org/zh-hans/668810/)
+校正： 待命（文晓）（京都富士会）
+
+排版： 待命（文晓）（京都富士会）
+
+曾经的我无忧无虑，因为丈夫的收入还可以。中共病毒的蔓延开始后，我们浪漫的日子就一去不复返了。
+
+丈夫退休后，开始用退休金抚养尚未成年的孩子。想打个小工，一是打发时间二是自己挣个零花钱，让自己充实不老。可想法很浪漫现实很骨感，在中共病毒的影响下年轻人都找不到工作，更何况是他呢？
+
+起初，我的工作很顺利。每天打打电话约约客人，喝个茶吃个饭，做做题案。但是，中共病毒的到来，使得企业已经约不到客人。即便约到客人，也不能喝茶聊天，彼此无法融合，只能冷冰冰的站在酷暑严寒中，以最快速度完成回访业务。这样，我就无法知道客人会有什么样的潜在需求，无法签到新的合约。可是，公司不可能白养你，每个月的任务照旧，想要完成任务必须付出以前的百倍努力。可是，在看不到的病毒中每多见一个客人就多一次危险。
+
+之前，我的同事因为恐惧中共病毒，还不得不工作而得了抑郁症。那一刻我们都沉默了，不是同情是共鸣。紧接着，我接触的一个客人因中共病毒逝世。我的领导偷偷把我叫到一边问我身体有没有异常，我的回答是我身心都异常。又问我发烧没？问我味觉异常不？当然没有了。因为我听爆料革命的，吃了盐酸羟氯喹。但是，每个月2000万的任务确实是压力山大。虽然我是我们组里唯一一个得到公司C奖的，但是我每天都想逃跑，每天都想辞职。可是辞职以后该怎样去生活呢？被逼无奈，我们得活着，就不得不在中共病毒中挣扎着活着。
+
+中共病毒出现后，有许许多多的苦难落在每个人的生活中。我恨中共病毒，更恨中国共产党。紧跟爆料革命，战友们团结一心消灭魔鬼共产党。
 
 
-#### **By【秘密翻译组 G-Translators】**
-
+![]()
 0

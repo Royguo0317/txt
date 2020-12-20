@@ -1,35 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 回复战友1608米的信
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/668584/)
+## 针对苹果公司提出的第一修订本中诉讼理由的抗辩,原告提出异议之要点及法律依据备忘录【法庭文件全文翻译】
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/668810/)
 
-亲爱的战友**1608**米
+## 【[法庭文件英文原文PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040643/2-Pham-v.-Apple_Plaintiff-Opp-MTD-2-10-14.pdf)】【[中文全文翻译PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040715/v2.0-Tracy-Pham-v.-Apple_2nd-Memo.pdf)】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040803/PDFtoJPG.me-01-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040809/PDFtoJPG.me-02-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040811/PDFtoJPG.me-03-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040814/PDFtoJPG.me-04-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040819/PDFtoJPG.me-05-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040821/PDFtoJPG.me-06-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040825/PDFtoJPG.me-07-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040827/PDFtoJPG.me-08-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040830/PDFtoJPG.me-09-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040939/PDFtoJPG.me-10-1-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040837/PDFtoJPG.me-11-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040839/PDFtoJPG.me-12-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040844/PDFtoJPG.me-13-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040848/PDFtoJPG.me-14-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040851/PDFtoJPG.me-15-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040854/PDFtoJPG.me-16-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20041006/PDFtoJPG.me-17-scaled.jpg)
+**前员工起诉苹果公司的进展情况：**
 
-当我打开来自您的文档**“**我的遗书**”**的时候，我的眼泪就止不住的流了下来。活了大半辈子第一次见这个，而且是素未平生的人的遗书，这信任太厚重。这寄托太悲壮。
-
-我不想把它称为遗书，这是我读过的最棒的**Gnews**文稿，是一篇**“**讨共檄文**”**，是一篇跟随爆料革命跟随郭先生的心得分享。
-
-我不想把它称做遗书，是因为我坚信我们会在盘古大观龙头相聚，就算没被七哥邀请，我也要自费去那里与你握握手，给你一个大大的拥抱。
-
-感谢主，让我有幸拜读您的文章，了解您在这三年爆料革命里走过的路程，您知道吗，那些心路似曾相识，，那些无奈，那些愤怒，那些欢喜，那些眼泪，在遥远的南半球也有另一个人，应该说全世界，有一群黄皮肤，黑眼睛，黑头发的人，跟您一样，痛并快乐着！
-
-神把我们这些人团结在文贵先生身边，一起完成一场人类最伟大的革命，尽管坏蛋们的命还一个都没革掉，但是，我们坚信那摧古拉朽的时刻即将到来，神的烈怒将倾倒，因为我们太悖逆，因为我们太无知与贪婪。尽管身在海外，但我的灵魂同样备受折磨，我常常问自己假如当年，我们都没有远走他乡，留在那片土地上与CCP抗争，情形是否会不同？我也同样为杨改兰而自责。
-
-我们以为可以一走了之，眼不见心不烦，可是人间已无净土，CCP的蓝金黄已经无处不在，撒旦的僵尸满了世界。世人远离神，道德下滑，我们都走到了尽头！
-
-只有期盼神的救赎！
-
-我曾经在外围默默的关注文贵先生，但我越来越清楚的看到，神为我们中华民族拣选了他，为美国拣选了川普，所以我们人类还有一点点的时间，我们只需要一点点的勇气，我们还可以忏悔认罪、我们还可以替神铲除恶魔CCP，这就是为什么我和很多战友一样，每天投入10几个小时，几乎是全职的参加爆料革命，我们愿意为推翻CCP倾注我全部的精力和时间，因为那是我们仅有的。
-
-可惜，我的家人和朋友与您的妻子一样尽管厌恶**CCP**，却不愿做更多的抗争去打破他们所谓的岁月静好，一副要死大家一起死的态度。
-
-我不认命！我也不想让我的家人认命（他们已经无奈到麻木了）！我也不想让墙内的战友们认命，就像你说的，神赐给我们生的权利。
-
-我祈祷，我哭泣，我愿意替你们去死，但我死之前要看到CCP垮台，你也一样！为了这个梦想！为了你的女儿永不为奴要战斗！要战斗！宁可站着死，绝不跪着活！
-
-一位与你同行的战友。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19055723/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
+1. [前员工起诉苹果公司: 因政治派别不同而遭受其歧视, 报复, 骚扰以及解雇等不当行为](https://gnews.org/zh-hans/646660/)
+2. [被告苹果公司要求删除申诉的动议要点和授权备忘录](https://gnews.org/zh-hans/646888/)
+3. [原告提出异议并请求法院驳回被告苹果公司的全部罢诉动议](https://gnews.org/zh-hans/646967/)
+4. [法庭驳回被告苹果公司对原告《民事诉讼法》中的第一和第二 项诉讼理由提出的抗辩](https://gnews.org/zh-hans/647110/)
+5. [针对苹果公司提出的抗辩,原告提出异议之要点及法律依据备忘录](https://gnews.org/zh-hans/658360/)
+6. [针对苹果公司提出的第一修订本中诉讼理由的抗辩,原告提出异议之要点及法律依据备忘录](https://gnews.org/zh-hans/668810/)
 
 
-1+
+#### **By【秘密翻译组 G-Translators】**
+
+0

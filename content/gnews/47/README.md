@@ -1,31 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 洗脑教育
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/668213/)
+## 《路德社》精选新闻简讯：Rasmussen: 56% Believe Biden Consulted About Hunter&#8217;s Business Deals拉斯缪森：56%美国人相信乔拜登参与亨特商业交易
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/668440/)
 
-撰稿：神的带领
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-审稿：Gradient Boost
+Fifty-six percent of Americans believe it is likely Joe Biden was consulted and perhaps profited from his son Hunter’s overseas business deals, including at least one involving a company in mainland China, according to a poll by [Rasmussen Reports](https://www.rasmussenreports.com/public_content/politics/elections/election_2020/most_think_media_hid_hunter_biden_story_before_election_day).
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20000030/004-1-scaled.jpg)图片制作：喜马拉雅澳洲©森森
+根据拉斯缪森的报告，56%的美国人相信乔拜登可能参与他儿子亨特的海外商业交易并从中获利，涉及至少一家中国大陆公司。
 
-记得从很小的时候就受到所谓“爱国主义教育”的熏陶。那个时候只有收音机，听到的尽是什么“打倒美帝国主义”、“美国是纸老虎”、“打倒列强”、“打倒日本”、“朝鲜人民是兄弟”还有“苏维埃是老大哥”这样的口号。那个年代讲究阶级斗争（不光斗国外也斗自己的人民），而毛贼东就像是是毛楼（厕所）的石头又臭又硬。结果发动朝鲜战争白白葬送了百万大军也赔上了毛贼东接班人毛岸英的性命。 毛贼东通过战争消灭异己，接着发动各种运动消灭一切能与他抗衡的人，同时也不忘给自己的接班人镀金。只是没想到异己消除了，接班人也给度到彼岸去了。毛贼东之后的几代领导人也先后模仿：有中越之战、八九六四血洗天安门、法轮功的镇压、活摘器官、对国内外的大数据进行监控以及用防火墙阻挡外部信息，还有现在的生物武器中共病毒。他们每次都给中国人洗脑，以爱国之名仇恨哪个国家，哪个民族，并且也按需仇恨那些自己的同胞。他们散播造谣说病毒来自美国的士兵，看美国太硬又改舟山篇幅，改蛇，改成海鲜……老百姓相信了谣言，至今有好多人说病毒是来自美国，还说不然美国咋死那么多人，而中国就武汉死了几个等等。百姓生活在假象中，从而仇视美国，以表现自己的爱国。
+Here are how the results break down:
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20000009/003-2.jpg)图片来源于网络
+调查结果如下：
 
-前段时间香港的反送中运动也被中共用来洗脑内地的老百姓，说什么“香港人没良心，共产党把他们从英国人手里救回来，给他们吃的、用的以及各种物资，给他们钱，他们现在反而不听党的话，分裂国家”等等。大家听听这是不是“爹亲娘亲不如党亲，党让干啥就干啥”的教育产物？ 随着爆料革命带来的真相，人们越来越知道爱国不等于爱共产党，共产党也不等于中国，只有爱爹爱娘才能爱国。更重要的，世界已经逐渐意识到：只有推翻共产党才会有踏实的生活，地球村的居民们才能赢得真正的和平。
+- 43% say it is “very likely” Joe Biden was consulted and perhaps profited from Hunter’s deals.
+- 43%美国人说乔拜登极有可能参与亨特交易并从中获利。
+- 22% say Joe Biden’s connection to his son’s business dealings is “not at all likely.”
+- 22%美国人说乔拜登与其儿子商业交易完全无关。
+- 52% believe many [news organizations](https://www.newsmax.com/us/rasmussen-reports-hunter-biden-laptop-likelyvoters/2020/12/15/id/1001674/) ignored the Hunter Biden story to aid his father’s presidential campaign.
+- 52%美国人相信相当多的新闻机构忽视亨特的事情，以帮助乔拜登的总统竞选。
 
-（本文纯属个人观点）
 
-澳喜文章：
+The poll was conducted Dec. 13-14 — less than a week after Hunter Biden acknowledged the U.S Attorney’s Office in Delaware was investigating his tax filings. It surveyed 1,000 likely voters. The poll has a margin of error of plus or minus three percentage points.
 
-[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+这项投票在12月13-14日进行-亨特拜登承认特拉华州检察官办公室正调查他税务申报后的一周内。它调查了1000名可能的选民，误差在正负3%以内。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20012421/608b62ca-bdbe-481e-9ab8-b6dfe0f3c804.jpg)
+10月以来经过爆料革命持续披露亨特拜登的“硬盘门”，彻底揭露拜登家族与中共勾兑出卖美国国家利益的事实证据，极大地影响美国主要民意。与此同时，美国主流新闻媒体对此事的言论审查、舆论封锁和虚假报道，使美国多数人民清楚地意识到言论自由已经受到严重威胁，大部分新闻媒体已不值得相信。这份调查报告的数据也侧面印证2020年美国大选存在严重作弊，川普总统早已事实赢得大选，而中共正在偷窃大选结果。
 
-欢迎加入澳喜农场：
+【文章仅代表作者个人观点】
 
-[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+[援引](https://www.newsmax.com/politics/rasmussen-poll-biden-hunter/2020/12/18/id/1002213/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19055723/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
+本文作者:Stranger
+审核校对:玫瑰天空
+上传排版:糖果儿
 
-0
+1+

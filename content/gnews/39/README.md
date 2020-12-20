@@ -1,21 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【川普总统推文2020】-经济刺激法案
-` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/668336/)
+## 《路德社》精选新闻快讯：白宫意见不一, 西德尼 · 鲍威尔有望成为特别顾问
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/668576/)
 
-> “国会为什么不给我们的人民一个经济刺激法案？这不是他们的错，是中国的错。去完成它，给人们更多的钱直接消费。”
-
-
-
-
-> Why isn’t Congress giving our people a Stimulus Bill? It wasn’t their fault, it was the fault of China. GET IT DONE, and give them more money in direct payments.
-> — Donald J. Trump (@realDonaldTrump) [December 20, 2020](https://twitter.com/realDonaldTrump/status/1340527057151930369?ref_src=twsrc%5Etfw)
+出品：《路德社》 编辑：《路德社》精品新闻专栏组
 
 
 
-新闻来源 川普推文
+> JUST IN – Sidney Powell was reportedly in the Oval Office last night as President Trump discussed making her Special Counsel for election fraud (NYT).
+> — Disclose.tv 🚨 (@disclosetv) [December 19, 2020](https://twitter.com/disclosetv/status/1340353839740968961?ref_src=twsrc%5Etfw)
 
-图片来源 Forbes
 
-1+
+
+据透露电视20/12/2020援引纽约时报19/12/2020的报道：白宫18日开会讨论了戒严令和控制投票机等选项，川普还考虑任命大律师鲍威尔（Sidney Powell）为特别法律顾问，以调查大选舞弊。目前尚不清楚，川普总统是否会切实推进这一计划。
+
+据两名与会的知情人士透露，川普倾司法部任命她为特别顾问，但会上的讨论主张让她只出任总统指定的白宫特别顾问。迈克尔.福林将军参加了会议, 总统的私人律师鲁道夫·朱利安尼（Rudolph W. Giuliani）通过电话参加了本次会议。
+
+跟据CNN的最新消息，这场会议爆发了激烈的争吵。鲍威尔女士的想法被在场的所有其他特朗普顾问阻击，白宫法律顾问帕特·西帕隆西帕隆告诉特朗普，正在讨论的内容没有宪法授权。据称，鲍威尔律师出示了几份宣誓书，但经检查后，这些宣誓书都是由她以前用作专家证人的一名男子签署的，其证词受到质疑。白宫办公厅主任马克·梅多斯一再积极地推回鲍威尔女士的提议，说提议超出了特别顾问的想法。
+
+鲍威尔女士指责特朗普的其他顾问都是轻言放弃的人
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20021734/2020112213584465.jpg)
+自选举以来，特朗普和朱利安尼一直在推动数据，以提供广泛选举舞弊的证据,并敦促即将离任的司法部长威廉·巴尔任命一名特别顾问调查选举舞弊，并任命一位调查小约瑟夫·拜登的儿子亨特·拜登的律师。而巴尔却说，司法部没有发现任何足以改变选举规模的欺诈行为.
+
+两位了解讨论情况的消息人士说，朱利安尼本周打电话给国土安全部副部长库奇内利，推动该部门重新检查多米尼投票机器。据说，库奇内利回复该机构没有权力控制这些州的投票机.
+
+上个月总统解雇了网络安全机构负责人克里斯托弗·克雷布斯。因为他称2020年的选举是”美国历史上最安全的”。网络安全机构主要为州和地方政府领导人提供支持、指导和情报，消除投票系统的潜在威胁。
+
+【文章仅代表作者个人观点】
+
+本文作者:Sherryok水云间
+审核校对:玫瑰天空
+上传排版:糖果儿
+
+0
