@@ -1,34 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯: 林伍德表示国家情报总监办公室已获得拜登作弊证据
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/668768/)
+## 【Jenna Ellis转推】假总统乔拜登的赝品深夜喜剧秀
+` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/668921/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
+视频来源 TVline .com
+12月19日NBC NEWS深夜喜剧系列周六夜场，继Jim Carrey宣布不再模仿乔拜登后，一名真演员Alex Moffat接替了此殊职。他和Maya Rudolph扮演的Kamala Harris (民主党副总统候选人）在台上做了精彩脱口秀。
 
-2020年12月20日，林·伍德发推：绝大多数人完全不了解国家情报总监办公室的情报能力。如果情报在网络上，他们能全部获得。全部意味着所有。其它国家也能获得这些情报。拜登作弊，并被抓现行。
+当被问到你今天看起来有点不一样时，赝品乔拜登说，“我今天像Colonel Sanders（肯德基爷爷）”,”每次你看到我，我都是一个不同的家伙。明年这个时候，我很有可能会成为Mario Lopez（一名美国演员）。
 
-Most of us do not have a full appreciation of the intelligence capabilities of Office of Director of National intelligence. If it is on the Internet, they get it ALL. ALL means ALL. Other countries can get it too. Biden cheated. He got caught.
+他继续说，“我只想让美国人民知道一件事：你们将再次拥有一位真正的领袖”，“而且你们将拥有美国政治史上最多样化的内阁。”
 
+当选副总统Harris的赝品这时说，”我会确保乔永远不会具体说明他所说的’多元化’是什么意思，”她说。”这是我送给你们的圣诞礼物，美国人。”
 
+评议，Alex Moffat是继 Jason Sudeikis，Jim Carrey之后在深夜喜剧夜场第三位扮演乔拜登的人，这次开门红，在一出场，步履蹒跚的“乔拜登”摔了大跟头。是不是前任表演者受到了压力相继离开节目，我们不得而知，但是对乔拜登的极尽嘲讽等风气在美国大选期间没有停止过，尤其在大选进入第二阶段接近公布日期时，支持川普总统的民意趋于沸腾，人们更加厌恶了这个大选盗窃集团前台的小丑，把他老糊涂、不知所云的丑态表现得淋漓尽致，虽然民调显示，更多观众喜欢过去对乔拜登的扮演者，新任赝品在乔拜登的言语神态上仍然不失逼真。
 
-> Most of us do not have a full appreciation of the intelligence capabilities of Office of Director of National intelligence.
-> 
-> If it is on the Internet, they get it ALL. 
-> 
-> ALL means ALL.
-> 
-> Other countries can get it too. 
-> 
-> Biden cheated. He got caught. [pic.twitter.com/x7cWojq664](https://t.co/x7cWojq664)
-> — Lin Wood (@LLinWood) [December 20, 2020](https://twitter.com/LLinWood/status/1340510857499951104?ref_src=twsrc%5Etfw)
+川普竞选团队宪法律师Jenna Ellis转推了这个视频，并对民意偏好投票结果评价称，”看上去Alex没收到多少支持，就像真正的候选人乔拜登一样。笑晕了。”
+
+新闻来源 https://tvline.com/2020/12/19/snl-joe-biden-alex-moffat-replacing-jim-carrey-video/
 
 
-
-本应12月18日发布的国家情报总监报告，因部分成员不想将中共干涉美国大选的证据放入其中而推迟到1月份。林伍德此次发推，明确证实国家情报总监办公室已经获得拜登大选作弊的全部证据，同时暗指这些证据也被其它国家掌握。结合路德社节目分析，其它国家至少包括中共国和俄罗斯。假如拜登当选总统，中俄就能利用这些证据控制他，进而间接控制整个美国。 林伍德此次故意透露这些信息给美国人民，就是直接给国家情报总监办公室施压，要求他们按照事实发布报告。如果因为中共干涉，不将这些证据纳入报告，将会引起美国人民的极大反弹和对真相的寻求。
-
-本文作者:Stranger
-审核校对:玫瑰天空
-上传排版:糖果儿
 
 0

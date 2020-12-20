@@ -1,21 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 针对苹果公司提出的第一修订本中诉讼理由的抗辩,原告提出异议之要点及法律依据备忘录【法庭文件全文翻译】
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/668810/)
+## 这不仅仅是个例 中共国四川小学生坠楼自杀 死前留遗书：自己活得太累了！
+` GM108` [轉載自GNews](https://gnews.org/zh-hans/668841/)
 
-## 【[法庭文件英文原文PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040643/2-Pham-v.-Apple_Plaintiff-Opp-MTD-2-10-14.pdf)】【[中文全文翻译PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040715/v2.0-Tracy-Pham-v.-Apple_2nd-Memo.pdf)】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040803/PDFtoJPG.me-01-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040809/PDFtoJPG.me-02-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040811/PDFtoJPG.me-03-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040814/PDFtoJPG.me-04-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040819/PDFtoJPG.me-05-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040821/PDFtoJPG.me-06-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040825/PDFtoJPG.me-07-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040827/PDFtoJPG.me-08-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040830/PDFtoJPG.me-09-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040939/PDFtoJPG.me-10-1-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040837/PDFtoJPG.me-11-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040839/PDFtoJPG.me-12-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040844/PDFtoJPG.me-13-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040848/PDFtoJPG.me-14-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040851/PDFtoJPG.me-15-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040854/PDFtoJPG.me-16-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20041006/PDFtoJPG.me-17-scaled.jpg)
-**前员工起诉苹果公司的进展情况：**
+作者：小妍说
 
-1. [前员工起诉苹果公司: 因政治派别不同而遭受其歧视, 报复, 骚扰以及解雇等不当行为](https://gnews.org/zh-hans/646660/)
-2. [被告苹果公司要求删除申诉的动议要点和授权备忘录](https://gnews.org/zh-hans/646888/)
-3. [原告提出异议并请求法院驳回被告苹果公司的全部罢诉动议](https://gnews.org/zh-hans/646967/)
-4. [法庭驳回被告苹果公司对原告《民事诉讼法》中的第一和第二 项诉讼理由提出的抗辩](https://gnews.org/zh-hans/647110/)
-5. [针对苹果公司提出的抗辩,原告提出异议之要点及法律依据备忘录](https://gnews.org/zh-hans/658360/)
-6. [针对苹果公司提出的第一修订本中诉讼理由的抗辩,原告提出异议之要点及法律依据备忘录](https://gnews.org/zh-hans/668810/)
+12月15日早上，四川泸州一小区内，一名男孩留下疑似“遗书”的字条后坠楼身亡。而究竟是什么原因导致的这么小的孩子就开始怀疑世界，失去了生活的希望，用这种无法挽回的方式来结束自己的生命呢？随后，小男孩的遗书曝光，是孩子自杀前手写的一张字条，上面写着：如果你看到了这封信，我大概已经死了。我不得不说，我活得太累了。你们从小便希望我如同成人一般。现在，又想让我早已遗失的东西找回来。老师对我的失望，同学开玩笑般的话语，为你们我早已绝望。现在，我只希望，能多睡一会儿。对了，忠山公园那幢楼的书房抽屉里，有些东西要给你们看……而在落款处，男孩还称自己“恐惧并绝望着”。从孩子留的字条中可以看到，里面大批量的在宣泄自己太累了，并且像是从学校到家庭，每个人都给了他巨大的压力一样。到底是出了什么问题才引得一个仅仅上小学的一个孩子能有这么大的压力呢？当地教育局表示，目前不能透露该事件详情，具体事发原因警方正在调查中。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20041003/1617A628-CA83-48BA-A945-AC6E4A59AF7C.png)
+孩子才上小学，竟然能写出如此绝望的文字，到底那个幼小的心灵究竟承受了多大的压力才能写出如此绝望的话？想一想还是从前的孩子有个相对快乐的童年，现在的孩子我不知道他们还能不能感受到快乐，每天除了上课就是补习，加上很多的中共国的父母还是没学会把孩子当个人来看，觉得孩子只要严肃，施压，批评，教育，他就乖了就听话了就能做到了，总是觉得孩子小，做所有的决定都不会跟孩子商量，只觉得这是为他们好。但其实他们所施加的这些压力，早已经超出了一个孩子的承受能力，并且这种压力原本不应该属于他这个年纪。为什么这些父母不能好好想一想，她们小的时候，自己父母这样对自己时，自己心里的感受是怎样的？这些家长太贪了，总是希望自己没得到的，指望孩子给他拿到，还自我催眠，说是为了孩子好，说自己辛苦都是为了孩子。这就是对孩子的一种精神控制和摧残。千万不要把孩子当成附属品，觉得是自己的东西，我说要怎样，他就得怎样，把教育孩子变成了训动物，跟动物一样的，他们确实多半不敢反抗，但是跟动物不一样的，他们可以选择灭亡。奉劝各位父母，无论怎样，人一定要学会将心比心。尤其对你的孩子，不要等到失去的那一刻，后悔莫及。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20041018/8AA59A8F-8A5A-451F-BDE5-3CBA43DC5E5C.png)
+这个孩子的死去可能是因为学习压力，可能是父母给的压力，可能是学校老师给的压力。而某种程度上父母的压力和学校的压力也是中共统治的这个扭曲社会所“赋予”的，导致现在的人越来越不像人了，像机器，像程序。中共一直灌输的畸形价值观就是人必须成功。中共国的学生，从小就被问有什么理想，这理想还必须是大人喜欢的理想，如果哪个小孩说长大了想去修车，等着他的就是一顿打。从小学就必须会英语，会奥数，会钢琴，会舞蹈。有多少父母想上大学，但是没考上，就把这个任务转嫁到孩子身上，全然不管孩子的想法。中共国的孩子，不得不从小背负着别人的梦想，被社会观念的绑架，苦哈哈地力求不出错。就是中共灌输的这种扭曲的价值观，使这些孩子一生都活在巨大的痛苦中，只能用放弃生命来摆脱这种致命的压力与绝望。
 
+（文章仅代表作者个人观点）
 
-#### **By【秘密翻译组 G-Translators】**
+GNEWS之前文章：
+
+社会三观扭曲让孩子手里的刀指向了母亲[https://gnews.org/zh-hans/658860/](https://gnews.org/zh-hans/658860/)
+
+中共统治的高压社会下 让人心都坏了 [https://gnews.org/zh-hans/653994/](https://gnews.org/zh-hans/653994/)
+
+中共计划开放三胎 怎么生？怎么活？[https://gnews.org/zh-hans/646975/](https://gnews.org/zh-hans/646975/)
+
+新闻链接：[https://news.163.com/20/1216/13/FTVJSN7200019K82.html](https://news.163.com/20/1216/13/FTVJSN7200019K82.html)
 
 0

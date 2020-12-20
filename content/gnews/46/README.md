@@ -1,31 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 灭共民意爆发：台北寒风中两千人挺川游行
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/668764/)
+## 针对苹果公司提出的第一修订本中诉讼理由的抗辩,原告提出异议之要点及法律依据备忘录【法庭文件全文翻译】
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/668810/)
 
-多伦多枫叶农场 向真
+## 【[法庭文件英文原文PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040643/2-Pham-v.-Apple_Plaintiff-Opp-MTD-2-10-14.pdf)】【[中文全文翻译PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040715/v2.0-Tracy-Pham-v.-Apple_2nd-Memo.pdf)】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040803/PDFtoJPG.me-01-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040809/PDFtoJPG.me-02-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040811/PDFtoJPG.me-03-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040814/PDFtoJPG.me-04-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040819/PDFtoJPG.me-05-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040821/PDFtoJPG.me-06-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040825/PDFtoJPG.me-07-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040827/PDFtoJPG.me-08-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040830/PDFtoJPG.me-09-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040939/PDFtoJPG.me-10-1-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040837/PDFtoJPG.me-11-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040839/PDFtoJPG.me-12-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040844/PDFtoJPG.me-13-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040848/PDFtoJPG.me-14-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040851/PDFtoJPG.me-15-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040854/PDFtoJPG.me-16-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20041006/PDFtoJPG.me-17-scaled.jpg)
+**前员工起诉苹果公司的进展情况：**
 
-校对上传 XM
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20033825/2659689-1.jpg)图片来源：yandex
-2020年12月19日，约两千人冒着冬天的寒冷来到台北市的信义广场，参加了挺川灭共游行活动。
-
-早在2020年11月30日，日本的东京、大坂率先举行各有上千人参加的挺川游行，旨在声援在大选中处于困难的川普总统。20天内发生了3场颇具规模的挺川游行，在以往的历史中，万里之外的亚洲人民，频繁集会游行支持同一位美国总统的现象十今罕见。
-
-究其原因，是热爱民主自由的各国人民，已经感受到来自邪恶中共的巨大威胁。他们从中共背信弃义摧残香港的民主、控制美国的主流媒体、操控美国的大选、发动超限生物战中看到，中共通过操弄人性中的弱点，把其极权社会主义统治模式强加给美国，显然已经非常接近成功。如果美国被中共攻陷，其他民主国家亦必将陷入劫难。这就是他们喊出“挺川灭共”的原因。
-
-由垄断资本控制的美国主流媒体和社交平台，比如CNN、华尔街日报、纽约时报、脸书、推特、油管等等，和中共沆瀣一气，拜登这样的权力精英和中共结成利益共同体，美国的三权部门，都被深层政府深度操控，在大选中呈现“海啸般的腐败”（Dr.Bo），这些丑恶现象的发生，主要是中共对美国多年实施蓝金黄，削弱美国的传统价值和淘空美国经济的结果。
-
-川普是一位言行一致的总统，是一位平民主义者，他多次重申，美国不会实行社会主义。他上任后除了推行产业回归，还为劳动阶层大幅减税，实行降低纳税人负担的小政府治理模式，和民主党的大政府高税收完全不同，因此得到中下层民众的拥护，但同时触犯了垄断资本集团和中共的利益。
-
-中共和垄断资本集团，在全球化中已经结成利益共同体，他们通过剥削欠发达国家的奴隶劳工，把廉价商品倾销到全世界，达到破坏发达国家经济体系、弱化西方阵营的目的，当川普总统代表平民主义者对他们说“不”时，当然招致他们的激烈攻击，其中就包括中共的病毒攻击。
-
-推倒防火墙后，中国人民也将彻底觉醒，和日本、香港、台湾乃至全世界的正义力量一道消灭中共。
-
-参考链接：
-
-[https://www.epochtimes.com/gb/20/12/19/n12632081.htm](https://www.epochtimes.com/gb/20/12/19/n12632081.htm)
+1. [前员工起诉苹果公司: 因政治派别不同而遭受其歧视, 报复, 骚扰以及解雇等不当行为](https://gnews.org/zh-hans/646660/)
+2. [被告苹果公司要求删除申诉的动议要点和授权备忘录](https://gnews.org/zh-hans/646888/)
+3. [原告提出异议并请求法院驳回被告苹果公司的全部罢诉动议](https://gnews.org/zh-hans/646967/)
+4. [法庭驳回被告苹果公司对原告《民事诉讼法》中的第一和第二 项诉讼理由提出的抗辩](https://gnews.org/zh-hans/647110/)
+5. [针对苹果公司提出的抗辩,原告提出异议之要点及法律依据备忘录](https://gnews.org/zh-hans/658360/)
+6. [针对苹果公司提出的第一修订本中诉讼理由的抗辩,原告提出异议之要点及法律依据备忘录](https://gnews.org/zh-hans/668810/)
 
 
+#### **By【秘密翻译组 G-Translators】**
 
 0

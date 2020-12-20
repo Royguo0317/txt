@@ -1,121 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《God Bless the U.S.A. 天佑美国!》歌词翻译
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/669169/)
+## 《路德社》精选新闻快讯: 美国校园里的中国共产党
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/668834/)
 
-翻译者：Lucky Star Maggie
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040714/1220.png)
+从蓬佩奥国务卿2020年12月9日在佐治亚理工学院的演讲可以得出出一个结论：中共——这个邪恶独裁政权是美国和全世界的威胁，让我们站起来捍卫国家安全，抵抗中共吧！
 
+从蓬佩奥国务卿举的几个校园案例中， 不难看出中共为了窃取各行各业各类技术, 使出浑身解数——威逼、利诱，恐吓、招募美国高校的人才为中共集权所使用（特别是无辜的华裔); 不惜一切代价地让美国高校自我审查, 压制言论自由, 让批评中共的人禁言.
 
-视频出处：[Home Free – God Bless the U.S.A. (featuring Lee Greenwood and The United States Air Force Band)](https://www.youtube.com/watch?v=SrMftm6Km3g&amp;feature=youtu.be)
-**歌词翻译：**
+在此，希望海外华人看清楚中共的险恶用心，替中共卖命，换不来尊重与地位，却会让你的子孙被世界唾弃。
 
-If tomorrow all the things were gone
-如果明天我将丧失我所有的一切
+希望中共党员们看清楚中共卸磨杀驴的嘴脸，给中共做事，结局你懂的，回头是岸，做污点证人也好过王建，不是么。
 
-I’d work for all my life
-我将再次拼搏
+希望中共国墙内的人们看清楚中共的邪恶政权，在安全的情况下， 保存好各种罪证。
 
-And I had to start again With just my children and my wife
-不得不和我的妻儿一道重新开始
+[援引](https://www.state.gov/the-chinese-communist-party-on-the-american-campus/)
 
-I’d thank my lucky stars To be living here today
-我会感激我的幸运星今天仍飘扬在这里
-
-‘Cause the flag still stands for freedom
-因为我们的国旗依旧代表着自由
-
-And they can’t take that away
-他们不能夺走我们的自由
-
-And I’m proud to be an American
-我为我是一个美国人而骄傲
-
-Where at least I know I’m free
-在这里至少我知道我是自由的
-
-And I won’t forget the men who died Who gave that right to me
-我不会忘记那些为我们争取自由而牺牲的人们
-
-And I gladly stand up next to you
-今天我愿意站起来和你肩并肩
-
-And defend her still today
-再次为保卫我们自由的国家而战斗
-
-‘Cause there ain’t no doubt I love this land
-毫无疑问因为我深深地爱着这片土地
-
-God Bless the U.S.A.
-天佑美国
-
-From the lakes of Minnesota
-从明苏尼达州的湖泊
-
-To the hills of Tennessee
-到田纳西州的小山
-
-Across the plains of Texas
-横越德克萨斯州的平原
-
-From sea to shining sea
-从大西洋到闪耀的太平洋（源自“美丽美国”的诗）
-
-From Detroit down to Houston
-从底特律到休斯顿
-
-And New York to L.A.
-纽约到洛杉矶 （意指美国全境）
-
-Where there’s pride in every American heart
-所到之处每个美国人的心中都充满自豪
-
-And it’s time we stand and say that
-在这个时刻，我们站起来宣告，
-
-I’m proud to be an American
-我为我是一个美国人而骄傲
-
-Where at least I know I’m free
-在这片土地上至少我知道我是自由的
-
-And I won’t forget the men who died Who gave that right to me
-我不会忘记那些为争取我们的自由牺牲的人们
-
-And I gladly stand up next to you
-我愿意站起来和你肩并肩
-
-And defend her still today
-再次为保卫我们自由的国度而战斗
-
-‘Cause there ain’t no doubt I love this land
-毫无疑问因为我深深地爱着这片土地
-
-God Bless the U.S.A.
-天佑美国
-
-God Bless this country
-天佑这个国家
-
-And I’m proud to be an American
-我为我是一个美国人而骄傲
-
-Where at least I know I’m free
-在这里至少我知道我是自由的
-
-And I won’t forget the men who died Who gave that right to me
-我不会忘记那些为争取我们的自由牺牲的人们
-
-And I gladly stand up next to you
-我愿意站起来和你肩并肩
-
-And defend her still today
-再次为保卫我们自由的国家而战斗
-
-‘Cause there ain’t no doubt I love this land
-毫无疑问因为我深深地爱着这片土地
-
-God Bless the U.S.A.
-天佑美国
+本文作者：一切心皆不可得！
+审核校对：玫瑰天空
+上传排版：糖果儿
 
 0
