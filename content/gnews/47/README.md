@@ -1,25 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1219】-面对中共的威胁
-` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/667724/)
+## 【林伍德律师推文1219】-推特封了大律师的账号
+` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/667784/)
 
-新闻採集 喜马拉雅的文雅
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19194854/joe-threaten-Isareal.jpg)
-当日林伍德律师发推：
-
-“乔 ‘贿赂’ 拜登多年前就不应该威胁切断对以色列的援助。请看以下梅纳西姆-贝京(Menachem Begin)的回应。”
-
-1982年议员乔拜登对后以色列总理威胁切断援助时，贝京强力回应：“不要以切断援助来威胁我们。不会奏效的。我们不是膝盖颤抖的犹太人，我们是拥有3700年文明历史的犹太人，我们在毒气炉快死的时候，没人来帮助，我们奋力开创国家时没人来帮助，我们自己承担了。我们为之而战，可以战死疆场。我们坚持立场，保卫信仰。必要的时候，我们会再次为之献上生命，不管有没有你的援助。”
-
-林伍德在推文中称，“**中共应该知道共产主义者对美国的威胁让我们有同感（和贝京一样的态度和回应）。**”
+新闻采集 喜马拉雅的文雅
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19201638/Twitter-ccp.jpg)图片来自 twitter .com
+林伍德律师当日发推，提醒网友律师楼的账号被封，出现了假账号。
 
 
-
-> Joey “Bribes” Biden should have never threatened to cut off aid to Israel years ago. Read Menachem Begin’s response below.
+> “爱国者们，
 > 
-> CCP should know we feel the same way about Communists threatening America. [pic.twitter.com/frbpjiszlE](https://t.co/frbpjiszlE)
-> — Lin Wood (@LLinWood) [December 20, 2020](https://twitter.com/LLinWood/status/1340447407591579648?ref_src=twsrc%5Etfw)
+> “请举报 @raken\_wood 假账号，他们不隶属于西德尼-鲍威尔律师 @SidneyPowell1 或我本人。
+> 
+> “我们的账户 @rakkenwood 已被推特封锁。我们正在努力让它恢复。我们在 #反击。
+> 
+> “准确信息请访问Kraken-Wood. com 并关注 @KrakenWood 在Parler上的账号。”
+
+
+推特大搞中共的手段，不但封号封到大律师头上，一个以假乱真的账号“刚好”及时出现。当然，推特在230法案前也真够“大义凌然”，纵然是一死，何惧多作恶。他们收敛了大规模封号之举，对关键人物实施打击，他们畏惧的已经不是法律的严惩，而是眼前股市的曲线，和“上边”来自中共的淫威。
 
 
 

@@ -1,23 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020.12.19台湾挺川大游行
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/667805/)
+## 美国司法部起诉ZOOM中国高管
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/667847/)
 
-台灣農場（籌備） zhong
+台湾农场(筹备) Amitofu
 
-相關新聞
-[https://www.epochtimes.com/b5/20/12/19/n12631766.htm](https://www.epochtimes.com/b5/20/12/19/n12631766.htm)
-[https://www.epochtimes.com/gb/20/12/19/n12631913.htm](https://www.epochtimes.com/gb/20/12/19/n12631913.htm)
+美国司法部表示，纽约布鲁克林联邦法院18日，起诉和发出逮捕令指控”金新江（Xinjiang Jin）“涉嫌共谋跨州骚扰罪和非法共谋转让身份证明罪，金新江担任中共执法部门和情报机构间的主要联络人，负责向中共提供公司视讯平台的用户和会议讯息，包含Internet协议IP地址，用户名称和电子邮件地址，也负责监控视讯平台上被中共认为是非法政治和宗教议题的会议。根据路透社报导金新江任职的视讯软件公司就是Zoom公司。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19203734/zoom-355x225.jpg)圖片來源:FBI網站
+布鲁克林联邦法院起诉书指出，金新江涉嫌破坏2020年5、6月为纪念8964天安门广场屠杀举行的一系列会议。从2019年1月至今，金新江和其他人共谋终止了在Company-1网络上举行的『纪念天安门大屠杀三十周年』至少四场视频会议，参加者大部分由美国驻华大使馆组织和在1989年抗议活动中幸存下来的人，起诉书指39岁的金新江被将面临最高10年监禁。
 
-于台湾台北市，12月19日下午，台北市信义广场，台湾民众聚集、参加挺川普集会游行。该游行举办目的，是希望透过挺川普游行向外界传达，台湾支持川普连任、声援反美国大选舞弊、反中共、支持香港捍卫民主自由等议题。
+国家安全助理总检察长约翰·德默斯（John C. Demers）表示：“在美国中企的高管都必须接受中共情报部门的领导，扼杀镇压全世界中国人民的言论自由。” 代理美国检察官塞斯也表示：“中共要求在中国境内发展业务的美国科技公司，必须按照中共指示，对中国境内用户的政治和宗教言论保持沉默。金新江帮助中共当局审查美国用户的核心政治言论。提供任何不利中共言论的用户，和不被接受的政治宗教议题。” 目前 FBI联邦调查局宣布金新江已经逃回中国。本文仅代表个人立场
 
-爆料革命在台湾团队，对于挺川普、反共、反美打选舞弊的游行活动当然不会错过。整体台湾团队组织约三十五人前往现场，手持中华民国国旗、新中国联邦国旗等旗帜，并手持标语，顶着寒温身赴现场提供声援。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19202227/EplUSdhUcAIKaQP.jpg)
-台湾民众自美国大选尚未开始之时，对于大选结果就已经十分在意。原因是台湾人民知道川普总统在捍卫台湾存亡所付出的努力，并且对川普总统的付出心怀感谢。
+资料来源: 美国司法部[https://www.justice.gov/opa/pr/china-based-executive-us-telecommunications-company-charged-disrupting-video-meetings](https://www.justice.gov/opa/pr/china-based-executive-us-telecommunications-company-charged-disrupting-video-meetings)
 
-然而本次美国总统大选遭到中共控制，而台湾媒体在美国总统选举尚未确定落幕之际，大肆报导拜登当选等不实消息。并且对于川普总统在司法上采取的行动、司法上取得的胜利，一律消极的不报导，导致台湾民众对于美国大选真相、现况，无法透过台湾新闻媒体有正确的认知。本次由大纪元举办的集会游行活动，主要诉求就是向外界明确表达台湾人民支持川普总统连任。
-
-集會遊行活動參與分享：[https://gnews.org/zh-hant/667756/](https://gnews.org/zh-hant/667756/)
+FBI联邦调查局[https://www.fbi.gov/wanted/counterintelligence/xinjiang-jin](https://www.fbi.gov/wanted/counterintelligence/xinjiang-jin)
 
 0

@@ -1,71 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 当委会敦促開除中共国的 “老朋友”姆努钦
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/667944/)
+## 解放军“爽约”中美海上军事安全对话并恶人先告状
+` GM77` [轉載自GNews](https://gnews.org/zh-hans/668035/)
 
-新闻来源：当前危机委员会(Committee on Present Danger: China);
+整撰：文錦   复核: WENJUN
 
-作者：Hamilton Strategies; Marjorie Pratt; 发布时间：2020年12月18日
+美国印太司令部（U.S.INDOPACOM）官网来自夏威夷州史密斯营地16日的新闻稿指出，解放军拒绝出席原定于2020年12月14日至16日与美国印太司令部举行的虚拟海上军事安全协商机制（MMCA）会议。
 
-翻译/简评：MikeHua；校对/审核：TCC；Page：小雨
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19220709/%E5%9B%BE%E7%89%87-1-34.png)
 
-**简评：**
+美国印太司令部迈克尔·斯派克上校正在等待人民解放军参加为期三天的虚拟MMCA电话会议（来自美国印太司令部官网）
 
-姆努钦作为中共和华尔街在白宫的代理人，吃中国人民的肉，喝中国人民的血，为中共在白宫做苟且之事，不服从川普总统的政策。早在今年6月，川普总统就通过了《香港自治法》以及一系列其他的行政命令要求制裁中共在香港的金融机构以及其他相关企业，但是到了财政部就石沉大海，了无音信，其中原因就是姆努钦作为财政部长把这些决策都当成耳旁风，坚决当中共的走狗。如今当委会忍受不了姆努钦进一步不符合川普政府对抗共产党政策的行为，正式发出警告，并且呼吁川普总统将姆努钦撤职。但是这事不容易，因为姆努钦是沼泽地的鳄鱼，而鳄鱼是有主人的，这事情川普总统一人说了不算。但是中共自己作死，病毒的事情已经被西方世界定性为生物武器，只等备战完成之后开干，届时这些当中共走狗迫害中国人民的人一个都沒好下场。
+自1998年以来，美国和中华人民共和国（People’s Republic of China）定期举行会议，开展MMCA对话，作为改善军事海上安全的协商机制，以加强空中和海上作业安全，并减少我们两国军队之间的风险。由于COVID-19疫情持续不断，国防部（DOD）和解放军同意以虚拟方式举行2020年MMCA会议。此次交流是《美中2020防务交往计划》中双方同意的一项活动
 
-**原文翻译：**
+美国印太司令部司令戴维森（Phil Davidson）上将说：”中国拒绝出席MMCA是中国不履行协议的又一例证，这应该成为所有国家在未来与中国达成协议时的提醒。”。
 
-**新闻发布—停止姆努钦的叛国行为—不執行川普总统禁止邪恶的中共企业指数与基金证券的行政命令**
+MMCA的目的是回顾美军和解放军之间发生的不安全军事事件；评估美中两国在空中和海上安全的行为规则；讨论根据国际法改善海上和航空安全的行动方法。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/bTa2Dj5itRPP7/images/8bee4fce-ce86-462e-a2fe-818948d7ee97.jpg?asset_id=8e546999-9d5d-4700-aafb-c01205cea780&amp;img_etag=%223bedb3cf07d6dbf0af3ad5b6e28d14ec%22&amp;size=1024)](https://spark.adobe.com/page/bTa2Dj5itRPP7/images/8bee4fce-ce86-462e-a2fe-818948d7ee97.jpg?asset_id=8e546999-9d5d-4700-aafb-c01205cea780&amp;img_etag=%223bedb3cf07d6dbf0af3ad5b6e28d14ec%22&amp;size=1024)
+国防部将继续寻求与解放军建立建设性的、稳定的、注重结果的关系，并将在适当的场合解决解放军的关切。我们的优先事项是预防和管理危机，减少在彼此附近行动的部队的风险，并在利益一致的地方进行合作。
 
-***当委会与国家、国防部一致敦促開除中共国的 “老朋友”***
+“我们仍然致力于MMCA，并呼吁解放军以符合MMCA宪章和作为行动安全对话目的的方式举行MMCA对话，”戴维森说。
 
-华盛顿哥伦比亚特区—《金融时报》和其它媒体机构曝光了川普政府内部的激烈争论，被华尔街内部人士在最后一刻破坏了川普总统最重要地用来对抗中国共产党的对策之一：“应对证券投资资助中共军方企业所带来的威胁的行政命令”。这项行政命令是川普总统用于阻止指数和交易所交易基金(Exchange Traded Funds)将美国人的钱投资中共军方企业和军企的子公司。
+对于美方的指责，中共赶紧推脱责任。中共外交部发言人汪文斌17日在记者会称，中方未能如期赴约，“责任完全在美方，美国对中国的指责站不住脚，也不负责任。”
 
-该行政命令下的一些指数，如明晟 (MSCI)和富时罗素(FTSE Russell)，已经明智地抛售了中共军企的股票。然而在这种情况下，其他的指数像那些华尔街的“北京银行家”及他们的客户中共一如既往地做着同样的事情，就是使用他们在美国的权力，资源和影响力为中共的利益服务，而非美国的利益。
+当晚，中共人民海军微信公众号消息称，11月18日，中方向美方提供了关于此次会议议题和安排的中方建议。但美方执意强推其单方面议题设想、任意压缩年度会晤时长、改变年度会晤性质，甚至在双方尚未就议题达成一致的情况下，企图强压中方参会。美方这些不专业、不友好和不具建设性的做法，体现了美方一贯的霸凌作风，违反国际惯例，违反MMCA中有关相互尊重和协商一致的原则，损害中国海军与印太总部之间的信任。
 
-正如中国人民大学教授翟东升上月在一个广传的中文电视新闻上说的，这样的影响活动他们搞了数十年：
+中共流氓本色的外交作风是其一贯丑态，即便美方在会议之前没有作任何动作，中共军方缺席海事安全会议并反咬一口指责美方霸凌作风，是中共运用拖延战术，并为伺机制造军事“碰瓷”预设是美方的责任作铺垫。美国已完全认清中共的险恶动机，爱国者们一定会在取得总统大选决定性胜利的同时对中共实施致命的打击。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/bTa2Dj5itRPP7/images/b20bcae9-a395-4b24-93db-bc672d2ad288.jpg?asset_id=feab2b7e-9330-40f9-ab19-63c9010f7724&amp;img_etag=%2217a233caedfd9db8cae0c21c45261b10%22&amp;size=1024)](https://spark.adobe.com/page/bTa2Dj5itRPP7/images/b20bcae9-a395-4b24-93db-bc672d2ad288.jpg?asset_id=feab2b7e-9330-40f9-ab19-63c9010f7724&amp;img_etag=%2217a233caedfd9db8cae0c21c45261b10%22&amp;size=1024)
+参考链接：
 
-“…自1970年代开始，华尔街对美国的国内外事务有很大的影响力。问题是华尔街的地位自2008年之后下降了。但是更重要的是，在2016年之后…华尔街搞不定川普…在中美贸易协议中，他们试图帮忙。但是我在美国的朋友告诉我他们试图帮忙，但是能力不够。”
+[https://www.pacom.mil/Media/News/News-Article-View/Article/2449543/pla-a-no-show-for-operational-maritime-and-aviation-safety-dialogue/#.X9uAoSjEdNA.twitter](https://www.pacom.mil/Media/News/News-Article-View/Article/2449543/pla-a-no-show-for-operational-maritime-and-aviation-safety-dialogue/#.X9uAoSjEdNA.twitter)
 
-但是，川普总统前所未有的对抗中共的纪录，已一再地被翟教授所称的中共国“老朋友”所破坏：就是财政部長和华尔街老油条和盟友的姆努钦(Steven Mnuchin)。
+[https://news.sina.com.cn/c/2020-12-18/doc-iiznezxs7525360.shtml](https://news.sina.com.cn/c/2020-12-18/doc-iiznezxs7525360.shtml)
 
-以下是《金融时报》介绍姆努钦目前如何破坏川普总统最近的而且可能是至今最坚决的提案，这项对应中共国威胁的提案为禁止美国投资人民解放军前台企业和子公司的行为：
-
-“三个熟悉内部争议的人说财政部希望此禁令中排除中共的子公司，但这被国务院和五角大楼严令驳斥，他们说不包含子公司会巨幅削弱川普总统行政命令的影响”。
-
-正如通常情况一样，辩论的关键是对抗中共国，而不是加强他们，这是彭佩奥国务卿早就明确表明的。《金融时报》报道如下：
-
-“麦克•彭佩奥国务卿上周提出关于被列入黑名单公司的子公司的数目之多而担忧，这些子公司被列于股市和证券指数之中。他说35个被五角大楼制裁的公司中，24个公司的子公司被包含在主要证券指数中。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/bTa2Dj5itRPP7/images/764fc122-f208-4cfc-8bbe-f1d41c32f788.jpg?asset_id=4f57df44-f1de-45d5-a477-f2a716473b92&amp;img_etag=%22327c5af591271f50fee0975a8ff7a5a2%22&amp;size=1024)](https://spark.adobe.com/page/bTa2Dj5itRPP7/images/764fc122-f208-4cfc-8bbe-f1d41c32f788.jpg?asset_id=4f57df44-f1de-45d5-a477-f2a716473b92&amp;img_etag=%22327c5af591271f50fee0975a8ff7a5a2%22&amp;size=1024)
-
-“‘资金流向这些指数基金…支持设计军用民用的中共企业’，他说。‘一些公司为监控公民和压迫人权研发技术，例如在维吾尔人和其他在新疆的穆斯林少数民族上’”。
-
-“彭佩奥先生说一些在明晟指数上的中共企业给美国造成了‘严重国家安全和人道担忧’，这使得他们被美国制裁。
-
-应对中国当前危机委员会主席布賴恩•T•肯尼迪 (Brian T. Kennedy) 评量此内部爭论并对川普提出強力要求，希望川普总统开除支持中共不忠诚的姆努钦：
-
-“当前危机委员会相信这项行政命令的目的很明确，在最大程度上确保它的完整性是对美国国家安全非常重要。我们会視任何造成当前美国投资散户保护的减少，以及对我们国防和人权为前提的事务严重及不符合良知的失职，我们会相應地提出反对”。
-
-当委会在12月14日指出：“姆努钦的行为一直很危险，并且不服从指挥。现在，这行为已到了忍无可忍。因此， 当委会今天在DivestChina.org发表强有力的视频向他发出警告”。
-
-和最近被撤职的司法部长巴尔一样，川普的下一个撤职推特将发给中共的老朋友斯蒂夫•姆努钦。
-
-[原文链接](https://presentdangerchina.org/2020/12/release-stop-mnuchins-perfidious-effort-to-eviscerate-trump-order-barring-indexes-etf-underwriting-of-malign-ccp-companies/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/bTa2Dj5itRPP7/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/bTa2Dj5itRPP7/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
-2+
+0
