@@ -1,24 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【Jenna Ellis转推】假总统乔拜登的赝品深夜喜剧秀
-` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/668921/)
+## 【热点播报】全球第二大羟氯喹制造商台湾旭富制药工厂发生爆炸
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/669013/)
 
-视频来源 TVline .com
-12月19日NBC NEWS深夜喜剧系列周六夜场，继Jim Carrey宣布不再模仿乔拜登后，一名真演员Alex Moffat接替了此殊职。他和Maya Rudolph扮演的Kamala Harris (民主党副总统候选人）在台上做了精彩脱口秀。
+作者：香草山写作组  程万里 校对/发稿：飞虹
 
-当被问到你今天看起来有点不一样时，赝品乔拜登说，“我今天像Colonel Sanders（肯德基爷爷）”,”每次你看到我，我都是一个不同的家伙。明年这个时候，我很有可能会成为Mario Lopez（一名美国演员）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29231938/logo-3-1-1.jpg)
 
-他继续说，“我只想让美国人民知道一件事：你们将再次拥有一位真正的领袖”，“而且你们将拥有美国政治史上最多样化的内阁。”
 
-当选副总统Harris的赝品这时说，”我会确保乔永远不会具体说明他所说的’多元化’是什么意思，”她说。”这是我送给你们的圣诞礼物，美国人。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20043138/16-1.png)
+据台湾多家媒体报道，台湾时间2020年12月20日中午，台湾旭富制药工厂发生爆炸，据报道其5层楼高的厂房已全面陷入火海，黑烟更是直冲天际，有2名员工受伤，其中1名全身90％三度烫伤，被紧急送医。
 
-评议，Alex Moffat是继 Jason Sudeikis，Jim Carrey之后在深夜喜剧夜场第三位扮演乔拜登的人，这次开门红，在一出场，步履蹒跚的“乔拜登”摔了大跟头。是不是前任表演者受到了压力相继离开节目，我们不得而知，但是对乔拜登的极尽嘲讽等风气在美国大选期间没有停止过，尤其在大选进入第二阶段接近公布日期时，支持川普总统的民意趋于沸腾，人们更加厌恶了这个大选盗窃集团前台的小丑，把他老糊涂、不知所云的丑态表现得淋漓尽致，虽然民调显示，更多观众喜欢过去对乔拜登的扮演者，新任赝品在乔拜登的言语神态上仍然不失逼真。
-
-川普竞选团队宪法律师Jenna Ellis转推了这个视频，并对民意偏好投票结果评价称，”看上去Alex没收到多少支持，就像真正的候选人乔拜登一样。笑晕了。”
-
-新闻来源 https://tvline.com/2020/12/19/snl-joe-biden-alex-moffat-replacing-jim-carrey-video/
+台湾旭富制药科技公司时全球第二大羟氯喹原料药的生产厂商，羟氯喹对CCP病毒有治疗和预防效果。今年4月台湾蔡英文总统还曾到旭富制药参访并发推文“启动奎宁（羟氯喹）自制储备计划，守护国人健康！”今日惊闻爆炸，不得不令人心生疑虑。
 
 
 
-0
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+1+

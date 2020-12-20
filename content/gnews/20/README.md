@@ -1,28 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 原来“洗脑”一词竟是中共原创
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/668666/)
+## 针对苹果公司提出的第一修订本中诉讼理由的抗辩,原告提出异议之要点及法律依据备忘录【法庭文件全文翻译】
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/668810/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20031541/%E6%B4%97%E8%84%91.jpg)图片来源:维基百科
-近日我们新加坡农场热议“洗脑”这个话题，战友们纷纷发表自己的所思所想，我也参与了一句：”洗脑=独裁政权，集权政权，强权政权，因为想灌输给人民，想要人民具备扭曲的价值观，而所进行的一切活动。破解洗脑就要唯真不破。”
+## 【[法庭文件英文原文PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040643/2-Pham-v.-Apple_Plaintiff-Opp-MTD-2-10-14.pdf)】【[中文全文翻译PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040715/v2.0-Tracy-Pham-v.-Apple_2nd-Memo.pdf)】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040803/PDFtoJPG.me-01-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040809/PDFtoJPG.me-02-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040811/PDFtoJPG.me-03-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040814/PDFtoJPG.me-04-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040819/PDFtoJPG.me-05-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040821/PDFtoJPG.me-06-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040825/PDFtoJPG.me-07-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040827/PDFtoJPG.me-08-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040830/PDFtoJPG.me-09-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040939/PDFtoJPG.me-10-1-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040837/PDFtoJPG.me-11-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040839/PDFtoJPG.me-12-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040844/PDFtoJPG.me-13-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040848/PDFtoJPG.me-14-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040851/PDFtoJPG.me-15-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040854/PDFtoJPG.me-16-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20041006/PDFtoJPG.me-17-scaled.jpg)
+**前员工起诉苹果公司的进展情况：**
 
-我脑海里一闪而过朝鲜战争，随后又去谷歌了一下这个名词，结果告诉我：英文“brainwash”意指洗脑，由中文洗脑一词翻译而来；沿于上世纪1950年代的朝鲜战争，美国士兵被中共人民志愿军俘虏之后，接受中国共产党的思想改造，获救之后回到美国仍然支持中国共产党政府，于是美国记者爱德华·亨特（Edward Hunter）就用“brainwash”一词来描述此事。敢情洗脑还是中国人的发明？！
+1. [前员工起诉苹果公司: 因政治派别不同而遭受其歧视, 报复, 骚扰以及解雇等不当行为](https://gnews.org/zh-hans/646660/)
+2. [被告苹果公司要求删除申诉的动议要点和授权备忘录](https://gnews.org/zh-hans/646888/)
+3. [原告提出异议并请求法院驳回被告苹果公司的全部罢诉动议](https://gnews.org/zh-hans/646967/)
+4. [法庭驳回被告苹果公司对原告《民事诉讼法》中的第一和第二 项诉讼理由提出的抗辩](https://gnews.org/zh-hans/647110/)
+5. [针对苹果公司提出的抗辩,原告提出异议之要点及法律依据备忘录](https://gnews.org/zh-hans/658360/)
+6. [针对苹果公司提出的第一修订本中诉讼理由的抗辩,原告提出异议之要点及法律依据备忘录](https://gnews.org/zh-hans/668810/)
 
-在网络上学习了一些资料，我突然明白现代社会，洗脑已经被大量应用到政治、宗教、教育，商业上。这一醒悟顿时让我哀叹：人类谁都避免不了被洗脑。是人，谁也无法避免被洗脑了，你我都不可幸免，就看我们谁可以尽可能地吸收不同渠道信息，培养独立思考能力。
 
-而最让我心疼的莫过于以前人们津津乐道的美国第四权：
-
-美国宪法第一修正案禁止国会制定任何法律侵犯新闻自由；为了保证言论自由不被强权侵蚀，法律给予媒体极大的宽容；极少见到媒体由于过失造成社会伤害而受法律追究的案例。
-
-但是随着网络时代社交媒体平台兴起并逐渐占据舆论的主导位置，作为新兴公共权力象征，社交媒体平台也成为了洗脑的工具：这些社交媒体巨头公司动不动对我们的言论实行影子审查，只因为我们说出真相，就要对我们的社交账户进行短期的或者永久性的冻结。最近美国选举的真相视频，正在被大规模的删除中。大型社交媒体平台, 传统精英阶层, 配合作战，只想一手遮天，不让全世界人民知道真相，洗脑全世界人民，便于他们颠倒真相的观点被人民接受。
-
-所以当务之急就是让传播真相的G|News，G|TV异军突起，并可以和那些社交媒体平台如脸书，推特，油管等抗衡，要形成一定的平台规模，抵御这些洗脑世界人民的恶意传媒。
-
-战友们，请珍惜我们来之不易的媒体平台，请努力让自己真实内心的声音可以在这个平台传播，哪怕声音还很微小，但星星之火可以燎原。行动起来吧，爆料革命，没你不行！
-
-by 讨厌不靠谱的人
-
-【以上内容仅代表作者本人观点】
+#### **By【秘密翻译组 G-Translators】**
 
 0
