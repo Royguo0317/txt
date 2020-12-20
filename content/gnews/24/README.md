@@ -1,31 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国37个州指控谷歌非法垄断
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/667681/)
+## 【林伍德律师推文1219】-面对中共的威胁
+` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/667724/)
 
-*蒙特利尔皇家山战友团Spirit*
+新闻採集 喜马拉雅的文雅
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19194854/joe-threaten-Isareal.jpg)
+当日林伍德律师发推：
 
-*校对、上传 文锦*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19191528/google-monopoly1.gif)图片来源：UBC Blogs
-据The Post Millennial 12月17日报道，纽约总检察长莱蒂西亚-詹姆斯（Letitia James）与其他37个州的总检察长一起对谷歌提起诉讼。诉讼的目的是结束谷歌 “非法垄断搜索服务 “的行为。
+“乔 ‘贿赂’ 拜登多年前就不应该威胁切断对以色列的援助。请看以下梅纳西姆-贝京(Menachem Begin)的回应。”
 
-“不需要进行网络搜索就能明白，不受制约的企业权力不应该对我们的数据和信息拥有不成比例的控制权。”詹姆斯说。
+1982年议员乔拜登对后以色列总理威胁切断援助时，贝京强力回应：“不要以切断援助来威胁我们。不会奏效的。我们不是膝盖颤抖的犹太人，我们是拥有3700年文明历史的犹太人，我们在毒气炉快死的时候，没人来帮助，我们奋力开创国家时没人来帮助，我们自己承担了。我们为之而战，可以战死疆场。我们坚持立场，保卫信仰。必要的时候，我们会再次为之献上生命，不管有没有你的援助。”
 
-“几十年来，谷歌一直充当着互联网的守门人，并将我们的数据武器化，以杀死竞争对手并控制我们的决策。当谷歌继续赚取数十亿利润时，我们都在为我们每天使用的服务付出更多的代价。”詹姆斯在推特上说。
+林伍德在推文中称，“**中共应该知道共产主义者对美国的威胁让我们有同感（和贝京一样的态度和回应）。**”
 
-詹姆斯已经对Facebook提起诉讼，而这次诉讼也有相似之处。
 
-川普政府加入了詹姆斯对Facebook的两党诉讼。在提起该诉讼时，詹姆斯表示，”Facebook利用其垄断力量压制较小的竞争对手，扼杀竞争，这一切都以牺牲日常用户的利益为代价。Facebook没有改进自己的产品，而是利用消费者的优势，将消费者的个人数据转化为现金牛，赚取了数十亿美元。
 
-她还说道：”今天的诉讼应该向Facebook和其他每一家公司发出明确的信息。那些想方设法遏制竞争、减少创新或削减隐私保护的公司，将会遭到全美几乎所有总检察长办公室的全力打击。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19191630/csaafsdfeg.jpg)图片来源：CNN
-詹姆斯是两党众多对抗大科技垄断企业的人之一，称他们对竞争的收紧已经扼杀了这个行业。
+> Joey “Bribes” Biden should have never threatened to cut off aid to Israel years ago. Read Menachem Begin’s response below.
+> 
+> CCP should know we feel the same way about Communists threatening America. [pic.twitter.com/frbpjiszlE](https://t.co/frbpjiszlE)
+> — Lin Wood (@LLinWood) [December 20, 2020](https://twitter.com/LLinWood/status/1340447407591579648?ref_src=twsrc%5Etfw)
 
-川普政府一直主张取消第230条，该条款是联邦通信委员会下的一项规定，将许多科技公司的产品归类为平台而不是发行人。这意味着平台不需要为其网站上的内容负责，因为他们只是主机而不是内容创作者。
 
-除了恶性压制竞争对手，这些大科技垄断企业包括Twitter在这次大选中根据自己的政治立场随心所欲地打压掩盖真相，用假消息误导民众，一手遮天。230条款赋予的权力本应该用于删除色情和暴力方面的内容， 结果被他们用于政治目的，胡作非为。所以取消230条款势在必行，要从科技公司手中夺回数据控制权，还民众真相。
 
-原文链接
+新闻素材和图片来自林伍德律师推特
+
+
 
 0

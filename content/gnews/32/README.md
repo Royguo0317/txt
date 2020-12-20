@@ -1,37 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 一如既往的愚蠢还是假冒伪善？
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/667533/)
+## “我是音雄”人物故事 第一季，第十七集：“视频部” 的故事—低调作人，默默做事，高调展示爆料革命风采
+` GMusic` [轉載自GNews](https://gnews.org/zh-hans/666813/)
 
-摘要：乔·拜登将《诗篇》（Psalms）念成“手掌书”（palms）[译者注：Psalms 和 palms 的英文发音相近]。
+*我是音雄文字组 然小哥， 小雄 整理*
 
-【编者按】一个小小的滑稽的失误表明了几个严重的问题：他是一如既往的愚蠢还是一个假冒伪善者，也许两者都是。
-[视频来源](https://youtu.be/eNrEODVKAO0)
-Transcript (全文)：
+不论是每天的GTV新闻播报，还是新中国联邦建国直播，包括“我是音雄”竞赛现场，都会有各种小视频映入我们的眼帘。而这些视频大都归功于“视频组”战友们的默默付出。
 
-And friends, seeing you as it’s Sunday and lord’s day. I thought we might have a little reading from the scripture from America’s punitive next president that self-proclaimed devout mass-going catholic Joe Biden, take it away deacon Joe and:
+隶属于香草山农场视频部的暗黑逆行者神兵，就是其中一人。我是音雄节目组特别采访了暗黑逆行者神兵战友和大家分享视频组的故事。
 
-朋友们，在周日这个上帝的日子里见到你们。 我想，我们可以从自称是虔诚的大众化天主教徒、美国应受惩罚的下一任总统乔·拜登的经文里读到一点，请看乔执事：
+Q：听说您在视频部，都做些什么工作？
 
-Joe Biden: If we do and I’m sure we can, we can proclaim the promised with “palms” (psalm) who wrote the following words: the lord is my strength and my shield…
+A：不论是每天的GTV新闻播报，还是新中国联邦建国直播，包括“我是音雄”竞赛现场，都需要各种小视频，应对来自其他各个部门的视频制作请求。都做。
 
-乔·拜登：如果我们这样做，我相信我们可以，我们可以用以下几句来称颂应许的手掌（诗篇）：主是我的力量，是我的盾牌…
+Q；目前有几个人在活动？
 
-Sorry, did he just call the book of psalms the book of palms? Now I know you don’t even have to be Pope Francis to be pronounce the word psalms. Rita is such a staunch atheist and you know how to pronounce it, right? Yeah, I think she does. It’s a small hilarious slip up that has a serious point though and actually there’s several serious points behind this latest Joe Biden blooper.
+A：原来很少，就2，3个人在活动，现在有13，4个人，还分了组，有素材组，后期加工组，视频编辑组，我在视频编辑组。
 
-抱歉，他刚刚是在称圣经的诗篇为手掌书吗？现在，我知道您不必是弗朗西斯教皇就能够念诗篇。丽塔是一位坚定的无神论者，你知道如何发诗篇的音，对吗？是的，我想她知道。这是一个有严重问题的小小的滑稽的失误。实际上，最近乔·拜登新的吹牛的背后有几个重要的问题。
+Q：你原来是职业做视频的吗？
 
-Number one, for all Joe Baden’s claim to the mantle of religion, he is something of a false teacher. It’s not just his unfamiliarity with basic bits of scripture. I mean as a catholic, he would know that every Sunday’s mass features a responsorial psalm but the fact that the media is fawning over his faith. I mean do you really think there’s chance the guardian among other outlets would be promoting Biden’s religiosity as a good thing？
+A:不是，就是业余爱好。和太太做一些音乐或者军事相关视频发到网上。
 
-第一，对于所有乔·拜登宣称的宗教信仰而言，他不是个真正的老师。 这不仅是他不熟悉圣经的基本知识。 我的意思是说，作为一个天主教徒，他会知道每个星期天的弥撒都带有赞美诗篇，但事实是，媒体讨好他的信仰。 我的意思是说，您真的认为《卫报》和其他机构推崇拜登的宗教信仰是一件好事吗？
+Q；您是怎么接触爆料革命，又进入视频部的呢？
 
-If they thought for a second, he might actually believe it or if he might let inform his views on anything from abortion to modern liberalism’s unending assault on the family? Not a chance! But the second point is this for all this stumbles, Joe Biden is just as dopey as ever. Remember this is the witness protection candidate, the democrats, the media and the Washington swamp hold across the line against all odds so that they could use him as a stalking horse to get all the old failed establishment banned back together.
+A: 还得说是因为疫情之前的工作和生活发生巨大变化，都停摆了。在开始找海外的信息。后来看了爆料革命直播。原本自己也是对现状有想法的，一听爆料革命直播，立即感觉到找到应道找到的地方。
 
-如果他们想一下，他可能会真正相信它，或者如果他愿意就从堕胎到现代自由主义无休止的对家庭的攻击等任何事情发表自己的见解？没机会！而第二个重点是，在这一切的蹒跚中，乔·拜登还是一如既往的愚蠢。请记住，这是证人保护候选人，民主党人、媒体和华盛顿沼泽越线反对所有可能性，以确保他们可以利用他作为掩护性候选人，让所有失败的、被禁止的老机构团结到一起。
+因为，原本也爱做视频，进了其他农场的文宣组，后来转到香草山农场，加入视频组，现在已是视频部了。
 
-听写 & 翻译：【JennyL】校对:【Cyndi】字幕：【绒绒兔】新闻线索：【John】
+Q；能不能介绍一下做视频遇到的困难？
 
-玫瑰园小队出品
+A: “我是音雄”的参赛回顾视频就是我负责做。虽然不累，但每天还是很紧张。“我是音雄节目时常有3-4个小时。就算快进，看完也需要2，3个小时以上。为了提取选手们的高光时刻，我都认真听完每个位参赛选手的叙述。最终完成10分钟的视频剪辑。最开始的一两集，从早晨开始不间断的做，一直做到半夜。后来做得多了也就快了。
 
-1+
+Q：还有其他实例吗？
+
+A：又比如，挺川大游行。还有13天大爆料。都是很急的。因为GTV一边直播，一边需要做视频，我们就从直播图像去素材，去做视频。几乎和直播同步，有时间的限制，有一定的难度。
+
+Q:人手够用吗？
+
+A:其实，还是感到慢性人手不足。战友都有各自的生活和工作，活动的骨干战友也就是几个人，有时候任务一拖再拖，心里面也真的着急。
+
+Q：身在墙内，遇到过什么危险吗？
+
+A:身在墙内，确实有和国外战友不同的紧张感。起初可能会担心被追踪啊，避免使用强内有木马的杀毒软件和电脑。危险总是存在的，有时也会想自己和家人的安危。但目前没有遇到被喝茶或者类似的事，但是每一位战友都冒着不同的风险，支持爆料革命。我们这也不算什么，也不能总去想这些东西，我们不应生活在恐惧中。
+
+Q：家里人不反对吗？
+
+A:其实能全身心投入爆料革命并做点什么，很感谢和感激我的太太。她很支持我，我说什么，她都很赞同。还能一起探讨爆料革命的信息。
+
+在64新中国联邦成立的当天，以GTV直播画面为背景，记录了历史性的瞬间。我就是说，今天是2020年6月4日，尊敬的郭文贵先生领导的爆料革命，正式宣布新中国联邦成立并发布了宣言，我有幸带我的太太和儿子见证这个历史的时刻，为此我感到自豪和骄傲。
+
+Q：我相信这也是您在幕后辛勤劳作的力量源泉。爆料革命进入一个全新的阶段。视频部也需要人手吧，你最后想呼吁什么？
+
+A: 灭共没有你不行，请您加入我们的视频部。
+
+后记：如今的视频部增加了新的战友，队伍在不断壮大。今天他们的默默地耕耘，就是在高调吹响号角，一步步推动灭共的车辆向前滚滚。
+
+0
