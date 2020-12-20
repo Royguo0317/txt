@@ -1,57 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登代表家族向中共索取1000万美元
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/669918/)
+## 台湾药厂失火，美国白宫商讨军管下已激活海军陆战队
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/669906/)
 
-*新闻来源：The Federalist《联邦人》； 作者：Tristan Justice； 发布时间：2020年12月16日*
+编辑发布：Wenwu
 
-*翻译/简评：MikeHua；校对：InAHurry；审核：万人往；Page：拱卒*
+自119路德首度得到闫丽梦博士的爆料，中共病毒将造成全球疫情大爆发之后。2020年9月20日闫丽梦博士再次勇于在“Talk Radio 77 WABC”接受Mr.John Catsimatidis的采访。核心关键在于告诉全世界：
 
-[!\[\]()!\[\](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/5c8aca9a-fb89-4a54-9df6-d691d5f1548f.jpg?asset_id=d21d381e-2d0a-41c3-9b13-6446115e7797&amp;img_etag=%224d11f66cbadb89338f8f3416f20a7ea9%22&amp;size=2560)](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/5c8aca9a-fb89-4a54-9df6-d691d5f1548f.jpg?asset_id=d21d381e-2d0a-41c3-9b13-6446115e7797&amp;img_etag=%224d11f66cbadb89338f8f3416f20a7ea9%22&amp;size=1024)
+基于我掌握的数据还有来自中共国政府的情报，我可以告诉您，羟氯喹可能是当下最好的治疗和预防方法，虽然它也不是神药，但更为实际。
 
-**简评：**
+在中共病毒袭卷全球的大背景下，羟氯喹关乎全球人类的根本生存问题。据联合新闻网在台北时间20日下午2点23分钟援引中央社报道，位于桃源机场附近的旭富制药厂发生爆炸。卫生福利部食品药物管理署署长吴秀梅今天接受记者电访时表示，今天发生火警的旭富药厂是国内生產羥氯奎寧原料药的大厂。这必然会影响到它的客户，主要来自欧、日、美的医药大厂。
+![](https://pgw.udn.com.tw/gw/photo.php?u=https://uc.udn.com.tw/photo/2020/12/20/1/9641700.jpg&amp;x=0&amp;y=0&amp;sw=0&amp;sh=0&amp;sl=W&amp;fw=800&amp;exp=3600&amp;w=465&amp;nt=1)据卫福部食药署了解，失火的旭富药厂生產羥氯奎寧原料药，先前曾捐药做為新冠肺炎防疫用途，此次事故是否导致缺药问题，有待了解。联合报系记者曾增勋／翻摄
+虽然不晓得这次突发事件的原委，但是所有人都不得不在第一时间怀疑是中共特工做的。
 
-亨特·拜登的事情还没完呢。美国的司法体系虽然慢，但是正义不会缺席。在大选前，主流媒体对拜登家族卖国捞钱的事情避而不谈。如今却出现了一些报道，比如福克斯爆出猛料，称亨特·拜登代表整个拜登家族出卖美国。
+与此同时，爆料革命的战友“喜战（@another\_xi\_123)”在推特上发布：
 
-美国的内部生态允许拜登这样的鳄鱼存在，这是美国政治生态的一部分；但现在这些鳄鱼越界，通过共产党抢劫中国老百姓的钱，就该被惩罚。虽然现在拜登表面上看起来占优势，但是郭先生早已明确表示，最后一定是川普总统当选。许多媒体看到风向要变，在这个时候要把拜登抛出去，提前给自己找退路。拜登只不过是中共利用的棋子，无论现在怎么瞎折腾，灭共是一定的！
 
-**原文翻译：**
 
-# **新文件显示，亨特·拜登代表‘整个拜登家族’向中共索取1000万美元**
+> 【必看】🔥🔥川普团队内部人士透露，川普总统即将施行戒严令（军事管制）！海军陆战队在密歇根州大急流市已经集结待命
+> 据TruNews报道
+> 
+> Trump Campaign Insider: Pres. Trump will be issuing a Martial Law! Marines have been activated in Grand Rapids, Michigan
+> Reported by TruNews
+> 
+> 🆕囍站新号 [pic.twitter.com/0190ZiBQqv](https://t.co/0190ZiBQqv)
+> — 囍战 (@another\_xi\_123) [December 20, 2020](https://twitter.com/another_xi_123/status/1340542856784535563?ref_src=twsrc%5Etfw)
 
-**《福克斯新闻》周四报道的新文件提供了更多对有关亨特·拜登和一名与中国共产党有深层联系的生意人之间1000万美元交易的细节，这对当选总统乔·拜登和科技巨头以及大媒体公司之间的丑闻无疑是火上浇油。**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/7973b7bb-3320-40f0-ab71-531a103a14ec.jpg?asset_id=afa2ecea-e320-4f6b-9099-e684beda03b2&amp;img_etag=%22c8525aa0a0b895a705a8056476f0c7fa%22&amp;size=2560)](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/7973b7bb-3320-40f0-ab71-531a103a14ec.jpg?asset_id=afa2ecea-e320-4f6b-9099-e684beda03b2&amp;img_etag=%22c8525aa0a0b895a705a8056476f0c7fa%22&amp;size=1024)
+（喜战在该推特下评论）2个小时前，川普发推说：“戒严令=假新闻，又一个刻意的错误报导”喜站希望给大家带来最新且准确的信息。川普总统本人没签字发布戒严令之前的哪一刻都可以说“戒严令”是假消息。但是执行单位还是要准备好的。执行不执行，川普说了才算数！
+无风不起浪。自爆料革命宣布中共病毒来自武汉实验室后，这次台湾的羟氯喹原料药厂爆炸的幕后嫌疑直指中共。而美国大选的欺诈引发白宫博弈最终会让拜登一方随时投降。因为在爆料革命的帮助下，中共参与美国大选的舞弊真相一定会让美国的公民知晓。随之而来的热战也不可避免。
 
-根据福克斯获取的通信记录，亨特·拜登被指他在2017年向华信能源(CEFC)主席叶简明表达了“来自整个拜登家族最好的祝福”，并且敦促与中国共产党有深层联系的合伙人叶简明尽快电汇1000万美元以便“合理资助和运行”拜登的基金。
+听爆料革命保财、保命、保未来。看来，台湾这道最后的灭共的地狱大门也要打开了。
 
-“我希望你一切安好。我对上次你来美国时没能见你表示遗憾”，亨特·拜登六月在一封信件上写道，“请接受来自整个拜登家族以及我的商业伙伴最诚挚的问候”。
+新闻来源：
 
-在这封要求叶简明的合伙人转账1000万美元的信上，亨特·拜登提到了托尼·伯布林斯基(Tony Bobulinski)，曾经是拜登的合伙人，在今年站出来爆料。
+旭富藥廠失火 待查是否導致新冠肺炎奎寧防疫藥品缺料[https://udn.com/news/story/121873/5107167](https://udn.com/news/story/121873/5107167)
 
-“如果你能快点转账我会很感激”，拜登写道，他想资助拜登领导的公司华鹰(Sinohawk)，该公司与伯布林斯基合伙，并由伯布林斯基担任CEO。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/f8c3fc8e-c9d2-4ccd-ab6d-a11f27f647c1.jpg?asset_id=f04fd247-5298-45e0-8a1f-1e6a9467e431&amp;img_etag=%220d6f2bd60901fc01ede6363b1367fa32%22&amp;size=2560)](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/f8c3fc8e-c9d2-4ccd-ab6d-a11f27f647c1.jpg?asset_id=f04fd247-5298-45e0-8a1f-1e6a9467e431&amp;img_etag=%220d6f2bd60901fc01ede6363b1367fa32%22&amp;size=1024)
-
-亨特·拜登-叶简明
-
-在福克斯查阅的后续邮件中，一封七月回复给亨特·拜登的邮件显示叶简明很热情地安排了拜登的请求，以“加快”汇款工作。
-
-这些通信往来都发生在《纽约邮报》十月报道的叶简明提出1000万美元给拜登作为一个年度合约的“介绍费”之前。报道还提到，1000万美元介绍费的一部分是预留给乔·拜登的，会由亨特输送给乔·拜登。
-
-《福克斯新闻》的重磅爆料给纽约邮报之前的爆料增加了信度，而之前采用民主党言论的媒体公司都曾驳斥了纽约邮报的爆料，他们将纽约邮报的报道打成俄罗斯的虚假信息，并且和科技巨头一起在11月大选前几天打压了这个信息。
-
-[原文链接](https://thefederalist.com/2020/12/16/new-documents-show-hunter-biden-requesting-10-million-from-chinese-on-behalf-of-entire-biden-family/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/AXZTpGtGKTGuH/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
-0
+1+

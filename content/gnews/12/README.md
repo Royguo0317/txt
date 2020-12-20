@@ -1,261 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国商务部实体名单新增中共国60个实体名录
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/669756/)
+## 亨特·拜登代表家族向中共索取1000万美元
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/669918/)
 
-撰稿： 夏大铭 编辑：文远Bruce
+*新闻来源：The Federalist《联邦人》； 作者：Tristan Justice； 发布时间：2020年12月16日*
 
-美国商务部工业与安全局当前未正式发布的《实体清单的增加，修订与移除》文件，修订了总计78家实体中的77个。这些实体已被美国政府认定有违反美国国家安全或外交政策利益的行为，涉及包括中国及中国香港在内的十个国家，其中中共国59个实体，香港1个实体。
+*翻译/简评：MikeHua；校对：InAHurry；审核：万人往；Page：拱卒*
 
-这些实体分类列表如下：
+[!\[\]()!\[\](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/5c8aca9a-fb89-4a54-9df6-d691d5f1548f.jpg?asset_id=d21d381e-2d0a-41c3-9b13-6446115e7797&amp;img_etag=%224d11f66cbadb89338f8f3416f20a7ea9%22&amp;size=2560)](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/5c8aca9a-fb89-4a54-9df6-d691d5f1548f.jpg?asset_id=d21d381e-2d0a-41c3-9b13-6446115e7797&amp;img_etag=%224d11f66cbadb89338f8f3416f20a7ea9%22&amp;size=1024)
 
-**中芯国际系（****10****个）**
+**简评：**
 
-Semiconductor Manufacturing International (Beijing) Corporation
+亨特·拜登的事情还没完呢。美国的司法体系虽然慢，但是正义不会缺席。在大选前，主流媒体对拜登家族卖国捞钱的事情避而不谈。如今却出现了一些报道，比如福克斯爆出猛料，称亨特·拜登代表整个拜登家族出卖美国。
 
-中芯国际集成电路制造（北京）有限公司
+美国的内部生态允许拜登这样的鳄鱼存在，这是美国政治生态的一部分；但现在这些鳄鱼越界，通过共产党抢劫中国老百姓的钱，就该被惩罚。虽然现在拜登表面上看起来占优势，但是郭先生早已明确表示，最后一定是川普总统当选。许多媒体看到风向要变，在这个时候要把拜登抛出去，提前给自己找退路。拜登只不过是中共利用的棋子，无论现在怎么瞎折腾，灭共是一定的！
 
-Semiconductor Manufacturing International (Tianjin) Corporation
+**原文翻译：**
 
-中芯国际集成电路制造（天津）有限公司
+# **新文件显示，亨特·拜登代表‘整个拜登家族’向中共索取1000万美元**
 
-Semiconductor Manufacturing International (Shenzhen) Corporation
+**《福克斯新闻》周四报道的新文件提供了更多对有关亨特·拜登和一名与中国共产党有深层联系的生意人之间1000万美元交易的细节，这对当选总统乔·拜登和科技巨头以及大媒体公司之间的丑闻无疑是火上浇油。**
 
-中芯国际集成电路制造（天津）有限公司
+[!\[\]()!\[\](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/7973b7bb-3320-40f0-ab71-531a103a14ec.jpg?asset_id=afa2ecea-e320-4f6b-9099-e684beda03b2&amp;img_etag=%22c8525aa0a0b895a705a8056476f0c7fa%22&amp;size=2560)](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/7973b7bb-3320-40f0-ab71-531a103a14ec.jpg?asset_id=afa2ecea-e320-4f6b-9099-e684beda03b2&amp;img_etag=%22c8525aa0a0b895a705a8056476f0c7fa%22&amp;size=1024)
 
-SMIC Semiconductor Manufacturing (Shanghai) Co., Ltd.
+根据福克斯获取的通信记录，亨特·拜登被指他在2017年向华信能源(CEFC)主席叶简明表达了“来自整个拜登家族最好的祝福”，并且敦促与中国共产党有深层联系的合伙人叶简明尽快电汇1000万美元以便“合理资助和运行”拜登的基金。
 
-中芯国际集成电路制造（上海）有限公司
+“我希望你一切安好。我对上次你来美国时没能见你表示遗憾”，亨特·拜登六月在一封信件上写道，“请接受来自整个拜登家族以及我的商业伙伴最诚挚的问候”。
 
-SMIC Holdings Limited
+在这封要求叶简明的合伙人转账1000万美元的信上，亨特·拜登提到了托尼·伯布林斯基(Tony Bobulinski)，曾经是拜登的合伙人，在今年站出来爆料。
 
-中芯国际控股有限公司
+“如果你能快点转账我会很感激”，拜登写道，他想资助拜登领导的公司华鹰(Sinohawk)，该公司与伯布林斯基合伙，并由伯布林斯基担任CEO。
 
-Semiconductor Manufacturing South China Corporation
+[!\[\]()!\[\](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/f8c3fc8e-c9d2-4ccd-ab6d-a11f27f647c1.jpg?asset_id=f04fd247-5298-45e0-8a1f-1e6a9467e431&amp;img_etag=%220d6f2bd60901fc01ede6363b1367fa32%22&amp;size=2560)](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/f8c3fc8e-c9d2-4ccd-ab6d-a11f27f647c1.jpg?asset_id=f04fd247-5298-45e0-8a1f-1e6a9467e431&amp;img_etag=%220d6f2bd60901fc01ede6363b1367fa32%22&amp;size=1024)
 
-中芯南方集成电路制造有限公司
+亨特·拜登-叶简明
 
-SMIC Northern Integrated Circuit Manufacturing(Beijing) Co., Ltd.
+在福克斯查阅的后续邮件中，一封七月回复给亨特·拜登的邮件显示叶简明很热情地安排了拜登的请求，以“加快”汇款工作。
 
-中芯北方集成电路制造（北京）有限公司
+这些通信往来都发生在《纽约邮报》十月报道的叶简明提出1000万美元给拜登作为一个年度合约的“介绍费”之前。报道还提到，1000万美元介绍费的一部分是预留给乔·拜登的，会由亨特输送给乔·拜登。
 
-SMIC Hong Kong International Company Limited
+《福克斯新闻》的重磅爆料给纽约邮报之前的爆料增加了信度，而之前采用民主党言论的媒体公司都曾驳斥了纽约邮报的爆料，他们将纽约邮报的报道打成俄罗斯的虚假信息，并且和科技巨头一起在11月大选前几天打压了这个信息。
 
-中芯国际香港（国际）有限公司
+[原文链接](https://thefederalist.com/2020/12/16/new-documents-show-hunter-biden-requesting-10-million-from-chinese-on-behalf-of-entire-biden-family/)
 
-SJ Semiconductor
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-中芯长电半导体有限公司
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-Ningbo Semiconductor International Corporation (NSI)
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-中芯集成电路（宁波）有限公司
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/AXZTpGtGKTGuH/)
 
-**海事船舶系（****30****个）**
+[!\[\]()!\[\](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
-Chongqing Chuandong Shipbuilding Industry Co Ltd.
-
-重庆川东船舶重工有限责任公司
-
-CSSC Huangpu Wenchong Shipbuilding Co., Ltd.
-
-中船黄埔文冲船舶有限公司
-
-Guangxin Shipbuilding and Heavy Industry Co., Ltd.
-
-广新海事重工股份有限公司
-
-Guangzhou Taicheng Shipbuilding Industry Co., Ltd.
-
-广州市泰诚船舶工业有限公司
-
-China State Shipbuilding Corporation, Ltd.
-
-中国船舶工业集团公司
-
-(CSSC) 7th Research Academy,
-
-中国船舶工业集团公司第七研究院
-
-CSSC 12th Research Institute,
-
-中国船舶重工集团有限公司第十二研究所
-
-CSSC 701st Research Institute,
-
-中国船舶重工股份有限公司701研究所
-
-CSSC 702nd Research Institute,
-
-中国船舶重工股份有限公司702研究所
-
-CSSC 703rd Research Institute,
-
-中国船舶重工股份有限公司703研究所
-
-CSSC 704th Research Institute,
-
-中国船舶重工股份有限公司704研究所
-
-CSSC 705th Research Institute,
-
-中国船舶重工股份有限公司705研究所
-
-CSSC 707th Research Institute,
-
-中国船舶重工股份有限公司707研究所
-
-CSSC 709th Research Institute,
-
-中国船舶重工股份有限公司707研究所
-
-CSSC 710th Research Institute,
-
-中国船舶重工股份有限公司710研究所
-
-CSSC 711th Research Institute,
-
-中国船舶重工股份有限公司711研究所
-
-CSSC 712th Research Institute,
-
-中国船舶重工股份有限公司712研究所
-
-CSSC 713th Research Institute,
-
-中国船舶重工股份有限公司713研究所
-
-CSSC 714th Research Institute,
-
-中国船舶重工股份有限公司714研究所
-
-CSSC 715th Research Institute,
-
-中国船舶重工股份有限公司715研究所
-
-CSSC 716th ResearchInstitute,
-
-中国船舶重工股份有限公司716研究所
-
-CSSC 717th Research Institute,
-
-中国船舶重工股份有限公司717研究所
-
-CSSC 718th Research Institute,
-
-中国船舶重工股份有限公司718研究所
-
-CSSC 719th Research Institute,
-
-中国船舶重工股份有限公司719研究所
-
-CSSC 723rd Research Institute,
-
-中国船舶重工股份有限公司723研究所
-
-CSSC 724th Research Institute,
-
-中国船舶重工股份有限公司724研究所
-
-CSSC 725th Research Institute,
-
-中国船舶重工股份有限公司725研究所
-
-CSSC 726th Research Institute,
-
-中国船舶重工股份有限公司726研究所
-
-CSSC 750th Test Center,
-
-中国船舶重工集团公司750试验中心
-
-CSSC 760th Research Institute
-
-中国船舶重工集团公司第760研究所
-
-**院校系**** ****（****5****个）**
-
-Beijing Institute of Technology
-
-北京理工大学
-
-Nanjing University of Science and Technology
-
-南京理工大学
-
-Nanjing University of Aeronautics and Astronautics
-
-南京航空航天大学
-
-Tianjin University
-
-天津大学
-
-Beijing University of Posts and Telecommunications
-
-北京邮电大学
-
-**个人（****5****个）**
-
-Chong Zhou   周冲
-
-Huisui Zhang  张惠穗
-
-Jinping Chen  陈金平
-
-Wei Pang   庞伟
-
-Zhao Gang  赵刚
-
-**其他单位（****10****个）**
-
-AGCU Scientech
-
-无锡中德美联生物技术有限公司
-
-China National Scientific Instruments and Materials (CNSIM)
-
-中国科学器材有限公司
-
-DJI
-
-深圳市大疆创新科技有限公司
-
-Kuang-Chi Group
-
-深圳光启集团
-
-China Communications Construction Company Ltd,
-
-中国交通建设股份有限公司
-
-Nanjing Asset Management Co., Ltd.
-
-南京资产管理有限公司
-
-Jiangsu Hengxiang Science and Education Equipment Co., Ltd.
-
-江苏恒翔智产信息技术股份有限公司
-
-Tongfang Technology Ltd. (NucTech)
-
-同方威视技术股份有限公司
-
-ROFS Microsystems
-
-诺思(天津)微系统有限责任公司
-
-Tianjin Micro Nano Manufacturing
-
-天津市微纳制造技术工程中心
-
-附：美国商务部《实体清单的增加，修订与移除》文件链接
-
-[https://public-inspection.federalregister.gov/2020-28031.pdf](https://public-inspection.federalregister.gov/2020-28031.pdf)
-
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-
-[【澳喜文章】](https://gnews.org/zh-hans/author/aujenny/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040800/IMG_1836-1.jpg)
 0

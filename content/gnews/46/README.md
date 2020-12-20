@@ -1,121 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《God Bless the U.S.A. 天佑美国!》歌词翻译
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/669169/)
+## 【国内快讯】“全民接种”，中共全面开启疫苗战
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/669353/)
 
-翻译者：Lucky Star Maggie
+内新闻/素材：鹰(文言) 校对：三娃
+
+新浪网12月20日转载北京青年报报道，中共国务院联防联控机制在19日发布会上明确国内疫苗接种安排。
+
+1、第一步进行重点人群开展接种，涵盖进口冷链、口岸检疫、船舶引航、航空空勤、生鲜市场、公共交通、医疗疾控等人员，以及前往境外工作或学习人员。同时现行基础已经完备，除了国药中生的北京所、国药中生的武汉所、北京科兴完成产能建设具备规模化生产条件，能够满足现阶段重点人员接种需求，国药控股的880辆冷链运输车更可以应对48小时超亿份疫苗运输紧急状况。
+
+2、第二步是疫苗产量提高，更多疫苗批准使用后，将逐步在全国开展疫苗接种。国药控股物流现有干线运输车70余辆，承担每个省市至少两辆，同时在12月初，进行了全国范围内的新冠疫苗配送演练，准备工作均已完成，全民接种蓄势待发。
+
+3、会上卫健委专员承认，新冠疫苗保护率达不到“百分百”，保护多长时间待定，而且若有不良反应属于合理范围，病毒变异“一般”不会影响疫苗免疫效果。即接种新冠疫苗有不良反应现象，但官宣合理。疫苗效果如何，官方不知道，保护时间抗变异性更无可奉告，真真正正的将国内人民当作了研究用的小白鼠。
+
+根据中共的“公告”以及前期安排不难看出，中共所谓的全民接种已经在进行时。自中共提出研制新冠疫苗以来，除了数据不公开，不良反应多，更是炮制出2月初就已有疫苗出现的谎言。不但要求出国人员必须接种，无视ADE效应，更造成了中共病毒的可控传播，世界各国彻底陷入中共病毒泥潭。
+
+现今在全世界迎来CCP病毒第二波侵袭的当下，中共却开启了疫苗战，毒上加毒，誓要将14亿人民作为拼死一搏的工具和“生化人”。中共明知吹嘘出的疫苗毫无防护效果，同时更会造成严重的ADE效应，但却依旧强推接种。无非是继续以病毒和毒疫苗继续绑架14亿人，并以此来要挟世界各国，若铁定灭共，那么迎接他们的将是墙内的14亿“毒疫苗携带者”，中共的险恶用心更加披露无遗。
+
+中共的制毒放毒再加上现在的毒疫苗，种种恶行都验证了中共的反人类本质。中共一贯使用流氓手段以及“假、大、空”。全世界人民势必要在继续被中共绑架和“断臂灭共”中择其一，而随着病毒真相的普遍认知，更是只剩下雷霆灭共一条自救道路可走。在国际集结灭共的同时，墙内民众还在继续被中共奴役压榨、横征暴敛、以病毒疫苗搜刮民财、以病毒排除异己，当食不果腹。疫苗接种导致病毒大爆发后，愤怒的国民必将“揭竿而起”，铲除暴政，国际国内势力一起，将共产主义从地球上彻底根除。
+
+本文仅代表个人观点。
+
+新闻来源：
+
+我国新冠疫苗接种分“两步走”[https://news.sina.com.cn/c/2020-12-20/doc-iiznctke7424027.shtml](https://news.sina.com.cn/c/2020-12-20/doc-iiznctke7424027.shtml)
+
+权威部门解答我国新冠疫苗“十问”[https://news.sina.com.cn/c/2020-12-20/doc-iiznctke7439758.shtml](https://news.sina.com.cn/c/2020-12-20/doc-iiznctke7439758.shtml)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20075808/IMG_9147-1-scaled.jpeg)
 
 
-视频出处：[Home Free – God Bless the U.S.A. (featuring Lee Greenwood and The United States Air Force Band)](https://www.youtube.com/watch?v=SrMftm6Km3g&amp;feature=youtu.be)
-**歌词翻译：**
-
-If tomorrow all the things were gone
-如果明天我将丧失我所有的一切
-
-I’d work for all my life
-我将再次拼搏
-
-And I had to start again With just my children and my wife
-不得不和我的妻儿一道重新开始
-
-I’d thank my lucky stars To be living here today
-我会感激我的幸运星今天仍飘扬在这里
-
-‘Cause the flag still stands for freedom
-因为我们的国旗依旧代表着自由
-
-And they can’t take that away
-他们不能夺走我们的自由
-
-And I’m proud to be an American
-我为我是一个美国人而骄傲
-
-Where at least I know I’m free
-在这里至少我知道我是自由的
-
-And I won’t forget the men who died Who gave that right to me
-我不会忘记那些为我们争取自由而牺牲的人们
-
-And I gladly stand up next to you
-今天我愿意站起来和你肩并肩
-
-And defend her still today
-再次为保卫我们自由的国家而战斗
-
-‘Cause there ain’t no doubt I love this land
-毫无疑问因为我深深地爱着这片土地
-
-God Bless the U.S.A.
-天佑美国
-
-From the lakes of Minnesota
-从明苏尼达州的湖泊
-
-To the hills of Tennessee
-到田纳西州的小山
-
-Across the plains of Texas
-横越德克萨斯州的平原
-
-From sea to shining sea
-从大西洋到闪耀的太平洋（源自“美丽美国”的诗）
-
-From Detroit down to Houston
-从底特律到休斯顿
-
-And New York to L.A.
-纽约到洛杉矶 （意指美国全境）
-
-Where there’s pride in every American heart
-所到之处每个美国人的心中都充满自豪
-
-And it’s time we stand and say that
-在这个时刻，我们站起来宣告，
-
-I’m proud to be an American
-我为我是一个美国人而骄傲
-
-Where at least I know I’m free
-在这片土地上至少我知道我是自由的
-
-And I won’t forget the men who died Who gave that right to me
-我不会忘记那些为争取我们的自由牺牲的人们
-
-And I gladly stand up next to you
-我愿意站起来和你肩并肩
-
-And defend her still today
-再次为保卫我们自由的国度而战斗
-
-‘Cause there ain’t no doubt I love this land
-毫无疑问因为我深深地爱着这片土地
-
-God Bless the U.S.A.
-天佑美国
-
-God Bless this country
-天佑这个国家
-
-And I’m proud to be an American
-我为我是一个美国人而骄傲
-
-Where at least I know I’m free
-在这里至少我知道我是自由的
-
-And I won’t forget the men who died Who gave that right to me
-我不会忘记那些为争取我们的自由牺牲的人们
-
-And I gladly stand up next to you
-我愿意站起来和你肩并肩
-
-And defend her still today
-再次为保卫我们自由的国家而战斗
-
-‘Cause there ain’t no doubt I love this land
-毫无疑问因为我深深地爱着这片土地
-
-God Bless the U.S.A.
-天佑美国
-
-0
+1+
