@@ -1,150 +1,81 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英喜时评第九期（2020.12.18）
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/666832/)
+## 【林伍德律师推文1219】-统计分析Dominion/Hart机造假
+` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/667086/)
 
-*英喜评论人：孙行者；万人往； Boxing Lady；编辑：海阔天空；Page：拱卒*
+12月19日林伍德律师转推了一则对针对 Dominion 和 Har 投票机在大选中使用数据的统计分析报告。读过报告后的结论，如林伍德律师所说，
 
-# **英喜时评第九期（2020.12.18）**
+“川普总统压倒性赢得连任。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/KBQzMWmAx8B7o/images/c15e616b-ccd8-4edb-82d1-b675b6e9dd16.jpg?asset_id=67246534-b24b-40a0-ab5a-5f056177dbb1&amp;img_etag=%22ce78241aa13137af001e677b8730e32b%22&amp;size=2560)](https://spark.adobe.com/page/KBQzMWmAx8B7o/images/c15e616b-ccd8-4edb-82d1-b675b6e9dd16.jpg?asset_id=67246534-b24b-40a0-ab5a-5f056177dbb1&amp;img_etag=%22ce78241aa13137af001e677b8730e32b%22&amp;size=1024)
+他同时说，“稳住。耐心。祈祷。”
 
-## 一、美国新闻
 
-[!\[\]()!\[\](https://spark.adobe.com/page/KBQzMWmAx8B7o/images/0354256d-7a55-4555-aec2-25aa8b45a3c0.jpg?asset_id=f9ea7314-83fa-4a13-9983-4042c5e68b1c&amp;img_etag=%22a9abf128648785e5bb1edc6b56b81b5b%22&amp;size=2560)](https://spark.adobe.com/page/KBQzMWmAx8B7o/images/0354256d-7a55-4555-aec2-25aa8b45a3c0.jpg?asset_id=f9ea7314-83fa-4a13-9983-4042c5e68b1c&amp;img_etag=%22a9abf128648785e5bb1edc6b56b81b5b%22&amp;size=1024)
 
-#### ***【新闻一】**（孙行者）*
+> Good Saturday morning!
+> 
+> Today is a good day to visit [@KanekoaTheGreat](https://twitter.com/KanekoaTheGreat?ref_src=twsrc%5Etfw) home page & read the thread beginning with this tweet. [@KanekoaTheGreat](https://twitter.com/KanekoaTheGreat?ref_src=twsrc%5Etfw) is a truth-giver. Read carefully.[@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) won re-election by a landslide.
+> 
+> Steady. Patience. Pray. [https://t.co/6zgL3YtY0s](https://t.co/6zgL3YtY0s)
+> — Lin Wood (@LLinWood) [December 19, 2020](https://twitter.com/LLinWood/status/1340328875532967938?ref_src=twsrc%5Etfw)
 
-据福克斯新闻，原定于12月18日提交的国家情报总监大选评估报告延迟到1月份。原因是情报社区对于中共影响大选的评估有争议！因此无法按行政命令规定的时间交付报告。此前，莱特克里夫曾在CBS采访时表达过中共，伊朗和俄国干预了此次大选。
 
 
+笔者分享统计分析的主要推文如下。
 
-> 12/16 💥💥重磅⚠️据福克斯新闻（真假自判）：原定明天交付的国家情报总监大选评估报告延迟到1月份。原因是情报社区对于中共影响大选的评估有争议！因此无法按行政命令规定的时间交付报告。此前，莱特克里夫曾在CBS采访时表达过中共，伊朗和俄国干预了此次大选！看来国家情报机构也有CCP的银啊！牛B！ [https://t.co/Ts2a3lI2RB](https://t.co/Ts2a3lI2RB)
-> — 西行小宝 (@htommy998) [December 17, 2020](https://twitter.com/htommy998/status/1339360208603123713?ref_src=twsrc%5Etfw)
+对美国3000多个县进行的无差别分析显示，乔-拜登在使用多米尼克投票系统的县里多得了5.6%的选票。”如果利用计算机的网络系统来欺诈性地影响选票统计……结果会是这样的。”
 
+2/无论县里的多数党派，也无论城市、郊区或农村地区的人口统计，都能观察到这种Dominion的优势。拜登在民主党州超过预期表现的量，与他在支持川普的县所表现有相同量值。
 
+3/ 该分析并不是针对单一或少数几个县。相反，这些信息使用了美国所有县的数据，以查看是否存在涉及投票机类型和选票总数上有明显的普遍模式。
 
-**【简评】**
+4/在第一张图中，我们看到拜登2020年的实际选举结果。蓝线是我们的中心预测线。一半县应该在蓝线之上，一半县在蓝线之下。这一点被证实是真实的，拜登在45%的县表现超群，55%的县表现不佳。
 
-根据第一美国新闻网杰克.鲍索报道：已经有足够多的连续性的情报显示中国干预2020大选的目的与行动。莱特克里夫表示如果这部分不被包括进来，他就不会签字这份报告。情报社区一些资深分析师试图弱化中国的部分，而另一些则坚持要把中国包括进来。这就是为何报告出不来。
+5/ 我们从美国选举援助委员会取得数据，显示各县使用的投票机。这次只限于使用Dominion机的县，看到大部分的县（78%）都在预测线之上。
 
-试图弱化中共国影响的情报机构，都是被中共深度渗透和操控的机构，其中少不了CIA。中共外交部发言人汪文斌今天回答记者问也以报告推迟为据，说明美方没有中共干扰大选的原始数据。里应外合，配合得天衣无缝。中共再次用时间换取了生存的空间。只要等到一月份拜登就职，就万事大吉，平安无事了。
 
-川普总统12月16日发布了“针对侵犯人权和腐败，继续国家紧急状态的统治，宣布将国家紧急状态延长一年。这，不知是否是川普总统的反制措施之一。
 
-#### ***【新闻二】**（孙行者）*
+> 5/ We obtained data from the U.S. Election Assistance Commission showing the voting machines used by each county. Compare this graph with the same data, except this time limited to counties using Dominion. This time the majority of counties (78%) are ABOVE the prediction line. [pic.twitter.com/QXyeVbxl6y](https://t.co/QXyeVbxl6y)
+> — Kanekoa (@KanekoaTheGreat) [December 18, 2020](https://twitter.com/KanekoaTheGreat/status/1340046613994037248?ref_src=twsrc%5Etfw)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/KBQzMWmAx8B7o/images/deeaecc5-e8f5-4623-bae3-fdb822ebb36e.jpg?asset_id=85c85bcb-8894-42ab-a3fa-344a3a23f97a&amp;img_etag=%2220772b0574c2dc8214d7f095bd938563%22&amp;size=2560)](https://spark.adobe.com/page/KBQzMWmAx8B7o/images/deeaecc5-e8f5-4623-bae3-fdb822ebb36e.jpg?asset_id=85c85bcb-8894-42ab-a3fa-344a3a23f97a&amp;img_etag=%2220772b0574c2dc8214d7f095bd938563%22&amp;size=1024)
 
-美军印太司令部司令戴维森（Phil Davidson）海军上将在周三（12月16日）发表的一份声明中说，中国没有如约出席原定12月14日至16日举行的与《海上军事安全磋商机制协定》（Military Maritime Consultative Agreement, MMCA）相关的会议，表示“这应该成为今后所有要跟中国达成协议的国家的一个警示”。
 
-[点击来源](https://www.voachinese.com/a/US-navy-says-China-unreliable-after-meeting-no-show-and-Beijing-says-US-twisting-facts-20201217/5703499.html)
+6/ 县级数据按投票机过滤分类显示，候选人拜登在Dominion机器上的表现超出约5%，在Hart机器上也超出约6%。
 
-**【简评】**
+7/在使用Dominion和Hart机器的县，这个时间拜登的表现高于预期78%。这高度表明(99.9%统计学意义)，操纵投票结果可能发生在Dominion和Hart机器上。
 
-对于戴维森的指责，中共国海军发言人刘文胜在一份声明中称中方11月18日向美方就议题和安排提供了建议，但美方不采纳，批评美国“强推议题设想，压缩会晤时间、改变会晤性质。“指中方缺席，“责任完全在美方”。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/KBQzMWmAx8B7o/images/f38065ce-400c-468c-8cc9-039db8946504.jpg?asset_id=fe650d74-503e-440d-853a-021eb7956c11&amp;img_etag=%2258d03eac5523d12193a101dde37058ea%22&amp;size=2705)](https://spark.adobe.com/page/KBQzMWmAx8B7o/images/f38065ce-400c-468c-8cc9-039db8946504.jpg?asset_id=fe650d74-503e-440d-853a-021eb7956c11&amp;img_etag=%2258d03eac5523d12193a101dde37058ea%22&amp;size=1024)
 
-刘文胜的声明很值得推敲。
+> 7/ In the Dominion/Hart machine counties, Biden performs above expectations 78% of the time. This is highly indicative (and 99.9% statistically significant) that result manipulation could be occurring with Dominion & Hart machines. [pic.twitter.com/IlAGvWIb4f](https://t.co/IlAGvWIb4f)
+> — Kanekoa (@KanekoaTheGreat) [December 18, 2020](https://twitter.com/KanekoaTheGreat/status/1340046620180639744?ref_src=twsrc%5Etfw)
 
-1. 11月18日之前，美中双方就会议议题和安排是否已有安排？如果有安排，中方再提建议就是节外生枝，无理取闹，美方不采纳合情合理；
 
-2. 如果11月18日之前没有安排，中方提供议题和安排建议，美方不采纳；接下来就是是美方提供建议，中方也可以不采纳。 为什么美方就成了“强推议题设想“呢？
 
-3. 双方就会议议题和安排有分歧，举行会议的意义就在于消除分歧，形成共识。从双方声明可以看出，美方是认真准备了这次会议的，这是视频会议，并没有主客场，中方为什么就不能准备参加会议呢？不参加，就是不想通过协商解决分歧。不按照我提的议题和安排，就没有会议。到底谁在强推议题呢？
+8/在这张图中，绿点代表使用Dominion/Hart机器的县的选票。绿点应该以类似的混合/随机方式覆盖蓝点。但我们没有看到这一点。相反，我们看到绿点的中心点位（总是）比蓝点的中心点位高。
 
-4. 从11月18日到12月18日，中间有一个月时间，中方不准备参加会议，有没有通知美方呢？如果没有的话，不是在放人鸽子吗？纯粹浪费对方的时间、精力，这样的行为，不是懦夫，就是无赖，既不文明，也不道德！
+9/为了帮助上图分析，我们为使用Dominion/Hart的县和 使用其他机器的县添加了中心线。绿色的中心线保持在蓝色中心线之上，清楚地表明拜登在Dominion/Hart县持续 “胜出”。
 
-5. 怎么理解“改变会晤性质“？会晤的性质只有交流，协商， 难不成还能改变成争吵、斗争？人们会说本着交流协商的目的举行了会晤，有谁会说双方为了争吵，斗争举行了会晤呢？这不是人话。说”改变会晤性质“，就是未晤先判，不打自招。
 
-无论如何，这件事标志着中美两国自1998年签署《海上军事安全协商机制》的终结，大大增加了两军海上擦枪走火的可能性 。是喜是忧，见仁见智。我的看法是，流氓听不懂道理，只能但看得清拳头。
 
-## **二、英国新闻**
+> 9/ To aid in this graphical analysis we added center lines for the Dominion/Hart counties and the “other machine” counties. The green centerline stays above the blue centerline – clearly indicating Biden continuously "outperforming" in Dominion/Hart counties. [pic.twitter.com/qXgu3GyLkS](https://t.co/qXgu3GyLkS)
+> — Kanekoa (@KanekoaTheGreat) [December 18, 2020](https://twitter.com/KanekoaTheGreat/status/1340046627327729664?ref_src=twsrc%5Etfw)
 
-#### ***【新闻】中共国在伦敦塔对面修建新使馆之计划引起英国民众的气愤（Boxing Lady）***
 
-[!\[\]()!\[\](https://spark.adobe.com/page/KBQzMWmAx8B7o/images/0cca2df8-32e3-454e-8ff8-bd5bfd2545dc.jpg?asset_id=f7562443-06c0-4b34-89b6-95bef3249ecf&amp;img_etag=%22a316ba817d53b7a5eecb285735469634%22&amp;size=2560)](https://spark.adobe.com/page/KBQzMWmAx8B7o/images/0cca2df8-32e3-454e-8ff8-bd5bfd2545dc.jpg?asset_id=f7562443-06c0-4b34-89b6-95bef3249ecf&amp;img_etag=%22a316ba817d53b7a5eecb285735469634%22&amp;size=1024)
 
-中共国希望将位于伦敦塔对面的前皇家造币厂作为其新的大使馆–使其成为共产主义国家在欧洲最大的大使馆。图片为设计概念图
+10/选票增加发生在全美数百个Dominion/Hart县，值得强调的是，在使用这些机器的县，拜登在民主党州胜出表现，与他在支持川普县的胜出表现，保持了相同量。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/KBQzMWmAx8B7o/images/77be8246-4c58-47a2-a3c0-998c46a531ad.jpg?asset_id=f8801940-ad1c-4752-9f29-731d7de5c091&amp;img_etag=%22029124dbf8c3dcad1f478c1bc190fb03%22&amp;size=2560)](https://spark.adobe.com/page/KBQzMWmAx8B7o/images/77be8246-4c58-47a2-a3c0-998c46a531ad.jpg?asset_id=f8801940-ad1c-4752-9f29-731d7de5c091&amp;img_etag=%22029124dbf8c3dcad1f478c1bc190fb03%22&amp;size=1024)
+这表明，一些或所有的Dominion/Hart投票机可能被编程或操纵，使拜登的实际选票数被系统地增加了5个多百分点。注意，这些结果的统计显著性水平高于99.9%。
 
-皇家造币厂从伦敦塔搬到了位于塔山的新址，由罗伯特-斯米尔克爵士按照新古典主义风格设计。1810年，第一枚硬币在这里铸造。1968年，铸币厂迁至南威尔士。
+观看完整统计分析视频
 
-**内容：**中共政府于2018年以2.5亿英镑的价格购买了前皇家造币厂建筑，计划对其进行翻新，建成中共大使馆，“可能会挖掘出数千具黑死病受害者的尸体”。
 
-[点击来源](https://www.dailymail.co.uk/news/article-9060503/Chinese-embassy-plans-London-unearth-bodies-thousands-Black-Death-victims.html)
 
-**【简评】**
+阅读完整统计报告
 
-关于计划建设的新中国使馆话题，最近几个月引起了英国民众的热议和公众的愤怒。从以下列举的几个评论中，我们可以感觉到英国人民对此事的反对和愤怒：
+[https://gofile.io/d/WtDVhe](https://gofile.io/d/WtDVhe)
 
-“他们想’为中国创造’欢迎的公众面孔’。遗憾的是，“现实”中他们几乎从不面对他们的“公众面孔”…………”
+新闻素材和图片来自林伍德律师及其所转发的推特，和以上链接。
 
-“只要对他们说不！否则他们会在我们首都的心脏地带建立一个庞大的间谍中心。 “
 
-“这个建筑将会是未来中国政府遥控监管的中心，英国将被称为中华人民共和国的英国特别行政区（UKSAR），让我们对此先适应一下吧，这是中共国的总体规划的一部分。 ”
-
-大国面子是中国共产党的主要执政理念和文化。但是他们无法理解一个需要获得尊重的超级大国与您使馆的规模大小无关。
-
-中共在2020年发生的一系列不负责任和邪恶的举动，揭露了他们在世界上的丑陋面孔。从抑制病毒举报者到掩盖病毒的原始来源；从Covic-19的谎言到囤积个人防护装备的阴险策略；从他们的战狼外到撕毁与英国签订的香港特别行政区的协定；从《香港安全法》的执行到对台湾采取军事的威胁；从对新疆穆斯林人的剥夺人权的再教育营到在南海的非法扩张，到对澳大利亚实施的霸凌贸易；从“一带一路”背后的阴谋到网络黑客窃取数据；从渗透到西方国家各个角落到技术窃取和科学研究；从华为5G威胁他国国家安全的再到干涉美国大选等等，这份长长的清单清晰地描绘了怎样的一个超级大国中共国将站在世界面前。
-
-同样，耗资2.5亿英镑的昂贵的使馆土地并没有赢得英国人民对中共中国的欢迎和尊重，反而给已为累累裂痕的脸上再撒一把盐。
-
-中共的末日已近，相信未来没有中共统治的新中国联邦将成为国际舞台上的一个更加伟大和受欢迎的国家。
-
-## **三、中共国新闻**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/KBQzMWmAx8B7o/images/0e0dad8b-4ecf-4d7a-b88b-7875bf3faf3a.jpg?asset_id=825b3d0e-ea4f-445d-b02c-6b230f27eee0&amp;img_etag=%22d9333c155ad0b8b418cd3eac2429a806%22&amp;size=2560)](https://spark.adobe.com/page/KBQzMWmAx8B7o/images/0e0dad8b-4ecf-4d7a-b88b-7875bf3faf3a.jpg?asset_id=825b3d0e-ea4f-445d-b02c-6b230f27eee0&amp;img_etag=%22d9333c155ad0b8b418cd3eac2429a806%22&amp;size=1024)
-
-#### ***【新闻一】**南华早报：5000万中国人春节前将接种新冠疫苗（万人往）*
-
-[!\[\]()!\[\](https://spark.adobe.com/page/KBQzMWmAx8B7o/images/483ec873-678a-46fe-bee0-6b7bf87fea0f.jpg?asset_id=66eff92c-cec5-41db-9320-35c15e0e640a&amp;img_etag=%2245d407c76f932b49323331df3bf8f9d5%22&amp;size=2560)](https://spark.adobe.com/page/KBQzMWmAx8B7o/images/483ec873-678a-46fe-bee0-6b7bf87fea0f.jpg?asset_id=66eff92c-cec5-41db-9320-35c15e0e640a&amp;img_etag=%2245d407c76f932b49323331df3bf8f9d5%22&amp;size=1024)
-
-**内容：**
-
-1、据香港《南华早报》报道，中共国国家卫健委和地方疾控中心的官员前天参加了一项电话会议，接获进行大规模疫苗接种工作的指示。报道称，中国预计即将展开接种工作，但各省份开始接种的日期可能不一样。
-
-2、官员们被告知，首批5000万剂疫苗必须在明年1月15日之前完成接种，第二批5000万剂疫苗应该在2月5日之前完成接种。一名知情但不愿具名的卫生专家透露，官方计划分发1亿剂由国企国药和民企科兴研发、生产的疫苗，每人需要注射两次。
-
-**【简评】**
-
-1、毒疫苗问题频发的中共国号称最早研制出有效的新冠疫苗，同时让一些被“蓝金黄”的主流媒体在全世界大肆渲染，挣足了“大国崛起”的面子，让被洗脑的小粉红无比自豪。中共的疫苗在没有充分试验的情况下就急着推向市场，要么是中共制造病毒时对疫苗早有准备，要么是疫苗造假。
-
-2、中共对每剂疫苗收费数百，1亿剂疫苗意味着又要搜刮几百亿民脂民膏。中共的疫苗到底有什么效果？注射以后有什么不良反应？会更容易感染吗？这些问题都还没有答案，有的学校就已经强行让学生注射疫苗。拿无辜的孩子当成小白鼠，天理难容。
-
-3、中共不灭，14亿人终难逃过注射“毒疫苗”的命运。如果国外政客继续和中共勾兑，还会让中共的“红龙之爪”伸向全世界，让“毒疫苗”走出国门。全球灭共刻不容缓。
-
-#### ***【新闻二】**电力负荷已超过冬季历史记录，湖南多地启动有序用电（万人往）*
-
-[!\[\]()!\[\](https://spark.adobe.com/page/KBQzMWmAx8B7o/images/4369b78d-db2c-43ca-a8a3-b88ff9f8841b.jpg?asset_id=e1a2bb84-ed15-4bc2-ad61-902a1537dd93&amp;img_etag=%22bda9091ad5750a35dbaa8e5d2f7de53a%22&amp;size=2560)](https://spark.adobe.com/page/KBQzMWmAx8B7o/images/4369b78d-db2c-43ca-a8a3-b88ff9f8841b.jpg?asset_id=e1a2bb84-ed15-4bc2-ad61-902a1537dd93&amp;img_etag=%22bda9091ad5750a35dbaa8e5d2f7de53a%22&amp;size=1024)
-
-**内容：**
-
-1、湖南省发布《关于启动2020年全省迎峰度冬有序用电的紧急通知》。《通知》强调，全省最大负荷已达3093万千瓦，超过冬季历史记录，日最大用电量6.06亿千瓦时，同比增长14.1%，电力供应形势紧张。为保障全省电网平稳运行和电力可靠供应，即日起湖南启动有序用电。
-
-2、《通知》明确，有序用电时段为每日10:30-12:00、16:30-20:30。将优先保障居民生活、关键公共设施(学校、医院等)和重点企业用电，适当压限行政单位和景观用电，有序用电时段关闭全省城市景观照明、半关闭路灯，周末关闭党政机关办公室动力用电。
-
-3、长沙倡议广大居民用户节约用电，主动避开高峰用电时段使用热水器、取暖器等大功率电器设备，尽量不在有序用电时段使用高耗能电器，其它时间不同时使用高耗能电器，避免因用电超负荷引起住宅小区跳闸断电（凡超负荷引起跳闸断电的，将根据电表数据智能排查，对超负荷用电的住户实施短时间内限制供电）。
-
-【简评】
-
-1、今年冬天，湖南电网最大用电负荷将突破 3300 万千瓦，受多方面影响，湖南电网发电侧供应只有 2900 万千瓦水平，湖南全网存在供电缺口。受中共病毒影响，中共国的经济已千疮百孔，用电量不太可能同比增加。从湖南的情况可以看出，中共国能源供给问题开始暴露。
-
-2、近期气温骤降，用电量需求攀升，在供电不足的情况下，湖南省竟然号召老百姓避开高峰时段使用热水器、取暖器，对超负荷用电的住户实施短时间内限制供电，荒唐至极。
-
-3、年初受疫情影响，官员为了政绩，保持用电量平稳，强行让企业设备空转，造成大量资源浪费。年底，冷空气来袭，供电不足，中共倡议广大居民节约用电。中共在处理问题时头痛医头、脚痛医脚，只考虑自己屁股底下的那把椅子坐得稳不稳，完全不顾及百姓民生。这样的政党一定会被扫进历史的垃圾堆。
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/KBQzMWmAx8B7o/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/KBQzMWmAx8B7o/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/KBQzMWmAx8B7o/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

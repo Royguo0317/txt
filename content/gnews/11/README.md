@@ -1,32 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【推特摘录1219】-为川普而战
-` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/667612/)
+## 美国37个州指控谷歌非法垄断
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/667681/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19182538/trump-won.jpg)
+*蒙特利尔皇家山战友团Spirit*
 
+*校对、上传 文锦*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19191528/google-monopoly1.gif)图片来源：UBC Blogs
+据The Post Millennial 12月17日报道，纽约总检察长莱蒂西亚-詹姆斯（Letitia James）与其他37个州的总检察长一起对谷歌提起诉讼。诉讼的目的是结束谷歌 “非法垄断搜索服务 “的行为。
 
-12月19日弗林将军转发了一篇视频，该视频被点击观看120万次，播放了美国人和全球各地支持川普总统的场景，包括一开始香港运动中人们手举美国国旗的场面，群体集会，街头支持，有人在讲台陈辞，有人在商场演讲，有万头攒动，有个人视频，背景是音乐加“为川普而战”的集体呼声，观后甚是激动人心。
+“不需要进行网络搜索就能明白，不受制约的企业权力不应该对我们的数据和信息拥有不成比例的控制权。”詹姆斯说。
 
+“几十年来，谷歌一直充当着互联网的守门人，并将我们的数据武器化，以杀死竞争对手并控制我们的决策。当谷歌继续赚取数十亿利润时，我们都在为我们每天使用的服务付出更多的代价。”詹姆斯在推特上说。
 
+詹姆斯已经对Facebook提起诉讼，而这次诉讼也有相似之处。
 
-> .[@cjtruth](https://twitter.com/cjtruth?ref_src=twsrc%5Etfw) [@SharletaBasset1](https://twitter.com/SharletaBasset1?ref_src=twsrc%5Etfw) [@kelliwardaz](https://twitter.com/kelliwardaz?ref_src=twsrc%5Etfw) [@tracybeanz](https://twitter.com/tracybeanz?ref_src=twsrc%5Etfw) [@BarbaraRedgate](https://twitter.com/BarbaraRedgate?ref_src=twsrc%5Etfw) [@flynn\_neill](https://twitter.com/flynn_neill?ref_src=twsrc%5Etfw) [@lofly727](https://twitter.com/lofly727?ref_src=twsrc%5Etfw) [#FightForTrump](https://twitter.com/hashtag/FightForTrump?src=hash&amp;ref_src=twsrc%5Etfw) & [#FightForAmerica](https://twitter.com/hashtag/FightForAmerica?src=hash&amp;ref_src=twsrc%5Etfw) !!! [https://t.co/JTDNIvH7E0](https://t.co/JTDNIvH7E0)
-> — General Flynn (@GenFlynn) [December 19, 2020](https://twitter.com/GenFlynn/status/1340358982452588546?ref_src=twsrc%5Etfw)
+川普政府加入了詹姆斯对Facebook的两党诉讼。在提起该诉讼时，詹姆斯表示，”Facebook利用其垄断力量压制较小的竞争对手，扼杀竞争，这一切都以牺牲日常用户的利益为代价。Facebook没有改进自己的产品，而是利用消费者的优势，将消费者的个人数据转化为现金牛，赚取了数十亿美元。
 
+她还说道：”今天的诉讼应该向Facebook和其他每一家公司发出明确的信息。那些想方设法遏制竞争、减少创新或削减隐私保护的公司，将会遭到全美几乎所有总检察长办公室的全力打击。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19191630/csaafsdfeg.jpg)图片来源：CNN
+詹姆斯是两党众多对抗大科技垄断企业的人之一，称他们对竞争的收紧已经扼杀了这个行业。
 
+川普政府一直主张取消第230条，该条款是联邦通信委员会下的一项规定，将许多科技公司的产品归类为平台而不是发行人。这意味着平台不需要为其网站上的内容负责，因为他们只是主机而不是内容创作者。
 
-川普总统的宪法律师 Jenna Ellis 转推，“自2016年选举以来，川普总统一直被诬陷、被恶意攻击。他告诉我们，他的竞选活动被监视。他说的没错，他告诉我们他没有腐败勾兑。事实证明他是对的。当他说选举被盗走了，我就相信他。”
+除了恶性压制竞争对手，这些大科技垄断企业包括Twitter在这次大选中根据自己的政治立场随心所欲地打压掩盖真相，用假消息误导民众，一手遮天。230条款赋予的权力本应该用于删除色情和暴力方面的内容， 结果被他们用于政治目的，胡作非为。所以取消230条款势在必行，要从科技公司手中夺回数据控制权，还民众真相。
 
-
-
-> Since the 2016 election, [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) has been falsely accused, maligned, and attacked. He told us his campaign was spied on. He was right. He told us there was no collusion. He was proven right. When he says this election was rigged or stolen, I tend to believe him.
-> — Franklin Graham (@Franklin\_Graham) [December 19, 2020](https://twitter.com/Franklin_Graham/status/1340341310415319040?ref_src=twsrc%5Etfw)
-
-
-
-新闻素材和图片来自福林将军推文，Jenna Ellis 推文
-
-
+原文链接
 
 0
