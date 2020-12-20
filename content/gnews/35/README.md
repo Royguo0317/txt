@@ -1,34 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯: 林伍德表示国家情报总监办公室已获得拜登作弊证据
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/668768/)
+## “脱贫”，中共2020最好的遮羞布
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/668799/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
+作者: Giogio
 
-2020年12月20日，林·伍德发推：绝大多数人完全不了解国家情报总监办公室的情报能力。如果情报在网络上，他们能全部获得。全部意味着所有。其它国家也能获得这些情报。拜登作弊，并被抓现行。
+审稿：Yumi
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20034738/away-to-poor.png)
+2020年12月15日，党媒央视网、联播+等在众门户网站头版头条，大谈特谈中共在脱贫方向的丰功伟绩。窃以为，这已是中共黔驴技穷，政务上毫无建树的最后一块遮羞布。
 
-Most of us do not have a full appreciation of the intelligence capabilities of Office of Director of National intelligence. If it is on the Internet, they get it ALL. ALL means ALL. Other countries can get it too. Biden cheated. He got caught.
+姑且不谈中共国的脱贫线（按今年标准，约全年收入4000元）定得是否合理，本人只记得在2020年5月，中共国国务院总理李克强曾表示，“**中国尚有6****亿中低收入及以下人群，****他们平均每个月地收入也就1000****元左右。**” 本人进而疑惑，当把克强总理这一言论与“脱贫胜利”一事放在一起，吃瓜的读者到底应该如何正确理解、领会“我党”的三观精神？ 6亿中国人月收入1000元讲不得，但贫困户年收入达到4000元就可以大书特书？
 
+再者，脱贫在现今的意义早已不如二三十年前。据中国国家统计局的数据，2020上半年全国居民人均可支配收入15666元。另据国家统计局数据，今年6至9月，全国新建商品住宅均价均已超过万元，分别是10113元、10263元、10540元和10191元。这么一比较，2020年上半年，一个中国人的平均收入刚买了约1.5平米的住房。所以，即便按照中共标准，脱贫已经达到，那么这样的脱贫又对一个生活依旧艰难，压力依然巨大的“平均”的中国人有何意义？
 
+综上，但凡有更好一些的亮点话题，中宣部也不会如此勉强地拿这种漏洞百出的新闻进行自我表扬，反复表扬。相比于其他乏善可陈、拿不出手的成绩，靠货币贬值使得贫困户年收入达到4000元或已成为中宣部宣传2020施政成效的最后一根稻草。
+(本文纯属个人观点）
 
-> Most of us do not have a full appreciation of the intelligence capabilities of Office of Director of National intelligence.
-> 
-> If it is on the Internet, they get it ALL. 
-> 
-> ALL means ALL.
-> 
-> Other countries can get it too. 
-> 
-> Biden cheated. He got caught. [pic.twitter.com/x7cWojq664](https://t.co/x7cWojq664)
-> — Lin Wood (@LLinWood) [December 20, 2020](https://twitter.com/LLinWood/status/1340510857499951104?ref_src=twsrc%5Etfw)
+澳喜文章:[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
 
+欢迎加入澳喜农场：
+[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20035659/IMG_1836.jpg)
 
-
-本应12月18日发布的国家情报总监报告，因部分成员不想将中共干涉美国大选的证据放入其中而推迟到1月份。林伍德此次发推，明确证实国家情报总监办公室已经获得拜登大选作弊的全部证据，同时暗指这些证据也被其它国家掌握。结合路德社节目分析，其它国家至少包括中共国和俄罗斯。假如拜登当选总统，中俄就能利用这些证据控制他，进而间接控制整个美国。 林伍德此次故意透露这些信息给美国人民，就是直接给国家情报总监办公室施压，要求他们按照事实发布报告。如果因为中共干涉，不将这些证据纳入报告，将会引起美国人民的极大反弹和对真相的寻求。
-
-本文作者:Stranger
-审核校对:玫瑰天空
-上传排版:糖果儿
 
 0

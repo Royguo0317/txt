@@ -1,31 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 灭共民意爆发：台北寒风中两千人挺川游行
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/668764/)
+## 特朗普称选举期间投票机可能已被SolarWinds黑客入侵
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/668803/)
 
-多伦多枫叶农场 向真
+翻译兼撰稿：Jony（8 Mile）
 
-校对上传 XM
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20033825/2659689-1.jpg)图片来源：yandex
-2020年12月19日，约两千人冒着冬天的寒冷来到台北市的信义广场，参加了挺川灭共游行活动。
+审稿：Jenny
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20035835/IMG_5415-1.jpg)网络截图
+美国总统川普周六表示，投票机可能在11月大选期间被黑客攻击了。
 
-早在2020年11月30日，日本的东京、大坂率先举行各有上千人参加的挺川游行，旨在声援在大选中处于困难的川普总统。20天内发生了3场颇具规模的挺川游行，在以往的历史中，万里之外的亚洲人民，频繁集会游行支持同一位美国总统的现象十今罕见。
+“在选举期间，我们可笑的投票机也可能受到打击，”川普在Twitter上写道。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20035142/IMG_5416.jpg)
+总统显然指的是SolarWinds黑客事件，该事件导致一些政府机构受到影响。
 
-究其原因，是热爱民主自由的各国人民，已经感受到来自邪恶中共的巨大威胁。他们从中共背信弃义摧残香港的民主、控制美国的主流媒体、操控美国的大选、发动超限生物战中看到，中共通过操弄人性中的弱点，把其极权社会主义统治模式强加给美国，显然已经非常接近成功。如果美国被中共攻陷，其他民主国家亦必将陷入劫难。这就是他们喊出“挺川灭共”的原因。
+他说，这次黑客事件并没有报道的那么大。
 
-由垄断资本控制的美国主流媒体和社交平台，比如CNN、华尔街日报、纽约时报、脸书、推特、油管等等，和中共沆瀣一气，拜登这样的权力精英和中共结成利益共同体，美国的三权部门，都被深层政府深度操控，在大选中呈现“海啸般的腐败”（Dr.Bo），这些丑恶现象的发生，主要是中共对美国多年实施蓝金黄，削弱美国的传统价值和淘空美国经济的结果。
+“网络黑客在假新闻媒体中的影响力远远大于实际情况。”他写道。”我已经得到了详尽的简报，一切都在控制之中。”
 
-川普是一位言行一致的总统，是一位平民主义者，他多次重申，美国不会实行社会主义。他上任后除了推行产业回归，还为劳动阶层大幅减税，实行降低纳税人负担的小政府治理模式，和民主党的大政府高税收完全不同，因此得到中下层民众的拥护，但同时触犯了垄断资本集团和中共的利益。
+但是，他批评媒体忽视了中共很可能是黑客事件的真正起源。
 
-中共和垄断资本集团，在全球化中已经结成利益共同体，他们通过剥削欠发达国家的奴隶劳工，把廉价商品倾销到全世界，达到破坏发达国家经济体系、弱化西方阵营的目的，当川普总统代表平民主义者对他们说“不”时，当然招致他们的激烈攻击，其中就包括中共的病毒攻击。
+CISA和多米尼克投票系统没有立即对《大纪元时报》要求评论的请求进行回应。
 
-推倒防火墙后，中国人民也将彻底觉醒，和日本、香港、台湾乃至全世界的正义力量一道消灭中共。
+网络安全和基础设施安全局（CISA）于12月13日发布紧急指令，宣布涉及SolarWinds Orion产品的漏洞正被一些恶意黑客利用。
 
-参考链接：
+“SolarWinds Orion网络管理产品的漏洞对联邦网络的安全构成了难以接受的风险，”CISA代理局长Brandon Wales在一份声明中说。
 
-[https://www.epochtimes.com/gb/20/12/19/n12632081.htm](https://www.epochtimes.com/gb/20/12/19/n12632081.htm)
+SolarWinds在最近的一份文件中表示，多达1.8万名客户可能使用了有漏洞的软件。该公司忽视了其软件允许简单密码进行访问的警告。
 
+SolarWinds表示，非Orion产品似乎没有受到影响。
+
+根据一份SolarWinds线下的部分客户名单，SolarWinds的约30万客户中包括政府机构和美国军方的所有五个部门。能源部、商务部、微软、亚利桑那州皮马县政府、考克斯通讯公司等机构已确认其系统受到近期安全漏洞的影响。
+
+11月大选后饱受争议的Dominion Voting Systems公司CEO周二表示，该公司从未使用过SolarWinds Orion平台，该平台被专家认为早在去年就被黑客攻破。
+
+“我们没有使用13日国土安全部报告中提到的SolarWinds Orion软件包，”首席执行官John Poulos通过视频链接告诉密歇根州的议员们。
+
+不过，《大纪元时报》捕捉到的一张Dominion网页截图显示，Dominion确实使用了SolarWinds技术。Dominion后来修改了该网页，删除了任何提及SolarWinds的内容，但SolarWinds网站仍在该网页的源代码中。
+
+Poulos表示，Dominion从没有使用过Orion平台。
+
+“Dominion Voting Systems现在没有，过去也没有使用过SolarWinds Orion平台，该平台在2020年12月13日国土安全部（DHS）紧急指令（紧急指令21-01）中被提及，”Dominion 投票系统发言人在给《大纪元时报》的一份声明中说。
+
+简评：主流媒体在这次有关大选投票系统的安全漏洞和被黑客利用的报道中，避重就轻，试图弱化中共在背后扮演的真实角色，从而引导舆论并掩盖中共操控美国总统大选的真相。
+
+Dominion投票系统多次掩盖其产品的漏洞，缺陷和危害美国国家安全的本质。这不经让人联想，Dominion的幕后推手和中共的密切关系。
+
+（本文纯属个人观点）
+
+相关文章链接： [https://www.theepochtimes.com/trump-says-voting-machines-may-have-been-breached-by-solarwinds-hack-during-election\_3625553.html](https://www.theepochtimes.com/trump-says-voting-machines-may-have-been-breached-by-solarwinds-hack-during-election_3625553.html)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18041919/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872.jpg)
 
 
 0
