@@ -1,28 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 古今中外七大商道典范（四）
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/667364/)
+## 一如既往的愚蠢还是假冒伪善？
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/667533/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19162745/%E5%95%86%E9%81%93%E5%85%B8%E8%8C%834.jpeg)
-美国乔布斯，美国所有企业里面我觉得最厉害的应该是乔布斯，他创造了苹果的传奇，苹果开创了一个时代，真正是把科学与艺术做到了结合，把技术和人文做到了结合，当然他这里面也有所谓的美国的创业精神，今天苹果变成了真正的万亿帝国，甚至变成了一个教，苹果教！他的过程和经历我就不讲了，大家都很清楚。
+摘要：乔·拜登将《诗篇》（Psalms）念成“手掌书”（palms）[译者注：Psalms 和 palms 的英文发音相近]。
 
-他最了不起的是他这种全新的理念。比如说在苹果的设计上，用最最直观的方法，最简单的操控方式，就一个键，别人那个时候还是一堆键，像诺基亚。苹果就一个键，特别简单，极简。极简是中华传统的禅宗理念，乔布斯他自己的一生，也是与禅息息相关的。他是佛教徒，每天打坐禅修，他的这个理念真的就是体现在了产品的设计当中。
+【编者按】一个小小的滑稽的失误表明了几个严重的问题：他是一如既往的愚蠢还是一个假冒伪善者，也许两者都是。
+[视频来源](https://youtu.be/eNrEODVKAO0)
+Transcript (全文)：
 
-当然对于乔布斯的争议是有的，我们只是讲他商业上的成就，不讲他的私人生活，我们讲的是商道，商道是没有争议的。商道智慧如何运用在他的事业上，就是苹果的设计，包括他如何做设计的一些方法，我看了一些他的传记和介绍，据说他办公室是空的，啥也没有就一个蒲团，天天打坐。在打坐中就有灵感从他自己的内心发出，这就是禅宗讲的不立文字，直指人心。他说，活着就是为了改变世界！这真的是和中华传统文化100%一样的，包括他说的活在每一个当下，犹如活在生命的最后一刻。这都是佛家的无常观，全是佛法。他经常说，成就一番伟业，唯一途径就是热爱自己的事业，如果你还没有找到你热爱的事业，那么就继续寻找，不要放弃。跟随自己的心是纯粹佛法理念，所以乔布斯的成功是因为他用的佛法的智慧，绝对不是西方企业管理的那一套。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19162830/%E5%95%86%E9%81%93%E5%85%B8%E8%8C%83CHART1-1.png)
-第六个典范是犹太人，从古至今都很厉害，世界上最富有的民族，号称世界的金矿。 人口比例不到0.25%，占据着世界超级富豪榜前列20-25%的席位，控制全世界超过一半的财富。他们有自己完整的体系，他们有著名的经典，犹太经典塔木德。犹太人从来不想一夜暴富，他们认为你有什么样的本事，有什么样天赋就吃什么样的饭。他们的祖辈告诉他们天上不会掉馅饼，满地是陷阱。我们中国人很多认为天上会掉馅饼，满地是黄金。他们很崇尚脚踏实地，很多犹太人都是从底层做起，把这些平凡的工作先做的极为出色。
+And friends, seeing you as it’s Sunday and lord’s day. I thought we might have a little reading from the scripture from America’s punitive next president that self-proclaimed devout mass-going catholic Joe Biden, take it away deacon Joe and:
 
-他们说千万不要想着一下子就可以造出大海，一定要从小河流开始。 犹太人的商道智慧都记载在塔木德经典里了，他们的精髓非常值得展开讲。他们用天道做商道，他们和中华传统智慧重叠部分非常大。犹太人是很节俭的，在以色列很少看到大牌的奢侈品店。他们讲究的是实用主义， 他们认为这些奢侈品根本不值这些钱，因为他们就是搞金融的，懂得投资，他们都很实用。
+朋友们，在周日这个上帝的日子里见到你们。 我想，我们可以从自称是虔诚的大众化天主教徒、美国应受惩罚的下一任总统乔·拜登的经文里读到一点，请看乔执事：
 
-比如我的老师有个德国朋友，就是一个犹太人，他把钱花在房子上，他的房子搞得贼好，很贵，很值钱，但他开出来的车却破得要命，一个大众。他说车，天天在贬值，不就是一个交通工具吗？买那些名牌车天天贬值何必呢？他认为房子升值，所以值得投资；投资车根本没有意义，这就是犹太人，实用，不搞那些虚头巴脑的东西。我们中国人为什么那么喜欢奢侈品？在某个程度上说，就是没有自信，很大一部分人是这样的，不是每个人。很多人对自己没自信，他需要这些外在的东西来包装自己，来显得自己很厉害，有档次，这就叫虚荣！当然七哥那样的不是，他是真正对服装有研究，有品位的，内在很强大，外在也很强大。
+Joe Biden: If we do and I’m sure we can, we can proclaim the promised with “palms” (psalm) who wrote the following words: the lord is my strength and my shield…
 
-下一期我们讲文贵先生。
+乔·拜登：如果我们这样做，我相信我们可以，我们可以用以下几句来称颂应许的手掌（诗篇）：主是我的力量，是我的盾牌…
 
-作者：比卡丘,心灵感应
+Sorry, did he just call the book of psalms the book of palms? Now I know you don’t even have to be Pope Francis to be pronounce the word psalms. Rita is such a staunch atheist and you know how to pronounce it, right? Yeah, I think she does. It’s a small hilarious slip up that has a serious point though and actually there’s several serious points behind this latest Joe Biden blooper.
 
-原创观点文章 – 2020/12/19
+抱歉，他刚刚是在称圣经的诗篇为手掌书吗？现在，我知道您不必是弗朗西斯教皇就能够念诗篇。丽塔是一位坚定的无神论者，你知道如何发诗篇的音，对吗？是的，我想她知道。这是一个有严重问题的小小的滑稽的失误。实际上，最近乔·拜登新的吹牛的背后有几个重要的问题。
 
-温哥华圆成农场
+Number one, for all Joe Baden’s claim to the mantle of religion, he is something of a false teacher. It’s not just his unfamiliarity with basic bits of scripture. I mean as a catholic, he would know that every Sunday’s mass features a responsorial psalm but the fact that the media is fawning over his faith. I mean do you really think there’s chance the guardian among other outlets would be promoting Biden’s religiosity as a good thing？
 
-0
+第一，对于所有乔·拜登宣称的宗教信仰而言，他不是个真正的老师。 这不仅是他不熟悉圣经的基本知识。 我的意思是说，作为一个天主教徒，他会知道每个星期天的弥撒都带有赞美诗篇，但事实是，媒体讨好他的信仰。 我的意思是说，您真的认为《卫报》和其他机构推崇拜登的宗教信仰是一件好事吗？
+
+If they thought for a second, he might actually believe it or if he might let inform his views on anything from abortion to modern liberalism’s unending assault on the family? Not a chance! But the second point is this for all this stumbles, Joe Biden is just as dopey as ever. Remember this is the witness protection candidate, the democrats, the media and the Washington swamp hold across the line against all odds so that they could use him as a stalking horse to get all the old failed establishment banned back together.
+
+如果他们想一下，他可能会真正相信它，或者如果他愿意就从堕胎到现代自由主义无休止的对家庭的攻击等任何事情发表自己的见解？没机会！而第二个重点是，在这一切的蹒跚中，乔·拜登还是一如既往的愚蠢。请记住，这是证人保护候选人，民主党人、媒体和华盛顿沼泽越线反对所有可能性，以确保他们可以利用他作为掩护性候选人，让所有失败的、被禁止的老机构团结到一起。
+
+听写 & 翻译：【JennyL】校对:【Cyndi】字幕：【绒绒兔】新闻线索：【John】
+
+玫瑰园小队出品
+
+1+

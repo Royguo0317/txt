@@ -1,31 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄罗斯被指所谓入侵美国政府 需重新审视与中共关系
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/667515/)
+## 【推特摘录1219】-为川普而战
+` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/667612/)
 
-俄罗斯莫斯科喀秋莎农场 银河
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19182538/trump-won.jpg)
 
-校对上传 星河
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19171704/56559.jpg)图片来源：oko-planet.su
-法新社华盛顿18日报道，美国国务卿蓬佩奥（Mike Pompeo）指责俄罗斯骇客入侵美国财政部、商务部与国土安全部等部门网络。蓬佩奥表示，“这是一种非常值得关注的入侵，而我认为，我现在可以明确指出，俄罗斯人涉入其中”。
 
-美国川普总统随即表示，“假新闻媒体中的网络黑客比实际情况要严重得多，目前一切都处于控制之中，媒体对讨论黑客可能是中共国的可能性感到震惊。”
+12月19日弗林将军转发了一篇视频，该视频被点击观看120万次，播放了美国人和全球各地支持川普总统的场景，包括一开始香港运动中人们手举美国国旗的场面，群体集会，街头支持，有人在讲台陈辞，有人在商场演讲，有万头攒动，有个人视频，背景是音乐加“为川普而战”的集体呼声，观后甚是激动人心。
 
-微软总裁史密斯（Brad Smith）发文表示，遭遇骇客袭击的客户中， 80%源自美国，其他国家如比利时、英国、加拿大、以色列、墨西哥、西班牙与阿拉伯联合大公国也发现骇客袭击。
 
-同日，美国有线电视新闻网（CNN）引述国务院12月10日致函国会的信件内容报导，美国拟关闭位于俄罗斯远东地区的海参崴（Vladivostok）领事馆，并暂停叶卡捷琳堡（Yekaterinburg）领事馆。美俄关系可能出现再次紧张。
 
-但是，川普总统拒绝指责俄罗斯有据可查的敌对行动，包括干涉2016年选举以帮助他当选。他指责O先生是俄罗斯吞并克里米亚的原因，他赞同允许俄罗斯回到G-7国家集团。此次，川普总统并未表示网络黑客是俄罗斯所为。
+> .[@cjtruth](https://twitter.com/cjtruth?ref_src=twsrc%5Etfw) [@SharletaBasset1](https://twitter.com/SharletaBasset1?ref_src=twsrc%5Etfw) [@kelliwardaz](https://twitter.com/kelliwardaz?ref_src=twsrc%5Etfw) [@tracybeanz](https://twitter.com/tracybeanz?ref_src=twsrc%5Etfw) [@BarbaraRedgate](https://twitter.com/BarbaraRedgate?ref_src=twsrc%5Etfw) [@flynn\_neill](https://twitter.com/flynn_neill?ref_src=twsrc%5Etfw) [@lofly727](https://twitter.com/lofly727?ref_src=twsrc%5Etfw) [#FightForTrump](https://twitter.com/hashtag/FightForTrump?src=hash&amp;ref_src=twsrc%5Etfw) & [#FightForAmerica](https://twitter.com/hashtag/FightForAmerica?src=hash&amp;ref_src=twsrc%5Etfw) !!! [https://t.co/JTDNIvH7E0](https://t.co/JTDNIvH7E0)
+> — General Flynn (@GenFlynn) [December 19, 2020](https://twitter.com/GenFlynn/status/1340358982452588546?ref_src=twsrc%5Etfw)
 
-12月19日，以情报准确、唯真不破而广受关注的爆料革命和新中国联邦创始人郭文贵在视频中指出：中共会与盟友俄罗斯产生巨大分歧。中共利用俄罗斯平台进行骇客袭击，俄罗斯成为中共的背锅侠。俄罗斯强烈谴责中共，中共强硬警告威胁俄罗斯，中共与俄罗斯的盟友关系岌岌可危，俄罗斯总统普京，必将在美国总统大选尘埃落定之际选择最符合俄罗斯利益的应对方案，重新审视与中共的关系。
 
-参考链接：
 
-[https://www.news18.com/news/world/pompeo-says-russia-pretty-clear-behind-cyberattack-on-us-3194027.html](https://www.news18.com/news/world/pompeo-says-russia-pretty-clear-behind-cyberattack-on-us-3194027.html)
+川普总统的宪法律师 Jenna Ellis 转推，“自2016年选举以来，川普总统一直被诬陷、被恶意攻击。他告诉我们，他的竞选活动被监视。他说的没错，他告诉我们他没有腐败勾兑。事实证明他是对的。当他说选举被盗走了，我就相信他。”
 
-[https://www.rfi.fr/cn/蓬佩奥-骇客入侵美国政府-俄罗斯指使](https://www.rfi.fr/cn/蓬佩奥-骇客入侵美国政府-俄罗斯指使)
 
-[https://www.rfi.fr/cn/美媒披露美国拟关闭在俄罗斯仅存两座领事馆](https://www.rfi.fr/cn/美媒披露美国拟关闭在俄罗斯仅存两座领事馆)
+
+> Since the 2016 election, [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) has been falsely accused, maligned, and attacked. He told us his campaign was spied on. He was right. He told us there was no collusion. He was proven right. When he says this election was rigged or stolen, I tend to believe him.
+> — Franklin Graham (@Franklin\_Graham) [December 19, 2020](https://twitter.com/Franklin_Graham/status/1340341310415319040?ref_src=twsrc%5Etfw)
+
+
+
+新闻素材和图片来自福林将军推文，Jenna Ellis 推文
+
+
 
 0

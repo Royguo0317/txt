@@ -1,37 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 一如既往的愚蠢还是假冒伪善？
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/667533/)
+## 科罗拉多州验尸官发现枪击受害者被统计成因中共病毒而死
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/667667/)
 
-摘要：乔·拜登将《诗篇》（Psalms）念成“手掌书”（palms）[译者注：Psalms 和 palms 的英文发音相近]。
+*草原三省战友之家       文静*
 
-【编者按】一个小小的滑稽的失误表明了几个严重的问题：他是一如既往的愚蠢还是一个假冒伪善者，也许两者都是。
-[视频来源](https://youtu.be/eNrEODVKAO0)
-Transcript (全文)：
+*校对、上传 文锦*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19190553/im-183975.jpg)图片来源： wsj
+美国科罗拉多州验尸官布伦达·博克(Brenda Bock)表示，她对格兰德县夸大中共病毒死亡人数感到震惊。
 
-And friends, seeing you as it’s Sunday and lord’s day. I thought we might have a little reading from the scripture from America’s punitive next president that self-proclaimed devout mass-going catholic Joe Biden, take it away deacon Joe and:
+根据特别的民意调查:谁更危险? 她向当地新闻媒体发表讲话，呼吁人们关注国家卫生部门报告一些与中共病毒有关的死亡事件的方式。
 
-朋友们，在周日这个上帝的日子里见到你们。 我想，我们可以从自称是虔诚的大众化天主教徒、美国应受惩罚的下一任总统乔·拜登的经文里读到一点，请看乔执事：
+据《每日电讯》报道，博克说，格兰德郡的5例中共病毒死亡病例中包括两名枪伤受害者。她说:“他们竟然把这个不相关的病例也放在那里，这太荒谬了！” 因为死亡的病例也会传染，如果有人想去一个死亡率非常高的县去看看的话，那很可能会感染、会死，这就为虚假死亡数字提供了可能。
 
-Joe Biden: If we do and I’m sure we can, we can proclaim the promised with “palms” (psalm) who wrote the following words: the lord is my strength and my shield…
+该媒体报道称，科罗拉多州卫生部门辩称，他们只是在遵循美国疾病控制与预防中心(CDC)制定的方案。但是据《KCNC-TV》报道，事实是疾控中心的指导方针要求国家卫生部门报告 “因感染中共病毒而死的人，因为这对公共卫生监测至关重要。”
 
-乔·拜登：如果我们这样做，我相信我们可以，我们可以用以下几句来称颂应许的手掌（诗篇）：主是我的力量，是我的盾牌…
+科罗拉多公共卫生环境部也表示:“CDC需要这些信息，这对公共卫生监测至关重要，因为它提供了更多关于疾病传播的信息，有助于确定人群中所有死亡的风险因素。”
 
-Sorry, did he just call the book of psalms the book of palms? Now I know you don’t even have to be Pope Francis to be pronounce the word psalms. Rita is such a staunch atheist and you know how to pronounce it, right? Yeah, I think she does. It’s a small hilarious slip up that has a serious point though and actually there’s several serious points behind this latest Joe Biden blooper.
+而据格兰德郡的《Sky-Hi新闻》报道，两名枪击受害者是一起谋杀-自杀事件的结果。周二，博克告诉县专员，她认为该县只有一人死于中共病毒，但该县称共有三例与中共病毒相关的死亡。” 博克表示，谋杀-自杀案件已进行尸检，并确定死因为“枪伤所致的钝器力伤”。“病理学家也从来没有说过其它二例死于中共病毒。”
 
-抱歉，他刚刚是在称圣经的诗篇为手掌书吗？现在，我知道您不必是弗朗西斯教皇就能够念诗篇。丽塔是一位坚定的无神论者，你知道如何发诗篇的音，对吗？是的，我想她知道。这是一个有严重问题的小小的滑稽的失误。实际上，最近乔·拜登新的吹牛的背后有几个重要的问题。
+博克还告诉该媒体，她正在与州政府合作，试图将非中共病毒死亡人数从官方统计中删除。博克强烈表示：“如果我们想让公众信任并相信发布的信息，我们需要确保它是准确的，我强烈反对虚假数据，我们需要站起来，我们需要纠正这些数字。”
 
-Number one, for all Joe Baden’s claim to the mantle of religion, he is something of a false teacher. It’s not just his unfamiliarity with basic bits of scripture. I mean as a catholic, he would know that every Sunday’s mass features a responsorial psalm but the fact that the media is fawning over his faith. I mean do you really think there’s chance the guardian among other outlets would be promoting Biden’s religiosity as a good thing？
+以上由科罗拉多州验尸官布伦达·博克所揭露的、关于中共病毒死亡数据的真相让人非常震惊，由这个州所爆出的数据真相可以想像出，整个美国数据都有可能造假。2020年发生在全世界特别是美国一系列的灾难事件，在影响人们正常生活的同时，直接颠覆了正直人士的三观，大家都清楚看到，几乎所有原本令人向往的民主自由法治国家，都受到了冲击和不同程度的改变，包括美国、加拿大、澳大利亚、英国、法国、日本、新西兰、台湾等，许多人开始焦虑和抱怨，“民主国家怎么会这样？怎么会和中共国一样了？” 其实道理很简单，那就是中共为首的共产主义思潮和各种势力，多年来对西方国家全方位的渗透，渗透的方式新中国联邦的爆料革命，多年来一直有大量深层次的揭露。
 
-第一，对于所有乔·拜登宣称的宗教信仰而言，他不是个真正的老师。 这不仅是他不熟悉圣经的基本知识。 我的意思是说，作为一个天主教徒，他会知道每个星期天的弥撒都带有赞美诗篇，但事实是，媒体讨好他的信仰。 我的意思是说，您真的认为《卫报》和其他机构推崇拜登的宗教信仰是一件好事吗？
+美国中共并病例数据造假，一定是左翼势力为了打击川普政府所为，而2020年发生在美国的一系列不寻常的、有违民主法治的事件，都证明了正如新中国联邦所爆料、曝光的大量真相，几乎所有发生在美国的丑恶事件，诸如中共病毒、媒体造假、美国大选舞弊欺诈，以及甚至美国法院和司法体系不作为等，几乎所有重大罪恶行径的背后黑手就是中共！他们利用和绑架14亿中国人民，利用巨大市场和经济利益做诱饵，通过拉拢、腐蚀、贿赂来渗透西方国家，其险恶用心就是要颠覆自由民主法治体系，实现中共的专制独裁体制！
 
-If they thought for a second, he might actually believe it or if he might let inform his views on anything from abortion to modern liberalism’s unending assault on the family? Not a chance! But the second point is this for all this stumbles, Joe Biden is just as dopey as ever. Remember this is the witness protection candidate, the democrats, the media and the Washington swamp hold across the line against all odds so that they could use him as a stalking horse to get all the old failed establishment banned back together.
+但是随着爆料革命多年来对中共大量罪恶真相的揭露，中共病毒就是生化武器的事实已经被确定，大选舞弊欺诈的事实证据也已经不可逆转，所有西方正义力量已经开始反击！中共的邪恶企图必定破产！
 
-如果他们想一下，他可能会真正相信它，或者如果他愿意就从堕胎到现代自由主义无休止的对家庭的攻击等任何事情发表自己的见解？没机会！而第二个重点是，在这一切的蹒跚中，乔·拜登还是一如既往的愚蠢。请记住，这是证人保护候选人，民主党人、媒体和华盛顿沼泽越线反对所有可能性，以确保他们可以利用他作为掩护性候选人，让所有失败的、被禁止的老机构团结到一起。
+*[原文链接](https://www.theblaze.com/news/colorado-coroner-covid-deaths-gunshot-victims)*
 
-听写 & 翻译：【JennyL】校对:【Cyndi】字幕：【绒绒兔】新闻线索：【John】
-
-玫瑰园小队出品
-
-1+
+0
