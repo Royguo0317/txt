@@ -1,19 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国司法部起诉ZOOM中国高管
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/667847/)
+## 巴尔被炒反思美国司法系统之堕落
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/667977/)
 
-台湾农场(筹备) Amitofu
+撰稿：五饼二鱼
 
-美国司法部表示，纽约布鲁克林联邦法院18日，起诉和发出逮捕令指控”金新江（Xinjiang Jin）“涉嫌共谋跨州骚扰罪和非法共谋转让身份证明罪，金新江担任中共执法部门和情报机构间的主要联络人，负责向中共提供公司视讯平台的用户和会议讯息，包含Internet协议IP地址，用户名称和电子邮件地址，也负责监控视讯平台上被中共认为是非法政治和宗教议题的会议。根据路透社报导金新江任职的视讯软件公司就是Zoom公司。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19203734/zoom-355x225.jpg)圖片來源:FBI網站
-布鲁克林联邦法院起诉书指出，金新江涉嫌破坏2020年5、6月为纪念8964天安门广场屠杀举行的一系列会议。从2019年1月至今，金新江和其他人共谋终止了在Company-1网络上举行的『纪念天安门大屠杀三十周年』至少四场视频会议，参加者大部分由美国驻华大使馆组织和在1989年抗议活动中幸存下来的人，起诉书指39岁的金新江被将面临最高10年监禁。
+编辑：Jenny、五饼二鱼
 
-国家安全助理总检察长约翰·德默斯（John C. Demers）表示：“在美国中企的高管都必须接受中共情报部门的领导，扼杀镇压全世界中国人民的言论自由。” 代理美国检察官塞斯也表示：“中共要求在中国境内发展业务的美国科技公司，必须按照中共指示，对中国境内用户的政治和宗教言论保持沉默。金新江帮助中共当局审查美国用户的核心政治言论。提供任何不利中共言论的用户，和不被接受的政治宗教议题。” 目前 FBI联邦调查局宣布金新江已经逃回中国。本文仅代表个人立场
+美东时间2020年12月14日下午，川普总统发推美国总检察长巴尔即将离任，他将在圣诞节前完成交接工作并离开司法部，川普总统将任命副检察长杰夫 罗森（Jeff Rosen）担任代理检察长。
 
-资料来源: 美国司法部[https://www.justice.gov/opa/pr/china-based-executive-us-telecommunications-company-charged-disrupting-video-meetings](https://www.justice.gov/opa/pr/china-based-executive-us-telecommunications-company-charged-disrupting-video-meetings)
+推特链接https://twitter.com/realDonaldTrump/status/1338614499981602819?s=20
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19215110/115760071_tv064603954.jpg)图片来源网络
+从爱泼斯坦的离奇死亡、亨特拜登的硬盘门事件、2020总统大选欺诈等事件中我们看到司法部长巴尔不但不作为而且还有参与掩盖真相的嫌疑，本次大选大量证据显示邮寄选票造假、Dominion计票系统篡改数据、在法兰克福捕获Scytl服务器、聘请社会人员阻拦共和党人参与计票、大量死人投票、各地听证会大量证人宣誓证词等一系列证据指向本次总统选举存在的严重舞弊造假现象。巴尔12月1日（周二）对美联社表示，司法部与国土安全局调查了这一指称，“截至目前，我们没有找到任何支撑的证据。 消息来源[https://www.bbc.com/zhongwen/simp/world-55154146](https://www.bbc.com/zhongwen/simp/world-55154146)
 
-FBI联邦调查局[https://www.fbi.gov/wanted/counterintelligence/xinjiang-jin](https://www.fbi.gov/wanted/counterintelligence/xinjiang-jin)
+据路德社此前透露亨特拜登的硬盘早在2019年12月就已经被司法系统获取，掩盖一年之久，但是纸包不住火，根据华盛顿邮报、路德社、Gnews等多个媒体平台披露亨特拜登硬盘内有大量关于洗钱、勾结中共军民融合企业、偷漏税、虐童等犯罪视频，但是司法系统均未对其开展实质性的调查。
 
+任备受争议的司法部长威廉巴尔的离开是必然的，也是美国民心所向、我们希望美国司法系统能尽快排干沼泽彻查选举舞弊造假，还广大选民一个真相。
+
+（文章仅代表个人观点）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19055723/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 0

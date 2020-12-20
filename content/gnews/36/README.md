@@ -1,54 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 五角大楼紧急关闭网络
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/667562/)
+## 白宫请愿书：呼吁川普总统实施《叛乱法》，制止选举结果欺诈
+` GM107` [轉載自GNews](https://gnews.org/zh-hans/667736/)
 
-新闻来源：《The Gateway Pundit》；作者：Jim Hoft；发布时间：December 15 , 2020 /2020年12月15日
+据自然新闻报道，白宫官方网站上的一份新请愿书要求政府宣布存在叛乱，要求成立军事法庭接管国家。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19195031/Trump-Virginia-Rally.jpg)
+请愿书要求白宫援引1807年的《叛乱法》，该法授权美国总统在特定情况下，在美国境内部署军队和联邦化的国民警卫队，以镇压内乱、叛乱和反叛。
 
-翻译/简评：Victory；校对：感恩；审核：万人往；Page：小雨
+请愿书中说：”**所有客观观察者都可以看出，我们的选举制度已经被不可救药地破坏了……**“。
 
-**简评：**
+请愿书是在对选举的最大法律挑战失败之际发出的。该请愿书是在最高法院驳回了德克萨斯州的一项诉讼后提出的，该诉讼要求撤销11月3日四个州的选举结果——乔治亚州、密歇根州、宾夕法尼亚州和威斯康星州的选举结果。
 
-一般网络升级会尽量选在非工作时间进行。这次国防部在工作时间紧急关闭网络进行升级，一定是有非常事件发生。很可能是发现正在遭受攻击或者有重大安全漏洞。暂时还没有看到证据表明此事和中共有关，但考虑到中共一贯地操纵黑客攻击美国的行为，此事他们难脱干系。我们期待后续报道。
+这起诉讼是由得克萨斯州总检察长肯-帕克斯顿提出的，曾有其他17个投票给唐纳德-川普总统的州加入。它依据一项统计分析，声称乔-拜登不可能比特朗普多得700万张选票，因此要求取消这四个州的选举结果。
 
-**原文翻译：**
+**川普曾称这一诉讼为 “大案”**，众议院196名共和党人中，也有126人呼吁法院受理。但法官们迅速行动，拒绝了它。”德克萨斯州并没有在另一个州进行选举的方式中，表现出可被司法承认的利益，”法院在一份未署名的简短意见中表示。
 
-# 
-突发：五角大楼对其秘密的互联网协议路由器网络实施紧急关闭–处理机密信息至秘密级别
+根据塞缪尔-阿利托和克拉伦斯-托马斯大法官的说法，法院无权拒绝在其原来的备查表上提交的案件——其中一个州提出起诉另一个州。但大法官们表示，他们不会给予德克萨斯州任何其他救济，对诉讼提出的任何问题都不发表意见。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/z3LcPGGrqOzjA/images/ad3e7d44-228a-4028-b7b1-9d25367b30d2.jpg?asset_id=a60232b4-b7a7-48ae-86b6-54b15a13d90a&amp;img_etag=%222e650e25fa65739f75fdc58ee4caa77e%22&amp;size=1024)](https://spark.adobe.com/page/z3LcPGGrqOzjA/images/ad3e7d44-228a-4028-b7b1-9d25367b30d2.jpg?asset_id=a60232b4-b7a7-48ae-86b6-54b15a13d90a&amp;img_etag=%222e650e25fa65739f75fdc58ee4caa77e%22&amp;size=1024)
+对于案件被驳回，川普在推特上表示，”**最高法院真的让我们失望了**“。
 
-五角大楼周二对处理机密材料的计算机网络实施紧急关闭。
+“**没有智慧，没有勇气！**“他补充道。
 
-此前，网络安全和基础设施安全局(CISA)于周日晚间罕见地发布了21-01号紧急指令，以应对涉及太阳风（SolarWinds） Orion产品的已知让步。
+与此同时，德克萨斯州总检察长帕克斯顿表示，他将继续坚持诉讼提出的指控。”我将继续孜孜不倦地捍卫我们选举的真实性和安全性，并追究那些为了自己的便利而逃避既定选举法的人的责任。”
 
-周日晚上的指令仅是CISA根据国会在2015年《网络安全法》中授予的权力发布的第五个紧急指令。
+但现在选举团已经投了票，类似诉讼被提起并通过的几率就更小了。华盛顿两党政策中心的选举法专家约翰-福蒂尔（John Fortier）说：”我认为的答案是，在法院的挑战已经做得很好了。”
 
-据《Just the News》报道，五角大楼已经对其秘密互联网协议路由器网络实施了紧急关闭，该网络处理的机密信息达到了秘密级别。
+如果所有法律挑战都失败，《叛乱法》可能是最后的手段。**由于全国各地的法院都驳回了对选举的法律质疑，请愿者可能会将叛乱法视为推翻他们所认为的欺诈性选举的最后手段。**
 
-一位官员说：”这种情况从来没有在工作日中发生过。”
+上一次召集该法案是在1992年5月，当时加州面对1992年的洛杉矶骚乱，要求时任总统乔治-布什实施该法案。
 
-《Just the News》报道：
+上一次实施与选举有关的法案是在1872年。但当时，时任总统尤利西斯-格兰特(Ulysses S. Grant)在路易斯安那州爆发内乱后，为执行选举结果——共和党州长候选人威廉-皮特-凯洛格(William Pitt Kellogg)的选举结果，而实施了该法案。
 
-*国防部三名消息人士证实，五角大楼周二下令紧急关闭一个机密的内部通信网络。*
+这并不是今年第一次提出《叛乱法案》。夏初，由于弗洛伊德去世而引发美国城市巨大骚乱，川普曾威胁要实施该法案采取军事行动制止骚乱。
 
-*这次史无前例的日间停摆，是在最近揭露包括国土安全部在内的其它联邦机构被黑客入侵的情况下发生的。*
+更重要的是，今年该法案还进行了修改，扩大了总统可以援引该法的情况。新的措辞允许总统 “在自然灾害或恐怖袭击期间雇佣武装部队”。
 
-*消息人士告诉《Just the News》，国防部提醒员工，SIPRNET系统在晚些时候关闭，进行紧急软件更新。*
+编辑评论：我们有理由相信善良的川普总统，希望美国现有的司法系统能维护总统选举的公正。但**面对中共疯狂的网络战和生物超限战，或许用军事手段维护国家安全，将是他不得已的最终选项。**
 
-*……该系统被称为秘密互联网协议路由器网络，处理机密信息，最高达到秘密级别，被关闭了几个小时。*
+新闻来源：自然新闻
+原文链接：[https://www.naturalnews.com/2020-12-19-petition-asks-president-trump-implement-insurrection-act.html](https://www.naturalnews.com/2020-12-19-petition-asks-president-trump-implement-insurrection-act.html)
 
-[原文链接](https://www.thegatewaypundit.com/2020/12/pentagon-imposes-emergency-shutdown-secret-internet-protocol-router-network-handles-classified-information-secret-level/?utm_source=Twitter&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】 –[点击spark adobe版](https://spark.adobe.com/page/z3LcPGGrqOzjA/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/z3LcPGGrqOzjA/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/z3LcPGGrqOzjA/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
-1+
+0

@@ -1,32 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【推特摘录1219】-为川普而战
-` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/667612/)
+## 瑞幸咖啡同意支付1.8亿美金罚款以和解造假指控
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/667718/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19182538/trump-won.jpg)
+撰稿：Gradient Boost
 
+编辑：五饼二鱼
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19193945/515abb3b-bac9-4ce2-a252-f55ffe766150.jpg)图片来源于网络
+本周四（12月17日），针对美国证券交易委员会(SEC)提出的造假指控，来自中共国的餐饮企业巨头瑞幸咖啡同意支付1.8亿美金并遵守相关禁令以达成和解。有意思的是，瑞幸咖啡并没有正面回复SEC提出的指控是否属实就同意了和解的条款，这显然是既心虚又要面子的表现。事实上瑞幸咖啡财务造假风波至今也已经快一年时间（如果从浑水机构提出匿名报告那时算起的话），相比今年年初，墙内媒体网站上的“粉红”们对瑞幸咖啡事件的态度变化也可以说是180度大翻转级别的。
 
-12月19日弗林将军转发了一篇视频，该视频被点击观看120万次，播放了美国人和全球各地支持川普总统的场景，包括一开始香港运动中人们手举美国国旗的场面，群体集会，街头支持，有人在讲台陈辞，有人在商场演讲，有万头攒动，有个人视频，背景是音乐加“为川普而战”的集体呼声，观后甚是激动人心。
+想起今年年初瑞幸被指捏造财务和运营数据的时候，笔者无意在微博评论区里看到了大量的喝彩与叫好，倒不是为浑水机构举报瑞幸不当行为叫好的，而是在为瑞幸咖啡捏造假财报而拍手称快。“爱国”网友们称赞瑞幸“机智”（在笔者看来其实一点也不机智）地割了一把“美国的韭菜”，在为撒谎行为鼓掌的时候，丝毫没有回忆起中共国股市通过假财报假消息和人为操盘掏空自己钱包口袋的悲伤往事。
 
+如今瑞幸咖啡同意通过罚款达成和解，“爱国者”们又开始骂骂咧咧，主要倒也不是骂提出指控的SEC（大家心里其实都知道指控没毛病），而是批评瑞幸咖啡腰杆子软还没脾气，甘心双膝跪地给所谓“敌人”送钱。所以敢情在这些“粉红”与“五毛”的眼里，犯了错撒了谎既不认账也不道歉赔偿那就是“霸气”、“尊严”以及“强大”的体现，虽然在正常人看来这种表现一般用一个词概括就好了，那就是“流氓”。
 
+瑞幸咖啡的财务造假事件其实提醒我们：华尔街与中共通过勾兑让假骗偷企业顺利上市势必会对广大美国人民及投资者的利益造成损害（墙内百姓的利益自然更不在话下）。但从好的一方面来说，瑞幸咖啡的退市以及赔偿证明：把中共股票市场那套韭菜收割模式输出到美国的企图注定会失败。
 
-> .[@cjtruth](https://twitter.com/cjtruth?ref_src=twsrc%5Etfw) [@SharletaBasset1](https://twitter.com/SharletaBasset1?ref_src=twsrc%5Etfw) [@kelliwardaz](https://twitter.com/kelliwardaz?ref_src=twsrc%5Etfw) [@tracybeanz](https://twitter.com/tracybeanz?ref_src=twsrc%5Etfw) [@BarbaraRedgate](https://twitter.com/BarbaraRedgate?ref_src=twsrc%5Etfw) [@flynn\_neill](https://twitter.com/flynn_neill?ref_src=twsrc%5Etfw) [@lofly727](https://twitter.com/lofly727?ref_src=twsrc%5Etfw) [#FightForTrump](https://twitter.com/hashtag/FightForTrump?src=hash&amp;ref_src=twsrc%5Etfw) & [#FightForAmerica](https://twitter.com/hashtag/FightForAmerica?src=hash&amp;ref_src=twsrc%5Etfw) !!! [https://t.co/JTDNIvH7E0](https://t.co/JTDNIvH7E0)
-> — General Flynn (@GenFlynn) [December 19, 2020](https://twitter.com/GenFlynn/status/1340358982452588546?ref_src=twsrc%5Etfw)
+（本文纯属个人观点）
 
-
-
-川普总统的宪法律师 Jenna Ellis 转推，“自2016年选举以来，川普总统一直被诬陷、被恶意攻击。他告诉我们，他的竞选活动被监视。他说的没错，他告诉我们他没有腐败勾兑。事实证明他是对的。当他说选举被盗走了，我就相信他。”
-
-
-
-> Since the 2016 election, [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) has been falsely accused, maligned, and attacked. He told us his campaign was spied on. He was right. He told us there was no collusion. He was proven right. When he says this election was rigged or stolen, I tend to believe him.
-> — Franklin Graham (@Franklin\_Graham) [December 19, 2020](https://twitter.com/Franklin_Graham/status/1340341310415319040?ref_src=twsrc%5Etfw)
-
-
-
-新闻素材和图片来自福林将军推文，Jenna Ellis 推文
-
-
-
+[参考：新浪财经（中共国墙内媒体）](https://finance.sina.com.cn/tech/2020-12-17/doc-iiznezxs7323824.shtml)：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18041919/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872.jpg)
 0
