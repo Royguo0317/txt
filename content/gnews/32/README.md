@@ -1,139 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## APT40由中共国家安全部海南区运作
-` GM30` [轉載自GNews](https://gnews.org/zh-hans/668667/)
+## 针对苹果公司提出的第一修订本中诉讼理由的抗辩,原告提出异议之要点及法律依据备忘录【法庭文件全文翻译】
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/668810/)
 
-**翻译：JAY（杰伊）校对：Eleutheria**
+## 【[法庭文件英文原文PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040643/2-Pham-v.-Apple_Plaintiff-Opp-MTD-2-10-14.pdf)】【[中文全文翻译PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040715/v2.0-Tracy-Pham-v.-Apple_2nd-Memo.pdf)】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040803/PDFtoJPG.me-01-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040809/PDFtoJPG.me-02-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040811/PDFtoJPG.me-03-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040814/PDFtoJPG.me-04-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040819/PDFtoJPG.me-05-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040821/PDFtoJPG.me-06-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040825/PDFtoJPG.me-07-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040827/PDFtoJPG.me-08-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040830/PDFtoJPG.me-09-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040939/PDFtoJPG.me-10-1-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040837/PDFtoJPG.me-11-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040839/PDFtoJPG.me-12-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040844/PDFtoJPG.me-13-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040848/PDFtoJPG.me-14-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040851/PDFtoJPG.me-15-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040854/PDFtoJPG.me-16-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20041006/PDFtoJPG.me-17-scaled.jpg)
+**前员工起诉苹果公司的进展情况：**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20030636/1-181.png)
+1. [前员工起诉苹果公司: 因政治派别不同而遭受其歧视, 报复, 骚扰以及解雇等不当行为](https://gnews.org/zh-hans/646660/)
+2. [被告苹果公司要求删除申诉的动议要点和授权备忘录](https://gnews.org/zh-hans/646888/)
+3. [原告提出异议并请求法院驳回被告苹果公司的全部罢诉动议](https://gnews.org/zh-hans/646967/)
+4. [法庭驳回被告苹果公司对原告《民事诉讼法》中的第一和第二 项诉讼理由提出的抗辩](https://gnews.org/zh-hans/647110/)
+5. [针对苹果公司提出的抗辩,原告提出异议之要点及法律依据备忘录](https://gnews.org/zh-hans/658360/)
+6. [针对苹果公司提出的第一修订本中诉讼理由的抗辩,原告提出异议之要点及法律依据备忘录](https://gnews.org/zh-hans/668810/)
 
-在我们之前的文章中，我们确认出一个在海南开展APT（高级持久威胁）活动的幌子公司网络，并显示了它们与海南大学学者顾健的联系。尽管很难找到在这些公司工作的人，但我们确定了一些人员，并得出结论，该公司网络实际上是APT40。我们确定的个人之一，丁晓阳，是名为陈先生的招聘广告中使用的一个电话号码的所有者。
 
-丁晓阳的角色
+#### **By【秘密翻译组 G-Translators】**
 
-当我们开始时，我们不确定丁小阳的角色是什么。
-
-因此，我们进行了统计。海南海口市可能有多少个丁氏，是否有可能在其中找到一个特定的丁氏晓阳？
-
-中共国目前人口：1,419,627,903
-
-世界银行对男性适龄工作年龄的估计：511,625,426（36.04％）
-
-海南省海口市人口：1,517,400
-
-海口市估计的工作年龄男性：546,862
-
-中共国姓氏总数：100（）
-
-丁姓有多普遍：百姓中排名第48
-
-算术级数：S n = n / 2 \*（2a 1 + [n-1] \* d）=&gt; S 100 = 5,050
-
-丁姓占比：5,050中的52（100 – 48）
-
-劳动年龄男性称为丁的机会百分比：1.04％
-
-海口有多少个丁：可能5,687个
-
-5,687个丁姓太多了，无法逐一排查。因此，我们想到了另一种方法来找出哪个丁是我们的丁。为什么不使用一个高效，国际化，积极进取的贡献者网络，他们可以准确地告诉我们他是谁，他做什么……
-
-正如我们之前看到的，他是APT40幌子公司网络招聘广告上使用的电话号码的所有者。
-
-我们的贡献者发现，丁晓阳还是在海口生活和工作的计算机科学专家。
-
-实际上，我们对丁小阳的了解很多。
-
-我们在中共国的APT的原始蓝图要求：合同黑客和专家，幌子公司和情报官员。
-
-幌子公司？检查一下 专家？检查一下 情报人员？丁晓阳…
-
-我们是怎么做的？
-
-还记得以前被黑客入侵和发布过的QQ信息，这些信息可用来显示APT17对储水犬样式代号的使用吗？好…
-
-QQ帐户348504569使用名称“万火焰万”。有趣吗？直到您调查同一帐户使用的其他名称。一是丁大侠（Ding Da Xia）。另一个是丁晓阳。让我们假设这可能是我们的丁先生，而他可能是中共国海南的一名情报官员。有没有证据？
-
-让我们看看QQ用户348504569在做什么。其中，他是一个名为 “内部文化活动交流 “或 “内部文化活动交流 “的QQ群92688210的成员。该小组成立于2009年9月18日，拥有25名成员。它的描述为“内部内部成员文体休闲娱乐交往”，它仅适用于内部成员。可是内部什么？也许是大学？还是……政府机构？
-
-我们的一名贡献者检查了该组的所有成员，以试图确定他们的隶属关系。想象一下，当我们发现一个看起来可能属于情报人员的帐户时，会感到惊讶！
-
-黄先生是谁？
-
-QQ帐户249550138是内部文化交流小组的成员。它使用各种名称，分别是“黄良利”，“等待”，“哥利”和“老班良利”。
-
-但有人曾说过，一幅画能画出千言万语。所以这是我们在网上找到的一张图片。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20030408/2-38.png)
-
-是的，那是国家安全局制服。他胸前的461079号的意义是什么？46是海南的意思
-
-我们还找到了丁晓阳的人人档案，里面有不少年轻的丁先生的照片。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20030734/3-21.png)
-丁晓阳在人人网的个人资料照片
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20031005/4-10.png)
-丁晓阳的人人档案
-
-直到2009年，丁小阳都定期在人人网上发帖，但他的帖子突然停止了。为什么？因为他获得了在中共国国家工作的敏感工作。我们怎么知道？好吧，他也曾这么说：
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20031210/6-7.png)
-
-在2009年这篇帖子中，丁谈到了他在公安部海南省厅的新工作。
-
-丁：工作吗？在学习吗 哪里？
-
-徐：工作，边检，你呢
-
-丁：差不多，MPS
-
-徐：在哪儿？
-
-丁：在遥远的地方，海南。。。
-
-徐：呵呵，好吧。我要去广东。是海口公安局吗？
-
-丁：海南省厅，也海口
-
-我们以前没怎么谈过公安部。它是中共国国家警察部队，它通常被用来掩护……国安部。
-
-海南省国家安全厅
-
-我们的研究人员并不是在APT40与中共国情报之间找到联系的唯一团队。密切掌握的商业情报还表明，APT40由中共国国家安全部海南省管理。
-
-根据这份方便的海口公厕清单，海南省国家安全厅设在海南省海口市秀英区南海大道176号（海南省海口市秀英区南海大道176号）。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20031219/7-5.png)
-
-屏幕截图2020-01-16 at 15.57.35
-
-看起来像这样，请注意锤子和镰刀的修剪器，卫星天线和外围墙：
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20031237/8-4.png)
-
-屏幕截图2020-01-16 at 15.51.20
-
-海口市南海大街海南省国家安全厅
-
-结论
-
-要么海南情报人员有一个副业，经营着一个由至少13家 “快速发展的高科技信息安全公司 “组成的商业帝国，而这个商业帝国有一个副业，就是在APT40在这些国家发动袭击之前的几个月内，不约而同地在这些国家招募懂得APT40目标国家语言的人，而且是在我们知道APT40经营业务的同一个岛上。
-
-或者，APT40由海南国家安全局情报官员丁晓阳负责。
-
-如果它走路像鸭子叫声像鸭子… …
-
-在这一点上，我们开始认为我们可能不需要花那么多的精力去研究哪个国家地区领导APT。
-
-前几天，我们看了一个伟大的电视节目Blankety Blank的重播。我们可以直接玩那个，而不是写这个博客。
-
-众所周知，APT3位于广东省，是广东省国家安全厅的工作
-
-众所周知，APT10位于天津，是天津市国家安全局的工作
-
-众所周知，APT3位于济南，是 济南国家安全局的工作
-
-众所周知，APT40位于海南，其工作是——国家安全部门工作
-
-原文链接：[https://intrusiontruth.wordpress.com/2020/01/16/apt40-is-run-by-the-hainan-department-of-the-chinese-ministry-of-state-security/amp/?\_\_twitter\_impression=true](https://intrusiontruth.wordpress.com/2020/01/16/apt40-is-run-by-the-hainan-department-of-the-chinese-ministry-of-state-security/amp/?__twitter_impression=true)
-
-1+
+0
