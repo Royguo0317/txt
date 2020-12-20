@@ -1,45 +1,85 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统在白宫椭圆形办公室会见了西德尼•鲍威尔和弗林将军，讨论了部署军队和任命鲍威尔为选举欺诈问题的特别顾问
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/668383/)
+## 《路德时评》重磅：习下令1月2日前（最迟6日前）让川普总统彻底消失
+` GM141` [轉載自GNews](https://gnews.org/zh-hans/668618/)
 
-翻译：康州盘古农场 – 烟波浩淼
+音频下载地址：
 
-校对： 康州盘古农场 – Robensenna
+[https://mega.nz/file/tPxkDK4S#G3kAghL6Js\_RyL8YV6exJMnb96RCfzkuYdYXF3LsHAM](https://mega.nz/file/tPxkDK4S#G3kAghL6Js_RyL8YV6exJMnb96RCfzkuYdYXF3LsHAM)
 
-审核： 康州盘古农场 –Truemanman
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20010009/%E5%9B%BE%E7%89%8770.png)
-美联社本周早些时候报道，川普总统一直在询问由一名特别顾问调查亨特•拜登和另一名特别顾问调查民主党选民欺诈问题之事。
+直播视频：
 
-据报道，律师西德尼•鲍威尔周五晚上在椭圆形办公室与川普会面，总统讨论了任命鲍威尔作为特别顾问，调查2020年大选中发生的大规模民主党选民欺诈。
 
-弗林将军周五也与西德尼•鲍威尔一起参加了会议，据说在会议上提出了部署军队的问题，但被取消了。
 
-据《纽约时报》报道，西德尼•鲍威尔在椭圆形办公室时，川普的私人律师鲁迪•朱利安尼通过电话加入了谈话，其中讨论了她作为特别顾问的潜在地位。
 
-他的大多数顾问都反对这一想法，其中两人在讨论中作了简要介绍，其中包括总统的私人律师鲁道夫·朱利安尼（Rudolph W. Giuliani），他最近几天试图让国土安全部加入竞选团队，以翻转川普先生在选举中的损失。
 
-据其中一位知情人士透露，朱利安尼先生通过电话参加了讨论，使鲍威尔女士在白宫参加的会议一时间变得喧闹起来。两位知情人士说，其他政府官员也参加了会议，白宫法律顾问帕特•西波隆(Pat A. Cipollone)对提出的想法进行了反驳。
+《路德时评》2020年12月19日晚间节目主要内容：
 
-据知情人士透露，鲍威尔女士指责川普的其他顾问是畏缩者。
+一、川普总统会见鲍威尔律师和弗林将军
 
-目前还不清楚川普先生是否会推进这一计划。
+12月19日，川普总统在白宫椭圆形办公室会见西德尼·鲍威尔（Sidney Powell）和弗林将军，商讨军事部署，将鲍威尔命名为选举欺诈特别检察官[1]。
 
-西德尼•鲍威尔是一名前联邦检察官，她在几个战场州提起了许多诉讼，在这些州，腐败的民主党机器使用非法选票为乔•拜登窃取选举。
 
-鲍威尔对多猫腻投票系统（Dominion Voting Systems）进行了猛烈的抨击，并透露他们的设计其实就是为了转换选票。
 
-鲍威尔和朱利安尼都指出，多猫腻机器将选票从川普手中翻转到了拜登手中，这些在本周早些时候在法庭上得到了证明!
+> REPORT: President Trump Met with Sidney Powell and General Flynn in Oval Office – Discussed Deploying Military, Naming Powell as Special Counsel on Election Fraud…
+> — Chuck Callesto (@ChuckCallesto) [December 19, 2020](https://twitter.com/ChuckCallesto/status/1340406843856850944?ref_src=twsrc%5Etfw)
 
-《纽约时报》记者玛吉•哈伯曼（Maggie Haberman）周六在推特上对她的报道进行了补充，并称弗林将军也在椭圆形办公室，与西德尼•鲍威尔在一起（工作）。
 
-据报道，弗林建议部署军队。
 
-朱利安尼（Giuliani）推动国土安全部（DHS）夺取对投票机的控制权，以检查它们是否存在欺诈行为，但国土安全部（DHS）显然没有权限。
+Politico网站12月19日也报道[2]：川普总统计划聘请悉尼·鲍威尔（Sidney Powell）作为选举欺诈的特别检察官。
 
-《华尔街日报》记者丽贝卡•鲍尔豪斯（Rebecca Ballhaus）表示，在这次会议上提出了部署军队的建议，但被取消了。
+路德社评论如下：
 
-[Maggie Haberman on Twitter: “Adding to the story but two people briefed said Flynn was there as well for this meeting.” / Twitter](https://twitter.com/maggieNYT/status/1340353369660076035?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1340363388988354570%7Ctwgr%5E%7Ctwcon%5Es2_&amp;ref_url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2020%2F12%2Freport-president-trump-met-sidney-powell-general-flynn-oval-office-discussed-deploying-military-naming-powell-special-counsel-election-fraud%2F)
+1、总统、国会和三名法官组成的小组都有权任命特别检察官，该职位是独立于政府和司法之外的一个体系，有专门的团队和办公地点供其使用；
 
+2、路德社节目是第一个说司法部长将被解雇，同时川普总统会任命鲍威尔律师为特别独立检察官，这就是新中国联邦、爆料革命、路德社的特殊情报来源；
+
+3、多尼米投票系统和造假选票涉及海外势力有组织地干预美国大选，独立检察官就可以调查跨州、跨总统、甚至跨国案件，并能够调动最顶尖的资源与专业人员；
+
+4、路德社爆料：弗林将军近期接受采访时多次表态要推动全国戒严，他今天与川普总统讨论军队部署，就是在为戒严做准备，**文贵先生直播中提及川普总统不相信习要搞死他，但某人已经将习的会议录音发给川普总统，习表示：最迟要在1月6日前让川普总统彻底消失，甚至要在1月2日之前让他消失**；
+
+5、路德社再爆料：**美国国家情报总监关于外国势力干预美国大选的调查报告都已经获得北约组织的认可，包括北约某些重要机构都已经认定中共病毒就是生物武器攻击**；
+
+6、目前，美国民调显示已经有9000万美国人相信此次大选有舞弊行为。
+
+
+
+二、川普总统首提中共网络攻击美国大选
+
+川普总统12月20日发推表示[3]：假新闻媒体报导的网络黑客比实际情况要严重得多。我已经得到了充分的汇报，一切都在控制之中。主流媒体可能因为缺钱就将俄罗斯列为发生任何事情的优先选择。主流媒体一讨论到中共国就吓僵了，选举期间，投票机也可能遭受重创，现在看来我赢得了大奖，这对美国来说是一种极度的羞耻。
+
+
+
+
+
+> The Cyber Hack is far greater in the Fake News Media than in actuality. I have been fully briefed and everything is well under control. Russia, Russia, Russia is the priority chant when anything happens because Lamestream is, for mostly financial reasons, petrified of….
+> — Donald J. Trump (@realDonaldTrump) [December 19, 2020](https://twitter.com/realDonaldTrump/status/1340333618691002368?ref_src=twsrc%5Etfw)
+
+
+
+
+
+1、川普总统提及主流媒体都惧怕中共，它们将所有问题都推卸给俄罗斯，俄罗斯只是垫背，普金总统肯定已经认清形势，绝对不会让俄罗斯背黑锅；
+
+2、川普总统明确调查报告已经出炉，就是中共网络攻击美国大选，鲍威尔和弗林将军前往白宫的事情被媒体爆料出来都有一定目的，这就为接下来更重磅的金融制裁和围剿行动做铺垫；
+
+3、现在万事俱备，只欠东风。
+
+
+
+
+
+参考文章：
+
+[1]https://twitter.com/ChuckCallesto/status/1340406843856850944
+
+[2]https://www.politico.com/news/2020/12/19/sidney-powell-trump-special-counsel-448694
+
+[3]https://twitter.com/realDonaldTrump/status/1340333618691002368
+
+文章撰写：【重生】  封面设计&音频：【V%】  编辑：【GM141】
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14081816/%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%95%86%E6%A0%87.png)
 0

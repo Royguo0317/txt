@@ -1,15 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 那是您有史以来最简单得来的5亿美元！——亨特·拜登会计师
-` GM30` [轉載自GNews](https://gnews.org/zh-hans/668080/)
+## 川普否认实施戒严令
+` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/668247/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19223837/hunter-biden-3-1.jpg)
+12月20日凌晨，川普总统发推文，尚未表示实施戒严令。他说：
 
-[**“那是您有史以来最简单得来的5亿美元！” –亨特·拜登会计师**](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19222314/%E9%82%A3%E6%98%AF%E6%82%A8%E6%9C%89%E5%8F%B2%E4%BB%A5%E6%9D%A5%E6%9C%80%E7%AE%80%E5%8D%95%E5%BE%97%E6%9D%A5%E7%9A%845%E4%BA%BF%E7%BE%8E%E5%85%83%EF%BC%81-%E2%80%93%E4%BA%A8%E7%89%B9%C2%B7%E6%8B%9C%E7%99%BB%E4%BC%9A%E8%AE%A1%E5%B8%88.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19222314/%E9%82%A3%E6%98%AF%E6%82%A8%E6%9C%89%E5%8F%B2%E4%BB%A5%E6%9D%A5%E6%9C%80%E7%AE%80%E5%8D%95%E5%BE%97%E6%9D%A5%E7%9A%845%E4%BA%BF%E7%BE%8E%E5%85%83%EF%BC%81-%E2%80%93%E4%BA%A8%E7%89%B9%C2%B7%E6%8B%9C%E7%99%BB%E4%BC%9A%E8%AE%A1%E5%B8%88.pdf)
+“戒严令=假新闻。只不过是故意做的坏报告！”
 
-请点击下载按钮，下载文档观看！
 
-（文章内容仅代表作者观点）
 
-0
+> Martial law = Fake News. Just more knowingly bad reporting!
+> — Donald J. Trump (@realDonaldTrump) [December 20, 2020](https://twitter.com/realDonaldTrump/status/1340523944680583169?ref_src=twsrc%5Etfw)
+
+
+
+川普总统在此20分钟前的推文称：
+
+
+> “正如我们受到佐治亚州受到 “共和党 “州长和 “共和党 “国务卿的恶劣待遇一样，我们必须为两个伟大的人（@KLoeffler & @sendavidperdue ，叛变共和党的副州务卿和州议员）取得巨大的胜利。
+> 
+> “1月5日（选举人团公布选举结果）， 我将在1月4日星期一晚上为他们举行盛大的集会。赢！”
+
+
+
+
+新闻来源 川普总统推文
+
+2+
