@@ -1,30 +1,121 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【文心雕龙】美国亲共团体“华人进步协会”资助BLM！
-` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/668714/)
+## 《God Bless the U.S.A. 天佑美国!》歌词翻译
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/669169/)
 
-作者：美国纽约七星会农场｜BoLu文龍
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20052819/%E6%96%87%E5%BF%83%E9%9B%95%E9%BE%995.jpg)
-美国传统基金会（Heritage Foundation）是美国保守派政策研究机构，成立于1973年，由约瑟夫·库尔斯和保罗·韦里奇创建，总部设于美国首都华盛顿特区。曾积极支持并影响过里根政府，该基金会有11名成员曾先后在里根政府中任职。
+翻译者：Lucky Star Maggie
 
-美国传统基金会网站报道了一份调查报告，称“黑命贵”运动（BLM）创始人艾丽西亚·加尔萨（Alicia Garza）的网站“黑人未来实验室”（Black Futures Lab）主页显示，一个名为华人进步协会（CPA）的组织是“黑人未来实验室”主要的资助者。
 
-传统基金会对这个华人进步协会做了进一步调查。该协会（CPA）于1972年在旧金山成立，当时正值以马克思主义为导向的美国亚裔运动蓬勃发展时期，它在波士顿也有一个非常活跃的分会。从一开始它背后推手就是中华人民共和国，是一个左派的、支持中共政权的组织。而中共政权与美国和旧金山湾区的其他亲共团体合作则由来已久，甚至开始于1949年中共建国之前。而该协会成员们声称从中共政权的统治看到的一种”成功的草根模式”并得到启发，这种模式进一步提出了一种”替代西方现行资本主义的可行方案。”
+视频出处：[Home Free – God Bless the U.S.A. (featuring Lee Greenwood and The United States Air Force Band)](https://www.youtube.com/watch?v=SrMftm6Km3g&amp;feature=youtu.be)
+**歌词翻译：**
 
-华人进步协会经常举办活动，有时是向公众开放的电影放映会，播放中国电影，以促进人们对中国共产党执政思想的理解。他们还与美中人民友好协会等团体共同庆祝10月1日中共政权的的国庆节。三年前，华人进步协会波士顿分会与中国驻纽约总领馆合作，为旅美中国公民提供更新护照的服务，得到中共官方媒体《中国日报》的报道。去年，华人进步协会赞助了在波士顿市政厅上空升起中国国旗这一活动的经费，以纪念1949年中共接管中国建立中华人民共和国。这次活动是由中领馆发起并组织的。孙国祥总领事在现场发表演讲称：“中美之间的共同利益远比分歧重要“。华人进步协会联合创始人Lydia Lowe也在活动中发言并提醒听众：“麦卡锡主义已经过去了，冷战已经过去了！”。而华人进步协会成员几周前更直接参加了旧金山黑命贵示威活动，此举再次被中共喉舌《中国日报》赞扬。
+If tomorrow all the things were gone
+如果明天我将丧失我所有的一切
 
-上述事实可以很明显看出，这个华人进步协会是与中国共产党政府合作的组织，他们甚至就是中共出资在美国设立的代理人。这也就解释了为什么华人进步协会（CPA）赞助了BLM黑命贵组织及其活动，而BLM所组织的诸多所谓”平权运动”，其形式不乏暴力和骚乱， 因为他们和中共有着共同的愿望：在全世界实现共产主义！
+I’d work for all my life
+我将再次拼搏
 
-参考链接:
+And I had to start again With just my children and my wife
+不得不和我的妻儿一道重新开始
 
-[https://jenreport.com/2020/09/18/11340/](https://jenreport.com/2020/09/18/11340/)
+I’d thank my lucky stars To be living here today
+我会感激我的幸运星今天仍飘扬在这里
 
-更多精彩内容请关注：
+‘Cause the flag still stands for freedom
+因为我们的国旗依旧代表着自由
 
-- [美国纽约七星会农场（为子孙爱七哥）官推](https://twitter.com/wzsaqg)
-- [美国纽约七星会农场（为子孙爱七哥）GTV](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
-- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
+And they can’t take that away
+他们不能夺走我们的自由
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19044815/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-2.jpg)
+And I’m proud to be an American
+我为我是一个美国人而骄傲
+
+Where at least I know I’m free
+在这里至少我知道我是自由的
+
+And I won’t forget the men who died Who gave that right to me
+我不会忘记那些为我们争取自由而牺牲的人们
+
+And I gladly stand up next to you
+今天我愿意站起来和你肩并肩
+
+And defend her still today
+再次为保卫我们自由的国家而战斗
+
+‘Cause there ain’t no doubt I love this land
+毫无疑问因为我深深地爱着这片土地
+
+God Bless the U.S.A.
+天佑美国
+
+From the lakes of Minnesota
+从明苏尼达州的湖泊
+
+To the hills of Tennessee
+到田纳西州的小山
+
+Across the plains of Texas
+横越德克萨斯州的平原
+
+From sea to shining sea
+从大西洋到闪耀的太平洋（源自“美丽美国”的诗）
+
+From Detroit down to Houston
+从底特律到休斯顿
+
+And New York to L.A.
+纽约到洛杉矶 （意指美国全境）
+
+Where there’s pride in every American heart
+所到之处每个美国人的心中都充满自豪
+
+And it’s time we stand and say that
+在这个时刻，我们站起来宣告，
+
+I’m proud to be an American
+我为我是一个美国人而骄傲
+
+Where at least I know I’m free
+在这片土地上至少我知道我是自由的
+
+And I won’t forget the men who died Who gave that right to me
+我不会忘记那些为争取我们的自由牺牲的人们
+
+And I gladly stand up next to you
+我愿意站起来和你肩并肩
+
+And defend her still today
+再次为保卫我们自由的国度而战斗
+
+‘Cause there ain’t no doubt I love this land
+毫无疑问因为我深深地爱着这片土地
+
+God Bless the U.S.A.
+天佑美国
+
+God Bless this country
+天佑这个国家
+
+And I’m proud to be an American
+我为我是一个美国人而骄傲
+
+Where at least I know I’m free
+在这里至少我知道我是自由的
+
+And I won’t forget the men who died Who gave that right to me
+我不会忘记那些为争取我们的自由牺牲的人们
+
+And I gladly stand up next to you
+我愿意站起来和你肩并肩
+
+And defend her still today
+再次为保卫我们自由的国家而战斗
+
+‘Cause there ain’t no doubt I love this land
+毫无疑问因为我深深地爱着这片土地
+
+God Bless the U.S.A.
+天佑美国
+
 0

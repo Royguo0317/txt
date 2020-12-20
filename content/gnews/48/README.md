@@ -1,23 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 巴尔被炒反思美国司法系统之堕落
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/667977/)
+## 那是您有史以来最简单得来的5亿美元！——亨特·拜登会计师
+` GM30` [轉載自GNews](https://gnews.org/zh-hans/668080/)
 
-撰稿：五饼二鱼
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19223837/hunter-biden-3-1.jpg)
 
-编辑：Jenny、五饼二鱼
+[**“那是您有史以来最简单得来的5亿美元！” –亨特·拜登会计师**](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19222314/%E9%82%A3%E6%98%AF%E6%82%A8%E6%9C%89%E5%8F%B2%E4%BB%A5%E6%9D%A5%E6%9C%80%E7%AE%80%E5%8D%95%E5%BE%97%E6%9D%A5%E7%9A%845%E4%BA%BF%E7%BE%8E%E5%85%83%EF%BC%81-%E2%80%93%E4%BA%A8%E7%89%B9%C2%B7%E6%8B%9C%E7%99%BB%E4%BC%9A%E8%AE%A1%E5%B8%88.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19222314/%E9%82%A3%E6%98%AF%E6%82%A8%E6%9C%89%E5%8F%B2%E4%BB%A5%E6%9D%A5%E6%9C%80%E7%AE%80%E5%8D%95%E5%BE%97%E6%9D%A5%E7%9A%845%E4%BA%BF%E7%BE%8E%E5%85%83%EF%BC%81-%E2%80%93%E4%BA%A8%E7%89%B9%C2%B7%E6%8B%9C%E7%99%BB%E4%BC%9A%E8%AE%A1%E5%B8%88.pdf)
 
-美东时间2020年12月14日下午，川普总统发推美国总检察长巴尔即将离任，他将在圣诞节前完成交接工作并离开司法部，川普总统将任命副检察长杰夫 罗森（Jeff Rosen）担任代理检察长。
+请点击下载按钮，下载文档观看！
 
-推特链接https://twitter.com/realDonaldTrump/status/1338614499981602819?s=20
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19215110/115760071_tv064603954.jpg)图片来源网络
-从爱泼斯坦的离奇死亡、亨特拜登的硬盘门事件、2020总统大选欺诈等事件中我们看到司法部长巴尔不但不作为而且还有参与掩盖真相的嫌疑，本次大选大量证据显示邮寄选票造假、Dominion计票系统篡改数据、在法兰克福捕获Scytl服务器、聘请社会人员阻拦共和党人参与计票、大量死人投票、各地听证会大量证人宣誓证词等一系列证据指向本次总统选举存在的严重舞弊造假现象。巴尔12月1日（周二）对美联社表示，司法部与国土安全局调查了这一指称，“截至目前，我们没有找到任何支撑的证据。 消息来源[https://www.bbc.com/zhongwen/simp/world-55154146](https://www.bbc.com/zhongwen/simp/world-55154146)
+（文章内容仅代表作者观点）
 
-据路德社此前透露亨特拜登的硬盘早在2019年12月就已经被司法系统获取，掩盖一年之久，但是纸包不住火，根据华盛顿邮报、路德社、Gnews等多个媒体平台披露亨特拜登硬盘内有大量关于洗钱、勾结中共军民融合企业、偷漏税、虐童等犯罪视频，但是司法系统均未对其开展实质性的调查。
-
-任备受争议的司法部长威廉巴尔的离开是必然的，也是美国民心所向、我们希望美国司法系统能尽快排干沼泽彻查选举舞弊造假，还广大选民一个真相。
-
-（文章仅代表个人观点）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19055723/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 0

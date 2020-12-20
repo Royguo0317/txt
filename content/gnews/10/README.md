@@ -1,21 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 针对苹果公司提出的第一修订本中诉讼理由的抗辩,原告提出异议之要点及法律依据备忘录【法庭文件全文翻译】
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/668810/)
+## 中概股制裁范围尚未锁定, 美政府高层互撕正酣
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/668998/)
 
-## 【[法庭文件英文原文PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040643/2-Pham-v.-Apple_Plaintiff-Opp-MTD-2-10-14.pdf)】【[中文全文翻译PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040715/v2.0-Tracy-Pham-v.-Apple_2nd-Memo.pdf)】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040803/PDFtoJPG.me-01-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040809/PDFtoJPG.me-02-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040811/PDFtoJPG.me-03-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040814/PDFtoJPG.me-04-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040819/PDFtoJPG.me-05-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040821/PDFtoJPG.me-06-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040825/PDFtoJPG.me-07-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040827/PDFtoJPG.me-08-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040830/PDFtoJPG.me-09-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040939/PDFtoJPG.me-10-1-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040837/PDFtoJPG.me-11-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040839/PDFtoJPG.me-12-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040844/PDFtoJPG.me-13-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040848/PDFtoJPG.me-14-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040851/PDFtoJPG.me-15-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040854/PDFtoJPG.me-16-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20041006/PDFtoJPG.me-17-scaled.jpg)
-**前员工起诉苹果公司的进展情况：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20042519/Picture8-2.png)图片来源：http://www.ipschool.net/
+据《华尔街日报》（Wall Street Journal）报道，11月份，川普总统（Donald Trump）签署了一项行政命令，旨在禁止“任何与中共军工企业相关的衍生证券，或者设计上存在投资风险敞口的证券”的交易。截至目前，已经有35家被五角大楼列为帮中共国生产国防、情报和安全设备的公司榜上有名。其中包括多家在美国资本市场颇受欢迎的企业，例如中共国有轨车辆制造商中国中车（CRRC）、中共国顶级芯片制造商中芯国际和海康威视，后者销售的监控设备监控着中共国人民的一举一动，输出的监控技术更是泛滥全球。美国政府官员将这些公司视为中共窃取技术和军事机密的媒介。中共概念股票和债券因此被大量抛售，指数提供商们不得不从主流基准指数里把这些公司剔除，华尔街迫于压力也需重新评估对华投资的风险。
 
-1. [前员工起诉苹果公司: 因政治派别不同而遭受其歧视, 报复, 骚扰以及解雇等不当行为](https://gnews.org/zh-hans/646660/)
-2. [被告苹果公司要求删除申诉的动议要点和授权备忘录](https://gnews.org/zh-hans/646888/)
-3. [原告提出异议并请求法院驳回被告苹果公司的全部罢诉动议](https://gnews.org/zh-hans/646967/)
-4. [法庭驳回被告苹果公司对原告《民事诉讼法》中的第一和第二 项诉讼理由提出的抗辩](https://gnews.org/zh-hans/647110/)
-5. [针对苹果公司提出的抗辩,原告提出异议之要点及法律依据备忘录](https://gnews.org/zh-hans/658360/)
-6. [针对苹果公司提出的第一修订本中诉讼理由的抗辩,原告提出异议之要点及法律依据备忘录](https://gnews.org/zh-hans/668810/)
+根据行政命令，财政部负责为规则实施提供指导意见，在这之前需要与国务院、国防部和其他部门进行磋商。由于命令中未提供关于如何定义“衍生品”的细节，以及并未明确被制裁企业的子公司和附属企业是否需要包含在内，美国政府最高层因此争执不下，国务院代表的强硬派和财政部代表的自由贸易派势同水火。两派的斗争结果将对此项禁令的“杀伤力”产生直接影响。
 
+知情人士透露，国务院和某些国防部官员希望顶格制裁。这些官员们辩称，排除子公司或附属企业会造成漏洞并忽略资本市场的实际情况。大多数中共国公司往往会把子公司和下属企业也包装上市，并可能通过这些或其他单位发行债券，央企、国企尤其如此。国防部发言人，约翰·苏普莱（John Supple）在邮件中说：“依照法律规定，我们构建的清单将包括由中共军队、政府或国防产业拥有、控制或与之相关联的，直接或间接在美国运营的中共实体，贸易和投资也算。”而财政部则希望黑名单只包含被五角大楼特别标记的公司，附属企业或子公司排除在外。华尔街很多人对此持相同意见，他们害怕扩大制裁范围会惊动市场，刺激大量有问题的股票被强制抛售，相关投资组合会因此作废。
 
-#### **By【秘密翻译组 G-Translators】**
+知情人士还透露，财政部关于规则如何实施的指导意见草案中，附属企业和子公司没有包含在内。在过去的一周半时间里，财政部试图公开名单，但遭到了国务院官员的反对。一位国务院发言人称，国务院对跨部门协商不做评价。一位财政部高级官员则称，财政部正在执行该项行政命令，并在协调其他部门。双方你来我往，火药味十足。
 
-0
+对此，其中一名知情人士透露，此番争执已经让财政部长史蒂芬·姆努钦（Steven Mnuchin）办公室和国务卿迈克·蓬佩奥（Mike Pompeo）办公室到了短兵相接的地步，后者长久以来一直坚称美国投资者为中共企业提供资金损害了美国国家安全。官员们预计只有川普总统能够打破僵局。瑞杰金融华盛顿政策分析师艾德·米尔斯（Ed Mills）说，“纵观整个川普政府，强硬派和自由贸易派在贸易战的问题上互不相让，双方斗争十分激烈。姆努钦大有破釜沉舟的架势。”RWR顾问集团董事长兼CEO、 前美中经济与安全审查委员会（U.S.-China Economic and Security Review Commission）会长罗杰·罗宾森（Roger Robinson）说：“这已经变成了安全共同体和财政部之间的鏖战，后者将受命解读并执行总统的意图。”
+
+12月初，国务院就被制裁企业为各大指数基金带来的敞口，公布了内部股市资料。资料显示，35家被列为中共军工企业中，最少有24家的附属企业被纳入了主流指数。但截至目前，主流指数提供商们采用的是行政命令的狭义解释。明晟（MSCI）本周宣布从主流指数中剔除7家中共国公司的股票，并特别说明仅删除行政命令中提到的公司股票，“没有任何子公司或附属企业”。根据龙洲经讯（Gavekal Dragonomics）的一份研究报告，此次调整仅涉及MSCI 中国指数（MSCI China Index）总市值的不到1%，未受影响的中国移动和中海油，仅此两家合计占比已高达1.7%，而这两家公司均为五角大楼黑名单中的公司的子公司。无独有偶，另一家主流股指提供商富时罗素（FTSE Russell）称，他们将根据由财政部外国资产控制办公室（Office of Foreign Assets Control）公布的“一份正式的被制裁证券名单”移除8家中共公司，并对指数进行修正。
+
+与此同时，金融资管们正在接触拜登过渡团队，试图获取新政府对这项行政命令的解读。从1月11日开始，美国投资者不得购买或投资相关公司的股票、基金或其他金融产品。这项行政命令给投资者们脱手中共证券资产的最后期限是2021年11月。
+
+评：越来越多制裁措施的出台，不仅让中共“军民融合”蚕食鲸吞美国金融市场的阴谋节节败退，也让美国政府高层中“一颗红心向东方”的鳄鱼们纷纷浮出水面。曾嚣张警告美国不要打开潘多拉盒子的中共，如今实打实被美国掐住了七寸，某些和中共关系暧昧的公司虽然仍在负隅顽抗，但口子已经被撕开了，美国人也彻底看清了中共的真面目，被踢出美国金融市场的中概股只会越来越多，美国行动的速度也会越来越快，中共外汇枯竭为时不远，血之不存，命何以续？期盼已久的中共瓦解虽然近在眼前，但这个巨大的怪胎轰然倒塌之时，中国普通老百姓难免最先成为炮灰，最近国内的不安氛围越来越重，哪怕尚且无忧无虑，不知道，甚至不认可爆料革命的人，也有种“说不出来的、怪怪的感觉”，似乎是某种无法避免的噩梦的预兆。
+
+[原文链接](https://www.wsj.com/articles/government-leaders-clash-over-next-step-for-trumps-ban-on-chinese-stocks-11608258526)
+
+翻译报道：萌萌的朋克
+
+1+
