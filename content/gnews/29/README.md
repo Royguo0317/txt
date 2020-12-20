@@ -1,54 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 五角大楼紧急关闭网络
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/667562/)
+## 台美合作挺川灭共大游行
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/667774/)
 
-新闻来源：《The Gateway Pundit》；作者：Jim Hoft；发布时间：December 15 , 2020 /2020年12月15日
+台灣農場（籌備） 一頁一菩提
 
-翻译/简评：Victory；校对：感恩；审核：万人往；Page：小雨
+由于美国2020总统大选弊端丛生，主流媒体视而不见、集体噤声，全球只有少数几家新闻媒体说真相，讲事实，如：GTV、GNEWS和大纪元等。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19195908/%E5%9C%96%E7%89%87-1-14.png)
+所以12月19日战友们参与了由大纪元所举行的一场挺川灭共大游行，尽管天气不好，随时都会下雨，气温也越来越低，但是现场也陆陆续续有2000名台湾民众抵达参与。大家都以高昂的意志，准备好雨具，拿起了标语，高喊着挺川灭共等等诉求的口号，让普罗大众能了解真相，这一切就像郭文贵先生所说的：盟友要多，敌人要少。
 
-**简评：**
+活动中提出六大诉求，包括：
+一、支持川普台美合作、抗共灭共
+二、支持正义良知、不受中共控制的独立媒体
+三、反对主流媒体染红、站队中共，制造社会对立、分化族群
+四、反对社群媒体、大科技公司，擅自审查言论、封锁消息
+五、反对腐败政客与中共勾兑，权钱交易
+六、反对大财团为集团利益出卖国家权益。
 
-一般网络升级会尽量选在非工作时间进行。这次国防部在工作时间紧急关闭网络进行升级，一定是有非常事件发生。很可能是发现正在遭受攻击或者有重大安全漏洞。暂时还没有看到证据表明此事和中共有关，但考虑到中共一贯地操纵黑客攻击美国的行为，此事他们难脱干系。我们期待后续报道。
+活动中一位爆料革命的台湾战友接受了大纪元的采访，说出：“这次愿意站来，是因为这是一场偷窃美国的选举，而且是对民主自由的一场盗窃以及欺骗。这个中国共产党为了意图操控美国的大选，然后从年初的放病毒开始、增加这个邮寄选票，然后再到操控​​美国的投票系统-Dominion系统，还有美国各个政府阶层的腐败，包括华尔街、医药界和科技界的大老的腐败，然后造成这一次试图控制美国的选举，然后在企图控制全世界，这个是中国共产党非常邪恶的，而且他只靠三招就是蓝金黄，我们的人民等于是被建筑起来的隐形防火墙，让我们永远都无法得知真相，这就是我们今天站出来最主要的原因而且我们相信未来不久的一天，这一切都会公诸于世，全球的民众都会知道这件事情，绝对会掀起一场全球化的平民运动，然后一定会推翻这个共产极权，因为只要共产党存在的一天，那就没有自由的明天。”
 
-**原文翻译：**
+大紀元相關新聞報導：[https://www.epochtimes.com/gb/20/12/19/n12631913.htm](https://www.epochtimes.com/gb/20/12/19/n12631913.htm)
 
-# 
-突发：五角大楼对其秘密的互联网协议路由器网络实施紧急关闭–处理机密信息至秘密级别
-
-[!\[\]()!\[\](https://spark.adobe.com/page/z3LcPGGrqOzjA/images/ad3e7d44-228a-4028-b7b1-9d25367b30d2.jpg?asset_id=a60232b4-b7a7-48ae-86b6-54b15a13d90a&amp;img_etag=%222e650e25fa65739f75fdc58ee4caa77e%22&amp;size=1024)](https://spark.adobe.com/page/z3LcPGGrqOzjA/images/ad3e7d44-228a-4028-b7b1-9d25367b30d2.jpg?asset_id=a60232b4-b7a7-48ae-86b6-54b15a13d90a&amp;img_etag=%222e650e25fa65739f75fdc58ee4caa77e%22&amp;size=1024)
-
-五角大楼周二对处理机密材料的计算机网络实施紧急关闭。
-
-此前，网络安全和基础设施安全局(CISA)于周日晚间罕见地发布了21-01号紧急指令，以应对涉及太阳风（SolarWinds） Orion产品的已知让步。
-
-周日晚上的指令仅是CISA根据国会在2015年《网络安全法》中授予的权力发布的第五个紧急指令。
-
-据《Just the News》报道，五角大楼已经对其秘密互联网协议路由器网络实施了紧急关闭，该网络处理的机密信息达到了秘密级别。
-
-一位官员说：”这种情况从来没有在工作日中发生过。”
-
-《Just the News》报道：
-
-*国防部三名消息人士证实，五角大楼周二下令紧急关闭一个机密的内部通信网络。*
-
-*这次史无前例的日间停摆，是在最近揭露包括国土安全部在内的其它联邦机构被黑客入侵的情况下发生的。*
-
-*消息人士告诉《Just the News》，国防部提醒员工，SIPRNET系统在晚些时候关闭，进行紧急软件更新。*
-
-*……该系统被称为秘密互联网协议路由器网络，处理机密信息，最高达到秘密级别，被关闭了几个小时。*
-
-[原文链接](https://www.thegatewaypundit.com/2020/12/pentagon-imposes-emergency-shutdown-secret-internet-protocol-router-network-handles-classified-information-secret-level/?utm_source=Twitter&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】 –[点击spark adobe版](https://spark.adobe.com/page/z3LcPGGrqOzjA/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/z3LcPGGrqOzjA/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/z3LcPGGrqOzjA/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
-1+
+0
