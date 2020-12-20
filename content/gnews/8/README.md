@@ -1,28 +1,111 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 鲍威尔律师可能临危受命，出任大选舞弊调查的特别检察官
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/670219/)
+## 加拿大银行业行为与合规（二）
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/668316/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20133830/capture-135.jpg)图片来源: [NTD](https://www.ntd.com/sidney-powell-filing-georgia-lawsuit-on-wednesday-says-attorney-lin-wood_532462.html)
-据《华盛顿时报》12月19日报道，川普总统周五与西德尼·鲍威尔（Sidney Powell）律师会面，讨论由其负责调查大选舞弊问题，据悉川普总统的前顾问迈克尔·弗林(Michael T. Flynn)和总统律师鲁迪·朱利安尼（Rudolph W. Giuliani）也参加了讨论。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16220630/%E5%8A%A0%E8%A1%8C%E4%B8%9A1.png)Picture Source: www.groomassocies.com
+在本文中更多的是介绍关于最新用户的账户收集，以及后续的信息更新方面的规定。有助于读者进一步了解加拿大零售银行的基本工作流程，并维护自己的合法利益不受侵犯.
 
-报道进一步说明，此次总统会议详细讨论了由鲍威尔律师出任调查民主党选举舞弊的特别检察官一职以及其他事项。鲍威尔律师一直是川普总统最直言不讳的支持者之一，她坚决否认川普总统在大选中被击败。
+1. 注册人员重大材料改变Material Change的报告和合规责任
 
-值得注意的是，《华盛顿时报》的这篇报道在随后对诸多事实进行了歪曲和片面的解读。比如，报道称鲍威尔律师对大选舞弊案的调查没有根据和可靠的证据，又援引所谓“消息人士”的说法，指弗林将军关于军管的建议没有被采纳，甚至无中生有宣称朱利安尼一直与鲍威尔保持距离。
 
-当然，文章在最后也不得不提到，白宫任命特别检察官调查特殊事件早有先例，比如2016年，美国政府评估俄罗斯干预美国大选之后，司法部任命前联邦调查局局长罗伯特·穆勒（Robert Mueller）为负责调查的特别顾问。而此时，另一个有趣的事件则是司法部总检察长威廉·巴尔（William P.Barr）刚刚宣布辞职。
+立刻通知RCO，且RCO会立即转向Security Regulator
 
-至于此次会谈的具体内容，鲍威尔律师本人尚未披露任何消息。
+- 终止/注册Termination/Registration
 
-**评**： 《华盛顿时报》的这篇报道向我们展示了一篇虚假带风向的文章是如何炮制出来的。首先，在对基本事实报道之后，突然结论性的指出，鲍威尔律师对大选舞弊案的调查没有根据和可靠的证据，这是典型的以观点代替事实的带风向手法，一方面罔顾大量已披露的关于选举舞弊的事实，另一方面用先入为主的结论误导读者的判断；其次，挑拨离间、无中生有宣称朱利安尼一直与鲍威尔保持距离。众所周知，朱利安尼与鲍威尔是调查大选舞弊的两大主力，他们分别在不同侧面对此次前所未有的大选危机进行着深入调查，显然，《华盛顿时报》对两人联手调查舞弊一事似乎深感恐惧，竟然不惜用出离间的手法进行挑拨分化。
 
-之后，更用所谓“消息人士”的说法，指弗林将军关于军管的建议没有被采纳，稍微熟悉美国历史的人都知道，军管在历史上实行过多次，其权限在总统手中，“消息人士”如何得知总统是否会实施呢？最后，文章貌似不经意提及了2016年“通俄门”调查与近期司法部长巴尔辞职，无非是暗指俄罗斯可能还在对大选施加影响，却完全不提所谓“通俄门”调查子虚乌有的结局。由此可见，这是一篇典型的舆论引导文章，其运用的手法在其他此类文章中屡见不鲜，无非是一些黑白颠倒的拙劣表演。
+离开分行/省份转换 一律视为终止，并在新省份重新注册
 
-[原文链接](https://www.washingtontimes.com/news/2020/dec/19/trump-considering-sidney-powell-as-special-counsel/)
+- 同一省份内，分行转换
 
-译评： Hanstyle
 
-校对：沙拉猫
+- 姓名，个人情况，地址
+
+
+- 犯罪控告
+
+
+2. Joint Account所有持有人，且KYC所有人一起更新
+
+时间预期 /风险承受力 /投资目标=应保持一直. 否则禁止开户
+
+3. Know Your Client 收集范围（第一步）
+
+- 有交易权限的人/Trading Authority（Mandatory强制性）
+
+
+- 受益人 /Financial Interest / Beneficiary
+
+
+- 首次购买之前强制执行，无论顾问是否推荐都要提供
+
+
+- 信息检查要求，每十二个月（一年）/魁北克12-24个月
+
+
+- 账户关闭时，需要客户的纸质签名文件保留七年/魁北克五年，
+
+
+以防止纠纷和维护法律主张，
+
+- 材料改变/Material Change，即更新
+
+
+**Know Your Client 细节要求**
+
+Portfolio Value
+
+- 应包含全部不同金融机构下的资产 All Other Financial Institution，而并不仅是交易商所在金融机构的资产
+
+
+Investment Knowledge
+
+- 投资知识和交易记录/经验必须是一致的Consistency
+- 若不一致的情况出现，
+
+
+A：与客户协商中修改订单申请，并且递交给分支合规官BCO。
+
+Correct Order Form and Resubmit目的是如实反映客观真实的情况
+
+B：若无法解决差异，则应该直接拒绝或转交至区域合规官RCO
+
+4. Fund Fact Document 递送时间
+
+- Before或At The Time Accepted Purchase
+
+
+- 并且会触发Right of Withdraw的时间起点
+
+
+5. Power Of Attorney 指定代理交易
+
+- 需要书面授权，Officer/Director可接受代理授权
+
+
+- 禁止授予交易代表，若被任命则被禁止DiscretionaryTrade
+
+
+- 为一例外=是被直系亲属任命的代理授权交易
+
+
+但需另一个销售代表进行交易，
+
+Another representative enters trade transaction
+
+- 企业交易 = Corporation Trading Resolution 在Corporation获取
+
+
+并会授权一位有具体头衔的Authorized Person 代表行事
+
+- 合伙人交易 =Certificated Partnership Resolution
+
+
+作者：搞笑排行榜
+
+原创观点文章 – 2020/12/20
+
+温哥华圆成农场
 
 0

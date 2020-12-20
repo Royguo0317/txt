@@ -1,96 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（一）
-` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/669414/)
+## 郭文贵先生今日动态（2020年12月20日）
+` Fightforthetrue` [轉載自GNews](https://gnews.org/zh-hans/669923/)
 
-翻译：美国纽约七星会农场翻译组｜Jessi/詹茜
+摘要组
 
-校对：美国纽约七星会农场翻译组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20082338/Screen-Shot-2020-12-20-at-9.22.33-PM.png)
-## Executive Summary 
+【持续更新】对家人好，家庭和谐才能积德；不能攻击战友，战友团结，才有运气、才有动力、才有未来、才有欢喜、才得天助；上喜马拉雅大使馆Discord群与战友交心！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20112934/1-2-5.jpg)
+00:01 兄弟姐妹好啊，这个，我这是刚刚醒来，我就喜欢这个热的感觉，这个热的，这时候看看，还烫手呢，然后呢，沾点这个好咖啡啊。别叫猫屎。恩，我喜欢这种感觉。就是刚做出来这个面包，然后喝一口这个热咖啡。非常非常的好啊。
 
-## 执行摘要
+00:37 所以说，兄弟姐妹们，美好的生活啊，就在我们心里边。你要懂的这个瞬间。要懂的这个时刻。
 
-This report assesses the fairness and integrity of the 2020 Presidential Election by examining six dimensions of alleged election irregularities across six key battleground states.
+00:51 你像我们国内的一位战友，昨天晚上就跟我说，她就是因为在一年前，开始支持爆料革命，后来给我们提供很多经济上的信息吧。但是她家庭很不幸。后来我就跟她讲讲我的经历，跟他说说。她整个人变化了，跟这个婆婆，跟这个公公，小姑子，最难处的关系都彻底改变了。原来她就仇恨的都不行了。但她老公对她特别好。
 
-通过对六个关键战场州六种大选违规行为的核查，本报告对2020年总统选举的公平性与完整性进行了评估。
+01:29 她老公后来加入爆料革命战友，她老公在特别支持她的时候，给了她一笔钱，让她做金融，做股票，但是她老婆婆，小姑子，那都是天天跟她要你死我活的，后来也支持她。也加入爆料革命。头一段时间全家开会，也就是路波切要买粮食，买东西的时候，存这存那的时候，全家决定把股票卖掉。全家得救啊。这位战友未来也会上直播的。你们在GTV看吧。
 
-Evidence used to conduct this assessment includes more than 50 lawsuits and judicial rulings, thousands of affidavits and declarations, testimony in a variety of state venues, published analyses by think tanks and legal centers, videos and photos, public comments, and extensive press coverage.
+02:10 昨天告诉我说，七哥，你知道我们跑出来，你救我们全家，我们全家和睦相处。她说我们国内所有做股票的人现在全都完啦。其中一个跟她做的最好的人，我也知道这个人，是当年跟卢志强合作的一个人，跳楼自杀。
 
-本评估采用证据如下：五十多起诉讼和司法裁决，数以千计的宣誓和声明，多州不同场合的证词，多个 智库和法律中心发布的分析报告，视频和照片，公众的评论以及大量的新闻报道。
+02:37 你看看咱这位战友啊，首先你家得和，你得跟老公公、老婆婆或者说你是跟老丈人、老丈母娘搞好关系。你对爹娘好，你才能积德。
 
-The matrix below indicates that significant irregularities occurred across all six battleground states and across all six dimensions of election irregularities.
+02:50 我们有一位战友的故事，我没公开发，发给我们战友群里，感动的大家一塌糊涂。一个女儿照顾妈妈几十年，老人一动不能动。从来没有国怨言。我看了几次，我给家人看，家人都看哭的一塌糊涂。跟人家比，我们对老人简直就是大不孝。这样的人才是我们最要尊重的人。
 
-以下列表显示了发生在所有六个战场州的涉及六种方式的违规行为。
+03:16 中国人最重要是诚实，还有个家庭文化。还有一个是与人为善。不像共产党那个大脑症。是不是啊。这才是核心，兄弟姐妹们。
 
-![pastedGraphic.png]()![pastedGraphic.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20101637/Screen-Shot-2020-12-20-at-11.15.11-PM.png)
+03:32 你看这回经济危机，国内现在经济是一塌糊涂了。兄弟姐妹们，一塌糊涂了。咱们战友得救了，全家得救了。就是因为你给你老公公、老婆婆、小姑子搞好关系啦。家里边拿钱给你，还赚了一大笔。而且都支持你。后来参加爆料革命，后来也都出来。
 
-图中文字：
+03:56 兄弟姐妹们，你要相信有上天。就要善待你的家人。那我们战友呢。就是绝对不允许战友攻击战友。任何理由，任何方式都不行。只要你攻击战友，绝对不能接受，还挑拨离间，分化战友。分化战友，绝对不行，什么点都不行。这就是原则。你什么都可以不做，不能有任何理由攻击战友。
 
-行：亚利桑那，佐治亚，密西根，内华达，宾夕法尼亚，威斯康星
+04:26 不能像共产党似的，推翻地主，你就当地主啊。叫中国人攻击中国人。你什么样的理由你也不行。因为你一旦允许你攻击战友，你就有各种冠冕堂皇的理由、借口攻击我们战友。相反要让战友家人团结，战友团结。我们才有运气、才有动力、才有未来、才有欢喜、才得天助。
 
-列：完全的选民欺诈，选票处理不当，可疑的程序违规，违反平等保护条款，投票机违规，重大统计异常
+（snow出镜）
 
-对号含义：普遍证据
+05:05 行了，行了，俺就不拂了。我还要喝咖啡，喝咖啡。兄弟姐妹们，今天虽然是时候，你会很兴奋。你们会很兴奋。啊呀，虽然我睡了两个多小时觉，但心情相当的好。祝战友们，兄弟姐妹们有美好的一天。
 
-星号含义：某些证据
+05:27 对了。很多离开这个VOG的战友们义工啊，就是说很失落。非常抱歉。我今天早上刚才，几十分钟以前，我听那个郭啸天跟我说了。很多人都离开了，很伤心。我特别抱歉。由于凤凰农场、VOG的事情，给你们带来了巨大的痛苦，这是我的错。七哥无能，好吧。
 
-This finding lends credence to the claim that the election  from President Donald J. Trump.
+05:51 我让那个郭啸天建一个喜马拉雅大使馆Discord群，我不会用这个群，我也没用过。然后大家可以到这个Discord的去，跟这个，加入进去，我会上那个群跟你们问候，并回答你们的问题。好吧。那不是农场啊。就是针对现在失去联系，伤心，落魄的咱们的同事们，战友们，我要去给你们好好的聊一聊。咱们交交心。因为你们是对着文贵来的。支持爆料革命和新中国联邦来的。我得对你们负责。好吧。
 
-调查结果佐证了川普总统的选举可能被盗取了这一说法。
+06:30 这个，我偶尔上群里跟大家聊聊，我去聊聊我的心声。我去，但战友们，咱不哭的，咱不行哭的。昨天晚上很多战友跟我联系，哭的一塌糊涂。七哥没法睡觉。楼上人都睡觉呢，我也不敢大声说话，咱得考虑别人的感受，是吧。S now，snow伸舌头，啥意思啊，你什么意思啊。
 
-From the findings of this report, it is possible to infer what may well have been a coordinated strategy to effectively stack the election deck against the Trump-Pence ticket. Indeed, the observed patterns of pelection irregularities are so consistent across the six battleground states that they suggest a coordinated strategy to, if not steal the election outright, strategically game the election process in such a way as to “stuff the ballot box” and unfairly tilt the playing field in favor of the Biden-Harris ticket. Topline findings of this report include:
+07:01 你看这花，太漂亮了。昨天送来的花，昨天送来的花。好日子，啥都不拂了，一切都是刚刚开始
 
-根据报告的调查结果，可以推断出有可能制定了一种有效地打击川普-彭斯的选票的协调策略。观察到的选举违规模式在六个战场州是如此一致，表明这是一个经过协商的策略，即使没有完全盗取大选，也是通过操纵选举从而使选票有利于拜登-哈里斯一方。该报告的主要发现包括：
+（视频结束）
 
-· The weight of evidence and patterns of irregularities are such that it is irresponsible for anyone – especially the mainstream media – to claim there is “no evidence” of fraud or irregularities.
+更多信息请点：https://gtv.org/getter/5fdf4ee193a06b22d9dfcc24
 
-·大量证据和违规操作表明，任何人，尤其是主流媒体，声称“没有证据”证明存在选举欺诈或违规行为是不负责任的。
-
-∙ The ballots in question because of the identified election irregularities are more than sufficient to swing the outcome in favor of President Trump should even a relatively small portion of these ballots be ruled illegal.
-
-· 如果这些选票中相对较小的一部分被裁定为非法，那么因违规操作而被质疑的选票将足以翻转结果，而有利于川普总统。
-
-∙ All six battleground states exhibit most, or all, six dimensions of election irregularities. However, each state has a unique mix of issues that might be considered “most important.” To put this another way, all battleground states are characterized by the same or similar election irregularities; but, like Tolstoy’s unhappy families, each battleground state is different in its own election irregularity way.
-
-·所有六个战场州实施了大部分或全部六个违规操作。 但是，每个州所特有的违规问题都有可能被视为“最重要”的。 换句话说，所有战场州都具有相同或相似的选举违规行为。 但是，就像托尔斯泰的不幸家庭各有不同一样，每个战场州在选举违规方面都有所不同。
-
-∙ This was theft by a thousand cuts across six dimensions and six battleground states rather than any one single “silver bullet” election irregularity.
-
-· 在六个战场州，选举被六大违规行为所衍生出来的上千种违法操作所窃取，而不是被一个单一的“唯一”的选举违规行为所盜。
-
-∙ In refusing to investigate a growing number of legitimate grievances, the anti-Trump media and censoring social media are complicit in shielding the American public from the truth. This is a dangerous game that simultaneously undermines the credibility of the media and the stability of our political system and Republic.
-
-· 在拒绝调查越来越多的合法申诉时，那些反川普媒体和进行言论审查的社交媒体串通一气，阻挡美国民众了解真相。 这是一个危险的游戏，媒体的公信力和我们的政治制度和共和国的稳定都遭到破坏。
-
-∙ Those journalists, pundits, and political leaders now participating in what has become a Biden Whitewash should acknowledge the six dimensions of election irregularities and conduct the appropriate investigations to determine the truth about the 2020 election. If this is not done before Inauguration Day, we risk putting into power an illegitimate and illegal president lacking the support of a large segment of the American people.
-
-· 参与了为拜登洗白的那些记者，专家和政治领导人应承认这六大选举违规行为并进行适当的调查以揭示有关2020大选的真相。 如果在就职典礼日之前没有做到这一点，我们就有可能让一个未被授权的、非法的、并缺乏大部分美国人支持的总统上台。
-
-∙ The failure to aggressively and fully investigate the six dimensions of election irregularities assessed in this report is a signal failure not just of our anti-Trump mainstream media and censoring social media but also of both our legislative and judicial branches.
-
-· 没有积极地全面地调查本报告所评估的六个大选违规行为，这不仅仅是反川普主流媒体和控制舆论的社交媒体的失败，也是我们的立法和司法部门的失败
-
-。Republican governors in Arizona and Georgia together with Republican majorities in both chambers of the State Legislatures of five of the six battleground states – Arizona, Georgia, Michigan, Pennsylvania, and Wisconsin2 – have had both the power and the opportunity to investigate the six dimensions of election irregularities presented in this report. Yet, wilting under intense political pressure, these politicians have failed in their Constitutional duties and responsibilities to do so – and thereby failed both their states and this nation as well as their party.
-
-。亚利桑那州和乔治亚州的共和党州长，以及亚利桑那州、乔治亚州、密歇根州、宾夕法尼亚州和威斯康星州六个战场州中的五个州的参众两院共和党多数，都拥有权力和机会来调查本报告中提出的六大选举违规行为。 然而，屈服于强大的政治压力，这些政客们没有履行宪法赋予他们的责任和义务去这样做，因此也辜负了他们的州和这个国家以及他们的政党。
-
-。Both State courts and Federal courts, including the Supreme Court, have failed the American people in refusing to appropriately adjudicate the election irregularities that have come before them. Their failures pose a great risk to the American Republic.
-
-。州法院和联邦法院，包括最高法院，对摆在他们面前的大选违规行为，都拒绝作出妥当的裁决，已经辜负了美国人民。他们的不作为给美利坚合众国带来了巨大的风险。
-
-∙ If these election irregularities are not fully investigated prior to Inauguration Day and thereby effectively allowed to stand, this nation runs the very real risk of never being able to have a fair presidential election again – with the down-ballot Senate races scheduled for January 5 in Georgia an initial test case of this looming risk.
-
-· 如果就职典礼日之前没有对这些选举中的违规行为进行全面的调查，而任其继续有效地存在，那么这个国家将面临非常真实的风险，那就是永远不会再有公正的总统选举-已定于1月5号在乔治亚州进行的参议院的投票选举将是对这个迫在眉睫的风险的初步测试。
-
-（未完待续）
-
-更多精彩内容请关注：
-
-- [美国纽约七星会农场（为子孙爱七哥）官推](https://twitter.com/wzsaqg)
-- [美国纽约七星会农场（为子孙爱七哥）GTV](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
-- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19044815/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-2.jpg)
-0
+1+

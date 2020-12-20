@@ -1,45 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 全球化秘密！《巴黎气候协议》80年降温几度？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/669107/)
+## 中共自以为两肋插刀的兄弟 关键时刻再插中共两刀
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/669482/)
 
-HTS-02C-202012-011
+*作者：大明；编辑：宁缺；审核：海阔天空；Page：小雨*
 
-喜马拉雅东京樱花团 小雨Rain
+# **中共自以为两肋插刀的兄弟 关键时刻再插中共两刀**
 
-2016年，全球178个国家签署《巴黎气候协议》，全球弥漫着地球变暖，人类难以生存的恐慌！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20055136/%E7%94%BB%E5%83%8F1-18.png)
-各个国家领导人以政府力量，立法行政手段开始了降低二氧化碳排放量的风起云涌！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20100619/%E7%94%BB%E5%83%8F%EF%BC%92-4.png)
-这是一个笑话吧！丹麦哥本哈根共识中心总裁，丹麦智库负责人，环境学家Bjorn Lomberg 以权威数据表达，让人忍俊不禁。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20100558/%E7%94%BB%E5%83%8F3-2.png)
-使用和联合国相同的气候计算模型，结论是：
+根据搜狐网新闻资料显示，俄罗斯每年供应中国约三十亿度电。按每一千克煤发电2.3度计算，发出30亿度电大约需要烧13.05亿吨煤。在中共报复澳大利亚要求彻查中共病毒来源的背景下，断然停止进口澳大利亚的优质煤炭。向来被认为是中共最仰赖的好兄弟、好伙伴，当年苏联老大哥的继承者俄罗斯为何此时传出消息，要停止对华供电？
 
-巴黎协议的清洁能源计划几乎什么都实现不了！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20100647/%E7%94%BB%E5%83%8F4.png)
-巴黎气候协议是对一个真问题采取了错误的解决办法！
+[!\[\]()!\[\](https://spark.adobe.com/page/yGRPylcXT1n8F/images/90b4d028-5697-4452-8fa3-5a048fd1ed70.jpg?asset_id=f7925726-674c-42b9-8085-046b1fb5f468&amp;img_etag=%229258376b56b2dac498052aad0be3406b%22&amp;size=2560)](https://spark.adobe.com/page/yGRPylcXT1n8F/images/90b4d028-5697-4452-8fa3-5a048fd1ed70.jpg?asset_id=f7925726-674c-42b9-8085-046b1fb5f468&amp;img_etag=%229258376b56b2dac498052aad0be3406b%22&amp;size=1024)
 
-花费惊天，温度不减！
+难道是中共外汇枯竭，俄罗斯怕被拖欠购电费用？中共过去即使外汇再紧张也不敢拖欠俄爹的钱。之前普京卖给中共价格高得离谱的石油，而且提前收款的案例就可以说明，俄罗斯与中共国绝不可能做亏本买卖。在这样一半兄弟，一半大爷的关系面前，中共还幻想拉俄罗斯共同对抗美国和西方世界，真是可笑至极。
 
-80年后的2100年，只能降低温度0.023华氏度！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20100733/%E7%94%BB%E5%83%8F7.png)
-到本世纪末，全球变暖只能推迟8个月！
+中国南方多省甚至连一向是向外输出电力的内蒙古也被传出限电，充分说明中共国电力十分紧缺。笔者认为，北约和俄罗斯前不久认定中共病毒是生化武器，评估核战争，生化战的经济和人道损失，并且积极备战……是主要原因。正是俄罗斯配合美国和西方世界从经济上制裁中共，才是最真正的原因。
 
-到本世纪末，全球至少花费100万亿，为了降低0.3华氏度！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20100713/%E7%94%BB%E5%83%8F6.png)
-全球每年需要花费1-2万亿！
+64侩子手李鹏都去见马克思了，中国人民八分钱的电费只是个笑话，再次暴露了共产党以骗治国、以假治国的虚伪本质。当年极力反对修建三峡大坝的黄万里先生，生前曾向毛贼东的前秘书李锐先生说，要在白帝城摆三个跪像，两男一女和岳飞墓前的秦桧跪像一样。两位反中共暴政的楷模，都已经仙逝。他们无法改变的中共国，现在终于已经摇摇欲坠了。
 
-川普领导下的白宫，按着巴黎协议第28条退出程序，于2019年11月4日正式提出退出巴黎协议的通知， 12个月后生效。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20100824/%E7%94%BB%E5%83%8F8.png)
-2020年11月4号，美国大选11月3号的第2天，美国退出巴黎协定正式生效。
+中共国经济必然在基础能源电力，煤炭石油全面短缺后，先是通货膨胀，然后彻底崩溃。世界各国即将确定中共病毒为攻击全世界的生化武器，灭共热战在所难免。内忧外患的中共，灭亡之日就在眼前！
 
-美国真有效办法，天然气代替煤炭；加拿大真有效办法，开启了历史上最大投资4000亿的液化天然气项目！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20100915/%E7%94%BB%E5%83%8F9.png)
-中共国及其推动的全球一体化，尤其是巴黎气候协议和一带一路，给世界人民太多迷思！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20100940/%E7%94%BB%E5%83%8F10.png)
-世界领导人们是真糊涂，还是假糊涂，还是装糊涂，但愿是真糊涂！
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/yGRPylcXT1n8F/)
 
-100万亿美金，几代人花费，连1华氏度都降不下来！
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/yGRPylcXT1n8F/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/yGRPylcXT1n8F/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0
