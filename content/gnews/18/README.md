@@ -1,70 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 杜绝中共渗透，美国国务院力推教育改革
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/669817/)
+## 亨特·拜登代表家族向中共索取1000万美元
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/669918/)
 
-新闻来源：Campusreform《校园改革》； 作者：阿什莉·卡纳汉（Ashley Carnahan）； 发布时间：2020年12月16日
+*新闻来源：The Federalist《联邦人》； 作者：Tristan Justice； 发布时间：2020年12月16日*
 
-翻译/简评：随波逐流；校对：X-Wing飞得更高；审核：万人往；Page：拱卒
-[!\[\]()!\[\](https://spark.adobe.com/page/7Dz4kg03dlxjH/images/6d233fe4-9ed5-4b4a-8b95-c54240894407.jpg?asset_id=3193d644-7a4e-47fc-8f74-d5dc993e061e&amp;img_etag=%225c72d344745ed376111d16414fffff62%22&amp;size=1024)](https://spark.adobe.com/page/7Dz4kg03dlxjH/images/6d233fe4-9ed5-4b4a-8b95-c54240894407.jpg?asset_id=3193d644-7a4e-47fc-8f74-d5dc993e061e&amp;img_etag=%225c72d344745ed376111d16414fffff62%22&amp;size=1024)
+*翻译/简评：MikeHua；校对：InAHurry；审核：万人往；Page：拱卒*
+
+[!\[\]()!\[\](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/5c8aca9a-fb89-4a54-9df6-d691d5f1548f.jpg?asset_id=d21d381e-2d0a-41c3-9b13-6446115e7797&amp;img_etag=%224d11f66cbadb89338f8f3416f20a7ea9%22&amp;size=2560)](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/5c8aca9a-fb89-4a54-9df6-d691d5f1548f.jpg?asset_id=d21d381e-2d0a-41c3-9b13-6446115e7797&amp;img_etag=%224d11f66cbadb89338f8f3416f20a7ea9%22&amp;size=1024)
+
 **简评：**
 
-美国国务院最新报告阐述了中共国欲主导世界和改变世界秩序，从而给美国带来的威胁，并说中共正利用美国的教育机构来成就自己的这一使命。这份题为“中共国挑战要素”的报告给出美国为了“守护自由”必须完成的十项任务，要求加强与盟友的安全合作。报告解读了中共通过出资在世界各地大学中建立孔子学院搞宣传渗透，扭曲真相丑化美国，全面颠覆美国的建国理念和宪法传统。为了应对这些，美国认为必须要进行教育改革，提高全民意识，重新认识“独立宣言”的宝贵内涵，发挥高等教育和大学的影响力，担负起公民责任以适应复杂的国际环境的需要。
+亨特·拜登的事情还没完呢。美国的司法体系虽然慢，但是正义不会缺席。在大选前，主流媒体对拜登家族卖国捞钱的事情避而不谈。如今却出现了一些报道，比如福克斯爆出猛料，称亨特·拜登代表整个拜登家族出卖美国。
 
-一直以来，中共不断利用金钱收买美国的高等教育机构，使他们不但不批评自己，而且还能遵照中共的行事原则帮中共达成目标。很多学者专家也违背原则为中共站台，为他们编写剧本迷惑世人，壮大了中共推广其共产集权和称霸世界的野心。美国当前的高等教育机构在中共的影响下，已严重阻碍国家推行应对中共的严苛政策，影响了美国对中共的作战部署，改革势在必行。
+美国的内部生态允许拜登这样的鳄鱼存在，这是美国政治生态的一部分；但现在这些鳄鱼越界，通过共产党抢劫中国老百姓的钱，就该被惩罚。虽然现在拜登表面上看起来占优势，但是郭先生早已明确表示，最后一定是川普总统当选。许多媒体看到风向要变，在这个时候要把拜登抛出去，提前给自己找退路。拜登只不过是中共利用的棋子，无论现在怎么瞎折腾，灭共是一定的！
 
-#### **原文翻译：**
+**原文翻译：**
 
-# 美国国务院：美国高等教育破坏了打击中共的努力
+# **新文件显示，亨特·拜登代表‘整个拜登家族’向中共索取1000万美元**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7Dz4kg03dlxjH/images/02d669ab-64a0-4b02-990d-4173ca7855b2.jpg?asset_id=0ad59f4e-4c2e-4b28-9d2b-1c949f2f55fc&amp;img_etag=%2268ead8fea1b67b4e1ffb06fb3ef600fa%22&amp;size=1024)](https://spark.adobe.com/page/7Dz4kg03dlxjH/images/02d669ab-64a0-4b02-990d-4173ca7855b2.jpg?asset_id=0ad59f4e-4c2e-4b28-9d2b-1c949f2f55fc&amp;img_etag=%2268ead8fea1b67b4e1ffb06fb3ef600fa%22&amp;size=1024)
+**《福克斯新闻》周四报道的新文件提供了更多对有关亨特·拜登和一名与中国共产党有深层联系的生意人之间1000万美元交易的细节，这对当选总统乔·拜登和科技巨头以及大媒体公司之间的丑闻无疑是火上浇油。**
 
-美国国务院最新报告概述了美国如何应对作为一个全球超级大国中共国的崛起，以及共产主义国家欲“改变世界秩序”的威胁，并指出美国的高等教育机构正在被利用来成就中共国的使命。
+[!\[\]()!\[\](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/7973b7bb-3320-40f0-ab71-531a103a14ec.jpg?asset_id=afa2ecea-e320-4f6b-9099-e684beda03b2&amp;img_etag=%22c8525aa0a0b895a705a8056476f0c7fa%22&amp;size=2560)](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/7973b7bb-3320-40f0-ab71-531a103a14ec.jpg?asset_id=afa2ecea-e320-4f6b-9099-e684beda03b2&amp;img_etag=%22c8525aa0a0b895a705a8056476f0c7fa%22&amp;size=1024)
 
-这份题为“中共国挑战要素”的报告给出了美国为了“守护自由”必须完成的十项任务。
+根据福克斯获取的通信记录，亨特·拜登被指他在2017年向华信能源(CEFC)主席叶简明表达了“来自整个拜登家族最好的祝福”，并且敦促与中国共产党有深层联系的合伙人叶简明尽快电汇1000万美元以便“合理资助和运行”拜登的基金。
 
-该报告指出：“中共不仅着眼于在既定的世界秩序中占主导地位 —- 即一种建立在自由和主权民族国家基础上的秩序，它源于美国所建立的普遍原则，并促进了美国的国家利益 —- 而且想从根本上改变世界秩序，从而以中共国为中心，服务于北京的专制目标和霸权野心。”
+“我希望你一切安好。我对上次你来美国时没能见你表示遗憾”，亨特·拜登六月在一封信件上写道，“请接受来自整个拜登家族以及我的商业伙伴最诚挚的问候”。
 
-该报告称，美国必须努力维护其宪政、促进繁荣、建立“一个健全的公民社会”，并指出这对于应对该国的外来挑战是“必不可少的”。
+在这封要求叶简明的合伙人转账1000万美元的信上，亨特·拜登提到了托尼·伯布林斯基(Tony Bobulinski)，曾经是拜登的合伙人，在今年站出来爆料。
 
-此外，报告说，美国需要维持“世界上最强大、最敏捷、技术最先进的军事力量，同时本着共同利益和共同责任，加强与盟友和伙伴的安全合作。”
+“如果你能快点转账我会很感激”，拜登写道，他想资助拜登领导的公司华鹰(Sinohawk)，该公司与伯布林斯基合伙，并由伯布林斯基担任CEO。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7Dz4kg03dlxjH/images/0272ba9c-2d6f-4d01-8590-ad1c7005e9e9.jpg?asset_id=ed49e2c5-9bbb-4de5-a457-2446a681628b&amp;img_etag=%22e4f0695f0bd89b080d50b20a155305b0%22&amp;size=1024)](https://spark.adobe.com/page/7Dz4kg03dlxjH/images/0272ba9c-2d6f-4d01-8590-ad1c7005e9e9.jpg?asset_id=ed49e2c5-9bbb-4de5-a457-2446a681628b&amp;img_etag=%22e4f0695f0bd89b080d50b20a155305b0%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/f8c3fc8e-c9d2-4ccd-ab6d-a11f27f647c1.jpg?asset_id=f04fd247-5298-45e0-8a1f-1e6a9467e431&amp;img_etag=%220d6f2bd60901fc01ede6363b1367fa32%22&amp;size=2560)](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/f8c3fc8e-c9d2-4ccd-ab6d-a11f27f647c1.jpg?asset_id=f04fd247-5298-45e0-8a1f-1e6a9467e431&amp;img_etag=%220d6f2bd60901fc01ede6363b1367fa32%22&amp;size=1024)
 
-该报告指责中共国利用美国的大学从事宣传活动。
+亨特·拜登-叶简明
 
-报告称：“ [中共国]通过秘密资助协议，在美国和其他国家的大学里大量资助专门从事中共宣传的孔子学院，迫使这些机构在避免批评中共国的同时，反而遵守中共的目标。”
+在福克斯查阅的后续邮件中，一封七月回复给亨特·拜登的邮件显示叶简明很热情地安排了拜登的请求，以“加快”汇款工作。
 
-该报告还指出，美国“必须对美国公民进行教育，让他们了解有关中共国挑战的范围和影响，因为只有全民的认知才有望支持美国为了守护自由而必须采取一系列苛刻政策。”
+这些通信往来都发生在《纽约邮报》十月报道的叶简明提出1000万美元给拜登作为一个年度合约的“介绍费”之前。报道还提到，1000万美元介绍费的一部分是预留给乔·拜登的，会由亨特输送给乔·拜登。
 
-此外，该报告详细说明了全国高等教育和大学在如何打造美国方面所发挥的影响力和效果。
+《福克斯新闻》的重磅爆料给纽约邮报之前的爆料增加了信度，而之前采用民主党言论的媒体公司都曾驳斥了纽约邮报的爆料，他们将纽约邮报的报道打成俄罗斯的虚假信息，并且和科技巨头一起在11月大选前几天打压了这个信息。
 
-报告指出：“险恶的外国势力试图在美国制造不和。美国的小学、中学、高中以及学院和大学不得不令人沮丧地放弃了对美国的建国理念和宪法传统的介绍，转而支持旨在诋毁美国的宣传。”
-
-为了应对这个问题，该报告认为美国必须“收回自己的自由遗产。”
-
-它解读道：“面对这些两极分化的力量，美国必须收回自己的自由遗产。要开始重新认识到被载入《独立宣言》的持久原则 — 即所有人被赋予了不可剥夺的权利，政府的主要宗旨是确保这些权利，而且所有合法的政治权力都源于被统治者的许可。”
-
-[相关：教授在中资媒体上发表文章，分享中共的宣传]
-
-最后，为了与中共国作战，国务院经论证认定必须对美国的教育进行“改革”。
-
-报告解读：“美国必须改革美国人的教育，培养学生通过了解美国的自由传统，担负起在自由民主的社会中公民的持久责任，而且使他们学到的在科学、技术、工程和数学方面的专业知识能够满足一个复杂的、信息时代下的、全球化经济的特殊需要。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/7Dz4kg03dlxjH/images/d7205d10-a5f4-4a77-8ab9-467d3f65fe01.jpg?asset_id=98e18282-0206-4c0b-9dee-93b0c040ce53&amp;img_etag=%22709b36ead65b73d352e4f753d06d8710%22&amp;size=1024)](https://spark.adobe.com/page/7Dz4kg03dlxjH/images/d7205d10-a5f4-4a77-8ab9-467d3f65fe01.jpg?asset_id=98e18282-0206-4c0b-9dee-93b0c040ce53&amp;img_etag=%22709b36ead65b73d352e4f753d06d8710%22&amp;size=1024)
-
-全美学者协会发言人查恩斯·雷顿（Chance Layton）在接受《校园改革》采访时说，美国国务院已在这份报告中“指出了问题的要害”。
-
-雷顿说：“如果美国人不了解自己的建国理念，他们为什么要捍卫这些？更糟糕的是，学生们可能会想：‘如果不是美国更过分，中共国为什么会如此不善？’ 这个问题源于善意。作为美国人，我们应该了解我们的整个历史，不仅要了解我们在宣言中阐明的对法规的指导原则，以确保其在宪法中的连续性，而且还要了解在我们国家历史中出现的从奴隶制到新帝国主义时期的许多问题和争论。”
-
-雷顿说，我们的教育系统在编写“美国对手的剧本”方面也发挥了作用。
-
-莱顿说：“这一想要告知真相的良好愿望已经被颠倒历史的狂热分子完全歪曲。他们将美国视为一个失败的国家，而不是一个从一开始就努力兑现诺言和独立宣言中设定的原则的国家。 通过这种方式，一些教育家为美国的对手们编写了剧本。”
-
-《校园改革》已要求国务院给出进一步意见；但是，发表本文之前未及时收到答复。
-
-[原文链接](https://campusreform.org/article?id=16419)
+[原文链接](https://thefederalist.com/2020/12/16/new-documents-show-hunter-biden-requesting-10-million-from-chinese-on-behalf-of-entire-biden-family/)
 
 [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
@@ -72,6 +50,8 @@
 
 [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/7Dz4kg03dlxjH/)
-[!\[\]()!\[\](https://spark.adobe.com/page/7Dz4kg03dlxjH/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/7Dz4kg03dlxjH/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/AXZTpGtGKTGuH/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
 0

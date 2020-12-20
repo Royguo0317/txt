@@ -1,57 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特·拜登代表家族向中共索取1000万美元
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/669918/)
+## 【热点播报】蓬佩奥表示“俄罗斯是攻击美国网络的幕后黑手”原来另有深意
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/670045/)
 
-*新闻来源：The Federalist《联邦人》； 作者：Tristan Justice； 发布时间：2020年12月16日*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14092131/GNEW-GTV-MOS-LOGO-2.jpg)
 
-*翻译/简评：MikeHua；校对：InAHurry；审核：万人往；Page：拱卒*
+香草山写作组：wilson
 
-[!\[\]()!\[\](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/5c8aca9a-fb89-4a54-9df6-d691d5f1548f.jpg?asset_id=d21d381e-2d0a-41c3-9b13-6446115e7797&amp;img_etag=%224d11f66cbadb89338f8f3416f20a7ea9%22&amp;size=2560)](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/5c8aca9a-fb89-4a54-9df6-d691d5f1548f.jpg?asset_id=d21d381e-2d0a-41c3-9b13-6446115e7797&amp;img_etag=%224d11f66cbadb89338f8f3416f20a7ea9%22&amp;size=1024)
+编辑：jamie(文胤)
 
-**简评：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20123937/%E3%80%96%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%97%E8%93%AC%E4%BD%A9%E5%A5%A5%E8%AF%B4%E4%BF%84%E7%BD%97%E6%96%AF%E6%98%AF%E6%94%BB%E5%87%BB%E7%BE%8E%E5%9B%BD%E7%BD%91%E7%BB%9C%E7%9A%84%E5%B9%95%E5%90%8E%E9%BB%91%E6%89%8B%E5%8E%9F%E6%9D%A5%E5%8F%A6%E6%9C%89%E6%B7%B1%E6%84%8F01.png)来源：[https://justthenews.com/government/security/pompeo-says-russia-pretty-clearly-behind-massive-cyberattack-against-us](https://justthenews.com/government/security/pompeo-says-russia-pretty-clearly-behind-massive-cyberattack-against-us)
 
-亨特·拜登的事情还没完呢。美国的司法体系虽然慢，但是正义不会缺席。在大选前，主流媒体对拜登家族卖国捞钱的事情避而不谈。如今却出现了一些报道，比如福克斯爆出猛料，称亨特·拜登代表整个拜登家族出卖美国。
+2020年12月18日，国务卿蓬佩奥表示：”俄罗斯是‘非常显然的’大规模攻击美国网络的幕后黑手，该攻击攻陷了美国政府及私人计算机系统。受袭击影响的联邦机构包括国务院、国家卫生研究院、商务部和国土安全部。
 
-美国的内部生态允许拜登这样的鳄鱼存在，这是美国政治生态的一部分；但现在这些鳄鱼越界，通过共产党抢劫中国老百姓的钱，就该被惩罚。虽然现在拜登表面上看起来占优势，但是郭先生早已明确表示，最后一定是川普总统当选。许多媒体看到风向要变，在这个时候要把拜登抛出去，提前给自己找退路。拜登只不过是中共利用的棋子，无论现在怎么瞎折腾，灭共是一定的！
+蓬佩奥的这次表态并未具体说明俄罗斯政府中的哪个部门是袭击的幕后黑手，也并未谈及俄罗斯干涉了美国的大选，这一切的背后大有玄机。郭先生视频中谈到中共的“铁友”俄罗斯，将会和共产党发生巨大的分歧。现在共产党跑到俄罗斯，利用俄罗斯的平台去做黑客美国的事。美国政府于是将计就计，直言一切是俄罗斯所为。俄罗斯辩解：”这不是我干的。” 那是谁干的？原来是中共这个惯盗企图栽赃俄罗斯。爆怒的俄罗斯扬言要揭发中共的老底，特别是揭露中共放毒的内幕。但共产党这边却继续嚣张，警告俄罗斯不要再次重复几十年前走错的路，中共已经不是过去的中共了。俄罗斯暂时尚未回应。郭先生谈到：“普京是个成熟的政治家，他要等火候到了，最起码等美国大选结束，把中共的钱应收尽收以后，再翻脸回击。”
 
-**原文翻译：**
+稍为熟悉地缘政治的人都清楚，苏联解体以后，俄罗斯快速衰落。其长期受北约东扩的挤压，结合因克里米亚事件受到的严厉制裁，国力不断下降，最近两年的GDP均不足1.7万亿美元，军费开支不到美国的1／10。当今的俄罗斯只是一只虚弱的北极熊。
 
-# **新文件显示，亨特·拜登代表‘整个拜登家族’向中共索取1000万美元**
+历史上，衰落的俄罗斯都成为了海洋系国家的盟友（有兴趣的朋友自行查阅），这一次也不会例外。与美国联手对付野蛮崛起的中共，是普京求之不得的历史机遇，也是美国正义力量的必然选择。拜登利用通俄门阻止川普和普京的联手，并一直坚持俄罗斯才是美国的最大威胁，明显受到中共的指使。地缘政治的演变自有其不可抗拒的规律，习近平和拜登这样的历史小丑，企图扭转历史大势，可笑至极。
 
-**《福克斯新闻》周四报道的新文件提供了更多对有关亨特·拜登和一名与中国共产党有深层联系的生意人之间1000万美元交易的细节，这对当选总统乔·拜登和科技巨头以及大媒体公司之间的丑闻无疑是火上浇油。**
+来源：[https://justthenews.com/government/security/pompeo-says-russia-pretty-clearly-behind-massive-cyberattack-against-us](https://justthenews.com/government/security/pompeo-says-russia-pretty-clearly-behind-massive-cyberattack-against-us)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/7973b7bb-3320-40f0-ab71-531a103a14ec.jpg?asset_id=afa2ecea-e320-4f6b-9099-e684beda03b2&amp;img_etag=%22c8525aa0a0b895a705a8056476f0c7fa%22&amp;size=2560)](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/7973b7bb-3320-40f0-ab71-531a103a14ec.jpg?asset_id=afa2ecea-e320-4f6b-9099-e684beda03b2&amp;img_etag=%22c8525aa0a0b895a705a8056476f0c7fa%22&amp;size=1024)
 
-根据福克斯获取的通信记录，亨特·拜登被指他在2017年向华信能源(CEFC)主席叶简明表达了“来自整个拜登家族最好的祝福”，并且敦促与中国共产党有深层联系的合伙人叶简明尽快电汇1000万美元以便“合理资助和运行”拜登的基金。
 
-“我希望你一切安好。我对上次你来美国时没能见你表示遗憾”，亨特·拜登六月在一封信件上写道，“请接受来自整个拜登家族以及我的商业伙伴最诚挚的问候”。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HimalayaNewYork)！
 
-在这封要求叶简明的合伙人转账1000万美元的信上，亨特·拜登提到了托尼·伯布林斯基(Tony Bobulinski)，曾经是拜登的合伙人，在今年站出来爆料。
+更多文章，欢迎浏览[美东香草山农场GNEWS](https://gnews.org/zh-hans/author/changdao/)！
 
-“如果你能快点转账我会很感激”，拜登写道，他想资助拜登领导的公司华鹰(Sinohawk)，该公司与伯布林斯基合伙，并由伯布林斯基担任CEO。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/f8c3fc8e-c9d2-4ccd-ab6d-a11f27f647c1.jpg?asset_id=f04fd247-5298-45e0-8a1f-1e6a9467e431&amp;img_etag=%220d6f2bd60901fc01ede6363b1367fa32%22&amp;size=2560)](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/f8c3fc8e-c9d2-4ccd-ab6d-a11f27f647c1.jpg?asset_id=f04fd247-5298-45e0-8a1f-1e6a9467e431&amp;img_etag=%220d6f2bd60901fc01ede6363b1367fa32%22&amp;size=1024)
-
-亨特·拜登-叶简明
-
-在福克斯查阅的后续邮件中，一封七月回复给亨特·拜登的邮件显示叶简明很热情地安排了拜登的请求，以“加快”汇款工作。
-
-这些通信往来都发生在《纽约邮报》十月报道的叶简明提出1000万美元给拜登作为一个年度合约的“介绍费”之前。报道还提到，1000万美元介绍费的一部分是预留给乔·拜登的，会由亨特输送给乔·拜登。
-
-《福克斯新闻》的重磅爆料给纽约邮报之前的爆料增加了信度，而之前采用民主党言论的媒体公司都曾驳斥了纽约邮报的爆料，他们将纽约邮报的报道打成俄罗斯的虚假信息，并且和科技巨头一起在11月大选前几天打压了这个信息。
-
-[原文链接](https://thefederalist.com/2020/12/16/new-documents-show-hunter-biden-requesting-10-million-from-chinese-on-behalf-of-entire-biden-family/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/AXZTpGtGKTGuH/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/AXZTpGtGKTGuH/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+圣经故事背景，免费英语教学，美东时间周一至周五晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

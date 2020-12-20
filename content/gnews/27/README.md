@@ -1,53 +1,96 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## War Room 597 总结
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/669705/)
+## 【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（一）
+` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/669414/)
 
-- 编辑：Ranting
-- 作者：Jenny Ball
+翻译：美国纽约七星会农场翻译组｜Jessi/詹茜
 
+校对：美国纽约七星会农场翻译组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20082338/Screen-Shot-2020-12-20-at-9.22.33-PM.png)
+## Executive Summary 
 
-总统行政令要求大选后45天，情报局长要出外国势力干预选举的调查报告。川普总统今天没有拿到这个报告，但他得到了通报。
+## 执行摘要
 
-**伦敦政策研究中心网络安全总裁托尼·谢弗（Tony Shaffer****）上校**，是一名真正的爱国者，他深度参与对911恐怖事件的调查，是五角大楼的网络战士。
+This report assesses the fairness and integrity of the 2020 Presidential Election by examining six dimensions of alleged election irregularities across six key battleground states.
 
-**谢弗上校**：克拉布说这次选举是美国历史上最安全的选举，这绝对是错的，对中共说法也是错的。对核心太阳风的理解将能够证明他是错误的。
+通过对六个关键战场州六种大选违规行为的核查，本报告对2020年总统选举的公平性与完整性进行了评估。
 
-太阳风实际上是其他IT公司，政府部门，非政府组织部门用来管理数据库的中间件。因此，请考虑一下，太阳风所接触的一切都受到了损害。我们现了解到，太阳风实际上在管理着政府和多个公司。
+Evidence used to conduct this assessment includes more than 50 lawsuits and judicial rulings, thousands of affidavits and declarations, testimony in a variety of state venues, published analyses by think tanks and legal centers, videos and photos, public comments, and extensive press coverage.
 
-此时我们必须分析和弄明白它影响的范围。我们知道该操作至少已经进行了9个月，甚至更长的时间，而且还有隐患，让我给非IT专业的听众解释一下：
+本评估采用证据如下：五十多起诉讼和司法裁决，数以千计的宣誓和声明，多州不同场合的证词，多个 智库和法律中心发布的分析报告，视频和照片，公众的评论以及大量的新闻报道。
 
-当您在计算机上下载软件时，通常由Microsoft进行认证，如果您有防病毒功能，则它是数字认证的。现在是，黑客通过嵌入恶意软件，破坏了太阳风的整个结构。这也称为舒适熊软件，理论上与俄罗斯人使用的软件相同，还进行其他骇客。
+The matrix below indicates that significant irregularities occurred across all six battleground states and across all six dimensions of election irregularities.
 
-由于用户对这个技术完全不知晓，因此很明显，使用它的人很精明，他们知道锁定目标，就可以访问多个其他公司，而且这些其他公司的整个公基础架构都对太阳风开放。这是邪恶的，而且范围很大。我们仍在尝试找出答案。
+以下列表显示了发生在所有六个战场州的涉及六种方式的违规行为。
 
-至于他们将从今天开始，处于对国家安全的考虑，五角大楼的情况通报不与拜登分享，会向川普总统施加压力，谢弗上校说，目前拜登团队对此还无能为力。在我们弄清楚发生的一切之前，给他们任何访问权限都没有任何好处。我要非常清楚地强调影响的范围，我们在说的是美国国立卫生研究院，是商务部，交通运输部，国土安全部和国务院。
+![pastedGraphic.png]()![pastedGraphic.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20101637/Screen-Shot-2020-12-20-at-11.15.11-PM.png)
 
-这些都是现任政府必须处理的主要事情。在这一点上，拜登的人甚至想都别想参与。他们也不应该这样要参与。毫不怀疑他们会借机攻击川普总统，但我认为他们参与其中是不安全的。你不想让客人进厨房，他们不需要在那里。
+图中文字：
 
-**班农先生**：说到反叛乱，我们无需召集军队，因为威斯康星州，佐治亚州和亚利桑那州这三个州的立法机关掌握着国家的命运。我们可以毫无疑问地证明这次选举被盗，存在欺诈性，非合法性，无证明的投票，无监护链的邮寄选票，这些都已计算在内。 这是不应该的，这意味着必须取消认证。这些都是共和党州长，共和党的立法机构，不是民主党。
+行：亚利桑那，佐治亚，密西根，内华达，宾夕法尼亚，威斯康星
 
-**约翰·弗雷德里克**（John Fredericks）：秀笑脸这样的选票日子已经过去了。乔治亚州见识了州政府的欺骗和腐败程度。
+列：完全的选民欺诈，选票处理不当，可疑的程序违规，违反平等保护条款，投票机违规，重大统计异常
 
-这基本上不是什么秘密，上我节目的议员们说，众议院议长戴维·拉尔斯顿（David Ralston）对总统撒谎，他说他将支持特别会议的请愿书，这本来可以结束所有这一切危机的行动。但是相反，他在强力威胁代表，威胁他们说，如果他们签名召开特别会议的请愿书，他将剥夺他们的委员会席位，并把他们的席位剔除。
+对号含义：普遍证据
 
-人们想要看到他们采取行动，他们正在寻找领导者。我已经说了一遍又一遍，在乔治亚州正在发酵的运动，我认为，人们正在超越其目前的共和党领导人。这就是为什么这两个参议院席位很危险。对州长的认同率已经降至11％。
+星号含义：某些证据
 
-**朱利安尼市长**，常识节目主持人：我认为，乔治亚州没有他们这些人，我们才可以取得成功。现在要采取完全不同的策略，即我们主要关注从这些投票机得到的证据，这些投票机就是为委内瑞拉操纵选举而设计的，这可能会在一两天内完成。我认为，尽管共和党州长极力抵抗和掩盖，我们还是可以实现这些目标。我们不用考虑他们，这个周末会看到这个不同策略的效果。
+This finding lends credence to the claim that the election  from President Donald J. Trump.
 
-我们还需要让乔治亚州州长知道，他是公平选举的叛徒。
+调查结果佐证了川普总统的选举可能被盗取了这一说法。
 
-左派说有50个起诉被法院驳回，这是谎言，总共就起诉了一宗。法官一分钟都没有听取证据，那么，如何在不听取证据的情况下裁定案件呢？
+From the findings of this report, it is possible to infer what may well have been a coordinated strategy to effectively stack the election deck against the Trump-Pence ticket. Indeed, the observed patterns of pelection irregularities are so consistent across the six battleground states that they suggest a coordinated strategy to, if not steal the election outright, strategically game the election process in such a way as to “stuff the ballot box” and unfairly tilt the playing field in favor of the Biden-Harris ticket. Topline findings of this report include:
 
-唯一能够提供证据的地方是州议会，这是唯一支持推翻这次选举的地方。
+根据报告的调查结果，可以推断出有可能制定了一种有效地打击川普-彭斯的选票的协调策略。观察到的选举违规模式在六个战场州是如此一致，表明这是一个经过协商的策略，即使没有完全盗取大选，也是通过操纵选举从而使选票有利于拜登-哈里斯一方。该报告的主要发现包括：
 
-白宫就像个迷宫，总统有我的建议，还有其他人的建议，想法各异。但是，我要说的是，总统是否会提名特别检察官调查选举欺诈，我相信这会发生。
+· The weight of evidence and patterns of irregularities are such that it is irresponsible for anyone – especially the mainstream media – to claim there is “no evidence” of fraud or irregularities.
 
-**班农先生**：作战室的大量观众是民主党人，我们的观点有所不同，但在重要的事情上，我想我们在很多方面都有共识。因此，我现在想说，让我们共同战斗。
+·大量证据和违规操作表明，任何人，尤其是主流媒体，声称“没有证据”证明存在选举欺诈或违规行为是不负责任的。
 
-**川普总统就像是一个工具，他自己也知道， 他是对抗那些精英们的工具，他们仍在企图使美国永久衰落下去**。
+∙ The ballots in question because of the identified election irregularities are more than sufficient to swing the outcome in favor of President Trump should even a relatively small portion of these ballots be ruled illegal.
 
+· 如果这些选票中相对较小的一部分被裁定为非法，那么因违规操作而被质疑的选票将足以翻转结果，而有利于川普总统。
 
+∙ All six battleground states exhibit most, or all, six dimensions of election irregularities. However, each state has a unique mix of issues that might be considered “most important.” To put this another way, all battleground states are characterized by the same or similar election irregularities; but, like Tolstoy’s unhappy families, each battleground state is different in its own election irregularity way.
 
+·所有六个战场州实施了大部分或全部六个违规操作。 但是，每个州所特有的违规问题都有可能被视为“最重要”的。 换句话说，所有战场州都具有相同或相似的选举违规行为。 但是，就像托尔斯泰的不幸家庭各有不同一样，每个战场州在选举违规方面都有所不同。
+
+∙ This was theft by a thousand cuts across six dimensions and six battleground states rather than any one single “silver bullet” election irregularity.
+
+· 在六个战场州，选举被六大违规行为所衍生出来的上千种违法操作所窃取，而不是被一个单一的“唯一”的选举违规行为所盜。
+
+∙ In refusing to investigate a growing number of legitimate grievances, the anti-Trump media and censoring social media are complicit in shielding the American public from the truth. This is a dangerous game that simultaneously undermines the credibility of the media and the stability of our political system and Republic.
+
+· 在拒绝调查越来越多的合法申诉时，那些反川普媒体和进行言论审查的社交媒体串通一气，阻挡美国民众了解真相。 这是一个危险的游戏，媒体的公信力和我们的政治制度和共和国的稳定都遭到破坏。
+
+∙ Those journalists, pundits, and political leaders now participating in what has become a Biden Whitewash should acknowledge the six dimensions of election irregularities and conduct the appropriate investigations to determine the truth about the 2020 election. If this is not done before Inauguration Day, we risk putting into power an illegitimate and illegal president lacking the support of a large segment of the American people.
+
+· 参与了为拜登洗白的那些记者，专家和政治领导人应承认这六大选举违规行为并进行适当的调查以揭示有关2020大选的真相。 如果在就职典礼日之前没有做到这一点，我们就有可能让一个未被授权的、非法的、并缺乏大部分美国人支持的总统上台。
+
+∙ The failure to aggressively and fully investigate the six dimensions of election irregularities assessed in this report is a signal failure not just of our anti-Trump mainstream media and censoring social media but also of both our legislative and judicial branches.
+
+· 没有积极地全面地调查本报告所评估的六个大选违规行为，这不仅仅是反川普主流媒体和控制舆论的社交媒体的失败，也是我们的立法和司法部门的失败
+
+。Republican governors in Arizona and Georgia together with Republican majorities in both chambers of the State Legislatures of five of the six battleground states – Arizona, Georgia, Michigan, Pennsylvania, and Wisconsin2 – have had both the power and the opportunity to investigate the six dimensions of election irregularities presented in this report. Yet, wilting under intense political pressure, these politicians have failed in their Constitutional duties and responsibilities to do so – and thereby failed both their states and this nation as well as their party.
+
+。亚利桑那州和乔治亚州的共和党州长，以及亚利桑那州、乔治亚州、密歇根州、宾夕法尼亚州和威斯康星州六个战场州中的五个州的参众两院共和党多数，都拥有权力和机会来调查本报告中提出的六大选举违规行为。 然而，屈服于强大的政治压力，这些政客们没有履行宪法赋予他们的责任和义务去这样做，因此也辜负了他们的州和这个国家以及他们的政党。
+
+。Both State courts and Federal courts, including the Supreme Court, have failed the American people in refusing to appropriately adjudicate the election irregularities that have come before them. Their failures pose a great risk to the American Republic.
+
+。州法院和联邦法院，包括最高法院，对摆在他们面前的大选违规行为，都拒绝作出妥当的裁决，已经辜负了美国人民。他们的不作为给美利坚合众国带来了巨大的风险。
+
+∙ If these election irregularities are not fully investigated prior to Inauguration Day and thereby effectively allowed to stand, this nation runs the very real risk of never being able to have a fair presidential election again – with the down-ballot Senate races scheduled for January 5 in Georgia an initial test case of this looming risk.
+
+· 如果就职典礼日之前没有对这些选举中的违规行为进行全面的调查，而任其继续有效地存在，那么这个国家将面临非常真实的风险，那就是永远不会再有公正的总统选举-已定于1月5号在乔治亚州进行的参议院的投票选举将是对这个迫在眉睫的风险的初步测试。
+
+（未完待续）
+
+更多精彩内容请关注：
+
+- [美国纽约七星会农场（为子孙爱七哥）官推](https://twitter.com/wzsaqg)
+- [美国纽约七星会农场（为子孙爱七哥）GTV](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
+- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19044815/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-2.jpg)
 0
