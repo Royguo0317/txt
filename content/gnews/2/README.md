@@ -1,37 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 解放军“爽约”中美海上军事安全对话并恶人先告状
-` GM77` [轉載自GNews](https://gnews.org/zh-hans/668035/)
+## 加拿大苛政猛于中共病毒
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/668089/)
 
-整撰：文錦   复核: WENJUN
+*加拿大多伦多枫叶农场 文锦*
 
-美国印太司令部（U.S.INDOPACOM）官网来自夏威夷州史密斯营地16日的新闻稿指出，解放军拒绝出席原定于2020年12月14日至16日与美国印太司令部举行的虚拟海上军事安全协商机制（MMCA）会议。
+*校对 小鸥 上传 WJ*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19223804/COVID-19-Coronavirus-fed.jpg)图片来源： THE CANADIAN PRESS
+据官方数据，加拿大感染中共病毒人数已超过五十万人，疫情呈蔓延趋势。在估算中共病毒的死亡人数时，政客和非选举上任的卫生官追随中共走狗WHO不遗余力地制作了令人恐惧的预测或模型。但是，在估计封锁令导致的死亡人数时，他们并未向公众提供任何模型, 而且抹黑救命良药羟氯喹。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19220709/%E5%9B%BE%E7%89%87-1-34.png)
+大量数据表明：孤独对健康不利、隔离有害健康、 隔离导致的虐待增加、网络视频交流无法维持健康的关系、隔离易导致酗酒、 缺乏运动有损健康、封锁令导致的贫穷对健康有害、抑郁、焦虑对健康不利、癌症延迟诊断对健康不利、缺乏拥抱和其他身体接触对健康不利……
 
-美国印太司令部迈克尔·斯派克上校正在等待人民解放军参加为期三天的虚拟MMCA电话会议（来自美国印太司令部官网）
+还有因取消和延迟20万例外科手术、超过50万例必要的核磁共振和CT扫描以诊断癌症和其他病症而导致的加拿大人死亡，以及因封锁令而自杀和药物过量导致的死亡增加造成了。
 
-自1998年以来，美国和中华人民共和国（People’s Republic of China）定期举行会议，开展MMCA对话，作为改善军事海上安全的协商机制，以加强空中和海上作业安全，并减少我们两国军队之间的风险。由于COVID-19疫情持续不断，国防部（DOD）和解放军同意以虚拟方式举行2020年MMCA会议。此次交流是《美中2020防务交往计划》中双方同意的一项活动
+封锁令使日常有益健康的活动变成了非法或几乎不可能做的事：唱歌、社交、与朋友交往、参加团队运动、观看舞台上的现场表演以及观看现场体育赛事……
 
-美国印太司令部司令戴维森（Phil Davidson）上将说：”中国拒绝出席MMCA是中国不履行协议的又一例证，这应该成为所有国家在未来与中国达成协议时的提醒。”。
+本周四下午阿省卡尔加里的警察以封锁令为由粗暴地对待滑冰的年轻人。冰球之国加拿大的人想破脑袋也无法相信有一天，滑冰者竟被警察按在冰面上逮捕，但这就是残酷的现实。
 
-MMCA的目的是回顾美军和解放军之间发生的不安全军事事件；评估美中两国在空中和海上安全的行为规则；讨论根据国际法改善海上和航空安全的行动方法。
+是否有人意识到封锁令的罚款和监禁，令人们对有益健康的活动望而却步，但政客及公务员收入完全不受影响，甚至还因罚款及采购疫苗而创收？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16192630/En_JL9hXEAALEwT-1.jpg)图片来源：Twitter
+占加拿大人口三分之一的安省，12月14日副卫生官芭芭拉·雅菲（Barbara Yaffe）在中共病毒疫情简报会之前无意流露出“我只是说他们写下的所有内容” 。对此，安省卫生局首席医疗官大卫-威廉姆斯（ David Williams）回应道，”很有趣，我也一样。”官僚们只是服从命令、享受特权和高薪，与因其政令造成严重影响甚至伤害的老百姓形成了深深的鸿沟。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19220414/Toronto-Sun.jpg)图片来源： Toronto Sun
+加拿大政客以违反宪法规定的“挽救生命”为目标，侵犯《宪法》规定的迁徙、旅行结社、集会和崇拜自由。如果他们真地认真对待、挽救生命，《宪法》要求他们做两件事。第一：以证据证明封锁令已挽救了生命——投机和猜想不能替代证据和科学。第二：诚实而一致地努力，找出有多少加拿大人被封锁令所伤害或杀死，以及封锁令对公共卫生造成危害的确切性质和程度。
 
-国防部将继续寻求与解放军建立建设性的、稳定的、注重结果的关系，并将在适当的场合解决解放军的关切。我们的优先事项是预防和管理危机，减少在彼此附近行动的部队的风险，并在利益一致的地方进行合作。
+郭文贵先生在2020年4月4日就告诫“这场病情最大的灾难，就是经济灾难造成的伤害，远远要大于病情；政治灾难造成的对社会人的伤害，远远大于经济伤害和病情；最后是次生灾难、人道灾难，就是要大过政治灾难、经济灾难和病情。”
 
-“我们仍然致力于MMCA，并呼吁解放军以符合MMCA宪章和作为行动安全对话目的的方式举行MMCA对话，”戴维森说。
-
-对于美方的指责，中共赶紧推脱责任。中共外交部发言人汪文斌17日在记者会称，中方未能如期赴约，“责任完全在美方，美国对中国的指责站不住脚，也不负责任。”
-
-当晚，中共人民海军微信公众号消息称，11月18日，中方向美方提供了关于此次会议议题和安排的中方建议。但美方执意强推其单方面议题设想、任意压缩年度会晤时长、改变年度会晤性质，甚至在双方尚未就议题达成一致的情况下，企图强压中方参会。美方这些不专业、不友好和不具建设性的做法，体现了美方一贯的霸凌作风，违反国际惯例，违反MMCA中有关相互尊重和协商一致的原则，损害中国海军与印太总部之间的信任。
-
-中共流氓本色的外交作风是其一贯丑态，即便美方在会议之前没有作任何动作，中共军方缺席海事安全会议并反咬一口指责美方霸凌作风，是中共运用拖延战术，并为伺机制造军事“碰瓷”预设是美方的责任作铺垫。美国已完全认清中共的险恶动机，爱国者们一定会在取得总统大选决定性胜利的同时对中共实施致命的打击。
+加拿大本地人渐渐意识到问题，但积重难返。希望战友，还有更多善良的人，不要染上病毒。没染上病毒的还不要被饿死，不要被一波一波的经济灾难、政治灾难和次生灾难给消灭。
 
 参考链接：
 
-[https://www.pacom.mil/Media/News/News-Article-View/Article/2449543/pla-a-no-show-for-operational-maritime-and-aviation-safety-dialogue/#.X9uAoSjEdNA.twitter](https://www.pacom.mil/Media/News/News-Article-View/Article/2449543/pla-a-no-show-for-operational-maritime-and-aviation-safety-dialogue/#.X9uAoSjEdNA.twitter)
+[Ontario top health officials caught on hot mic prior to COVID briefing: ‘I just say whatever they write down for me’](https://www.lifesitenews.com/news/ontario-top-health-officials-caught-on-hot-mic-prior-to-covid-briefing-i-just-say-whatever-they-write-down-for-me)
 
-[https://news.sina.com.cn/c/2020-12-18/doc-iiznezxs7525360.shtml](https://news.sina.com.cn/c/2020-12-18/doc-iiznezxs7525360.shtml)
+[Video of arrest at Calgary rink results in accusations of police ‘going overboard’](https://globalnews.ca/news/7531847/video-arrest-calgary-rink-police/)
 
-0
+[Chief medical officers are a bigger danger to Canadians’ health than COVID](https://thepostmillennial.com/chief-medical-officers-are-a-bigger-danger-to-canadians-health-than-covid)
+
+[郭文贵2020年4月4日 20200404 CCP病毒让人类陷入巨大灾难](https://gwins.org/cn/milesguo/1140.html)
+
+2+

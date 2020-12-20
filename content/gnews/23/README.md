@@ -1,31 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【推特摘录1219】-为川普而战
-` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/667612/)
+## 【林伍德律师推文1219】-面对中共的威胁
+` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/667724/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19182538/trump-won.jpg)
+新闻採集 喜马拉雅的文雅
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19194854/joe-threaten-Isareal.jpg)
+当日林伍德律师发推：
 
+“乔 ‘贿赂’ 拜登多年前就不应该威胁切断对以色列的援助。请看以下梅纳西姆-贝京(Menachem Begin)的回应。”
 
-12月19日弗林将军转发了一篇视频，该视频被点击观看120万次，播放了美国人和全球各地支持川普总统的场景，包括一开始香港运动中人们手举美国国旗的场面，群体集会，街头支持，有人在讲台陈辞，有人在商场演讲，有万头攒动，有个人视频，背景是音乐加“为川普而战”的集体呼声，观后甚是激动人心。
+1982年议员乔拜登对后以色列总理威胁切断援助时，贝京强力回应：“不要以切断援助来威胁我们。不会奏效的。我们不是膝盖颤抖的犹太人，我们是拥有3700年文明历史的犹太人，我们在毒气炉快死的时候，没人来帮助，我们奋力开创国家时没人来帮助，我们自己承担了。我们为之而战，可以战死疆场。我们坚持立场，保卫信仰。必要的时候，我们会再次为之献上生命，不管有没有你的援助。”
 
-
-
-> .[@cjtruth](https://twitter.com/cjtruth?ref_src=twsrc%5Etfw) [@SharletaBasset1](https://twitter.com/SharletaBasset1?ref_src=twsrc%5Etfw) [@kelliwardaz](https://twitter.com/kelliwardaz?ref_src=twsrc%5Etfw) [@tracybeanz](https://twitter.com/tracybeanz?ref_src=twsrc%5Etfw) [@BarbaraRedgate](https://twitter.com/BarbaraRedgate?ref_src=twsrc%5Etfw) [@flynn\_neill](https://twitter.com/flynn_neill?ref_src=twsrc%5Etfw) [@lofly727](https://twitter.com/lofly727?ref_src=twsrc%5Etfw) [#FightForTrump](https://twitter.com/hashtag/FightForTrump?src=hash&amp;ref_src=twsrc%5Etfw) & [#FightForAmerica](https://twitter.com/hashtag/FightForAmerica?src=hash&amp;ref_src=twsrc%5Etfw) !!! [https://t.co/JTDNIvH7E0](https://t.co/JTDNIvH7E0)
-> — General Flynn (@GenFlynn) [December 19, 2020](https://twitter.com/GenFlynn/status/1340358982452588546?ref_src=twsrc%5Etfw)
-
-
-
-川普总统的宪法律师 Jenna Ellis 转推，“自2016年选举以来，川普总统一直被诬陷、被恶意攻击。他告诉我们，他的竞选活动被监视。他说的没错，他告诉我们他没有腐败勾兑。事实证明他是对的。当他说选举被盗走了，我就相信他。”
+林伍德在推文中称，“**中共应该知道共产主义者对美国的威胁让我们有同感（和贝京一样的态度和回应）。**”
 
 
 
-> Since the 2016 election, [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) has been falsely accused, maligned, and attacked. He told us his campaign was spied on. He was right. He told us there was no collusion. He was proven right. When he says this election was rigged or stolen, I tend to believe him.
-> — Franklin Graham (@Franklin\_Graham) [December 19, 2020](https://twitter.com/Franklin_Graham/status/1340341310415319040?ref_src=twsrc%5Etfw)
+> Joey “Bribes” Biden should have never threatened to cut off aid to Israel years ago. Read Menachem Begin’s response below.
+> 
+> CCP should know we feel the same way about Communists threatening America. [pic.twitter.com/frbpjiszlE](https://t.co/frbpjiszlE)
+> — Lin Wood (@LLinWood) [December 20, 2020](https://twitter.com/LLinWood/status/1340447407591579648?ref_src=twsrc%5Etfw)
 
 
 
-新闻素材和图片来自福林将军推文，Jenna Ellis 推文
+新闻素材和图片来自林伍德律师推特
 
 
 

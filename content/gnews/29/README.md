@@ -1,37 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 一如既往的愚蠢还是假冒伪善？
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/667533/)
+## 从最高法拒绝受理选举违宪诉讼到麦康奈尔祝贺拜登当选
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/667544/)
 
-摘要：乔·拜登将《诗篇》（Psalms）念成“手掌书”（palms）[译者注：Psalms 和 palms 的英文发音相近]。
+加拿大多伦多枫叶农场 老熊
 
-【编者按】一个小小的滑稽的失误表明了几个严重的问题：他是一如既往的愚蠢还是一个假冒伪善者，也许两者都是。
-[视频来源](https://youtu.be/eNrEODVKAO0)
-Transcript (全文)：
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19175023/c-2.jpg)图片来自 WVXU
+上周美国最高法院针对德克萨斯等19个州、126名议员，以及川普总统和彭斯副总统状告佐治亚、密歇根、宾夕法尼亚和威斯康星州选举违宪的诉讼案，作出了不予受理的决定，不禁让负有正义感的人们深感吃惊和失望，用朱利安尼市长的话，他们竟然不允许举行公开听证会，这就进一步阻止了更多的民众了解真相的途径。几天后麦康奈尔更是发出了对拜登当选的祝贺，原型终于显露。
 
-And friends, seeing you as it’s Sunday and lord’s day. I thought we might have a little reading from the scripture from America’s punitive next president that self-proclaimed devout mass-going catholic Joe Biden, take it away deacon Joe and:
+这些事件的发生，正是在大选欺诈舞弊的事实越来越多地为民众了解，拜登家族丑闻持续曝光，中共间谍遍及之广、程度之深的渗透行为被揭露，拜登阵营节节败退时，这些举动明显是在企图助拜登挽颓势，不得不令人深思背后的缘由。
 
-朋友们，在周日这个上帝的日子里见到你们。 我想，我们可以从自称是虔诚的大众化天主教徒、美国应受惩罚的下一任总统乔·拜登的经文里读到一点，请看乔执事：
+魔共不可能放过多婚的赵家女婿、参议院共和党领袖麦康奈尔这个“潜质丰厚”的资源。赵家与中共的渊源由来已久，不难想象，麦康奈尔是中共深层布局的一粒棋子，是关键时候派用场的角色，虽然在一些事件作过迟缓的、不痛不痒的表态（仅仅是表态，不见行动），结合当下这个“罪恶”举动，可以断定那都是为了更深的隐藏，重要时刻的发力。
 
-Joe Biden: If we do and I’m sure we can, we can proclaim the promised with “palms” (psalm) who wrote the following words: the lord is my strength and my shield…
+深藏不露的赵家公麦康奈尔实际也在进行着布局，或奉命布局。回顾一下两个大法官尼尔·戈拉奇（Neil Gorsuch）和艾米·科尼·巴雷特（Amy Coney Barrett）的任命过程，虽然都是川普总统的提名，但是，是谁建议川普总统的？不仅是提名，在任命的过程，都有这位赵家公的影子。
 
-乔·拜登：如果我们这样做，我相信我们可以，我们可以用以下几句来称颂应许的手掌（诗篇）：主是我的力量，是我的盾牌…
+首先，在颇受争议的尼尔·戈拉奇任命中，麦康奈尔使尽浑身解数，成功地改变了参议院对大法官的任命规则，只需简单多数即可通过任命，此举被称为参议院“扣动了核按钮使尼尔·戈拉奇的确认变得简单”【1】。看上去是川普总统提名了尼尔·戈拉奇，但尼尔·戈拉奇也知道赵家公的作用。
 
-Sorry, did he just call the book of psalms the book of palms? Now I know you don’t even have to be Pope Francis to be pronounce the word psalms. Rita is such a staunch atheist and you know how to pronounce it, right? Yeah, I think she does. It’s a small hilarious slip up that has a serious point though and actually there’s several serious points behind this latest Joe Biden blooper.
+再看看大选前刚刚任命的艾米·科尼·巴雷特，谁都知道，左王老太婆露丝·巴德·金斯堡（Ruth Bader Ginsburg）法官的离世，川普总统急需补缺这个位置，又是赵家公麦康奈尔扮演了“迫不及待”的角色，令川普总统感激不已。据报道，在大法官金斯堡逝世几个小时，赵家公就与川普总统通电话，向他保证，尽管即将举行大选，参议院共和党人会毫不犹豫地填补突然的空缺，并表示，“这将是我一生中最艰难的斗争……我们必须完美地发挥这一作用。”【2】真是急川普总统所急。
 
-抱歉，他刚刚是在称圣经的诗篇为手掌书吗？现在，我知道您不必是弗朗西斯教皇就能够念诗篇。丽塔是一位坚定的无神论者，你知道如何发诗篇的音，对吗？是的，我想她知道。这是一个有严重问题的小小的滑稽的失误。实际上，最近乔·拜登新的吹牛的背后有几个重要的问题。
+说上述两个大法官是中共的棋子，为中共直接利用，无论是论点还是论据目前均缺乏说服力，但是说赵家公麦康奈尔是恶共的帮凶则不为过。几天来中外媒体有关“枕边风”赵小兰家族与中共关系的报道已是铺天盖地，这里不再赘述。单就他的那个“对拜登的祝贺”和“号召共和党人支持大选窃取者”声明来说，完全可以定性成“替拜登阵营挽败局”，“为魔共缓颓势”。在那样的关键时刻，作出这样的呼应，不是简单的认知模糊，而是在与公正作对，与良知为敌，是拜登窃国集团一员，邪共的爪牙，埋藏的深喉（或许之一）。
 
-Number one, for all Joe Baden’s claim to the mantle of religion, he is something of a false teacher. It’s not just his unfamiliarity with basic bits of scripture. I mean as a catholic, he would know that every Sunday’s mass features a responsorial psalm but the fact that the media is fawning over his faith. I mean do you really think there’s chance the guardian among other outlets would be promoting Biden’s religiosity as a good thing？
+“其实很简单，你们只需配合一下格洛弗·罗伯茨（Glover Roberts）即可，出头露面的事由他办……”，（罗伯茨，9大法官之一，在爱泼斯坦欢乐岛有身影【3】，反川普总统的急先锋），面对至少有提携之恩麦康奈尔的“简单要求”，两位法官们附和一下不是不可能。这不是笔者在猜测，而是怀疑有更深层的利益勾兑，否则很难解释，面对众多的铁一般的实锤证据，他们竟然连个公开听证会的机会都否决，什么因素能使最高法院的大法官们变得如此迷茫？认知如此混沌？
 
-第一，对于所有乔·拜登宣称的宗教信仰而言，他不是个真正的老师。 这不仅是他不熟悉圣经的基本知识。 我的意思是说，作为一个天主教徒，他会知道每个星期天的弥撒都带有赞美诗篇，但事实是，媒体讨好他的信仰。 我的意思是说，您真的认为《卫报》和其他机构推崇拜登的宗教信仰是一件好事吗？
+不敢想象，堕落的美国，若不是爆料革命，真的完了！
 
-If they thought for a second, he might actually believe it or if he might let inform his views on anything from abortion to modern liberalism’s unending assault on the family? Not a chance! But the second point is this for all this stumbles, Joe Biden is just as dopey as ever. Remember this is the witness protection candidate, the democrats, the media and the Washington swamp hold across the line against all odds so that they could use him as a stalking horse to get all the old failed establishment banned back together.
+我们期待着正义的回归，公正的早一天到来。
 
-如果他们想一下，他可能会真正相信它，或者如果他愿意就从堕胎到现代自由主义无休止的对家庭的攻击等任何事情发表自己的见解？没机会！而第二个重点是，在这一切的蹒跚中，乔·拜登还是一如既往的愚蠢。请记住，这是证人保护候选人，民主党人、媒体和华盛顿沼泽越线反对所有可能性，以确保他们可以利用他作为掩护性候选人，让所有失败的、被禁止的老机构团结到一起。
+参考链接：
 
-听写 & 翻译：【JennyL】校对:【Cyndi】字幕：【绒绒兔】新闻线索：【John】
+【1】[https://www.npr.org/2017/04/06/522847700/senate-pulls-nuclear-trigger-to-ease-gorsuch-confirmation](https://www.npr.org/2017/04/06/522847700/senate-pulls-nuclear-trigger-to-ease-gorsuch-confirmation)
 
-玫瑰园小队出品
+【2】https://www.nytimes.com/2020/10/27/us/mcconnell-barrett-confirmation.html
 
-1+
+【3】https://twitter.com/BryanMace5/status/1339820034420592641
+
+0
