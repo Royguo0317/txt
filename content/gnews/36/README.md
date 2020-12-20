@@ -1,27 +1,121 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《爆料革命发起人—郭文贵视频精品荟萃》第二集
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/669148/)
+## 《God Bless the U.S.A. 天佑美国!》歌词翻译
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/669169/)
 
-撰稿：澳喜Cindy
+翻译者：Lucky Star Maggie
 
-审稿/视频剪辑指导：光耀华夏
 
-无知和冷漠就是灾难的根源，CCP冠状病毒比这个雪崩还要恐怖。转眼CCP病毒肆虐全球已经快一年了，似乎没有转好的迹象。更验证了郭先生在2020年2月就用情报警告全世界人民：CCP病毒是中共的生化武器。它不是一般意义上的病毒，它是被人为制造出来的！
-盖特视频
-2017年10月5日这个新闻发布会如果能引起重视，今天的人类就没有CCP冠状病毒这个大劫难！天下什么药都有就是没有后悔药！然而又有多少人因此而醒悟过来呢？郭先生三年多的苦口婆心不厌其烦地揭露CCP的假丑恶，用无数冒着生命危险取得的情报来佐证，还是不被重视！
-Youtube视频
-救己就是救人！很有哲理，如果没有你果断地远离危险境地，你就会和所有人一起被埋葬！眼下的国内生态环境就如出一辙，只要你还在犹豫彷徨，不果断采取行动，那个火苗就会烧到你自己了!
-盖特视频
-马云、吴征要帮美国人灭疫？纯属忽悠！他们眼中的傻白甜如今还像以前那样轻信他们吗？
-GTV视频
-澳喜文章: [https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+视频出处：[Home Free – God Bless the U.S.A. (featuring Lee Greenwood and The United States Air Force Band)](https://www.youtube.com/watch?v=SrMftm6Km3g&amp;feature=youtu.be)
+**歌词翻译：**
 
-欢迎加入澳喜农场：
-[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+If tomorrow all the things were gone
+如果明天我将丧失我所有的一切
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040800/IMG_1836-1.jpg)
+I’d work for all my life
+我将再次拼搏
 
+And I had to start again With just my children and my wife
+不得不和我的妻儿一道重新开始
+
+I’d thank my lucky stars To be living here today
+我会感激我的幸运星今天仍飘扬在这里
+
+‘Cause the flag still stands for freedom
+因为我们的国旗依旧代表着自由
+
+And they can’t take that away
+他们不能夺走我们的自由
+
+And I’m proud to be an American
+我为我是一个美国人而骄傲
+
+Where at least I know I’m free
+在这里至少我知道我是自由的
+
+And I won’t forget the men who died Who gave that right to me
+我不会忘记那些为我们争取自由而牺牲的人们
+
+And I gladly stand up next to you
+今天我愿意站起来和你肩并肩
+
+And defend her still today
+再次为保卫我们自由的国家而战斗
+
+‘Cause there ain’t no doubt I love this land
+毫无疑问因为我深深地爱着这片土地
+
+God Bless the U.S.A.
+天佑美国
+
+From the lakes of Minnesota
+从明苏尼达州的湖泊
+
+To the hills of Tennessee
+到田纳西州的小山
+
+Across the plains of Texas
+横越德克萨斯州的平原
+
+From sea to shining sea
+从大西洋到闪耀的太平洋（源自“美丽美国”的诗）
+
+From Detroit down to Houston
+从底特律到休斯顿
+
+And New York to L.A.
+纽约到洛杉矶 （意指美国全境）
+
+Where there’s pride in every American heart
+所到之处每个美国人的心中都充满自豪
+
+And it’s time we stand and say that
+在这个时刻，我们站起来宣告，
+
+I’m proud to be an American
+我为我是一个美国人而骄傲
+
+Where at least I know I’m free
+在这片土地上至少我知道我是自由的
+
+And I won’t forget the men who died Who gave that right to me
+我不会忘记那些为争取我们的自由牺牲的人们
+
+And I gladly stand up next to you
+我愿意站起来和你肩并肩
+
+And defend her still today
+再次为保卫我们自由的国度而战斗
+
+‘Cause there ain’t no doubt I love this land
+毫无疑问因为我深深地爱着这片土地
+
+God Bless the U.S.A.
+天佑美国
+
+God Bless this country
+天佑这个国家
+
+And I’m proud to be an American
+我为我是一个美国人而骄傲
+
+Where at least I know I’m free
+在这里至少我知道我是自由的
+
+And I won’t forget the men who died Who gave that right to me
+我不会忘记那些为争取我们的自由牺牲的人们
+
+And I gladly stand up next to you
+我愿意站起来和你肩并肩
+
+And defend her still today
+再次为保卫我们自由的国家而战斗
+
+‘Cause there ain’t no doubt I love this land
+毫无疑问因为我深深地爱着这片土地
+
+God Bless the U.S.A.
+天佑美国
 
 0

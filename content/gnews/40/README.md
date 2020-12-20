@@ -1,27 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】全球第二大羟氯喹制造商台湾旭富制药工厂发生爆炸
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/669013/)
+## 《爆料革命发起人—郭文贵视频精品荟萃》第二集
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/669148/)
 
-作者：香草山写作组  程万里 校对/发稿：飞虹
+撰稿：澳喜Cindy
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29231938/logo-3-1-1.jpg)
+审稿/视频剪辑指导：光耀华夏
+
+无知和冷漠就是灾难的根源，CCP冠状病毒比这个雪崩还要恐怖。转眼CCP病毒肆虐全球已经快一年了，似乎没有转好的迹象。更验证了郭先生在2020年2月就用情报警告全世界人民：CCP病毒是中共的生化武器。它不是一般意义上的病毒，它是被人为制造出来的！
+盖特视频
+2017年10月5日这个新闻发布会如果能引起重视，今天的人类就没有CCP冠状病毒这个大劫难！天下什么药都有就是没有后悔药！然而又有多少人因此而醒悟过来呢？郭先生三年多的苦口婆心不厌其烦地揭露CCP的假丑恶，用无数冒着生命危险取得的情报来佐证，还是不被重视！
+Youtube视频
+救己就是救人！很有哲理，如果没有你果断地远离危险境地，你就会和所有人一起被埋葬！眼下的国内生态环境就如出一辙，只要你还在犹豫彷徨，不果断采取行动，那个火苗就会烧到你自己了!
+盖特视频
+马云、吴征要帮美国人灭疫？纯属忽悠！他们眼中的傻白甜如今还像以前那样轻信他们吗？
+GTV视频
+澳喜文章: [https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+
+欢迎加入澳喜农场：
+[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040800/IMG_1836-1.jpg)
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20043138/16-1.png)
-据台湾多家媒体报道，台湾时间2020年12月20日中午，台湾旭富制药工厂发生爆炸，据报道其5层楼高的厂房已全面陷入火海，黑烟更是直冲天际，有2名员工受伤，其中1名全身90％三度烫伤，被紧急送医。
-
-台湾旭富制药科技公司时全球第二大羟氯喹原料药的生产厂商，羟氯喹对CCP病毒有治疗和预防效果。今年4月台湾蔡英文总统还曾到旭富制药参访并发推文“启动奎宁（羟氯喹）自制储备计划，守护国人健康！”今日惊闻爆炸，不得不令人心生疑虑。
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-
-
-1+
+0
