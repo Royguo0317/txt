@@ -1,25 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯: 美国校园里的中国共产党
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/668834/)
+## 文贵说｜系列图片连载（八十一）
+` GM98` [轉載自GNews](https://gnews.org/zh-hans/669297/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040714/1220.png)
-从蓬佩奥国务卿2020年12月9日在佐治亚理工学院的演讲可以得出出一个结论：中共——这个邪恶独裁政权是美国和全世界的威胁，让我们站起来捍卫国家安全，抵抗中共吧！
+## 561.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20073649/c37c9299e5b8d71f.png)
+在民主的路上永远没有终结，没有结果，只有过程。这个过程就要享受，你不舒服就是你想要的，因为它接近真相，它能基本平衡，它是基本公平，这就叫民主。
 
-从蓬佩奥国务卿举的几个校园案例中， 不难看出中共为了窃取各行各业各类技术, 使出浑身解数——威逼、利诱，恐吓、招募美国高校的人才为中共集权所使用（特别是无辜的华裔); 不惜一切代价地让美国高校自我审查, 压制言论自由, 让批评中共的人禁言.
+——郭文贵先生 2020年8月22日
 
-在此，希望海外华人看清楚中共的险恶用心，替中共卖命，换不来尊重与地位，却会让你的子孙被世界唾弃。
+## 562.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20073941/2a5cac3c4c9288a9.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20073735/s32.jpg)
+人世间永远都是有规则的。
 
-希望中共党员们看清楚中共卸磨杀驴的嘴脸，给中共做事，结局你懂的，回头是岸，做污点证人也好过王建，不是么。
+——郭文贵先生 2020年8月23日
 
-希望中共国墙内的人们看清楚中共的邪恶政权，在安全的情况下， 保存好各种罪证。
+## 563.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20073821/s31.jpg)
+把我们的G-News、G-TV、G系列做强做大，这是我们目前必须要有的基础；我们绝对要记住，不要寄希望于西方媒体给我们说话，是不可能的，只能寄希望于我们自己的媒体，我们强大了才有话语权。
 
-[援引](https://www.state.gov/the-chinese-communist-party-on-the-american-campus/)
+——郭文贵先生 2020年8月22日
 
-本文作者：一切心皆不可得！
-审核校对：玫瑰天空
-上传排版：糖果儿
+## 564.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20073855/s33.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20074112/32f935ba027d75cc.png)
+你们一定要做好思想准备！一定更猛烈的、更坏的时刻还没有到来。全人类都没有人准备好！
+
+——郭文贵先生 2020年8月23日
+
+## 565.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20074029/2bc2e99cf36318e4.png)
+富裕奢华的生活会让人失去一切的，包括你一个做人的本能。
+
+——郭文贵先生 2020年8月23日
+
+## 566.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20074259/2020-9-27V1-01-01-01-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20074332/6f5a50b9165e48ac.png)
+当你想贪的时候，就像我渴了喝杯水行，你想把大海给喝干了，你就会被大海给淹死。你永远别想着把海能喝干，你喝不干的。
+
+——郭文贵先生 2020年8月23日
+
+## 567.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20074426/45babe3b7737a43e.png)
+希望战友们在这个关键时刻，一定要每天除了你正常的休息、在安全的情况下，一定要用脑子、用手抓住这个历史的时刻，把这个司法部的司法文件，每个字、每个故事的解读和班农连在一起，和爆料革命联系在一起，发到全世界的媒体，发到全世界有影响力的人的手中。
+
+——郭文贵先生 2020年8月22日
 
 0
