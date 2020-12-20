@@ -1,41 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大苛政猛于中共病毒
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/668089/)
+## 专家解释反暴乱法
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/668192/)
 
-*加拿大多伦多枫叶农场 文锦*
+翻译：康州盘古农场 – Melody太阳的旋律
+校对： 康州盘古农场 – Mike Li
+审核： 康州盘古农场 –文韵
 
-*校对 小鸥 上传 WJ*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19223804/COVID-19-Coronavirus-fed.jpg)图片来源： THE CANADIAN PRESS
-据官方数据，加拿大感染中共病毒人数已超过五十万人，疫情呈蔓延趋势。在估算中共病毒的死亡人数时，政客和非选举上任的卫生官追随中共走狗WHO不遗余力地制作了令人恐惧的预测或模型。但是，在估计封锁令导致的死亡人数时，他们并未向公众提供任何模型, 而且抹黑救命良药羟氯喹。
+一些共和党立法者者和民间团体表示川普总统应该援用1807年的反暴乱法（Insurrection Act of 1807）。
 
-大量数据表明：孤独对健康不利、隔离有害健康、 隔离导致的虐待增加、网络视频交流无法维持健康的关系、隔离易导致酗酒、 缺乏运动有损健康、封锁令导致的贫穷对健康有害、抑郁、焦虑对健康不利、癌症延迟诊断对健康不利、缺乏拥抱和其他身体接触对健康不利……
+如果暴乱使通过普通司法程序执行美国法律变得不可能，这项法律准许总统派遣军队去镇压国内的暴乱。
 
-还有因取消和延迟20万例外科手术、超过50万例必要的核磁共振和CT扫描以诊断癌症和其他病症而导致的加拿大人死亡，以及因封锁令而自杀和药物过量导致的死亡增加造成了。
+这项法律和戒严法不一样，在戒严法中，宪法规定的一些公民自由可能会被中止。
 
-封锁令使日常有益健康的活动变成了非法或几乎不可能做的事：唱歌、社交、与朋友交往、参加团队运动、观看舞台上的现场表演以及观看现场体育赛事……
+一位法学教授之前解释说，《反暴乱法》是为了执行法律，不是取代法律。
 
-本周四下午阿省卡尔加里的警察以封锁令为由粗暴地对待滑冰的年轻人。冰球之国加拿大的人想破脑袋也无法相信有一天，滑冰者竟被警察按在冰面上逮捕，但这就是残酷的现实。
+《宪法研究》的作者保罗·恩格尔（Paul Engel）对这个法案做了更多解释。
 
-是否有人意识到封锁令的罚款和监禁，令人们对有益健康的活动望而却步，但政客及公务员收入完全不受影响，甚至还因罚款及采购疫苗而创收？
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16192630/En_JL9hXEAALEwT-1.jpg)图片来源：Twitter
-占加拿大人口三分之一的安省，12月14日副卫生官芭芭拉·雅菲（Barbara Yaffe）在中共病毒疫情简报会之前无意流露出“我只是说他们写下的所有内容” 。对此，安省卫生局首席医疗官大卫-威廉姆斯（ David Williams）回应道，”很有趣，我也一样。”官僚们只是服从命令、享受特权和高薪，与因其政令造成严重影响甚至伤害的老百姓形成了深深的鸿沟。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19220414/Toronto-Sun.jpg)图片来源： Toronto Sun
-加拿大政客以违反宪法规定的“挽救生命”为目标，侵犯《宪法》规定的迁徙、旅行结社、集会和崇拜自由。如果他们真地认真对待、挽救生命，《宪法》要求他们做两件事。第一：以证据证明封锁令已挽救了生命——投机和猜想不能替代证据和科学。第二：诚实而一致地努力，找出有多少加拿大人被封锁令所伤害或杀死，以及封锁令对公共卫生造成危害的确切性质和程度。
+恩格尔（Engel）说：“这不是戒严法。这是联邦政府如何协助那些有叛乱、家庭暴力、无法制定自己的法律来执行自己的法律的州，或者由于州内发生了无论是叛乱还是其他骚乱的事情，导致联邦政府无法执行自己的法律的情况。”
 
-郭文贵先生在2020年4月4日就告诫“这场病情最大的灾难，就是经济灾难造成的伤害，远远要大于病情；政治灾难造成的对社会人的伤害，远远大于经济伤害和病情；最后是次生灾难、人道灾难，就是要大过政治灾难、经济灾难和病情。”
+川普总统在乔治·弗洛伊德（George Floyd）去世所引发动乱，联邦大楼周围发生骚乱时，他考虑过援用该法案。
 
-加拿大本地人渐渐意识到问题，但积重难返。希望战友，还有更多善良的人，不要染上病毒。没染上病毒的还不要被饿死，不要被一波一波的经济灾难、政治灾难和次生灾难给消灭。
+但恩格尔（Engel）说，就这次选举而言，如果各州在选举前就改变了投票法或做了鼓励非法投票等行为，就违反了自己的宪法。
 
-参考链接：
+恩格尔（Engel）说：”我们正在处理很多动荡。但我不知道任何州有任何行为使执行美国的法律变得不切实际。他们不是在执行自己的法律。但《反暴乱法》要做的是执行美国的法律，而不是个别州的法律。”
 
-[Ontario top health officials caught on hot mic prior to COVID briefing: ‘I just say whatever they write down for me’](https://www.lifesitenews.com/news/ontario-top-health-officials-caught-on-hot-mic-prior-to-covid-briefing-i-just-say-whatever-they-write-down-for-me)
+他说，相反，处理潜在欺诈行为的大部分权力掌握在每个州的公民手中。
 
-[Video of arrest at Calgary rink results in accusations of police ‘going overboard’](https://globalnews.ca/news/7531847/video-arrest-calgary-rink-police/)
+恩格尔（Engel）说：“正如我所说，这不是由国会决定的。而且让这些州解决他们的问题也不是由联邦政府决定的。最终还是要由这些州的人民来决定。”来自NTD news
 
-[Chief medical officers are a bigger danger to Canadians’ health than COVID](https://thepostmillennial.com/chief-medical-officers-are-a-bigger-danger-to-canadians-health-than-covid)
+来自 彭妮·周 （PENNY ZHOU ）
 
-[郭文贵2020年4月4日 20200404 CCP病毒让人类陷入巨大灾难](https://gwins.org/cn/milesguo/1140.html)
+发布时间：2020年12月19日  更新：2020年12月19日
 
-2+
+原文链接：
+
+[https://www.theepochtimes.com/scholar-explains-insurrection-act\_3625340.html](https://www.theepochtimes.com/scholar-explains-insurrection-act_3625340.html)
+
+0

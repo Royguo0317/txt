@@ -1,55 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 特朗普称选举期间投票机可能已被SolarWinds黑客入侵
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/668803/)
+## 针对苹果公司提出的第一修订本中诉讼理由的抗辩,原告提出异议之要点及法律依据备忘录【法庭文件全文翻译】
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/668810/)
 
-翻译兼撰稿：Jony（8 Mile）
+## 【[法庭文件英文原文PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040643/2-Pham-v.-Apple_Plaintiff-Opp-MTD-2-10-14.pdf)】【[中文全文翻译PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040715/v2.0-Tracy-Pham-v.-Apple_2nd-Memo.pdf)】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040803/PDFtoJPG.me-01-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040809/PDFtoJPG.me-02-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040811/PDFtoJPG.me-03-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040814/PDFtoJPG.me-04-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040819/PDFtoJPG.me-05-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040821/PDFtoJPG.me-06-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040825/PDFtoJPG.me-07-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040827/PDFtoJPG.me-08-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040830/PDFtoJPG.me-09-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040939/PDFtoJPG.me-10-1-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040837/PDFtoJPG.me-11-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040839/PDFtoJPG.me-12-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040844/PDFtoJPG.me-13-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040848/PDFtoJPG.me-14-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040851/PDFtoJPG.me-15-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040854/PDFtoJPG.me-16-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20041006/PDFtoJPG.me-17-scaled.jpg)
+**前员工起诉苹果公司的进展情况：**
 
-审稿：Jenny
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20035835/IMG_5415-1.jpg)网络截图
-美国总统川普周六表示，投票机可能在11月大选期间被黑客攻击了。
+1. [前员工起诉苹果公司: 因政治派别不同而遭受其歧视, 报复, 骚扰以及解雇等不当行为](https://gnews.org/zh-hans/646660/)
+2. [被告苹果公司要求删除申诉的动议要点和授权备忘录](https://gnews.org/zh-hans/646888/)
+3. [原告提出异议并请求法院驳回被告苹果公司的全部罢诉动议](https://gnews.org/zh-hans/646967/)
+4. [法庭驳回被告苹果公司对原告《民事诉讼法》中的第一和第二 项诉讼理由提出的抗辩](https://gnews.org/zh-hans/647110/)
+5. [针对苹果公司提出的抗辩,原告提出异议之要点及法律依据备忘录](https://gnews.org/zh-hans/658360/)
+6. [针对苹果公司提出的第一修订本中诉讼理由的抗辩,原告提出异议之要点及法律依据备忘录](https://gnews.org/zh-hans/668810/)
 
-“在选举期间，我们可笑的投票机也可能受到打击，”川普在Twitter上写道。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20035142/IMG_5416.jpg)
-总统显然指的是SolarWinds黑客事件，该事件导致一些政府机构受到影响。
 
-他说，这次黑客事件并没有报道的那么大。
-
-“网络黑客在假新闻媒体中的影响力远远大于实际情况。”他写道。”我已经得到了详尽的简报，一切都在控制之中。”
-
-但是，他批评媒体忽视了中共很可能是黑客事件的真正起源。
-
-CISA和多米尼克投票系统没有立即对《大纪元时报》要求评论的请求进行回应。
-
-网络安全和基础设施安全局（CISA）于12月13日发布紧急指令，宣布涉及SolarWinds Orion产品的漏洞正被一些恶意黑客利用。
-
-“SolarWinds Orion网络管理产品的漏洞对联邦网络的安全构成了难以接受的风险，”CISA代理局长Brandon Wales在一份声明中说。
-
-SolarWinds在最近的一份文件中表示，多达1.8万名客户可能使用了有漏洞的软件。该公司忽视了其软件允许简单密码进行访问的警告。
-
-SolarWinds表示，非Orion产品似乎没有受到影响。
-
-根据一份SolarWinds线下的部分客户名单，SolarWinds的约30万客户中包括政府机构和美国军方的所有五个部门。能源部、商务部、微软、亚利桑那州皮马县政府、考克斯通讯公司等机构已确认其系统受到近期安全漏洞的影响。
-
-11月大选后饱受争议的Dominion Voting Systems公司CEO周二表示，该公司从未使用过SolarWinds Orion平台，该平台被专家认为早在去年就被黑客攻破。
-
-“我们没有使用13日国土安全部报告中提到的SolarWinds Orion软件包，”首席执行官John Poulos通过视频链接告诉密歇根州的议员们。
-
-不过，《大纪元时报》捕捉到的一张Dominion网页截图显示，Dominion确实使用了SolarWinds技术。Dominion后来修改了该网页，删除了任何提及SolarWinds的内容，但SolarWinds网站仍在该网页的源代码中。
-
-Poulos表示，Dominion从没有使用过Orion平台。
-
-“Dominion Voting Systems现在没有，过去也没有使用过SolarWinds Orion平台，该平台在2020年12月13日国土安全部（DHS）紧急指令（紧急指令21-01）中被提及，”Dominion 投票系统发言人在给《大纪元时报》的一份声明中说。
-
-简评：主流媒体在这次有关大选投票系统的安全漏洞和被黑客利用的报道中，避重就轻，试图弱化中共在背后扮演的真实角色，从而引导舆论并掩盖中共操控美国总统大选的真相。
-
-Dominion投票系统多次掩盖其产品的漏洞，缺陷和危害美国国家安全的本质。这不经让人联想，Dominion的幕后推手和中共的密切关系。
-
-（本文纯属个人观点）
-
-相关文章链接： [https://www.theepochtimes.com/trump-says-voting-machines-may-have-been-breached-by-solarwinds-hack-during-election\_3625553.html](https://www.theepochtimes.com/trump-says-voting-machines-may-have-been-breached-by-solarwinds-hack-during-election_3625553.html)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18041919/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872.jpg)
-
+#### **By【秘密翻译组 G-Translators】**
 
 0

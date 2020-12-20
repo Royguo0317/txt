@@ -1,23 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中芯国际“内讧”爆发，100亿市值一天蒸发
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/668234/)
+## 【川普总统推文2020】-经济刺激法案
+` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/668336/)
 
-撰稿: 东南
+> “国会为什么不给我们的人民一个经济刺激法案？这不是他们的错，是中国的错。去完成它，给人们更多的钱直接消费。”
 
-审稿: Runaway  2020年12月20日
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20000938/unnamed-2.png)图片摘自网络
-12月16日早间，中芯国际A股开盘大跌，同时发布关于其执行董事及联合首席执行官梁孟松有可能辞任的公告。公告显示，中芯国际已知悉梁孟松的有条件辞任意愿，目前中芯国际正积极与梁核实其真辞任之意愿。受此消息影响，中芯国际A股股价最多下跌近10%，最终报收55.2元/股 跌幅5.53%。与此同时，公司港股暂停交易。同时发布关于其执行董事及联合首席执行官梁孟松有可能辞任的公。
 
-就在15日中芯国际召开临时董事会，宣布蒋尚义正式加盟中芯国际，任董事会副董事长、第二类执行董事及战略委员会成员，两位联席CEO梁孟松、赵海军直接向蒋尚义汇报。蒋尚义曾于2016年12月20日至2019年6月21日担任中芯国际独立非执行董事，加入中芯国际，蒋尚义算不上完全的“新人”。然而，正是蒋尚义的加入，使得梁孟松突然提出离职。
 
-但紧跟爆料革命消息的战友知道，发生这种情况不得不说到上月美国众议院通过了《外国公司问责法》，这阻止一些包括在中芯国际在内的中企在美交易所上市。该法案将对在美国交易所上市的中国公司施加限制。我们看看上月华大妈的反应就知道，这绝对是一个对中共伤及金融命脉的法案。她回答记者说：我想你刚才提到的这个问题再次的表明，美国对中国的公司采取了歧视性的政策，是对中国企业进行政治打压。
 
-正义力量的步步进逼，使得从中兴到华为、从大疆到海康威视的党产面临摧毁式的收割，现在仅存的中芯国际也紧随其中，一个个钱袋子被蚕食殆尽。中共用金钱来维系的体制，被这番制裁后还能够再维系多久？要知道这还只是个开始。
+> Why isn’t Congress giving our people a Stimulus Bill? It wasn’t their fault, it was the fault of China. GET IT DONE, and give them more money in direct payments.
+> — Donald J. Trump (@realDonaldTrump) [December 20, 2020](https://twitter.com/realDonaldTrump/status/1340527057151930369?ref_src=twsrc%5Etfw)
 
-（本文纯属个人观点）
 
-[澳喜文章](https://gnews.org/zh-hans/author/aujenny/)  [欢迎加入澳喜农场](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18041919/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872.jpg)
-2+
+
+新闻来源 川普推文
+
+图片来源 Forbes
+
+1+
