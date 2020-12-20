@@ -1,25 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【文心雕龙】辉瑞制药的疫苗，是黑暗势力和CCP勾结的结果
-` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/666863/)
+## 【文心雕龙】“大胡子医生”给川普总统发公开信，公布有效新冠治疗方案
+` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/667001/)
 
-作者：美国纽约七星会农场｜BOLU文龍
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19130105/%E6%96%87%E5%BF%83%E9%9B%95%E9%BE%992.jpg)
-在12月10日的直播中，郭文贵先生称辉瑞公司的所谓疫苗：“是黑暗势力与CCP勾结的结果，并很有可能造成此次疫情，也就是CCP病毒的次生灾害。”
+作者：美国纽约七星会农场｜Bolu文龍
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19141906/%E6%96%87%E5%BF%83%E9%9B%95%E9%BE%993-copy.jpg)
+不久前，美国犹太裔医生弗拉基米尔·泽连科Vladimir Zelenko 医生公布了一封他写给川普总统的公开信，呼吁政府将他的临床经验用于全国性预防和治疗，并公布了他的新冠病毒临床治疗方案。
 
-美国跨国制药巨头辉瑞 Pfizer注资德国医药公司BioNTech，近期联合公布了两家公司合作研制的新冠疫苗，自称有效率高达90%！疫情之下百业衰败，此消息令全球相关股票市场大涨，华尔街赚的盘满钵满!
+新冠疫情全球爆发以来，泽连科医生因持续坚持使用羟氯喹和锌治疗患者而获得关注，很多人特别是爆料革命战友都亲切的称呼他为“大胡子医生”。他刚刚出版了与哈佛大学及耶鲁医学院同仁合著的有关该项治疗过程的新书，书中详细记载了治疗COVID-19患者的经验，他们在2020年3月份首次使用羟氯喹和锌治疗了350例患者，至今100％成功治愈！
 
-众所周知，疫苗只能部分或全部应对已知病毒，而对于未知或不断变异中的病毒，想要短时间内得到有效率如此之高的疫苗是不可能的！况且辉瑞疫苗所称的90%有效率远远高于美国食品药品监督管理局（FDA）对上市疫苗有效率50%的要求，即使是成熟的流感疫苗目前也只有70%左右的有效率。
+泽连科医生在信中还说道：“这是（病毒对人类的）第三次世界大战！我们不能像在和平时期那样进行研究和运作，在我们等待的过程中将有数百万人死亡，经济将崩溃！” 我们一并将泽连科医生的这封公开信及的详细预防和治疗方案中文版链接奉上分享。
 
-## 结语：
+1.泽连科医生给川普总统的公开信：
 
-那辉瑞公司背后的资本势力为什么要如此着急的推出所谓有效疫苗并应用呢？一来可以欺骗处于中共病毒恐惧下的全球民众，蒙蔽并收割全球资本股市的主要投资者，也就是各国中产阶级。二来可以间接助力他们所支持的政治势力，谋求自身利益的最大化和长久化，即使疫苗无效或发生次生灾难，届时也可以将责任推到川普内阁身上，这其实跟CCP制造并释放病毒的目的很多已经不谋而合了。
+[https://www.chinasona.org/Thiaoouba/Zelenko-Trump.html](https://www.chinasona.org/Thiaoouba/Zelenko-Trump.html)
 
-数据来源参考:
+2. 泽连科医生处方：
 
-1.[https://www.dw.com/zh/%E8%B0%81%E7%A0%94%E5%8F%91%E4%BA%86bnt162%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97/a-55578952](https://www.dw.com/zh/%E8%B0%81%E7%A0%94%E5%8F%91%E4%BA%86bnt162%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97/a-55578952)
+[https://www.chinasona.org/Thiaoouba/coronavirus-treatment-plan-cn.html](https://www.chinasona.org/Thiaoouba/coronavirus-treatment-plan-cn.html)
 
-2.[https://news.un.org/zh/story/2020/11/1072332](https://news.un.org/zh/story/2020/11/1072332)
+3. 泽连科医生的预防方案：
 
+[https://www.chinasona.org/Thiaoouba/coronavirus-prophylaxis-plan-cn.html](https://www.chinasona.org/Thiaoouba/coronavirus-prophylaxis-plan-cn.html)
+
+更多精彩内容请关注：
+
+- [美国纽约七星会农场（为子孙爱七哥）官推](https://twitter.com/wzsaqg)
+- [美国纽约七星会农场（为子孙爱七哥）GTV](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
+- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19044815/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-2.jpg)
 0

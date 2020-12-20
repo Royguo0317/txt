@@ -1,34 +1,81 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 勾画蓝图
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/666991/)
+## 【林伍德律师推文1219】-统计分析Dominion/Hart机造假
+` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/667086/)
 
-```
-作者: Tito
-校对/发稿人: Ting Guo
-```
+12月19日林伍德律师转推了一则对针对 Dominion 和 Har 投票机在大选中使用数据的统计分析报告。读过报告后的结论，如林伍德律师所说，
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09044527/Unknown-7.jpeg)
-感慨最近凤凰农场的事情，我做为一名爆料革命的参与者，思考到底能为爆料革命做些什么。
+“川普总统压倒性赢得连任。”
 
-中国人做事的风格总是看谁好谁坏谁有问题，其实在我看来这都是不重要的，我现在认为目前农场运营最重要的是五条；一，有没有程序正义，有没有制定好做事情的固定程序，然后认真遵守。二，有没有限制别人的人身言论信仰等自由。三，战友们权益能否得到保障。四，我们的信息获取有没有被人阻断和篡改。五，自己对信仰的贯彻程度和贯彻方式。
+他同时说，“稳住。耐心。祈祷。”
 
-以上五条是我目前能总结出来的，如果五条都没有做到，哪里都会不安生，农场也是一样。农场保护战友，如何保护？最好的方法就是能够实现上述五条，不要问谁好谁坏，好人做坏事儿比比皆是，如果能够把坏人限制在程序正义的框架下，那他即使有坏也使不出来。我们每个战友扪心自问，我们自己是不是都是圣人？答案当然都不是。我们都有七情六欲，都吃五谷杂粮，都会愤怒，都会失常，男的都爱聊美女，女的都想看帅哥，都是俗人，不是拜了佛信了道就高大上起来了，高大上的是我们如何能够通过爆料革命塑造属于自己的法治，民主，自由。
 
-我们最大的问题，表面看起来是CCP，其实是我们自己本身。我们看，川普被CCP逼到这个份儿上，还能依然坚持自己的信仰，难能可贵。可问题是，我们爆料革命的战友都已经看美国大选到这个地步了，依然没想过法治的重要性，程序正义的重要性，规则的重要性，还在以谁和谁的关系好为基础做事，不是你给我穿小鞋，就是我给你使绊子。就是因为这种心态，凤凰农场的问题才会如此严重。
 
-爆料革命三年了，文贵先生喊了三年的依法灭共，到了今天，还能有人喊谁有问题，重要的不是谁有问题，是建立一个有效体系能让有问题的人加入并出力，能让有问题的人有坏使不出来。不是天天抓伪类，伪类是抓不完的，抓了旧的，还有新的，打了刚出的，又有叛变的，弄了叛变的，还有被洗脑的，主战场不灭CCP，伪类是抓不完的，而且即使共产党倒台，在未来很长一段时间内，懵懂国人走旧路将是常态。
+> Good Saturday morning!
+> 
+> Today is a good day to visit [@KanekoaTheGreat](https://twitter.com/KanekoaTheGreat?ref_src=twsrc%5Etfw) home page & read the thread beginning with this tweet. [@KanekoaTheGreat](https://twitter.com/KanekoaTheGreat?ref_src=twsrc%5Etfw) is a truth-giver. Read carefully.[@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) won re-election by a landslide.
+> 
+> Steady. Patience. Pray. [https://t.co/6zgL3YtY0s](https://t.co/6zgL3YtY0s)
+> — Lin Wood (@LLinWood) [December 19, 2020](https://twitter.com/LLinWood/status/1340328875532967938?ref_src=twsrc%5Etfw)
 
-我做了很多错事，心态也是很过激，到如今我最多思考的是考虑如何让自己拥有法治体系思维，有民主思维，有自由思维，如何变得有分辨能力，如何真实的去追求自己的信仰。
 
-现在爆料革命中，就是没人关注如何建立这个体系，这个未来的法治民主自由体系，都去关注真相和美国总统选举谁赢谁输了。就算你看美国总统选举，有没有注意到整个过程中出现各种派别之间权力的制衡。可以说，这次美国大选，制衡一直都有，就算谁有优势，谁有劣势，依然互相牵制着对方。共产党最大的失败，引起它倒台的真正原因，是它总想把规则废掉，总想搞无法无天的那一套，就算是沼泽大佬们，也都是要秩序的。这次美国总统的选举，参选双方每一次的攻守，都是要有实锤证据的。没有的，就立刻会出现明显的劣势，这个不是媒体喊话就是真实了，媒体撒谎的代价是巨大的，媒体就算是第四权，可是如果它忽略了真相的意义，和人民对于真相的渴求，也会被洗牌。
 
-我在想，我们哪天也能出现这样一种状况，选个农场主也像美国大选这么激烈，而且无论多激烈都要看合不合程序，就问竞选的农场主提出的农场发展议案，是否能够符合一段时期内，农场的发展方向，而且能不能坚定的执行，而且要看参选人合不合标准，选农场主的程序是什么样的。
+笔者分享统计分析的主要推文如下。
 
-现在爆料革命一个使命是传播真相，另一个使命是创造出一种体系，能够限制国人的贪婪。我们可以根据依法灭共的过程为蓝图，以美国大选的程序为蓝图，以美国的法律为蓝图，勾画出我们新中国联邦，未来自己的政治框架。
+对美国3000多个县进行的无差别分析显示，乔-拜登在使用多米尼克投票系统的县里多得了5.6%的选票。”如果利用计算机的网络系统来欺诈性地影响选票统计……结果会是这样的。”
 
-**本文章仅代表战友个人观点**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19034520/image0-121.jpg)*[**https://discord.gg/77fCxw5mFv**](https://discord.gg/77fCxw5mFv)
-[**https://**](https://https//discord.gg/77fCxw5mFv)[**gab.com/himalaya\_italy**](https://gab.com/himalaya_italy)*
+2/无论县里的多数党派，也无论城市、郊区或农村地区的人口统计，都能观察到这种Dominion的优势。拜登在民主党州超过预期表现的量，与他在支持川普的县所表现有相同量值。
+
+3/ 该分析并不是针对单一或少数几个县。相反，这些信息使用了美国所有县的数据，以查看是否存在涉及投票机类型和选票总数上有明显的普遍模式。
+
+4/在第一张图中，我们看到拜登2020年的实际选举结果。蓝线是我们的中心预测线。一半县应该在蓝线之上，一半县在蓝线之下。这一点被证实是真实的，拜登在45%的县表现超群，55%的县表现不佳。
+
+5/ 我们从美国选举援助委员会取得数据，显示各县使用的投票机。这次只限于使用Dominion机的县，看到大部分的县（78%）都在预测线之上。
+
+
+
+> 5/ We obtained data from the U.S. Election Assistance Commission showing the voting machines used by each county. Compare this graph with the same data, except this time limited to counties using Dominion. This time the majority of counties (78%) are ABOVE the prediction line. [pic.twitter.com/QXyeVbxl6y](https://t.co/QXyeVbxl6y)
+> — Kanekoa (@KanekoaTheGreat) [December 18, 2020](https://twitter.com/KanekoaTheGreat/status/1340046613994037248?ref_src=twsrc%5Etfw)
+
+
+
+6/ 县级数据按投票机过滤分类显示，候选人拜登在Dominion机器上的表现超出约5%，在Hart机器上也超出约6%。
+
+7/在使用Dominion和Hart机器的县，这个时间拜登的表现高于预期78%。这高度表明(99.9%统计学意义)，操纵投票结果可能发生在Dominion和Hart机器上。
+
+
+
+> 7/ In the Dominion/Hart machine counties, Biden performs above expectations 78% of the time. This is highly indicative (and 99.9% statistically significant) that result manipulation could be occurring with Dominion & Hart machines. [pic.twitter.com/IlAGvWIb4f](https://t.co/IlAGvWIb4f)
+> — Kanekoa (@KanekoaTheGreat) [December 18, 2020](https://twitter.com/KanekoaTheGreat/status/1340046620180639744?ref_src=twsrc%5Etfw)
+
+
+
+8/在这张图中，绿点代表使用Dominion/Hart机器的县的选票。绿点应该以类似的混合/随机方式覆盖蓝点。但我们没有看到这一点。相反，我们看到绿点的中心点位（总是）比蓝点的中心点位高。
+
+9/为了帮助上图分析，我们为使用Dominion/Hart的县和 使用其他机器的县添加了中心线。绿色的中心线保持在蓝色中心线之上，清楚地表明拜登在Dominion/Hart县持续 “胜出”。
+
+
+
+> 9/ To aid in this graphical analysis we added center lines for the Dominion/Hart counties and the “other machine” counties. The green centerline stays above the blue centerline – clearly indicating Biden continuously "outperforming" in Dominion/Hart counties. [pic.twitter.com/qXgu3GyLkS](https://t.co/qXgu3GyLkS)
+> — Kanekoa (@KanekoaTheGreat) [December 18, 2020](https://twitter.com/KanekoaTheGreat/status/1340046627327729664?ref_src=twsrc%5Etfw)
+
+
+
+10/选票增加发生在全美数百个Dominion/Hart县，值得强调的是，在使用这些机器的县，拜登在民主党州胜出表现，与他在支持川普县的胜出表现，保持了相同量。
+
+这表明，一些或所有的Dominion/Hart投票机可能被编程或操纵，使拜登的实际选票数被系统地增加了5个多百分点。注意，这些结果的统计显著性水平高于99.9%。
+
+观看完整统计分析视频
+
+
+
+阅读完整统计报告
+
+[https://gofile.io/d/WtDVhe](https://gofile.io/d/WtDVhe)
+
+新闻素材和图片来自林伍德律师及其所转发的推特，和以上链接。
+
+
+
 0
