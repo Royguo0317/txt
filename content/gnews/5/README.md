@@ -1,39 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 从最高法拒绝受理选举违宪诉讼到麦康奈尔祝贺拜登当选
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/667544/)
+## 【推特摘录1219】-为川普而战
+` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/667612/)
 
-加拿大多伦多枫叶农场 老熊
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19182538/trump-won.jpg)
 
-校对 上传 小鸥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19175023/c-2.jpg)图片来自 WVXU
-上周美国最高法院针对德克萨斯等19个州、126名议员，以及川普总统和彭斯副总统状告佐治亚、密歇根、宾夕法尼亚和威斯康星州选举违宪的诉讼案，作出了不予受理的决定，不禁让负有正义感的人们深感吃惊和失望，用朱利安尼市长的话，他们竟然不允许举行公开听证会，这就进一步阻止了更多的民众了解真相的途径。几天后麦康奈尔更是发出了对拜登当选的祝贺，原型终于显露。
 
-这些事件的发生，正是在大选欺诈舞弊的事实越来越多地为民众了解，拜登家族丑闻持续曝光，中共间谍遍及之广、程度之深的渗透行为被揭露，拜登阵营节节败退时，这些举动明显是在企图助拜登挽颓势，不得不令人深思背后的缘由。
+12月19日弗林将军转发了一篇视频，该视频被点击观看120万次，播放了美国人和全球各地支持川普总统的场景，包括一开始香港运动中人们手举美国国旗的场面，群体集会，街头支持，有人在讲台陈辞，有人在商场演讲，有万头攒动，有个人视频，背景是音乐加“为川普而战”的集体呼声，观后甚是激动人心。
 
-魔共不可能放过多婚的赵家女婿、参议院共和党领袖麦康奈尔这个“潜质丰厚”的资源。赵家与中共的渊源由来已久，不难想象，麦康奈尔是中共深层布局的一粒棋子，是关键时候派用场的角色，虽然在一些事件作过迟缓的、不痛不痒的表态（仅仅是表态，不见行动），结合当下这个“罪恶”举动，可以断定那都是为了更深的隐藏，重要时刻的发力。
 
-深藏不露的赵家公麦康奈尔实际也在进行着布局，或奉命布局。回顾一下两个大法官尼尔·戈拉奇（Neil Gorsuch）和艾米·科尼·巴雷特（Amy Coney Barrett）的任命过程，虽然都是川普总统的提名，但是，是谁建议川普总统的？不仅是提名，在任命的过程，都有这位赵家公的影子。
 
-首先，在颇受争议的尼尔·戈拉奇任命中，麦康奈尔使尽浑身解数，成功地改变了参议院对大法官的任命规则，只需简单多数即可通过任命，此举被称为参议院“扣动了核按钮使尼尔·戈拉奇的确认变得简单”【1】。看上去是川普总统提名了尼尔·戈拉奇，但尼尔·戈拉奇也知道赵家公的作用。
+> .[@cjtruth](https://twitter.com/cjtruth?ref_src=twsrc%5Etfw) [@SharletaBasset1](https://twitter.com/SharletaBasset1?ref_src=twsrc%5Etfw) [@kelliwardaz](https://twitter.com/kelliwardaz?ref_src=twsrc%5Etfw) [@tracybeanz](https://twitter.com/tracybeanz?ref_src=twsrc%5Etfw) [@BarbaraRedgate](https://twitter.com/BarbaraRedgate?ref_src=twsrc%5Etfw) [@flynn\_neill](https://twitter.com/flynn_neill?ref_src=twsrc%5Etfw) [@lofly727](https://twitter.com/lofly727?ref_src=twsrc%5Etfw) [#FightForTrump](https://twitter.com/hashtag/FightForTrump?src=hash&amp;ref_src=twsrc%5Etfw) & [#FightForAmerica](https://twitter.com/hashtag/FightForAmerica?src=hash&amp;ref_src=twsrc%5Etfw) !!! [https://t.co/JTDNIvH7E0](https://t.co/JTDNIvH7E0)
+> — General Flynn (@GenFlynn) [December 19, 2020](https://twitter.com/GenFlynn/status/1340358982452588546?ref_src=twsrc%5Etfw)
 
-再看看大选前刚刚任命的艾米·科尼·巴雷特，谁都知道，左王老太婆露丝·巴德·金斯堡（Ruth Bader Ginsburg）法官的离世，川普总统急需补缺这个位置，又是赵家公麦康奈尔扮演了“迫不及待”的角色，令川普总统感激不已。据报道，在大法官金斯堡逝世几个小时，赵家公就与川普总统通电话，向他保证，尽管即将举行大选，参议院共和党人会毫不犹豫地填补突然的空缺，并表示，“这将是我一生中最艰难的斗争……我们必须完美地发挥这一作用。”【2】真是急川普总统所急。
 
-说上述两个大法官是中共的棋子，为中共直接利用，无论是论点还是论据目前均缺乏说服力，但是说赵家公麦康奈尔是恶共的帮凶则不为过。几天来中外媒体有关“枕边风”赵小兰家族与中共关系的报道已是铺天盖地，这里不再赘述。单就他的那个“对拜登的祝贺”和“号召共和党人支持大选窃取者”声明来说，完全可以定性成“替拜登阵营挽败局”，“为魔共缓颓势”。在那样的关键时刻，作出这样的呼应，不是简单的认知模糊，而是在与公正作对，与良知为敌，是拜登窃国集团一员，邪共的爪牙，埋藏的深喉（或许之一）。
 
-“其实很简单，你们只需配合一下格洛弗·罗伯茨（Glover Roberts）即可，出头露面的事由他办……”，（罗伯茨，9大法官之一，在爱泼斯坦欢乐岛有身影【3】，反川普总统的急先锋），面对至少有提携之恩麦康奈尔的“简单要求”，两位法官们附和一下不是不可能。这不是笔者在猜测，而是怀疑有更深层的利益勾兑，否则很难解释，面对众多的铁一般的实锤证据，他们竟然连个公开听证会的机会都否决，什么因素能使最高法院的大法官们变得如此迷茫？认知如此混沌？
+川普总统的宪法律师 Jenna Ellis 转推，“自2016年选举以来，川普总统一直被诬陷、被恶意攻击。他告诉我们，他的竞选活动被监视。他说的没错，他告诉我们他没有腐败勾兑。事实证明他是对的。当他说选举被盗走了，我就相信他。”
 
-不敢想象，堕落的美国，若不是爆料革命，真的完了！
 
-我们期待着正义的回归，公正的早一天到来。
 
-参考链接：
+> Since the 2016 election, [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) has been falsely accused, maligned, and attacked. He told us his campaign was spied on. He was right. He told us there was no collusion. He was proven right. When he says this election was rigged or stolen, I tend to believe him.
+> — Franklin Graham (@Franklin\_Graham) [December 19, 2020](https://twitter.com/Franklin_Graham/status/1340341310415319040?ref_src=twsrc%5Etfw)
 
-【1】[https://www.npr.org/2017/04/06/522847700/senate-pulls-nuclear-trigger-to-ease-gorsuch-confirmation](https://www.npr.org/2017/04/06/522847700/senate-pulls-nuclear-trigger-to-ease-gorsuch-confirmation)
 
-【2】https://www.nytimes.com/2020/10/27/us/mcconnell-barrett-confirmation.html
 
-【3】https://twitter.com/BryanMace5/status/1339820034420592641
+新闻素材和图片来自福林将军推文，Jenna Ellis 推文
+
+
 
 0

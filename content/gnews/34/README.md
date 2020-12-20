@@ -1,29 +1,81 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【三票专栏】简单读懂“外国公司问责法案”的意义
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/667076/)
+## 【林伍德律师推文1219】-统计分析Dominion/Hart机造假
+` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/667086/)
 
-**作者： 三票先生**
+12月19日林伍德律师转推了一则对针对 Dominion 和 Har 投票机在大选中使用数据的统计分析报告。读过报告后的结论，如林伍德律师所说，
 
+“川普总统压倒性赢得连任。”
 
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17160329/%E4%B8%89%E7%A5%A8%E4%B8%93%E6%A0%8F-1.png)
-
+他同时说，“稳住。耐心。祈祷。”
 
 
 
-12月18日川普总统签署“外国公司问责法案”，该法案规定外国公司连续三年未能通过美国公众公司会计监督委员会的审计，将被禁止在美国任何交易所上市。
+> Good Saturday morning!
+> 
+> Today is a good day to visit [@KanekoaTheGreat](https://twitter.com/KanekoaTheGreat?ref_src=twsrc%5Etfw) home page & read the thread beginning with this tweet. [@KanekoaTheGreat](https://twitter.com/KanekoaTheGreat?ref_src=twsrc%5Etfw) is a truth-giver. Read carefully.[@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) won re-election by a landslide.
+> 
+> Steady. Patience. Pray. [https://t.co/6zgL3YtY0s](https://t.co/6zgL3YtY0s)
+> — Lin Wood (@LLinWood) [December 19, 2020](https://twitter.com/LLinWood/status/1340328875532967938?ref_src=twsrc%5Etfw)
 
-证券交易所就好比沃尔玛、COSTCO这样的大市场，只不过交易的不是生活用品而是股票这样的金融产品。如果一个市场里面经常出现劣质产品或者假货，那么购买产品的人（投资人）就会遭受损害，市场也会失去声誉而没有顾客，失去交易功能。于是交易所就会对进入其中交易的产品进行质量审查，以保证产品的质量和信息公开，让顾客获得真实信息并自己决定是否购买（投资），这就是审计。由于证券交易所都是私人资本在经营，政府为了防止私人资本唯利是图，损害在本国市场购物的顾客（投资人）利益，就成立了会计监督委员会，以法律的形式规定了统一的审计标准。这样所有在美国市场交易的产品（股票）必须按美国法律规定的标准进行审计。
 
-从1609年世界上第一个证券交易所在荷兰阿姆斯特丹诞生开始，400多年来西方证券市场的会计审计制度日臻完善，今日美国的会计审计制度可以说是到了完备的程度，虽然出现过安然事件，但证券欺诈少有发生，这使美国成了世界上最大最发达最有信用的证券市场。但是中共这个恶魔来了，一切规则都变了，**2013****年****5****月****7****日，中共证监会、财政部与美国公众公司会计监督委员会签署备忘录，该备忘录规定在美国上市的中共国公司（中概股）的审计必须以遵守《中华人民共和国保密法》和《中华人民共和国档案法》为前提条件，也就是中共的法律优先于美国的法律。从此中概股的审计就因为中共国的保密法而流于形式，中概股几乎全面造假。**
 
-美国这样注重法治的国家为什么会这么做？**这是美国华尔街的鳄鱼和中共盗国贼联手的欺诈行为**。美国法治健全，在美国造假赚钱可能性很小且代价高昂，于是华尔街大鳄以符合中共法律为名用合法手段留了一个**法外之地**，那些持有中概股的大鳄如高盛、美国腐败政要等靠合法造假赚了大钱。而中共依靠这个法外之地，一方面可以利用中概股在美国证券市场为中共圈美元，另一方面持有中概股的大部分都是中共盗国贼的代理人和其利益共同者。**这些利益都被中共盗国贼和华尔街大鳄、美国腐败政客等获得而中国人民没有半点好处，损失的是美国的国家利益和美国证券市场投资者的利益。**
+笔者分享统计分析的主要推文如下。
 
-川普签署这个法案后，今后中概股的审计必须首先符合美国的法律，中概股如果再以中共的保密法为由拒绝提供资料，那就无法出具审计报告，只有退市。如果胆敢造假，上市公司会面临投资人的巨额索赔而破产，参与造假的管理层会被索赔并面临牢狱之灾，2001年的安然事件就是典型的案例。**全球的会计师事务所和律师事务所都是合伙企业，合伙人承担无限责任**，如果参与造假或工作不尽职没有发现造假，会面临投资人的巨额连带索赔，合伙人可能会赔上全部私人财产，并可能锒铛入狱。安然事件就使当时世界上最大的会计师事务所之一安达信会计师事务所破产。
+对美国3000多个县进行的无差别分析显示，乔-拜登在使用多米尼克投票系统的县里多得了5.6%的选票。”如果利用计算机的网络系统来欺诈性地影响选票统计……结果会是这样的。”
 
-川普总统签署的法案是针对所有外国公司，实际上主要是针对中概股。可以说川普签署的法案堵住了中共利用中概股圈美元的路，也堵住了中共盗国贼利用中概股贿赂美国政客的路，**标志着美国和中共金融脱钩的正式开始。**
+2/无论县里的多数党派，也无论城市、郊区或农村地区的人口统计，都能观察到这种Dominion的优势。拜登在民主党州超过预期表现的量，与他在支持川普的县所表现有相同量值。
+
+3/ 该分析并不是针对单一或少数几个县。相反，这些信息使用了美国所有县的数据，以查看是否存在涉及投票机类型和选票总数上有明显的普遍模式。
+
+4/在第一张图中，我们看到拜登2020年的实际选举结果。蓝线是我们的中心预测线。一半县应该在蓝线之上，一半县在蓝线之下。这一点被证实是真实的，拜登在45%的县表现超群，55%的县表现不佳。
+
+5/ 我们从美国选举援助委员会取得数据，显示各县使用的投票机。这次只限于使用Dominion机的县，看到大部分的县（78%）都在预测线之上。
+
+
+
+> 5/ We obtained data from the U.S. Election Assistance Commission showing the voting machines used by each county. Compare this graph with the same data, except this time limited to counties using Dominion. This time the majority of counties (78%) are ABOVE the prediction line. [pic.twitter.com/QXyeVbxl6y](https://t.co/QXyeVbxl6y)
+> — Kanekoa (@KanekoaTheGreat) [December 18, 2020](https://twitter.com/KanekoaTheGreat/status/1340046613994037248?ref_src=twsrc%5Etfw)
+
+
+
+6/ 县级数据按投票机过滤分类显示，候选人拜登在Dominion机器上的表现超出约5%，在Hart机器上也超出约6%。
+
+7/在使用Dominion和Hart机器的县，这个时间拜登的表现高于预期78%。这高度表明(99.9%统计学意义)，操纵投票结果可能发生在Dominion和Hart机器上。
+
+
+
+> 7/ In the Dominion/Hart machine counties, Biden performs above expectations 78% of the time. This is highly indicative (and 99.9% statistically significant) that result manipulation could be occurring with Dominion & Hart machines. [pic.twitter.com/IlAGvWIb4f](https://t.co/IlAGvWIb4f)
+> — Kanekoa (@KanekoaTheGreat) [December 18, 2020](https://twitter.com/KanekoaTheGreat/status/1340046620180639744?ref_src=twsrc%5Etfw)
+
+
+
+8/在这张图中，绿点代表使用Dominion/Hart机器的县的选票。绿点应该以类似的混合/随机方式覆盖蓝点。但我们没有看到这一点。相反，我们看到绿点的中心点位（总是）比蓝点的中心点位高。
+
+9/为了帮助上图分析，我们为使用Dominion/Hart的县和 使用其他机器的县添加了中心线。绿色的中心线保持在蓝色中心线之上，清楚地表明拜登在Dominion/Hart县持续 “胜出”。
+
+
+
+> 9/ To aid in this graphical analysis we added center lines for the Dominion/Hart counties and the “other machine” counties. The green centerline stays above the blue centerline – clearly indicating Biden continuously "outperforming" in Dominion/Hart counties. [pic.twitter.com/qXgu3GyLkS](https://t.co/qXgu3GyLkS)
+> — Kanekoa (@KanekoaTheGreat) [December 18, 2020](https://twitter.com/KanekoaTheGreat/status/1340046627327729664?ref_src=twsrc%5Etfw)
+
+
+
+10/选票增加发生在全美数百个Dominion/Hart县，值得强调的是，在使用这些机器的县，拜登在民主党州胜出表现，与他在支持川普县的胜出表现，保持了相同量。
+
+这表明，一些或所有的Dominion/Hart投票机可能被编程或操纵，使拜登的实际选票数被系统地增加了5个多百分点。注意，这些结果的统计显著性水平高于99.9%。
+
+观看完整统计分析视频
+
+
+
+阅读完整统计报告
+
+[https://gofile.io/d/WtDVhe](https://gofile.io/d/WtDVhe)
+
+新闻素材和图片来自林伍德律师及其所转发的推特，和以上链接。
+
+
 
 0

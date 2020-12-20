@@ -1,25 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】不久前表明与中共脱钩的桥水基金老板达利奥之子车祸身亡！
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/667310/)
+## 俄罗斯被指所谓入侵美国政府 需重新审视与中共关系
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/667515/)
 
-作者：香草山写作组 正义的小新；校对/发稿：村北
+俄罗斯莫斯科喀秋莎农场 银河
 
-据当地新闻媒体报道，现年42岁的德文·达利奥(Devon Dalio)，亿万富翁雷·达利奥（Ray Dalio）的儿子，在他的奥迪车撞入格林威治购物中心的威瑞森商店起火后身亡。格林威治警察局新闻官员Mark Zuccerella表示，事故原因仍在调查中。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19164329/Untitled-2-1.png)
-亿万富翁雷·达利奥，是位于康涅狄格州的世界上最大的对冲基金桥水基金（Bridgewater Associates）的创始人。在推文中，雷·达利奥表示，他的家人“暂时不愿意透露更多信息”。
+校对上传 星河
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19171704/56559.jpg)图片来源：oko-planet.su
+法新社华盛顿18日报道，美国国务卿蓬佩奥（Mike Pompeo）指责俄罗斯骇客入侵美国财政部、商务部与国土安全部等部门网络。蓬佩奥表示，“这是一种非常值得关注的入侵，而我认为，我现在可以明确指出，俄罗斯人涉入其中”。
 
-德文.达利奥是私募股权公司P-Squared Management Enterprises的联合创始人，在职业生涯的早期曾在桥水基金工作，并担任达利奥基金会（Dalio Foundation）的董事会成员。
+美国川普总统随即表示，“假新闻媒体中的网络黑客比实际情况要严重得多，目前一切都处于控制之中，媒体对讨论黑客可能是中共国的可能性感到震惊。”
 
-短评：桥水基金与中共勾兑已久，雷·达利奥曾大力鼓吹“All in China”的理论并大力进军中国。桥水基金很快同Winton集团和瑞银集团成为获得中共执照的三大外国对冲基金。不久前桥水基金创始人警示金融界需迅速与中共脱钩。桥水基金的表态是华尔街在美国灭共之战的风向标。
+微软总裁史密斯（Brad Smith）发文表示，遭遇骇客袭击的客户中， 80%源自美国，其他国家如比利时、英国、加拿大、以色列、墨西哥、西班牙与阿拉伯联合大公国也发现骇客袭击。
 
+同日，美国有线电视新闻网（CNN）引述国务院12月10日致函国会的信件内容报导，美国拟关闭位于俄罗斯远东地区的海参崴（Vladivostok）领事馆，并暂停叶卡捷琳堡（Yekaterinburg）领事馆。美俄关系可能出现再次紧张。
 
+但是，川普总统拒绝指责俄罗斯有据可查的敌对行动，包括干涉2016年选举以帮助他当选。他指责O先生是俄罗斯吞并克里米亚的原因，他赞同允许俄罗斯回到G-7国家集团。此次，川普总统并未表示网络黑客是俄罗斯所为。
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+12月19日，以情报准确、唯真不破而广受关注的爆料革命和新中国联邦创始人郭文贵在视频中指出：中共会与盟友俄罗斯产生巨大分歧。中共利用俄罗斯平台进行骇客袭击，俄罗斯成为中共的背锅侠。俄罗斯强烈谴责中共，中共强硬警告威胁俄罗斯，中共与俄罗斯的盟友关系岌岌可危，俄罗斯总统普京，必将在美国总统大选尘埃落定之际选择最符合俄罗斯利益的应对方案，重新审视与中共的关系。
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+参考链接：
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+[https://www.news18.com/news/world/pompeo-says-russia-pretty-clear-behind-cyberattack-on-us-3194027.html](https://www.news18.com/news/world/pompeo-says-russia-pretty-clear-behind-cyberattack-on-us-3194027.html)
+
+[https://www.rfi.fr/cn/蓬佩奥-骇客入侵美国政府-俄罗斯指使](https://www.rfi.fr/cn/蓬佩奥-骇客入侵美国政府-俄罗斯指使)
+
+[https://www.rfi.fr/cn/美媒披露美国拟关闭在俄罗斯仅存两座领事馆](https://www.rfi.fr/cn/美媒披露美国拟关闭在俄罗斯仅存两座领事馆)
 
 0

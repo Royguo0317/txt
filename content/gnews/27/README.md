@@ -1,197 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国商务部制裁60家中共实体清单
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/667223/)
+## 安全专家在安特里姆县审计后说：将有大事发生，未来几天出现的证据将彻底改变战局！（视频）
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/667208/)
 
-俄罗斯莫斯科喀秋莎农场 Sydney
+作者：吉姆·霍夫特, 2020年12月18日
+翻译： 康州盘古农场 – Antsee-GTV
+校对： 康州盘古农场 – Bruce
+编辑： 康州盘古农场 – V
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19154445/Antrim-Dominion.png)视频采访链接：**[https://www.youtube.com/watch?v=Ykjjr8KUgSQ&feature=emb\_logo&ab\_channel=GatewayPundit](https://www.youtube.com/watch?v=Ykjjr8KUgSQ&amp;feature=emb_logo&amp;ab_channel=GatewayPundit)**
+星期五晚上，选举技术和安全专家拉塞尔·拉姆斯兰德（Russell Ramsland）参加了格雷格·凯利（Greg Kelly，Newsmax电视节目主持人）的节目，讨论了他的公司在密歇根州安特里姆县多米尼投票机检查（Dominion Voting Machines）中的发现。
 
-校对上传 银河
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19153821/Snipaste_2020-12-20_04-38-05.png)图片：俄罗斯莫斯科喀秋莎农场 银河
-美国政府商务部周五（12月18日）决定把数十家企业加入制裁实体清单。据美商务部发言人当天在新闻发布会上的表示，这次被列入清单的企业大部分是中共国公司。它们在协助解放军提高军事能力方面发挥着重要的作用。
+拉姆斯兰德的情报小组分析了安特里姆县的16台多米尼投票机，在该县2020年11月3日（的大选）有数千张选票从特朗普总统“翻转”给了乔·拜登。
 
-以下是对来自美国商务部下属机构工业和安全局 (Bureau of Industry and Security)官方文件涉及中共企业清单的翻译(人名音译)：
+他们的报告是压倒性的。 多米尼投票机被“抓住”换票、故意产生大量选票错误，然后将其转移到场外裁决。
 
-摘自今天要发布的《联邦公报》通知：出于上述原因，最终规则将以下77个实体（总共78个条目）添加到实体清单：
+星期五晚上（的节目中），拉姆斯兰德告诉Newsmax，川普竞选（团队）可能无法在法庭上获胜，因为诉讼在甚至没有听取证据之前就被驳回了。
 
-保加利亚（4）
+拉姆斯兰德接着对格雷格·凯利说：“但我认为，未来几天将会出现的一些信息将彻底改变战局。 真正的问题将是人们会对此进行报道。”
 
-·Dimitar Milanov Dimitrov;
+译者注：现在是风暴来临前的短暂宁静。（视频采访中）拉姆斯兰德在凯利的节目中说：报告发布后，密歇根州州务卿下达的“禁言令”，显得非常“有趣”，她怕什么？另外拉姆斯兰德提到一位在佐治亚州作证的区域主管在作证时说他上传到了错误的选区，于是打电话给客服寻求帮助，客服说会联系科罗拉多州的（服务团队），随后科罗拉多州的团队说稍等他们会处理。但问题是投票机不是“不联网”的吗？关于这些矛盾点，拉姆斯兰德在凯利的采访中提出都是非常值得探究的。最后听到拉姆斯兰德说未来几天出现的证据会改变战局，主持人凯利表示他的胃口已经完全被“吊起”，迫不及待想知道未来几天会出现什么“证据”了。一切都已经开始！
 
-·Mariana Marinova Gargova;
-
-·Milan Dimitrov; *and*
-
-·Multi Technology Integration Group EOOD (MTIG).
-
-中国（60）
-
-·无锡中德美联生物技术有限公司；
-
-·北京理工大学；
-
-·北京邮电大学；
-
-·中国交通建设股份有限公司；
-
-·中国科学器材公司；
-
-·中国船舶集团有限公司（CSSC）第七研究院；
-
-·中国船舶集团有限公司（CSSC）第十二研究所；
-
-·中国船舶集团有限公司（CSSC）701研究所；
-
-·中国船舶集团有限公司（CSSC）702研究所；
-
-·中国船舶集团有限公司（CSSC）703研究所；
-
-·中国船舶集团有限公司（CSSC）704研究所；
-
-·中国船舶集团有限公司（CSSC）705研究所；
-
-·中国船舶集团有限公司（CSSC）707研究所；
-
-·中国船舶集团有限公司（CSSC）709研究所；
-
-·中国船舶集团有限公司（CSSC）710研究所；
-
-·中国船舶集团有限公司（CSSC）711研究所；
-
-·中国船舶集团有限公司（CSSC）712研究所；
-
-·中国船舶集团有限公司（CSSC）713研究所；
-
-·中国船舶集团有限公司（CSSC）714研究所；
-
-·中国船舶集团有限公司（CSSC）715研究所；
-
-·中国船舶集团有限公司（CSSC）716研究所；
-
-·中国船舶集团有限公司（CSSC）717研究所；
-
-·中国船舶集团有限公司（CSSC）718研究所；
-
-·中国船舶集团有限公司（CSSC）719号研究所；
-
-·中国船舶集团有限公司（CSSC）723研究所；
-
-·中国船舶集团有限公司（CSSC）724研究所；
-
-·中国船舶集团有限公司（CSSC）725研究所；
-
-·中国船舶集团有限公司（CSSC）726研究所；
-
-·中国船舶集团有限公司（CSSC）750测试中心；
-
-·中国船舶集团有限公司（CSSC）760研究所；
-
-·重庆川东重工船舶有限公司；
-
-·周冲（Chong Zhou）；
-
-·中船黄埔文冲船舶有限公司；
-
-·大疆创新；
-
-·广新海事重工股份有限公司；
-
-·广州市泰诚船舶工业有限公司；
-
-·张惠穗（Huisui Zhang）；
-
-·江苏恒翔智产信息技术股份有限公司；
-
-·陈金平（Jinping Chen）；
-
-·深圳光启集团；
-
-·南京资产管理有限公司；
-
-·南京航空航天大学
-
-·南京理工大学；
-
-·宁波半导体国际公司；
-
-·诺思(天津)微系统有限责任公司；
-
-·中芯国际(北京)有限公司;；
-
-·中芯国际半导体制造公司；
-
-·中芯国际(深圳)有限公司；
-
-·中芯国际(天津)有限公司；
-
-·中芯南方集成电路制造有限公司；
-
-·中芯国际；
-
-·中芯国际控股有限公司；
-
-·中芯北方集成电路制造(北京)有限公司；
-
-·中芯半导体制造(上海)有限公司；
-
-·天津市微纳制造技术工程中心；
-
-·天津大学；
-
-·同方威视技术股份有限公司.
-
-·庞伟（Wei Pang）；*和*
-
-·赵刚（Zhao Gang）
-
-法国（2）
-
-·France Tech Services; *and*
-
-·Satori Corporation.
-
-德国（2）
-
-·Maintenance Services International (MSI) GmbH; *and*
-
-·MRS GmbH.
-
-香港
-
-·中芯香港国际有限公司
-
-意大利
-
-·Zigma Aviation
-
-马耳他（2）
-
-·Feroz Ahmed Akbar; *and*
-
-·Sparx Air Ltd.
-
-巴基斯坦（2）
-
-·Geo Research, and
-
-·Link Lines (Pvt.) Limited
-
-俄罗斯（3）
-
-·Cosmos Complect;
-
-·Ilias Kharesovich Sabirov; and
-
-·OOO Sovtest Comp.
-
-阿拉伯联合酋长国（2）
-
-·Satori Corporation; and
-
-·Sky Float Aviation FZE.
-
-BIS官方文件链接：
-
-[https://www.bis.doc.gov/index.php/documents/about-bis/2678-77-entity-list-additions/file](https://www.bis.doc.gov/index.php/documents/about-bis/2678-77-entity-list-additions/file)
+文章链接： [https://www.thegatewaypundit.com/2020/12/going-evidence-comes-forward-next-days-will-drastically-change-playing-field-security-expert-behind-antrim-county-audit-says-something-big-coming-video/](https://www.thegatewaypundit.com/2020/12/going-evidence-comes-forward-next-days-will-drastically-change-playing-field-security-expert-behind-antrim-county-audit-says-something-big-coming-video/)
 
 0

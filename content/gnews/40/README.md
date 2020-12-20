@@ -1,28 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【文心雕龙】“大胡子医生”给川普总统发公开信，公布有效新冠治疗方案
-` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/667001/)
+## 【文心雕龙】CCP病毒疫情已对全球儿童现状和成长造成深远影响
+` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/667039/)
 
 作者：美国纽约七星会农场｜Bolu文龍
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19141906/%E6%96%87%E5%BF%83%E9%9B%95%E9%BE%993-copy.jpg)
-不久前，美国犹太裔医生弗拉基米尔·泽连科Vladimir Zelenko 医生公布了一封他写给川普总统的公开信，呼吁政府将他的临床经验用于全国性预防和治疗，并公布了他的新冠病毒临床治疗方案。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19143559/%E6%96%87%E5%BF%83%E9%9B%95%E9%BE%994.jpg)
+2020年11月总部设在纽约的联合国儿童基金会发布报告称：冠状病毒病大流行疫情已经对全球儿童造成日益严重的影响和潜在后果。
 
-新冠疫情全球爆发以来，泽连科医生因持续坚持使用羟氯喹和锌治疗患者而获得关注，很多人特别是爆料革命战友都亲切的称呼他为“大胡子医生”。他刚刚出版了与哈佛大学及耶鲁医学院同仁合著的有关该项治疗过程的新书，书中详细记载了治疗COVID-19患者的经验，他们在2020年3月份首次使用羟氯喹和锌治疗了350例患者，至今100％成功治愈！
+这份名为“避免儿童成为疫情下失落一代”的报告，是联合国儿基会首个全面概述疫情持续对全球儿童造成怎样影响的报告。关于此次新冠病毒的一个谣言是儿童几乎不会感染，但事实是儿童同样会感染并传播病毒！同时报告指出数据表明，学校并非社区内传播疫情的主要途径，学生在校外的感染风险仍远高于校内。但伴随着学校停课/社会停摆/父母失业/情感波动/家庭纷争和潜在暴力等次生效应，疫情持续的时间越长，对儿童的教育、健康、营养和福祉的影响就越深，甚至影响整整一代人的未来，改变他们的一生。
 
-泽连科医生在信中还说道：“这是（病毒对人类的）第三次世界大战！我们不能像在和平时期那样进行研究和运作，在我们等待的过程中将有数百万人死亡，经济将崩溃！” 我们一并将泽连科医生的这封公开信及的详细预防和治疗方案中文版链接奉上分享。
+在报告中，儿基会官员亨丽埃塔·福尔说：“未来当我们重新构想并开始建设疫情后的世界时，我们必须优先考虑到疫情影响下的全球儿童。”
 
-1.泽连科医生给川普总统的公开信：
+参考链接:
 
-[https://www.chinasona.org/Thiaoouba/Zelenko-Trump.html](https://www.chinasona.org/Thiaoouba/Zelenko-Trump.html)
-
-2. 泽连科医生处方：
-
-[https://www.chinasona.org/Thiaoouba/coronavirus-treatment-plan-cn.html](https://www.chinasona.org/Thiaoouba/coronavirus-treatment-plan-cn.html)
-
-3. 泽连科医生的预防方案：
-
-[https://www.chinasona.org/Thiaoouba/coronavirus-prophylaxis-plan-cn.html](https://www.chinasona.org/Thiaoouba/coronavirus-prophylaxis-plan-cn.html)
+[联合国儿童基金会呼吁避免让儿童成为失落的一代，因为2019冠状病毒病疫情可能会对儿童的教育、营养和福祉造成不可挽回的伤害](https://www.unicef.org/zh/%E6%96%B0%E9%97%BB%E7%A8%BF/%E8%81%94%E5%90%88%E5%9B%BD%E5%84%BF%E7%AB%A5%E5%9F%BA%E9%87%91%E4%BC%9A%E5%91%BC%E5%90%81%E9%81%BF%E5%85%8D%E8%AE%A9%E5%84%BF%E7%AB%A5%E6%88%90%E4%B8%BA%E5%A4%B1%E8%90%BD%E7%9A%84%E4%B8%80%E4%BB%A3%EF%BC%8C%E5%9B%A0%E4%B8%BA2019%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92%E7%97%85%E7%96%AB%E6%83%85%E5%8F%AF%E8%83%BD%E4%BC%9A%E5%AF%B9%E5%84%BF%E7%AB%A5%E7%9A%84%E6%95%99%E8%82%B2%E3%80%81%E8%90%A5%E5%85%BB%E5%92%8C%E7%A6%8F%E7%A5%89%E9%80%A0%E6%88%90%E4%B8%8D%E5%8F%AF%E6%8C%BD%E5%9B%9E%E7%9A%84%E4%BC%A4%E5%AE%B3)
 
 更多精彩内容请关注：
 
