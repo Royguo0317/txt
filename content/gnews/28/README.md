@@ -1,19 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国司法部起诉ZOOM中国高管
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/667847/)
+## 【林伍德律师推文1219】-呼吁川普总统实行戒严令
+` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/667918/)
 
-台湾农场(筹备) Amitofu
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19213202/trump-group-copy.jpg)
+林伍德律师连续发推呼吁川普总统开始行动：实行戒严令。
 
-美国司法部表示，纽约布鲁克林联邦法院18日，起诉和发出逮捕令指控”金新江（Xinjiang Jin）“涉嫌共谋跨州骚扰罪和非法共谋转让身份证明罪，金新江担任中共执法部门和情报机构间的主要联络人，负责向中共提供公司视讯平台的用户和会议讯息，包含Internet协议IP地址，用户名称和电子邮件地址，也负责监控视讯平台上被中共认为是非法政治和宗教议题的会议。根据路透社报导金新江任职的视讯软件公司就是Zoom公司。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19203734/zoom-355x225.jpg)圖片來源:FBI網站
-布鲁克林联邦法院起诉书指出，金新江涉嫌破坏2020年5、6月为纪念8964天安门广场屠杀举行的一系列会议。从2019年1月至今，金新江和其他人共谋终止了在Company-1网络上举行的『纪念天安门大屠杀三十周年』至少四场视频会议，参加者大部分由美国驻华大使馆组织和在1989年抗议活动中幸存下来的人，起诉书指39岁的金新江被将面临最高10年监禁。
 
-国家安全助理总检察长约翰·德默斯（John C. Demers）表示：“在美国中企的高管都必须接受中共情报部门的领导，扼杀镇压全世界中国人民的言论自由。” 代理美国检察官塞斯也表示：“中共要求在中国境内发展业务的美国科技公司，必须按照中共指示，对中国境内用户的政治和宗教言论保持沉默。金新江帮助中共当局审查美国用户的核心政治言论。提供任何不利中共言论的用户，和不被接受的政治宗教议题。” 目前 FBI联邦调查局宣布金新江已经逃回中国。本文仅代表个人立场
+> “爱国者们今晚祈祷，川普总统将在有争议的州实行戒严，没收投票机进行法医检查，并任命西德尼-鲍威尔律师作为特别检察官调查选举舞弊。
+> 
+> “我们的国家必须学习选举的真相。
+> 
+> “我们必须。”
 
-资料来源: 美国司法部[https://www.justice.gov/opa/pr/china-based-executive-us-telecommunications-company-charged-disrupting-video-meetings](https://www.justice.gov/opa/pr/china-based-executive-us-telecommunications-company-charged-disrupting-video-meetings)
 
-FBI联邦调查局[https://www.fbi.gov/wanted/counterintelligence/xinjiang-jin](https://www.fbi.gov/wanted/counterintelligence/xinjiang-jin)
+他再说，
+
+
+> “乔治亚州、密歇根州、亚利桑那州、内华达州、威斯康辛州、明尼苏达州和宾夕法尼亚州是应该实施戒严令和扣押机器/选票的州。
+> 
+> “7个州已实施戒严法。43个州未实行戒严。
+> 
+> “我喜欢这些数字。
+> 
+> “行动吧，川普总统！@真正的唐纳德-川普!
+> 
+> “国家支持你。”
+
+
+其后，林伍德律师再次强调说 “**7是一个完美的数字**！”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19214242/7-4.png)
+（笔者按，我们不清楚林伍德律师为何与爆料革命不谋而合，因为文贵先生，** 7是战友钟爱的数字。**）
+
+新闻素材和图片来自林伍德律师推特
+
+
 
 0

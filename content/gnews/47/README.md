@@ -1,65 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共利用加勒比海手机网络监视美国人
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/664061/)
+## 一如既往的愚蠢还是假冒伪善？
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/667533/)
 
-*新闻来源：Breitbart《布赖特巴特》；作者：JOHN HAYWARD；发布时间：2020年12月15日*
+摘要：乔·拜登将《诗篇》（Psalms）念成“手掌书”（palms）[译者注：Psalms 和 palms 的英文发音相近]。
 
-*翻译/简评：Victory；校对：Beicy-数学老师；审核：海阔天空；Page：拱卒*
-[!\[\]()!\[\](https://spark.adobe.com/page/kkJPoUBlITxTq/images/5ce7dddb-c41d-4535-acb1-b3e5db3576d6.jpg?asset_id=d83f7691-61eb-4fd6-9538-72e9c7e8f6b0&amp;img_etag=%225863d5feedcc315973c8df2c8c5d5e88%22&amp;size=1024)](https://spark.adobe.com/page/kkJPoUBlITxTq/images/5ce7dddb-c41d-4535-acb1-b3e5db3576d6.jpg?asset_id=d83f7691-61eb-4fd6-9538-72e9c7e8f6b0&amp;img_etag=%225863d5feedcc315973c8df2c8c5d5e88%22&amp;size=1024)
-#### **简评：**
+【编者按】一个小小的滑稽的失误表明了几个严重的问题：他是一如既往的愚蠢还是一个假冒伪善者，也许两者都是。
+[视频来源](https://youtu.be/eNrEODVKAO0)
+Transcript (全文)：
 
-中共对国外监控可谓无孔不入，花样繁多。中共黑客攻击偷窃他国数据的事例耳熟能详，本文提到的中共利用加勒比海手机网络监视美国人却让人觉得耳目一新。事实上中共对美国人的监控活动，美国情报部门肯定早有察觉，过去只是很少曝光而已。如今媒体开始报道中共的大规模监控，这又会给中共的累累罪行上横加一笔。美国民众向来非常注重隐私权，此类报道会让美国人越来越看清中共的威胁，为今后对中共采取强力措施继续做民意铺垫。
+And friends, seeing you as it’s Sunday and lord’s day. I thought we might have a little reading from the scripture from America’s punitive next president that self-proclaimed devout mass-going catholic Joe Biden, take it away deacon Joe and:
 
-#### **原文翻译：**
+朋友们，在周日这个上帝的日子里见到你们。 我想，我们可以从自称是虔诚的大众化天主教徒、美国应受惩罚的下一任总统乔·拜登的经文里读到一点，请看乔执事：
 
-# 报告：中共利用加勒比海手机网络监视美国人
+Joe Biden: If we do and I’m sure we can, we can proclaim the promised with “palms” (psalm) who wrote the following words: the lord is my strength and my shield…
 
-[!\[\]()!\[\](https://spark.adobe.com/page/kkJPoUBlITxTq/images/1a00f09a-095c-404b-a42d-e5c66cef759a.png?asset_id=8c28ef73-1cad-4829-8eed-1b08e5be2b74&amp;img_etag=%2275350f5a34fb64ca8928a294deb41879%22&amp;size=2560)](https://spark.adobe.com/page/kkJPoUBlITxTq/images/1a00f09a-095c-404b-a42d-e5c66cef759a.png?asset_id=8c28ef73-1cad-4829-8eed-1b08e5be2b74&amp;img_etag=%2275350f5a34fb64ca8928a294deb41879%22&amp;size=1024)阿图尔·德巴特/盖蒂图片社
+乔·拜登：如果我们这样做，我相信我们可以，我们可以用以下几句来称颂应许的手掌（诗篇）：主是我的力量，是我的盾牌…
 
-前移动网络高管加里·米勒（Gary Miller）是一家名为 “Exigent Media “的网络安全初创公司的创始人，他周二指责中共国利用加勒比地区的移动电话网络对美国人进行监视行动。
+Sorry, did he just call the book of psalms the book of palms? Now I know you don’t even have to be Pope Francis to be pronounce the word psalms. Rita is such a staunch atheist and you know how to pronounce it, right? Yeah, I think she does. It’s a small hilarious slip up that has a serious point though and actually there’s several serious points behind this latest Joe Biden blooper.
 
-米勒在接受英国《卫报》采访时详细说明了他关于中共国手机间谍活动的报告结果:
+抱歉，他刚刚是在称圣经的诗篇为手掌书吗？现在，我知道您不必是弗朗西斯教皇就能够念诗篇。丽塔是一位坚定的无神论者，你知道如何发诗篇的音，对吗？是的，我想她知道。这是一个有严重问题的小小的滑稽的失误。实际上，最近乔·拜登新的吹牛的背后有几个重要的问题。
 
-*指控的核心是声称中共国利用国家控制的移动电话运营商，向通常正在出国旅行的美国用户发送信号信息，。*
+Number one, for all Joe Baden’s claim to the mantle of religion, he is something of a false teacher. It’s not just his unfamiliarity with basic bits of scripture. I mean as a catholic, he would know that every Sunday’s mass features a responsorial psalm but the fact that the media is fawning over his faith. I mean do you really think there’s chance the guardian among other outlets would be promoting Biden’s religiosity as a good thing？
 
-*信号信息是由电信运营商在全球网络上发出的指令，移动电话用户并不知道。它们使运营商能够确定移动电话的位置，将移动电话用户相互连接起来，并评估漫游费。但有些信号信息可能被用于非法目的，如追踪、监测或截获通信。*
+第一，对于所有乔·拜登宣称的宗教信仰而言，他不是个真正的老师。 这不仅是他不熟悉圣经的基本知识。 我的意思是说，作为一个天主教徒，他会知道每个星期天的弥撒都带有赞美诗篇，但事实是，媒体讨好他的信仰。 我的意思是说，您真的认为《卫报》和其他机构推崇拜登的宗教信仰是一件好事吗？
 
-*美国的手机运营商可以成功阻止许多这样的尝试，但米勒认为美国在保护手机用户方面做得还不够，他认为手机用户并没有意识到自己的通信有多么不安全。*
+If they thought for a second, he might actually believe it or if he might let inform his views on anything from abortion to modern liberalism’s unending assault on the family? Not a chance! But the second point is this for all this stumbles, Joe Biden is just as dopey as ever. Remember this is the witness protection candidate, the democrats, the media and the Washington swamp hold across the line against all odds so that they could use him as a stalking horse to get all the old failed establishment banned back together.
 
-根据米勒的说法，这些监控大部分是通过中共国政府拥有的一家名为中国联通的公司进行的，中国联通在给《卫报》的声明中否认了他的指控。
+如果他们想一下，他可能会真正相信它，或者如果他愿意就从堕胎到现代自由主义无休止的对家庭的攻击等任何事情发表自己的见解？没机会！而第二个重点是，在这一切的蹒跚中，乔·拜登还是一如既往的愚蠢。请记住，这是证人保护候选人，民主党人、媒体和华盛顿沼泽越线反对所有可能性，以确保他们可以利用他作为掩护性候选人，让所有失败的、被禁止的老机构团结到一起。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/kkJPoUBlITxTq/images/4e5f4d02-144a-40e5-902d-d65c52116b73.jpg?asset_id=6972345a-3ab2-465b-9ae5-032add3d2d95&amp;img_etag=%2216d160471fa81aea93a66e54eae669cc%22&amp;size=1024)](https://spark.adobe.com/page/kkJPoUBlITxTq/images/4e5f4d02-144a-40e5-902d-d65c52116b73.jpg?asset_id=6972345a-3ab2-465b-9ae5-032add3d2d95&amp;img_etag=%2216d160471fa81aea93a66e54eae669cc%22&amp;size=1024)
+听写 & 翻译：【JennyL】校对:【Cyndi】字幕：【绒绒兔】新闻线索：【John】
 
-中国使馆驳斥在加勒比地区从事间谍活动的说法。
+玫瑰园小队出品
 
-中共国驻华盛顿大使馆在被问及该报道时坚称，”中共国政府在网络安全问题上的立场是一贯的、明确的。我们坚决反对和打击任何形式的网络攻击。中共国是网络安全的坚定捍卫者。”
-
-米勒说，在2018年至2020年期间，在一场无差别的 “大规模监控 “活动中，向数万名美国手机用户发送了一波波信号信息。据称，中国联通利用巴巴多斯有线与无线通信公司和巴哈马电信公司这两家加勒比地区的供应商，向美国手机轰炸这些信息。
-
-“中共国在2019年减少了攻击量，倾向于更有针对性的间谍活动，很可能利用加勒比地区的代理网络进行攻击，在贸易和技术投资方面都有密切的联系，”米勒告诉《卫报》。他说，有可能加勒比地区网络的运营商并不知道他们被以这种方式利用。
-
-米勒的结论是基于他对大量手机短信数据的分析。他说，他可以检测到可疑活动的模式，比如反复向同一用户发送信号信息，以监视他们的行动，且信息的来源和注册信息无效或不合理。有时，他发现同一手机用户同时收到来自中国联通和加勒比移动网络之一的可疑信息。
-
-《卫报》指出，美国联邦通信委员会（FCC）4月表示，可能会关闭中国联通在美国的业务，原因是怀疑该公司受中共控制，可能被用于从事间谍活动。中国联通回应称，它没有做错任何事情，并称其美国分公司是独立于母公司管理的。据报道，中国利用移动网络监控美国海外用户。
-
-《新闻周刊》周二观察到，安全专家长期以来一直担心一个名为 “信号系统7″（SS7）的手机通信协议的漏洞，该协议是一个 “补丁系统”，可以让不同国家的不同网络相互通信，从而使手机的国际漫游功能正常运行。
-
-国土安全部（DHS）在2017年警告说，SS7存在安全漏洞，”许多外国供应商似乎在分享或出售可用于监视美国人的专业知识和服务”。同年，独立安全分析师警告说，SS7可能会被利用来执行米勒所称的中共针对美国人使用的那种位置追踪监控。
-
-《新闻周刊》报道，电信行业似乎没有解决2017年概述的大多数漏洞。米勒告诉《卫报》，该行业不希望客户知道他们的网络对监控计划有多脆弱，特别是国家情报机构可以发动的复杂行动。
-
-“政府机构和国会多年来一直意识到公共移动网络的脆弱性。我们政府提出的安全建议并没有得到遵循，也不足以阻止攻击者。业内没有人希望公众知道正在进行的监控攻击的严重性。他说：”我希望公众知道这件事。”
-
-[原文链接](https://www.breitbart.com/national-security/2020/12/15/report-china-using-caribbean-cell-phone-networks-to-spy-on-americans/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/kkJPoUBlITxTq/)
-[!\[\]()!\[\](https://spark.adobe.com/page/kkJPoUBlITxTq/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/kkJPoUBlITxTq/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-0
+1+
