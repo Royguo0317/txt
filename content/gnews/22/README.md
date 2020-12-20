@@ -1,36 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统呼吁1月6日在华盛顿举行抗议活动：“来这里，将是狂野的”
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/667419/)
+## 一如既往的愚蠢还是假冒伪善？
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/667533/)
 
-作者：卡桑德拉·费尔班克斯（Cassandra Fairbanks）
-翻译：康州盘古农场 – 文白
-校对：康州盘古农场 – 挺郭大刺猬
-审核：康州盘古农场 – V
+摘要：乔·拜登将《诗篇》（Psalms）念成“手掌书”（palms）[译者注：Psalms 和 palms 的英文发音相近]。
 
-在周六凌晨1点42分的一条推文中，唐纳德·川普总统提倡在华盛顿举行 “大抗议”，反对在11月显现出的选举舞弊。
+【编者按】一个小小的滑稽的失误表明了几个严重的问题：他是一如既往的愚蠢还是一个假冒伪善者，也许两者都是。
+[视频来源](https://youtu.be/eNrEODVKAO0)
+Transcript (全文)：
 
+And friends, seeing you as it’s Sunday and lord’s day. I thought we might have a little reading from the scripture from America’s punitive next president that self-proclaimed devout mass-going catholic Joe Biden, take it away deacon Joe and:
 
+朋友们，在周日这个上帝的日子里见到你们。 我想，我们可以从自称是虔诚的大众化天主教徒、美国应受惩罚的下一任总统乔·拜登的经文里读到一点，请看乔执事：
 
-> Peter Navarro releases 36-page report alleging election fraud 'more than sufficient' to swing victory to Trump [https://t.co/D8KrMHnFdK](https://t.co/D8KrMHnFdK). A great report by Peter. Statistically impossible to have lost the 2020 Election. Big protest in D.C. on January 6th. Be there, will be wild!
-> — Donald J. Trump (@realDonaldTrump) [December 19, 2020](https://twitter.com/realDonaldTrump/status/1340185773220515840?ref_src=twsrc%5Etfw)
+Joe Biden: If we do and I’m sure we can, we can proclaim the promised with “palms” (psalm) who wrote the following words: the lord is my strength and my shield…
 
+乔·拜登：如果我们这样做，我相信我们可以，我们可以用以下几句来称颂应许的手掌（诗篇）：主是我的力量，是我的盾牌…
 
-*唐纳德·J·川普（@realDonaldTrump）2020年12月19日。川普总统推文写道：*
-*皮特·纳瓦罗发布36页的报告，指控选举舞弊 “绰绰有余”，将胜利指向川普。皮特的报告很精彩。据统计，2020年大选不可能输掉。1月6日在华盛顿举行的大抗议活动。来这里，将是狂野的!*
-川普总统附上了《华盛顿观察家报》关于皮特·纳瓦罗36页的报告的链接，该报告指控选举舞弊，”足以 “左右胜利。
+Sorry, did he just call the book of psalms the book of palms? Now I know you don’t even have to be Pope Francis to be pronounce the word psalms. Rita is such a staunch atheist and you know how to pronounce it, right? Yeah, I think she does. It’s a small hilarious slip up that has a serious point though and actually there’s several serious points behind this latest Joe Biden blooper.
 
-纳瓦罗是贸易和制造业政策办公室主任。
+抱歉，他刚刚是在称圣经的诗篇为手掌书吗？现在，我知道您不必是弗朗西斯教皇就能够念诗篇。丽塔是一位坚定的无神论者，你知道如何发诗篇的音，对吗？是的，我想她知道。这是一个有严重问题的小小的滑稽的失误。实际上，最近乔·拜登新的吹牛的背后有几个重要的问题。
 
-“皮特的报告很棒。从统计学上讲，不可能在2020年大选中失利。1月6日在华盛顿举行的大抗议活动。来这里，将是狂野的！”。川普总统写道。
+Number one, for all Joe Baden’s claim to the mantle of religion, he is something of a false teacher. It’s not just his unfamiliarity with basic bits of scripture. I mean as a catholic, he would know that every Sunday’s mass features a responsorial psalm but the fact that the media is fawning over his faith. I mean do you really think there’s chance the guardian among other outlets would be promoting Biden’s religiosity as a good thing？
 
-该报告 “通过研究六个关键战场州涉嫌选举违规的六个维度来评估2020年总统选举的公平性和公正性”，并得出结论：”选举违规的模式……在六个战场州是如此一致，以至于它们表明了一种协调的策略，即使不是偷窃选举，也是战略性地游戏选举过程，以便……不公平地将竞争环境倾斜到有利于拜登-哈里斯的票。”
+第一，对于所有乔·拜登宣称的宗教信仰而言，他不是个真正的老师。 这不仅是他不熟悉圣经的基本知识。 我的意思是说，作为一个天主教徒，他会知道每个星期天的弥撒都带有赞美诗篇，但事实是，媒体讨好他的信仰。 我的意思是说，您真的认为《卫报》和其他机构推崇拜登的宗教信仰是一件好事吗？
 
-安德鲁·马克·米勒（Andrew Mark Miller）在《华盛顿观察家报》上解释说，”报告中关于投票违规的六个维度包括：彻底的选民欺诈、选票处理不当、可争夺的程序犯规、违反平等保护条款、投票机违规和重大统计异常。”
+If they thought for a second, he might actually believe it or if he might let inform his views on anything from abortion to modern liberalism’s unending assault on the family? Not a chance! But the second point is this for all this stumbles, Joe Biden is just as dopey as ever. Remember this is the witness protection candidate, the democrats, the media and the Washington swamp hold across the line against all odds so that they could use him as a stalking horse to get all the old failed establishment banned back together.
 
-“根据报告，这六个投票问题至少在两个关键州都存在，共有六个战场州出现了其他层面的多个例子。”报告称。
+如果他们想一下，他可能会真正相信它，或者如果他愿意就从堕胎到现代自由主义无休止的对家庭的攻击等任何事情发表自己的见解？没机会！而第二个重点是，在这一切的蹒跚中，乔·拜登还是一如既往的愚蠢。请记住，这是证人保护候选人，民主党人、媒体和华盛顿沼泽越线反对所有可能性，以确保他们可以利用他作为掩护性候选人，让所有失败的、被禁止的老机构团结到一起。
 
-原文链接：[https://www.thegatewaypundit.com/2020/12/president-donald-trump-calls-protest-dc-jan-6-says-will-wild/?utm\_source=Parler&utm\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/12/president-donald-trump-calls-protest-dc-jan-6-says-will-wild/?utm_source=Parler&amp;utm_campaign=websitesharingbuttons)
+听写 & 翻译：【JennyL】校对:【Cyndi】字幕：【绒绒兔】新闻线索：【John】
 
-0
+玫瑰园小队出品
+
+1+

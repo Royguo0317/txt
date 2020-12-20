@@ -1,30 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1219】-面对中共的威胁
-` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/667724/)
+## 瑞幸咖啡同意支付1.8亿美金罚款以和解造假指控
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/667718/)
 
-新闻採集 喜马拉雅的文雅
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19194854/joe-threaten-Isareal.jpg)
-当日林伍德律师发推：
+撰稿：Gradient Boost
 
-“乔 ‘贿赂’ 拜登多年前就不应该威胁切断对以色列的援助。请看以下梅纳西姆-贝京(Menachem Begin)的回应。”
+编辑：五饼二鱼
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19193945/515abb3b-bac9-4ce2-a252-f55ffe766150.jpg)图片来源于网络
+本周四（12月17日），针对美国证券交易委员会(SEC)提出的造假指控，来自中共国的餐饮企业巨头瑞幸咖啡同意支付1.8亿美金并遵守相关禁令以达成和解。有意思的是，瑞幸咖啡并没有正面回复SEC提出的指控是否属实就同意了和解的条款，这显然是既心虚又要面子的表现。事实上瑞幸咖啡财务造假风波至今也已经快一年时间（如果从浑水机构提出匿名报告那时算起的话），相比今年年初，墙内媒体网站上的“粉红”们对瑞幸咖啡事件的态度变化也可以说是180度大翻转级别的。
 
-1982年议员乔拜登对后以色列总理威胁切断援助时，贝京强力回应：“不要以切断援助来威胁我们。不会奏效的。我们不是膝盖颤抖的犹太人，我们是拥有3700年文明历史的犹太人，我们在毒气炉快死的时候，没人来帮助，我们奋力开创国家时没人来帮助，我们自己承担了。我们为之而战，可以战死疆场。我们坚持立场，保卫信仰。必要的时候，我们会再次为之献上生命，不管有没有你的援助。”
+想起今年年初瑞幸被指捏造财务和运营数据的时候，笔者无意在微博评论区里看到了大量的喝彩与叫好，倒不是为浑水机构举报瑞幸不当行为叫好的，而是在为瑞幸咖啡捏造假财报而拍手称快。“爱国”网友们称赞瑞幸“机智”（在笔者看来其实一点也不机智）地割了一把“美国的韭菜”，在为撒谎行为鼓掌的时候，丝毫没有回忆起中共国股市通过假财报假消息和人为操盘掏空自己钱包口袋的悲伤往事。
 
-林伍德在推文中称，“**中共应该知道共产主义者对美国的威胁让我们有同感（和贝京一样的态度和回应）。**”
+如今瑞幸咖啡同意通过罚款达成和解，“爱国者”们又开始骂骂咧咧，主要倒也不是骂提出指控的SEC（大家心里其实都知道指控没毛病），而是批评瑞幸咖啡腰杆子软还没脾气，甘心双膝跪地给所谓“敌人”送钱。所以敢情在这些“粉红”与“五毛”的眼里，犯了错撒了谎既不认账也不道歉赔偿那就是“霸气”、“尊严”以及“强大”的体现，虽然在正常人看来这种表现一般用一个词概括就好了，那就是“流氓”。
 
+瑞幸咖啡的财务造假事件其实提醒我们：华尔街与中共通过勾兑让假骗偷企业顺利上市势必会对广大美国人民及投资者的利益造成损害（墙内百姓的利益自然更不在话下）。但从好的一方面来说，瑞幸咖啡的退市以及赔偿证明：把中共股票市场那套韭菜收割模式输出到美国的企图注定会失败。
 
+（本文纯属个人观点）
 
-> Joey “Bribes” Biden should have never threatened to cut off aid to Israel years ago. Read Menachem Begin’s response below.
-> 
-> CCP should know we feel the same way about Communists threatening America. [pic.twitter.com/frbpjiszlE](https://t.co/frbpjiszlE)
-> — Lin Wood (@LLinWood) [December 20, 2020](https://twitter.com/LLinWood/status/1340447407591579648?ref_src=twsrc%5Etfw)
-
-
-
-新闻素材和图片来自林伍德律师推特
-
-
-
+[参考：新浪财经（中共国墙内媒体）](https://finance.sina.com.cn/tech/2020-12-17/doc-iiznezxs7323824.shtml)：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18041919/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872.jpg)
 0
