@@ -1,49 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵说｜系列图片连载（八十二）
-` GM98` [轉載自GNews](https://gnews.org/zh-hans/672396/)
+## 日本史上最高国防预算5.34兆抗衡中共扩军
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/672541/)
 
-## 568.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21052613/2020-9-27V2-01-01-scaled.jpg)
-富裕奢华的生活会让人失去一切的，包括你一个做人的本能。
+台湾农场(筹备) Amitofu
 
-——郭文贵先生 2020年8月23日
+法新社21日报导日本政府内阁会议通过2021年度预算案，是史上最高的年度总预算案，包括编列振兴方案刺激遭疫情重创的经济，加上日本正面临中国不断升高的威胁，并再度调高国防支出抗衡中国。一般会计总额高达106.6097兆日圆预算，连9年创历史新高，包含5兆疫情对策预备费，创新高的老龄化社会保障费35.8421兆，其中国防预算部分编列5.34兆，增长1.1%。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21062001/image-214.png)图片来源:岸信夫推特
+由于目前日本和中国潜艇相比，在20年内新锐的现代潜艇日本为20艘，中国为52艘。 日本现代驱逐舰和护卫舰数量为48艘，中国为67艘。 第4代和第5代战斗机数量日本为309架，中国为1080架。在经济实力和军事扩张计划的情况下，这种差距将来可能会进一步扩大。国防预算创新高的原因在防卫省下年度预算中，将列入引进建造2艘配备神盾飞弹防御系统的驱逐舰计划，同时洛克希德·马丁与日本三菱重工业合作开发F-2战机的后继机种F-3战机，预计在2030年代中期展开服役，以及研发新型反舰飞弹保卫冲绳西南岛链等预算。本文仅代表个人立场
+资料来源:[https://newswitch.jp/p/25143](https://newswitch.jp/p/25143)
 
-## 569.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21052636/2020-9-27V3-scaled.jpg)
-粮食危机和共产党疯狂导致的人类灾难，一定是最低限度的饿死人肯定是百万、千万的饿死人、甚至更多。
+- [https://news.ltn.com.tw/news/world/breakingnews/3387429](https://news.ltn.com.tw/news/world/breakingnews/3387429)
 
-——郭文贵先生 2020年8月23日
 
-## 570.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21052656/2020-9-28-scaled.jpg)
-你们一定要做好思想准备！一定更猛烈的、更坏的时刻还没有到来。全人类都没有人准备好！
-
-——郭文贵先生 2020年8月23日
-
-## 571.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21052718/7001-scaled.jpg)
-台湾战争如果开始，一定不是为了所谓的祖国的安全和利益，一定是内部政治斗争。
-
-——郭文贵先生 2020年8月22日
-
-## 572.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21052742/7002-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21052753/d131e5e7c0983984.png)
-把我们的G-News、G-TV、G系列做强做大，这是我们目前必须要有的基础；我们绝对要记住，不要寄希望于西方媒体给我们说话，是不可能的，只能寄希望于我们自己的媒体，我们强大了才有话语权。
-
-——郭文贵先生 2020年8月22日
-
-## 573.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21052854/7003.jpg)
-新中国联邦和爆料革命这在历史上是伟大的、不可磨灭的、非常重要的，而且体现了几千年来我们中国人精神的、重大的历史时刻的咱们中国人光辉的一面。
-
-——郭文贵先生 2020年8月22日
-
-## 574.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21052930/37558f990c4cfe2c.png)
-班农等和美国有正义、有良知的灭共派，坚定的和我们站在一起，这就是遇难成祥。
-
-——郭文贵先生 2020年8月22日
-
-1+
+0

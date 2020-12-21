@@ -1,159 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》解读：彭佩奥提及的科学家就是闫博士以及美军完成史上最复杂的军事行动之一
-` GM141` [轉載自GNews](https://gnews.org/zh-hans/673091/)
+## 川普总统在这几天必须做出的决定——即宣布戒严令
+` GM64` [轉載自GNews](https://gnews.org/zh-hans/673195/)
 
-直播视频：
+编译：Civility (小C）
 
+信息来源链接
 
-
-《路德时评》2020年12月21日早间节目主要内容：
-
-一、彭佩奥提及的勇敢的科学家就是指闫博士
-
-美国驻华领事馆12月21日发推[1]：
+附1:卢卡拉贝拉博士推
 
 
 
-> “有勇敢的中国科学家、医生和新闻工作者尝试提醒世界这种传播中的病毒带来的危险，而中国共产党惩罚了他们…即使在今天，世界首次得知这场疫情爆发近一年之后，中国共产党依然在传播有关该病毒的虚假信息，并阻碍世界卫生组织对其源头和传播进行的一项调查。”——蓬佩奥国务卿[https://t.co/orOhDFDDH7](https://t.co/orOhDFDDH7)
-> — 美国驻华使领馆 US MissionCN (@USA\_China\_Talk) [December 21, 2020](https://twitter.com/USA_China_Talk/status/1340976594169565184?ref_src=twsrc%5Etfw)
+> "SI VIS PACEM PARABELLUM"[@CodeMonkeyZ](https://twitter.com/CodeMonkeyZ?ref_src=twsrc%5Etfw) [https://t.co/Bt0pXYJFA7](https://t.co/Bt0pXYJFA7)
+> — Luca La Bella (@LucaLaBella8) [December 18, 2020](https://twitter.com/LucaLaBella8/status/1340047929105637378?ref_src=twsrc%5Etfw)
 
 
 
-路德社评论；
-
-1、该推文中提及勇敢的科学家就是指闫丽梦博士，新闻工作者指的是《路德时评》，路德社早在“119节目”就提及该病毒强变异，会大爆发；
-
-2、中共对闫博士采取了系列报复行动；港大将其辞退、论文作者名字被顶替、网络造谣和家人遭受威胁软禁，该推特绝非是在赞扬钟南山，他是中共散步虚假信息的始作俑者；
-
-3、此推特就是要让所有人知道，美国没有忘记病毒真相，该病毒事件罪魁祸首就是中共，与中国人民无关，这将再次把世界的目光聚焦到中共病毒真相上。
-
-二、英国出现变种中共病毒
-
-《BBC新闻网》12月21日报导[2]：欧洲多个国家已开始对英国实施旅行禁令，原因是英国境内出现一种更具感染性且更易失控的变种冠状病毒。爱尔兰、德国、法国、意大利、荷兰和比利时周末陆续宣布紧急停止来往英国的航班，但各地措施不同，有的只是短期管制措施。法国也开始管制对往来英国的货物海运。今日早上的欧盟会议将协调相关应对措施。
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21102622/%E7%97%85%E6%AF%92.jpg)[图片地址](https://ichef.bbci.co.uk/news/800/cpsprodpb/174C5/production/_116192459_064895420.jpg)
-
-
-1、路德社节目早在1月19日就说该病毒是强变异，该病毒株传染性比先前病毒增强70%，三万个碱基只要一个点出现突变，病毒毒性就出现巨大变化；
-
-2、路德社在1月19日就认定该病毒五大特点：
-
-（1）病毒人传人，五小时后钟南山出面承认人传人；
-
-（2）即将大爆发，当时中共还跟川普总统说该病毒就像普通感冒，4月就能解决，不会大爆发；
-
-（3）中共隐瞒疫情真相
-
-（4）强变异，病毒此前出现D614G变异，现在又出现变异种；
-
-（5）病毒来自中共军方的舟山蝙蝠病毒。
-
-三、美军完成史上最复杂的军事行动之一
-
-12月21日，美国代理国防部长米勒将军说：“已经完成了美军史上最复杂的军事行动之一，感谢彭斯副总统的无私协助。”[3]
+附2:意媒文章链接
 
 
 
-> 仔細聼，米勒將軍說，已經完成了美軍史上最複雜的軍事行動之一，感謝彭斯副總統的無私協助。什麽行動啊？米勒是特戰出身，関塔納摩高等級軍機頻繁進出……🤔🤔🤔[@ding\_gang02](https://twitter.com/ding_gang02?ref_src=twsrc%5Etfw) [https://t.co/HKyiOGR3T1](https://t.co/HKyiOGR3T1)
-> — Dr. Bo 🇺🇸🇹🇼🇭🇰 (@BoDiplo) [December 21, 2020](https://twitter.com/BoDiplo/status/1340854383312052226?ref_src=twsrc%5Etfw)
-
-
-
-路德社评论：
-
-1、美国成功完成了军事战争史上众多大规模军事行动，例如诺曼底登陆、太平洋战争、海湾战争等，这次军事行动的目标应该也是巨大的；
-
-2、此项最复杂的军事行动应该已经完成，此次复杂的作战肯定涵盖登陆作战，这次还将联合太空军和网络部队参与，也有可能是一次演习；
-
-3、该发言中再次提及彭斯副总统，2019年1月彭斯副总统站出来喊话，委内瑞拉人民应该站起来了，随即第二天瓜伊多就站出来反对马杜罗，以此推测，彭斯副总统和卢比奥参议院应该主管委内瑞拉事件，此次军事行动极有可能和委内瑞拉相关，更多信息还得等未来解密。
-
-四、林·伍德律师连续发推直指中共邪恶
-
-林·伍德律师12月20日连续发推：
-
-1、“几个月来，我一直警告说，我们被Covid-19玩弄了，污蔑我们是系统性种族主义国家的错误指控攻击了执法部门——所有这些都是为了分裂和控制我们。然后，中共与其他第三方行动者试图窃取我们的选举。醒了吗？”
-
-
-
-> I have warned for months that we were being played by Covid-19, false accusations that we are systemically racist country, attacks on law enforcement – all intended to divide & control us.
+> “SI VIS PACEM PARABELLUM”. LA LUNGA NOTTE DI TRUMP STA PER GIUNGERE AL TERMINE.
+> Di Luca La Bella
 > 
-> Then CCP working with other third party actors tried to steal our election.
-> 
-> Awake now?
-> — Lin Wood (@LLinWood) [December 21, 2020](https://twitter.com/LLinWood/status/1340875075847938050?ref_src=twsrc%5Etfw)
+> “Se vuoi la Pace, prepara la Guerra” recitavano i latini.
+> Leggi l'articolo👇[https://t.co/P29uSNxW4h](https://t.co/P29uSNxW4h) [pic.twitter.com/nEVBYhiEpM](https://t.co/nEVBYhiEpM)
+> — DataBase Italia (@DatabaseItalia) [December 18, 2020](https://twitter.com/DatabaseItalia/status/1339845835186696193?ref_src=twsrc%5Etfw)
 
 
 
-2、“中共正得意用我们辛苦赚来的钱建立了经济和军事力量。我们教育了中共学生。他们偷了我们的商业秘密。他们几乎偷走了我们国家的灵魂。我们被耍了。共产主义是内部的敌人。中共是想要征服我们领土的外敌。”
+12月18日，意媒Databaseitalia.it发表文章，标题为：
 
+《“如要和平、必先备战”川普总统的漫漫长夜到达最后阶段》
 
+文章开头引用拉丁人谚语：“如果要和平，就要为战争做准备”。
 
-> CCP has laughed as it built its economy & military off our hard earned dollars. We educated CCP students. They stole our trade secrets. They have almost stolen our nation’s soul.
-> 
-> We have been played.
-> 
-> Communism is the enemy within. CCP is the outside enemy which wants our land.
-> — Lin Wood (@LLinWood) [December 21, 2020](https://twitter.com/LLinWood/status/1340873954991476737?ref_src=twsrc%5Etfw)
+文章分析：鉴于Deep State的这一巨大政变企图，正如某些州和最高法院，这违反了法治，美利坚合众国的生存受到威胁，现在已经该宣布戒严法的时候了。
 
+“外国（中国）对美国大选的干预，通过伪造选票（邮寄投票），使用Dominion ，[入侵“Solarwinds”网络](https://www.databaseitalia.it/solar-winds-e-stata-violata-per-iniettare-una-backdoor/)，现已公开！而且使用了Hammer＆Scorecard应用程序….得到了Facebook之类的公司的大量投资，这些公司已经投入了数百万美元来指导最亲近民主党的州的选举结构。”
 
+（以下摘于原文，具体请看原文）
 
-3、“我们一直被欺哄，认为与中国做生意对美国有好处。废话。中共是邪恶的。他们想摧毁我们，我们的生活方式和我们的自由。中共是魔鬼。太多的美国人与这个魔鬼有勾兑。”
+“川普总统在这几天必须做出的决定可能是所有决定中最困难的，即宣布戒严令，通过以下步骤暂时中止宪法权利：
 
+——在12月18日（今天）等待DNI（负责协调所有情报机构的部门）国家情报总监Ratcliff的报告，我们知道该报告正受到来自各个方向的巨大压力，推迟了他的“关于外国干扰的报告”，因此可能不按计划出炉。反对措施是在12月16日发布行政命令，将紧急状态延长一年。
 
+——对与记录的选举欺诈和欺诈结果证明相关的州长和所有选举官员进行逮捕和审问。
 
-> We have been lulled into believing doing business with China is good for America. Nonsense. CCP is evil. They want to destroy us, our way of life & our freedom.
-> 
-> CCP is the devil. Too many Americans have made deals with the devil.[@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) ran for POTUS to wake us up.
-> — Lin Wood (@LLinWood) [December 21, 2020](https://twitter.com/LLinWood/status/1340871441357680640?ref_src=twsrc%5Etfw)
+——逮捕并审问在美国从事选举欺诈活动的所有财务支持和其他支持来源。
 
+——从弗吉尼亚参议院迅速的开始，暂停所有被偷盗的可疑的“胜利者”的竞选活动，…因为这些欺诈行为不仅针对特朗普总统，而且还有其他许多共和党候选人。
 
+——逮捕由同一欺诈活动的煽动者资助的ANTIFA和BLM恐怖组织的所有代言人，这些欺诈活动已经使整个美国的社会秩序不稳定了几个月。
+     当平民统治失败时，可以实施[戒严法](https://www.militarytimes.com/news/your-military/2020/10/23/how-the-president-could-invoke-martial-law/)，在危机时期暂时由军事权威取代。虽然很少见，但在美国却有许多著名的案例，这项法律在其中发挥了作用，包括在战争时期，自然灾害和公民纠纷中。
 
-4、“主流媒体，州长和其他州及地方官员，参议员，双方的国会议员和法官都受到共产主义的破坏。美国政府最高层的官员和大佬们也是如此。众多领域的企业都拥抱中共。好莱坞？醒醒吧”
+“我相信过去可能曾经进行过一些秘密调用，现在我们可能正在秘密起草《叛乱法》”（[https://en.wikipedia.org/wiki/Insurrection\_Act\_of\_1807](https://en.wikipedia.org/wiki/Insurrection_Act_of_1807)一位中央情报局消息人士说。
 
+特朗普的漫漫长夜即将结束，很可能就像朱利叶斯·凯撒（Julius Caesar）在公元前49年所做的那样，当时参议院命令他解散军队或成为“国家的敌人”，而他却越过鲁比孔河，从而成为传奇人物。
 
-
-> Mainstream media, governors & other state & local officials, Senators, Congressmen of both parties, & judges have been corrupted by Communism. Officials & bureaucrats at highest levels of US government too. Businesses across spectrum have embraced CCP. Hollywood? You bet.
-> 
-> Awake?
-> — Lin Wood (@LLinWood) [December 21, 2020](https://twitter.com/LLinWood/status/1340872921766629376?ref_src=twsrc%5Etfw)
-
-
-
-林伍德律师连续发推、米勒将军发言内容、系列军事行动和委内瑞拉事件最终都指向中共，也请所有爆料革命战友都坚定信心，最重要的时刻即将来临。
-
-五、中共航母航经台湾
-
-《美国之音》12月21日报导[4]：台湾国防部星期日(12月20日)表示，中共航母“山东舰”(CV-17)及所属护卫兵力4艘，本月17日自辽宁大连港起航南驶，20日航经台湾海峡之后，继续向南航行。台湾国防部指出，“山东舰”航母航经台海期间，台湾军方除了运用联合情监侦系统全程掌握，并派遣海军各型船舰6艘、空军各型机8架次，担任警戒、监控任务，依规定适切应处。这是“山东舰”航母去年12月26日之后，第2次穿越台湾海峡,上次是由南向北航经台海北驶，这次则是首度由北向南穿越海峡进入南中国海。
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21102533/%E8%88%AA%E6%AF%8D.jpg)[图片地址](https://gdb.voanews.com/5BBE3CD1-86C8-4DF5-8CC7-BA8BF38AB921_cx0_cy10_cw0_w650_r1_s.jpg)
-
-
-路德社评论：
-
-1、中共此次驾驶航空母舰航经台湾以及中共缺席美中军事对话，彻底显露出他们的丑恶嘴脸；
-
-2、中共驾驶冒着黑烟的航空母舰穿越台湾海峡，一方面是在碰瓷，另一方面是在挑拨国内人民的仇美情绪，任何微小的动作都有可能引发战争；
-
-3、中共此举就是要控制台湾海峡，影响亚太地区最重要的贸易枢纽，危害公海安全，中共的航空母舰以油品为燃料，无法远行，只能进行近海防御，因此中共就计划通过数架航母堵塞海湾海峡，以达到遏制台湾的目的；
-
-4、中共近几年急速发展军事和外派军队就是想通过控制霍尔木兹海峡、南海和台湾海峡，进而影响国际贸易，以此要挟世界；
-
-5、美国战略专家一定已经看出中共的计谋，如果不尽快采取军事行动，中共还可使出无数邪恶的招数，它绝对不敢和美国硬碰硬，只能通过“蓝金黄”美国各领域重要人物，利用制造“突发事件”的能力从海外赚取利润。
-
-参考文章：
-
-[1]https://twitter.com/USA\_China\_Talk/status/1340976594169565184
-
-[2]https://www.bbc.com/zhongwen/simp/world-55391856
-
-[3]https://twitter.com/BoDiplo/status/1340854383312052226
-
-[4]https://www.voachinese.com/a/taiwan-nmd-on-chinese-aircraft-carrier-20201221/5707237.html
-
-文章撰写：【重生】    编辑：【GM141】
+川普在接下来的几天，在美国和全世界所有自由人民的支持下，将决定迈出一大步。
 
 0
