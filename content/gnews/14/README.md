@@ -1,42 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Google, YouTube全球断网
-` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/673055/)
+## 川普总统在这几天必须做出的决定——即宣布戒严令
+` GM64` [轉載自GNews](https://gnews.org/zh-hans/673195/)
 
-七哥说视频制作组｜出品
+编译：Civility (小C）
 
-昨天晚上没怎么睡觉，直到听说Google全球YouTube全部断网，战友们你相信这网是谁断的？你们相信老共是吗？
+信息来源链接
 
-未来你们会揭晓谜底，咱GTV揭开谜底，会超出你的想象，不是你想象的那么简单。
+附1:卢卡拉贝拉博士推
 
-但是推翻共产党的互联网，已经是开始了，没人能看透这个细节，推翻共产党的互联网就从几个小时前开始了。
 
-在全球全部断网的时候，只有咱GTV很顺畅的运作着，GTV这一下子了不得了。大家看看后台数据，国内的包括国外的战友，全部上GTV，爆发而且稳定，你说咋办呢，这就叫GTV呀。
 
-不但如此，战友们，这次推翻共产党的互联网后，GTV、GNEWS咱们的G系列都会展示给全世界爆料革命和新中国联邦的力量，不仅仅是我们的勇气，我们的智慧，我们内心的正义，还有更重要的我们对世界局势的把握和对自我的控制。
+> "SI VIS PACEM PARABELLUM"[@CodeMonkeyZ](https://twitter.com/CodeMonkeyZ?ref_src=twsrc%5Etfw) [https://t.co/Bt0pXYJFA7](https://t.co/Bt0pXYJFA7)
+> — Luca La Bella (@LucaLaBella8) [December 18, 2020](https://twitter.com/LucaLaBella8/status/1340047929105637378?ref_src=twsrc%5Etfw)
 
-光有良知光有信仰，藏在内心里，不变成行动，不把智慧变成自己的行动，这都是没有什么实际作用的。
 
-在当下的物质社会，一切靠行动来体现。
 
-还有兄弟姐妹们，大家你没想到，等着一会啊，一会一个又一个的，你们会看到，我们在这两三年来，告诉全世界人民做好准备，黑暗已经来临，叫中国人民要做好准备，好日子一去不复返，告诉全中国同胞，战争已经在家门口，所有你看好的你那个房子你的车子一文不值，甚至是你的累赘。
+附2:意媒文章链接
 
-所有你看到听到的信息都是假的，所有的让你准备好打仗，让你所谓的节省粮食，一切一切都是让你这么做，不包括共产党。
 
-它为什么让你这么做，不包括它，那接下来会怎么做？
 
-还会让你做什么？捐出你的房子，捐出你的子女，捐出你所有的钱，然后你自己要上战场。
+> “SI VIS PACEM PARABELLUM”. LA LUNGA NOTTE DI TRUMP STA PER GIUNGERE AL TERMINE.
+> Di Luca La Bella
+> 
+> “Se vuoi la Pace, prepara la Guerra” recitavano i latini.
+> Leggi l'articolo👇[https://t.co/P29uSNxW4h](https://t.co/P29uSNxW4h) [pic.twitter.com/nEVBYhiEpM](https://t.co/nEVBYhiEpM)
+> — DataBase Italia (@DatabaseItalia) [December 18, 2020](https://twitter.com/DatabaseItalia/status/1339845835186696193?ref_src=twsrc%5Etfw)
 
-这是吓唬大家吗？共产主义就是干这个的，什么时候它不是这么干的？共产主义。
 
-全人类现在的公敌就是共产党，现在还有人幻想吗？
 
-更多精彩内容请关注：
+12月18日，意媒Databaseitalia.it发表文章，标题为：
 
-- [美国纽约七星会农场（为子孙爱七哥）官推](https://twitter.com/wzsaqg)
-- [美国纽约七星会农场（为子孙爱七哥）GTV](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
-- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
+《“如要和平、必先备战”川普总统的漫漫长夜到达最后阶段》
 
-![]()![](https://www.gnews.org/wp-content/uploads/2020/12/七星会底栏-2.jpg)
-2+
+文章开头引用拉丁人谚语：“如果要和平，就要为战争做准备”。
+
+文章分析：鉴于Deep State的这一巨大政变企图，正如某些州和最高法院，这违反了法治，美利坚合众国的生存受到威胁，现在已经该宣布戒严法的时候了。
+
+“外国（中国）对美国大选的干预，通过伪造选票（邮寄投票），使用Dominion ，[入侵“Solarwinds”网络](https://www.databaseitalia.it/solar-winds-e-stata-violata-per-iniettare-una-backdoor/)，现已公开！而且使用了Hammer＆Scorecard应用程序….得到了Facebook之类的公司的大量投资，这些公司已经投入了数百万美元来指导最亲近民主党的州的选举结构。”
+
+（以下摘于原文，具体请看原文）
+
+“川普总统在这几天必须做出的决定可能是所有决定中最困难的，即宣布戒严令，通过以下步骤暂时中止宪法权利：
+
+——在12月18日（今天）等待DNI（负责协调所有情报机构的部门）国家情报总监Ratcliff的报告，我们知道该报告正受到来自各个方向的巨大压力，推迟了他的“关于外国干扰的报告”，因此可能不按计划出炉。反对措施是在12月16日发布行政命令，将紧急状态延长一年。
+
+——对与记录的选举欺诈和欺诈结果证明相关的州长和所有选举官员进行逮捕和审问。
+
+——逮捕并审问在美国从事选举欺诈活动的所有财务支持和其他支持来源。
+
+——从弗吉尼亚参议院迅速的开始，暂停所有被偷盗的可疑的“胜利者”的竞选活动，…因为这些欺诈行为不仅针对特朗普总统，而且还有其他许多共和党候选人。
+
+——逮捕由同一欺诈活动的煽动者资助的ANTIFA和BLM恐怖组织的所有代言人，这些欺诈活动已经使整个美国的社会秩序不稳定了几个月。
+     当平民统治失败时，可以实施[戒严法](https://www.militarytimes.com/news/your-military/2020/10/23/how-the-president-could-invoke-martial-law/)，在危机时期暂时由军事权威取代。虽然很少见，但在美国却有许多著名的案例，这项法律在其中发挥了作用，包括在战争时期，自然灾害和公民纠纷中。
+
+“我相信过去可能曾经进行过一些秘密调用，现在我们可能正在秘密起草《叛乱法》”（[https://en.wikipedia.org/wiki/Insurrection\_Act\_of\_1807](https://en.wikipedia.org/wiki/Insurrection_Act_of_1807)一位中央情报局消息人士说。
+
+特朗普的漫漫长夜即将结束，很可能就像朱利叶斯·凯撒（Julius Caesar）在公元前49年所做的那样，当时参议院命令他解散军队或成为“国家的敌人”，而他却越过鲁比孔河，从而成为传奇人物。
+
+川普在接下来的几天，在美国和全世界所有自由人民的支持下，将决定迈出一大步。
+
+0

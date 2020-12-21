@@ -1,21 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 正义，是你我的必须
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/673081/)
+## 【路德社】【精华版粤语快报】12.20：川普总统发推说戒严令是假新闻意味着什么 中国的足球就是中共体制的缩影
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/673213/)
 
-香草山综合报道
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
+制作团队：Wen fei、sad3mom、文恩
 
 
 
+摘要:
 
+习近平12月18日主持召开中共中央经济工作会议，明确提出解决种子和耕地两大卡脖子问题； 中国的足球就是中共体制的缩影；川普总统发推说戒严令是假新闻意味着什么？
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+[【路德时评】原视频链接](https://youtu.be/_BYpzJIkyhY)
 
 0

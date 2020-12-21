@@ -1,25 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/21/2020 财经快讯：美国国会议员支持拨款19亿美元以取代华为、中兴通讯的电信设备
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/672968/)
+## Google, YouTube全球断网
+` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/673055/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21091736/Picture11-2.png)图片来源： [https://www.reuters.com](https://www.reuters.com/article/usa-internet-congress-idUSKBN28U0MC)
-1.两位知情人士周日表示，美国国会议员预计将批准19亿美元，用于资助一项旨在拆除对国家安全存在威胁的中国华为、中兴等电信网络设备的计划。这将作为年终支出法案和新冠救助法案的一部分。
-[https://www.reuters.com/article/usa-internet-congress-idUSKBN28U0MC](https://www.reuters.com/article/usa-internet-congress-idUSKBN28U0MC)
+七哥说视频制作组｜出品
 
-2.美国政府日前将全球最大的无人机制造商之一大疆列入贸易黑名单，认为该公司在中国侵犯人权的事件中发挥了作用。
-[https://www.bbc.com/news/technology-55367163](https://www.bbc.com/news/technology-55367163)
+昨天晚上没怎么睡觉，直到听说Google全球YouTube全部断网，战友们你相信这网是谁断的？你们相信老共是吗？
 
-3.涉嫌在中共授意下利用职务之便中断破坏纪念六四视频会议，Zoom高管被起诉。
-[https://www.breitbart.com/tech/2020/12/19/feds-zoom-executive-interrupted-meetings-at-direction-of-chinese-communist-govt/](https://www.breitbart.com/tech/2020/12/19/feds-zoom-executive-interrupted-meetings-at-direction-of-chinese-communist-govt/)
+未来你们会揭晓谜底，咱GTV揭开谜底，会超出你的想象，不是你想象的那么简单。
 
-4.中国前财政部长楼继伟建议，中国可以限制单个金融科技平台可以合作的银行数量，从而防止任何平台获得过多的市场份额。
-[https://mobile.reuters.com/article/amp/idUSKBN28U05C?\_\_twitter\_impression=true](https://mobile.reuters.com/article/amp/idUSKBN28U05C?__twitter_impression=true)
+但是推翻共产党的互联网，已经是开始了，没人能看透这个细节，推翻共产党的互联网就从几个小时前开始了。
 
-5.川普团队向最高法院提交了267页的复审申请。旨在推翻宾夕法尼亚州最高法院的三项决议。这些决议在大选前后非法的改变了宾夕法尼亚州的邮寄投票法，从而削弱了宾夕法尼亚州立法机构对邮寄选票欺诈的保护措施。
-[https://thenationalpulse.com/breaking/trump-supreme-court-petition/](https://thenationalpulse.com/breaking/trump-supreme-court-petition/)
+在全球全部断网的时候，只有咱GTV很顺畅的运作着，GTV这一下子了不得了。大家看看后台数据，国内的包括国外的战友，全部上GTV，爆发而且稳定，你说咋办呢，这就叫GTV呀。
 
-【秘翻组金融团队-Rosy Cloud】
+不但如此，战友们，这次推翻共产党的互联网后，GTV、GNEWS咱们的G系列都会展示给全世界爆料革命和新中国联邦的力量，不仅仅是我们的勇气，我们的智慧，我们内心的正义，还有更重要的我们对世界局势的把握和对自我的控制。
 
-0
+光有良知光有信仰，藏在内心里，不变成行动，不把智慧变成自己的行动，这都是没有什么实际作用的。
+
+在当下的物质社会，一切靠行动来体现。
+
+还有兄弟姐妹们，大家你没想到，等着一会啊，一会一个又一个的，你们会看到，我们在这两三年来，告诉全世界人民做好准备，黑暗已经来临，叫中国人民要做好准备，好日子一去不复返，告诉全中国同胞，战争已经在家门口，所有你看好的你那个房子你的车子一文不值，甚至是你的累赘。
+
+所有你看到听到的信息都是假的，所有的让你准备好打仗，让你所谓的节省粮食，一切一切都是让你这么做，不包括共产党。
+
+它为什么让你这么做，不包括它，那接下来会怎么做？
+
+还会让你做什么？捐出你的房子，捐出你的子女，捐出你所有的钱，然后你自己要上战场。
+
+这是吓唬大家吗？共产主义就是干这个的，什么时候它不是这么干的？共产主义。
+
+全人类现在的公敌就是共产党，现在还有人幻想吗？
+
+更多精彩内容请关注：
+
+- [美国纽约七星会农场（为子孙爱七哥）官推](https://twitter.com/wzsaqg)
+- [美国纽约七星会农场（为子孙爱七哥）GTV](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
+- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
+
+![]()![](https://www.gnews.org/wp-content/uploads/2020/12/七星会底栏-2.jpg)
+2+

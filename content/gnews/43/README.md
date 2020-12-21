@@ -1,24 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美驻华使领馆刊文就病毒问题批评中共
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/672691/)
+## 【川普总统推文1221】-宾州大新闻
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/672834/)
 
-- 编辑：Victor Torres
+12月21日：
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+> “宾夕法尼亚州传出大新闻。非常大量的非法选票无法解释。被操纵的选举！”
 
-**西班牙2020年12月21日电/西喜社——**
 
-2020年12月21日，美国驻华大使馆和领事馆网站刊登了题为《自由世界的领导将打败COVID-19》的文章，引述了国务卿迈克尔·R·蓬佩奥12月18日针对中共病毒的讲话。
-他指责中共传播虚假信息，阻碍调查以及兜售问题疫苗，呼吁世界各国要求北京说出真相。
-彭佩奥说，自中国最先在武汉发现一位病人染上一种现被称为COVID-19的未知肺炎已有一年的时间。自那时起，美国和其他自由国家，如德国和英国，领导了一项了不起并且史无前例的疫苗研发努力，这项努力正在为世界各地带来希望。
-这并非偶然。一次又一次，重视透明度、法治、财产权和自由市场资本主义的民主政体为公共卫生危机带来了创新的解决方案。自由释放人的潜能，竞争以更低的成本带动更好的结果。
-相比之下，威权政权控制信息并扼杀创新。有勇敢的中国科学家、医生和新闻工作者尝试提醒世界这种传播中的病毒带来的危险，而中国共产党惩罚了他们，致使一次可控的疫情变成一场全球大流行病。
-即使在今天，世界首次得知这场疫情爆发近一年之后，中国共产党依然在传播有关该病毒的虚假信息，并阻碍世界卫生组织对其源头和传播进行的一项调查。由于根本无视临床试验结果的透明度和问责制，它还在兜售缺乏安全性和有效性关键数据的疫苗。这两项行动都使中国公民和世界面临风险。
-世界各国应要求北京就这场大流行病的源头和传播做到保持透明，这场大流行病已导致超过一百万人丧生，数百万人的生计被摧毁。如果他们不这样做，中国在公共卫生危机方面的记录将使未来再次爆起源于中国的大流行病令人沮丧地成为可能。
+新闻素材和图片来自川普总统推特
 
-新闻来源：[https://china.usembassy-china.org.cn/zh/the-free-worlds-leadership-will-defeat-covid-19-cn/](https://china.usembassy-china.org.cn/zh/the-free-worlds-leadership-will-defeat-covid-19-cn/)
 
-1+
+
+> Big news coming out of Pennsylvania. Very big illegal ballot drop that cannot be accounted for. Rigged Election!
+> — Donald J. Trump (@realDonaldTrump) [December 21, 2020](https://twitter.com/realDonaldTrump/status/1340996686257254403?ref_src=twsrc%5Etfw)
+
+
+
+0

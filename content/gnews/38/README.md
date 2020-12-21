@@ -1,30 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【川普推文1221】-拜登仅“赢得”16%的县
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/672763/)
+## 【纳瓦罗推文1221】-见过祸国势力(Deep State)
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/672879/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21080857/biden-won-16.jpg)
-12月21日媒体人Kevin McCullough发推公布了最新大选统计结果：
-
-
-> 拜登的支持者似乎真的失去了理智，当你告诉他们拜登只 “赢得 “了16%的县时，他们会多么愤怒。他们更愤怒的是，他们一直支持一个骗子感到骗骗无妨。
+川普总统的经济顾问皮特纳瓦罗先生，在发布了长达36页的题为 “无暇的欺骗 “的报告后，12月20日在WABC 770 AM-N.Y.节目中指出，
 
 
+> “如果我们不能进行公平的选举，那么这个共和国，就不会站起来。”他说，“川普作为一个政治局外人，在政府中的共和党和民主党的祸国势力（Deep State)中都有敌人，他们是职业官员，力求保持自己的权力和权威。
 
-> 美国有50个州。
-> 扣除有问题的州，川普赢了25个，拜登赢了16个。
+
+
+> “我见过祸国势力，”纳瓦罗说。”我看过它的眼睛。就是这些官僚，他们呆了很久了。是我们不该任命的人。
 > 
-> 这些州拥有2974个县。
-> 即使加上 “问题选票”，川普普赢得2496个县，拜登赢得477个。
-> 
-> 川普赢得了84%的美国，拜登 “赢得 “16%。
+> “雷克斯-蒂勒森（Rex Tillersons，美国工程师和能源高管，前川普手下第69任美国国务卿），吉姆-马蒂斯（Jim Mattises，前美国第26任国防部长），约翰-博尔顿（John Boltons，前第27任美国国家安全顾问）。这些人从来不相信川普的经济民族主义， 公平贸易，安全边界，也不重視美国制造业。”
 
 
-川普总统转发了这兩条推文。
+纳瓦罗先生转发了这篇文章。
 
-新闻素材和图片来自川普总统及其转发的推文推特
+图片和新闻来源
 
-
+[https://www.newsmax.com/politics/peter-navarro-deep-state-coup-election-fraud/2020/12/20/id/1002397/](https://www.newsmax.com/politics/peter-navarro-deep-state-coup-election-fraud/2020/12/20/id/1002397/)
 
 0
