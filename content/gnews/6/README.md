@@ -1,34 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《叛乱法》与《戒严法》的不同
-` pmzy` [轉載自GNews](https://gnews.org/zh-hans/671727/)
+## 《中国日报》代表辱骂彭佩奥“屎脸”，推特对此无动于衷
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/672995/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21001117/Trump-Visits-St-Johns-Church.jpg)
-昨晚深夜，**川普总统在推特上发文称：”戒严=假新闻”**。因为他知道《叛乱法》不是《戒严法》。
-
-此前，弗林将军、林伍德律师、鲍威尔律师和其他许多人的呼声越来越高，他们呼吁川普在发生明显选举舞弊的摇摆州，以有限的力量部署军队，查封选票和投票机。
-
-大多数美国人错误地将《叛乱法》等同于《戒严法》。**但川普更清楚两者的区别**：
+- 编辑：Victor Torres
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-> Martial law = Fake News. Just more knowingly bad reporting!
-> — Donald J. Trump (@realDonaldTrump) [December 20, 2020](https://twitter.com/realDonaldTrump/status/1340523944680583169?ref_src=twsrc%5Etfw)
+**西班牙2020年12月21日电/西喜社——**
 
+据《国家脉搏》20日报道，中国国营媒体《中国日报》（China Daily）欧盟分社社长陈卫华一再称美国国务卿迈克·蓬佩奥（Mike Pompeo）为推特上的“屎脸”(shit face)，暗示他应在关塔那摩湾军事监狱隔离。
+陈卫华是中国共产党的攻击狂犬。 他的“新闻”媒体是由共产党政权宣传部拥有和运营的。
+这个常任川普批评家对与中国共产党打交道方面有着良好记录的国务卿不屑一顾。
+声称想要建立“健康对话”的推特并没有采取任何行动来限制陈卫华的辱骂，而是授予了他一个经过验证的“ 蓝色认证” (blue check)按钮。 不清楚为什么陈卫华的同胞不被允许使用推特，而他却被验证了。
+推特一直在严厉审查保守派，并与中国军事代表一起参加会议，它雇用了与中国共产党有联系的个人。 推特还没有对陈卫华的帐户采取任何措施，包括删除其已验证的复选标记，并且也没有回应这些查询。
+在不到六个月的时间里，陈卫华给彭佩奥贴上了“屎脸”标签 12次。 其中三则推文涉及他庆贺彭佩奥即将离任政府的潜在前景，他在声明中宣布如果乔·拜登（Joe Biden）担任总统，中国政府将是“赢家”。
 
-
-**“戒严法 “描述的是宪法被中止**，民选官员不再负责，社会由军事将领管理的情景。
-
-**“叛乱法 **“指的是1807年由国会通过、总统批准的法律。**它完全是合宪、合法的**，历任总统至少援引过21次，也都没有出现类似 “戒严 “的情况。
-
-**川普总统可以援引《叛乱法》，部署军队保护选票和投票机，然后将这些军队从街道上撤走，所有这些都不需要援引任何形式的 “戒严法”。**
-
-在今天的《情况更新》（12月20日）中，我介绍了川普显然转向了一种完全不同的策略，即在不动用任何军队的情况下夺取选票和投票机。**这个平行的战略取决于任命一位新的特别顾问，他拥有广泛的权力，可以发出传票和刑事起诉书。**据报道，鲍威尔正是被考虑担任这一职务，我在播客中解释了所有原因。
-
-[Brighteon.com/937391ff-1849-49cd-b237-269d980ab75d](http://brighteon.com/937391ff-1849-49cd-b237-269d980ab75d)
-
-新闻来源：自然新闻
-原文链接：[https://www.naturalnews.com/2020-12-20-president-trump-tweets-martial-law-fake-news.html](https://www.naturalnews.com/2020-12-20-president-trump-tweets-martial-law-fake-news.html)
+新闻来源：[https://thenationalpulse.com/news/pompeo-ccp-media/](https://thenationalpulse.com/news/pompeo-ccp-media/)
 
 0

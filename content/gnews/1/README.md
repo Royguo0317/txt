@@ -1,36 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发：川普阵营向最高法院提交267页的复审申请
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/671739/)
+## 川普要求最高院推翻宾州选举案
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/673030/)
 
-翻译： 康州农场 – Antsee-GTV
+- 编辑：Victor Torres
 
-校对： 康州农场 – Mike Li
 
-编辑：康州农场 – Rose
-![A group of people holding flags
-Description automatically generated with medium confidence](https://lh3.googleusercontent.com/wfkqCBU2SfJzPBMWM3swzTp78pMvVgJsZRXMdokFNZh8Y0XUciJy3RrtyOwKxXoY94iF5PDrojXjLOBjMd1OW_molXNSq6sDia-gSqZidza5f09BdXDciw3ExT6AZsKoH9heqmHv4VPZn0ClJQ)
-**娜塔丽·温特斯     2020年12月20日**
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-川普竞选团队向美国最高法院提出了复审请求，要求推翻宾夕法尼亚州最高法院的三宗案件，暨“在2020年总统大选前后，宾夕法尼亚州非法更改了邮件投票的法规。”
+**西班牙2020年12月21日电/西喜社——**
 
-竞选团队的新闻稿称，（提交的）文件指称宾州的行为“违反了美国宪法第二条和布什诉戈尔案”，并且“代表竞选团队首次向美国最高法院提交独立文件，依据布什诉戈尔案中曾成功提出的宪法论点来寻求法院的帮助。 ”
+据Just the News周一报道，川普竞选团队要求美国最高法院撤销宾夕法尼亚州最高法院的一些决定。
+“川普总统竞选委员会主席唐纳德·J·川普今天提交了诉讼状，要求最高法院推翻宾夕法尼亚州最高法院的三起案件，这些案件在选举前后非法更改了宾夕法尼亚州的邮件投票法，违反了美国宪法第二条和‘布什诉戈尔案’。”川普律师鲁迪·朱利安尼（Rudy Giuliani）发表的竞选声明说。
+声明指出：“这代表竞选团队首次在美国最高法院，根据‘布什诉戈尔案’成功提出的宪法论点，独立进行诉讼和寻求救济。”
+川普总统尚未承认乔·拜登（Joe Biden），并表示2020年总统选举竞赛因欺诈而受污。
 
-“该请愿书跟在宾夕法尼亚州的一宗相关案件之后（提交），那件案件中，阿利托（Alito）大法官和另外两名法官注意到了宾夕法尼亚州最高法院判决[将法定投票接收期限从选举日的晚上8点延长到三天后的下午5点] 的合宪性问题……具有国家重要性，州最高法院的裁决很可能违反了联邦宪法，”新闻稿由朱利安尼（Rudy Giuliani）撰写。
-
-川普竞选团队进一步对请愿书进行解释，称请愿书“寻求所有适当的补救措施，包括撤消选举人团对约瑟夫·拜登的任命并允许宾夕法尼亚全体大会选择他们的替代者”：
-
-“竞选团队的请愿旨在推翻三项裁决，以剔除宾夕法尼亚州立法机构对邮寄选票欺诈的保护，包括：
-
-（a）禁止选举官员在选举日拉票期间检查邮件选票上的签名是否真实，
-
-（b）取消竞选团队在拉票期间对邮寄选票的伪造签名和其他违规行为进行质疑的权利，
-
-（c）所谓竞选团队拥有观察邮寄票选的权利，仅仅意味着他们只能被允许在“房间内”活动，而在此情况下，费城会议中心有几个足球场的大小，
-
-（d）废除选民需在选票上正确签名，填写地址和注明日期的法定要求。
-
-请愿书寻求所有适当的补救措施，包括撤消选举人团对约瑟夫·拜登的任命并允许宾夕法尼亚全体大会选择他们的替代者”。竞选团队同时争取（最高法院的）加急考虑，要求最高法院在12月23日前予以响应，并在12月24日前给予裁决回复，以便国会在1月6日召开会议对选举人团结果进行投票。
+新闻链接：[https://justthenews.com/politics-policy/elections/trump-campaign-wants-us-supreme-court-reverse-pennsylvania-supreme-court?amp&\_\_twitter\_impression=true](https://justthenews.com/politics-policy/elections/trump-campaign-wants-us-supreme-court-reverse-pennsylvania-supreme-court?amp&amp;__twitter_impression=true)
 
 0

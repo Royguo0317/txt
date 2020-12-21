@@ -1,43 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 20201217喜马拉雅东京樱花小学生团晚间新闻速报
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/671219/)
+## 说说CCP没有人性的强拆（一）
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/672605/)
 
-HTS-01C-202012-056
+撰稿人：2020抗争到底 审稿：Jenny
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21065326/%E5%9B%BE%E7%89%87-18.png)（网络图片）
+提到强拆，大部分人的第一反应，就是难以置信，认为现代社会不会存在这种野蛮行为。而实际上，在中共国内，强拆仍然是今天普遍存在的现象。不要说偏远地方，就连号称政治文化中心的北京，从2019年到现在此时此刻，正经历着一场大规模的所谓违建拆除的政治运动。
 
-喜马拉雅东京樱花团
+被强拆的“违建”大部分是多年前在北京郊区或山区由乡镇政府开发的所谓小产权住宅或别墅项目。这些项目通常选址深山老林，由地方乡镇政府牵头，以发展乡村或山区沟域经济为由兴建。当时大都受到地方政府极大的鼓励和支持，很多购买业主甚至被授予荣誉村民称号。然而，时过境迁，2007年中共国推出《中国人民共和国城乡规划法》后，这些项目的合法性转变一直被搁置，直到某位一尊的上台，这些项目同秦岭别墅一起，被一刀切的认定为“违建”。法理来讲，新颁布的法律是过往不究的，这些早年建设的房屋本应排除在“违建”之外。
 
-1、明治神宫取消每年元旦的通宵礼拜活动；
+几点误解：
 
-2、东京都知事小池百合子举行新闻发布会强调年底和新年必须阻止感染蔓延，将发布“新年疫情特别警报”；
+1.违建认定是有合法的流程的
 
-3、总务大臣武田良太郎呼吁NHK降低资费；
+大部分所谓“违建”认定都没有合法流程，通常只是政府上门贴一张限期拆除通知书，就被认定为违建。这里存在很多猫儿腻。比如通知书上通常提到根据xx年xx月xx日法院或国土局处罚决议xx号，认定该房屋为违建。但具体的处罚决议没有引用，也不提供查阅或调取。另外处罚对象通常是房屋开发商或建造者，而限期拆除是针对房屋所有者，这些都是极其明显有被法理的。
 
-4、山梨县推出GoTo的替代政策，对于县民，住宿可享5折优惠；
+2.强拆是有补偿的
 
-5、千叶县要求县内提供酒精的场所营业至晚上10点，并提供每天4w日元补贴；
+只要房屋被认定为“违建”，业主是一分钱补偿也拿不到的。
 
-6、官防长官加藤呼吁推迟忘年会的举办；
+3.房屋业主可以去法院申请行政复议走法律途径申诉
 
-7、日本决定在2025年前，将小学的班级人数控制到35人，目前为40人；
+完全没可能，政府与司法部门勾结，法院绝对不会受理。
 
-8、东京都12月17日有822人被确诊感染上CCP病毒。
+4.只要户主不走人，他们就不敢强拆
 
-以上新闻来源链接：
+一位拆迁队的主管曾经告诉过我，政府要真想拆你家，有一万种方法让你走人。什么断水断电，封路堵人，物资封锁，防控防疫，威逼利诱，分化瓦解，各种阴招损招应有尽有。
 
-[https://news.yahoo.co.jp/articles/959ea0d825a87ca29061537de087ec5172bbe487](https://news.yahoo.co.jp/articles/959ea0d825a87ca29061537de087ec5172bbe487)
+那么买这些房产的都是什么人？如果您认为都是有钱人那就大错特错了。通常，这些乡村住宅或山区别墅项目的购买者，绝大部分是辛苦了一辈子的老人，他们耗尽毕生积蓄，花费几十万上百万，本想换个远离城市喧嚣的住所，种种花，养养草，听听鸟鸣，安度一下晚年，却不曾想到，他们这些对美好生活的向往，却招来了灭顶之灾。
 
-[https://news.yahoo.co.jp/articles/c69c63405dff96d5ff5b2e7b054a7493d905ad91](https://news.yahoo.co.jp/articles/c69c63405dff96d5ff5b2e7b054a7493d905ad91)
+(未完待续)
 
-[https://news.yahoo.co.jp/articles/c7bc12bfb6090681a9cabd80c7731bb4275e4692](https://news.yahoo.co.jp/articles/c7bc12bfb6090681a9cabd80c7731bb4275e4692)
+(本文仅代表作者个人观点)
 
-[https://news.yahoo.co.jp/articles/db82cda7b383b5e450139034ed30b330d05024df](https://news.yahoo.co.jp/articles/db82cda7b383b5e450139034ed30b330d05024df)
+编辑：文远Bruce
 
-[https://news.yahoo.co.jp/articles/298aabb282e2885cc30088efaf8d5d842bece73d](https://news.yahoo.co.jp/articles/298aabb282e2885cc30088efaf8d5d842bece73d)
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
 
-[https://news.yahoo.co.jp/articles/6063704a24687acde255b390160556dd3217d50f](https://news.yahoo.co.jp/articles/6063704a24687acde255b390160556dd3217d50f)
-
-[https://news.yahoo.co.jp/articles/f7b8a6b84ccb1d32024dc676caeb1b090cff8572](https://news.yahoo.co.jp/articles/f7b8a6b84ccb1d32024dc676caeb1b090cff8572)
-
+[【澳喜文章】](https://gnews.org/zh-hans/author/aujenny/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040800/IMG_1836-1.jpg)
 0

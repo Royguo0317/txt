@@ -1,20 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【Jenna Ellis推文1220】共和党人不代表宪法支持者
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/671257/)
+## 日本史上最高国防预算5.34兆抗衡中共扩军
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/672541/)
 
-12月20日Nationally Syndicated广播主播 Toddstarnes 转发新闻称，“田纳西州的州长共-和党人签署了限制室内公共集会不超过10人的命令。共和党州长…”
+台湾农场(筹备) Amitofu
 
-Jenna Ellis 律师回复称，“共和党人不代表宪法支持者。”（由于中共对美国政界的渗透，很多共和党人纷纷叛变政党主张，甚至背叛国家，在大选中曝光的舞弊案件比比皆是。因此美国爱国者们展开了保卫宪法、不分党派的爱国者之战。）
+法新社21日报导日本政府内阁会议通过2021年度预算案，是史上最高的年度总预算案，包括编列振兴方案刺激遭疫情重创的经济，加上日本正面临中国不断升高的威胁，并再度调高国防支出抗衡中国。一般会计总额高达106.6097兆日圆预算，连9年创历史新高，包含5兆疫情对策预备费，创新高的老龄化社会保障费35.8421兆，其中国防预算部分编列5.34兆，增长1.1%。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21062001/image-214.png)图片来源:岸信夫推特
+由于目前日本和中国潜艇相比，在20年内新锐的现代潜艇日本为20艘，中国为52艘。 日本现代驱逐舰和护卫舰数量为48艘，中国为67艘。 第4代和第5代战斗机数量日本为309架，中国为1080架。在经济实力和军事扩张计划的情况下，这种差距将来可能会进一步扩大。国防预算创新高的原因在防卫省下年度预算中，将列入引进建造2艘配备神盾飞弹防御系统的驱逐舰计划，同时洛克希德·马丁与日本三菱重工业合作开发F-2战机的后继机种F-3战机，预计在2030年代中期展开服役，以及研发新型反舰飞弹保卫冲绳西南岛链等预算。本文仅代表个人立场
+资料来源:[https://newswitch.jp/p/25143](https://newswitch.jp/p/25143)
+
+- [https://news.ltn.com.tw/news/world/breakingnews/3387429](https://news.ltn.com.tw/news/world/breakingnews/3387429)
 
 
-
-> Republican doesn’t mean constitutionalist. Ugh. [https://t.co/7QJxspuEeR](https://t.co/7QJxspuEeR)
-> — Jenna Ellis (@JennaEllisEsq) [December 21, 2020](https://twitter.com/JennaEllisEsq/status/1340832897763176451?ref_src=twsrc%5Etfw)
-
-
-
-新闻来源 Jenna Ellis 推文, 图片来源 nytimes.com
-
-1+
+0

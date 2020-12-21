@@ -1,57 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鲍威尔律师推文1220】-保卫国家捐款
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/670955/)
+## 中共大荒之年，血荒再起
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/672259/)
 
-前日爆出鲍威尔律师由于起诉大选舞弊犯罪，和即将被川普总统任命为特别检察官，正在遭到威胁和承担巨大诉讼费。
+作者：Ave liu(老刘)
 
-2020年12月20日网友在网站Defending The Republic （保卫共和国）网站上发起捐款号召。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21035457/4460ab72bb6cdf2384c11d8bfcfad8bb.png)图片源自网络
 
+大纪元2020年12月15日的一篇报道中提到：“中国闹血荒 ，基层发通告强制摊派献血。近日，中国各地号召市民、高校学生进行献血活动。今年10月初，湖南耒阳市教育局为了完成献血任务，以下发《通知》的方式将无偿献血工作纳入学校年度考核范畴，对任务完成不好的学校将给予适当扣除绩效考核分。而对于教育局机关单位的官员和公务员，则拥有“自愿献血”的特权。据陆媒透露，在无偿献血者的构成中，官员、公务员的比例一直偏低。”
 
-> 网友愤怒疾呼：
-> 
-> “窃取你的国家？
-> 
-> “你生气了吗？
-> 
-> “做一些事情吧!
-> 
-> “捐献到 [https://defendingtherepublic.org](https://defendingtherepublic.org)
+这篇报道让我想起我亲眼见证过的一个寻求血源救命的真实的故事：记得那是2011年，一位母亲因肾功能衰竭造成极度贫血，危及到生命，医生告诉患者家属说：医院不能提供血浆，家属要自己去解决。这位母亲的女儿含着泪，忍受着愤怒、无奈、无助，花大价钱，找关系，买到了400cc血浆，暂时救了母亲的命。然而，作为普通百姓，哪有那么多钱长期靠去买血浆救母亲呢！即使有钱，到哪去找那么多血源呢！不久，这位母亲便撒手人寰了。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21041236/download-4.jpg)图片源自网络
 
+然而，中南坑里的那些喝百姓的血，吃百姓的肉的魔头们，为了续他们的鬼命，用年轻军人的血提炼血清，每天注射，延年益寿。却不知这个所谓的“共产”社会中，有多少像那位母亲一样的人，需要血源救命啊！
 
-> “西德尼-鲍威尔是风口浪尖的人。她正在为 “我们人民 “英勇战斗，她是与 “Deep State” 斗争的顽强战士。支持她，成为历史的一部分.
+中国的百姓们，觉醒吧！中共的恶举不胜举！没有一个良性的，利民的医疗机制，中国的血库不会有充足、安全的血源给老百姓用的；这个邪魔恶党也不会为老百姓去建立一个好的医疗体制；在他们眼里，中国的老百姓不过是他们的粮仓和钱袋子而已！在他们心里，中国的老百姓不过是用最少的、最差的食物，最好喂养，最容易满足，最容易被忽悠的奴隶而已！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21041859/2006-4-21-evilccp-01.jpg)图片源自网络
+中国的老百姓，觉醒吧！不要自嗨了！中共病毒瘟疫，中共水灾、蝗虫，中共的失业大潮，即将到来的中共粮灾等等等等等等，还没受够吗？
 
+[援引](https://www.epochtimes.com/gb/20/12/14/n12620480.htm)
 
-鲍威尔律师转发了这一则推文。
-
-
-
-> Steal your country? 
-> 
-> Are you angry yet? 
-> 
-> Do something about it! 
-> 
-> DONATE to [https://t.co/xEjYa04CUH](https://t.co/xEjYa04CUH)
-> 
-> Sidney Powell is the tip of the spear. She is valiantly fighting for 'We the People', she is a tenacious warrior fighting the Deep State. Support her and become part of history!
-> — AUDIT ALL FIFTY STATES, URBANPATRIOT (R)-TX (@Urbanpatriot1) [December 20, 2020](https://twitter.com/Urbanpatriot1/status/1340767328636706818?ref_src=twsrc%5Etfw)
-
-
-
-在BBC World 的分析员Hizbullah Khan的推文中，视频中的鲍威尔律师表示，大选舞弊的海量证据可以把那些人送进监狱，需要时间和合适的方式，我们正在做，正在证实大选舞弊犯罪。主持人说，那么我最害怕的就是，您正在建立最大的诉讼案，如果您所说的25%是真实的，那么这就是美国历史上最大的犯罪。
-
-
-
-> .[@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw): We are in the process of proving the election fraud against [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw). [pic.twitter.com/Z7Pddrvpwg](https://t.co/Z7Pddrvpwg)
-> — Hizbullah Khan (@HizbkKhan) [December 20, 2020](https://twitter.com/HizbkKhan/status/1340763497685262340?ref_src=twsrc%5Etfw)
-
-
-
-新闻素材和图片来自鲍威尔推特
-
-
-
-1+
+2+

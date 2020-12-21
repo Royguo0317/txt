@@ -1,9 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/18/2020 福林将军：外国势力对我们的选举安全和SolarWinds系统的干预是极其危险的, 我们必须对此采取更多的行动
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/671577/)
+## 【川普总统推文1221】-宾州大新闻
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/672834/)
 
-By: 【秘密翻译组G-Translators】
+12月21日：
+
+
+> “宾夕法尼亚州传出大新闻。非常大量的非法选票无法解释。被操纵的选举！”
+
+
+新闻素材和图片来自川普总统推特
+
+
+
+> Big news coming out of Pennsylvania. Very big illegal ballot drop that cannot be accounted for. Rigged Election!
+> — Donald J. Trump (@realDonaldTrump) [December 21, 2020](https://twitter.com/realDonaldTrump/status/1340996686257254403?ref_src=twsrc%5Etfw)
+
+
 
 0
