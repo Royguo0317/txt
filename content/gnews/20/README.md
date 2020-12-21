@@ -1,36 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【文辉七日谈】灭共的道路上我们不会迷失
-` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/672912/)
+## 12/21/2020 财经快讯：美国国会议员支持拨款19亿美元以取代华为、中兴通讯的电信设备
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/672968/)
 
-作者：美国纽约七星会农场｜文辉
-![]()![](https://www.gnews.org/wp-content/uploads/2020/12/文輝七日談2.jpg)
-美国大选已经进入了最后的刺刀见红阶段了，也进入了郭先生所说的由“滑”到“稽”阶段。现在不止是全世界的宗教领袖界背弃信仰、主流媒体界背弃真相、医药科学界背弃医者仁心、法律界背弃宪法、政治界背弃国民、商界背弃诚信，更甚者我们看到川普总统身边的朋友、盟友和战友们也背弃基本道德人性来站队黑暗势力支持下的中共傀儡拜登，人性的丑陋在这场灭共终极之战的前哨战——美国大选中表露无遗，让全世界信仰正义真善的人们三观尽碎。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21091736/Picture11-2.png)图片来源： [https://www.reuters.com](https://www.reuters.com/article/usa-internet-congress-idUSKBN28U0MC)
+1.两位知情人士周日表示，美国国会议员预计将批准19亿美元，用于资助一项旨在拆除对国家安全存在威胁的中国华为、中兴等电信网络设备的计划。这将作为年终支出法案和新冠救助法案的一部分。
+[https://www.reuters.com/article/usa-internet-congress-idUSKBN28U0MC](https://www.reuters.com/article/usa-internet-congress-idUSKBN28U0MC)
 
-自郭先生发起爆料革命运动也已经快四年的时间了，爆料革命战友们也见证了各色人等对郭先生的背叛。
+2.美国政府日前将全球最大的无人机制造商之一大疆列入贸易黑名单，认为该公司在中国侵犯人权的事件中发挥了作用。
+[https://www.bbc.com/news/technology-55367163](https://www.bbc.com/news/technology-55367163)
 
-一些人是带着分爆料革命一杯羹的想法来接近郭先生的，一旦得不到好处就反戈一击，这些人主要以“东京爆协”等海外民运为代表；
+3.涉嫌在中共授意下利用职务之便中断破坏纪念六四视频会议，Zoom高管被起诉。
+[https://www.breitbart.com/tech/2020/12/19/feds-zoom-executive-interrupted-meetings-at-direction-of-chinese-communist-govt/](https://www.breitbart.com/tech/2020/12/19/feds-zoom-executive-interrupted-meetings-at-direction-of-chinese-communist-govt/)
 
-一些是一开始就带着潜伏进来的，有些像鸡腿潘和inty那样很早就暴露出来，有些像螃蟹那样对爆料革命造成了一定的伤害之后才被发现；
+4.中国前财政部长楼继伟建议，中国可以限制单个金融科技平台可以合作的银行数量，从而防止任何平台获得过多的市场份额。
+[https://mobile.reuters.com/article/amp/idUSKBN28U05C?\_\_twitter\_impression=true](https://mobile.reuters.com/article/amp/idUSKBN28U05C?__twitter_impression=true)
 
-还有一些其实也是我们的战友，他们也一直坚持着灭共的决心和目标，但是因为没有秉持郭先生一直提倡的无私无我精神和对自我道德品质的要求，并随着自己的功劳越来越大慢慢的想绑架爆料革命作为自己获得利益的工具，与正道主义渐行渐远。对于这样的战友我们有太多的惋惜，也体会到了郭先生节目中说到的心里在滴血的疼痛感。
+5.川普团队向最高法院提交了267页的复审申请。旨在推翻宾夕法尼亚州最高法院的三项决议。这些决议在大选前后非法的改变了宾夕法尼亚州的邮寄投票法，从而削弱了宾夕法尼亚州立法机构对邮寄选票欺诈的保护措施。
+[https://thenationalpulse.com/breaking/trump-supreme-court-petition/](https://thenationalpulse.com/breaking/trump-supreme-court-petition/)
 
-在这场正邪终极之战、灭共终极之战中，我们爆料革命战友和川普总统团队同样经历着健身健心的双重修炼。战友们要跟着郭先生在灭共的正道主义上走下去，至少应该对自己有两个定位。
+【秘翻组金融团队-Rosy Cloud】
 
-首先是在个人能力上，我们要根据自己的特长和实力做适合自己的灭共具体事宜，各司其职不要为了争名夺利而造成对爆料革命和郭先生的伤害。一直以来我们愿意跟随在郭先生周围是因为他強大的个人能力，坚定的灭共決心，能够团结众人依靠众人的宽广胸怀，以及对灭共当中和以后都有一个完整系统的规划。
-
-其次在个人信念上，我们应当是带着自己的灭共初心来参与郭先生的灭共喜马拉雅之路的，我们在信念上应当把自己定位为郭先生的支持者、跟随者。
-
-灭共的路上有着各种艰难险阻、沼泽暗冰，请战友们抛弃杂念、继续秉持郭先生提倡的真善狠标准下的正道主义，相互扶持、相互依靠，只有这样我们才能一起攀登上灭共喜马拉雅的山巅。
-
-只有灭共才能帮助排干黑暗沼泽，只有灭共才能消灭CCP病毒，只有灭共人类才能重新构建信仰的世界，只有灭共人类才有未来和希望。
-
-更多精彩内容请关注：
-
-- [美国纽约七星会农场（为子孙爱七哥）官推](https://twitter.com/wzsaqg)
-- [美国纽约七星会农场（为子孙爱七哥）GTV](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
-- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
-
-![]()![](https://www.gnews.org/wp-content/uploads/2020/12/七星会底栏-2.jpg)
-1+
+0

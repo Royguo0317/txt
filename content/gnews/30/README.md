@@ -1,24 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 纳瓦罗：我见过“深层政府”，美国面临深重困境
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/672846/)
+## 【热点播报】英国发现高传染性新冠变异病毒，英国首相鲍里斯·约翰逊将于12月21日举行紧急会议
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/672852/)
 
-- 编辑：Victor Torres
+作者：香草山写作组 Naughty 校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14092131/GNEW-GTV-MOS-LOGO-2.jpg)
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2020年12月21日电/西喜社——**
+12月21日，据CNN报道，随着世界各国政府加紧遏制一种可能快速传播的新型冠状病毒变异体，英国首相鲍里斯·约翰逊预计于周一主持部长级紧急会议。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21083615/Screen_Shot_2020-12-21_at_8.24.06_AM.png)图片来源：CNN
+由于这种新型冠状病毒变异体首先在英国被发现，各国陆续开始限制来自英国的航班，英国飞往欧洲大部分地区和世界其他地区的航班被切断。
 
-据Newsmax 周日报道，白宫贸易和制造业总监彼得·纳瓦罗（Peter Navarro）当天表示，唐纳德·川普总统一直在与共和党和民主党的“深层政府”进行长期斗争，现在不公正，不自由的选举可能最终做掉他。
-纳瓦罗（Navarro）在发表了长达36页的题为“完美的欺骗”的报告后，在WABC 770 AM-N.Y上对《猫圆桌会议》说：“如果我们不能进行公正的选举，那么这个共和国就不会成立。”
-纳瓦罗说：“如果我们在就职典礼那天得到一个未澄清非法选票的违法的乔·拜登总统，那么这个国家将根据处理这件事的方式而成就或毁灭自身。 目前，我们对我们的机构会处理得很好还没有很高的信心。
-“这是一个需要调查的问题，否则这个国家将陷入深重的困境。”
-纳瓦罗指出，川普是一名政治局外人，在共和党和政府内的民主党人的“深层政府”中都有敌人，他们都是寻求维持自己的权力和权威的职业官员。
-纳瓦罗说：我已经看到了‘深层政府’。” “我一直在看着它。正是这些在我们到来之前就存在很久，并且将在我们离开之后继续存在的官僚。但是，也有一些我们原本不应该任命的人。
-“雷克斯·蒂勒森一家，吉姆·马蒂斯和约翰·博尔顿一家：那些从不真正相信川普经济民族主义，公平贸易，安全的边界以及对美国制造业的重视的人们。”
+在周六紧急召开的新闻发布会上，约翰逊表示，新变异体的传染性比之前的新冠病毒高出70%，这导致伦敦和英格兰东南部病例大幅增加。约翰逊说，将会对这些地区加紧封锁。
 
-新闻链接：[https://www.newsmax.com/t/newsmax/article/1002397?section=politics&keywords=peter-navarro-deep-state-coup-election-fraud&year=2020&month=12&date=20&id=1002397&oref=t.co](https://www.newsmax.com/t/newsmax/article/1002397?section=politics&amp;keywords=peter-navarro-deep-state-coup-election-fraud&amp;year=2020&amp;month=12&amp;date=20&amp;id=1002397&amp;oref=t.co)
+这些限制措施将会给本已在新冠病毒阴影下的圣诞节带来新的不利影响。随着北半球冬季的到来，从亚洲到欧洲的各国政府都再次加强了社交距离等管控，并重新采取了封锁措施，以应对Covid-19病例的激增。
 
-1+
+据报道，在英国以外，丹麦、意大利、荷兰和澳大利亚均已经发现了新型冠状病毒变异体。
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+0
