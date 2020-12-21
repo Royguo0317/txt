@@ -1,31 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 鲍威尔:中共及其买通的人发动了政变
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/670769/)
+## 美舰穿航台湾海峡遏止中共航空母舰
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/671152/)
 
-- 编辑：Victor Torres
+台湾农场(筹备) Amitofu
 
+国防部证实12月18日晚间，美国海军第七舰队伯克级神盾驱逐舰马斯廷号（USS Mustin DDG-89）穿航台湾海峡，并强调美国对于印太区域自由与开放的承诺。美国军舰今年第12度航经台湾海峡，11月21日美国军舰贝瑞号也曾经由北向南穿航台湾海峡后持续向南航行。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/ddg89-3-315x225.jpg)圖片來源:第七艦隊官網
+国防部指出，美舰经台湾海峡南驶期间，国军运用联合情监侦系统全程掌握周边海、空域相关动态，并派遣海军各型舰船6艘、空军各型机8架次，担任警戒监控任务。于此同时，中共山东号航空母舰(CV-17)及所属护卫兵力4艘，自辽宁大连港启航南驶，20日航经台湾海峡后续向南航行。这是山东舰于去年12月26日穿越台湾海峡后的第二次。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+中共企图在川普总统过渡期间，利用解放军武力犯台来解决共产党内部派系斗争，川普政府自上任以来，以实际军购和战略规划协防台湾，向中共表态捍卫台湾的决心，美国政府根据《台湾关系法》《六项保证》帮助台湾增强军事作战防御能力。美国国防部也多次强调会持续增强台湾军方的防御能力，支持其任务和作战需要，为维护台湾的和平与稳定做出努力。本文仅代表个人立场
 
-**西班牙2020年12月20日电/西喜社——**
+资料来源[https://news.ltn.com.tw/news/politics/breakingnews/3386429](https://news.ltn.com.tw/news/politics/breakingnews/3386429)
 
-鲍威尔周日发推说:
-“川普或任何代表他的人没有关于军事政变的讨论。
-这是假新闻。
-总统是守法的爱国者
-人们说包括他周围的人都是骗子。
-政变是由中共及其所有买通的人发动。”
-
-
-
-> There was/is no discussion of a [#militarycoup](https://twitter.com/hashtag/militarycoup?src=hash&amp;ref_src=twsrc%5Etfw) by [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) or anyone on his behalf. [#FakeNews](https://twitter.com/hashtag/FakeNews?src=hash&amp;ref_src=twsrc%5Etfw)
-> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) is a law-abiding [#Patriot](https://twitter.com/hashtag/Patriot?src=hash&amp;ref_src=twsrc%5Etfw)
-> People saying that including those around him are liars. 
-> The [#coup](https://twitter.com/hashtag/coup?src=hash&amp;ref_src=twsrc%5Etfw) is by [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) & all people it has bought[@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) [@LLinWood](https://twitter.com/LLinWood?ref_src=twsrc%5Etfw) [@Scavino45](https://twitter.com/Scavino45?ref_src=twsrc%5Etfw) [pic.twitter.com/jyShtVPvk9](https://t.co/jyShtVPvk9)
-> — Sidney Powell 🇺🇸⭐⭐⭐ (@SidneyPowell1) [December 20, 2020](https://twitter.com/SidneyPowell1/status/1340746407981035521?ref_src=twsrc%5Etfw)
-
-
-
-1+
+0
