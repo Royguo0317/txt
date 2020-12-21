@@ -1,17 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德社】【精华版粤语快报】12.19：爆料：某内部人士拿到了习近平的内部讲话录音
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/673026/)
+## 川普要求最高院推翻宾州选举案
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/673030/)
 
-制作团队：wen fei、一帘幽梦、文恩
+- 编辑：Victor Torres
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-摘要:
+**西班牙2020年12月21日电/西喜社——**
 
-川普总统在白宫会见了鲍威尔律师。川普总统在白宫会见了福林将军和白宫高级行政官员，朱利安尼通过电话也参与了讨论，。某内部人士拿到了习近平的内部讲话录音，习近平明确表示要在2021年1月6号之前让川普总统消失。
+据Just the News周一报道，川普竞选团队要求美国最高法院撤销宾夕法尼亚州最高法院的一些决定。
+“川普总统竞选委员会主席唐纳德·J·川普今天提交了诉讼状，要求最高法院推翻宾夕法尼亚州最高法院的三起案件，这些案件在选举前后非法更改了宾夕法尼亚州的邮件投票法，违反了美国宪法第二条和‘布什诉戈尔案’。”川普律师鲁迪·朱利安尼（Rudy Giuliani）发表的竞选声明说。
+声明指出：“这代表竞选团队首次在美国最高法院，根据‘布什诉戈尔案’成功提出的宪法论点，独立进行诉讼和寻求救济。”
+川普总统尚未承认乔·拜登（Joe Biden），并表示2020年总统选举竞赛因欺诈而受污。
 
-[【路德时评】原视频链接](https://youtu.be/5kUv-mpyeGc)
+新闻链接：[https://justthenews.com/politics-policy/elections/trump-campaign-wants-us-supreme-court-reverse-pennsylvania-supreme-court?amp&\_\_twitter\_impression=true](https://justthenews.com/politics-policy/elections/trump-campaign-wants-us-supreme-court-reverse-pennsylvania-supreme-court?amp&amp;__twitter_impression=true)
 
 0
