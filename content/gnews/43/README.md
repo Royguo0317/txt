@@ -1,77 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 杜绝中共渗透，美国国务院力推教育改革
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/669817/)
+## 大卫作战室观点12月18日-英国伦敦喜庄园出品
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/670655/)
 
-新闻来源：Campusreform《校园改革》； 作者：阿什莉·卡纳汉（Ashley Carnahan）； 发布时间：2020年12月16日
+[!\[\]()!\[\](https://spark.adobe.com/page/oouDynSm2dSU6/images/01d25a7c-11ea-4ea5-8526-6d97e702df9b.jpg?asset_id=d4a3ab17-69d1-4098-92e9-b52fa689ae99&amp;img_etag=%22ee30c1aa3aecdb61d55343d323d5192c%22&amp;size=2560)](https://spark.adobe.com/page/oouDynSm2dSU6/images/01d25a7c-11ea-4ea5-8526-6d97e702df9b.jpg?asset_id=d4a3ab17-69d1-4098-92e9-b52fa689ae99&amp;img_etag=%22ee30c1aa3aecdb61d55343d323d5192c%22&amp;size=1024)
 
-翻译/简评：随波逐流；校对：X-Wing飞得更高；审核：万人往；Page：拱卒
-[!\[\]()!\[\](https://spark.adobe.com/page/7Dz4kg03dlxjH/images/6d233fe4-9ed5-4b4a-8b95-c54240894407.jpg?asset_id=3193d644-7a4e-47fc-8f74-d5dc993e061e&amp;img_etag=%225c72d344745ed376111d16414fffff62%22&amp;size=1024)](https://spark.adobe.com/page/7Dz4kg03dlxjH/images/6d233fe4-9ed5-4b4a-8b95-c54240894407.jpg?asset_id=3193d644-7a4e-47fc-8f74-d5dc993e061e&amp;img_etag=%225c72d344745ed376111d16414fffff62%22&amp;size=1024)
-**简评：**
+# **2020年12月18日【大卫作战室观点】**
 
-美国国务院最新报告阐述了中共国欲主导世界和改变世界秩序，从而给美国带来的威胁，并说中共正利用美国的教育机构来成就自己的这一使命。这份题为“中共国挑战要素”的报告给出美国为了“守护自由”必须完成的十项任务，要求加强与盟友的安全合作。报告解读了中共通过出资在世界各地大学中建立孔子学院搞宣传渗透，扭曲真相丑化美国，全面颠覆美国的建国理念和宪法传统。为了应对这些，美国认为必须要进行教育改革，提高全民意识，重新认识“独立宣言”的宝贵内涵，发挥高等教育和大学的影响力，担负起公民责任以适应复杂的国际环境的需要。
+*主播：大卫、 Mary 、Stella*
 
-一直以来，中共不断利用金钱收买美国的高等教育机构，使他们不但不批评自己，而且还能遵照中共的行事原则帮中共达成目标。很多学者专家也违背原则为中共站台，为他们编写剧本迷惑世人，壮大了中共推广其共产集权和称霸世界的野心。美国当前的高等教育机构在中共的影响下，已严重阻碍国家推行应对中共的严苛政策，影响了美国对中共的作战部署，改革势在必行。
+*整理：乐禧禧；制作:CharlesS；Page: 赞赞*
 
-#### **原文翻译：**
+[!\[\]()!\[\](https://spark.adobe.com/page/oouDynSm2dSU6/images/9de68e28-9f95-4b9d-8490-df455500a5fe.jpg?asset_id=f3632716-d5ff-43ae-81d1-6b84ef592da5&amp;img_etag=%2289bda2b7676b0965a60d8b1c1f563666%22&amp;size=2560)](https://spark.adobe.com/page/oouDynSm2dSU6/images/9de68e28-9f95-4b9d-8490-df455500a5fe.jpg?asset_id=f3632716-d5ff-43ae-81d1-6b84ef592da5&amp;img_etag=%2289bda2b7676b0965a60d8b1c1f563666%22&amp;size=1024)
 
-# 美国国务院：美国高等教育破坏了打击中共的努力
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7Dz4kg03dlxjH/images/02d669ab-64a0-4b02-990d-4173ca7855b2.jpg?asset_id=0ad59f4e-4c2e-4b28-9d2b-1c949f2f55fc&amp;img_etag=%2268ead8fea1b67b4e1ffb06fb3ef600fa%22&amp;size=1024)](https://spark.adobe.com/page/7Dz4kg03dlxjH/images/02d669ab-64a0-4b02-990d-4173ca7855b2.jpg?asset_id=0ad59f4e-4c2e-4b28-9d2b-1c949f2f55fc&amp;img_etag=%2268ead8fea1b67b4e1ffb06fb3ef600fa%22&amp;size=1024)
 
-美国国务院最新报告概述了美国如何应对作为一个全球超级大国中共国的崛起，以及共产主义国家欲“改变世界秩序”的威胁，并指出美国的高等教育机构正在被利用来成就中共国的使命。
+[👉GTV精彩回看链接1](https://gtv.org/video/id=5fdd2143c0544c3d972bae01)
 
-这份题为“中共国挑战要素”的报告给出了美国为了“守护自由”必须完成的十项任务。
+[👉GTV精彩回看链接2](https://gtv.org/video/id=5fdd2ee4c0544c3d972bbebe)
 
-该报告指出：“中共不仅着眼于在既定的世界秩序中占主导地位 —- 即一种建立在自由和主权民族国家基础上的秩序，它源于美国所建立的普遍原则，并促进了美国的国家利益 —- 而且想从根本上改变世界秩序，从而以中共国为中心，服务于北京的专制目标和霸权野心。”
+## *彼得纳瓦罗已经到来，为何情报总监报告推迟*
 
-该报告称，美国必须努力维护其宪政、促进繁荣、建立“一个健全的公民社会”，并指出这对于应对该国的外来挑战是“必不可少的”。
+- 彼得纳瓦罗出了36页的报告，此报告代表白宫层面，对大选摇摆州至今还在发生的事情作出报告。
+- 情报总监报告推迟，是力量的较量。
+- Deep states， FBI， CIA都把干预大选矛頭指向俄罗斯？！
+- 拉德克里夫的报告推迟，绝对是共产党在后面做工作！
 
-此外，报告说，美国需要维持“世界上最强大、最敏捷、技术最先进的军事力量，同时本着共同利益和共同责任，加强与盟友和伙伴的安全合作。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7Dz4kg03dlxjH/images/0272ba9c-2d6f-4d01-8590-ad1c7005e9e9.jpg?asset_id=ed49e2c5-9bbb-4de5-a457-2446a681628b&amp;img_etag=%22e4f0695f0bd89b080d50b20a155305b0%22&amp;size=1024)](https://spark.adobe.com/page/7Dz4kg03dlxjH/images/0272ba9c-2d6f-4d01-8590-ad1c7005e9e9.jpg?asset_id=ed49e2c5-9bbb-4de5-a457-2446a681628b&amp;img_etag=%22e4f0695f0bd89b080d50b20a155305b0%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/oouDynSm2dSU6/images/79657dd6-0354-4358-9c55-beb3becc4277.png?asset_id=99ea16e9-1305-45bd-8efd-c90e0f20f68c&amp;img_etag=%22d67551a7813f43fba4234282d01a5477%22&amp;size=2560)](https://spark.adobe.com/page/oouDynSm2dSU6/images/79657dd6-0354-4358-9c55-beb3becc4277.png?asset_id=99ea16e9-1305-45bd-8efd-c90e0f20f68c&amp;img_etag=%22d67551a7813f43fba4234282d01a5477%22&amp;size=1024)
 
-该报告指责中共国利用美国的大学从事宣传活动。
+## *中国战狼外交的后果*
 
-报告称：“ [中共国]通过秘密资助协议，在美国和其他国家的大学里大量资助专门从事中共宣传的孔子学院，迫使这些机构在避免批评中共国的同时，反而遵守中共的目标。”
+- 自贸易战后，共产党开始了战狼外交Wolf Warrior Diplomacy。
+- 在中共的国防发布会，军方的情报全是对着台湾。
+- 当美军盟军出手时，中共以国内新闻一面倒的方式将美国盟军灭共的事实掩盖。
+- 把国家遭受军事冲突、卷入战争的责任推卸给美国盟军和国际社会。
 
-该报告还指出，美国“必须对美国公民进行教育，让他们了解有关中共国挑战的范围和影响，因为只有全民的认知才有望支持美国为了守护自由而必须采取一系列苛刻政策。”
 
-此外，该报告详细说明了全国高等教育和大学在如何打造美国方面所发挥的影响力和效果。
+[!\[\]()!\[\](https://spark.adobe.com/page/oouDynSm2dSU6/images/c75fcdf8-abc8-48a5-bd08-91fb97a5eb9c.png?asset_id=2b14272d-08ee-4318-98de-a610b492bca5&amp;img_etag=%22ada560ab4eeac8ae04f143f12b37cca5%22&amp;size=2560)](https://spark.adobe.com/page/oouDynSm2dSU6/images/c75fcdf8-abc8-48a5-bd08-91fb97a5eb9c.png?asset_id=2b14272d-08ee-4318-98de-a610b492bca5&amp;img_etag=%22ada560ab4eeac8ae04f143f12b37cca5%22&amp;size=1024)
 
-报告指出：“险恶的外国势力试图在美国制造不和。美国的小学、中学、高中以及学院和大学不得不令人沮丧地放弃了对美国的建国理念和宪法传统的介绍，转而支持旨在诋毁美国的宣传。”
+## *美国核武机构遭大規模网络攻击*
 
-为了应对这个问题，该报告认为美国必须“收回自己的自由遗产。”
+- 因SolarWinds这间公司，美国核武器机构、几个州包括美国财政部被黑客入侵。
+- SolarWinds的软件程序安装了恶意代码。
+- 奥巴马政策阉割了网络部隊。
+- SolarWinds的公司股东是与克林顿基金和美国验证选举公司有关。
 
-它解读道：“面对这些两极分化的力量，美国必须收回自己的自由遗产。要开始重新认识到被载入《独立宣言》的持久原则 — 即所有人被赋予了不可剥夺的权利，政府的主要宗旨是确保这些权利，而且所有合法的政治权力都源于被统治者的许可。”
 
-[相关：教授在中资媒体上发表文章，分享中共的宣传]
+[!\[\]()!\[\](https://spark.adobe.com/page/oouDynSm2dSU6/images/ac93450d-f170-48c8-97d5-0e27cd1dbda9.png?asset_id=4a75ba56-44fd-4dbb-b630-d72167ca0c88&amp;img_etag=%22fe9899783a5d5bd12245a2852b0a871d%22&amp;size=2560)](https://spark.adobe.com/page/oouDynSm2dSU6/images/ac93450d-f170-48c8-97d5-0e27cd1dbda9.png?asset_id=4a75ba56-44fd-4dbb-b630-d72167ca0c88&amp;img_etag=%22fe9899783a5d5bd12245a2852b0a871d%22&amp;size=1024)
 
-最后，为了与中共国作战，国务院经论证认定必须对美国的教育进行“改革”。
+编辑【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/oouDynSm2dSU6/)
 
-报告解读：“美国必须改革美国人的教育，培养学生通过了解美国的自由传统，担负起在自由民主的社会中公民的持久责任，而且使他们学到的在科学、技术、工程和数学方面的专业知识能够满足一个复杂的、信息时代下的、全球化经济的特殊需要。”
+**[👉点击关注大卫作战室Parler](https://parler.com/profile/David008/posts)**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7Dz4kg03dlxjH/images/d7205d10-a5f4-4a77-8ab9-467d3f65fe01.jpg?asset_id=98e18282-0206-4c0b-9dee-93b0c040ce53&amp;img_etag=%22709b36ead65b73d352e4f753d06d8710%22&amp;size=1024)](https://spark.adobe.com/page/7Dz4kg03dlxjH/images/d7205d10-a5f4-4a77-8ab9-467d3f65fe01.jpg?asset_id=98e18282-0206-4c0b-9dee-93b0c040ce53&amp;img_etag=%22709b36ead65b73d352e4f753d06d8710%22&amp;size=1024)
+[**👉点击关注英喜庄园文宣电台**](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-全美学者协会发言人查恩斯·雷顿（Chance Layton）在接受《校园改革》采访时说，美国国务院已在这份报告中“指出了问题的要害”。
+[**👉点击观看英喜庄园在G-TV的精彩视频**](https://gtv.org/user/5ee680a45bd6f123dd104807)
 
-雷顿说：“如果美国人不了解自己的建国理念，他们为什么要捍卫这些？更糟糕的是，学生们可能会想：‘如果不是美国更过分，中共国为什么会如此不善？’ 这个问题源于善意。作为美国人，我们应该了解我们的整个历史，不仅要了解我们在宣言中阐明的对法规的指导原则，以确保其在宪法中的连续性，而且还要了解在我们国家历史中出现的从奴隶制到新帝国主义时期的许多问题和争论。”
+[!\[\]()!\[\](https://spark.adobe.com/page/oouDynSm2dSU6/images/b8ef29af-f45e-42c2-b1ad-e74d612af605.jpg?asset_id=3ffc2570-5006-4847-8876-1ad2ff1c72d5&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=2560)](https://spark.adobe.com/page/oouDynSm2dSU6/images/b8ef29af-f45e-42c2-b1ad-e74d612af605.jpg?asset_id=3ffc2570-5006-4847-8876-1ad2ff1c72d5&amp;img_etag=%22dfa72d7d0929ed861134b24cd7e58e9e%22&amp;size=1024)
 
-雷顿说，我们的教育系统在编写“美国对手的剧本”方面也发挥了作用。
-
-莱顿说：“这一想要告知真相的良好愿望已经被颠倒历史的狂热分子完全歪曲。他们将美国视为一个失败的国家，而不是一个从一开始就努力兑现诺言和独立宣言中设定的原则的国家。 通过这种方式，一些教育家为美国的对手们编写了剧本。”
-
-《校园改革》已要求国务院给出进一步意见；但是，发表本文之前未及时收到答复。
-
-[原文链接](https://campusreform.org/article?id=16419)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/7Dz4kg03dlxjH/)
-[!\[\]()!\[\](https://spark.adobe.com/page/7Dz4kg03dlxjH/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/7Dz4kg03dlxjH/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

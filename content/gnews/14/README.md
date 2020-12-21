@@ -1,21 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【川普推文1220】-简单数学法揭秘拜登选票的欺诈结果
-` Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/670387/)
+## 20201217喜马拉雅东京樱花小学生团晚间新闻速报
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/671219/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20144957/biden-vs-trump-rally.png)
-当日川普总统转推一则The Gateway Pundit 的新闻，题为“揭秘：‘简单数学 ’显示拜登选票比2020年大选中的合格选民多出1300万张票。”
+HTS-01C-202012-056
 
+喜马拉雅东京樱花团
 
+1、明治神宫取消每年元旦的通宵礼拜活动；
 
-> REVEALED: 'Simple Math' Shows Biden Claims 13 MILLION More Votes Than There Were Eligible Voters Who Voted in 2020 Election [@JoeHoft](https://twitter.com/joehoft?ref_src=twsrc%5Etfw) via [@gatewaypundit](https://twitter.com/gatewaypundit?ref_src=twsrc%5Etfw) [https://t.co/nEFh9oBWdH](https://t.co/nEFh9oBWdH)
-> — Jim Hoft (@gatewaypundit) [December 20, 2020](https://twitter.com/gatewaypundit/status/1340660607142473737?ref_src=twsrc%5Etfw)
+2、东京都知事小池百合子举行新闻发布会强调年底和新年必须阻止感染蔓延，将发布“新年疫情特别警报”；
 
+3、总务大臣武田良太郎呼吁NHK降低资费；
 
+4、山梨县推出GoTo的替代政策，对于县民，住宿可享5折优惠；
 
-新闻素材和图片来自川普总统推特和https://www.thegatewaypundit.com/2020/12/breaking-huge-simple-math-shows-biden-claims-13-million-votes-eligible-voters-voted-2020-election/?utm\_source=Twitter&utm\_campaign=websitesharingbuttons
+5、千叶县要求县内提供酒精的场所营业至晚上10点，并提供每天4w日元补贴；
 
+6、官防长官加藤呼吁推迟忘年会的举办；
 
+7、日本决定在2025年前，将小学的班级人数控制到35人，目前为40人；
+
+8、东京都12月17日有822人被确诊感染上CCP病毒。
+
+以上新闻来源链接：
+
+[https://news.yahoo.co.jp/articles/959ea0d825a87ca29061537de087ec5172bbe487](https://news.yahoo.co.jp/articles/959ea0d825a87ca29061537de087ec5172bbe487)
+
+[https://news.yahoo.co.jp/articles/c69c63405dff96d5ff5b2e7b054a7493d905ad91](https://news.yahoo.co.jp/articles/c69c63405dff96d5ff5b2e7b054a7493d905ad91)
+
+[https://news.yahoo.co.jp/articles/c7bc12bfb6090681a9cabd80c7731bb4275e4692](https://news.yahoo.co.jp/articles/c7bc12bfb6090681a9cabd80c7731bb4275e4692)
+
+[https://news.yahoo.co.jp/articles/db82cda7b383b5e450139034ed30b330d05024df](https://news.yahoo.co.jp/articles/db82cda7b383b5e450139034ed30b330d05024df)
+
+[https://news.yahoo.co.jp/articles/298aabb282e2885cc30088efaf8d5d842bece73d](https://news.yahoo.co.jp/articles/298aabb282e2885cc30088efaf8d5d842bece73d)
+
+[https://news.yahoo.co.jp/articles/6063704a24687acde255b390160556dd3217d50f](https://news.yahoo.co.jp/articles/6063704a24687acde255b390160556dd3217d50f)
+
+[https://news.yahoo.co.jp/articles/f7b8a6b84ccb1d32024dc676caeb1b090cff8572](https://news.yahoo.co.jp/articles/f7b8a6b84ccb1d32024dc676caeb1b090cff8572)
 
 0
