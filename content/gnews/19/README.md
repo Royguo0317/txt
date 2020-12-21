@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 纳瓦罗：我见过“深层政府”，美国面临深重困境
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/672846/)
+## 报告称，五分之一美国囚犯中共病毒测试呈阳性
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/672889/)
 
 - 编辑：Victor Torres
 
@@ -11,14 +11,15 @@
 
 **西班牙2020年12月21日电/西喜社——**
 
-据Newsmax 周日报道，白宫贸易和制造业总监彼得·纳瓦罗（Peter Navarro）当天表示，唐纳德·川普总统一直在与共和党和民主党的“深层政府”进行长期斗争，现在不公正，不自由的选举可能最终做掉他。
-纳瓦罗（Navarro）在发表了长达36页的题为“完美的欺骗”的报告后，在WABC 770 AM-N.Y上对《猫圆桌会议》说：“如果我们不能进行公正的选举，那么这个共和国就不会成立。”
-纳瓦罗说：“如果我们在就职典礼那天得到一个未澄清非法选票的违法的乔·拜登总统，那么这个国家将根据处理这件事的方式而成就或毁灭自身。 目前，我们对我们的机构会处理得很好还没有很高的信心。
-“这是一个需要调查的问题，否则这个国家将陷入深重的困境。”
-纳瓦罗指出，川普是一名政治局外人，在共和党和政府内的民主党人的“深层政府”中都有敌人，他们都是寻求维持自己的权力和权威的职业官员。
-纳瓦罗说：我已经看到了‘深层政府’。” “我一直在看着它。正是这些在我们到来之前就存在很久，并且将在我们离开之后继续存在的官僚。但是，也有一些我们原本不应该任命的人。
-“雷克斯·蒂勒森一家，吉姆·马蒂斯和约翰·博尔顿一家：那些从不真正相信川普经济民族主义，公平贸易，安全的边界以及对美国制造业的重视的人们。”
+据美联社和非营利组织《马歇尔计划》（Marshall Project）新闻项目报道，美国监狱人口因中共病毒遭受了重大伤亡，五分之一的州和联邦囚犯对该疾病的检测呈阳性。
+根据美联社和马歇尔计划收集的数据，一些州超过50％的囚犯已被感染。
+报告说，至少有275,000名囚犯感染了中共病毒，而死者有1,700多人。 上周监狱新增病例创下最高纪录。
+“这个数字被大大低估了，”前里克斯岛监狱综合医院首席医学官荷马·温特斯说。
+曾多次执行法院命令，对监狱内中共病毒进行调查的温特斯表示，他发现了一些未对生病的个体进行测试或治疗的实例。 “我仍然遇到监狱中，当人们生病时，他们不仅没有接受检查，而且没有得到护理。 因此他们病得重得多。”他说。
+该报告称，阿肯色州是美国监狱感染率第二高的州，七分之四的人患了这种疾病–超过9700名囚犯测试阳性，有50人死亡。
+在堪萨斯州的监狱中，约有5100名囚犯被发现感染病毒，这是囚犯中共病毒发病率第三高的州，仅次于南达科他州和阿肯色州。 堪萨斯州的一半囚犯得了病。
+报告说：“截至周二，感染率是由美联社和覆盖刑事司法系统的非营利新闻机构马歇尔项目（Marshall Project）计算得出的，该项目基于自三月份以来每周在监狱中收集的数据。” 报告指出：“感染率和死亡率可能更高，因为当今几乎每个监狱系统的囚犯人数都比大流行开始时要少得多，因此，根据已知的最大人口，这一比率是保守的估计。”
 
-新闻链接：[https://www.newsmax.com/t/newsmax/article/1002397?section=politics&keywords=peter-navarro-deep-state-coup-election-fraud&year=2020&month=12&date=20&id=1002397&oref=t.co](https://www.newsmax.com/t/newsmax/article/1002397?section=politics&amp;keywords=peter-navarro-deep-state-coup-election-fraud&amp;year=2020&amp;month=12&amp;date=20&amp;id=1002397&amp;oref=t.co)
+新闻来源：[https://justthenews.com/politics-policy/coronavirus/prison-populations-suffer-significant-covid-19-infection-rates-report?amp&\_\_twitter\_impression=true](https://justthenews.com/politics-policy/coronavirus/prison-populations-suffer-significant-covid-19-infection-rates-report?amp&amp;__twitter_impression=true)
 
-1+
+0

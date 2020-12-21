@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《中国日报》代表辱骂彭佩奥“屎脸”，推特对此无动于衷
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/672995/)
+## 川普要求最高院推翻宾州选举案
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/673030/)
 
 - 编辑：Victor Torres
 
@@ -11,13 +11,11 @@
 
 **西班牙2020年12月21日电/西喜社——**
 
-据《国家脉搏》20日报道，中国国营媒体《中国日报》（China Daily）欧盟分社社长陈卫华一再称美国国务卿迈克·蓬佩奥（Mike Pompeo）为推特上的“屎脸”(shit face)，暗示他应在关塔那摩湾军事监狱隔离。
-陈卫华是中国共产党的攻击狂犬。 他的“新闻”媒体是由共产党政权宣传部拥有和运营的。
-这个常任川普批评家对与中国共产党打交道方面有着良好记录的国务卿不屑一顾。
-声称想要建立“健康对话”的推特并没有采取任何行动来限制陈卫华的辱骂，而是授予了他一个经过验证的“ 蓝色认证” (blue check)按钮。 不清楚为什么陈卫华的同胞不被允许使用推特，而他却被验证了。
-推特一直在严厉审查保守派，并与中国军事代表一起参加会议，它雇用了与中国共产党有联系的个人。 推特还没有对陈卫华的帐户采取任何措施，包括删除其已验证的复选标记，并且也没有回应这些查询。
-在不到六个月的时间里，陈卫华给彭佩奥贴上了“屎脸”标签 12次。 其中三则推文涉及他庆贺彭佩奥即将离任政府的潜在前景，他在声明中宣布如果乔·拜登（Joe Biden）担任总统，中国政府将是“赢家”。
+据Just the News周一报道，川普竞选团队要求美国最高法院撤销宾夕法尼亚州最高法院的一些决定。
+“川普总统竞选委员会主席唐纳德·J·川普今天提交了诉讼状，要求最高法院推翻宾夕法尼亚州最高法院的三起案件，这些案件在选举前后非法更改了宾夕法尼亚州的邮件投票法，违反了美国宪法第二条和‘布什诉戈尔案’。”川普律师鲁迪·朱利安尼（Rudy Giuliani）发表的竞选声明说。
+声明指出：“这代表竞选团队首次在美国最高法院，根据‘布什诉戈尔案’成功提出的宪法论点，独立进行诉讼和寻求救济。”
+川普总统尚未承认乔·拜登（Joe Biden），并表示2020年总统选举竞赛因欺诈而受污。
 
-新闻来源：[https://thenationalpulse.com/news/pompeo-ccp-media/](https://thenationalpulse.com/news/pompeo-ccp-media/)
+新闻链接：[https://justthenews.com/politics-policy/elections/trump-campaign-wants-us-supreme-court-reverse-pennsylvania-supreme-court?amp&\_\_twitter\_impression=true](https://justthenews.com/politics-policy/elections/trump-campaign-wants-us-supreme-court-reverse-pennsylvania-supreme-court?amp&amp;__twitter_impression=true)
 
 0

@@ -1,17 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德社】【精华版粤语快报】12.19：爆料：某内部人士拿到了习近平的内部讲话录音
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/673026/)
+## 正义，是你我的必须
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/673081/)
 
-制作团队：wen fei、一帘幽梦、文恩
+香草山综合报道
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
 
 
 
-摘要:
 
-川普总统在白宫会见了鲍威尔律师。川普总统在白宫会见了福林将军和白宫高级行政官员，朱利安尼通过电话也参与了讨论，。某内部人士拿到了习近平的内部讲话录音，习近平明确表示要在2021年1月6号之前让川普总统消失。
 
-[【路德时评】原视频链接](https://youtu.be/5kUv-mpyeGc)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

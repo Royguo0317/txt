@@ -1,33 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】英国发现高传染性新冠变异病毒，英国首相鲍里斯·约翰逊将于12月21日举行紧急会议
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/672852/)
+## 美国国务院更新赴港旅行警告
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/672836/)
 
-作者：香草山写作组 Naughty 校对/发稿：飞虹
+新闻来源：BREITBART《布赖特巴特》； 作者：BEN KEW； 发布时间：2020年12月14日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14092131/GNEW-GTV-MOS-LOGO-2.jpg)
+翻译/简评：狙击手维克多；校对：Beicy-数学老师；审核：万人往；Page：拱卒
+[!\[\]()!\[\](https://spark.adobe.com/page/aiGZGZVeqCJDb/images/c5195b22-9776-4fa6-bed9-8dbc1a428f81.jpg?asset_id=2d4e9e94-41c9-4b38-afff-9f3b9099e127&amp;img_etag=%2285893412c2050a143dd1b6904272d0e4%22&amp;size=1024)](https://spark.adobe.com/page/aiGZGZVeqCJDb/images/c5195b22-9776-4fa6-bed9-8dbc1a428f81.jpg?asset_id=2d4e9e94-41c9-4b38-afff-9f3b9099e127&amp;img_etag=%2285893412c2050a143dd1b6904272d0e4%22&amp;size=1024)**网络图片**
+#### **简评：**
 
+去年香港人戴口罩犯法，今年全人类必须戴口罩；去年香港人上街被打被杀被捕被强奸，今年全人类都别上街；去年香港区议会选举，民主派获得压倒性胜利，换来的竟只有“港版国安法”的牢狱之灾和所谓西方民主国家的虚伪口头支持，因此今年的美国人也就别想好好选举了。今日之香港，是一切正义与良知的泯灭，是人类文明的耻辱，而全人类也要为自己的旁观、冷漠、自私和懦弱付出惨痛代价，这就是最好的业报！
 
+“光复香港、时代革命”的呐喊声不会停止，中共黑帮集团必须为其悍然实施香港大屠杀的反人类暴行付出百倍、千倍的代价！那些为港牺牲的英灵们也必须得到抚慰！香港是灭共的第一道大门，我们坚信“港虽三户，亡共必港”！——香港一日不解放，正义就没有真正回归！
 
-12月21日，据CNN报道，随着世界各国政府加紧遏制一种可能快速传播的新型冠状病毒变异体，英国首相鲍里斯·约翰逊预计于周一主持部长级紧急会议。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21083615/Screen_Shot_2020-12-21_at_8.24.06_AM.png)图片来源：CNN
-由于这种新型冠状病毒变异体首先在英国被发现，各国陆续开始限制来自英国的航班，英国飞往欧洲大部分地区和世界其他地区的航班被切断。
+#### **原文翻译：**
 
-在周六紧急召开的新闻发布会上，约翰逊表示，新变异体的传染性比之前的新冠病毒高出70%，这导致伦敦和英格兰东南部病例大幅增加。约翰逊说，将会对这些地区加紧封锁。
+# 美国警告游客在中共国接管香港后 “慎重考虑赴港旅游
 
-这些限制措施将会给本已在新冠病毒阴影下的圣诞节带来新的不利影响。随着北半球冬季的到来，从亚洲到欧洲的各国政府都再次加强了社交距离等管控，并重新采取了封锁措施，以应对Covid-19病例的激增。
+**周四，美国国务院更新了关于香港的旅行警告，警告旅行者可能在当地面临被任意拘捕及其他侵犯人权的行为。国务院将香港旅行警告与中共国旅行警告合并发表。**
 
-据报道，在英国以外，丹麦、意大利、荷兰和澳大利亚均已经发现了新型冠状病毒变异体。
+[!\[\]()!\[\](https://spark.adobe.com/page/aiGZGZVeqCJDb/images/51882e49-27b7-4b2f-b9a1-4045b7b4a2ea.jpg?asset_id=484acc57-8ba4-4011-ab3f-6884829c816e&amp;img_etag=%222eae3ac6b4cfbeed2292e157bbdb2d6c%22&amp;size=2560)](https://spark.adobe.com/page/aiGZGZVeqCJDb/images/51882e49-27b7-4b2f-b9a1-4045b7b4a2ea.jpg?asset_id=484acc57-8ba4-4011-ab3f-6884829c816e&amp;img_etag=%222eae3ac6b4cfbeed2292e157bbdb2d6c%22&amp;size=1024)曾经美丽的香港已经沦为警察城市，美国提醒美国公民赴港计划三思而行。网络图片
 
+该份旅行警告将香港与中共国并列为第三级，即仅次于“请勿旅行”的第二高危险等级，敦促旅行者“由于当地存在滥权执法的情况”，需“重新考虑赴中共国和香港的旅行计划”。
 
+该份旅行警告称，香港已完全沦入中共国的掌控之下，后者“在当地滥权执法，包括任意拘留、非法拘留，以及在缺乏必要法律程序的情况下，禁止美国公民和其他国家公民出境。”
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+该份旅行警告写道：“大多数情况是，美国公民只有在尝试离开中共国的时候，才知道自己已经被禁止出境，而且没有明确的机制或法律程序可供他们查询此禁令的持续时间，也无法在法庭上对此禁令进行质疑。”
+[!\[\]()!\[\](https://spark.adobe.com/page/aiGZGZVeqCJDb/images/ec1b70be-6c94-4744-b419-6ae256df6a22.jpg?asset_id=8b0be9ff-0335-4680-a316-1f2d97747ae0&amp;img_etag=%227fe5f56f91561e71193355a565e83436%22&amp;size=1024)](https://spark.adobe.com/page/aiGZGZVeqCJDb/images/ec1b70be-6c94-4744-b419-6ae256df6a22.jpg?asset_id=8b0be9ff-0335-4680-a316-1f2d97747ae0&amp;img_etag=%227fe5f56f91561e71193355a565e83436%22&amp;size=1024)网络图片
+该警告继续写道：
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+*“在中共国（包括香港）旅行或居住的美国公民可能会被拘留，且无法获得美国领事服务，也无从知晓其所涉嫌犯罪的相关信息。在缺乏必要法律程序的情况下，美国公民可能会遭受长期审讯和延长拘留。*
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+*已有多名外国公民，包括但不限于商人、前外国政府人员和西方国家记者，因所谓涉嫌违反中共国的《国家安全法》而遭到任意审讯和拘留。中共国亦曾威胁、审讯、拘留和驱逐在中国居住和工作的美国公民。*
 
+在国务院发出该份旅行警告之前，中共国已对香港非法施加由北京起草的“港版国安法”长达数月之久，该项立法将任何形式针对中国共产党的政治异议均定义为刑事犯罪，那些根据该法被判决犯有“恐怖主义”、“外国干涉”、“分裂国家”和“颠覆国家政权”之类行为的人，将面临至少十年的监禁。
 
+该项法律严重违背了北京与英国于1997年签署的“一国两制”协议，该协议旨在继香港被纳入中共国一部分之后，继续维护香港的生活方式和高度自治。中共国的这次严重违约导致了美国对多名中共国高官实施制裁，其中包括香港特首林郑月娥。彭佩奥国务卿已于今年5月向国会作证，香港不再享有自治，他解释说：“鉴于目前当地的实际情况，任何有理性的人都可以确信，今日香港已无法在中共国保持高度自治。”
 
+[原文链接](https://www.breitbart.com/national-security/2020/12/18/u-s-warns-visitors-reconsider-travel-hong-kong-after-china-takeover/)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/aiGZGZVeqCJDb/)
+[!\[\]()!\[\](https://spark.adobe.com/page/aiGZGZVeqCJDb/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/aiGZGZVeqCJDb/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0
