@@ -1,39 +1,110 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】鲍威尔暗示军事介入的其他可能性
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/676114/)
+## 加拿大银行业行为与合规（四）
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/676211/)
 
-作者：香草山写作组 正义的小新 校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14092131/GNEW-GTV-MOS-LOGO-2.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16220630/%E5%8A%A0%E8%A1%8C%E4%B8%9A1.png)Picture Source: https://www.groomassocies.com
 
 
+在本文中更多的是介绍关于最新用户的账户收集，以及银行内部从业人员的相应行为标准。有助于读者进一步了解加拿大零售银行从业人员的基本工作流程，并确保自己受到公平的对待
 
-近日，川普总统及其团队的律师詹娜·埃利斯都表示，没有计划使用《起义法》和实施戒严令。然而，鲍威尔律师通过其电报渠道（telegram）建议，实施军事介入还可能通过其他途径。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22142433/25-1.png)图片来源：美联社
-鲍威尔在加密的应用程序Telegram上建立了群组，可以“绕过”被渗透的主流媒体进行新闻播报，非常易于使用且非常有效。截至目前，鲍威尔的Telegram频道发展迅速，已有近5000个订阅者。
+1.根据81—102   Standard Performance Data / 标准表现数据
 
-以下是对鲍威尔在其Telegram频道上的内容分析。
+A. Be Reviewed 2. Be Used 3. Be Made
 
-首先，鲍威尔在该频道的顶部固定了一个帖子，称她正被总统考虑作为调查选举欺诈的特别检察官。
+B. 必须提供给客户—Performance Data表现数据
 
-其次，在鲍威尔与弗林将军一起出席了周五在白宫椭圆形办公室举行的“深夜会议”后，鲍威尔在其频道推出了两个有关军事介入国内政治的文章。
+C. 仅能使用—Current Data当前数据
 
-其中一个摘录自有关军民作战的美国军事联合学说，其中指出：“军事政府是有权决定通过武力或协议对本国、盟国或敌人领土的土地、财产和工业目标进行军事行动的最高权力机构，当需要实现国家战略目标或保护国家利益时，美国国民领导层可以决定进行军事干预。支持（美国政府）稳定工作的美军支持选举程序，以便在新政府恢复所有主权责任以及美国政治意愿得到执行之前，确认政府的合法性。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22142231/29.png)
-第二个是川普总统在推特上发表的一条推文，称媒体对他将在美国实施戒严的报道是“假新闻”。
+D. 必须适当披露—Past Performance 过往表现
 
-川普总统可能已决定让军队部分介入选举过程，也可能会在有争议的州举行重新选举。鲍威尔推断，总统不会实施戒严令。
+2.Solicited Order 推荐订单最重要的两个组成部分
 
-总统可能会任命一名特别检察官来调查在美国大选之前和之后发生的大规模选举舞弊，将结果交付给美国人民，并追究有关人员的责任。朱利安尼律师也一直在报告这种可能性。
+A. 符合交易商的资产配置模型
+
+B. 符合KYC信息的一致性 = Congruent
+
+3.Unsolicited Order：
+
+A. 不合适(违背模型)不是不合理，所以仍接受因为。
+
+B. 因为符合个人经验/知识/资产 = Unsuitable，But Acceptable
+
+4.Discount Broker
+
+A. 可以豁免适用性要求（No Suitability）
+
+5.Acceptability
+
+A. Reasonability合理性是评判能否接受的标准之一。
+
+交易商模型之外，但仍符合个人经验/知识/资产=仍然属于
+
+Acceptable极左或极右都是不可以的
+
+B. Conservatism
+
+过于保守的组合与资深投资人
+
+C. Type of Order
+
+一次性购买转为分期购买，如中等承受力对应激进型基金分期购买
+
+6.Suitability =Quantitative Aspect 以交易商模型判断, 任何误差都
+
+不被允许Reasonability=More Subjective 以KYC信息判断
+
+A. 仅KYC的标准对此产生影响
+
+B. 未来的预期并不会二者标准产生任何影响
+
+7.对于风险和回报率的结合展示的表现数据的效果使用范围
+
+A. 不超过质询后45天（Period of Question）
+
+B. 任何首次销售公开日期的前3个月
+
+（First publication of Any sales communication）
+
+8.年度效绩评估  / Annual Performance
+
+A. 基于过往5Years 或 10 Years
+
+B. 根据NI31-301和MFDA5.35至少每12个月提供一次
+
+9.根据NI31-301至少12个月，向客户提供一次加权收益回报
+
+10.注册销售，禁止行为
+
+A. Discretionary Trading（详见CSC）未授权交易
+
+B. Selling to Non-Resident 向非居民销售
+
+C. Short-Term Trading = 90天内的短期交易
+
+D. Market Timing 投机交易
+
+E. Late Trading =订单After：4PM，价格Before：4PM)
+
+F. Improper Orders 不匹配订单
+
+11.非注册人员，禁止行为NI31-103
+
+A. 旧版Trade Trigger / Furtherance of trade
+
+=Trade Transaction（Promote or Recommend）
+
+B. 新版 Business Trigger 商业触发点= Trade Transaction交易  + Advising建议
+
+Author：搞笑排行榜
+
+Original opinion article by Himalaya G-farm Vancouver
+
+2020/12/22
+
+* * *
 
 
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

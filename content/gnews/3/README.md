@@ -1,58 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 什么是美国13818号行政命令
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/676436/)
+## 民主党人保护中共的宣传机构“孔子学院”免受惩罚
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/676490/)
 
-作者：法律组 比丘泥；校对：宁缺；审核：海阔天空；Page：小雨
+新闻来源：The National Pulse《国家脉动》； 作者：NATALIE WINTERS； 发布时间：2020年12月18日
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NysWP8VkO22ZJ/images/8a4e9438-51cf-49dd-968f-a90fcb72e2d8.jpg?asset_id=2aebc258-3a34-4a67-9950-44f1a311dbb9&amp;img_etag=%22d164e22de9f31d16e5f8fbbf5f07aca3%22&amp;size=1024)](https://spark.adobe.com/page/NysWP8VkO22ZJ/images/8a4e9438-51cf-49dd-968f-a90fcb72e2d8.jpg?asset_id=2aebc258-3a34-4a67-9950-44f1a311dbb9&amp;img_etag=%22d164e22de9f31d16e5f8fbbf5f07aca3%22&amp;size=1024)
+翻译/简评：新街口；校对：SilverSpurs7；审核：johnwallis；Page：小雨
+[!\[\]()!\[\](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/7f64e296-d04d-4872-a2da-2286126545fe.jpg?asset_id=1bf99f00-af44-4e86-93ce-241e32a9a3ba&amp;img_etag=%22ea370d6be461846cc40573db7b3c59cf%22&amp;size=1024)](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/7f64e296-d04d-4872-a2da-2286126545fe.jpg?asset_id=1bf99f00-af44-4e86-93ce-241e32a9a3ba&amp;img_etag=%22ea370d6be461846cc40573db7b3c59cf%22&amp;size=1024)
+#### **简评：**
 
-美国13818号行政命令，即《第13818号行政命令：冻结涉及严重侵害人权及腐败的人员财产》，是制裁涉及严重侵犯人权或腐败，如法外杀戮、强奸、酷刑、强迫失踪等行为的法令。
+众所周知，孔子学院是中共对其他国家进行渗透和蓝金黄的一个重要环节。孔子学院打着学习中文，推广孔子文化的幌子，用国际汉语考试认证作为绑架工具，在它国的大、中、小学建立分支机构，派遣中共宣传间谍人员，以文化交流为幌子对所在国家进行各种渗透和入侵。进而以学术界为起点和跳板，对所在国的文化、政治、科技和国防进行全方位的渗透。
 
-该行政令是在惩罚人权罪犯和腐败分子的《全球马格尼茨基人权问责法》、《国际紧急经济权力法》、《国家紧急状态法》、《 1952年移民和国籍法》及《美国法典》等一系列法律的基础上发布的。
+该国防法案的初衷是通过教育部的拨款限制，对那些设立有孔子学院的各级学校进行管控，从而把孔子学院全面清除出美国的教育体系。经过修改的法案，执行人从教育部变成了国防部；执行的范围也缩小到了只能是国防部资助的科研项目。孔子学院在小学、中学和大学中的非国防项目不会受到影响。
 
-该行政令会冻结被制裁者在美国的资产，禁止被制裁的个人入境美国，由川普总统于2017年12月20日签署，美国东部时间2017年12月21日上午12:01生效。
+民主党控制的众议院对该法案的修改，证明了民主党还没有认识到，或者是故意否认孔子学院对各级校园的广泛渗透已经影响到了美国的国家安全。孔子学院是一个高度组织化的渗透、宣传和间谍机构，必须完全清除，才能够去除其对美国国家安全的威胁。
 
-川普总统在命令中指出：世界各地严重的侵犯人权和腐败行为对美国的国家安全、外交政策和经济构成了非同寻常的威胁，我在此宣布全国进入紧急状态，以应对这一威胁。
+#### **原文翻译：**
 
-一、被制裁的人和财产范围
+# 民主党人保护中共的宣传机构“孔子学院”免受惩罚
+[!\[\]()!\[\](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/94aaf32c-91ac-41b4-8297-aedaa076ec25.jpg?asset_id=8e8c44e9-6abc-4cae-9f9e-b5abe66069ed&amp;img_etag=%22cd86124a0a9a0b0e34d987cde7a02fa9%22&amp;size=1024)](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/94aaf32c-91ac-41b4-8297-aedaa076ec25.jpg?asset_id=8e8c44e9-6abc-4cae-9f9e-b5abe66069ed&amp;img_etag=%22cd86124a0a9a0b0e34d987cde7a02fa9%22&amp;size=1024)
+众议院民主党人修改了一项针对于那些开办了由中共国政府资助的孔子学院的大学的法案。这项修改不仅取消了教育部限定孔子学院资金来源的权利，也使教育部失去了削弱中共在美国校园中影响力的能力。
 
-（一）被制裁的人，包括个人和实体：
+该法案在参议院获得一致通过，其中包括一项条款：允许教育部可以扣留那些开办了孔子学院的大学的资金拨款。
 
-个人包括美国自然人，本命令附件所列人员，财政部长与国务卿和司法部长协商后确定的任何外国人士：负责人或同谋者，直接或间接参与者，现任或前任政府官员，或代表该官员行事的人，提供物质援助、赞助或提供财务、物质或技术支持，或货物或服务，或支持的人。
+12月11日国会通过的修订版，大大阉割了这一条款。现在，只有国防部才有权力从这些大学中扣留联邦政府的拨款。
 
-“美国人”是指美国公民、永久居民，在美国境内的任何自然人和根据美国法律或在美国境内任何司法管辖区组建的实体，包括外国分支机构。
+根据国会高级助理的说法，该修正案将法案的范围缩小为“保护国防部资助的研究活动，而不是原先计划的广泛保护范围。”这也将使孔子学院更容易在小学、初中和高中阶段继续运营。
 
-“实体”指合伙企业、协会、信托、合资企业、公司、集团、子集团或其他组织，与领导或官员任期有关的任何活动的实体，包括任何政府机构。
+根据孔子学院的中共政府资助和旨在对美国学生进行倡导中共利益的宣传目的，川普政府将孔子学院指定为“外国使团”。
 
-（二）财产范围，包括当下在美国境内和以后进入美国境内的财产和财产权益，以及任何被列入制裁名单的人控制的财产均被冻结，不得转让、支付、出口、撤回或以其他方式处理。
+然而，民主党人似乎对此并不认同。他们的这种不认同激怒了国会中的共和党同事。
 
-行政令指出，为了使这些措施在处理本命令所宣布的国家紧急情况方面有效，不必事先通知根据本命令作出的列名或决定。
+[!\[\]()!\[\](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/258b756b-1b66-43de-bca7-df66229e711b.jpg?asset_id=7c41a312-b880-44fd-b5dc-84fa1133ac32&amp;img_etag=%220ded90137d2b96894957f5eb64a038f4%22&amp;size=1024)](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/258b756b-1b66-43de-bca7-df66229e711b.jpg?asset_id=7c41a312-b880-44fd-b5dc-84fa1133ac32&amp;img_etag=%220ded90137d2b96894957f5eb64a038f4%22&amp;size=1024)
 
-二、在人权和反腐败方面
+帮助制定反孔子学院法案的参议员约翰•肯尼迪（John Kennedy）说，民主党人“摧毁了”对抗中国共产党在学术界影响力的关键武器。
 
-（一）在人权方面，该命令扩大了符合制裁条件的侵犯人权者的标准，降低了严重侵犯人权的责任人或同谋者的门槛。肇事者法外杀戮、酷刑、强迫失踪、任意拘留的行为都将受到制裁。
+他补充说：“中共国仍然在美国校园中发挥影响力，但民主党人摧毁了国防授权法修正案，该修正案可以保护学术自由，并使美国大学能够控制孔子学院在我们的国土上所教授的内容。”
 
-2020年7月31日，美国国务院和美国财政部对新疆生产建设兵团现任党委第一书记陈全国、新疆公安厅厅长王明山、中共新疆高级官员朱海仑、前安全官员霍留军、前新疆生产建设兵团政委孙金龙和新疆生产建设兵团副政委彭加瑞实施了制裁，美国财政部还对新疆公安厅和新疆建设兵团本身实施了制裁。
+众议院少数党领袖凯文•麦卡锡（Kevin McCarthy）同样抨击了民主党人，因为他们未能有效应付中共政府。
 
-（二）在反腐败方面，该行政令所指的腐败行为，包括挪用国有资产，为个人利益而没收私人资产，与政府合同或自然资源的开采有关的腐败或贿赂，为腐败所得的转移提供便利等行为。
+国防授权法案对孔子学院态度的改变是民主党中国问题的另一个例子。美国人知道，需要一种全社会的方法来打击中共对我们民主自由的攻击。我们必须采取全面的方法，尤其是借鉴中共国问题特别工作组的建议。我们的解决方案不应该受到这种范围的限制。”
 
-2020年12月16日，川普总统发表继续执行13818号行政命令的声明：
+[!\[\]()!\[\](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/8de09e09-abcd-407f-9178-5422ff24060b.jpg?asset_id=b24a07ac-6daf-4454-a62a-1c1281dbc9db&amp;img_etag=%222bee2f25cbcff9cf91264f5a0ff6647d%22&amp;size=1024)](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/8de09e09-abcd-407f-9178-5422ff24060b.jpg?asset_id=b24a07ac-6daf-4454-a62a-1c1281dbc9db&amp;img_etag=%222bee2f25cbcff9cf91264f5a0ff6647d%22&amp;size=1024)
 
-“侵犯人权和腐败行为全部或大部分源于美国以外，其普遍性和严重性继续对美国的国家安全、外交政策和经济构成异常和特殊的威胁。因此2017年12月20日宣布的国家紧急状态必须在2020年12月20日之后继续有效。根据《国家紧急状态法》，我继续执行13818号行政命令宣布的关于严重侵犯人权和腐败的国家紧急状态，持续一年。”
+Natalie Winters是《国家脉动》的高级记者，也是《国家脉动》电视节目的制片人。
 
-#### 简评：
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NysWP8VkO22ZJ/images/bc9384ad-900e-4ba0-aae3-1e911275fa6d.jpg?asset_id=eb818f5c-30a4-492e-9798-e5484b6df857&amp;img_etag=%2253c1c354fbb02487025932c40211b6cf%22&amp;size=1024)](https://spark.adobe.com/page/NysWP8VkO22ZJ/images/bc9384ad-900e-4ba0-aae3-1e911275fa6d.jpg?asset_id=eb818f5c-30a4-492e-9798-e5484b6df857&amp;img_etag=%2253c1c354fbb02487025932c40211b6cf%22&amp;size=1024)
-
-中共伪政权是当今文明世界的毒瘤，是全球最大的人权犯罪集团、腐败集团和盗国集团。中共自1949年建立伪政权以来，奴役大陆14亿中国人民70余年，用暴力和谎言将勤劳而智慧的中国人民创造的财富洗劫一空。14亿中国人民不仅生活没有得到改善，反而越来越上不起学，买不起房，看不起病，老无所养。有多少中国人因贫困交加活不下去选择自杀，有多少中国人因相信中共的谎言家破人亡！根据中共近日官方数据，大陆14亿人中，有9亿人人均月收入不足人民币2000元。中共对此不仅不知悔改，反而变本加厉，建立网络防火墙，血腥镇压反抗中共独裁的香港同胞，对新疆进行惨绝人寰的种族屠杀！
-
-现如今，中共又向全球输出中共病毒，操控美国大选，是可忍孰不可忍！美国的13818号行政命令，正打中中共的要害。中共通过几十年苦心经营、机关算尽，藏匿在美国及至世界的天量财富都将被冻结查扣。中共严重侵犯人权的罪魁祸首和帮凶也将受到最严厉的制裁！天网恢恢，疏而不漏，绞死中共的绳索正在不断收紧！[13818号行政令原文链接](https://www.whitehouse.gov/presidential-actions/executive-order-blocking-property-persons-involved-serious-human-rights-abuse-corruption/)
-
-【注：文章仅代表作者观点】
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/NysWP8VkO22ZJ/)
+[原文链接](https://presentdangerchina.org/2020/12/release-stop-mnuchins-perfidious-effort-to-eviscerate-trump-order-barring-indexes-etf-underwriting-of-malign-ccp-companies/)
 
 [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
@@ -60,6 +54,6 @@
 
 [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NysWP8VkO22ZJ/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/NysWP8VkO22ZJ/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/SPweYkiSPDR7Y/)
+[!\[\]()!\[\](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

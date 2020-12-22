@@ -1,117 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港人今年怎么庆祝圣诞？
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/676327/)
+## 台湾呼吁加拿大加入全球抵“共”联盟
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/676351/)
 
-作者：香草山写作组 我爱正义 校对/发稿：飞虹
+俄罗斯莫斯科喀秋莎农场 银河
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29231938/logo-3-1-1.jpg)
+校对上传 星河
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22153818/Snipaste_2020-12-22_22-47-08.png)图片来源 : singtao.ca
+台湾外交部长吴钊燮12月17日接受加拿大环球邮报(The Globe & Mail)专访时表示，台湾深受中共军事威胁，呼吁加拿大与理念相近的民主国家，形成抵“共”联盟一起制裁中共，加强与台湾贸易往来，捍卫民主自由。
 
+12月21日，中华民国外交部网站发布了此条为“参考062号新闻”资料，表达了台湾正在寻求全球抗“共”联盟、阻止中共全面占据台湾、加强国际贸易往来以及增加国际话语权策略的紧迫性和重要性。
 
+外交部长吴钊燮在专访中讲到：台湾位于中共军事威胁的第一线，中共已经对台湾发动了“灰色地带”军事攻击战略。中共海军在东海、南海及印度洋动作频频，近期几乎每日都会入侵台湾西南防空识别区。中共公开表达了不放弃武统台湾的意愿，近期更是拟发布《国家统一法》，为占领台湾做法理背书。台湾对中共的扩展主义及对中共的渗透战略理解深刻，因此呼吁全球理念相同的民主国家结盟合作，共同抵“共”。吴钊燮表示，台湾不会向加拿大寻求直接军事援助，但希望加拿大与美国、澳洲、日本、欧洲和其他民主国家共同对中共采取行动，让中共必须对进犯台湾有所顾忌。
 
-港人这一年半以来作出的抗争，感动世界。当政府高官暗地裡弹冠相庆的时候，他们努力让人觉得《国安法》以及疫情两招已经奏效，港人已无法抗争。然而，他们越努力营造假象，内心就越不安寧，直至心虚气短。因为，在香港，每一个人都知道，抗争远远没有结束。
+吴钊燮强调中共对香港、台湾、澳洲及加拿大的“战狼”行为已经让国际社会了解到中共的扩张主义。中共对台湾的威胁比过去的60年更加严重且真实。中共使用网络信息战控制各国媒体平台散布不实信息，进行网络信息超限战对多国主权渗透干预。台湾已经施行“反渗透法”（Anti-infiltration Act）,旨在对境外势力渗透、委托、资助的虚假宣传或组织施以刑法约束，建议加拿大可参考拟定同类方案。
 
-圣诞节
-平安夜
-鸣不平
-街头无人论抗争，
-民心念念不曾忘。
-鼠目但见名与利，
-獐头不思道与义。
-何人因言而入罪？
-何时黎明曙光现？
-有口何必欲多言？
-眾志成城大局定。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22145946/31.png)香港观察负责人Benedict Rogers书写於2020年12月22日
-**港人欢庆圣诞活动一览，欢迎参加！**
+台湾是加拿大在全球位列第13、亚洲位列第五的贸易伙伴。吴钊燮希望在和平互惠平等的原则下加强台加经贸合作及各领域的伙伴关系。同时期望台加可早日签订“投资促进保障协议”（FIPA），希望加拿大政府可以支持台湾加入“跨太平洋伙伴全面进步协定”（CPTPP）。
 
-活动一
+参考链接：
 
-圣诞前夕街站
-日期：2020.12.23
-时间：1700-1900
-地点：旺角商务书局对出空地
+[https://www.mofa.gov.tw/News\_Content\_M\_2.aspx?n=8742DCE7A2A28761&sms=491D0E5BF5F4BC36&s=DFD85236F964C3C0](https://www.mofa.gov.tw/News_Content_M_2.aspx?n=8742DCE7A2A28761&amp;sms=491D0E5BF5F4BC36&amp;s=DFD85236F964C3C0)
 
-天气渐凉，我们计画在圣诞前夕摆街站，让大家写信给同路人，同时亦準备了一点心意送给大家，我们希望令眾人知道，这条路并不孤单。
+[https://www.theglobeandmail.com/politics/article-taiwan-urges-canada-to-join-global-coalition-against-china/](https://www.theglobeandmail.com/politics/article-taiwan-urges-canada-to-join-global-coalition-against-china/)
 
-苹果专访：贤学思政坚持周末摆街站
-召集人王逸战：愿死於斯
-
-**一定要****做小小风险申报**
-**注意，在香港作明显表态的行动阶有风险，请自我思考可以接受的代价**
-![]()
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150255/32.png)
-活动二
-
-#24Dec #九龙 #和你报佳音
-《12.24 愿平安归香港 和你报佳音》
-日期：12月24日（四）
-时间：晚上
-地点：九龙区
-内容：街头荣光快闪大合唱
-P.s 提醒返手足不要违反《二人限聚令》，注意社交距离要有1.5米，以免受到599票控。
-Source : [https://t.me/xmas\_eve\_hk/3](https://t.me/xmas_eve_hk/3)
-
-**一定要****做小小风险申报**
-**注意，在香港作明显表态的行动阶有风险，请自我思考可以接受的代价**
-
-活动三
-
-#24Dec #沙田 #元朗 #观塘 #维园 #烛光 #悼念
-【12.24平安夜烛光悼念活动】
-日期：12月24日 (四)
-时间：20:00
-地点：沙田百步梯，元朗西铁站，观塘海滨花园，维园篮球场
-活动：為香港默哀+砌烛光海
-欢迎各参加者带备蜡烛到场
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150357/33-2.png)
-[https://t.me/SilentCandleNight/40](https://t.me/SilentCandleNight/40)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150423/34.png)
-#因应投票得出结果更新地点
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150501/35.png)
-![]()
-#24-27Dec #旺角 #连儂墙 #市集 #黄色经济圈
-【#连儂说——连儂展览 x 圣诞市集】
-日期 : 12月24-27日 (四至日)
-时间 :
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150545/36.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150649/37.png)
-12.24 14:00-20:00
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150722/38.png)
-12.25-27 12:00-20:00
-地点 : 旺角广东道 1143 号
-协和工业大厦 4 楼，梘单製皂
-备註 : 疫情关係将会有变动 , 请留意最新资讯
-Source : [bit.ly/lennonsays](https://bit.ly/lennonsays)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150801/39.png)
-圣诞课金週
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150812/39-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150858/41.png)
-![]()
-**第一波唔係食店**
-
-[https://www.instagram.com/p/CIgHQG6nGpz/](https://www.instagram.com/p/CIgHQG6nGpz/)
-#19-27Dec #圣诞课金週 #双拾团队
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150812/39-1.png)
-**圣诞课金週**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150812/39-1.png)
-**爆买日**
-日期 : 12月19-23日
-目的: 延续黄圈精神，呈现香港人的力量
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150801/39.png)
-**圣诞课金週**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150801/39.png)
-**美食週**
-
-[https://www.instagram.com/p/CIi05lmHCup/?utm\_source=ig\_web\_copy\_link](https://www.instagram.com/p/CIi05lmHCup/?utm_source=ig_web_copy_link)
-日期 : 12月24-27日
-目的: 延续黄圈精神，呈现香港人的力量
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+[https://udn.com/news/story/6656/5110417](https://udn.com/news/story/6656/5110417)
 
 0
