@@ -1,110 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大银行业行为与合规（四）
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/676211/)
+## 郭先生梦见白宫有行动和中共国重要部门数据被骇客
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/676321/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16220630/%E5%8A%A0%E8%A1%8C%E4%B8%9A1.png)Picture Source: https://www.groomassocies.com
+在12月21日 GTV 的盖特视频中，郭先生透露他梦见美国的白宫有人事变动。也梦见中共国的电网、统计中心、卫生局、金融系统被骇客。最后他鼓励战友说：“永远要牢记啊，兄弟姐妹们，美好的日子一直不拐弯的，直接地向我们冲过来，你准备好了吗？”
+[视频来源](https://gtv.org/getter/5fe08a8a93a06b22d9e00990)
+全文：
 
+做了个梦，梦见今天白宫好像要有行动，要有人事变化。看来啊，有动静，梦有时候也不准啊。还有，我这做梦梦见，这国内啊，也被黑客了。共匪电站、就是要号称国家电网，统计中心，还有中国的所谓的国家卫生安全局也被黑啦，黑得还很厉害呢。哼哼，但是共匪不能说，是吧。
 
-在本文中更多的是介绍关于最新用户的账户收集，以及银行内部从业人员的相应行为标准。有助于读者进一步了解加拿大零售银行从业人员的基本工作流程，并确保自己受到公平的对待
+（悠闲地躺倒在躺椅上）哎呀，哎哟。共匪很强大，不会被黑客，是吧。它也不黑人家，人家也不黑它。呵呵呵…哎呀，这都什么世道啊？啊…偷东西，不能跟人家说（自己偷了）。自己家丢了东西，也不说，哈哈哈…这都因为啥啊？战友们。不是因为一个“假”字么？所以说兄弟姐妹们，滑稽刚刚开始。真的，这个滑到稽啊，刚才到稽了，你们看到了么？故事多着哩，走着看吧。
 
-1.根据81—102   Standard Performance Data / 标准表现数据
+呵，今天可不得了。但是我觉得，你们要看到，这梦如果灵的话，今天下午？稍晚点？看能不能这个梦能“梦”对啊。人家是蒙对，咱是梦对。国内的电网一旦被黑瘫，卫生局，国家卫生局信息被弄走（病毒真相相关信息被获得？），听说中国的出入境系统也都被黑了（来美国进行蓝金黄的人的资料行踪？）。这叫不叫网络战争呢？叫不叫超限战呢？
 
-A. Be Reviewed 2. Be Used 3. Be Made
+你看七哥这穷的，穿的这，你看看，穷的没衣裳穿了，都是补丁，都是线头。
 
-B. 必须提供给客户—Performance Data表现数据
+更夸张的，我就纳闷儿了，你说这谁能把共产党国家统计局都搞定？听说大概在，我睡前吧，也就是5点钟左右的时候，中共的金融系统也在被黑客中。你说那么强大的中共，咋会这样呢，战友们。往上看，战友们，啥事都往上看，不要往下看，别听瞎忽悠的，瞎咋呼的。山林里大了，什么鸟都有，什么噪音都有，是吧？永远要牢记啊，兄弟姐妹们，美好的日子一直不拐弯的，直接地向我们冲过来，你准备好了吗？
 
-C. 仅能使用—Current Data当前数据
-
-D. 必须适当披露—Past Performance 过往表现
-
-2.Solicited Order 推荐订单最重要的两个组成部分
-
-A. 符合交易商的资产配置模型
-
-B. 符合KYC信息的一致性 = Congruent
-
-3.Unsolicited Order：
-
-A. 不合适(违背模型)不是不合理，所以仍接受因为。
-
-B. 因为符合个人经验/知识/资产 = Unsuitable，But Acceptable
-
-4.Discount Broker
-
-A. 可以豁免适用性要求（No Suitability）
-
-5.Acceptability
-
-A. Reasonability合理性是评判能否接受的标准之一。
-
-交易商模型之外，但仍符合个人经验/知识/资产=仍然属于
-
-Acceptable极左或极右都是不可以的
-
-B. Conservatism
-
-过于保守的组合与资深投资人
-
-C. Type of Order
-
-一次性购买转为分期购买，如中等承受力对应激进型基金分期购买
-
-6.Suitability =Quantitative Aspect 以交易商模型判断, 任何误差都
-
-不被允许Reasonability=More Subjective 以KYC信息判断
-
-A. 仅KYC的标准对此产生影响
-
-B. 未来的预期并不会二者标准产生任何影响
-
-7.对于风险和回报率的结合展示的表现数据的效果使用范围
-
-A. 不超过质询后45天（Period of Question）
-
-B. 任何首次销售公开日期的前3个月
-
-（First publication of Any sales communication）
-
-8.年度效绩评估  / Annual Performance
-
-A. 基于过往5Years 或 10 Years
-
-B. 根据NI31-301和MFDA5.35至少每12个月提供一次
-
-9.根据NI31-301至少12个月，向客户提供一次加权收益回报
-
-10.注册销售，禁止行为
-
-A. Discretionary Trading（详见CSC）未授权交易
-
-B. Selling to Non-Resident 向非居民销售
-
-C. Short-Term Trading = 90天内的短期交易
-
-D. Market Timing 投机交易
-
-E. Late Trading =订单After：4PM，价格Before：4PM)
-
-F. Improper Orders 不匹配订单
-
-11.非注册人员，禁止行为NI31-103
-
-A. 旧版Trade Trigger / Furtherance of trade
-
-=Trade Transaction（Promote or Recommend）
-
-B. 新版 Business Trigger 商业触发点= Trade Transaction交易  + Advising建议
-
-Author：搞笑排行榜
-
-Original opinion article by Himalaya G-farm Vancouver
-
-2020/12/22
-
-* * *
-
-
+听写：【Embracer牙牙】翻译：【Isaiah4031】字幕：【Pamila（文明）】视频解码：【恒久忍耐】编辑：【Isaiah4031】
 
 0

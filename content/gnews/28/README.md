@@ -1,41 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## War Room 600 总结
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/676164/)
+## 【林伍德律师推文1222】-乔州副州长Geoff Duncan 所做的交易
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/676173/)
 
-- 编辑：Ranting
-- 作者：Jenny Ball
+2020年12月22日林伍德律师转发Fox5Atlanta 的一篇文章，报道了乔治亚州副州长杰夫-邓肯(Geoff Duncan)试图向一家州医疗保健供应商Sharecare出售医疗保健应用程序，该合同价值1400万美元。这宗交易是在双方私人飞行、体育赛事的门票、在蒙大拿州为期一周的会议下进行，而乔治亚州财经委员会却从来闭口不谈此事。
+
+笔者发现一家在美国证交所上市的互联网人工智能公司Remark 控股（原名Remark 传媒）的总裁Kai-Shing Tao在Sharecare 公司拥有董事会席位。因此乔治亚州副州长与中共之间千丝万缕的联系浮出水面。
+
+林伍德律师推文称：
 
 
-一份5,000页的刺激法案，华盛顿特区放出9000亿美元的Covid-19援助法案。每个人只有600美元。
-
-**班农先生**：我认为现在的国债有28万亿美元。
-
-**约翰·弗雷德里克**（John Fredericks）：乔治亚的共和党机构根本没有采取任何行动制止欺诈行为。州长坎普（Kemp）不在乎压力有多大，因为私下里他认为一切都很好。他们的整个策略就是耗时间，非常令人沮丧。现在，举行特别会议的唯一方法是对州议会发言人大卫·拉尔斯顿（David Ralston）施加巨大压力。但是他在威胁会员不要签署请愿书，如果签字就剥夺他们的席位。
-
-共和党州长和共和党参议员完全不尊重川普总统，不尊重11月3日的投票选民。这是我从事新闻业三十年来见过的最恶心的事情之一。
-
-以我看来，总统应该取消1月4日来这里为他们当选进行大规模的集会活动。他需要告诉这些共和党候选人，要我来给你们背书，你们必须维护选举正义。只有威胁到他们的饭碗，才能让他们做出行动！
-
-**鲍里斯·艾普斯汀**（Boris Epshteyn）：我要告诉各位听众观众们，请密切关注宾夕法尼亚州。昨天，我们提交了第一份申请书，这是第一份川普竞选团队向最高法院提出的直接请愿书。因此，这是宾夕法尼亚州的大事。
-
-宾夕法尼亚州最高法院书记员剥夺了联邦宪法赋予宾夕法尼亚州立法机构的权利，即设定在宾夕法尼亚州举行总统选举的方式。现在取决于目前的最高法院以及加紧审议的动议，因为众所周知，时间至关重要。
-
-这样做是继续推动从司法战线解决威斯康星州，密歇根州，宾夕法尼亚州的非法选举，推动立法机关召开特别会议，以揭露每一个选民欺诈行为，选举违规，选举欺诈，选举不规范的情况，因此，到1月6日国会联席会议进行计数，这是副总统公开表决并进行表决的权利，届时那里已经有大量选举欺骗信息，议员可以根据特定州的合法选票对合法的选票进行计数。
-
-1月6日是具有实际意义的一天。如果在6号会议上没有任何决定，那么，如果没有以最高合法选票胜出的总统，也没有取得合法选票多数的选举人。到1月20日，将有一位代理总统，国会将解决谁赢得了总统。
-
-我们绝对有时间，因为从现在开始的行动实际上将在国会中进行，这取决于谁赢得了最大的合法选票，乔治亚州如果召开特别会议，如果在格鲁吉亚召开一次特别会议，从今天算的任何时候，无论是什么时间，这些代表和参议员都将参加会议作出裁决。
-
-**大卫·达内尔，共和党俄勒冈州主席**：俄勒冈州警察局在国会大厦负责安保工作，事实上，由于人们感到沮丧和不满，一些示威者在国会大厦与州警察冲突，警察今天向人们喷洒胡椒粉。许多抗议者跑出大厦外面咳嗽并揉眼睛。然后过了一会儿，州警察实际上用胡椒丸，迫使所有人离开了国会大厦。
-
-**大纪元时报专栏作家迈克尔·沃尔什**（Michael Walsh），《最后立场》（Last Stands）的作者：简要介绍了在1944年圣诞节期间发生在巴斯托涅（Bastogne）的突击战。巴斯托涅（Bastogne）是盟军和轴心国军队的重要基地。1944年圣诞节，对于美国士兵来说，他们的圣诞节是在保卫国家的战场上度过的。
-
-**今年的圣诞节，我们将为宪法而战斗着！为了这个国家的未来而战斗着**。
+> 爱钱是万恶之源。乔州副州长 @GeoffDuncanGA @GeoffDuncanGA，州长@BrianKempGA，爱钱和办公室的特权。
+> 
+> 乔州当选官员不关心我们人民。
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+
+> The love of money is the root of all evil. GA Lt. Gov. [@GeoffDuncanGA](https://twitter.com/GeoffDuncanGA?ref_src=twsrc%5Etfw), like GA Gov. [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw), loves money & perks of office.
+> 
+> GA elected officials do not care about We The People.[https://t.co/DxFLDOnghI](https://t.co/DxFLDOnghI)
+> — Lin Wood (@LLinWood) [December 22, 2020](https://twitter.com/LLinWood/status/1341398165459746822?ref_src=twsrc%5Etfw)
+
+
+
+新闻素材和图片来自林伍德律师推特和
+
+[https://www.fox5atlanta.com/news/lt-governor-geoff-duncan-attempted-to-sell-a-health-care-app-concept-to-a-state-health-care-vendor](https://www.fox5atlanta.com/news/lt-governor-geoff-duncan-attempted-to-sell-a-health-care-app-concept-to-a-state-health-care-vendor)
+
+新闻参考
+
+[https://www.prnewswire.com/news-releases/remark-holdings-corrects-recent-misinformation-campaign-by-short-sellers-301115648.html](https://www.prnewswire.com/news-releases/remark-holdings-corrects-recent-misinformation-campaign-by-short-sellers-301115648.html)
+
+
 
 0

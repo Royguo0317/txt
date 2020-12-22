@@ -1,51 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德农原创：点赞，是个好习惯
-` Himalaya Farm Germany 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/675959/)
+## 简讯集锦2020.12.22
+` Himalaya Farm Germany 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/676006/)
 
-**2020****年****12****月****22****日**
+**作者：**铜豌豆, 喜马拉雅德国慕尼黑感恩农场
 
-**作者：**文园、旦旦
+**校对：**西联777, 喜马拉雅德国慕尼黑感恩农场
 
-**创意：**Mild Seven (M7)
+**图片****:**  喜马拉雅德国慕尼黑感恩农场设计组原创
 
-内敛，也许是中国人，乃至整个亚洲人基因里的文化。不少人完全没有个性意愿，甚至渐渐地失去了表达喜怒哀乐的能力。在中国的家庭里，有多少人不会用拥抱来表达爱意？又有多少人不会为朋友的成功而表达发自内心的喜悦？
+**简讯****I**
 
-文贵先生GTV 2020年12月21日的直播数据显示，220万人观看，4千8百人点赞。点赞率为0,218%，也就是说，**每千位观众里有****2****个人点赞**。
+前国家安全顾问麦克·福林将军说外国的合作人可以提供证据证明外国势力干预了11月3日的美国大选。福林说鲁·道布斯上周五在福克斯商业频道的节目中说，对于选举的干预跟最近的骇客入侵联邦政府软件系统太阳风的事件有关联。
 
-路德时评GTV 202012月21日直播，29万3千人观看，496人点赞。点赞率为0,169%，**每千人中有****1 ****个人点赞**。
 
-面具先生GVT 202012月20日直播，4万8千3百人观看，301人点赞。点赞率为0,623%，**每千人中有****6****人点赞。**
 
-秘密翻译组同声传译202012月21日直播，5万1千4百人观看，57人点赞，**点赞率接近千分之一。**
+> [Gen. Flynn Assures Trump Cavalry Is Coming, Reveals ‘Foreign Partners and Allies’ Were Monitoring Election](https://www.westernjournal.com/gen-flynn-assures-trump-cavalry-coming-reveals-foreign-partners-allies-monitoring-election/)
 
-德国慕尼黑感恩农场每晚的《聊聊德国那点事儿》GTV 202012月21日直播，观看人数2万3千8百人，30人点赞，点赞率为0,126%，**点赞率也是千分之一。**
 
-再来看看油管（YouTube）《班农战斗室》（War Room: Pandemic Ep 600） 12月21日的直播数据，观众量10万，点赞6,398人。点赞率为6,4%，**每千人中有64人点了赞。**再算一遍，**是的！点赞率是6.4%。** 大家看到区别了吗？
 
-在文贵先生直播时，战友们都争先恐后地希望被郭先生加为好友，但又有多少人点赞了呢？
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22130621/Bild5-6.jpg)
-点赞，是直接表达我们自己的方式。
+**简讯****II**
 
-点赞，是对直播人的尊敬和鼓励。
+川普团队律师林·伍德周五在亚特兰大区法庭提交了诉状，针对佐治亚州州务卿布拉德·拉分斯珀尔哲尔违反了佐治亚州州法律中关于佐治亚立法院规定的对于邮寄选票签名认定的程序。
 
-点赞，是参与、是分享、是愉悦。
 
-点赞，是个好习惯!
 
-她/他的话说到我心坎里了，点赞。
+> [Lin Wood Sues Georgia Over Runoff Elections, Says State Is Violating U.S. Constitution](https://tennesseestar.com/2020/12/20/lin-wood-sues-georgia-over-runoff-elections-says-state-is-violating-u-s-constitution/)
 
-她/他的分析有用，我受益了，点赞。
 
-她/他是我的战友，我感谢他为我们做直播，点赞。
 
-她/他实况翻译辛苦了，把我听不懂的英语翻译出来了，我就点赞。
+**简讯****III**
 
-点赞是礼，点赞是敬。点赞看似是我们个人的一个微不足道的小举动，而点赞，正是一个族群的整体文化呈现。
+律师西德尼·鲍威尔被看到周日的时候离开白宫，纽约时报记者麦琪·哈伯曼引用了某消息来源说，鲍威尔已经建议了一条行政命令，允许所有的选票机被收起来并被检查。不太清楚总统是否对这感兴趣，但是哈伯曼说总统身边的工作人员告诉他这不是一个合法的选择。
 
-在GTV上的点赞更为重要：这是新中国联邦人团结努力与进步，是一个去除糟粕留下精华的过程！
-
-战友们，请表达出我们的爱意，从最简单的点赞开始，为战斗在一线的英雄们喝彩点赞吧！
+[https://www.businessinsider.com/sidney-powell-urging-executive-order-to-seize-voting-machines-nyt-2020-12?r=DE HYPERLINK “https://www.businessinsider.com/sidney-powell-urging-executive-order-to-seize-voting-machines-nyt-2020-12?r=DE&IR=T”& HYPERLINK “https://www.businessinsider.com/sidney-powell-urging-executive-order-to-seize-voting-machines-nyt-2020-12?r=DE&IR=T”IR=T](https://www.businessinsider.com/sidney-powell-urging-executive-order-to-seize-voting-machines-nyt-2020-12?r=DE&amp;IR=T)
 
 1+

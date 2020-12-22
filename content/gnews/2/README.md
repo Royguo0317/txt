@@ -1,48 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大数据分析作战室】24小時Google 搜索趋势图
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/675142/)
+## 德意志时讯 2020.12.22:最新疫情数据/新冠病毒突变 “看起来并不好”/ 疫情第三波在即
+` Himalaya Farm Germany 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/676643/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22055713/1220-peter-navarro.png)
-12月20日分析图【12.20.2020 Google Trends】显示，
+*《德意志时讯》发表的译文和报道不代表我们认同原文作者的观点，仅供读者了解德国媒体的走向及德国社会状况*
 
-1. 当日Google Trends关于大选舞弊关注最多的话题是皮特纳瓦罗（Peter Navarro）先生。
-2. 12月17日白宫贸易顾问皮特纳瓦罗就2020大选发表了长达36页名为“完美的欺骗“的报告。该报告对美国总统大选的公平性和完整性进行评估，对大选中六个摇摆州的舞弊行为所支持的证据从六个纬度以科学报告的形式固化下来，结论是即使缺乏彻底调查，在总统任职日之前，就让美国人知道拜登的非法政府。报告严谨翔实，浅显易懂，引起人们广泛关注。
-3. 20日在WABC 770AM-N.Y.节目中，纳瓦罗指出“如果我们不能进行公正的选举，那么这个共和国就不会存在。”他在访谈中还提到祸国势力（Deep State ）并对几名前政府雇员进行点名。想必节目引起了更多关注。
-4. Google 热搜趋势图显示，关于纳瓦罗先生的报道引起极大反响, 事件还在持续发酵中。
+编辑报道：文园
 
+**一、德国新冠病毒疫情数据更新**
 
-
-建议传播相关内容时，使用符号加以下关键字：
+- 2020年12 月21日
+- **新增确诊病例：****19,333 ** **  ****死亡：****533**
 
 
-```
-#ElectionFraud
+**（比昨日病例减少****1,489****人，死亡增加****183****人）**
 
-#TheImmaculateDeception
+**二、病毒学家克里斯蒂安****·****德罗斯滕表示新冠病毒突变**** “****看起来并不好****”**
 
-#ElectionIntegrity Mention 
-
-@RealPNavarro
-```
+- 信息来源：thelocal.de
+- 原文题目：[German lockdown rules will help slow spread of new Covid strain, says virologist](/www.thelocal.de/20201222/unfortunately-this-does-not-look-good-german-virologist-changes-tune-on-new-covid-strain)
 
 
+病毒学家克里斯蒂安·德罗斯滕（Christian Drosten）在表示对新的冠状病毒突变并不特别担心后的第二天，就改口说新数据“看起来并不好”。
 
+在此之前，英国当局进行了新的评估，证实冠状病毒的新变种正在英国迅速传播，特别是英格兰南部。英国专家在总结中写道：“已经发现了一种在英国迅速传播的新颖变种。” 根据该报告，冠状病毒的新变种“高度确定性地大大提高了传播能力”。 专家们说，进一步的研究仍在进行中。
+
+柏林柏林夏里特医学院（Charité）病毒研究所所长德罗斯滕在Twitter上分享了英国公 共卫生机构的数据。
 
 
 
-
-新闻来源 G-Talent
-数据源：Walt
-分析：曾经
-采编：文雅
-审核：大数据AI（数据分析）组
+> Neue Daten zur B.1.1.7-Mutante (heute veröffentlicht). Das sieht leider nicht gut aus. Positiv ist, dass Fälle mit der Mutante bisher nur in Gebieten zunahmen, wo die Gesamtinzidenz hoch oder ansteigend war. Kontaktreduktion wirkt also auch gegen die Verbreitung der Mutante. [https://t.co/s3Wd3X7ukF](https://t.co/s3Wd3X7ukF)
+> — Christian Drosten (@c\_drosten) [December 21, 2020](https://twitter.com/c_drosten/status/1341155746575245313?ref_src=twsrc%5Etfw)
 
 
 
+他在推文中补充说：“不幸的是，它看起来并不好。” 但是，他也说事情还不是特别糟 糕：“从积极的方面来看，迄今为止，只有在总发病率较高或正在增加的地区，这种突变    的病例才有所增加。因此，减少接触也可以阻止突变的传播。”
+
+根据英国当局的说法，新病毒变种的传染性比以前已知的形式高70％。
+
+**     ****评论：****CCP****病毒近来在英国的变异传染性激增，给欧洲本来就只靠全社会封锁才能缓解的****    ****新冠疫情雪上加霜。不全球联合灭共，根除中共病毒根源，欧洲人采取什么措施都是枉费****    ****心机！**
+
+**三、新冠病毒疫情第三波在即**
+
+- 信息来源：《世界报》（Welt）
+- 原文题目：[„Vor uns liegen die zehn härtesten Wochen“, mahnt Kretschmer](/www.welt.de/politik/deutschland/article223058338/Corona-Hotspot-Sachsen-Kretschmer-warnt-vor-dritter-Welle.html)
+- 圣诞新年假期前，萨克森州州长克雷奇默（CDU）警告说呼吁民众严格遵守卫生和距离规 定。首相肯定地说：“将会有第三波浪潮。”
 
 
-本文仅代表数据分析师基于图形分析的观点
+鉴于萨克森州感染人数众多，萨克森州州长迈克尔·克雷奇默紧急呼吁将圣诞节和除夕的     接触减少到最低限度。 “圣诞节是医学界每个人都非常害怕的事情。” 克雷奇默在新闻    发布会上警告说，圣诞节和除夕意味着我们将迎来第三波疫情浪潮。这波浪潮的规模掌握    在萨克森州和德国人手中”。 据他介绍，第三波将在1月10日至15日大爆发。 “新冠    病毒大流行最艰难的十周就在我们面前。”
+
+**评论：在德战友和华人，****Achtung!!! ****小心！中共病毒肆虐，德国告急！呆在家里！按闫****     ****丽梦博士的建议服用羟氯喹！**
+
+*想看更多精彩评论，请移步喜马拉雅德国慕尼黑感恩农场**GTV**——“说说德国那点事儿”，德国时间每晚**21**：**30**开播。*
 
 0

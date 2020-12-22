@@ -1,53 +1,79 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港风云】17: 血染香港
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/676094/)
+## 巴尔对隐瞒亨特·拜登的调查找托辞
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/676220/)
 
-作者：香草山写作组 Tiffany的早餐 校对/发稿：飞虹
+新闻来源：Zero Hedge《零对冲》； 作者：Zachary Stieber； 发布时间：；2020年12月19日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14092131/GNEW-GTV-MOS-LOGO-2.jpg)
+翻译/简评：wmorpho；校对：SilverSpurs7；审核：万人往；Page：拱卒
 
+[!\[\]()!\[\](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/cc2e1889-77bc-4cc3-b022-ba6390ac9d5b.jpg?asset_id=271f006c-776f-4220-b81e-f43f15ee76e7&amp;img_etag=%223b0baf0bc1f8226c15112b5329bafa0c%22&amp;size=1024)](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/cc2e1889-77bc-4cc3-b022-ba6390ac9d5b.jpg?asset_id=271f006c-776f-4220-b81e-f43f15ee76e7&amp;img_etag=%223b0baf0bc1f8226c15112b5329bafa0c%22&amp;size=1024)
 
+**简评：**
 
-摘要：反送中的警暴持续升级，从针对女性示威者的性暴力，到721、831袭击事件，陈彦霖案、周梓乐案、关家荣枪击学生案 … … 。反送中10个月，香港发现尸体的个案超过过去十年总和，而这并不包含更多被秘密杀害的义士。
+美国前司法部部长巴尔为自己未在选举前公开对亨特·拜登已经进行调查一事辩护，说他对于在选举前不让公众知道民主党总统候选人乔•拜登的儿子正在接受调查之举，他并不后悔，并认为禁止公开确认涉及公职候选人的调查的规则是不成文的共识。
 
-香港警暴在反送中运动中持续升级。香港抗争中最英勇的是“勇武派”，不同寻常的是，勇武派中最勇武的都是女性。共产党的魔性也是罕见的，他们的鹰犬爪牙对抗争的女性尤为残暴。反送中期间，黑警的暴力执法包含着大量的性暴力。陈彦霖母女的遭遇代表了许多女性受害者的遭遇，更多无名无姓的香港女性成为受害者。
+可是川普总统并不这样认为。川普总统说：“乔·拜登在总统侯选人辩论台上撒谎。他说‘亨特•拜登什么都没有做，什么罪行都没有。’而巴尔这时就应该站出来戳穿他。”川普同时赞扬了特别顾问穆勒，在调查川普与俄罗斯的关系期间，穆勒曾多次对各种报告中的不实报道做出强烈回应。
 
-2019年6月就开始发生多起女示威者被多名男警拖行、掀起衣服、露出内衣甚至私处的恶行，更有女示威者遭受按倒、黑警公开用咸猪手搜身揩油，之后又爆出女示威者控诉在警署被全裸搜身等。黑警的性暴力愈演愈烈，已不是简单空穴来风的传闻，而成为反送中示威者面临的不可回避的新问题。
+美国是一个依法治国的民主国家，法律面前人人平等是吸引世界各地寻求公平正义的人们涌向美国的驱动力，也是美国屹立于世界受人尊敬和心向往之的重要原因。如果美国的司法部门出现问题，那美国的治国之本也将随之动摇，美国的前景将会暗淡无光。作为执法人员，维护国家的利益应该是放在首位的，如果将一个有严重叛国嫌疑的人推为总统，那美国人民将跌入万劫不复的深渊，巴尔口中的人民“赋予联邦政府的权力”就是对美国人民莫大的讽刺。
 
-8月28日，香港人在行政长官府邸礼宾府附近发起大规模示威活动，主题为《反送中#MeToo》。#MeToo是西方发起的沉默的性骚扰受害者站出指证的活动标签，而香港这次的示威，施暴人明确指向共产党控制的黑警，无论是是真香港警察、大陆多年布局渗透的警察，还是穿上香港警服的大陆假警察。
+**原文翻译：**
 
-大量女性示威者参与了这次示威活动。对于反性骚扰#MeToo运动，国际上常用紫色。当日晚上，在礼宾府周围，三万多名示威者打开手机电筒，覆上紫色的透光膜。从不出来面对示威者的行政长官林郑月娥，对香港黑警的性暴力清清楚楚。此刻，同为女性的她，龟缩在行政长官的府邸中看着窗外，她在想什么？
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22143323/HK-Police_sexual_violence-1.png)8月28日中环反对警察性暴力示威
-和陈彦霖案([香港风云16: 香港女儿](https://gnews.org/zh-hans/665383/) )一样引起巨大舆论争议的还有周梓乐坠楼事件。2019年11月4日凌晨，反送中的抗议者在将军澳和警方冲突，香港科技大学学生周梓乐从尚德邨停车场坠楼，不治身亡，时年22岁。周梓乐坠楼前，已有警察进入停车场，坠楼后，四肢未有骨折而躯干有伤，死因令人怀疑。事隔一年多后，面对香港市民和舆论的重重压力，周梓乐同学真实的死因仍然没有揭开。
+**巴尔为未在选举前公开对亨特-拜登的调查辩护**
 
-一周后的11月11日，香港市民又发起抗议活动，抗议主题转到警方的暴力方面。当日早上，交通警署警长关家荣(警号UI51999)在西湾河清理路障时，向香港专业教育学院柴湾分校的学生周柏均开枪，之后周同学和抗议青年胡子健均被捕。中枪学生周伯钧重伤倒地，送医院急救切除右肾后挽回生命。
+总检察长威廉·巴尔（William Barr）在周五的一次公开的采访中说，**对于在选举前不让公众知道民主党总统候选人乔·拜登的儿子正在接受调查一事，他并不后悔。**
 
-关家荣使用的枪械并非防暴警察驱逐用的催泪弹、布袋弹、橡皮子弹之类的非致命武器，而是香港警察标准的转轮配枪，配以金属实弹，属于致命武器。枪击案案发后，相关视频即在网上迅速流传，引起舆论哗然。网友迅速查到开枪警员关家荣的身份。他女儿就读于德望学校。随即，德望学校师生、家长及校友联署要求立即解除关家荣在该校家教会主席的职务，案发次日，学校宣布该警员已辞去家教会主席。
+[!\[\]()!\[\](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/ff0912a4-4e59-4748-8688-ac4ac75313c7.jpg?asset_id=1a1b9b1c-3841-4aa0-bdaf-87dbcb70cf70&amp;img_etag=%2213ffd68204600994106015b80b5297bc%22&amp;size=2560)](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/ff0912a4-4e59-4748-8688-ac4ac75313c7.jpg?asset_id=1a1b9b1c-3841-4aa0-bdaf-87dbcb70cf70&amp;img_etag=%2213ffd68204600994106015b80b5297bc%22&amp;size=1024)
 
-2020年1月23日，民主党立法会议员许智峰以私人身份，在管辖西湾河枪击案的东区法院对关家荣提起刑事控诉。6月11日，法院接纳三项刑事重罪控诉，还表示律政司有权介入本案，但“如果相信司法独立，就应交给法庭自行处理，否则就有包庇警员之嫌”。8月18日，律政司果然通知原告议员许智峰，律政司长郑若骅决定介入本案。许智峰表示将继续跟进此案，但针对他个人的威胁越来越大，直到11月底，他本人也流亡海外。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22143813/HK_-_Shooting.jpg)11.11枪击案现场![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22143840/GettyImages-1176326597-800x450-1.jpg)图片来源：Getty Images![]()![](https://i.ntdtv.com/assets/uploads/2019/09/gettyimages-1171981098-594x594.jpg)来源：MOHD RASFAN/AFP/Getty Images![](https://s.yimg.com/ny/api/res/1.2/C5sBbfpbvlMKA7_e8Zeyhg--/YXBwaWQ9aGlnaGxhbmRlcjt3PTk2MDtoPTYzMA--/https://s.yimg.com/uu/api/res/1.2/Je4.zkfmQm3CfqeAbymt0Q--~B/aD02MzA7dz05NjA7YXBwaWQ9eXRhY2h5b24-/https://media.zenfs.com/zh-tw/newtalk.tw/4a760dffba19b85cd1e8c92cfd7371e8)![](https://pgw.udn.com.tw/gw/photo.php?u=https://uc.udn.com.tw/photo/2019/11/09/realtime/7047863.png&amp;x=0&amp;y=0&amp;sw=0&amp;sh=0&amp;sl=W&amp;fw=800&amp;exp=3600)![]()![](https://i.ntdtv.com/assets/uploads/2019/12/GettyImages-1166493369-800x450-2-800x450.jpg)来源：PHILIP FONG/AFP via Getty Images![]()![](https://tw.appledaily.com/resizer/1cPKM2EM17VBOOpZrYWSX4o8Trk=/760x505/filters:quality(100)/cloudfront-ap-northeast-1.images.arcpublishing.com/appledaily/QTEDJDACEXAXM2LC2DTLWE4ABU.jpg)来源：苹果日报![](https://pgw.udn.com.tw/gw/photo.php?u=https://uc.udn.com.tw/photo/2020/05/05/99/7832216.jpg&amp;x=0&amp;y=0&amp;sw=0&amp;sh=0&amp;sl=W&amp;fw=1050)普利策奖(The Pulitzer Prizes)获奖作品![]()![](https://preview.redd.it/vywyeaz8h2841.jpg?width=960&amp;crop=smart&amp;auto=webp&amp;s=91ebc20c6da71d2e0dcfaa0d028f63311c39f0db)![]()![](https://images1.epochhk.com/pictures/131983/%E8%A6%96%E9%A0%BB%E5%B0%81%E9%9D%A2template-keynote_my005@1200x1200.jpeg)![]()![](https://i.ntdtv.com/assets/uploads/2019/11/gettyimages-1183187875-594x594.jpg)![]()![](https://image.cache.storm.mg/styles/smg-800x533-fp/s3/media/image/2019/08/14/20190814-071413_U1085_M543052_3712.jpg?itok=rqGwl8af)![]()![](https://i.ntdtv.com/assets/uploads/2019/11/gettyimages-1182101777-594x594.jpg)![]()![](https://info.51.ca/uploads/Image/2019/11/1_122P35194_0.jpg)![]()![](https://www.upmedia.mg/upload/content/20200527/MP200527200422655387.jpg)![]()![](https://static01.nyt.com/images/2019/07/21/world/21Hongkong1/merlin_158247051_4c84a529-6635-4433-8728-b9c600d37e65-master1050.jpg)来源：LAM YIK FEI FOR THE NEW YORK TIMES
-郭文贵先生则指出了香港大规模反人类罪行的更深的黑幕。过去多年，香港营建了大批设施用于大规模控制抗议人士，这些秘密牢房在这次镇压中都用上了。共产党为了不激起直接的外交冲突，从来不宣布对香港戒严。但实际上做的就是戒严，甚至烧杀抢掠的侵略活动。
+巴尔告诉《华尔街日报》，尽管司法部（DOJ）禁止公开确认涉及公职候选人的调查的规则“不是绝对的”，但他可以想象得到如果政府确认“握有针对候选人的决定性的严重犯罪证据”的后果。
 
-香港有一百多个孩子像陈彦霖一样失踪、被自杀、变成浮尸。频发的浮尸案往往集中在清晨五六点，避人耳目。都是早知内情的水警主动去打捞尸体，防止民众或消防人员发现尸体被处理的痕迹。这些尸体几乎没有溺亡的，都是被抛尸，被捆绑，甚至有干尸被宣布“溺亡”。港府大抓捕的实际人数超过公开数字的十倍，大量来自大陆和外籍、移民人士，在香港没有人照应的，都被秘密处理了。
+巴尔说，尽管没有明确的规定，但“合理的常规”是要保护候选人和日常生活的人们免受政府的攻击。
 
-反送中后期，越来越多的香港人被从高楼抛下，掩饰身上被虐打的伤痕。往往流血很少，说明已经死亡多时。网络上充满了浮尸和坠楼尸体的照片，许多都是年轻面容身材姣好的少女，有些缺少衣物遮蔽，让人不能不怀疑其中恶劣的性犯罪罪行。
+*巴尔说：“**思考一下我们赋予联邦政府的权力。**”*
 
-根据香港保安局长李家超在11月13日公布的官方数字，6月起至9月止，香港政府共接获2537宗发现尸体个案，当中包含送医前、到院后的死亡数字，而3个月新增的自杀通报件数则为256宗。反送中10个月发现6584具尸体，是过去10年的总和。至于秘密火化、人或尸体运到大陆处理的，更不在此列。
-![]()![](https://img.ltn.com.tw/Upload/news/600/2019/10/12/phpdtKzTb.jpg)网传反送中自杀人士记录![]()![](https://i.ntdtv.com/assets/uploads/2019/11/bb1b4db639b48ac4e6dac487323e483e-600x583.jpg)网上部分失踪告示
-半年时间，香港从东方之珠沦为人间地狱。共产党嗜血成性，在香港杀红了眼，已形如禽兽。而香港的抗争者也丝毫没有放弃的迹象。2014年的雨伞运动，抗争者高呼“一个蛋也不能碎”，相互关照友爱，甚至感谢当差警员的尽职工作。五年后，反送中运动已经让香港失去了上万优秀的儿女。留下来的战士，更加无望，也更加坚强。
+***“调查一个人所需要的标准很低。因此，在大选之前只要进行调查，并将其公开， 就会影响每个选举。”***
 
-(待续)
+巴尔表示他不后悔，并第一次圆滑地表示，他知道11月3日之前，亨特·拜登正在接受联邦政府的调查，但他没有让公众知道。
 
-相关链接：
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07022231/image0-2-1.png)](https://gnews.org/zh-hans/624473/)
+[!\[\]()!\[\](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/52a36d08-a384-416e-84da-8fba03206f0c.jpg?asset_id=377ff958-884b-4b47-912c-a80fd62fa727&amp;img_etag=%225caa9204119b67770ffd7febe735c261%22&amp;size=2560)](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/52a36d08-a384-416e-84da-8fba03206f0c.jpg?asset_id=377ff958-884b-4b47-912c-a80fd62fa727&amp;img_etag=%225caa9204119b67770ffd7febe735c261%22&amp;size=1024)
 
+在华盛顿白宫椭圆形办公室的简报中，司法部长威廉·巴尔（左）与唐纳德·川普总统交谈。（帕特里克·塞曼斯基/美联社照片）
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+乔·拜登的团队上周发布了小拜登（Hunter Biden）的声明，承认他正在接受调查。
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+*亨特·拜登在声明中说：“昨天，我第一次得知特拉华州的美国检察官办公室告知 我的法律顾问，他们正在调查我的税务事宜。”*
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+*“我非常认真地对待这一问题，但我相信，对这些问题进行专业和客观的审查将证 明我合法且适当地处理了我的税务事宜，其中包括经过专业税务顾问咨询后的所 有的税务优惠。”*
+
+**他的父亲（乔•拜登）说他相信他的儿子没有做错任何事，并对他有信心。**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/53612d38-ec20-4879-a6e5-e902f0337c69.jpg?asset_id=88d2f810-114f-4caf-a1fe-0e9432579fec&amp;img_etag=%2249ab11c01a9ff06a6460206dfe66f7d0%22&amp;size=1024)](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/53612d38-ec20-4879-a6e5-e902f0337c69.jpg?asset_id=88d2f810-114f-4caf-a1fe-0e9432579fec&amp;img_etag=%2249ab11c01a9ff06a6460206dfe66f7d0%22&amp;size=1024)亨特·拜登（左）于2020年11月7日在特拉华州威尔明顿拥抱他的父亲，民主党总统候选人提名的乔·拜登（安德鲁·哈尼克/ 普尔 /美联社照片）
+
+巴尔拒绝对亨特·拜登进行调查似乎使唐纳德·川普总统很不高兴。
+
+***“为什么比尔·巴尔没有在大选前向公众透露关于亨特·拜登犯罪的真相，致使 乔·拜登在总统侯选人辩论台上撒谎，说亨特·拜登什么都没做错，什么都 没有做，”川普在一条推文中写道。***
+
+川普在接受福克斯新闻采访时补充说：
+
+*“乔·拜登在总统候选人辩论台上撒谎。他说‘亨特•拜登什么都没有做，什么 罪行都没有。’而比尔·巴尔这时就应该站出来戳穿他。另外一个例子是罗伯 特·穆勒（Robert Mueller），当[新闻媒体]发布伪造的文章时…鲍勃·穆勒站出来 说，该文章是伪造的，然后最终证明我没有串通俄罗斯。比尔·巴尔应该做同样的 事情。”*
+
+**穆勒曾被任命为特别顾问，负责调查川普涉嫌与俄罗斯的关系，在调查期间，穆勒曾多次对各种报告中的不实报道做出强烈回应。**
+
+*穆勒办公室发言人彼得·卡尔在一月份的一份声明中说：“ BuzzFeed对特别顾问 办公室的具体声明，以及该办公室获得的关于迈克尔·科恩在国会作证的文 件和证词的报道都是不正确的。”*
+
+Buzzfeed声称川普指示他的前律师迈克尔·科恩在有关莫斯科川普大厦项目的会谈时间向国会撒谎。**穆勒小组的最终报告显示该事件是捏造的。**
+
+[原文链接](https://www.zerohedge.com/political/barr-defends-not-making-hunter-biden-probe-public-election?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/uKdnFHkLF9uQ1/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0
