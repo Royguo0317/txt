@@ -1,41 +1,117 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## War Room 600 总结
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/676164/)
+## 香港人今年怎么庆祝圣诞？
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/676327/)
 
-- 编辑：Ranting
-- 作者：Jenny Ball
+作者：香草山写作组 我爱正义 校对/发稿：飞虹
 
-
-一份5,000页的刺激法案，华盛顿特区放出9000亿美元的Covid-19援助法案。每个人只有600美元。
-
-**班农先生**：我认为现在的国债有28万亿美元。
-
-**约翰·弗雷德里克**（John Fredericks）：乔治亚的共和党机构根本没有采取任何行动制止欺诈行为。州长坎普（Kemp）不在乎压力有多大，因为私下里他认为一切都很好。他们的整个策略就是耗时间，非常令人沮丧。现在，举行特别会议的唯一方法是对州议会发言人大卫·拉尔斯顿（David Ralston）施加巨大压力。但是他在威胁会员不要签署请愿书，如果签字就剥夺他们的席位。
-
-共和党州长和共和党参议员完全不尊重川普总统，不尊重11月3日的投票选民。这是我从事新闻业三十年来见过的最恶心的事情之一。
-
-以我看来，总统应该取消1月4日来这里为他们当选进行大规模的集会活动。他需要告诉这些共和党候选人，要我来给你们背书，你们必须维护选举正义。只有威胁到他们的饭碗，才能让他们做出行动！
-
-**鲍里斯·艾普斯汀**（Boris Epshteyn）：我要告诉各位听众观众们，请密切关注宾夕法尼亚州。昨天，我们提交了第一份申请书，这是第一份川普竞选团队向最高法院提出的直接请愿书。因此，这是宾夕法尼亚州的大事。
-
-宾夕法尼亚州最高法院书记员剥夺了联邦宪法赋予宾夕法尼亚州立法机构的权利，即设定在宾夕法尼亚州举行总统选举的方式。现在取决于目前的最高法院以及加紧审议的动议，因为众所周知，时间至关重要。
-
-这样做是继续推动从司法战线解决威斯康星州，密歇根州，宾夕法尼亚州的非法选举，推动立法机关召开特别会议，以揭露每一个选民欺诈行为，选举违规，选举欺诈，选举不规范的情况，因此，到1月6日国会联席会议进行计数，这是副总统公开表决并进行表决的权利，届时那里已经有大量选举欺骗信息，议员可以根据特定州的合法选票对合法的选票进行计数。
-
-1月6日是具有实际意义的一天。如果在6号会议上没有任何决定，那么，如果没有以最高合法选票胜出的总统，也没有取得合法选票多数的选举人。到1月20日，将有一位代理总统，国会将解决谁赢得了总统。
-
-我们绝对有时间，因为从现在开始的行动实际上将在国会中进行，这取决于谁赢得了最大的合法选票，乔治亚州如果召开特别会议，如果在格鲁吉亚召开一次特别会议，从今天算的任何时候，无论是什么时间，这些代表和参议员都将参加会议作出裁决。
-
-**大卫·达内尔，共和党俄勒冈州主席**：俄勒冈州警察局在国会大厦负责安保工作，事实上，由于人们感到沮丧和不满，一些示威者在国会大厦与州警察冲突，警察今天向人们喷洒胡椒粉。许多抗议者跑出大厦外面咳嗽并揉眼睛。然后过了一会儿，州警察实际上用胡椒丸，迫使所有人离开了国会大厦。
-
-**大纪元时报专栏作家迈克尔·沃尔什**（Michael Walsh），《最后立场》（Last Stands）的作者：简要介绍了在1944年圣诞节期间发生在巴斯托涅（Bastogne）的突击战。巴斯托涅（Bastogne）是盟军和轴心国军队的重要基地。1944年圣诞节，对于美国士兵来说，他们的圣诞节是在保卫国家的战场上度过的。
-
-**今年的圣诞节，我们将为宪法而战斗着！为了这个国家的未来而战斗着**。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29231938/logo-3-1-1.jpg)
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+港人这一年半以来作出的抗争，感动世界。当政府高官暗地裡弹冠相庆的时候，他们努力让人觉得《国安法》以及疫情两招已经奏效，港人已无法抗争。然而，他们越努力营造假象，内心就越不安寧，直至心虚气短。因为，在香港，每一个人都知道，抗争远远没有结束。
+
+圣诞节
+平安夜
+鸣不平
+街头无人论抗争，
+民心念念不曾忘。
+鼠目但见名与利，
+獐头不思道与义。
+何人因言而入罪？
+何时黎明曙光现？
+有口何必欲多言？
+眾志成城大局定。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22145946/31.png)香港观察负责人Benedict Rogers书写於2020年12月22日
+**港人欢庆圣诞活动一览，欢迎参加！**
+
+活动一
+
+圣诞前夕街站
+日期：2020.12.23
+时间：1700-1900
+地点：旺角商务书局对出空地
+
+天气渐凉，我们计画在圣诞前夕摆街站，让大家写信给同路人，同时亦準备了一点心意送给大家，我们希望令眾人知道，这条路并不孤单。
+
+苹果专访：贤学思政坚持周末摆街站
+召集人王逸战：愿死於斯
+
+**一定要****做小小风险申报**
+**注意，在香港作明显表态的行动阶有风险，请自我思考可以接受的代价**
+![]()
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150255/32.png)
+活动二
+
+#24Dec #九龙 #和你报佳音
+《12.24 愿平安归香港 和你报佳音》
+日期：12月24日（四）
+时间：晚上
+地点：九龙区
+内容：街头荣光快闪大合唱
+P.s 提醒返手足不要违反《二人限聚令》，注意社交距离要有1.5米，以免受到599票控。
+Source : [https://t.me/xmas\_eve\_hk/3](https://t.me/xmas_eve_hk/3)
+
+**一定要****做小小风险申报**
+**注意，在香港作明显表态的行动阶有风险，请自我思考可以接受的代价**
+
+活动三
+
+#24Dec #沙田 #元朗 #观塘 #维园 #烛光 #悼念
+【12.24平安夜烛光悼念活动】
+日期：12月24日 (四)
+时间：20:00
+地点：沙田百步梯，元朗西铁站，观塘海滨花园，维园篮球场
+活动：為香港默哀+砌烛光海
+欢迎各参加者带备蜡烛到场
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150357/33-2.png)
+[https://t.me/SilentCandleNight/40](https://t.me/SilentCandleNight/40)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150423/34.png)
+#因应投票得出结果更新地点
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150501/35.png)
+![]()
+#24-27Dec #旺角 #连儂墙 #市集 #黄色经济圈
+【#连儂说——连儂展览 x 圣诞市集】
+日期 : 12月24-27日 (四至日)
+时间 :
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150545/36.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150649/37.png)
+12.24 14:00-20:00
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150722/38.png)
+12.25-27 12:00-20:00
+地点 : 旺角广东道 1143 号
+协和工业大厦 4 楼，梘单製皂
+备註 : 疫情关係将会有变动 , 请留意最新资讯
+Source : [bit.ly/lennonsays](https://bit.ly/lennonsays)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150801/39.png)
+圣诞课金週
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150812/39-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150858/41.png)
+![]()
+**第一波唔係食店**
+
+[https://www.instagram.com/p/CIgHQG6nGpz/](https://www.instagram.com/p/CIgHQG6nGpz/)
+#19-27Dec #圣诞课金週 #双拾团队
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150812/39-1.png)
+**圣诞课金週**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150812/39-1.png)
+**爆买日**
+日期 : 12月19-23日
+目的: 延续黄圈精神，呈现香港人的力量
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150801/39.png)
+**圣诞课金週**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150801/39.png)
+**美食週**
+
+[https://www.instagram.com/p/CIi05lmHCup/?utm\_source=ig\_web\_copy\_link](https://www.instagram.com/p/CIi05lmHCup/?utm_source=ig_web_copy_link)
+日期 : 12月24-27日
+目的: 延续黄圈精神，呈现香港人的力量
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

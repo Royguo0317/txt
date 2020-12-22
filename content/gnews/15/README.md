@@ -1,79 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 按图索骥：这些图片告诉你川普总统将要怎样做
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/676058/)
+## 【香港风云】17: 血染香港
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/676094/)
 
-作者：此心不变；校对：西川stanly；审核：海阔天空；Page：拱卒
+作者：香草山写作组 Tiffany的早餐 校对/发稿：飞虹
 
-## 按图索骥：丹 · 斯卡维诺（Dan Scavino）图片告诉你川普总统接下来的行动
-
-[!\[\]()!\[\](https://spark.adobe.com/page/qBgPvTVu0X3u3/images/9b39cbe4-725d-41ad-b6a6-038ed5b9cb9e.jpg?asset_id=18b8b402-4242-4f67-b4cc-c1662021746f&amp;img_etag=%2230abc26ce54ad0787a081c5b4f27cf5e%22&amp;size=1024)](https://spark.adobe.com/page/qBgPvTVu0X3u3/images/9b39cbe4-725d-41ad-b6a6-038ed5b9cb9e.jpg?asset_id=18b8b402-4242-4f67-b4cc-c1662021746f&amp;img_etag=%2230abc26ce54ad0787a081c5b4f27cf5e%22&amp;size=1024)
-
-自2016年大选以来，丹·斯卡维诺（Dan Scavino）一直担任川普总统的社交媒体总监。他是川普总统值得信赖和忠诚助手。在星期五晚上（12月18日）的会议后他通过他的个人推特帐号（[https://twitter.com/DanScavino](https://twitter.com/DanScavino)）发布一系列推文，没有文字，只有图片和视频，他想告诉我们什麽？那不是随意發推，每一个推文都是有特别含义的，细心的人从中可以获取很多有关川普的很多信息。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14092131/GNEW-GTV-MOS-LOGO-2.jpg)
 
 
-> **图片1：发布在12月19日凌晨**
+
+摘要：反送中的警暴持续升级，从针对女性示威者的性暴力，到721、831袭击事件，陈彦霖案、周梓乐案、关家荣枪击学生案 … … 。反送中10个月，香港发现尸体的个案超过过去十年总和，而这并不包含更多被秘密杀害的义士。
+
+香港警暴在反送中运动中持续升级。香港抗争中最英勇的是“勇武派”，不同寻常的是，勇武派中最勇武的都是女性。共产党的魔性也是罕见的，他们的鹰犬爪牙对抗争的女性尤为残暴。反送中期间，黑警的暴力执法包含着大量的性暴力。陈彦霖母女的遭遇代表了许多女性受害者的遭遇，更多无名无姓的香港女性成为受害者。
+
+2019年6月就开始发生多起女示威者被多名男警拖行、掀起衣服、露出内衣甚至私处的恶行，更有女示威者遭受按倒、黑警公开用咸猪手搜身揩油，之后又爆出女示威者控诉在警署被全裸搜身等。黑警的性暴力愈演愈烈，已不是简单空穴来风的传闻，而成为反送中示威者面临的不可回避的新问题。
+
+8月28日，香港人在行政长官府邸礼宾府附近发起大规模示威活动，主题为《反送中#MeToo》。#MeToo是西方发起的沉默的性骚扰受害者站出指证的活动标签，而香港这次的示威，施暴人明确指向共产党控制的黑警，无论是是真香港警察、大陆多年布局渗透的警察，还是穿上香港警服的大陆假警察。
+
+大量女性示威者参与了这次示威活动。对于反性骚扰#MeToo运动，国际上常用紫色。当日晚上，在礼宾府周围，三万多名示威者打开手机电筒，覆上紫色的透光膜。从不出来面对示威者的行政长官林郑月娥，对香港黑警的性暴力清清楚楚。此刻，同为女性的她，龟缩在行政长官的府邸中看着窗外，她在想什么？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22143323/HK-Police_sexual_violence-1.png)8月28日中环反对警察性暴力示威
+和陈彦霖案([香港风云16: 香港女儿](https://gnews.org/zh-hans/665383/) )一样引起巨大舆论争议的还有周梓乐坠楼事件。2019年11月4日凌晨，反送中的抗议者在将军澳和警方冲突，香港科技大学学生周梓乐从尚德邨停车场坠楼，不治身亡，时年22岁。周梓乐坠楼前，已有警察进入停车场，坠楼后，四肢未有骨折而躯干有伤，死因令人怀疑。事隔一年多后，面对香港市民和舆论的重重压力，周梓乐同学真实的死因仍然没有揭开。
+
+一周后的11月11日，香港市民又发起抗议活动，抗议主题转到警方的暴力方面。当日早上，交通警署警长关家荣(警号UI51999)在西湾河清理路障时，向香港专业教育学院柴湾分校的学生周柏均开枪，之后周同学和抗议青年胡子健均被捕。中枪学生周伯钧重伤倒地，送医院急救切除右肾后挽回生命。
+
+关家荣使用的枪械并非防暴警察驱逐用的催泪弹、布袋弹、橡皮子弹之类的非致命武器，而是香港警察标准的转轮配枪，配以金属实弹，属于致命武器。枪击案案发后，相关视频即在网上迅速流传，引起舆论哗然。网友迅速查到开枪警员关家荣的身份。他女儿就读于德望学校。随即，德望学校师生、家长及校友联署要求立即解除关家荣在该校家教会主席的职务，案发次日，学校宣布该警员已辞去家教会主席。
+
+2020年1月23日，民主党立法会议员许智峰以私人身份，在管辖西湾河枪击案的东区法院对关家荣提起刑事控诉。6月11日，法院接纳三项刑事重罪控诉，还表示律政司有权介入本案，但“如果相信司法独立，就应交给法庭自行处理，否则就有包庇警员之嫌”。8月18日，律政司果然通知原告议员许智峰，律政司长郑若骅决定介入本案。许智峰表示将继续跟进此案，但针对他个人的威胁越来越大，直到11月底，他本人也流亡海外。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22143813/HK_-_Shooting.jpg)11.11枪击案现场![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22143840/GettyImages-1176326597-800x450-1.jpg)图片来源：Getty Images![]()![](https://i.ntdtv.com/assets/uploads/2019/09/gettyimages-1171981098-594x594.jpg)来源：MOHD RASFAN/AFP/Getty Images![](https://s.yimg.com/ny/api/res/1.2/C5sBbfpbvlMKA7_e8Zeyhg--/YXBwaWQ9aGlnaGxhbmRlcjt3PTk2MDtoPTYzMA--/https://s.yimg.com/uu/api/res/1.2/Je4.zkfmQm3CfqeAbymt0Q--~B/aD02MzA7dz05NjA7YXBwaWQ9eXRhY2h5b24-/https://media.zenfs.com/zh-tw/newtalk.tw/4a760dffba19b85cd1e8c92cfd7371e8)![](https://pgw.udn.com.tw/gw/photo.php?u=https://uc.udn.com.tw/photo/2019/11/09/realtime/7047863.png&amp;x=0&amp;y=0&amp;sw=0&amp;sh=0&amp;sl=W&amp;fw=800&amp;exp=3600)![]()![](https://i.ntdtv.com/assets/uploads/2019/12/GettyImages-1166493369-800x450-2-800x450.jpg)来源：PHILIP FONG/AFP via Getty Images![]()![](https://tw.appledaily.com/resizer/1cPKM2EM17VBOOpZrYWSX4o8Trk=/760x505/filters:quality(100)/cloudfront-ap-northeast-1.images.arcpublishing.com/appledaily/QTEDJDACEXAXM2LC2DTLWE4ABU.jpg)来源：苹果日报![](https://pgw.udn.com.tw/gw/photo.php?u=https://uc.udn.com.tw/photo/2020/05/05/99/7832216.jpg&amp;x=0&amp;y=0&amp;sw=0&amp;sh=0&amp;sl=W&amp;fw=1050)普利策奖(The Pulitzer Prizes)获奖作品![]()![](https://preview.redd.it/vywyeaz8h2841.jpg?width=960&amp;crop=smart&amp;auto=webp&amp;s=91ebc20c6da71d2e0dcfaa0d028f63311c39f0db)![]()![](https://images1.epochhk.com/pictures/131983/%E8%A6%96%E9%A0%BB%E5%B0%81%E9%9D%A2template-keynote_my005@1200x1200.jpeg)![]()![](https://i.ntdtv.com/assets/uploads/2019/11/gettyimages-1183187875-594x594.jpg)![]()![](https://image.cache.storm.mg/styles/smg-800x533-fp/s3/media/image/2019/08/14/20190814-071413_U1085_M543052_3712.jpg?itok=rqGwl8af)![]()![](https://i.ntdtv.com/assets/uploads/2019/11/gettyimages-1182101777-594x594.jpg)![]()![](https://info.51.ca/uploads/Image/2019/11/1_122P35194_0.jpg)![]()![](https://www.upmedia.mg/upload/content/20200527/MP200527200422655387.jpg)![]()![](https://static01.nyt.com/images/2019/07/21/world/21Hongkong1/merlin_158247051_4c84a529-6635-4433-8728-b9c600d37e65-master1050.jpg)来源：LAM YIK FEI FOR THE NEW YORK TIMES
+郭文贵先生则指出了香港大规模反人类罪行的更深的黑幕。过去多年，香港营建了大批设施用于大规模控制抗议人士，这些秘密牢房在这次镇压中都用上了。共产党为了不激起直接的外交冲突，从来不宣布对香港戒严。但实际上做的就是戒严，甚至烧杀抢掠的侵略活动。
+
+香港有一百多个孩子像陈彦霖一样失踪、被自杀、变成浮尸。频发的浮尸案往往集中在清晨五六点，避人耳目。都是早知内情的水警主动去打捞尸体，防止民众或消防人员发现尸体被处理的痕迹。这些尸体几乎没有溺亡的，都是被抛尸，被捆绑，甚至有干尸被宣布“溺亡”。港府大抓捕的实际人数超过公开数字的十倍，大量来自大陆和外籍、移民人士，在香港没有人照应的，都被秘密处理了。
+
+反送中后期，越来越多的香港人被从高楼抛下，掩饰身上被虐打的伤痕。往往流血很少，说明已经死亡多时。网络上充满了浮尸和坠楼尸体的照片，许多都是年轻面容身材姣好的少女，有些缺少衣物遮蔽，让人不能不怀疑其中恶劣的性犯罪罪行。
+
+根据香港保安局长李家超在11月13日公布的官方数字，6月起至9月止，香港政府共接获2537宗发现尸体个案，当中包含送医前、到院后的死亡数字，而3个月新增的自杀通报件数则为256宗。反送中10个月发现6584具尸体，是过去10年的总和。至于秘密火化、人或尸体运到大陆处理的，更不在此列。
+![]()![](https://img.ltn.com.tw/Upload/news/600/2019/10/12/phpdtKzTb.jpg)网传反送中自杀人士记录![]()![](https://i.ntdtv.com/assets/uploads/2019/11/bb1b4db639b48ac4e6dac487323e483e-600x583.jpg)网上部分失踪告示
+半年时间，香港从东方之珠沦为人间地狱。共产党嗜血成性，在香港杀红了眼，已形如禽兽。而香港的抗争者也丝毫没有放弃的迹象。2014年的雨伞运动，抗争者高呼“一个蛋也不能碎”，相互关照友爱，甚至感谢当差警员的尽职工作。五年后，反送中运动已经让香港失去了上万优秀的儿女。留下来的战士，更加无望，也更加坚强。
+
+(待续)
+
+相关链接：
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07022231/image0-2-1.png)](https://gnews.org/zh-hans/624473/)
 
 
-[!\[\]()!\[\](https://spark.adobe.com/page/qBgPvTVu0X3u3/images/8104ee7b-e497-4d7c-b2f6-e00edc88d815.png?asset_id=8bbd63bd-7733-4197-a902-02c205db91dc&amp;img_etag=%2242a4fb9e6c8a6664966c20ceeecf3f90%22&amp;size=1024)](https://spark.adobe.com/page/qBgPvTVu0X3u3/images/8104ee7b-e497-4d7c-b2f6-e00edc88d815.png?asset_id=8bbd63bd-7733-4197-a902-02c205db91dc&amp;img_etag=%2242a4fb9e6c8a6664966c20ceeecf3f90%22&amp;size=1024)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-**简评：**鹰🦅代表美国，它在盯着敌人！盯着罪恶！
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-
-> 视频：发布在12月19日凌晨，紧接着上面图片之后
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/qBgPvTVu0X3u3/images/2482fbcf-fd27-4f44-81fd-2834a1445d43.png?asset_id=1cedd400-6192-417a-b794-617620dd0b63&amp;img_etag=%2259ab4989655d5dd0ab2a886aecede0b3%22&amp;size=1024)](https://spark.adobe.com/page/qBgPvTVu0X3u3/images/2482fbcf-fd27-4f44-81fd-2834a1445d43.png?asset_id=1cedd400-6192-417a-b794-617620dd0b63&amp;img_etag=%2259ab4989655d5dd0ab2a886aecede0b3%22&amp;size=1024)
-
-链接：[https://twitter.com/DanScavino/status/1340208320951562240](https://twitter.com/DanScavino/status/1340208320951562240)
-
-**简评：**人最难战胜的是自己，川普已经战胜自己，他要为川普而战！拯救美国！拯救世界！
-
-
-> **图片2：发布在12月19日晚上**
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/qBgPvTVu0X3u3/images/5fff97c2-73c8-4516-a81c-1a24819758d4.jpg?asset_id=147b4de8-5a99-4e1d-a331-995beefbc4c1&amp;img_etag=%220052a34902a24a841fbe2e6d4c4bd269%22&amp;size=2560)](https://spark.adobe.com/page/qBgPvTVu0X3u3/images/5fff97c2-73c8-4516-a81c-1a24819758d4.jpg?asset_id=147b4de8-5a99-4e1d-a331-995beefbc4c1&amp;img_etag=%220052a34902a24a841fbe2e6d4c4bd269%22&amp;size=1024)
-
-**简评：**12月19日晚上连续推出几张照片，这是第一张，太明白不过的意思了。川普面对林肯，要为国家做出选择。我们都知道林肯采取了戒严法，下令关闭数百家反对他的北方报纸，并逮捕其所有者和编辑；下令逮捕俄亥俄州国会议员克莱门特.瓦兰迪加姆，罪名是公开反对他；美国首席大法官罗杰·塔尼裁定，林肯非法中止人身保护令，违反了美国宪法。林肯听了这番话，签署了逮捕令，逮捕了美国首席大法官；林肯下令在马里兰州逮捕数千人，罪名是“涉嫌同情南方”，包括下令逮捕来自马里兰州的国会议员亨利·梅。这些人未经审判就被逮捕并关押在军事监狱，其中一些人被关押了数年。尽管至今仍有人在为这些措施争论，但没有人不同意林肯是职责所在，他使用总统权力是为了拯救国家，拯救共和国，而不是为了党派利益和个人利益，他不得不这么做。川普也一样，他要把国家和人民的利益放在首位，为了捍卫美国宪法，为了捍卫美国的民主制度，为了捍卫美国得以立国的价值观念，在今天，几乎整个媒体都噤声，几乎整个司法都腐败，几乎整个美国都沦陷的情况下， 川普总统别无选择，他只能这么做。
-
-川普总统在12月20日推文中说：“戒严法=fake news”，那是指在12月18日那晚会议中根本没有讨论过戒严法，而不是说他不会采取戒严法。
-
-那晚会议中到底发生什么？前Overstock首席执行官帕特里克·伯恩（Patrick Byrne）在会议现场，他的推文说：“整个会议四个半小时我都在那里。关于军事政变/戒严法的讨论是100％捏造。 川普总统被自己身边的顾问骗了，他们是白宫幕僚长Meadows，白宫律师Eric，Derek和Pat Cippolone，其中Pat Cippolone是洩密者，洩密会议内容给纽约时报的人。这群人用谎言阻止川普去讨论、去做决定，他们想拖延时间，令川普最后让步。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/qBgPvTVu0X3u3/images/254062d3-911a-40e7-b8b9-008448cc9a71.png?asset_id=d75bd8ff-57bc-403f-982d-ac8d50f74fcb&amp;img_etag=%22e2c734bab27bf2e6aa6079576bc9f564%22&amp;size=2560)](https://spark.adobe.com/page/qBgPvTVu0X3u3/images/254062d3-911a-40e7-b8b9-008448cc9a71.png?asset_id=d75bd8ff-57bc-403f-982d-ac8d50f74fcb&amp;img_etag=%22e2c734bab27bf2e6aa6079576bc9f564%22&amp;size=1024)
-
-他的另一个推文说：“川普100％可获胜。 无需戒严。 （如果川普采纳）西德尼和弗林提出的建议，我估计有50％-75％的获胜机会。 川普职员仍然在试图说服他去接受（竞选失败的）现状，不要做任何（多余的反抗）。作为一个CEO，看到他正经历的这些，我的心都碎了。 他被他身边的人给出卖了。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/qBgPvTVu0X3u3/images/ee3a57a1-7667-4643-bdcf-786f180b4147.png?asset_id=9e8a1576-45d9-4774-afaa-0b22dfbd6efc&amp;img_etag=%2230aa9ad5d572eff608db1ba91eedc887%22&amp;size=1024)](https://spark.adobe.com/page/qBgPvTVu0X3u3/images/ee3a57a1-7667-4643-bdcf-786f180b4147.png?asset_id=9e8a1576-45d9-4774-afaa-0b22dfbd6efc&amp;img_etag=%2230aa9ad5d572eff608db1ba91eedc887%22&amp;size=1024)
-
-从这个推文中，我们知道那天西德尼和弗林提出的建议不是戒严法，我猜应该是如何把Dominion欺诈系统带入法庭。据说，朱利安尼已经转向，配合鲍威尔的行动。这对爆料革命非常有利，只要能让Dominion欺诈系统走入法庭，就能向全世界曝光Dominion系统的背后大佬CCP，这样就能打开灭共的第三道大门。
-
-
-> **图片3：发布在12月19日晚上，紧接着上面的图片**
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/qBgPvTVu0X3u3/images/81c17d39-256e-4c4e-b865-0c4c4eb39034.jpg?asset_id=61a9f7f9-f5d8-44e2-9bd5-d74f2180367c&amp;img_etag=%228e58931e0abd8e39e4199a4b99191201%22&amp;size=2560)](https://spark.adobe.com/page/qBgPvTVu0X3u3/images/81c17d39-256e-4c4e-b865-0c4c4eb39034.jpg?asset_id=61a9f7f9-f5d8-44e2-9bd5-d74f2180367c&amp;img_etag=%228e58931e0abd8e39e4199a4b99191201%22&amp;size=1024)
-
-**简评：**照片中的人是邱吉尔。当时的背景是二次世界大战刚爆发时，德国大军压境，英国保守党的绥靖政策再也挽救不了国家，于是他们把这个烂摊子卸给了同是保守党的邱吉尔，让他来承当一切责任和后果。也就是说，川普被他的党派出卖，邱吉尔也一样被他的党派出卖了。于是邱吉尔成为战时总统，他以首相身分演讲说：“I have nothing to offer but blood, toil, tears and sweat……You ask, what is our aim? I can answer in one word: It is victory, victory at all costs, victory in spite of all terror, victory, however long and hard the road may be; for without victory, there is no survival. ”意思是：“我没有别的，只有热血、辛劳、眼泪和汗水献给大家……你们问：我们的目的是什么？我可以用一个词来答复：胜利，不惜一切代价去争取胜利，无论多么恐怖也要争取胜利，无论道路多么遥远艰难，也要争取胜利，因为没有胜利就无法生存。”最终英国赢得了第二次世界大战的胜利。丹·斯卡维诺在这个时候推出这张照片，意指川普总统要学邱吉尔决意要战胜对手，绝不畏缩，拯救美国！拯救世界。
-
-
-> **图片4：发布在12月19日晚上，紧接着上面的图片**
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/qBgPvTVu0X3u3/images/10604c54-fd8e-4445-9274-88bd88f4ca95.jpg?asset_id=ece38e33-8616-4d74-b8d2-c5d5de1e2ec0&amp;img_etag=%22f90875ed1ee8b1fbaadba561f7c6eca4%22&amp;size=2560)](https://spark.adobe.com/page/qBgPvTVu0X3u3/images/10604c54-fd8e-4445-9274-88bd88f4ca95.jpg?asset_id=ece38e33-8616-4d74-b8d2-c5d5de1e2ec0&amp;img_etag=%22f90875ed1ee8b1fbaadba561f7c6eca4%22&amp;size=1024)
-
-**简评：**川普背后的这个人是美国第七任总统安德鲁·杰克逊（Andrew Jackson），他是民主党创建者，美国历史上第一位民主党总统，从此开启了“杰克逊式民主”时代。什么是杰克逊式民主？杰克逊式民主（英语：Jacksonian democracy）是19世纪美国的一种意识形态，鼓吹大众民主，类似今天美国民主党口中的政治正确，这不是真民主，这是假民主。美国总统安德鲁·杰克逊是其核心人物，一度风靡美国。 杰克逊及其拥趸者形成了一个由唯农论者、平民主义者、自由主义者、民族主义者等群体出于政治上的考量而组成的联盟，这不是正义联盟，而是邪恶联盟。杰克逊当选后，为了打破东部权贵集团垄断官职的传统，大胆采用轮流担任公职的办法，将大批西部旧属、忠于民主党的信徒、支持自己竞选的人任命为政治任命官员，成为后世“政党分赃制” （spoils system）的雏型。“杰克逊式民主”是激进民主，与美国保守主义背道而驰。保守主义强调的是美国宪法中的立国价值观，而激进民主强调的是通过激进手法来获取政权，无视信仰，无视道德。这张照片又意指什麽呢？照片中川普背对安德鲁·杰克逊下达总统命令，意指川普要下达的总统命令是要打击邪恶的“杰克逊式民主”，他要拯救美国！拯救世界！
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/qBgPvTVu0X3u3/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/qBgPvTVu0X3u3/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/qBgPvTVu0X3u3/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

@@ -1,39 +1,110 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】麦康奈尔：佩洛西、舒默几个月前就可以通过冠状病毒援助法案，但他们却只顾着破坏特朗普的竞选
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/676031/)
+## 加拿大银行业行为与合规（四）
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/676211/)
 
-作者：香草山写作组  Naughty 校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29231938/logo-3-1-1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16220630/%E5%8A%A0%E8%A1%8C%E4%B8%9A1.png)Picture Source: https://www.groomassocies.com
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22133506/27.png)
-参议院多数党领袖米奇·麦康奈尔对陷入僵局的冠状病毒刺激法案即将于星期一通过国会表示赞赏，但他补充说，如果他们没有先去考虑如何破坏特朗普总统的连任的话，民主党人本可以在数月前就该协议与共和党达成一致。
+在本文中更多的是介绍关于最新用户的账户收集，以及银行内部从业人员的相应行为标准。有助于读者进一步了解加拿大零售银行从业人员的基本工作流程，并确保自己受到公平的对待
 
-麦康奈尔对《每日简报》说：“不是太少，是太迟了。” “这个法案直接针对美国目前的需求而制定。如果在新一届政府上台后，他们会提出更多相关法案，我们会根据当时的国情再做研究。 ”
+1.根据81—102   Standard Performance Data / 标准表现数据
 
-国会领导人周日同意了一项9000亿美元的冠状病毒一揽子计划，该计划包括直接给予大多数美国人资金援助，针对小型企业的有针对性的救济，疫苗接种的资金，以及扩大的失业救济金。加上九月之前向政府提供资金的1.4万亿美元总预算法案，议员们将对大约2.3万亿美元的新支出进行投票。预计该法案会获得通过，特朗普总统也已表示待投票通过后会立即签署该法案。
+A. Be Reviewed 2. Be Used 3. Be Made
 
-麦康奈尔周一还回击了众议院议长南希·佩洛西，加利福尼亚州和其他民主党人关于共和党人应对第二轮冠状病毒援助法案陷入僵局负责的说法。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22134628/28.png)
-麦康奈尔说：“事实并非无关紧要。我在7月份说过，美国需要的一揽子计划大约为1万亿美元，重点放在学校的孩子，小型企业，医疗保健提供者和直接现金付款上……。我们在7月和8月开始倡导这一计划。毫无用处，所以我基本上在9月和10月将该法案付诸参议院，没有一个民主党人支持它，他们的观点是，给我们我们想要的一切，或者我们什么都不给。最后，他们终于给了我们我们可以同意的七月份的支持。我认为他们并不想在总统大选前做任何事情，他们认为那将不利于总统大选。”
+B. 必须提供给客户—Performance Data表现数据
 
-参议院民主党人一再阻挠较小的共和党救济法案，佩洛西（Pelosi）说，在整个2020年，她在任何立法中都不会低于2万亿美元，但在媒体传出拜登胜选的消息后，她立刻改变了自己的论调转而为这项大约9080亿美元的方案背书。
+C. 仅能使用—Current Data当前数据
 
-麦康奈尔向福克斯新闻主持人达娜·佩里诺（Dana Perino）强调，“让美国最快恢复正常状态的方法是尽可能快地给公众接种疫苗。美国领导人必须加紧采取措施，让美国公众放心地接受疫苗注射。这非常重要，因为民意调查显示，大约有一半的公众对注射疫苗持怀疑态度，或者根本不愿意注射。”他说，“这必须改变，只有大量的美国人接种疫苗。我们才可能解决这个问题。”
+D. 必须适当披露—Past Performance 过往表现
 
-麦康奈尔还告诉佩里诺，他将在未来的任何救济立法中推动针对与冠状病毒相关的诉讼的责任保护。他说：“我认为减免责任确实很重要，不仅对小型企业而言。对大学，非营利组织，医院，医生，护士等等都很重要……。新冠病毒仍在继续传播中，这些人需要得到保护，因为他们正在尽最大努力治疗这种未知的疾病，如果还有其他疾病，在第一年以后，我将坚持通过冠状病毒救济法案，其中就包括为这些大学和医疗保健提供者提供责任保护。”
+2.Solicited Order 推荐订单最重要的两个组成部分
 
-快评：政坛老鳄麦康奈尔刚刚在15日公开承认拜登当选，现在又借疫苗问题抨击民主党人拖延新冠病毒援助法案，两边押宝，积极为将来站队做准备，正如路德访谈中所说，对政治家来说，最重要的是抓住各种机会为自己积累政治资本。麦康奈尔这位“老手”究竟会在这次历史性的总统选举中充当什么角色，我们拭目以待。
+A. 符合交易商的资产配置模型
+
+B. 符合KYC信息的一致性 = Congruent
+
+3.Unsolicited Order：
+
+A. 不合适(违背模型)不是不合理，所以仍接受因为。
+
+B. 因为符合个人经验/知识/资产 = Unsuitable，But Acceptable
+
+4.Discount Broker
+
+A. 可以豁免适用性要求（No Suitability）
+
+5.Acceptability
+
+A. Reasonability合理性是评判能否接受的标准之一。
+
+交易商模型之外，但仍符合个人经验/知识/资产=仍然属于
+
+Acceptable极左或极右都是不可以的
+
+B. Conservatism
+
+过于保守的组合与资深投资人
+
+C. Type of Order
+
+一次性购买转为分期购买，如中等承受力对应激进型基金分期购买
+
+6.Suitability =Quantitative Aspect 以交易商模型判断, 任何误差都
+
+不被允许Reasonability=More Subjective 以KYC信息判断
+
+A. 仅KYC的标准对此产生影响
+
+B. 未来的预期并不会二者标准产生任何影响
+
+7.对于风险和回报率的结合展示的表现数据的效果使用范围
+
+A. 不超过质询后45天（Period of Question）
+
+B. 任何首次销售公开日期的前3个月
+
+（First publication of Any sales communication）
+
+8.年度效绩评估  / Annual Performance
+
+A. 基于过往5Years 或 10 Years
+
+B. 根据NI31-301和MFDA5.35至少每12个月提供一次
+
+9.根据NI31-301至少12个月，向客户提供一次加权收益回报
+
+10.注册销售，禁止行为
+
+A. Discretionary Trading（详见CSC）未授权交易
+
+B. Selling to Non-Resident 向非居民销售
+
+C. Short-Term Trading = 90天内的短期交易
+
+D. Market Timing 投机交易
+
+E. Late Trading =订单After：4PM，价格Before：4PM)
+
+F. Improper Orders 不匹配订单
+
+11.非注册人员，禁止行为NI31-103
+
+A. 旧版Trade Trigger / Furtherance of trade
+
+=Trade Transaction（Promote or Recommend）
+
+B. 新版 Business Trigger 商业触发点= Trade Transaction交易  + Advising建议
+
+Author：搞笑排行榜
+
+Original opinion article by Himalaya G-farm Vancouver
+
+2020/12/22
+
+* * *
 
 
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

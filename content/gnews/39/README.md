@@ -1,44 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯：西德尼.鲍威尔律师强力回击Smartmatic诉讼威胁
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/672797/)
+## 【看七哥视频】道德是最低的做人的底线
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/675858/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
-
-鲍威尔律师推文更新：
-
-听说他们也给我写信了!还没看到，但我什么也不会撤回
-
-我们有证据!
-
-他们是诈骗大师!
-
-信中指控鲍威尔参与了针对Smartmatic的协同虚假宣传活动。鲍威尔出现在许多新闻网络上，包括但不限于福克斯新闻、福克斯商业和Newsmax，并告诉数百万观众，Smartmatic是在Hugo Chávez的指导下创建的。它的软件被设计成操纵选举，而Smartmatic与其他人合谋，骗取美国人民的信任，并通过改变、夸大、删除等方式来修改2020年美国大选投票。通过鲍威尔在新闻网络上的露面和发表的推特，鲍威尔散布了一家完全与投票无关的公司的谎言。
-
-[信件原文](https://www.dropbox.com/s/07rcb6pj6omo9vx/Smartmatic%20Retraction%20Letter%20to%20Powell%2012.15.2020.pdf?dl=0)
-
-林伍德律师：
-
-西德尼知道我在诽谤法方面的背景和经验，她要求我代表她并回应SmartMatic的诉讼威胁。由于西德尼所说的关于选举舞弊的所有内容都是有据可查的事实，所以我对SmartMatic的回应很简单，也很有针对性：
-
-我代表鲍威尔。我已经很仔细得看了你们的信件。我一点都不在意。鲍威尔女士什么也不会撤回。准备好你的法律文件吧。
+```
+作者：儒为
+ 校对/发稿人: Ting Guo
+```
 
 
+维基百科：道德是依据一定社会或阶级的价值观、社会舆论、传统习俗和人的内心信念的力量来调整对他人和自己之间的行为进行善恶、荣辱、正当或不正当等的相互关系的评价和断定的行为规范标准。有着通过确立一定的善恶标准和行为准则，来约束人们的相互关系和个人行为，调节社会关系，并与法一起对社会生活的正常秩序起保障作用。贯穿于社会生活的各个方面，如社会公德、婚姻家庭道德、职业道德等。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22115140/images-1-8.jpeg)图片来源: 博物库
+中文道德一词，可追溯到先秦思想家老子所著《老子》书。老子说：“道生之，德畜之，物行之，势成之，夫莫之命而常自然。”其中“道”指自然运行与人世共通的真理；而“德”是指人世的德性、品行、王道。
 
-> Knowing my background & experience in defamation law, Sidney [@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw) asked me to represent her & respond to SmartMatic litigation threat.
-> 
-> Since everything Sidney is saying about election fraud is documented TRUTH, my response to SmartMatic was simple & to the point. [pic.twitter.com/bWvhBXmtsi](https://t.co/bWvhBXmtsi)
-> — Lin Wood (@LLinWood) [December 20, 2020](https://twitter.com/LLinWood/status/1340729543267667970?ref_src=twsrc%5Etfw)
+七哥在视频当中也严肃的提到：道德是一个人在社会上生存和动物之间区分开的唯一的一条线，是人在社会上生存最低的做人的底线，是生活中做人的生活方式和人应该遵循的做人的标准，也就是人和畜生是不一样的，道德是最低最低的做人的底线……
+
+道德对于每个在中共国成长的我们都清楚，从一入小学，思想品德课就有教导我们：德、智、体、美 全面发展，这一直伴随着我们。但我们谁真的把这些连小孩子都知道的做人最起码的要求融入我们的言行当中、血液当中、骨髓当中……
+
+在中共国老百姓最可悲的是：越来越排斥道德这两个字，认为道德值几个钱，不能买房，不能买车，不能娶老婆，笑贫不笑娼大行其道，上行下效。如南京彭宇案，扶老太太过马路被讹诈，邪共却大肆的宣传，宣称该案件让国人道德观倒退50年，这种倒打一耙、颠倒黑白的恶行共产党一直都是这样操作的。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22114825/images-1-7.jpeg)图片来源: 悟空问答
+
+七哥提出道德是最低最低的做人的底线，就是要唤醒我们每个中国人心中的善良，不要再被中国共产党肆无忌惮的用道德来绑架我们每个人，他们自己却把道德扔进毛屎坑，肆意践踏，道德是我们生为人，最起码的要求。
 
 
 
-鲍威尔女士是美国著名军事法庭律师，目标就是叛国者岂会怕Smartmatic的滥诉恐吓，Smartmatic公司最后恐怕是自食苦果。
+**文章仅代表战友个人观点**
 
-本文作者：CharlieNZ查理
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21093249/image4-3.jpg)***
+[https://discord.gg/77fCxw5mFv](https://discord.gg/77fCxw5mFv)
+[https://](https://https//discord.gg/77fCxw5mFv)[gab.com/himalaya\_italy](https://gab.com/himalaya_italy)***
 
-审核校对：玫瑰天空
-
-上传排版：CharlieNZ查理
-
-1+
+0

@@ -1,23 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国国会参众两院通过了“西藏政策及支援法案”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/676039/)
+## 【林伍德律师推文1222】-乔州副州长Geoff Duncan 所做的交易
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/676173/)
 
-俄罗斯莫斯科喀秋莎农场 银河
+2020年12月22日林伍德律师转发Fox5Atlanta 的一篇文章，报道了乔治亚州副州长杰夫-邓肯(Geoff Duncan)试图向一家州医疗保健供应商Sharecare出售医疗保健应用程序，该合同价值1400万美元。这宗交易是在双方私人飞行、体育赛事的门票、在蒙大拿州为期一周的会议下进行，而乔治亚州财经委员会却从来闭口不谈此事。
 
-校对上传 星河
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22133520/8e432df2f204b18df2b5c0e0383aa5db.jpg)图片来源：G adventures
-12月22日，环球邮报报道，美国国会参众两院通过了“西藏政策及支援法案” （Tibetan Policy and Support Act ，TPSA），重申藏人享有选择精神领袖达赖喇嘛接班人的权利，公开对藏人及流亡海外的藏人领袖达赖喇嘛表示支持。此举激怒了中共，进一步加剧了美中的紧张关系。
+笔者发现一家在美国证交所上市的互联网人工智能公司Remark 控股（原名Remark 传媒）的总裁Kai-Shing Tao在Sharecare 公司拥有董事会席位。因此乔治亚州副州长与中共之间千丝万缕的联系浮出水面。
 
-法案内容还包括在西藏主要城市拉萨（Lhasa）设立美国领事馆、呼吁保护西藏环境，提议中共政府与达赖喇嘛需进行平等对话等。提案中建议建立藏区“水资源安全的区域架构”，针对中共每年在藏区调水数十亿立方米的调水方案及在藏区开发水电的计划，此行已引发环保组织和西藏人权活动人士对藏区资源环境破坏的担忧。
+林伍德律师推文称：
 
-西藏流亡政府主席洛桑桑杰在接受路透社时表示：“通过TPSA，国会已经响亮而明确地发出了它的信息，即西藏仍然是美国的优先事项，美国将继续坚定地支持达赖喇嘛和西藏流亡政府（Central Tibetan Administration，CTA）”，这是西藏自由斗争的胜利。
 
-中共政府表示，其领导人有权批准达赖喇嘛的继任者，目的是为加强对西藏的控制。在藏人约占总人口90%的西藏，中共强行推行“双语教育政策”，企图在各校推广汉语教学，以汉语作为西藏各学校的教学语言来取代藏语，使得藏语文化加速消失用以保障维护中共的统治。
+> 爱钱是万恶之源。乔州副州长 @GeoffDuncanGA @GeoffDuncanGA，州长@BrianKempGA，爱钱和办公室的特权。
+> 
+> 乔州当选官员不关心我们人民。
 
-参考链接：
 
-[https://www.theglobeandmail.com/world/article-tibetan-leader-welcomes-us-bill-that-reaffirms-rights-to-choose/](https://www.theglobeandmail.com/world/article-tibetan-leader-welcomes-us-bill-that-reaffirms-rights-to-choose/)
+
+
+> The love of money is the root of all evil. GA Lt. Gov. [@GeoffDuncanGA](https://twitter.com/GeoffDuncanGA?ref_src=twsrc%5Etfw), like GA Gov. [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw), loves money & perks of office.
+> 
+> GA elected officials do not care about We The People.[https://t.co/DxFLDOnghI](https://t.co/DxFLDOnghI)
+> — Lin Wood (@LLinWood) [December 22, 2020](https://twitter.com/LLinWood/status/1341398165459746822?ref_src=twsrc%5Etfw)
+
+
+
+新闻素材和图片来自林伍德律师推特和
+
+[https://www.fox5atlanta.com/news/lt-governor-geoff-duncan-attempted-to-sell-a-health-care-app-concept-to-a-state-health-care-vendor](https://www.fox5atlanta.com/news/lt-governor-geoff-duncan-attempted-to-sell-a-health-care-app-concept-to-a-state-health-care-vendor)
+
+新闻参考
+
+[https://www.prnewswire.com/news-releases/remark-holdings-corrects-recent-misinformation-campaign-by-short-sellers-301115648.html](https://www.prnewswire.com/news-releases/remark-holdings-corrects-recent-misinformation-campaign-by-short-sellers-301115648.html)
+
+
 
 0

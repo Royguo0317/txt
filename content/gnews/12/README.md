@@ -1,48 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统准备采取行动！
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/676120/)
+## 巴尔对隐瞒亨特·拜登的调查找托辞
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/676220/)
 
-作者：此心不变；校对：西川stanly；审核：海阔天空；Page：小雨
+新闻来源：Zero Hedge《零对冲》； 作者：Zachary Stieber； 发布时间：；2020年12月19日
 
-#### 川普总统准备采取行动！
+翻译/简评：wmorpho；校对：SilverSpurs7；审核：万人往；Page：拱卒
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Kf67uKQimUERL/images/a449d0e7-b797-4013-8d5d-f772fa8f204e.jpg?asset_id=7b13637b-869f-4d95-beb2-bef0f7754120&amp;img_etag=%225392f3cfdc9898b2249a28dbce275cf4%22&amp;size=1024)](https://spark.adobe.com/page/Kf67uKQimUERL/images/a449d0e7-b797-4013-8d5d-f772fa8f204e.jpg?asset_id=7b13637b-869f-4d95-beb2-bef0f7754120&amp;img_etag=%225392f3cfdc9898b2249a28dbce275cf4%22&amp;size=1024)
-
-**有些事在酝酿中！**
-
-据报道西德尼•鲍威尔检察官星期五晚上（12月18日）被邀请到椭圆形办公室会见了川普总统，弗林将军也加入了。总统要任命鲍威尔为特别顾问，以调查在2020年选举中发生的大规模选票欺诈。弗林将军在会议上提出了部署美军的建议，但川普总统的顾问对此表示反对。
-
-丹•斯卡维诺（Dan Scavino）在喧闹的椭圆形办公室会议后发布一系列推文，暗示川普总统准备采取行动。自2016年大选以来，丹一直担任川普总统的社交媒体总监。他是值得信赖和忠诚的川普助手。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Kf67uKQimUERL/images/c0c74125-ba06-4380-adb5-38c2d3a5bace.jpg?asset_id=9c461ef7-4af8-49b7-9d64-167ed3315c30&amp;img_etag=%22919785cb2ae478cbba94693ff2d7fdee%22&amp;size=1024)](https://spark.adobe.com/page/Kf67uKQimUERL/images/c0c74125-ba06-4380-adb5-38c2d3a5bace.jpg?asset_id=9c461ef7-4af8-49b7-9d64-167ed3315c30&amp;img_etag=%22919785cb2ae478cbba94693ff2d7fdee%22&amp;size=1024)
-
-![]()![](https://spark.adobe.com/page/Kf67uKQimUERL/images/b268bb39-44a6-42de-becb-aded334a40d1.jpg?asset_id=326c1b28-2b5b-47cf-bffb-38a7a9bfdd2b&amp;img_etag=%2284e504edd3e74bdd20d0abc65c3948a1%22&amp;size=1024)
-
-现在看来，川普总统已做出决定，将要战斗！
+[!\[\]()!\[\](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/cc2e1889-77bc-4cc3-b022-ba6390ac9d5b.jpg?asset_id=271f006c-776f-4220-b81e-f43f15ee76e7&amp;img_etag=%223b0baf0bc1f8226c15112b5329bafa0c%22&amp;size=1024)](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/cc2e1889-77bc-4cc3-b022-ba6390ac9d5b.jpg?asset_id=271f006c-776f-4220-b81e-f43f15ee76e7&amp;img_etag=%223b0baf0bc1f8226c15112b5329bafa0c%22&amp;size=1024)
 
 **简评：**
 
-在美国2020年大选中，“倒霉你”（Dominion）系统才是欺诈核心所在。深层政府（Deep State）精心布局，盗窃大选结果分成两步走。第一步，把赌注押在“倒霉你”投票机上，触动所有势力推出投票机，然后操控投票机，不管你投多少票，投票机都会自动偷走某个百分比的票给拜登；投票机还可以扫描伪造选票，计入合法选票范围。第二步，投票结束后把赌注全押在法官身上，买下整个司法系统，令川普总统到目前为止无法立一个案子。
+美国前司法部部长巴尔为自己未在选举前公开对亨特·拜登已经进行调查一事辩护，说他对于在选举前不让公众知道民主党总统候选人乔•拜登的儿子正在接受调查之举，他并不后悔，并认为禁止公开确认涉及公职候选人的调查的规则是不成文的共识。
 
-本来这是一个完美的骗局，但没想到川普总统得到了各行各业人们的支持，使得倒霉机的黑幕浮出水面。原本鲍威尔律师和弗林将军只掌握了倒霉机中心系统的全部欺诈数据，现在又有了安特里姆县的16台Dominion投票机的法医检查结果，这对川普总统是非常有利的支持。既然安特里姆县投票机有问题，那整个密歇根州的投票机也有问题，所有使用倒霉机的州都有问题！既然安特里姆县是川普获胜，那整个密歇根州呢? 整个摇摆州呢？整个美国呢？安特里姆县的16台Dominion投票机可以说是多米诺骨牌的第一张牌！
+可是川普总统并不这样认为。川普总统说：“乔·拜登在总统侯选人辩论台上撒谎。他说‘亨特•拜登什么都没有做，什么罪行都没有。’而巴尔这时就应该站出来戳穿他。”川普同时赞扬了特别顾问穆勒，在调查川普与俄罗斯的关系期间，穆勒曾多次对各种报告中的不实报道做出强烈回应。
 
-对于美国来说，下一步应该采取的行动就是没收所有Dominion投票机物证，但是深层政府肯定会负隅顽抗，不肯交出各投票站的Dominion投票机，总统决定要采取行动。
+美国是一个依法治国的民主国家，法律面前人人平等是吸引世界各地寻求公平正义的人们涌向美国的驱动力，也是美国屹立于世界受人尊敬和心向往之的重要原因。如果美国的司法部门出现问题，那美国的治国之本也将随之动摇，美国的前景将会暗淡无光。作为执法人员，维护国家的利益应该是放在首位的，如果将一个有严重叛国嫌疑的人推为总统，那美国人民将跌入万劫不复的深渊，巴尔口中的人民“赋予联邦政府的权力”就是对美国人民莫大的讽刺。
 
-星期五晚上川普总统在白宫椭圆形办公室会见了鲍威尔律师和弗林将军。鲍威尔不是普通律师，她已注册为军事律师，而且过去在公众场合露面一直谈及Dominion投票系统。她接触案子的立足点、她状告的内容以及她个人的专业和素质条件都完全吻合川普总统实施军事管治的要求。她成为总统的特别调查员，也就是总统特别指定的律师，跟川普总统现在个人的竞选团队不冲突。朱利安尼是川普个人的竞选团队律师，主要负责各州选票的欺诈行为，而鲍威尔是川普以现任美国总统的身份去请的军事律师，主要负责调查这次大选的系统性欺诈行为，来保护美国国家，不只是为现任美国总统而战，还要为未来美国总统而战。
+**原文翻译：**
 
-现在媒体把这个会议说成是咨询讨论，那是在掩饰他们心中的惧怕。既然川普总统公开邀请鲍威尔律师和弗林将军，那就表示川普总统心意已决。在会议结束鲍威尔律师和弗林将军离开后，川普总统很快把他的那首Fight for Trump的歌置顶推特，这个动作够明显了，表示川普总统将要拉开卫国战争的序幕！
+**巴尔为未在选举前公开对亨特-拜登的调查辩护**
 
-![]()![](https://spark.adobe.com/page/Kf67uKQimUERL/images/92dc69e6-669a-4213-b248-b5433f0a572e.jpg?asset_id=5a869475-fd86-4311-a754-2b588939e861&amp;img_etag=%220cfe83cb284e874a446bca4f58346814%22&amp;size=1024)
+总检察长威廉·巴尔（William Barr）在周五的一次公开的采访中说，**对于在选举前不让公众知道民主党总统候选人乔·拜登的儿子正在接受调查一事，他并不后悔。**
 
-![]()![](https://spark.adobe.com/page/Kf67uKQimUERL/images/0f8e4a57-95e5-469b-860c-b871c80d0f36.jpg?asset_id=c9644155-19ac-4e0b-bc72-d5d9cfb00212&amp;img_etag=%22748aff61439e8f05e57f1fbf718edad5%22&amp;size=2560)
+[!\[\]()!\[\](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/ff0912a4-4e59-4748-8688-ac4ac75313c7.jpg?asset_id=1a1b9b1c-3841-4aa0-bdaf-87dbcb70cf70&amp;img_etag=%2213ffd68204600994106015b80b5297bc%22&amp;size=2560)](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/ff0912a4-4e59-4748-8688-ac4ac75313c7.jpg?asset_id=1a1b9b1c-3841-4aa0-bdaf-87dbcb70cf70&amp;img_etag=%2213ffd68204600994106015b80b5297bc%22&amp;size=1024)
 
-【注：文章仅代表作者观点】
+巴尔告诉《华尔街日报》，尽管司法部（DOJ）禁止公开确认涉及公职候选人的调查的规则“不是绝对的”，但他可以想象得到如果政府确认“握有针对候选人的决定性的严重犯罪证据”的后果。
 
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/Kf67uKQimUERL/)
+巴尔说，尽管没有明确的规定，但“合理的常规”是要保护候选人和日常生活的人们免受政府的攻击。
 
-[新闻来源](https://www.thegatewaypundit.com/2020/12/somethings-brewing-dan-scavino-posts-series-tweets-raucous-oval-office-meeting-trump-ready-take-action/)
+*巴尔说：“**思考一下我们赋予联邦政府的权力。**”*
+
+***“调查一个人所需要的标准很低。因此，在大选之前只要进行调查，并将其公开， 就会影响每个选举。”***
+
+巴尔表示他不后悔，并第一次圆滑地表示，他知道11月3日之前，亨特·拜登正在接受联邦政府的调查，但他没有让公众知道。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/52a36d08-a384-416e-84da-8fba03206f0c.jpg?asset_id=377ff958-884b-4b47-912c-a80fd62fa727&amp;img_etag=%225caa9204119b67770ffd7febe735c261%22&amp;size=2560)](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/52a36d08-a384-416e-84da-8fba03206f0c.jpg?asset_id=377ff958-884b-4b47-912c-a80fd62fa727&amp;img_etag=%225caa9204119b67770ffd7febe735c261%22&amp;size=1024)
+
+在华盛顿白宫椭圆形办公室的简报中，司法部长威廉·巴尔（左）与唐纳德·川普总统交谈。（帕特里克·塞曼斯基/美联社照片）
+
+乔·拜登的团队上周发布了小拜登（Hunter Biden）的声明，承认他正在接受调查。
+
+*亨特·拜登在声明中说：“昨天，我第一次得知特拉华州的美国检察官办公室告知 我的法律顾问，他们正在调查我的税务事宜。”*
+
+*“我非常认真地对待这一问题，但我相信，对这些问题进行专业和客观的审查将证 明我合法且适当地处理了我的税务事宜，其中包括经过专业税务顾问咨询后的所 有的税务优惠。”*
+
+**他的父亲（乔•拜登）说他相信他的儿子没有做错任何事，并对他有信心。**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/53612d38-ec20-4879-a6e5-e902f0337c69.jpg?asset_id=88d2f810-114f-4caf-a1fe-0e9432579fec&amp;img_etag=%2249ab11c01a9ff06a6460206dfe66f7d0%22&amp;size=1024)](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/53612d38-ec20-4879-a6e5-e902f0337c69.jpg?asset_id=88d2f810-114f-4caf-a1fe-0e9432579fec&amp;img_etag=%2249ab11c01a9ff06a6460206dfe66f7d0%22&amp;size=1024)亨特·拜登（左）于2020年11月7日在特拉华州威尔明顿拥抱他的父亲，民主党总统候选人提名的乔·拜登（安德鲁·哈尼克/ 普尔 /美联社照片）
+
+巴尔拒绝对亨特·拜登进行调查似乎使唐纳德·川普总统很不高兴。
+
+***“为什么比尔·巴尔没有在大选前向公众透露关于亨特·拜登犯罪的真相，致使 乔·拜登在总统侯选人辩论台上撒谎，说亨特·拜登什么都没做错，什么都 没有做，”川普在一条推文中写道。***
+
+川普在接受福克斯新闻采访时补充说：
+
+*“乔·拜登在总统候选人辩论台上撒谎。他说‘亨特•拜登什么都没有做，什么 罪行都没有。’而比尔·巴尔这时就应该站出来戳穿他。另外一个例子是罗伯 特·穆勒（Robert Mueller），当[新闻媒体]发布伪造的文章时…鲍勃·穆勒站出来 说，该文章是伪造的，然后最终证明我没有串通俄罗斯。比尔·巴尔应该做同样的 事情。”*
+
+**穆勒曾被任命为特别顾问，负责调查川普涉嫌与俄罗斯的关系，在调查期间，穆勒曾多次对各种报告中的不实报道做出强烈回应。**
+
+*穆勒办公室发言人彼得·卡尔在一月份的一份声明中说：“ BuzzFeed对特别顾问 办公室的具体声明，以及该办公室获得的关于迈克尔·科恩在国会作证的文 件和证词的报道都是不正确的。”*
+
+Buzzfeed声称川普指示他的前律师迈克尔·科恩在有关莫斯科川普大厦项目的会谈时间向国会撒谎。**穆勒小组的最终报告显示该事件是捏造的。**
+
+[原文链接](https://www.zerohedge.com/political/barr-defends-not-making-hunter-biden-probe-public-election?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
 
 [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
@@ -50,6 +72,8 @@
 
 [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Kf67uKQimUERL/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/Kf67uKQimUERL/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/uKdnFHkLF9uQ1/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0
