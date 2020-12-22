@@ -1,163 +1,79 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亨特拜登遭刑事调查勿忘大肆散布“俄罗斯假情报”谎言的新闻媒体
-` GM06` [轉載自GNews](https://gnews.org/zh-hans/676277/)
+## 美国媒体罔顾事实，集体压制关于羟氯喹的真相
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/676514/)
 
-作者：Glenn Greenwald 格伦·格林沃德 翻译：文缺
+新闻来源：American Greatness《美国梦》； 作者：C·博伊登·格雷（C. Boyden Gray）； 发布时间：2020年12月18日
 
-关于亨特拜登的现已确证的事实，恰恰是美国媒体业伙同硅谷及情报界，曾尝试以谎言来大力压制的。
+翻译/简评：随波逐流；校对：SilverSpurs7；审核：johnwallis；Page：拱卒
 
-翻译自文章 With News of Hunter Biden’s Criminal Probe, Recall the Media Outlets That Peddled the “Russian Disinformation” Lie
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150930/image-24.jpeg)
-亨特拜登于2020年12月9日主动发表声明表示由于他在中国的商业活动而正遭受刑事调查；声明中他此地无银地将此描述成特拉华州检察官对他的仅限于“税务”的调查。正如我（本文作者）昨晚文章所写，这个主动声明本身已足具意义，它佐证了《纽约邮报》于大选前数周发表的一系列报道中的十分丰富的相关信息；而这些报道却被主流新闻媒体、情报界、硅谷这三者的联合势力，通过谎言和宣传手段所大规模压制。最新的报道显示，针对亨特拜登的刑事调查覆盖面（比起单纯“税务”问题）要宽得多。（下图，亨特拜登的声明。译注。）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150954/image-25.jpeg)
-“针对候任总统乔拜登的儿子亨特拜登的联邦层面的调查相比亨特拜登声明所暗示的更全面，”《政客》于12月9日晚报道，具体而言“纽约南区的证券欺诈调查组也在仔细检查亨特拜登的财务”、“特拉华州和华盛顿州的调查人员也在调查亨特拜登的潜在洗钱行为及其外国联系”，还有“宾夕法尼亚州西区的联邦部门正对一桩医院业务展开刑事调查，乔拜登的弟弟詹姆斯拜登牵涉其中”。CNN的Shimon Prokupecz补充道“调查人员至少已经检查了亨特拜登于2017年在一次迈阿密商务会谈后，从中国的华信能源创始人和前主席叶简明处收受的2.8克拉钻石。”
+[!\[\]()!\[\](https://spark.adobe.com/page/1Dqin99nbMSlc/images/83120807-5503-442b-8ff8-1fe73452895f.jpg?asset_id=5e0f9e2f-ebaa-43d2-bf2e-4b36ff56e0f6&amp;img_etag=%22238eda3fa0395f8b15b0b46b2164171f%22&amp;size=1024)](https://spark.adobe.com/page/1Dqin99nbMSlc/images/83120807-5503-442b-8ff8-1fe73452895f.jpg?asset_id=5e0f9e2f-ebaa-43d2-bf2e-4b36ff56e0f6&amp;img_etag=%22238eda3fa0395f8b15b0b46b2164171f%22&amp;size=1024)
 
-这些话题是一大批美国媒体与情报界和硅谷协同作战，在大选之前极力压制消声的。《纽约邮报》基于亨特的笔记本电脑内容的首批报道中一篇名为《电邮揭露了亨特拜登如何代表家族从中国公司大肆捞钱》里，描述了他如何“从中国最大的私有能源公司处寻求大有油水的合同——其中包括一笔据他所说‘我和我家族对此很有兴趣’”，文中具体报道了亨特“‘依与CEFC的合同内容被确定为主席或副主席’，CEFC显然指代总部曾位于上海的中国华信能源有限公司。”
+**简评：**
 
-同一封邮件里也揭示了10%的股份“由H为大佬代持”——这个“大佬”，由亨特的商业合作者也是这一系列邮件的相关者Tony Bobulinski断然声称即为乔拜登。《华尔街日报》专栏作家Kimberly Strassel同样检查了亨特笔记本电脑里的很多文件，并报道“Bobulinski先生提供的记录显示，亨特拜登和詹姆斯拜登曾于2017年与名为华信能源的中国能源及金融企业的展开关于合资公司的商业谈判”，并补充写道这些文件也“明确显示出亨特拜登把这个家族姓氏视为宝贵的资产，他愤怒地以这个‘家族品牌’作为理由，来引证他对于可能的合资公司非常重要。”（下图，《纽约邮报》于2020年10月15日发表的报道中，来自亨特拜登笔记本电脑里的部分电邮截图）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22151055/image-26.jpeg)
-大选前我写了报道文章从各种方面讨论这些文件如何揭露了亨特拜登和詹姆斯拜登试图利用前副总统乔拜登在中国的影响力来为拜登家族攫取利益；文章被我所在的《拦截》拒绝发表，并最终导致了我从《拦截》出走。文中我报道了“拜登家族在中国寻求商业机会”，举出了“前景良好的中国商业提案用来交换（亨特）对父亲的影响力”，讨论了电邮里显示的“亨特和詹姆斯曾计划的于至少一个中国合同里引入乔拜登”的这个可能性；并且主张：这些文件的存在提出了一个非常关键的问题，那就是“作为亨特拜登和詹姆斯拜登在乌克兰和中国寻求进行的这些商业提案里被提议的参与者，乔拜登对这些事情到底是否知情。”
+长期以来，美国媒体不仅集体选择无视世界各地关于羟氯喹对新冠肺炎疗效的正面消息，反而自大选那天起，一直坚持“羟氯喹有害”的报道。意大利政府在早期用羟氯喹治疗covid-19的门诊医生呼吁下，将此药划为非处方药，允许医生病人之间自行决定使用。来自纽约的西奈山卫生系统和底特律的亨利·福特卫生系统的研究，比利时和荷兰合作的多家医院以及许多小型研究也都给出了有力证据证明了羟氯喹的疗效。但媒体界在大西洋两岸的科学期刊编辑和公共卫生官员的帮助下，发起了反对羟氯喹的激进运动。在美国国土安全部举行的Covid-19“早期门诊治疗”的两次听证会中，多名学者、议员、媒体、以及食药监局集体无视证明药物疗效的有力证据和支持者的建议，他们极力夸大所谓研究发现的羟氯喹对covid-19病人的危害，并美其名曰“遵循科学，遵循事实”。而支持使用羟氯喹的人都被指控为“反科学”以及“阴谋论”和“虚假信息”的宣传者。
 
-所有这些关于亨特拜登在中国活动的重要事实及带来的疑问，被大批美国媒体和它的情报界还有硅谷同伙们大规模压制使其隔离于美国选民（硅谷简单粗暴地阻止这些报道在其主要社交平台上讨论和传播）。这些是如何做到的？它们主要通过彻底的宣传策略来公然散布一个双重谎言：因为这些文件被认为是“俄罗斯假情报”，所以它们都应该被（大众）忽略掉。
+在中共“蓝金黄”影响下，为了配合疫苗推出，各方势力同流合污编织了一场“巨大的骗局“，使这一疗效显著且便宜的药物迟迟无法投入治疗。由于大多数美国人必须等到春季才能打上疫苗，而病例数还在持续攀升，如何采取有效行动，冲破重重阻力，使患者能够尽早得到药物治疗是美国当下急需解决的问题。
 
-至今没有任何证据显示俄罗斯在这些材料里扮演了任何角色，（《纽约时报》承认“没有切实证据显示亨特拜登的笔记本电脑里包含俄罗斯假情报”，同时《纽约时报》也写道甚至连美国联邦调查局也承认“它没有在笔记本电脑里发现任何俄罗斯假情报”）。最新的针对亨特拜登的刑事调查显然是对笔记本电脑内容的真实性的非常有说服力的佐证，正如之前数名电邮参与者的关于电邮信息真实性的证言一样。关键在于，甚至连拜登家族人士都没有否认笔记本电脑材料的真实性，《纽约时报》于2020年12月9日关于亨特拜登的刑事调查的报道里也指出： “拜登团队否认了《纽约邮报》文章里的一些主张，但并不质疑那些主张所依据的笔记本电脑内文件的真实性。
+**原文翻译：**
 
-甚至连这些新闻媒体用来散布“俄罗斯假情报”谎言所使用的公开信——由众所周知的撒谎者们：前中央情报局及其他情报界的领导者们所写，他们声称关于亨特的笔记本电脑的报道“具有所有俄罗斯情报的典型特征”——也坦诚“我们没有关于俄罗斯涉及其中的证据”。
+# 美国媒体正在压制关于羟氯喹的真相
 
-总结一下，美国的新闻媒体与情报界协作制造并散布政治宣传性谎言，即通过宣传亨特拜登笔记本电脑内文件是虚假的“俄罗斯假情报”，以此合理化其在美国总统大选前数周中的对美国总统候选人及家族的（不当）逐利的高度相关信息的审查和压制行为，这是美国新闻媒体行业的可入史册的奇耻大辱。
+[!\[\]()!\[\](https://spark.adobe.com/page/1Dqin99nbMSlc/images/fdb9751a-7a22-4642-8c1f-3dd910b5ee6f.jpg?asset_id=ab2efd2a-8267-4a67-8e69-978e9a1fa5fc&amp;img_etag=%228c4d097522760f3728ec2b57a0ecfb18%22&amp;size=1024)](https://spark.adobe.com/page/1Dqin99nbMSlc/images/fdb9751a-7a22-4642-8c1f-3dd910b5ee6f.jpg?asset_id=ab2efd2a-8267-4a67-8e69-978e9a1fa5fc&amp;img_etag=%228c4d097522760f3728ec2b57a0ecfb18%22&amp;size=1024)
 
-**我们十分有必要回想起都有哪些媒体参与其中以及它们如何能再次欺骗大众**：
+海外的动态进展已被美国媒体完全忽略了。 反而，自选举日以来，媒体一直坚持“羟氯喹有害”的报道。
 
-**Politico’s Natasha Bertrand, Oct. 19, 2020**:
+由于大多数想要接种新冠肺炎（COVID-19）疫苗的美国人都不得不等到春季 — 而且病例数还在持续攀升 — 因此，我们必须专注于保证非住院病人的治疗，并重新审视媒体设计的羟氯喹传奇故事 。
 
-《政客》 作者：Natasha Bertrand，2020年10月19日
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22152408/image-33.jpeg)
-**NBC News’ Ken Dilanian and Tom Winter, Oct. 30, 2020**:
+意大利国务委员会上周向正确的方向迈出了一步，该国推翻了意大利7月22日非处方使用羟基氯喹的禁令。 在一群寻求使用抗疟疾药进行COVID-19的早期门诊治疗医生的呼吁下，他们公布了这一改变。
 
-《NBC新闻》作者：Ken Dilanian 及 Tom Winter，2020年10月30日
+正如意大利报纸《共和国》（La Repubblica）所引述那样，第7097/2020号令认为，对药物功效的持续“不确定性”要求他们允许个别医生和患者就使用该药物做出明智的决定。
 
-“一些美国情报机构已经告知白宫关于朱利安尼与据传为俄罗斯情报人员接触的信息。联邦调查局已经在调查这次事件里俄罗斯是否有扮演任何角色，尚无官员排除这种可能性。”
+到目前为止，这一进展被美国媒体完全忽略了。这不符合正常的媒体叙述。（作为比较点，当一家欧盟机构最近根据西班牙六名患者的数据发布了一份与使用羟氯喹有关的“精神疾病和自杀行为”的备忘录时，该消息被登在《新闻周刊》当天的头版。）
 
-“与此同时，一批前情报官员已表示这个笔记本硬盘事件包含着俄罗斯情报行动的特征。在俄罗斯2016年干预美国大选之后，美国新闻媒体特别警惕于任何增进外国政府干涉美国总统大选的行为。”
+自三月以来，任何观看过有线电视新闻或翻阅过报纸的人都知道，媒体界在大西洋两岸的科学期刊编辑和公共卫生官员的帮助下，发起了反对羟氯喹的激进运动。
 
-**The Intercept, Oct. 21, 2020**:
+[!\[\]()!\[\](https://spark.adobe.com/page/1Dqin99nbMSlc/images/72c5ee3a-899e-43ab-8b2d-11343e3306a9.jpg?asset_id=4215d8e1-a03a-429c-8725-53fc0727b006&amp;img_etag=%22091af5939b32aaf73c6640cc7108ad57%22&amp;size=1024)](https://spark.adobe.com/page/1Dqin99nbMSlc/images/72c5ee3a-899e-43ab-8b2d-11343e3306a9.jpg?asset_id=4215d8e1-a03a-429c-8725-53fc0727b006&amp;img_etag=%22091af5939b32aaf73c6640cc7108ad57%22&amp;size=1024)
 
-《拦截》 2020年10月21日
+当前公开的关于羟氯喹的新闻叙述是，没有证据表明它可以有效治疗COVID-19，并且实际上可能有害。提出相反建议的任何人都被指控为“反科学”以及“阴谋论”和“虚假信息”的宣传者。
 
-“本周，一组前情报官员发表了公开信声称朱利安尼关于亨特拜登的笔记本电脑的报道具有俄罗斯假情报的典型特征。”
+但是这种叙述是错误的。首先，有强有力的证据表明，在疾病早期服用羟氯喹有助于治疗COVID-19 — 特别是来自纽约的西奈山卫生系统和底特律的亨利·福特卫生系统的研究，两者均表明该药将COVID-19患者的死亡率降低了近一半。 比利时和荷兰的大型多医院合作以及许多小型研究也显示了羟氯喹的好处。
 
-**The Economist, Oct. 31, 2020**:
+其次，据美国疾控中心说法，在该药的70多年历史中，全球已有20亿人服用了羟氯喹，而且众所周知，羟氯喹非常安全，可以被“孕妇和哺乳的母亲”服用。 相比之下，今年最大、最受称赞的声称羟氯喹可能会对COVID-19患者造成伤害的研究就是一桩丑闻，该研究论文后来被《柳叶刀》撤回，柳叶刀杂志的主编将该论文称为“巨大的骗局”。
 
-《经济学人》 2020年10月31日
+然而，自选举日起，新闻界就一直坚持“ 羟氯喹有害”的说法，这点在他们对之前由国土安全部参议院委员会就COVID-19的“早期门诊治疗”举行的两次听证会的报道中体现的最明显，听证会是由威斯康星州共和党参议员罗恩· 约翰逊（Ron Johnson）召集的。
 
-“（笔记本电脑内信息）是真是假，这并不是重点，” 曾任中央情报局欧洲及欧亚大陆任务中心的执行行动主任的Marc Polymeropoulos主张如此。他参与了这封逾50位已退休的情报官员联署的公开信，主张这次电邮事件“包含有一次俄罗斯情报行动的所有特征”。
+在11月19日举行的第一次听证会上，耶鲁大学流行病学家哈维·里施（Harvey Risch）博士认为：“每一项门诊使用羟氯喹药物（有或没有伴随药物）的研究都显示出降低住院和死亡风险的实际效果。”
 
-**The Washington Post, Op-Ed by Thomas Rid, Oct. 24, 2020**:
+布朗大学公共卫生学院院长阿希什·贾（Ashish Jha）博士表示接受媒体的观点，并向委员会表示：“羟氯喹在治疗COVID-19方面不仅显示了微不可察的效果，而且给患者带来了巨大的风险。”
 
-《华盛顿邮报》社论，作者：Thomas Rid，2020年10月24日
+新闻界是如何对听证会报道的呢？ 《纽约时报》发表了由阿希什·贾撰写的题为“参议院的蛇油推销员”的专栏文章，副标题为“没有证据表明羟氯喹可以帮助Covid-19患者。”
 
-“我们必须把亨特拜登的电邮泄露事件当作是外国情报行动，即便它很可能不是。”
+阿希什·贾写到：“一次又一次的试验还没有发现羟氯喹可以改善Covid-19患者预后的证据。一些研究发现，它的弊大于利。”文字记录再次试图抹除西奈山和亨利·福特的结果，直接忽视了他们。
 
-**CNN’s Christiane Amanpour, Oct. 25, 2020**:
+在12月8日，第二次参议院听证会开始的时候，密歇根州民主党参议员加里·彼得斯（Gary Peters）对里斯博士和另外两位医生发起了惊人的攻击，这两位医生在第一次听证会上已作证支持羟氯喹。
 
-CNN 主持人Christiane Amanpour，2020年10月25日
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22160731/image-35.jpeg)
-（[https://www.youtube.com/watch?v=oSB\_fQHbSiA](https://www.youtube.com/watch?v=oSB_fQHbSiA)）
+彼得斯说：“上个月，该委员会举行了一次听证会，标榜为对早期冠状病毒门诊治疗的审查。不幸的是，那次听证会放大了科学界不支持的、未得到验证的有关治疗的理论。” 他补充说：“该委员会被用作攻击科学和促进信誉不良的治疗的平台”，而“我们有责任遵循科学，遵循事实，而非阴谋论和虚假信息。
 
-**60 Minutes’ Leslie Stahl, Oct. 22, 2020**:
+[!\[\]()!\[\](https://spark.adobe.com/page/1Dqin99nbMSlc/images/48862feb-473c-4aeb-bdee-8db7a0a9cc47.png?asset_id=4071a849-ea42-4725-b09b-d988076535ae&amp;img_etag=%22e824cb1493d860c2e6f22dad70774313%22&amp;size=1024)](https://spark.adobe.com/page/1Dqin99nbMSlc/images/48862feb-473c-4aeb-bdee-8db7a0a9cc47.png?asset_id=4071a849-ea42-4725-b09b-d988076535ae&amp;img_etag=%22e824cb1493d860c2e6f22dad70774313%22&amp;size=1024)
 
-《60分钟》记者Leslie Stahl，2020年10月22日
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22155157/image-34.jpeg)
-（[https://twitter.com/Hagstrom\_Anders/status/1319314523162107905](https://twitter.com/Hagstrom_Anders/status/1319314523162107905)）
+那天，《纽约时报》头版头条刊登了听证会的经过，标题为 “抬高边缘理论，罗恩·约翰逊质疑病毒科学”。 就在本周，《华盛顿邮报》严厉批评了约翰逊组织的听证会，称：“他不顾科学研究发现的，羟氯喹可能危害COVID-19患者的结果而继续推广使用羟氯喹。”
 
-**The Boston Globe, Oct. 20, 2020**:
+参议员彼得斯特别赞扬了美国食品药品管理局（FDA），他说：“继续使用科学标准来授权创新和有效的早期治疗。” 然而很大程度上，正是由于FDA — 和里克·布莱特（Rick Bright）博士在他与克里斯汀·布莱西·福特（Christine Blasey-Ford）的律师黛布拉·卡兹（Debra Katz）一起写的对举报者的诉状中，竭力宣称羟氯喹为“这是未经证实且有潜在危险的药物”— 导致在“国家战略储备库”中有数百万支捐赠的闲置羟氯喹无法被COVID-19患者及其医生使用。
 
-《波士顿环球报》 2020年10月20日
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22160955/image-36.jpeg)
-**NPR, Oct. 22, 2020**:
+当体弱和年长的病人生病时，使用何种可能会帮助他们维持不住院治疗，并且几乎肯定不会造成伤害的药物，应该留给病人和他的医生之间做决定 — 就像如今在意大利一样 — 没有媒体界及其善于叙事的工程师干预。要是没有新闻界及其公共卫生和学术界的同盟挡路，那么任何有助于儿童重返学校和企业主谋生的措施都是轻而易举的。
 
-全国公共广播电台，2020年10月22日
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22161336/image-37.jpeg)
-（[https://twitter.com/NPRpubliceditor/status/1319281101223940096](https://twitter.com/NPRpubliceditor/status/1319281101223940096)）
+[原文链接](https://amgreatness.com/2020/12/18/the-u-s-media-are-suppressing-the-truth-about-hydroxychloroquine/)
 
-2020年总统大选前的这段时间，很多美国媒体和硅谷巨头们已然决定确保川普失败是如此首要的目标、如此道义上的必须，以至于它们认定为此做任何事都是合理合法的；包括联合中央情报局的专业骗子们明目张胆地传播关于亨特拜登材料的谬论使其不足采信，以此引导美国大众去相信要无视掉这些事实，并且将这种掩盖和审查的行为自我合理化。
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-这其中也有一些可贵的例外，例如一篇2020年10月24日的《华盛顿邮报》的报道，尽管其标题煽动性地表述“乔拜登习惯性地将据称从其子笔记本电脑里得到的信息卸责给俄罗斯”，其文中警告称“签署公开信的这些前情报和国防官员明确表示他们没有俄罗斯涉及的证据”以及“拜登竞选团队的这个尽管缺乏具体证据却要指控俄罗斯泄露信息的决定，如果此事件结果发现拜登竞选团队的指控无凭，则公众对美国指称外国干预大选的信任将有被侵蚀的风险。”
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-然而大多数引用中央情报局及其他情报官员的这封公开信的新闻媒体，只是简单地全部略去信中承认的无证据的事实，或者把这句话在他们的报道和节目里隐藏得足够深，以使得公众只能听到这些媒体说亨特拜登笔记本电脑里的这些完全真实而且与大选极为相关的文件，是可以且应当安心地忽视掉的“俄罗斯假情报”。
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-这就是这些新闻媒体们做出的选择。它们得到了它们想要的大选结果。然诸媒，其实其闻，其所遗后世，与此抉，共存亡。
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/1Dqin99nbMSlc/)
 
-**译者观点**：个人认为此文具有教育意义。请记住这些著名新闻媒体的这次代价巨大的尝试，这不仅仅它们自己要学的课业与要付的学费；后人哀之而不鉴之，亦使后人而复哀后人也。
-
-**补充信息**：
-
-1.原文链接：
-
-[https://greenwald.substack.com/p/with-news-of-hunter-bidens-criminal](https://greenwald.substack.com/p/with-news-of-hunter-bidens-criminal)
-
-2.[Emails reveal how Hunter Biden tried to cash in big on behalf of family with Chinese firm](https://nypost.com/2020/10/15/emails-reveal-how-hunter-biden-tried-to-cash-in-big-with-chinese-firm/)
-
-By Emma-Jo Morris and Gabrielle Fonrouge  October 15, 2020
-
-3. [Justice Department’s interest in Hunter Biden covered more than taxes](https://www.politico.com/news/2020/12/09/justice-department-interest-hunter-biden-taxes-444139)
-
-By BEN SCHRECKINGER  12/09/2020 11:21 PM EST
-
-4. [Hunter Biden business partner calls email ‘genuine,’ says Hunter sought dad’s advice on deals](https://www.foxnews.com/politics/hunter-biden-business-partner-email-genuine-joe-biden-advice)
-
-By Ronn Blitzer, John Roberts | Fox News
-
-5. [The Biden ‘Family Legacy’](https://www.wsj.com/articles/the-biden-family-legacy-11603409528)
-
-By Kimberley A. Strassel  Oct. 22, 2020 7:32 pm ET
-
-6. [Article on Joe and Hunter Biden Censored By The Intercept](https://greenwald.substack.com/p/article-on-joe-and-hunter-biden-censored)
-
-Glenn Greenwald  Oct 30
-
-7. [‘Political And Strategic Value Of The Biden Family’: Trove Of Documents Shows Biden Family Links To Chinese Business Deal](https://dailycaller.com/2020/10/22/hunter-biden-joe-biden-china-bobulinski/)
-
-Chuck Ross  Investigative Reporter  October 22, 2020 12:01 PM ET
-
-8. [Facebook and Twitter Cross a Line Far More Dangerous Than What They Censor](https://theintercept.com/2020/10/15/facebook-and-twitter-cross-a-line-far-more-dangerous-than-what-they-censor/)
-
-Glenn Greenwald  October 16 2020, 7:52 a.m.
-
-9.[What We Know and Don’t About Hunter Biden and a Laptop](https://www.nytimes.com/2020/10/22/us/politics/hunter-biden-laptop.html)
-
-By Adam Goldman  Published Oct. 22, 2020Updated Nov. 7, 2020
-
-10.[Hunter Biden Discloses He Is Focus of Federal Tax Inquiry](https://www.nytimes.com/2020/12/09/us/politics/hunter-biden-tax-investigation.html)
-
-By Adam Goldman, Katie Benner and Kenneth P. Vogel  Dec. 9, 2020
-
-11. [Public Statement on the Hunter Biden Emails](https://www.politico.com/f/?id=00000175-4393-d7aa-af77-579f9b330000)  October 19, 2020
-
-12. [Hunter Biden story is Russian disinfo, dozens of former intel officials say](https://www.politico.com/news/2020/10/19/hunter-biden-story-russian-disinfo-430276)
-
-By NATASHA BERTRAND  10/19/2020 10:30 PM EDT
-
-13. [Here’s what happened when NBC News tried to report on the alleged Hunter Biden emails](https://www.nbcnews.com/politics/2020-election/here-s-what-happened-when-nbc-news-tried-report-alleged-n1245533)
-
-By Ken Dilanian and Tom Winter   Oct. 31, 2020, 5:44 AM CST
-
-14. [“We’re Not a Democracy”](https://theintercept.com/2020/10/21/trump-presidency-summary/)
-
-James Risen  October 21 2020, 11:17 p.m.
-
-15. [The story of Hunter Biden and the diminishing returns to disinformation](https://www.economist.com/united-states/2020/10/31/the-story-of-hunter-biden-and-the-diminishing-returns-to-disinformation)
-
-Oct. 31, 2020
-
-16. [Insisting that the Hunter Biden laptop is fake is a trap. So is insisting that it’s real.](https://www.washingtonpost.com/outlook/2020/10/24/hunter-biden-laptop-disinformation/)
-
-By Thomas Rid  Oct. 24, 2020
-
-17. [Biden relies on pattern of activity to blame Russia for release of data from what is said to be his son’s laptop](https://www.washingtonpost.com/politics/russian-involvement-biden-laptop-unproven/2020/10/24/ebae1760-1604-11eb-ba42-ec6a580836ed_story.html)
-
-By Annie Linskey and Paul Sonne  Oct. 24, 2020
+[!\[\]()!\[\](https://spark.adobe.com/page/1Dqin99nbMSlc/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/1Dqin99nbMSlc/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

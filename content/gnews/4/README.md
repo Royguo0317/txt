@@ -1,26 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登家族的腐败正在浮出水面
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/676498/)
+## 【林伍德律师推文1222】-NewsMax 为投票机站台
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/676533/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22161538/Capture-156.jpg)图片来自：ABC News
-美国的主流媒体一改在总统大选前后对拜登家族的腐败信息保持沉默的态度，陆续开始报道联邦检察官正调查亨特·拜登（Hunter Biden）的税务案件，这就是抛弃拜登家族的开始！
+前日SmartMatic 要求林伍德律师撤回对投票机舞弊案件的诉讼，并发出对律师本人的起诉、对他施加威胁时，遭到林伍德律师拒绝。
 
-据“OAN新闻”（OAN Newsroom） 12月21日的报道，那些在大选前否认拜登有腐败问题的主要媒体，现在开始承认并报道指控拜登的案件，但许多人对主流媒体报道的时机提出了质疑。报道认为，为了保全乔·拜登（Joe Biden），左派媒体掩盖了这些对他不利的指控。比如《华盛顿邮报》（The Washington Post）大选前一篇报道的标题为，“亨特·拜登背后的真相是，他没有丑闻”，但大选后，这家媒体一篇报道的题目却是，“对亨特·拜登的税务调查涉及他和中国的商业来往”。CNBC也在12月9日报道说，亨特·拜登自己曾透露，他的税务问题正在接受特拉华州最高联邦检察官的调查。同一天中午，CNN报道说，他们联系了亨特·拜登的律师和他父亲乔•拜登的竞选团队，证实司法部门正在调查亨特·拜登及其合伙人在国外进行商业交易时是否违反了税法和洗钱法。
+12月22日Newsmax为避免此前报道引起诉讼，公开发表声明：
 
-OAN的报道认为，现在投票已经结束，主流媒体也就没有必要继续隐瞒这个事实了，即使他们以前指责过OAN编造虚假故事。
 
-**评论：**
+> “Dominion和Smartmatic都与乔治-索罗斯（George Soros）没有任何关系。”Smartmatic是一家美国公司，不属于委内瑞拉政府”。Newsmax 没有得到投票机舞弊的证据。
 
-其实川普总统一直在呼吁媒体要说真话。尽管在他总统任期内，由于媒体撒谎，掩盖真相，他受到了很多伤害，但川普总统还是告诉人们要按照圣经上说的那样，不会放弃做正确的事，真理终将会获胜！
 
-爆料革命发起人郭文贵先生早就说过，美国已经被中共渗透，“蓝金黄” 和“3F”方案起了很大作用。他深知社交媒体的重要性，高瞻远瞩地创建了GNEWS和GTV。当亨特•拜登的“硬盘门”和拜登家族的腐败事件出现时，以及闫丽梦博士揭露CCP病毒真相时，所有的公共媒体，包括推特（Twitter），脸书（Facebook）和油管（YouTube），不仅不报道，还对发布消息人的账号进行封杀！人们只有从GTV和GNEWS的报道获取事实的真相！这次美国总统大选，有些州选举舞弊，投票机作假，销毁选票，死人投票的事情屡屡发生，幸好GTV和GNEWS对事实做了报道，不仅让美国人民知道了CCP对这次选举进行干预，也让全世界了解到CCP的邪恶！由此，全球进入了一个自动灭共的新时期！
 
-[原文](https://www.oann.com/mainstream-media-waited-until-after-nov-vote-to-acknowledge-hunter-biden-corruption-2/)
 
-翻译：文罡
+> Wow. Newsmax is walking back its conspiracy theories to avoid a lawsuit. This goes further than Fox News did.
+> “Neither Dominion nor Smartmatic has any relationship with George Soros. Smartmatic is a US company and not owned by the Venezuelan government.”[pic.twitter.com/T7XuiBOcHy](https://t.co/T7XuiBOcHy)
+> — Jan Wolfe (@JanNWolfe) [December 21, 2020](https://twitter.com/JanNWolfe/status/1341085678457774082?ref_src=twsrc%5Etfw)
 
-校对：文旺
+
+
+当日网友把林伍德律师拒绝撤回诉讼的信发布推文，表示对Newsmax 新闻向投票公司卑躬屈膝的态度感到愤怒。推文称：
+
+
+> @Newsmax不要因为Smartmatic的官司而毁了你新收获的收视率。做你的调查！另外，一个真正的男人是这样回应的。LLin Wood代表Sidney Powell… 也被Smartmatic起诉了。这是他的回应。
+
+
+林伍德律师回推：
+
+
+> 作为诽谤律师，我对以下事件感到非常惊讶和失望：
+> 
+> 对于鲍威尔律师的声明SmartMatic所做的回撤需求，让@newsmax 迅速向SmartMatic 屈服。
+> 
+> Newsmax没有做任何独立调查 & 作为出版者具有非常有限的法律基础。
+> 
+> 没有意义。
+> 
+> 要小心。
+
+
+
+
+> As defamation lawyer, I was very surprised & disappointed by [@newsmax](https://twitter.com/newsmax?ref_src=twsrc%5Etfw) quick surrender to SmartMatic retraction demand over [@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw) statements.
+> 
+> Newsmax has done NO independent investigation & has very limited legal exposure as REPUBLISHER.
+> 
+> Doesn’t make sense.
+> 
+> Be careful. [https://t.co/cWWlm4KteS](https://t.co/cWWlm4KteS)
+> — Lin Wood (@LLinWood) [December 22, 2020](https://twitter.com/LLinWood/status/1341476451929960448?ref_src=twsrc%5Etfw)
+
+
+
+
+
+新闻素材和图片来自林伍德律师推特
+
+
 
 0

@@ -1,117 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港人今年怎么庆祝圣诞？
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/676327/)
+## 川普团队向联邦最高法院提请复审诉讼
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/676365/)
 
-作者：香草山写作组 我爱正义 校对/发稿：飞虹
+新闻来源：The national pulse《国家脉动》； 作者：娜塔丽·温特斯（NatalieWinters）； 发布时间：2020年12月20日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29231938/logo-3-1-1.jpg)
+翻译/简评：随波逐流；校对：X-Wing飞得更高；审核：万人往；Page：拱卒
 
+[!\[\]()!\[\](https://spark.adobe.com/page/hdXAdBgbAN3EO/images/be51a3f9-225a-4ca4-a55d-af846bc4e137.jpg?asset_id=01d8db51-7eda-4225-983d-470bc7150d97&amp;img_etag=%22d25d840d4281b994f4971aeb7eec48c8%22&amp;size=1024)](https://spark.adobe.com/page/hdXAdBgbAN3EO/images/be51a3f9-225a-4ca4-a55d-af846bc4e137.jpg?asset_id=01d8db51-7eda-4225-983d-470bc7150d97&amp;img_etag=%22d25d840d4281b994f4971aeb7eec48c8%22&amp;size=1024)
 
+**简评：**
 
-港人这一年半以来作出的抗争，感动世界。当政府高官暗地裡弹冠相庆的时候，他们努力让人觉得《国安法》以及疫情两招已经奏效，港人已无法抗争。然而，他们越努力营造假象，内心就越不安寧，直至心虚气短。因为，在香港，每一个人都知道，抗争远远没有结束。
+这几天，一则突发重磅消息再次振奋世人，即川普总统竞选团队向美国最高法院提交了一份267页的请愿书，要求复审宾夕法尼亚州有关“邮寄选票欺诈”的三宗案件。遭川普阵营挑战的三项判决，包括宾州法院禁止选举官员检查邮寄选票上签名是否属实；禁止选举官员质疑邮寄选票的签名、地址和日期等违规行为；以及将监督员限制在房间内。朱利安尼在声明中表示，宾州法院的这些判决违反联邦宪法。川普团队还要求宾州议会撤销效忠拜登的选举人任命，重新选出替代者。竞选团队也快速商定，要求最高法院在12月23日之前下令作出回应，并在12月24日之前作出答复，允许美国最高法院在1月6日国会开会之前审议选举团的选票。
 
-圣诞节
-平安夜
-鸣不平
-街头无人论抗争，
-民心念念不曾忘。
-鼠目但见名与利，
-獐头不思道与义。
-何人因言而入罪？
-何时黎明曙光现？
-有口何必欲多言？
-眾志成城大局定。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22145946/31.png)香港观察负责人Benedict Rogers书写於2020年12月22日
-**港人欢庆圣诞活动一览，欢迎参加！**
+这是川普团队首次独立向美国最高法院提请诉讼，最终可能参照著名的布什诉戈尔选举案例，根据此案中提出的相同宪法论点谋求解决之道。这标志着2020年大选的终极司法大战已经开始。中共一手操纵的美国“选票欺诈”的真相即将揭晓，拜登及幕后所有参与的国家、公司和个人终将受到法律制裁。
 
-活动一
+**原文翻译：**
 
-圣诞前夕街站
-日期：2020.12.23
-时间：1700-1900
-地点：旺角商务书局对出空地
+**突发：川普阵营向最高法院提交267页要求复审诉状（解读）**
 
-天气渐凉，我们计画在圣诞前夕摆街站，让大家写信给同路人，同时亦準备了一点心意送给大家，我们希望令眾人知道，这条路并不孤单。
+**川普竞选团队向美国最高法院提交了申请复审令诉状，旨在推翻宾夕法尼亚州最高法院之前审理的三宗案件判决，这三宗案件 “在2020年总统选举日前后，即刻非法更改了宾夕法尼亚州的邮寄选票法”**
 
-苹果专访：贤学思政坚持周末摆街站
-召集人王逸战：愿死於斯
+[!\[\]()!\[\](https://spark.adobe.com/page/hdXAdBgbAN3EO/images/9462407e-bd63-4ab5-bc87-d851a74881a0.jpg?asset_id=521f0271-46fa-4ce6-a479-00601bc38cf4&amp;img_etag=%2248c102d06572120ec6a94e9b6b022a77%22&amp;size=1024)](https://spark.adobe.com/page/hdXAdBgbAN3EO/images/9462407e-bd63-4ab5-bc87-d851a74881a0.jpg?asset_id=521f0271-46fa-4ce6-a479-00601bc38cf4&amp;img_etag=%2248c102d06572120ec6a94e9b6b022a77%22&amp;size=1024)
 
-**一定要****做小小风险申报**
-**注意，在香港作明显表态的行动阶有风险，请自我思考可以接受的代价**
-![]()
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150255/32.png)
-活动二
+根据该团队发布的新闻，诉状指控该判决“违反了美国宪法第二条和布什诉戈尔案判例法”，并“代表川普团队首次独立地向美国最高法院提起诉讼，并根据在布什诉戈尔案中成功提出的相同宪法论点寻求解决办法。”
 
-#24Dec #九龙 #和你报佳音
-《12.24 愿平安归香港 和你报佳音》
-日期：12月24日（四）
-时间：晚上
-地点：九龙区
-内容：街头荣光快闪大合唱
-P.s 提醒返手足不要违反《二人限聚令》，注意社交距离要有1.5米，以免受到599票控。
-Source : [https://t.me/xmas\_eve\_hk/3](https://t.me/xmas_eve_hk/3)
+由鲁迪·朱利安尼（Rudy Giuliani）撰写的新闻发布稿指出：“此诉状和之前宾夕法尼亚州的一桩案件有关，宾州法官阿里托（Alito）和另外两名法官当时认可了[宾夕法尼亚州]最高法院判决的合法性[将选举日邮寄选票的法定截止日期从选举日的晚上8点延长至三天后的下午5点]。 ……这具有国家级重要意义，州最高法院的裁决极有可能违反联邦宪法。”
 
-**一定要****做小小风险申报**
-**注意，在香港作明显表态的行动阶有风险，请自我思考可以接受的代价**
+川普竞选团队进一步对诉状做了解释，并指出“将寻求所有适宜的补救措施，包括撤消效忠于乔·拜登的选举人任命，并允许宾夕法尼亚州议会选择其替代人选”：
 
-活动三
+“竞选团队的起诉旨在推翻三项判决，这些判决凸显了宾夕法尼亚州立法机关针对邮寄选票欺诈的多重保护举措，其中包括（a）禁止选举官员在选举日投票期间检查邮寄选票的签名是否真实（b）取消选举团队就投票过程中伪造签名和其他违规行为对邮寄选票提出异议的权利；（c）竞选团队拥有的监督邮寄选票投递的权利，这意味着，只允许他们待在“房间内” ，而计票所在地费城会议中心有几个足球场大小；以及（d）取消了需要选民正确签名，地址和注明邮寄选票日期的法定要求。 该项诉讼谋求所有适当的补救办法，包括撤消效忠乔·拜登的选举人任命，并允许宾夕法尼亚州议会选择替代者。竞选团队也快速商定，要求最高法院在12月23日之前下令作出回应，并在12月24日之前作出答复，允许美国最高法院在1月6日国会开会之前审议选举团的选票。”
 
-#24Dec #沙田 #元朗 #观塘 #维园 #烛光 #悼念
-【12.24平安夜烛光悼念活动】
-日期：12月24日 (四)
-时间：20:00
-地点：沙田百步梯，元朗西铁站，观塘海滨花园，维园篮球场
-活动：為香港默哀+砌烛光海
-欢迎各参加者带备蜡烛到场
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150357/33-2.png)
-[https://t.me/SilentCandleNight/40](https://t.me/SilentCandleNight/40)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150423/34.png)
-#因应投票得出结果更新地点
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150501/35.png)
-![]()
-#24-27Dec #旺角 #连儂墙 #市集 #黄色经济圈
-【#连儂说——连儂展览 x 圣诞市集】
-日期 : 12月24-27日 (四至日)
-时间 :
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150545/36.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150649/37.png)
-12.24 14:00-20:00
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150722/38.png)
-12.25-27 12:00-20:00
-地点 : 旺角广东道 1143 号
-协和工业大厦 4 楼，梘单製皂
-备註 : 疫情关係将会有变动 , 请留意最新资讯
-Source : [bit.ly/lennonsays](https://bit.ly/lennonsays)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150801/39.png)
-圣诞课金週
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150812/39-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150858/41.png)
-![]()
-**第一波唔係食店**
+267页诉状链接：[https://www.scribd.com/document/488769028/Trump-v-Boockvar-Petition#fullscreen&from\_embed](https://www.scribd.com/document/488769028/Trump-v-Boockvar-Petition#fullscreen&amp;from_embed)
 
-[https://www.instagram.com/p/CIgHQG6nGpz/](https://www.instagram.com/p/CIgHQG6nGpz/)
-#19-27Dec #圣诞课金週 #双拾团队
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150812/39-1.png)
-**圣诞课金週**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150812/39-1.png)
-**爆买日**
-日期 : 12月19-23日
-目的: 延续黄圈精神，呈现香港人的力量
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150801/39.png)
-**圣诞课金週**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150801/39.png)
-**美食週**
+[原文链接](https://thenationalpulse.com/breaking/trump-supreme-court-petition/)
 
-[https://www.instagram.com/p/CIi05lmHCup/?utm\_source=ig\_web\_copy\_link](https://www.instagram.com/p/CIi05lmHCup/?utm_source=ig_web_copy_link)
-日期 : 12月24-27日
-目的: 延续黄圈精神，呈现香港人的力量
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/hdXAdBgbAN3EO/)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+![]()![](https://spark.adobe.com/page/hdXAdBgbAN3EO/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0
