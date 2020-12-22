@@ -1,23 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 密歇根州有多达37.9万名潜在的非法选民，是所谓拜登胜出票数的两倍多
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/675167/)
+## 班农疫情作战室577/578/579期
+` GM47` [轉載自GNews](https://gnews.org/zh-hans/675301/)
 
-英听校：    康州盘古农场 – Mike Li
+战友之家新闻译制组制作
 
-翻译：       康州盘古农场 – Mike Li
+更多、更新WAR ROOM中文视频，请前往GTV-班农战斗室中文    》》》
 
-翻译终校：康州盘古农场 -黎明的光芒
+[https://gtv.org/user/5e8cf14849080f0e9c6ae5b8](https://gtv.org/user/5e8cf14849080f0e9c6ae5b8)
 
-字幕+视频制作：康州盘古农场-小腾腾说
+577：美国市长
 
-审核**：**康州盘古农场-Truemanman
+2020年12月11日
 
-从选举日的午夜到次日的黎明，全世界都目睹了乔·拜登的选票莫名其妙的激增。近20万张选票在深夜涌入乔·拜登，相比之下唐纳德·川普的选票只有约1万张，把所有这些潜在的非法选票加起来，就是379,000张选票，比所谓的拜登胜出票数的两倍还多，我们绝对有必要调查六个战场州，所有六个方面的选举违规行为，这很可能是美国总统选举历史上最大的政治丑闻。
+尽管YouTube宣布了对讨论选举的所有频道的广泛审查要求，但史蒂夫·班农（Steve Bannon）讨论了有关CCP病毒大流行的最新消息以及有关选举状态的最新消息。连线嘉宾包括Maggie VandenBerghe，Rudy Giuliani，Steve Cortes，Jack Maxey，Raheem Kassam。
+
+播出时间：2020年12月11日
 
 
 
-原视频链接: [https://twitter.com/realpnavarro/status/1341196056156123137?s=21](https://twitter.com/realpnavarro/status/1341196056156123137?s=21)
+==
 
-0
+578：“可悲的人们”
+
+2020年12月11日
+
+尽管YouTube宣布了对讨论选举的所有频道的广泛审查要求，但史蒂夫·班农（Steve Bannon）讨论了有关CCP病毒大流行的最新消息以及有关选举状态的最新消息。连线包括Maggie VandenBerghe，Bernie Kerik，Jack Maxey，Raheem Kassam，Kylie Kremer和Liz Yore。
+
+播出时间：2020年12月11日
+
+[https://youtu.be/6jEzeaVVy4Y](https://youtu.be/6jEzeaVVy4Y)
+
+==
+
+579：寻求正义
+
+2020年12月11日
+
+尽管YouTube宣布了对讨论选举的所有频道的广泛审查要求，但史蒂夫·班农（Steve Bannon）讨论了有关CCP病毒大流行的最新消息以及有关选举状态的最新消息。连线包括Maggie VandenBerghe，John Eastman，Boris Epshteyn，Phill Kline，Ben Bergquam和Mark Finchem。
+
+播出时间：2020年12月11日
+
+
+
+==
+
+更多、更新WAR ROOM中文视频，请前往GTV-班农战斗室中文    》》》
+
+[https://gtv.org/user/5e8cf14849080f0e9c6ae5b8](https://gtv.org/user/5e8cf14849080f0e9c6ae5b8)
+
+3+

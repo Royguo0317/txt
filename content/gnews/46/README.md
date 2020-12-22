@@ -1,67 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中国媒体十大新词语，庚子年中共罪行的具体表现（上）
-` 国内新闻组(Ronald)` [轉載自GNews](https://gnews.org/zh-hans/674990/)
+## 中国媒体十大新词语，庚子年中共罪行的具体表现（下）
+` 国内新闻组(Ronald)` [轉載自GNews](https://gnews.org/zh-hans/675250/)
 
-内新闻：Y.M.O    素材：Y.M.O/鹰（文言）   校对：雅典娜的圣斗士(沙加)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22051004/1-127.jpg)
+内新闻：Y.M.O   素材：Y.M.O/大时代的小蚂蚁/秋末的落叶   校对：圣斗士(沙加)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22064234/1-130.jpg)
+**前情提要**
+
 作为“汉语盘点2020”活动重要组成部分。12月16日，国家语言资源监测与研究中心发布了2020中国媒体十大新词语。①复工复产；②新冠疫情；③无症状感染者；④方舱医院；⑤健康码；⑥数字人民币；⑦服贸会；⑧双循环；⑨天问一号；⑩无接触配送。
 
-“2020年度中国媒体十大新词语”是基于国家语言资源监测语料库，利用语言信息处理技术，结合后期人工确认获得的。
+**数字人民币 服贸会 双循环 无接触配送**
 
-语料来源于2020年1月1日至11月底的9份主流报纸的文章、20家电台和电视台的节目、4家门户网站的新闻，数据规模近19亿字次，代表了中国主流媒体的关注焦点和语言特点。
+在上一篇文章中（[https://gnews.org/zh-hans/674990/](https://gnews.org/zh-hans/674990/)）提到中共在世界都因中共病毒封锁的时候复工复产，一大原因就是为了经济。然而中共的经济向来就是一个假擀面杖子，必将会有撑不住的一天。
 
-现在到了年底，也到了这种年度最佳的报道应该出来的时候。只不过以往墙内这样的年度词汇虽然说是绣花枕头一包草，还是想用表面的风光来遮掩内在的丑陋。
+那如何让未来晚一些到来呢，只要带着现代技术回到过去不就能更好地重新过日子了，数字人民币就是这种符合中共意图下的科技产物。
 
-但是这十大新词语一来全部是自产自销，二来这已经由一种伪装变成了侵略世界的野心，甚至有实质性的行动了，CCP的图谋之大，内心险恶可见一斑。
+虽然经济方面是我的短板，但我也知道如果中共强制以一定比率将纸质货币换成数字货币，所有的呆账、坏账将会一笔勾销。并且纸质的人民币虽然也假，但好歹也通过港币与美元挂钩，还算是有个锚定。
 
-而这十个词语我可以把它分为三个来源，当然它代表不了中文的语言特点，不过作为揭穿CCP阴谋的起点还是很适合的。
+但数字货币完全没这回事，并且中国银行前行长李礼辉明确表示过，数字货币不能够兑换黄金，不和黄金挂钩。
 
-**复工复产 新冠疫情 无症状感染者 方舱医院 健康码**
+所以，以对外交流来说，数字货币比游戏币还不如，对内它只是一种更准确更狠毒的粮票。既可以准确掌握所有钱的流向，又可以规定你每一份钱的用途，这种邪恶的程度和中共病毒比也算是不相上下了。
 
-这五个单词都对应了中共病毒。路德先生1月19日的节目想必大家都记忆犹新，人传人、大爆发、强变异、实验室制造、中共隐瞒疫情也都得到验证。
+我能明白数字货币的另外一个目的是摧毁美元的地位。但有一点我真不明白，躺在水晶棺里的毛爷爷都不见得能100%状态一直躺下去，这屏幕上的毛爷爷们你怎么保证它们的存活，网络一断那不就是白茫茫大地真干净了，连厕纸的价值都没有。
 
-而根据闫丽梦博士和博士团们的两篇论文，中共病毒就是一种超限生物武器，目的就是让美国医疗系统崩溃，并引发经济的危机还有社会动乱，进入中共想看到的恶循环。
+可以说这是十个单词里假得最彻底的那个，比它稍微好一点点的是双循环。估计官方在选词语的时候脸皮还没厚出天际，不然写上去的就是内循环了。
 
-基于以上这些，可以说从名字开始，中共就想要对普通民众洗脑，毕竟“新冠肺炎”看上去只是一种病而已，只要生活在地球上，得病很正常。
+双循环这个词说明了中共在假骗偷的思想下只靠自己根本玩不转，并且与国外的深水区还是需要继续勾兑的这个事实，像上面讲的数字人民币也会被中共应用于所谓的循环之中。
 
-但参与爆料革命的战友们都知道这是怎么一回事，事实上就因为它是CCP的生物武器，所以名字当中的这些人工属性才能揭示真相，中共病毒必将是真正留在历史当中的名字。
+然而事实情况是墙内民众消费能力早就被榨干，在国际灭共大形势下中共资本也纷纷吃了闭门羹，双循环最后只能变成以紫禁城为终点的死循环。服贸会相对来说更有中共的传统风格一些，通过炫耀自己的所谓成果来掩盖内在的空虚丑陋。
 
-而由于中共隐瞒疫情，因此必须想方设法减少患者的数字，无症状感染者这个词就应运而生了。之后中共每次假模假样通报时都会说是不是无症状感染者。
+在一些新闻报道中我们可以看到中共对于5G的宣传、人工智能的一些应用、还有中共疫苗的亮相。然而这种炫耀式的成果背后是门可罗雀的现实。
 
-在其它国家只要是病毒携带者都算是阳性，而在中共国只有当你出现症状了才算是患者，并且这个认定也设下重重标准。
+当然你可以说国外商家的减少是因为疫情的严重，但为什么本年度的服贸会习近平本人也兴致索然，不就是因为造出来的这些成果已经遮不住目前四处碰壁的窘境了，亲共的生态在枯萎，灭共的生态在生长，结果如何不言自明。
 
-毕竟自己吹过“应收尽收，应治尽治”的牛，怎么样把牛皮圆回来，那只有不让你达到这个标准，并且新设立一个门类来表示科学性，真是以假治国下的完美产物。
+无接触配送则是其中最可有可无的一个单词。且不说中共年初装模做样比较像的那段时间里配送是不是真的无接触，就算是真的，即使再加上智能取餐柜、无人配送机器人，这能代表行业发展与安全吗？
 
-如何应收尽收，应治尽治。方舱医院就是中共想出来的办法。传染病防治它应该是一个很严格的事情，最主要的就是保证各个空间的独立性，空气、水的流动都有可能导致进一步的传播。
+这种配送行业的“基建”面对诸如日本实体店真正的基础设施就和闹着玩似的，也可以看出这种所谓的无接触就是中共又一片想给自己脸上贴的金而已。
 
-甚至中共自己都有《传染病防治条例》。然而方舱医院的情况实在让人大跌眼镜，干脆改个名叫方舱集中营算了。
+**天问一号**
 
-不仅毫无传染病防治的影子，而且整个流程的粗暴程度堪比把大象装冰箱的步骤，就是让你自生自灭。中共甚至还要把它写入法律，推向世界，想想都毛骨悚然。
+天问一号是中共首次火星探测任务探测器的名字，这里先不谈论今年中共的航天为什么失败率陡增，就这个名字而言这是让我最愤怒的一个词。对我而言，《天问》就等于达明一派的经典之作。**纵怨天，天不容问；叹众生，生不容问。**
 
-对于那些看上去没有感染的人要怎么办，中共推出了健康码来做应对。虽然理论上是红灯停绿灯行，但是这和红绿灯一样么。
+作为六四事件后推出的作品，毫不忌讳地讽刺了中共政权的高压统治，也为威权下的中国人感到叹息，**千秋的咒诅何时作罢**。不过中共从来不会去听民众的问题，从来不会去听香港人的问题。
 
-一方面绿码和无症状感染者本身就是矛盾的，病毒携带者只要没有症状照样畅行无阻，整个墙内社会就是一个病毒传播的大实验场。
+反而达明一派被封杀，香港如今也成为了死港。如此不敬众生，你向天去发问，天会回答你吗？得到的只会是上天的惩罚。
 
-另一方面红码并不是你能决定的，决定权在中共手里，中共完全可以用疫情防控为理由将你变成红码，然后让你强制隔离，这期间什么事都能发生，并且看上去还合理。
+**总结**
 
-健康码的推行除了是一次个人隐私信息的大收集，还是中共复工复产的一个合理借口。
+这个中国媒体十大新词语，当然大家都知道是假大空的产物。所谓的9份主流报纸、20家电台、电视台不都姓党吗？4家门户网站能逃出腾讯、新浪、搜狐、凤凰、网易这些名字吗？
 
-由于之前和美国的贸易战导致自己的经济损失严重，因此在病毒释放过后，全世界还在封锁的时间窗口，中共想借此抢回失去的经济增长，并且营造出一种风景这边独好的错觉。
+不过除了假大空之外，也能看出中共从以往的韬光养晦变成了主动出击，想着终于能开花结果了，但是出来混总是要还的，中共你混了70年，现在主动出击的同时也给别人留下了把柄，该到我们赢一次了。
 
-然而这样的复工复产只是无谓的自嗨罢了，你自己倡导的全球化，你自己释放的病毒，结果变成工厂根本收不到订单，复工复产等于机器空转，人浮于事，然后工厂破产，工人失业。更不要说复工复产的背后加剧了病毒的传播。
+墨博士一次在路德节目中分享的观点非常棒，今年所有的事情都可以用这么一句话来概括，就是**Take down CCP！**历史会记住这句话的。
 
-中共想让美国进入的恶循环，最后只会让自身遭到报应，还有对无辜的民众造成的伤害。
-
-既然是复工复产，那就和经济有分不开的关系，十大新词语的后几个当中就和经济相关，也是中共的又一根假擀面杖子，这些留到下篇再讲。
-
-相关GNEWS文章：
-[https://gnews.org/zh-hans/162243/](https://gnews.org/zh-hans/162243/%20https://gnews.org/zh-hans/161138/%20https://gnews.org/zh-hans/153271/%20https://gnews.org/zh-hans/398908/%20https://gnews.org/zh-hans/280874/%20https://gnews.org/zh-hans/118719/)
-[https://gnews.org/zh-hans/161138/](https://gnews.org/zh-hans/162243/%20https://gnews.org/zh-hans/161138/%20https://gnews.org/zh-hans/153271/%20https://gnews.org/zh-hans/398908/%20https://gnews.org/zh-hans/280874/%20https://gnews.org/zh-hans/118719/)
-[https://gnews.org/zh-hans/153271/](https://gnews.org/zh-hans/162243/%20https://gnews.org/zh-hans/161138/%20https://gnews.org/zh-hans/153271/%20https://gnews.org/zh-hans/398908/%20https://gnews.org/zh-hans/280874/%20https://gnews.org/zh-hans/118719/)
-[https://gnews.org/zh-hans/398908/](https://gnews.org/zh-hans/162243/%20https://gnews.org/zh-hans/161138/%20https://gnews.org/zh-hans/153271/%20https://gnews.org/zh-hans/398908/%20https://gnews.org/zh-hans/280874/%20https://gnews.org/zh-hans/118719/)
-[https://gnews.org/zh-hans/280874/](https://gnews.org/zh-hans/162243/%20https://gnews.org/zh-hans/161138/%20https://gnews.org/zh-hans/153271/%20https://gnews.org/zh-hans/398908/%20https://gnews.org/zh-hans/280874/%20https://gnews.org/zh-hans/118719/)
-[https://gnews.org/zh-hans/118719/](https://gnews.org/zh-hans/162243/%20https://gnews.org/zh-hans/161138/%20https://gnews.org/zh-hans/153271/%20https://gnews.org/zh-hans/398908/%20https://gnews.org/zh-hans/280874/%20https://gnews.org/zh-hans/118719/)
+GNEWS文章参考：
+[https://gnews.org/zh-hans/629720/](https://gnews.org/zh-hans/629720/%20https://gnews.org/zh-hans/621269/%20https://gnews.org/zh-hans/369806/%20https://gnews.org/zh-hans/363086/%20https://gnews.org/zh-hans/330421/%20https://gnews.org/zh-hans/423596/%20https://gnews.org/zh-hans/344437/%20https://gnews.org/zh-hans/575088/)
+[https://gnews.org/zh-hans/621269/](https://gnews.org/zh-hans/629720/%20https://gnews.org/zh-hans/621269/%20https://gnews.org/zh-hans/369806/%20https://gnews.org/zh-hans/363086/%20https://gnews.org/zh-hans/330421/%20https://gnews.org/zh-hans/423596/%20https://gnews.org/zh-hans/344437/%20https://gnews.org/zh-hans/575088/)
+[https://gnews.org/zh-hans/369806/](https://gnews.org/zh-hans/629720/%20https://gnews.org/zh-hans/621269/%20https://gnews.org/zh-hans/369806/%20https://gnews.org/zh-hans/363086/%20https://gnews.org/zh-hans/330421/%20https://gnews.org/zh-hans/423596/%20https://gnews.org/zh-hans/344437/%20https://gnews.org/zh-hans/575088/)
+[https://gnews.org/zh-hans/363086/](https://gnews.org/zh-hans/629720/%20https://gnews.org/zh-hans/621269/%20https://gnews.org/zh-hans/369806/%20https://gnews.org/zh-hans/363086/%20https://gnews.org/zh-hans/330421/%20https://gnews.org/zh-hans/423596/%20https://gnews.org/zh-hans/344437/%20https://gnews.org/zh-hans/575088/)
+[https://gnews.org/zh-hans/330421/](https://gnews.org/zh-hans/629720/%20https://gnews.org/zh-hans/621269/%20https://gnews.org/zh-hans/369806/%20https://gnews.org/zh-hans/363086/%20https://gnews.org/zh-hans/330421/%20https://gnews.org/zh-hans/423596/%20https://gnews.org/zh-hans/344437/%20https://gnews.org/zh-hans/575088/)
+[https://gnews.org/zh-hans/423596/](https://gnews.org/zh-hans/629720/%20https://gnews.org/zh-hans/621269/%20https://gnews.org/zh-hans/369806/%20https://gnews.org/zh-hans/363086/%20https://gnews.org/zh-hans/330421/%20https://gnews.org/zh-hans/423596/%20https://gnews.org/zh-hans/344437/%20https://gnews.org/zh-hans/575088/)
+[https://gnews.org/zh-hans/344437/](https://gnews.org/zh-hans/629720/%20https://gnews.org/zh-hans/621269/%20https://gnews.org/zh-hans/369806/%20https://gnews.org/zh-hans/363086/%20https://gnews.org/zh-hans/330421/%20https://gnews.org/zh-hans/423596/%20https://gnews.org/zh-hans/344437/%20https://gnews.org/zh-hans/575088/)
+[https://gnews.org/zh-hans/575088/](https://gnews.org/zh-hans/629720/%20https://gnews.org/zh-hans/621269/%20https://gnews.org/zh-hans/369806/%20https://gnews.org/zh-hans/363086/%20https://gnews.org/zh-hans/330421/%20https://gnews.org/zh-hans/423596/%20https://gnews.org/zh-hans/344437/%20https://gnews.org/zh-hans/575088/)
 
 0

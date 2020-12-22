@@ -1,55 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共党员在英使领馆工作，英安全部门对此感到异常愤怒
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/675530/)
+## 美科技巨头参加中共组织赞助的会议，后者主管中共病毒假信息传播
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/675887/)
 
-新闻来源：《英国每日邮报》(Daily Mail)； 作者：Jake Ryan、 Jonathan Bucks； 发布时间：2020年12月18日
+- 编辑：Victor Torres
 
-翻译/简评：MikeHua；校对：SilverSpurs7；审核：万人往；Page：小雨
-[!\[\]()!\[\](https://spark.adobe.com/page/ceXbXueYxE1NC/images/d8121b88-74d2-4854-914b-e9e27cfbf3ff.jpg?asset_id=2d5a84ce-c712-4d03-9b91-3b37657ced81&amp;img_etag=%221cdcfe41f87226d224e98410f0fee447%22&amp;size=1024)](https://spark.adobe.com/page/ceXbXueYxE1NC/images/d8121b88-74d2-4854-914b-e9e27cfbf3ff.jpg?asset_id=2d5a84ce-c712-4d03-9b91-3b37657ced81&amp;img_etag=%221cdcfe41f87226d224e98410f0fee447%22&amp;size=1024)
-#### **简评：**
 
-中共干啥啥不行，但是渗透、挑拨离间、间谍活动却堪称世界第一。日前被曝光的中共党员名单在世界上引起了广泛关注。人们开始意识到中共对世界渗透范围如此之广，渗透程度如此之深。世界对中共敞开大门三十多年以来，中共无底线地对全世界进行渗透，才导致现在的局面。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-我们中国百姓一定要在这个时候站出来，跟全世界说明白，我们不是共产党，中国人不全是共产党员，我们不喜欢共产党的行径，而且作恶的只是盗国贼家族，绝大多数党员都是好人。现在到了全世界都开始对共产党进行清理的时候，我们在世界范围内和共产党撇清关系至关重要。我们都知道共产党要完了，一定要保护好自己和国内的同胞，不要让共产党的死带走我们的同胞。
+**西班牙2020年12月22日电/西喜社—**
 
-#### **原文翻译：**
+据National Pulse 周一报道，来自诸如Facebook和Google之类的美国科技巨头的高管出席了由中国网络空间管理局组织的年度会议，该组织负责领导中国共产党的数字化运动，审查事实叙述并发布有关中共病毒的欺诈性信息。
+在中共文件泄露后，美国科技界领袖出人意料地出席了世界互联网大会，揭露领导会议的网络空间管理局的任务是在网上部署成千上万的人。
+这些人，包括中国的“五毛”水军，被派去打击有关中国政府的负面言论，并兜售虚假信息，以制造出一个中国足够控制这种病毒的假象。
+一年一度的世界互联网大会于2014年开始举办，由中国网络空间管理局，国务院新闻办公室和几个市政府组织。
+除了中国共产党领导人习近平在会上讲话外，被国防部确定为协助中国军队超过二十年的公司，如华为，中国电信和中国电子科技集团，也定期参加。
+拥有争议的微信和抖音应用程序的腾讯和字节跳动等其他中国公司与一群中共高层官员一起参加了会议。
+会议的目标是加强中美之间的技术合作，这是假的，因为这为政府批准的知识产权盗窃，间谍活动，黑客和网络攻击提供了温床。
+尽管如此，包括微软，LinkedIn，Facebook，Apple和Amazon在内的美国公司还是参加了这个国营活动。 2017年，苹果首席执行官蒂姆·库克（Tim Cook）和谷歌首席执行官桑达尔·皮查伊（Sundar Pichai）在活动中担任了重要的演讲角色。
+Facebook高管已经参加了会议超过五年。 2016年，创始人兼首席执行官马克·扎克伯格（Mark Zuckerberg）与Facebook企业发展副总裁沃恩·史密斯（Vaughan Smith）一起担任演讲人。
+这些公司即使在2014年的争议之后仍对会议提供了支持，据称该会议试图让与会者批准一份三页的宣言，主张“增强网络空间的连通性”。
+最令人关注的是在阻止违反“网络安全和网络恐怖主义”的行为方面进行合作，鉴于中国共产党领导世界制裁这些攻击，这种虚假的伪善表现令人眼前一亮。
+与该组织合作的还有许多华盛顿特区的智囊团，它们主张建立更紧密的中美关系，例如布鲁金斯学会和美中关系全国委员会。
+布鲁金斯曾多次派代表团参加会议，与中共管理的机构（例如中国网络空间研究院）一起参加论坛，该机构批准了中共病毒的错误信息。
+该研究所于2019年共同主持了“文明互动与智囊团在信息时代的作用”的专题讨论会。2017年，该研究所中国中心主任李成在论坛上发表讲话，呼吁美国加强与中国科技公司的合作。
+亲中国游说团体的另一个主要成员，美国对华关系全国委员会也派主席史蒂芬·奥林斯在会议上发言。 例如，在2017年，奥林斯（Orlins）希望确保“互联网为中美两国的利益提供补充，而不是相互冲突的利益”。
+在世界互联网大会上，与中国共产党联系的公司和党员保持联系的美国科技公司并非孤立事件。
 
-# 中共工作人员在英国大使馆中担任职务，安保部门大发雷霆。
+新闻来源：[https://thenationalpulse.com/exclusive/fb-tech-conference-china/](https://thenationalpulse.com/exclusive/fb-tech-conference-china/)
 
-**情报官员对让宣誓效忠中共的共产党员在英国大使馆任职感到非常气愤**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
-**泄露的中共党员名单包括英国驻上海领事馆**
-
-**没有证据显示任何人员正在或者曾经从事间谍活动**
-
-英国情报部门与英国外交部就外交大使馆中雇佣中国共产党员的问题上发生了争执。
-
-据了解，情报人员对宣誓效忠中共的工作人员被使领馆给予工作职位感到非常愤怒。
-
-该争执是在《星期日邮报》(The Mail on Sunday)曝光了在上海的一份中共党员名单之后发生，该名单包括一名在英国驻上海领事馆工作的官员以及数百名为英国公司工作的人员。
-
-虽然没有证据显示名单中的有人正在或者过去曾从事国间谍活动，安全部门争辩说，这不能假设说这些人中没有人进行间谍活动，并且考虑中共国过去的间谍行径，冒这个风险得不偿失。
-[!\[\]()!\[\](https://spark.adobe.com/page/ceXbXueYxE1NC/images/22d56b7f-a8f6-4857-9ca2-875f95a4f75f.jpg?asset_id=0ce3a6d3-f407-4313-ae55-2abd97845b7d&amp;img_etag=%22bcfd961b65b118d20ad6cb3b25fb82b5%22&amp;size=1024)](https://spark.adobe.com/page/ceXbXueYxE1NC/images/22d56b7f-a8f6-4857-9ca2-875f95a4f75f.jpg?asset_id=0ce3a6d3-f407-4313-ae55-2abd97845b7d&amp;img_etag=%22bcfd961b65b118d20ad6cb3b25fb82b5%22&amp;size=1024)*英国情报部门与英国外交部对在外交大使馆中雇佣中国共产党员的问题上发生了争执（资料图片）。*
-与此同时，可以透露，劳斯莱斯的安保部门–其中聘用中共党员的公司之一–已经展开了调查。
-[!\[\]()!\[\](https://spark.adobe.com/page/ceXbXueYxE1NC/images/0a2f3902-0204-4509-bbd0-910bfc730453.jpg?asset_id=73d6ae97-eac9-4a82-aba0-77bf29a43549&amp;img_etag=%22febf550da21d3b02d8814b9cc4829479%22&amp;size=1024)](https://spark.adobe.com/page/ceXbXueYxE1NC/images/0a2f3902-0204-4509-bbd0-910bfc730453.jpg?asset_id=73d6ae97-eac9-4a82-aba0-77bf29a43549&amp;img_etag=%22febf550da21d3b02d8814b9cc4829479%22&amp;size=1024)
-劳斯莱斯安全部门已就数据库中这些工人的详细资料一事，联系了“对华政策跨国议会联盟”(Inter-Parliamentary Alliance on China/IPAC)，该联盟最初从异议人士收到泄露的数据库。
-
-该数据库还收录了华为公司员工的名字，这家备受争议的中国电信公司，因安全问题被禁止参与英国的5G移动网络。
-
-对北京习近平主席领导下政权的批评者说，中共党员名单凸显了中共国在整个英国生活中的恶性影响规模。
-
-“对华政策跨国议会联盟”(IPAC)成员、前保守党党魁伊恩·邓肯·史密斯（Iain Duncan Smith）上周在本报撰文说：”这项调查证明中共党员现在遍布全球，中共党员在世界上一些最重要的跨国公司、学术机构和我们自己的外交部门工作。”
-
-[原文链接](https://www.dailymail.co.uk/news/article-9071713/Anger-Chinese-Communist-Party-staff-British-consulates.html)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/ceXbXueYxE1NC/)
-[!\[\]()!\[\](https://spark.adobe.com/page/ceXbXueYxE1NC/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/ceXbXueYxE1NC/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 1+

@@ -1,64 +1,82 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫办公厅主任马克·梅多斯（Mark Meadows）谈川普总统的司法正义之战，川普总统准备用越来越多的证据反击选举欺诈
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/675201/)
+## 【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（三）
+` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/675371/)
 
-翻译：康州盘古农场-烟波浩淼
+翻译： Tom Cat
 
-校对：康州盘古农场-Mike Li
+校对： 虹陵
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22074718/%E7%BA%B3%E7%93%A6%E7%BD%97%E6%8A%A5%E5%91%8A3.jpg)
+往期链接：
 
-审核：康州盘古农场-Truemanman
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22062408/200306202812-mark-meadows-jan-29-super-tease.jpg)
-周日晚上，火线律师西德尼·鲍威尔被发现离开白宫官邸一侧。
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（一）](https://gnews.org/zh-hans/669414/)
 
-鲍威尔一直带头挑战选举结果，许多人认为选举结果存在欺诈行为。
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（二）](https://gnews.org/zh-hans/675333/)
 
-星期五晚上，西德尼·鲍威尔还与迈克尔·弗林将军以及帕特里克·伯恩出席了白宫椭圆形办公室的喧嚣会议。
+## II. Six Dimensions of Election Irregularities across Six Battleground States
 
-今晚白宫幕僚长马克·梅多斯（Mark Meadows）在推特上表示，川普总统准备用越来越多的证据反击选举欺诈。
+## II. 六个战场州选举违规的六个方面
 
+This report assesses the fairness and integrity of the 2020 presidential election across six key battleground states where the Democrat candidate Joe Biden holds a slim lead, and the results continue to be hotly contested. As documented in the extensive endnotes, the evidence used to conduct this assessment includes more than 50 lawsuits and judicial rulings, thousands of affidavits and declarations, testimony presented in a variety of state venues, published reports and analyses by think tanks and legal centers, videos and photos, public comments and first-hand accounts, and extensive press coverage.
 
+此报告评估了2020年总统大选中，民主党候选人乔·拜登以微弱优势领先、票选结果仍然激烈的六个关键摇摆州选举的公正性与公平性。附注里面被用来评估的大量证据包括：50多起诉讼和司法裁决，数以千计的宣誓和声明，来自多州的证词，由智库和法律中心发表的报告与分析，视频和照片，公众评论和第一手资料，以及大量的新闻报道。
 
-> Several members of Congress just finished a meeting in the Oval Office with President [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw), preparing to fight back against mounting evidence of voter fraud. 
-> 
-> Stay tuned.
-> — Mark Meadows (@MarkMeadows) [December 21, 2020](https://twitter.com/MarkMeadows/status/1341157317451124745?ref_src=twsrc%5Etfw)
+From a review and analysis of this evidence, six major dimensions of alleged election irregularities have been identified and assessed on a state-by-state basis across six key battleground states: Arizona, Georgia, Michigan, Nevada, Pennsylvania, and Wisconsin. These six dimensions include outright voter fraud, ballot mishandling, contestable process fouls, Equal Protection Clause violations, voting machine irregularities, and significant statistical anomalies.
 
+通过对这些证据的审查和分析，对包括亚利桑那州、乔治亚州、密歇根州、内华达州、宾夕法尼亚州和威斯康辛州的六个关键战场州，进行了六项被指控的选举违规行为的确定并评估。这六个方面包括公然的选民欺诈、选票处理不当、可疑的程序违规、违反平等保护条款、投票机违规以及明显的统计异常。
 
+The matrix in Table 2 provides an overview of the presence or absence of each of the six dimensions of alleged election irregularities in each of the six battleground states. Column 1 lists each of the six dimensions along with the alleged Biden victory margin and the possible illegal ballots due to election irregularities. Columns 2 through 7 in the matrix then indicate the presence or absence of the election irregularities in any given state.
 
-*马克**·**梅多斯**@MarkMeadows 5**小时*
+图表2概述了在六个战场州中，存在或不存在的六种被指控的选举违规行为。第一列列出了六项违规行为、拜登领先的选票以及由于选举违例可能被列为的非法选票。第二至第七列列出了在特定州存在或不存在的选举违规行为。
 
-*几位国会议员刚刚在椭圆形办公室与总统会晤**@realDonaldTrump**，准备用越来越多的证据反击选民欺诈*
+Note that a checkmark in matrix cell indicates there is widespread evidence in a given state for a particular dimension of election irregularity while a star indicates there is at least some evidence.
 
-*敬请关注。*
+注释：图表单元格中的勾号（√）表示在给定州中有广泛证据表明该州存有其中一种选举违规行为，星号（★）则表示至少有一些证据。
+![pastedGraphic.png]()![pastedGraphic.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22074514/Screen-Shot-2020-12-22-at-8.45.01-PM.png)
+表格2：2020六个摇摆州被确认的选举违规行为
 
-这对国家和川普总统来说都是一个非常好的消息。
+图中文字：
 
-最新消息——今晚出席白宫会议的还有共和党代表：
+行：亚利桑那，佐治亚，密西根，内华达，宾夕法尼亚，威斯康星
 
-众议员莫·布鲁克斯 （Mo Brooks）
+列：公然的选民欺诈，选票处理不当，可疑的程序违规，违反平等保护条款，投票机违规，明显的统计异常，拜登领先选票，可能的非法选票
 
-众议员马特·盖兹（Matt Gaetz）
+对号含义：普遍证据
 
-众议员吉姆·乔丹（Jim Jordan）
+星号含义：某些证据
 
-众议员安迪·比格斯 （Andy Biggs）
+Two key points stand out immediately from the matrix. First, significant irregularities appear to be ubiquitous across the six battleground states. Only Arizona is free of any apparent widespread ballot mishandling while only Pennsylvania lacks significant statistical anomalies. The rest of the matrix in Table 2 is a sea of checkmarks and occasional stars.
 
-众议员斯科特·佩里 （Scott Perry）
+从图表中可以立即看出两个关键点。第一，六个摇摆州普遍存在选举违规行为，只有亚利桑那州没有大规模的选票处理不当这一项以及宾夕法尼亚州没有明显的统计异常这一项。图表2中的其余部分都是大量的勾号和少量的星号。
 
-众议员路易·戈默特 （Louie Gohmert）
+Second, if one compares the alleged Biden victory margin in Column 7 of the figure with the possible illegal ballots in Column 8, it should be clear that the number of possible illegal ballots dwarfs the alleged Biden victory margin in five of the six states.
 
-当选女议员马乔丽·泰勒·格林 （Marjorie Taylor-Greene）
+第二，如果将第七行中拜登领先的选票与第八行可能的非法选票进行比较，可以清楚地看出，在六个州中的五个州，可能的非法选票的数量使所谓的拜登获胜优势相形见绌。
 
-评语：马克·梅多斯（Mark Meadows）是川普总统上任以来更换的第四任“中央办公厅主任”。他曾在CNN接受采访说：“我们不打算控制疫情，因为大流行病就像流感一样具有强传播性”，此番表达被左媒抓住攻击，他也因此而闻名。
+For example, the alleged Biden victory margin in Nevada is 33,596 votes yet the number of ballots in question is more than three times that. In Arizona, which has the narrowest alleged Biden victory margin at 10,457 votes, there are nearly 10 times that number of possible illegal ballots; and the ratio of the alleged Biden vote lead to possible illegal ballots is even higher for Georgia.
 
-马克·梅多斯（Mark Meadows）被路德社于20日晚点名后，可能很快就会被川普总统解雇，他本人的求生欲望很强烈，马上在今天早上出来为川普发声。
+例如，拜登在内华达州的领先票数是33596票，但有问题选票的数量是该数字的三倍多。拜登在亚利桑那州的领先优势最小，有10457张选票，但有可能的非法选票数量近乎于该数字的10倍，而在乔治尼亚州，拜登的领先选票与可能的非法选票的比例甚至比此还高。
 
+Only Michigan is the exception to the rule. This is not because it is likely to be a true exception but simply because there remains insufficient estimates of how the various types of irregularities in Michigan translate into possible illegal votes.
 
+只有密西根州是例外。但这并不是因为密歇根州是个真正的例外，而是因为还没有对密歇根州各种各样的违规行为如何转化为可能的非法选票进行足够的评估。
 
-原文链接：
+Clearly, based on this matrix, the American people deserve a definitive answer as to whether this election was stolen from Donald J. Trump. Absent a thorough investigation prior to Inauguration Day, a cloud and a stain will hang over what will be perceived by many Americans as an illegitimate Biden administration.
 
-[“President Trump Is Preparing to Fight Back Against Mounting Evidence of Voter Fraud” – BREAKING: White House Chief of Staff Mark Meadows on Trump’s Fight for Justice (thegatewaypundit.com)](https://www.thegatewaypundit.com/2020/12/president-trump-preparing-fight-back-mounting-evidence-voter-fraud-breaking-white-house-chief-staff-mark-meadows-trumps-fight-truth/)
+显然，根据图表所示，美国人民应该得到一个是否有人窃取了唐纳德·J·川普的选举结果的明确答案。如果在就职日之前没有进行彻底的调查，而由拜登非法政权上台，那么对于许多美国人来说，将会感受到被乌云和污渍所笼罩。
 
-2+
+The next six sections of this report examine in more detail each of the six dimensions of alleged election irregularities.
+
+本报告的下六节将深入地审查选举违规的六个方面。
+
+（未完待续）
+
+更多精彩内容请关注：
+
+- [美国纽约七星会农场（为子孙爱七哥）官推](https://twitter.com/wzsaqg)
+- [美国纽约七星会农场（为子孙爱七哥）GTV](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
+- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19044815/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-2.jpg)
+0

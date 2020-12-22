@@ -1,37 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】美国限制逾百中俄企业部门购买技术产品　包括香港飞行服务队
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/675612/)
+## 中共党员在英使领馆工作，英安全部门对此感到异常愤怒
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/675530/)
 
-搜集：Po
+新闻来源：《英国每日邮报》(Daily Mail)； 作者：Jake Ryan、 Jonathan Bucks； 发布时间：2020年12月18日
 
-编撰：Alexandra
+翻译/简评：MikeHua；校对：SilverSpurs7；审核：万人往；Page：小雨
+[!\[\]()!\[\](https://spark.adobe.com/page/ceXbXueYxE1NC/images/d8121b88-74d2-4854-914b-e9e27cfbf3ff.jpg?asset_id=2d5a84ce-c712-4d03-9b91-3b37657ced81&amp;img_etag=%221cdcfe41f87226d224e98410f0fee447%22&amp;size=1024)](https://spark.adobe.com/page/ceXbXueYxE1NC/images/d8121b88-74d2-4854-914b-e9e27cfbf3ff.jpg?asset_id=2d5a84ce-c712-4d03-9b91-3b37657ced81&amp;img_etag=%221cdcfe41f87226d224e98410f0fee447%22&amp;size=1024)
+#### **简评：**
 
-审核：MY
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22092827/image001-14.png)
-美国连接制裁中国官员之后，美国商务部12月21日公布，工业和安全局（BIS）将修改出口管理条例（EAR），将103 间中、俄公司及政府部门等单位，列入「军事最终用户」(Military End User) 名单，其中包括香港政府飞行服务队（GFS），日后将会被限制购买各种美国商品和技术。
+中共干啥啥不行，但是渗透、挑拨离间、间谍活动却堪称世界第一。日前被曝光的中共党员名单在世界上引起了广泛关注。人们开始意识到中共对世界渗透范围如此之广，渗透程度如此之深。世界对中共敞开大门三十多年以来，中共无底线地对全世界进行渗透，才导致现在的局面。
 
-据【立场新闻】报道指，名单上的 103 公司及政府部门的当中，分别有 58 个单位属中国，及 45 个单位属俄罗斯。美国商务部指出，名单上单位分别与中俄本国军队有联系，列入「军事最终用户」列表将限制美国企业与这批公司的贸易往来。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22092758/image003-10.png)【图片】政府飞行服务队 ，早前被质疑协助监察 12 港人快艇。
-名单包括香港政府飞行服务队（Government Flying Service）、中华人民共和国自然资源部辖下的第二海洋研究所（Second Institute of Oceanography）、中国航空发动机集团（Aero-Engine Company of China）下属8 个机构、中国航空工业集团（Aviation Industry Corporation of China）下属7 个机构、上海飞机设计研究院（Shanghai Aircraft Design and Research Institute）等，俄罗斯的情报机关之一俄罗斯对外情报局（SVR）也在名单之中。
+我们中国百姓一定要在这个时候站出来，跟全世界说明白，我们不是共产党，中国人不全是共产党员，我们不喜欢共产党的行径，而且作恶的只是盗国贼家族，绝大多数党员都是好人。现在到了全世界都开始对共产党进行清理的时候，我们在世界范围内和共产党撇清关系至关重要。我们都知道共产党要完了，一定要保护好自己和国内的同胞，不要让共产党的死带走我们的同胞。
 
-政府飞行服务 ，早前被质疑协助监察 12 港人快艇。政府飞行服务队前身为皇家香港辅助空军，飞机用于搜索和救援，消防，空中救护服务以及执法行动。 12 港人被送中案件中，飞行服务队被质疑协助监察 12 人的快艇，最终快艇被截获。
+#### **原文翻译：**
 
-美国商务部长罗斯（Wilbur Ross）表示，新增的「军事最终用户」名单可建立新流程，协助出口商筛选客户。国防部认识到必须利用美国和全球企业的伙伴关系，防止中俄转移美国技术，并打击以此尝试破坏稳定的军事计划，例如识别与中国共产党有关的军事公司。美国企业未来若想向清单中的企业出售最终可能用于军事用途的产品时，必须先取得许可证。
+# 中共工作人员在英国大使馆中担任职务，安保部门大发雷霆。
 
-战友观点：
+**情报官员对让宣誓效忠中共的共产党员在英国大使馆任职感到非常气愤**
 
-该次被列入黑名单的58间中国公司或组织，包括香港政府飞行服务队(Government Flying Service)，及中国航空工业集团旗下7间子公司，其中一间子公司其中一间是在本港上市的中国航空工业国际(0232)，其辖下的中国航空工业国际控股（香港）有限公司有在本港上市。
+**泄露的中共党员名单包括英国驻上海领事馆**
 
-本身是飞机师的谭文豪表示，是次黑名单涵盖零件出售，未来政府飞机服务队更换零件或更新软件可能受影响。
+**没有证据显示任何人员正在或者曾经从事间谍活动**
 
-美国商务部长罗斯表示，名单有助美国出口商筛选客户。长和回应记者查询时表示已转售名单内被指关联公司股份。有报道指，属长和与内地企业合资的「和记奥普泰通信技术有限公司」亦被列入清单。长和表示，有关公司的股份在2015年已全部转售，现时已再无持有任何股权，有关公司亦已改名为「重庆奥普泰通信技术有限公司」。
+英国情报部门与英国外交部就外交大使馆中雇佣中国共产党员的问题上发生了争执。
 
-香港【商业电台】指， 华府近年加强关注中国推行的军民融合发展，去年扩大了「军事终端用户」的定义，将任何支持或协助维护或生产军事物品的个人或实体，都列入军方定义。
+据了解，情报人员对宣誓效忠中共的工作人员被使领馆给予工作职位感到非常愤怒。
 
-以上观点仅代表笔者本人
+该争执是在《星期日邮报》(The Mail on Sunday)曝光了在上海的一份中共党员名单之后发生，该名单包括一名在英国驻上海领事馆工作的官员以及数百名为英国公司工作的人员。
 
-资料来源：[立场新闻](https://www.thestandnews.com/international/%E7%BE%8E%E5%9C%8B%E9%99%90%E5%88%B6%E9%80%BE%E7%99%BE%E4%B8%AD%E4%BF%84%E4%BC%81%E6%A5%AD%E9%83%A8%E9%96%80%E8%B3%BC%E8%B2%B7%E6%8A%80%E8%A1%93%E7%94%A2%E5%93%81-%E5%8C%85%E6%8B%AC%E9%A6%99%E6%B8%AF%E9%A3%9B%E8%A1%8C%E6%9C%8D%E5%8B%99%E9%9A%8A/)、[商业电台881903.com](https://www.881903.com/news/china/2371670/%E8%8F%AF%E5%BA%9C%E9%99%90%E5%88%B6%E9%81%8E%E7%99%BE%E4%B8%AD%E4%BF%84%E5%85%AC%E5%8F%B8%E8%B2%B7%E7%BE%8E%E5%9C%8B%E6%8A%80%E8%A1%93%E5%92%8C%E7%94%A2%E5%93%81-%E7%96%91%E5%8C%85%E6%8B%AC%E9%A3%9B%E8%A1%8C%E6%9C%8D%E5%8B%99%E9%9A%8A)
+虽然没有证据显示名单中的有人正在或者过去曾从事国间谍活动，安全部门争辩说，这不能假设说这些人中没有人进行间谍活动，并且考虑中共国过去的间谍行径，冒这个风险得不偿失。
+[!\[\]()!\[\](https://spark.adobe.com/page/ceXbXueYxE1NC/images/22d56b7f-a8f6-4857-9ca2-875f95a4f75f.jpg?asset_id=0ce3a6d3-f407-4313-ae55-2abd97845b7d&amp;img_etag=%22bcfd961b65b118d20ad6cb3b25fb82b5%22&amp;size=1024)](https://spark.adobe.com/page/ceXbXueYxE1NC/images/22d56b7f-a8f6-4857-9ca2-875f95a4f75f.jpg?asset_id=0ce3a6d3-f407-4313-ae55-2abd97845b7d&amp;img_etag=%22bcfd961b65b118d20ad6cb3b25fb82b5%22&amp;size=1024)*英国情报部门与英国外交部对在外交大使馆中雇佣中国共产党员的问题上发生了争执（资料图片）。*
+与此同时，可以透露，劳斯莱斯的安保部门–其中聘用中共党员的公司之一–已经展开了调查。
+[!\[\]()!\[\](https://spark.adobe.com/page/ceXbXueYxE1NC/images/0a2f3902-0204-4509-bbd0-910bfc730453.jpg?asset_id=73d6ae97-eac9-4a82-aba0-77bf29a43549&amp;img_etag=%22febf550da21d3b02d8814b9cc4829479%22&amp;size=1024)](https://spark.adobe.com/page/ceXbXueYxE1NC/images/0a2f3902-0204-4509-bbd0-910bfc730453.jpg?asset_id=73d6ae97-eac9-4a82-aba0-77bf29a43549&amp;img_etag=%22febf550da21d3b02d8814b9cc4829479%22&amp;size=1024)
+劳斯莱斯安全部门已就数据库中这些工人的详细资料一事，联系了“对华政策跨国议会联盟”(Inter-Parliamentary Alliance on China/IPAC)，该联盟最初从异议人士收到泄露的数据库。
 
-0
+该数据库还收录了华为公司员工的名字，这家备受争议的中国电信公司，因安全问题被禁止参与英国的5G移动网络。
+
+对北京习近平主席领导下政权的批评者说，中共党员名单凸显了中共国在整个英国生活中的恶性影响规模。
+
+“对华政策跨国议会联盟”(IPAC)成员、前保守党党魁伊恩·邓肯·史密斯（Iain Duncan Smith）上周在本报撰文说：”这项调查证明中共党员现在遍布全球，中共党员在世界上一些最重要的跨国公司、学术机构和我们自己的外交部门工作。”
+
+[原文链接](https://www.dailymail.co.uk/news/article-9071713/Anger-Chinese-Communist-Party-staff-British-consulates.html)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/ceXbXueYxE1NC/)
+[!\[\]()!\[\](https://spark.adobe.com/page/ceXbXueYxE1NC/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/ceXbXueYxE1NC/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+1+

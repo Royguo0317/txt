@@ -1,82 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（三）
-` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/675371/)
+## 【三票专栏】十权一统 统于一党（3）看中共的极权统治——军队篇（续）
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/675474/)
 
-翻译： Tom Cat
+**作者：三票先生**
 
-校对： 虹陵
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22074718/%E7%BA%B3%E7%93%A6%E7%BD%97%E6%8A%A5%E5%91%8A3.jpg)
-往期链接：
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（一）](https://gnews.org/zh-hans/669414/)
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（二）](https://gnews.org/zh-hans/675333/)
 
-## II. Six Dimensions of Election Irregularities across Six Battleground States
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17160329/%E4%B8%89%E7%A5%A8%E4%B8%93%E6%A0%8F-1.png)
 
-## II. 六个战场州选举违规的六个方面
 
-This report assesses the fairness and integrity of the 2020 presidential election across six key battleground states where the Democrat candidate Joe Biden holds a slim lead, and the results continue to be hotly contested. As documented in the extensive endnotes, the evidence used to conduct this assessment includes more than 50 lawsuits and judicial rulings, thousands of affidavits and declarations, testimony presented in a variety of state venues, published reports and analyses by think tanks and legal centers, videos and photos, public comments and first-hand accounts, and extensive press coverage.
 
-此报告评估了2020年总统大选中，民主党候选人乔·拜登以微弱优势领先、票选结果仍然激烈的六个关键摇摆州选举的公正性与公平性。附注里面被用来评估的大量证据包括：50多起诉讼和司法裁决，数以千计的宣誓和声明，来自多州的证词，由智库和法律中心发表的报告与分析，视频和照片，公众评论和第一手资料，以及大量的新闻报道。
 
-From a review and analysis of this evidence, six major dimensions of alleged election irregularities have been identified and assessed on a state-by-state basis across six key battleground states: Arizona, Georgia, Michigan, Nevada, Pennsylvania, and Wisconsin. These six dimensions include outright voter fraud, ballot mishandling, contestable process fouls, Equal Protection Clause violations, voting machine irregularities, and significant statistical anomalies.
+**概要**：**中共军队在战争年代搞****“人民战争”、“全民皆兵“和“人海战术”，军人混杂在民间，把民众绑架在自己的战车上夺取政权。在和平年代，中共大搞“军民融合”，借用民营企业实现军事扩张和技术偷窃，对西方实施“超限战”，典型的如华为。中共军方借用各级统战组织把“全民皆兵”扩展到海外，在海外华人和留学生中广泛发展技术情报人员。中共军方就是这样用黑社会的手段拉拢和要挟中国人民为中共一小撮盗国贼家族服务。**
 
-通过对这些证据的审查和分析，对包括亚利桑那州、乔治亚州、密歇根州、内华达州、宾夕法尼亚州和威斯康辛州的六个关键战场州，进行了六项被指控的选举违规行为的确定并评估。这六个方面包括公然的选民欺诈、选票处理不当、可疑的程序违规、违反平等保护条款、投票机违规以及明显的统计异常。
+中共不仅用军队管制民众，还用军队挟持中国人民成为人质，为中共服务。
 
-The matrix in Table 2 provides an overview of the presence or absence of each of the six dimensions of alleged election irregularities in each of the six battleground states. Column 1 lists each of the six dimensions along with the alleged Biden victory margin and the possible illegal ballots due to election irregularities. Columns 2 through 7 in the matrix then indicate the presence or absence of the election irregularities in any given state.
+根据日内瓦国际公约，军人穿军装被抓获或者缴械投降，就算是战俘，不得虐待和杀害。但是如果军人穿便装，便被认为是间谍，可以随时击毙。军人是军人，平民是平民，军人不扰民，这就是为了保护平民。但中共不是，在战争年代，中共把无辜的平民绑架在其战车上，中共美其名曰**“人民战争”、“全民皆兵”、“人海战术”。**
 
-图表2概述了在六个战场州中，存在或不存在的六种被指控的选举违规行为。第一列列出了六项违规行为、拜登领先的选票以及由于选举违例可能被列为的非法选票。第二至第七列列出了在特定州存在或不存在的选举违规行为。
+我们从无数的中共影视作品中可以看到这一点，什么《地道战》、《地雷战》、《平原游击队》等等，中共的军队混杂在民众中。姜文导演的电影《鬼子来了》充分地表现了这一场景，中共军人把抓获的一个日本兵和一个翻译官装在麻袋里放到百姓家中看管，但预定的日子又没有来取人，百姓不忍心杀害生命，放了这两个人，最后全村平民遭到日本兵集体屠杀。这部电影因为真实反应了中共军人扰民的真实面目而在中国大陆被禁。抗战中日本人经常屠杀无辜平民，非常残忍，但是这个同中共军队混杂在平民中也有关系，日本军人分不清哪个是军人哪个是平民。当然笔者在这里不是为日军开脱罪责，只是想说明中共的人民战争是不人道的行为。在后来的国共内战中，中共军队甚至将平民组织起来冲在前线，自己躲在平民后面冲锋，消耗国民党军队的弹药和精力。**更夸张的是中共军队用赤身裸体的妇女裹着床单在第一线冲锋，中共军人在后面督战**，快到对方阵地时国民党军队看到冲在前面的是妇女和平民，不忍心开枪阻击，于是中共军队获得胜利。中共军队还用逼平民杀人的手段让民众手上沾有血债，递投名状，逼平民加入中共的军队。这种绑架民众的黑社会手法是中共获得政权的手段之一。
 
-Note that a checkmark in matrix cell indicates there is widespread evidence in a given state for a particular dimension of election irregularity while a star indicates there is at least some evidence.
+在和平年代，中共依旧使用这一伎俩。我们经常看到中共的军事机构和平民的住宅区或者工作区域相邻。在南海、台湾海峡、东海和黄海，中共海军海警经常冒充中共渔船或者民用的渔政船，在海域从事军事行动，典型的就是中共经常使用渔政船去中日争议的钓鱼岛宣誓主权，在南海用伪装的渔政船撞击越南和菲律宾的渔船而显示霸权。按《联合国海洋法公约》规定和国际常设仲裁法院的判决，南海属于公海，但中共在南海设立行政区三沙市，管辖西沙群岛、南沙群岛和中沙群岛的所有岛礁和海域，挑战国际规则，修建人工岛、机场和表面上的民用设施，在部分岛屿移居平民，实际是在部署军事设施。中共在南海还以海洋石油勘探为名从事军事部署活动。很多中国的远洋渔船实际是中共伪装的军事船只，从事军事行动或者间谍行动。美国制裁朝鲜后，中共军队经常用渔船做掩护在海上给朝鲜偷偷运送物资。近年来，中共在海外承揽了很多建筑项目并派遣自己的建筑施工队伍，这些队伍中普遍混杂着中共的军事人员和情报人员，从事情报活动，一旦发生军事冲突和战争，这些人员可以立即武装起来成为军事单位。
 
-注释：图表单元格中的勾号（√）表示在给定州中有广泛证据表明该州存有其中一种选举违规行为，星号（★）则表示至少有一些证据。
-![pastedGraphic.png]()![pastedGraphic.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22074514/Screen-Shot-2020-12-22-at-8.45.01-PM.png)
-表格2：2020六个摇摆州被确认的选举违规行为
+2015年中共总书记习近平提出“**军民融合**”的国家发展战略，并亲自担任中共军民融合发展委员会主任，大力推进军民融合，这实际是中共全民皆兵的新形式。西方国家也有军民合作，但仅限于技术合作和经济合作，但中共不一样，**中共借用民营企业大搞军事扩张和技术偷窃，华为就是典型**。从表面的股权来看华为是股权分散的民营企业，甚至连大股东都没有，但创始人任正非本身是退役军官，前任董事长孙亚芳是国安部官员，华为实际上就是中共军方企业。华为打着民营企业的旗号在国际上实施5G的扩张，实际就是要控制西方的通讯，实现中共军方的军事目的。很多民营企业、民间研究机构、大学和科研院所，或者象华为那样打着民营企业的旗号实际由中共军方控制的企业，借用商业往来或者合作科研的名义，行偷窃西方技术之实。最近美国对很多中共的企业和机构实施制裁，但是由于美国财政部长姆努钦已经被中共利益集团收买，许多中共企业依然用隐蔽的子公司混迹于民间贸易之中突破美国的封锁。有些在美国注册的企业如ZOOM、TIKTOK等披着美资企业的外衣，实际由中共军方或情报机构控制，为中共在美国收集情报。这实际上就是中共所谓的**“超限战”**。
 
-图中文字：
+中共有公开的情报机构如军方总参情报部门、外交、国安和公安的情报机构，但**中共军方在民间发展很多隐蔽的情报机构**。中共起家的三大法宝之一就是统一战线，所以中共各级组织都有统一战线部门，为了打掩护，其上还有各级政治协商会议这个组织，**政协和中共的统战部统领各类民间组织为中共服务，其中就有情报职能**。典型的有中国工商联合会、中国对外文化交流中心、欧美同学会（中国留学人员联谊会）等等。**中共还把这些统战机构发展到海外**，在美国有**中国学生学者联谊会**，该联谊会在美国各大学成立分会，全美各地还有各类中国商会、同乡会等组织，这些组织几乎都由中共统战部们或者当地的大使馆领事馆领导，领取中共的经费，主要领导人也由中共实际控制。他们在海外华人和留学生中发展偷窃技术的情报人员，许多在美国高科技公司工作的技术人员以及在美国大学学习尖端技术的留学生，被中共机构**以爱国的名义**，许以金钱报酬，不知不觉成了中共的技术情报人员，第一次上钩以后就被中共拿着把柄相要挟，很多海外华人和留学生陷入了中共的泥潭，甚至连许多美国人也被收买和要挟，最近几年美国经常查获海外华人偷窃美国技术的案件。**中共这种无底线的全民皆兵的做法，使正常的海外华人的就业受到连累，美国和许多西方国家的大学禁止中国学生学习美国的高科技技术，影响无数无辜的中国学生的求学之路。**
 
-行：亚利桑那，佐治亚，密西根，内华达，宾夕法尼亚，威斯康星
+中共军方和情报机构就是这样用“全民皆兵”的“人民战争”，要挟无辜的中国人民为他们服务，其手段连黑社会和恐怖分子都望尘莫及自叹不如，最终得利的只是一小撮盗国贼家族。
 
-列：公然的选民欺诈，选票处理不当，可疑的程序违规，违反平等保护条款，投票机违规，明显的统计异常，拜登领先选票，可能的非法选票
-
-对号含义：普遍证据
-
-星号含义：某些证据
-
-Two key points stand out immediately from the matrix. First, significant irregularities appear to be ubiquitous across the six battleground states. Only Arizona is free of any apparent widespread ballot mishandling while only Pennsylvania lacks significant statistical anomalies. The rest of the matrix in Table 2 is a sea of checkmarks and occasional stars.
-
-从图表中可以立即看出两个关键点。第一，六个摇摆州普遍存在选举违规行为，只有亚利桑那州没有大规模的选票处理不当这一项以及宾夕法尼亚州没有明显的统计异常这一项。图表2中的其余部分都是大量的勾号和少量的星号。
-
-Second, if one compares the alleged Biden victory margin in Column 7 of the figure with the possible illegal ballots in Column 8, it should be clear that the number of possible illegal ballots dwarfs the alleged Biden victory margin in five of the six states.
-
-第二，如果将第七行中拜登领先的选票与第八行可能的非法选票进行比较，可以清楚地看出，在六个州中的五个州，可能的非法选票的数量使所谓的拜登获胜优势相形见绌。
-
-For example, the alleged Biden victory margin in Nevada is 33,596 votes yet the number of ballots in question is more than three times that. In Arizona, which has the narrowest alleged Biden victory margin at 10,457 votes, there are nearly 10 times that number of possible illegal ballots; and the ratio of the alleged Biden vote lead to possible illegal ballots is even higher for Georgia.
-
-例如，拜登在内华达州的领先票数是33596票，但有问题选票的数量是该数字的三倍多。拜登在亚利桑那州的领先优势最小，有10457张选票，但有可能的非法选票数量近乎于该数字的10倍，而在乔治尼亚州，拜登的领先选票与可能的非法选票的比例甚至比此还高。
-
-Only Michigan is the exception to the rule. This is not because it is likely to be a true exception but simply because there remains insufficient estimates of how the various types of irregularities in Michigan translate into possible illegal votes.
-
-只有密西根州是例外。但这并不是因为密歇根州是个真正的例外，而是因为还没有对密歇根州各种各样的违规行为如何转化为可能的非法选票进行足够的评估。
-
-Clearly, based on this matrix, the American people deserve a definitive answer as to whether this election was stolen from Donald J. Trump. Absent a thorough investigation prior to Inauguration Day, a cloud and a stain will hang over what will be perceived by many Americans as an illegitimate Biden administration.
-
-显然，根据图表所示，美国人民应该得到一个是否有人窃取了唐纳德·J·川普的选举结果的明确答案。如果在就职日之前没有进行彻底的调查，而由拜登非法政权上台，那么对于许多美国人来说，将会感受到被乌云和污渍所笼罩。
-
-The next six sections of this report examine in more detail each of the six dimensions of alleged election irregularities.
-
-本报告的下六节将深入地审查选举违规的六个方面。
-
-（未完待续）
-
-更多精彩内容请关注：
-
-- [美国纽约七星会农场（为子孙爱七哥）官推](https://twitter.com/wzsaqg)
-- [美国纽约七星会农场（为子孙爱七哥）GTV](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
-- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19044815/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-2.jpg)
 0
