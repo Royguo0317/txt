@@ -1,79 +1,117 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 巴尔对隐瞒亨特·拜登的调查找托辞
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/676220/)
+## 香港人今年怎么庆祝圣诞？
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/676327/)
 
-新闻来源：Zero Hedge《零对冲》； 作者：Zachary Stieber； 发布时间：；2020年12月19日
+作者：香草山写作组 我爱正义 校对/发稿：飞虹
 
-翻译/简评：wmorpho；校对：SilverSpurs7；审核：万人往；Page：拱卒
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29231938/logo-3-1-1.jpg)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/cc2e1889-77bc-4cc3-b022-ba6390ac9d5b.jpg?asset_id=271f006c-776f-4220-b81e-f43f15ee76e7&amp;img_etag=%223b0baf0bc1f8226c15112b5329bafa0c%22&amp;size=1024)](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/cc2e1889-77bc-4cc3-b022-ba6390ac9d5b.jpg?asset_id=271f006c-776f-4220-b81e-f43f15ee76e7&amp;img_etag=%223b0baf0bc1f8226c15112b5329bafa0c%22&amp;size=1024)
 
-**简评：**
 
-美国前司法部部长巴尔为自己未在选举前公开对亨特·拜登已经进行调查一事辩护，说他对于在选举前不让公众知道民主党总统候选人乔•拜登的儿子正在接受调查之举，他并不后悔，并认为禁止公开确认涉及公职候选人的调查的规则是不成文的共识。
+港人这一年半以来作出的抗争，感动世界。当政府高官暗地裡弹冠相庆的时候，他们努力让人觉得《国安法》以及疫情两招已经奏效，港人已无法抗争。然而，他们越努力营造假象，内心就越不安寧，直至心虚气短。因为，在香港，每一个人都知道，抗争远远没有结束。
 
-可是川普总统并不这样认为。川普总统说：“乔·拜登在总统侯选人辩论台上撒谎。他说‘亨特•拜登什么都没有做，什么罪行都没有。’而巴尔这时就应该站出来戳穿他。”川普同时赞扬了特别顾问穆勒，在调查川普与俄罗斯的关系期间，穆勒曾多次对各种报告中的不实报道做出强烈回应。
+圣诞节
+平安夜
+鸣不平
+街头无人论抗争，
+民心念念不曾忘。
+鼠目但见名与利，
+獐头不思道与义。
+何人因言而入罪？
+何时黎明曙光现？
+有口何必欲多言？
+眾志成城大局定。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22145946/31.png)香港观察负责人Benedict Rogers书写於2020年12月22日
+**港人欢庆圣诞活动一览，欢迎参加！**
 
-美国是一个依法治国的民主国家，法律面前人人平等是吸引世界各地寻求公平正义的人们涌向美国的驱动力，也是美国屹立于世界受人尊敬和心向往之的重要原因。如果美国的司法部门出现问题，那美国的治国之本也将随之动摇，美国的前景将会暗淡无光。作为执法人员，维护国家的利益应该是放在首位的，如果将一个有严重叛国嫌疑的人推为总统，那美国人民将跌入万劫不复的深渊，巴尔口中的人民“赋予联邦政府的权力”就是对美国人民莫大的讽刺。
+活动一
 
-**原文翻译：**
+圣诞前夕街站
+日期：2020.12.23
+时间：1700-1900
+地点：旺角商务书局对出空地
 
-**巴尔为未在选举前公开对亨特-拜登的调查辩护**
+天气渐凉，我们计画在圣诞前夕摆街站，让大家写信给同路人，同时亦準备了一点心意送给大家，我们希望令眾人知道，这条路并不孤单。
 
-总检察长威廉·巴尔（William Barr）在周五的一次公开的采访中说，**对于在选举前不让公众知道民主党总统候选人乔·拜登的儿子正在接受调查一事，他并不后悔。**
+苹果专访：贤学思政坚持周末摆街站
+召集人王逸战：愿死於斯
 
-[!\[\]()!\[\](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/ff0912a4-4e59-4748-8688-ac4ac75313c7.jpg?asset_id=1a1b9b1c-3841-4aa0-bdaf-87dbcb70cf70&amp;img_etag=%2213ffd68204600994106015b80b5297bc%22&amp;size=2560)](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/ff0912a4-4e59-4748-8688-ac4ac75313c7.jpg?asset_id=1a1b9b1c-3841-4aa0-bdaf-87dbcb70cf70&amp;img_etag=%2213ffd68204600994106015b80b5297bc%22&amp;size=1024)
+**一定要****做小小风险申报**
+**注意，在香港作明显表态的行动阶有风险，请自我思考可以接受的代价**
+![]()
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150255/32.png)
+活动二
 
-巴尔告诉《华尔街日报》，尽管司法部（DOJ）禁止公开确认涉及公职候选人的调查的规则“不是绝对的”，但他可以想象得到如果政府确认“握有针对候选人的决定性的严重犯罪证据”的后果。
+#24Dec #九龙 #和你报佳音
+《12.24 愿平安归香港 和你报佳音》
+日期：12月24日（四）
+时间：晚上
+地点：九龙区
+内容：街头荣光快闪大合唱
+P.s 提醒返手足不要违反《二人限聚令》，注意社交距离要有1.5米，以免受到599票控。
+Source : [https://t.me/xmas\_eve\_hk/3](https://t.me/xmas_eve_hk/3)
 
-巴尔说，尽管没有明确的规定，但“合理的常规”是要保护候选人和日常生活的人们免受政府的攻击。
+**一定要****做小小风险申报**
+**注意，在香港作明显表态的行动阶有风险，请自我思考可以接受的代价**
 
-*巴尔说：“**思考一下我们赋予联邦政府的权力。**”*
+活动三
 
-***“调查一个人所需要的标准很低。因此，在大选之前只要进行调查，并将其公开， 就会影响每个选举。”***
+#24Dec #沙田 #元朗 #观塘 #维园 #烛光 #悼念
+【12.24平安夜烛光悼念活动】
+日期：12月24日 (四)
+时间：20:00
+地点：沙田百步梯，元朗西铁站，观塘海滨花园，维园篮球场
+活动：為香港默哀+砌烛光海
+欢迎各参加者带备蜡烛到场
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150357/33-2.png)
+[https://t.me/SilentCandleNight/40](https://t.me/SilentCandleNight/40)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150423/34.png)
+#因应投票得出结果更新地点
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150501/35.png)
+![]()
+#24-27Dec #旺角 #连儂墙 #市集 #黄色经济圈
+【#连儂说——连儂展览 x 圣诞市集】
+日期 : 12月24-27日 (四至日)
+时间 :
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150545/36.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150649/37.png)
+12.24 14:00-20:00
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150722/38.png)
+12.25-27 12:00-20:00
+地点 : 旺角广东道 1143 号
+协和工业大厦 4 楼，梘单製皂
+备註 : 疫情关係将会有变动 , 请留意最新资讯
+Source : [bit.ly/lennonsays](https://bit.ly/lennonsays)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150801/39.png)
+圣诞课金週
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150812/39-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150858/41.png)
+![]()
+**第一波唔係食店**
 
-巴尔表示他不后悔，并第一次圆滑地表示，他知道11月3日之前，亨特·拜登正在接受联邦政府的调查，但他没有让公众知道。
+[https://www.instagram.com/p/CIgHQG6nGpz/](https://www.instagram.com/p/CIgHQG6nGpz/)
+#19-27Dec #圣诞课金週 #双拾团队
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150812/39-1.png)
+**圣诞课金週**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150812/39-1.png)
+**爆买日**
+日期 : 12月19-23日
+目的: 延续黄圈精神，呈现香港人的力量
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150801/39.png)
+**圣诞课金週**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22150801/39.png)
+**美食週**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/52a36d08-a384-416e-84da-8fba03206f0c.jpg?asset_id=377ff958-884b-4b47-912c-a80fd62fa727&amp;img_etag=%225caa9204119b67770ffd7febe735c261%22&amp;size=2560)](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/52a36d08-a384-416e-84da-8fba03206f0c.jpg?asset_id=377ff958-884b-4b47-912c-a80fd62fa727&amp;img_etag=%225caa9204119b67770ffd7febe735c261%22&amp;size=1024)
+[https://www.instagram.com/p/CIi05lmHCup/?utm\_source=ig\_web\_copy\_link](https://www.instagram.com/p/CIi05lmHCup/?utm_source=ig_web_copy_link)
+日期 : 12月24-27日
+目的: 延续黄圈精神，呈现香港人的力量
 
-在华盛顿白宫椭圆形办公室的简报中，司法部长威廉·巴尔（左）与唐纳德·川普总统交谈。（帕特里克·塞曼斯基/美联社照片）
 
-乔·拜登的团队上周发布了小拜登（Hunter Biden）的声明，承认他正在接受调查。
 
-*亨特·拜登在声明中说：“昨天，我第一次得知特拉华州的美国检察官办公室告知 我的法律顾问，他们正在调查我的税务事宜。”*
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-*“我非常认真地对待这一问题，但我相信，对这些问题进行专业和客观的审查将证 明我合法且适当地处理了我的税务事宜，其中包括经过专业税务顾问咨询后的所 有的税务优惠。”*
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-**他的父亲（乔•拜登）说他相信他的儿子没有做错任何事，并对他有信心。**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/53612d38-ec20-4879-a6e5-e902f0337c69.jpg?asset_id=88d2f810-114f-4caf-a1fe-0e9432579fec&amp;img_etag=%2249ab11c01a9ff06a6460206dfe66f7d0%22&amp;size=1024)](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/53612d38-ec20-4879-a6e5-e902f0337c69.jpg?asset_id=88d2f810-114f-4caf-a1fe-0e9432579fec&amp;img_etag=%2249ab11c01a9ff06a6460206dfe66f7d0%22&amp;size=1024)亨特·拜登（左）于2020年11月7日在特拉华州威尔明顿拥抱他的父亲，民主党总统候选人提名的乔·拜登（安德鲁·哈尼克/ 普尔 /美联社照片）
-
-巴尔拒绝对亨特·拜登进行调查似乎使唐纳德·川普总统很不高兴。
-
-***“为什么比尔·巴尔没有在大选前向公众透露关于亨特·拜登犯罪的真相，致使 乔·拜登在总统侯选人辩论台上撒谎，说亨特·拜登什么都没做错，什么都 没有做，”川普在一条推文中写道。***
-
-川普在接受福克斯新闻采访时补充说：
-
-*“乔·拜登在总统候选人辩论台上撒谎。他说‘亨特•拜登什么都没有做，什么 罪行都没有。’而比尔·巴尔这时就应该站出来戳穿他。另外一个例子是罗伯 特·穆勒（Robert Mueller），当[新闻媒体]发布伪造的文章时…鲍勃·穆勒站出来 说，该文章是伪造的，然后最终证明我没有串通俄罗斯。比尔·巴尔应该做同样的 事情。”*
-
-**穆勒曾被任命为特别顾问，负责调查川普涉嫌与俄罗斯的关系，在调查期间，穆勒曾多次对各种报告中的不实报道做出强烈回应。**
-
-*穆勒办公室发言人彼得·卡尔在一月份的一份声明中说：“ BuzzFeed对特别顾问 办公室的具体声明，以及该办公室获得的关于迈克尔·科恩在国会作证的文 件和证词的报道都是不正确的。”*
-
-Buzzfeed声称川普指示他的前律师迈克尔·科恩在有关莫斯科川普大厦项目的会谈时间向国会撒谎。**穆勒小组的最终报告显示该事件是捏造的。**
-
-[原文链接](https://www.zerohedge.com/political/barr-defends-not-making-hunter-biden-probe-public-election?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/uKdnFHkLF9uQ1/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

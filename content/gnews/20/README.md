@@ -1,39 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【皮特纳瓦罗推文1222】-更新报告《完美的欺骗》
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/676353/)
+## 中共间谍在阿富汗追踪维吾尔人并破坏和平谈判
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/676332/)
 
-12月22日皮-纳瓦罗先生推文：
+*加拿大多伦多枫叶农场 ctt*
 
+*校对、上传 文锦*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22153225/China-Afghanistan.jpg)图片来源： Future Directions
+中共间谍无孔不入，他们不仅在发达国家进行技术偷窃和渗透，就连小而贫穷的国家也不放过。
 
-> 最新发布，更新的纳瓦罗报告，《完美的欺骗》更新了密歇根州的最新重要新数据。
-> 
-> 声明：关于选举的争议仍在继续，调查非来自反川媒体。
-> 
-> 更新报告链接：
-> 
-> [https://bannonswarroom.com/wp-content/uploads/2020/12/The-Immaculate-Deception-Revised-12.22.20-Blackline-FINAL.pdf](https://bannonswarroom.com/wp-content/uploads/2020/12/The-Immaculate-Deception-Revised-12.22.20-Blackline-FINAL.pdf)
+据国家脉搏 (National Pulse) 12月20日报道，一大批中共情报人员在阿富汗被曝光，他们的任务是追踪和监视逃离中共国的维吾尔族活动人士，并破坏阿富汗政府和塔利班正在进行的、为了消除内战的和平谈判。
 
+据印度Zee News报道，阿富汗国家安全局（NDS）最近发现了一个密集的中共国间谍网络，他们藏有武器、弹药和爆炸物，包括氯胺酮粉末和一些危险物品，现在多名间谍已被抓获。
 
-笔者备注：战友此前翻译的中文版本链接参考如下（注:仅代表原译者）
+报道称，中共及其间谍一直与巴基斯坦武装分子合作，破坏阿富汗和谈，并在美国安全部队撤出后，通过塔利班和基地组织确立自己的主导地位，影响阿富汗。 据阿富汗官员说，一个间谍网的头目李阳阳（Li Yangyang音译）和沙洪（Sha Hung音译），一直在与塔利班的一个分支机构的指挥官会面。
 
+除此之外，中共间谍一直在与塔利班勾结，以跟踪和监视逃往阿富汗或西亚的维吾尔族活动人士，以确保他们放弃反对中共的运动, 并向中共政府报告。
 
+评：
 
-> [【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（一）](https://gnews.org/zh-hans/669414/)
+在国内外宣传中，中共一直把“维护世界和平”挂在口头上，其实在背地里干的截然相反，从本文就可以看出。中共派遣大量间谍到世界各地，现在美国联邦调查局现已将反中共情报行动列为头等大事，只有消灭中共，才能实现真正的世界和平。
 
+*[原文链接](https://thenationalpulse.com/breaking/chinese-spies-afghanistan/)*
 
-**【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（一）**
-
-
-> [【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（二）](https://gnews.org/zh-hans/675333/)
-
-
-**【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（二）**
-
-
-新闻素材和图片来自皮特纳瓦罗推特
-
-
-
-0
+1+

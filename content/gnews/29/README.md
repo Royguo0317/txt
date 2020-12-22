@@ -1,89 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 复星制药布局 BIONTECH和PFIZER投放疫苗
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/676143/)
+## 【香港风云】17: 血染香港
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/676094/)
 
-作者：freedust；校对/审核：海阔天空；Page：拱卒
+作者：香草山写作组 Tiffany的早餐 校对/发稿：飞虹
 
-[!\[\]()!\[\](https://spark.adobe.com/page/daQVHyUV2kMGq/images/d0c3157f-716b-4401-9cf5-7ffe24882674.jpg?asset_id=080f64da-808c-49b0-9c57-f087fbf2413f&amp;img_etag=%2205fd8edd4e02d8306b9c65b42cc4654d%22&amp;size=1024)](https://spark.adobe.com/page/daQVHyUV2kMGq/images/d0c3157f-716b-4401-9cf5-7ffe24882674.jpg?asset_id=080f64da-808c-49b0-9c57-f087fbf2413f&amp;img_etag=%2205fd8edd4e02d8306b9c65b42cc4654d%22&amp;size=1024)
-
-自中共向世界发动生化战以来，世界秩序已经完全改变。全球感染人数已经超过7730万，死亡人数超过了170万，全球遭受了经济大洗劫，而且人道危机、次生危机不断。在此过程中，中共已经成功地袭击了世界各国，并且靠个人防护用品大发横财。再接下来的疫苗战中，中共是不是早有布局？是不是又要借着疫苗再次奴役世界？本文抽丝剥茧，去探寻一下现在各国推崇的疫苗企业BionTech和Pfizer与中共国复星医药之间的资本关联和利益合作。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14092131/GNEW-GTV-MOS-LOGO-2.jpg)
 
 
-> **一、上海复星医药公司**
+
+摘要：反送中的警暴持续升级，从针对女性示威者的性暴力，到721、831袭击事件，陈彦霖案、周梓乐案、关家荣枪击学生案 … … 。反送中10个月，香港发现尸体的个案超过过去十年总和，而这并不包含更多被秘密杀害的义士。
+
+香港警暴在反送中运动中持续升级。香港抗争中最英勇的是“勇武派”，不同寻常的是，勇武派中最勇武的都是女性。共产党的魔性也是罕见的，他们的鹰犬爪牙对抗争的女性尤为残暴。反送中期间，黑警的暴力执法包含着大量的性暴力。陈彦霖母女的遭遇代表了许多女性受害者的遭遇，更多无名无姓的香港女性成为受害者。
+
+2019年6月就开始发生多起女示威者被多名男警拖行、掀起衣服、露出内衣甚至私处的恶行，更有女示威者遭受按倒、黑警公开用咸猪手搜身揩油，之后又爆出女示威者控诉在警署被全裸搜身等。黑警的性暴力愈演愈烈，已不是简单空穴来风的传闻，而成为反送中示威者面临的不可回避的新问题。
+
+8月28日，香港人在行政长官府邸礼宾府附近发起大规模示威活动，主题为《反送中#MeToo》。#MeToo是西方发起的沉默的性骚扰受害者站出指证的活动标签，而香港这次的示威，施暴人明确指向共产党控制的黑警，无论是是真香港警察、大陆多年布局渗透的警察，还是穿上香港警服的大陆假警察。
+
+大量女性示威者参与了这次示威活动。对于反性骚扰#MeToo运动，国际上常用紫色。当日晚上，在礼宾府周围，三万多名示威者打开手机电筒，覆上紫色的透光膜。从不出来面对示威者的行政长官林郑月娥，对香港黑警的性暴力清清楚楚。此刻，同为女性的她，龟缩在行政长官的府邸中看着窗外，她在想什么？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22143323/HK-Police_sexual_violence-1.png)8月28日中环反对警察性暴力示威
+和陈彦霖案([香港风云16: 香港女儿](https://gnews.org/zh-hans/665383/) )一样引起巨大舆论争议的还有周梓乐坠楼事件。2019年11月4日凌晨，反送中的抗议者在将军澳和警方冲突，香港科技大学学生周梓乐从尚德邨停车场坠楼，不治身亡，时年22岁。周梓乐坠楼前，已有警察进入停车场，坠楼后，四肢未有骨折而躯干有伤，死因令人怀疑。事隔一年多后，面对香港市民和舆论的重重压力，周梓乐同学真实的死因仍然没有揭开。
+
+一周后的11月11日，香港市民又发起抗议活动，抗议主题转到警方的暴力方面。当日早上，交通警署警长关家荣(警号UI51999)在西湾河清理路障时，向香港专业教育学院柴湾分校的学生周柏均开枪，之后周同学和抗议青年胡子健均被捕。中枪学生周伯钧重伤倒地，送医院急救切除右肾后挽回生命。
+
+关家荣使用的枪械并非防暴警察驱逐用的催泪弹、布袋弹、橡皮子弹之类的非致命武器，而是香港警察标准的转轮配枪，配以金属实弹，属于致命武器。枪击案案发后，相关视频即在网上迅速流传，引起舆论哗然。网友迅速查到开枪警员关家荣的身份。他女儿就读于德望学校。随即，德望学校师生、家长及校友联署要求立即解除关家荣在该校家教会主席的职务，案发次日，学校宣布该警员已辞去家教会主席。
+
+2020年1月23日，民主党立法会议员许智峰以私人身份，在管辖西湾河枪击案的东区法院对关家荣提起刑事控诉。6月11日，法院接纳三项刑事重罪控诉，还表示律政司有权介入本案，但“如果相信司法独立，就应交给法庭自行处理，否则就有包庇警员之嫌”。8月18日，律政司果然通知原告议员许智峰，律政司长郑若骅决定介入本案。许智峰表示将继续跟进此案，但针对他个人的威胁越来越大，直到11月底，他本人也流亡海外。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22143813/HK_-_Shooting.jpg)11.11枪击案现场![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22143840/GettyImages-1176326597-800x450-1.jpg)图片来源：Getty Images![]()![](https://i.ntdtv.com/assets/uploads/2019/09/gettyimages-1171981098-594x594.jpg)来源：MOHD RASFAN/AFP/Getty Images![](https://s.yimg.com/ny/api/res/1.2/C5sBbfpbvlMKA7_e8Zeyhg--/YXBwaWQ9aGlnaGxhbmRlcjt3PTk2MDtoPTYzMA--/https://s.yimg.com/uu/api/res/1.2/Je4.zkfmQm3CfqeAbymt0Q--~B/aD02MzA7dz05NjA7YXBwaWQ9eXRhY2h5b24-/https://media.zenfs.com/zh-tw/newtalk.tw/4a760dffba19b85cd1e8c92cfd7371e8)![](https://pgw.udn.com.tw/gw/photo.php?u=https://uc.udn.com.tw/photo/2019/11/09/realtime/7047863.png&amp;x=0&amp;y=0&amp;sw=0&amp;sh=0&amp;sl=W&amp;fw=800&amp;exp=3600)![]()![](https://i.ntdtv.com/assets/uploads/2019/12/GettyImages-1166493369-800x450-2-800x450.jpg)来源：PHILIP FONG/AFP via Getty Images![]()![](https://tw.appledaily.com/resizer/1cPKM2EM17VBOOpZrYWSX4o8Trk=/760x505/filters:quality(100)/cloudfront-ap-northeast-1.images.arcpublishing.com/appledaily/QTEDJDACEXAXM2LC2DTLWE4ABU.jpg)来源：苹果日报![](https://pgw.udn.com.tw/gw/photo.php?u=https://uc.udn.com.tw/photo/2020/05/05/99/7832216.jpg&amp;x=0&amp;y=0&amp;sw=0&amp;sh=0&amp;sl=W&amp;fw=1050)普利策奖(The Pulitzer Prizes)获奖作品![]()![](https://preview.redd.it/vywyeaz8h2841.jpg?width=960&amp;crop=smart&amp;auto=webp&amp;s=91ebc20c6da71d2e0dcfaa0d028f63311c39f0db)![]()![](https://images1.epochhk.com/pictures/131983/%E8%A6%96%E9%A0%BB%E5%B0%81%E9%9D%A2template-keynote_my005@1200x1200.jpeg)![]()![](https://i.ntdtv.com/assets/uploads/2019/11/gettyimages-1183187875-594x594.jpg)![]()![](https://image.cache.storm.mg/styles/smg-800x533-fp/s3/media/image/2019/08/14/20190814-071413_U1085_M543052_3712.jpg?itok=rqGwl8af)![]()![](https://i.ntdtv.com/assets/uploads/2019/11/gettyimages-1182101777-594x594.jpg)![]()![](https://info.51.ca/uploads/Image/2019/11/1_122P35194_0.jpg)![]()![](https://www.upmedia.mg/upload/content/20200527/MP200527200422655387.jpg)![]()![](https://static01.nyt.com/images/2019/07/21/world/21Hongkong1/merlin_158247051_4c84a529-6635-4433-8728-b9c600d37e65-master1050.jpg)来源：LAM YIK FEI FOR THE NEW YORK TIMES
+郭文贵先生则指出了香港大规模反人类罪行的更深的黑幕。过去多年，香港营建了大批设施用于大规模控制抗议人士，这些秘密牢房在这次镇压中都用上了。共产党为了不激起直接的外交冲突，从来不宣布对香港戒严。但实际上做的就是戒严，甚至烧杀抢掠的侵略活动。
+
+香港有一百多个孩子像陈彦霖一样失踪、被自杀、变成浮尸。频发的浮尸案往往集中在清晨五六点，避人耳目。都是早知内情的水警主动去打捞尸体，防止民众或消防人员发现尸体被处理的痕迹。这些尸体几乎没有溺亡的，都是被抛尸，被捆绑，甚至有干尸被宣布“溺亡”。港府大抓捕的实际人数超过公开数字的十倍，大量来自大陆和外籍、移民人士，在香港没有人照应的，都被秘密处理了。
+
+反送中后期，越来越多的香港人被从高楼抛下，掩饰身上被虐打的伤痕。往往流血很少，说明已经死亡多时。网络上充满了浮尸和坠楼尸体的照片，许多都是年轻面容身材姣好的少女，有些缺少衣物遮蔽，让人不能不怀疑其中恶劣的性犯罪罪行。
+
+根据香港保安局长李家超在11月13日公布的官方数字，6月起至9月止，香港政府共接获2537宗发现尸体个案，当中包含送医前、到院后的死亡数字，而3个月新增的自杀通报件数则为256宗。反送中10个月发现6584具尸体，是过去10年的总和。至于秘密火化、人或尸体运到大陆处理的，更不在此列。
+![]()![](https://img.ltn.com.tw/Upload/news/600/2019/10/12/phpdtKzTb.jpg)网传反送中自杀人士记录![]()![](https://i.ntdtv.com/assets/uploads/2019/11/bb1b4db639b48ac4e6dac487323e483e-600x583.jpg)网上部分失踪告示
+半年时间，香港从东方之珠沦为人间地狱。共产党嗜血成性，在香港杀红了眼，已形如禽兽。而香港的抗争者也丝毫没有放弃的迹象。2014年的雨伞运动，抗争者高呼“一个蛋也不能碎”，相互关照友爱，甚至感谢当差警员的尽职工作。五年后，反送中运动已经让香港失去了上万优秀的儿女。留下来的战士，更加无望，也更加坚强。
+
+(待续)
+
+相关链接：
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07022231/image0-2-1.png)](https://gnews.org/zh-hans/624473/)
 
 
-![]()![](https://spark.adobe.com/page/daQVHyUV2kMGq/images/66388173-033d-41ba-bfed-632b63d13752.jpg?asset_id=c49209ea-d3e5-4725-a378-e81681258359&amp;img_etag=%2257a1db15d3eb17f7ee7c3a0a6b6e0d48%22&amp;size=2560)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-上海复星医药（集团有限公司）是一家上市公司，于1998年开始A股首次公开发行，2012年开始H股发行，公司英文名称最初为Shanghai Fortune Industrial Joint-Stock Co., Ltd.（上海复星实业股份有限公司）
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-在2003年复星医药收购了国药控股49%的股份。在2008年，国药控股的IPO的前一年，复星医药拥有国药集团的直属母公司国药产业投资。
-
-据《金融时报》报道，2016年，复星制药(Fosun Pharmaceutical)完成了中国企业对印度企业的最大一笔收购。双方现已达成协议，复星制药将以不超过10.913亿美元的价格收购Gland Pharma约74%的股份。
-
-2017年12月31日，复星制药持有Sisram Medical(以色列) 52.83%的股份。
-
-据英国《金融时报》报道，2017年10月，复星制药通过其子公司复星制药(Fosun Pharmaceutical A.G.)和复星工业(Fosun Industrial[nb 3])以不到6300万欧元的价格收购了Tridem Pharma。Tridem是一家“专注于非洲的法国药品分销商”。
-
-公司研发的2019-nCoV核酸检测试剂盒(PCR)获得FDA紧急使用授权(EUA)，获得NMPA批准，并获得欧盟CE认证，作为体外诊断试剂。复星医药捐赠医用口罩、防护服、医用无创呼吸机、负压救护车等价值3000多万元的设备物资。
-
-2020年3月17日，BioNTech从复星获得了1.35亿美元的投资，以换取BioNTech的158万股以及mRNA疫苗BNT162b2在中国的未来开发和销售权。[28] 此外，BioNTech宣布与辉瑞（Pfizer）合作，扩大生产能力，以提供全球供应以应对大流行。
-
-8月初，复星和生物科技与香港上市的Jacobson Pharma签署协议，向香港和澳门供应1000万剂BNT162b2
-
-11月6日，复星希望BNT162b2能尽快在美国和欧洲上市，并尽快在中国上市。11月20日，辉瑞向美国食品和药物管理局申请了BNT162b2.[35]的紧急使用许可。
-
-（来自维基百科）
-
-
-> **二、BioNTech公司**
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/daQVHyUV2kMGq/images/30edca86-ffa0-420f-9aa7-b2039a887dde.jpg?asset_id=54e9ecf8-b52f-4e23-a07e-3a27b9379af2&amp;img_etag=%22d24d1099a734379d66b0635800a6b8b2%22&amp;size=1024)](https://spark.adobe.com/page/daQVHyUV2kMGq/images/30edca86-ffa0-420f-9aa7-b2039a887dde.jpg?asset_id=54e9ecf8-b52f-4e23-a07e-3a27b9379af2&amp;img_etag=%22d24d1099a734379d66b0635800a6b8b2%22&amp;size=1024)
-
-BioNTech是一家德国生物技术公司，总部位于美因茨，开发和生产针对疾病治疗患者特异性方法的主动免疫疗法。
-
-2020年，BioNTech与纽约辉瑞制药公司合作开发的BioNTech预防COVID-19感染的RNA疫苗候选物BNT162b2在美国进行了III期临床试验。[2] 2020年12月2日，英国政府批准了英国境内针对BNT162b2疫苗的临时人类药物法规2012（HMR）。
-
-2019年12月，作为欧盟委员会欧洲投资计划的一部分，BioNTech获得了来自欧洲投资银行的5000万美元融资。
-
-2020年6月，BioNTech通过购买普通股和4年期可转换票据从淡马锡控股（新加坡）获得了2.5亿欧元，也通过私人配售强制性可转换债券从其他投资者那里获得了2.5亿欧元。[14] 它还从欧洲投资银行获得了1亿欧元的债务融资。
-
-（来自维基百科）
-
-
-> **三、WHO的舆论宣导**
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/daQVHyUV2kMGq/images/5dc29b73-77b4-43f4-a5f3-b46509fbc0b9.jpg?asset_id=fe611207-7491-47dc-8f89-f5bcb8919533&amp;img_etag=%2219dc748eb0ddb4ceb1974fe132a90f3c%22&amp;size=1024)](https://spark.adobe.com/page/daQVHyUV2kMGq/images/5dc29b73-77b4-43f4-a5f3-b46509fbc0b9.jpg?asset_id=fe611207-7491-47dc-8f89-f5bcb8919533&amp;img_etag=%2219dc748eb0ddb4ceb1974fe132a90f3c%22&amp;size=1024)因发明PCR方法而获得诺贝尔奖的卡里·穆利斯(Kary Mullis)博士
-
-在12月4日，WHO发布了一则备忘录，警告说，PCR检测的高周期阙值会导致假阳性。因发明PCR方法而获得诺贝尔奖的卡里·穆利斯(Kary Mullis)博士明确表示，PCR并不是一种诊断工具。他说:“使用PCR，如果你做得好，你可以在任何人身上发现几乎任何东西。”
-
-甚至Anthony Fauci博士也公开承认，超过35度的周期阈值将检测到死核苷酸，而不是活病毒。
-
-那么为什么WHO在此时发布了这则信息呢？
-
-**原文: **[https://www.zerohedge.com/medical/who-finally-admits-pcr-tests-create-false-positives](https://www.zerohedge.com/medical/who-finally-admits-pcr-tests-create-false-positives)
-
-![]()![](https://spark.adobe.com/page/daQVHyUV2kMGq/images/6cfc79b3-a94a-4857-8a46-6603da0b2523.jpg?asset_id=4555b71f-8fc8-4eb6-a4ae-ba22a547c9a7&amp;img_etag=%2245aa2d6b68577734c4598faec030d02f%22&amp;size=2560)
-
-**简评：**
-
-位于中共国的复星医药在2016年至2020年间，通过收购、兼并扩张着自己的“帝国版图”，其中的Gland Pharma，Tridem Pharma都拥有成熟的供应链及涉及地域广泛的销售平台。前者的主要市场为美国、印度和其他半监管市场，且是印度第一家获得美国FDA（食品药品管理局）批准的注射用药物的公司；后者的分销网络覆盖了近90%的非洲和中东地区(35个国家和超过800名当地员工)（以上查自其公司官网）。由此可见在其整合至关重要的COVID-19疫苗之前，已经对销售网络进行了多年布局。而BioTech与复兴公司的合作，且又获得了大量的来自与中共有深度关系的淡马锡控股的巨额投资，可见这次复星药业、BioTech与辉瑞联合开发的疫苗是中共及与其勾兑的黑暗势力的重要抓手。
-
-而在这个关键时刻WHO释放出目前PCR的检测方法有可能造成假阳性的信息，一个可能是在众多学者和PCR发明者压力之下，WHO做出的被动说明。更大的可能是在病毒阶段向投放疫苗阶段过渡时，WHO在引导舆论，制造恐慌，为推出罪恶的疫苗进行对公众舆论进行引导。如果说病毒是制造公众恐惧的一种手段，那么疫苗才是某些邪恶组织重构秩序的重要抓手。鉴于多个国家，包括美国、英国等首脑和卫生部门都在紧锣密鼓的推行疫苗政策，这些国家似乎浑然不觉潜藏在背后的中共黑手，浑然不知丧心病狂的罪恶利益集团想要加强的对人民的奴役。这些事实，都让我们对各国强推疫苗背后的真实目的与实际效果表示深深的关注和担忧。
-
-【注：文章仅代表作者观点】
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/daQVHyUV2kMGq/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/daQVHyUV2kMGq/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/daQVHyUV2kMGq/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

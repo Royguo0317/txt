@@ -1,54 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 迪斯尼董事梦寐以求的职位是驻华大使
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/676339/)
+## 川普团队向联邦最高法院提请复审诉讼
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/676365/)
 
-新闻来源：Breitbart《布赖特巴特》； 作者：吴大伟（DAVID NG）； 发布时间：020年12月18日
+新闻来源：The national pulse《国家脉动》； 作者：娜塔丽·温特斯（NatalieWinters）； 发布时间：2020年12月20日
 
-翻译/简评：Marialu；校对：X-Wing飞得更高；审核：万人往；Page：拱卒
+翻译/简评：随波逐流；校对：X-Wing飞得更高；审核：万人往；Page：拱卒
+
+[!\[\]()!\[\](https://spark.adobe.com/page/hdXAdBgbAN3EO/images/be51a3f9-225a-4ca4-a55d-af846bc4e137.jpg?asset_id=01d8db51-7eda-4225-983d-470bc7150d97&amp;img_etag=%22d25d840d4281b994f4971aeb7eec48c8%22&amp;size=1024)](https://spark.adobe.com/page/hdXAdBgbAN3EO/images/be51a3f9-225a-4ca4-a55d-af846bc4e137.jpg?asset_id=01d8db51-7eda-4225-983d-470bc7150d97&amp;img_etag=%22d25d840d4281b994f4971aeb7eec48c8%22&amp;size=1024)
 
 **简评：**
 
-据《华尔街日报》报道，迪斯尼公司董事长鲍勃·艾格（Bob Iger）表示有兴趣在乔·拜登政府出任美国的下任驻华大使。
+这几天，一则突发重磅消息再次振奋世人，即川普总统竞选团队向美国最高法院提交了一份267页的请愿书，要求复审宾夕法尼亚州有关“邮寄选票欺诈”的三宗案件。遭川普阵营挑战的三项判决，包括宾州法院禁止选举官员检查邮寄选票上签名是否属实；禁止选举官员质疑邮寄选票的签名、地址和日期等违规行为；以及将监督员限制在房间内。朱利安尼在声明中表示，宾州法院的这些判决违反联邦宪法。川普团队还要求宾州议会撤销效忠拜登的选举人任命，重新选出替代者。竞选团队也快速商定，要求最高法院在12月23日之前下令作出回应，并在12月24日之前作出答复，允许美国最高法院在1月6日国会开会之前审议选举团的选票。
 
-按照传统，总统们都会以大使的职位奖励捐款大户。然而，最重要的是，艾格与中共领导人建立了密切的关系。迪斯尼在中国投资巨大，在上海和香港设有主题公园。这家制片厂还依靠中共国票房来实行盈利。
-
-去年在谴责中共国对香港民主抗议者的镇压，艾格采取禁声措施，禁止ESPN（是一间24小时专门播放体育节目的美国有线电视网）记者发表有关中港关系的任何讨论。
-
-现在所谓的“当选总统拜登”谈论组阁政府还为时太早，总统之位，鹿死谁手还未知。要是拜登和艾格之流成功，真是引狼入室，只能加速中共对美国的渗透，因为他们根本不是代表美国人民的利益，只为能从中共政府那里赚取更多的钱财，以出卖美国国家利益、破坏自由民主体制为代价。他们是标准的中共走狗！
-
-愿美国人民尽快觉醒！
+这是川普团队首次独立向美国最高法院提请诉讼，最终可能参照著名的布什诉戈尔选举案例，根据此案中提出的相同宪法论点谋求解决之道。这标志着2020年大选的终极司法大战已经开始。中共一手操纵的美国“选票欺诈”的真相即将揭晓，拜登及幕后所有参与的国家、公司和个人终将受到法律制裁。
 
 **原文翻译：**
 
-**报告：迪斯尼董事长鲍勃·艾格（Bob Iger）有兴趣成为拜登的驻华大使**
+**突发：川普阵营向最高法院提交267页要求复审诉状（解读）**
 
-**华特迪士尼公司（Walt Disney Co.）董事长鲍勃•艾格表示有兴趣在乔•拜登的领导下出任驻华大使，据说，他向当选总统团队中的人提出了担任这一梦寐以求的外交职位的建议。**
+**川普竞选团队向美国最高法院提交了申请复审令诉状，旨在推翻宾夕法尼亚州最高法院之前审理的三宗案件判决，这三宗案件 “在2020年总统选举日前后，即刻非法更改了宾夕法尼亚州的邮寄选票法”**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/sOGc49Qg6fdTt/images/471eb345-368c-4ce0-adf4-22fce6253ff1.jpg?asset_id=22d57cb2-1612-4800-9231-65b810fbc098&amp;img_etag=%221a6e22c400d2a9d4079a11968b1541d8%22&amp;size=2560)](https://spark.adobe.com/page/sOGc49Qg6fdTt/images/471eb345-368c-4ce0-adf4-22fce6253ff1.jpg?asset_id=22d57cb2-1612-4800-9231-65b810fbc098&amp;img_etag=%221a6e22c400d2a9d4079a11968b1541d8%22&amp;size=1024)迪斯尼董事长鲍勃·艾格（Bob Iger）
+[!\[\]()!\[\](https://spark.adobe.com/page/hdXAdBgbAN3EO/images/9462407e-bd63-4ab5-bc87-d851a74881a0.jpg?asset_id=521f0271-46fa-4ce6-a479-00601bc38cf4&amp;img_etag=%2248c102d06572120ec6a94e9b6b022a77%22&amp;size=1024)](https://spark.adobe.com/page/hdXAdBgbAN3EO/images/9462407e-bd63-4ab5-bc87-d851a74881a0.jpg?asset_id=521f0271-46fa-4ce6-a479-00601bc38cf4&amp;img_etag=%2248c102d06572120ec6a94e9b6b022a77%22&amp;size=1024)
 
-但考虑到迪士尼对中国共产党独裁统治的绥靖历史，这一可能的任命已经招致批评，认为这是一个软弱的选择。
+根据该团队发布的新闻，诉状指控该判决“违反了美国宪法第二条和布什诉戈尔案判例法”，并“代表川普团队首次独立地向美国最高法院提起诉讼，并根据在布什诉戈尔案中成功提出的相同宪法论点寻求解决办法。”
 
-《华尔街日报》报道，根据“知情人士”的匿名消息来源，鲍勃·艾格已经与拜登的过渡团队取得联系，以传达他对大使职位的兴趣。该报指出，拜登向“拜登胜利基金”捐赠了50万美元，并向民主党人当选国会议员提供了总计8.51万美元的资金。
+由鲁迪·朱利安尼（Rudy Giuliani）撰写的新闻发布稿指出：“此诉状和之前宾夕法尼亚州的一桩案件有关，宾州法官阿里托（Alito）和另外两名法官当时认可了[宾夕法尼亚州]最高法院判决的合法性[将选举日邮寄选票的法定截止日期从选举日的晚上8点延长至三天后的下午5点]。 ……这具有国家级重要意义，州最高法院的裁决极有可能违反联邦宪法。”
 
-据《华尔街日报》报道，美国梦工厂（Dreamworks）和短视频平台（Quibi）的前老板杰弗瑞·卡森伯格(Jeffrey Katzenberg) 也为艾格说了一句好话，告诉拜登过渡团队，他将成为一名优秀的驻华大使。
+川普竞选团队进一步对诉状做了解释，并指出“将寻求所有适宜的补救措施，包括撤消效忠于乔·拜登的选举人任命，并允许宾夕法尼亚州议会选择其替代人选”：
 
-按照传统，总统们都会以大使的职位奖励捐款大户。最重要的是，艾格与中共国国家主席习近平的长期商业关系可能会成为达成交易的潜在奖励。
+“竞选团队的起诉旨在推翻三项判决，这些判决凸显了宾夕法尼亚州立法机关针对邮寄选票欺诈的多重保护举措，其中包括（a）禁止选举官员在选举日投票期间检查邮寄选票的签名是否真实（b）取消选举团队就投票过程中伪造签名和其他违规行为对邮寄选票提出异议的权利；（c）竞选团队拥有的监督邮寄选票投递的权利，这意味着，只允许他们待在“房间内” ，而计票所在地费城会议中心有几个足球场大小；以及（d）取消了需要选民正确签名，地址和注明邮寄选票日期的法定要求。 该项诉讼谋求所有适当的补救办法，包括撤消效忠乔·拜登的选举人任命，并允许宾夕法尼亚州议会选择替代者。竞选团队也快速商定，要求最高法院在12月23日之前下令作出回应，并在12月24日之前作出答复，允许美国最高法院在1月6日国会开会之前审议选举团的选票。”
 
-但鉴于迪斯尼过去未能对抗中共统治者，鲍勃·艾格也提出了主要的缺点。
+267页诉状链接：[https://www.scribd.com/document/488769028/Trump-v-Boockvar-Petition#fullscreen&from\_embed](https://www.scribd.com/document/488769028/Trump-v-Boockvar-Petition#fullscreen&amp;from_embed)
 
-去年，艾格因拒绝谴责中共国对香港民主抗议者的镇压而受到抨击。在他的领导下，迪斯尼禁止美国有线电视网（ESPN）记者发表有关中港关系的任何讨论。这一决定是在休斯敦火箭队总经理达里尔·莫雷（Daryl Morey）在推特上支持香港民主运动而引起争议之后做出的。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/sOGc49Qg6fdTt/images/28bab8dd-9bc4-4f85-b2f3-518ffabaebd8.jpg?asset_id=b1650515-d1cf-4e07-8cf9-dd9301fae664&amp;img_etag=%22435667c7f7321a0235ebf1d911fd98f9%22&amp;size=1024)](https://spark.adobe.com/page/sOGc49Qg6fdTt/images/28bab8dd-9bc4-4f85-b2f3-518ffabaebd8.jpg?asset_id=b1650515-d1cf-4e07-8cf9-dd9301fae664&amp;img_etag=%22435667c7f7321a0235ebf1d911fd98f9%22&amp;size=1024)迪士尼在中国投资巨大，在上海和香港设有主题公园。
-
-迪士尼在中国投资巨大，在上海和香港设有主题公园。这家制片厂还依靠中共国票房来帮助其大片实现盈利。因此，艾格与中共领导人建立了密切的关系。
-
-《华尔街日报》指出，艾格第一次与习近平见面是在一次中国之行，当时迪士尼为发行1997年马丁·斯科塞斯（Martin Scorsese）的电影《达赖的一生》（Kundun）而道歉，这部电影是达赖喇嘛的传记片。这部电影因其对毛泽东主席的负面描写以及展现中共国军队屠杀西藏人的场景而激怒了中共国领导人。
-
-艾格的迪士尼董事长任期将于明年到期。这位好莱坞高管在上一次大选中曾被传出酝酿（考虑）竞选总统，但他最终选择不参加竞选。
-
-[原文链接](https://www.breitbart.com/entertainment/2020/12/18/report-disney-chairman-bob-iger-interested-in-becoming-ambassador-to-china-under-biden/)
+[原文链接](https://thenationalpulse.com/breaking/trump-supreme-court-petition/)
 
 [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
@@ -56,8 +42,8 @@
 
 [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/sOGc49Qg6fdTt/)
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/hdXAdBgbAN3EO/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/sOGc49Qg6fdTt/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/sOGc49Qg6fdTt/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+![]()![](https://spark.adobe.com/page/hdXAdBgbAN3EO/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
-1+
+0

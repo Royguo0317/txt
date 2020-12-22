@@ -1,70 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登至少获得了1300万张虚假选票
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/675847/)
+## 什么是美国13818号行政命令
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/676436/)
 
-*新闻来源：GATEWAY PUNDIT《网络观察员》； 作者：Joe Hoft； 发布时间：2020年12月20日*
+作者：法律组 比丘泥；校对：宁缺；审核：海阔天空；Page：小雨
 
-*翻译/简评：helloworld；校对：Beicy-数学老师；审核：万人往；Page：拱卒*
-[!\[\]()!\[\](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/51f104f9-4174-4ecb-ba34-47a7215449f7.jpg?asset_id=a44f7be0-ffb7-4704-ac56-dc8a39582b84&amp;img_etag=%2231ff1c2a8a21fb4e5817181d8521033b%22&amp;size=1024)](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/51f104f9-4174-4ecb-ba34-47a7215449f7.jpg?asset_id=a44f7be0-ffb7-4704-ac56-dc8a39582b84&amp;img_etag=%2231ff1c2a8a21fb4e5817181d8521033b%22&amp;size=1024)
-#### **简评：**
+[!\[\]()!\[\](https://spark.adobe.com/page/NysWP8VkO22ZJ/images/8a4e9438-51cf-49dd-968f-a90fcb72e2d8.jpg?asset_id=2aebc258-3a34-4a67-9950-44f1a311dbb9&amp;img_etag=%22d164e22de9f31d16e5f8fbbf5f07aca3%22&amp;size=1024)](https://spark.adobe.com/page/NysWP8VkO22ZJ/images/8a4e9438-51cf-49dd-968f-a90fcb72e2d8.jpg?asset_id=2aebc258-3a34-4a67-9950-44f1a311dbb9&amp;img_etag=%22d164e22de9f31d16e5f8fbbf5f07aca3%22&amp;size=1024)
 
-这篇文章从简单的数学计算开始，直接推导出选票作假的结论。按文章的分析，选票作假显而易见，就算是基于左派媒体的数据也能轻易得出结论。
+美国13818号行政命令，即《第13818号行政命令：冻结涉及严重侵害人权及腐败的人员财产》，是制裁涉及严重侵犯人权或腐败，如法外杀戮、强奸、酷刑、强迫失踪等行为的法令。
 
-毋须多言，每一个清醒的美国民众，无论民主党还是共和党，都早已发现这一事实。
+该行政令是在惩罚人权罪犯和腐败分子的《全球马格尼茨基人权问责法》、《国际紧急经济权力法》、《国家紧急状态法》、《 1952年移民和国籍法》及《美国法典》等一系列法律的基础上发布的。
 
-中共对于钟摆效应的利用，70年来屡试不爽。但随着这一次拜登硬盘门的曝光，以及选举舞弊如大火般无法遮掩，中共在美国内部的政治同盟将因其背信弃义引火上身，最终与中共彻底决裂。虽然我们无法直接看到决裂的过程，但能明显感觉到，美国人不再“天真”。
+该行政令会冻结被制裁者在美国的资产，禁止被制裁的个人入境美国，由川普总统于2017年12月20日签署，美国东部时间2017年12月21日上午12:01生效。
 
-无论是川普总统，还是其政治对手，经历这一切后，都将因自己的立场展开对中共的清算。我们拭目以待。
+川普总统在命令中指出：世界各地严重的侵犯人权和腐败行为对美国的国家安全、外交政策和经济构成了非同寻常的威胁，我在此宣布全国进入紧急状态，以应对这一威胁。
 
-#### **原文翻译：**
+一、被制裁的人和财产范围
 
-# 揭秘：“简单计算”显示，拜登声称获得的选票数量比2020年大选合格选民还要多出1300万
+（一）被制裁的人，包括个人和实体：
 
-**2020年大选将成为美国历史上最腐败的选举**
+个人包括美国自然人，本命令附件所列人员，财政部长与国务卿和司法部长协商后确定的任何外国人士：负责人或同谋者，直接或间接参与者，现任或前任政府官员，或代表该官员行事的人，提供物质援助、赞助或提供财务、物质或技术支持，或货物或服务，或支持的人。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/74d6d45b-1ae1-41c7-ab8d-9f8157a1ccbe.jpg?asset_id=5dc6f188-61e6-4e4b-b0c0-1a5437cd8786&amp;img_etag=%22298add387206052d297adae43f39f8dd%22&amp;size=1024)](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/74d6d45b-1ae1-41c7-ab8d-9f8157a1ccbe.jpg?asset_id=5dc6f188-61e6-4e4b-b0c0-1a5437cd8786&amp;img_etag=%22298add387206052d297adae43f39f8dd%22&amp;size=1024)
+“美国人”是指美国公民、永久居民，在美国境内的任何自然人和根据美国法律或在美国境内任何司法管辖区组建的实体，包括外国分支机构。
 
-**这次美国大选的舞弊方式花样百出**
+“实体”指合伙企业、协会、信托、合资企业、公司、集团、子集团或其他组织，与领导或官员任期有关的任何活动的实体，包括任何政府机构。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/2922bd62-492c-4358-93e2-127004004e64.jpg?asset_id=42a4d996-518f-4b61-a411-c556532f8993&amp;img_etag=%22c2ff61853ac0e154381bcb06bedbee33%22&amp;size=2841)](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/2922bd62-492c-4358-93e2-127004004e64.jpg?asset_id=42a4d996-518f-4b61-a411-c556532f8993&amp;img_etag=%22c2ff61853ac0e154381bcb06bedbee33%22&amp;size=1024)
+（二）财产范围，包括当下在美国境内和以后进入美国境内的财产和财产权益，以及任何被列入制裁名单的人控制的财产均被冻结，不得转让、支付、出口、撤回或以其他方式处理。
 
-（**推文链接 **https://twitter.com/KanekoaTheGreat/status/1340180468239503361）
+行政令指出，为了使这些措施在处理本命令所宣布的国家紧急情况方面有效，不必事先通知根据本命令作出的列名或决定。
 
-(**推文翻译**)[email protected]:当你获得创纪录的低于17%县的选票、失去黑人和西班牙裔支持、失去18/19领头县、失去俄亥俄州、佛罗里达州和爱荷华州选举人票，并完全丢失选前认为胜负难料(“Toss-Ups”)的27个众议院席位时，但你却超越了先前的最高投票纪录！
+二、在人权和反腐败方面
 
-TRENDING: “Big News Coming Out Of Pennsylvania”- Trump Tweets: “Very Big Illegal Ballot Drop”
+（一）在人权方面，该命令扩大了符合制裁条件的侵犯人权者的标准，降低了严重侵犯人权的责任人或同谋者的门槛。肇事者法外杀戮、酷刑、强迫失踪、任意拘留的行为都将受到制裁。
 
-趋势：“宾夕法尼亚传来重大消息” -川普推文：“非常多的非法选票”
+2020年7月31日，美国国务院和美国财政部对新疆生产建设兵团现任党委第一书记陈全国、新疆公安厅厅长王明山、中共新疆高级官员朱海仑、前安全官员霍留军、前新疆生产建设兵团政委孙金龙和新疆生产建设兵团副政委彭加瑞实施了制裁，美国财政部还对新疆公安厅和新疆建设兵团本身实施了制裁。
 
-美国情报专家威廉·宾尼(Bill Binney)昨天发布了一条推文，指出2020年大选全国范围内投票的人数超过了有资格投票的人数。
+（二）在反腐败方面，该行政令所指的腐败行为，包括挪用国有资产，为个人利益而没收私人资产，与政府合同或自然资源的开采有关的腐败或贿赂，为腐败所得的转移提供便利等行为。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/ba5709a2-7cc7-426b-81c5-2cd767015e28.jpg?asset_id=fde50c75-a244-4ea2-9654-54dd96447b40&amp;img_etag=%22903a725d8bf325bbc73c8d54bb816503%22&amp;size=3059)](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/ba5709a2-7cc7-426b-81c5-2cd767015e28.jpg?asset_id=fde50c75-a244-4ea2-9654-54dd96447b40&amp;img_etag=%22903a725d8bf325bbc73c8d54bb816503%22&amp;size=1024)
+2020年12月16日，川普总统发表继续执行13818号行政命令的声明：
 
-（**推文链接 **https://twitter.com/Bill\_Binney/status/1340106702167961602）
+“侵犯人权和腐败行为全部或大部分源于美国以外，其普遍性和严重性继续对美国的国家安全、外交政策和经济构成异常和特殊的威胁。因此2017年12月20日宣布的国家紧急状态必须在2020年12月20日之后继续有效。根据《国家紧急状态法》，我继续执行13818号行政命令宣布的关于严重侵犯人权和腐败的国家紧急状态，持续一年。”
 
-(**推文翻译**)Bill Binney, Constitutional Patriot @Bill\_Binney：(39)以2.12亿注册选民，66.2%的投票率计算，有1,4034万人投票。现在如果川普获得了7400万选票，那么拜登最多只能获得6634万张选票。这与我们得到的信息完全冲突（拜登宣称获得8100万张选票）。谎言，全都是谎言！
+#### 简评：
 
-http://worldpopulationreview.com/state-rankings/number-of-registered-voters-by-state
+[!\[\]()!\[\](https://spark.adobe.com/page/NysWP8VkO22ZJ/images/bc9384ad-900e-4ba0-aae3-1e911275fa6d.jpg?asset_id=eb818f5c-30a4-492e-9798-e5484b6df857&amp;img_etag=%2253c1c354fbb02487025932c40211b6cf%22&amp;size=1024)](https://spark.adobe.com/page/NysWP8VkO22ZJ/images/bc9384ad-900e-4ba0-aae3-1e911275fa6d.jpg?asset_id=eb818f5c-30a4-492e-9798-e5484b6df857&amp;img_etag=%2253c1c354fbb02487025932c40211b6cf%22&amp;size=1024)
 
-宾尼指出的是，根据《华盛顿邮报》的数据，2020年的选民投票率是一个多世纪以来最高的:
+中共伪政权是当今文明世界的毒瘤，是全球最大的人权犯罪集团、腐败集团和盗国集团。中共自1949年建立伪政权以来，奴役大陆14亿中国人民70余年，用暴力和谎言将勤劳而智慧的中国人民创造的财富洗劫一空。14亿中国人民不仅生活没有得到改善，反而越来越上不起学，买不起房，看不起病，老无所养。有多少中国人因贫困交加活不下去选择自杀，有多少中国人因相信中共的谎言家破人亡！根据中共近日官方数据，大陆14亿人中，有9亿人人均月收入不足人民币2000元。中共对此不仅不知悔改，反而变本加厉，建立网络防火墙，血腥镇压反抗中共独裁的香港同胞，对新疆进行惨绝人寰的种族屠杀！
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/3b61ca76-f55b-45b6-8c8d-7c3b6443ddad.jpg?asset_id=511ad853-5f01-47e0-b81b-c259f2139aa9&amp;img_etag=%22f88ef3df85443960aa8e2555b62ba387%22&amp;size=2560)](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/3b61ca76-f55b-45b6-8c8d-7c3b6443ddad.jpg?asset_id=511ad853-5f01-47e0-b81b-c259f2139aa9&amp;img_etag=%22f88ef3df85443960aa8e2555b62ba387%22&amp;size=1024)
+现如今，中共又向全球输出中共病毒，操控美国大选，是可忍孰不可忍！美国的13818号行政命令，正打中中共的要害。中共通过几十年苦心经营、机关算尽，藏匿在美国及至世界的天量财富都将被冻结查扣。中共严重侵犯人权的罪魁祸首和帮凶也将受到最严厉的制裁！天网恢恢，疏而不漏，绞死中共的绳索正在不断收紧！[13818号行政令原文链接](https://www.whitehouse.gov/presidential-actions/executive-order-blocking-property-persons-involved-serious-human-rights-abuse-corruption/)
 
-当然，这从表面上看就意味着欺诈，因为没有人对投票给乔-拜登感到兴奋。但是《华盛顿邮报》以他们的极左极端偏见，不会认为这是欺诈。
+【注：文章仅代表作者观点】
 
-宾尼附上了美国注册选民人数的链接。我们拷贝了一份截至到今天的数据，并将这些选民人数了加起来。当我们把登记的选民人数相加时，我们得到的结果是，截至今天上午，美国有2.138亿注册选民。
-[!\[\]()!\[\](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/5e38e6a8-b6ee-4c06-8763-0a9cf9cb6391.jpg?asset_id=afe1a9a4-13be-47b3-8515-992b5435e11b&amp;img_etag=%225dbfbb48f45382387cbbd4f8ea07464a%22&amp;size=4546)](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/5e38e6a8-b6ee-4c06-8763-0a9cf9cb6391.jpg?asset_id=afe1a9a4-13be-47b3-8515-992b5435e11b&amp;img_etag=%225dbfbb48f45382387cbbd4f8ea07464a%22&amp;size=1024)
-用截止到今天的数据，其与Binney的数据有实质性的相似，我们发现了一个巨大的问题。如果在美国我们有2.138亿注册选民，66.2%的选民在2020年大选中投票，那么相当于有1.415亿名选民在2020年大选中投票（Binney显示的是1.4亿，实质上是一样的）。
-
-**如果特朗普总统赢得7400万张选票，那么拜登只剩下6750万张选票。这意味着有1300万张重复或编造的选票被制造出来，并被计入拜登的选票!**
-
-**这也佐证了我们最初的发现。拜登以所有可以想象到的方式进行欺诈，但最大的窃取是数以百万计的假票，这些假票是为拜登窃取选举而制造的。数百万张！**
-
-**2020年的选举错的没边儿，数据就根本对不上**。**这不是严谨的数学—非常简单的数学，甚至不严谨的人都应该能够理解**。**显而易见，拜登阵营实施了高级别的欺诈舞弊。**
-
-[原文链接](https://www.thegatewaypundit.com/2020/12/breaking-huge-simple-math-shows-biden-claims-13-million-votes-eligible-voters-voted-2020-election/)
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/NysWP8VkO22ZJ/)
 
 [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
@@ -72,6 +60,6 @@ http://worldpopulationreview.com/state-rankings/number-of-registered-voters-by-s
 
 [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/)
-[!\[\]()!\[\](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/NysWP8VkO22ZJ/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/NysWP8VkO22ZJ/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
 0
