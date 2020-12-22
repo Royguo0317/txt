@@ -1,33 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】拜登将于周一注射冠状病毒疫苗
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/673267/)
+## 美国员工可因拒绝接种中共病毒疫苗被雇主“合法”解雇
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/674337/)
 
-作者：香草山写作组  Naughty 校对/发稿：飞虹
+加拿大多伦多枫叶农场 阿黎
+校对 文锦 上传 云起时
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21234352/EthicScan-2.jpg)图片来源：EthicScan 
+据西部商报（WesternJournal）12月19日报道，根据平等就业机会委员会(EEOC)的法律指南，美国各地的雇主有权要求员工接种中共病毒疫苗。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29231938/logo-3-1-1.jpg)
+新指南称，由于雇主有权利也有义务确保一个安全的工作场所，在这个工作场所中，”个人不得对工作场所中个人的健康或安全构成直接威胁”，因此公司可以要求员工接种疫苗。
 
+据《费城问询者报》（[The Philadelphia Inquirer](https://www.inquirer.com/health/coronavirus/employer-require-covid-vaccine-workers-rights-20201216.html)）报道，有几个因素会影响雇主是否可以要求员工接种疫苗。雇主必须证明注射疫苗是有必要的，通常适用于在高风险环境中工作的人，或该雇员对他人健康有直接的威胁。一些州对要求接种疫苗有限制，这也会影响到雇主是否可以要求雇员接种疫苗。
 
+如果员工出于宗教或残疾的原因，不想接种疫苗，必须采取几个步骤以得到雇主的批准：
 
-12月21日，据福克斯数字电视新闻报道，乔·拜登将于12月21日与吉尔一起公开接受第一轮辉瑞新冠病毒疫苗注射。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21120453/w1280-p16x9-2020-11-09T164812Z_97960992_RC2SZJ956QPO_RTRMADP_3_HEALTH-CORONAVIRUS-VACCINE-MARKETS.jpg)图片来源： REUTERS – DADO RUVIC
+–如果雇主不能确定员工有其他权利适用于平等就业机会法律，员工不可免于注射疫苗；
 
+–要求员工接种疫苗并不违反美国残疾人法案，因为人们不需要体检就可以接种疫苗。不需体检这条让有残疾的员工没有借口不打疫苗；
 
-辉瑞和摩登纳拥有唯一一款获得美国食品和药物管理局批准的冠状病毒疫苗。研究人员以创纪录的速度研发出了疫苗，这让公众对疫苗的安全性提出了疑问。
+–如果员工有残疾或因为宗教信仰，有可能免去接种疫苗。有残疾的员工可以根据美国残疾人法案或第七章要求一定的灵活措施，比方说让员工选择在家办公。
 
-为了确保公众信心，政府公众人物纷纷卷起袖子在镜头前注射。
+如果没有可行的措施，雇主可以拒绝未接种疫苗的人进入工作场所。员工并不意味着自动被解职。根据联邦，州和地方法律，该员工可能有资格获得无薪假期或其他权利。当然，这期间员工没有收入，生活会很困难。如果员工不能远程工作，而且没有充足的理由不接种疫苗，那么雇主有权终止他们的工作。
 
-拜登说，我不想走在前面，但我想向美国人民证明这是安全的。我会公开这样做，这样人们就可以见证我完成疫苗注射。
+评：
 
-副总统迈克·彭斯已于上周公开接受了第一针疫苗注射，许多国会议员也纷纷效仿。
+大重置计划已经开始实施了吗？当前的中共病毒疫苗大多数都含有一种攻击人类自身免疫系统的蛋白[【1】](https://gnews.org/zh-hans/664494/)，是危险的、不可靠的。美国有关部门已经颁布了法案，赋予企业主要求员工注射疫苗的权利，没有充分理由不打疫苗的，企业有权解雇员工和拒绝雇佣新员工。
 
+如果不能在家办公，你只有两种选择：一是当小白鼠做实验打疫苗，之后患上免疫系统疾病；二是拒绝打疫苗，失业、饿死。这是政府对生产疫苗的大药厂的一种妥协吗？如果是的话，那么制药巨头的力量实在是大得恐怖。希望前期注射疫苗的人尽快给出反馈，早发现疫苗的负作用，尽快停止不可靠疫苗的使用。不要让它成为中共病毒之后又一个灾难。
 
+[原文链接](https://www.westernjournal.com/employers-can-now-legally-fire-refusing-covid-vaccine/?utm_source=push&amp;utm_medium=westernjournalism&amp;utm_content=2020-12-19&amp;utm_campaign=pushtraffic)
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+相关链接：
+【1】[里昂斯·韦勒博士：中共病毒疫苗中含致自身免疫性疾病成分-Gnews](https://gnews.org/zh-hans/664494/)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-0
+1+

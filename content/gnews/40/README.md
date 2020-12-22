@@ -1,33 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】英国发现高传染性新冠变异病毒，英国首相鲍里斯·约翰逊将于12月21日举行紧急会议
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/672852/)
+## 【川普推文1221】-威州最高法官Brian Hagedorn变节
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/673933/)
 
-作者：香草山写作组 Naughty 校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14092131/GNEW-GTV-MOS-LOGO-2.jpg)
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21194834/trump-and-brian-judge.jpg)
+川普总统12月21日推文：
 
 
-12月21日，据CNN报道，随着世界各国政府加紧遏制一种可能快速传播的新型冠状病毒变异体，英国首相鲍里斯·约翰逊预计于周一主持部长级紧急会议。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21083615/Screen_Shot_2020-12-21_at_8.24.06_AM.png)图片来源：CNN
-由于这种新型冠状病毒变异体首先在英国被发现，各国陆续开始限制来自英国的航班，英国飞往欧洲大部分地区和世界其他地区的航班被切断。
-
-在周六紧急召开的新闻发布会上，约翰逊表示，新变异体的传染性比之前的新冠病毒高出70%，这导致伦敦和英格兰东南部病例大幅增加。约翰逊说，将会对这些地区加紧封锁。
-
-这些限制措施将会给本已在新冠病毒阴影下的圣诞节带来新的不利影响。随着北半球冬季的到来，从亚洲到欧洲的各国政府都再次加强了社交距离等管控，并重新采取了封锁措施，以应对Covid-19病例的激增。
-
-据报道，在英国以外，丹麦、意大利、荷兰和澳大利亚均已经发现了新型冠状病毒变异体。
+> “两年前，伟大的威斯康星州人民让我支持一个叫布莱恩-哈格多恩（Brian Hagedorn）的人竞选州最高法院大法官，当时他在民调中面对一个强硬的民主党候选人毫无胜算的时候，在我的支持下，Hagedorn轻松胜出！…….
+> 
+> “WOW，他刚刚在大法院关于选民舞弊的裁决中投票反对我（有那么多无比欺诈行为），尽管三位备受尊敬的大法官提出了许多页的反对意见。一件事与另一件事没有任何关系，但我们最终在一个真正不正确的裁决中以4-3输掉了比赛! 很好……”
+> 
+> “…威斯康星州的共和党人应该把这3个强有力的决定交给他们的州议员，并推翻这个荒谬的州选举。我们压倒性赢了！”
 
 
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+> Two years ago, the great people of Wisconsin asked me to endorse a man named Brian Hagedorn for State Supreme Court Justice, when he was getting destroyed in the Polls against a tough Democrat Candidate who had no chance of losing. After my endorsement, Hagedorn easily won!…
+> — Donald J. Trump (@realDonaldTrump) [December 21, 2020](https://twitter.com/realDonaldTrump/status/1341138407460925440?ref_src=twsrc%5Etfw)
 
 
 
-0
+
+
+> …Republicans in Wisconsin should take these 3 strong decisions to their State Legislators and overturn this ridiculous State Election. We won in a LANDSLIDE!
+> — Donald J. Trump (@realDonaldTrump) [December 21, 2020](https://twitter.com/realDonaldTrump/status/1341138409092509696?ref_src=twsrc%5Etfw)
+
+
+
+新闻素材和图片来自川普总统推特
+
+
+
+3+

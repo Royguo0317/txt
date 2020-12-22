@@ -1,29 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 彭佩奥宣布对中共侵犯人权官员实施制裁
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/673395/)
+## 墙国电力之怪诞现状
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/674502/)
 
-- 编辑：Victor Torres
+撰稿：大漠
 
+审稿/编辑：光耀华夏
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+电力系统是国计民生的基本需求，老百姓的衣食住行都离不开它。可是近期随着美国大选的逐步推进，中美对抗的日益升级，中共国对电力供应进行管制，进入国家“战时状态”。
 
-**西班牙2020年12月21日电/西喜社——**
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22010235/5-11.jpg)
 
-周一，迈克尔·R·庞培国务卿宣布了对中国共产党和中华人民共和国官员的签证实施更多限制的措施，据信这些官员负责或参与压制少数民族成员，宗教从业人员和人权维护者。
-中国的独裁统治者对中国人民的言论，宗教或信仰自由，结社自由及和和平集会权实行严厉的限制。 美国明确指出，在我国不欢迎此类侵犯人权的肇事者。
-今天，我宣布根据《移民和国籍法》第212（a）（3）（C）条对中国官员的签证施加额外限制，这些官员被认为负责或参与旨在压制宗教信仰者，少数民族成员，持不同政见者，人权捍卫者，记者，劳工组织者，民间社会组织者和和平示威者的政策与行动。 这些人的家庭成员也可能受到这些附加限制。
-这一举动表明美国政府决心要求中共对中国人民的日益镇压负责。 今年，美国对参与新疆惨案，限制进入西藏地区以及破坏香港应有的自治权的中共官员实施签证限制和经济制裁。 今天的行动适用于所有从事这种镇压活动的中共官员，无论他们身在何处，都施加了额外的限制。
-美国与许多因和平努力行使其权利而受到迫害的人站在一起，例如徐之勇的律师，王毅的家庭教会牧师，黄琦的民间社会活动家，伊拉姆·托赫蒂的维吾尔族学者，民主倡导者 赖志美（Jimmy Lai）和藏族语言学家和商人，例如扎西旺楚（Tashi Wangchuk）。 我们呼吁立即释放他们，并敦促中共当局尊重中国人民根据《世界人权宣言》应享有的人权和基本自由。
+网络截图
+中共的电力系统基本上是国家垄断。众所周知，西北电网，华北电网，东北电网，南方电网等几大电网公司几乎被中共绝对垄断。除了私企建立的一些小电网如山东魏桥，信发，南山等等之外，大一些的电网公司基本上都归国家电网控制。
 
+中共号称电力充足，老百姓却无电可用。中共曾引以为傲的三峡大坝工程风光一时，目前成了悬在中国人民头上的达摩利斯之剑。在关键时刻中共可能为了维持其政权炸毁大坝，试想一旦发生，多少人民将丢掉性命，流离失所？西北电力过剩，东南缺电，修建那么大一个形象工程骗自己玩罢了！吹的神乎其神的“西电东送“根本不值一提。此外，大大小小遍布全国的核电站面临中美一旦开战，造成核泄漏的风险。受苦受难的又将是千万老百姓。
 
+中共电力系统的核心部件全部是进口的，控制系统是最大的问题。平台用的是微软的，核心部件都是美国艾默生，瑞士ABB的。这些年中共吹牛吹的，把自己都给骗了！但是近期面对断电限电的窘境，连引以为傲的高铁都不灵了，高铁停运事件层出不穷。
 
-> Today I announced additional restrictions on visas for officials of the Chinese Communist Party and People's Republic of China believed to be responsible for, or complicit in, the repression of members of ethnic minority groups, religious practitioners, & human rights defenders.
-> — Secretary Pompeo (@SecPompeo) [December 21, 2020](https://twitter.com/SecPompeo/status/1341074311654871040?ref_src=twsrc%5Etfw)
+问题的症结就是中共这个官僚体制。之前国家电网基本控制在“山东帮”手里，如电力大佬曹培玺，原国家电网董事长刘振亚，原南方电网董事长李庆奎等。鼎盛时期，电力央企中近半数“一把手”出自“山东帮”。可近期“山东帮”开始式微，不断被清算整顿。这些不过是文贵先生提出的“郭七条”中“以贪反贪，以黑反贪”活生生的例子而已。利益集团更迭，老百姓的日子依旧苦不堪言。
 
+文贵先生12月21日的盖特视频中也提到中共电力系统被黑的情况，”共匪国家电网，统计中心，国家卫生安全局也被黑了，但共匪不能说。共匪自认很强大，不会被黑客。被黑了不能说，都是因为一个假字”。中共只能打掉自己门牙往肚子里咽了。墙国能人多的是，但正直一点的都在基层，吹牛拍马，胡吃海喝却都成为人上人。中共统治下的社会就是这么让人无语！这也造成了中共电力系统被反击时束手无策的惨状。
 
+说不清这是喜剧，还是悲剧！我只能看着这帮中共头头脑脑高高兴兴地挖坑，快快乐乐地把自己埋了！别人笑我太疯癫，我笑他人看不穿。中共就是这么荒唐可笑和疯狂…
 
-新闻来源：[https://www.state.gov/additional-restrictions-on-the-issuance-of-visas-for-peoples-republic-of-china-officials-engaged-in-human-rights-abuses/](https://www.state.gov/additional-restrictions-on-the-issuance-of-visas-for-peoples-republic-of-china-officials-engaged-in-human-rights-abuses/)
+澳喜文章: [https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+
+欢迎加入澳喜农场：
+[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20035659/IMG_1836.jpg)
+
 
 0
