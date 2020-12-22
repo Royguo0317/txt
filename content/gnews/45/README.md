@@ -1,36 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【弗林将军推文1222】-黑暗到光明，与川普总统会面
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/675473/)
+## 【香港要闻】美国限制逾百中俄企业部门购买技术产品　包括香港飞行服务队
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/675612/)
 
-12月22日弗林将军推文：
+搜集：Po
 
+编撰：Alexandra
 
-> 我参加了这次被广为报道的会议。
-> 
-> 川普总统“大大地”赢了，全世界都知道。现在需要强大的心灵。我们有一个过程，美国已经觉醒，真理与上帝都站在我们这边。”愿他的光辉照耀你”。
+审核：MY
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22092827/image001-14.png)
+美国连接制裁中国官员之后，美国商务部12月21日公布，工业和安全局（BIS）将修改出口管理条例（EAR），将103 间中、俄公司及政府部门等单位，列入「军事最终用户」(Military End User) 名单，其中包括香港政府飞行服务队（GFS），日后将会被限制购买各种美国商品和技术。
 
+据【立场新闻】报道指，名单上的 103 公司及政府部门的当中，分别有 58 个单位属中国，及 45 个单位属俄罗斯。美国商务部指出，名单上单位分别与中俄本国军队有联系，列入「军事最终用户」列表将限制美国企业与这批公司的贸易往来。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22092758/image003-10.png)【图片】政府飞行服务队 ，早前被质疑协助监察 12 港人快艇。
+名单包括香港政府飞行服务队（Government Flying Service）、中华人民共和国自然资源部辖下的第二海洋研究所（Second Institute of Oceanography）、中国航空发动机集团（Aero-Engine Company of China）下属8 个机构、中国航空工业集团（Aviation Industry Corporation of China）下属7 个机构、上海飞机设计研究院（Shanghai Aircraft Design and Research Institute）等，俄罗斯的情报机关之一俄罗斯对外情报局（SVR）也在名单之中。
 
+政府飞行服务 ，早前被质疑协助监察 12 港人快艇。政府飞行服务队前身为皇家香港辅助空军，飞机用于搜索和救援，消防，空中救护服务以及执法行动。 12 港人被送中案件中，飞行服务队被质疑协助监察 12 人的快艇，最终快艇被截获。
 
+美国商务部长罗斯（Wilbur Ross）表示，新增的「军事最终用户」名单可建立新流程，协助出口商筛选客户。国防部认识到必须利用美国和全球企业的伙伴关系，防止中俄转移美国技术，并打击以此尝试破坏稳定的军事计划，例如识别与中国共产党有关的军事公司。美国企业未来若想向清单中的企业出售最终可能用于军事用途的产品时，必须先取得许可证。
 
-> [#FightForAmerica](https://twitter.com/hashtag/FightForAmerica?src=hash&amp;ref_src=twsrc%5Etfw) 
-> 
-> I attended this widely reported meeting. [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) won “BIGLY”, the entire world knows it. Now strong hearts are required. We have a process, America is awakened and both the TRUTH & GOD are on our side. “May His light shine upon thee”[@lofly727](https://twitter.com/lofly727?ref_src=twsrc%5Etfw) [https://t.co/8MAeaT276b](https://t.co/8MAeaT276b)
-> — General Flynn (@GenFlynn) [December 22, 2020](https://twitter.com/GenFlynn/status/1341364461102379008?ref_src=twsrc%5Etfw)
+战友观点：
 
+该次被列入黑名单的58间中国公司或组织，包括香港政府飞行服务队(Government Flying Service)，及中国航空工业集团旗下7间子公司，其中一间子公司其中一间是在本港上市的中国航空工业国际(0232)，其辖下的中国航空工业国际控股（香港）有限公司有在本港上市。
 
+本身是飞机师的谭文豪表示，是次黑名单涵盖零件出售，未来政府飞机服务队更换零件或更新软件可能受影响。
 
-推文转发了UncoverDC 发表的录音文章，题为“黑暗到光亮：与川普总统的会面”。点击链接收听全部内容。
+美国商务部长罗斯表示，名单有助美国出口商筛选客户。长和回应记者查询时表示已转售名单内被指关联公司股份。有报道指，属长和与内地企业合资的「和记奥普泰通信技术有限公司」亦被列入清单。长和表示，有关公司的股份在2015年已全部转售，现时已再无持有任何股权，有关公司亦已改名为「重庆奥普泰通信技术有限公司」。
 
+香港【商业电台】指， 华府近年加强关注中国推行的军民融合发展，去年扩大了「军事终端用户」的定义，将任何支持或协助维护或生产军事物品的个人或实体，都列入军方定义。
 
+以上观点仅代表笔者本人
 
-> [Dark To Light: A Meeting With The President](https://uncoverdc.com/2020/12/21/dark-to-light-a-meeting-with-the-president/)
+资料来源：[立场新闻](https://www.thestandnews.com/international/%E7%BE%8E%E5%9C%8B%E9%99%90%E5%88%B6%E9%80%BE%E7%99%BE%E4%B8%AD%E4%BF%84%E4%BC%81%E6%A5%AD%E9%83%A8%E9%96%80%E8%B3%BC%E8%B2%B7%E6%8A%80%E8%A1%93%E7%94%A2%E5%93%81-%E5%8C%85%E6%8B%AC%E9%A6%99%E6%B8%AF%E9%A3%9B%E8%A1%8C%E6%9C%8D%E5%8B%99%E9%9A%8A/)、[商业电台881903.com](https://www.881903.com/news/china/2371670/%E8%8F%AF%E5%BA%9C%E9%99%90%E5%88%B6%E9%81%8E%E7%99%BE%E4%B8%AD%E4%BF%84%E5%85%AC%E5%8F%B8%E8%B2%B7%E7%BE%8E%E5%9C%8B%E6%8A%80%E8%A1%93%E5%92%8C%E7%94%A2%E5%93%81-%E7%96%91%E5%8C%85%E6%8B%AC%E9%A3%9B%E8%A1%8C%E6%9C%8D%E5%8B%99%E9%9A%8A)
 
-
-
-新闻素材来自福林将军推特，图片来自UncoverDC.
-
-
-
-1+
+0

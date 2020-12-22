@@ -1,37 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】美国限制逾百中俄企业部门购买技术产品　包括香港飞行服务队
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/675612/)
+## 《路德社》精选新闻快讯：西德尼.鲍威尔律师强力回击Smartmatic诉讼威胁
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/672797/)
 
-搜集：Po
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-编撰：Alexandra
+鲍威尔律师推文更新：
 
-审核：MY
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22092827/image001-14.png)
-美国连接制裁中国官员之后，美国商务部12月21日公布，工业和安全局（BIS）将修改出口管理条例（EAR），将103 间中、俄公司及政府部门等单位，列入「军事最终用户」(Military End User) 名单，其中包括香港政府飞行服务队（GFS），日后将会被限制购买各种美国商品和技术。
+听说他们也给我写信了!还没看到，但我什么也不会撤回
 
-据【立场新闻】报道指，名单上的 103 公司及政府部门的当中，分别有 58 个单位属中国，及 45 个单位属俄罗斯。美国商务部指出，名单上单位分别与中俄本国军队有联系，列入「军事最终用户」列表将限制美国企业与这批公司的贸易往来。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22092758/image003-10.png)【图片】政府飞行服务队 ，早前被质疑协助监察 12 港人快艇。
-名单包括香港政府飞行服务队（Government Flying Service）、中华人民共和国自然资源部辖下的第二海洋研究所（Second Institute of Oceanography）、中国航空发动机集团（Aero-Engine Company of China）下属8 个机构、中国航空工业集团（Aviation Industry Corporation of China）下属7 个机构、上海飞机设计研究院（Shanghai Aircraft Design and Research Institute）等，俄罗斯的情报机关之一俄罗斯对外情报局（SVR）也在名单之中。
+我们有证据!
 
-政府飞行服务 ，早前被质疑协助监察 12 港人快艇。政府飞行服务队前身为皇家香港辅助空军，飞机用于搜索和救援，消防，空中救护服务以及执法行动。 12 港人被送中案件中，飞行服务队被质疑协助监察 12 人的快艇，最终快艇被截获。
+他们是诈骗大师!
 
-美国商务部长罗斯（Wilbur Ross）表示，新增的「军事最终用户」名单可建立新流程，协助出口商筛选客户。国防部认识到必须利用美国和全球企业的伙伴关系，防止中俄转移美国技术，并打击以此尝试破坏稳定的军事计划，例如识别与中国共产党有关的军事公司。美国企业未来若想向清单中的企业出售最终可能用于军事用途的产品时，必须先取得许可证。
+信中指控鲍威尔参与了针对Smartmatic的协同虚假宣传活动。鲍威尔出现在许多新闻网络上，包括但不限于福克斯新闻、福克斯商业和Newsmax，并告诉数百万观众，Smartmatic是在Hugo Chávez的指导下创建的。它的软件被设计成操纵选举，而Smartmatic与其他人合谋，骗取美国人民的信任，并通过改变、夸大、删除等方式来修改2020年美国大选投票。通过鲍威尔在新闻网络上的露面和发表的推特，鲍威尔散布了一家完全与投票无关的公司的谎言。
 
-战友观点：
+[信件原文](https://www.dropbox.com/s/07rcb6pj6omo9vx/Smartmatic%20Retraction%20Letter%20to%20Powell%2012.15.2020.pdf?dl=0)
 
-该次被列入黑名单的58间中国公司或组织，包括香港政府飞行服务队(Government Flying Service)，及中国航空工业集团旗下7间子公司，其中一间子公司其中一间是在本港上市的中国航空工业国际(0232)，其辖下的中国航空工业国际控股（香港）有限公司有在本港上市。
+林伍德律师：
 
-本身是飞机师的谭文豪表示，是次黑名单涵盖零件出售，未来政府飞机服务队更换零件或更新软件可能受影响。
+西德尼知道我在诽谤法方面的背景和经验，她要求我代表她并回应SmartMatic的诉讼威胁。由于西德尼所说的关于选举舞弊的所有内容都是有据可查的事实，所以我对SmartMatic的回应很简单，也很有针对性：
 
-美国商务部长罗斯表示，名单有助美国出口商筛选客户。长和回应记者查询时表示已转售名单内被指关联公司股份。有报道指，属长和与内地企业合资的「和记奥普泰通信技术有限公司」亦被列入清单。长和表示，有关公司的股份在2015年已全部转售，现时已再无持有任何股权，有关公司亦已改名为「重庆奥普泰通信技术有限公司」。
+我代表鲍威尔。我已经很仔细得看了你们的信件。我一点都不在意。鲍威尔女士什么也不会撤回。准备好你的法律文件吧。
 
-香港【商业电台】指， 华府近年加强关注中国推行的军民融合发展，去年扩大了「军事终端用户」的定义，将任何支持或协助维护或生产军事物品的个人或实体，都列入军方定义。
 
-以上观点仅代表笔者本人
 
-资料来源：[立场新闻](https://www.thestandnews.com/international/%E7%BE%8E%E5%9C%8B%E9%99%90%E5%88%B6%E9%80%BE%E7%99%BE%E4%B8%AD%E4%BF%84%E4%BC%81%E6%A5%AD%E9%83%A8%E9%96%80%E8%B3%BC%E8%B2%B7%E6%8A%80%E8%A1%93%E7%94%A2%E5%93%81-%E5%8C%85%E6%8B%AC%E9%A6%99%E6%B8%AF%E9%A3%9B%E8%A1%8C%E6%9C%8D%E5%8B%99%E9%9A%8A/)、[商业电台881903.com](https://www.881903.com/news/china/2371670/%E8%8F%AF%E5%BA%9C%E9%99%90%E5%88%B6%E9%81%8E%E7%99%BE%E4%B8%AD%E4%BF%84%E5%85%AC%E5%8F%B8%E8%B2%B7%E7%BE%8E%E5%9C%8B%E6%8A%80%E8%A1%93%E5%92%8C%E7%94%A2%E5%93%81-%E7%96%91%E5%8C%85%E6%8B%AC%E9%A3%9B%E8%A1%8C%E6%9C%8D%E5%8B%99%E9%9A%8A)
+> Knowing my background & experience in defamation law, Sidney [@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw) asked me to represent her & respond to SmartMatic litigation threat.
+> 
+> Since everything Sidney is saying about election fraud is documented TRUTH, my response to SmartMatic was simple & to the point. [pic.twitter.com/bWvhBXmtsi](https://t.co/bWvhBXmtsi)
+> — Lin Wood (@LLinWood) [December 20, 2020](https://twitter.com/LLinWood/status/1340729543267667970?ref_src=twsrc%5Etfw)
 
-0
+
+
+鲍威尔女士是美国著名军事法庭律师，目标就是叛国者岂会怕Smartmatic的滥诉恐吓，Smartmatic公司最后恐怕是自食苦果。
+
+本文作者：CharlieNZ查理
+
+审核校对：玫瑰天空
+
+上传排版：CharlieNZ查理
+
+1+

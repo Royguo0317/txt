@@ -1,23 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共缺粮预警——反食品浪费法即将到来
-` XMLYG777` [轉載自GNews](https://gnews.org/zh-hans/676095/)
+## 【林伍德律师推文1222】-乔州副州长Geoff Duncan 所做的交易
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/676173/)
 
-内新闻/素材：文婷 校对：三娃
+2020年12月22日林伍德律师转发Fox5Atlanta 的一篇文章，报道了乔治亚州副州长杰夫-邓肯(Geoff Duncan)试图向一家州医疗保健供应商Sharecare出售医疗保健应用程序，该合同价值1400万美元。这宗交易是在双方私人飞行、体育赛事的门票、在蒙大拿州为期一周的会议下进行，而乔治亚州财经委员会却从来闭口不谈此事。
 
-中共全国人大常委会法工委发言人、立法规划室主任岳仲明12月21日表示，即将举行的十三届全国人大常委会第二十四次会议将审议反食品浪费法草案，草案共32条，主要针对实践中群众反映强烈的突出问题，以餐饮环节为切入点，聚焦食品消费、销售环节反浪费、促节约、严管控，同时注重处理好与正在起草的粮食安全保障法等有关法律的关系，对减少粮食、食品生产加工、储存运输等环节浪费作出原则性规定。
+笔者发现一家在美国证交所上市的互联网人工智能公司Remark 控股（原名Remark 传媒）的总裁Kai-Shing Tao在Sharecare 公司拥有董事会席位。因此乔治亚州副州长与中共之间千丝万缕的联系浮出水面。
 
-中共的粮食危机由来已久，每年需要粮食六、七亿吨，进口至少一亿吨。在经济可以的情况下从国外进口粮食，问题看不出来。自从中美贸易战以来，美国制裁中共创汇企业逐步增加导致外汇逐渐减少，加之各种自然灾害频发，如南方水灾、黄河流域水灾导致颗粒无收，蝗虫、干旱、台风的影响又使粮食损失惨重。这样一来，今年的粮食危机表现的尤为突出。
+林伍德律师推文称：
 
-习近平7月份到中国粮食主产区之一的吉林松辽平原，期间谈到十分关心粮食生产和安全，尽管中国粮食生产连年丰收，对粮食安全还是始终要有危机意识。
-8月14日习近平罕有地表示，中国的餐饮浪费现象已到了“触目惊心”的程度，有必要通过立法等措施制止有关行为。提倡全民“光盘行动”， 其中“十个人点九个人的菜”点餐模式还在不少省市得到响应。
-12月16日至18日，习近平在中共中央经济工作会议上发表重要讲话，要“解决好种子和耕地卡脖子问题“。
 
-俗话说“春江水暖鸭先知”。习近平最近频谈粮食问题，足可见中共国粮食危机的严重程度。
+> 爱钱是万恶之源。乔州副州长 @GeoffDuncanGA @GeoffDuncanGA，州长@BrianKempGA，爱钱和办公室的特权。
+> 
+> 乔州当选官员不关心我们人民。
 
-老百姓日常生活中所关心的无非是自己的“钱袋子”和“菜篮子”，而这些中共无视，只通过洗脑，压榨来统治百姓。但是中共通过印刷钞票不断的稀释社会财富，使得老百姓怨声载道。加之三年的爆料革命使许多人都清醒认识到中共的邪恶，中共统治系统人心涣散。一旦出现粮食严重短缺，老百姓吃不上饭的时候，这将是压垮骆驼的最后一根稻草，中共体制将马上崩塌。
 
-本文仅代表个人观点。(已编辑)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22140859/image0-176.jpg)
+
+
+> The love of money is the root of all evil. GA Lt. Gov. [@GeoffDuncanGA](https://twitter.com/GeoffDuncanGA?ref_src=twsrc%5Etfw), like GA Gov. [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw), loves money & perks of office.
+> 
+> GA elected officials do not care about We The People.[https://t.co/DxFLDOnghI](https://t.co/DxFLDOnghI)
+> — Lin Wood (@LLinWood) [December 22, 2020](https://twitter.com/LLinWood/status/1341398165459746822?ref_src=twsrc%5Etfw)
+
+
+
+新闻素材和图片来自林伍德律师推特和
+
+[https://www.fox5atlanta.com/news/lt-governor-geoff-duncan-attempted-to-sell-a-health-care-app-concept-to-a-state-health-care-vendor](https://www.fox5atlanta.com/news/lt-governor-geoff-duncan-attempted-to-sell-a-health-care-app-concept-to-a-state-health-care-vendor)
+
+新闻参考
+
+[https://www.prnewswire.com/news-releases/remark-holdings-corrects-recent-misinformation-campaign-by-short-sellers-301115648.html](https://www.prnewswire.com/news-releases/remark-holdings-corrects-recent-misinformation-campaign-by-short-sellers-301115648.html)
+
+
+
 0

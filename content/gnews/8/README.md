@@ -1,39 +1,89 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】麦康奈尔：佩洛西、舒默几个月前就可以通过冠状病毒援助法案，但他们却只顾着破坏特朗普的竞选
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/676031/)
+## 复星制药布局 BIONTECH和PFIZER投放疫苗
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/676143/)
 
-作者：香草山写作组  Naughty 校对/发稿：飞虹
+作者：freedust；校对/审核：海阔天空；Page：拱卒
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29231938/logo-3-1-1.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/daQVHyUV2kMGq/images/d0c3157f-716b-4401-9cf5-7ffe24882674.jpg?asset_id=080f64da-808c-49b0-9c57-f087fbf2413f&amp;img_etag=%2205fd8edd4e02d8306b9c65b42cc4654d%22&amp;size=1024)](https://spark.adobe.com/page/daQVHyUV2kMGq/images/d0c3157f-716b-4401-9cf5-7ffe24882674.jpg?asset_id=080f64da-808c-49b0-9c57-f087fbf2413f&amp;img_etag=%2205fd8edd4e02d8306b9c65b42cc4654d%22&amp;size=1024)
 
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22133506/27.png)
-参议院多数党领袖米奇·麦康奈尔对陷入僵局的冠状病毒刺激法案即将于星期一通过国会表示赞赏，但他补充说，如果他们没有先去考虑如何破坏特朗普总统的连任的话，民主党人本可以在数月前就该协议与共和党达成一致。
-
-麦康奈尔对《每日简报》说：“不是太少，是太迟了。” “这个法案直接针对美国目前的需求而制定。如果在新一届政府上台后，他们会提出更多相关法案，我们会根据当时的国情再做研究。 ”
-
-国会领导人周日同意了一项9000亿美元的冠状病毒一揽子计划，该计划包括直接给予大多数美国人资金援助，针对小型企业的有针对性的救济，疫苗接种的资金，以及扩大的失业救济金。加上九月之前向政府提供资金的1.4万亿美元总预算法案，议员们将对大约2.3万亿美元的新支出进行投票。预计该法案会获得通过，特朗普总统也已表示待投票通过后会立即签署该法案。
-
-麦康奈尔周一还回击了众议院议长南希·佩洛西，加利福尼亚州和其他民主党人关于共和党人应对第二轮冠状病毒援助法案陷入僵局负责的说法。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22134628/28.png)
-麦康奈尔说：“事实并非无关紧要。我在7月份说过，美国需要的一揽子计划大约为1万亿美元，重点放在学校的孩子，小型企业，医疗保健提供者和直接现金付款上……。我们在7月和8月开始倡导这一计划。毫无用处，所以我基本上在9月和10月将该法案付诸参议院，没有一个民主党人支持它，他们的观点是，给我们我们想要的一切，或者我们什么都不给。最后，他们终于给了我们我们可以同意的七月份的支持。我认为他们并不想在总统大选前做任何事情，他们认为那将不利于总统大选。”
-
-参议院民主党人一再阻挠较小的共和党救济法案，佩洛西（Pelosi）说，在整个2020年，她在任何立法中都不会低于2万亿美元，但在媒体传出拜登胜选的消息后，她立刻改变了自己的论调转而为这项大约9080亿美元的方案背书。
-
-麦康奈尔向福克斯新闻主持人达娜·佩里诺（Dana Perino）强调，“让美国最快恢复正常状态的方法是尽可能快地给公众接种疫苗。美国领导人必须加紧采取措施，让美国公众放心地接受疫苗注射。这非常重要，因为民意调查显示，大约有一半的公众对注射疫苗持怀疑态度，或者根本不愿意注射。”他说，“这必须改变，只有大量的美国人接种疫苗。我们才可能解决这个问题。”
-
-麦康奈尔还告诉佩里诺，他将在未来的任何救济立法中推动针对与冠状病毒相关的诉讼的责任保护。他说：“我认为减免责任确实很重要，不仅对小型企业而言。对大学，非营利组织，医院，医生，护士等等都很重要……。新冠病毒仍在继续传播中，这些人需要得到保护，因为他们正在尽最大努力治疗这种未知的疾病，如果还有其他疾病，在第一年以后，我将坚持通过冠状病毒救济法案，其中就包括为这些大学和医疗保健提供者提供责任保护。”
-
-快评：政坛老鳄麦康奈尔刚刚在15日公开承认拜登当选，现在又借疫苗问题抨击民主党人拖延新冠病毒援助法案，两边押宝，积极为将来站队做准备，正如路德访谈中所说，对政治家来说，最重要的是抓住各种机会为自己积累政治资本。麦康奈尔这位“老手”究竟会在这次历史性的总统选举中充当什么角色，我们拭目以待。
+自中共向世界发动生化战以来，世界秩序已经完全改变。全球感染人数已经超过7730万，死亡人数超过了170万，全球遭受了经济大洗劫，而且人道危机、次生危机不断。在此过程中，中共已经成功地袭击了世界各国，并且靠个人防护用品大发横财。再接下来的疫苗战中，中共是不是早有布局？是不是又要借着疫苗再次奴役世界？本文抽丝剥茧，去探寻一下现在各国推崇的疫苗企业BionTech和Pfizer与中共国复星医药之间的资本关联和利益合作。
 
 
+> **一、上海复星医药公司**
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+![]()![](https://spark.adobe.com/page/daQVHyUV2kMGq/images/66388173-033d-41ba-bfed-632b63d13752.jpg?asset_id=c49209ea-d3e5-4725-a378-e81681258359&amp;img_etag=%2257a1db15d3eb17f7ee7c3a0a6b6e0d48%22&amp;size=2560)
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+上海复星医药（集团有限公司）是一家上市公司，于1998年开始A股首次公开发行，2012年开始H股发行，公司英文名称最初为Shanghai Fortune Industrial Joint-Stock Co., Ltd.（上海复星实业股份有限公司）
+
+在2003年复星医药收购了国药控股49%的股份。在2008年，国药控股的IPO的前一年，复星医药拥有国药集团的直属母公司国药产业投资。
+
+据《金融时报》报道，2016年，复星制药(Fosun Pharmaceutical)完成了中国企业对印度企业的最大一笔收购。双方现已达成协议，复星制药将以不超过10.913亿美元的价格收购Gland Pharma约74%的股份。
+
+2017年12月31日，复星制药持有Sisram Medical(以色列) 52.83%的股份。
+
+据英国《金融时报》报道，2017年10月，复星制药通过其子公司复星制药(Fosun Pharmaceutical A.G.)和复星工业(Fosun Industrial[nb 3])以不到6300万欧元的价格收购了Tridem Pharma。Tridem是一家“专注于非洲的法国药品分销商”。
+
+公司研发的2019-nCoV核酸检测试剂盒(PCR)获得FDA紧急使用授权(EUA)，获得NMPA批准，并获得欧盟CE认证，作为体外诊断试剂。复星医药捐赠医用口罩、防护服、医用无创呼吸机、负压救护车等价值3000多万元的设备物资。
+
+2020年3月17日，BioNTech从复星获得了1.35亿美元的投资，以换取BioNTech的158万股以及mRNA疫苗BNT162b2在中国的未来开发和销售权。[28] 此外，BioNTech宣布与辉瑞（Pfizer）合作，扩大生产能力，以提供全球供应以应对大流行。
+
+8月初，复星和生物科技与香港上市的Jacobson Pharma签署协议，向香港和澳门供应1000万剂BNT162b2
+
+11月6日，复星希望BNT162b2能尽快在美国和欧洲上市，并尽快在中国上市。11月20日，辉瑞向美国食品和药物管理局申请了BNT162b2.[35]的紧急使用许可。
+
+（来自维基百科）
+
+
+> **二、BioNTech公司**
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/daQVHyUV2kMGq/images/30edca86-ffa0-420f-9aa7-b2039a887dde.jpg?asset_id=54e9ecf8-b52f-4e23-a07e-3a27b9379af2&amp;img_etag=%22d24d1099a734379d66b0635800a6b8b2%22&amp;size=1024)](https://spark.adobe.com/page/daQVHyUV2kMGq/images/30edca86-ffa0-420f-9aa7-b2039a887dde.jpg?asset_id=54e9ecf8-b52f-4e23-a07e-3a27b9379af2&amp;img_etag=%22d24d1099a734379d66b0635800a6b8b2%22&amp;size=1024)
+
+BioNTech是一家德国生物技术公司，总部位于美因茨，开发和生产针对疾病治疗患者特异性方法的主动免疫疗法。
+
+2020年，BioNTech与纽约辉瑞制药公司合作开发的BioNTech预防COVID-19感染的RNA疫苗候选物BNT162b2在美国进行了III期临床试验。[2] 2020年12月2日，英国政府批准了英国境内针对BNT162b2疫苗的临时人类药物法规2012（HMR）。
+
+2019年12月，作为欧盟委员会欧洲投资计划的一部分，BioNTech获得了来自欧洲投资银行的5000万美元融资。
+
+2020年6月，BioNTech通过购买普通股和4年期可转换票据从淡马锡控股（新加坡）获得了2.5亿欧元，也通过私人配售强制性可转换债券从其他投资者那里获得了2.5亿欧元。[14] 它还从欧洲投资银行获得了1亿欧元的债务融资。
+
+（来自维基百科）
+
+
+> **三、WHO的舆论宣导**
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/daQVHyUV2kMGq/images/5dc29b73-77b4-43f4-a5f3-b46509fbc0b9.jpg?asset_id=fe611207-7491-47dc-8f89-f5bcb8919533&amp;img_etag=%2219dc748eb0ddb4ceb1974fe132a90f3c%22&amp;size=1024)](https://spark.adobe.com/page/daQVHyUV2kMGq/images/5dc29b73-77b4-43f4-a5f3-b46509fbc0b9.jpg?asset_id=fe611207-7491-47dc-8f89-f5bcb8919533&amp;img_etag=%2219dc748eb0ddb4ceb1974fe132a90f3c%22&amp;size=1024)因发明PCR方法而获得诺贝尔奖的卡里·穆利斯(Kary Mullis)博士
+
+在12月4日，WHO发布了一则备忘录，警告说，PCR检测的高周期阙值会导致假阳性。因发明PCR方法而获得诺贝尔奖的卡里·穆利斯(Kary Mullis)博士明确表示，PCR并不是一种诊断工具。他说:“使用PCR，如果你做得好，你可以在任何人身上发现几乎任何东西。”
+
+甚至Anthony Fauci博士也公开承认，超过35度的周期阈值将检测到死核苷酸，而不是活病毒。
+
+那么为什么WHO在此时发布了这则信息呢？
+
+**原文: **[https://www.zerohedge.com/medical/who-finally-admits-pcr-tests-create-false-positives](https://www.zerohedge.com/medical/who-finally-admits-pcr-tests-create-false-positives)
+
+![]()![](https://spark.adobe.com/page/daQVHyUV2kMGq/images/6cfc79b3-a94a-4857-8a46-6603da0b2523.jpg?asset_id=4555b71f-8fc8-4eb6-a4ae-ba22a547c9a7&amp;img_etag=%2245aa2d6b68577734c4598faec030d02f%22&amp;size=2560)
+
+**简评：**
+
+位于中共国的复星医药在2016年至2020年间，通过收购、兼并扩张着自己的“帝国版图”，其中的Gland Pharma，Tridem Pharma都拥有成熟的供应链及涉及地域广泛的销售平台。前者的主要市场为美国、印度和其他半监管市场，且是印度第一家获得美国FDA（食品药品管理局）批准的注射用药物的公司；后者的分销网络覆盖了近90%的非洲和中东地区(35个国家和超过800名当地员工)（以上查自其公司官网）。由此可见在其整合至关重要的COVID-19疫苗之前，已经对销售网络进行了多年布局。而BioTech与复兴公司的合作，且又获得了大量的来自与中共有深度关系的淡马锡控股的巨额投资，可见这次复星药业、BioTech与辉瑞联合开发的疫苗是中共及与其勾兑的黑暗势力的重要抓手。
+
+而在这个关键时刻WHO释放出目前PCR的检测方法有可能造成假阳性的信息，一个可能是在众多学者和PCR发明者压力之下，WHO做出的被动说明。更大的可能是在病毒阶段向投放疫苗阶段过渡时，WHO在引导舆论，制造恐慌，为推出罪恶的疫苗进行对公众舆论进行引导。如果说病毒是制造公众恐惧的一种手段，那么疫苗才是某些邪恶组织重构秩序的重要抓手。鉴于多个国家，包括美国、英国等首脑和卫生部门都在紧锣密鼓的推行疫苗政策，这些国家似乎浑然不觉潜藏在背后的中共黑手，浑然不知丧心病狂的罪恶利益集团想要加强的对人民的奴役。这些事实，都让我们对各国强推疫苗背后的真实目的与实际效果表示深深的关注和担忧。
+
+【注：文章仅代表作者观点】
+
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/daQVHyUV2kMGq/)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/daQVHyUV2kMGq/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/daQVHyUV2kMGq/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

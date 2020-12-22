@@ -1,55 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统准备采取行动！
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/676120/)
+## 【香港风云】17: 血染香港
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/676094/)
 
-作者：此心不变；校对：西川stanly；审核：海阔天空；Page：小雨
+作者：香草山写作组 Tiffany的早餐 校对/发稿：飞虹
 
-#### 川普总统准备采取行动！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14092131/GNEW-GTV-MOS-LOGO-2.jpg)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Kf67uKQimUERL/images/a449d0e7-b797-4013-8d5d-f772fa8f204e.jpg?asset_id=7b13637b-869f-4d95-beb2-bef0f7754120&amp;img_etag=%225392f3cfdc9898b2249a28dbce275cf4%22&amp;size=1024)](https://spark.adobe.com/page/Kf67uKQimUERL/images/a449d0e7-b797-4013-8d5d-f772fa8f204e.jpg?asset_id=7b13637b-869f-4d95-beb2-bef0f7754120&amp;img_etag=%225392f3cfdc9898b2249a28dbce275cf4%22&amp;size=1024)
 
-**有些事在酝酿中！**
 
-据报道西德尼•鲍威尔检察官星期五晚上（12月18日）被邀请到椭圆形办公室会见了川普总统，弗林将军也加入了。总统要任命鲍威尔为特别顾问，以调查在2020年选举中发生的大规模选票欺诈。弗林将军在会议上提出了部署美军的建议，但川普总统的顾问对此表示反对。
+摘要：反送中的警暴持续升级，从针对女性示威者的性暴力，到721、831袭击事件，陈彦霖案、周梓乐案、关家荣枪击学生案 … … 。反送中10个月，香港发现尸体的个案超过过去十年总和，而这并不包含更多被秘密杀害的义士。
 
-丹•斯卡维诺（Dan Scavino）在喧闹的椭圆形办公室会议后发布一系列推文，暗示川普总统准备采取行动。自2016年大选以来，丹一直担任川普总统的社交媒体总监。他是值得信赖和忠诚的川普助手。
+香港警暴在反送中运动中持续升级。香港抗争中最英勇的是“勇武派”，不同寻常的是，勇武派中最勇武的都是女性。共产党的魔性也是罕见的，他们的鹰犬爪牙对抗争的女性尤为残暴。反送中期间，黑警的暴力执法包含着大量的性暴力。陈彦霖母女的遭遇代表了许多女性受害者的遭遇，更多无名无姓的香港女性成为受害者。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Kf67uKQimUERL/images/c0c74125-ba06-4380-adb5-38c2d3a5bace.jpg?asset_id=9c461ef7-4af8-49b7-9d64-167ed3315c30&amp;img_etag=%22919785cb2ae478cbba94693ff2d7fdee%22&amp;size=1024)](https://spark.adobe.com/page/Kf67uKQimUERL/images/c0c74125-ba06-4380-adb5-38c2d3a5bace.jpg?asset_id=9c461ef7-4af8-49b7-9d64-167ed3315c30&amp;img_etag=%22919785cb2ae478cbba94693ff2d7fdee%22&amp;size=1024)
+2019年6月就开始发生多起女示威者被多名男警拖行、掀起衣服、露出内衣甚至私处的恶行，更有女示威者遭受按倒、黑警公开用咸猪手搜身揩油，之后又爆出女示威者控诉在警署被全裸搜身等。黑警的性暴力愈演愈烈，已不是简单空穴来风的传闻，而成为反送中示威者面临的不可回避的新问题。
 
-![]()![](https://spark.adobe.com/page/Kf67uKQimUERL/images/b268bb39-44a6-42de-becb-aded334a40d1.jpg?asset_id=326c1b28-2b5b-47cf-bffb-38a7a9bfdd2b&amp;img_etag=%2284e504edd3e74bdd20d0abc65c3948a1%22&amp;size=1024)
+8月28日，香港人在行政长官府邸礼宾府附近发起大规模示威活动，主题为《反送中#MeToo》。#MeToo是西方发起的沉默的性骚扰受害者站出指证的活动标签，而香港这次的示威，施暴人明确指向共产党控制的黑警，无论是是真香港警察、大陆多年布局渗透的警察，还是穿上香港警服的大陆假警察。
 
-现在看来，川普总统已做出决定，将要战斗！
+大量女性示威者参与了这次示威活动。对于反性骚扰#MeToo运动，国际上常用紫色。当日晚上，在礼宾府周围，三万多名示威者打开手机电筒，覆上紫色的透光膜。从不出来面对示威者的行政长官林郑月娥，对香港黑警的性暴力清清楚楚。此刻，同为女性的她，龟缩在行政长官的府邸中看着窗外，她在想什么？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22143323/HK-Police_sexual_violence-1.png)8月28日中环反对警察性暴力示威
+和陈彦霖案([香港风云16: 香港女儿](https://gnews.org/zh-hans/665383/) )一样引起巨大舆论争议的还有周梓乐坠楼事件。2019年11月4日凌晨，反送中的抗议者在将军澳和警方冲突，香港科技大学学生周梓乐从尚德邨停车场坠楼，不治身亡，时年22岁。周梓乐坠楼前，已有警察进入停车场，坠楼后，四肢未有骨折而躯干有伤，死因令人怀疑。事隔一年多后，面对香港市民和舆论的重重压力，周梓乐同学真实的死因仍然没有揭开。
 
-**简评：**
+一周后的11月11日，香港市民又发起抗议活动，抗议主题转到警方的暴力方面。当日早上，交通警署警长关家荣(警号UI51999)在西湾河清理路障时，向香港专业教育学院柴湾分校的学生周柏均开枪，之后周同学和抗议青年胡子健均被捕。中枪学生周伯钧重伤倒地，送医院急救切除右肾后挽回生命。
 
-在美国2020年大选中，“倒霉你”（Dominion）系统才是欺诈核心所在。深层政府（Deep State）精心布局，盗窃大选结果分成两步走。第一步，把赌注押在“倒霉你”投票机上，触动所有势力推出投票机，然后操控投票机，不管你投多少票，投票机都会自动偷走某个百分比的票给拜登；投票机还可以扫描伪造选票，计入合法选票范围。第二步，投票结束后把赌注全押在法官身上，买下整个司法系统，令川普总统到目前为止无法立一个案子。
+关家荣使用的枪械并非防暴警察驱逐用的催泪弹、布袋弹、橡皮子弹之类的非致命武器，而是香港警察标准的转轮配枪，配以金属实弹，属于致命武器。枪击案案发后，相关视频即在网上迅速流传，引起舆论哗然。网友迅速查到开枪警员关家荣的身份。他女儿就读于德望学校。随即，德望学校师生、家长及校友联署要求立即解除关家荣在该校家教会主席的职务，案发次日，学校宣布该警员已辞去家教会主席。
 
-本来这是一个完美的骗局，但没想到川普总统得到了各行各业人们的支持，使得倒霉机的黑幕浮出水面。原本鲍威尔律师和弗林将军只掌握了倒霉机中心系统的全部欺诈数据，现在又有了安特里姆县的16台Dominion投票机的法医检查结果，这对川普总统是非常有利的支持。既然安特里姆县投票机有问题，那整个密歇根州的投票机也有问题，所有使用倒霉机的州都有问题！既然安特里姆县是川普获胜，那整个密歇根州呢? 整个摇摆州呢？整个美国呢？安特里姆县的16台Dominion投票机可以说是多米诺骨牌的第一张牌！
+2020年1月23日，民主党立法会议员许智峰以私人身份，在管辖西湾河枪击案的东区法院对关家荣提起刑事控诉。6月11日，法院接纳三项刑事重罪控诉，还表示律政司有权介入本案，但“如果相信司法独立，就应交给法庭自行处理，否则就有包庇警员之嫌”。8月18日，律政司果然通知原告议员许智峰，律政司长郑若骅决定介入本案。许智峰表示将继续跟进此案，但针对他个人的威胁越来越大，直到11月底，他本人也流亡海外。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22143813/HK_-_Shooting.jpg)11.11枪击案现场![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22143840/GettyImages-1176326597-800x450-1.jpg)图片来源：Getty Images![]()![](https://i.ntdtv.com/assets/uploads/2019/09/gettyimages-1171981098-594x594.jpg)来源：MOHD RASFAN/AFP/Getty Images![](https://s.yimg.com/ny/api/res/1.2/C5sBbfpbvlMKA7_e8Zeyhg--/YXBwaWQ9aGlnaGxhbmRlcjt3PTk2MDtoPTYzMA--/https://s.yimg.com/uu/api/res/1.2/Je4.zkfmQm3CfqeAbymt0Q--~B/aD02MzA7dz05NjA7YXBwaWQ9eXRhY2h5b24-/https://media.zenfs.com/zh-tw/newtalk.tw/4a760dffba19b85cd1e8c92cfd7371e8)![](https://pgw.udn.com.tw/gw/photo.php?u=https://uc.udn.com.tw/photo/2019/11/09/realtime/7047863.png&amp;x=0&amp;y=0&amp;sw=0&amp;sh=0&amp;sl=W&amp;fw=800&amp;exp=3600)![]()![](https://i.ntdtv.com/assets/uploads/2019/12/GettyImages-1166493369-800x450-2-800x450.jpg)来源：PHILIP FONG/AFP via Getty Images![]()![](https://tw.appledaily.com/resizer/1cPKM2EM17VBOOpZrYWSX4o8Trk=/760x505/filters:quality(100)/cloudfront-ap-northeast-1.images.arcpublishing.com/appledaily/QTEDJDACEXAXM2LC2DTLWE4ABU.jpg)来源：苹果日报![](https://pgw.udn.com.tw/gw/photo.php?u=https://uc.udn.com.tw/photo/2020/05/05/99/7832216.jpg&amp;x=0&amp;y=0&amp;sw=0&amp;sh=0&amp;sl=W&amp;fw=1050)普利策奖(The Pulitzer Prizes)获奖作品![]()![](https://preview.redd.it/vywyeaz8h2841.jpg?width=960&amp;crop=smart&amp;auto=webp&amp;s=91ebc20c6da71d2e0dcfaa0d028f63311c39f0db)![]()![](https://images1.epochhk.com/pictures/131983/%E8%A6%96%E9%A0%BB%E5%B0%81%E9%9D%A2template-keynote_my005@1200x1200.jpeg)![]()![](https://i.ntdtv.com/assets/uploads/2019/11/gettyimages-1183187875-594x594.jpg)![]()![](https://image.cache.storm.mg/styles/smg-800x533-fp/s3/media/image/2019/08/14/20190814-071413_U1085_M543052_3712.jpg?itok=rqGwl8af)![]()![](https://i.ntdtv.com/assets/uploads/2019/11/gettyimages-1182101777-594x594.jpg)![]()![](https://info.51.ca/uploads/Image/2019/11/1_122P35194_0.jpg)![]()![](https://www.upmedia.mg/upload/content/20200527/MP200527200422655387.jpg)![]()![](https://static01.nyt.com/images/2019/07/21/world/21Hongkong1/merlin_158247051_4c84a529-6635-4433-8728-b9c600d37e65-master1050.jpg)来源：LAM YIK FEI FOR THE NEW YORK TIMES
+郭文贵先生则指出了香港大规模反人类罪行的更深的黑幕。过去多年，香港营建了大批设施用于大规模控制抗议人士，这些秘密牢房在这次镇压中都用上了。共产党为了不激起直接的外交冲突，从来不宣布对香港戒严。但实际上做的就是戒严，甚至烧杀抢掠的侵略活动。
 
-对于美国来说，下一步应该采取的行动就是没收所有Dominion投票机物证，但是深层政府肯定会负隅顽抗，不肯交出各投票站的Dominion投票机，总统决定要采取行动。
+香港有一百多个孩子像陈彦霖一样失踪、被自杀、变成浮尸。频发的浮尸案往往集中在清晨五六点，避人耳目。都是早知内情的水警主动去打捞尸体，防止民众或消防人员发现尸体被处理的痕迹。这些尸体几乎没有溺亡的，都是被抛尸，被捆绑，甚至有干尸被宣布“溺亡”。港府大抓捕的实际人数超过公开数字的十倍，大量来自大陆和外籍、移民人士，在香港没有人照应的，都被秘密处理了。
 
-星期五晚上川普总统在白宫椭圆形办公室会见了鲍威尔律师和弗林将军。鲍威尔不是普通律师，她已注册为军事律师，而且过去在公众场合露面一直谈及Dominion投票系统。她接触案子的立足点、她状告的内容以及她个人的专业和素质条件都完全吻合川普总统实施军事管治的要求。她成为总统的特别调查员，也就是总统特别指定的律师，跟川普总统现在个人的竞选团队不冲突。朱利安尼是川普个人的竞选团队律师，主要负责各州选票的欺诈行为，而鲍威尔是川普以现任美国总统的身份去请的军事律师，主要负责调查这次大选的系统性欺诈行为，来保护美国国家，不只是为现任美国总统而战，还要为未来美国总统而战。
+反送中后期，越来越多的香港人被从高楼抛下，掩饰身上被虐打的伤痕。往往流血很少，说明已经死亡多时。网络上充满了浮尸和坠楼尸体的照片，许多都是年轻面容身材姣好的少女，有些缺少衣物遮蔽，让人不能不怀疑其中恶劣的性犯罪罪行。
 
-现在媒体把这个会议说成是咨询讨论，那是在掩饰他们心中的惧怕。既然川普总统公开邀请鲍威尔律师和弗林将军，那就表示川普总统心意已决。在会议结束鲍威尔律师和弗林将军离开后，川普总统很快把他的那首Fight for Trump的歌置顶推特，这个动作够明显了，表示川普总统将要拉开卫国战争的序幕！
+根据香港保安局长李家超在11月13日公布的官方数字，6月起至9月止，香港政府共接获2537宗发现尸体个案，当中包含送医前、到院后的死亡数字，而3个月新增的自杀通报件数则为256宗。反送中10个月发现6584具尸体，是过去10年的总和。至于秘密火化、人或尸体运到大陆处理的，更不在此列。
+![]()![](https://img.ltn.com.tw/Upload/news/600/2019/10/12/phpdtKzTb.jpg)网传反送中自杀人士记录![]()![](https://i.ntdtv.com/assets/uploads/2019/11/bb1b4db639b48ac4e6dac487323e483e-600x583.jpg)网上部分失踪告示
+半年时间，香港从东方之珠沦为人间地狱。共产党嗜血成性，在香港杀红了眼，已形如禽兽。而香港的抗争者也丝毫没有放弃的迹象。2014年的雨伞运动，抗争者高呼“一个蛋也不能碎”，相互关照友爱，甚至感谢当差警员的尽职工作。五年后，反送中运动已经让香港失去了上万优秀的儿女。留下来的战士，更加无望，也更加坚强。
 
-![]()![](https://spark.adobe.com/page/Kf67uKQimUERL/images/92dc69e6-669a-4213-b248-b5433f0a572e.jpg?asset_id=5a869475-fd86-4311-a754-2b588939e861&amp;img_etag=%220cfe83cb284e874a446bca4f58346814%22&amp;size=1024)
+(待续)
 
-![]()![](https://spark.adobe.com/page/Kf67uKQimUERL/images/0f8e4a57-95e5-469b-860c-b871c80d0f36.jpg?asset_id=c9644155-19ac-4e0b-bc72-d5d9cfb00212&amp;img_etag=%22748aff61439e8f05e57f1fbf718edad5%22&amp;size=2560)
+相关链接：
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/07022231/image0-2-1.png)](https://gnews.org/zh-hans/624473/)
 
-【注：文章仅代表作者观点】
 
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/Kf67uKQimUERL/)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-[新闻来源](https://www.thegatewaypundit.com/2020/12/somethings-brewing-dan-scavino-posts-series-tweets-raucous-oval-office-meeting-trump-ready-take-action/)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Kf67uKQimUERL/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/Kf67uKQimUERL/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
