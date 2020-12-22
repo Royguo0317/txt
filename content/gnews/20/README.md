@@ -1,28 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【朱利安尼推文1221】鲍威尔律师在白宫将做什么
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/674222/)
+## 【香港要闻】美国限制逾百中俄企业部门购买技术产品　包括香港飞行服务队
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/675612/)
 
-12月21日NewsMax主播Sean Spicer采访了朱利安尼市长，他的推文称，朱利安尼对于当前的谣言做出澄清，他说，
+搜集：Po
 
+编撰：Alexandra
 
-> “鲍威尔律师不是我们法律团队的一员，她已经5周没来了，她不是特别检察官，她不是我们法律团队的成员。
-> 
-> ”她不代表任何人 。
-> 
-> “她也不代表行政部门说话”。
+审核：MY
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22092827/image001-14.png)
+美国连接制裁中国官员之后，美国商务部12月21日公布，工业和安全局（BIS）将修改出口管理条例（EAR），将103 间中、俄公司及政府部门等单位，列入「军事最终用户」(Military End User) 名单，其中包括香港政府飞行服务队（GFS），日后将会被限制购买各种美国商品和技术。
 
+据【立场新闻】报道指，名单上的 103 公司及政府部门的当中，分别有 58 个单位属中国，及 45 个单位属俄罗斯。美国商务部指出，名单上单位分别与中俄本国军队有联系，列入「军事最终用户」列表将限制美国企业与这批公司的贸易往来。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22092758/image003-10.png)【图片】政府飞行服务队 ，早前被质疑协助监察 12 港人快艇。
+名单包括香港政府飞行服务队（Government Flying Service）、中华人民共和国自然资源部辖下的第二海洋研究所（Second Institute of Oceanography）、中国航空发动机集团（Aero-Engine Company of China）下属8 个机构、中国航空工业集团（Aviation Industry Corporation of China）下属7 个机构、上海飞机设计研究院（Shanghai Aircraft Design and Research Institute）等，俄罗斯的情报机关之一俄罗斯对外情报局（SVR）也在名单之中。
 
-朱利安尼先生转发了这一推文。他並沒有解释鲍威尔律师在白宫的工作，以及接下来将做什么，我们拭目以待。
+政府飞行服务 ，早前被质疑协助监察 12 港人快艇。政府飞行服务队前身为皇家香港辅助空军，飞机用于搜索和救援，消防，空中救护服务以及执法行动。 12 港人被送中案件中，飞行服务队被质疑协助监察 12 人的快艇，最终快艇被截获。
 
+美国商务部长罗斯（Wilbur Ross）表示，新增的「军事最终用户」名单可建立新流程，协助出口商筛选客户。国防部认识到必须利用美国和全球企业的伙伴关系，防止中俄转移美国技术，并打击以此尝试破坏稳定的军事计划，例如识别与中国共产党有关的军事公司。美国企业未来若想向清单中的企业出售最终可能用于军事用途的产品时，必须先取得许可证。
 
+战友观点：
 
-> “[@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw) is not a part of our legal team, she has not been for 5 weeks, she is not a special council for [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw), she does not speak for [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) nor does she speak for the admin” — [@RudyGiuliani](https://twitter.com/RudyGiuliani?ref_src=twsrc%5Etfw) addresses rumors about [@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw) on [#spicerandco](https://twitter.com/hashtag/spicerandco?src=hash&amp;ref_src=twsrc%5Etfw) [@newsmax](https://twitter.com/newsmax?ref_src=twsrc%5Etfw) [@TeamTrump](https://twitter.com/TeamTrump?ref_src=twsrc%5Etfw) [pic.twitter.com/UQzYdZRGEe](https://t.co/UQzYdZRGEe)
-> — Sean Spicer (@seanspicer) [December 21, 2020](https://twitter.com/seanspicer/status/1341165142164336640?ref_src=twsrc%5Etfw)
+该次被列入黑名单的58间中国公司或组织，包括香港政府飞行服务队(Government Flying Service)，及中国航空工业集团旗下7间子公司，其中一间子公司其中一间是在本港上市的中国航空工业国际(0232)，其辖下的中国航空工业国际控股（香港）有限公司有在本港上市。
 
+本身是飞机师的谭文豪表示，是次黑名单涵盖零件出售，未来政府飞机服务队更换零件或更新软件可能受影响。
 
+美国商务部长罗斯表示，名单有助美国出口商筛选客户。长和回应记者查询时表示已转售名单内被指关联公司股份。有报道指，属长和与内地企业合资的「和记奥普泰通信技术有限公司」亦被列入清单。长和表示，有关公司的股份在2015年已全部转售，现时已再无持有任何股权，有关公司亦已改名为「重庆奥普泰通信技术有限公司」。
 
-新闻和图片来源 朱利安尼推文及其转发的推文
+香港【商业电台】指， 华府近年加强关注中国推行的军民融合发展，去年扩大了「军事终端用户」的定义，将任何支持或协助维护或生产军事物品的个人或实体，都列入军方定义。
+
+以上观点仅代表笔者本人
+
+资料来源：[立场新闻](https://www.thestandnews.com/international/%E7%BE%8E%E5%9C%8B%E9%99%90%E5%88%B6%E9%80%BE%E7%99%BE%E4%B8%AD%E4%BF%84%E4%BC%81%E6%A5%AD%E9%83%A8%E9%96%80%E8%B3%BC%E8%B2%B7%E6%8A%80%E8%A1%93%E7%94%A2%E5%93%81-%E5%8C%85%E6%8B%AC%E9%A6%99%E6%B8%AF%E9%A3%9B%E8%A1%8C%E6%9C%8D%E5%8B%99%E9%9A%8A/)、[商业电台881903.com](https://www.881903.com/news/china/2371670/%E8%8F%AF%E5%BA%9C%E9%99%90%E5%88%B6%E9%81%8E%E7%99%BE%E4%B8%AD%E4%BF%84%E5%85%AC%E5%8F%B8%E8%B2%B7%E7%BE%8E%E5%9C%8B%E6%8A%80%E8%A1%93%E5%92%8C%E7%94%A2%E5%93%81-%E7%96%91%E5%8C%85%E6%8B%AC%E9%A3%9B%E8%A1%8C%E6%9C%8D%E5%8B%99%E9%9A%8A)
 
 0

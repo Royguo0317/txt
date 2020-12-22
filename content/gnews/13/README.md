@@ -1,62 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【Jenna Ellis推文1221】不支持使用《叛乱法》
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/674318/)
+## 《國家脈動》: 如果拜登確定自己的“勝利”，他最應該歡迎透明
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/675718/)
 
-12月21日川普总统竞选律师、高级法律顾问Jenna Ellis在接受Water Cooler主播David Brody采访时表示，
-
-
-> “有各种各样的原因，我不认为那是一个特别符合宪法的解决方案”，她不支持总统利用《叛乱法》对2020年大选进行相关扣押的想法。她说，“我也不会建议美国人民希望最终以此作为解决方案，因为这会开一个先例。”
-> 
-> 但她表示，州立法机构可以在宪法上采取与选举结果有关的行动。”他们可以看看所有这些腐败，看看他们所在州的法律是如何被完全忽视的，他们可以在任何时候收回他们认证的选举人，可以拒绝配合那些绝对虚假和欺诈的证明，川普总统在2020年的总统竞选中没有向乔-拜登让步，并指出这次选举有舞弊行为。”
+```
+整理: 阿娜
+發稿人: Ting Guo
+```
 
 
+根據蒙茅斯大學(Monmouth University)的民意調查，在特朗普總統的7500萬選民中，有77％的人相信喬·拜登的所謂勝利是選舉舞弊的結果。考慮到上千萬美國人的普遍懷疑。根據CNBC的調查，不足3％的特朗普選民認為總統應承認拜登是不足為奇的。
 
+除了對選舉完整性的這些嚴重懷疑之外，許多美國人現在還是第壹次了解拜登與中國共產黨交易醜聞的骯臟細節。其中涉及到百萬美元來自中共的錢直接給了拜登家族及其親密的同夥。比如前中央情報局局長，企業媒體專家和矽谷寡頭這樣的強大的組織在選舉前成功抹黑，無視和壓制了這個爆炸性的新聞。但是現在隨著意識增強，憂慮也在增加。
 
+如果拜登認為自己合法地贏得了這些選舉，盡管以微乎其微的優勢獲勝，那麽他實際上應該加入特朗普競選活動，呼籲全面而透明的選民信息。此外，如果拜登希望美國人相信他的家人與中共關系沒問題，實際上他並不是參與這些交易的“大人物”，那麽他應該同樣默認壹名特別顧問。
 
+盡管公司媒體竭力嘲笑選舉懷疑論者，但有大量證據表明存在違規行為和隨之而來的憲法爭議。白宮顧問彼得·納瓦羅（Peter Navarro）最近在壹份高度引人註目的36頁的題為“完美的欺騙”的報告中對這些數據點和可疑的事實模式進行了分類。如果當前的搖擺狀態結果不能代表大規模的“欺騙”，那麽拜登最重要的壹點就是應該歡迎即將來臨的充分透明性，以說服選舉懷疑者。
 
-> Read this. ⬇️ [https://t.co/mpThLExJyw](https://t.co/mpThLExJyw)
-> — Jenna Ellis (@JennaEllisEsq) [December 22, 2020](https://twitter.com/JennaEllisEsq/status/1341194787861442561?ref_src=twsrc%5Etfw)
+同樣，如果拜登希望有實際任務進入橢圓形辦公室，那麽他必須解決他的家人與世界各地的影子政府，特別是美國最危險的敵人俄羅斯和中國。
 
+根據媒體研究中心的壹項民意調查，在拜登的選民中，令人驚嘆的45％的人表示沒有意識到亨特·拜登筆記本電腦的重磅炸彈事件。這種信息壓制肯定會損害對於從傳統媒體到我們情報機構的信任。拜登無法繼續避免對此問題進行真正的審查。
 
+與選民數據問題壹樣，如果拜登想以壹個整潔的形象擔任這個神聖的辦公室，那麽他必須迅速歡迎特別律師的監督，以全面審查這些關鍵問題。拜登必須解釋“大人物”是誰，以及中國政權為什麽要在他的家人和親密朋友的銀行賬戶中投入大量財富。除非拜登鼓勵並配合有力的調查，否則亨特筆記本電腦的可惡證據，參議院國土安全調查結果以及托尼·波布林斯基的可靠的第壹手資料都會攪黃了拜登在白宮的 “蜜月”期。
 
-随后她继续发推：
+壹個多世紀以前，最高法院大法官路易斯·布蘭代斯（Louis Brandeis）寫道壹句著名的話 “陽光是最好的消毒劑。” 如果喬·拜登（Joe Biden）相信民主黨最近關於“治愈”壹個兩極分化的國家的言論，那麽他比任何人都應該對最近的投票以及與中國的事務來讓其公開與透明了。
 
+***參考文章:《國家脈動》***
 
-> 大家都对不使用《叛乱法》表示异议（叛乱法不适用），想象到川普总统自己在推特上所说，使用叛乱发是假新闻。他也是一个宪法主义者。
-> 
-> 关于使用军事力量（《叛乱法》在某些情况下允许使用）。这里不属于宪法选项。
-
-
-
-> 这不是他们的宪法。是我们的。我们要保护、保卫宪法，他们在破坏宪法。我们要帮助他们。
-
-
-
-
-> To everyone balking at not using the Insurrection Act (which does not apply in this context), consider that President Trump himself tweeted that it’s fake news he is even considering it. He is also a constitutionalist.
-> 
-> We do not undermine the rule of law. [#LawandOrder](https://twitter.com/hashtag/LawandOrder?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Jenna Ellis (@JennaEllisEsq) [December 22, 2020](https://twitter.com/JennaEllisEsq/status/1341264175549411331?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> This isn’t “their” law.
-> 
-> It’s OURS.
-> 
-> We protect and defend the U.S. Constitution. They’re trying to tear it down. We shouldn’t help them. [https://t.co/icYf3J9XOt](https://t.co/icYf3J9XOt)
-> — Jenna Ellis (@JennaEllisEsq) [December 22, 2020](https://twitter.com/JennaEllisEsq/status/1341266014990868480?ref_src=twsrc%5Etfw)
-
-
-
-
-
-新闻和图片来源 Jenna Ellis 推文和
-
-[https://justthenews.com/politics-policy/elections/trump-attorney-jenna-ellis-says-no-use-insurrection-act-says-american](https://justthenews.com/politics-policy/elections/trump-attorney-jenna-ellis-says-no-use-insurrection-act-says-american)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21093249/image4-3-188x225.jpg)*[**https://discord.gg/77fCxw5mFv**](https://discord.gg/77fCxw5mFv)
+[**https://**](https://https//discord.gg/77fCxw5mFv)[**gab.com/himalaya\_italy**](https://gab.com/himalaya_italy)*
 
 0

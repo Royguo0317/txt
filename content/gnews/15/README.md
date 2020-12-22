@@ -1,17 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 大纪元报导台湾爆料革命团队参加挺川游行
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/674317/)
+## 迄今为止，美国2020年的死亡人数超过300万
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/675703/)
 
-台灣農場籌備 zhong
+- 编辑：Victor Torres
 
-大纪元新闻报导连结[https://www.epochtimes.com/b5/20/12/19/n12631945.htm](https://www.epochtimes.com/b5/20/12/19/n12631945.htm)
 
-台湾《大纪元时报》，于12月19日（周六）下午在台北市信义广场举办“铸就正义 守护台湾”集会游行，爆料革命台湾分队带领众多成员参加这次游行，队员施先生表示，我们愿意站出来是因为美国大选是一场偷窃美国的选举，而且是对民主自由的一场盗窃以及欺骗。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21230403/8aed085a7b6845bae082f5cb2dcdae38-600x400-1.jpg)
-大纪元采访中爆料革命成员表示：这个中国共产党非常邪恶的，它只靠三招就是蓝金黄，人民等于是被筑起来一个隐形的防火墙，让我们永远都没办法得知真相，这就是我们今天站出来最主要的原因。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-并且活动结束后，台湾爆料革命团队向大纪元表示谢意，为大纪元在此混乱时刻，仍坚守传播真相、作为良心媒体，为世界传递光明。
+**西班牙2020年12月22日电/西喜社——**
 
-0
+据美联社12月22日消息，今年是美国历史上最致命的一年，预计死亡人数将首次超过300万，主要是由于中共病毒大流行。
+今年的最终死亡数据可能在数月内不会得出。 但初步数字表明，美国今年死亡或超过320万人，比2019年至少增加40万人。
+虽然美国的历年死亡人数呈现逐步增加趋势， 但是2020年的数字跳升了约15％，一旦算出本月的所有死亡人数，这一数字可能会更高。
+
+新闻来源：[https://apnews.com/article/pandemics-new-york-coronavirus-pandemic-united-states-e2bc856b6ec45563b84ee2e87ae8d5e7](https://apnews.com/article/pandemics-new-york-coronavirus-pandemic-united-states-e2bc856b6ec45563b84ee2e87ae8d5e7)
+![]()
+1+

@@ -1,36 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【川普推文1221】-威州最高法官Brian Hagedorn变节
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/673933/)
+## 中国飞侠——从主人到奴隶
+` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/675225/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21194834/trump-and-brian-judge.jpg)
-川普总统12月21日推文：
+作者：美国纽约七星会农场写作组｜BLACK 5
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22061205/%E4%B8%AD%E5%9B%BD%E9%A3%9E%E4%BE%A0.jpg)
+墙内近期上线一部网络电影，名为《中国飞侠》。故事主人公既非古代侠客，内容与江湖也无丝毫关系，诉说的是中共国外卖小哥的辛酸苦痛。中共国内，以外卖小哥为代表的底层人民，大多来自落后地区的农村，其自幼接受的教育资源难于同城市孩子相比，在拼爹、拼学历、拼职称、拼技术的中共国墙内，毫无竞争优势，也几乎无缘高大上的白领职业。
 
+传统想法认为，只要肯吃苦、肯奋斗，哪怕是苦活、累活，坚持下去，总能有所回报。即便在被中共诟病的欧美、日本等资本主义国家，也的确证明这一点，环卫工人、牛仔服装厂工人、家政等蓝领、灰领工作均有着较为可观的收入。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22061947/2019-11-12-11-30-06ahvAwllx.jpg)
+然而在具有社会主义“优越性”的中共国墙内，大多数希望通过吃苦、奋斗寻求出路的底层人民被残酷的现实打懵。例如外卖小哥，奔走在城市每个角落，24小时在线，迎烈日、顶暴雨，趟风冒雪，为大众送去便捷。可当你取到午餐时，有几人会关心面前的小哥是否饥肠辘辘？当你享用甜点、奶茶时，有几人知晓小哥的伙食仅是馒头就咸菜？当你刷着屏幕选择新口味时，有几人知晓小哥的奢侈是一份青椒土豆丝？当小哥与红绿灯抢跑时，有几人知晓一个差评对小哥的打击？又有几人担心小哥的安危？外卖平台的投资方怀着赚快钱的贪婪，平台运营方说着违背商业逻辑规律的神话，估值不断推高，小哥的利益不断被盘剥。中共国无数的工会，可曾有一家是小哥们自己组织的？中共国设立了劳动仲裁，颁布了劳动法，可小哥们哪有时间、财力维权？为了活下去，为了故乡的家人，小哥能做的唯有日复一日饥渴抢单。
 
-> “两年前，伟大的威斯康星州人民让我支持一个叫布莱恩-哈格多恩（Brian Hagedorn）的人竞选州最高法院大法官，当时他在民调中面对一个强硬的民主党候选人毫无胜算的时候，在我的支持下，Hagedorn轻松胜出！…….
-> 
-> “WOW，他刚刚在大法院关于选民舞弊的裁决中投票反对我（有那么多无比欺诈行为），尽管三位备受尊敬的大法官提出了许多页的反对意见。一件事与另一件事没有任何关系，但我们最终在一个真正不正确的裁决中以4-3输掉了比赛! 很好……”
-> 
-> “…威斯康星州的共和党人应该把这3个强有力的决定交给他们的州议员，并推翻这个荒谬的州选举。我们压倒性赢了！”
+小哥熟悉着城市的每条街道、每家商铺、每栋楼宇，却身无片瓦，日夜的辛劳只是如蝼蚁般生存。喧闹的城市，对小哥少有温暖，客户高高在上，快捷酒店的消费却能张扬出五星级酒店的豪横，轻则差评，重则辱骂殴打，社会积累下的重重戾气肆意宣泄在底层人民身上。
 
+天赋人权，人人生来平等，是现代文明社会不争的普世价值。而中共国却将人民划分成等级森严的三六九等，堵塞上升通道，无信仰，无道德、无法治，崇拜的唯有权力和金钱，从政、经商依附党魁军头以实现自身价值。这个国家政权原本由工人、农民联合建立，人民才是真正的主人，为何成为匍匐于地的奴隶？！号称“为人民服务”的“公仆”成了奴役人民的独裁，是谁在颠覆这个国家的政权？！
 
+更多精彩内容请关注：
 
+- [美国纽约七星会农场（为子孙爱七哥）官推](https://twitter.com/wzsaqg)
+- [美国纽约七星会农场（为子孙爱七哥）GTV](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
+- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
 
-> Two years ago, the great people of Wisconsin asked me to endorse a man named Brian Hagedorn for State Supreme Court Justice, when he was getting destroyed in the Polls against a tough Democrat Candidate who had no chance of losing. After my endorsement, Hagedorn easily won!…
-> — Donald J. Trump (@realDonaldTrump) [December 21, 2020](https://twitter.com/realDonaldTrump/status/1341138407460925440?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> …Republicans in Wisconsin should take these 3 strong decisions to their State Legislators and overturn this ridiculous State Election. We won in a LANDSLIDE!
-> — Donald J. Trump (@realDonaldTrump) [December 21, 2020](https://twitter.com/realDonaldTrump/status/1341138409092509696?ref_src=twsrc%5Etfw)
-
-
-
-新闻素材和图片来自川普总统推特
-
-
-
-3+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19044815/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-2.jpg)
+1+
