@@ -1,36 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1222】-预谋已久的国会修正案
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/676823/)
+## 川普确认他与“伟大的绅士”汤米·图珀维尔通话，并对1月6日的挑战表示乐观
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/676865/)
 
-12月22日推特劲爆了一条2020年7月20日公布的对一份众议院修正案的投票，这是对批准或拒绝H.Amdt.833（Veronica Escobar）对H.R.6395的修正案的投票。该修正案通过修订《美国法典》第10篇第13章中的《叛乱法》，要求总统在内乱期间在美国境内部署现役军人时，必须向国会进行认证。
-
-当时的投票结果是215票赞同190票反对。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22193010/congress-vote.png)
-网友称，隐藏在5,893页的法案中，预计总统会VETO(否决法案)，”取消总统对《叛乱法》的使用。”
-
-林伍德律师回推：
+- 编辑：Victor Torres
+- 翻译：文用
 
 
-> 任何国会成员如果投票取消总统VETO否决权是美利坚合众国的叛徒。
-> 
-> 另外，国会如此限制行政长官使用《叛乱法》的努力是违宪的。
-> 
-> 爱国者们你们醒了吗？
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+**西班牙2020年12月23日电/西喜社—**
+
+据National File周一报道，唐纳德·川普总统本周证实，他已和阿拉巴马州当选参议员汤米·图珀维尔进行了电话沟通，并对图珀维尔于1月6日挑战2020年选举人团投票结果的意愿表示乐观。
+
+“昨晚我和一位优秀的男士汤米·图珀维尔交谈，他感到非常兴奋。他说：“您使我成为美国最受欢迎的政治家，” 川普在纽约电台770 WABC节目中说到。“他说，‘我不敢相信。’他很棒。是一名优秀的参议员。”
+
+图珀维尔曾表示将为川普总统“努力奋斗”，正如《国家档案》（National File）上周的报道：
+
+在推特上由左翼激进分子共同编辑的视频中，当提到乔治亚州参议院决选时，图珀维尔说，“他们将要偷走它”。他还表示支持唐纳德·川普总统的大选被操控的观点，并指出乔·拜登声称的胜利是“不可能发生的事”。
+
+“我们正在将其全部纠正过来，”图珀维尔承诺。“不要放弃(川普)。”
+
+当被问及参议院共和党人后续有哪些可能有助于挑战选举结果的“手头上的技巧”，图珀维尔说：“好吧，你们关注接下来会发生的事情。你们已经在众议院看到了，我们也必将在参议院这样做。”
+
+“我们将努力奋斗。”图珀维尔承诺。
+
+不过在这些言论广为流传之后，图珀维尔又似乎显得犹豫，因其上周对黄鹦新闻（Yellowhammer News）表示：“他们问我，‘你要支持川普总统吗？’当然，我总是要支持川普总统。他是我一生中见过的最好的总统，他为这个国家和阿拉巴马州的人民做的事比任何人都多。但是，我们要确保我们做正确的事。”
+
+如果图珀维尔确实选择在1月6日挑战选举，他将加入由众议员莫·布鲁克斯（Mo Brooks）（阿拉巴马州共和党议员）牵头并承诺代表川普总统挑战结果的共和党代表联盟。
+
+共和党参议员约翰·图恩（John Thune）（南达科他州共和党议员），罗伊·布朗特（Roy Blunt）（密苏里州共和党议员）和林赛·格雷厄姆（Lindsey Graham）（南卡罗来纳州共和党议员）均表示，他们不会在1月6日支持川普总统。
 
 
 
-
-> Any member of Congress who votes to override [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) veto is a traitor to the United States of America.
-> 
-> Plus such an effort by Congress to limit the Chief Executive’s use of the Insurrection Act is unconstitutional.
-> 
-> Patriots are you awake yet? [https://t.co/xkt2do8xt4](https://t.co/xkt2do8xt4)
-> — Lin Wood (@LLinWood) [December 22, 2020](https://twitter.com/LLinWood/status/1341530906855690240?ref_src=twsrc%5Etfw)
+> [Trump Confirms He Spoke With ‘Great Gentleman’ Tommy Tuberville, Projects Optimism About January 6 Challenge](https://nationalfile.com/trump-confirms-he-spoke-with-great-gentleman-tommy-tuberville-projects-optimism-about-january-6-challenge/)
 
 
-
-新闻素材和图片来自林伍德律师推特和 https://www.govtrack.us/congress/votes/116-2020/h141
 
 0

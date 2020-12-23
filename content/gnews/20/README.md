@@ -1,26 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登家族的腐败正在浮出水面
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/676498/)
+## 为川普总统而战!
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/676547/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22161538/Capture-156.jpg)图片来自：ABC News
-美国的主流媒体一改在总统大选前后对拜登家族的腐败信息保持沉默的态度，陆续开始报道联邦检察官正调查亨特·拜登（Hunter Biden）的税务案件，这就是抛弃拜登家族的开始！
+作者：此心不变；校对：宁缺；审核：海阔天空；Page：小雨
 
-据“OAN新闻”（OAN Newsroom） 12月21日的报道，那些在大选前否认拜登有腐败问题的主要媒体，现在开始承认并报道指控拜登的案件，但许多人对主流媒体报道的时机提出了质疑。报道认为，为了保全乔·拜登（Joe Biden），左派媒体掩盖了这些对他不利的指控。比如《华盛顿邮报》（The Washington Post）大选前一篇报道的标题为，“亨特·拜登背后的真相是，他没有丑闻”，但大选后，这家媒体一篇报道的题目却是，“对亨特·拜登的税务调查涉及他和中国的商业来往”。CNBC也在12月9日报道说，亨特·拜登自己曾透露，他的税务问题正在接受特拉华州最高联邦检察官的调查。同一天中午，CNN报道说，他们联系了亨特·拜登的律师和他父亲乔•拜登的竞选团队，证实司法部门正在调查亨特·拜登及其合伙人在国外进行商业交易时是否违反了税法和洗钱法。
+[!\[\]()!\[\](https://spark.adobe.com/page/eqJEmmPxXza31/images/1d547855-2a35-472a-be52-043d378de15d.jpg?asset_id=fc572ae8-6e9f-4113-a265-fcefe6470660&amp;img_etag=%2271823155def7145a4aea387686557bae%22&amp;size=1024)](https://spark.adobe.com/page/eqJEmmPxXza31/images/1d547855-2a35-472a-be52-043d378de15d.jpg?asset_id=fc572ae8-6e9f-4113-a265-fcefe6470660&amp;img_etag=%2271823155def7145a4aea387686557bae%22&amp;size=1024)
 
-OAN的报道认为，现在投票已经结束，主流媒体也就没有必要继续隐瞒这个事实了，即使他们以前指责过OAN编造虚假故事。
+**简评：**
 
-**评论：**
+很多人觉得川普总统太软弱，太优柔寡断，那是因为你不在其位，你根本无法知道川普总统每时每刻所面对的信息和挑战，你也根本无法体会川普总统那种爱国爱民的感受……美国三权从上到下都已腐败，国家被人劫持，而川普总统被群蛇缠身……在这样的状况下，让美国再次伟大，那是多么大的工程，数不尽的艰难险阻，非我们人所能承受的啊！
 
-其实川普总统一直在呼吁媒体要说真话。尽管在他总统任期内，由于媒体撒谎，掩盖真相，他受到了很多伤害，但川普总统还是告诉人们要按照圣经上说的那样，不会放弃做正确的事，真理终将会获胜！
+[!\[\]()!\[\](https://spark.adobe.com/page/eqJEmmPxXza31/images/434f53df-b389-4fc0-b87c-2fa9d43955ea.jpg?asset_id=328087a8-3438-4c66-a8d2-aa9d3d6b529d&amp;img_etag=%2204c9a41b3ef4006b04fa9b0d49f468d8%22&amp;size=1024)](https://spark.adobe.com/page/eqJEmmPxXza31/images/434f53df-b389-4fc0-b87c-2fa9d43955ea.jpg?asset_id=328087a8-3438-4c66-a8d2-aa9d3d6b529d&amp;img_etag=%2204c9a41b3ef4006b04fa9b0d49f468d8%22&amp;size=1024)
 
-爆料革命发起人郭文贵先生早就说过，美国已经被中共渗透，“蓝金黄” 和“3F”方案起了很大作用。他深知社交媒体的重要性，高瞻远瞩地创建了GNEWS和GTV。当亨特•拜登的“硬盘门”和拜登家族的腐败事件出现时，以及闫丽梦博士揭露CCP病毒真相时，所有的公共媒体，包括推特（Twitter），脸书（Facebook）和油管（YouTube），不仅不报道，还对发布消息人的账号进行封杀！人们只有从GTV和GNEWS的报道获取事实的真相！这次美国总统大选，有些州选举舞弊，投票机作假，销毁选票，死人投票的事情屡屡发生，幸好GTV和GNEWS对事实做了报道，不仅让美国人民知道了CCP对这次选举进行干预，也让全世界了解到CCP的邪恶！由此，全球进入了一个自动灭共的新时期！
 
-[原文](https://www.oann.com/mainstream-media-waited-until-after-nov-vote-to-acknowledge-hunter-biden-corruption-2/)
 
-翻译：文罡
+> [pic.twitter.com/ftlALc6UWn](https://t.co/ftlALc6UWn)
+> — Donald J. Trump (@realDonaldTrump) [December 19, 2020](https://twitter.com/realDonaldTrump/status/1340362336390004737?ref_src=twsrc%5Etfw)
 
-校对：文旺
+
+
+这段“为川普而战！”的视频是川普总统的社交媒体总监丹•斯卡维诺（Dan Scavino）首先发推的，然后川普引用，它的真正含义是拯救美国–拯救世界。美国是神选的领导人类的国家，如果美国没了，那么世界也就没了，而川普是美国的总统，如果川普输了，就等于美国输了，也就等于世界输了，所以为川普而战是我们每个人的使命。
+
+作为一个有信仰的人，作为一个有道德约束的人，似乎不应该呼吁人民为自己而战，这样做一定会遭到邪恶力量的人身攻击。人最难战胜的是自己，川普总统自己发推这段视频，而不是转推他的助手的推文，那就代表他已战胜自己。他不会做政治正确的事，他只做他认为是对的事，因为与神同行的人只会在乎那能与神连结的心，而不会去思考利益上的得与失。
+
+为什么这个时候推出这视频？当蓬佩奥一二三再而三的宣传都已到位，当纳瓦罗发布了2020年大选报告，当鲍威尔要成为川普总统的特别调查顾问，当弗林将军要以其曾经的身份——首任国家安全顾问，陆军中将，军事情报局局长辅佐现任国家安全顾问，等等，表示一切准备都已就绪，是时候要为川普总统而战，来拯救美国，拯救世界！！！
+
+【注：文章仅代表作者观点】
+
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/eqJEmmPxXza31/)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/eqJEmmPxXza31/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/eqJEmmPxXza31/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

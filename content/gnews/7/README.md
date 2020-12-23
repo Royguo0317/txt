@@ -1,53 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大WE 慈善：中共式腐败的缩影
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/676706/)
+## 【林伍德律师推文1222】-预谋已久的国会修正案
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/676823/)
 
-*加拿大多伦多枫叶农场 文锦*
+12月22日推特劲爆了一条2020年7月20日公布的对一份众议院修正案的投票，这是对批准或拒绝H.Amdt.833（Veronica Escobar）对H.R.6395的修正案的投票。该修正案通过修订《美国法典》第10篇第13章中的《叛乱法》，要求总统在内乱期间在美国境内部署现役军人时，必须向国会进行认证。
 
-*校对 小鸥 上传 WJ*
+当时的投票结果是215票赞同190票反对。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22193010/congress-vote.png)
+网友称，隐藏在5,893页的法案中，预计总统会VETO(否决法案)，”取消总统对《叛乱法》的使用。”
 
-据后千禧年报12月22日报道，声名狼藉的WE慈善（WE Charity）竟获得加拿大紧急工资补贴（Canada Emergency Wage Subsidy ， 简称CEWS）。
+林伍德律师回推：
 
-CEWS提议为在疫情中挣扎的企业支付最高75％的工资，由加拿大政府于4月份实施，旨在帮助因中共病毒大流行导致经济衰退而面临收入下降的企业。该计划预计将耗资976亿加元，成为加拿大政府与中共病毒疫情相关的救济支出中最昂贵的一项。
 
-为什么所谓的非盈利慈善组织收取政府为企业提供的补贴？WE慈善做过什么呢？
+> 任何国会成员如果投票取消总统VETO否决权是美利坚合众国的叛徒。
+> 
+> 另外，国会如此限制行政长官使用《叛乱法》的努力是违宪的。
+> 
+> 爱国者们你们醒了吗？
 
-**WE慈善与中共国关系**
 
-据《国家邮报》7月28日报道，该组织在中共国有多个项目，创办者吉尔伯格（Kielburger）兄弟和中共关系密切。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22183611/WE%E4%B8%A4%E4%B8%AA%E5%88%9B%E5%8A%9E%E4%BA%BA.jpeg)图片来源: National Post
-弟弟克雷格·基尔伯格（Craig Kielburger）在2008年出版的《从我到我们：在物质世界里寻找意义》（Me to We: Finding Meaning in a Material World）被中共国中央电视台和党媒《人民日报》吹捧为“对中国年轻人最有益的书之一”。中共的此种行为，看起来像是统战部影响了WE慈善。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22183806/Me-to-we.png)图片来源：Metowe
-据WE 慈善官网介绍，它在中共国农村的活动始于2002年。2012年，其分支机构ME to WE在上海成立了合资分公司米图维，已在中共国经营多年。2014年和2015年分别在北京和上海的中学举办“明日领袖论坛”，北京的活动是和东城区教委合作，曾请姚明进行演讲。
 
-哥哥马克·吉尔伯格2015年1月曾去中共国驻加拿大使馆，与大使罗照辉会面并合影。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22183822/Marc-Kielburger%E5%9C%A82015%E5%B9%B4%E5%8F%82%E5%8A%A0%E4%B8%AD%E5%9B%BD%E9%A9%BB%E5%8A%A0%E6%8B%BF%E5%A4%A7%E5%A4%A7%E4%BD%BF%E9%A6%86%E6%B4%BB%E5%8A%A8.png)图片来源: National Post
-2014年，WE 慈善的米图维提出的中加青少年文化教育交流活动，被中共国驻加拿大大使馆列为中加建交 45 周年的官方系列活动之一。
 
-不过目前WE试图与中共政府撇清关系, 其发言人说，他们已经有近5年没在中共国举办WE Day活动，不再举办“青年文化之旅”，其在中共国的慈善工作专注于支持“过去开发的项目”。
+> Any member of Congress who votes to override [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) veto is a traitor to the United States of America.
+> 
+> Plus such an effort by Congress to limit the Chief Executive’s use of the Insurrection Act is unconstitutional.
+> 
+> Patriots are you awake yet? [https://t.co/xkt2do8xt4](https://t.co/xkt2do8xt4)
+> — Lin Wood (@LLinWood) [December 22, 2020](https://twitter.com/LLinWood/status/1341530906855690240?ref_src=twsrc%5Etfw)
 
-但这些托辞都掩盖不了中共对该组织进行渗透的事实。
 
-**WE慈善在加拿大与政客的勾结**
 
-WE慈善与加拿大企业高层和政界人士保持深厚联系，来自这些高层人士的捐款源源不断地涌入，WE利用庞大的资金与政客勾结并换取丰厚利益。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22183915/1111_we-trudeau8-e1594655672703.jpg)2015年11月10日，总理特鲁多和妻子苏菲在渥太华参加WE Day 活动，WE慈善联合创始人克雷格·基尔伯杰（左）和他的弟弟马克（右） 图片来源：POSTMEDIA
-加拿大自由党政府曾计划把在6月份启动的9.12亿元加拿大学生服务补助金（Canada Student Services Grant ，简称CSSG)，给WE慈善独家代理。后来，总理特鲁多和财政部长莫诺都因其家族与WE有金钱往来，被联邦道德操守专员调查，特鲁多的母亲、弟弟和妻子多次参加WE组织的活动并获得报酬；莫诺的女儿受雇于这家组织。结果加拿大政府7月初与WE慈善组织终止合作，财政部长莫诺在8月份因该丑闻引咎辞职，很多商业机构也因此纷纷退出与WE的合作项目。
-
-而WE慈善里包括两位创始人在内的高层员工辞职，公共财政支持大幅下降。WE 慈善随后宣布关闭其加拿大业务。
-
-可见，WE慈善收入的下降根本不能归因于中共病毒疫情，而是因为与政客勾兑丑闻的曝光。但此次WE慈善竟然领取了加拿大紧急工资补贴，令人不由想起[吴征白手套公司在美曾讹数十万元小企业救济贷款](https://gnews.org/zh-hans/243170/)，都是与政府有关系的组织，利用一切机会侵占纳税人的血汗钱。
-
-WE慈善目前还拥有价值数千万加元的资产， CEWS在WE慈善机构遭到丑闻打击之前仅成立了不到3个月，宣布最初的加拿大学生服务补助金计划后，慈善机构是否已经获得CEWS福利？谁批准了WE慈善机构的补贴？特鲁多政府是否曾经意识到该慈善机构正在拿纳税人的钱来支持其腐败的组织？政府为什么批准这种补贴？
-
-加拿大作为民主国家，虽然主流媒体被控制，给民众无形中建了一道防火墙，但比起中共国极端的言论管制还是要宽松一点，可以令WE慈善丑闻曝光。但是如果加国政府不断屈服于中共的操纵和影响，腐败风气就会愈演愈烈。
-
-*参考链接：*
-
-[REVEALED: WE Charity received the Canada Emergency Wage Subsidy](WE%20Charity%20received%20the%20Canada%20Emergency%20Wage%20Subsidy)
-
-[加国补助金丑闻续发酵 媒体揭WE与中共关系](https://www.epochtimes.com/gb/20/7/28/n12290181.htm)
+新闻素材和图片来自林伍德律师推特和 https://www.govtrack.us/congress/votes/116-2020/h141
 
 0
