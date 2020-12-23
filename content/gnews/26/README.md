@@ -1,48 +1,72 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大数据分析作战室】24小時Google 搜索趋势图
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/675142/)
+## 关于1969
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/676729/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22055713/1220-peter-navarro.png)
-12月20日分析图【12.20.2020 Google Trends】显示，
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22185225/Mao-Zedong-Chinese-Cultural-Revolution-poster-crowd.jpg)
+曾经保卫皇帝的功臣
 
-1. 当日Google Trends关于大选舞弊关注最多的话题是皮特纳瓦罗（Peter Navarro）先生。
-2. 12月17日白宫贸易顾问皮特纳瓦罗就2020大选发表了长达36页名为“完美的欺骗“的报告。该报告对美国总统大选的公平性和完整性进行评估，对大选中六个摇摆州的舞弊行为所支持的证据从六个纬度以科学报告的形式固化下来，结论是即使缺乏彻底调查，在总统任职日之前，就让美国人知道拜登的非法政府。报告严谨翔实，浅显易懂，引起人们广泛关注。
-3. 20日在WABC 770AM-N.Y.节目中，纳瓦罗指出“如果我们不能进行公正的选举，那么这个共和国就不会存在。”他在访谈中还提到祸国势力（Deep State ）并对几名前政府雇员进行点名。想必节目引起了更多关注。
-4. Google 热搜趋势图显示，关于纳瓦罗先生的报道引起极大反响, 事件还在持续发酵中。
+坐上龙椅后沾沾自喜
 
+为了夺回失去的龙椅
 
-
-建议传播相关内容时，使用符号加以下关键字：
-
-
-```
-#ElectionFraud
-
-#TheImmaculateDeception
-
-#ElectionIntegrity Mention 
-
-@RealPNavarro
-```
+皇帝再次试验大清洗
 
 
 
+文明古国刚刚走近民主
+
+化外番邦送来马列思想
+
+大同世界有了明确方向
+
+革故鼎新之际双雄并存
+
+命中注定不可一时瑜亮
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22185252/Cultural_Revolution_updated_still.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22185413/c88644a49f16929540cddcede5394ecb.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22185846/fd1ba6899d9152e8fda3bda45052313d.jpg)
 
 
+打倒反动派打倒走资派打倒一切不属于我的派
 
+扶持红卫兵扶持工农兵扶持一切保卫我的兵
 
-新闻来源 G-Talent
-数据源：Walt
-分析：曾经
-采编：文雅
-审核：大数据AI（数据分析）组
+如果革命只是抢权力为什么要利用老百姓
 
+单打独斗力强者胜一个对一个才最公正
 
+从中国建立到天下大乱才经过二十年
 
+没有外敌只算内战居然死亡三千万
 
+多少人脖子上挂着罪名游街示众
 
-本文仅代表数据分析师基于图形分析的观点
+多少人被剃了阴阳头失去尊严
+
+多少人住进牛棚浪费了学术
+
+多少人因为批斗妻离子散
+
+就只为将那一个人扳倒
+
+卫皇的名字无人知晓
+
+曾经的他无人不晓
+
+一个皇帝失踪了
+
+全国人找不到
+
+这就是革命
+
+革你的命
+
+夺回了
+
+我的
+
+命
+
+—-修文
 
 0

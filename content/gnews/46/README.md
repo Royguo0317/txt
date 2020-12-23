@@ -1,42 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【朱利安尼推文1222】拜登黑名单的第一名
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/676228/)
+## 中共间谍在阿富汗追踪维吾尔人并破坏和平谈判
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/676332/)
 
-12月22日朱利安尼先生推文：
+*加拿大多伦多枫叶农场 ctt*
 
+*校对、上传 文锦*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22153225/China-Afghanistan.jpg)图片来源： Future Directions
+中共间谍无孔不入，他们不仅在发达国家进行技术偷窃和渗透，就连小而贫穷的国家也不放过。
 
-> 我很自豪地成为拜登复仇政府名单上的第一名。
-> 
-> 听起来，司法部的反川者们等不及拜登让司法部成为政府秘密警察了，就像他们在奥巴马时期一样。
-> 
-> 他们想没收我的电子邮件。
-> 
-> 没有理由
-> 
-> 没有不法行为
-> 
-> 律师-当事人特权？
+据国家脉搏 (National Pulse) 12月20日报道，一大批中共情报人员在阿富汗被曝光，他们的任务是追踪和监视逃离中共国的维吾尔族活动人士，并破坏阿富汗政府和塔利班正在进行的、为了消除内战的和平谈判。
 
+据印度Zee News报道，阿富汗国家安全局（NDS）最近发现了一个密集的中共国间谍网络，他们藏有武器、弹药和爆炸物，包括氯胺酮粉末和一些危险物品，现在多名间谍已被抓获。
 
+报道称，中共及其间谍一直与巴基斯坦武装分子合作，破坏阿富汗和谈，并在美国安全部队撤出后，通过塔利班和基地组织确立自己的主导地位，影响阿富汗。 据阿富汗官员说，一个间谍网的头目李阳阳（Li Yangyang音译）和沙洪（Sha Hung音译），一直在与塔利班的一个分支机构的指挥官会面。
 
+除此之外，中共间谍一直在与塔利班勾结，以跟踪和监视逃往阿富汗或西亚的维吾尔族活动人士，以确保他们放弃反对中共的运动, 并向中共政府报告。
 
-> I’m proud to be number one on Biden Vindictive government list.
-> 
-> Sounds like the DOJ anti-Trumpers can't wait for Biden to make DOJ the GOVERNMENT Secret Police like they were under Obama.
-> 
-> They want to seize my emails.
-> 
-> No reason
-> 
-> No wrongdoing 
->  
-> Attorney-Client privilege.?
-> — Rudy W. Giuliani (@RudyGiuliani) [December 22, 2020](https://twitter.com/RudyGiuliani/status/1341418729100423169?ref_src=twsrc%5Etfw)
+评：
 
+在国内外宣传中，中共一直把“维护世界和平”挂在口头上，其实在背地里干的截然相反，从本文就可以看出。中共派遣大量间谍到世界各地，现在美国联邦调查局现已将反中共情报行动列为头等大事，只有消灭中共，才能实现真正的世界和平。
 
-
-新闻来源 朱利安尼推文，图片来源 Facebook
+*[原文链接](https://thenationalpulse.com/breaking/chinese-spies-afghanistan/)*
 
 1+

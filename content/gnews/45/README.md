@@ -1,70 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 巴尔对隐瞒亨特·拜登的调查找托辞
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/676220/)
+## 拜登至少获得了1300万张虚假选票
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/675847/)
 
-新闻来源：Zero Hedge《零对冲》； 作者：Zachary Stieber； 发布时间：；2020年12月19日
+*新闻来源：GATEWAY PUNDIT《网络观察员》； 作者：Joe Hoft； 发布时间：2020年12月20日*
 
-翻译/简评：wmorpho；校对：SilverSpurs7；审核：万人往；Page：拱卒
+*翻译/简评：helloworld；校对：Beicy-数学老师；审核：万人往；Page：拱卒*
+[!\[\]()!\[\](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/51f104f9-4174-4ecb-ba34-47a7215449f7.jpg?asset_id=a44f7be0-ffb7-4704-ac56-dc8a39582b84&amp;img_etag=%2231ff1c2a8a21fb4e5817181d8521033b%22&amp;size=1024)](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/51f104f9-4174-4ecb-ba34-47a7215449f7.jpg?asset_id=a44f7be0-ffb7-4704-ac56-dc8a39582b84&amp;img_etag=%2231ff1c2a8a21fb4e5817181d8521033b%22&amp;size=1024)
+#### **简评：**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/cc2e1889-77bc-4cc3-b022-ba6390ac9d5b.jpg?asset_id=271f006c-776f-4220-b81e-f43f15ee76e7&amp;img_etag=%223b0baf0bc1f8226c15112b5329bafa0c%22&amp;size=1024)](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/cc2e1889-77bc-4cc3-b022-ba6390ac9d5b.jpg?asset_id=271f006c-776f-4220-b81e-f43f15ee76e7&amp;img_etag=%223b0baf0bc1f8226c15112b5329bafa0c%22&amp;size=1024)
+这篇文章从简单的数学计算开始，直接推导出选票作假的结论。按文章的分析，选票作假显而易见，就算是基于左派媒体的数据也能轻易得出结论。
 
-**简评：**
+毋须多言，每一个清醒的美国民众，无论民主党还是共和党，都早已发现这一事实。
 
-美国前司法部部长巴尔为自己未在选举前公开对亨特·拜登已经进行调查一事辩护，说他对于在选举前不让公众知道民主党总统候选人乔•拜登的儿子正在接受调查之举，他并不后悔，并认为禁止公开确认涉及公职候选人的调查的规则是不成文的共识。
+中共对于钟摆效应的利用，70年来屡试不爽。但随着这一次拜登硬盘门的曝光，以及选举舞弊如大火般无法遮掩，中共在美国内部的政治同盟将因其背信弃义引火上身，最终与中共彻底决裂。虽然我们无法直接看到决裂的过程，但能明显感觉到，美国人不再“天真”。
 
-可是川普总统并不这样认为。川普总统说：“乔·拜登在总统侯选人辩论台上撒谎。他说‘亨特•拜登什么都没有做，什么罪行都没有。’而巴尔这时就应该站出来戳穿他。”川普同时赞扬了特别顾问穆勒，在调查川普与俄罗斯的关系期间，穆勒曾多次对各种报告中的不实报道做出强烈回应。
+无论是川普总统，还是其政治对手，经历这一切后，都将因自己的立场展开对中共的清算。我们拭目以待。
 
-美国是一个依法治国的民主国家，法律面前人人平等是吸引世界各地寻求公平正义的人们涌向美国的驱动力，也是美国屹立于世界受人尊敬和心向往之的重要原因。如果美国的司法部门出现问题，那美国的治国之本也将随之动摇，美国的前景将会暗淡无光。作为执法人员，维护国家的利益应该是放在首位的，如果将一个有严重叛国嫌疑的人推为总统，那美国人民将跌入万劫不复的深渊，巴尔口中的人民“赋予联邦政府的权力”就是对美国人民莫大的讽刺。
+#### **原文翻译：**
 
-**原文翻译：**
+# 揭秘：“简单计算”显示，拜登声称获得的选票数量比2020年大选合格选民还要多出1300万
 
-**巴尔为未在选举前公开对亨特-拜登的调查辩护**
+**2020年大选将成为美国历史上最腐败的选举**
 
-总检察长威廉·巴尔（William Barr）在周五的一次公开的采访中说，**对于在选举前不让公众知道民主党总统候选人乔·拜登的儿子正在接受调查一事，他并不后悔。**
+[!\[\]()!\[\](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/74d6d45b-1ae1-41c7-ab8d-9f8157a1ccbe.jpg?asset_id=5dc6f188-61e6-4e4b-b0c0-1a5437cd8786&amp;img_etag=%22298add387206052d297adae43f39f8dd%22&amp;size=1024)](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/74d6d45b-1ae1-41c7-ab8d-9f8157a1ccbe.jpg?asset_id=5dc6f188-61e6-4e4b-b0c0-1a5437cd8786&amp;img_etag=%22298add387206052d297adae43f39f8dd%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/ff0912a4-4e59-4748-8688-ac4ac75313c7.jpg?asset_id=1a1b9b1c-3841-4aa0-bdaf-87dbcb70cf70&amp;img_etag=%2213ffd68204600994106015b80b5297bc%22&amp;size=2560)](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/ff0912a4-4e59-4748-8688-ac4ac75313c7.jpg?asset_id=1a1b9b1c-3841-4aa0-bdaf-87dbcb70cf70&amp;img_etag=%2213ffd68204600994106015b80b5297bc%22&amp;size=1024)
+**这次美国大选的舞弊方式花样百出**
 
-巴尔告诉《华尔街日报》，尽管司法部（DOJ）禁止公开确认涉及公职候选人的调查的规则“不是绝对的”，但他可以想象得到如果政府确认“握有针对候选人的决定性的严重犯罪证据”的后果。
+[!\[\]()!\[\](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/2922bd62-492c-4358-93e2-127004004e64.jpg?asset_id=42a4d996-518f-4b61-a411-c556532f8993&amp;img_etag=%22c2ff61853ac0e154381bcb06bedbee33%22&amp;size=2841)](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/2922bd62-492c-4358-93e2-127004004e64.jpg?asset_id=42a4d996-518f-4b61-a411-c556532f8993&amp;img_etag=%22c2ff61853ac0e154381bcb06bedbee33%22&amp;size=1024)
 
-巴尔说，尽管没有明确的规定，但“合理的常规”是要保护候选人和日常生活的人们免受政府的攻击。
+（**推文链接 **https://twitter.com/KanekoaTheGreat/status/1340180468239503361）
 
-*巴尔说：“**思考一下我们赋予联邦政府的权力。**”*
+(**推文翻译**)[email protected]:当你获得创纪录的低于17%县的选票、失去黑人和西班牙裔支持、失去18/19领头县、失去俄亥俄州、佛罗里达州和爱荷华州选举人票，并完全丢失选前认为胜负难料(“Toss-Ups”)的27个众议院席位时，但你却超越了先前的最高投票纪录！
 
-***“调查一个人所需要的标准很低。因此，在大选之前只要进行调查，并将其公开， 就会影响每个选举。”***
+TRENDING: “Big News Coming Out Of Pennsylvania”- Trump Tweets: “Very Big Illegal Ballot Drop”
 
-巴尔表示他不后悔，并第一次圆滑地表示，他知道11月3日之前，亨特·拜登正在接受联邦政府的调查，但他没有让公众知道。
+趋势：“宾夕法尼亚传来重大消息” -川普推文：“非常多的非法选票”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/52a36d08-a384-416e-84da-8fba03206f0c.jpg?asset_id=377ff958-884b-4b47-912c-a80fd62fa727&amp;img_etag=%225caa9204119b67770ffd7febe735c261%22&amp;size=2560)](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/52a36d08-a384-416e-84da-8fba03206f0c.jpg?asset_id=377ff958-884b-4b47-912c-a80fd62fa727&amp;img_etag=%225caa9204119b67770ffd7febe735c261%22&amp;size=1024)
+美国情报专家威廉·宾尼(Bill Binney)昨天发布了一条推文，指出2020年大选全国范围内投票的人数超过了有资格投票的人数。
 
-在华盛顿白宫椭圆形办公室的简报中，司法部长威廉·巴尔（左）与唐纳德·川普总统交谈。（帕特里克·塞曼斯基/美联社照片）
+[!\[\]()!\[\](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/ba5709a2-7cc7-426b-81c5-2cd767015e28.jpg?asset_id=fde50c75-a244-4ea2-9654-54dd96447b40&amp;img_etag=%22903a725d8bf325bbc73c8d54bb816503%22&amp;size=3059)](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/ba5709a2-7cc7-426b-81c5-2cd767015e28.jpg?asset_id=fde50c75-a244-4ea2-9654-54dd96447b40&amp;img_etag=%22903a725d8bf325bbc73c8d54bb816503%22&amp;size=1024)
 
-乔·拜登的团队上周发布了小拜登（Hunter Biden）的声明，承认他正在接受调查。
+（**推文链接 **https://twitter.com/Bill\_Binney/status/1340106702167961602）
 
-*亨特·拜登在声明中说：“昨天，我第一次得知特拉华州的美国检察官办公室告知 我的法律顾问，他们正在调查我的税务事宜。”*
+(**推文翻译**)Bill Binney, Constitutional Patriot @Bill\_Binney：(39)以2.12亿注册选民，66.2%的投票率计算，有1,4034万人投票。现在如果川普获得了7400万选票，那么拜登最多只能获得6634万张选票。这与我们得到的信息完全冲突（拜登宣称获得8100万张选票）。谎言，全都是谎言！
 
-*“我非常认真地对待这一问题，但我相信，对这些问题进行专业和客观的审查将证 明我合法且适当地处理了我的税务事宜，其中包括经过专业税务顾问咨询后的所 有的税务优惠。”*
+http://worldpopulationreview.com/state-rankings/number-of-registered-voters-by-state
 
-**他的父亲（乔•拜登）说他相信他的儿子没有做错任何事，并对他有信心。**
+宾尼指出的是，根据《华盛顿邮报》的数据，2020年的选民投票率是一个多世纪以来最高的:
 
-[!\[\]()!\[\](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/53612d38-ec20-4879-a6e5-e902f0337c69.jpg?asset_id=88d2f810-114f-4caf-a1fe-0e9432579fec&amp;img_etag=%2249ab11c01a9ff06a6460206dfe66f7d0%22&amp;size=1024)](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/53612d38-ec20-4879-a6e5-e902f0337c69.jpg?asset_id=88d2f810-114f-4caf-a1fe-0e9432579fec&amp;img_etag=%2249ab11c01a9ff06a6460206dfe66f7d0%22&amp;size=1024)亨特·拜登（左）于2020年11月7日在特拉华州威尔明顿拥抱他的父亲，民主党总统候选人提名的乔·拜登（安德鲁·哈尼克/ 普尔 /美联社照片）
+[!\[\]()!\[\](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/3b61ca76-f55b-45b6-8c8d-7c3b6443ddad.jpg?asset_id=511ad853-5f01-47e0-b81b-c259f2139aa9&amp;img_etag=%22f88ef3df85443960aa8e2555b62ba387%22&amp;size=2560)](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/3b61ca76-f55b-45b6-8c8d-7c3b6443ddad.jpg?asset_id=511ad853-5f01-47e0-b81b-c259f2139aa9&amp;img_etag=%22f88ef3df85443960aa8e2555b62ba387%22&amp;size=1024)
 
-巴尔拒绝对亨特·拜登进行调查似乎使唐纳德·川普总统很不高兴。
+当然，这从表面上看就意味着欺诈，因为没有人对投票给乔-拜登感到兴奋。但是《华盛顿邮报》以他们的极左极端偏见，不会认为这是欺诈。
 
-***“为什么比尔·巴尔没有在大选前向公众透露关于亨特·拜登犯罪的真相，致使 乔·拜登在总统侯选人辩论台上撒谎，说亨特·拜登什么都没做错，什么都 没有做，”川普在一条推文中写道。***
+宾尼附上了美国注册选民人数的链接。我们拷贝了一份截至到今天的数据，并将这些选民人数了加起来。当我们把登记的选民人数相加时，我们得到的结果是，截至今天上午，美国有2.138亿注册选民。
+[!\[\]()!\[\](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/5e38e6a8-b6ee-4c06-8763-0a9cf9cb6391.jpg?asset_id=afe1a9a4-13be-47b3-8515-992b5435e11b&amp;img_etag=%225dbfbb48f45382387cbbd4f8ea07464a%22&amp;size=4546)](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/5e38e6a8-b6ee-4c06-8763-0a9cf9cb6391.jpg?asset_id=afe1a9a4-13be-47b3-8515-992b5435e11b&amp;img_etag=%225dbfbb48f45382387cbbd4f8ea07464a%22&amp;size=1024)
+用截止到今天的数据，其与Binney的数据有实质性的相似，我们发现了一个巨大的问题。如果在美国我们有2.138亿注册选民，66.2%的选民在2020年大选中投票，那么相当于有1.415亿名选民在2020年大选中投票（Binney显示的是1.4亿，实质上是一样的）。
 
-川普在接受福克斯新闻采访时补充说：
+**如果特朗普总统赢得7400万张选票，那么拜登只剩下6750万张选票。这意味着有1300万张重复或编造的选票被制造出来，并被计入拜登的选票!**
 
-*“乔·拜登在总统候选人辩论台上撒谎。他说‘亨特•拜登什么都没有做，什么 罪行都没有。’而比尔·巴尔这时就应该站出来戳穿他。另外一个例子是罗伯 特·穆勒（Robert Mueller），当[新闻媒体]发布伪造的文章时…鲍勃·穆勒站出来 说，该文章是伪造的，然后最终证明我没有串通俄罗斯。比尔·巴尔应该做同样的 事情。”*
+**这也佐证了我们最初的发现。拜登以所有可以想象到的方式进行欺诈，但最大的窃取是数以百万计的假票，这些假票是为拜登窃取选举而制造的。数百万张！**
 
-**穆勒曾被任命为特别顾问，负责调查川普涉嫌与俄罗斯的关系，在调查期间，穆勒曾多次对各种报告中的不实报道做出强烈回应。**
+**2020年的选举错的没边儿，数据就根本对不上**。**这不是严谨的数学—非常简单的数学，甚至不严谨的人都应该能够理解**。**显而易见，拜登阵营实施了高级别的欺诈舞弊。**
 
-*穆勒办公室发言人彼得·卡尔在一月份的一份声明中说：“ BuzzFeed对特别顾问 办公室的具体声明，以及该办公室获得的关于迈克尔·科恩在国会作证的文 件和证词的报道都是不正确的。”*
-
-Buzzfeed声称川普指示他的前律师迈克尔·科恩在有关莫斯科川普大厦项目的会谈时间向国会撒谎。**穆勒小组的最终报告显示该事件是捏造的。**
-
-[原文链接](https://www.zerohedge.com/political/barr-defends-not-making-hunter-biden-probe-public-election?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+[原文链接](https://www.thegatewaypundit.com/2020/12/breaking-huge-simple-math-shows-biden-claims-13-million-votes-eligible-voters-voted-2020-election/)
 
 [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
@@ -72,8 +72,6 @@ Buzzfeed声称川普指示他的前律师迈克尔·科恩在有关莫斯科川�
 
 [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/uKdnFHkLF9uQ1/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/uKdnFHkLF9uQ1/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/)
+[!\[\]()!\[\](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

@@ -1,22 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登的高层幕僚与中共国的大疆有关联
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/676733/)
+## 【林伍德律师推文1222】-中共渗透的几个大公司
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/676888/)
 
-加拿大多伦多枫叶农场 文所未闻
-校对 上传 云起时
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22185347/Digital-Camera-World.jpg)图片来源：Digital Camera World
-据国家脉搏 (National Pulse) 12月22日报道，民主党总统候选人乔·拜登（ Joe Biden）的高级幕僚-就职委员会高级发言人的高级幕僚（Matt Hill）和国家通讯主任梅拉·伯恩斯坦（ Meira Bernstein）都曾在“全球战略集团”就职，而该集团是一家代表中共国大疆游说的咨询公司。该公司将大疆与Facebook、Google谷歌和Twitter一起列为科技行业的 “客户 “之一。
+12月22日The Epeco Times 报道了一篇关于泄漏的中共党员清单显示，数百名中共党员被安插在IBM，3M，PepsiCo这种美国顶尖公司里。
 
-自2017年以来，总部位于中共国的大疆被美国国土安全部认定为 “有选择地针对政府和私营实体，以扩大其收集和利用美国敏感数据的能力”。这些担忧促使美国内政部将整个大疆无人机机队停飞，”理由是越来越担心来自中共国制造商的国家安全风险”。美国国防部和美军也纷纷效仿。《纽约时报》曾在2016年报道了大疆在中共国举行的新闻发布会上，该公司发言人张凡夕介绍了大疆 “如何遵守中共国政府的要求，交出数据”。大疆已被川普政府（同众多其他与中共有关联的公司一起）列入黑名单，禁止其在美国经营。
+林伍德律师转推了这篇文章称：
 
-尽管有这些顾虑，但拜登竞选团队还是放心地雇佣这两个人。希尔在竞选期间担任拜登的国家新闻副秘书，现在是其就职委员会的高级发言人，2016年至2018年在“全球战略集团”担任助理。希尔还曾担任时任副总统拜登的实习生，他称自己“帮助指导副总统乔·拜登的宣传战略”。此外，竞选期间的国家通讯主任梅拉·伯恩斯坦在2013年至2014年担任“全球战略集团”的助理，2014年至2015年晋升为高级助理。大疆是一家遵守中共数据共享要求的公司，显然，希尔和伯恩斯坦对此没有任何疑议。
 
-尽管川普政府及其盟友，如众议员马特·盖茨（Matt Gaetz）对该中共国公司（“大疆”）进行了打击，但是拜登若上台还是有可能改变这些 – 因为拜登、他的家人和竞选工作人员对中共国的妥协是众所周知的。
+> 在过去的二三十年里，中共党员渗透到美国的媒体、学术界，从地方、州到国家的政府官员、社区组织和……我们的企业。
 
-评：拜登、他的家人及其工作人员跟中共国有着千丝万缕的利益联系。大疆只是其中一个例子。清理沼泽地，正当时，又任务艰巨。
 
-[原文链接](https://thenationalpulse.com/exclusive/biden-staffers-dji-drones/)
 
-0
+
+> Over the past 2-3 decades, members of Communist Chinese Party have infiltrated U.S. media, academia, government officials at local, state, & national level, community organizations and . . . our businesses.[https://t.co/qrVy48Fv1f](https://t.co/qrVy48Fv1f)
+> — Lin Wood (@LLinWood) [December 23, 2020](https://twitter.com/LLinWood/status/1341541582718316547?ref_src=twsrc%5Etfw)
+
+
+
+新闻素材和图片来自林伍德律师推特和https://www.theepochtimes.com/ibm-3m-pepsico-among-leading-us-firms-that-house-chinese-communist-party-units-leaked-database\_3628066.html
+
+
+
+1+

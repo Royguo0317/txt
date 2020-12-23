@@ -1,26 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1222】-中共渗透的几个大公司
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/676888/)
+## 川普总统：我们离胜利越来越接近了
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/676904/)
 
-12月22日The Epeco Times 报道了一篇关于泄漏的中共党员清单显示，数百名中共党员被安插在IBM，3M，PepsiCo这种美国顶尖公司里。
+多伦多枫叶农场 阿黎
+校对 上传 云起时
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22204215/the-conversation.jpg)图片来源：The Conversation
+大纪元12月21日报道，美国总统唐纳德-川普周日在WABC电台上谈到对关键战场州选举结果进行的挑战时说：“我们越来越近了，越来越近了。我希望你能让大家知道，我们其实已经非常接近了。”
 
-林伍德律师转推了这篇文章称：
+川普说：“假新闻不会告诉你这些。他们不想谈论它。他们试图压制它。我们根本没有新闻自由。这是压制新闻。这是一个可怕的事情，竟发生在我们国家。这是怎么回事？ 它在之前已经持续了很长一段时间， 但如今已经到了一个临界点， 这是一个可怕的事情。这不是新闻自由， 我们得把它带回来， 因为新闻是如此的压制。它是如此的不诚实。我甚至不叫它假新闻了，我称它为腐败新闻，”
 
+拜登在11月3日宣布自己选举获胜。12月14日，在各州开会投票后，他宣称他得到了306张选举人票。
 
-> 在过去的二三十年里，中共党员渗透到美国的媒体、学术界，从地方、州到国家的政府官员、社区组织和……我们的企业。
+但川普、他的竞选团队和其他共和党人正在挑战包括宾夕法尼亚州和佐治亚州在内的各州的选举结果，指出这些州存在违规行为和可能的欺诈行为。川普总统在给他的律师朱利安尼的电话上说：“这是迄今为止最腐败的选举。”
 
+到目前为止，这些法律挑战都没有导致结果的改变，但在密歇根州进行的一个案件得出了一份关于多米尼投票机器和软件的法医审计报告，该审计报告说明该县臭名昭著的选票翻转是投票系统设计的结果。
 
+朱利安尼上周末向各州提出挑战，要求让他和其他的团队亲自检查投票机。他说，如果他们这样做，他们将能够证明这些州的欺诈行为。
 
+“机器，还有签名验证。让我们看看佐治亚州富尔顿县的签名，还有其他几个地方的签名，让我们看看签名，你会发现，几十万个签名要么不存在，要么是被欺诈性地签了。”
 
-> Over the past 2-3 decades, members of Communist Chinese Party have infiltrated U.S. media, academia, government officials at local, state, & national level, community organizations and . . . our businesses.[https://t.co/qrVy48Fv1f](https://t.co/qrVy48Fv1f)
-> — Lin Wood (@LLinWood) [December 23, 2020](https://twitter.com/LLinWood/status/1341541582718316547?ref_src=twsrc%5Etfw)
+富尔顿县回应他们没有任何错误。佐治亚州正在周一启动全州范围内的签名匹配工作，但川普总统表示，他们只是在糊弄了事。他们不选择问题最严重的地方开始查验，而是在那些欺诈不是很严重的地区开始，但仍然会发现很多欺诈问题。他说，你会看到几十万个虚假的签名，或者是根本不存在的签名。
 
+评：
 
+川普总统说，我们离推翻拜登胜选的欺诈选举结果越来越近了。有常识的人相信这个说法，因为川普律师团队已掌握巨量的各战场州的欺诈选举证据，从多米尼机器, Smartmatic软件，到假选票的人证和物证，都足以证实各州的选举欺诈事实。那些签字验证假选举结果的州长和州务卿们已经严重触犯了法律，川普总统完全可以下令逮捕他们，将他们绳之以法。目前还没有这样做，说明一切都在川普总统和他领导的正义力量的掌控之中。
 
-新闻素材和图片来自林伍德律师推特和https://www.theepochtimes.com/ibm-3m-pepsico-among-leading-us-firms-that-house-chinese-communist-party-units-leaked-database\_3628066.html
+主流媒体轻易不报道对他们不利的真相。他们让不明真相的公众相信拜登当选总统，完全不报道川普大选律师团队挑战腐败选举的进展，使川普总统的支持着也逐渐对川普赢回选举失去信心。这是黎明前的至暗时刻，曙光即将来临，上帝会帮助我们，正义一定能够战胜邪恶。川普必胜！
 
+[原文链接](https://www.theepochtimes.com/trump-were-getting-closer-and-closer-to-successful-challenge-to-election-results_3627102.html?utm_source=news&amp;utm_medium=email&amp;utm_campaign=breaking-2020-12-21-1&amp;fbclid=IwAR0NlhGUYEvkfjK3CWeLOD-hlfkUeidLiH4x7i3CNj2VkGzMSglhmqFkhC8)
 
-
-1+
+2+

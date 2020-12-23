@@ -1,22 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 网络超限反击战或已秘密打响
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/676828/)
+## 南部战区驱离麦凯恩号罪莫大焉意味着习近平统帅已经食言而肥
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/676895/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22193345/55-1.jpg)
-摘要—— 郭先生21号盖特暗示中共的国家电网、统计中心、卫生安全、出入境、金融等数据中枢系统已经被黑客入侵
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22204359/%E5%B0%81%E9%9D%A2-28.png)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-郭先生在21号的盖特中向战友们暗示，中共的多项国家级网络数据中枢系统，已经在全面的网络黑客入侵行动中被彻底攻破。 其中便包含**国家电网、国家统计局数据中心、公共医疗卫生安全局、边防出入境**以及金融等多项国家级大数据综合网络中枢系统。
+据雷达视频2020年12月22日发布的[美舰擅闯我南沙岛礁邻近海域，南部战区回应](https://haokan.baidu.com/v?vid=14398819605535260561&amp;pd=bjh&amp;fr=bjhauthor&amp;type=video)：
 
-结合前几日郭先生的盖特以及直播内容来看，中共此前曾秘密借道俄罗斯的网络系统做跳板，迂回攻击美国的国家战略骨干数据网络节点，并嫁祸于俄罗斯的卑鄙做法，已经被美俄双方所识破。而美方旋即故意公开指责俄方的网络入侵行为是极为危险并不负责的蓄意挑衅时，俄方对中共的态度迅速急转直下，中共自以为这招借刀杀人可以再次挑起美俄之间的敌对态势，自己好在之间暗获渔人之利。**未曾料想此举会令莫斯科大为光火，作为对中共的警告与报复，俄方随即斩断了对大陆地区的电力输送项目**，以及大幅提高对华出口物资的关税总额，令已经陷入能源危机的中共更加雪上加霜！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22193405/0704c0f35ee04c32905aa5ec78affd43-1.jpeg)
-郭先生的比喻极为恰当准确，共匪从不承认自己利用黑客手段对他国进行网络入侵活动。同样，共匪也绝对不会承认自己的国家级网络数据中枢，被第三方黑客彻底完全入侵的既定事实。因为中共一向只报喜不报忧，不要脸不顾腚的狂吹自己无所不能、无坚不摧。宇宙第一强大的中共怎么可能会被第三方轻易入侵呢？
+共匪党卫军这一举动意味着什么？
 
-近期大陆南方多个省区接连不断爆出的所谓应对“节能减排”而展开的“拉闸限电”措施，再结合郭先生的盖特及直播内容对比来看，广东省的这次无预警式大范围断电断网异象绝非偶然。战时评估演练估计只占很小一部分比重，**相信应该是中共在遭受毁灭性网络攻击中迫不得已的应激手段**，彻底切断电力供应与网络链路，以达到物理层面的绝对隔离，这是最原始也最为立竿见影的防御手法。
+这一举动意味着对伟大领袖、统帅、舵手、敬爱的习近平总书记的彻底打脸，因为伟大领袖、统帅、舵手、敬爱的习近平总书记在2015年9月他就任国家主席后首次访问美国，在2015年9月25日与奥巴马总统共同出席的记者招待会上，他是这样说的——
 
-长三角与珠三角是中共大陆的金融、轻工业、边贸等核心所在区域，这次大范围的拉闸限电措施也正巧先后发生在上述两个区域之内。 中共慌乱的抛出“节能减排”政策用以安抚民众的不解与质疑。而郭先生则一语道破此中玄机——真正的网络超限反击战已经开始！ **眼光要放远，别只顾着眼前，多向上看，忽略掉周遭的背景杂音，你才能听到真实的旋律！**
+［We have in-depth discussion on the situation of the Asia Pacific.  And we believe that China and the United States have extensive common interests in this region, and we should continue to deepen dialogue and cooperation on regional affairs and work together to promote active interactions and inclusive cooperation in the Asia Pacific, and work with countries in the Asia Pacific to promote peace, stability, and prosperity in this region.
 
-内军事：快慢机
+我们深入讨论了亚太地区形势，认为中美两国在这一地区拥有广泛共同利益，应该继续就地区事务深化对华合作，努力构建双方在亚太积极互动和包容合作的关系，同地区国家一道促进亚太和平、稳定、繁荣。
+
+China is committed to the path of peaceful development and a neighboring foreign policy characterized by good neighborliness and partnership with our neighbors.  Islands in the South China Sea since ancient times are China’s territory.  We have the right to uphold our own territorial sovereignty and lawful and legitimate maritime rights and interests.  We are committed to maintaining peace and stability in the South China Sea, managing differences and disputes through dialogue, and addressing disputes through negotiation, consultation, and peaceful manner, and exploring ways to achieve mutual benefit through cooperation.
+
+中国坚持走和平发展道路，坚持以邻为伴、以邻为善的周边外交政策，南海诸岛自古以来就是中国领土，我们有权维护自己的领土主权和合法、正当的海洋权益，我们致力于维护南海和平稳定，坚持通过对话管控争议，坚持通过谈判协商和平解决争议，积极探索通过合作实现互利共赢。
+
+We’re committed to respecting and upholding the freedom of navigation and overflight that countries enjoy according to international law.  Relevant construction activities that China are undertaking in the island of South — Nansha Islands do not target or impact any country, and China does not intend to pursue militarization.
+
+坚持尊重和维护各国依据国际法享有的南海航行和飞跃自由，中国在南沙群岛的有关建设活动，不针对、不影响任何国家，也无意搞军事化。
+
+China and the United States have a lot of common interests on the issue of South China Sea.  We both support peace and stability of the South China Sea.  The countries directly involved should address their dispute through negotiation, consultation and in peaceful means.  And we support freedom of navigation and overflight of countries according to international law and the management of differences through dialogue, and full and effective implementation of DOC and an early conclusion of the consultation of COC based on consensus-building.  We have agreed to maintain constructive communication on relevant issues.
+
+中美双方在南海问题上有着诸多共同利益，双方都支持南海和平稳定，支持直接当事国通过谈判协商和平解决争议，支持维护各国依据国际法享有航行和飞跃自由，支持通过对话管控分歧，支持全面有效落实南海各方行为宣言，并在协商一致基础上尽早完成南海行为准则磋商。双方同意继续就有关问题保持建设性沟通。］，以视频为证——
+
+[奥巴马习近平白宫记者会](https://youtu.be/jGjjMZtyndE) 时间点：[15:58](https://youtu.be/jGjjMZtyndE?t=958)——
+
+
+
+共匪南部战区2020年12月22日对于麦凯恩号的所谓警告驱离意味着什么？它意味着伟大领袖、统帅、舵手、敬爱的习近平总书记把自己的承诺当成了放屁，他不但自己食言而肥，而且他把整个国家带入了与美国冲突的边缘，他让整个党卫军被美国及其他国家的联军合法合情合理消灭变得不可逆转。
+
+南部战区对麦凯恩号的所谓警告严重伤害了我们十四亿中国人民对伟大领袖、统帅、舵手、敬爱的习近平总书记的深厚感情，因为我们十四亿中国人民天天在学习强国中成长，习近平思想就像乳汁一样培育了众多小粉红、老粉红、脑残的无知和亢奋，让这些小粉红、老粉红、脑残越发精神病焕发，当这些小粉红、老粉红、脑残们发现伟大领袖、统帅、舵手、敬爱的习近平总书记说做不一，他们是要学习昨天的领袖还是今天的领袖呢？既然伟大领袖、统帅、舵手、敬爱的习近平总书记说话不如放屁，那劳什子《习近平谈治国理政》以及一系列习思想的“著作”的存在意义是什么呢？这些东西不如手纸，因为擦起屁股来咯腚，连腚都接受不了的东西，它还能起到什么作用呢？
+
+呜呼哀哉！呜呼痛哉！南部战区罪莫大焉！
+
+（文章内容仅代表作者个人观点）
 
 2+

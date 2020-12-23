@@ -1,29 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 台湾呼吁加拿大加入全球抵“共”联盟
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/676351/)
+## 民主党人保护中共的宣传机构“孔子学院”免受惩罚
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/676490/)
 
-俄罗斯莫斯科喀秋莎农场 银河
+新闻来源：The National Pulse《国家脉动》； 作者：NATALIE WINTERS； 发布时间：2020年12月18日
 
-校对上传 星河
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22153818/Snipaste_2020-12-22_22-47-08.png)图片来源 : singtao.ca
-台湾外交部长吴钊燮12月17日接受加拿大环球邮报(The Globe & Mail)专访时表示，台湾深受中共军事威胁，呼吁加拿大与理念相近的民主国家，形成抵“共”联盟一起制裁中共，加强与台湾贸易往来，捍卫民主自由。
+翻译/简评：新街口；校对：SilverSpurs7；审核：johnwallis；Page：小雨
+[!\[\]()!\[\](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/7f64e296-d04d-4872-a2da-2286126545fe.jpg?asset_id=1bf99f00-af44-4e86-93ce-241e32a9a3ba&amp;img_etag=%22ea370d6be461846cc40573db7b3c59cf%22&amp;size=1024)](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/7f64e296-d04d-4872-a2da-2286126545fe.jpg?asset_id=1bf99f00-af44-4e86-93ce-241e32a9a3ba&amp;img_etag=%22ea370d6be461846cc40573db7b3c59cf%22&amp;size=1024)
+#### **简评：**
 
-12月21日，中华民国外交部网站发布了此条为“参考062号新闻”资料，表达了台湾正在寻求全球抗“共”联盟、阻止中共全面占据台湾、加强国际贸易往来以及增加国际话语权策略的紧迫性和重要性。
+众所周知，孔子学院是中共对其他国家进行渗透和蓝金黄的一个重要环节。孔子学院打着学习中文，推广孔子文化的幌子，用国际汉语考试认证作为绑架工具，在它国的大、中、小学建立分支机构，派遣中共宣传间谍人员，以文化交流为幌子对所在国家进行各种渗透和入侵。进而以学术界为起点和跳板，对所在国的文化、政治、科技和国防进行全方位的渗透。
 
-外交部长吴钊燮在专访中讲到：台湾位于中共军事威胁的第一线，中共已经对台湾发动了“灰色地带”军事攻击战略。中共海军在东海、南海及印度洋动作频频，近期几乎每日都会入侵台湾西南防空识别区。中共公开表达了不放弃武统台湾的意愿，近期更是拟发布《国家统一法》，为占领台湾做法理背书。台湾对中共的扩展主义及对中共的渗透战略理解深刻，因此呼吁全球理念相同的民主国家结盟合作，共同抵“共”。吴钊燮表示，台湾不会向加拿大寻求直接军事援助，但希望加拿大与美国、澳洲、日本、欧洲和其他民主国家共同对中共采取行动，让中共必须对进犯台湾有所顾忌。
+该国防法案的初衷是通过教育部的拨款限制，对那些设立有孔子学院的各级学校进行管控，从而把孔子学院全面清除出美国的教育体系。经过修改的法案，执行人从教育部变成了国防部；执行的范围也缩小到了只能是国防部资助的科研项目。孔子学院在小学、中学和大学中的非国防项目不会受到影响。
 
-吴钊燮强调中共对香港、台湾、澳洲及加拿大的“战狼”行为已经让国际社会了解到中共的扩张主义。中共对台湾的威胁比过去的60年更加严重且真实。中共使用网络信息战控制各国媒体平台散布不实信息，进行网络信息超限战对多国主权渗透干预。台湾已经施行“反渗透法”（Anti-infiltration Act）,旨在对境外势力渗透、委托、资助的虚假宣传或组织施以刑法约束，建议加拿大可参考拟定同类方案。
+民主党控制的众议院对该法案的修改，证明了民主党还没有认识到，或者是故意否认孔子学院对各级校园的广泛渗透已经影响到了美国的国家安全。孔子学院是一个高度组织化的渗透、宣传和间谍机构，必须完全清除，才能够去除其对美国国家安全的威胁。
 
-台湾是加拿大在全球位列第13、亚洲位列第五的贸易伙伴。吴钊燮希望在和平互惠平等的原则下加强台加经贸合作及各领域的伙伴关系。同时期望台加可早日签订“投资促进保障协议”（FIPA），希望加拿大政府可以支持台湾加入“跨太平洋伙伴全面进步协定”（CPTPP）。
+#### **原文翻译：**
 
-参考链接：
+# 民主党人保护中共的宣传机构“孔子学院”免受惩罚
+[!\[\]()!\[\](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/94aaf32c-91ac-41b4-8297-aedaa076ec25.jpg?asset_id=8e8c44e9-6abc-4cae-9f9e-b5abe66069ed&amp;img_etag=%22cd86124a0a9a0b0e34d987cde7a02fa9%22&amp;size=1024)](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/94aaf32c-91ac-41b4-8297-aedaa076ec25.jpg?asset_id=8e8c44e9-6abc-4cae-9f9e-b5abe66069ed&amp;img_etag=%22cd86124a0a9a0b0e34d987cde7a02fa9%22&amp;size=1024)
+众议院民主党人修改了一项针对于那些开办了由中共国政府资助的孔子学院的大学的法案。这项修改不仅取消了教育部限定孔子学院资金来源的权利，也使教育部失去了削弱中共在美国校园中影响力的能力。
 
-[https://www.mofa.gov.tw/News\_Content\_M\_2.aspx?n=8742DCE7A2A28761&sms=491D0E5BF5F4BC36&s=DFD85236F964C3C0](https://www.mofa.gov.tw/News_Content_M_2.aspx?n=8742DCE7A2A28761&amp;sms=491D0E5BF5F4BC36&amp;s=DFD85236F964C3C0)
+该法案在参议院获得一致通过，其中包括一项条款：允许教育部可以扣留那些开办了孔子学院的大学的资金拨款。
 
-[https://www.theglobeandmail.com/politics/article-taiwan-urges-canada-to-join-global-coalition-against-china/](https://www.theglobeandmail.com/politics/article-taiwan-urges-canada-to-join-global-coalition-against-china/)
+12月11日国会通过的修订版，大大阉割了这一条款。现在，只有国防部才有权力从这些大学中扣留联邦政府的拨款。
 
-[https://udn.com/news/story/6656/5110417](https://udn.com/news/story/6656/5110417)
+根据国会高级助理的说法，该修正案将法案的范围缩小为“保护国防部资助的研究活动，而不是原先计划的广泛保护范围。”这也将使孔子学院更容易在小学、初中和高中阶段继续运营。
 
+根据孔子学院的中共政府资助和旨在对美国学生进行倡导中共利益的宣传目的，川普政府将孔子学院指定为“外国使团”。
+
+然而，民主党人似乎对此并不认同。他们的这种不认同激怒了国会中的共和党同事。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/258b756b-1b66-43de-bca7-df66229e711b.jpg?asset_id=7c41a312-b880-44fd-b5dc-84fa1133ac32&amp;img_etag=%220ded90137d2b96894957f5eb64a038f4%22&amp;size=1024)](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/258b756b-1b66-43de-bca7-df66229e711b.jpg?asset_id=7c41a312-b880-44fd-b5dc-84fa1133ac32&amp;img_etag=%220ded90137d2b96894957f5eb64a038f4%22&amp;size=1024)
+
+帮助制定反孔子学院法案的参议员约翰•肯尼迪（John Kennedy）说，民主党人“摧毁了”对抗中国共产党在学术界影响力的关键武器。
+
+他补充说：“中共国仍然在美国校园中发挥影响力，但民主党人摧毁了国防授权法修正案，该修正案可以保护学术自由，并使美国大学能够控制孔子学院在我们的国土上所教授的内容。”
+
+众议院少数党领袖凯文•麦卡锡（Kevin McCarthy）同样抨击了民主党人，因为他们未能有效应付中共政府。
+
+国防授权法案对孔子学院态度的改变是民主党中国问题的另一个例子。美国人知道，需要一种全社会的方法来打击中共对我们民主自由的攻击。我们必须采取全面的方法，尤其是借鉴中共国问题特别工作组的建议。我们的解决方案不应该受到这种范围的限制。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/8de09e09-abcd-407f-9178-5422ff24060b.jpg?asset_id=b24a07ac-6daf-4454-a62a-1c1281dbc9db&amp;img_etag=%222bee2f25cbcff9cf91264f5a0ff6647d%22&amp;size=1024)](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/8de09e09-abcd-407f-9178-5422ff24060b.jpg?asset_id=b24a07ac-6daf-4454-a62a-1c1281dbc9db&amp;img_etag=%222bee2f25cbcff9cf91264f5a0ff6647d%22&amp;size=1024)
+
+Natalie Winters是《国家脉动》的高级记者，也是《国家脉动》电视节目的制片人。
+
+[原文链接](https://presentdangerchina.org/2020/12/release-stop-mnuchins-perfidious-effort-to-eviscerate-trump-order-barring-indexes-etf-underwriting-of-malign-ccp-companies/)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/SPweYkiSPDR7Y/)
+[!\[\]()!\[\](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0
