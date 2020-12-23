@@ -1,36 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1222】-预谋已久的国会修正案
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/676823/)
+## 中共很可能在拿伊朗核问题作要挟
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/676909/)
 
-12月22日推特劲爆了一条2020年7月20日公布的对一份众议院修正案的投票，这是对批准或拒绝H.Amdt.833（Veronica Escobar）对H.R.6395的修正案的投票。该修正案通过修订《美国法典》第10篇第13章中的《叛乱法》，要求总统在内乱期间在美国境内部署现役军人时，必须向国会进行认证。
+内新闻/素材：铜豌豆 校对：文迹~见证神迹
 
-当时的投票结果是215票赞同190票反对。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22193010/congress-vote.png)
-网友称，隐藏在5,893页的法案中，预计总统会VETO(否决法案)，”取消总统对《叛乱法》的使用。”
+中共外交部发言人汪文斌在2020年12月18日（上周五）宣布，伊朗核问题外长视频会议将于12月21日（周一）举行，国务委员兼外交部长王毅将出席。2020年12月21日，视频会议上王毅就伊朗核问题提出的四点主张，登上了新华、人民、澎湃、新浪、环球等主要的中共大外宣媒体的版面醒目位置，也登上伊朗国家通讯社、南华早报、CGTN、雅虎新闻等网站。
 
-林伍德律师回推：
+此举非同小可。首先从时间点来看，2017年、2018年以及2019年的三次伊朗核问题外长级别的会议都是在9月份举行的，分别在9月20日、9月24日以及9月25日。即使美国于2018年5月8日通过总统备忘录的形式单方退出了伊核协议之后，中共国参加伊朗核问题外长级别会议的时间安排也没有发生过变化。
 
+其次，会议之前的细微变化非常值得注意。新华社在18日，也就是提前三天放了风；21日，外交部出来高调的答记者问。汪文斌在今天的答记者问环节中，第一个就安排了中共总台央视记者提问了关于中共对伊朗核问题全面协议各方外长视频会议的看法。众所周知，外交部的记者会上提问的记者都是被提前安排来作秀的，所问的问题也都是经过中共筛查通过了的。被中共安排在第一个提问的问题，一般是要表达重要意义的。中共要想跟全世界，尤其是美国表达什么呢？
 
-> 任何国会成员如果投票取消总统VETO否决权是美利坚合众国的叛徒。
-> 
-> 另外，国会如此限制行政长官使用《叛乱法》的努力是违宪的。
-> 
-> 爱国者们你们醒了吗？
+汪文斌说，伊朗核问题形势高度复杂敏感。虽然只有一句话，却是在警告。再看看王毅就伊朗核问题提出的四点主张。第一条，他讲到要保持战略定力，这是对欧盟、英国、法国、德国在喊话；他还讲到要鲜明的反对极限施压，这是对伊朗在喊话。第二条，他敦促美方应尽快无条件重返协议，这是在跟乔·拜登喊话和施压，拜登还是美国奥巴马政府副总统的时候，就曾经表达过这个意愿。第三条，他提到支持国际原子能机构开展对伊核查和深化合作，这意味着联合国国际原子能机构在中共的掌控之中，中共会利用这个机构，就像是中共操控世界卫生组织一样，将控制这个机构在伊朗的活动。第四条，他说要妥善处理地区安全问题，言外之意，就是这个地区将不安全，这是一句赤裸裸的威胁的话。
 
+中共选择在这个时间做这样的表态绝非心血来潮，伊朗是中共在中东的邪恶伙伴，中东地区被伊朗武力威胁的国家必须加倍小心！
 
+新闻链接：
+[http://www.xinhuanet.com/world/2020-12/21/c\_1126889116.htm](http://www.xinhuanet.com/world/2020-12/21/c_1126889116.htm)
+[http://world.people.com.cn/n1/2020/1221/c1002-31974114.html](http://world.people.com.cn/n1/2020/1221/c1002-31974114.html)
+[http://www.xinhuanet.com/world/2020-12/18/c\_1126880082.htm](http://www.xinhuanet.com/world/2020-12/18/c_1126880082.htm)
+[http://www.gov.cn/guowuyuan/2019-09/26/content\_5433221.htm](http://www.gov.cn/guowuyuan/2019-09/26/content_5433221.htm)
+[https://news.ifeng.com/c/7zvaWyQ53b6](https://news.ifeng.com/c/7zvaWyQ53b6)
+[http://www.gov.cn/guowuyuan/2018-09/25/content\_5325250.htm](http://www.gov.cn/guowuyuan/2018-09/25/content_5325250.htm)
+[http://world.people.com.cn/n1/2017/0922/c1002-29551191.html](http://world.people.com.cn/n1/2017/0922/c1002-29551191.html)
 
-
-> Any member of Congress who votes to override [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) veto is a traitor to the United States of America.
-> 
-> Plus such an effort by Congress to limit the Chief Executive’s use of the Insurrection Act is unconstitutional.
-> 
-> Patriots are you awake yet? [https://t.co/xkt2do8xt4](https://t.co/xkt2do8xt4)
-> — Lin Wood (@LLinWood) [December 22, 2020](https://twitter.com/LLinWood/status/1341530906855690240?ref_src=twsrc%5Etfw)
-
-
-
-新闻素材和图片来自林伍德律师推特和 https://www.govtrack.us/congress/votes/116-2020/h141
-
-0
+1+

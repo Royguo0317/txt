@@ -1,39 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】鲍威尔暗示军事介入的其他可能性
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/676114/)
+## 【朱利安尼推文1222】拜登黑名单的第一名
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/676228/)
 
-作者：香草山写作组 正义的小新 校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14092131/GNEW-GTV-MOS-LOGO-2.jpg)
+12月22日朱利安尼先生推文：
 
 
-
-近日，川普总统及其团队的律师詹娜·埃利斯都表示，没有计划使用《起义法》和实施戒严令。然而，鲍威尔律师通过其电报渠道（telegram）建议，实施军事介入还可能通过其他途径。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22142433/25-1.png)图片来源：美联社
-鲍威尔在加密的应用程序Telegram上建立了群组，可以“绕过”被渗透的主流媒体进行新闻播报，非常易于使用且非常有效。截至目前，鲍威尔的Telegram频道发展迅速，已有近5000个订阅者。
-
-以下是对鲍威尔在其Telegram频道上的内容分析。
-
-首先，鲍威尔在该频道的顶部固定了一个帖子，称她正被总统考虑作为调查选举欺诈的特别检察官。
-
-其次，在鲍威尔与弗林将军一起出席了周五在白宫椭圆形办公室举行的“深夜会议”后，鲍威尔在其频道推出了两个有关军事介入国内政治的文章。
-
-其中一个摘录自有关军民作战的美国军事联合学说，其中指出：“军事政府是有权决定通过武力或协议对本国、盟国或敌人领土的土地、财产和工业目标进行军事行动的最高权力机构，当需要实现国家战略目标或保护国家利益时，美国国民领导层可以决定进行军事干预。支持（美国政府）稳定工作的美军支持选举程序，以便在新政府恢复所有主权责任以及美国政治意愿得到执行之前，确认政府的合法性。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22142231/29.png)
-第二个是川普总统在推特上发表的一条推文，称媒体对他将在美国实施戒严的报道是“假新闻”。
-
-川普总统可能已决定让军队部分介入选举过程，也可能会在有争议的州举行重新选举。鲍威尔推断，总统不会实施戒严令。
-
-总统可能会任命一名特别检察官来调查在美国大选之前和之后发生的大规模选举舞弊，将结果交付给美国人民，并追究有关人员的责任。朱利安尼律师也一直在报告这种可能性。
+> 我很自豪地成为拜登复仇政府名单上的第一名。
+> 
+> 听起来，司法部的反川者们等不及拜登让司法部成为政府秘密警察了，就像他们在奥巴马时期一样。
+> 
+> 他们想没收我的电子邮件。
+> 
+> 没有理由
+> 
+> 没有不法行为
+> 
+> 律师-当事人特权？
 
 
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+> I’m proud to be number one on Biden Vindictive government list.
+> 
+> Sounds like the DOJ anti-Trumpers can't wait for Biden to make DOJ the GOVERNMENT Secret Police like they were under Obama.
+> 
+> They want to seize my emails.
+> 
+> No reason
+> 
+> No wrongdoing 
+>  
+> Attorney-Client privilege.?
+> — Rudy W. Giuliani (@RudyGiuliani) [December 22, 2020](https://twitter.com/RudyGiuliani/status/1341418729100423169?ref_src=twsrc%5Etfw)
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-0
+
+新闻来源 朱利安尼推文，图片来源 Facebook
+
+1+

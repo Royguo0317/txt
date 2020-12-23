@@ -1,26 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1222】-中共渗透的几个大公司
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/676888/)
+## 没有什么事“不关我事”，也没有什么事“不关你事”！
+` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/677005/)
 
-12月22日The Epeco Times 报道了一篇关于泄漏的中共党员清单显示，数百名中共党员被安插在IBM，3M，PepsiCo这种美国顶尖公司里。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22210230/image0-15.png)
+作者：ThreeColors (京都富士会）
 
-林伍德律师转推了这篇文章称：
+校正：待命（文晓）（京都富士会）
 
+排版：待命（文晓）（京都富士会）
 
-> 在过去的二三十年里，中共党员渗透到美国的媒体、学术界，从地方、州到国家的政府官员、社区组织和……我们的企业。
+据说大连又有地方封城了，也有人讨论说：中共在中国各地主动播报一些规模不大不小的疫情，其目的是让中国人在反反复复的疫情中被搞得精疲力尽，最后都自愿接种中共的疫苗。“事关你我”，如何应对？
 
+换个话题，2020中共宣布中国（数字）已实现全民脱贫！看着满大街的快递和外卖小哥，谁能想象得到他们中间有几万甚至十几万的研究生呢！他们的父母难道都是农民吗？不可能吧！为了解决就业问题，中央下达了把各高校派大量毕业生支援西部不发达地区作为重要的考核制度。谁的孩子会被派到西部地区呢？肯定不会有你的孩子吗？不一定吧！
 
+最近，中共新闻频频出现美国等外国卡中国的“脖子”等相关内容，比如：美国卡中国自行车制造业的脖子；美国卡中国汽车产业的脖子；美国卡中国手机产业的脖子；马上可能还会卡中国高铁和飞机等交通制造行业的脖子，影响中国在贫困或发展中国家贩卖疫苗等等商业活动；澳洲反制中国决定卡中国进口澳洲煤炭的脖子……中共在怎么解释寒冬腊月？连最基本的保持人类和动物生命的供暖能力都无法保证之惨状的？谁敢保证自己的家不会断电呢？
 
+很多中国人一生就爱说两句话：“不关我事！”“不关你事！” 有中共在一天，不用说中国这个假小康国家了，就连像日本和澳洲这些发达国家都处在种种危机和被不公平对待之中！
 
-> Over the past 2-3 decades, members of Communist Chinese Party have infiltrated U.S. media, academia, government officials at local, state, & national level, community organizations and . . . our businesses.[https://t.co/qrVy48Fv1f](https://t.co/qrVy48Fv1f)
-> — Lin Wood (@LLinWood) [December 23, 2020](https://twitter.com/LLinWood/status/1341541582718316547?ref_src=twsrc%5Etfw)
-
-
-
-新闻素材和图片来自林伍德律师推特和https://www.theepochtimes.com/ibm-3m-pepsico-among-leading-us-firms-that-house-chinese-communist-party-units-leaked-database\_3628066.html
-
-
-
-1+
+0
