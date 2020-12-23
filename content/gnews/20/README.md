@@ -1,84 +1,158 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要每日推特重要信息汇总 （2020.12.21）
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/678435/)
+## 【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（五）
+` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/679037/)
 
-*信息汇总采编：战鹰团编辑部；Page：拱卒*
+翻译：紫丁香 ｜ 校对：Tom Cat ｜ 编辑、美工：灭共小宇宙
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23111428/%E7%BA%B3%E7%93%A6%E7%BD%97%E6%8A%A5%E5%91%8A4-copy.jpg)
+往期链接：
 
-# **美国政要每日推特重要信息汇总 （2020.12.21）**
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（一）](https://gnews.org/zh-hans/669414/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/v0Fr0RXeHcZa0/images/17b0537d-1d7d-4e2e-aa00-f77bfa420791.jpg?asset_id=46056960-9efa-4d9b-b8e3-a73855530454&amp;img_etag=%22c8e2349ce8c48fd2feec28c379733f58%22&amp;size=2560)](https://spark.adobe.com/page/v0Fr0RXeHcZa0/images/17b0537d-1d7d-4e2e-aa00-f77bfa420791.jpg?asset_id=46056960-9efa-4d9b-b8e3-a73855530454&amp;img_etag=%22c8e2349ce8c48fd2feec28c379733f58%22&amp;size=1024)
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（二）](https://gnews.org/zh-hans/675333/)
 
-#### **经授权转载自：**
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（三）](https://gnews.org/zh-hans/675371/)
 
-- 川普彭斯等政要…直譯推twitter：[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
-- 川普彭斯等政要…直譯推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
-- 川普彭斯等政要…直译推GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（四）](https://gnews.org/zh-hans/675720/)
 
+———————
 
-## ***美国国务院：***
+## IV. Ballot Mishandling
 
-[!\[\]()!\[\](https://spark.adobe.com/page/v0Fr0RXeHcZa0/images/49591e64-e3bd-4016-84b8-c2dedf8fef25.jpg?asset_id=90418077-fff2-40d0-8c9b-d2cf73b52e0b&amp;img_etag=%229c65b101500107b0cc024d8bd774c6bc%22&amp;size=2560)](https://spark.adobe.com/page/v0Fr0RXeHcZa0/images/49591e64-e3bd-4016-84b8-c2dedf8fef25.jpg?asset_id=90418077-fff2-40d0-8c9b-d2cf73b52e0b&amp;img_etag=%229c65b101500107b0cc024d8bd774c6bc%22&amp;size=1024)
+## IV. 选票处理不当
 
-国务卿蓬佩奥 @SecPompeo ：#中国共产党 的信仰战争针对基督徒，穆斯林，佛教徒和法轮功修炼者等。这个党谁都不放过。
+Ballot mishandling represents the second major dimension of alleged election irregularities in the 2020 presidential election. As Table 4 illustrates, this is a multifaceted problem across the battleground states. Let’s work our way through this figure starting with the failure to properly check the identification of voters.
 
-## ***国务卿蓬佩奥：***
+2020年总统大选中，选票处理不当是涉嫌选举违规行为的第二个重要方面。如表4所示，这是跨越各个战场州的一个多方面问题。我们用自己的方式， 通过这个表格， 从未进行选民身份验证的方面开始。
 
-今天，我宣布了对 #中国共产党 和 #中华人民共和国 官员的签证实施更多限制的措施，据信这些官员负责或参与压制少数民族成员，宗教信仰者和人权维护者。
+Table 4: Ballot Mishandling in the Battleground States
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23111622/Screen-Shot-2020-12-24-at-12.16.10-AM.png)
+表4：战场州选票处理不当
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23111749/Screen-Shot-2020-12-24-at-12.17.35-AM.png)
+### No Voter I.D. Check
 
-## ***参议员吉姆·班克斯：***
+### 未进行选民身份验证
 
-证实斯威尔威尔和 #中共 的故事是真的。（附推文：好消息！ 《环球时报》宣布克里斯汀·芳/斯威尔威尔的故事“完全是在诽谤中国”，并补充说，我们“应该为稳定中美关系做出贡献，而不是捏造和散布谣言。”）
+It is critical for the integrity of any election for poll workers to properly verify a voter’s identity and registration when that voter comes in to cast an in-person ballot. However, there is at least some evidence of a lack of adequate voter ID check across several of the battleground states.
 
-## ***参议员汤姆·科顿：***
+投票站工作人员合理验证选民身份，以及在选民到场投票时进行登记的过程，至关重要。但是，至少一些证据显示在几个战场州并没有进行充分的选民身份认证。
 
-绝不仅仅是亨特·拜登。这是一个套路，乔·拜登的家人几十年来一直在利用他的名声和公职身份做生意赚大钱。乔·拜登需要站出来回答关于这些事情的所有问题。完毕。
+For example, in Michigan, the chairperson of a polling location permitted an individual to vote without presenting voter identification and another with only a photocopy of a driver’s license.43
 
-## ***美国国务院：***
+例如，在密歇根州，一个投票站的负责人允许一个人投票无需出示身份证明，而另一个仅提供驾驶执照复印件。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/v0Fr0RXeHcZa0/images/6b8e783d-5c2d-4d42-aa04-9a55c1d6c64b.jpg?asset_id=6957b254-166a-4e7d-a725-e2273ff632f7&amp;img_etag=%22129fab4df88bc1c453d9737b302b92da%22&amp;size=2560)](https://spark.adobe.com/page/v0Fr0RXeHcZa0/images/6b8e783d-5c2d-4d42-aa04-9a55c1d6c64b.jpg?asset_id=6957b254-166a-4e7d-a725-e2273ff632f7&amp;img_etag=%22129fab4df88bc1c453d9737b302b92da%22&amp;size=1024)
+In Nevada, poll workers were instructed to advise people who wanted to register to vote and did not have proper Nevada IDs or Driver’s Licenses to do the following: These unregistered voters could go outside into the parking lot and make an appointment with as late as January 2021 to obtain a Nevada Driver’s License as proof of their identity. They could then bring in confirmation of their DMV appointment in either paper or digital form; and that would be sufficient to allow them to be registered.44
 
-川普总统 @realDonaldTrump：美国正以和平缔造者的角色履行天命，但这和平要通过强大实力来实现。
+在内华达州，投票站工作人员被指示，给那些想要注册投票但没有合适内华达州身份证件或驾驶执照的人提供建议，建议他们可以进行以下操作：这些未注册的选民可以去到停车场，与机动车管理部门预约最迟到2021年1月，用来获得一个内华达州的驾驶执照作为他们的身份证明。接下来，他们只需携带车辆管理部门的书面或电子形式的确认表格；而仅凭这个，他们就被允许注册。
 
-## ***川普总统：***
+### Signature Matching Abuses
 
-两类疫苗的分发非常顺利。有多少的人将注射疫苗啊，创纪录的数字。我们的国家，实际上是整个世界，将很快看到川普内阁所完成的伟大奇迹。他们说这本来不可能做到！！！
+### 签名匹配滥用
 
-## ***参议员瑞克·斯科特：***
+It is equally critical that ballot counters legally verify mail-in and absentee ballots by checking if the signatures on the outer envelopes match the voters’ registration records.45 Note, however, that a variety of signature matching abuses represent a major issue in Nevada, Pennsylvania, and especially in Georgia.
 
-[!\[\]()!\[\](https://spark.adobe.com/page/v0Fr0RXeHcZa0/images/bf85093a-5763-4aae-930a-389355509bbf.jpg?asset_id=9f86c5df-b651-46e3-9d37-33ee84fc753a&amp;img_etag=%22446234007c814732b962d6d99ed8365a%22&amp;size=2560)](https://spark.adobe.com/page/v0Fr0RXeHcZa0/images/bf85093a-5763-4aae-930a-389355509bbf.jpg?asset_id=9f86c5df-b651-46e3-9d37-33ee84fc753a&amp;img_etag=%22446234007c814732b962d6d99ed8365a%22&amp;size=1024)
+点票人员需要通过验证信封上的签名是否与选民登记时的记录匹配，来依法验证邮寄和缺席选票，同等重要。45但是，注意，各式各样的签名匹配滥用在宾夕法尼亚州，内华达州，特别是在佐治亚州成了重大问题。
 
-很高兴我的同事们一同采取了反对 #共产中国 的立场，并一致通过了我的“购买美货决议”。 拒绝购买 #中共国 制造的产品，是美国消费者能够对付 #中共国（China）日益增长的影响力的最好手段。
+In Georgia, contrary to state law, the Secretary of State entered into a Consent Decree with the Democrat Party that weakened signature matching to just one verification instead of two. This illegal weakening of the signature match test has called into question more than 1.2 million mail-in ballots cast in Georgia.46
 
-## ***川普总统：***
+在佐治亚州，违反州法律的规定，州务卿与民主党达成协议降低签名匹配验证标准，由一次验证代替了原来的两次。非法降低签名匹配检测标准，已使人们对佐治亚州的120万份邮寄投票产生了质疑。46
 
-在那个深夜，民主党在摇摆州倾倒了百万计的选票，这是一场被操控了的大选！！！
+Georgia is not the only state where signature match check abuses have surfaced. Nevada law requires that persons – not machines – review all signatures and ballots. Yet the Clark County Registrar of Voters used a defective signature matching computer system called Agilis to conduct such checks.47 As will be discussed further below, this problem of machines replacing humans contrary to Nevada state law was compounded by the fact that the Agilis system has an unacceptably low accuracy rate, making it easier for illegal ballots to slip through its screen.48
 
-## ***美国国务院：***
+佐治亚州不是唯一出现滥用签名匹配验证的州。内华达州法律要求人工而非机器验证所有签名和选票，然而克拉克县选民登记人员使用了名为艾格里斯 （Agilis）的有缺陷的签名匹配计算机系统来进行检验。47以下进行进一步的阐述，机器取代人工的问题违反了内华达州法律，同时艾格里斯（Agilis）系统的准确率低到无法接受，这让非法选票更容易通过。48
 
-国务卿蓬佩奥 @SecPompeo ：（我们）这个国家，乃至自由世界，确实花了很长时间才了解当今中国的发展轨迹。
+Signature match abuses also surfaced in Wisconsin where mandatory voter information certifications for mail-in ballots were reduced and/or eliminated, again contrary to state law. As noted in one lawsuit, this change “undermined the authority of the state legislature, reduced the security and integrity of the election by making it easier to engage in mail-in ballot fraud and created another standard-less rule in conflict with the clear terms of the Wisconsin Election Code, preventing uniform treatment of absentee ballots throughout the State.”49
 
-## ***美国国务院：***
+威斯康星州也出现了签名匹配滥用现象，这里针对邮寄选票的强制性选民信息认证被降级或取消，这又一次违反了州法律。正如一个诉讼中指出，这个更改“破坏了州立法机关的权威性，通过易于进行邮寄选票欺诈的操作降低了选举的安全性和完整性，同时建立了另一个与威斯康星州选举法中明确条款相冲突的降低标准条款，阻止在整个州对缺席选票进行统一处理。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/v0Fr0RXeHcZa0/images/ad6465fc-1d96-4b3b-bae9-ac6670d278c0.jpg?asset_id=d6b8d0e8-5574-47e4-886a-98aef4bfa74a&amp;img_etag=%22ff058f5bb82a5c66cc2fc59c4129b621%22&amp;size=2560)](https://spark.adobe.com/page/v0Fr0RXeHcZa0/images/ad6465fc-1d96-4b3b-bae9-ac6670d278c0.jpg?asset_id=d6b8d0e8-5574-47e4-886a-98aef4bfa74a&amp;img_etag=%22ff058f5bb82a5c66cc2fc59c4129b621%22&amp;size=1024)
+### “Naked Ballots” Lacking Outer Envelope
 
-国务卿蓬佩奥@ SecPompeo：#中国共产党 想要我们拥有的一切，它将不择手段据为己有，从窃取我们的东西到迫使批评 #中共 的人保持沉默。
+### “裸票” 外部信封缺失
 
-## ***美国国务院：***
+A naked ballot is a mail-in or absentee ballot lacking an outer envelope with the voter’s signature on it. It is illegal to accept the naked ballot as the outer envelope provides the only way to verify a voter’s identity.
 
-#中国共产党 对美国国家安全的威胁已扩展到我们的金融市场，并影响了美国投资者。来了解下流入主要指数的资金如何支持参与军事生产和侵犯人权行为的 #中共国 公司：
+裸票是指邮寄或缺席选票缺少带有选民签名的信封。接受裸票是违法的，因为外部信封是核实选民身份的唯一方法。
 
-（附国务院新闻公告：美国投资人在主要股指市场为恶性 #中共国 公司提供资金）
+The illegal acceptance of naked ballots appears to be particularly acute in Pennsylvania as a result of ill-advised “guidance” issued by the Secretary of State – a registered Democrat50– that such naked ballots be counted.
 
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/v0Fr0RXeHcZa0/)
+因一名注册的民主党州务卿发布的不当指南，宾夕法尼亚州非法接受裸票得情况显得尤为严重，这样的裸票仍被计算在内。
 
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+This issuance of such guidance, in violation of state law,51 appears to be a blatant attempt by a Democrat politician to boost the count for Joe Biden as it was clear that Democrats would be voting disproportionately higher through mail-in ballots. This incident is especially egregious because when the Pennsylvania Supreme Court rejected this guidance, the Secretary of State refused to issue new guidance directing election officials to NOT count non-compliant mail-in or absentee ballots.52
 
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+这个指南的发布违反了州法律，民主党政客公然企图增加乔∙拜登的选票数量，因为已经非常清楚民主党使用邮寄选票的比例过高。该事件极为严重，当宾夕法尼亚州最高法驳回该指南时，州务卿拒绝发布新的指南来指导选举官员不要将不合规的邮寄或缺席选票计算在内。
 
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+### Broken Chain of Custody & Unauthorized Ballot Handling or Movements
 
-[!\[\]()!\[\](https://spark.adobe.com/page/v0Fr0RXeHcZa0/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/v0Fr0RXeHcZa0/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+### 监管链断裂和未经授权选票的处理或转移
 
+The maintenance of a proper chain of custody for ballots cast is the linchpin of fair elections. Chain of custody is broken when a ballot is fraudulently transferred, controlled, or moved without adequate supervision or oversight.53
+
+维护严格意义上的投票监管链是公平选举的关键。当选票在没有足够的监管或监督情况下欺骗性地被调换、控制或转移， 投票监管链就断裂了。
+
+While chain of custody issues can apply to all ballots, the risk of a broken chain of custody is obviously higher for mail-in and absentee ballots. This is because the ballots have to go through more hands.
+
+监管链问题适用于所有投票表决，但监管链破裂的风险在应用邮寄和缺席选票时明显更高，因为这些选票必须经过更多人的手。
+
+In the 2020 presidential election, the increased use – often illegal use – of unsupervised drop boxes arguably has enhanced the risk of a broken chain of custody. So, too, has the increased practice of so-called “ballot harvesting” whereby third parties pick up ballots from voters and deliver them to drop boxes or directly to election officials.
+
+在2020年总统大选中，无人监管投递箱的使用增加，而且通常是非法使用，这加大了监管链破裂的风险。这样的话，也使所谓的“选票收集”的操作增多，即第三方从选民那里收集选票并将其运送到投递箱或直接交给选举官员。
+
+Both drop boxes and ballot harvesting provide opportunities for bad actors to insert fraudulent ballots into the election process. That this is a very serious matter is evident in this observation by BlackBoxVoting.org: “In court cases, chain of custody violations can result in refusal to admit evidence or even throwing a case out. In elections, chain of custody violations can result in ‘incurable uncertainty’ and court orders to redo elections.”54 (emphasis added)
+
+投递箱和选票收集都为选举过程中掺入虚假选票的不良行为提供机会。从黑箱投票网的评论中从可以看出，这是一个非常严重的问题（黑箱投票网成立于2003年，是一个无党派的选举调查报告和公共教育组织）：“在法庭案件中，违反监管链的行为可能导致拒绝接受证据，甚至败诉。在选举中，违反监管链的行为可能带来“无法改变的不确定性”和重新进行大选的法庭令。”
+
+As an example of the drop box problem, in Pennsylvania, ballots were illegally dumped into drop boxes at the Nazareth ballot drop center in violation of state law.55 Likewise in Pennsylvania, a man caught on videotape and photos came out of an unmarked Jeep extracting ballots from an unsupervised ballot drop-box to bring them into a ballot counting center. That same man was observed to come back with an empty ballot container to place in the unsupervised drop box.56
+
+举个投递箱问题的例子，在宾夕法尼亚州，选票在违反州法律的情况下，被非法倾倒入拿撒勒选票中心的投递箱。同样在宾夕法尼亚州，一名男子被拍摄到，从一辆无标记的吉普车中下来，由无人看管的投递箱中抽出选票，将他们携带入计票中心。同样是这名男子被观察到带回一个空的选票箱，并将其放在无人监督的投递箱中。
+
+In Wisconsin, the state’s Election Committee illegally positioned five hundred drop boxes for collection of absentee ballots across the state. However, these drop boxes were disproportionately located in urban areas which tend to have much higher Democrat registration, thereby favoring the candidacy of Joe Biden. Note: Any use of a drop box in Wisconsin is illegal by statute. Therefore, the votes cast through them cannot be legally counted in any certified election result.57
+
+在威斯康星州，州选举委员会非法投放500个投递箱在全州范围收集缺席选票。但是，这些投递箱大多被安放在较多民主党选民登记的城区，以有利于候选人乔·拜登。注意：依据法规，在威斯康星州使用投递箱是非法的。因此，通过这样的方式投票，选票不能合法地计入任何经过认证的选举结果。
+
+As an example of ballot harvesting – in this case at the front end of the process – 25,000 ballots were requested from nursing home residents in Pennsylvania at the same time.58
+
+作为选票收集的一个范例，这个案例的初始阶段，宾夕法尼亚州疗养院居民在同一时间申请25000张选票.
+
+As additional examples of a possible broken chain of custody, there are these: Large bins of absentee ballots arrived at the Central Counting Location in Wisconsin with already opened envelopes, meaning that ballots could have been tampered with.59 They were nonetheless counted.
+
+监管链存在断裂可能的其他范例还有：几个大箱的已开封的缺席选票抵达威斯康星州的计票中心，这意味着选票可能已被篡改。尽管如此，这些选票还是被计算在内。
+
+Also in Wisconsin, an election worker was observed moving bags of blank ballots into a vehicle and then driving off without supervision.60 There is also the previously referenced case whereby a truck driver as offered a firsthand account of moving large quantities of fake manufactured ballots from New York to Pennsylvania.
+
+在威斯康星州，还观察到一名选举工作人员将成袋的空白选票搬进一辆汽车，然后在没有监督的情况下开车离去。以及前面提到的，一名卡车司机提供了一手资料，声称从纽约运送大量造假选票到宾夕法尼亚州。
+
+As a final note on the unauthorized handling or movement of ballots, there is the problem of illegal ballot counters. These are persons who not legally permitted and/or certified to be counting ballots.
+
+对未经授权处理或转移选票的最终说明，实际存在非法计票的问题。有人未获合法许可，以及未被认证有资格计算选票。
+
+In one curious case, an individual who worked as an official photographer for Kamala Harris’ campaign in 2019 61 was alleged to be involved in scanning ballots in Floyd County, Georgia. Ballot counters cannot have any ties to candidates in a presidential election.
+
+在一个奇怪的案例中，一个人据称是2019年卡玛拉·哈里斯竞选活动的官方摄影师，涉嫌参与佐治亚州弗洛伊德县的选票扫描。点票人员不能与总统选举中的候选人有任何关联。
+
+### Ballots Accepted Without Postmarks and Backdating of Ballots
+
+### 接受不带邮戳及倒填日期的选票
+
+Across all of the battleground states, it is against state law for poll workers to count either mail-in or absentee ballots that lack postmarks. It is also illegal to backdate ballots so that they may be considered as having met the election deadline for the receipt and counting of such ballots. There is some evidence of these irregularities in several of the battleground states.
+
+在所有战场州中，投票工作人员计算没有邮戳的邮寄或缺席选票是违反州法律的。倒填选票日期，以便使选票符合选举截止日 ，从而被接受并计算是非法的。在几个战场州都有一些证据表明存在这些违规行为。
+
+For example, in Wisconsin, according to one Declaration, employees of the United States Postal Service (USPS) in Milwaukee were repeatedly instructed by two managers to backdate late arriving ballots so they could still be counted.62 In addition, the USPS was alleged to have backdated as many as 100,000 ballots in Wisconsin.63
+
+例如，在威斯康星州，根据一项法庭宣告，两名经理反复指示密尔沃基的美国邮政服务局（USPS）雇员倒填晚到选票的日期，以便这些选票仍然可以被计算在内。62此外，这个邮政服务局在威斯康星州涉嫌倒填选票日期多达100,000张。
+
+Similarly, in Detroit, Michigan, as noted in a court case, poll workers were instructing ballot counters to backdate absentee ballots so they could be counted.64 One poll watcher also observed ballots in Michigan being run through vote tabulation machines without postmarks on them.65
+
+类似的，在密西根州底特律市，一宗法庭案件中指出，投票工作人员指示点票人员倒填缺席选票日期，以便选票可以被计算。一位投票观察员还观察到，在密歇根州没有加盖邮戳的选票在点票机上被点数。
+
+（未完待续）
+
+更多精彩内容请关注：
+
+- [美国纽约七星会农场（为子孙爱七哥）官推](https://twitter.com/wzsaqg)
+- [美国纽约七星会农场（为子孙爱七哥）GTV](https://gtv.org/web/?getterid=5f8e402d06847a4c6516bc73#/UserInfo/5e986b24b005bd6d929820bd)
+- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19044815/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-2.jpg)
 1+
