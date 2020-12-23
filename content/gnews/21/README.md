@@ -1,17 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 台湾国造潜舰舰队将成为吓阻中共航舰战斗群的利器
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/674840/)
+## 中俄19架军机疑进行联合军演侵犯韩国防空识别区
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/678285/)
 
 台湾农场(筹备) Amitofu
 
-国造潜舰原型舰11月24日正式动工，总共将建造八艘，首艘预计2025年出海测试。台湾若拥有潜舰，将能让岸置型反舰飞弹射程范围形成的海上防线外，当海战发生中共的护卫登陆船团航舰及舰队更可能遭我方潜舰攻击、削弱战力，中共急欲发展航舰的目的，是为了组成航舰战斗群和美国海空军力量分庭对抗，并在台海作战时能避开我军反舰飞弹射程。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22041045/8964-400x225.jpg)
-目前台湾规划的国造潜舰采用噪音较低的柴电混合系统，在水面时透过柴油发电机发电前进，潜水后改以锂电池供电的超静音发动机航行，低噪音的潜舰不易被共军侦测，并部署美军军售的MK-48重型鱼雷，加上国军本身拥有多种反舰飞弹、水雷及小型潜舰等，抵挡中共的离岸平衡战略，防止中共进行登陆战或海域封锁。
+韩国参谋部对路透社表示，19架俄罗斯与中共军机侵犯韩国防空识别区（KADIZ），疑似是进行联合军演，韩国派出战斗机采取战术措施，中俄战机似乎正测试韩国防空系统，迫使美国盟军派出战斗机维护。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23054758/korea-377x225.jpg)圖片來源:美聯社
+2019年7月俄罗斯与中共轰炸机的联合军演，曾经引发与韩国战斗机的冲突事件。报告指出中共轰炸机巡逻飞越朝鲜半岛和日本之间的海域，其他战机飞越韩国领空几英里，韩国战机发出警告弹和照明弹。7月事件发生后，俄罗斯国防部否认侵犯领空，并指责韩国战斗机人员进行了危险演习。韩国官方表示美军在日本和韩国设有军事基地，并指责中共政权变得越来越具有侵略性。本文仅代表个人立场
 
-国造潜舰将部署在台湾东北、东部、西南等海域，假使与中共发生台海战争，守住台湾东北海域就能增强驻日美军驰援；守住台湾东部菲律宾海域就能增加驻关岛美军驰援；守住台湾西南接近南海海域，就能增进美军从马六甲海峡北上驰援，国造潜舰舰队将成为吓阻中共航舰战斗群的利器。 本文仅代表个人立场
+参考资料[https://www.westernjournal.com/russia-china-intrude-us-allys-air-defense-space-joint-military-maneuver/](https://www.westernjournal.com/russia-china-intrude-us-allys-air-defense-space-joint-military-maneuver/)
 
-资料来源:[https://news.ltn.com.tw/news/politics/paper/1420386](https://news.ltn.com.tw/news/politics/paper/1420386)
-
-0
+1+

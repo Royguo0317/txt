@@ -1,274 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中国真的如其所言脱贫了吗？
-` Josh` [轉載自GNews](https://gnews.org/zh-hans/677508/)
+## 中共独裁政权对美国渗透的事实与危险
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/678293/)
 
-文贵先生12月21号在盖特转发了这个令人心碎短视频， 并评论：“这是共产党刚刚在全世界召开了成功扶贫经验．推广大会之后的中国的……真实情况……我R你共产党的八倍祖宗……”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23060327/1-223.png)[图片来源](https://news.creaders.net/us/2020/12/20/2301825.html)
+本文来自纽特·金里奇【华人对美国的渗透：第二部分|观点】
 
-文贵先生盖特链接：[https://gtv.org/getter/5fe12e5393a06b22d9e02e5d](https://gtv.org/getter/5fe12e5393a06b22d9e02e5d)
+**对美国政府的渗透**
 
+第一周，我报道了一位中共教授开诚布公的演讲，他解释说，中共在华尔街和华盛顿都有强大的盟友。他形容唐纳德·川普(Donald Trump)总统是中共对美计划的干扰。他相信，只要川普下台，中共就可以把美国重塑为适应集权独裁政权需求的角色，并将再次占据主导地位。
 
-[https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22233453/Miles\_20201221\_gt-2.mp4](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22233453/Miles_20201221_gt-2.mp4)
+现在，我想分享一系列故事，这些故事可以说明这位教授对中共独裁政权渗透美国的分析是多么真实与危险。
 
+最近披露的最令人吃惊、最发人深省的消息是，众议院情报委员会成员埃里克·斯瓦尔韦尔(Eric Swalwell)与一个名为方芳（Fāng Fāng）(又名克里斯蒂娜·方)的中共职业间谍关系密切。
 
-视频全文翻译：
+这个故事最令人惊叹的部分并不是议长南希·佩洛西(Nancy Pelosi)拼命想让他留在众议院情报委员会(House Intelligence Committee)。最有趣的问题是：为什么在联邦调查局警告佩洛西议长，埃里克·斯瓦尔韦尔与一名中共间谍有危险关系后，她还要任命他？
 
-你在干什么？
+不止如此。正如詹姆斯·弗里曼(James Freeman)在《华尔街日报》(Wall Street Journal)上指出的那样，斯瓦尔韦尔不仅被邀请加入委员会，他还被委任了一个特别的小组委员会任务，负责监督中央情报局(CIA)的资金。
 
-What are you doing?
+正如弗里曼所说：“就在几周或几个月前，联邦调查局(FBI)告诉他，他被骗与一名中共间谍建立了某种关系，国会中一名年轻的后座议员被任命为监督中央情报局(CIA)的重要角色？”“斯瓦尔韦尔先生和议长佩洛西都需要解释，除了其他问题外，谁知道中共渗透他政治圈子的内容和时间，以及为什么许多情报委员会的同事对此不知情。”
 
-我捡瓶子
+“他们还必须解决导致众议员斯瓦尔韦尔在监督中央情报局的过程中成为民主党人主要角色的过程。当议长准备指派委员会任务时，是谁代表这位年轻的国会议员发表意见的？不要告诉我们这是机密。”
 
-I’m collecting bottles.
+事实是：民主党今年失去了如此多的众议院席位，佩洛西却不能失去任何愿意投票支持她连任议长的议员。拜登每次提名另一名众议院民主党人担任政府职位时，这个问题都会变得更加复杂。她必须保护斯瓦尔威尔，否则他会投弃权票，不投票给她。
 
-冷不冷啊？
+中共进一步渗透的另一迹象：当众议员斯瓦尔韦尔决定为自己辩护时，他和吉姆·肖托一起接受了CNN的采访。肖托对此深表同情，因为他之前曾担任奥巴马-拜登政府驻华大使在北京的幕僚长。
 
-Don’t you feel cold?
+斯瓦尔韦尔并不是唯一一个与中共间谍有联系的加州民主党人。曾任参议院情报委员会(Senate Intelligence Committee)主席的参议员黛安·范斯坦(Dianne Feinstein)的一名司机与中共情报机构保持关系长达20年之久。
 
-不冷。
+事实上，扎克里·埃文斯(Zachary Evans)在《国家评论》(National Review)的一篇报道中描述了斯瓦尔韦尔和方芳之间的部分联系，也确认方是范斯坦的一名员工。根据Axios长达一年的调查发现，斯瓦尔韦尔参加了一场“由克里斯蒂娜·方(Christine Fang)组织的活动，方是一名疑似中国间谍，在2011年至2015年期间与斯瓦尔韦尔发展了关系。调查发现，方为这位国会议员拉来了一堆竞选捐款，甚至在他的办公室安排了一名实习生。”
 
-No, I’m not cold.
-不冷啊。
+**对美国体育，娱乐，文化特定行业的渗透**
 
-Not cold?
+然而中共对美国的渗透既聚焦于政治力量，也聚焦于经济力量。中国巨大的市场规模，以及集权独裁政权运用激进的奖惩（胡萝卜加大棒）手段，对特定的行业和公司产生了巨大影响力。
 
-怎么这下雨天的，你看头发都湿完了，怎么还出来捡瓶子。
+例如，当休斯顿的一位NBA总经理在推特上支持香港的民主抗议者时，我们亲身经历了中国独裁权力挥舞的这种力量。北京的反应是如此强烈，它对NBA(中国是NBA的第二大市场)的威胁如此巨大，以至于整个联盟都被迫磕头。冒犯它们的美国人被要求公开道歉。整个煎熬都带有毛泽东式的自贬“斗争场面”的影子。
 
-On such a rainy day, your hair’s got all wet, but why are you still out to pick up bottles?
+令人担忧的，正是这种经济实力让拜登可能任命一位好莱坞寡头担任美国驻华大使。正如《华盛顿自由灯塔报》(The Washington Free Beacon)的杰克·拜尔(Jack Beyrer)报道的那样，“假如乔·拜登(Joe Biden)当选总统，他可能会用与中共关系密切的好莱坞巨额捐款者来填补大使馆的关键职位。这引发了联邦介入调查。”
 
-我外婆马上要生日了, 我没钱检点瓶子换点钱。我要买给她一件衣服，新衣服。
+拜耳(Jack Beyrer)指出，梦工厂前首席执行官杰弗里·卡森伯格和迪士尼董事长鲍勃·伊格尔位居拜登榜首。2012年，由于与中国的商业交易，两人都因贿赂受到美国证券交易委员会(SEC)的调查。佩尔·拜尔(Per Beyrer)说：“拜登在奥巴马执政期间支持好莱坞进入中国市场。卡森伯格陪同时任副总统多次前往中国，而艾格则帮助拜登与(中共)强人习近平促成谈判。奥巴马政权不仅扩大了好莱坞在北京的准入，2012年还向梦工厂提供了与一家中国国有企业规模达3.3亿美元的合资企业–这笔交易后来成为SEC调查的核心内容。”
 
-My grandma’s birthday is coming, and I am out of money, so I pick up plastic bottles to trade for some money. I want to buy her a piece of clothing, a new piece of clothing.
+最后，考虑一下最近有报道称，中国向美国大学捐赠了大约10亿美元——美国大学现在隐瞒了这笔钱的来源以及它们是如何使用这笔钱的。
 
-要想买一件新衣服啊
+中国共产党独裁政权渗透美国的威胁并不遥远，而是我们眼前正面临的危机。
 
-Want to buy her a new piece of clothing?
+评： 中共对美国的渗透不仅由来已久，其深度和广度都是美国各级政府和美国人民所不完全能了解和理解的。其实中共的渗透与威胁不仅是对美国的危机，而是对世界的威胁，它展示了中共控制美国从而达到控制世界的野心和邪恶力量。在美国民主共和两党从上到下都已渗透多年，在体育，娱乐，学校院所通过间谍，金钱等各种手段的利益交换控制政府官员。现在美国人才刚刚开始有些觉醒。
 
-嗯
+[原文链接](https://www.newsweek.com/chinese-penetration-america-part-two-opinion-1556074)
 
-Yep.
+翻译报道： Wendy
 
-衣服都湿透了孩子。
-
-Kid, your coat got soaked.
-
-没关系。
-
-It doesn’t matter.
-
-我可以去你家里看一下吗？
-
-Can I take a look at your home?
-
-可以。
-
-Yes, you can.
-
-好，我去你家看一下。
-
-Good, let’s go.
-
-到你家啦？这是你家吗？
-
-Have we arrived at your home? Is this your home?
-
-是。
-
-Yes, it is.
-
-这是你外婆吗？
-
-Is she your grandma?
-
-是。
-
-Yes, she is.
-
-阿嬷不舒服是吧？
-
-Your grandma isn’t feeling very well, right?
-
-嗯，她嗓子痒。
-
-Right, she has an itchy throat.
-
-嗓子痒。
-
-Her throat is itchy.
-
-嗯。请。
-
-Yes. Please come in.
-
-我捡了这么一点瓶子。
-
-I just collected these few bottles.
-
-这瓶子都是你捡的呀?
-
-Are they all collected by you?
-
-这一袋能卖多少钱？
-
-How much will you get for this one bag of bottles?
-
-嗯，两三块。
-
-Two to three Chinese Yuan [$0.40].
-
-两三块一袋啊？
-
-Two to three Yuan for a bag of bottles?
-
-你每天晚上吃什么呀？
-
-What do you have for dinner every evening?
-
-我们就吃土豆。
-
-We only have potatoes.
-
-就吃土豆啊？
-
-Only potatoes?
-
-嗯。
-
-Yes.
-
-那没有饭吃吗？
-
-Don’t you have rice to eat?
-
-没有。
-
-No, we don’t.
-
-怎么不吃饭？
-
-Why don’t you eat rice?
-
-因为家里面没米。
-
-Because we don’t have rice at home.
-
-一晚上就吃土豆？
-
-Do you solely eat potatoes for dinner [no other foods]?
-
-嗯，早上也吃土豆。
-
-Yes, and only potatoes for breakfast, too.
-
-早上也吃土豆，晚上也吃土豆？
-
-Do you have potatoes [only] for both breakfast and dinner?
-
-嗯。
-
-Right.
-
-你上几年级啊？
-
-What grade are you in?
-
-三年级。
-
-Third grade.
-
-爸爸妈妈呢？
-
-How are your parents?
-
-爸爸和妈妈离婚了。妈妈去坐15年的牢了。爸爸十年没见了。三岁就奶奶养成这么大。
-
-My mom and dad are divorced.My mom has been in prison for 15 years. Haven’t seen my dad for 10 years. My grandma  has been raising me since I was 3.
-
-跟奶奶在一起的？
-
-So you’ve been living with your grandma [for all these years]?
-
-嗯。
-
-Yes.
-
-想不想爸爸呀？
-
-Do you miss your dad?
-
-不想。
-
-No, I don’t.
-
-想不想妈妈？
-
-Do you miss your mom?
-
-想。
-
-Yes, I do.
-
-奶奶多大了呀？
-
-How old is your grandma?
-
-77.
-
-77 years old.
-
-可以去看妈妈了你会想说什么？
-
-What would you say to your mom if you could visit her?
-
-我会想说, 你会不会很快就回来？我好想你啊，我会这样子说。
-
-I would say, “Will you be back soon? I miss you so much!” I would say like this.
-
-如果妈妈在你身边你想跟她说什么？
-
-What would you tell your mom if she is by your side?
-
-我想跟她说，我们两个永远不会离开的。她骂我，我不会骂她。她打我我也不会哭。
-
-I want to tell her that we will never ever separate. If she scolds me, I won’t talk back. If she beats me, I won’t cry.
-
-为什么呀？
-
-Why?
-
-因为她，我是她亲生骨肉。十多年没见了。
-
-Because I am her own flesh and blood. We haven’t seen each other for more than a decade.
-
-十多年没见了？
-
-You’ve never seen each other for more than 10 years?
-
-嗯
-
-Yes.
-
-你想她了是吧？
-
-You miss her, right?
-
-嗯。我要去喂猪饭了。
-
-Yes. I have to feed the pigs.
-
-好。
-
-Alright.
-
-【编者注】文贵先生转发的这部短片是对中共的脸上一记响亮的耳光！ 视频的原始帖子结尾处评论说道：“小姑娘挺漂亮的， 看来也不知道她已经脱贫了”。 中共一直在欺骗中国人民和全世界。灭共是让中国人民摆脱贫困的唯一途径！Take down the CCP!
-
-听写& 翻译：【V%】 校对：【gavinguo(文钦)】字幕：【相机过热啊】视频解码：【恒久忍耐】编辑：【Isaiah4031】【Joshua Moses】
-
-
-
-> [中国已经脱贫？怎么做到的？又是一个”大跃进“吗？](https://gnews.org/zh-hans/621301/)
-
-
-
-0
+1+
