@@ -1,59 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 民主党人保护中共的宣传机构“孔子学院”免受惩罚
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/676490/)
+## 扒一扒泄露到外网的上海近两百万党员中的黄埔军校同学会成员
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/677120/)
 
-新闻来源：The National Pulse《国家脉动》； 作者：NATALIE WINTERS； 发布时间：2020年12月18日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22220248/%E5%B0%81%E9%9D%A2-67.jpg)
+撰稿：巴黎七星农场；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-翻译/简评：新街口；校对：SilverSpurs7；审核：johnwallis；Page：小雨
-[!\[\]()!\[\](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/7f64e296-d04d-4872-a2da-2286126545fe.jpg?asset_id=1bf99f00-af44-4e86-93ce-241e32a9a3ba&amp;img_etag=%22ea370d6be461846cc40573db7b3c59cf%22&amp;size=1024)](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/7f64e296-d04d-4872-a2da-2286126545fe.jpg?asset_id=1bf99f00-af44-4e86-93ce-241e32a9a3ba&amp;img_etag=%22ea370d6be461846cc40573db7b3c59cf%22&amp;size=1024)
-#### **简评：**
+据[甘肃省黄埔军校同学会接待上海中国和平统一促进会第二期港澳、海外理事国情研修班部分学员](http://www.huangpu.org.cn/gddt/201909/t20190916_12201714.html) （日期：2019-09-16 08:50 来源：甘肃省黄埔军校同学会）
 
-众所周知，孔子学院是中共对其他国家进行渗透和蓝金黄的一个重要环节。孔子学院打着学习中文，推广孔子文化的幌子，用国际汉语考试认证作为绑架工具，在它国的大、中、小学建立分支机构，派遣中共宣传间谍人员，以文化交流为幌子对所在国家进行各种渗透和入侵。进而以学术界为起点和跳板，对所在国的文化、政治、科技和国防进行全方位的渗透。
+9月11日晚，省黄埔军校同学会机关办公室主任姚惠珍、副主任王德川在兰州，与考察团团长、美国华盛顿中国和平统一促进会理事长、中国和平统一促进会常务理事吴惠秋，上海中国和平统一促进会副秘书长、上海市黄埔军校同学会副秘书长姚素妹等一行座谈交流。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22220541/1-151.jpg)
+姚惠珍和上海中国和平统一促进会副秘书长、上海市黄埔军校同学会副秘书长姚素妹（右）合影
 
-该国防法案的初衷是通过教育部的拨款限制，对那些设立有孔子学院的各级学校进行管控，从而把孔子学院全面清除出美国的教育体系。经过修改的法案，执行人从教育部变成了国防部；执行的范围也缩小到了只能是国防部资助的科研项目。孔子学院在小学、中学和大学中的非国防项目不会受到影响。
+下面我们对照泄露到外网的1957239名上海中共党员名单中扒一扒姚素妹所属的上海市黄埔军校同学会党支部的11名共产党名单 (注：为避免泄露个人信息，表格中身份证号码最后一位以\*代替，电话号码最后一位以\*代替，其中身份证号码中的\*代表0至9中的某一个数字或字母X，电话号码中的\*代表0至9中的某一个数字）：
 
-民主党控制的众议院对该法案的修改，证明了民主党还没有认识到，或者是故意否认孔子学院对各级校园的广泛渗透已经影响到了美国的国家安全。孔子学院是一个高度组织化的渗透、宣传和间谍机构，必须完全清除，才能够去除其对美国国家安全的威胁。
 
-#### **原文翻译：**
+|   |  程敉 |  市黄埔同学会机关党支部 |  31010119760415198\* |  null |   |
+| --- | --- | --- | --- | --- | --- |
+|   |  戴鸿发 |  市黄埔同学会机关党支部 |  31010819551225081\* |  1352481616\* |   |
+|   |  李攀 |  市黄埔同学会机关党支部 |  34052119820719001\* |  null |   |
+|   |  罗定国 |  市黄埔同学会机关党支部 |  15263219811203031\* |  null |   |
+|   |  沈洁蕴 |  市黄埔同学会机关党支部 |  31010419810817482\* |  null |
+|   |  徐国华 |  市黄埔同学会机关党支部 |  31010419480724001\* |  null |   |
+|   |  徐琳 |  市黄埔同学会机关党支部 |  31010919830602358\* |  null |   |
+|   |  姚素妹 |  市黄埔同学会机关党支部 |  31011519631005272\* |  null |   |
+|   |  俞钒 |  市黄埔同学会机关党支部 |  31010819660216442\* |  null |   |
+|   |  赵海华 |  市黄埔同学会机关党支部 |  31011019761228461\* |  null |   |
+|   |  周寅玮 |  市黄埔同学会机关党支部 |  31011519861231328\* |  1391856518\* |   |
+|  |  |  |  |  |  |  |  |  |  |
 
-# 民主党人保护中共的宣传机构“孔子学院”免受惩罚
-[!\[\]()!\[\](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/94aaf32c-91ac-41b4-8297-aedaa076ec25.jpg?asset_id=8e8c44e9-6abc-4cae-9f9e-b5abe66069ed&amp;img_etag=%22cd86124a0a9a0b0e34d987cde7a02fa9%22&amp;size=1024)](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/94aaf32c-91ac-41b4-8297-aedaa076ec25.jpg?asset_id=8e8c44e9-6abc-4cae-9f9e-b5abe66069ed&amp;img_etag=%22cd86124a0a9a0b0e34d987cde7a02fa9%22&amp;size=1024)
-众议院民主党人修改了一项针对于那些开办了由中共国政府资助的孔子学院的大学的法案。这项修改不仅取消了教育部限定孔子学院资金来源的权利，也使教育部失去了削弱中共在美国校园中影响力的能力。
 
-该法案在参议院获得一致通过，其中包括一项条款：允许教育部可以扣留那些开办了孔子学院的大学的资金拨款。
+根据姚素妹同志身份证号码31011519631005272\*可以推断出姚素妹同志出生于1963年10月5日，姚素妹同志一直以来以黄埔同学会副秘书长的身份内引外联，为党国统一大业操碎了心，在此向姚素妹同志及与她同属市黄埔同学会机关党支部的其他党员同志们致以崇高的敬意，留给贵会和贵党的时间不多了，请各位好自为之！
 
-12月11日国会通过的修订版，大大阉割了这一条款。现在，只有国防部才有权力从这些大学中扣留联邦政府的拨款。
+（文章内容仅代表作者个人观点）
 
-根据国会高级助理的说法，该修正案将法案的范围缩小为“保护国防部资助的研究活动，而不是原先计划的广泛保护范围。”这也将使孔子学院更容易在小学、初中和高中阶段继续运营。
 
-根据孔子学院的中共政府资助和旨在对美国学生进行倡导中共利益的宣传目的，川普政府将孔子学院指定为“外国使团”。
 
-然而，民主党人似乎对此并不认同。他们的这种不认同激怒了国会中的共和党同事。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/258b756b-1b66-43de-bca7-df66229e711b.jpg?asset_id=7c41a312-b880-44fd-b5dc-84fa1133ac32&amp;img_etag=%220ded90137d2b96894957f5eb64a038f4%22&amp;size=1024)](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/258b756b-1b66-43de-bca7-df66229e711b.jpg?asset_id=7c41a312-b880-44fd-b5dc-84fa1133ac32&amp;img_etag=%220ded90137d2b96894957f5eb64a038f4%22&amp;size=1024)
-
-帮助制定反孔子学院法案的参议员约翰•肯尼迪（John Kennedy）说，民主党人“摧毁了”对抗中国共产党在学术界影响力的关键武器。
-
-他补充说：“中共国仍然在美国校园中发挥影响力，但民主党人摧毁了国防授权法修正案，该修正案可以保护学术自由，并使美国大学能够控制孔子学院在我们的国土上所教授的内容。”
-
-众议院少数党领袖凯文•麦卡锡（Kevin McCarthy）同样抨击了民主党人，因为他们未能有效应付中共政府。
-
-国防授权法案对孔子学院态度的改变是民主党中国问题的另一个例子。美国人知道，需要一种全社会的方法来打击中共对我们民主自由的攻击。我们必须采取全面的方法，尤其是借鉴中共国问题特别工作组的建议。我们的解决方案不应该受到这种范围的限制。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/8de09e09-abcd-407f-9178-5422ff24060b.jpg?asset_id=b24a07ac-6daf-4454-a62a-1c1281dbc9db&amp;img_etag=%222bee2f25cbcff9cf91264f5a0ff6647d%22&amp;size=1024)](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/8de09e09-abcd-407f-9178-5422ff24060b.jpg?asset_id=b24a07ac-6daf-4454-a62a-1c1281dbc9db&amp;img_etag=%222bee2f25cbcff9cf91264f5a0ff6647d%22&amp;size=1024)
-
-Natalie Winters是《国家脉动》的高级记者，也是《国家脉动》电视节目的制片人。
-
-[原文链接](https://presentdangerchina.org/2020/12/release-stop-mnuchins-perfidious-effort-to-eviscerate-trump-order-barring-indexes-etf-underwriting-of-malign-ccp-companies/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/SPweYkiSPDR7Y/)
-[!\[\]()!\[\](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/SPweYkiSPDR7Y/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

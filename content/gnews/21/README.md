@@ -1,26 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1222】-中共渗透的几个大公司
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/676888/)
+## 台湾国造潜舰舰队将成为吓阻中共航舰战斗群的利器
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/674840/)
 
-12月22日The Epeco Times 报道了一篇关于泄漏的中共党员清单显示，数百名中共党员被安插在IBM，3M，PepsiCo这种美国顶尖公司里。
+台湾农场(筹备) Amitofu
 
-林伍德律师转推了这篇文章称：
+国造潜舰原型舰11月24日正式动工，总共将建造八艘，首艘预计2025年出海测试。台湾若拥有潜舰，将能让岸置型反舰飞弹射程范围形成的海上防线外，当海战发生中共的护卫登陆船团航舰及舰队更可能遭我方潜舰攻击、削弱战力，中共急欲发展航舰的目的，是为了组成航舰战斗群和美国海空军力量分庭对抗，并在台海作战时能避开我军反舰飞弹射程。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22041045/8964-400x225.jpg)
+目前台湾规划的国造潜舰采用噪音较低的柴电混合系统，在水面时透过柴油发电机发电前进，潜水后改以锂电池供电的超静音发动机航行，低噪音的潜舰不易被共军侦测，并部署美军军售的MK-48重型鱼雷，加上国军本身拥有多种反舰飞弹、水雷及小型潜舰等，抵挡中共的离岸平衡战略，防止中共进行登陆战或海域封锁。
 
+国造潜舰将部署在台湾东北、东部、西南等海域，假使与中共发生台海战争，守住台湾东北海域就能增强驻日美军驰援；守住台湾东部菲律宾海域就能增加驻关岛美军驰援；守住台湾西南接近南海海域，就能增进美军从马六甲海峡北上驰援，国造潜舰舰队将成为吓阻中共航舰战斗群的利器。 本文仅代表个人立场
 
-> 在过去的二三十年里，中共党员渗透到美国的媒体、学术界，从地方、州到国家的政府官员、社区组织和……我们的企业。
+资料来源:[https://news.ltn.com.tw/news/politics/paper/1420386](https://news.ltn.com.tw/news/politics/paper/1420386)
 
-
-
-
-> Over the past 2-3 decades, members of Communist Chinese Party have infiltrated U.S. media, academia, government officials at local, state, & national level, community organizations and . . . our businesses.[https://t.co/qrVy48Fv1f](https://t.co/qrVy48Fv1f)
-> — Lin Wood (@LLinWood) [December 23, 2020](https://twitter.com/LLinWood/status/1341541582718316547?ref_src=twsrc%5Etfw)
-
-
-
-新闻素材和图片来自林伍德律师推特和https://www.theepochtimes.com/ibm-3m-pepsico-among-leading-us-firms-that-house-chinese-communist-party-units-leaked-database\_3628066.html
-
-
-
-1+
+0

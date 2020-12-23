@@ -1,41 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普确认他与“伟大的绅士”汤米·图珀维尔通话，并对1月6日的挑战表示乐观
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/676865/)
+## 美国扩大制裁侵犯人权的中共官员
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/675443/)
 
-- 编辑：Victor Torres
-- 翻译：文用
+台灣農場(籌備) Amitofu
 
+美国国务卿蓬佩奥先生12月21日声明表示，中共威权统治者对中国人民的言论、宗教信仰、结社自由与和平集会实施严格的限制，美方清楚表明不欢迎这些侵犯人权的中共官员进入美国。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+蓬佩奥指出，依据“移民与国籍法”，第212（a）（3）（C）条对中共官员实施签证限制措施，这些官员被认为对政策负责或与之共谋，旨在压迫宗教人士、少数民族、异议人士、维权人士、新闻记者、劳工组织者、公民社会组织者，及和平抗议人士。包含禁止中共官员与其家庭成员可能面临相同的限制。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22082316/pomeo-400x225.jpg)
+这些举措表明美国政府要求中共对强力压制中国人民的行为负责， 12月7日，美方以破坏香港民主程序为由，制裁14位中国全国人大常委会副委员长。今年已对相关中共官员实施一系列签证限制与经济制裁措施，包含涉及新疆骇人人权侵犯事件、阻碍美国人士前往西藏，及破坏香港自治的官员。适用于所有进行镇压行动的中共官员，不无论他们身在何处。都施加了额外的限制。
 
-**西班牙2020年12月23日电/西喜社—**
+美国与和平行使权利却遭迫害的人们站在一起，例如新公民运动许志永律师、家庭教会牧师王怡、四川维权人士黄琦被以煽动颠覆国家政权定罪、土赫提（Ilham Tohti）的维吾尔族学者、民运人士黎智英，及藏语学家与企业人士扎西文色（Tashi Wangchuk）。呼吁中共立即释放他们，并尊重中国人民根据《世界人权宣言》应享有人权和基本自由。本文仅代表个人立场
 
-据National File周一报道，唐纳德·川普总统本周证实，他已和阿拉巴马州当选参议员汤米·图珀维尔进行了电话沟通，并对图珀维尔于1月6日挑战2020年选举人团投票结果的意愿表示乐观。
+資料圖片來源:美國國務院[https://www.state.gov/additional-restrictions-on-the-issuance-of-visas-for-peoples-republic-of-china-officials-engaged-in-human-rights-abuses/](https://www.state.gov/additional-restrictions-on-the-issuance-of-visas-for-peoples-republic-of-china-officials-engaged-in-human-rights-abuses/)
 
-“昨晚我和一位优秀的男士汤米·图珀维尔交谈，他感到非常兴奋。他说：“您使我成为美国最受欢迎的政治家，” 川普在纽约电台770 WABC节目中说到。“他说，‘我不敢相信。’他很棒。是一名优秀的参议员。”
-
-图珀维尔曾表示将为川普总统“努力奋斗”，正如《国家档案》（National File）上周的报道：
-
-在推特上由左翼激进分子共同编辑的视频中，当提到乔治亚州参议院决选时，图珀维尔说，“他们将要偷走它”。他还表示支持唐纳德·川普总统的大选被操控的观点，并指出乔·拜登声称的胜利是“不可能发生的事”。
-
-“我们正在将其全部纠正过来，”图珀维尔承诺。“不要放弃(川普)。”
-
-当被问及参议院共和党人后续有哪些可能有助于挑战选举结果的“手头上的技巧”，图珀维尔说：“好吧，你们关注接下来会发生的事情。你们已经在众议院看到了，我们也必将在参议院这样做。”
-
-“我们将努力奋斗。”图珀维尔承诺。
-
-不过在这些言论广为流传之后，图珀维尔又似乎显得犹豫，因其上周对黄鹦新闻（Yellowhammer News）表示：“他们问我，‘你要支持川普总统吗？’当然，我总是要支持川普总统。他是我一生中见过的最好的总统，他为这个国家和阿拉巴马州的人民做的事比任何人都多。但是，我们要确保我们做正确的事。”
-
-如果图珀维尔确实选择在1月6日挑战选举，他将加入由众议员莫·布鲁克斯（Mo Brooks）（阿拉巴马州共和党议员）牵头并承诺代表川普总统挑战结果的共和党代表联盟。
-
-共和党参议员约翰·图恩（John Thune）（南达科他州共和党议员），罗伊·布朗特（Roy Blunt）（密苏里州共和党议员）和林赛·格雷厄姆（Lindsey Graham）（南卡罗来纳州共和党议员）均表示，他们不会在1月6日支持川普总统。
-
-
-
-> [Trump Confirms He Spoke With ‘Great Gentleman’ Tommy Tuberville, Projects Optimism About January 6 Challenge](https://nationalfile.com/trump-confirms-he-spoke-with-great-gentleman-tommy-tuberville-projects-optimism-about-january-6-challenge/)
-
-
-
-0
+1+

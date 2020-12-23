@@ -1,28 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【Jenna Ellis推文1222】乔拜登仍然否认儿子犯罪事实
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/676462/)
+## 旭富制药爆炸后的思考
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/677059/)
 
-12月22日Daily Caller 发推一则视频称：
-
-
-> 当福克斯新闻的Peter Doocy问他是否仍然认为对亨特-拜登的指控是俄罗斯的虚假信息时，乔-拜登笑了。
-> 
-> “是的，是的，是的。上帝爱你，伙计。你就记着这个。”
+```
+单位：台湾宝岛农场(筹备)作者：黯然神殇
+```
 
 
-
-
-> What. [https://t.co/bfgrs6docd](https://t.co/bfgrs6docd)
-> — Jenna Ellis (@JennaEllisEsq) [December 22, 2020](https://twitter.com/JennaEllisEsq/status/1341484140684840960?ref_src=twsrc%5Etfw)
+12月20日中午，旭富制药的惊天一爆，除自己深陷火海外，也波及周边工厂以及环境污染，造成1死1伤。而酿成延烧57小时的大火，期间几次爆炸，所幸在打火兄弟的不懈努力之下，于22日晚间终于彻底熄灭，目前无复燃趋势。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22212617/1365x768_20201222000028.jpg)
+同时也宣告着，这间由瑞士Siegfried 集团于1987年在台湾所创设，拥有全球硫酸羟氯奎第二大产能的药厂，在面临CCP病毒以生物武器之姿向全球人类宣战之际，却因无妄之火付之一炬，同时也让中华民国在今年4月开始组建的制药国家队失去了一个对抗CCP病毒的有生战力。
 
 
 
-Jenna Ellis 回推：“什么。” 言外之意，大量如山的铁证虽然尚未曝光，乔拜登却斩钉截铁矢口否认。在适当时机时，长期进行的调查水落石出后，未来等着乔拜登的将不是冰冷的铁窗，也会是中共病毒的吞噬。
 
-新闻来源 Jenna Ellis 推文，图片来源推特和C-Span
+```
+旭富爆炸当日，中华民国食药署也于第一时间发布：因此药厂是以外销为主，应不致影响国内药品供应的声明。另硫酸羟氯奎在成立制造国家队后，在台湾便已列入特殊抗疫监管药物。
+```
 
+
+
+
+虽说中华民国国内不只其一家药厂，生产硫酸羟氯奎，也许其余药厂产能尚能应付国内医疗所需，但在这声明之中，也表明此后对外援助方面应是力有未逮了。
+
+旭富表示，生产线的重建推估最快也需6个月，为降低重建期间影响，目前正与制药同业讨论，将部份产品委外代工的可行性。如按郭先生所说，变异的CCP病毒所引发的第二次全球疫情，会在2021年的上半年间持续，其中最为严重是在3月，那么如此紧迫的时间，将使TAIWAN can help在国际上成为一句空话，但台湾整合能力的优势，加上国内药厂都是欧规PIC/S GMP厂，制药水平并无太大差异，依然存有继续向国际持续支援的希望。
+
+
+
+
+
+```
+中华民国中央流行疫情（CCP病毒疫情）指挥中心，于20日，也向外说明硫酸羟氯奎对于对治疗CCP病毒肺炎已不太重要，许是对于国内防治有成，境外移入病例监管有效，而未曾想过万一，此时的安逸心态，能否面对即将到来的第二波疫情？
+```
+
+
+
+
+
+而考验在旭富爆炸两天后到来，22日，指挥中心证实案771 的病例，让中华民国境内253天无本土病例的破功，事态会不会因此更为严重？之后的变异病毒具有更强的传染力，还能否按照目前的步调得以有效控制，这都是值得深思的问题。
+
+而这场爆炸的起因为何？是单纯人为事故？还是潜伏的匪谍所为？相信中华民国检调单位，情治机关会介入调查，如有后续发展，台湾方面将进一步跟进分析报导。
+
+
+
+
+
+```
+台湾的爆料革命，虽身处岛内，但战友以面向大陆，心怀天下的志气，希望能以台湾的角度，台湾所发生的事，结合真相给予广大战友更深入的分析。
+```
+
+
+
+
+
+参考资料:
+
+- [https://www.president.gov.tw/News/25276](https://www.president.gov.tw/News/25276)
+
+
+- [https://www.cna.com.tw/list/firstnews.aspx](https://www.cna.com.tw/list/firstnews.aspx)
+
+
+- [https://www.cdc.gov.tw/Bulletin/Detail/sM1nh2HCCrIM0CODkPDLqg?typeid=9](https://www.cdc.gov.tw/Bulletin/Detail/sM1nh2HCCrIM0CODkPDLqg?typeid=9)
+
+
+- [https://amp-news.cnyes.com/news/id/4553687](https://amp-news.cnyes.com/news/id/4553687)
+
+
+- [https://www.cna.com.tw/amp/news/firstnews/202012220085.aspx](https://www.cna.com.tw/amp/news/firstnews/202012220085.aspx)
 
 
 0
