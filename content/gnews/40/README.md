@@ -1,28 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普竞选团队的宪法之战打至最高法院
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/676437/)
+## 【林伍德律师推文1222】-NewsMax 为投票机站台
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/676533/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22155318/Capture-155.jpg)图片来源: [nbcnews](https://www.nbcnews.com/politics/2020-election/trump-campaign-website-hacked-n1245038)
-川普总统竞选团队网站12月20日发表声明，表明了要将法律战打到高院的决心，全文翻译如下：
+前日SmartMatic 要求林伍德律师撤回对投票机舞弊案件的诉讼，并发出对律师本人的起诉、对他施加威胁时，遭到林伍德律师拒绝。
 
-**川普总统的竞选团队于今日发表如下声明**：
+12月22日Newsmax为避免此前报道引起诉讼，公开发表声明：
 
-“唐纳德·J·川普总统公司、川普总统竞选委员会于今日向美国最高法院提交了一份移审令的申请，要求联邦最高法院推翻宾夕法尼亚州高院三起案件。在这三起案子中，宾夕法尼亚州的邮寄投票法在2020年总统大选日前后被立即非法修改，此举违反了美国宪法第二条和布什诉戈尔案（ Bush v. Gore）判例。这次申请是竞选团队首次独立在最高法院立案，同时也基于布什诉戈尔案成功判决所依据的相同宪法论据来寻求补救。
 
-“此次申请的递交是在宾夕法尼亚州一相关案件发生之后，在该案中，阿利托（Alito）法官和另外两名法官注意到，有关（宾夕法尼亚州）最高法院对（将收到邮寄选票的法定截止日期从选举日晚8点延长至三天后的下午5点）… 行为的裁决是否符合宪法的认定具有全国性的影响，同时这个裁决极有可能违反了联邦宪法。
+> “Dominion和Smartmatic都与乔治-索罗斯（George Soros）没有任何关系。”Smartmatic是一家美国公司，不属于委内瑞拉政府”。Newsmax 没有得到投票机舞弊的证据。
 
-“竞选团队的申请试图推翻三项决定，这些决定取消了宾夕法尼亚州立法会应对邮寄选票欺诈所采取的保护措施，它们包括 （a）禁止选举官员在选举日计票过程中核实邮寄选票签名的真实性；（b）取消竞选团队在计票过程中对邮寄选票伪造签名和其他违规行为进行质疑的权力；（c) 认定竞选团队人员行使监察邮寄选票计票过程的权力只能限制在“房间里”进行 — 在本案中，计票过程在有好几个足球场那么大费城会展中心进行； （d）取消邮寄选票投票人必须正确签名、填写地址和日期的要求。
 
-“申请寻求所有适当的补救措施，包括取消对承诺于乔·拜登(Joseph Biden)的选举人的任命，并允许宾夕法尼亚州议会选择他们的替代者。竞选团队还要求加快审议，要求最高法院在12月23日之前下令应诉方做出回应，并在12月24日之前做出答复，以便允许美国最高法院在1月6日国会开会审议选举人团投票前作出裁决。
 
-— 鲁迪·朱利安尼(Rudy Giuliani)，川普总统律师
 
-[原文链接](https://www.donaldjtrump.com/media/trump-campaign-taking-constitutional-fight-to-supreme-court/)
+> Wow. Newsmax is walking back its conspiracy theories to avoid a lawsuit. This goes further than Fox News did.
+> “Neither Dominion nor Smartmatic has any relationship with George Soros. Smartmatic is a US company and not owned by the Venezuelan government.”[pic.twitter.com/T7XuiBOcHy](https://t.co/T7XuiBOcHy)
+> — Jan Wolfe (@JanNWolfe) [December 21, 2020](https://twitter.com/JanNWolfe/status/1341085678457774082?ref_src=twsrc%5Etfw)
 
-翻译: Wendy
 
-校对：沙拉猫
+
+当日网友把林伍德律师拒绝撤回诉讼的信发布推文，表示对Newsmax 新闻向投票公司卑躬屈膝的态度感到愤怒。推文称：
+
+
+> @Newsmax不要因为Smartmatic的官司而毁了你新收获的收视率。做你的调查！另外，一个真正的男人是这样回应的。LLin Wood代表Sidney Powell… 也被Smartmatic起诉了。这是他的回应。
+
+
+林伍德律师回推：
+
+
+> 作为诽谤律师，我对以下事件感到非常惊讶和失望：
+> 
+> 对于鲍威尔律师的声明SmartMatic所做的回撤需求，让@newsmax 迅速向SmartMatic 屈服。
+> 
+> Newsmax没有做任何独立调查 & 作为出版者具有非常有限的法律基础。
+> 
+> 没有意义。
+> 
+> 要小心。
+
+
+
+
+> As defamation lawyer, I was very surprised & disappointed by [@newsmax](https://twitter.com/newsmax?ref_src=twsrc%5Etfw) quick surrender to SmartMatic retraction demand over [@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw) statements.
+> 
+> Newsmax has done NO independent investigation & has very limited legal exposure as REPUBLISHER.
+> 
+> Doesn’t make sense.
+> 
+> Be careful. [https://t.co/cWWlm4KteS](https://t.co/cWWlm4KteS)
+> — Lin Wood (@LLinWood) [December 22, 2020](https://twitter.com/LLinWood/status/1341476451929960448?ref_src=twsrc%5Etfw)
+
+
+
+
+
+新闻素材和图片来自林伍德律师推特
+
+
 
 0

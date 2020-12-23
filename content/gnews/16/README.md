@@ -1,26 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1222】-中共渗透的几个大公司
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/676888/)
+## 中共国全民脱贫的标准是什么
+` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/676958/)
 
-12月22日The Epeco Times 报道了一篇关于泄漏的中共党员清单显示，数百名中共党员被安插在IBM，3M，PepsiCo这种美国顶尖公司里。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22204815/H263f7e2f69c74e37a422c0c03e17a1adU.jpg)
+作者：神的带领（京都富士会）
 
-林伍德律师转推了这篇文章称：
+校正：待命（文晓）（京都富士会）
 
+排版：待命（文晓）（京都富士会）
 
-> 在过去的二三十年里，中共党员渗透到美国的媒体、学术界，从地方、州到国家的政府官员、社区组织和……我们的企业。
+4、5年前，中共国发布人均收入8000元，说是进入了小康水平。当时就有许多人哭了，深刻觉得自己拖了祖国的后腿，因为一般城市的大多劳动者月薪一千多块，三四线城市工资才八百。领低保的根据地一个月也就100元到800元左右。而且，没有关系即便这低保也不一定能得到。
 
+可笑的是ccp居然说扶贫工作效率高，已全面脱贫了。请问ccp你的脱贫标准是什么？之前看山区贫困区的孩子，每天吃一点粥和咸菜还要翻山越岭走十几公里去上学。看看他们住的房子四处漏风，外边下大雨屋里下小雨。难道这就叫脱贫吗？
 
+昨天又看了盖特发的小妹妹，穿得单薄，小雨已将她头发衣服都淋湿了，她依就要捡拾别人丢的朔料瓶子。当问她为什么捡朔料瓶子时，她说要卖钱给奶奶买新衣裳，因为奶奶要过生日了。多么善良可爱的孩子！
 
+当镜头给到奶奶时，我看到了穿得破衣篓蓑，带病状的奶奶。奶奶眼中的沧桑无奈令人心疼！女孩说她和奶奶每天吃土豆充饥。记者问为什么不吃米饭？回答是没有米只有土豆。让人听了心酸。同时ccp却在欢呼全民小康，说没有贫困。我深深的感到他们太无耻了，这样的弥天大谎也敢撒。ccp更不要脸的说帮世界40多个国家扶贫。难道也要扶成小女孩儿这样吗？ccp们，你家里的宠物都过着天堂般的生活。再看看这个女孩儿！难道这只是个例吗？众所周知，好多好多。
 
-> Over the past 2-3 decades, members of Communist Chinese Party have infiltrated U.S. media, academia, government officials at local, state, & national level, community organizations and . . . our businesses.[https://t.co/qrVy48Fv1f](https://t.co/qrVy48Fv1f)
-> — Lin Wood (@LLinWood) [December 23, 2020](https://twitter.com/LLinWood/status/1341541582718316547?ref_src=twsrc%5Etfw)
+所以我们一定站起来，站起来推翻共产党。否则，我们都有可能成为脱贫中的小女孩。
 
-
-
-新闻素材和图片来自林伍德律师推特和https://www.theepochtimes.com/ibm-3m-pepsico-among-leading-us-firms-that-house-chinese-communist-party-units-leaked-database\_3628066.html
-
-
-
-1+
+0

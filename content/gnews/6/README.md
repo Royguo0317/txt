@@ -1,21 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欢迎新战友来到纽约香草山农场
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/677035/)
+## 病毒是沒長眼睛的
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/677093/)
 
-纽约香草山农场
+台灣農場(籌備) 文旦
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
+2019年年底突如其來的中共病毒疫情至今已經蔓延全球，並讓7千多萬人遭受感染，1百多萬人死亡，如此危險的疾病，究竟是如何來的，到現在都沒有深入調查起源地，也沒有原始資訊，就這樣子的讓它持續下去。
+
+病毒是不有長眼睛的，是不會因為你多有錢，多有權，多安全，多麼善良，多麼的邪惡，而不會找上你，病毒真相的重要是在於你我的安全，你我未來的安全，沒人能夠保證你的身邊就一定是無症狀患者，這才是最可怕的。
+
+這個在閻麗夢博士論文下的真相，這個病毒不會因你是黨員而不去找你，不是希望病毒去毒到我們討厭的人高興，而是希望你們要醒悟病毒是不會管你是不是黨員的，你的生活，你的一切都被這個病毒改變，甚至你我的生命，這個結果是好的嗎?
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22214853/martin-olsson-Mfb4TEExET4-unsplash-1-scaled.jpg)
+希望知道病毒真相的人們能夠站出來揭露真相，保留真相，讓更多人去尋找真相，因為這是你我的必須，你我未來的必須，真相如此重要，也是你我未來的保障，真正有用的疫苗的保障。
+
+病毒的起源是世界要思考的問題，為甚麼要隱瞞，為甚麼不給調查，為甚麼要屏蔽訊息等等眾多原因，真相需要你我傳播，讓人民醒來，不被蒙蔽，不被這黑暗的收遮住眼睛，病毒是不長眼睛的，不會因為誰而不去攻擊他，這才是大家要站出來傳播真相的原因，因為你我無法倖免。
+
+參考資料:
+
+- [https://www.epochtimes.com/b5/20/12/17/n12628468.htm](https://www.epochtimes.com/b5/20/12/17/n12628468.htm)
+
+
+- [https://www.epochtimes.com/b5/20/12/16/n12625177.htm](https://www.epochtimes.com/b5/20/12/16/n12625177.htm)
+
+
+- [https://www.epochtimes.com/b5/20/12/16/n12626044.htm](https://www.epochtimes.com/b5/20/12/16/n12626044.htm)
 
 
 
 
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-1+
+0

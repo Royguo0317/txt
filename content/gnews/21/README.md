@@ -1,36 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1222】-预谋已久的国会修正案
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/676823/)
+## 【林伍德律师推文1222】-中共渗透的几个大公司
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/676888/)
 
-12月22日推特劲爆了一条2020年7月20日公布的对一份众议院修正案的投票，这是对批准或拒绝H.Amdt.833（Veronica Escobar）对H.R.6395的修正案的投票。该修正案通过修订《美国法典》第10篇第13章中的《叛乱法》，要求总统在内乱期间在美国境内部署现役军人时，必须向国会进行认证。
+12月22日The Epeco Times 报道了一篇关于泄漏的中共党员清单显示，数百名中共党员被安插在IBM，3M，PepsiCo这种美国顶尖公司里。
 
-当时的投票结果是215票赞同190票反对。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22193010/congress-vote.png)
-网友称，隐藏在5,893页的法案中，预计总统会VETO(否决法案)，”取消总统对《叛乱法》的使用。”
-
-林伍德律师回推：
+林伍德律师转推了这篇文章称：
 
 
-> 任何国会成员如果投票取消总统VETO否决权是美利坚合众国的叛徒。
-> 
-> 另外，国会如此限制行政长官使用《叛乱法》的努力是违宪的。
-> 
-> 爱国者们你们醒了吗？
+> 在过去的二三十年里，中共党员渗透到美国的媒体、学术界，从地方、州到国家的政府官员、社区组织和……我们的企业。
 
 
 
 
-> Any member of Congress who votes to override [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) veto is a traitor to the United States of America.
-> 
-> Plus such an effort by Congress to limit the Chief Executive’s use of the Insurrection Act is unconstitutional.
-> 
-> Patriots are you awake yet? [https://t.co/xkt2do8xt4](https://t.co/xkt2do8xt4)
-> — Lin Wood (@LLinWood) [December 22, 2020](https://twitter.com/LLinWood/status/1341530906855690240?ref_src=twsrc%5Etfw)
+> Over the past 2-3 decades, members of Communist Chinese Party have infiltrated U.S. media, academia, government officials at local, state, & national level, community organizations and . . . our businesses.[https://t.co/qrVy48Fv1f](https://t.co/qrVy48Fv1f)
+> — Lin Wood (@LLinWood) [December 23, 2020](https://twitter.com/LLinWood/status/1341541582718316547?ref_src=twsrc%5Etfw)
 
 
 
-新闻素材和图片来自林伍德律师推特和 https://www.govtrack.us/congress/votes/116-2020/h141
+新闻素材和图片来自林伍德律师推特和https://www.theepochtimes.com/ibm-3m-pepsico-among-leading-us-firms-that-house-chinese-communist-party-units-leaked-database\_3628066.html
 
-0
+
+
+1+

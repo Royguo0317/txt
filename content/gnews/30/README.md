@@ -1,57 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德意志时讯 2020.12.22:最新疫情数据/新冠病毒突变 “看起来并不好”/ 疫情第三波在即
-` Himalaya Farm Germany 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/676643/)
+## 加拿大WE 慈善：中共式腐败的缩影
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/676706/)
 
-*《德意志时讯》发表的译文和报道不代表我们认同原文作者的观点，仅供读者了解德国媒体的走向及德国社会状况*
+*加拿大多伦多枫叶农场 文锦*
 
-编辑报道：文园
+*校对 小鸥 上传 WJ*
 
-**一、德国新冠病毒疫情数据更新**
+据后千禧年报12月22日报道，声名狼藉的WE慈善（WE Charity）竟获得加拿大紧急工资补贴（Canada Emergency Wage Subsidy ， 简称CEWS）。
 
-- 2020年12 月21日
-- **新增确诊病例：****19,333 ** **  ****死亡：****533**
+CEWS提议为在疫情中挣扎的企业支付最高75％的工资，由加拿大政府于4月份实施，旨在帮助因中共病毒大流行导致经济衰退而面临收入下降的企业。该计划预计将耗资976亿加元，成为加拿大政府与中共病毒疫情相关的救济支出中最昂贵的一项。
 
+为什么所谓的非盈利慈善组织收取政府为企业提供的补贴？WE慈善做过什么呢？
 
-**（比昨日病例减少****1,489****人，死亡增加****183****人）**
+**WE慈善与中共国关系**
 
-**二、病毒学家克里斯蒂安****·****德罗斯滕表示新冠病毒突变**** “****看起来并不好****”**
+据《国家邮报》7月28日报道，该组织在中共国有多个项目，创办者吉尔伯格（Kielburger）兄弟和中共关系密切。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22183611/WE%E4%B8%A4%E4%B8%AA%E5%88%9B%E5%8A%9E%E4%BA%BA.jpeg)图片来源: National Post
+弟弟克雷格·基尔伯格（Craig Kielburger）在2008年出版的《从我到我们：在物质世界里寻找意义》（Me to We: Finding Meaning in a Material World）被中共国中央电视台和党媒《人民日报》吹捧为“对中国年轻人最有益的书之一”。中共的此种行为，看起来像是统战部影响了WE慈善。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22183806/Me-to-we.png)图片来源：Metowe
+据WE 慈善官网介绍，它在中共国农村的活动始于2002年。2012年，其分支机构ME to WE在上海成立了合资分公司米图维，已在中共国经营多年。2014年和2015年分别在北京和上海的中学举办“明日领袖论坛”，北京的活动是和东城区教委合作，曾请姚明进行演讲。
 
-- 信息来源：thelocal.de
-- 原文题目：[German lockdown rules will help slow spread of new Covid strain, says virologist](/www.thelocal.de/20201222/unfortunately-this-does-not-look-good-german-virologist-changes-tune-on-new-covid-strain)
+哥哥马克·吉尔伯格2015年1月曾去中共国驻加拿大使馆，与大使罗照辉会面并合影。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22183822/Marc-Kielburger%E5%9C%A82015%E5%B9%B4%E5%8F%82%E5%8A%A0%E4%B8%AD%E5%9B%BD%E9%A9%BB%E5%8A%A0%E6%8B%BF%E5%A4%A7%E5%A4%A7%E4%BD%BF%E9%A6%86%E6%B4%BB%E5%8A%A8.png)图片来源: National Post
+2014年，WE 慈善的米图维提出的中加青少年文化教育交流活动，被中共国驻加拿大大使馆列为中加建交 45 周年的官方系列活动之一。
 
+不过目前WE试图与中共政府撇清关系, 其发言人说，他们已经有近5年没在中共国举办WE Day活动，不再举办“青年文化之旅”，其在中共国的慈善工作专注于支持“过去开发的项目”。
 
-病毒学家克里斯蒂安·德罗斯滕（Christian Drosten）在表示对新的冠状病毒突变并不特别担心后的第二天，就改口说新数据“看起来并不好”。
+但这些托辞都掩盖不了中共对该组织进行渗透的事实。
 
-在此之前，英国当局进行了新的评估，证实冠状病毒的新变种正在英国迅速传播，特别是英格兰南部。英国专家在总结中写道：“已经发现了一种在英国迅速传播的新颖变种。” 根据该报告，冠状病毒的新变种“高度确定性地大大提高了传播能力”。 专家们说，进一步的研究仍在进行中。
+**WE慈善在加拿大与政客的勾结**
 
-柏林柏林夏里特医学院（Charité）病毒研究所所长德罗斯滕在Twitter上分享了英国公 共卫生机构的数据。
+WE慈善与加拿大企业高层和政界人士保持深厚联系，来自这些高层人士的捐款源源不断地涌入，WE利用庞大的资金与政客勾结并换取丰厚利益。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22183915/1111_we-trudeau8-e1594655672703.jpg)2015年11月10日，总理特鲁多和妻子苏菲在渥太华参加WE Day 活动，WE慈善联合创始人克雷格·基尔伯杰（左）和他的弟弟马克（右） 图片来源：POSTMEDIA
+加拿大自由党政府曾计划把在6月份启动的9.12亿元加拿大学生服务补助金（Canada Student Services Grant ，简称CSSG)，给WE慈善独家代理。后来，总理特鲁多和财政部长莫诺都因其家族与WE有金钱往来，被联邦道德操守专员调查，特鲁多的母亲、弟弟和妻子多次参加WE组织的活动并获得报酬；莫诺的女儿受雇于这家组织。结果加拿大政府7月初与WE慈善组织终止合作，财政部长莫诺在8月份因该丑闻引咎辞职，很多商业机构也因此纷纷退出与WE的合作项目。
 
+而WE慈善里包括两位创始人在内的高层员工辞职，公共财政支持大幅下降。WE 慈善随后宣布关闭其加拿大业务。
 
+可见，WE慈善收入的下降根本不能归因于中共病毒疫情，而是因为与政客勾兑丑闻的曝光。但此次WE慈善竟然领取了加拿大紧急工资补贴，令人不由想起[吴征白手套公司在美曾讹数十万元小企业救济贷款](https://gnews.org/zh-hans/243170/)，都是与政府有关系的组织，利用一切机会侵占纳税人的血汗钱。
 
-> Neue Daten zur B.1.1.7-Mutante (heute veröffentlicht). Das sieht leider nicht gut aus. Positiv ist, dass Fälle mit der Mutante bisher nur in Gebieten zunahmen, wo die Gesamtinzidenz hoch oder ansteigend war. Kontaktreduktion wirkt also auch gegen die Verbreitung der Mutante. [https://t.co/s3Wd3X7ukF](https://t.co/s3Wd3X7ukF)
-> — Christian Drosten (@c\_drosten) [December 21, 2020](https://twitter.com/c_drosten/status/1341155746575245313?ref_src=twsrc%5Etfw)
+WE慈善目前还拥有价值数千万加元的资产， CEWS在WE慈善机构遭到丑闻打击之前仅成立了不到3个月，宣布最初的加拿大学生服务补助金计划后，慈善机构是否已经获得CEWS福利？谁批准了WE慈善机构的补贴？特鲁多政府是否曾经意识到该慈善机构正在拿纳税人的钱来支持其腐败的组织？政府为什么批准这种补贴？
 
+加拿大作为民主国家，虽然主流媒体被控制，给民众无形中建了一道防火墙，但比起中共国极端的言论管制还是要宽松一点，可以令WE慈善丑闻曝光。但是如果加国政府不断屈服于中共的操纵和影响，腐败风气就会愈演愈烈。
 
+*参考链接：*
 
-他在推文中补充说：“不幸的是，它看起来并不好。” 但是，他也说事情还不是特别糟 糕：“从积极的方面来看，迄今为止，只有在总发病率较高或正在增加的地区，这种突变    的病例才有所增加。因此，减少接触也可以阻止突变的传播。”
+[REVEALED: WE Charity received the Canada Emergency Wage Subsidy](WE%20Charity%20received%20the%20Canada%20Emergency%20Wage%20Subsidy)
 
-根据英国当局的说法，新病毒变种的传染性比以前已知的形式高70％。
-
-**     ****评论：****CCP****病毒近来在英国的变异传染性激增，给欧洲本来就只靠全社会封锁才能缓解的****    ****新冠疫情雪上加霜。不全球联合灭共，根除中共病毒根源，欧洲人采取什么措施都是枉费****    ****心机！**
-
-**三、新冠病毒疫情第三波在即**
-
-- 信息来源：《世界报》（Welt）
-- 原文题目：[„Vor uns liegen die zehn härtesten Wochen“, mahnt Kretschmer](/www.welt.de/politik/deutschland/article223058338/Corona-Hotspot-Sachsen-Kretschmer-warnt-vor-dritter-Welle.html)
-- 圣诞新年假期前，萨克森州州长克雷奇默（CDU）警告说呼吁民众严格遵守卫生和距离规 定。首相肯定地说：“将会有第三波浪潮。”
-
-
-鉴于萨克森州感染人数众多，萨克森州州长迈克尔·克雷奇默紧急呼吁将圣诞节和除夕的     接触减少到最低限度。 “圣诞节是医学界每个人都非常害怕的事情。” 克雷奇默在新闻    发布会上警告说，圣诞节和除夕意味着我们将迎来第三波疫情浪潮。这波浪潮的规模掌握    在萨克森州和德国人手中”。 据他介绍，第三波将在1月10日至15日大爆发。 “新冠    病毒大流行最艰难的十周就在我们面前。”
-
-**评论：在德战友和华人，****Achtung!!! ****小心！中共病毒肆虐，德国告急！呆在家里！按闫****     ****丽梦博士的建议服用羟氯喹！**
-
-*想看更多精彩评论，请移步喜马拉雅德国慕尼黑感恩农场**GTV**——“说说德国那点事儿”，德国时间每晚**21**：**30**开播。*
+[加国补助金丑闻续发酵 媒体揭WE与中共关系](https://www.epochtimes.com/gb/20/7/28/n12290181.htm)
 
 0

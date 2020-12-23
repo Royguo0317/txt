@@ -1,42 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 为川普总统而战!
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/676547/)
+## 麦康奈尔联手舒默欲阻止川普总统否决国防法案
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/676635/)
 
-作者：此心不变；校对：宁缺；审核：海阔天空；Page：小雨
+蒙特利尔皇家山战友团laotou
 
-[!\[\]()!\[\](https://spark.adobe.com/page/eqJEmmPxXza31/images/1d547855-2a35-472a-be52-043d378de15d.jpg?asset_id=fc572ae8-6e9f-4113-a265-fcefe6470660&amp;img_etag=%2271823155def7145a4aea387686557bae%22&amp;size=1024)](https://spark.adobe.com/page/eqJEmmPxXza31/images/1d547855-2a35-472a-be52-043d378de15d.jpg?asset_id=fc572ae8-6e9f-4113-a265-fcefe6470660&amp;img_etag=%2271823155def7145a4aea387686557bae%22&amp;size=1024)
+校对 上传 小鸥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22172813/s-4.jpg)图片来自 Bloomberg
+大技术公司对美国造成的恶果是显而易见的，正义善良的人们饱受其害，虚假极左的煽动言论畅通无阻，事实真相的传播却横遭阻拦，其目的就是要成就美国的卖国贼集团，为邪恶的中共助力。川普总统誓言要取消“230法”，不惜动用对《国防授权法》的否决权。
 
-**简评：**
+民主党掌控的众议院反对川普总统不难理解，而赵家公麦康奈尔则进一步显露出“深喉”的面目，《纽约邮报》12月22日早新闻，“麦康奈尔与舒默达成协议，欲阻止川普总统对国防法案可能的否决。”
 
-很多人觉得川普总统太软弱，太优柔寡断，那是因为你不在其位，你根本无法知道川普总统每时每刻所面对的信息和挑战，你也根本无法体会川普总统那种爱国爱民的感受……美国三权从上到下都已腐败，国家被人劫持，而川普总统被群蛇缠身……在这样的状况下，让美国再次伟大，那是多么大的工程，数不尽的艰难险阻，非我们人所能承受的啊！
+回顾一下川普总统有关“230法”的发声：
 
-[!\[\]()!\[\](https://spark.adobe.com/page/eqJEmmPxXza31/images/434f53df-b389-4fc0-b87c-2fa9d43955ea.jpg?asset_id=328087a8-3438-4c66-a8d2-aa9d3d6b529d&amp;img_etag=%2204c9a41b3ef4006b04fa9b0d49f468d8%22&amp;size=1024)](https://spark.adobe.com/page/eqJEmmPxXza31/images/434f53df-b389-4fc0-b87c-2fa9d43955ea.jpg?asset_id=328087a8-3438-4c66-a8d2-aa9d3d6b529d&amp;img_etag=%2204c9a41b3ef4006b04fa9b0d49f468d8%22&amp;size=1024)
+12月2日，“‘230法‘是美国给‘大技术’公司免责保护的礼物（只有美国的公司才有这样的福利），对我们的国家安全和选举诚信构成严重威胁，‘230法’对我们的国家安全和选举诚信构成了严重威胁。如果我们允许它（继续发挥作用），我们的国家将不再有安全的保障。【1】因此，如果非常危险和不公平的‘230法’不能作为《国防授权法》（NDAA）的一部分被完全终止，那么当议案送到（我这）非常漂亮而坚实的办公桌上时，我将被迫毫不含糊地否决这项法案。现在就重振美国。谢谢您！”【2】
 
+12月3日，“对我们的国家来说很不幸，它看起来像参议员@吉米霍夫不会把终止‘230法’条款纳入国防法案。这对我们的国家安全和选举诚信都很不利。最后一次完成任务的机会，我会否决！”【3】
 
+12月17日，“我将否决国防法案，这将使中共国非常不高兴，他们喜欢，必须终止‘230法’，保护我们的立国之本，允许军队从遥远的、非常不受欢迎的土地上撤走。谢谢您！”【4】
 
-> [pic.twitter.com/ftlALc6UWn](https://t.co/ftlALc6UWn)
-> — Donald J. Trump (@realDonaldTrump) [December 19, 2020](https://twitter.com/realDonaldTrump/status/1340362336390004737?ref_src=twsrc%5Etfw)
+面对川普总统再三的警告，那些利令智昏的叛国集团代言人置若罔闻，继续寻求阻止川普总统行使否决权，赵家公再次站到反对川普总统的阵营，与参议院民主党领导人舒默联手对抗川普总统代表的正义力量，他竟然为邪恶代言人出招，声称“民主党领袖和我一致同意如下要求：参议院将按照惯例在12月29日结束休假时举行会议。如果川普总统真地选择否决这项两党的法案，众议院就可以在假期后设立一个投票来考虑否决权，以此作为回应……如果总统否决了该法案，而众议院投票否决了否决权，届时参议院将有机会处理否决权的否决权。”【5】
 
+这明显是在与邪恶不加遮拦地沆瀣一气了，与罪恶的化身同台共舞了，由开始的虚情假意、扭扭捏捏，到显露真相，如今冲到了第一线，明目张胆地向世人宣告，他赵家公就是中共赵家人豢养的走狗！
 
+参考链接：
 
-这段“为川普而战！”的视频是川普总统的社交媒体总监丹•斯卡维诺（Dan Scavino）首先发推的，然后川普引用，它的真正含义是拯救美国–拯救世界。美国是神选的领导人类的国家，如果美国没了，那么世界也就没了，而川普是美国的总统，如果川普输了，就等于美国输了，也就等于世界输了，所以为川普而战是我们每个人的使命。
+【1】https://twitter.com/realDonaldTrump/status/1333965375193624578
 
-作为一个有信仰的人，作为一个有道德约束的人，似乎不应该呼吁人民为自己而战，这样做一定会遭到邪恶力量的人身攻击。人最难战胜的是自己，川普总统自己发推这段视频，而不是转推他的助手的推文，那就代表他已战胜自己。他不会做政治正确的事，他只做他认为是对的事，因为与神同行的人只会在乎那能与神连结的心，而不会去思考利益上的得与失。
+【2】[https://twitter.com/realDonaldTrump/status/1333965375839621120](https://twitter.com/realDonaldTrump/status/1333965375839621120)
 
-为什么这个时候推出这视频？当蓬佩奥一二三再而三的宣传都已到位，当纳瓦罗发布了2020年大选报告，当鲍威尔要成为川普总统的特别调查顾问，当弗林将军要以其曾经的身份——首任国家安全顾问，陆军中将，军事情报局局长辅佐现任国家安全顾问，等等，表示一切准备都已就绪，是时候要为川普总统而战，来拯救美国，拯救世界！！！
+【3】[https://twitter.com/realDonaldTrump/status/1334718387583377408](https://twitter.com/realDonaldTrump/status/1334718387583377408)
 
-【注：文章仅代表作者观点】
+【4】[https://twitter.com/realDonaldTrump/status/1339594787133919239](https://twitter.com/realDonaldTrump/status/1339594787133919239)
 
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/eqJEmmPxXza31/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/eqJEmmPxXza31/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/eqJEmmPxXza31/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+【5】https://nypost.com/2020/12/22/mcconnell-schumer-reach-deal-to-block-trump-defense-bill-veto/
 
 0
