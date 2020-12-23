@@ -1,20 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年12月23日中共病毒疫情要闻快报
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/678657/)
+## 布莱克本控诉中共正进行种族灭绝—重要的事情说三遍
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/678852/)
 
-**重点内容：**
-
-- 闫博士：中共病毒必定会变异！
-- 林·伍德：中共以病毒和网络战对美国发动两次袭击；
-- 大连居民恐慌封城，抢购鲜肉和蔬菜；
-- 中共打压武汉病毒受害者家属声音！
-- 市民揭露中共新冠疫苗副作用被封杀。
+- 编辑：Victor Torres
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+**西班牙2020年12月23日电/西喜社——**美国参议员玛莎·布莱克本发推怒斥中国共产党:
+“中国共产党正在进行种族灭绝。
+中国共产党正在进行种族灭绝。
+中国共产党正在进行种族灭绝。”
 
 
-**By：【秘翻组-上天造灭疫组】**
 
-1+
+> The Chinese Communist Party is committing genocide.  
+> The Chinese Communist Party is committing genocide. 
+> The Chinese Communist Party is committing genocide.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [December 23, 2020](https://twitter.com/MarshaBlackburn/status/1341755894900600834?ref_src=twsrc%5Etfw)
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+
+0

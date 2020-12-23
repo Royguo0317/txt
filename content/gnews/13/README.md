@@ -1,27 +1,113 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/23/2020 财经快讯: 中国对种子进口的依赖; 中芯国际回应美国制裁的声明
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/678370/)
+## 【香草诗词汇】我们并非生而为奴
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/678656/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23063606/Picture17-2.png)
-图片来源： https://www.greenbiz.com
+作者：香草山写作组  木白
 
-1.种子是确保粮食安全的最重要因素。 中国在种子产业上的技术远远落后于发达国家。 它高度依赖进口种子，尤其是某些蔬菜的种子和玉米马铃薯种子。 俄罗斯最近宣布，从明年1月开始，它将把葵花籽和油菜籽的出口关税率从目前的6.5％大幅提高到30％。
-[https://www.toutiao.com/i6908656818583552525/?timestamp=1608615685&app=news\_article&group\_id=6908656818583552525&use\_new\_style=1&req\_id=202012221341250100260760261C0BAE89](https://www.toutiao.com/i6908656818583552525/?timestamp=1608615685&amp;app=news_article&amp;group_id=6908656818583552525&amp;use_new_style=1&amp;req_id=202012221341250100260760261C0BAE89)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
 
-2.12月20日晚，中芯国际发表声明，对公司进行初步评估后，被列入美国出口管制黑名单将对公司10纳米及以下先进技术的研发和生产能力建设产生负面影响。 但它指出，制裁目前对其短期运营和财务业绩没有重大不利影响，因为该制裁目前尚未大规模生产使用10纳米及以下纳米技术的芯片。
-[https://www.sohu.com/a/439664918\_237556?scm=1004.759017372148498432.0.0.0&spm=smpc.ch15.top-news-4.2.1608670427227lJoqydJ](https://www.sohu.com/a/439664918_237556?scm=1004.759017372148498432.0.0.0&amp;spm=smpc.ch15.top-news-4.2.1608670427227lJoqydJ)
 
-3.iPhone代工大厂和硕上海昌硕厂19日爆发劳资纠纷，因为和硕集团旗下工厂调整产能，希望昌硕厂部分员工支援世硕厂，因薪资条件、返费等未沟通清楚，聚集上千名临时工出面抗议讨要返费。
-[http://m.eeworld.com.cn/ic\_article/102/520536.html](http://m.eeworld.com.cn/ic_article/102/520536.html)
 
-4.加拿大政府拒绝了中共山东黄金矿业股份有限公司收购在加拿大北极地区运营的金矿公司的计划。 该拒绝决定是根据《加拿大投资法》做出的。
-[https://www.bloomberg.com/news/articles/2020-12-22/canada-stops-china-takeover-of-arctic-gold-operation-miner-says](https://www.bloomberg.com/news/articles/2020-12-22/canada-stops-china-takeover-of-arctic-gold-operation-miner-says)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23084158/MOS0815-%E3%80%90%E9%A6%99%E8%8D%89%E8%AF%97%E8%AF%8D%E6%B1%87%E3%80%91%E6%88%91%E4%BB%AC%E5%B9%B6%E9%9D%9E%E7%94%9F%E8%80%8C%E4%B8%BA%E5%A5%B4.jpg)
 
-5.川普驳斥纾困法案希望“支票支付”金额从600美元提升至2000美元。川普要求法案减少对外和权贵输血，增加对普通大众支票补助。
-[https://www.cnbc.com/2020/12/22/trump-calls-covid-relief-bill-unsuitable-and-demands-congress-add-higher-stimulus-payments.html](https://www.cnbc.com/2020/12/22/trump-calls-covid-relief-bill-unsuitable-and-demands-congress-add-higher-stimulus-payments.html)
+一
 
-【秘翻组金融团队- Kate】
+“被喝茶”回来，心，比前几回要平静
 
-4+
+被“教育”、被威胁、被残害，也不愿为奴
+
+灰色的墙角，黑白颠倒的臭水沟
+
+无用的诗句在苍白的大地上生长
+
+不用象征讽刺城堡
+
+我们一直活在没有自由的笼牢
+
+不用暗喻表达黑暗
+
+我们一直活在无边的黑暗
+
+不用想象虚构荒诞
+
+我们一直活在魔幻的现实
+
+这让神佛流泪的人间，却无法白描
+
+因为，今天，我们是击碎悲剧的传奇
+
+因为，我们并非生而为奴
+
+
+
+二
+
+“有思想的皆反动”
+
+“无知即美”“被强暴是享受”
+
+尽管做一个被洗脑的“贫下中农”
+
+也好过做一头特立独行的猪
+
+我们的先哲早被砍掉了脑袋
+
+在焚烧的书中死得更彻底
+
+大盗装圣人，阎王都比他们诚实
+
+尽管死比活更真
+
+可是，千百年来
+
+我们终究一直活了下来
+
+因为，黑夜孕育黎明
+
+我们和黎明一样，也是站着的
+
+因为，我们并非生而为奴
+
+
+
+三
+
+我们并非生而为奴，此刻
+
+我们选择站在在风暴的中心
+
+阳光正照耀着我们，这宇宙的神秘力量
+
+让小草裂石而生
+
+让树木挺拔向上
+
+让我放下所有的修辞，真诚地书写
+
+让我们用心去爱脚下的土地和身边的人
+
+让更多不愿成为奴隶的人站了起来
+
+当风与落叶一起走进寒冬
+
+我们正在一步步走近暖春
+
+因为，悲剧是奴隶的命运
+
+今天，我们推翻这命运，注定是传奇
+
+因为，我们并非生而为奴
+
+2020年12月22日
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+0

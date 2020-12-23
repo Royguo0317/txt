@@ -1,27 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 伦敦会是下一个武汉吗?
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/678625/)
+## 林伍德许下圣诞心愿：让乔治亚州首长在监狱过圣诞
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/678832/)
 
-撰稿: Runaway
-
-审稿: Cindy 2020年12月23日
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23081512/London_1280p_0.jpg)图片来源: STEFAN ROUSSEAU/PA VIA AP IMAGES
-由于一种更具传染力的COVID-19病毒变种导致的病例激增，英国首相鲍里斯·约翰逊（Boris Johnson）宣布，自12月20日起伦敦和英国南部地区将在圣诞节期间全面施行封锁。 随即加拿大和意大利、比利时、荷兰等欧洲国家封锁了对英国的边境。由于担心与法国的边界也将关闭，伦敦圣潘克拉斯火车站的人们正在焦急地等待乘坐前往巴黎的末班车。
-
-此时正值西方传统节日圣诞节之前，人们或家庭团聚，或情侣度假，正是全年旅行最繁忙的季节，不幸的是变异后的病毒将会藉此传播至世界各地。目前在意大利、丹麦、荷兰、澳大利亚已发现与英国一致的变异后的病毒。
-
-这不仅让我们想起2020年初中国农历春节前在武汉爆发的CCP病毒。当疫情爆发后，武汉市虽然实施了封闭管理，但是通往世界各地的航班依旧运行，此举被认为是CCP有意释放病毒并造成全世界大流行的主要原因之一。由于CCP刻意隐瞒疫情，当时的世界对病毒是没有任何防备的，所以造成了疫情的失控继而全球范围的经济衰退。
-
-如果从武汉的疫情爆发导致的全球病毒大流行是CCP生化武器的第一攻击波，意在打垮世界经济夺取美国大选，那么在其未得逞时会不会在伦敦用更具传染性的病毒发起第二波攻击做殊死搏斗? 现在全世界都对疫苗寄予厚望，天真地认为疫苗可以结束疫情。会不会因为对变异后病毒的更高传染性认识不足，从而导致全世界范围的疫情再次失控? 2020年的春节是武汉乃至全中国人民最悲痛的一个春节,数以万计的生命消失，人们被锁在家中过年。2020年的圣诞节也一定是伦敦乃至世界人民最失望的圣诞节。
-
-CCP苦心经营数十年，精心布局超限战，意图以所有隐密的手段打垮美国，征服世界。CCP病毒就是其终极之战放出的生化武器，就像潘多拉盒子打开就再也关不上了。由爆料革命助力的美国正义力量已经认识到，消灭CCP是解决这场世纪灾难的唯一途径，正义力量已经集结，留给人类的时间已经不多了，希望武汉悲剧不会在这个圣诞节在伦敦乃至全世界重演。
-
-（本文纯属个人观点）
-
-[澳喜文章](https://gnews.org/zh-hans/author/aujenny/)   [欢迎加入澳喜农场](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/18041919/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872.jpg)
+- 编辑：Victor Torres
 
 
-1+
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+**西班牙2020年12月23日电/西喜社——**林伍德周三发推称：
+“选举欺诈是无可争议的事实，这只是冰山一角。
+听了川普总统有关选举欺诈的话，提醒了我修改圣诞节(心愿)清单。 我希望乔治亚州州长布莱恩·坎普和州务卿被逮捕并扔进监狱过圣诞。
+还有很多其他人也是。
+上吧，圣诞老人。”
+
+
+
+> Undisputed facts establishing election fraud & this is just tip of the iceberg.
+> 
+> Listening to [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) on election fraud reminded me to revise my Christmas List. I want [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw) & [@GaSecofState](https://twitter.com/GaSecofState?ref_src=twsrc%5Etfw) arrested & tossed in jail for Christmas.
+> 
+> Many others too.
+> 
+> Go big, Santa. [https://t.co/GsgVYlNgnu](https://t.co/GsgVYlNgnu)
+> — Lin Wood (@LLinWood) [December 23, 2020](https://twitter.com/LLinWood/status/1341745666964529152?ref_src=twsrc%5Etfw)
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+
+0
