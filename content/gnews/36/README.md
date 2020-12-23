@@ -1,25 +1,110 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 终极之战
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/676087/)
+## 加拿大银行业行为与合规（四）
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/676211/)
 
-作者：AK
-
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16220630/%E5%8A%A0%E8%A1%8C%E4%B8%9A1.png)Picture Source: https://www.groomassocies.com
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22142551/2-56.jpg)图片来源： www.dailystar.co.uk
+在本文中更多的是介绍关于最新用户的账户收集，以及银行内部从业人员的相应行为标准。有助于读者进一步了解加拿大零售银行从业人员的基本工作流程，并确保自己受到公平的对待
+
+1.根据81—102   Standard Performance Data / 标准表现数据
+
+A. Be Reviewed 2. Be Used 3. Be Made
+
+B. 必须提供给客户—Performance Data表现数据
+
+C. 仅能使用—Current Data当前数据
+
+D. 必须适当披露—Past Performance 过往表现
+
+2.Solicited Order 推荐订单最重要的两个组成部分
+
+A. 符合交易商的资产配置模型
+
+B. 符合KYC信息的一致性 = Congruent
+
+3.Unsolicited Order：
+
+A. 不合适(违背模型)不是不合理，所以仍接受因为。
+
+B. 因为符合个人经验/知识/资产 = Unsuitable，But Acceptable
+
+4.Discount Broker
+
+A. 可以豁免适用性要求（No Suitability）
+
+5.Acceptability
+
+A. Reasonability合理性是评判能否接受的标准之一。
+
+交易商模型之外，但仍符合个人经验/知识/资产=仍然属于
+
+Acceptable极左或极右都是不可以的
+
+B. Conservatism
+
+过于保守的组合与资深投资人
+
+C. Type of Order
+
+一次性购买转为分期购买，如中等承受力对应激进型基金分期购买
+
+6.Suitability =Quantitative Aspect 以交易商模型判断, 任何误差都
+
+不被允许Reasonability=More Subjective 以KYC信息判断
+
+A. 仅KYC的标准对此产生影响
+
+B. 未来的预期并不会二者标准产生任何影响
+
+7.对于风险和回报率的结合展示的表现数据的效果使用范围
+
+A. 不超过质询后45天（Period of Question）
+
+B. 任何首次销售公开日期的前3个月
+
+（First publication of Any sales communication）
+
+8.年度效绩评估  / Annual Performance
+
+A. 基于过往5Years 或 10 Years
+
+B. 根据NI31-301和MFDA5.35至少每12个月提供一次
+
+9.根据NI31-301至少12个月，向客户提供一次加权收益回报
+
+10.注册销售，禁止行为
+
+A. Discretionary Trading（详见CSC）未授权交易
+
+B. Selling to Non-Resident 向非居民销售
+
+C. Short-Term Trading = 90天内的短期交易
+
+D. Market Timing 投机交易
+
+E. Late Trading =订单After：4PM，价格Before：4PM)
+
+F. Improper Orders 不匹配订单
+
+11.非注册人员，禁止行为NI31-103
+
+A. 旧版Trade Trigger / Furtherance of trade
+
+=Trade Transaction（Promote or Recommend）
+
+B. 新版 Business Trigger 商业触发点= Trade Transaction交易  + Advising建议
+
+Author：搞笑排行榜
+
+Original opinion article by Himalaya G-farm Vancouver
+
+2020/12/22
+
+* * *
 
 
-
-
-时间翻到2020年12月22日。 美国总统大选已进入收官阶段。CCP利用网络数据造假干扰美国总统大选，已是不争的事实。川普总统将任命律师鲍威尔为特別检察官，调查总统选举中的舞弊系列案件，更换了新的国防部长，美国海军陆战队直接归国防部长掌握，并向总统负责，为了应对CCP的对外军事扩张，采取了一系列的军事布局。美国司法部对亨特拜特的税务和洗钱违法行为正在调查之中。12月21日，美国国土安全部部长发表演讲，明确指出CCP已全面进攻美国国土和人民。前几天美国的一些设施受到了网络攻击，有媒体指出，这是CCP利用俄罗斯的网络向美国发动的网络战，21日，有消息称，CCP的电网公司、金融机构、卫生部的社保系统受到了网络攻击。悄无声息的网络战争已刺刀见红。美国商务部再次启动了对CCP控制的军方背景的58家实体企业列入制裁名单。美国财政部对CCP的14名人大副委员长实施个人经济制裁，平均个人冻结在美资产达200亿。所有这一切都向外界透露一个强烈的信号，终极之战愈来愈近。
-
-自从1979年2月份邓小平访美，并于同年2月份对苏联阵营的越南开战，做为向美国示好的投名状。从此，美国接纳了这个个披着羊皮的恶狼。CCP每年从美国赚取了几千亿美元的利润，并派出大量的中共间谍渗透美国的军事、情报、科技、文化、外交等部门，偷情报、偷科技、偷技术，偷一切可以偷的，快速发展。采用网络控制、金钱收买、性贿赂手段控制美国，长期布局，为其所用。并在全世界范围内密建军事基地，间谍机构，对美国造成合围之势。经过三十多年的卧薪尝胆和力量积蓄，习特勒认为已经到了用中国模式治理全球的时候了，可以挑战美国的领军地位。
-
-CCP的核心思想是专政，暴政，是对人的残酷镇压。与西方文明倡导的人权、自由、民主是格格不入的。美国是世界文明的最后灯塔。在CCP用冠状病毒为武器对全球攻城掠地之时，只有美国总统川普及少数正义人士有清醒的认识，没有被CCP收买，没有成为CCP侵略全球的帮凶。CCP甚至下了绝杀令，要在2021年1月6日前让川普消失。正邪较量一触即发。
-
-爆料革命的战友坚持正道主义，正邪势不两立。我们相信，川普总统有最广大民意的强烈支持，有军方对CCP全面进攻的强大回击，川普必胜，CCP必将被彻底清场。
 
 0

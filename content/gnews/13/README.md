@@ -1,62 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1222】-NewsMax 为投票机站台
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/676533/)
+## 2020年12月21日郭先生盖特（文字完整版）
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/676629/)
 
-前日SmartMatic 要求林伍德律师撤回对投票机舞弊案件的诉讼，并发出对律师本人的起诉、对他施加威胁时，遭到林伍德律师拒绝。
+听写：康州盘古农场-文朗
+审核：康州盘古农场-V
 
-12月22日Newsmax为避免此前报道引起诉讼，公开发表声明：
+尊敬的战友们好！这都是十二月二十一号了，早上六点多钟。按照习惯，起来都要喝一杯温开水，吃一个苹果，习惯嘛！好习惯，就要一直留着。
 
+刚刚睡了一个半小时，做了个梦啊，梦见今天白宫好像要有行动，要有人事变化。看来啊，有动静——梦有时候也不准啊。
 
-> “Dominion和Smartmatic都与乔治-索罗斯（George Soros）没有任何关系。”Smartmatic是一家美国公司，不属于委内瑞拉政府”。Newsmax 没有得到投票机舞弊的证据。
+还有，我做梦梦见，国内也被黑客了，共匪电站，号称“国家电网”的统计中心，还有中国的所谓的国家卫生安全局也被黑了，黑得还很厉害的。嘿嘿，但是共匪不能说，是吧？共匪，“很强大！”，“不会被黑客！”，是吧？它要不黑人家，人家也不黑它。哎呀，这都什么世道啊！偷东西，不能被人家说；自己家丢了东西，也不说。这是因为啥，战友们？不就是因为一个“假”字嘛！啊？
 
+所以说，兄弟姐妹们，“滑稽”刚刚开始！这个“滑”到“稽”了，你看到了吗？故事多着呢！走走看吧！
 
+嗬，今天可不得了！但是我觉得，你们要看到，这梦如果灵的话，今天下午，稍稍晚点儿，看能不能“梦”对啊！人家是“蒙”对，咱是“梦”对：国内的电网一旦被黑瘫，国家卫生局信息被弄走。听说中国的出入境系统也都被黑了……这叫不叫“网络战争”呢？叫不叫“超限战”呢？
 
+你看，七哥这穷得……你看看，穷得……没衣裳穿了，没办法，都是补丁，都是线头。
 
-> Wow. Newsmax is walking back its conspiracy theories to avoid a lawsuit. This goes further than Fox News did.
-> “Neither Dominion nor Smartmatic has any relationship with George Soros. Smartmatic is a US company and not owned by the Venezuelan government.”[pic.twitter.com/T7XuiBOcHy](https://t.co/T7XuiBOcHy)
-> — Jan Wolfe (@JanNWolfe) [December 21, 2020](https://twitter.com/JanNWolfe/status/1341085678457774082?ref_src=twsrc%5Etfw)
+更夸张的，我就纳闷儿啊：你说这谁能把共产党国家统计局都搞定？听说，大概在我睡前吧，也就是五点钟左右的时候，中共的金融系统也在被黑客中！你说，那么强大的中共，咋会这样呢，战友们？往上看，战友们，咱啥事儿都得往上看，不要往下看，别听瞎忽悠的，瞎咋呼的！山林大了，里边儿什么鸟都有，什么噪音都有！是吧？
 
+永远要牢记啊，兄弟姐妹们，美好的日子，一直不拐弯地，直接地，向我们冲过来！你准备好了吗？
 
+哎呀，不行，我等一会儿要赶快跟人家视频，视频完了我还得健身去；然后我还得倒一下子，还得睡一下，睡得太少了。然后，我得打打坐，不打坐可过不了，受不了。
 
-当日网友把林伍德律师拒绝撤回诉讼的信发布推文，表示对Newsmax 新闻向投票公司卑躬屈膝的态度感到愤怒。推文称：
+大日子啊——十二月二十一号，我没搞错，应该是二十一号。今天是冬至，今天我们要吃酸菜饺子。穷人嘛，也只能吃点饺子了，是吧？饺子，永远是我们中国人最好吃的。
 
-
-> @Newsmax不要因为Smartmatic的官司而毁了你新收获的收视率。做你的调查！另外，一个真正的男人是这样回应的。LLin Wood代表Sidney Powell… 也被Smartmatic起诉了。这是他的回应。
-
-
-林伍德律师回推：
-
-
-> 作为诽谤律师，我对以下事件感到非常惊讶和失望：
-> 
-> 对于鲍威尔律师的声明SmartMatic所做的回撤需求，让@newsmax 迅速向SmartMatic 屈服。
-> 
-> Newsmax没有做任何独立调查 & 作为出版者具有非常有限的法律基础。
-> 
-> 没有意义。
-> 
-> 要小心。
-
-
-
-
-> As defamation lawyer, I was very surprised & disappointed by [@newsmax](https://twitter.com/newsmax?ref_src=twsrc%5Etfw) quick surrender to SmartMatic retraction demand over [@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw) statements.
-> 
-> Newsmax has done NO independent investigation & has very limited legal exposure as REPUBLISHER.
-> 
-> Doesn’t make sense.
-> 
-> Be careful. [https://t.co/cWWlm4KteS](https://t.co/cWWlm4KteS)
-> — Lin Wood (@LLinWood) [December 22, 2020](https://twitter.com/LLinWood/status/1341476451929960448?ref_src=twsrc%5Etfw)
-
-
-
-
-
-新闻素材和图片来自林伍德律师推特
-
-
+唔该哂，兄弟姐妹们！
 
 0

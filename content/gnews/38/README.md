@@ -1,39 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】鲍威尔暗示军事介入的其他可能性
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/676114/)
+## 【林伍德律师推文1222】-乔州副州长Geoff Duncan 所做的交易
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/676173/)
 
-作者：香草山写作组 正义的小新 校对/发稿：飞虹
+2020年12月22日林伍德律师转发Fox5Atlanta 的一篇文章，报道了乔治亚州副州长杰夫-邓肯(Geoff Duncan)试图向一家州医疗保健供应商Sharecare出售医疗保健应用程序，该合同价值1400万美元。这宗交易是在双方私人飞行、体育赛事的门票、在蒙大拿州为期一周的会议下进行，而乔治亚州财经委员会却从来闭口不谈此事。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/14092131/GNEW-GTV-MOS-LOGO-2.jpg)
+笔者发现一家在美国证交所上市的互联网人工智能公司Remark 控股（原名Remark 传媒）的总裁Kai-Shing Tao在Sharecare 公司拥有董事会席位。因此乔治亚州副州长与中共之间千丝万缕的联系浮出水面。
+
+林伍德律师推文称：
 
 
-
-近日，川普总统及其团队的律师詹娜·埃利斯都表示，没有计划使用《起义法》和实施戒严令。然而，鲍威尔律师通过其电报渠道（telegram）建议，实施军事介入还可能通过其他途径。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22142433/25-1.png)图片来源：美联社
-鲍威尔在加密的应用程序Telegram上建立了群组，可以“绕过”被渗透的主流媒体进行新闻播报，非常易于使用且非常有效。截至目前，鲍威尔的Telegram频道发展迅速，已有近5000个订阅者。
-
-以下是对鲍威尔在其Telegram频道上的内容分析。
-
-首先，鲍威尔在该频道的顶部固定了一个帖子，称她正被总统考虑作为调查选举欺诈的特别检察官。
-
-其次，在鲍威尔与弗林将军一起出席了周五在白宫椭圆形办公室举行的“深夜会议”后，鲍威尔在其频道推出了两个有关军事介入国内政治的文章。
-
-其中一个摘录自有关军民作战的美国军事联合学说，其中指出：“军事政府是有权决定通过武力或协议对本国、盟国或敌人领土的土地、财产和工业目标进行军事行动的最高权力机构，当需要实现国家战略目标或保护国家利益时，美国国民领导层可以决定进行军事干预。支持（美国政府）稳定工作的美军支持选举程序，以便在新政府恢复所有主权责任以及美国政治意愿得到执行之前，确认政府的合法性。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22142231/29.png)
-第二个是川普总统在推特上发表的一条推文，称媒体对他将在美国实施戒严的报道是“假新闻”。
-
-川普总统可能已决定让军队部分介入选举过程，也可能会在有争议的州举行重新选举。鲍威尔推断，总统不会实施戒严令。
-
-总统可能会任命一名特别检察官来调查在美国大选之前和之后发生的大规模选举舞弊，将结果交付给美国人民，并追究有关人员的责任。朱利安尼律师也一直在报告这种可能性。
+> 爱钱是万恶之源。乔州副州长 @GeoffDuncanGA @GeoffDuncanGA，州长@BrianKempGA，爱钱和办公室的特权。
+> 
+> 乔州当选官员不关心我们人民。
 
 
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+> The love of money is the root of all evil. GA Lt. Gov. [@GeoffDuncanGA](https://twitter.com/GeoffDuncanGA?ref_src=twsrc%5Etfw), like GA Gov. [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw), loves money & perks of office.
+> 
+> GA elected officials do not care about We The People.[https://t.co/DxFLDOnghI](https://t.co/DxFLDOnghI)
+> — Lin Wood (@LLinWood) [December 22, 2020](https://twitter.com/LLinWood/status/1341398165459746822?ref_src=twsrc%5Etfw)
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+新闻素材和图片来自林伍德律师推特和
+
+[https://www.fox5atlanta.com/news/lt-governor-geoff-duncan-attempted-to-sell-a-health-care-app-concept-to-a-state-health-care-vendor](https://www.fox5atlanta.com/news/lt-governor-geoff-duncan-attempted-to-sell-a-health-care-app-concept-to-a-state-health-care-vendor)
+
+新闻参考
+
+[https://www.prnewswire.com/news-releases/remark-holdings-corrects-recent-misinformation-campaign-by-short-sellers-301115648.html](https://www.prnewswire.com/news-releases/remark-holdings-corrects-recent-misinformation-campaign-by-short-sellers-301115648.html)
+
+
 
 0

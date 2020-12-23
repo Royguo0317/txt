@@ -1,72 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 关于1969
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/676729/)
+## 韩国首尔农场战友抗议王毅访韩&#8212;-酒色姐姐
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/676705/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22185225/Mao-Zedong-Chinese-Cultural-Revolution-poster-crowd.jpg)
-曾经保卫皇帝的功臣
-
-坐上龙椅后沾沾自喜
-
-为了夺回失去的龙椅
-
-皇帝再次试验大清洗
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22191949/Screen-Shot-2020-12-23-at-9.19.26-AM.png)
+2020，11，26，中共国崴脚大使王毅造访韩国，首尔喜韩农场战友到驻韩国大使馆前抗议中共故意释放冠状病毒杀人，要求中共找出真相。战友们的勇敢，呐喊吓死王歪长了，正门都不敢走，从后门进去。战友们的勇敢和王毅老儿的胆怯鲜明对比，填了二曲调戏那老儿。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22192123/Screen-Shot-2020-12-23-at-9.21.08-AM.png)
+古调笑•戏王毅老儿
 
 
 
-文明古国刚刚走近民主
+王毅，王毅
 
-化外番邦送来马列思想
+出使大韩之地。
 
-大同世界有了明确方向
+保镖铁甲护航，
 
-革故鼎新之际双雄并存
+傲慢装逼样狂。
 
-命中注定不可一时瑜亮
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22185252/Cultural_Revolution_updated_still.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22185413/c88644a49f16929540cddcede5394ecb.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22185846/fd1ba6899d9152e8fda3bda45052313d.jpg)
+狂样，狂样，
 
+遇见游行狗丧！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/22192340/Screen-Shot-2020-12-23-at-9.23.21-AM.png)
+老汉， 腿干颤。
 
-打倒反动派打倒走资派打倒一切不属于我的派
+抬起脑壳装定淡。
 
-扶持红卫兵扶持工农兵扶持一切保卫我的兵
+示威抗议高声喊。
 
-如果革命只是抢权力为什么要利用老百姓
+部长龟孙色变。
 
-单打独斗力强者胜一个对一个才最公正
+正门怯进臀门窜
 
-从中国建立到天下大乱才经过二十年
+战友开心笑讪！
 
-没有外敌只算内战居然死亡三千万
+—-酒色姐姐
 
-多少人脖子上挂着罪名游街示众
-
-多少人被剃了阴阳头失去尊严
-
-多少人住进牛棚浪费了学术
-
-多少人因为批斗妻离子散
-
-就只为将那一个人扳倒
-
-卫皇的名字无人知晓
-
-曾经的他无人不晓
-
-一个皇帝失踪了
-
-全国人找不到
-
-这就是革命
-
-革你的命
-
-夺回了
-
-我的
-
-命
-
-—-修文
-
-0
+1+

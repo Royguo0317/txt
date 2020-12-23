@@ -1,54 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 迪斯尼董事梦寐以求的职位是驻华大使
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/676339/)
+## 拜登至少获得了1300万张虚假选票
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/675847/)
 
-新闻来源：Breitbart《布赖特巴特》； 作者：吴大伟（DAVID NG）； 发布时间：020年12月18日
+*新闻来源：GATEWAY PUNDIT《网络观察员》； 作者：Joe Hoft； 发布时间：2020年12月20日*
 
-翻译/简评：Marialu；校对：X-Wing飞得更高；审核：万人往；Page：拱卒
+*翻译/简评：helloworld；校对：Beicy-数学老师；审核：万人往；Page：拱卒*
+[!\[\]()!\[\](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/51f104f9-4174-4ecb-ba34-47a7215449f7.jpg?asset_id=a44f7be0-ffb7-4704-ac56-dc8a39582b84&amp;img_etag=%2231ff1c2a8a21fb4e5817181d8521033b%22&amp;size=1024)](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/51f104f9-4174-4ecb-ba34-47a7215449f7.jpg?asset_id=a44f7be0-ffb7-4704-ac56-dc8a39582b84&amp;img_etag=%2231ff1c2a8a21fb4e5817181d8521033b%22&amp;size=1024)
+#### **简评：**
 
-**简评：**
+这篇文章从简单的数学计算开始，直接推导出选票作假的结论。按文章的分析，选票作假显而易见，就算是基于左派媒体的数据也能轻易得出结论。
 
-据《华尔街日报》报道，迪斯尼公司董事长鲍勃·艾格（Bob Iger）表示有兴趣在乔·拜登政府出任美国的下任驻华大使。
+毋须多言，每一个清醒的美国民众，无论民主党还是共和党，都早已发现这一事实。
 
-按照传统，总统们都会以大使的职位奖励捐款大户。然而，最重要的是，艾格与中共领导人建立了密切的关系。迪斯尼在中国投资巨大，在上海和香港设有主题公园。这家制片厂还依靠中共国票房来实行盈利。
+中共对于钟摆效应的利用，70年来屡试不爽。但随着这一次拜登硬盘门的曝光，以及选举舞弊如大火般无法遮掩，中共在美国内部的政治同盟将因其背信弃义引火上身，最终与中共彻底决裂。虽然我们无法直接看到决裂的过程，但能明显感觉到，美国人不再“天真”。
 
-去年在谴责中共国对香港民主抗议者的镇压，艾格采取禁声措施，禁止ESPN（是一间24小时专门播放体育节目的美国有线电视网）记者发表有关中港关系的任何讨论。
+无论是川普总统，还是其政治对手，经历这一切后，都将因自己的立场展开对中共的清算。我们拭目以待。
 
-现在所谓的“当选总统拜登”谈论组阁政府还为时太早，总统之位，鹿死谁手还未知。要是拜登和艾格之流成功，真是引狼入室，只能加速中共对美国的渗透，因为他们根本不是代表美国人民的利益，只为能从中共政府那里赚取更多的钱财，以出卖美国国家利益、破坏自由民主体制为代价。他们是标准的中共走狗！
+#### **原文翻译：**
 
-愿美国人民尽快觉醒！
+# 揭秘：“简单计算”显示，拜登声称获得的选票数量比2020年大选合格选民还要多出1300万
 
-**原文翻译：**
+**2020年大选将成为美国历史上最腐败的选举**
 
-**报告：迪斯尼董事长鲍勃·艾格（Bob Iger）有兴趣成为拜登的驻华大使**
+[!\[\]()!\[\](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/74d6d45b-1ae1-41c7-ab8d-9f8157a1ccbe.jpg?asset_id=5dc6f188-61e6-4e4b-b0c0-1a5437cd8786&amp;img_etag=%22298add387206052d297adae43f39f8dd%22&amp;size=1024)](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/74d6d45b-1ae1-41c7-ab8d-9f8157a1ccbe.jpg?asset_id=5dc6f188-61e6-4e4b-b0c0-1a5437cd8786&amp;img_etag=%22298add387206052d297adae43f39f8dd%22&amp;size=1024)
 
-**华特迪士尼公司（Walt Disney Co.）董事长鲍勃•艾格表示有兴趣在乔•拜登的领导下出任驻华大使，据说，他向当选总统团队中的人提出了担任这一梦寐以求的外交职位的建议。**
+**这次美国大选的舞弊方式花样百出**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/sOGc49Qg6fdTt/images/471eb345-368c-4ce0-adf4-22fce6253ff1.jpg?asset_id=22d57cb2-1612-4800-9231-65b810fbc098&amp;img_etag=%221a6e22c400d2a9d4079a11968b1541d8%22&amp;size=2560)](https://spark.adobe.com/page/sOGc49Qg6fdTt/images/471eb345-368c-4ce0-adf4-22fce6253ff1.jpg?asset_id=22d57cb2-1612-4800-9231-65b810fbc098&amp;img_etag=%221a6e22c400d2a9d4079a11968b1541d8%22&amp;size=1024)迪斯尼董事长鲍勃·艾格（Bob Iger）
+[!\[\]()!\[\](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/2922bd62-492c-4358-93e2-127004004e64.jpg?asset_id=42a4d996-518f-4b61-a411-c556532f8993&amp;img_etag=%22c2ff61853ac0e154381bcb06bedbee33%22&amp;size=2841)](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/2922bd62-492c-4358-93e2-127004004e64.jpg?asset_id=42a4d996-518f-4b61-a411-c556532f8993&amp;img_etag=%22c2ff61853ac0e154381bcb06bedbee33%22&amp;size=1024)
 
-但考虑到迪士尼对中国共产党独裁统治的绥靖历史，这一可能的任命已经招致批评，认为这是一个软弱的选择。
+（**推文链接 **https://twitter.com/KanekoaTheGreat/status/1340180468239503361）
 
-《华尔街日报》报道，根据“知情人士”的匿名消息来源，鲍勃·艾格已经与拜登的过渡团队取得联系，以传达他对大使职位的兴趣。该报指出，拜登向“拜登胜利基金”捐赠了50万美元，并向民主党人当选国会议员提供了总计8.51万美元的资金。
+(**推文翻译**)[email protected]:当你获得创纪录的低于17%县的选票、失去黑人和西班牙裔支持、失去18/19领头县、失去俄亥俄州、佛罗里达州和爱荷华州选举人票，并完全丢失选前认为胜负难料(“Toss-Ups”)的27个众议院席位时，但你却超越了先前的最高投票纪录！
 
-据《华尔街日报》报道，美国梦工厂（Dreamworks）和短视频平台（Quibi）的前老板杰弗瑞·卡森伯格(Jeffrey Katzenberg) 也为艾格说了一句好话，告诉拜登过渡团队，他将成为一名优秀的驻华大使。
+TRENDING: “Big News Coming Out Of Pennsylvania”- Trump Tweets: “Very Big Illegal Ballot Drop”
 
-按照传统，总统们都会以大使的职位奖励捐款大户。最重要的是，艾格与中共国国家主席习近平的长期商业关系可能会成为达成交易的潜在奖励。
+趋势：“宾夕法尼亚传来重大消息” -川普推文：“非常多的非法选票”
 
-但鉴于迪斯尼过去未能对抗中共统治者，鲍勃·艾格也提出了主要的缺点。
+美国情报专家威廉·宾尼(Bill Binney)昨天发布了一条推文，指出2020年大选全国范围内投票的人数超过了有资格投票的人数。
 
-去年，艾格因拒绝谴责中共国对香港民主抗议者的镇压而受到抨击。在他的领导下，迪斯尼禁止美国有线电视网（ESPN）记者发表有关中港关系的任何讨论。这一决定是在休斯敦火箭队总经理达里尔·莫雷（Daryl Morey）在推特上支持香港民主运动而引起争议之后做出的。
+[!\[\]()!\[\](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/ba5709a2-7cc7-426b-81c5-2cd767015e28.jpg?asset_id=fde50c75-a244-4ea2-9654-54dd96447b40&amp;img_etag=%22903a725d8bf325bbc73c8d54bb816503%22&amp;size=3059)](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/ba5709a2-7cc7-426b-81c5-2cd767015e28.jpg?asset_id=fde50c75-a244-4ea2-9654-54dd96447b40&amp;img_etag=%22903a725d8bf325bbc73c8d54bb816503%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/sOGc49Qg6fdTt/images/28bab8dd-9bc4-4f85-b2f3-518ffabaebd8.jpg?asset_id=b1650515-d1cf-4e07-8cf9-dd9301fae664&amp;img_etag=%22435667c7f7321a0235ebf1d911fd98f9%22&amp;size=1024)](https://spark.adobe.com/page/sOGc49Qg6fdTt/images/28bab8dd-9bc4-4f85-b2f3-518ffabaebd8.jpg?asset_id=b1650515-d1cf-4e07-8cf9-dd9301fae664&amp;img_etag=%22435667c7f7321a0235ebf1d911fd98f9%22&amp;size=1024)迪士尼在中国投资巨大，在上海和香港设有主题公园。
+（**推文链接 **https://twitter.com/Bill\_Binney/status/1340106702167961602）
 
-迪士尼在中国投资巨大，在上海和香港设有主题公园。这家制片厂还依靠中共国票房来帮助其大片实现盈利。因此，艾格与中共领导人建立了密切的关系。
+(**推文翻译**)Bill Binney, Constitutional Patriot @Bill\_Binney：(39)以2.12亿注册选民，66.2%的投票率计算，有1,4034万人投票。现在如果川普获得了7400万选票，那么拜登最多只能获得6634万张选票。这与我们得到的信息完全冲突（拜登宣称获得8100万张选票）。谎言，全都是谎言！
 
-《华尔街日报》指出，艾格第一次与习近平见面是在一次中国之行，当时迪士尼为发行1997年马丁·斯科塞斯（Martin Scorsese）的电影《达赖的一生》（Kundun）而道歉，这部电影是达赖喇嘛的传记片。这部电影因其对毛泽东主席的负面描写以及展现中共国军队屠杀西藏人的场景而激怒了中共国领导人。
+http://worldpopulationreview.com/state-rankings/number-of-registered-voters-by-state
 
-艾格的迪士尼董事长任期将于明年到期。这位好莱坞高管在上一次大选中曾被传出酝酿（考虑）竞选总统，但他最终选择不参加竞选。
+宾尼指出的是，根据《华盛顿邮报》的数据，2020年的选民投票率是一个多世纪以来最高的:
 
-[原文链接](https://www.breitbart.com/entertainment/2020/12/18/report-disney-chairman-bob-iger-interested-in-becoming-ambassador-to-china-under-biden/)
+[!\[\]()!\[\](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/3b61ca76-f55b-45b6-8c8d-7c3b6443ddad.jpg?asset_id=511ad853-5f01-47e0-b81b-c259f2139aa9&amp;img_etag=%22f88ef3df85443960aa8e2555b62ba387%22&amp;size=2560)](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/3b61ca76-f55b-45b6-8c8d-7c3b6443ddad.jpg?asset_id=511ad853-5f01-47e0-b81b-c259f2139aa9&amp;img_etag=%22f88ef3df85443960aa8e2555b62ba387%22&amp;size=1024)
+
+当然，这从表面上看就意味着欺诈，因为没有人对投票给乔-拜登感到兴奋。但是《华盛顿邮报》以他们的极左极端偏见，不会认为这是欺诈。
+
+宾尼附上了美国注册选民人数的链接。我们拷贝了一份截至到今天的数据，并将这些选民人数了加起来。当我们把登记的选民人数相加时，我们得到的结果是，截至今天上午，美国有2.138亿注册选民。
+[!\[\]()!\[\](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/5e38e6a8-b6ee-4c06-8763-0a9cf9cb6391.jpg?asset_id=afe1a9a4-13be-47b3-8515-992b5435e11b&amp;img_etag=%225dbfbb48f45382387cbbd4f8ea07464a%22&amp;size=4546)](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/5e38e6a8-b6ee-4c06-8763-0a9cf9cb6391.jpg?asset_id=afe1a9a4-13be-47b3-8515-992b5435e11b&amp;img_etag=%225dbfbb48f45382387cbbd4f8ea07464a%22&amp;size=1024)
+用截止到今天的数据，其与Binney的数据有实质性的相似，我们发现了一个巨大的问题。如果在美国我们有2.138亿注册选民，66.2%的选民在2020年大选中投票，那么相当于有1.415亿名选民在2020年大选中投票（Binney显示的是1.4亿，实质上是一样的）。
+
+**如果特朗普总统赢得7400万张选票，那么拜登只剩下6750万张选票。这意味着有1300万张重复或编造的选票被制造出来，并被计入拜登的选票!**
+
+**这也佐证了我们最初的发现。拜登以所有可以想象到的方式进行欺诈，但最大的窃取是数以百万计的假票，这些假票是为拜登窃取选举而制造的。数百万张！**
+
+**2020年的选举错的没边儿，数据就根本对不上**。**这不是严谨的数学—非常简单的数学，甚至不严谨的人都应该能够理解**。**显而易见，拜登阵营实施了高级别的欺诈舞弊。**
+
+[原文链接](https://www.thegatewaypundit.com/2020/12/breaking-huge-simple-math-shows-biden-claims-13-million-votes-eligible-voters-voted-2020-election/)
 
 [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
@@ -56,8 +72,6 @@
 
 [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/sOGc49Qg6fdTt/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/sOGc49Qg6fdTt/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/sOGc49Qg6fdTt/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
-1+
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/)
+[!\[\]()!\[\](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/Ppez0iE3Sfl1Q/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+0
