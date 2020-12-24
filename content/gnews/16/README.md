@@ -1,28 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Facebook正面临政府的反垄断诉讼
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/679255/)
+## （拜登白宫？）即将上任的新闻秘书肯定：拜登不会与任何一位下一任司法部长候选人讨论亨特-拜登
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/678952/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23125731/capture-158.jpg)图片来自：facebook.com
-据CNBC新闻12月22日报道，在联邦和州调查人员本月向联邦法院提出针对Facebook的全面反垄断指控之前，Facebook 由其公司顶级律师出面，提出了一项示好性建议，以期换取不被指控。该建议表示，Facebook可以通过将自己的代码和用户关系网授权给另一家公司来帮助构建一个新的社交网络，从而促进行业竞争。Facebook一直否认其存在反竞争行为。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23105211/jen-psaki-1606761123-scaled.jpg)
+翻译：喜马拉雅
 
-《华盛顿邮报》周二证实了此消息并称，Facebook的建议并未获得外界认可，并被调查人员最终拒绝。该建议其实向外界表明，Facebook为了摆脱诉讼要做什么样的取舍。
+即将上任的白宫新闻秘书Jen Psaki肯定，乔-拜登不会与当选总统（暗指拜登本人-译者注）提名司法部长的任何人选讨论对他儿子亨特的调查。
 
-反垄断诉讼的一部分内容将焦点放在“网络效应”这个概念上，用行业术语来说，网络效应就是指网络规模越大，用户对其“依附性”就越强。例如，一旦某个用户的多数朋友和家人都加入了某一社交网络，该用户就不太愿意转到用户较少的新平台，即使新平台有一些更理想的功能。而Facebook的建议被认为可能没有完全考虑到这一效应。
+Jen Psaki周日接受了福克斯新闻的克里斯-华莱士（Chris Wallace）的采访，
 
-监管机构根据诉讼内容认为，Facebook之所以在行业内屹立不倒处于上风，不仅仅靠的是它的技术，而且还是因为其在众多用户生活中已经取得的根深蒂固的地位。
+Chris Wallace问到**“拜登为什么在儿子受到税务调查的情况下，对儿子充满信心的？”**。
 
-Facebook的一名发言人向《华盛顿邮报》表示，因为免费服务、广告和应用程序给公司带来的价值，Facebook将继续努力捍卫企业和个人用户对公司产品的选择权。
+Jen Psaki回答：“拜登指责共和党人利用调查来玩弄政治对付他”
 
-**评论**：处理这起诉讼案的纽约总检察长莱蒂亚·詹姆斯（Letitia James）表示，近十年来，Facebook一直利用其行业主导地位和垄断力量打压较小的对手和扼杀竞争，而这一切的代价就是牺牲普通用户的利益。Facebook在竞争对手威胁到公司统治地位之前就收购了对手。Facebook确实存在侵犯行为，它通过并购方式消除竞争者，并分割并购后的应用从而限制这些应用独立发展。 比如，Facebook一直限制WhatsApp提供移动消息服务，并限制WhatsApp在美国的推广。反垄断的目的是遏制大型企业损害竞争，因为只有维持竞争，消费者才能在商家的竞争中获益。
+Chris Wallace询问Jen Psaki如拜登当选会不会承认会亨特的调查是”合法调查”。
 
-今年大选的舞弊行为，更凸显了社交媒体的垄断现象，阻碍了广大民众发出正义的声音。由于Facebook和Twitter是美国最主要的两个平台，依仗着没有势均力敌的竞争者， 它们毫无顾忌地封杀他们不想听到的消息，即使这些消息是真实的。如果没有这种垄断，同时美国有多个社交媒体并存，用户均匀的使用不同平台，就不会出现今天这种尴尬的局面。我们期待早点拆分Facebook和Twitter，减少一家独大，以势压人的局面。
+Wallace意识到拜登说的是共和党人会把调查”当做政治手段”，对此Psaki表示认可。但她又转回核心问题，说拜登会维持司法部和行政部门之间的独立。
 
-[原文链接](https://www.cnbc.com/2020/12/22/facebook-offered-to-license-code-before-antitrust-charges.html)
+目前还没有决定拜登将提名谁担任司法部长。他一直强调，这名人选将监督一个独立的部门。他正在寻找一个具有最高水平、有诚信的人。这个人不管是谁，都将监督司法部进行的任何调查，坦率地说，这就是司法部应该如何工作的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24002409/Screen-Shot-2020-12-24-at-2.23.48-PM.png)
+华莱士继续追问，**拜登是否会让主持亨特调查的美国司法部长”完成工作”**。
 
-译评：Alton
+**“他不会与任何司法部长候选人讨论对他儿子的调查。**“普萨基回答。**“他不会与正在考虑担任该职位的任何人进行讨论，未来的司法部长和他的政府有权决定如何处理任何调查。”**
 
-校对：沙拉猫
+原文：[https://www.mediaite.com/tv/incoming-wh-press-secretary-jen-psaki-pledges-that-biden-wont-discuss-hunter-biden-with-any-ag-candidate/](https://www.mediaite.com/tv/incoming-wh-press-secretary-jen-psaki-pledges-that-biden-wont-discuss-hunter-biden-with-any-ag-candidate/)
 
-0
++1

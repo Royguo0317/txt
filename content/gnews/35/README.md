@@ -1,33 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 林伍德许下圣诞心愿：让乔治亚州首长在监狱过圣诞
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/678832/)
+## 数据挖掘机：200万党员信息之外资银行篇
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/680193/)
 
-- 编辑：Victor Torres
+撰稿：Gradient Boost
+
+审稿：Jenny
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23211251/Article07_2.jpg)图片来自Pexels免费照片素材库
+上周上海200万党员信息泄露的消息可以说是一石激起千层浪，而随该消息同时流出的，自然还有那接近200万党员的数据文件。作为一个刚入门Python（一种可用于数据分析的程序语言）不久的代码菜鸟，笔者感觉或许找到了一个练手的机会。灭共的同时顺便提升一下自己的职业技能水平，何乐而不为呢？由于数据过于庞大，一次来个全方位调查对于笔者手中又小又破的笔记本电脑来说实在是不太现实，所以本文主要讲讲外资银行的那些事儿。
+
+我得到的数据资料一共被分成了两个部分，第一部分名单包含1,048,576个观测数据，而第二部分则包含908,663个观测数据，似乎是与各大媒体报道的名单中人数相符。在第一部分的名单上搜索“银行”这个关键词，你就能找到渣打、汇丰、三菱等外资银行的名字。在第二部分的名单上则找不到这些外国银行。在经过一番统计之后，我得到的结果如下图所示：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23211214/001-5.png)图片为笔者个人制作
+可以很清楚地看到党员渗透最多的五家银行为汇丰、渣打、东亚、恒生以及花旗，随后则是一批日本银行。而总部位于澳大利亚的澳新银行也有二十来号党员入驻（实际数目为23），不过澳大利亚的其它银行似乎并没有在数据中被检索出来（如有遗漏也欢迎各位高手指正）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23211359/002-2.png)图片为笔者个人制作
+至于各银行内设置的党支部或党组织数量与各银行单位的党员人数可以说是遥相呼应的，渣打和汇丰可以说是一骑绝尘（或者说两骑绝尘？），党支部的数量尽分别达到十个和九个！其它银行相比之下似乎就要逊色那么一点了，恒生和东亚并列第三却都只有四个支部或组织。
+
+也许光说银行大家还是会有些困惑（毕竟笔者光听这些银行的名字也没法完全弄清楚它们究竟是什么来头），于是在这里将各银行按照总部所在国家或地区做一个归类，再呈现两组图表：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23211428/003-1.png)图片为笔者个人制作
+通过上面这张图不难看出，英国银行里的党员人数是最多的，其次则是香港和日本。令笔者较为意外的是泰国银行也有党员入驻，虽然数量相比之下并不算特别多（实际数目为14）。至于各银行所属国或地区的党支部数量依旧与人数相挂钩，还是英国、香港及日本夺得前三甲的位置。由于汇丰和渣打都来自英国，而这两家银行的党支部和组织数量又是最多的，这使得英国突破了二十大关，遥遥领先，令其他诸国都望尘莫及。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23211431/004-1.png)图片为笔者个人制作
+文章最后，分享一张大统计表（总览）。因为本人纯新手一位，属于之前Python个人作业只拿了六十分的那种，在数据呈现方面如果有任何纰漏或错误，欢迎各位高手指正。
+
+（本文纯属个人观点）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23211600/009.png)外资银行总览表，图片为笔者个人制作
+注：
+
+1. 富华邦一银行总部虽然在上海，但是其母公司富邦金控实际总部位于台湾台北市
+2. 事实上笔者还找到三个外资银行党组织，但并未针对某个银行而特别成立，这三个组织总计有64人
+3. 数据来源：[https://gitlab.com/wesliew/shanghai-ccp-member-db/-/tree/master/untrusted-blob-of-raw-data](https://gitlab.com/wesliew/shanghai-ccp-member-db/-/tree/master/untrusted-blob-of-raw-data) （但是笔者再次想要访问时发现数据已经下架，有心的战友可以在Gitlab上自行搜索寻找）
+4. 笔者使用的数据处理工具为Python Pandas DataFrame，即不一定必须使用SQL（但Excel应该是操作不了……）
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+[澳喜文章](https://gnews.org/zh-hans/author/aujenny/)
 
-**西班牙2020年12月23日电/西喜社——**林伍德周三发推称：
-“选举欺诈是无可争议的事实，这只是冰山一角。
-听了川普总统有关选举欺诈的话，提醒了我修改圣诞节(心愿)清单。 我希望乔治亚州州长布莱恩·坎普和州务卿被逮捕并扔进监狱过圣诞。
-还有很多其他人也是。
-上吧，圣诞老人。”
-
-
-
-> Undisputed facts establishing election fraud & this is just tip of the iceberg.
-> 
-> Listening to [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) on election fraud reminded me to revise my Christmas List. I want [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw) & [@GaSecofState](https://twitter.com/GaSecofState?ref_src=twsrc%5Etfw) arrested & tossed in jail for Christmas.
-> 
-> Many others too.
-> 
-> Go big, Santa. [https://t.co/GsgVYlNgnu](https://t.co/GsgVYlNgnu)
-> — Lin Wood (@LLinWood) [December 23, 2020](https://twitter.com/LLinWood/status/1341745666964529152?ref_src=twsrc%5Etfw)
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
-
-0
+[欢迎加入澳喜农场](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20035659/IMG_1836.jpg)
++3

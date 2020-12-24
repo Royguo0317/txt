@@ -1,35 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友寄语】满江红•冬至（宋词）
-` GM42` [轉載自GNews](https://gnews.org/zh-hans/678743/)
+## [弗林将军推文1223]-将士准备好了
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/680150/)
 
-编撰:酒色姐姐
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23204659/troop-for-trump.png)
+12月23日弗林将军发推一副视频，没有附言。视频很安静，只有两面旗帜迎风飘舞的声音，上边是美国国旗，下边的旗帜上写着 “Troop For Trump” (川普的军队）
 
-覆核：MY
+这个视频拍摄的地点不明，谁升起的旗帜，也不明，有一点明确的是，美国人民为总统而战、为自由而战，已经准备好了。
 
-插图：文粤
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23090111/%E4%B8%8A%E9%9B%86.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23090056/%E4%B8%8B%E9%9B%86.jpg)
-冬节重临，汤圆俗，往年丰宴。
 
-无意贺、念儿心碎，何时相见。
 
-六月飞霜香港唳，深宵投狱爹娘唤。
+> [pic.twitter.com/wqBib8fw23](https://t.co/wqBib8fw23)
+> — General Flynn (@GenFlynn) [December 24, 2020](https://twitter.com/GenFlynn/status/1341907063300124678?ref_src=twsrc%5Etfw)
 
-好儿女、热血溅青春，苍天颤！
 
-传病毒，封口岸。扬马列，秋清算。
 
-小人当道上，蛇鼠风范。
+新闻和图片来源于弗林将军推文
 
-民不聊生疯践踏，吏趋富贵违心愿。
-
-有道是、商纣霸陵狂，终消散！
-
-2019.6.9香港爆发反对政府实施《送中条例》后，这块土地就再也不平静，沦为中共魔爪下的附属品。今天的香港正在被妖魔揉虐。
-
-冬至来了，在香港是个很隆重的节日。做冬大过年，很多失去孩子的父母此刻的心情一定很痛苦，我们要坚强起来。
-
-**以上观点仅代表笔者本人**
-
-0
++4
