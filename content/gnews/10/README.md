@@ -1,25 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 19年前川普在911恐袭现场接受采访
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/681198/)
+## 新西兰证交所承认网路安全标准跟不上网络攻击大浪
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/681244/)
 
-撰稿：rosobona
+编译：上進哥
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24050409/Capture-25.png)
+新西兰证券交易所承认自己的网路安全不足以抵御一大波的网路攻击。
 
-视频剪辑：光耀华夏
-Twitter视频剪辑
-十九年前，当911恐怖袭击发生后，川普第一时间赶到灾难现场，连同他雇佣的数百人组成的救援团队一起加入了政府救援工作。
+在首次经历攻击后，情报部门、政府公共交流安全署，开始核查每个政府机构的网络系统，以确保它们是否安全！
 
-这一次，川普总统会再一次带我们走出黑暗与邪恶。
+创建网络安全公司Redshield 的国家顶级网络安全防御员Sam Pickles 说，他在Aotearoa的公司已经经受了攻击大浪，攻击每分钟达3000～5000次！而单今年的攻击已翻了近十倍。
 
-他是一个能够兑现承诺的人！希望永远存在！
+Newshub 认为此次针对新西兰证交所的袭击是历史上最大的，Redshield 网路攻击实时地图展示了被攻击的次数，每秒四千亿字节的阻塞猛烈的攻击系统。
 
-澳喜文章: [https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+而究竟是谁在攻击，在具体何处发动攻击，依然是神秘的，只知道这些攻击大致来自俄罗斯，中共国，英国，美国，东欧，越南，菲律宾，甚至在新西兰本土发动了攻击。
 
-欢迎加入澳喜农场：
-[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+Newshub被告知，攻击是DDos的，来自于富有策略且果断的攻击者，不过这些攻击不是一个国家攻击行为，只是黑客犯罪。而针对DDos攻击，却是豁免的。
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20035659/IMG_1836.jpg)
+Pickles 说，现在新西兰一些组织满足于现状，他们可能认为已经发生的网路攻击是安全的，但很明显不是！
 
+所以这次攻击也是一次警示，可以让人从中学到教训，变得有意识！
 
-+1
+译者简评：
+
+本月十四日，美国国家网络安全和设备安全局（ClSA）紧急发布指令，警示美国联邦机构的民用网络可能被恶意攻击者利用太阳风软件（SolarWinds）漏洞发动攻击，而北约也同样对太阳风软件提出了警示！ 网路战争貌似没有硝烟，但却胜过枪炮，在如今的世界，网络已是社会运行的信息通道和控制系统，一旦渗入敌方网络，就可取得致胜情报，所以中共高度重视军方网络部队，更亦有监狱囚犯组成的五毛网军，用以引导网络與情！谨记，网络战是中共超限战的一个核心组成部分⋯⋯
+
+[援引原文](https://www.newshub.co.nz/home/money/2020/12/nzx-admits-cyber-security-standards-were-not-met-ahead-of-attacks-as-industry-reports-surge-in-kiwi-tech-systems-targeted.html)
+
+0
