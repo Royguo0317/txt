@@ -1,26 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 副总统彭斯的牌废了
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/681756/)
+## 圣诞礼物泡汤！美众议院否决新纾困法案
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/681989/)
 
-翻译撰稿：Jenny
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24093816/IMG_5691.jpg)推特截图
-美国2020年12月24日，当地时间11:26 PM，律师伊文·雷克林(Ivan Raiklin)发推：假如彭斯牌昨天打出去了，
+- 编辑：Victor Torres
 
-1. 避免被Amistad 起诉。
-2. 迫使州拜登竞选团队在假期进行防御，因为举证责任会转移到他们身上，以证明副总统彭斯是错误的。
-3. 允许川普和爱国者们享受圣诞节。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24093917/IMG_5693.jpg)
-**这就意味着给拜登团队至少两周的时间，直到 1月6日。**
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**川普的支持者们翘首期盼的彭斯副总统没有出手行使宪法赋予的权利，律师伊文·雷克林(Ivan Raiklin)几天前开始建议彭斯，根据宪法他需要不迟于12月24日给争议州发反馈撤回拜登作为选举人，否则1/6将作废。**
+**西班牙2020年12月24日电/西喜社—**
 
-林伍德律师也加入了呼吁的队伍，他于12月23日发推说：这是你发誓应尽的职责，明天采取行动。@川普 赢得了压倒性的胜利。我们的自由受到了威胁。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24094001/IMG_5689.jpg)
-川普于12月24日，10:16Am发推：在看到2020年总统大选大规模欺诈之后，我不同意任何人，如果他认为不需要一个强大，快速和公平的特别顾问委员会，这是我们国家有史以来最腐败的选举，必须立即对其进行仔细检查！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24094019/IMG_5690.jpg)
-（本文纯属个人观点）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040800/IMG_1836-1.jpg)
+周四上午，美国众议院投票否决了给每位美国人2000美元的新纾困法案。
+这是南希·佩洛西（Nancy Pelosi）确保法案失败的绝招。
+她所需要的只是一个反对意见，就能确保投票失败。她做到了。
+她本可以召集整个众议院投票，但她没有。 因为她只懂得玩政治和惩罚美国人。
+而且，当然，众议院的共和党人们违抗了川普总统。
+周二，川普总统在白宫发表了关于中共病毒救济法案的讲话，他呼吁国会重新制定周一晚上通过的价值9000亿美元，长达5593页的法案。代之以向美国人提供每位成人2000美元或每对夫妇4000美元的款项。 之前参众两院通过的法案仅向每位成年美国人支付600美元，但为有非法外国人配偶的美国家庭提供1800美元。
+川普指出该法案将巨量美元给了外国和特殊利益集团，与之相比，美国人仅为600美元。 川普还呼吁为小企业，尤其是餐馆，提供更多的救济。
+
+新闻链接：[https://www.thegatewaypundit.com/2020/12/no-christmas-present-gop-lawmakers-defy-president-trump-2000-checks-americans-fails-thanks-pelosis-tricks/](https://www.thegatewaypundit.com/2020/12/no-christmas-present-gop-lawmakers-defy-president-trump-2000-checks-americans-fails-thanks-pelosis-tricks/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12143133/c032d95b-7e6a-4d6f-98ec-36d0e12f2b22.jpg)
 0

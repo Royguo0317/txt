@@ -1,45 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【文雍漫谈】雪崩来时，谁都可能是那片轻飘飘的雪花
-` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/680995/)
+## 川普总统祝贺美国太空部队一周岁生日
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/681325/)
 
-作者：美国纽约七星会农场｜文雍
+新闻简述：川普总统于12月20日祝贺美国太空部队一周岁生日，他勉励这些勇敢的守护者要心怀他们的座右铭“永远在上方” (拉丁文: Semper Supra)，以迈出人类的“一小步”，来实现维护美国和世界和平的一大步。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24055155/WH_20201220_figure1.jpg)[图片来源](https://www.spaceforce.mil/Connect-With-Us/Photos/igphoto/2002538835/)
+[阅读白宫原文](https://www.whitehouse.gov/briefings-statements/presidential-message-first-birthday-united-states-space-force/)
 
-编辑、美工：灭共小宇宙
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24041356/%E6%96%87%E9%9B%8D%E6%BC%AB%E8%AB%8739-copy.jpg)
-这吊诡的庚子年，几乎是囫囵吞枣般地过去了。盘点这即将成为历史的一年，感慨良多。
+Presidential Message on the First Birthday of the United States Space Force
 
-看到一名小企业主发的朋友圈：今年太难了，好不容易熬过了疫情的封锁，迎来了销售旺季。手里掐着订单，满满的希望袭来，就等着全面开工还清这一年的债务了，可是，高兴了半截，刚刚咧开的嘴巴又合拢了。“拉闸限电、错峰生产”，笑容再次切换成一脸愁苦，心里一万匹草泥马在奔腾，你可以错峰，我的订单却不能等，煮了八成熟的鸭子眼看着飞了，临飞之前还顺便砸了煮鸭子的锅。整天制裁这个制裁那个，四处撒泼耍流氓，不是号称拥有全天下最牛的水电站吗？连长江都能腰斩，怎么不灵了？眼看着年关岁尾的销售旺季，却连用电都无法保障，真不知道这厉害国是怎么炼成的。
+总统美国太空部队一周岁生日贺词
 
-据悉，截至目前，中共国内已经有超过20个省遭遇了因电力供应不足而引发的停工潮。有的企业干脆提前放了长达66天的年终假，在劳动保障法极不健全的中共国，停工就意味着停薪，限电更是限到了基本生活用电也无法保障的程度，电能——作为产业源头的能源供给者，可以说牵一发而动全身，接下来，因为电力供应不足产生的下游第三产业、制造业都将受到波及。亚马逊蝴蝶的翅膀已经张开了，照这样下去，将有数以亿计的劳动者遭遇庚子岁尾的饥寒交迫，苦心经营几十年的屁民，一个社会主义的巨浪就把生计与梦想砸成了泡沫。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24041846/WhatsApp_Image_2020-12-23_at_23.08.22.jpg)
-在中共长期的洗脑教育下，国人已经对他人的不幸缺乏痛感了，更不具备推己及人的反思精神。倒是把事不关己高高挂起的劣根性发挥到了极致。别人的房子被强拆，他们认为与己无关；别人的孩子被毒疫苗残害，他们庆幸那不是自己的孩子；别人的企业被“接管”，他们暗暗庆幸自己不是最肥的猪；别人一场病耗光了毕生积蓄，他们躲在家里为自己尚且健康而沾沾自喜，而今天，当全国开启了匪夷所思的“黑暗模式”的时候，你还能说这一切与你无关吗？
+Issued on:  December 20, 2020
 
-别人的眼泪成了自己欢乐的源泉，这才是最可悲的。
+颁布日期：2020年12月20日
 
-这次的电荒真正原因可能很复杂，是多种因素在一个点上爆发的结果，然而，无论如何，共产党都难辞其咎。正是这些流氓统治者简单、粗暴、原始、颟顸（mán hān，意思是糊涂而马虎）的二杆子作风导致了问题的集中爆发。
+As Commander in Chief, I send my best wishes to the men and women of the United States Space on its first birthday!
 
-在中共国，大多数人就靠在各种大大小小的灾难缝隙中“恰好”不是自己而活着，一旦自己遇到困难了，便扯着脖子嚎几嗓子呼天抢地抱怨命运不公，一旦发现身边的人比自己更悲惨，便如哥伦布发现新大陆一样，破涕为笑：看看他们家，比咱们还惨吧？咱们这点苦算不了什么。
+作为总司令，我在美国太空部队成立一周年之际向美国太空军男女将士们致以最诚挚的祝福！
 
-是什么把我们的民族变成了如此自私、懦弱、如此不堪的样子？为什么我们对同类的苦难那么麻木和冷漠？说实话，许许多多的国人，对自己所处的环境都处于懵懂状态。生活在战狼式的语境里，觉得自己厉害得头上都冒出犄角了。如果不是这次限电，根本就不知道厉害国的能源产业对外依存度如此之高，根本就不知道全球化已经让各国之间达到了唇齿相依的程度，更不知道制裁澳大利亚的煤炭会让自己陷入唇亡齿寒的窘境。如果不是无知、盲目、耍流氓的作派惹翻了所有的邻居，真不知道厉害国的翻脸成本如此之高。如果不是高高在上的“一坨”亲自宣布脖子被卡住，都不知道号称养活了十四亿人的泱泱农业大国，自己连种地的种子都依靠进口，如果不是因为不守规矩被制裁，屁民们根本就不知道厉害国根本就造不出高端的芯片。
+Over 50 years ago, Americans produced one of history’s most triumphant achievements by taking “one small step for man” and “on giant leap for mankind.”  As our beautiful American Flag was planted on the Moon’s surface, it was clear what had brought humans to this new and wondrous frontier – the American spirit.  One year ago, we opened another chapter in the extraordinary history of American leadership in space, and strengthened America’s heritage as the world’s as the world’s greatest arsenal of democracy. Today, I commend the brave Americans who have taken their oath and joined the Space Force’s ranks, and the many more yet to join, for taking another giant leap toward a brighter future for all.
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24041647/unnamed-13.jpg)
+50多年前，美国通过“迈出一小步”实现了“人类一大步”的太空实践，创造了历史上最辉煌的成就。当我们美丽的国旗插在在月球表面上时，人类之所以能来到这片崭新而奇妙的边界—很显然，是美国精神。一年前，我们为美国在太空领域的领导地位开启了不平凡的历史新篇章，并加固了美国作为世界上最伟大的民主武库的传承。今天，我赞扬那些已经宣誓加入太空部队勇敢的美国人，还有更多将要加入的人，他们为所有人的美好的未来又迈进了更大的一步。
 
-可惜的是，有多少人，还沉浸在风月宝鉴般的《大秦赋》里，面对一转身就是骷髅的生活，歌颂着头颅滚滚的“大一统”，而丝毫没有反省，仿佛自己会是那个“一将功成万骨枯”的“一将”，而不是万人冢里的“万骨”之一。
+Now, we stand at the birth of a new era.  As space exploration and commercialization continues to increase, our Nation’s boundless future will built upon the success of the Space Force and its members.  True to their motto, “Always Above,” the Guardians of the United States Space Force ensure our Nation continues to maintain peace through strength by securing the farthest reaches of humanity.  These 21st century pioneers keep watch around the world by detecting missile launches, providing strategic advantages to our military and intelligence community, and propelling our Armed Forces into the future.
 
-醒醒吧，同胞们，就算是你想继续躲在《大秦赋》里自嗨，恐怕也是奢望了，因为，断电时代开始了，你的《大秦赋》也会断档，毕竟这部片子还没匹配自我供电模式，秦始皇带电诈尸只会去中南海，不会跳进寻常百姓家。
+现在，我们迎来了一个新时代的诞生。随着太空探索和商业化的持续扩展，我们国家无限的未来将建立在太空部队及其成员的成就之上。美国太空部队守护者所忠实于的座右铭“永远在上方” 是利用美国的强大的实力来抵达人类最遥远的领域进而能维护到美国的和平。这些21世纪的先驱们通过检测导弹发射，为我们的军事和情报机构提供战略优势，因而对世界保持警惕，并推动我们的武装部队走向未来。
 
-再看看风云变幻的世界，有些国家已经进入“人机新时代”了，而我们的同胞还在守着防火墙过返祖的生活，不超越这样的智识、不推翻防火墙、不灭掉借尸还魂的共产独裁，这个民族是没有希望的。
+The United States has the most capable military on Earth, and today, we celebrate the Space Force for extending our safety and security beyond it.  May God protect all those who serve our great Nation in uniform, and may He continue to bless the United States of America.
 
-现在的我们，就处于这样一个波澜壮阔的历史节点上，全世界爱好和平的国家已经吹响灭共的号角，加入新中国联邦！传播共产党祸国殃民的真相，说不定，你就是那最后的一片雪花，轻轻地落在中共这个独裁体制的雪山上，说不定，就在那一刻，中共这个庞然大物轰然崩塌，历史就此翻开新的篇章。
+美国拥有世界上最强大的军事力量，今天，我们庆祝太空部队将我们的安全与防御延伸到更广泛的地方。愿上帝保佑所有为我们伟大国家服务的军人，愿上帝永远保佑美利坚合众国！
 
-所以！不要小瞧一个人的力量，你，就是世界！你站立的样子，就是你未来的国家该有的样子！
+Semper Supra!
 
-更多精彩内容请关注：
+永远在上方！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24055206/WH_20201220_coverphoto.png)
+翻译：【奔腾的长江】校对：【rainbow】编辑：【Isaiah4031】
 
-- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
-- [美国纽约七星会农场（为子孙爱七哥）GTV](https://gtv.org/user/5e986b24b005bd6d929820bd)
+喜马拉雅玫瑰园出品
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19044815/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-2.jpg)
 0

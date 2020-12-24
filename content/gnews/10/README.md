@@ -1,27 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国教育事故频发 已成常态 罪魁祸首到底是谁？男童被老师拖 摔 下巴缝8针
-` shang` [轉載自GNews](https://gnews.org/zh-hans/681700/)
+## 小罗伯特·肯尼迪再次警告专制监视国家和颠覆世界民主的政变
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/681952/)
 
-作者：小妍说
+- 编辑：Victor Torres
 
-辱骂、扎针、打耳光……这些字眼都触目惊心。2020年在中共国这种幼师虐童的事件频频发生。近日，陕西西安未央区新华幼儿园一男童在玩耍凳子时，被赶来的老师提起来扔在地上。监控显示男童摔在地上起身蹦跳摸向自己的下巴。事后家长提供照片显示男童下巴破裂，共缝8针。幼儿园工作人员表示，当时老师和家长一起把孩子送到了医院，现在已报警并上报教育局，将按流程处理。2020年12月20日晚，西安市未央区教育局回应：2020年12月20日晚，我局接到大明宫派出所反映新华幼儿园教师粗暴管教幼儿一事，立即会同街道办事处成立专门工作组，到该园进行调查。经初步调查，12月11日上午10点22分，新华幼儿园小二班教师组织幼儿喝水时，老师厚某某管教行为不当，拖摔杨某某小朋友，致使其颏部软组织破裂三厘米。目前，大明宫派出所已对涉事教师进行治安传唤，将依法依规进行调查处置。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24093418/4C1AAD51-CDB6-4F24-A99A-8B0AD393D811.png)
-幼师对幼童使用暴力，可以说在中共国已经是屡见不鲜了，多次新闻报道，多次社会关注都没有有效的遏制住这种现象，到底是为什么？从视频监控中可以很清楚的看到当时发生了什么？这个幼师既然知道班级里有摄像头，却依然还敢这么做，难道这种恶劣行径是被默许的？甚至是提倡的吗？看看孩子被丢下的那一刻，该有多疼？周围的孩子看到老师的这一举动，该有多么恐惧呢？在这样的环境下，孩子能从老师身上学到什么呢？其他的孩子会不会觉得暴力是被允许的，甚至是一种正常的沟通方式呢？在中共国幼师这个行业真的太混乱了，随着教育低龄化，各种特色幼儿园如雨后春笋一般的冒出，造成了大量的职位空缺，各种无证，无培训人员大量涌入这个行业。并不是歧视这些人的学历，只不过这样就会导致幼师的年龄普遍都偏小，自己还是个孩子呢，很多自己都是家里惯着长大的，控制情绪的能力就会不足。并不是每个幼教都是喜欢小孩，热爱这份事业的？大多数只不过是赚钱养活自己罢了。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24093419/B9665D42-3B21-4E94-A7B2-0E87D1A9702C.png)
-不过值得我们思考的是，不伤害孩子是作为幼师的最基本的原则，但是屡屡发生这样的问题，真的只是老师的问题吗？幼儿园老师门槛低确实是不争的事实，高学历的有几个愿意做这个工作的？不愿意做的原因是什么呢？还不是因为孩子难教薪水还低？目前在中共国的幼儿园，私立学校的费用一年一万算少的了，可是老师们的工资呢？一个月3000左右基本都算多的了，跟公立学校老师比起来差远了，那家长们交了这么多钱都去了哪了呢？为什么大家愿意开幼儿园，还不就是因为暴利行业嘛！所以除了老师以外，幼儿园的管理者也应该承担最重要的责任。生活在中共统治的这个魔鬼世界里，无论是孩子，老师，甚至是任何人都是最大的受害者。纵观世界你会发现只有在中共国你才会看见，年轻人打老人；老公打老婆；老师打学生；家长打孩子；病人打医生护士；城管打百姓；这些天理不容的事，在这个国家早以习以为常。
 
-（文章仅代表作者个人观点）
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-GNEWS之前文章：
+**西班牙2020年12月24日电/西喜社—**
 
-中共高压统治下 学生们失去人生方向  [https://gnews.org/zh-hans/677982/](https://gnews.org/zh-hans/677982/)
+据Gateway Pundit 周四报道，小罗伯特·肯尼迪（Robert Kennedy，Jr.）看到许多美国人看到的东西。 大公司和精英们想接管世界和我们的个人自由。
+小罗伯特·肯尼迪（Robert Kennedy，Jr.）是前总检察长鲍比·肯尼迪（Bobby Kennedy Sr）之子，约翰·肯尼迪（John F. Kennedy）的侄子，之前曾警告过大型制药公司和大型科技公司的联合。 在去年八月德国举行的一次抗议活动中，他曾警告比尔·盖茨的生物安全议程，专制监视国家的崛起以及医药巨头发起的反对自由民主的政变。
+小罗伯特·肯尼迪（Robert Kennedy Jr.）再次警告医药巨头，科技巨头，媒体巨头计划，一旦实现，这将奴役人类：
+我们的希望是川普总统。 我们必须取胜，以阻止这些全球化主义者将我们的世界瓦解，并剥夺我们所有的自由。
 
-13岁女孩深夜被中共党员校长殴打 [https://gnews.org/zh-hans/675528/](https://gnews.org/zh-hans/675528/)
 
-中共国四川小学生坠楼自杀 [https://gnews.org/zh-hans/668841/](https://gnews.org/zh-hans/668841/)
 
-新闻链接：[https://new.qq.com/omn/20201222/20201222A0FAUZ00.html](https://new.qq.com/omn/20201222/20201222A0FAUZ00.html)
+> So powerful, from [@RobertKennedyJr](https://twitter.com/RobertKennedyJr?ref_src=twsrc%5Etfw) 
+> 
+> "This is pharmaceutical-driven, biosecurity agenda that will enslave the human race and plunge us into a dystopian nightmare, where apocalyptical forces of ignorance and greed will be running our lives, and ruining our children"
+> 
+> Please RT [pic.twitter.com/2l6fithd7w](https://t.co/2l6fithd7w)
+> — Ian Lyne (@lyne\_ian) [December 19, 2020](https://twitter.com/lyne_ian/status/1340123138223349760?ref_src=twsrc%5Etfw)
 
+
+
+新闻来源：[https://www.thegatewaypundit.com/2020/12/robert-kennedy-jr-warns-authoritarian-surveillance-state-coup-overcome-world-democracies/](https://www.thegatewaypundit.com/2020/12/robert-kennedy-jr-warns-authoritarian-surveillance-state-coup-overcome-world-democracies/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 0

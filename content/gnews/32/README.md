@@ -1,43 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统祝贺美国太空部队一周岁生日
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/681325/)
+## 【新闻快评】马云亲尝被当韭菜收割的感觉
+` XMLYG777` [轉載自GNews](https://gnews.org/zh-hans/681553/)
 
-新闻简述：川普总统于12月20日祝贺美国太空部队一周岁生日，他勉励这些勇敢的守护者要心怀他们的座右铭“永远在上方” (拉丁文: Semper Supra)，以迈出人类的“一小步”，来实现维护美国和世界和平的一大步。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24055155/WH_20201220_figure1.jpg)[图片来源](https://www.spaceforce.mil/Connect-With-Us/Photos/igphoto/2002538835/)
-[阅读白宫原文](https://www.whitehouse.gov/briefings-statements/presidential-message-first-birthday-united-states-space-force/)
+内新闻/素材：文婷 校对：圣斗士(沙加)
 
-Presidential Message on the First Birthday of the United States Space Force
+2020年12月21日，Bilibili网站发布了一则题为《马云回应垄断：不是把地主灭了，农民就可以富起来！》的视频，这似乎反映出以马云为代表的中共权贵白手套正在央求中共当权者手下留情，放他一马。
 
-总统美国太空部队一周岁生日贺词
+近一个月，习近平开展的中央经济工作会议传出重要信号，以“反垄断”的名义要求整顿互联网巨头对市场的垄断行为。另有报道称，北京当局派出一个调查组，已进驻阿里巴巴，马云前景黯淡。
 
-Issued on:  December 20, 2020
+中共起家就是靠打着正义的旗号到处行骗。当年为了打赢内战，拉拢地主、富农，采取了“临时性的统一战线政策”，推翻国民党后又翻脸，利用阶级矛盾制造仇恨，挑拨工人、农民斗地主。
 
-颁布日期：2020年12月20日
+改革开放以来，邓小平提出“想让一部分人富起来”的本质就是让这些资本家壮大发展起来后统一收割待宰。
 
-As Commander in Chief, I send my best wishes to the men and women of the United States Space on its first birthday!
+今日的“反垄断调查”就是在美国不断加深对中共在美上市资本公司的制裁，使得中共金融资本破产危机加重的背景下的必然结果。这些有着红色权贵资本背景的白手套首当其冲被割韭菜，给中共“再吸口血”。
 
-作为总司令，我在美国太空部队成立一周年之际向美国太空军男女将士们致以最诚挚的祝福！
+就如网友所说：马云、马化腾以为自己绑上权贵的大腿，自认为是“赵家人”，结果都是“韭菜”，只不过是“比较大的韭菜”，但都逃不过被割的命运。
 
-Over 50 years ago, Americans produced one of history’s most triumphant achievements by taking “one small step for man” and “on giant leap for mankind.”  As our beautiful American Flag was planted on the Moon’s surface, it was clear what had brought humans to this new and wondrous frontier – the American spirit.  One year ago, we opened another chapter in the extraordinary history of American leadership in space, and strengthened America’s heritage as the world’s as the world’s greatest arsenal of democracy. Today, I commend the brave Americans who have taken their oath and joined the Space Force’s ranks, and the many more yet to join, for taking another giant leap toward a brighter future for all.
+文章仅代本表本人个人观点。
 
-50多年前，美国通过“迈出一小步”实现了“人类一大步”的太空实践，创造了历史上最辉煌的成就。当我们美丽的国旗插在在月球表面上时，人类之所以能来到这片崭新而奇妙的边界—很显然，是美国精神。一年前，我们为美国在太空领域的领导地位开启了不平凡的历史新篇章，并加固了美国作为世界上最伟大的民主武库的传承。今天，我赞扬那些已经宣誓加入太空部队勇敢的美国人，还有更多将要加入的人，他们为所有人的美好的未来又迈进了更大的一步。
-
-Now, we stand at the birth of a new era.  As space exploration and commercialization continues to increase, our Nation’s boundless future will built upon the success of the Space Force and its members.  True to their motto, “Always Above,” the Guardians of the United States Space Force ensure our Nation continues to maintain peace through strength by securing the farthest reaches of humanity.  These 21st century pioneers keep watch around the world by detecting missile launches, providing strategic advantages to our military and intelligence community, and propelling our Armed Forces into the future.
-
-现在，我们迎来了一个新时代的诞生。随着太空探索和商业化的持续扩展，我们国家无限的未来将建立在太空部队及其成员的成就之上。美国太空部队守护者所忠实于的座右铭“永远在上方” 是利用美国的强大的实力来抵达人类最遥远的领域进而能维护到美国的和平。这些21世纪的先驱们通过检测导弹发射，为我们的军事和情报机构提供战略优势，因而对世界保持警惕，并推动我们的武装部队走向未来。
-
-The United States has the most capable military on Earth, and today, we celebrate the Space Force for extending our safety and security beyond it.  May God protect all those who serve our great Nation in uniform, and may He continue to bless the United States of America.
-
-美国拥有世界上最强大的军事力量，今天，我们庆祝太空部队将我们的安全与防御延伸到更广泛的地方。愿上帝保佑所有为我们伟大国家服务的军人，愿上帝永远保佑美利坚合众国！
-
-Semper Supra!
-
-永远在上方！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24055206/WH_20201220_coverphoto.png)
-翻译：【奔腾的长江】校对：【rainbow】编辑：【Isaiah4031】
-
-喜马拉雅玫瑰园出品
+新闻来源：
+[https://www.bilibili.com/s/video/BV1ev41147By
+http://cn.ntdtv.com/gb/2020/12/17/a103012300.html](https://www.bilibili.com/s/video/BV1ev41147By
+http://cn.ntdtv.com/gb/2020/12/17/a103012300.html)
 
 0

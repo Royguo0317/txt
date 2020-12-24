@@ -1,37 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国会新纾困法案暗含废除总统使用《暴动法》条款
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/681658/)
+## Trump Vetoed Bill to Save U.S., Mr. Guo Took Action to Save Whistleblower Movement
+` 恩典农场` [轉載自GNews](https://gnews.org/zh-hans/681899/)
 
-*加拿大多伦多枫叶农场  小溪*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24103323/%E6%81%A9%E5%85%B8Gnews-logo-1-2.jpg)
 
-*校对 文怡*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24091746/2f1cd8908a432ddfe7a8c15ea93669f7.jpg)图片来源: Ben Garrison
-据美保守政治网站DJHJ媒体（DJHJ MEDIA）12月23日报道，美参众两院于周二通过的巨额法案中令人震惊的细节揭示了华盛顿DC的公务员是如何看待他们的主人——美国纳税人的。支出法案中所包含的一项修正案是将限制宪法所赋予总统作为三军统帅和国家主要领导人的权力。
+(December 22, 2020. LuDe Media, Morning News, LuBoAiGuan Talk)
 
-这项令人震惊的权力攫取条款隐藏在5893页的法案中，写道：“废除总统使用《暴动法》”。推特上有人公布了这些细节并报道了他们：“众议院修正案（H.Amdt.）833至众议院解决方案（H.R.）6395：要求总统在内乱期间在美国境内部署现役军人时，必须修改美国法典第13章第10款中的《暴动法》，并须获得国会批准。
+(Editor/Auditor: WenbaoPorsche Translator:  Arvin)
 
-这是一次对H.Amdit833至H.R.6395修正案通过或拒绝的投票。修正案的标题是H.Amdit833至H.R.6395：**要求总统在内乱期间在美国境内部署现役军人时，必须修改美国法典第****13章第10款中的《暴动法》，并须获得国会批准**。在所有投票中，有53%赞成票；47%反对票。
+**Summary**: President Trump officially signed a veto to the National Defense Authorization Act today because it ignored the enormous security threats to the United States. In the re-veto process to be activated by Congress, President Trump, who has 80 million public support, only needs to get 1/3 of the Congressmen’s support to defeat it. Mr. Guo, by God’s will, had decisively disposed of the Will Affair at a critical time, cutting ties with VOG and Phoenix Farm, which saved the Whistleblower Movement, the New Federal State of China and the general fellow fighters. Mr. Bannon told Dr. Yan on WarRoom that her report has been accurately verified and the CCP will soon be held accountable.
 
-国家公共广播电台6月份报道说，川普总统威胁在夏季骚乱中使用《暴动法》：“川普总统周一威胁说，最近几天发生的暴力示威如果得不到平息，就会在城市中采取军事行动。“如果城市或者州拒绝采取必要的行动去保护他们的居民生命和财产安全，那么我将部署军队快速为他们解决问题“。川普总统在白宫玫瑰花园的一次讲话中说。
+**1. Trump Said National Defense Authorization Act a Gift to Communist China**
 
-为此，总统需要引用1807年的《暴动法》。该法案的原始文本自首次获得通过以来已进行了多次修改，内容为：“法案授权在发生暴动时动用美国的陆军和海军”。
+The President officially vetoed the Act today because it failed to include the provisions to repeal Section 230 and to respect the history of veterans and the military, and it conflicted with the Trump administration’s America First Principles in national security and foreign policy actions, where allowed (CCP-controlled) Ukraine to continue to import advanced weapons from the United States.
 
-它是美国参众两院通过后颁布的，在美国或任何单独州或地区的所有暴动或妨碍法律的情况下，美国总统为确保法律得到执行，要求民兵平息暴动是合法的。如果认为有必要，出于同样的目的，在首先遵守了这方面法律的所有先决条件后，他合法动用这部分美国陆军或海军。
+**2. Trump Scored Big Victory by Vetoing Congressional Bill**
 
-“预计总统会否决这个法案”。与围绕川普总统的选举诚信活动家们关系密切的林•伍德（Lin Wood）律师发帖表示。“国会任何人投票废除川普总统的否决权都是美国的叛徒。加之国会为限制行政长官使用《暴动法》所作的努力是违宪的。爱国者们，你们醒了吗？
+There is no debate session on such an important bill, and only 20 hours are given for congressmen to read it and then vote on it. No one understands the core contents of the bill unless the persons who specifically drafted it, and the other members of the House and Senate simply do not have the time or capability to read the lengthy bill of nearly 6,000 pages, and can only follow the waves to vote for it, thus Congress easily obtained a simple majority of 51% to submit the bill. But, President Trump’s legal team spent 10 working days studying it before Trump pointed out the traps buried in the bill and exercised his veto power, and it is believed that there are many congressmen who support President Trump have seen the truth.
 
-**评：**
+If Congress initiates a vote to reject Trump’s decision next week, Trump would only need the support of 1/3 of the congressmen to block the attempt of Congress. Historical data shows that the chance of Congress overriding a presidential decision is only 10% of that of a president vetoing a congressional decision. The veto, if successful, would be the first time that Trump has forced Pelosi to sit down and negotiate with him equally after four years of holding back, and the political balance of the United States would be biased in favor of President Trump from now on.
 
-以川普总统为代表的全球正义力量与以中共为首的世界暗黑势力的决战已经进入了最关键的阶段。与中共有着数十年深层利益勾兑的华盛顿沼泽里的大鳄们，至此也已完全不顾颜面和美国民众的愤怒情绪，撕下全部伪装，陷入疯狂的权斗中。为此他们不惜用尽一切卑劣手段，妄图废掉川普总统的宪法权力，窃得国家政权，问鼎总统宝座。
+**3. Mr. Guo Decisively Handled Will Affair and Saved ****Whistleblower Movement**** Again**
 
-一项废除总统权力的法律条款，竟然暗藏在一份多达5893页的法案中，并且需要在非常有限的时间内要完成审议。如果稍不留心，就将签署通过成为法案，得到执行，岂不知这里面包藏有多么大的祸心。谢天谢地的是，这项法案应该会遭到川普总统的否决。否则后果不堪设想，美国乃至全世界的命运可能都会因此而改变。
+According to the Will format that Sara announced, a large group of fellow fighters were guided to list family members, the Rule of Law Foundation, the New Federal State of China or a certain farm, etc. as beneficiaries of the Will, and thus these objects would be of the same nature on this list. If the CCP arranges someone inside a farm to sabotage and commit crimes, and then frames the Rule of Law Foundation and Rule of Law Society, it will bring a fatal blow to the Whistleblower Movement. Mr. Guo made a decisive action to have his fellow fighters cut off from VOG and Phoenix Farm, completely defeating Han Zheng’s plot to bring the Whistleblower Movement to an end.
 
-回顾自川普总统上任的四年时间里，深陷沼泽的大鳄们策划了通俄门、弹劾门等一系列事件，意图罢免川普总统，废除总统权力。2020大选年又通过欺诈舞弊等手段，配合中共窃取选票，想使川普总统不能连任。窃选法律之战尚未结束，又想暗中废除总统权力。想来各路妖孽兴风作浪，一波未平，一波又起，已经达到近乎癫狂的状态。
+**4. Bannon Said Dr. Yan’s Report Accurately Verified and to Immediately Hold CCP Accountable**
 
-繁文缛节，废话连篇的5893页的法案，真让人难以想象将带来什么样的后果。除了隐藏的意图是真实的外，实在想象不出这份法案中有多少是必要的内容。把纳税人的钱用来无意义地挥霍，难道没有谁需要为此负责？在这篇报道的原文下，我看到了大量美国民众的跟帖，他们都表达了对此难以遏制的愤怒。我想，已经醒来的美国民众一定是不会任由这些出卖美国国家利益的无耻政客们这样继续下去的。
+He said it is because of the CCP virus that the debt on the Fed’s balance sheet has soared, so we must hold the CCP accountable, expel CCP companies from the U.S. market, and confiscate CCP assets to compensate the American people.
 
-[原文链接](https://djhjmedia.com/kari/stimulus-bill-includes-amendment-to-nullify-potus-use-of-insurrection-act/)
+**5. Bannon Denied Nomination of Powell as Special Prosecutor**
+
+There are two reasons: one is that Powell is not influential enough, fearing that she can’t hold down the scene in face of the debating and questioning in the House and Senate, and the second is that Powell is too close to Trump in her rhetoric., which is not favorable to enhance her credibility in the centrists.
+
+**6. NATO Released New Alliance Report in Response to Communist China**
+
+Because it has been kidnapped in economy and infiltrated in politics by the CCP for a long time, NATO has been squeezed to the point that it has almost lost the room of survival. This time, it finally woke up under the constant hammering from the United States and understood that the CCP is its real enemy.  The release of the report signals that NATO has already begun to act.
+
+**7. Gunfire at Any Time in South China Sea**
+
+Two U.S. B1B bombers took off from Guam yesterday and flew over the South China Sea, escorted by U.S. warplanes throughout. At the same time the J11 fighter of PLA took off from the South China Sea islands for tracking and surveillance. The probability of a gunfire between the two sides has increased steeply!
+
+**8. Another City in Communist China Entered State of War**
+
+On Dec. 23, Shenyang declared a city-wide state of war on the grounds that a woman returning from South Korea had tested positive after isolation. It can be expected that after Tianjin, Qingdao, Chengdu and Shenyang, more cities within the wall will be tested for tolerance of the bottom line of the CCP, and humanitarian disasters will continuously be staged.
+
+#CCP\_is\_terrorist   #TakeDownTheCCP
 
 0

@@ -1,51 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】川普总统否决《国防授权法》的5个主要理由
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/681597/)
+## 《路德社》精选新闻快讯：林伍德：所有的权力都属于美国人民-我们人的民将击败共产主义和中共
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/681909/)
 
-作者：香草山写作组  七芒星
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
+在任何一个国家，拥有一位强大的保护人民的领袖并不容易。想要拥有民众的爱戴和拥护更加难得。本文收录了力挺美国总统川普的林伍德大律师的最新推文，以及一位美国女士所表达的美国爱国者的心声，令人感动。在这场无声的战争之中，每个人都跟随着自己内心的选择。或是正义和光明，或者邪恶和黑暗！，但无论如何，光总是战胜黑暗。真理总是战胜谎言！
 
+林伍德大律师今日发推和川普总统呼应转推，再次向美国爱国者们发出呼吁，他说：
 
+「所有的权力都属于我们的人民。我们的人民从全能的上帝那里获取全部力量。由川普总统..引领着[@realDonaldTrump](https://twitter.com/realDonaldTrump)我们的人民将击败共产主义和中共。神的旨意将在天上像在地上一样完成。」
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24100315/MOS0823-%EF%BC%BB%E7%86%B1%E9%BB%9E%E6%92%AD%E5%A0%B1%EF%BC%BD%E5%B7%9D%E6%99%AE%E7%B8%BD%E7%B5%B1%E5%90%A6%E6%B1%BA%E3%80%8A%E5%9C%8B%E9%98%B2%E6%8E%88%E6%AC%8A%E6%B3%95%E3%80%8B%E7%9A%845%E5%80%8B%E5%80%8B%E4%B8%BB%E8%A6%81%E7%90%86%E7%94%B1.png)
-
-星期三，川普总统否决了2021财年的《国防授权法》。 川普总统表示，该法案没有包括关键的国家安全措施，其中的规定未能尊重美国的退伍军人和美国军队的历史。 这与他的政府在国家安全和外交政策行动中将美国放在首位的努力相矛盾。这是对中国和俄罗斯的礼物。
-
-根据PJ Media 12月23日的消息，虽然一直大力支持军事拨款，川普总统给出了他否决该法案的五个理由。
-
-理由一：关于230条款
-
-川普总统长期以来一直呼吁废除或修改《通信规范法》第230条。 “该条款促进了外国虚假信息在网上的传播，这是对我们国家安全和选举完整性的严重威胁。 必须废除它。” 川普总统在否决权声明中写道：“尽管两党都呼吁废除该规定，但该法案未能做出任何有意义的修改。”
-
-理由二：关于重新命名军事基地
-
-川普总统的声明指出，《国防授权法》包含需要重新命名某些军事基地的内容。 在美国历史上，这些基地对美国的历史具有重要意义，那些曾帮助撰写这些历史的人远远超过了他们的名字。
-
-理由三：关于限制总统使用军事资金
-
-川普总统还指责该法案通过任意限制可用于应对国家紧急状态的军事建设资金的数量来约束“总统保护美国国家安全的能力”。 川普总统认为在对手有能力直接攻击美国国土的时候，总统必须能够保护美国人民，而不必等待国会的批准。
-
-理由四：关于减缓5G的推出
-
-川普总统声称该法案的修正案“将减缓全国性5G的推广速度，特别是在农村地区。” 该法案似乎违背两项与5G有关的规定：“通过建立公共无线供应链创新基金和多边通讯安全基金来支持5G无线网路发展”的措施，以及旨在减少外国在5G中的影响的措施- 对抗中国技术的影响的措施。
-
-理由五：关于海外撤军
-
-川普总统声称该法案限制了他从海外将军队撤回美国的能力。
-
-川普总统解释说： “我反对无休止的战争，美国公众也一样。 然而，出于两党反对，该法案旨在限制总统从阿富汗，德国和韩国撤军的能力。” 川普总统认为：“这不仅是一项糟糕的政策，而且违反宪法”， “《宪法》第二条赋予总统为美国陆军和海军总司令，并赋予他行政权”。
-
-原文链接：[https://pjmedia.com/news-and-politics/tyler-o-neil/2020/12/23/5-reasons-why-trump-vetoed-the-military-spending-bill-n1227597](https://pjmedia.com/news-and-politics/tyler-o-neil/2020/12/23/5-reasons-why-trump-vetoed-the-military-spending-bill-n1227597)
+「这是善与恶之间的斗争。美国值得为之奋斗。美国值得为之而牺牲。支持我们的总统[@realDonaldTrump](https://twitter.com/realDonaldTrump)。他将带领我们战胜中共。如同1776年发生的一样。」
 
 
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+> All of the power belongs to We The People.
+> 
+> We The People derive all of our power from Almighty God.
+> 
+> Led by [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) We The People will defeat Communism & CCP.
+> 
+> God’s Will shall be done on Earth as it is in Heaven.[#FightBack](https://twitter.com/hashtag/FightBack?src=hash&amp;ref_src=twsrc%5Etfw) for Freedom [https://t.co/Qzd6010fpD](https://t.co/Qzd6010fpD)
+> — Lin Wood (@LLinWood) [December 24, 2020](https://twitter.com/LLinWood/status/1341959275980185600?ref_src=twsrc%5Etfw)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+> This is the battle between good & evil.
+> 
+> America is worth fighting for.
+> 
+> America is worth dying for.
+> 
+> Support our President [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw). He will lead us to victory over CCP.
+> 
+> It’s 1776.[https://t.co/pY3GaQkSGc](https://t.co/pY3GaQkSGc)
+> — Lin Wood (@LLinWood) [December 24, 2020](https://twitter.com/LLinWood/status/1341964483409940482?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+> 这个视频我反复看了、听了很多遍，除了感动还是感动！我保存了好几次，太珍贵了！顿时我信心满满，正是因为有这样堪称伟大的无数美国人、平凡的英雄，美利坚才会伟大，星条旗才会如此美丽的飘扬在空中！
+> 人民对总统的爱是发自内心深处由衷地喊出：We love YOU. We need YOU 👍[pic.twitter.com/yNwhcpFcbo](https://t.co/yNwhcpFcbo)
+> — shuweidong (@shuweidong1) [December 24, 2020](https://twitter.com/shuweidong1/status/1341970198916546561?ref_src=twsrc%5Etfw)
+
+
+
+美国之所以伟大是因为他拥有强大健全的社会体系和司法体系，以及美国民众的价值观。尽管这一切正面临着严峻的考验，美国高层经历着令人瞠目结舌的背叛和渗透以及深度污染，宪政危机和国家安全危机也都使美国面临着严酷挑战，还有来自中共的各种袭击和威胁。但是，觉醒的美国人民，正义的爱国者力量正在改变和捍卫着美国的一切！相信：一切权力终将属于觉醒的人民。觉醒的人民也会拥有改变现状和保护国家的力量！
+
+
+
+本文作者：玫瑰天空
+
+审核校对：玫瑰天空
+
+上传排版：青葫芦娃
 
 0

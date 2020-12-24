@@ -1,25 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 19年前川普在911恐袭现场接受采访
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/681198/)
+## 反对巴尔！司法部考虑任命特别顾问调查亨特拜登案
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/681427/)
 
-撰稿：rosobona
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24073205/816A908D-E1F9-431D-B2C1-CE8936F554C9.jpeg)
+编辑：引力波
 
-视频剪辑：光耀华夏
-Twitter视频剪辑
-十九年前，当911恐怖袭击发生后，川普第一时间赶到灾难现场，连同他雇佣的数百人组成的救援团队一起加入了政府救援工作。
+引用：https://usaherald.com/sorry-hunter-doj-considering-defying-barr-appointing-special-counsel/
 
-这一次，川普总统会再一次带我们走出黑暗与邪恶。
+将要离任的美国司法部长巴尔曾公开表示他不考虑任命特别顾问来调查参选总统乔拜登儿子亨特拜登的贪腐案。
 
-他是一个能够兑现承诺的人！希望永远存在！
+“现在司法部正在进行专业地调查，因此我还没有找到任命特别顾问的必要，我也没有计划要这样做。” 巴尔说。此举被很多人认为巴尔是在跟川普总统唱反调。
 
-澳喜文章: [https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+当记者问巴尔，如果没有特别顾问，他是否担心拜登政府将结束对亨特拜登对调查时，巴尔回答：“我希望下一届政府负责任的处理这一问题。”
 
-欢迎加入澳喜农场：
-[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+但显然，巴尔的看法过于乐观，也过于轻描淡写。许多人认为需要特别顾问调查此事，因为拜登任命的总检察长对总统儿子进行调查会产生显而易见的利益冲突。
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20035659/IMG_1836.jpg)
+现在，巴尔的这一决定很可能将要被改变。根据福克斯新闻报道，美国司法部日前正在考虑任命一个特别检察官调查此事。这意味着一旦特别顾问启动调查，那么无论谁当选美国总统，亨特拜登的腐败案都将会一查到底，而“硬盘门“里牵出的无数大鳄鱼都会浮出水面，首当其冲的就是乔拜登。
 
-
-+1
+0
