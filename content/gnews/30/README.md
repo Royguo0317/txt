@@ -1,30 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## （拜登白宫？）即将上任的新闻秘书肯定：拜登不会与任何一位下一任司法部长候选人讨论亨特-拜登
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/678952/)
+## 悉尼新年烟火秀与疫情隐忧
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/680692/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23105211/jen-psaki-1606761123-scaled.jpg)
-翻译：喜马拉雅
+撰稿 喜妈 三只松鼠
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24010002/IMG_4201.jpg)图片来源：dealmoon.com.au
+每年澳洲新南威尔士州悉尼的新年夜的烟火秀是非常有名的活动。今年收到不断涌现的疫情影响，是否如期举行一直都在争议中。最近，悉尼北部海滩社区爆发的新冠疫情，将使这个澳洲百姓所喜欢的标志性活动，再一次受到关注。
 
-即将上任的白宫新闻秘书Jen Psaki肯定，乔-拜登不会与当选总统（暗指拜登本人-译者注）提名司法部长的任何人选讨论对他儿子亨特的调查。
+据最新的消息，悉尼新年烟火秀仍将按计划进行；但是烟火秀的时间缩短至7分钟。同时，所有人如果要在新年前夜去CBD，需要单独申请。能够在新年夜去往CBD的人，除非是事先预约了CBD的餐厅，或者持有新年烟火秀的门票。除此之外，跨年夜当晚，任何人要进入悉尼CBD或者北悉尼区域，必须在政府登记取得许可，即使是本身就居住在CBD的居民也是一样，必须申请。此外，相较往年，大多数最受欢迎的观赏点，也不会对公众开放。
 
-Jen Psaki周日接受了福克斯新闻的克里斯-华莱士（Chris Wallace）的采访，
+去年的烟火秀，在澳洲森林大火期间，也是收到公众关注，取消的声音不断响起，可是最后还是在政府的争取下如期举行了。今年，虽然政府已经做了如上的各种如临大敌的周全准备，坊间的争议还是各执一词。希望保留烟火秀的一方认为，这是一个最好的时机让大家都可以庆祝和受到安慰；二反对的一方则认为大规模的民众聚集，始终还是对控制疫情弊大于利。
 
-Chris Wallace问到**“拜登为什么在儿子受到税务调查的情况下，对儿子充满信心的？”**。
+对于澳洲的大规模活动所引发的疫情扩展和难以控制的担忧，从新冠疫情爆发之后就一直存在。从澳洲各地的大型庆典、大型赛事、婚丧典礼到家庭一般欢聚，人们在疫情面前，只能听从政府和医疗部门的建议，尽量呆在家里，尽量保持最少的社交。
 
-Jen Psaki回答：“拜登指责共和党人利用调查来玩弄政治对付他”
+这些建议当然是建立在对于公众和社会负责的前提下，可是很多人没有想到，控制疫情最紧要的，是知道和分享新冠病毒COVID-19，也就是CCP病毒的真相。如果没有这样的认识，没有这样的病毒真相的分享和传播，即使是政府采取了严格的社交控制和民众的自觉防护，这个疫情也是随时因漏网的个别确诊和无症状带菌者在社区的存在而迟早还是会出现爆发。
 
-Chris Wallace询问Jen Psaki如拜登当选会不会承认会亨特的调查是”合法调查”。
+这就变成了一个循环往复的无休无止的怪圈，最终只会导致人们的极度反感和长期压制后的反弹，社会将走向崩溃和混乱。因此，也许悉尼的烟火秀仍然还能在绚烂中带着人们慰藉，可是那不是根本也没有实质上解决问题。我们需要做的就是：传播CCP病毒的真相，让更多人知道CCP是病毒的始作俑者；消灭CCP，才能最终消灭病毒。
 
-Wallace意识到拜登说的是共和党人会把调查”当做政治手段”，对此Psaki表示认可。但她又转回核心问题，说拜登会维持司法部和行政部门之间的独立。
+Reference list:
 
-目前还没有决定拜登将提名谁担任司法部长。他一直强调，这名人选将监督一个独立的部门。他正在寻找一个具有最高水平、有诚信的人。这个人不管是谁，都将监督司法部进行的任何调查，坦率地说，这就是司法部应该如何工作的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24002409/Screen-Shot-2020-12-24-at-2.23.48-PM.png)
-华莱士继续追问，**拜登是否会让主持亨特调查的美国司法部长”完成工作”**。
+欣欣., (2020). 悉尼烟火秀缩短至7分钟 新年前夜去CBD要申请. [online]. vct.news. [Viewed 24 December 2020]. Available from: [https://vct.news/news/40d7da77-8bb4-4ea3-b4dd-2271cf1c4619](https://vct.news/news/40d7da77-8bb4-4ea3-b4dd-2271cf1c4619)
 
-**“他不会与任何司法部长候选人讨论对他儿子的调查。**“普萨基回答。**“他不会与正在考虑担任该职位的任何人进行讨论，未来的司法部长和他的政府有权决定如何处理任何调查。”**
+澳洲印象., (2020). 官宣！2021悉尼跨年烟火大变动，进CBD要申请许可！多个观景点被禁，海港只给这群人. [online]. huaglad.com. [Viewed 24 December 2020]. [https://www.huaglad.com/aunews/20201109/408765.html](https://www.huaglad.com/aunews/20201109/408765.html)
 
-原文：[https://www.mediaite.com/tv/incoming-wh-press-secretary-jen-psaki-pledges-that-biden-wont-discuss-hunter-biden-with-any-ag-candidate/](https://www.mediaite.com/tv/incoming-wh-press-secretary-jen-psaki-pledges-that-biden-wont-discuss-hunter-biden-with-any-ag-candidate/)
+悉尼晒晒君., (2020). 2021悉尼新年烟花秀又悬了吗？[online]. dealmoon.com.au. [Viewed 24 December 2020]. Available from: [https://www.dealmoon.com.au/post/3107](https://www.dealmoon.com.au/post/3107)
 
+澳喜文章: [https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+
+欢迎加入澳喜农场： [https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040800/IMG_1836-1.jpg)
 +1
