@@ -1,53 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班农疫情作战室582/583/584期
-` GM47` [轉載自GNews](https://gnews.org/zh-hans/681343/)
+## 《路德社》新闻快讯（视频版）2020.12.20纳瓦罗福克斯接受采访：要成立如肯尼迪遇刺一样的总统委员会调查病毒如何出来的
+` 路德社` [轉載自GNews](https://gnews.org/zh-hans/672118/)
 
-战友之家新闻译制组制作
+《路德社》出品
 
-更多、更新WAR ROOM中文视频，请前往GTV-班农战斗室中文    》》》
+2020.12.20 纳瓦罗福克斯接受采访视频：
 
-[https://gtv.org/user/5e8cf14849080f0e9c6ae5b8](https://gtv.org/user/5e8cf14849080f0e9c6ae5b8)
+内容摘要：
 
-582：我们自己制造的危机
+1.美国对中共国的封锁，做得还不足够
+2.中共国是具有战术、越来越接近永生的敌人（immoral ENEMY）
+3.现在我们都是对中共国鹰派
+4. 中国共产党让全世界感染病毒、它们杀害美国人
+5.要成立如肯尼迪遇刺一样的总统委员会调查病毒如何出来的
+6.经济+人命赔偿
 
-2020年12月14日，
+[援引原文](https://parler.com/post/45289aa2e6d0486ebcd8ee3b2970a037)
 
-尽管YouTube宣布了对讨论选举的所有频道的广泛审查要求，但史蒂夫·班农（Steve Bannon）讨论了有关CCP病毒大流行的最新消息以及有关选举状态的最新消息。连线Maggie VandenBerghe，Rudy Giuliani，Raheem Kassam和Jack Maxey。
-
-播出时间：2020年12月14日
-
-
-
-==
-
-583：揭露问题的本质
-
-2020年12月14日
-
-尽管YouTube宣布了对讨论选举的所有频道的广泛审查要求，但史蒂夫·班农（Steve Bannon）讨论了有关CCP病毒大流行的最新消息以及有关选举状态的最新消息。连线Maggie VandenBerghe，Rudy Giuliani，Raheem Kassam和Jack Maxey。
-
-播出时间：2020年12月14日
-
-
-
-==
-
-584：巴尔辞职！
-
-2020年12月14日
-
-尽管YouTube宣布了对讨论选举的所有频道的广泛审查要求，但史蒂夫·班农（Steve Bannon）讨论了有关CCP病毒大流行的最新消息以及有关选举状态的最新消息。连线Maggie VandenBerghe，Jack Posobiec，John Fredericks，Boris Epshteyn，Brian Kennedy。
-
-播出时间：2020年12月14日
-
-
-
-==
-
-更多、更新WAR ROOM中文视频，请前往GTV-班农战斗室中文    》》》
-
-[https://gtv.org/user/5e8cf14849080f0e9c6ae5b8](https://gtv.org/user/5e8cf14849080f0e9c6ae5b8)
+翻译：路德社翻译组
+制作：路德社视频组
+审核校对：玫瑰天空
+上传排版：青葫芦娃
 
 +1
