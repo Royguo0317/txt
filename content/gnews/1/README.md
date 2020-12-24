@@ -1,105 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（七）
-` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/681491/)
+## 病毒ADE效应未明前 中共国欲急打5000万剂疫苗
+` XMLYG777` [轉載自GNews](https://gnews.org/zh-hans/681577/)
 
-翻译：Tom Cat ｜ 校对：朝阳 ｜ 编辑、美工：灭共小宇宙
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24084030/%E7%BA%B3%E7%93%A6%E7%BD%97%E6%8A%A5%E5%91%8A6.jpg)
-往期链接：
+内新闻/素材：小韭菜a 校对：α-Vega
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（一）](https://gnews.org/zh-hans/669414/)
+本月，美国辉瑞和Moderna的疫苗在美国、加拿大、英国等国获得批准，而此时中共也急于推广自己的国产疫苗。 目前，中共推出的疫苗主要有两款，分别由国有企业「中国医药集团有限公司」(Sinopharm,简称：国药集团）和中国民营企业「北京科兴控股生物技术有限公司」（Sinovac Biotech,SVA)开发。这两款疫苗都是灭活疫苗，中共首批预计接种5000万人。第一针将于2021年1月15日接种完成，第二针于2月15日完成【1】。除了中共国，阿联酋和巴林先后也都批准了国药集团的疫苗。
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（二）](https://gnews.org/zh-hans/675333/)
+中国国内因新冠肺炎官方病例较少，三期临床试验基本是在中国以外的国家进行，包括巴西，俄罗斯，沙特，阿联酋，巴林、约旦、秘鲁、阿根廷等。按惯例，新开发的疫苗一般都是等到三期临床试验结束，效果良好才会批准。然而中共国在三期临床试验还未完成时，便急匆匆要让5000万国人接种疫苗，这俨然有中共国一贯的“大跃进”风格。
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（三）](https://gnews.org/zh-hans/675371/)
+在临床结果未出的情况下，贸然大规模接种疫苗，试问中共把人民的身体健康和生命安全置于何地？最近两个例子似乎能佐证中共的疫苗效果堪忧。12月11日，在非洲安哥拉感染新冠病毒的16名国企员工，在出国前统一接种了“国药集团”研发的疫苗【2】。同期，来自塞尔维亚的消息显示，天津电力建设公司在当地的400多名员工中有300人确诊新冠病毒。他们同样也在出国前接种过“国药集团”的疫苗，但是仍然被感染【3】。这很可能只是冰山一角，因为很多人不敢报告，害怕周围人不跟他们接触。
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（四）](https://gnews.org/zh-hans/675720/)
+更加糟糕的是，目前病毒的ADE效应未明。ADE (antibody dependent enhancement) 是指抗体依赖性增强反应。这意味着，正常人感染过一次新冠或接种过疫苗后再次接触到新冠病毒时，自身的免疫系统会更加剧烈地反应。这不仅无助于预防感染，反而还有更高机率演变成重症。如果病毒可引发ADE效应的话，现在接种疫苗的人群，未来很可能依然会被感染并且会更加致命。
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（五）](https://gnews.org/zh-hans/679037/)
+甚至有消息表明，ADE很可能是被人为植入新冠病毒中的。闫丽梦博士指出，新冠病毒S蛋白里5个可以导致ADE效应的核心位置似乎不像自然进化而更像是基于对SARS的认知而人为插入的【4】。这将意味着，现在研发的所有疫苗都可能失效，而且还会置接种者于巨大健康风险中。
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（六）](https://gnews.org/zh-hans/679024/)
+出于国产疫苗安全性考虑，很多国人对接种疫苗持抗拒态度。据悉，上海杨浦中医医院11月末做了一次摸底调查，逾九成医护人员拒绝接种国产疫苗。另外，网传中共政府部门聊天群截图，尽管官方发出「紧急通知」，但政府部门无人报名「免费接种」疫苗【5】。
 
-———————
+文章仅代本表本人个人观点。
 
-## VI. Equal Protection Clause Violations
+新闻来源：
+【1】[https://www.rfi.fr/cn/中国/20201222-中国疫苗急种5000万人-港媒罕见让官方先讲清楚](https://www.rfi.fr/cn/中国/20201222-中国疫苗急种5000万人-港媒罕见让官方先讲清楚)
+【2】[https://www.backchina.com/news/2020/12/17/722838.htm](https://www.backchina.com/news/2020/12/17/722838.htm)
+【3】[https://news.creaders.net/china/2020/12/16/2300227.html](https://news.creaders.net/china/2020/12/16/2300227.html)
+【4】[https://twitter.com/DrLiMengYAN1/status/1341044634538172416](https://twitter.com/DrLiMengYAN1/status/1341044634538172416)
+【5】[https://www.epochtimes.com/b5/20/12/23/n12640870.htm](https://www.epochtimes.com/b5/20/12/23/n12640870.htm)
+[天津强推疫苗致数百人感染 冷链员工恐再受害](http://天津强推疫苗致数百人感染%20冷链员工恐再受害)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24090010/20201216_16081492276351.png)
+[Dr. Li-Meng YAN (@DrLiMengYAN1)](http://Dr.%20Li-Meng%20YAN%20%28@DrLiMengYAN1%29)
+Here I list 5 core AA in SARS-CoV-2 spike, which induce “infectivity-enhancing antibodies”-ADE, according to JP scientists.
+AGAIN, these features are more closed to SARS than ZC45/ZXC21.
+Are these ADE sites from natural evolution? Or inserted based on knowledge gained on SARS?
+Retweets
+2326
+Likes
+4446
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24090345/EpxY9SkW8AEOIVq.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24090351/EpxY-c-W4AEZbjP.jpg)
+Twitter•2020/12/21
+大紀元 www.epochtimes.com
+[【役情最前線】傳中共體制內拒國產疫苗 – 大紀元](http://【役情最前線】傳中共體制內拒國產疫苗%20-%20大紀元)
+香港壹傳媒創辦人黎智英獲准以1000萬元保釋；北京傳出欲改組香港特首選委會，踢走民主派區議員；最後淨土南極洲也爆疫情，變種病毒入港；大陸疫苗安全堪憂，陸專家：讓領導先打；網傳體制內集體拒打大陸疫苗；北上廣深罕見停電，中國再爆糧荒危機。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24090358/a20640d488003c6376bfcfa0ad479deb-700x359-1.jpg)
+RFI – 法国国际广播电台
+[中国疫苗急种5000万人 港媒罕见让官方先讲清楚](http://中国疫苗急种5000万人%20港媒罕见让官方先讲清楚)
+中国原上海疾控中心免疫规划科疫苗医师陶黎纳12月20日透露，中国首批新冠疫苗预计接种5,000万人次，首针将于明年1月15日接种完成，第……
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24090837/zym.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24090926/image0-201.jpg)
 
-## VI. 平等保护条款违例
 
-The Equal Protection Clause is part of the 14th Amendment of the U.S. Constitution and a fundamental pillar of the American Republic. This Equal Protection Clause mandates that no State may deny its citizens equal protection of its governing laws.
-
-平等保护条款是美国宪法第十四条修正案的一部分，也是美利坚合众国的根本支柱。平等保护条款规定，任何州不能否认其公民受到该地区管辖法律的平等保护。
-
-Table 6 illustrates three major alleged violations of the Equal Protection Clause in the 2020 presidential election. As the table illustrates, each violation was observed to occur across all six battleground states.
-
-图表6列举了在2020年美国总统竞选中三个主要的涉嫌违反平等保护条款的行为。如表所示，在六个战场州中，每一项违规都存在。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24083029/Screen-Shot-2020-12-24-at-9.30.16-PM.png)
-图表6:六个战场州违反平等保护条款的情况
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24082951/Screen-Shot-2020-12-24-at-9.29.38-PM.png)
-### Higher Standards of Certification & I.D. Verification Applied to In-Person Voters
-
-### 对亲自投票的选民采取更高标准的认证与身份核实
-
-The first alleged violation focuses on the application of higher standards of certification and voter identification for in-person voters than mail-in and absentee ballot voters. In effect, these higher standards disproportionately benefited the candidacy of Joe Biden because President Trump had a much higher percentage of in-person voters than mail-in and absentee voters. Indeed, mail-in and absentee ballots were largely skewed for Joe Biden across the country by ratios as high as 3 out of 4 votes in some states.
-
-第一起被指控的违规行为集中于对亲自投票的选民采用比邮寄选票和不在场选票更高的身份认证标准。实际上，这些更高的标准不成比例地有利了乔·拜登的竞选，因为在百分比上，川普总统在亲自投票上比邮寄与缺席投票上占有更高的比例。事实上，在全国范围内，邮寄和缺席选票很大程度上偏向乔·拜登，在某些州的比例高达四分之三。
-
-Note here that much of the alleged fraud and ballot mishandling focused on mail-in voters and absentee ballots. Therefore, the lower the level of scrutiny of these voters, the more illegal votes for Joe Biden relative to Donald Trump could slip in. It should likewise be noted here that this particular violation of the Equal Protection Clause was further enabled by poll watchers being denied meaningful observation.
-
-需要注意的是，许多所谓的欺诈和选票处理不当都集中于邮寄选票和缺席选票中。因此，对这类选民的审查水平越低，相对于唐纳德·川普，乔·拜登获得的非法选票就越多。这里同样应当指出的是，由于投票监督员拒绝接受有异议的监督这种特别违反平等保护条款的行为被进一步扩大。
-
-Perhaps the most egregious examples of this particular violation of the Equal Protection clause occurred in Georgia and Michigan. Georgia, for example, requires ID for voting in-person and Michigan will only allow provisional voting without an ID. However, in both Georgia and Michigan, a valid ID is not required to vote by mail so long as the person has already registered in a previous election.
-
-这种最令人震惊的特别违反平等保护条款的行为发生在佐治亚州和密歇根州。例如，佐治亚州要求亲自投票必须有身份证，密歇根州只允许无身份证明的人进行临时投票。然而，在佐治亚州和密歇根州，邮寄选票不需要有效身份证，只要当事人在以前选举中登记过。
-
-These procedures are ripe for fraud. In fact, there is evidence that election fraudsters targeted voters who had voted in past elections but not voted in more recent ones. These fraudsters could then cast ballots on behalf of these infrequent voters with little likelihood they would be caught. Numerous affidavits, however, detail persons arriving to vote at polls only to be informed that records indicate they had already voted. At least fourteen such affidavits have been made by Georgians.
-
-这些程序很容易发生欺诈。事实上，有证据表明，选举作假人员专门选中在过去选举中投过票但在最近几次选举中没有投票的选民。这些作假人员可以代表这些不常投票的选民投票，而且他们被抓的可能性很小。然而，选多宣誓书详细阐述了前往投票处投票的人被告知记录表明他们已经投票。佐治亚居民至少做出了十四封这样的宣誓书。
-
-As a further example, in Wisconsin, mail-in ballots were accepted without witness signatures placed properly in the allocated envelope location. A comparable process for in-person voting would have resulted in the invalidation of the vote.
-
-再例如，在威斯康辛州，邮寄的选票没有在分配的信封位置适当地放置证人签名就被接受。此类似的过程如果发生在亲自投票中将会导致投票无效。
-
-### Different Standards of Ballot Curing
-
-### 不同标准的选票纠正
-
-As a second major violation of the Equal Protection Clause, likewise observed across all six battleground states, different standards for correcting mistakes on ballots (ballot curing) were applied across different jurisdictions within the states. Often, jurisdictions with predominantly Democrat registration were more expansive about allowing the curing of ballots than jurisdictions with predominantly Republican registration.
-
-统一发生在所有六个战场州的第二个重大违反平等保护条款的事件是，各州不同司法管辖区对纠正选票错误（选票修正）采用了不同的标准。通常情况下，民主党选民占多数的选区比共和党选民占多数的选区在允许处理选票方面更为广泛。
-
-In Pennsylvania, there was a clear difference between how ballots were – or were not – cured in Republican counties versus Democrat counties. When Pennsylvania’s Secretary of State Kathy Boockvar issued illegal guidance authorizing counties to cure ballots, this illegal guidance was not followed in at least eight different Republican counties.  Meanwhile, ballots were cured in Democrat counties under this illegal guidance.
-
-在宾夕法尼亚州，共和党县和民主党县的是否与如何进行选票修正上存在明显差异。当宾夕法尼亚州的国务卿卡西·布克瓦发布授权各县用于修正选票的非法指导文件，至少有八个不同的共和党县没有遵循这一非法指导文件。与此同时，选票在民主党县中，在这种非法指导下被更正与修正。
-
-In Arizona, there likewise was a clear difference between how in-person voters were treated versus mail-in ballots. On the one hand, mail-in voters had up to 5 days to “cure” or “fix” invalid mail-in ballots sent prior to Election Day. On the other hand, in-person voters in Maricopa County, for example, had to deal with poll workers who did not know how to work electronic voting machines properly. This resulted in thousands of in-person votes being marked incorrectly and disregarded rather than cured.
-
-在亚利桑那州，亲自投票和邮寄投票的区别也很明显。一方面，邮寄选票的选民有5天的时间来“纠正”或“修正”在选举日之前邮寄出去的无效选票。另一方面，例如在马里科帕县，亲自投票的选民不得不面对不知道如何正确使用电子投票机的投票工作人员。这导致成千上万的亲自投票被错误标记并废弃，而不是被纠正。
-
-### Differential and Partisan Poll Watcher Treatment
-
-### 党派间投票监督员不同的待遇
-
-In most states, political party candidates and ballot issue committees are able to appoint poll watchers and observers to oversee the ballot counting process. Such poll watchers and observers must be registered voters and present certification to the Judge of Elections in order to be able to fulfill their duties at a polling location.
-
-在大多数州，政党候选人和选票发放委员会能够任命投票监督员和观察员监督计票过程。这些投票监督员和观察员必须是登记选民，并且向选举法官出示证明，才能在投票地点路线职责。
-
-Such certified poll watchers should be free to observe at appropriate distances regardless of their party affiliation. Yet in key Democrat strongholds, e.g., Dane County in Wisconsin and Wayne County in Michigan, which yielded high Biden vote counts, Republican poll watchers and observers were frequently subject to different treatment ranging from denial of entry to polling places to harassment and intimidation.
-
-这些经过认证的投票监督员无论党派分别，都应当能够自由地在适当的距离观察选票。但是，在民主党的地盘，例如威斯康辛州的戴恩县和密歇根州的韦恩县，在这些拜登选票数量高的县，共和党的投票监督员和观察员经常受到拒绝进入投票站，骚扰和恐吓等不同待遇。
-
-For example, in Georgia, a certified poll watcher witnessed other poll workers at a polling location discussing how they should not speak to her due to her party affiliation. In Pennsylvania, a Republican poll watcher was harassed and removed from the polling location due to his party affiliation. In Wisconsin, a Republican poll watcher was prevented from observing due to the fact that polling locations were not allowing Republicans in.
-
-例如，在佐治亚州，一名认证的投票监督员目睹了投票站其他工作人员讨论由于她的党派关系，如何避免与她交流。在宾夕法尼亚州，一名共和党的监督员因为他的党派而遭受到骚扰并被赶出了投票站。在威斯康辛州，由于投票站禁止共和党人进入，一名共和党投票监督员被阻止监督。
-
-Note the synergy here between the problem of the process foul involved with denying access to certified poll watchers (discussed in the previous section) and the violation of the Equal Protection Clause such conduct entails when such denial, harassment, and intimidation differs by party affiliation.
-
-注意这里的协同效应，拒绝获得认证的投票监督员的访问（前一节中讨论过）所涉及的程序违规的问题，以及违反平等保护条款的行为使得这种拒绝、骚扰、恐吓的事件因党派不同而发生。
-
-更多精彩内容请关注：
-
-- [美国纽约七星会农场（为子孙爱七哥）GTV](https://gtv.org/user/5e986b24b005bd6d929820bd)
-- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19044815/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-2.jpg)
 0

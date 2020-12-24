@@ -1,53 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班农疫情作战室582/583/584期
-` GM47` [轉載自GNews](https://gnews.org/zh-hans/681343/)
+## 百年香江
+` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/681489/)
 
-战友之家新闻译制组制作
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24082132/XIANGJIANG.jpg)
+作者：DDT(京都富士会）
 
-更多、更新WAR ROOM中文视频，请前往GTV-班农战斗室中文    》》》
+校正：待命（文晓）（京都富士会）
 
-[https://gtv.org/user/5e8cf14849080f0e9c6ae5b8](https://gtv.org/user/5e8cf14849080f0e9c6ae5b8)
+排版：待命（文晓）（京都富士会）
 
-582：我们自己制造的危机
+浮华如梦、光影流连
 
-2020年12月14日，
+不竭河水泛起百年兴衰
 
-尽管YouTube宣布了对讨论选举的所有频道的广泛审查要求，但史蒂夫·班农（Steve Bannon）讨论了有关CCP病毒大流行的最新消息以及有关选举状态的最新消息。连线Maggie VandenBerghe，Rudy Giuliani，Raheem Kassam和Jack Maxey。
+香江路浅，福缘难渡
 
-播出时间：2020年12月14日
+难忘繁华终是红尘过客
 
+愁肠百结，魂牵梦萦
 
+霓虹舞姿沉醉不知归路
 
-==
+雄心豪情，似癫似痴
 
-583：揭露问题的本质
+狮子山下回首轻风破目
 
-2020年12月14日
+颓败忧伤，半梦半醒
 
-尽管YouTube宣布了对讨论选举的所有频道的广泛审查要求，但史蒂夫·班农（Steve Bannon）讨论了有关CCP病毒大流行的最新消息以及有关选举状态的最新消息。连线Maggie VandenBerghe，Rudy Giuliani，Raheem Kassam和Jack Maxey。
+明月薄霜寄件我心归处
 
-播出时间：2020年12月14日
+爱不得，恨难去
 
+浪花卷起涛声阵阵
 
+躲不开，意难平
 
-==
+紫荆花红年又一年
 
-584：巴尔辞职！
+洗尘埃，换新颜
 
-2020年12月14日
+山河依旧新人仍是故人装
 
-尽管YouTube宣布了对讨论选举的所有频道的广泛审查要求，但史蒂夫·班农（Steve Bannon）讨论了有关CCP病毒大流行的最新消息以及有关选举状态的最新消息。连线Maggie VandenBerghe，Jack Posobiec，John Fredericks，Boris Epshteyn，Brian Kennedy。
+开四门，盈八方
 
-播出时间：2020年12月14日
+海阔天空千帆竞发新中国联邦！
 
-
-
-==
-
-更多、更新WAR ROOM中文视频，请前往GTV-班农战斗室中文    》》》
-
-[https://gtv.org/user/5e8cf14849080f0e9c6ae5b8](https://gtv.org/user/5e8cf14849080f0e9c6ae5b8)
-
-+1
+0
