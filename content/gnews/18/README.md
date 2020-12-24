@@ -1,25 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄罗斯下议院通过了针对 Twitter，Facebook 和Youtube的审核法案
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/681012/)
+## 12/24/2020 财经快讯：面对中共国的粮食危机, 习近平黔驴技穷
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/681042/)
 
-俄罗斯莫斯科喀秋莎农场 银河
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24035044/Picture1-2-34.png)图片来源： [http://news.sdchina.com/show/4581991.html](http://news.sdchina.com/show/4581991.html) 
+1, 虽然习总书记分别从几个方面提出了保障粮食供应的方法，但是每个方法并不能真正有效地遏止中共国的粮食危机。第一个是自主研发种子。即使近年来有很多个所谓的国家种子基地在培育高产种子，但是种子并不是决定产量的唯一因素。在土地和水源过度污染的中共国，这些所谓的良种的产量令人担忧。第二个是防止耕地非粮化的政策难以实施。面对土地出让金这一巨大的利益诱惑，各地希望晋升的官员们是不会放过这个增加GDP的好机会的。第三个是荒唐的反粮食浪费法草案。直接干预个人饮食行为的法律如何执行实在是让人难以想象，但是换个角度去理解就会容易很多，正像计划经济时的粮票一样，从粮食供给方面来直接限制每个人可以获取粮食的量则可以轻松“解决”粮食供给不足的问题。说到底，共产党也只不过是以反人类反人性的方式压榨中国的劳苦大众而已。
+[http://news.sdchina.com/show/4581991.html](http://news.sdchina.com/show/4581991.html)
 
-校对上传 星河
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24034105/999999-1.jpg)图片来源 ：yandex
-12月23日，俄罗斯下议院通过了对Twitter、Facebook 和 YouTube等互联网平台进行审核的立法法案。该法案允许俄罗斯政府保护俄罗斯公民权利，如外国互联网平台限制内容的做法侵犯了俄罗斯人权，则可限制平台对俄罗斯网络的访问权限。
+2, 商务部发布公告，将从2020年12月20日起，对原产于美国、韩国和欧盟的进口三元乙丙橡胶征收反倾销税，征收期限为5年。三元乙丙橡胶用途比较广泛，可用于建筑、电线电缆、汽车工业、交通等领域。建筑方面，主要用于屋顶单层防水卷材等；电线电缆方面，主要用于民用和商用建筑的电力输入线、建筑机械用电缆、矿用电缆、核电站用电缆、汽车点火线、控制及信号电缆等；汽车工业方面，主要用于汽车、卡车和公共汽车非轮胎部件，包括汽车的水箱及耐热胶管、密封条、橡胶带、车身及底盘的部件、挡雨条、底板和环管等；交通方面主要应用于车辆车门窗密封条、减震、止水带等。
+[http://news.cyol.com/app/2020-12/18/content\_18890191.htm](http://news.cyol.com/app/2020-12/18/content_18890191.htm)
 
-该法案需要进一步送达到上议院，若通过上议院的批准则可递交俄罗斯总统普京签署生效。
+3，美国投资者主要指标为恶性中国公司提供资金
+在习近平领导下，中共将“军民融合”作为优先事项。……中国公司和研究人员必须……在法律的制裁下，与中国军方共享技术。 目的是确保人民解放军具有军事优势。 解放军的核心任务是维持中国共产党的执政权。
+[https://www.state.gov/u-s-investors-are-funding-malign-prc-companies-on-major-indices/](https://www.state.gov/u-s-investors-are-funding-malign-prc-companies-on-major-indices/)
 
-自从4月份以来，多家俄罗斯媒体公司抗议Facebook，Twitter及YouTube对其账号进行信息审核。Twitter 自8月起在数家俄罗斯媒体账号标注了“国营媒体机构”（state-affiliated media），还给部分媒体职员及俄政府官员添加标签。Facebook在9月份发表声明关闭了与俄罗斯相关的三个独立的虚假账户，同时删除了340多个与俄罗斯相关的账户、页面和团体。指控这些账号是虚假账号，试图将人们带到其他网站和社交媒体平台。对此，克里姆林宫发言人发表声明：针对对俄罗斯用户的歧视行为，俄必须设立应对机制以捍卫权利。
+4，美国国土安全部向企业发布中国数据安全警告
+（路透社）-美国国土安全部将向美国企业发布咨询，警告他们使用与中国有关联的公司的通信设备和服务会带来数据安全风险
+[https://mobile.reuters.com/article/amp/idUSKBN28W2Q1?\_\_twitter\_impression=true](https://mobile.reuters.com/article/amp/idUSKBN28W2Q1?__twitter_impression=true)
 
-11月19日，相应法案提交到了俄罗斯国会。草拟法案的议员指出“通过该法案的急迫性，主要在于多项不合理限制俄罗斯公民通过网络资源，自由的在媒体获取资讯的行为”。下议院的通过，表示俄罗斯对Facebook, Twitter以及Youtube审核法案的执行更进了一步。
+5，中共国的能源危机：中共国对澳大利亚的煤炭禁令进行了重新评估
+尽管实施了禁令和由此造成的经济损失，但禁令还意味着，一直需要能源的中共国在最繁忙的季节已经遭受能源短缺的困扰。 北京宣布将在其它地区采购煤炭，但尚未锁定可靠的替代来源。
+[https://www.israelunwired.com/chinas-energy-crisis-australia/](https://www.israelunwired.com/chinas-energy-crisis-australia/)
 
-近年来，克里姆林宫为打击网络极端主义，加大了对俄罗斯互联网审核力度。2018年，俄监管机构下令屏蔽加密信使Telegram软件，因其公司提出诉讼，今年初解除了禁令。近期，莫斯科法院因Twitter 和Facebook在俄境内存储俄罗斯公民数据，触犯俄罗斯法律，对其进行了处罚。若此法案得以通过，以后俄可以依法直接对这些网络媒体平台进行屏蔽处罚。
-
-参考链接：
-
-[https://www.news18.com/news/world/kremlin-clears-way-to-block-facebook-youtube-for-censorship-of-russian-medias-content-3208700.html](https://www.news18.com/news/world/kremlin-clears-way-to-block-facebook-youtube-for-censorship-of-russian-medias-content-3208700.html)
+By【秘翻组金融团队- Totoro】
 
 0
