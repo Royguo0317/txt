@@ -1,105 +1,347 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（七）
-` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/681491/)
+## 路德透露班农先生说闫博士的论文已经得到准确的验证《每日快报 &#8212; 2020.12.24.》
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/681653/)
 
-翻译：Tom Cat ｜ 校对：朝阳 ｜ 编辑、美工：灭共小宇宙
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24084030/%E7%BA%B3%E7%93%A6%E7%BD%97%E6%8A%A5%E5%91%8A6.jpg)
-往期链接：
+** *****作者：**扬眉剑出鞘，星空无垠*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01081922/%E6%AF%8F%E6%97%A5%E5%BF%AB%E6%8A%A5.png)
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（一）](https://gnews.org/zh-hans/669414/)
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（二）](https://gnews.org/zh-hans/675333/)
+# ***今日摘要***
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（三）](https://gnews.org/zh-hans/675371/)
+- 特朗普总统否决国防法案，与国会的年终大战不断升级
+- 国会长达5593页的猪肉 “救济 “法案是沼泽地的写照
+- 【川普重发重磅视频1223】-最致命的病毒是中国共产党
+- 路德透露班农先生说闫博士的论文已经得到准确的验证
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（四）](https://gnews.org/zh-hans/675720/)
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（五）](https://gnews.org/zh-hans/679037/)
+# 重要事件
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（六）](https://gnews.org/zh-hans/679024/)
+- **12.23. Washington Examiner** **[特朗普总统否决国防法案，与国会的年终大战不断升级](https://www.washingtonexaminer.com/news/congress/trump-vetoes-defense-bill-in-escalating-year-end-battle-with-congress)**
 
-———————
 
-## VI. Equal Protection Clause Violations
+特朗普总统周三否决了一项重要的国防开支和政策法案，实现了几周前作出的阻止该措施的承诺，并为圣诞节后与国会的战斗奠定了基础，现在由于他反对大规模的支出和冠状病毒援助计划而变得复杂。
 
-## VI. 平等保护条款违例
+特朗普希望7405亿美元的《国防授权法案》包括删除《通信正派法案》第230条的语言，该法案提供了一个保护包括Twitter和Facebook在内的社交媒体巨头的诉讼盾牌，总统和保守派人士指责他们进行不公平的审查。
 
-The Equal Protection Clause is part of the 14th Amendment of the U.S. Constitution and a fundamental pillar of the American Republic. This Equal Protection Clause mandates that no State may deny its citizens equal protection of its governing laws.
+“尽管两党呼吁废除该条款，但该法案未能对《通信体面法》第230条做出任何有意义的改变，”特朗普在给众议院的否决信息中说。
 
-平等保护条款是美国宪法第十四条修正案的一部分，也是美利坚合众国的根本支柱。平等保护条款规定，任何州不能否认其公民受到该地区管辖法律的平等保护。
+共和党议员基本同意总统的观点，认为应该改革或取消诉讼盾牌，但不是在关键的国防法案中，该法案规定了下一年的政策和支出水平。
 
-Table 6 illustrates three major alleged violations of the Equal Protection Clause in the 2020 presidential election. As the table illustrates, each violation was observed to occur across all six battleground states.
+众议院预计特朗普将否决NDAA，计划于12月28日召开会议，举行否决投票，随后参议院也将进行投票，如果众议院的否决投票获胜，参议院将于12月29日返回。
 
-图表6列举了在2020年美国总统竞选中三个主要的涉嫌违反平等保护条款的行为。如表所示，在六个战场州中，每一项违规都存在。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24083029/Screen-Shot-2020-12-24-at-9.30.16-PM.png)
-图表6:六个战场州违反平等保护条款的情况
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24082951/Screen-Shot-2020-12-24-at-9.29.38-PM.png)
-### Higher Standards of Certification & I.D. Verification Applied to In-Person Voters
+国会还可能面临总统的第二次否决，总统对立法者，尤其是不站在他这边争夺总统选举结果的共和党领导人越来越愤怒。
 
-### 对亲自投票的选民采取更高标准的认证与身份核实
+特朗普周二晚间宣布，他不会支持一项2.4万亿美元的冠状病毒援助和政府支出方案，除非它被剥夺了 “浪费 “的项目，并将刺激性支票从每人600美元加强到2000美元。特朗普称这项措施是 “耻辱”。
 
-The first alleged violation focuses on the application of higher standards of certification and voter identification for in-person voters than mail-in and absentee ballot voters. In effect, these higher standards disproportionately benefited the candidacy of Joe Biden because President Trump had a much higher percentage of in-person voters than mail-in and absentee voters. Indeed, mail-in and absentee ballots were largely skewed for Joe Biden across the country by ratios as high as 3 out of 4 votes in some states.
+- **12.23. The Hill** [国会长达5593页的猪肉 “救济 “法案是沼泽地的写照](https://thehill.com/opinion/finance/531294-congresss-pork-filled-covid-relief-bill)
 
-第一起被指控的违规行为集中于对亲自投票的选民采用比邮寄选票和不在场选票更高的身份认证标准。实际上，这些更高的标准不成比例地有利了乔·拜登的竞选，因为在百分比上，川普总统在亲自投票上比邮寄与缺席投票上占有更高的比例。事实上，在全国范围内，邮寄和缺席选票很大程度上偏向乔·拜登，在某些州的比例高达四分之三。
 
-Note here that much of the alleged fraud and ballot mishandling focused on mail-in voters and absentee ballots. Therefore, the lower the level of scrutiny of these voters, the more illegal votes for Joe Biden relative to Donald Trump could slip in. It should likewise be noted here that this particular violation of the Equal Protection Clause was further enabled by poll watchers being denied meaningful observation.
+9,000亿美元的刺激计划COVID-19 “救济 “法案正是人们从一个功能失调的国会所期待的：一个充满猪肉的集群，充满了与冠状病毒大流行或救济无关的任何东西和一切。
 
-需要注意的是，许多所谓的欺诈和选票处理不当都集中于邮寄选票和缺席选票中。因此，对这类选民的审查水平越低，相对于唐纳德·川普，乔·拜登获得的非法选票就越多。这里同样应当指出的是，由于投票监督员拒绝接受有异议的监督这种特别违反平等保护条款的行为被进一步扩大。
+而在有史以来最沼泽的事情中，该法案与1.4万亿美元的综合支出法案相结合，长达5593页，也就是5583页太多，是在投票前6个小时给立法者的，以审查其中到底有什么（提示：比泰森食品厂的猪肉更多）。
 
-Perhaps the most egregious examples of this particular violation of the Equal Protection clause occurred in Georgia and Michigan. Georgia, for example, requires ID for voting in-person and Michigan will only allow provisional voting without an ID. However, in both Georgia and Michigan, a valid ID is not required to vote by mail so long as the person has already registered in a previous election.
+这让人想起众议院议长南希-佩洛西(Nancy Pelosi)曾经解释说，一项法案需要通过才能找出其中的内容。在一个相关的故事中，我们的政府已经崩溃了。
 
-这种最令人震惊的特别违反平等保护条款的行为发生在佐治亚州和密歇根州。例如，佐治亚州要求亲自投票必须有身份证，密歇根州只允许无身份证明的人进行临时投票。然而，在佐治亚州和密歇根州，邮寄选票不需要有效身份证，只要当事人在以前选举中登记过。
+法案的顶线说，符合条件的人每人只得到600美元，每个孩子得到600美元，这是今年早些时候通过的另一个救济方案中成年人得到的一半（每个孩子的付款是500美元）。不难看出，这个数额很难让那些苦苦挣扎的人不至于脱贫。
 
-These procedures are ripe for fraud. In fact, there is evidence that election fraudsters targeted voters who had voted in past elections but not voted in more recent ones. These fraudsters could then cast ballots on behalf of these infrequent voters with little likelihood they would be caught. Numerous affidavits, however, detail persons arriving to vote at polls only to be informed that records indicate they had already voted. At least fourteen such affidavits have been made by Georgians.
+那么，剩下的1.4万亿美元去哪儿了呢？
 
-这些程序很容易发生欺诈。事实上，有证据表明，选举作假人员专门选中在过去选举中投过票但在最近几次选举中没有投票的选民。这些作假人员可以代表这些不常投票的选民投票，而且他们被抓的可能性很小。然而，选多宣誓书详细阐述了前往投票处投票的人被告知记录表明他们已经投票。佐治亚居民至少做出了十四封这样的宣誓书。
+- **12.24. GNEWS** [【川普重发重磅视频1223】-最致命的病毒是中国共产党](https://www.gnews.org/zh-hans/680759/)
 
-As a further example, in Wisconsin, mail-in ballots were accepted without witness signatures placed properly in the allocated envelope location. A comparable process for in-person voting would have resulted in the invalidation of the vote.
 
-再例如，在威斯康辛州，邮寄的选票没有在分配的信封位置适当地放置证人签名就被接受。此类似的过程如果发生在亲自投票中将会导致投票无效。
+2020年12月23日，川普总统将12月20日发推的视频分为两个不到十分钟视频，再次发推。
 
-### Different Standards of Ballot Curing
+- **12.23.** **Gateway Pundit** [“迈克-彭斯明天必须这么做” – 特朗普总统转发 “彭斯行动牌 “敦促其副手对选举舞弊采取行动](https://www.thegatewaypundit.com/2020/12/mike-pence-must-tomorrow-president-trump-retweets-operation-pence-card-urging-vp-act-fraudulent-election/)
 
-### 不同标准的选票纠正
 
-As a second major violation of the Equal Protection Clause, likewise observed across all six battleground states, different standards for correcting mistakes on ballots (ballot curing) were applied across different jurisdictions within the states. Often, jurisdictions with predominantly Democrat registration were more expansive about allowing the curing of ballots than jurisdictions with predominantly Republican registration.
+许多专家认为，副总统迈克-彭斯有责任在2020年的选举中抛出基于欺诈的选举团建议。
+这样就会迫使这些州的立法机构选择他们认为最能代表该州选举结果的一组代表。
+今天晚些时候，特朗普总统在周三转发了这一消息。这就给他的副总统施加了压力，要求他的副总统在服从这部美国宪法的前提下采取行动。
+如果迈克-彭斯不采取行动–他将失去特朗普的选民。我们不需要另一个软弱的共和党人。
+如果Mike Pence选择做正确的事，这将使他为2024年的选举定位。
+这是迈克的选择。
 
-统一发生在所有六个战场州的第二个重大违反平等保护条款的事件是，各州不同司法管辖区对纠正选票错误（选票修正）采用了不同的标准。通常情况下，民主党选民占多数的选区比共和党选民占多数的选区在允许处理选票方面更为广泛。
+# 每日文贵说
+![]()![](https://www.himalayawashingtondc.org/wp-content/uploads/2020/12/image2406.png)image2406
+# 文贵直播和盖特
 
-In Pennsylvania, there was a clear difference between how ballots were – or were not – cured in Republican counties versus Democrat counties. When Pennsylvania’s Secretary of State Kathy Boockvar issued illegal guidance authorizing counties to cure ballots, this illegal guidance was not followed in at least eight different Republican counties.  Meanwhile, ballots were cured in Democrat counties under this illegal guidance.
+### 盖特：
 
-在宾夕法尼亚州，共和党县和民主党县的是否与如何进行选票修正上存在明显差异。当宾夕法尼亚州的国务卿卡西·布克瓦发布授权各县用于修正选票的非法指导文件，至少有八个不同的共和党县没有遵循这一非法指导文件。与此同时，选票在民主党县中，在这种非法指导下被更正与修正。
 
-In Arizona, there likewise was a clear difference between how in-person voters were treated versus mail-in ballots. On the one hand, mail-in voters had up to 5 days to “cure” or “fix” invalid mail-in ballots sent prior to Election Day. On the other hand, in-person voters in Maricopa County, for example, had to deal with poll workers who did not know how to work electronic voting machines properly. This resulted in thousands of in-person votes being marked incorrectly and disregarded rather than cured.
 
-在亚利桑那州，亲自投票和邮寄投票的区别也很明显。一方面，邮寄选票的选民有5天的时间来“纠正”或“修正”在选举日之前邮寄出去的无效选票。另一方面，例如在马里科帕县，亲自投票的选民不得不面对不知道如何正确使用电子投票机的投票工作人员。这导致成千上万的亲自投票被错误标记并废弃，而不是被纠正。
+> 七哥盖特🙏
+> 
+> 12月23号：我们成功地在天佑之下……和无数个真诚的伟大的战友的团结合作中……击败了灭爆小组的一个惊天的阴谋……给我们的爆料革命，新中国联邦又带了一次巨大的升华！，上天护佑着我们！🙏🙏🙏🙏🙏🙏🙏🙏🙏一切都已经开始！ [pic.twitter.com/bujuoLMs7q](https://t.co/bujuoLMs7q)
+> — 夜雨4 (@yeyu20200604) [December 24, 2020](https://twitter.com/yeyu20200604/status/1341990619317583875?ref_src=twsrc%5Etfw)
 
-### Differential and Partisan Poll Watcher Treatment
 
-### 党派间投票监督员不同的待遇
 
-In most states, political party candidates and ballot issue committees are able to appoint poll watchers and observers to oversee the ballot counting process. Such poll watchers and observers must be registered voters and present certification to the Judge of Elections in order to be able to fulfill their duties at a polling location.
+12月23号：尊敬的战友们好……你们健身了吗？你们传播C C P病毒……香港危机真相了吗？一切都已经开始！
 
-在大多数州，政党候选人和选票发放委员会能够任命投票监督员和观察员监督计票过程。这些投票监督员和观察员必须是登记选民，并且向选举法官出示证明，才能在投票地点路线职责。
+[郭文贵MILES – Getter – G|TV](https://gtv.org/getter/5fe3789693a06b22d9e0c158)
+![]()![](https://www.himalayawashingtondc.org/wp-content/uploads/2020/12/Screen-Shot-2020-12-23-at-7.33.25-PM.png)
+# 班农战斗室 War Room
 
-Such certified poll watchers should be free to observe at appropriate distances regardless of their party affiliation. Yet in key Democrat strongholds, e.g., Dane County in Wisconsin and Wayne County in Michigan, which yielded high Biden vote counts, Republican poll watchers and observers were frequently subject to different treatment ranging from denial of entry to polling places to harassment and intimidation.
+War Room: Pandemic Ep 605
 
-这些经过认证的投票监督员无论党派分别，都应当能够自由地在适当的距离观察选票。但是，在民主党的地盘，例如威斯康辛州的戴恩县和密歇根州的韦恩县，在这些拜登选票数量高的县，共和党的投票监督员和观察员经常受到拒绝进入投票站，骚扰和恐吓等不同待遇。
 
-For example, in Georgia, a certified poll watcher witnessed other poll workers at a polling location discussing how they should not speak to her due to her party affiliation. In Pennsylvania, a Republican poll watcher was harassed and removed from the polling location due to his party affiliation. In Wisconsin, a Republican poll watcher was prevented from observing due to the fact that polling locations were not allowing Republicans in.
 
-例如，在佐治亚州，一名认证的投票监督员目睹了投票站其他工作人员讨论由于她的党派关系，如何避免与她交流。在宾夕法尼亚州，一名共和党的监督员因为他的党派而遭受到骚扰并被赶出了投票站。在威斯康辛州，由于投票站禁止共和党人进入，一名共和党投票监督员被阻止监督。
+War Room: Pandemic Ep 607
 
-Note the synergy here between the problem of the process foul involved with denying access to certified poll watchers (discussed in the previous section) and the violation of the Equal Protection Clause such conduct entails when such denial, harassment, and intimidation differs by party affiliation.
 
-注意这里的协同效应，拒绝获得认证的投票监督员的访问（前一节中讨论过）所涉及的程序违规的问题，以及违反平等保护条款的行为使得这种拒绝、骚扰、恐吓的事件因党派不同而发生。
 
-更多精彩内容请关注：
+# 秘密翻译组：
 
-- [美国纽约七星会农场（为子孙爱七哥）GTV](https://gtv.org/user/5e986b24b005bd6d929820bd)
-- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19044815/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-2.jpg)
-0
+
+
+
+# 喜马拉雅国际工作站：
+
+
+
+# 路德社节目：
+
+#### 12/23/2020 早 路德时评（路安墨谈）：川普总统重磅讲话全文分析；川普废除新冠救济法案和国防授权法案的重大意义？习近平再次强调粮食安全，要求端好”中国饭碗“；
+
+
+
+– 12月22日，美国总统特朗普在社交媒体上发布了一段视频。
+
+o总统批评了国会通过的9000亿美元经济救济方案，并呼吁国会重新制定法案。
+
+o这份长达5593页的法案结合了很多其他立法。例如：它在《国防授权法案》中增加了 “取消总统使用《叛乱法案》”的内容。这样做的目的是为了在发生与选举有关的骚乱时，取消总统的权力。
+
+o 路德先生质疑，参众两院是否有议员看过这个长达千页的法案。
+
+o 中共使用的手段，现在竟然在美国频繁出现。
+
+– 川普总统将否决没有废除第230条的《国防授权法案》（NDAA）。美国现行体制可能一时腐败。但中共体制腐败是理所当然的。
+
+– 习近平主席刚刚揭晓了一些 “金句粮”，并叮嘱 “要管好中国人的饭碗！”
+
+o习近平在讲话中 “建议”：”解决好种子和耕地问题”、”建设国家粮食安全产业带”、”谁种田，谁补贴”。
+
+o 习近平与路德先生说的一模一样的话 种子是农业的 “筹码”，
+
+o 习近平一定是陆德媒体的粉丝，他正是在回应陆德先生关于中国粮荒的讨论。
+
+#### 12/23/2020 晚 路德时评（路博艾冠谈）：川普为什么否决国防授权法案并称该法案为中共和俄罗斯的礼物；班农采访闫丽梦博士透露出的重要信息；北约发布应对中共国的新联盟报告意味着什么？
+
+
+
+川普总统否决了国防授权法案，并称其是送给中共和俄罗斯的礼物。之前川普总统就已经警告，如果不包括230条款，他将不会签署国防法案。这个法案是由众议院国防授权法案委员会制定。
+
+川普否决的原因是，该法案未能包括关键的国家安全措施，不尊重我们的退伍军人和军方的历史；更重要的不包括230条款。国会可以否决川普总统的否决，双方可以打官司到高院。如果不包括230条款，这个法案和每年的例行法案就没有区别。
+
+230条款赋予社交媒体公司筛选、审查、屏蔽和操纵信息，不仅是一个言论自由的问题了，而且构成国家安全问题。这个法案说，可以允许乌克兰进口武器，所以它是给中共的礼物。
+
+针对川普总统的否决，佩洛西说这是惊人的鲁莽行为。国会必须2/3通过才能否决川普的否决。下周将举行投票。这其实也是个试金石，看川普在国会到底有多大的支持，也测试国会会支持谁做总统。国会通过法案只需要51%支持，但否决川普的否决需要2/3。也就是说只要有1/3的议员支持川普，就成功了。
+
+如果川普这次成功了，就可以如法炮制，运用自己的否决权迫使佩洛西坐下来谈判与合作。 班农今日在战斗室说，美联储资产负债飙升就是因为中共病毒。我们需要对中共追责。怎么追？冻结他们在美国的资产，把他们从美国的市场赶出去，没收中共的资产，用以赔偿中共对美国人民造成的损失。
+
+班农在节目中告诉闫博士，你的报告已得到准确的验证！这非常重磅，意味着病毒定性已达成共识，下一步就是行动了！ 北约转变，发布反思报告，对抗中共国。这为接下来对中共开战或追責的统一行动做好了准备。
+
+路德谈农场遗嘱事情。它是一个致命伤。是天意，被及时发现。否则新中国联邦、农场、爆料革命、法治基金可能被一锅端。这个局太大太大了！这个遗嘱是这样：一张纸上，我自愿把我的x x x等资产，x x部分捐给GTV，x x部分捐给法治基金，x x部分捐给凤凰农场。如果几百上千人写同样的遗嘱，会是什么状况。是不是可以用Rico法案来对付爆料革命？后面还有更大更狠的局。据说灭爆小组的韩正对这件事过早暴露很生气。阴险的地方是把法治基金扯进来。动用Rico法案，翻盘的机会都没有。还有的写遗产留给家人，可以解释为洗钱嫌疑，家人的信息在纸上。更多信息，未来再说。
+
+GTV-[庵上文星](https://gtv.org/user/5e8bfe9c25a3f45af62de543) 战友整理
+
+# 推特文摘
+
+
+
+在看到2020年总统大选中大规模的选民舞弊后，我不同意任何人认为不需要一个强大的、快速的、公平的特别顾问，立即。这是我们国家历史上最腐败的选举，必须严加审查!
+
+在看到2020年总统大选中大规模的选民舞弊后，我不同意任何人认为不需要一个强大的、快速的、公平的特别顾问，立即。这是我们国家历史上最腐败的选举，必须严加审查!
+
+
+
+
+
+> After seeing the massive Voter Fraud in the 2020 Presidential Election, I disagree with anyone that thinks a strong, fast, and fair Special Counsel is not needed, IMMEDIATELY. This was the most corrupt election in the history of our Country, and it must be closely examined!
+> — Donald J. Trump (@realDonaldTrump) [December 23, 2020](https://twitter.com/realDonaldTrump/status/1341885394124607488?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+
+
+这到底是怎样的一个美国 “新冠病毒救济 “法案？
+
+
+
+
+
+
+
+> How in the world was this a US "Covid Relief" bill? 👇🏻 [pic.twitter.com/nbfWWuIwSe](https://t.co/nbfWWuIwSe)
+> — Cari Kelemen (@KelemenCari) [December 23, 2020](https://twitter.com/KelemenCari/status/1341744510188056576?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+拜登政权交接团队成员或顾问，至少有九人曾经在脸书、谷歌或推特等科技公司任职，共和党指称这证明硅谷与民主党政治人物勾结，若拜登宣誓上任，科技巨头将主宰这个政府。
+
+
+
+
+
+> 拜登政权交接团队成员或顾问，至少有九人曾经在脸书、谷歌或推特等科技公司任职，共和党指称这证明硅谷与民主党政治人物勾结，若拜登宣誓上任，科技巨头将主宰这个政府。 [pic.twitter.com/32G8HzPrj6](https://t.co/32G8HzPrj6)
+> — 约翰 (@JohnDoe1284495) [December 24, 2020](https://twitter.com/JohnDoe1284495/status/1341904225001897987?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+看完路德社,到GTV溜达一圈,突然又想起了七哥文贵先生的这个视频。 听着战友们都喜欢的七哥的这首相思小蚂蚁,又看着七哥从前的一张张照片,每一张照片都能显现出七哥的『お茶目(天真爛漫无邪)』的性格,这样的性格怎能不被周围的人所爱戴
+![Heart exclamation](https://abs-0.twimg.com/emoji/v2/svg/2763.svg)
+
+
+
+
+
+
+> 看完路德社,到GTV溜达一圈,突然又想起了七哥文贵先生的这个视频。
+> 听着战友们都喜欢的七哥的这首相思小蚂蚁,又看着七哥从前的一张张照片,每一张照片都能显现出七哥的『お茶目(天真爛漫无邪)』的性格,这样的性格怎能不被周围的人所爱戴❣️我想这也是七哥在🌍有那么多👬,事业成功的一点点点点的理由🥳🥰🥰 [pic.twitter.com/DzpgeqQTGC](https://t.co/DzpgeqQTGC)
+> — 💝传 播 真 相💝 (@HK0wmLRKZq44H85) [December 23, 2020](https://twitter.com/HK0wmLRKZq44H85/status/1341610506289696769?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+12/23参议员兰德.保罗气愤历数今年国会滥权造成的540亿美元的浪费！这相当于烧毁近550万美国人交的税，建46万英里长的路，2倍美墨边境墙..国会用2500万教农村失业的罗马尼亚人英文，3600万研究为何头发变灰，150万让地中海东岸孩子停止吸烟，450万用山猫尿喷喝醉的老鼠
+
+荒谬绝伦！！
+
+
+
+
+
+> 12/23 🔥🔥参议员兰德.保罗气愤历数今年国会滥权造成的540亿美元的浪费！这相当于烧毁近550万美国人交的税，建46万英里长的路，2倍美墨边境墙..国会用2500万教农村失业的罗马尼亚人英文，3600万研究为何头发变灰，150万让地中海东岸孩子停止吸烟，450万用山猫尿喷喝醉的老鼠🐭荒谬绝伦❗️❗️ [https://t.co/Wkpq9aRp1L](https://t.co/Wkpq9aRp1L)
+> — 西行小宝 (@htommy998) [December 23, 2020](https://twitter.com/htommy998/status/1341878785277218816?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+闫博士报告中对人工重组新冠病毒的图示
+
+
+
+
+
+> [pic.twitter.com/RkH9C7ohjm](https://t.co/RkH9C7ohjm)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [December 23, 2020](https://twitter.com/DrLiMengYAN1/status/1341744977827811328?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+
+
+美国国务院发推拉出超长中共国企业制裁清单，这些企业市值占中共国GDP80%，这制裁意味着美国已经开始【执行和中共80%GDP企业】脱钩！ 清单里大量中共军民融合企业… 包括中共军工公司 军事及下属公司 MSCI和FTSE实体上市公司 中共军事公司在纽交所的会员… 涉及几百家中共企业 包含230家A股上市公司
+
+
+
+
+
+> 美国国务院发推拉出超长中共国企业制裁清单，这些企业市值占中共国GDP80%，这制裁意味着美国已经开始【执行和中共80%GDP企业】脱钩！
+> 
+> 清单里大量中共军民融合企业…
+> 包括中共军工公司 军事及下属公司 
+> MSCI和FTSE实体上市公司
+> 中共军事公司在纽交所的会员…
+> 涉及几百家中共企业 
+> 包含230家A股上市公司 [pic.twitter.com/lEmsRxzuUx](https://t.co/lEmsRxzuUx)
+> — 冠軍的后媽 (@caqiangzouhuoMG) [December 23, 2020](https://twitter.com/caqiangzouhuoMG/status/1341614583002198016?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+亚利桑那州参议员发起执行传票的诉讼，该传票索要选举设备和选举记录！希望亚利桑那州立法机构今天通过确认川普总统的议案。欺诈证据确实，并且经过了法检，发了传票。不通过的确说不过去啊。
+
+
+
+
+
+> 🔥🔥🧨亚利桑那州参议员发起执行传票的诉讼，该传票索要选举设备和选举记录！希望亚利桑那州立法机构今天通过确认川普总统的议案。欺诈证据确实，并且经过了法检，发了传票。不通过的确说不过去啊。🙏🙏 [https://t.co/IUuEfimWl3](https://t.co/IUuEfimWl3)
+> — 西行小宝 (@htommy998) [December 23, 2020](https://twitter.com/htommy998/status/1341840961815527424?ref_src=twsrc%5Etfw)
+
+
+
+
+
+# 墙内咨讯
+
+#### 新华社北京12月23日电*题：强化国家战略科技力量–学习贯彻中央经济工作会议精神*
+
+中央经济工作会议确定了明年要抓好的八项重点任务，排在首位的就是强化国家战略科技力量。做好明年经济工作，要在强化创新驱动、推动创新发展上更加突出战略性、协同性和针对性，更鲜明地把科技自立自强作为国家发展的坚实支撑。
+
+党和国家历来高度重视国家战略科技力量，把建设一支体现国家意志、服务国家需求、代表国家水平的“国家队”作为科技事业发展的重中之重。近年来，从嫦娥五号“上九天”，到“奋斗者”号“下五洋”，从量子计算挺进科学前沿，到疫苗研发为人民健康安全织牢“保护网”，从基础研究到高新应用技术研发，国家战略科技力量都发挥了重要作用、展现了使命担当。进入新发展阶段，无论是应对国际经济科技竞争格局的深刻变革，还是催生发展新动能、推动高质量发展，都需要我们进一步强化国家战略科技力量，为推动高质量发展、构建新发展格局提供更有力的保障。
+
+强化国家战略科技力量，加强顶层设计是前提。新一轮科技革命和产业变革加速演进，我们要抓住机遇、应对挑战，就必须准确把握发展大势，努力抢占科技创新战略制高点，将主动权牢牢握在自己手中。要充分发挥国家作为重大科技创新组织者的作用，坚持战略性需求导向，确定科技创新方向和重点，着力解决制约国家发展和安全的重大难题，打造面向未来的发展新优势。
+
+强化国家战略科技力量，优化工作布局是关键。科技创新是一项复杂的系统工程，需要调动各方力量协同发力。要更好发挥新型举国体制优势，推进科研院所、高校力量的优化配置和资源共享，发挥企业在科技创新中的主体作用，让各类创新主体进一步释放创新潜能。要抓紧制定实施基础研究十年行动方案，重点布局一批基础学科研究中心，支持有条件的地方建设国际和区域科技创新中心，为破解“卡脖子”问题夯实根基。
+
+强化国家战略科技力量，深化改革创新是动力。当前，我国创新能力还不适应高质量发展要求，关键领域核心技术受制于人的格局没有从根本上改变。打破瓶颈制约，必须持续深化科技体制改革，完善激励机制和科技评价机制，落实好攻关任务“揭榜挂帅”等机制，充分调动科研人员的积极性和创造性；要营造良好氛围，引导科研人员专心致志、扎实进取，充分激发人才创新活力；要加快国内人才培养，使更多青年优秀人才脱颖而出，造就更多国际一流的科技领军人才和创新团队。
+
+中国的科技创新越来越离不开世界，世界的科技进步也越来越需要中国。强化国家战略科技力量，绝不意味着关起门来封闭地搞，而是要在开放合作、交流互鉴中求创新。面向未来，加强国际科技交流与合作，在开放条件下促进科技能力提升，中国将与各国携手推进科技创新、共享创新成果，为全球发展和人类文明进步不断作出新贡献。
+
+***简评：***思想禁锢，上欺下骗，东剽窃西山寨，还能为全球发展做贡献！？别放毒，全球就消停了。
+
+#### 珍惜粮食、反对浪费调研报告指出
+
+#### 影响粮食安全的潜在风险隐患依然存在
+
+12月23日，在第十三届全国人民代表大会常务委员会第二十四次会议上，全国人大常委会副委员长武维华作了全国人大常委会专题调研组关于珍惜粮食、反对浪费情况的调研报告。
+
+武维华介绍，党的十八大以来，以习近平同志为核心的党中央高度重视发展粮食生产、保障粮食安全，提出新的粮食安全观，走出了一条中国特色的粮食安全之路。我国粮食连年丰收，库存充实，储备充足，供应充裕，市场运行总体平稳。但我国粮食中长期供求仍呈紧平衡状态，目前粮食供给结构性矛盾突出，影响粮食安全的潜在风险隐患依然存在。
+
+调研发现，当前我国粮食损失浪费主要体现在两个方面：一是在生产、储存、运输、加工等环节存在的损耗现象；二是消费环节浪费，主要存在于商业餐饮、公共食堂和家庭饮食三个领域。
+
+报告提出，进一步做好珍惜粮食、反对浪费工作，一方面要继续深化农业供给侧结构性改革，根据市场供需变化，及时调整农产品供给结构，提升农产品供给质量，打造科学合理、安全高效的重要农产品供给体系，以更好地适应人民群众高品质生活的新需求，减少因供需不匹配造成的浪费；另一方面要认真贯彻落实党的十九届五中全会通过的十四五规划建议提出的“开展粮食节约行动”，将反对粮食浪费工作列入重要议事日程，全链条全环节系统化解决粮食浪费问题，加快建立珍惜粮食、反对浪费的长效机制。
+
+报告建议，要切实抓好制止餐饮浪费工作。解决餐饮浪费问题，需要相关利益主体共同关注，采取切实可行的措施，逐步树立并践行绿色消费模式和生活方式。一是严格落实监管责任。进一步加强公务活动管控，继续对公务消费保持高压态势，严格公务接待、会议、培训等公务活动用餐管理，以公务用餐引领社会消费文明。二是切实履行主体责任。餐饮服务单位要科学合理设计宴席和菜单，调整菜品数量、分量，主动提供“小份”“半份”等人性化、合理化服务，做好公勺公筷和分餐制服务等。
+
+***简评：***粮食安全的报道不绝于耳！
+
+**当地时间12月20日，美国著名中国问题专家、哈佛大学荣休教授傅高义在马萨诸塞州剑桥的一家医院去世，享年90岁。**
+
+**傅高义在哈佛大学有着“中国先生”的称号，曾任费正清东亚研究中心主任。他精通中文和日文，撰有《邓小平时代》《日本新中产阶级》等著作。**
+
+**今年12月1日，傅高义还在北京香山论坛视频研讨会上发表演讲，对中美关系未来发展提出思考与建议。我们特此编发这篇演讲内容，谨以此纪念：**
+
+#### 傅高义：对中国所做的“好事”，美国应当给予肯定
+
+**今年12月1日，傅高义还在北京香山论坛视频研讨会上发表演讲，对中美关系未来发展提出思考与建议。我们特此编发这篇演讲内容，谨以此纪念：**
+
+美国总统特朗普导致美国与所有国家的关系恶化，这既使我们感到尴尬，也使美国失去了别国的信任。信任这种东西，一旦失去就难以恢复。然而，我们知道，美国必须恢复我们在二战后发挥的传统作用，与别国合作，并由更多专业人士发挥更多作用。令人极其遗憾的是，中美关系目前处在低点，这对两国都是不利的。
+
+我认为，中美关系的改善可以从三个层次入手。第一是高层之间。自从我从事中国问题研究以来，我从未见过中美关系恶化到这种地步。我认为，目前有一个真正的机遇摆在拜登面前，我建议两国领导人举行会晤，毕竟拜登与中国领导人之间有着良好的关系。而且众所周知，候选人在就职之后并不一定都会履行竞选期间的承诺。所以我认为拜登会加强与中国领导人的联系。第二个我们需要付出努力的层级是专业层级，更多由专业人员来处理政治上的问题。最后一个层级是工作层级，负责处理两国之间的具体细节问题。
+
+中美双方应多合作多讨论，以消除中美关系目前所面临的真正危险，这种危险程度是许多人没有意识到的，比如在台湾问题上。因此，中美双方需要在许多方面付出更多努力。首先，美国应对中国在国际事务中的建设性努力给予更多认可。中国是联合国维和部队的最大出兵国。中国在应对国内气候污染、抗击全球变暖方面卓有成效。中国成立的亚投行也是一个很好的例子，在这方面美国政府犯了错误，我认为美国应加强与亚投行合作。我们还应该认可中国为非洲基础设施发展所作出的贡献。“一带一路”倡议也有可圈可点之处。总之，中国付出了大量建设性努力，美国应彻底改变看待中国的眼光，尽管我知道这并不容易，但美国应当对中国所做的“好事”给予建设性肯定。
+
+特朗普能够当选总统是因为美国内部存在一些根本性问题。第一，美国社会目前正在经历从工业社会向服务型社会的转型，产业工人安全感降低，而美国没有很好地应对这个问题。美国现在分裂成沿海的“蓝州”阵营和内陆的“红州”阵营。在“红州”，许多人的生活水平与过去相比下降了。第二，美国在对待非洲裔群体和女性群体方面取得了进展，而很多白人男性对此深感不满，于是选择支持特朗普。第三，民主制度有时就是很混乱、进程很缓慢，在未来四年里，我们会进行很多讨论，以便更好地解决这些根本问题。
+
+***简评：***就是这些活在象牙塔里的所谓高知误国误民啊！
+
++1

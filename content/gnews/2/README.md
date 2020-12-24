@@ -1,32 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 识破佩洛西的诡计！众议员共和党领袖凯文·麦卡锡呼吁拒绝Covid救济法案中对外国的巨额援助
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/681636/)
+## 《路德社》精选新闻简讯：美国有超过一百万的人接受了COVID-19疫苗
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/681666/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24090456/E47CF0C5-8443-4DB3-964B-2DA038E2BFDA.jpeg)
-编辑：引力波
+出品《路德社》 编辑：路德社精选新闻专栏组
 
-引用：https://www.foxnews.com/politics/kevin-mccarthy-slams-pelosi-calls-for-house-gop-to-reject-foreign-aid-in-coronavirus-bill
+根据[疾病控制与预防中心的数据，](https://covid.cdc.gov/covid-data-tracker/#vaccinations)截至本周三，美国已有超过100万人接种了第一剂Pfizer-BioNTech冠状病毒疫苗。
 
-昨天，在川普总统否决了Covid救济法案，并发表了总统演讲抨击该法案对美国民众救济力度太小后，一直疯狂反川普的众议员议长南希佩洛西一反常态，立刻召开了一场”选择性听证会”。包括佩洛西，美国众议员亚历山大·奥卡西奥·科尔特斯和参议员伯尼·桑德斯在内的民主党人迅速抓住了川普总统关于将人均救济600美元每月提高到2000美元的要求，表示完全支持，并敦促总统采取更大的刺激措施。
+上周，美国是美国历史上[规模最大的疫苗接种运动](https://www.axios.com/coronavirus-vaccine-new-york-2df57370-cf2b-4c56-93ea-c0cc8ea74da8.html)，因为美国全国范围内均出现COVID-19病例，住院和死亡人数激增。
 
-佩洛西（Pelosi）周三呼吁总统敦促麦卡锡（McCarthy）让众议院共和党人与民主党人在周四早上的投票中以“一致同意”的方式批准2000美元的救济方案。
+以下为美国相关数据：
 
-麦卡锡在周三晚间的信中回击了佩洛西，称共和党将致力于自己的刺激计划，但不会同意佩洛西要求的方案。
+- 截至周三，已分发了9,465,725剂辉瑞-BioNTech和Moderna疫苗。
+- 已经施用了1,008,025剂量的Pfizer-BioNTech疫苗。
+- **注意：** CDC尚无有关Moderna疫苗接种数量的数据。上周晚些时候，FDA批准了Moderna的疫苗紧急使用授权。
+- 根据[约翰·霍普金斯大学（Johns Hopkins University）的数据](https://coronavirus.jhu.edu/map.html)，截至周三下午，美国已记录了超过1800万例确诊的COVID-19病例，并有324,000多例死亡。
+- 根据[COVID追踪项目](https://covidtracking.com/data)，截至周二晚上，约117,777人因COVID-19住院治疗。
 
-就像川普总统说的：“这被称为Covid救济法案，但与Covid几乎没有关系。”
 
-这份法案包括“向柬埔寨提供的援助为8550万美元，向缅甸提供的援助为1.34亿美元”，以及向其他国家提供的数百万美元，以及他所分配的国内拨款。被描述为“浪费和不必要的物品”。
+总体**情况：**医护人员和居住在长期护理机构中的人们以及一些立法者在美国率先接种了该疫苗。
 
-佩洛西和民主党们并不在乎把人均救济提高到每月2000美元，毕竟这花的是美国纳税人的钱，而且民主党一项的主张就是大政府高福利。他们真正在乎的就是Covid救济法案中那些“不必要的浪费”。因为每一笔拨款的背后都牵涉到利益集团的分赃。
+- CDC咨询委员会[建议75岁以上的](https://www.cdc.gov/mmwr/volumes/69/wr/mm695152e2.htm)人和前线基本工作人员准备计划在下一批接种疫苗。
 
-川普总统的本意是削减不必要的开支，把钱花在美国纳税人身上，而佩洛西们只抓住川普总统关于人均救济提高到2000美元这一点，以退为进，逼迫川普总统通过Covid救济法案。
 
-众议院少数党领袖凯文·麦卡锡在推特上写道：“当许多美国人在国内苦苦挣扎的时候，他们便无视@realDonaldTrump呼吁重新审查在海外浪费的税收美元的呼吁。” “共和党将采取行动将美国置于首位。”
+目前最新疫情**情况**：（最新更新）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24092723/%E6%88%AA%E5%B1%8F2020-12-25-03.25.53.png)[https://gisanddata.m*aps.arcgis.com/apps/opsdashboard/index.html#/bda7594740fd40299423467b48e9ecf6*](https://gisanddata.maps.arcgis.com/apps/opsdashboard/index.html#/bda7594740fd40299423467b48e9ecf6)
+1. **全球：**截至美国东部时间周三下午6:30确诊病例总数：[78,494,742](https://coronavirus.jhu.edu/map.html)—死亡总数：[1,726,329](https://coronavirus.jhu.edu/map.html)—追回总数：[44,221,529](https://coronavirus.jhu.edu/map.html)*（不再包括截至12月15日的美国追回数）* —[地图](https://www.axios.com/coronavirus-latest-developments-8b8990c4-6762-494a-8ee0-5091746bda9b.html)。
+2. **美国：美国**东部时间星期三下午6:30确诊病例总数：[18,402,363](https://coronavirus.jhu.edu/map.html)—死亡总数：[325,358](https://coronavirus.jhu.edu/map.html) —检验总数：[233,878,643](https://coronavirus.jhu.edu/map.html) —[地图](https://www.axios.com/coronavirus-west-virginia-first-case-ac32ce6d-5523-4310-a219-7d1d1dcb6b44.html)。
 
-麦卡锡写道，共和党应该跟随特朗普的领导，“重新审视我们的税金在海外的消费方式”，这场流行病给美国造成了近一年的破坏。
 
-“当我们渡过这场大流行并恢复我们的国家时，政府的首要任务必须是家庭，社区和小型企业。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24090543/DCC4FDF2-09A2-4A6F-B1B5-79496E8BD4FC.jpeg)
-0
+目前，全球疫情再次出现紧张状况，继英国发现变异新冠病毒后，多国相继通报出现新冠病毒其他新变种的情况。这造成民众再度陷入恐慌和对于疫苗的心理需求度上升。但是，疫苗注射后的副作用及引发的安全问题又令各界人士对于新冠疫苗心存疑虑，对于接种更加是望而却步。很多人选择拒绝接种新冠疫苗。新冠疫苗相关消息后续事态发展还需谨慎关注。
+
+[新闻援引来源](https://www.axios.com/one-million-us-coronavirus-covid-vaccine-20432671-5a9e-481c-b99d-2f59f0591898.html)
+
+本文作者：玫瑰天空
+审核校对：玫瑰天空
+上传排版：青葫芦娃
+
++1

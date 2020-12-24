@@ -1,25 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统反对新的国会新冠救济法案
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/681204/)
+## 川普总统祝贺美国太空部队一周岁生日
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/681325/)
 
-川普总统12月22日发表简短但重磅的演讲，痛斥国会提交的5000页又臭又长的救济法案跟救济几乎没有任何关系。他揭露法案有各种天价的援助外国的资金，然而对美国人民的帮助却少得可怜。
-[视频来源](https://www.youtube.com/watch?v=4aQjA-oZW_o&amp;feature=youtu.be)
-全文：
+新闻简述：川普总统于12月20日祝贺美国太空部队一周岁生日，他勉励这些勇敢的守护者要心怀他们的座右铭“永远在上方” (拉丁文: Semper Supra)，以迈出人类的“一小步”，来实现维护美国和世界和平的一大步。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24055155/WH_20201220_figure1.jpg)[图片来源](https://www.spaceforce.mil/Connect-With-Us/Photos/igphoto/2002538835/)
+[阅读白宫原文](https://www.whitehouse.gov/briefings-statements/presidential-message-first-birthday-united-states-space-force/)
 
-整个夏季民主党人残酷地阻止了COVID救济法，试图极大地发挥他们的极左议程并影响选举。然后，几个月前，国会开始协商一个新救济法案，来满足美国人民的紧急需求。这花了特别长的时间。但是，他们现在给到我办公桌上的提案与预期的有很大不同。真是可耻。例如，在这份超过5,000页的法案，国会竟没有任何人读过，因为它又臭又长，它被称为“COVID救济法案”，但与COVID几乎没有任何关系。
+Presidential Message on the First Birthday of the United States Space Force
 
-该法案包括：8千550万美元给柬埔寨援助，1.34亿给缅甸，13亿给埃及和埃及军方，让他们几乎全部用于购买俄罗斯的军事装备。2千500万给巴基斯坦的民主和性别计划，5.05亿美元，给伯利兹、哥斯达黎加、萨尔瓦多，危地马拉、洪都拉斯、尼加拉瓜、和巴拿马。
+总统美国太空部队一周岁生日贺词
 
-4千万给华府一个甚至不开放营业的肯尼迪中心。10亿给史密森尼博物馆1.54亿给国家美术馆。同样地，这些设施基本上是不开放的。700万用于礁鱼管理，250亿用于抗击亚洲鲤鱼，250万用于计算墨西哥湾的琥珀鱼数量。一项用于促进联邦孵化场鱼类繁殖的拨款， 300万用于家禽生产技术，200万用于研究倒树的影响，5.66亿美元用于FBI的建设项目。该法案还允许给非法移民的家庭成员签发支票，他们每人最多可获1800美元。这远超过了美国人的所得。
+Issued on:  December 20, 2020
 
-除开所有这些大量浪费性支出，9千亿美元的救济为辛勤工作的纳税人仅提供600美元的救济金。并且小企业也没有得到足够的钱。尤其是餐馆，他们遭受到巨大的痛苦。他们仅获得一项可用的减免用在餐厅经营上，仅限两年，这两年的期限必须撤回，这将使所有者获得融资并使其餐馆恢复原状。国会可以选一个更晚的终止日期， 但是两年的期限是不可接受的。是不够的。
+颁布日期：2020年12月20日
 
-国会为其他国家、游说集团、特殊利益集团资助了很多钱，却只把最低标准的钱给到需要它的美国人。这不是他们的错，这是中[共]国的错。我正要求国会修改这项法案，把低到可笑的600美元提高至2000美元，或每对夫妇4000美元。我还要求国会立即去掉该立法中的浪费，还有不必要的项目，并向我发送适当的法案，否则下一届政府将不得不提供另一个COVID救济法案，也许那届政府将是我，并且我们将完成它。非常感谢你。
+As Commander in Chief, I send my best wishes to the men and women of the United States Space on its first birthday!
 
-翻译：【Prof. Bacteriophage】字幕：【XO小粉红】模版设计：【V%】校对/总结/编辑：【Isaiah4031】
+作为总司令，我在美国太空部队成立一周年之际向美国太空军男女将士们致以最诚挚的祝福！
+
+Over 50 years ago, Americans produced one of history’s most triumphant achievements by taking “one small step for man” and “on giant leap for mankind.”  As our beautiful American Flag was planted on the Moon’s surface, it was clear what had brought humans to this new and wondrous frontier – the American spirit.  One year ago, we opened another chapter in the extraordinary history of American leadership in space, and strengthened America’s heritage as the world’s as the world’s greatest arsenal of democracy. Today, I commend the brave Americans who have taken their oath and joined the Space Force’s ranks, and the many more yet to join, for taking another giant leap toward a brighter future for all.
+
+50多年前，美国通过“迈出一小步”实现了“人类一大步”的太空实践，创造了历史上最辉煌的成就。当我们美丽的国旗插在在月球表面上时，人类之所以能来到这片崭新而奇妙的边界—很显然，是美国精神。一年前，我们为美国在太空领域的领导地位开启了不平凡的历史新篇章，并加固了美国作为世界上最伟大的民主武库的传承。今天，我赞扬那些已经宣誓加入太空部队勇敢的美国人，还有更多将要加入的人，他们为所有人的美好的未来又迈进了更大的一步。
+
+Now, we stand at the birth of a new era.  As space exploration and commercialization continues to increase, our Nation’s boundless future will built upon the success of the Space Force and its members.  True to their motto, “Always Above,” the Guardians of the United States Space Force ensure our Nation continues to maintain peace through strength by securing the farthest reaches of humanity.  These 21st century pioneers keep watch around the world by detecting missile launches, providing strategic advantages to our military and intelligence community, and propelling our Armed Forces into the future.
+
+现在，我们迎来了一个新时代的诞生。随着太空探索和商业化的持续扩展，我们国家无限的未来将建立在太空部队及其成员的成就之上。美国太空部队守护者所忠实于的座右铭“永远在上方” 是利用美国的强大的实力来抵达人类最遥远的领域进而能维护到美国的和平。这些21世纪的先驱们通过检测导弹发射，为我们的军事和情报机构提供战略优势，因而对世界保持警惕，并推动我们的武装部队走向未来。
+
+The United States has the most capable military on Earth, and today, we celebrate the Space Force for extending our safety and security beyond it.  May God protect all those who serve our great Nation in uniform, and may He continue to bless the United States of America.
+
+美国拥有世界上最强大的军事力量，今天，我们庆祝太空部队将我们的安全与防御延伸到更广泛的地方。愿上帝保佑所有为我们伟大国家服务的军人，愿上帝永远保佑美利坚合众国！
+
+Semper Supra!
+
+永远在上方！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24055206/WH_20201220_coverphoto.png)
+翻译：【奔腾的长江】校对：【rainbow】编辑：【Isaiah4031】
 
 喜马拉雅玫瑰园出品
 
-+2
+0

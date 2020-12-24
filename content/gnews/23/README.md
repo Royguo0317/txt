@@ -1,25 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 19年前川普在911恐袭现场接受采访
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/681198/)
+## 班农疫情作战室582/583/584期
+` GM47` [轉載自GNews](https://gnews.org/zh-hans/681343/)
 
-撰稿：rosobona
+战友之家新闻译制组制作
 
-视频剪辑：光耀华夏
-Twitter视频剪辑
-十九年前，当911恐怖袭击发生后，川普第一时间赶到灾难现场，连同他雇佣的数百人组成的救援团队一起加入了政府救援工作。
+更多、更新WAR ROOM中文视频，请前往GTV-班农战斗室中文    》》》
 
-这一次，川普总统会再一次带我们走出黑暗与邪恶。
+[https://gtv.org/user/5e8cf14849080f0e9c6ae5b8](https://gtv.org/user/5e8cf14849080f0e9c6ae5b8)
 
-他是一个能够兑现承诺的人！希望永远存在！
+582：我们自己制造的危机
 
-澳喜文章: [https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+2020年12月14日，
 
-欢迎加入澳喜农场：
-[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+尽管YouTube宣布了对讨论选举的所有频道的广泛审查要求，但史蒂夫·班农（Steve Bannon）讨论了有关CCP病毒大流行的最新消息以及有关选举状态的最新消息。连线Maggie VandenBerghe，Rudy Giuliani，Raheem Kassam和Jack Maxey。
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20035659/IMG_1836.jpg)
+播出时间：2020年12月14日
 
+
+
+==
+
+583：揭露问题的本质
+
+2020年12月14日
+
+尽管YouTube宣布了对讨论选举的所有频道的广泛审查要求，但史蒂夫·班农（Steve Bannon）讨论了有关CCP病毒大流行的最新消息以及有关选举状态的最新消息。连线Maggie VandenBerghe，Rudy Giuliani，Raheem Kassam和Jack Maxey。
+
+播出时间：2020年12月14日
+
+
+
+==
+
+584：巴尔辞职！
+
+2020年12月14日
+
+尽管YouTube宣布了对讨论选举的所有频道的广泛审查要求，但史蒂夫·班农（Steve Bannon）讨论了有关CCP病毒大流行的最新消息以及有关选举状态的最新消息。连线Maggie VandenBerghe，Jack Posobiec，John Fredericks，Boris Epshteyn，Brian Kennedy。
+
+播出时间：2020年12月14日
+
+
+
+==
+
+更多、更新WAR ROOM中文视频，请前往GTV-班农战斗室中文    》》》
+
+[https://gtv.org/user/5e8cf14849080f0e9c6ae5b8](https://gtv.org/user/5e8cf14849080f0e9c6ae5b8)
 
 +1
