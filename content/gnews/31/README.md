@@ -1,25 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 19年前川普在911恐袭现场接受采访
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/681198/)
+## 12/24日康州农场前沿观察: 与川普并肩，为自由而战
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/681116/)
 
-撰稿：rosobona
-
-视频剪辑：光耀华夏
-Twitter视频剪辑
-十九年前，当911恐怖袭击发生后，川普第一时间赶到灾难现场，连同他雇佣的数百人组成的救援团队一起加入了政府救援工作。
-
-这一次，川普总统会再一次带我们走出黑暗与邪恶。
-
-他是一个能够兑现承诺的人！希望永远存在！
-
-澳喜文章: [https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
-
-欢迎加入澳喜农场：
-[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20035659/IMG_1836.jpg)
+播音：康州盘古农场–海媚
+撰文：康州盘古农场–文法了得
+视频：康州盘古农场–Buzz文珂 /银龙
+审片：康州盘古农场–皮亚纳
+审核：康州盘古农场–Truemanman
 
 
-+1
+
+“如果你剥夺了美国的自由，就等于夺走了为此而呐喊的所有人的自由希望！”“全世界的人都在为川普集结，为川普而战！”
+12月21日林伍德大律师在接受采访时庄严地说道，低沉而有力。他历数了当前美国遭遇的各种危机，控诉CCP对美国本土发动了两次攻击，痛斥了CCP与全球主义者合谋想要取代、统治美国乃至世界的狼子野心。他坚信川普总统会肩负重任迎难而上，拯救美国，拯救世界人民对自由的渴望与希望。川普总统不是一个人在战斗。爱好自由的世界人民早已集结，为自由呐喊，为自由而战。
+我们看到自今年年初以来，在德国、英国等地，很多民众持续不断地自发组织了挺川演讲与游行，尤其在进入11月大选月份，美国百万民众勇敢地走上街头，在首都华盛顿盛大游行支持川普总统，当中也有我们“爆料革命”的战友积极地响应和参与。在日本东京、大阪等地日本民众举办了大型挺川集会，台湾民众近日也组织了“挺川灭共”游行集会。
+ “这是最后的斗争，团结起来到明天。” 这首曾经被中共用来鼓动人民反抗旧政的歌，成为了当下中共最害怕的歌。与川普并肩，为自由而战！自由必胜!正义必胜！
+ 
+康州盘古农场报道
+ 
+素材来源：
+1．12.21 《大纪元》采访LIN WOOD视频[https://www.youtube.com/watch?v=rZK4mOi-8ac&feature=youtu.be](https://www.youtube.com/watch?v=rZK4mOi-8ac&amp;feature=youtu.be)
+[https://www.youtube.com/watch?v=mYONryrQemA&feature=youtu.be](https://www.youtube.com/watch?v=mYONryrQemA&amp;feature=youtu.be)
+
+0

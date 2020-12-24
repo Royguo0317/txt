@@ -1,9 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/22/2020 美国媒体OAN: 监控画面显示，佐治亚州的投票工作人员多次扫描同一批选票。
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/681252/)
+## 【路德时评精华版粤语配音】12.18：美国将中芯国际等八十家中共公司列入商业部制裁清单
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/681387/)
 
-By: 【秘密翻譯組G-Translators】
+制作团队：【喜马拉雅粤语组】文洪、wikim bao、打杂的、文东
+
+
+
+摘要：
+美国将中芯国际等八十家中共公司列入商业部制裁清单,制裁更精准，受影响企业更多，本次制裁直指中共命门。
 
 0

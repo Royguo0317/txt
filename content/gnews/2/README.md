@@ -1,41 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯：美国有超过一百万的人接受了COVID-19疫苗
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/681666/)
+## 奥巴马-拜登时期CIA官员曾访问中国国际友好联络会
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/681871/)
 
-出品《路德社》 编辑：路德社精选新闻专栏组
+加拿大多伦多枫叶农场 文𤦍(Manpui）
 
-根据[疾病控制与预防中心的数据，](https://covid.cdc.gov/covid-data-tracker/#vaccinations)截至本周三，美国已有超过100万人接种了第一剂Pfizer-BioNTech冠状病毒疫苗。
+校对 文怡
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24102210/maxresdefault-1-2.jpg)图片来源: YouTube
+据国家脉动(The National Pulse) 12月23日报道，奥巴马·拜登时期任命的中央情报局外部顾问委员会的迈克尔·奥汉隆（Michael O’Hanlon），曾与中国国际友好联络会进行“秘密英特尔行动”，该中共统战组织出现在后来川普政府指定为外国使团的中共党媒上。
 
-上周，美国是美国历史上[规模最大的疫苗接种运动](https://www.axios.com/coronavirus-vaccine-new-york-2df57370-cf2b-4c56-93ea-c0cc8ea74da8.html)，因为美国全国范围内均出现COVID-19病例，住院和死亡人数激增。
+奥汉隆在2011-2012年还是中央情报局外部顾问委员会的成员。担任当时中央情报局局长莱昂·帕内塔（Leon Panetta）的顾问。
 
-以下为美国相关数据：
+2012年8月23日奥汉隆以布鲁金斯学会（Brookings Institution）外交政策研究小组主任、乔治城大学和哥伦比亚大学兼职教授身份拜访了中共国际友好联络协会（CAIFC）。  同年也是他在中央情报局（CIA）外部顾问委员会任期届满时间。
 
-- 截至周三，已分发了9,465,725剂辉瑞-BioNTech和Moderna疫苗。
-- 已经施用了1,008,025剂量的Pfizer-BioNTech疫苗。
-- **注意：** CDC尚无有关Moderna疫苗接种数量的数据。上周晚些时候，FDA批准了Moderna的疫苗紧急使用授权。
-- 根据[约翰·霍普金斯大学（Johns Hopkins University）的数据](https://coronavirus.jhu.edu/map.html)，截至周三下午，美国已记录了超过1800万例确诊的COVID-19病例，并有324,000多例死亡。
-- 根据[COVID追踪项目](https://covidtracking.com/data)，截至周二晚上，约117,777人因COVID-19住院治疗。
+具体来说，他参观了中共国际友好联络协会的和平与发展研究中心，他称赞该处是“中共最著名的中心之一“，并且指他是受到其知名度的吸引“慕名而来”。
 
+其间拜访了CAIFC附属的智囊团——和平与发展研究中心，该智囊团被奥巴马政府认定为进行“秘密情报搜集”行动并试图胁迫外国相关人员、支持中共政府的“优先政策”。
 
-总体**情况：**医护人员和居住在长期护理机构中的人们以及一些立法者在美国率先接种了该疫苗。
+他来访是希望听取中心学者对中美关系和地区热点问题的看法。 也为他与美国前副国务卿斯坦伯格(James. Steinberg) 撰写的有关中美关係的书提供参考。” 但是，奥汉隆一边倒的吹捧和居心叵测地误导美国人们， 如同中共大外宣般可怕至极。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24102343/%E4%B8%8B%E8%BD%BD-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24102356/%E6%9D%A8%E6%B4%81%E7%AF%AA%E5%9B%BD%E5%8A%A1%E5%A7%94%E5%91%98%E4%B8%8E%E5%85%A8%E4%BD%93%E4%BB%A3%E8%A1%A8%E5%90%88%E5%BD%B1.jpg)2019年杨洁篪国务委员与中国国际友好联络会全体代表合影
+中国国际友好联络会（CAIFC）成立于1984年，是统一战线组织的联络部，中央军事委员会的政治工作部。为了中共的利益，从事海外影响力活动。根据美中经济与安全审查委员会2018年的一份报告，CAIFC“发挥情报收集以及开展宣传和感知管理运动的双重作用”。CAIFC的董事长是前外交部长李肇星。
 
-- CDC咨询委员会[建议75岁以上的](https://www.cdc.gov/mmwr/volumes/69/wr/mm695152e2.htm)人和前线基本工作人员准备计划在下一批接种疫苗。
+美中安全与经济评论委员会的报告补充说：“联合阵线战略采用多种方法来影响海外华人社区、外国政府和其他行为者采取支持中共政府偏爱政策的立场。”该报告特别提到了中共国际友好联络协会并指出这是中共军方的“前沿”。该委员会补充道：“ 中共国际友好联络协会与国家安全，民政和外交部之间还有其他联繫，它是部署秘密情报收集者的平台。”
 
+该组织的网站描述了其“与外国政府机构，政党以及著名的政治和军事人物建立密切联繫”实施“蓝金黄”以“促进中共的政策，成就和目标。”
 
-目前最新疫情**情况**：（最新更新）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24092723/%E6%88%AA%E5%B1%8F2020-12-25-03.25.53.png)[https://gisanddata.m*aps.arcgis.com/apps/opsdashboard/index.html#/bda7594740fd40299423467b48e9ecf6*](https://gisanddata.maps.arcgis.com/apps/opsdashboard/index.html#/bda7594740fd40299423467b48e9ecf6)
-1. **全球：**截至美国东部时间周三下午6:30确诊病例总数：[78,494,742](https://coronavirus.jhu.edu/map.html)—死亡总数：[1,726,329](https://coronavirus.jhu.edu/map.html)—追回总数：[44,221,529](https://coronavirus.jhu.edu/map.html)*（不再包括截至12月15日的美国追回数）* —[地图](https://www.axios.com/coronavirus-latest-developments-8b8990c4-6762-494a-8ee0-5091746bda9b.html)。
-2. **美国：美国**东部时间星期三下午6:30确诊病例总数：[18,402,363](https://coronavirus.jhu.edu/map.html)—死亡总数：[325,358](https://coronavirus.jhu.edu/map.html) —检验总数：[233,878,643](https://coronavirus.jhu.edu/map.html) —[地图](https://www.axios.com/coronavirus-west-virginia-first-case-ac32ce6d-5523-4310-a219-7d1d1dcb6b44.html)。
+有报导称，中共情报人员针对的是埃里克·斯威威尔（Eric Swalwell）等备受瞩目的民主党政客。
 
+美国政府现在已将中共国际友好联络协会视为中共统一阵线的组成部分，并着力消除中共的政策和权威影响。
 
-目前，全球疫情再次出现紧张状况，继英国发现变异新冠病毒后，多国相继通报出现新冠病毒其他新变种的情况。这造成民众再度陷入恐慌和对于疫苗的心理需求度上升。但是，疫苗注射后的副作用及引发的安全问题又令各界人士对于新冠疫苗心存疑虑，对于接种更加是望而却步。很多人选择拒绝接种新冠疫苗。新冠疫苗相关消息后续事态发展还需谨慎关注。
+评：
 
-[新闻援引来源](https://www.axios.com/one-million-us-coronavirus-covid-vaccine-20432671-5a9e-481c-b99d-2f59f0591898.html)
+奥汉隆被中共统战部渗透这一事实能够被揭露，说明美国已在转向，认清邪恶中共并与之划清界限，是时候清算这班乌合之众了。
 
-本文作者：玫瑰天空
-审核校对：玫瑰天空
-上传排版：青葫芦娃
+*[原文链接](https://thenationalpulse.com/exclusive/biden-cia-board-lectured-chinese-spies/)*
 
-+1
+0

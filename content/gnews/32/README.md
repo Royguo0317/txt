@@ -1,26 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 伦敦会是下一个武汉吗
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/681199/)
+## 川普总统祝贺美国太空部队一周岁生日
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/681325/)
 
-撰稿: Runaway      審稿：Yumi
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24043832/london.png)图片来源: STEFAN ROUSSEAU/PA VIA AP IMAGES
-由于一种更具传染力的COVID-19病毒变种导致的病例激增，英国首相鲍里斯·约翰逊（Boris Johnson）宣布，自12月20日起伦敦和英国南部地区将在圣诞节期间全面施行封锁。 随即加拿大和意大利、比利时、荷兰等欧洲国家封锁了对英国的边境。由于担心与法国的边界也将关闭，伦敦圣潘克拉斯火车站的人们正在焦急地等待乘坐前往巴黎的末班车。
+新闻简述：川普总统于12月20日祝贺美国太空部队一周岁生日，他勉励这些勇敢的守护者要心怀他们的座右铭“永远在上方” (拉丁文: Semper Supra)，以迈出人类的“一小步”，来实现维护美国和世界和平的一大步。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24055155/WH_20201220_figure1.jpg)[图片来源](https://www.spaceforce.mil/Connect-With-Us/Photos/igphoto/2002538835/)
+[阅读白宫原文](https://www.whitehouse.gov/briefings-statements/presidential-message-first-birthday-united-states-space-force/)
 
-此时正值西方传统节日圣诞节之前,人们或家庭团聚,或情侣度假,正是全年旅行最繁忙的季节,不幸的是变异后的病毒将会藉此传播至世界各地。目前在意大利、丹麦、荷兰、澳大利亚已发现与英国一致的变异后的病毒。
+Presidential Message on the First Birthday of the United States Space Force
 
-这不仅让我们想起2020年初中国农历春节前在武汉爆发的CCP病毒。当疫情爆发后,武汉市虽然实施了封闭管理,但是通往世界各地的航班依旧运行，此举被认为是CCP有意释放病毒并造成全世界大流行的主要原因之一。
+总统美国太空部队一周岁生日贺词
 
-由于CCP刻意隐瞒疫情,当时的世界对病毒是没有任何防备的，所以造成了疫情的失控继而全球范围的经济衰退。如果从武汉的疫情爆发导致的全球病毒大流行是CCP生化武器的第一攻击波,意在打垮世界经济夺取美国大选，那么在其未得逞时会不会在伦敦用更具传染性的病毒发起第二波攻击做殊死搏斗? 现在全世界都对疫苗寄予厚望,天真地认为疫苗可以结束疫情,会不会因为对变异后病毒的更高传染性认识不足,从而导致疫情再次失控? 2020年的春节是武汉乃至全中国人民最悲痛的一个春节,数以万计的生命消失,人们被锁在家中。2020年的圣诞节也将是伦敦乃至世界人民最失望的圣诞节。
+Issued on:  December 20, 2020
 
-CCP苦心经营数十年，精心布局超限战，意图以所有隐密的手段打垮美国，征服世界。CCP病毒就是其终极之战放出的生化武器，就像潘多拉盒子打开就再也关不上了。由爆料革命助力的美国正义力量已经认识到，消灭CCP是解决这场世纪灾难的唯一途径,正义力量已经集结,留给人类的时间已经不多了，希望武汉悲剧不会重演。
+颁布日期：2020年12月20日
 
-（本文纯属个人观点）
+As Commander in Chief, I send my best wishes to the men and women of the United States Space on its first birthday!
 
-澳喜文章:[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+作为总司令，我在美国太空部队成立一周年之际向美国太空军男女将士们致以最诚挚的祝福！
 
-欢迎加入澳喜农场：
-[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![](https://gnews.org/2d884159-dee3-4c0b-b78e-fb0264076bc4)
-+1
+Over 50 years ago, Americans produced one of history’s most triumphant achievements by taking “one small step for man” and “on giant leap for mankind.”  As our beautiful American Flag was planted on the Moon’s surface, it was clear what had brought humans to this new and wondrous frontier – the American spirit.  One year ago, we opened another chapter in the extraordinary history of American leadership in space, and strengthened America’s heritage as the world’s as the world’s greatest arsenal of democracy. Today, I commend the brave Americans who have taken their oath and joined the Space Force’s ranks, and the many more yet to join, for taking another giant leap toward a brighter future for all.
+
+50多年前，美国通过“迈出一小步”实现了“人类一大步”的太空实践，创造了历史上最辉煌的成就。当我们美丽的国旗插在在月球表面上时，人类之所以能来到这片崭新而奇妙的边界—很显然，是美国精神。一年前，我们为美国在太空领域的领导地位开启了不平凡的历史新篇章，并加固了美国作为世界上最伟大的民主武库的传承。今天，我赞扬那些已经宣誓加入太空部队勇敢的美国人，还有更多将要加入的人，他们为所有人的美好的未来又迈进了更大的一步。
+
+Now, we stand at the birth of a new era.  As space exploration and commercialization continues to increase, our Nation’s boundless future will built upon the success of the Space Force and its members.  True to their motto, “Always Above,” the Guardians of the United States Space Force ensure our Nation continues to maintain peace through strength by securing the farthest reaches of humanity.  These 21st century pioneers keep watch around the world by detecting missile launches, providing strategic advantages to our military and intelligence community, and propelling our Armed Forces into the future.
+
+现在，我们迎来了一个新时代的诞生。随着太空探索和商业化的持续扩展，我们国家无限的未来将建立在太空部队及其成员的成就之上。美国太空部队守护者所忠实于的座右铭“永远在上方” 是利用美国的强大的实力来抵达人类最遥远的领域进而能维护到美国的和平。这些21世纪的先驱们通过检测导弹发射，为我们的军事和情报机构提供战略优势，因而对世界保持警惕，并推动我们的武装部队走向未来。
+
+The United States has the most capable military on Earth, and today, we celebrate the Space Force for extending our safety and security beyond it.  May God protect all those who serve our great Nation in uniform, and may He continue to bless the United States of America.
+
+美国拥有世界上最强大的军事力量，今天，我们庆祝太空部队将我们的安全与防御延伸到更广泛的地方。愿上帝保佑所有为我们伟大国家服务的军人，愿上帝永远保佑美利坚合众国！
+
+Semper Supra!
+
+永远在上方！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24055206/WH_20201220_coverphoto.png)
+翻译：【奔腾的长江】校对：【rainbow】编辑：【Isaiah4031】
+
+喜马拉雅玫瑰园出品
+
+0
