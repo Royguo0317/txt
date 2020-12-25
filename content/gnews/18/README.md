@@ -1,29 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【字幕】12/24/2020文贵：平安夜文贵向战友们再次的祝福
-` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/683243/)
+## 全世界和我们一起灭共
+` TINALS` [轉載自GNews](https://gnews.org/zh-hans/683277/)
 
-制作： 【彩虹桥】
+在2020年12月23日的盖特视频中，郭文贵先生说中共国家安全委员会把解决缺粮的问题和防止挤兑排在国家安全最紧急的位置。现在跟非洲国家商量，把非洲的农作物要拿人民币进口，听说非洲一开始都说愿意要人民币，但昨天基本上都拒绝了。中国外交部写了报告，说全世界据了解超过120个国家正在酝酿、商量排查属于中共党员和政府的工作职员所有的名单，包括国有企业。很多国家政府都知道病毒是共产党的生化武器，可怜这全世界因为钱都泯灭了良心，没有了一点智商。全世界集体的暴露让世界和我们一起灭共。
+[视频来源](https://gtv.org/getter/5fe40c9f93a06b22d9e0de05)
+It’s December 23, Brother Miles just finished showering, I just got out of the shower. I’ve been in meetings all day until now, with less than ten minutes of break, for almost twelve hours. It’s great. Before showering, I received a call from a friend in China. Said friend, who may not be a brother-in-arm, told me about the situation in China, and it was just – BIAs, is there food shortage in China? How bad is the food shortage in China? Yesterday afternoon, the National Security Commission of the CCP ranked resolving the food shortage at the top. Preventing large-scale financial security incidents – basically, bank runs – and not letting you withdraw your money has also been deemed a matter of national security. Having no food and not being allowed to withdraw money will lead to large-scale protests and even riots; a riot is when the people speak out peacefully. These have been ranked at the top of national security issues.
 
-尊敬的战友们好！现在正是大家过平安夜的时候，文贵吃了一肚子、喝了一肚子、还抽了雪茄，真是感慨很多..感慨非常的多。就是在大家都过平安夜的时候，突然今天很多战友发给我去年平安夜的，还有过圣诞的视频，真是感慨..真快啊又一年了，在这个平安夜的时候，真是人类遇到了一个前所未有的，最不平安、最无法确定平安的平安夜，很多战友们现在都和我一样，在想着这个平安夜和去年的平安夜之间，发生的一系列的事情。
+12月23号，现在是你们看到的七哥是刚刚淋浴完，刚刚出了淋浴后的。现在你们的七哥，今天从开会到现在大概中间停不超过10分钟，开了将近12小时的会，很好。刚刚在冲浴前，收到了咱们国内的朋友的电话，国内的朋友不一定是战友，听到他讲国内的情况简直是，战友们国内缺粮了吗，缺粮缺到啥程度了，昨天下午中共国家安全委员会，把解决缺粮的问题排在首位，防止金融大规模的治安事件，也就是挤兑，不让你取钱，放在了国家安全的位置，因以上没粮食不让取钱，导致社会的大规模的抗议、上街，甚至所谓的暴乱、骚乱，啥叫暴乱？就是说老百姓和平发声呗，排在国家安全最紧急的位置。
 
-亲爱的兄弟姐妹们，此时此刻大家的心情都是很复杂的，我们想想现在在国内的同胞们，面对着缺粮、银行不能取钱、病毒，各个方面的威胁，就别说平安了。就是都说你连过平安夜都不合法，更不要提过圣诞了也不合法，同时我们现在想到这个世界上所有的人，有多少人..几千万人被感染上共产党的病毒，又有多少人没有任何原因的，找不到敌人的情况下就夺取了家人的生命，还有多少人在疾病和威胁、痛苦之中，挣扎在生死线上。
+They also said that no matter what, do not have any conflicts with Americans in the South China Sea. If there is no other way, just attack Taiwan. Attack Taiwan to solve internal problems. Banks are done for, all the overseas Chinese enterprises that swindle US dollars are done for, and food is running out. They are negotiating with countries in Africa to import their crops using Chinese Yuan. I heard that those African countries were willing to take Chinese Yuan at first, but yesterday they almost all declined. Such a huge change in less than 48 hours, all declined. Chinese nationals cannot study abroad; those abroad are being sent back to China.
 
-我们再次想起当年西周、西欧，包括当时的三帝灭佛和当时耶稣被杀和当时印度灭佛，人类的历史就伴随着无知、愚昧、暴力和追求和平和善良，这就更加的突显了我们爆料革命、新中国联邦，追求正道主义的正确性，越是在平安夜我们要想想，这个世界上有多少人不平安，我们再想想比比那些感染病的人，想一想全世界在济困潦倒中，不能过平安夜的人，甚至没水、没电、没房子的人，我们要感恩上天！感恩万福万神啊！兄弟姐妹们，我们要珍惜啊。
+而且说无论如何在南海，跟美国人都不要有冲突，不行就打台湾，解决内部的问题要打台湾，银行完了吧，所有在国外的所谓的，骗美金的中资企业完了吧，没粮食了吧，现在跟非洲国家商量，把在非洲进行的农作物要拿人民币进，听说非洲一开始都说愿意要人民币，昨天基本上都拒绝了，不到48小时这么大的变化，都拒绝了，中国人不能出国留学，出国留学的被撵回去。
 
-特别是爆料革命、新中国联邦走到了今天，兄弟姐妹们太不容易了，我们有多少在墙内和在各个领域，不能站出来说话的战友们，冒着生命的危险、失去家人、生命、自由和所有财产的危险支持着新中国联邦，我们新中国人追求的目标，参与了爆料革命。此时此刻我就想..真是用什么话都无法形容，对我们的战友，对整个爆料革命、新中国联邦的支持，我们代表人物咱就不一一说了，别说漏了..感慨万千。
+Furthermore, China’s Ministry of Foreign Affairs has, for the first time, written a report to the National Security Commission – so, the Politburo – that says more than 120 countries in the world are planning and discussing the checking of a list of all Chinese Communist Party members and government employees, which may very well trigger the world to be against the CCP and against the overseas Chinese government employees, including people from state-owned Chinese enterprises. The Ministry of Foreign Affairs says that other governments are ready to stand with the US regarding the CCP-controlled state-owned Chinese enterprises. Many countries will investigate their government officials of the past decade, from 2012 until now, concerning where the money from bailouts and loans they received from China went. Most went to kickbacks. I heard that a few bastards in Europe are scared. They are scared. How can they explain this? They took so much kickbacks.
 
-刚才我又再一次的为所有的，爆料革命的战友和家人们祈福，我再一次的为14亿中国同胞祈福，为全世界人祈福！当我们关心美国大选不确定的时候，大家都在担心的时候，大家要想到..这个世界上，真的要担心的事实在是太多了，就这一个病毒、一个疫苗，给每个人都带来了生命的危胁，大家想想在这个时候，还有比这个疫情再对人类有威胁的吗，是对人类有多么的不公平。
+而且中国外交部第一次，给国家安全委员会也就是常委坑写了报告，说全世界据了解超过120个国家，正在酝酿、商量排查属于中共党员和政府的工作职员所有的名单，很有可能引发全世界的，反共、反中国政府的海外的工作人员，包括国有企业，外交部说，各国政府正都准备和美国一起，对中国共产党控制的国有企业，包括很多国家现在要查当时，过去这十多年、2012年到现在，这十多年的当时执政的政府官员，在中国所得到的就救助和贷款去向，大多数是回扣了嘛。据说，欧洲的几个混蛋害怕了，害怕了，咋交代啊？吃那么多回扣。
 
-1926年我记得天花病 世界上死了多少人，中国又死了多少人？然后到了萨斯 ，萨斯在2003年中国死了多少人，再想想..这才多少年啊二战，人类死多少人，所以说人类它必须在巨大的灾难面前，才能一次一次走向文明，一次一次走向真相，才能实现人类追求的那种和平，真正的人们所说出的和平太难了，我们每个人又是这么做的兄弟姐妹们，我们看到了多少不可思议的事情发生，因为贪婪、因为没有信仰，在这个平安夜想想有多少人，不会像我们很多人一样，过着平安和家人相聚，可以自由发声，能吃饱喝好的有选择的日子，我们希望我们真的中国人，从现在开始起在这场灾难当中，真正的找到中国人的方向，让中国人过上没有恐惧，真正的是基本公平，不再为几个家族当奴隶。
+Many governments believe that this virus, they know that this virus is the CCP’s bioweapon. They also know that if they do not hold the CCP accountable, their people won’t accept it. So what to do? Many are suggesting that the Chinese government should place the blame on select employees of the Wuhan lab for leaking the virus intentionally or unintentionally and stop arguing whether this virus came from nature. Just say that it was leaked from the lab unintentionally or leaked by certain people, or that it was leaked to exact revenge on society. They suggest to the CCP to file a case and investigate quickly. The CCP, do you think the CCP’s tricks are good? Not at all, but unfortunately, the entire world has discarded its conscience for money, completely mindless. God has really given us the greatest opportunity to take down the CCP. The world has been exposed and will take down the CCP with us together.
 
-想想今天中国的富豪，去年的时候那些富豪包括马云，海航、许家印、王健林 一个个富豪，那些最牛叉的国企和共产党舔腚的那些大佬们，现在是什么情况？可以说全世界唯我们爆料革命，新中国联邦独好，独家的好，前途无限光明，也在这一年里面我们在战斗当中，我们丢失了很多战友、失去了一些战友，在战斗面前因为贪婪、因为恐惧，失去了自己当初发誓所追求的信仰、目标，这都是正常的，没有这个是不正常的。
+而且很多国家政府都认为这个病毒，都知道，明净的共产党干的生化武器，而且大家都知道，甚至很多人都说，不给共产党究责，将对自己的国民没办法交代啊，怎么办？很多人谏言中国政府应该将这个责任，归咎在武汉实验室部分人员故意泄露，或者是非故意泄露上，不要再纠缠于所谓来自于自然和人了，就说是实验室非故意泄露或部分某些人泄露，或者报复社会泄露，建议中共赶快要立案查处这事，共产党啊共产党，你说他完这个招儿高不高？一点儿都不高，可怜这全世界因为钱都泯灭了良心，没有了一点智商，上天真的是给了我们最大的机会–灭共。让全世界集体的暴露，并和我们一起灭共。
 
-但是在此时此刻今天我工作了一天，一直没有停跟很多人在开会，在这个一天的开会当中我真的是感受到了，这个世界是真不太平，每个人都不知道明年..辛丑年毁发生什么事，更重要的事情是现在国内真的是经济、民生 一塌煳涂，每个人心理都过着..都像揣着好多小兔子一样，不知道明天会发生什么事，咱国内的企业家、我过去的老朋友，这几天太多人跟我联系了，他们都说每个人心理像无数个小兔子一样，忐忑不安，每天不停的划手机，出去怕染病 呆在家面跟家人有时还吵吵嘴，然被洗脑的家人到现在也不能觉醒过来，很多人很痛苦，这个世界上最痛苦的可能真的，就是你先知先觉和觉醒的人，因为太多人被洗脑了，特别是在国内和墙内，我是能理解的，兄弟姐妹们越是这时候越要包容，越是这时候要相信有上天..
+听写：【彩虹桥】翻译：【noraTina】字幕：【Naomi (文花开)】视频解码：【恒久忍耐】编辑：【TINALS】
 
-我今天和家人晚上吃饭的时候和家人聊聊几千年的历史，我非常感动的事情，很多我家人和身边的人，真的和过去不一样，对上天和信仰和宗教和对社会的正义和对生活的感恩，有了完全不同程度的升华，让我特别的兴奋特别的激动，说实话刚才我到洗手间，平静了半天..我是在幸福中感受中，人类是在文明、惨痛的灾难面前，一次又一次的升华。
-
-我希望我们所有的战友在这个时候，真正的能对家人、对朋友，静下心来听他们说话，不要因为你明白了，你就认为家人都明白了，朋友们这是不对的，另外一个平安夜这时我们要学会感恩，真的要相信上天、万福万神在护佑着我们，我们发生的一系列的事情，包括美国总统大选这些事情，一定有天意、有天力在护佑着，正在向世人展示人类，应该去向一个什么样的地方
-
-+2
+喜马拉雅玫瑰园小队出品
+![]()![](https://gnews.org/wp-content/uploads/2020/12/footer_t_new.png)
++4

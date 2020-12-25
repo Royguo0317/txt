@@ -1,44 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普推特视频剑指CCP 中共作秀调查阿里巴巴
-` 恩典农场` [轉載自GNews](https://gnews.org/zh-hans/682974/)
+## 法官裁定在威斯康星州超过20万张拜登的选票是非法的，这是拯救国家的历史性时刻!
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/683034/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24205405/%E6%81%A9%E5%85%B8Gnews-logo-1-4.jpg)
-(編輯/校对：Porsche)
+来源：《美国保守派》
 
-**摘要：**川普总统第一次通过推特发出直接讨伐中共的视频，历数中共对全人类犯下的各种罪行。川普在Barr离职后立即发推明确要任命特别检察官。中共以反垄断之名调查阿里巴巴，左媒集体报道，多方一起演戏，目的是要保住中概股的上市地位。
+翻译：康州盘古农场–-Bruce
 
-**川普总统推特发视频，剑指****CCP**
+校对：康州盘古农场–-黎明的光芒、Robensenna
 
-这部具有专业制作水平的视频，整合了中共成立以来对世界和全人类的主要威胁，包括对美国政治、经济、娱乐、教育等领域的全面渗透，对美国精神、文化和历史的破坏，对美发动的网络和病毒攻击、BLM运动、大选操纵等立体的超限战等内容。视频最后直接使用了CCP Virus字眼。这个视频验证了爆料革命三年来不断揭露的中共3F美国的真相，堪称对中共宣战的视频版檄文。
+审核：康州盘古农场–Truemanman
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24214049/%E5%9B%BE%E7%89%8775.png)
+这是拯救国家的历史性时刻!
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24205617/20201211-104100_U1085_M659612_82ea-1.jpg)
+威斯康星州目前的领导层是否会改变他们的选举人团选票，并将其分配给川普总统，现在超过20万张拜登的选票被贴上了非法的标签，或者总统将不得不继续成为威斯康星州唯一一个为正义而战的人？
 
-**川普总统确认将任命特别检察官调查大选舞弊**
+我们上周报道了威斯康星州最高法院同意总统对无限期禁闭案件的立场。
 
-他说，在看到2020年总统大选中的大面积选民欺诈后，我不同意有人说的“强有力的、快速的、公平的特别调查不是急需的”。这是我们国家历史上最腐败的选举，必须彻查。
+威斯康星州最高法院裁定马克·杰弗逊（Mark Jefferson）和威斯康星州共和党胜诉。
 
-川普总统选择在Barr离开司法部后马上发此推文，暗示任命独立检察官的行动已经没有障碍，将很快实施。
+但是法院指出，正如特朗普总统在另一起诉讼中所寻求的那样，在投票之前每一个案件都必须做出决定。
 
-**阿里巴巴涉嫌垄断被立案调查背后的把戏**
+根据威斯康星州的法律，如果选民根据年龄、身体疾病或体弱多病，自行认定自己 “禁闭”，就可以通过邮寄方式领取选票，绕过威斯康星州的选民身份法。今年秋天，威斯康星州大约有21.5万名选民表示他们被无限期禁闭，比2016年的选举增加了近4倍.法院表示，政府对威斯康星州无限期禁闭的解释是错误的。”县政府书记员不得 “宣布 “任何选民因流行病而无限期禁闭，”法院说。法院进一步指出，”.像COVID-19这样的传染病的存在，其本身并不能使威斯康星州的所有选举人[选民]都有权获得缺席投票.”。
 
-在阿里巴巴即将面临退市命运的时候，却被中共政府以反垄断之名进行调查。目的只有一个，双方演场戏保住阿里巴巴上市地位。具体操作是，中共假装调查，让阿里巴巴拿到美国法庭所需要的证明其不是被中共政府控制的证据；如果该调查证据仍不足够，中共可能对阿里巴巴进行虚假拆分，剥离虚假或不合规业务，组装一个看起来合规的公司，以保住阿里巴巴的上市地位。现在BBC、CNN等左媒大肆宣传该调查，也是为共产党接下来要玩的把戏营造气氛。
+今年威斯康星州有24万个无限期禁闭案件。 大多数是非法的，这些无疑是乔·拜登的选票。一位法官已经同意这些选票是非法的。 共和党人应该消除每一张选票，直到民主党人能够证明其中任何一张都是合法的。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24205651/RTS20USN-e1538102168135-1.jpg)Jack Ma, co-founder and executive chairman of Alibaba Group, waits before a meeting of Russian President Vladimir Putin with representatives of the foreign business community on the sidelines of the Eastern Economic Forum in Vladivostok, Russia September 11, 2018. Valery Sharifulin/TASS Host Photo Agency/Pool via REUTERS – RC186F0C2600
+共和党领导层是否会站出来取消这些选票的资格，并将他们所有的选举人票分配给川普总统，还是总统要继续孤军奋战？
 
-美国人大概想不到，与他们的反垄断调查会真正地拆分被调查公司不同，在中共国，因为财产没有私有化，任何形式的反垄断调查都是演戏给外国人看。被调查公司被调查是假、被拆分也是假，拆分前后的公司仍然属于一个老板—中共。
+原文链接：
 
-如果阿里巴巴这招成功，接下来其他中概股也会采取类似招数，保住上市地位。
 
-**苹果公司受到中共压力正删除数千款游戏应用**
 
-四年前，中共政府规定游戏应用必须获得许可才能发布，不过在苹果公司的默许下，开发者一直能绕过这一规定发布应用。今年，苹果公司在中共国的巨大压力下开始堵住这个漏洞，近期更加快了删除应用的速度。
+> [Breaking: Judge Rules Over 200,000 Biden Votes Are Illegitimate In Wisconsin THIS IS A HISTORIC MOMENT TO SAVE THE COUNTRY!](http://americanconservatives.today/breaking-judge-rules-over-200000-biden-votes-are-illegitimate-in-wisconsin-this-is-a-historic-moment-to-save-the-country/)
 
-**伊朗总统对川普下达绞杀令**
 
-这条来自新浪财经的消息说，伊朗总统预测特朗普“下场”像萨达姆一样被绞死。
 
-#CCP\_is\_terrorist   #TakeDownTheCCP
-
-+1
+0

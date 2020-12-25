@@ -1,41 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【三票专栏】笑话两则祝战友们平安夜快乐
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/682754/)
+## 【皮特纳瓦罗推文1224】要求乔州第二轮选举推迟到2月
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/682752/)
 
-**作者： 三票先生**
+12月23日白宫的重要顾问皮特-纳瓦罗接受美国之声电视网Just the News采访时，建议 “污水池 “乔治亚州将参议院第二轮选举推迟到2月进行。
 
-感谢大家对“三票专栏”的关注，献上笑话两则，祝战友们平安夜快乐，祝墙内的战友们圣诞快乐。让我们一起快乐灭共！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17160329/%E4%B8%89%E7%A5%A8%E4%B8%93%E6%A0%8F-1.png)
-### **笑话一：**
+共和党已经在下届美国参议院中获得了50个席位，民主党占据48个席位。共和党现任参议员Kelly Loeffler和David Perdue与他们各自的民主党挑战者Raphael Warnock和Jon Ossoff的第二轮选举将决定哪个党派控制参议院。
 
-习近平访美前夕，心想我是博士啊，又背了那么多书单，得秀秀英语啊。于是他就让外交部安排了一位英语老师教他几句英语。
+共和党只需要赢得其中一场比赛就可以控制局面，而民主党则需要赢得两场比赛。如果Kamala Harris在1月20日上任副总统，就为民主党控制局面投下决定性的一票。
 
-老师说，一般和美国人见面你可以先问候：how are you. 然后对方会回答：I‘m fine, thanks, and you? 你就回答me too 就可以了。于是习近平就苦练这几句英语。
+乔治亚州州长Brian Kemper和州务卿Brad Raffensperger都是共和党人，却坚持认为该州11月的选举没有重大问题，但他们迫于共和党的关注，最近下令对选票进行签名验证检查。多项挑战乔拜登险胜的诉讼失败了。
 
-访美的时候，奥巴马和米歇尔夫妇在白宫门口迎接他，习近平和奥巴马握手的时候用英语问候他，一紧张把how are you 说成了who are you。奥巴马一想：习主席好幽默啊，我也幽默一下，就回答：I’m Michelle’s husband, and you? 习近平爽朗地高声回答：me too.
+川普结盟的共和党人列举了违规的证据，包括少数县对未清点选票迟到的发现，以及在与民主党人的谈判和解中对选举结果做出的改变。
 
-### **笑话二：**
+纳瓦罗说，他相信延迟选举将有时间审查、处理和修正任何违规行为，并给选民中目前不信任11月选举结果的一大部分保守派带来信心。
 
-习近平访美期间和奥巴马举行会谈，奥巴马说：“习主席，你们中国有官员考察制度，我们美国也有，我随时可以考他们，不信你看”。转头问副总统拜登：“你爸爸妈妈生的，不是你兄弟也不是你姐妹，这个人是谁？”拜登稍想片刻便回答“这个人就是我乔拜登啊。”奥巴马很得意。
 
-习近平访美回来，心想我也得考察考察我身边的官员。于是在一次会议上，他对总理李克强说：“我出个问题考考你，你爸爸妈妈生的，不是你兄弟也不是你姐妹，这个人是谁？”李克强心想习主席怎么会突然问这个问题，一时紧张没想出来。于是他说：我先上个厕所。
 
-在厕所里他想：都说王岐山鬼机灵，他肯定会知道答案。于是他拿出手机给王岐山打电话问了这个问题。王岐山不愧是鬼聪明，立即回答：就是我王岐山啊。
+> Trump adviser Peter Navarro urges 'cesspool' Georgia to delay Senate runoff until February | Just The News [https://t.co/YNQtiFq3Lf](https://t.co/YNQtiFq3Lf)
+> — Peter Navarro (@RealPNavarro) [December 24, 2020](https://twitter.com/RealPNavarro/status/1342257960156876804?ref_src=twsrc%5Etfw)
 
-于是李克强立即回到会议室对习近平说：习主席，我想出来了，这个人是王岐山。
 
-这时只见习近平哈哈哈大笑说：我一猜就知道你肯定会答错，怎么可能是王岐山呢？这个人是乔拜登！
 
-阅读本人更多文章请搜索“三票先生“
+新闻素材和图片来自皮特纳瓦罗推特和
 
-本人更多文章导读
+[https://justthenews.com/politics-policy/elections/trump-adviser-peter-navarro-urges-cesspool-georgia-delay-senate-runoff](https://justthenews.com/politics-policy/elections/trump-adviser-peter-navarro-urges-cesspool-georgia-delay-senate-runoff)
 
-[【三票专栏】川普先生，该出手时就出手 – GNEWS](https://gnews.org/zh-hans/666441/)
 
-[【三票专栏】别了，基辛格 – GNEWS](https://gnews.org/zh-hans/595472/)
 
-[【三票专栏】为何国人唤不醒 – GNEWS](https://gnews.org/zh-hans/617393/)
-
-+2
++1

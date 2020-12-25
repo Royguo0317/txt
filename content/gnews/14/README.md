@@ -1,47 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “再无归途！” 中共官方媒体负责人以被迫害的维吾尔人的命运威胁蓬佩奥
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/683313/)
+## 2020-12-25 康州盘古农场本日新闻热点
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/683330/)
 
-翻译：康州盘古农场 – Antsee-GTV
+新闻采集：康州盘古农场- 台湾阿人
 
-校对：康州盘古农场 – 烟波浩淼
+新闻编辑：康州盘古农场- 轰炸机
 
-编辑：康州盘古农场 – Rose
-![](https://lh3.googleusercontent.com/e6oBVyAh3-uxV6njt4S8XutFmASiOgxsJu8Ycl_ZcO_VC8Q9JPYlvdKuzuZvSSTV_eXuRVYKo9E7K6385HOulfKoev13pPM2PkhLx4HUTGx9CLUP5UyV5xS2zK_gfdf1t4fCqa3LKS8b_UZ3NA)
-***《中国日报》欧洲局局长陈卫华以受到中国共产党迫害的群体（如维吾尔人）同样命运威胁美国国务卿麦克·蓬佩奥（Mike Pompeo），并保证他“肯定不会幸免”。***
+审核：康州盘古农场- Rose
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24234359/%E9%80%9F%E6%8A%A5-2-12.jpg)
+**一、李克强与西荷首相通话推中欧投资协定 法国主张先解决新疆强劳问题**
 
-因《中国日报》由中共政权自己的宣传部拥有和运营，因此陈卫华是中国共产党的喉舌。
+中国国务院总理李克强周三晚与西班牙首相桑切斯的通话中表示，欢迎更多的西班牙优质农产品进口到中国。他还称，中方愿在应对气候变化、绿色发展、“中欧投资协定”的谈判等领域，同欧方推进互利共赢合作。昨晚，中国总理李克强也同荷兰首相吕特通了话，他向吕特表示，中方愿同欧盟共同努力，推动早日达成“中欧投资”协定。
 
-对于蓬佩奥和包括奈杰尔·法拉奇（Nigel Farage）在内的其他中国批评家，陈卫华在美国国务院官方推特帐户下回复了一篇强调“中国共产党如何针对基督徒、穆斯林、佛教徒和法轮功等信仰信奉者开战”的帖子。
+**二、德国证实出现首例变异新冠病毒感染病例**
 
-帖子说：“该党不遗余力”并附图以补充。
+根据德国巴登-符腾堡州卫生部当地时间24日发布的消息，该州证实出现了德国首例变异新冠病毒感染病例。确诊者为一名12月20日从英国经法兰克福机场返回巴符州的女性。目前，她正处于居家隔离中。
 
-作为回应，陈卫华回复：
+**三、 川普总统发推重磅视频，直接说所有一切的幕后黑手都是中共，中共的目的就是颠覆美国。视频称呼新冠为中共病毒（ CCPVirus）**
 
-“蓬佩奥肯定不会幸免。 他将在1月20日一去再无归途。” – 陈卫华（@chenweihua）2020年12月23日
+川普总统发推重磅视频，直接说所有一切的幕后黑手都是中共，中共的目的就是颠覆美国。视频称呼新冠为「#中共病毒 #CCPVirus」,直接说出中共本身就是世界上最致命的病毒！美国是自由世界最后堡垒，如果美国被中共攻陷，则全世界沦陷！
 
+**四、国务卿蓬佩奥正权衡是否将中共当局对维吾尔人的镇压定性为种族灭绝**
 
+几名官员和知情人士透露，美国国务卿蓬佩奥已下令进行审查，以确定中国政府对新疆维吾尔人的镇压是否构成种族灭绝。这提高了人们对蓬佩奥可能会正式指控中国犯下种族灭绝罪的期待。
 
-> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): The Chinese Communist Party’s war on faith targets Christians, Muslims, Buddhists, and Falun Gong devotees alike. The Party spares no one. [pic.twitter.com/62PZGhYe7G](https://t.co/62PZGhYe7G)
-> — Department of State (@StateDept) [December 23, 2020](https://twitter.com/StateDept/status/1341564644520062977?ref_src=twsrc%5Etfw)
+**五、美教育部调查阿拉巴马大学与武汉病毒研究所之间的联系**
 
+美国教育部的首席副法律顾问鲁宾斯坦（Reed Rubinstein）12月22日给阿拉巴马大学校长贝尔（Stuart Bell）发出的一封信中说，该校可能违反了1965年的《高等教育法》。这项法律要求高校向联邦当局全面报告“来自外国的礼物或是与外国签署的合同”。教育部要求该校在30天内上报2015年1月以来来自中国共产党的任何礼物或与其签订的任何合同的全面清单以及任何可能参与其中的人的联系方式。
 
-![](https://lh6.googleusercontent.com/O0l4NelbLwRLvBuDg92l3htIvQwTTlX2cS--XJtECD_LM7TR0pGHFpCONAg1DltzGYGaKPRSxGFdnnMXJYRo3C89NZgO_ysaGW3bpr8jJ0vYypoS3W-VqR2gwk5j6Vv-Zy9GxNJVm5Ngg2mKcw)
-陈咬定对蓬佩奥应像对中国的基督徒，穆斯林，佛教徒和法轮功等同样对待，这构成严重威胁，因（中共）政权一直在[迫害](https://www.wsj.com/articles/beijings-collision-with-christians-11608593160)着上述群体的成员。
+**六、迫于中共压力，苹果公司主动将其中国应用商城中涉及政治敏感领域的应用程序（APP）下架，以维护和中国政府的关系**
 
-当法轮功（一个集中冥想的宗教活动）的修炼者们因其代表的意识形态与完全和彻底服从中共相背时，被（中共）所针对。 信徒们被送到劳改营，在那里他们中成千上万的人因“[被饿，被殴打和用电棍折磨”致死](https://www.newstatesman.com/blogs/the-faith-column/2008/08/falun-gong-party-chinese)，[器官被摘](https://www.reuters.com/article/us-britain-china-rights/china-is-harvesting-organs-from-falun-gong-members-finds-expert-panel-idUSKCN1TI236)。 维吾尔族人遭受着中国共产党的侵略性运动，施以：灌输（洗脑），拘押，并在某些情况下[杀死](https://pittnews.com/article/159614/featured/they-kill-us-here-survivor-of-uyghur-concentration-camps-recounts-torture/)少数族裔。
+“科技透明项目”的报告显示，在苹果中国应用商城中，总共有3257个缺失应用程序。所谓缺失应用程序，指的是在其他国家的苹果应用商城中普遍存在，但是在中国的应用商城中不存在的应用程序。在这些缺失应用程序中，有964个跟政治敏感领域相关，包括宗教、香港、台湾、西藏、安全通信、加密数字货币、VPN、同性恋、社交媒体平台和外国媒体。
 
-中国的基督徒和佛教徒也遭受了[类似](https://www.theguardian.com/world/2019/jan/13/china-christians-religious-persecution-translation-bible)的命运。
+**七、英国政府和欧盟12月24日宣布，双方就脱欧后的自由贸易协议达成一致，英国确定退出欧盟。**
 
-陈已经用类似的言语攻击了几位美国政府官员-[最近的是参议员玛莎·布莱克本](https://thenationalpulse.com/breaking/blackburn-ccp-spat/)（Marsha Blackburn）- 同时推特（Twitter）始终未对此“乱喷”作出干预或评论。
+英国和欧盟就新的脱欧贸易安排达成一致，这距离英国投票脱离欧盟已有四年多时间，勉强避免了可能带来灾难性后果的无协议局面。据报道，脱欧贸易协议将提交给英国首相约翰逊和欧盟委员会主席冯德莱恩进行批准。据华尔街日报称，英国将于12月31日退出欧盟单一市场和关税联盟。
 
-但是，社交媒体平台一直在对保守派进行[严格审查](https://www.newsbusters.org/blogs/techwatch/corinne-weaver/2020/11/30/twitter-censors-trump-trump-campaign-325-times-never)，却与中国军方代表一起参加会议并[雇用与中国共产党有关的人](https://thenationalpulse.com/news/twitter-hires-ccp-fei-fei-li/)。
+**八、法国总统马克龙7天隔离期结束，目前他所有感染症状都已经消失**
 
-原文作者：娜塔丽·温特斯（《国家脉动》高级记者，电视节目制作人）
+法国总统马克龙日前确诊感染新冠病毒后，前往凡尔赛的总统官邸接受隔离。据法国资讯电视台BFMTV最新消息，马克龙现已离开凡尔赛宫。法国官方24日称，马克龙不再有新冠病毒感染症状，可以结束隔离。
 
-发布时间：2020年12月24日
-文章链接： [https://thenationalpulse.com/breaking/chinese-media-chief-threatens-pompeo/](https://thenationalpulse.com/breaking/chinese-media-chief-threatens-pompeo/)
+**九、中共海关总署周四宣布，暂停澳大利亚新南威尔斯州与西澳大利亚的原木进口**
 
-+3
+中国海关总署旗下的”12360海关热线”微信公众号24日发布上述通报，并表示天津、南京、厦门、广州、深圳和黄埔海关近日又在上述两地进口原木中截获活的林木害虫，为防止有害生物传入，依规决定暂停澳大利亚这两地的原木进口。
+
+**十、莫雷回顾支持香港反修例运动事件  称不后悔 自爆家人受威胁曾认为NBA生涯完结**
+
+美国职业篮球联赛（NBA）休斯顿火箭队前总经理莫雷（Daryl Morey）去年10月在推特上传了支持香港反修例运动图片，掀起风波。他近日在受访时回顾该事件坦言，事件爆发后曾担心家人安危，也一度认为自己的NBA生涯就此结束，但他表示不后悔支持香港示威者的决定。
+
+**十一、总统初选失利，台裔杨安泽竞选2022纽约市长**
+
+据纽约竞选财政委员数据显示，虽然尚未正式对外公布，但杨安泽已递件参加民主党明年进行的纽约市长选举。杨安泽以政治素人之姿参与本届总统初选，但起初在爱荷华和新罕布什尔州支持率偏低，随即在2月宣布退出。
+
+0
