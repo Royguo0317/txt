@@ -1,47 +1,99 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【Giselle 专栏】隐藏在暴力美学中的罪恶
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/684086/)
+## 【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（十一）
+` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/684059/)
 
-作者：Giselle
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25075335/dd.jpg)
-图片来源：联影
+翻译：zz17、Jessi/詹茜 ｜ 校对：Tom Cat ｜ 编辑、美工：灭共小宇宙
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25081501/%E7%BA%B3%E7%93%A6%E7%BD%97%E6%8A%A5%E5%91%8A8.jpg)
+往期链接：
 
-12月24日，川普总统在社交媒体推特上发布了一条视频，推文指出，最致命的病毒就是中国共产党，中共没有用枪和炸弹攻击美国，而是用言语、媒体和洗脑宣传，侵略了美国人的思想。中共控制了大部分好莱坞、包括AMC电影院和传奇影业，并向包括华尔街日报和纽约时报在内的主流媒体支付了千万美元。
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（一）](https://gnews.org/zh-hans/669414/)
 
-笔者想在这里单独聊聊好莱坞的暴力美学，与独裁极权杀戮、奴役民众的关系。
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（二）](https://gnews.org/zh-hans/675333/)
 
-我们都知道，这些年好莱坞制造了很多杀戮大片，美其名曰暴力美学。随着这些大片的推广，一系列更血腥、残暴的杀戮游戏，也被电子游戏商推出。而在国内，宣扬暴力、杀戮、未成年少女性爱的文艺作品，更是层出不穷。
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（三）](https://gnews.org/zh-hans/675371/)
 
-从爱泼斯坦的性爱小岛，到有钱人的猎杀真人游戏，再到荷兰学者、作家珍妮特.奥斯巴德视频《我们所知道的世界尽头》里披露的婴儿献祭、虐杀儿童性游戏……这与好莱坞推崇的暴力美学，又有什么联系？
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（四）](https://gnews.org/zh-hans/675720/)
 
-## 暴力美学本身就是一个伪命题
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（五）](https://gnews.org/zh-hans/679037/)
 
-电影中的暴力美学主要是指，通过镜头、画面、音乐等电影语言，将暴力、杀戮以美学的方式呈现，用一些非常诗意的、唯美的场景，美化杀戮带来的对人性阴暗面的思考，以及合理美化暴力行为。使观众适应暴力，接受杀戮，消除对杀戮所带来的不舒适感。比如：杀人跟砍西瓜一样畅快淋漓，头颅被砍飞之后划出一条完美的弧线，鲜血像鲜花一样绽放，电锯割头时喷张的鲜血……
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（六）](https://gnews.org/zh-hans/679024/)
 
-这些令人作呕的动作，在暴力美学的表现之下，让观众大呼刺激、畅快，动作场面的华丽和血腥，快速的剪辑，变换速度的镜头拍摄，大量的细节特写……这些导演技术娴熟，已经把暴力美学演绎到了一个前所未有的血腥高峰。
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（七）](https://gnews.org/zh-hans/681491/)
 
-暴力美学本身就是一个伪命题。
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（八）](https://gnews.org/zh-hans/681582/)
 
-杀戮，本身就意味着灵魂的堕落，何来美感之说？在任何正经的宗教里，杀人都是要进地狱、得到轮回报应的，何来美感之说？
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（九）](https://gnews.org/zh-hans/683896/)
 
-看看现在的电影，从乔纳森.戴米的《沉默的羔羊》，到昆丁.塔伦蒂诺的《杀死比尔》，再到韩国的《老男孩》，无一不是在美化、弘扬暴力。
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（十）](https://gnews.org/zh-hans/684009/)
 
-包括现在风靡全中国的各种玄幻小说，也都是沉溺在杀戮的快感中，除了杀戮毁灭，再也看不到其他属于作者个人的思想。动不动就说，为了你，我可以毁灭全人类，请问，全人类包不包括作者本人、包不包括作者父母和孩子？一部没有人文关怀的文艺作品，只是一具没有灵魂的行尸走肉。
+———————
 
-## 从适应杀戮，到参与杀戮，只有一步之遥
+## Concluding Observations
 
-暴力美学这个概念，不知道是谁提出来的，但绝对不怀好意。它会降低人类的道德水准，因为民众会通过这些影视、文学作品、网络游戏，适应了杀戮。从适应杀戮，到参与杀戮，只有一步之遥。
+## 结论观察
 
-美化暴力这种现象，对整个人类的影响，简直是太糟糕了！包括现在无处不在的杀戮游戏，让玩家沉溺于感官刺激当中，为了杀戮而杀戮，逐渐失去人性，失去灵魂。
+From the findings of this report, it is possible to infer what may well have been a coordinated strategy to effectively stack the election deck against the Trump-Pence ticket. Indeed, the patterns of election irregularities observed in this report are so consistent across the six battleground states that they suggest a coordinated strategy to, if not steal the election, then to strategically game the election process in such a way as to unfairly tilt the playing field in favor of the Biden-Harris ticket.
 
-现在我们可以回答，为什么好莱坞会制造那么多的杀戮大片，并美其名曰“暴力美学”了。文化是政治的上游，这只是独裁极权集团合理美化它们杀戮、奴役民众的前戏。
+根据报告的调查报告，可以推断出有可能制定了一种有效地打击川普–彭斯的选票的协调策略。事实上，观察到的选举违规模式在六个战场州是如此一致，表明这是一个经过协商的策略，即使没有完全盗取大选，也是通过操纵选举从而使选票有利于拜登–哈里斯一方。
 
-因为这些独裁犯罪集团，它们正在杀人取器官，杀孩子、双修儿童、强奸、虐杀儿童；战争贩子、军火贩子，正在谋划下一场杀戮游戏；盘旋在上空的秃鹫，正在盯着地面上垂死挣扎的民众，等待下一场饕餮大餐……
+A major part of this “stuff the ballot box” strategy has been aptly summarized in a complaint filed before the US Supreme Court by the State of Texas:
 
-让公众适应杀戮、美化杀戮，背后的真相是邪恶的独裁奴役思维。玛雅文明的消亡，罗马帝国的灭亡，人类的集体堕落，不是一朝一夕，而是通过这些细微的点滴，一点点让我们道德沦丧，最终自取灭亡。
+在得克萨斯州向美国最高法院提出的申诉文件中正好总结了“塞满选票箱”策略的主要内容:
 
-（文章内容仅代表作者个人观点）
+*Using the COVID-19 pandemic as a justification, [Democrat] government officials [in Georgia, Michigan, Pennsylvania, and Wisconsin] usurped their legislatures’ authority and unconstitutionally revised their state’s election statutes. They accomplished these statutory revisions through executive fiat or friendly lawsuits, thereby weakening ballot integrity.*
 
-+2
+*[在佐治亚州，密歇根州，宾夕法尼亚州和威斯康辛州]的[民主党]政府官员以COVID-19大疫情为借口，篡夺了他们立法机构的权威性地位并且违宪修订了他们州的选举章程。他们通过行政命令或者友好诉讼来完成这些法定修订，从而削弱了选票的公正性。*
+
+According to the Texas complaint – which the Supreme Court sadly refused to hear – the goal of this strategy was to flood the battleground states “with millions of ballots to be sent through the mails, or placed in drop boxes, with little or no chain of custody.” At the same time, Democrat government officials also sought to “weaken the strongest security measures protecting the integrity of the vote signature verification and witness requirements.”
+
+根据得克萨斯州的申诉(不幸地是最高法院拒绝听取该申诉)，这个策略的目标是将“数百万选票通过邮件发送，或放入投票箱，”来涌入战场州，在此过程中几乎没有或根本没有监管链。与此同时，民主党政府官员还试图“削弱最强有力的用来保护选票签名核查和证人要求的公正性的安全措施。”
+
+The findings of the assessment conducted in this report are consistent with the Texas complaint. Key takeaways include:
+
+本报告中的评估结果与得克萨斯州的申诉内容一致。关键要点包括：
+
+· The weight of evidence and patterns of irregularities uncovered in this report are such that it is irresponsible for anyone – especially the mainstream media – to claim that there is “no evidence” of fraud or irregularities.
+
+· 在该报告中大量证据和违规操作表明，任何相关方，尤其是主流媒体，声称“没有证据”证明存在选举欺诈或违规行为是不负责任的。
+
+· The ballots that have come into question because of the identified election irregularities are more than sufficient to swing the outcome in favor of President Trump should even a relatively small portion of these ballots be ruled illegal.
+
+· 如果这些选票中相对较小的一部分被裁定为非法，那么因违规操作而被质疑的选票将足以翻转结果，而有利于川普总统。
+
+· While all six battleground states exhibit most, or all, six dimensions of election irregularities, each state has a unique mix of issues that might be considered “most important.” To put this another way, all battleground states are characterized by the same or similar election irregularities; but, like Tolstoy’s unhappy families, each battleground state is different in its own election irregularity way.
+
+· 所有六个战场州实施了大部分或全部六个违规操作。然而，每个州所特有的违规问题都有可能被视为“最重要”的。换句话说，所有战场州都具有相同或相似的选举违规行为。但是，就像托尔斯泰所说“不幸的家庭各有不同”一样，每个战场州在选举违规方面都有所不同。
+
+· This was theft by a thousand cuts across six dimensions and six battleground states rather than any one single “silver bullet” election irregularity.
+
+· 在六个战场州，选举结果是被六大违规行为所衍生出来的上千种违法操作所窃取，而不是被任何一个所谓“万灵手段”的单一选举违规行为所盗取。
+
+· In refusing to investigate a growing number of legitimate grievances, the anti-Trump media and censoring social media are complicit in shielding the American public from the truth. This is a dangerous game that simultaneously undermines the credibility of the media and the stability of our political system and Republic.
+
+· 在拒绝调查越来越多的合法申诉时，那些反川普媒体和进行言论审查的社交媒体串通一气，来阻挡美国民众了解真相。这是一个危险的游戏，媒体的公信力以及我们的政治制度和共和国的稳定都遭到破坏。
+
+· Those journalists, pundits, and political leaders now participating in what has become a Biden Whitewash should acknowledge the six dimensions of election irregularities and conduct the appropriate investigations to determine the truth about the 2020 election. If this is not done before Inauguration Day, we risk putting into power an illegitimate and illegal president lacking the support of a large segment of the American people.
+
+· 那些参与了为拜登洗白的记者，专家和政治领导人们应该认识到这六大选举违规行为的存在，并进行适当的调查来判断有关2020大选的事实真相。如果在就职典礼日之前没有做到这一点，我们就有可能让一个未被授权的、非法的、并缺乏大部分美国人支持的总统上台。
+
+· The failure to aggressively and fully investigate the six dimensions of election irregularities assessed in this report is a signal failure not just of our anti-Trump mainstream media and censoring social media but also of both our legislative and judicial branches.
+
+· 未能积极全面地调查本报告所评估的六个大选违规行为，这不仅仅是反川普主流媒体和控制舆论的社交媒体的失败，也是我们的立法和司法部门的失败。
+
+· · Republican governors in Arizona and Georgia together with Republican majorities in both chambers of the State Legislatures of five of the six battleground states – Arizona, Georgia, Michigan, Pennsylvania, and Wisconsin148 – have had both the power and the opportunity to investigate the six dimensions of election irregularities presented in this report. Yet, wilting under intense political pressure, these politicians have failed in their Constitutional duties and responsibilities to do so – and thereby failed both their states and this nation as well as their party.
+
+· · 亚利桑那州和佐治亚州的共和党州长，以及亚利桑那州、佐治亚州、密歇根州、宾夕法尼亚州和威斯康辛州，这六个战场州的五个州的参众两院多数，都拥有权力和机会来调查本报告中提出的六法选举违规行为。然而，这些政客屈服于强大的政治压力，没有履行宪法赋予他们的责任和义务，也因此也辜负了他们的州和这个国家以及他们所属的政党。
+
+· · Both State courts and Federal courts, including the Supreme Court, have failed the American people in refusing to appropriately adjudicate the election irregularities that have come before them. Their failures pose a great risk to the American Republic.
+
+· · 州法院和联邦法院,包括最高法院，对摆在他们面前的大选违规行为，都拒绝作出妥当的裁决，已经辜负了美国人民。他们的不作为给美利坚合众国带来了巨大的风险。
+
+更多精彩內容請關注：
+
+- [美國紐約七星會農場（為子孫愛七哥）GTV](https://gtv.org/user/5e986b24b005bd6d929820bd)
+- [歡迎加入農場Discord戰友群](https://discord.gg/2vXAV6G)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19044815/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-2.jpg)
+0

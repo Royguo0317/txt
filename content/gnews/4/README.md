@@ -1,31 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【Raiklin律师推文1225】重磅！美国联邦政府可以起诉各州
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/684118/)
+## 【Raiklin律师推文1225】两周作战计划
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/684168/)
 
-2020年12月25日，在刚刚过去的一个焦虑的平安夜之后，圣诞节清晨， Ivan Raiklin 律师发推一篇Western Journal发表的文章，题为《TWJ独家，爆炸性的新法律备忘录让川普的支持者们在圣诞前夕看到了希望》。文章的作者奥尔森和麦克斯威尼先生撰写了两份备忘录，这篇文章是第二份，它概述了川普竞选团队在未来几周可能采取的法律策略。文章发表前，已被被寄送给了川普总统。
+12月25日，圣诞节的一大早，宪法律师Ivan Raikllin先生转发了一则视频推文，视频是电脑制作的一场类似摔跤或柔道的特殊竞技场上，分别酷似川普总统和乔拜登民主党总统候选人的选手，一开始银发“乔拜登”取得优势，金发“川普”在接连被痛击之后，奇迹般起身回击，无论力度还是使用的特殊技巧，都让乔拜登措不及防，比赛中出现了优劣反复的局面，但是“川普”者最终强有力取胜，获得全场一片喝彩。比赛结束时视频中主持人说，“这里是胜出选手：”Tunnel Trump” 名字和川普总统极为音似。他说，“这是一个一人决定证明自己战胜对手实力的案例”，“这是另一个关于‘生存理论’的历史故事”。
 
-文章从德克萨斯诉宾夕法尼亚州案被最高法院拒绝做出分析，称最高法院放弃了其解决各州实质性争议的宪法义务。
-
-然而，即使在驳回该案的命令中，最高法院也确定了如何成功地提出另一个挑战—即由不同的原告提出。
-
-这就是：如果以前由得克萨斯州提出的同一案件现在由美利坚合众国提出，以国家状告州，我们完全有理由相信，最高法院将被迫审理这一案件并作出有利的裁决。
-
-文章称这个方案将给圣诞节带来巨大的希望。
-
-Ivan Raiklin律师发推时称，这是“新法律备忘录–美国必须起诉各州违反（宪法）第二条第一款Cl2的规定。”
+这个视频无疑是在影射当前美国大选中川普总统和乔拜登候选人激烈的竞选斗争状态，也饱含了美国人对川普总统的支持和对大选结果的美好期待。
 
 
 
-> New Legal Memo- The United States Must sue the States for Violating Art II §1 Cl2 [https://t.co/xLN5Uq88pA](https://t.co/xLN5Uq88pA)
-> — Ivan #ThePlan Raiklin (@Raiklin) [December 25, 2020](https://twitter.com/Raiklin/status/1342439290631028738?ref_src=twsrc%5Etfw)
+> Volume up, watch and listen to the end. This fight is just getting started! [#MerryChristmas](https://twitter.com/hashtag/MerryChristmas?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/k3ftgaLvC3](https://t.co/k3ftgaLvC3) [https://t.co/q0Cg9BcFYC](https://t.co/q0Cg9BcFYC)
+> — Ivan #ThePlan Raiklin (@Raiklin) [December 25, 2020](https://twitter.com/Raiklin/status/1342453429164191745?ref_src=twsrc%5Etfw)
 
 
 
-新闻和图片来源于Ivan Raiklin律师的推文和
-[https://www.westernjournal.com/twj-exclusive-bombshell-new-legal-memo-giving-trump-supporters-hope-christmas-eve/?utm\_source=Twitter&utm\_medium=PostBottomSharingButtons&utm\_campaign=websitesharingbuttons](https://www.westernjournal.com/twj-exclusive-bombshell-new-legal-memo-giving-trump-supporters-hope-christmas-eve/?utm_source=Twitter&amp;utm_medium=PostBottomSharingButtons&amp;utm_campaign=websitesharingbuttons)
+Ivan Raiklin在转推时称：
+
+
+> 放大音量，听一下结尾。这场战斗才刚刚开始! （一切都是刚刚开始！）
 
 
 
-0
+> #圣诞快乐
+
+
+Raiklin律师诙谐轻松的语调怎么这么熟悉？更重要的是，他附上了一份到1月20日前详细的2周作战日程表。
+
+[https://docs.google.com/spreadsheets/d/1-0xSKuUSwGP7Wtn6rWc56yaiz2XvxVqzI1gJ3ekFJ-w/edit#gid=0](https://docs.google.com/spreadsheets/d/1-0xSKuUSwGP7Wtn6rWc56yaiz2XvxVqzI1gJ3ekFJ-w/edit#gid=0)
+
+
+
+新闻和图片来源于Ivan Raiklin律师的推文
+
++1
