@@ -1,65 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统和第一夫人的2020年圣诞节祝词
-` GM31` [轉載自GNews](https://gnews.org/zh-hans/683471/)
+## 乔治亚州公务员于明年起失去“主权豁免权” 可被起诉
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/683482/)
 
-**The President and First Lady’s 2020 Christmas Message**
+草原三省战友之家 文静
+校对 文怡 上传 安歌
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25013951/old.lawliberty.org-2.jpeg)图片来源：Old lawiliberty.org
+由于乔治亚州宪法的改变，政府官员将在2021年1月1日失去主权豁免权，一名选民诚信活动人士已经声称，乔治亚州是根据新准则提起诉讼的第一个州。
 
-**川普总统和第一夫人的2020****年圣诞节祝词**
+马特·布雷纳德在推特上写道：“由于乔治亚州宪法的修改，政府官员将在2021年1月1日以后失去主权豁免权。我正在组织通过民事法庭对任何在决选中没有正确履行职责的当选官员进行个人起诉。”[【1】](https://twitter.com/mattbraynard?s=21)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25014401/twitter11.jpg)图片来源：Twitter
+据《Ballotpedia》报道， “这一措施放弃了乔州的主权豁免，从而允许居民通过高级法院寻求对被发现违反美国宪法、州宪法或州法律的州或地方法律的宣告性修正。在批准宣告性判决后，州高院将能够禁止(阻止)有关的法律或对法令的疑问。乔治亚州放弃主权豁免适用于正在发生或2021年1月1日之后发生的行为。”
 
-First Lady Melania Trump:
+这个提议放弃州和地方主权豁免, 从违法行为正在发生和在2021年1月1日之后发生的案例，允许公民起诉乔治亚州政府部门和其他机构, 及其在上级法院和地方政府授权高级法院命令的州，以及地方官员、雇员停止侵犯乔治亚州的法律、美国宪法, 它要求此类诉讼只能针对乔治亚州，或者在地方政府的案件中针对特定的地方政府。它要求高级法院驳回任何将任何州或地方公职人员或雇员列为被告的此类诉讼，它需维护高等法院基于其他适当的法律或衡平法上的理由，或对高等法院复审的限制而驳回此类诉讼的能力。它禁止任何形式的金钱奖励，包括律师费或诉讼费用，除非得到乔治亚州议会法案的授权。
 
-The President and I want to wish every American a very Merry Christmas.
+它不禁止州议会进一步授予的乔治亚州《宪法》规定的某些其他豁免。但是，它并不放弃《美国宪法》规定的任何豁免。它修改了《乔治亚州宪法》第一条第二节第五款，改为现行案文(a)项，增加新的(b)项。
 
-第一夫人梅兰妮·川普：
+整个宪法修正案草案的副本已存档于遗嘱检验法庭法官的办公室，供公众查阅。
 
-总统先生和我祝每一位美国人圣诞快乐！
+立法机关可以在两院三分之二多数票的情况下，就拟议的修正案进行投票。宪法修正案必须得到大多数选民的批准。
 
-President Trump:
+这项修正案是由共和党众议员安德鲁·韦尔奇提出的。2020年2月20日，州议会一致通过了hr1023法案。2020年6月15日，州参议院一致通过了该法案的修订版，并于2020年6月16日在众议院一致通过。
 
-During the secret season, Christians celebrate the great miracle in human history. More than 2000 years ago, God sent his only begotten son to be with us. An angel announced the birth of our Lord and Savior to humble shepherds. He said: “I bring you good news that will cause great joy for all of the people. Today in the town of David, a savior has been born to you, he is the Messiah the Lord.You will find a baby wrapped in clothes and lying in a manger.” At Christmas, we thank God for sending us his son, to bring peace to our souls and joy to the world.
+布雷纳德说：“他已经为这些法学家筹集到了所需的资金。我把所有数据都给了州政府，他们没有邀请我参加听证会，也没有解释为什么那一切选举数据都是错的。我们发现15700个选民记录与一个政府机构永久的、州外的迁移相匹配，还有数千个选民在另一个州登记。加起来，我们发现有21000人，这还不包括那些非法注册的人。”
 
-川普总统：
+综上所述和大量的事实证明，乔治亚州是此次美国总统大选的摇摆州，也是此次选举出现的欺诈最严重的州之一，而乔州宪法针对“主权豁免权”修正法案的出台，意义非常重大。事实上，川普律师团队掌握了很多关键州的大量选举欺诈的人证、物证，但是自从多州针对选举欺诈的诉讼却举步维艰，其中最重要的原因之一，就是左派势力钻了现有州选举法关于豁免权的空子，为他们以及背后黑手中共的做恶、肆意妄为创造了一定的土壤，据此乔州修正案为公民选民诉讼公职人员、政府部门等起了一个好头，也为今后美国宪法针对选举的合法、公平和民主权力的修复做出了傍样。
 
-在这个神秘的季节里，基督徒们庆祝这个人类历史上最伟大的奇迹。2000多年前，上帝让他的独子来到人间。一位天使向谦卑的牧羊人宣告我们的拯救者的降临，他说：“我报给你们大喜的信息，是关于万民的。今天在大卫的城里，救主为你们而生，就是主基督。你们要找到一个婴孩，包着布，卧在马槽里。”在圣诞节，我们感谢上帝让他的独子来到人间，给我们的灵魂带来了和平，给世界带来了快乐。
+美国的伟大就在于它的司法独立、以及它的民主机制，这也是美国百年来一直不断向前发展而不倒退的原因和基石，我们应该坚信，在新中国联邦对中共所支持的黑恶势力大量犯罪事实的揭露，随着正义力量的觉醒，美国的宪法针对中共作恶的漏洞一定会被堵死，各州针对选举欺诈的法律也一定会迅速修复！中共邪恶企图必定破产！
 
-First Lady Melania Trump:
+[原文链接](https://djhjmedia.com/kari/ga-office-holders-lose-sovereign-immunity-jan-1-2021-can-be-sued-by-citizens/)
 
-As you know, this Christmas is different than years past. We are battling a global pandemic that affected all of us. Yet through this great challenge, we have been inspired by the kindness and courage of citizens across this country. Teachers have worked extraordinarily hard to keep our children learning. Students have delivered groceries to elderly neighbors. Communities have found new ways to stay connected to one another. Courageous first responders, doctors and nurses have given everything to save lives. Brilliant scientists have developed treatments and vaccines.
 
-第一夫人梅兰妮·川普：
 
-大家都知道，这个圣诞节和以往不同。我们正在与影响我们所有人的全球大流行作斗争。这然而，通过这个巨大的挑战，我们受到了整个国家公民的善良和勇气的鼓舞。老师们为了让孩子们继续学习异常艰辛地工作；学生们给老年邻居送食品；小区寻找使大家保持联系的方法；勇敢的急救人员、医生、护士尽了他们最大的努力拯救生命;伟大的科学家们致力于寻找治疗方法并开发疫苗。
-
-President Trump:
-
-We are delivering millions of doses of a safe and effective vaccine that will soon end this terrible pandemic and save millions and millions of lives. We’re grateful for all of the scientists, researches, manufacturing workers and services members who have worked tirelessly to make this breakthrough possible. It is truly a Christmas miracle.
-
-川普总统：
-
-我们正在提供数百万剂安全有效的疫苗，这些疫苗将很快结束这都场可怕的瘟疫，拯救几千万的生命。我们非常感谢这些科学家、科研人员、制造工人和服务人员，我们一起努力实现了这一突破。这是一个真正的圣诞奇迹。
-
-First Lady Melania Trump:
-
-During this wonderful time of year, we also give thanks for the brave and selfless Americans who keep us safe. We are forever grateful for the men and women of law enforcement and the heroes of United States military.
-
-第一夫人梅兰妮·川普：
-
-在一年中这个美好的时光里，我们还要感谢勇敢、无私的美国人保护我们的安全。我们永远感谢执法人员和美国军队的英雄们。
-
-President Trump:
-
-In this holly season, we thank God for his infinite love and we pray that the light of his glory will forever shine on this magnificent land. On behalf of Melania and entire Trump family, we wish you a very merry Christmas and a happy new year.
-
-川普总统：
-
-在这个神圣的节日里，我们感谢上帝无限的爱，我们祈祷他的光芒将永远照耀在这片美丽神奇的土地上！我代表梅兰妮和川普家族祝大家圣诞快乐，新年快乐！
-
-YouTube视频来源：https://www.youtube.com/watch?v=RuP2FD1F6eQ
-
-*翻译：【文灵】 校对：【罗宾 Robin (文宾)#2175】【GM31】字幕：【罗宾 Robin (文宾)#2175】 编辑：【GM31】*
-
-*喜马拉雅玫瑰园小队出品*
-
-+1
+0

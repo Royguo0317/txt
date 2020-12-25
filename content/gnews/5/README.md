@@ -1,47 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】从《共产党宣言》看共产党的邪恶本质（一）
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/683446/)
+## 川普总统和第一夫人的2020年圣诞节祝词
+` GM31` [轉載自GNews](https://gnews.org/zh-hans/683471/)
 
-作者：香草山写作组 Casey（兰兰） 校对/发稿：飞虹
+**The President and First Lady’s 2020 Christmas Message**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23222242/GNEW-GTV-MOS-LOGO-2-1.jpg)
+**川普总统和第一夫人的2020****年圣诞节祝词**
 
+First Lady Melania Trump:
 
+The President and I want to wish every American a very Merry Christmas.
 
-中国共产党认为《共产党宣言》开启了中华民族的伟大复兴征程。习近平在《习近平总书记谈如何学习〈共产党宣言〉》一文中强调：中国共产党是《共产党宣言》精神的忠实传人。广大党员、干部特别是高级干部要学好用好《共产党宣言》等马克思主义经典著作，原原本本学。那现在我们就来原原本本“学习”一下中共“伟大”的治国理念来源——《共产党宣言》。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25012313/Communist-manifesto.png)
-《共产党宣言》是什么？
+第一夫人梅兰妮·川普：
 
-维基百科对词条“共产党宣言”的解释：
+总统先生和我祝每一位美国人圣诞快乐！
 
-是德国哲学家卡尔·马克思和弗里德里希·恩格斯在1848年发表的政治文件。该宣言受共产主义联盟委托，最初于1848年革命爆发时在伦敦出版，后来被确认为世界上最有影响力的政治文件之一。它为阶级斗争（历史的和当时的）以及资本主义和资本主义生产方式的冲突提供了一种分析方法，而**不是对共产主义的潜在未来形式的预测**。
+President Trump:
 
-《共产党宣言》总结了马克思和恩格斯关于社会和政治本质的理论，即用他们自己的话说：“迄今为止所有现存社会的历史就是阶级斗争的历史”。它还简要介绍了他们的思想，即当时的资本主义社会将最终被社会主义所取代。在宣言的最后一段中，作者呼吁“强行推翻所有现有的社会条件”，这是对全世界共产主义革命的呼吁。
+During the secret season, Christians celebrate the great miracle in human history. More than 2000 years ago, God sent his only begotten son to be with us. An angel announced the birth of our Lord and Savior to humble shepherds. He said: “I bring you good news that will cause great joy for all of the people. Today in the town of David, a savior has been born to you, he is the Messiah the Lord.You will find a baby wrapped in clothes and lying in a manger.” At Christmas, we thank God for sending us his son, to bring peace to our souls and joy to the world.
 
-总结一下：《共产党宣言》是关于社会和政治本质的理论，它认为迄今为止所有现存社会的历史就是阶级斗争的历史，社会主义终将取代资本主义。
+川普总统：
 
-百度百科对词条“共产党宣言”的解释：
+在这个神秘的季节里，基督徒们庆祝这个人类历史上最伟大的奇迹。2000多年前，上帝让他的独子来到人间。一位天使向谦卑的牧羊人宣告我们的拯救者的降临，他说：“我报给你们大喜的信息，是关于万民的。今天在大卫的城里，救主为你们而生，就是主基督。你们要找到一个婴孩，包着布，卧在马槽里。”在圣诞节，我们感谢上帝让他的独子来到人间，给我们的灵魂带来了和平，给世界带来了快乐。
 
-《共产党宣言》（又译《共产主义宣言》）是马克思和恩格斯为共产主义者同盟起草的纲领，全文贯穿马克思主义的历史观，马克思主义诞生的重要标志。由马克思和恩格斯执笔写成 。1848年2月21日在伦敦第一次以单行本问世。2月24日，《共产党宣言》正式出版。
+First Lady Melania Trump:
 
-宣言第一次全面系统阐述科学社会主义理论，指出共产主义运动将成为不可抗拒的历史潮流。
+As you know, this Christmas is different than years past. We are battling a global pandemic that affected all of us. Yet through this great challenge, we have been inspired by the kindness and courage of citizens across this country. Teachers have worked extraordinarily hard to keep our children learning. Students have delivered groceries to elderly neighbors. Communities have found new ways to stay connected to one another. Courageous first responders, doctors and nurses have given everything to save lives. Brilliant scientists have developed treatments and vaccines.
 
-显而易见，百度百科对共产党宣言进行了美化和包装。百度百科总是在这种文字的表达上给人一个扑朔迷离的描述。
+第一夫人梅兰妮·川普：
 
-结合两种百科的解释，可以理解为：《共产党宣言》是关于社会和政治本质的理论，它认为：迄今为止所有现存社会的历史就是阶级斗争的历史。这种关于阶级斗争的理论就是全面的系统的科学社会主义理论，这种阶级斗争运动就是共产主义运动，是不可抗拒的历史潮流，也是社会主义取代资本主义的手段。
+大家都知道，这个圣诞节和以往不同。我们正在与影响我们所有人的全球大流行作斗争。这然而，通过这个巨大的挑战，我们受到了整个国家公民的善良和勇气的鼓舞。老师们为了让孩子们继续学习异常艰辛地工作；学生们给老年邻居送食品；小区寻找使大家保持联系的方法；勇敢的急救人员、医生、护士尽了他们最大的努力拯救生命;伟大的科学家们致力于寻找治疗方法并开发疫苗。
 
-中国共产党认为《共产党宣言》开启了中华民族的伟大复兴征程，把《共产党宣言》当做治国方针。那这种伟大复兴征程以及治国方针的实现方式就是以阶级斗争为手段，目的是取代资本主义。
+President Trump:
 
-既然最终目的是取代资本主义，那中共（CCP）必然会向全世界的资本主义国家发起挑战，并试图最终控制和取代它们。现如今以美国为首的资本主义国家因共产党制造的新冠病毒陷入一片混乱之中，不难想象这应该是中国共产党“伟大复兴”征程中的一段。
+We are delivering millions of doses of a safe and effective vaccine that will soon end this terrible pandemic and save millions and millions of lives. We’re grateful for all of the scientists, researches, manufacturing workers and services members who have worked tirelessly to make this breakthrough possible. It is truly a Christmas miracle.
 
+川普总统：
 
+我们正在提供数百万剂安全有效的疫苗，这些疫苗将很快结束这都场可怕的瘟疫，拯救几千万的生命。我们非常感谢这些科学家、科研人员、制造工人和服务人员，我们一起努力实现了这一突破。这是一个真正的圣诞奇迹。
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+First Lady Melania Trump:
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+During this wonderful time of year, we also give thanks for the brave and selfless Americans who keep us safe. We are forever grateful for the men and women of law enforcement and the heroes of United States military.
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+第一夫人梅兰妮·川普：
 
-0
+在一年中这个美好的时光里，我们还要感谢勇敢、无私的美国人保护我们的安全。我们永远感谢执法人员和美国军队的英雄们。
+
+President Trump:
+
+In this holly season, we thank God for his infinite love and we pray that the light of his glory will forever shine on this magnificent land. On behalf of Melania and entire Trump family, we wish you a very merry Christmas and a happy new year.
+
+川普总统：
+
+在这个神圣的节日里，我们感谢上帝无限的爱，我们祈祷他的光芒将永远照耀在这片美丽神奇的土地上！我代表梅兰妮和川普家族祝大家圣诞快乐，新年快乐！
+
+YouTube视频来源：https://www.youtube.com/watch?v=RuP2FD1F6eQ
+
+*翻译：【文灵】 校对：【罗宾 Robin (文宾)#2175】【GM31】字幕：【罗宾 Robin (文宾)#2175】 编辑：【GM31】*
+
+*喜马拉雅玫瑰园小队出品*
+
++1
