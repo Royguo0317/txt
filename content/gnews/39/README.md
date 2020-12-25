@@ -1,99 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（十一）
-` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/684059/)
+## 关于沼泽地思考
+` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/684158/)
 
-翻译：zz17、Jessi/詹茜 ｜ 校对：Tom Cat ｜ 编辑、美工：灭共小宇宙
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25081501/%E7%BA%B3%E7%93%A6%E7%BD%97%E6%8A%A5%E5%91%8A8.jpg)
-往期链接：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25083606/image3-3.png)
+作者：DDT （京都富士会）
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（一）](https://gnews.org/zh-hans/669414/)
+校正：待命（文晓）（京都富士会）
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（二）](https://gnews.org/zh-hans/675333/)
+排版：待命（文晓）（京都富士会）
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（三）](https://gnews.org/zh-hans/675371/)
+美国在这个世界的出现，毫无疑问是上天的决定，建国224年的旅程有如神助，直至成为这个世界上最强大的国家。毫不夸张的说，世界的权力中心在美国，美国是当今世界的代表，决定着未来世界的方向。历史规律有共同点—权力的集中必然导致利益分配的冲突，而围绕世界核心权力的斗争更是复杂多变、激烈无比。美国的建国先贤充分考虑到未来可能遇到的麻烦，在费城制定了一部伟大的宪法，将文艺复兴以来欧洲先贤对社会、人性、宗教、契约等方面的思考和构想付诸实践——美利坚共和国。邦联制或联邦制下的美国造就了独特的权力集中方式，关权力的笼子由一个变成多个，而金钱的集中则无所顾忌，DC区的K街是一个例子，纽约的华尔街是一个例子，加州的硅谷是一个例子，所谓的沼泽地（一说影子政府）也是一个例子。在这些权力的形成过程中，金钱的聚集都起到了关键作用，而沼泽地的权力已经突破了金钱本身，是最让人忌惮的力量。根据郭先生的直播分析，沼泽地并无好坏、善恶等固定标签，所有美国集团权力的核心都可以称得上是美国的沼泽地。不同在于我们能看到一部分，看不到的沼泽地不仅真实存在，还具备能操控整片沼泽地的力量。正是他们造就了沼泽地，培养了沼泽地里的鳄鱼，比如美国的“定海神针”力量、比如“五大家族”、比如“七大组织”。美国的沼泽地就是世界的沼泽地，而操控美国沼泽地的力量就是操控世界的力量。
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（四）](https://gnews.org/zh-hans/675720/)
+2020年是爆料革命的第三年，美国决策层决定让ccp退出历史舞台。不甘心放下权力的ccp与美国沼泽地里喂养的“鳄鱼”勾结策划，开始释放病毒，这是美国历史上首次被生物武器袭击。全美老百姓死伤惨重；ccp又利用美国大选的钟摆效应与民主党左派阴谋操纵大选，这也是美国选举史上首次明目张胆的强奸民意。重创之下，美国的反应让全世界所有国家、政府和人民瞠目结舌，美国的三权应对危机反应迟钝，竟然互相推诿、互相攻击—美国的立国之基已经被动摇！
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（五）](https://gnews.org/zh-hans/679037/)
+正邪大战之中，美国正义力量试图扭转乾坤，将事态限定在法律可控范围内。12月11日，美国最高法院驳回了德州指控诉状，事情似乎变得越来越糟糕。联想到川普总统、朱利安尼先生近期遭到的暗杀，美国老百姓未雨绸缪，开始大规模行使宪法第二修正案权利，武装保卫美国。不满阴云开始集聚，内战似乎不能避免。局势越来越紧张，人们不禁疑惑，美国沼泽地以及幕后力量难道要放弃美国的立国之基、放弃这神选的国度，任由自由民主之火熄灭？
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（六）](https://gnews.org/zh-hans/679024/)
+1963年11月22日，约翰·肯尼迪总统遇刺身亡，全世界都见到了沼泽地及背后操控世界的强大力量，美国人民虽然对这件事耿耿于怀，但因没有出现剥夺人民选择权力的意志和倾向，美国平稳渡过危机。沼泽地和幕后力量力量出现在美国而不是冷战中的苏联也表明了：“他们”也在神之下，不排斥民主并且重视利益。时间拉回到2020年大选后，川普总统仍是政府首脑、武装力量总司令，掌握美国国家行政权力、统帅军方和五角大楼，没有一点迹象表明川普总统会向拜登移交权力，拜登团队至今无法获取行政权和军队指挥权。更加明确了能操控沼泽地的核心权力站在川普总统一方，决定世界未来的力量站在正义一方！郭先生说的大局已定指的就是这个，现在可能只是在按照剧本唱戏。
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（七）](https://gnews.org/zh-hans/681491/)
+在ccp的观念中，人是主导战争的决定性因素。无论对手的力量有多强大、武器有多先进、制度有多完善，只要都是人控制的的，那么一切都不是问题，只要搞定主导的人就好了。因为人不是神，是人就有七情六欲，是人就有弱点，包括他们自己！在这种思想的指挥下，“BGY”美国或者“蓝金黄”美国的策略成为外交政策主导，而且一直延续了40年！美国的部分沼泽地被成功渗透，操控沼泽地的力量却没有察觉。
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（八）](https://gnews.org/zh-hans/681582/)
+2017年，天佑美国！“爆料革命”横空出世，郭先生发动战友开始唤醒美国人民，与ccp及美国同伙展开舆论战、法律战、情报战。到2019年美国总统选战开打前，不受重视、被排斥在美国主流社会外的华裔居然搅起了美国政坛风暴！美国的定海神针们刚刚清醒过来，就发现喂养沼泽地里鳄鱼的主人，居然多了一个ccp，而且已经喂养了40年！神选的国度居然已经开始共产化，这是他们无论如何都不能容忍的！
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（九）](https://gnews.org/zh-hans/683896/)
+目前，我们不清楚这次美国最高法院为什么在大量的证据面前要做出会引发全美人民愤怒的不正常的裁决；也不清楚这是否是“定海神针”们刻意安排，还是他们仍在观察故意不采取任何行动。但我们能清楚的猜到他们现在的想法：“美国利益，集团利益和ccp的命都要”，“鳄鱼会背叛主人，但鳄鱼皮不会”！
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（十）](https://gnews.org/zh-hans/684009/)
+明年的1月20日是新总统上台的法定时间，最后的结果已经定好，区别是选择法律的形式还是选择林肯总统的形式。承认gdollar、gcoin和承认新中国联邦是一件事情，“定海神针”们对此已经达成了共识。后面的发展已经可以预测，也许是郭先生说的以快打结束；也许是“关塔那摩监狱”扩建还未完工，还需等待；也许是郭先生嫌那张鳄鱼皮太小，还多需要几张做摩托服。
 
-———————
-
-## Concluding Observations
-
-## 结论观察
-
-From the findings of this report, it is possible to infer what may well have been a coordinated strategy to effectively stack the election deck against the Trump-Pence ticket. Indeed, the patterns of election irregularities observed in this report are so consistent across the six battleground states that they suggest a coordinated strategy to, if not steal the election, then to strategically game the election process in such a way as to unfairly tilt the playing field in favor of the Biden-Harris ticket.
-
-根据报告的调查报告，可以推断出有可能制定了一种有效地打击川普–彭斯的选票的协调策略。事实上，观察到的选举违规模式在六个战场州是如此一致，表明这是一个经过协商的策略，即使没有完全盗取大选，也是通过操纵选举从而使选票有利于拜登–哈里斯一方。
-
-A major part of this “stuff the ballot box” strategy has been aptly summarized in a complaint filed before the US Supreme Court by the State of Texas:
-
-在得克萨斯州向美国最高法院提出的申诉文件中正好总结了“塞满选票箱”策略的主要内容:
-
-*Using the COVID-19 pandemic as a justification, [Democrat] government officials [in Georgia, Michigan, Pennsylvania, and Wisconsin] usurped their legislatures’ authority and unconstitutionally revised their state’s election statutes. They accomplished these statutory revisions through executive fiat or friendly lawsuits, thereby weakening ballot integrity.*
-
-*[在佐治亚州，密歇根州，宾夕法尼亚州和威斯康辛州]的[民主党]政府官员以COVID-19大疫情为借口，篡夺了他们立法机构的权威性地位并且违宪修订了他们州的选举章程。他们通过行政命令或者友好诉讼来完成这些法定修订，从而削弱了选票的公正性。*
-
-According to the Texas complaint – which the Supreme Court sadly refused to hear – the goal of this strategy was to flood the battleground states “with millions of ballots to be sent through the mails, or placed in drop boxes, with little or no chain of custody.” At the same time, Democrat government officials also sought to “weaken the strongest security measures protecting the integrity of the vote signature verification and witness requirements.”
-
-根据得克萨斯州的申诉(不幸地是最高法院拒绝听取该申诉)，这个策略的目标是将“数百万选票通过邮件发送，或放入投票箱，”来涌入战场州，在此过程中几乎没有或根本没有监管链。与此同时，民主党政府官员还试图“削弱最强有力的用来保护选票签名核查和证人要求的公正性的安全措施。”
-
-The findings of the assessment conducted in this report are consistent with the Texas complaint. Key takeaways include:
-
-本报告中的评估结果与得克萨斯州的申诉内容一致。关键要点包括：
-
-· The weight of evidence and patterns of irregularities uncovered in this report are such that it is irresponsible for anyone – especially the mainstream media – to claim that there is “no evidence” of fraud or irregularities.
-
-· 在该报告中大量证据和违规操作表明，任何相关方，尤其是主流媒体，声称“没有证据”证明存在选举欺诈或违规行为是不负责任的。
-
-· The ballots that have come into question because of the identified election irregularities are more than sufficient to swing the outcome in favor of President Trump should even a relatively small portion of these ballots be ruled illegal.
-
-· 如果这些选票中相对较小的一部分被裁定为非法，那么因违规操作而被质疑的选票将足以翻转结果，而有利于川普总统。
-
-· While all six battleground states exhibit most, or all, six dimensions of election irregularities, each state has a unique mix of issues that might be considered “most important.” To put this another way, all battleground states are characterized by the same or similar election irregularities; but, like Tolstoy’s unhappy families, each battleground state is different in its own election irregularity way.
-
-· 所有六个战场州实施了大部分或全部六个违规操作。然而，每个州所特有的违规问题都有可能被视为“最重要”的。换句话说，所有战场州都具有相同或相似的选举违规行为。但是，就像托尔斯泰所说“不幸的家庭各有不同”一样，每个战场州在选举违规方面都有所不同。
-
-· This was theft by a thousand cuts across six dimensions and six battleground states rather than any one single “silver bullet” election irregularity.
-
-· 在六个战场州，选举结果是被六大违规行为所衍生出来的上千种违法操作所窃取，而不是被任何一个所谓“万灵手段”的单一选举违规行为所盗取。
-
-· In refusing to investigate a growing number of legitimate grievances, the anti-Trump media and censoring social media are complicit in shielding the American public from the truth. This is a dangerous game that simultaneously undermines the credibility of the media and the stability of our political system and Republic.
-
-· 在拒绝调查越来越多的合法申诉时，那些反川普媒体和进行言论审查的社交媒体串通一气，来阻挡美国民众了解真相。这是一个危险的游戏，媒体的公信力以及我们的政治制度和共和国的稳定都遭到破坏。
-
-· Those journalists, pundits, and political leaders now participating in what has become a Biden Whitewash should acknowledge the six dimensions of election irregularities and conduct the appropriate investigations to determine the truth about the 2020 election. If this is not done before Inauguration Day, we risk putting into power an illegitimate and illegal president lacking the support of a large segment of the American people.
-
-· 那些参与了为拜登洗白的记者，专家和政治领导人们应该认识到这六大选举违规行为的存在，并进行适当的调查来判断有关2020大选的事实真相。如果在就职典礼日之前没有做到这一点，我们就有可能让一个未被授权的、非法的、并缺乏大部分美国人支持的总统上台。
-
-· The failure to aggressively and fully investigate the six dimensions of election irregularities assessed in this report is a signal failure not just of our anti-Trump mainstream media and censoring social media but also of both our legislative and judicial branches.
-
-· 未能积极全面地调查本报告所评估的六个大选违规行为，这不仅仅是反川普主流媒体和控制舆论的社交媒体的失败，也是我们的立法和司法部门的失败。
-
-· · Republican governors in Arizona and Georgia together with Republican majorities in both chambers of the State Legislatures of five of the six battleground states – Arizona, Georgia, Michigan, Pennsylvania, and Wisconsin148 – have had both the power and the opportunity to investigate the six dimensions of election irregularities presented in this report. Yet, wilting under intense political pressure, these politicians have failed in their Constitutional duties and responsibilities to do so – and thereby failed both their states and this nation as well as their party.
-
-· · 亚利桑那州和佐治亚州的共和党州长，以及亚利桑那州、佐治亚州、密歇根州、宾夕法尼亚州和威斯康辛州，这六个战场州的五个州的参众两院多数，都拥有权力和机会来调查本报告中提出的六法选举违规行为。然而，这些政客屈服于强大的政治压力，没有履行宪法赋予他们的责任和义务，也因此也辜负了他们的州和这个国家以及他们所属的政党。
-
-· · Both State courts and Federal courts, including the Supreme Court, have failed the American people in refusing to appropriately adjudicate the election irregularities that have come before them. Their failures pose a great risk to the American Republic.
-
-· · 州法院和联邦法院,包括最高法院，对摆在他们面前的大选违规行为，都拒绝作出妥当的裁决，已经辜负了美国人民。他们的不作为给美利坚合众国带来了巨大的风险。
-
-更多精彩內容請關注：
-
-- [美國紐約七星會農場（為子孫愛七哥）GTV](https://gtv.org/user/5e986b24b005bd6d929820bd)
-- [歡迎加入農場Discord戰友群](https://discord.gg/2vXAV6G)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19044815/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-2.jpg)
 0
