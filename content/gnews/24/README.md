@@ -1,47 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “再无归途！” 中共官方媒体负责人以被迫害的维吾尔人的命运威胁蓬佩奥
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/683313/)
+## 12/25日康州农场前沿观察: 灭共大网正全面收拢
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/683318/)
 
-翻译：康州盘古农场 – Antsee-GTV
-
-校对：康州盘古农场 – 烟波浩淼
-
-编辑：康州盘古农场 – Rose
-![](https://lh3.googleusercontent.com/e6oBVyAh3-uxV6njt4S8XutFmASiOgxsJu8Ycl_ZcO_VC8Q9JPYlvdKuzuZvSSTV_eXuRVYKo9E7K6385HOulfKoev13pPM2PkhLx4HUTGx9CLUP5UyV5xS2zK_gfdf1t4fCqa3LKS8b_UZ3NA)
-***《中国日报》欧洲局局长陈卫华以受到中国共产党迫害的群体（如维吾尔人）同样命运威胁美国国务卿麦克·蓬佩奥（Mike Pompeo），并保证他“肯定不会幸免”。***
-
-因《中国日报》由中共政权自己的宣传部拥有和运营，因此陈卫华是中国共产党的喉舌。
-
-对于蓬佩奥和包括奈杰尔·法拉奇（Nigel Farage）在内的其他中国批评家，陈卫华在美国国务院官方推特帐户下回复了一篇强调“中国共产党如何针对基督徒、穆斯林、佛教徒和法轮功等信仰信奉者开战”的帖子。
-
-帖子说：“该党不遗余力”并附图以补充。
-
-作为回应，陈卫华回复：
-
-“蓬佩奥肯定不会幸免。 他将在1月20日一去再无归途。” – 陈卫华（@chenweihua）2020年12月23日
+播音：康州盘古农场–Joyce
+撰文：康州盘古农场–1984文姝
+视频：康州盘古农场–Buzz文珂
+图片素材：康州盘古农场–沧海一粟、海媚
+审片：康州盘古农场–皮亚纳
+审核：康州盘古农场–Truemanman
 
 
 
-> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): The Chinese Communist Party’s war on faith targets Christians, Muslims, Buddhists, and Falun Gong devotees alike. The Party spares no one. [pic.twitter.com/62PZGhYe7G](https://t.co/62PZGhYe7G)
-> — Department of State (@StateDept) [December 23, 2020](https://twitter.com/StateDept/status/1341564644520062977?ref_src=twsrc%5Etfw)
+12月23日国务院官网发布：“中共对美国国家安全的威胁延伸到我们的金融市场，并影响到了美国投资者。”
+联系蓬佩奥国务卿的推文，我们就不难发现，美国正从政治、经济、外交、军事等方面，全面收紧这张灭共大网。
+12月18日蓬佩奥发推表示：随着习近平总书记继续在中国南海进行军民融合，侵犯人权和欺凌行为，我们正在采取行动，通过增加新的实体清单来捍卫美国的国家安全和外交政策利益。国务院网站发布了《美国对与恶意活动有关的中国行为人实施新的制裁》一文，明确了商务部对中共正在其出口管制实体名单中所增加的59家实体名单。
+22日蓬佩奥国务卿推文宣布对中共负责参与镇压少数民族成员、宗教从业人员和人权维护者的官员的签证实施更严格的限制。
+23日美国国务院发推，公布了对中共威胁危害美国金融市场和美国投资者的制裁措施。推后附有美国国务院官方网站刊登的文件链接，对习近平领导下的中共“军民融合”项目与相关研究人员实施了更大范围、更为严厉的打击与法律制裁。在这份实体名单中，几乎所有所谓中共制造的大企业都被囊括其中：中国航空、中国航天科技、南方工业、中国核电、海康威视、中国交通建设、中国船舶、大华科技、讯飞有限公司等等。
+同日另一则推文写道：“中共想要我们拥有的一切，它会不惜一切代价去得到它。”美国人民已经觉醒，正义力量正逐步看清中共邪恶本质，这张灭共大网只会越收越紧！
 
+康州盘古农场报道
 
-![](https://lh6.googleusercontent.com/O0l4NelbLwRLvBuDg92l3htIvQwTTlX2cS--XJtECD_LM7TR0pGHFpCONAg1DltzGYGaKPRSxGFdnnMXJYRo3C89NZgO_ysaGW3bpr8jJ0vYypoS3W-VqR2gwk5j6Vv-Zy9GxNJVm5Ngg2mKcw)
-陈咬定对蓬佩奥应像对中国的基督徒，穆斯林，佛教徒和法轮功等同样对待，这构成严重威胁，因（中共）政权一直在[迫害](https://www.wsj.com/articles/beijings-collision-with-christians-11608593160)着上述群体的成员。
+1.[https://www.state.gov/u-s-investors-are-funding-malign-prc-companies-on-major-indices/](https://www.state.gov/u-s-investors-are-funding-malign-prc-companies-on-major-indices/)
+2.[https://www.state.gov/u-s-imposes-new-sanctions-on-peoples-republic-of-china-actors-linked-to-malign-activities/](https://www.state.gov/u-s-imposes-new-sanctions-on-peoples-republic-of-china-actors-linked-to-malign-activities/)
 
-当法轮功（一个集中冥想的宗教活动）的修炼者们因其代表的意识形态与完全和彻底服从中共相背时，被（中共）所针对。 信徒们被送到劳改营，在那里他们中成千上万的人因“[被饿，被殴打和用电棍折磨”致死](https://www.newstatesman.com/blogs/the-faith-column/2008/08/falun-gong-party-chinese)，[器官被摘](https://www.reuters.com/article/us-britain-china-rights/china-is-harvesting-organs-from-falun-gong-members-finds-expert-panel-idUSKCN1TI236)。 维吾尔族人遭受着中国共产党的侵略性运动，施以：灌输（洗脑），拘押，并在某些情况下[杀死](https://pittnews.com/article/159614/featured/they-kill-us-here-survivor-of-uyghur-concentration-camps-recounts-torture/)少数族裔。
-
-中国的基督徒和佛教徒也遭受了[类似](https://www.theguardian.com/world/2019/jan/13/china-christians-religious-persecution-translation-bible)的命运。
-
-陈已经用类似的言语攻击了几位美国政府官员-[最近的是参议员玛莎·布莱克本](https://thenationalpulse.com/breaking/blackburn-ccp-spat/)（Marsha Blackburn）- 同时推特（Twitter）始终未对此“乱喷”作出干预或评论。
-
-但是，社交媒体平台一直在对保守派进行[严格审查](https://www.newsbusters.org/blogs/techwatch/corinne-weaver/2020/11/30/twitter-censors-trump-trump-campaign-325-times-never)，却与中国军方代表一起参加会议并[雇用与中国共产党有关的人](https://thenationalpulse.com/news/twitter-hires-ccp-fei-fei-li/)。
-
-原文作者：娜塔丽·温特斯（《国家脉动》高级记者，电视节目制作人）
-
-发布时间：2020年12月24日
-文章链接： [https://thenationalpulse.com/breaking/chinese-media-chief-threatens-pompeo/](https://thenationalpulse.com/breaking/chinese-media-chief-threatens-pompeo/)
-
-+3
++1

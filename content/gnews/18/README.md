@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 窃国阴谋（一）中文字幕版
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/683352/)
+## 窃国阴谋（二）中文字幕版
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/683387/)
 
 纽约香草山农场
 
@@ -18,4 +18,4 @@
 
 圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-+1
+0

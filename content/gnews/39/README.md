@@ -1,33 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 司法部宣布：6000多名暴力犯罪分子在莱金德行动中被捕
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/683069/)
+## 圣诞前夜未打出“彭斯牌”，Amistad诉讼彭斯生效
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/683056/)
 
-翻译： 康州盘古农场– Antsee-GTV
+*加拿大多伦多枫叶农场 文来*
 
-校对： 康州盘古农场–Robensenna
+*校对、上传 文怡*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24220006/%E4%B8%8B%E8%BD%BD-4.jpg)图片来源：snopes.com
+DJHJ自媒体12月23日报道，川普总统当日两次转推了人们的在线对话，即提醒副总统迈克·彭斯在周三午夜之前使用他的权力来停止在涉嫌选民欺诈的陷入困境的州的选民资格。现在看来彭斯选择不理会这些权力，这使他成为被阿米斯塔德（Amistad）项目提起诉讼的人。
 
-审核：康州盘古农场–Truemanman
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24220529/%E5%8F%B8%E6%B3%95%E9%83%A8.png)
-该行动始于2020年夏天，旨在打击暴力犯罪
+这是很多人都在关注的故事的一个版本。另一个版本是根据宪法义务规定，星期三根本不是重要的日期，而1月6日才是重要的日期。
 
-该机构称，司法部的“莱金德行动”于今年夏天在美国多个城市展开，以打击暴力犯罪，迄今已逮捕了6,000多人。
+“彭斯牌”理论是这样展开的：彭斯必须在周三午夜之前出示“彭斯牌”，即他需向选举有争议的州寄出信函，声明这些州的选民记数是可疑的。
 
-该部门在周三发布的新闻稿中将这次行动描述为“一项持续、系统、协作的执法计划，联邦执法机构与州和地方执法人员共同打击暴力犯罪。”
+门道专家（Gateway Pundit）对此事进行了报道，并说：“许多专家认为，鉴于各种选举舞弊行为的存在，副总统彭斯有责任否认在2020年选举中选举学院建议的选举人。然后，这将迫使这些州让其立法机关选择他们认为最能代表该州选举结果的人选。”
 
-芝加哥、克利夫兰、底特律、密尔沃基和圣路易斯在此次行动的九座城市之列。
+一位记者说：“川普总统转推了彭斯牌备忘录，其中详细介绍了@Raiklin提出的论点，表明副总统彭斯在今晚午夜之前如何拒绝选民欺诈猖獗的州的选举学院的选票。”
 
-（已卸任的）总检察长比尔·巴尔说：“莱金德行动从九个一直遭受着居高不下的犯罪率、非法持有枪支、非法麻醉品、和非法资金的城市街头清除了暴力罪犯、家庭施虐者、劫车者和毒贩。”
+这是川普在周三晚发布的推文：
 
-在被捕的6,000多人中，约有1,500人被控犯有联邦罪，500人被控杀人罪。 报告还指出，联邦部队缉获了32公斤海洛因和17公斤芬太尼，300公斤甲基苯丙胺和135公斤以上可卡因。
+第一个推文:
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24220031/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE292.png)
+美国，@ VP @Mike\_Pence明天一定要这样做！
 
-“莱金德行动” 以4岁的莱金德•塔莱菲罗（LeGend•Taliferro）的名字命名，他于6月29日上午在密苏里州堪萨斯城的家中睡觉时被枪杀。该部门认为行动取得了巨大的成功。
+为了捍卫我们的宪法免受敌人侵害：
 
-巴尔还说：“当我们发起莱金德行动时，我们的目标是打击和减少暴力犯罪，追究暴力犯罪者的责任，并为这些社区提供应有的安全，以纪念因暴力犯罪被夺走年幼生命的莱金德·塔莱菲罗，毫无疑问，我们实现了这一目标”
+外国：中国，俄罗斯，伊朗，以及
 
-索菲•曼恩              2020年12月24日
+国内：高科技审查制度，MSM审查制度，联邦，州和地方各级的腐败官员！
 
-原文链接： [https://justthenews.com/government/courts-law/doj-announces-successful-results-operation-legend](https://justthenews.com/government/courts-law/doj-announces-successful-results-operation-legend)
+让他知道！
 
-0
+第二个推文:
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24220039/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE293.png)
+@vp先生@Mike\_Pence
+
+您可以在下一个小时内打出彭斯牌，以避免与违反美国宪法的多个州同谋，从而轻松撤销针对您的Amistad 項目诉讼。
+
+**根据Amistad诉讼：**
+
+副总统迈克尔·理查德·彭斯（Michael Richard Pence）是被告，以美国参议院院長的身份被正式起诉。因此，根据宪法和联邦法律，彭斯被认定具有法律义务，负责公开和计算总统和副总统的总统选举人选票。
+
+**评：**在美国大选之后将近两个月的时间里，各种舞弊行为被一一曝光，同时各种沼泽地里的鳄鱼也都现出了原型，参众两院的许多政客也在开始反水川普总统。副总统彭斯这张牌显得极为重要。彭斯现在放弃了23日这次为川普翻盘的机会，似乎使川普变得越来越被动。但彭斯在1月6日还有一次否决选举结果的机会。希望他能做出正确的选择。但无论如何，川普最终一定会赢，因为这是美国民众的意愿，也是天意。
+
+*[原文链接](https://djhjmedia.com/kari/pence-card-not-played-amistad-lawsuit-goes-into-effect-names-pence-others-say-date-not-important/)*
+
+[*点*](https://www.democracydocket.com/wp-content/uploads/sites/45/2020/12/DC-WVA-20201222-complaint.pdf)*[此处阅读完整的116页诉讼](https://www.democracydocket.com/wp-content/uploads/sites/45/2020/12/DC-WVA-20201222-complaint.pdf)*
+
++6
