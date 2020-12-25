@@ -1,41 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共攻击引来美国大觉醒 川普喊话共和党人站出来
-` 恩典农场` [轉載自GNews](https://gnews.org/zh-hans/683172/)
+## 全世界和我们一起灭共
+` TINALS` [轉載自GNews](https://gnews.org/zh-hans/683277/)
 
-(編輯/校对：Porsche)
+在2020年12月23日的盖特视频中，郭文贵先生说中共国家安全委员会把解决缺粮的问题和防止挤兑排在国家安全最紧急的位置。现在跟非洲国家商量，把非洲的农作物要拿人民币进口，听说非洲一开始都说愿意要人民币，但昨天基本上都拒绝了。中国外交部写了报告，说全世界据了解超过120个国家正在酝酿、商量排查属于中共党员和政府的工作职员所有的名单，包括国有企业。很多国家政府都知道病毒是共产党的生化武器，可怜这全世界因为钱都泯灭了良心，没有了一点智商。全世界集体的暴露让世界和我们一起灭共。
+[视频来源](https://gtv.org/getter/5fe40c9f93a06b22d9e0de05)
+It’s December 23, Brother Miles just finished showering, I just got out of the shower. I’ve been in meetings all day until now, with less than ten minutes of break, for almost twelve hours. It’s great. Before showering, I received a call from a friend in China. Said friend, who may not be a brother-in-arm, told me about the situation in China, and it was just – BIAs, is there food shortage in China? How bad is the food shortage in China? Yesterday afternoon, the National Security Commission of the CCP ranked resolving the food shortage at the top. Preventing large-scale financial security incidents – basically, bank runs – and not letting you withdraw your money has also been deemed a matter of national security. Having no food and not being allowed to withdraw money will lead to large-scale protests and even riots; a riot is when the people speak out peacefully. These have been ranked at the top of national security issues.
 
-**摘要：川普推送视频警醒美国民众，中共正在从内部摧毁美国，让我们与国父并肩战斗，捍卫世界的自由。佩洛西欲快速通过包藏陷阱的新议案，被共和党人否决。川普喊话在他支持下胜选的共和党人站出来，反对大选舞弊。美军揭穿中共宣传的驱离美军舰的谎言。**
+12月23号，现在是你们看到的七哥是刚刚淋浴完，刚刚出了淋浴后的。现在你们的七哥，今天从开会到现在大概中间停不超过10分钟，开了将近12小时的会，很好。刚刚在冲浴前，收到了咱们国内的朋友的电话，国内的朋友不一定是战友，听到他讲国内的情况简直是，战友们国内缺粮了吗，缺粮缺到啥程度了，昨天下午中共国家安全委员会，把解决缺粮的问题排在首位，防止金融大规模的治安事件，也就是挤兑，不让你取钱，放在了国家安全的位置，因以上没粮食不让取钱，导致社会的大规模的抗议、上街，甚至所谓的暴乱、骚乱，啥叫暴乱？就是说老百姓和平发声呗，排在国家安全最紧急的位置。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24224226/IMG-20201224-WA0072.jpg)
+They also said that no matter what, do not have any conflicts with Americans in the South China Sea. If there is no other way, just attack Taiwan. Attack Taiwan to solve internal problems. Banks are done for, all the overseas Chinese enterprises that swindle US dollars are done for, and food is running out. They are negotiating with countries in Africa to import their crops using Chinese Yuan. I heard that those African countries were willing to take Chinese Yuan at first, but yesterday they almost all declined. Such a huge change in less than 48 hours, all declined. Chinese nationals cannot study abroad; those abroad are being sent back to China.
 
-**详解川普震撼视频**
+而且说无论如何在南海，跟美国人都不要有冲突，不行就打台湾，解决内部的问题要打台湾，银行完了吧，所有在国外的所谓的，骗美金的中资企业完了吧，没粮食了吧，现在跟非洲国家商量，把在非洲进行的农作物要拿人民币进，听说非洲一开始都说愿意要人民币，昨天基本上都拒绝了，不到48小时这么大的变化，都拒绝了，中国人不能出国留学，出国留学的被撵回去。
 
-2020美国大选表明，中共已经实现了共产主义在60年代就制定的颠覆美国计划。实现的方式就是控制两党或至少一党，控制广播、电视和影视作品的核心职务。他们控制了AMC电影院和传奇影院，控制了华尔街日报和纽约时报，他们给了拜登家族数十亿的好处。
+Furthermore, China’s Ministry of Foreign Affairs has, for the first time, written a report to the National Security Commission – so, the Politburo – that says more than 120 countries in the world are planning and discussing the checking of a list of all Chinese Communist Party members and government employees, which may very well trigger the world to be against the CCP and against the overseas Chinese government employees, including people from state-owned Chinese enterprises. The Ministry of Foreign Affairs says that other governments are ready to stand with the US regarding the CCP-controlled state-owned Chinese enterprises. Many countries will investigate their government officials of the past decade, from 2012 until now, concerning where the money from bailouts and loans they received from China went. Most went to kickbacks. I heard that a few bastards in Europe are scared. They are scared. How can they explain this? They took so much kickbacks.
 
-中共没有用枪炮攻击我们，而是用媒体、言语和洗脑宣传，攻占我们的思想，实现了56年赫鲁晓夫说的“以不开枪的方式战胜美国，从内部摧毁他们”的目标。
+而且中国外交部第一次，给国家安全委员会也就是常委坑写了报告，说全世界据了解超过120个国家，正在酝酿、商量排查属于中共党员和政府的工作职员所有的名单，很有可能引发全世界的，反共、反中国政府的海外的工作人员，包括国有企业，外交部说，各国政府正都准备和美国一起，对中国共产党控制的国有企业，包括很多国家现在要查当时，过去这十多年、2012年到现在，这十多年的当时执政的政府官员，在中国所得到的就救助和贷款去向，大多数是回扣了嘛。据说，欧洲的几个混蛋害怕了，害怕了，咋交代啊？吃那么多回扣。
 
-隐形敌人就是共产主义，最致命的病毒就是CCP。他们利用腐败政客、商人、掌权者和有影响力的人的阴暗面，潜入我们的国家，侵蚀我们的城镇、控制我们的思想。在这条死亡之路上，他们无孔不入，他们在我们中间撒播种子，让我们相信谎言是真相、邪恶是正义、仇恨是爱、分裂是团结，让我们彼此视为敌人，让男性女性相互敌视，让富人与穷人相互敌视，让黑人与白人相互敌视，让左派与右派相互敌视。
+Many governments believe that this virus, they know that this virus is the CCP’s bioweapon. They also know that if they do not hold the CCP accountable, their people won’t accept it. So what to do? Many are suggesting that the Chinese government should place the blame on select employees of the Wuhan lab for leaking the virus intentionally or unintentionally and stop arguing whether this virus came from nature. Just say that it was leaked from the lab unintentionally or leaked by certain people, or that it was leaked to exact revenge on society. They suggest to the CCP to file a case and investigate quickly. The CCP, do you think the CCP’s tricks are good? Not at all, but unfortunately, the entire world has discarded its conscience for money, completely mindless. God has really given us the greatest opportunity to take down the CCP. The world has been exposed and will take down the CCP with us together.
 
-他们抹去我们的历史，诽谤我们的先辈，教育我们的孩子去仇恨他们自己、他们的家庭和国家，破坏我们的信仰，嘲讽我们的价值观，攻击我们的生活方式，甚至要求我们耻辱地下跪。现在，我们看清了他们的真面目，不会再被他们愚弄。
+而且很多国家政府都认为这个病毒，都知道，明净的共产党干的生化武器，而且大家都知道，甚至很多人都说，不给共产党究责，将对自己的国民没办法交代啊，怎么办？很多人谏言中国政府应该将这个责任，归咎在武汉实验室部分人员故意泄露，或者是非故意泄露上，不要再纠缠于所谓来自于自然和人了，就说是实验室非故意泄露或部分某些人泄露，或者报复社会泄露，建议中共赶快要立案查处这事，共产党啊共产党，你说他完这个招儿高不高？一点儿都不高，可怜这全世界因为钱都泯灭了良心，没有了一点智商，上天真的是给了我们最大的机会–灭共。让全世界集体的暴露，并和我们一起灭共。
 
-他们企图触发大重启，结果却引来了大觉醒。美国是捍卫世界自由的最后堡垒，我们是对CCP Virus仅剩的威胁，如果我们沦陷了，全世界就沦陷了。然而我们不会失败！
+听写：【彩虹桥】翻译：【noraTina】字幕：【Naomi (文花开)】视频解码：【恒久忍耐】编辑：【TINALS】
 
-现在是时候了，让我们与国父并肩战斗，唤醒人民的力量，呼唤神的力量。
-
-**国会的共和党议员否决了佩洛西议案**
-
-佩洛西的新议案，违背川普总统原意，没有取消原议案中与美国民众无关的庞大支出，只是新增加一笔天量的补贴支出，如果实施将出现巨额赤字、对美国经济造成巨大的冲击。届时，佩洛西会将所有的责任归咎于川普总统。所以被共和党众议员否决。
-
-**川普喊话共和党人关键时刻站出来！**
-
-他发推说，民意（Everyone）都在问为什么佛罗里达没有共和党参议员站出来反对民主党偷窃大选结果，尤其是川普帮助胜选的8名参议员，这么快就忘本了？既是警告这些在他支持下胜选后不站出来反击大选舞弊的共和党人，如果在1月6日的投票中不站在我这边，以后别想获得我的支持，也是告诉选民，有人只是打着共和党的旗号，但没有履行自己的责任。
-
-**美国第七舰队否认麦凯恩号驱逐舰被中共驱离**
-
-这是美海军第一次官方否认中共军方的口炮。在中共爽约海军会议后，美中双方的默契已经不存在了，中共的口炮随时可能被打脸。
-
-#CCP\_is\_terrorist   #TakeDownTheCCP
-
-+3
+喜马拉雅玫瑰园小队出品
+![]()![](https://gnews.org/wp-content/uploads/2020/12/footer_t_new.png)
++4

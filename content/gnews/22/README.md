@@ -1,29 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 全世界和我们一起灭共
-` TINALS` [轉載自GNews](https://gnews.org/zh-hans/683277/)
+## 2020-12-25 康州盘古农场本日新闻热点
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/683330/)
 
-在2020年12月23日的盖特视频中，郭文贵先生说中共国家安全委员会把解决缺粮的问题和防止挤兑排在国家安全最紧急的位置。现在跟非洲国家商量，把非洲的农作物要拿人民币进口，听说非洲一开始都说愿意要人民币，但昨天基本上都拒绝了。中国外交部写了报告，说全世界据了解超过120个国家正在酝酿、商量排查属于中共党员和政府的工作职员所有的名单，包括国有企业。很多国家政府都知道病毒是共产党的生化武器，可怜这全世界因为钱都泯灭了良心，没有了一点智商。全世界集体的暴露让世界和我们一起灭共。
-[视频来源](https://gtv.org/getter/5fe40c9f93a06b22d9e0de05)
-It’s December 23, Brother Miles just finished showering, I just got out of the shower. I’ve been in meetings all day until now, with less than ten minutes of break, for almost twelve hours. It’s great. Before showering, I received a call from a friend in China. Said friend, who may not be a brother-in-arm, told me about the situation in China, and it was just – BIAs, is there food shortage in China? How bad is the food shortage in China? Yesterday afternoon, the National Security Commission of the CCP ranked resolving the food shortage at the top. Preventing large-scale financial security incidents – basically, bank runs – and not letting you withdraw your money has also been deemed a matter of national security. Having no food and not being allowed to withdraw money will lead to large-scale protests and even riots; a riot is when the people speak out peacefully. These have been ranked at the top of national security issues.
+新闻采集：康州盘古农场- 台湾阿人
 
-12月23号，现在是你们看到的七哥是刚刚淋浴完，刚刚出了淋浴后的。现在你们的七哥，今天从开会到现在大概中间停不超过10分钟，开了将近12小时的会，很好。刚刚在冲浴前，收到了咱们国内的朋友的电话，国内的朋友不一定是战友，听到他讲国内的情况简直是，战友们国内缺粮了吗，缺粮缺到啥程度了，昨天下午中共国家安全委员会，把解决缺粮的问题排在首位，防止金融大规模的治安事件，也就是挤兑，不让你取钱，放在了国家安全的位置，因以上没粮食不让取钱，导致社会的大规模的抗议、上街，甚至所谓的暴乱、骚乱，啥叫暴乱？就是说老百姓和平发声呗，排在国家安全最紧急的位置。
+新闻编辑：康州盘古农场- 轰炸机
 
-They also said that no matter what, do not have any conflicts with Americans in the South China Sea. If there is no other way, just attack Taiwan. Attack Taiwan to solve internal problems. Banks are done for, all the overseas Chinese enterprises that swindle US dollars are done for, and food is running out. They are negotiating with countries in Africa to import their crops using Chinese Yuan. I heard that those African countries were willing to take Chinese Yuan at first, but yesterday they almost all declined. Such a huge change in less than 48 hours, all declined. Chinese nationals cannot study abroad; those abroad are being sent back to China.
+审核：康州盘古农场- Rose
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24234359/%E9%80%9F%E6%8A%A5-2-12.jpg)
+**一、李克强与西荷首相通话推中欧投资协定 法国主张先解决新疆强劳问题**
 
-而且说无论如何在南海，跟美国人都不要有冲突，不行就打台湾，解决内部的问题要打台湾，银行完了吧，所有在国外的所谓的，骗美金的中资企业完了吧，没粮食了吧，现在跟非洲国家商量，把在非洲进行的农作物要拿人民币进，听说非洲一开始都说愿意要人民币，昨天基本上都拒绝了，不到48小时这么大的变化，都拒绝了，中国人不能出国留学，出国留学的被撵回去。
+中国国务院总理李克强周三晚与西班牙首相桑切斯的通话中表示，欢迎更多的西班牙优质农产品进口到中国。他还称，中方愿在应对气候变化、绿色发展、“中欧投资协定”的谈判等领域，同欧方推进互利共赢合作。昨晚，中国总理李克强也同荷兰首相吕特通了话，他向吕特表示，中方愿同欧盟共同努力，推动早日达成“中欧投资”协定。
 
-Furthermore, China’s Ministry of Foreign Affairs has, for the first time, written a report to the National Security Commission – so, the Politburo – that says more than 120 countries in the world are planning and discussing the checking of a list of all Chinese Communist Party members and government employees, which may very well trigger the world to be against the CCP and against the overseas Chinese government employees, including people from state-owned Chinese enterprises. The Ministry of Foreign Affairs says that other governments are ready to stand with the US regarding the CCP-controlled state-owned Chinese enterprises. Many countries will investigate their government officials of the past decade, from 2012 until now, concerning where the money from bailouts and loans they received from China went. Most went to kickbacks. I heard that a few bastards in Europe are scared. They are scared. How can they explain this? They took so much kickbacks.
+**二、德国证实出现首例变异新冠病毒感染病例**
 
-而且中国外交部第一次，给国家安全委员会也就是常委坑写了报告，说全世界据了解超过120个国家，正在酝酿、商量排查属于中共党员和政府的工作职员所有的名单，很有可能引发全世界的，反共、反中国政府的海外的工作人员，包括国有企业，外交部说，各国政府正都准备和美国一起，对中国共产党控制的国有企业，包括很多国家现在要查当时，过去这十多年、2012年到现在，这十多年的当时执政的政府官员，在中国所得到的就救助和贷款去向，大多数是回扣了嘛。据说，欧洲的几个混蛋害怕了，害怕了，咋交代啊？吃那么多回扣。
+根据德国巴登-符腾堡州卫生部当地时间24日发布的消息，该州证实出现了德国首例变异新冠病毒感染病例。确诊者为一名12月20日从英国经法兰克福机场返回巴符州的女性。目前，她正处于居家隔离中。
 
-Many governments believe that this virus, they know that this virus is the CCP’s bioweapon. They also know that if they do not hold the CCP accountable, their people won’t accept it. So what to do? Many are suggesting that the Chinese government should place the blame on select employees of the Wuhan lab for leaking the virus intentionally or unintentionally and stop arguing whether this virus came from nature. Just say that it was leaked from the lab unintentionally or leaked by certain people, or that it was leaked to exact revenge on society. They suggest to the CCP to file a case and investigate quickly. The CCP, do you think the CCP’s tricks are good? Not at all, but unfortunately, the entire world has discarded its conscience for money, completely mindless. God has really given us the greatest opportunity to take down the CCP. The world has been exposed and will take down the CCP with us together.
+**三、 川普总统发推重磅视频，直接说所有一切的幕后黑手都是中共，中共的目的就是颠覆美国。视频称呼新冠为中共病毒（ CCPVirus）**
 
-而且很多国家政府都认为这个病毒，都知道，明净的共产党干的生化武器，而且大家都知道，甚至很多人都说，不给共产党究责，将对自己的国民没办法交代啊，怎么办？很多人谏言中国政府应该将这个责任，归咎在武汉实验室部分人员故意泄露，或者是非故意泄露上，不要再纠缠于所谓来自于自然和人了，就说是实验室非故意泄露或部分某些人泄露，或者报复社会泄露，建议中共赶快要立案查处这事，共产党啊共产党，你说他完这个招儿高不高？一点儿都不高，可怜这全世界因为钱都泯灭了良心，没有了一点智商，上天真的是给了我们最大的机会–灭共。让全世界集体的暴露，并和我们一起灭共。
+川普总统发推重磅视频，直接说所有一切的幕后黑手都是中共，中共的目的就是颠覆美国。视频称呼新冠为「#中共病毒 #CCPVirus」,直接说出中共本身就是世界上最致命的病毒！美国是自由世界最后堡垒，如果美国被中共攻陷，则全世界沦陷！
 
-听写：【彩虹桥】翻译：【noraTina】字幕：【Naomi (文花开)】视频解码：【恒久忍耐】编辑：【TINALS】
+**四、国务卿蓬佩奥正权衡是否将中共当局对维吾尔人的镇压定性为种族灭绝**
 
-喜马拉雅玫瑰园小队出品
-![]()![](https://gnews.org/wp-content/uploads/2020/12/footer_t_new.png)
-+4
+几名官员和知情人士透露，美国国务卿蓬佩奥已下令进行审查，以确定中国政府对新疆维吾尔人的镇压是否构成种族灭绝。这提高了人们对蓬佩奥可能会正式指控中国犯下种族灭绝罪的期待。
+
+**五、美教育部调查阿拉巴马大学与武汉病毒研究所之间的联系**
+
+美国教育部的首席副法律顾问鲁宾斯坦（Reed Rubinstein）12月22日给阿拉巴马大学校长贝尔（Stuart Bell）发出的一封信中说，该校可能违反了1965年的《高等教育法》。这项法律要求高校向联邦当局全面报告“来自外国的礼物或是与外国签署的合同”。教育部要求该校在30天内上报2015年1月以来来自中国共产党的任何礼物或与其签订的任何合同的全面清单以及任何可能参与其中的人的联系方式。
+
+**六、迫于中共压力，苹果公司主动将其中国应用商城中涉及政治敏感领域的应用程序（APP）下架，以维护和中国政府的关系**
+
+“科技透明项目”的报告显示，在苹果中国应用商城中，总共有3257个缺失应用程序。所谓缺失应用程序，指的是在其他国家的苹果应用商城中普遍存在，但是在中国的应用商城中不存在的应用程序。在这些缺失应用程序中，有964个跟政治敏感领域相关，包括宗教、香港、台湾、西藏、安全通信、加密数字货币、VPN、同性恋、社交媒体平台和外国媒体。
+
+**七、英国政府和欧盟12月24日宣布，双方就脱欧后的自由贸易协议达成一致，英国确定退出欧盟。**
+
+英国和欧盟就新的脱欧贸易安排达成一致，这距离英国投票脱离欧盟已有四年多时间，勉强避免了可能带来灾难性后果的无协议局面。据报道，脱欧贸易协议将提交给英国首相约翰逊和欧盟委员会主席冯德莱恩进行批准。据华尔街日报称，英国将于12月31日退出欧盟单一市场和关税联盟。
+
+**八、法国总统马克龙7天隔离期结束，目前他所有感染症状都已经消失**
+
+法国总统马克龙日前确诊感染新冠病毒后，前往凡尔赛的总统官邸接受隔离。据法国资讯电视台BFMTV最新消息，马克龙现已离开凡尔赛宫。法国官方24日称，马克龙不再有新冠病毒感染症状，可以结束隔离。
+
+**九、中共海关总署周四宣布，暂停澳大利亚新南威尔斯州与西澳大利亚的原木进口**
+
+中国海关总署旗下的”12360海关热线”微信公众号24日发布上述通报，并表示天津、南京、厦门、广州、深圳和黄埔海关近日又在上述两地进口原木中截获活的林木害虫，为防止有害生物传入，依规决定暂停澳大利亚这两地的原木进口。
+
+**十、莫雷回顾支持香港反修例运动事件  称不后悔 自爆家人受威胁曾认为NBA生涯完结**
+
+美国职业篮球联赛（NBA）休斯顿火箭队前总经理莫雷（Daryl Morey）去年10月在推特上传了支持香港反修例运动图片，掀起风波。他近日在受访时回顾该事件坦言，事件爆发后曾担心家人安危，也一度认为自己的NBA生涯就此结束，但他表示不后悔支持香港示威者的决定。
+
+**十一、总统初选失利，台裔杨安泽竞选2022纽约市长**
+
+据纽约竞选财政委员数据显示，虽然尚未正式对外公布，但杨安泽已递件参加民主党明年进行的纽约市长选举。杨安泽以政治素人之姿参与本届总统初选，但起初在爱荷华和新罕布什尔州支持率偏低，随即在2月宣布退出。
+
+0

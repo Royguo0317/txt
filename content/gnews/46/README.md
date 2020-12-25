@@ -1,26 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【蓬佩奥推文1224】妻子没染中共病毒
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/682822/)
+## 英国脱欧终达成 欧盟终究要解体？
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/682902/)
 
-12月24日彭博社高级外国政策记者Nicholas Wadhams发不实推文称，称蓬佩奥国务卿的妻子Jennifer Jacobs已确诊中共病毒。12月16日开始隔离，此前一天曾参加白宫圣诞晚会。蓬佩奥国务卿回复时，该推文已经被删，只留下截图证据。他说：
+加拿大多伦多枫叶农场 向真
 
+校对 上传 辛丑
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24202512/b-2.jpg)图片来自 Financial Times
+2020年12月24日，英国脱欧协议最终达成，并已递交给英国首相约翰逊和欧盟主席冯德莱恩批准。当日下午，英国和欧盟正式宣布这一消息，英国首相约翰逊说, “我们拿回了对法律和前途的控制权”。
 
-> 很高兴看到这条明显的虚假信息—已经被删除了。
-> 
-> 我不静待他的道歉。（言外之意，他应该道歉，但如果是人品问题，也等不到真诚的道歉。）
+英国是欧洲共同体的倡导者。二战后邱吉尔提出，英法七年战争以及两次世界大战，都爆发自欧洲，而且欧洲都是核心战场，伤亡损失惨重，建立一个统一的欧洲有利于和平。
 
+为什么英国要退出欧盟呢？《费加罗报》曾撰文认为，英国退出欧盟后，伦敦可以成为世界贸易组织的总部所在地，并与印度以及亚洲和拉美的一些新兴国家签订新的贸易协议。他们还认为，英国与英联邦成员的特殊关系也会为退出欧盟后的英国带来光明的贸易前景。其次，英国对欧盟的归属感并不强，始终不用欧元，而是继续使用英镑。再次，英国每周向欧盟纯上交会费1.56亿英磅，但在欧盟的地位一度非常尴尬和边缘化。英国加入欧盟后，分配给英国的难民大量进入，让民众非常不满，大部分支持脱欧的人都希望通过脱欧减少难民。
 
+次贷危机以后，世界经济进入下行期，欧盟的债务率急剧上升，即使欧盟内部，各国也采取行政和财政手段推动本国企业回归，目的是整固本国财政的需求，而英国在欧盟内并不具备低成本竞争优势，这也是英国脱欧的众多原因之一。
 
+有学者认为，欧盟不是统一主权的国家，内部发展极不均衡，各国财政独立，却实行统一的财政赤字管理，一旦遭遇经济危机，欧盟很容易解体。
 
-> Good to see this tweet — with patently false information — was deleted. 
-> 
-> I won’t hold my breath for an apology [@nwadhams](https://twitter.com/nwadhams?ref_src=twsrc%5Etfw) [@business](https://twitter.com/business?ref_src=twsrc%5Etfw) [pic.twitter.com/u7gun6oE31](https://t.co/u7gun6oE31)
-> — Mike Pompeo (@mikepompeo) [December 25, 2020](https://twitter.com/mikepompeo/status/1342263685063069696?ref_src=twsrc%5Etfw)
+当前，中共病毒重创欧盟经济，欧盟各国的国内矛盾和欧盟成员国之间的矛盾不断积聚。民主国家的内部矛盾一般都是向外转移，这也是一次和二次大战爆发的主要原因。
 
+一个分裂的欧洲，往往变成一个火药桶。
 
-
-新闻和图片来自蓬佩奥先生推文
+[https://www.epochtimes.com/gb/20/12/24/n12643316.htm](https://www.epochtimes.com/gb/20/12/24/n12643316.htm)
 
 +1

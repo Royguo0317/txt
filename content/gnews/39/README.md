@@ -1,27 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统拒绝签署新的中共病毒救济法案
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/682972/)
+## 司法部宣布：6000多名暴力犯罪分子在莱金德行动中被捕
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/683069/)
 
-俄罗斯莫斯科喀秋莎农场 文强
+翻译： 康州盘古农场– Antsee-GTV
 
-校对上传 银河
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24205719/imagesSMTJHPZN.jpg)图片来源：France24.com
-12月21日，美国参议院和众议院先后通过了9千亿美元的大规模中共病毒（Covid-19）纾困法案。该法案的长度达到惊人的5893页，在国会表决时需要用推车运送给议员们审阅。但给予议员们审阅的时间极其短暂，因此几乎没人仔细阅读过该法案。
+校对： 康州盘古农场–Robensenna
 
-12月22日，该法案递送给了美国总统川普审批。随后，川普总统在推特上发布视频，认为这一长达五千多页的复杂法案实际上是为外国游说和特殊利益集团筹集大量资金，同时却将最低限度的资金用于需要援助的美国人民，虽然被称为“新冠病毒救济法案”，却几乎没有多少跟疫情救济相关的内容。他要求国会修改这项法案，大幅提高给美国人的现金救济，去除“不必要条款”。并表示，下一届政府需要该法案，而他有可能还是下届政府的总统。
+审核：康州盘古农场–Truemanman
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24220529/%E5%8F%B8%E6%B3%95%E9%83%A8.png)
+该行动始于2020年夏天，旨在打击暴力犯罪
 
-有多位消息人士也爆出该法案大规模撒钱给外国政府、非法移民以及和经济救济不相关的项目，与救济美国人民关系有限，并且其中暗藏有废除川普总统军权的条款。
+该机构称，司法部的“莱金德行动”于今年夏天在美国多个城市展开，以打击暴力犯罪，迄今已逮捕了6,000多人。
 
-参考链接：
+该部门在周三发布的新闻稿中将这次行动描述为“一项持续、系统、协作的执法计划，联邦执法机构与州和地方执法人员共同打击暴力犯罪。”
 
-[https://www.dw.com/zh/特朗普拒签新冠纾困方案-会有何种后果/a-56043058](https://www.dw.com/zh/特朗普拒签新冠纾困方案-会有何种后果/a-56043058)
+芝加哥、克利夫兰、底特律、密尔沃基和圣路易斯在此次行动的九座城市之列。
 
-[https://www.bannedbook.org/bnews/cnnews/20201223/1453474.html](https://www.bannedbook.org/bnews/cnnews/20201223/1453474.html)
+（已卸任的）总检察长比尔·巴尔说：“莱金德行动从九个一直遭受着居高不下的犯罪率、非法持有枪支、非法麻醉品、和非法资金的城市街头清除了暴力罪犯、家庭施虐者、劫车者和毒贩。”
 
-[https://www.himalayawashingtondc.org/2020/12/24/【文字版】路德时评](https://www.himalayawashingtondc.org/2020/12/24/【文字版】路德时评)
+在被捕的6,000多人中，约有1,500人被控犯有联邦罪，500人被控杀人罪。 报告还指出，联邦部队缉获了32公斤海洛因和17公斤芬太尼，300公斤甲基苯丙胺和135公斤以上可卡因。
 
-[https://www.aboluowang.com/2020/1223/1537296.html](https://www.aboluowang.com/2020/1223/1537296.html)
+“莱金德行动” 以4岁的莱金德•塔莱菲罗（LeGend•Taliferro）的名字命名，他于6月29日上午在密苏里州堪萨斯城的家中睡觉时被枪杀。该部门认为行动取得了巨大的成功。
 
-+1
+巴尔还说：“当我们发起莱金德行动时，我们的目标是打击和减少暴力犯罪，追究暴力犯罪者的责任，并为这些社区提供应有的安全，以纪念因暴力犯罪被夺走年幼生命的莱金德·塔莱菲罗，毫无疑问，我们实现了这一目标”
+
+索菲•曼恩              2020年12月24日
+
+原文链接： [https://justthenews.com/government/courts-law/doj-announces-successful-results-operation-legend](https://justthenews.com/government/courts-law/doj-announces-successful-results-operation-legend)
+
+0

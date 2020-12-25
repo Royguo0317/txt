@@ -1,97 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP病毒来源，为什么说病毒是人造的，奇怪的福林酶切位点
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/683379/)
+## 美国国务院报告:中国渔业人口贩卖最为严重
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/683553/)
 
-作者：康州盘古农场–轰炸机
+台湾农场(筹备) Amitofu
 
-审核：康州盘古农场–Truemanman
+美国国务院12月23日报告表示，为了解决海产渔业的人口贩运问题，美国国务院和国家海洋暨大气总署（NOAA）已根据第3563条向国会提交了一份联合报告，标题为“人口贩运海产渔业供应链”。 在2020财年国防授权法（PL 116-92）。 该报告指出对渔业捕捞和海产加工业存在人口贩运的国家，提供了详细的说明、风险评估和建议。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25010824/chinafish-400x225.jpg)圖片來源:路透社
+捕渔业本身就存在人口贩运的高风险，被认为是有危险的工作，通常严重依赖低技能的移工，因容易被取代的劳动力而有人口贩运的问题。捕渔业本属孤独行业，船只通常在海上航行数月或数年，渔工受虐待无法逃逸、常因为情绪和身体虐待而导致死亡，除了生活条件差也时常超时工作，受害者甚至被要求支付招聘费和签署债务合同等诈骗性的招募方式诱拐，也常使捕渔业人口贩运受害者面临无薪工作或收入低下的问题。而自由公民渔工权利和法律保护薄弱的国家更因为腐败、犯罪、暴力、政治不稳定、贫困程度高，而增加了人口贩运的风险。
 
-闫丽梦博士近日发推，指出新冠病毒（CCP病毒），是人工重组的生化武器，它由舟山蝙蝠病毒的骨架，高致病的福林酶切位点，非典SARS的刺突蛋白的核心部分组成。
+报告指出中国拥有世界上最大的捕鱼船队，在公海和世界各国的专属经济区活动进行大量非法、非经授权和不受管制的捕鱼作业，船上大多数船员来自印度尼西亚和菲律宾的渔工，美国政府目前打击海产渔业的人口贩运提出了十项建议，包括立法和行政。建议列入名单的国家进行外联，促进全球产品追溯来源。国土安全部、司法部、劳工部、各州和财政部将连手采取行动，确保强迫压榨劳工生产的产品不会进入美国市场，以解决海鲜供应链中的人口贩运问题。本文仅代表个人立场
 
-本文要解释奇怪的福林酶切位点，首先要普及下面三个知识点，大家看过之后便明白为什么福林酶切位点的序列部分是人造出来的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25002054/1-231.png)
-**DNA****与****碱基**
-
-DNA结构：
-
-1、DNA分子是由两条互相平行的脱氧核苷酸长链盘绕而成的。
-
-2、DNA分子中的脱氧核糖和磷酸交替连接，排在外侧，构成基本骨架，碱基排列在内侧。
-
-3、两条链上的碱基通过氢键相结合，形成碱基对，**它的组成有一定的规律**。
-
-下文中的碱基是一类含氮碱基，在生物学上通常简单地称之碱基。是在DNA和RNA中，起配对作用的部分。
-
-简单的说，DNA中的碱基就相当于一道墙中的水泥，是组成墙不可缺少的结构元素。想分开砖就要找到水泥，想分开DNA就要找到那一段碱基。（这样解释只为便于读者理解）
-
-**重要点：DNA发展至今，每个物种的DNA构成，遗传进化，都有一定的自然规律。**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25001719/2-46.png)
-**基因编辑-酶切位点（****Restriction Enzyme cutting site）**
-
-人类发现DNA之后就要尝试编辑改造DNA，这就是基因编辑，其中编辑就要把DNA切开然后进行拼凑，找到如何有效的切开DNA，那个连接点（碱基序列）就是酶切位点。（这样解释只为便于读者理解）
-
-酶切位点是DNA上一段碱基（上面说的结构元素）的特定序列，限制性内切酶能够识别出这个序列并在此将DNA序列切成两段。
-
-如果还不懂，请参考植物嫁接，意思相近。把A切成几段与B或C进行结合，或把A中的一小部分放到C中间，有多种编辑方法。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25001813/3-28.png)
-**DNA密码子表****中C****GG-A****r****g ****很稀有**
-
-随着计算生物学和基因组学的兴起，现今可在DNA水平上发现大多数基因，因此DNA密码子表变得愈加有用。人们总结了规律，由什么元素可以产生什么元素，有几种方式，其中有容易出现的（常见），其中有不容易出现的（稀有），这种规律叫密码子偏爱性。
-
-解释，用掉宝率来形容吧，打什么BOSS出什么物品，什么好出什么稀有，都是要测试的，比如打蝙蝠CGG BOSS掉6种物品，打100次出1次R物品，出16次Q物品，就是CGG偏爱出Q，稀有出R。而这个记录掉宝的例表，叫偏爱度测试。
-
-由下图看出有六种密码子可以生成Arg，其中CCG密码子生成的Arg很稀有。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25002019/4-14.png)
-**奇怪点1：C****CP****病毒的酶切位点与其它病毒都不一样。**
-
-上面铺垫了这么久，相信战友们都大概懂了，现在来看闫博士报告（一）中第九页的病毒数据图，其中SARS-COV-2的冠状病毒酶切位点序列为PRRA，这部份与列表中其它病毒都不一样，为什么CCP病毒如此特殊，与别的毒株都不一样？联想到上面墙的举例，别人家里的墙里用都是水泥，你这墙里用是电焊，这一样吗？
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25002107/5-9.png)
-**奇怪点****2****：****CCP****病毒酶切位点序列P****RRA****竟然有两个稀有R****?**
-
-闫博士报告中显示CCP病毒的酶切位点序列PRRA中有两个连续CGG生成的R（Arg)，稀有密码子CGG生成的R(Arg)是非常稀有的，在蝙蝠病毒中由CGG生成更加困难。因为R（Arg)非常稀有，所以蝙蝠病毒应该自然进化出常见的密码子，而不是进化出稀有的CGG-R,更别提连续出现了两个，这种现象是违反自然规律的。举例：鸡蛋一般只有一个蛋黄，偶尔有二个蛋黄，你买了一筐鸡蛋 40个全部是每个蛋四个蛋黄，你说这个是不是人造或人工干预的？
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25002137/6-8.png)
-上面二条说明CCP病毒中奇怪的PRRA酶切位点序列，经、它与其它同族基因都不一样，不仅不一样，在序列中还是由2个稀有密码子生成的R构成的。这样可以大幅度提高病毒的杀伤力，蝙蝠双手拿着两把左轮手枪，这是进化出来的吗？这是人为的，这就是武器、生化武器。（具体请看闫博士报告）
-
-DNA发展至今，每个物种的DNA构成，都有一定的自然规律。生物进化都有轨迹可循，这样与众不同的酶切位点，99.999%是人工制造的。
-
-本文希望让更多的人看懂病毒来源，真相就在闫博士报告中，闫丽梦博士勇敢站出来拯救地球，她是全世界的英雄，是我们爆料革命英雄。
-
-关于S蛋白的说明请看上一篇文章。
-
-【本文章仅代表作者观点】
-
-上一篇：
-
-CCP病毒来源：为什么说病毒是人造的之S蛋白篇
-
-
-
-> [The source of CCP virus, why the virus is man-made, the episode of S protein](https://gnews.org/578132/)
-
-
-
-参考信息：
-
-Dr. Li-Meng YAN twitter
-
-[Tweets by DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw)
-
-The\_Yan\_Report.pdf
-
-[https://zenodo.org/record/4028830#.X7ezdM0zaUm](https://zenodo.org/record/4028830#.X7ezdM0zaUm)
-
-The 2nd Yan Report
-
-[https://zenodo.org/record/4073131/files/The%202nd%20Yan%20Report.pdf?download=1](https://zenodo.org/record/4073131/files/The%202nd%20Yan%20Report.pdf?download=1)
-
-DNA的说明：
-
-[https://zh.wikipedia.org/wiki/%E8%84%B1%E6%B0%A7%E6%A0%B8%E7%B3%96%E6%A0%B8%E9%85%B8](https://zh.wikipedia.org/wiki/%E8%84%B1%E6%B0%A7%E6%A0%B8%E7%B3%96%E6%A0%B8%E9%85%B8)
-
-DNA密码子表
-
-[https://zh.wikipedia.org/wiki/DNA%E5%AF%86%E7%A0%81%E5%AD%90%E8%A1%A8](https://zh.wikipedia.org/wiki/DNA%E5%AF%86%E7%A0%81%E5%AD%90%E8%A1%A8)
+资料来源:[https://www.state.gov/report-to-congress-human-trafficking-in-the-seafood-supply-chain/](https://www.state.gov/report-to-congress-human-trafficking-in-the-seafood-supply-chain/)
 
 +1
