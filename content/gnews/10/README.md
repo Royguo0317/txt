@@ -1,36 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【Raiklin律师推文1225】两周作战计划
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/684168/)
+## 【文心雕龙】击败COVID-19的钥匙早已存在，我们需要的只是开始使用它
+` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/684154/)
 
-12月25日，圣诞节的一大早，宪法律师Ivan Raikllin先生转发了一则视频推文，视频是电脑制作的一场类似摔跤或柔道的特殊竞技场上，分别酷似川普总统和乔拜登民主党总统候选人的选手，一开始银发“乔拜登”取得优势，金发“川普”在接连被痛击之后，奇迹般起身回击，无论力度还是使用的特殊技巧，都让乔拜登措不及防，比赛中出现了优劣反复的局面，但是“川普”者最终强有力取胜，获得全场一片喝彩。比赛结束时视频中主持人说，“这里是胜出选手：”Tunnel Trump” 名字和川普总统极为音似。他说，“这是一个一人决定证明自己战胜对手实力的案例”，“这是另一个关于‘生存理论’的历史故事”。
+作者：美国纽约七星会农场｜BoLu文龍
 
-这个视频无疑是在影射当前美国大选中川普总统和乔拜登候选人激烈的竞选斗争状态，也饱含了美国人对川普总统的支持和对大选结果的美好期待。
+编辑、美工：灭共小宇宙
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25091516/%E6%96%87%E5%BF%83%E9%9B%95%E9%BE%999.jpg)
+早在5个月前，2020年7月23日，世界级媒体 NEWSWEEK 就刊载了一篇文章，题目是“击败COVID-19的钥匙早已存在，我们需要的只是开始使用它。”文章的撰写者，是耶鲁大学公共卫生学院流行病学教授哈维瑞斯克HARVEY A. RISCH博士。哈维博士在担任耶鲁大学公共卫生学院流行病学教授期间，撰写了300余篇经同行评审的出版物，他目前仍然在数家主要期刊的编辑委员会中担任高级职务，是一位传染病学界的权威学者和医生。
 
+哈维博士说，他正在试图向各医疗机构呼吁和争取一种临床数据上完全正面支持的治疗方法和药物，也就是硫酸羟氯喹。数据表明，当这种廉价的口服药物在病程早期就被使用时，也就是在病毒失控迅速繁殖之前，被证明是非常有效的，特别是与抗生素阿奇霉素或强力霉素加锌片剂混合使用时。
 
+哈维博士的文章列举了几项调查数据，其中由弗拉基米尔·泽连科Vladimir Zelenko博士(也就是我们所称的大胡子医生)收珍治疗的400名新冠病毒患者，死亡人数为零；一项在巴西进行的700例患者的对照试验，使用硫酸羟氯喹混合治疗后大大降低了住院率和死亡率；另一项针对法国398名匹配患者的研究也显著降低了住院率和死亡率。
 
-> Volume up, watch and listen to the end. This fight is just getting started! [#MerryChristmas](https://twitter.com/hashtag/MerryChristmas?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/k3ftgaLvC3](https://t.co/k3ftgaLvC3) [https://t.co/q0Cg9BcFYC](https://t.co/q0Cg9BcFYC)
-> — Ivan #ThePlan Raiklin (@Raiklin) [December 25, 2020](https://twitter.com/Raiklin/status/1342453429164191745?ref_src=twsrc%5Etfw)
+在巴西北部的帕拉州，COVID-19死亡人数呈指数增长。4月6日，当地公立医院网购了75,000剂阿奇霉素和90,000剂羟氯喹。在接下来的几周内，政府开始向受感染的人分发这些药物用于混合治疗。虽然仍然继续发生新的病例，但5月22日后死亡率开始明显下降，一度仅是高峰时的八分之一。
 
+5月27日，瑞士中央政府一度明令禁止门诊使用羟氯喹治疗COVID-19，导致6月10日前后死亡人数增加了四倍，并且持续上升。于是6月11日，瑞士政府撤销了该禁令，到6月23日，死亡率又恢复到以前的水平。这一过程的因果关系表明，羟氯喹及其搭配药物的组合可有效降低死亡率，应立即将其用作新冠病毒患者的治疗标准。
 
+“未来，我相信医学界以及社会学家将研究对羟氯喹的这一误解和压制，显然它被政治化了，同时这也是超科学因素如何取代医学证据的经典案例。”在文章的结尾，哈维博士如是说。
 
-Ivan Raiklin在转推时称：
+新闻源链接:
 
+[https://www.newsweek.com/key-defeating-covid-19-already-exists-we-need-start-using-it-opinion-1519535](https://www.newsweek.com/key-defeating-covid-19-already-exists-we-need-start-using-it-opinion-1519535)
 
-> 放大音量，听一下结尾。这场战斗才刚刚开始! （一切都是刚刚开始！）
+更多精彩内容请关注：
 
+- [美国纽约七星会农场（为子孙爱七哥）GTV](https://gtv.org/user/5e986b24b005bd6d929820bd)
+- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
 
-
-> #圣诞快乐
-
-
-Raiklin律师诙谐轻松的语调怎么这么熟悉？更重要的是，他附上了一份到1月20日前详细的2周作战日程表。
-
-[https://docs.google.com/spreadsheets/d/1-0xSKuUSwGP7Wtn6rWc56yaiz2XvxVqzI1gJ3ekFJ-w/edit#gid=0](https://docs.google.com/spreadsheets/d/1-0xSKuUSwGP7Wtn6rWc56yaiz2XvxVqzI1gJ3ekFJ-w/edit#gid=0)
-
-
-
-新闻和图片来源于Ivan Raiklin律师的推文
-
-+1
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19044815/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-2.jpg)
+0

@@ -1,23 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 75秒钟解释怎样偷盗选举
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/683817/)
+## 12/22/2020 理查德·格雷內尔：腐败的民主党人一直让我们注意俄罗斯人，将责任归咎到俄罗斯，然而中共却在利用与亨特・拜登和拜登家族其他成员以及地方官员和州长的关系推行他们邪恶的计划。
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/683882/)
 
-英听校：    康州盘古农场 – Mike Li
-
-翻译：       康州盘古农场 – Mike Li
-
-翻译终校：康州盘古农场 – Robensenna
-
-字幕+视频制作：康州盘古农场-压箱底儿の希望
-
-审核：康州盘古农场–Truemanman
-
-该视频讲述了疯狂的左派发动政变企图窃取2020大选的阴谋，用病毒大流行指责总统继而搞垮经济，推动邮递选票，煽动种族战争，引发骚乱，大型科技媒体言论审查封锁真相、操控选票机器，左派企图窃取世界上最强大的共和国。
+12/22/2020 理查德·格雷內尔：腐败的民主党人一直让我们注意俄罗斯人，将责任归咎到俄罗斯，然而中共却在利用与亨特・拜登和拜登家族其他成员以及地方官员和州长的关系推行他们邪恶的计划。这是一个真正的危机。
 
 
 
-原视频链接：[https://rumble.com/vc1rij-how-to-steal-an-election-mirror.html](https://rumble.com/vc1rij-how-to-steal-an-election-mirror.html)
+By: 【秘密翻譯組G-Translators】
 
-+4
++1
