@@ -1,53 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 制裁中共的实体，就捏住了中共的要害
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/682688/)
+## “再无归途！” 中共官方媒体负责人以被迫害的维吾尔人的命运威胁蓬佩奥
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/683313/)
 
-撰稿：潜水艇2020 审稿：Jenny
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24180422/%E5%9B%BE%E7%89%87-22.png)
-（图片来源于网络）
+翻译：康州盘古农场 – Antsee-GTV
 
-路德访谈在北京时间23日的晚间直播中提到，川普总统已经签署制裁中共银行的报告。同时，节目中也提到美国国务院列出了几百家中共军方控制的企业即将被全球金融市场彻底制裁。而在同一日的早间节目中提到，美国商务部再对58家中共军方控制的组织列入制裁名单。
+校对：康州盘古农场 – 烟波浩淼
 
-为什么这次制裁了这么多的实体，墙内的反应平平？中共并没有表现出气急败坏？
+编辑：康州盘古农场 – Rose
+![](https://lh3.googleusercontent.com/e6oBVyAh3-uxV6njt4S8XutFmASiOgxsJu8Ycl_ZcO_VC8Q9JPYlvdKuzuZvSSTV_eXuRVYKo9E7K6385HOulfKoev13pPM2PkhLx4HUTGx9CLUP5UyV5xS2zK_gfdf1t4fCqa3LKS8b_UZ3NA)
+***《中国日报》欧洲局局长陈卫华以受到中国共产党迫害的群体（如维吾尔人）同样命运威胁美国国务卿麦克·蓬佩奥（Mike Pompeo），并保证他“肯定不会幸免”。***
 
-反倒是早先因为香港事件，美国制裁了林郑幺蛾子等几个中共官员，中共在墙内，在诸多媒体，到处恶语相向，破口大骂？
+因《中国日报》由中共政权自己的宣传部拥有和运营，因此陈卫华是中国共产党的喉舌。
 
-还记得吗？七哥最喜欢说的一句话就是：“捏住了共产党的春蛋”，我想，这个春蛋，应该就是指男人的命根子吧？ 大凡被真正捏住命根子的男人，肯定就会疼得浑身无力，毫无反抗之力了。结果只有2个，要么投降换条活路，要么被捏爆蛋蛋而一命呜呼。
+对于蓬佩奥和包括奈杰尔·法拉奇（Nigel Farage）在内的其他中国批评家，陈卫华在美国国务院官方推特帐户下回复了一篇强调“中国共产党如何针对基督徒、穆斯林、佛教徒和法轮功等信仰信奉者开战”的帖子。
 
-我相信，中共对于制裁其个人，并不十分担心。对于这些魔头，没收他们在美国的钱财，他们还可以从墙内老百姓身上收刮，大不了再收刮个几十年，总还是能收刮个不少。至于他们在海外的私生子女，就算个个关进美国的大牢，他们也无所谓吧？大不了再在墙内找几个明星，找几个貌美如花的女兵，反正用的是试管婴儿技术，再弄出个几百上千的私生子女也用太长时间吧？只要他们还能坐稳位置，霸占着这个统治权，他们还有这14亿奴隶供着，他们还是可以过着好日子。所以这样的制裁，并没有伤到他们的根本，他们也并不是很怕，所以他们还可以表现得像个泼妇似的，乱吠不止，还想斗上一斗。
+帖子说：“该党不遗余力”并附图以补充。
 
-但是，这次美国选择制裁中共的实体和银行，肯定是找准要害了，抓住了中共的春蛋了。
+作为回应，陈卫华回复：
 
-中共的这几百家军方控制的实体企业 ，在美国上市，持续不断的从美国金融市场募集资金，源源不断的输送到中共国内。正是这些钱，支持着中共去收买那些腐败堕落的美国政治家，金融家，为中共的这些企业保驾护航，不停的从美国吸钱，也支持着中共满世界的干着坏事。
-
-但是现在呢？美国人看到了这个问题，制裁这些企业，就意味着这些企业必须滚出美国的金融市场，就再也不能从美国吸钱了。没有了这个钱的来源，中共还拿什么去收买政客和贪婪的金融家？靠人民币吗？七哥昨天爆料，中共想用人民币跟“非洲好兄弟”买点救命粮，人家一开始答应的好好的，结果24小时都反悔了。为什么？不就是大家都知道人民币马上就要成为一张毫无价值的废纸了嘛。这个世界上，谁会用自己实实在在的东西去换一堆废纸？
-
-中共现在心里也肯定清楚了，没有美金，它的那些人民币也是无法收买那些政客，金融家的。 那些家伙以前跟中共狼狈为奸，替中共干坏事，不就是因为中共可以给他们钱嘛！现在他们知道中共给不了钱了，他们也就不愿意再听中共的话，替中共干肮脏的事情了。
-
-中共可不甘心，可还能拿他们怎么办 ？那只能用偷拍的视频或黑材料去威胁他们这一招啦！ 他们肯定也知道中共不会这么轻易放过他们。只要这些人还不太蠢，他们肯定也明白，唯一的出路就是自己跟美国政府坦白，争取一个“宽大处理”。可这样一来，就有更多的人来指证中共做的坏事啦。
-
-另一方面，没有了这个美金来源，中共还哪来的钱进口粮食，解决中共国内的问题？到时候老百姓一上街，中共的位置还坐得稳吗 ？
-
-所以，中共这次，实实在在的被捏住了春蛋，而且被捏得死死的。估计它现在已经是痛得浑身冒汗，连叫喊的力气的都没有了。
-
-战友们，用不了等多久了，中共很快就要完蛋啦。
-
-(本文仅代表作者个人观点)
-
-相关视频：
+“蓬佩奥肯定不会幸免。 他将在1月20日一去再无归途。” – 陈卫华（@chenweihua）2020年12月23日
 
 
 
-[彩虹桥2020年12月23日郭先生字幕视频](https://www.youtube.com/watch?v=GNgAE2dR-Ho)
+> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): The Chinese Communist Party’s war on faith targets Christians, Muslims, Buddhists, and Falun Gong devotees alike. The Party spares no one. [pic.twitter.com/62PZGhYe7G](https://t.co/62PZGhYe7G)
+> — Department of State (@StateDept) [December 23, 2020](https://twitter.com/StateDept/status/1341564644520062977?ref_src=twsrc%5Etfw)
 
-节选：战友们，国内缺粮了吗？缺粮缺到啥程度了？昨天下午中共国家安全委员会把这个解决缺粮问题排在首位，防止金融大规模的治安事件，也就是挤兑，不让你取钱，放在了国家安全的位置。因以上没粮食、不让取钱导致的社会的大规模的抗议、上街，甚至所谓的暴乱、骚乱。啥叫暴乱？就是说老百姓和平发声呗，排在了国家安全的最紧急位置。而且说不论如何，在南海跟美国人都不要有冲突，不行就打台湾，解决内部的问题要打台湾。银行完了吧，所有的在国外的外资，所谓的骗美金的中资企业完了吧，没粮食了吧。现在跟非洲国家商量，在非洲进一些农作物，要拿人民币进，听说非洲一开始都愿意用人民币，昨天基本上都拒绝了。不到48小时这么大变化，都拒绝了。(文字来源——[喜马拉雅听写组](https://www.youtube.com/watch?v=GNgAE2dR-Ho))
 
-编辑：文远Bruce
+![](https://lh6.googleusercontent.com/O0l4NelbLwRLvBuDg92l3htIvQwTTlX2cS--XJtECD_LM7TR0pGHFpCONAg1DltzGYGaKPRSxGFdnnMXJYRo3C89NZgO_ysaGW3bpr8jJ0vYypoS3W-VqR2gwk5j6Vv-Zy9GxNJVm5Ngg2mKcw)
+陈咬定对蓬佩奥应像对中国的基督徒，穆斯林，佛教徒和法轮功等同样对待，这构成严重威胁，因（中共）政权一直在[迫害](https://www.wsj.com/articles/beijings-collision-with-christians-11608593160)着上述群体的成员。
 
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+当法轮功（一个集中冥想的宗教活动）的修炼者们因其代表的意识形态与完全和彻底服从中共相背时，被（中共）所针对。 信徒们被送到劳改营，在那里他们中成千上万的人因“[被饿，被殴打和用电棍折磨”致死](https://www.newstatesman.com/blogs/the-faith-column/2008/08/falun-gong-party-chinese)，[器官被摘](https://www.reuters.com/article/us-britain-china-rights/china-is-harvesting-organs-from-falun-gong-members-finds-expert-panel-idUSKCN1TI236)。 维吾尔族人遭受着中国共产党的侵略性运动，施以：灌输（洗脑），拘押，并在某些情况下[杀死](https://pittnews.com/article/159614/featured/they-kill-us-here-survivor-of-uyghur-concentration-camps-recounts-torture/)少数族裔。
 
-[【澳喜文章】](https://gnews.org/zh-hans/author/aujenny/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20035659/IMG_1836.jpg)
+中国的基督徒和佛教徒也遭受了[类似](https://www.theguardian.com/world/2019/jan/13/china-christians-religious-persecution-translation-bible)的命运。
+
+陈已经用类似的言语攻击了几位美国政府官员-[最近的是参议员玛莎·布莱克本](https://thenationalpulse.com/breaking/blackburn-ccp-spat/)（Marsha Blackburn）- 同时推特（Twitter）始终未对此“乱喷”作出干预或评论。
+
+但是，社交媒体平台一直在对保守派进行[严格审查](https://www.newsbusters.org/blogs/techwatch/corinne-weaver/2020/11/30/twitter-censors-trump-trump-campaign-325-times-never)，却与中国军方代表一起参加会议并[雇用与中国共产党有关的人](https://thenationalpulse.com/news/twitter-hires-ccp-fei-fei-li/)。
+
+原文作者：娜塔丽·温特斯（《国家脉动》高级记者，电视节目制作人）
+
+发布时间：2020年12月24日
+文章链接： [https://thenationalpulse.com/breaking/chinese-media-chief-threatens-pompeo/](https://thenationalpulse.com/breaking/chinese-media-chief-threatens-pompeo/)
+
 +3

@@ -1,43 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 民主党国会议员候选人接受孔子学院资助
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/682508/)
+## 中俄联合演习硬闯韩国防空区域
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/683033/)
 
-新闻来源：the national pulse《国家脉动》； 作者：NATALIE WINTERS； 发布时间：2020年12月日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24215956/bbc-1.jpg)图片来源：BBC
+据Western Journal 报道，本周二中俄共19架军机闯入韩国领空，迫使韩国调度战斗机反击。
 
-翻译/简评：Victory；校对：SilverSpurs7；审核：万人往；Page：拱卒
+韩国联军司令表示，4架中国战机开路，15架俄罗斯军机尾随进入韩国防空识别区。韩国空军调度人员采取了战术防御。据报道，中共军方在演习之前通知韩国要进行日常训练。但是联军司令认为必须对这件事进行调查。 他说，“这个事故看起来是中俄的一次联合演习，但需要进一步分析”。据报道韩方已经和中俄接触并指明这种事不能再发生。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/AOd9gyfpCH9Bb/images/82eafe29-8b73-49e4-a51c-f628e0bf672e.jpg?asset_id=7aac60ba-6ed5-4a21-adb1-2e26a85edb91&amp;img_etag=%22def1ddbb6fe2a302b5df7684710322bb%22&amp;size=1024)](https://spark.adobe.com/page/AOd9gyfpCH9Bb/images/82eafe29-8b73-49e4-a51c-f628e0bf672e.jpg?asset_id=7aac60ba-6ed5-4a21-adb1-2e26a85edb91&amp;img_etag=%22def1ddbb6fe2a302b5df7684710322bb%22&amp;size=1024)
+这不是第一次中俄飞机测试韩国的空军防御系统。
 
-#### **简评：**
+华尔街日报在2019年7月曾报道，中俄轰炸机联合巡逻队引发了与韩国战斗机的撞机事故。轰炸机飞越了朝鲜半岛和日本之间的海域，其他战斗机则飞到距韩国空防区只有几英里外的区域。韩国飞行员对于侵犯进行了警告。
 
-本文曝光了民主党爱荷华州候选议员接受有中共国背景的孔子学院和另外一家学院资助的事实，这是典型的中共海外渗透手法之一，属于“蓝金黄”手段中的“金”。相信爱荷华州绝不是个案。中共很早之前就使用大量人力和资金支持潜在的政治力量上位，从而达到最终控制美国的目的。事实上，中共几近成功。
+美国在日本和韩国都有军事基地。美军与韩国的军事演习常常导致与北朝鲜的摩擦。
 
-在这次大选中我们已经看得非常清楚，中共对美国政府、国会、甚至法院都已控制到何等地步。所幸，中共最终功亏一篑，美国正在觉醒，一切趋势正在逆转，中共快结束了。
+同时中共也越来越具有攻击性。7月事件之后，俄罗斯国防部否认侵略韩国的防空区并责备韩国战士涉嫌进入危险的演习区域。并声称“韩国曾经试图干涉俄罗斯飞机在日本海中间海域的飞行。”
 
-#### **原文翻译：**
+后来，据BBC报道，青瓦台的总统发言人说莫斯科承认了那是一个错误并归咎于“技术故障”：“莫斯科声称如果飞机按照原始计划的线路飞行，就不会发生这个事故。”
 
-# 民主党国会候选人接受与共青团相关的中共国公立学校的资助
+然而，BBC报道俄罗斯否认任何形式的侵入。同时，中共国防部发言人吴谦为演习进行了辩护，宣称他的国家严格遵守相关国际法，没有进入其他国家的防空区域。
 
-**最近，一名2020年民主党国会议员候选人被曝出在爱荷华州参选时，有两家与中共相关的公司给她资助。**
-[!\[\]()!\[\](https://spark.adobe.com/page/AOd9gyfpCH9Bb/images/8d50e9a3-979d-4557-95fe-4f4d8d0a896a.png?asset_id=9e9868c0-eea5-4125-bc9a-d4c909769701&amp;img_etag=%2271d04e5b35ce9abe9631219825d26dab%22&amp;size=1024)](https://spark.adobe.com/page/AOd9gyfpCH9Bb/images/8d50e9a3-979d-4557-95fe-4f4d8d0a896a.png?asset_id=9e9868c0-eea5-4125-bc9a-d4c909769701&amp;img_etag=%2271d04e5b35ce9abe9631219825d26dab%22&amp;size=1024)丽塔·哈特（Rita Hart）
-在爱荷华州第二选区竞选中仅以6票输给玛丽安特·米勒·米克斯（Mariannette Miller-Meeks）的丽塔·哈特（Rita Hart）的财务披露显示，她从孔子国际教育集团（CIEG）获得3180美元，从磐基雅国际学院获得2135美元。
+华尔街日报则说一个韩国的研究人员Hong Hyun-ik认为7月的飞行事件其实是个警告。“这是对美国，日本和韩国传达的一个讯息：如果你加强美日军事联盟，我们除了军事反击别无选择”。
 
-孔子国际教育集团在爱荷华州创建了一所学校，在一年的课程结束后接收中共国的外籍交换生，这样他们就可以继续留在美国。民主党众议员埃里克·斯瓦维尔（Eric Swalwel）与一名在加州某大学学习的中共国情报人员有关系，随后也有经济上的关联。
+评：国内党媒鼓吹这次行动是进一步发展中俄新时代全面战略协作伙伴关系的标志，而这种对日韩的“威胁”其实更像是中共在末日来临前期望拉着俄国给自己壮胆，一副蛮横傲慢似乎不把日韩看在眼里的举动，实际是暗示给美国不要逼中共鱼死网破，这是对国际社会赤裸裸的军事威胁，中共不铲除，世界永无安宁！
 
-“精确传媒”在对哈特进行联邦选举委员会投诉时挖出的这些经济关系，实际上是把哈特放在了中共的资助名单上。
+[新闻链接](https://www.westernjournal.com/russia-china-intrude-us-allys-air-defense-space-joint-military-maneuver/%20翻译：%20Backbone%28宇菲%29%20%20Post%20Block%20%20No%20block%20selected.%20Open%20publish%20panel%20Document)
 
-这两家实体都是由中共国有租赁公司远东宏信提供资金。其股东之一为中化集团，其领导层中有参与共青团的前中共国政府官员。
+翻译报道： Backbone(宇菲)
 
-[原文链接](https://thenationalpulse.com/breaking/iowa-candidate-chinese-payroll/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/AOd9gyfpCH9Bb/)
-[!\[\]()!\[\](https://spark.adobe.com/page/AOd9gyfpCH9Bb/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/AOd9gyfpCH9Bb/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

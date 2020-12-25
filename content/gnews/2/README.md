@@ -1,24 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 圣诞礼物泡汤！美众议院否决新纾困法案
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/681989/)
+## 美国国务院报告:中国渔业人口贩卖最为严重
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/683553/)
 
-- 编辑：Victor Torres
+台湾农场(筹备) Amitofu
 
+美国国务院12月23日报告表示，为了解决海产渔业的人口贩运问题，美国国务院和国家海洋暨大气总署（NOAA）已根据第3563条向国会提交了一份联合报告，标题为“人口贩运海产渔业供应链”。 在2020财年国防授权法（PL 116-92）。 该报告指出对渔业捕捞和海产加工业存在人口贩运的国家，提供了详细的说明、风险评估和建议。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25010824/chinafish-400x225.jpg)圖片來源:路透社
+捕渔业本身就存在人口贩运的高风险，被认为是有危险的工作，通常严重依赖低技能的移工，因容易被取代的劳动力而有人口贩运的问题。捕渔业本属孤独行业，船只通常在海上航行数月或数年，渔工受虐待无法逃逸、常因为情绪和身体虐待而导致死亡，除了生活条件差也时常超时工作，受害者甚至被要求支付招聘费和签署债务合同等诈骗性的招募方式诱拐，也常使捕渔业人口贩运受害者面临无薪工作或收入低下的问题。而自由公民渔工权利和法律保护薄弱的国家更因为腐败、犯罪、暴力、政治不稳定、贫困程度高，而增加了人口贩运的风险。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+报告指出中国拥有世界上最大的捕鱼船队，在公海和世界各国的专属经济区活动进行大量非法、非经授权和不受管制的捕鱼作业，船上大多数船员来自印度尼西亚和菲律宾的渔工，美国政府目前打击海产渔业的人口贩运提出了十项建议，包括立法和行政。建议列入名单的国家进行外联，促进全球产品追溯来源。国土安全部、司法部、劳工部、各州和财政部将连手采取行动，确保强迫压榨劳工生产的产品不会进入美国市场，以解决海鲜供应链中的人口贩运问题。本文仅代表个人立场
 
-**西班牙2020年12月24日电/西喜社—**
+资料来源:[https://www.state.gov/report-to-congress-human-trafficking-in-the-seafood-supply-chain/](https://www.state.gov/report-to-congress-human-trafficking-in-the-seafood-supply-chain/)
 
-周四上午，美国众议院投票否决了给每位美国人2000美元的新纾困法案。
-这是南希·佩洛西（Nancy Pelosi）确保法案失败的绝招。
-她所需要的只是一个反对意见，就能确保投票失败。她做到了。
-她本可以召集整个众议院投票，但她没有。 因为她只懂得玩政治和惩罚美国人。
-而且，当然，众议院的共和党人们违抗了川普总统。
-周二，川普总统在白宫发表了关于中共病毒救济法案的讲话，他呼吁国会重新制定周一晚上通过的价值9000亿美元，长达5593页的法案。代之以向美国人提供每位成人2000美元或每对夫妇4000美元的款项。 之前参众两院通过的法案仅向每位成年美国人支付600美元，但为有非法外国人配偶的美国家庭提供1800美元。
-川普指出该法案将巨量美元给了外国和特殊利益集团，与之相比，美国人仅为600美元。 川普还呼吁为小企业，尤其是餐馆，提供更多的救济。
-
-新闻链接：[https://www.thegatewaypundit.com/2020/12/no-christmas-present-gop-lawmakers-defy-president-trump-2000-checks-americans-fails-thanks-pelosis-tricks/](https://www.thegatewaypundit.com/2020/12/no-christmas-present-gop-lawmakers-defy-president-trump-2000-checks-americans-fails-thanks-pelosis-tricks/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12143133/c032d95b-7e6a-4d6f-98ec-36d0e12f2b22.jpg)
-0
++1

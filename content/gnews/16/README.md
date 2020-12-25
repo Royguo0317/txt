@@ -1,74 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭爆料串珠（139）郭先生说麦康奈尔
-` GM64` [轉載自GNews](https://gnews.org/zh-hans/682712/)
+## 全世界和我们一起灭共
+` TINALS` [轉載自GNews](https://gnews.org/zh-hans/683277/)
 
-整理：战友之家文迅等
-郭爆料串珠系列文章，主是从700多篇郭文贵先生直播听写文字版、盖特精选而成，也包含部分班农先生、路德社、闫丽梦博士直播文字具有文献价值。由战友之家文迅等按时间、主题整理。感谢战友听写！
+在2020年12月23日的盖特视频中，郭文贵先生说中共国家安全委员会把解决缺粮的问题和防止挤兑排在国家安全最紧急的位置。现在跟非洲国家商量，把非洲的农作物要拿人民币进口，听说非洲一开始都说愿意要人民币，但昨天基本上都拒绝了。中国外交部写了报告，说全世界据了解超过120个国家正在酝酿、商量排查属于中共党员和政府的工作职员所有的名单，包括国有企业。很多国家政府都知道病毒是共产党的生化武器，可怜这全世界因为钱都泯灭了良心，没有了一点智商。全世界集体的暴露让世界和我们一起灭共。
+[视频来源](https://gtv.org/getter/5fe40c9f93a06b22d9e0de05)
+It’s December 23, Brother Miles just finished showering, I just got out of the shower. I’ve been in meetings all day until now, with less than ten minutes of break, for almost twelve hours. It’s great. Before showering, I received a call from a friend in China. Said friend, who may not be a brother-in-arm, told me about the situation in China, and it was just – BIAs, is there food shortage in China? How bad is the food shortage in China? Yesterday afternoon, the National Security Commission of the CCP ranked resolving the food shortage at the top. Preventing large-scale financial security incidents – basically, bank runs – and not letting you withdraw your money has also been deemed a matter of national security. Having no food and not being allowed to withdraw money will lead to large-scale protests and even riots; a riot is when the people speak out peacefully. These have been ranked at the top of national security issues.
 
-标题简述：2020年11月7日郭先生说：千万别忘了，华盛顿的第一权力不是川普总统、不是FBI，也更不是什么DOJ（司法部）。到现在我们战友没有说明白，华盛顿第一权力和下一个四年第一权力是谁呀？麦康奈尔！不要搞错了，美华、在纽约、在美国最大的媒体权力是默多克，这两人！你们想啥呢？战友们，想啥呢？华尔街、华尔街的老板在哪呢？在中南海！
+12月23号，现在是你们看到的七哥是刚刚淋浴完，刚刚出了淋浴后的。现在你们的七哥，今天从开会到现在大概中间停不超过10分钟，开了将近12小时的会，很好。刚刚在冲浴前，收到了咱们国内的朋友的电话，国内的朋友不一定是战友，听到他讲国内的情况简直是，战友们国内缺粮了吗，缺粮缺到啥程度了，昨天下午中共国家安全委员会，把解决缺粮的问题排在首位，防止金融大规模的治安事件，也就是挤兑，不让你取钱，放在了国家安全的位置，因以上没粮食不让取钱，导致社会的大规模的抗议、上街，甚至所谓的暴乱、骚乱，啥叫暴乱？就是说老百姓和平发声呗，排在国家安全最紧急的位置。
 
-2019年8月12日
-美国最重要的麦康奈尔，就是我们华人赵小兰女士的先生，共和党现在的领袖，可以说在美国举足轻重。严格讲，从法律上讲，美国总统有事，麦康奈尔就直接当总统了，副总统和他联合治理国家。彭斯副总统，庞培奥国务卿，接下来都会有讲话，都会有决策。我现在还没有看，因為我一直在开会，从早上到现在。
+They also said that no matter what, do not have any conflicts with Americans in the South China Sea. If there is no other way, just attack Taiwan. Attack Taiwan to solve internal problems. Banks are done for, all the overseas Chinese enterprises that swindle US dollars are done for, and food is running out. They are negotiating with countries in Africa to import their crops using Chinese Yuan. I heard that those African countries were willing to take Chinese Yuan at first, but yesterday they almost all declined. Such a huge change in less than 48 hours, all declined. Chinese nationals cannot study abroad; those abroad are being sent back to China.
 
+而且说无论如何在南海，跟美国人都不要有冲突，不行就打台湾，解决内部的问题要打台湾，银行完了吧，所有在国外的所谓的，骗美金的中资企业完了吧，没粮食了吧，现在跟非洲国家商量，把在非洲进行的农作物要拿人民币进，听说非洲一开始都说愿意要人民币，昨天基本上都拒绝了，不到48小时这么大的变化，都拒绝了，中国人不能出国留学，出国留学的被撵回去。
 
-```
-然后，麦康奈尔今天早上率先发话，然后川普总统得发话，然后美国会有一系列决定。我现在直播要告诉香港的所有战友们，一定要记住，美国一定和香港人站在一起，美国政府的出手力度前所未有，美国各界的出手力度前所未有。 
+Furthermore, China’s Ministry of Foreign Affairs has, for the first time, written a report to the National Security Commission – so, the Politburo – that says more than 120 countries in the world are planning and discussing the checking of a list of all Chinese Communist Party members and government employees, which may very well trigger the world to be against the CCP and against the overseas Chinese government employees, including people from state-owned Chinese enterprises. The Ministry of Foreign Affairs says that other governments are ready to stand with the US regarding the CCP-controlled state-owned Chinese enterprises. Many countries will investigate their government officials of the past decade, from 2012 until now, concerning where the money from bailouts and loans they received from China went. Most went to kickbacks. I heard that a few bastards in Europe are scared. They are scared. How can they explain this? They took so much kickbacks.
 
-我们现在坐的车是劳斯莱斯的库里南，大家看这个是蓝边，我那个劳斯莱斯的辉腾是白边、黑底，这是蓝边，蓝皮子，不一样。这个号称全世界最贵的SUV，最高级的最静的SUV。 
+而且中国外交部第一次，给国家安全委员会也就是常委坑写了报告，说全世界据了解超过120个国家，正在酝酿、商量排查属于中共党员和政府的工作职员所有的名单，很有可能引发全世界的，反共、反中国政府的海外的工作人员，包括国有企业，外交部说，各国政府正都准备和美国一起，对中国共产党控制的国有企业，包括很多国家现在要查当时，过去这十多年、2012年到现在，这十多年的当时执政的政府官员，在中国所得到的就救助和贷款去向，大多数是回扣了嘛。据说，欧洲的几个混蛋害怕了，害怕了，咋交代啊？吃那么多回扣。
 
-战友们，我想告诉香港的所有的朋友们，千万千万要记住，美国将有一些列的，超出你们想象的决策。彭佩奥国务卿、彭斯副总统、川普总统、麦康奈尔，还有我们的鲁比奥先生，都会坚定地和你们站在一起。所以我请战友们，咱们已经看到有人在白宫发起的，将香港的警察头子卢伟聪，孙立军的哥们儿，拜把子兄弟，列為了恐怖组织，发起的请愿签字活动，已经超过10万了。 
+Many governments believe that this virus, they know that this virus is the CCP’s bioweapon. They also know that if they do not hold the CCP accountable, their people won’t accept it. So what to do? Many are suggesting that the Chinese government should place the blame on select employees of the Wuhan lab for leaking the virus intentionally or unintentionally and stop arguing whether this virus came from nature. Just say that it was leaked from the lab unintentionally or leaked by certain people, or that it was leaked to exact revenge on society. They suggest to the CCP to file a case and investigate quickly. The CCP, do you think the CCP’s tricks are good? Not at all, but unfortunately, the entire world has discarded its conscience for money, completely mindless. God has really given us the greatest opportunity to take down the CCP. The world has been exposed and will take down the CCP with us together.
 
-我们现在，战友们，应该有人挑起来发动一个，在麦康奈尔推特下面，鲁比奥推特下边，川普总统推特下边，彭斯副总统推特下边，川普总统推特下边，这几个人，大家联合起来一起行动。一起行动，就是两个要求，请求他们，保护香港的学生，然后呢美国要将共党列為恐怖组织，发起超过10万个签名。
-```
+而且很多国家政府都认为这个病毒，都知道，明净的共产党干的生化武器，而且大家都知道，甚至很多人都说，不给共产党究责，将对自己的国民没办法交代啊，怎么办？很多人谏言中国政府应该将这个责任，归咎在武汉实验室部分人员故意泄露，或者是非故意泄露上，不要再纠缠于所谓来自于自然和人了，就说是实验室非故意泄露或部分某些人泄露，或者报复社会泄露，建议中共赶快要立案查处这事，共产党啊共产党，你说他完这个招儿高不高？一点儿都不高，可怜这全世界因为钱都泯灭了良心，没有了一点智商，上天真的是给了我们最大的机会–灭共。让全世界集体的暴露，并和我们一起灭共。
 
+听写：【彩虹桥】翻译：【noraTina】字幕：【Naomi (文花开)】视频解码：【恒久忍耐】编辑：【TINALS】
 
-2019年8月23日
-中央电视台和深圳电视台，和中国的人民日报环球时报，都登出了威胁香港的所有的视频。香港人民没有任何害怕，全世界屏住呼吸，没人敢说话。折腾了两三个月了，香港人的意志，香港人的守法感动了全世界。才陆陆续续，在美国卢比奥第一站出来发言的，麦康奈尔先生，当然班农先生从头到尾都是支持的。彭培奥先生，副总统彭斯先生，然后是欧洲议会，然后稀稀拉拉的这些国家领袖不要脸的出来了，来支持几句。 香港人民太可怜了，香港是全世界的香港。加拿大有 30万人，美国有10万人，英国有几十万人，见几个人说话了。日本几万人，日本人说话了嘛，敢说话嘛。台湾更不要脸了，台湾的蔡英文简直疯狂，收拾香港的目的下一个就是收拾你台湾，唇亡齿寒。台湾做啥了，除了民间有点活动，台湾政府太弱了。
-
-台湾有事的时候，我坚信没有多少人站出来说话。台湾这次，让所有的欧洲和美国的人告诉我说，让他们大失所望。而且告诉我说，台湾要是有事的时候，台湾第一个就投降跪下了。所以很多美国人，欧洲的人，最近几天见了我说，蔡英文的表现和台湾政府的表现让世界看到，台湾有事，西方不能帮。
-
-2019年8月28日
-3F 方案不是吓唬你美国人，BGY 不是吓唬美国人的。美国人单纯，但他不傻，绝对有大智慧了，这几天大家看到有多大？
-
-第二个，从欧洲的 G7 会议，到美国最重要的官方斯伯丁将军，Kyle Bass、彭斯副总统，班农先生，McConnel，Nancy Pelosi，还有sumo、蓬佩奥。现在是美国立法呀、强令你呀！在什么时间给我答复呀？
-
-2019年9月3日
-这是我们要在华盛顿、包括接下来几个敏感的地方和所有人报告我们的想法，与他们沟通，这是美国拯救世界最后的机会，这是美国让自己更加安全唯一的机会。不灭共产党，共产党就灭他们，就不只是三F美国了，就是干掉美国了。美国被干掉，那欧洲日本接下来就完蛋了。所以全世界一定要抓住这个机会，对共产党进行清理式的消灭，把共产主义这人类史上的毒瘤彻底消灭。
-
-我相信在对面的白宫、五角大楼、国会山他们会做出明智的决定。这里都是精英，我可以告诉大家，过去的一星期，跟所有人接触的当中，得到一个最好的答案。说都感谢我，文贵是你唤醒了美国。我：不敢当，不敢当，不好意思，不好意思！当然啦，我们做的还是相当不错的。是我们唤醒了美国和西方，每个人都这么说，都感谢我们，真的是文贵和爆料革命唤醒了他们。说现在即使没有川普总统，没有国会山的这些罗比奥、麦康奈尔、没有美国的清醒派和鹰派，他说美国再想回到以前不可能了。
-
-灭共产党是大家的共识，谁都不可能阻止。就像当年美国决定去灭苏联的时候，八年就把它干掉了。我这回得到了更多的信息，当年灭苏联背后的故事，有时间我给大家好好聊聊。有些我以为我知道的，我发现真不知道。事实很清楚，那些也没那么神圣。就一个女人就把苏联给干掉了。他们现在称我是当年那个女人。干掉苏联核心的力量就是那个女人。这个老人家还在世，在纽约，距离我家只有两条街。她的儿子现在是核心人物。可以这么说，没有他们就没有今天的白宫。他们说现在西方就像当年对付苏联一样已经醒过来了。当年里根总统问过这女人一句话，你为什么一定要把苏联干掉？他们说：我们家当年就是被苏联追杀到美国的，后来成立了我们这个家族。他专门出过一本书，当然啦，核心的他们没有说。哪天我跟你们说说，非常有意思。你们会发现，你们战友中每个人都是这个女人，我跟你们不是开玩笑。这个女人曾经说过，就是在她公司做衣服、化妆品的这些孩子们和被苏联追出来的这些人，和她团结一起坚信能把苏联干掉。他们这些人共同培养他们的孩子、家人，最后支持里根总统上去，最后里根总统BANG就把它们干掉了。
-
-2019年11月9日
-然后你们看到，现在共产党大量的平爆小组派到美国来，以威胁国内的家人和资产为游说让你们妥协。然后黑客你们的电脑和手机，然后用他们买通的西方媒体进行全面的造谣爆料革命。包括只要是反共的，包括彭佩奥国务卿，包括副总统彭斯、斯蒂芬班农、麦康奈尔，还有罗比奥，还有国防部的，都在造谣。
-
-大家记住啊，让他们作！让他们作死的作！
-
-2019年11月23日
-在参议院吧叽吧叽通过了，百分之百。众议院百分之百。南希普洛西女士还有卢比奥，还有麦康奈尔成了人类的英雄，香港的英雄。哇塞，全部高呼万岁万岁万岁。到众议院只差一票，吧叽扔给川普总统去了，历史上最快的。哪有人家川普总统的角色呀？哪有川普总统的角色呀，什么叫权力啊？权力不是给你说yes的权力，权力就像王岐山说的，是说no, 我有说no的权力才是我的权力。川普总统说我有说no的权力呀，我可以有否决啊，我也可以等一等啊，我不一定明天签。南希普洛西那天讲话说了吧？「我们现在就送给川普总统，川普总统现在就得签」。
-
-它已经变成美国内部政治斗争啦，那就是说你今天不签你就慢了，慢了你就对香港不好。这川普总统说“好哎，我要签了我听你的，我要不签了呢”？川普总统当然了，每个政治家追求的都是要名垂青史，得到人民的认可还有选票。
-
-香港这件事情上，它已经在这个时候，它已经成功的成为了，香港事件是国际重大事件，是人类重大事件。它是宗教界较量的重大事件。它是正义和邪恶较量的最大事件。
-
-2019年12月3日
-昨天我说：你看这个彭斯副总统和麦康奈尔的演讲，说得非常好，说这个香港事件，是习近平的恶梦，王岐山的恶梦。他説王岐山太坏了，他说你那个“平港七策”説的非常好，他说他的那个银行同志，在广州，他说他们知道，王岐山是香港事件最大的领导决策者。然后是韩正，然后是杨洁篪。他说你这个情报非常准确。“平港七策”为啥我不能说？我一说完，他就知道是谁告诉我。但是我已经告诉了能告诉的香港人。我在这就别跟战友说了，说了也没用，择机再说吧。到时候拿张纸，不是赵岩大将军哭的纸，不是哭的纸。
-
-2019年11月27日
-希望将真正的美国罗比奥议员，还有那个Johner议员，还有麦康奈尔议员，南希佩罗西议长，这都是了不起的，Ted Cruz。没有这些伟大的议员，怎么可能发生，我们算个屁呀，千万别往咱身上粘，我求求所有人咱别往咱身上粘啊，咱别在这像那些欺民贼似的摘桃子。所有欺民贼都说没有，不可能过，众议院，众议院过了，参议院不可能过，参议院过了，肯定不会让过，到了白宫肯定不签，这种拙劣的丑陋的表演，很多人三十几年在美国，靠这吃饭，这回露馅了吧，莘县阳谷县搭县，有本事咱亮出来给大家看，兑现一下嘛。
-
-2020年4月27日
-我相信大家都看到行动了啊。美国现在达到90%的人，觉得中共是美国的威胁，全世界70%人不再相信中共，而且麦康奈尔已经发表了很重要的讲话。而且大家看到，班农先生已经在福克斯，还有这些媒体上，已经从愤怒，说这是一场战争，已经在做著酝酿和准备著。美国任何政治行动一定是名义在前，然后就是国会，然后才是军方，然后是告诉你。心理战、媒体战跟你说，最后不行，就萨达姆、卡拉菲，啪叽！一定是啊，一定是。
-
-2020年7月25日
-但是，我们爆料革命从现实角度讲，咱得有一个美国的白人，能传达我们的信息的，班农先生是最好的选择。我还想选择川普总统呢，川普总统能来吗？他不来啊，咱没这个本事啊；我还想选择蓬佩奥，蓬佩奥不来啊，人家想当总统啊；我想选择麦康奈尔，麦康奈尔人家不来啊，人家当议长啊；我想选择南希佩洛西，我想选择史密斯，人家不来啊，咱请不动啊。在这么多人选择中，咱很现实，只能请班农先生了。他是来自白宫的战略顾问，又深懂中国文化，又坚决灭共。你说，有些人来了，因为班农先生不在咱这工作，和有些人不喜欢他，咱就把他给放弃了，咱能干大事吗？兄弟姐妹们，能灭共吗？能成立新中国联邦吗？班农先生跟蓬佩奥绝对好，亲兄弟了；跟皮特纳瓦罗绝对好，亲兄弟；跟巴尔100%亲兄弟；跟朱利安尼亲兄弟。跟国会里面最起码四分之一的国会议员亲兄弟一样，为什么？爱尔兰人、天主教徒、共和党人。他一个电话拽过去，他跟谁都敢喊。咱能找谁去？我可真不敢跟人家喊，我没这个本事。
-
-2020年11月7日
-千万别忘了，华盛顿的第一权力不是川普总统、不是FBI，也更不是什么DOJ（司法部）。到现在我们战友没有说明白，华盛顿第一权力和下一个四年第一权力是谁呀？麦康奈尔！不要搞错了，美华、在纽约、在美国最大的媒体权力是默多克，这两人！你们想啥呢？战友们，想啥呢？华尔街、华尔街的老板在哪呢？在中南海！
-
-2020年11月14日
-他说——他是行家，他一看到川普总统和蓬佩奥以及麦康奈尔，包括昨天的皮特纳瓦罗站出来，他就知道，美国政府这回是真的要行动了，真的要行动了！他理解得很透彻。
-
-0
+喜马拉雅玫瑰园小队出品
+![]()![](https://gnews.org/wp-content/uploads/2020/12/footer_t_new.png)
++4

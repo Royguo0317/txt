@@ -1,63 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 煤炭短缺，中共国限制用电
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/682493/)
+## 圣诞前夜未打出“彭斯牌”，Amistad诉讼彭斯生效
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/683056/)
 
-新闻来源：ZEROHEDGE《零对冲》； 作者：泰勒·德登（TYLER DURDEN）； 发布时间：2020年12月21日
+*加拿大多伦多枫叶农场 文来*
 
-*翻译/简评：Marialu；校对：SilverSpurs7；审核：万人往；Page：拱卒*
+*校对、上传 文怡*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24220006/%E4%B8%8B%E8%BD%BD-4.jpg)图片来源：snopes.com
+DJHJ自媒体12月23日报道，川普总统当日两次转推了人们的在线对话，即提醒副总统迈克·彭斯在周三午夜之前使用他的权力来停止在涉嫌选民欺诈的陷入困境的州的选民资格。现在看来彭斯选择不理会这些权力，这使他成为被阿米斯塔德（Amistad）项目提起诉讼的人。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/nf2VJCA1TzFn3/images/32a17741-3488-4154-b961-63964178363f.jpg?asset_id=df2c3680-acb5-4138-845d-05ec4eca9604&amp;img_etag=%225f670fee89de623d5d473aa8246e6925%22&amp;size=2560)](https://spark.adobe.com/page/nf2VJCA1TzFn3/images/32a17741-3488-4154-b961-63964178363f.jpg?asset_id=df2c3680-acb5-4138-845d-05ec4eca9604&amp;img_etag=%225f670fee89de623d5d473aa8246e6925%22&amp;size=1024)
+这是很多人都在关注的故事的一个版本。另一个版本是根据宪法义务规定，星期三根本不是重要的日期，而1月6日才是重要的日期。
 
-**简评：**
+“彭斯牌”理论是这样展开的：彭斯必须在周三午夜之前出示“彭斯牌”，即他需向选举有争议的州寄出信函，声明这些州的选民记数是可疑的。
 
-尽管中共国的工业已经迅速从新冠病毒大流行中得到“恢复”，但是在部分地区出现煤炭短缺和电力不足，当局已下令限制用电，要求居民节约用电；路灯关闭，晚上街道一片漆黑；一些工厂每周只开工两三天；为了省电，电梯被迫关闭，一些城市的上班族不得不爬20层楼梯，这些现象与所谓的“世界第二大经济体”名号极不相称。
+门道专家（Gateway Pundit）对此事进行了报道，并说：“许多专家认为，鉴于各种选举舞弊行为的存在，副总统彭斯有责任否认在2020年选举中选举学院建议的选举人。然后，这将迫使这些州让其立法机关选择他们认为最能代表该州选举结果的人选。”
 
-然而中共否认潜在的煤炭短缺与澳大利亚的外交争端有关，事实是这场争端已经演变成一场真正的能源贸易战，因为澳大利亚是中共国主要的煤炭供应商之一，许多地方发电厂都依赖澳大利亚的煤炭。
+一位记者说：“川普总统转推了彭斯牌备忘录，其中详细介绍了@Raiklin提出的论点，表明副总统彭斯在今晚午夜之前如何拒绝选民欺诈猖獗的州的选举学院的选票。”
 
-中澳关系今年急剧下降，原因之一是澳大利亚政府要求对新冠病毒的起源进行独立调查，这种病毒最早出现在中共国。中共政府就采取提高澳大利亚龙虾、红酒等产品的关税，禁止进口澳大利亚煤炭的做法来制裁澳大利亚。真可谓：“搬起石头砸自己的脚。”
+这是川普在周三晚发布的推文：
 
-中共政府一向是为了保住面子，宁可自损1000，也要杀敌800。“政治至上”，面子第一，中共是决不会考虑老百姓的正常生活和工作。
+第一个推文:
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24220031/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE292.png)
+美国，@ VP @Mike\_Pence明天一定要这样做！
 
-冬季已经来临，不知道还有多少城市要限电供应，我亲爱的同胞们，你们如何才能度过这个寒冬？愿一切安好！
+为了捍卫我们的宪法免受敌人侵害：
 
-**原文翻译：**
+外国：中国，俄罗斯，伊朗，以及
 
-# **煤炭短缺，中共国限制用电**
+国内：高科技审查制度，MSM审查制度，联邦，州和地方各级的腐败官员！
 
-[!\[\]()!\[\](https://spark.adobe.com/page/nf2VJCA1TzFn3/images/4da80303-ffc2-4368-b5e7-dd522c5faeed.jpg?asset_id=c286a6d9-2cf3-4945-b988-5aaee1f0fa2c&amp;img_etag=%22c680edae4bd53131189c2fc3b03dd3d9%22&amp;size=2560)](https://spark.adobe.com/page/nf2VJCA1TzFn3/images/4da80303-ffc2-4368-b5e7-dd522c5faeed.jpg?asset_id=c286a6d9-2cf3-4945-b988-5aaee1f0fa2c&amp;img_etag=%22c680edae4bd53131189c2fc3b03dd3d9%22&amp;size=1024)
+让他知道！
 
-尽管中共国的工业迅速从疫情中得到恢复，但一些地区的工厂只是部分时间开工，一些省份的居民被要求节约用电，而当局则关闭路灯和广告牌，警告今冬煤炭短缺。
+第二个推文:
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24220039/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE293.png)
+@vp先生@Mike\_Pence
 
-据《纽约时报》报道，在中国至少三个省份，当局已下令限制用电，称可能出现煤炭短缺。与此同时，中共国当局坚决否认潜在的煤炭短缺与澳大利亚的外交争端有关，而这场争端已经演变成一场真正的能源贸易战，因为中共国禁止从其主要供应商之一进口煤炭（上周我们报道了《中共国以惩罚澳大利亚为名，忍受着日益严重的电力短缺》）。
+您可以在下一个小时内打出彭斯牌，以避免与违反美国宪法的多个州同谋，从而轻松撤销针对您的Amistad 項目诉讼。
 
-尽管如此，中共国已经承认部分地区的电力供应存在问题，就在冬季来临之前，中共国的工业活动已经从今年年初因新冠疫情造成的经济衰退中得到良好恢复。
+**根据Amistad诉讼：**
 
-“目前，部分省份电力暂时不足。这是一个客观事实，”《纽约时报》援引中共国监管国有企业的权威人士在周末的话说。
+副总统迈克尔·理查德·彭斯（Michael Richard Pence）是被告，以美国参议院院長的身份被正式起诉。因此，根据宪法和联邦法律，彭斯被认定具有法律义务，负责公开和计算总统和副总统的总统选举人选票。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/nf2VJCA1TzFn3/images/8cd7b825-cda1-4a8f-917c-f7dd14864ff3.jpg?asset_id=01895fad-063d-48dc-acf7-c49edcb9f389&amp;img_etag=%224b7f156fc2a4471a4d0a668b5e2cbf38%22&amp;size=2560)](https://spark.adobe.com/page/nf2VJCA1TzFn3/images/8cd7b825-cda1-4a8f-917c-f7dd14864ff3.jpg?asset_id=01895fad-063d-48dc-acf7-c49edcb9f389&amp;img_etag=%224b7f156fc2a4471a4d0a668b5e2cbf38%22&amp;size=1024)
+**评：**在美国大选之后将近两个月的时间里，各种舞弊行为被一一曝光，同时各种沼泽地里的鳄鱼也都现出了原型，参众两院的许多政客也在开始反水川普总统。副总统彭斯这张牌显得极为重要。彭斯现在放弃了23日这次为川普翻盘的机会，似乎使川普变得越来越被动。但彭斯在1月6日还有一次否决选举结果的机会。希望他能做出正确的选择。但无论如何，川普最终一定会赢，因为这是美国民众的意愿，也是天意。
 
-中国工厂复工难
+*[原文链接](https://djhjmedia.com/kari/pence-card-not-played-amistad-lawsuit-goes-into-effect-names-pence-others-say-date-not-important/)*
 
-由于电力短缺和电煤供应减少，一些工厂减少了工作时间，每周仅开工两三天，而一些城市的上班族不得不爬20层楼梯才能到达工作场所，为了省电而关闭电梯。
+[*点*](https://www.democracydocket.com/wp-content/uploads/sites/45/2020/12/DC-WVA-20201222-complaint.pdf)*[此处阅读完整的116页诉讼](https://www.democracydocket.com/wp-content/uploads/sites/45/2020/12/DC-WVA-20201222-complaint.pdf)*
 
-在中共国东部义乌市拥有一家塑料花厂的迈克·李（Mike Li）告诉英国《金融时报》：“我们的工厂每周只能工作两天，晚上街道一片漆黑，我们的生活并不正常。”
-
-尽管中共国政府否认与澳大利亚的争端是造成煤炭短缺和电力配给的原因这一事实，但国有电力生产商中国华电集团公司的一名官员告诉英国《金融时报》，许多地方的发电厂都依赖澳大利亚的煤炭，现在争相寻找替代能源供应。
-
-这位官员对英国《金融时报》表示，“政治至上”，并补充说，该公司认为中共国不会仅仅因为它造成了麻烦而放宽进口管制。
-
-[原文链接](https://www.zerohedge.com/economics/china-restricts-electricity-use-amid-coal-shortage)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/nf2VJCA1TzFn3/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/nf2VJCA1TzFn3/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/nf2VJCA1TzFn3/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
-0
++6

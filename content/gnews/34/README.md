@@ -1,41 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】白宫要求川普团队开始打包，但随即被叫停
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/682450/)
+## 2021年谁会是美国总统？滑稽选举正式拉开帷幕
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/682976/)
 
-香草山写作组：正义的小新
+新闻简述：在2020年12月14日的GTV直播中，郭文贵先生说，调查拜登的家族的事情会持续一到两年。这对GTV和GNEWS来说是一个巨大的机会。他还预测， 2021年1月 Nancy Pelosi 可能会成为临时总统，而到2021年2月份川普总统会在参众两院重新选举人票以后最终赢得选举。这也是本次选举滑稽的地方。如果各方最后确定外国势力干涉了美国总统选举，那么无论谁是总统，斩首行动或全面战争都无法避免。
+[视频来源](https://gtv.org/video/id=5fd7fa9e09267020eb51302e)
+全文：
 
-川普总统发誓要严查大选舞弊。他已向其近8000万选民承诺，一定会为他们战斗到底！现在看来川普总统应该不会离开白宫。
+立案调查是肯定的，调查拜登的家族的事情会伴随着你们一年到两年，这对咱GTV、GNews可是个好消息呀。咱们跟着报道嘛，更多人关注嘛，这是我们的机会啊，巨大的机会啊。所以说兄弟姐妹们，对咱是好事儿啊，天大的好事儿啊，对吧。
 
+那么接下来会发生什么事情？这个接下来18号，然后是20几号，然后到1月6号。如果在这个中间，没有在其他州司法和欺诈选票、选举，有巨大的一个反转的话，结果会是，到了1月6号可能是谁当总统了？由Nancy Pelosi当总统。记得文贵说过吗？参议院、众议院，Nancy Pelosi可能就当了临时总统。
 
+然后这个…这个事情呢，会继续往下…选举，经过以后再（被纠）正过来，最后欺诈选举被确立。然后再把这个最后参众两院共同选举总统、副总统。然后最后是川普赢，川普赢。
 
-> On Tuesday, White House officials sent an email to staff members about departure procedures before a new administration begins Jan. 20.
-> 
-> On Wednesday, a new email: “Please disregard the below message. Updated information will be shared in the coming days.” [https://t.co/8jLq7YMmpa](https://t.co/8jLq7YMmpa)
-> — The New York Times (@nytimes) [December 23, 2020](https://twitter.com/nytimes/status/1341799698508754944?ref_src=twsrc%5Etfw)
+也不排除1月6号或者是这个（月）15号宣布拜登是总统，但是这个事儿呢一直到1月6号最后。因为有争执不确定，对方不认，各州有诉讼，到达1月6号由Nancy Pelosi当总统。这才叫滑稽呢，最后总统还是川普总统。
 
+这个时间会到哪，知道么兄弟姐妹们？很有可能有百分之十、二十可能，到达2021年2月份。就2020年的年底你知道的结果，2021年1月份，Nancy Pelosi上去了。到2021年2月份川普总统才过渡过来，从参众两院重新选举人票以后，参众两院共同选举结果，任命总统、副总统。这个副总统很关键，可能就到2月份去了，对不对呀。
 
+文贵从来没说过，今天给大家说一下。所以说这才是叫美国大选，在这之前，对共产党的事情是最不确定的。如果说各方最后确定，这是外国势力干涉美国总统选举。证据确凿而且来自于某国，或者是共产党中南坑，那随时就是斩首行动，或者全面战争都随时开始了，这个是不管是谁当总统都是挡不住的。
 
-据纽约时报报道，本周二，川普白宫工作人员收到一份备忘录，要求其开始收拾打包，以为新总统就任做准备。但随即周二，白宫工作人员就收到停止打包的命令，并称“未来几天将会有更多消息。”
+翻译：【雷鸣（文鸣）】 校对：【gavinguo(文钦)】【Isaiah4031】【BruhM】字幕：【相机过热啊】 听写：【鹰(文言)】选题 & 听写校对：【Embracer牙牙】视频解码：【恒久忍耐】编辑：【Isaiah4031】
 
+喜马拉雅玫瑰园小队出品
 
-
-> Staff just received a new email this morning from the White House management office atop the below email. "Please disregard the below message. Updated information will be shared in the coming days." [https://t.co/FNtiCeawVm](https://t.co/FNtiCeawVm)
-> — Josh Dawsey (@jdawsey1) [December 23, 2020](https://twitter.com/jdawsey1/status/1341759079644065794?ref_src=twsrc%5Etfw)
-
-
-
-短评：大选已经到白热化阶段，但总总信号都暗示着川普必胜。
-
-
-
-发稿：瑞卡
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-+1
++2
