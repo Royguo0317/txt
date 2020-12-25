@@ -1,33 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 只有灭共、中美才能走向更加美好的未来
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/681514/)
+## 【热点播报】白宫要求川普团队开始打包，但随即被叫停
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/682450/)
 
-- 编辑:Victor Torres
-- 作者:土家部落
+香草山写作组：正义的小新
+
+川普总统发誓要严查大选舞弊。他已向其近8000万选民承诺，一定会为他们战斗到底！现在看来川普总统应该不会离开白宫。
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2020年12月24日电/西喜社**——
+> On Tuesday, White House officials sent an email to staff members about departure procedures before a new administration begins Jan. 20.
+> 
+> On Wednesday, a new email: “Please disregard the below message. Updated information will be shared in the coming days.” [https://t.co/8jLq7YMmpa](https://t.co/8jLq7YMmpa)
+> — The New York Times (@nytimes) [December 23, 2020](https://twitter.com/nytimes/status/1341799698508754944?ref_src=twsrc%5Etfw)
 
-中国军网12月23日转载新华社特约评论：《聚焦合作、中美才能走向更美好的未来》。文中提到明年是基辛格博士秘密访华50周年，双方接触后恢复关系，双边贸易快速增长，并在国际事务中多次合作办成了很多利于双方及世界的大事。但美国国内部分“反华(反共)势力”由于意识形态和个人政治私利，恶化中美关系，攻击中共及其政治制度，挑动中美“脱钩”，粗暴干涉中共国内政，胁迫其他国家“围堵”对抗中共国等等。
 
-这是中共一贯的宣传手法，事情搞砸了就打温情牌，文中只字不提中美建交后美国对中国的经济援助，帮助中国融入世界贸易体系，并向中国全方位开放市场，帮助中国培养了大量人才，美国只是怀有一个美好的愿望，希望中国人民有了富裕的生活，就会走向自由、民主的国家。
 
-美国是基督教立国的国家，人民崇尚自由、民主、法治，并在全世界推行普世价值希望全世界人民获得自由、民主的权利。这是中共的邪恶独裁体制最不能容忍的，而且中共的政治制度也无法融入西方文明体系。
+据纽约时报报道，本周二，川普白宫工作人员收到一份备忘录，要求其开始收拾打包，以为新总统就任做准备。但随即周二，白宫工作人员就收到停止打包的命令，并称“未来几天将会有更多消息。”
 
-如今世界民主浪潮汹涌而来，全球也没剩下几个独裁政权，为保住权力，除了高压维稳，加强洗脑宣传之外，通过建立网络防火墙进一步阻止人民获得真相，并且不断丑化甚至抵毁西方的民主、法治，放大社会阴暗面的宣传，造成墙内民众普遍的愚味和无知。
 
-美国无私的向中国敞开了大门，而中共却利用美国的善良干出了无耻的行为， BGY(蓝金黄)计划、3F(搞弱、搞乱、搞死)美国
 
-然而幸运的是有郭文贵先生引领的爆料革命击碎了中共的幻想，在中共将要全面完成对美国的渗透，黑暗降临之际，美国被唤醒了，在美国不断的反击制裁下，中共那“一切都是假的“第二大经济体己开始崩溃，内部人员也开始不断地弃船逃生，为逃避惩罚，中共竟然释放了中共病毒对全世界发动生化袭击。如今病毒真相己是中共的死亡通知书，新华社却发文重谈中美合作才有美好未来，目的何在？
+> Staff just received a new email this morning from the White House management office atop the below email. "Please disregard the below message. Updated information will be shared in the coming days." [https://t.co/FNtiCeawVm](https://t.co/FNtiCeawVm)
+> — Josh Dawsey (@jdawsey1) [December 23, 2020](https://twitter.com/jdawsey1/status/1341759079644065794?ref_src=twsrc%5Etfw)
 
-中共极权统治不同于一般的独裁政权，其政权最大的特点是善于欺骗、伪装、漠视生命，同时又非常残忍，凶狠，暂时的“韬光养晦”就是为了将来强大后的报复，而且决不手软。
 
-所以不灭中共，中美之间不可能有美好的未来，世界也不可能真正的安宁。只有自由、民主、法治和拥抱西方文明的新中国联邦政府，才能实现中美之间真正的合作，才能走向更加美好的未来。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+短评：大选已经到白热化阶段，但总总信号都暗示着川普必胜。
 
-0
+
+
+发稿：瑞卡
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
++1

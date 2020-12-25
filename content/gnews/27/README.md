@@ -1,51 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 病毒ADE效应未明前 中共国欲急打5000万剂疫苗
-` XMLYG777` [轉載自GNews](https://gnews.org/zh-hans/681577/)
+## 民主党国会议员候选人接受孔子学院资助
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/682508/)
 
-内新闻/素材：小韭菜a 校对：α-Vega
+新闻来源：the national pulse《国家脉动》； 作者：NATALIE WINTERS； 发布时间：2020年12月日
 
-本月，美国辉瑞和Moderna的疫苗在美国、加拿大、英国等国获得批准，而此时中共也急于推广自己的国产疫苗。 目前，中共推出的疫苗主要有两款，分别由国有企业「中国医药集团有限公司」(Sinopharm,简称：国药集团）和中国民营企业「北京科兴控股生物技术有限公司」（Sinovac Biotech,SVA)开发。这两款疫苗都是灭活疫苗，中共首批预计接种5000万人。第一针将于2021年1月15日接种完成，第二针于2月15日完成【1】。除了中共国，阿联酋和巴林先后也都批准了国药集团的疫苗。
+翻译/简评：Victory；校对：SilverSpurs7；审核：万人往；Page：拱卒
 
-中国国内因新冠肺炎官方病例较少，三期临床试验基本是在中国以外的国家进行，包括巴西，俄罗斯，沙特，阿联酋，巴林、约旦、秘鲁、阿根廷等。按惯例，新开发的疫苗一般都是等到三期临床试验结束，效果良好才会批准。然而中共国在三期临床试验还未完成时，便急匆匆要让5000万国人接种疫苗，这俨然有中共国一贯的“大跃进”风格。
+[!\[\]()!\[\](https://spark.adobe.com/page/AOd9gyfpCH9Bb/images/82eafe29-8b73-49e4-a51c-f628e0bf672e.jpg?asset_id=7aac60ba-6ed5-4a21-adb1-2e26a85edb91&amp;img_etag=%22def1ddbb6fe2a302b5df7684710322bb%22&amp;size=1024)](https://spark.adobe.com/page/AOd9gyfpCH9Bb/images/82eafe29-8b73-49e4-a51c-f628e0bf672e.jpg?asset_id=7aac60ba-6ed5-4a21-adb1-2e26a85edb91&amp;img_etag=%22def1ddbb6fe2a302b5df7684710322bb%22&amp;size=1024)
 
-在临床结果未出的情况下，贸然大规模接种疫苗，试问中共把人民的身体健康和生命安全置于何地？最近两个例子似乎能佐证中共的疫苗效果堪忧。12月11日，在非洲安哥拉感染新冠病毒的16名国企员工，在出国前统一接种了“国药集团”研发的疫苗【2】。同期，来自塞尔维亚的消息显示，天津电力建设公司在当地的400多名员工中有300人确诊新冠病毒。他们同样也在出国前接种过“国药集团”的疫苗，但是仍然被感染【3】。这很可能只是冰山一角，因为很多人不敢报告，害怕周围人不跟他们接触。
+#### **简评：**
 
-更加糟糕的是，目前病毒的ADE效应未明。ADE (antibody dependent enhancement) 是指抗体依赖性增强反应。这意味着，正常人感染过一次新冠或接种过疫苗后再次接触到新冠病毒时，自身的免疫系统会更加剧烈地反应。这不仅无助于预防感染，反而还有更高机率演变成重症。如果病毒可引发ADE效应的话，现在接种疫苗的人群，未来很可能依然会被感染并且会更加致命。
+本文曝光了民主党爱荷华州候选议员接受有中共国背景的孔子学院和另外一家学院资助的事实，这是典型的中共海外渗透手法之一，属于“蓝金黄”手段中的“金”。相信爱荷华州绝不是个案。中共很早之前就使用大量人力和资金支持潜在的政治力量上位，从而达到最终控制美国的目的。事实上，中共几近成功。
 
-甚至有消息表明，ADE很可能是被人为植入新冠病毒中的。闫丽梦博士指出，新冠病毒S蛋白里5个可以导致ADE效应的核心位置似乎不像自然进化而更像是基于对SARS的认知而人为插入的【4】。这将意味着，现在研发的所有疫苗都可能失效，而且还会置接种者于巨大健康风险中。
+在这次大选中我们已经看得非常清楚，中共对美国政府、国会、甚至法院都已控制到何等地步。所幸，中共最终功亏一篑，美国正在觉醒，一切趋势正在逆转，中共快结束了。
 
-出于国产疫苗安全性考虑，很多国人对接种疫苗持抗拒态度。据悉，上海杨浦中医医院11月末做了一次摸底调查，逾九成医护人员拒绝接种国产疫苗。另外，网传中共政府部门聊天群截图，尽管官方发出「紧急通知」，但政府部门无人报名「免费接种」疫苗【5】。
+#### **原文翻译：**
 
-文章仅代本表本人个人观点。
+# 民主党国会候选人接受与共青团相关的中共国公立学校的资助
 
-新闻来源：
-【1】[https://www.rfi.fr/cn/中国/20201222-中国疫苗急种5000万人-港媒罕见让官方先讲清楚](https://www.rfi.fr/cn/中国/20201222-中国疫苗急种5000万人-港媒罕见让官方先讲清楚)
-【2】[https://www.backchina.com/news/2020/12/17/722838.htm](https://www.backchina.com/news/2020/12/17/722838.htm)
-【3】[https://news.creaders.net/china/2020/12/16/2300227.html](https://news.creaders.net/china/2020/12/16/2300227.html)
-【4】[https://twitter.com/DrLiMengYAN1/status/1341044634538172416](https://twitter.com/DrLiMengYAN1/status/1341044634538172416)
-【5】[https://www.epochtimes.com/b5/20/12/23/n12640870.htm](https://www.epochtimes.com/b5/20/12/23/n12640870.htm)
-[天津强推疫苗致数百人感染 冷链员工恐再受害](http://天津强推疫苗致数百人感染%20冷链员工恐再受害)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24090010/20201216_16081492276351.png)
-[Dr. Li-Meng YAN (@DrLiMengYAN1)](http://Dr.%20Li-Meng%20YAN%20%28@DrLiMengYAN1%29)
-Here I list 5 core AA in SARS-CoV-2 spike, which induce “infectivity-enhancing antibodies”-ADE, according to JP scientists.
-AGAIN, these features are more closed to SARS than ZC45/ZXC21.
-Are these ADE sites from natural evolution? Or inserted based on knowledge gained on SARS?
-Retweets
-2326
-Likes
-4446
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24090345/EpxY9SkW8AEOIVq.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24090351/EpxY-c-W4AEZbjP.jpg)
-Twitter•2020/12/21
-大紀元 www.epochtimes.com
-[【役情最前線】傳中共體制內拒國產疫苗 – 大紀元](http://【役情最前線】傳中共體制內拒國產疫苗%20-%20大紀元)
-香港壹傳媒創辦人黎智英獲准以1000萬元保釋；北京傳出欲改組香港特首選委會，踢走民主派區議員；最後淨土南極洲也爆疫情，變種病毒入港；大陸疫苗安全堪憂，陸專家：讓領導先打；網傳體制內集體拒打大陸疫苗；北上廣深罕見停電，中國再爆糧荒危機。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24090358/a20640d488003c6376bfcfa0ad479deb-700x359-1.jpg)
-RFI – 法国国际广播电台
-[中国疫苗急种5000万人 港媒罕见让官方先讲清楚](http://中国疫苗急种5000万人%20港媒罕见让官方先讲清楚)
-中国原上海疾控中心免疫规划科疫苗医师陶黎纳12月20日透露，中国首批新冠疫苗预计接种5,000万人次，首针将于明年1月15日接种完成，第……
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24090837/zym.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24090926/image0-201.jpg)
+**最近，一名2020年民主党国会议员候选人被曝出在爱荷华州参选时，有两家与中共相关的公司给她资助。**
+[!\[\]()!\[\](https://spark.adobe.com/page/AOd9gyfpCH9Bb/images/8d50e9a3-979d-4557-95fe-4f4d8d0a896a.png?asset_id=9e9868c0-eea5-4125-bc9a-d4c909769701&amp;img_etag=%2271d04e5b35ce9abe9631219825d26dab%22&amp;size=1024)](https://spark.adobe.com/page/AOd9gyfpCH9Bb/images/8d50e9a3-979d-4557-95fe-4f4d8d0a896a.png?asset_id=9e9868c0-eea5-4125-bc9a-d4c909769701&amp;img_etag=%2271d04e5b35ce9abe9631219825d26dab%22&amp;size=1024)丽塔·哈特（Rita Hart）
+在爱荷华州第二选区竞选中仅以6票输给玛丽安特·米勒·米克斯（Mariannette Miller-Meeks）的丽塔·哈特（Rita Hart）的财务披露显示，她从孔子国际教育集团（CIEG）获得3180美元，从磐基雅国际学院获得2135美元。
 
+孔子国际教育集团在爱荷华州创建了一所学校，在一年的课程结束后接收中共国的外籍交换生，这样他们就可以继续留在美国。民主党众议员埃里克·斯瓦维尔（Eric Swalwel）与一名在加州某大学学习的中共国情报人员有关系，随后也有经济上的关联。
 
+“精确传媒”在对哈特进行联邦选举委员会投诉时挖出的这些经济关系，实际上是把哈特放在了中共的资助名单上。
+
+这两家实体都是由中共国有租赁公司远东宏信提供资金。其股东之一为中化集团，其领导层中有参与共青团的前中共国政府官员。
+
+[原文链接](https://thenationalpulse.com/breaking/iowa-candidate-chinese-payroll/)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/AOd9gyfpCH9Bb/)
+[!\[\]()!\[\](https://spark.adobe.com/page/AOd9gyfpCH9Bb/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/AOd9gyfpCH9Bb/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

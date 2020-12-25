@@ -1,31 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国国会两院快速通过9000亿美元刺激法案，利益集团瓜分5500多页！
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/678006/)
+## 喜讯！班农先生《战斗室》荣登美国政论播客榜首
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/682164/)
 
-作者：楼兰古城
+新闻来源：The National Pulse《国家脉动》； 作者：写作组； 发布时间：2020年12月21日
 
-参议院本周一晚间以91票赞成、7票反对的投票结果批准了抗疫纾困方和一项全年支出议案，众议院以359票赞成、53票反对通过了这个纾困方案后者将为政府提供拨款至明年9月。
+*翻译/简评：狙击手维克多；校对：X-Wing飞得更高；审核：johnwallis；Page：小雨*
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23035808/900.png)
+[!\[\]()!\[\](https://spark.adobe.com/page/bi9ZkRehIvLWU/images/3d6e5e69-4d70-4d97-a9d1-b7db5daa78c4.jpg?asset_id=fd10cd5e-e582-474c-a7c8-2cf3d8a74840&amp;img_etag=%2236f18acfed96b060315047c3301acd9f%22&amp;size=2560)](https://spark.adobe.com/page/bi9ZkRehIvLWU/images/3d6e5e69-4d70-4d97-a9d1-b7db5daa78c4.jpg?asset_id=fd10cd5e-e582-474c-a7c8-2cf3d8a74840&amp;img_etag=%2236f18acfed96b060315047c3301acd9f%22&amp;size=1024)
 
-该法案是历史上第二大刺激法案，仅次于今年早些时候通过《CARES 法案》，众议员托马斯·马西（Thomas Massie）（R-肯塔基）在推特上表示，众议院投票通过了不到8个小时的大规模支出措施。两家航空公司将再次获得150亿美元的救助。这是在《 CARES法案》中获得250亿美元的美国航空承运人之上的。
+# **喜讯！班农先生《战斗室》节目荣登美国政论播客榜首**
 
-其中每5美元中，就有4美元分配给了各个利益集团，甚至世界各国或组织，而80%的美国民众，只能分得剩下的1美元。以下只是其中一小部分例证：
+**简评：**
 
-给史密森尼公司10亿美元；向肯尼迪中心投资4000万美元；1.54亿美元给国家美术馆；向国家艺术与人文基金会捐赠1.67亿美元；向威尔逊中心投资1400万美元；向以色列提供5亿美元的外国援助；向埃及军方提供13亿美元；向巴基斯坦提供2500万美元，包括“性别计划”；向乌克兰提供4.53亿美元；向苏丹提供7亿美元；14亿美元用于实施《亚洲保障计划法案》中的美国外交政策目标；1.3亿给尼泊尔；向柬埔寨提供8550万美元；向缅甸提供1.35亿美元，等等。
+斯蒂芬•班农先生是爆料革命的坚定支持者，是新中国联邦建国典礼的见证者，班农先生《战斗室》节目近日荣登美国政论播客排行榜榜首，该节目的成功，是“平民主义”和“唯真不破”理念的践行与成功。班农先生《战斗室》的成功也离不开文贵先生，尤其是班农先生对中共国的情报、理解和分析离不开文贵先生。班农先生的成功也意味着爆料革命的思想价值观正在成为世界上越来越多国家民意的主流。《战斗室》的成功也预示着，随着美国230法案的废除，爆料革命、G-TV、G系列也将大放异彩，成为世界的主流！
 
-美国总统川普称该刺激配套“耻辱”，要国会为美国人民提供多三倍的救援金。
+衷心祝愿：民主大旗无坚不摧，新中国联邦无往不胜！
 
-同时川普总统在推特上发布视频说，他命令国会修改法案，“给予每个人600美元少得离谱，应该提高到2000美元，或给每对夫妇4000美元。”
+[!\[\]()!\[\](https://spark.adobe.com/page/bi9ZkRehIvLWU/images/81fe4c74-2d1f-4051-bdef-e98cb605a888.jpg?asset_id=a889aabb-4a65-4e93-866d-23a5f6e10a1b&amp;img_etag=%22df7c74ec5f4d58fd5d8d398ed710ae61%22&amp;size=2560)](https://spark.adobe.com/page/bi9ZkRehIvLWU/images/81fe4c74-2d1f-4051-bdef-e98cb605a888.jpg?asset_id=a889aabb-4a65-4e93-866d-23a5f6e10a1b&amp;img_etag=%22df7c74ec5f4d58fd5d8d398ed710ae61%22&amp;size=1024)
 
-与中共缠绵的参议员米奇·麦康奈尔（Mitch McConnell）称其为“历史性的救援方案”。
+**原文翻译：**
+[!\[\]()!\[\](https://spark.adobe.com/page/bi9ZkRehIvLWU/images/0dd0e827-3fe1-4441-b084-46a9a5f553b5.jpg?asset_id=22e721a4-3f33-4f1a-9df4-f651734a4c5d&amp;img_etag=%22544a28c3cb1aad3325df3a40fc3765dd%22&amp;size=2560)](https://spark.adobe.com/page/bi9ZkRehIvLWU/images/0dd0e827-3fe1-4441-b084-46a9a5f553b5.jpg?asset_id=22e721a4-3f33-4f1a-9df4-f651734a4c5d&amp;img_etag=%22544a28c3cb1aad3325df3a40fc3765dd%22&amp;size=1024)
+图片由STUART MITCHELL提供
 
-我们从该法案9000亿美元里支付的帐单来看，大部分都被全球利益集团瓜分，美国民众可以分到的微乎其微，已经不是救助美国中产阶级大部分成员的法案，是一个分赃大会。代表美国普通老百姓利益的川普总统一定会拒绝，而作为利益集团的麦康奈尔，与其说厚颜无耻，不如说他代表了全球利益集团。美国人会明白谁在为他们说话，5500多页的账单报告，众议院花费不到8小时就看完了？谁能做得到？美国的两会已经背离了让美国人得到福祉的使命，转向为利益集团提供祭品（牺牲美国中产阶级等大部分普通人群的利益）实属不该，这是美国历史上的耻辱！
+**斯蒂芬•班农先生的《战斗室》节目（Steve Bannon’s War Room）自2019年10月开播以来，首次在政论播客排行榜荣登首位。**
 
-【文章仅代表作者个人观点】
+该节目最初的名字是《战斗室：弹劾》（War Room: Impeachment），由班农先生与川普助手杰森•米勒（Jason Miller）合作搭建，以独树一帜的观点、不跟从主流媒体的步调为节目特点。从节目更名为《战斗室：疫情》开始，每集节目由《国家脉动》（The National Pulse.）的编辑拉希姆•卡萨姆（Raheem Kassam）、杰克•麦克西（Jack Maxey）、格雷格•曼兹（Greg Manz）和特别嘉宾组成。该节目由班农先生的长期合伙人、电影制片人丹•弗莱埃特（Dan Fleuette）监制。
 
-[援引](https://schiffgold.com/key-gold-news/stimulus-for-everybody-just-not-you/)
+《战斗室》位居美国政论播客排行榜前几名已长达数月之久，并终于在12月荣登榜首。
+
+《战斗室》每天在美国东部标准时间上午10点播出，不仅已经成为了“悲催群体”（the deplorables）和“美国优先”（America First）的中流砥柱，同时也广受金融界意见领袖、新闻记者和编辑的追捧。
+
+《战斗室》还赢得了从澳大利亚到奥地利、从英国到印度等多国观众的好评。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/bi9ZkRehIvLWU/images/975c5084-8018-4c61-be8d-ef0f8410c941.jpg?asset_id=0404316a-36b1-4347-b84c-aa22da3c15a6&amp;img_etag=%22fc9f413cdba56cf481df7161f60a93c1%22&amp;size=2560)](https://spark.adobe.com/page/bi9ZkRehIvLWU/images/975c5084-8018-4c61-be8d-ef0f8410c941.jpg?asset_id=0404316a-36b1-4347-b84c-aa22da3c15a6&amp;img_etag=%22fc9f413cdba56cf481df7161f60a93c1%22&amp;size=1024)
+
+哇！——感谢所有人订阅及分享#WarRoom播客（注意！注意！免费订阅！）
+
+这不是我们的秀，这是你们的秀！
+
+立即订阅并联系我们＃1：[https://t.co/Wqsq27zSfl#WarRoomPandemic #policy #news #podcast #pandemic #ccp #usa #deplorables pic.twitter.com/VLjiQ12ypc](http://warroom.ctcin.bio/)
+
+——拉希姆•卡萨姆（[@RaheemKassam](https://twitter.com/raheemkassam)）2020年12月21日
+
+[原文链接](https://thenationalpulse.com/breaking/bannons-war-room-hits-1-political-podcast-in-america/)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/bi9ZkRehIvLWU/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/bi9ZkRehIvLWU/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/bi9ZkRehIvLWU/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

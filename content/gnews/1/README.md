@@ -1,24 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 圣诞礼物泡汤！美众议院否决新纾困法案
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/681989/)
+## Trump Tweeted a Video Pointing at CCP, CCP Acts in a Play to Investigate Alibaba
+` 恩典农场` [轉載自GNews](https://gnews.org/zh-hans/682920/)
 
-- 编辑：Victor Torres
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24203157/%E6%81%A9%E5%85%B8Gnews-logo-1-3.jpg)
 
+(December 24, 2020. LuDe Media, Morning News, LuAnMoTang Talk)
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+(Editor/Auditor: **WenbaoPorsche** Translator:  **Arvin**)
 
-**西班牙2020年12月24日电/西喜社—**
+**Summary**: For the first time, President Trump sent out a video via Twitter directly crusading against the CCP, counting the various crimes it has committed against all humankind. After Barr’s departure, Trump immediately tweeted to appoint a special prosecutor explicitly. The CCP pretended to investigate Alibaba in the name of anti-monopoly, and the left media reported the news collectively, which is a joint play of multiple parties, intending to preserve the listing status of Chinese stocks.
 
-周四上午，美国众议院投票否决了给每位美国人2000美元的新纾困法案。
-这是南希·佩洛西（Nancy Pelosi）确保法案失败的绝招。
-她所需要的只是一个反对意见，就能确保投票失败。她做到了。
-她本可以召集整个众议院投票，但她没有。 因为她只懂得玩政治和惩罚美国人。
-而且，当然，众议院的共和党人们违抗了川普总统。
-周二，川普总统在白宫发表了关于中共病毒救济法案的讲话，他呼吁国会重新制定周一晚上通过的价值9000亿美元，长达5593页的法案。代之以向美国人提供每位成人2000美元或每对夫妇4000美元的款项。 之前参众两院通过的法案仅向每位成年美国人支付600美元，但为有非法外国人配偶的美国家庭提供1800美元。
-川普指出该法案将巨量美元给了外国和特殊利益集团，与之相比，美国人仅为600美元。 川普还呼吁为小企业，尤其是餐馆，提供更多的救济。
+**1. President Trump Tweeted a Video Pointing at CCP**
 
-新闻链接：[https://www.thegatewaypundit.com/2020/12/no-christmas-present-gop-lawmakers-defy-president-trump-2000-checks-americans-fails-thanks-pelosis-tricks/](https://www.thegatewaypundit.com/2020/12/no-christmas-present-gop-lawmakers-defy-president-trump-2000-checks-americans-fails-thanks-pelosis-tricks/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/12143133/c032d95b-7e6a-4d6f-98ec-36d0e12f2b22.jpg)
+This professionally produced video integrates the major threats to the world and all mankind since the CCP’s inception. These three-dimensional wars beyond limits include comprehensive infiltration into the United States in the areas of politics, economics, entertainment, and education, the destruction of American spirituality, culture, and history, cyber and viral attacks, BLM movements, election rigging, etc. The video ends with the direct use of the word CCP Virus. This video confirms the truth about the CCP’s 3F Plan (Foment weakness, foment chaos, and foment destruction of America) against the United States that the Explosive Revolution has been constantly exposing for three years, and it is a video version of the diatribe declaring war against the CCP.
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24204019/20201211-104100_U1085_M659612_82ea.jpg)
+
+**2. President Trump Confirms to Appoint a Special Prosecutor to Investigate Election Fraud**
+
+After seeing the massive voter fraud in the 2020 presidential election, he said, I disagree with those who said that “a strong, fast, fair special investigation is not what is urgently needed”. This is the most corrupt election in our nation’s history and must be thoroughly investigated. President Trump chose to send this tweet immediately after Barr left the Justice Department, suggesting that there are no obstacles to appoint an independent prosecutor and will be implemented soon.
+
+**3. The Trick Behind Investigation into Alibaba’s Alleged Monopoly**
+
+When Alibaba was about to face the fate of delisting, it was investigated by the Chinese Communist government in the name of anti-monopoly, with only one purpose: both sides acted in a play to preserve Alibaba’s listing status. Specifically, the CCP pretended to investigate so that Alibaba would have the evidences needed in a U.S. court to prove that it was not controlled by the CCP government. If that investigative evidences are still not enough, the CCP may conduct a fake split of Alibaba, divest fake or non-compliant businesses and assemble a compliant-looking company to keep Alibaba’s listing status. Now the BBC, CNN and other left media are trumpeting the investigation, intending to set the mood for the next trick the Communist Party will play.
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24204101/RTS20USN-e1538102168135.jpg)
+
+The Americans probably can’t imagine that unlike their anti-monopoly investigations that would actually split up the company under investigation, while there is an absence of privatization of property in the communist China, any form of anti-monopoly investigation is an act for foreigners to watch. The investigation of a company is fake, the split is also fake, and the company before and after the split still belongs to one owner – the CCP. If this trick of Alibaba is successful, other Chinese stocks will adopt similar tricks next to keep their listing status.
+
+**4. Apple Being Pressured by CCP to Remove Thousands of Game Apps**
+
+Four years ago, the Chinese Communist government mandated that game apps must be licensed before they can be released. However, with Apple’s implicit approval, developers have been able to bypass this requirement to release apps. This year, Apple began closing the loophole under intense pressure from the CCP, and has recently accelerated the removal of apps.
+
+**5. Iranian President Issued Hanging Order to Trump**
+
+This news from Sina Finance said that the Iranian president predicted that Trump would “end up” being hanged like Saddam.
+
+#CCP\_is\_terrorist   #TakeDownTheCCP
+
 0
