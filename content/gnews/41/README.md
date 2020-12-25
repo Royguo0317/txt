@@ -1,62 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 地方政府放权发债，中共债务危机拟暴雷
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/683187/)
+## 全世界和我们一起灭共
+` TINALS` [轉載自GNews](https://gnews.org/zh-hans/683277/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+在2020年12月23日的盖特视频中，郭文贵先生说中共国家安全委员会把解决缺粮的问题和防止挤兑排在国家安全最紧急的位置。现在跟非洲国家商量，把非洲的农作物要拿人民币进口，听说非洲一开始都说愿意要人民币，但昨天基本上都拒绝了。中国外交部写了报告，说全世界据了解超过120个国家正在酝酿、商量排查属于中共党员和政府的工作职员所有的名单，包括国有企业。很多国家政府都知道病毒是共产党的生化武器，可怜这全世界因为钱都泯灭了良心，没有了一点智商。全世界集体的暴露让世界和我们一起灭共。
+[视频来源](https://gtv.org/getter/5fe40c9f93a06b22d9e0de05)
+It’s December 23, Brother Miles just finished showering, I just got out of the shower. I’ve been in meetings all day until now, with less than ten minutes of break, for almost twelve hours. It’s great. Before showering, I received a call from a friend in China. Said friend, who may not be a brother-in-arm, told me about the situation in China, and it was just – BIAs, is there food shortage in China? How bad is the food shortage in China? Yesterday afternoon, the National Security Commission of the CCP ranked resolving the food shortage at the top. Preventing large-scale financial security incidents – basically, bank runs – and not letting you withdraw your money has also been deemed a matter of national security. Having no food and not being allowed to withdraw money will lead to large-scale protests and even riots; a riot is when the people speak out peacefully. These have been ranked at the top of national security issues.
 
-校对 文宣 银河   上传 银河
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24225108/25brautigam-master1050.jpg)图片来源：纽约时报
-2020年12月09日，中共财政部制定了《地方政府债券发行管理办法》（以下简称《办法》），自2021年1月1日起施行。重要条目有:
+12月23号，现在是你们看到的七哥是刚刚淋浴完，刚刚出了淋浴后的。现在你们的七哥，今天从开会到现在大概中间停不超过10分钟，开了将近12小时的会，很好。刚刚在冲浴前，收到了咱们国内的朋友的电话，国内的朋友不一定是战友，听到他讲国内的情况简直是，战友们国内缺粮了吗，缺粮缺到啥程度了，昨天下午中共国家安全委员会，把解决缺粮的问题排在首位，防止金融大规模的治安事件，也就是挤兑，不让你取钱，放在了国家安全的位置，因以上没粮食不让取钱，导致社会的大规模的抗议、上街，甚至所谓的暴乱、骚乱，啥叫暴乱？就是说老百姓和平发声呗，排在国家安全最紧急的位置。
 
-1. 地方政府依法自行组织本地区地方政府债券发行和还本付息工作。地方政府债券发行兑付工作由地方政府财政部门负责办理。地方财政部门应当切实履行偿债责任，及时支付债券本息，维护政府信誉。
-2. 地方财政部门应当根据项目期限、融资成本、到期债务分布、投资者需求、债券市场状况等因素，合理确定债券期限结构。
-3. 地方财政部门应当按照财政部有关规定积极通过商业银行柜台市场发行地方政府债券，不断拓宽地方政府债券发行渠道，便利个人和非金融机构投资选择[1]。
+They also said that no matter what, do not have any conflicts with Americans in the South China Sea. If there is no other way, just attack Taiwan. Attack Taiwan to solve internal problems. Banks are done for, all the overseas Chinese enterprises that swindle US dollars are done for, and food is running out. They are negotiating with countries in Africa to import their crops using Chinese Yuan. I heard that those African countries were willing to take Chinese Yuan at first, but yesterday they almost all declined. Such a huge change in less than 48 hours, all declined. Chinese nationals cannot study abroad; those abroad are being sent back to China.
 
+而且说无论如何在南海，跟美国人都不要有冲突，不行就打台湾，解决内部的问题要打台湾，银行完了吧，所有在国外的所谓的，骗美金的中资企业完了吧，没粮食了吧，现在跟非洲国家商量，把在非洲进行的农作物要拿人民币进，听说非洲一开始都说愿意要人民币，昨天基本上都拒绝了，不到48小时这么大的变化，都拒绝了，中国人不能出国留学，出国留学的被撵回去。
 
-地方政府债务是地方经济一个非常严重的问题，是中共经济最大的雷爆点。据预估，许多地方政府在2021年都会进入事实上的破产。
+Furthermore, China’s Ministry of Foreign Affairs has, for the first time, written a report to the National Security Commission – so, the Politburo – that says more than 120 countries in the world are planning and discussing the checking of a list of all Chinese Communist Party members and government employees, which may very well trigger the world to be against the CCP and against the overseas Chinese government employees, including people from state-owned Chinese enterprises. The Ministry of Foreign Affairs says that other governments are ready to stand with the US regarding the CCP-controlled state-owned Chinese enterprises. Many countries will investigate their government officials of the past decade, from 2012 until now, concerning where the money from bailouts and loans they received from China went. Most went to kickbacks. I heard that a few bastards in Europe are scared. They are scared. How can they explain this? They took so much kickbacks.
 
-2020年1-11月，全国发行地方政府债券62602亿元。其中，发行一般债券22305亿元，发行专项债券40297亿元；按用途划分，发行新增债券44945亿元，发行再融资债券17657亿元[3]。其中一般债用于维持政府一般日常的正常运转等，专项债用于地方基建等。前者用于借新还旧弥补赤字，后者用于地方的建设与发展。而由于债券到期后，要借新还旧，一来一去，真正能用的是新增债券44945亿[4]。
+而且中国外交部第一次，给国家安全委员会也就是常委坑写了报告，说全世界据了解超过120个国家，正在酝酿、商量排查属于中共党员和政府的工作职员所有的名单，很有可能引发全世界的，反共、反中国政府的海外的工作人员，包括国有企业，外交部说，各国政府正都准备和美国一起，对中国共产党控制的国有企业，包括很多国家现在要查当时，过去这十多年、2012年到现在，这十多年的当时执政的政府官员，在中国所得到的就救助和贷款去向，大多数是回扣了嘛。据说，欧洲的几个混蛋害怕了，害怕了，咋交代啊？吃那么多回扣。
 
-财政部放权地方政府发债是一种新的变化。此前，地方债都是由财政部帮地方政府发债，借到钱后将钱再给地方政府。因此，财政部必须按照所谓“先来后到”的顺序帮30多个省依次发债，在时间上有的地方诸侯不是太着急，有的就催的很紧。现在，财政部就不做这个累活，放权交给地方政府自行发债，自己去借钱。着急的就早发债，给的利息高一些；不着急的就晚发债，给的利息低一些，由地方政府自己抉择。
+Many governments believe that this virus, they know that this virus is the CCP’s bioweapon. They also know that if they do not hold the CCP accountable, their people won’t accept it. So what to do? Many are suggesting that the Chinese government should place the blame on select employees of the Wuhan lab for leaking the virus intentionally or unintentionally and stop arguing whether this virus came from nature. Just say that it was leaked from the lab unintentionally or leaked by certain people, or that it was leaked to exact revenge on society. They suggest to the CCP to file a case and investigate quickly. The CCP, do you think the CCP’s tricks are good? Not at all, but unfortunately, the entire world has discarded its conscience for money, completely mindless. God has really given us the greatest opportunity to take down the CCP. The world has been exposed and will take down the CCP with us together.
 
-每年全国人大审批来年全国总地方性债务，如2019年审批的额度大约是25.8万亿[2]，然后财政部就根据总债务进行划拨。有的地方政府经济条件好、与上层关系近，就多分一些，否则少分一些，中央政府用这种方法控制住地方政府财政，这样全国总地方性债务就被划拨完。因为有全国人大审批和财政部的把关，这部分地方性债务即便出了违约情况，中央财政也会想办法给解决，帮助地方政府兜底。因此，上述25.8万亿基本是有信用保证的债券，风险并不高。
+而且很多国家政府都认为这个病毒，都知道，明净的共产党干的生化武器，而且大家都知道，甚至很多人都说，不给共产党究责，将对自己的国民没办法交代啊，怎么办？很多人谏言中国政府应该将这个责任，归咎在武汉实验室部分人员故意泄露，或者是非故意泄露上，不要再纠缠于所谓来自于自然和人了，就说是实验室非故意泄露或部分某些人泄露，或者报复社会泄露，建议中共赶快要立案查处这事，共产党啊共产党，你说他完这个招儿高不高？一点儿都不高，可怜这全世界因为钱都泯灭了良心，没有了一点智商，上天真的是给了我们最大的机会–灭共。让全世界集体的暴露，并和我们一起灭共。
 
-问题的关键在隐性债务上，也就是地方政府未通知中央政府，悄悄的借的那部分没有财政部背书的债务。虽然地方经济关乎官员仕途，但原预算法规定，地方各级预算按照量入为出、收支平衡的原则编制，不列赤字[5]。也就是只能在预算中列出能花的那些钱，债务不能列入预算。在这条红线下，原来的官员即便借债，规模也不大，因触碰了可能会影响仕途。
+听写：【彩虹桥】翻译：【noraTina】字幕：【Naomi (文花开)】视频解码：【恒久忍耐】编辑：【TINALS】
 
-2008年发生全球金融危及后，温家宝推出了4万亿经济刺激计划。这是一笔空前的巨款，相当于中央政府2007年全年财政收入的80%。同时是当年美国1680亿美元经济刺激方案的3.5倍。中央政府其实也没有那么多钱，于是约定1:1比例出资。各省政府仍旧愁眉苦脸，温政府就提出一种方案。**既然各地方政府不能举债，那就由地方的国有企业出面搞融资平台，通过融资平台举债，然后转送给地方政府**。这相当于释放了一个经济的怪兽，等同于原预算法失效，而且借债额度也绕过了人大审批和财政部审批，地方政府欢呼雀跃，竞相搞融资借债。也就是说，地方融资平台的崛起，与中共应对经济危机的投资计划同步。
-
-地方政府为了政绩，不计成本搞大基建。如市长在任期内会想方设法通过地方融资平台举债，将城市建设的外表看起来光鲜亮丽，哪管到底借了多少钱？只要得到上峰的肯定，就能高升一步，届时的债务烂摊子由续任想法继续借新还旧，捂着烂摊子。明明知道地方财力无法偿还各种债务，为了升官而饮鸩止渴的做法到处发生。
-
-2014年已预感天量不良地方性债务是个会导致社会动荡的问题，于是中共国务院刊发了《国务院关于加强地方政府性债务管理的意见》，简称43号文件[6]。规定从2015年开始，地方政府只能通过债券形式进行，而且现有地方政府的隐性债务到2017年截止，全部要转为正规的债券形式。43号文相当于，中央财政放弃了原预算法要求的，地方政府不能将赤字列为预算，不能发债的规定。交换条件是，允许地方政府举债，来要求地方政府把所有无法监控风险的桌子底下的隐性债务，都统统放到桌面上来，利于控制金融风险。
-
-但此事并没有彻底解决，因为当初很多举债并没有合法手续，也就没登记。这部分隐性债务一直在不断扩大。再者，由于政治上的独裁，地方政府官员权利极大，基本是一言堂。市长要求去借钱，没有人敢反对，后期逐渐发展为借钱就没打算还。
-
-2020年底为止，很多地方政府融资平台的债务陆续到期，可融资平台的钱已经被地方政府抽的七七八八了。与中央政府通过的25.8万亿的债务不同，地方政府融资平台的债务中央财政不兜底，但地方政府也无力还钱。如果还不上钱，就会出现债券市场和金融融资平台的雷爆。
-
-2018年，据中共财经官员爆料，中共国国企负债约为95万亿元（1元人民币约合0.158美元），地方政府债务也逼近40万亿元。而上述中共国地方债40万亿元，指的是“明债”，尚不包括例如地方融资平台债务的“隐性债务”。名目繁多的地方政府“隐性债务”，到底有多少目前尚不清楚。中共国全国政协经济委员会副主任刘世锦此前演讲称，“**从调研过的地方来看，至少不低于‘明债’，有的达到3倍**”[7]。
-
-2020年下半年，陆续出现各种地方金融雷爆事件就是2008年过度使用金融杠杆种下的恶果。上访维权的金融难民纷纷被拘留，哭诉无门，无人为其伸冤，这是因为地方政府就是始作俑者。他们不会解决问题，只会解决提出问题的人。
-
-另外一方面，由于政府信用度低，持续金融雷爆事件也会影响政府在2021年的发债。即便给出较高利息，恐也少有人愿意再购买债券，而若无足够融资资金，会导致某些地方政府在2021年直接猝死。
-
-此时出台《办法》就是为了让地方政府想办法解决资金，度过财政困难。解决问题就是要把到期债务还掉，重新建立信用。可当隐性债务已超过明债3倍以上，何况还有天量无法查清的隐性债务时，不但地方政府换不上钱，中央政府也无力偿还。《办法》就是中央政府告诉地方政府，自己的债务自己解决，中央无力兜底了。难道还要再继续发新债么，是否有作用，就拭目以待吧。
-
-参考链接
-
-[1] [关于印发《地方政府债券发行管理办法》的通知](https://www.sohu.com/a/440009518_561670)
-
-[2] [专题研究 | 地方债管理迈向新台阶——简评《地方政府债券发行管理办法》](https://m.21jingji.com/article/20201224/herald/125487da6e3680409a8d6fdcc7bf1954.html)
-
-[3] [财政部：截至11月末全国地方政府债务余额255595亿元](http://www.chinanews.com/cj/2020/12-23/9369403.shtml)
-
-[4] [中国因应经济下滑新政: 大规模降关税, 放权地方发债](https://www.westca.com/Forums/viewtopic/t=1255269/lang=schinese.html?utm_source=westca&amp;utm_medium=newest&amp;utm_campaign=home_forum)
-
-[5] [​规范政府财政行为 保证政府债务健康发展](http://www.moj.gov.cn/news/content/2020-08/26/zcjd_3254899.html)
-
-[6] [国务院关于加强地方政府性债务管理的意见](http://www.gov.cn/zhengce/content/2014-10/02/content_9111.htm)
-
-[7] [中国央行高官炮轰财政部 温家宝4万亿救市十年大考](https://www.dwnews.com/%E4%B8%AD%E5%9B%BD/60071374/%E4%B8%AD%E5%9B%BD%E5%A4%AE%E8%A1%8C%E9%AB%98%E5%AE%98%E7%82%AE%E8%BD%B0%E8%B4%A2%E6%94%BF%E9%83%A8%E6%B8%A9%E5%AE%B6%E5%AE%9D4%E4%B8%87%E4%BA%BF%E6%95%91%E5%B8%82%E5%8D%81%E5%B9%B4%E5%A4%A7%E8%80%83)
-
-+2
+喜马拉雅玫瑰园小队出品
+![]()![](https://gnews.org/wp-content/uploads/2020/12/footer_t_new.png)
++4

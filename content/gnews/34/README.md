@@ -1,47 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “再无归途！” 中共官方媒体负责人以被迫害的维吾尔人的命运威胁蓬佩奥
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/683313/)
+## 疯狂的茅台
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/683362/)
 
-翻译：康州盘古农场 – Antsee-GTV
+撰稿：**墨文**
 
-校对：康州盘古农场 – 烟波浩淼
+编辑：jim大叔
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25001015/phpAOytZ8.jpg)（图片来自网络）
+2020年平安夜对于贵州茅台的中小股民来说注定是一个不眠之夜。据茅台集团2020年12月24日发布的公告称: ‘茅台集团拟通过无偿划转方式将持有的本公司50,240,000股股份（占本公司总股本的4.00%）划转至贵州省国有资本运营有限责任公司。’据当日收盘价计算,本次无偿转让价值900亿人民币。
 
-编辑：康州盘古农场 – Rose
-![](https://lh3.googleusercontent.com/e6oBVyAh3-uxV6njt4S8XutFmASiOgxsJu8Ycl_ZcO_VC8Q9JPYlvdKuzuZvSSTV_eXuRVYKo9E7K6385HOulfKoev13pPM2PkhLx4HUTGx9CLUP5UyV5xS2zK_gfdf1t4fCqa3LKS8b_UZ3NA)
-***《中国日报》欧洲局局长陈卫华以受到中国共产党迫害的群体（如维吾尔人）同样命运威胁美国国务卿麦克·蓬佩奥（Mike Pompeo），并保证他“肯定不会幸免”。***
+茅台集团是贵州国资委下属企业,此次转让是贵州国资委下令要求其无偿转让。2019年圣诞节贵州国资委也是下令茅台集团无偿转让股份5024万股, 贵州国资委已经套现700亿人民币。
 
-因《中国日报》由中共政权自己的宣传部拥有和运营，因此陈卫华是中国共产党的喉舌。
+这样的操作方式非常类似中国官场年底 ‘送礼’ 的习惯。下属企业给上级主管单位 ‘进贡’ , 既能保住自己的官位, 又能’帮助’领导解决财政困难, 让自己以后可以在官场平步青云。贵州国资委一纸公文, 就简单粗暴地就将股民900亿人民币的血汗钱收入自己囊中, 对于百姓财富的掠夺手段已经无耻到到了令人发指的地步。另一方面这也说明了现在中共国政府面临巨大的财政压力,已经顾不得吃相,俨然一副流氓嘴脸。
 
-对于蓬佩奥和包括奈杰尔·法拉奇（Nigel Farage）在内的其他中国批评家，陈卫华在美国国务院官方推特帐户下回复了一篇强调“中国共产党如何针对基督徒、穆斯林、佛教徒和法轮功等信仰信奉者开战”的帖子。
+贵州茅台作为中共国第一高价股, 就是一个收割股民钱财,向权贵阶层输送利益的工具。无论是从未来发展, 公司科技含量和社会进步各方面分析,都无法得出其目前中共国市场的龙头地位。
 
-帖子说：“该党不遗余力”并附图以补充。
+美国股票市场的龙头股票大多是高科技公司,如苹果,微软,亚马逊,谷歌等。这些高科技公司真正带领了人类进步的方向,为人类的发展和福祉做出了巨大贡献 (*笔者注**:**对于**Big Tech**压制言论**,**垄断市场的行为仍需警惕*) 。反观中共国第一股,贵州茅台如何引领科技创新和增进人类福祉呢? 是鼓励骄奢淫逸的酗酒文化, 还是提倡在醉生梦死中体会大国崛起? 高度烈性酒品在当今世界各文明国家都不被提倡,在澳洲更是被课以重税,而茅台酒在中共国被大肆宣传,成为一国最具 ‘价值’ 公司,实在令人汗颜。
 
-作为回应，陈卫华回复：
+贵州茅台引以为豪的科技含量就是其纯粮食酿造的工艺。根据相关资料披露,酿造1斤茅台酒需要耗费5斤粮食。中共国每年在酿酒上的粮食耗费每年约2000万吨,基本上和谷物粮食的缺口相当。也就是说在没有发生大规模谷物欠收的情况下,中共国要靠进口谷物维持其国内的酿酒业。但是在过去的2020年,中共国的粮食安全遭受到了巨大威胁: 严重的水灾,疫情造成的农业生产停滞,外汇枯竭减少了粮食进口,世界各国又纷纷限制了对中共国粮食的出口。内忧外患,多重压力叠加, 中共国已经出现了严重缺粮的局面,但同时茅台酒的产量和股价纷纷再创新高。贪官们一杯酒下肚,就喝掉了三口之家的一天口粮。朱门酒肉臭,路有冻死骨每天都在上演。政府为了推高股价继续敛财,享受奢靡的生活,把老百姓的口粮耗费在酿酒上,又通过股票市场操作再一次将老百姓积蓄掏空。一瓶瓶的茅台酒都是中共国老百姓用鲜血和眼泪酿成。
 
-“蓬佩奥肯定不会幸免。 他将在1月20日一去再无归途。” – 陈卫华（@chenweihua）2020年12月23日
+（本文仅代表个人观点）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040800/IMG_1836-1.jpg)
+引用来源: 贵州茅台酒股份有限公司 关于国有股份无偿划转的提示性公告 (编号：临 2020－035)
 
-
-
-> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): The Chinese Communist Party’s war on faith targets Christians, Muslims, Buddhists, and Falun Gong devotees alike. The Party spares no one. [pic.twitter.com/62PZGhYe7G](https://t.co/62PZGhYe7G)
-> — Department of State (@StateDept) [December 23, 2020](https://twitter.com/StateDept/status/1341564644520062977?ref_src=twsrc%5Etfw)
-
-
-![](https://lh6.googleusercontent.com/O0l4NelbLwRLvBuDg92l3htIvQwTTlX2cS--XJtECD_LM7TR0pGHFpCONAg1DltzGYGaKPRSxGFdnnMXJYRo3C89NZgO_ysaGW3bpr8jJ0vYypoS3W-VqR2gwk5j6Vv-Zy9GxNJVm5Ngg2mKcw)
-陈咬定对蓬佩奥应像对中国的基督徒，穆斯林，佛教徒和法轮功等同样对待，这构成严重威胁，因（中共）政权一直在[迫害](https://www.wsj.com/articles/beijings-collision-with-christians-11608593160)着上述群体的成员。
-
-当法轮功（一个集中冥想的宗教活动）的修炼者们因其代表的意识形态与完全和彻底服从中共相背时，被（中共）所针对。 信徒们被送到劳改营，在那里他们中成千上万的人因“[被饿，被殴打和用电棍折磨”致死](https://www.newstatesman.com/blogs/the-faith-column/2008/08/falun-gong-party-chinese)，[器官被摘](https://www.reuters.com/article/us-britain-china-rights/china-is-harvesting-organs-from-falun-gong-members-finds-expert-panel-idUSKCN1TI236)。 维吾尔族人遭受着中国共产党的侵略性运动，施以：灌输（洗脑），拘押，并在某些情况下[杀死](https://pittnews.com/article/159614/featured/they-kill-us-here-survivor-of-uyghur-concentration-camps-recounts-torture/)少数族裔。
-
-中国的基督徒和佛教徒也遭受了[类似](https://www.theguardian.com/world/2019/jan/13/china-christians-religious-persecution-translation-bible)的命运。
-
-陈已经用类似的言语攻击了几位美国政府官员-[最近的是参议员玛莎·布莱克本](https://thenationalpulse.com/breaking/blackburn-ccp-spat/)（Marsha Blackburn）- 同时推特（Twitter）始终未对此“乱喷”作出干预或评论。
-
-但是，社交媒体平台一直在对保守派进行[严格审查](https://www.newsbusters.org/blogs/techwatch/corinne-weaver/2020/11/30/twitter-censors-trump-trump-campaign-325-times-never)，却与中国军方代表一起参加会议并[雇用与中国共产党有关的人](https://thenationalpulse.com/news/twitter-hires-ccp-fei-fei-li/)。
-
-原文作者：娜塔丽·温特斯（《国家脉动》高级记者，电视节目制作人）
-
-发布时间：2020年12月24日
-文章链接： [https://thenationalpulse.com/breaking/chinese-media-chief-threatens-pompeo/](https://thenationalpulse.com/breaking/chinese-media-chief-threatens-pompeo/)
-
-+3
++5

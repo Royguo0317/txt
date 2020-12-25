@@ -1,21 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 窃国阴谋（二）中文字幕版
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/683387/)
+## 美国国务院报告:中国渔业人口贩卖最为严重
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/683553/)
 
-纽约香草山农场
+台湾农场(筹备) Amitofu
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
+美国国务院12月23日报告表示，为了解决海产渔业的人口贩运问题，美国国务院和国家海洋暨大气总署（NOAA）已根据第3563条向国会提交了一份联合报告，标题为“人口贩运海产渔业供应链”。 在2020财年国防授权法（PL 116-92）。 该报告指出对渔业捕捞和海产加工业存在人口贩运的国家，提供了详细的说明、风险评估和建议。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25010824/chinafish-400x225.jpg)圖片來源:路透社
+捕渔业本身就存在人口贩运的高风险，被认为是有危险的工作，通常严重依赖低技能的移工，因容易被取代的劳动力而有人口贩运的问题。捕渔业本属孤独行业，船只通常在海上航行数月或数年，渔工受虐待无法逃逸、常因为情绪和身体虐待而导致死亡，除了生活条件差也时常超时工作，受害者甚至被要求支付招聘费和签署债务合同等诈骗性的招募方式诱拐，也常使捕渔业人口贩运受害者面临无薪工作或收入低下的问题。而自由公民渔工权利和法律保护薄弱的国家更因为腐败、犯罪、暴力、政治不稳定、贫困程度高，而增加了人口贩运的风险。
 
+报告指出中国拥有世界上最大的捕鱼船队，在公海和世界各国的专属经济区活动进行大量非法、非经授权和不受管制的捕鱼作业，船上大多数船员来自印度尼西亚和菲律宾的渔工，美国政府目前打击海产渔业的人口贩运提出了十项建议，包括立法和行政。建议列入名单的国家进行外联，促进全球产品追溯来源。国土安全部、司法部、劳工部、各州和财政部将连手采取行动，确保强迫压榨劳工生产的产品不会进入美国市场，以解决海鲜供应链中的人口贩运问题。本文仅代表个人立场
 
+资料来源:[https://www.state.gov/report-to-congress-human-trafficking-in-the-seafood-supply-chain/](https://www.state.gov/report-to-congress-human-trafficking-in-the-seafood-supply-chain/)
 
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-0
++1
