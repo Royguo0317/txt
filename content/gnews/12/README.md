@@ -1,65 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统和第一夫人的2020年圣诞节祝词
-` GM31` [轉載自GNews](https://gnews.org/zh-hans/683471/)
+## 栋梁？废材？
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/682547/)
 
-**The President and First Lady’s 2020 Christmas Message**
+作者：菜园子112~尕虎 審稿：Yumi
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24165607/%E5%BB%A2%E6%89%8D.png)抖音截圖
+近日看到了两个视频，图1是初中生在大厅里大声的朗读课文，具体内容听不清楚，由于房间里人数众多，每个人都在用尽全身力气在朗读，说是朗读不如说是在吼叫，而且是在歇斯底里的吼叫。每一个人面目狰狞，都像是在精神病发作一样。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24165758/%E6%A3%9F%E6%A8%91.png)抖音截圖
+图2说的是四川凉山的小学生演讲比赛，这个小学生演讲的内容大致是要成为国家的 栋梁之才，打造一个富强繁荣的中国，他在演讲的时候不是在讲，而是在喊，也是歇斯底里的喊。
 
-**川普总统和第一夫人的2020****年圣诞节祝词**
+看了这两个视频让我这个师范大学毕业（曾经从事过教师职业的人）的师范生惊出了一身冷汗，普通人都知道一个民族的希望都是寄托在教育和孩子的身上。从我在视频上的截图照片就能看到，图片里的学生表情，你能在他们的面部表情上看到什么？肯定看到的是压抑、焦虑、烦躁、暴躁、甚至是愤怒，浑身充满着戾气。像他们这个年龄应该是阳光灿烂充满朝气，满脑子是幻想的时候。可是在CCP的教育体制下活生生的把一个个朝气蓬勃的孩子给摧残成了残废，把一个个民族的希望给毁灭了。这些孩子长大以后能做什么，在学校里学的是标准答案，接受的是西方世界忘我之心不死，共产党执政中国才能强大富强。每天上不完的课，做不完的作业，连个跑步踢球的时间也不给，孩子在一个该快快乐乐玩耍的年龄段，把他们身体禁锢起来，思想禁锢起来，从小就开始愚民教育培养奴隶。
 
-First Lady Melania Trump:
+在这种模式教育下的孩子能成为社会的有用之才吗？你在图片中能看到一个民族的希望吗？我相信一个正常人的判断肯定是不可能。从CCP统治下的中国来看，CCP这种教育体制是有意为之的在摧毁我们这个民族，往小里说是在给他们培养奴隶韭菜，往大里说是在消灭我们这个人种，让我们汉民族从地球上消失灭绝，其心之险恶天理难容。从这两张图片中你就能联想到，如果不消灭CCP，我们的这个民族有希望吗？我们这个国家有未来吗？孩子一代代都被毁了，成人以后都是废材，怎么能为社会做贡献，为人类做贡献。我们这个民族在地球上还有生存之地吗？答案是肯定没有未来。那么怎么办？唯一的办法就是消灭CCP，改变体制，把教育从根本上改变。
 
-The President and I want to wish every American a very Merry Christmas.
+(以上内容仅是个人观点)
 
-第一夫人梅兰妮·川普：
+澳喜文章:[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
 
-总统先生和我祝每一位美国人圣诞快乐！
+欢迎加入澳喜农场：[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24165957/IMG_3537-1-715x720-1-7.jpg)
 
-President Trump:
 
-During the secret season, Christians celebrate the great miracle in human history. More than 2000 years ago, God sent his only begotten son to be with us. An angel announced the birth of our Lord and Savior to humble shepherds. He said: “I bring you good news that will cause great joy for all of the people. Today in the town of David, a savior has been born to you, he is the Messiah the Lord.You will find a baby wrapped in clothes and lying in a manger.” At Christmas, we thank God for sending us his son, to bring peace to our souls and joy to the world.
-
-川普总统：
-
-在这个神秘的季节里，基督徒们庆祝这个人类历史上最伟大的奇迹。2000多年前，上帝让他的独子来到人间。一位天使向谦卑的牧羊人宣告我们的拯救者的降临，他说：“我报给你们大喜的信息，是关于万民的。今天在大卫的城里，救主为你们而生，就是主基督。你们要找到一个婴孩，包着布，卧在马槽里。”在圣诞节，我们感谢上帝让他的独子来到人间，给我们的灵魂带来了和平，给世界带来了快乐。
-
-First Lady Melania Trump:
-
-As you know, this Christmas is different than years past. We are battling a global pandemic that affected all of us. Yet through this great challenge, we have been inspired by the kindness and courage of citizens across this country. Teachers have worked extraordinarily hard to keep our children learning. Students have delivered groceries to elderly neighbors. Communities have found new ways to stay connected to one another. Courageous first responders, doctors and nurses have given everything to save lives. Brilliant scientists have developed treatments and vaccines.
-
-第一夫人梅兰妮·川普：
-
-大家都知道，这个圣诞节和以往不同。我们正在与影响我们所有人的全球大流行作斗争。这然而，通过这个巨大的挑战，我们受到了整个国家公民的善良和勇气的鼓舞。老师们为了让孩子们继续学习异常艰辛地工作；学生们给老年邻居送食品；小区寻找使大家保持联系的方法；勇敢的急救人员、医生、护士尽了他们最大的努力拯救生命;伟大的科学家们致力于寻找治疗方法并开发疫苗。
-
-President Trump:
-
-We are delivering millions of doses of a safe and effective vaccine that will soon end this terrible pandemic and save millions and millions of lives. We’re grateful for all of the scientists, researches, manufacturing workers and services members who have worked tirelessly to make this breakthrough possible. It is truly a Christmas miracle.
-
-川普总统：
-
-我们正在提供数百万剂安全有效的疫苗，这些疫苗将很快结束这都场可怕的瘟疫，拯救几千万的生命。我们非常感谢这些科学家、科研人员、制造工人和服务人员，我们一起努力实现了这一突破。这是一个真正的圣诞奇迹。
-
-First Lady Melania Trump:
-
-During this wonderful time of year, we also give thanks for the brave and selfless Americans who keep us safe. We are forever grateful for the men and women of law enforcement and the heroes of United States military.
-
-第一夫人梅兰妮·川普：
-
-在一年中这个美好的时光里，我们还要感谢勇敢、无私的美国人保护我们的安全。我们永远感谢执法人员和美国军队的英雄们。
-
-President Trump:
-
-In this holly season, we thank God for his infinite love and we pray that the light of his glory will forever shine on this magnificent land. On behalf of Melania and entire Trump family, we wish you a very merry Christmas and a happy new year.
-
-川普总统：
-
-在这个神圣的节日里，我们感谢上帝无限的爱，我们祈祷他的光芒将永远照耀在这片美丽神奇的土地上！我代表梅兰妮和川普家族祝大家圣诞快乐，新年快乐！
-
-YouTube视频来源：https://www.youtube.com/watch?v=RuP2FD1F6eQ
-
-*翻译：【文灵】 校对：【罗宾 Robin (文宾)#2175】【GM31】字幕：【罗宾 Robin (文宾)#2175】 编辑：【GM31】*
-
-*喜马拉雅玫瑰园小队出品*
-
-+1
+0
