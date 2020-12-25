@@ -1,99 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（十一）
-` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/684059/)
+## 【文心雕龙】击败COVID-19的钥匙早已存在，我们需要的只是开始使用它
+` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/684154/)
 
-翻译：zz17、Jessi/詹茜 ｜ 校对：Tom Cat ｜ 编辑、美工：灭共小宇宙
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25081501/%E7%BA%B3%E7%93%A6%E7%BD%97%E6%8A%A5%E5%91%8A8.jpg)
-往期链接：
+作者：美国纽约七星会农场｜BoLu文龍
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（一）](https://gnews.org/zh-hans/669414/)
+编辑、美工：灭共小宇宙
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25091516/%E6%96%87%E5%BF%83%E9%9B%95%E9%BE%999.jpg)
+早在5个月前，2020年7月23日，世界级媒体 NEWSWEEK 就刊载了一篇文章，题目是“击败COVID-19的钥匙早已存在，我们需要的只是开始使用它。”文章的撰写者，是耶鲁大学公共卫生学院流行病学教授哈维瑞斯克HARVEY A. RISCH博士。哈维博士在担任耶鲁大学公共卫生学院流行病学教授期间，撰写了300余篇经同行评审的出版物，他目前仍然在数家主要期刊的编辑委员会中担任高级职务，是一位传染病学界的权威学者和医生。
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（二）](https://gnews.org/zh-hans/675333/)
+哈维博士说，他正在试图向各医疗机构呼吁和争取一种临床数据上完全正面支持的治疗方法和药物，也就是硫酸羟氯喹。数据表明，当这种廉价的口服药物在病程早期就被使用时，也就是在病毒失控迅速繁殖之前，被证明是非常有效的，特别是与抗生素阿奇霉素或强力霉素加锌片剂混合使用时。
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（三）](https://gnews.org/zh-hans/675371/)
+哈维博士的文章列举了几项调查数据，其中由弗拉基米尔·泽连科Vladimir Zelenko博士(也就是我们所称的大胡子医生)收珍治疗的400名新冠病毒患者，死亡人数为零；一项在巴西进行的700例患者的对照试验，使用硫酸羟氯喹混合治疗后大大降低了住院率和死亡率；另一项针对法国398名匹配患者的研究也显著降低了住院率和死亡率。
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（四）](https://gnews.org/zh-hans/675720/)
+在巴西北部的帕拉州，COVID-19死亡人数呈指数增长。4月6日，当地公立医院网购了75,000剂阿奇霉素和90,000剂羟氯喹。在接下来的几周内，政府开始向受感染的人分发这些药物用于混合治疗。虽然仍然继续发生新的病例，但5月22日后死亡率开始明显下降，一度仅是高峰时的八分之一。
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（五）](https://gnews.org/zh-hans/679037/)
+5月27日，瑞士中央政府一度明令禁止门诊使用羟氯喹治疗COVID-19，导致6月10日前后死亡人数增加了四倍，并且持续上升。于是6月11日，瑞士政府撤销了该禁令，到6月23日，死亡率又恢复到以前的水平。这一过程的因果关系表明，羟氯喹及其搭配药物的组合可有效降低死亡率，应立即将其用作新冠病毒患者的治疗标准。
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（六）](https://gnews.org/zh-hans/679024/)
+“未来，我相信医学界以及社会学家将研究对羟氯喹的这一误解和压制，显然它被政治化了，同时这也是超科学因素如何取代医学证据的经典案例。”在文章的结尾，哈维博士如是说。
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（七）](https://gnews.org/zh-hans/681491/)
+新闻源链接:
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（八）](https://gnews.org/zh-hans/681582/)
+[https://www.newsweek.com/key-defeating-covid-19-already-exists-we-need-start-using-it-opinion-1519535](https://www.newsweek.com/key-defeating-covid-19-already-exists-we-need-start-using-it-opinion-1519535)
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（九）](https://gnews.org/zh-hans/683896/)
+更多精彩内容请关注：
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（十）](https://gnews.org/zh-hans/684009/)
-
-———————
-
-## Concluding Observations
-
-## 结论观察
-
-From the findings of this report, it is possible to infer what may well have been a coordinated strategy to effectively stack the election deck against the Trump-Pence ticket. Indeed, the patterns of election irregularities observed in this report are so consistent across the six battleground states that they suggest a coordinated strategy to, if not steal the election, then to strategically game the election process in such a way as to unfairly tilt the playing field in favor of the Biden-Harris ticket.
-
-根据报告的调查报告，可以推断出有可能制定了一种有效地打击川普–彭斯的选票的协调策略。事实上，观察到的选举违规模式在六个战场州是如此一致，表明这是一个经过协商的策略，即使没有完全盗取大选，也是通过操纵选举从而使选票有利于拜登–哈里斯一方。
-
-A major part of this “stuff the ballot box” strategy has been aptly summarized in a complaint filed before the US Supreme Court by the State of Texas:
-
-在得克萨斯州向美国最高法院提出的申诉文件中正好总结了“塞满选票箱”策略的主要内容:
-
-*Using the COVID-19 pandemic as a justification, [Democrat] government officials [in Georgia, Michigan, Pennsylvania, and Wisconsin] usurped their legislatures’ authority and unconstitutionally revised their state’s election statutes. They accomplished these statutory revisions through executive fiat or friendly lawsuits, thereby weakening ballot integrity.*
-
-*[在佐治亚州，密歇根州，宾夕法尼亚州和威斯康辛州]的[民主党]政府官员以COVID-19大疫情为借口，篡夺了他们立法机构的权威性地位并且违宪修订了他们州的选举章程。他们通过行政命令或者友好诉讼来完成这些法定修订，从而削弱了选票的公正性。*
-
-According to the Texas complaint – which the Supreme Court sadly refused to hear – the goal of this strategy was to flood the battleground states “with millions of ballots to be sent through the mails, or placed in drop boxes, with little or no chain of custody.” At the same time, Democrat government officials also sought to “weaken the strongest security measures protecting the integrity of the vote signature verification and witness requirements.”
-
-根据得克萨斯州的申诉(不幸地是最高法院拒绝听取该申诉)，这个策略的目标是将“数百万选票通过邮件发送，或放入投票箱，”来涌入战场州，在此过程中几乎没有或根本没有监管链。与此同时，民主党政府官员还试图“削弱最强有力的用来保护选票签名核查和证人要求的公正性的安全措施。”
-
-The findings of the assessment conducted in this report are consistent with the Texas complaint. Key takeaways include:
-
-本报告中的评估结果与得克萨斯州的申诉内容一致。关键要点包括：
-
-· The weight of evidence and patterns of irregularities uncovered in this report are such that it is irresponsible for anyone – especially the mainstream media – to claim that there is “no evidence” of fraud or irregularities.
-
-· 在该报告中大量证据和违规操作表明，任何相关方，尤其是主流媒体，声称“没有证据”证明存在选举欺诈或违规行为是不负责任的。
-
-· The ballots that have come into question because of the identified election irregularities are more than sufficient to swing the outcome in favor of President Trump should even a relatively small portion of these ballots be ruled illegal.
-
-· 如果这些选票中相对较小的一部分被裁定为非法，那么因违规操作而被质疑的选票将足以翻转结果，而有利于川普总统。
-
-· While all six battleground states exhibit most, or all, six dimensions of election irregularities, each state has a unique mix of issues that might be considered “most important.” To put this another way, all battleground states are characterized by the same or similar election irregularities; but, like Tolstoy’s unhappy families, each battleground state is different in its own election irregularity way.
-
-· 所有六个战场州实施了大部分或全部六个违规操作。然而，每个州所特有的违规问题都有可能被视为“最重要”的。换句话说，所有战场州都具有相同或相似的选举违规行为。但是，就像托尔斯泰所说“不幸的家庭各有不同”一样，每个战场州在选举违规方面都有所不同。
-
-· This was theft by a thousand cuts across six dimensions and six battleground states rather than any one single “silver bullet” election irregularity.
-
-· 在六个战场州，选举结果是被六大违规行为所衍生出来的上千种违法操作所窃取，而不是被任何一个所谓“万灵手段”的单一选举违规行为所盗取。
-
-· In refusing to investigate a growing number of legitimate grievances, the anti-Trump media and censoring social media are complicit in shielding the American public from the truth. This is a dangerous game that simultaneously undermines the credibility of the media and the stability of our political system and Republic.
-
-· 在拒绝调查越来越多的合法申诉时，那些反川普媒体和进行言论审查的社交媒体串通一气，来阻挡美国民众了解真相。这是一个危险的游戏，媒体的公信力以及我们的政治制度和共和国的稳定都遭到破坏。
-
-· Those journalists, pundits, and political leaders now participating in what has become a Biden Whitewash should acknowledge the six dimensions of election irregularities and conduct the appropriate investigations to determine the truth about the 2020 election. If this is not done before Inauguration Day, we risk putting into power an illegitimate and illegal president lacking the support of a large segment of the American people.
-
-· 那些参与了为拜登洗白的记者，专家和政治领导人们应该认识到这六大选举违规行为的存在，并进行适当的调查来判断有关2020大选的事实真相。如果在就职典礼日之前没有做到这一点，我们就有可能让一个未被授权的、非法的、并缺乏大部分美国人支持的总统上台。
-
-· The failure to aggressively and fully investigate the six dimensions of election irregularities assessed in this report is a signal failure not just of our anti-Trump mainstream media and censoring social media but also of both our legislative and judicial branches.
-
-· 未能积极全面地调查本报告所评估的六个大选违规行为，这不仅仅是反川普主流媒体和控制舆论的社交媒体的失败，也是我们的立法和司法部门的失败。
-
-· · Republican governors in Arizona and Georgia together with Republican majorities in both chambers of the State Legislatures of five of the six battleground states – Arizona, Georgia, Michigan, Pennsylvania, and Wisconsin148 – have had both the power and the opportunity to investigate the six dimensions of election irregularities presented in this report. Yet, wilting under intense political pressure, these politicians have failed in their Constitutional duties and responsibilities to do so – and thereby failed both their states and this nation as well as their party.
-
-· · 亚利桑那州和佐治亚州的共和党州长，以及亚利桑那州、佐治亚州、密歇根州、宾夕法尼亚州和威斯康辛州，这六个战场州的五个州的参众两院多数，都拥有权力和机会来调查本报告中提出的六法选举违规行为。然而，这些政客屈服于强大的政治压力，没有履行宪法赋予他们的责任和义务，也因此也辜负了他们的州和这个国家以及他们所属的政党。
-
-· · Both State courts and Federal courts, including the Supreme Court, have failed the American people in refusing to appropriately adjudicate the election irregularities that have come before them. Their failures pose a great risk to the American Republic.
-
-· · 州法院和联邦法院,包括最高法院，对摆在他们面前的大选违规行为，都拒绝作出妥当的裁决，已经辜负了美国人民。他们的不作为给美利坚合众国带来了巨大的风险。
-
-更多精彩內容請關注：
-
-- [美國紐約七星會農場（為子孫愛七哥）GTV](https://gtv.org/user/5e986b24b005bd6d929820bd)
-- [歡迎加入農場Discord戰友群](https://discord.gg/2vXAV6G)
+- [美国纽约七星会农场（为子孙爱七哥）GTV](https://gtv.org/user/5e986b24b005bd6d929820bd)
+- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19044815/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-2.jpg)
 0

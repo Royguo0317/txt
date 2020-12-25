@@ -1,35 +1,87 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 党媒《中国日报》欧洲负责人陈卫华叫嚣威胁蓬佩奥
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/684497/)
+## 会计，财报及审计的入门基础与介绍（二）
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/684632/)
 
-*草原三省战友之家        文静*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23164109/1223.jpg)Picture Source: www.groomassocies.com
+在第二篇中同样更多的是介绍关于会计，财报及审计的入门基础与介绍。并展示分析师或审计师在开始与收尾时的一些必要工作流程与步骤，这些流程可以使得投资决策的过程变得加清晰且更富有逻辑性。
 
-*校对、上传 文怡*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25114840/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE295.png)
-据国家脉搏12月24日报道，《中国日报》欧洲分社社长陈卫华威胁美国国务卿蓬佩奥要遭受中国共产党迫害团体的命运，并承诺他“肯定不会幸免”。因为《中国日报》是由中共的宣传部拥有和经营的，所以陈卫华是中共的喉舌。
+Other ‘s Sources Information 3.2
 
-作为蓬佩奥和其他批评中共的人，包括奈杰尔·法拉奇的长期批评者，陈回应了美国国务院官方推特账户上的一篇文章，强烈攻击蓬佩奥针对 “中共对信仰的战争是如何针对基督徒、穆斯林、佛教徒和法轮功信徒”的公开推文。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25114911/chen.jpg)
-陈卫华用iPhone(而不是”国货”华为) 回推: “肯定不会放过蓬佩奥。他将在1月20日前永远离开！党不放过任何人！”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25115014/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE294.png)
-陈卫华坚持：“蓬佩奥应被视为对中共国的基督徒、穆斯林、佛教徒和法轮功信徒被迫害的一些言论，是一个严重的威胁！”  因为中共已经迫害了上述所有团体的成员。
+- Interim Report：中期财务报告：公司半年度或季度发布,取决于实际监管条例，会呈现资产负债表中四个主要项目，没有审计Unaudited Report
+- Peer Company Report：同行业内其他公司分析报告
 
-法轮功的练习者之所以成为攻击目标，是因为它代表了一种反对完全服从CCP的意识形态。信徒们被送到劳改营，在那里“挨饿、挨打、用电棍折磨”，成千上万的人被杀害、器官被摘取。中共还在新疆建立所谓的“再教育集中营”，新疆维族人也受到中共的残酷迫害，在某些情况下，甚至杀害了这些宗教少数民族。
 
-中共国的基督徒和佛教徒也遭遇了类似的残酷迫害。
+Article the Purpose and Context of Analysis 4.1
 
-陈卫华也曾对其他几名美国政府官员使用过类似的措辞——最近的是参议员玛莎·布莱克本(Marsha Blackburn)——推特也多次未能对这些争端进行干预或置评。
+- 进行任何分析之前必须了解分析的目的/背景
+- 对于其他任务，可能需要分析师做出决策
+- 不仅要分析生成财务比率，还要考虑决策相关内容 / 分析上下文
+- 最后汇编分析所需回答的问题
 
-然而，推特一直在打压保守派正义的声音，同时还与中共军方代理人一起出席会议，并聘用与中共有关联的个人。
 
-众所周知，蓬佩奥是美国政府现任国务卿，同时一贯以来，对中共迫害新疆维吾尔族、西藏、回教等少数民族，以及中共打压迫害法轮功、基督徒、佛教徒等其他不同的宗教信仰人士，进行强烈的抨击和谴责，为此中共对蓬佩奥恨之入骨，动用包括央视的各种媒体对蓬佩奥进行报复性的攻击。
+Collect Data 4.2
 
-在中共体制下的媒体，一贯在独裁强权下为虎作伥，满嘴谎言隐瞒中共迫害少数民族和宗教人士的真相，采用各种伎俩打压和攻击正义的声音以及宗教信仰自由！很明显中共的目的就是利用强权打压所有的异见人士，长期用谎言对中国老百姓进行洗脑，险恶用心就是企图维护他们的独裁权力，防止老百姓和正义的力量推翻中共的统治！
+- 历史分析公司的财务报表数据是足够的
+- 经济行业分析（1)宏观经济（2）所在行业前景（3）公司前景
 
-但是随着新中国联邦的爆料革命多年来，对中共罪恶行径深层次的大量揭露，中共的丑恶嘴脸已经完全暴露于天下，目前美国政府针对打击中共邪恶政权的各项强有力举措己经展开，坚信中共的覆灭为时不远了！
 
-*[原文链接](https://thenationalpulse.com/breaking/chinese-media-chief-threatens-pompeo/)*
+Process data 4.3
+
+- 阅读评估每个被分析公司的财务报表
+- 对财务报表进行必要的调整以促进比较
+- 准备 / 收集通用的规格的财务报表数据或比率
+
+
+Analyze Interpret the Processed data 4.4
+
+- 将比率作为一种输入 Ration is an Input
+- 特定问题的答案很少采用数字
+- 而是取决于分析师对输出的解释，以及运用去支持结论或建议
+
+
+Develop and Communicate Conclusion/ Recommendation 4.5
+
+- 总结，投资结论
+- 预期收益
+- 估价
+- 业务总览
+- 风险，行业竞争分析
+- 历史表现
+- 预测
+
+
+Follow-up 4.6
+
+- 定期审查/ 更新确定原始结论和建议是否仍然有效
+- Update Report and Recommendation
+
+
+The Objective of Financial Report 2
+
+- 在决策有关实体的股本或债务工具的过程中提供有用的财务信息
+- Providing financial information that is useful to user in making decision
+- 通常情况下标准由机构定制，未得到监管机构认可前不具有权力。
+- 且监管机构有权利推翻私营部门的制定标准
+
+
+International Accounting Standard Board 3.1.1
+
+- IASB发展出International Financial Report Standard
+- 作为独立的，非营利性私营部门.主要目标是制定促进一套高质量的财务标准，确保结果透明可比较
+
+
+Financial Accounting Standard Board 3.1.2
+
+- FASB以及前身组织一直在美国发布财务报告标准
+- 建立的US GAAP被SEC正式认可作为权威，但SEC保留建立标准的权力
+
+
+作者：搞笑排行榜
+
+原创观点文章 – 2020/12/25
+
+温哥华圆成农场
 
 0

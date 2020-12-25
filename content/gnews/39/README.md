@@ -1,36 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【Raiklin律师推文1225】两周作战计划
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/684168/)
+## 厚生劳动省：18日到21日，已有5名感染变异种新冠的人从英国返回羽田和关西机场。
+` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/684235/)
 
-12月25日，圣诞节的一大早，宪法律师Ivan Raikllin先生转发了一则视频推文，视频是电脑制作的一场类似摔跤或柔道的特殊竞技场上，分别酷似川普总统和乔拜登民主党总统候选人的选手，一开始银发“乔拜登”取得优势，金发“川普”在接连被痛击之后，奇迹般起身回击，无论力度还是使用的特殊技巧，都让乔拜登措不及防，比赛中出现了优劣反复的局面，但是“川普”者最终强有力取胜，获得全场一片喝彩。比赛结束时视频中主持人说，“这里是胜出选手：”Tunnel Trump” 名字和川普总统极为音似。他说，“这是一个一人决定证明自己战胜对手实力的案例”，“这是另一个关于‘生存理论’的历史故事”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25092652/16089063771.png)
+翻译：待命（文晓）（京都富士会）
 
-这个视频无疑是在影射当前美国大选中川普总统和乔拜登候选人激烈的竞选斗争状态，也饱含了美国人对川普总统的支持和对大选结果的美好期待。
+校正：待命（文晓）（京都富士会）
 
+排版：待命（文晓）（京都富士会）
 
+厚生劳动省12月25日宣布，与在英国迅速传播的变异新型冠状病毒的基因序列一致的病毒，在日本首次被确诊。18日至21日，有5名这种病毒的感染者从英国返回，均通过日本机场的检疫站查出。
 
-> Volume up, watch and listen to the end. This fight is just getting started! [#MerryChristmas](https://twitter.com/hashtag/MerryChristmas?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/k3ftgaLvC3](https://t.co/k3ftgaLvC3) [https://t.co/q0Cg9BcFYC](https://t.co/q0Cg9BcFYC)
-> — Ivan #ThePlan Raiklin (@Raiklin) [December 25, 2020](https://twitter.com/Raiklin/status/1342453429164191745?ref_src=twsrc%5Etfw)
+据相关人士透露，12月18日至21日期间，抵达羽田机场和关西国际机场的5名男女确认感染了变异病毒，5人均曾在英国停留。
 
+国家传染病研究所病原体基因组分析中心对结果进行了分析，发现与突变病毒系相同基因。5人中有4人无症状，1名60多岁的男子自述有疲劳感。
 
+自9月变异病毒被证实以来，英国的感染迅速蔓延。 12月20日英国政府开始对伦敦以及其它感染人数迅速增加的城市实施了城市封锁。
 
-Ivan Raiklin在转推时称：
+据欧洲疾病预防控制中心（ECDC）估测，该病毒的传染性比原病毒高70%。 但另一方面，据说没有发现任何证据表明重症率或死亡率上升，或疫苗对其无效。
 
+为了防范变异病毒，越来越多的国家加强了对从英国入境的限制。日本政府还加强了针对英国的防御措施，包括自12月24日起，暂时停止居住在日本的因商务短期赴英返回人员的 “14天隔离 “豁免。
 
-> 放大音量，听一下结尾。这场战斗才刚刚开始! （一切都是刚刚开始！）
+原文链接
 
+https://news.yahoo.co.jp/articles/081f4e4618224a95aac1f7c6d5bd91e4f6ccc6ad
 
-
-> #圣诞快乐
-
-
-Raiklin律师诙谐轻松的语调怎么这么熟悉？更重要的是，他附上了一份到1月20日前详细的2周作战日程表。
-
-[https://docs.google.com/spreadsheets/d/1-0xSKuUSwGP7Wtn6rWc56yaiz2XvxVqzI1gJ3ekFJ-w/edit#gid=0](https://docs.google.com/spreadsheets/d/1-0xSKuUSwGP7Wtn6rWc56yaiz2XvxVqzI1gJ3ekFJ-w/edit#gid=0)
-
-
-
-新闻和图片来源于Ivan Raiklin律师的推文
-
-+1
+0
