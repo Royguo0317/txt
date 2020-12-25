@@ -1,41 +1,99 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【文字版】2020年12月24日平安夜郭先生第二次盖特（完整版）
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/684101/)
+## 【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（十一）
+` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/684059/)
 
-听写：康州盘古农场–文朗
+翻译：zz17、Jessi/詹茜 ｜ 校对：Tom Cat ｜ 编辑、美工：灭共小宇宙
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25081501/%E7%BA%B3%E7%93%A6%E7%BD%97%E6%8A%A5%E5%91%8A8.jpg)
+往期链接：
 
-审核：康州盘古农场–Truemanman
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25080140/%E5%BE%AE%E4%BF%A1%E6%88%AA%E5%9B%BE_20201225210138.png)
-尊敬的战友们好！现在正是大家过平安夜的时候，文贵也吃了一肚子，喝了一肚子，还抽了雪茄。真是感慨很多，感慨非常多！
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（一）](https://gnews.org/zh-hans/669414/)
 
-在大家都过平安夜的时候，很多战友给我发来了去年平安夜和圣诞节的视频，真是（令人）感慨啊：真快呀，又一年了！在这个平安夜的时候，人类真的是遇到了一个前所未有的、最不平安、最无法确定平安的“平安夜”！
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（二）](https://gnews.org/zh-hans/675333/)
 
-很多战友，现在都和我一样，在想着这个平安夜和去年的平安夜之间所发生的一系列的事情。亲爱的兄弟姐妹们，此时此刻，大家的心情都是很复杂的。我们想想，现在，在国内的同胞们，面临着缺粮、银行不能取钱、病毒等各个方面的威胁，别说“平安”了，就连你过平安夜都“不合法”！更不要提过圣诞节了，（当然）也“不合法”！
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（三）](https://gnews.org/zh-hans/675371/)
 
-同时，我们现在想到，这个世界上，所有的人民，有多少人，几千万人，被感染上了共产党的病毒！又有多少人没有任何原因地、没有任何（理由地），甚至是找不到敌人的情况下，家人就被夺去了生命！还有多少人是在疾病的威胁、痛苦之中，挣扎在生死线上！
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（四）](https://gnews.org/zh-hans/675720/)
 
-我们再次想起，当年西周、西欧，包括当时的耶稣被杀，当时的印度灭佛，人类的历史就是伴随着无知、愚昧、暴力和追求和平、善良（的过程）。这就更加地凸显了我们的“爆料革命”、新中国联邦追求正道主义的正确性！
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（五）](https://gnews.org/zh-hans/679037/)
 
-越是在平安夜，我们（越是）要想想这个世界上有多少人“不平安”！我们再想想，比比那些感染了病的人，想一想全世界在贫困潦倒中不能过平安夜的人，甚至没水、没电、没房子的人，我们要感恩上天，感恩万佛万神啊，兄弟姐妹们！
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（六）](https://gnews.org/zh-hans/679024/)
 
-我们要珍惜呀，特别是（跟随）“爆料革命”和新中国联邦走到了今天的兄弟姐妹们，太不容易了，太不容易了！我们有多少在墙内和在各个领域不能站出来说话的战友，冒着生命的危险，（冒着）失去家人、生命、自由和所有财产的危险，支持着新中国联邦，（为了）我们新中国人追求的目标，参与“爆料革命”。此时此刻，我真是用什么话都无法形容对我们的战友的，对整个“爆料革命”和新中国联邦支持的我们的（战友们的感谢）——代表人物咱就不一一说了，别说漏了——感慨万千！
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（七）](https://gnews.org/zh-hans/681491/)
 
-刚才，我再一次地为所有的“爆料革命”的战友和家人们祈福，我再次为十四亿中国同胞祈福，为全世界人民祈福！当我们关心美国大选的不确定性的时候，大家坐在那里担心的时候，大家要想到，这个世界上真需要担心的事儿实在太多了！就这一个病毒、一个疫苗，给每个人都带来了（多大的）生命威胁！大家想想，在这个时候，还有比这个疫情更大的对人类的威胁吗？这对人类有多么的不公平！
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（八）](https://gnews.org/zh-hans/681582/)
 
-一九二六年，我记得，天花病，世界上死了多少人啊！中国又死了多少人！然后到了SARS，SARS是在二零零三年，中国死了多少人！再想想，二战这才过了多少年啊，人类死了多少人！所以说，人类啊，它必须在巨大的灾难面前才能一次一次走向文明，一次次走向真相，才能实现人类追求的那种和平。真正的、人们所说的那种和平，太难了！
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（九）](https://gnews.org/zh-hans/683896/)
 
-我们每个人又是怎么做的，兄弟姐妹们？我们看到了多少不可思议的事情发生啊！因为贪婪，因为没有信仰。在这个平安夜，想想有多少人不能像我们很多人一样，过着平安、和家人相聚、可以自由发声、能吃饱喝好的、有选择的日子。我们真的希望，我们中国人从现在开始起，在这场灾难当中，能真正地找到中国人的方向，让中国人过上没有恐惧、真正的是基本公平、不再为几个家族当奴隶（的日子）。
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（十）](https://gnews.org/zh-hans/684009/)
 
-想一想今天的中国富豪，去年的时候，那些富豪，包括马云、海航，许家印、王健林……一个个的富豪，那些最牛叉的国企里面给共产党舔腚的大佬们，现在（又）是什么情况？可以说，全世界唯有我们“爆料革命”、新中国联邦“独好”——独家的好，前途无限光明！
+———————
 
-也是在这一年里，我们在战斗当中失去了一些战友。在战斗面前，（一些战友）因为贪婪，因为恐惧，失去了自己当初发誓追求的信仰和目标。这都是正常的，没有这个，（反而）是不正常的。
+## Concluding Observations
 
-在此时此刻，今天我工作了一天，一直没有停，跟很多人在开会。在一天的开会当中，我真的是感受到，这个世界是真的不太平啊：每个人都不知道明年——辛丑年会发生什么事。更重要的事情，现在国内，真的是经济、民生一塌糊涂，每个人的心里都像揣着好多小兔子一样，不知道明天会发生什么事儿。咱国内的企业家——我过去的老朋友，这几天太多人和我联系了。他们都说，每个人的心里像（揣着）无数个小兔子一样，忐忑不安，每天不停地刷手机。出去吧，怕染病；呆在家里边吧，有时候跟家人还吵嘴——被洗脑的家人到现在也不能觉醒过来，很多人（为此）很痛苦。这个世界上最痛苦的，可能真的就是先知先觉的人。因为太多人被洗脑了，特别是在国内和墙内，我是能理解的。
+## 结论观察
 
-但是，兄弟姐妹们，越是这个时候，越要包容；越是这个时候，越要相信有上天！我今天和家人晚上吃饭（的时候），聊了几千年的历史，我非常感动的事情：很多我的家人和身边的人，真的和过去不一样了——（他们）对上天、信仰和宗教，对社会的正义，对生活的感恩，有了完全不同的程度的升华！让我特别地兴奋，特别地激动。说实在话，刚才，我到洗手间平静了半天，我是在幸福中，感受中——人类（就是这样地）在文明和惨痛的灾难面前一次又一次升华的。
+From the findings of this report, it is possible to infer what may well have been a coordinated strategy to effectively stack the election deck against the Trump-Pence ticket. Indeed, the patterns of election irregularities observed in this report are so consistent across the six battleground states that they suggest a coordinated strategy to, if not steal the election, then to strategically game the election process in such a way as to unfairly tilt the playing field in favor of the Biden-Harris ticket.
 
-我希望我们所有的战友们在这个时候，真正地能对家人、对朋友静下心来，听他们说话；不要因为你明白了，你就以为家里人都明白了，朋友们，这是不对的！另外一个，平安夜，这个时候我们要学会感恩，真的要相信上天，（相信）万佛万神在护佑着我们！我们这里发生的一系列的事情，包括美国总统大选这些事情，一定有天意，有天意在护佑着，正在向世人们展示着人类应该去向一个什么样的地方！
+根据报告的调查报告，可以推断出有可能制定了一种有效地打击川普–彭斯的选票的协调策略。事实上，观察到的选举违规模式在六个战场州是如此一致，表明这是一个经过协商的策略，即使没有完全盗取大选，也是通过操纵选举从而使选票有利于拜登–哈里斯一方。
 
+A major part of this “stuff the ballot box” strategy has been aptly summarized in a complaint filed before the US Supreme Court by the State of Texas:
+
+在得克萨斯州向美国最高法院提出的申诉文件中正好总结了“塞满选票箱”策略的主要内容:
+
+*Using the COVID-19 pandemic as a justification, [Democrat] government officials [in Georgia, Michigan, Pennsylvania, and Wisconsin] usurped their legislatures’ authority and unconstitutionally revised their state’s election statutes. They accomplished these statutory revisions through executive fiat or friendly lawsuits, thereby weakening ballot integrity.*
+
+*[在佐治亚州，密歇根州，宾夕法尼亚州和威斯康辛州]的[民主党]政府官员以COVID-19大疫情为借口，篡夺了他们立法机构的权威性地位并且违宪修订了他们州的选举章程。他们通过行政命令或者友好诉讼来完成这些法定修订，从而削弱了选票的公正性。*
+
+According to the Texas complaint – which the Supreme Court sadly refused to hear – the goal of this strategy was to flood the battleground states “with millions of ballots to be sent through the mails, or placed in drop boxes, with little or no chain of custody.” At the same time, Democrat government officials also sought to “weaken the strongest security measures protecting the integrity of the vote signature verification and witness requirements.”
+
+根据得克萨斯州的申诉(不幸地是最高法院拒绝听取该申诉)，这个策略的目标是将“数百万选票通过邮件发送，或放入投票箱，”来涌入战场州，在此过程中几乎没有或根本没有监管链。与此同时，民主党政府官员还试图“削弱最强有力的用来保护选票签名核查和证人要求的公正性的安全措施。”
+
+The findings of the assessment conducted in this report are consistent with the Texas complaint. Key takeaways include:
+
+本报告中的评估结果与得克萨斯州的申诉内容一致。关键要点包括：
+
+· The weight of evidence and patterns of irregularities uncovered in this report are such that it is irresponsible for anyone – especially the mainstream media – to claim that there is “no evidence” of fraud or irregularities.
+
+· 在该报告中大量证据和违规操作表明，任何相关方，尤其是主流媒体，声称“没有证据”证明存在选举欺诈或违规行为是不负责任的。
+
+· The ballots that have come into question because of the identified election irregularities are more than sufficient to swing the outcome in favor of President Trump should even a relatively small portion of these ballots be ruled illegal.
+
+· 如果这些选票中相对较小的一部分被裁定为非法，那么因违规操作而被质疑的选票将足以翻转结果，而有利于川普总统。
+
+· While all six battleground states exhibit most, or all, six dimensions of election irregularities, each state has a unique mix of issues that might be considered “most important.” To put this another way, all battleground states are characterized by the same or similar election irregularities; but, like Tolstoy’s unhappy families, each battleground state is different in its own election irregularity way.
+
+· 所有六个战场州实施了大部分或全部六个违规操作。然而，每个州所特有的违规问题都有可能被视为“最重要”的。换句话说，所有战场州都具有相同或相似的选举违规行为。但是，就像托尔斯泰所说“不幸的家庭各有不同”一样，每个战场州在选举违规方面都有所不同。
+
+· This was theft by a thousand cuts across six dimensions and six battleground states rather than any one single “silver bullet” election irregularity.
+
+· 在六个战场州，选举结果是被六大违规行为所衍生出来的上千种违法操作所窃取，而不是被任何一个所谓“万灵手段”的单一选举违规行为所盗取。
+
+· In refusing to investigate a growing number of legitimate grievances, the anti-Trump media and censoring social media are complicit in shielding the American public from the truth. This is a dangerous game that simultaneously undermines the credibility of the media and the stability of our political system and Republic.
+
+· 在拒绝调查越来越多的合法申诉时，那些反川普媒体和进行言论审查的社交媒体串通一气，来阻挡美国民众了解真相。这是一个危险的游戏，媒体的公信力以及我们的政治制度和共和国的稳定都遭到破坏。
+
+· Those journalists, pundits, and political leaders now participating in what has become a Biden Whitewash should acknowledge the six dimensions of election irregularities and conduct the appropriate investigations to determine the truth about the 2020 election. If this is not done before Inauguration Day, we risk putting into power an illegitimate and illegal president lacking the support of a large segment of the American people.
+
+· 那些参与了为拜登洗白的记者，专家和政治领导人们应该认识到这六大选举违规行为的存在，并进行适当的调查来判断有关2020大选的事实真相。如果在就职典礼日之前没有做到这一点，我们就有可能让一个未被授权的、非法的、并缺乏大部分美国人支持的总统上台。
+
+· The failure to aggressively and fully investigate the six dimensions of election irregularities assessed in this report is a signal failure not just of our anti-Trump mainstream media and censoring social media but also of both our legislative and judicial branches.
+
+· 未能积极全面地调查本报告所评估的六个大选违规行为，这不仅仅是反川普主流媒体和控制舆论的社交媒体的失败，也是我们的立法和司法部门的失败。
+
+· · Republican governors in Arizona and Georgia together with Republican majorities in both chambers of the State Legislatures of five of the six battleground states – Arizona, Georgia, Michigan, Pennsylvania, and Wisconsin148 – have had both the power and the opportunity to investigate the six dimensions of election irregularities presented in this report. Yet, wilting under intense political pressure, these politicians have failed in their Constitutional duties and responsibilities to do so – and thereby failed both their states and this nation as well as their party.
+
+· · 亚利桑那州和佐治亚州的共和党州长，以及亚利桑那州、佐治亚州、密歇根州、宾夕法尼亚州和威斯康辛州，这六个战场州的五个州的参众两院多数，都拥有权力和机会来调查本报告中提出的六法选举违规行为。然而，这些政客屈服于强大的政治压力，没有履行宪法赋予他们的责任和义务，也因此也辜负了他们的州和这个国家以及他们所属的政党。
+
+· · Both State courts and Federal courts, including the Supreme Court, have failed the American people in refusing to appropriately adjudicate the election irregularities that have come before them. Their failures pose a great risk to the American Republic.
+
+· · 州法院和联邦法院,包括最高法院，对摆在他们面前的大选违规行为，都拒绝作出妥当的裁决，已经辜负了美国人民。他们的不作为给美利坚合众国带来了巨大的风险。
+
+更多精彩內容請關注：
+
+- [美國紐約七星會農場（為子孫愛七哥）GTV](https://gtv.org/user/5e986b24b005bd6d929820bd)
+- [歡迎加入農場Discord戰友群](https://discord.gg/2vXAV6G)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19044815/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-2.jpg)
 0

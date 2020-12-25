@@ -1,47 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “再无归途！” 中共官方媒体负责人以被迫害的维吾尔人的命运威胁蓬佩奥
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/683313/)
+## 回首身处生化危机中的这一年
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/683035/)
 
-翻译：康州盘古农场 – Antsee-GTV
+撰稿：了凡
 
-校对：康州盘古农场 – 烟波浩淼
+编辑：jim大叔
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20063101/pasted-image-0-8.png)（图片来自网络）
+前几天，英国首相约翰逊发表全国讲话，由于中共病毒的新变种，英国确诊病例数量在过去2周之内猛增，科学家认为，这种新变种比原始毒株的传播性高出70%。目前，最迫切的工作是确保新变种病毒不会导致更高的死亡率。为遏制病毒的传播，当地时间12月20日起，英格兰东南部、东部及伦敦将从目前的三级防控级别升至新增加的四级，为期两周，大量伦敦人连夜“逃离伦敦”。Zelenko医生发重要公告 称新变异中共病毒增加70%传染性。Zelenko将此视频推送给了川普总统，可见事态的严重性。昨天又传来最新消息：英国又检测到另一种新冠变异毒株 比之前发现的变异毒株传染性更强。
 
-编辑：康州盘古农场 – Rose
-![](https://lh3.googleusercontent.com/e6oBVyAh3-uxV6njt4S8XutFmASiOgxsJu8Ycl_ZcO_VC8Q9JPYlvdKuzuZvSSTV_eXuRVYKo9E7K6385HOulfKoev13pPM2PkhLx4HUTGx9CLUP5UyV5xS2zK_gfdf1t4fCqa3LKS8b_UZ3NA)
-***《中国日报》欧洲局局长陈卫华以受到中国共产党迫害的群体（如维吾尔人）同样命运威胁美国国务卿麦克·蓬佩奥（Mike Pompeo），并保证他“肯定不会幸免”。***
+今年已经到了尾声，病毒影响我们已经差不多一年了，一开始是路德大哥最早预警病毒要大爆发，那天是1月19号。那时我正在国内国年，疫情的阴云开始笼罩，大年初一晚上我听到国外朋友给我传去的消息，说各国可能要封锁边境，情况要恶化。大半夜我爬起来，改签了机票，完全睡不着了，也没去给亲戚拜年，给家里交代了要买的物资和药品后，第二天天没亮就出发了。我前脚刚离开也就两个小时，人还在火车站，家里就传来消息：天刚亮所有的主干道路被封死，所有的车和人都不让进出了。是路德社的情报和朋友连夜打给我的电话让我先一步逃离的。一路上看到到处都是穿防化服的，我十分紧张，那一天我真切体会了世界末日的感觉。我用这段经历就是想告诉大家，危机面前情报信息是最为关键的，爆料革命给的情报在关键时候是能救命的。
 
-因《中国日报》由中共政权自己的宣传部拥有和运营，因此陈卫华是中国共产党的喉舌。
+结果到了国外，没多久病毒又席卷了全球。那时郭先生最早提出了病毒是生化武器的警告，结果世卫组织拼命帮着中共辩解洗地，各国反应迟钝，最终导致全球大爆发。到今天为止全球感染人数7千8百多万，死亡人数173万，这个数据还是保守的数据。爆料革命一次次提供的预警，到今天全部都发生了。闫博士当时说那句话：留给人类的时间不多了，就是因为她最清楚这个病毒有多可怕。她知道这个病毒是不可能有有效疫苗的，是会快速变异的。病毒最可怕的就是传染性高，致死率底，而且病毒还在快速变异，目前科学家对新变种几乎束手无策。所以说中共这个魔鬼不被灭简直天理难容。而且大家注意一个规律，疫情最严重的基本都是中共敌视的国家，美国最严重，其次英国等欧洲国家。反过来，跟中共亲近些的国家总体情况就好一些，中共完全有可能会定向投毒。疫情之初很多视频也能证明这一点。
 
-对于蓬佩奥和包括奈杰尔·法拉奇（Nigel Farage）在内的其他中国批评家，陈卫华在美国国务院官方推特帐户下回复了一篇强调“中国共产党如何针对基督徒、穆斯林、佛教徒和法轮功等信仰信奉者开战”的帖子。
+到今天大家都指望着疫苗的出现能让人类走出这场大灾难，可是疫苗又是中共安排的另一个陷阱，利用疫苗的出现再来绑架其它国家，同时让美国等国家再次陷入更为深重的灾难里面。所以郭先生说的是完全正确的，想要解决病毒的问题，只有一个办法，那就是消灭邪恶的共产党，不然源源不断的病毒就会被投放出来，就像现在这个所谓的变种谁知道是不是中共放出来的二代病毒呢？最可怕的是大家都觉得有疫苗了，就不担心病毒了，这种放松大意本就是最可怕最危险的。到现在为止大半年时间里我一直都在服用羟氯喹，因为我相信爆料革命的情报。在此也吁请大家务必做好防护，万万不要染上病毒。
 
-帖子说：“该党不遗余力”并附图以补充。
-
-作为回应，陈卫华回复：
-
-“蓬佩奥肯定不会幸免。 他将在1月20日一去再无归途。” – 陈卫华（@chenweihua）2020年12月23日
-
-
-
-> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): The Chinese Communist Party’s war on faith targets Christians, Muslims, Buddhists, and Falun Gong devotees alike. The Party spares no one. [pic.twitter.com/62PZGhYe7G](https://t.co/62PZGhYe7G)
-> — Department of State (@StateDept) [December 23, 2020](https://twitter.com/StateDept/status/1341564644520062977?ref_src=twsrc%5Etfw)
-
-
-![](https://lh6.googleusercontent.com/O0l4NelbLwRLvBuDg92l3htIvQwTTlX2cS--XJtECD_LM7TR0pGHFpCONAg1DltzGYGaKPRSxGFdnnMXJYRo3C89NZgO_ysaGW3bpr8jJ0vYypoS3W-VqR2gwk5j6Vv-Zy9GxNJVm5Ngg2mKcw)
-陈咬定对蓬佩奥应像对中国的基督徒，穆斯林，佛教徒和法轮功等同样对待，这构成严重威胁，因（中共）政权一直在[迫害](https://www.wsj.com/articles/beijings-collision-with-christians-11608593160)着上述群体的成员。
-
-当法轮功（一个集中冥想的宗教活动）的修炼者们因其代表的意识形态与完全和彻底服从中共相背时，被（中共）所针对。 信徒们被送到劳改营，在那里他们中成千上万的人因“[被饿，被殴打和用电棍折磨”致死](https://www.newstatesman.com/blogs/the-faith-column/2008/08/falun-gong-party-chinese)，[器官被摘](https://www.reuters.com/article/us-britain-china-rights/china-is-harvesting-organs-from-falun-gong-members-finds-expert-panel-idUSKCN1TI236)。 维吾尔族人遭受着中国共产党的侵略性运动，施以：灌输（洗脑），拘押，并在某些情况下[杀死](https://pittnews.com/article/159614/featured/they-kill-us-here-survivor-of-uyghur-concentration-camps-recounts-torture/)少数族裔。
-
-中国的基督徒和佛教徒也遭受了[类似](https://www.theguardian.com/world/2019/jan/13/china-christians-religious-persecution-translation-bible)的命运。
-
-陈已经用类似的言语攻击了几位美国政府官员-[最近的是参议员玛莎·布莱克本](https://thenationalpulse.com/breaking/blackburn-ccp-spat/)（Marsha Blackburn）- 同时推特（Twitter）始终未对此“乱喷”作出干预或评论。
-
-但是，社交媒体平台一直在对保守派进行[严格审查](https://www.newsbusters.org/blogs/techwatch/corinne-weaver/2020/11/30/twitter-censors-trump-trump-campaign-325-times-never)，却与中国军方代表一起参加会议并[雇用与中国共产党有关的人](https://thenationalpulse.com/news/twitter-hires-ccp-fei-fei-li/)。
-
-原文作者：娜塔丽·温特斯（《国家脉动》高级记者，电视节目制作人）
-
-发布时间：2020年12月24日
-文章链接： [https://thenationalpulse.com/breaking/chinese-media-chief-threatens-pompeo/](https://thenationalpulse.com/breaking/chinese-media-chief-threatens-pompeo/)
-
-+3
+（本文仅代表个人观点）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040800/IMG_1836-1.jpg)
++4

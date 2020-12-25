@@ -1,32 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 不一样的圣诞节
-` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/684095/)
+## 【Raiklin律师推文1225】重磅！美国联邦政府可以起诉各州
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/684118/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25075608/%E4%B8%8D%E4%B8%80%E6%A0%B7.png)
-作者：小小星 （京都富士会）
+2020年12月25日，在刚刚过去的一个焦虑的平安夜之后，圣诞节清晨， Ivan Raiklin 律师发推一篇Western Journal发表的文章，题为《TWJ独家，爆炸性的新法律备忘录让川普的支持者们在圣诞前夕看到了希望》。文章的作者奥尔森和麦克斯威尼先生撰写了两份备忘录，这篇文章是第二份，它概述了川普竞选团队在未来几周可能采取的法律策略。文章发表前，已被被寄送给了川普总统。
 
-校正：待命（文晓）（京都富士会）
+文章从德克萨斯诉宾夕法尼亚州案被最高法院拒绝做出分析，称最高法院放弃了其解决各州实质性争议的宪法义务。
 
-排版：待命（文晓）（京都富士会）
+然而，即使在驳回该案的命令中，最高法院也确定了如何成功地提出另一个挑战—即由不同的原告提出。
 
-随着爆料革命的影响力在世界不断创新，这个圣诞节真的和往年不一样。
+这就是：如果以前由得克萨斯州提出的同一案件现在由美利坚合众国提出，以国家状告州，我们完全有理由相信，最高法院将被迫审理这一案件并作出有利的裁决。
 
-美国总统大选的激烈争斗中，疫情泛滥于世界的影响，人们不能安心快乐地过这个圣诞节。
+文章称这个方案将给圣诞节带来巨大的希望。
 
-再看看国内，物价飞涨、医药天价、多家银行破产，经济一片混乱。
+Ivan Raiklin律师发推时称，这是“新法律备忘录–美国必须起诉各州违反（宪法）第二条第一款Cl2的规定。”
 
-可是国内的人们都还在梦中，不知道这个世界现在发生了什么。甚至还庆幸祸国内疫情稳定可，乐祸国外疫情严重太不安全。整个世界都被媒体给骗了，掩盖了事实真相，忽东忽西，一会儿左一会儿右。
 
-我们不知道什么时候被一小部分人当成了奴隶，却没有感觉，甚至装睡。是一小部分精英的贪婪。还是我们习惯了把自己命运交给了别人，两者都有责任。
 
-香港的年轻人给了全世界的人们最好的答案。不能再沉睡了，不能再视而不见 ，听而不闻。我们要站起来反抗，新中国联邦人喊出了心声。誓不为奴！
+> New Legal Memo- The United States Must sue the States for Violating Art II §1 Cl2 [https://t.co/xLN5Uq88pA](https://t.co/xLN5Uq88pA)
+> — Ivan #ThePlan Raiklin (@Raiklin) [December 25, 2020](https://twitter.com/Raiklin/status/1342439290631028738?ref_src=twsrc%5Etfw)
 
-战友们在郭先生的启蒙下，都知道自己身负重任。从来没有看见过中国人因为共同的信仰，亿万战友走到了一起的光景。每天尽自己最大的努力而战斗，坚持打伪类每天站在风雪中，没白没黑的农场义工战友们，积极参与GTV直播，每天写Gnews投稿，翻译文章，美工制图，制作视频。推特等等…
 
-相信明年的圣诞节会是美好而快乐的。
 
-战友们，紧随郭先生，尽可能向世界传播真相。做永不为奴的新中国联邦人！
+新闻和图片来源于Ivan Raiklin律师的推文和
+[https://www.westernjournal.com/twj-exclusive-bombshell-new-legal-memo-giving-trump-supporters-hope-christmas-eve/?utm\_source=Twitter&utm\_medium=PostBottomSharingButtons&utm\_campaign=websitesharingbuttons](https://www.westernjournal.com/twj-exclusive-bombshell-new-legal-memo-giving-trump-supporters-hope-christmas-eve/?utm_source=Twitter&amp;utm_medium=PostBottomSharingButtons&amp;utm_campaign=websitesharingbuttons)
+
+
 
 0
