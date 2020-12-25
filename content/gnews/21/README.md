@@ -1,31 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【Raiklin律师推文1225】重磅！美国联邦政府可以起诉各州
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/684118/)
+## 厚生劳动省：18日到21日，已有5名感染变异种新冠的人从英国返回羽田和关西机场。
+` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/684235/)
 
-2020年12月25日，在刚刚过去的一个焦虑的平安夜之后，圣诞节清晨， Ivan Raiklin 律师发推一篇Western Journal发表的文章，题为《TWJ独家，爆炸性的新法律备忘录让川普的支持者们在圣诞前夕看到了希望》。文章的作者奥尔森和麦克斯威尼先生撰写了两份备忘录，这篇文章是第二份，它概述了川普竞选团队在未来几周可能采取的法律策略。文章发表前，已被被寄送给了川普总统。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25092652/16089063771.png)
+翻译：待命（文晓）（京都富士会）
 
-文章从德克萨斯诉宾夕法尼亚州案被最高法院拒绝做出分析，称最高法院放弃了其解决各州实质性争议的宪法义务。
+校正：待命（文晓）（京都富士会）
 
-然而，即使在驳回该案的命令中，最高法院也确定了如何成功地提出另一个挑战—即由不同的原告提出。
+排版：待命（文晓）（京都富士会）
 
-这就是：如果以前由得克萨斯州提出的同一案件现在由美利坚合众国提出，以国家状告州，我们完全有理由相信，最高法院将被迫审理这一案件并作出有利的裁决。
+厚生劳动省12月25日宣布，与在英国迅速传播的变异新型冠状病毒的基因序列一致的病毒，在日本首次被确诊。18日至21日，有5名这种病毒的感染者从英国返回，均通过日本机场的检疫站查出。
 
-文章称这个方案将给圣诞节带来巨大的希望。
+据相关人士透露，12月18日至21日期间，抵达羽田机场和关西国际机场的5名男女确认感染了变异病毒，5人均曾在英国停留。
 
-Ivan Raiklin律师发推时称，这是“新法律备忘录–美国必须起诉各州违反（宪法）第二条第一款Cl2的规定。”
+国家传染病研究所病原体基因组分析中心对结果进行了分析，发现与突变病毒系相同基因。5人中有4人无症状，1名60多岁的男子自述有疲劳感。
 
+自9月变异病毒被证实以来，英国的感染迅速蔓延。 12月20日英国政府开始对伦敦以及其它感染人数迅速增加的城市实施了城市封锁。
 
+据欧洲疾病预防控制中心（ECDC）估测，该病毒的传染性比原病毒高70%。 但另一方面，据说没有发现任何证据表明重症率或死亡率上升，或疫苗对其无效。
 
-> New Legal Memo- The United States Must sue the States for Violating Art II §1 Cl2 [https://t.co/xLN5Uq88pA](https://t.co/xLN5Uq88pA)
-> — Ivan #ThePlan Raiklin (@Raiklin) [December 25, 2020](https://twitter.com/Raiklin/status/1342439290631028738?ref_src=twsrc%5Etfw)
+为了防范变异病毒，越来越多的国家加强了对从英国入境的限制。日本政府还加强了针对英国的防御措施，包括自12月24日起，暂时停止居住在日本的因商务短期赴英返回人员的 “14天隔离 “豁免。
 
+原文链接
 
-
-新闻和图片来源于Ivan Raiklin律师的推文和
-[https://www.westernjournal.com/twj-exclusive-bombshell-new-legal-memo-giving-trump-supporters-hope-christmas-eve/?utm\_source=Twitter&utm\_medium=PostBottomSharingButtons&utm\_campaign=websitesharingbuttons](https://www.westernjournal.com/twj-exclusive-bombshell-new-legal-memo-giving-trump-supporters-hope-christmas-eve/?utm_source=Twitter&amp;utm_medium=PostBottomSharingButtons&amp;utm_campaign=websitesharingbuttons)
-
-
+https://news.yahoo.co.jp/articles/081f4e4618224a95aac1f7c6d5bd91e4f6ccc6ad
 
 0

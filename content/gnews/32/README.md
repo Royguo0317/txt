@@ -1,129 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（九）
-` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/683896/)
+## 【文字版】2020年12月24日平安夜郭先生第二次盖特（完整版）
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/684101/)
 
-翻译：Jessi/詹茜 ｜ 校对：Tom Cat ｜ 编辑、美工：灭共小宇宙
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25064306/%E7%BA%B3%E7%93%A6%E7%BD%97%E6%8A%A5%E5%91%8A9.jpg)
-往期链接：
+听写：康州盘古农场–文朗
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（一）](https://gnews.org/zh-hans/669414/)
+审核：康州盘古农场–Truemanman
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25080140/%E5%BE%AE%E4%BF%A1%E6%88%AA%E5%9B%BE_20201225210138.png)
+尊敬的战友们好！现在正是大家过平安夜的时候，文贵也吃了一肚子，喝了一肚子，还抽了雪茄。真是感慨很多，感慨非常多！
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（二）](https://gnews.org/zh-hans/675333/)
+在大家都过平安夜的时候，很多战友给我发来了去年平安夜和圣诞节的视频，真是（令人）感慨啊：真快呀，又一年了！在这个平安夜的时候，人类真的是遇到了一个前所未有的、最不平安、最无法确定平安的“平安夜”！
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（三）](https://gnews.org/zh-hans/675371/)
+很多战友，现在都和我一样，在想着这个平安夜和去年的平安夜之间所发生的一系列的事情。亲爱的兄弟姐妹们，此时此刻，大家的心情都是很复杂的。我们想想，现在，在国内的同胞们，面临着缺粮、银行不能取钱、病毒等各个方面的威胁，别说“平安”了，就连你过平安夜都“不合法”！更不要提过圣诞节了，（当然）也“不合法”！
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（四）](https://gnews.org/zh-hans/675720/)
+同时，我们现在想到，这个世界上，所有的人民，有多少人，几千万人，被感染上了共产党的病毒！又有多少人没有任何原因地、没有任何（理由地），甚至是找不到敌人的情况下，家人就被夺去了生命！还有多少人是在疾病的威胁、痛苦之中，挣扎在生死线上！
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（五）](https://gnews.org/zh-hans/679037/)
+我们再次想起，当年西周、西欧，包括当时的耶稣被杀，当时的印度灭佛，人类的历史就是伴随着无知、愚昧、暴力和追求和平、善良（的过程）。这就更加地凸显了我们的“爆料革命”、新中国联邦追求正道主义的正确性！
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（六）](https://gnews.org/zh-hans/679024/)
+越是在平安夜，我们（越是）要想想这个世界上有多少人“不平安”！我们再想想，比比那些感染了病的人，想一想全世界在贫困潦倒中不能过平安夜的人，甚至没水、没电、没房子的人，我们要感恩上天，感恩万佛万神啊，兄弟姐妹们！
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（七）](https://gnews.org/zh-hans/681491/)
+我们要珍惜呀，特别是（跟随）“爆料革命”和新中国联邦走到了今天的兄弟姐妹们，太不容易了，太不容易了！我们有多少在墙内和在各个领域不能站出来说话的战友，冒着生命的危险，（冒着）失去家人、生命、自由和所有财产的危险，支持着新中国联邦，（为了）我们新中国人追求的目标，参与“爆料革命”。此时此刻，我真是用什么话都无法形容对我们的战友的，对整个“爆料革命”和新中国联邦支持的我们的（战友们的感谢）——代表人物咱就不一一说了，别说漏了——感慨万千！
 
-[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（八）](https://gnews.org/zh-hans/681582/)
+刚才，我再一次地为所有的“爆料革命”的战友和家人们祈福，我再次为十四亿中国同胞祈福，为全世界人民祈福！当我们关心美国大选的不确定性的时候，大家坐在那里担心的时候，大家要想到，这个世界上真需要担心的事儿实在太多了！就这一个病毒、一个疫苗，给每个人都带来了（多大的）生命威胁！大家想想，在这个时候，还有比这个疫情更大的对人类的威胁吗？这对人类有多么的不公平！
 
-———————
+一九二六年，我记得，天花病，世界上死了多少人啊！中国又死了多少人！然后到了SARS，SARS是在二零零三年，中国死了多少人！再想想，二战这才过了多少年啊，人类死了多少人！所以说，人类啊，它必须在巨大的灾难面前才能一次一次走向文明，一次次走向真相，才能实现人类追求的那种和平。真正的、人们所说的那种和平，太难了！
 
-## VIII. Statistical Anomalies in the Six Battleground States
+我们每个人又是怎么做的，兄弟姐妹们？我们看到了多少不可思议的事情发生啊！因为贪婪，因为没有信仰。在这个平安夜，想想有多少人不能像我们很多人一样，过着平安、和家人相聚、可以自由发声、能吃饱喝好的、有选择的日子。我们真的希望，我们中国人从现在开始起，在这场灾难当中，能真正地找到中国人的方向，让中国人过上没有恐惧、真正的是基本公平、不再为几个家族当奴隶（的日子）。
 
-## VIII.六个战场州的统计异常
+想一想今天的中国富豪，去年的时候，那些富豪，包括马云、海航，许家印、王健林……一个个的富豪，那些最牛叉的国企里面给共产党舔腚的大佬们，现在（又）是什么情况？可以说，全世界唯有我们“爆料革命”、新中国联邦“独好”——独家的好，前途无限光明！
 
-The 2020 presidential election appears to feature at least four types of statistical anomalies that raise troubling questions. Table 8 illustrates the incidence of these statistical anomalies across the six battleground states. As you can see from the table, Wisconsin and Georgia are characterized by the highest degree of statistical anomalies, with three of the four anomalies present. Nevada and Arizona show two anomalies present while Michigan has at least one. Let’s take a more granular look now at each of these types of statistical anomalies.
+也是在这一年里，我们在战斗当中失去了一些战友。在战斗面前，（一些战友）因为贪婪，因为恐惧，失去了自己当初发誓追求的信仰和目标。这都是正常的，没有这个，（反而）是不正常的。
 
-2020年总统大选中好像至少有四种引起问题的统计异常。表8显示了六个战场州统计异常的发生率。从表中可以看到，威斯康星州和佐治亚州的统计异常程度最高，有四种形式中的三种。内华达州和亚历桑那州出现了两种形式，而密西根州至少有一种。现在让我们更详细地分析每一种统计异常。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25064357/Screen-Shot-2020-12-25-at-7.33.03-PM.png)
-表8：六个战场州的统计异常
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25064659/Screen-Shot-2020-12-25-at-7.46.49-PM.png)√ 表示普遍证据 \* 表示某些证据
-### Dramatic Changes in Mail- – in and Absentee Ballot Rejection Rates from Previous Elections
+在此时此刻，今天我工作了一天，一直没有停，跟很多人在开会。在一天的开会当中，我真的是感受到，这个世界是真的不太平啊：每个人都不知道明年——辛丑年会发生什么事。更重要的事情，现在国内，真的是经济、民生一塌糊涂，每个人的心里都像揣着好多小兔子一样，不知道明天会发生什么事儿。咱国内的企业家——我过去的老朋友，这几天太多人和我联系了。他们都说，每个人的心里像（揣着）无数个小兔子一样，忐忑不安，每天不停地刷手机。出去吧，怕染病；呆在家里边吧，有时候跟家人还吵嘴——被洗脑的家人到现在也不能觉醒过来，很多人（为此）很痛苦。这个世界上最痛苦的，可能真的就是先知先觉的人。因为太多人被洗脑了，特别是在国内和墙内，我是能理解的。
 
-### 同以前的总统选举相比邮寄选票和缺席选票拒票率的巨大变化
+但是，兄弟姐妹们，越是这个时候，越要包容；越是这个时候，越要相信有上天！我今天和家人晚上吃饭（的时候），聊了几千年的历史，我非常感动的事情：很多我的家人和身边的人，真的和过去不一样了——（他们）对上天、信仰和宗教，对社会的正义，对生活的感恩，有了完全不同的程度的升华！让我特别地兴奋，特别地激动。说实在话，刚才，我到洗手间平静了半天，我是在幸福中，感受中——人类（就是这样地）在文明和惨痛的灾难面前一次又一次升华的。
 
-It is routine across the 50 states for mail-in-and absentee ballots to be rejected for any number of reasons. These reasons may include: the lack of a signature or adequate signature match, a late arrival past a deadline, the lack of an external envelope that verifies voter-identification (a naked ballot), or if voters provide inaccurate or incomplete information on the ballots.
+我希望我们所有的战友们在这个时候，真正地能对家人、对朋友静下心来，听他们说话；不要因为你明白了，你就以为家里人都明白了，朋友们，这是不对的！另外一个，平安夜，这个时候我们要学会感恩，真的要相信上天，（相信）万佛万神在护佑着我们！我们这里发生的一系列的事情，包括美国总统大选这些事情，一定有天意，有天意在护佑着，正在向世人们展示着人类应该去向一个什么样的地方！
 
-在全美五十州因有很多原因而导致邮寄选票和缺席选票被拒绝是很平常的。这些原因可能包括：缺少签名或者签名不匹配，选票到达超过规定期限，没有能够证明选民身份的外信封（祼票），或者选民在选票上提供的信息不准确或不完整。
-
-In the 2020 presidential race, Joe Biden received a disproportionately high percentage of the mail-in and absentee ballots. Perhaps not coincidentally, we saw a dramatic fall in rejection rates in Pennsylvania, Nevada, and especially Georgia.
-
-2020年总统竞选中，乔·拜登收到了不成比的高比率的邮寄选票和缺席选票。或许这不是巧合，我们看到在宾夕法尼亚州、内华达州特别是佐治亚州这两种选票的拒收率大幅下降。
-
-For example, in Nevada, the overall rejection rate dropped from 1.6% in 2016 to 0.58% in 2020. In Pennsylvania, the 2016 rejection rate of 1.0% dropped to virtually nothing at 0.28%.  The biggest fall in the overall absentee ballot rejection rate came, however, in Georgia. Its rejection rate fell from 6.8% in 2016 to a mere 0.34% in 2020.
-
-例如，在内华达州，全部的拒票率从2016年的1.6%降到在2020年的0.58%。宾夕法尼亚的拒票率从2016年的1.0%降到0.28%几乎为零。然而，总的说来缺席选票拒票率中下降最大的是佐治亚州，从2016年的6.8%降为在2020年只有0.34%。
-
-These dramatically lower rejection rates point to a conscious effort by Democrat election officials across these key battleground states to subject mail-in and absentee ballots to a lower level of scrutiny. That this kind of government conduct and gaming of our election system may have contributed to tipping the scales in favor of Joe Biden can be illustrated in this simple calculation:
-
-拒票率的显著下降表明这六个关键战场州的民主党竞选官员处心积虑地降低邮寄选票和缺席选票的审查水平。这种政府行为和操纵我们的选举制度可能导致天平偏向乔·拜登，下面简单的计算能够表明这一点：
-
-In the 2020 race, Georgia election officials received 1,320,154 mail-in and absentee ballots. If these ballots had been rejected at the 2016 rate of 6.8% instead of the 2020 rate of 0.34%, there would have been 81,321 ballots rejected instead of the 4,489 ballots that were actually rejected.
-
-在2020年的总统竞选中，佐治亚州的选举官员收到了1,320,154张邮寄选票和缺席选票。如果按照2016年6.8%的拒票率而不是2020年的0.34%，这些选票中的81,321张会被拒收而不是事实上的1,489张。
-
-Under the conservative assumption that 60% of these mail-in and absentee ballots went to Joe Biden, this dramatic fall in the rejection rate provided Joe Biden with an additional 16,264 votes. That’s more than the margin of the alleged Biden victory in Georgia.
-
-根据保守的假设，60%的邮寄选票和缺席选票投给了拜登，拒票率的大幅下降使拜登额外获得了16,264张选票，大大超过了拜登在佐治亚州所谓的以微弱优势获胜的票数。
-
-### Excessively High Voter Turnout (at times exceeding 100%)
-
-### 投票率过高（有时超过100%）
-
-When there are more ballots cast than registered or eligible voters, fraud has likely taken place. During the 2020 presidential election, excessively high voter turnout occurred across all six swing states.
-
-当选出的选票超过了登记选民和合格选民时，那就很可能发生了欺诈行为。在2020年总统大选期间，6个摇摆州都出现了投票率过高的现象。
-
-In analyzing this problem, it is important to distinguish between states that have same-day registration and those that don’t. States with same-day registration can plausibly have voter turnout that is higher than 100%. However, is impossible for that to happen in states without same-day registration without fraud having taken place.
-
-在分析这个问题的时候，把同一天注册的州和没有这样做的州区分开来是很重要的。同一天注册的州超过100%的投票率貌似比较合理，然而，对于那些没有同一天注册，同时又没有大选欺诈的州出现这种过高的投票率是不可能的。
-
-Consider, then, Arizona which does not allow same-day voter registration. According to testimony from an MIT-trained mathematician, Candidate Biden may have received a weighted 130% total of Democrat votes in Maricopa County to help him win the state due to an algorithm programmed into the Dominion voting machines used there.
-
-然后再想想在不允许选民同一天注册的亚利桑那州，根据一位麻省理工学院培养的数学家的证词，由于本州使用的多米尼投票机里的一种算法程序，候选人拜登得到了马里科帕县的民主党总权重130%的选票，这帮助他赢得了本州的胜利。
-
-Although Michigan does allow same-day voter registration, voter turnout was still abnormally high. Here again, the Dominion voting system has been implicated. To wit:
-
-尽管密歇根州允许选民同一天登记，但是投票率仍然异常的高。这里再一次与多米尼投票系统有牵连。即：
-
-Cybersecurity executive and former NASA analyst, Russ Ramsland, testified that in Wayne County, Michigan, where Dominion Voting Systems equipment was used, 46 out of 47 precincts in the county displayed greater than a 96% voter turnout. 25 out of those precincts showed a 100% voter turnout.
-
-网络安全主管及前美国国家航空和宇宙航行局分析师拉斯·拉姆斯兰作证说，在使用多米尼投票设备的密歇根韦恩县，47个选区中有46个有超过96%的投票率，25个选区的投票率高达100%。
-
-Wisconsin, which also allows same-day voter registration, also reported abnormally high voter turnout when compared to 2016 numbers. For example, Milwaukee reported a record 84% voter turnout during the 2020 presidential election versus 75% in 2016. Of the city’s 327 voting wards, 90 reported a turnout of greater than 90%.
-
-同样允许同一天选民登记的威斯康星州，与2016年相比，投票率也高得不正常，例如，密尔沃基市2020总统大选年期间投票率达到了创纪录的84%，而2016年为75%。本市327个选区中90%的选区的投票率高于90%。
-
-### Statistically Improbable Vote Totals Based on Party Registration and Historical Patterns
-
-### 基于政党登记模式和历史模式统计上不可能的选票总数
-
-The 2020 presidential election was characterized by strong partisan voting patterns consistent with historical patterns. As a rule, heavily Republican jurisdictions voted heavily for President Trump and heavily Democrat jurisdictions voted heavily for Joe Biden.
-
-2020年总统大选的特点是强烈的政党投票模式与历史模式一致。通常共和党辖区大部分选民投票支持川普总统，而民主党辖区选民主要投票支持拜登。
-
-In some cases, however, there were instances where these partisan and historical patterns were violated. It is precisely in such instances where either outright fraud or machine inaccuracies or manipulations are most likely to be operative.
-
-然而在某些情况下出现了违反这些政党和历史模式的案例。恰恰在这些案例中，最有可能发生公开欺诈或者机器处理数据不准确或者对大选的操纵。
-
-As one example of such statistically improbable vote totals, there are the results in Arizona’s Fifth Congressional District. In one precinct in the suburb of Queen Creek, the vote percent for President Trump dropped dramatically relative to 2016, from 67.4 to 58.5 percent. This was attributed to an “unusually high” number of duplicate ballots.
-
-作为统计上不太可能的选票总数的一个例子，亚利桑那州的第五国会选区的选举结果如下：在皇后溪郊区的一个选区，川普总统的得票率从2016年的67.4%大幅降到2020年的58.5%，这是由于重复选票“异常多”。
-
-### Unusual Vote Surges
-
-### 异常选票激增
-
-Several unusual vote surges took place in the very early hours of the morning of November 4th in Georgia, Michigan, and Wisconsin. An analysis conducted by the Voter Integrity Project of The New York Times publicly reported data on Election Day that showed several vote “spikes” that were unusually large in size with unusually high Biden-to-Trump ratios. Such spikes or surges could well indicate that fraudulent ballots had been counted.
-
-11月4号凌晨，佐治亚州、密歇根州和威斯康星州出现了好几波投票浪潮。纽约时报的选民诚信项目进行的分析公开报道了选举日的数据，这些数据显示出好几波投票高峰，这些投票高峰的规模异常大，拜登对川普的比率也异常大，这样的投票高峰或选票激增能够很好地说明假选票被统计在内。
-
-In Georgia, for example, an update at 1:34 AM on November 4th showed 136,155 additional ballots cast for Joe Biden, and 29,115 additional votes cast for President Trump. An update in Michigan at 3:50 AM on November 4th showed an update of 54,497 additional votes cast for Joe Biden, and 4,718 votes cast for President Trump. And an update in Wisconsin at 3:42 AM on November 4th showed 143,379 additional ballots cast for Joe Biden, and 25,163 votes cast for President Trump.
-
-例如在佐治亚州，11月4号凌晨1点34分的数据更新显示拜登增加了136,155张选票，川普总统增加了29,115张选票。密歇根州11月4号凌晨3点50分的数据更新显示拜登增加的选票数是54,497，而川普总统的是4,718。威斯康星州的数据更新显示11月4日凌晨3点42分，拜登增加了143,379张选票，而川普总统仅仅增加了25,163张选票。
-
-更多精彩内容请关注：
-
-- [美国纽约七星会农场（为子孙爱七哥）GTV](https://gtv.org/user/5e986b24b005bd6d929820bd)
-- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19044815/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-2.jpg)
 0

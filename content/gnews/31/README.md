@@ -1,25 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 圣诞有感：比较中西信仰理解新中国人使命
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/683917/)
+## 【Raiklin律师推文1225】重磅！美国联邦政府可以起诉各州
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/684118/)
 
-撰稿：爱你们
+2020年12月25日，在刚刚过去的一个焦虑的平安夜之后，圣诞节清晨， Ivan Raiklin 律师发推一篇Western Journal发表的文章，题为《TWJ独家，爆炸性的新法律备忘录让川普的支持者们在圣诞前夕看到了希望》。文章的作者奥尔森和麦克斯威尼先生撰写了两份备忘录，这篇文章是第二份，它概述了川普竞选团队在未来几周可能采取的法律策略。文章发表前，已被被寄送给了川普总统。
 
-编辑：jim大叔
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25065539/20191106_110034.jpg)（图片来自网络）
-太初有道，道就是神。弥赛亚临世就是为重修与神的约。道，就是智慧程序。无处不在、无所不能的神,就是指游戏程序处处都在。约，就是指剧本编程的原则。基督约我们积极参与游戏并努力做个义人。儒家也主张积极参与游戏，但以维持高低贵贱的和平秩序为约定原则。道家贵生。
+文章从德克萨斯诉宾夕法尼亚州案被最高法院拒绝做出分析，称最高法院放弃了其解决各州实质性争议的宪法义务。
 
-道家开发自我生命程序。如返老还童，交而不泄、食炁辟谷等。探索宇宙程序与生命程序的合一。最终扬升回到高维的家。佛家来世的目的就是为了借肉身修炼到高维。彻底离开游戏。这些都是不同的选择。不同的选择就有不同的体验。分别先进与落后是拿个极有限的尺子来量无限的选择。现在到了我们与神重新订约的时代。
+然而，即使在驳回该案的命令中，最高法院也确定了如何成功地提出另一个挑战—即由不同的原告提出。
 
-中国人善于养生及肉身享受技术。善于排座次搞关系的游戏。不太在乎公义。是末日考验西方信仰最合适的人选。虽屡屡被外族所打败，但只要名分已定，外族因这文化更有利于统治者享乐而被同化。故长存至今。郭班川及所有爆料革命的战友都是弥赛亚，正在与神重新订约。
+这就是：如果以前由得克萨斯州提出的同一案件现在由美利坚合众国提出，以国家状告州，我们完全有理由相信，最高法院将被迫审理这一案件并作出有利的裁决。
 
-班农先生的平民主义、文贵先生首提的天下无权的、去中心化的平行网络社会结构，就是新约程序的基石。无论从宇宙能量频率催醒人的主权意识上看，还是从科技条件上看，亦或是从银河联邦大神仙们的积极回应上看，没有任何理由不自信我们正在开启一个新的黄金时代。这也是神的一个应许。只要我们坚信！
+文章称这个方案将给圣诞节带来巨大的希望。
 
-如果用逻辑思维就会发现神安排的完美。灵界为何预言华夏文明引领未来？几千年的活命哲学似乎就为今天派上用场。太刚太强的文化活不到今天。活到今天就为:让吸收了西方组织力及共产主义攻击性意识形态的中共，发挥老祖宗官场贿赂及拍马屁的功夫，去终结人们对西方制度的崇拜。戳破外求假信仰的无力。让善于内求、包容而又正义的华夏人，开创一个以内求真善为主兼顾外求法治民主的新信仰。
+Ivan Raiklin律师发推时称，这是“新法律备忘录–美国必须起诉各州违反（宪法）第二条第一款Cl2的规定。”
 
-您发现完美了吗？在这个对西方一害再一救的桥段中，华夏儿女对全人类的影响大大增强。而要争论那一害的责任时，西方也应负主要责任。首先，共产意识的攻击性与组织能力，完全来自西方。不是华夏的特产。其次，中共的科技与经济力量也源于西方。最后，受难最深的新中国人为唤醒西方尽了全力！如闫丽梦博士的道德勇气！完美！圣诞快乐!
 
-（本文纯属个人观点）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040800/IMG_1836-1.jpg)
-+1
+
+> New Legal Memo- The United States Must sue the States for Violating Art II §1 Cl2 [https://t.co/xLN5Uq88pA](https://t.co/xLN5Uq88pA)
+> — Ivan #ThePlan Raiklin (@Raiklin) [December 25, 2020](https://twitter.com/Raiklin/status/1342439290631028738?ref_src=twsrc%5Etfw)
+
+
+
+新闻和图片来源于Ivan Raiklin律师的推文和
+[https://www.westernjournal.com/twj-exclusive-bombshell-new-legal-memo-giving-trump-supporters-hope-christmas-eve/?utm\_source=Twitter&utm\_medium=PostBottomSharingButtons&utm\_campaign=websitesharingbuttons](https://www.westernjournal.com/twj-exclusive-bombshell-new-legal-memo-giving-trump-supporters-hope-christmas-eve/?utm_source=Twitter&amp;utm_medium=PostBottomSharingButtons&amp;utm_campaign=websitesharingbuttons)
+
+
+
+0

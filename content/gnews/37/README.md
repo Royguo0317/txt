@@ -1,146 +1,98 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【文字版】川普12月24日直推的重磅中共颠覆美国的视频
-` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/683798/)
+## 【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（十）
+` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/684009/)
 
-翻译：NY2020 (文火) ｜ 编辑：灭共小宇宙
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25061315/Screen-Shot-2020-12-25-at-7.10.29-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25062303/Screen-Shot-2020-12-25-at-7.09.05-PM-1.png)翻译来源于视频：[https://twitter.com/realDonaldTrump/status/1341948764068704256](https://twitter.com/realDonaldTrump/status/1341948764068704256)
-我现在要跟你说实话，任何逃离共产主义中国、俄国、古巴或朝鲜的人都可以看到墙上的字迹。
+翻译： zz17 ｜ 校对：Tom Cat ｜ 编辑、美工：灭共小宇宙
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25073250/%E7%BA%B3%E7%93%A6%E7%BD%97%E6%8A%A5%E5%91%8A10.jpg)
+往期链接：
 
-1963年，共产党推翻美国的目标被写入了国会记录。
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（一）](https://gnews.org/zh-hans/669414/)
 
-他们表示，要夺取一个或两个政党，渗透到新闻界获得广播电视和电影的关键位置的控制权。经过这次选举，很清楚了，这些目标已经实现。
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（二）](https://gnews.org/zh-hans/675333/)
 
-你越看越觉得所有的路都通向中国，特别是中国共产党。
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（三）](https://gnews.org/zh-hans/675371/)
 
-猜猜谁拥有好莱坞的一大块，包括AMC影院和传奇电影公司。
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（四）](https://gnews.org/zh-hans/675720/)
 
-你猜对了。
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（五）](https://gnews.org/zh-hans/679037/)
 
-中国共产党(The CCP)
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（六）](https://gnews.org/zh-hans/679024/)
 
-猜猜是谁向主流报纸，包括《华尔街日报》和《纽约时报》支付了数百万美元来进行他们的宣传
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（七）](https://gnews.org/zh-hans/681491/)
 
-中国共产党(The CCP)
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（八）](https://gnews.org/zh-hans/681582/)
 
-猜猜谁给拜登家族提供了数十亿美元的资金
+[【纳瓦罗报告】完美的骗局：大选中主要的六种违规行为（九）](https://gnews.org/zh-hans/683896/)
 
-是的，中国共产党(The CCP)。 现在，你知道为什么拜登是媒体的宠儿了吗？
+———————
 
-相反，谁是中共最大的眼中钉？
+## IX. A State-By-State Analysis and Signal Failure of Our Legislative and Judicial Branches 
 
-谁站出来反对他们的滥用贸易政策， 并打他们数十亿美元的关税？
+## IX. 一份对于我们立法和司法机构逐州的分析报告及其显著的不作为
 
-谁拆除了他们对制造业的束缚，并将美国的工厂和工作岗位带回了国内？
+All happy families are alike; each unhappy family is unhappy in its own way.
 
-谁阻止了对美国知识产权的掠夺？
+– Anna Karenina, by Leo Tolstoy
 
-谁对侵犯宗教自由的行为进行了严厉的惩罚？
+所有幸福的家庭都很相似；但是不幸的家庭各有各的不幸。
 
-最后是谁有胆量说黑桃就是黑桃，理直气壮地指责中共隐瞒了一种使我们整个世界瘫痪的病毒？
+——《安娜**·**卡列尼娜》列夫**·**托尔斯泰著
 
-川普总统！
+It should be clear at this point that all six battleground states suffer from most or all of the six dimensions of election irregularities documented in this report. However, like Tolstoy’s unhappy families, it is also true that each battleground state is different in its own election irregularity way. That is, each battleground state may be characterized by a unique mix of issues that, impressionistically, might be considered “most important” in swinging that state for Joe Biden.
 
-现在，你明白为什么他们这么恨他了吗？
+这六个战场州都经历了本报告中记录的大部分或全部六个选举违规行为，对于这一点已是非常清楚。然而，就像托尔斯泰所说“不幸的家庭各有不同”一样，每个战场州在其选举违规行为方式上也有所不同。也就是说,每个战场州的情况可以被描述成一系列独特的问题组合，从主观上来说，有可能这些问题能够成为将该州结果转向有利于乔·拜登的“最重要”因素。
 
-他们几十年来一直在追杀美国追杀你我，他们的计划基本上已经完成了，直到特朗普总统挡住了他们的路。
+Consider Arizona, a state with the lowest alleged Biden victory margin at 10,457 votes. This is a state with statistically improbable high voter turnouts in Maricopa and Pima counties; widespread ballot mishandling; and 1.6 million mail-in ballots (which tended towards Biden) subjected to much lower standards of certification and ID verification than in-person voters (who tended towards Trump).
 
-现在我们正在为我们的共和国而战。
+以亚利桑那州为例，该州据称拜登以所谓最微弱的领先票数(获得10,457票)获胜。但是该州在马里科帕县和皮马县，投票率在统计学上不太可能很高；大范围选票处理不当；以及这160万邮寄选票(倾向于拜登)在认证和身份验证上的标准都要比亲自投票的选民的选票(倾向于川普)要低得多。
 
-敌人已经在城门内了，连那些我们认为可以信任的人都背叛了我们。
+In Georgia, the alleged Biden victory margin was just 11,779 votes. What perhaps jumps out most in the Peach State is the illegal Consent Decree that effectively gutted the signature match requirements for millions of mail-in ballots. There is also the quite unresolved fake ballot manufacturing matter of the roughly 100,000 ballots that were mysteriously pulled, in the dead of night, out from underneath tables and expeditiously tabulated. Of course, we saw that Georgia’s electoral version of a Three-card Monte sleight-of-hand led to a strong Biden vote surge.
 
-他们不是在用枪炮和炸弹战斗。
+在佐治亚州，所谓拜登的领先票数仅为11,779票。对于发生在桃州的情况，可能最突出的就是非法同意令。该法令有效地规定了数百万张邮寄选票的签名匹配要求。还存在相当多不确定的假选票制造的问题，大约有100,000选票在深夜中神秘地从桌子底下抽出来,然后迅速纳入在计票表格里。当然，我们所看到的是佐治亚州选举版本的“三张牌把戏”(注：Three-card Monte是一种三张牌赌一张牌的游戏)，而这种花招导致了拜登选票强劲的飙升。
 
-不。而用文字、思想和叙事战斗，因为他们在为我们的思想而战。
+Of all of the six battleground states which suffered from numerous observer and poll watcher abuses, Michigan must rank as “first among equals.” With its “board up the windows” and “rough up the observers” tactics, Detroit in Wayne County was the center of this “see no evil” universe. When two local Republican officials tried to withhold certification of the votes in this county for practices such as these and demanded an audit, they were subject to extreme intimidation and “doxing” and quickly capitulated.143
 
-1956年，共产党领袖赫鲁晓夫说，我们将不费一枪一弹拿下美国。
+在六个战场州都发生了对数名观察员和投票监督员不公的情形，而密歇根州在此方面应该是无人出其右。随着“挡住计票室的窗户”和“粗暴对待观察员”这些手段的曝光, 韦恩县的底特律成为了这个“看不见邪恶”的中心。当两名当地共和党官员试图因此类行为而拒绝认证该县的选票并要求进行审计时，他们受到了极端的恐吓和“被人肉搜索”，随后他们迅速认输，屈服。
 
-我们不需要入侵美国，我们将从内部消灭你。
+As for Nevada, this is a state likewise with a very narrow alleged victory margin for Joe Biden – 33,596 votes. Here, voting machine irregularities associated with the Agilis machine have called into question as many as 130,000 votes. There may also be an unusually large number of ballots cast by out-of-state voters and others who did not meet residency requirements. Of course, the brazen bribery of Native Americans to vote for Joe Biden is a dark stain on the state and the Democrat Party.144
 
-我希望你现在能看到，看不见的敌人是共产主义，而最致命的病毒就是中共。
+至于内华达州，同样是一个声称乔·拜登以微弱优势赢得该州(获得33,596票)。在这里，跟艾格里斯机器相关的投票机违规问题所涉及到的选票就达130,000张。非该州选民和其他不符合居住要求的人也有可能投出异常多的选票。当然，厚颜无耻地贿赂美国原住民投票给乔·拜登会成为该州和民主党的污点。
 
-它通过腐败的政客、商人和有权有势的人的恶习潜入一个国家。
+In Pennsylvania, an equally brazen Democrat Secretary of State issued illegal guidance for the acceptance of naked ballots and ignored direction from the Pennsylvania Supreme Court to fix the matter. She allowed ballots to be illegally cured in contravention of state law and pushed the legal envelope for accepting ballots after Election Day.
 
-它摧城拔寨，撕裂身体和心灵。
+在宾夕法尼亚州，一名同样厚颜无耻的民主党国务卿发布了关于接受无记名选票的非法指南，并且无视来自宾夕法尼州最高法院对此问题解决的指示。在公然违反州法律的情况下，她允许对选票进行非法补救纠正，并在选举日后推出接受选票的法律信封。
 
-在死亡和毁灭的道路上，没有一个灵魂不受影响。
+In the Keystone State, and as with Georgia’s Three-card Monte, shuffle fake ballots out from underneath a table scandal, there is also the equally unresolved matter of possible fake ballot manufacturing. Recall, here, the testimony of a truck driver who swears he picked up as many as 100,000 fake manufactured ballots in New York and delivered them to Pennsylvania. Both the tractor-trailer and the ballots involved remain unaccounted for – and what might have been in this tractor-trailer were enough ballots alone to swing the election to Joe Biden.
 
-它让我们相信谎言就是真理… …邪恶就是善，仇恨就是爱… …分裂就是团结…
+在拱心石州（宾夕法尼亚州），就像佐治亚州的“三张牌把戏”一样，从已是丑闻的“桌子”下抽出假选票，不仅如此,还有可能同样存在制造假选票的问题。 在这里回想一下，一位卡车司机的证词表示他在纽约得到多达10万张假选票，并把选票运送到了宾夕法尼亚州。拖拉机拖车和所涉及的选票仍然下落不明，而这辆拖拉机拖车中有足够多的选票有可能将选举结果转向乔·拜登。
 
-相信我们的敌人是彼此… …男人对女人… …富人对穷人… …黑人对白人… …左派对右派
+Finally, in Wisconsin, the mother of all contestable process fouls is arguably that of the roughly 170,000 mail-in ballots entering the tabulation process under the guise of absentee ballots in clear violation of state law. That’s more than eight times the number of ballots of the alleged Biden victory margin of 20,682 votes.
 
-当我们感到无助、恐惧和孤独时，它就会生根发芽。
+最后，在威斯康辛州，所有有争议的过程违规的源头可以说是那大约17万张邮寄选票，在公然违反州法律的情况下以缺席选票的幌子进入制表流程。这个数字(17万)是所谓拜登获胜选票数目(20,682张)的8倍多。
 
-它抹去了我们的历史，诽谤了我们的祖先，并教我们的孩子恨他们自己的家庭和他们的国家。
+In Wisconsin, there is likewise the large-scale abuse associated with an overly expansive definition of “indefinitely confined voters.” Recall here that the increment of new indefinitely confined voters in the 2020 election in Wisconsin was more than five times the alleged Biden victory margin.
 
-它嘲讽我们的信仰，破坏了我们的价值观，攻击了我们的生活方式，它甚至要求我们在耻辱中下跪。
+在威斯康辛州，同样存在与过度宽泛的“无限期约束选民”定义相关的大规模滥用行为。在这里回顾一下，在威斯康辛州2020年选举中，新的无限期限制选民人数的增量是所谓拜登获胜数目的5倍多。
 
-但我们不会再感到羞愧，它不能再遮住我们的眼睛，因为我们知道自己是谁。
+While Democrat Party government officials cheated and gamed the electoral process across all six battleground states, many Republican government officials – from governors and state legislators to judges – did little or nothing to stand in their way.
 
-我们为逃避暴政而战。
+虽然民主党政府官员在所有六个战场州欺骗和操弄了选举流程，但是很多共和党政府官员，从州长、州议员到法官，几乎没有或者说根本没有阻止民主党政府官员这些行为。
 
-我们为结束奴隶制而流血。
+Consider that the Republican Party controls *both*chambers of the State Legislatures in five of the six battleground states – Arizona, Georgia, Michigan, Pennsylvania, and Wisconsin.145 These State Legislatures clearly have both the power and the opportunity to investigate the six dimensions of election irregularities presented in this report. Yet, wilting under intense political pressure, these politicians have failed in their Constitutional duties and responsibilities to do so – and thereby failed both their states and this nation as well as their party.
 
-我们缅怀那些为保障我们的自由而牺牲的勇士。
+考虑到共和党控制着六个战场州-亚利桑那州、佐治亚州、密歇根州、宾夕法尼亚州和威斯康辛州中的五个州的州议会两院。这些州议会明显既有权力又有机会调查本报告指出的选举违规的六个方面。然而，这些政客屈服于强大的政治压力，没有履行宪法赋予他们的责任和义务，因此也辜负了他们的州和这个国家以及他们所属的政党。
 
-我们欢迎所有种族和宗教的人。
+The same can be said for the Republican governors in two of the six battleground states – Arizona and Georgia. Both Arizona’s Doug Ducey and Georgia’s Brian Kemp have cowered in their Governor’s mansions and effectively sat on their hands while their states have wallowed in election irregularities.
 
-我们爱我们的邻居。
+对于六个战场州中的亚利桑那州和佐治亚州的共和党州长也是如此。亚利桑那州的道格·杜西(Doug Ducey)和佐治亚州的布莱恩·肯普(Brain Kemp)都蜷缩在他们的豪宅里，实际上就是袖手旁观。而他们的州深陷在选举违规行为的沼潭里。
 
-我们帮助贫困者。
+The judicial branch of the American government should be the final backstop for the kind of issues examined in this report. Yet both our State courts and Federal courts, including the Supreme Court, have failed the American people in refusing to properly adjudicate the election irregularities that have come before them. Their failures likewise pose a great risk to the American Republic.
 
-我们珍视我们的家人。
+美国政府的司法部门应该是本报告所要审查这些问题的最终认定来源。然而，我们州法院和联邦法院，包括最高法院，对摆在他们面前的大选违规行为都拒绝作出妥当的裁决。他们已经辜负了美国人民而且他们的不作为给美利坚合众国带来了巨大的风险。
 
-我们为我们所拥有的东西努力工作。
-
-我们在困难的时候团结一致。
-
-我们辨别善恶，辨别真假。
-
-我们的权利不是来自于政府，而是来自于上帝，我们将为保护这些权利而战斗到死。
-
-未来的时间很关键，人民需要呼吁我们的总统 保护我们免受国内外敌人的侵害，并维护他的誓言。
-
-目前，我们仍然拥有新闻自由和言论自由，但如果我们现在不抓住它们，我们就会永远失去它们。
-
-独立诚实的媒体公司，如 Oan, Newsmax，the epoch times 会引导我们走出黑暗。
-
-主流媒体只会把我们进一步拖垮。
-
-现在是时候停止给他们我们的钱，我们的注意力和我们的思想了。
-
-取消喜欢他们的Facebook页面，取消订阅他们的电子邮件，取消关注他们的Twitter，删除他们的应用程序，停止访问他们的网站。
-
-支持无数的爱国者，他们经历了地狱和艰辛，才把这些信息传递给你。
-
-点喜欢他们的内容，订阅他们的频道，分享他们的视频，传播他们的信息。
-
-停止使用谷歌搜索，谷歌正在审查每一个结果，以剥夺你对事实的知情权。开始使用DuckDuckGo。比较DuckDuckGo和谷歌搜索，你会感到震惊。
-
-关闭Twitter和Facebook，并切换到客Parlor。
-
-加入数以百万计的爱国者的行列，他们已经唾弃了这些敢于压制我们声音的有毒公司。
-
-在全国各地的集会上站起来，要求正义，拒绝共产主义。
-
-我们的敌人在夜间潜入，并试图利用媒体引诱我们入睡，趁机偷走我们的国家。但相反，他们唤醒了沉睡的巨人。
-
-我们看清了他们的真面目，他们再也无法欺骗我们了。
-
-他们想引发一次大重启，却引发了一次大觉醒。
-
-我们不会在五年后回头告诉我们的孩子，当我们的国家被盗时，我们什么也没做。
-
-我们会告诉他们，我们争取并赢得了我们的自由，就像我们的祖先在1776年一样。
-
-美国是世界上最后的自由堡垒。
-
-我们是中共病毒仅存的威胁，如果我们倒下了，世界就会倒下，但我们不会倒下。
-
-现在是时候和我们的国父们站在一起，唤起人民的力量和上帝的力量。
-
-我们是爱国者。
+（未完待续）
 
 更多精彩内容请关注：
 
