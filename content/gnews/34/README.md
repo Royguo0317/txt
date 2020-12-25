@@ -1,32 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 不一样的圣诞节
-` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/684095/)
+## 【Raiklin律师推文1225】两周作战计划
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/684168/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25075608/%E4%B8%8D%E4%B8%80%E6%A0%B7.png)
-作者：小小星 （京都富士会）
+12月25日，圣诞节的一大早，宪法律师Ivan Raikllin先生转发了一则视频推文，视频是电脑制作的一场类似摔跤或柔道的特殊竞技场上，分别酷似川普总统和乔拜登民主党总统候选人的选手，一开始银发“乔拜登”取得优势，金发“川普”在接连被痛击之后，奇迹般起身回击，无论力度还是使用的特殊技巧，都让乔拜登措不及防，比赛中出现了优劣反复的局面，但是“川普”者最终强有力取胜，获得全场一片喝彩。比赛结束时视频中主持人说，“这里是胜出选手：”Tunnel Trump” 名字和川普总统极为音似。他说，“这是一个一人决定证明自己战胜对手实力的案例”，“这是另一个关于‘生存理论’的历史故事”。
 
-校正：待命（文晓）（京都富士会）
+这个视频无疑是在影射当前美国大选中川普总统和乔拜登候选人激烈的竞选斗争状态，也饱含了美国人对川普总统的支持和对大选结果的美好期待。
 
-排版：待命（文晓）（京都富士会）
 
-随着爆料革命的影响力在世界不断创新，这个圣诞节真的和往年不一样。
 
-美国总统大选的激烈争斗中，疫情泛滥于世界的影响，人们不能安心快乐地过这个圣诞节。
+> Volume up, watch and listen to the end. This fight is just getting started! [#MerryChristmas](https://twitter.com/hashtag/MerryChristmas?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/k3ftgaLvC3](https://t.co/k3ftgaLvC3) [https://t.co/q0Cg9BcFYC](https://t.co/q0Cg9BcFYC)
+> — Ivan #ThePlan Raiklin (@Raiklin) [December 25, 2020](https://twitter.com/Raiklin/status/1342453429164191745?ref_src=twsrc%5Etfw)
 
-再看看国内，物价飞涨、医药天价、多家银行破产，经济一片混乱。
 
-可是国内的人们都还在梦中，不知道这个世界现在发生了什么。甚至还庆幸祸国内疫情稳定可，乐祸国外疫情严重太不安全。整个世界都被媒体给骗了，掩盖了事实真相，忽东忽西，一会儿左一会儿右。
 
-我们不知道什么时候被一小部分人当成了奴隶，却没有感觉，甚至装睡。是一小部分精英的贪婪。还是我们习惯了把自己命运交给了别人，两者都有责任。
+Ivan Raiklin在转推时称：
 
-香港的年轻人给了全世界的人们最好的答案。不能再沉睡了，不能再视而不见 ，听而不闻。我们要站起来反抗，新中国联邦人喊出了心声。誓不为奴！
 
-战友们在郭先生的启蒙下，都知道自己身负重任。从来没有看见过中国人因为共同的信仰，亿万战友走到了一起的光景。每天尽自己最大的努力而战斗，坚持打伪类每天站在风雪中，没白没黑的农场义工战友们，积极参与GTV直播，每天写Gnews投稿，翻译文章，美工制图，制作视频。推特等等…
+> 放大音量，听一下结尾。这场战斗才刚刚开始! （一切都是刚刚开始！）
 
-相信明年的圣诞节会是美好而快乐的。
 
-战友们，紧随郭先生，尽可能向世界传播真相。做永不为奴的新中国联邦人！
 
-0
+> #圣诞快乐
+
+
+Raiklin律师诙谐轻松的语调怎么这么熟悉？更重要的是，他附上了一份到1月20日前详细的2周作战日程表。
+
+[https://docs.google.com/spreadsheets/d/1-0xSKuUSwGP7Wtn6rWc56yaiz2XvxVqzI1gJ3ekFJ-w/edit#gid=0](https://docs.google.com/spreadsheets/d/1-0xSKuUSwGP7Wtn6rWc56yaiz2XvxVqzI1gJ3ekFJ-w/edit#gid=0)
+
+
+
+新闻和图片来源于Ivan Raiklin律师的推文
+
++1
