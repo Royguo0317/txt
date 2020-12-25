@@ -1,26 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【蓬佩奥推文1224】妻子没染中共病毒
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/682822/)
+## 2020圣诞前夜
+` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/682913/)
 
-12月24日彭博社高级外国政策记者Nicholas Wadhams发不实推文称，称蓬佩奥国务卿的妻子Jennifer Jacobs已确诊中共病毒。12月16日开始隔离，此前一天曾参加白宫圣诞晚会。蓬佩奥国务卿回复时，该推文已经被删，只留下截图证据。他说：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24202905/%E7%83%9B%E5%85%89.jpg)
+作者：ThreeColors (京都富士会）
 
+校正：待命（文晓）（京都富士会）
 
-> 很高兴看到这条明显的虚假信息—已经被删除了。
-> 
-> 我不静待他的道歉。（言外之意，他应该道歉，但如果是人品问题，也等不到真诚的道歉。）
+排版：待命（文晓）（京都富士会）
 
+人生意义何在？童年尽情玩耍，青年锻炼身体，成年游历世界，老了以后分享经验经历。多少人不得不抱着一些旧的记忆孤独过活，最后去见上帝。
 
+今天是2020年圣诞前夜，我们要思考，人，为什么活着？人生短暂，到底该做点什么？
 
+我要为川普总统祈祷！为美国祈祷！为人类世界的民主与自由祈祷！有人说川普总统赢，世界灯塔的美国才会继续，世界才有未来･･････我信！
 
-> Good to see this tweet — with patently false information — was deleted. 
-> 
-> I won’t hold my breath for an apology [@nwadhams](https://twitter.com/nwadhams?ref_src=twsrc%5Etfw) [@business](https://twitter.com/business?ref_src=twsrc%5Etfw) [pic.twitter.com/u7gun6oE31](https://t.co/u7gun6oE31)
-> — Mike Pompeo (@mikepompeo) [December 25, 2020](https://twitter.com/mikepompeo/status/1342263685063069696?ref_src=twsrc%5Etfw)
+国内开始局部停电甚至停水，中共继续用病毒骚扰包括国人在内的全世界人民的正常生活，全世界多国迫使中共为病毒所造成的伤害负责的态势渐成。回顾中共历史，种种运动造成中华大地冤魂无数，自然环境和人心尽毁。我要为中国人祈祷！为全世界人民祈祷！灭共刻不容缓！
 
-
-
-新闻和图片来自蓬佩奥先生推文
-
-+1
+0

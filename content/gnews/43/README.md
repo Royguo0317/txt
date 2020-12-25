@@ -1,95 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 会计，财报及审计的入门基础与介绍（一）
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/682820/)
+## 罪恶体制下普通民众的生存环境 （拆迁部分）&#8211;爆料革命随笔之四
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/682872/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23164109/1223.jpg)
-Picture Source: https://www.groomassocies.com
+【日本大阪方舟农场】作者：馨子 校对：杖子小哥
 
-在新一个系列中更多的是介绍关于会计，财报及审计的入门基础与介绍。并不涉及进一步的复杂编译。但读者也应注意的是金融市场的底层逻辑在于财务报表与会计，无论是公共部门还是私有部门。牢牢掌握好会计基础是市场参与者不可或缺的素质。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24201327/EpmAirtUwAcmf_c.jpg)
 
-Introduction to Financial statement Analysis
+说起“拆迁”在中国无人不知无人不晓，但是要把这两个字翻译成英语、日语、德语、法语、意大利语乃至更多语种，我相信很多翻译人员或多或少会感觉有些难度。如果加深一些难度，将这两个字换个说法叫“强拆”，相信中国人还能懂得，但我真的不确定还有多少翻译能准确地生动地翻译过来。我试着用谷歌软件翻译了一下“拆迁”，英文叫：Demolition；日文叫：解体；德语：Abriss。后边不试了，对不对不清楚，也不清楚这个翻译好的单词是不是能准确表达出“拆迁”的含义，亦或这就是中文所谓的博大精深吧。
 
-- 形成对未来公司表现和财务状况的期望
-- Form expectation about company future performance and financial position
-- 衡量公司并做出经济决策
-- Evaluating company for the purpose of making economic decision
-- Financial reporting：作用是提供关于以上几点的信息（Provide information）
-- Credit：不计入现金流
-- Liquidity: meet short-term obligation 满足短期债务需求
-- Solvency：meet Long-term obligation满足长期债务需求
-- 核心信息会存在于保密渠道：投资者会议，电话会议等
+单从字面看并不难解释，也不难翻译，拆就是拆掉某物，迁就是迁移、搬走，合起来就是拆掉搬走，或者搬走拆掉，这只能说物权是在完全自主的情况下的含义。但是，中文语境下的“拆迁”是有特定含义的，在中国版图上所有被拆迁的住户非常清楚，其深层的含义可绝不仅仅如此，里边纠缠着多少利益、权力、法律等等，朦朦胧胧，看不清摸不到，但又完全绞在一起。
 
+每一起强拆都是“依法”进行的，每一次依据的所谓法律都是没有判决的，没有经过法律判决的强拆就是抢劫！法律的严肃、神圣不可侵犯成为笑话！法律对中国劳苦大众来说变成了奢侈品，法律只是掌权者手中的玩偶。
 
-Financial statement and supplementary information 3.1
+任何一次拆迁工程，有多少官员升官发财？有多少人获利颇丰？有多少人沾沾自喜？有多少人小富即安？有多少人倾家荡产？有多少人含冤离世？有多少人欲哭无泪？有多少人投诉无门？有多少人流离失所？有多少人作恶？有多少人帮凶？有多少人绝食？有多少人自焚？有多少人隔岸观火？这些都含在了“拆迁”和“强拆”里边。这里边的每一个问号的后边都有不止一个故事，哪一片被拆掉的砖瓦没有沾上血污？我就此打住吧，留一些想象空间给您。
 
-- The statement of comprehensive income and other comprehensive income and statement of cash flow
-- 一段时期内公司各种业务活动中的财务表现
-- 一段时期内公司的盈利能力 Profitability over period time
+其他国家我不了解，仅说说我所在的日本，我们家附近有一个维修、焊接的小作坊，占地约40平方米，2层小楼，破旧不堪，年久失修。而它的周边是一大片空地，也就是所有的房子都拆除了，只剩下这孤独的一间房了。看得出，空地的所有者（地产商）特别希望拥有这一小块土地，一旦持有，就会产生很大的经济效益，至少一栋大厦将拔地而起。可是，它就是巍峨屹立在那里，无人敢动。其实，正确地说法应该是残留在那里，但依旧无人敢动。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24201540/20201224_123813.jpg)
 
-Balance Sheet / Statement of Financial Position 3.1.1
+这是法律的威严，是私人财产不容侵犯的庄严写照。
 
-- 衡量特定时期内公司财务状况 Company‘s financial position
-- 呈现股东的剩余价值 Shareholder ‘s residual value
-- Owner ‘s Equity = Net Asset = Shareholder Equity / Shareholder Fund / Partners
-- Owner ‘s Equity = Assets – Liabilities
-- 具体名字取决于组织形式
+如果这个小楼搁在中国的任意一个城市或乡镇，我自不必说，相信它早已被拆迁了，大厦早就平地而起了，很多人会欢呼雀跃，很多人会暗自窃喜，但绝对会有人悲痛欲绝！
 
+偌大的一个中国，缺失了什么？
 
-Income Statement 3.1.2.1
+在这里插进来说一点儿基督教，基督教新教传承至今约2000年，其带给人类社会最大的受益就是人人平等和契约精神。凡是对神敬畏的，无不遵循着神的国度所建立的平等关系和契约精神，进而对他人产生同样的敬畏。这种敬畏是每一个人信仰的基石，由此而建立的国度、政权、法律、准则等，深深地刻在人们的内心。它时时规范着人们的行为，调整着社会的秩序，这就是我们看到的当今世界的普遍现状。
 
-- 评估公司各种业务活动中的财务表现 Financial result from business activities
-- 用来衡量一段时期内公司盈利能力 Company‘s profitability over period time
-- Net Income = Revenue + Other Income – Expense
-- Diluted earing per share：每股摊薄收益
-- Diluted shares: 任何可能潜在会增加市场中流通普通股数量，
+而当一个国家、一个政权、一小部分窃取了最高权力的人将自己当作神，悲剧就降临了，就无偏差地降临在普罗大众身上。中国的宪法关于“国家保护公民的合法财产”的文字留下了可供官方随意解释的弹性空间，埋下了伏笔：现在的宪法从来不说私人财产神圣不可侵犯。我想拆你的时候我就说你是不合法的财产，这就为不保护公民财产打下了伏笔。
 
-
-Statement of change in equity 3.1.3
-
-- 所有者对企业投资随时间的变化
-- 有关公司财务状况变更的其他信息
-
-
-Cash Flow Statement 3.1.4
-
-- Financial Flexibility：公司遇到财务困境做出反应和改变的能力
-- Operating Activities：确定净收入时涉及的现金影响，
-- Investing Activities：购置 / 处置长期资产有关（物业，设备）
-- Financing Activities：获取或偿还业务中使用的资本
-- IFRS 比起 US GAAP (美国会计准则) 在分类股息和利息收支具有更大的灵活性
-
-
-Notes disclosure and supplementary schedules 3.1.5
-
-- 此注释披露：财务报表的编制基础 （编制准则，会计年度，遵循的地方法律）
-- 同时披露：会计政策，方法，估值信息
-- 提供必要信息，帮助读者进行理解
-
-
-Management discussion and analysis/10K form 3.1.6
-
-- 经常作为公司讨论问题，过去的表现，未来的展望
-
-
-Auditor ‘s report 3.1.7
-
-- Fairly presented：客观公正的展示
-- Reasonable assurance：对重大错误的高度保证，而不是绝对保证，欺诈/其他违法行为
-- 以上两者是独立审计师报告中最应该体现的
-- 审计师报告中也会阐明管理层 / 最高管理者的津贴补偿
-- Unqualified audit opinion：一个完全客观，真实，未加修改的观点。也是财务报告中最应该使用的观点
-- Qualified audit opinion：对于会计准则存在一定的范围限制 / 例外意见。
-- Adverse audit opinion：审计师会发表负面意见，当财务报表与会计准则存在重大偏差，且没有客观公平的被陈述。
-- Disclaimer of opinion ：审计师无法发表意见，出于某种原因
-
-
-Author：搞笑排行榜
-
-Original opinion article by Himalaya G-farm Vancouver
-
-2020/12/24
+注：本文仅代表作者观点
 
 0

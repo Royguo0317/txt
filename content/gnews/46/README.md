@@ -1,41 +1,95 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【三票专栏】笑话两则祝战友们平安夜快乐
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/682754/)
+## 会计，财报及审计的入门基础与介绍（一）
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/682820/)
 
-**作者： 三票先生**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23164109/1223.jpg)
+Picture Source: https://www.groomassocies.com
 
-感谢大家对“三票专栏”的关注，献上笑话两则，祝战友们平安夜快乐，祝墙内的战友们圣诞快乐。让我们一起快乐灭共！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17160329/%E4%B8%89%E7%A5%A8%E4%B8%93%E6%A0%8F-1.png)
-### **笑话一：**
+在新一个系列中更多的是介绍关于会计，财报及审计的入门基础与介绍。并不涉及进一步的复杂编译。但读者也应注意的是金融市场的底层逻辑在于财务报表与会计，无论是公共部门还是私有部门。牢牢掌握好会计基础是市场参与者不可或缺的素质。
 
-习近平访美前夕，心想我是博士啊，又背了那么多书单，得秀秀英语啊。于是他就让外交部安排了一位英语老师教他几句英语。
+Introduction to Financial statement Analysis
 
-老师说，一般和美国人见面你可以先问候：how are you. 然后对方会回答：I‘m fine, thanks, and you? 你就回答me too 就可以了。于是习近平就苦练这几句英语。
+- 形成对未来公司表现和财务状况的期望
+- Form expectation about company future performance and financial position
+- 衡量公司并做出经济决策
+- Evaluating company for the purpose of making economic decision
+- Financial reporting：作用是提供关于以上几点的信息（Provide information）
+- Credit：不计入现金流
+- Liquidity: meet short-term obligation 满足短期债务需求
+- Solvency：meet Long-term obligation满足长期债务需求
+- 核心信息会存在于保密渠道：投资者会议，电话会议等
 
-访美的时候，奥巴马和米歇尔夫妇在白宫门口迎接他，习近平和奥巴马握手的时候用英语问候他，一紧张把how are you 说成了who are you。奥巴马一想：习主席好幽默啊，我也幽默一下，就回答：I’m Michelle’s husband, and you? 习近平爽朗地高声回答：me too.
 
-### **笑话二：**
+Financial statement and supplementary information 3.1
 
-习近平访美期间和奥巴马举行会谈，奥巴马说：“习主席，你们中国有官员考察制度，我们美国也有，我随时可以考他们，不信你看”。转头问副总统拜登：“你爸爸妈妈生的，不是你兄弟也不是你姐妹，这个人是谁？”拜登稍想片刻便回答“这个人就是我乔拜登啊。”奥巴马很得意。
+- The statement of comprehensive income and other comprehensive income and statement of cash flow
+- 一段时期内公司各种业务活动中的财务表现
+- 一段时期内公司的盈利能力 Profitability over period time
 
-习近平访美回来，心想我也得考察考察我身边的官员。于是在一次会议上，他对总理李克强说：“我出个问题考考你，你爸爸妈妈生的，不是你兄弟也不是你姐妹，这个人是谁？”李克强心想习主席怎么会突然问这个问题，一时紧张没想出来。于是他说：我先上个厕所。
 
-在厕所里他想：都说王岐山鬼机灵，他肯定会知道答案。于是他拿出手机给王岐山打电话问了这个问题。王岐山不愧是鬼聪明，立即回答：就是我王岐山啊。
+Balance Sheet / Statement of Financial Position 3.1.1
 
-于是李克强立即回到会议室对习近平说：习主席，我想出来了，这个人是王岐山。
+- 衡量特定时期内公司财务状况 Company‘s financial position
+- 呈现股东的剩余价值 Shareholder ‘s residual value
+- Owner ‘s Equity = Net Asset = Shareholder Equity / Shareholder Fund / Partners
+- Owner ‘s Equity = Assets – Liabilities
+- 具体名字取决于组织形式
 
-这时只见习近平哈哈哈大笑说：我一猜就知道你肯定会答错，怎么可能是王岐山呢？这个人是乔拜登！
 
-阅读本人更多文章请搜索“三票先生“
+Income Statement 3.1.2.1
 
-本人更多文章导读
+- 评估公司各种业务活动中的财务表现 Financial result from business activities
+- 用来衡量一段时期内公司盈利能力 Company‘s profitability over period time
+- Net Income = Revenue + Other Income – Expense
+- Diluted earing per share：每股摊薄收益
+- Diluted shares: 任何可能潜在会增加市场中流通普通股数量，
 
-[【三票专栏】川普先生，该出手时就出手 – GNEWS](https://gnews.org/zh-hans/666441/)
 
-[【三票专栏】别了，基辛格 – GNEWS](https://gnews.org/zh-hans/595472/)
+Statement of change in equity 3.1.3
 
-[【三票专栏】为何国人唤不醒 – GNEWS](https://gnews.org/zh-hans/617393/)
+- 所有者对企业投资随时间的变化
+- 有关公司财务状况变更的其他信息
 
-+2
+
+Cash Flow Statement 3.1.4
+
+- Financial Flexibility：公司遇到财务困境做出反应和改变的能力
+- Operating Activities：确定净收入时涉及的现金影响，
+- Investing Activities：购置 / 处置长期资产有关（物业，设备）
+- Financing Activities：获取或偿还业务中使用的资本
+- IFRS 比起 US GAAP (美国会计准则) 在分类股息和利息收支具有更大的灵活性
+
+
+Notes disclosure and supplementary schedules 3.1.5
+
+- 此注释披露：财务报表的编制基础 （编制准则，会计年度，遵循的地方法律）
+- 同时披露：会计政策，方法，估值信息
+- 提供必要信息，帮助读者进行理解
+
+
+Management discussion and analysis/10K form 3.1.6
+
+- 经常作为公司讨论问题，过去的表现，未来的展望
+
+
+Auditor ‘s report 3.1.7
+
+- Fairly presented：客观公正的展示
+- Reasonable assurance：对重大错误的高度保证，而不是绝对保证，欺诈/其他违法行为
+- 以上两者是独立审计师报告中最应该体现的
+- 审计师报告中也会阐明管理层 / 最高管理者的津贴补偿
+- Unqualified audit opinion：一个完全客观，真实，未加修改的观点。也是财务报告中最应该使用的观点
+- Qualified audit opinion：对于会计准则存在一定的范围限制 / 例外意见。
+- Adverse audit opinion：审计师会发表负面意见，当财务报表与会计准则存在重大偏差，且没有客观公平的被陈述。
+- Disclaimer of opinion ：审计师无法发表意见，出于某种原因
+
+
+Author：搞笑排行榜
+
+Original opinion article by Himalaya G-farm Vancouver
+
+2020/12/24
+
+0

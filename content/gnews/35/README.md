@@ -1,27 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统拒绝签署新的中共病毒救济法案
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/682972/)
+## 法官裁定在威斯康星州超过20万张拜登的选票是非法的，这是拯救国家的历史性时刻!
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/683034/)
 
-俄罗斯莫斯科喀秋莎农场 文强
+来源：《美国保守派》
 
-校对上传 银河
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24205719/imagesSMTJHPZN.jpg)图片来源：France24.com
-12月21日，美国参议院和众议院先后通过了9千亿美元的大规模中共病毒（Covid-19）纾困法案。该法案的长度达到惊人的5893页，在国会表决时需要用推车运送给议员们审阅。但给予议员们审阅的时间极其短暂，因此几乎没人仔细阅读过该法案。
+翻译：康州盘古农场–-Bruce
 
-12月22日，该法案递送给了美国总统川普审批。随后，川普总统在推特上发布视频，认为这一长达五千多页的复杂法案实际上是为外国游说和特殊利益集团筹集大量资金，同时却将最低限度的资金用于需要援助的美国人民，虽然被称为“新冠病毒救济法案”，却几乎没有多少跟疫情救济相关的内容。他要求国会修改这项法案，大幅提高给美国人的现金救济，去除“不必要条款”。并表示，下一届政府需要该法案，而他有可能还是下届政府的总统。
+校对：康州盘古农场–-黎明的光芒、Robensenna
 
-有多位消息人士也爆出该法案大规模撒钱给外国政府、非法移民以及和经济救济不相关的项目，与救济美国人民关系有限，并且其中暗藏有废除川普总统军权的条款。
+审核：康州盘古农场–Truemanman
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/24214049/%E5%9B%BE%E7%89%8775.png)
+这是拯救国家的历史性时刻!
 
-参考链接：
+威斯康星州目前的领导层是否会改变他们的选举人团选票，并将其分配给川普总统，现在超过20万张拜登的选票被贴上了非法的标签，或者总统将不得不继续成为威斯康星州唯一一个为正义而战的人？
 
-[https://www.dw.com/zh/特朗普拒签新冠纾困方案-会有何种后果/a-56043058](https://www.dw.com/zh/特朗普拒签新冠纾困方案-会有何种后果/a-56043058)
+我们上周报道了威斯康星州最高法院同意总统对无限期禁闭案件的立场。
 
-[https://www.bannedbook.org/bnews/cnnews/20201223/1453474.html](https://www.bannedbook.org/bnews/cnnews/20201223/1453474.html)
+威斯康星州最高法院裁定马克·杰弗逊（Mark Jefferson）和威斯康星州共和党胜诉。
 
-[https://www.himalayawashingtondc.org/2020/12/24/【文字版】路德时评](https://www.himalayawashingtondc.org/2020/12/24/【文字版】路德时评)
+但是法院指出，正如特朗普总统在另一起诉讼中所寻求的那样，在投票之前每一个案件都必须做出决定。
 
-[https://www.aboluowang.com/2020/1223/1537296.html](https://www.aboluowang.com/2020/1223/1537296.html)
+根据威斯康星州的法律，如果选民根据年龄、身体疾病或体弱多病，自行认定自己 “禁闭”，就可以通过邮寄方式领取选票，绕过威斯康星州的选民身份法。今年秋天，威斯康星州大约有21.5万名选民表示他们被无限期禁闭，比2016年的选举增加了近4倍.法院表示，政府对威斯康星州无限期禁闭的解释是错误的。”县政府书记员不得 “宣布 “任何选民因流行病而无限期禁闭，”法院说。法院进一步指出，”.像COVID-19这样的传染病的存在，其本身并不能使威斯康星州的所有选举人[选民]都有权获得缺席投票.”。
 
-+1
+今年威斯康星州有24万个无限期禁闭案件。 大多数是非法的，这些无疑是乔·拜登的选票。一位法官已经同意这些选票是非法的。 共和党人应该消除每一张选票，直到民主党人能够证明其中任何一张都是合法的。
+
+共和党领导层是否会站出来取消这些选票的资格，并将他们所有的选举人票分配给川普总统，还是总统要继续孤军奋战？
+
+原文链接：
+
+
+
+> [Breaking: Judge Rules Over 200,000 Biden Votes Are Illegitimate In Wisconsin THIS IS A HISTORIC MOMENT TO SAVE THE COUNTRY!](http://americanconservatives.today/breaking-judge-rules-over-200000-biden-votes-are-illegitimate-in-wisconsin-this-is-a-historic-moment-to-save-the-country/)
+
+
+
+0
