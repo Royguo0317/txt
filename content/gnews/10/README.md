@@ -1,65 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统和第一夫人的2020年圣诞节祝词
-` GM31` [轉載自GNews](https://gnews.org/zh-hans/683471/)
+## 天雷滚滚，制裁加速
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/683663/)
 
-**The President and First Lady’s 2020 Christmas Message**
+撰稿：了凡
 
-**川普总统和第一夫人的2020****年圣诞节祝词**
+审稿：Gradient Boost
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25021341/pexels-johannes-plenio-1102915-scaled.jpg)图片来源：Pexels免费照片资源库 作者：Johannes Plenio
+近日，蓬佩奥宣布对“中共”和“中共国”官员实施签证和财务限制等制裁措施，这些官员均参与打压迫害少数民族、宗教人士以及维权人士。实际上，只需被害者提供口述证据就可将中共打手加入制裁名单。
 
-First Lady Melania Trump:
+我认为这个制裁最大的威力在于敲山震虎，现在党内实际上也是四分五裂，各怀心思，都在打着自己的小算盘。很多党内高层都在观望局势，等着做出选择，美国这一棒子下来，那些还在左右摇摆的官员心里肯定得发颤。他们可不想在这历史的紧要关头跟共产党陪葬，所以这一棒子下来，有可能就会出现来递交投名状的党内人士了，当然如果下一步美国要冻结共产党的海外财产，那些高层更加就坐不住了，他们无法无天，作恶多端不就是为了钱袋子吗？所以我希望美国能敲下更猛的当头一棒，能打醒的就打醒，赶紧来投诚自首，打不醒的就等第三根棒子，而这第三根棒子就得送他们上西天了。
 
-The President and I want to wish every American a very Merry Christmas.
+与此同时，美国商务部再对58家中共企事业实施制裁，其中包含闫博士报告中提到的军科院实验室。美商务部将58家中共企业和45家俄罗斯企业列入实体清单，这58家企业包括中航工业集团及下属7个机构、中航发动机集团及下属8个机构，上海飞机设计研究院等中共最核心的航空企业和研究机构，涵盖了仪器、材料、零部件和整机企业，企业性质包括国有军方企业和军民融合民营企业。
 
-第一夫人梅兰妮·川普：
+这个制裁名单只是初始的一部分，后面会有越来越多的企业上榜。新闻就是几句话，但是这件事绝对会对中共有致命的打击。中共很多企业的上游材料和零部件都是靠国外的公司供应，虽然中共一天到晚吹牛说厉害了我的国，但实际上也就是吹牛厉害，抄袭厉害，造假厉害，压迫人民厉害，其它的都是假擀面杖子。本来内部就有大量企业在倒闭，现在随着制裁的到来这些企业都得崩溃，而且是很快就会崩溃。我给大家举个例子，我有个朋友在一家芯片生产公司工作，这家公司打算卖出去，卖价好像是3个亿，江苏省委书记亲自出来来收购，价格都谈好了，结果上报到美国商务部时被美国商务部拒绝了，多少钱都不能卖给中共。所以说芯片制裁基本就瘫痪了大半个高科技行业。这一波大范围制裁大家想想会对中共造成多大的杀伤力。
 
-总统先生和我祝每一位美国人圣诞快乐！
+中共就是打肿脸还要充胖子，当初中兴被制裁就吹大牛，现在中兴在哪里？华为被制裁说什么自己研发芯片，自己搞系统，怎么私下里又偷偷求人家给自己卖芯片，怎么副总裁说再拿不到芯片华为就得断货。假的就是假的，永远真不了。在这样大范围的制裁下，中共的的经济必定会如雪崩一样。郭先生早就说过中共的经济会先崩溃的，这说明中共的经济崩溃就在眼前。本身内部就是一塌糊涂了，大量失业人群，大量倒闭企业，银行一堆烂账坏账和各种内保外贷早就把银行掏空了，钱都进了盗国贼的账户里了。这样的内部情况再加上美国的几个大锤下来，不崩溃才怪。当然如果你还相信中共用一堆的假话来骗你那就没办法了，中共可以把涨价叫做节日效应，限电叫做有序用电，洪灾叫水域面积扩大，贫穷叫待富人员，破产叫企业休眠，接下来全面经济崩溃估计要骗大家说我们就是在经济冬眠。
 
-President Trump:
+**最后是一条重磅简讯，川普总统签署一份制裁中共银行的报告。中共国货币很危险，投资需谨慎。**
 
-During the secret season, Christians celebrate the great miracle in human history. More than 2000 years ago, God sent his only begotten son to be with us. An angel announced the birth of our Lord and Savior to humble shepherds. He said: “I bring you good news that will cause great joy for all of the people. Today in the town of David, a savior has been born to you, he is the Messiah the Lord.You will find a baby wrapped in clothes and lying in a manger.” At Christmas, we thank God for sending us his son, to bring peace to our souls and joy to the world.
+这件事情大家去看看郭先生昨天的盖特，现在国内给的高利息都是在骗人，因为他们知道这些钱你永远也拿不走了。我一个在银行的朋友也告诉我他们银行提供7%的高息存款。我就觉得奇怪，现在这种经济环境很多国家都几乎是0利息了，中共国拿什么给你赚取7%的利息。P2P，原油宝还不够吸取教训吗？P2P还在央视打广告呢，结果怎么样？再说银行是以国家信用为基础的，你觉得中共还有国家信用吗？你要还相信总有你哭的一天。也许有一天你去银行柜台，柜台说：今天限额，最多能取1000，取一万以上要本行审批，5万以上要央行审批。当然他会说这是为了保证你的财富安全。这算好的了，最坏的情况是一觉睡醒，共产党高层被斩首了，共产党政府不存在了，你的钱在哪里？你又该去哪里找你的钱？未来这些事情都是大概率会发生的，所以尽量快点把钱取出来，至少短时期内人民币还是能换取物资的，你要手头只拿着一张卡，那就没有办法了！
 
-川普总统：
+大家一定去劝劝家人，可能他们不一定听，但是我们一定要把这个消息传达到，这是基于我们的良心必须要做的。
 
-在这个神秘的季节里，基督徒们庆祝这个人类历史上最伟大的奇迹。2000多年前，上帝让他的独子来到人间。一位天使向谦卑的牧羊人宣告我们的拯救者的降临，他说：“我报给你们大喜的信息，是关于万民的。今天在大卫的城里，救主为你们而生，就是主基督。你们要找到一个婴孩，包着布，卧在马槽里。”在圣诞节，我们感谢上帝让他的独子来到人间，给我们的灵魂带来了和平，给世界带来了快乐。
+（本文纯属个人观点）
 
-First Lady Melania Trump:
+[澳喜文章](https://gnews.org/zh-hans/author/aujenny/)
 
-As you know, this Christmas is different than years past. We are battling a global pandemic that affected all of us. Yet through this great challenge, we have been inspired by the kindness and courage of citizens across this country. Teachers have worked extraordinarily hard to keep our children learning. Students have delivered groceries to elderly neighbors. Communities have found new ways to stay connected to one another. Courageous first responders, doctors and nurses have given everything to save lives. Brilliant scientists have developed treatments and vaccines.
-
-第一夫人梅兰妮·川普：
-
-大家都知道，这个圣诞节和以往不同。我们正在与影响我们所有人的全球大流行作斗争。这然而，通过这个巨大的挑战，我们受到了整个国家公民的善良和勇气的鼓舞。老师们为了让孩子们继续学习异常艰辛地工作；学生们给老年邻居送食品；小区寻找使大家保持联系的方法；勇敢的急救人员、医生、护士尽了他们最大的努力拯救生命;伟大的科学家们致力于寻找治疗方法并开发疫苗。
-
-President Trump:
-
-We are delivering millions of doses of a safe and effective vaccine that will soon end this terrible pandemic and save millions and millions of lives. We’re grateful for all of the scientists, researches, manufacturing workers and services members who have worked tirelessly to make this breakthrough possible. It is truly a Christmas miracle.
-
-川普总统：
-
-我们正在提供数百万剂安全有效的疫苗，这些疫苗将很快结束这都场可怕的瘟疫，拯救几千万的生命。我们非常感谢这些科学家、科研人员、制造工人和服务人员，我们一起努力实现了这一突破。这是一个真正的圣诞奇迹。
-
-First Lady Melania Trump:
-
-During this wonderful time of year, we also give thanks for the brave and selfless Americans who keep us safe. We are forever grateful for the men and women of law enforcement and the heroes of United States military.
-
-第一夫人梅兰妮·川普：
-
-在一年中这个美好的时光里，我们还要感谢勇敢、无私的美国人保护我们的安全。我们永远感谢执法人员和美国军队的英雄们。
-
-President Trump:
-
-In this holly season, we thank God for his infinite love and we pray that the light of his glory will forever shine on this magnificent land. On behalf of Melania and entire Trump family, we wish you a very merry Christmas and a happy new year.
-
-川普总统：
-
-在这个神圣的节日里，我们感谢上帝无限的爱，我们祈祷他的光芒将永远照耀在这片美丽神奇的土地上！我代表梅兰妮和川普家族祝大家圣诞快乐，新年快乐！
-
-YouTube视频来源：https://www.youtube.com/watch?v=RuP2FD1F6eQ
-
-*翻译：【文灵】 校对：【罗宾 Robin (文宾)#2175】【GM31】字幕：【罗宾 Robin (文宾)#2175】 编辑：【GM31】*
-
-*喜马拉雅玫瑰园小队出品*
-
-+1
+[欢迎加入澳喜农场](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040800/IMG_1836-1.jpg)
+0
