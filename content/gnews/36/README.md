@@ -1,36 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【Raiklin律师推文1225】两周作战计划
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/684168/)
+## 拜登掩饰其子被调查事实 诬陷俄罗斯散布假新闻
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/684179/)
 
-12月25日，圣诞节的一大早，宪法律师Ivan Raikllin先生转发了一则视频推文，视频是电脑制作的一场类似摔跤或柔道的特殊竞技场上，分别酷似川普总统和乔拜登民主党总统候选人的选手，一开始银发“乔拜登”取得优势，金发“川普”在接连被痛击之后，奇迹般起身回击，无论力度还是使用的特殊技巧，都让乔拜登措不及防，比赛中出现了优劣反复的局面，但是“川普”者最终强有力取胜，获得全场一片喝彩。比赛结束时视频中主持人说，“这里是胜出选手：”Tunnel Trump” 名字和川普总统极为音似。他说，“这是一个一人决定证明自己战胜对手实力的案例”，“这是另一个关于‘生存理论’的历史故事”。
+*加拿大多伦多枫叶农场**Revelation119**熙攘*
 
-这个视频无疑是在影射当前美国大选中川普总统和乔拜登候选人激烈的竞选斗争状态，也饱含了美国人对川普总统的支持和对大选结果的美好期待。
+*校对、上传* *文怡*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25085804/ElL1RbjVMAAwD47.jpg)
+据Daily Wire12月22日报道，民主党总统候选人乔·拜登(Joe Biden)在周二的新闻发布会上狡辩，关于他儿子亨特·拜登(Hunter Biden)的硬盘门报道是俄罗斯发布的假新闻和竞选对手采取的不正当手段。显然，乔·拜登忽略了亨特·拜登之前已经承认他的金融交易被联邦政府进行犯罪调查的事实。
 
+福克斯新闻记者彼得·杜西(Peter Doocy)说，“当选总统(拜登)先生，像你之前说的，你依然认为秋天开始报道的关于你的儿子亨特·拜登的新闻是俄罗斯发布的假新闻和竞选对手的不正常手段么？“
 
+拜登回答说，”是的，是的，是的，上帝爱你。谢谢你，谢谢你，向你保证，我当选之后，司法部会完全对此事做出自己的判断。“
 
-> Volume up, watch and listen to the end. This fight is just getting started! [#MerryChristmas](https://twitter.com/hashtag/MerryChristmas?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/k3ftgaLvC3](https://t.co/k3ftgaLvC3) [https://t.co/q0Cg9BcFYC](https://t.co/q0Cg9BcFYC)
-> — Ivan #ThePlan Raiklin (@Raiklin) [December 25, 2020](https://twitter.com/Raiklin/status/1342453429164191745?ref_src=twsrc%5Etfw)
+在10月中旬爆出的邮件门中的笔记本电脑，据说就是属于亨特·拜登的，而亨特·拜登本人也并没有否认。这个笔记本电脑揭示了不合法的亨特·拜登与外国的商业交易行为，并使得人们对乔·拜登的从来没有与亨特·拜登谈论过这些商业行为说法提出了质疑。
 
+纽约邮报在几天之内爆出一系列关于亨特·拜登邮件门的爆炸性新闻。推特和油管等多个社交媒体平台匆忙对这些报道进行了冷处理，但这不仅没有起到降温的效果，反而起了反作用。同时，很多主流新闻机构要么忽略报道邮件门，要么声称这是俄罗斯发布的假新闻。
 
+高级政府官员批驳这些关于邮件门是俄罗斯散步的假新闻的说法。而尽管大选已经结束，主流媒体还是始终如一地掩盖亨特·拜登邮件门。
 
-Ivan Raiklin在转推时称：
+大选之前，福克斯新闻和辛克莱广播集团报道了亨特·拜登据称已经被调查金融犯罪调查。而这些信息据说就是来自于亨特·拜登的笔记本电脑。
 
+本月的早些时候，亨特·拜登就透漏他正在被联邦政府调查他的税务问题。随后，CNN和Politico报道说，对于亨特·拜登的调查很可能远远不止于税务问题；亨特·拜登与外国商务交易，特别是与中国的交易，很可能才是调查重点。
 
-> 放大音量，听一下结尾。这场战斗才刚刚开始! （一切都是刚刚开始！）
+CNN报道说，政府机构正在调查亨特·拜登的“多个金融有关的问题”，包括亨特·拜登在与外国的业务来往中，特别是与中国的业务来往中，是否存在税务问题或者洗钱行为。Politico说，亨特·拜登的哥哥詹姆斯·拜登也和另外一个与一个医院公司相关的联邦犯罪案件有关联。NBC新闻报道说，本月的早些时候，亨特·拜登的商业伙伴托尼·巴布林斯基(Tony Bobulinski)警告亨特·拜登说他没有提交在与外国业务交往中所赚取的巨额收益的信息。
 
+乔·拜登周二关于亨特·拜登邮件门的评论不仅仅针对纽约邮报的报道，还回应了关于他的儿子被联邦政府进行的犯罪调查的报道。因为此前，他提到了未来的司法部对此事件的调查可能做出的行动。公众担心，如果撒谎成性、与邪恶中共沆瀣一气的乔·拜登当选总统，他所指派的总检察长可能会对亨特·拜登的调查徇私枉法。
 
+*[原文连接](https://www.dailywire.com/news/biden-claims-that-past-negative-stories-about-son-are-russian-disinformation-despite-son-confirming-probe?utm_source=Jeeng)*
 
-> #圣诞快乐
-
-
-Raiklin律师诙谐轻松的语调怎么这么熟悉？更重要的是，他附上了一份到1月20日前详细的2周作战日程表。
-
-[https://docs.google.com/spreadsheets/d/1-0xSKuUSwGP7Wtn6rWc56yaiz2XvxVqzI1gJ3ekFJ-w/edit#gid=0](https://docs.google.com/spreadsheets/d/1-0xSKuUSwGP7Wtn6rWc56yaiz2XvxVqzI1gJ3ekFJ-w/edit#gid=0)
-
-
-
-新闻和图片来源于Ivan Raiklin律师的推文
-
-+1
+0
