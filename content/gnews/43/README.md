@@ -1,87 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 会计，财报及审计的入门基础与介绍（二）
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/684632/)
+## 【看七哥视频】韭菜的觉醒
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/684635/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23164109/1223.jpg)Picture Source: www.groomassocies.com
-在第二篇中同样更多的是介绍关于会计，财报及审计的入门基础与介绍。并展示分析师或审计师在开始与收尾时的一些必要工作流程与步骤，这些流程可以使得投资决策的过程变得加清晰且更富有逻辑性。
-
-Other ‘s Sources Information 3.2
-
-- Interim Report：中期财务报告：公司半年度或季度发布,取决于实际监管条例，会呈现资产负债表中四个主要项目，没有审计Unaudited Report
-- Peer Company Report：同行业内其他公司分析报告
+```
+作者：儒为
+校对/发稿人: Ting Guo
+```
 
 
-Article the Purpose and Context of Analysis 4.1
+我最爱吃韭菜鸡蛋馅饺子、韭菜盒子，没想到自己一直以来也是中共随意收割的韭菜。我还把这当成是对我的成长的必然经历和考验。
 
-- 进行任何分析之前必须了解分析的目的/背景
-- 对于其他任务，可能需要分析师做出决策
-- 不仅要分析生成财务比率，还要考虑决策相关内容 / 分析上下文
-- 最后汇编分析所需回答的问题
+记得刚工作不久，手里有了点小钱，和同事经常跑去彩票站买几张彩票，幻想着哪天自己也能中个500万元的大奖把自己砸晕，幻想着500万元到手了怎么去花费，幻想终究还是破灭的。最后给自己的结论就是没有这个命，少有这些不切实际的一夜暴富的想法，韭菜就得有韭菜的觉悟。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25125654/images-23.jpeg)图片来源: 博渊财经
+一路摸爬滚打，从小城市到大城市，从大城市到一线城市，自己也从小韭菜变成了稍微大点的韭菜。每个月的保险费用都会自动的从工资中被扣除，幻想着自己生病、养老有保证了，但总感觉哪里不对，比如医疗保险：如果生的是小病去医院挂号买药，保险不给报销的；如果生的是大病，很多进口药和进口材料是不在保险包含范围的，需要自费的这部分费用是最高的；看来我们只能生不大不小的病了，生什么样的病你得选择，选不好那就是你自己的命不好。住房公积金、养老保险就不一一列举了，总之不要细想就行了……
 
+本来以为自己全家都逃到海外的韭菜可以让自己的下代、下下代可以不在当韭菜了，结果是残酷的、可笑的。这把握着割韭菜刀的手，竟然悄无声息的伸到了全世界，和全世界的割韭菜的手勾结在一起，利用蓝金黄，操控宗教、操控法律、操控选举、操控媒体、操控他们可以操控的一切割韭菜的手段。利用中共病毒威胁全球的韭菜们听话，不和他们勾兑的、反对他们的就要威胁并搞死你；利用新冠病毒疫苗发起又一轮的收割韭菜的行动，并带来更严重的次生危机。
 
-Collect Data 4.2
+爆料革命、新中国联邦、七哥引领我们这些韭菜，让我们觉悟。认识到共产党存在一天，我们就永远都是韭菜，割掉一茬又一茬，直到你的根腐烂、死掉了。
 
-- 历史分析公司的财务报表数据是足够的
-- 经济行业分析（1)宏观经济（2）所在行业前景（3）公司前景
+中国韭菜、美国韭菜、全世界的韭菜都在觉醒，跟随着正义在集结、在行动。我们不仅要掰断割韭菜的刀，斩断握刀的手，更要消灭手的主人。
 
+**文章仅代表战友个人观点**
 
-Process data 4.3
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21093249/image4-3.jpg)[***https://discord.gg/77fCxw5mFv***](https://discord.gg/77fCxw5mFv)
+[***https://***](https://https//discord.gg/77fCxw5mFv)[***gab.com/himalaya\_italy***](https://gab.com/himalaya_italy)
 
-- 阅读评估每个被分析公司的财务报表
-- 对财务报表进行必要的调整以促进比较
-- 准备 / 收集通用的规格的财务报表数据或比率
-
-
-Analyze Interpret the Processed data 4.4
-
-- 将比率作为一种输入 Ration is an Input
-- 特定问题的答案很少采用数字
-- 而是取决于分析师对输出的解释，以及运用去支持结论或建议
-
-
-Develop and Communicate Conclusion/ Recommendation 4.5
-
-- 总结，投资结论
-- 预期收益
-- 估价
-- 业务总览
-- 风险，行业竞争分析
-- 历史表现
-- 预测
-
-
-Follow-up 4.6
-
-- 定期审查/ 更新确定原始结论和建议是否仍然有效
-- Update Report and Recommendation
-
-
-The Objective of Financial Report 2
-
-- 在决策有关实体的股本或债务工具的过程中提供有用的财务信息
-- Providing financial information that is useful to user in making decision
-- 通常情况下标准由机构定制，未得到监管机构认可前不具有权力。
-- 且监管机构有权利推翻私营部门的制定标准
-
-
-International Accounting Standard Board 3.1.1
-
-- IASB发展出International Financial Report Standard
-- 作为独立的，非营利性私营部门.主要目标是制定促进一套高质量的财务标准，确保结果透明可比较
-
-
-Financial Accounting Standard Board 3.1.2
-
-- FASB以及前身组织一直在美国发布财务报告标准
-- 建立的US GAAP被SEC正式认可作为权威，但SEC保留建立标准的权力
-
-
-作者：搞笑排行榜
-
-原创观点文章 – 2020/12/25
-
-温哥华圆成农场
 
 0

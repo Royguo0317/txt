@@ -1,32 +1,87 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 三个一定：川普一定是美国总统，CCP经济一定瞬间崩溃，战争一定会发生
-` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/684591/)
+## 会计，财报及审计的入门基础与介绍（二）
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/684632/)
 
-制作：七哥说视频制作组 ｜ 编辑：灭共小宇宙
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23164109/1223.jpg)Picture Source: www.groomassocies.com
+在第二篇中同样更多的是介绍关于会计，财报及审计的入门基础与介绍。并展示分析师或审计师在开始与收尾时的一些必要工作流程与步骤，这些流程可以使得投资决策的过程变得加清晰且更富有逻辑性。
 
-一定是川普是总统。记住我今天说的话，一定是川普是总统。
+Other ‘s Sources Information 3.2
 
-然后，国内的经济一定会先崩溃，甚至是和局域、区域性战争，或者是大规模战争同时进行。
+- Interim Report：中期财务报告：公司半年度或季度发布,取决于实际监管条例，会呈现资产负债表中四个主要项目，没有审计Unaudited Report
+- Peer Company Report：同行业内其他公司分析报告
 
-这是一个西方世界，和整个国际上有脑子人，基本一个集所有人的共识。
 
-什么意思，大家要听懂啊，很多战争过去是什么：它是死不死、活不活的经济给弄了多少年以后，或者一段时间以后，经过外交的周旋，实在没办法了，咣叽，开了，开战了。
+Article the Purpose and Context of Analysis 4.1
 
-然后有几年的这个大乱的时间，然后逐渐恢复。
-那么这次，对待中共的整个西方，这个病毒被确定为生化战争以后，它一定不是这个结果，一定是这个经济瞬间地雪崩。
+- 进行任何分析之前必须了解分析的目的/背景
+- 对于其他任务，可能需要分析师做出决策
+- 不仅要分析生成财务比率，还要考虑决策相关内容 / 分析上下文
+- 最后汇编分析所需回答的问题
 
-因为共产党这个盘子太大了，就这个人类上从来没出现过，世界第二大经济体，14亿人，9000万党员，2亿人发工资，而且中国迅速城市化，就农村城市化以后的，大量的能源消耗，它一旦倒下来的时候，就像你看的共产党的那个豆腐渣工程一样，啪就下来了。
 
-这个时候，有可能伴随的是台湾或南海的局部战争，也有可能直接是全面性的战争。这个就可能是1秒钟，你完全没感觉，就发生了。
+Collect Data 4.2
 
-这一天一定会有的。我们最希望的事情是快、马上结束、不要拉时间长。
+- 历史分析公司的财务报表数据是足够的
+- 经济行业分析（1)宏观经济（2）所在行业前景（3）公司前景
 
-更多精彩内容请关注：
 
-- [美国纽约七星会农场（为子孙爱七哥）GTV](https://gtv.org/user/5e986b24b005bd6d929820bd)
-- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
+Process data 4.3
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19044815/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-2.jpg)
+- 阅读评估每个被分析公司的财务报表
+- 对财务报表进行必要的调整以促进比较
+- 准备 / 收集通用的规格的财务报表数据或比率
+
+
+Analyze Interpret the Processed data 4.4
+
+- 将比率作为一种输入 Ration is an Input
+- 特定问题的答案很少采用数字
+- 而是取决于分析师对输出的解释，以及运用去支持结论或建议
+
+
+Develop and Communicate Conclusion/ Recommendation 4.5
+
+- 总结，投资结论
+- 预期收益
+- 估价
+- 业务总览
+- 风险，行业竞争分析
+- 历史表现
+- 预测
+
+
+Follow-up 4.6
+
+- 定期审查/ 更新确定原始结论和建议是否仍然有效
+- Update Report and Recommendation
+
+
+The Objective of Financial Report 2
+
+- 在决策有关实体的股本或债务工具的过程中提供有用的财务信息
+- Providing financial information that is useful to user in making decision
+- 通常情况下标准由机构定制，未得到监管机构认可前不具有权力。
+- 且监管机构有权利推翻私营部门的制定标准
+
+
+International Accounting Standard Board 3.1.1
+
+- IASB发展出International Financial Report Standard
+- 作为独立的，非营利性私营部门.主要目标是制定促进一套高质量的财务标准，确保结果透明可比较
+
+
+Financial Accounting Standard Board 3.1.2
+
+- FASB以及前身组织一直在美国发布财务报告标准
+- 建立的US GAAP被SEC正式认可作为权威，但SEC保留建立标准的权力
+
+
+作者：搞笑排行榜
+
+原创观点文章 – 2020/12/25
+
+温哥华圆成农场
+
 0
