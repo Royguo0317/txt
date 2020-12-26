@@ -1,50 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 骇人听闻! 米奇•麦康奈尔将联系当选参议员汤米•塔伯维尔并敦促他在选举团投票中背弃川普
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/685454/)
+## 12/26日康州农场前沿观察: 疫情失控
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/685476/)
 
-作者：吉姆-霍夫特
-
-翻译：康州盘古农场- 黎明的光芒
-
-校对：康州盘古农场- Robensenna
-
-编辑：康州盘古农场- Rose
-![https://www.thegatewaypundit.com/wp-content/uploads/tuberville-senate-ad.jpg](https://lh5.googleusercontent.com/9MzWTQbFobzDmQ2zl96sUFSyySjViW4vlrxB9wdeQfBfLUVNPlm8zYiyKXwCeZQi5uhP_Ny7Gmn2HMmeYPMBHpkBWO6x8bLrm_GiA7JO4pGr0i0Dv67KF32vDIGcnax_qke4URwB9oUzrfHJug)
-上周有消息称，当选参议员汤米•塔伯维尔可能会在1月份的美国参议院会议上挑战选举团投票结果。
-
-在川普总统2020年的压倒性选举中，有几个州被偷走了。民主党人和媒体声称，当你制造成千数万张选票以逆转川普的大规模胜选时，封锁共和党观察员是非常正常的。
-
-川普的支持者不同意。
-
-但是米奇·麦康奈尔并不支持川普总统，也不支持川普的选民。
-
-米奇与全球主义者和民主党站在一起，据说他正在联系汤米•塔伯维尔，警告他下周不要制造混乱局面。
-
-哇！
-
-源于: 国会山报 （[**The Hill**](https://thehill.com/homenews/senate/531562-gop-seeks-to-avoid-messy-trump-fight-over-electoral-college)）
-
-“参议院共和党人表示，多数党领袖米奇•麦康奈尔将与参议院当选人汤米•塔伯维尔取得联系，企图警告他避免下个月因敲定选举团投票结果而制造混乱局面。”
-
-绝对恶心。
-
-推特链接：
+撰稿：康州盘古农场– 寒郁冰
+播报：康州盘古农场– 寒郁冰
+视频：康州盘古农场– Buzz文珂
+编辑：康州盘古农场– 1984文姝
+审片：康州盘古农场– 皮亚納
+审核：康州盘古农场– Rose
 
 
 
-> “Senate Republicans say Majority Leader Mitch McConnell (R-Ky.) will reach out to Sen.-elect Tommy Tuberville (Ala.) in an attempt to avoid a messy floor fight next month over finalizing the results of the Electoral College vote.”
-> 
-> They’re trying to lose! [https://t.co/uvOM7r8h2Z](https://t.co/uvOM7r8h2Z)
-> — The Columbia Bugle 🇺🇸 (@ColumbiaBugle) [December 25, 2020](https://twitter.com/ColumbiaBugle/status/1342599844116930560?ref_src=twsrc%5Etfw)
+继前几天，英国公布发现变异毒株，各国纷纷封锁了与英国的往来，造成英国机场成停车场的事件之后，今天美国本土发现变异毒株，日本出现罕见病例，各国即将自我封境并发出旅行禁令，恐会持续到明年春天。中共国境内多地也陆续出现本地感染病例，继大连、上海等地封城之后，沈阳市新型冠状病毒肺炎疫情防控指挥部疫情防控组12月23日发布关于我市一例韩国返沈人员解除隔离后，核酸检测阳性的情况通报，全市立即进入战时状态。
+
+仅一人发现阳性，全市立即进入战时状态，令人匪夷所思，可见CCP在为以下事件做准备。
+
+一、绑架老百姓，为战争做肉盾。现在世界各国在美国的带领下，已经对中共全面封锁，战争一触即发，CCP只有绑架14亿老百姓，为其保驾护航。
+
+二、控制墙内百姓，维稳。因CCP强拆、P2P金融爆雷、停电停水停气等，百姓流离失所，无家可归，生活困难，民不聊生，上访人数骤增，所以此时放毒，以控制百姓。
+
+三、推广疫苗，收割韭菜。CCP经济濒临崩溃，因此大力宣传推广疫苗，墙内百姓每人500疫苗费，借此继续收割。
+
+四、继续实现消灭人口计划。明知疫苗到现在为止缺乏临床数据，却坚决要给百姓使用，在CCP统治下，人命不是命，只是一只用做实验的小白鼠，只是待宰的羔羊。
+
+在这种邪恶政权的统治下，全世界已经进入至暗时刻，我们应该唤醒更多善良、正义之人，消灭CCP，创造一个美好世界。
+
+康州盘古农场报道
+
+素材来源：
+1. https://es.reuters.com/article/idCNKBS28Y01L。英国发现更具传染性病毒变异毒株
+2. https://cn.wsj.com/articles/%E8%8B%B1%E5%9B%BD%E5%8F%91%E7%8E%B0%E4%BC%A0%E6%9F%93%E6%80%A7%E6%9B%B4%E5%BC%BA%E7%9A%84%E6%96%B0%E5%86%A0%E5%8F%98%E7%A7%8D%EF%BC%8C%E5%A4%9A%E5%9B%BD%E7%B4%A7%E6%80%A5%E5%8F%91%E5%B8%83%E6%97%85%E8%A1%8C%E7%A6%81%E4%BB%A4-11608515710
+华尔街日报针对英国新毒株，多国发旅行禁令
+3.https://baijiahao.baidu.com/s?id=1686927472740259072&wfr=spider&for=pc
+沈阳战时状态
+4. https://gtv.org/video/id=5fe1322ac0544c3d9731367e
+5. https://youtu.be/NA91h2yoik0
+6. https://m.yicai.com/news/100887965.html
+7. https://gtv.org/video/id=5fdb5588c0544c3d97291e84
 
 
 
-“参议院共和党人说，多数党领袖米奇•麦康奈尔将与当选参议员汤米•塔伯维尔进行接触，以避免在下个月最终确定选举团投票结果时制造混乱的局面。”
 
-他们正试图输掉 （选举）！
-
-原文链接：[https://www.thegatewaypundit.com/2020/12/outrageous-mitch-mcconnell-will-reach-senator-elect-tommy-tuberville-urge-turn-back-trump-electoral-college-vote/](https://www.thegatewaypundit.com/2020/12/outrageous-mitch-mcconnell-will-reach-senator-elect-tommy-tuberville-urge-turn-back-trump-electoral-college-vote/)
 
 0
