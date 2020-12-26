@@ -1,68 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德/Raiklin律师推文1225】-彭斯的问题
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/685065/)
+## 因应中共威胁，中华民国台湾正在行动
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/685147/)
 
-12月25日林伍德律师推文：
+台灣農場(籌備) 黯然神殤
 
+在共军不断威胁中华民国国防安全的情况下，应对日趋严峻的台海局势。
 
-> 彭斯在1月6日是不值得信任的。向了解他的人提出关于他的问题。他对待别人是否又傲慢又高傲？他是否专注于“彭斯2024”？他是保罗-瑞安的好朋友吗？为什么他妻子参加所有与其他女人的晚餐？他在隐瞒什么？
-> 
-> 我们需要有答案。
+12月24日，中华民国国防部对外证实，今年10月已提出“精进后备战力改革方案”，以专案报告形式提交给立法院及国防委员会并呈报蔡英文总统。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25220021/%E5%9C%96%E7%89%87-1-17.png)
+计划内容，依据国军整体防卫作战需求，将原甲、乙、丙、丁种旅及各山地、站台连，依防卫作战任务导向，区分为第一类型负责“滩岸守备”、第二类型负责“纵深及城镇守备”、第三类型负责“重要目标防护”等任务类型。
 
+其中部队改革部分，北部地区扩编第109步兵旅及南部地区扩编第117步兵旅。未来将陆续依期程新编北、中、南部地区3个步兵旅，预计在2023年12月31日全数编成。
 
+在原先的7个甲种旅基础上，增加5个甲种旅，计划完成后，合计编成12个第一类型 “滩岸守备”旅，增加第一线守备战力，战时与常备部队打击旅共同构成“拘打配合、滩岸歼敌”的关键战力。
 
+因中华民国台湾本岛，位于第一岛炼核心地带。南北长，东西窄，呈南北走向的中央山脉贯穿本岛，地势复杂，使得东西向交通联系不便。西临台湾海峡，面对中共东部战区。西海岸为传统战场规划区域，是历来战略研究重点，为数不多可供开辟为登陆场的滩头皆已建立阵地。近年来，海空军实力增强，常穿越第一岛炼，绕台巡航，东海岸开始备受威胁。
 
-> Pence is NOT to be trusted for 1/6. Pose questions about him to people who know him. Is he arrogant & condescending to others? Is he focused on Pence 2024? Is he besties with Paul Ryan? Why does wife attend all dinners with other women? What is he hiding?
-> 
-> We deserve answers. [https://t.co/5O0L5oKfP9](https://t.co/5O0L5oKfP9)
-> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342624936565891072?ref_src=twsrc%5Etfw)
+鉴于上述地形地势，先期扩编的109旅按笔者推估战时将纳入北部防御作战体系内，归6军团节制，因西海岸为传统战略规划的重点，因是因应共军有突破第一岛炼，由台湾北部海域进入台湾东北侧经宜兰方向登陆之威胁，此部有被部署于头城、壮围、罗东一线强化该地区守备力量之可能，以保证兰阳平原的安全，粉碎共军借由此方向进攻，以图经雪山隧道向台北展开攻势之可能。
 
-
-
-林伍德律师推文：
-
-
-> 我爱美国爱国者和战士苏珊-诺克斯！苏珊的圣诞视频是我最喜欢的。苏珊的圣诞视频是我今天收到最喜欢的信息。请欣赏。
-> 
-> 我只希望彭斯 @VP @Mike\_Pence 名字不是在视频中。彭斯是我们人民的叛徒。
-> 
-> 圣诞快乐！
-
-
-
-
-> I love American Patriot & Warrior Susan Knox! Susan’s Christmas video is my favorite message received today. View it below & enjoy.
-> 
-> I only wish Pence [@VP](https://twitter.com/VP?ref_src=twsrc%5Etfw) [@Mike\_Pence](https://twitter.com/Mike_Pence?ref_src=twsrc%5Etfw) name was NOT in video. Pence is a traitor to We The People.
-> 
-> Merry Christmas! [pic.twitter.com/zB6IpOSw49](https://t.co/zB6IpOSw49)
-> — Lin Wood (@LLinWood) [December 25, 2020](https://twitter.com/LLinWood/status/1342605258724401153?ref_src=twsrc%5Etfw)
-
-
-
-Ivan Raiklin 律师当天早前的推文反映了他对彭斯副总统的态度和期望：（他于前日彭斯一号牌作废时，提出了彭斯二号牌的方案。）
-
-
-> 圣诞快乐，先生
-> 
-> 祈祷你能继续战斗，积极捍卫我们的宪法，继续前进。 我们不能再犯任何无谓的错误了。 保持参与。
-> 
-> #WeThePeople #PenceCard2
-> 
-> #我们人民  #彭斯第二张牌
-
-
-
-
-> Merry Christmas, sir.
-> 
-> Praying you will stay in the fight and vigorously defend our Constitution, moving forward. We can’t make any more unforced errors. Stay engaged.[#WeThePeople](https://twitter.com/hashtag/WeThePeople?src=hash&amp;ref_src=twsrc%5Etfw) [#PenceCard2](https://twitter.com/hashtag/PenceCard2?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/WIUZfnws9m](https://t.co/WIUZfnws9m)
-> — Merry Christmas! (@Raiklin) [December 25, 2020](https://twitter.com/Raiklin/status/1342502473152540675?ref_src=twsrc%5Etfw)
-
-
-
-新闻和图片来源于林伍德律师和Ivan Railin 律师的推文
+而117旅，笔者认为，将纳入南部防御体系，由10军团节制，传统上台南高雄是战略着重方向，固是应对共军由台湾西南海域进而控制巴士海峡，由屏东方向登陆，因南部地势因素，东西横向支援困难，台东不利于部队展开，有陷入合围可能。固此部有部署于屏东枋寮强化该地区守备力量之可能，以减轻高雄方向之压力。此次新编重心是以调整作战防御体系战力，并非常备军力，固编成基础干部人力（只有含班长以上干部，兵都是动员或接训而来），并从编制员额调整，并未扩军。平时担任新兵训练任务，战时承担滩头守备，国土防卫任务。
 
 0
