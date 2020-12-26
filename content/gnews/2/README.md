@@ -1,47 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1225】-大法官应该马上辞职
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/685045/)
+## 【林伍德/Raiklin律师推文1225】-彭斯的问题
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/685065/)
 
 12月25日林伍德律师推文：
 
 
-> 现在是时候把红色真理之光照耀到首席大法官约翰-罗伯茨、大法官斯蒂芬-布雷耶、乔-拜登、奥巴马、克林顿、比尔-盖茨、副总统迈克-彭斯、马克-梅多斯、帕特-齐波洛尼、布什41（届总统）和43（届）、乔治-索罗斯、可卡因米奇等人身上了。
+> 彭斯在1月6日是不值得信任的。向了解他的人提出关于他的问题。他对待别人是否又傲慢又高傲？他是否专注于“彭斯2024”？他是保罗-瑞安的好朋友吗？为什么他妻子参加所有与其他女人的晚餐？他在隐瞒什么？
 > 
-> 伙计，当你需要杰弗里-爱泼斯坦的时候，他在哪里？
+> 我们需要有答案。
 
 
 
 
-> It is time to shine red hot light of truth on Chief Justice John Roberts, Justice Stephen Breyer, Joe Biden, Obama, Clintons, Bill Gates, VP Mike Pence, Mark Meadows, Pat Cippoloni, Bush 41 & 43, George Soros, Cocaine Mitch, etc.
+> Pence is NOT to be trusted for 1/6. Pose questions about him to people who know him. Is he arrogant & condescending to others? Is he focused on Pence 2024? Is he besties with Paul Ryan? Why does wife attend all dinners with other women? What is he hiding?
 > 
-> Man, where is Jeffrey Epstein when you need him?
-> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342622092727091202?ref_src=twsrc%5Etfw)
+> We deserve answers. [https://t.co/5O0L5oKfP9](https://t.co/5O0L5oKfP9)
+> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342624936565891072?ref_src=twsrc%5Etfw)
 
 
 
+林伍德律师推文：
 
-> 你会把你的生命、你的自由、你的儿子或女儿托付给他吗？你会想和他一起喝啤酒聊棒球吗?
+
+> 我爱美国爱国者和战士苏珊-诺克斯！苏珊的圣诞视频是我最喜欢的。苏珊的圣诞视频是我今天收到最喜欢的信息。请欣赏。
 > 
-> 我不愿意 所有的事情都不会。
+> 我只希望彭斯 @VP @Mike\_Pence 名字不是在视频中。彭斯是我们人民的叛徒。
 > 
-> 首席大法官罗伯茨需要辞职。现在就辞职
+> 圣诞快乐！
 
 
 
 
-> Would you trust this man with your life, your freedom, your son or your daughter? Would you want to have a beer with him & talk baseball?
+> I love American Patriot & Warrior Susan Knox! Susan’s Christmas video is my favorite message received today. View it below & enjoy.
 > 
-> Not me. No on all counts.
+> I only wish Pence [@VP](https://twitter.com/VP?ref_src=twsrc%5Etfw) [@Mike\_Pence](https://twitter.com/Mike_Pence?ref_src=twsrc%5Etfw) name was NOT in video. Pence is a traitor to We The People.
 > 
-> Chief Justice Roberts needs to resign. NOW. [pic.twitter.com/bj3fFkSgkt](https://t.co/bj3fFkSgkt)
-> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342628128624095232?ref_src=twsrc%5Etfw)
+> Merry Christmas! [pic.twitter.com/zB6IpOSw49](https://t.co/zB6IpOSw49)
+> — Lin Wood (@LLinWood) [December 25, 2020](https://twitter.com/LLinWood/status/1342605258724401153?ref_src=twsrc%5Etfw)
 
 
 
-新闻素材和图片来自林伍德律师推特
+Ivan Raiklin 律师当天早前的推文反映了他对彭斯副总统的态度和期望：（他于前日彭斯一号牌作废时，提出了彭斯二号牌的方案。）
+
+
+> 圣诞快乐，先生
+> 
+> 祈祷你能继续战斗，积极捍卫我们的宪法，继续前进。 我们不能再犯任何无谓的错误了。 保持参与。
+> 
+> #WeThePeople #PenceCard2
+> 
+> #我们人民  #彭斯第二张牌
 
 
 
-+1
+
+> Merry Christmas, sir.
+> 
+> Praying you will stay in the fight and vigorously defend our Constitution, moving forward. We can’t make any more unforced errors. Stay engaged.[#WeThePeople](https://twitter.com/hashtag/WeThePeople?src=hash&amp;ref_src=twsrc%5Etfw) [#PenceCard2](https://twitter.com/hashtag/PenceCard2?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/WIUZfnws9m](https://t.co/WIUZfnws9m)
+> — Merry Christmas! (@Raiklin) [December 25, 2020](https://twitter.com/Raiklin/status/1342502473152540675?ref_src=twsrc%5Etfw)
+
+
+
+新闻和图片来源于林伍德律师和Ivan Railin 律师的推文
+
+0
