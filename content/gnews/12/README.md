@@ -1,68 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德/Raiklin律师推文1225】-彭斯的问题
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/685065/)
+## 想家，不敢回去！
+` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/685120/)
 
-12月25日林伍德律师推文：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25215306/35ac179101d94684bc424427fa52ee9d.jpeg)
+作者：京都富士会 （神的带领）
 
+校正：待命（文晓）（京都富士会）
 
-> 彭斯在1月6日是不值得信任的。向了解他的人提出关于他的问题。他对待别人是否又傲慢又高傲？他是否专注于“彭斯2024”？他是保罗-瑞安的好朋友吗？为什么他妻子参加所有与其他女人的晚餐？他在隐瞒什么？
-> 
-> 我们需要有答案。
+排版：待命（文晓）（京都富士会）
 
+又是年下，看着外面飘着的雪花，我想家了。
 
+每年冬天我都会回国，因为东北的冬天乐趣多。可以滑雪呀，看冰雕呀，吃冻梨冻柿子，吃粘豆包，还可以去农村亲戚家杀年猪吃血肠。可是，今年不敢回去。
 
+首先中共病毒很可怕，下飞机不能马上回家和亲人团聚，得在宾馆隔离14天。下了飞机要排队检测，要在寒风中等几个小时才能出结果。然后你会任由大巴车拉你去宾馆，到了那里就会被分配房间，进了房间是不准出入的，和监狱一样。不仅要被收取很高的费用，而且之前住的谁？有没有消毒就不得知了。所以，我不敢回去，我怕万一。万一房间里有病菌被传染了呢。然后ccp一定会说“又一例外来的。建设祖国没有你，传播病毒你第一”。还有，就是ccp投毒嫁祸于人，对于爆料革命战友来说几率会很高。ccp灭亡之前一定会很疯狂，千万不要冒险回国。
 
-> Pence is NOT to be trusted for 1/6. Pose questions about him to people who know him. Is he arrogant & condescending to others? Is he focused on Pence 2024? Is he besties with Paul Ryan? Why does wife attend all dinners with other women? What is he hiding?
-> 
-> We deserve answers. [https://t.co/5O0L5oKfP9](https://t.co/5O0L5oKfP9)
-> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342624936565891072?ref_src=twsrc%5Etfw)
+有人会说即便不回国也有感染病毒的可能。这就是之所以我们必须宣传病毒真相，必须告诉国人现在的疫苗不靠谱，必须告诉他（她）们按照闫博士说的比例服用盐酸羟氯喹加锌可以预防中共病毒的原因所在。
 
+另外，要传达的是美国大选川普总统一定赢。国人们不要再听信ccp的谎言，ccp和拜登等家族的勾兑的丑态马上会大白于天下，对ccp的惩罚已经象山洪一样到来，没人能阻止得了。ccp病毒要灭掉世界各国当老大，世界各地死了那么多人，而且还在继续，把世界的经济也全部搞乱，搞坍塌了。世界各国一定会联合起来灭共，绝不会放过中国共产党。所以，国人们要做好避难的准备，远离军事基地，远离一二线城市，最好能去偏远地区。
 
+还有，就是一定要记住文贵先生的话，宣传ccp不等于中国，一定一定要把中国共产党和中国分开。共产党是邪恶组织，不是人民选举的，是不合法政权。千万不要觉得什么都和我们无关，不论你在哪里，只要是中国人就要清醒的认识到灾难就在眼前，把中国共产党和中国人分开及其重要。
 
-林伍德律师推文：
+不要再当ccp的小粉红。不然你一定会被清理回国。当你真回国去了的时候，ccp会变嘴脸。他们会无情的抛弃你。
 
-
-> 我爱美国爱国者和战士苏珊-诺克斯！苏珊的圣诞视频是我最喜欢的。苏珊的圣诞视频是我今天收到最喜欢的信息。请欣赏。
-> 
-> 我只希望彭斯 @VP @Mike\_Pence 名字不是在视频中。彭斯是我们人民的叛徒。
-> 
-> 圣诞快乐！
-
-
-
-
-> I love American Patriot & Warrior Susan Knox! Susan’s Christmas video is my favorite message received today. View it below & enjoy.
-> 
-> I only wish Pence [@VP](https://twitter.com/VP?ref_src=twsrc%5Etfw) [@Mike\_Pence](https://twitter.com/Mike_Pence?ref_src=twsrc%5Etfw) name was NOT in video. Pence is a traitor to We The People.
-> 
-> Merry Christmas! [pic.twitter.com/zB6IpOSw49](https://t.co/zB6IpOSw49)
-> — Lin Wood (@LLinWood) [December 25, 2020](https://twitter.com/LLinWood/status/1342605258724401153?ref_src=twsrc%5Etfw)
-
-
-
-Ivan Raiklin 律师当天早前的推文反映了他对彭斯副总统的态度和期望：（他于前日彭斯一号牌作废时，提出了彭斯二号牌的方案。）
-
-
-> 圣诞快乐，先生
-> 
-> 祈祷你能继续战斗，积极捍卫我们的宪法，继续前进。 我们不能再犯任何无谓的错误了。 保持参与。
-> 
-> #WeThePeople #PenceCard2
-> 
-> #我们人民  #彭斯第二张牌
-
-
-
-
-> Merry Christmas, sir.
-> 
-> Praying you will stay in the fight and vigorously defend our Constitution, moving forward. We can’t make any more unforced errors. Stay engaged.[#WeThePeople](https://twitter.com/hashtag/WeThePeople?src=hash&amp;ref_src=twsrc%5Etfw) [#PenceCard2](https://twitter.com/hashtag/PenceCard2?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/WIUZfnws9m](https://t.co/WIUZfnws9m)
-> — Merry Christmas! (@Raiklin) [December 25, 2020](https://twitter.com/Raiklin/status/1342502473152540675?ref_src=twsrc%5Etfw)
-
-
-
-新闻和图片来源于林伍德律师和Ivan Railin 律师的推文
+我的祖国、我的家乡，我爱你！为了你的健康，我必须暂时舍弃回国、舍弃亲人团聚、舍弃一切跟随爆料革命。只有消灭共产党我们才有将来，才有一切。
 
 0
