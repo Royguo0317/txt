@@ -1,68 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德/Raiklin律师推文1225】-彭斯的问题
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/685065/)
+## 道歉，阿富汗在喀布尔摧毁了其间谍组织后告诉中共
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/685099/)
 
-12月25日林伍德律师推文：
+翻译：康州盘古农场 – 烟波浩淼
 
+校对：康州盘古农场 – Antsee-GTV
 
-> 彭斯在1月6日是不值得信任的。向了解他的人提出关于他的问题。他对待别人是否又傲慢又高傲？他是否专注于“彭斯2024”？他是保罗-瑞安的好朋友吗？为什么他妻子参加所有与其他女人的晚餐？他在隐瞒什么？
-> 
-> 我们需要有答案。
-
-
-
-
-> Pence is NOT to be trusted for 1/6. Pose questions about him to people who know him. Is he arrogant & condescending to others? Is he focused on Pence 2024? Is he besties with Paul Ryan? Why does wife attend all dinners with other women? What is he hiding?
-> 
-> We deserve answers. [https://t.co/5O0L5oKfP9](https://t.co/5O0L5oKfP9)
-> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342624936565891072?ref_src=twsrc%5Etfw)
+审核： 康州盘古农场 –Truemanman
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25215018/%E5%9B%BE%E7%89%8776.png)一个在首都喀布尔经营恐怖活动的10人中共国小组被破获（美联社）
+阿富汗国家安全局拘留了10名中共国公民，他们被指控在喀布尔经营一个恐怖小组
 
 
 
-林伍德律师推文：
+据这个西亚国家的外交和安全官员说，阿富汗已经破获了一个由10人组成的中共国组织，在首都喀布尔经营一个恐怖小组。喀布尔和新德里的知情人士说，这次打击行动让北京陷入了巨大的尴尬，北京一直在试图说服阿什拉夫·加尼政府掩盖此案。
 
+这10名中共国公民最近被阿富汗国家安全局（NDS）以间谍罪和经营恐怖组织的罪名拘留，据信他们与中共国的间谍机构国家安全部有关。阿富汗国家安全局的打击行动始于12月10日。
 
-> 我爱美国爱国者和战士苏珊-诺克斯！苏珊的圣诞视频是我最喜欢的。苏珊的圣诞视频是我今天收到最喜欢的信息。请欣赏。
-> 
-> 我只希望彭斯 @VP @Mike\_Pence 名字不是在视频中。彭斯是我们人民的叛徒。
-> 
-> 圣诞快乐！
+这是多年来首次有中共国公民在阿富汗从事间谍活动被抓，即使在美国撤军之际，阿富汗也在寻求迅速扩大其影响力。喀布尔的一名高级外交官说，10名中共国公民中至少有两人与哈卡尼网络（Haqqani Network）有联系，该恐怖组织是塔利班的双重利剑武装（使塔利班危害倍增）。
 
+据在一开始援引此消息的人士说，阿什拉夫·加尼（Ashraf Ghani）总统已获悉拘留情况，授权前阿富汗情报局局长，现第一副总统阿姆鲁拉·萨利赫（Amrullah Saleh）负责监督调查，同时考虑到其中的敏感性，授权副总统与中方接触。
 
+阿姆鲁拉·萨利赫已经与中共国驻喀布尔特使王愚举行了会晤，向他通报了拘留事件的情况。据悉，萨利赫表示，如果北京方面提交正式道歉，承认违反国际准则，背叛喀布尔的信任，阿富汗政府可以考虑赦免中共国间谍。
 
+否则，据信阿姆鲁拉·萨利赫已经告诉中共国大使，阿富汗政府将继续进行刑事诉讼。据喀布尔一名反恐官员透露，被拘留者之一李艳阳，自7-8月以来一直为中共国情报部门活动。他于12月10日在喀布尔西部Kart-e-Char社区的家中被阿富汗国家安全局逮捕。
 
-> I love American Patriot & Warrior Susan Knox! Susan’s Christmas video is my favorite message received today. View it below & enjoy.
-> 
-> I only wish Pence [@VP](https://twitter.com/VP?ref_src=twsrc%5Etfw) [@Mike\_Pence](https://twitter.com/Mike_Pence?ref_src=twsrc%5Etfw) name was NOT in video. Pence is a traitor to We The People.
-> 
-> Merry Christmas! [pic.twitter.com/zB6IpOSw49](https://t.co/zB6IpOSw49)
-> — Lin Wood (@LLinWood) [December 25, 2020](https://twitter.com/LLinWood/status/1342605258724401153?ref_src=twsrc%5Etfw)
+在12月10日的第一轮突击行动中，阿富汗国家安全局从他的住处缴获了武器、弹药和氯胺酮粉（一种娱乐性毒品）。据这名反恐官员称，国家安全局官员对李某进行了审问，他一直在库纳尔省和巴达赫尚省收集有关基地组织、塔利班和维吾尔人的信息。一名中共国妇女是第二名被逮捕的人。在喀布尔瑟普尔经营一家餐馆的沙红也在同一天被捕。
 
+这名反恐官员说：”国家安全局从她的住处搜出了爆炸物和其他罪证物品”。
 
+这名反恐官员还说，李和沙一直与哈卡尼网络保持联系。
 
-Ivan Raiklin 律师当天早前的推文反映了他对彭斯副总统的态度和期望：（他于前日彭斯一号牌作废时，提出了彭斯二号牌的方案。）
+随后又有8名中共国公民被捕。
 
+新德里的一名外交官说，调查人员仍在试图查明这个间谍团伙的确切活动范围以及与巴基斯坦暗黑势力的任何可能联系。阿富汗安全机构内部的一种观点是，被拘留者在阿富汗制造一个假的东突厥斯坦伊斯兰运动(ETIM)组织，以诱捕阿富汗境内的ETIM特工。
 
-> 圣诞快乐，先生
-> 
-> 祈祷你能继续战斗，积极捍卫我们的宪法，继续前进。 我们不能再犯任何无谓的错误了。 保持参与。
-> 
-> #WeThePeople #PenceCard2
-> 
-> #我们人民  #彭斯第二张牌
+ETIM是一个小型伊斯兰分裂主义团体，据称活跃在中共国少数民族维吾尔族穆斯林的故乡新疆省。它的创始人哈桑·马赫苏姆（Hasan Mahsum）是新疆喀什地区的维吾尔族人，于2003年被巴基斯坦士兵枪杀。维权组织说，中共国以ETIM威胁为借口，对维吾尔人施加限制，并诋毁中共国境外的人权活动家。美国上个月撤销了对 ETIM的恐怖标签，但该组织仍被联合国安理会所认定。
 
+原文作者：西希尔·古普塔（《印度斯坦时报》）/ 新德里
 
+发布时间： 2020 12月25 日
 
+原文链接：
 
-> Merry Christmas, sir.
-> 
-> Praying you will stay in the fight and vigorously defend our Constitution, moving forward. We can’t make any more unforced errors. Stay engaged.[#WeThePeople](https://twitter.com/hashtag/WeThePeople?src=hash&amp;ref_src=twsrc%5Etfw) [#PenceCard2](https://twitter.com/hashtag/PenceCard2?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/WIUZfnws9m](https://t.co/WIUZfnws9m)
-> — Merry Christmas! (@Raiklin) [December 25, 2020](https://twitter.com/Raiklin/status/1342502473152540675?ref_src=twsrc%5Etfw)
+[Apologise, Afghanistan tells China after busting its espionage cell in Kabul – india news – Hindustan Times](https://www.hindustantimes.com/india-news/chinese-espionage-ring-in-afghanistan-busted-10-spies-detained/story-qyPsZY1wUoD2flp9UIYMrK.html)
 
-
-
-新闻和图片来源于林伍德律师和Ivan Railin 律师的推文
-
-0
++2

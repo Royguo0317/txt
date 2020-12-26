@@ -1,33 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世界第一大事
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/684718/)
+## 桌球我不行，但是我灭共行！么么哒！
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/684856/)
 
-```
-作者: Tito
-校对/发稿人: Ting Guo
-```
+新闻简述：郭先生在2020年12月18日的GTV盖特视频中，以他特有的风格，仿佛是不经意地道来：“打球不行……打桌球…但是我灭共行！” 他警示战友们一段自他年轻时就铭记在心的训诫：“早乐必早衰，早悲必早哀，起而伏之，伏而起之。” 他又说：“上天在帮我们，在帮正义的一边”，然后以一个令人意外的飞吻作为结束语。（[下载郭先生飞吻GIF文件](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25171427/Miles_Muah.gif)）
+[视频来源](https://gtv.org/getter/5fd6be5120c9025a87df4be1)
+中英文对照原文：
 
+Brothers and sisters, I just tried out our live broadcast features… A tryout. It’s Monday already! I suppose a new independent prosecutor should be coming out soon… Possible to see some personnel changes, right? 72-hour [time limit is almost up], mounting pressure for tomorrow… That’s why I always remind Mr. Lude – “Don’t predict, don’t predict! We are not in the business of ‘predicting’!” Let’s wait and see!
 
-曾经看过一本意大利的《世界五十件大事》，记得当时自己拿着字典很费力的翻译着。第一件大事就让我深思，或许是让每个人深思。虽然现在的意大利看着弱不禁风，但是终究有些明白了，为什么意大利会是G8工业国之一，虽然是排名最末的那个。
+兄弟姐妹们， 刚才是我试了试咱们直播啊，试了试…… 啊呀，星期一啦！ 我相信该有独立检察官该出来了吧？ 会有一些人事变动吧？ 72小时啊， 明天压力很大啊。 所以说我老给我们的路波切说， 千万别预测，别预测， 咱这不是预测啊。 看看吧啊！
 
-**这第一件大事，就是农业。**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25134539/images-1-10.jpeg)图片来源: chinazjph
-对，确实难以想象，这是每个人都知道的事情，可是就这么写在书里，对于一个中国人来说，是又惊讶又意外。因为在中国人的观念里，记录着五十件世界大事的一本书，一打开，应该是哪位皇帝登基，哪位名相的丰功伟绩，哪场战役决定了中国的命运。或者诸如中国的《史记》一般，一开篇就是《黄帝本纪》，述说其一生的德行和丰功伟绩。在中国的书籍中，尽是此类的视角，目光永远盯着名人将相。我记得我看意大利《世界五十件大事》的第一大事那一刻，就让我深省好多。
+So brothers and sisters, there are two more moves… Two more moves… Let’s get on with this move first, this one first… Soon, you may be amazed that a rumbling thunder, ‘Take-Down-the-CCP’, after such a long silence, against the backdrop of the dark clouds, “Kuah”! A bolt of lightning, a bolt of lightning! You will see, brothers and sisters. All 3 moves, assumed previously, are no longer needed. Only two moves will suffice. No need to declare martial law, no yet. There will be this one step in the future. You will come to know tomorrow, Tomorrow, or the day after tomorrow, brothers and sisters.
 
-书中说第一大事是农业，说的很简短，但可算算是字字珠玑。书言：“世界一切上层建筑的基础，就是农业。无论是科技政治文化军事历史，最关键的支撑也是农业。没有农业，歌剧音乐电影等文化都是空谈。农业是一切人类文明活动的根基。”读的时候虽然感觉只是有道理，却比中国的“民以食为天”要深刻的多。今天再回忆这本书，不简单再是感觉深刻了。当中国缺粮了，有人要挨饿了，才能真正发现西方人的智哲。
+所以说兄弟姐妹们， 还有两步……两步棋。 先走这一步……先走这一步。 然后呢，你会看到灭共的滚天雷啊…… 这个……在这个寂静之后， 你会发现在这个黑的云彩中突然间 ‘Kuah’……一亮，一道闪电，一道闪电， 你会看到的兄弟姐妹们。 你想象中的那三步棋，不需要！ 两步棋， 没有什么戒严法，还不到那一步， 会有一步， 未来的……明天你看看啊， 明天，后天……兄弟姐妹们啊，
 
-西方人是真正的思考过什么是重要什么是不重要的，西方人虽然贪婪也是有人性的，西方人是真正考虑过人类的生存的。中国人虽然继承了千年文化，有些时候真心觉得继承了还不如不继承。一帮人天天研究着玄的不能再玄的道家大道，要不就是想着庄子的超脱，再不就是学儒家怎么做人，更恶心的就是党中央一帮人还天天研究商鞅的《驭民五术》。中国哪朝哪代都有饿死人的情况，而中国人从来都是皇帝视角，军事文化外交都是全国关注的对象，农业从来没被重视过，或者说，只是短暂被重视过，一旦能吃饱，中国就开始全国从上到下一片”同仇敌忾“。或许，中国人自己都没有想过，”同仇敌忾“的重要基础也是粮食。
+I just finished a round of pool. Lord, I lost 2… 3 out of 4. Oh, actually, I lost 4 out of 4. Oh my lord, 4 out of 4! Pool is just not my forte. Lousy at the techniques. I don’t seem to have a knack for it. And my heart isn’t in it either… But Take-Down-the-CCP, that is my forte! What could you do about it, huh?!
 
-当西方拥有“孟山都”这种强大公司的时候，中国还停留在袁隆平的杂交水稻时代。当“孟山都”都被拜耳收购了，袁隆平的杂交水稻也没出什么新花样。粮荒越来越近，曾经的三年自然灾害会不会重演令人的内心蒙上了一层阴影。“民以食为天”或许只是中国从古至今的一句谚语罢了，或许只是历代帝王将相说出来哄老百姓的。
+这个……刚刚我在这打球， 哎呀，4局输了2……3局， 不是，4局输了4局。 天啊，4局输了4局， 打球不行……打桌球。 关键技术也不行，能力也不行， 心也不在这儿，呵呵…… 但是我灭共行！ 咋弄嘞，你说？
 
-中国经历了这么多磨难，却依然将和曾经悲惨的历史重合。而这一次的重合，不知道能不能让中国人真正重视到一切社会活动的基础，能不能把眼光从权力的权杖上移开，能不能像西方人一样，明白农业的重要性，会不会，有一天在自己国家的五十件大事中，把农业写在最前面，并且真正放在最重要的位置。
+Brothers and sisters, you might have been on edge, a bit depressed this weekend, right? But you will breathe better tomorrow, and even more so the day after tomorrow! Just you wait and see! Don’t be anxious! Don’t be anxious! I wrapped up a few phone calls just now. The game plan has been moving forward beautifully… For our Whistleblower Movement, all are tremendously good news! Just you wait and see, my brothers and sisters!
 
-**文章仅代表战友个人观点**
+兄弟姐妹们， 这个周末你们都过得很紧张、很压抑是不？ 明天你会感觉舒服一些， 后天你会感到很舒服！ 嗯，走着看啊！ 别捉急，别捉急！ 刚才的一通电话啊， 大局，咱们……往前推进！ 对我们爆料革命，这都是天大的好事儿啊， 咱走着看兄弟姐妹们。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21093249/image4-3.jpg)*[**https://discord.gg/77fCxw5mFv**](https://discord.gg/77fCxw5mFv)
-[**https://**](https://https//discord.gg/77fCxw5mFv)[**gab.com/himalaya\_italy**](https://gab.com/himalaya_italy)*
+But do remember, “A premature celebration may only lead to an earlier defeat. A premature give-up will only bring about an earlier defeat. When you are up, stay humble and cautious. When you are down, stay hopeful and optimistic. Now we are “on the way up”, so we shall remain humble and cautious. But for the past two days, we were “down”, though we maintained our “upbeat” fighting spirits! Be sure to keep in mind, my brothers and sisters! From tomorrow on, you will be thrilled by some upbeat news! But this is not yet the finish line. Not yet! Don’t be impatient. Soon Miles will demonstrate to you all!
 
+记住啊， 早乐必早衰， 早悲必早哀， 起而伏之， 伏而起之。 现在我们是……正是起的时候咱伏之。 但是过去两天啊， 是……伏而起……起而伏之，咱是伏而起之，啊。 这是要记住，兄弟姐妹们， 从明天起，你们会看到很多……啊……让你感到兴奋的事儿， 但不到最后……不到最后啊！ 别着急啊。文贵会展示给你们的。
 
-0
+Today’s news about G-TV is just fantastic! How exciting! More great news are on the way, about our G-Series, you will see. All G-TV investors, G-Series investors, you will see. As the old saying goes – when it comes to making money, (it is not …) it truly calls for “hard currency” (superior power). Cannot be achieved by just empty talks! You cannot just do whatever you want on a whim. You’ve gotta put it to test and get real work done! You’d better not tell lies in America, better not attempt to tamper with data/evidence.
+
+哎呀，今天GTV这好消息，实在是太兴奋了， 还有更多好消息啊，咱们G系列，你们会看到， 所有的GTV的投资人……G系列的投资人……你们会看到。 还是那句话， 这挣钱这个东西啊， 它不是··· 这是硬通货， 它不是吹牛的， 不是你想干啥就干啥的， 咱得干实事儿！ 在美国你一句假话也不能说， 一个数据也不能假，
+
+This is the greatness of the United States! Don’t you say it looks so chaotic for now! Big chaos ought to lead to the emergence of great wisdom. Big chaos ought to lead to the conception of a great reform! You all understand it pretty well, even better than me. Only you may still hold doubts about it. Rest assured I will make you fully believe it. God has bestowed upon us, God is standing with us, on the side of justice! Brothers and sisters. I might do a live broadcast tomorrow evening. All right, my brothers and sisters! “Muah”! Goodbye!
+
+这就是伟大的美国！ 你别看那么乱， 大乱必大智， 大乱必有大治！ 你们都懂的，都比我懂， 只是不相信而已， 我会让你们相信的。 上天在帮我们， 在帮正义的一边， 兄弟姐妹们。 明天晚上可能直播，啊， 好吧兄弟姐妹们， 么，再见！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25171427/Miles_Muah.gif)
+翻译：【RD16】 字幕：【相机过热啊】 听写：【小螺号】视频解码：【恒久忍耐】【相机过热啊】编辑：【RD16】
+
+喜马拉雅玫瑰园小队出品
+
++1
