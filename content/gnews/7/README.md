@@ -1,47 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1225】-大法官应该马上辞职
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/685045/)
+## 道歉，阿富汗在喀布尔摧毁了其间谍组织后告诉中共
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/685099/)
 
-12月25日林伍德律师推文：
+翻译：康州盘古农场 – 烟波浩淼
 
+校对：康州盘古农场 – Antsee-GTV
 
-> 现在是时候把红色真理之光照耀到首席大法官约翰-罗伯茨、大法官斯蒂芬-布雷耶、乔-拜登、奥巴马、克林顿、比尔-盖茨、副总统迈克-彭斯、马克-梅多斯、帕特-齐波洛尼、布什41（届总统）和43（届）、乔治-索罗斯、可卡因米奇等人身上了。
-> 
-> 伙计，当你需要杰弗里-爱泼斯坦的时候，他在哪里？
-
-
-
-
-> It is time to shine red hot light of truth on Chief Justice John Roberts, Justice Stephen Breyer, Joe Biden, Obama, Clintons, Bill Gates, VP Mike Pence, Mark Meadows, Pat Cippoloni, Bush 41 & 43, George Soros, Cocaine Mitch, etc.
-> 
-> Man, where is Jeffrey Epstein when you need him?
-> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342622092727091202?ref_src=twsrc%5Etfw)
+审核： 康州盘古农场 –Truemanman
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25215018/%E5%9B%BE%E7%89%8776.png)一个在首都喀布尔经营恐怖活动的10人中共国小组被破获（美联社）
+阿富汗国家安全局拘留了10名中共国公民，他们被指控在喀布尔经营一个恐怖小组
 
 
 
+据这个西亚国家的外交和安全官员说，阿富汗已经破获了一个由10人组成的中共国组织，在首都喀布尔经营一个恐怖小组。喀布尔和新德里的知情人士说，这次打击行动让北京陷入了巨大的尴尬，北京一直在试图说服阿什拉夫·加尼政府掩盖此案。
 
-> 你会把你的生命、你的自由、你的儿子或女儿托付给他吗？你会想和他一起喝啤酒聊棒球吗?
-> 
-> 我不愿意 所有的事情都不会。
-> 
-> 首席大法官罗伯茨需要辞职。现在就辞职
+这10名中共国公民最近被阿富汗国家安全局（NDS）以间谍罪和经营恐怖组织的罪名拘留，据信他们与中共国的间谍机构国家安全部有关。阿富汗国家安全局的打击行动始于12月10日。
 
+这是多年来首次有中共国公民在阿富汗从事间谍活动被抓，即使在美国撤军之际，阿富汗也在寻求迅速扩大其影响力。喀布尔的一名高级外交官说，10名中共国公民中至少有两人与哈卡尼网络（Haqqani Network）有联系，该恐怖组织是塔利班的双重利剑武装（使塔利班危害倍增）。
 
+据在一开始援引此消息的人士说，阿什拉夫·加尼（Ashraf Ghani）总统已获悉拘留情况，授权前阿富汗情报局局长，现第一副总统阿姆鲁拉·萨利赫（Amrullah Saleh）负责监督调查，同时考虑到其中的敏感性，授权副总统与中方接触。
 
+阿姆鲁拉·萨利赫已经与中共国驻喀布尔特使王愚举行了会晤，向他通报了拘留事件的情况。据悉，萨利赫表示，如果北京方面提交正式道歉，承认违反国际准则，背叛喀布尔的信任，阿富汗政府可以考虑赦免中共国间谍。
 
-> Would you trust this man with your life, your freedom, your son or your daughter? Would you want to have a beer with him & talk baseball?
-> 
-> Not me. No on all counts.
-> 
-> Chief Justice Roberts needs to resign. NOW. [pic.twitter.com/bj3fFkSgkt](https://t.co/bj3fFkSgkt)
-> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342628128624095232?ref_src=twsrc%5Etfw)
+否则，据信阿姆鲁拉·萨利赫已经告诉中共国大使，阿富汗政府将继续进行刑事诉讼。据喀布尔一名反恐官员透露，被拘留者之一李艳阳，自7-8月以来一直为中共国情报部门活动。他于12月10日在喀布尔西部Kart-e-Char社区的家中被阿富汗国家安全局逮捕。
 
+在12月10日的第一轮突击行动中，阿富汗国家安全局从他的住处缴获了武器、弹药和氯胺酮粉（一种娱乐性毒品）。据这名反恐官员称，国家安全局官员对李某进行了审问，他一直在库纳尔省和巴达赫尚省收集有关基地组织、塔利班和维吾尔人的信息。一名中共国妇女是第二名被逮捕的人。在喀布尔瑟普尔经营一家餐馆的沙红也在同一天被捕。
 
+这名反恐官员说：”国家安全局从她的住处搜出了爆炸物和其他罪证物品”。
 
-新闻素材和图片来自林伍德律师推特
+这名反恐官员还说，李和沙一直与哈卡尼网络保持联系。
 
+随后又有8名中共国公民被捕。
 
+新德里的一名外交官说，调查人员仍在试图查明这个间谍团伙的确切活动范围以及与巴基斯坦暗黑势力的任何可能联系。阿富汗安全机构内部的一种观点是，被拘留者在阿富汗制造一个假的东突厥斯坦伊斯兰运动(ETIM)组织，以诱捕阿富汗境内的ETIM特工。
 
-+1
+ETIM是一个小型伊斯兰分裂主义团体，据称活跃在中共国少数民族维吾尔族穆斯林的故乡新疆省。它的创始人哈桑·马赫苏姆（Hasan Mahsum）是新疆喀什地区的维吾尔族人，于2003年被巴基斯坦士兵枪杀。维权组织说，中共国以ETIM威胁为借口，对维吾尔人施加限制，并诋毁中共国境外的人权活动家。美国上个月撤销了对 ETIM的恐怖标签，但该组织仍被联合国安理会所认定。
+
+原文作者：西希尔·古普塔（《印度斯坦时报》）/ 新德里
+
+发布时间： 2020 12月25 日
+
+原文链接：
+
+[Apologise, Afghanistan tells China after busting its espionage cell in Kabul – india news – Hindustan Times](https://www.hindustantimes.com/india-news/chinese-espionage-ring-in-afghanistan-busted-10-spies-detained/story-qyPsZY1wUoD2flp9UIYMrK.html)
+
++2

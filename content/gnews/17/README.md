@@ -1,33 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒疫苗不安全 后果堪忧
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/684822/)
+## 【军事快讯】日本副防卫大臣警告：台湾安全是“红线”
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/684848/)
 
-加拿大多伦多枫叶农场 文所未闻
-校对 文怡 上传 安歌
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25171219/the-conversation1.jpg)图片来源： The Conversation
-美国疾病控制和预防中心（CDC）关于“健康影响事件”的定义是：“无法进行正常的日常活动，无法工作，需要医生或保健专业人员的护理” 。据《零对冲》（ZeroHedge）12月20日报道，截至12月19日，共接种了272,001剂疫苗；截至12月18日，有3150人在接种中共病毒疫苗后报告了 “健康影响事件” 。
+作者：香草山写作组 wilson
 
-报告负作用的人是通过V-safe这个智能手机应用程序报告的。该工具使用短信和网络调查来提供个性化的健康检查，并允许用户在遇到副作用时快速告诉CDC。这些信息是由CDC流行病学家托马斯·克拉克（Thomas Clark）博士在周六向免疫实践咨询委员会展示的，而该委员会是一个向CDC提供建议的独立专家小组。CDC和生产疫苗的辉瑞公司没有回应评论请求。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23222242/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-疾病预防控制中心已确定六例，接种新疫苗后过敏性休克，或严重的过敏反应。其他病例报告被审查并确定不属于过敏性休克。在周五的更新中，CDC强调，任何曾经对中共病毒疫苗中的任何成分有严重过敏反应的人都不应该接种该疫苗。对其他疫苗有严重过敏反应的人应该咨询医生关于接种新疫苗的问题，而那些有与疫苗无关的过敏性休克史的人 “仍然可以接种疫苗”。CDC说：
 
-*“疾控中心建议，有与疫苗或注射药物无关的严重过敏反应史的人，如对食物、宠物、毒液、环境或乳胶过敏，仍可接种疫苗；”
-“对口服药物有过敏史的人或有严重过敏反应家族史的人，或者可能对疫苗过敏较轻（无过敏性休克）的人，也可能仍然接种疫苗。”*
 
-中共病毒疫苗两个剂量，间隔约三周。CDC说，任何第一次疫苗注射后经历过敏性休克后的人不应该注射第二次。
 
-据《安克雷奇日报》报道，阿拉斯加至少有5名医护人员在接种辉瑞疫苗后出现不良反应。巴特利特地区医院出现不良反应的两人中，有一人至少需要在医院治疗两晚。伊利诺伊州一家医院在4名工作人员出现不良反应后停止了疫苗接种。
 
-食品和药物管理局生物制品评估和研究中心主任彼得·马克斯（Peter Marks）博士在周四晚上的电话中告诉记者，该机构正在与CDC以及英国的同事合作，探究过敏反应。他说，“我们将查看所有从这些过敏反应中得到的每一个数据，找出到底发生了什么。而且我们还将试图了解疫苗的哪些成分可能导致了这些反应。” 马克斯博士指出，他只是在猜测，已知的是，存在于辉瑞的两款疫苗和监管机构在当天早些时候批准的一款Moderna疫苗中的一种成分-聚乙二醇（polyethylene glycol），可能与过敏反应有关，虽然不常见。其推测有待证实。
+2020年12月25日，日本防卫副大臣中山泰秀接受路透社采访时表示，亚洲有一条红线，即中(共)国大陆和台湾。我们担心中(共)国会将其咄咄逼人的立场扩展到香港以外的地区，我认为中共的下一个目标之一是台湾。
+中山泰秀认为川普是保护台湾做得最多的美国总统。他同时表达了如果拜登入主白宫对台湾政策的担忧。他说，假设(中共)国对台动武，白宫的拜登会做出什么反应？
+日本与台湾不仅有相同的民主价值观，还有共同的战略利益，日本的能源几乎全部依赖海运进口，台湾的地理位置处于日本能源、贸易所依赖的海上航道上。
+中(共)国和日本在钓鱼岛海域的紧张局势不断升温，11月双方外长会晤后，日本防卫相岸信夫公开表态，对王毅关于钓鱼岛的言论“完全不可接受”，日本已经改变以往的模糊态度。
+12月14日，岸信夫和中(共)国防部长魏凤和就钓鱼岛紧张局势进行了紧急视频会谈。岸信夫对魏凤和强硬表示，尖阁诸岛(钓鱼岛)从历史上和国际法上都是日本的领土，日本实质控制，不存在应该解决的主权问题。
+郭文贵先生指出，当中共造毒放毒被认定后，各国政府如果不向中共追责，无法向国民交代。一贯出言谨慎的日本政府，对中共的态度惭趋强硬，说明日本朝野已经达成灭共共识。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25172842/1209031505392519.jpg)A team of Japanese surveyors conducts an offshore survey from boats near Uotsurijima island, part of the disputed island chain known in Japan as Senkaku and Diaoyu in China, on September 2, 2012. A team of Japanese surveyors on September 2 sailed to a group of disputed islands in the East China Sea which the nationalistic governor of Tokyo wants to buy amid a widening diplomatic row with China. JAPAN OUT AFP PHOTO / JAPAN POOL VIA JIJI PRESS
+[https://www.epochtimes.com/gb/20/12/14/n12620625.htm](https://www.epochtimes.com/gb/20/12/14/n12620625.htm)
 
-辉瑞公司后期临床试验中的一名志愿者出现过过敏反应。Moderna公司在周四的一次会议上表示，Moderna的第3期临床试验中的两个人出现过过敏反应。但FDA官员说，数据显示好处大于风险，所以他们相隔约7天，授予疫苗紧急使用授权。根据FDA网站，最常报告的副作用包括疲倦、头痛、肌肉疼痛和寒战。该机构表示，它们会在几天后消失。
 
-据美国疾控中心称，接种中共病毒疫苗的人在接种疫苗后应至少监测15分钟。如果有人对接种中共病毒疫苗出现严重的过敏反应，接种提供方应该提供快捷护理，并呼叫紧急医疗服务。此人应继续在医疗机构中接受至少数小时的监测。
 
-评：因为这个病毒是生化武器，前所未有。用正常的疫苗对待非正常的病毒，中共病毒疫苗非但不安全，其可能造成的种种后果也未知。当前的所有疫苗只是资本运作的结果，只有追根溯源，消灭CCP，找到病毒来源和真相，才可能有真正有用的疫苗。
+https://www.voachinese.com/a/Japan-official-calling-Taiwan-red-line-urges-Biden-be-strong-20201225/5713304.html
+大纪元 www.epochtimes.com
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25172738/76886934-6A51-4539-A701-70B9784A7E9E_cx0_cy3_cw0_w1200_r1.jpg)
+中日防长会谈 中共高调提钓鱼岛是何故？ – 大纪元
+12月14日，日本防卫大臣岸信夫与中共国防部长魏凤和举行视频会谈，双方在钓鱼岛主权问题再次对空较劲。但上世纪50年代，中共时任总理周恩来曾公开承认钓鱼岛归属日本。
 
-[原文链接](https://www.zerohedge.com/covid-19/cdc-issues-new-guidelines-launches-probe-after-1000s-negatively-affected-following-covid)
+美国之音
+日本防卫高官：台湾安全是“红线”，促拜登坚定支持台湾
+日本一名高级防卫官员星期五敦促美国当选总统拜登在面对咄咄逼人的中国时“坚定地”支持台湾，称台湾的安全是一条“红线”。
+
+校对发稿：悟空
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23222242/GNEW-GTV-MOS-LOGO-2-1.jpg)
+
+
+
+
 
 0
