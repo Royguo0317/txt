@@ -1,43 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 桌球我不行，但是我灭共行！么么哒！
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/684856/)
+## 中共病毒疫苗不安全 后果堪忧
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/684822/)
 
-新闻简述：郭先生在2020年12月18日的GTV盖特视频中，以他特有的风格，仿佛是不经意地道来：“打球不行……打桌球…但是我灭共行！” 他警示战友们一段自他年轻时就铭记在心的训诫：“早乐必早衰，早悲必早哀，起而伏之，伏而起之。” 他又说：“上天在帮我们，在帮正义的一边”，然后以一个令人意外的飞吻作为结束语。（[下载郭先生飞吻GIF文件](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25171427/Miles_Muah.gif)）
-[视频来源](https://gtv.org/getter/5fd6be5120c9025a87df4be1)
-中英文对照原文：
+加拿大多伦多枫叶农场 文所未闻
+校对 文怡 上传 安歌
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25171219/the-conversation1.jpg)图片来源： The Conversation
+美国疾病控制和预防中心（CDC）关于“健康影响事件”的定义是：“无法进行正常的日常活动，无法工作，需要医生或保健专业人员的护理” 。据《零对冲》（ZeroHedge）12月20日报道，截至12月19日，共接种了272,001剂疫苗；截至12月18日，有3150人在接种中共病毒疫苗后报告了 “健康影响事件” 。
 
-Brothers and sisters, I just tried out our live broadcast features… A tryout. It’s Monday already! I suppose a new independent prosecutor should be coming out soon… Possible to see some personnel changes, right? 72-hour [time limit is almost up], mounting pressure for tomorrow… That’s why I always remind Mr. Lude – “Don’t predict, don’t predict! We are not in the business of ‘predicting’!” Let’s wait and see!
+报告负作用的人是通过V-safe这个智能手机应用程序报告的。该工具使用短信和网络调查来提供个性化的健康检查，并允许用户在遇到副作用时快速告诉CDC。这些信息是由CDC流行病学家托马斯·克拉克（Thomas Clark）博士在周六向免疫实践咨询委员会展示的，而该委员会是一个向CDC提供建议的独立专家小组。CDC和生产疫苗的辉瑞公司没有回应评论请求。
 
-兄弟姐妹们， 刚才是我试了试咱们直播啊，试了试…… 啊呀，星期一啦！ 我相信该有独立检察官该出来了吧？ 会有一些人事变动吧？ 72小时啊， 明天压力很大啊。 所以说我老给我们的路波切说， 千万别预测，别预测， 咱这不是预测啊。 看看吧啊！
+疾病预防控制中心已确定六例，接种新疫苗后过敏性休克，或严重的过敏反应。其他病例报告被审查并确定不属于过敏性休克。在周五的更新中，CDC强调，任何曾经对中共病毒疫苗中的任何成分有严重过敏反应的人都不应该接种该疫苗。对其他疫苗有严重过敏反应的人应该咨询医生关于接种新疫苗的问题，而那些有与疫苗无关的过敏性休克史的人 “仍然可以接种疫苗”。CDC说：
 
-So brothers and sisters, there are two more moves… Two more moves… Let’s get on with this move first, this one first… Soon, you may be amazed that a rumbling thunder, ‘Take-Down-the-CCP’, after such a long silence, against the backdrop of the dark clouds, “Kuah”! A bolt of lightning, a bolt of lightning! You will see, brothers and sisters. All 3 moves, assumed previously, are no longer needed. Only two moves will suffice. No need to declare martial law, no yet. There will be this one step in the future. You will come to know tomorrow, Tomorrow, or the day after tomorrow, brothers and sisters.
+*“疾控中心建议，有与疫苗或注射药物无关的严重过敏反应史的人，如对食物、宠物、毒液、环境或乳胶过敏，仍可接种疫苗；”
+“对口服药物有过敏史的人或有严重过敏反应家族史的人，或者可能对疫苗过敏较轻（无过敏性休克）的人，也可能仍然接种疫苗。”*
 
-所以说兄弟姐妹们， 还有两步……两步棋。 先走这一步……先走这一步。 然后呢，你会看到灭共的滚天雷啊…… 这个……在这个寂静之后， 你会发现在这个黑的云彩中突然间 ‘Kuah’……一亮，一道闪电，一道闪电， 你会看到的兄弟姐妹们。 你想象中的那三步棋，不需要！ 两步棋， 没有什么戒严法，还不到那一步， 会有一步， 未来的……明天你看看啊， 明天，后天……兄弟姐妹们啊，
+中共病毒疫苗两个剂量，间隔约三周。CDC说，任何第一次疫苗注射后经历过敏性休克后的人不应该注射第二次。
 
-I just finished a round of pool. Lord, I lost 2… 3 out of 4. Oh, actually, I lost 4 out of 4. Oh my lord, 4 out of 4! Pool is just not my forte. Lousy at the techniques. I don’t seem to have a knack for it. And my heart isn’t in it either… But Take-Down-the-CCP, that is my forte! What could you do about it, huh?!
+据《安克雷奇日报》报道，阿拉斯加至少有5名医护人员在接种辉瑞疫苗后出现不良反应。巴特利特地区医院出现不良反应的两人中，有一人至少需要在医院治疗两晚。伊利诺伊州一家医院在4名工作人员出现不良反应后停止了疫苗接种。
 
-这个……刚刚我在这打球， 哎呀，4局输了2……3局， 不是，4局输了4局。 天啊，4局输了4局， 打球不行……打桌球。 关键技术也不行，能力也不行， 心也不在这儿，呵呵…… 但是我灭共行！ 咋弄嘞，你说？
+食品和药物管理局生物制品评估和研究中心主任彼得·马克斯（Peter Marks）博士在周四晚上的电话中告诉记者，该机构正在与CDC以及英国的同事合作，探究过敏反应。他说，“我们将查看所有从这些过敏反应中得到的每一个数据，找出到底发生了什么。而且我们还将试图了解疫苗的哪些成分可能导致了这些反应。” 马克斯博士指出，他只是在猜测，已知的是，存在于辉瑞的两款疫苗和监管机构在当天早些时候批准的一款Moderna疫苗中的一种成分-聚乙二醇（polyethylene glycol），可能与过敏反应有关，虽然不常见。其推测有待证实。
 
-Brothers and sisters, you might have been on edge, a bit depressed this weekend, right? But you will breathe better tomorrow, and even more so the day after tomorrow! Just you wait and see! Don’t be anxious! Don’t be anxious! I wrapped up a few phone calls just now. The game plan has been moving forward beautifully… For our Whistleblower Movement, all are tremendously good news! Just you wait and see, my brothers and sisters!
+辉瑞公司后期临床试验中的一名志愿者出现过过敏反应。Moderna公司在周四的一次会议上表示，Moderna的第3期临床试验中的两个人出现过过敏反应。但FDA官员说，数据显示好处大于风险，所以他们相隔约7天，授予疫苗紧急使用授权。根据FDA网站，最常报告的副作用包括疲倦、头痛、肌肉疼痛和寒战。该机构表示，它们会在几天后消失。
 
-兄弟姐妹们， 这个周末你们都过得很紧张、很压抑是不？ 明天你会感觉舒服一些， 后天你会感到很舒服！ 嗯，走着看啊！ 别捉急，别捉急！ 刚才的一通电话啊， 大局，咱们……往前推进！ 对我们爆料革命，这都是天大的好事儿啊， 咱走着看兄弟姐妹们。
+据美国疾控中心称，接种中共病毒疫苗的人在接种疫苗后应至少监测15分钟。如果有人对接种中共病毒疫苗出现严重的过敏反应，接种提供方应该提供快捷护理，并呼叫紧急医疗服务。此人应继续在医疗机构中接受至少数小时的监测。
 
-But do remember, “A premature celebration may only lead to an earlier defeat. A premature give-up will only bring about an earlier defeat. When you are up, stay humble and cautious. When you are down, stay hopeful and optimistic. Now we are “on the way up”, so we shall remain humble and cautious. But for the past two days, we were “down”, though we maintained our “upbeat” fighting spirits! Be sure to keep in mind, my brothers and sisters! From tomorrow on, you will be thrilled by some upbeat news! But this is not yet the finish line. Not yet! Don’t be impatient. Soon Miles will demonstrate to you all!
+评：因为这个病毒是生化武器，前所未有。用正常的疫苗对待非正常的病毒，中共病毒疫苗非但不安全，其可能造成的种种后果也未知。当前的所有疫苗只是资本运作的结果，只有追根溯源，消灭CCP，找到病毒来源和真相，才可能有真正有用的疫苗。
 
-记住啊， 早乐必早衰， 早悲必早哀， 起而伏之， 伏而起之。 现在我们是……正是起的时候咱伏之。 但是过去两天啊， 是……伏而起……起而伏之，咱是伏而起之，啊。 这是要记住，兄弟姐妹们， 从明天起，你们会看到很多……啊……让你感到兴奋的事儿， 但不到最后……不到最后啊！ 别着急啊。文贵会展示给你们的。
+[原文链接](https://www.zerohedge.com/covid-19/cdc-issues-new-guidelines-launches-probe-after-1000s-negatively-affected-following-covid)
 
-Today’s news about G-TV is just fantastic! How exciting! More great news are on the way, about our G-Series, you will see. All G-TV investors, G-Series investors, you will see. As the old saying goes – when it comes to making money, (it is not …) it truly calls for “hard currency” (superior power). Cannot be achieved by just empty talks! You cannot just do whatever you want on a whim. You’ve gotta put it to test and get real work done! You’d better not tell lies in America, better not attempt to tamper with data/evidence.
-
-哎呀，今天GTV这好消息，实在是太兴奋了， 还有更多好消息啊，咱们G系列，你们会看到， 所有的GTV的投资人……G系列的投资人……你们会看到。 还是那句话， 这挣钱这个东西啊， 它不是··· 这是硬通货， 它不是吹牛的， 不是你想干啥就干啥的， 咱得干实事儿！ 在美国你一句假话也不能说， 一个数据也不能假，
-
-This is the greatness of the United States! Don’t you say it looks so chaotic for now! Big chaos ought to lead to the emergence of great wisdom. Big chaos ought to lead to the conception of a great reform! You all understand it pretty well, even better than me. Only you may still hold doubts about it. Rest assured I will make you fully believe it. God has bestowed upon us, God is standing with us, on the side of justice! Brothers and sisters. I might do a live broadcast tomorrow evening. All right, my brothers and sisters! “Muah”! Goodbye!
-
-这就是伟大的美国！ 你别看那么乱， 大乱必大智， 大乱必有大治！ 你们都懂的，都比我懂， 只是不相信而已， 我会让你们相信的。 上天在帮我们， 在帮正义的一边， 兄弟姐妹们。 明天晚上可能直播，啊， 好吧兄弟姐妹们， 么，再见！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25171427/Miles_Muah.gif)
-翻译：【RD16】 字幕：【相机过热啊】 听写：【小螺号】视频解码：【恒久忍耐】【相机过热啊】编辑：【RD16】
-
-喜马拉雅玫瑰园小队出品
-
-+1
+0
