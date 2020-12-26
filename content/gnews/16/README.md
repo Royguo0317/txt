@@ -1,68 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德/Raiklin律师推文1225】-彭斯的问题
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/685065/)
+## 【热点速评】辛巴直播带假货被禁播60天 | 生产和买卖假货盛行的中共国，直播软件已成艺妓速成地
+` XMLYG777` [轉載自GNews](https://gnews.org/zh-hans/685101/)
 
-12月25日林伍德律师推文：
+内新闻/素材：Meilen美伦 校对：老蚂蚁666
 
+据《每日经济新闻》2020年12月24日报道，时隔一个多月，曾引发社会关注“辛巴直播带货假燕窝”事件有了最新的处理结果。每日经济新闻记者注意到，辛巴旗下和翊公司被罚款90万元，而品牌方融昱公司被罚200万元。除了被监管方面处罚，辛巴个人账号也被快手封禁60天，遭到了平台的处罚。
 
-> 彭斯在1月6日是不值得信任的。向了解他的人提出关于他的问题。他对待别人是否又傲慢又高傲？他是否专注于“彭斯2024”？他是保罗-瑞安的好朋友吗？为什么他妻子参加所有与其他女人的晚餐？他在隐瞒什么？
-> 
-> 我们需要有答案。
+这个事件，不仅说明今年席卷全中共国热门营销模式——电商带货，犹如十年以淘宝为代表的各种传统电商平台，仍旧一如既往的参杂着如山的假货；也再次说明了抖音、快手等直播平台，就是中国“艺妓”速成培训基地。一大批三观扭曲、无知无畏、无所事事、游手好闲、不务正业、幻想暴富的民众为博眼球弄虚作假，不顾伦理道德、脱离现实、虚伪下作，在抖音、快手等直播平台装疯卖傻、低俗炫富、大秀下限、哗众取宠，已迅速让当今中国乃至世界的年轻人脑袋里全充斥着肤浅、低俗的思想文化，和失去正常思维判断能力，甚至有可能已堕落成被彻底毁掉的一代人。
 
+造成这一切乱象的根源，就是那大言不惭说养活14亿人民的中共政府。它们不是社会进步中物质财富的创造者，而是消耗者。因为他们一不打工、二不种田，三不摆摊…只靠手中掌握的特权垄断了一切社会资源，故意虚假炒高房价奴役圈养14亿人民，再通过高物价来榨干人民可支配的剩余血汗钱。它们的每一个毛细孔里都流淌着人民的血泪和汗水，逼得人民为了生存不得不绞尽脑汁，甚至不惜违背道德和法律法规。
 
+人民一开始就在这个牢固的枷锁中生老病死轮回，而不自知其中缘由。这就是中共学商鞅的“驭民五術”。这14亿被困着，耗着，绑着的人民当然也包括了基层党员，作为基层党员你能买到低房价吗？你能消费低物价吗？还是你不用花钱专吃特供。真正享受共产主义红利，就那几个权贵家族，甚至就几个党魁而已。
 
+只有切除这几个毒瘤组织，这样贪婪独裁的政府才能灭亡。中国人民才能不用做“艺妓”卖假货，才能回归正常的人类社会。否则就只会离正道越来越远，离世界文明越来越远！
+(本文仅代表个人观点)
 
-> Pence is NOT to be trusted for 1/6. Pose questions about him to people who know him. Is he arrogant & condescending to others? Is he focused on Pence 2024? Is he besties with Paul Ryan? Why does wife attend all dinners with other women? What is he hiding?
-> 
-> We deserve answers. [https://t.co/5O0L5oKfP9](https://t.co/5O0L5oKfP9)
-> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342624936565891072?ref_src=twsrc%5Etfw)
-
-
-
-林伍德律师推文：
+新闻来源：
+[http://m.baidu.com/sf\_baijiahao/s?id=1686947489968232317&wfr=spider&for=pc&sa=vs\_ob\_realtime](https://m.baidu.com/sf_baijiahao/s?id=1686947489968232317&amp;wfr=spider&amp;for=pc&amp;sa=vs_ob_realtime)
 
 
-> 我爱美国爱国者和战士苏珊-诺克斯！苏珊的圣诞视频是我最喜欢的。苏珊的圣诞视频是我今天收到最喜欢的信息。请欣赏。
-> 
-> 我只希望彭斯 @VP @Mike\_Pence 名字不是在视频中。彭斯是我们人民的叛徒。
-> 
-> 圣诞快乐！
-
-
-
-
-> I love American Patriot & Warrior Susan Knox! Susan’s Christmas video is my favorite message received today. View it below & enjoy.
-> 
-> I only wish Pence [@VP](https://twitter.com/VP?ref_src=twsrc%5Etfw) [@Mike\_Pence](https://twitter.com/Mike_Pence?ref_src=twsrc%5Etfw) name was NOT in video. Pence is a traitor to We The People.
-> 
-> Merry Christmas! [pic.twitter.com/zB6IpOSw49](https://t.co/zB6IpOSw49)
-> — Lin Wood (@LLinWood) [December 25, 2020](https://twitter.com/LLinWood/status/1342605258724401153?ref_src=twsrc%5Etfw)
-
-
-
-Ivan Raiklin 律师当天早前的推文反映了他对彭斯副总统的态度和期望：（他于前日彭斯一号牌作废时，提出了彭斯二号牌的方案。）
-
-
-> 圣诞快乐，先生
-> 
-> 祈祷你能继续战斗，积极捍卫我们的宪法，继续前进。 我们不能再犯任何无谓的错误了。 保持参与。
-> 
-> #WeThePeople #PenceCard2
-> 
-> #我们人民  #彭斯第二张牌
-
-
-
-
-> Merry Christmas, sir.
-> 
-> Praying you will stay in the fight and vigorously defend our Constitution, moving forward. We can’t make any more unforced errors. Stay engaged.[#WeThePeople](https://twitter.com/hashtag/WeThePeople?src=hash&amp;ref_src=twsrc%5Etfw) [#PenceCard2](https://twitter.com/hashtag/PenceCard2?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/WIUZfnws9m](https://t.co/WIUZfnws9m)
-> — Merry Christmas! (@Raiklin) [December 25, 2020](https://twitter.com/Raiklin/status/1342502473152540675?ref_src=twsrc%5Etfw)
-
-
-
-新闻和图片来源于林伍德律师和Ivan Railin 律师的推文
 
 0
