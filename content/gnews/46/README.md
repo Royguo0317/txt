@@ -1,34 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## WHO网站篡改“群体免疫”的科学定义 目的极其险恶
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/684910/)
+## 【林伍德律师推文1225】-大法官应该马上辞职
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/685045/)
 
-草原三省战友之家 文静
-校对 文怡 上传 云起时
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25174944/who-logo.jpg)
-据Humans are Free12月24日报道，世界卫生组织(World Health Organization)改变了“群体免疫”的定义，消除了之前对中共病毒的共识，即通过让病毒在人群中传播可以实现群体免疫，并坚持认为群体免疫仅来自疫苗。
+12月25日林伍德律师推文：
 
-这一变化发生在世界卫生组织网站题为“中共病毒(COVID-19):血清学、抗体和免疫”的部分。
 
-世界卫生组织最初的定义是，群体免疫“发生在人群通过接种疫苗或通过以前的感染产生免疫时。”这意味着，即使没有被感染的人，或者感染没有引发免疫反应的人，他们也受到保护，因为他们周围有免疫系统的人可以充当他们和感染者之间的缓冲。”
+> 现在是时候把红色真理之光照耀到首席大法官约翰-罗伯茨、大法官斯蒂芬-布雷耶、乔-拜登、奥巴马、克林顿、比尔-盖茨、副总统迈克-彭斯、马克-梅多斯、帕特-齐波洛尼、布什41（届总统）和43（届）、乔治-索罗斯、可卡因米奇等人身上了。
+> 
+> 伙计，当你需要杰弗里-爱泼斯坦的时候，他在哪里？
 
-最初的定义未能确定中共病毒之前关于“群体免疫”的共识，所谓“群体免疫”指的是由于有足够多的人感染了病毒，从而产生了群体免疫。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25175137/who1.jpg)图片来源:WHO
-然而，世界卫生组织的最新版本更加极端，坚持认为群体免疫只能通过大规模接种疫苗项目来实现。
 
-群体免疫力，是指人或动物群体中的很大比例对传染病获得免疫力，使得其他没有免疫力的个体因此受到保护而不被传染。”世卫组织网站称，”群体免疫力是通过保护人们免受病毒侵害而实现的，而不是通过让人们接触病毒来实现。” 。网站更新声明完全省略了“群体免疫”的本意，即人群通过接触某种病毒而对其产生免疫力。通过改变的定义“群体免疫”,世卫组织就是企图篡改数百年的科学理解,改变这个词的真正目的意味着什么？很明显，就是想让所有对中共病毒的任何争论保持沉默,来达到他们和中共的罪恶目的。
 
-其实“群体免疫” 在中共病毒大范围扩散的严重情况下，由英国某些专家提出，但后来并没有得到包括英国和其它国家的响应和支持。但此时WHO网站篡改“群体免疫”的科学定义，其目的是极其险恶的！
 
-WHO的谭德赛与比尔·盖茨、克林顿基金会、福奇博士、中共和种族灭绝有着密切的联系，从中共病毒疫情一开始，他就一再严重歪曲事实、误导民众，利用WHO完全为邪恶势力站台，帮助中共隐瞒病毒真实来源，造成当今世界近8千万人感染，175万人因中共病毒死亡的悲剧！
+> It is time to shine red hot light of truth on Chief Justice John Roberts, Justice Stephen Breyer, Joe Biden, Obama, Clintons, Bill Gates, VP Mike Pence, Mark Meadows, Pat Cippoloni, Bush 41 & 43, George Soros, Cocaine Mitch, etc.
+> 
+> Man, where is Jeffrey Epstein when you need him?
+> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342622092727091202?ref_src=twsrc%5Etfw)
 
-而如今WHO又篡改“群体免疫”的科学定义，以谭德塞为首的一伙的险恶用心，就是帮助中共再次混淆概念、误导民众，来推广中共利益集团的疫苗，达到他们的罪恶目的。
 
-众所周知，长期以来中共利用坑、蒙、拐、骗等非法手段，欺骗国内老百姓和全球消费者。而中共没落的体制造成本土生产能力低下，大量产品粗制滥造、质量低下、假货泛滥！严重地危害了全球消费者的利益和权益。试问一下，中共国曾经有任何能力生产一款真正的疫苗吗？曾发生的儿童毒疫苗、毒奶粉等恶性事件，还历历在目吧？！而此时此刻，在全球因为中共病毒所造成的严重生态灾难、并不断延续的情况下，以谭德塞为首的WHO再次作恶误导民众，其行径极其令人愤慨！
 
-据英国传媒《泰晤士报》报道，一名曾获2019年诺贝尔和平奖提名的美国经济学家斯坦曼（David Steinman），已向设在荷兰海牙的国际刑事法院（ICC）投诉世界卫生组织（WHO）总干事谭德塞，他的种族灭绝罪应该受到调查。目前美国已经发起了对中共的全面反击，以谭德塞为首的WHO中共罪恶势力，一定会得到严惩！
 
-[原文链接](https://humansarefree.com/2020/12/who-changes-definition-of-herd-immunity-to-push-vaccines.html)
+> 你会把你的生命、你的自由、你的儿子或女儿托付给他吗？你会想和他一起喝啤酒聊棒球吗?
+> 
+> 我不愿意 所有的事情都不会。
+> 
+> 首席大法官罗伯茨需要辞职。现在就辞职
 
-0
+
+
+
+> Would you trust this man with your life, your freedom, your son or your daughter? Would you want to have a beer with him & talk baseball?
+> 
+> Not me. No on all counts.
+> 
+> Chief Justice Roberts needs to resign. NOW. [pic.twitter.com/bj3fFkSgkt](https://t.co/bj3fFkSgkt)
+> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342628128624095232?ref_src=twsrc%5Etfw)
+
+
+
+新闻素材和图片来自林伍德律师推特
+
+
+
++1
