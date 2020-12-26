@@ -1,34 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 被中国政府要求中断会议，美国政府的彻查逼近Zoom
-` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/685785/)
+## 丢人现眼：中共外交大使又在联合国安理会耍流氓！
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/685833/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/26032950/p1-1.jpg)
-翻译：待命（文晓）（神的带领）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/26042449/1-237.png)[图面来源](http://www.german-times.com/christoph-heusgen-german-ambassador-to-the-united-nations-talks-about-germanys-goals-donald-trump-and-german-blue-helmet-missions/)
+![]()
 
-校正：待命（文晓）（京都富士会）
+根据米歇尔·尼科尔斯（Michelle Nichols）在纽约路透社(Reuters)的报导，德国将于本月底结束为期两年的联合国安理会非常任理事国任期。里斯托夫·赫斯根（Christoph Heusgen）大使也将结束40多年的外交官职务。赫斯根在安理会会议上说“在我结束我对安全理事会的任期前，让我呼吁我的中共同事释放迈克尔·科夫里格（Michael Kovrig）和迈克尔·斯帕沃尔(Michael Spavor)。圣诞节是最好采取这样行动的时机。”中共联合国副大使作出回应：“发自内心地说：我们终于要摆脱德国了。 ”
 
-排版：待命（文晓）（京都富士会）
+根据报导，曾担任加拿大前外交官的科夫里格在担任国际危机组织智库(International Crisis Group) 顾问期间和商人斯帕沃尔在2018年被中共拘留。这事件就发生在加拿大警方以美国逮捕令逮捕了华为首席财务官孟晚舟后不久。
 
-在过去的一年里，因新型冠状病毒的传播而最具存在感的公司，应该是运营视频会议服务的美国zoom视频通信公司吧？ “送你Zoom “似乎已经成为视频会议的代名词。
+中共联合国副大使耿爽（Geng Shuang）指控德国大使赫斯根滥用安全理事会的职权，对其他成员发动恶意袭击，企图破坏工作气氛。耿爽说：“我想发自内心地说对赫斯根大使说，我们终于要摆脱你了。” 并表示“我希望安理会在您不在任的2021年能够更好地履行职责……以及维护国际和平与安全。”
 
-正值美国政权交替的年底，发生了一件反应出该公司目前所处境地的事。
+[原文出处](https://www.reuters.com/article/us-germany-china-russia-un-idUSKBN28W2HV)
 
-2020年12月18日，美国司法部宣布起诉zoom公司中国籍前高管。起诉内容包括对美国用户无正当理由的中断服务之骚扰行为，并涉嫌非法分享Zoom用户信息。
+翻译报道：william
 
-这一切始于2019年9月， Zoom在中国突然变得无法使用。因中国政府已经采取措施暂停了Zoom的服务，Zoom的CEO Eric Yuan也就开始与中国政府协调解决这个问题。
+**译评:**
 
-中国政府的要求是审查。 根据对会议内容的审查分析，来判定会议是否违法，关闭对被认定违反中国法律的会议之服务。
-
-据《华盛顿邮报》报道，他被要求在一分钟内结束会议，就因为中国政府认为该会议是非法的。
-
-为了遵守中国法律，Zoom与当地合作伙伴共同开发了这些功能。中国政府似乎被说服了，允许在2019年11月恢复zoom服务。
-
-甚至连美国国内的会议也被强行中断。
-
-原文链接
-
-https://business.nikkei.com/atcl/gen/19/00137/122300010/
+中共的灭亡在倒数，尽管中共仍然在各方国际组织上耀武扬威地耍流氓，中共高层早已知道垮台的态势。接下来，世界各地的无名战友们继续传播爆料革命真相，一边笑看中共组织灭亡，迎来新中国的到来。
 
 0
