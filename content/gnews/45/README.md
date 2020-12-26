@@ -1,53 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 喀秋莎新闻参考- 2020年12月24日 (星期四)
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/684769/)
+## 桌球我不行，但是我灭共行！么么哒！
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/684856/)
 
-俄罗斯莫斯科喀秋莎农场 Sydney
+新闻简述：郭先生在2020年12月18日的GTV盖特视频中，以他特有的风格，仿佛是不经意地道来：“打球不行……打桌球…但是我灭共行！” 他警示战友们一段自他年轻时就铭记在心的训诫：“早乐必早衰，早悲必早哀，起而伏之，伏而起之。” 他又说：“上天在帮我们，在帮正义的一边”，然后以一个令人意外的飞吻作为结束语。（[下载郭先生飞吻GIF文件](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25171427/Miles_Muah.gif)）
+[视频来源](https://gtv.org/getter/5fd6be5120c9025a87df4be1)
+中英文对照原文：
 
-校对上传 星河
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25151631/12965985.jpg)
-一、新中国联邦新闻
+Brothers and sisters, I just tried out our live broadcast features… A tryout. It’s Monday already! I suppose a new independent prosecutor should be coming out soon… Possible to see some personnel changes, right? 72-hour [time limit is almost up], mounting pressure for tomorrow… That’s why I always remind Mr. Lude – “Don’t predict, don’t predict! We are not in the business of ‘predicting’!” Let’s wait and see!
 
-1.“路德时评”本日摘要（[早间](https://www.youtube.com/watch?v=_1PN7E7wLko)、[晚间](https://www.youtube.com/watch?v=GH9rCJOnF98)）:
+兄弟姐妹们， 刚才是我试了试咱们直播啊，试了试…… 啊呀，星期一啦！ 我相信该有独立检察官该出来了吧？ 会有一些人事变动吧？ 72小时啊， 明天压力很大啊。 所以说我老给我们的路波切说， 千万别预测，别预测， 咱这不是预测啊。 看看吧啊！
 
-Ⅰ.川普总统12月24日在推特转发一重磅视频，点明所有一切的幕后黑手都是中共，中共的目的就是颠覆美国。视频称呼新冠为“CCPVirus（中共病毒） ”，直接说出中共本身就是世界上最致命的病毒。美国是自由世界最后堡垒，如果美国被中共攻陷，则全世界沦陷。视频所讲和爆料革命警醒世界的内容一致，美国人的思想才是中共真正要占领的战场。
+So brothers and sisters, there are two more moves… Two more moves… Let’s get on with this move first, this one first… Soon, you may be amazed that a rumbling thunder, ‘Take-Down-the-CCP’, after such a long silence, against the backdrop of the dark clouds, “Kuah”! A bolt of lightning, a bolt of lightning! You will see, brothers and sisters. All 3 moves, assumed previously, are no longer needed. Only two moves will suffice. No need to declare martial law, no yet. There will be this one step in the future. You will come to know tomorrow, Tomorrow, or the day after tomorrow, brothers and sisters.
 
-中共对西方世界保有的三股主要渗透力量：从原有国际共产联盟继承的政治资产；国民党遗留在美国的关系和资源；加入WTO之后，利用国际贸易为平台所建立的新渗透渠道。
+所以说兄弟姐妹们， 还有两步……两步棋。 先走这一步……先走这一步。 然后呢，你会看到灭共的滚天雷啊…… 这个……在这个寂静之后， 你会发现在这个黑的云彩中突然间 ‘Kuah’……一亮，一道闪电，一道闪电， 你会看到的兄弟姐妹们。 你想象中的那三步棋，不需要！ 两步棋， 没有什么戒严法，还不到那一步， 会有一步， 未来的……明天你看看啊， 明天，后天……兄弟姐妹们啊，
 
-Ⅱ.川普总统12月24日发推，喊话国会终止“230条款”。 《国家救济法案》提出后，川普总统提出了一系列修改意见，但佩洛西只修改美国民众的补助提高到2000美元，意图利用美国人民的对救济款的需求和各利益集团的利益来要挟川普总统，使川普总统签字两难。
+I just finished a round of pool. Lord, I lost 2… 3 out of 4. Oh, actually, I lost 4 out of 4. Oh my lord, 4 out of 4! Pool is just not my forte. Lousy at the techniques. I don’t seem to have a knack for it. And my heart isn’t in it either… But Take-Down-the-CCP, that is my forte! What could you do about it, huh?!
 
-Ⅲ.川普总统12月25日发推，质疑共和党参议员为何对大选舞弊无动于衷。此举是代表民意对没有动作的共和党参议员发出质疑，为1月6日关键日做好准备。
+这个……刚刚我在这打球， 哎呀，4局输了2……3局， 不是，4局输了4局。 天啊，4局输了4局， 打球不行……打桌球。 关键技术也不行，能力也不行， 心也不在这儿，呵呵…… 但是我灭共行！ 咋弄嘞，你说？
 
-Ⅳ.川普总统发推特明确，他将任命调查大选欺诈的特别检察官，由于鲍威尔大律师综合情况不适合担任此职位，他将任命另外一位律师作为调查大选欺诈的特别检察官。
+Brothers and sisters, you might have been on edge, a bit depressed this weekend, right? But you will breathe better tomorrow, and even more so the day after tomorrow! Just you wait and see! Don’t be anxious! Don’t be anxious! I wrapped up a few phone calls just now. The game plan has been moving forward beautifully… For our Whistleblower Movement, all are tremendously good news! Just you wait and see, my brothers and sisters!
 
-Ⅴ.阿里巴巴接受中共反垄断调查。通过对此新闻的操纵，中共使海外误认为中共国也有反垄断调查，否定“中共垄断”的观点；也使阿里巴巴这样的中共军方控制的企业套上“民营企业”光环；并极有可能使中共企业逃脱美国《海外企业问责法案》的调查。
+兄弟姐妹们， 这个周末你们都过得很紧张、很压抑是不？ 明天你会感觉舒服一些， 后天你会感到很舒服！ 嗯，走着看啊！ 别捉急，别捉急！ 刚才的一通电话啊， 大局，咱们……往前推进！ 对我们爆料革命，这都是天大的好事儿啊， 咱走着看兄弟姐妹们。
 
-2.美国《外交政策》杂志12月23日报道说，国务卿蓬佩奥已指示全球刑事司法办公室主任莫尔斯·谭进行一项审查，以确定中共政府对新疆维吾尔人的镇压是否构成种族灭绝。
+But do remember, “A premature celebration may only lead to an earlier defeat. A premature give-up will only bring about an earlier defeat. When you are up, stay humble and cautious. When you are down, stay hopeful and optimistic. Now we are “on the way up”, so we shall remain humble and cautious. But for the past two days, we were “down”, though we maintained our “upbeat” fighting spirits! Be sure to keep in mind, my brothers and sisters! From tomorrow on, you will be thrilled by some upbeat news! But this is not yet the finish line. Not yet! Don’t be impatient. Soon Miles will demonstrate to you all!
 
-3.中共“外交部”发言人汪文斌12月21日表示，“一带一路”不会因为疫情止步，并表示健康丝绸之路、数字丝绸之路、绿色丝绸之路将成为新的合作亮点。发言表明，中共将会在新的一年迅速把“一带一路”的策略，从经济贷款和金钱支出转变为高科技输出，而且这个转型依然可以使其实现成为世界政治和经济体系中心的“梦想”。
+记住啊， 早乐必早衰， 早悲必早哀， 起而伏之， 伏而起之。 现在我们是……正是起的时候咱伏之。 但是过去两天啊， 是……伏而起……起而伏之，咱是伏而起之，啊。 这是要记住，兄弟姐妹们， 从明天起，你们会看到很多……啊……让你感到兴奋的事儿， 但不到最后……不到最后啊！ 别着急啊。文贵会展示给你们的。
 
-4.中共国海关总署12月24日在通知，延长暂停进口澳大利亚木材。其在停止进口澳大利亚煤炭之后，许多地方出现煤炭短缺。有消息说，迫于压力，中共已经开始允许滞留海上的运送澳大利亚煤炭的船只办理通关手续。
+Today’s news about G-TV is just fantastic! How exciting! More great news are on the way, about our G-Series, you will see. All G-TV investors, G-Series investors, you will see. As the old saying goes – when it comes to making money, (it is not …) it truly calls for “hard currency” (superior power). Cannot be achieved by just empty talks! You cannot just do whatever you want on a whim. You’ve gotta put it to test and get real work done! You’d better not tell lies in America, better not attempt to tamper with data/evidence.
 
-5.12月24日，贵州茅台酒股份有限公司发布公告，茅台集团通过无偿划转方式，将本公司5024万股股份（占本公司总股本的4%）划转至贵州省国有资本运营有限责任公司。茅台集团在1年前也曾授予贵州省政府同等数量的股票。后者通过卖股和收取股息大约获利720亿元人民币。这也反映出中共国地方政府财政吃紧。
+哎呀，今天GTV这好消息，实在是太兴奋了， 还有更多好消息啊，咱们G系列，你们会看到， 所有的GTV的投资人……G系列的投资人……你们会看到。 还是那句话， 这挣钱这个东西啊， 它不是··· 这是硬通货， 它不是吹牛的， 不是你想干啥就干啥的， 咱得干实事儿！ 在美国你一句假话也不能说， 一个数据也不能假，
 
-6.中共社会科学院周二（12月22日）出版《中国国际移民报告2020》蓝皮书。报告显示，全球移民最多的前三大国家，排名依次为印度、墨西哥和中共国。在2019年大陆移民目的国家中，美国以288.92万人占据榜首。虽然美中关系持续恶化，但报道显示中共高净值人群移民意愿反而渐强。
+This is the greatness of the United States! Don’t you say it looks so chaotic for now! Big chaos ought to lead to the emergence of great wisdom. Big chaos ought to lead to the conception of a great reform! You all understand it pretty well, even better than me. Only you may still hold doubts about it. Rest assured I will make you fully believe it. God has bestowed upon us, God is standing with us, on the side of justice! Brothers and sisters. I might do a live broadcast tomorrow evening. All right, my brothers and sisters! “Muah”! Goodbye!
 
-7.中共科兴控股生物技术有限公司研发的“CoronaVac”疫苗完成在巴西的第三期临床实验后，原订12月23日公布实验数据，但科兴在当日以整合来自全球的临床试验数据为由延后15天，这已经是再度延迟。先前巴西总统波索纳洛一再批评中共疫苗研发的过程缺乏公开、透明，此次科兴控股又延迟公布实验数据，再度引发外界质疑。
+这就是伟大的美国！ 你别看那么乱， 大乱必大智， 大乱必有大治！ 你们都懂的，都比我懂， 只是不相信而已， 我会让你们相信的。 上天在帮我们， 在帮正义的一边， 兄弟姐妹们。 明天晚上可能直播，啊， 好吧兄弟姐妹们， 么，再见！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25171427/Miles_Muah.gif)
+翻译：【RD16】 字幕：【相机过热啊】 听写：【小螺号】视频解码：【恒久忍耐】【相机过热啊】编辑：【RD16】
 
-8.中共意图对百姓的储蓄做最后的收割。在12月22日中共证监会召开的党委会和党委（扩大）会上，证监会主席易会满在布署明年的工作时表示，“要着力加强资本市场投资端建设，增强财富管理功能，促进居民储蓄向投资转化，助力扩大内需。”
+喜马拉雅玫瑰园小队出品
 
-9.继阿里巴巴遭中共国家市场监管总局依涉嫌垄断行为立案调查后，交通运输部部长李小鹏在12月24日举行的“2021年全国交通运输工作会议”上宣布，明年的一项重要工作就是“强化交通运输领域的反垄断”。路德透露阿里巴巴的“苦肉计”是为了避免受到美国对中概股的制裁，交通部的表态透露“滴滴出行”也希望通过此方法进入国际资本市场。
-
-二、世界新闻
-
-1.12月22日，鲁迪·朱利安尼先生在班农Warroom节目中表示，亚利桑那州议会可能通过一项决议，证明川普总统是2020年总统大选的赢家。朱利安尼还表示，“这是首次突破”。该报告的发布，可能引发乔州立法机关召开特别会议，来撤销还表示对民主党总统候选人乔∙拜登的选举结果认证，“这将是一个机会”。
-
-2. 美国前财长、自由派经济学家拉里∙萨默斯周四（12月24日）表示，向美国人发放2000美元的刺激支票将是一个“相当严重的错误”。这使他成为首位公开反对更直接的救济的知名民主党人士。萨默斯认为，联邦政府不应该通过直接救济来刺激消费者支出，因为这样做会带来经济“暂时过热”的风险。萨默斯强调，即便对美国国会两党已经同意的600美元直接刺激支票，他也不太支持。
-
-3.英国和欧盟在12月24日，也就是2020年圣诞夜前最后一刻，终于达成包括脱欧后双边贸易协定在内的一揽子协定。这标志着英国与欧盟的关系展开全新的一页。约翰逊在随后的记者会上表示，“我们重新掌握了我们的法律和命运。”他还说，这项协议允许英国“无关税和配额”在欧盟销售货物，从而将“保护我国各地的就业”，英国如今将控制“我们监管法规的一笔一画”。
-
-4.俄罗斯总统普京12月21日签署专门命令，从明年1月1日起，俄罗斯北方舰队将升级为独立的军区。俄罗斯10多年前军事改革之后，目前有“东部”，“西部”，“南部”和“中部”四大军区，北方舰队因此将成为新的第五大军区。俄罗斯媒体和军事分析人士认为，把北方舰队升级为第五大军区，说明北极地区正成为俄罗斯军事战略的一个重点。
-
-0
++1
