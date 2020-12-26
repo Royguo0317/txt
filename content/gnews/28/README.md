@@ -1,45 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 湖南一派出所长由监察委移交检察院途中被杀 中共黑帮本质显露无疑
-` XMLYG777` [轉載自GNews](https://gnews.org/zh-hans/685005/)
+## 【林伍德/Raiklin律师推文1225】-彭斯的问题
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/685065/)
 
-内新闻/素材：一碗兰州（文远） 校对：α-Vega
+12月25日林伍德律师推文：
 
-12月18日凌晨4时左右，湖南省郴州市公安局北湖分局燕泉派出所原所长许孔习在被当地纪监委调查期间，由郴州转押至长沙途中死亡，据称其颈部有勒痕，全身多处骨折。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25192621/image0-1-30.jpg)
-就在许孔习死亡的当天，郴州市北湖区纪委区监察委通报许涉嫌徇私枉法、受贿、帮助犯罪分子逃避处罚等多项罪名，将许开除公职、革除党职，移交检察机关起诉。
 
-许孔习于9月20日被郴州市北湖区纪委监委带走调查，历经两个月的“留置调查”，12月18 原本要由郴州押解至长沙的检察机关接受起诉。
+> 彭斯在1月6日是不值得信任的。向了解他的人提出关于他的问题。他对待别人是否又傲慢又高傲？他是否专注于“彭斯2024”？他是保罗-瑞安的好朋友吗？为什么他妻子参加所有与其他女人的晚餐？他在隐瞒什么？
+> 
+> 我们需要有答案。
 
-许孔习的家属于12月18日深夜接到警方电话，被告知许病危正在抢救中，家属立即连夜赶往株洲。
 
-12月19日凌晨，在家属的不断追问下，警方告知许孔习已在押韵途中死亡。许的家属们经过数次强烈交涉，于19日晚9点多进入太平军看到许孔习遗体，期间许家属们被告知不准携带任何电子设备，且全程遭到警方严密监视。
 
-许家属检视遗体后表示，许的尸体颈部有勒痕，口腔、鼻腔处有血迹，左胸心脏等部位多处骨折塌陷，他们希望官方给出说法。郴州市北湖区纪委工作人员回应称事件还在调查中。
 
-网友评论“死人嘴巴紧”、“刚准备调查就死亡，看样子所长知道的事情很多”、“终究还是一人承担了所有”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25192802/image1-1-30.jpg)
-监察委的“置留调查”就是以前中纪委所谓的“双规”（规定时间、规定地点交代问题），监察委的监管范围相比纪检委，由“党员干部”扩大到“所有行使公权力的人员”，“留置调查”是其调查权、羁押权的体现。被调查人员包括党政领导干部、企业职员等，置留期间不能得到律师援助，检察院无法监督监察委的活动，甚至连对人大代表的调查也无需审批程序。
+> Pence is NOT to be trusted for 1/6. Pose questions about him to people who know him. Is he arrogant & condescending to others? Is he focused on Pence 2024? Is he besties with Paul Ryan? Why does wife attend all dinners with other women? What is he hiding?
+> 
+> We deserve answers. [https://t.co/5O0L5oKfP9](https://t.co/5O0L5oKfP9)
+> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342624936565891072?ref_src=twsrc%5Etfw)
 
-这不是第一起“留置死亡案件”。
 
-2018年5月5日，福建南平的退役军人陈勇在置留调查28天后，家属收到死亡通知书，而陈勇身体向来健康，他曾担任领导司机。
 
-2019年7月30日，重庆市梁平区监委对滑石寨度假村董事长周学峰采取留置措施，8月22日晚上8点50分，周学峰在被留置期间死亡，官方未公布原因。
+林伍德律师推文：
 
-纪检委与监察委是合署办公，即所谓的“一套人马两块牌子”，其权力巨大、没有监督，被称为当代“锦衣卫”。试问许所长是得罪了什么样的人，竟然在监察委留置期最后一天，去往检察院的路上被人残忍杀害，连含冤入狱的机会都没有。
 
-中共国公检法、纪检监察之黑暗，令人瞠目。在中共流氓黑社会体制内，没有法律、没有道德，人命如蝼蚁，为了利益，随时可以用最低劣的手段残害他人。
+> 我爱美国爱国者和战士苏珊-诺克斯！苏珊的圣诞视频是我最喜欢的。苏珊的圣诞视频是我今天收到最喜欢的信息。请欣赏。
+> 
+> 我只希望彭斯 @VP @Mike\_Pence 名字不是在视频中。彭斯是我们人民的叛徒。
+> 
+> 圣诞快乐！
 
-中共邪恶体制时刻威胁着每一个人的安全，不论你是身处体制内还是体制外，只有认清它的本质，传播真相，唤起更多人的正义与良知，联合起来灭掉恶党，才有机会享受法制、自由带来的一切美好。
 
-文章仅代本表本人个人观点。
 
-新闻来源：
-湖南一落马派出所所长转押途中死亡 家属：尸体颈部有勒痕
-[https://new.qq.com/omn/20201221/20201221A0J7FS00.html(已编辑)](https://new.qq.com/omn/20201221/20201221A0J7FS00.html%28已编辑%29)
-[湖南一落马派出所所长转押途中死亡 家属：尸体颈部有勒痕\_腾讯新闻](http://湖南一落马派出所所长转押途中死亡%20家属：尸体颈部有勒痕_腾讯新闻)
-大众网·海报新闻记者 文露漪 报道12月18日，湖南郴州一落马派出所所长在被调查转押途中意外身亡，家属称其尸体颈部有伤痕，胸口多处骨折塌陷。12月21日，负责处理此案的株洲市
+
+> I love American Patriot & Warrior Susan Knox! Susan’s Christmas video is my favorite message received today. View it below & enjoy.
+> 
+> I only wish Pence [@VP](https://twitter.com/VP?ref_src=twsrc%5Etfw) [@Mike\_Pence](https://twitter.com/Mike_Pence?ref_src=twsrc%5Etfw) name was NOT in video. Pence is a traitor to We The People.
+> 
+> Merry Christmas! [pic.twitter.com/zB6IpOSw49](https://t.co/zB6IpOSw49)
+> — Lin Wood (@LLinWood) [December 25, 2020](https://twitter.com/LLinWood/status/1342605258724401153?ref_src=twsrc%5Etfw)
+
+
+
+Ivan Raiklin 律师当天早前的推文反映了他对彭斯副总统的态度和期望：（他于前日彭斯一号牌作废时，提出了彭斯二号牌的方案。）
+
+
+> 圣诞快乐，先生
+> 
+> 祈祷你能继续战斗，积极捍卫我们的宪法，继续前进。 我们不能再犯任何无谓的错误了。 保持参与。
+> 
+> #WeThePeople #PenceCard2
+> 
+> #我们人民  #彭斯第二张牌
+
+
+
+
+> Merry Christmas, sir.
+> 
+> Praying you will stay in the fight and vigorously defend our Constitution, moving forward. We can’t make any more unforced errors. Stay engaged.[#WeThePeople](https://twitter.com/hashtag/WeThePeople?src=hash&amp;ref_src=twsrc%5Etfw) [#PenceCard2](https://twitter.com/hashtag/PenceCard2?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/WIUZfnws9m](https://t.co/WIUZfnws9m)
+> — Merry Christmas! (@Raiklin) [December 25, 2020](https://twitter.com/Raiklin/status/1342502473152540675?ref_src=twsrc%5Etfw)
+
+
+
+新闻和图片来源于林伍德律师和Ivan Railin 律师的推文
 
 0

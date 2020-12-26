@@ -1,63 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国进口食品防控，控制病毒输入还是外汇吃紧？
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/684811/)
+## 桌球我不行，但是我灭共行！么么哒！
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/684856/)
 
-俄罗斯莫斯科喀秋莎农场 银河
+新闻简述：郭先生在2020年12月18日的GTV盖特视频中，以他特有的风格，仿佛是不经意地道来：“打球不行……打桌球…但是我灭共行！” 他警示战友们一段自他年轻时就铭记在心的训诫：“早乐必早衰，早悲必早哀，起而伏之，伏而起之。” 他又说：“上天在帮我们，在帮正义的一边”，然后以一个令人意外的飞吻作为结束语。（[下载郭先生飞吻GIF文件](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25171427/Miles_Muah.gif)）
+[视频来源](https://gtv.org/getter/5fd6be5120c9025a87df4be1)
+中英文对照原文：
 
-校对上传 星河
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25161003/4755.jpg)图片来源：forexdengi.com
-11月8日，国务院印发的《进口冷链食品预防性全面消毒工作方案》要求地方政府“落实本地区进口冷链食品新冠病毒检测和预防性全面消毒工作属地责任”，分别在口岸查验、交通运输、掏箱入库、批发零售等环节做好全面防控工作。
+Brothers and sisters, I just tried out our live broadcast features… A tryout. It’s Monday already! I suppose a new independent prosecutor should be coming out soon… Possible to see some personnel changes, right? 72-hour [time limit is almost up], mounting pressure for tomorrow… That’s why I always remind Mr. Lude – “Don’t predict, don’t predict! We are not in the business of ‘predicting’!” Let’s wait and see!
 
-在收到中央文件后，12月初至今，非常巧合的中共各个地方发现了冷链食品携带中共病毒，指控冷链食品进口对疫情防控造成很大风险。在冷链环境中感染案例已涵盖湖北、浙江、山东、河南、山西、安徽、辽宁、黑龙江等多个省份。全国多地相继出台冷链运输管理措施，加大了对进口食物筛查力度，用以规避风险。
+兄弟姐妹们， 刚才是我试了试咱们直播啊，试了试…… 啊呀，星期一啦！ 我相信该有独立检察官该出来了吧？ 会有一些人事变动吧？ 72小时啊， 明天压力很大啊。 所以说我老给我们的路波切说， 千万别预测，别预测， 咱这不是预测啊。 看看吧啊！
 
-世界卫生组织（WHO）此前曾指出，食品和包装都不是中共病毒的已知传播途径，目前全世界除了中共国，暂没有其他国家有食物或食品包装引发中共病毒传播的实例。
+So brothers and sisters, there are two more moves… Two more moves… Let’s get on with this move first, this one first… Soon, you may be amazed that a rumbling thunder, ‘Take-Down-the-CCP’, after such a long silence, against the backdrop of the dark clouds, “Kuah”! A bolt of lightning, a bolt of lightning! You will see, brothers and sisters. All 3 moves, assumed previously, are no longer needed. Only two moves will suffice. No need to declare martial law, no yet. There will be this one step in the future. You will come to know tomorrow, Tomorrow, or the day after tomorrow, brothers and sisters.
 
-早在6月份北京爆发疫情期间，为了掩盖中共虚假防疫的事实，中共政府便“甩锅”北京新发地批发市场进口挪威三文鱼传染。6月19日，中共又要对加拿大进口龙虾进行管制检测。加拿大食品检验署表示，中共政府要求加拿大“保证” 食品不含CCP病毒，强制要求加拿大出口产品签署保证书，保证所有龙虾进入中共国前必须不含中共病毒。加拿大食品检验局和加拿大渔业委员会都表示没有科学证据和确诊病例表明中共病毒通过食品或食品包装传播。认为此举是中共对华为首席财务官孟晚舟被捕事件的报复行为。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25161111/59898-1.jpg)
-8月，中共国疾病控制中心从进口的冷冻鳕鱼样本中分离出了活体中共病毒，成为世界首例所谓的食物传播给人类的实例。但该中心同时也指出，从所检测的样品中感染中共病毒的风险较低。随后中共称已在包括德国猪肉、巴西牛肉和印度鱼肉在内的20个国家的产品包装上发现了中共病毒。迄今为止，测试数据尚未发布，中共国拒绝将检测结果交由国际审核。
+所以说兄弟姐妹们， 还有两步……两步棋。 先走这一步……先走这一步。 然后呢，你会看到灭共的滚天雷啊…… 这个……在这个寂静之后， 你会发现在这个黑的云彩中突然间 ‘Kuah’……一亮，一道闪电，一道闪电， 你会看到的兄弟姐妹们。 你想象中的那三步棋，不需要！ 两步棋， 没有什么戒严法，还不到那一步， 会有一步， 未来的……明天你看看啊， 明天，后天……兄弟姐妹们啊，
 
-澳大利亚、新西兰和加拿大等主要食品出口国向世贸组织提出诉讼，抗议中共违反国际贸易规则，要求中共国停止对其产品进行无理论依据的中共病毒检测。各国认为中共有目的的损害进口商品的贸易和声誉，进而实施贸易限制。
+I just finished a round of pool. Lord, I lost 2… 3 out of 4. Oh, actually, I lost 4 out of 4. Oh my lord, 4 out of 4! Pool is just not my forte. Lousy at the techniques. I don’t seem to have a knack for it. And my heart isn’t in it either… But Take-Down-the-CCP, that is my forte! What could you do about it, huh?!
 
-中共在对世贸组织的回应中说，其行动是“基于科学依据的临时行动”，旨在“最大程度地保护人民的生命”。
+这个……刚刚我在这打球， 哎呀，4局输了2……3局， 不是，4局输了4局。 天啊，4局输了4局， 打球不行……打桌球。 关键技术也不行，能力也不行， 心也不在这儿，呵呵…… 但是我灭共行！ 咋弄嘞，你说？
 
-无独有偶，中共对进口产品的限制并不局限在进口食品上。12月15日，中共发改委发表消息，以稳定国内煤价为由，将战略性减少高价煤炭的购买，对澳洲煤炭进行进口限制。此举带来了国内煤炭紧缺，各省市拉闸限电等严重电力供应问题。
+Brothers and sisters, you might have been on edge, a bit depressed this weekend, right? But you will breathe better tomorrow, and even more so the day after tomorrow! Just you wait and see! Don’t be anxious! Don’t be anxious! I wrapped up a few phone calls just now. The game plan has been moving forward beautifully… For our Whistleblower Movement, all are tremendously good news! Just you wait and see, my brothers and sisters!
 
-12月24日，中共国海关总署宣布，暂停澳大利亚新南威尔斯州与西澳大利亚的原木进口。而从10月底开始，中共国以害虫问题为由，先后暂停昆士兰州、维多利亚州、塔斯马尼亚州和南澳大利亚原木进口。
+兄弟姐妹们， 这个周末你们都过得很紧张、很压抑是不？ 明天你会感觉舒服一些， 后天你会感到很舒服！ 嗯，走着看啊！ 别捉急，别捉急！ 刚才的一通电话啊， 大局，咱们……往前推进！ 对我们爆料革命，这都是天大的好事儿啊， 咱走着看兄弟姐妹们。
 
-中共这一系列组合拳，一方面表现战狼外交的强硬态度，因政治需要对目标国家进行经济制裁和贸易打击，另一方面也体现了中共经济形势的不稳定性和不确定性较大，要实现“稳增长”和“防风险”长期均衡。
+But do remember, “A premature celebration may only lead to an earlier defeat. A premature give-up will only bring about an earlier defeat. When you are up, stay humble and cautious. When you are down, stay hopeful and optimistic. Now we are “on the way up”, so we shall remain humble and cautious. But for the past two days, we were “down”, though we maintained our “upbeat” fighting spirits! Be sure to keep in mind, my brothers and sisters! From tomorrow on, you will be thrilled by some upbeat news! But this is not yet the finish line. Not yet! Don’t be impatient. Soon Miles will demonstrate to you all!
 
-中共病毒影响、中美关系紧张以及中共经济低迷，早在年初便现端倪。4月美日政府呼吁在华企业撤离中共国，6月印度封禁59款中共国应用软件，7月中共主席习近平在召开企业家座谈会上提出中共经济需依靠“内循环”，走自力更生路线，这些种种实为中共已经预见中美所要面临的“脱钩”风险。
+记住啊， 早乐必早衰， 早悲必早哀， 起而伏之， 伏而起之。 现在我们是……正是起的时候咱伏之。 但是过去两天啊， 是……伏而起……起而伏之，咱是伏而起之，啊。 这是要记住，兄弟姐妹们， 从明天起，你们会看到很多……啊……让你感到兴奋的事儿， 但不到最后……不到最后啊！ 别着急啊。文贵会展示给你们的。
 
-随着事态持续发展和国际对峙升级，西方国家已知悉中共病毒为中共发动的生物武器超限战的真相。而中共对美国主权的攻击和对美国大选的干预，唤醒和激怒了美国人民，“脱钩”已经由风险转为步步推进的现实。美国因国家安全、新疆、香港和南海问题对中共上百家实体企业进行了制裁。近期通过的《外国公司问责法案》表明在美的中共上市企业将全部面临核查，中概股“集体退市”焦虑加剧。美国国土安全部更公开声明直指中共政权是美国和全世界的威胁。中共外汇窗口已经被扼断。
+Today’s news about G-TV is just fantastic! How exciting! More great news are on the way, about our G-Series, you will see. All G-TV investors, G-Series investors, you will see. As the old saying goes – when it comes to making money, (it is not …) it truly calls for “hard currency” (superior power). Cannot be achieved by just empty talks! You cannot just do whatever you want on a whim. You’ve gotta put it to test and get real work done! You’d better not tell lies in America, better not attempt to tamper with data/evidence.
 
-中共经济专家指出，中共目前可动用的外汇实际上已经捉襟见肘。如果外汇储备枯竭，对于中共当局将是相当严峻的考验。增加外汇储备，需要是开源和节流。开源需加大出口，现阶段西方市场对中共政策都在收紧，外汇收入窗口被扼制，中共在开源方面已然陷入困境，只能进一步加强节流限制。
+哎呀，今天GTV这好消息，实在是太兴奋了， 还有更多好消息啊，咱们G系列，你们会看到， 所有的GTV的投资人……G系列的投资人……你们会看到。 还是那句话， 这挣钱这个东西啊， 它不是··· 这是硬通货， 它不是吹牛的， 不是你想干啥就干啥的， 咱得干实事儿！ 在美国你一句假话也不能说， 一个数据也不能假，
 
-截止今年９月底，中共国外汇总局公布的数据显示中共的外汇净储备只剩下1.8万亿美元。中共强制要求所有在华的外企投资全部用人民币结算，相当于将外企投资的外汇全部充填为外汇储备，这部分是有外企撤离的风险。扣除外资企业最低估算的2000亿美元，中共的净外汇储备只为1.6万亿美元。
+This is the greatness of the United States! Don’t you say it looks so chaotic for now! Big chaos ought to lead to the emergence of great wisdom. Big chaos ought to lead to the conception of a great reform! You all understand it pretty well, even better than me. Only you may still hold doubts about it. Rest assured I will make you fully believe it. God has bestowed upon us, God is standing with us, on the side of justice! Brothers and sisters. I might do a live broadcast tomorrow evening. All right, my brothers and sisters! “Muah”! Goodbye!
 
-据美国财政部公布的最新数据，中共到今年8月1日所持有的美国国债是10680亿美元。不去计算中共持有的少量日元国债和欧元国债，扣除美国国债，中共实际持有的外汇现金便仅有5000多亿美元了。这已经不是捉襟见肘，而且面临外汇枯竭。
+这就是伟大的美国！ 你别看那么乱， 大乱必大智， 大乱必有大治！ 你们都懂的，都比我懂， 只是不相信而已， 我会让你们相信的。 上天在帮我们， 在帮正义的一边， 兄弟姐妹们。 明天晚上可能直播，啊， 好吧兄弟姐妹们， 么，再见！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/25171427/Miles_Muah.gif)
+翻译：【RD16】 字幕：【相机过热啊】 听写：【小螺号】视频解码：【恒久忍耐】【相机过热啊】编辑：【RD16】
 
-节流已经是中共别无他法的选择。而粮食、石油和芯片这三样产品的进口是中共国所必须，那么中共对现有的冷链食品和其他原材料的进口限制便有了合理的解释。
+喜马拉雅玫瑰园小队出品
 
-中共“甩锅”病毒输入和以各种借口制裁控制进口产品，实则是因经济困顿、外汇枯竭，中共已是强弩之末，时日无多。
-
-参考链接：
-
-
-
-> [中共国故技重施威胁加拿大 进口龙虾躺枪](https://gnews.org/zh-hans/244400/)
-
-
-
-[https://gnews.org/wp-admin/post.php?post=670598&action=edit&lang=zh-hans](https://gnews.org/wp-admin/post.php?post=670598&amp;action=edit&amp;lang=zh-hans)
-
-[https://gnews.org/wp-admin/post.php?post=655157&action=edit&lang=zh-hans](https://gnews.org/wp-admin/post.php?post=655157&amp;action=edit&amp;lang=zh-hans)
-
-[https://www.rfi.fr/cn/中国/20201224-中国暂停澳大利亚两地原木进口](https://www.rfi.fr/cn/中国/20201224-中国暂停澳大利亚两地原木进口)
-
-[https://www.abc.net.au/chinese/2020-11-18/china-coronavirus-covid-tests-food-exports-backlash/12895246](https://www.abc.net.au/chinese/2020-11-18/china-coronavirus-covid-tests-food-exports-backlash/12895246)
-
-[http://cn.ntdtv.com/gb/2020/10/08/a102959159.html](http://cn.ntdtv.com/gb/2020/10/08/a102959159.html)
-
-0
++1
