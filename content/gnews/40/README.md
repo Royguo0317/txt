@@ -1,77 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班农作战室WARROOM精选 605期 杰克·麦克西 记住自己为何而战非常重要
-` GM144文月` [轉載自GNews](https://gnews.org/zh-hans/687158/)
+## 【推文选情进展1226】-彭斯被起诉和其他
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/687490/)
 
-供稿：喜马拉雅大使馆群战斗室翻译组
+12月26日自媒体人Cari Kelemen发推：
 
-让我们回到宾夕法尼亚州 顺便说一下 真的不想感谢丹佛的所有团队
-
-都了解圣诞节的季节 当然  战斗室总是在最后一秒钟 提出不可能的要求
-
-我们有得到什么 我们又从宾夕法尼亚州那里找来了 我们的州代表和他的电话号码
-
-我们在这里会提供有关已发生情况的最新信息
-
-是的 川普在午餐会上邀请宾夕法尼亚州 整个共和党参议员核心小组
-
-在这里不是偷Greg Thunder的 这些都是从机房出来的
-
-Greg Mans 自己和三个参议员 卡马拉 参议员 巴托·布洛特我想
-
-那是华盛顿县 迈克·里根 那就是纽约州坎伯兰郡
-
-然后您在屏幕上看到的是 兰开斯特县的瑞安·艾尔曼
-
-奥曼拒绝了邀请 是另一个人说的
-
-嘿 看 我以前有过承诺 我在旅行 我没办法去做这事
-
-但是瑞安·艾尔曼基本上是说 我不能
-
-我引用他的话 我不能花一天的时间到那里 在我看来
-
-我不知道这次谈话会有很多收获”  坦白地说
-
-那是冷漠的这不仅对唐纳德·川普的不尊重 这是对总统办公室冷漠 它是不尊重
-
-当你被邀请与你来自同一个党派的人邀请你时
-
-如果这是你对待这个国家最高办公室的态度
-
-那么你就没有资格 作为代表和作为立法委员有任何的关系了
-
-所以屏幕上的号码 我已经从实时聊天或其他地方了解到
-
-这电话的语音信箱跳出来了 在这个圣诞节季节
-
-他所在地区的好公民应该感到羞愧 应该感到羞耻
-
-因为你有此不尊重的人 今天在这地区代表你们 这太可怕了
-
-鉴于 对待伟大人民的宾夕法尼亚联邦 这是当选这些人的问题
-
-你知道他们缺乏勇气 您知道 我们定期谈论勇气 以及勇气如何具有感染力
-
-怯懦也是如此 但是勇气有两种 有身体上的勇气
-
-然后是道德上的勇气 而这两种 道德上的勇气要困难得多
-
-因为这需要有终生的勇气 这就是我们这么多人所缺乏的
-
-我想引用约翰·亚当斯 因为我认为记住自己为何参加这场斗争非常重要
-
-他说 后代子孙 您将永远不知道现在的世代 要维护自己的自由需要付出多少代价
-
-希望您能充分利用它 我曾花了半生的痛苦全力保护它
-
-如果您不这样做 我将在天堂里悔改 约翰·亚当斯历史注视着人们 绝对  突发新闻
-
-是的 瑞安·艾尔曼语音信箱现在爆满 因此 让我们打爆他的电话线和电子邮件
-
-以及所有其他 他在社交媒体上特别活跃
+底特律，密歇根州：（用白板）遮挡计票窗口投票站的工作人员，他的工资是由马克-扎克伯格（Facebook 总裁）支付的。
 
 
+
+> Detroit, MICHIGAN: The salaries of the Poll Workers who were covering up windows where the votes were being counted were paid for by Mark Z u c k e r b e r g. [pic.twitter.com/Gq3kMNXBNR](https://t.co/Gq3kMNXBNR)
+> — Cari Kelemen (@KelemenCari) [December 26, 2020](https://twitter.com/KelemenCari/status/1342877765796843521?ref_src=twsrc%5Etfw)
+
+
+
+乔治亚州，科布县选票显示89,000张缺席选票中的78%(69,420张)违反了监管链的规定 没有按照乔治亚州选举规则的要求进行运送。
+
+
+
+> GEORGIA, Cobb County: Ballot Transfer Forms show that 78% of the 89,000 (69,420) absentee ballots breached the Chain of Custody and were not transported as Georgia election rules require. [https://t.co/heoAS9sRha](https://t.co/heoAS9sRha)
+> — Cari Kelemen (@KelemenCari) [December 26, 2020](https://twitter.com/KelemenCari/status/1342844919547899906?ref_src=twsrc%5Etfw)
+
+
+
+
+> 乔治亚州实行 “两级选举制度”，民主党地区的投票比较容易, 25万辆移动投票Winnebago 车是由马克-扎克伯格支付的，而共和党地区的投票则由于 “疫情期紧急命令 “而比较困难。
+
+
+
+
+> GEORGIA has a "two-tier election system" where voting in Democrat areas is easier thanks to things like this 250,000 mobile voting Winnebago 👇🏻 paid for by Mark Zuckerberg, and voting in Republican areas is more difficult due to "covid emergency orders." [https://t.co/heoAS9sRha](https://t.co/heoAS9sRha) [pic.twitter.com/2RXamEStTB](https://t.co/2RXamEStTB)
+> — Cari Kelemen (@KelemenCari) [December 26, 2020](https://twitter.com/KelemenCari/status/1342838803296346114?ref_src=twsrc%5Etfw)
+
+
+
+引人注目的是，Kelemen女士的推文附上了一份哥伦比亚地区法院于12月22日受理的案件，该案件是由威斯康星州选民联盟、宾夕法尼亚州选民联盟、乔治亚州选民联盟、选举诚信基金、亚利桑那州选举诚信联盟等23家组织和个人组成的原告，对包括副总统彭斯、美国众议院、参议院、选举人团、宾州、密歇根州、威斯康星州、乔治亚州等州州长和议员发出的起诉。原因是，
+
+
+> A. 禁止州立法机构履行宪法责任。
+> 
+> B. 公私混合的圈子指挥了选举方式，违反了州法律，造成了州议会无法解决的混乱局面。
+> 
+> C. 史无前例的私人资金收买地方选举办公室和支配选举管理，鼓励逃避州法律和政府党派参与。
+> 
+> 其中，副总统迈克尔-理查德-彭斯（Michael Richard Pence）是以其官方身份被起诉的被告。根据宪法和联邦法律，彭斯被认定为对总统和副总统选举人的开票和计票负有法律义务。
+
+
+诉状详见 [https://www.democracydocket.com/wp-content/uploads/sites/45/2020/12/DC-WVA-20201222-complaint.pdf](https://www.democracydocket.com/wp-content/uploads/sites/45/2020/12/DC-WVA-20201222-complaint.pdf)
+
+彭斯副总统由于12月23日没有对摇摆州选举人团进行拒绝，引发外界的失望和猜测，尽管Ivan Raiklin律师认为“彭斯一号牌”作废时可以考虑“彭斯二号牌”的计划，仍然有很多责疑的声音；林伍德律师于前日发推称彭斯是“叛徒”，这些已经得到验证。他在川普总统前四年执政期表现出的对美国言论自由和价值观的拥护，他于2017年郭先生新闻发布会被哈德逊研究所取消后一周年，率先在这里所发表演讲，反对言论自由被中共国压制、学术界被渗透，以及他对川普总统的“长期拥护”，在大选决定进程的关键时刻，他为何“一反常态”不作为，言行不一地”突然“转折，很难被解释。彭斯副总统很可能是迫于压力或已被收买，鉴于他的从政二十年以上“从地方到中央”的政治经历，也不排除他就是沼泽地里长期潜伏的“深国势力”（Deep State)。
+
+
+
+新闻和图片来源：推特
 
 0

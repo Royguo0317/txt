@@ -1,49 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【熱點播報】日本緊急封國一個月，全球經濟受重創
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/687685/)
+## 【林伍德律师推文1226】- FBI局长雷应该被解雇
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/687749/)
 
-作者：紐約香草山寫作組 wilson
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23222242/GNEW-GTV-MOS-LOGO-2-1.jpg)
+12月26日林伍德律师推文：
 
 
-
-
-
-據日媒報道，日本政府於2020年12月26日發布消息稱，該國從28日起，全面暫停來自所有國家和地區的新入境。該禁令的實施時間自2020年12月28日起至明年1月底。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/10003953/12105.png)
-中共病毒的強變異及高傳染性，迫使日本政府作出了封國舉措。近來中共病毒發生基因突變，病毒株的感染性增強70%，繼在歐洲6國被發現後，全球5大洲相繼發現這種被新命名為 VUI-202012/01 的變種病毒。
-同時，日本國內的疫情也非常嚴重，據共同社26日消息，日本東京都政府26日公佈，25日東京新確診949人感染新冠病毒，超過24日的888人，創單日新高。
-短評:效法日本封國的國家會越來越多。
-二戰後日本一直是穩定的出口大國，其供應鏈遍佈全世界，日本更是全球產業鏈中最重要的一環之一。
-全世界疫情加重及日本封國將重創全球經濟。簡單打個比喻，在日本生產的某個汽車部件，供應給分佈在世界各地的10家汽車工廠，當日本廠家的供應中斷時，這10家關聯工廠只能跟著停工。
-中共病毒的威力在於，產業鏈斷裂造成的實業倒閉和工人失業，將在參與全球產業鏈國家的所有經濟領域連鎖發生，動搖全球經濟體系。
-直接後果是各國的財政收入直線下降，社會救助、抗疫支出大幅增加，政府只能拼命印鈔維系，主權貨幣貶值失控，隨後惡性通脹爆發，而通脹對經濟的破壞力同樣巨大。當政府工作人員領到的薪水是和廢紙無異的紙幣時，社會將失控，騷亂、飢荒甚至戰爭等次生災害接踵而至，人類由此步入末日模式決非危言聳聽。
-閆麗夢博士早在今年4月就發出嚴厲警告留給人類的時間不多了，唯有滅共才能從根本上解除中共病毒對人類的威脅。
-
-校對發稿： 悟空
-
-参考：
-
-http://intl.ce.cn/qqss/202012/26/t20201226\_36160221.shtml
-
-https://news.sina.com.cn/w/2020-12-26/doc-iiznctke8624852.shtml
-日本東京新確診949人感染新冠，再創新高
-
-强变异中共病毒失控 最大受害者中共国百姓 – GNEWS
+> 忙着说真话，时间过得真快! 午休时间到了。不过，再多说几句真话。
+> 
+> 1. 联邦调查局局长Christopher Wray必须立即被解雇。
+> 
+> 2. 查查@kslaw King & Spalding律师事务所与Wray的关系，
+> 
+> 以及 @RodRosenstein （2017年美国司法部副部长）和Sally Yates （乔治亚州北区司法厅厅长）的关系。
+> 
+> 3. 都是一丘之貉。
 
 
 
-> [强变异中共病毒失控 最大受害者中共国百姓](https://gnews.org/zh-hans/673819/)
+
+> Time flies when you are busy speaking truth! Time for lunch break. But first, a few more truths:
+> 
+> 1. FBI Director Christopher Wray must be fired immediately.
+> 
+> 2. Research [@kslaw](https://twitter.com/kslaw?ref_src=twsrc%5Etfw) law firm connections with Wray, [@RodRosenstein](https://twitter.com/RodRosenstein?ref_src=twsrc%5Etfw) & Sally Yates.
+> 
+> 3. Birds of a feather flock together.
+> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342894152686723079?ref_src=twsrc%5Etfw)
 
 
 
-更多資訊，歡迎訂閱[美东香草山农场官方推特账号](http://xn--xhq28fy7bo1ez7gembr72a54dmz1bwl1agui6y3ar27a/)
-更多文稿，歡迎瀏覽[美東香草山GNEWS官方鏈接](http://xn--gnews-4h8in4cx54a1mer7ec57fqmj157cl9q/)！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23222242/GNEW-GTV-MOS-LOGO-2-1.jpg)
+
+> Birds of a feather??? [pic.twitter.com/XumE6F4HRN](https://t.co/XumE6F4HRN)
+> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342896538704613383?ref_src=twsrc%5Etfw)
+
+
+林伍德：都是一丘之貉吧？
+在另一则推文中，他指出：
+
+
+> 我看到Quinn Warner和Richard Jewell之间相似之处，很令人不安。
+> 
+> Richard被联邦调查局（FBI）诬告。他是一个替罪羊，所以FBI可以向世界宣称它 “抓住了自己人”，而这个人就是理查德-朱厄尔。
+> 
+> 理查德没有炸毁奥林匹克公园。
+> 
+> 联想一下。
+
+
+
+
+> I see disturbing similarities between Anthony Quinn Warner & Richard Jewell.
+> 
+> Richard was falsely accused by FBI. He was a scapegoat so that FBI could claim to world that it “had its man” & the man was Richard Jewell.
+> 
+> Richard did not bomb Olympic Park.
+> 
+> Connect the dots.
+> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342970524121620481?ref_src=twsrc%5Etfw)
+
+
+
+新闻素材和图片来自林伍德律师推特
 
 
 
