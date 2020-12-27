@@ -1,39 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【川普总统推文1226】1月6日华盛顿（白宫）见
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/686232/)
+## 纳什维尔的爆炸案可能是为暴乱作准备
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/688060/)
 
-12月26日的拆礼物日，川普总统推文：
+撰稿：澳喜特战旅—永遠の小学生文筝 审稿：Jenny
+![]()![](https://gnews.org/wp-content/uploads/2020/12/图片-23.png)(推特截图)
+田纳西州纳什维尔的爆炸案导至了部分地区的通讯一度中断。如果同样的行为在多个地区同时发生，导至全国的通讯不畅通，此时再发生暴乱，对普通人来说会造成巨大的恐慌。
 
+从公布的信息来看，这次爆炸案并不像是国外恐怖分子做的，更像是美国极端左派的行为。因为有广播是从爆炸的车上发出来。“现在该地区所有建筑物必须疏散。”“如果你能听到此消息，请立即撤离。”这广播内容说明这次爆炸的目的不是制造流血事件。再加上是圣诞节人们都在家过节，发生时间6：30正是人很少的时候。
 
-> “司法部 “和FBI对2020年总统大选舞弊案毫无作为，这是我国历史上最大的欺诈案，尽管有海量证据。他们应该感到羞愧。历史会记住的。永远不要放弃。1月6日在华盛顿见大家。
+通讯中断这种状态是暴乱分子需要的，这次爆炸是为了某种更大的有预谋的行为而做的测试。未来川普成功连任，中共和拜登一定不可能承认。鳄鱼不会乖乖被抓，一定会制造混乱，甚至掀起内战。而这都需要控制通讯。要知道像安提法，黑命贵这些组织一定无法接受川普连任，这次暴乱肯定是全国性的，所有左派都会参与的。
 
+(本文仅代表作者个人观点)
 
+编辑：文远Bruce
 
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
 
-> The “Justice” Department and the FBI have done nothing about the 2020 Presidential Election Voter Fraud, the biggest SCAM in our nation’s history, despite overwhelming evidence. They should be ashamed. History will remember. Never give up. See everyone in D.C. on January 6th.
-> — Donald J. Trump (@realDonaldTrump) [December 26, 2020](https://twitter.com/realDonaldTrump/status/1342821189077622792?ref_src=twsrc%5Etfw)
-
-
-
-另一则推文：
-
-
-> Durham 报告到底在哪里？他们监视我的竞选活动，与俄罗斯（和其他人）勾结，并被抓住了。阅读Horowitz 报告中关于Comey和McCabe的内容。连假新闻纽约时报都说 “不好”。他们都试过了（笔者按：实施了所有陷害川普总统的各种方案和办法），但失败了，所以现在他们想窃取选举!
-
-
-
-
-> Where the hell is the Durham Report? They spied on my campaign, colluded with Russia (and others), and got caught. Read the Horowitz Reports about Comey & McCabe. Even the Fake News [@nytimes](https://twitter.com/nytimes?ref_src=twsrc%5Etfw) said “bad”. They tried it all, and failed, so now they are trying to steal the election!
-> — Donald J. Trump (@realDonaldTrump) [December 26, 2020](https://twitter.com/realDonaldTrump/status/1342826019745640450?ref_src=twsrc%5Etfw)
-
-
-
-川普总统这里说监视他竞选活动的是Durham、俄罗斯和“其他人”，但是没有指明“其他人”是谁？会是谁？非中共莫属，这么重要的主谋，为什么不点名？是因为对中共出大招的时候还没有到吗？至少，川普总统对1月6日就职的自信，是美国人民今日拆出的最好的礼物。
-
-新闻素材和图片来自川普总统推推
-
+[【澳喜文章】](https://gnews.org/zh-hans/author/aujenny/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040800/IMG_1836-1.jpg)
 
 
 0

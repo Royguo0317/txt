@@ -1,57 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 疫苗危机
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/686208/)
+## 【鲍威尔律师推文1226】多米尼系统诬告自摆乌龙
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/688027/)
 
-*作者：此心不变｜校对：宁缺｜审核：海阔天空|PAGE：玄天生*
+12月26日鲍威尔律师转发了以下推文。
 
-#### 新闻：
+名为“海妖艺术农场”的网友发推：
 
-行政长官林郑月娥表示，政府与阿斯利康达成协议，采购750万剂该药厂与牛津大学合作研发的2019冠状病毒病疫苗，连同早前已公布的两款疫苗，疫苗总额2,250万剂，足够全港市民接种。
 
-林郑月娥今日在记者会上说，新达成的协议是继早前政府与科兴控股（香港）有限公司和复星医药及德国制药厂BioNTech达成协议后的第三份新冠疫苗采购协议。有关疫苗制造商各自采用不同技术制造疫苗，符合卫生署联合科学委员会采购最少两个不同技术平台和最少两间不同药厂的疫苗建议。
+> Eric Coomer（多米尼系统的一名工作人员、诽谤川普竞选团队诬告者）拥有裁决过程的专利。基本上Coomer为多米尼（Dominion）系统创造了整个裁决的流程。系统设置用以连接网络。 （笔者按，投票机在法律上不能连接上网。）
+> 
+> #为川普而战 #上帝取胜 #像弗林将军一样战斗
 
-林郑月娥表示，三项协议各提供750万剂疫苗，三种疫苗都需要打两针，总数2,250万剂足够全港人口使用。为审慎起见，政府会按原先计划寻找第四款疫苗，剂量同为750万。
 
-她说，要让市民安全、稳妥、有序接种新冠疫苗，除充足采购疫苗外，还要为紧急使用疫苗提供科学引证和法律基础，行政会议就此已订立《预防及控制疾病条例（使用疫苗）规例》，在目前公共卫生紧急状态下提供法律框架，引入符合安全效能和质素要求的新冠疫苗作紧急之用，规例有效期至明年12月23日。
 
-疫苗需按照优先群组次序接种，安老事务委员会主席林正财就该原则表示，疫苗接种计划展开后，他鼓励安老院院友在家人同意下一起接种。目前，超过六万名长者居于不同类型安老院。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/klMdKGsa7rQbq/images/6b5789d3-696a-45ee-9c7e-2451e70b0917.jpg?asset_id=b3c5551c-601b-4af2-baef-3b03126e4e63&amp;img_etag=%22a6aa5104c733dda8ee5cf42a22c09800%22&amp;size=2560)](https://spark.adobe.com/page/klMdKGsa7rQbq/images/6b5789d3-696a-45ee-9c7e-2451e70b0917.jpg?asset_id=b3c5551c-601b-4af2-baef-3b03126e4e63&amp;img_etag=%22a6aa5104c733dda8ee5cf42a22c09800%22&amp;size=1024)
+> [Defending The Republic – Sidney Powell](https://defendingtherepublic.org/)
 
-[新闻来源](https://www.news.gov.hk/chi/2020/12/20201223/20201223_193757_623.html)
 
-#### 简评：
 
-据说，英国在接种疫苗后出现病毒变种。我不知两者之间是否存在关联，是疫苗引起病毒变种，还是病毒本已变种。在我看来，这并不重要。我不懂科学，世界上所有的事情也不能完全迷信科学，有时只需做到“去私欲”，就能“存天理”，“明天理”。天理就是真理，胜过科学千万倍。就比如文贵先生对生物制药工程并没有深入研究，但是他就能清晰无误地断定现在生产出来的疫苗完全是政治操作，绝对无效。事实就是如此，现在我来告诉大家不完全迷信科学所能觉知到的天理：
 
-1、疫苗本身就是病毒，是很危险的东西，人最好不要相信任何未经充足时间检验过的疫苗。
 
-2、现在研发出来的疫苗都是没用的，因为这个病毒不是自然病毒，而是人工制造的生物武器。既然是生物武器，那么研发它的人怎么可能让别人有机会研发出疫苗来呢？这是再简单不过的逻辑，竟然还会有这么多人愿意相信疫苗。可见很多人已经放弃了自己与天俱来的觉知，去迷信被政治扭曲的科学，是多么愚蠢的行为！
+> Eric Coomer has Patents on the Adjudication Process. Basically Coomer Created the entire Adjudication process for Dominion. The system is set up to go ONLINE🙄[https://t.co/inyMRIAFw1](https://t.co/inyMRIAFw1) [@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw) [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) [@LLinWood](https://twitter.com/LLinWood?ref_src=twsrc%5Etfw)[#FightForTrump](https://twitter.com/hashtag/FightForTrump?src=hash&amp;ref_src=twsrc%5Etfw) [#Godwins](https://twitter.com/hashtag/Godwins?src=hash&amp;ref_src=twsrc%5Etfw) [#FightLikeAFlynn](https://twitter.com/hashtag/FightLikeAFlynn?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/VwM5VpnrIS](https://t.co/VwM5VpnrIS)
+> — 🇺🇸KrakenArtsFarm🇺🇸 (@hppyjesusfreak) [December 27, 2020](https://twitter.com/hppyjesusfreak/status/1342991363105669120?ref_src=twsrc%5Etfw)
 
-3、病毒攻击人类是无差别的，但是真正有信仰的人自有天佑。你看，川普总统和他周围的人几乎全部染过病毒。他们是真正有信仰的人，都染过病毒，最后在神的护佑下全部转危为安。
 
-4、疫苗是用来消灭没有信仰和愚昧无知的人，因为有信仰的人相信自己的觉知，不完全迷信和依赖科学。就像文贵先生一样，他们无论如何都不会接种疫苗。
 
-[![](https://spark.adobe.com/page/klMdKGsa7rQbq/images/fa898f76-3249-4f57-bcd6-6205cec1682f?asset_id=5e4f888a-29af-4d62-a239-1176d74982c0&amp;img_etag=%2206618b63a2d2bec1ebfc233278076e8d%22&amp;size=2560)](https://spark.adobe.com/page/klMdKGsa7rQbq/images/fa898f76-3249-4f57-bcd6-6205cec1682f?asset_id=5e4f888a-29af-4d62-a239-1176d74982c0&amp;img_etag=%2206618b63a2d2bec1ebfc233278076e8d%22&amp;size=1024)
-
-而没有信仰、贪生怕死之辈和愚昧无知的人只相信政治家的科学，他们被中共洗脑追随“崇尚科学反对邪教”，所以他们一定会被欺骗，而选择他们自以为最好质量的疫苗并接种它，他们认为这才叫聪明。于是前赴后继地去接种疫苗，直到有一天得到验证这个疫苗在他们的体内转成新的病毒。林郑说，三种疫苗都需要打两针，我想第一针应该不会有事，研发疫苗的人不会让疫苗这么快露馅的，等到打第二针后，我几乎能断定，人类的病毒大劫难这才真正开始。
-
-5、当疫苗变成病毒后，它的杀伤力远远超过原本病毒，一定会带走一大批坏人、愚昧无知的人和很多无辜的人。。
-
-6、好人除了不接种疫苗外，还需远离坏人和愚昧无知的人，以免不小心被传染上。
-
-仅代表个人观点
-
-编辑 【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/klMdKGsa7rQbq/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/klMdKGsa7rQbq/images/e6dcbdaa-cd09-4316-a400-2425977dda3e.jpg?asset_id=895b0c11-9d8c-43e7-b5f6-0438cbe51bbd&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/klMdKGsa7rQbq/images/e6dcbdaa-cd09-4316-a400-2425977dda3e.jpg?asset_id=895b0c11-9d8c-43e7-b5f6-0438cbe51bbd&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+新闻和图片来源于鲍威尔律师及其转发的推文
 
 0

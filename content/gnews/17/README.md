@@ -1,53 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 简讯集锦
-` Himalaya Farm Germany 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/686067/)
+## 【林伍德律师推文1226】-美国隐藏的间谍中心AT&amp;T
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/687821/)
 
-**作者：**铜豌豆, 喜马拉雅德国慕尼黑感恩农场
-
-**校对：**西联777, 喜马拉雅德国慕尼黑感恩农场
-
-**图片****:**  喜马拉雅德国慕尼黑感恩农场设计组原创
-
-**简讯****1**
-
-今天白宫幕僚长马克·麦斗斯发推说，面对不断增加的选举舞弊的证据，川普总统准备展开反击。
+12月26日林伍德律师发推一篇题为&lt;窃听室- NSA隐藏在八个城市中的间谍中心&gt;，该文发表于2018年六月。文章介绍了美国顶尖电信公司美国电话电报公司AT&T如何为美国国家安全局（NSA）提供各种隐私数据。
 
 
-
-> [“President Trump Is Preparing to Fight Back Against Mounting Evidence of Voter Fraud” – BREAKING: White House Chief of Staff Mark Meadows on Trump’s Fight for Justice](https://www.thegatewaypundit.com/2020/12/president-trump-preparing-fight-back-mounting-evidence-voter-fraud-breaking-white-house-chief-staff-mark-meadows-trumps-fight-truth/)
-
-
-
-**简讯****2**
-
-常任州议员司法委员会的佐治亚州选举法研究下设委员会主席写了一份15页长的报告，详细提供了委员会听到的口头证词，所有的都是关于民主党竞选人乔·拜登的选举舞弊，违反常规的做法，以及各种错误。简短的说，他总结道：2020年11月3日的选举是一场灾难，并且选举的结果是不能相信的。除了推荐了透明的选举措施，他还推荐了对于选票和选票机的法医审查。
+> 位于亚特兰大、芝加哥、达拉斯、洛杉矶、纽约市、旧金山、西雅图和华盛顿地区的AT&T设施中心，拥有在美国和世界范围内传输大量互联网流量的网络设备。这些建筑是NSA间谍活动的核心，该活动多年来监控了数十亿封电子邮件、电话和穿越美国领土的在线聊天（包括Skype视频使用）。
+> 
+> 如此发达和成熟的监控系统为什么没有监察到乔拜登家族与中共利益输送的叛国行为？监测到大选舞弊中有组织有蓄谋的舞弊行为？为什么没有发现中共病毒在美国爆发的定点性、目标性的原因？
 
 
+AT&T与中共国业务关系有30年之久，这种长期深厚的关系有着怎样的利益链？美国人的个人安全隐私除了中共大肆网络攻击窃取的，有没有收到“拱手相让”的？着实令人担忧。
 
-> [READ: GA Senate Chairman’s Warns Election Results ‘Untrustworthy,’ Demands Forensic Audit](https://thenationalpulse.com/breaking/ga-senate-election-report/)
+林伍德律师发推时称：
+
+
+> 我们必须经常提出问题并寻求更好的信息。这样做才能更好地保护我们的权利和保障我们的自由。
+> 
+> 我们人民拥有这个国家的所有权力。我们的权力来自于上帝，因为我们是在上帝之下的国家。
+> 
+> 要努力。
 
 
 
-**简讯****3**
 
-国防授权法案被众议院和参议院都通过了，川普总统许诺将要驳回该法案。总统不断的威胁要驳回这个法案，因为这个法案并没有剔除230法案。该法案允许社交媒体公司对于言论进行审查，而不需要害怕吃官司。
-
-
-
-> [Congress divided over President Trump’s upcoming veto of defense bill](https://www.oann.com/congress-divided-over-president-trumps-upcoming-veto-of-defense-bill/)
-
-
-
-**简讯****4**
-
-川普总统和川普总统律师团队的耶拿·艾利丝都表示过，没有计划要执行反叛乱法和强制推行戒严令来干涉选举进程。但是有其他的路径可以运用军事介入，西德尼·鲍威尔通过她的电报群频道暗示过这种可能性。鲍威尔有强有力的手段跟那些腐败的同谋的媒体进行最后一轮的沟通。
+> We must always ask questions & seek to be better informed. In doing so, we can better protect our rights & secure our freedom.
+> 
+> We The People have ALL the power in this country. Our power was derived from God as we are a nation under God.
+> 
+> Be diligent.[https://t.co/LDvseHyxsQ](https://t.co/LDvseHyxsQ)
+> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342904851454418952?ref_src=twsrc%5Etfw)
 
 
 
-> [Sidney Powell’s Telegram Channel Becomes Powerful Communication Tool…Is She Signaling Military Involvement In Elections?](https://creativedestructionmedia.com/analysis/2020/12/20/sidney-powells-telegram-channel-becomes-powerful-communication-tool-is-she-signaling-military-involvement-in-elections/)
+新闻素材和图片来自林伍德律师推特
 
 
 
-0
++3
