@@ -1,15 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【字幕】12/26/2020文贵：共产党的海外秘密资金如何保证安全．俄罗斯和中东会不会保护共产党倒毙后的家人和私生子女和资产
-` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/687597/)
+## 【川普总统推文1226】 “我们必须赢得胜利” &amp; 亚利桑那州
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/687647/)
 
-制作： 【彩虹桥】
+12月26日，亚利桑那州国会议员Mark Finchem 发推：
 
-对了，我还要接着说几句啊，还有给那个信函..老领导信函的事，还有两件事我要回复你们，我就不给你们发信息了，同志啊
 
-第一条你说到，党多年来在海外安置和置放，特殊情况下的党的安全资产，如果发生以上事件，就是全世界罚共的时候怎么办？老领导你就别操心了，爆料革命、新中国联邦替你料理了。非洲那块我就不管了，中东、亚洲、美洲，你就别想了。我今天可以告诉你，现在这几天的马阿拉歌，就是圣诞节都有人写这个法案，如何查封你共产党海外资产，包括你那秘密的国家所谓的安全资产，咱走着看，谁沾你们的谁完蛋，就像剔出你那些中资企业，踢出那些上市公司，那些指数一样，像纳克达斯一样，像欧洲指数一样，会把你所有的钱由爆料革命接管、新中国联邦，你就别操心了。
+> 最高法院 v. 总统先生，“我们有绝对的证据，但他们不想看–他们说没有’依据’。如果我们有腐败的选举，我们就没有国家了！” 这是年度语录!
+> 
+> @真正的唐纳德-川普
+> 
+> 法院不担心法治更担心骚乱？无政府主义者们是不会停止（骚乱）的  #停止偷窃
 
-第二个 你给建议的，跟俄罗斯的关系、跟中东的关系，在种情况下是否经得住考验，我告诉你，绝对接受不了考验，有我..你考验不了，未来你会知道文贵给你布的什么局，我早知道落水狗往哪儿跑，灌进老鼠洞里的水，老鼠出来它往哪儿跑，早就守着你的洞口，逮你的老鼠..一堆包。记着吧！还有其它的几个问题我就不说了，未来保护信息来源。老领导就别惦记你那国家安全资金了，新中国联邦接管了，中东和俄罗斯的关系你就别想了，有我哪靠不住，还是灭共吧直接把那几个溷蛋灭了吧。谢谢！
+
+
+
+> SCOTUS v. POTUS, “We have absolute PROOF, but they don’t want to see it—No ‘standing’, they say. If we have corrupt elections, we have no country!” QUOTE OF THE YEAR! [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) SCOTUS more worried about riots than rule of law? Anarchists won't stop [#stopthesteal](https://twitter.com/hashtag/stopthesteal?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Mark Finchem (@MarkFinchem) [December 26, 2020](https://twitter.com/MarkFinchem/status/1342897137504366593?ref_src=twsrc%5Etfw)
+
+
+
+他随后发推：“爱国者，加油。”然后引用《圣经约书亚记》1:9 NIV中的话：
+
+
+> “我不是吩咐过你们吗？你们要坚强勇敢。不要害怕，不要灰心，因为无论你往哪里去，耶和华你的神必与你同在。”
+
+
+川普总统就这段文字进行回推：
+
+
+> 谢谢你，马克 在亚利桑那州发现了大量的数字.我们必须为我们的国家赢得胜利!
+
+
+
+
+> Thank you Mark. Big numbers found in Arizona.We must win for our Country! [https://t.co/I6UXM3cz42](https://t.co/I6UXM3cz42)
+> — Donald J. Trump (@realDonaldTrump) [December 26, 2020](https://twitter.com/realDonaldTrump/status/1342872502306009089?ref_src=twsrc%5Etfw)
+
+
+
+新闻素材和图片来自川普总统推推
+
+
 
 0
