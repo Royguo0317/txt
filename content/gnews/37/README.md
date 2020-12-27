@@ -1,21 +1,99 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 毛诞日里评“腊肉”
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/689607/)
+## 【Raiklin律师推文1227】乔州胜出 &amp; 宾州新舞弊证据
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/689683/)
 
-作者：晓清新 编辑：大右派
+12月27日Ivan Raiklin 律师转发了以下推文。
 
-有人说当下中国最主要的矛盾是：“12月25日和12月26日的矛盾。” 12月25日在美国等西方文明国家可谓人尽皆知，这一天是一个伟大的节日：圣诞节。2000多年前的这一天，一位肩负着神圣使命的人子—耶稣诞生了，他给人类带来了平安，带来了信仰，带来了爱，带来了希望。
+关于乔治亚州
 
-1893年12月26日，东方古国有一个叫毛泽东的人出生了，有网友戏称为：**毛诞日**。在中国，这一天会有很多毛粉欢呼雀跃，为所谓的“伟人”歌功颂德。毛泽东究竟是人是鬼？是神还是魔？让我们揭开历史的面纱，认识一下真实的毛泽东。
 
-最让毛左、小粉红们津津乐道的是毛泽东遗物馆里的一件白色睡衣，微微泛黄，上有73块补丁，据说毛穿了20年。据史料记载，1956年秋中共中央办公厅从上海招收了12名服装技师，这12名服装技师，皆出于上海红帮门派——旧指为“红毛”（洋人)缝制洋服的裁缝，包括田阿桐、王庭森等名师，他们的任务就是为毛泽东研制合体的服装。帮他缝补衣服的人都是北京、上海的著名服装大师，包括总后服装研究所的刘奎元师傅、上海的周庆祥师傅、吴兴扬师傅以及北京针织厂知名的师傅们。**试想，一个拥有12名御用服装设计师的人，说他穿衣服节约、节俭这合理吗？**此外，连为他补衣服的都是当时知名的师傅，这些名师的工资可以和高级干部相提并论，补衣服的手工费是睡衣价格的无数倍。而且，每次修补衣服都是用飞机运到上海，修好后再运回北京。一般来说，独裁者都有些特殊的癖好，毛一件睡衣用20年也就不难理解了。毛死后，这一特殊癖好却被统治者鼓吹为“俭朴”，真是贻笑大方。
+> 川普总统… 您的领导赢得了乔治亚州参议员选举… … 我要向大家展示一下有多少 #幻觉睡眠投票者 的存在… 今天到现在为止已经工作了12个小时。 这些选举不需要重新选举… GOP已经赢了 我希望我可以证明这一点.
 
-从男女关系上最能看到男人的本性。毛究竟有多少女人，恐怕连他自己都很难说清楚。**正式的妻子有4个**：罗一秀、杨开慧、贺子珍、江青。**另外与他有性关系的女人，比较有名的有16个**，包括：陈并栖、吴广惠、谢静宜、张玉凤、孟锦云、陈露文、冯凤鸣、孙维世、上官云珠等，**毛一时起意“临幸”的女人更是不计其数**。其中，孙维世的养父是周恩来。网上有一张公开的照片，毛和邵华（毛的儿媳）相依站立、十指相扣，傻儿子毛岸青在一旁，这让人不能不联想起古代的“扒灰”。1982年，当局修缮杨开慧故居时发现杨的一封亲笔信，信中记载了毛和杨开慧表妹偷情，杨开慧发现后对其深恶痛绝，评价毛是：**生活流氓、政治流氓！**
 
-再说说政治，毛入主北京后以皇帝自居，铲除异己，包括：刘少奇、林彪、彭德怀、贺龙、陈毅等同伙被清洗。毛大搞个人崇拜，发动并主导了土地改革运动、镇反运动、三反五反运动、肃清暗藏的反革命分子运动、反右运动、大跃进、人民公社运动、四清运动、文化大革命等一系列政治运动。各类政治运动及大饥荒共造成了**4000－8000万中国人的非正常死亡**，还有至少数千万中国人遭到批斗和迫害。外交方面，毛泽东时代的中国经历了朝鲜战争、中苏交恶、越南战争等等。仅朝鲜战争就有至少几十万中国士兵丧生，傅作义将军带领的部队很多命丧朝鲜，既消耗了美军弹药又借刀杀人，心肠何其毒也。朝鲜战争对中国人民的最大贡献，就是前去镀金的“太子”毛岸英，**被联合国军用凝固汽油弹烧成了“碳棒”，否则今天中国人民的生活只能比肩如今的朝鲜，**政治上也会实现社会主义版的“父传子家天下”。
+Raiklin 律师回推时说：
 
-毛给中国人民带来的只有杀戮、灾难、痛苦、贫穷、饥饿……,如果这样的人也能称一个“伟”字的话，那么也只是**鬼中之魁，魔中之王**，这一点无人能及。有人曾戏称，**毛做的唯一正确的事是：亲自死了**。他一死全国人民才吃饱了饭。不少人网上留言：“毛注定会被钉在历史的耻辱柱上遗臭万年。天安门广场上的那一坨腊肉必将被人民彻底清理……”或许这才是毛的遗体如今还存留在“毛主席纪念堂”的最大用处。
+
+> 乔治亚州！（好消息）
+> 
+> 不需要新一轮选举了吗？
+
+
+
+
+> GEORGIA!
+> 
+> No Runoff necessary?! [https://t.co/k88LgyIdEI](https://t.co/k88LgyIdEI)
+> — “Activate Emergency Alert System!” Ivan Raiklin (@Raiklin) [December 27, 2020](https://twitter.com/Raiklin/status/1343127300657836033?ref_src=twsrc%5Etfw)
+
+
+
+相关其他推文：
+
+滑稽的宾夕法尼亚州
+
+
+> 尊敬的
+> 
+> @POTUS 美国总统 @真正的唐纳德-川普
+> 
+> 我有一些关于宾夕法尼亚州绝对令人震惊的消息要报告。 我检查了超过9,008,753条记录，确定了521 879个独特的姓氏。 245,033个，也就是宾夕法尼亚州所有姓氏中的47%，只属于一个人，而且只是一个人!
+
+
+
+
+> The Honorable [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) 
+> I have some absolutely Stunning News to report regarding PA. I examined just over 9,008,753 records and have identified 521,879 unique Last Names. 245,033 or just under 47% of the total Last Names in PA only belong to 1 and only 1 person!
+> — BobbyPiton (@BobbyPiton3) [December 27, 2020](https://twitter.com/BobbyPiton3/status/1342996474972540928?ref_src=twsrc%5Etfw)
+
+
+
+
+> 这500个少了的名字（低于全国范围的估计）核对过是958,044（人）。 这刚好是宾州消失的695,000到958,000人。 川普总统，我有一个所有失踪人员姓名的详细数据。
+
+
+
+
+
+> 我不知道该怎么说，我看到的是如此疯狂的彻头彻尾的欺诈。近100万美国人的选票被偷走了! 对于这种对伟大的宾夕法尼亚州的犯罪行为，必须逮捕。
+
+
+
+
+> I am a loss for words that I am looking at such INSANE Outright Fraud. That almost 1 million Americans had their Vote STOLEN from them! Arrests need to be made for this crime against the Great State of Pennsylvania. [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) [@tracybeanz](https://twitter.com/tracybeanz?ref_src=twsrc%5Etfw) [@LLinWood](https://twitter.com/LLinWood?ref_src=twsrc%5Etfw) [@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw) [@Kathy4Truth](https://twitter.com/Kathy4Truth?ref_src=twsrc%5Etfw)
+> — BobbyPiton (@BobbyPiton3) [December 27, 2020](https://twitter.com/BobbyPiton3/status/1342996478269272065?ref_src=twsrc%5Etfw)
+
+
+
+
+> 史密斯的人名比应该有的人少 19,591个，威廉姆斯失踪了，30,830个约翰逊找不到人。 11,656个杰克逊失踪。 宾夕法尼亚州到底发生了什么事。 在宾州排名前1000的名字中，正好有500人的名字在应该在那里的投票被缺失。。
+
+
+
+
+> fewer Smiths, than should be there. 19,591 Williams have gone missing, 30,830 Johnson's are no where to be found. 11,656 Jackson went MIA. What in the world is going on in PA. Exactly 500 of the top 1000 names in PA have a deficit in the number of people that should be there.
+> — BobbyPiton (@BobbyPiton3) [December 27, 2020](https://twitter.com/BobbyPiton3/status/1342996476658647040?ref_src=twsrc%5Etfw)
+
+
+
+
+> 再次，在900万条记录中，没有兄弟、姐妹、姑姑、表兄弟、父母使用特殊的姓氏。 在看了宾夕法尼亚州的前1000名姓氏后，对应有695,430人减少了。 从字面上看，有14,776个
+
+
+
+
+> Once again, no brothers, sisters, aunts, cousins, parents that share this particular last name out of 9 Million records. Upon looking at the TOP 1000 Last Names in PA, I have discovered that PA has 695,430 Fewer People in the top 1000 Last Names. Literally, there are 14,776
+> — BobbyPiton (@BobbyPiton3) [December 27, 2020](https://twitter.com/BobbyPiton3/status/1342996475731697667?ref_src=twsrc%5Etfw)
+
+
+
+后记，每当看到美国人为大选结果做出怎样的抗争，发现怎样的舞弊行为，用怎样的方式验证选举结果，美国人如何被威胁了，一些网络名人、律师、议员、政要包括川普总统本人，如何站出来振臂高呼，说出真相的，凡此等等，所有的努力和行动，无不感动著我。当中共盘算著一个所谓“完美”的系统性惊天大阴谋以期盗取美国大选结果之时，哪里预想到，这个世界还有如此勇敢抗争的人，在美国的土地上，还有真正有脊梁有正气的人。中共对人民的蔑视和奴役，让他们忘记了什么是真正的人类，这个世界并非都是魔鬼和屈膝的奴隶。真正的人类最终战胜魔鬼，中共已经自掘好了坟墓。
+
+
+
+新闻和图片来源于Ivan Raiklin律师的推文
+
+
 
 0
