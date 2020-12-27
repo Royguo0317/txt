@@ -1,107 +1,99 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点报道】每日国际灭共——热点联播系列（三）
-` 国内新闻组(Ronald)` [轉載自GNews](https://gnews.org/zh-hans/689342/)
+## 【Raiklin律师推文1227】乔州胜出 &amp; 宾州新舞弊证据
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/689683/)
 
-内新闻/素材/编辑：Meilen美伦 校对：加文gavin
-![]()![](https://gnews.org/wp-content/uploads/2020/12/image0-2-14.jpg)
-爆料革命灭共进程已到了最后决战之际，本栏目每天为读者朋友们汇总与灭共相关的国内外新闻热点并在此联播，欢迎读者朋友们关注灭共系列报道。以下是美东时间2020年12月26日、北京时间27日灭共热点要闻的内容摘要联播：
+12月27日Ivan Raiklin 律师转发了以下推文。
 
-**第一部分**
+关于乔治亚州
 
-**#郭文贵 2020-12-26**
 
-1.共产党已经开始给自己倒数灭亡时间，共产党的内部起义，以共灭共的时代正式开始！
+> 川普总统… 您的领导赢得了乔治亚州参议员选举… … 我要向大家展示一下有多少 #幻觉睡眠投票者 的存在… 今天到现在为止已经工作了12个小时。 这些选举不需要重新选举… GOP已经赢了 我希望我可以证明这一点.
 
-2.接下来3个月，国有企业债务将达到冰点，一发不可收拾。人民币全面崩盘、港币消失。
 
-3.共产党现在做的事情，摊子太大，麻烦太多，树敌无数，来不及回头，来不及刹车转向，后果已经不堪设想。
+Raiklin 律师回推时说：
 
-4.新中国联邦背后的实际力量、未来影响力，和对中共在全世界负面影响的传播以及新中国联邦正面形象的树立，是中国历史前所未有的。
 
-**第二部分**
+> 乔治亚州！（好消息）
+> 
+> 不需要新一轮选举了吗？
 
-**#路德社消息 2020-12-26**
 
-1.路德重磅爆料：哪两位老常委写信施压习近平？据了解，是温家宝跟贾庆林联名写的这个信。贾庆林跟习的关系，肯定不一般，习是贾庆林推荐给江泽民的。温家宝给习近平扫清了他登上“皇位”的最后一个障碍，薄熙来。
 
-所以说这两个人是习不敢动的，有恩于他的。
 
-2.中共召开民主生活会。习近平形容2020年为泰山压顶，泰山正是新中国联邦。
+> GEORGIA!
+> 
+> No Runoff necessary?! [https://t.co/k88LgyIdEI](https://t.co/k88LgyIdEI)
+> — “Activate Emergency Alert System!” Ivan Raiklin (@Raiklin) [December 27, 2020](https://twitter.com/Raiklin/status/1343127300657836033?ref_src=twsrc%5Etfw)
 
-3.全球第二大指数，英国富时罗素指数，自2021年1月7日起将剔除中概股。香港恒生指数届时也必须要跟随，如若不跟，香港证券交易所都将受到制裁。这些金融制裁手段陆续实施，将断了中共的重要財路。
 
-4.川普总统反对捆绑式救济美国公民，并且坚决要废除230条款。川普总统在民意及政局掌控上具有优势，但在媒体上他處于劣势，230条款己是美中最重要的博弈战场。
 
-5.美国务院专门把一些企业打成是中共军方控制的，这些企业只要不还债就可找中共军方、中国共产党还。已有几百家企业被美国国务院直接列为是中共军方控制的。中共想通过阿里巴巴这种断臂的方式逃避债务，已不可能。
+相关其他推文：
 
-6.中共新国防法修订版本颁布！
-第三十条加入：国家采取必要的措施，维护在太空、电器、网络空间等其他重大安全领域的活动、资产和其他利益的安全。
+滑稽的宾夕法尼亚州
 
-意思是这些领域它可以随时军管，它知道控制这些领域最关键。还有第五十一条，意思是：一旦宣布战争状态，中共就可以合法抢钱、分配资源。
 
-**第三部分**
+> 尊敬的
+> 
+> @POTUS 美国总统 @真正的唐纳德-川普
+> 
+> 我有一些关于宾夕法尼亚州绝对令人震惊的消息要报告。 我检查了超过9,008,753条记录，确定了521 879个独特的姓氏。 245,033个，也就是宾夕法尼亚州所有姓氏中的47%，只属于一个人，而且只是一个人!
 
-**#班农战斗室 2020-12-27**
 
-班农：
-沒有很多人可以像你一样爆出那么多的有关中共和地狱硬盘门的料。在过去一年里，你做到了一个真正的记者应该做到的。
 
-Natalie：
-我看到（中共）滲透到美国每一个机构中，不仅仅是政党，智库，媒体。 很多人都直接或间接地领着他们的工资，所以无法自由披露真相。
 
-无论是拿中共钱的Fareed Zakaria （美国著名记者），他不可能在他的CNN节目中抨击中共国政府，还是中共资助的智库组织活动为中共虚假信息造势。
-所以我们看到中共成功压制病毒來源真相，并传播假信信息。
- 
-Natalie：
-说到某些公司是从哪里赚钱的，我就会想到例如《华盛顿邮报》这样的公司。如果你查看它们的广告客戶清单，华为就是其中之一。
+> The Honorable [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) 
+> I have some absolutely Stunning News to report regarding PA. I examined just over 9,008,753 records and have identified 521,879 unique Last Names. 245,033 or just under 47% of the total Last Names in PA only belong to 1 and only 1 person!
+> — BobbyPiton (@BobbyPiton3) [December 27, 2020](https://twitter.com/BobbyPiton3/status/1342996474972540928?ref_src=twsrc%5Etfw)
 
-华为不仅被川普政府定为国家安全威胁，还被国防部认定与中共军方合作了二十多年。《华盛顿邮报》不仅赚华为广告商的钱，至今还发文章宣扬它们。那些作者其实都是华为的人，他們讨论华为5G网络如何如何的好。
- 
-**第四部分**
 
-**#美国 灭共&大选快讯 2020-12-26**
 
-1.彭佩奧：正在考虑把中共对维吾尔人的镇压定性为种族灭绝。
- 
-2.川普总转统发重磅视频，直接说所有一切的幕后黑手都是中共，中共的目的就是颠覆美国。
 
-视频称呼新冠为「中共病毒 CCPVirus」，直接说出中共本身就是世界上最致命的病毒！美国是自由世界最后堡垒，如果美国被中共攻陷，则全世界沦陷！
-川普发的这个视频直接程度前所未有，可以看作是对中共的开战宣言。
- 
-3.西德尼 鲍威尔律师发布了270页的关于涉及外国干涉的大规模2020年选举欺诈的文件。
- 
-**第五部分**
+> 这500个少了的名字（低于全国范围的估计）核对过是958,044（人）。 这刚好是宾州消失的695,000到958,000人。 川普总统，我有一个所有失踪人员姓名的详细数据。
 
-**#国际简讯2020-12-27**
 
-1.日本封国。日本宣佈禁止外国人入境，自12月28日至明年1月底。
- 
-2.韩国。中共病毒疫情恶化，迫使政府实施更严格限制。
 
-**第六部分**
 
-**#中共国 一句话简讯 来自大陆媒体2020-12-27**
 
-1.中南海所在地爆出疫情。官方承认北京疫情整体呈现多点爆发扩散趋势，北京多区沦陷。80万人核酸检测，已进入战时状态，中南海所在地北京西城区也爆出疫情，令中共高层人心惶惶。
- 
-2.大连疫情未减。被封居民郁闷难耐再次喊楼
- 
-3.气象。自28日起中国将迎来入冬以来最强寒潮侵袭，其中，华东地区的停电省份，降溫幅度普遍都有14度以上，另外29号晚上合肥、南京地区都将普降大暴雪！取暖供应料將再创新高！
- 
-4.金融。阿里一天跌了1个中国银行、两个中石化、三个万科A——12月24日早上，「阿里巴巴涉嫌垄断被立案调查」的消息刷屏各个平台，阿里巴巴港股率先闻声暴跌8%，到了晚上，其美股暴跌13%，創下其上市以来单日最大跌幅，兩个市场的市值共跌近万亿元人民币。
+> 我不知道该怎么说，我看到的是如此疯狂的彻头彻尾的欺诈。近100万美国人的选票被偷走了! 对于这种对伟大的宾夕法尼亚州的犯罪行为，必须逮捕。
 
-中共开始对马云下手，看来他也摆脱不了清末浙商胡雪岩的下场。
- 
-5.军事。海军给「立功」官兵老家送喜掛牌匾，这个消息很不好。先报喜、再送丧，预示着海军可能要准备了。
-![]()![](https://gnews.org/wp-content/uploads/2020/12/image0-1-32.jpg)
-6.《大秦赋》。“我们为《大秦赋》这部剧所做的努力，就是想激起人们愿为国家慷慨赴死的豪情，这是全剧的魂，是根。”——《大秦賦》導演阐述。网友评：为发展更多的炮灰而已！
-![]()![](https://gnews.org/wp-content/uploads/2020/12/image0-224.jpg)
-7.跨年会取消。各地都取消了春节和跨年活动。包括北京，上海，广州，南京，成都。
- 
-以上是今日国际国内灭共热点要闻报道的全部内容，下期再见！
 
-(本文仅代表个人观点)
+
+
+> I am a loss for words that I am looking at such INSANE Outright Fraud. That almost 1 million Americans had their Vote STOLEN from them! Arrests need to be made for this crime against the Great State of Pennsylvania. [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) [@tracybeanz](https://twitter.com/tracybeanz?ref_src=twsrc%5Etfw) [@LLinWood](https://twitter.com/LLinWood?ref_src=twsrc%5Etfw) [@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw) [@Kathy4Truth](https://twitter.com/Kathy4Truth?ref_src=twsrc%5Etfw)
+> — BobbyPiton (@BobbyPiton3) [December 27, 2020](https://twitter.com/BobbyPiton3/status/1342996478269272065?ref_src=twsrc%5Etfw)
+
+
+
+
+> 史密斯的人名比应该有的人少 19,591个，威廉姆斯失踪了，30,830个约翰逊找不到人。 11,656个杰克逊失踪。 宾夕法尼亚州到底发生了什么事。 在宾州排名前1000的名字中，正好有500人的名字在应该在那里的投票被缺失。。
+
+
+
+
+> fewer Smiths, than should be there. 19,591 Williams have gone missing, 30,830 Johnson's are no where to be found. 11,656 Jackson went MIA. What in the world is going on in PA. Exactly 500 of the top 1000 names in PA have a deficit in the number of people that should be there.
+> — BobbyPiton (@BobbyPiton3) [December 27, 2020](https://twitter.com/BobbyPiton3/status/1342996476658647040?ref_src=twsrc%5Etfw)
+
+
+
+
+> 再次，在900万条记录中，没有兄弟、姐妹、姑姑、表兄弟、父母使用特殊的姓氏。 在看了宾夕法尼亚州的前1000名姓氏后，对应有695,430人减少了。 从字面上看，有14,776个
+
+
+
+
+> Once again, no brothers, sisters, aunts, cousins, parents that share this particular last name out of 9 Million records. Upon looking at the TOP 1000 Last Names in PA, I have discovered that PA has 695,430 Fewer People in the top 1000 Last Names. Literally, there are 14,776
+> — BobbyPiton (@BobbyPiton3) [December 27, 2020](https://twitter.com/BobbyPiton3/status/1342996475731697667?ref_src=twsrc%5Etfw)
+
+
+
+后记，每当看到美国人为大选结果做出怎样的抗争，发现怎样的舞弊行为，用怎样的方式验证选举结果，美国人如何被威胁了，一些网络名人、律师、议员、政要包括川普总统本人，如何站出来振臂高呼，说出真相的，凡此等等，所有的努力和行动，无不感动著我。当中共盘算著一个所谓“完美”的系统性惊天大阴谋以期盗取美国大选结果之时，哪里预想到，这个世界还有如此勇敢抗争的人，在美国的土地上，还有真正有脊梁有正气的人。中共对人民的蔑视和奴役，让他们忘记了什么是真正的人类，这个世界并非都是魔鬼和屈膝的奴隶。真正的人类最终战胜魔鬼，中共已经自掘好了坟墓。
+
+
+
+新闻和图片来源于Ivan Raiklin律师的推文
+
+
 
 0
