@@ -1,26 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【川普总统推文1226】马上结束230条款
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/687862/)
+## 【热点播报】路德提醒大家注意的白宫幕僚长马克.梅多斯，开始被悉尼.鲍威尔以及林伍德分别揭露
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/687969/)
 
-12月26日推文：
+作者/发稿：香草山写作组 村北
+
+据新闻周刊（Newsweek）12月26日报道，领导起诉大选舞弊的独立律师悉尼.鲍威尔指责川普总统身边的资深团队成员，称他们采取各种方式阻止鲍威尔律师为川普总统进行的起诉行动。她说她甚至被幕僚长负责的内勤局拒绝颁发进入白宫的通行证。
+
+![]()![](https://gnews.org/wp-content/uploads/2020/12/IMG_2263.jpg)
+
+上周五鲍威尔律师同川普在白宫椭圆办公室进行了四个半小时的会议，讨论大选舞弊案的调查诉讼，但川普身边的人对鲍威尔提出的人员任命一味的反对。之后的第二天，白宫幕僚长马克.梅多斯领导的内勤局还拒绝给鲍威尔颁发进入白宫西翼的通行证，也阻止了任何鲍威尔同川普通话的机会。
+
+鲍威尔说，川普口头通知了她将任命她为白宫特别法律顾问（Special Counsel，或译为特别检察官），但川普身边的白宫法律顾问办公室阻止鲍威尔将填写的任命文件交给川普。
+
+![]()![](https://gnews.org/wp-content/uploads/2020/12/Screen-Shot-2020-12-26-at-8.26.28-PM.png)
+
+林伍德律师也同期在推特上开始指责马克.梅多斯“只不过是又一只沼泽地里的老鼠”，和“对川普不忠诚”。林伍德还发推说梅多斯是“人民的背叛者”，“他应该被川普马上开除”。而且林伍德开公开称白宫首席法律顾问帕特·西波隆“每次去白宫都开辆不同的奢侈汽车…他只为钱工作…跟梅多斯和麦克奈尔一样”。
+
+几周前开始被路德节目反复提醒大家注意的更多川普身边的人，尤其是被路德成为权力巨大的白宫幕僚长，开始逐渐显露出沼泽地的痕迹。
 
 
-> 我不会眼睁睁地看着这个荒唐的法案发生，而不对大科技公司进行监管。现在就结束230条款，否则就太迟了。这对我们的国家很不利。拿出勇气来，做正确的事吧！！！
 
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-推文附上了12月23日总统回复国会的信，信上以数条原因否决了国防预算法案，其中一条是通讯安全法案的230条款需要被废除。今天川普总统再次向国会喊话，表明了其坚定的态度。
-
-
-
-> I will not stand by and watch this travesty of a bill happen without reigning in Big Tech. End Section 230 now, before it is too late. So bad for our Country. Show courage, and do what’s right!!! [https://t.co/V99lShpLCe](https://t.co/V99lShpLCe)
-> — Donald J. Trump (@realDonaldTrump) [December 26, 2020](https://twitter.com/realDonaldTrump/status/1342813418177392649?ref_src=twsrc%5Etfw)
-
-
-
-新闻素材和图片来自川普总统推推
-
-
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
 +1
