@@ -1,32 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [鲍威尔律师推文1226]-乔州、亚利桑那联网中共国
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/689771/)
+## 16州总检察长反对纽约总检察长解散全国步枪协会的图谋—后者由索罗斯资助
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/689845/)
 
-12月26日鲍威尔律师转发了推文：
-
-
-> 爆料：美国乔治亚州 Savannah县的最新法医取证审计显示，制表机将选举结果发往中国！!
-> 
-> 在亚利桑那州的听证会上。
-> “你有没有看到连接到互联网…”Colonel Waldron：”是的，我们 “白 “帽子的黑客，他们有那些流量和数据包。”
+- 编辑：Victor Torres
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
+**西班牙2020年12月27日电/西喜社——**
 
-> 🚨BREAKING: Latest forensic AUDIT in Savannah GA shows tabulation machines were sending election results to CHINA!!
-> 
-> 👉🏻Flashback to AZ hearings:
-> “Have you seen connection to the internet..”
-> 
-> Colonel Waldron: "Yes, our "White" hat hackers, they have that traffic & the packets." [https://t.co/1MkeY6qBMM](https://t.co/1MkeY6qBMM) [pic.twitter.com/C53BmVJnsC](https://t.co/C53BmVJnsC)
-> — Jali\_Cat{⭐️} (@Jali\_Cat) [December 26, 2020](https://twitter.com/Jali_Cat/status/1342863964435341312?ref_src=twsrc%5Etfw)
+据National File周六报道，受乔治·索罗斯（George Soros）资助选举的纽约州总检察长莱蒂蒂亚·詹姆斯，正在试图解体全国步枪协会（NRA），但是遭到了全国各地总检察长的一些反击。
 
+詹姆斯于2020年8月6日对全国步枪协会提起诉讼，要求法院解散这个宪法第二修正案倡导的组织。 詹姆士提出该集团财务违规和高管内部交易的怪异指控。
 
-“（司法部长）威廉巴尔太可耻了，他给美国留下了烂摊子，要永远破坏我们美丽自由的国家。犯罪就在我们眼皮下发生，本可以阻止犯罪的人和部门却视而不见。可耻！”
+“我们寻求解散全国步枪协会多年的内部交易和违法行为，这些行为违反了纽约的慈善法并破坏了其自身的使命。全国步枪协会从慈善任务中挪用了数百万美元，供高级领导个人使用。”詹姆斯在诉讼中说。
 
+詹姆斯继续说道：“我们的诉讼指控整个全国步枪协会，以及包括韦恩·拉皮埃尔（Wayne LaPierre）在内的四名高级领导人未能管理协会的资金，也没有遵守许多州和联邦法律。” “这些行动导致协会在短短三年内损失了超过6400万美元。”
 
-新闻来源于鲍威尔律师转发的推文
+作为回应，来自全国各地的16位州总检察长一起向美国纽约北区地方法院提交了“法庭之友”简报，反对詹姆士的诉讼，并支持针对詹姆斯的全国步枪协会反诉讼，后者指控纽约总检察长正试图侵犯《宪法第一修正案》中倡导组织的宪法权利。
+
+“纽约的诉讼是自由派总检察长的政治伎俩，她在竞选活动中承诺要追捕全国步枪协会。 它旨在破坏我们的第二修正案权利，”阿肯色州总检察长莱斯利·鲁特里奇（Leslie Rutledge）在一份声明中说。 “即使它使我在纽约这样的地方不受欢迎，我仍然致力于保护宪法，尤其是阿肯色人的携带武器权利。 这就是为什么我反对纽约总检察长的政治伎俩，并对能够领导这16个州支持全国步枪协会对抗纽约的诉讼感到自豪。”
+
+阿拉斯加州，乔治亚州，爱达荷州，堪萨斯州，肯塔基州，路易斯安那州，密西西比州，密苏里州，俄亥俄州，俄克拉荷马州，南卡罗来纳州，南达科他州，德克萨斯州，犹他州和西弗吉尼亚州的总检察长都加入了鲁特里奇反对詹姆斯的“法庭之友“简报。
+
+作为对压倒性诉讼反对的回应，以及对政治机会主义的一种反驳，詹姆斯回应了这份简报，他说：“ 全国步枪协会一直是欺诈，虐待和肆意违法的温床。 简而言之，烂摊子根深蒂固，这就是为什么我们解散组织的诉讼将继续保持下去的原因。”
+
+新闻来源：[https://nationalfile.com/attorneys-general-from-16-states-push-back-on-soros-funded-new-york-ags-plot-to-dismantle-the-nra/](https://nationalfile.com/attorneys-general-from-16-states-push-back-on-soros-funded-new-york-ags-plot-to-dismantle-the-nra/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
 0

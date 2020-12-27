@@ -1,33 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】某大银行为重点科技领域发放优惠贷款
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/689888/)
+## 法国开始注射疫苗，但公众保持警惕
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/690065/)
 
-香草山写作组  文初
-
-近日，随着美国制裁CCP企业名单陆续出台，墙内金融机构应该闻到了川普的火药味，天崩地裂的感觉越来越浓烈，某些被郭先生经常点名的金融机构昏招迭出，纷纷出台相关政策以应对当下已经出现或即将出现的危机，笔者12月中旬从特殊渠道获得情报：墙内某宇宙大行出台《关于对重点领域科技企业发放优惠贷款的通知》。该文属于机密级别，分为指导原则、政策配套和工作要求三个部分。
-
-第一部指导原则分为：提高政治站位、名单管理原则、市场化原则、额度管理原则和只做不说原则五个部分。从这五部分行文能够看出体制内金融系统已经预感到危机即将到来已经来不及进行压力测试，直接出台该政策，公开为一条线上的蚂蚱（重点科技领域）背书站台提供资金保障。
-
-第二部分政策配套分为：价格优惠、总行贴息、免除担保、快速审批、贷款增信、专人负责和尽职免责七个方面。这七各方面表明了态度，就是要不惜牺牲韭菜们的利益、不计成本、不顾员工的职业生涯直接输血给这些名单企业。
-
-第三部分工作要求分为：加强管理、审慎经营、把握期限、严控风险和严格保密。
-
-最后，笔者注意提醒诸位战友该文的发文日期为2020年12月17日，提前于美国制裁名单几天时间，说明ccp 盗国贼已得到情报，美国制裁不可避免。但CCP对其科技企业这种贷款上的支持只不过是治标不治本。
-
-![]()![](https://gnews.org/wp-content/uploads/2020/12/5-16-scaled.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2020/12/6-13-scaled.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2020/12/7-7-scaled.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2020/12/8-7-scaled.jpg)
+- 编辑：Victor Torres
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+**西班牙2020年12月27日电/西喜社——**
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+据美联社12月27日报道，法国巴黎周日在该国最贫穷地区之一的巴黎东北部的养老院开始了首次中共病毒疫苗接种，这是在欧洲范围内推广疫苗接种的一部分。
 
+巴黎地区公共卫生服务负责人欧瑞莲·卢梭（Aurelien Rousseau）在推特上说：“充满希望的紧张时刻。”
+
+一名姓毛里切特（Mauricette）的78岁妇女在塞夫兰（Sevran）镇接受了法国的第一剂疫苗注射。 当天晚些时候，将在第戎的Champmaillot家进行疫苗接种。
+
+民意调查显示，法国民众对新疫苗持怀疑态度，因此法国政府一直谨慎对待新疫苗，并没有将疫苗强制化。 政府希望到夏天能为6700万人中的2700万人接种疫苗。
+
+法国报告了，大流行中有62,570人丧生。 将近三分之一的人死于养老院，因此政府决定首先将疫苗接种给老人和有风险的医务人员。
+
+新闻链接：[https://apnews.com/article/persian-gulf-tensions-oman-lebanon-coronavirus-pandemic-muscat-6c8346d5ae6544dc6ac0caf3efb85626](https://apnews.com/article/persian-gulf-tensions-oman-lebanon-coronavirus-pandemic-muscat-6c8346d5ae6544dc6ac0caf3efb85626)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 0
