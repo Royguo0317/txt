@@ -1,68 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国制造的TCL高清电视存在安全风险
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/690914/)
+## 突发：福奇承认他故意隐瞒冠状病毒信息，称我们没有“准备好”知道真相
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/690995/)
 
-新闻来源：ZEROHEDGE《零对冲》；作者：TYLER DURDEN；发布时间：2020年12月25日
+新闻来源：Trending Politics)《政治趋势》；作者：Collin Rugg；发布时间：2020年12月24日
 
-翻译/简评：新街口；校对：SilverSpurs7；审核：万人往；Page：小雨
+翻译/简评：MikeHua；校对：Beicy-数学老师；审核：johnwallis；Page：拱卒
+
+[!\[\]()!\[\](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/22c0e47d-bb40-435f-9661-5b0b707eb28a.jpg?asset_id=ea4f1d14-a50b-426b-a5da-11b0fa2719af&amp;img_etag=%22e142f77bfa47c097e3db5d49852452bd%22&amp;size=1024)](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/22c0e47d-bb40-435f-9661-5b0b707eb28a.jpg?asset_id=ea4f1d14-a50b-426b-a5da-11b0fa2719af&amp;img_etag=%22e142f77bfa47c097e3db5d49852452bd%22&amp;size=1024)
 
 **简评：**
 
-这是一篇令人细思极恐的新闻报导。中共通过各种科技手段对全世界进行渗透和影响。以华为和中兴为代表的，通过建设国家级别的5G骨干通信网络来进行间谍和监控早已被西方各国所揭露和禁止。现在中共国竟然把电视机这种民用产品也安装了后门，其手段真是无孔不入，下贱至极。
-
-智能电视已经是每个家庭的必备产品，智能电视与其它智能产品必须要共享家庭网络。TCL电视的网络后门可以使入侵者轻易获取用户的各种信息和网络密码，直接访问智能电视的所有文件和电视目录，并入侵WIFI 网络内的其它设备，诸如电脑，摄像头等。
-
-中共发展军民一体化战略，以国家网络安全为名，实施、利用、强迫和绑架各种类型的中资企业为其实施间谍渗透任务。中共的这种行为已经越来越彻底地被世界各国所认知，从而产生的反作用力也是巨大的。这个反作用力的直接受害者就是这些被绑架的企业和企业员工。推翻中共政权才是中共国企业能够安全、合法地在国际市场进行商业活动的前提。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/yVKkOnHvC5M98/images/cb95b445-1abd-4b55-9957-92b977e8b5be.jpg?asset_id=16897220-4df9-4e6b-a7ea-e21353d1a7d2&amp;img_etag=%222775c73959ecc4fc1ffe76f3597affb9%22&amp;size=1024)](https://spark.adobe.com/page/yVKkOnHvC5M98/images/cb95b445-1abd-4b55-9957-92b977e8b5be.jpg?asset_id=16897220-4df9-4e6b-a7ea-e21353d1a7d2&amp;img_etag=%222775c73959ecc4fc1ffe76f3597affb9%22&amp;size=1024)
+老狐狸大鳄鱼福奇的尾巴终于露出来了。在疫情方面福奇和川普总统一直对着干，从一月开始疫情爆发的旅行禁令，到羟氯喹，疫苗一系列的问题，福奇都没有站在美国人民这边，而是昧着良心挣钱。闫博士和这种恶人渣就形成了鲜明对比。闫博士在乎生命，在乎人类的健康与未来，而福奇只看钱，世界人民的死亡在他眼里只是一个数字而已。试想如果没有爆料革命，没有咱们闫博士和其他无名战友的爆料，美国这次是处于多么危险的境地，美国的内贼和共产党通力合作足够把美国颠覆，把世界秩序颠覆，让世界遵循共产党的假丑恶秩序，人类将彻底进入地狱时代。但是现在我们能看到共产党的黑暗力量正在瓦解，美国和世界要经历一次重大的变革，这次变革就是要回归正道主义，回归人性和信仰上天，这次变革之后的世界一定容不下共产党，新中国联邦爆料革命打扫战场，一定是最后的赢家！
 
 **原文翻译：**
 
-**您的新TCL高清电视（中共国制造）是否存在安全风险？**
+## 突发：福奇承认他故意隐瞒冠状病毒信息，称我们没有“准备好”知道真相
 
-今年，来自中共国企业和技术的安全隐患已经倍受关注。这种担忧促使川普政府对社交软件“抖音”实施禁令，强迫其出售美国业务。美国政府还严厉打击了制造商华为和中兴通讯。国会最近通过的“中共病毒救援计划”，甚至准备19亿美元，用于帮助已经安装了这两家公司产品的美国公司来拆除这些设备。
+[!\[\]()!\[\](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/4cb2ccec-8306-4114-8420-6da9747dc60b.png?asset_id=76216118-b1e8-4e95-8798-d3c91b0a2b1c&amp;img_etag=%220ada67cc6a44a9733e864d89f3d4470c%22&amp;size=2560)](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/4cb2ccec-8306-4114-8420-6da9747dc60b.png?asset_id=76216118-b1e8-4e95-8798-d3c91b0a2b1c&amp;img_etag=%220ada67cc6a44a9733e864d89f3d4470c%22&amp;size=1024)
 
-最近，两位安全研究人员对另一家中共国科技公司——电视机制造商TCL发出了警告，美国最受欢迎的一些电视机都是TCL生产的。
+根据新的报道，安托尼·福奇博士声称他故意对冠状病毒事情撒谎，因为“国家还没准备好”知道真相。
 
-安全研究人员与黑客网站Sick Codes在11月的博客文章中指出：TCL的安卓系统电视机是非常脆弱的。
+在福奇电话访问的评论区评论爆炸了，根据纽约时报报道，在电话访问上，福奇说他故意改变了有关疫情的公开声明，因为他觉得人们没有准备好知道他真正的感受。
 
-*文章说：“我们9月底对低端安卓系统机顶盒进行研究时，发现了这些设备存在许多严重的设计缺陷。”*
+不管你怎么解释这个信息，福奇很明显是对美国人民的一个威胁。如果他真的隐瞒了他对冠状病毒的观点，福奇要对欺骗美国人民负责任。如果这是他编造事实，以掩盖过去对冠状病毒的误判，那么福奇自己不知道自己在做什么，因此不能被信任。
 
-*“无需深入研究每个设备的细微差别，所有智能电视产品都基于安卓系统”*
+[!\[\]()!\[\](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/3b60df99-9aeb-4778-8e6f-3830036dee58.jpg?asset_id=9bff0594-9c26-4304-8b51-a6525a5de095&amp;img_etag=%22feff9eb28d9f22f6e7590c7250e75f17%22&amp;size=3455)](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/3b60df99-9aeb-4778-8e6f-3830036dee58.jpg?asset_id=9bff0594-9c26-4304-8b51-a6525a5de095&amp;img_etag=%22feff9eb28d9f22f6e7590c7250e75f17%22&amp;size=1024)推文：https://twitter.com/megtirrell/status/1342092154408226816 Fauci博士对达到群体免疫力的估计一直在稳步提升。 @nytimes ‘小唐纳德-麦克尼尔报道。Fauci在上周举行的 @CNBC #恢复健康率可能是75-85%。
 
-研究人员发现，他们可以轻松进入这些设备的整个文件系统。
+看看每日传讯(Daily Caller)的报道：
 
-研究人员发现，他们可以轻松进入这些设备的整个文件系统。
+*据《纽约时报》周四报道，福奇一直在公开声明中缓慢增加他所说的达到“群体免疫”需要接种疫苗的美国人数量。他不断告诉《纽约时报》称他这么做是“部分基于新的科学结果，部分是基于他感觉美国现在可以接受他内心真实的想法”。*
 
-*“什么样的制造商会把设备的整个文件系统发布到一个网络服务器上？*
+*《纽约时报》报道，在疫情早期，福奇说美国需要60%到70%的人接种疫苗以达到群体免疫。现在他上周在一次CNBC的采访上说需要75%到80%甚至更多的人才能达到群体免疫。报道称，这个采访导致《纽约时报》问他为什么“移动了目标数值”。*
 
-后来，另一位叫约翰•杰克逊（John Jackson）的研究人员也加入了Sick Codes的研究。并且在10月，他们两位都通知了TCL这个漏洞。TCL 并没有及时给以回复，只是在晚些时候说他们会修补这个系统漏洞。
+*据称福奇在采访上说真实的数据应该达到90%的接种率。他同时承认几周前他故意把数字说低，因为很多美国人对接种疫苗表示怀疑。根据《纽约时报》，现在很多美国人可以接受接种疫苗了，于是福奇愿意将他的预期数字增加了。*
 
-在接受《Tom’s Guide》的采访时，Sick Codes发布了一个网站地址（URL），该网络服务器可以“对赞比亚的TCL智能电视的文件系统提供完全的访问权限”，并且作者能够浏览客户的电视目录。
+*福奇是许多届政府的重要医疗顾问，并且是一个被许多美国人民相信的人物，是有关冠状病毒大流行信息的来源。*
 
-在接受Security Ledger的另一次采访中，Sick Codes说：“相邻网络上的任何人都可以浏览电视的文件系统并下载他们想要的任何文件。”
+推特用户对于福奇的言论并不买账。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yVKkOnHvC5M98/images/45c87511-fcfd-4c54-84cb-58b57b65836e.png?asset_id=89fae482-fc0f-4692-b818-70e25db4705d&amp;img_etag=%22527a41a62d37af657c656e3988d35ec1%22&amp;size=2560)](https://spark.adobe.com/page/yVKkOnHvC5M98/images/45c87511-fcfd-4c54-84cb-58b57b65836e.png?asset_id=89fae482-fc0f-4692-b818-70e25db4705d&amp;img_etag=%22527a41a62d37af657c656e3988d35ec1%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/caf663ea-49b1-431e-a446-ca8e04a88cf0.jpg?asset_id=07ad8573-abea-48cb-98b2-358627166eb0&amp;img_etag=%22bd23c20beb21bc2c1db177ba8405d6fe%22&amp;size=2896)](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/caf663ea-49b1-431e-a446-ca8e04a88cf0.jpg?asset_id=07ad8573-abea-48cb-98b2-358627166eb0&amp;img_etag=%22bd23c20beb21bc2c1db177ba8405d6fe%22&amp;size=1024)“突发：医生和科学家们，包括福奇博士，在对美国人民撒谎，为了让我们服从他们的指令。对于他们来说，美国人民和盘中的龙虾差不多，他们慢慢地煮熟龙虾，希望我们不知道他们在杀死我们”。
 
-据《汤姆指南》报道，TCL向媒体发表了一个声明。
+![]()![](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/73829133-bb12-4354-b1f5-f1f3b7514f42.jpg?asset_id=620837b0-5937-4ac3-bdeb-230ad782d602&amp;img_etag=%22b4e85aac386fedd4cd30f811d29345f8%22&amp;size=2560)“这不是公共卫生官员该做的事情。他们不应该向公众隐瞒信息因为‘公众没有准备好听到我的意见’”。
 
-*声明说：“一名独立安全研究人员最近向TCL通报了安卓系统电视中的两个漏洞。*
+![]()![](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/dba54c56-784f-4010-bd7d-d5c33c1dd161.jpg?asset_id=507350c3-5a2a-436b-9f6e-69310a6aa15a&amp;img_etag=%225733f9ea281553878cd9f864eecaf9ba%22&amp;size=2560) “这种方法根本不‘科学’。科学会在第一时间给出直接答案，像好的医生就这么对待病人。他不断修改目标数值导致了民众低估了疫情的威胁”。
 
-*“TCL收到通知后，迅速采取措施进行调查、彻底测试、开发补丁，并实施发送更新解决问题的计划。更新设备和应用程序以增强安全性在技术行业中经常发生。这些更新将在未来几天分发给所有受影响的安卓电视机型。”*
+![]()![](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/385276df-ebfd-4984-8a3f-ca5bb814fb5f.jpg?asset_id=bbad739a-e528-4427-af37-8a3b3f8b7e8e&amp;img_etag=%22a4aafad9bcc2d47e9647df24a5fbc3b2%22&amp;size=2560)“福奇是个商人，不是科学家”。
 
-TCL进一步表示：“从现在起，我们正在制定流程，以更好地响应第三方发给我们的安全漏洞信息，并给我们的客户服务代理进行额外的系统升级培训。同时，我们还会建立在线报告系统。”TCL给PC Mag（《计算机杂志》）的声明中这样写道。
-
-值得指出的是，如Sick Codes在文章中的评论所述，他们指出的问题仅适用于TCL的安卓系统电视，不适用于Roku系统电视。TCL 目前在北美销售的大部分产品是Roku系统。实际上，TCL在7月才将安卓系统电视首次引入北美市场。
-
-国土安全部周二发布了一份新报告，名为“数据安全业务建议：使用与中共国公司关联的数据服务和设备的企业具有的风险和注意事项”。
-
-报告中未提及TCL和TCL生产的电视机
-
-*报告说：“中共国的数据收集行为给美国企业和客户带来了众多风险，包括：商业机密、知识产权和其他商业信息的盗窃；违反美国出口管理法律；违反美国隐私法；违反合同和服务条款；客户和员工的安全和隐私风险；中共政权监视和跟踪批评人士的风险；以及对美国企业声誉的损害。”*
-
-[原文链接](https://www.zerohedge.com/technology/your-new-tcl-hdtv-made-china-security-risk?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+[原文链接](https://trendingpolitics.com/breaking-fauci-admits-he-deliberately-lied-about-coronavirus-claims-we-weren-t-ready-for-truth/)
 
 [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
@@ -70,8 +56,8 @@ TCL进一步表示：“从现在起，我们正在制定流程，以更好地�
 
 [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/yVKkOnHvC5M98/)
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/70GAF0ctP4Vbc/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yVKkOnHvC5M98/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/yVKkOnHvC5M98/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0

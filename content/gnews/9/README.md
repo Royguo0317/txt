@@ -1,80 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 斯诺登发布影子政府非法收集美国人数据的信息，是否犯了罪？
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/690882/)
+## 中共正在偷偷摸摸地纂改《圣经》
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/690895/)
 
-翻译：康州盘古农场 – Bruce
-校对：康州盘古农场 – 烟波浩淼
-审核：康州盘古农场 – V
-![]()![](https://gnews.org/wp-content/uploads/2020/12/snd.png)
-许多人呼吁赦免埃里克·斯诺登（Eric Snowden），因为他揭露了 “影子政府（Deep State） “对所有美国人的间谍活动。
+新闻来源：First Things《第一件事》； 作者：Nina Shea（妮娜•谢伊）； 发布时间：2020年12月22日
 
-斯诺登所做的是揭露我们政府对所有美国人的非法间谍活动：
+翻译/简评：Linda B；校对：Beicy-数学老师；审核：万人往；Page：小雨
+![]()![](https://gnews.org/wp-content/uploads/2020/12/122701.jpg)
+**简评：**
 
+中共对美国不仅在经济、政治和信息上进行侵略性的行动，更是从很早就开始计划把基督教共产化，也就是让西方人和中共国十几亿的中国人一样相信“党”，而不是相信上帝。美国的圣经出版商把圣经印刷业务交给了中共，就是把信仰上帝的权力交给了一个危险的敌人。因为中共从不承认上帝的存在，相反，它要消灭人们对上帝的信仰。中共对圣经的随意修改让很多美国人，比如本文的作者妮娜•谢伊（Nina Shea），哈德森学院宗教自由中心的主任醒悟过来，看清中共的本质。她在文章中告诉人们：当中共迫害宗教人士、亵渎圣经原意的时候，中共统战部的官员却和中共国基督教协会的人一起欢乐地聚会.
 
+在中共基督教的网站上写着**《基督教全国两会全体同工学习全国人大政协会议精神 》**。学习党的政治会议精神已经成为中共治理下的基督教必须学习的内容，这是中共企图凌驾上帝之上的邪恶精神。上帝必须要消灭中共这个否定上帝、否定宗教自由的恶魔。只要有中共的存在，人们就不会被允许有信仰自由。《圣经》就是一部反独裁、反极权的真理书和启蒙书。
 
-> Edward Snowden exposed the worst 4th Amendment violations in US history: the unlawful collection of data on millions of Americans.
-> 
-> His fight was on behalf of the American people.
-> 
-> For that [@Snowden](https://twitter.com/Snowden?ref_src=twsrc%5Etfw) deserves a pardon from [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) [pic.twitter.com/y2w9KFLJLA](https://t.co/y2w9KFLJLA)
-> — Techno Fog (@Techno\_Fog) [December 17, 2020](https://twitter.com/Techno_Fog/status/1339420669218611200?ref_src=twsrc%5Etfw)
+现在是时候让美国的圣经出版商把印刷《圣经》的业务交给那些信仰上帝、尊重宗教自由的国家了。
+[!\[\]()!\[\](https://spark.adobe.com/page/SEFXZrXmdBhTE/images/057481b1-8207-4444-85d2-3eb6de4f5b2d.jpg?asset_id=5effc6d9-2fa1-4a54-8b74-fded6ca10153&amp;img_etag=%22ae40125eb0c1c1e08a10ed73810abd3c%22&amp;size=1024)](https://spark.adobe.com/page/SEFXZrXmdBhTE/images/057481b1-8207-4444-85d2-3eb6de4f5b2d.jpg?asset_id=5effc6d9-2fa1-4a54-8b74-fded6ca10153&amp;img_etag=%22ae40125eb0c1c1e08a10ed73810abd3c%22&amp;size=1024)
+#### **原文翻译：**
 
+# 中共国对《圣经》的威胁
 
+《圣经》是美国最畅销的书，每年的销量都超过畅销书前20名的总和。然而，一家中共国公司几乎垄断了《圣经》印刷，这意味着供应链中的任何破裂（例如，由于美国或中共政府的政策）都会导致美国《圣经》短缺。这对美国基督徒的基本宗教自由权和国家安全都构成了严重威胁。
 
-*爱德华**·斯诺（Edward Snowden）登揭露了美国历史上最严重的违反第四修正案的行为：非法收集数百万美国人的数据。*
+美国最大的圣经出版公司每年印刷超过2000万本新教和天主教《圣经》。但是很少有人知道，这些《圣经》中的大多数都是由中共国的爱德印刷有限公司（Amity Printing Company）印刷的。（不在中共国印刷的圣经出版商包括校际出版社（IVP），圣伊格纳蒂斯出版社，圣本尼迪克特出版社，剑桥大学出版社，艾伦父子和舒勒圣经。）由于美国出版商的决定，美国基督徒对《圣经》的需求依靠着一个压制基督教的国家来供给。随着中共在国内加剧了宗教迫害，并且被美国情报机构视为“当今对美国的最大威胁”，这条《圣经》供应链越来越不稳定。然而圣经出版商还没有计划另择其他的印刷公司。
 
-*他的斗争是代表美国人民的。*
+供应链在2019年受到了考验，当时川普政府提出了广泛的贸易关税，以更好地平衡中美贸易关系。由于该计划包括针对《圣经》的关税，因此美国的圣经出版商反对这项措施，自己和北京方面一起竭力地游说华盛顿。现在是全球最大的圣经出版商的哈珀•柯林斯（HarperCollins）基督教出版公司（HCCP）（已收购宗德尔万/Zondervan和托马斯尼尔森/ThomasNelson）和美国最大的私人基督教出版商廷代尔之家（Tyndale House）一样，都使用爱德（Amity）公司印刷了大部分《圣经》。哈珀•柯林斯基督教出版公司（HCCP）首席执行官马克•舒恩瓦尔德（Mark Schoenwald）去年在美国贸易委员会上谴责了拟议的关税。他称其为“圣经税”，并认为这将迫使他的公司减少销售并终止某些版本《圣经》的出版。川普政府迅速从中共关税中免除了《圣经》。
 
-*为此，**@斯诺登应该得到@唐纳德·川普的赦免。*
+基督教事工出版商也进行了游说，他们认为关税将限制《第一修正案》的权利。福音派基督教出版者协会主席斯坦•詹茨（Stan Jantz）宣布，关税将“严重阻碍《圣经》的方便使用”。他在贸易委员会上说：“有些人认为这样的关税实际上会限制宗教自由。”南部浸信会伦理与宗教自由委员会主席拉塞尔•摩尔（Russell Moore）说：“拟议的关税将影响所有基督徒在美国行使其宗教自由的能力。”生活之道基督教资源首席执行官本•曼德雷尔(Ben Mandrell)牧师宣称：“令我感到困扰的是，在国际贸易争端中，上帝的话语会被当作人质。在过去的几个月中，我们坚定了将《圣经》提供给需要的人的决心。无论华盛顿特区有任何的政策建议，我们的任务都是建立在对基督的服从上。”
 
-*2020年12月17日 下午12:02*
+不难想象，如果中共政府在供应链上施加一点压力，美国圣经出版商就会有动力去游说反对其他对中共国同样具有强硬性的政策，从而有效地使他们成为北京的软实力资产。关税威胁已经结束，但是《圣经》仍然处于危险之中—-迫在眉睫的是中国共产党的政策，而不是华盛顿的政策。国家情报局局长约翰•拉特克利夫（John Ratcliffe）指出，许多中共国知名公司只是“为共产党活动提供了一层伪装”。爱德印刷有限公司也不例外。它与中共国基督教理事会（CCC）有联系，中共国基督教理事会在2018年受到了中共的直接监督和指导。
 
-斯诺登发布了关于窃取数据的信息，以及美国国家安全局为自己的目的发布使用数据的计划。
+[!\[\]()!\[\](https://spark.adobe.com/page/SEFXZrXmdBhTE/images/e00a5a60-085f-402b-ba02-90f8c3c62803.png?asset_id=62dd766e-7e4f-4021-b187-63c844a868b6&amp;img_etag=%2233cf4fd2245e5e57867d798a2fdabbf9%22&amp;size=2560)](https://spark.adobe.com/page/SEFXZrXmdBhTE/images/e00a5a60-085f-402b-ba02-90f8c3c62803.png?asset_id=62dd766e-7e4f-4021-b187-63c844a868b6&amp;img_etag=%2233cf4fd2245e5e57867d798a2fdabbf9%22&amp;size=1024)
 
-[Techno Fog on Twitter: “Recall what Snowden helped expose: 1) The illegal collection of metadata of millions of Americans 2) NSA plans to “Collect it All” and “Exploit it All” 3) Economic espionage and the abuse of private data https://t.co/rXvB1ga46A” / Twitter](https://twitter.com/Techno_Fog/status/1339421907423248386)
+上个世纪八十年代，时任中共国基督教理事会(CCC)主席的中共国英国国教主教丁（Ting）提议将爱德公司作为其新的爱德基金会与联合圣经协会（UBS）的合资企业，向中共国教会提供《圣经》。联合圣经协会（UBS）同意并捐赠了启动资金，印刷机和圣经纸，并继续为中文《圣经》提供资金。1988年联合圣经协会主席为南京爱德印刷公司奠基。如今，爱德公司在南京的工厂面积为85000平方米，全天候运营，是世界上最大的《圣经》印刷厂。它为147个国家用130多种语言印刷了超过2亿本《圣经》（每年多达2500万本精装本）。
 
-*回想一下斯诺登帮助揭露的内容：*
+爱德公司既便宜又高效，拥有最先进的印刷技术和从外国公司购得的印刷机。但由于最近中共政府的指令，爱德公司的声誉可能很快会受到重创。2018年，在爱德公司的家乡南京，北京宣布将启动一项计划，要重新翻译或重新诠释古老的《中国联合圣经》，以使其与中共政策保持一致。“基督教中共化”这是新五年计划的一部分。中共国基督教专家有理由担心，即将发布的版本会舍弃《启示录》，并通过新的圣经注释来歪曲道德课。例如，约翰福音第8章中的耶稣宽恕通奸女人的说法，已在2020年的中共教科书（在政府开办的中等职业学校中使用）中被更改，声称耶稣用石头砸死了那个女人。
 
-*1）数百万美国人非法收集**对**数据**定义和解释的数据*
+爱德公司对这一令人震惊的指令有何反应？它赞助了一个庆祝活动，该活动致力于“中共国圣经和基督教中共国化的主题”。在那里，中共统战部的官员被镜头捕捉到和中共国基督教理事会（CCC）以及联合圣经协会（UBS）的人围成一圈跳舞，给他们敬酒并接受贵宾(VIP)待遇。这些发生在两年前，中共法规在中共互联网上审查《圣经》，禁止青年人参加教堂服务和圣经营地，并授权焚烧未经中共授权拥有的《圣经》之后。
 
-*2）国家安全局（NSA）计划“全部收集”和“全部利用”*
+到目前为止，还没有来自美国出版商的强烈抗议。他们没有利用自己的力量来阻止对家庭教会的持续镇压，他们也没有用教会的力量来释放现在已经服刑九年的秋雨圣约教会的王怡牧师；基督教书商陈煜，于今年十月被判处七年徒刑；天主教民主倡导者赖智贤（Jimmy Lai）在香港可能会面临无期徒刑。
 
-*3）经济间谍活动和滥用私人数据*
+尽管他们的初衷是善意的，但现在发行商陷入了困境。随着中共(CCP)继续加强其控制，保护该供应链将变得站不住脚。美国圣经出版商可以立即将《圣经》印刷转移出中共国，从而最好地维护美国人的《第一修正案》权利及其声誉。
 
-斯诺登的信息显示，影子政府正在监视每个人，然后将其用于自己的目的，甚至可能将数据卖给世界各地的暴徒，以谋取私利。
+[!\[\]()!\[\](https://spark.adobe.com/page/SEFXZrXmdBhTE/images/ce0059e7-b356-470c-ba14-89cedff06337.jpg?asset_id=beeed6f5-00bf-4ce6-af12-3a6e4ac9c3af&amp;img_etag=%22da64d52a1a9c243b9c7057c0780c9aa1%22&amp;size=2560)](https://spark.adobe.com/page/SEFXZrXmdBhTE/images/ce0059e7-b356-470c-ba14-89cedff06337.jpg?asset_id=beeed6f5-00bf-4ce6-af12-3a6e4ac9c3af&amp;img_etag=%22da64d52a1a9c243b9c7057c0780c9aa1%22&amp;size=1024)
 
-[Techno Fog on Twitter: “Forget the clichés and talking points of pundits and gov’t officials. Instead, read the source documents hosted by @ggreenwald They show the scope of domestic surveillance abuses and global US operations. https://t.co/ZjSYddBfTS https://t.co/HOgmGGKPBa” / Twitter](https://twitter.com/Techno_Fog/status/1339422757671591936)
+妮娜•谢伊（Nina Shea）是哈德森学院宗教自由中心的主任。
 
-*忘记专家和政府官员的陈词滥调和谈话要点。*
+[原文链接](https://www.firstthings.com/web-exclusives/2020/12/chinas-threat-to-the-bible)
 
-*相反，请阅读由“@ggreenwald”托管的源文档*
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-*它们显示了国内监视滥用和美国全球行动的范围。*
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-[http://glenngreenwald.net/#BookDocuments](http://glenngreenwald.net/#BookDocuments)
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-斯诺登因为直面”影子政府 “而受到迫害
-
-[Techno Fog on Twitter: “Prosecuting Snowden isn’t about “justice” – if that was the case they’d have locked up the US officials who authorized and abused these programs. This is about retaliation. This is about an entitled Establishment who thinks they own your information. Let Snowden come home.” / Twitter](https://twitter.com/Techno_Fog/status/1339423897263992833)
-
-*起诉斯诺登不是**“正义”问题，如果真是这样，他们将封锁授权并滥用这些程序的美国官员。*
-
-*这是报复。*
-
-*这是关于一个有权的机构，认为他们拥有您的信息。*
-
-*让斯诺登回家。*
-
-**埃里克·斯诺登是受害者，或者说是影子政府的报复**。
-
-*（我们强烈建议您观看电影——《斯诺登》）。）*
-
-原文作者：乔·霍夫特（Joe Hoft）
-
-发布时间：2020年12月27日 上午8:15
-
-原文来源：[https://www.thegatewaypundit.com/2020/12/eric-snowden-commit-crimes-releasing-information-deep-states-illegal-collection-data-americans/?ff\_source=Twitter&ff\_medium=PostTopSharingButtons&ff\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/12/eric-snowden-commit-crimes-releasing-information-deep-states-illegal-collection-data-americans/?ff_source=Twitter&amp;ff_medium=PostTopSharingButtons&amp;ff_campaign=websitesharingbuttons)
-
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/SEFXZrXmdBhTE/)
+[!\[\]()!\[\](https://spark.adobe.com/page/SEFXZrXmdBhTE/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/SEFXZrXmdBhTE/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

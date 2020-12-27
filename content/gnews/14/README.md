@@ -1,52 +1,80 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西德尼-鲍威尔称白宫助手正在阻挠她帮助川普
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/690822/)
+## 斯诺登发布影子政府非法收集美国人数据的信息，是否犯了罪？
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/690882/)
 
-作者：TOM OZIMEK  2020年12月25日，更新于: 2020年12月26日
-翻译：康州盘古农场-Mike Li
-校对：康州盘古农场-Freeearth
-编辑：康州盘古农场-V
-![]()![](https://gnews.org/wp-content/uploads/2020/12/IMG_2372-3-1200x720-1.jpg)西德尼-鲍威尔，图片：大纪元
-律师西德尼-鲍威尔在12月23日接受Zenger新闻采访时表示，白宫高级助手正在防止她与总统唐纳德-川普進行沟通，并阻止她代表总统承担正式的协调角色，以應對选举竞赛的挑战。
+翻译：康州盘古农场 – Bruce
+校对：康州盘古农场 – 烟波浩淼
+审核：康州盘古农场 – V
+![]()![](https://gnews.org/wp-content/uploads/2020/12/snd.png)
+许多人呼吁赦免埃里克·斯诺登（Eric Snowden），因为他揭露了 “影子政府（Deep State） “对所有美国人的间谍活动。
 
-《纽约时报》首次报道了周五在椭圆形办公室举行的紧张会议，川普、鲍威尔、前国家安全顾问迈克尔-弗林（Michael Flynn）、白宫幕僚长马克-梅多斯（Mark Meadows）和白宫顾问帕特-西波隆（Pat Cipollone）参加了这次會議。据报道，国家安全顾问罗伯特-奥布莱恩和特朗普律师鲁迪-朱利安尼通过电话参加了此次會議。
+斯诺登所做的是揭露我们政府对所有美国人的非法间谍活动：
 
-鲍威尔告诉Zenger新闻，在周五的会面中，川普口头上向她提出了 “白宫特别顾问 “的职位，但她一直无法向总统提交能够使其正式生效的文件，她的任命实际上已经被阻止了。
 
-“还没有实现，”鲍威尔说，”因为它似乎在周五晚上之后被白宫高级工作人员阻止了，或者取消了，或者我不知道你会怎么解释它”。
 
-采访者问：”有人往齿轮里扔了沙子？” 鲍威尔回答：”差不多吧.”
+> Edward Snowden exposed the worst 4th Amendment violations in US history: the unlawful collection of data on millions of Americans.
+> 
+> His fight was on behalf of the American people.
+> 
+> For that [@Snowden](https://twitter.com/Snowden?ref_src=twsrc%5Etfw) deserves a pardon from [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) [pic.twitter.com/y2w9KFLJLA](https://t.co/y2w9KFLJLA)
+> — Techno Fog (@Techno\_Fog) [December 17, 2020](https://twitter.com/Techno_Fog/status/1339420669218611200?ref_src=twsrc%5Etfw)
 
-“自从我周五晚上离开椭圆形办公室后，我就被阻止与总统说话或交流，”鲍威尔说，”显然是总统身边的人在阻止我”。
 
-鲍威尔澄清说，她得到的角色 “不是罗伯特-穆勒式的特别顾问”，但 “曾有过关于我成为白宫特别顾问的讨论”。特别顾问由司法部长任命，而白宫特别顾问可以由总统任命。
 
-司法部长威廉-巴尔周一在新闻发布会上表示，他认为沒有理由任命一名特别顾问来调查选举舞弊指控。
+*爱德华**·斯诺（Edward Snowden）登揭露了美国历史上最严重的违反第四修正案的行为：非法收集数百万美国人的数据。*
 
-巴尔说：”如果我认为现阶段的特别顾问是正确的工具，是合适的，我会指派一名，但我没有，我也不会这样做。”他坚持他早些时候的评估，即司法部没有发现足以推翻选举的重大规模的欺诈证据。
+*他的斗争是代表美国人民的。*
 
-他说：”我是在评论我们在多大程度上考慮了会影响选举结果的系统性或广泛的欺诈建议或指控，我已经谈到了这一点，我坚持这一说法。” 他认为11月3日 “这次选举中存在欺诈行为”。他说 “我只想说，不幸的是，在大多数选举中都有欺诈行为，我认为我们对此太宽容了。”
+*为此，**@斯诺登应该得到@唐纳德·川普的赦免。*
 
-巴尔辞去了司法部长的职务，12月23日是他任职的最后一天。
+*2020年12月17日 下午12:02*
 
-川普在周三的推特上，兩次呼吁任命特别顾问调查选举舞弊。
+斯诺登发布了关于窃取数据的信息，以及美国国家安全局为自己的目的发布使用数据的计划。
 
-川普寫到：”我不同意任何人认为不立即指派一个强大的、快速的、公平的特别顾问的建议。立即。这是我们国家历史上最腐败的选举，必须严加审查！” 。
+[Techno Fog on Twitter: “Recall what Snowden helped expose: 1) The illegal collection of metadata of millions of Americans 2) NSA plans to “Collect it All” and “Exploit it All” 3) Economic espionage and the abuse of private data https://t.co/rXvB1ga46A” / Twitter](https://twitter.com/Techno_Fog/status/1339421907423248386)
 
-自选举日以来，川普和第三方团体在六个战场州对选举结果进行了法律挑战。迄今为止，这些努力都没有取得成果。
+*回想一下斯诺登帮助揭露的内容：*
 
-川普的顾问纳瓦罗（Peter Navarro）上周发布了一份详细的报告，总结了六个战场州的选举违规指控，认为这些指控严重到需要进行紧急调查，而且实质内容足以有可能推翻选举结果。
+*1）数百万美国人非法收集**对**数据**定义和解释的数据*
 
-纳瓦罗在报告中说，”如果不在就职日之前对这些选举违规行为进行全面调查，从而有效地让这些违规行为受到审判，这个国家就会面临再也无法举行公平的总统选举的现实风险。”
+*2）国家安全局（NSA）计划“全部收集”和“全部利用”*
 
-据《新闻周刊》报道，白宫新闻秘书凯莉-麦克纳尼拒绝就是否有白宫高级官员阻止鲍威尔进入白宫发表评论。
+*3）经济间谍活动和滥用私人数据*
 
-白宫没有立即回应《大纪元时报》关于鲍威尔与川普接触或她的任命状况的询问。
+斯诺登的信息显示，影子政府正在监视每个人，然后将其用于自己的目的，甚至可能将数据卖给世界各地的暴徒，以谋取私利。
 
-文章链接：
+[Techno Fog on Twitter: “Forget the clichés and talking points of pundits and gov’t officials. Instead, read the source documents hosted by @ggreenwald They show the scope of domestic surveillance abuses and global US operations. https://t.co/ZjSYddBfTS https://t.co/HOgmGGKPBa” / Twitter](https://twitter.com/Techno_Fog/status/1339422757671591936)
 
-https://www.theepochtimes.com/mkt\_app/sidney-powell-says-white-house-aides-are-blocking-her-efforts-to-help-trump\_3632491.html
+*忘记专家和政府官员的陈词滥调和谈话要点。*
+
+*相反，请阅读由“@ggreenwald”托管的源文档*
+
+*它们显示了国内监视滥用和美国全球行动的范围。*
+
+[http://glenngreenwald.net/#BookDocuments](http://glenngreenwald.net/#BookDocuments)
+
+斯诺登因为直面”影子政府 “而受到迫害
+
+[Techno Fog on Twitter: “Prosecuting Snowden isn’t about “justice” – if that was the case they’d have locked up the US officials who authorized and abused these programs. This is about retaliation. This is about an entitled Establishment who thinks they own your information. Let Snowden come home.” / Twitter](https://twitter.com/Techno_Fog/status/1339423897263992833)
+
+*起诉斯诺登不是**“正义”问题，如果真是这样，他们将封锁授权并滥用这些程序的美国官员。*
+
+*这是报复。*
+
+*这是关于一个有权的机构，认为他们拥有您的信息。*
+
+*让斯诺登回家。*
+
+**埃里克·斯诺登是受害者，或者说是影子政府的报复**。
+
+*（我们强烈建议您观看电影——《斯诺登》）。）*
+
+原文作者：乔·霍夫特（Joe Hoft）
+
+发布时间：2020年12月27日 上午8:15
+
+原文来源：[https://www.thegatewaypundit.com/2020/12/eric-snowden-commit-crimes-releasing-information-deep-states-illegal-collection-data-americans/?ff\_source=Twitter&ff\_medium=PostTopSharingButtons&ff\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/12/eric-snowden-commit-crimes-releasing-information-deep-states-illegal-collection-data-americans/?ff_source=Twitter&amp;ff_medium=PostTopSharingButtons&amp;ff_campaign=websitesharingbuttons)
 
 0

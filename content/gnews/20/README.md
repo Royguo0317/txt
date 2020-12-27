@@ -1,33 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 丑闻缠身的中共外交官刘晓明即将卸任
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/690743/)
+## 【林伍德推文1227】鲍威尔律师270页外国干预美国大选的文件出版
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/690812/)
 
-俄罗斯莫斯科喀秋莎农场 文强
+2020年12月27日，据The Gateway Pundit报道，西德尼-鲍威尔律师本周在Zenger发布了一份关于外国干涉2020年美国总统大选、大规模舞弊的爆炸性文件（海妖2.0）。
 
-校对上传 银河
-![]()![](https://gnews.org/wp-content/uploads/2020/12/3500.jpg)图片来源：The Guardian
-中共“战狼”外交官、驻英国大使刘晓明即将卸任。刘晓明在任上被爆出诸多丑闻，尤其曾“点赞”色情视频引争议。其职位由中共外交部副部长郑泽光接任。
+该文件包括270页的宣誓书、证据、众多证人和消息来源的证词。
 
-据《南华早报》报道，全国人大常委谭耀宗12月26日在全国人大常委会的会议后透露，中共国驻英国大使刘晓明即将退休，由中共国外交部副部长郑泽光接任。截止目前，中共官方尚未证实上述消息。对此，有分析指出，中共驻英国大使的变化，是在两国关系逐渐恶化的情况下进行的。
+文件详细说明了所有选举舞弊行为、涉及的人名和所有的情况。
 
-近年来，中共最高层推行强硬外交政策，外界指责中共搞“战狼外交”。自2009年担任中共驻英国大使以来，现年64岁的刘晓明，一直在英国以战狼姿态实践“习近平外交思想”。多次在BBC等节目上颠倒黑白，声称《中英联合声明》已经过期无效，抨击中共的批评者，对中共镇压香港民主倡导人士以及在新疆地区大规模拘禁维吾尔族人的批评进行黑白颠倒的反击等。他因经常颠倒黑白，抨击中共批评者而被称为“战狼”。
+该文件包括军方的证词，并详细说明了从干涉、到投票机欺诈的起源，再到网络安全上外国入侵美国选举系统等等。
 
-今年9月份，刘晓明又传出丑闻，其官方认证的推特账号 @AmbLiuXiaoMing为一段色情视频点赞，之后有关刘晓明点赞淫秽视频的推特截屏也广为流传，此事被英国媒体报导，刘晓明老脸丢尽。刘晓明没有直接对点赞争议作出回应。但他发布了一条推文，内容是一句鲜为人知的格言“好砧不怕锤”，似乎是宣布自己的清白。
+Zenger报道说，“鲍威尔律师认为，该文件证明外国直接干预的欺诈行为玷污了11月3日的总统选举，唐纳德-川普总统获得了连任。”
 
-刘晓明因其跌入谷底的形象已经无法胜任驻英大使职务，继任者刘泽光被寄以厚望，希望可以挽救及维持中共与英国的关系。英国不止在2021年G7峰会担任主席国，脱欧后的经济政策的改变，更让中共迫不及待与英国建立新的合作关系。
+#### [点击阅读该文件全文](https://wpcdn.zenger.news/wp-content/uploads/2020/12/24190822/2020-12-23-Sidney-Powell-Team-Binder-ZENGER-NEWS.pdf)
 
-参考链接：
+林伍德律师转推了这篇文章。
 
-[https://www.soundofhope.org/post/457624](https://www.soundofhope.org/post/457624)
 
-[https://www.zaobao.com/realtime/china/story20201227-1111743](https://www.zaobao.com/realtime/china/story20201227-1111743)
 
-[https://cn.nytimes.com/china/20200911/china-ambassador-twitter/](https://cn.nytimes.com/china/20200911/china-ambassador-twitter/)
+> My good friend GA Governor [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw) & his cohort in crime [@GaSecofState](https://twitter.com/GaSecofState?ref_src=twsrc%5Etfw) do not want to hear from me.
+> 
+> Would someone be so kind as to provide Brian & Brad with this TRUTH? Give it [@GeoffDuncanGA](https://twitter.com/GeoffDuncanGA?ref_src=twsrc%5Etfw) too.
+> 
+> Thanks![https://t.co/Xoc0sa5YIu](https://t.co/Xoc0sa5YIu)
+> — Lin Wood (@LLinWood) [December 27, 2020](https://twitter.com/LLinWood/status/1343266258008104960?ref_src=twsrc%5Etfw)
 
-[http://cn.epochtimes.com/gb/20/12/27/n12647114.htm](http://cn.epochtimes.com/gb/20/12/27/n12647114.htm)
 
-[https://www.scmp.com/news/china/diplomacy/article/3115430/chinas-ambassador-britain-liu-xiaoming-set-retire](https://www.scmp.com/news/china/diplomacy/article/3115430/chinas-ambassador-britain-liu-xiaoming-set-retire)
+
+新闻素材和图片来自林伍德律师推特和
+
+[https://www.thegatewaypundit.com/2020/12/attorney-sidney-attorney-sidney-powell-releases-270-page-document-on-massive-2020-election-fraud-involving-foreign-interference-releases-270-page-document-massive-2020-election-fraud-involving-foreign/](https://www.thegatewaypundit.com/2020/12/attorney-sidney-attorney-sidney-powell-releases-270-page-document-on-massive-2020-election-fraud-involving-foreign-interference-releases-270-page-document-massive-2020-election-fraud-involving-foreign/)
+
+
 
 0
