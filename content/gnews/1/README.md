@@ -1,29 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 朱利安尼：圣诞节后选举舞弊证据“即将爆炸”，“一下子”变得清晰
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/689726/)
+## [鲍威尔律师推文1226]-乔州、亚利桑那联网中共国
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/689771/)
 
-- 编辑：Victor Torres
-- 翻译：里奇
+12月26日鲍威尔律师转发了推文：
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+> 爆料：美国乔治亚州 Savannah县的最新法医取证审计显示，制表机将选举结果发往中国！!
+> 
+> 在亚利桑那州的听证会上。
+> “你有没有看到连接到互联网…”Colonel Waldron：”是的，我们 “白 “帽子的黑客，他们有那些流量和数据包。”
 
-**西班牙2020年12月27日电/西喜社——**
 
-总统的律师在圣诞节的播客中宣称：“这将令整个国家感到震惊。”
 
-鲁迪·朱利安尼（Rudy Giuliani）在播客节目”常识”的圣诞节预告片中对听众说：“圣诞节后开始, 对11月3日总统大选结果合法性的挑战一定会爆发”。
 
-川普总统的私人律师朱利安尼说：“由于这些歪曲的电视网络，报纸，大科技公司和民主党领导人一直在给你的证据是错误的，所以你会突然一下子全部了解真相。” “这会让这个国家感到非常震惊。”
+> 🚨BREAKING: Latest forensic AUDIT in Savannah GA shows tabulation machines were sending election results to CHINA!!
+> 
+> 👉🏻Flashback to AZ hearings:
+> “Have you seen connection to the internet..”
+> 
+> Colonel Waldron: "Yes, our "White" hat hackers, they have that traffic & the packets." [https://t.co/1MkeY6qBMM](https://t.co/1MkeY6qBMM) [pic.twitter.com/C53BmVJnsC](https://t.co/C53BmVJnsC)
+> — Jali\_Cat{⭐️} (@Jali\_Cat) [December 26, 2020](https://twitter.com/Jali_Cat/status/1342863964435341312?ref_src=twsrc%5Etfw)
 
-朱利安尼（Giuliani）的严厉警告是在总统持续对选举结果提出法律挑战的另一次挫折之后提出的。
 
-在圣诞节前夕，联邦上诉法院维持了下级法院的裁决，驳回了川普总统的主张，主张内容为威斯康星州选举委员会在其为 “丢失或不正确的缺席选票见证人证书地址，选民声称无限期受限的身份以及缺席选票箱。” 提供的指导意见中有违宪行为。
+“（司法部长）威廉巴尔太可耻了，他给美国留下了烂摊子，要永远破坏我们美丽自由的国家。犯罪就在我们眼皮下发生，本可以阻止犯罪的人和部门却视而不见。可耻！”
 
-出于程序和实质性原因对总统的裁决，美国第七巡回上诉法院的三名法官组成的小组裁定：“威斯康星州以其立法机关指示的方式合法任命了选民”，并补充说：“总统的主张之所以失败另一原因是，伴随着总统现在希望针对威斯康星州的选举程序提出的挑战所带来的不合理拖延。”
 
-新闻链接：[https://justthenews.com/politics-policy/elections/trump-election-challenge-really-going-blow-after-christmas-says-giuliani](https://justthenews.com/politics-policy/elections/trump-election-challenge-really-going-blow-after-christmas-says-giuliani)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+新闻来源于鲍威尔律师转发的推文
+
 0
