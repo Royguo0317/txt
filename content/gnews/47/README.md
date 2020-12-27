@@ -1,61 +1,99 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【文雍漫谈】眼见庚子日无多 却怕辛丑更难活
-` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/689457/)
+## 【Raiklin律师推文1227】乔州胜出 &amp; 宾州新舞弊证据
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/689683/)
 
-作者：美国纽约七星会农场｜文雍
+12月27日Ivan Raiklin 律师转发了以下推文。
 
-编辑、美工：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2020/12/文雍漫談41.jpg)
-这几天，伴随着圣诞节到来的还有网友们的感慨：2020年，快点过去吧！“太难了”已成本年度的共识，可是，在即将到来的辛丑年，一切会好起来吗？
+关于乔治亚州
 
-这一年，伴随着疫情的蔓延、反复，人类饱受煎熬，连过节都没有了心情。
 
-26日，是被中共洗脑洗成残废的五毛们的节日，为了纪念毛太祖的冥诞，数以万计的毛粉顶着疫情这颗定时炸弹，凌晨开始集结在韶山。通过视频可以看到，一望无际的脑残嚎哭跪拜的场景。其宏大程度和朝鲜人民纪念金二胖有一拼。悲催的是今年的活动参与者不再停留在广场舞大妈层面，而是吸纳了很多年轻的面孔。脑残低龄化的苗头日趋明显。阴魂不散的毛太祖近年借尸还魂附体中南坑里的大学问猪，相当成功。
-![]()![](https://gnews.org/wp-content/uploads/2020/12/WhatsApp_Image_2020-12-26_at_22.11.46.jpg)
-看上去，妥妥的二次文革按钮已经完全启动。
+> 川普总统… 您的领导赢得了乔治亚州参议员选举… … 我要向大家展示一下有多少 #幻觉睡眠投票者 的存在… 今天到现在为止已经工作了12个小时。 这些选举不需要重新选举… GOP已经赢了 我希望我可以证明这一点.
 
-据各种史料记载，从延安整风到土改、反右、文革、大饥荒等一系列惨绝人寰的反人类恶行，被毛太祖这个刽子手直接间接杀害的中国人不低于一个亿。这还不算，毛太祖对中国人民犯下的最大罪恶，莫过于他打开了人类的潘多拉魔盒，让人性中最邪恶的部分彻底释放出来，人人害我，我害人人的互害模式开启，传统文化中慎独、自省等好的方面被扼杀殆尽，而亲亲尊尊、父父子子那一套糟粕却得以继承。
 
-就是这样一个罪恶滔天的恶魔，竟然有那么多跪拜者，可见中共的“信息茧房”有多么密不透风，洗脑有多么成功。
+Raiklin 律师回推时说：
 
-十四亿蚕宝宝被茧房牢牢把控，除了会歌颂独裁极权的《大秦赋》，就是韶山朝拜毛太祖，已经活得交出了尊严，只剩下本能。
 
-这个多灾多难的庚子，这个人类的2020，拜中共病毒所赐，所有的人都命如蝼蚁。人人都在瞬间切换的阴阳符号间活得战战兢兢；生活交错着生离死别、分分合合中充满了无奈和惊悚，那些还没到告别时间的人们因为这场突如其来的病毒，不得不过早地离开这个世界。
+> 乔治亚州！（好消息）
+> 
+> 不需要新一轮选举了吗？
 
-这一年，也见证了人类历史上最奇诡的大选。信仰与坚守、人性与魔性，乱纷纷同台登场，多元互戕，动态博弈。
 
-这一年，为了抗疫，许多人失去了自由，许多人失去了亲人，中共强行封掉单元门，又画地为牢，给每个人配上了健康码，简单粗暴任性的统治发挥到了极致。所有这一切，都是假抗疫之名。
 
-即将过去的这一年，是否能带走所有的艰难？在这一年里被病毒夺去生命的无辜的灵魂，会不会得到应有的缅怀？在这一年里用尽全力才活下来的幸存者们，在即将到来的辛丑年，改善境遇的梦想会不会再次落空？
 
-这一年，中共的小康元年，人们遗憾地送走了活活饿死的吴花燕；天堂里这个轻飘飘的女孩，是否如她所愿，乘一艘丰衣足食的小船，看一看她的云贵高原的女儿风？
+> GEORGIA!
+> 
+> No Runoff necessary?! [https://t.co/k88LgyIdEI](https://t.co/k88LgyIdEI)
+> — “Activate Emergency Alert System!” Ivan Raiklin (@Raiklin) [December 27, 2020](https://twitter.com/Raiklin/status/1343127300657836033?ref_src=twsrc%5Etfw)
 
-这一年，气势如瘟神的警察拔光了老奶奶赖以生存的菜园，当老奶奶的遗体被打捞上岸，那些逼死老奶奶的刽子手良心是否在疼？
 
-这一年，有个小小的吹哨人，留下了“健康的社会不能只有一种声音”的遗言；
 
-这一年，一个女中豪杰冲破地狱之门，站在了唤醒人类的风口浪尖！从此别过了故友亲朋！
+相关其他推文：
 
-这一年，旅美“社会学家”充满了喜感：14亿人死4000等于没死，报喜丧的水平让世界汗颜；
+滑稽的宾夕法尼亚州
 
-这一年，最不堪的御赐勋章带货大王钟南山，从莲花清瘟到板蓝根、从冬虫夏草到酸奶饮料，使出了吃奶的力气，赚了个盆满钵满、泉水叮咚！
 
-这一年，农夫和蛇的故事一再上演，从敲盆呼救到反咬救命人的武汉女青年；沈阳的杨妈妈粥铺打出条幅，祝福“小日本”疫情长远。
+> 尊敬的
+> 
+> @POTUS 美国总统 @真正的唐纳德-川普
+> 
+> 我有一些关于宾夕法尼亚州绝对令人震惊的消息要报告。 我检查了超过9,008,753条记录，确定了521 879个独特的姓氏。 245,033个，也就是宾夕法尼亚州所有姓氏中的47%，只属于一个人，而且只是一个人!
 
-这一年最劲爆的，要数挟十四亿韭菜到处撒泼为非作歹的中共，竟然全程干预了美国大选，美国人以为是给自己选总统，其实是在给中共选帮凶。
 
-内外勾结、无所不用，黄钟毁弃、釜瓦雷鸣；房倒屋塌、其势汹汹！这是一场终极战争，为了偷走美国，为了奴役全世界，妖魔鬼怪都现了原形。
 
-当川普总统连任的尘埃落定，全球贸易走到了死胡同；当一切阴谋水落石出，中共的假骗偷也走到了尽头；当病毒变异让疫苗失效，抗疫也走到了死胡同。人类要想生存下去，已经没有选择。炸掉中南坑、强拆南海军事基地、进驻武汉实验室，查找释放病毒的元凶，而要想做到这一切，只有灭共！
 
-当至暗时刻被阳光驱散，当人类重新迎来黎明，未来的辛丑年，等待中共的，将是怎样的惊悚？同胞们，醒一醒吧，让我们彼此相携，灭共的路上，请与我们——新中共联邦，一起风雨兼程！
+> The Honorable [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) 
+> I have some absolutely Stunning News to report regarding PA. I examined just over 9,008,753 records and have identified 521,879 unique Last Names. 245,033 or just under 47% of the total Last Names in PA only belong to 1 and only 1 person!
+> — BobbyPiton (@BobbyPiton3) [December 27, 2020](https://twitter.com/BobbyPiton3/status/1342996474972540928?ref_src=twsrc%5Etfw)
 
-更多精彩内容请关注：
 
-- [美国纽约七星会农场（为子孙爱七哥）GTV](https://gtv.org/user/5e986b24b005bd6d929820bd)
-- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19044815/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-2.jpg)
+
+> 这500个少了的名字（低于全国范围的估计）核对过是958,044（人）。 这刚好是宾州消失的695,000到958,000人。 川普总统，我有一个所有失踪人员姓名的详细数据。
+
+
+
+
+
+> 我不知道该怎么说，我看到的是如此疯狂的彻头彻尾的欺诈。近100万美国人的选票被偷走了! 对于这种对伟大的宾夕法尼亚州的犯罪行为，必须逮捕。
+
+
+
+
+> I am a loss for words that I am looking at such INSANE Outright Fraud. That almost 1 million Americans had their Vote STOLEN from them! Arrests need to be made for this crime against the Great State of Pennsylvania. [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) [@tracybeanz](https://twitter.com/tracybeanz?ref_src=twsrc%5Etfw) [@LLinWood](https://twitter.com/LLinWood?ref_src=twsrc%5Etfw) [@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw) [@Kathy4Truth](https://twitter.com/Kathy4Truth?ref_src=twsrc%5Etfw)
+> — BobbyPiton (@BobbyPiton3) [December 27, 2020](https://twitter.com/BobbyPiton3/status/1342996478269272065?ref_src=twsrc%5Etfw)
+
+
+
+
+> 史密斯的人名比应该有的人少 19,591个，威廉姆斯失踪了，30,830个约翰逊找不到人。 11,656个杰克逊失踪。 宾夕法尼亚州到底发生了什么事。 在宾州排名前1000的名字中，正好有500人的名字在应该在那里的投票被缺失。。
+
+
+
+
+> fewer Smiths, than should be there. 19,591 Williams have gone missing, 30,830 Johnson's are no where to be found. 11,656 Jackson went MIA. What in the world is going on in PA. Exactly 500 of the top 1000 names in PA have a deficit in the number of people that should be there.
+> — BobbyPiton (@BobbyPiton3) [December 27, 2020](https://twitter.com/BobbyPiton3/status/1342996476658647040?ref_src=twsrc%5Etfw)
+
+
+
+
+> 再次，在900万条记录中，没有兄弟、姐妹、姑姑、表兄弟、父母使用特殊的姓氏。 在看了宾夕法尼亚州的前1000名姓氏后，对应有695,430人减少了。 从字面上看，有14,776个
+
+
+
+
+> Once again, no brothers, sisters, aunts, cousins, parents that share this particular last name out of 9 Million records. Upon looking at the TOP 1000 Last Names in PA, I have discovered that PA has 695,430 Fewer People in the top 1000 Last Names. Literally, there are 14,776
+> — BobbyPiton (@BobbyPiton3) [December 27, 2020](https://twitter.com/BobbyPiton3/status/1342996475731697667?ref_src=twsrc%5Etfw)
+
+
+
+后记，每当看到美国人为大选结果做出怎样的抗争，发现怎样的舞弊行为，用怎样的方式验证选举结果，美国人如何被威胁了，一些网络名人、律师、议员、政要包括川普总统本人，如何站出来振臂高呼，说出真相的，凡此等等，所有的努力和行动，无不感动著我。当中共盘算著一个所谓“完美”的系统性惊天大阴谋以期盗取美国大选结果之时，哪里预想到，这个世界还有如此勇敢抗争的人，在美国的土地上，还有真正有脊梁有正气的人。中共对人民的蔑视和奴役，让他们忘记了什么是真正的人类，这个世界并非都是魔鬼和屈膝的奴隶。真正的人类最终战胜魔鬼，中共已经自掘好了坟墓。
+
+
+
+新闻和图片来源于Ivan Raiklin律师的推文
+
+
+
 0

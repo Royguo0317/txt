@@ -1,99 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【Raiklin律师推文1227】乔州胜出 &amp; 宾州新舞弊证据
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/689683/)
+## 【新闻视角】小姑娘的无助
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/689795/)
 
-12月27日Ivan Raiklin 律师转发了以下推文。
+搜集整理：螃蟹团长
 
-关于乔治亚州
+撰文：酒色姐姐
 
+覆核：MY
 
-> 川普总统… 您的领导赢得了乔治亚州参议员选举… … 我要向大家展示一下有多少 #幻觉睡眠投票者 的存在… 今天到现在为止已经工作了12个小时。 这些选举不需要重新选举… GOP已经赢了 我希望我可以证明这一点.
-
-
-Raiklin 律师回推时说：
-
-
-> 乔治亚州！（好消息）
-> 
-> 不需要新一轮选举了吗？
+配图：文粤
 
 
 
+文贵先生盖文里配的小视频，看了令人心痛不已。
 
-> GEORGIA!
-> 
-> No Runoff necessary?! [https://t.co/k88LgyIdEI](https://t.co/k88LgyIdEI)
-> — “Activate Emergency Alert System!” Ivan Raiklin (@Raiklin) [December 27, 2020](https://twitter.com/Raiklin/status/1343127300657836033?ref_src=twsrc%5Etfw)
+这类小视频在墙内微信圈很普遍，经常可以看到。好心人，爱心人士帮助留守儿童，孤寡老人，的好事迹在民间，非官网流传。从另一角度讲，中国还存在温饱未解决问题。特别是边远山区经济落后的地方。
 
+这个小姑娘的视频，相对别的小视频还算是不错的，孤寡老人八九十多岁还要自己种地养活自己，十一二岁的姐姐和七八岁的弟弟相依为命，靠村里救济过日子，没有学可以上。这些流传在微信圈的个体发出来的小视频除了告诉人们还有很多人在温饱线上挣扎，有很多爱心人士在帮助，远远不能解决现状外，更多的是看不到有关部门贴心的关怀扶助，更是打脸中共的谎言。
 
+前不久的2020.11.23，央视13频道新闻播出一个好消息，贵州的9个贫困县脱贫摘帽，至此，中国22个省832个贫困县全部脱贫摘帽。中共又打了胜仗，决战决胜！中共脱贫的经验全世界羡慕，纷纷来淘经。太了不起了，有意思的是，我们看新闻播报的各省脱贫时间点，真的是如雨后春笋，争先恐后的脱贫。
 
-相关其他推文：
+中共所谓的脱贫战争自2019.11.23.开始，至央视播出最后9个贫困县刚好一年时间，832个贫困县就全部完成，这是人类史上没有过的，也是中共70年来的又一个创纪录。我们看新闻里说各省脱贫时间线：2019.11.23西藏——2020.2.22重庆，2.26黑龙江，2.27陕西，28河南，29海南河北，3.2湖南，5内蒙古，6山西，4.11吉林，21青海，26江西，29安徽，9.14湖北，11.14新疆云南，16宁夏，17四川，20广西，21甘肃，23贵州，太了不起了。这些省份都上了光荣榜，但是细心的人们发现，直至发稿今天广西都脱贫官网滚动广告上还提示距离脱贫还有4天，讽刺之极。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/造假.jpg)图片：广西壮族自治区灵山县
+在广西的扶贫工作人员中，最基层的工作人员竟然是各村各镇的老师。编者的同学有很多是老师，平时聊天都有透露他们的工作。他们都被安排任务，要扶贫多少个家庭。这些老师必须在工作日，下班后或双休日去扶贫，有时候课也不上了，上面有领导下来检查，要去开扶贫会议，会议结束，各人领到上面的奖赏，分点小钱，小礼物犒劳犒劳。扶贫工作落到实处就上去帮忙插秧割禾之类的，并没有什么改革方案，致富点子。扶贫只是虎头蛇尾的面子工程，放到央视新闻上一吹，就成了光辉事业。
 
-滑稽的宾夕法尼亚州
+根据文贵先生的爆料我们知道中共的假骗偷恶。从广西最基层的扶贫工作可以验证中共的假和骗。真正需要扶贫的人没有得到帮助，扶贫工作不到位，更没有实际的扶贫项目，仅仅是为了完成下达的扶贫任务，形式上摘除了贫困的帽子而已，当地的居民贫困丝毫未减，苦难依旧深重！
 
+像小视频里小姑娘这样情况也就不难理解。这是这个制度的结果，是共产党这个组织的邪恶所致
 
-> 尊敬的
-> 
-> @POTUS 美国总统 @真正的唐纳德-川普
-> 
-> 我有一些关于宾夕法尼亚州绝对令人震惊的消息要报告。 我检查了超过9,008,753条记录，确定了521 879个独特的姓氏。 245,033个，也就是宾夕法尼亚州所有姓氏中的47%，只属于一个人，而且只是一个人!
-
-
-
-
-> The Honorable [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) 
-> I have some absolutely Stunning News to report regarding PA. I examined just over 9,008,753 records and have identified 521,879 unique Last Names. 245,033 or just under 47% of the total Last Names in PA only belong to 1 and only 1 person!
-> — BobbyPiton (@BobbyPiton3) [December 27, 2020](https://twitter.com/BobbyPiton3/status/1342996474972540928?ref_src=twsrc%5Etfw)
-
-
-
-
-> 这500个少了的名字（低于全国范围的估计）核对过是958,044（人）。 这刚好是宾州消失的695,000到958,000人。 川普总统，我有一个所有失踪人员姓名的详细数据。
-
-
-
-
-
-> 我不知道该怎么说，我看到的是如此疯狂的彻头彻尾的欺诈。近100万美国人的选票被偷走了! 对于这种对伟大的宾夕法尼亚州的犯罪行为，必须逮捕。
-
-
-
-
-> I am a loss for words that I am looking at such INSANE Outright Fraud. That almost 1 million Americans had their Vote STOLEN from them! Arrests need to be made for this crime against the Great State of Pennsylvania. [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) [@tracybeanz](https://twitter.com/tracybeanz?ref_src=twsrc%5Etfw) [@LLinWood](https://twitter.com/LLinWood?ref_src=twsrc%5Etfw) [@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw) [@Kathy4Truth](https://twitter.com/Kathy4Truth?ref_src=twsrc%5Etfw)
-> — BobbyPiton (@BobbyPiton3) [December 27, 2020](https://twitter.com/BobbyPiton3/status/1342996478269272065?ref_src=twsrc%5Etfw)
-
-
-
-
-> 史密斯的人名比应该有的人少 19,591个，威廉姆斯失踪了，30,830个约翰逊找不到人。 11,656个杰克逊失踪。 宾夕法尼亚州到底发生了什么事。 在宾州排名前1000的名字中，正好有500人的名字在应该在那里的投票被缺失。。
-
-
-
-
-> fewer Smiths, than should be there. 19,591 Williams have gone missing, 30,830 Johnson's are no where to be found. 11,656 Jackson went MIA. What in the world is going on in PA. Exactly 500 of the top 1000 names in PA have a deficit in the number of people that should be there.
-> — BobbyPiton (@BobbyPiton3) [December 27, 2020](https://twitter.com/BobbyPiton3/status/1342996476658647040?ref_src=twsrc%5Etfw)
-
-
-
-
-> 再次，在900万条记录中，没有兄弟、姐妹、姑姑、表兄弟、父母使用特殊的姓氏。 在看了宾夕法尼亚州的前1000名姓氏后，对应有695,430人减少了。 从字面上看，有14,776个
-
-
-
-
-> Once again, no brothers, sisters, aunts, cousins, parents that share this particular last name out of 9 Million records. Upon looking at the TOP 1000 Last Names in PA, I have discovered that PA has 695,430 Fewer People in the top 1000 Last Names. Literally, there are 14,776
-> — BobbyPiton (@BobbyPiton3) [December 27, 2020](https://twitter.com/BobbyPiton3/status/1342996475731697667?ref_src=twsrc%5Etfw)
-
-
-
-后记，每当看到美国人为大选结果做出怎样的抗争，发现怎样的舞弊行为，用怎样的方式验证选举结果，美国人如何被威胁了，一些网络名人、律师、议员、政要包括川普总统本人，如何站出来振臂高呼，说出真相的，凡此等等，所有的努力和行动，无不感动著我。当中共盘算著一个所谓“完美”的系统性惊天大阴谋以期盗取美国大选结果之时，哪里预想到，这个世界还有如此勇敢抗争的人，在美国的土地上，还有真正有脊梁有正气的人。中共对人民的蔑视和奴役，让他们忘记了什么是真正的人类，这个世界并非都是魔鬼和屈膝的奴隶。真正的人类最终战胜魔鬼，中共已经自掘好了坟墓。
-
-
-
-新闻和图片来源于Ivan Raiklin律师的推文
-
-
+以上观点仅代表笔者本人
 
 0
