@@ -1,70 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1226】- FBI局长雷应该被解雇
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/687749/)
+## 港中大中国研究服务中心面临“重组”，香港再失学术自由
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/687742/)
 
-12月26日林伍德律师推文：
+俄罗斯莫斯科喀秋莎农场 银河
 
+校对上传 星河
+![]()![](https://gnews.org/wp-content/uploads/2020/12/rgrgrg.jpg)
+12月26日美国之音新闻报道，早在12月10日便从香港中文大学校方得到消息，该校高层11月决定关闭 “中国研究服务中心”（USC），将于12月中成立中心“重组”过渡委员会。香港中文大学中国研究服务中心，一个于1963年由研究中国大陆的西方学者成立，于1988年并入港中大且一直独立运作；一个有50多年历史享誉全球、被誉为“中国研究麦加”的学术机构，终在“港版国安法”的利刃下不复存在。香港言论自由和新闻自由已在中共的高压酷政打压下荡然无存，而今学术自由也在不断遭受侵蚀。
 
-> 忙着说真话，时间过得真快! 午休时间到了。不过，再多说几句真话。
-> 
-> 1. 联邦调查局局长Christopher Wray必须立即被解雇。
-> 
-> 2. 查查@kslaw King & Spalding律师事务所与Wray的关系，
-> 
-> 以及 @RodRosenstein （2017年美国司法部副部长）和Sally Yates （乔治亚州北区司法厅厅长）的关系。
-> 
-> 3. 都是一丘之貉。
+该中心是当代中国国情研究资料最为齐全的图书馆，收藏涵盖了50年代初至今中国的省级及全国性报纸、期刊，以及学术机构、政府出版报刊的印刷版和电子版；完整的全国、省、市级综合及专业年鉴和统计资料；省市县乡镇级地方志，包括县一级的土地、粮食、财税、教育、水利等专门志等。更有大量的有关1949到1976中国政治运动的资料和在大陆备受争议的纪录片等极有价值的珍贵文献，包括土改、反右、大饥荒、文革、上山下乡等史料和记录片。该中心还收藏了罕见的、只供特定级别官员阅读的新华社《内参》（内部参考），涉及了过去中国军队军级到师级单位的众多史料。
 
+港中大在答复媒体关于“重组”的原因时，拒绝承认是因为传闻中的来自中联办等外部压力，称是将现存馆藏“作为一个命名馆藏，整合至中大图书馆中”的调整。 但是毋庸置疑的，此举将导致该中心丧失其独立、自由的学术地位，而对于所有珍贵文献是否够得到保存和一如既往的面向所有学者公开便不得而知。对于研究中国的学者来说，这将是一个毁灭性损失。在传出“重组”的同时，该中心共同主任之一的李磊（Pierre F. Landry）也传出递交了辞职申请。
 
+中国研究服务中心首位主任、纽约大学法学院教授孔杰荣(Jerome Cohen) 在接受美国之音访谈时表示，在《港版国安法》高压大环境下，对于一个在11月19日向警方报警抓捕校内所谓“港独”学生和人士的中大来说，校方关闭有特殊历史及现实作用的中国研究服务中心并不奇怪。中大的举动表明，香港的学术自主和自由遭受重创。
 
+自从2019年6月9日香港民众勇敢的走上街头反对《逃犯条例》，反送中运动从平和游行演变成警察暴力执法、残害港人；到中共单方面实施《港版国安法》，香港人民在中共的高压迫害下，失去了言论自由、媒体自由、司法自由、学术自由。中共正全力摧毁这座曾经以民主、自由享誉世界的独立政治经济中心。爆料革命和新中国联邦的创始人郭文贵先生说到：中共对港人的打压形同当年的六四，希望港人要坚守，为自己的尊严、民主、法治坚持住！
 
-> Time flies when you are busy speaking truth! Time for lunch break. But first, a few more truths:
-> 
-> 1. FBI Director Christopher Wray must be fired immediately.
-> 
-> 2. Research [@kslaw](https://twitter.com/kslaw?ref_src=twsrc%5Etfw) law firm connections with Wray, [@RodRosenstein](https://twitter.com/RodRosenstein?ref_src=twsrc%5Etfw) & Sally Yates.
-> 
-> 3. Birds of a feather flock together.
-> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342894152686723079?ref_src=twsrc%5Etfw)
+中共政权已经进入倒计时，全世界正义的民主国家纷纷对香港施以援手。而香港，作为中国土地上的民主之魂，一定会克服困难，在新中国联邦的土壤上再次绽放，香港—圣城耶路撒冷。
 
+参考链接：
 
+[https://www.bbc.com/zhongwen/simp/world-55441519](https://www.bbc.com/zhongwen/simp/world-55441519)
 
+[https://www.voachinese.com/a/USC-At-CUHK-To-Be-Closed-Under-Alleged-Political-Pressure20201226/5714142.html](https://www.voachinese.com/a/USC-At-CUHK-To-Be-Closed-Under-Alleged-Political-Pressure20201226/5714142.html)
 
-
-> Birds of a feather??? [pic.twitter.com/XumE6F4HRN](https://t.co/XumE6F4HRN)
-> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342896538704613383?ref_src=twsrc%5Etfw)
-
-
-林伍德：都是一丘之貉吧？
-在另一则推文中，他指出：
-
-
-> 我看到Quinn Warner和Richard Jewell之间相似之处，很令人不安。
-> 
-> Richard被联邦调查局（FBI）诬告。他是一个替罪羊，所以FBI可以向世界宣称它 “抓住了自己人”，而这个人就是理查德-朱厄尔。
-> 
-> 理查德没有炸毁奥林匹克公园。
-> 
-> 联想一下。
-
-
-
-
-> I see disturbing similarities between Anthony Quinn Warner & Richard Jewell.
-> 
-> Richard was falsely accused by FBI. He was a scapegoat so that FBI could claim to world that it “had its man” & the man was Richard Jewell.
-> 
-> Richard did not bomb Olympic Park.
-> 
-> Connect the dots.
-> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342970524121620481?ref_src=twsrc%5Etfw)
-
-
-
-新闻素材和图片来自林伍德律师推特
-
-
-
-0
++1

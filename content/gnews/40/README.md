@@ -1,55 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1226】-枪支的问题
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/687711/)
+## 【林伍德律师推文1226】- FBI局长雷应该被解雇
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/687749/)
 
 12月26日林伍德律师推文：
 
 
-> 思考与回答的问题：
+> 忙着说真话，时间过得真快! 午休时间到了。不过，再多说几句真话。
 > 
-> (1) 为什么我们的政府要关闭弹药供应？
+> 1. 联邦调查局局长Christopher Wray必须立即被解雇。
 > 
-> (2)为什么ATF试图修改关于80%枪支套件的法律，以禁止它们和公民自制枪支的能力？
+> 2. 查查@kslaw King & Spalding律师事务所与Wray的关系，
 > 
-> (3) C.J. John Roberts（首席大法官）会维护第二修正案的权利吗？答案：不会。不会。
-
-
-
-
-> Questions to ponder & answer:
+> 以及 @RodRosenstein （2017年美国司法部副部长）和Sally Yates （乔治亚州北区司法厅厅长）的关系。
 > 
-> (1) Why is our government shutting down the ammunition supply?
+> 3. 都是一丘之貉。
+
+
+
+
+> Time flies when you are busy speaking truth! Time for lunch break. But first, a few more truths:
 > 
-> (2) Why is ATF trying to change law on 80% Gun Kits to ban them & ability of citizens to build their own guns?
+> 1. FBI Director Christopher Wray must be fired immediately.
 > 
-> (3) Would C.J. John Roberts uphold 2nd Amendment rights? Answer: NO.
-> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342888293411807235?ref_src=twsrc%5Etfw)
-
-
-
-网友发推：
-
-
-> 再次，媒体正在推动消除枪支。我们的祖先认为，持枪的权利可以防止政府被（非法）接管。历史表明，任何政府接管之前，他们解除了公民的武装。希特勒做到了，而在我们的革命战争之前，英国乔治国王告诉我们要解除武装，好在我们现在没有。
-
-
-林伍德律师回复道：真理。
-
-
-
-> TRUTH. [https://t.co/cNr3VD8HjU](https://t.co/cNr3VD8HjU)
-> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342891096175763456?ref_src=twsrc%5Etfw)
-
-
-
-新闻素材来自林伍德律师推特
-
-图片来源 home.army.mil
+> 2. Research [@kslaw](https://twitter.com/kslaw?ref_src=twsrc%5Etfw) law firm connections with Wray, [@RodRosenstein](https://twitter.com/RodRosenstein?ref_src=twsrc%5Etfw) & Sally Yates.
+> 
+> 3. Birds of a feather flock together.
+> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342894152686723079?ref_src=twsrc%5Etfw)
 
 
 
 
 
-+1
+> Birds of a feather??? [pic.twitter.com/XumE6F4HRN](https://t.co/XumE6F4HRN)
+> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342896538704613383?ref_src=twsrc%5Etfw)
+
+
+林伍德：都是一丘之貉吧？
+在另一则推文中，他指出：
+
+
+> 我看到Quinn Warner和Richard Jewell之间相似之处，很令人不安。
+> 
+> Richard被联邦调查局（FBI）诬告。他是一个替罪羊，所以FBI可以向世界宣称它 “抓住了自己人”，而这个人就是理查德-朱厄尔。
+> 
+> 理查德没有炸毁奥林匹克公园。
+> 
+> 联想一下。
+
+
+
+
+> I see disturbing similarities between Anthony Quinn Warner & Richard Jewell.
+> 
+> Richard was falsely accused by FBI. He was a scapegoat so that FBI could claim to world that it “had its man” & the man was Richard Jewell.
+> 
+> Richard did not bomb Olympic Park.
+> 
+> Connect the dots.
+> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342970524121620481?ref_src=twsrc%5Etfw)
+
+
+
+新闻素材和图片来自林伍德律师推特
+
+
+
+0

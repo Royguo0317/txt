@@ -1,49 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】日本紧急封国一个月，全球经济受重创
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/687626/)
+## 【林伍德律师推文1226】-枪支的问题
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/687711/)
 
-作者：香草山写作组 wilson
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23222242/GNEW-GTV-MOS-LOGO-2-1.jpg)
+12月26日林伍德律师推文：
 
 
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16225049/12176.png)
-
-据日媒报道，日本政府于2020年12月26日发布消息称，该国从28日起，全面暂停来自所有国家和地区的新入境。该禁令的实施时间自2020年12月28日起至明年1月底。
-![]()![](https://gnews.org/wp-content/uploads/2020/12/W020201226828578800833.jpg)
-中共病毒的强变异及高传染性，迫使日本政府作出了封国举措。近来中共病毒发生基因突变，病毒株的感染性增强70%，继在欧洲6国被发现后，全球5大洲相继发现这种被新命名为 VUI-202012/01 的变种病毒。
-同时，日本国内的疫情也非常严重，据共同社26日消息，日本东京都政府26日公布，25日东京新确诊949人感染新冠病毒，超过24日的888人，创单日新高。
-短评:效法日本封国的国家会越来越多。
-二战后日本一直是稳定的出口大国，其供应链遍布全世界，日本更是全球产业链中最重要的一环之一。
-全世界疫情加重及日本封国将重创全球经济。简单打个比喻，在日本生产的某个汽车部件，供应给分布在世界各地的10家汽车工厂，当日本厂家的供应中断时，这10家关联工厂只能跟着停工。
-中共病毒的威力在于，产业链断裂造成的实业倒闭和工人失业，将在参与全球产业链国家的所有经济领域连锁发生，动摇全球经济体系。
-直接后果是各国的财政收入直线下降，社会救助、抗疫支出大幅增加，政府只能拼命印钞维系，主权货币贬值失控，随后恶性通胀爆发，而通胀对经济的破坏力同样巨大。当政府工作人员领到的薪水是和废纸无异的纸币时，社会将失控，骚乱、饥荒甚至战争等次生灾害接踵而至，人类由此步入末日模式决非危言耸听。
-闫丽梦博士早在今年4月就发出严厉警告留给人类的时间不多了，唯有灭共才能从根本上解除中共病毒对人类的威胁。
-
-校对发稿：悟空
-参考源：
-
-http://intl.ce.cn/qqss/202012/26/t20201226\_36160221.shtml
-https://news.sina.com.cn/w/2020-12-26/doc-iiznctke8624852.shtml
-日本东京新确诊949人感染新冠，再创新高
-强变异中共病毒失控 最大受害者中共国百姓 – GNEWS
+> 思考与回答的问题：
+> 
+> (1) 为什么我们的政府要关闭弹药供应？
+> 
+> (2)为什么ATF试图修改关于80%枪支套件的法律，以禁止它们和公民自制枪支的能力？
+> 
+> (3) C.J. John Roberts（首席大法官）会维护第二修正案的权利吗？答案：不会。不会。
 
 
 
-> [强变异中共病毒失控 最大受害者中共国百姓](https://gnews.org/zh-hans/673819/)
+
+> Questions to ponder & answer:
+> 
+> (1) Why is our government shutting down the ammunition supply?
+> 
+> (2) Why is ATF trying to change law on 80% Gun Kits to ban them & ability of citizens to build their own guns?
+> 
+> (3) Would C.J. John Roberts uphold 2nd Amendment rights? Answer: NO.
+> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342888293411807235?ref_src=twsrc%5Etfw)
 
 
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+网友发推：
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23222242/GNEW-GTV-MOS-LOGO-2-1.jpg)
+> 再次，媒体正在推动消除枪支。我们的祖先认为，持枪的权利可以防止政府被（非法）接管。历史表明，任何政府接管之前，他们解除了公民的武装。希特勒做到了，而在我们的革命战争之前，英国乔治国王告诉我们要解除武装，好在我们现在没有。
+
+
+林伍德律师回复道：真理。
+
+
+
+> TRUTH. [https://t.co/cNr3VD8HjU](https://t.co/cNr3VD8HjU)
+> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342891096175763456?ref_src=twsrc%5Etfw)
+
+
+
+新闻素材来自林伍德律师推特
+
+图片来源 home.army.mil
+
+
 
 
 

@@ -1,44 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德推文1226】-AT&amp;T数据中心被炸毁销赃
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/687686/)
+## 【字幕】12/26/2020文贵：共产党你完了……
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/687729/)
 
-12月26日林伍德律师推文：
+制作： 【彩虹桥】
 
+走了走路，真舒服啊，兜一圈相当的不孬，兜一圈相当的相当的不孬，太多监控系统了，“咔…”你看看..就这监控系统，你说说无处不在，结果现在共产党布着全天下，最多的监控系统，卖出了监控的武器，结果共产党现在被自己的监控系统彻底拿下，掌握了绝对的灭绝人寰的，人类大屠杀、种族大屠杀，还有制造病毒 都被拿下，你说这..你说这..
 
-> Tennessee州府Nashville的AT&T数据中心是否被昨天的炸弹炸毁？
-> 
-> 接入互联网的AT&T手机或Wi-Fi信号是否被用于连接Dominion投票机？
-> 
-> 问问朋友。
-> 
-> 附言：投票机连接互联网是违法的。
+所以说人哪，别做恶，真的假不了，假的真不了，最后一切都会大白于天下。相信不？共产党就是你最好的例子，兄弟姐妹们，新中国联邦、爆料革命给大家带来的是什么？，唯真不破，千万别做恶，千万别以为自己小聪明，不要用上帝，也不要用神，不要用你的善良来掩盖你的贪婪，贪就是贪，有小心眼儿就有小心眼儿，人之常情。但是不能侵犯别人的利益，更不要相信别人的愚蠢是你的机会，别人傻？别人没看见？，那是人家不愿意说透，你别像共产党似的，你给共产党说我要取银行的钱，我想吃饱饭、我想给我发工资，共产党说：哎..讲情怀啊是不是？一说我拿回我属于我自己的，那得讲奉献啊是吧，给共产党一说：我家里人需要养活
+哎..你要讲无私啊你要学雷锋啊，王八蛋！你们拿着钱你们拿着人命，你们拿的利益，不是富可敌国你们快控制全宇宙了，叫人民讲奉献、讲无私，不能有利己，只讲利你们，这个王八蛋共产党，现在自己建的监控系统把自己给控了，不说了 一说就说漏了，是吧..好好好..马上走，Coming Coming..
 
-
-
-
-> Was an AT&T data center in Nashville destroyed by the bomb yesterday?
-> 
-> Were AT&T cell or wi-fi signals which access Internet used in connection with Dominion voting machines?
-> 
-> Asking for a friend.
-> 
-> P.S. It is unlawful for voting machines to be connected to Internet.
-> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342890556310093826?ref_src=twsrc%5Etfw)
-
-
-
-中共国内动辄大爆炸，此起彼伏的爆炸声现在在美国圣诞节的清晨响起，在投票数据中心附近发生，林伍德律师暗示这与销赃有关。
-
-
-
-新闻素材和图片来自林伍德律师推特
-
-图片来源和有关爆炸案的新闻 https://www.forbes.com/sites/andrewsolender/2020/12/25/massive-explosion-in-nashville-called-intentional-bombing-by-authorities/?sh=a5cca7947a76
-
-
-
-
-
-0
++2
