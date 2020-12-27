@@ -1,44 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## &#8220;你被雇来擦玻璃和干杂活&#8221;—恶心！多米尼公司向证人梅丽莎·卡隆发了封讨厌的信
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/690861/)
+## 朱利安尼：州长不允许我们接触投票机
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/690862/)
 
-翻译：康州盘古农场 – Bruce
-校对：康州盘古农场 – 烟波浩淼
-审核：康州盘古农场 – V
+新闻来源：大全新闻（NEWSMAX）； 发布时间：2020年12月21日
 
-**梅丽莎·卡隆（Mellissa Carone）告诉《门户网站》，多米尼克的CEO在作证时多次撒谎。**
+翻译/简评：Dreamer文童； 校对：X-Wing飞得更高；审核：johnwallis； Page：Daoiii
+![]()![](https://gnews.org/wp-content/uploads/2020/12/Dreamer__Wing_johnwallis_Page_Daoiii-1.jpg)
+#### **简评：**
 
-因为她敢于站出来对抗精英们… … 梅丽莎·卡隆现在正不断受到攻击。精英们不喜欢工人越界。
+**2020年美国大选舞弊的法律战仍在进行中。虽然有大把的实锤舞弊证据，但是参与舞弊行为的腐败政客官员们还在垂死挣扎，耍赖般地阻止对关键证物“多猫腻”投票机进行检查。俗话说“做贼心虚”，如果没有任何见不得人的勾当，理应主动交出受质疑的证物，给美国人民一个交代，也给自己一个清白。然而，腐败的州长们似乎在刻意隐瞒着什么，不允许川普总统的法律团队接触多猫腻投票机。**
 
-现在多米尼克投票系统公司威胁梅丽莎·卡隆说她只是被雇用来做 “擦玻璃 “和 “其他琐碎的工作”。
+**普通民众都能通过网络上发布的视频判断出此次大选存在舞弊，相信美国的情报部门早已知晓并掌握关键的舞弊证据，否则川普总统法律团队的林·伍德和西德尼·鲍威尔律师不可能多次在接受媒体采访时表示，大选舞弊十分严重。目前进行的选举舞弊法律战目的在于唤醒民意，同时也是在钓鱼，以试探哪些人士还在竭尽全力阻止对选举舞弊进行调查。**
 
-多米尼克公司还声称梅丽莎是明星证人 当鲁迪·朱利安尼请来几十个证人作证的时候。
+[!\[\]()!\[\](https://spark.adobe.com/page/kncuM5336IU7B/images/66b28d24-578a-41c1-be69-b97e059b297d.jpg?asset_id=a1a5c150-a668-4306-b389-d02b77f604c1&amp;img_etag=%224462e647cc63c32be85cc169fd67989b%22&amp;size=2560)](https://spark.adobe.com/page/kncuM5336IU7B/images/66b28d24-578a-41c1-be69-b97e059b297d.jpg?asset_id=a1a5c150-a668-4306-b389-d02b77f604c1&amp;img_etag=%224462e647cc63c32be85cc169fd67989b%22&amp;size=1024)总统律师鲁迪-朱利亚尼（BRYAN R. SMITH/AFP via Getty Images）
 
-**这就是这些可怕的人对美国劳动者的看法!**
+**原文翻译：**
 
-*据[《每日来电》](https://dailycaller.com/2020/12/25/dominion-voting-systems-mellissa-carone-donald-trump-voter-fraud/)报道：*
+# **朱利安尼：州长不允许我们接触投票机**
 
-[*《法律与犯罪》*](https://lawandcrime.com/high-profile/dominion-attorneys-send-brutal-letter-to-trump-campaigns-so-called-star-witness-mellissa-carone/?utm_source=mostpopular)*称， 多米尼克投票系统公司的律师致函唐纳德**・川普总统的盟友， 包括西德尼**・鲍威尔和前多米尼克承包商梅丽莎**・卡隆，要求他们停止声称公司 “操纵 “了2020年的选举。*
+唐纳德·川普总统的律师鲁迪·朱利安尼（Rudy Giuliani）告诉大全电视（Newsmax TV），他的团队可以证明对选民舞弊的指控，但有争议州的州长不允许接触他们的投票机。
 
-*《法律与犯罪》还称，多米尼律师托马斯·克莱尔（Thomas Clare）和梅根·迈耶（Megan Meier）发信命令相关人员停止发表”诽谤性 “言论，包括声称公司 “操纵或不当影响 “2020年总统选举的声明，《法律与犯罪》*[*报道*](https://lawandcrime.com/high-profile/dominion-attorneys-send-brutal-letter-to-trump-campaigns-so-called-star-witness-mellissa-carone/?utm_source=mostpopular)*了这封12月22日发给Carone的信。据《法律与犯罪》报道，多米尼克给卡隆的信还警告说，”有关这些问题的诉讼即将到来”。*
+周一出现在“Spicer & Co.”节目中的职业检察官、纽约市前市长朱利安尼告诉主持人肖恩·斯派塞（Sean Spicer），川普团队只需证明在亚利桑那州有1万张有争议的选票。
 
+“你不觉得要证明1万名非公民在亚利桑那州投票很容易吗？”他说。“把投票人的名字给我，然后把他们对着Lexis-Nexis”进行检索，他说。“我将找出4万名非公民。”
 
+“他们不会让我们看机器，”他说。“如果他们没有作弊，肖恩，为什么不让我们检查机器呢？为什么佐治亚州州长紧紧抓住该州花费1.1亿美元买来的机器，却拒绝让我们检查呢？”
 
-> Dominion Attorneys Send Brutal Letter to Trump Campaign’s ‘So-Called Star Witness’ Mellissa Carone[https://t.co/9uC9G0vLDP](https://t.co/9uC9G0vLDP)
-> — Law & Crime (@lawcrimenews) [December 24, 2020](https://twitter.com/lawcrimenews/status/1342236046424203265?ref_src=twsrc%5Etfw)
+朱利安尼说，如果当选总统乔·拜登不希望他的总统任期蒙上阴影，他应该鼓励对机器进行检查。
 
+“没有理由超越这次选举是偷窃行为这件事，它可以被证明，”朱利安尼说。“我可以告诉你一件简单的事情，可以证明它让美国人民感觉非常好。其中五六位腐败的州长可以让我们接触机器。事实上，如果他们这么做，也许我就得为说他们是腐败而道歉。”
 
+[原文链接](https://www.newsmax.com/politics/giuliani-voting-machines/2020/12/21/id/1002646/)
 
-*法律与犯罪 @lawcrimenews 12月24日*
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-*多米尼律师向川普竞选活动的“所谓的明星证人”梅丽莎·卡隆（Mellissa Carone）发送野蛮信件*
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-*据报道，克莱尔和梅尔在给卡隆的信中写道：”本月早些时候，你作为鲁迪·朱利安尼所谓的‘明星证人’ 获得了国际声誉，据说你可以证实关于多米尼克以某种方式操纵或以其他方式不当影响2020年11月美国总统选举结果的荒诞指控”。”在没有一点确凿证据的情况下，你声称你目睹了几个不同版本的选民欺诈行为——从一个涉及一辆货车的故事，到其他关于选票被多次计算的指控。尽管你一直知道你对多米尼克的攻击没有事实依据，但你还是发表了这些声明。”*
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-原文作者：吉姆·霍夫特（Jim Hoft）
-发布时间：2020年12月26日 上午11:20
-原文来源：[https://www.thegatewaypundit.com/2020/12/hired-clean-glass-menial-tasks-disgusting-dominion-voting-systems-sends-nasty-letter-witness-mellissa-carone/?ff\_source=Twitter&ff\_medium=PostTopSharingButtons&ff\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/12/hired-clean-glass-menial-tasks-disgusting-dominion-voting-systems-sends-nasty-letter-witness-mellissa-carone/?ff_source=Twitter&amp;ff_medium=PostTopSharingButtons&amp;ff_campaign=websitesharingbuttons)
-
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/kncuM5336IU7B/)
+[!\[\]()!\[\](https://spark.adobe.com/page/kncuM5336IU7B/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/kncuM5336IU7B/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0
