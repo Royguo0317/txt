@@ -1,47 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【川普总统推文1226】 “我们必须赢得胜利” &amp; 亚利桑那州
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/687647/)
+## 【字幕】12/26/2020文贵：共产党你完了……
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/687729/)
 
-12月26日，亚利桑那州国会议员Mark Finchem 发推：
+制作： 【彩虹桥】
 
+走了走路，真舒服啊，兜一圈相当的不孬，兜一圈相当的相当的不孬，太多监控系统了，“咔…”你看看..就这监控系统，你说说无处不在，结果现在共产党布着全天下，最多的监控系统，卖出了监控的武器，结果共产党现在被自己的监控系统彻底拿下，掌握了绝对的灭绝人寰的，人类大屠杀、种族大屠杀，还有制造病毒 都被拿下，你说这..你说这..
 
-> 最高法院 v. 总统先生，“我们有绝对的证据，但他们不想看–他们说没有’依据’。如果我们有腐败的选举，我们就没有国家了！” 这是年度语录!
-> 
-> @真正的唐纳德-川普
-> 
-> 法院不担心法治更担心骚乱？无政府主义者们是不会停止（骚乱）的  #停止偷窃
+所以说人哪，别做恶，真的假不了，假的真不了，最后一切都会大白于天下。相信不？共产党就是你最好的例子，兄弟姐妹们，新中国联邦、爆料革命给大家带来的是什么？，唯真不破，千万别做恶，千万别以为自己小聪明，不要用上帝，也不要用神，不要用你的善良来掩盖你的贪婪，贪就是贪，有小心眼儿就有小心眼儿，人之常情。但是不能侵犯别人的利益，更不要相信别人的愚蠢是你的机会，别人傻？别人没看见？，那是人家不愿意说透，你别像共产党似的，你给共产党说我要取银行的钱，我想吃饱饭、我想给我发工资，共产党说：哎..讲情怀啊是不是？一说我拿回我属于我自己的，那得讲奉献啊是吧，给共产党一说：我家里人需要养活
+哎..你要讲无私啊你要学雷锋啊，王八蛋！你们拿着钱你们拿着人命，你们拿的利益，不是富可敌国你们快控制全宇宙了，叫人民讲奉献、讲无私，不能有利己，只讲利你们，这个王八蛋共产党，现在自己建的监控系统把自己给控了，不说了 一说就说漏了，是吧..好好好..马上走，Coming Coming..
 
-
-
-
-> SCOTUS v. POTUS, “We have absolute PROOF, but they don’t want to see it—No ‘standing’, they say. If we have corrupt elections, we have no country!” QUOTE OF THE YEAR! [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) SCOTUS more worried about riots than rule of law? Anarchists won't stop [#stopthesteal](https://twitter.com/hashtag/stopthesteal?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Mark Finchem (@MarkFinchem) [December 26, 2020](https://twitter.com/MarkFinchem/status/1342897137504366593?ref_src=twsrc%5Etfw)
-
-
-
-他随后发推：“爱国者，加油。”然后引用《圣经约书亚记》1:9 NIV中的话：
-
-
-> “我不是吩咐过你们吗？你们要坚强勇敢。不要害怕，不要灰心，因为无论你往哪里去，耶和华你的神必与你同在。”
-
-
-川普总统就这段文字进行回推：
-
-
-> 谢谢你，马克 在亚利桑那州发现了大量的数字.我们必须为我们的国家赢得胜利!
-
-
-
-
-> Thank you Mark. Big numbers found in Arizona.We must win for our Country! [https://t.co/I6UXM3cz42](https://t.co/I6UXM3cz42)
-> — Donald J. Trump (@realDonaldTrump) [December 26, 2020](https://twitter.com/realDonaldTrump/status/1342872502306009089?ref_src=twsrc%5Etfw)
-
-
-
-新闻素材和图片来自川普总统推推
-
-
-
-0
++2
