@@ -1,30 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国务卿蓬佩奥下令审查中共对新疆维吾尔族的残酷镇压是否构成种族灭绝罪
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/688136/)
+## 中共媒体称北京在“幕后谈判”中要求拜登重新加入伊朗核协议
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/688185/)
 
-作者：康州盘古农场-残夜听雨声
-审核：康州盘古农场-V
+翻译：康州盘古农场 – jeremysong
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/Xinjiang_Re-education_Camp_Lop_County.jpg)新疆再教育营，图片：Wikipedia
+校对：康州盘古农场 – 烟波浩淼
 
-根据美国《外交政策》 杂志报道，几名官员和知情人士透露，美国国务卿蓬佩奥已下令进行审查中共对新疆维吾尔族的残酷镇压是否构成种族灭绝罪。 报道称蓬佩奥已指示美国全球刑事司法办公室主任监督内部审查。这项审查可能引发美国的最终决定，它是一个重要的象征性和外交信号。
+审核： 康州盘古农场 –Truemanman
+![]()![](https://gnews.org/wp-content/uploads/2020/12/图片80.png)
+拜登（Biden）团队正在通过背后渠道与中共进行沟通，他们声称川普与俄罗斯人勾结时违反了《洛根法》。
 
-从2019年，[美国国务院](https://zh.wikipedia.org/wiki/%E7%BE%8E%E5%9B%BD%E5%9B%BD%E5%8A%A1%E9%99%A2)发表的国际宗教自由报告就指出了中共在新疆再教育营中关押了超过100万的[维吾尔族](https://zh.wikipedia.org/wiki/%E7%BB%B4%E5%90%BE%E5%B0%94%E6%97%8F)、[哈萨克族](https://zh.wikipedia.org/wiki/%E5%93%88%E8%90%A8%E5%85%8B%E6%97%8F)、[回族](https://zh.wikipedia.org/wiki/%E5%9B%9E%E6%97%8F)和其他[穆斯林](https://zh.wikipedia.org/wiki/%E7%A9%86%E6%96%AF%E6%9E%97)族群的成员，尽管中共一直美其名曰称该集中营是所谓的学习改造营，但是越来越多的泄露出来的文件和视频告诉公众这是中共新疆少数民族的一场残酷的灭绝计划。在集中营的人受到各种虐待，折磨强奸，甚至杀害，根据幸存者的报告称：他们受到了各种酷刑，包括电死刑，反复殴打，和注射未知物质。德国学者阿德里安·曾兹曾在一份报告中指出：新疆两大维吾尔人居住的城市喀什市及和田市，人口增长率在2015年至2018年期间大幅下降了84％ 。当地官员强迫妇女配戴避孕环，甚至强制结扎或堕胎，共产党对于新疆人的残酷镇压堪比纳粹集中营。
+根据中共党媒的报道，北京上个月与拜登团队的密切人士开始了“幕后对话渠道”。这些后备渠道沟通实质上将发现拜登团队违反了《洛根法》，他们用此法在2016年对即将上任的川普政府进行了无端指控。
 
-《外交政策》 杂志被公认为是世界上最具影响力的国际刊物之一，因此它对于国家外交政策的预见性报道背后都是代表着重要的政治意义。任何政客在做任何重大公告前都要通过媒体释放信号来试探公众和金融市场对此的反应。毫无疑问种族灭绝罪这个指控一旦公布意味着中共这个邪恶犯罪组织与西方民主国家的战争将真正意义上进入新的阶段，因为美国把灭共打成了明牌！在美国没有拿出中共病毒真相前，即使是西方国家的政客知道中共释放了病毒，但是为了利益还是在羞羞涩涩的和中共做生意，即使拿出人权问题也只是为了讨价还价，但是当美国将中共定义为种族灭绝罪名一切就都将改变了，相当于美国官方公告这个人是流氓犯罪集团，我不认可它的合法性！我想要干掉它！而根据1948年联合国通过的防止和惩治灭绝种族罪公约（[灭绝种族公约](http://www.un.org/zh/documents/view_doc.asp?symbol=A/RES/260%20%28III%29)） 。联合国各国均有责任保护其国民免遭灭绝种族罪、战争罪、族裔清洗和危害人类罪之害。 甚至是武力干涉！
+隶属于中共的香港出版物《南华早报》报道说，中共外交部长王毅通过这个既定的“幕后渠道”，非外交地，直接地“命令”拜登重新签署《伊朗核协议》，解除对伊朗的制裁，减低针对中共政府的强硬政策。
 
-种族灭绝罪名就意味着中共必然全世界民主国家给孤立！因为它的合法性已经荡然无存，随之而来的就是中共美元结算系统的制裁以及中共海外资产的查封。当中共没有经济利益去绑架全世界的民主国家它必然面对的是最猛烈的回击。也就是郭先生之前说的八十国灭共！
+王毅在欧盟举行的电视会议上说：“美国将在没有任何先决条件的情况下尽快与伊朗达成核协议，美国也应取消对伊朗，其他第三方实体和个人的所有制裁。”
 
-但毫无疑问中共会殊死反抗，美国在用病毒和司法将中共向着斩首和火战逼近时，中共必然要会回击更猛烈的超限战！病毒超限战！金融超限战！法律超限战！
 
-中共至今仍持有美国1.1万亿的国债，一旦中共大量出售美国国债，加上华尔街毫无底线的配合，可能会引发美元和金融市场崩盘 。世界又似乎要回到了二战过后的混乱期。但是沉默以及跪下有用吗?纳粹不会因为欧洲人的跪下就放弃屠杀，只会更加变本加厉。中国人被逼着跪下70年最终养大了这想要征服世界的魔鬼。最终只有站起来敢于正视淋漓的鲜血以及罪恶，这世界才有希望！
 
-注：本文仅代表作者个人观点。
+> Communist China already pushing around Biden[https://t.co/cg5HET4vIB](https://t.co/cg5HET4vIB)
+> — Mark R. Levin (@marklevinshow) [December 23, 2020](https://twitter.com/marklevinshow/status/1341895044643610628?ref_src=twsrc%5Etfw)
 
-参考资料：
-[https://foreignpolicy.com/2020/12/23/pompeo-weighs-genocide-designation-china-uighur-xinjiang/](https://foreignpolicy.com/2020/12/23/pompeo-weighs-genocide-designation-china-uighur-xinjiang/)
-[https://gnews.org/zh-hans/290781/](https://gnews.org/zh-hans/290781/)
 
-0
+
+*马克·莱文 @marklevinshow**12月23日*
+
+*中共已对拜登步步紧逼*
+
+来自俄罗斯，伊朗，英国，法国和德国的外交部长，以及川普总统2018年退出的《联合全面行动计划》（《伊朗核协议》）时所有签署国几乎都虚拟出席了会议。
+
+来自德国，伊朗，中国，俄罗斯和英国的代表“欢迎”拜登政府将美国带回屈服的可能性。
+
+德国国营的《德国之声》新闻称该前景为“积极的”，并补充说：随着“乔·拜登的上任，核协议的所有各方都希望将其恢复活力。”
+
+
+
+> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) rejects any renegotiation of [#Iran](https://twitter.com/hashtag/Iran?src=hash&amp;ref_src=twsrc%5Etfw) deal, urges US to rejoin [#JCPOA](https://twitter.com/hashtag/JCPOA?src=hash&amp;ref_src=twsrc%5Etfw) [#IranDeal](https://twitter.com/hashtag/IranDeal?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/w8Hiu3njvw](https://t.co/w8Hiu3njvw)
+> — Press TV (@PressTV) [December 17, 2020](https://twitter.com/PressTV/status/1339562659428089858?ref_src=twsrc%5Etfw)
+
+
+
+*新闻电视**@PressTV**12月17日*
+
+*#中国拒绝任何重新谈判 #伊朗协议，敦促美国重新加入#JCPOA#。*
+
+拜登团队在美国政策和对外关系上与中共开放了“幕后渠道”交流的想法使拜登团队参与了民主党和进步派希望迈克尔·弗林将军入狱的行为。
+
+《洛根法》（Logan Act）–左派在指控即将上任的川普政府进行阻挠和非法通信时引用的法律，是1799年的法律，要求对未经授权擅自干预美国与外国政府之间事务的私人公民处以罚款和/或监禁。
+
+截至发稿时，直到2021年1月20日，民主党总统候选人乔·拜登，他的竞选伙伴美国加州民主党参议员卡马拉·哈里斯以及他的其余人员仍被指定为私人公民，没有任何官方的美国政府职位。
+
+原文作者：法兰克·萨尔瓦（Frank Salvato）
+
+发布时间：12 月25 日
+
+原文链接：[CHINA: Chinese Media Says Beijing Demanded Biden Rejoin Iran Nuclear Deal During ‘Backchannel Talks’ – National File](https://nationalfile.com/china-chinese-media-says-beijing-demanded-biden-rejoin-iran-nuclear-deal-during-backchannel-talks/)
+
++1

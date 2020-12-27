@@ -1,29 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯：新常态到来 — 新加坡航空公司推出COVID-19“数字健康护照”
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/688775/)
+## &#8220;无能又软弱&#8221;&#8211;川普抨击最高法院没有站出来打击选举欺诈行为
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/688829/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
+作者：ProTrumpNews工作人员
 
-在距离世界进入2021年剩余的短短几天时间里，我们所知的生活将永远不再正常，这“正常”指的是在大流行病爆发前的美好日子。几个月来，读者可能听说我们讨论”COVID护照”,”豁免护照”，或者至少谈论那些没有接受COVID-19检测或接种疫苗的人的主题，将面临旅行限制。本周新加坡航空公司率先推出数字健康证书来验证乘客的测试历史和疫苗接种状况，把阴谋论付诸实践。据新加坡航空公司的新闻稿，12月23日，新的数字健康验证程序已经推出，适用于乘坐该航空公司从雅加达或吉隆坡飞往新加坡的航班的乘客。
+翻译：康州盘古农场-Mike Li
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/2702.png)
+校对：康州盘古农场-黎明的光芒
 
-该航空公司解释称，乘客将在雅加达和吉隆坡当地诊所进行COVID-19检测，并获得“带有二维码的数字或纸质健康证书”。 这些形式的豁免权将由机场安全和新加坡移民局审查。
+编辑：康州盘古农场-Rose
+![https://www.thegatewaypundit.com/wp-content/uploads/IMG_6909-600x330.jpg](https://lh3.googleusercontent.com/641PptEgDgG5XRggArzVIO3ORmz5lKYU9HEfA6GEBqPfJXRxQDuAHjWveUzNq0teI08AgpLbDkeCGCX1OnwNNggRML99W9TMZGmRGgqE67FhkQtq0Y17bQm8wc-1t-IxWH2Bc4PeZz1i5ntr_w)
+美国总统川普在清晨的一条推文中，抨击最高法院 “无能又软弱”。
 
-*航空公司称：**“**相比现有协议，这是一种更快速、更安全的验证旅客健康证明的方法，加快了机场登记和入境手续。这将使**SIA**客户更容易控制他们的信息，减少他们旅行时的摩擦，并在新常态下借助数字技术实现更无缝的体验。**“*
+美国最高法院在2020年总统大选中发生的大规模选举舞弊事件上完全无能和软弱。我们有绝对的证据，但他们不想看到它—他们说，没有起诉“资格”。如果我们容忍，放任腐败的选举，美国就不复存在!
 
-新加坡航空公司负责营销策划的代理高级副总裁谭兆安说，“推出豁免护照，在可预见的将来将是航空旅行的一个组成部分。”
+推特链接：[https://twitter.com/realDonaldTrump/status/1342830505163706369](https://twitter.com/realDonaldTrump/status/1342830505163706369)
 
-今年10月，乘坐联合航空公司航班从伦敦希思罗机场飞往纽瓦克的旅客，是病毒感染测试试点计划的一部分。就在几周前，菲律宾最大的廉价航空公司宿务太平洋公司的总裁兼首席执行官兰斯戈孔威宣布，健康护照对旅行来说是”必不可少的”。
+最高法院让美国人失望了。
 
-在4月和5月的时间框架内，[法国尼斯市长](https://www.zerohedge.com/health/mayor-nice-demands-health-passports-enterleave-france)和（微软）**比尔·盖茨**是讨论健康护照的最主要人物之一。即使病毒大流行结束后，这些健康护照仍将继续留在附近，可以证明旅行者已经接种了疫苗 — 不仅是COVID-19，还包括其它任何疾病的疫苗。
+他们甚至拒绝审理德克萨斯州的诉讼案。
 
-[援引](https://www.zerohedge.com/geopolitical/singapore-airlines-launches-covid-19-digital-health-passport-passengers)
+突发: 最高法院拒绝德克萨斯州试图挑战四个战场州的总统选举结果的诉讼，批准德克萨斯州提出申诉，但因缺乏起诉资格而立即驳回其诉讼
 
-本文作者：红胡子
-审核校对：玫瑰天空
-上传排版：糖果儿
+[https://t.co/OnYMTpXuhQ](https://t.co/OnYMTpXuhQ)
 
-+2
+首席大法官罗伯茨也是参与偷窃选举的一员吗？
+
+乔•霍夫特最近在 Gateway Pundit中写道。
+
+驳回德克萨斯州的案件并不是罗伯茨做出的第一个令人怀疑的行为。在10月，罗伯茨站在宾夕法尼亚州一边，允许该州在选举后三天对未做标记的选票进行统计。在6月，罗伯茨在关于终止违宪的发展援助委员会问题上站在自由派法官一边。在垃圾弹劾听证会上，罗伯茨拒绝允许在听证会上大声说出所谓 “告密者”的名字。在2018年，当川普指出奥巴马时期的法官是多么的疯狂、腐败和违宪，罗伯茨对川普总统进行了抨击。罗伯茨真是一塌涂。
+
+文章链接：[https://www.thegatewaypundit.com/2020/12/incompetent-weak-trump-blasts-supreme-court-not-standing-fraud/](https://www.thegatewaypundit.com/2020/12/incompetent-weak-trump-blasts-supreme-court-not-standing-fraud/)
+
+0

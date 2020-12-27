@@ -1,61 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共媒体称北京在“幕后谈判”中要求拜登重新加入伊朗核协议
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/688185/)
+## 1227第47期《前沿观察》胡锡进叫嚣为哪般？
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/688090/)
 
-翻译：康州盘古农场 – jeremysong
-
-校对：康州盘古农场 – 烟波浩淼
-
-审核： 康州盘古农场 –Truemanman
-![]()![](https://gnews.org/wp-content/uploads/2020/12/图片80.png)
-拜登（Biden）团队正在通过背后渠道与中共进行沟通，他们声称川普与俄罗斯人勾结时违反了《洛根法》。
-
-根据中共党媒的报道，北京上个月与拜登团队的密切人士开始了“幕后对话渠道”。这些后备渠道沟通实质上将发现拜登团队违反了《洛根法》，他们用此法在2016年对即将上任的川普政府进行了无端指控。
-
-隶属于中共的香港出版物《南华早报》报道说，中共外交部长王毅通过这个既定的“幕后渠道”，非外交地，直接地“命令”拜登重新签署《伊朗核协议》，解除对伊朗的制裁，减低针对中共政府的强硬政策。
-
-王毅在欧盟举行的电视会议上说：“美国将在没有任何先决条件的情况下尽快与伊朗达成核协议，美国也应取消对伊朗，其他第三方实体和个人的所有制裁。”
+撰文：康州盘古农场 – 竹本人
+播报：康州盘古农场 – 骑士·文彦
+视频：康州盘古农场 – Buzz文珂
+编辑：康州盘古农场 – 1984文姝
+审片：康州盘古农场 – 皮亚纳
+审核：康州盘古农场 – Antsee-GTV
 
 
 
-> Communist China already pushing around Biden[https://t.co/cg5HET4vIB](https://t.co/cg5HET4vIB)
-> — Mark R. Levin (@marklevinshow) [December 23, 2020](https://twitter.com/marklevinshow/status/1341895044643610628?ref_src=twsrc%5Etfw)
+中共喉舌——《环球时报》总编胡锡进，在22日发表题为《中俄军机联合巡航，日本别错判大局死抱美国》的文章，声称”中俄两军12月22日实施了第二次联合空中战略巡航，解放军4架轰-6K与俄军2架图-95飞机联合编队在日本海、东海有关空域联合巡航。 今后这样的行动，还会进行。 必须强烈支持！ ” 。
+
+文章最后，对日本：日本”错判战略大局，死抱美国。 “”谁帮着美国搞中俄，最终决不会捞到便宜。”
+
+胡锡进的这次隔空对日叫嚣，意欲何为？
+
+在步步紧逼的抗共局势下，中共已经明显感觉到了兵临城下、四面楚歌的国际环境，但是邪恶的中共并不会束手就擒，它依然会负隅顽抗，做最后的挣扎。 文贵先生直播爆料到，中共面对美军南海军事新布局，提出不要和美军形成正面冲突，如果不行就打台湾。 外强中干的中共一方面恃强凌弱，众想对人民的一个，众将阻遏世界力量对中共的围剿。 另一方面，在它面对世界力量的集结惶惶不可终日的时候，俄罗斯老大哥突然递过橄榄枝，令色厉内荏的中共又抓住了救命稻草，马上威风起来。 胡锡进的叫嚣，只不过是走夜路吹口哨——借中俄军机联合巡航一事，为自己壮胆，这更暴露出中共末日将至的”恐惧心态”。
+
+“面对积极要求加入”五眼联盟”的日本，中共如今只剩下有气无力的口炮与发生，在这场与邪恶的角逐中，谁最终会被埋葬，”莘县阳谷县搭县，咱走走看！ “
 
 
 
-*马克·莱文 @marklevinshow**12月23日*
+[https://gtv.org/video/id=5fe75df293a06b22d9e22168](https://gtv.org/video/id=5fe75df293a06b22d9e22168)
 
-*中共已对拜登步步紧逼*
-
-来自俄罗斯，伊朗，英国，法国和德国的外交部长，以及川普总统2018年退出的《联合全面行动计划》（《伊朗核协议》）时所有签署国几乎都虚拟出席了会议。
-
-来自德国，伊朗，中国，俄罗斯和英国的代表“欢迎”拜登政府将美国带回屈服的可能性。
-
-德国国营的《德国之声》新闻称该前景为“积极的”，并补充说：随着“乔·拜登的上任，核协议的所有各方都希望将其恢复活力。”
-
-
-
-> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) rejects any renegotiation of [#Iran](https://twitter.com/hashtag/Iran?src=hash&amp;ref_src=twsrc%5Etfw) deal, urges US to rejoin [#JCPOA](https://twitter.com/hashtag/JCPOA?src=hash&amp;ref_src=twsrc%5Etfw) [#IranDeal](https://twitter.com/hashtag/IranDeal?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/w8Hiu3njvw](https://t.co/w8Hiu3njvw)
-> — Press TV (@PressTV) [December 17, 2020](https://twitter.com/PressTV/status/1339562659428089858?ref_src=twsrc%5Etfw)
-
-
-
-*新闻电视**@PressTV**12月17日*
-
-*#中国拒绝任何重新谈判 #伊朗协议，敦促美国重新加入#JCPOA#。*
-
-拜登团队在美国政策和对外关系上与中共开放了“幕后渠道”交流的想法使拜登团队参与了民主党和进步派希望迈克尔·弗林将军入狱的行为。
-
-《洛根法》（Logan Act）–左派在指控即将上任的川普政府进行阻挠和非法通信时引用的法律，是1799年的法律，要求对未经授权擅自干预美国与外国政府之间事务的私人公民处以罚款和/或监禁。
-
-截至发稿时，直到2021年1月20日，民主党总统候选人乔·拜登，他的竞选伙伴美国加州民主党参议员卡马拉·哈里斯以及他的其余人员仍被指定为私人公民，没有任何官方的美国政府职位。
-
-原文作者：法兰克·萨尔瓦（Frank Salvato）
-
-发布时间：12 月25 日
-
-原文链接：[CHINA: Chinese Media Says Beijing Demanded Biden Rejoin Iran Nuclear Deal During ‘Backchannel Talks’ – National File](https://nationalfile.com/china-chinese-media-says-beijing-demanded-biden-rejoin-iran-nuclear-deal-during-backchannel-talks/)
-
-+1
+0
