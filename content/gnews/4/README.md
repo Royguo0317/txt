@@ -1,48 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 财经普及关键词: 企业债
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/689848/)
+## 法国开始注射疫苗，但公众保持警惕
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/690065/)
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/Screen-Shot-2020-12-28-at-12.23.12-am.png)图片来源：[https://www.etftrends.com/fixed-income-channel/investor-optimism-fueling-corporate-bond-gains/](https://www.etftrends.com/fixed-income-channel/investor-optimism-fueling-corporate-bond-gains/)
-企业债是企业依法定程序发行，在一定期限内还本付息的债券，其代表发债企业和投资者之间的一种债务关系，债券持有人是企业的债权人，其有权按期收回本息。企业债风险与企业本身的经营状况直接相关。若经营状况不好，可能无力支付投资者本息。所以，在企业发行债券时，一般要对发债企业进行严格的资格审查或要求发行企业有财产抵押。
-
-## 特点
-
-- 契约性：企业债实际上代表着一种债权债务的责任契约关系。通过规定发行人在既定的时间内必须支付本金利息从而明确双方的权利，义务和责任。这一特点表现在两种方式中，一是债券持有人对发行人的特定资产具有索偿权，实际上是抵押债券；另一种是企业债券的持有人不对企业资产具有索偿权，这是企业债券的通常形式。
-- 优先性：企业债持有人有按期收取利息的权利，其收入在会计上计入成本，所以在顺序上要优于分红。当发债企业破产后，债券持有人可优于股东收回本金。
+- 编辑：Victor Torres
 
 
-## 分类
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-中共国的企业债目前主要有地方企业债，重点企业债，付息企业债，利随本清企业债，产品配额企业债和短期融资券。
+**西班牙2020年12月27日电/西喜社——**
 
-地方企业债，是全民所有制企业发行的债券；重点企业债，是由电力，有色金属，石油，化工等国家重点企业发行的债券；付息企业债是付有息票，期限为5年左右的中期债券；利随本清企业债是平价发行，期限一般为1-5年，到期一次还本付息的债券，各地企业发行的大多为这种债券；产品配额企业债是由发行企业以本企业产品支付利息，到期偿还本金的债券；短期融资券，是期限为3-9月的短期债券。企业债发行后可以转让。
+据美联社12月27日报道，法国巴黎周日在该国最贫穷地区之一的巴黎东北部的养老院开始了首次中共病毒疫苗接种，这是在欧洲范围内推广疫苗接种的一部分。
 
-## 企业债与公司债的区别
+巴黎地区公共卫生服务负责人欧瑞莲·卢梭（Aurelien Rousseau）在推特上说：“充满希望的紧张时刻。”
 
-- 发行主体不同。公司债是由股份有限公司或有限责任公司发行的债券。企业债是由中央政府部门所属机构，国有独资企业或国有控股企业发行的债券。因此，与西方国家不同，中共国的企业债是一种介于公司债券和地方政府债券的一种，所以其发行的成功与否与市场关系不大。
-- 发债资金用途不同。公司债券是公司根据自己经营运作所需发行的债券，发债资金如何使用几乎是发债公司资金的事。但企业债的发债资金用途主要限制在固定资产投资，并与政府部门审批的项目之间关联。由此可见，前几年的地产大跃进中企业债也是间接的推手之一。
-- 信用基础不同。公司债的发债公司的资产质量和经营状况是公司债的信用基础。与此不同，中共国的企业债，通过国有机制传承了政府信用，因此企业债的信用级别和其当地政府债券基本相当。
-- 监管程序不同。在市场经济中，只要发债公司的登记材料符合法律制度，监管部门无权限制其发债行为。但中共国的企业债发债需经国家发改委报国务院审批，且要求有银行担保。但一旦债券发行，审批部门就不再对发债主体的信息披露和市场行为进行监管。
+一名姓毛里切特（Mauricette）的78岁妇女在塞夫兰（Sevran）镇接受了法国的第一剂疫苗注射。 当天晚些时候，将在第戎的Champmaillot家进行疫苗接种。
 
+民意调查显示，法国民众对新疫苗持怀疑态度，因此法国政府一直谨慎对待新疫苗，并没有将疫苗强制化。 政府希望到夏天能为6700万人中的2700万人接种疫苗。
 
-综上可见，中共国的企业债本质上是一种脱离市场经济行为的怪胎。作为地方债券的一种衍生，企业债不仅可以巧妙的躲避政府的监管，同时也在加重地方政府对市场经济的吸血行为。更令人恐怖的事，由于绝大部分企业债的发行有银行做担保，中共国企业债的大规模暴雷无疑是为接下来的银行业大暴雷铺好了黄泉路。
+法国报告了，大流行中有62,570人丧生。 将近三分之一的人死于养老院，因此政府决定首先将疫苗接种给老人和有风险的医务人员。
 
-参考网站：
-
-- [https://www.investopedia.com/terms/c/corporatebond.asp#:~:text=A%20corporate%20bond%20is%20a,fixed%20or%20variable%20interest%20rate.](https://www.investopedia.com/terms/c/corporatebond.asp#:~:text=A%20corporate%20bond%20is%20a,fixed%20or%20variable%20interest%20rate.)
-
-
-- [http://www.hbjjrb.com/system/2020/12/24/100550613.shtml](http://www.hbjjrb.com/system/2020/12/24/100550613.shtml)
-
-
-- [https://finance.sina.com.cn/money/bond/market/2020-12-23/doc-iiznctke8035452.shtml](https://finance.sina.com.cn/money/bond/market/2020-12-23/doc-iiznctke8035452.shtml)
-
-
-- [https://wiki.mbalib.com/wiki/%E4%BC%81%E4%B8%9A%E5%80%BA%E5%88%B8](https://wiki.mbalib.com/wiki/%E4%BC%81%E4%B8%9A%E5%80%BA%E5%88%B8)
-
-
-By：秘翻组·金融法律组
-
+新闻链接：[https://apnews.com/article/persian-gulf-tensions-oman-lebanon-coronavirus-pandemic-muscat-6c8346d5ae6544dc6ac0caf3efb85626](https://apnews.com/article/persian-gulf-tensions-oman-lebanon-coronavirus-pandemic-muscat-6c8346d5ae6544dc6ac0caf3efb85626)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 0

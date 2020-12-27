@@ -1,29 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 朱利安尼：圣诞节后选举舞弊证据“即将爆炸”，“一下子”变得清晰
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/689726/)
+## 【新闻快讯】疫情之下，大连人离连有区别
+` XMLYG777` [轉載自GNews](https://gnews.org/zh-hans/689840/)
 
-- 编辑：Victor Torres
-- 翻译：里奇
+内新闻：人民公敌 素材：霹雳年  校对：α-Vega
 
+据中共媒体消息[1]，12月22日，大连海洋大学一学生被认定为新冠肺炎无症状感染者，随后，校方立即启动应急方案，封闭校园，并组织全体在校师生进行核酸检测，结果均为阴性。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+12月27日，大连海洋大学微信公众号发布《致全校师生的一封信》称，“根据上级防控工作要求，大连市疫情结束前在连高校实施封闭管理，学生不离连”，学校将“承担由于学校放假时间调整，同学们产生的退票、改签费用”。
 
-**西班牙2020年12月27日电/西喜社——**
+高校学生在疫情结束前不能离开大连的这一消息传开后，立即在学生中引起了不小的反响。
+![pastedGraphic.png]()![pastedGraphic.png](https://gnews.org/wp-content/uploads/2020/12/image1-20.png)![pastedGraphic_1.png]()![pastedGraphic_1.png](https://gnews.org/wp-content/uploads/2020/12/image2-7.png)![]()![](https://gnews.org/wp-content/uploads/2020/12/image4-2.png)
+（以上截图来自微博）
 
-总统的律师在圣诞节的播客中宣称：“这将令整个国家感到震惊。”
+一位叫“夜一海”的博主将一学生电话询问市政府为何其他人可以离开大连，而高校生却不能放假（离开大连）的录音放到了微博上。
 
-鲁迪·朱利安尼（Rudy Giuliani）在播客节目”常识”的圣诞节预告片中对听众说：“圣诞节后开始, 对11月3日总统大选结果合法性的挑战一定会爆发”。
+音频地址：[http://t.cn/A6qliJkE](http://t.cn/A6qliJkE)
 
-川普总统的私人律师朱利安尼说：“由于这些歪曲的电视网络，报纸，大科技公司和民主党领导人一直在给你的证据是错误的，所以你会突然一下子全部了解真相。” “这会让这个国家感到非常震惊。”
+电话中的接线员告知打电话的学生此事需询问采取此措施的校方，称热线平台未接到相关通知。
 
-朱利安尼（Giuliani）的严厉警告是在总统持续对选举结果提出法律挑战的另一次挫折之后提出的。
+另据中共澎湃新闻12月26日报道[2]，北京因疫情原因，北京境内高校将按照“错峰”原则做好寒假放假安排，组织学生有序离校离京，并特别指出“北京高校师生员工坚持非必要不出京、非必要不出境、非必要不聚餐、非必要不前往中高风险地区”的原则并不等于高校学生不能离京返乡（返家）。
 
-在圣诞节前夕，联邦上诉法院维持了下级法院的裁决，驳回了川普总统的主张，主张内容为威斯康星州选举委员会在其为 “丢失或不正确的缺席选票见证人证书地址，选民声称无限期受限的身份以及缺席选票箱。” 提供的指导意见中有违宪行为。
+在年末疫情再次诡谲波动之时，大连高校的学生最终是否能够回家过年？
 
-出于程序和实质性原因对总统的裁决，美国第七巡回上诉法院的三名法官组成的小组裁定：“威斯康星州以其立法机关指示的方式合法任命了选民”，并补充说：“总统的主张之所以失败另一原因是，伴随着总统现在希望针对威斯康星州的选举程序提出的挑战所带来的不合理拖延。”
+文章仅代表个人观点。
 
-新闻链接：[https://justthenews.com/politics-policy/elections/trump-election-challenge-really-going-blow-after-christmas-says-giuliani](https://justthenews.com/politics-policy/elections/trump-election-challenge-really-going-blow-after-christmas-says-giuliani)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+参考链接：
+
+[https://new.qq.com/omn/20201227/20201227A0BBNH00.html](https://new.qq.com/omn/20201227/20201227A0BBNH00.html)
+
+[https://www.thepaper.cn/newsDetail\_forward\_10550026](https://www.thepaper.cn/newsDetail_forward_10550026)
+
 0

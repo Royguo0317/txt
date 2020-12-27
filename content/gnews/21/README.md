@@ -1,48 +1,99 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生1225:VOG及凤凰农场事件是第一个但不会是最后一个
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/689566/)
+## 【Raiklin律师推文1227】乔州胜出 &amp; 宾州新舞弊证据
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/689683/)
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/封面-153.jpg)
-撰稿：巴黎七星农场；审核：喜马拉雅的馍夹肉；校对：Maarago
+12月27日Ivan Raiklin 律师转发了以下推文。
 
-篇首说明：郭文贵先生在[2020年12月25日 文贵圣诞直播](https://gtv.org/video/id=5fe5ef1dc0544c3d9737286f)，说的不是好听的话，关于遗书事件、关于如何看待圣诞节、关于刘特佐、关于川普总统一定赢得总统等一系列话题，本系列将逐一推出，本文为第十部分：VOG及凤凰农场事件是第一个但不会是最后一个
+关于乔治亚州
 
-据[2020年12月25日 文贵圣诞直播](https://gtv.org/video/id=5fe5ef1dc0544c3d9737286f)49：20时间点：
 
-像共产党一样，为人民服务，但人民的钱都得给我，我R你八辈儿祖宗，共产党多少年了，你把共产党你为人民把钱给人民，为人民服务先把钱、把那两桶油、把你的基础设施、把你的金融系统你放开不行吗，说马云垄断，马云不是个好东西 ，是不是啊？马云一年前你们知道快两年了，非常真诚地想跟我合作，让我拒绝了，我说你这个货早晚一天你也得进去，想和解、想合作，因为他现在骂马云的时候说马云是反垄断，你说这天底下哪有，黑社会告诉警察说警察因为反对黑社会犯法了，共产党是全世界最大的垄断机构，把十四人民的天地生殖器都垄断了，现在要反垄断，这对马云是多么地不公，一模一样的道理为人民服务，我们是无产阶级——全世界最有钱的人、最有钱的家族、全世界最有钱的集团，它叫无产阶级，然后天天抓人、杀人的，他叫为人民服务，说一切都要听党的一切都是党的，国家有宪法、宪法它改了。
+> 川普总统… 您的领导赢得了乔治亚州参议员选举… … 我要向大家展示一下有多少 #幻觉睡眠投票者 的存在… 今天到现在为止已经工作了12个小时。 这些选举不需要重新选举… GOP已经赢了 我希望我可以证明这一点.
 
-当年我记得非常清楚令计划，这个令计划下面几个人给他，咵咵咵令计划这小子就是这哥们是晚上不睡觉的、喂猫，然后经常就是晚上半夜以后约中央电视台的那些主持人来谈话，安排明天的工作，就这样，大家知道，先从客厅开会然后那些美女都到二客厅谈，谈着谈着进里边卧室去了，每天都这样。这种事情胡锦涛就真不知道吗？胡锦涛不是不知道，共青团的惨败就是这个，李源潮，很多人把这事儿告诉了李源潮，李源潮和令计划是你死我活的战略关系，李源潮还真把这事儿告诉了胡锦涛，但是他告诉的方法比较隐秘，说这个令主任生活上得检点点，中南海有各种势力呀，不到十八大前咱还得小心啊，天天约中央台的这些小女孩在这谈，一谈谈半夜，他们的家人回去生气，万一整点动静不好。胡锦涛（做手势，不要讲、不要讲、不要讲）三下，吓得啊李源潮再不说了，那意思以后不要说这话、不准说、不要说。
 
-当时总参的一位姓张的将军在京西宾馆，郭伯雄、徐才厚、什么梁光烈、所有的大军区司令，还有习近平的面儿，喝醉以后大骂，大家都知道这个事件，把郭伯雄、徐才厚骂了个狗血喷头，你这帮贪、你怎么卖官、你怎么弄，他本来是弄个副主席呢结果没让他弄，弄啥总长没让他当，你知道这个事件，然后喝酒喝醉了把东西全砸了，最后习近平把所有那个桌子上的人全抓的抓、弄死的弄死。
+Raiklin 律师回推时说：
 
-对比两个人，为什么共青团全给灭了，就是因为胡锦涛包庇令计划、包庇共青团的腐败、不作为、互相勾结，最后导致令计划的儿子令谷事件，令计划如果当时迅速告诉胡锦涛，就不会出现以后这个事情，令计划还有生存的机会，共青团还有生存的机会，但是他彻底被灭了，就因为他瞒着哄着，最后胡锦涛从墨西哥一回来直接下了、完蛋，西山开会、玉泉山一开会全完蛋，叫孟建柱、孙力军等这些人江家设局全给拿下。
 
-这两拨都不是好东西，都该灭。但我们这毕竟是中国人，我们看到他们这个斗争当中，我们要知道什么，虚瞒、欺骗、哄骗，结局就是让你灭亡？我们还要走这条路吗？爆料革命最关键的唯真不破，不准上欺下骗，绝不能搞小势力、拉帮结伙。
+> 乔治亚州！（好消息）
+> 
+> 不需要新一轮选举了吗？
 
-你看现在我们这个农场啊，最未来大的挑战谁能度过这一关，就你不是拉帮结伙、搞山头，然后用自己拉帮结伙你必须肯定要打击另外一拨，你打击另外一拨你一定要造假、你控制不住的，你一定失去公平。
 
-战友们，VOG和凤凰农场事件绝对不是第一个、最后一个，它一定是第一个，但肯定后面还有N个，新的农场会像雨后春笋一般的诞生，谁也挡不住，原来我们想一百多个、四百个，现在看来肯定挡不住，一定是几千个，甚至更多。但是在这个过程当中谁搂不住，你坚持不住这个原则是一切灭共、一切以实现新中国联邦、对战友要对待自己兄弟姐妹、坚持唯真不破真善狠郭七条，你支持不住这个原则和喜马拉雅宪章，你就会离开，我郭文贵对待这些事情的发生，第一条，公开透明；第二条，对错之间尽可能内部解决，如果解决不了一定是要通过法律，不管是谁；第三条，在这件事儿上，战友的利益和我们新中国联邦爆料革命的理想上，我们只坚持一条，谁都不行，必须是按照属在国的法律和喜马拉雅宪章和我们爆料革命的整个的原则为主，最后服务的一个核心利益就是战友们的经济安全，谁都不行。
 
-续上篇：
 
-[郭先生1225:遗书事件与共产党的欺骗为何共产党不让你过圣诞](https://gnews.org/zh-hans/688105/)
+> GEORGIA!
+> 
+> No Runoff necessary?! [https://t.co/k88LgyIdEI](https://t.co/k88LgyIdEI)
+> — “Activate Emergency Alert System!” Ivan Raiklin (@Raiklin) [December 27, 2020](https://twitter.com/Raiklin/status/1343127300657836033?ref_src=twsrc%5Etfw)
 
-[郭先生1225:圣诞节不是吃喝的节日,要锻炼辨别真假善恶的能力](https://gnews.org/zh-hans/688184/)
 
-[郭先生1225:只把利益给了一个人和一个公司的那一定是骗子](https://gnews.org/zh-hans/688240/)
 
-[郭先生1225:不懂法没有自由民主把你弄死钱给我这不叫自由](https://gnews.org/zh-hans/688302/)
+相关其他推文：
 
-[郭先生1225:用眼泪讲故事者非邪即恶别用善良无知坑害战友](https://gnews.org/zh-hans/688444/)
+滑稽的宾夕法尼亚州
 
-[郭先生1225:遗书事件告诫我们不要相信眼泪和她说的和许诺](https://gnews.org/zh-hans/688617/)
 
-[郭先生1225:每个人追随和信仰的不能基于道听途说和情绪化](https://gnews.org/zh-hans/689154/)
+> 尊敬的
+> 
+> @POTUS 美国总统 @真正的唐纳德-川普
+> 
+> 我有一些关于宾夕法尼亚州绝对令人震惊的消息要报告。 我检查了超过9,008,753条记录，确定了521 879个独特的姓氏。 245,033个，也就是宾夕法尼亚州所有姓氏中的47%，只属于一个人，而且只是一个人!
 
-[郭先生1225:爆料革命必须坚持公开透明,他勇于承担责任](https://gnews.org/zh-hans/689278/)
 
-[郭先生1225:遗书事件是集团作案集团作战骗钱给VOG和SARA](https://gnews.org/zh-hans/689475/)
 
-+1
+
+> The Honorable [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) 
+> I have some absolutely Stunning News to report regarding PA. I examined just over 9,008,753 records and have identified 521,879 unique Last Names. 245,033 or just under 47% of the total Last Names in PA only belong to 1 and only 1 person!
+> — BobbyPiton (@BobbyPiton3) [December 27, 2020](https://twitter.com/BobbyPiton3/status/1342996474972540928?ref_src=twsrc%5Etfw)
+
+
+
+
+> 这500个少了的名字（低于全国范围的估计）核对过是958,044（人）。 这刚好是宾州消失的695,000到958,000人。 川普总统，我有一个所有失踪人员姓名的详细数据。
+
+
+
+
+
+> 我不知道该怎么说，我看到的是如此疯狂的彻头彻尾的欺诈。近100万美国人的选票被偷走了! 对于这种对伟大的宾夕法尼亚州的犯罪行为，必须逮捕。
+
+
+
+
+> I am a loss for words that I am looking at such INSANE Outright Fraud. That almost 1 million Americans had their Vote STOLEN from them! Arrests need to be made for this crime against the Great State of Pennsylvania. [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) [@tracybeanz](https://twitter.com/tracybeanz?ref_src=twsrc%5Etfw) [@LLinWood](https://twitter.com/LLinWood?ref_src=twsrc%5Etfw) [@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw) [@Kathy4Truth](https://twitter.com/Kathy4Truth?ref_src=twsrc%5Etfw)
+> — BobbyPiton (@BobbyPiton3) [December 27, 2020](https://twitter.com/BobbyPiton3/status/1342996478269272065?ref_src=twsrc%5Etfw)
+
+
+
+
+> 史密斯的人名比应该有的人少 19,591个，威廉姆斯失踪了，30,830个约翰逊找不到人。 11,656个杰克逊失踪。 宾夕法尼亚州到底发生了什么事。 在宾州排名前1000的名字中，正好有500人的名字在应该在那里的投票被缺失。。
+
+
+
+
+> fewer Smiths, than should be there. 19,591 Williams have gone missing, 30,830 Johnson's are no where to be found. 11,656 Jackson went MIA. What in the world is going on in PA. Exactly 500 of the top 1000 names in PA have a deficit in the number of people that should be there.
+> — BobbyPiton (@BobbyPiton3) [December 27, 2020](https://twitter.com/BobbyPiton3/status/1342996476658647040?ref_src=twsrc%5Etfw)
+
+
+
+
+> 再次，在900万条记录中，没有兄弟、姐妹、姑姑、表兄弟、父母使用特殊的姓氏。 在看了宾夕法尼亚州的前1000名姓氏后，对应有695,430人减少了。 从字面上看，有14,776个
+
+
+
+
+> Once again, no brothers, sisters, aunts, cousins, parents that share this particular last name out of 9 Million records. Upon looking at the TOP 1000 Last Names in PA, I have discovered that PA has 695,430 Fewer People in the top 1000 Last Names. Literally, there are 14,776
+> — BobbyPiton (@BobbyPiton3) [December 27, 2020](https://twitter.com/BobbyPiton3/status/1342996475731697667?ref_src=twsrc%5Etfw)
+
+
+
+后记，每当看到美国人为大选结果做出怎样的抗争，发现怎样的舞弊行为，用怎样的方式验证选举结果，美国人如何被威胁了，一些网络名人、律师、议员、政要包括川普总统本人，如何站出来振臂高呼，说出真相的，凡此等等，所有的努力和行动，无不感动著我。当中共盘算著一个所谓“完美”的系统性惊天大阴谋以期盗取美国大选结果之时，哪里预想到，这个世界还有如此勇敢抗争的人，在美国的土地上，还有真正有脊梁有正气的人。中共对人民的蔑视和奴役，让他们忘记了什么是真正的人类，这个世界并非都是魔鬼和屈膝的奴隶。真正的人类最终战胜魔鬼，中共已经自掘好了坟墓。
+
+
+
+新闻和图片来源于Ivan Raiklin律师的推文
+
+
+
+0
