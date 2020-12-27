@@ -1,21 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】阿富汗逮捕10名中共间谍，要求道歉羞辱中共
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/687801/)
+## 【川普总统推文1226】马上结束230条款
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/687862/)
 
-香草山写作组 Wilson
+12月26日推文：
 
-2020年12月26日，法广(RFI)报道，阿富汗情报当局称，他们捣毁了一个与塔利班分支恐怖组织“哈卡尼”（Haqqani）网络有联系的中国间谍小组，10名中国公民被捕。
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/Screen-Shot-2020-12-26-at-6.58.09-PM.png)
+> 我不会眼睁睁地看着这个荒唐的法案发生，而不对大科技公司进行监管。现在就结束230条款，否则就太迟了。这对我们的国家很不利。拿出勇气来，做正确的事吧！！！
 
-阿富汗总统加尼 (Ashraf Ghani) 政府表示，已要求中国道歉，否则将不会释放这些中国公民，而且会对他们提起诉讼。
 
-短评: 通常国家之间的间谍处理都是釆取不声张甚至对外保密的办法，阿富汗抓捕中共间谍并高调要求道歉，表明阿富汗政府对坏事做绝的中共不再客气，判断中共即将灭亡有把握。
+推文附上了12月23日总统回复国会的信，信上以数条原因否决了国防预算法案，其中一条是通讯安全法案的230条款需要被废除。今天川普总统再次向国会喊话，表明了其坚定的态度。
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-0
+> I will not stand by and watch this travesty of a bill happen without reigning in Big Tech. End Section 230 now, before it is too late. So bad for our Country. Show courage, and do what’s right!!! [https://t.co/V99lShpLCe](https://t.co/V99lShpLCe)
+> — Donald J. Trump (@realDonaldTrump) [December 26, 2020](https://twitter.com/realDonaldTrump/status/1342813418177392649?ref_src=twsrc%5Etfw)
+
+
+
+新闻素材和图片来自川普总统推推
+
+
+
++1

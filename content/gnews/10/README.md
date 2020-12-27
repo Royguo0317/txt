@@ -1,32 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鲍威尔律师推文1226】多米尼系统诬告自摆乌龙
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/688027/)
+## 中国公司欠大概240亿美元的逾期信用债券
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/688089/)
 
-12月26日鲍威尔律师转发了以下推文。
+翻译：康州盘古农场 – Melody太阳的旋律 
+校对： 康州盘古农场 – 烟波浩淼
+审核： 康州盘古农场 –V
+![]()![](https://gnews.org/wp-content/uploads/2020/12/98f3246dc00b4876abfcbef79b9af996tplv-mlhdmxsy5m-q75-0-0.image_.jpeg)永煤集团爆债券违约，图：百度百科
+中国经济困境的最新指标是全国范围内无法按期偿还的信用债券数量，其中164只，涉及金额总共1600亿元人民币（约合244.3亿美元）。
 
-名为“海妖艺术农场”的网友发推：
+借款人包括此前被中国债券评级机构评为AAA级的国有企业。
 
+中国市场上的债券有三类：不同级别政府发行的政府债券；公司发行的信用债券；上市公司发行的可转换债券，可转换为发行公司的普通股或等值的现金。
 
-> Eric Coomer（多米尼系统的一名工作人员、诽谤川普竞选团队诬告者）拥有裁决过程的专利。基本上Coomer为多米尼（Dominion）系统创造了整个裁决的流程。系统设置用以连接网络。 （笔者按，投票机在法律上不能连接上网。）
-> 
-> #为川普而战 #上帝取胜 #像弗林将军一样战斗
+中国国营媒体《经济观察报》报道了中国私营金融服务公司Wind收集的最新债券市场统计数据。
 
+“截至今年12月18日，27家企业发行的164只信用债出现了回售违约情况，”该报道称。”其中，国有企业的违约金额为518.97亿元（79.2亿美元），比2019年的129.3亿元（19.7亿美元）多出3倍。”
 
+例如，河南永煤是一家位于中国中部河南省的国营煤炭企业，金融市场评级为AAA。11月10日，永煤宣布无法支付一笔到期的信用债券，本息价值超过10亿元（1.5亿美元）。
 
+11月23日，永煤宣布也无法兑付其其他信用债，价值超过20亿元。同时，永煤还有21只信用债未到期，总价值214.1亿元（32.7亿美元）。
 
-> [Defending The Republic – Sidney Powell](https://defendingtherepublic.org/)
+据公司数据显示，其目前的负债资产率超过77%。11月11日，在永煤无法兑付到期信用债的第二天，中国诚信债券评级机构将永煤的评级从AAA下调至BB。
 
+永煤董事长强代民在11月23日的新闻发布会上表示，公司将遵循中国国务院下属金融监管机构金融稳定发展委员会的决定。
 
+截至记者发稿时，永煤公司仍在运营。公司支付了第一笔到期债券的利息，并表示将很快支付一半的本金。
 
+华晨汽车是辽宁省最大的国营汽车制造商，至少被大公全球和东方金诚两家中国债券评级机构评为AAA级。9月20日，华晨汽车无法偿还到期信用债的利息。
 
+此后，该公司声称没有现金支付信用债本息，评级被下调至A+。
 
-> Eric Coomer has Patents on the Adjudication Process. Basically Coomer Created the entire Adjudication process for Dominion. The system is set up to go ONLINE🙄[https://t.co/inyMRIAFw1](https://t.co/inyMRIAFw1) [@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw) [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) [@LLinWood](https://twitter.com/LLinWood?ref_src=twsrc%5Etfw)[#FightForTrump](https://twitter.com/hashtag/FightForTrump?src=hash&amp;ref_src=twsrc%5Etfw) [#Godwins](https://twitter.com/hashtag/Godwins?src=hash&amp;ref_src=twsrc%5Etfw) [#FightLikeAFlynn](https://twitter.com/hashtag/FightLikeAFlynn?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/VwM5VpnrIS](https://t.co/VwM5VpnrIS)
-> — 🇺🇸KrakenArtsFarm🇺🇸 (@hppyjesusfreak) [December 27, 2020](https://twitter.com/hppyjesusfreak/status/1342991363105669120?ref_src=twsrc%5Etfw)
+11月20日，沈阳市中级人民法院裁定，华晨的债权人应对公司进行重组–这意味着华晨已经破产。但华晨与欧洲汽车制造商宝马和雷诺的合资企业并未受到影响。
 
+中国经济学家此前曾指出中国债券评级机构评级不可靠的问题。
 
+据国营媒体《经纬》报道，中国只有6家这样的机构拥有正式牌照。
 
-新闻和图片来源于鲍威尔律师及其转发的推文
+《经纬》的报道援引中央财经大学研究员任国政的话说，这些机构中的一些会给支付更多费用的借款人提供更好的评级。
+
+同时，北大纵横管理咨询集团合伙人王春密表示，债券评级业务缺乏规范。
+
+国有媒体《证券时报》12月17日发表社论指出，国有企业往往由地方政府支持，这将使机构更倾向于给予AAA评级。
+
+逾期的债券是中国经济低迷的另一个反映。
+
+国营网站中国房地产网12月21日报道称，中国所有一线城市的写字楼和商铺租金都有所下降。
+
+报道援引中国商业中心上海的房地产中介公司的话说，在上海最繁华的地区，大约有10%的写字楼是空置的，而在上海相对农村的地区，40%的写字楼是空置的。
+
+英国商业地产服务公司Debenham Thouard Zadelhoff(戴德梁行) 9月28日发布的北京第三季度市场报告指出，北京写字楼的出租率不断下降。同时，空置率达到过去十年来的最高点。
+
+原文作者：郝妮可（Nicole Hao）
+发布时间：2020年12月24日
+原文链接：[https://www.theepochtimes.com/chinese-firms-owe-roughly-24-billion-in-overdue-credit-bonds\_3627932.html](https://www.theepochtimes.com/chinese-firms-owe-roughly-24-billion-in-overdue-credit-bonds_3627932.html)
 
 0

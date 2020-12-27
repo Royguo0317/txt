@@ -1,50 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】日本紧急封国一个月，全球经济受重创
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/687626/)
+## 【林伍德律师推文1226】- FBI局长雷应该被解雇
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/687749/)
 
-作者：香草山写作组 wilson
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23222242/GNEW-GTV-MOS-LOGO-2-1.jpg)
+12月26日林伍德律师推文：
 
 
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/16225049/12176.png)
-
-据日媒报道，日本政府于2020年12月26日发布消息称，该国从28日起，全面暂停来自所有国家和地区的新入境。该禁令的实施时间自2020年12月28日起至明年1月底。
-![]()![](https://gnews.org/wp-content/uploads/2020/12/W020201226828578800833.jpg)
-中共病毒的强变异及高传染性，迫使日本政府作出了封国举措。近来中共病毒发生基因突变，病毒株的感染性增强70%，继在欧洲6国被发现后，全球5大洲相继发现这种被新命名为 VUI-202012/01 的变种病毒。
-同时，日本国内的疫情也非常严重，据共同社26日消息，日本东京都政府26日公布，25日东京新确诊949人感染新冠病毒，超过24日的888人，创单日新高。
-短评:效法日本封国的国家会越来越多。
-二战后日本一直是稳定的出口大国，其供应链遍布全世界，日本更是全球产业链中最重要的一环之一。
-全世界疫情加重及日本封国将重创全球经济。简单打个比喻，在日本生产的某个汽车部件，供应给分布在世界各地的10家汽车工厂，当日本厂家的供应中断时，这10家关联工厂只能跟着停工。
-中共病毒的威力在于，产业链断裂造成的实业倒闭和工人失业，将在参与全球产业链国家的所有经济领域连锁发生，动摇全球经济体系。
-直接后果是各国的财政收入直线下降，社会救助、抗疫支出大幅增加，政府只能拼命印钞维系，主权货币贬值失控，随后恶性通胀爆发，而通胀对经济的破坏力同样巨大。当政府工作人员领到的薪水是和废纸无异的纸币时，社会将失控，骚乱、饥荒甚至战争等次生灾害接踵而至，人类由此步入末日模式决非危言耸听。
-闫丽梦博士早在今年4月就发出严厉警告留给人类的时间不多了，唯有灭共才能从根本上解除中共病毒对人类的威胁。
-
-校对发稿：悟空
-参考源：
-
-http://intl.ce.cn/qqss/202012/26/t20201226\_36160221.shtml
-https://news.sina.com.cn/w/2020-12-26/doc-iiznctke8624852.shtml
-日本东京新确诊949人感染新冠，再创新高
-强变异中共病毒失控 最大受害者中共国百姓 – GNEWS
+> 忙着说真话，时间过得真快! 午休时间到了。不过，再多说几句真话。
+> 
+> 1. 联邦调查局局长Christopher Wray必须立即被解雇。
+> 
+> 2. 查查@kslaw King & Spalding律师事务所与Wray的关系，
+> 
+> 以及 @RodRosenstein （2017年美国司法部副部长）和Sally Yates （乔治亚州北区司法厅厅长）的关系。
+> 
+> 3. 都是一丘之貉。
 
 
 
-> [强变异中共病毒失控 最大受害者中共国百姓](https://gnews.org/zh-hans/673819/)
+
+> Time flies when you are busy speaking truth! Time for lunch break. But first, a few more truths:
+> 
+> 1. FBI Director Christopher Wray must be fired immediately.
+> 
+> 2. Research [@kslaw](https://twitter.com/kslaw?ref_src=twsrc%5Etfw) law firm connections with Wray, [@RodRosenstein](https://twitter.com/RodRosenstein?ref_src=twsrc%5Etfw) & Sally Yates.
+> 
+> 3. Birds of a feather flock together.
+> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342894152686723079?ref_src=twsrc%5Etfw)
 
 
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23222242/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
 
+> Birds of a feather??? [pic.twitter.com/XumE6F4HRN](https://t.co/XumE6F4HRN)
+> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342896538704613383?ref_src=twsrc%5Etfw)
 
-+1
+
+林伍德：都是一丘之貉吧？
+在另一则推文中，他指出：
+
+
+> 我看到Quinn Warner和Richard Jewell之间相似之处，很令人不安。
+> 
+> Richard被联邦调查局（FBI）诬告。他是一个替罪羊，所以FBI可以向世界宣称它 “抓住了自己人”，而这个人就是理查德-朱厄尔。
+> 
+> 理查德没有炸毁奥林匹克公园。
+> 
+> 联想一下。
+
+
+
+
+> I see disturbing similarities between Anthony Quinn Warner & Richard Jewell.
+> 
+> Richard was falsely accused by FBI. He was a scapegoat so that FBI could claim to world that it “had its man” & the man was Richard Jewell.
+> 
+> Richard did not bomb Olympic Park.
+> 
+> Connect the dots.
+> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342970524121620481?ref_src=twsrc%5Etfw)
+
+
+
+新闻素材和图片来自林伍德律师推特
+
+
+
+0

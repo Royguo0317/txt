@@ -1,59 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中国公司欠大概240亿美元的逾期信用债券
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/688089/)
+## 中共媒体称北京在“幕后谈判”中要求拜登重新加入伊朗核协议
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/688185/)
 
-翻译：康州盘古农场 – Melody太阳的旋律 
-校对： 康州盘古农场 – 烟波浩淼
-审核： 康州盘古农场 –V
-![]()![](https://gnews.org/wp-content/uploads/2020/12/98f3246dc00b4876abfcbef79b9af996tplv-mlhdmxsy5m-q75-0-0.image_.jpeg)永煤集团爆债券违约，图：百度百科
-中国经济困境的最新指标是全国范围内无法按期偿还的信用债券数量，其中164只，涉及金额总共1600亿元人民币（约合244.3亿美元）。
+翻译：康州盘古农场 – jeremysong
 
-借款人包括此前被中国债券评级机构评为AAA级的国有企业。
+校对：康州盘古农场 – 烟波浩淼
 
-中国市场上的债券有三类：不同级别政府发行的政府债券；公司发行的信用债券；上市公司发行的可转换债券，可转换为发行公司的普通股或等值的现金。
+审核： 康州盘古农场 –Truemanman
+![]()![](https://gnews.org/wp-content/uploads/2020/12/图片80.png)
+拜登（Biden）团队正在通过背后渠道与中共进行沟通，他们声称川普与俄罗斯人勾结时违反了《洛根法》。
 
-中国国营媒体《经济观察报》报道了中国私营金融服务公司Wind收集的最新债券市场统计数据。
+根据中共党媒的报道，北京上个月与拜登团队的密切人士开始了“幕后对话渠道”。这些后备渠道沟通实质上将发现拜登团队违反了《洛根法》，他们用此法在2016年对即将上任的川普政府进行了无端指控。
 
-“截至今年12月18日，27家企业发行的164只信用债出现了回售违约情况，”该报道称。”其中，国有企业的违约金额为518.97亿元（79.2亿美元），比2019年的129.3亿元（19.7亿美元）多出3倍。”
+隶属于中共的香港出版物《南华早报》报道说，中共外交部长王毅通过这个既定的“幕后渠道”，非外交地，直接地“命令”拜登重新签署《伊朗核协议》，解除对伊朗的制裁，减低针对中共政府的强硬政策。
 
-例如，河南永煤是一家位于中国中部河南省的国营煤炭企业，金融市场评级为AAA。11月10日，永煤宣布无法支付一笔到期的信用债券，本息价值超过10亿元（1.5亿美元）。
+王毅在欧盟举行的电视会议上说：“美国将在没有任何先决条件的情况下尽快与伊朗达成核协议，美国也应取消对伊朗，其他第三方实体和个人的所有制裁。”
 
-11月23日，永煤宣布也无法兑付其其他信用债，价值超过20亿元。同时，永煤还有21只信用债未到期，总价值214.1亿元（32.7亿美元）。
 
-据公司数据显示，其目前的负债资产率超过77%。11月11日，在永煤无法兑付到期信用债的第二天，中国诚信债券评级机构将永煤的评级从AAA下调至BB。
 
-永煤董事长强代民在11月23日的新闻发布会上表示，公司将遵循中国国务院下属金融监管机构金融稳定发展委员会的决定。
+> Communist China already pushing around Biden[https://t.co/cg5HET4vIB](https://t.co/cg5HET4vIB)
+> — Mark R. Levin (@marklevinshow) [December 23, 2020](https://twitter.com/marklevinshow/status/1341895044643610628?ref_src=twsrc%5Etfw)
 
-截至记者发稿时，永煤公司仍在运营。公司支付了第一笔到期债券的利息，并表示将很快支付一半的本金。
 
-华晨汽车是辽宁省最大的国营汽车制造商，至少被大公全球和东方金诚两家中国债券评级机构评为AAA级。9月20日，华晨汽车无法偿还到期信用债的利息。
 
-此后，该公司声称没有现金支付信用债本息，评级被下调至A+。
+*马克·莱文 @marklevinshow**12月23日*
 
-11月20日，沈阳市中级人民法院裁定，华晨的债权人应对公司进行重组–这意味着华晨已经破产。但华晨与欧洲汽车制造商宝马和雷诺的合资企业并未受到影响。
+*中共已对拜登步步紧逼*
 
-中国经济学家此前曾指出中国债券评级机构评级不可靠的问题。
+来自俄罗斯，伊朗，英国，法国和德国的外交部长，以及川普总统2018年退出的《联合全面行动计划》（《伊朗核协议》）时所有签署国几乎都虚拟出席了会议。
 
-据国营媒体《经纬》报道，中国只有6家这样的机构拥有正式牌照。
+来自德国，伊朗，中国，俄罗斯和英国的代表“欢迎”拜登政府将美国带回屈服的可能性。
 
-《经纬》的报道援引中央财经大学研究员任国政的话说，这些机构中的一些会给支付更多费用的借款人提供更好的评级。
+德国国营的《德国之声》新闻称该前景为“积极的”，并补充说：随着“乔·拜登的上任，核协议的所有各方都希望将其恢复活力。”
 
-同时，北大纵横管理咨询集团合伙人王春密表示，债券评级业务缺乏规范。
 
-国有媒体《证券时报》12月17日发表社论指出，国有企业往往由地方政府支持，这将使机构更倾向于给予AAA评级。
 
-逾期的债券是中国经济低迷的另一个反映。
+> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) rejects any renegotiation of [#Iran](https://twitter.com/hashtag/Iran?src=hash&amp;ref_src=twsrc%5Etfw) deal, urges US to rejoin [#JCPOA](https://twitter.com/hashtag/JCPOA?src=hash&amp;ref_src=twsrc%5Etfw) [#IranDeal](https://twitter.com/hashtag/IranDeal?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/w8Hiu3njvw](https://t.co/w8Hiu3njvw)
+> — Press TV (@PressTV) [December 17, 2020](https://twitter.com/PressTV/status/1339562659428089858?ref_src=twsrc%5Etfw)
 
-国营网站中国房地产网12月21日报道称，中国所有一线城市的写字楼和商铺租金都有所下降。
 
-报道援引中国商业中心上海的房地产中介公司的话说，在上海最繁华的地区，大约有10%的写字楼是空置的，而在上海相对农村的地区，40%的写字楼是空置的。
 
-英国商业地产服务公司Debenham Thouard Zadelhoff(戴德梁行) 9月28日发布的北京第三季度市场报告指出，北京写字楼的出租率不断下降。同时，空置率达到过去十年来的最高点。
+*新闻电视**@PressTV**12月17日*
 
-原文作者：郝妮可（Nicole Hao）
-发布时间：2020年12月24日
-原文链接：[https://www.theepochtimes.com/chinese-firms-owe-roughly-24-billion-in-overdue-credit-bonds\_3627932.html](https://www.theepochtimes.com/chinese-firms-owe-roughly-24-billion-in-overdue-credit-bonds_3627932.html)
+*#中国拒绝任何重新谈判 #伊朗协议，敦促美国重新加入#JCPOA#。*
 
-0
+拜登团队在美国政策和对外关系上与中共开放了“幕后渠道”交流的想法使拜登团队参与了民主党和进步派希望迈克尔·弗林将军入狱的行为。
+
+《洛根法》（Logan Act）–左派在指控即将上任的川普政府进行阻挠和非法通信时引用的法律，是1799年的法律，要求对未经授权擅自干预美国与外国政府之间事务的私人公民处以罚款和/或监禁。
+
+截至发稿时，直到2021年1月20日，民主党总统候选人乔·拜登，他的竞选伙伴美国加州民主党参议员卡马拉·哈里斯以及他的其余人员仍被指定为私人公民，没有任何官方的美国政府职位。
+
+原文作者：法兰克·萨尔瓦（Frank Salvato）
+
+发布时间：12 月25 日
+
+原文链接：[CHINA: Chinese Media Says Beijing Demanded Biden Rejoin Iran Nuclear Deal During ‘Backchannel Talks’ – National File](https://nationalfile.com/china-chinese-media-says-beijing-demanded-biden-rejoin-iran-nuclear-deal-during-backchannel-talks/)
+
++1

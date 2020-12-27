@@ -1,70 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1226】- FBI局长雷应该被解雇
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/687749/)
+## 【热点播报】阿富汗逮捕10名中共间谍，要求道歉羞辱中共
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/687801/)
 
-12月26日林伍德律师推文：
+香草山写作组 Wilson
 
+2020年12月26日，法广(RFI)报道，阿富汗情报当局称，他们捣毁了一个与塔利班分支恐怖组织“哈卡尼”（Haqqani）网络有联系的中国间谍小组，10名中国公民被捕。
 
-> 忙着说真话，时间过得真快! 午休时间到了。不过，再多说几句真话。
-> 
-> 1. 联邦调查局局长Christopher Wray必须立即被解雇。
-> 
-> 2. 查查@kslaw King & Spalding律师事务所与Wray的关系，
-> 
-> 以及 @RodRosenstein （2017年美国司法部副部长）和Sally Yates （乔治亚州北区司法厅厅长）的关系。
-> 
-> 3. 都是一丘之貉。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/Screen-Shot-2020-12-26-at-6.58.09-PM.png)
 
+阿富汗总统加尼 (Ashraf Ghani) 政府表示，已要求中国道歉，否则将不会释放这些中国公民，而且会对他们提起诉讼。
 
+短评: 通常国家之间的间谍处理都是釆取不声张甚至对外保密的办法，阿富汗抓捕中共间谍并高调要求道歉，表明阿富汗政府对坏事做绝的中共不再客气，判断中共即将灭亡有把握。
 
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-> Time flies when you are busy speaking truth! Time for lunch break. But first, a few more truths:
-> 
-> 1. FBI Director Christopher Wray must be fired immediately.
-> 
-> 2. Research [@kslaw](https://twitter.com/kslaw?ref_src=twsrc%5Etfw) law firm connections with Wray, [@RodRosenstein](https://twitter.com/RodRosenstein?ref_src=twsrc%5Etfw) & Sally Yates.
-> 
-> 3. Birds of a feather flock together.
-> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342894152686723079?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> Birds of a feather??? [pic.twitter.com/XumE6F4HRN](https://t.co/XumE6F4HRN)
-> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342896538704613383?ref_src=twsrc%5Etfw)
-
-
-林伍德：都是一丘之貉吧？
-在另一则推文中，他指出：
-
-
-> 我看到Quinn Warner和Richard Jewell之间相似之处，很令人不安。
-> 
-> Richard被联邦调查局（FBI）诬告。他是一个替罪羊，所以FBI可以向世界宣称它 “抓住了自己人”，而这个人就是理查德-朱厄尔。
-> 
-> 理查德没有炸毁奥林匹克公园。
-> 
-> 联想一下。
-
-
-
-
-> I see disturbing similarities between Anthony Quinn Warner & Richard Jewell.
-> 
-> Richard was falsely accused by FBI. He was a scapegoat so that FBI could claim to world that it “had its man” & the man was Richard Jewell.
-> 
-> Richard did not bomb Olympic Park.
-> 
-> Connect the dots.
-> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342970524121620481?ref_src=twsrc%5Etfw)
-
-
-
-新闻素材和图片来自林伍德律师推特
-
-
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
 0
