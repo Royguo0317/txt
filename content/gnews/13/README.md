@@ -1,58 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 会计，财报及审计的入门基础与介绍（三）
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/688023/)
+## 中国公司欠大概240亿美元的逾期信用债券
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/688089/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23164109/1223.jpg)
-Picture Source: https://www.groomassocies.com
+翻译：康州盘古农场 – Melody太阳的旋律 
+校对： 康州盘古农场 – 烟波浩淼
+审核： 康州盘古农场 –V
+![]()![](https://gnews.org/wp-content/uploads/2020/12/98f3246dc00b4876abfcbef79b9af996tplv-mlhdmxsy5m-q75-0-0.image_.jpeg)永煤集团爆债券违约，图：百度百科
+中国经济困境的最新指标是全国范围内无法按期偿还的信用债券数量，其中164只，涉及金额总共1600亿元人民币（约合244.3亿美元）。
 
-在第三篇中则是详细展示财务审计与分析过程中所应用的法律法规或行业准则。最终的目的是营造公平诚信的投资与商业管理环境并积极促进实体商业与经济的发展，增强对投资实体的保护
+借款人包括此前被中国债券评级机构评为AAA级的国有企业。
 
-1. International Organization of security Commission
-    - 国际证券委员会技术上不是监管机构，但是对国际上很大部分资本市场进行监管
-    - 三大目标：
-        - 保护投资人    Protecting Investor ，
-        - 确保市场公平，有效，透明Ensure market is Fair， Efficient and transparent
-        - 减少系统性风险Reducing systemic risks
-2. “发行人原则The principle of issuers”中最重要的两条
-    - 应完整，准确，及时的披露财报结果，风险和其他对于投资者至关重要的信息
-    - 发行人用于编制会计的财务准则应具有很高质量，并在国际上可接受
-3. The Security and Exchange Commission （SEC）
-    - Security Act 1933（ 证券法1933）
-    - 规定了投资者必须获得的财务信息或其他重要信息，禁止虚假陈述，并要求上市公司的证券进行初步注册
-4. Security Exchange Act of 1934 (证券交易法1934)
-    - 赋予SEC要求上市公司定期报告的目的
-5. Sarbanes-Oxley Act 2002 (班萨斯法案)
-    - 该法案创建上市公司会计监督委员会（PCAOB），以监督审计师
-    - SEC负责执行法案要求，监督PCAOB。涉及审计师独立性，加强公司对财报的责任
-6. Qualitative Characteristics of financial Report 4.1
-    - 财务报告是否有效的关键特征
-    - Relevance  相关性
-    - Faithful Representation：可信的代表着经济现象的信息，并且信息是完整，中立，无误
-7. 四个增强定性
-    - Comparability： 可比较性，使用户可以理解
-    - Verifiability: 可确认性，不同学识渊博，独立的观察者会同意信息是极高可信度的代表了
-    - Timeliness：及时性，决策之前可即时获得信息
-    - Understandability：清晰简洁的信息可增强可理解性
-8. 法务审计 Forensic audit
-    - 主要的审计项目
-        - 反洗钱调查 Anti-money laundry
-        - 保险文件准备 Insurance claim documents preparation
-        - 争端服务 Dispute services
-        - 欺诈调查 Fraud investigation
-    - 主要的审计手段 （approach）
-        - 相关人员问询 Interview/Integration
-        - 法务数据分析 Forensic data analytics
-        - 法务数据收集 eDiscovery
-        - 邮件审查 Email review
-        - 第三方专家意见 External experts including valuation, engineering and etc.
+中国市场上的债券有三类：不同级别政府发行的政府债券；公司发行的信用债券；上市公司发行的可转换债券，可转换为发行公司的普通股或等值的现金。
 
+中国国营媒体《经济观察报》报道了中国私营金融服务公司Wind收集的最新债券市场统计数据。
 
-Author：搞笑排行榜 / 涅
+“截至今年12月18日，27家企业发行的164只信用债出现了回售违约情况，”该报道称。”其中，国有企业的违约金额为518.97亿元（79.2亿美元），比2019年的129.3亿元（19.7亿美元）多出3倍。”
 
-Original opinion article by Himalaya G-farm Vancouver
+例如，河南永煤是一家位于中国中部河南省的国营煤炭企业，金融市场评级为AAA。11月10日，永煤宣布无法支付一笔到期的信用债券，本息价值超过10亿元（1.5亿美元）。
 
-2020/12/26
+11月23日，永煤宣布也无法兑付其其他信用债，价值超过20亿元。同时，永煤还有21只信用债未到期，总价值214.1亿元（32.7亿美元）。
+
+据公司数据显示，其目前的负债资产率超过77%。11月11日，在永煤无法兑付到期信用债的第二天，中国诚信债券评级机构将永煤的评级从AAA下调至BB。
+
+永煤董事长强代民在11月23日的新闻发布会上表示，公司将遵循中国国务院下属金融监管机构金融稳定发展委员会的决定。
+
+截至记者发稿时，永煤公司仍在运营。公司支付了第一笔到期债券的利息，并表示将很快支付一半的本金。
+
+华晨汽车是辽宁省最大的国营汽车制造商，至少被大公全球和东方金诚两家中国债券评级机构评为AAA级。9月20日，华晨汽车无法偿还到期信用债的利息。
+
+此后，该公司声称没有现金支付信用债本息，评级被下调至A+。
+
+11月20日，沈阳市中级人民法院裁定，华晨的债权人应对公司进行重组–这意味着华晨已经破产。但华晨与欧洲汽车制造商宝马和雷诺的合资企业并未受到影响。
+
+中国经济学家此前曾指出中国债券评级机构评级不可靠的问题。
+
+据国营媒体《经纬》报道，中国只有6家这样的机构拥有正式牌照。
+
+《经纬》的报道援引中央财经大学研究员任国政的话说，这些机构中的一些会给支付更多费用的借款人提供更好的评级。
+
+同时，北大纵横管理咨询集团合伙人王春密表示，债券评级业务缺乏规范。
+
+国有媒体《证券时报》12月17日发表社论指出，国有企业往往由地方政府支持，这将使机构更倾向于给予AAA评级。
+
+逾期的债券是中国经济低迷的另一个反映。
+
+国营网站中国房地产网12月21日报道称，中国所有一线城市的写字楼和商铺租金都有所下降。
+
+报道援引中国商业中心上海的房地产中介公司的话说，在上海最繁华的地区，大约有10%的写字楼是空置的，而在上海相对农村的地区，40%的写字楼是空置的。
+
+英国商业地产服务公司Debenham Thouard Zadelhoff(戴德梁行) 9月28日发布的北京第三季度市场报告指出，北京写字楼的出租率不断下降。同时，空置率达到过去十年来的最高点。
+
+原文作者：郝妮可（Nicole Hao）
+发布时间：2020年12月24日
+原文链接：[https://www.theepochtimes.com/chinese-firms-owe-roughly-24-billion-in-overdue-credit-bonds\_3627932.html](https://www.theepochtimes.com/chinese-firms-owe-roughly-24-billion-in-overdue-credit-bonds_3627932.html)
 
 0

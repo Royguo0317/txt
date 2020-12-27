@@ -1,32 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鲍威尔律师推文1226】多米尼系统诬告自摆乌龙
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/688027/)
+## 纳什维尔的爆炸案可能是为暴乱作准备
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/688060/)
 
-12月26日鲍威尔律师转发了以下推文。
+撰稿：澳喜特战旅—永遠の小学生文筝 审稿：Jenny
+![]()![](https://gnews.org/wp-content/uploads/2020/12/图片-23.png)(推特截图)
+田纳西州纳什维尔的爆炸案导至了部分地区的通讯一度中断。如果同样的行为在多个地区同时发生，导至全国的通讯不畅通，此时再发生暴乱，对普通人来说会造成巨大的恐慌。
 
-名为“海妖艺术农场”的网友发推：
+从公布的信息来看，这次爆炸案并不像是国外恐怖分子做的，更像是美国极端左派的行为。因为有广播是从爆炸的车上发出来。“现在该地区所有建筑物必须疏散。”“如果你能听到此消息，请立即撤离。”这广播内容说明这次爆炸的目的不是制造流血事件。再加上是圣诞节人们都在家过节，发生时间6：30正是人很少的时候。
 
+通讯中断这种状态是暴乱分子需要的，这次爆炸是为了某种更大的有预谋的行为而做的测试。未来川普成功连任，中共和拜登一定不可能承认。鳄鱼不会乖乖被抓，一定会制造混乱，甚至掀起内战。而这都需要控制通讯。要知道像安提法，黑命贵这些组织一定无法接受川普连任，这次暴乱肯定是全国性的，所有左派都会参与的。
 
-> Eric Coomer（多米尼系统的一名工作人员、诽谤川普竞选团队诬告者）拥有裁决过程的专利。基本上Coomer为多米尼（Dominion）系统创造了整个裁决的流程。系统设置用以连接网络。 （笔者按，投票机在法律上不能连接上网。）
-> 
-> #为川普而战 #上帝取胜 #像弗林将军一样战斗
+(本文仅代表作者个人观点)
 
+编辑：文远Bruce
 
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
 
+[【澳喜文章】](https://gnews.org/zh-hans/author/aujenny/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040800/IMG_1836-1.jpg)
 
-> [Defending The Republic – Sidney Powell](https://defendingtherepublic.org/)
-
-
-
-
-
-> Eric Coomer has Patents on the Adjudication Process. Basically Coomer Created the entire Adjudication process for Dominion. The system is set up to go ONLINE🙄[https://t.co/inyMRIAFw1](https://t.co/inyMRIAFw1) [@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw) [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) [@LLinWood](https://twitter.com/LLinWood?ref_src=twsrc%5Etfw)[#FightForTrump](https://twitter.com/hashtag/FightForTrump?src=hash&amp;ref_src=twsrc%5Etfw) [#Godwins](https://twitter.com/hashtag/Godwins?src=hash&amp;ref_src=twsrc%5Etfw) [#FightLikeAFlynn](https://twitter.com/hashtag/FightLikeAFlynn?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/VwM5VpnrIS](https://t.co/VwM5VpnrIS)
-> — 🇺🇸KrakenArtsFarm🇺🇸 (@hppyjesusfreak) [December 27, 2020](https://twitter.com/hppyjesusfreak/status/1342991363105669120?ref_src=twsrc%5Etfw)
-
-
-
-新闻和图片来源于鲍威尔律师及其转发的推文
 
 0

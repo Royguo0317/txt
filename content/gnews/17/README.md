@@ -1,36 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鲍威尔律师推文1226】-德州最新造假证据
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/687980/)
+## 【鲍威尔律师推文1226】多米尼系统诬告自摆乌龙
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/688027/)
 
-拆礼物日，美国正义的选民继续为选举结果拆出“新礼物”。12月26日网友转发一篇文章，揭示了得克萨斯州最新舞弊证据：民主党人在同一个城市、用同一个笔迹、同一个地址制造假选票的罪证。
+12月26日鲍威尔律师转发了以下推文。
 
-网友称：
+名为“海妖艺术农场”的网友发推：
 
 
-> 还有多少证据才能阻止这种愚蠢的行为？
+> Eric Coomer（多米尼系统的一名工作人员、诽谤川普竞选团队诬告者）拥有裁决过程的专利。基本上Coomer为多米尼（Dominion）系统创造了整个裁决的流程。系统设置用以连接网络。 （笔者按，投票机在法律上不能连接上网。）
 > 
-> 乔-拜登的选票是假的，大家都知道!
-> 
-> 川普赢了!!
-
-
-鲍威尔律师转发了这一推文。
+> #为川普而战 #上帝取胜 #像弗林将军一样战斗
 
 
 
-> How much more evidence before this stupidity is stopped?
-> 
-> Joe Biden’s votes are fake and EVERYONE knows that!
-> 
-> TRUMP WON!!![https://t.co/4iCvo3lUIx](https://t.co/4iCvo3lUIx)
-> — Andrew 3.0 (@AndrewKAG2020) [December 26, 2020](https://twitter.com/AndrewKAG2020/status/1342944844138876934?ref_src=twsrc%5Etfw)
+
+> [Defending The Republic – Sidney Powell](https://defendingtherepublic.org/)
 
 
 
-新闻素材来自鲍威尔推特, 图片来自ConservativeRoom.
 
 
+> Eric Coomer has Patents on the Adjudication Process. Basically Coomer Created the entire Adjudication process for Dominion. The system is set up to go ONLINE🙄[https://t.co/inyMRIAFw1](https://t.co/inyMRIAFw1) [@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw) [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) [@LLinWood](https://twitter.com/LLinWood?ref_src=twsrc%5Etfw)[#FightForTrump](https://twitter.com/hashtag/FightForTrump?src=hash&amp;ref_src=twsrc%5Etfw) [#Godwins](https://twitter.com/hashtag/Godwins?src=hash&amp;ref_src=twsrc%5Etfw) [#FightLikeAFlynn](https://twitter.com/hashtag/FightLikeAFlynn?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/VwM5VpnrIS](https://t.co/VwM5VpnrIS)
+> — 🇺🇸KrakenArtsFarm🇺🇸 (@hppyjesusfreak) [December 27, 2020](https://twitter.com/hppyjesusfreak/status/1342991363105669120?ref_src=twsrc%5Etfw)
+
+
+
+新闻和图片来源于鲍威尔律师及其转发的推文
 
 0

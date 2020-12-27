@@ -1,47 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【川普总统推文1226】 “我们必须赢得胜利” &amp; 亚利桑那州
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/687647/)
+## 【林伍德律师推文1226】-枪支的问题
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/687711/)
 
-12月26日，亚利桑那州国会议员Mark Finchem 发推：
+12月26日林伍德律师推文：
 
 
-> 最高法院 v. 总统先生，“我们有绝对的证据，但他们不想看–他们说没有’依据’。如果我们有腐败的选举，我们就没有国家了！” 这是年度语录!
+> 思考与回答的问题：
 > 
-> @真正的唐纳德-川普
+> (1) 为什么我们的政府要关闭弹药供应？
 > 
-> 法院不担心法治更担心骚乱？无政府主义者们是不会停止（骚乱）的  #停止偷窃
+> (2)为什么ATF试图修改关于80%枪支套件的法律，以禁止它们和公民自制枪支的能力？
+> 
+> (3) C.J. John Roberts（首席大法官）会维护第二修正案的权利吗？答案：不会。不会。
 
 
 
 
-> SCOTUS v. POTUS, “We have absolute PROOF, but they don’t want to see it—No ‘standing’, they say. If we have corrupt elections, we have no country!” QUOTE OF THE YEAR! [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) SCOTUS more worried about riots than rule of law? Anarchists won't stop [#stopthesteal](https://twitter.com/hashtag/stopthesteal?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Mark Finchem (@MarkFinchem) [December 26, 2020](https://twitter.com/MarkFinchem/status/1342897137504366593?ref_src=twsrc%5Etfw)
+> Questions to ponder & answer:
+> 
+> (1) Why is our government shutting down the ammunition supply?
+> 
+> (2) Why is ATF trying to change law on 80% Gun Kits to ban them & ability of citizens to build their own guns?
+> 
+> (3) Would C.J. John Roberts uphold 2nd Amendment rights? Answer: NO.
+> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342888293411807235?ref_src=twsrc%5Etfw)
 
 
 
-他随后发推：“爱国者，加油。”然后引用《圣经约书亚记》1:9 NIV中的话：
+网友发推：
 
 
-> “我不是吩咐过你们吗？你们要坚强勇敢。不要害怕，不要灰心，因为无论你往哪里去，耶和华你的神必与你同在。”
+> 再次，媒体正在推动消除枪支。我们的祖先认为，持枪的权利可以防止政府被（非法）接管。历史表明，任何政府接管之前，他们解除了公民的武装。希特勒做到了，而在我们的革命战争之前，英国乔治国王告诉我们要解除武装，好在我们现在没有。
 
 
-川普总统就这段文字进行回推：
-
-
-> 谢谢你，马克 在亚利桑那州发现了大量的数字.我们必须为我们的国家赢得胜利!
+林伍德律师回复道：真理。
 
 
 
-
-> Thank you Mark. Big numbers found in Arizona.We must win for our Country! [https://t.co/I6UXM3cz42](https://t.co/I6UXM3cz42)
-> — Donald J. Trump (@realDonaldTrump) [December 26, 2020](https://twitter.com/realDonaldTrump/status/1342872502306009089?ref_src=twsrc%5Etfw)
-
-
-
-新闻素材和图片来自川普总统推推
+> TRUTH. [https://t.co/cNr3VD8HjU](https://t.co/cNr3VD8HjU)
+> — Lin Wood (@LLinWood) [December 26, 2020](https://twitter.com/LLinWood/status/1342891096175763456?ref_src=twsrc%5Etfw)
 
 
 
-0
+新闻素材来自林伍德律师推特
+
+图片来源 home.army.mil
+
+
+
+
+
++1

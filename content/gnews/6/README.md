@@ -1,61 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共媒体称北京在“幕后谈判”中要求拜登重新加入伊朗核协议
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/688185/)
+## 【战友心声】今日中共，昔日暴秦
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/688231/)
 
-翻译：康州盘古农场 – jeremysong
+作者：香草山写作组 程万里  编辑：文位
 
-校对：康州盘古农场 – 烟波浩淼
-
-审核： 康州盘古农场 –Truemanman
-![]()![](https://gnews.org/wp-content/uploads/2020/12/图片80.png)
-拜登（Biden）团队正在通过背后渠道与中共进行沟通，他们声称川普与俄罗斯人勾结时违反了《洛根法》。
-
-根据中共党媒的报道，北京上个月与拜登团队的密切人士开始了“幕后对话渠道”。这些后备渠道沟通实质上将发现拜登团队违反了《洛根法》，他们用此法在2016年对即将上任的川普政府进行了无端指控。
-
-隶属于中共的香港出版物《南华早报》报道说，中共外交部长王毅通过这个既定的“幕后渠道”，非外交地，直接地“命令”拜登重新签署《伊朗核协议》，解除对伊朗的制裁，减低针对中共政府的强硬政策。
-
-王毅在欧盟举行的电视会议上说：“美国将在没有任何先决条件的情况下尽快与伊朗达成核协议，美国也应取消对伊朗，其他第三方实体和个人的所有制裁。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
 
 
+![]()![](https://gnews.org/wp-content/uploads/2020/12/MOS0836-【战友心声】今日中共，昔日暴秦.png)
+这段时间墙内《大秦赋》成为热播，中共媒体称颂：书同文、车同轨，一统之功耀千古，奠万世之基业。中共媒体称颂大秦帝国是借古讽今吗？是在告诉我们帝国只到秦二世就没有了吗？这是中共对暴秦的美化，赞古喻今–现在的中共就是当年的大秦。当今那些崇拜秦王朝的人，你们是咋想的呢？真希望你们能穿越到秦国，相信现代的考古会发现您被车裂的块块尸骨。
 
-> Communist China already pushing around Biden[https://t.co/cg5HET4vIB](https://t.co/cg5HET4vIB)
-> — Mark R. Levin (@marklevinshow) [December 23, 2020](https://twitter.com/marklevinshow/status/1341895044643610628?ref_src=twsrc%5Etfw)
+中共称颂暴秦就是在堪比自己，认祖归宗。当时的秦国重徭役、重税负、重刑罚，专制无道导致民不聊生、尸横遍野，令天下人都要伐无道诛暴秦。中共称颂：“秦朝为了统一可以什伍连坐，严法酷吏，割鼻腰斩，为了统一可以杀戮诛心，焚书坑儒，驭民五术。”这些称颂旨在说明，一人超生全村结扎的连坐制度，数字货币的统一监管，消言禁书的焚书坑儒，炉火纯青的驭民五术，高科技的奴隶制度虽勉为其难但也合情合理。中共哪里是什么信仰马克思主义者，完全是暴秦两千多年传下来的孽种在报二世亡秦的仇，他们一直认为自己的江山是万世的基业。在中国，政权更迭的每个王朝，无一不是奉行商鞅的驭民五术那一套，中央集权制从未变过，到了中共这一辈尽然直接厚颜无耻地称颂秦朝就是他们的鼻祖，秦朝的非物质文化遗产才只用了那么一点点，后面要大力继承发扬，努力向大秦看齐。
 
+中共美化暴秦就是在美化自己，不敢让自己的恶行大白于天下，更怕的是民众的觉醒。在防火墙即将被推倒之际推出《大秦赋》，就是为了让被洗脑的人自愿做没有灵魂的僵尸，成为中共的肉盾。从某种意义上来说秦朝是中国史上首次大规模的社会倒退，车同轨、书同文是为了贯彻政令加强集权，焚书坑儒的一方面也是为了美化历史。中国古代的断层就是秦朝，犹如现在的中共，无恶不作，却依靠防火墙和笔杆子，加上对历史歪曲来美化自己，即使哪天防火墙倒了也要让人认可为了一统江湖，不择手段也是情有可原的。
 
+是的，今日中共就是昔日暴秦，而且更甚。那时的天下苦秦久矣，需要的是伐无道诛暴秦。现在的天下何止是苦中共，灭中共早已是正义的需要。为正义灭中共，为香港、新疆等被残害的同胞灭共，为全球被CCP病毒感染近8千万的世人灭共，为中国被欺压的14亿百姓灭共。
 
-*马克·莱文 @marklevinshow**12月23日*
+“亡秦者秦也，非天下也。”还记得文贵先生曾说过：“最后灭掉共产党的一定是共产党。”看来中共歌颂暴秦就是堪比自己犹如暴秦一样，到了该灭亡的时候了。
 
-*中共已对拜登步步紧逼*
-
-来自俄罗斯，伊朗，英国，法国和德国的外交部长，以及川普总统2018年退出的《联合全面行动计划》（《伊朗核协议》）时所有签署国几乎都虚拟出席了会议。
-
-来自德国，伊朗，中国，俄罗斯和英国的代表“欢迎”拜登政府将美国带回屈服的可能性。
-
-德国国营的《德国之声》新闻称该前景为“积极的”，并补充说：随着“乔·拜登的上任，核协议的所有各方都希望将其恢复活力。”
+附《商君书》驭民五术：
+1、愚民：统一思想。
+2、弱民：国强民弱，治国之道，务在弱民。
+3、疲民：为民寻事，疲于奔命，使民无瑕顾及他事。
+4、辱民：一无自尊自信；二唆之相互检举揭发，终日生活于恐惧氛围中。
+5、贫民：除了生活必须，剥夺余银余财；人穷志短。 五皆不灵，杀之。
 
 
 
-> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) rejects any renegotiation of [#Iran](https://twitter.com/hashtag/Iran?src=hash&amp;ref_src=twsrc%5Etfw) deal, urges US to rejoin [#JCPOA](https://twitter.com/hashtag/JCPOA?src=hash&amp;ref_src=twsrc%5Etfw) [#IranDeal](https://twitter.com/hashtag/IranDeal?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/w8Hiu3njvw](https://t.co/w8Hiu3njvw)
-> — Press TV (@PressTV) [December 17, 2020](https://twitter.com/PressTV/status/1339562659428089858?ref_src=twsrc%5Etfw)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-*新闻电视**@PressTV**12月17日*
-
-*#中国拒绝任何重新谈判 #伊朗协议，敦促美国重新加入#JCPOA#。*
-
-拜登团队在美国政策和对外关系上与中共开放了“幕后渠道”交流的想法使拜登团队参与了民主党和进步派希望迈克尔·弗林将军入狱的行为。
-
-《洛根法》（Logan Act）–左派在指控即将上任的川普政府进行阻挠和非法通信时引用的法律，是1799年的法律，要求对未经授权擅自干预美国与外国政府之间事务的私人公民处以罚款和/或监禁。
-
-截至发稿时，直到2021年1月20日，民主党总统候选人乔·拜登，他的竞选伙伴美国加州民主党参议员卡马拉·哈里斯以及他的其余人员仍被指定为私人公民，没有任何官方的美国政府职位。
-
-原文作者：法兰克·萨尔瓦（Frank Salvato）
-
-发布时间：12 月25 日
-
-原文链接：[CHINA: Chinese Media Says Beijing Demanded Biden Rejoin Iran Nuclear Deal During ‘Backchannel Talks’ – National File](https://nationalfile.com/china-chinese-media-says-beijing-demanded-biden-rejoin-iran-nuclear-deal-during-backchannel-talks/)
-
-+1
+0
