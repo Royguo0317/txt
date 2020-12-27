@@ -1,37 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## &#8220;无能又软弱&#8221;&#8211;川普抨击最高法院没有站出来打击选举欺诈行为
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/688829/)
+## 关于deep state和沼泽地
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/688907/)
 
-作者：ProTrumpNews工作人员
+作者：古谣谚
 
-翻译：康州盘古农场-Mike Li
+根据路德和郭先生爆料的信息，美国背后有五大集团，七大机构控制着媒体和国家权力。其背后的背后的沼泽地才是真正的权力，其权力在犹太裔，爱尔兰裔，非洲裔，拉丁系等族裔。而deep state则是基于了某种族和华尔街的结合。[\[1\]](https://gnews.org/zh-hans/672238/)
+![]()![](https://gnews.org/wp-content/uploads/2020/12/120_Cover-2-1.png)
+由此可见其中各界所说的deep state看起来可能更像是一直以来推动新世界秩序和全球化的某精英阶层团体。
 
-校对：康州盘古农场-黎明的光芒
+如果说美国是按照一定的族系在各个机构和领域来划分势力的话，分成爱尔兰裔，犹太裔，拉丁裔，非洲裔等等的话，那么德裔和英格兰裔这两个美国白人最大的族裔也很难忽视。   尤其是德裔美国人超过有五千万人口，其多是在十九世纪初到一战前从德国大量移民美国的。甚至南北战争时期一度有数十万德裔美国移民参军。二战期间不少德裔将领也站了出来，鼎鼎大名的艾森豪威尔就是其中之一。而战后德裔的身影也出现在美国各大行业之中。[\[2\]](http://hant/%E5%BE%B7%E8%A3%94%E7%BE%8E%E5%9B%BD%E4%BA%BA)
 
-编辑：康州盘古农场-Rose
-![https://www.thegatewaypundit.com/wp-content/uploads/IMG_6909-600x330.jpg](https://lh3.googleusercontent.com/641PptEgDgG5XRggArzVIO3ORmz5lKYU9HEfA6GEBqPfJXRxQDuAHjWveUzNq0teI08AgpLbDkeCGCX1OnwNNggRML99W9TMZGmRGgqE67FhkQtq0Y17bQm8wc-1t-IxWH2Bc4PeZz1i5ntr_w)
-美国总统川普在清晨的一条推文中，抨击最高法院 “无能又软弱”。
+正如郭先生说的：沼泽地最在乎的纳米，碳纤维，大药厂等等一些列产业，60%不在美国。特别是光刻机，大型设备，基本上德国、日本、瑞士，还有几个核心东西是在英国。为啥不在美国？不是这些国家技术强，是沼泽地不仅是在美国，美国的沼泽地就是世界的沼泽地。[\[3\]](https://gnews.org/zh-hans/672238/) 如此的话，那么巴伐利亚和瑞士就很值得注意了。
 
-美国最高法院在2020年总统大选中发生的大规模选举舞弊事件上完全无能和软弱。我们有绝对的证据，但他们不想看到它—他们说，没有起诉“资格”。如果我们容忍，放任腐败的选举，美国就不复存在!
+![]()![](https://gnews.org/wp-content/uploads/2020/12/download-6.jpg)
 
-推特链接：[https://twitter.com/realDonaldTrump/status/1342830505163706369](https://twitter.com/realDonaldTrump/status/1342830505163706369)
+二战之后德国被东西二拆四国分管，老普鲁士直接被从地图上抹去了。德国各州辖区皆有变动，唯有巴伐利亚可独善其身！二战后随着欧洲的经济恢复其发展更是迅猛，宝马，安联，欧洲专利局，德国专利局，德国联合抵押银行，阿迪达斯等等总部都在巴伐利亚。甚至2000年后就连西门子都将总部迁到了巴伐利亚的慕尼黑。[\[4\]](https://zh.m.wikipedia.org/zh-cn/%E5%B7%B4%E4%BC%90%E5%88%A9%E4%BA%9A) 没有一定的势力支撑巴伐利亚很难形成如此局面。还有“万年中立”的瑞士，其金融，制造业，科技等各方面也是全球领先水平，尤其是罗氏医药可与辉瑞分庭抗礼，而其国民近七成是说德语的日耳曼人。[\[5\]](https://zh.m.wikipedia.org/zh-cn/%E7%91%9E%E5%A3%AB)近现代瑞士身处“交战的中心区”却每一次都可以避过战火成为最神秘的金融区，而且其医药，军火，科技各方面也都在世界前列。其背后势力可见一斑。
 
-最高法院让美国人失望了。
+可以见得这个沼泽地其中德裔的力量不容小觑。
 
-他们甚至拒绝审理德克萨斯州的诉讼案。
+【以上分析仅代表作者个人观点】
 
-突发: 最高法院拒绝德克萨斯州试图挑战四个战场州的总统选举结果的诉讼，批准德克萨斯州提出申诉，但因缺乏起诉资格而立即驳回其诉讼
-
-[https://t.co/OnYMTpXuhQ](https://t.co/OnYMTpXuhQ)
-
-首席大法官罗伯茨也是参与偷窃选举的一员吗？
-
-乔•霍夫特最近在 Gateway Pundit中写道。
-
-驳回德克萨斯州的案件并不是罗伯茨做出的第一个令人怀疑的行为。在10月，罗伯茨站在宾夕法尼亚州一边，允许该州在选举后三天对未做标记的选票进行统计。在6月，罗伯茨在关于终止违宪的发展援助委员会问题上站在自由派法官一边。在垃圾弹劾听证会上，罗伯茨拒绝允许在听证会上大声说出所谓 “告密者”的名字。在2018年，当川普指出奥巴马时期的法官是多么的疯狂、腐败和违宪，罗伯茨对川普总统进行了抨击。罗伯茨真是一塌涂。
-
-文章链接：[https://www.thegatewaypundit.com/2020/12/incompetent-weak-trump-blasts-supreme-court-not-standing-fraud/](https://www.thegatewaypundit.com/2020/12/incompetent-weak-trump-blasts-supreme-court-not-standing-fraud/)
+[援引](https://gnews.org/zh-hans/672238/)
 
 0
