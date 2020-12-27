@@ -1,38 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德推文1227】鲍威尔律师270页外国干预美国大选的文件出版
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/690812/)
+## TikTok算法将用于药物开发
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/690849/)
 
-2020年12月27日，据The Gateway Pundit报道，西德尼-鲍威尔律师本周在Zenger发布了一份关于外国干涉2020年美国总统大选、大规模舞弊的爆炸性文件（海妖2.0）。
+翻译：康州盘古农场-Bruce
+校对：康州盘古农场-烟波浩淼
+审核：康州盘古农场-V
+![]()![](https://gnews.org/wp-content/uploads/2020/12/tiktok.png)图片：thenationalpulse.com
+备受争议的TikTok应用的母公司字节跳动科技（ByteDance）现在正在将其人工智能程序用于药物开发和研究。
 
-该文件包括270页的宣誓书、证据、众多证人和消息来源的证词。
+字节跳动（ByteDance）的创始人承诺将利用其公司宣传 “社会主义核心价值观 “和对中国共产党（CCP）的奉献，将专注于人工智能（AI）药物发现。这家位于北京的分公司的招聘信息已经出现在美国硅谷的山景城（Mountain View）、上海和北京等城市。
 
-文件详细说明了所有选举舞弊行为、涉及的人名和所有的情况。
+招聘信息解释道 “我们正在寻找应聘者加入我们的团队，并在由AI算法驱动的药物开发和制造方面进行前沿研究。”
 
-该文件包括军方的证词，并详细说明了从干涉、到投票机欺诈的起源，再到网络安全上外国入侵美国选举系统等等。
+该公司进军医疗保健领域之际，批评者，特别是川普总统，强调该应用程序与中共政府的关系。
 
-Zenger报道说，“鲍威尔律师认为，该文件证明外国直接干预的欺诈行为玷污了11月3日的总统选举，唐纳德-川普总统获得了连任。”
+原文作者：娜塔莉·温特斯（Natalie Winters）
 
-#### [点击阅读该文件全文](https://wpcdn.zenger.news/wp-content/uploads/2020/12/24190822/2020-12-23-Sidney-Powell-Team-Binder-ZENGER-NEWS.pdf)
+发布时间: 2020年12月25日
 
-林伍德律师转推了这篇文章。
-
-
-
-> My good friend GA Governor [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw) & his cohort in crime [@GaSecofState](https://twitter.com/GaSecofState?ref_src=twsrc%5Etfw) do not want to hear from me.
-> 
-> Would someone be so kind as to provide Brian & Brad with this TRUTH? Give it [@GeoffDuncanGA](https://twitter.com/GeoffDuncanGA?ref_src=twsrc%5Etfw) too.
-> 
-> Thanks![https://t.co/Xoc0sa5YIu](https://t.co/Xoc0sa5YIu)
-> — Lin Wood (@LLinWood) [December 27, 2020](https://twitter.com/LLinWood/status/1343266258008104960?ref_src=twsrc%5Etfw)
-
-
-
-新闻素材和图片来自林伍德律师推特和
-
-[https://www.thegatewaypundit.com/2020/12/attorney-sidney-attorney-sidney-powell-releases-270-page-document-on-massive-2020-election-fraud-involving-foreign-interference-releases-270-page-document-massive-2020-election-fraud-involving-foreign/](https://www.thegatewaypundit.com/2020/12/attorney-sidney-attorney-sidney-powell-releases-270-page-document-on-massive-2020-election-fraud-involving-foreign-interference-releases-270-page-document-massive-2020-election-fraud-involving-foreign/)
-
-
+原文来源：[https://thenationalpulse.com/breaking/tiktok-drug-development/](https://thenationalpulse.com/breaking/tiktok-drug-development/)
 
 0

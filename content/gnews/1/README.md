@@ -1,69 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 推特装聋作哑，放任中共辱骂西方政要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/690989/)
+## 桥水基金创始人雷·达利奥长子车祸身亡
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/691003/)
 
-新闻来源：The National Pulse《国家脉动》； 作者：STAFF WRITER/撰稿人； 发布时间：2020年12月20日
+加拿大草原三省战友之家 重生之鹰
+校对 文怡 上传 安歌
+![]()![](https://gnews.org/wp-content/uploads/2020/12/the-us-sun.jpg)图片来源：The Us Sun
+据《维基百科》及有关消息，桥水基金（Bridgewater Associates）是全球最大的对冲基金，由雷·达利奥（Ray Dalio）于1975年在美国创立。目前其管理的资产约为1500亿美元，累计盈利450多亿美元，超过索罗斯的量子基金，成为最赚钱的对冲基金。现年71岁的雷·达利奥今年被《福布斯》（Forbes）评为全球第46名最富有的人，被称为金融界的乔布斯，估计净资产为180亿美元。2012年，雷·达利奥获评《时代周刊》“全球100位最具影响力的人物”之一。1981年，该公司将总部从美国纽约市迁至康涅狄格州西港市（Westport）。
 
-翻译/简评：努力；校对：SilverSpurs7；审核：johnwallis；Page：拱卒
-![]()![](https://gnews.org/wp-content/uploads/2020/12/Dreamer__Wing_johnwallis_Page_Daoiii_1.jpg)
-#### **简评：**
+据西港市当地新闻媒体报道，12月24日下午，桥水基金创始人雷·达利奥42岁的大儿子德文·达利奥(Devon Dalio)驾驶的奥迪(Audi)冲入格林威治购物中心的一家威瑞森(Verizon)门店并起火，德文因此丧生。一名家庭发言人在周五晚向康涅狄格州赫斯特(Hearst)媒体发布的一份声明中证实了他的死讯，他说:“这是一个令人心碎的悲剧，家人都在哀悼。”
 
-中共大外宣陈卫华因一系列“狗吠护主”行为名扬海外，言辞颇为激烈地人身攻击了西方保守派政客。可见中共这一发迹畎亩之中的流氓政党，篡权混入西方文明世界，却像泼妇一般派出大外宣骂街，极其有损形象；我们决不能让这种非法犯罪集团代表华夏子孙。将中国人与中共分开是我们新中国联邦人的毕生使命！
+格林威治警察局(Greenwich Police Department)说，这起致命事故的原因尚不清楚，正在调查中。当局表示，下午4点前，德文·达利奥的一辆2016年的奥迪冲入了威瑞森商店。该商店位于东帕特南大道上，离I-95号公路5号出口不远。这辆车跳过了停车带和路缘，然后直接撞进了商店的门。
 
-推特对于陈卫华这种极端侮辱性言论非但不进行审查和屏蔽，反而加以实名认证，再次暴露了与中共勾兑，放任攻击保守派言行的虚伪面孔。
+据报道，警方在下午3点50分左右到达现场，发现这家商店“完全被烟雾吞噬”，阻止了警方进入。有关部门尚未表示，车速是否可能是导致这起事故的一个因素。但据该汽车制造商称，2016款奥迪S6可以在4.4秒内达到高速。
 
-#### **原文翻译：**
+消防队长约瑟夫·麦克休(Joseph McHugh)说，很可能是汽车的油箱受到撞击而破裂，导致汽车起火爆炸。大火在对购物中心造成进一步破坏之前被格林威治消防部门扑灭。现场照片显示，威瑞森手机商店大部分被毁。警方说，德文·达利奥是这次事故的唯一受害者，威瑞森的员工安全离开了商店。
 
-# 中共国国家媒体喉舌言语辱骂彭佩奥、法拉奇，推特拒绝采取行动
+德文·达利奥曾在他父亲于1975年创立的桥水基金公司担任项目经理。后来, 他与他人共同创立了自己的私人股本公司P-Squared Management Enterprises。根据Dalio基金会的税务文件,德文.达利奥还是该基金会的董事会成员。
 
-**中共国官方媒体《中国日报》欧洲分社负责人多次在推特上称美国国务卿蓬佩奥“不要脸”，建议他应该被关进关塔那摩湾军事监狱。**
+现年71岁的雷·达利奥早就与中共国结缘。1994年，雷·达利奥在中共国创办了一家名叫“桥水中国合作伙伴”的公司。由于时差和精力不足原因，一年后公司被关闭。尽管当时雷·达利奥放弃了在中共国发展公司的机会，但他和家人并没有放弃在中共国发展。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/o4PA6u0UczMrg/images/d6fea312-e2dd-4fea-8b0e-f0e74dad7396.jpg?asset_id=794ec22c-219c-4dbe-b373-bc7572484e0d&amp;img_etag=%220fe990ee2a4feb38388089a7c9c041d1%22&amp;size=2560)](https://spark.adobe.com/page/o4PA6u0UczMrg/images/d6fea312-e2dd-4fea-8b0e-f0e74dad7396.jpg?asset_id=794ec22c-219c-4dbe-b373-bc7572484e0d&amp;img_etag=%220fe990ee2a4feb38388089a7c9c041d1%22&amp;size=1024)在Twitter 上肆无忌惮 非礼美国政要的Chen Weihua （陈卫华） (@chenweihua) | Twitter
+1995年，雷·达利奥将自己11岁的次子麦修·达利奥（Matthew.Dalio）送到北京一所全中文学校学习，让自己的孩子能够更多的认识和了解中共国。2000年，麦修成立了一家慈善机构——中国关爱基金会，以帮助有特殊需求的中共国孤儿。麦修是中国关爱基金会的创始人兼董事长，也是计算机操作系统公司Endless Mobile的首席执行官，与中共关系极为密切。
 
-陈卫华是中国共产党的疯狂战狼。他的“新闻”机构由共产党政权的宣传部拥有并经营，宣传部是中共宣传部的委婉说法。
+2018年7 月，桥水基金完成私募证券基金管理人登记，正式成为中共国境内第一批外资私募管理人。2018年10月9日，一支名为“桥水全天候中国私募投资基金一号”的产品完成备案。本月12日，桥水基金创始人雷·达利奥（Ray Dalio）还参加了三亚·财经国际论坛。
 
-陈常年批评川普，他对这位在对付中共方面有着良好记录的国务卿之蔑视大大升级。
+简评：桥水基金创始人雷.达里奥的长子突发车祸一事，是意外，还是另有原因，目前尚未有准确的消息，但华尔街与中共的勾兑尽人皆知，桥水基金作为第一批看好和进军中共国市场的外资私募基金我们也会我们会进一步关注。
 
-而声称要创造“健康对话”的推特却没有采取任何措施来限制陈卫华的冒犯行为，相反，甚至在他的名字后面授予他一个审核通过的“蓝标”。陈卫华的中国同胞不允许在推特上有言论自由，所以目前还不清楚为什么陈卫华需要被核实通过。
+[原文链接](https://www.dailymail.co.uk/news/article-9070051/Son-wealthy-philanthropists-Ray-Barbara-Dalio-killed-car-crashes-Verizon-store.html?ito=amp_twitter_share-top)
 
-推特在审查保守派方面一直采取强硬手段，还曾与中共军方代表一起参加会议，并雇佣了与中国共产党有关联的个人，但是它没有回应《国家脉动》就此事提出的问题，不过该平台确实因报道经证实的选举欺诈信息而屏蔽了《国家脉动》；但是推特也没有对陈卫华的账户采取任何行动，既没删除他的验证标记，也没有对这些质疑做出任何回应。
-
-在不到六个月的时间里，陈卫华12次给蓬佩奥贴上“不要脸”的标签。其中三条推文涉及陈卫华对蓬佩奥可能离任政府的庆祝，此前他宣布，如果乔·拜登当选总统，中共政府将是“赢家”。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/o4PA6u0UczMrg/images/fdabdffc-4652-43aa-a0af-064a7e43e16c.png?asset_id=fab2336c-df2f-47e2-8178-6129d49ee701&amp;img_etag=%22bc1f150705a65e11f6ecf91d7515ccec%22&amp;size=4310)](https://spark.adobe.com/page/o4PA6u0UczMrg/images/fdabdffc-4652-43aa-a0af-064a7e43e16c.png?asset_id=fab2336c-df2f-47e2-8178-6129d49ee701&amp;img_etag=%22bc1f150705a65e11f6ecf91d7515ccec%22&amp;size=1024)
-
-陈卫华最近还在推特上称美国参议员玛莎·布莱克本（Marsha Blackburn）是“一辈子都是婊子”。陈卫华坚定地认为蓬佩奥应该被强制关进关塔那摩监狱，那可是一个用来关押恐怖分子的军事监狱。
-
-针对欧盟与中国签署贸易协议，斯坦福大学新闻学和乔治•索罗斯资助的世界新闻研究所(World Press Institute)研究员也坚称，“令人发指的迈克•蓬佩奥(Mike Pompeo)肯定心在滴血”:
-
-[!\[\]()!\[\](https://spark.adobe.com/page/o4PA6u0UczMrg/images/3529cf73-d0fb-498b-a03f-c49d424912e2.jpg?asset_id=a4328fed-c523-4e7d-a7fe-584d6f6637a1&amp;img_etag=%2206e30470c3d09a8e8553da8a087d746a%22&amp;size=2748)](https://spark.adobe.com/page/o4PA6u0UczMrg/images/3529cf73-d0fb-498b-a03f-c49d424912e2.jpg?asset_id=a4328fed-c523-4e7d-a7fe-584d6f6637a1&amp;img_etag=%2206e30470c3d09a8e8553da8a087d746a%22&amp;size=1024)
-
-讽刺的是，陈卫华还发了近20条推文，把蓬佩奥和阿道夫·希特勒的宣传部长约瑟夫·戈培尔相提并论。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/o4PA6u0UczMrg/images/454ea2e5-ed93-426b-a8a2-038755e4c402.png?asset_id=189f1f9c-4410-415e-acbf-0e68beec3645&amp;img_etag=%2217b69307e2786a0482aee11083009bd7%22&amp;size=1024)](https://spark.adobe.com/page/o4PA6u0UczMrg/images/454ea2e5-ed93-426b-a8a2-038755e4c402.png?asset_id=189f1f9c-4410-415e-acbf-0e68beec3645&amp;img_etag=%2217b69307e2786a0482aee11083009bd7%22&amp;size=1024)
-
-陈卫华的批评不仅限于蓬佩奥。他一直热衷于攻击许多西方保守派人物，包括推动脱欧人士奈杰尔•法拉奇(Nigel Farage)。当法拉奇鉴于中共国拙劣的新冠肺炎疫情处理，将取消圣诞节归咎于中共国，陈卫华告诉他“别废话了”:
-
-[!\[\]()!\[\](https://spark.adobe.com/page/o4PA6u0UczMrg/images/933d36f2-4a20-47fc-b4a9-139dac5be779.jpg?asset_id=a5d9cc07-a1d2-4d69-adac-b49c6367a9cb&amp;img_etag=%2295167fcc648e1aa418f60b471a27123e%22&amp;size=2560)](https://spark.adobe.com/page/o4PA6u0UczMrg/images/933d36f2-4a20-47fc-b4a9-139dac5be779.jpg?asset_id=a5d9cc07-a1d2-4d69-adac-b49c6367a9cb&amp;img_etag=%2295167fcc648e1aa418f60b471a27123e%22&amp;size=1024)
-
-(戴上口罩，闭嘴吧。） — Chen Weihua （陈卫华） (@chenweihua) December 20, 2020
-
-法拉奇回击，要求中共国赔偿CCP病毒以及随后的掩饰行为造成的损害:
-
-[!\[\]()!\[\](https://spark.adobe.com/page/o4PA6u0UczMrg/images/27866ff8-d380-4421-851a-3f48d0fa5c40.jpg?asset_id=7e551f2e-26ed-4ec4-922b-bd1a62b64205&amp;img_etag=%220799939b6181656a38fa35bf56f4222c%22&amp;size=2560)](https://spark.adobe.com/page/o4PA6u0UczMrg/images/27866ff8-d380-4421-851a-3f48d0fa5c40.jpg?asset_id=7e551f2e-26ed-4ec4-922b-bd1a62b64205&amp;img_etag=%220799939b6181656a38fa35bf56f4222c%22&amp;size=1024)
-
-中共不喜欢真相，并且总是咄咄逼人地回应。他们应该为这场全球性的灾难向西方支付赔偿。https://t.co/7XlaLTY34Z -奈杰尔·法拉奇(@Nigel\_Farage) 2020年12月20日https://t.co/7XlaLTY34Z
-
-[原文链接](https://thenationalpulse.com/news/pompeo-ccp-media/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/o4PA6u0UczMrg/)
-[!\[\]()!\[\](https://spark.adobe.com/page/o4PA6u0UczMrg/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/o4PA6u0UczMrg/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

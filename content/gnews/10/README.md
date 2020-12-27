@@ -1,68 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国制造的TCL高清电视存在安全风险
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/690914/)
+## 中共国无人机正在监视美国人
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/690970/)
 
-新闻来源：ZEROHEDGE《零对冲》；作者：TYLER DURDEN；发布时间：2020年12月25日
+新闻来源：哈德逊研究所(Hudson Institute)； 作者：雷贝卡•海因里希斯(Rebeccah L.Heinrichs)； 发布时间：2020年12月20日
 
-翻译/简评：新街口；校对：SilverSpurs7；审核：万人往；Page：小雨
+翻译/简评：helloworld；校对：SilverSpurs7；审核：万人往；Page：拱卒
+
+[!\[\]()!\[\](https://spark.adobe.com/page/rjkZFaDMudNUf/images/aa023d30-7e4c-4a34-800c-7d670c5bf71b.jpg?asset_id=4149fc0a-3ed0-4ab5-98d0-87b9f16c2a96&amp;img_etag=%229c9221b8ce2f7d7d881341d6920fe25a%22&amp;size=1024)](https://spark.adobe.com/page/rjkZFaDMudNUf/images/aa023d30-7e4c-4a34-800c-7d670c5bf71b.jpg?asset_id=4149fc0a-3ed0-4ab5-98d0-87b9f16c2a96&amp;img_etag=%229c9221b8ce2f7d7d881341d6920fe25a%22&amp;size=1024)
 
 **简评：**
 
-这是一篇令人细思极恐的新闻报导。中共通过各种科技手段对全世界进行渗透和影响。以华为和中兴为代表的，通过建设国家级别的5G骨干通信网络来进行间谍和监控早已被西方各国所揭露和禁止。现在中共国竟然把电视机这种民用产品也安装了后门，其手段真是无孔不入，下贱至极。
+美国各政府部门广泛使用着大疆等公司因廉价倾销而占据市场领导地位的中共国无人机，但由于军民融合和超限战等各种原因（像大疆公司早已和政府同流合污，将无人机部署于臭名昭著的新疆集中营），这些无人机正像后门一般被用于窃取飞行数据、甚至各种敏感信息，并发回中共国的数据中心。美国海关执法局办公室备忘录提到，中共国政府首脑也很有可能正在访问这些数据。这一切都反映出美国政府应立即着手对抗中共国的无人机市场入侵。哈德逊研究所认为，虽然政府已做出应对，但还需更加强烈迅速，才能保证安全。
 
-智能电视已经是每个家庭的必备产品，智能电视与其它智能产品必须要共享家庭网络。TCL电视的网络后门可以使入侵者轻易获取用户的各种信息和网络密码，直接访问智能电视的所有文件和电视目录，并入侵WIFI 网络内的其它设备，诸如电脑，摄像头等。
-
-中共发展军民一体化战略，以国家网络安全为名，实施、利用、强迫和绑架各种类型的中资企业为其实施间谍渗透任务。中共的这种行为已经越来越彻底地被世界各国所认知，从而产生的反作用力也是巨大的。这个反作用力的直接受害者就是这些被绑架的企业和企业员工。推翻中共政权才是中共国企业能够安全、合法地在国际市场进行商业活动的前提。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/yVKkOnHvC5M98/images/cb95b445-1abd-4b55-9957-92b977e8b5be.jpg?asset_id=16897220-4df9-4e6b-a7ea-e21353d1a7d2&amp;img_etag=%222775c73959ecc4fc1ffe76f3597affb9%22&amp;size=1024)](https://spark.adobe.com/page/yVKkOnHvC5M98/images/cb95b445-1abd-4b55-9957-92b977e8b5be.jpg?asset_id=16897220-4df9-4e6b-a7ea-e21353d1a7d2&amp;img_etag=%222775c73959ecc4fc1ffe76f3597affb9%22&amp;size=1024)
+无人机行业前途无量，而大疆公司因短视和利益选择了参加军民融合项目。结果是，公司彻底被中共绑架，不仅共同承担了所有的邪恶罪行，而且就算得知了中共在新疆的所作所为后也无法脱身，被迫沦为炮灰。民企不可有鸵鸟心态，不知晓历史不代表历史从未发生，不明白真相不代表真相会因此改变，糊涂的选择将最终面对大疆这样“糊涂”的结局。一定要明白，我们已身处世纪之战，与邪恶妥协、期望明哲保身是不可能的，只有彻底切割这一条路。自助者，天助之。
 
 **原文翻译：**
 
-**您的新TCL高清电视（中共国制造）是否存在安全风险？**
+## 中共国无人机正在监视美国人
 
-今年，来自中共国企业和技术的安全隐患已经倍受关注。这种担忧促使川普政府对社交软件“抖音”实施禁令，强迫其出售美国业务。美国政府还严厉打击了制造商华为和中兴通讯。国会最近通过的“中共病毒救援计划”，甚至准备19亿美元，用于帮助已经安装了这两家公司产品的美国公司来拆除这些设备。
+[!\[\]()!\[\](https://spark.adobe.com/page/rjkZFaDMudNUf/images/0d2b5d1f-3793-4eea-8862-9540e9749fc2.jpg?asset_id=a3f4d1fc-f4ba-4f68-8ab4-7a97dd16cddd&amp;img_etag=%22707c41208f0f3c369ca6e5d85b66baf8%22&amp;size=1024)](https://spark.adobe.com/page/rjkZFaDMudNUf/images/0d2b5d1f-3793-4eea-8862-9540e9749fc2.jpg?asset_id=a3f4d1fc-f4ba-4f68-8ab4-7a97dd16cddd&amp;img_etag=%22707c41208f0f3c369ca6e5d85b66baf8%22&amp;size=1024)大疆无人机“御”Mavic 2 变焦版，摄于2019年1月9日内华达州拉斯维加斯消费电子展
 
-最近，两位安全研究人员对另一家中共国科技公司——电视机制造商TCL发出了警告，美国最受欢迎的一些电视机都是TCL生产的。
+美国联邦、州和地方各级政府都在使用来自中共国的无人机，而根据美国国土安全部一个分支机构的公开结论，中共国政府正利用这些无人机开展间谍活动。其他政府部门也以“安全问题”为由，公开明确做出了同样的表态，并有部门已开始采取行动限制购买中共国的无人机。
 
-安全研究人员与黑客网站Sick Codes在11月的博客文章中指出：TCL的安卓系统电视机是非常脆弱的。
+中共国制造的无人机，正被美国人用于测绘美国的基础设施、农业、铁路、政府建筑、电厂，并被用于指挥救灾行动和部署执法人员。据信，这些无人机会搜集飞行数据并发送回实施着军民融合政策的中共国。美国商务部上周五在实体清单中列入了一家中共国大型无人机公司（大疆），从而阻止美国公司购买其产品。此项行为顺应了阻止中共国无人机进入美国市场的紧迫需求。但现在是采取进一步行动的时候了。美国各级政府应立刻停止购买来自中共国的无人机，并禁止它们继续进入美国商业市场。
 
-*文章说：“我们9月底对低端安卓系统机顶盒进行研究时，发现了这些设备存在许多严重的设计缺陷。”*
+美国对于中共国无人机及其零部件的依赖是不可持续的。虽然有一些美国公司正在等待着禁用中共国生产的无人机带来的市场机遇，但能满足美国政府需求的公司太少了，并且其中部分无人机公司仍然依赖着来自中共国的廉价零部件。上述论述是反对禁止从中共国无人机市场采购的理由之一。但是，由于无人机对于国家安全的威胁太大，以至于必须快速行动，除切断与中共国无人机市场的联系之外，美国也应该扩大五角大楼现有的努力，建立属于美国及盟友的、不依赖中共国制造零部件的无人机生产基地。可以预见，一旦遭遇国家紧急事件，或因捍卫民主台湾而产生冲突，对无人机大规模生产的需求将快速上升，而届时将不可能继续依赖中共国。
 
-*“无需深入研究每个设备的细微差别，所有智能电视产品都基于安卓系统”*
+[!\[\]()!\[\](https://spark.adobe.com/page/rjkZFaDMudNUf/images/98255228-e3ef-41b2-a095-745d15c8101c.jpg?asset_id=01cb60ad-47d5-4828-b695-7011f8fc27bb&amp;img_etag=%22bd2ed21112acd8ed852e4a4f108cfcfc%22&amp;size=1024)](https://spark.adobe.com/page/rjkZFaDMudNUf/images/98255228-e3ef-41b2-a095-745d15c8101c.jpg?asset_id=01cb60ad-47d5-4828-b695-7011f8fc27bb&amp;img_etag=%22bd2ed21112acd8ed852e4a4f108cfcfc%22&amp;size=1024)美国国防部负责采办与持续保障的副部长艾伦·洛德(Ellen Lord)
 
-研究人员发现，他们可以轻松进入这些设备的整个文件系统。
+美国国防部负责采办与持续保障的副部长艾伦·洛德(Ellen Lord)一直倡导通过在美国和盟国建立关键科技的工业基地，从而加强美国主权。在最近的哈德逊研究所的活动中，她赞扬了五角大楼的“受信任的资本市场”倡议(Trusted Capital Marketplace)，该倡议将为市场提供更多的安全的无人机制造商。而该倡议也应成为美国政府和私营部门有关国家安全的优先考虑。
 
-研究人员发现，他们可以轻松进入这些设备的整个文件系统。
+（副部长活动发言：[https://www.hudson.org/research/16546-transcript-competing-with-great-powers-at-the-speed-of-relevance-a-conversation-with-ellen-lord](https://www.hudson.org/research/16546-transcript-competing-with-great-powers-at-the-speed-of-relevance-a-conversation-with-ellen-lord)）
 
-*“什么样的制造商会把设备的整个文件系统发布到一个网络服务器上？*
+（国防部倡议报道：[https://fcw.com/articles/2019/05/10/dod-blacklist-software-williams.aspx](https://fcw.com/articles/2019/05/10/dod-blacklist-software-williams.aspx)）
 
-后来，另一位叫约翰•杰克逊（John Jackson）的研究人员也加入了Sick Codes的研究。并且在10月，他们两位都通知了TCL这个漏洞。TCL 并没有及时给以回复，只是在晚些时候说他们会修补这个系统漏洞。
+与诸如大疆创新科技(DJI)这样的公司的对抗很重要。大疆公司总部位于中国深圳，是中资无人机巨头，并主导了美国无人机市场。它的低成本打败了来自美国及盟国的竞争者，也让它获得了美国和加拿大将近三分之二的市场份额。
 
-在接受《Tom’s Guide》的采访时，Sick Codes发布了一个网站地址（URL），该网络服务器可以“对赞比亚的TCL智能电视的文件系统提供完全的访问权限”，并且作者能够浏览客户的电视目录。
+但是大疆公司不仅是市场领导者。像中共国其他科技项目和华为公司一样，它也成为了中共国进行间谍活动和大规模监视行动（特别是新疆集中营）的手段之一。
 
-在接受Security Ledger的另一次采访中，Sick Codes说：“相邻网络上的任何人都可以浏览电视的文件系统并下载他们想要的任何文件。”
+（新疆集中营报道：[https://www.nationalreview.com/corner/more-evidence-of-xinjiang-atrocities-and-more-ccp-lies/](https://www.nationalreview.com/corner/more-evidence-of-xinjiang-atrocities-and-more-ccp-lies/)）
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yVKkOnHvC5M98/images/45c87511-fcfd-4c54-84cb-58b57b65836e.png?asset_id=89fae482-fc0f-4692-b818-70e25db4705d&amp;img_etag=%22527a41a62d37af657c656e3988d35ec1%22&amp;size=2560)](https://spark.adobe.com/page/yVKkOnHvC5M98/images/45c87511-fcfd-4c54-84cb-58b57b65836e.png?asset_id=89fae482-fc0f-4692-b818-70e25db4705d&amp;img_etag=%22527a41a62d37af657c656e3988d35ec1%22&amp;size=1024)
+一份2017年8月的洛杉矶移民和海关执法局办公室备忘录写道：“中共国政府首脑很可能正从大疆公司的云服务器中获取数据，而这些数据来自负责国防、关键设施、交通控制、网络安全等的政府部门……”。官员表示，他们有“一定的信心”认为大疆的商用无人机和软件“将美国关键设施和执法数据提供给了中共国政府”。美国其他机构匆忙采取的减少使用大疆无人机的行动证明，事实比公开表示的更加严重。
 
-据《汤姆指南》报道，TCL向媒体发表了一个声明。
+国防部等其他政府机构（除某些应用场合外）已停止使用中共国的无人机。今年秋天开始，美国司法部禁止了其用于购买中共国无人机的基金。美国内政部是中共国无人机的最大政府客户。它们拥有超过800架由中共国制造、或包含中共国零部件的无人机。这些无人机被用于营救搜寻、扑灭野火、以及应对可能威胁生命或财产的其他自然灾害。十月，《华尔街日报》报道，内政部禁飞了整个无人机机队，理由是中共国制造商存在国家安全风险。
 
-*声明说：“一名独立安全研究人员最近向TCL通报了安卓系统电视中的两个漏洞。*
+（华尔街报道地址：[https://www.wsj.com/articles/interior-dept-grounds-aerial-drone-fleet-citing-risk-from-chinese-manufacturers-11572473703](https://www.wsj.com/articles/interior-dept-grounds-aerial-drone-fleet-citing-risk-from-chinese-manufacturers-11572473703)）
 
-*“TCL收到通知后，迅速采取措施进行调查、彻底测试、开发补丁，并实施发送更新解决问题的计划。更新设备和应用程序以增强安全性在技术行业中经常发生。这些更新将在未来几天分发给所有受影响的安卓电视机型。”*
+[!\[\]()!\[\](https://spark.adobe.com/page/rjkZFaDMudNUf/images/04528c66-19ad-45c3-8874-4bba36d74408.jpg?asset_id=f36e7244-377e-4999-9ed6-dc88c6677d88&amp;img_etag=%229e57681266c98dae3353faff19efa5f4%22&amp;size=1024)](https://spark.adobe.com/page/rjkZFaDMudNUf/images/04528c66-19ad-45c3-8874-4bba36d74408.jpg?asset_id=f36e7244-377e-4999-9ed6-dc88c6677d88&amp;img_etag=%229e57681266c98dae3353faff19efa5f4%22&amp;size=1024)大疆无人机
 
-TCL进一步表示：“从现在起，我们正在制定流程，以更好地响应第三方发给我们的安全漏洞信息，并给我们的客户服务代理进行额外的系统升级培训。同时，我们还会建立在线报告系统。”TCL给PC Mag（《计算机杂志》）的声明中这样写道。
+我们了解到大疆公司一些在中共国境内的黑暗势力合作。2017年，就在美国官员就此问题敲响警钟时，大疆公司与新疆自治区公安厅(XARPSD)签署了一项协议，将大疆无人机用于“维护稳定”和“反恐”。今年夏天，一段无人机拍摄的视频在美国社交平台上广为流传，其中显示了新疆某火车站内，大疆无人机正在用于监视中共国准军事警察押送维吾尔族穆斯林（带着镣铐并蒙着双眼）。众所周知，新疆因“再教育营”而臭名昭著。中共国政府在此实施了强奸、堕胎、强制绝育、酷刑折磨以及其他形式的宗教和文化种族灭绝手段。
 
-值得指出的是，如Sick Codes在文章中的评论所述，他们指出的问题仅适用于TCL的安卓系统电视，不适用于Roku系统电视。TCL 目前在北美销售的大部分产品是Roku系统。实际上，TCL在7月才将安卓系统电视首次引入北美市场。
+（堕胎与强制绝育报道：[https://dailycaller.com/2020/07/13/sterilization-forced-abortion-and-mandatory-birth-control-inside-chinas-xinjiang-province/](https://dailycaller.com/2020/07/13/sterilization-forced-abortion-and-mandatory-birth-control-inside-chinas-xinjiang-province/)）
 
-国土安全部周二发布了一份新报告，名为“数据安全业务建议：使用与中共国公司关联的数据服务和设备的企业具有的风险和注意事项”。
+大疆公司也渴望利用新冠病毒（中共病毒）大流行占领市场。今年春天，大疆公司向美国22个州的43家执法机构免费提供了无人机，以帮助其严厉执行政府的社交距离准则。没错，这家给予了中共国政府看管集中营里中国穆斯林的能力的中共国公司，正试图使美国政府能够在新冠病毒（中共病毒）大流行期间监视美国人的行为是否遵循规定。
 
-报告中未提及TCL和TCL生产的电视机
+一些国会议员一直在追踪这个问题，并试图立法约束美国政府停止使用中共国无人机，结束对中共国无人机市场的依赖。去年，佛罗里达州共和党参议员里克·斯科特(Rick Scott)和威斯康星州共和党众议员麦克·加拉格尔(Mike Gallagher)领导了一个两党联盟，提出了《美国安全无人机法案》(American Security Drone Act)。若该法案通过，将与另外一些事项一起，阻止联邦部门和机构购买商用成品无人机或无人航空系统，只要这些产品在可能构成国家安全威胁的国家制造或组装。
 
-*报告说：“中共国的数据收集行为给美国企业和客户带来了众多风险，包括：商业机密、知识产权和其他商业信息的盗窃；违反美国出口管理法律；违反美国隐私法；违反合同和服务条款；客户和员工的安全和隐私风险；中共政权监视和跟踪批评人士的风险；以及对美国企业声誉的损害。”*
+由于尚不清楚的原因，尽管两党达成共识，将无人机安全相关条款纳入了最新的国防法案的众议院版本，但参议院将该条款排除在外。递交川普总统办公桌的最后法案并未触及这一问题，以至于大疆无人机仍能在美国市场畅行无阻，并将其图像和数据发回给中国共产党。专注于这个问题的两党联盟应该扩大，而国会应该在新一年里着手解决这一问题。与此同时，在川普政府任期仅剩几周之际，川普应签署一项行政命令，以应对中共国无人机（特别是大疆无人机）带来的国家安全威胁。亡羊补牢，尤未晚矣。
 
-[原文链接](https://www.zerohedge.com/technology/your-new-tcl-hdtv-made-china-security-risk?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+[原文链接](https://www.hudson.org/research/16582-chinese-drones-are-spying-on-americans)
 
 [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
@@ -70,8 +68,8 @@ TCL进一步表示：“从现在起，我们正在制定流程，以更好地�
 
 [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/yVKkOnHvC5M98/)
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/rjkZFaDMudNUf/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yVKkOnHvC5M98/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/yVKkOnHvC5M98/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/rjkZFaDMudNUf/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/rjkZFaDMudNUf/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0
