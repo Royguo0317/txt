@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 特鲁多称赞拜登专注应对气候变化
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/690785/)
+## TikTok算法将用于药物开发
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/690849/)
 
-加拿大多伦多枫叶农场 文怡
+翻译：康州盘古农场-Bruce
+校对：康州盘古农场-烟波浩淼
+审核：康州盘古农场-V
+![]()![](https://gnews.org/wp-content/uploads/2020/12/tiktok.png)图片：thenationalpulse.com
+备受争议的TikTok应用的母公司字节跳动科技（ByteDance）现在正在将其人工智能程序用于药物开发和研究。
 
-校对 辛丑 上传 文怡
-![]()![](https://gnews.org/wp-content/uploads/2020/12/屏幕截图307.png)图片来源：CBC
-据《后千禧年报》（The Post Millennial）12月23日报道，总理特鲁多当日在里多小屋向加拿大人发表讲话。
+字节跳动（ByteDance）的创始人承诺将利用其公司宣传 “社会主义核心价值观 “和对中国共产党（CCP）的奉献，将专注于人工智能（AI）药物发现。这家位于北京的分公司的招聘信息已经出现在美国硅谷的山景城（Mountain View）、上海和北京等城市。
 
-有人问特鲁多，美国总统候选人拜登关注应对气候变化方面的进展，是否令人担忧？特鲁多说：“我认为，拜登专注于应对气候变化是个好消息。我们将与美国政府密切合作，以保护就业、创造新就业和应对气候变化的方式向前推进。我期待着在北美地区就世界面临的这一特殊挑战达成一致。”
+招聘信息解释道 “我们正在寻找应聘者加入我们的团队，并在由AI算法驱动的药物开发和制造方面进行前沿研究。”
 
-对中共极为软弱的特鲁多从不掩饰支持拜登的立场，在美国大选结束不久就祝贺拜登当选总统。而且特鲁多及其背后的黑暗势力借环保之名，本月宣布了打算逐年提高的碳税计划，令在中共病毒疫情中挣扎的加拿大人雪上加霜。
+该公司进军医疗保健领域之际，批评者，特别是川普总统，强调该应用程序与中共政府的关系。
 
-今日加拿大，明日美国。如果美国任由黑暗势力控制，拜登当选总统，特鲁多政府在加拿大侵蚀平民自由和利益的境况就可能会在美国上演。
+原文作者：娜塔莉·温特斯（Natalie Winters）
 
-*[原文链接](https://thepostmillennial.com/breaking-trudeau-praises-biden-pledges-to-fight-climate-change)*
+发布时间: 2020年12月25日
 
-*相关链接：*
-
-[特鲁多的碳税计划将加剧贫富分化](https://gnews.org/zh-hans/639936/)-GNews
-
-[西方环保人士是被中共利用的白痴](https://gnews.org/zh-hans/660840/)-GNews
+原文来源：[https://thenationalpulse.com/breaking/tiktok-drug-development/](https://thenationalpulse.com/breaking/tiktok-drug-development/)
 
 0
