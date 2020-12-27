@@ -1,58 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 会计，财报及审计的入门基础与介绍（三）
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/688023/)
+## 国务卿蓬佩奥下令审查中共对新疆维吾尔族的残酷镇压是否构成种族灭绝罪
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/688136/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23164109/1223.jpg)
-Picture Source: https://www.groomassocies.com
+作者：康州盘古农场-残夜听雨声
+审核：康州盘古农场-V
 
-在第三篇中则是详细展示财务审计与分析过程中所应用的法律法规或行业准则。最终的目的是营造公平诚信的投资与商业管理环境并积极促进实体商业与经济的发展，增强对投资实体的保护
+![]()![](https://gnews.org/wp-content/uploads/2020/12/Xinjiang_Re-education_Camp_Lop_County.jpg)新疆再教育营，图片：Wikipedia
 
-1. International Organization of security Commission
-    - 国际证券委员会技术上不是监管机构，但是对国际上很大部分资本市场进行监管
-    - 三大目标：
-        - 保护投资人    Protecting Investor ，
-        - 确保市场公平，有效，透明Ensure market is Fair， Efficient and transparent
-        - 减少系统性风险Reducing systemic risks
-2. “发行人原则The principle of issuers”中最重要的两条
-    - 应完整，准确，及时的披露财报结果，风险和其他对于投资者至关重要的信息
-    - 发行人用于编制会计的财务准则应具有很高质量，并在国际上可接受
-3. The Security and Exchange Commission （SEC）
-    - Security Act 1933（ 证券法1933）
-    - 规定了投资者必须获得的财务信息或其他重要信息，禁止虚假陈述，并要求上市公司的证券进行初步注册
-4. Security Exchange Act of 1934 (证券交易法1934)
-    - 赋予SEC要求上市公司定期报告的目的
-5. Sarbanes-Oxley Act 2002 (班萨斯法案)
-    - 该法案创建上市公司会计监督委员会（PCAOB），以监督审计师
-    - SEC负责执行法案要求，监督PCAOB。涉及审计师独立性，加强公司对财报的责任
-6. Qualitative Characteristics of financial Report 4.1
-    - 财务报告是否有效的关键特征
-    - Relevance  相关性
-    - Faithful Representation：可信的代表着经济现象的信息，并且信息是完整，中立，无误
-7. 四个增强定性
-    - Comparability： 可比较性，使用户可以理解
-    - Verifiability: 可确认性，不同学识渊博，独立的观察者会同意信息是极高可信度的代表了
-    - Timeliness：及时性，决策之前可即时获得信息
-    - Understandability：清晰简洁的信息可增强可理解性
-8. 法务审计 Forensic audit
-    - 主要的审计项目
-        - 反洗钱调查 Anti-money laundry
-        - 保险文件准备 Insurance claim documents preparation
-        - 争端服务 Dispute services
-        - 欺诈调查 Fraud investigation
-    - 主要的审计手段 （approach）
-        - 相关人员问询 Interview/Integration
-        - 法务数据分析 Forensic data analytics
-        - 法务数据收集 eDiscovery
-        - 邮件审查 Email review
-        - 第三方专家意见 External experts including valuation, engineering and etc.
+根据美国《外交政策》 杂志报道，几名官员和知情人士透露，美国国务卿蓬佩奥已下令进行审查中共对新疆维吾尔族的残酷镇压是否构成种族灭绝罪。 报道称蓬佩奥已指示美国全球刑事司法办公室主任监督内部审查。这项审查可能引发美国的最终决定，它是一个重要的象征性和外交信号。
 
+从2019年，[美国国务院](https://zh.wikipedia.org/wiki/%E7%BE%8E%E5%9B%BD%E5%9B%BD%E5%8A%A1%E9%99%A2)发表的国际宗教自由报告就指出了中共在新疆再教育营中关押了超过100万的[维吾尔族](https://zh.wikipedia.org/wiki/%E7%BB%B4%E5%90%BE%E5%B0%94%E6%97%8F)、[哈萨克族](https://zh.wikipedia.org/wiki/%E5%93%88%E8%90%A8%E5%85%8B%E6%97%8F)、[回族](https://zh.wikipedia.org/wiki/%E5%9B%9E%E6%97%8F)和其他[穆斯林](https://zh.wikipedia.org/wiki/%E7%A9%86%E6%96%AF%E6%9E%97)族群的成员，尽管中共一直美其名曰称该集中营是所谓的学习改造营，但是越来越多的泄露出来的文件和视频告诉公众这是中共新疆少数民族的一场残酷的灭绝计划。在集中营的人受到各种虐待，折磨强奸，甚至杀害，根据幸存者的报告称：他们受到了各种酷刑，包括电死刑，反复殴打，和注射未知物质。德国学者阿德里安·曾兹曾在一份报告中指出：新疆两大维吾尔人居住的城市喀什市及和田市，人口增长率在2015年至2018年期间大幅下降了84％ 。当地官员强迫妇女配戴避孕环，甚至强制结扎或堕胎，共产党对于新疆人的残酷镇压堪比纳粹集中营。
 
-Author：搞笑排行榜 / 涅
+《外交政策》 杂志被公认为是世界上最具影响力的国际刊物之一，因此它对于国家外交政策的预见性报道背后都是代表着重要的政治意义。任何政客在做任何重大公告前都要通过媒体释放信号来试探公众和金融市场对此的反应。毫无疑问种族灭绝罪这个指控一旦公布意味着中共这个邪恶犯罪组织与西方民主国家的战争将真正意义上进入新的阶段，因为美国把灭共打成了明牌！在美国没有拿出中共病毒真相前，即使是西方国家的政客知道中共释放了病毒，但是为了利益还是在羞羞涩涩的和中共做生意，即使拿出人权问题也只是为了讨价还价，但是当美国将中共定义为种族灭绝罪名一切就都将改变了，相当于美国官方公告这个人是流氓犯罪集团，我不认可它的合法性！我想要干掉它！而根据1948年联合国通过的防止和惩治灭绝种族罪公约（[灭绝种族公约](http://www.un.org/zh/documents/view_doc.asp?symbol=A/RES/260%20%28III%29)） 。联合国各国均有责任保护其国民免遭灭绝种族罪、战争罪、族裔清洗和危害人类罪之害。 甚至是武力干涉！
 
-Original opinion article by Himalaya G-farm Vancouver
+种族灭绝罪名就意味着中共必然全世界民主国家给孤立！因为它的合法性已经荡然无存，随之而来的就是中共美元结算系统的制裁以及中共海外资产的查封。当中共没有经济利益去绑架全世界的民主国家它必然面对的是最猛烈的回击。也就是郭先生之前说的八十国灭共！
 
-2020/12/26
+但毫无疑问中共会殊死反抗，美国在用病毒和司法将中共向着斩首和火战逼近时，中共必然要会回击更猛烈的超限战！病毒超限战！金融超限战！法律超限战！
+
+中共至今仍持有美国1.1万亿的国债，一旦中共大量出售美国国债，加上华尔街毫无底线的配合，可能会引发美元和金融市场崩盘 。世界又似乎要回到了二战过后的混乱期。但是沉默以及跪下有用吗?纳粹不会因为欧洲人的跪下就放弃屠杀，只会更加变本加厉。中国人被逼着跪下70年最终养大了这想要征服世界的魔鬼。最终只有站起来敢于正视淋漓的鲜血以及罪恶，这世界才有希望！
+
+注：本文仅代表作者个人观点。
+
+参考资料：
+[https://foreignpolicy.com/2020/12/23/pompeo-weighs-genocide-designation-china-uighur-xinjiang/](https://foreignpolicy.com/2020/12/23/pompeo-weighs-genocide-designation-china-uighur-xinjiang/)
+[https://gnews.org/zh-hans/290781/](https://gnews.org/zh-hans/290781/)
 
 0

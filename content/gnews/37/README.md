@@ -1,25 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 纳什维尔的爆炸案可能是为暴乱作准备
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/688060/)
+## 中共媒体称北京在“幕后谈判”中要求拜登重新加入伊朗核协议
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/688185/)
 
-撰稿：澳喜特战旅—永遠の小学生文筝 审稿：Jenny
-![]()![](https://gnews.org/wp-content/uploads/2020/12/图片-23.png)(推特截图)
-田纳西州纳什维尔的爆炸案导至了部分地区的通讯一度中断。如果同样的行为在多个地区同时发生，导至全国的通讯不畅通，此时再发生暴乱，对普通人来说会造成巨大的恐慌。
+翻译：康州盘古农场 – jeremysong
 
-从公布的信息来看，这次爆炸案并不像是国外恐怖分子做的，更像是美国极端左派的行为。因为有广播是从爆炸的车上发出来。“现在该地区所有建筑物必须疏散。”“如果你能听到此消息，请立即撤离。”这广播内容说明这次爆炸的目的不是制造流血事件。再加上是圣诞节人们都在家过节，发生时间6：30正是人很少的时候。
+校对：康州盘古农场 – 烟波浩淼
 
-通讯中断这种状态是暴乱分子需要的，这次爆炸是为了某种更大的有预谋的行为而做的测试。未来川普成功连任，中共和拜登一定不可能承认。鳄鱼不会乖乖被抓，一定会制造混乱，甚至掀起内战。而这都需要控制通讯。要知道像安提法，黑命贵这些组织一定无法接受川普连任，这次暴乱肯定是全国性的，所有左派都会参与的。
+审核： 康州盘古农场 –Truemanman
+![]()![](https://gnews.org/wp-content/uploads/2020/12/图片80.png)
+拜登（Biden）团队正在通过背后渠道与中共进行沟通，他们声称川普与俄罗斯人勾结时违反了《洛根法》。
 
-(本文仅代表作者个人观点)
+根据中共党媒的报道，北京上个月与拜登团队的密切人士开始了“幕后对话渠道”。这些后备渠道沟通实质上将发现拜登团队违反了《洛根法》，他们用此法在2016年对即将上任的川普政府进行了无端指控。
 
-编辑：文远Bruce
+隶属于中共的香港出版物《南华早报》报道说，中共外交部长王毅通过这个既定的“幕后渠道”，非外交地，直接地“命令”拜登重新签署《伊朗核协议》，解除对伊朗的制裁，减低针对中共政府的强硬政策。
 
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-
-[【澳喜文章】](https://gnews.org/zh-hans/author/aujenny/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/20040800/IMG_1836-1.jpg)
+王毅在欧盟举行的电视会议上说：“美国将在没有任何先决条件的情况下尽快与伊朗达成核协议，美国也应取消对伊朗，其他第三方实体和个人的所有制裁。”
 
 
-0
+
+> Communist China already pushing around Biden[https://t.co/cg5HET4vIB](https://t.co/cg5HET4vIB)
+> — Mark R. Levin (@marklevinshow) [December 23, 2020](https://twitter.com/marklevinshow/status/1341895044643610628?ref_src=twsrc%5Etfw)
+
+
+
+*马克·莱文 @marklevinshow**12月23日*
+
+*中共已对拜登步步紧逼*
+
+来自俄罗斯，伊朗，英国，法国和德国的外交部长，以及川普总统2018年退出的《联合全面行动计划》（《伊朗核协议》）时所有签署国几乎都虚拟出席了会议。
+
+来自德国，伊朗，中国，俄罗斯和英国的代表“欢迎”拜登政府将美国带回屈服的可能性。
+
+德国国营的《德国之声》新闻称该前景为“积极的”，并补充说：随着“乔·拜登的上任，核协议的所有各方都希望将其恢复活力。”
+
+
+
+> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) rejects any renegotiation of [#Iran](https://twitter.com/hashtag/Iran?src=hash&amp;ref_src=twsrc%5Etfw) deal, urges US to rejoin [#JCPOA](https://twitter.com/hashtag/JCPOA?src=hash&amp;ref_src=twsrc%5Etfw) [#IranDeal](https://twitter.com/hashtag/IranDeal?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/w8Hiu3njvw](https://t.co/w8Hiu3njvw)
+> — Press TV (@PressTV) [December 17, 2020](https://twitter.com/PressTV/status/1339562659428089858?ref_src=twsrc%5Etfw)
+
+
+
+*新闻电视**@PressTV**12月17日*
+
+*#中国拒绝任何重新谈判 #伊朗协议，敦促美国重新加入#JCPOA#。*
+
+拜登团队在美国政策和对外关系上与中共开放了“幕后渠道”交流的想法使拜登团队参与了民主党和进步派希望迈克尔·弗林将军入狱的行为。
+
+《洛根法》（Logan Act）–左派在指控即将上任的川普政府进行阻挠和非法通信时引用的法律，是1799年的法律，要求对未经授权擅自干预美国与外国政府之间事务的私人公民处以罚款和/或监禁。
+
+截至发稿时，直到2021年1月20日，民主党总统候选人乔·拜登，他的竞选伙伴美国加州民主党参议员卡马拉·哈里斯以及他的其余人员仍被指定为私人公民，没有任何官方的美国政府职位。
+
+原文作者：法兰克·萨尔瓦（Frank Salvato）
+
+发布时间：12 月25 日
+
+原文链接：[CHINA: Chinese Media Says Beijing Demanded Biden Rejoin Iran Nuclear Deal During ‘Backchannel Talks’ – National File](https://nationalfile.com/china-chinese-media-says-beijing-demanded-biden-rejoin-iran-nuclear-deal-during-backchannel-talks/)
+
++1

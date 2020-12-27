@@ -1,37 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## &#8220;无能又软弱&#8221;&#8211;川普抨击最高法院没有站出来打击选举欺诈行为
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/688829/)
+## 【热点播报】从圣诞节后,一切滑稽现象会水落石出
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/688842/)
 
-作者：ProTrumpNews工作人员
+作者：香草山写作组 Daxia 校对/发稿：飞虹
 
-翻译：康州盘古农场-Mike Li
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23222242/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-校对：康州盘古农场-黎明的光芒
 
-编辑：康州盘古农场-Rose
-![https://www.thegatewaypundit.com/wp-content/uploads/IMG_6909-600x330.jpg](https://lh3.googleusercontent.com/641PptEgDgG5XRggArzVIO3ORmz5lKYU9HEfA6GEBqPfJXRxQDuAHjWveUzNq0teI08AgpLbDkeCGCX1OnwNNggRML99W9TMZGmRGgqE67FhkQtq0Y17bQm8wc-1t-IxWH2Bc4PeZz1i5ntr_w)
-美国总统川普在清晨的一条推文中，抨击最高法院 “无能又软弱”。
 
-美国最高法院在2020年总统大选中发生的大规模选举舞弊事件上完全无能和软弱。我们有绝对的证据，但他们不想看到它—他们说，没有起诉“资格”。如果我们容忍，放任腐败的选举，美国就不复存在!
+据《华盛顿考官》报道：特朗普的得力助手鲁迪·朱利安尼就2020年大选发表了圣诞演讲，并引用他的话说：”我可以向你报告的不是最终结果，但我们远远超过了改变选举的地步。不止于此”，他接着说，“所以从圣诞节后开始，这真的会爆发了。”
+![]()![](https://gnews.org/wp-content/uploads/2020/12/12-7.png)
+看起来特朗普的法律团队将给美国人民一份迟来的圣诞礼物。鲁迪·朱利安尼说，他准备计划下一步措施，以推翻当选总统乔·拜登的胜利。这位前纽约市市长周三晚上前往佛罗里达州棕榈滩，特朗普总统也去了那里，特朗普总统将住在他的私人俱乐部海湖庄园过圣诞节假期。
 
-推特链接：[https://twitter.com/realDonaldTrump/status/1342830505163706369](https://twitter.com/realDonaldTrump/status/1342830505163706369)
+OAN补充报道：鲁迪·朱利安尼说，令人震惊的选举欺诈的最新结果将在未来几天发布。他补充说：“这可能会导致民主党的垮台，因为所有这些歪曲的电视网络、报纸、大科技公司和民主党领导层一直在给你的证据都是虚假的，你会一下子发现这一切，这会让这个国家感到非常震惊”。
 
-最高法院让美国人失望了。
+朱利安尼还指出，越来越多的共和党议员支持特朗普总统推翻欺诈性选举结果的努力。他补充说，选举舞弊现在已被证实，但具体下一步行动，还不能透漏。
 
-他们甚至拒绝审理德克萨斯州的诉讼案。
+再结合今天七哥的盖特所说，“中共一切的作恶，都被自己安装的无数监控系统泄漏”，应验了中共外交官一句话，真是搬起石头砸自己的脚，这下中共应该是搬起石头磕自己脑袋的了。
 
-突发: 最高法院拒绝德克萨斯州试图挑战四个战场州的总统选举结果的诉讼，批准德克萨斯州提出申诉，但因缺乏起诉资格而立即驳回其诉讼
 
-[https://t.co/OnYMTpXuhQ](https://t.co/OnYMTpXuhQ)
 
-首席大法官罗伯茨也是参与偷窃选举的一员吗？
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-乔•霍夫特最近在 Gateway Pundit中写道。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-驳回德克萨斯州的案件并不是罗伯茨做出的第一个令人怀疑的行为。在10月，罗伯茨站在宾夕法尼亚州一边，允许该州在选举后三天对未做标记的选票进行统计。在6月，罗伯茨在关于终止违宪的发展援助委员会问题上站在自由派法官一边。在垃圾弹劾听证会上，罗伯茨拒绝允许在听证会上大声说出所谓 “告密者”的名字。在2018年，当川普指出奥巴马时期的法官是多么的疯狂、腐败和违宪，罗伯茨对川普总统进行了抨击。罗伯茨真是一塌涂。
-
-文章链接：[https://www.thegatewaypundit.com/2020/12/incompetent-weak-trump-blasts-supreme-court-not-standing-fraud/](https://www.thegatewaypundit.com/2020/12/incompetent-weak-trump-blasts-supreme-court-not-standing-fraud/)
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

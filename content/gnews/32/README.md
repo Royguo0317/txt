@@ -1,61 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共媒体称北京在“幕后谈判”中要求拜登重新加入伊朗核协议
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/688185/)
+## 郭先生1225:不懂法没有自由民主把你弄死钱给我这不叫自由
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/688302/)
 
-翻译：康州盘古农场 – jeremysong
+![]()![](https://gnews.org/wp-content/uploads/2020/12/封面-134.jpg)
+撰稿：巴黎七星农场；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-校对：康州盘古农场 – 烟波浩淼
+篇首说明：郭文贵先生在[2020年12月25日 文贵圣诞直播](https://gtv.org/video/id=5fe5ef1dc0544c3d9737286f)，说的不是好听的话，关于遗书事件、关于如何看待圣诞节、关于刘特佐、关于川普总统一定赢得总统等一系列话题，本系列将逐一推出，本文为第四部分：不懂法没有自由民主把你弄死钱给我这不叫自由
 
-审核： 康州盘古农场 –Truemanman
-![]()![](https://gnews.org/wp-content/uploads/2020/12/图片80.png)
-拜登（Biden）团队正在通过背后渠道与中共进行沟通，他们声称川普与俄罗斯人勾结时违反了《洛根法》。
+据[2020年12月25日 文贵圣诞直播](https://gtv.org/video/id=5fe5ef1dc0544c3d9737286f)05：42时间点：
 
-根据中共党媒的报道，北京上个月与拜登团队的密切人士开始了“幕后对话渠道”。这些后备渠道沟通实质上将发现拜登团队违反了《洛根法》，他们用此法在2016年对即将上任的川普政府进行了无端指控。
+大家刚才有人说，说点开心的话，是！共产党天天给你说开心的话，啊，我们这个小康之路啊、实现共产主义呀，一人一个、推翻地主你可以睡地主的老婆和女儿啊，进了北京城一人一个女学生啊，然后推翻地主你就可以拥有地主拥有的土地呀，推翻国民党你们的钱不是国民党的金元券、你们家里边每个人家里都可以枕头变黄金、脚穿银制靴、吃啥随便拿、用啥随便用、一个媳妇不够娶俩，共产党是婚姻自由、性自由。你看看这多好听这话呀，听了七十年了，听了七十年了。
 
-隶属于中共的香港出版物《南华早报》报道说，中共外交部长王毅通过这个既定的“幕后渠道”，非外交地，直接地“命令”拜登重新签署《伊朗核协议》，解除对伊朗的制裁，减低针对中共政府的强硬政策。
+我跟我的同事开会，我每次告诉他们如果说好听的话，最好你别说、别浪费时间，你就说解决问题和你发现的问题，告诉我解决问题的办法，不要浪费，最好说不好听的话。
 
-王毅在欧盟举行的电视会议上说：“美国将在没有任何先决条件的情况下尽快与伊朗达成核协议，美国也应取消对伊朗，其他第三方实体和个人的所有制裁。”
+我们新中国联邦绝对不是说实现了新中国联邦你就有自由了，什么叫自由你告诉我，实现新中国联邦就实现民主了，什么叫民主你告诉我，**你连法都不知道兄弟姐妹们，怎么可能有自由和民主啊！**
 
+法律是一个实现你一切民主自由的基本常识，**让你的钱、你死了给我，这样的叫自由吗？用你的钱把你弄死、钱给我，这叫自由吗？**
 
+这么多战友说七哥我相信你了，我相信爆料革命了， 我相信联邦了，你写遗书了，我看都没看，他们说了没有效力，你知道你七哥是什么感受吗？每时每刻我身体看到每个战友发来的所谓写的遗书我都颤抖，爹妈、爷爷、孩子，有的人甚至在广西江西的穷人连家里那几个土房子都写到遗书里面去了，而且我要放弃一切法律权利一切归你们，何等荒唐啊，**为啥要把最穷困的战友变成了一个圣诞老人呐？**
 
-> Communist China already pushing around Biden[https://t.co/cg5HET4vIB](https://t.co/cg5HET4vIB)
-> — Mark R. Levin (@marklevinshow) [December 23, 2020](https://twitter.com/marklevinshow/status/1341895044643610628?ref_src=twsrc%5Etfw)
+续上篇：
 
+[郭先生1225:遗书事件与共产党的欺骗为何共产党不让你过圣诞](https://gnews.org/zh-hans/688105/)
 
+[郭先生1225:圣诞节不是吃喝的节日,要锻炼辨别真假善恶的能力](https://gnews.org/zh-hans/688184/)
 
-*马克·莱文 @marklevinshow**12月23日*
+[郭先生1225:只把利益给了一个人和一个公司的那一定是骗子](https://gnews.org/zh-hans/688240/)
 
-*中共已对拜登步步紧逼*
-
-来自俄罗斯，伊朗，英国，法国和德国的外交部长，以及川普总统2018年退出的《联合全面行动计划》（《伊朗核协议》）时所有签署国几乎都虚拟出席了会议。
-
-来自德国，伊朗，中国，俄罗斯和英国的代表“欢迎”拜登政府将美国带回屈服的可能性。
-
-德国国营的《德国之声》新闻称该前景为“积极的”，并补充说：随着“乔·拜登的上任，核协议的所有各方都希望将其恢复活力。”
-
-
-
-> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) rejects any renegotiation of [#Iran](https://twitter.com/hashtag/Iran?src=hash&amp;ref_src=twsrc%5Etfw) deal, urges US to rejoin [#JCPOA](https://twitter.com/hashtag/JCPOA?src=hash&amp;ref_src=twsrc%5Etfw) [#IranDeal](https://twitter.com/hashtag/IranDeal?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/w8Hiu3njvw](https://t.co/w8Hiu3njvw)
-> — Press TV (@PressTV) [December 17, 2020](https://twitter.com/PressTV/status/1339562659428089858?ref_src=twsrc%5Etfw)
-
-
-
-*新闻电视**@PressTV**12月17日*
-
-*#中国拒绝任何重新谈判 #伊朗协议，敦促美国重新加入#JCPOA#。*
-
-拜登团队在美国政策和对外关系上与中共开放了“幕后渠道”交流的想法使拜登团队参与了民主党和进步派希望迈克尔·弗林将军入狱的行为。
-
-《洛根法》（Logan Act）–左派在指控即将上任的川普政府进行阻挠和非法通信时引用的法律，是1799年的法律，要求对未经授权擅自干预美国与外国政府之间事务的私人公民处以罚款和/或监禁。
-
-截至发稿时，直到2021年1月20日，民主党总统候选人乔·拜登，他的竞选伙伴美国加州民主党参议员卡马拉·哈里斯以及他的其余人员仍被指定为私人公民，没有任何官方的美国政府职位。
-
-原文作者：法兰克·萨尔瓦（Frank Salvato）
-
-发布时间：12 月25 日
-
-原文链接：[CHINA: Chinese Media Says Beijing Demanded Biden Rejoin Iran Nuclear Deal During ‘Backchannel Talks’ – National File](https://nationalfile.com/china-chinese-media-says-beijing-demanded-biden-rejoin-iran-nuclear-deal-during-backchannel-talks/)
-
-+1
+0
