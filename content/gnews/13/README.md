@@ -1,33 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 丑闻缠身的中共外交官刘晓明即将卸任
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/690743/)
+## 红色方济各加入疾控中心和世卫组织推动COVID疫苗接种
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/690799/)
 
-俄罗斯莫斯科喀秋莎农场 文强
+翻译：康州盘古农场-Mike Li
+校对：康州盘古农场-Bruce
+编辑：康州盘古农场-V
 
-校对上传 银河
-![]()![](https://gnews.org/wp-content/uploads/2020/12/3500.jpg)图片来源：The Guardian
-中共“战狼”外交官、驻英国大使刘晓明即将卸任。刘晓明在任上被爆出诸多丑闻，尤其曾“点赞”色情视频引争议。其职位由中共外交部副部长郑泽光接任。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/pope.png)*教皇方济各再次推动极左和精英的事业。他这次希望所有国家确保每个人都接种COVID疫苗。*图片：thegatewaypundit.com。
 
-据《南华早报》报道，全国人大常委谭耀宗12月26日在全国人大常委会的会议后透露，中共国驻英国大使刘晓明即将退休，由中共国外交部副部长郑泽光接任。截止目前，中共官方尚未证实上述消息。对此，有分析指出，中共驻英国大使的变化，是在两国关系逐渐恶化的情况下进行的。
+Just the News的约翰·所罗门报道说：
 
-近年来，中共最高层推行强硬外交政策，外界指责中共搞“战狼外交”。自2009年担任中共驻英国大使以来，现年64岁的刘晓明，一直在英国以战狼姿态实践“习近平外交思想”。多次在BBC等节目上颠倒黑白，声称《中英联合声明》已经过期无效，抨击中共的批评者，对中共镇压香港民主倡导人士以及在新疆地区大规模拘禁维吾尔族人的批评进行黑白颠倒的反击等。他因经常颠倒黑白，抨击中共批评者而被称为“战狼”。
+教皇方济各在圣诞节当天告诫世界各国领导人在阻止流行病的竞赛中要致力 “促进合作而不是竞争”，暗示最脆弱的人们应该首先获得疫苗。
 
-今年9月份，刘晓明又传出丑闻，其官方认证的推特账号 @AmbLiuXiaoMing为一段色情视频点赞，之后有关刘晓明点赞淫秽视频的推特截屏也广为流传，此事被英国媒体报导，刘晓明老脸丢尽。刘晓明没有直接对点赞争议作出回应。但他发布了一条推文，内容是一句鲜为人知的格言“好砧不怕锤”，似乎是宣布自己的清白。
+方济各周五在梵蒂冈发表讲话，”我们不能让封闭的民族主义阻碍我们作为真正的人类大家庭那样生活，”就在他庆祝圣诞前夜弥撒后几个小时，由于欧洲各地的COVID限制，参加的人很少。
 
-刘晓明因其跌入谷底的形象已经无法胜任驻英大使职务，继任者刘泽光被寄以厚望，希望可以挽救及维持中共与英国的关系。英国不止在2021年G7峰会担任主席国，脱欧后的经济政策的改变，更让中共迫不及待与英国建立新的合作关系。
+他说，目标是 “为每个人提供疫苗，特别是为最脆弱和最需要的人提供疫苗”。
 
-参考链接：
+教皇加入了世界卫生组织的行列，该组织也在向全世界推行疫苗接种。
 
-[https://www.soundofhope.org/post/457624](https://www.soundofhope.org/post/457624)
+“世卫组织从网站上删除自然获得的免疫力”。
 
-[https://www.zaobao.com/realtime/china/story20201227-1111743](https://www.zaobao.com/realtime/china/story20201227-1111743)
+疾控中心也在推动这项工作。
 
-[https://cn.nytimes.com/china/20200911/china-ambassador-twitter/](https://cn.nytimes.com/china/20200911/china-ambassador-twitter/)
+谨防披着羊皮的狼。
 
-[http://cn.epochtimes.com/gb/20/12/27/n12647114.htm](http://cn.epochtimes.com/gb/20/12/27/n12647114.htm)
-
-[https://www.scmp.com/news/china/diplomacy/article/3115430/chinas-ambassador-britain-liu-xiaoming-set-retire](https://www.scmp.com/news/china/diplomacy/article/3115430/chinas-ambassador-britain-liu-xiaoming-set-retire)
+作者：乔·霍夫特     （Joe Hoft）
+发布时间：2020年12月26日上午8:15
+原文链接：[https://www.thegatewaypundit.com/2020/12/red-francis-joins-cdc-pushing-covid-vaccinations/](https://www.thegatewaypundit.com/2020/12/red-francis-joins-cdc-pushing-covid-vaccinations/)
 
 0

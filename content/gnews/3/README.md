@@ -1,36 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普就历史性的选举舞弊案为共和党参议员们阐述了理由：当一切都结束的时候—我们会赢！
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/690868/)
+## 【鲍威尔律师推文1227】-现代版的伽利略
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/690906/)
 
-翻译：康州盘古农场-Bruce
-校对：康州盘古农场-黎明的光芒
-审核：康州盘古农场-V
+美国思考者网于12月26日发表了一批文章题为《为什么鲍威尔律师得到伽利略的待遇》，文章称在人类历史上，伽利略打破了地球不是宇宙中心的学说，他的太阳中心学说震撼了当时的世界，并且威胁到教会当局和大众权威， 最终他们将伽利略软禁起来，并要求他放弃自己的理论。2020年鲍威尔律师将选举舞弊的全部真相曝光，也遭到了孤立，她被阻止与川普总统走得太近或者结盟。文章从美国国内的情况分析了美国选举舞弊的成因。
 
-川普总统就今年大选中历史性的选举舞弊问题向共和党（GOP）参议员们阐述了理由。
-
-GOP参议员们现在需要决定，是与人民和共和党大本营站在一起，还是与沼泽地站在一起。
-
-这是个简单的问题。
+鲍威尔律师转推了这篇文章称：
 
 
+> 为什么西德尼-鲍威尔会得到伽利略的待遇？
+> 
+> 我们总是受到最多的责难!
+> 
+> 我们已经找到了问题，
+> 
+> 谁用作弊获得了选举？
+> 
+> 谁在他们的地区为了获得多米尼投票机拥有了“选举保险”？
 
-> ….Courts are bad, the FBI and “Justice” didn’t do their job, and the United States Election System looks like that of a third world country. Freedom of the press has been gone for a long time, it is Fake News, and now we have Big Tech (with Section 230) to deal with….
-> — Donald J. Trump (@realDonaldTrump) [December 26, 2020](https://twitter.com/realDonaldTrump/status/1342974375008600070?ref_src=twsrc%5Etfw)
+
+网友Dr. Dave Janda回推：
+
+
+> 其实…..
+> 
+> 鲍威尔律师被全球精英机构当作现代的圣女贞德…..不同的是….西德尼有如火焰般的证据，并将燃烧深国势力（deep state)!
+
+
+鲍威尔律师转发了这个推文。
 
 
 
-*….法院很糟糕，联邦调查局和 “司法部 “没有尽职尽责，美国的选举制度看起来就像一个第三世界国家的制度。新闻自由已经消失很久了，这是假新闻，现在我们有科技巨头（有230法案保护）来处理….。*
+> Actually ….. [@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw) is treated by the global elite establishment as a modern day Joan of Arc….. the difference…. Sidney has a flame thrower of EVIDENCE & will burn the deep state down at the stake! [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) [@JosephJFlynn1](https://twitter.com/JosephJFlynn1?ref_src=twsrc%5Etfw) [@BarbaraRedgate](https://twitter.com/BarbaraRedgate?ref_src=twsrc%5Etfw) [@GoJackFlynn](https://twitter.com/GoJackFlynn?ref_src=twsrc%5Etfw) [@Lrihendry](https://twitter.com/Lrihendry?ref_src=twsrc%5Etfw) [https://t.co/CN0s8j7UQD](https://t.co/CN0s8j7UQD)
+> — Dr. Dave Janda 🇺🇸 ⭐️⭐️⭐️ (@docdhj) [December 27, 2020](https://twitter.com/docdhj/status/1343009671376998400?ref_src=twsrc%5Etfw)
 
-*—— 唐纳德·J·川普（@realDonaldTrump）2020年12月26日*
 
-*….，假签名，非法移民选民，被禁止的共和党选票观察者，比实际选民更多的选票(看看底特律和费城)，这些数字远远大于我们赢得摇摆州所需的选票数，无可辩驳….。*
 
-*——唐纳德·J·川普（@realDonaldTrump）2020年12月26日*
+新闻素材和图片来自鲍威尔推特和
 
-原文作者：乔··霍夫特（Joe Hoft）
-发布时间：2020年12月27日
-原文链接：[https://www.thegatewaypundit.com/2020/12/will-win-president-trump-lays-case-gop-senators-historic-election-fraud/?ff\_source=Twitter&ff\_medium=PostTopSharingButtons&ff\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/12/will-win-president-trump-lays-case-gop-senators-historic-election-fraud/?ff_source=Twitter&amp;ff_medium=PostTopSharingButtons&amp;ff_campaign=websitesharingbuttons)
+[https://www.americanthinker.com/blog/2020/12/why\_sidney\_powell\_gets\_the\_galileo\_treatment.html](https://www.americanthinker.com/blog/2020/12/why_sidney_powell_gets_the_galileo_treatment.html)
+
+
 
 0
