@@ -1,46 +1,99 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生1225:已给当事方三次时间再不配合将采取一切可采取行动
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/689650/)
+## 【Raiklin律师推文1227】乔州胜出 &amp; 宾州新舞弊证据
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/689683/)
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/封面-32.png)
-撰稿：巴黎七星农场；审核：喜马拉雅的馍夹肉；校对：Maarago
+12月27日Ivan Raiklin 律师转发了以下推文。
 
-篇首说明：郭文贵先生在[2020年12月25日 文贵圣诞直播](https://gtv.org/video/id=5fe5ef1dc0544c3d9737286f)，说的不是好听的话，关于遗书事件、关于如何看待圣诞节、关于刘特佐、关于川普总统一定赢得总统等一系列话题，本系列将逐一推出，本文为第十一部分：已给当事方三次时间再不配合将采取一切可采取行动
+关于乔治亚州
 
-据[2020年12月25日 文贵圣诞直播](https://gtv.org/video/id=5fe5ef1dc0544c3d9737286f)55：47时间点：
 
-哎呀，好漂亮啊，哎呀二百七十万了，我的娘嘞，一道微笑，太中了，这两天那个盖特我发出去以后，我在下边点击，你看到有些勾勾是你已经是被我关注了，我就不用再点两次了，但是现在约翰叔叔带的团队有些战友我关注了他没勾勾，所以我还得点，文叶，所以说咱们过圣诞的时候非要吃一肚子，然后说那满嘴抹蜜的话，感谢你们战友，你们太棒啦，你太好啦，你们太伟大啦，咱们哭一通吧，管用吗？
+> 川普总统… 您的领导赢得了乔治亚州参议员选举… … 我要向大家展示一下有多少 #幻觉睡眠投票者 的存在… 今天到现在为止已经工作了12个小时。 这些选举不需要重新选举… GOP已经赢了 我希望我可以证明这一点.
 
-越是在这圣诞节的时候越要讲点有用的话，承担责任、如何来承担责任、怎么解决问题，你比如说到现在VOG，几乎战友给VGO的钱、还有这次借项目的钱，几乎百分之八九十全在她账上，所有的律师告诉我说，郭先生你马上发公开函，马上，这是最好的机会跟她切割，前天就开始要切割，我说停停停，然后刑事报案，我说停停停，我们一定要想着 SARA和VOG曾经做得好事。
 
-我也很惊讶呀，这钱全在她手里边呢，都在她个人账上呢，她要跑了咋办、她耍赖咋办？我说你放心，我们有几万个战友在VOG，如果她敢这么做，美国的法律她就是神仙、她就是川普是她亲哥，她也躲不过这一关去，那些怂恿她的这些间谍包括现在洛杉矶的，你放心一个都跑不了，我说大不了我承担责任吧，我承担责任。但是我做梦都没想到这些东西全在那儿呢，几乎我们现在一句话就会把这件事所有东西都在她那儿呢，多恐怖啊，战友们。
+Raiklin 律师回推时说：
 
-我在这儿再说一遍，我已经给了SARA和VOG足够的三次时间、 24小时、72小时、三天，让她把所有账上的现金和所有的东西该交的交，该跟喜马拉雅联盟委员会，她再不交、她再不配合、她不把账说清楚，我们得到战友的授权喜马拉雅联盟委员会一定会采取一切可以采取的行动，到那时候战友们记住啊，别怪七哥无情，我今天把话都说在这儿了，七哥狠下来的时候，你们是想像不到的，我要没有这个狠劲我到不了今天，到不了今天，七哥该决定的时候一定，优柔寡断之人是成不了大器的。
 
-七哥耳朵根子软有时候太过感性化，这是我的毛病，但最终七哥会站在一个保护战友的核心利益、保护战友的经济利益、保护爆料革命的平稳运行、保护新中国联邦实现目标，这是七哥绝不妥协，我真的不是开玩笑、不是口头语——亲爹新娘老婆儿子闺女都不行，在这个问题上只有战友的利益排第一位，谁都不行。
+> 乔治亚州！（好消息）
+> 
+> 不需要新一轮选举了吗？
 
-续上篇：
 
-[郭先生1225:遗书事件与共产党的欺骗为何共产党不让你过圣诞](https://gnews.org/zh-hans/688105/)
 
-[郭先生1225:圣诞节不是吃喝的节日,要锻炼辨别真假善恶的能力](https://gnews.org/zh-hans/688184/)
 
-[郭先生1225:只把利益给了一个人和一个公司的那一定是骗子](https://gnews.org/zh-hans/688240/)
+> GEORGIA!
+> 
+> No Runoff necessary?! [https://t.co/k88LgyIdEI](https://t.co/k88LgyIdEI)
+> — “Activate Emergency Alert System!” Ivan Raiklin (@Raiklin) [December 27, 2020](https://twitter.com/Raiklin/status/1343127300657836033?ref_src=twsrc%5Etfw)
 
-[郭先生1225:不懂法没有自由民主把你弄死钱给我这不叫自由](https://gnews.org/zh-hans/688302/)
 
-[郭先生1225:用眼泪讲故事者非邪即恶别用善良无知坑害战友](https://gnews.org/zh-hans/688444/)
 
-[郭先生1225:遗书事件告诫我们不要相信眼泪和她说的和许诺](https://gnews.org/zh-hans/688617/)
+相关其他推文：
 
-[郭先生1225:每个人追随和信仰的不能基于道听途说和情绪化](https://gnews.org/zh-hans/689154/)
+滑稽的宾夕法尼亚州
 
-[郭先生1225:爆料革命必须坚持公开透明,他勇于承担责任](https://gnews.org/zh-hans/689278/)
 
-[郭先生1225:遗书事件是集团作案集团作战骗钱给VOG和SARA](https://gnews.org/zh-hans/689475/)
+> 尊敬的
+> 
+> @POTUS 美国总统 @真正的唐纳德-川普
+> 
+> 我有一些关于宾夕法尼亚州绝对令人震惊的消息要报告。 我检查了超过9,008,753条记录，确定了521 879个独特的姓氏。 245,033个，也就是宾夕法尼亚州所有姓氏中的47%，只属于一个人，而且只是一个人!
 
-[郭先生1225:VOG及凤凰农场事件是第一个但不会是最后一个](https://gnews.org/zh-hans/689566/)
+
+
+
+> The Honorable [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) 
+> I have some absolutely Stunning News to report regarding PA. I examined just over 9,008,753 records and have identified 521,879 unique Last Names. 245,033 or just under 47% of the total Last Names in PA only belong to 1 and only 1 person!
+> — BobbyPiton (@BobbyPiton3) [December 27, 2020](https://twitter.com/BobbyPiton3/status/1342996474972540928?ref_src=twsrc%5Etfw)
+
+
+
+
+> 这500个少了的名字（低于全国范围的估计）核对过是958,044（人）。 这刚好是宾州消失的695,000到958,000人。 川普总统，我有一个所有失踪人员姓名的详细数据。
+
+
+
+
+
+> 我不知道该怎么说，我看到的是如此疯狂的彻头彻尾的欺诈。近100万美国人的选票被偷走了! 对于这种对伟大的宾夕法尼亚州的犯罪行为，必须逮捕。
+
+
+
+
+> I am a loss for words that I am looking at such INSANE Outright Fraud. That almost 1 million Americans had their Vote STOLEN from them! Arrests need to be made for this crime against the Great State of Pennsylvania. [@GenFlynn](https://twitter.com/GenFlynn?ref_src=twsrc%5Etfw) [@tracybeanz](https://twitter.com/tracybeanz?ref_src=twsrc%5Etfw) [@LLinWood](https://twitter.com/LLinWood?ref_src=twsrc%5Etfw) [@SidneyPowell1](https://twitter.com/SidneyPowell1?ref_src=twsrc%5Etfw) [@Kathy4Truth](https://twitter.com/Kathy4Truth?ref_src=twsrc%5Etfw)
+> — BobbyPiton (@BobbyPiton3) [December 27, 2020](https://twitter.com/BobbyPiton3/status/1342996478269272065?ref_src=twsrc%5Etfw)
+
+
+
+
+> 史密斯的人名比应该有的人少 19,591个，威廉姆斯失踪了，30,830个约翰逊找不到人。 11,656个杰克逊失踪。 宾夕法尼亚州到底发生了什么事。 在宾州排名前1000的名字中，正好有500人的名字在应该在那里的投票被缺失。。
+
+
+
+
+> fewer Smiths, than should be there. 19,591 Williams have gone missing, 30,830 Johnson's are no where to be found. 11,656 Jackson went MIA. What in the world is going on in PA. Exactly 500 of the top 1000 names in PA have a deficit in the number of people that should be there.
+> — BobbyPiton (@BobbyPiton3) [December 27, 2020](https://twitter.com/BobbyPiton3/status/1342996476658647040?ref_src=twsrc%5Etfw)
+
+
+
+
+> 再次，在900万条记录中，没有兄弟、姐妹、姑姑、表兄弟、父母使用特殊的姓氏。 在看了宾夕法尼亚州的前1000名姓氏后，对应有695,430人减少了。 从字面上看，有14,776个
+
+
+
+
+> Once again, no brothers, sisters, aunts, cousins, parents that share this particular last name out of 9 Million records. Upon looking at the TOP 1000 Last Names in PA, I have discovered that PA has 695,430 Fewer People in the top 1000 Last Names. Literally, there are 14,776
+> — BobbyPiton (@BobbyPiton3) [December 27, 2020](https://twitter.com/BobbyPiton3/status/1342996475731697667?ref_src=twsrc%5Etfw)
+
+
+
+后记，每当看到美国人为大选结果做出怎样的抗争，发现怎样的舞弊行为，用怎样的方式验证选举结果，美国人如何被威胁了，一些网络名人、律师、议员、政要包括川普总统本人，如何站出来振臂高呼，说出真相的，凡此等等，所有的努力和行动，无不感动著我。当中共盘算著一个所谓“完美”的系统性惊天大阴谋以期盗取美国大选结果之时，哪里预想到，这个世界还有如此勇敢抗争的人，在美国的土地上，还有真正有脊梁有正气的人。中共对人民的蔑视和奴役，让他们忘记了什么是真正的人类，这个世界并非都是魔鬼和屈膝的奴隶。真正的人类最终战胜魔鬼，中共已经自掘好了坟墓。
+
+
+
+新闻和图片来源于Ivan Raiklin律师的推文
+
+
 
 0
