@@ -1,94 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 会计，财报及审计的入门基础与介绍（四）
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/691033/)
+## 桥水基金创始人雷·达利奥长子车祸身亡
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/691003/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23164109/1223.jpg)Picture Source: www.groomassocies.com
-在第三篇中则是详细展示财务审计与分析过程中所涉及的财务框架及各项目内容。有助于投资人或审计师依照富有逻辑且合理的顺序对于财务报表进行检阅。
+加拿大草原三省战友之家 重生之鹰
+校对 文怡 上传 安歌
+![]()![](https://gnews.org/wp-content/uploads/2020/12/the-us-sun.jpg)图片来源：The Us Sun
+据《维基百科》及有关消息，桥水基金（Bridgewater Associates）是全球最大的对冲基金，由雷·达利奥（Ray Dalio）于1975年在美国创立。目前其管理的资产约为1500亿美元，累计盈利450多亿美元，超过索罗斯的量子基金，成为最赚钱的对冲基金。现年71岁的雷·达利奥今年被《福布斯》（Forbes）评为全球第46名最富有的人，被称为金融界的乔布斯，估计净资产为180亿美元。2012年，雷·达利奥获评《时代周刊》“全球100位最具影响力的人物”之一。1981年，该公司将总部从美国纽约市迁至康涅狄格州西港市（Westport）。
 
-1. Constraints on Financial Report 4.2
+据西港市当地新闻媒体报道，12月24日下午，桥水基金创始人雷·达利奥42岁的大儿子德文·达利奥(Devon Dalio)驾驶的奥迪(Audi)冲入格林威治购物中心的一家威瑞森(Verizon)门店并起火，德文因此丧生。一名家庭发言人在周五晚向康涅狄格州赫斯特(Hearst)媒体发布的一份声明中证实了他的死讯，他说:“这是一个令人心碎的悲剧，家人都在哀悼。”
 
+格林威治警察局(Greenwich Police Department)说，这起致命事故的原因尚不清楚，正在调查中。当局表示，下午4点前，德文·达利奥的一辆2016年的奥迪冲入了威瑞森商店。该商店位于东帕特南大道上，离I-95号公路5号出口不远。这辆车跳过了停车带和路缘，然后直接撞进了商店的门。
 
-- 以上增强特征并无先后顺序，进行适当平衡
-- 信息使用成本，不能高于信息中获得的收益
-- 对于无法量化的信息，无法体现在财务报告中
+据报道，警方在下午3点50分左右到达现场，发现这家商店“完全被烟雾吞噬”，阻止了警方进入。有关部门尚未表示，车速是否可能是导致这起事故的一个因素。但据该汽车制造商称，2016款奥迪S6可以在4.4秒内达到高速。
 
+消防队长约瑟夫·麦克休(Joseph McHugh)说，很可能是汽车的油箱受到撞击而破裂，导致汽车起火爆炸。大火在对购物中心造成进一步破坏之前被格林威治消防部门扑灭。现场照片显示，威瑞森手机商店大部分被毁。警方说，德文·达利奥是这次事故的唯一受害者，威瑞森的员工安全离开了商店。
 
-2. The Elements of financial Statement 4.3
+德文·达利奥曾在他父亲于1975年创立的桥水基金公司担任项目经理。后来, 他与他人共同创立了自己的私人股本公司P-Squared Management Enterprises。根据Dalio基金会的税务文件,德文.达利奥还是该基金会的董事会成员。
 
-- Assets，Liability，Equity，Income，Expense
+现年71岁的雷·达利奥早就与中共国结缘。1994年，雷·达利奥在中共国创办了一家名叫“桥水中国合作伙伴”的公司。由于时差和精力不足原因，一年后公司被关闭。尽管当时雷·达利奥放弃了在中共国发展公司的机会，但他和家人并没有放弃在中共国发展。
 
+1995年，雷·达利奥将自己11岁的次子麦修·达利奥（Matthew.Dalio）送到北京一所全中文学校学习，让自己的孩子能够更多的认识和了解中共国。2000年，麦修成立了一家慈善机构——中国关爱基金会，以帮助有特殊需求的中共国孤儿。麦修是中国关爱基金会的创始人兼董事长，也是计算机操作系统公司Endless Mobile的首席执行官，与中共关系极为密切。
 
-3. Underlying Assumptions in Financial Statement (4.3.1)
+2018年7 月，桥水基金完成私募证券基金管理人登记，正式成为中共国境内第一批外资私募管理人。2018年10月9日，一支名为“桥水全天候中国私募投资基金一号”的产品完成备案。本月12日，桥水基金创始人雷·达利奥（Ray Dalio）还参加了三亚·财经国际论坛。
 
-- Accrual Accounting / Accrual Basis ：权责发生制会计
-- 假定财务报表反应实际发生的交易，而不是实际现金变动的交易
-- Going Concern: 持续经营，在可预见的未来公司会继续开展业务
-- (权责发生制会计和持续经营作为财务报表中最重要的两个假设）
+简评：桥水基金创始人雷.达里奥的长子突发车祸一事，是意外，还是另有原因，目前尚未有准确的消息，但华尔街与中共的勾兑尽人皆知，桥水基金作为第一批看好和进军中共国市场的外资私募基金我们也会我们会进一步关注。
 
-
-4. Recognition of Financial Statement Element (4.3.2)
-
-- 如果符合元素定义，满足识别标准，就会进行识别
-
-
-5. Measurement of Financial Statement Element (4.3.3)
-
-- 这是一个确认金额的过程,但也存在代替的计量方法在不同组和中使用
-- Historical Cost ：资产：购买时所支付的现金或现金等价物，若是非现金购买则等于退出价格
-- 债务：交换债务而收取的数额
-- Amortized Cost：针对摊销，折旧，消耗进行的历史成本调整
-- Current Cost今天购买相同等值资产必须支付的现金或现金等价物
-- Realizable Value 资产：通过有序出售，当前可获得的现金或现金等价物
-- Settlement Value 负债：为满足负债，预期支付的现金或现金等价物的未折现金额
-- Present Value：资产：预期资产在正常业务过程中产生的未来现金流的当下折现值
-- 负债：清偿负债所需的未来现金净流出的折现价值
-- Fair Value：定义为退出价格，即在计量日期内有序交易中，出售资产所收取，或转移负债所支付的价格
-
-
-6. Required Financial statement (4.4.1)
-
-- 根据IAS No.1 一个完整的Financial Statement 应包含如下
-- Balance Sheet / Financial Position 资产负债表
-- Comprehensive Income 综合收入表
-- Change in Equity 权益表
-- Cash Flow 现金流表
-- Notes Comprising a summary of Significant policy
-- Other explanatory Notes disclosure information required by IFRS
-- Information to increase Understandability or not provided elsewhere
-
-
-7. General Features (4.4.2)
-
-- 国际会计准则一号还规定了编制的一些基本特征
-- Fair Representation  公平报列按照框架下各项定义，忠实的表述交易及其他事件
-- Going Concern 存续经营
-- Accrual Base 权责发生制
-- Material and aggregation重要性/汇总性，如果遗漏项目可单独或集体影响经济决策则是重大的
-- No offsetting  除非IFRS允许，资产/负债，收入/支出不得抵消
-- Frequency of Reporting   至少每年编制一次
-- Comparative Information 报表必须包括上一期间可比较信息。
-- 除非得到许可，则必须完全披露所有金额前期比较信息
-- Consistency 一致性
-
-
-8. Structure and Content Requirements (4.4.3)
-
-- IAS No.1 同时也规定了结构内容
-- Classified Statement of Financial Position
-- 区分当前资产 / 非当前资产，当前资产 / 非当前债务
-- Minimum Information on the face of the Financial Statement
-- Minimum Information in the notes
-- Comparative Information可比较信息
-- 报表必须包括上一期间可比较信息。
-- 除非得到许可，则必须完全披露所有金额前期比较信息
-
-
-作者：搞笑排行榜
-
-原创观点文章 – 2020/12/27
-
-温哥华圆成农场
+[原文链接](https://www.dailymail.co.uk/news/article-9070051/Son-wealthy-philanthropists-Ray-Barbara-Dalio-killed-car-crashes-Verizon-store.html?ito=amp_twitter_share-top)
 
 0
