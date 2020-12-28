@@ -1,52 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西德尼-鲍威尔称白宫助手正在阻挠她帮助川普
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/690822/)
+## &#8220;你被雇来擦玻璃和干杂活&#8221;—恶心！多米尼公司向证人梅丽莎·卡隆发了封讨厌的信
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/690861/)
 
-作者：TOM OZIMEK  2020年12月25日，更新于: 2020年12月26日
-翻译：康州盘古农场-Mike Li
-校对：康州盘古农场-Freeearth
-编辑：康州盘古农场-V
-![]()![](https://gnews.org/wp-content/uploads/2020/12/IMG_2372-3-1200x720-1.jpg)西德尼-鲍威尔，图片：大纪元
-律师西德尼-鲍威尔在12月23日接受Zenger新闻采访时表示，白宫高级助手正在防止她与总统唐纳德-川普進行沟通，并阻止她代表总统承担正式的协调角色，以應對选举竞赛的挑战。
+翻译：康州盘古农场 – Bruce
+校对：康州盘古农场 – 烟波浩淼
+审核：康州盘古农场 – V
 
-《纽约时报》首次报道了周五在椭圆形办公室举行的紧张会议，川普、鲍威尔、前国家安全顾问迈克尔-弗林（Michael Flynn）、白宫幕僚长马克-梅多斯（Mark Meadows）和白宫顾问帕特-西波隆（Pat Cipollone）参加了这次會議。据报道，国家安全顾问罗伯特-奥布莱恩和特朗普律师鲁迪-朱利安尼通过电话参加了此次會議。
+**梅丽莎·卡隆（Mellissa Carone）告诉《门户网站》，多米尼克的CEO在作证时多次撒谎。**
 
-鲍威尔告诉Zenger新闻，在周五的会面中，川普口头上向她提出了 “白宫特别顾问 “的职位，但她一直无法向总统提交能够使其正式生效的文件，她的任命实际上已经被阻止了。
+因为她敢于站出来对抗精英们… … 梅丽莎·卡隆现在正不断受到攻击。精英们不喜欢工人越界。
 
-“还没有实现，”鲍威尔说，”因为它似乎在周五晚上之后被白宫高级工作人员阻止了，或者取消了，或者我不知道你会怎么解释它”。
+现在多米尼克投票系统公司威胁梅丽莎·卡隆说她只是被雇用来做 “擦玻璃 “和 “其他琐碎的工作”。
 
-采访者问：”有人往齿轮里扔了沙子？” 鲍威尔回答：”差不多吧.”
+多米尼克公司还声称梅丽莎是明星证人 当鲁迪·朱利安尼请来几十个证人作证的时候。
 
-“自从我周五晚上离开椭圆形办公室后，我就被阻止与总统说话或交流，”鲍威尔说，”显然是总统身边的人在阻止我”。
+**这就是这些可怕的人对美国劳动者的看法!**
 
-鲍威尔澄清说，她得到的角色 “不是罗伯特-穆勒式的特别顾问”，但 “曾有过关于我成为白宫特别顾问的讨论”。特别顾问由司法部长任命，而白宫特别顾问可以由总统任命。
+*据[《每日来电》](https://dailycaller.com/2020/12/25/dominion-voting-systems-mellissa-carone-donald-trump-voter-fraud/)报道：*
 
-司法部长威廉-巴尔周一在新闻发布会上表示，他认为沒有理由任命一名特别顾问来调查选举舞弊指控。
+[*《法律与犯罪》*](https://lawandcrime.com/high-profile/dominion-attorneys-send-brutal-letter-to-trump-campaigns-so-called-star-witness-mellissa-carone/?utm_source=mostpopular)*称， 多米尼克投票系统公司的律师致函唐纳德**・川普总统的盟友， 包括西德尼**・鲍威尔和前多米尼克承包商梅丽莎**・卡隆，要求他们停止声称公司 “操纵 “了2020年的选举。*
 
-巴尔说：”如果我认为现阶段的特别顾问是正确的工具，是合适的，我会指派一名，但我没有，我也不会这样做。”他坚持他早些时候的评估，即司法部没有发现足以推翻选举的重大规模的欺诈证据。
+*《法律与犯罪》还称，多米尼律师托马斯·克莱尔（Thomas Clare）和梅根·迈耶（Megan Meier）发信命令相关人员停止发表”诽谤性 “言论，包括声称公司 “操纵或不当影响 “2020年总统选举的声明，《法律与犯罪》*[*报道*](https://lawandcrime.com/high-profile/dominion-attorneys-send-brutal-letter-to-trump-campaigns-so-called-star-witness-mellissa-carone/?utm_source=mostpopular)*了这封12月22日发给Carone的信。据《法律与犯罪》报道，多米尼克给卡隆的信还警告说，”有关这些问题的诉讼即将到来”。*
 
-他说：”我是在评论我们在多大程度上考慮了会影响选举结果的系统性或广泛的欺诈建议或指控，我已经谈到了这一点，我坚持这一说法。” 他认为11月3日 “这次选举中存在欺诈行为”。他说 “我只想说，不幸的是，在大多数选举中都有欺诈行为，我认为我们对此太宽容了。”
 
-巴尔辞去了司法部长的职务，12月23日是他任职的最后一天。
 
-川普在周三的推特上，兩次呼吁任命特别顾问调查选举舞弊。
+> Dominion Attorneys Send Brutal Letter to Trump Campaign’s ‘So-Called Star Witness’ Mellissa Carone[https://t.co/9uC9G0vLDP](https://t.co/9uC9G0vLDP)
+> — Law & Crime (@lawcrimenews) [December 24, 2020](https://twitter.com/lawcrimenews/status/1342236046424203265?ref_src=twsrc%5Etfw)
 
-川普寫到：”我不同意任何人认为不立即指派一个强大的、快速的、公平的特别顾问的建议。立即。这是我们国家历史上最腐败的选举，必须严加审查！” 。
 
-自选举日以来，川普和第三方团体在六个战场州对选举结果进行了法律挑战。迄今为止，这些努力都没有取得成果。
 
-川普的顾问纳瓦罗（Peter Navarro）上周发布了一份详细的报告，总结了六个战场州的选举违规指控，认为这些指控严重到需要进行紧急调查，而且实质内容足以有可能推翻选举结果。
+*法律与犯罪 @lawcrimenews 12月24日*
 
-纳瓦罗在报告中说，”如果不在就职日之前对这些选举违规行为进行全面调查，从而有效地让这些违规行为受到审判，这个国家就会面临再也无法举行公平的总统选举的现实风险。”
+*多米尼律师向川普竞选活动的“所谓的明星证人”梅丽莎·卡隆（Mellissa Carone）发送野蛮信件*
 
-据《新闻周刊》报道，白宫新闻秘书凯莉-麦克纳尼拒绝就是否有白宫高级官员阻止鲍威尔进入白宫发表评论。
+*据报道，克莱尔和梅尔在给卡隆的信中写道：”本月早些时候，你作为鲁迪·朱利安尼所谓的‘明星证人’ 获得了国际声誉，据说你可以证实关于多米尼克以某种方式操纵或以其他方式不当影响2020年11月美国总统选举结果的荒诞指控”。”在没有一点确凿证据的情况下，你声称你目睹了几个不同版本的选民欺诈行为——从一个涉及一辆货车的故事，到其他关于选票被多次计算的指控。尽管你一直知道你对多米尼克的攻击没有事实依据，但你还是发表了这些声明。”*
 
-白宫没有立即回应《大纪元时报》关于鲍威尔与川普接触或她的任命状况的询问。
-
-文章链接：
-
-https://www.theepochtimes.com/mkt\_app/sidney-powell-says-white-house-aides-are-blocking-her-efforts-to-help-trump\_3632491.html
+原文作者：吉姆·霍夫特（Jim Hoft）
+发布时间：2020年12月26日 上午11:20
+原文来源：[https://www.thegatewaypundit.com/2020/12/hired-clean-glass-menial-tasks-disgusting-dominion-voting-systems-sends-nasty-letter-witness-mellissa-carone/?ff\_source=Twitter&ff\_medium=PostTopSharingButtons&ff\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/12/hired-clean-glass-menial-tasks-disgusting-dominion-voting-systems-sends-nasty-letter-witness-mellissa-carone/?ff_source=Twitter&amp;ff_medium=PostTopSharingButtons&amp;ff_campaign=websitesharingbuttons)
 
 0

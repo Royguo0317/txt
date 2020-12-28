@@ -1,16 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【字幕】12/26/2020文贵：七哥新年贺词
-` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/690840/)
+## 川普就历史性的选举舞弊案为共和党参议员们阐述了理由：当一切都结束的时候—我们会赢！
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/690868/)
 
-制作： 【彩虹桥】
+翻译：康州盘古农场-Bruce
+校对：康州盘古农场-黎明的光芒
+审核：康州盘古农场-V
 
-战友们好！我是音雄，一年到底到现在的评奖节目开始了，我都很紧张，我希望更多的战友能获得，了不起的中国人第一次自由的表达的歌声，而且在《我是音雄》有威廉王和我们唐平老师，主持这个平台已经创造了无数个奇迹，大家都知道连文贵唱歌最难听，唱歌最不可以的人，有我们的唐平老师和威廉王传词、写词、全部编剧、编曲的《沧海一声啸》和《酒灭中共》，获得了世界上音乐歌坛的奇迹，是第一个华人在世界上打音乐排行榜排第一的，那么感谢战友们的支持在今天..
+川普总统就今年大选中历史性的选举舞弊问题向共和党（GOP）参议员们阐述了理由。
 
-所有的我们的战友们都能像阿波罗之神一样，用自己的琴声和歌声，能唤醒被丘比特的银箭射中的，没有爱情、没有感情、没有人性的人，能唤醒更多人的美乐和天赋的这种美好的声音和嗓子，同时也希望大家能像阿波罗之神一样，不论是谁家室内的命中经验的人，室内的命中金剑的人，拥有爱情同时给别人带来快乐
-和五项的愉悦和幸福，亲爱的兄弟姐妹们不论你有没有获奖，能勇敢的站出来，能站在《我是音雄》，中国人第一次在国际上的自由媒体和自由发声，完全没有金钱收买和造假和控制的，这么一个舞台上都是大家的幸运，我们都是中国人历史以来第一次，我们是幸运儿，我们要感谢！
+GOP参议员们现在需要决定，是与人民和共和党大本营站在一起，还是与沼泽地站在一起。
 
-《我是音雄》的威廉王和唐平女士，是你们给了我们中国人一个这样的，自由唱歌和自由发声、歌唱美好的机会，谢谢大家！祝大家新年快乐！谢谢！
+这是个简单的问题。
+
+
+
+> ….Courts are bad, the FBI and “Justice” didn’t do their job, and the United States Election System looks like that of a third world country. Freedom of the press has been gone for a long time, it is Fake News, and now we have Big Tech (with Section 230) to deal with….
+> — Donald J. Trump (@realDonaldTrump) [December 26, 2020](https://twitter.com/realDonaldTrump/status/1342974375008600070?ref_src=twsrc%5Etfw)
+
+
+
+*….法院很糟糕，联邦调查局和 “司法部 “没有尽职尽责，美国的选举制度看起来就像一个第三世界国家的制度。新闻自由已经消失很久了，这是假新闻，现在我们有科技巨头（有230法案保护）来处理….。*
+
+*—— 唐纳德·J·川普（@realDonaldTrump）2020年12月26日*
+
+*….，假签名，非法移民选民，被禁止的共和党选票观察者，比实际选民更多的选票(看看底特律和费城)，这些数字远远大于我们赢得摇摆州所需的选票数，无可辩驳….。*
+
+*——唐纳德·J·川普（@realDonaldTrump）2020年12月26日*
+
+原文作者：乔··霍夫特（Joe Hoft）
+发布时间：2020年12月27日
+原文链接：[https://www.thegatewaypundit.com/2020/12/will-win-president-trump-lays-case-gop-senators-historic-election-fraud/?ff\_source=Twitter&ff\_medium=PostTopSharingButtons&ff\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/12/will-win-president-trump-lays-case-gop-senators-historic-election-fraud/?ff_source=Twitter&amp;ff_medium=PostTopSharingButtons&amp;ff_campaign=websitesharingbuttons)
 
 0
