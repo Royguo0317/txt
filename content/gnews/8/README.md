@@ -1,94 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 会计，财报及审计的入门基础与介绍（四）
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/691033/)
+## 纳什维尔圣诞爆炸地曾是太阳风母公司的数据中心
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/691091/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23164109/1223.jpg)Picture Source: www.groomassocies.com
-在第三篇中则是详细展示财务审计与分析过程中所涉及的财务框架及各项目内容。有助于投资人或审计师依照富有逻辑且合理的顺序对于财务报表进行检阅。
+*加拿大多伦多枫叶农场 文怡*
 
-1. Constraints on Financial Report 4.2
+*校对 辛丑 上传 文怡*
+![]()![](https://gnews.org/wp-content/uploads/2020/12/9370531883bc59f412d98a302b8b362c.png)
+太阳风(SolarWinds)是2020年3月起遭受震惊全美的黑客入侵的软件系统公司，由银湖公司（Silver Lake）和托马·布拉沃（Thoma Bravo）拥有。在2015年之前，与中共关系密切的银湖拥有SunGard，这是一家IT公司，其数据中心就位于纳什维尔圣诞节爆炸地商业街200号（200 Commerce St.）。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/屏幕截图310.png)
+**银湖公司曾拥有SunGard**
 
+银湖公司是一家价值750亿美元的投资公司，该公司于2005年收购了SunGard  。当时的黑石集团新闻稿这样记录：“宾夕法尼亚州韦恩– SunGard（NYSE：SDS）今天宣布，由银湖公司组织的私人股权投资公司财团完成对SunGard Data Systems Inc.的收购，该财团还包括贝恩资本、黑石集团、高盛资本合伙人、科尔伯格·克拉维斯·罗伯茨律师事务所、普罗维登斯股权合伙人和德克萨斯太平洋集团。”
 
-- 以上增强特征并无先后顺序，进行适当平衡
-- 信息使用成本，不能高于信息中获得的收益
-- 对于无法量化的信息，无法体现在财务报告中
+10年后，银湖公司在2015年8月以近110亿美元的价格将SunGard卖给了富达国家信息服务公司。
 
+**银湖、太阳风董事郝也康与中共的关系**
+![]()![](https://gnews.org/wp-content/uploads/2020/12/National-File.jpg)
+根据银湖网站上的个人简历，银湖执行合伙人兼董事总经理、太阳风董事局主席郝也康（Kenneth Hao) 在2008年-2011年”领导建立了公司在中共国和日本的办事处，并领导了银湖对阿里巴巴集团的投资”。银湖网站还显示，”郝也康目前在包括太阳风、诺顿救生锁（NortonLifeLock）在内的几家公司的董事会中担任董事”。
 
-2. The Elements of financial Statement 4.3
+**托马·布拉沃与中共国的关系**
 
-- Assets，Liability，Equity，Income，Expense
+据《国家档案》报道，在太阳风被网络攻击前几个月，托马·布拉沃在2019年以18.8亿美元的价格从“有深厚中资背景的私募投资公司”的XIO Group手中收购了汽车测评公司 J.D. Power。据毛阿敏的先生解直锟称，他给 XIO 提供了近 10 亿美元的种子资金。
 
+**太阳风事发前 ****托马·布拉沃和银湖抛售股票**
 
-3. Underlying Assumptions in Financial Statement (4.3.1)
+两家投资公司共拥有太阳风70％的股份，并控制着该公司6个董事会席位，使其可以访问关键信息，并使他们的股票交易服从关于财务披露的联邦法规。
 
-- Accrual Accounting / Accrual Basis ：权责发生制会计
-- 假定财务报表反应实际发生的交易，而不是实际现金变动的交易
-- Going Concern: 持续经营，在可预见的未来公司会继续开展业务
-- (权责发生制会计和持续经营作为财务报表中最重要的两个假设）
+据《华盛顿邮报》报道，在宣布太阳风被黑客入侵前几天，托马·布拉沃和银湖都卖出了数亿美元的太阳风公司股票，这令人怀疑有内部交易。“ 银湖是硅谷的投资者，有着包括Airbnb、Dell和Twitter在内的引人注目的高科技交易的历史，它在12月7日（违规消息公开六天前）出售了1.58亿美元的太阳风股票。旧金山的一家私人股权投资公司托马·布拉沃也在12月7日出售了其在太阳风中的1.28亿美元股份。“
 
+**太阳风公司与中共国的联系**
 
-4. Recognition of Financial Statement Element (4.3.2)
+太阳风在2020年5月与M.Tech合作，以扩大在中共国的商业机会 。据美国商业新闻（Business Wire）报道，该次合作关系的扩展是为了 “使中（共）国的业务遍及银行、金融、保险、制造业、教育和其他商业等所有垂直行业，以解决IT挑战并监控、管理和保护其应用程序、服务器、数据、基础设施和网络跨本地、混合和多云环境” 。
 
-- 如果符合元素定义，满足识别标准，就会进行识别
+太阳风网站显示，其在中共国的分销商包括卫实康、昆仑永通、北京凯耀科贸以及M. Tech。”
+![]()![](https://gnews.org/wp-content/uploads/2020/12/屏幕截图309.png)
+**中共网络超限战**
 
+美国第305军事情报营的一位分析师称，在西德尼·鲍威尔（Sidney Powell）的佐治亚州诉讼中，有证据表明中共可以使用多米尼投票系统服务器。
 
-5. Measurement of Financial Statement Element (4.3.3)
+鲍威尔在诉讼中引用了305营一名前成员的话，称 “305军事情报营一名有收集萨姆导弹系统电子情报经验的前电子情报分析员 “告诉她，”多米尼投票软件被代表中共的特工访问”，以操纵选举。
 
-- 这是一个确认金额的过程,但也存在代替的计量方法在不同组和中使用
-- Historical Cost ：资产：购买时所支付的现金或现金等价物，若是非现金购买则等于退出价格
-- 债务：交换债务而收取的数额
-- Amortized Cost：针对摊销，折旧，消耗进行的历史成本调整
-- Current Cost今天购买相同等值资产必须支付的现金或现金等价物
-- Realizable Value 资产：通过有序出售，当前可获得的现金或现金等价物
-- Settlement Value 负债：为满足负债，预期支付的现金或现金等价物的未折现金额
-- Present Value：资产：预期资产在正常业务过程中产生的未来现金流的当下折现值
-- 负债：清偿负债所需的未来现金净流出的折现价值
-- Fair Value：定义为退出价格，即在计量日期内有序交易中，出售资产所收取，或转移负债所支付的价格
+**简评：**
 
+虽然纳什维尔圣诞节爆炸事件还未出最终的官方定论，但通过分析，巧合的爆炸地点、黑客入侵太阳风系统、大选舞弊，想必中共与这一系列非法活动脱不了干系。
 
-6. Required Financial statement (4.4.1)
+参考链接:
 
-- 根据IAS No.1 一个完整的Financial Statement 应包含如下
-- Balance Sheet / Financial Position 资产负债表
-- Comprehensive Income 综合收入表
-- Change in Equity 权益表
-- Cash Flow 现金流表
-- Notes Comprising a summary of Significant policy
-- Other explanatory Notes disclosure information required by IFRS
-- Information to increase Understandability or not provided elsewhere
+*[SolarWinds’ Parent Company Owned Data Center Affected By Nashville Christmas Day Bomb Until 2015](https://www.infowars.com/posts/solarwinds-parent-company-owned-data-center-affected-by-nashville-christmas-day-bomb-until-2015/)*
 
+[10亿美元私募被坑，竟然引发这些……](https://v.jfz.com/detail-9009.html)
 
-7. General Features (4.4.2)
+相关链接：
 
-- 国际会计准则一号还规定了编制的一些基本特征
-- Fair Representation  公平报列按照框架下各项定义，忠实的表述交易及其他事件
-- Going Concern 存续经营
-- Accrual Base 权责发生制
-- Material and aggregation重要性/汇总性，如果遗漏项目可单独或集体影响经济决策则是重大的
-- No offsetting  除非IFRS允许，资产/负债，收入/支出不得抵消
-- Frequency of Reporting   至少每年编制一次
-- Comparative Information 报表必须包括上一期间可比较信息。
-- 除非得到许可，则必须完全披露所有金额前期比较信息
-- Consistency 一致性
+[震惊美国、被黑客入侵的太阳风与中共、加拿大有何关系？](https://gnews.org/zh-hans/650782/)-GNews
 
-
-8. Structure and Content Requirements (4.4.3)
-
-- IAS No.1 同时也规定了结构内容
-- Classified Statement of Financial Position
-- 区分当前资产 / 非当前资产，当前资产 / 非当前债务
-- Minimum Information on the face of the Financial Statement
-- Minimum Information in the notes
-- Comparative Information可比较信息
-- 报表必须包括上一期间可比较信息。
-- 除非得到许可，则必须完全披露所有金额前期比较信息
-
-
-作者：搞笑排行榜
-
-原创观点文章 – 2020/12/27
-
-温哥华圆成农场
+[【中外挖掘机团队联合出品】美国银湖私募股权公司与中共盗国贼的关系](https://gnews.org/zh-hans/80195/)-GNews
 
 0

@@ -1,33 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 丑闻缠身的中共外交官刘晓明即将卸任
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/690743/)
+## 特鲁多称赞拜登专注应对气候变化
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/690785/)
 
-俄罗斯莫斯科喀秋莎农场 文强
+加拿大多伦多枫叶农场 文怡
 
-校对上传 银河
-![]()![](https://gnews.org/wp-content/uploads/2020/12/3500.jpg)图片来源：The Guardian
-中共“战狼”外交官、驻英国大使刘晓明即将卸任。刘晓明在任上被爆出诸多丑闻，尤其曾“点赞”色情视频引争议。其职位由中共外交部副部长郑泽光接任。
+校对 辛丑 上传 文怡
+![]()![](https://gnews.org/wp-content/uploads/2020/12/屏幕截图307.png)图片来源：CBC
+据《后千禧年报》（The Post Millennial）12月23日报道，总理特鲁多当日在里多小屋向加拿大人发表讲话。
 
-据《南华早报》报道，全国人大常委谭耀宗12月26日在全国人大常委会的会议后透露，中共国驻英国大使刘晓明即将退休，由中共国外交部副部长郑泽光接任。截止目前，中共官方尚未证实上述消息。对此，有分析指出，中共驻英国大使的变化，是在两国关系逐渐恶化的情况下进行的。
+有人问特鲁多，美国总统候选人拜登关注应对气候变化方面的进展，是否令人担忧？特鲁多说：“我认为，拜登专注于应对气候变化是个好消息。我们将与美国政府密切合作，以保护就业、创造新就业和应对气候变化的方式向前推进。我期待着在北美地区就世界面临的这一特殊挑战达成一致。”
 
-近年来，中共最高层推行强硬外交政策，外界指责中共搞“战狼外交”。自2009年担任中共驻英国大使以来，现年64岁的刘晓明，一直在英国以战狼姿态实践“习近平外交思想”。多次在BBC等节目上颠倒黑白，声称《中英联合声明》已经过期无效，抨击中共的批评者，对中共镇压香港民主倡导人士以及在新疆地区大规模拘禁维吾尔族人的批评进行黑白颠倒的反击等。他因经常颠倒黑白，抨击中共批评者而被称为“战狼”。
+对中共极为软弱的特鲁多从不掩饰支持拜登的立场，在美国大选结束不久就祝贺拜登当选总统。而且特鲁多及其背后的黑暗势力借环保之名，本月宣布了打算逐年提高的碳税计划，令在中共病毒疫情中挣扎的加拿大人雪上加霜。
 
-今年9月份，刘晓明又传出丑闻，其官方认证的推特账号 @AmbLiuXiaoMing为一段色情视频点赞，之后有关刘晓明点赞淫秽视频的推特截屏也广为流传，此事被英国媒体报导，刘晓明老脸丢尽。刘晓明没有直接对点赞争议作出回应。但他发布了一条推文，内容是一句鲜为人知的格言“好砧不怕锤”，似乎是宣布自己的清白。
+今日加拿大，明日美国。如果美国任由黑暗势力控制，拜登当选总统，特鲁多政府在加拿大侵蚀平民自由和利益的境况就可能会在美国上演。
 
-刘晓明因其跌入谷底的形象已经无法胜任驻英大使职务，继任者刘泽光被寄以厚望，希望可以挽救及维持中共与英国的关系。英国不止在2021年G7峰会担任主席国，脱欧后的经济政策的改变，更让中共迫不及待与英国建立新的合作关系。
+*[原文链接](https://thepostmillennial.com/breaking-trudeau-praises-biden-pledges-to-fight-climate-change)*
 
-参考链接：
+*相关链接：*
 
-[https://www.soundofhope.org/post/457624](https://www.soundofhope.org/post/457624)
+[特鲁多的碳税计划将加剧贫富分化](https://gnews.org/zh-hans/639936/)-GNews
 
-[https://www.zaobao.com/realtime/china/story20201227-1111743](https://www.zaobao.com/realtime/china/story20201227-1111743)
-
-[https://cn.nytimes.com/china/20200911/china-ambassador-twitter/](https://cn.nytimes.com/china/20200911/china-ambassador-twitter/)
-
-[http://cn.epochtimes.com/gb/20/12/27/n12647114.htm](http://cn.epochtimes.com/gb/20/12/27/n12647114.htm)
-
-[https://www.scmp.com/news/china/diplomacy/article/3115430/chinas-ambassador-britain-liu-xiaoming-set-retire](https://www.scmp.com/news/china/diplomacy/article/3115430/chinas-ambassador-britain-liu-xiaoming-set-retire)
+[西方环保人士是被中共利用的白痴](https://gnews.org/zh-hans/660840/)-GNews
 
 0

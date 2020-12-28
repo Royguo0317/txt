@@ -1,61 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 纳什维尔圣诞爆炸地曾是太阳风母公司的数据中心
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/691091/)
+## 中共赶在圣诞期间审判被拘押的香港人
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/691141/)
 
-*加拿大多伦多枫叶农场 文怡*
+新闻来源：Reuters《路透社》； 作者：克莱尔·吉姆（Clare Jim）； 发布时间：2020年12月25日
 
-*校对 辛丑 上传 文怡*
-![]()![](https://gnews.org/wp-content/uploads/2020/12/9370531883bc59f412d98a302b8b362c.png)
-太阳风(SolarWinds)是2020年3月起遭受震惊全美的黑客入侵的软件系统公司，由银湖公司（Silver Lake）和托马·布拉沃（Thoma Bravo）拥有。在2015年之前，与中共关系密切的银湖拥有SunGard，这是一家IT公司，其数据中心就位于纳什维尔圣诞节爆炸地商业街200号（200 Commerce St.）。
-![]()![](https://gnews.org/wp-content/uploads/2020/12/屏幕截图310.png)
-**银湖公司曾拥有SunGard**
+翻译/简评：随波逐流；校对：Beicy-数学老师；审核：万人往；Page：拱卒
 
-银湖公司是一家价值750亿美元的投资公司，该公司于2005年收购了SunGard  。当时的黑石集团新闻稿这样记录：“宾夕法尼亚州韦恩– SunGard（NYSE：SDS）今天宣布，由银湖公司组织的私人股权投资公司财团完成对SunGard Data Systems Inc.的收购，该财团还包括贝恩资本、黑石集团、高盛资本合伙人、科尔伯格·克拉维斯·罗伯茨律师事务所、普罗维登斯股权合伙人和德克萨斯太平洋集团。”
+[!\[\]()!\[\](https://spark.adobe.com/page/gwachCBAzGAwU/images/f7ecbac0-d419-42ba-bfda-127d1a95ff8e.jpg?asset_id=dbf9a7e6-c679-492b-a45c-4a01b4138b19&amp;img_etag=%223c369eca96b9fe700628d3416cf9737c%22&amp;size=1024)](https://spark.adobe.com/page/gwachCBAzGAwU/images/f7ecbac0-d419-42ba-bfda-127d1a95ff8e.jpg?asset_id=dbf9a7e6-c679-492b-a45c-4a01b4138b19&amp;img_etag=%223c369eca96b9fe700628d3416cf9737c%22&amp;size=1024)
 
-10年后，银湖公司在2015年8月以近110亿美元的价格将SunGard卖给了富达国家信息服务公司。
+#### **简评：**
 
-**银湖、太阳风董事郝也康与中共的关系**
-![]()![](https://gnews.org/wp-content/uploads/2020/12/National-File.jpg)
-根据银湖网站上的个人简历，银湖执行合伙人兼董事总经理、太阳风董事局主席郝也康（Kenneth Hao) 在2008年-2011年”领导建立了公司在中共国和日本的办事处，并领导了银湖对阿里巴巴集团的投资”。银湖网站还显示，”郝也康目前在包括太阳风、诺顿救生锁（NortonLifeLock）在内的几家公司的董事会中担任董事”。
+据路透社消息，四个月前试图乘船逃离而被中共国从海上抓捕的12名香港人中，有10人将从周一起在内地城市深圳接受审判，将面临非法越境和组织非法越境的指控，之后返回香港接受与抗议活动有关罪行的进一步调查。另两名未成年人择期另行审判。预计北京方面是为了减少国际反应，特意选在西方国家圣诞期间开庭。
 
-**托马·布拉沃与中共国的关系**
+大英帝国一手打造的“东方之珠”香港，在中共独裁统治下短短二十几年矛盾丛生，市民抗议不断，不复往日的繁华。中共已完全违背当初《中英联合声明》所载的“五十年不变”的方针，“一国两制”已成为事实上的“一国一制”。自2019年香港人浩大的“反送中”抗议活动以来，中共派出无数军警宪特，频频使用催泪瓦斯、橡胶子弹甚至实弹射向抗议人群 ，大批年轻人被抓后遭酷刑折磨，或被轮奸、抛尸大海以及押往内地，香港人坚强不屈的精神迎来了全世界的关注和声援。
 
-据《国家档案》报道，在太阳风被网络攻击前几个月，托马·布拉沃在2019年以18.8亿美元的价格从“有深厚中资背景的私募投资公司”的XIO Group手中收购了汽车测评公司 J.D. Power。据毛阿敏的先生解直锟称，他给 XIO 提供了近 10 亿美元的种子资金。
+在全球谴责声中，中共的镇压不但并未减缓，反而变本加厉。强推国安法，驱逐反对派立法会委员，中共不断挑战人类文明的底线。因香港的国际金融中心地位，香港的局势牵扯到世界各国的利益，面对中共我行我素的流氓行径，为免伤及自身，国际社会必将联合灭共，香港注定成为中共迈向地狱的第一道大门。风暴过后的香港定将“涅槃重生”，再现往日辉煌。
 
-**太阳风事发前 ****托马·布拉沃和银湖抛售股票**
+#### **原文翻译：**
 
-两家投资公司共拥有太阳风70％的股份，并控制着该公司6个董事会席位，使其可以访问关键信息，并使他们的股票交易服从关于财务披露的联邦法规。
+# 支持者说，从周一起将对被拘押在中共国的香港人进行审判
 
-据《华盛顿邮报》报道，在宣布太阳风被黑客入侵前几天，托马·布拉沃和银湖都卖出了数亿美元的太阳风公司股票，这令人怀疑有内部交易。“ 银湖是硅谷的投资者，有着包括Airbnb、Dell和Twitter在内的引人注目的高科技交易的历史，它在12月7日（违规消息公开六天前）出售了1.58亿美元的太阳风股票。旧金山的一家私人股权投资公司托马·布拉沃也在12月7日出售了其在太阳风中的1.28亿美元股份。“
+[!\[\]()!\[\](https://spark.adobe.com/page/gwachCBAzGAwU/images/5f5cc298-3bc1-4e56-9a84-4868548cec23.jpg?asset_id=5314a5a6-6eaf-4f47-a299-b8826bed7000&amp;img_etag=%22a1629697d3a1590392b8a327e607e921%22&amp;size=2560)](https://spark.adobe.com/page/gwachCBAzGAwU/images/5f5cc298-3bc1-4e56-9a84-4868548cec23.jpg?asset_id=5314a5a6-6eaf-4f47-a299-b8826bed7000&amp;img_etag=%22a1629697d3a1590392b8a327e607e921%22&amp;size=1024)文件图片：2020年11月21日，12名香港被拘留者之一，郑慈浩的父亲站在山顶上，俯瞰邻近的中共国大陆城市深圳的盐田区。路透社/詹姆斯·庞弗莱特/文件照片
 
-**太阳风公司与中共国的联系**
+香港（路透社）—支持者们周五说，四个月前试图乘船逃离时被中共国从海上抓捕的12名香港人中，其中10人将于周一在内地城市深圳接受审判。
 
-太阳风在2020年5月与M.Tech合作，以扩大在中共国的商业机会 。据美国商业新闻（Business Wire）报道，该次合作关系的扩展是为了 “使中（共）国的业务遍及银行、金融、保险、制造业、教育和其他商业等所有垂直行业，以解决IT挑战并监控、管理和保护其应用程序、服务器、数据、基础设施和网络跨本地、混合和多云环境” 。
+此案引起了香港和国外的极大关注，因为这一罕见事件 —- 北京当局逮捕试图离开金融中心的人们，正发生在外界对香港高度自治的前景日益担忧之际。
 
-太阳风网站显示，其在中共国的分销商包括卫实康、昆仑永通、北京凯耀科贸以及M. Tech。”
-![]()![](https://gnews.org/wp-content/uploads/2020/12/屏幕截图309.png)
-**中共网络超限战**
+考虑到进入中共国大陆后要进行14天的新冠隔离，这些家属本周要求提前20天通知，以便他们参加审判。
 
-美国第305军事情报营的一位分析师称，在西德尼·鲍威尔（Sidney Powell）的佐治亚州诉讼中，有证据表明中共可以使用多米尼投票系统服务器。
+但一个支持团体说，政府任命的律师已将审判日期通知了七名被拘留者的家人。
 
-鲍威尔在诉讼中引用了305营一名前成员的话，称 “305军事情报营一名有收集萨姆导弹系统电子情报经验的前电子情报分析员 “告诉她，”多米尼投票软件被代表中共的特工访问”，以操纵选举。
+被拘留者安迪·李（Andy Li）的妹妹比阿特丽斯·李（Beatrice Li）表示：“显然，（中共国当局）赶在圣诞节期间审判，是为了尽量减少强烈的国际反应。
 
-**简评：**
+北京的港澳事务办公室没有立即回应置评请求。
 
-虽然纳什维尔圣诞节爆炸事件还未出最终的官方定论，但通过分析，巧合的爆炸地点、黑客入侵太阳风系统、大选舞弊，想必中共与这一系列非法活动脱不了干系。
+[!\[\]()!\[\](https://spark.adobe.com/page/gwachCBAzGAwU/images/8543141b-6ca6-4b85-accc-6382b5463f2c.jpg?asset_id=9cf873cb-9eee-4426-b560-f20dfd0f37f2&amp;img_etag=%228f8509c1bfe21dba9d4306199c8e0131%22&amp;size=1024)](https://spark.adobe.com/page/gwachCBAzGAwU/images/8543141b-6ca6-4b85-accc-6382b5463f2c.jpg?asset_id=9cf873cb-9eee-4426-b560-f20dfd0f37f2&amp;img_etag=%228f8509c1bfe21dba9d4306199c8e0131%22&amp;size=1024)香港十几名在华被扣人员亲属要求给予充分的审判通知书
 
-参考链接:
+8月23日，十二名香港人在一条据信开往台湾的船上被中共国海岸警卫队截获。中共国当局本月早些时候表示，两名未成年犯罪嫌疑人将在另一天出席私人听证会。
 
-*[SolarWinds’ Parent Company Owned Data Center Affected By Nashville Christmas Day Bomb Until 2015](https://www.infowars.com/posts/solarwinds-parent-company-owned-data-center-affected-by-nashville-christmas-day-bomb-until-2015/)*
+所有人都面临着在香港的指控，这些指控与在这个前英国殖民地上发生的反政府抗议活动有关，其中包括骚乱和违反北京于6月对这座城市强加的国家安全法。
 
-[10亿美元私募被坑，竟然引发这些……](https://v.jfz.com/detail-9009.html)
+在大陆的审判中，他们面临着非法越境和组织非法越境的指控，该罪行最高可判七年监禁。
 
-相关链接：
+香港政府表示，被告必须在内地接受司法审判，然后才能返回香港。预计他们将因涉嫌与抗议活动有关的罪行在香港遭受进一步调查。
 
-[震惊美国、被黑客入侵的太阳风与中共、加拿大有何关系？](https://gnews.org/zh-hans/650782/)-GNews
+（杰西·庞报道；北京新闻编辑室补充报道；克莱尔·吉姆写作；威廉·马拉德编辑）
 
-[【中外挖掘机团队联合出品】美国银湖私募股权公司与中共盗国贼的关系](https://gnews.org/zh-hans/80195/)-GNews
+[原文链接](https://www.oann.com/trial-of-hk-people-detained-in-china-from-monday-supporters-say/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=trial-of-hk-people-detained-in-china-from-monday-supporters-say)
 
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/gwachCBAzGAwU/)
+[!\[\]()!\[\](https://spark.adobe.com/page/gwachCBAzGAwU/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/gwachCBAzGAwU/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0
