@@ -1,45 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 多米尼高管库默拥有改选票的裁决程序专利
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/691456/)
+## 川普致麦康奈尔：“挺身而出，奋力一搏”
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/691568/)
 
-加拿大多伦多枫叶农场 文𤦍(Manpui）
-校对 文怡 上传 安歌
-![]()![](https://gnews.org/wp-content/uploads/2020/12/Greek-News-on-Demand.jpg)图片来源：Greek News On Demand
-据门道专家（The Gateway Pundit） 网站创始人吉姆·霍夫特（Jim Hoft）在2020年12月27报道：多米尼（Dominion）投票系统公司的反川普高管埃里克·库默（Eric Coomer）拥有“选票裁决程序”专利。
+翻译：康州盘古农场-黎明的光芒
 
-库默毕业于加利福尼亚大学伯克利分校，获得核子物理专业博士学位。2010年，库默加入多米尼公司担任美国工程部副总裁。
+校对：康州盘古农场-烟波浩淼
 
-库默后来被提升为多米尼的战略与安全投票系统主任。 此后，Coomer已被从Dominion的董事页面中删除。
+审核：康州盘古农场- Antsee-GTV
+![麦康奈尔在国会]()![麦康奈尔在国会](https://gnews.org/wp-content/uploads/2020/12/Picture1-2-42.png)
+**川普总统抨击参议院共和党人在调查选举结果方面不够努力。**
 
-实际上，当记者采访丹佛本地人乔·奥尔特曼 （Joe Oltmann）时，库默的一切正在互联网上被抹去。
+**“如果一个民主党总统候选人的选举被操纵与窃取，并有证据证明这种行为达到了前所未有的程度，民主党参议员会认为这是战争行为，并进行殊死斗争。”川普在推特上说。“米奇与共和党人什么都不做，只想让它通过。没有（为此）斗争！”**
 
-奥尔特曼说，他从未见过如此尖酸刻薄之人竟持有核子物理专业博士学位。 奥尔特曼在先前的采访中向米歇尔·马尔金（Michelle Malkin）解释说，实际上在他的脸书（Facebook）主页还发现，库默发过不少反川普和反警察的帖文。 最让他感到惊恐的是，库默发表了“安提法”的宣言。
+[Donald J. Trump on Twitter: “If a Democrat Presidential Candidate had an Election Rigged &amp; Stolen, with proof of such acts at a level never seen before, the Democrat Senators would consider it an act of war, and fight to the death. Mitch &amp; the Republicans do NOTHING, just want to let it pass. NO FIGHT!” / Twitter](https://twitter.com/realDonaldTrump/status/1342817496924086278?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1342817496924086278%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fsaraacarter.com%2Ftrump-to-mcconnell-step-up-and-fight%2F)
 
-奥尔特曼告诉《门道专家》，他相信库默患有精神疾病，并且没有良知、非常反社会。 库默在白天扮演道貌岸然的公司高管，但他在私人生活中是一个不受束缚的川普仇恨者和安提法支持者。 他还明确说过，他们要操纵这次选举。
+原文作者： saraacarter.com|职员作家
 
-2020年12月14日星期一，在紧急听证会上，密歇根州第13巡回法院法官凯文·艾尔森海默（Kevin A Elsenheimer）准许律师马修·德佩尔诺（Matthew Deperno）展示在密西根州安特里姆县的16台多米尼投票机上进行的法证检查结果，从中数千川普总统的选票于2020年11月3日被转移到拜登。
+发布时间：2020年12月27日
 
-德佩尔诺律师在针对安特里姆县的诉讼中声称，基于他们向法院提供的证据，多米尼投票系统公司“在这次选举中犯了实质性欺诈或错误，从而影响了选举结果。”
-
-在对密歇根州安特里姆市的16台多米尼投票机进行法证检查后，联合安全运营小组得出结论：多米尼投票机指配了68.05％的错误率。 德佩尔诺解释说，即是将选票放入机器中时，错误率高达68.05％，这意味著有68.05％的选票被送去进行批量裁决，这意味著它们将选票收集在一个文件夹中 。 德佩尔诺解释说：“选票被发送到其他地方，而在那里的人可以更改选票。”
-
-宪法律师德佩尔诺根据联合安全行动的报告指出：“我们得出结论，在密歇根州不应使用多米尼投票系统。 我们进一步得出结论，安特里姆县的结果不应该得到认证。
-
-现在有证据表明，多米尼系统主仼库默是持有多米尼投票机“裁决程序”许多专利的人。库默在多米尼先前的证词中承认了他在裁决过程中的角色。
-
-据11月9日的网络存档信息，库默是多米尼的产品战略和安全总监，拥有公司的多项软件和系统专利。库默拥有裁决程序的专利。 基本上是库默为多米尼创建了整个裁决过程。 并且系统设置为在线。
-![]()![](https://gnews.org/wp-content/uploads/2020/12/34-1.png)图片来源：Gateway Pundit
-美媒披露，发明这套投票系统的库默早在2016年就曾向伊利诺伊州选举官员表示，只要有权限，可以绕过系统软件，直接进入计票系统的数据库。 也就是说，只要有权限，厂商与政府官员就可以进入系统修改投票结果。
-
-网上也可找到多米尼和加州圣塔克拉拉（Santa Clara）县在2019年签署的一项公共协议。 协议显示“允许多米尼工作人员根据扫描的选票图像调整计票结果。”
-
-评：
-多米尼问题真相曝露，再加之已经被发现的选举有关的问题选票，数量足以推翻现在的结果。 最后法律会制裁像库默、若干人等干涉美国大选的所有卖国贼。 在这之前很多美国选民都质疑。 特别是密歇根、威州、宾州等关键州的选票数据都出现了几分钟甚至几秒钟之内就把川普总统的票改成拜登。 目前川普总统也获得最新超级黑客袭击报告，证实中共干涉美国大选的罪名成立。
-
-相信1月6号全美国赶去华盛顿的人们、持抢协会的精英们决不会让“盗票、出卖国家”的拜登来做这个国家的总统。
-
-[原文链接](https://www.thegatewaypundit.com/2020/12/developing-dominions-anti-trump-executive-eric-coomer-owns-patents-adjudication-process-investigators-found-skimmed-votes-trump-michigan/)
+原文链接：[Trump to McConnell: ‘Step Up And Fight’ – Sara A. Carter : Sara A. Carter](https://saraacarter.com/trump-to-mcconnell-step-up-and-fight/)
 
 0

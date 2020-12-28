@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/27/2020 沈南鹏: 沈南鹏竟说大实话。
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/691316/)
+## 【字幕】12/25/2020文贵：爆料革命不可低估的作用
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/691354/)
 
-By: 【秘密翻譯組G-Translators】
+制作： 【彩虹桥】
 
-0
++1
