@@ -1,35 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蹊跷! 纽约印刷选票的公司发生火灾
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/691401/)
+## 《路德社》精选新闻简讯：2020年选举调查纪录片：谁在偷窃美国？
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/692009/)
 
-作者：翼族
-![]()![](https://gnews.org/wp-content/uploads/2020/12/Picture2-7.png)图片来源：https://www.wrdw.com/
-12月25日圣诞节清晨，美国田纳西州的纳什维尔市发生一起汽车爆炸，爆炸地点位于AT&T公司大楼附近。而就在这前一天，纽约州罗切斯特市也发生了一起火灾，大火烧毁了该市的印刷业务，这场大火导致City Blue Imaging Services大楼的前部在午夜时分倒塌。而非常凑巧的是，被烧毁的罗切斯特市的这家印刷公司正好参与了纽约州缺席选票的印刷。
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-据《波普新闻台》（Spectrum News）的报道，纽约市选举委员会曾在9月份发现有将近十万名选民收到了错误的缺席选票，而罗切斯特市的菲尼克斯图形公司（Phoenix Graphics Inc）应为此事件负责。这些选民在收到的缺席选票中发现，寄来的这些选票所附的回信信封上显示的居然是另外选民的名字。
+![]()![](https://img.theepochtimes.com/assets/uploads/2020/12/14/ElectionDoc_EET1400x840-1200x720.jpg)
 
-随后菲尼克斯图形公司发表声明，辩称该错误是由于机械问题导致的，“在为Kings县和Nassau县制作的2020年大选缺席选票时，我们遇到了机械插入问题。我们估计这影响了不到1％的缺席选票，这是第一次在这些县郡的选票中发现该错误，以后的邮寄选票将不会受到影响……对于由此带来的不便，我们深表歉意。我们正在积极进行必要的生产调整，以防止将来出现此类错误。”
+2020年是最不寻常的一年。这一年始于**中国共产党病毒**引起的前所未有的全球性大流行病，终于**美国总统大选**，全世界都为之着迷。
 
-十万张选票足以影响纽约州的选举结果，如果只是因为机械故障，菲尼克斯图形公司本应该在寄送之前通过最简单的检查就可以发现这个明显的错误，因此菲尼克斯图形公司受到非常广泛的质疑。正是由于本次总统大选采用了大规模的邮寄投票，使得选举非常容易进行舞弊和欺诈。但是菲尼克斯图形公司否认它偏向于一个政党的指控，以及故意邮寄不正确的缺席选票以损害民主进程的指控。
+11月3日选举之夜，各种各样的异常现象被观察到，随后便出现了大量针对选举欺诈的具体指控。随着选举的完整性不断受到质疑，证据不断涌现，大多数主流媒体却坚持认为 2020年大选是美国历史上最安全的一次大选，并试图压制反对的声音。
 
-根据火灾的现场来看，该印刷公司的一切设备和材料都被毁之一旦。菲尼克斯图形公司的员工保罗·基弗（Paul Kieffer）对他看到的这个工作了15年的地方所烧剩下的东西感到震惊，“我们感到莫名其妙，无法在其中找到一件设备。本来那里应该有东西放着的，但现在都没有了。”印刷机应该是金属制成的，为什么整个设备会在本次火灾中消失呢？
+2020年美国大选的结果不仅将决定美国的未来，而且还将决定世界的未来。
 
-据报道，在平安夜晚上10:30左右，一个路人在Scio街的City Blue Imaging Services发现了火情。这座两层楼的建筑很快弥漫了烟雾和火焰，然而由于建筑物的规模和进入的限制，建筑物很快被升级为三级火警，所有消防员不得不撤离出了该建筑物。
+选举之夜后，《大纪元》的调查小组迅速开始工作。为了揭露选举背后的问题，调查记者约书亚·菲利普（Joshua Phillip）遍历美国各摇摆州，对举报人，大数据专家，和选举专家进行采访。这是一部发布于 2020年美国总统大选中的第一份关于**选举完整性**的调查记录片。
 
-罗切斯特消防局的里恩·弗莱明中尉（Lt. Ryan Fleming）说：“我们看到建筑物的倒塌即将来临，于是我们建了一个崩溃区域，我们将所有灭火设备都移开了，确保所有人员都安全离开，只是在外围控制火势。当建筑倒塌时，没有人受到任何伤害，我们的设备也没有，消防人员也没有受到伤害。”弗莱明中尉说，由于印刷公司建筑物内的化学物质和纸张，扑救火灾是非常危险的，“由于建筑物的形状，要扑灭火势是非常困难的，因为缺少窗户，没有进入建筑物的其它入口。”
-
-目前起火的原因仍在调查中，但我们有理由相信这只是选举舞弊犯罪集团的又一次“毁尸灭迹”。
-
-(文章内容仅代表作者观点)
-
-**参考链接：**
-
-- [https://spectrumlocalnews.com/nys/rochester/politics/2020/09/29/nyc-boe-blames-rochester-company-for-brooklyn-absentee-ballots-return-envelope-errors-?cid=id-app15\_m-share\_s-web\_cmp-app\_launch\_august2020\_c-producer\_posts\_po-organic](https://spectrumlocalnews.com/nys/rochester/politics/2020/09/29/nyc-boe-blames-rochester-company-for-brooklyn-absentee-ballots-return-envelope-errors-?cid=id-app15_m-share_s-web_cmp-app_launch_august2020_c-producer_posts_po-organic)
+- 为什么在选举之夜的关键摇摆州中止投票计数？
+- 邮寄投票带来的问题和潜在欺诈是什么？
+- 多米尼恩投票系统是否安全？
+- 多米尼恩投票系统的母公司在选举前一个月内所收到的4亿美元背后是什么？
+- 谁试图在幕后操纵美国大选？
+- 谁是美国社会日益分裂的受益人？
+- 在这个历史关头，美国将变成什么样子？
+- 你和我，以及每个美国爱国者应该怎么选择？
 
 
-- [https://spectrumlocalnews.com/nys/rochester/public-safety/2020/12/25/large-fire-destroys-rochester-printing-business](https://spectrumlocalnews.com/nys/rochester/public-safety/2020/12/25/large-fire-destroys-rochester-printing-business)
+[《大纪元》的调查团队会向您提供详细的调查报告。](https://www.ntd.com/2020-election-investigation-who-is-stealing-america_540191.html)
+【文章仅代表作者个人观点】
+[援引](https://www.theepochtimes.com/2020-election-investigation-who-is-stealing-america_3617562.html)
 
+本文作者：红胡子
+审核校对：玫瑰天空
+上传排版：糖果儿
 
 0

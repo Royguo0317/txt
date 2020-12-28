@@ -1,35 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》每日简报早间版 2020.12.24&#8211;NewYork Time
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/688320/)
+## 突发：警方回应帝国大厦炸弹威胁事件
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/691601/)
 
-出品《路德社》 编辑：路德社精选新闻专栏组
-![]()![](https://gnews.org/wp-content/uploads/2020/12/1224-AM-ZH-scaled.jpg)
-路德访谈2020/12/24早间
+翻译：康州盘古农场-黎明的光芒
 
-大选情形依旧焦灼
+校对：康州盘古农场-烟波浩淼
 
-参众两院联手布局防止川普总统使用防暴乱法，川普总统则表示不准备实施军管，但局势瞬息万变。前段时间最高法院驳回了德克萨斯22个州的诉讼，但是案子并没有结束，1月6号之前必须出结论。
+审核：康州盘古农场-Rose
+![https://www.thegatewaypundit.com/wp-content/uploads/0-23.jpg](https://lh5.googleusercontent.com/KYci_GQTDwT5XBUMYwGPor9oV5xSvSqIxcYeLWFICV33kzeIH58RIe5fR9e6M-xYRqyAzwq-SXCGHY1lJKTbNuU4gtx1eouthQj0UMRkckFiw9553_ejF80NXwkDPPuAUnmsmV4hmoTySMWiPw)
+纽约市帝国大厦有人打9-1-1电话，说中午会有炸弹爆炸，警方正在作出回应。
 
-川普总统剑指中共
+威胁（电话）是在上午11点多打来的。
 
-川普总统转推关于中共侵略美国的视频。视频本身是专门制作的，并非直播片段或者录像，具有针对性。视频中对中共的指责直截了当。闫丽梦博士昨天也上了WARROOM,意味着关于中共病毒的追责正在逐渐升温。
+中午没有发生爆炸。
 
-独立检察官可能不是鲍威尔
+[CIA-Simulation Warlord 🇺🇸🦈🇺🇸 on Twitter: “All is good at the Empire State Building live feed. https://t.co/AQ5SfQWEgp” / Twitter](https://twitter.com/zerosum24/status/1343242174704607233?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1343242174704607233%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2020%2F12%2Fbreaking-police-responding-bomb-threat-empire-state-building%2F)
 
-川普总统发推说本次选举是美国历史上最腐败的选举，要对其认真检查。川普总统并没有否认任命独立检察官，但这个独立检察官可能不是我们之前说的鲍威尔，可能还有其他人选。
+*中情局**–**模拟督军*![](https://lh5.googleusercontent.com/g7i_DQ_hb4W88y2JcxgbP45EhsP_kAgiuZ-U1dl_xYO-W89Pk5TIUvjE2KEaAoxHEXiVpMVjdebQ4wDK30d5MpynMlKNQFL44Cxhx3pZK0VhYt1g6hTwaOwKKVf_UilHcdFsaHUzPDQL3QlLtA)*@zerosum24*
 
-阿里巴巴涉嫌垄断被中共立案调查
+*帝国大厦直播间一切正常。*
 
-当美国人看到阿里巴巴被中共立案调查，会认为中共也有反垄断法，中共并不搞垄断，其次会认为阿里巴巴并不是中共政府的企业，从而打击爆料革命的信誉。之前路德社节目提到在美上市企业要提供自身和中共无关的证据，否则将受到美国制裁。阿里巴巴被制裁就是在告诉美国，因为阿里巴巴被制裁，所以阿里巴巴与中共无关。
+不过，防爆队已经对威胁做出反应，目前正在大楼附近。
 
-金句：
+就在两天前，纳什维尔（Nashville）市中心的一条街道发生大规模爆炸前，人们被警告要疏散，这使得这条威胁更加令人震惊。
 
-唐博士：川普总统等人好比围棋九段高手，我们只是初阶，我们看不明白很正常，大家不要着急。
+事态正在发展中，如获得更多信息将及时更新。
 
-文案：《路德社》简报组：明台，瓦者
-审核校对：玫瑰天空
-上传排版：青葫芦娃
+原文作者：卡桑德拉·费尔班克斯（Cassandra Fairbanks）
 
-0
+发布时间：2020年12月27日上午11:13原文链接：[BREAKING: Police Responding to Bomb Threat at Empire State Building (thegatewaypundit.com)](https://www.thegatewaypundit.com/2020/12/breaking-police-responding-bomb-threat-empire-state-building/)
+
++1
