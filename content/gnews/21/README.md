@@ -1,94 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 会计，财报及审计的入门基础与介绍（四）
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/691033/)
+## 加拿大紧急工资补贴 中共国企赫然在列
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/691136/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23164109/1223.jpg)Picture Source: www.groomassocies.com
-在第三篇中则是详细展示财务审计与分析过程中所涉及的财务框架及各项目内容。有助于投资人或审计师依照富有逻辑且合理的顺序对于财务报表进行检阅。
+*蒙特利尔皇家山战友团 Tao*
 
-1. Constraints on Financial Report 4.2
+*校对、上传 文怡*
+![]()![](https://gnews.org/wp-content/uploads/2020/12/CEWS-1-1.jpg)图片来源：canada.ca
+据《后千禧年报》12月22日报道，加拿大政府在21日公布了一个数据库，详细列出了在加拿大紧急工资补贴（CEWS）项目下获得政府财政支持的各家公司，中共政府的几家国有企业都在受助之列，其中一家公司还与新疆正在进行的种族灭绝事件有关。
 
+该项目规定任何在加拿大税务局（CRA）注册了工资账户，且收入下降的公司，最高可以申请其员工工资的75%额度的政府补贴。由于这些公司不需要设在加拿大，只要在加拿大经营就可以，因此有多家外国公司，包括一些中共国国有企业，都在该项目中获得了可观的补贴。
 
-- 以上增强特征并无先后顺序，进行适当平衡
-- 信息使用成本，不能高于信息中获得的收益
-- 对于无法量化的信息，无法体现在财务报告中
+中航控股旗下的中国国航获得了工资补贴。国航在2020年上半年的收入大幅下降，使他们以此为由获得加拿大紧急工资补贴。值得一提的是国航与华为关系密切，包括安装由华为提供的新视频会议网络。另一家中国南方航空也同样获得了该计划的补贴。
 
+中国银行多伦多分行也获得了补贴。中国银行的丑闻由来已久，其中包括被指控从伊朗和叙利亚等国向哈马斯和巴勒斯坦伊斯兰圣战组织输送现金，这两个组织都被加拿大政府认定为恐怖组织。
 
-2. The Elements of financial Statement 4.3
+今年早些时候，中国银行花了400万美元从一项洗钱调查中脱身。与此同时，加拿大外交部长弗朗索瓦-菲利普-尚帕涅（François-Philippe Champagne）在中国银行持有两笔合计价值120万美元的抵押贷款，这引发了对该部长潜在利益冲突的质疑。
 
-- Assets，Liability，Equity，Income，Expense
+另一家与洗钱有关的中国国有银行–中国工商银行也同样得到了加拿大的紧急工资补贴。该公司的四名员工最近在西班牙因参与洗钱被判刑，并被处以2555万美元的罚款。
 
+中国移动也获得了紧急工资补贴，根据美国政府的报告，中国移动与中共国的军队–人民解放军（PLA）联系紧密。川普总统在上个月签署了一项行政命令，禁止美国人投资与解放军有联系的公司，中国移动就是名单上的公司之一。然而，这个公司在加拿大居然收到了大量的补贴。
 
-3. Underlying Assumptions in Financial Statement (4.3.1)
+据报道，中国移动投资了一家名为大华的公司，该公司为中共国政府提供监控技术设备。这些设备和技术被中共国用来控制维吾尔族穆斯林少数民族，并对其进行种族灭绝式的迫害。尽管自由党主导的国际人权委员会在报告中呼吁加拿大政府“采取必要的措施以确保加拿大个人、公司和公共机构不得投资参与支持或协助中共国侵犯基本人权的技术公司”，但这些中共国国企还是得到了加拿大政府的大量资金补助。
 
-- Accrual Accounting / Accrual Basis ：权责发生制会计
-- 假定财务报表反应实际发生的交易，而不是实际现金变动的交易
-- Going Concern: 持续经营，在可预见的未来公司会继续开展业务
-- (权责发生制会计和持续经营作为财务报表中最重要的两个假设）
+最后一家获得资金支持的是中国石油，尽管特鲁多政府的竞选承诺是遏制全球变暖，但在过去270年里，中国石油要为全球近1%的温室气体排放负责，尽管该公司1999年才成立。
 
+此前不久，加拿大政府被曝出邀请中国军队在加拿大本土进行训练，在中共政府绑架并拘留两名加拿大公民后，这一训练被取消。
 
-4. Recognition of Financial Statement Element (4.3.2)
+评论：毫无疑问，加拿大政府已经被中共深度渗透和控制，特鲁多政府更是出卖国家利益来讨好中共。把事关国家安全的项目交给中共控制的公司，邀请中共党卫军来加拿大本土训练，迟迟不把华为踢出加拿大的5G网络建设，拒绝通过对中共国采取强硬措施的法案等等。与此同时，在操纵美国大选的外国国家名单中，加拿大赫然在目。特鲁多政府已经在共产主义的道路上渐行渐远，加拿大也正在失去盟友们的信任。
 
-- 如果符合元素定义，满足识别标准，就会进行识别
-
-
-5. Measurement of Financial Statement Element (4.3.3)
-
-- 这是一个确认金额的过程,但也存在代替的计量方法在不同组和中使用
-- Historical Cost ：资产：购买时所支付的现金或现金等价物，若是非现金购买则等于退出价格
-- 债务：交换债务而收取的数额
-- Amortized Cost：针对摊销，折旧，消耗进行的历史成本调整
-- Current Cost今天购买相同等值资产必须支付的现金或现金等价物
-- Realizable Value 资产：通过有序出售，当前可获得的现金或现金等价物
-- Settlement Value 负债：为满足负债，预期支付的现金或现金等价物的未折现金额
-- Present Value：资产：预期资产在正常业务过程中产生的未来现金流的当下折现值
-- 负债：清偿负债所需的未来现金净流出的折现价值
-- Fair Value：定义为退出价格，即在计量日期内有序交易中，出售资产所收取，或转移负债所支付的价格
-
-
-6. Required Financial statement (4.4.1)
-
-- 根据IAS No.1 一个完整的Financial Statement 应包含如下
-- Balance Sheet / Financial Position 资产负债表
-- Comprehensive Income 综合收入表
-- Change in Equity 权益表
-- Cash Flow 现金流表
-- Notes Comprising a summary of Significant policy
-- Other explanatory Notes disclosure information required by IFRS
-- Information to increase Understandability or not provided elsewhere
-
-
-7. General Features (4.4.2)
-
-- 国际会计准则一号还规定了编制的一些基本特征
-- Fair Representation  公平报列按照框架下各项定义，忠实的表述交易及其他事件
-- Going Concern 存续经营
-- Accrual Base 权责发生制
-- Material and aggregation重要性/汇总性，如果遗漏项目可单独或集体影响经济决策则是重大的
-- No offsetting  除非IFRS允许，资产/负债，收入/支出不得抵消
-- Frequency of Reporting   至少每年编制一次
-- Comparative Information 报表必须包括上一期间可比较信息。
-- 除非得到许可，则必须完全披露所有金额前期比较信息
-- Consistency 一致性
-
-
-8. Structure and Content Requirements (4.4.3)
-
-- IAS No.1 同时也规定了结构内容
-- Classified Statement of Financial Position
-- 区分当前资产 / 非当前资产，当前资产 / 非当前债务
-- Minimum Information on the face of the Financial Statement
-- Minimum Information in the notes
-- Comparative Information可比较信息
-- 报表必须包括上一期间可比较信息。
-- 除非得到许可，则必须完全披露所有金额前期比较信息
-
-
-作者：搞笑排行榜
-
-原创观点文章 – 2020/12/27
-
-温哥华圆成农场
+*[原文链接](https://thepostmillennial.com/state-owned-chinese-companies-among-recipients-of-canada-emergency-wage-subsidy)*
 
 0

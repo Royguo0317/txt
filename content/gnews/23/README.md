@@ -1,54 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发：福奇承认他故意隐瞒冠状病毒信息，称我们没有“准备好”知道真相
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/690995/)
+## 推特装聋作哑，放任中共辱骂西方政要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/690989/)
 
-新闻来源：Trending Politics)《政治趋势》；作者：Collin Rugg；发布时间：2020年12月24日
+新闻来源：The National Pulse《国家脉动》； 作者：STAFF WRITER/撰稿人； 发布时间：2020年12月20日
 
-翻译/简评：MikeHua；校对：Beicy-数学老师；审核：johnwallis；Page：拱卒
+翻译/简评：努力；校对：SilverSpurs7；审核：johnwallis；Page：拱卒
+![]()![](https://gnews.org/wp-content/uploads/2020/12/Dreamer__Wing_johnwallis_Page_Daoiii_1.jpg)
+#### **简评：**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/22c0e47d-bb40-435f-9661-5b0b707eb28a.jpg?asset_id=ea4f1d14-a50b-426b-a5da-11b0fa2719af&amp;img_etag=%22e142f77bfa47c097e3db5d49852452bd%22&amp;size=1024)](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/22c0e47d-bb40-435f-9661-5b0b707eb28a.jpg?asset_id=ea4f1d14-a50b-426b-a5da-11b0fa2719af&amp;img_etag=%22e142f77bfa47c097e3db5d49852452bd%22&amp;size=1024)
+中共大外宣陈卫华因一系列“狗吠护主”行为名扬海外，言辞颇为激烈地人身攻击了西方保守派政客。可见中共这一发迹畎亩之中的流氓政党，篡权混入西方文明世界，却像泼妇一般派出大外宣骂街，极其有损形象；我们决不能让这种非法犯罪集团代表华夏子孙。将中国人与中共分开是我们新中国联邦人的毕生使命！
 
-**简评：**
+推特对于陈卫华这种极端侮辱性言论非但不进行审查和屏蔽，反而加以实名认证，再次暴露了与中共勾兑，放任攻击保守派言行的虚伪面孔。
 
-老狐狸大鳄鱼福奇的尾巴终于露出来了。在疫情方面福奇和川普总统一直对着干，从一月开始疫情爆发的旅行禁令，到羟氯喹，疫苗一系列的问题，福奇都没有站在美国人民这边，而是昧着良心挣钱。闫博士和这种恶人渣就形成了鲜明对比。闫博士在乎生命，在乎人类的健康与未来，而福奇只看钱，世界人民的死亡在他眼里只是一个数字而已。试想如果没有爆料革命，没有咱们闫博士和其他无名战友的爆料，美国这次是处于多么危险的境地，美国的内贼和共产党通力合作足够把美国颠覆，把世界秩序颠覆，让世界遵循共产党的假丑恶秩序，人类将彻底进入地狱时代。但是现在我们能看到共产党的黑暗力量正在瓦解，美国和世界要经历一次重大的变革，这次变革就是要回归正道主义，回归人性和信仰上天，这次变革之后的世界一定容不下共产党，新中国联邦爆料革命打扫战场，一定是最后的赢家！
+#### **原文翻译：**
 
-**原文翻译：**
+# 中共国国家媒体喉舌言语辱骂彭佩奥、法拉奇，推特拒绝采取行动
 
-## 突发：福奇承认他故意隐瞒冠状病毒信息，称我们没有“准备好”知道真相
+**中共国官方媒体《中国日报》欧洲分社负责人多次在推特上称美国国务卿蓬佩奥“不要脸”，建议他应该被关进关塔那摩湾军事监狱。**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/4cb2ccec-8306-4114-8420-6da9747dc60b.png?asset_id=76216118-b1e8-4e95-8798-d3c91b0a2b1c&amp;img_etag=%220ada67cc6a44a9733e864d89f3d4470c%22&amp;size=2560)](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/4cb2ccec-8306-4114-8420-6da9747dc60b.png?asset_id=76216118-b1e8-4e95-8798-d3c91b0a2b1c&amp;img_etag=%220ada67cc6a44a9733e864d89f3d4470c%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/o4PA6u0UczMrg/images/d6fea312-e2dd-4fea-8b0e-f0e74dad7396.jpg?asset_id=794ec22c-219c-4dbe-b373-bc7572484e0d&amp;img_etag=%220fe990ee2a4feb38388089a7c9c041d1%22&amp;size=2560)](https://spark.adobe.com/page/o4PA6u0UczMrg/images/d6fea312-e2dd-4fea-8b0e-f0e74dad7396.jpg?asset_id=794ec22c-219c-4dbe-b373-bc7572484e0d&amp;img_etag=%220fe990ee2a4feb38388089a7c9c041d1%22&amp;size=1024)在Twitter 上肆无忌惮 非礼美国政要的Chen Weihua （陈卫华） (@chenweihua) | Twitter
 
-根据新的报道，安托尼·福奇博士声称他故意对冠状病毒事情撒谎，因为“国家还没准备好”知道真相。
+陈卫华是中国共产党的疯狂战狼。他的“新闻”机构由共产党政权的宣传部拥有并经营，宣传部是中共宣传部的委婉说法。
 
-在福奇电话访问的评论区评论爆炸了，根据纽约时报报道，在电话访问上，福奇说他故意改变了有关疫情的公开声明，因为他觉得人们没有准备好知道他真正的感受。
+陈常年批评川普，他对这位在对付中共方面有着良好记录的国务卿之蔑视大大升级。
 
-不管你怎么解释这个信息，福奇很明显是对美国人民的一个威胁。如果他真的隐瞒了他对冠状病毒的观点，福奇要对欺骗美国人民负责任。如果这是他编造事实，以掩盖过去对冠状病毒的误判，那么福奇自己不知道自己在做什么，因此不能被信任。
+而声称要创造“健康对话”的推特却没有采取任何措施来限制陈卫华的冒犯行为，相反，甚至在他的名字后面授予他一个审核通过的“蓝标”。陈卫华的中国同胞不允许在推特上有言论自由，所以目前还不清楚为什么陈卫华需要被核实通过。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/3b60df99-9aeb-4778-8e6f-3830036dee58.jpg?asset_id=9bff0594-9c26-4304-8b51-a6525a5de095&amp;img_etag=%22feff9eb28d9f22f6e7590c7250e75f17%22&amp;size=3455)](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/3b60df99-9aeb-4778-8e6f-3830036dee58.jpg?asset_id=9bff0594-9c26-4304-8b51-a6525a5de095&amp;img_etag=%22feff9eb28d9f22f6e7590c7250e75f17%22&amp;size=1024)推文：https://twitter.com/megtirrell/status/1342092154408226816 Fauci博士对达到群体免疫力的估计一直在稳步提升。 @nytimes ‘小唐纳德-麦克尼尔报道。Fauci在上周举行的 @CNBC #恢复健康率可能是75-85%。
+推特在审查保守派方面一直采取强硬手段，还曾与中共军方代表一起参加会议，并雇佣了与中国共产党有关联的个人，但是它没有回应《国家脉动》就此事提出的问题，不过该平台确实因报道经证实的选举欺诈信息而屏蔽了《国家脉动》；但是推特也没有对陈卫华的账户采取任何行动，既没删除他的验证标记，也没有对这些质疑做出任何回应。
 
-看看每日传讯(Daily Caller)的报道：
+在不到六个月的时间里，陈卫华12次给蓬佩奥贴上“不要脸”的标签。其中三条推文涉及陈卫华对蓬佩奥可能离任政府的庆祝，此前他宣布，如果乔·拜登当选总统，中共政府将是“赢家”。
 
-*据《纽约时报》周四报道，福奇一直在公开声明中缓慢增加他所说的达到“群体免疫”需要接种疫苗的美国人数量。他不断告诉《纽约时报》称他这么做是“部分基于新的科学结果，部分是基于他感觉美国现在可以接受他内心真实的想法”。*
+[!\[\]()!\[\](https://spark.adobe.com/page/o4PA6u0UczMrg/images/fdabdffc-4652-43aa-a0af-064a7e43e16c.png?asset_id=fab2336c-df2f-47e2-8178-6129d49ee701&amp;img_etag=%22bc1f150705a65e11f6ecf91d7515ccec%22&amp;size=4310)](https://spark.adobe.com/page/o4PA6u0UczMrg/images/fdabdffc-4652-43aa-a0af-064a7e43e16c.png?asset_id=fab2336c-df2f-47e2-8178-6129d49ee701&amp;img_etag=%22bc1f150705a65e11f6ecf91d7515ccec%22&amp;size=1024)
 
-*《纽约时报》报道，在疫情早期，福奇说美国需要60%到70%的人接种疫苗以达到群体免疫。现在他上周在一次CNBC的采访上说需要75%到80%甚至更多的人才能达到群体免疫。报道称，这个采访导致《纽约时报》问他为什么“移动了目标数值”。*
+陈卫华最近还在推特上称美国参议员玛莎·布莱克本（Marsha Blackburn）是“一辈子都是婊子”。陈卫华坚定地认为蓬佩奥应该被强制关进关塔那摩监狱，那可是一个用来关押恐怖分子的军事监狱。
 
-*据称福奇在采访上说真实的数据应该达到90%的接种率。他同时承认几周前他故意把数字说低，因为很多美国人对接种疫苗表示怀疑。根据《纽约时报》，现在很多美国人可以接受接种疫苗了，于是福奇愿意将他的预期数字增加了。*
+针对欧盟与中国签署贸易协议，斯坦福大学新闻学和乔治•索罗斯资助的世界新闻研究所(World Press Institute)研究员也坚称，“令人发指的迈克•蓬佩奥(Mike Pompeo)肯定心在滴血”:
 
-*福奇是许多届政府的重要医疗顾问，并且是一个被许多美国人民相信的人物，是有关冠状病毒大流行信息的来源。*
+[!\[\]()!\[\](https://spark.adobe.com/page/o4PA6u0UczMrg/images/3529cf73-d0fb-498b-a03f-c49d424912e2.jpg?asset_id=a4328fed-c523-4e7d-a7fe-584d6f6637a1&amp;img_etag=%2206e30470c3d09a8e8553da8a087d746a%22&amp;size=2748)](https://spark.adobe.com/page/o4PA6u0UczMrg/images/3529cf73-d0fb-498b-a03f-c49d424912e2.jpg?asset_id=a4328fed-c523-4e7d-a7fe-584d6f6637a1&amp;img_etag=%2206e30470c3d09a8e8553da8a087d746a%22&amp;size=1024)
 
-推特用户对于福奇的言论并不买账。
+讽刺的是，陈卫华还发了近20条推文，把蓬佩奥和阿道夫·希特勒的宣传部长约瑟夫·戈培尔相提并论。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/caf663ea-49b1-431e-a446-ca8e04a88cf0.jpg?asset_id=07ad8573-abea-48cb-98b2-358627166eb0&amp;img_etag=%22bd23c20beb21bc2c1db177ba8405d6fe%22&amp;size=2896)](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/caf663ea-49b1-431e-a446-ca8e04a88cf0.jpg?asset_id=07ad8573-abea-48cb-98b2-358627166eb0&amp;img_etag=%22bd23c20beb21bc2c1db177ba8405d6fe%22&amp;size=1024)“突发：医生和科学家们，包括福奇博士，在对美国人民撒谎，为了让我们服从他们的指令。对于他们来说，美国人民和盘中的龙虾差不多，他们慢慢地煮熟龙虾，希望我们不知道他们在杀死我们”。
+[!\[\]()!\[\](https://spark.adobe.com/page/o4PA6u0UczMrg/images/454ea2e5-ed93-426b-a8a2-038755e4c402.png?asset_id=189f1f9c-4410-415e-acbf-0e68beec3645&amp;img_etag=%2217b69307e2786a0482aee11083009bd7%22&amp;size=1024)](https://spark.adobe.com/page/o4PA6u0UczMrg/images/454ea2e5-ed93-426b-a8a2-038755e4c402.png?asset_id=189f1f9c-4410-415e-acbf-0e68beec3645&amp;img_etag=%2217b69307e2786a0482aee11083009bd7%22&amp;size=1024)
 
-![]()![](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/73829133-bb12-4354-b1f5-f1f3b7514f42.jpg?asset_id=620837b0-5937-4ac3-bdeb-230ad782d602&amp;img_etag=%22b4e85aac386fedd4cd30f811d29345f8%22&amp;size=2560)“这不是公共卫生官员该做的事情。他们不应该向公众隐瞒信息因为‘公众没有准备好听到我的意见’”。
+陈卫华的批评不仅限于蓬佩奥。他一直热衷于攻击许多西方保守派人物，包括推动脱欧人士奈杰尔•法拉奇(Nigel Farage)。当法拉奇鉴于中共国拙劣的新冠肺炎疫情处理，将取消圣诞节归咎于中共国，陈卫华告诉他“别废话了”:
 
-![]()![](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/dba54c56-784f-4010-bd7d-d5c33c1dd161.jpg?asset_id=507350c3-5a2a-436b-9f6e-69310a6aa15a&amp;img_etag=%225733f9ea281553878cd9f864eecaf9ba%22&amp;size=2560) “这种方法根本不‘科学’。科学会在第一时间给出直接答案，像好的医生就这么对待病人。他不断修改目标数值导致了民众低估了疫情的威胁”。
+[!\[\]()!\[\](https://spark.adobe.com/page/o4PA6u0UczMrg/images/933d36f2-4a20-47fc-b4a9-139dac5be779.jpg?asset_id=a5d9cc07-a1d2-4d69-adac-b49c6367a9cb&amp;img_etag=%2295167fcc648e1aa418f60b471a27123e%22&amp;size=2560)](https://spark.adobe.com/page/o4PA6u0UczMrg/images/933d36f2-4a20-47fc-b4a9-139dac5be779.jpg?asset_id=a5d9cc07-a1d2-4d69-adac-b49c6367a9cb&amp;img_etag=%2295167fcc648e1aa418f60b471a27123e%22&amp;size=1024)
 
-![]()![](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/385276df-ebfd-4984-8a3f-ca5bb814fb5f.jpg?asset_id=bbad739a-e528-4427-af37-8a3b3f8b7e8e&amp;img_etag=%22a4aafad9bcc2d47e9647df24a5fbc3b2%22&amp;size=2560)“福奇是个商人，不是科学家”。
+(戴上口罩，闭嘴吧。） — Chen Weihua （陈卫华） (@chenweihua) December 20, 2020
 
-[原文链接](https://trendingpolitics.com/breaking-fauci-admits-he-deliberately-lied-about-coronavirus-claims-we-weren-t-ready-for-truth/)
+法拉奇回击，要求中共国赔偿CCP病毒以及随后的掩饰行为造成的损害:
+
+[!\[\]()!\[\](https://spark.adobe.com/page/o4PA6u0UczMrg/images/27866ff8-d380-4421-851a-3f48d0fa5c40.jpg?asset_id=7e551f2e-26ed-4ec4-922b-bd1a62b64205&amp;img_etag=%220799939b6181656a38fa35bf56f4222c%22&amp;size=2560)](https://spark.adobe.com/page/o4PA6u0UczMrg/images/27866ff8-d380-4421-851a-3f48d0fa5c40.jpg?asset_id=7e551f2e-26ed-4ec4-922b-bd1a62b64205&amp;img_etag=%220799939b6181656a38fa35bf56f4222c%22&amp;size=1024)
+
+中共不喜欢真相，并且总是咄咄逼人地回应。他们应该为这场全球性的灾难向西方支付赔偿。https://t.co/7XlaLTY34Z -奈杰尔·法拉奇(@Nigel\_Farage) 2020年12月20日https://t.co/7XlaLTY34Z
+
+[原文链接](https://thenationalpulse.com/news/pompeo-ccp-media/)
 
 [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
@@ -56,8 +64,6 @@
 
 [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/70GAF0ctP4Vbc/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/o4PA6u0UczMrg/)
+[!\[\]()!\[\](https://spark.adobe.com/page/o4PA6u0UczMrg/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/o4PA6u0UczMrg/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

@@ -1,52 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共正在偷偷摸摸地纂改《圣经》
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/690895/)
+## 突发：福奇承认他故意隐瞒冠状病毒信息，称我们没有“准备好”知道真相
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/690995/)
 
-新闻来源：First Things《第一件事》； 作者：Nina Shea（妮娜•谢伊）； 发布时间：2020年12月22日
+新闻来源：Trending Politics)《政治趋势》；作者：Collin Rugg；发布时间：2020年12月24日
 
-翻译/简评：Linda B；校对：Beicy-数学老师；审核：万人往；Page：小雨
-![]()![](https://gnews.org/wp-content/uploads/2020/12/122701.jpg)
+翻译/简评：MikeHua；校对：Beicy-数学老师；审核：johnwallis；Page：拱卒
+
+[!\[\]()!\[\](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/22c0e47d-bb40-435f-9661-5b0b707eb28a.jpg?asset_id=ea4f1d14-a50b-426b-a5da-11b0fa2719af&amp;img_etag=%22e142f77bfa47c097e3db5d49852452bd%22&amp;size=1024)](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/22c0e47d-bb40-435f-9661-5b0b707eb28a.jpg?asset_id=ea4f1d14-a50b-426b-a5da-11b0fa2719af&amp;img_etag=%22e142f77bfa47c097e3db5d49852452bd%22&amp;size=1024)
+
 **简评：**
 
-中共对美国不仅在经济、政治和信息上进行侵略性的行动，更是从很早就开始计划把基督教共产化，也就是让西方人和中共国十几亿的中国人一样相信“党”，而不是相信上帝。美国的圣经出版商把圣经印刷业务交给了中共，就是把信仰上帝的权力交给了一个危险的敌人。因为中共从不承认上帝的存在，相反，它要消灭人们对上帝的信仰。中共对圣经的随意修改让很多美国人，比如本文的作者妮娜•谢伊（Nina Shea），哈德森学院宗教自由中心的主任醒悟过来，看清中共的本质。她在文章中告诉人们：当中共迫害宗教人士、亵渎圣经原意的时候，中共统战部的官员却和中共国基督教协会的人一起欢乐地聚会.
+老狐狸大鳄鱼福奇的尾巴终于露出来了。在疫情方面福奇和川普总统一直对着干，从一月开始疫情爆发的旅行禁令，到羟氯喹，疫苗一系列的问题，福奇都没有站在美国人民这边，而是昧着良心挣钱。闫博士和这种恶人渣就形成了鲜明对比。闫博士在乎生命，在乎人类的健康与未来，而福奇只看钱，世界人民的死亡在他眼里只是一个数字而已。试想如果没有爆料革命，没有咱们闫博士和其他无名战友的爆料，美国这次是处于多么危险的境地，美国的内贼和共产党通力合作足够把美国颠覆，把世界秩序颠覆，让世界遵循共产党的假丑恶秩序，人类将彻底进入地狱时代。但是现在我们能看到共产党的黑暗力量正在瓦解，美国和世界要经历一次重大的变革，这次变革就是要回归正道主义，回归人性和信仰上天，这次变革之后的世界一定容不下共产党，新中国联邦爆料革命打扫战场，一定是最后的赢家！
 
-在中共基督教的网站上写着**《基督教全国两会全体同工学习全国人大政协会议精神 》**。学习党的政治会议精神已经成为中共治理下的基督教必须学习的内容，这是中共企图凌驾上帝之上的邪恶精神。上帝必须要消灭中共这个否定上帝、否定宗教自由的恶魔。只要有中共的存在，人们就不会被允许有信仰自由。《圣经》就是一部反独裁、反极权的真理书和启蒙书。
+**原文翻译：**
 
-现在是时候让美国的圣经出版商把印刷《圣经》的业务交给那些信仰上帝、尊重宗教自由的国家了。
-[!\[\]()!\[\](https://spark.adobe.com/page/SEFXZrXmdBhTE/images/057481b1-8207-4444-85d2-3eb6de4f5b2d.jpg?asset_id=5effc6d9-2fa1-4a54-8b74-fded6ca10153&amp;img_etag=%22ae40125eb0c1c1e08a10ed73810abd3c%22&amp;size=1024)](https://spark.adobe.com/page/SEFXZrXmdBhTE/images/057481b1-8207-4444-85d2-3eb6de4f5b2d.jpg?asset_id=5effc6d9-2fa1-4a54-8b74-fded6ca10153&amp;img_etag=%22ae40125eb0c1c1e08a10ed73810abd3c%22&amp;size=1024)
-#### **原文翻译：**
+## 突发：福奇承认他故意隐瞒冠状病毒信息，称我们没有“准备好”知道真相
 
-# 中共国对《圣经》的威胁
+[!\[\]()!\[\](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/4cb2ccec-8306-4114-8420-6da9747dc60b.png?asset_id=76216118-b1e8-4e95-8798-d3c91b0a2b1c&amp;img_etag=%220ada67cc6a44a9733e864d89f3d4470c%22&amp;size=2560)](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/4cb2ccec-8306-4114-8420-6da9747dc60b.png?asset_id=76216118-b1e8-4e95-8798-d3c91b0a2b1c&amp;img_etag=%220ada67cc6a44a9733e864d89f3d4470c%22&amp;size=1024)
 
-《圣经》是美国最畅销的书，每年的销量都超过畅销书前20名的总和。然而，一家中共国公司几乎垄断了《圣经》印刷，这意味着供应链中的任何破裂（例如，由于美国或中共政府的政策）都会导致美国《圣经》短缺。这对美国基督徒的基本宗教自由权和国家安全都构成了严重威胁。
+根据新的报道，安托尼·福奇博士声称他故意对冠状病毒事情撒谎，因为“国家还没准备好”知道真相。
 
-美国最大的圣经出版公司每年印刷超过2000万本新教和天主教《圣经》。但是很少有人知道，这些《圣经》中的大多数都是由中共国的爱德印刷有限公司（Amity Printing Company）印刷的。（不在中共国印刷的圣经出版商包括校际出版社（IVP），圣伊格纳蒂斯出版社，圣本尼迪克特出版社，剑桥大学出版社，艾伦父子和舒勒圣经。）由于美国出版商的决定，美国基督徒对《圣经》的需求依靠着一个压制基督教的国家来供给。随着中共在国内加剧了宗教迫害，并且被美国情报机构视为“当今对美国的最大威胁”，这条《圣经》供应链越来越不稳定。然而圣经出版商还没有计划另择其他的印刷公司。
+在福奇电话访问的评论区评论爆炸了，根据纽约时报报道，在电话访问上，福奇说他故意改变了有关疫情的公开声明，因为他觉得人们没有准备好知道他真正的感受。
 
-供应链在2019年受到了考验，当时川普政府提出了广泛的贸易关税，以更好地平衡中美贸易关系。由于该计划包括针对《圣经》的关税，因此美国的圣经出版商反对这项措施，自己和北京方面一起竭力地游说华盛顿。现在是全球最大的圣经出版商的哈珀•柯林斯（HarperCollins）基督教出版公司（HCCP）（已收购宗德尔万/Zondervan和托马斯尼尔森/ThomasNelson）和美国最大的私人基督教出版商廷代尔之家（Tyndale House）一样，都使用爱德（Amity）公司印刷了大部分《圣经》。哈珀•柯林斯基督教出版公司（HCCP）首席执行官马克•舒恩瓦尔德（Mark Schoenwald）去年在美国贸易委员会上谴责了拟议的关税。他称其为“圣经税”，并认为这将迫使他的公司减少销售并终止某些版本《圣经》的出版。川普政府迅速从中共关税中免除了《圣经》。
+不管你怎么解释这个信息，福奇很明显是对美国人民的一个威胁。如果他真的隐瞒了他对冠状病毒的观点，福奇要对欺骗美国人民负责任。如果这是他编造事实，以掩盖过去对冠状病毒的误判，那么福奇自己不知道自己在做什么，因此不能被信任。
 
-基督教事工出版商也进行了游说，他们认为关税将限制《第一修正案》的权利。福音派基督教出版者协会主席斯坦•詹茨（Stan Jantz）宣布，关税将“严重阻碍《圣经》的方便使用”。他在贸易委员会上说：“有些人认为这样的关税实际上会限制宗教自由。”南部浸信会伦理与宗教自由委员会主席拉塞尔•摩尔（Russell Moore）说：“拟议的关税将影响所有基督徒在美国行使其宗教自由的能力。”生活之道基督教资源首席执行官本•曼德雷尔(Ben Mandrell)牧师宣称：“令我感到困扰的是，在国际贸易争端中，上帝的话语会被当作人质。在过去的几个月中，我们坚定了将《圣经》提供给需要的人的决心。无论华盛顿特区有任何的政策建议，我们的任务都是建立在对基督的服从上。”
+[!\[\]()!\[\](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/3b60df99-9aeb-4778-8e6f-3830036dee58.jpg?asset_id=9bff0594-9c26-4304-8b51-a6525a5de095&amp;img_etag=%22feff9eb28d9f22f6e7590c7250e75f17%22&amp;size=3455)](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/3b60df99-9aeb-4778-8e6f-3830036dee58.jpg?asset_id=9bff0594-9c26-4304-8b51-a6525a5de095&amp;img_etag=%22feff9eb28d9f22f6e7590c7250e75f17%22&amp;size=1024)推文：https://twitter.com/megtirrell/status/1342092154408226816 Fauci博士对达到群体免疫力的估计一直在稳步提升。 @nytimes ‘小唐纳德-麦克尼尔报道。Fauci在上周举行的 @CNBC #恢复健康率可能是75-85%。
 
-不难想象，如果中共政府在供应链上施加一点压力，美国圣经出版商就会有动力去游说反对其他对中共国同样具有强硬性的政策，从而有效地使他们成为北京的软实力资产。关税威胁已经结束，但是《圣经》仍然处于危险之中—-迫在眉睫的是中国共产党的政策，而不是华盛顿的政策。国家情报局局长约翰•拉特克利夫（John Ratcliffe）指出，许多中共国知名公司只是“为共产党活动提供了一层伪装”。爱德印刷有限公司也不例外。它与中共国基督教理事会（CCC）有联系，中共国基督教理事会在2018年受到了中共的直接监督和指导。
+看看每日传讯(Daily Caller)的报道：
 
-[!\[\]()!\[\](https://spark.adobe.com/page/SEFXZrXmdBhTE/images/e00a5a60-085f-402b-ba02-90f8c3c62803.png?asset_id=62dd766e-7e4f-4021-b187-63c844a868b6&amp;img_etag=%2233cf4fd2245e5e57867d798a2fdabbf9%22&amp;size=2560)](https://spark.adobe.com/page/SEFXZrXmdBhTE/images/e00a5a60-085f-402b-ba02-90f8c3c62803.png?asset_id=62dd766e-7e4f-4021-b187-63c844a868b6&amp;img_etag=%2233cf4fd2245e5e57867d798a2fdabbf9%22&amp;size=1024)
+*据《纽约时报》周四报道，福奇一直在公开声明中缓慢增加他所说的达到“群体免疫”需要接种疫苗的美国人数量。他不断告诉《纽约时报》称他这么做是“部分基于新的科学结果，部分是基于他感觉美国现在可以接受他内心真实的想法”。*
 
-上个世纪八十年代，时任中共国基督教理事会(CCC)主席的中共国英国国教主教丁（Ting）提议将爱德公司作为其新的爱德基金会与联合圣经协会（UBS）的合资企业，向中共国教会提供《圣经》。联合圣经协会（UBS）同意并捐赠了启动资金，印刷机和圣经纸，并继续为中文《圣经》提供资金。1988年联合圣经协会主席为南京爱德印刷公司奠基。如今，爱德公司在南京的工厂面积为85000平方米，全天候运营，是世界上最大的《圣经》印刷厂。它为147个国家用130多种语言印刷了超过2亿本《圣经》（每年多达2500万本精装本）。
+*《纽约时报》报道，在疫情早期，福奇说美国需要60%到70%的人接种疫苗以达到群体免疫。现在他上周在一次CNBC的采访上说需要75%到80%甚至更多的人才能达到群体免疫。报道称，这个采访导致《纽约时报》问他为什么“移动了目标数值”。*
 
-爱德公司既便宜又高效，拥有最先进的印刷技术和从外国公司购得的印刷机。但由于最近中共政府的指令，爱德公司的声誉可能很快会受到重创。2018年，在爱德公司的家乡南京，北京宣布将启动一项计划，要重新翻译或重新诠释古老的《中国联合圣经》，以使其与中共政策保持一致。“基督教中共化”这是新五年计划的一部分。中共国基督教专家有理由担心，即将发布的版本会舍弃《启示录》，并通过新的圣经注释来歪曲道德课。例如，约翰福音第8章中的耶稣宽恕通奸女人的说法，已在2020年的中共教科书（在政府开办的中等职业学校中使用）中被更改，声称耶稣用石头砸死了那个女人。
+*据称福奇在采访上说真实的数据应该达到90%的接种率。他同时承认几周前他故意把数字说低，因为很多美国人对接种疫苗表示怀疑。根据《纽约时报》，现在很多美国人可以接受接种疫苗了，于是福奇愿意将他的预期数字增加了。*
 
-爱德公司对这一令人震惊的指令有何反应？它赞助了一个庆祝活动，该活动致力于“中共国圣经和基督教中共国化的主题”。在那里，中共统战部的官员被镜头捕捉到和中共国基督教理事会（CCC）以及联合圣经协会（UBS）的人围成一圈跳舞，给他们敬酒并接受贵宾(VIP)待遇。这些发生在两年前，中共法规在中共互联网上审查《圣经》，禁止青年人参加教堂服务和圣经营地，并授权焚烧未经中共授权拥有的《圣经》之后。
+*福奇是许多届政府的重要医疗顾问，并且是一个被许多美国人民相信的人物，是有关冠状病毒大流行信息的来源。*
 
-到目前为止，还没有来自美国出版商的强烈抗议。他们没有利用自己的力量来阻止对家庭教会的持续镇压，他们也没有用教会的力量来释放现在已经服刑九年的秋雨圣约教会的王怡牧师；基督教书商陈煜，于今年十月被判处七年徒刑；天主教民主倡导者赖智贤（Jimmy Lai）在香港可能会面临无期徒刑。
+推特用户对于福奇的言论并不买账。
 
-尽管他们的初衷是善意的，但现在发行商陷入了困境。随着中共(CCP)继续加强其控制，保护该供应链将变得站不住脚。美国圣经出版商可以立即将《圣经》印刷转移出中共国，从而最好地维护美国人的《第一修正案》权利及其声誉。
+[!\[\]()!\[\](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/caf663ea-49b1-431e-a446-ca8e04a88cf0.jpg?asset_id=07ad8573-abea-48cb-98b2-358627166eb0&amp;img_etag=%22bd23c20beb21bc2c1db177ba8405d6fe%22&amp;size=2896)](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/caf663ea-49b1-431e-a446-ca8e04a88cf0.jpg?asset_id=07ad8573-abea-48cb-98b2-358627166eb0&amp;img_etag=%22bd23c20beb21bc2c1db177ba8405d6fe%22&amp;size=1024)“突发：医生和科学家们，包括福奇博士，在对美国人民撒谎，为了让我们服从他们的指令。对于他们来说，美国人民和盘中的龙虾差不多，他们慢慢地煮熟龙虾，希望我们不知道他们在杀死我们”。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/SEFXZrXmdBhTE/images/ce0059e7-b356-470c-ba14-89cedff06337.jpg?asset_id=beeed6f5-00bf-4ce6-af12-3a6e4ac9c3af&amp;img_etag=%22da64d52a1a9c243b9c7057c0780c9aa1%22&amp;size=2560)](https://spark.adobe.com/page/SEFXZrXmdBhTE/images/ce0059e7-b356-470c-ba14-89cedff06337.jpg?asset_id=beeed6f5-00bf-4ce6-af12-3a6e4ac9c3af&amp;img_etag=%22da64d52a1a9c243b9c7057c0780c9aa1%22&amp;size=1024)
+![]()![](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/73829133-bb12-4354-b1f5-f1f3b7514f42.jpg?asset_id=620837b0-5937-4ac3-bdeb-230ad782d602&amp;img_etag=%22b4e85aac386fedd4cd30f811d29345f8%22&amp;size=2560)“这不是公共卫生官员该做的事情。他们不应该向公众隐瞒信息因为‘公众没有准备好听到我的意见’”。
 
-妮娜•谢伊（Nina Shea）是哈德森学院宗教自由中心的主任。
+![]()![](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/dba54c56-784f-4010-bd7d-d5c33c1dd161.jpg?asset_id=507350c3-5a2a-436b-9f6e-69310a6aa15a&amp;img_etag=%225733f9ea281553878cd9f864eecaf9ba%22&amp;size=2560) “这种方法根本不‘科学’。科学会在第一时间给出直接答案，像好的医生就这么对待病人。他不断修改目标数值导致了民众低估了疫情的威胁”。
 
-[原文链接](https://www.firstthings.com/web-exclusives/2020/12/chinas-threat-to-the-bible)
+![]()![](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/385276df-ebfd-4984-8a3f-ca5bb814fb5f.jpg?asset_id=bbad739a-e528-4427-af37-8a3b3f8b7e8e&amp;img_etag=%22a4aafad9bcc2d47e9647df24a5fbc3b2%22&amp;size=2560)“福奇是个商人，不是科学家”。
+
+[原文链接](https://trendingpolitics.com/breaking-fauci-admits-he-deliberately-lied-about-coronavirus-claims-we-weren-t-ready-for-truth/)
 
 [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
@@ -54,6 +56,8 @@
 
 [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/SEFXZrXmdBhTE/)
-[!\[\]()!\[\](https://spark.adobe.com/page/SEFXZrXmdBhTE/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/SEFXZrXmdBhTE/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/70GAF0ctP4Vbc/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/70GAF0ctP4Vbc/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
 0

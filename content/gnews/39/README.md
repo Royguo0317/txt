@@ -1,33 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 红色方济各加入疾控中心和世卫组织推动COVID疫苗接种
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/690799/)
+## TikTok算法将用于药物开发
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/690849/)
 
-翻译：康州盘古农场-Mike Li
-校对：康州盘古农场-Bruce
-编辑：康州盘古农场-V
+翻译：康州盘古农场-Bruce
+校对：康州盘古农场-烟波浩淼
+审核：康州盘古农场-V
+![]()![](https://gnews.org/wp-content/uploads/2020/12/tiktok.png)图片：thenationalpulse.com
+备受争议的TikTok应用的母公司字节跳动科技（ByteDance）现在正在将其人工智能程序用于药物开发和研究。
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/pope.png)*教皇方济各再次推动极左和精英的事业。他这次希望所有国家确保每个人都接种COVID疫苗。*图片：thegatewaypundit.com。
+字节跳动（ByteDance）的创始人承诺将利用其公司宣传 “社会主义核心价值观 “和对中国共产党（CCP）的奉献，将专注于人工智能（AI）药物发现。这家位于北京的分公司的招聘信息已经出现在美国硅谷的山景城（Mountain View）、上海和北京等城市。
 
-Just the News的约翰·所罗门报道说：
+招聘信息解释道 “我们正在寻找应聘者加入我们的团队，并在由AI算法驱动的药物开发和制造方面进行前沿研究。”
 
-教皇方济各在圣诞节当天告诫世界各国领导人在阻止流行病的竞赛中要致力 “促进合作而不是竞争”，暗示最脆弱的人们应该首先获得疫苗。
+该公司进军医疗保健领域之际，批评者，特别是川普总统，强调该应用程序与中共政府的关系。
 
-方济各周五在梵蒂冈发表讲话，”我们不能让封闭的民族主义阻碍我们作为真正的人类大家庭那样生活，”就在他庆祝圣诞前夜弥撒后几个小时，由于欧洲各地的COVID限制，参加的人很少。
+原文作者：娜塔莉·温特斯（Natalie Winters）
 
-他说，目标是 “为每个人提供疫苗，特别是为最脆弱和最需要的人提供疫苗”。
+发布时间: 2020年12月25日
 
-教皇加入了世界卫生组织的行列，该组织也在向全世界推行疫苗接种。
-
-“世卫组织从网站上删除自然获得的免疫力”。
-
-疾控中心也在推动这项工作。
-
-谨防披着羊皮的狼。
-
-作者：乔·霍夫特     （Joe Hoft）
-发布时间：2020年12月26日上午8:15
-原文链接：[https://www.thegatewaypundit.com/2020/12/red-francis-joins-cdc-pushing-covid-vaccinations/](https://www.thegatewaypundit.com/2020/12/red-francis-joins-cdc-pushing-covid-vaccinations/)
+原文来源：[https://thenationalpulse.com/breaking/tiktok-drug-development/](https://thenationalpulse.com/breaking/tiktok-drug-development/)
 
 0

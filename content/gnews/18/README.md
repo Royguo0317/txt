@@ -1,61 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 纳什维尔圣诞爆炸地曾是太阳风母公司的数据中心
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/691091/)
+## 纳什维尔大爆炸：视频中显示了针对“间谍中心”的导弹袭击
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/691164/)
 
-*加拿大多伦多枫叶农场 文怡*
+加拿大多伦多枫叶农场 文所未闻
+校对 文怡 上传 云起时
+![]()![](https://gnews.org/wp-content/uploads/2020/12/Al-Jazeera.jpg)图片来源：Al Jazeera
+据自然新闻（Natural News）12月26日报道，有视频证据显示，一枚飞来的导弹引发了纳什维尔的爆炸。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/11-13.png)图片来源： Natural News
+爆炸发生在一座AT&T大楼外，这里是一个“间谍中心”，存放有AT&T / 美国国家安全局网络电话路由器综合体，用于美国国家安全局监视任何使用AT&T网络的人的所有电话交谈和电话短信。以下谷歌在该地址的街景截图，有意思的是，显示AT&T “间谍中心 “的店面被谷歌模糊了。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/15-1-3.png)图片来源： Natural News
+据报道，该建筑的前主人是瑟伯斯资本(Cerebus Capital)，它与豪坦·雅格胡布扎德(Hootan Yaghoobzadeh)有关联，后者收购了多米尼克投票系统的部分所有权。多名网络分析人士称，爆炸的目的似乎是为了阻止即将在大楼内进行的多米尼克投票机的审计，不过这一点尚未得到证实。
 
-*校对 辛丑 上传 文怡*
-![]()![](https://gnews.org/wp-content/uploads/2020/12/9370531883bc59f412d98a302b8b362c.png)
-太阳风(SolarWinds)是2020年3月起遭受震惊全美的黑客入侵的软件系统公司，由银湖公司（Silver Lake）和托马·布拉沃（Thoma Bravo）拥有。在2015年之前，与中共关系密切的银湖拥有SunGard，这是一家IT公司，其数据中心就位于纳什维尔圣诞节爆炸地商业街200号（200 Commerce St.）。
-![]()![](https://gnews.org/wp-content/uploads/2020/12/屏幕截图310.png)
-**银湖公司曾拥有SunGard**
+以下视频截图显示了来袭导弹的踪迹，这意味着这是一次军事行动，导弹是从飞机上发射的。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/12-8.png)图片来源： Natural News
+而这里是大约一秒钟后，导弹的踪迹正在消失，从上到下（说明导弹正在从天空向地面移动）。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/13-2.png)图片来源： Natural News
+然后，一瞬间，爆炸就发生了。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/14-5.png)图片来源： Natural News
+通过Brighteon.com的这个链接可以看到完整视屏：
 
-银湖公司是一家价值750亿美元的投资公司，该公司于2005年收购了SunGard  。当时的黑石集团新闻稿这样记录：“宾夕法尼亚州韦恩– SunGard（NYSE：SDS）今天宣布，由银湖公司组织的私人股权投资公司财团完成对SunGard Data Systems Inc.的收购，该财团还包括贝恩资本、黑石集团、高盛资本合伙人、科尔伯格·克拉维斯·罗伯茨律师事务所、普罗维登斯股权合伙人和德克萨斯太平洋集团。”
+[纳什维尔“有意制造”的爆炸案（Nashville “Intentional” Explosion）](https://www.brighteon.com/a7bb23d9-5e1e-402c-8d80-68bcf28fdff0)
 
-10年后，银湖公司在2015年8月以近110亿美元的价格将SunGard卖给了富达国家信息服务公司。
+评：纳什维尔爆炸有很多的蹊跷，录像提供了一些佐证。而且似乎这一切都与选举舞弊有关联。美国2020大选尘埃未定，各种势力桌面下的动作一定会层出不穷。相信美国的基本制度架构，核心纠错能力，加上最重要的民心民意，正义终将战胜邪恶，真相会大白天下！
 
-**银湖、太阳风董事郝也康与中共的关系**
-![]()![](https://gnews.org/wp-content/uploads/2020/12/National-File.jpg)
-根据银湖网站上的个人简历，银湖执行合伙人兼董事总经理、太阳风董事局主席郝也康（Kenneth Hao) 在2008年-2011年”领导建立了公司在中共国和日本的办事处，并领导了银湖对阿里巴巴集团的投资”。银湖网站还显示，”郝也康目前在包括太阳风、诺顿救生锁（NortonLifeLock）在内的几家公司的董事会中担任董事”。
-
-**托马·布拉沃与中共国的关系**
-
-据《国家档案》报道，在太阳风被网络攻击前几个月，托马·布拉沃在2019年以18.8亿美元的价格从“有深厚中资背景的私募投资公司”的XIO Group手中收购了汽车测评公司 J.D. Power。据毛阿敏的先生解直锟称，他给 XIO 提供了近 10 亿美元的种子资金。
-
-**太阳风事发前 ****托马·布拉沃和银湖抛售股票**
-
-两家投资公司共拥有太阳风70％的股份，并控制着该公司6个董事会席位，使其可以访问关键信息，并使他们的股票交易服从关于财务披露的联邦法规。
-
-据《华盛顿邮报》报道，在宣布太阳风被黑客入侵前几天，托马·布拉沃和银湖都卖出了数亿美元的太阳风公司股票，这令人怀疑有内部交易。“ 银湖是硅谷的投资者，有着包括Airbnb、Dell和Twitter在内的引人注目的高科技交易的历史，它在12月7日（违规消息公开六天前）出售了1.58亿美元的太阳风股票。旧金山的一家私人股权投资公司托马·布拉沃也在12月7日出售了其在太阳风中的1.28亿美元股份。“
-
-**太阳风公司与中共国的联系**
-
-太阳风在2020年5月与M.Tech合作，以扩大在中共国的商业机会 。据美国商业新闻（Business Wire）报道，该次合作关系的扩展是为了 “使中（共）国的业务遍及银行、金融、保险、制造业、教育和其他商业等所有垂直行业，以解决IT挑战并监控、管理和保护其应用程序、服务器、数据、基础设施和网络跨本地、混合和多云环境” 。
-
-太阳风网站显示，其在中共国的分销商包括卫实康、昆仑永通、北京凯耀科贸以及M. Tech。”
-![]()![](https://gnews.org/wp-content/uploads/2020/12/屏幕截图309.png)
-**中共网络超限战**
-
-美国第305军事情报营的一位分析师称，在西德尼·鲍威尔（Sidney Powell）的佐治亚州诉讼中，有证据表明中共可以使用多米尼投票系统服务器。
-
-鲍威尔在诉讼中引用了305营一名前成员的话，称 “305军事情报营一名有收集萨姆导弹系统电子情报经验的前电子情报分析员 “告诉她，”多米尼投票软件被代表中共的特工访问”，以操纵选举。
-
-**简评：**
-
-虽然纳什维尔圣诞节爆炸事件还未出最终的官方定论，但通过分析，巧合的爆炸地点、黑客入侵太阳风系统、大选舞弊，想必中共与这一系列非法活动脱不了干系。
-
-参考链接:
-
-*[SolarWinds’ Parent Company Owned Data Center Affected By Nashville Christmas Day Bomb Until 2015](https://www.infowars.com/posts/solarwinds-parent-company-owned-data-center-affected-by-nashville-christmas-day-bomb-until-2015/)*
-
-[10亿美元私募被坑，竟然引发这些……](https://v.jfz.com/detail-9009.html)
-
-相关链接：
-
-[震惊美国、被黑客入侵的太阳风与中共、加拿大有何关系？](https://gnews.org/zh-hans/650782/)-GNews
-
-[【中外挖掘机团队联合出品】美国银湖私募股权公司与中共盗国贼的关系](https://gnews.org/zh-hans/80195/)-GNews
+[原文链接](https://www.naturalnews.com/2020-12-26-nashville-explosion-was-actually-a-missile-strike-att-nsa-spy-hub.html#)
 
 0

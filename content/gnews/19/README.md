@@ -1,62 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 推特装聋作哑，放任中共辱骂西方政要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/690989/)
+## 中共赶在圣诞期间审判被拘押的香港人
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/691141/)
 
-新闻来源：The National Pulse《国家脉动》； 作者：STAFF WRITER/撰稿人； 发布时间：2020年12月20日
+新闻来源：Reuters《路透社》； 作者：克莱尔·吉姆（Clare Jim）； 发布时间：2020年12月25日
 
-翻译/简评：努力；校对：SilverSpurs7；审核：johnwallis；Page：拱卒
-![]()![](https://gnews.org/wp-content/uploads/2020/12/Dreamer__Wing_johnwallis_Page_Daoiii_1.jpg)
+翻译/简评：随波逐流；校对：Beicy-数学老师；审核：万人往；Page：拱卒
+
+[!\[\]()!\[\](https://spark.adobe.com/page/gwachCBAzGAwU/images/f7ecbac0-d419-42ba-bfda-127d1a95ff8e.jpg?asset_id=dbf9a7e6-c679-492b-a45c-4a01b4138b19&amp;img_etag=%223c369eca96b9fe700628d3416cf9737c%22&amp;size=1024)](https://spark.adobe.com/page/gwachCBAzGAwU/images/f7ecbac0-d419-42ba-bfda-127d1a95ff8e.jpg?asset_id=dbf9a7e6-c679-492b-a45c-4a01b4138b19&amp;img_etag=%223c369eca96b9fe700628d3416cf9737c%22&amp;size=1024)
+
 #### **简评：**
 
-中共大外宣陈卫华因一系列“狗吠护主”行为名扬海外，言辞颇为激烈地人身攻击了西方保守派政客。可见中共这一发迹畎亩之中的流氓政党，篡权混入西方文明世界，却像泼妇一般派出大外宣骂街，极其有损形象；我们决不能让这种非法犯罪集团代表华夏子孙。将中国人与中共分开是我们新中国联邦人的毕生使命！
+据路透社消息，四个月前试图乘船逃离而被中共国从海上抓捕的12名香港人中，有10人将从周一起在内地城市深圳接受审判，将面临非法越境和组织非法越境的指控，之后返回香港接受与抗议活动有关罪行的进一步调查。另两名未成年人择期另行审判。预计北京方面是为了减少国际反应，特意选在西方国家圣诞期间开庭。
 
-推特对于陈卫华这种极端侮辱性言论非但不进行审查和屏蔽，反而加以实名认证，再次暴露了与中共勾兑，放任攻击保守派言行的虚伪面孔。
+大英帝国一手打造的“东方之珠”香港，在中共独裁统治下短短二十几年矛盾丛生，市民抗议不断，不复往日的繁华。中共已完全违背当初《中英联合声明》所载的“五十年不变”的方针，“一国两制”已成为事实上的“一国一制”。自2019年香港人浩大的“反送中”抗议活动以来，中共派出无数军警宪特，频频使用催泪瓦斯、橡胶子弹甚至实弹射向抗议人群 ，大批年轻人被抓后遭酷刑折磨，或被轮奸、抛尸大海以及押往内地，香港人坚强不屈的精神迎来了全世界的关注和声援。
+
+在全球谴责声中，中共的镇压不但并未减缓，反而变本加厉。强推国安法，驱逐反对派立法会委员，中共不断挑战人类文明的底线。因香港的国际金融中心地位，香港的局势牵扯到世界各国的利益，面对中共我行我素的流氓行径，为免伤及自身，国际社会必将联合灭共，香港注定成为中共迈向地狱的第一道大门。风暴过后的香港定将“涅槃重生”，再现往日辉煌。
 
 #### **原文翻译：**
 
-# 中共国国家媒体喉舌言语辱骂彭佩奥、法拉奇，推特拒绝采取行动
+# 支持者说，从周一起将对被拘押在中共国的香港人进行审判
 
-**中共国官方媒体《中国日报》欧洲分社负责人多次在推特上称美国国务卿蓬佩奥“不要脸”，建议他应该被关进关塔那摩湾军事监狱。**
+[!\[\]()!\[\](https://spark.adobe.com/page/gwachCBAzGAwU/images/5f5cc298-3bc1-4e56-9a84-4868548cec23.jpg?asset_id=5314a5a6-6eaf-4f47-a299-b8826bed7000&amp;img_etag=%22a1629697d3a1590392b8a327e607e921%22&amp;size=2560)](https://spark.adobe.com/page/gwachCBAzGAwU/images/5f5cc298-3bc1-4e56-9a84-4868548cec23.jpg?asset_id=5314a5a6-6eaf-4f47-a299-b8826bed7000&amp;img_etag=%22a1629697d3a1590392b8a327e607e921%22&amp;size=1024)文件图片：2020年11月21日，12名香港被拘留者之一，郑慈浩的父亲站在山顶上，俯瞰邻近的中共国大陆城市深圳的盐田区。路透社/詹姆斯·庞弗莱特/文件照片
 
-[!\[\]()!\[\](https://spark.adobe.com/page/o4PA6u0UczMrg/images/d6fea312-e2dd-4fea-8b0e-f0e74dad7396.jpg?asset_id=794ec22c-219c-4dbe-b373-bc7572484e0d&amp;img_etag=%220fe990ee2a4feb38388089a7c9c041d1%22&amp;size=2560)](https://spark.adobe.com/page/o4PA6u0UczMrg/images/d6fea312-e2dd-4fea-8b0e-f0e74dad7396.jpg?asset_id=794ec22c-219c-4dbe-b373-bc7572484e0d&amp;img_etag=%220fe990ee2a4feb38388089a7c9c041d1%22&amp;size=1024)在Twitter 上肆无忌惮 非礼美国政要的Chen Weihua （陈卫华） (@chenweihua) | Twitter
+香港（路透社）—支持者们周五说，四个月前试图乘船逃离时被中共国从海上抓捕的12名香港人中，其中10人将于周一在内地城市深圳接受审判。
 
-陈卫华是中国共产党的疯狂战狼。他的“新闻”机构由共产党政权的宣传部拥有并经营，宣传部是中共宣传部的委婉说法。
+此案引起了香港和国外的极大关注，因为这一罕见事件 —- 北京当局逮捕试图离开金融中心的人们，正发生在外界对香港高度自治的前景日益担忧之际。
 
-陈常年批评川普，他对这位在对付中共方面有着良好记录的国务卿之蔑视大大升级。
+考虑到进入中共国大陆后要进行14天的新冠隔离，这些家属本周要求提前20天通知，以便他们参加审判。
 
-而声称要创造“健康对话”的推特却没有采取任何措施来限制陈卫华的冒犯行为，相反，甚至在他的名字后面授予他一个审核通过的“蓝标”。陈卫华的中国同胞不允许在推特上有言论自由，所以目前还不清楚为什么陈卫华需要被核实通过。
+但一个支持团体说，政府任命的律师已将审判日期通知了七名被拘留者的家人。
 
-推特在审查保守派方面一直采取强硬手段，还曾与中共军方代表一起参加会议，并雇佣了与中国共产党有关联的个人，但是它没有回应《国家脉动》就此事提出的问题，不过该平台确实因报道经证实的选举欺诈信息而屏蔽了《国家脉动》；但是推特也没有对陈卫华的账户采取任何行动，既没删除他的验证标记，也没有对这些质疑做出任何回应。
+被拘留者安迪·李（Andy Li）的妹妹比阿特丽斯·李（Beatrice Li）表示：“显然，（中共国当局）赶在圣诞节期间审判，是为了尽量减少强烈的国际反应。
 
-在不到六个月的时间里，陈卫华12次给蓬佩奥贴上“不要脸”的标签。其中三条推文涉及陈卫华对蓬佩奥可能离任政府的庆祝，此前他宣布，如果乔·拜登当选总统，中共政府将是“赢家”。
+北京的港澳事务办公室没有立即回应置评请求。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/o4PA6u0UczMrg/images/fdabdffc-4652-43aa-a0af-064a7e43e16c.png?asset_id=fab2336c-df2f-47e2-8178-6129d49ee701&amp;img_etag=%22bc1f150705a65e11f6ecf91d7515ccec%22&amp;size=4310)](https://spark.adobe.com/page/o4PA6u0UczMrg/images/fdabdffc-4652-43aa-a0af-064a7e43e16c.png?asset_id=fab2336c-df2f-47e2-8178-6129d49ee701&amp;img_etag=%22bc1f150705a65e11f6ecf91d7515ccec%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/gwachCBAzGAwU/images/8543141b-6ca6-4b85-accc-6382b5463f2c.jpg?asset_id=9cf873cb-9eee-4426-b560-f20dfd0f37f2&amp;img_etag=%228f8509c1bfe21dba9d4306199c8e0131%22&amp;size=1024)](https://spark.adobe.com/page/gwachCBAzGAwU/images/8543141b-6ca6-4b85-accc-6382b5463f2c.jpg?asset_id=9cf873cb-9eee-4426-b560-f20dfd0f37f2&amp;img_etag=%228f8509c1bfe21dba9d4306199c8e0131%22&amp;size=1024)香港十几名在华被扣人员亲属要求给予充分的审判通知书
 
-陈卫华最近还在推特上称美国参议员玛莎·布莱克本（Marsha Blackburn）是“一辈子都是婊子”。陈卫华坚定地认为蓬佩奥应该被强制关进关塔那摩监狱，那可是一个用来关押恐怖分子的军事监狱。
+8月23日，十二名香港人在一条据信开往台湾的船上被中共国海岸警卫队截获。中共国当局本月早些时候表示，两名未成年犯罪嫌疑人将在另一天出席私人听证会。
 
-针对欧盟与中国签署贸易协议，斯坦福大学新闻学和乔治•索罗斯资助的世界新闻研究所(World Press Institute)研究员也坚称，“令人发指的迈克•蓬佩奥(Mike Pompeo)肯定心在滴血”:
+所有人都面临着在香港的指控，这些指控与在这个前英国殖民地上发生的反政府抗议活动有关，其中包括骚乱和违反北京于6月对这座城市强加的国家安全法。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/o4PA6u0UczMrg/images/3529cf73-d0fb-498b-a03f-c49d424912e2.jpg?asset_id=a4328fed-c523-4e7d-a7fe-584d6f6637a1&amp;img_etag=%2206e30470c3d09a8e8553da8a087d746a%22&amp;size=2748)](https://spark.adobe.com/page/o4PA6u0UczMrg/images/3529cf73-d0fb-498b-a03f-c49d424912e2.jpg?asset_id=a4328fed-c523-4e7d-a7fe-584d6f6637a1&amp;img_etag=%2206e30470c3d09a8e8553da8a087d746a%22&amp;size=1024)
+在大陆的审判中，他们面临着非法越境和组织非法越境的指控，该罪行最高可判七年监禁。
 
-讽刺的是，陈卫华还发了近20条推文，把蓬佩奥和阿道夫·希特勒的宣传部长约瑟夫·戈培尔相提并论。
+香港政府表示，被告必须在内地接受司法审判，然后才能返回香港。预计他们将因涉嫌与抗议活动有关的罪行在香港遭受进一步调查。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/o4PA6u0UczMrg/images/454ea2e5-ed93-426b-a8a2-038755e4c402.png?asset_id=189f1f9c-4410-415e-acbf-0e68beec3645&amp;img_etag=%2217b69307e2786a0482aee11083009bd7%22&amp;size=1024)](https://spark.adobe.com/page/o4PA6u0UczMrg/images/454ea2e5-ed93-426b-a8a2-038755e4c402.png?asset_id=189f1f9c-4410-415e-acbf-0e68beec3645&amp;img_etag=%2217b69307e2786a0482aee11083009bd7%22&amp;size=1024)
+（杰西·庞报道；北京新闻编辑室补充报道；克莱尔·吉姆写作；威廉·马拉德编辑）
 
-陈卫华的批评不仅限于蓬佩奥。他一直热衷于攻击许多西方保守派人物，包括推动脱欧人士奈杰尔•法拉奇(Nigel Farage)。当法拉奇鉴于中共国拙劣的新冠肺炎疫情处理，将取消圣诞节归咎于中共国，陈卫华告诉他“别废话了”:
-
-[!\[\]()!\[\](https://spark.adobe.com/page/o4PA6u0UczMrg/images/933d36f2-4a20-47fc-b4a9-139dac5be779.jpg?asset_id=a5d9cc07-a1d2-4d69-adac-b49c6367a9cb&amp;img_etag=%2295167fcc648e1aa418f60b471a27123e%22&amp;size=2560)](https://spark.adobe.com/page/o4PA6u0UczMrg/images/933d36f2-4a20-47fc-b4a9-139dac5be779.jpg?asset_id=a5d9cc07-a1d2-4d69-adac-b49c6367a9cb&amp;img_etag=%2295167fcc648e1aa418f60b471a27123e%22&amp;size=1024)
-
-(戴上口罩，闭嘴吧。） — Chen Weihua （陈卫华） (@chenweihua) December 20, 2020
-
-法拉奇回击，要求中共国赔偿CCP病毒以及随后的掩饰行为造成的损害:
-
-[!\[\]()!\[\](https://spark.adobe.com/page/o4PA6u0UczMrg/images/27866ff8-d380-4421-851a-3f48d0fa5c40.jpg?asset_id=7e551f2e-26ed-4ec4-922b-bd1a62b64205&amp;img_etag=%220799939b6181656a38fa35bf56f4222c%22&amp;size=2560)](https://spark.adobe.com/page/o4PA6u0UczMrg/images/27866ff8-d380-4421-851a-3f48d0fa5c40.jpg?asset_id=7e551f2e-26ed-4ec4-922b-bd1a62b64205&amp;img_etag=%220799939b6181656a38fa35bf56f4222c%22&amp;size=1024)
-
-中共不喜欢真相，并且总是咄咄逼人地回应。他们应该为这场全球性的灾难向西方支付赔偿。https://t.co/7XlaLTY34Z -奈杰尔·法拉奇(@Nigel\_Farage) 2020年12月20日https://t.co/7XlaLTY34Z
-
-[原文链接](https://thenationalpulse.com/news/pompeo-ccp-media/)
+[原文链接](https://www.oann.com/trial-of-hk-people-detained-in-china-from-monday-supporters-say/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=trial-of-hk-people-detained-in-china-from-monday-supporters-say)
 
 [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
@@ -64,6 +56,6 @@
 
 [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/o4PA6u0UczMrg/)
-[!\[\]()!\[\](https://spark.adobe.com/page/o4PA6u0UczMrg/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/o4PA6u0UczMrg/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/gwachCBAzGAwU/)
+[!\[\]()!\[\](https://spark.adobe.com/page/gwachCBAzGAwU/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/gwachCBAzGAwU/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0
