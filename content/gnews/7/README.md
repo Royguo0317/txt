@@ -1,45 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美疾控中心发布关于患有基础疾病的人COVID-19疫苗接种的新指南
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/691473/)
+## 【林伍德推文1227】首席大法官与辉瑞药业和收养儿童的问题
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/692098/)
 
-翻译：康州盘古-黎明的光芒
+喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2020/12/john-robert-removebg-preview.jpg)
+#### 与辉瑞公司背后的交易
 
-校对：康州盘古- Antsee- GTV
+杰弗里-爱泼斯坦（Jeffrey Epstein）2010年3月22日从棕榈滩飞往奥克兰的飞行记录上有 “约翰-罗伯茨 “（John Roberts首席法官）的名字。
 
-审核：康州盘古-Truemanman
-![]()![](https://gnews.org/wp-content/uploads/2020/12/图片83.png)图片：9/30/2014，乔治亚州亚特兰大市疾病预防控制中心总部概况（塔米·查佩尔/路透社)
-美国疾病控制和预防中心(CDC)表示，有基础疾病的人只要没有对任何成分产生严重的过敏反应，就可以接种COVID-19疫苗。
+2010年9月29日，首席大法官约翰-罗伯茨出售了辉瑞公司的股票，使他能够参与涉及药品多收费和疫苗伤害指控的案件。
 
-美国疾控中心周六发布了新的指南，旨在帮助有潜在健康问题或免疫系统较弱的成年人（自行）决定新的COVID-19疫苗是否适合他们。
+公众需要答案。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/首席大法官.png)[https://twitter.com/LLinWood/status/1343312350045233153?s=20](https://twitter.com/LLinWood/status/1343312350045233153?s=20)
 
-“任何年龄段的成年人，只要有某种潜在的基础疾病，就会增加因COVID-19病毒引起严重疾病的风险，”指南中写到。
 
-它补充说，经食品药品监督管理局（FDA）批准的疫苗，“可以对患有基础疾病的人使用，只要他们对疫苗中的任何成分都没有严重的过敏反应”。
 
-该指南指出，免疫系统较弱或自身免疫状况较弱的人可接种COVID-19疫苗，但应意识到，目前对于这些人的疫苗安全性数据很少甚至没有。
 
-同时，疾病预防控制中心还为以前患有格林-巴利综合症的人开了绿灯–一种自身免疫系统攻击人体外周神经系统的疾病–并说根据疫苗的临床试验，未有关于该综合症病例的报告。
+#### 收养儿童的问题
 
-之前患有贝尔氏麻痹症–一种会导致一侧面部肌肉无力的疾病–的病人也可以接种疫苗。疾病预防控制中心说，疫苗临床试验期间的参与者确实报告有这种情况，但美国食品和药物管理局确定，它没有超过普通人群的预期发病率。
+约翰-罗伯茨法官可能对国家的未来至关重要。公众对他存在严重的疑问。罗伯茨有责任完全回答这些问题，以确保美国总统行动的正直性。
 
-据疾控中心统计，截至12月26日，已有近200万人接种了第一剂COVID-19疫苗。
+他的孩子是不是从爱尔兰通过拉丁美洲收养的？
 
-卫生官员此前曾警告说，有一些过敏体质的人不应该接种新获批准的疫苗。
+合法吗？
 
-“我们所称之的使用条件，特别指出，如果你对辉瑞（Pfizer）/伯恩生物技术（BioNTech）疫苗的任何成分过敏，你不应该接种它，”食品和药物管理局（FDA）专员Stephen Hahn博士在CNN的 “国情咨文 “中说。
 
-根据FDA为医疗保健提供者出具的情况说明书，对于任何一种新批准的疫苗的任何成分，都没有严重过敏反应或过敏反应史的人可以注射。
 
-辉瑞/ 伯恩生物科技疫苗的成分如下：信使核糖核酸（mRNA），脂质（（4-羟基丁基氮杂二基）双（己烷-6,1-二基）双（2-己基癸酸）2 [（聚乙二醇）-2000] -N，N-二十四烷基乙酰胺，1,2-二硬脂酰基-sn-甘油-3-磷酸胆碱和胆固醇），氯化钾，磷酸二氢钾，氯化钠，磷酸氢二钠二水合物和蔗糖 。
+- ![]()![](https://gnews.org/wp-content/uploads/2020/12/robert-adopt-children-2.png)
 
-同时，摩德纳（Moderna）疫苗的成分包括：信使核糖核酸（mRNA），脂质（SM-102，聚乙二醇[PEG] 2000二肉豆蔻酰基甘油[DMG]，胆固醇和1,2-二硬脂酰基-sn-甘油-3-磷酸胆碱[ DSPC]），氨丁三醇，盐酸氨丁三醇，乙酸，乙酸钠和蔗糖。
+[https://twitter.com/LLinWood/status/1343319077905952768?s=20](https://twitter.com/LLinWood/status/1343319077905952768?s=20)
 
-本周，一位来自波士顿的医生第一个报告了一例摩德纳（Moderna）疫苗的不良反应。这名医生紧急使用了肾上腺素并由工作人员将他送到了紧挨着的急诊室。
 
-扎卡里·斯蒂伯尔（Zachary Stieber/大纪元记者）对这篇报道做出了贡献。
+最高法院首席大法官约翰-罗伯茨（John Roberts）在2017年主持唐纳德-川普成为美国第45任总统的宣誓，2020年1月时他主持了川普的弹劾审判，现在面临川普总统大选大规模舞弊行为视而不见，他拒绝受理得克萨斯州为首的几个州为原告起诉大选舞弊州的案件，驳回其他相关舞弊诉讼案，被强烈质疑。
 
-原文链接：[https://www.theepochtimes.com/cdc-issues-new-guidance-on-covid-19-vaccinations-for-people-with-underlying-medical-conditions\_3633496.html](https://www.theepochtimes.com/cdc-issues-new-guidance-on-covid-19-vaccinations-for-people-with-underlying-medical-conditions_3633496.html)
+2005年9月，罗伯茨被乔治-布什总统提名接替已故的威廉-雷恩奎斯特（William Rehnquist），成为首席大法官。罗伯茨和妻子简-罗伯茨于2010年收养了两名4-5岁的儿童，约翰-杰克-罗伯茨和约瑟芬-乔西-罗伯茨。
+
+2013年在得知罗伯茨领养孩子后，一名12岁的男孩要求罗伯茨支持同性婚姻。[https://www.youtube.com/watch?v=W\_bAiTwJAnc](https://www.youtube.com/watch?v=W_bAiTwJAnc)
+
+2015年，罗伯茨是Obergefell v. Hodges案5-4裁决中的反对意见之一，该案使同性婚姻在美国合法化，罗伯茨与安东宁-斯卡利亚（Antonin Scalia）和克拉伦斯-托马斯（Clarence Thomas）一起提出了反对意见。塞缪尔-阿利托（Samuel Alito）也单独写了一份反对意见。
+
+
+
+相关文章出处
+
+[https://heavy.com/news/2017/01/jack-josie-roberts-john-roberts-children-family-adopted-inauguration-supreme-court-chief-justice-jane-ages/](https://heavy.com/news/2017/01/jack-josie-roberts-john-roberts-children-family-adopted-inauguration-supreme-court-chief-justice-jane-ages/)
+
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17185700/Wenya-Logo-4.png)
+
+
+
 
 0

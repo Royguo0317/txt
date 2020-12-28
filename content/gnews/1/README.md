@@ -1,35 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发：警方回应帝国大厦炸弹威胁事件
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/691601/)
+## 【香港要闻】廉政公署加入政治检控，林卓廷今晨再被上门拘捕
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/692188/)
 
-翻译：康州盘古农场-黎明的光芒
+撰文：天灭中共
 
-校对：康州盘古农场-烟波浩淼
+审稿：文燕
 
-审核：康州盘古农场-Rose
-![https://www.thegatewaypundit.com/wp-content/uploads/0-23.jpg](https://lh5.googleusercontent.com/KYci_GQTDwT5XBUMYwGPor9oV5xSvSqIxcYeLWFICV33kzeIH58RIe5fR9e6M-xYRqyAzwq-SXCGHY1lJKTbNuU4gtx1eouthQj0UMRkckFiw9553_ejF80NXwkDPPuAUnmsmV4hmoTySMWiPw)
-纽约市帝国大厦有人打9-1-1电话，说中午会有炸弹爆炸，警方正在作出回应。
+上传：文粤
 
-威胁（电话）是在上午11点多打来的。
+民主党副主席、前立法会议员林卓廷今晨7点在个人脸书上公开自己被廉政公署
 
-中午没有发生爆炸。
+（ICAC）上门拘捕，将被带往北角廉署总部接受审问。他痛斥「廉政公署纯粹出于政治理由，自甘沦为极权打压的工具」。案件于下午2:30在东区裁判法院提堂，获准以2000元保释，明年3月再审。
 
-[CIA-Simulation Warlord 🇺🇸🦈🇺🇸 on Twitter: “All is good at the Empire State Building live feed. https://t.co/AQ5SfQWEgp” / Twitter](https://twitter.com/zerosum24/status/1343242174704607233?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1343242174704607233%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2020%2F12%2Fbreaking-police-responding-bomb-threat-empire-state-building%2F)
+根据今晨上传的拘捕视频显示：林卓廷被指于2019年12月至2020年7月期间，向公众披露一位正接受廉政公署调查的人员身份，涉嫌违反《防止贿赂条例》第30条。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/image001-3.jpg)（图片来源：林卓廷youtube）
+中午11点，林卓廷在接受廉署审问后，再次上传视频，透露自己一共被控三项罪行，源于去年12月31日，就元朗721事件的定性，曾反驳警察公共关系科高级警司江永祥的说法时，提及时任元朗警区助理指挥官游乃强因公职人员行为失当罪正被廉署调查。对此，林卓廷回应指：「《防止贿赂条例》第30条指的是披露《防止贿赂条例》下举报的罪案，而我控诉多位警员涉嫌违反的公职人员行为失当罪并不包括在其中」。
 
-*中情局**–**模拟督军*![](https://lh5.googleusercontent.com/g7i_DQ_hb4W88y2JcxgbP45EhsP_kAgiuZ-U1dl_xYO-W89Pk5TIUvjE2KEaAoxHEXiVpMVjdebQ4wDK30d5MpynMlKNQFL44Cxhx3pZK0VhYt1g6hTwaOwKKVf_UilHcdFsaHUzPDQL3QlLtA)*@zerosum24*
+根据《防止贿赂条例》第30条（1）：任何明知或怀疑正有调查就任何被指称或怀疑已犯的
 
-*帝国大厦直播间一切正常。*
+第I部所订罪行而进行的人如无合法权限或合理辩解，而向公众、部分公众或任何特定人士披露该受调查人的身分或该受调查人正受调查的事实或该项调查的任何细节，即属犯罪，一经定罪，可处罚款$20,000及监禁1年。
 
-不过，防爆队已经对威胁做出反应，目前正在大楼附近。
+第II部所订罪行指的是向公职人员提供利益而作出或不作出行为的贿赂罪等的成文法控罪。而公职人员行为失当罪，则是一项普通法控罪。
 
-就在两天前，纳什维尔（Nashville）市中心的一条街道发生大规模爆炸前，人们被警告要疏散，这使得这条威胁更加令人震惊。
+曾在2007年服务于廉政公署担任过调查主任的林卓廷表示自己特意换上ICAC的T恤到廉署总部接受审问，希望唤起昔日同袍的初心，不要沦为政治检控的工具。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/image003-4.jpg)（图片来源：林卓廷youtube）
+去年7月21日白衣人在元朗地铁站持械无差别攻击市民，当时身为立法会议员的林卓廷第一时间赶赴现场，为了保护和疏散市民被白衣人打伤。但是时至今日，所有参与施暴的人无一被抓，却将勇于发声的受害市民一一提告，受害人之一的林卓廷更是被控721暴动罪，引起香港市民愤怒不已，怒斥港府甘为中共傀儡，公然指鹿为马。
 
-事态正在发展中，如获得更多信息将及时更新。
+以上观点仅代表笔者本人
 
-原文作者：卡桑德拉·费尔班克斯（Cassandra Fairbanks）
+资料来源：
 
-发布时间：2020年12月27日上午11:13原文链接：[BREAKING: Police Responding to Bomb Threat at Empire State Building (thegatewaypundit.com)](https://www.thegatewaypundit.com/2020/12/breaking-police-responding-bomb-threat-empire-state-building/)
+1、[林卓廷Facebook透露自己被捕](https://www.facebook.com/534865589914032/posts/3562818183785409/)
 
-+1
+2、[拘捕现场视频](https://youtu.be/iYVKpPWg_1M)
+
+3、[接受ICAC审问后视频披露详情](https://youtu.be/miL_MIlPUGc)
+
+4、[《防止贿赂条例》条文](https://www.elegislation.gov.hk/hk/cap201!zh-Hant-HK?pmc=0&amp;xpid=ID_1438402825640_003&amp;m=0&amp;pm=1)
+
+0

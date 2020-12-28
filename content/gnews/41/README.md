@@ -1,80 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 斯诺登发布影子政府非法收集美国人数据的信息，是否犯了罪？
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/690882/)
+## 郭先生1225:爆料革命推动川普总统推中共犯罪视频厥功至伟
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/691419/)
 
-翻译：康州盘古农场 – Bruce
-校对：康州盘古农场 – 烟波浩淼
-审核：康州盘古农场 – V
-![]()![](https://gnews.org/wp-content/uploads/2020/12/snd.png)
-许多人呼吁赦免埃里克·斯诺登（Eric Snowden），因为他揭露了 “影子政府（Deep State） “对所有美国人的间谍活动。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/捕获_副本-3.png)
+撰稿：巴黎七星农场；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-斯诺登所做的是揭露我们政府对所有美国人的非法间谍活动：
+篇首说明：郭文贵先生在[2020年12月25日 文贵圣诞直播](https://gtv.org/video/id=5fe5ef1dc0544c3d9737286f)，说的不是好听的话，关于遗书事件、关于如何看待圣诞节、关于刘特佐、关于川普总统一定赢得总统等一系列话题，本系列将逐一推出，本文为第十七部分：爆料革命推动川普总统推中共犯罪视频厥功至伟
 
+据[2020年12月25日 文贵圣诞直播](https://gtv.org/video/id=5fe5ef1dc0544c3d9737286f)1：32：44时间点：
 
+好，兄弟姐妹们， 我今天就直播到这儿啊，两个多小时，（念战友留言）倪小乐：“俺们最初的就是投GTV十万以下找SARA，这算什么呢？“这算什么？你问我这算什么，你让我在这回答你的问题吗？咱们已经说了已经是几个月了，你现在还在问我这个，你说我咋回答你。（念战友留言）”防火墙什么时候倒“，正在倒中，（念战友留言）”别把蓝色光标列为制裁“，兄弟姐妹们，对共的经济的封锁和制裁和对官员的制裁和打击，滚天雷一般的咵咵地过来，你放心。
 
-> Edward Snowden exposed the worst 4th Amendment violations in US history: the unlawful collection of data on millions of Americans.
-> 
-> His fight was on behalf of the American people.
-> 
-> For that [@Snowden](https://twitter.com/Snowden?ref_src=twsrc%5Etfw) deserves a pardon from [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) [pic.twitter.com/y2w9KFLJLA](https://t.co/y2w9KFLJLA)
-> — Techno Fog (@Techno\_Fog) [December 17, 2020](https://twitter.com/Techno_Fog/status/1339420669218611200?ref_src=twsrc%5Etfw)
+**大家看到川普总统昨天发的那个推、那个视频，这在半年前是绝对不可能的，**在今年六月份的时候，让川普发CCPVIRUS，他最起码开了几个会，最后他没有发CCP VIRUS，他没有发CCPVIRUS，他就是怕美国和共产党和中国人民这个经济责任的问题，他也知道CCP是VIRUS，但是让他发好几个视频他没敢发，因为那就是两国战争，一个国家的总统考虑的问题不是我们单独地灭共，人家有太多利益平衡了，但是终于在昨天直接不是转推是推出去，**那个把共产主义、共产党和定义为犯罪组织的最关键的视频他给推出去，这是你们不知道这个意义多大**，如果三年前川普总统推这个就这一个视频就改变世界了，大家现在吃到的太多、见到的太多、爆料革命带来的成果太多，大家都忽视了，大家过去桌子上连个面包都没有，现在突然来了牛肉、羊肉、鸡肉、鸭肉，还有鱼子酱，结果桌子上放了钻石，钻石你都忽视了，因为太多转移了你们眼睛。
 
+这在过去，你是啥都没有的，但是大家别忘了，你不要老往上看，你看看每天每时每刻我们爆料革命的结果，**没有爆料革命川普总统百分之百他不会推这个视频，现在川普总统在马阿拉哥身边所有的人几乎都是我们的战友，对共产党的经济制裁和个人制裁包括对香港所有人真实切合实际的、有真实地保护都是我们爆料革命做的，对台湾、对国内的这些地区的少数民族所有的保护绝大多数是我们，没有爆料革命绝对没有今天全世界把共产党和中国人分开、共产党不等于中国、把海外的华人绝不等同于共产党全部分开，只有我们爆料革命做到了，**每天发生的事情对共产党的认知和西方世界对中国人的认知和对中国人的保护，这些都是用语言无法形容的，这都是爆料革命战友们做到的，任何爆料革命的战友都要明白这是我们的能力、这是我们的结果、这是我们行动的结果，**绝对不能让任何人、任何农场、任何其他人去代表了去，这是不可以的。属于所有的爆料革命，属于所有的新中国联邦。**
 
+续上篇：
 
-*爱德华**·斯诺（Edward Snowden）登揭露了美国历史上最严重的违反第四修正案的行为：非法收集数百万美国人的数据。*
+[郭先生1225:遗书事件与共产党的欺骗为何共产党不让你过圣诞](https://gnews.org/zh-hans/688105/)
 
-*他的斗争是代表美国人民的。*
+[郭先生1225:圣诞节不是吃喝的节日,要锻炼辨别真假善恶的能力](https://gnews.org/zh-hans/688184/)
 
-*为此，**@斯诺登应该得到@唐纳德·川普的赦免。*
+[郭先生1225:只把利益给了一个人和一个公司的那一定是骗子](https://gnews.org/zh-hans/688240/)
 
-*2020年12月17日 下午12:02*
+[郭先生1225:不懂法没有自由民主把你弄死钱给我这不叫自由](https://gnews.org/zh-hans/688302/)
 
-斯诺登发布了关于窃取数据的信息，以及美国国家安全局为自己的目的发布使用数据的计划。
+[郭先生1225:用眼泪讲故事者非邪即恶别用善良无知坑害战友](https://gnews.org/zh-hans/688444/)
 
-[Techno Fog on Twitter: “Recall what Snowden helped expose: 1) The illegal collection of metadata of millions of Americans 2) NSA plans to “Collect it All” and “Exploit it All” 3) Economic espionage and the abuse of private data https://t.co/rXvB1ga46A” / Twitter](https://twitter.com/Techno_Fog/status/1339421907423248386)
+[郭先生1225:遗书事件告诫我们不要相信眼泪和她说的和许诺](https://gnews.org/zh-hans/688617/)
 
-*回想一下斯诺登帮助揭露的内容：*
+[郭先生1225:每个人追随和信仰的不能基于道听途说和情绪化](https://gnews.org/zh-hans/689154/)
 
-*1）数百万美国人非法收集**对**数据**定义和解释的数据*
+[郭先生1225:爆料革命必须坚持公开透明,他勇于承担责任](https://gnews.org/zh-hans/689278/)
 
-*2）国家安全局（NSA）计划“全部收集”和“全部利用”*
+[郭先生1225:遗书事件是集团作案集团作战骗钱给VOG和SARA](https://gnews.org/zh-hans/689475/)
 
-*3）经济间谍活动和滥用私人数据*
+[郭先生1225:VOG及凤凰农场事件是第一个但不会是最后一个](https://gnews.org/zh-hans/689566/)
 
-斯诺登的信息显示，影子政府正在监视每个人，然后将其用于自己的目的，甚至可能将数据卖给世界各地的暴徒，以谋取私利。
+[郭先生1225:已给当事方三次时间再不配合将采取一切可采取行动](https://gnews.org/zh-hans/689650/)
 
-[Techno Fog on Twitter: “Forget the clichés and talking points of pundits and gov’t officials. Instead, read the source documents hosted by @ggreenwald They show the scope of domestic surveillance abuses and global US operations. https://t.co/ZjSYddBfTS https://t.co/HOgmGGKPBa” / Twitter](https://twitter.com/Techno_Fog/status/1339422757671591936)
+[郭先生1225:七哥本来爱吹牛说瞎话后来感受到坦诚的快乐](https://gnews.org/zh-hans/690179/)
 
-*忘记专家和政府官员的陈词滥调和谈话要点。*
+[郭先生1225:很多人被喝茶与VOG有关不要再进VOG的DISCORD](https://gnews.org/zh-hans/690325/)
 
-*相反，请阅读由“@ggreenwald”托管的源文档*
+[郭先生1225: 希望是无知而不是邪恶导致战友们的情商智商低](https://gnews.org/zh-hans/690398/)
 
-*它们显示了国内监视滥用和美国全球行动的范围。*
+[郭先生1225:川普必赢中南坑家人不看爆料革命者少G系列答疑](https://gnews.org/zh-hans/690529/)
 
-[http://glenngreenwald.net/#BookDocuments](http://glenngreenwald.net/#BookDocuments)
-
-斯诺登因为直面”影子政府 “而受到迫害
-
-[Techno Fog on Twitter: “Prosecuting Snowden isn’t about “justice” – if that was the case they’d have locked up the US officials who authorized and abused these programs. This is about retaliation. This is about an entitled Establishment who thinks they own your information. Let Snowden come home.” / Twitter](https://twitter.com/Techno_Fog/status/1339423897263992833)
-
-*起诉斯诺登不是**“正义”问题，如果真是这样，他们将封锁授权并滥用这些程序的美国官员。*
-
-*这是报复。*
-
-*这是关于一个有权的机构，认为他们拥有您的信息。*
-
-*让斯诺登回家。*
-
-**埃里克·斯诺登是受害者，或者说是影子政府的报复**。
-
-*（我们强烈建议您观看电影——《斯诺登》）。）*
-
-原文作者：乔·霍夫特（Joe Hoft）
-
-发布时间：2020年12月27日 上午8:15
-
-原文来源：[https://www.thegatewaypundit.com/2020/12/eric-snowden-commit-crimes-releasing-information-deep-states-illegal-collection-data-americans/?ff\_source=Twitter&ff\_medium=PostTopSharingButtons&ff\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/12/eric-snowden-commit-crimes-releasing-information-deep-states-illegal-collection-data-americans/?ff_source=Twitter&amp;ff_medium=PostTopSharingButtons&amp;ff_campaign=websitesharingbuttons)
+[郭先生1225:刘特佐在亚洲杀人骗钱伤害华人战友们不要投机](https://gnews.org/zh-hans/690648/)
 
 0

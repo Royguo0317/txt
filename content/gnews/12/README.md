@@ -1,35 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蹊跷! 纽约印刷选票的公司发生火灾
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/691401/)
+## 拜登侄女酒驾认罪后躲过牢狱之灾
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/691940/)
 
-作者：翼族
-![]()![](https://gnews.org/wp-content/uploads/2020/12/Picture2-7.png)图片来源：https://www.wrdw.com/
-12月25日圣诞节清晨，美国田纳西州的纳什维尔市发生一起汽车爆炸，爆炸地点位于AT&T公司大楼附近。而就在这前一天，纽约州罗切斯特市也发生了一起火灾，大火烧毁了该市的印刷业务，这场大火导致City Blue Imaging Services大楼的前部在午夜时分倒塌。而非常凑巧的是，被烧毁的罗切斯特市的这家印刷公司正好参与了纽约州缺席选票的印刷。
+翻译：康州盘古农场 –Mike Li
 
-据《波普新闻台》（Spectrum News）的报道，纽约市选举委员会曾在9月份发现有将近十万名选民收到了错误的缺席选票，而罗切斯特市的菲尼克斯图形公司（Phoenix Graphics Inc）应为此事件负责。这些选民在收到的缺席选票中发现，寄来的这些选票所附的回信信封上显示的居然是另外选民的名字。
+校对：康州盘古农场 –Robensenna
 
-随后菲尼克斯图形公司发表声明，辩称该错误是由于机械问题导致的，“在为Kings县和Nassau县制作的2020年大选缺席选票时，我们遇到了机械插入问题。我们估计这影响了不到1％的缺席选票，这是第一次在这些县郡的选票中发现该错误，以后的邮寄选票将不会受到影响……对于由此带来的不便，我们深表歉意。我们正在积极进行必要的生产调整，以防止将来出现此类错误。”
+审核： 康州盘古农场 –Truemanman
+![]()![](https://gnews.org/wp-content/uploads/2020/12/侄女.png)
+卡罗琳•拜登近日对2019年8月的一起酒驾事件表示认罪，这已经是她第三次避免入狱。
 
-十万张选票足以影响纽约州的选举结果，如果只是因为机械故障，菲尼克斯图形公司本应该在寄送之前通过最简单的检查就可以发现这个明显的错误，因此菲尼克斯图形公司受到非常广泛的质疑。正是由于本次总统大选采用了大规模的邮寄投票，使得选举非常容易进行舞弊和欺诈。但是菲尼克斯图形公司否认它偏向于一个政党的指控，以及故意邮寄不正确的缺席选票以损害民主进程的指控。
+据《纽约邮报》报道，”总统竞选人”拜登 的侄女去年夏天开车撞树，12月3日听证会后被判处20天到6个月的 “禁闭”。
 
-根据火灾的现场来看，该印刷公司的一切设备和材料都被毁之一旦。菲尼克斯图形公司的员工保罗·基弗（Paul Kieffer）对他看到的这个工作了15年的地方所烧剩下的东西感到震惊，“我们感到莫名其妙，无法在其中找到一件设备。本来那里应该有东西放着的，但现在都没有了。”印刷机应该是金属制成的，为什么整个设备会在本次火灾中消失呢？
+在她与宾夕法尼亚州蒙哥马利县地区法官达成认罪协议后，刑期被减为5个月以上的缓刑和20天的康复治疗。她还将面临2000美元以下的罚款。
 
-据报道，在平安夜晚上10:30左右，一个路人在Scio街的City Blue Imaging Services发现了火情。这座两层楼的建筑很快弥漫了烟雾和火焰，然而由于建筑物的规模和进入的限制，建筑物很快被升级为三级火警，所有消防员不得不撤离出了该建筑物。
+自由主义的特权：
 
-罗切斯特消防局的里恩·弗莱明中尉（Lt. Ryan Fleming）说：“我们看到建筑物的倒塌即将来临，于是我们建了一个崩溃区域，我们将所有灭火设备都移开了，确保所有人员都安全离开，只是在外围控制火势。当建筑倒塌时，没有人受到任何伤害，我们的设备也没有，消防人员也没有受到伤害。”弗莱明中尉说，由于印刷公司建筑物内的化学物质和纸张，扑救火灾是非常危险的，“由于建筑物的形状，要扑灭火势是非常困难的，因为缺少窗户，没有进入建筑物的其它入口。”
+乔-拜登的侄女酒后驾车撞树，遭罚款后即被放行。
 
-目前起火的原因仍在调查中，但我们有理由相信这只是选举舞弊犯罪集团的又一次“毁尸灭迹”。
-
-(文章内容仅代表作者观点)
-
-**参考链接：**
-
-- [https://spectrumlocalnews.com/nys/rochester/politics/2020/09/29/nyc-boe-blames-rochester-company-for-brooklyn-absentee-ballots-return-envelope-errors-?cid=id-app15\_m-share\_s-web\_cmp-app\_launch\_august2020\_c-producer\_posts\_po-organic](https://spectrumlocalnews.com/nys/rochester/politics/2020/09/29/nyc-boe-blames-rochester-company-for-brooklyn-absentee-ballots-return-envelope-errors-?cid=id-app15_m-share_s-web_cmp-app_launch_august2020_c-producer_posts_po-organic)
+这是在她因盗刷信用卡消费11万余元并袭警被放行后又发生的事
 
 
-- [https://spectrumlocalnews.com/nys/rochester/public-safety/2020/12/25/large-fire-destroys-rochester-printing-business](https://spectrumlocalnews.com/nys/rochester/public-safety/2020/12/25/large-fire-destroys-rochester-printing-business)
+
+> Liberal privilege:
+> 
+> Joe Biden’s niece was just let off with a fine after driving drunk & crashing into a tree
+> 
+> This is after being let off for spending over $110,000 on a stolen credit card and assaulting a police officer
+> 
+> Why do the Bidens continually get away with everything?
+> — Charlie Kirk (@charliekirk11) [December 19, 2020](https://twitter.com/charliekirk11/status/1340411034608275458?ref_src=twsrc%5Etfw)
 
 
-0
+
+为什么拜登一家不断地逃脱这一切？
+
+- 查理-柯克（@charliekirk11）2020年12月19日
+
+
+“她将处于缓刑期，”蒙哥马利县地方检察官办公室通讯主任凯特-德拉诺对《纽约邮报》说。”如果她随后在任何时候违法或犯法，那么她将在剩下的刑期中承担罪责。”
+
+《纽约邮报》报道称，拜登的车内有异丙肾上腺素和劳拉西泮（carisoprodol and lorazepam），车祸发生时，血液检测发现她体内有这两种药物以及其他药物。
+
+此次认罪协议是卡罗琳•拜登在涉嫌犯罪后第三次避免入狱。
+
+早在2013年，她因与室友因支付房租而发生争执，打了一名警官而被捕。报道称，她被放行，同意参加愤怒管理课程。
+
+四年后，卡洛琳•拜登在一张被盗的信用卡上消费了11万多美元后，再次触犯法律。一项重罪指控被撤销，而她对较轻的小偷小摸指控表示认罪，……她避免了牢狱之灾。
+
+据《邮报》一项调查，这已经是拜登亲近的家庭圈子里的第九次逮捕。其他事件还涉及乔•拜登臭名昭著的儿子亨特、他的哥哥弗兰克和女儿阿什利。
+
+家里有前参议员、前副总统、很可能是未来的总统，肯定会有所回报。
+
+文章链接：[https://saraacarter.com/bidens-niece-dodges-jail-time-after-dui-guilty-plea/](https://saraacarter.com/bidens-niece-dodges-jail-time-after-dui-guilty-plea/)
+
++3

@@ -1,25 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普致麦康奈尔：“挺身而出，奋力一搏”
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/691568/)
+## 突发：警方回应帝国大厦炸弹威胁事件
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/691601/)
 
 翻译：康州盘古农场-黎明的光芒
 
 校对：康州盘古农场-烟波浩淼
 
-审核：康州盘古农场- Antsee-GTV
-![麦康奈尔在国会]()![麦康奈尔在国会](https://gnews.org/wp-content/uploads/2020/12/Picture1-2-42.png)
-**川普总统抨击参议院共和党人在调查选举结果方面不够努力。**
+审核：康州盘古农场-Rose
+![https://www.thegatewaypundit.com/wp-content/uploads/0-23.jpg](https://lh5.googleusercontent.com/KYci_GQTDwT5XBUMYwGPor9oV5xSvSqIxcYeLWFICV33kzeIH58RIe5fR9e6M-xYRqyAzwq-SXCGHY1lJKTbNuU4gtx1eouthQj0UMRkckFiw9553_ejF80NXwkDPPuAUnmsmV4hmoTySMWiPw)
+纽约市帝国大厦有人打9-1-1电话，说中午会有炸弹爆炸，警方正在作出回应。
 
-**“如果一个民主党总统候选人的选举被操纵与窃取，并有证据证明这种行为达到了前所未有的程度，民主党参议员会认为这是战争行为，并进行殊死斗争。”川普在推特上说。“米奇与共和党人什么都不做，只想让它通过。没有（为此）斗争！”**
+威胁（电话）是在上午11点多打来的。
 
-[Donald J. Trump on Twitter: “If a Democrat Presidential Candidate had an Election Rigged &amp; Stolen, with proof of such acts at a level never seen before, the Democrat Senators would consider it an act of war, and fight to the death. Mitch &amp; the Republicans do NOTHING, just want to let it pass. NO FIGHT!” / Twitter](https://twitter.com/realDonaldTrump/status/1342817496924086278?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1342817496924086278%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fsaraacarter.com%2Ftrump-to-mcconnell-step-up-and-fight%2F)
+中午没有发生爆炸。
 
-原文作者： saraacarter.com|职员作家
+[CIA-Simulation Warlord 🇺🇸🦈🇺🇸 on Twitter: “All is good at the Empire State Building live feed. https://t.co/AQ5SfQWEgp” / Twitter](https://twitter.com/zerosum24/status/1343242174704607233?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1343242174704607233%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2020%2F12%2Fbreaking-police-responding-bomb-threat-empire-state-building%2F)
 
-发布时间：2020年12月27日
+*中情局**–**模拟督军*![](https://lh5.googleusercontent.com/g7i_DQ_hb4W88y2JcxgbP45EhsP_kAgiuZ-U1dl_xYO-W89Pk5TIUvjE2KEaAoxHEXiVpMVjdebQ4wDK30d5MpynMlKNQFL44Cxhx3pZK0VhYt1g6hTwaOwKKVf_UilHcdFsaHUzPDQL3QlLtA)*@zerosum24*
 
-原文链接：[Trump to McConnell: ‘Step Up And Fight’ – Sara A. Carter : Sara A. Carter](https://saraacarter.com/trump-to-mcconnell-step-up-and-fight/)
+*帝国大厦直播间一切正常。*
 
-0
+不过，防爆队已经对威胁做出反应，目前正在大楼附近。
+
+就在两天前，纳什维尔（Nashville）市中心的一条街道发生大规模爆炸前，人们被警告要疏散，这使得这条威胁更加令人震惊。
+
+事态正在发展中，如获得更多信息将及时更新。
+
+原文作者：卡桑德拉·费尔班克斯（Cassandra Fairbanks）
+
+发布时间：2020年12月27日上午11:13原文链接：[BREAKING: Police Responding to Bomb Threat at Empire State Building (thegatewaypundit.com)](https://www.thegatewaypundit.com/2020/12/breaking-police-responding-bomb-threat-empire-state-building/)
+
++1
