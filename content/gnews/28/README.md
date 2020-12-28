@@ -1,38 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德推文1227】鲍威尔律师270页外国干预美国大选的文件出版
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/690812/)
+## 【字幕】12/26/2020文贵：七哥新年贺词
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/690840/)
 
-2020年12月27日，据The Gateway Pundit报道，西德尼-鲍威尔律师本周在Zenger发布了一份关于外国干涉2020年美国总统大选、大规模舞弊的爆炸性文件（海妖2.0）。
+制作： 【彩虹桥】
 
-该文件包括270页的宣誓书、证据、众多证人和消息来源的证词。
+战友们好！我是音雄，一年到底到现在的评奖节目开始了，我都很紧张，我希望更多的战友能获得，了不起的中国人第一次自由的表达的歌声，而且在《我是音雄》有威廉王和我们唐平老师，主持这个平台已经创造了无数个奇迹，大家都知道连文贵唱歌最难听，唱歌最不可以的人，有我们的唐平老师和威廉王传词、写词、全部编剧、编曲的《沧海一声啸》和《酒灭中共》，获得了世界上音乐歌坛的奇迹，是第一个华人在世界上打音乐排行榜排第一的，那么感谢战友们的支持在今天..
 
-文件详细说明了所有选举舞弊行为、涉及的人名和所有的情况。
+所有的我们的战友们都能像阿波罗之神一样，用自己的琴声和歌声，能唤醒被丘比特的银箭射中的，没有爱情、没有感情、没有人性的人，能唤醒更多人的美乐和天赋的这种美好的声音和嗓子，同时也希望大家能像阿波罗之神一样，不论是谁家室内的命中经验的人，室内的命中金剑的人，拥有爱情同时给别人带来快乐
+和五项的愉悦和幸福，亲爱的兄弟姐妹们不论你有没有获奖，能勇敢的站出来，能站在《我是音雄》，中国人第一次在国际上的自由媒体和自由发声，完全没有金钱收买和造假和控制的，这么一个舞台上都是大家的幸运，我们都是中国人历史以来第一次，我们是幸运儿，我们要感谢！
 
-该文件包括军方的证词，并详细说明了从干涉、到投票机欺诈的起源，再到网络安全上外国入侵美国选举系统等等。
-
-Zenger报道说，“鲍威尔律师认为，该文件证明外国直接干预的欺诈行为玷污了11月3日的总统选举，唐纳德-川普总统获得了连任。”
-
-#### [点击阅读该文件全文](https://wpcdn.zenger.news/wp-content/uploads/2020/12/24190822/2020-12-23-Sidney-Powell-Team-Binder-ZENGER-NEWS.pdf)
-
-林伍德律师转推了这篇文章。
-
-
-
-> My good friend GA Governor [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw) & his cohort in crime [@GaSecofState](https://twitter.com/GaSecofState?ref_src=twsrc%5Etfw) do not want to hear from me.
-> 
-> Would someone be so kind as to provide Brian & Brad with this TRUTH? Give it [@GeoffDuncanGA](https://twitter.com/GeoffDuncanGA?ref_src=twsrc%5Etfw) too.
-> 
-> Thanks![https://t.co/Xoc0sa5YIu](https://t.co/Xoc0sa5YIu)
-> — Lin Wood (@LLinWood) [December 27, 2020](https://twitter.com/LLinWood/status/1343266258008104960?ref_src=twsrc%5Etfw)
-
-
-
-新闻素材和图片来自林伍德律师推特和
-
-[https://www.thegatewaypundit.com/2020/12/attorney-sidney-attorney-sidney-powell-releases-270-page-document-on-massive-2020-election-fraud-involving-foreign-interference-releases-270-page-document-massive-2020-election-fraud-involving-foreign/](https://www.thegatewaypundit.com/2020/12/attorney-sidney-attorney-sidney-powell-releases-270-page-document-on-massive-2020-election-fraud-involving-foreign-interference-releases-270-page-document-massive-2020-election-fraud-involving-foreign/)
-
-
+《我是音雄》的威廉王和唐平女士，是你们给了我们中国人一个这样的，自由唱歌和自由发声、歌唱美好的机会，谢谢大家！祝大家新年快乐！谢谢！
 
 0

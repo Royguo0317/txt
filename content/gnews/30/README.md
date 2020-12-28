@@ -1,27 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 特鲁多称赞拜登专注应对气候变化
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/690785/)
+## 【林伍德推文1227】鲍威尔律师270页外国干预美国大选的文件出版
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/690812/)
 
-加拿大多伦多枫叶农场 文怡
+2020年12月27日，据The Gateway Pundit报道，西德尼-鲍威尔律师本周在Zenger发布了一份关于外国干涉2020年美国总统大选、大规模舞弊的爆炸性文件（海妖2.0）。
 
-校对 辛丑 上传 文怡
-![]()![](https://gnews.org/wp-content/uploads/2020/12/屏幕截图307.png)图片来源：CBC
-据《后千禧年报》（The Post Millennial）12月23日报道，总理特鲁多当日在里多小屋向加拿大人发表讲话。
+该文件包括270页的宣誓书、证据、众多证人和消息来源的证词。
 
-有人问特鲁多，美国总统候选人拜登关注应对气候变化方面的进展，是否令人担忧？特鲁多说：“我认为，拜登专注于应对气候变化是个好消息。我们将与美国政府密切合作，以保护就业、创造新就业和应对气候变化的方式向前推进。我期待着在北美地区就世界面临的这一特殊挑战达成一致。”
+文件详细说明了所有选举舞弊行为、涉及的人名和所有的情况。
 
-对中共极为软弱的特鲁多从不掩饰支持拜登的立场，在美国大选结束不久就祝贺拜登当选总统。而且特鲁多及其背后的黑暗势力借环保之名，本月宣布了打算逐年提高的碳税计划，令在中共病毒疫情中挣扎的加拿大人雪上加霜。
+该文件包括军方的证词，并详细说明了从干涉、到投票机欺诈的起源，再到网络安全上外国入侵美国选举系统等等。
 
-今日加拿大，明日美国。如果美国任由黑暗势力控制，拜登当选总统，特鲁多政府在加拿大侵蚀平民自由和利益的境况就可能会在美国上演。
+Zenger报道说，“鲍威尔律师认为，该文件证明外国直接干预的欺诈行为玷污了11月3日的总统选举，唐纳德-川普总统获得了连任。”
 
-*[原文链接](https://thepostmillennial.com/breaking-trudeau-praises-biden-pledges-to-fight-climate-change)*
+#### [点击阅读该文件全文](https://wpcdn.zenger.news/wp-content/uploads/2020/12/24190822/2020-12-23-Sidney-Powell-Team-Binder-ZENGER-NEWS.pdf)
 
-*相关链接：*
+林伍德律师转推了这篇文章。
 
-[特鲁多的碳税计划将加剧贫富分化](https://gnews.org/zh-hans/639936/)-GNews
 
-[西方环保人士是被中共利用的白痴](https://gnews.org/zh-hans/660840/)-GNews
+
+> My good friend GA Governor [@BrianKempGA](https://twitter.com/BrianKempGA?ref_src=twsrc%5Etfw) & his cohort in crime [@GaSecofState](https://twitter.com/GaSecofState?ref_src=twsrc%5Etfw) do not want to hear from me.
+> 
+> Would someone be so kind as to provide Brian & Brad with this TRUTH? Give it [@GeoffDuncanGA](https://twitter.com/GeoffDuncanGA?ref_src=twsrc%5Etfw) too.
+> 
+> Thanks![https://t.co/Xoc0sa5YIu](https://t.co/Xoc0sa5YIu)
+> — Lin Wood (@LLinWood) [December 27, 2020](https://twitter.com/LLinWood/status/1343266258008104960?ref_src=twsrc%5Etfw)
+
+
+
+新闻素材和图片来自林伍德律师推特和
+
+[https://www.thegatewaypundit.com/2020/12/attorney-sidney-attorney-sidney-powell-releases-270-page-document-on-massive-2020-election-fraud-involving-foreign-interference-releases-270-page-document-massive-2020-election-fraud-involving-foreign/](https://www.thegatewaypundit.com/2020/12/attorney-sidney-attorney-sidney-powell-releases-270-page-document-on-massive-2020-election-fraud-involving-foreign-interference-releases-270-page-document-massive-2020-election-fraud-involving-foreign/)
+
+
 
 0
