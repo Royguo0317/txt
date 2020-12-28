@@ -1,80 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 斯诺登发布影子政府非法收集美国人数据的信息，是否犯了罪？
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/690882/)
+## 中南海直属情报系统中联部副部长郭业洲前往尼泊尔 阻止尼共分裂
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/690878/)
 
-翻译：康州盘古农场 – Bruce
-校对：康州盘古农场 – 烟波浩淼
-审核：康州盘古农场 – V
-![]()![](https://gnews.org/wp-content/uploads/2020/12/snd.png)
-许多人呼吁赦免埃里克·斯诺登（Eric Snowden），因为他揭露了 “影子政府（Deep State） “对所有美国人的间谍活动。
+俄罗斯莫斯科喀秋莎农场 银河
 
-斯诺登所做的是揭露我们政府对所有美国人的非法间谍活动：
+校对上传 星河
+![]()![](https://gnews.org/wp-content/uploads/2020/12/KP_Sharma_Oli_Xi_Jinping_Etienne_Oliveau_Getty-1280x720-1.jpg)图片来源：Observer Research Foundation
+12月26日印度媒体报道，中共将派遣直属情报系统中联部副部长郭业洲带领的四人工作组前往尼伯尔，评估局势，干预防止执政的尼泊尔共产党分裂。
 
+尼泊尔总统班达里(Bidya Devi Bhandari)12月20日解散了众议院，并在总理奥利(KP Sharma Oli)的建议下宣布了明年4月份的中期选举日期，引发执政党内部分裂势力的抗议，尼泊尔陷入政治危机。
 
+尼泊尔共产党是尼泊尔共产党毛派（CPN-Maoist）与尼泊尔共产党联合马列派（Unified Marxist-Leninist Party）的联盟。2018年5月，尼泊尔共产党击败亲印度的尼泊尔大会党上台执政。因尼泊尔执政党共产党（Nepal Communist Party）出现分裂，此次选举，亲印度的尼泊尔大会党（Nepali Congress Party）很有可能胜出。这对中共将是巨大的打击，中共正竭尽所能阻止这次政治危机。
 
-> Edward Snowden exposed the worst 4th Amendment violations in US history: the unlawful collection of data on millions of Americans.
-> 
-> His fight was on behalf of the American people.
-> 
-> For that [@Snowden](https://twitter.com/Snowden?ref_src=twsrc%5Etfw) deserves a pardon from [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) [pic.twitter.com/y2w9KFLJLA](https://t.co/y2w9KFLJLA)
-> — Techno Fog (@Techno\_Fog) [December 17, 2020](https://twitter.com/Techno_Fog/status/1339420669218611200?ref_src=twsrc%5Etfw)
+尼泊尔观察家说，中共起初支持奥利，但因尼泊尔共产党党内纷争，中共改变策略，与前总理普拉昌达密谋拉奥利下台。因中印冲突，中共要求尼泊尔在中共和印度之间站队，出台更亲共的战略政策抵抗印度，这遭到了奥利总理的拒绝。尼泊尔身处中共与印度的夹隙之间，历届政府都与印度保持良好的经济贸易合作关系。奥利的不合作，让中共改变策略，试图联合前总理普拉昌达扶持副总理高塔姆（Bamdev Gautam）取而代之，以解现有政治危局。12月24日，中共驻尼泊尔大使侯艳琪会见了普拉昌达，普拉昌达声称解除了总理奥利的议会领袖和主席职务，控制了执政党。
 
+奥利总统依然有很多支持的力量，此次解散国会便是他阻止内斗的尝试。对于现在失控的危局，中共不惜派出中南海直属情报系统中联部副部长郭业洲及工作组前往尼泊尔，进行地面局势评估，以采取必要的干预手段。
 
+郭业洲， 1987年8月参加工作，在中共中央对外联络部历任副处长、处长、八局副局长、研究室副主任（副局级）、研究室主任（正局级）、二局局长、部长助理、部长助理兼办公厅主任。2010年8月至2013年8月任中共驻保加利亚共和国特命全权大使。2014年1月任中共中央对外联络部副部长。中联部一直是中共的谍报组织，现主要负责对各目标国的外交联络及干预控制的主要职能。
 
-*爱德华**·斯诺（Edward Snowden）登揭露了美国历史上最严重的违反第四修正案的行为：非法收集数百万美国人的数据。*
+数十名尼泊尔学生积极分子举着反华标语，在中共驻尼泊尔大使馆前举行示威，抗议中共干涉尼泊尔内政。
 
-*他的斗争是代表美国人民的。*
+从中共此次对尼泊尔的行动中可见其誓要拿下尼泊尔政坛的意图，尼泊尔是否能够保持内政以及国家的独立性主要看尼泊尔高层以及人民的意志，还要看友邦印度以及国际社会的态度。中共已经脱下虚伪貌似友善的外衣，对尼泊尔内政进行着赤裸裸的干涉。
 
-*为此，**@斯诺登应该得到@唐纳德·川普的赦免。*
+参考链接：
 
-*2020年12月17日 下午12:02*
+[https://www.news18.com/news/world/china-to-send-top-ranking-cpc-leader-to-kathmandu-to-prevent-split-in-nepal-communist-party-3216368.html](https://www.news18.com/news/world/china-to-send-top-ranking-cpc-leader-to-kathmandu-to-prevent-split-in-nepal-communist-party-3216368.html)
 
-斯诺登发布了关于窃取数据的信息，以及美国国家安全局为自己的目的发布使用数据的计划。
-
-[Techno Fog on Twitter: “Recall what Snowden helped expose: 1) The illegal collection of metadata of millions of Americans 2) NSA plans to “Collect it All” and “Exploit it All” 3) Economic espionage and the abuse of private data https://t.co/rXvB1ga46A” / Twitter](https://twitter.com/Techno_Fog/status/1339421907423248386)
-
-*回想一下斯诺登帮助揭露的内容：*
-
-*1）数百万美国人非法收集**对**数据**定义和解释的数据*
-
-*2）国家安全局（NSA）计划“全部收集”和“全部利用”*
-
-*3）经济间谍活动和滥用私人数据*
-
-斯诺登的信息显示，影子政府正在监视每个人，然后将其用于自己的目的，甚至可能将数据卖给世界各地的暴徒，以谋取私利。
-
-[Techno Fog on Twitter: “Forget the clichés and talking points of pundits and gov’t officials. Instead, read the source documents hosted by @ggreenwald They show the scope of domestic surveillance abuses and global US operations. https://t.co/ZjSYddBfTS https://t.co/HOgmGGKPBa” / Twitter](https://twitter.com/Techno_Fog/status/1339422757671591936)
-
-*忘记专家和政府官员的陈词滥调和谈话要点。*
-
-*相反，请阅读由“@ggreenwald”托管的源文档*
-
-*它们显示了国内监视滥用和美国全球行动的范围。*
-
-[http://glenngreenwald.net/#BookDocuments](http://glenngreenwald.net/#BookDocuments)
-
-斯诺登因为直面”影子政府 “而受到迫害
-
-[Techno Fog on Twitter: “Prosecuting Snowden isn’t about “justice” – if that was the case they’d have locked up the US officials who authorized and abused these programs. This is about retaliation. This is about an entitled Establishment who thinks they own your information. Let Snowden come home.” / Twitter](https://twitter.com/Techno_Fog/status/1339423897263992833)
-
-*起诉斯诺登不是**“正义”问题，如果真是这样，他们将封锁授权并滥用这些程序的美国官员。*
-
-*这是报复。*
-
-*这是关于一个有权的机构，认为他们拥有您的信息。*
-
-*让斯诺登回家。*
-
-**埃里克·斯诺登是受害者，或者说是影子政府的报复**。
-
-*（我们强烈建议您观看电影——《斯诺登》）。）*
-
-原文作者：乔·霍夫特（Joe Hoft）
-
-发布时间：2020年12月27日 上午8:15
-
-原文来源：[https://www.thegatewaypundit.com/2020/12/eric-snowden-commit-crimes-releasing-information-deep-states-illegal-collection-data-americans/?ff\_source=Twitter&ff\_medium=PostTopSharingButtons&ff\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/12/eric-snowden-commit-crimes-releasing-information-deep-states-illegal-collection-data-americans/?ff_source=Twitter&amp;ff_medium=PostTopSharingButtons&amp;ff_campaign=websitesharingbuttons)
+[https://www.youtube.com/watch?v=xqNM-I7Thok](https://www.youtube.com/watch?v=xqNM-I7Thok)
 
 0

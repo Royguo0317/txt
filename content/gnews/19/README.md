@@ -1,44 +1,80 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## &#8220;你被雇来擦玻璃和干杂活&#8221;—恶心！多米尼公司向证人梅丽莎·卡隆发了封讨厌的信
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/690861/)
+## 斯诺登发布影子政府非法收集美国人数据的信息，是否犯了罪？
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/690882/)
 
 翻译：康州盘古农场 – Bruce
 校对：康州盘古农场 – 烟波浩淼
 审核：康州盘古农场 – V
+![]()![](https://gnews.org/wp-content/uploads/2020/12/snd.png)
+许多人呼吁赦免埃里克·斯诺登（Eric Snowden），因为他揭露了 “影子政府（Deep State） “对所有美国人的间谍活动。
 
-**梅丽莎·卡隆（Mellissa Carone）告诉《门户网站》，多米尼克的CEO在作证时多次撒谎。**
-
-因为她敢于站出来对抗精英们… … 梅丽莎·卡隆现在正不断受到攻击。精英们不喜欢工人越界。
-
-现在多米尼克投票系统公司威胁梅丽莎·卡隆说她只是被雇用来做 “擦玻璃 “和 “其他琐碎的工作”。
-
-多米尼克公司还声称梅丽莎是明星证人 当鲁迪·朱利安尼请来几十个证人作证的时候。
-
-**这就是这些可怕的人对美国劳动者的看法!**
-
-*据[《每日来电》](https://dailycaller.com/2020/12/25/dominion-voting-systems-mellissa-carone-donald-trump-voter-fraud/)报道：*
-
-[*《法律与犯罪》*](https://lawandcrime.com/high-profile/dominion-attorneys-send-brutal-letter-to-trump-campaigns-so-called-star-witness-mellissa-carone/?utm_source=mostpopular)*称， 多米尼克投票系统公司的律师致函唐纳德**・川普总统的盟友， 包括西德尼**・鲍威尔和前多米尼克承包商梅丽莎**・卡隆，要求他们停止声称公司 “操纵 “了2020年的选举。*
-
-*《法律与犯罪》还称，多米尼律师托马斯·克莱尔（Thomas Clare）和梅根·迈耶（Megan Meier）发信命令相关人员停止发表”诽谤性 “言论，包括声称公司 “操纵或不当影响 “2020年总统选举的声明，《法律与犯罪》*[*报道*](https://lawandcrime.com/high-profile/dominion-attorneys-send-brutal-letter-to-trump-campaigns-so-called-star-witness-mellissa-carone/?utm_source=mostpopular)*了这封12月22日发给Carone的信。据《法律与犯罪》报道，多米尼克给卡隆的信还警告说，”有关这些问题的诉讼即将到来”。*
+斯诺登所做的是揭露我们政府对所有美国人的非法间谍活动：
 
 
 
-> Dominion Attorneys Send Brutal Letter to Trump Campaign’s ‘So-Called Star Witness’ Mellissa Carone[https://t.co/9uC9G0vLDP](https://t.co/9uC9G0vLDP)
-> — Law & Crime (@lawcrimenews) [December 24, 2020](https://twitter.com/lawcrimenews/status/1342236046424203265?ref_src=twsrc%5Etfw)
+> Edward Snowden exposed the worst 4th Amendment violations in US history: the unlawful collection of data on millions of Americans.
+> 
+> His fight was on behalf of the American people.
+> 
+> For that [@Snowden](https://twitter.com/Snowden?ref_src=twsrc%5Etfw) deserves a pardon from [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) [pic.twitter.com/y2w9KFLJLA](https://t.co/y2w9KFLJLA)
+> — Techno Fog (@Techno\_Fog) [December 17, 2020](https://twitter.com/Techno_Fog/status/1339420669218611200?ref_src=twsrc%5Etfw)
 
 
 
-*法律与犯罪 @lawcrimenews 12月24日*
+*爱德华**·斯诺（Edward Snowden）登揭露了美国历史上最严重的违反第四修正案的行为：非法收集数百万美国人的数据。*
 
-*多米尼律师向川普竞选活动的“所谓的明星证人”梅丽莎·卡隆（Mellissa Carone）发送野蛮信件*
+*他的斗争是代表美国人民的。*
 
-*据报道，克莱尔和梅尔在给卡隆的信中写道：”本月早些时候，你作为鲁迪·朱利安尼所谓的‘明星证人’ 获得了国际声誉，据说你可以证实关于多米尼克以某种方式操纵或以其他方式不当影响2020年11月美国总统选举结果的荒诞指控”。”在没有一点确凿证据的情况下，你声称你目睹了几个不同版本的选民欺诈行为——从一个涉及一辆货车的故事，到其他关于选票被多次计算的指控。尽管你一直知道你对多米尼克的攻击没有事实依据，但你还是发表了这些声明。”*
+*为此，**@斯诺登应该得到@唐纳德·川普的赦免。*
 
-原文作者：吉姆·霍夫特（Jim Hoft）
-发布时间：2020年12月26日 上午11:20
-原文来源：[https://www.thegatewaypundit.com/2020/12/hired-clean-glass-menial-tasks-disgusting-dominion-voting-systems-sends-nasty-letter-witness-mellissa-carone/?ff\_source=Twitter&ff\_medium=PostTopSharingButtons&ff\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/12/hired-clean-glass-menial-tasks-disgusting-dominion-voting-systems-sends-nasty-letter-witness-mellissa-carone/?ff_source=Twitter&amp;ff_medium=PostTopSharingButtons&amp;ff_campaign=websitesharingbuttons)
+*2020年12月17日 下午12:02*
+
+斯诺登发布了关于窃取数据的信息，以及美国国家安全局为自己的目的发布使用数据的计划。
+
+[Techno Fog on Twitter: “Recall what Snowden helped expose: 1) The illegal collection of metadata of millions of Americans 2) NSA plans to “Collect it All” and “Exploit it All” 3) Economic espionage and the abuse of private data https://t.co/rXvB1ga46A” / Twitter](https://twitter.com/Techno_Fog/status/1339421907423248386)
+
+*回想一下斯诺登帮助揭露的内容：*
+
+*1）数百万美国人非法收集**对**数据**定义和解释的数据*
+
+*2）国家安全局（NSA）计划“全部收集”和“全部利用”*
+
+*3）经济间谍活动和滥用私人数据*
+
+斯诺登的信息显示，影子政府正在监视每个人，然后将其用于自己的目的，甚至可能将数据卖给世界各地的暴徒，以谋取私利。
+
+[Techno Fog on Twitter: “Forget the clichés and talking points of pundits and gov’t officials. Instead, read the source documents hosted by @ggreenwald They show the scope of domestic surveillance abuses and global US operations. https://t.co/ZjSYddBfTS https://t.co/HOgmGGKPBa” / Twitter](https://twitter.com/Techno_Fog/status/1339422757671591936)
+
+*忘记专家和政府官员的陈词滥调和谈话要点。*
+
+*相反，请阅读由“@ggreenwald”托管的源文档*
+
+*它们显示了国内监视滥用和美国全球行动的范围。*
+
+[http://glenngreenwald.net/#BookDocuments](http://glenngreenwald.net/#BookDocuments)
+
+斯诺登因为直面”影子政府 “而受到迫害
+
+[Techno Fog on Twitter: “Prosecuting Snowden isn’t about “justice” – if that was the case they’d have locked up the US officials who authorized and abused these programs. This is about retaliation. This is about an entitled Establishment who thinks they own your information. Let Snowden come home.” / Twitter](https://twitter.com/Techno_Fog/status/1339423897263992833)
+
+*起诉斯诺登不是**“正义”问题，如果真是这样，他们将封锁授权并滥用这些程序的美国官员。*
+
+*这是报复。*
+
+*这是关于一个有权的机构，认为他们拥有您的信息。*
+
+*让斯诺登回家。*
+
+**埃里克·斯诺登是受害者，或者说是影子政府的报复**。
+
+*（我们强烈建议您观看电影——《斯诺登》）。）*
+
+原文作者：乔·霍夫特（Joe Hoft）
+
+发布时间：2020年12月27日 上午8:15
+
+原文来源：[https://www.thegatewaypundit.com/2020/12/eric-snowden-commit-crimes-releasing-information-deep-states-illegal-collection-data-americans/?ff\_source=Twitter&ff\_medium=PostTopSharingButtons&ff\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/12/eric-snowden-commit-crimes-releasing-information-deep-states-illegal-collection-data-americans/?ff_source=Twitter&amp;ff_medium=PostTopSharingButtons&amp;ff_campaign=websitesharingbuttons)
 
 0

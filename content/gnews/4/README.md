@@ -1,69 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 推特装聋作哑，放任中共辱骂西方政要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/690989/)
+## 加拿大紧急工资补贴 中共国企赫然在列
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/691136/)
 
-新闻来源：The National Pulse《国家脉动》； 作者：STAFF WRITER/撰稿人； 发布时间：2020年12月20日
+*蒙特利尔皇家山战友团 Tao*
 
-翻译/简评：努力；校对：SilverSpurs7；审核：johnwallis；Page：拱卒
-![]()![](https://gnews.org/wp-content/uploads/2020/12/Dreamer__Wing_johnwallis_Page_Daoiii_1.jpg)
-#### **简评：**
+*校对、上传 文怡*
+![]()![](https://gnews.org/wp-content/uploads/2020/12/CEWS-1-1.jpg)图片来源：canada.ca
+据《后千禧年报》12月22日报道，加拿大政府在21日公布了一个数据库，详细列出了在加拿大紧急工资补贴（CEWS）项目下获得政府财政支持的各家公司，中共政府的几家国有企业都在受助之列，其中一家公司还与新疆正在进行的种族灭绝事件有关。
 
-中共大外宣陈卫华因一系列“狗吠护主”行为名扬海外，言辞颇为激烈地人身攻击了西方保守派政客。可见中共这一发迹畎亩之中的流氓政党，篡权混入西方文明世界，却像泼妇一般派出大外宣骂街，极其有损形象；我们决不能让这种非法犯罪集团代表华夏子孙。将中国人与中共分开是我们新中国联邦人的毕生使命！
+该项目规定任何在加拿大税务局（CRA）注册了工资账户，且收入下降的公司，最高可以申请其员工工资的75%额度的政府补贴。由于这些公司不需要设在加拿大，只要在加拿大经营就可以，因此有多家外国公司，包括一些中共国国有企业，都在该项目中获得了可观的补贴。
 
-推特对于陈卫华这种极端侮辱性言论非但不进行审查和屏蔽，反而加以实名认证，再次暴露了与中共勾兑，放任攻击保守派言行的虚伪面孔。
+中航控股旗下的中国国航获得了工资补贴。国航在2020年上半年的收入大幅下降，使他们以此为由获得加拿大紧急工资补贴。值得一提的是国航与华为关系密切，包括安装由华为提供的新视频会议网络。另一家中国南方航空也同样获得了该计划的补贴。
 
-#### **原文翻译：**
+中国银行多伦多分行也获得了补贴。中国银行的丑闻由来已久，其中包括被指控从伊朗和叙利亚等国向哈马斯和巴勒斯坦伊斯兰圣战组织输送现金，这两个组织都被加拿大政府认定为恐怖组织。
 
-# 中共国国家媒体喉舌言语辱骂彭佩奥、法拉奇，推特拒绝采取行动
+今年早些时候，中国银行花了400万美元从一项洗钱调查中脱身。与此同时，加拿大外交部长弗朗索瓦-菲利普-尚帕涅（François-Philippe Champagne）在中国银行持有两笔合计价值120万美元的抵押贷款，这引发了对该部长潜在利益冲突的质疑。
 
-**中共国官方媒体《中国日报》欧洲分社负责人多次在推特上称美国国务卿蓬佩奥“不要脸”，建议他应该被关进关塔那摩湾军事监狱。**
+另一家与洗钱有关的中国国有银行–中国工商银行也同样得到了加拿大的紧急工资补贴。该公司的四名员工最近在西班牙因参与洗钱被判刑，并被处以2555万美元的罚款。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/o4PA6u0UczMrg/images/d6fea312-e2dd-4fea-8b0e-f0e74dad7396.jpg?asset_id=794ec22c-219c-4dbe-b373-bc7572484e0d&amp;img_etag=%220fe990ee2a4feb38388089a7c9c041d1%22&amp;size=2560)](https://spark.adobe.com/page/o4PA6u0UczMrg/images/d6fea312-e2dd-4fea-8b0e-f0e74dad7396.jpg?asset_id=794ec22c-219c-4dbe-b373-bc7572484e0d&amp;img_etag=%220fe990ee2a4feb38388089a7c9c041d1%22&amp;size=1024)在Twitter 上肆无忌惮 非礼美国政要的Chen Weihua （陈卫华） (@chenweihua) | Twitter
+中国移动也获得了紧急工资补贴，根据美国政府的报告，中国移动与中共国的军队–人民解放军（PLA）联系紧密。川普总统在上个月签署了一项行政命令，禁止美国人投资与解放军有联系的公司，中国移动就是名单上的公司之一。然而，这个公司在加拿大居然收到了大量的补贴。
 
-陈卫华是中国共产党的疯狂战狼。他的“新闻”机构由共产党政权的宣传部拥有并经营，宣传部是中共宣传部的委婉说法。
+据报道，中国移动投资了一家名为大华的公司，该公司为中共国政府提供监控技术设备。这些设备和技术被中共国用来控制维吾尔族穆斯林少数民族，并对其进行种族灭绝式的迫害。尽管自由党主导的国际人权委员会在报告中呼吁加拿大政府“采取必要的措施以确保加拿大个人、公司和公共机构不得投资参与支持或协助中共国侵犯基本人权的技术公司”，但这些中共国国企还是得到了加拿大政府的大量资金补助。
 
-陈常年批评川普，他对这位在对付中共方面有着良好记录的国务卿之蔑视大大升级。
+最后一家获得资金支持的是中国石油，尽管特鲁多政府的竞选承诺是遏制全球变暖，但在过去270年里，中国石油要为全球近1%的温室气体排放负责，尽管该公司1999年才成立。
 
-而声称要创造“健康对话”的推特却没有采取任何措施来限制陈卫华的冒犯行为，相反，甚至在他的名字后面授予他一个审核通过的“蓝标”。陈卫华的中国同胞不允许在推特上有言论自由，所以目前还不清楚为什么陈卫华需要被核实通过。
+此前不久，加拿大政府被曝出邀请中国军队在加拿大本土进行训练，在中共政府绑架并拘留两名加拿大公民后，这一训练被取消。
 
-推特在审查保守派方面一直采取强硬手段，还曾与中共军方代表一起参加会议，并雇佣了与中国共产党有关联的个人，但是它没有回应《国家脉动》就此事提出的问题，不过该平台确实因报道经证实的选举欺诈信息而屏蔽了《国家脉动》；但是推特也没有对陈卫华的账户采取任何行动，既没删除他的验证标记，也没有对这些质疑做出任何回应。
+评论：毫无疑问，加拿大政府已经被中共深度渗透和控制，特鲁多政府更是出卖国家利益来讨好中共。把事关国家安全的项目交给中共控制的公司，邀请中共党卫军来加拿大本土训练，迟迟不把华为踢出加拿大的5G网络建设，拒绝通过对中共国采取强硬措施的法案等等。与此同时，在操纵美国大选的外国国家名单中，加拿大赫然在目。特鲁多政府已经在共产主义的道路上渐行渐远，加拿大也正在失去盟友们的信任。
 
-在不到六个月的时间里，陈卫华12次给蓬佩奥贴上“不要脸”的标签。其中三条推文涉及陈卫华对蓬佩奥可能离任政府的庆祝，此前他宣布，如果乔·拜登当选总统，中共政府将是“赢家”。
+*[原文链接](https://thepostmillennial.com/state-owned-chinese-companies-among-recipients-of-canada-emergency-wage-subsidy)*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/o4PA6u0UczMrg/images/fdabdffc-4652-43aa-a0af-064a7e43e16c.png?asset_id=fab2336c-df2f-47e2-8178-6129d49ee701&amp;img_etag=%22bc1f150705a65e11f6ecf91d7515ccec%22&amp;size=4310)](https://spark.adobe.com/page/o4PA6u0UczMrg/images/fdabdffc-4652-43aa-a0af-064a7e43e16c.png?asset_id=fab2336c-df2f-47e2-8178-6129d49ee701&amp;img_etag=%22bc1f150705a65e11f6ecf91d7515ccec%22&amp;size=1024)
-
-陈卫华最近还在推特上称美国参议员玛莎·布莱克本（Marsha Blackburn）是“一辈子都是婊子”。陈卫华坚定地认为蓬佩奥应该被强制关进关塔那摩监狱，那可是一个用来关押恐怖分子的军事监狱。
-
-针对欧盟与中国签署贸易协议，斯坦福大学新闻学和乔治•索罗斯资助的世界新闻研究所(World Press Institute)研究员也坚称，“令人发指的迈克•蓬佩奥(Mike Pompeo)肯定心在滴血”:
-
-[!\[\]()!\[\](https://spark.adobe.com/page/o4PA6u0UczMrg/images/3529cf73-d0fb-498b-a03f-c49d424912e2.jpg?asset_id=a4328fed-c523-4e7d-a7fe-584d6f6637a1&amp;img_etag=%2206e30470c3d09a8e8553da8a087d746a%22&amp;size=2748)](https://spark.adobe.com/page/o4PA6u0UczMrg/images/3529cf73-d0fb-498b-a03f-c49d424912e2.jpg?asset_id=a4328fed-c523-4e7d-a7fe-584d6f6637a1&amp;img_etag=%2206e30470c3d09a8e8553da8a087d746a%22&amp;size=1024)
-
-讽刺的是，陈卫华还发了近20条推文，把蓬佩奥和阿道夫·希特勒的宣传部长约瑟夫·戈培尔相提并论。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/o4PA6u0UczMrg/images/454ea2e5-ed93-426b-a8a2-038755e4c402.png?asset_id=189f1f9c-4410-415e-acbf-0e68beec3645&amp;img_etag=%2217b69307e2786a0482aee11083009bd7%22&amp;size=1024)](https://spark.adobe.com/page/o4PA6u0UczMrg/images/454ea2e5-ed93-426b-a8a2-038755e4c402.png?asset_id=189f1f9c-4410-415e-acbf-0e68beec3645&amp;img_etag=%2217b69307e2786a0482aee11083009bd7%22&amp;size=1024)
-
-陈卫华的批评不仅限于蓬佩奥。他一直热衷于攻击许多西方保守派人物，包括推动脱欧人士奈杰尔•法拉奇(Nigel Farage)。当法拉奇鉴于中共国拙劣的新冠肺炎疫情处理，将取消圣诞节归咎于中共国，陈卫华告诉他“别废话了”:
-
-[!\[\]()!\[\](https://spark.adobe.com/page/o4PA6u0UczMrg/images/933d36f2-4a20-47fc-b4a9-139dac5be779.jpg?asset_id=a5d9cc07-a1d2-4d69-adac-b49c6367a9cb&amp;img_etag=%2295167fcc648e1aa418f60b471a27123e%22&amp;size=2560)](https://spark.adobe.com/page/o4PA6u0UczMrg/images/933d36f2-4a20-47fc-b4a9-139dac5be779.jpg?asset_id=a5d9cc07-a1d2-4d69-adac-b49c6367a9cb&amp;img_etag=%2295167fcc648e1aa418f60b471a27123e%22&amp;size=1024)
-
-(戴上口罩，闭嘴吧。） — Chen Weihua （陈卫华） (@chenweihua) December 20, 2020
-
-法拉奇回击，要求中共国赔偿CCP病毒以及随后的掩饰行为造成的损害:
-
-[!\[\]()!\[\](https://spark.adobe.com/page/o4PA6u0UczMrg/images/27866ff8-d380-4421-851a-3f48d0fa5c40.jpg?asset_id=7e551f2e-26ed-4ec4-922b-bd1a62b64205&amp;img_etag=%220799939b6181656a38fa35bf56f4222c%22&amp;size=2560)](https://spark.adobe.com/page/o4PA6u0UczMrg/images/27866ff8-d380-4421-851a-3f48d0fa5c40.jpg?asset_id=7e551f2e-26ed-4ec4-922b-bd1a62b64205&amp;img_etag=%220799939b6181656a38fa35bf56f4222c%22&amp;size=1024)
-
-中共不喜欢真相，并且总是咄咄逼人地回应。他们应该为这场全球性的灾难向西方支付赔偿。https://t.co/7XlaLTY34Z -奈杰尔·法拉奇(@Nigel\_Farage) 2020年12月20日https://t.co/7XlaLTY34Z
-
-[原文链接](https://thenationalpulse.com/news/pompeo-ccp-media/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/o4PA6u0UczMrg/)
-[!\[\]()!\[\](https://spark.adobe.com/page/o4PA6u0UczMrg/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/o4PA6u0UczMrg/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0
