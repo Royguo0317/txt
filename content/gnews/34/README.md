@@ -1,21 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭文贵先生今日动态（2020年12月27日）
-` Fightforthetrue` [轉載自GNews](https://gnews.org/zh-hans/692339/)
+## 简讯集锦
+` Himalaya Farm Germany 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/693607/)
 
-摘要组
+作者：铜豌豆, 喜马拉雅德国慕尼黑感恩农场
 
-【持续更新】录制关于中共前情报头子副总参谋长二部部长熊光楷视频，手机遭频黑客，他是真正的双面大沼泽地里的变色鳄鱼！
-![]()![](https://gnews.org/wp-content/uploads/2020/12/1-2-16.jpg)
-00:01 12月27号，尊敬的战友们好，昨天晚上半夜里，我录了个视频，就是我们欧洲的战友的，跟熊光楷的关系。录完以后，我就开始编了这个，写熊光楷怎么样怎么样。我的手机迅速，第一次上传，迅速的崩塌，好久才把手机开了机，开不了机。然后再传，传不上去，然后手机怎么点都传不上去。
+校对：西联777, 喜马拉雅德国慕尼黑感恩农场
 
-00:33 不但如此，我手机多次被黑。哇塞，我第一次，从爆料革命开始，这个当年王岐山和孟建柱、孙力军有这个待遇。现在熊光楷都快进棺材板了，还有这个厉害。真不简单哪。结果录的九分五十七秒的视频，截了很多次，发了十次以上，我今天早上才发出去。而且手机最起码四五次全部是黑屏。然后完蛋，可能那个号也不能用了。那个号就是根很多战友联系的号。就是现在我正在录屏这个号。
+**简讯****I**
 
-01:09 哇塞，熊光楷这厉害啊。这共产党，真是啊。刘彦平说对了，这个熊光楷在美国，在世界，各种皮肤，各种颜色的人认识的都我们多多啦。厉害着咧。哇塞。熊光楷啊，熊光楷。中啊。你。走着看。
+周五圣诞节早晨纳什维尔城区当地的紧急事件处理部门处理了一起大规模爆炸事件。在爆炸地点前方，一辆停在第二大街的房车一直播放语音警告，警告持续了30分钟，然后爆炸倒计时开始。几位警官在爆炸发生前清空了附近的建筑。CBS新闻收到了来自多个来源的信息，安瑟尼·奎因·华纳，63岁的一个纳什维尔人拥有同一型号和生产厂家的房车。
 
-（视频结束）
 
-更多信息请点：[https://gtv.org/getter/5fe8974787fabe2daf2b0309](https://gtv.org/getter/5fe8974787fabe2daf2b0309)
 
-+1
+> [BREAKING: Authorities Have Person of Interest Tied to Nashville Christmas Day Bombing](https://www.thegatewaypundit.com/2020/12/breaking-authorities-person-interest-tied-nashville-christmas-day-bombing/)
+
+
+
+**简讯****II**
+
+爆炸要炸掉AT&T的大楼，这栋大楼跟多米尼有关联。多个报道称，被炸的AT&T大楼跟多米尼选票系统有清晰的关联。根据维基百科和其他透露出来的讯息，赛伯乐斯资产管理在2007年就拥有了AT&T。
+
+
+
+> [AT&T Building That Was Bombed In Nashville Has Connections To Dominion](https://welovetrump.com/2020/12/26/att-building-that-was-bombed-in-nashville-has-connections-to-dominion/)
+
+
+
+**简讯****III**
+
+川普总统再一次坚定的站出来反对垄断科技公司和保护他们的230法案。12月26日，川普总统发推评价《国防授权法案》。他说：“我绝不会坐视不理，眼睁睁看着这个法案对于垄断科技公司毫不控制。在还来不及的时候，终止230条款，现在就做！这个230条款对于我们的国家来说太糟糕了。显示出你的勇气吧，做点儿正确的事儿吧！”
+
+众议员也有人站出来反对230条款。众议员少数党领袖凯文·麦克卡尔西说道：“230条款需要被取消，这些科技公司并没有按照230条款当初被制定出来的初衷去行事，我们每天都能看到他们的劣迹，他们不再需要那种保护了。”
+
+[https://www.oann.com/trump-slams-big-tech-calls-ndaa-a-travesty-of-a-bill/](https://www.oann.com/trump-slams-big-tech-calls-ndaa-a-travesty-of-a-bill/)
+
+**简讯****IV**
+
+脱欧：欧盟和英国发表了贸易协议
+
+英国在周六公告了同欧盟的贸易协议。协议的公布正好在脱欧过度期将要结束的五天前公告，这意味着平稳的过度。英国平稳的离开了世界上最大的贸易区之一的欧盟区。协议文件有1246页，包含了未来双方的关系，包括在核能、法律、争议方面，以及一些列联合声明。
+
+[https://www.dw.com/en/brexit-eu-and-uk-publish-trade-agreement/a-56062356](https://www.dw.com/en/brexit-eu-and-uk-publish-trade-agreement/a-56062356)
+
+0

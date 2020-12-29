@@ -1,19 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 疫情是个筐，中共什么都往里面装
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/692053/)
+## 【皮特纳瓦罗推文1225】-推特为中共作恶
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/693610/)
 
-**作者：sam** **编辑：大右派**
-![]()![](https://gnews.org/wp-content/uploads/2020/12/4654.png)
-据北京日报客户端12月26日报道，北京市疾控中心副主任庞星火表示，12月23日0时至12月24日16时，北京市新增报告2例无症状感染者，市、区疾控机构、医疗机构正在进行复核与诊断，结果待报，不排除进一步发现病例的可能。“请市民朋友始终绷紧疫情防控这根弦，落实好常态化防控措施，非必要不出境、不离京；在进行核酸检测未反馈检测结果前，最好不离京。”庞星火说。
+12月25日关于美国国土安全部和内务部长Ron Johnson议员和美国贸易和制造业主任皮特纳瓦罗先生的几则推文如下。
 
-新冠疫情已经肆虐近一年，但中共从未发布过真实的疫情数据和真实报道，真实消息几乎完全被压制，个人发布疫情信息也会很快被禁声。在全世界疫情继续不断扩大、病毒不断变异的情况下，中共国内仅有零星病例公布，让人匪夷所思。
+#### **Senator Ron Johnson：**
 
-事实上，新冠病毒疫情在中国大陆就没有消停过。从各种迹象可以看出，中共已经将疫情设计成了一个筐，什么都往里面装。当某地社会有严重不稳的苗头时，当局可以宣布又发现感染病例，然后装模作样的封城、消毒，要求居民待在家里，这样，就把社会不稳定因素消灭在了萌芽状态。**如果某地政府财政紧张，体制内官员快发不出工资时，当局可以对个别病例进行大肆宣传，然后全员检测，又可以收取天量检测费。**当某地出现一些公民维权意见领袖，当局不好直接抓人时，也可以这些人感染病毒为由，抓到特定场所“监护”起来，从而消弭不同的声音。为了减少外汇的消耗，当局可以宣布，外来进口的海鲜、牛羊肉外包装上有病毒，然后以此为借口减少进口外国粮食、海鲜、牛羊肉等。为了控制人员外逃和出国旅游人数，中共政府还可以渲染某些国家疫情加剧，设置各种关卡，限制国民出境，从而把“韭菜”们牢牢地掌握在手中。
-![]()![](https://gnews.org/wp-content/uploads/2020/12/Screen-Shot-2020-12-28-at-7.40.43-PM.png)
-最近，中共喉舌又宣布大连、沈阳、北京等地疫情加剧，政府开始发文要求百姓不能随便离开所在城市。中共葫芦里究竟卖的什么药？到底是疫情真的加剧了，还是为了维稳的需要，尚不得而知。但有一点可以肯定，中共所做的一切，都是为了维护它的反动统治，无论它的喉舌说得多么动听。
 
-中共这个世界上最大最恶的毒瘤，如果不及早铲除，不仅人类要遭殃，我们赖以生存的环境以及和我们朝夕相处的动植物们也将难以幸免。2003年的非典疫情，当局用钟南山等人，将疫情责任推到了果子狸身上。2019年底至今的疫情，蝙蝠、乌龟等动物也惨遭“诬陷”。覆巢之下安有完卵，中共治下没有平安。如果科学家们哪天发现人类的粪便极具经济价值，那么中共也会把“韭菜”们的屁眼儿收归国有，成立个“肛门办”之类的机构管起来。只盼望国内外正义力量赶紧联合起来，消灭中共这个人类历史上空前绝后的恶魔，才不会再发生“新冠肺炎”这样的惨剧！
+令人气愤的是 @Twitter
 
-+8
+推特暂停了Zelenko博士的账户。@zev\_dr
+
+他把自己的一生都奉献给了拯救他人的生命。
+
+多少#Covid\_19（中共病毒疫情）的病人被Dorsey “医生 “@jack (Jack Dorsey 推特总裁） 诊治？
+
+因为他的审查制度，会让多少人失去生命？
+
+
+- ![]()![](https://gnews.org/wp-content/uploads/2020/12/zelenko-account-suspended.png)
+
+推特公司通知 Zelenko医生（因传递羟氯喹药等救治和预防中共病毒）：您的推特账号违反规定被临时关闭。[https://twitter.com/SenRonJohnson/status/1341882061708259330?s=20](https://twitter.com/SenRonJohnson/status/1341882061708259330?s=20)
+
+
+#### Senator Ron Johnson：
+
+
+推特 “操控平台 “、 “压制信息 “，将Zelenko医生账号审核关停了。
+
+看来，这是在黑锅说黑话啊！！！
+
+
+
+> .[@Twitter](https://twitter.com/Twitter?ref_src=twsrc%5Etfw) suspended (censored) Dr Zelenko for “platform manipulation” and “suppression of information”. 
+> 
+> Seems like the pot is calling the kettle black!!! [https://t.co/YIAIEXrAQt](https://t.co/YIAIEXrAQt)
+> — Senator Ron Johnson (@SenRonJohnson) [December 24, 2020](https://twitter.com/SenRonJohnson/status/1341914314349957120?ref_src=twsrc%5Etfw)
+
+
+[https://twitter.com/SenRonJohnson/status/1341914314349957120?s=20](https://twitter.com/SenRonJohnson/status/1341914314349957120?s=20)
+
+
+
+#### Peter Navarro：
+
+
+然而，中共可以骂国务卿（蓬佩奥）是 “战犯”，却没有被推特审核关停。
+
+@mikepompeo
+
+
+- ![]()![](https://gnews.org/wp-content/uploads/2020/12/peter-2.png)
+
+[https://twitter.com/RealPNavarro/status/1342170617978744833?s=20](https://twitter.com/RealPNavarro/status/1342170617978744833?s=20)
+
+
++2

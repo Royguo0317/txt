@@ -1,17 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美军B-1B枪骑兵密集前突部署切近三亚榆林军港
-` 快慢机` [轉載自GNews](https://gnews.org/zh-hans/692585/)
+## 部分共和党参议员准备在1月6日拒绝选举团计票
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/693807/)
 
-内军事：快慢机
-![]()![](https://gnews.org/wp-content/uploads/2020/12/EqUUwKrUUAAARF8.jpeg)
-当地时间12月27日，美军驻关岛安德森空军基地的B-1B枪骑兵远程战略轰炸机中队再次前突执行对南中国海区域的战备巡航任务。本次前突部署航迹已达到切近中共海南岛三亚榆林军港基地周边空域。西沙群岛区域则全部位于战备巡航打击半径之内。
+翻译：康州盘古农场-Bruce
+校对：康州盘古农场-烟波浩淼
+审核：康州盘古农场-V
+![]()![](https://gnews.org/wp-content/uploads/2020/12/Screen-Shot-2020-12-28-at-4.22.33-PM.png)视频截图：https://www.youtube.com/watch?v=MGi3mUEcMsc
+一些共和党参议员准备在下个月拒绝选举团的计票。在参众两院准备于1月6日进行正式计票之际，一群共和党众议员正计划反对选举团的计票结果。
 
-前不久刚刚率队尾随美军麦凯恩号宙斯盾舰穿越台海的中共常规动力航母山东号，随后直奔海南三亚的榆林港海军基地进行战备演练。中共还大言不惭的对外声称美军麦凯恩号穿越台海时，遭遇了中共海空军的全面警告驱离。而随后被美军印太司令部闪电打脸，美军表示麦凯恩号在穿越台海期间，并未遇到任何有关来自于中共方面的所谓海空军警告驱离情况。美军是在严格遵守国际法的框架范围内，正常行使自由航行的权利，中共所谓对其展开的海空军警告驱离纯属无稽之谈！
+该团体由众议员莫·布鲁克斯(Mo Brooks)领导，至少需要一名参议员站在他一边，才能强行就此事进行辩论。
 
-山东号航母此次率队远赴海南三亚，主要是故作姿态演给大陆民众看的一场“战狼”式洗脑神剧。19年中共同样为了稳定军内士气，强行把还未完工的山东号航母赶鸭子上架式的匆忙入役。习总书记还专程到三亚为山东号主持了声势浩大的入役仪式。随后山东号便迅速低调返回位了位于辽宁大连的中船重工船厂，进行后续赶工作业程序，实际上此时的山东号还连一艘完整的军舰都算不上，中共为了充门面竟然在国防领域方面也掺假如此程度欺瞒大陆民众。
+[Mark Meadows on Twitter: “Several members of Congress just finished a meeting in the Oval Office with President @realDonaldTrump, preparing to fight back against mounting evidence of voter fraud. Stay tuned.” / Twitter](https://twitter.com/MarkMeadows/status/1341157317451124745)
 
-这次美军B-1B前突切近海南三亚榆林军港之时，正值山东号率队在周边海域进行演练，由于此前中美双方刚刚切断军事高层的安全对话通道。美军此时选择大举前突切近部署实则在向中共军方展开施压，传递一则明确讯号——美军绝对不会放任中共在南海的肆意军事扩张！
+*马克·麦道斯（@MarkMeadows）推文：*
+*几位国会议员刚刚在椭圆形办公室与总统会晤*
+*@realDonaldTrump准备用越来越多的证据反击选民欺诈。*
+*敬请关注。*
 
-+3
+潜在的同情者包括新上任的共和党阿拉巴马州参议员汤米·图维尔（Tommy Tuberville(R-Al.)，他的竞选得到了总统的支持，共和党肯塔基州参议员兰德·保罗（Rand Paul(R-Ky.)）和共和党乔治亚州参议员凯莉·洛夫勒（Kelly Loeffler(R-Ga.)）。
+
+此前，参议院多数党领袖米奇·麦康奈尔(Mitch McConnell)敦促共和党投票反对总统川普。麦康奈尔已经祝贺乔·拜登成为所谓的大选赢家，尽管普遍存在选民欺诈的说法。
+
+“我要祝贺当选总统乔·拜登。当选总统对参议院并不陌生，他多年来一直致力于公共服务。”麦康奈尔表示。
+
+周日，川普总统表示，他可能会得到强制进行这一投票所需的支持，他说：”1月6日在华盛顿特区见，不要错过。”
+
+[Donald J. Trump on Twitter: “See you in Washington, DC, on January 6th. Don’t miss it. Donald J. Trump on Twitter: “See you in Washington, DC, on January 6th. Don’t miss it. Information to follow!” / Twitter](https://twitter.com/realDonaldTrump/status/1343328708963299338)
+
+*川普总统推文：*
+*1月6日，华盛顿特区见，不要错过。*
+*相关信息请关注!*
+
+国会两院需要简单多数票才能拒绝选举人团的计票。
+
+来源：《美国新闻网》新闻室
+更新时间：太平洋时间2020年12月28日 上午8:05
+原文来源：
+
+[https://www.oann.com/some-gop-senators-prepare-to-reject-electoral-college-vote-count-on-jan-6/](https://www.oann.com/some-gop-senators-prepare-to-reject-electoral-college-vote-count-on-jan-6/)
+[https://www.youtube.com/watch?v=MGi3mUEcMsc](https://www.youtube.com/watch?v=MGi3mUEcMsc)
+
+0

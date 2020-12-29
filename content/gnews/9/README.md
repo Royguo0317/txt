@@ -1,42 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统修正纾困法案，要求将福利提高到2000美元，终止或修订第230条款，并对选民欺诈进行调查
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/692825/)
+## 【鲍威尔律师推文1228】人肉中共代理人交易人
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/694145/)
 
-- 编辑：Victor Torres
+喜马拉雅的文雅
+
+👉本文根据关注账号的推文情况持续更新中👉
+![]()![](https://gnews.org/wp-content/uploads/2020/12/trump-gave-up-luxury-lif-for-country-buden-vs-1.jpeg)
+
+查找与 #中国 有关系的 #全球主义 参议员和国会议员的**事实**。
+仅证明事实
+商业交易
+#游说者 付款
+各地区的大项目
+付给大学的款项
+这里 #中国 都拥有什么？
+谁拥有这里？
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+- ![]()![](https://gnews.org/wp-content/uploads/2020/12/sidney-1.png)
 
-**西班牙2020年12月28日电/西喜社——**
+[https://twitter.com/SidneyPowell1/status/1343733200577769473?s=20](https://twitter.com/SidneyPowell1/status/1343733200577769473?s=20)
 
-川普总统在12月27日法案签署时发表了声明[强调我们的]：
 
-作为总统，我已经告诉国会，我希望浪费的钱更少，而要给美国人更多的钱，每位成年人2,000美元，每个孩子600美元。
 
-作为总统，我要根据1974年的《蓄水池控制法》提出许多要求。该法规定：“只要总统确定不需要任何预算授权的全部或部分来执行其全部目标或计划范围， 或由于财政政策或其他原因（包括终止已提供预算授权的授权项目或活动）而取消该预算授权，总统应向国会两院致意，说明其金额保留，相关说明，撤消的原因以及撤消的经济影响。 2 U.S.C. §683。
+请通过回复此推文补充你了解的事实，说出政治官员的名字和事实。
+＃EricSwalwell – 中国间谍 ，在众议院情报委员会上
+@SenFeinstein- 中国间谍，在参议院情报部工作20年
 
-我将在综合打包协议上签名，并带有强烈的信息，向国会明确表示需要清除浪费的物品。 我将逐项将带红线的版本寄回国会，同时附有对国会的正式撤销请求，其中坚持要求从法案中删除这些资金。
+还有什么？
+还有谁？
+#我们人民 不会放弃美国
 
-我即将签署该法案，以恢复失业救济，停止驱逐，提供租金援助，为PPP增加资金，使我们的航空工人重返工作岗位，为疫苗分发增加更多的钱，等等。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/sydney-2.png)[https://twitter.com/SidneyPowell1/status/1343733278063398913?s=20](https://twitter.com/SidneyPowell1/status/1343733278063398913?s=20)
+回复鲍威尔律师的推文：
 
-周一，众议院将投票决定对个人的付款从600美元提高到2,000美元。 因此，一个四口之家将获得5,200美元。 此外，国会保证将对第230条款（将不公平地惠益大科技公司而损害美国人民的利益）进行审查，并终止或进行实质性改革。
+请看Smithfield 食品公司销售给中国的记录 [https://www.govinfo.gov/content/pkg/CHRG-113shrg87565/html/CHRG-113shrg87565.htm](https://www.govinfo.gov/content/pkg/CHRG-113shrg87565/html/CHRG-113shrg87565.htm)
 
-同样，众议院和参议院已同意将重点集中在11月3日总统选举中非常严重的选民欺诈上。
+- ![]()![](https://gnews.org/wp-content/uploads/2020/12/sidney3.png)
 
-参议院将开始投票程序，将支票增加到2,000美元，废除第230条，并开始调查选民欺诈行为。
+[https://twitter.com/JeffBales6/status/1343746842543198218?s=20](https://twitter.com/JeffBales6/status/1343746842543198218?s=20)
 
-大技术一定不能获得第230条款的保护！
 
-选民欺诈必须得到解决！
 
-将会有更多的钱来。 我永远不会放弃为美国人民而战！
+数字士兵 （网上的战友们）
 
-该法案在众议院和参议院中均拥有否决权，因此这是总统借此机会强调垃圾法案需要进行修改的机会。
+我们还需要将 #索罗斯 资助的检察官和他的 “国务卿项目 “与最严重的犯罪领域 #选举舞弊 进行信息汇总叠加。
 
-新闻来源：[https://www.thegatewaypundit.com/2020/12/signing-covid-19-relief-bill-president-trump-redlines-bill-requesting-increase-benefits-2000-section-230-terminated-revised-investigation-voter-fraud-performed/](https://www.thegatewaypundit.com/2020/12/signing-covid-19-relief-bill-president-trump-redlines-bill-requesting-increase-benefits-2000-section-230-terminated-revised-investigation-voter-fraud-performed/)
+有多少认证的诈骗是由 #索罗斯 资助的？
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+
+- ![]()![](https://gnews.org/wp-content/uploads/2020/12/sidney-4-1.png)
+
+[https://twitter.com/SidneyPowell1/status/1343749358559383553?s=20](https://twitter.com/SidneyPowell1/status/1343749358559383553?s=20)
+
+
+
+
+请注意，鲍威尔律师使用了“中国”“中国的”一词，建议战友在宣传中共不代表中国或中国人的概念时， @鲍威尔律师的账号。另一方面也反映出中共在国际社会给中国和中国人留下多么恶劣的影响，客观上一般人把一个政府等同于这个国家的国民。是革命让我们开智，让世界明智，厘定清晰这些至关重要的概念和历史真相，把我们本身作为受害者与中共区分开来。因此我们要消灭中共，感恩爆料革命。
+
+
+
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17020735/Wenya-Logo-3.png)
+
 
 0

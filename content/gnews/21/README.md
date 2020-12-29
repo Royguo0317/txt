@@ -1,31 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12/28/2020 财经快讯: 中共国要求蚂蚁集团回归支付本源; 越南第四季度经济增长4.48%; 委内瑞拉恢复对中共国直接出口石油
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/692641/)
+## 坚信爆料革命 履行你我使命
+` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/693955/)
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/Screen-Shot-2020-12-28-at-11.23.51-pm.png)图片来源： https://www.voachinese.com/
-1.(彭博社) 中共国监管机构命令马云的在线金融巨头蚂蚁集团有限公司回归其作为支付服务提供商的本源，威胁要扼杀其最赚钱的消费贷款和财富管理业务的增长。
-[https://finance.yahoo.com/news/china-tells-ant-return-roots-150243707.html](https://finance.yahoo.com/news/china-tells-ant-return-roots-150243707.html)
+![]()![](https://gnews.org/wp-content/uploads/2020/12/93c4be1ed55624288bac32d6b18995f3.jpg)
+作者：文海 (京都富士会）
 
-2.随着出口和制造业从今年早些时候的疫情衰退中复苏，越南经济在第四季度加速增长。越南国家统计局(General Statistics Office) 周日说，第四季度越南国内生产总值 (GDP)较上年同期增长4.48%，高于第三季度修正后的2.69%。
-[https://finance.yahoo.com/news/vietnam-economy-expands-4-48-073010425.html](https://finance.yahoo.com/news/vietnam-economy-expands-4-48-073010425.html)
+校正：待命（文晓）（京都富士会）
 
-3.中共国有关部门本月在苏州通过“抽奖”的形式，向当地居民免费发放了2000万元的数字货币红包，用于线上及线下购物。目前这一试点计划已经结束，参与者总共花了2000万数字货币用于购买一年量的洗衣粉等物品。
-[https://www.tweet247.net/news/world/china-envisions-its-digital-currency-future-with-lotteries-and-a-years-worth-of-laundry](https://www.tweet247.net/news/world/china-envisions-its-digital-currency-future-with-lotteries-and-a-years-worth-of-laundry)
+排版：待命（文晓）（京都富士会）
 
-4.(路透社独家) 无视美国制裁，委内瑞拉恢复对中共国石油的直接出口。根据路孚特Eikon船只追踪数据和委内瑞拉国家石油公司 (PDVSA)的内部文件，委内瑞拉已恢复向中共国直接出口石油，此前一年多以来，美国的制裁使这种贸易一直在幕后进行。
-[https://in.reuters.com/article/venezuela-oil-china-exclusive-idINKBN28X08A](https://in.reuters.com/article/venezuela-oil-china-exclusive-idINKBN28X08A)
+跟爆料革命三年多，我们还是不能完全理解爆料革命。七哥准备了三十年，不是简单地推翻共匪，七哥是要开创世界新局面。
 
-5.(路透社) 英国贸易部周日表示，英国和土耳其预计将于周二签署一项自由贸易协议，双方已经敲定了旨在复制当前安卡拉和伦敦之间的有效贸易条款的合同文本。
-[https://mobile.reuters.com/article/amp/idUSKBN2910OC?\_\_twitter\_impression=true](https://mobile.reuters.com/article/amp/idUSKBN2910OC?__twitter_impression=true)
+这次不是地球生物第五次文明的开始！而是新人类第一次文明的开始。
 
-6.受北京对澳大利亚龙虾实施了近乎全面的进口禁令的影响，该行业受到严重冲击。龙虾商们开始将目光转向本土市场。此前澳大利亚的岩龙虾出口额每年达5亿美元，而在正常情况下，其中94%出口到中国。
-[https://www.scmp.com/economy/china-economy/article/3115456/china-australia-relations-lobster-traders-look-closer-home](https://www.scmp.com/economy/china-economy/article/3115456/china-australia-relations-lobster-traders-look-closer-home)
+从这一点上看，爆料革命的意义已经远大于我们的理解了！
 
-7.川普签署H.R.133 法案，包含9000亿美元CCP病毒应急响应和相关救济，受此影响，全球股市走高。
-[https://mobile.reuters.com/article/amp/idUSKBN29203S?\_\_twitter\_impression=true](https://mobile.reuters.com/article/amp/idUSKBN29203S?__twitter_impression=true)
+七哥直播的时候经常发出了感慨：爆料革命缺人啊！缺什么人？人才啊！
 
-By【Finance Team – Rosy Cloud】
+大部分人没有理解爆料革命的历史使命和意义。
 
-0
+不能理解爆料革命的意义，怎么能有很好的行动！怎么能有很好的包容和团结！怎么能面对突如其来的困难！
+
+国内战友不能参与G系列的心情可以理解，但是如果把精力全放在投资上，那爆料革命的意义就失去了。七哥总是提醒战友：不能把爆料革命生活化和娱乐化。
+
+有时候我们忘记了墙内无数传递情报的战友，他们才是真正的战斗在第一线的！随时都有可能被共匪发现死于非命……
+
+大家没有感觉到吗？七哥总是在关键时候和战友闲聊。为什么？
+
+七哥总是在关键时候出来引导迷失的战友，目的就是不让战友掉队，如果人人都能自觉跟紧爆料革命，七哥完全可以用直播的时间去做更多灭共的工作。
+
+七哥直播时说过，我们G系列，爆料革命，新中国联邦是一个整体规划，灭共是主线，但是更重要的是灭共之后的新中国联邦怎么有效的合理合法的营救更多的同胞，重建就是新生，只灭共不重建就是灾难！
+
+灭共的路上有很多困难很正常，我们战友集中火力，集中精神，携手前行，不抛弃不放弃。不灭共什么都没有，灭了共匪才有家人健康未来。
+
+感谢所有爆料革命战友！感谢七哥！感谢天神！
+
++1

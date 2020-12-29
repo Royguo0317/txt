@@ -1,29 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文1227】地下气象组织
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/692253/)
+## 美英即将在川普第一个任期内达成贸易协议
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/693498/)
 
-喜马拉雅的文雅
+加拿大多伦多枫叶农场 丁过
 
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/weather-underground.png)https://tv.gab.com/channel/ipot1776/view/the-weathermen-i-ipot-presents-5fe5e262098e991a4b2240d7
+校对 上传 辛丑
+![]()![](https://gnews.org/wp-content/uploads/2020/12/b-4.jpg)图片来自 BrexitCentral
+布莱巴特新闻网2020年12月28日报道，美国驻英国大使伍迪·约翰逊（Woody Johnson）表示，美英谈判代表将在川普总统任期结束前达成贸易协议。即将离任的美国驻英国大使伍迪·约翰逊透露，我们两国之间的自由贸易将推动我们所有人走向繁荣！我们的贸易谈判正在取得巨大进展。我们会完成这件事的。
 
+川普总统是英国脱欧的支持者，承诺“脱欧后达成一项大规模的新贸易协议”。乔·拜登则一直反对英国脱欧，是长期以来要求更多主权独立的脱欧运动的反对者。他和南希·佩洛西都曾经威胁说，如果英国离开欧盟，他将阻止与英国的贸易协议。
 
-最近有谁有贝尔纳丁-多恩（Bernadine Dorhn）的消息吗？ 或者她的丈夫比尔-艾尔斯（Bill Ayers）？
+川普在第一个任期实行的能源自给、贸易平等和产业回归政策，在去年中共病毒爆发之前已经取得成功: 原油产量跃升全球第一，税负大幅降低，资本和产业大量回归，失业率历史新低，税基大大扩展，国家财政向好。川普用4年时间创造了美国的经济奇迹。
 
-地下气象组织发生了什么？
+这个经济奇迹是川普“虎口夺食”取得的，这个“老虎”就是肮脏的全球主义者，包括在全球化中获得巨大利益的中共盗国贼，脸书这样的大公司，佩洛西和麦康奈尔这样的建制派，拜登这样的中共代理人。他们利用手中的公权结成利益共同体，共同制定和维护把社会财富放入自己口袋的贸易规则和国际秩序，比如全球主义者利用美国的低关税，把廉价商品倾销到美国市场，事实上掌握了部分美国的收税权和全球财富分配权，川普触碰这些利益，当然招致中共及美国暗黑势力的疯狂报复。
 
-奥巴马（美前总统）和艾尔斯家族有多亲近？
+全球主义者批评川普的政策是孤立主义，美英贸易协议的达成，说明川普并不奉行孤立主义，相反他在全球范围内寻求更广泛的平等贸易。
 
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/weather-twitter.png)
+拜登之所以不支持英国夺回主权的脱欧运动，原因是如果世界各国主权强化之后，民族经济将得到更多保护，不利于既得利益集团对各国财富的掠夺。几十年来在全球主义者的操弄下，世界各国已经债台高筑，经济危机重重，他们仍拼命维持这个给世界带来灾难的旧秩序，由此班农先生称他们是“肮脏的全球主义者”。
 
-[https://twitter.com/LLinWood/status/1343314888236691462?s=20](https://twitter.com/LLinWood/status/1343314888236691462?s=20)
+美英贸易协议即将达成，显示拜登所代表的既得利益集团已经处于下风。川普为美国国家利益和平民利益而战，得到8000万美国选民的支持，在国际上得到郭文贵先生领导的爆料革命的有力支援，逆转了正邪双方的力量对比。
 
+原文链接：
 
+[https://www.breitbart.com/europe/2020/12/28/we-will-get-this-done-us-ambassador-hints-at-last-minute-trump-trade-deal-with-the-uk/](https://www.breitbart.com/europe/2020/12/28/we-will-get-this-done-us-ambassador-hints-at-last-minute-trump-trade-deal-with-the-uk/)
 
-
-相关信息来源 [https://tv.gab.com/channel/ipot1776/view/the-weathermen-i-ipot-presents-5fe5e262098e991a4b2240d7](https://tv.gab.com/channel/ipot1776/view/the-weathermen-i-ipot-presents-5fe5e262098e991a4b2240d7)
-
-
-
-0
++2

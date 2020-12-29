@@ -1,31 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》每日简报早间版 2020.12.27&#8211;NewYork Time
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/692087/)
+## 内华达州务卿向与巴基斯坦三军情报局有关联的公司发送选民数据名单
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/693428/)
 
-出品《路德社》 编辑：路德社精选新闻专栏组
-![]()![](https://gnews.org/wp-content/uploads/2020/12/1227-AM-ZH-scaled.jpg)
-**12/27/2020 路德时评（路安墨谈）**
+- 编辑：Victor Torres
 
-**调查组结束了阿里巴巴的双簧调查**
 
-反垄断调查组三天便结束了阿里巴巴的调查。阿里巴巴大量账目和合同仅仅用了三天就调查结束，不知道的还以为是用点钞机看的账目。现在中共对其反垄断调查再加上国内的媒体造势大骂马云，其一切旨在为了阿里巴巴逃脱美国的中概股制裁。而阿里巴巴一直能在美国这般如鱼得水，背后离不开美国勾兑力量。其与中共一起利用阿里巴巴在美国市场圈钱分赃。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**川普发推1月6日见意味着什么大事**
+**西班牙2020年12月28日电/西喜社——**
 
-川普总统去海湖庄园过圣诞节并声明一月六日前不会回白宫。巧合的是其与肯尼迪时期所建的花生岛核避难所相距不远。其透露出许多信息，或许是为了安全、防止安提法暴乱，或者是为了避免其他的特殊情况。然而早在18年川普总统就启用该核避难所，说明一切都在川普总统的布局之中。
+凯瑟琳·恩格尔布雷希特(Catherine Engelbrecht)是 “真实投票 “(True the Vote)组织的创始人和主席。该组织是全美最大的选民权利组织。
 
-**姆努钦被美国媒体揭露和中共关系密切**
+该组织十多年来一直站在防止选举舞弊的第一线。在主要的州、县和选区建立以行动为导向的选举诚信运动。“真实投票”不支持特定的政党或候选人，只支持各级的公平选举。
 
-此次美国媒体揭露姆努钦与中共关系密切且与习有联系，扬言必须予以清理。但表面是在大骂姆努钦与中共勾结，实则是华尔街为敲山震虎，给川普施压使其签订刺激法案。可见川普总统此次海湖庄园之行用意深远。郭先生所说的关注两位副总统其深意也在逐渐显露。
+11月，”真实投票 “组织写信给内华达州州务卿，要求提供合格选民名单报告。当州务卿回复时，”真实投票 “组织震惊地看到名单被抄送给[email protected]。
 
-**路德金句**
+Kavtech是一家总部设在巴基斯坦的私人商业情报公司。与巴基斯坦情报机构三军情报局(ISI)关系密切。
 
-阿里巴巴在这几年的动荡之中吃了多少美国的资金，与中共的黑箱勾兑就是华尔街赚钱的原因。这些年自从中共加入WTO之后，华尔街的钱越来越多，实力越来越大，对美国政治的影响力及各方面越来越强。这也就是为什么他们必须要帮中共，一定不能让中共倒台的一种最重要的根本原因：与中共勾兑太赚钱了！！！
+该公司联合创始人瓦卡斯·巴特(Waqas Butt)在内华达州州务卿发来的包含选民个人身份信息的邮件中被抄送。
 
-文案：《路德社》简报组：seiya, 童谣
-审核校对：玫瑰天空
-上传排版：青葫芦娃
+“真实投票 “组织后来给国家安全部助理部长约翰·C·德默斯(John C. Demers)写了一封关于数据泄露的信。由Breitbart新闻独家获得的信件称，当邮件到达时，”我很震惊地看到抄送行中包含了另一个电子邮件地址”。
 
-+2
+Kavtech至少有一名员工是巴基斯坦三军情报局的坚定支持者。
+
+美国司法部拥有此信息。
+
+新闻来源：[https://www.thegatewaypundit.com/2020/12/evidence-foreign-influence-2020-election-nevada-secretary-state-caught-sending-voter-data-list-pakistani-firm-linked-isi/?utm\_source=Twitter&utm\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/12/evidence-foreign-influence-2020-election-nevada-secretary-state-caught-sending-voter-data-list-pakistani-firm-linked-isi/?utm_source=Twitter&amp;utm_campaign=websitesharingbuttons)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
++1

@@ -1,41 +1,87 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯:中共红杉资本赫然在列，海妖升级2.0版
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/692107/)
+## 会计，财报，审计入门基础与介绍（五）
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/693418/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23164109/1223.jpg)
+Picture Source: https://www.groomassocies.com
 
-专家门户网站2020年12月26日报道，西德尼·鲍威尔（Sidney Powell）律师本周在Zenger News发布了一份关于2020年大选外国干涉的爆炸性文件。该文件包括来自众多证人和资料来源的270页证据和证词。其中来自中共国的红杉资本，香港上海汇丰银行赫然在列，多米尼系统的基础设施经理ANDY HUANG（音译黄晓龙，曾任职中国电信）也被点名。
+在第五篇中则是详细展示财务审计与分析过程中所涉及的财务框架及各项目内容。有助于投资人或审计师依照富有逻辑且合理的顺序对于财务报表进行检阅。
 
-这份报告包括14个部分，红杉资本出现在第三部分，
+1.Components and Format of the Income Statement
 
-**3****）****[国土安全部](https://www.aboluowang.com/tag/%E5%9B%BD%E5%9C%9F%E5%AE%89%E5%85%A8%E9%83%A8-1.html)****将选举系统指定为关键基础设施。**
+- Revenue：递送商品或服务时收取的费用Ordinary Activities in Business
+- Expense ：资金流出Outflow，资产耗竭Depletion of Asset,
+- 负债发生Incurrences of Liabilities
+- Net Revenue：包含 Gain， losses
+- Net Income
+- Grouping by Nature：依照性质划分  （法律/税务/自然规律Depreciation….
+- Grouping by Function ：依照功能划分 (人为商业活动 / Cost of goods ……
+- Gross Profit：仅扣除主营业务成本 Revenue – Cost of Goods Sold
+- Gross Margin
+- Multi-step Format   Single-step Format
+- operating Profit
 
-**          a.****）高级别持续威胁行动包括，针对****SLTT****、关键基础设施、选举组织的薄弱环节。**
 
-报告明确中共通过运作红杉资本（sequoia），控制多米尼投票系统，SMARTMATIC投票机器，进而控制美国。报告指出Smartmatic由委内瑞拉共同出资，而中共控制了委内瑞拉。SMARTMATIC将红杉投票系统卖给了多米尼公司，而且一直沿用红杉系统的各种升级版本。报告登出红杉资本全球合伙人沈南鹏的照片，附加说明他作为红杉资本的创始人，是与中共联系的关键人物。
+2.Revenue
 
-报告提到汇丰银行多伦多分行，拥有18项多米尼系统的知识产权专利，而这些专利都直接与美国大选的系统设备接口。报告说红杉和汇丰与中国在线教育集团出于别有用心的邪恶目的联合在一起，成为偷盗2020美国大选的根源
+- Income收入的定义是基于以下三点的经济收益增长Increase in Economic benefit from
+- 资产的流入或提升Inflow / Enhancements of assets,
+- 债务的减少会导致权益的增加Decrease of Liabilities / result in increase inequity
+- 且和股东的贡献参与无关 Not Relating to contributions from Equity Participants
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/2801.png)
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/2802.png)
+3.General Principle 3.1
 
-在谈到红杉资本前，报告列出了多米尼系统的基础设施经理ANDY HUANG（音译黄晓龙，曾任职中国电信）的资料，指出他曾在中国国有企业中国电信工作，并且曾服务于CISCO(思科)，这家公司在中国网络防火墙的建设中起到了关键作用。报告说，中国电信与中国军方有超过20年的合作关系。
+- Revenue可独立于现金变动
+- Unearned Revenue = Liability
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/2803.png)
 
-这篇报告可以说将两个月的调查举证资料全盘托出，不愧是海妖2.0升级，不仅中共干预大选的证据被列出，民主党副总统候选人哈里斯的丈夫与SMARTMATIC的生产商的关系，克林顿与汇丰银行的关系，佩罗西与腐败加州亲戚关系都有所涉及。看了这篇报道，2020美国大选被外国干预毋庸讳言，而中共在其中扮演的破坏民主，践踏美国人权的黑帮形象已经深入人心。
+4.Accounting Standard for Revenue Recognition
 
-曾格新闻在报道中写到：“鲍威尔文件证明外国直接干涉和欺诈损害了11月3日的总统选举，唐纳德·特朗普总统连任”。在距离1月6日，美国国会认证选举人团票不到两周时间里，鲍威尔律师的报告为定义大选欺诈提供了详尽的证据，为“保卫和捍卫美国宪法，并确保[国会](https://www.bannedbook.org/bnews/tag/%e5%9b%bd%e4%bc%9a/)中忠诚地执行美国宪法”奠定了坚实的基础。
+- Revenue五个识别步骤
+- Contract with Customer
+- Separate / distinct performance obligation
+- Determine the Transaction price
+- Allocate the transaction price to the performance obligations in the contract
+- Recognize the revenue when the Entity satisfies a performance obligation
+- 严格注意：依靠佣金的独立销售代表的流水仅等于佣金，因为对商品服务不拥有权力
 
-【文章仅限作者个人观点】
 
-[援引](https://www.thegatewaypundit.com/2020/12/attorney-sidney-attorney-sidney-powell-releases-270-page-document-on-massive-2020-election-fraud-involving-foreign-interference-releases-270-page-document-massive-2020-election-fraud-involving-foreign/)
+5.Revenue获得确认，控制权转移给客户时的考虑要素
 
-本文作者：Sherryok水云间
-审核校对：玫瑰天空
-上传排版：糖果儿
+- Entity has present right to payment
+- Customer Has legal entity /Significant Risks and Reward Ownership
+- Physical Possession / Has Accepted the Asset
 
-+4
+
+6.Incremental Cost
+
+- 价格以及销售量紧密相关的成本，等于增量之后的总成本减去生产增量前的总成本
+- Converged Standard 标准下，盈利能力会以更高的水准体现
+
+
+7.Expense Recognition ：定义和Income 完全相反
+
+8.General Principle
+
+- Matching Principle： 公司确认相关收入并使收入和支出匹配时（Cost  of goods sold）
+- Period Cost: 特指和收入无法直接匹配的支出（Administrative，depreciation）
+- 计算库存成本方法
+- FIFO: 以库存的记录日期，按顺序依次累计决定已售成本
+- LIFO：以库存的记录日期，按倒序依次累计决定已售成本（IFRS禁止使用）
+- Weight Average Cost Method：简单平均数
+
+
+作者：搞笑排行榜
+
+原创观点文章 – 2020/12/28
+
+温哥华圆成农场
+
+
+
+
+
+0

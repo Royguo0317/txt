@@ -1,35 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发：警方回应帝国大厦炸弹威胁事件
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/691601/)
+## 1229第49期《前沿观察》“共产党，你完了！”
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/694209/)
 
-翻译：康州盘古农场-黎明的光芒
+撰稿/播报：康州盘古农场-寒郁冰
+视频：康州盘古农场-Buzz 文珂
+编辑：康州盘古农场-1984文姝
+审片：康州盘古农场-皮亚纳
+审核：康州盘古农场-Antsee-GTV
 
-校对：康州盘古农场-烟波浩淼
 
-审核：康州盘古农场-Rose
-![https://www.thegatewaypundit.com/wp-content/uploads/0-23.jpg](https://lh5.googleusercontent.com/KYci_GQTDwT5XBUMYwGPor9oV5xSvSqIxcYeLWFICV33kzeIH58RIe5fR9e6M-xYRqyAzwq-SXCGHY1lJKTbNuU4gtx1eouthQj0UMRkckFiw9553_ejF80NXwkDPPuAUnmsmV4hmoTySMWiPw)
-纽约市帝国大厦有人打9-1-1电话，说中午会有炸弹爆炸，警方正在作出回应。
 
-威胁（电话）是在上午11点多打来的。
+中共“生活会”事件惹风波，习近平“泰山压顶”揭示中共危局，匿名信惹恼中南坑！
 
-中午没有发生爆炸。
+12月26日文贵先生盖文写道：“共产党已经开始给自己倒数灭亡时间了……共产党的内部起义，以共灭共的时代正式开始！”
 
-[CIA-Simulation Warlord 🇺🇸🦈🇺🇸 on Twitter: “All is good at the Empire State Building live feed. https://t.co/AQ5SfQWEgp” / Twitter](https://twitter.com/zerosum24/status/1343242174704607233?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1343242174704607233%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2020%2F12%2Fbreaking-police-responding-bomb-threat-empire-state-building%2F)
+中共党内发出一连串尖锐质问：粮食问题，美国制裁导致的金融大动乱，没饭没水没电的百姓维稳，银行挤兑，外国势力干涉，国企债务，人民币崩盘，港币消失，九千万党员反目，互联网断网以及由此触发的社会大动乱、大崩塌、大爆炸等等危局如何破解……
 
-*中情局**–**模拟督军*![](https://lh5.googleusercontent.com/g7i_DQ_hb4W88y2JcxgbP45EhsP_kAgiuZ-U1dl_xYO-W89Pk5TIUvjE2KEaAoxHEXiVpMVjdebQ4wDK30d5MpynMlKNQFL44Cxhx3pZK0VhYt1g6hTwaOwKKVf_UilHcdFsaHUzPDQL3QlLtA)*@zerosum24*
+“山雨欲来风满楼”，内忧外困之下，中共已经感觉到他们的覆亡正在走近。“有史以来最大的挑战和压力究竟来源于哪里？事出何因？”是谁把“泰山”移到了中共的头上？病毒来源，如何给世界一个交代？
 
-*帝国大厦直播间一切正常。*
+60年周而复始，历史的轮回总是似曾相识。120年前《庚子赔款》的命运是否同样会降落到中共的头上？摇摇欲坠的中共还能过的去辛丑年吗？“摊子太大，麻烦太多，树敌无数”，中共现在回头、转向、刹车还来的及吗？
 
-不过，防爆队已经对威胁做出反应，目前正在大楼附近。
+文贵先生一锤定音：“当然来不及了！” 历史的审判之锤已经落下，灭亡是中共的必然命运。
 
-就在两天前，纳什维尔（Nashville）市中心的一条街道发生大规模爆炸前，人们被警告要疏散，这使得这条威胁更加令人震惊。
+在中共奔赴末日审判的途中，新中国联邦却石破天惊赫然而起。历史上从没有一个海外华人组织能够像新中国联邦这样具有如此强大的凝聚力和如此巨大的影响力。新中国联邦正凝聚起追求民主自由的华人，正塑造着全新的华人形象，在世界舞台上参与着书写历史的伟大使命，她才是新中国人真正的代表！
 
-事态正在发展中，如获得更多信息将及时更新。
+文贵先生的呐喊如雷贯耳，我们“一定会赢，而且一定会赢得非常精彩！”，“共产党，你完了！”
 
-原文作者：卡桑德拉·费尔班克斯（Cassandra Fairbanks）
+康州盘古农场报道
 
-发布时间：2020年12月27日上午11:13原文链接：[BREAKING: Police Responding to Bomb Threat at Empire State Building (thegatewaypundit.com)](https://www.thegatewaypundit.com/2020/12/breaking-police-responding-bomb-threat-empire-state-building/)
+文贵先生盖特视频：[https://gtv.org/getter/5fe756d793a06b22d9e21ccd](https://gtv.org/getter/5fe756d793a06b22d9e21ccd)
 
 +1
