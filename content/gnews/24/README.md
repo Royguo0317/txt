@@ -1,38 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德推文1228】视频-美国的回答
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/694404/)
+## 【林伍德推文1228】超級律師博伊斯的豪宅
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/694786/)
 
-**12月28日林伍德律师转发一则视频推文，推文称：**
+12月28日MSN刊登壹篇文章，億萬富翁律師大衛-博伊斯(David Boies)的加州牧場，占地1183英畝的莊園被稱為鉆石B，包括6棟房子、4個湖泊，和廣闊的葡萄園。正在掛牌出售。
 
-*不要忘了这个小可爱（战士们） … 带着上帝的旨意我会一路高歌到华盛顿美利坚国旗下 ，我们将拯救共和国！*
-
-**视频中写着：**“美国的回答”
-
-
-*歌中唱道：到那边，到那边，给那边带句话：美国佬来啦！美国佬来啦！锣鼓喧天响！那么准备好，祈祷吧，带句话，我们会过去，我们会走过去，我们不会回来，直到结束（直到胜利）。*”
+- 超級律師David Boies將以2300萬美元的價格出售他在加州的牧場。
+- Boies是這壹代最知名的律師之壹，他曾為Al Gore、Harvey Weinstein以及Jeffrey Epstein的壹些受害者代理案件。
+- 地產代理紅橡樹地產公司（Red Oak Realty）在代理掛牌出售。
 
 
-**林伍德律师回推：**
+林伍德律師轉推這篇文章稱：
 
+哇！David Boies從事法律工作壹定賺了不少錢!
 
-*尽管像中共这样的蹩脚的演员很想抹去我们国家的历史，但他们做不到。*
+他還必須收取高昂的時薪，尤其是對國際客戶？
 
-这就是美国。
+不知道他雇傭亨特-拜登為他工作時，支付了他多少錢？
 
-*我们为自由而战。*
+- ![]()![](https://gnews.org/wp-content/uploads/2020/12/linwood-lawyer-house.png)
 
+[https://twitter.com/LLinWood/status/1343739665959026688?s=20](https://twitter.com/LLinWood/status/1343739665959026688?s=20)
+文章来源
 
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/lin-1-1.png)
+[https://www.msn.com/en-au/news/world/take-a-look-inside-billionaire-lawyer-david-boies-california-ranch-which-includes-6-houses-4-lakes-and-is-up-for-sale-for-dollar23-million/ar-BB1cgsvE](https://www.msn.com/en-au/news/world/take-a-look-inside-billionaire-lawyer-david-boies-california-ranch-which-includes-6-houses-4-lakes-and-is-up-for-sale-for-dollar23-million/ar-BB1cgsvE)
 
-[https://twitter.com/LLinWood/status/1343582195848540163?s=20](https://twitter.com/LLinWood/status/1343582195848540163?s=20)
-
-
-中共：当你靠榨取和洗脑中国14亿百姓，盗取并转移国家巨额财富据为己有，当你为外国势力输送利益从而中饱私囊、实现统治世界的野心，当你用蓝金黄拿下一个个“唯利是图”的不良政商，你便不可一世，以为自己就是世界的中心了；当有正义的力量挺身而出，当香港人不畏强权捍卫自由和民主时，你更加穷凶极恶，居然把准备已久的生物病毒释放出来，当你看着无数科研、组织、政要被收买为中共病毒沆瀣一气说谎时，你得意了。你想当然以为，这个世界的脊梁已经被打断，于是你想拔掉最后的硬刺，你操控美国大选，企图搬倒川普、消灭爆料革命，谁知这棵硬刺变成了刺向共产主义心脏的宝剑！爆料革命越来越壮大，美国正义的力量已经觉醒。所有的人都无法再容忍你的霸凌奴役和泯灭人性的强权，你的毒侵入了中国的土地，美国的土地，全人类的肌体和大脑，正义力量绝不允许再这样下去！
-
-美国每一位勇敢的普通人，为捍卫总统选举的正义和完整，为自由和正义举起了手中的枪，誓死捍卫人权、保家卫国，这是真正的人民的力量。中共，当你看着雄赳赳气昂昂的美国士兵，你听到美国的回答了吗？
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17195020/Wenya-Logo-5.png)
-0
++1

@@ -1,111 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 听天安门四君子侯德健先生有感
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/694489/)
+## 共产党被自己的监控系统给出卖了！（盖特完整版）
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/694908/)
 
-作者：康州盘古农场 –小蓝先生
+新闻简述：散完步，文贵先生在他12月26日的盖特里透露共产党大屠杀和制造病毒的证据已经被拿到，而且还是被自己的监控系统拍下的。文贵先生告诫所有战友不要作恶，别以为自己的小聪明能管用，不要像共产党一样欺骗偷盗，要坚持唯真不破。
+[视频来源](https://gtv.org/getter/5fcbb71f20c9025a87dca1da)
+全文：
 
-审核： 康州盘古农场 –Truemanman
-![]()![](https://gnews.org/wp-content/uploads/2020/12/微信截图_20201228230320.png)
-历史总有一些有趣的角落，就像阿灵顿国家公墓裡那位芬兰出生的纳粹党卫军上校Lauri Törni一样，小我、大我于大时代中激盪。侯德健先生可能也是这样一位人物。其父侯国邦黄埔军校毕业，曾任总统府保卫营营长。其舅爷死于狙击义和团，其姑姑随其父长大。三反五反，其祖父因地主身份被正法，其祖母则因交不出黄金，十指被绑布条浸染桐油由其姑姑点燃。侯先生本人是美台断交后民歌运动的先驱，1983年因推托“三民主义统一中国”主题歌而前往大陆，启蒙了大陆的流行音乐。而后作为天安门四君子之一，动机是作为知识分子不应该躲在后面，起码应该在学生和坦克之间，但要做什麽，不知道，结果弄巧成拙。以上摘自侯先生为数不多的公开资料中的自述，《歌词1983》是侯先生作品裡比较独特的一首，写于1983年9月7日于新疆石河子。下面是马世芳先生对这首歌的介绍。
+Had a little walk around here, and it felt so good! Did a lap around here, not bad at all! Did a lap, really, not bad! Too many surveillance systems [along the way], “Click, click, click, click, click…” Look! Look! Surveillance system like this one, as you can see, is everywhere.
 
-“这张专辑的压轴，也是侯德健所有的作品裡面，可能最特别的一个段落，叫做《歌词1983》。它是
+走了走路，真舒服啊！哈哈！兜一圈，相当的不孬！兜一圈相当的，相当的不孬！太多监控系统，“咔咔咔咔咔…”你看看你看看！就这监控系统，你说无处不在。
 
-整张专辑的首场曲的一部分。整首曲子长达11分40秒，不要说在当时没人听过这样的作品，现在我想这样的尝试也是很少见的。整首曲子的歌词多达八百多字，那麽中间歌词侯德健是用朗诵的方式，念出他写的这些歌词。我知道有不少走过那个时代的文艺青年，在大陆，在香港，三十多年过去了他们到现在还能一字不拉的背诵这整首歌的歌词。当年听这首歌得到的可能是类似于启蒙的震撼，三十多年后的现在再听这首歌，你不禁会佩服侯德健简直可以称之为先知的眼光。
+Currently, the CCP has installed the most surveillance systems in the world, and they have sold their weapons of surveillance. It turns out that the CCP has now been completely screwed over by their own surveillance systems. The evidence of genocide and mass killing, as well as the making of the virus, have all been obtained. Look at this thing, look at this thing! So one should never do evil. The truth can’t be fake, and the fake can’t be true. Eventually, everything will be revealed to the public. Believe it or not, the CCP is the best example. Brothers and sisters, what can the NFSC and the Whistleblower Movement bring to everybody? “Only truth is unbreakable.”
 
-那时候 我们不知道甚麽是危险
+现在共产党布着全天下最多的监控系统，卖出了监控的武器。结果共产党现在被自己的监控系统彻底拿下。掌握了绝对的灭绝人寰的人类大屠杀、种族大屠杀，还有制造病毒，都被拿下。你说这玩意儿，你说这玩意儿！所以说人哪，别做恶。真的假不了，假的真不了，最后一切都会大白于天下。相信不？共产党就是你最好的例子。兄弟姐妹们，新中国联邦、爆料革命给大家带来的是什么？唯真不破。
 
-那时候 我们只知道拼命向前
+In no case should you do evil, and you should never believe that trying to be clever will work. Don’t use gods, spirits, or your hypocrisy to cover up your greed. Admit it if you are greedy, admit it if you are narrow minded, which is human nature. But one should not infringe on the interests of others. Moreover, one should not believe that it’s his or her opportunity out of other people’s stupidity. Are other people really stupid? Haven’t they seen it through? That’s because they just aren’t willing to say it.
 
-那时候 我们的汗水曾经比海水还要咸
+千万别做恶，千万别以为自己[的]小聪明[能管用]。不要用上帝，也不要用神，不要用你的[伪]善良，来掩盖你的贪婪。贪就是贪，有小心眼儿就[是]有小心眼儿，人之常情。但是不能侵犯别人的利益，更不要相信别人的愚蠢是你的机会。别人傻？别人没看见？那是人家不愿意说透。
 
-想当年 我们曾经一起渡河 也曾一起过桥
+Don’t act like the CCP. If you tell the CCP that, I want to withdraw money from my bank, and also I want to be fed, and I want to get paid. The CCP will say, “Hey, let’s talk about dream and passion.” Right? If you say, “I just want to get my things back.” It will say, “Then let’s talk about sacrifice and devotion.” Right? Whenever you say, “I need to feed my family.” It will say, “Hey, you need to talk about selflessness, and learn from Lei Feng! [a hero figure in CCP’s propaganda campaigns]”
 
-说从前 我们曾经一起上学 也曾一起坐牢
+你别像共产党似的。你给共产党一说，我要取银行的钱，我也想吃饱饭，我想给我发工资。共产党说：哎，讲情怀啊，是不是？我拿回属于我自己的。，那得讲奉献啊，是吧？给共产党一说：我家里人需要养活。哎？你要讲无私啊，你要学雷锋啊！
 
-我们都曾经一齐东征西讨
+S.O.B.! You [the CCP] took away money [from people]. You took away people’s lives. You took away public interest, and you not only own more wealth than the whole population of some nations, but you are almost controlling the whole universe! You push the people to advocate sacrifice and devotion, and not to do anything to benefit themselves, but people can only benefit you. This S.O.B. CCP has now been monitored by the surveillance systems built by itself. Oops! Won’t say anymore! I accidentally said too much, right? Okay, okay, okay. Gotta go! Gotta go! Coming, Coming! [As] soon [as] possible. Ho-ho, ho-ho, I am not allowed to talk too much.
 
-也曾经几乎就快要一起走到
+王八蛋！你们拿[走]的钱，你们拿[走]的人命，你们拿[走]的利益，不是富可敌国，你们快控制全宇宙啦！叫人民讲奉献、讲无私。不能有利己，只讲利你们。这个王八蛋的共产党，现在自己建的监控系统，把自己给控了。哟，不说了，一说就说漏了，是卜？好好好，马上走！马上走！Coming,Coming! [As] soon [as] possible. 呵呵呵呵呵，不叫我说那么多。
 
-侯德健曾经说大意是这样，政治可以是人的一部分，人却不应该成为政治的一部分。不过造化弄人啊，侯德健的大半辈子都和政治的一部分难分难解。平心而论，侯德健他确实搞砸过不少事情，他也真的得罪了很多人。但是回归到一个创作者的身份，我认为他是一位始终忠于自己的，并且称得上是了不起的音乐人。侯德健他在历史的转折点，他在关键时刻，正面接下了那个大时代的包袱，真的写下了一些沉甸甸的、掷地有声的歌。现在再听《歌词1983》，我每次看到这样的句子仍然是震动的。这样的歌三十多年了，裡面仍然埋藏著启蒙的力量。
+致谢：感谢彩虹桥的汉语听写：[https://gnews.org/zh-hans/687729/](https://gnews.org/zh-hans/687729/)
 
-关于我从何处来 要往那哪裡去
+翻译：【Naomi (文花开)】 校对：【gavinguo(文钦)】【Isaiah4031】【BruhM】字幕：【Embracer牙牙】视频解码剪辑：【恒久忍耐】编辑：【Isaiah4031】
 
-关于可去不可去 能来不能来
+喜马拉雅玫瑰园小队出品
 
-关于有与没有 以及够与不够
-
-关于爱与不爱 以及该与不该
-
-关于星星、月亮与太阳
-
-以及春花秋月何时开
-
-关于鸦片战争以及八国联军
-
-关于一八四○ 以及一九九七
-
-以及关于曾经太左而太右
-
-或者关于太右而太左
-
-以及关于曾经瞻前而不顾后
-
-或者关于顾后却忘了前瞻
-
-以及或者关于究竟哪一年
-
-我们才能够瞻前又顾后
-
-或者以及关于究竟哪一天
-
-我们才能够不左也不右
-
-一次 再一次 永远 总是
-
-同样的故事演了再演
-
-一次又一次 永远 总是
-
-同样的叮咛劝了又劝
-
-就这样一遍又一遍
-
-总有一天
-
-我们会把所有的栏杆拍遍”
-
-笔者在组织这些文字前的一秒钟，都一直以为这首歌写的是天安门事件。事实上，作为一个90后出生的大陆人，这也一直是笔者观察天安门事件的一个心安理得的视角。也许就像伍迪艾伦先生于电影《安妮霍尔》中揶揄自己的那样，他不会加入任何一个有他这种人的俱乐部（I’d never join a club that would allow a person like me to become a member）。在一部由福特基金会和洛克斐勒基金会出品的纪录片中，侯德健先生有以下陈述：
-
-“五月二十三号左右，我对学生做出了我唯一的一次建议，也就是建议，问学生说，你们是不是可以考虑，在广场上或在校园裡面，来一次一人一票，投票选举你们的学生高自联的主席、副主席的这麽一次活动。他们听了这东西觉得是不可想像的事情，是不可能的事情，是现在广场这麽乱的情况之下，是不可能的事情。那麽之后过了一个礼拜，我们就听说广场上要办一个民主大学。完了以后我就在想，我那个建议是个民主小学的建议，你们大概不高兴，所以你们要办民主大学。但民主大学是最后你还是要投票啊！”
-
-“任何时候都不能做这种秘密的、保守的、不公开的、私下的这种斗争，这种斗争的结果，那就是你的父亲和你的父亲的父亲他们所做的一切，就是你反对、你打倒的一切。那麽你用你反对、打倒一切的这种方法来打倒你打倒的对象，那麽结果是什麽呢，结果是你必须再被打倒一次。何必呢？那麽这个运动的目的又在哪裡呢？”
-
-第一段话也许大家已经很熟悉了，因为新中国联邦宣言裡写的很清楚。而第二段话，借用侯先生自己对易经的解释，大意是如果你不喜欢今天的果，那麽就要改变明天的因。笔者的另一个联想则是希腊神话裡宙斯的故事，关于宙斯没被吞以及试图吞孩子。据说宙斯的故事是告诫当时的人们不要食用人肉。还有一个联想则是所谓的有用的白痴，马克思列宁主义的死循环，即有用的白痴总以为自己会当权，直到被一个更左的人代替。而刘晓波先生在该纪录片中的以下陈述，更像是上天对这个古老民族的惩罚。
-
-“我觉得我在整个运动中有特别大的人格分裂，比如说我绝食宣言说消灭仇恨意识等等的这些东西，而我站在纪念碑上看到下面万众欢腾，那种就觉得克服戒严有望的时候，声音都再也没有了理性。进入具体运作，能不能用理性把握住自己的行为，能不能在万众欢腾的情况下，知道自己的半斤八两究竟是什麽，知道自己的角色是什麽，这东西太难了。人面对那的时候，我就觉得我站在广场上，啊，万众欢呼，我这时候讲话就TM一言兴邦。”
-
-关于绝食运动，侯先生在接受马世芳先生专访时的自述则是：“我也在他（刘晓波）的绝食宣言裡加上了几句我心裡面想说的话。那麽重点就是说呢，完全讲给学生听的。我们四个老师来绝食不是来追求死亡，生命是追求发展的，我们是希望追求到更真实的生命。第二点，包括在香港有很多这样的活动，当时我们看到要打倒谁，攻击某个对象，这在我看起来是很不理性的，我觉得不应该去攻击某某个人。所以在宣言裡我也加上了这麽一句话，问题不在于谁上台谁下台，而在于谁如何上台谁怎麽下台，是制度的问题。但是这样微弱的我认为的理性的声音，永远也成不了主流。”
-
-再补充一个有意思的小细节，关于打扫卫生，侯先生的自述为：“那个时候我做了一个动作，我很有感慨的，在那之前5.28在香港有个演唱会，搞了十几个小时，我跟广场上的同学说，各位同学啊，你们要做什麽事情我没有发言权，我只想说一件事情，前几天我们在香港一个有50万人的演唱会，12个小时，结束了以后整个草地上没有一根纸屑，非常乾淨。那同学你们看看你们的广场能坐的下去吗。于是大家拿起扫把把广场打扫乾淨。”
-
-事实上每一个古老民族在面对现代化转型的时候，都有这样或那样的羁绊。印象中一个形象的画面是在电影《阿拉伯的劳伦斯》中的那位王子，骑在骆驼上高举著大马士革刀，带领一众族人追著天上一轮一轮俯衝的、机枪扫射的飞机。侯德健先生关于其《龙的传人》创作的时候，也曾介绍：
-
-“当时美国决定跟北京建交跟台湾断交，那个时候我其实有一种不舒服的感觉，而且我对我们这个民族的中国人的文化蛮怀疑的，你自己说你有五千年的文化，真的吗？那这个五千年的文化和文明带给你什麽智慧呢？你有足够的智慧，用和平的方式或者是理性的方式，来解决你自己内部的衝突和矛盾吗？为什麽还给美国人、日本人、这个人那个人这麽多机会在这搅和呢？我一开始是比较气愤的状态，那麽如果真的是我这种气愤的状态的话，恐怕这首歌也就没有那麽多人喜欢了。”
-
-而近，文贵先生的盖文中关于老领导的信件内容的阐述，恐怕笔者这位大陆人马上就能身临其境了。原谅笔者笨拙，东拼西凑，文末以侯先生的《漂亮的中国人》勉励罢，你准备好了吗！
-
-文章引用：
-
-
-
-
-
-
-
-
-
-
-
-0
++7

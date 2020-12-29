@@ -1,69 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 民主党参议员鼓励美国人关注中共党媒
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/694320/)
+## 【热点播报】美国众议院表决通过2000美元新冠病毒纾困议案
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/694601/)
 
-翻译：康州盘古农场-黎明的光芒
-
-校对：康州盘古农场-烟波浩淼
-
-审核： 康州盘古农场 –Truemanman
-![]()![](https://gnews.org/wp-content/uploads/2020/12/图片2-12.png)
-##### **佐治亚州民主党参议员候选人乔恩·奥索夫（Jon Ossoff）在推特上大肆宣传新华社–一家中共控制的新闻媒体–的报导，并分享了赞扬中共国海军进步的片段。**
-
-这些被发掘出来的言论—出现在2012年的推特上–除了奥索夫与另一家中共国家媒体公司的财务关系–他没有将这种关系列入财务披露中，并被他的竞选活动贴上了 “文案疏忽 “的标签。
-
-11/7/2012，他鼓励推特用户 “关注@XHNews（新华社—中共国家媒体）”。
+作者：香草山写作组  马莱卡 校对/发稿：飞虹
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29231938/logo-3-1-1.jpg)
 
 
+众议院在12月28日晚间以275：134的投票通过了新冠病毒纾困议案的修正案。现在将由共和党占多数的参议院进行审议。
 
-> Esp. during 18th Party Congress, [#follow](https://twitter.com/hashtag/follow?src=hash&amp;ref_src=twsrc%5Etfw) [@XHNews](https://twitter.com/XHNews?ref_src=twsrc%5Etfw) (Xinhua – Chinese state media). [#ff](https://twitter.com/hashtag/ff?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Jon Ossoff (@ossoff) [November 8, 2012](https://twitter.com/ossoff/status/266365301325717504?ref_src=twsrc%5Etfw)
+在此之前，川普总统使用了1974年的《国会预算控制法案》，将纾困支付金额提高到2,000美元，并从纾困法案中删除了他所指出的浪费性支出。
 
+川普总统在12月27日签署了一项规模达9000亿美元的大规模新冠病毒刺激计划：分配新资金用于失业保险、食品援助以及向工薪阶层的美国人直接付款。在12月27日晚些时候在白宫发表的声明中写道：“我将签署综合和一揽子计划，向国会传递强烈的信息，明确告知国会必须除掉浪费的款项。”此外，川普总统在该声明中明确说道：“作为总统，我曾向国会表示，我希望减少浪费的钱，而是以每位成年人2,000美元、每名儿童600美元的形式给美国人更多的钱。”
 
+该议案近几个月来在美国两党之间成为政治利益角逐的棋子。几经周折，终于朝着最有利于美国民众的方向发展。众议院通过之后，在共和党占大多数的参议院获得通过的可能性更高。
 
-*乔恩·奥索夫 @ossoff · 2012年11月7日*
-
-*佐治亚州**美国参议院议员**候选人*
-
-*注意了，**在**（中共）**党的十八大期间，＃关注 @XHNews （新华社-中**共**国官方媒体）。 #ff*
-
-新华社–由中共资助，受政权宣传部门监管–最近被美国国务院贴上了中共 “外国使团 “的标签。
-
-（美国）国务院称新华社是中共宣传机关的组成部分
-
-过去十年来，特别是在习近平总书记的任期内，中共对中共国的国家宣传机构进行了伪装成新闻机构的改组，并对其进行了更直接的控制。他曾指出：”党的媒体必须…体现党的意志，维护党的权威……他们的行动必须与党保持高度一致”。”简而言之，西方媒体要对真相负责，中共媒体则要对中国共产党负责”。
-
-奥索夫还分享了来自中共国家央视媒体的一则中文新闻，炒作 “中共国的喷气式飞机如何降落在[一艘]航母上”。
+注：1974年《国会预算控制法案》（ICA）的制定旨在防止总统和其他政府官员单方面用自己的财政决定代替国会的决定。但是另一方面，该法案也赋予了总统在确定不需要任何预算授权来执行其全部或部分目标或计划时，或由于财政政策或其他原因（包括终止已提供预算授权的项目或活动）而取消该预算授权的权力。总统需要为此向国会两院致意，说明其欲保留的金额、相关账号信息、撤消的原因以及撤消对经济的影响。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/图片5-1-3.png)图片来源：Google
+注：本文内容参考了12月28日Hannity.com媒体网站的有关报道、白宫网站12月27日公布的《总统声明》以及国会预算委员会网站的相关信息。
 
 
 
-> Video: Chinese J-15 traps on aircraft carrier [#Liaoning](https://twitter.com/hashtag/Liaoning?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [#PLA](https://twitter.com/hashtag/PLA?src=hash&amp;ref_src=twsrc%5Etfw) [#PLAAF](https://twitter.com/hashtag/PLAAF?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/siJXY6sq](https://t.co/siJXY6sq)
-> — Jon Ossoff (@ossoff) [November 26, 2012](https://twitter.com/ossoff/status/273101137043935233?ref_src=twsrc%5Etfw)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-
-*乔恩**·**奥索夫**@ossoff**2**012**年1**1**月2**6**日*
-
-*佐治亚州美国参议院议员候选人*
-
-*视频：中国**J-15**航母在辽宁＃中国**#PLA #PLAAF*
-
-与视频配套的撰文–由国家媒体撰写的对人民解放军的谄媚介绍–盛赞海军的 “成就”。
-
-这一成就标志着中共国雄心勃勃的航母计划的发展迈出了关键一步，因为航母舰载机的着陆试验是最具挑战性的。中共国海军表示。”航母平台和歼-15的能力已经过测试，满足了所有要求，实现了良好的兼容性。”
-
-原文作者：娜塔莉·温特斯（NATALIE WINTERS）
-
-发布时间：2020年12 月27 日
-
-原文链接：
-
-
-
-> [Dem Senate Hopeful Urged Americans to Follow Chinese State-Run Media](https://thenationalpulse.com/breaking/ossoff-hypes-chinese-media/)
-
-
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
