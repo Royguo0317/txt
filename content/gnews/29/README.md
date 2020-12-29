@@ -1,86 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【林伍德律师推文集1228】乔州选情
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/694651/)
+## 国语【香港快讯】 12.29 贤学思政召集人及成员在警署被「国安公署人员」 强烈警告
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/696625/)
 
-林伍德律师：
-
-中共宣传人员谎称 鲍威尔律师@SidneyPowell1 未能提供选举舞弊的证据。
-
-以下证据已经加入我的诉讼中，要求禁止乔治亚州选举人团进行选举。法官Timothy Batten不能否认证据的存在。
-
-分享真相。
-![]()![](https://gnews.org/wp-content/uploads/2020/12/ccp-prpogandar.png)[https://twitter.com/LLinWood/status/1343588746789343235?s=20](https://twitter.com/LLinWood/status/1343588746789343235?s=20)
-
-
-林伍德律师：
-
-Timothy Batten法官，确实忽略了大量的欺诈证据。就像其他法院和主流媒体所做的那样。他们认为我们人民不知道欺诈的证据存在吗？他们认为我们很无知吗？
-
-不允许听证。可恶，我本来想讨论 “日落 “监视计划。
-
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/judge-timothy.png)
-
-[https://twitter.com/LLinWood/status/1343646214248656901?s=20](https://twitter.com/LLinWood/status/1343646214248656901?s=20)
-
-
-**官场观察工作室 昭明**:
-
-法院法官驳回选民舞弊案的三种手段。
-
-一 没有资格
-
-二没有证据
-
-三没有时间
-
-显然，联邦和地方法院都拒绝调查选民舞弊的证据，因为法官们深陷恐惧之中。
-
-林伍德律师回复：敏锐的观察。
-
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/astute.png)
-
-[https://twitter.com/LLinWood/status/1343649157265973248?s=20](https://twitter.com/LLinWood/status/1343649157265973248?s=20)
-
-
-林伍德律师：
-
-亚特兰大联邦法官 Timothy C. Batten, Sr.今天上午11点12分驳回了我在乔治亚州的诉讼，因为我昨天下午6点提交了270页的欺诈证据。
-
-这是他20页的驳回命令。他一定是在驳回令上工作了好几天，否则他的行动速度比纳什维尔（田纳西州疑炸毁AT&T数据中心的爆炸地点）的FBI还快！
-
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/atlanta.png)
-
-[https://twitter.com/LLinWood/status/1343643129086402565?s=20](https://twitter.com/LLinWood/status/1343643129086402565?s=20)
-
-
-林伍德律师：
-
-根据高级法官 Timothy C. Batten的说法 选民有宪法规定的投票权，但没有资格起诉来执行它，什么？
-
-法院说我的大选案递交得 “太晚 “了， 我的第二轮选举案 “太早 “了。
-
-联邦法院的做法有些不对。
-
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/according.png)
-
-[https://twitter.com/LLinWood/status/1343644794162176001?s=2](https://twitter.com/LLinWood/status/1343644794162176001?s=2)
-
-
-Michelle McGee:
-
-川普总统在选举后提出选民舞弊的证据，法院告诉他应该在选举前提出。
-
-林伍德律师的诉状有选举欺诈证据，在（第二轮选举人团选举）之前提交，他被告知 “内容是惊人的猜测”。看到这里的问题的人吗？
-
-林伍德律师：真相。联想一下。
+制作团队：【喜马拉雅粤语组】阿恩
 
 
 
-> TRUTH. Connect the dots. [https://t.co/SOM7RpyjeE](https://t.co/SOM7RpyjeE)
-> — Lin Wood (@LLinWood) [December 28, 2020](https://twitter.com/LLinWood/status/1343647925478555650?ref_src=twsrc%5Etfw)
+主要内容：
 
+贤学思政召集人及成员在警署被「国安公署人员」 强烈警告
 
-[https://twitter.com/LLinWood/status/1343647925478555650?s=20](https://twitter.com/LLinWood/status/1343647925478555650?s=20)
+钟翰林被控侮辱国旗罪及非法集结两罪 囚4个月
+
+12名涉嫌触犯内地偷越边境罪的港人，昨天在深圳盐田人民法院正式开审
+
+超过百年历史的，深水埗主教山配水库遭清拆，结构曝光后，引起广泛关注，水务署昨晚指已暂停清拆
+
+本港上月私人住宅售价连跌两个月，楼​​价指数创7个月以来最低，但按月跌幅收窄至不足0.2%。
+
+本港第四波新型肺炎疫情后，当局收紧社交距离措施，包括禁晚市堂食。
+
+武汉肺炎疫情持续，卫生署今日公布新增本53宗，50宗属本地个案，14宗源头不明。
+
+联合医院怀安科群组， 71 岁女病人逝世，　该群组至今 已有2 人死亡。
+
+东区医院公布，一名59岁武汉肺炎男病人离世。至今本港有143名武汉肺炎患者病逝
+
+天文台预料冷锋今晚杀到，一夜间气温将急跌14度。
+
 0

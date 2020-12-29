@@ -1,53 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】摘要《国家脉动》拉希姆·卡萨姆12月28日的节目
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/694575/)
+## 郭先生鼓励大家正确看待爆料革命中遇到的挫折
+` Mark` [轉載自GNews](https://gnews.org/zh-hans/696239/)
 
-翻译：香草山写作组 billwilliam 校对/发稿：飞虹
+郭先生在12月20日的直播中，对前凤凰农场义工的伤心表示感同身受，并鼓励大家要以一个先驱者的心态来看待爆料革命中遇到的挫折。遇难成祥、优胜劣汰才能把爆料革命和新中国联邦建立成一个完善的体制和生态系统。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23222242/GNEW-GTV-MOS-LOGO-2-1.jpg)
+**文本：**
 
+I heard that many people are very heartbroken and very sad! So am I. But, all the volunteering brothers and sisters, you’re great people and your intention is pure from the very beginning. Well, under such circumstances, you shall accept the idea that the Himalaya Farms, the New Federal  State of China and the Whistleblower Movement will inevitably encounter such problems. Compared to our mission of eliminating the CCP, this is not a big deal. It’s normal. If this did not happen in Phoenix, the so called Phoenix Himalaya Farm, it would happen in another Farm. The Phoenix Farm played the role of a pioneer. What is a pioneer? It means to sacrifice everything, like *The Thorn Birds* story, serving as a model to others. It might be a good model or a bad model, but regardless, you became a pioneer. That is for sure.
 
+我听说很多人很伤心。黯然呐，伤心！我和你们一样，但是所有的义工战友们，你们的义工本来就是伟大的，纯洁的，那么在这个情况下，你要接受喜马拉雅农场和新中国联邦和爆料革命，你一定会让你遇到这样的问题。这跟我们灭共的事业上来比，这是极小的一件事，它是正常的。今天不发生在凤凰、所谓的凤凰农场，就会发生在任何一个农场。凤凰农场这回又做了一个先驱。啥叫先驱？就是以自己的一切，就像《荆棘鸟》的故事一样，给你表演了一个样板，也可能是好的，也可能是坏的，反正是变成先驱了，这是肯定了。
 
-以下是拉希姆·卡萨姆12月28日在《国家脉动》的节目“乔治亚州参议院选举新的震惊的揭露”(Shocking new Georgia Senate revelations)的摘要，主要谈民主党参议员候选人Raphael Warnock曾经涉及掩盖虐童案以及英国脱欧。
-![]()![](https://gnews.org/wp-content/uploads/2020/12/Jietu20201229-094629.jpg)
-1. 中共媒体人陈伟华（音）威胁国务卿彭培奥，一些中共在油管的网络大V也挑衅美国。一个女生大V宣传中共的谎言说：我们从来不吃蝙蝠，病毒不可能来自蝙蝠。但是西方的卫生官员盲目效仿中共的做法，大规模封城。英国有很多封城限制，老百姓都不能出门。伦敦处于4级封城状态。
+As pioneers, you have gone through this pain or sorrow. Brothers-in-arms, I tell you the truth, emotionally, I am as sad as you are. But what I want to tell you is that this is not something to be sad about. You should feel happy. Because in the Whistleblower Movement and the New Federal State of China, we have to be stronger, integrated, and destined for success. Firstly, establishing an ecosystem is a process of survival of the fittest, which shapes good into better, and gets rid of bad. However, it is impossible to claim that there is nothing bad [in this process].
 
-2. 幕僚长梅多斯在物色K街（搞游说的地方）的办公室。川普总统想继续战斗，但是他身边一些人背叛他，他们过去是给共和党建制派背书的。
+但是呢，先驱当中让你经受了这个痛苦或者是伤心，战友们，我说实话感情上我和你们一样伤心。但是我想告诉你的事情，这不值得伤心，应该值得高兴。因为爆料革命、新中国联盟在这个过程中一定要强大，一定要完整，一定要成功。 首先就建立一个生态和体制，这个过程当中它就是个优胜劣汰，就是一个把好的变成更大的，把坏的变成更少的，但是你说没有坏的是不可能的。
 
-3. 拜登刚刚宣布他的数字网络团队，但是他团队的很多人都曾为中共游说。
+鸣谢：感谢喜马拉雅听写组听写 [https://gnews.org/zh-hans/684236/](https://gnews.org/zh-hans/684236/)
 
-4. OANN记者杰克·波斯比克说全国各地的人会在1月6日集结在华盛顿市支持川普总统。主流媒体不公正，他们报道白俄罗斯人民抗议选举不公，可是美国选举的舞弊他们不报道。
+视频来源：[https://gtv.org/video/id=5fdfd67fc0544c3d972f4f24](https://gtv.org/video/id=5fdfd67fc0544c3d972f4f24) （19:23-21:07）
 
-5. 根据华盛顿《自由灯塔报》报道，民主党乔治亚州参议员候选人Raphael Warnock被指控曾经掩盖虐童案。在来到乔治亚州亚特兰大之前，Warnock曾是马里兰州巴尔的摩的牧师，并掌管一个儿童夏令营。这个夏令营因为存在虐童行为曾被警察调查，而Warnock因为阻挠调查而被捕，他说他只是为了保护辅导儿童的辅导员。虽然该夏令营与州政府达成和解并重新开业，它的主管和几个儿童辅导员被勒令离开，但还是存在问题的。
+*翻译：【奔腾的长江】 校对：【Prof. Bacteriophage】【BruhM】【Isaiah4031】 字幕：【Pamila（文明）】 视频解码：【恒久忍耐】编辑：【Mark】*
 
-6. 一位现年30岁的受害者Anthony Washington站出来指控说，他12岁时曾在夏令营遭受虐待。这位受害者当时有尿床的毛病，辅导员让他在户外睡觉，而且没有帐篷。还有，在周围没有厕所的时候，夏令营让孩子们用一个桶当马桶（所以还被卫生机构调查不卫生），而某些辅导员会把桶内的排泄物泼在他身上。
+*喜马拉雅玫瑰园小队出品*
 
-7. 《亚特兰大宪法报》（Atlantic Journal Constitution）是不负责任的媒体，它可能早就知道Warnock的丑闻，但是不报道，假装什么也没有。拉希姆说这就像是主流媒体掩盖亨特·拜登的硬盘门。
-
-8. 上周有警察佩戴的摄像头拍到的视频流出，Warnock的妻子指控他家暴。
-
-9. Warnock对上述指控一概不承认，说这都是“抹黑“？但是他为什么曾经被捕呢？
-
-10. 拉希姆还采访了华盛顿《自由灯塔报》记者Alana Goodman，继续谈Warnock涉嫌的掩盖虐童案。内容和波斯比克上面讲的类似。Warnock曾经因为这个而被起诉，最后与受害人达成和解。
-
-11. 拉希姆说，有消息称，可能将要达成英国脱欧的协议。嘉宾Jerome Riviere(欧盟议会的法国籍议员)说很重要的一个谈判议题是渔业，英国水域是欧洲鱼类资源最丰富的地区，即使脱欧之后法国渔民还想去英国水域捕鱼，上百万人的就业岗位和这个行业以及相关产业有关。Riviere说，英国不希望别人拿走他们的利益，所以一个妥协是允许法国渔民继续在英国水域捕鱼5年，之后要给英国支付费用。
-
-12. 欧盟委员会给英国的条件比对越南的还要苛刻，Riviere表示欣慰约翰逊首相态度很强硬，保护英国的利益。英国脱欧向世界展示在欧盟体系之外也能生存。
-
-13. Riviere不反欧洲，但是反对官僚的欧盟委员会，他将这个组织比作苏联。英国脱欧的谈判全是由欧盟委员会进行的，都没有让欧盟议会批准，这个不民主。欧盟委员会是由一些大家不认识的官僚掌控的，而不是民选官员。
-
-14. 黑命贵运动成员要求砍掉一些法国歌剧院演出的古典歌剧（包括《胡桃夹子》），以腾出时间演出其他曲目。Riviere质疑：法国历史上从未执行过种族隔离，为什么不能演出自己传统文化的古典歌剧？
-
-15. 法国的马克龙总统在圣诞节没有祝福法国人民圣诞快乐，但是他在别的宗教的节日上祝福其他人。法国人大多数是天主教徒，而马克龙在圣诞节什么也没说。看来左派想要颠覆法国的传统文化。
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-0
++4
