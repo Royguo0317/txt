@@ -1,27 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】28/12/2020:文贵先生忽爆熊光楷， 或与对川普总统的斩杀令有关 习的血管瘤已经几次介入治疗，为此习成立了国家特别危急办
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/694289/)
+## 美国务院重磅声明：禁止美国投资者为中共军事公司提供资金
+` GM101` [轉載自GNews](https://gnews.org/zh-hans/694202/)
 
-**制作:Cantonese工作室**
-播报：【安妮 】资料收集：【星星】【文依】【安妮】 海报制作：【文静】【文绉绉】【EA 】 视频制作：【尕鱼儿】【向阳】
-**摘要:**
+美东时间12月28号晚，美国国务院发布了“保护美国投资者免于为中共军事公司提供资金”的官方声明。声明明确2021年1月11日以后，无论中共军事公司（CCMC）的持股比例如何，美国投资者将不允许进行公开交易、私募市场债务、股票证券以及任何其衍生产品的交易，并必须在11月11日之前全部撤资。
 
-1.
-![]()![](https://gnews.org/wp-content/uploads/2020/12/IMAGE-2020-12-29-100639-1.jpg)
-2.
-![]()![](https://gnews.org/wp-content/uploads/2020/12/IMAGE-2020-12-29-100642.jpg)
-3.
-![]()![](https://gnews.org/wp-content/uploads/2020/12/IMAGE-2020-12-29-100644.jpg)
-4.
-![]()![](https://gnews.org/wp-content/uploads/2020/12/IMAGE-2020-12-29-101005.jpg)
-5.
-![]()![](https://gnews.org/wp-content/uploads/2020/12/IMAGE-2020-12-29-100647.jpg)
-6.
-![]()![](https://gnews.org/wp-content/uploads/2020/12/IMAGE-2020-12-29-104710-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09110625/b38cf05a7ab82db9-1.png)
+声明表示根据美国财政部第13959号行政命令禁止交易所交易基金（ETF）和指数基金，以及由财政部或国防部上市的等同或超过50％CCMC股份的任何一家公司。声明指出此行为可以确保美国的资金不会对中华人民共和国（PRC）的军事、情报、安全服务的发展和现代化作出贡献。
 
+行政命令适用于美国个人的所有交易，包括个人、机构投资者、养老基金、大学捐赠、银行、债券发行人、风险投资公司、私募股权公司、指数公司以及其他美国实体，甚至包括在海外经营的实体。
 
+声明指出以上行政命令能减轻对美国投资者通过直接、间接或其他被动投资（包括与教育、ETF、风险基金、私募股权、房地产投资信托、商品、捐赠、退休金或任何其他投资基金相关的那些被动投资）支持CCMC的隐患。
 
+美国务院：https://www.state.gov/protecting-u-s-investors-from-financing-communist-chinese-military-companies/
 
-0
++1

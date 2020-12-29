@@ -1,60 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【皮特纳瓦罗推文1225】-推特为中共作恶
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/693610/)
+## 民主党参议员鼓励美国人关注中共党媒
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/694320/)
 
-12月25日关于美国国土安全部和内务部长Ron Johnson议员和美国贸易和制造业主任皮特纳瓦罗先生的几则推文如下。
+翻译：康州盘古农场-黎明的光芒
 
-#### **Senator Ron Johnson：**
+校对：康州盘古农场-烟波浩淼
 
+审核： 康州盘古农场 –Truemanman
+![]()![](https://gnews.org/wp-content/uploads/2020/12/图片2-12.png)
+##### **佐治亚州民主党参议员候选人乔恩·奥索夫（Jon Ossoff）在推特上大肆宣传新华社–一家中共控制的新闻媒体–的报导，并分享了赞扬中共国海军进步的片段。**
 
-令人气愤的是 @Twitter
+这些被发掘出来的言论—出现在2012年的推特上–除了奥索夫与另一家中共国家媒体公司的财务关系–他没有将这种关系列入财务披露中，并被他的竞选活动贴上了 “文案疏忽 “的标签。
 
-推特暂停了Zelenko博士的账户。@zev\_dr
-
-他把自己的一生都奉献给了拯救他人的生命。
-
-多少#Covid\_19（中共病毒疫情）的病人被Dorsey “医生 “@jack (Jack Dorsey 推特总裁） 诊治？
-
-因为他的审查制度，会让多少人失去生命？
-
-
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/zelenko-account-suspended.png)
-
-推特公司通知 Zelenko医生（因传递羟氯喹药等救治和预防中共病毒）：您的推特账号违反规定被临时关闭。[https://twitter.com/SenRonJohnson/status/1341882061708259330?s=20](https://twitter.com/SenRonJohnson/status/1341882061708259330?s=20)
-
-
-#### Senator Ron Johnson：
-
-
-推特 “操控平台 “、 “压制信息 “，将Zelenko医生账号审核关停了。
-
-看来，这是在黑锅说黑话啊！！！
+11/7/2012，他鼓励推特用户 “关注@XHNews（新华社—中共国家媒体）”。
 
 
 
-> .[@Twitter](https://twitter.com/Twitter?ref_src=twsrc%5Etfw) suspended (censored) Dr Zelenko for “platform manipulation” and “suppression of information”. 
-> 
-> Seems like the pot is calling the kettle black!!! [https://t.co/YIAIEXrAQt](https://t.co/YIAIEXrAQt)
-> — Senator Ron Johnson (@SenRonJohnson) [December 24, 2020](https://twitter.com/SenRonJohnson/status/1341914314349957120?ref_src=twsrc%5Etfw)
-
-
-[https://twitter.com/SenRonJohnson/status/1341914314349957120?s=20](https://twitter.com/SenRonJohnson/status/1341914314349957120?s=20)
+> Esp. during 18th Party Congress, [#follow](https://twitter.com/hashtag/follow?src=hash&amp;ref_src=twsrc%5Etfw) [@XHNews](https://twitter.com/XHNews?ref_src=twsrc%5Etfw) (Xinhua – Chinese state media). [#ff](https://twitter.com/hashtag/ff?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Jon Ossoff (@ossoff) [November 8, 2012](https://twitter.com/ossoff/status/266365301325717504?ref_src=twsrc%5Etfw)
 
 
 
-#### Peter Navarro：
+*乔恩·奥索夫 @ossoff · 2012年11月7日*
+
+*佐治亚州**美国参议院议员**候选人*
+
+*注意了，**在**（中共）**党的十八大期间，＃关注 @XHNews （新华社-中**共**国官方媒体）。 #ff*
+
+新华社–由中共资助，受政权宣传部门监管–最近被美国国务院贴上了中共 “外国使团 “的标签。
+
+（美国）国务院称新华社是中共宣传机关的组成部分
+
+过去十年来，特别是在习近平总书记的任期内，中共对中共国的国家宣传机构进行了伪装成新闻机构的改组，并对其进行了更直接的控制。他曾指出：”党的媒体必须…体现党的意志，维护党的权威……他们的行动必须与党保持高度一致”。”简而言之，西方媒体要对真相负责，中共媒体则要对中国共产党负责”。
+
+奥索夫还分享了来自中共国家央视媒体的一则中文新闻，炒作 “中共国的喷气式飞机如何降落在[一艘]航母上”。
 
 
-然而，中共可以骂国务卿（蓬佩奥）是 “战犯”，却没有被推特审核关停。
 
-@mikepompeo
-
-
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/peter-2.png)
-
-[https://twitter.com/RealPNavarro/status/1342170617978744833?s=20](https://twitter.com/RealPNavarro/status/1342170617978744833?s=20)
+> Video: Chinese J-15 traps on aircraft carrier [#Liaoning](https://twitter.com/hashtag/Liaoning?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [#PLA](https://twitter.com/hashtag/PLA?src=hash&amp;ref_src=twsrc%5Etfw) [#PLAAF](https://twitter.com/hashtag/PLAAF?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/siJXY6sq](https://t.co/siJXY6sq)
+> — Jon Ossoff (@ossoff) [November 26, 2012](https://twitter.com/ossoff/status/273101137043935233?ref_src=twsrc%5Etfw)
 
 
-+2
+
+*乔恩**·**奥索夫**@ossoff**2**012**年1**1**月2**6**日*
+
+*佐治亚州美国参议院议员候选人*
+
+*视频：中国**J-15**航母在辽宁＃中国**#PLA #PLAAF*
+
+与视频配套的撰文–由国家媒体撰写的对人民解放军的谄媚介绍–盛赞海军的 “成就”。
+
+这一成就标志着中共国雄心勃勃的航母计划的发展迈出了关键一步，因为航母舰载机的着陆试验是最具挑战性的。中共国海军表示。”航母平台和歼-15的能力已经过测试，满足了所有要求，实现了良好的兼容性。”
+
+原文作者：娜塔莉·温特斯（NATALIE WINTERS）
+
+发布时间：2020年12 月27 日
+
+原文链接：
+
+
+
+> [Dem Senate Hopeful Urged Americans to Follow Chinese State-Run Media](https://thenationalpulse.com/breaking/ossoff-hypes-chinese-media/)
+
+
+
+0

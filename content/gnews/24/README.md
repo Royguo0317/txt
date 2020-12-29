@@ -1,45 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 部分共和党参议员准备在1月6日拒绝选举团计票
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/693807/)
+## 【林伍德推文1228】视频-美国的回答
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/694404/)
 
-翻译：康州盘古农场-Bruce
-校对：康州盘古农场-烟波浩淼
-审核：康州盘古农场-V
-![]()![](https://gnews.org/wp-content/uploads/2020/12/Screen-Shot-2020-12-28-at-4.22.33-PM.png)视频截图：https://www.youtube.com/watch?v=MGi3mUEcMsc
-一些共和党参议员准备在下个月拒绝选举团的计票。在参众两院准备于1月6日进行正式计票之际，一群共和党众议员正计划反对选举团的计票结果。
+**12月28日林伍德律师转发一则视频推文，推文称：**
 
-该团体由众议员莫·布鲁克斯(Mo Brooks)领导，至少需要一名参议员站在他一边，才能强行就此事进行辩论。
+*不要忘了这个小可爱（战士们） … 带着上帝的旨意我会一路高歌到华盛顿美利坚国旗下 ，我们将拯救共和国！*
 
-[Mark Meadows on Twitter: “Several members of Congress just finished a meeting in the Oval Office with President @realDonaldTrump, preparing to fight back against mounting evidence of voter fraud. Stay tuned.” / Twitter](https://twitter.com/MarkMeadows/status/1341157317451124745)
+**视频中写着：**“美国的回答”
 
-*马克·麦道斯（@MarkMeadows）推文：*
-*几位国会议员刚刚在椭圆形办公室与总统会晤*
-*@realDonaldTrump准备用越来越多的证据反击选民欺诈。*
-*敬请关注。*
 
-潜在的同情者包括新上任的共和党阿拉巴马州参议员汤米·图维尔（Tommy Tuberville(R-Al.)，他的竞选得到了总统的支持，共和党肯塔基州参议员兰德·保罗（Rand Paul(R-Ky.)）和共和党乔治亚州参议员凯莉·洛夫勒（Kelly Loeffler(R-Ga.)）。
+*歌中唱道：到那边，到那边，给那边带句话：美国佬来啦！美国佬来啦！锣鼓喧天响！那么准备好，祈祷吧，带句话，我们会过去，我们会走过去，我们不会回来，直到结束（直到胜利）。*”
 
-此前，参议院多数党领袖米奇·麦康奈尔(Mitch McConnell)敦促共和党投票反对总统川普。麦康奈尔已经祝贺乔·拜登成为所谓的大选赢家，尽管普遍存在选民欺诈的说法。
 
-“我要祝贺当选总统乔·拜登。当选总统对参议院并不陌生，他多年来一直致力于公共服务。”麦康奈尔表示。
+**林伍德律师回推：**
 
-周日，川普总统表示，他可能会得到强制进行这一投票所需的支持，他说：”1月6日在华盛顿特区见，不要错过。”
 
-[Donald J. Trump on Twitter: “See you in Washington, DC, on January 6th. Don’t miss it. Donald J. Trump on Twitter: “See you in Washington, DC, on January 6th. Don’t miss it. Information to follow!” / Twitter](https://twitter.com/realDonaldTrump/status/1343328708963299338)
+*尽管像中共这样的蹩脚的演员很想抹去我们国家的历史，但他们做不到。*
 
-*川普总统推文：*
-*1月6日，华盛顿特区见，不要错过。*
-*相关信息请关注!*
+这就是美国。
 
-国会两院需要简单多数票才能拒绝选举人团的计票。
+*我们为自由而战。*
 
-来源：《美国新闻网》新闻室
-更新时间：太平洋时间2020年12月28日 上午8:05
-原文来源：
 
-[https://www.oann.com/some-gop-senators-prepare-to-reject-electoral-college-vote-count-on-jan-6/](https://www.oann.com/some-gop-senators-prepare-to-reject-electoral-college-vote-count-on-jan-6/)
-[https://www.youtube.com/watch?v=MGi3mUEcMsc](https://www.youtube.com/watch?v=MGi3mUEcMsc)
+- ![]()![](https://gnews.org/wp-content/uploads/2020/12/lin-1-1.png)
 
+[https://twitter.com/LLinWood/status/1343582195848540163?s=20](https://twitter.com/LLinWood/status/1343582195848540163?s=20)
+
+
+中共：当你靠榨取和洗脑中国14亿百姓，盗取并转移国家巨额财富据为己有，当你为外国势力输送利益从而中饱私囊、实现统治世界的野心，当你用蓝金黄拿下一个个“唯利是图”的不良政商，你便不可一世，以为自己就是世界的中心了；当有正义的力量挺身而出，当香港人不畏强权捍卫自由和民主时，你更加穷凶极恶，居然把准备已久的生物病毒释放出来，当你看着无数科研、组织、政要被收买为中共病毒沆瀣一气说谎时，你得意了。你想当然以为，这个世界的脊梁已经被打断，于是你想拔掉最后的硬刺，你操控美国大选，企图搬倒川普、消灭爆料革命，谁知这棵硬刺变成了刺向共产主义心脏的宝剑！爆料革命越来越壮大，美国正义的力量已经觉醒。所有的人都无法再容忍你的霸凌奴役和泯灭人性的强权，你的毒侵入了中国的土地，美国的土地，全人类的肌体和大脑，正义力量绝不允许再这样下去！
+
+美国每一位勇敢的普通人，为捍卫总统选举的正义和完整，为自由和正义举起了手中的枪，誓死捍卫人权、保家卫国，这是真正的人民的力量。中共，当你看着雄赳赳气昂昂的美国士兵，你听到美国的回答了吗？
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/17195020/Wenya-Logo-5.png)
 0

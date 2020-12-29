@@ -1,40 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 坚信爆料革命 履行你我使命
-` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/693955/)
+## Fear City 节目讨论 &#8211; (RICO) 对中共犯罪定罪
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/694308/)
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/93c4be1ed55624288bac32d6b18995f3.jpg)
-作者：文海 (京都富士会）
+**撰稿：****Wendy**
 
-校正：待命（文晓）（京都富士会）
+**审核：Jenny 编辑：MG**
+![]()![](https://gnews.org/wp-content/uploads/2020/12/2901.jpg)网络截图
+RICO法律于1970年通过，成为暴民起诉中的“终极杀手”。在RICO之前，检察官只能单独审判与暴民有关的犯罪。由于每宗罪行都有不同的暴民，因此政府只能起诉个别罪犯，而不能关闭整个犯罪组织。今天，政府很少使用RICO来打击黑手党。取而代之的是，由于法律范围如此广泛，政府和民间团体都将其用于各种合法和非法的企业
 
-排版：待命（文晓）（京都富士会）
+RICO起诉涉及腐败组织的所有个人。对于暴民起诉，这意味着政府可以追随最高领导层以及被杀的人和警察。 RICO也建立了增强的判案。约翰·L·史密斯（John L. Smith）在《拉斯维加斯评论期刊》（Las Vegas Review-Journal）上的一篇文章中描述了RICO的影响，“在RICO之后，暴民家庭开始遭受真正的威胁，即会员和同伙可能会被广泛起诉从事广泛的犯罪活动。
 
-跟爆料革命三年多，我们还是不能完全理解爆料革命。七哥准备了三十年，不是简单地推翻共匪，七哥是要开创世界新局面。
+尽管RICO最初是针对黑手党的，但在过去的37年中，检察官已将其用于攻击多种形式的有组织犯罪：街头帮派，帮派卡特尔，腐败的警察局甚至政客
 
-这次不是地球生物第五次文明的开始！而是新人类第一次文明的开始。
+1989年，当鲁道夫·朱利安尼（Rudolph Giuliani）担任纽约南区美国检察官六年后辞职时，他也许是美国最著名的执法官员。他成功起诉纽约有组织犯罪家庭和领导人，黑手党的国际海洛因和可卡因在“比萨联系”案中的起诉以及引人注目的政治腐败和华尔街刑事案件的遗产。
 
-从这一点上看，爆料革命的意义已经远大于我们的理解了！
+共产党是一个犯罪组织。 这个犯罪组织利用蓝， 金， 黄渗透美国各个阶层。 从美国大学， 议员，主流媒体， FBI， CIA， 司法部门和拜登家族。中共对美国政府重要部门的网络攻击，用生化武器来转播中共病毒在地球每个国家流行， 导致1.7百万人失去了生命。中共利用女色去俘获美国官员，其中Christine Fang， 简称fang  fang 与 加州国会代表Eric Swalwell 不寻常关系。 共产党还破坏美国2020 总统选举， 帮拜登选举通过提供假选票和多猫腻选票机舞弊。中共在国内奴役1.4亿百姓， 对新疆惟族人权迫害。中共种种犯罪已经构成了对世界威胁。
 
-七哥直播的时候经常发出了感慨：爆料革命缺人啊！缺什么人？人才啊！
+Rico 法案是可以用于对中共犯罪集团定罪一项合适的法律。
 
-大部分人没有理解爆料革命的历史使命和意义。
+(本文纯属个人观点）
 
-不能理解爆料革命的意义，怎么能有很好的行动！怎么能有很好的包容和团结！怎么能面对突如其来的困难！
+[https://www.worldometers.info/coronavirus/coronavirus-death-toll](https://www.worldometers.info/coronavirus/coronavirus-death-toll)
 
-国内战友不能参与G系列的心情可以理解，但是如果把精力全放在投资上，那爆料革命的意义就失去了。七哥总是提醒战友：不能把爆料革命生活化和娱乐化。
+[https://www.justia.com/criminal/docs/rico/](https://www.justia.com/criminal/docs/rico/https://themobmuseum.org/notable_names/rudolph-giuliani/)
 
-有时候我们忘记了墙内无数传递情报的战友，他们才是真正的战斗在第一线的！随时都有可能被共匪发现死于非命……
+[https://themobmuseum.org/notable\_names/rudolph-giuliani/](https://www.justia.com/criminal/docs/rico/https://themobmuseum.org/notable_names/rudolph-giuliani/)
 
-大家没有感觉到吗？七哥总是在关键时候和战友闲聊。为什么？
+[https://www.bbc.com/news/world-us-canada-55386947](https://www.bbc.com/news/world-us-canada-55386947)
 
-七哥总是在关键时候出来引导迷失的战友，目的就是不让战友掉队，如果人人都能自觉跟紧爆料革命，七哥完全可以用直播的时间去做更多灭共的工作。
+Lude Media
 
-七哥直播时说过，我们G系列，爆料革命，新中国联邦是一个整体规划，灭共是主线，但是更重要的是灭共之后的新中国联邦怎么有效的合理合法的营救更多的同胞，重建就是新生，只灭共不重建就是灾难！
-
-灭共的路上有很多困难很正常，我们战友集中火力，集中精神，携手前行，不抛弃不放弃。不灭共什么都没有，灭了共匪才有家人健康未来。
-
-感谢所有爆料革命战友！感谢七哥！感谢天神！
-
-+1
+[https://www.thesun.co.uk/news/13419020/chinese-honey-trap-spy-fang-fang/](https://www.thesun.co.uk/news/13419020/chinese-honey-trap-spy-fang-fang/)
+![]()![](https://gnews.org/wp-content/uploads/2020/12/IMG_1836-1-1.jpg)
+0

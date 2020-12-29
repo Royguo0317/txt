@@ -1,27 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【川普总统推文集1228】宾州重磅和法案进展
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/693649/)
+## 中共禁煤限電下空污嚴重超標，到底在燒什麼？
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/694338/)
 
-喜马拉雅的文雅
+台灣農場(籌備) Amitofu
 
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/trump-1228-breaking-1.png)
+中共因全球經濟趨緩造成多數工廠停擺，地方政府正在削減工商業用戶的電力供應，目前已下令部分煤炭發電廠和工業用戶在年底前關門，加上中共抵制澳洲煤炭，不僅在多個城市實施限電，也不准70艘澳洲煤炭船進港卸貨，目前估計有700萬噸至1000萬噸澳大利亞煤炭船舶遭中共拒絕卸載。於此同時中國空污問題更加嚴重的原因為何? 不經懷疑到底在燒什麼？
+![全球經濟趨緩造成多數工廠停擺，加上中共抵制澳洲煤炭，不僅在多個城市實施限電，也不准70艘澳洲煤炭船進港卸貨，於此同時中國空污問題更加嚴重的原因為何?]()![全球經濟趨緩造成多數工廠停擺，加上中共抵制澳洲煤炭，不僅在多個城市實施限電，也不准70艘澳洲煤炭船進港卸貨，於此同時中國空污問題更加嚴重的原因為何?](https://gnews.org/wp-content/uploads/2020/12/chinaair-305x225.jpg)2020/12/28世界即時空氣污染網
+根據世界即時空氣污染網（Air Pollution in World）顯示，目前中國空污PM2.5(µg/m³)細懸浮微粒嚴重超標，以北京為中心從華北地區輻射狀向外擴散，至四川、華南等各大城市也均呈現紫紅狀態，華南地區多地空氣品質多為普通至有害等級，以至於影響鄰近的南韓、日本與台灣空氣污染也逐漸升高。本文僅代表個人立場
 
-川普发推：重磅新闻：宾夕法尼亚州多出20万5千张选票。就这一条就把该州纠正成为川普总统获胜州。[https://twitter.com/realDonaldTrump/status/1343663159085834248?s=20](https://twitter.com/realDonaldTrump/status/1343663159085834248?s=20)
+資料圖片來源:[https://aqicn.org/map/world/](https://aqicn.org/map/world/)
 
+文貴蓋特:共产党杀人机器下的冤魂野鬼[https://gtv.org/getter/5fe7ea8dd51bc678f52c200f](https://gtv.org/getter/5fe7ea8dd51bc678f52c200f)
 
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/lory.png)
-
-美国爱国网站“红白Lory”创办人 Lory Hendry：这（大选舞弊）不是欺诈，而是叛国！川普总统转发了这一推文。[https://twitter.com/Lrihendry/status/1343550784286371841?s=20](https://twitter.com/Lrihendry/status/1343550784286371841?s=20)
-
-
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/lindsey1.png)
-
-资深议员 Lindsey Graham: “国会将对额外的经济刺激支票和废除第230条款进行投票–这都是美国人民的胜利。干得不错，总统先生” 川普总统转发了这一推文。[https://twitter.com/LindseyGrahamSC/status/1343367962007363584?s=20](https://twitter.com/LindseyGrahamSC/status/1343367962007363584?s=20)
-
-
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/lindsey-2.png)
-
-川普转推。Lindsey Graham: “这两项都是合理的要求，我希望国会能够倾听。最大的赢家将是美国人民。” [https://twitter.com/LindseyGrahamSC/status/1342637767994580992?s=20](https://twitter.com/LindseyGrahamSC/status/1342637767994580992?s=20)
-+1
++3

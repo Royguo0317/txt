@@ -1,32 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 内华达州务卿向与巴基斯坦三军情报局有关联的公司发送选民数据名单
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/693428/)
+## 班农战斗室WARROOM精选 612期 娜塔莉·温特斯谈中共对美国媒体 机构 民主党人的贿赂与渗透 实际证明中共与病毒有着千丝万缕的联系
+` GM144文月` [轉載自GNews](https://gnews.org/zh-hans/694044/)
 
-- 编辑：Victor Torres
+Matt：是的 您的意思是有无数的例子 我认为Eric Swalwel是其中的一员 如果您看看他对COVID的建议 那么就能推测出中共正在为他写谈话要点 而且 很明显 这有点讽刺 鉴于最近的启示
 
+Raheem：我的意思是 这个故事令人发指 我的意思是 我认为这令人深感不安 中共对民主党的腐败有多深 我们现在已经有了中共最好的研究人员之一 和我们一起在演播室 Natalie Winters 我想邀请Natalie参加对话 我的意思是 你知道过程中的每一步 你告诉我了这些故事 我需要三四次的重复理清 然后我觉得在某种程度上这是不可能的 但是它是真的
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+Natalie：是的 即使Axios关于Eric的故事也是
 
-**西班牙2020年12月28日电/西喜社——**
+Raheem：靠近点 你必须靠近麦克风
 
-凯瑟琳·恩格尔布雷希特(Catherine Engelbrecht)是 “真实投票 “(True the Vote)组织的创始人和主席。该组织是全美最大的选民权利组织。
+Natalie：我之前都是在美国之音的演播室
 
-该组织十多年来一直站在防止选举舞弊的第一线。在主要的州、县和选区建立以行动为导向的选举诚信运动。“真实投票”不支持特定的政党或候选人，只支持各级的公平选举。
+Raheem：是的 这里是作战室
 
-11月，”真实投票 “组织写信给内华达州州务卿，要求提供合格选民名单报告。当州务卿回复时，”真实投票 “组织震惊地看到名单被抄送给[email protected]。
+Natalie：好吧 Swalwel的故事很有趣 您谈论的是民主党如何与中共保持广泛联系 不仅仅是Eric Swalwel参与了中共情报人员的行动 我们在国家脉搏中进行了报道 显示他实际上是收取了大量美金 从一个在中共经营的一家公司工作的人那里 有趣的是 您在谈论媒体 这种美德信号 双重标准 真正的虚伪来自于机构、媒体、民主党人 我记得几个月前Eric Swalwel发了推文 说Marsha Blackburn实际上应该退还一部分竞选资金 她从与中国有关联的实体那拿到的 以及从甚至是我最喜欢的一个广告 今年以来一直在媒体上看到的一则广告那筹集的 他们说冠状病毒无法追溯到中共 这样做是种族主义 再过几周 我们看到《纽约时报》和CNN 一起出来实际上证明他们是错误的 尽管他们从未承认 实际上 中共与冠状病毒有着千丝万缕的联系 同时 CNN刊登了来自环球时报的中国官方媒体报道 称赞中国军方和他们遏制冠状病毒的努力 却贬低自己的军队 因此 媒体在2020年肯定没有改善 我认为它们可能会变得更糟
 
-Kavtech是一家总部设在巴基斯坦的私人商业情报公司。与巴基斯坦情报机构三军情报局(ISI)关系密切。
+Raheem：我想认为某些媒体已经有所改善 Matt Bonjela的报道越来越强大 因为你们正在做的努力 我相信你的书会非常棒 这就是需要的 我的意思是 我们创立了国家脉动这个节目 我想 你知道 人们没有意识到 他们感觉这节目已经存在了五年 实际上还不到一年 当我们真正开始加快步伐并创立国家脉搏时 我们本月超过了1000万次观看 这真是非同寻常 我做了别人做不到的事情
 
-该公司联合创始人瓦卡斯·巴特(Waqas Butt)在内华达州州务卿发来的包含选民个人身份信息的邮件中被抄送。
-
-“真实投票 “组织后来给国家安全部助理部长约翰·C·德默斯(John C. Demers)写了一封关于数据泄露的信。由Breitbart新闻独家获得的信件称，当邮件到达时，”我很震惊地看到抄送行中包含了另一个电子邮件地址”。
-
-Kavtech至少有一名员工是巴基斯坦三军情报局的坚定支持者。
-
-美国司法部拥有此信息。
-
-新闻来源：[https://www.thegatewaypundit.com/2020/12/evidence-foreign-influence-2020-election-nevada-secretary-state-caught-sending-voter-data-list-pakistani-firm-linked-isi/?utm\_source=Twitter&utm\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2020/12/evidence-foreign-influence-2020-election-nevada-secretary-state-caught-sending-voter-data-list-pakistani-firm-linked-isi/?utm_source=Twitter&amp;utm_campaign=websitesharingbuttons)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
-+1
+0
