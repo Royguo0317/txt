@@ -1,54 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共越是“辟谣”越是为了掩盖真相
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/697705/)
+## 川普总统（关于救济法案）的声明（中英对照）
+` Winston` [轉載自GNews](https://gnews.org/zh-hans/699391/)
 
-```
-作者: 阿娜
-发稿人: Ting Guo
-```
+![]()![](https://gnews.org/wp-content/uploads/2020/12/Cares-act2-scaled.jpg)图片来源： https://www.jbsa.mil/News/Photos/igphoto/2002278339/
+概要：
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/20200917052656232-e1609286357779.jpg)图片来源: 阿波罗网站
-中共的宣传应该倒过来看，越是拚命“辟谣”，越是说明真相到处传播。中共执政以来一直是以谎言治国，以黑治国，以贪治国，以警治国。中共是牢牢把握住媒体的力量，通过媒体对内对外来宣传共产党的正面形象，给世界人民洗脑。大家都知道中共当局一直是黑箱作业，任何事件只有中共他想让你知道的，你才会知道。否则你永远不知道，就算你知道了，中共也会“辟谣”，甚至是把所谓的“谣言”者说成是颠覆国家的言论或者是境外势力所为。历史表明，中共每次大规模的“辟谣”，都是中共面临危机、政局最不稳定之际。中共政权一方面为了内斗需要，制造大量“谣言”；另一方面，面对危机，为了维持独裁政权，中共又以“辟谣”掩盖真相，罔顾百姓生命。那让我们来数数中共这些年都特意辟了哪些谣吧！
+川普总统(President Donald Trump)通过此声明阐述了其对于目前纾困法案的态度和立场，坚持认为直接发给美国民众的救济款项应当从600美元提升至2000美元，但一些会造成财政浪费的项目必须从法案中清除。
 
-**1989 “****六****‧****四****”****事件中共****“****辟谣****”****掩盖大屠杀**
+中英对照版本：
 
-1989年，原中共总书记胡耀邦的去世引发的学生民主诉求运动，于6月4日被以邓小平为首的中共特权阶层武力镇压，“六‧四天安门大屠杀”惨案震惊世界。
+As President of the United States it is my responsibility to protect the people of our country from the economic devastation and hardship that was caused by the China Virus.
 
-在事件进程中，中国大陆流传各种有关学生运动、国际反响、中共高层人物命运、军队戒严等消息，传言四起。中共管控的媒体全国大力“辟谣”，呼吁学生、民众“勿信谣”、“勿传谣”。“六‧四大屠杀”后，学生们在天安门被戒严部队枪杀的消息迅速流传开来。6月5日，戒严部队先后发出两段《紧急通告》称：“不要听信和传播谣言，发现造谣者要立即向本单位和公安机关报告。”
-![]()![](https://gnews.org/wp-content/uploads/2020/12/04tiananmen-archive-3-articleLarge.jpg)图片来源: The New York Times
-到今天有关“六‧四天安门大屠杀”的现场图片、视频、解密文件、调查研究等资料已在海外广为人知。听郭文贵先生的爆料说到参与六四镇压的中共领导人李鹏，李鹏对见到一定年龄的人，对有可能参与1989年学生运动的年纪的人，都会问到那个时候这人在哪里，在做什么。可见李鹏是对他自己参与了镇压运动而心里忐忑不安，总是提防身边的人和见面认识的人报复呐。
+作为美国总统，我有责任保护我国人民免受中(共)国病毒造成的经济破坏和经济困难。
 
-**2003****年非典肆虐中共****“****辟谣****”**
-![]()![](https://gnews.org/wp-content/uploads/2020/12/054101015E9D3740ADCA61A50340ADC7-e1609289210326.jpeg)图片来源: 优酷
-2003年爆发的萨斯（SARS）在中国被称为非典，一些海外媒体称之为“中国鼠疫”、“本世纪初的黑死病”。2003年初，萨斯从中国南方开始爆发，中共党国为了开好人大、政协两会，“稳定压倒一切”，对萨斯疫情隐而不报。
+I understand that many small businesses have been forced to close as a result of harsh actions by Democrat-run states. Many people are back to work, but my job is not done until everyone is back to work.
 
-当时，中共宣传部门禁止关于萨斯的所有报导，操控媒体强调“不必要恐慌”，谎称形势基本稳定，不会出现大规模爆发。与此同时，中共当局在民间大肆抓捕转播萨斯疫情的“造谣者”。由于中共当局对世界卫生组织及国际社会隐瞒疫情，萨斯迅速蔓延到香港、越南、台湾、新加坡及加拿大等地，引发全球恐慌。全球累计通报病例超过八千四百例、死亡逾八百人，遭隔离者不计其数，而中国确实的死亡人数至今难以估计。
+我了解到，由于民主党控制的州采取严厉措施，许多小企业被迫关闭。许多人重新回到了工作岗位，但是直到所有人都重新上班，我的工作才算完成。
 
-**2008****年中共****“****辟谣****”****四川地震局发出的地震预警**
-![]()![](https://gnews.org/wp-content/uploads/2020/12/nimg.ws_.126.net_-2-e1609289014410.jpeg)图片来源: 网易
-2008年5月12日的四川强震夺去至少8万多人生命，实际死亡人数至今是谜。大陆民众披露：地震前，当地曾有多种迹象和传言预警地震，并且早在地震发生之前就有地质专家在网上发出警告，预测5月12日四川将发生地震，提醒民众防备，但都未被当局重视。
+Fortunately, as a result of my work with Congress in passing the CARES Act earlier this year, we avoided another Great Depression. Under my leadership, Project Warp Speed has been a tremendous success, my Administration and I developed a vaccine many years ahead of wildest expectations, and we are distributing these vaccines, and others soon coming, to millions of people.
 
-据四川省政府官方网站于2008年5月9日登载的省地震局消息称：阿坝州防震减灾局成功平息地震误传事件。而在12日地震发生后，该公告从四川省政府网删除。
+幸运的是，由于我与国会在今年早些时候通过了《 CARES法案》（冠状病毒的援助，救济和经济安全法案），我们才避免了另一场大萧条。在我的领导下，曲速计划取得了巨大的成功，我的政府和我提前多年开发出了疫苗，我们正在将这些疫苗以及即将推出的其他疫苗分发给数百万人。
 
-四川省地震局公告中称，5月3日晚8时，阿坝州防震减灾局接到群众咨询电话，求证“马尔康县梭磨乡马塘村将要发生大地震，村干部劝村民搬到户外居住”的传言是否属实。接到咨询电话后，阿坝州防震减灾局立即要求马尔康县防震减灾局采取措施，查找谣传来源。2008年5月12日，四川汶川大地震夺命无数，至今实际死亡人数未知。
+As President, I have told Congress that I want far less wasteful spending and more money going to the American people in the form of $2,000 checks per adult and $600 per child.
 
-**2012****年王立军叛逃****‘****谣言****’****是真**
-![]()![](https://gnews.org/wp-content/uploads/2020/12/0b086d307d648d7ad3686097c8d91717_w-e1609288075341.jpg)图片来源: 多维新闻
-根据2012年大纪元记者唐文报导:“薄、王”事件从2月初事发，引发中共高层分崩、内斗加剧、面临摊牌。随着事件发展，各种传言不断，并随后被一一验证。薄熙来被开除出中共中央委员会和政治局，并且被立案调查，而王立军被定性“叛逃”。民众惊呼：“原来‘[谣言](https://www.epochtimes.com/gb/tag/%E8%B0%A3%E8%A8%80.html)’都是真的。”
+作为总统，我已经告诉国会，我希望少浪费钱，而是把更多的钱以每位成年人2,000美元和每个孩子600美元的方式给美国人。
 
-**2019****年中共官方****“****辟谣****”****中共病毒**
+As President I am demanding many rescissions under the Impoundment Control Act of 1974. The Act provides that, “whenever the President determines that all or part of any budget authority will not be required to carry out the full objectives or scope of programs for which it is provided, or that such budget authority should be rescinded for fiscal policy or other reasons (including termination of authorized projects or activities for which budget authority has been provided), the President shall transmit to both Houses of Congress a special message” describing the amount to be reserved, the relevant accounts, the reasons for the rescission, and the economic effects of the rescission. 2 U.S.C. § 683.
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/images-26.jpeg)图片来源: www.uschineselife.com
+作为总统，我要求根据1974年的《蓄积控制法》进行多项撤销。该法规定：“不管任何时候，只要总统确定不需要全部或部分的任何预算授权来执行其所提供计划的全部目标或计划范围，或由于财政政策或其他原因（包括终止已提供预算授权的授权项目或活动）而取消该预算授权，总统应向国会两院发送特别信息”，说明保留的金额，有关账目，撤销的理由以及撤销的经济影响。 2 U.S.C. §683。
 
-在去年12月31日，武汉市中心医院的眼科医生李文亮在大学同学微信群里转发了医院急诊科隔离了7名华南海鲜市场感染中共病毒病人的消息。结果收到了市卫健委和医院的警告，批评，之后又到派出所签了《训诫书》。由于没有防护，1月8日接诊病人后，出现了疑似被感染症状，2月1日确诊，2月7日离世。成为中心医院第一个感染中共病毒去世的医生。
+I will sign the Omnibus and Covid package with a strong message that makes clear to Congress that wasteful items need to be removed. I will send back to Congress a redlined version, item by item, accompanied by the formal rescission request to Congress insisting that those funds be removed from the bill.
 
-2020年4月份香港P3实验室科学家闫丽梦博士从香港逃到美国，几个月后开始通过媒体爆料冠状病毒是中共制造的生物武器。而中共通过香港大学和其它媒体“辟谣”并且造谣闫博士是在实验室养仓鼠的等等言论，但到如今没有出过一份报告可以辩驳闫博士发表的关于中共病毒真相的两份报告。
+我将在綜合和新冠肺炎项目上签名，并向国会明确传达一个需要清除浪费物品的强烈的信息。我将带红线的版本送回国会， 一项一项的并附有对国会的正式撤销请求，其中坚持要求这些基金从法案中删除。
 
-如今全世界已经8000多万人感染中共病毒，死亡人数已经超过170万，对于中共最开始的“辟谣”你们还记得吗? 鬼才相信病毒来自于蝙蝠，穿山甲，三文鱼呢。它们一次次的“辟谣”就是一次次的掩盖它们的罪行。
+原文链接：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21093249/image4-3.jpg)*[**https://discord.gg/77fCxw5mFv**](https://discord.gg/77fCxw5mFv)
-[**https://**](https://https//discord.gg/77fCxw5mFv)[**gab.com/himalaya\_italy**](https://gab.com/himalaya_italy)*
+https://www.whitehouse.gov/briefings-statements/statement-from-the-president-122720/
 
-+3
+*翻译：【JennyL】校对：【Cyndi】 编辑：【Winston】*
+
+喜马拉雅玫瑰园小队出品
+
++2

@@ -1,137 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【弗林将军推文集1229】
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/698114/)
+## 【香港专题】是时候解决BNO「双重国籍」（三）香港人「双重国籍」 「食两家茶礼」？
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/699906/)
 
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/flynn-america-cannot.png)
+整撰：文燕
 
-当涉及到我们的选举，在任何层面，美国不能忍受这种令人难以置信的国家安全威胁。一个人，一张票，不连接到由外国势力操纵的互联网。 推文链接 [https://twitter.com/GenFlynn/status/1343994542073253889?s=20](https://twitter.com/GenFlynn/status/1343994542073253889?s=20) 转推文章 “破解Dominion的源代码–2003年以来的国家安全威胁。” 文章出处 [https://creativedestructionmedia.com/investigations/2020/12/29/cracking-dominions-source-code-a-national-security-threat-since-2003/](https://creativedestructionmedia.com/investigations/2020/12/29/cracking-dominions-source-code-a-national-security-threat-since-2003/)
+审稿:卡西欧
 
+上传：文粤
 
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/JFK.png)
+据左媒【香港01】指，有份参与撰写《一国两制白皮书》的北京大学港澳研究中心执行主任强世功在《「一国两制」在香港特别行政区的实践》白皮书里提到，香港经济腾飞，香港人的身份认同出现分歧，不但在「旧中国人」和「新中国人」的文化认同中挣扎，甚至逐渐于上世纪六十年代形成一种以「香港人」作为独立身份的优越意识。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/image001-36.png)有份参与撰写《一国两制白皮书》的北京大学港澳研究中心执行主任强世功，2016年指香港可能已成为全球最民粹的地方，真正导致香港沉沦的可能是愈来愈狭隘的本土主义。 （图片来源：立场新闻）
+强世功指出，「香港人」的归属认同感离不开政治意识的觉醒中国共产党，而以建制和精英为主体的「香港右派」则认同国民党，与此同时，港英加大力度培养认同西方文化的香港精英，推出一套系统的文化驯服计划，令年轻一代形成英国文化认同，并对英女皇效忠；而在「冷战」背景下，效忠国民党的「老右派」和效忠英女皇的「新右派」合流，成为「香港人」的精英主体。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/image003-24.png)1982年9月，英国首相撒切尔夫人访问北京，在与邓小平的会晤中。
+到八十年代，时任中共最高领导人邓小平提出「一国两制，港人治港」，在中英谈判和筹备回归期间，「香港人」也从社会文化群体变成政治群体，一度引发究竟是「左派」还是「右派」治港的「认同论争」，及后邓小平提出基于「统一战线理论」的「爱国者治港」。其时，香港正处于即将摆脱殖民统治的「后殖民时期」，「爱国者治港」的思路所带来的全新国家认同、政治认同和文化认同都与英殖香港相冲突，但直到回归之后，香港人仍然纠缠于身份认同之争，始终无法进入「中国公民」 的议题。
 
-肯尼迪不会承认今天的 “民主党” [https://twitter.com/GenFlynn/status/1344042202373226503?s=20](https://twitter.com/GenFlynn/status/1344042202373226503?s=20). 
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/jFk-words.jpg)
+香港人正式享有「双重国籍」的特别待遇，但过去也不时因而引发争议。最普遍的质疑是，「双重国籍」人士未必拥有「本土忠诚感」，甚至产生「香港疏离感」，但在「公民」身份制度缺失之下，他们却可以「食两家茶礼」，享有《基本法》所赋予专属于「香港永久性居民」的各种福利政策和政治权利，包括低廉医疗服务、申请公营房屋、享受免费教育，以及参与政治选举；而一旦有什么不如意，又可以拍拍屁股走人。
 
-每当我们看到法律被藐视时而回避，当我们容忍明知不对的事情时，当我们因为太忙或太害怕而对腐败分子视而不见、听而不闻时，当我们没有大声疾呼时，我们就对自由、体面和正义造成了打击。
-— 罗伯特-肯尼迪
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/terrible-thread.png)
+**战友观点：**
 
-可怕的信息链。[https://twitter.com/GenFlynn/status/1344042767064858625?s=20](https://twitter.com/GenFlynn/status/1344042767064858625?s=20)
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/the-evidence-collection.png)
+港府早前指出反制BNO护照，不承认BNO 护照为合法旅游证件，坊间一直在猜测有什么具体的限制？
 
-\*证据收集\*
-有大量的证据表明选举中存在舞弊现象。因此，行政、立法和司法部门有责任扔掉假选票，并履行他们保护和捍卫美国宪法的誓言。
-信息清单如下。[https://twitter.com/GenFlynn/status/1344042767064858625?s=20](https://twitter.com/GenFlynn/status/1344042767064858625?s=20)
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/kanekoa1.png)
+689前特首梁振英和左媒都曾经提过，不承认BNO 护照为合法旅游证件，而是把拥有BNO 当成拥有外国户籍，如果不愿意放弃BNO 这外国户籍，你就违法了中华人民共和国不容许拥有双重国籍的规定，那你必须作出选择：
 
-1/纳瓦罗报告。完美的欺骗—-选举违规的六个关键方面—-12/18/20 文章链接 [https://bannonswarroom.com/wp-content/uploads/2020/12/The-Immaculate-Deception-12.15.20-1.pdf](https://bannonswarroom.com/wp-content/uploads/2020/12/The-Immaculate-Deception-12.15.20-1.pdf) 推文链接 [https://twitter.com/KanekoaTheGreat/status/1344009360310030336?s=20](https://twitter.com/KanekoaTheGreat/status/1344009360310030336?s=20)
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/kanekoa-2.png)
+1）保留BNO护照，从此失去香港永久居民，失去中国国籍的身份；
 
-2/ 对美国3000个县的分析显示，乔-拜登在使用多米尼克投票系统的县获得的选票多出5.6％（视频） – 12/17/20 视频链接 [https://rumble.com/vbz2ld-2020-election-shows-joe-biden-over-performs-in-72-of-counties-using-dominio.html](https://rumble.com/vbz2ld-2020-election-shows-joe-biden-over-performs-in-72-of-counties-using-dominio.html) 
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/kanekoa-3.png)
+2）放弃BNO护照，保留中国国籍。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/image004-2.png)
+到时，你的身份就成居港的外籍居民，需要领取工作签证才能在香港工作，如没有工作签证，就当非法入境者，违反逗留条件。在此之下，不能享有香港的医疗、教育、公共房屋和其它福利，当然也会失去选举和被选举权。换句话说，不承认BNO 为合法旅游证件，而是一种国籍的身份。左媒指，如继续持有BNO 护照,如没经申请，也不能再入境香港。
 
-3/ Antrim Michigan Dominion 投票系统取证报告 – 12/13/20 报告链接 [https://www.scribd.com/document/488080093/Antrim-Michigan-Forensics-Report-121320-PRELIMINARY?secret\_password=6tgofj7cUYx1kQwElves](https://www.scribd.com/document/488080093/Antrim-Michigan-Forensics-Report-121320-PRELIMINARY?secret_password=6tgofj7cUYx1kQwElves)
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/kanekoa4.png)
+过去这些年，在内地拥有外国国籍，无事还好，一旦有风吹草动，就会被起底，批评，成为攻击的目标。今天的限籍令 ，就是一种清洗，收窄双重国籍。致于香港有没有可能也走到这一步，一点都不奇怪，以眼前中共要对香港收紧，甚至「二次回归」
 
-4/ 证据增加：20年选举被操纵 – 11/24/20 文章链接 [https://www.deepcapture.com/2020/11/election-2020-was-rigged-the-evidence/](https://www.deepcapture.com/2020/11/election-2020-was-rigged-the-evidence/)
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/kanekoa-5.png)
+【香港01】最后提到，第一次回归1984签订在【中英联合声明】，北京当时用了妥协的方法；现在「二次回归」是不是应该解决这个国籍问题呢？听到「解决」这两字，试问有什么办法去解决香港人的国籍问题、BNO 护照问题？
 
-5/ 佐治亚州参议院司法委员会主席对2020年12月3日听证会上的证词摘要–12/17/20 [http://www.senatorligon.com/THE\_FINAL%20REPORT.PDF](http://www.senatorligon.com/THE_FINAL%20REPORT.PDF)
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/kanekoa-6.png)
+志豪反问，到底香港人有没有家国情怀？如果这种家国情怀是唱好中国、政治表态、或使用中国出产的疫苗的话，的确，香港人没有这种家国情怀。
 
-6/ 五个州选举违规行为和问题—-12/8/20 [https://files.constantcontact.com/2438cc3e001/c22409e3-9d56-48a4-909f-0f2930c1843a.pdf](https://files.constantcontact.com/2438cc3e001/c22409e3-9d56-48a4-909f-0f2930c1843a.pdf)
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/kanekoa-7.png)
+实际上，香港人对于地理中国、文化中国和人民有着浓浓的感情和关怀。例如90年代的华东水灾、汶川地震、希望工程港人都争先恐后地捐款；而拥有外国护照的香港人；为世界女牌中国夺冠而欢呼的香港人，他们都有双重国籍。 2008年，北京成功申办奥运会，那是北京和香港两地信任度最高的时候，有无数的香港人自豪兴奋地真心地欢呼，当时的香港人对国家有一种自豪的认同感。每每国内有天灾发生，为什么香港人的会有那份认同和忠诚？在国内有难时，为何那时候港人并没有因为手中有其他国家的护照而摆出一种「事不关己，己不劳身」的姿态，而是全力捐助灾区呢？
+![]()![](https://gnews.org/wp-content/uploads/2020/12/image006.png)
+事实上，事情发展到今天，并不是香港人「养不熟」、「香港人变了」，而是中国对香港的政策变了，港人很难打从心底地认同政权。明显，问题的根源不在于我们有多少本外国护照，也不在于我们有双重国籍，问题的根源在于香港人对「国」和「党」没有混为一谈，而这一点也正正是中共认为香港人「养不熟」的原因所在。而【国安法】下，港人对于政治打压的压抑和恐惧却是与日俱增。
 
-7/ 选民诚信项目。调查结果和结论(视频) – 11/24/20 [https://twitter.com/KanekoaTheGreat/status/1344009367968833537?s=20](https://twitter.com/KanekoaTheGreat/status/1344009367968833537?s=20)
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/kanekoa-8.png)
+每一个拿着外国护照离开香港的朋友，没有一个人的心是跳跃的，都是感到离乡背井。今年这一波的移民潮，很多都是哭着离开香港的。任何一个国家都是由一个个家庭为单位聚集而来,所以中共口中的「有国才有家」的言论是本末倒置的、具欺骗性的谎话。任何国民国借都不应该来自强权的强迫，而应该是出自人心的归属.但这肯定不是一个极权政府能意会得到的.
 
-私人资金在联邦和州选举进程中的合法性和影响—-12/16/20 [https://got-freedom.org/zuckerberg-election-meddling-exposed/](https://got-freedom.org/zuckerberg-election-meddling-exposed/)
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/kanekoa-9-1.png)
+以上观点仅代表笔者本人
 
-9/ 票数异常及其对2020年选举的影响 – 11/24/20 [https://votepatternanalysis.substack.com/p/voting-anomalies-2020](https://votepatternanalysis.substack.com/p/voting-anomalies-2020)
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/kanekoa-10.png)
+资料来源：[香港01](https://www.hk01.com/%E5%91%A8%E5%A0%B1/561518/bno-%E6%98%AF%E6%99%82%E5%80%99%E8%A7%A3%E6%B1%BA-%E9%9B%99%E9%87%8D%E5%9C%8B%E7%B1%8D-%E5%BB%BA%E7%AB%8B-%E4%B8%AD%E5%9C%8B%E9%A6%99%E6%B8%AF%E5%85%AC%E6%B0%91-%E8%BA%AB%E4%BB%BD%E5%88%B6%E5%BA%A6?utm_source=01appshare&amp;utm_medium=referral)、[自媒体（志森与志豪）](https://youtu.be/QjRBvt8HbkQ)
 
-10/爆炸新闻。严格统计分析的新数据指出宾夕法尼亚州蒙哥马利县的选民舞弊 – 11/21/20 [https://www.revolver.news/2020/11/explosive-new-data-from-rigorous-statistical-analysis-points-to-voter-fraud-in-montgomery-county-pa/](https://www.revolver.news/2020/11/explosive-new-data-from-rigorous-statistical-analysis-points-to-voter-fraud-in-montgomery-county-pa/)
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/kanekoa-11.png)
+【香港专题】是时候解决BNO「双重国籍」报导专题
 
-11/2020年选举。佐治亚州、密歇根州、宾夕法尼亚州和威斯康星州的投票数据分析 – 11/26/20 [https://fsociety.substack.com/p/2020-election-could-trumps-claims-have-merit](https://fsociety.substack.com/p/2020-election-could-trumps-claims-have-merit)
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/kanekoa-12-13.png)
+[【香港专题】是时候解决BNO「双重国籍」（一）「政治忠诚」与「国籍」没有关系](https://gnews.org/zh-hans/699565/)
 
-12/ Sidney Powell的团队文件夹–12/26/20。
-[https://wpcdn.zenger.news/wp-content/uploads/2020/12/24190822/2020-12-23-Sidney-Powell-Team-Binder-ZENGER-NEWS.pdf](https://wpcdn.zenger.news/wp-content/uploads/2020/12/24190822/2020-12-23-Sidney-Powell-Team-Binder-ZENGER-NEWS.pdf)
+[【香港专题】是时候解决BNO「双重国籍」（二）《宪法》能给「香港居民」什么权力？](https://gnews.org/zh-hans/699725/)
 
-13/选举之夜的错误–怎么会这样？(视频) – 12/12/20
-[https://rumble.com/vbu6xh-election-night-errors-how-did-that-happen.html](https://rumble.com/vbu6xh-election-night-errors-how-did-that-happen.html)
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/kanekoa-14.png)
-
-14/ 仔细观察数据 – 亚利桑那州（视频） – 12/17/20。
-[https://rumble.com/vbyvln-a-close-look-at-the-data-arizona.html](https://rumble.com/vbyvln-a-close-look-at-the-data-arizona.html)
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/kanekoa-15.png)
-
-15/乔治亚州 — — 细看数据和事件 — — 第一章（视频） — — 12/25/20
-[https://rumble.com/vc5nk7-georgia-a-close-look-at-the-data-and-events-of-the-general-election-chapter.html](https://rumble.com/vc5nk7-georgia-a-close-look-at-the-data-and-events-of-the-general-election-chapter.html)
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/kanekoa-16-17.png)
-
-16/r/DonaldTrump关于Dominion投票系统和Smartmatic的报告–12/24/20。
-[https://www.reddit.com/r/donaldtrump/wiki/dominion/](https://www.reddit.com/r/donaldtrump/wiki/dominion/)
-
-17/一份（公平地）完整的2020年选举误判、错误或欺诈的最重要指控清单–12/20/20。
-[https://sharylattkisson.com/2020/12/what-youve-been-asking-for-a-fairly-complete-list-of-some-of-the-most-significant-claims-of-2020-election-miscounts-errors-or-fraud/](https://sharylattkisson.com/2020/12/what-youve-been-asking-for-a-fairly-complete-list-of-some-of-the-most-significant-claims-of-2020-election-miscounts-errors-or-fraud/)
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/kanekoa-18.png)
-
-18/对2020年的选民舞弊持怀疑态度？这是你的证据 – 11/20/20
-[https://thomisticthinker.com/skeptical-of-voter-fraud-in-2020-heres-your-evidence/](https://thomisticthinker.com/skeptical-of-voter-fraud-in-2020-heres-your-evidence/)
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/kanekoa-19.png)
-
-19/ 2020年大选调查。谁在窃取美国？(视频) – 12/14/20
-[https://www.youmaker.com/video/60bb93fa-d621-4d44-b9d0-420b9621cb57](https://www.youmaker.com/video/60bb93fa-d621-4d44-b9d0-420b9621cb57)
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/kanekoa-20.png)
-
-20/ 集合公开现有证据项目的群众外包工具
-[https://hereistheevidence.com](https://hereistheevidence.com)
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/kanekoa-21-22.png)
-
-21/乔拜登欺骗了：这里是证据。
-[https://www.joecheated.com](https://www.joecheated.com)
-
-22/ 录像证据、证据听证会、法院案例和其他资源的清单。
-[https://www.reddit.com/r/donaldtrump/wiki/evidence](https://www.reddit.com/r/donaldtrump/wiki/evidence)
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/kanekoa-23.png)
-
-23/ 2020年选举舞弊视频集锦 – 11/6/20
-[https://cloverchronicle.com/2020/11/06/video-collection-2020-election-fraud/](https://cloverchronicle.com/2020/11/06/video-collection-2020-election-fraud/)
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/kanekoa-24.png)
-
-24/5更多让乔-拜登神奇地超越选举标准的方式- 11/23/20
-[https://thefederalist.com/2020/11/23/5-more-ways-joe-biden-magically-outperformed-election-norms/](https://thefederalist.com/2020/11/23/5-more-ways-joe-biden-magically-outperformed-election-norms/)
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/kanekoa-25.png)
-
-25/ 窃取美国的阴谋(视频) – 12/7/20
-[https://www.youtube.com/watch?v=rXtGItm1bvQ&t](https://www.youtube.com/watch?v=rXtGItm1bvQ&amp;t)
-
-
-
-
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/why-have-pandemic-4.png)
-
-Vera Sharav: 我们发生这种流行病的原因就是
-“财富与权力的诱惑”
-[https://twitter.com/GenFlynn/status/1343563872381317121?s=20](https://twitter.com/GenFlynn/status/1343563872381317121?s=20)
-
-
-
-
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/flyn-trump-1227.png)
-
-12/27/2020川普总统： “司法部 “和FBI对2020年总统大选选民舞弊案毫无作为，这是我国历史上最大的诈骗案，尽管有大量确凿的证据。他们应该感到羞愧。历史会记住的。永远不要放弃。1月6日在华盛顿见大家。 
-12/27/2020 Flynn将军：我知道一两件关于 “只有我们 “部门的事情。在1月6日，全国各地的爱国者如果不能到我们的国家首都，应该在你们的州府尊重并和平地抗议这次欺诈性选举。 @真正的唐纳德-川普 #为川普而战
-[https://twitter.com/GenFlynn/status/1342847269217972224?s=20](https://twitter.com/GenFlynn/status/1342847269217972224?s=20)
-
-
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2020/12/Wenya-Logo-6.png)
 0

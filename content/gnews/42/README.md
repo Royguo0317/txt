@@ -1,29 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国国务院：保护美国投资者不再为中共军工企业提供资金
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/697823/)
+## 12/30/2020 财经快讯: 震惊! 西方主要媒体均有参与中共大外宣的“私人晚餐”和“赞助旅行”
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/699454/)
 
-翻译：康州盘古农场-黎明的光芒
-校对：康州盘古农场-烟波浩淼
-审核：康州盘古农场-V
+![]()![](https://gnews.org/wp-content/uploads/2020/12/Picture17-3.png)图片来源： https://us.blastingnews.com
+1.西方所有主要媒体包括CNN，《纽约时报》，《华盛顿邮报》和MSNBC都参加了中美交流基金会（CUSEF）的私人晚宴和赞助旅行。司法部的《外国代理人注册法》（FARA）档案中揭示了这些媒体机构与中美交流基金会之间长达十年的关系。
+[https://thenationalpulse.com/exclusive/media-private-ccp-dinners-trips/](https://thenationalpulse.com/exclusive/media-private-ccp-dinners-trips/)
 
-新闻声明
-国务卿 迈克·蓬佩奥
-12/29/2020
+2.即使年底全球原油价格大约每桶51美元，接近2015-2017年的平均水平，也难以掩盖一年的价格动荡。今年4月，由于CCP病毒以及石油巨头沙特阿拉伯和俄罗斯之间的价格战，美国原油暴跌至负值区域，布伦特原油跌破每桶20美元。CCP病毒严重影响了世界各地的燃料需求，尽管美国石油期货跌破每桶负40美元不太可能在2021年重演，但新一轮疫情导致的封锁和分阶段推出的疫苗将会持续影响明年甚至以后的石油需求。
+[https://www.reuters.com/article/us-global-oil-yearend-graphic/a-historic-oil-price-collapse-with-worries-headed-into-2021-idUSKBN2930FJ](https://www.reuters.com/article/us-global-oil-yearend-graphic/a-historic-oil-price-collapse-with-worries-headed-into-2021-idUSKBN2930FJ)
 
-川普总统上个月采取了果断行动，通过《行政命令》（13959）应对中共军工企业的证券投资威胁，保护美国投资者和退休金持有人免受资助中共军工企业（CCMC）的威胁。 川普政府正在密切协调，以应对这些公司对美国经济和国家安全的威胁。
+3.12月24日的中共国海关数据显示，11月份的猪肉进口量为33万吨，同比增长39.4％。截至11月，累计年度猪肉进口量为395万吨，比2019年增长115％。中共国商品储备管理中心还宣布计划于12月30日从其战略储备中拍卖2万吨冷冻猪肉，这是今年第38次投放储备肉，全年累计投放量已达67万吨。
+[https://new.qq.com/rain/a/20201224A0D08P00](https://new.qq.com/rain/a/20201224A0D08P00)[http://www.cngrain.com/Publish/1/676038.html](http://www.cngrain.com/Publish/1/676038.html)
 
-今天，美国财政部指出，第13959号行政命令禁止交易所的交易基金（ETF）和指数基金拥有被财政部或国防部公布在名单里的CCMC公司，以及他们占有50%或以上股权的子公司的股票。这样可以确保美国资本不为中华人民共和国（PRC）的军事，情报和安全部门的发展和现代化做出贡献。
+4.澳洲总理莫里森对中共国的态度受到许多澳大利亚人的支持，60%的澳人认为澳大利亚是中共国贸易限制的无辜受害者。2020年Lowy Institute的民意调查显示，澳大利亚人对中共国的信任度处于历史最低点，几乎所有澳大利亚人都支持远离中共国的贸易多元化，中共国的不断施压只会加剧澳大利亚的态度。
+[https://www.theguardian.com/commentisfree/2020/dec/28/australias-relationship-with-china-can-survive-but-it-wont-be-the-same-again](https://www.theguardian.com/commentisfree/2020/dec/28/australias-relationship-with-china-can-survive-but-it-wont-be-the-same-again)
 
-该行政命令适用于美国个人的所有交易，包括个人，机构投资者，养老基金，大学捐赠基金，银行，债券发行人，风险投资公司，私募股权公司，指数公司以及其他美国实体，包括在海外经营的实体。 这应该可以消除美国投资者可能在不知情的情况下，通过直接，间接或其他被动投资支持CCMC的担忧，这些投资包括与教育相关的投资，ETF，风险基金，私募基金，房地产投资信托基金，大宗商品，捐赠基金，养老金或跟踪债券，贷款，租赁额度，债务或权益指数的任何其他投资基金，包括CCMC或美国政府公开上市的子公司的证券。
+5.在香港上市的中共国物流资产控股有限公司的两个最大股东RRJ Capital和董事长李士发计划出售他们共50％的股份，价值约20亿美元。 如果交易成功可能会导致整个公司被收购。
+[https://www.bloombergquint.com/business/china-logistics-owners-plan-to-sell-control-at-2-billion-value](https://www.bloombergquint.com/business/china-logistics-owners-plan-to-sell-control-at-2-billion-value)
 
-从2021年1月11日开始，无论CCMC持股比例如何，美国投资者将不能再进行公开的交易，也不能进行私募市场的债务或股票证券及任何其衍生产品的交易，所有这些投资都必须在2021年11月11日之前全部撤资。
+By 【Financial Team】
 
-原文链接：
-
-[https://www.state.gov/protecting-u-s-investors-from-financing-communist-chinese-military-companies/](https://www.state.gov/protecting-u-s-investors-from-financing-communist-chinese-military-companies/)
-
-
-
-0
++1
