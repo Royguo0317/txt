@@ -1,45 +1,168 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共一切都是假的！“中南坑”领导的身体状况是国家机密！
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/698087/)
+## 突发！20家大医院停诊，出租车司机感染新冠
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/698242/)
 
-新闻简述：郭先生在2020年12月28日早上发布的GTV盖特视频中，对比普通人和独裁者对生病和健康状况的态度，并用著名影视剧《甄嬛传》和《斯大林之死》暗喻当今中共独裁者（习近平），有可能像这影视作品中描述的结局一样，死于“自己人”手上。中共的本质在于：一切都是假的，所以人民不能妄议朝纲，不能妄议“中南坑”领导的身体状况，不能妄议疫情死多少人，不能妄议中美关系，也不能妄议“爆料革命”。
-视频来源：[https://gtv.org/getter/5fe9ef9987fabe2daf2c023c](https://gtv.org/getter/5fe9ef9987fabe2daf2c023c)（00:00-01:02，04:26-06:10)
-中英文对照全文：
+![]()![](https://gnews.org/wp-content/uploads/2020/12/1-243.png)
+据健康时报消息，国家卫健委高级别专家组成员、中国疾控中心流行病学前首席科学家曾光指出，疫情现在开始将进入第二阶段
 
-00:00-01:02
+**一**
 
-How are you, my honorable brothers and sisters in arms! Today is December 28th. I will not work out today, and therefore today is a comfortable, cheat day. However, I was on the terrace last night, answering and making phone calls, and caught a little cold. I haven’t caught a cold for a year. I think having a small cold is good, and a little runny nose helps expel toxins in your body.
+北京13人感染，有出租车司机、超市员工
+今日（12月27日），据新华社消息，12月26日0时至24时，北京新增5例本地确诊病例和1例无症状感染者；其中无症状感染者，某男，40岁，安徽籍，现住顺义区南法信镇东海洪村，为出租车司机，核酸检测结果为阳性，由120负压救护车转至地坛医院。
 
-尊敬的战友们好！12月28号，文贵今天不健身，所以说的今天挺舒服啊休息一天。但是昨天晚上一直在露台接电话，打电话，所以有点感冒，一年了没感冒了，我觉得感冒感冒挺好，流流鼻涕排排毒。
+其中一患者，31岁，河北籍，现住顺义区南法信镇西杜兰村，为顺义区华联商超员工。25日核酸检测结果为阳性，当日诊断为新冠肺炎确诊病例。
 
-We are not long live or long long live emperors, right? To ordinary people, getting sick or catching a little cold is a good thing, which can help eliminate toxins in your body. Yes, usually “saints” cannot get sick easily, but once a “saint” gets sick, it is usually something really serious, and the saint might be killed by the poison mixed in the medicine or in soup, or being strangled by a yellow rope, just as what was described in the Chinese TV series *Empresses in the Palace*. Have you ever watched the movie *The Death of Stalin*? I have recommended it several times. The Death of Stalin is a wonderful movie.
+12月14日至12月26日，北京总计新增13名新冠肺炎感染者，其中朝阳区3例，西城区1例，顺义区9例。
 
-咱们也不是什么万岁万岁万万岁，是吧，常人嘛，普通人有点病，感冒一下挺好，排排毒嘛。就是啊一般的圣人不得病的。不过圣人一得病就得大病，一般都是《甄嬛传》里面给下点药啊弄点毒啊，煲汤给煲出毒那种的 ，或者拿黄绳子给勒死那种。看过斯大林那个电影了吗？我一再推荐，斯大林之死那个电影真是拍得太好了。
+今日（12月27日），据国家卫健委通报，12月26日0—24时，31个省（自治区、直辖市）和新疆生产建设兵团报告新增确诊病例22例，其中境外输入病例10例（上海4例，北京3例，浙江2例，安徽1例），本土病例12例（辽宁7例，北京5例）。据31个省（自治区、直辖市）和新疆生产建设兵团报告，现有确诊病例334例（其中重症病例4例）。
 
-04:26-06:10
+其中，辽宁省新增7例本土新冠肺炎确诊病例，均属普通型病例，其中沈阳市报告3例、大连市报告4例；新增3例本土无症状感染者，其中沈阳市报告1例，大连市报告2例。
 
-So the CCP is completely done, with its economy being collapsed! According to what a fellow fighter told me yesterday, now for the statistical data, the Bureau of Statistics in China have implemented the “three points and five cuts” policy internally. That is to say the director who is in charge of the data and the one who is in charge of the report cannot communicate with each other, for there is the concern that anyone who knows all of the data or reports will expose it. Things like this have happened since the Cultural Revolution, that is to promote distrust, suspicion and surveillance among each another.
+26日，北京市政府举行新闻发布会，介绍疫情防控最新情况。北京市卫健委相关负责人表示，目前北京疫情防控形势较为严峻，不排除进一步发现病例的可能。在新增2例本地确诊病例中，确诊患者笔记本电脑检出核酸阳性。
 
-所以共产党是彻底的完了、经济的崩塌！据昨天有战友跟我说，现在统计局所有的统计数据，在内部已经实行了“三分五割”的制度，也就是说主管数据的或主管报表的局长，是相互不能打听的，就担心你哪个人知道了，你全部给爆料出去。这事儿”文化大革命“时候就开始了，就是互相猜忌，互相监督。
+**二**
 
-Another thing is its food crisis, which has become a national security issue and a national secret! Like the [CCP] virus, the mortality rate is a secret of national security. How terrible you think it is, my brothers and sisters! Then, it is said that the mortality rate is a national secret, and the amount of grain in stock is also a national secret!
+多地进入战时状态：北京顺义、沈阳、大连
 
-另外一个就是现在粮食[危机]，粮食成了国家的安全和机密！像现在这个病毒一样，死亡数是国家安全的机密，你说多恐怖，兄弟姐妹们！然后，现在说，死亡率是机密；粮食有多少，也是机密！
+12月26日，北京市召开第192场疫情防控新闻发布会，宣布北京顺义区进入战时状态，目前顺义区对确诊病例主要活动、居住区域人员启动全员核酸检测，并在此基础上逐步扩大核酸检测范围，计划检测80万人。
 
-What is more ironic, dear brothers and sisters, is that I heard a very ridiculous story yesterday. It’s said that the leadership of a province in China posted a temporary notice on the door when holding a meeting, listing questions that cannot be asked during the meeting and topics that cannot be talked about. Haha, “topics that cannot be asked or talked about” in the Provincial Party Committee, posted on the door of the Provincial Party Secretary’s meeting! Absolutely, you cannot discuss disrespectfully about anything concerning the governance of the party or anything concerning the health condition of the central leaderships in the Zhongnan Pit, right? You cannot argue how many people have died, you cannot discuss the relationship between China and the U.S., and you cannot talk about the Whistleblower Movement!
+过去一周，北京顺义、大连、沈阳等地相继宣布进入战时状态。
 
-更夸张的事情，亲爱的兄弟姐妹们，昨天我听到个特别搞笑的事情，说某省在开会的时候，领导在门口临时贴出一张[纸]：会议当中不能问的问题，不能谈到的话题。呵呵，“不能问的、不能谈到的话题”，是在省委啊，省委书记的会上的门上贴上的！绝对那是不能妄议朝纲，不能妄议“中南坑”领导的身体状况，是吧？也不能妄议现在死多少人，也不能妄议中美关系，也不能妄议“爆料革命”！
+12月20日，大连召开疫情防控新闻发布会。大连市卫健委副主任赵连介绍，大连立即进入战时状态，制定并完善应急预案和工作方案，全力以赴做好各项防控工作；各级卫健部门、医疗机构要完善工作机制，严格落实预检分诊和发热门诊管理。
 
-Brothers and sisters, therefore, all of you know that the current situation in Mainland China is: everything is fake! Everything is fake!
+12月15日至25日，大连本次聚集性疫情累计报告24例确诊病例。12月20日，大连召开疫情防控新闻发布会。大连市卫健委副主任赵连介绍，大连立即进入战时状态。
 
-兄弟姐妹，所以说，现在国内这个情况，大家知道：一切都是假的！一切都是假的！
+12月23日，沈阳市发现1例韩国返沈人员解除隔离后新冠病毒核酸检测阳性患者，经专家会诊，定为确诊病例。沈阳宣布，12月23日起沈阳进入战时状态。
 
-致谢：感谢彩虹桥的汉语听写：[https://gnews.org/zh-hans/693321/](https://gnews.org/zh-hans/693321/)
+12月22日，山西河津宣布疫情防控工作进入“战时状态”，全面大排查。
 
-翻译：【Cyndi】校对：【BruhM】【Isaiah4031】字幕：【Embracer牙牙】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+12月12日，绥芬河市新型冠状病毒感染的肺炎疫情防控应急指挥部发布公告称，按疫情防控预案，绥芬河市转入战时状态，实施严格的小区（村屯）封闭式管理。民营医院、个体诊所、社区卫生服务机构、村卫生所、牙科诊所等医疗机构暂停营业。
 
-喜马拉雅玫瑰园小队出品
+**三**
 
-+1
+20家医院，这些科室停诊
+
+12月26日，辽宁省沈阳市新增3例新冠肺炎境外输入病例尹某某的关联病例，现均已转入定点医疗机构隔离治疗，他们均到过同一家医院。其中一患者为沈阳谱康医院护士，曾于12月21日、12月22日与新冠肺炎确诊病例尹某某有过密切接触。
+据人民日报、辽宁日报等多家媒体消息，大连市卫生健康委下发了各大医院出诊安排，有18家医院暂时停诊。辽宁沈阳也有多家医院停诊。
+
+**1.大连医科大学附属第一医院**
+
+暂停以下门诊及有创检查：呼吸内科、眼科、口腔科、耳鼻喉科、健康管理中心、泉涌院区门诊、特聘专家诊、门诊有创检查（包括胃肠镜、膀胱镜、支气管镜、中医针灸）及门诊肺功能检查；在完成现有预约存量（已预约且持有48小时内核酸检测阴性报告的患者）检查后，门诊有创检查将全部暂停。
+
+根据上级防控工作相关要求，我院新生儿门诊暂时取消“42天儿保体检”，儿科门、急诊暂不接诊发热、金普新区及其他中高风险地区患儿（急诊抢救除外），请到开设儿科专用发热门诊的医疗机构就诊。
+
+金普院区继续暂停门诊（恢复时间另行通知）。除急危重症患者收治及手术外，暂停非急诊或非必须住院患者的收治。
+
+**2.大连医科大学附属第二医院**
+
+大医二院星海湾院区及钻石湾院区门诊暂停开放。放疗科普通门诊限号开放（每诊次限号30）。
+
+**3.大连大学附属中山医院**
+
+眼科门诊、口腔门诊、耳鼻喉门诊、呼吸内科门诊、造船分部门诊、桥北分部门诊、急诊输液室、体检中心全部停诊。
+
+门诊胃肠镜、支气管镜、喉镜及其他腔镜检查等，暂停预约患者。本周六日专家诊暂停，已预约患者继续诊疗完毕。门诊择期手术暂停。
+
+**4.大连大学附属新华医院**
+
+眼科、耳鼻喉科、口腔科只开放急诊，平诊患者延期诊疗。
+
+暂停中医门诊、疼痛门诊、针灸科、体检中心、整形美容科门诊、方便门诊。
+
+**5.大连市中心医院**
+
+自2020年12月22日起，暂停呼吸内科、眼科、耳鼻喉科、口腔科、儿科、体检科、康复科、中医相关科室的专家诊、平诊。暂停肺功能、支气管镜检查。
+
+**6.大连市第二人民医院**
+
+口腔科、耳鼻喉科、眼科、呼吸内科、儿科、妇科、皮肤科、中医专家诊、吴教授专家诊停诊，其余门诊及专家诊限号15个(预约号源10个+现场号5个)。
+
+**7.大连市第三人民医院**
+
+普通门诊、专家诊暂停（恢复时间另行通知），急诊、发热门诊24小时开诊。除急危重症患者收治及手术外，暂停非必要的门诊服务及非急诊或非必须住院患者的收治。减少人员聚集，避免出现交叉感染，降低风险。
+
+**8.大连市第四人民医院**
+
+自2020年12月22日开始，暂停全部专家诊。除内科、外科、烧伤科门诊外，其他门诊暂停。发热门诊、急诊24小时开放。
+
+来自金普新区的患者，需经医院发热门诊全面排查并出示核酸阴性报告后方可就诊，急危重症患者除外。
+
+**9.大连市第五人民医院**
+
+暂停胸外科、呼吸内科、眼科、耳鼻喉科、口腔科门诊；暂停各学科专家诊；暂停中医科针灸治疗以及胃肠镜、纤支镜、门诊手术等门诊有创操作检查治疗（危急重症患者除外）；暂停体检中心服务。
+
+**10.大连市第六人民医院**
+
+所有进入门诊的人员就诊时严格遵守一医一患一诊室，排队等候时保持一米间隔，暂停门诊胃肠镜检查服务。
+
+非急诊或者非必须住院患者请暂缓住院；择期等非急需手术全部暂停。
+
+**11.大连市第七人民医院**
+
+五一路门诊停诊；院本部心理咨询门诊停诊；司法鉴定、医学鉴定工作暂停；
+
+医保慢病检诊暂停。
+
+**12.大连市友谊医院**
+
+非急危重症等特殊情况患者，请尽量避免来诊，减少自身交叉感染可能；自12月28日起取消现场挂号，全部实行网站预约和电话预约；门诊就诊实行实名制。
+
+自2020年12月22日始，呼吸科、老年病、中医科、中医康复理疗科、疼痛科、体检中心、国际医疗部等科室的普通门诊以及全部专家诊均停诊。其他各科系只保留普通门诊一个诊室开诊。
+
+自2020年12月22日始，眼科、耳鼻喉头颈外科、口腔科的普通门诊停诊，仅开展急诊诊疗工作。
+
+**13.大连市妇幼保健院**
+
+开诊（一）春柳总院: 1.急诊科；2.产科门诊、产科专家门诊；3.计划生育门诊(仅限急诊、限期，咨询电话：39062382）；4.各产科病房、产房、新生儿科；5.妇科二病房、妇科三病房和乳腺病房仅收治急诊患者。（二）长江路分部:1.儿保门诊（听力测试、足底血）；2.产后康复中心。
+
+暂停开诊（一）春柳总院 1.妇科一病房、妇科肿瘤病房；2.普通妇科门诊、阴道镜门诊、妇科专家诊、妇科肿瘤门诊、生殖门诊；3.遗传咨询门诊；4.乳腺门诊；5.麻醉门诊、疼痛门诊；6.中医门诊、皮肤门诊、方便门诊、眼科门诊、口腔门诊；7.药事门诊。
+
+（二）长江路分部除儿保门诊（听力测试、足底血）、产后康复中心以外全部停诊。（三）友好路门诊部停诊。（四）白山路分部停诊。
+
+**14.大连市中医医院**
+
+自2020年12月23日起至12月27日，暂停门诊、高尔基路门诊，仅开放急诊、发热门诊。
+
+**15.大连市儿童医院**
+
+停诊科室：儿保科、健康管理中心停诊。五官科停诊，仅保留急诊诊疗工作。中医科暂停非必要诊疗，“三九贴敷”暂停受理预约，此前已经预约贴敷的儿童请保持社交距离，做好防护，分时段有序前来贴敷；
+
+暂停门诊部分检查：停止门诊肺功能检测、C13呼气检测及门诊内镜检查（喉镜、气管镜、支气管镜、胃肠镜等）；
+
+暂停收治择期手术患儿；暂停各专科的门诊患儿进入病房进行诊查处置；暂停现场复印病历服务：病案室停止现场复印病历服务，若有需要，请使用“微病案”小程序操作；
+
+食堂暂停堂食：医院食堂暂停堂食服务，堂食开放时间另行通知，住院患儿及家长请扫描医院食堂二维码订餐，由食堂统一配送。暂停诊疗的科室恢复时间将第一时间通知。
+
+**16.大连市口腔医院**
+
+根据目前疫情防控需要及上级部门防控工作要求，大连市口腔医院从即日起暂停非必要的门诊服务和住院患者收治，只开展口腔急症诊疗工作。恢复时间另行通知。
+
+**17.大连市皮肤病医院**
+
+1.暂停美容皮肤科、美容外科、中医美容科门诊、治疗科、中医外治科相关治疗项目。
+
+2.暂停门诊非急、重症等特殊情况患者的接诊工作。方便门诊正常。
+
+**18.大连市妇女儿童医疗中心**
+
+暂停儿保科、小儿神经康复科、中医科、口腔科、耳鼻喉科、消化内镜中心诊疗工作。暂停诊疗的科室恢复时间将第一时间通知。发热门诊、急诊24小时开放。
+
+**19-20+.沈医二院北院区和市四院急诊、沈阳谱康医院已封停**
+
+12月24日，辽宁省沈阳市召开新闻发布会，介绍疫情最新情况。确诊患者到过部分医疗机构已封停，患者家属就读的2所学校已停课。
+
+确诊患者曾到过秀水诊所、沈阳谱康医院、沈医二院北院区、沈阳市第四人民医院、中国医大一院等5家医疗机构就诊。目前，沈医二院北院区和市四院急诊及秀水诊所、沈阳谱康医院已封停，上述5家医疗机构已全部进行终末消毒。
+
+四
+
+曾光：疫情进入第二阶段，死亡率变高
+
+据健康时报消息，日前在全国老龄健康传播与促进行动项目“积极应对，预防流感”主题宣传活动上，国家卫健委高级别专家组成员、中国疾控中心流行病学前首席科学家曾光介绍，从人类发现新冠病毒到目前为止是人类和病毒斗争的第一阶段。这一阶段的特点是：人类在没有疫苗的情况下和新冠病毒做斗争；现在开始将进入第二阶段，即当人类有了疫苗以后如何继续和新冠病毒做斗争。
+
+“现在这个时间点很特殊，正好是新冠在西方世界流行的高峰，预计从这一阶段开始到全球人们普遍获得对新冠免疫力的时间要远远超过第一阶段，可能发病率、死亡率也要远远超过第一阶段。”
+
+文章来源：中国微信群
+
++2

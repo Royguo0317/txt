@@ -1,41 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印度正在研发5G， 试冲破中共 “数字丝绸之路” 包围世界的策略
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/697614/)
+## 【纳瓦罗推文1229】不了解CCP Virus和羟氯喹别瞎说
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/697958/)
 
-俄罗斯莫斯科喀秋莎农场 银河
+12月29日白宫经贸制造业主任皮特纳瓦罗先生用推文回复Megan Mcardle （华盛顿邮报栏目记者，新近发表文章“在下一次灾难来临时拥抱辩证的未知”，推文称：
 
-校对上传 星河
-![]()![](https://gnews.org/wp-content/uploads/2020/12/498984566565.jpg)mid-day.com
-印度快报12月29日消息，印度正在研发技术以加快推出国产5G，试图在中共5G入侵的冲击下突破重围，保证自己的民用和军用互联网平台信息安全。
+请 @asymmetricinfo Megan Mcardle 注意，我对CCP Virus（CCP病毒，中共病毒）的认识是正确的。我对羟基（羟氯喹）的看法是正确的，你不应该对一种有50项研究证明有效的药物做虚假的声明。做做功课去。
 
-印媒指出，最近中共与尼泊尔同意将珠穆朗玛峰的高度增加3米的消息看起来虽然微不足道，但深入思考，它可能会导致中共5G技术的入侵，让中共进而有能力控制尼泊尔的登山和旅游业。尼泊尔推出5G意味着尼泊尔的商业利益会转移到中共的控制之下。例如：当地人或游客会依赖基于中共5G推出的天气、路线、地图、地形细节、后勤和救援计划等实时信息。这些信息的泄露，会使尼泊尔边境变得脆弱。由于当地收入较低，旅游业可能会被中共一带一路的低息贷款所吸引，从而陷入战略债务陷阱。中共对尼泊尔的渗透会直接影响到尼印关系的发展及合作。
+- ![]()![](https://gnews.org/wp-content/uploads/2020/12/note-to-washington-post-colomn.png)
 
-早在2019年4月美国国防部的报告《5G生态系统：国防部的风险与机遇》（The 5G Ecosystem:Risks & Opportunites for DoD）中就指出，中共情报界迫使全球公司泄露中共国国内用户的信息要求，如果中共在5G领域领先，那么有可能让5G朝着中共的方向扭曲发展。
-
-美国网路安全和基础设施安全局（CISA）在2019年8月报告中指出，5G隐含大量安全隐忧，为美国国防部带来了严重的潜在风险。首先，由不受信任公司提供的零组件，使供应链上的软硬体都存有被攻击风险；其次，5G为达高效宽频网路，因此需要数量更多、范围更大的基地台、伺服器等基础建设，这代表整个5G网路将提供攻击者更多可以“下手”的目标。
-
-5G连接设备数量的增长也增加了（战略）对手穿越美国国防部网络的潜在“攻击面”，这势必要求美国提高对跨系统的网络警惕和安全性的考量。最后5G的迅速发展，也让华为、中兴通讯等中共投资企业趁机崛起，华为也是中共推动“数字丝绸之路”的重心，中共利用该公司，企图在各地区取得超越美国的地缘政治利益。报告写道：“如果中国政策确实要求在中国销售的设备中嵌入后门访问以用于内部安全目的，那么应用于中国这样一个大市场的代码泄露、会提升这些漏洞蔓延到世界其它地方的风险。”
-
-自2020年10月起，越来越多的国家加入了美国的净网行动，排除了使用中共企业的5G设备。中共加大了在非洲及中东地区大规模援助5G网络设备的行动，这对发展中国家存在多方面的安全威胁。5G是中共“数字丝绸之路”包围世界的策略，与 “一带一路”相互呼应。中共在非洲等没有自主的互联网平台能力的国家建设数字基础设施，5G的渗透会让该国成为中共技术的人质。中巴经济走廊(CPEC)就是一个明确的例子，巴基斯坦今天实际上是中共的附庸国，而尼泊尔正在重蹈覆辙中。
-
-美国政府已经日渐重视政府在5G技术发展上的作用。美国联邦通信委员会（FCC）和美国国际开发署（USAID）联合发布公告，宣布建立合作，以推动美国切断与中共国5G设备供应商的所有连接，并为发展中国家的下一代网络实施开放端口技术。
-
-印度也不甘示弱，积极抢占5G市场。印度快报指出，中共已经确保了世界从实体领域过渡到数字领域。今年是海湾战争以来全球军事冲突空前加剧的一年。各国都在展示他们的军事意图。人工智能的应用已经在战争中得到了展示，除了获得5G技术，我们别无选择。中共已经投下了一个骰子，想要真正地占领世界。
-
-如果印度加快推出5G，便可能会在中共5G入侵的冲击下生存下来。
-
-印媒称：我们的科学家和工业能够胜任快速发展5G技术，推出国产5G，从而将其运行到民用和军用互联网平台总，进而禁止中共的应用程序和封锁硬件供应链。同时印媒也指出，印度实际的困难在于 “执行”方面很差。
-
-目前德里已经意识到赢得这场战争的重要性。印度总理纳伦德拉·莫迪(Narendra Modi)一直在推动“自力更生”，把数字化印度作为国家优先事项。印度试图在中共国际关系陷入低谷之际，把握时机，让印度发展成可替代中共国的力量。
-
-参考链接：
-
-[https://indianexpress.com/article/opinion/columns/5g-game-is-being-played-strategically-by-china-7123816/?utm\_source=Taboola\_Recirculation&utm\_medium=RC&utm\_campaign=IE](https://indianexpress.com/article/opinion/columns/5g-game-is-being-played-strategically-by-china-7123816/?utm_source=Taboola_Recirculation&amp;utm_medium=RC&amp;utm_campaign=IE)
-
-[https://www.rfa.org/mandarin/yataibaodao/meiti/bx-10162020135000.html](https://www.rfa.org/mandarin/yataibaodao/meiti/bx-10162020135000.html)
-
-[https://www.ydn.com.tw/news/newsInsidePage?chapterID=1231767&type=forum](https://www.ydn.com.tw/news/newsInsidePage?chapterID=1231767&amp;type=forum)
-
+[https://twitter.com/RealPNavarro/status/1344084098948755458?s=20](https://twitter.com/RealPNavarro/status/1344084098948755458?s=20) 原文链接 [https://www.washingtonpost.com](https://www.washingtonpost.com)
 +1
