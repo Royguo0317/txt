@@ -1,44 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共越来越孤立：习近平越来越被世界各国领导人排斥
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/697003/)
+## 中共一切都是假的！“中南坑”领导的身体状况是国家机密！
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/698087/)
 
-- 编辑：Victor Torres
+新闻简述：郭先生在2020年12月28日早上发布的GTV盖特视频中，对比普通人和独裁者对生病和健康状况的态度，并用著名影视剧《甄嬛传》和《斯大林之死》暗喻当今中共独裁者（习近平），有可能像这影视作品中描述的结局一样，死于“自己人”手上。中共的本质在于：一切都是假的，所以人民不能妄议朝纲，不能妄议“中南坑”领导的身体状况，不能妄议疫情死多少人，不能妄议中美关系，也不能妄议“爆料革命”。
+视频来源：[https://gtv.org/getter/5fe9ef9987fabe2daf2c023c](https://gtv.org/getter/5fe9ef9987fabe2daf2c023c)（00:00-01:02，04:26-06:10)
+中英文对照全文：
 
+00:00-01:02
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+How are you, my honorable brothers and sisters in arms! Today is December 28th. I will not work out today, and therefore today is a comfortable, cheat day. However, I was on the terrace last night, answering and making phone calls, and caught a little cold. I haven’t caught a cold for a year. I think having a small cold is good, and a little runny nose helps expel toxins in your body.
 
-**西班牙2020年12月29日电/西喜社——**
+尊敬的战友们好！12月28号，文贵今天不健身，所以说的今天挺舒服啊休息一天。但是昨天晚上一直在露台接电话，打电话，所以有点感冒，一年了没感冒了，我觉得感冒感冒挺好，流流鼻涕排排毒。
 
-美国不仅崩紧了与亚洲巨头的关系。欧洲主要领导人也越来越怀疑中共的意图，并试图对他们的全球扩张施加限制。
+We are not long live or long long live emperors, right? To ordinary people, getting sick or catching a little cold is a good thing, which can help eliminate toxins in your body. Yes, usually “saints” cannot get sick easily, but once a “saint” gets sick, it is usually something really serious, and the saint might be killed by the poison mixed in the medicine or in soup, or being strangled by a yellow rope, just as what was described in the Chinese TV series *Empresses in the Palace*. Have you ever watched the movie *The Death of Stalin*? I have recommended it several times. The Death of Stalin is a wonderful movie.
 
-如果习近平认为，他要成为全球秩序新轴心的计划会像中国国内一样简单，那他就大错特错了。在内部层面，习近平用几年时间成功地修改了宪法，结束了轮值主席制，成为永恒的领袖，并扫除了共产党内任何形式的异己，如今已无人敢于质疑。但国外的情况却截然不同。
+咱们也不是什么万岁万岁万万岁，是吧，常人嘛，普通人有点病，感冒一下挺好，排排毒嘛。就是啊一般的圣人不得病的。不过圣人一得病就得大病，一般都是《甄嬛传》里面给下点药啊弄点毒啊，煲汤给煲出毒那种的 ，或者拿黄绳子给勒死那种。看过斯大林那个电影了吗？我一再推荐，斯大林之死那个电影真是拍得太好了。
 
-的确，中国在短短几十年间，从一个相对边缘的角色变成了贸易和全球经济的中心，这使中国的政治影响力成倍增加。然而，五年前还以接见习近平为荣并寻求合作的世界各国领导人，现在却越来越怀疑习近平的意图，并果断采取措施与其划清界限。
+04:26-06:10
 
-美国是这种转变的前沿，尤其是在唐纳德·川普2017年1月成为总统后。但现在其他大国也在效仿。华盛顿不再单独寻求遏制中国获取客户、技术和敏感基础设施。西方国家都在朝这个方向迈进。
+So the CCP is completely done, with its economy being collapsed! According to what a fellow fighter told me yesterday, now for the statistical data, the Bureau of Statistics in China have implemented the “three points and five cuts” policy internally. That is to say the director who is in charge of the data and the one who is in charge of the report cannot communicate with each other, for there is the concern that anyone who knows all of the data or reports will expose it. Things like this have happened since the Cultural Revolution, that is to promote distrust, suspicion and surveillance among each another.
 
-就连经济上依赖中国的澳大利亚，也成为第一个封锁华为的国家之一，并要求调查中国–至少是在最初处理中共病毒爆发时的疏忽。纳伦德拉·莫迪的印度并不完全是自由世界所倡导的自由民主的推动者，它也越来越坚定地拒绝中国，并与美国及其盟友扩大军事合作，以遏制北京在其有争议的边界上的推进。
+所以共产党是彻底的完了、经济的崩塌！据昨天有战友跟我说，现在统计局所有的统计数据，在内部已经实行了“三分五割”的制度，也就是说主管数据的或主管报表的局长，是相互不能打听的，就担心你哪个人知道了，你全部给爆料出去。这事儿”文化大革命“时候就开始了，就是互相猜忌，互相监督。
 
-欧洲在扩大对华贸易的同时，也为中国基金的收购设置了新的障碍，中国基金似乎急于收购欧洲大陆的大公司。而且还限制了中国技术的渗透，因为私人利益与该国的军事是分不开的。
+Another thing is its food crisis, which has become a national security issue and a national secret! Like the [CCP] virus, the mortality rate is a secret of national security. How terrible you think it is, my brothers and sisters! Then, it is said that the mortality rate is a national secret, and the amount of grain in stock is also a national secret!
 
-与此同时，世界正越来越多地寻求增加对一个日益压抑的政权的压力。例如，面对香港自由的大幅削减，欧盟国家一致支持制裁，这在几年前是不可想象的。对公然侵犯维吾尔少数民族人权的质疑也越来越多。这些只是一些例子，说明人们越来越倾向于将中共国视为必须遏制的威胁。
+另外一个就是现在粮食[危机]，粮食成了国家的安全和机密！像现在这个病毒一样，死亡数是国家安全的机密，你说多恐怖，兄弟姐妹们！然后，现在说，死亡率是机密；粮食有多少，也是机密！
 
-但拒绝的主体并不限于世界大国的领导人。事实是，最发达国家的公民对中共国和习近平的不信任感越来越强。世界上最著名的智库之一皮尤研究中心去年10月发布了一份最新报告，介绍了生活在最发达经济体的人们对中共国的看法。这个结果对北京来说，确实是触目惊心的。
+What is more ironic, dear brothers and sisters, is that I heard a very ridiculous story yesterday. It’s said that the leadership of a province in China posted a temporary notice on the door when holding a meeting, listing questions that cannot be asked during the meeting and topics that cannot be talked about. Haha, “topics that cannot be asked or talked about” in the Provincial Party Committee, posted on the door of the Provincial Party Secretary’s meeting! Absolutely, you cannot discuss disrespectfully about anything concerning the governance of the party or anything concerning the health condition of the central leaderships in the Zhongnan Pit, right? You cannot argue how many people have died, you cannot discuss the relationship between China and the U.S., and you cannot talk about the Whistleblower Movement!
 
-以美国为例，2005年至2020年，对中国持某种程度或非常不利看法的人的比例增加了一倍：从35%增加到73%。可以说这是由于华盛顿与北京的竞争所致，但这是一个普遍现象。只有德国的拒绝率略低，例如德国的拒绝率从37%上升到71%。或者在法国，从42%攀升到70%。在其他地方，如西班牙，不支持率直接增加了三倍，从21%增加到63%。而在英国，它从16%翻了两番，达到74%。
+更夸张的事情，亲爱的兄弟姐妹们，昨天我听到个特别搞笑的事情，说某省在开会的时候，领导在门口临时贴出一张[纸]：会议当中不能问的问题，不能谈到的话题。呵呵，“不能问的、不能谈到的话题”，是在省委啊，省委书记的会上的门上贴上的！绝对那是不能妄议朝纲，不能妄议“中南坑”领导的身体状况，是吧？也不能妄议现在死多少人，也不能妄议中美关系，也不能妄议“爆料革命”！
 
-有趣的是，这是贯穿世界各个地区的事情。在美洲，有加拿大人的情况，其中对中国的负面看法从27%上升到73%。在大洋洲有澳大利亚的例子，近年来澳大利亚的拒绝率攀升得惊人：从2017年的32%上升到2020年的81%。但在亚洲也可见。在韩国，2005年至2020年，从31%攀升至76%；在日本，从42%攀升至86%。
+Brothers and sisters, therefore, all of you know that the current situation in Mainland China is: everything is fake! Everything is fake!
 
-显然，这种敌意不是针对社会，也不是针对中国文化，而是针对中共国政府推行的政策。这就是皮尤研究中心在询问发达国家人民对习近平能在全球事务中做正确的事情有多大信心时的表现。在几乎所有这些国家，他都遭到了溃败了。
+兄弟姐妹，所以说，现在国内这个情况，大家知道：一切都是假的！一切都是假的！
 
-77%的美国人对中共国主席几乎没有信心，比去年的50%有所上升。在德国，习近平的负面形象甚至高于美国（61%），现在则攀升至78%。在法国，不信任度本来就很高（69%），却上升到80%。在英国，2018年大大降低（49%），今年则攀升至76%。
+致谢：感谢彩虹桥的汉语听写：[https://gnews.org/zh-hans/693321/](https://gnews.org/zh-hans/693321/)
 
-同样，在这个问题上，我们看到的是，那些与中共国最亲近的人，是认为中共政权形象最差的人。在日本，不信任度高达84%，韩国为83%。在澳大利亚，2018年的比例为47%，到2020年则增长到79%，这是因为人们对中共国进军南太平洋的担忧与日俱增。
+翻译：【Cyndi】校对：【BruhM】【Isaiah4031】字幕：【Embracer牙牙】视频解码：【恒久忍耐】编辑：【Isaiah4031】
 
-结论是明确的。如果习近平坚持几年来走过的道路，即开始试图强行进入全球秩序的领导层，那么事情很可能不会如他所愿。
+喜马拉雅玫瑰园小队出品
 
-新闻来源：[https://www-infobae-com.cdn.ampproject.org/v/s/www.infobae.com/america/mundo/2020/12/29/china-cada-vez-mas-aislada-crece-el-rechazo-a-xi-jinping-entre-los-lideres-mundiales/?amp\_js\_v=a6&amp\_gsa=1&outputType=amp-type&usqp=mq331AQHKAFQArABIA%3D%3D#aoh=16092625276932&referrer=https%3A%2F%2Fwww.google.com&amp\_tf=De%20%251%24s&ampshare=https%3A%2F%2Fwww.infobae.com%2Famerica%2Fmundo%2F2020%2F12%2F29%2Fchina-cada-vez-mas-aislada-crece-el-rechazo-a-xi-jinping-entre-los-lideres-mundiales%2F](https://www-infobae-com.cdn.ampproject.org/v/s/www.infobae.com/america/mundo/2020/12/29/china-cada-vez-mas-aislada-crece-el-rechazo-a-xi-jinping-entre-los-lideres-mundiales/?amp_js_v=a6&amp;amp_gsa=1&amp;outputType=amp-type&amp;usqp=mq331AQHKAFQArABIA%3D%3D#aoh=16092625276932&amp;referrer=https%3A%2F%2Fwww.google.com&amp;amp_tf=De%20%251%24s&amp;ampshare=https%3A%2F%2Fwww.infobae.com%2Famerica%2Fmundo%2F2020%2F12%2F29%2Fchina-cada-vez-mas-aislada-crece-el-rechazo-a-xi-jinping-entre-los-lideres-mundiales%2F)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 +1

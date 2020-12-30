@@ -1,35 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共的垂死挣扎：意从欧洲突围?
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/696493/)
+## 【川普总统推文1229】最终决定在参议院
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/697778/)
 
-作者：康州盘古农场 – 残夜听雨声
+- ![]()![](https://gnews.org/wp-content/uploads/2020/12/senate-decide-act.png)
 
-审核：康州盘古农场 – Antsee-GTV
-![europe]()![europe](https://gnews.org/wp-content/uploads/2020/12/Screen-Shot-2020-12-30-at-00.15.11.png)
-据《南华早报》 报道，中共国主席习近平将于周三与欧盟高级领导人进行电话会议，根据欧盟的外交人员透露。在周三的电话交谈中 ，欧盟领导人很可能与中共国敲定中欧全面投资协议的签署意愿，据悉该协议将降低欧洲企业进入中共国市场的门槛，而作为代价欧洲将开放其可再生能源的市场，让更多的中共国企业参与可再生能源的基础设施建设中来。
-
-当笔者读到这里，背心不由发凉，这个协议的背后意图和解放军背景的华为参与欧洲国家基础通讯网络5G建设几近相似，后者是通过华为的设备中的后门监控盗取欧洲国家的重要数据与和核心技术，而前者，却是试图渗透并且欧洲国家的能源产业。对于21世纪的现代性国家，能源基本上就是国家安全和国家正常运转的命脉，一个国家的能源产业被掌握，相当于掌握了这个国家的全部。
-
-在过去，中共就利用其国有企业中广核通过金融投资的方式持有了英国核产业公司的大量股份，其中就包括正在建设的萨默塞特郡欣克利角C电站和萨福克郡Sizewell C电站 ，与此同时，中广核还是埃塞克斯郡的布拉德维尔B电站的大股东。中共国通过这些核能合同的收购，基本上成为了英国核能产业的最大股东，而可怕的是英国核能产业在未来将占据其能源产业的25%的电力来源。中共国利用了英国脱欧后的经济疲软期。中共的投资提振了英国的经济，但是英国人出卖的却是自己国家的安全。曾经大英帝国的铁马铮铮到了今天在中共面前接近了下跪。
-
-而英国的悲剧和今天的欧洲几近相似，2020年9月16日根据欧盟统计局计局发布数据，2020年前7个月，中共国首次成为欧盟第一大贸易伙伴，超过欧美贸易额52亿欧元。中共国给了欧洲人最甜美的糖果，里面却是慢性毒药。尽管欧洲人知道这个糖果有毒，却被逼无奈必须接受，整个欧洲的经济已经一蹶不振，中共病毒的袭击又是一记窝心拳，根据欧委会在布鲁塞尔发表的最新预估报告，2020年，欧元区经济将萎缩8.7％，整个欧盟萎缩8.3％ 。负利率已经没办法解决欧盟的经济衰退。最后只能下跪中共得到更多的出口。但是失去的却是未来。
-
-从中欧投资协议不由想到感觉到二战时的法西斯轴心国以及反法西斯力量的对立，中共试图利用经济利益绑架欧洲国家来孤立美国。最后建立二战时期的法西斯轴心国类型，也就是形成新的中美冷战。但是毫无疑问中共是自寻死路，美元的交易系统是中共国所有产业能够得以运转的核心动力。一旦遭到制裁，必然中共国要回到军管的文革时期。所有在中共国的外国企业资本全部都要打水漂。然而随之而来病毒真相的浮出水面，会让欧洲人行动更加果断，因为只有参与灭共后才能弥补损失并且得到过多的蛋糕！我们拭目以待！
-
-【本文章仅代表作者观点】
-
-【参考文章】：
-【1】[https://www.zerohedge.com/geopolitical/bass-blasts-deeply-corrupt-eu-over-imminent-landmark-china-investment-deal](https://www.zerohedge.com/geopolitical/bass-blasts-deeply-corrupt-eu-over-imminent-landmark-china-investment-deal)
-【2】
+众议院应川普的要求投票，将刺激经济支票提高到每人2000美元。该法案的参议院的命运尚不确定。 [https://twitter.com/washingtonpost/status/1343693611465117699?s=20](https://twitter.com/washingtonpost/status/1343693611465117699?s=20)
 
 
+- ![]()![](https://gnews.org/wp-content/uploads/2020/12/senate-vaccine.png)
 
-> [英国需要紧急审查与中共国的核合同](https://gnews.org/zh-hans/268410/)
-
-
-
+联邦政府将疫苗运到指定地区后，由各州负责分发。我们不仅研发了疫苗，包括投入资金迅速推进这一进程，而且把疫苗送到各州。拜登在猪流感时是失败的！ [https://twitter.com/realDonaldTrump/status/1344051613216993281?s=20](https://twitter.com/realDonaldTrump/status/1344051613216993281?s=20)
 
 
-+3
+- ![]()![](https://gnews.org/wp-content/uploads/2020/12/when-are-we-going-to.png)
+
+什么时候允许我们在乔治亚州富尔顿县进行签名验证？这个过程进行得**非常**缓慢。
+@BrianKempGA (乔州州长Brian）
+宾夕法尼亚州刚刚发现比他们的选民多了205,000票。因此，我们赢得了宾夕法尼亚州！！！ [https://twitter.com/realDonaldTrump/status/1344054358418345985?s=20](https://twitter.com/realDonaldTrump/status/1344054358418345985?s=20)
+
+
+- ![]()![](https://gnews.org/wp-content/uploads/2020/12/loeffler-support.png)
+
+乔治亚洲议员 Kelly Loeffler、David Perdue支持将救济金增加到2000美元。
+共和党人必须支持2000美元的付款，并且必须打击腐败的总统选举。我们大获全胜！
+@BreitbartNews [https://twitter.com/realDonaldTrump/status/1344036020162093058?s=20](https://twitter.com/realDonaldTrump/status/1344036020162093058?s=20) [https://www.breitbart.com/politics/2020/12/29/kelly-loeffler-david-perdue-support-increasing-payments-2k-we-need-get-relief-americans-now/](https://www.breitbart.com/politics/2020/12/29/kelly-loeffler-david-perdue-support-increasing-payments-2k-we-need-get-relief-americans-now/)
+
+
+- ![]()![](https://gnews.org/wp-content/uploads/2020/12/unless-republican.png)
+
+“除非共和党人有死志(让命运走上危险绝境的事情）而且是正确的事情，否则他们必须尽快批准2000美元的付款，”川普写道。”600美元是不够的! 还有，去除第230条款—别让大科技公司偷走我们的国家，别让民主党人偷走总统选举。坚强起来！ ” 推文链接 [https://twitter.com/realDonaldTrump/status/1343998076084748288?s=20](https://twitter.com/realDonaldTrump/status/1343998076084748288?s=20) 相关内容详见 [https://gnews.org/zh-hans/697753/](https://gnews.org/zh-hans/697753/)
+
+
+- ![]()![](https://gnews.org/wp-content/uploads/2020/12/a-group-of-republican.png)
+
+
+- ![]()![](https://gnews.org/wp-content/uploads/2020/12/more-votes-than-needed.png)
+
+“宾夕法尼亚州的一群共和党立法者说，2020年大选中计入的选票比选民多20万张（100%给了拜登）。州议员弗兰克-瑞安说，他们在分析选举日数据后发现了令人不安的差异。”
+@FoxNews
+这比我能赢得宾夕法尼亚州所需的票数要多得多，更不用说其他类别的几十万张选票了，这使我本已很大的领先优势变成了压倒性的优势。所有其他摇摆州也显示了同样的情况。**我们需要新的有活力的共和党领导人。**你能想象如果共和党人从民主党人手中偷走了总统选举–所有的地狱都会爆发。共和党领导层只想走阻力最小的道路。我们的领导人（当然不是我！）是可悲的。他们只知道如何失败! P.S.我让**许多**参议员……和众议员/女议员当选。我相信他们已经忘记了!
+[https://twitter.com/realDonaldTrump/status/1343919651336712199?s=20](https://twitter.com/realDonaldTrump/status/1343919651336712199?s=20)
+
+
+- ![]()![](https://gnews.org/wp-content/uploads/2020/12/2000-for-our-great-people.png)
+
+2000元给我们伟大的人民，而不是600元! 他们已经受够了中(共)国病毒的折磨!!!
+软弱和疲惫的共和党 “领导 “将允许糟糕的国防法案通过。告别**重要的**第230条款，你的国家纪念碑，Forts（名字！）和财政（由Elizabeth “Pocahontas” Warren 引入），5G，以及我们伟大的士兵….
+……被终止中，从外国的土地上带回（我们国）家，一点都不解决任何事情。一个可耻的法案，对大科技的懦弱和卑躬屈膝。协商一个更好的法案，或者找一个更好的领导人，现在就去! 参议院不应该批准NDAA（国防授权法案），直到解决好为止！！！
+给人民2000美元，而不是600美元。他们已经受够了!
+[https://twitter.com/realDonaldTrump/status/1343916418316824583?s=20](https://twitter.com/realDonaldTrump/status/1343916418316824583?s=20). [https://twitter.com/realDonaldTrump/status/1343915971480842240?s=20](https://twitter.com/realDonaldTrump/status/1343915971480842240?s=20). [https://twitter.com/realDonaldTrump/status/1343915972391038977?s=20](https://twitter.com/realDonaldTrump/status/1343915972391038977?s=20)
+
+
++1

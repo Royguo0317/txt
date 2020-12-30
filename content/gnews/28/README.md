@@ -1,39 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】乌克兰检察官公开指控乔·拜登犯罪
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/696549/)
+## 【纳瓦罗推文1229】不了解CCP Virus和羟氯喹别瞎说
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/697958/)
 
-作者：香草山写作组 Wilson 校对/发稿：飞虹
+12月29日白宫经贸制造业主任皮特纳瓦罗先生用推文回复Megan Mcardle （华盛顿邮报栏目记者，新近发表文章“在下一次灾难来临时拥抱辩证的未知”，推文称：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23222242/GNEW-GTV-MOS-LOGO-2-1.jpg)
+请 @asymmetricinfo Megan Mcardle 注意，我对CCP Virus（CCP病毒，中共病毒）的认识是正确的。我对羟基（羟氯喹）的看法是正确的，你不应该对一种有50项研究证明有效的药物做虚假的声明。做做功课去。
 
+- ![]()![](https://gnews.org/wp-content/uploads/2020/12/note-to-washington-post-colomn.png)
 
-
-2020年12月28日，民粹主义新闻网转发了一段乌克兰总检察长办公室检察组长康斯坦丁·库雷克，在记者会上公开指控乔·拜登在乌克兰犯下严重罪行的视频。库雷克称，他在2016～2019年负责调查前总统亚努科维奇政权的经济犯罪。
-![]()![](https://gnews.org/wp-content/uploads/2020/12/Jietu20201229-203154.jpg)
-库雷克指有足够的证据证实，乌克兰存在国际腐败和外部管理的新事实。涉及的犯罪事实有四个方面:
-
-1. 有证据表明，犯罪分子通过监管漏洞窃取了乌克兰人民数百万美元的钱，随后转入拜登家族的公司账户。在大约一年前的第一次新闻发布会上，我们向美国前副总统乔·拜登的家人，即他的儿子亨特.拜登展示了数十万美元的(非法)银行交易。后者是臭名昭著的天然气生产公司 “布里斯马 “的董事会成员。
-
-2. 我们已掌握新的对话录音，似乎是乌克兰第五任总统彼得罗·波罗申科和美国前副总统乔·拜登之间的对话，证明乌克兰存在外部管理。
-
-3. 我们将揭露乌克兰和美国的最高官员都参与的和乌克兰煤炭和天然气采购有关的巨大腐败，乌克兰人民因此增加了30%的负担。
-
-4. 我们还将公布美国国家向乌克兰提供的数十万美元技术援助的贪污事实，以及乌克兰总检察长办公室被蓄意破坏的证据。
-
-库雷克在记者会上请出了相关证人。
-
-记者会结束时库雷克再次重申:我们今天要说的每一句话都有文件、数字和记录的支持，这些文件、数字和记录是由调查记者，以及掌握腐败计划信息的人和直接参与一系列进程的证人提供的，我们今天将讨论这些。我们将把我们掌握的有关乌克兰国际腐败和外国干预的所有事实移交给执法机构。
-
-短评:乌克兰有真汉子，乔·拜登插翅难逃。
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
+[https://twitter.com/RealPNavarro/status/1344084098948755458?s=20](https://twitter.com/RealPNavarro/status/1344084098948755458?s=20) 原文链接 [https://www.washingtonpost.com](https://www.washingtonpost.com)
 +1

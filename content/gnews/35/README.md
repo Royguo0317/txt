@@ -1,27 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生鼓励大家正确看待爆料革命中遇到的挫折
-` Mark` [轉載自GNews](https://gnews.org/zh-hans/696239/)
+## 麦康奈尔阻挠民主党批准川普总统要求修改的预算法案
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/697753/)
 
-郭先生在12月20日的直播中，对前凤凰农场义工的伤心表示感同身受，并鼓励大家要以一个先驱者的心态来看待爆料革命中遇到的挫折。遇难成祥、优胜劣汰才能把爆料革命和新中国联邦建立成一个完善的体制和生态系统。
+12月29日川普总统转推一篇文章华盛顿邮报的文章，“麦康奈尔阻挠民主党试图快速批准2000美元的经济刺激支票。” 川普总统在推文中称：
 
-**文本：**
+“除非共和党人有死志(让命运走上危险绝境的事情）而且是正确的事情，否则他们必须尽快批准2000美元的付款，”川普写道。”600美元是不够的! 还有，去除第230条款—别让大科技公司偷走我们的国家，别让民主党人偷走总统选举。坚强起来！”
 
-I heard that many people are very heartbroken and very sad! So am I. But, all the volunteering brothers and sisters, you’re great people and your intention is pure from the very beginning. Well, under such circumstances, you shall accept the idea that the Himalaya Farms, the New Federal  State of China and the Whistleblower Movement will inevitably encounter such problems. Compared to our mission of eliminating the CCP, this is not a big deal. It’s normal. If this did not happen in Phoenix, the so called Phoenix Himalaya Farm, it would happen in another Farm. The Phoenix Farm played the role of a pioneer. What is a pioneer? It means to sacrifice everything, like *The Thorn Birds* story, serving as a model to others. It might be a good model or a bad model, but regardless, you became a pioneer. That is for sure.
+- ![]()![](https://gnews.org/wp-content/uploads/2020/12/trump-mc-connell.png)
 
-我听说很多人很伤心。黯然呐，伤心！我和你们一样，但是所有的义工战友们，你们的义工本来就是伟大的，纯洁的，那么在这个情况下，你要接受喜马拉雅农场和新中国联邦和爆料革命，你一定会让你遇到这样的问题。这跟我们灭共的事业上来比，这是极小的一件事，它是正常的。今天不发生在凤凰、所谓的凤凰农场，就会发生在任何一个农场。凤凰农场这回又做了一个先驱。啥叫先驱？就是以自己的一切，就像《荆棘鸟》的故事一样，给你表演了一个样板，也可能是好的，也可能是坏的，反正是变成先驱了，这是肯定了。
+[https://twitter.com/realDonaldTrump/status/1343998076084748288?s=20](https://twitter.com/realDonaldTrump/status/1343998076084748288?s=20)
 
-As pioneers, you have gone through this pain or sorrow. Brothers-in-arms, I tell you the truth, emotionally, I am as sad as you are. But what I want to tell you is that this is not something to be sad about. You should feel happy. Because in the Whistleblower Movement and the New Federal State of China, we have to be stronger, integrated, and destined for success. Firstly, establishing an ecosystem is a process of survival of the fittest, which shapes good into better, and gets rid of bad. However, it is impossible to claim that there is nothing bad [in this process].
 
-但是呢，先驱当中让你经受了这个痛苦或者是伤心，战友们，我说实话感情上我和你们一样伤心。但是我想告诉你的事情，这不值得伤心，应该值得高兴。因为爆料革命、新中国联盟在这个过程中一定要强大，一定要完整，一定要成功。 首先就建立一个生态和体制，这个过程当中它就是个优胜劣汰，就是一个把好的变成更大的，把坏的变成更少的，但是你说没有坏的是不可能的。
+文章主要内容如下：
 
-鸣谢：感谢喜马拉雅听写组听写 [https://gnews.org/zh-hans/684236/](https://gnews.org/zh-hans/684236/)
+参议院多数党领袖米奇-麦康奈尔(Mitch McConnell)周二阻止审议众议院的一项法案，该法案在川普总统要求下将向大多数美国人提供由600增长至2000美元的经济刺激付款，尽管更多的参议院共和党人表示支持大幅增加的支票法案，他也拒绝了川普总统的要求。
 
-视频来源：[https://gtv.org/video/id=5fdfd67fc0544c3d972f4f24](https://gtv.org/video/id=5fdfd67fc0544c3d972f4f24) （19:23-21:07）
+麦康奈尔的举动可能会在本周剩下的时间里影响参议院。民主党人正在推动对众议院法案进行上下表决，而更多的共和党人则承认需要更大规模的经济刺激支票。
 
-*翻译：【奔腾的长江】 校对：【Prof. Bacteriophage】【BruhM】【Isaiah4031】 字幕：【Pamila（文明）】 视频解码：【恒久忍耐】编辑：【Mark】*
+周二川普再次发推，要求参议院共和党人立即通过立法，授权进行更大金额的支票。他说，如果他们不采取行动，将会给共和党带来后果。
 
-*喜马拉雅玫瑰园小队出品*
+川普总统说，“除非共和党人有死志(让命运走上危险绝境的事情）而且是正确的事情，否则他们必须尽快批准2000美元的付款，”川普写道，”600美元是不够的! 还有，去除第230条款，别让大科技公司偷走我们的国家，别让民主党人偷走总统选举。坚强起来！”
 
-+4
+在麦康奈尔周二发言后，参议院少数党领袖查尔斯-舒默(Charles E. Schumer)提出了对众议院通过的法案进行实施的要求。
+
+他说，“说支持2000美元的支票和争取把它们变成法律是有很大区别的。”众议院法案是在会期结束前交付这些经济刺激支票的唯一途径。参议院共和党人是否会站在众议院、参议院民主党多数派和本党总统的对立面，阻止这些2000美元的支票送出去？”
+
+麦康奈尔表示反对，但未作进一步评论。
+
+新共和党人支持的出现进一步加剧了共和党领袖的政治压力，他现在必须在下周乔治亚州的特别选举决定参议院多数席位前，找一条出路。
+
+川普总统周二上午再次发推表达自己的意见，”给人民2000美元，而不是600美元。他们已经吃够了苦头！”
+
+目前的分歧创造了奇怪的政治现状，使川普与国会中的一些民主党保持一致，因为在可能经济恶化的情况下，民主党几个月来一直在寻求更大的激励付款。
+
+但参议院现在似乎陷入了观望模式。参议员伯尼-桑德斯（Bernie Sanders，I-Vt.）周二发出通牒，希望阻止预计将推翻川普对年度国防政策法案的否决所进行的投票，除非麦康奈尔让步，允许对众议院的支票法案进行独立投票。
+
+众议院周一以压倒性多数投票推翻了川普总统的否决权。麦康奈尔周二在会场发言时说：”很快，这项重要的立法就会被通过成为法律。” “国防法案”。
+
+对多数派领袖来说，听从桑德斯和民主党人并不是一个容易的选择。参议院共和党人中仍有大多数反对增加支票的人，他们坚持数月，认为任何疫情救济措施给纳税人的成本不要超过1万亿美元。许多共和党人为日益增长的国债而焦虑。
+
+川普周日签署的增加到2000美元的支票大约是9000亿美元的方案，将使立法成本增加4640亿美元。
+
+麦康奈尔承认，川普的要求并不限于更大额的支票。他在周日声明中表示，参议院将 “启动投票程序，将支票提高到2000美元，废除第230条款，并开始调查选民欺诈行为”。
+
+用2000美元支票做支撑帮助劝说川普总统来签署经济刺激法案的参议员格雷厄姆（Lindsey O. Graham (R-S.C.)）周一在接受采访时表示，参议院将对支票和有关科技公司的法律进行投票，但他不知道这些投票是否会在本届国会休会前举行。
+
+他预测，如果对2000美元支票进行独立投票，参议院将以可能的60票通过。
+
+他说，“促使川普思考的是，在参议院对支票进行投票之前，我不会让步，在我们最终解决第230条款之前，我不会签署这个法案。”他又说，”我不知道麦康奈尔要怎么做。”
+
+[https://www.washingtonpost.com/powerpost/stimulus-checks-senate/2020/12/29/344fa850-49d9-11eb-839a-cf4ba7b7c48c\_story.html](https://www.washingtonpost.com/powerpost/stimulus-checks-senate/2020/12/29/344fa850-49d9-11eb-839a-cf4ba7b7c48c_story.html)
+
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2020/12/Wenya-Logo-7.png)
++2
