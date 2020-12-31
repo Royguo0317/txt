@@ -1,46 +1,95 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统（关于救济法案）的声明（中英对照）
-` Winston` [轉載自GNews](https://gnews.org/zh-hans/699391/)
+## 12月31日 【国际新闻焦点】挑战与抗议将令1月6日的选举认证具有戏剧性
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/704934/)
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/Cares-act2-scaled.jpg)图片来源： https://www.jbsa.mil/News/Photos/igphoto/2002278339/
-概要：
+资料搜集整理：霍比特人
 
-川普总统(President Donald Trump)通过此声明阐述了其对于目前纾困法案的态度和立场，坚持认为直接发给美国民众的救济款项应当从600美元提升至2000美元，但一些会造成财政浪费的项目必须从法案中清除。
+校对：文卡西欧
 
-中英对照版本：
+审核：文卡西欧
 
-As President of the United States it is my responsibility to protect the people of our country from the economic devastation and hardship that was caused by the China Virus.
+上传：文粤
 
-作为美国总统，我有责任保护我国人民免受中(共)国病毒造成的经济破坏和经济困难。
+**挑战与抗议将令1月6日的选举认证具有戏剧性**
+![]()![](https://gnews.org/wp-content/uploads/2020/12/1231image001.png)
+《华盛顿观察者》在2020年的最后一天展望未来说，1月6日，国会将根据《宪法》和1887年《选举计数法》召集联席会议，以回答一个简单的问题：国会收到的选举人票是否由各州任命的选举人投出？
 
-I understand that many small businesses have been forced to close as a result of harsh actions by Democrat-run states. Many people are back to work, but my job is not done until everyone is back to work.
+按照1887年的法律，国会将对文件进行认证，参议院议长必须打开证书然后进行计票。今年，众议院的一些共和党议员扬言将挑战几个有争议州的选举人票。阿拉巴马州参议员当选人汤米·杜伯维尔表示，他可能会加入众议院的这一挑战。根据法律，一旦参议员加入众议院反对，议员们将撤到他们各自的会议厅进行两个小时的辩论，并针对每个受到挑战的州进行表决。 2021年将比过去更具戏剧性。
 
-我了解到，由于民主党控制的州采取严厉措施，许多小企业被迫关闭。许多人重新回到了工作岗位，但是直到所有人都重新上班，我的工作才算完成。
+在2005年，小布什赢得选举时他的对手没有出席认证。今年，川普总统声称他赢得了大选，却遭遇了大规模选举欺诈。这种情况将使副总统彭斯处于困境。他若通过认证，就是违背川普总统及其热忱的支持者，这将被总统视为“背叛”。
 
-Fortunately, as a result of my work with Congress in passing the CARES Act earlier this year, we avoided another Great Depression. Under my leadership, Project Warp Speed has been a tremendous success, my Administration and I developed a vaccine many years ahead of wildest expectations, and we are distributing these vaccines, and others soon coming, to millions of people.
+在国会大厦外，将举行支持川普总统的抗议活动，演讲嘉宾包括许多右翼活动家。
 
-幸运的是，由于我与国会在今年早些时候通过了《 CARES法案》（冠状病毒的援助，救济和经济安全法案），我们才避免了另一场大萧条。在我的领导下，曲速计划取得了巨大的成功，我的政府和我提前多年开发出了疫苗，我们正在将这些疫苗以及即将推出的其他疫苗分发给数百万人。
+参议院领导层已经表示不会参加川普的斗争。多数党领袖麦康奈尔已经向乔·拜登表示祝贺，并称他为“当选总统“。 《华盛顿观察者》认为尽管会出现戏剧性的桥段，但对大多数人来说结果并不会出现逆转。
 
-As President, I have told Congress that I want far less wasteful spending and more money going to the American people in the form of $2,000 checks per adult and $600 per child.
+另外据多家媒体报道，参议员霍利已经明确表示将在1月6日挑战选举结果。
 
-作为总统，我已经告诉国会，我希望少浪费钱，而是把更多的钱以每位成年人2,000美元和每个孩子600美元的方式给美国人。
+《华盛顿观察者》2020年12月31日
 
-As President I am demanding many rescissions under the Impoundment Control Act of 1974. The Act provides that, “whenever the President determines that all or part of any budget authority will not be required to carry out the full objectives or scope of programs for which it is provided, or that such budget authority should be rescinded for fiscal policy or other reasons (including termination of authorized projects or activities for which budget authority has been provided), the President shall transmit to both Houses of Congress a special message” describing the amount to be reserved, the relevant accounts, the reasons for the rescission, and the economic effects of the rescission. 2 U.S.C. § 683.
+**麦克·艾萨克对Newsmax说他从未想要影响大选**
+![]()![](https://gnews.org/wp-content/uploads/2020/12/1231image003.png)
+被许多人称为“Hunter Biden笔记本电脑修理工“的麦克·艾萨克告诉Newsmax TV，他因此事被不公平地打上了“黑客”的烙印，并被处以职业生涯的“死刑”——为一件被推特等主流媒体在乔·拜登（Joe Biden）的总统竞选活动中极力淡化的事情。 “人们只听到故事的一面，这对我的信誉毫无帮助。”他哀叹自己遭受的损失，丢掉了许多业务。 “我从来没有打算改变任何事情。我只是呈现真相。我想说说我的故事，而且想得到某种程度的保护。”麦克·艾萨克说当时考虑到诸多因素而请父亲把笔记本电脑交给FBI，然后“他们告诉他离开办公室，去请律师。” “我父亲和我感到有些沮丧，联邦调查局花了大约一个月的时间与父亲联系，与我取得联系。”他说亨特·拜登一直没来拿笔记本电脑，而一旦将笔记本电脑交给联邦调查局，他们便告诉麦克·艾萨克暂停任何取回笔记本电脑的请求。麦克·艾萨克说，他从来没有想到自己拥有的是潜在的“犯罪”的材料，来自前副总统和总统候选人，现在的“当选总统”的儿子。
 
-作为总统，我要求根据1974年的《蓄积控制法》进行多项撤销。该法规定：“不管任何时候，只要总统确定不需要全部或部分的任何预算授权来执行其所提供计划的全部目标或计划范围，或由于财政政策或其他原因（包括终止已提供预算授权的授权项目或活动）而取消该预算授权，总统应向国会两院发送特别信息”，说明保留的金额，有关账目，撤销的理由以及撤销的经济影响。 2 U.S.C. §683。
+他补充说：“希望有一天，我能够回顾此事，并感到正义得到了伸张，真相得以呈现。”但是，“很难。我失去了很多很多好朋友。”
 
-I will sign the Omnibus and Covid package with a strong message that makes clear to Congress that wasteful items need to be removed. I will send back to Congress a redlined version, item by item, accompanied by the formal rescission request to Congress insisting that those funds be removed from the bill.
+至于未来的法律诉讼，麦克·艾萨克说他只想回到他所擅长的：修理电脑。
 
-我将在綜合和新冠肺炎项目上签名，并向国会明确传达一个需要清除浪费物品的强烈的信息。我将带红线的版本送回国会， 一项一项的并附有对国会的正式撤销请求，其中坚持要求这些基金从法案中删除。
+他总结说：“在诉讼中，我将由律师来回答任何问题。”“我擅长修理电脑，他擅长法律事务。”
 
-原文链接：
+**比尔‧盖茨企图愚弄大自然**
+![]()![](https://gnews.org/wp-content/uploads/2020/12/1231image005.png)
+慈善家比尔·盖茨（Bill Gates）出钱支持通过在太阳光线照射到地球之前使太阳变暗来扭转全球变暖的努力。他们是认真的吗？
 
-https://www.whitehouse.gov/briefings-statements/statement-from-the-president-122720/
+该计划由哈佛大学牵头，旨在将数百万吨的细小镜像粒子喷入平流层，以反射太阳辐射使其离开地球。据路透社报道，瑞典航天公司本月初同意在明年六月进行首次试运行，方法是在北极圈一个小镇基律纳附近发射气球。
 
-*翻译：【JennyL】校对：【Cyndi】 编辑：【Winston】*
+尽管专家对此做出解释，该项目的反对者认为事情将一无所成，因为一切还是依靠化石燃料作为能源。有没有人征询过农业专家的意见？
 
-喜马拉雅玫瑰园小队出品
+从理论上讲，较少的阳光会导致较短的生长期和较低的农作物产量。除了削减单个种植者的收入外，单产降低还可能导致全球粮食短缺，甚至可能导致饥荒。
 
-+2
+太阳还以维生素D的形式提供健康益处，维生素D是在阳光下自然在皮肤中产生的。最近的研究表明，维生素D可以预防多达90％的冠状病毒死亡。
+
+减少太阳在地球上的辐射也与可再生能源特别是太阳能相悖。
+
+减少的太阳辐射可能会影响风强度，从而限制来自风力涡轮机的能量。毕竟，风是由一个区域到另一个区域的温差产生的。从理论上讲，减少太阳辐射可能会减少这些差异。
+
+另一个危险信号可能是比尔·盖茨本人。
+
+雪纺人造黄油在1970年代播出了一系列电视广告，描绘了大自然母亲在品尝了该产品后，将其标识为她（大自然）自己的奶油甜黄油。
+
+当她被告知实际上是雪纺人造黄油时，她发出了一道闪电，并宣称：“愚弄大自然母亲是不好的。”
+
+我们不知道部分阻挡太阳辐射的持久影响是否会是贫穷、饥荒和无休止的冬天。一旦实施，是否可以取消？
+
+在雪纺广告中扮演大自然母亲的女演员丹娜·迪特里希（Dena Dietrich）上个月去世，享年91岁。但她的口号背后的真相依然存在。
+
+“愚弄大自然母亲是不好的。”尤其是如果这样做甚至可能导致我们自己灭绝时。
+
+Newsmax 2020年12月31日
+
+**欧盟领导人在最后期限之前签署了英国脱欧初步协议**
+![]()![](https://gnews.org/wp-content/uploads/2020/12/1231image007.png)
+在英国与欧盟发生巨大经济分裂前夕，英国立法者被要求在周三这一天之中将与欧盟的一份长达一千两百页的贸易协议变成法律。
+
+在欧盟高级官员在布鲁塞尔正式签署来之不易的协议之后，英国首相鲍里斯·约翰逊（Boris Johnson）敦促下议院议员支持一项协议，他说这预示着“英国和欧盟之间建立了主权平等的新关系”。
+
+英国在大约一年前离开了欧盟，但是在过渡期（布鲁塞尔时间午夜十一点，伦敦时间周四）结束前，它仍然处于欧盟的经济支持之内。
+
+如果英国议会批准，该协议将生效。欧洲议会还必须签署该协议，但预计将花费数周时间。
+
+环球新闻 2020年12月31日
+
+以上观点仅代表笔者本人
+
+资料来源：
+
+[《华盛顿观察者》](https://www.washingtonexaminer.com/news/challenges-and-protests-will-create-drama-for-electoral-certification)
+
+[newsmax](https://www.newsmax.com/newsmax-tv/john-paul-mac-isaac-laptop-hunter-biden-fbi/2020/12/30/id/1003706/)
+
+[newsmax](https://www.newsmax.com/michaeldorstewitz/bill-gates-mother-nature/2020/12/30/id/1003627/)
+
+[环球新闻](https://globalnews.ca/news/7547070/brexit-eu-officially-sign-trade-deal/)
+
+0

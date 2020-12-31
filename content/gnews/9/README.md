@@ -1,29 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【历史上的今天】训诫书——第三次世界大战的开端
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/699865/)
+## 美国务院副发言人悼念李文亮医生
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/705439/)
 
-内新闻/素材：Meilen美伦 校对：三娃
+- 编辑：Victor Torres
 
-2019年12月30日下午5点43分，李文亮医生在武大班级群“吹哨”，上传了一份带“SARS冠状病毒”字样的检验报告及视频。当晚，消息传遍整个武汉医生圈。
 
-后来李文亮被警方“约谈”、训诫，经过是这样的——
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-办案人：你的行为严重扰乱了社会秩序。你的行为已超出了法律所允许的范围，违反了治安处罚法的有关规定，是一种违法行为！公安机关希望你积极配合工作，听从民警的规劝，至此中止违法行为。你能做到吗？
-李文亮：能。
+**西班牙2020年12月31日电/西喜社—**12月31日，美国国务院副发言人凯尔·布朗（Cale Brown）发推悼念李文亮医生，他说：
 
-办案人：我们希望你冷静下来好好反思，并郑重告诫你：如果你固执己见，不思悔改，继续进行违法活动，你将会受到法律的制裁！你听明白了吗？
-李文亮：明白！⋯⋯
-![]()![](https://gnews.org/wp-content/uploads/2020/12/image0-2-16.jpg)训诫书
-事件发生至今天，整整一周年了。而全世界并没有因为警方“尽忠职守”的维稳而风平浪静，反而是李文亮医生上传微信群的“谣言”主角——冠状病毒 肆虐了全世界，并造成今日为止全球将近8300万的感染者！
-![]()![](https://gnews.org/wp-content/uploads/2020/12/image0-1-1-7.png)
-这又一次用现实狠狠地打脸中共官方所谓的“造谣论”！可见民众传播的每一次谣言都是遥遥领先的预言！但每次都会被一贯以黑治国的中共政府粗暴地压制言论，而造成的恶果往往又都是民众来承担。
+“一年前，武汉医生李文亮曾公开警告过‘ SARS样病毒’爆发。 如果中共听了，控制该病毒的努力本来可以成功，使整个世界免于这种大流行。 我们对李医生和所有试图警告我们的勇敢的中国人民表示哀悼。”
 
-这次冠状病毒席卷全世界，更是造成了无法估量的损失，甚至还有毁灭人类的传播势头。毕竟这个病毒已经被科学家证实是生物武器，而且还被知情的病毒专家闫丽梦博士揭露这是中共对全人类发起的超限生物战。
 
-显然，中共警方压制李文亮等八位吹哨人的言论，仅仅是中共发起全球病毒超限战的一个开端。这是一份付出无数生命和全球经济大萧条也无法挽回的、沾满血泪的“训诫书”，这更是中共反人类犯罪集团欠全人类的血债！
 
-（本文仅代表个人观点）
+> A year ago Wuhan doctor Li Wenliang publicly warned of a “SARS-like virus” outbreak. Had the CCP listened, efforts to control the virus could've been successful, sparing the world from this pandemic. We mourn Dr. Li and all the brave Chinese people who tried to warn us.
+> — Cale Brown (@StateDeputySPOX) [December 31, 2020](https://twitter.com/StateDeputySPOX/status/1344748718109700102?ref_src=twsrc%5Etfw)
 
-+1
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+
+0
