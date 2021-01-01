@@ -1,24 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【川普总统推文1231】霍利议员获褒奖
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/706049/)
+## 预计1月6日有140多名美国众议员将反对选举结果，参议院仅乔希·霍利确认参与
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/707014/)
 
-继昨日霍利议员由于公开表示鉴于大选存在舞弊以及可能被大科技公司操控的情形，他不支持对选举人团投票做认证。他勇敢的言论很快遭到沃尔玛公司官方账号的讽刺，说他是个“痛苦的输家”。
+- 编辑：Victor Torres
 
-霍利议员已经得到皮特纳瓦罗先生的认可。
 
-今日，在2021新年夜，川普总统对霍利医院给予积极肯定。他转发了Breitbart网对议员的报道，题为“参议员Josh Hawley猛烈抨击沃尔玛称他为 “痛苦的输家”。川普总统在推文中称：
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-美国为Josh和其他许多支持他的人感到骄傲。美国不能有欺诈性的选举!
+**西班牙2021年1月1日电/西喜社—**
 
-- ![]()![](https://gnews.org/wp-content/uploads/2020/12/trump-sen-josh.png)
+预计1月6日有140多名美国众议员将反对选举结果，参议院乔希·霍利确认参与
 
-[https://twitter.com/realDonaldTrump/status/1344853996977197056?s=20](https://twitter.com/realDonaldTrump/status/1344853996977197056?s=20)
-川普总统一方面对霍利议员正义勇敢的言行表示赞许，另一方面表达了对商业大鳄的态度，由于前届政府(从克林顿政府开始）和资本家们的利益驱使，美中贸易形成了长期不公平交易的局面，美国制造业和很多就业机会被剥夺，现在是时候改变这一切，为美国找回公平和损失、停止为中共输血的机制、掐断毒蟒命脉的时候了。
+据CNN报道，众议院至少有140名共和党议员现在打算加入众议员莫·布鲁克斯计划的选举人团挑战，以抛出来自战场州的选举人票，这些州普遍存在选民欺诈的可信指控。
 
-昨日报道详见 [【纳瓦罗推文1230】亲共的沃尔玛](https://gnews.org/zh-hans/702245/)
+CNN的杰克·塔珀(Jake Tapper)声称，两名众议院共和党人告诉他，”至少有140名共和党众议员 “将在1月6日加入布鲁克斯的反对行动。
 
-[相关文章出处](https://twitter.com/realDonaldTrump/status/1344853996977197056?s=20) ： [https://www.breitbart.com/politics/2020/12/30/sen-josh-hawley-slams-walmart-tweet-calling-him-sore-loser-for-objecting-to-electoral-college-results/](https://www.breitbart.com/politics/2020/12/30/sen-josh-hawley-slams-walmart-tweet-calling-him-sore-loser-for-objecting-to-electoral-college-results/)
+如果有一名美国参议员以书面形式加入反对行动，那么国会联席会议将休会，参众两院将独立审查每个有争议的州是否应该计算其选举人票。
 
-+1
+到目前为止，只有参议员乔什·霍利(Josh Hawley)承诺通过加入参议院的反对来填补这一角色，他说他在道德和宪法上有义务这样做，因为在几个州的选举方式中观察到的法律明显被忽视。
+
+在与所有共和党参议员的电话会议上，麦康奈尔愤怒地要求霍利对他加入反对的计划作出解释。在经过几次长时间的沉默后，霍利显然从未参加过电话会议。
+
+此前，预计将于1月6日加入反对意见的当选参议员汤米·塔伯维尔，据说在国会联席会议期间，受到麦康奈尔的压力，要在川普背后 “捅刀子”。
+
+如果众议院140名以上共和党议员的反对意见得到一名参议员霍利的加入，而民主党主导的众议院最终与共和党主导的参议院在哪些州应该计算选举人票的问题上意见不一致，那么作为参议院议长和联席会议主持人的副总统彭斯将负责投出打破平局的一票。
+
+如果彭斯利用其打破平局的投票，抛出被可信地指控为广泛的选民欺诈的有争议州的选举人票，使总统唐纳德·川普或乔·拜登都没有获得必要的270票，那么众议院将举行一次或有选举。川普总统几乎肯定会赢，因为众议院将以各州的法定人数进行投票，这意味着每个州将只获得一票。如果大多数州向众议院派出共和党人，那么川普总统很可能会连任。
+
+新闻来源：[https://nationalfile.com/report-140-us-reps-expected-to-object-on-january-6-only-josh-hawley-confirmed-in-senate/](https://nationalfile.com/report-140-us-reps-expected-to-object-on-january-6-only-josh-hawley-confirmed-in-senate/)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+0

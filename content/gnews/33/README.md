@@ -1,173 +1,93 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 起底：参与中共宣传活动的西方媒体全名单曝光
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/706041/)
+## ㊙️｜国际歌曲组 2021年新年第一首红歌改编作品发布 —《北京的金山上》
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/706976/)
 
-2020年12月30日
+**音乐制作： **秘密翻译组 国际歌曲组
+G-Translators| Music
 
-作者：娜塔丽·温特斯（Natalie Winters）
+## **歌词：**
 
-翻译：康州盘古农场-Bruce
+北京的金山上出了个大流氓
+A big rogue rose from the Golden Mountain in Beijing
 
-校对：康州盘古农场-黎明的光芒
+他们呀就是那中国共产党
+That is the Chinese Communist Party
 
-审核：康州盘古农场-Rose
+对外扩张
+External expansion
 
-《国家脉动》今天公布了一份完整的新闻机构名单，据说这些新闻机构在对中美交流基金会（China-United States Exchange Foundation (CUSEF)和’BLJ Worldwide’进行调查后，给予了中共及其宣传机构 “有利的报道 “或 “积极的信息”。
+对内疯狂
+Internal oppression
 
-完整的名单是在《国家脉动》曝光了由中共政协副主席创办的中美交流基金会之后，该基金会被美中安全与经济审查委员会认定为中共统战的重要组成部分。
+把我们百姓的血喝光
+Suck up all our blood
 
-根据美国政府的报告，这项工作的目的是 “争取和消除反对其执政的中国共产党的政策和权威的潜在来源。”，并 “影响海外华人社区、外国政府和其他行动者采取支持北京首选政策的行动或立场”。
+我们全部圈在社会主义万恶的高墙
+Trap us behind an evil socialism wall
 
-通过司法部的《外国代理人登记法》（FARA）文件可以看出，建制派媒体与中美社联之间的关系长达10多年。
+哎take down
+Hey, take down
 
-赞助旅行。
+北京的金山上邪光照四方
+Evilness spreading from the Golden Mountain in Beijing in all directions
 
-根据FARA文件，在BLJ的协助下，CUSEF赞助了以下媒体的中国之行，其明确目标是 “向媒体、关键影响者、舆论领袖和公众有效地传播正面信息”。
+共产党就是那罪恶的黑帮
+CCP is the criminal gang
 
-被称为 “熟悉情况的旅行”，参与者的标准包括 “有效性和有利的报道机会”，以确保 “有利的 “报道。
+多么无耻多么疯狂
+Brazenness and madness to the max
 
-为了在主要的国家媒体上形成有利的报道，BLJ将继续组织和安排人员到中国进行 “熟悉情况之旅”。这包括招募顶级记者前往中国，根据效果和有利报道的机会进行选择。
+把我们百姓的钱儿抢光
+Taking away all our wealth
 
-报道渠道
+我们迈步走在现代奴隶痛苦的大道上
+We are suffering on a road to modern slavery
 
-Vox
+哎 它最狂
+Hey, it’s the maddest
 
-Slate
+北京的金山上搞生化病毒放
+Bioweapon virus unleashed from the Golden Mountain in Beijing
 
-波士顿先驱报
+共产党想做那世界的领头羊
+CCP wants to lead the world
 
-波士顿环球报
+各国遭殃
+All countries are suffering
 
-赫芬顿邮报
+人类死亡
+People are dying
 
-《大西洋》杂志
+拿全球人民的命来陪葬
+Lives of mankind lost due to the CCP
 
-福克斯新闻
+爆料革命开启揭发CCP的新篇章
+The Whistleblowers’ Movement unveils the truth of the CCP
 
-纽约时报
+哎 讲真相
+Hey, truth revelation
 
-NPR
+北京的金山上彻底失去光芒
+Complete loss of light on the Golden Mountain in Beijing
 
-CNBC
+他们已成为那末日的政党
+The CCP regime is already collapsing
 
-新闻周刊
+蓝色信仰
+Faith in blue
 
-洛杉矶时报
+迎风飘扬
+Spreading through the wind
 
-巴尔的摩太阳报
+在世界灭共呀掀巨浪
+Driving a huge global wave to take down the CCP
 
-芝加哥论坛报
+全球迈步走在消灭CCP的大道上
+The whole world is crusading to eliminate the CCP
 
-卫报
-
-纽约客杂志
-
-金融时报
-
-外交政策
-
-费城问询者
-
-纽约杂志
-
-雅虎财经
-
-国民日报
-
-华盛顿邮报
-
-福布斯
-
-彭博
-
-明尼阿波利斯星论坛报
-
-美国新闻与世界报道
-
-旧金山纪事报
-
-费城问询者
-
-哈佛商业评论
-
-国会山
-
-芝加哥杂志
-
-MSNBC
-
-私人晚宴。
-
-除了CUSEF赞助的旅行，媒体也会见了CUSEF官员和BLJ首席执行官在美国各城市，包括纽约、华盛顿特区和芝加哥。在FARA文件中，这些会面往往被描述为 “私人晚宴”。
-
-媒体：
-
-华盛顿邮报
-
-美联社
-
-时代杂志
-
-纽约时报
-
-哥伦比亚广播公司
-
-福布斯
-
-PBS
-
-大西洋杂志
-
-经济学家杂志
-
-CNBC
-
-华尔街日报
-
-金融时报
-
-国民日报
-
-NPR
-
-政治家
-
-芝加哥论坛报
-
-彭博
-
-英国广播公司
-
-洛杉矶时报
-
-Quartz
-
-法新社
-
-麦克拉奇报
-
-国会季刊
-
-商业周刊
-
-美国有线电视新闻网
-
-国会山
-
-路透社
-
-美国广播公司
-
-国家
-
-雅虎新闻网
-
-新闻周刊
-
-《国家脉动》将继续无畏地报道西方媒体的妥协性和中共对美国机构的影响力。请考虑支持这项重要工作。
-
-文章链接：[https://thenationalpulse.com/exclusive/western-media-chinese-communist-events/](https://thenationalpulse.com/exclusive/western-media-chinese-communist-events/)
+嘿take down
+Hey, take down
 
 +2
