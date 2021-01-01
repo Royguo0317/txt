@@ -1,33 +1,105 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】了不起的霍利挑战1月6日选举团投票，强硬反击沃尔玛
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/701873/)
+## 会计，财报，审计入门基础与介绍（六）
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/705293/)
 
-作者：香草山写作组 Wilson 校对/发稿：飞虹
+![]()![](https://gnews.org/wp-content/uploads/2020/12/WX20201228-134452@2x.png)Picture Source: www.groomassocies.com
+此篇中是详细展示财务审计与分析过程中所涉及的股权设计，分析及各项目内容。有助于投资人或审计师依照富有逻辑且合理的顺序对于财务报表中可以影响股权的项目进行逐一检阅。
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
-
-
-
-据布莱巴特新闻网报道，美国参议员乔什·霍利2020年12月29日表示，当选举团投票结果于1月6日提交国会时，他将与多位众议院共和党人一起反对2020年(欺诈)选举团投票。霍利指出：宾夕法尼亚州没有遵守自己州的《选举法》，因此我将不认可其投票结果。
-![]()![](https://gnews.org/wp-content/uploads/2020/12/GettyImages-1229070164-640x480-1.jpg)图片来源：布莱巴特新闻网
-霍利强调，在1月6日的认证过程中，他将提出以下关键问题：包括脸书和推特在内的大型公司，为支持乔·拜登而干预这次选举做出了前所未有的努力；至少国会应该调查选民欺诈的指控，并采取措施确保我们选举的完整性，但到目前为止国会还没有采取任何行动。
-
-按照相关法律，众参两院议员都可以在1月6日对选举人团投票结果进行挑战。挑战将引发两院全体辩论，随后两院应按程序在当天辩论结束后进行投票。
-
-霍利并不孤单，在同一天，美国当选众议员马乔丽·泰勒·格林告诉布莱巴特新闻网记者，她和同事将反对来自六个州的欺诈选举结果。
-
-霍利的挑战受到了沃尔玛的攻击，沃尔玛在推特中称霍利是“酸酸的失败者”，霍利当即强硬反击沃尔玛: 你已经侮辱了7,500万(诚实投票的)美国人，你至少应该为使用奴隶劳工道歉吧？或者当你让街边小店破产时，你应当为支付给工人可怜的工资而道歉。
-
-据一些人发布的推特，截至12月30日下午，已有24名共和党众议员加入霍利的队伍，相信在1月6日之前将有更多的议员站出来，挑战这些腐败州的舞弊选举团投票结果，川普极有可能就此胜出，中共在美国大选战场有可能彻底失败。
+1. Doubtful Account 4.2.1
 
 
+- 在以信贷出售时可能面临客户拖欠违约，只有等待是唯一确认违约的方式
+- 根据匹配原则客户违约欠款应计作Expense，不得直接从Revenue中扣除
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+2. Warranties 4.2.2
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+- 根据匹配原则公司提供给客户的保修应计做Expense，
+- 公司应估计此费用并根据历史经验进行更新
 
-+1
+
+3. Depreciation and Amortisation 4.2.3
+
+- Depreciation: 在预期可提供经济利益的时间框架内，系统地分配长期成本的过程
+- Amortization：摊销无形长期资产，在有限的使用寿命内
+- Straight-line Method: Cost-Residual Value
+- Double Declining Balance depreciation：
+- 时间越短，起始年份贬值额度越大，剩余收入越少
+- 上一年的净值\*贬值率=上一年贬值额度
+- （总额­-上年贬值额度）\*贬值率=当年贬值额度
+
+
+4. Discontinued Operations5.1
+
+- IFRS US GAAP 同时要求标注Discontinued
+- 通常情况下是Operationally / Physically 都不再持续。且分析师不在纳入未来展望
+- 任何情况下的部分损害不计入在内
+
+
+5. Unusual or Infrequent Items5.2
+
+- IFRS要求单独披露
+- US GAAP要求显示为持续经营的一部分，但分别列出
+
+
+6. Changes in Accounting Policies 5.3
+
+- Retrospective Application
+- 追溯应用特指：重新报告更改会计准则之前的时间区间Prior Period Shown in a Report
+- 要求使用更新的准则重塑之前的结果。使得更具有比较性
+- 另外一种可能：对上一期间的错误进行纠正
+
+
+7. Non-Operating Items 5.4
+
+- 非运营项目通常与运营项目分开，例如非金融公司发行金融产品 / 投资的收入
+
+![]()![](https://gnews.org/wp-content/uploads/2020/12/会计1.png)
+1. Basic EPS 6.2
+
+
+- 如果无稀释性金融产品的企业Basic EPS = Diluted EPS
+- Weighted Average Number of shares Outstanding：股票数量\*存在时间
+- 流通股票数量所存在的时间(结束在12月底则会比较简单)
+- 切记：仅记录Preferred Share Dividend（Common share Dividend 不计入在内）
+- Stock Dividend 数量视为初次发行的普通股。
+
+
+9. Convertible Preferred (6.3.1)
+![]()![](https://gnews.org/wp-content/uploads/2020/12/会计2.png)
+- 由于可转换优先股稀释后不减去分红，所以稀释后DEPS可能大于BEPS
+
+
+10. Convertible Bonds (6.3.2)
+![]()![](https://gnews.org/wp-content/uploads/2020/12/会计3.png)
+11. Stock Options Warrants or their Equivalents Outstanding (6.3.3)
+![]()![](https://gnews.org/wp-content/uploads/2020/12/会计4.png)
+- 注意：发行总量-（行权总收益/市场单价），计算稀释后流通股份数量(此方法已经假设对净收入无影响)
+
+
+12. Common-size Analysis of Income Statement 7.1
+
+- Stating Each line item on the income Statement as a percentage of revenue。
+- 在损溢表上表明每个项目占收入百分比
+- Facilitate Comparison across time periods （Time series analysis）
+- And across companies （Cross-sectional analysis）
+- 便于横跨时间段和跨公司进行比较，因为标准化消除了尺寸影响
+
+
+13. Income Statement Ratios 7.2
+
+- Net Profit Margin = Profit Margin = Return on sales
+- =Net Income / Revenue（减去销售成本和一切开销）
+- Gross Profit Margin
+- =Gross profit / Revenue (仅减去销售成本)
+
+
+作者：搞笑排行榜
+
+原创观点文章 – 2020/12/31
+
+温哥华圆成农场
+
+0

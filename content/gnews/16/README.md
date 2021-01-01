@@ -1,105 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 会计，财报，审计入门基础与介绍（六）
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/705293/)
+## 中共国严控查找中共病毒的起源
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/705546/)
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/WX20201228-134452@2x.png)Picture Source: www.groomassocies.com
-此篇中是详细展示财务审计与分析过程中所涉及的股权设计，分析及各项目内容。有助于投资人或审计师依照富有逻辑且合理的顺序对于财务报表中可以影响股权的项目进行逐一检阅。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/capture-180.jpg)图片来源：（NG HAN GUAN | AP）
+在中共病毒爆发一周年之际，“美联社”（AP）对中共病毒的发生、发展、以及最新的研究进展做了梳理报道。
 
-1. Doubtful Account 4.2.1
+“美联社”12月30日的报道指出，前不久，一支研究蝙蝠的小组在中国云南墨江的矿洞采集了一些标本，但这些标本全部被当局没收，研究人员被勒令不得透露消息给媒体。11月份，另一支由媒体记者组成的队伍还被便衣警察追踪，并阻止他们进入通向矿洞的公路。
 
+报道指出，自第一位感染中共病毒的人被公开报道以来，已经过去一年多了，但中共政府还在通过各种途径严控人们对病毒起源的探索。尽管中共政府正投入大量的资金和人力研究这个病毒的起源，但是，一切相关研究资料却受到严密的监控，研究结果也不能随意发表，而且这个研究与中共军队密切关联。报道称，监控的指令来自于中共的最高层，国外的科学家基本无权访问和参与到这些研究当中，以致于国外的专家对这方面研究知之甚少，很清楚，这是出于政治的原因。
 
-- 在以信贷出售时可能面临客户拖欠违约，只有等待是唯一确认违约的方式
-- 根据匹配原则客户违约欠款应计作Expense，不得直接从Revenue中扣除
+中共当局对信息的管制程度令人发指，一开始，他们对全世界掩盖病毒爆发的真相，不仅不与世界分享信息，还阻碍早期检测，因此中共在世界舞台上的名誉已经扫地。出格的是，他们竟然开始寻找各种动物作为中间宿主，并甩锅到各个国家，试图推卸责任。查找病毒起源对于病毒的防控至关重要，世界卫生组织（WHO）计划一月份对病毒的调查竟然需要中共政府的批准。
 
+报道认为，中共当局做了很多荒唐可笑的事情试图转移人们的注意力，比如对武汉海鲜市场装模作样的消毒，查封商户的海鲜产品。而对0号病人的追踪却是个禁区。据海鲜市场一位商户姜大发（译名）的回忆，他最早注意到有人发病是在2019年12月中旬，他身边先后有3个人病倒，其中一个人逝去。
 
-2. Warranties 4.2.2
+**点评**：爆料革命的战友们从2020年1月19日起就知道了中共病毒的爆发，并目睹了中共病毒大流行的整个过程，我们知道的内容远远比这篇报道多得多。中共病毒改变了所有人的生活，我们必须天天戴着口罩，不能和亲人朋友聚会，不知道何时才能恢复正常的生活。即便这样，我们还面临着随时可能被感染的危险。世界各国各种族有无数人的生命被中共病毒夺去，而这一灾难居然是由几个邪恶至极，妄图统治全世界的人所导致的。共产党不灭，整个世界面临毁灭。
 
-- 根据匹配原则公司提供给客户的保修应计做Expense，
-- 公司应估计此费用并根据历史经验进行更新
+只要有流行病学常识的人都知道，调查和防控传染病的三要素是传染源，传播途径和易感人群。0号病人是一个调查最基本的环节，对0号病人的发病细节的调查是了解疾病来源的必要途径。中共阻断对0号病人的追踪，阻断对病毒起源的调查，其险恶用心已经昭然若揭。病毒起源真相是这个邪恶的政党最心虚的软肋，因为他们知道，一旦有公正透明的调查，他们的罪恶就会大白于天下。
 
+中共对新冠病毒中间宿主的指鹿为马，不禁令人浮想联翩。SARS的中间宿主——果子狸大概是世界上最冤的动，它不会说话，被人安上传播病毒的罪名。很多科学家到处捕杀果子狸，但结果是很难从它们身上分离到SARS病毒。因此SARS从哪里来，值得去调查。
 
-3. Depreciation and Amortisation 4.2.3
+[原文链接](https://apnews.com/article/united-nations-coronavirus-pandemic-china-only-on-ap-bats-24fbadc58cee3a40bca2ddf7a14d2955)
 
-- Depreciation: 在预期可提供经济利益的时间框架内，系统地分配长期成本的过程
-- Amortization：摊销无形长期资产，在有限的使用寿命内
-- Straight-line Method: Cost-Residual Value
-- Double Declining Balance depreciation：
-- 时间越短，起始年份贬值额度越大，剩余收入越少
-- 上一年的净值\*贬值率=上一年贬值额度
-- （总额­-上年贬值额度）\*贬值率=当年贬值额度
+翻译：Backbone（宇菲）
 
+校对：文旺
 
-4. Discontinued Operations5.1
-
-- IFRS US GAAP 同时要求标注Discontinued
-- 通常情况下是Operationally / Physically 都不再持续。且分析师不在纳入未来展望
-- 任何情况下的部分损害不计入在内
-
-
-5. Unusual or Infrequent Items5.2
-
-- IFRS要求单独披露
-- US GAAP要求显示为持续经营的一部分，但分别列出
-
-
-6. Changes in Accounting Policies 5.3
-
-- Retrospective Application
-- 追溯应用特指：重新报告更改会计准则之前的时间区间Prior Period Shown in a Report
-- 要求使用更新的准则重塑之前的结果。使得更具有比较性
-- 另外一种可能：对上一期间的错误进行纠正
-
-
-7. Non-Operating Items 5.4
-
-- 非运营项目通常与运营项目分开，例如非金融公司发行金融产品 / 投资的收入
-
-![]()![](https://gnews.org/wp-content/uploads/2020/12/会计1.png)
-1. Basic EPS 6.2
-
-
-- 如果无稀释性金融产品的企业Basic EPS = Diluted EPS
-- Weighted Average Number of shares Outstanding：股票数量\*存在时间
-- 流通股票数量所存在的时间(结束在12月底则会比较简单)
-- 切记：仅记录Preferred Share Dividend（Common share Dividend 不计入在内）
-- Stock Dividend 数量视为初次发行的普通股。
-
-
-9. Convertible Preferred (6.3.1)
-![]()![](https://gnews.org/wp-content/uploads/2020/12/会计2.png)
-- 由于可转换优先股稀释后不减去分红，所以稀释后DEPS可能大于BEPS
-
-
-10. Convertible Bonds (6.3.2)
-![]()![](https://gnews.org/wp-content/uploads/2020/12/会计3.png)
-11. Stock Options Warrants or their Equivalents Outstanding (6.3.3)
-![]()![](https://gnews.org/wp-content/uploads/2020/12/会计4.png)
-- 注意：发行总量-（行权总收益/市场单价），计算稀释后流通股份数量(此方法已经假设对净收入无影响)
-
-
-12. Common-size Analysis of Income Statement 7.1
-
-- Stating Each line item on the income Statement as a percentage of revenue。
-- 在损溢表上表明每个项目占收入百分比
-- Facilitate Comparison across time periods （Time series analysis）
-- And across companies （Cross-sectional analysis）
-- 便于横跨时间段和跨公司进行比较，因为标准化消除了尺寸影响
-
-
-13. Income Statement Ratios 7.2
-
-- Net Profit Margin = Profit Margin = Return on sales
-- =Net Income / Revenue（减去销售成本和一切开销）
-- Gross Profit Margin
-- =Gross profit / Revenue (仅减去销售成本)
-
-
-作者：搞笑排行榜
-
-原创观点文章 – 2020/12/31
-
-温哥华圆成农场
-
-0
++1
