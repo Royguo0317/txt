@@ -14,141 +14,144 @@
 
 ---
 
-### [重磅快讯：中移动、中联通、中电信被纽交所强制退市](/content/gnews/1/README.md)
+### [《路德时评》重磅采访闫博士谈一年心路历程，解读川普政府系列灭共行动](/content/gnews/1/README.md)
+ ` GM141`
+
+### [重磅快讯：中移动、中联通、中电信被纽交所强制退市](/content/gnews/2/README.md)
  ` pmzy`
 
-### [美国务院官方声明：中共是脆弱的专政政权，美国呼吁其立即无条件释放被判入狱的十二名香港英雄](/content/gnews/2/README.md)
- ` GM101`
+### [反垄断法大旗下，谁是下一个马云？](/content/gnews/3/README.md)
+ ` Himalaya Australia`
 
-### [中共批准国内首个新冠疫苗附条件上市，意味着变相进行的临床Ⅲ期试验即将开始](/content/gnews/3/README.md)
- ` XMLYG777`
+### [“柯文哲”坚持办台北市跨年会，天网揪逾30名自主管理者靠近北市跨年晚会](/content/gnews/4/README.md)
+ ` G-NEWS TAIWAN`
 
-### [视频【每日快讯】31/12/2020:2021是决战年Take the CCP！美国急诊室的男护士在移植辉瑞疫苗8天后確诊感染了中共病毒](/content/gnews/4/README.md)
- ` GM132 每日快訊`
+### [感恩感谢 辞旧迎新](/content/gnews/5/README.md)
+ ` Himalaya Australia`
 
-### [日本读卖新闻报道全文翻译：已证实中国“千人计划”中有44名日本研究人员，日本政府将加强规管](/content/gnews/5/README.md)
- ` JPHIMALAYA`
-
-### [视频12/30/2020 文贵先生盖特:不要再被中共洗脑机器所控制](/content/gnews/6/README.md)
- ` 秘密翻译组G-Translators`
-
-### [辞旧迎新之际灭毒首先要灭共——写在美东时间2020年12月31日](/content/gnews/7/README.md)
- ` JPHIMALAYA`
-
-### [2020回顾盘点：新冠病毒肆虐全球一整年，世界巨骗撒谎年头到年尾](/content/gnews/8/README.md)
- ` wenwu`
-
-### [中共国广东石油化工学院 一男生因矛盾纠纷 朝三女同学【泼硫酸】](/content/gnews/9/README.md)
- ` shang`
-
-### [文字版2020年12月30日郭先生喜马拉雅大使馆discord群答疑录音](/content/gnews/10/README.md)
- ` 喜马拉雅听写组`
-
-### [【弗林将军推文1230】美国大选究竟有多少国外势力干涉其中](/content/gnews/11/README.md)
- ` 喜馬拉雅的文雅 Himalaya Wenya`
-
-### [【三票专栏】十权一统 统于一党（11）看中共的极权统治 —— 情报篇](/content/gnews/12/README.md)
+### [【文字版】路德时评2020.12.31早间：英富时罗素指数宣布将剔除更多美国制裁中共军方企业指数；此处无银三百两习近平四处露脸；班农战斗室今天节目将宣布年度男士女士会是谁？](/content/gnews/6/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【热点播报】西方主要媒体与中共宣传战线中的中美交流基金会](/content/gnews/13/README.md)
+### [视频12/30/2020 美国霍利议员: 计划挑战选举人票。](/content/gnews/7/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频12/30/2020 娜塔莉·温特斯： 中共组织中美交流基金会通过赞助去中国旅行来渗透西方记者。](/content/gnews/8/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频12/30/2020 朱利安尼： 如果你害怕会被自由派媒体攻击而袖手旁观，任由舞弊发生，那我都不知道你还算什么美国人。](/content/gnews/9/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频12/30/2020 朱利安尼：死者投票就是民主党的把戏，令人作呕。](/content/gnews/10/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频12/30/2020 朱利安尼：别跟我说此次大选不存在舞弊，别告诉我不能提舞弊这个词，我自己亲眼所见。](/content/gnews/11/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频12/30/2020 朱利安尼：有10种方法能表明這次大选有窃取事宜。这种事是第三世界国家才有的。这次我们让坏人逍遥法外，以后他们一定会变本加厉。](/content/gnews/12/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [外强中干的政权](/content/gnews/13/README.md)
+ ` G-NEWS TAIWAN`
+
+### [更多关于中共干预2020年美国大选的信息](/content/gnews/14/README.md)
+ ` 康州盘古喜马拉雅农场`
+
+### [中共集权之新冠可控可防生化超限战](/content/gnews/15/README.md)
+ ` G-NEWS TAIWAN`
+
+### [习总加速师的术前权力布建？！](/content/gnews/16/README.md)
+ ` G-NEWS TAIWAN`
+
+### [视频班农先生对“沃尔玛嘲笑可怜人”的反击](/content/gnews/17/README.md)
+ ` Himalaya Australia`
+
+### [听闫丽梦博士在路德社1231讲为什么去年1231发警告未来要怎样](/content/gnews/18/README.md)
+ ` NewFOC`
+
+### [【世事解评】回顾2020年发生的一系列大事](/content/gnews/19/README.md)
  ` 纽约香草山农场`
 
-### [珍惜生命，拒绝“中共毒疫苗”免费陷阱](/content/gnews/14/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [班农战斗室WARROOM精选 617期 彼得·纳瓦罗 扎克伯格和索罗斯策划布局投入超过十亿美元资金 买通法官检察官干预美国大选](/content/gnews/15/README.md)
- ` 喜群文月`
-
-### [中共国严控查找中共病毒的起源](/content/gnews/16/README.md)
- ` 秘密翻译组G-Translators`
-
-### [父母的教育让我们丧失血性](/content/gnews/17/README.md)
- ` 喜马拉雅巴黎七星农场`
-
-### [参议员霍利强力反击沃尔玛不当言论](/content/gnews/18/README.md)
- ` 秘密翻译组G-Translators`
-
-### [国产中共病毒疫苗上市：谋财害命](/content/gnews/19/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [【看七哥视频】中共绑架国人对抗全世界，危险至极啊！](/content/gnews/20/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [共和党当选代表称：米奇·麦康纳尔和南希·佩洛西可能正在修改规则以阻止选举团的反对意见](/content/gnews/21/README.md)
+### [1月6日是我们了解我们的宪法是否会保持和国会共和党人是否关心的日子](/content/gnews/20/README.md)
  ` 康州盘古喜马拉雅农场`
 
-### [&#8220;我不会在1月6日投票认证选举团结果&#8221;——密苏里州参议员乔希·霍利宣布将反对选举团认证程序](/content/gnews/22/README.md)
+### [閆博士回到路德社，讲述一年前的今天](/content/gnews/21/README.md)
+ ` 恩典农场`
+
+### [【战友心声】2020年爆料革命英雄](/content/gnews/22/README.md)
+ ` 纽约香草山农场`
+
+### [【林伍德律师推文1231】彭斯即将离任](/content/gnews/23/README.md)
+ ` 喜馬拉雅的文雅 Himalaya Wenya`
+
+### [【世事解评】2020年，世界对自由的向往和对独裁者的恐惧](/content/gnews/24/README.md)
+ ` 纽约香草山农场`
+
+### [中概股退市先拿通信巨头开刀，川普总统杀回马枪突然返白宫](/content/gnews/25/README.md)
+ ` 恩典农场`
+
+### [『般若波罗蜜多心经』经题前导读](/content/gnews/26/README.md)
+ ` G-NEWS TAIWAN`
+
+### [【热点播报】摘要《国家脉动》拉希姆·卡萨姆12月30日的节目](/content/gnews/27/README.md)
+ ` 纽约香草山农场`
+
+### [2021-1-1康州盘古农场本日新闻热点](/content/gnews/28/README.md)
  ` 康州盘古喜马拉雅农场`
 
-### [法国 《观点》杂志刊文：中欧协议：一个对欧洲企业的利好消息？](/content/gnews/23/README.md)
- ` 喜马拉雅巴黎七星农场`
+### [中国希望与澳大利亚的关系“尽早”回到正轨](/content/gnews/29/README.md)
+ ` Himalaya Australia`
 
-### [班农战斗室WARROOM 精选617期 彼得·纳瓦罗 中共不但控制供应链 还在供应链中植入机关 以此削弱美国保卫国家的能力](/content/gnews/24/README.md)
- ` 喜群文月`
+### [2020年12月30日郭先生盖特群聊内容整理](/content/gnews/30/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
 
-### [美国政要推特每日总汇(12月30日）](/content/gnews/25/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [美国务院副发言人悼念李文亮医生](/content/gnews/26/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [露馅的包子何去何从？](/content/gnews/27/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [【纳瓦罗推文1231】欧盟中共国贸易协定和疫苗](/content/gnews/28/README.md)
+### [【川普总统推文1231】霍利议员获褒奖](/content/gnews/31/README.md)
  ` 喜馬拉雅的文雅 Himalaya Wenya`
 
-### [视频12/29/2020路德:习近平在未来这十几二十天是一定为脑血管瘤做介入手术的，所以现在是中共最关键的时刻](/content/gnews/29/README.md)
+### [三大指数公司再剔中概股，习总加速师越露脸越憔悴](/content/gnews/32/README.md)
+ ` 恩典农场`
+
+### [起底：参与中共宣传活动的西方媒体全名单曝光](/content/gnews/33/README.md)
+ ` 康州盘古喜马拉雅农场`
+
+### [视频12/30/2020 路易·戈莫特： 联邦法官们向宪法宣过誓，现在他们需要遵守誓言来履行职责。](/content/gnews/34/README.md)
  ` 秘密翻译组G-Translators`
 
-### [中共在阿富汗悬赏塔利班袭击美国军人](/content/gnews/30/README.md)
+### [视频12/30/2020 路易·戈莫特：对副总统提起的诉讼是为了确保他能够履行宪法义务，来确定哪一组州选举人是合法的。](/content/gnews/35/README.md)
  ` 秘密翻译组G-Translators`
 
-### [视频【字幕】12/30/2020文贵盖特：一起度过了灭共灭役的2020庚子年，我们将一起进入到最后的灭共辛丑之年](/content/gnews/31/README.md)
- ` Caihongqiao`
+### [视频12/30/2020 闫丽梦博士：当中共想让某人“被消失”时，他们会怎么做。](/content/gnews/36/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [中共官媒互相打脸：冷链何罪之有？](/content/gnews/32/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [视频12/30/2020 闫丽梦博士：在李文亮博士首次发出冠状病毒警报的周年纪念日，闫博士讲述了李文亮博士去世的真相。](/content/gnews/37/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [会计，财报，审计入门基础与介绍（六）](/content/gnews/33/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [【蓬佩奥先生推文1231】家和枪](/content/gnews/34/README.md)
- ` 喜馬拉雅的文雅 Himalaya Wenya`
-
-### [习近平的脑瘤介入手术与其风雨飘摇的统治（下）](/content/gnews/35/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [习包子慌不择路，惧开瓢瘤芳百世（下）](/content/gnews/36/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [内华达州州务卿涉嫌向巴基斯坦情报部门发送选民信息](/content/gnews/37/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [视频国语【香港快讯】 12.31 终审法院判黎智英再度还押 周庭被「升级」为甲级犯人](/content/gnews/38/README.md)
+### [视频【路德时评粤语快报】12.31：金融脱钩持续进行富时罗素宣布将剔除更多中企](/content/gnews/38/README.md)
  ` GM42`
 
-### [习总加速师挺住！ 灭共不止 不赢不休](/content/gnews/39/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [中共国疫苗真的免费？天上大饼已被胡叼盘接走](/content/gnews/39/README.md)
+ ` 喜马拉雅 日本京都富士会`
 
-### [美敦促中共国释放公民记者张展](/content/gnews/40/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [这是希望之春，这是失望之冬](/content/gnews/40/README.md)
+ ` 康州盘古喜马拉雅农场`
 
-### [普京习近平提前电话互祝新年，别逗了](/content/gnews/41/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
+### [灭共战略三部曲之以共灭共](/content/gnews/41/README.md)
+ ` Himalaya Australia`
 
-### [【林伍德律师推文1231】让我们站起身一起祈祷吧](/content/gnews/42/README.md)
- ` 喜馬拉雅的文雅 Himalaya Wenya`
+### [【文字版】2020年12月31日郭先生盖特](/content/gnews/42/README.md)
+ ` 康州盘古喜马拉雅农场`
 
-### [视频【新闻视角】 食品安全刻不容缓 （一）](/content/gnews/43/README.md)
- ` GM42`
+### [视频【每日快讯】31/12/2020（班农作战室摘要）:证人证明肯特郡投票机5次选票输入，出现5次不同的结果John在乔治亚州购买了一个电台，准备把班农节目发布乔州](/content/gnews/43/README.md)
+ ` GM132 每日快訊`
 
-### [【林伍德律师推文1231】白宫幕僚长](/content/gnews/44/README.md)
- ` 喜馬拉雅的文雅 Himalaya Wenya`
+### [中共批准国内首个新冠疫苗附条件上市，意味着变相进行的临床Ⅲ期试验即将开始](/content/gnews/44/README.md)
+ ` XMLYG777`
 
-### [宣告抗疫胜利后，北京面临又一轮冠状病毒爆发](/content/gnews/45/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [视频【每日快讯】31/12/2020:2021是决战年Take the CCP！美国急诊室的男护士在移植辉瑞疫苗8天后確诊感染了中共病毒](/content/gnews/45/README.md)
+ ` GM132 每日快訊`
 
-### [视频【香港要闻】香港考评局前经理杨颖宇哭了](/content/gnews/46/README.md)
- ` GM42`
+### [日本读卖新闻报道全文翻译：已证实中国“千人计划”中有44名日本研究人员，日本政府将加强规管](/content/gnews/46/README.md)
+ ` JPHIMALAYA`
+
+### [视频12/30/2020 文贵先生盖特:不要再被中共洗脑机器所控制](/content/gnews/47/README.md)
+ ` 秘密翻译组G-Translators`
 

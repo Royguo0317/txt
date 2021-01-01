@@ -1,105 +1,173 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 会计，财报，审计入门基础与介绍（六）
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/705293/)
+## 起底：参与中共宣传活动的西方媒体全名单曝光
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/706041/)
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/WX20201228-134452@2x.png)Picture Source: www.groomassocies.com
-此篇中是详细展示财务审计与分析过程中所涉及的股权设计，分析及各项目内容。有助于投资人或审计师依照富有逻辑且合理的顺序对于财务报表中可以影响股权的项目进行逐一检阅。
+2020年12月30日
 
-1. Doubtful Account 4.2.1
+作者：娜塔丽·温特斯（Natalie Winters）
 
+翻译：康州盘古农场-Bruce
 
-- 在以信贷出售时可能面临客户拖欠违约，只有等待是唯一确认违约的方式
-- 根据匹配原则客户违约欠款应计作Expense，不得直接从Revenue中扣除
+校对：康州盘古农场-黎明的光芒
 
+审核：康州盘古农场-Rose
 
-2. Warranties 4.2.2
+《国家脉动》今天公布了一份完整的新闻机构名单，据说这些新闻机构在对中美交流基金会（China-United States Exchange Foundation (CUSEF)和’BLJ Worldwide’进行调查后，给予了中共及其宣传机构 “有利的报道 “或 “积极的信息”。
 
-- 根据匹配原则公司提供给客户的保修应计做Expense，
-- 公司应估计此费用并根据历史经验进行更新
+完整的名单是在《国家脉动》曝光了由中共政协副主席创办的中美交流基金会之后，该基金会被美中安全与经济审查委员会认定为中共统战的重要组成部分。
 
+根据美国政府的报告，这项工作的目的是 “争取和消除反对其执政的中国共产党的政策和权威的潜在来源。”，并 “影响海外华人社区、外国政府和其他行动者采取支持北京首选政策的行动或立场”。
 
-3. Depreciation and Amortisation 4.2.3
+通过司法部的《外国代理人登记法》（FARA）文件可以看出，建制派媒体与中美社联之间的关系长达10多年。
 
-- Depreciation: 在预期可提供经济利益的时间框架内，系统地分配长期成本的过程
-- Amortization：摊销无形长期资产，在有限的使用寿命内
-- Straight-line Method: Cost-Residual Value
-- Double Declining Balance depreciation：
-- 时间越短，起始年份贬值额度越大，剩余收入越少
-- 上一年的净值\*贬值率=上一年贬值额度
-- （总额­-上年贬值额度）\*贬值率=当年贬值额度
+赞助旅行。
 
+根据FARA文件，在BLJ的协助下，CUSEF赞助了以下媒体的中国之行，其明确目标是 “向媒体、关键影响者、舆论领袖和公众有效地传播正面信息”。
 
-4. Discontinued Operations5.1
+被称为 “熟悉情况的旅行”，参与者的标准包括 “有效性和有利的报道机会”，以确保 “有利的 “报道。
 
-- IFRS US GAAP 同时要求标注Discontinued
-- 通常情况下是Operationally / Physically 都不再持续。且分析师不在纳入未来展望
-- 任何情况下的部分损害不计入在内
+为了在主要的国家媒体上形成有利的报道，BLJ将继续组织和安排人员到中国进行 “熟悉情况之旅”。这包括招募顶级记者前往中国，根据效果和有利报道的机会进行选择。
 
+报道渠道
 
-5. Unusual or Infrequent Items5.2
+Vox
 
-- IFRS要求单独披露
-- US GAAP要求显示为持续经营的一部分，但分别列出
+Slate
 
+波士顿先驱报
 
-6. Changes in Accounting Policies 5.3
+波士顿环球报
 
-- Retrospective Application
-- 追溯应用特指：重新报告更改会计准则之前的时间区间Prior Period Shown in a Report
-- 要求使用更新的准则重塑之前的结果。使得更具有比较性
-- 另外一种可能：对上一期间的错误进行纠正
+赫芬顿邮报
 
+《大西洋》杂志
 
-7. Non-Operating Items 5.4
+福克斯新闻
 
-- 非运营项目通常与运营项目分开，例如非金融公司发行金融产品 / 投资的收入
+纽约时报
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/会计1.png)
-1. Basic EPS 6.2
+NPR
 
+CNBC
 
-- 如果无稀释性金融产品的企业Basic EPS = Diluted EPS
-- Weighted Average Number of shares Outstanding：股票数量\*存在时间
-- 流通股票数量所存在的时间(结束在12月底则会比较简单)
-- 切记：仅记录Preferred Share Dividend（Common share Dividend 不计入在内）
-- Stock Dividend 数量视为初次发行的普通股。
+新闻周刊
 
+洛杉矶时报
 
-9. Convertible Preferred (6.3.1)
-![]()![](https://gnews.org/wp-content/uploads/2020/12/会计2.png)
-- 由于可转换优先股稀释后不减去分红，所以稀释后DEPS可能大于BEPS
+巴尔的摩太阳报
 
+芝加哥论坛报
 
-10. Convertible Bonds (6.3.2)
-![]()![](https://gnews.org/wp-content/uploads/2020/12/会计3.png)
-11. Stock Options Warrants or their Equivalents Outstanding (6.3.3)
-![]()![](https://gnews.org/wp-content/uploads/2020/12/会计4.png)
-- 注意：发行总量-（行权总收益/市场单价），计算稀释后流通股份数量(此方法已经假设对净收入无影响)
+卫报
 
+纽约客杂志
 
-12. Common-size Analysis of Income Statement 7.1
+金融时报
 
-- Stating Each line item on the income Statement as a percentage of revenue。
-- 在损溢表上表明每个项目占收入百分比
-- Facilitate Comparison across time periods （Time series analysis）
-- And across companies （Cross-sectional analysis）
-- 便于横跨时间段和跨公司进行比较，因为标准化消除了尺寸影响
+外交政策
 
+费城问询者
 
-13. Income Statement Ratios 7.2
+纽约杂志
 
-- Net Profit Margin = Profit Margin = Return on sales
-- =Net Income / Revenue（减去销售成本和一切开销）
-- Gross Profit Margin
-- =Gross profit / Revenue (仅减去销售成本)
+雅虎财经
 
+国民日报
 
-作者：搞笑排行榜
+华盛顿邮报
 
-原创观点文章 – 2020/12/31
+福布斯
 
-温哥华圆成农场
+彭博
 
-0
+明尼阿波利斯星论坛报
+
+美国新闻与世界报道
+
+旧金山纪事报
+
+费城问询者
+
+哈佛商业评论
+
+国会山
+
+芝加哥杂志
+
+MSNBC
+
+私人晚宴。
+
+除了CUSEF赞助的旅行，媒体也会见了CUSEF官员和BLJ首席执行官在美国各城市，包括纽约、华盛顿特区和芝加哥。在FARA文件中，这些会面往往被描述为 “私人晚宴”。
+
+媒体：
+
+华盛顿邮报
+
+美联社
+
+时代杂志
+
+纽约时报
+
+哥伦比亚广播公司
+
+福布斯
+
+PBS
+
+大西洋杂志
+
+经济学家杂志
+
+CNBC
+
+华尔街日报
+
+金融时报
+
+国民日报
+
+NPR
+
+政治家
+
+芝加哥论坛报
+
+彭博
+
+英国广播公司
+
+洛杉矶时报
+
+Quartz
+
+法新社
+
+麦克拉奇报
+
+国会季刊
+
+商业周刊
+
+美国有线电视新闻网
+
+国会山
+
+路透社
+
+美国广播公司
+
+国家
+
+雅虎新闻网
+
+新闻周刊
+
+《国家脉动》将继续无畏地报道西方媒体的妥协性和中共对美国机构的影响力。请考虑支持这项重要工作。
+
+文章链接：[https://thenationalpulse.com/exclusive/western-media-chinese-communist-events/](https://thenationalpulse.com/exclusive/western-media-chinese-communist-events/)
+
++2
