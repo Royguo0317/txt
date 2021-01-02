@@ -1,28 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 抖音“利用12岁儿童谋取利益”诉讼临近
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/707404/)
+## 国台办指责蔡英文新年致辞再露“谋独”本性
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/708705/)
 
-```
-整理：阿娜
-校对/发稿人: Ting Guo
-```
+俄罗斯莫斯科喀秋莎农场 银河
 
+校对上传 星河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/maxresdefault.jpg)voaindonesia.com
+台湾总统蔡英文1月1日的新年致辞中向中共喊话，表示只要中共愿意搁置对抗，台湾愿意就改善两岸关系进行“有意义的”平等会谈。她说到：“我要再次重申，面对两岸关系，我们不会冒进，也会坚守原则。只要北京当局有心化解对立，改善两岸关系，在符合对等尊严的原则下，我们愿意共同促成有意义的对话。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/bigOriginal.jpg) 图片来源: TT
+中共国台办发言人驳回了蔡英文总统的和平诉求。新华社北京1月1日报道，针对台湾总统蔡英文新年讲话中涉两岸关系内容，国台办发言人朱凤莲回应称其讲话再次暴露台湾当局谋“独”本性。国台办发言人重申台湾是中国的一部分，是任何人任何势力都无法改变的。
 
-2020年12月31号根据美国&lt;&lt;国家脉动&gt;&gt;报道:“一名12岁女孩赢得了匿名起诉抖音的权利，原因是指控抖音涉嫌在英国收集未成年人的数据牟利。”
+中共当局一直未放弃对台湾不使用武力的承诺，习近平不但重申了这个承诺，并且喊出“祖国必须统一”。近期，中共更是在台海附近加强了军事部署，进行了不同寻常的空中和海上的演习训练，动作频频。
 
-报道中说到抖音与中共有着广泛的联系，一直在非法收集有关儿童的个人数据。原告的律师说：“抖音这样做的目的是从企业客户那里获得广告收入。”
+在中台对抗中，美国给出了明确态度。美东时间2020年12月27日美国川普总统签署了联邦拨款法案，其中包含《2020年台湾保护法》（Taiwan Assurance Act of 2020），公开支持常态化对台军售，协助台湾当局发展及“整合不对称战力”，增强台湾自我防卫能力，以抵抗台湾面对的军事危机。
 
-律师继续说到：“有争议的个人数据被用在一种算法中，该算法可以分析用户的偏好，以定制呈现给他们的内容以吸引并引起他们的注意。这反过来又鼓励使用该应用程序，尽管该应用程序的服务条款中指出该应用程序不适合13岁以下的用户使用，但很明显，有很多用户都在该年龄以下。”
+面对内忧外患的国际政治局势，中共已经把对台湾发动战争当成解决困境的突破口，企图攻打台湾来为岌岌可危的中共政权续命。美国公布了最新的对中共企业的制裁名单，美中经济脱钩已经在进行中，随着两国的紧张对峙加剧，台湾和南中国海将有可能成为美国与中共的下一个角逐场。
 
-报道称针对这家北京公司的匿名女孩的诉讼得到了英国儿童事务专员安妮·朗菲尔德的支持。
+参考链接：
 
-***参考文章链接：[https://thenationalpulse.com/breaking/tik-tok-lawsuit/](https://thenationalpulse.com/breaking/tik-tok-lawsuit/)***
+[http://www.xinhuanet.com/tw/2021-01/01/c\_1126937523.htm](http://www.xinhuanet.com/tw/2021-01/01/c_1126937523.htm)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21093249/image4-3.jpg)[**https://discord.gg/77fCxw5mFv**](https://discord.gg/77fCxw5mFv)
-[**https://**](https://https//discord.gg/77fCxw5mFv)[**gab.com/himalaya\_italy**](https://gab.com/himalaya_italy)
+[https://www.sbs.com.au/language/mandarin/zh-hans/taiwan-president-new-year-s-speech-open-to-talk-with-china](https://www.sbs.com.au/language/mandarin/zh-hans/taiwan-president-new-year-s-speech-open-to-talk-with-china)
 
-0
++1

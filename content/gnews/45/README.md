@@ -1,55 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥：美国政府各部门正形成合力确保美国国家安全
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/707554/)
+## 川普第五次转推灭共视频，习近平脑瘤越来越危险了，
+` 恩典农场` [轉載自GNews](https://gnews.org/zh-hans/708271/)
 
-- 编辑：Victor Torres
+(編輯/校对：Porsche)
 
+**摘要：川普总统连续五次转推相同的视频，反复提醒美国民众关注即将发生的大事，此次更配文****1****月****6****日华盛顿****DC****见，预示****1****月****6****日的大事与灭共息息相关。在川普第一任期将满之际，彭斯没有辞职可能性。参议院否决了川普对国防授权法案的否决，不影响川普的核心诉求，反而让人看到了民主党内部的正义力量在崛起。三家中共国最赚钱公司被退市引发江家对习近平的巨大仇恨，加剧了习总脑瘤的风险。中欧就投资协定达成共识，但离真正实施还很遥远。**
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+**川普总统第五次转推灭共视频**
 
-**西班牙2021年1月1日电/西喜社—**美国国务卿蓬佩奥周五下午连发五个推，分别搭配国家安全会议、财政部长姆努卿、前司法部长巴尔、中央情报局局长哈斯佩尔、国家安全顾问奥布莱恩为主角的五幅照片，他宣称：
+同时配文：1月6日华盛顿DC见。1月6日，表面是美国大选两党的较量，实质是美国与背后操纵美国大选的中共之间的较量。
 
-“巨大的挑战。伟大的团队。确保美国人的自由。霸气”
+视频内容显示，1963年即肯尼迪总统在任时，美国国会出具了一份报告说，共产主义会控制美国一个或两个政党，渗透媒体，控制电影、电视、广播中的关键职务。
 
-蓬佩奥的推文似乎宣告了美国政府各部门间正形成一股合力，共同保卫国家安全，打击国家敌人。
+曾经帮助川普在2016竞选成功的自由派人物Wayne发推说：大事正在发生，这就是为什么总统会早早飞回白宫。准备庆祝吧，历史上最有趣的一月正在来临。
 
+**彭斯总统会辞职吗？**
 
+法律程序上，除非彭斯主动辞职或被弹劾，否则彭斯不会离开副总统位置。川普没有权力Fire掉彭斯。1月20日，川普第一届政府就到期，彭斯现在仓促辞职没有意义。
 
-> Big challenges. Great team. Securing Americans’ freedom. [#Swagger](https://twitter.com/hashtag/Swagger?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/1L3peCiUrE](https://t.co/1L3peCiUrE)
-> — Secretary Pompeo (@SecPompeo) [January 1, 2021](https://twitter.com/SecPompeo/status/1345074813296119813?ref_src=twsrc%5Etfw)
+川普总统私人律师JennaEllis发推说，她不支持林伍德律师（关于彭斯辞职）的发言，她支持法治和美国宪法。实际上，川普总统虽然对彭斯很失望，但目前并不会采取什么行动。
 
+**参议院否决了川普对国防授权法案的否决，但无关大局**
 
+此次参议院的否决投票结果为81:13，川普支持者虽只有13人，但此次投票结果却透露出两个重大意义：由于川普总统要求的废除230条款的意见已经包含在修订后的新冠救济法案中，此次参议院的否决投票不影响川普总统的原定计划；即便如此，仍然有6名民主党议员和7名共和党议员坚定站在川普总统一边，说明川普总统现在的支持者是跨党派的，民主党内部也有正义在。
 
+**习近平脑瘤越来越危险了**
 
+中共国最赚钱的公司，中国移动、中国电信和中国联通三家中概股被强制退市，江家的海外根资产正被彻底拔出。江家及相关势力一定把这种生死仇恨，传导到习总加速师头上。
 
-> Big challenges. Great team. Securing Americans’ freedom. [#Swagger](https://twitter.com/hashtag/Swagger?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/2ZWbcnuhpP](https://t.co/2ZWbcnuhpP)
-> — Secretary Pompeo (@SecPompeo) [January 1, 2021](https://twitter.com/SecPompeo/status/1345082368223309825?ref_src=twsrc%5Etfw)
+随着其他中概股正排队进入退市名单，更多家族的仇恨会算到习近平头上。最终，这所有的压力都会汇总传导至习总的脑血管瘤上。
 
+**中国与欧盟就双边投资协议达成共识，形式重于实质**
 
+欧盟称，双方就这项延续了7年的双边投资协议原则上完成了谈判。这份投资协定草案，还需要欧盟各国政府和欧洲议会的批准。离真正实施有很长一段路要走。
 
+欧洲议会贸易委员会主席警告：如何解决强迫劳动的问题、将决定这个协议的命运。
 
+德国经济研究所马特斯说，中共在很多领域做过承诺，但几乎没有在实践中改善欧洲企业准入和知识产权的保护。
 
-> Big challenges. Great team. Securing Americans’ freedom. [#Swagger](https://twitter.com/hashtag/Swagger?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/9Fa6eWQEpc](https://t.co/9Fa6eWQEpc)
-> — Secretary Pompeo (@SecPompeo) [January 1, 2021](https://twitter.com/SecPompeo/status/1345089912098480129?ref_src=twsrc%5Etfw)
+白宫安全委员会副顾问博明批评欧盟不顾中共侵犯人权的行为，与其合作，是扯下了一块遮羞布。
 
+习近平高调宣布该协议，只是试图向外界证明自己对欧盟仍然有影响力。
 
+#CCP\_is\_terrorist   #TakeDownTheCCP
 
-
-
-> Big challenges. Great team. Securing Americans’ freedom. [#Swagger](https://twitter.com/hashtag/Swagger?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/D8NHddk87j](https://t.co/D8NHddk87j)
-> — Secretary Pompeo (@SecPompeo) [January 1, 2021](https://twitter.com/SecPompeo/status/1345097467965140993?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> Big challenges. Great team. Securing Americans’ freedom. [#Swagger](https://twitter.com/hashtag/Swagger?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/HilMUf1zai](https://t.co/HilMUf1zai)
-> — Secretary Pompeo (@SecPompeo) [January 1, 2021](https://twitter.com/SecPompeo/status/1345105011588489216?ref_src=twsrc%5Etfw)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
-
-+1
++4

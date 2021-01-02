@@ -1,35 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 预计至少有140名共和党众议员将挑战拜登选举人票
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/708076/)
+## 灭共战略三部曲之以法灭共
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/708868/)
 
-作者：克莉丝汀** **泰勒** **
+撰稿：倪爱我
 
-翻译：康州盘古农场-Mike Li
+审稿：光耀华夏
+![]()![](https://gnews.org/wp-content/uploads/2021/01/CCP_criminal.png)战友黑妹设计
+在中共国，从来就没有过真正的法制。虽然自邓小平领导的改革开放以来，中共国几届政府名义上制定了涵盖社会生活各方面的法律，但在实际生活中，这些法律除了给各级中共官员提供榨取老百姓财富的生财之道外，根本就是中共拿来欺骗中共国人民的幌子。我们都知道在中共国，党比法大是客观存在的事实。中共执政70多年来，党从来都是凌驾于法之上的。所有中共国的法律对中共最高领导人是没有任何约束力的。法律对中共而言只是一个摆设，所以每届中共领导人都有“到…..年，将中国建设成一个法治国家”的口号。当今习政权是“到2039年将中国建设成法治国家”的目标。由此看来，中共国至今还不是法治国家，这不仅是全党而且是全世界都知道的事实。
 
-校对：康州盘古农场-Freeearth
+我们生活在西方民主国家，都有亲历法律面前人人平等的经历和认知。法律既管束社会中普通公民的我们，也同样适用于国家最高领导人及政府的高官们。政府的施政必须合法，其颁布的各项法规也必须受法律制约。虽然在习总加速师的近乎疯狂的折腾下，中美两国关系下以美灭共的政治，经济，外交和军事各种条件已基本形成。但是，我们在过去一年中看到的以法灭共的过程，更是让我们看到了专制与独裁之间的巨大差别。我们不仅看到了这两种体制下国家最高领导人决策过程的截然不同，而且也看到了两种体制下立法，司法和执法三权部门的运作差异巨大。从中更看到美国的三权部门已被中共滲透侵蚀的严重程度，以及川普总统为保护捍卫美国价值的艰辛。
 
-审核：康州盘古农场 –Truemanman
-![]()![](https://gnews.org/wp-content/uploads/2021/01/960x0.jpg)
-据美国有线电视新闻网（CNN）周四下午的报道，在1月6日参众两院召开联席会议，由选举团认证选票时，预计至少有140名共和党议员将对来自存在选举违规行为的州的拜登选举人票提出挑战。
+过去几年里，支持爆料革命追随郭先生的战友耳濡目染以法灭共是怎样在美国日拱一卒地推动进行。对灭共总加速师每每在关键时间节点主动给以法灭共制造或创造条件的情形，都会有如释重负的心情。因为如此配合的杰作原本对爆料革命自身而言几乎是不可能实现的任务。推动美国国会和政府在立法行政上灭共，海外民运的几十年作为表现极其令人诟病。其中隐藏的欺民贼们更是让好不容易翻墙出来的，仍生活在中共国战友和追求自由民主的普通百姓，被带入另外一个中共设立的陷阱。没有郭先生的爆料，我们这些生活在海外几十年的战友，也真是分辨不清中共分布在世界各地的大外宣。郭先生以他熟知的中共内部运作方式，循序渐进地向美国政商各界人士推动立法灭共的进程，让我们看到在对华关系上美国会两党达成一致共识，通过了许多对中共国包括港台的法案。这些法案就像是一根根套在中共脖子上的绳索，会让我们看到以法灭共的结果。
 
-这项工作由众议员莫-布鲁克斯(Mo Brooks)牵头，并获得了参议员乔希-霍利(Josh Hawley)的承诺，支持这项挑战。当选参议员汤米-图伯维尔（Tommy Tuberville）已暗示支持挑战，但他尚未承诺会这样做。
+以法灭共的历史现实意义，可以从二战德国纳粹分子的被追踪清算和法律惩治去回顾。当未来有一天中共被美国政府宣布为非法犯罪组织时，中共党员的处境就会如同当年的德国纳粹分子。虽然爆料革命和郭先生经过几年的努力游说，美国政界要人已经将中国人民与中共区分开了，但是在即将到来的以美国领引的北约联军对中共反人类罪追责的行动中，墙内的普通中共党员一定要认清形势，千万不要让自己成为以法灭共的炮灰或牺牲品。只要你不再替党去迫害那些普通百姓，不再做助纣为虐的坏事，那么你就会是一个识事务的俊杰，成为灭共战略之三部曲之以共灭共的一员。
 
-共和党将在下周产生的第117届国会中拥有211个众议院席位。民主党拥有222个席位。在共和党众议员当选人卢克-莱特洛本周去世后，来自路易斯安那州的一个席位将空缺。来自纽约的一个席位仍未确定，也将空缺。
+（以上纯属个人观点）
 
-**CNN**摘录：
+澳喜文章：[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
 
-两名众议院共和党议员告诉CNN，他们预计至少有140名众议院的共和党同僚将在1月6日国会认证当选总统拜登胜选时投反对票。
-
-…国会计票时，众议议员和参议员都需要发起反对。密苏里州的共和党参议员乔希-霍利周三表示，他将提出反对意见，这将迫使参众两院的立法者就是否接受拜登的胜利结果进行投票。其他参议员—包括新上任的参议员–仍然可以加入这一努力，而参议院多数党领袖米奇-麦康奈尔曾私下敦促共和党人不要这样做……
-
-截至周四下午，通过The Hill公开支持选举人挑战的约三十多名共和党人名单如下：
-
-Rep. Brian Babin (Texas), Rep. Andy Biggs (Ariz.) Rep.-elect Lauren Boebert (Colo.), Rep. Mo Brooks (Ala.), Rep. Ted Budd (N.C.), Rep.-elect Jerry Carl (Ala.), Rep.-elect Madison Cawthorn (N.C.), Rep.-elect Andrew Clyde (Ga.), Rep.-elect Byron Donalds (Fla.), Rep. Jeff Duncan (S.C.), Rep. Matt Gaetz (Fla.), Rep. Louie Gohmert (Texas), Rep.-elect Bob Good (Va.), Rep. Lance Gooden (Texas), Rep. Paul Gosar (Ariz.), Rep. Mark Green (Tenn.), Rep.-elect Diana Harshbarger (Tenn.), Rep.-elect Yvette Herrell (N.M.), Rep. Jody Hice (Ga.), Rep. Clay Higgins (La.), Rep.-elect Ronny Jackson (Texas), Rep. John Joyce (Pa.), Rep. Fred Keller (Pa.), Rep. Mike Kelly (Pa.), Rep. Dan Meuser (Pa.), Rep.-elect Barry Moore (Ala.), Rep. Ralph Norman (S.C.) Rep.-elect Burgess Owens (Utah) Rep. Scott Perry (Pa.) Rep. Guy Reschenthaler (Pa.) Rep. Lloyd Smucker (Pa.) Rep.-elect Marjorie Taylor Greene (Ga.), Rep. GT Thompson (Pa.), Rep. Jefferson Van Drew (N.J.).
-
-更新：四名来自密苏里州的共和党众议员周四晚间宣布支持该选举人挑战。杰森-史密斯议员（MO-08）、比利-朗议员（MO-07）、山姆-格雷夫斯议员（MO-06）和维基-哈茨勒议员（MO-04）。
-
-文章链接：[https://www.thegatewaypundit.com/2020/12/report-least-140-republican-house-members-expected-challenge-biden-electors/](https://www.thegatewaypundit.com/2020/12/report-least-140-republican-house-members-expected-challenge-biden-electors/)
-
+欢迎加入澳喜农场：[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/澳喜图标2.jpg)
 0

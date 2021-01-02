@@ -1,27 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普批参议院不公平，也不聪明
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/707567/)
+## 彭斯到底站在哪边？
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/708285/)
 
-- 编辑：Victor Torres
+多伦多枫叶农场 老熊
 
+校对 上传 小鸥
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Pence.jpg)图片来自 US News & World Report
+美国副总统彭斯的不作为一直在惹怒着正义的人们，众多善良的爱国者仍然不相信彭斯会背叛川普总统，不少固执的人又在认死理，绝对化了这种不可能性……说实话，观察彭斯是善还是恶的时间真的不多了！
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+《美国新闻网》（One America News Network）1月1日早发文【1】，彭斯表态：“选举结果不由我决定”。
 
-**西班牙2021年1月1日电/西喜社—**川普元旦下午发推批评参议院：
+全文如下：
 
-“我们的共和党(占多数的)参议院刚刚错过了废除第230条款的机会，该条款给予大科技公司无限的权力。可悲！！！现在他们想给被中共病毒蹂躏的人600美元，而不是他们急需的2000美元。不公平，也不聪明!”
+彭斯要求联邦法院驳回一宗声称他有权权衡选举人投票的案件。周四，代表彭斯的美国司法部律师要求德克萨斯州联邦法院驳回由德克萨斯州众议员路易·戈默特（Louie Gohmert）提起的诉讼。
 
-川普的声明针对的是参议院今天先后推翻川普对国防授权法案的否决，以及阻止对2000美元刺激支票方案的投票。
+该诉讼挑明，彭斯（身为副总统）有宪法义务，作为主持会议的首席高级官员，监督选举团的投票，进行计票，并宣布获胜者。尽管彭斯反对这项诉讼，他仍然坚定地呼吁美国人民停止偷窃。
 
+彭斯说：“所以我不认为我必须告诉你我们已经做的一切，我们必须要做的一切。” “继续战斗，在我们的选举中继续战斗，佐治亚州的选举还在继续战斗。”
 
+戈默特的律师要求在星期一之前作出裁决，以便有时间提出上诉。
 
-> Our Republican Senate just missed the opportunity to get rid of Section 230, which gives unlimited power to Big Tech companies. Pathetic!!! Now they want to give people ravaged by the China Virus $600, rather than the $2000 which they so desperately need. Not fair, or smart!
-> — Donald J. Trump (@realDonaldTrump) [January 1, 2021](https://twitter.com/realDonaldTrump/status/1345111621430091777?ref_src=twsrc%5Etfw)
+我们继续抱有希望，希望有一位联邦法官能够理解，窃取这次选举的欺诈行为将意味着我们共和国的终结。这场诉讼将确保副总统只能接受合法、正当当选的选举人。（全文完）
 
+感到欣慰的是，彭斯仍然认定（至少是目前），大选存在欺诈舞弊，在“坚定地呼吁美国人民停止偷窃”，不过，当看了林伍德大律师的推，真让人毛骨悚然：
 
+“……当以叛国罪开始逮捕的时候，首席大法官约翰·罗伯茨，副总裁迈克·彭斯，米奇·麦康奈尔参议员都应在首列。”【2】
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+“可惜我们没有收到新年愿望清单，如果我们这样做了，我知道我的清单上有三件事：
 
-0
+1、蓬佩奥国务卿在彭斯之后的2021年1月6日掌管参议院，彭斯被捕了。
+
+2、弗林被任命为副总统。
+
+3、川普总统再干4年！”【3】
+
+“彭斯应立即辞职，除非他公开声明，他将拒绝来自舞弊发生州的选举人。
+
+信仰上帝的人决不会去认证谎言。
+
+每一个谎言都会被揭穿，谎言就是谎言，一直是，永远是。”【4】
+
+参考链接：
+
+【1】https://www.oann.com/vp-pence-election-results-are-not-up-to-me/
+
+【2】https://twitter.com/LLinWood/status/1345065245497323523
+
+【3】[https://twitter.com/LLinWood/status/1345085438936150022](https://twitter.com/LLinWood/status/1345085438936150022)
+
+【4】https://twitter.com/LLinWood/status/1345166749088546818
+
++4
