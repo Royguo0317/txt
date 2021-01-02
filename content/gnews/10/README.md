@@ -1,26 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普:1月16日11点华盛顿见
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/707436/)
+## 林伍德向最高法院提交紧急申请，寻求阻止佐治亚州第二轮选举
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/708052/)
 
-- 编辑：Victor Torres
+作者：伊莎贝尔·范·布鲁根
 
+翻译：康州盘古农场-黎明的光芒
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+校对：康州盘古农场-Antsee-GTV
 
-**西班牙2021年1月1日电/西喜社—**
-
-川普刚刚发推号召:
-“1月6日上午11点将在华盛顿特区举行大型抗议集会。请关注地点详情。制止选举盗窃!”
-
+审核：康州盘古农场 –Truemanman
+![]()![](https://gnews.org/wp-content/uploads/2021/01/图片15.png)
 
 
-> The BIG Protest Rally in Washington, D.C., will take place at 11.00 A.M. on January 6th. Locational details to follow. StopTheSteal!
-> — Donald J. Trump (@realDonaldTrump) [January 1, 2021](https://twitter.com/realDonaldTrump/status/1345095714687377418?ref_src=twsrc%5Etfw)
+在诉讼被州联邦法官驳回几天后，林伍德律师12月30日再次向美国最高法院提交紧急申请，要求阻止下周的佐治亚州参议员第二轮选举。
 
+美国总统唐纳德·川普连任竞选活动的律师林伍德周三提交了请愿书，以寻求法官下令停止2021年1月5日在佐治亚州举行的美国参议院第二轮选举，”直到被调查者同意遵守佐治亚州立法机构规定的选举程序为止”。
 
+佐治亚州州务卿布拉德·拉芬斯伯格、佐治亚州选举委员会副主席丽贝卡·N·沙利文、佐治亚州选举委员会成员戴维·J·沃利、马修·马什本和安·勒被列为被调查者。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+林伍德律师的请愿书还要求法官下令保全与选举有关的材料，并要求选举官员从佐治亚州的每个县都拿出一台在11月3日总统选举中使用的投票机进行法庭取证。
 
-0
+就在伍德本月初在亚特兰大的美国地方法院提起诉讼的几天前，他说州务卿办公室在11月3日选举期间处理缺席和邮寄选票的方式违反了法律。林伍德认为，除其他指控外，该州在核实选票签名的程序上存在缺陷。
+
+12月28日，美国地区法官老蒂莫西·巴顿（Timothy Batten Sr.）拒绝了伍德的强制令请求，称诉讼中的指控是推测性的，同时宣称林伍德缺乏资格。
+
+请愿书称，地方法院 “立即 “驳回了伍德的诉讼，而该诉讼 “有许多事实和专家证人的声明和宣誓书支持”，因此 “是错误的”。
+
+伍德说，他向地方法院提起的诉讼是 “揭露并扭转一场史无前例的窃取2020年大选以及2021年1月5日佐治亚州参议员第二轮选举阴谋的更大努力的一部分”。
+
+请愿书称，林伍德等人 “试图揭露在2020年大选中发生的大规模协同选举舞弊，这种舞弊将不可避免地在参议院第二轮选举中重演”。
+
+拉芬斯伯格在12月28日的一份声明中说，他的办公室“一次次”成功阻挡了与11月3日选举有关的诉讼。
+
+“我们已经成功抵制了满是旨在破坏佐治亚州法治的诉讼，”拉芬斯伯格写道。”众多毫无根据和轻率的诉讼.只是佐治亚州长期以来无处可诉的最新诉讼。”
+
+2021年1月5日，大卫·珀杜(共和党)和凯莉·洛夫勒 (共和党)对阵民主党人乔恩·奥索夫和拉斐尔·沃诺克–参议院的控制权可能岌岌可危。
+
+杰克·菲利普斯对这份报告做出了贡献*。*
+
+原文链接：[https://www.theepochtimes.com/lin-wood-files-emergency-petition-in-supreme-court-seeking-to-block-georgia-runoff\_3639092.html](https://www.theepochtimes.com/lin-wood-files-emergency-petition-in-supreme-court-seeking-to-block-georgia-runoff_3639092.html)
+
++1

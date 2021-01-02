@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 毛太祖诞辰日 光明日报指着腊肉骂包子
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/707528/)
+## 【热点播报】中共病毒加剧贫富分化
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/708138/)
 
-*作者：宁缺；校对/审核：海阔天空；Page：Daoiii*
-[!\[\]()!\[\](https://spark.adobe.com/page/my1ZmyQWNozBn/images/25d4a7bd-a3ba-481c-83b0-fbd61909adf6.png?asset_id=5d2c1717-635f-45b7-bdb8-ca2bbf69c77f&amp;img_etag=%22b93f6c76a3464a4a99816060899264fb%22&amp;size=3824)](https://spark.adobe.com/page/my1ZmyQWNozBn/images/25d4a7bd-a3ba-481c-83b0-fbd61909adf6.png?asset_id=5d2c1717-635f-45b7-bdb8-ca2bbf69c77f&amp;img_etag=%22b93f6c76a3464a4a99816060899264fb%22&amp;size=1024)
-12月26日是中共毛太祖诞辰之日，在近几年习总加速师全面极左倒退的大氛围下，各地掀起新一波的祭拜高潮。就在这个敏感的时刻，上海光明日报社在自己的微博帐号上冒专制天下之大不韪，晒出了一组腊肉的图片。暗讽之甚，意味颇为深长。
+香草山写作组 Wilson
 
-光明日报何许媒体？曾经其层级之高，风头之甚，不为一般人所知。尤记得1978年那场真理讨论，邓贼玩指鹿为马的把戏清除异己，通过假借真理讨论强逼各方诸侯表态，划分敌我。那篇著名的《实践是检验真理的唯一标准》一文就出自光明日报社。经此一役，光明日报一跃成为邓派的舆论风向标，还曾经一度成为中共中央领导和主办的报纸。
+据布雷巴新闻网2020年12月31日报道，在全球经济遭受中共病毒严重破坏，普通人陷入困境的时侯，全球6000多名亿万富翁的总财富增长到10.2万亿美元，这些富豪仅仅在2020年4月至7月的疫情高峰期，财富就增加了27.5%。
 
-当今圣上习一尊以毛太祖传人自居，执政手段风格处处模仿领袖的风范。经过近十年愚蠢疯狂的作业，终于把中共国的经济民生加速到了悬崖边缘。光明日报在毛泽东诞辰日晒腊肉，明眼人一看就知道醉翁之意不在酒，这是指着腊肉骂包子呢。光明日报作为中共中央机关报，由中共中央宣传部直接领导的官方新闻媒体敢如此胆大包天，充分说明了习一尊已经不够尊，丧失了对中共权力核心的掌控。内部老诸侯开始敢公开不听使唤了，估计正摩拳擦掌等着皇帝驾鹤西归呢。中共政权分崩离析已经正当时。
+2020年，美国614位亿万富翁的集体净资产增加了9310亿美元。其中，世界首富杰夫·贝佐斯的财富增长了近80%，从2020年3月的1130亿美元增长到2020年10月的2031亿美元。Facebook的马克·扎克伯格今年的净财富增长超过85%。沃尔玛今年的利润比去年增加了近45%。
 
-【注：文章仅代表作者观点】
+同时，超过3600万美国人因疫情失业，超过10万家美国小企业因病毒而永久关闭。
 
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/my1ZmyQWNozBn/)
+短评:当前由于中共病毒发生强变异，对经济的破坏将愈发严重，收入分配差距扩大导致的贫富两极分化相应加速，极容易引起社会阶层的对立从而导致社会动荡。
 
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+发稿：村北
 
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-[!\[\]()!\[\](https://spark.adobe.com/page/my1ZmyQWNozBn/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/my1ZmyQWNozBn/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

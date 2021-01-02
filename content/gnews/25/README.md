@@ -1,27 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【Raiklin律师推文0101】习总加速师被封篮球教练
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/707073/)
+## 抖音“利用12岁儿童谋取利益”诉讼临近
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/707404/)
 
-2021年元旦，Ivan Raiklin律师在推文中对美国内布拉斯加州初级议员Ben Sasse 表示不满，他说：
+```
+整理：阿娜
+校对/发稿人: Ting Guo
+```
 
-对于那些想知道为什么@BenSasse 有如此的行为方式……看看他推特封面上篮球队右边的教练。
 
-#1月6日 将是他决定的日子。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/bigOriginal.jpg) 图片来源: TT
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/01/for-those-that-wonder.png)
+2020年12月31号根据美国&lt;&lt;国家脉动&gt;&gt;报道:“一名12岁女孩赢得了匿名起诉抖音的权利，原因是指控抖音涉嫌在英国收集未成年人的数据牟利。”
 
-[https://twitter.com/Raiklin/status/1344934900290498561?s=20](https://twitter.com/Raiklin/status/1344934900290498561?s=20)
-这位Ben Sasse议员今天在推文和脸书上表示，将不会参加推翻大选结果（目前主流媒体公布的是乔拜登当选）的项目。他也曾发声明诋毁德州诉讼舞弊案。看来这又是一位假共和党人、真共产党支持者，他在自己的推特个人账号上放这样的图片作为封面，显然是总加速师的粉丝，可是这幅图怎么越看越像低级红高级黑啊？没想到加速师已经被封为篮球教练，成了他眼中的篮球“呕”像，球衣号是二十，这不就是十倍的“二”吗？
+报道中说到抖音与中共有着广泛的联系，一直在非法收集有关儿童的个人数据。原告的律师说：“抖音这样做的目的是从企业客户那里获得广告收入。”
 
-要么就是大家都被这位议员“二”了，难道他是借着讽刺宣传画来标榜自己是反共、反社会主义、反自由派人士，实则暗通款曲，支持拜登、为中共所利用？我们打开他的团队网页，上边清楚写着自己是保守主义领导，下边是捐款选项……
+律师继续说到：“有争议的个人数据被用在一种算法中，该算法可以分析用户的偏好，以定制呈现给他们的内容以吸引并引起他们的注意。这反过来又鼓励使用该应用程序，尽管该应用程序的服务条款中指出该应用程序不适合13岁以下的用户使用，但很明显，有很多用户都在该年龄以下。”
 
-但是不论如何，议员先生邪恶也好、糊涂也罢，总加速师又火了。
+报道称针对这家北京公司的匿名女孩的诉讼得到了英国儿童事务专员安妮·朗菲尔德的支持。
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/01/stand-with-nebraska-senator.png)
+***参考文章链接：[https://thenationalpulse.com/breaking/tik-tok-lawsuit/](https://thenationalpulse.com/breaking/tik-tok-lawsuit/)***
 
-[https://teamsasse.com](https://teamsasse.com)
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21093249/image4-3.jpg)[**https://discord.gg/77fCxw5mFv**](https://discord.gg/77fCxw5mFv)
+[**https://**](https://https//discord.gg/77fCxw5mFv)[**gab.com/himalaya\_italy**](https://gab.com/himalaya_italy)
 
 0

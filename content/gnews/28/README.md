@@ -1,87 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 彭斯副总统的选择？
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/707048/)
+## 数据显示，封城是人类最大失败之一
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/707718/)
 
-作者：康州盘古农场-柠檬
+*加拿大多伦多枫叶农场 阿黎*
 
-审核：康州盘古农场-Antsee-GTV
-![pence]()![pence](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-01-at-23.45.44.png)
-近日德州众议员戈默特和11位亚利桑那州议员因彭斯副总统拒绝在推翻此前拜登胜选的计划上签字，将彭斯副总统告上法庭。
+*校对、上传 文怡*
 
-林·伍德大律师2天内连发几推，针对彭斯副总统。
+据《后千禧年报》（The Post Millenial ）2020年12月31日报道，封城被认为是 “使感染曲线平坦”，以缓解涌入医院的病人，并挽救生命，但证据指向完全相反的结果。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1-1.jpg)
+上表是按人均死亡人数降序排列的国家。仅在前20名的名单中，不同国家采用了完全不同的方法来应对病毒，但得到的结果还是大同小异。
 
-林·伍德大律师在推特发文说，迈克·彭斯在2020年最后一天宣布不再打算从事政治事业！
+最近Spiked上的一篇文章明确指出，从人均死亡数来看，封城的严重程度和持续时间对挽救生命没有任何积极作用。
 
-在这则推文中，大律师还提到披着羊皮的狼的人对2024年有错误的想法。
+据称在遏制病毒方面做得 “可怕 “的美国，直到榜单上的第14位才出现，在统计上落后于或者说是少于许多实行封城的西欧国家。
 
-林·伍德大律师向来有话直说，不绕弯子。他还写道“迈克，无论如何，你都不适合当总统。”
+前20名中没有瑞典。瑞典因为从来没有严格的封城而受到各大媒体的抨击，甚至被本国的医学专家批评。不过，截至本文发布时，瑞典在榜单上的排名一直在稳步下降，目前排在第26位，夹在智利和哥伦比亚之间，这两个国家都有严重和长期的封城。
 
-为什么林·伍德大律师在这个时候这么说副总统彭斯？
+事实上，拉美地区对中共病毒颁布最严格措施的两个国家分别是阿根廷（目前保持着世界上最长隔离时间的记录）和秘鲁。阿根廷人均死亡人数位居第21位，比瑞典高几位。尽管所有主要城市的封城都已经军事化，秘鲁仍然排在第7位。直至目前，在拉美的大部分地区，即使是在无人的街道上，仍须强制戴口罩，而且连续几个月都是这样。就人均死亡数而言，拉美是世界上受灾最严重的地区。
 
-难道林·伍德大律师手中有什么证据或者有什么充分理由这么说彭斯副总统吗？
+另一方面，封锁给世界人民造成的经济、社会和心理损害是无可争议的。预计今年几乎每个国家的经济都会出现负增长，很少有例外。这些例外往往发生在言论管制的国家，我们有充分的理由不相信这些国家的官方数据。
 
-从这则推文，再看林·伍德大律师两天连发针对彭斯副总统的另几条推文。林·伍德大律师在推文中直言，自己不信任彭斯副总统，说他是披着羊皮的狼。大律师说，彭斯他是披着羊皮的狼。彭斯只专注他自己和2024年，而不支持川普总统。
+学校停课影响了孩子们的学习和社交，而且还在继续。世界各地的人们在等待其他任何年份都能实施的外科手术时陆续绝望地死亡。精神疾病患病率和自杀率也在各国上升。在封城最长的阿根廷，情况更糟。
 
-有消息说，新年第一天回到白宫的川普总统和彭斯副总统他们都在白宫。
+也许我们不该 “把事情交给专家去做”，而应考虑到 “专家 “仅是他们所在领域的权威，而不一定是评估咨询意见、专业知识、政策和执行集于一身的权威。
 
-川普总统和副总统针对1月6日选举人票的具体讨论吗？
+**评：**
 
-彭斯副总统会支持川普总统吗？彭斯副总统在1月6日会有什么具体表现呢？
+笔者严重同意原文作者的观点，即封城未必减少中共病毒死亡率，它引发的经济崩溃和其他次生灾害己经远远超过疫情本身造成的灾难，这正是中共制毒投毒的目的所在。中共病毒-封城-经济崩溃和各种次生灾难-大重置是一条“完美”的逻辑链，是全球深层政府预谋的一系列计划和实施后的结果。笔者认为中共是全球深层政府的一部分和雇佣军。他们代理了全球深层政府实施投毒计划。
 
-为什么这个时候林·伍德大律师两次提到彭斯副总统是披着羊皮的狼呢？
+推翻、消灭中共，是打击世界邪恶势力的关键！
 
-在老布什总统的葬礼上，为什么彭斯的妻子收到了那个信封？人们很关心信封里的纸条上写的是什么？
+*[原文链接](https://thepostmillennial.com/data-shows-lockdowns-to-be-one-of-humanitys-biggest-failures)*
 
-在这个关乎大选决胜的关键时刻，彭斯副总统为什么宣布不再打算从事政治？彭斯有什么难言之隐吗？这个不能说出的理由比美国大选还重要吗？这个时候宣布不再从事政治对他自己是保全的方法吗？
-
-华盛顿沼泽里的大鳄鱼会浮出水面吗？
-
-1月6日国会参议院将会发生什么？兼任参议院议长的彭斯副总统会有怎样的表现呢？
-
-为世人瞩目的彭斯副总统，该何去何从？
-
-看来1月6日是给彭斯副总统的一个艰难的选择，也是给美国未来的一个选择。
-
-林·伍德大律师推文链接：
-
-【1】
-
-
-
-> Wow! Mike Pence [@VP](https://twitter.com/VP?ref_src=twsrc%5Etfw) [@Mike\_Pence](https://twitter.com/Mike_Pence?ref_src=twsrc%5Etfw) announces on New Year’s Eve that he no longer plans to pursue career in politics!
-> 
-> Guess all those who said he is an egomaniac wolf in sheep’s clothing focused on a run in 2024 were wrong.
-> 
-> Good call, Mike. You are not fit to be President anyway. [https://t.co/dQgeTXUotW](https://t.co/dQgeTXUotW)
-> — Lin Wood (@LLinWood) [January 1, 2021](https://twitter.com/LLinWood/status/1344869153266655232?ref_src=twsrc%5Etfw)
-
-
-
-【2】
-
-
-
-> Tough way to start day but TRUTH is TRUTH.
-> 
-> I do NOT trust VP Mike Pence [@VP](https://twitter.com/VP?ref_src=twsrc%5Etfw) [@Mike\_Pence](https://twitter.com/Mike_Pence?ref_src=twsrc%5Etfw). He is wolf in sheep’s clothing.
-> 
-> Pence only focused on himself & 2024. He does not support [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw).
-> 
-> Let Pence hear your voices & read your words. Warn him.[https://t.co/icyqrWgwpI](https://t.co/icyqrWgwpI)
-> — Lin Wood (@LLinWood) [December 30, 2020](https://twitter.com/LLinWood/status/1344324448875376640?ref_src=twsrc%5Etfw)
-
-
-
-延伸阅读：
-
-
-
-> [Is This Why Mike Pence Got One Of Those Envelopes At George H.W. Bush’s Funeral?](https://welovetrump.com/2020/08/03/is-this-why-mike-pence-got-one-of-those-envelopes-at-george-h-w-bushs-funeral/)
-
-
-
-【以上仅代表作者观点】
-
-0
++3

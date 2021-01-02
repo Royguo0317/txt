@@ -1,30 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【看七哥视频】爆料革命尚未成功，战友们仍需努力！
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/706739/)
+## 蓬佩奥：美国政府各部门正形成合力确保美国国家安全
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/707554/)
 
-```
-作者：儒为
-校对/发稿人: Ting Guo
-```
+- 编辑：Victor Torres
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Eqm0Om4UwAEXlfX-e1609510727993.jpg)图片来源 郭先生盖特截图
-七哥在视频中对战友们的新年寄语：希望中国人得到解放，希望人类走向一个没有共产党的新时代。让中国人不再像猪狗一样、像奴隶一样，被洗脑洗的像僵尸一样地活着。希望我们“爆料革命”的战友们能团结在一起，让我们的新中国联邦在中国大地、在世界大地上得到认可，团结更多的同胞和勇士，让我们以“爆料革命”这个手段，实现新中国联邦的目标。解放十四亿中国同胞，让世界和平，查出冠状病毒真相，尽快研究出解决的办法——解药，我觉得是很难的，阻止共产党再释放更多的新型病毒，每一个新病毒都可能杀害我们战友的家人和你自己的。
 
-爆料革命、新中国联邦、七哥发起的这场灭共运动坚定的走过了2021年这个悲惨的病毒肆虐的庚子年，其中多少心酸、无奈、痛苦、背叛、兴奋、感动…..无法言表，取得的成绩世界上都有目共睹。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-2021年辛丑年到了，一如往年，同学之间、朋友之间、亲人之间……新年彼此送出祝福是我们中国人的传统，“新年快乐”、“阖家欢乐”、“笑口常开”… …这些祝福语今年尤感沉重，很多想说而不能说的话、很多想做而不能做的事情，都要埋在心底。
+**西班牙2021年1月1日电/西喜社—**美国国务卿蓬佩奥周五下午连发五个推，分别搭配国家安全会议、财政部长姆努卿、前司法部长巴尔、中央情报局局长哈斯佩尔、国家安全顾问奥布莱恩为主角的五幅照片，他宣称：
 
-七哥引领的这场爆料革命，三年以来大家一路跟随，见证一个个奇迹、一个个从不可能变成可能。2017年5月份，七哥提出“郭七条”，即“四反三不反”：反以黑治国、以警治国、以贪反贪、以黑反贪；不反国家、不反民族、不反习主席（这个大家都懂的）；2018年11月20日，七哥在美国纽约召开的 “海航集团前董事长王健法国之死” 新闻发布会上提出：以法灭共、以美灭共、以共灭共的灭共战略；七哥提出我们新中国联邦人要以“真、善、狠”作为我们的行为准则，我们追求的是“正道主义”。2020年邪恶的共产党打开了了他们的潘多拉魔盒，对全世界发动了“超限战”，用“蓝金黄”腐蚀所有那些他们能够腐蚀的集团和个人；用“生化武器-新冠病毒”残害全世界的人民，搞乱、搞弱、搞死“民主灯塔-美国”，从而达到他们统治全世界的目的。
+“巨大的挑战。伟大的团队。确保美国人的自由。霸气”
 
-上帝永远是站在正义的一方，爆料革命、新中国联邦是选择同上帝站在一起的。灭共的第二道大门已经打开了，第三道大门打开已经不远了，这个时刻也是最危险的。共产党必将做出死前最疯狂的挣扎，什么邪恶的事情都可能发生。保护好自己、保护好家人、保护好战友。
+蓬佩奥的推文似乎宣告了美国政府各部门间正形成一股合力，共同保卫国家安全，打击国家敌人。
 
-2021年是决战年、胜利年、灭共年，继续唤醒我14亿华人同胞年、唤醒世界人民年… …战友们一定要时刻提醒自己，“爆料革命尚未成功，战友们仍需努力”。
 
-**文章仅代表战友个人观点**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21093249/image4-3.jpg)*[**https://discord.gg/77fCxw5mFv**](https://discord.gg/77fCxw5mFv)
-[**https://**](https://https//discord.gg/77fCxw5mFv)[**gab.com/himalaya\_italy**](https://gab.com/himalaya_italy)*
+> Big challenges. Great team. Securing Americans’ freedom. [#Swagger](https://twitter.com/hashtag/Swagger?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/1L3peCiUrE](https://t.co/1L3peCiUrE)
+> — Secretary Pompeo (@SecPompeo) [January 1, 2021](https://twitter.com/SecPompeo/status/1345074813296119813?ref_src=twsrc%5Etfw)
 
-+3
+
+
+
+
+> Big challenges. Great team. Securing Americans’ freedom. [#Swagger](https://twitter.com/hashtag/Swagger?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/2ZWbcnuhpP](https://t.co/2ZWbcnuhpP)
+> — Secretary Pompeo (@SecPompeo) [January 1, 2021](https://twitter.com/SecPompeo/status/1345082368223309825?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Big challenges. Great team. Securing Americans’ freedom. [#Swagger](https://twitter.com/hashtag/Swagger?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/9Fa6eWQEpc](https://t.co/9Fa6eWQEpc)
+> — Secretary Pompeo (@SecPompeo) [January 1, 2021](https://twitter.com/SecPompeo/status/1345089912098480129?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Big challenges. Great team. Securing Americans’ freedom. [#Swagger](https://twitter.com/hashtag/Swagger?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/D8NHddk87j](https://t.co/D8NHddk87j)
+> — Secretary Pompeo (@SecPompeo) [January 1, 2021](https://twitter.com/SecPompeo/status/1345097467965140993?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Big challenges. Great team. Securing Americans’ freedom. [#Swagger](https://twitter.com/hashtag/Swagger?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/HilMUf1zai](https://t.co/HilMUf1zai)
+> — Secretary Pompeo (@SecPompeo) [January 1, 2021](https://twitter.com/SecPompeo/status/1345105011588489216?ref_src=twsrc%5Etfw)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+
++1

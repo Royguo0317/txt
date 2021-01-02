@@ -1,93 +1,109 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## ㊙️｜国际歌曲组 2021年新年第一首红歌改编作品发布 —《北京的金山上》
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/706976/)
+## 新数据证实大瘟疫起源地武汉市至少50万人感染中共病毒
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/707646/)
 
-**音乐制作： **秘密翻译组 国际歌曲组
-G-Translators| Music
+新闻来源：Daily Mail《每日邮报》； 作者：CHARLOTTE MITCHELL （夏洛特•米切尔）； 发布时间：2020年12月29日
 
-## **歌词：**
+翻译/简评：Linda B；校对/审核：TCC；Page：小雨
 
-北京的金山上出了个大流氓
-A big rogue rose from the Golden Mountain in Beijing
+[!\[\]()!\[\](https://spark.adobe.com/page/0acodvlNFqu5A/images/7c42fba4-f6e1-467f-9ba2-023634193d1c.jpg?asset_id=d56a2e18-9f4f-4033-84c5-49cbafc3791a&amp;img_etag=%22199e2ce72c3bae966e61c908ec145420%22&amp;size=1024)](https://spark.adobe.com/page/0acodvlNFqu5A/images/7c42fba4-f6e1-467f-9ba2-023634193d1c.jpg?asset_id=d56a2e18-9f4f-4033-84c5-49cbafc3791a&amp;img_etag=%22199e2ce72c3bae966e61c908ec145420%22&amp;size=1024)
 
-他们呀就是那中国共产党
-That is the Chinese Communist Party
+**简评：**
 
-对外扩张
-External expansion
+一个亲手进行了病毒的制造，传播，至今已经导致了全球范围内超过180万人死亡的组织，竟然在武汉举办了一个“人民至上，生命至上”的展览。这是中共又一个“杀人无数，巩固其政权“展览。只是中共国的百姓看不懂这一点。中共这个极权组织最擅长的是愚民教育和虚假宣传。新冠病毒在大连的爆发也被中共内部低调的处理了，我们不知道真实的情况如何，只看到新闻上中共开动了宣传机器，大力鼓吹政府如何采取了紧急防控措施。
 
-对内疯狂
-Internal oppression
+如果中共不在实验室对病毒进行了人工改造，增强其人传人的特性，今天的世界会面临这样的人道灾难吗？
 
-把我们百姓的血喝光
-Suck up all our blood
+英国的每日邮报对中共在实际感染人数据造假上面进行了报道。这是真实的数据吗? 何时西方才会明白病毒来自中共的实验室，对中共的邪恶真正了解？
 
-我们全部圈在社会主义万恶的高墙
-Trap us behind an evil socialism wall
+**原文翻译：**
 
-哎take down
-Hey, take down
+**中共一项新的研究表明，武汉将近五十万人（是原来数字的十倍）可能感染了新冠病毒**
 
-北京的金山上邪光照四方
-Evilness spreading from the Golden Mountain in Beijing in all directions
+•** 中国疾病预防控制中心周一发布了一项研究**
 
-共产党就是那罪恶的黑帮
-CCP is the criminal gang
+**• 研究寻找了包括武汉在内的中共国几个城市的人群血液样本中的抗体患病率**
 
-多么无耻多么疯狂
-Brazenness and madness to the max
+• **武汉市有抗体的居民人数表明冠状病毒在城市中的流行程度远高于官方数字报告**
 
-把我们百姓的钱儿抢光
-Taking away all our wealth
+作者：夏洛特•米切尔 发布时间：2020年12月29日，17：02
 
-我们迈步走在现代奴隶痛苦的大道上
-We are suffering on a road to modern slavery
+中共国疾病预防控制中心（CDC）的一项研究表明，将近五十万武汉居民感染了冠状病毒，几乎是该市官方确诊病例的十倍。
 
-哎 它最狂
-Hey, it’s the maddest
+该研究旨在通过测试来自不同城市血清样本中冠状病毒抗体来估计以前的感染规模。
 
-北京的金山上搞生化病毒放
-Bioweapon virus unleashed from the Golden Mountain in Beijing
+在来自武汉的人群样本中有抗体的人数，高于根据官方按确诊新冠病毒人数做出的预期人数。武汉市是大瘟疫流行的起源中心地带。
 
-共产党想做那世界的领头羊
-CCP wants to lead the world
+美国有线电视新闻网（CNN）报道，该研究集中于武汉以及其他城市的34,000人，以估计感染率。
 
-各国遭殃
-All countries are suffering
+该研究包括北京和上海，以及湖北，广东，江苏，四川和辽宁等省的城市。
 
-人类死亡
-People are dying
+在武汉市约有1100万人的居民中，研究人员发现抗体的患病率为4.43％。
 
-拿全球人民的命来陪葬
-Lives of mankind lost due to the CCP
+[!\[\]()!\[\](https://spark.adobe.com/page/0acodvlNFqu5A/images/348905ab-f9a1-40f5-863f-e9272c2f06ae.jpg?asset_id=d8e062c6-4752-4c72-b75c-98ba935f8ed8&amp;img_etag=%22955c36540af48eea7e160ff86391fb8c%22&amp;size=2560)](https://spark.adobe.com/page/0acodvlNFqu5A/images/348905ab-f9a1-40f5-863f-e9272c2f06ae.jpg?asset_id=d8e062c6-4752-4c72-b75c-98ba935f8ed8&amp;img_etag=%22955c36540af48eea7e160ff86391fb8c%22&amp;size=1024)*图为：12月29日，一名妇女走在武汉的一阵雪雨中*
 
-爆料革命开启揭发CCP的新篇章
-The Whistleblowers’ Movement unveils the truth of the CCP
+据美国有线电视新闻网报道，截至上周日（27日），该市市卫生委员会共报告了50,354例确诊病例。
 
-哎 讲真相
-Hey, truth revelation
+中共疾病预防控制中心说，这项研究是在中共“遏制了第一波新冠病毒Covid-19流行”之后一个月进行的，该研究表明武汉居民的患病率要高得多。
 
-北京的金山上彻底失去光芒
-Complete loss of light on the Golden Mountain in Beijing
+在武汉所在的湖北省其他城市中，只有0.44％的被研究者患有冠状病毒抗体
 
-他们已成为那末日的政党
-The CCP regime is already collapsing
+在湖北省外患者数字继续下降，超过12,000个研究的人群中，只有两个人发现了抗体。
 
-蓝色信仰
-Faith in blue
+中共疾控中心周一在社交媒体上发布了这项研究的结果。 尚不清楚该研究是否已在学术期刊上发表。
 
-迎风飘扬
-Spreading through the wind
+美国有线电视新闻网报道说，(中共国)外交关系委员会全球卫生高级研究员黄彦中表示，该研究突出了在疫情爆发期间未充分报告感染的情况。
 
-在世界灭共呀掀巨浪
-Driving a huge global wave to take down the CCP
+这部分是由于当时没有将无症状病例纳入官方统计范围，以及无法有力对付这种新病毒的巨大破坏。
 
-全球迈步走在消灭CCP的大道上
-The whole world is crusading to eliminate the CCP
+去年1月和2月，武汉的医院挤满了发烧的病人，不堪重担的工作人员缺乏资源来有效的诊断和治疗大量的病人。
 
-嘿take down
-Hey, take down
+[!\[\]()!\[\](https://spark.adobe.com/page/0acodvlNFqu5A/images/c2219339-c608-4900-860b-c4f4e627adea.jpg?asset_id=78647b14-6997-4ecb-be11-d1e28c818039&amp;img_etag=%22e289135056e29c7d6178b359e3e3e81d%22&amp;size=2560)](https://spark.adobe.com/page/0acodvlNFqu5A/images/c2219339-c608-4900-860b-c4f4e627adea.jpg?asset_id=78647b14-6997-4ecb-be11-d1e28c818039&amp;img_etag=%22e289135056e29c7d6178b359e3e3e81d%22&amp;size=1024)*据美国有线电视新闻网报道，该市市卫生委员会一共报告了50,354例确诊病例。图为：武汉市华南海鲜市场的一名购物的男子，一些早期的冠状病毒的病例发现于该市场。虽然据信导致这种疾病的“野生市场”部分已经关闭，但二楼的眼镜店仍然开放*
 
-+2
+[!\[\]()!\[\](https://spark.adobe.com/page/0acodvlNFqu5A/images/a52d19fc-cb73-4485-ac90-617b0f267103.jpg?asset_id=b91052d2-34f8-4bb9-af3c-f6c381088c71&amp;img_etag=%22c436bfa51e0be2c9b77a6c8946526f48%22&amp;size=2560)](https://spark.adobe.com/page/0acodvlNFqu5A/images/a52d19fc-cb73-4485-ac90-617b0f267103.jpg?asset_id=b91052d2-34f8-4bb9-af3c-f6c381088c71&amp;img_etag=%22c436bfa51e0be2c9b77a6c8946526f48%22&amp;size=1024)在这个曾经是大流行的中心地有1100万人口的城市中，人们的生活正在逐渐恢复正常。图为：一个人在武汉文化博览中心（该展览中心曾经是武汉的一家临时医院）参观了一个名为“人民至上，生命至上” 的展览，展示了中共对疫情的反应。
+
+许多人被告知要在家里自我隔离。在很多情况下，导致了其他家庭成员被感染，甚至死于家中而没有包括在死亡人数内。
+
+黄告诉美国有线电视新闻网，中共其他城市的感染率非常低，表明中共遏制感染的努力“确实是迅速而有效的”。
+
+1月23日，武汉与外界完全隔绝，所有进出城市的交通都被暂停。
+
+对这座城市数以百万计的居民实行了残酷的76天封锁，他们被限制在自己的家中，甚至无法出去购买必需品。
+
+尽管武汉的封锁行动十分严酷，但中共政府一直认为这做法使中共能够得以控制疫情并比大多数其他国家更快地恢复正常。
+
+在周一发布抗体研究结果时，中共疾病预防控制中心也赞扬了遏制措施。
+
+该机构说，“研究结果表明，我国人口的感染率很低。 这表明中共已经成功控制了以武汉为主要战场的大瘟疫，并有效控制了这种瘟疫的大规模传播。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/0acodvlNFqu5A/images/456b9412-f0a7-4afc-bdee-0bb103ed1f16.jpg?asset_id=a25bed5c-7298-444b-a328-3fc98c66b479&amp;img_etag=%22d85e4737f26bd4bb071632d4dbe3ab49%22&amp;size=2560)](https://spark.adobe.com/page/0acodvlNFqu5A/images/456b9412-f0a7-4afc-bdee-0bb103ed1f16.jpg?asset_id=a25bed5c-7298-444b-a328-3fc98c66b479&amp;img_etag=%22d85e4737f26bd4bb071632d4dbe3ab49%22&amp;size=1024)*中共政府对武汉市长达76天的严酷封锁表示赞赏，因为它成功地遏制了该病毒，并使该国比大多数其他国家更早恢复正常。 图为：12月28日武汉的购物者*
+
+尽管关于低报的问题并非中共独有，并且在世界其他地区的抗体研究也表明，冠状病毒的流行程度远高于官方数据，但中共对瘟疫的最初应对仍面临着批评。
+
+据美国有线电视新闻网报道，官员们被指控在冠状病毒数据方面缺乏透明度，官员向公众发布了更多乐观数据，而将负面数据保留在内部。
+
+举报人向广播公司提供的文件显示，在向公众披露这些数字之前，卫生官员已经知道冠状病毒的“临床诊断病例”。
+
+一旦官员于2月12日开始将这些病例纳入经证实感染人数的每日统计中，则该数字比前一天增加了9倍。
+
+文件还显示，2月10日和3月7日，官员们公开宣布的感染案例要比内部记录的少。
+
+周一，一名记录武汉瘟疫爆发严重程度的前律师被判入狱四年。
+
+对张展“寻衅滋事”的判决，被国际社会广泛批评。独立记者李泽华和方斌也因报道大瘟疫而被拘留。
+
+[原文链接](https://www.dailymail.co.uk/news/article-9096187/Nearly-half-million-people-Covid-19-Wuhan-study-suggests.html)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/0acodvlNFqu5A/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/0acodvlNFqu5A/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/0acodvlNFqu5A/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
++1

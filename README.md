@@ -14,144 +14,144 @@
 
 ---
 
-### [麦康奈尔再次阻止参议院对川普2,000美元刺激支票方案的投票](/content/gnews/1/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [《路德时评》重磅采访闫博士谈一年心路历程，解读川普政府系列灭共行动](/content/gnews/2/README.md)
+### [《路德时评》爆料彭斯暂时不会辞职，江习矛盾激化，及解读川普总统再发邪共视频](/content/gnews/1/README.md)
  ` GM141`
 
-### [毛太祖诞辰日 光明日报指着腊肉骂包子](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [根枯枝朽，民困国残](/content/gnews/4/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [继四级戒备后，英国抗疫将升级以应对病毒新变种](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【川普总统推文0101】106盛大集会](/content/gnews/6/README.md)
- ` 喜馬拉雅的文雅 Himalaya Wenya`
-
-### [国会推翻川普对国防授权法案的否决](/content/gnews/7/README.md)
+### [麦康奈尔再次阻止参议院对川普2,000美元刺激支票方案的投票](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【蓬佩奥推文0101】新年决心是外交政策](/content/gnews/8/README.md)
- ` 喜馬拉雅的文雅 Himalaya Wenya`
-
-### [爱立信威胁瑞典政府 欲与华为、中兴共进退](/content/gnews/9/README.md)
- ` gnewscanada`
-
-### [川普:1月16日11点华盛顿见](/content/gnews/10/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [3年58000人 被美国遣返的非法移民进入加拿大](/content/gnews/11/README.md)
- ` gnewscanada`
-
-### [【林伍德律师推文0101】用军队封锁叛国者](/content/gnews/12/README.md)
- ` 喜馬拉雅的文雅 Himalaya Wenya`
-
-### [二零二一新年寄语](/content/gnews/13/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [【生化危机】10: 疫情前的美国](/content/gnews/14/README.md)
+### [【热点播报】中共病毒加剧贫富分化](/content/gnews/3/README.md)
  ` 纽约香草山农场`
 
-### [英雄科学家闫丽梦博士WARROOM预警——中共正在使用更多生物武器病毒奴役全球](/content/gnews/15/README.md)
- ` GM101`
+### [视频今年我不想说新年快乐。灭共！](/content/gnews/4/README.md)
+ ` Isaiah4031`
 
-### [【生化危机】9: 武汉P4实验室](/content/gnews/16/README.md)
- ` 纽约香草山农场`
+### [考研人数再创新高：面子工程的需要还是社会机遇的减少？](/content/gnews/5/README.md)
+ ` Himalaya Australia`
 
-### [【林伍德律师推文0101】彭斯和大法官是叛国行为](/content/gnews/17/README.md)
- ` 喜馬拉雅的文雅 Himalaya Wenya`
+### [中共集权之新冠可控可防生化超限战](/content/gnews/6/README.md)
+ ` G-NEWS TAIWAN`
 
-### [【美国国务院推文0101 】防止奴役和人口贩运、打击全国盯梢行为](/content/gnews/18/README.md)
- ` 喜馬拉雅的文雅 Himalaya Wenya`
+### [回顾2020年发生的一系列大事](/content/gnews/7/README.md)
+ ` JPHIMALAYA`
 
-### [中共没收病毒样本，阻止对新冠病毒溯源](/content/gnews/19/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [诚实，何罪之有？&#8211;致敬张展女士](/content/gnews/20/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [War Room 623 总结](/content/gnews/21/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [【香港专题】 ICAC 廉政公署：一杯变了味的咖啡 （三）律己从宽 廉署变质](/content/gnews/22/README.md)
- ` GM42`
-
-### [War Room 624 总结](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共印发《现役军官管理暂行条例》及相关配套法规，从立法层面整军备战](/content/gnews/24/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [【Raiklin律师推文0101】习总加速师被封篮球教练](/content/gnews/25/README.md)
- ` 喜馬拉雅的文雅 Himalaya Wenya`
-
-### [身边人盼习近平速死 大人物欲活捉审判之](/content/gnews/26/README.md)
- ` 首尔喜韩农场`
-
-### [报告：奥巴马政府明知故犯 变相资助恐怖组织](/content/gnews/27/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [彭斯副总统的选择？](/content/gnews/28/README.md)
+### [预计至少有140名共和党众议员将挑战拜登选举人票](/content/gnews/8/README.md)
  ` 康州盘古喜马拉雅农场`
 
-### [中共军方单兵数字化系统竟暗藏远程遥控引爆装置](/content/gnews/29/README.md)
- ` 快慢机`
+### [【战友观点】撒谎和辟谣，以骗治国的两面](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [【香港专题】 ICAC 廉政公署 &#8211; 一杯变了味的咖啡 （二）廉政公署三个火车头：执行处、防止贪污处、社区关系处](/content/gnews/30/README.md)
- ` GM42`
+### [林伍德向最高法院提交紧急申请，寻求阻止佐治亚州第二轮选举](/content/gnews/10/README.md)
+ ` 康州盘古喜马拉雅农场`
 
-### [预计1月6日有140多名美国众议员将反对选举结果，参议院仅乔希·霍利确认参与](/content/gnews/31/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [【逻辑】](/content/gnews/11/README.md)
+ ` 喜马拉雅 日本京都富士会`
 
-### [《路德时评》解读纳瓦罗1月份备忘录揭示重大信息，及揭露中共自毁装置的荒唐](/content/gnews/32/README.md)
- ` GM141`
+### [【林伍德律师推文0101】彭斯、大法官应该立即辞职](/content/gnews/12/README.md)
+ ` 喜馬拉雅的文雅 Himalaya Wenya`
 
-### [视频㊙️｜国际歌曲组 2021年新年第一首红歌改编作品发布 —《北京的金山上》](/content/gnews/33/README.md)
+### [【三票专栏】十权一统 统于一党（12）看中共的极权统治 —— 行政篇](/content/gnews/13/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [视频2021年1月1日中共病毒疫情要闻快报](/content/gnews/14/README.md)
  ` 秘密翻译组G-Translators`
 
-### [川普竞选团队要求最高法院审查威斯康星州选民舞弊案](/content/gnews/34/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [视频12/31/2020 闫丽梦博士： 如不推翻中共政权，病毒问题就无解。](/content/gnews/15/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [01月01日 【国际新闻焦点】彭斯似乎正在变节 他要求法官拒绝共和党人提起的挑战选举结果的诉讼](/content/gnews/35/README.md)
- ` GM42`
+### [视频12/31/2020 朱利安尼：对于总统来说，未来的路，其实是掌握在那些立法者的领导人和国会议员的手中，人民可以做的是让他们(领导者)知道自己的想法。](/content/gnews/16/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [【热点播报】美副国家安全顾问谴责欧盟向中共妥协：连“遮羞布”都不要了](/content/gnews/36/README.md)
- ` 纽约香草山农场`
+### [视频12/31/2020 朱利安尼：我们不能让一个被中共收买的人当上总统。](/content/gnews/17/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [战友评论：习近平辞旧迎新的疫情谎言](/content/gnews/37/README.md)
- ` Snow`
+### [加拿大亲中共深层政府的由来](/content/gnews/18/README.md)
+ ` gnewscanada`
 
-### [解读老常委的信（下）](/content/gnews/38/README.md)
- ` Himalaya Australia`
+### [川普总统签署公告，宣布12月29日为圣托马斯·贝克特殉道850周年纪念日](/content/gnews/19/README.md)
+ ` Josh`
 
-### [郭文贵先生今日动态（2020年12月31日）](/content/gnews/39/README.md)
- ` Fightforthetrue`
+### [视频12/31/2020 朱利安尼：2020年是美国历史上最糟的年，不止有中共病毒，还有打压老百姓的权利自由。](/content/gnews/20/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [辟谣变现实——土共自打脸系列（四）](/content/gnews/40/README.md)
- ` 美国纽约七星会农场（原名：为子孙爱七哥农场）`
+### [【川普总统推文0101】脸书关账户，共和党人应该去掉230条款](/content/gnews/21/README.md)
+ ` 喜馬拉雅的文雅 Himalaya Wenya`
 
-### [【21天-路德社热点追踪】之英雄科学家闫丽梦博士改变人类历史进程的特殊背景解析](/content/gnews/41/README.md)
- ` XMLYG777`
+### [喀秋莎新闻参考- 2020年12月31日 (星期四)](/content/gnews/22/README.md)
+ ` HimalayaRussia`
 
-### [国语【香港快讯】 1.1 美国国务院发声明指 12 港人试图逃避暴政 指责北京政权野蛮](/content/gnews/42/README.md)
- ` GM42`
-
-### [解读老常委的信（中）](/content/gnews/43/README.md)
- ` Himalaya Australia`
-
-### [毛太祖诞辰日 《光明日报》指着腊肉骂包子](/content/gnews/44/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【看七哥视频】爆料革命尚未成功，战友们仍需努力！](/content/gnews/45/README.md)
+### [谏习近平先生（二)](/content/gnews/23/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [2019年的最后一天：共产党对世界拙劣表演的开始](/content/gnews/46/README.md)
- ` XMLYG777`
+### [中共国违反程序公正与法律程序正当，对逃港10人判刑](/content/gnews/24/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [解读老常委的信（上）](/content/gnews/47/README.md)
- ` Himalaya Australia`
+### [抖音“利用12岁儿童谋取利益”诉讼临近](/content/gnews/25/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [亨特·拜登依然持有跟中共有关联的投资基金的10%的股份](/content/gnews/26/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [【林伍德律师推文0101】新年愿望-谁当副总统](/content/gnews/27/README.md)
+ ` 喜馬拉雅的文雅 Himalaya Wenya`
+
+### [数据显示，封城是人类最大失败之一](/content/gnews/28/README.md)
+ ` gnewscanada`
+
+### [美国政府关于人口贩运问题网站](/content/gnews/29/README.md)
+ ` 喜馬拉雅的文雅 Himalaya Wenya`
+
+### [视频【字幕】1/1/2021文贵：新中国联邦是中国人唯一的希望](/content/gnews/30/README.md)
+ ` Caihongqiao`
+
+### [美国政要每日推特重要信息汇总 （2020.12.31）](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [应中共要求，苹果公司禁止了近4万个苹果应用程序](/content/gnews/32/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [新数据证实大瘟疫起源地武汉市至少50万人感染中共病毒](/content/gnews/33/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [应中共的要求，苹果公司禁售近4万款应用程序](/content/gnews/34/README.md)
+ ` 康州盘古喜马拉雅农场`
+
+### [对科罗拉多州天然气管道的&#8221;蓄意攻击&#8221;似乎是激进的左翼分子所为](/content/gnews/35/README.md)
+ ` 康州盘古喜马拉雅农场`
+
+### [駭客文件詳述了中共控制對冠狀病毒疫情話語權的努力](/content/gnews/36/README.md)
+ ` 康州盘古喜马拉雅农场`
+
+### [2020年的生物经济世界大战：中共撒谎；数百万人死亡](/content/gnews/37/README.md)
+ ` 康州盘古喜马拉雅农场`
+
+### [参议院调查发现奥巴马政府资助了一个与基地组织有关联的机构](/content/gnews/38/README.md)
+ ` 康州盘古喜马拉雅农场`
+
+### [视频【字幕】1/1/2021文贵：实力大于信用，大于忠诚](/content/gnews/39/README.md)
+ ` Caihongqiao`
+
+### [2020年，美国14位教授因与中共国勾兑被捕](/content/gnews/40/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [认清自己在消灭ccp过程中的角色](/content/gnews/41/README.md)
+ ` 喜马拉雅巴黎七星农场`
+
+### [【林伍德律师推文0101】农场文宣图和“滑稽的结果”](/content/gnews/42/README.md)
+ ` 喜馬拉雅的文雅 Himalaya Wenya`
+
+### [川普批参议院不公平，也不聪明](/content/gnews/43/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [宾州众议院共和党人发现，选举计票比投票人数多20万张](/content/gnews/44/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [蓬佩奥：美国政府各部门正形成合力确保美国国家安全](/content/gnews/45/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [继四级戒备后，英国抗疫将升级以应对病毒新变种](/content/gnews/46/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【川普总统推文0101】106盛大集会](/content/gnews/47/README.md)
+ ` 喜馬拉雅的文雅 Himalaya Wenya`
 
