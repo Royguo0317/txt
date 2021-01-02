@@ -1,17 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美驻华使领馆伐共声明二：中共国船队的非法行动对全球生计和经济造成影响，我们必须确保其遵守国际公约
-` GM101` [轉載自GNews](https://gnews.org/zh-hans/708934/)
+## 11名参议员宣布将加入霍利行列于周三拒绝国会选举认证
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/709991/)
 
-美东时间1月2号，美驻华使领馆发布了关于“中共国船队的非法行动对全球生计和经济造成影响”的相关推文。
+- 编辑：Victor Torres
 
-推文指出帕劳共和国拘留了一艘载有28名船员的中共国渔船，因为该渔船非法在帕劳范围内非法打捞海参。据帕劳海洋法和执法部门主管Victor Remengesau透露打捞的海参约有225公斤，市场价格达到每公斤800美元，是当地渔民的丰厚收入。
 
-在最近几年内[，](https://www.odi.org/sites/odi.org.uk/files/resource-documents/chinesedistantwaterfishing_web_1.pdf)中国渔船队一直寻找新的渔场，但本次是中共国船员首次在帕劳领海被拦截和拘留。推文明确中共国船队的非法行动对全球生计和经济造成影响，并强调必须确保中华人民共和国遵守国际公约。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-编者认为以上违法行动非中国老百姓为之，渔船的背后是中共盗国贼在操控，美驻华使领馆近期频繁声讨中共的行为，是灭共行动前的最后声明。
+**西班牙2021年1月2日电/西喜社—**十几名美国参议员目前已承诺对定于周三举行的国会选举认证提出异议，出于对投票完整性的担忧，本周末有一批参议员呼吁对美国大选进行审计。
 
-参考：https://twitter.com/USA\_China\_Talk/status/1345263656880263169
+德克萨斯州共和党参议员特德·克鲁兹在参议院网站上发布公告称，他和其他十名参议员 “打算在1月6日投票，拒绝接受来自争议州的选票，除非并直到一个为期10天的紧急审计完成。因为他们没有’定期给予’和’合法认证'(法定的必要条件) “
+
+参议员们呼吁选举委员会进行该审计，之后，”各个州将评估委员会的审计结果，如果需要的话，可以召开特别立法会议，以证明其投票的变化。”
+
+“这些都是值得国会处理的事情，并委托我们来捍卫。”参议员们在声明中说。”我们不会轻易采取这一行动。我们的行动不是为了阻挠民主进程，而是为了保护它。”
+
+这些参议员加入了密苏里州共和党参议员霍利（Josh Hawley）的行列，霍利本周早些时候也承诺将对2020年选举结果的国会认证提出异议。
+
+**原文链接：**[https://justthenews.com/government/congress/11-senators-say-they-will-reject-congressional-election-certification-monday?amp&\_\_twitter\_impression=true](https://justthenews.com/government/congress/11-senators-say-they-will-reject-congressional-election-certification-monday?amp&amp;__twitter_impression=true)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 
 0

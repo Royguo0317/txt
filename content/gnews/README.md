@@ -14,144 +14,141 @@
 
 ---
 
-### [美驻华使领馆伐共声明二：中共国船队的非法行动对全球生计和经济造成影响，我们必须确保其遵守国际公约](/content/gnews/1/README.md)
+### [11名参议员宣布将加入霍利行列于周三拒绝国会选举认证](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美驻华使领馆伐共声明二：中共国船队的非法行动对全球生计和经济造成影响，我们必须确保其遵守国际公约](/content/gnews/2/README.md)
  ` GM101`
 
-### [《路德时评》爆料彭斯暂时不会辞职，江习矛盾激化，及解读川普总统再发邪共视频](/content/gnews/2/README.md)
+### [习近平新年从媒体上诡异消失，鲁哈尼宣称川普在几天内死去](/content/gnews/3/README.md)
+ ` 恩典农场`
+
+### [参议员乔希·霍利的爱国觉醒运动](/content/gnews/4/README.md)
+ ` gnewscanada`
+
+### [视频佐治亚州参议院选举欺诈听证会12/30-朱利安尼市长讲话全文(中英文对照)](/content/gnews/5/README.md)
+ ` Isaiah4031`
+
+### [【林伍德律师回复Jenna Ellis律师对其否定的推文0102】](/content/gnews/6/README.md)
+ ` 喜馬拉雅的文雅 Himalaya Wenya`
+
+### [中共病毒疫情造成数十亿张废弃口罩污染海洋](/content/gnews/7/README.md)
+ ` gnewscanada`
+
+### [视频【字幕】1/2/2021文贵盖特：华盛顿将48小时不眠不休的斗争……结果将是如何？](/content/gnews/8/README.md)
+ ` Caihongqiao`
+
+### [汪文斌36种语言说的是“新年快乐”，还是“万国来朝”？](/content/gnews/9/README.md)
+ ` XMLYG777`
+
+### [特等奖“半头猪”的背后，中共准备如何过年](/content/gnews/10/README.md)
+ ` XMLYG777`
+
+### [新年伊始王毅谈外交即抛弃习近平外交思想莫非圣上已停止思想](/content/gnews/11/README.md)
+ ` NewFOC`
+
+### [从新华社大幅改版分析中共党魁习近平的态度](/content/gnews/12/README.md)
+ ` XMLYG777`
+
+### [中共的“弥天大谎”造成全球新冠大流行，数百万人死亡](/content/gnews/13/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2021年1月2日老班长、木兰、文斌联盟答疑部分摘要](/content/gnews/14/README.md)
+ ` eyer`
+
+### [2021年1月1日郭文贵先生直播摘要](/content/gnews/15/README.md)
+ ` eyer`
+
+### [川普宣称乔治亚州参议院第二轮选举 “无效且非法”](/content/gnews/16/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [宾州共和党议员要求麦康奈尔1月6日质疑宾州大选认证](/content/gnews/17/README.md)
+ ` gnewscanada`
+
+### [【战友寄语】：不平凡的年 不平凡的人](/content/gnews/18/README.md)
+ ` GM42`
+
+### [2020年12月31日 联盟答疑摘要](/content/gnews/19/README.md)
+ ` eyer`
+
+### [【文心雕龙】中共“辟谣皆真”系列专栏文章01：中共外交部辟谣，但百万党员名单外泄坐实中共的对外渗透！](/content/gnews/20/README.md)
+ ` 美国纽约七星会农场（原名：为子孙爱七哥农场）`
+
+### [苹果从中国区商店下架39000款游戏应用](/content/gnews/21/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [视频【路德时评粤语快报】01.01:纳瓦罗2份新冠疫情备忘录拯救美国 闫博士改变历史进程名副其实](/content/gnews/22/README.md)
+ ` GM42`
+
+### [辟谣：“中国粮食自给自足” 事实：粮食危机迫在眉睫](/content/gnews/23/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [中共讲着“依法治国”之虚，行着倒行逆施之实](/content/gnews/24/README.md)
+ ` 美国纽约七星会农场（原名：为子孙爱七哥农场）`
+
+### [视频2021年1月1日郭先生GTV直播摘要-英喜庄园出品](/content/gnews/25/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [视频【路德时评粤语快报】01.01：川普总统五次转推灭共视频 彭思副总统辞职传闻](/content/gnews/26/README.md)
+ ` GM42`
+
+### [2020年12月30日CCP冠状病毒大流行第331集](/content/gnews/27/README.md)
+ ` eyer`
+
+### [2021年1月1日郭先生直播（完整版）](/content/gnews/28/README.md)
+ ` 康州盘古喜马拉雅农场`
+
+### [01月02日 【国际新闻焦点】元旦，朱利安尼先生发推回顾过去的一年，对未来充满信心](/content/gnews/29/README.md)
+ ` GM42`
+
+### [霍利参议员承诺反对1月6日的选举认证](/content/gnews/30/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [习总加速师脑血管瘤治疗方案及治疗环境分析——《路德时评》](/content/gnews/31/README.md)
+ ` 美国纽约七星会农场（原名：为子孙爱七哥农场）`
+
+### [瑞士患者在接受辉瑞新冠疫苗后不久死亡](/content/gnews/32/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [《路德时评》解读习总加速师突然销声匿迹，以及伊朗总统宣布川普总统几天内将消失](/content/gnews/33/README.md)
  ` GM141`
 
-### [郭先生0101:北京正在安排贺锦丽访华,战友们不要情绪化](/content/gnews/3/README.md)
- ` NewFOC`
-
-### [富时罗素指数剔除中共国企业：不仅是从投资推荐指南上消失那么简单](/content/gnews/4/README.md)
- ` Himalaya Australia`
-
-### [郭先生0101:美国大选绝非党派左右正邪战，个人判断很关键](/content/gnews/5/README.md)
- ` NewFOC`
-
-### [揭秘：美国高级官员参加中共资助的旅行、晚宴并提供 “有利报道 ” (附名单)](/content/gnews/6/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [雪崩了，没有一片雪花是无辜的。](/content/gnews/7/README.md)
- ` 喜马拉雅 日本京都富士会`
-
-### [灭共战略三部曲之以法灭共](/content/gnews/8/README.md)
- ` Himalaya Australia`
-
-### [视频川普总统回到华盛顿后，在白宫发表声明：我们要让美国变的比以往任何时候都更伟大](/content/gnews/9/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [《路德社》精选新闻简讯：闫丽梦博士再次向西方世界发出警告，灭共是唯一出路！](/content/gnews/10/README.md)
- ` 路德社精选`
-
-### [【香港要闻】蓬佩奥发声明：12港人事件再次暴露了北京的残暴](/content/gnews/11/README.md)
- ` GM42`
-
-### [喀秋莎新闻参考- 2021年1月1日 (星期五)](/content/gnews/12/README.md)
- ` HimalayaRussia`
-
-### [亚特兰蒂斯的轮回（理解爱系列之二）](/content/gnews/13/README.md)
- ` Himalaya Australia`
-
-### [澳洲学校洗脑教育有感](/content/gnews/14/README.md)
- ` Himalaya Australia`
-
-### [年度数字看中共](/content/gnews/15/README.md)
- ` 恩典农场`
-
-### [郭先生0101:在美国和西方实力是最高标准忠诚和信用服务于实力](/content/gnews/16/README.md)
- ` NewFOC`
-
-### [澳大利亚皇家空军F-35A机队已具备初始作战能力](/content/gnews/17/README.md)
- ` Himalaya Australia`
-
-### [中共病毒肆虐下墙内民众的真实心态](/content/gnews/18/README.md)
- ` Himalaya Australia`
-
-### [郭先生0101:爆料革命的层次和爆料革命让中国人团结在一起](/content/gnews/19/README.md)
- ` NewFOC`
-
-### [【译评】台湾副总统警告欧盟该谨慎面对中共的投资协议](/content/gnews/20/README.md)
- ` G-NEWS TAIWAN`
-
-### [美国割下在美的脑血管瘤？！政经体制健康复原中！？](/content/gnews/21/README.md)
- ` G-NEWS TAIWAN`
-
-### [相信习近平的谎言，巴基斯坦总理要学习中共发展模式以消除贫困](/content/gnews/22/README.md)
- ` HimalayaRussia`
-
-### [为何香港廉政公署不再独立公正？](/content/gnews/23/README.md)
- ` Himalaya Australia`
-
-### [中国共产党威胁全球和平与稳定](/content/gnews/24/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [国台办指责蔡英文新年致辞再露“谋独”本性](/content/gnews/25/README.md)
- ` HimalayaRussia`
-
-### [疫情快讯:辽宁抚顺市顺城区疫情通告](/content/gnews/26/README.md)
- ` 恩典农场`
-
-### [郭先生0101:我是音雄跨年音乐会感人至深它体现音乐的本身](/content/gnews/27/README.md)
- ` NewFOC`
-
-### [国会推翻川普总统对7400亿美元国防法案的否决](/content/gnews/28/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [中美在南海必有一战](/content/gnews/29/README.md)
- ` Himalaya Australia`
-
-### [2021-1-2 康州盘古农场本日新闻热点](/content/gnews/30/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [视频李·泽尔丁指出：中共在疫情上误导全世界](/content/gnews/31/README.md)
+### [习近平的虚假繁荣将成为世界经济的“火药桶”](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [第三方的黑手](/content/gnews/32/README.md)
- ` G-NEWS TAIWAN`
+### [【周末聊农村】大勇](/content/gnews/35/README.md)
+ ` 美国纽约七星会农场（原名：为子孙爱七哥农场）`
 
-### [2020年12月31日郭先生盖特群聊信息整理](/content/gnews/33/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
+### [【蓬佩奥国务卿推文0102】正面迎战](/content/gnews/36/README.md)
+ ` 喜馬拉雅的文雅 Himalaya Wenya`
 
-### [【香港专题】 ICAC 廉政公署 &#8211; 一杯变了味的咖啡 （五）礼崩乐坏 廉署自戕](/content/gnews/34/README.md)
- ` GM42`
+### [三七二十一敬爱的习近平总书记已经51个小时没有视频打卡啦](/content/gnews/37/README.md)
+ ` NewFOC`
 
-### [视频奈杰尔·法拉奇告诉你接下来的重大挑战！](/content/gnews/35/README.md)
+### [纾困法案让五角大楼和间谍机构180天内透露所有关于UFO的信息](/content/gnews/38/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [麦康奈尔：不会将$ 2000支票、废除230条款、选举安全分开表决](/content/gnews/39/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【香港专题】 ICAC 廉政公署：一杯变了味的咖啡 （四）弃明投暗 廉署腐化](/content/gnews/36/README.md)
- ` GM42`
+### [【文字版】路德时评2021.01.01晚间：川普五次转推灭共视频，彭斯会不会辞职，参议院推翻国防法案，习面临巨大危机](/content/gnews/40/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [视频【每日快讯】01/01/2021:不要评价美国的两党政治，要有自己独立思考判断的能力](/content/gnews/37/README.md)
- ` GM132 每日快訊`
+### [【文雍漫谈】历历在目庚子年 好在往事不如烟](/content/gnews/41/README.md)
+ ` 美国纽约七星会农场（原名：为子孙爱七哥农场）`
 
-### [古往今来没有一个政府像社会主义政权一样](/content/gnews/38/README.md)
- ` Himalaya Australia`
+### [新数据证实大瘟疫起源地的武汉市至少50万人感染中共病毒](/content/gnews/42/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共集权下的种子危机](/content/gnews/39/README.md)
- ` 康州盘古喜马拉雅农场`
+### [日本知事要求对中共病毒实施紧急状态](/content/gnews/43/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [路德社爆料的习近平脑残(瘤)事件严重打击了鳄鱼的信心](/content/gnews/40/README.md)
- ` Himalaya Australia`
+### [印度测试疫苗的储存和运送计划](/content/gnews/44/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [肆意贷款给底层，中共意欲何为？](/content/gnews/41/README.md)
- ` Himalaya Australia`
+### [欺骗与压制：北京一年来的病毒掩盖行动 《每日快报 &#8211; 2021.01.02.》](/content/gnews/45/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [纽交所的大锤重重地砸向中共国三大电信公司](/content/gnews/42/README.md)
- ` 秘密翻译组G-Translators`
-
-### [彭斯到底站在哪边？](/content/gnews/43/README.md)
- ` gnewscanada`
-
-### [从太祖太宗到近平远平](/content/gnews/44/README.md)
- ` 墨尔本雅典娜农场`
-
-### [川普第五次转推灭共视频，习近平脑瘤越来越危险了，](/content/gnews/45/README.md)
- ` 恩典农场`
-
-### [川普政府的强硬政策是世界联合灭共格局的决定因素](/content/gnews/46/README.md)
- ` gnewscanada`
-
-### [别人染上病，你怎么还这么开心？](/content/gnews/47/README.md)
- ` Himalaya Australia`
+### [辟谣变现实——土共自打脸系列（五）谈共产党的“党谣”](/content/gnews/46/README.md)
+ ` 美国纽约七星会农场（原名：为子孙爱七哥农场）`
 

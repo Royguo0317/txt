@@ -1,137 +1,82 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 揭秘：美国高级官员参加中共资助的旅行、晚宴并提供 “有利报道 ” (附名单)
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/708888/)
+## 【林伍德律师回复Jenna Ellis律师对其否定的推文0102】
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/709689/)
 
-2021年1月1日 / 纳塔利·温特斯
+鉴于昨日**Jenna Ellis（珍娜）律师发推**时称：
 
-翻译：康州盘古农场-Mike Li
+“*需要说明的是：我不支持林伍德律师的言论。我支持法治和美国宪法。”*
 
-校对：康州盘古农场-Antsee-GTV
+1月2日**林伍德律师回复如下**：
 
-审核：康州盘古农场 –Truemanman
-![]()![](https://gnews.org/wp-content/uploads/2021/01/2313.png)
-《国家脉动》今天公布了一份完整的名单，列出了美国现任和前任的选举官员们曾参加过与中国共产党有关的中美交流基金会出钱赞助的访华活动。
+“*我也支持法治和美国宪法，珍娜 @JennaEllisEsq*
 
-完整的名单是在 《国家脉动 》对中美交流基金会（CUSEF）赞助的中国之行的媒体参与者进行曝光后公布的–该基金会是与共产党有联系的宣传团体，寻求美国机构的 “有利报道”。
+“*在你出生前7年，我就在为这两件项而奋斗了。*
 
-CUSEF努力的目的是 “联合和中立潜在反对中国共产党执政政策和权威的来源”，同时对”海外华人社区、外国政府和其他参与者采取支持北京首选政策的行动或立场”施加影响，这些努力直达美国政治的最高层。
+“*我也在为真理而战 真理总是取胜。你支持这个言论，对吗，珍娜？”*
 
-CUSEF以各种方式赞助了以下代表们的旅行，包括贸易代表团和针对现任选举官员的腹地城市市长代表团的访华之旅。
+- ![]()![](https://gnews.org/wp-content/uploads/2021/01/linwood-i-support-rule-of-law.png)
 
-根据《国家脉动》对CUSEF与其美国游说公司BLJ Worldwide之间的《外国代理人登记法》（FARA）申报材料的原始研究，代表们在离开国会职位后也有参与其中。
+[https://twitter.com/LLinWood/status/1345270980403453952?s=20](https://twitter.com/LLinWood/status/1345270980403453952?s=20)
+珍娜律师在说这番话时，并没有指出她不同意林伍德律师的哪段言论，也没有跟推或转推任何一段林伍德律师的推文。笔者翻找了此前几个小时林伍德律师的推文，主要是称首席大法官罗伯特、彭斯副总统犯了“叛国罪”并要求他们立即辞职，还附上了杰夫瑞-爱泼斯坦（Jeffrey Epstein）和Ghislaine Maxwell 的照片。另外就是2019年演员Isaac Kappy坠桥而亡，对蓬佩奥国务卿推文的转发和对他本人的称赞，还有是对共产主义、对北京政府的抨击。
 
-“美国前国会议员计划”，参与者由 “根据他们在国会期间的资历和与中美关系的相关性，以及他们对中国的开放性观点来选出”，摘要中指出。
+珍娜律师发出推文后，网友挖出并附上2016年3月她的言论，有人称这是她在脸书上的文字：
 
-“前国会议员可以与中国现任和前任政治家、大学教授和学生、智囊团和商界人士进行访谈，加深对中国和平发展的了解。此外，文化活动和历史遗迹观光也进一步提供了中国发展的历史背景。这样的访问也将有助于让中国官员和思想家了解美国对当前与中国相关的内政和外交问题的看法。”
+“*川普的价值观并不是保守的，也不是美国人的。”* （2016年3月1日）
 
-而在每一次访问之后，中美交流基金会及其游说公司都会 “与这些前议员们就他们的经历制作报告，分发给美国的政治家、专家和其他相关个人和组织。”
+- ![]()![](https://gnews.org/wp-content/uploads/2021/01/jenna-ellis-1.jpg)
 
-Chinese Communist Congress (and other elected officials):
 
-中共国会（及其他选举官员）。
 
-• Congressman Timothy Roemer (蒂姆·罗莫尔/印第安纳州民主党人)
 
-• Congressman Cliff Stearns (克利夫·斯特恩斯/弗罗里达州共和党人)
+另外一段言论如下：（2016年3月17日）
 
-• Congressman Mike Ross (迈克·罗斯/阿肯色州民主党人)
+“*我可以全职来回应那些支持川普的可笑的不合逻辑、前后不一致和公然愚蠢的言论。*
 
-• Congressman Jim McCrery (吉姆·迈克瑞/路易斯安那州共和党人)
+“*但事情是这样的：他的支持者们并不关心事实或逻辑。他们不是在寻求真理。川普大概可以在纽约市中心冲着人大喊，也不会失去支持。*
 
-• Congressman Thomas Petri (汤姆·佩特里/威斯康星州共和党人)
+“*而这就是这个国家处于如此糟糕状态累积起来的原因。*
 
-• Senator Byron Dorgan (拜伦·多甘/北达科塔州民主党人)
+“*我们没有寻求真相的人，我们有自恋的人。”*
 
-• Senator Kent Conrad (肯特·康拉德/北达科塔州民主党人)
+- ![]()![](https://gnews.org/wp-content/uploads/2021/01/jenna-ellis-2.jpg)
 
-• Senator John Sununu (约翰·苏努努/新汉普斯维尔共和党人)
 
-• Congressman Jon Christensen (约翰·克利斯坦森/内布拉斯加州共和党人)
 
-• Congressman Jim Slattery (吉姆·斯拉特瑞/堪萨斯州民主党人)
 
-• Congressman Steve Bartlett (史蒂夫·巴特利特/德州共和党人)
+- ![]()![](https://gnews.org/wp-content/uploads/2021/01/melissa-whats-this-wierd.png)
 
-• Congressman Don Bonker (多恩·帮克/华盛顿特区民主党人)
+网友：@珍娜，这是什么？奇怪。 
+[https://twitter.com/mumof04/status/1345192566044708866?s=20](https://twitter.com/mumof04/status/1345192566044708866?s=20)
+之后另有网友留言为珍娜律师辩解：
 
-• Congressman Phil English (菲尔·因格里希/宾夕法尼亚州共和党人)
+“不尽然。我妻子以前也是这么想的。 现在她是他的忠实支持者 我认为人们可以被唤醒，了解什么是真实的，而不是他们被灌输的东西。 这需要时间。
 
-• Congressman Martin Frost (马丁·佛罗斯特/德克萨斯州民主党人)
+“另外，她可能根本不喜欢川普。 可能只是支持法治。 有人是这么做的。”
 
-• Congressman Barbara Kennelly (芭芭拉·肯尼莉/康涅狄格州民主党人)
+然而，笔者认为珍娜律师作为律师，她的推文称是宪法律师，其认知水平应该有别于普通家庭主妇或普通人，她的政治观点发生翻天覆地的变化，从坚定反川到坚定挺川，是不多见的。现在这个阶段，坚定支持川普的人，应该也是喜欢他的人，不大会存在坚定支持但是不喜欢这个人的情况。
 
-• Congresswoman Connie Morella (科尼·莫雷拉/马里兰州共和党人)
+昨天之后，珍娜律师就网友回推“被交通律师辟谣”，她跟推回复称；
 
-• Congressman John Tanner (约翰·塔纳/田纳西州民主党人)
+“*至少我的职业生涯在前进。你还在每日野兽基本做个编辑，而且，年龄比我翻一倍？（一个摊开双手的表情图）”*
 
-• Governor Bob Holden (鲍勃·霍尔顿/密苏里州前州长/民主党人)
+- ![]()![](https://gnews.org/wp-content/uploads/2021/01/jenna-ellis-to-be-clear.jpg)
 
-• Mayor James Brainard (詹姆斯·布莱恩纳德/印第安纳州/卡梅尔市市长/共和党人)
 
-• Mayor Paul TenHaken (保罗·特恩哈肯/爱荷华州/共和党人)
+珍娜律师这种有点嘲讽和夸张的口气虽然对其此前的言论没有任何佐证，但却对她的处事态度画上一个问号，她究竟是一位严谨的宪法律师，还是个任性的小女人？
 
-• Mayor Jamael Tito Brown (贾马尔·提多·布朗/俄亥俄州民主党人)
+笔者按，最近发生的很多事情让我们爆料革命战友认识到人不能固守一个观点，我们坚定跟随郭先生爆料革命这个信仰，信仰不能动摇，但是观点却可能变化。变化是基于事实的依据，事情在发展变化，敌人和战局又太复杂，对我们的甄别力是一个挑战和锻炼。
 
-• Mayor Richard Carr (里卡多·卡尔/俄亥俄共和党人)
+鲍威尔律师感恩节前夜熬到凌晨完成大规模选民欺诈诉讼书，12月27日出具270页《外国干预美国大选的证据》，林伍德律师作为他的团队成员，于12月2日在乔治亚州亚特兰大举行的 #停止偷盗 集会上进行了慷慨激昂的演讲，推特上他经常鼓舞美国人放下恐惧，他本人因乔州诉讼等遭到威胁，在一起诉讼中失去出庭律师的资格，个人感觉他是有正义充满激情的。他在推文中经常出现对共产主义的控诉，对“CCP”的直接抨击。如果仅从珍娜律师为一个批评林伍德律师的声音点赞还不能过早下结论的话，（此前The Federal List的联合创办人Sean David 称林伍德律师是个“骗子”，“疯子”，“疯癫”），那么现在我们看到了更多珍娜本人的言论和观点。
 
-• Lieutenant Governor Michael Fedele (米歇尔·费德里/康涅狄格州共和党人)
+- ![]()![](https://gnews.org/wp-content/uploads/2021/01/sean-davis-this-guy-is.png)
 
-• State Representative Mark Parkinson (马克·帕金森/爱达华州共和党人)
+[https://twitter.com/seanmdav/status/1345163722646552576?s=20](https://twitter.com/seanmdav/status/1345163722646552576?s=20)
+林伍德律师曾提倡戒严法，珍娜律师当时说这个法“不适用”。详见 [**【Jenna Ellis推文1221】-根据宪法，不滥用法**](https://gnews.org/zh-hans/674396/)
 
-• Governor Jim Folsom Jr. (吉姆·福尔索姆/阿拉巴马州民主党人)
+现在似乎支持川普总统的一方出现分歧，就如同爆料革命中见到的现象，现在我们更加需要保持头脑冷静、客观真实。唯真不破永远是我们衡量事物的标尺和战场上的武器。让我们继续观察，等待拨云见日的一刻。
 
-• Lieutenant Governor Barbara Lawton (芭芭拉·劳顿/威斯康辛州民主党人)
 
-• Brian Rolicki
 
-• State Senator Steve Harrelson (阿拉斯加/民主党人)
-
-• State Senator Mark Norris (田纳西州/共和党人)
-
-• State Representative Robbie Wills (阿拉斯加/民主党人)
-
-• State Representative Jim Tucker (加州/共和党人)
-
-• State Representative Seth Hammett (阿拉巴马州/民主党人)
-
-• State Senator Ron Richard (密苏里州/共和党人)
-
-• State Senator Chuck Colgan (弗吉尼亚州/民主党人)
-
-• Lieutenant Governor Cyrus Habib (华盛顿特区/民主党人)
-
-• Lieutenant Governor Rebecca Kleefisch (华盛顿特区/共和党人)
-
-• Congresswoman-Elect Nicole Malliotakis (纽约州/共和党人)
-
-• State Representative Clarice Navarro (科罗拉多州/共和党人)
-
-• Commissioner Bridget Gainer (伊利诺伊州/民主党人)
-
-• Mayor Michael Copeland (堪萨斯州)
-
-• Treasurer Tishaura Jones (密苏里州/民主党人)
-
-• Congressman Charles Boustany (加州/共和党人)
-
-• State Representative L.F. Payne (弗吉尼亚州/民主党人)
-
-• Congressman Gary Franks (康涅狄格州/共和党人)
-
-• Congressman Brian Baird (华盛顿特区/民主党人)
-
-• Congressman Mike Mclntyre (北卡罗来纳州/民主党人)
-
-照片记录
-
-以下图片被收录在中美交流基金的宣传手册中。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2020-12-31-at-9.45.38-AM.png)
-第一张图片是2019年（美国）腹地城市市长代表团访华，随后是2008年和2009年地方选举官员们与中共官员会面的图片。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2020-12-31-at-9.28.38-AM-800x939-1.png)
-另一张图片包括美国副州长和州立法院院长。
-
-文章链接：[https://thenationalpulse.com/exclusive/former-reps-sponsored-trips-to-china/](https://thenationalpulse.com/exclusive/former-reps-sponsored-trips-to-china/)
-
-+1
+0

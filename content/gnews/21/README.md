@@ -1,25 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国割下在美的脑血管瘤？！政经体制健康复原中！？
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/708761/)
+## 苹果从中国区商店下架39000款游戏应用
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/709725/)
 
-台灣農場(籌備)   一葉一菩提
+新闻来源：Reuters《路透社》； 作者：Pei Li； 发布时间：2020年12月31日
 
-水能载舟，亦能覆舟。疫情刚开始，全世界的股市如断崖是崩盘腰斩，股民哀声遍野，震荡了政经社会，失望指数破表，期间有好的防疫措施，补助方案，投资增加，人民可以外出旅游踏青、做生意和工作，尽管还带着口罩，还有许多的限制措施，股市还是会渐渐的囘春，显示了普罗大众扬起了希望。但是有时为了国家的整体经济利益和国家安全而加征税收、调整股市机制，因此减少了少部份法人和大投资户的利益，股市也会down(掉)下，造成一般股民的恐慌，进而给了政府施政压力或错误讯息，所以股市和普罗大众有着密不可分的相互影响关系。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/圖片-1-1.png)
-为了让美国再次伟大，为了让经济能不过于依靠最大威胁国（中共），为了让华尔街能正常化，为了不再受不良外企外资（中共）操控美国，因此川普政府在此疫情期间，面对政经压力，于2020 年11 月12 日，特朗普总统发布了一项行政命令，禁止美国投资者对中国军方拥有或控制的企业进行投资。禁止美国人士对五角大楼名单上的三十一家公司，以及将来可能被加入名单的任何其他公司的公开交易的证券、该证券的衍生产品、或旨在为其提供投资资金的任何证券中进行任何交易。该禁令将于 2021 年 1 月 11 日（也即当选总统拜登宣誓就职的九天前）生效，因此，该禁令有两个月的宽限期。该行政命令还澄清，在行政命令颁布之日起一年内（即截至2021 年11 月11 日前），允许截止2021 年1 月11 日持有相关证券的美国人士为了“全部或部分地实施剥离”而进行的买卖。
+*翻译/简评：MikeHua；校对：SilverSpurs7；审核：万人往；Page：小雨*
 
-12月31日纽约证券交易所(NYSE)周四在声明稿中表示，正在展开中国电信、中国移动及中国联通(香港)有限公司这三家中国电信企业的退市程序。将在1月7日或1月11日暂停交易。发行人有权要求对该决定进行审查。
+**简评：**
 
-随即2021年1月1日午间路德社也对此做了深入报导，
-1、强制退市会引起股价暴跌
-2、企业因没有披露自己背后是中共军方而遭强制退市，投资者可以起诉索赔
-3、三大运营商的退市，将引爆中共美元债务危机，是美国送给中共的新年礼物。
+苹果公司为了能够进入中国庞大的市场对中共政权俯首叩头，没有一丁点尊严，完全受中共的控制。中共利用美国这些大公司软弱贪财的本性，再加上14亿中国人民的勤劳创造出来的市场对美国进行要挟恐吓，收买控制政客，还要偷盗美国大选企图颠覆美国，这样的日子必须结束了。
 
-又一次印证了郭文贵先生所说的“香港经济即将崩溃，大陆经济崩溃中。”这一切才刚刚开始，接下来一连串的制裁，在中共国政经上所产生的影响必然巨大，了解真相，必然不为无知所害。
+中共做的一切恶都是未来我们灭共最好的证据。现在中共仍然在地球上肆虐，病毒没有一点转好的迹象。但是我们都很清楚，世界不会允许中共继续这样肆虐下去，2021年一定是全世界奋起反击的一年，不然人类将会失去一切。只有消灭共产党，人类才有未来。Take down the CCP，灭掉共产党！
 
-參考資料
-[https://www.mofo.com/resources/insights/201116-trump-administration-pentagon-list-cn.html](http://	https://www.mofo.com/resources/insights/201116-trump-administration-pentagon-list-cn.html)
+[!\[\]()!\[\](https://spark.adobe.com/page/6OtK2JczRvcAs/images/55776140-970c-4e42-ad24-2273db10b4d7.jpg?asset_id=bf03289c-5372-40d3-aa63-403a81e2b010&amp;img_etag=%229b735ec29b0d3c9d8bbd8731f2c87687%22&amp;size=2560)](https://spark.adobe.com/page/6OtK2JczRvcAs/images/55776140-970c-4e42-ad24-2273db10b4d7.jpg?asset_id=bf03289c-5372-40d3-aa63-403a81e2b010&amp;img_etag=%229b735ec29b0d3c9d8bbd8731f2c87687%22&amp;size=1024)
 
-0
+# **苹果从中国区应用商店移除39000款到期游戏**
+
+香港（路透社） – 苹果周四下架了其中国区商店的39000款游戏应用，创下单日下架规模之最。年底是所有游戏发行商获得授权的最后期限。.
+
+[!\[\]()!\[\](https://spark.adobe.com/page/6OtK2JczRvcAs/images/16e283af-785a-4937-85b8-dd250604dbd6.png?asset_id=b0c400d4-c91e-4215-98f7-891107bdffbb&amp;img_etag=%22c81aa0cee38a6f47abc91e0753d7c79d%22&amp;size=2560)](https://spark.adobe.com/page/6OtK2JczRvcAs/images/16e283af-785a-4937-85b8-dd250604dbd6.png?asset_id=b0c400d4-c91e-4215-98f7-891107bdffbb&amp;img_etag=%22c81aa0cee38a6f47abc91e0753d7c79d%22&amp;size=1024)
+
+*档案图片：苹果公司在其加州库比蒂诺总部一次活动中展示的logo，2019年9月10日。路透社/Stephen Lam。*
+
+此次大规模下架应用程序正值中共政府大面积封杀未授权游戏之际。
+
+周四苹果总共移除了46000个应用程序，其中包括39000款游戏。根据七麦公司的数据，被下架的游戏包括育碧的“刺客信条”和“NBA 2K20”。
+
+七麦公司同时表示，排名最前的1500个付费游戏中只有74款幸存了下来。
+
+苹果没有立刻做出回应。
+
+苹果最初要求游戏发行商在6月底的最后期限前提交政府颁发的授权号，允许用户在全球最大的游戏市场进行应用内购买。
+
+苹果之后把截止日期延长至12月31日。
+
+中共国的安卓应用商店一直遵守有关牌照的规定。目前还不清楚苹果今年为什么会更加严格地执行这些规定。
+
+分析人士表示，此举并不令人意外，因为苹果正在继续填补漏洞，以符合中共国内容监管机构的要求，而且不会像之前的移除那样直接影响苹果的利润。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/6OtK2JczRvcAs/images/42c101b0-ddff-4cf6-9c54-122ed6dcd438.jpg?asset_id=6d2bab4a-5182-4aae-9404-a38e0b65b30b&amp;img_etag=%227fae99d74d5a542fe565e3c103926838%22&amp;size=2560)](https://spark.adobe.com/page/6OtK2JczRvcAs/images/42c101b0-ddff-4cf6-9c54-122ed6dcd438.jpg?asset_id=6d2bab4a-5182-4aae-9404-a38e0b65b30b&amp;img_etag=%227fae99d74d5a542fe565e3c103926838%22&amp;size=1024)
+
+“然而，这种只接受拥有游戏授权的付费游戏的转变，再加上今年中共国批准的外国游戏授权数量极低，可能会导致更多游戏开发商在中国区版本中转向广告支持模式”，帮助海外公司公司发布应用程序的公司AppInChina的市场经理托德•库恩斯 (Todd Kuhns) 说。
+
+[原文链接](https://presentdangerchina.org/2020/12/release-stop-mnuchins-perfidious-effort-to-eviscerate-trump-order-barring-indexes-etf-underwriting-of-malign-ccp-companies/)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/6OtK2JczRvcAs/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/6OtK2JczRvcAs/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/6OtK2JczRvcAs/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
++1
