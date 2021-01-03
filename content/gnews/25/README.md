@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 01/01/2021 朱利安尼: 一年前的今天，一切都是那么的顺利。但是突然间，我们遭到了CCP病毒的攻击。
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/711620/)
+## 01/02/2021 史蒂芬·班农: 麦康纳尔试图向参议员们施压：这将是你们经历过的最重要的投票。
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/711763/)
 
 By: 【秘密翻譯組G-Translators】
 

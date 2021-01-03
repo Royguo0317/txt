@@ -1,36 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲国会议员廖婵娥（Gladys Liu）称赞中共间谍对澳洲的“捐款”行为
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/711320/)
+## 美知名主持人拉里·金因感染中共病毒入院治疗
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/711390/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/202113圖2.jpg)图片来自网络
-撰稿：Shirley
+![]()![](https://gnews.org/wp-content/uploads/2021/01/screenshot.png)
+CNN于本周六（1月2日）公布其前主持人拉里·金因感染中共病毒已入院治疗一周，根据医院规定亲人不可进行探视。
 
-审稿：Runaway
+近年来，拉里·金的身体状况一直不好，他患有心脏疾病、糖尿病以及肺癌。去年他曾在三周内痛失一双儿女。65岁的儿子因心脏病发作抢救无效死亡，51岁的女儿在因肺癌离世。而拉里·金本人则因为中风无法参加儿子的告别仪式.
 
-据澳大利亚人报报道，自由党议员廖婵娥称赞被指控为中共间谍的杨怡生（Sunny Duong音译）先生，而杨怡生正在接受调查，如果罪名成立，根据澳大利亚的外国干涉法，他将面临最高10年监禁。
+**光辉的过去**
 
-中共被指控在澳洲实施经济、文化、外交和个人方面的全方位影响。澳洲联邦警察指控杨怡生与一个外国情报机构有联系，安全人士证实，该外国情报机构属于中共。作为大洋洲华人组织联合会的主席，杨怡生在6月份为墨尔本一家医院捐赠了3.7万多澳元，用于中共病毒有关的项目。廖女士虽然知道对杨先生的间谍指控，但她仍称赞这次捐款是 “鼓舞人心的案例”。
+在1985年至2010年的巅峰时期，作为CNN 《拉里·金现在》 的主持人，金可以说是美国最重要的政治家和名人的电视采访者。客人包括纳尔逊-曼德拉（Nelson Mandela）和自理查德-尼克松（Richard Nixon）以来的每一位美国总统；辛普森（O.J. Simpson）在1995年被宣布无罪释放后的第二天就被叫进了节目。金是土生土长的布鲁克林人，嗓音圆润，抑扬顿挫，是美国的原创者，不仅以其和蔼可亲的态度和轻松的玩笑而闻名，还因其标志性的吊带衫、对以色列的支持和八次婚姻而闻名。他是美国国家广播电台和广播名人堂的成员，曾两次获得皮博迪奖，还主持过颁奖典礼。
 
-自廖女士当选自由党议员以来，她与北京秘密政治宣传机构高层人物的关系一直受到质疑。去年晚些时候，一张照片被曝光，显示廖女士与一名疑似中国间谍Nick Zhao在一起。赵先生在被曝光疑似间谍，被澳大利亚安全情报组织（ASIO）调查后，死于墨尔本一家汽车旅馆。廖女士在接受一次采访时，在被问及对南海和习近平的看法时，她拒绝承认中共在南海的不法行为，拒绝称习近平是独裁者。
+2010年12月，金在CNN的最后一个月里，采访了芭芭拉-史翠珊（Barbra Streisand）、安吉丽娜-朱莉（Angelina Jolie）和阿尔-帕西诺（Al Pacino），以及两个会影响他下一阶段事业的人。墨西哥电信亿万富翁卡洛斯-斯利姆（Carlos Slim）和当时的俄罗斯总理弗拉基米尔-普京（Vladimir Putin）。
 
-在中共病毒引起的全球大流行的危机中，澳洲政府对中共在对澳贸易中的霸道行为采取了坚定的立场。廖女士应该站在澳洲政府的立场上公开指责中共独裁，然而她却对中共间谍在澳洲的渗透赞许有加。
+**曾卷入中共舆论战**
 
-到了必须对中共的渗透侵略行为说’不’的时候了。
+据ProPublica于2020年7月的报道，以色列人雅克比.尼夫（Jacobi Niv ）在2019年曾向拉里.金（ Larry King）支付了每次几千美元的费用，让他为以色列的公司或项目里解说或做视频，因为金在以色列是个家喻户晓的人物。但尼夫希望金在2019年3月27日录制的节目，可不是一般的内容，而是中共背后指使其节目嘉宾污蔑郭文贵，希望美国政府谴返他的误导信息。
 
-（本文仅代表个人观点）
+在一段关于美国对华贸易逆差的序言之后，金要介绍一位嘉宾，俄罗斯记者阿纳斯塔西娅.多尔戈娃（ Anastasia Dolgova）。金给她的第一个剧本问题是开放式的。“我们如何才能加强两国之间的关系？” 之后问题很快就变得更尖锐了。“多尔戈娃，你想给我们介绍一个案例，你在节目中也提到过。”剧本上写道。”有几个中国人在中国工作，涉嫌在那里犯罪，然后他们逃到了美国和欧洲，继续过着正常的生活，同时激怒了很多人。”
 
-[https://www.theaustralian.com.au/nation/politics/lib-mp-gladys-liu-a-fan-of-accused-china-spy-di-sanh-duong/news-story/5b641217e9c6f30dde6870bc2247319a](https://www.theaustralian.com.au/nation/politics/lib-mp-gladys-liu-a-fan-of-accused-china-spy-di-sanh-duong/news-story/5b641217e9c6f30dde6870bc2247319a)
+多尔戈娃的回答并不在稿子里而是被单独插播的，金在不和她说话的情况下录下他的问题。
 
-[https://www.smh.com.au/politics/federal/gladys-liu-praises-group-at-centre-of-foreign-interference-investigation-20201202-p56jv3.html](https://www.smh.com.au/politics/federal/gladys-liu-praises-group-at-centre-of-foreign-interference-investigation-20201202-p56jv3.html)
+在ProPublica的电话采访中，金表示了悔恨和困惑。他说，他对郭文贵和拉波波特并不熟悉，也没有看过视频。“对我来说，这只是帮我喜欢的一个人的一个小忙，我不知道是为了什么。”
 
-[https://www.theage.com.au/national/alleged-chinese-spy-target-pictured-sitting-next-to-liberal-mp-gladys-liu-at-her-home-20191129-p53fj4.html](https://www.theage.com.au/national/alleged-chinese-spy-target-pictured-sitting-next-to-liberal-mp-gladys-liu-at-her-home-20191129-p53fj4.html)
+“尼夫给了我一些鸡毛蒜皮的理由来做视频，这听起来像是我在帮助需要帮助的人，”金说，“我从来不应该这样做，很明显。”他补充说：“我很愚蠢。我做了他让我做的事情。但我为他感到遗憾。我很后悔这样做，但我不知道这个有国际上的来头。……很明显，他利用了我。” 金说，他偶尔会提前录下信息片或大会视频的问题，而不进行现场采访。他说，虽然他对多尔戈娃视频的情况回忆不多，但尼夫会鼓励他参加，说是与以色列有关。金说，每当尼夫向他推销信息广告时，“从来没有不提到以色列的，因为这会吸引我作为犹太人的本能。他会说，‘这对我们会很有帮助’。”
 
-[https://www.skynews.com.au/details/\_6084962030001](https://www.skynews.com.au/details/_6084962030001)
+[原文链接](https://apnews.com/article/los-angeles-larry-king-coronavirus-pandemic-talk-shows-us-news-7cd892f589671d503a4d45de00890f64)
 
-**欢迎加入澳喜农场：**
+[相关报道1](https://gnews.org/zh-hans/281091/)
+[相关报道2](https://gnews.org/zh-hans/328467/)
 
-[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/澳喜图标2.jpg)
 +1
