@@ -1,59 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 苹果从中国区商店下架39000款游戏应用
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/709725/)
+## “做工精细”的Block3型双座版枭龙战机已开始陆续交付巴方空军
+` 快慢机` [轉載自GNews](https://gnews.org/zh-hans/711160/)
 
-新闻来源：Reuters《路透社》； 作者：Pei Li； 发布时间：2020年12月31日
+内军事：快慢机
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/01/03021739/g1eE-hutwezf5056420.jpg)
+近日，由中巴联合量产的Block3型双座版枭龙战机，已正式开始陆续交付巴方空军列装。这次交付巴方空军的为14架JF-17B型双座版战斗教练机。而早前首批12架JF-17B型已于2020年2月被巴空军接收，其中4架由成飞工业（CAC）制造并负责空运至巴方，另外8架则由巴方本土航空制造企业“巴基斯坦航空综合体（PAC）”负责生产。目前巴方空军共计接收26架JF-17B型枭龙战机！
 
-*翻译/简评：MikeHua；校对：SilverSpurs7；审核：万人往；Page：小雨*
+此前，由于巴方被美国指责涉嫌秘密支持恐怖主义活动后，便被美方列入受限武器支援名单。加之近年来印度与美方及沙特的多边盟友关系不断稳固提升，导致巴军方在美方及沙特方面所得到的军事援助大幅度缩水。巴空军此前一直凭借美军提供的改进型F-16战机才得以与印空军所抗衡。如今失去了美军的高科技武器系统支持，不得已被迫选择中共的出口型枭龙战机作为补充备选方案以解燃眉之急！
 
-**简评：**
+巴空军是中共枭龙战机出口型的首个外销用户，此前中共成飞工业分批次陆续向巴空军交付了100逾架Block1及Block2系列单座版机型。不过在巴空军的后续实际使用中，相继出现由于设计与制造工艺等先天致命缺陷而导致的大范围“枭龙”停飞事件。其中多达40%左右的“枭龙”机型出现了机翼与机身衔接位置处的蒙皮严重开裂现象，以及飞行员紧急逃生弹射系统无法正常有效工作等安全隐患。
 
-苹果公司为了能够进入中国庞大的市场对中共政权俯首叩头，没有一丁点尊严，完全受中共的控制。中共利用美国这些大公司软弱贪财的本性，再加上14亿中国人民的勤劳创造出来的市场对美国进行要挟恐吓，收买控制政客，还要偷盗美国大选企图颠覆美国，这样的日子必须结束了。
-
-中共做的一切恶都是未来我们灭共最好的证据。现在中共仍然在地球上肆虐，病毒没有一点转好的迹象。但是我们都很清楚，世界不会允许中共继续这样肆虐下去，2021年一定是全世界奋起反击的一年，不然人类将会失去一切。只有消灭共产党，人类才有未来。Take down the CCP，灭掉共产党！
-
-[!\[\]()!\[\](https://spark.adobe.com/page/6OtK2JczRvcAs/images/55776140-970c-4e42-ad24-2273db10b4d7.jpg?asset_id=bf03289c-5372-40d3-aa63-403a81e2b010&amp;img_etag=%229b735ec29b0d3c9d8bbd8731f2c87687%22&amp;size=2560)](https://spark.adobe.com/page/6OtK2JczRvcAs/images/55776140-970c-4e42-ad24-2273db10b4d7.jpg?asset_id=bf03289c-5372-40d3-aa63-403a81e2b010&amp;img_etag=%229b735ec29b0d3c9d8bbd8731f2c87687%22&amp;size=1024)
-
-# **苹果从中国区应用商店移除39000款到期游戏**
-
-香港（路透社） – 苹果周四下架了其中国区商店的39000款游戏应用，创下单日下架规模之最。年底是所有游戏发行商获得授权的最后期限。.
-
-[!\[\]()!\[\](https://spark.adobe.com/page/6OtK2JczRvcAs/images/16e283af-785a-4937-85b8-dd250604dbd6.png?asset_id=b0c400d4-c91e-4215-98f7-891107bdffbb&amp;img_etag=%22c81aa0cee38a6f47abc91e0753d7c79d%22&amp;size=2560)](https://spark.adobe.com/page/6OtK2JczRvcAs/images/16e283af-785a-4937-85b8-dd250604dbd6.png?asset_id=b0c400d4-c91e-4215-98f7-891107bdffbb&amp;img_etag=%22c81aa0cee38a6f47abc91e0753d7c79d%22&amp;size=1024)
-
-*档案图片：苹果公司在其加州库比蒂诺总部一次活动中展示的logo，2019年9月10日。路透社/Stephen Lam。*
-
-此次大规模下架应用程序正值中共政府大面积封杀未授权游戏之际。
-
-周四苹果总共移除了46000个应用程序，其中包括39000款游戏。根据七麦公司的数据，被下架的游戏包括育碧的“刺客信条”和“NBA 2K20”。
-
-七麦公司同时表示，排名最前的1500个付费游戏中只有74款幸存了下来。
-
-苹果没有立刻做出回应。
-
-苹果最初要求游戏发行商在6月底的最后期限前提交政府颁发的授权号，允许用户在全球最大的游戏市场进行应用内购买。
-
-苹果之后把截止日期延长至12月31日。
-
-中共国的安卓应用商店一直遵守有关牌照的规定。目前还不清楚苹果今年为什么会更加严格地执行这些规定。
-
-分析人士表示，此举并不令人意外，因为苹果正在继续填补漏洞，以符合中共国内容监管机构的要求，而且不会像之前的移除那样直接影响苹果的利润。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/6OtK2JczRvcAs/images/42c101b0-ddff-4cf6-9c54-122ed6dcd438.jpg?asset_id=6d2bab4a-5182-4aae-9404-a38e0b65b30b&amp;img_etag=%227fae99d74d5a542fe565e3c103926838%22&amp;size=2560)](https://spark.adobe.com/page/6OtK2JczRvcAs/images/42c101b0-ddff-4cf6-9c54-122ed6dcd438.jpg?asset_id=6d2bab4a-5182-4aae-9404-a38e0b65b30b&amp;img_etag=%227fae99d74d5a542fe565e3c103926838%22&amp;size=1024)
-
-“然而，这种只接受拥有游戏授权的付费游戏的转变，再加上今年中共国批准的外国游戏授权数量极低，可能会导致更多游戏开发商在中国区版本中转向广告支持模式”，帮助海外公司公司发布应用程序的公司AppInChina的市场经理托德•库恩斯 (Todd Kuhns) 说。
-
-[原文链接](https://presentdangerchina.org/2020/12/release-stop-mnuchins-perfidious-effort-to-eviscerate-trump-order-barring-indexes-etf-underwriting-of-malign-ccp-companies/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/6OtK2JczRvcAs/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/6OtK2JczRvcAs/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/6OtK2JczRvcAs/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+枭龙系列战机自问世之初，便因其“做工精细”而“广为人知”！后续三代版的双座型“工业风”座舱盖设计更是令业界诟病不已！该型的向右翻转开合式座舱盖，竟然使用了传统五金届的“扛把子折页”式铰链作衔接，从初型款的5组凸起铰链到三代版的3组所谓加强型凸起铰链。如此粗旷的烧脑设计真想不通是如何通过风洞测试的？
 
 +1
