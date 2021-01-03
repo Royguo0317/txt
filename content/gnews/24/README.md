@@ -1,24 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 霍利挑战宾州参议员图密在参议院辩论选举舞弊问题
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/712105/)
+## 中国共产党的土地承诺
+` 东京樱花团-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/712291/)
 
-- 编辑：Victor Torres
+HTS-02C-202012-015
 
+作者：欲静（喜马拉雅东京樱花团）
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-**西班牙2021年1月3日电/西喜社—**参议员乔什·霍利(Josh Hawley)周六回应了来自宾夕法尼亚州的 “共和党 “参议员帕特·图密(Pat Toomey)的指责，建议他们在参议院会场见面，就2020年选举舞弊问题进行辩论。霍利比图密更了解他所在州的选举舞弊问题。
-
-图密尚未就该挑战作出回应。
+- ![]()![](https://gnews.org/wp-content/uploads/2021/01/土地写真①-3.jpg)
 
 
+土地是全人类赖以生存的最重要资源。对于中国而言，从古到解放前，土地的持有与否，持有多少，直接就能反映出此人的生活状况。
 
-> [Senator Josh Hawley Challenges Pennsylvania Senator Pat Toomey to a Debate About Election Fraud on the Senate Floor](https://www.thegatewaypundit.com/2021/01/senator-josh-hawley-challenges-pennsylvania-senator-pat-toomey-debate-senate-floor-election-fraud/)
+中国共产党深知土地对民众的意义所在，所以，处心积虑地把土地控制在自己的手里，以实现自己的野心和目的。
+
+中国共产党把人的贪欲运用到了极致，利用民众斗民众，最后更进一步取得民心，可最后的结果呢？悲剧才刚刚开始！
 
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
-
-0
++1

@@ -1,49 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共在阿富汗对美军悬赏，塔利班持有中共国制造的武器
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/712334/)
+## 缺粮、缺电、缺水、缺钱、病毒再爆发，最坏的时候还没到来
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/712568/)
 
-新闻来源：《布赖特巴特》； 作者： IAN HANCHETT； 发布时间：January , 1,2021 /2021年1月1日
+新闻简述：郭先生在12月28日的第二个Getter视频中告诉墙内的战友中国最坏的日子还有到来，接下来会有缺粮、缺电、缺水、缺钱和病毒再爆发。他承诺他和法治基金、法制社会将给救助了墙内战友的花费予以报销。
+视频来源：[https://gtv.org/getter/5fea109787fabe2daf2c1375](https://gtv.org/getter/5fea109787fabe2daf2c1375)
+**中英文对照文本**
 
-*翻译/简评：Linda B；校对：Beicy-数学老师；审核：万人往；Page：Daoiii*
+Another thing, about the many BIAs living in China who are in trouble. Their families have been kept from going outdoors and their residence areas have been completely cut off [by lockdown], that is to say, they can’t go outside, buy food, or make phone calls. Beloved brothers and sisters, for the BIAs I can help, I will say no more here. Those BIAs I can’t reach out to and help, to my brothers or sisters who are watching this video: if that BIA in trouble needs help, and you truly can provide the help that they need, no matter if it’s food, or medicine, or money you have helped them with, as long as it has really happened, Brother Seven, the ROLF and the ROLS will do our utmost to reimburse you.
 
-[!\[\]()!\[\](https://spark.adobe.com/page/cqtWhblKYcak3/images/7c5af920-402e-4803-91cf-49e6969ee34e.jpg?asset_id=350bf523-88bd-41a5-bacc-388628a1f56e&amp;img_etag=%22c765ba1ca12847254e93744120282df7%22&amp;size=1024)](https://spark.adobe.com/page/cqtWhblKYcak3/images/7c5af920-402e-4803-91cf-49e6969ee34e.jpg?asset_id=350bf523-88bd-41a5-bacc-388628a1f56e&amp;img_etag=%22c765ba1ca12847254e93744120282df7%22&amp;size=1024)
+另外一个，关于国内很多[遭难的]战友。就是[那些]在疫区，[他们自己]或者家人被关起来[的]。[他们所在的]小区所有的[与外界的沟通渠道]被封锁，已及[出现了]不能出门，不能买粮食，不能打电话等[情况]……亲爱的兄弟姐妹们，我能帮助的战友们，我就不在这[里]多说了。不能帮的和帮不到的，能看到这个视频的兄弟姐妹们，如果有战友需要帮助的话，[而且]你真的能帮助咱们战友的话。[你们帮的东西]无论是食品，无论是药，无论是钱。只要是事实，七哥，和法治基金、法制社会，会尽全力给你们报销。
 
-***简评：***
+Remember the words I’ve just said. Sincere and genuine help does not include additional living costs. If you buy diapers or video games, that doesn’t count. Things that count are medicines given when someone is in imperative conditions, or helping the BIA with other practical and effective measures, like the type of cost for caring and rescuing. As long as [the person you help is] a donator of ROLF or ROLS, or an investor of G Series, or a BIA who has been supporting the Whistleblower Movement for a long period of time, if you have helped these people who are in trouble, come to Brother Seven for your reimbursement. For contact information, check out Himalaya Embassy group’s Discord server, okay?
 
-**随着美国总统川普对情报解密的进行，中共在阿富汗花钱悬赏对美军进行攻击的情报曝光。2019年6月21日，中共高调宣布塔利班首席谈判代表到北京。塔利班与中共苟合不是秘密。中共除了发动病毒这个生物武器来攻击美国，还在阿富汗利用恐怖组织来挑起争端。中共不但供给塔利班这个恐怖组织武器，还给大笔金钱鼓励他们对美军攻击。**
+记住我现在说的话。真心的帮助，不包括生活设施。你买尿不湿，你打游戏机了，这不算数。[算数是指]在危机时刻的药，和对战友切实有效的帮助，包括救死扶伤的这[类]成本。只要是法治基金、法治社会的捐款者，和G系列的投资者，和长期支持爆料革命的战友。只要你帮助这些人，到七哥这[里]来报销。联络方式，到Discord喜马拉雅大使馆群，好不好？
 
-**习近平却冠冕堂皇地说：“中共不输出革命，不输出意识形态。”中共这个组织其实就是一个撒谎的流氓组织，如果没有中共，世界就不会有CCP病毒带来的灾难。看今天的全球各国在疲于应付病毒大流行带来的冲击，中共却在利用塔利班来为美国制造更多的矛盾，如果中共不被消灭，未来的世界上将会发生更多的瘟疫流行和战争。**
+As long as you can get in touch with the BIAs in trouble, one-on-one and confidentially. If both parties can confirm that it has happened, and you also have testimony of a witness and physical evidence, Brother Seven will think of ways to reimburse you. Is that okay? What has especially touched me was that some BIAs really wanted to help, but they didn’t have the money or the resources needed, and some even had to pay out of pocket. The money spent will be reimbursed by Brother Seven, but like what I’ve just said, it must follow the standards I’ve just set. Do remember clearly.
 
-**原文翻译：**
+你只要联系上[落难战友]以后，单对单的，在保密的情况下。[如果]能证实，双方证实，有证据有人证，七哥想办法负责，中不中？特别让我感动[的是]，有些战友确实想帮，但没钱、没资源，有些要垫上。垫上的，七哥付。但是我说的是[这样]，一定是[按照]刚才的标准，记清楚啊。
 
-#### 
+The good days have long gone, and only when the new China comes shall they return. The bad days haven’t begun yet! The shortage of food, power, water and money, as well as the future outbreaks of the virus [will all come]. The worst time hasn’t come yet. Be mentally prepared for that!
 
-#### 共和党众议员沃尔茨谈中共赏金情报：“经常”看到塔利班手中有中共国制造的武器，我“要求”通报。
+好日子，早就过去啦。只有新中国到来的时候，才能回到好日子。坏日子，还没有开始呐！缺粮、缺电、缺水、缺钱，和病毒[的]再爆发[都可能来]。这个时候，最坏的时候，还没有到来呢。做好心理准备吧！
 
-[!\[\]()!\[\](https://spark.adobe.com/page/cqtWhblKYcak3/images/cd43ab41-b6bd-4204-a4d6-e87c3f8ad257.png?asset_id=d7f7c074-1ad7-4e56-b2be-81bc380429b6&amp;img_etag=%22ef12244fe1d7ec9ec528654f4b1e4c14%22&amp;size=2560)](https://video.foxnews.com/v/6219585996001)
+鸣谢：感谢彩虹桥的汉语听写： [https://gnews.org/zh-hans/693481/](https://gnews.org/zh-hans/693481/)
 
-[【点击查看视频】](https://video.foxnews.com/v/6219585996001)
+翻译：【gavinguo(文钦)】校对：【BruhM】【Isaiah4031】字幕：【Pamila（文明）】解码：【恒久忍耐】编辑：【Isaiah4031】
 
+喜马拉雅玫瑰园小队出品
 
-
-在周五福克斯新闻频道（Fox News Channel）的“福克斯与朋友（Fox＆Friends）”广播中，众议员迈克尔·沃尔茨（R-FL）对解密的情报做出了反应，暗示中共对在阿富汗的美军悬赏，指出他在阿富汗服务期间“经常看到崭新的中共国制造的武器”在塔利班的手里，并说他要求对该情报进行通报。
-
-
-
-沃尔茨说，{相关评论在7分15秒时开始}“当我们抓获了塔利班的人时，我们经常看到全新的中共国制造的武器到处都是。在那时我们一直不能够确认这些武器是从黑市购买的或者是由中共政府提供。我要求通报。如果这个情报是真实的，我想看到行动。”
-
-[原文链接](https://www.breitbart.com/clips/2021/01/01/gop-rep-waltz-on-china-bounty-intel-regularly-saw-chinese-made-weapons-in-hands-of-taliban-im-demanding-briefing/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】Edited by：【Himalaya Hawk Squad】
-[!\[\]()!\[\](https://spark.adobe.com/page/cqtWhblKYcak3/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/cqtWhblKYcak3/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
-
-0
++1
