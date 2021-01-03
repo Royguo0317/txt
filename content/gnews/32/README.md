@@ -1,38 +1,74 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 瑞士患者在接受辉瑞新冠疫苗后不久死亡
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/709534/)
+## 中共的“弥天大谎”造成全球新冠大流行，数百万人死亡
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/709834/)
 
-新闻来源：ZEROHEDGE《零对冲》； 作者：泰勒·德登（TYLER DURDEN）； 发布时间：2020年12月31日
+新闻来源：Zero Hedge《零对冲》； 作者：Austin Bay (奥斯汀•贝)； 发布时间：2020年12月31日
 
-翻译/简评：Marialu；校对：SilverSpurs7；审核：万人往；Page：拱卒
+翻译/简评：随波逐流；校对：X-Wing飞得更高；审核：万人往；Page：小雨
 
-[!\[\]()!\[\](https://spark.adobe.com/page/e90bj5DNPFzf6/images/06fd863d-873d-4117-a180-29d632bbfaa3.jpg?asset_id=65a37866-4a17-448d-b9f9-ed648a9821a7&amp;img_etag=%2253810cbe06978676f0c430087d830ea7%22&amp;size=2560)](https://spark.adobe.com/page/e90bj5DNPFzf6/images/06fd863d-873d-4117-a180-29d632bbfaa3.jpg?asset_id=65a37866-4a17-448d-b9f9-ed648a9821a7&amp;img_etag=%2253810cbe06978676f0c430087d830ea7%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/olp2bB8IQFB3I/images/907afa80-5e07-40a9-9d07-b7cf82d19bd7.jpg?asset_id=00b9e475-183d-44f5-ac77-9c53feb9257e&amp;img_etag=%224ded25ae40e91ab6664222a7f067dbb0%22&amp;size=2560)](https://spark.adobe.com/page/olp2bB8IQFB3I/images/907afa80-5e07-40a9-9d07-b7cf82d19bd7.jpg?asset_id=00b9e475-183d-44f5-ac77-9c53feb9257e&amp;img_etag=%224ded25ae40e91ab6664222a7f067dbb0%22&amp;size=1024)
 
 **简评：**
 
-瑞士一人接种辉瑞新冠疫苗后不久死亡，目前尚不清楚死因是否与接种有关。瑞士卢塞恩州于上周开始首批疫苗接种，首批接种对象为老年人。卢塞恩州官员周三表示，一名首批接种新冠疫苗的公民，在疫苗注射后不久死亡，但是瑞士政府没有说明死亡是否与接种有关。一位发言人说：“我们报告了这个案例，也已提交给瑞士药品监管机构——瑞士药物管理局进行调查。”
+中共掩盖Covid-19真相，制造了2020年最大和最致命的谎言，造成世界范围的新冠大流行，至今已死亡数百万人。从2019年12月的最后几天到2020年1月底，是新冠流行初期，也是能够有效控制全球大流行的关键时期。中共却训诫并处罚了预警的医生和研究人员，要求各级政府和各大媒体否认爆发了流行病，用防火墙封锁住真相的网上传播，同时允许中共国公民四处旅行传播病毒。
 
-如今病毒已经变异，这样的疫苗是否真正有效？新冠病毒是中共一手在P4实验室精心制造的，其目的就是要搞乱世界，毁灭人类文明。所以疫苗的研发永远赶不上病毒的变异速度。正如闫丽梦博士再次告诫西方世界：不能对中共抱有任何幻想，解决病毒的唯一方法就是灭共。摆在世人面前的只有两条路：要么灭掉中共，要么被中共用更多的病毒统治。
+中共从诞生的那天起，其本质就是为一己私利做事毫无原则底线，甚至至亲好友都可以牺牲的组织，说谎是它的看家本领。病毒作为“生化武器” 是中共元老级恶魔统治者为了实现2035年经济全面超越美国，并取而代之称霸世界所制定的邪恶“南普陀计划”的一部分，即文贵先生很早就爆出中共将打开的“潘多拉的盒子”。
+
+相信病毒只是其中一项，还会有更多卑劣手段。在遭遇香港抗议活动和美国贸易战等内忧外患，执政地位岌岌可危之际，中共放出这个病毒，不仅给了它喘息之机，最重要的是分化了美国社会，制造了内部矛盾，成功干扰了川普总统大选连任，并趁机欲扶植美国亲共势力上台，可谓“一石多鸟”。再加上它多年来以“蓝金黄”手段在各大国际组织和各国政界、商界、学术界、媒体界收买的各类代言人避重就轻、黑白颠倒地为中共散播的“弥天大谎”推波助澜，等于对全世界发动了各个领域的超限战，造成了今天全人类的惨剧。随之而来的经济危机、粮食危机将逐渐显现。中共是深植于全球民主国家的毒瘤，毒共不除，世界将永无宁日。
 
 **原文翻译：**
 
-# 瑞士患者在接受辉瑞新冠疫苗后不久死亡
+# **2020年的生物-经济世界大战：共产主义中国说谎；数百万人死亡**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/e90bj5DNPFzf6/images/6f9d6d94-370a-4aeb-b1a6-53f2f16749fb.jpg?asset_id=fe611657-c087-40ee-adfd-a85cbc90ed82&amp;img_etag=%22586393c997c72058d05110b3126a19b4%22&amp;size=2560)](https://spark.adobe.com/page/e90bj5DNPFzf6/images/6f9d6d94-370a-4aeb-b1a6-53f2f16749fb.jpg?asset_id=fe611657-c087-40ee-adfd-a85cbc90ed82&amp;img_etag=%22586393c997c72058d05110b3126a19b4%22&amp;size=1024)
+泰勒•德登转推; 2020年12月31日，星期四，23:30，作者:奥斯汀•贝,《大纪元》
 
-据报道，一名以色列男子在接种第一剂新冠病毒（COVID-19）疫苗后仅2小时就死亡，随后，瑞士卢塞恩州当局周三表示，该国首批接种疫苗的人中有一人已经死亡，不过他的死亡是否与接种疫苗有关尚未确定。
+中共COVID-19 /武汉病毒的虚假信息（掩饰）宣传运动被评为2020年度最大的谎言。**无论以何种标准衡量，特别是死亡人数，中共都制造了2020年最具严重后果和最致命的谎言。**
 
-至于从接种疫苗到该男子死亡的确切时间，该州尚未公布任何其他细节。
+[!\[\]()!\[\](https://spark.adobe.com/page/olp2bB8IQFB3I/images/8b1f4642-32ea-4857-aee4-db7c51db4005.jpg?asset_id=5f0d1ceb-6f25-4a3b-ad91-9e80deae8835&amp;img_etag=%22a36968587271056bc8e032fa67dc2ef8%22&amp;size=2560)](https://spark.adobe.com/page/olp2bB8IQFB3I/images/8b1f4642-32ea-4857-aee4-db7c51db4005.jpg?asset_id=5f0d1ceb-6f25-4a3b-ad91-9e80deae8835&amp;img_etag=%22a36968587271056bc8e032fa67dc2ef8%22&amp;size=1024)
 
-卢塞恩是上周开始瑞士首批疫苗接种的地点，辉瑞及其德国合作伙伴BioNTech公司的疫苗主要给老年人注射。到目前为止，瑞士已经接受了10.7万剂疫苗，预计从明年开始每月将接受25万剂疫苗。
+**以下分析总结了从2019年12月的最后几天到2020年1月底中共统治者的决定和行动，当时美国总统唐纳德•川普关闭了中共国大陆和美国之间的旅行航班。**
 
-一位发言人说：“**我们知道这起案件**。”然后补充说，死亡事件已经提交给瑞士药品监管机构—瑞士药物管理局（Swissmedic）。瑞士药物管理局没有进一步置评。
+(1）中共国的统治者 — 或他们受惊的政委和效忠的警察— 残忍对待并监禁了那些发现此病危及生命，并试图警告其他中国人和全世界医疗当局的医生和研究人员。
 
-辉瑞和BioNTech公司的疫苗是迄今为止瑞士唯一批准的疫苗。欧盟刚刚开始批准这些疫苗的紧急使用，本周早些时候开始注射第一批疫苗。
+(2）当这些勇敢的医生因履行医生职责而入狱时，这个独裁国家发动了谎言战争。下级政府的发言和受控制的媒体均否认该流行病的爆发。
 
-[原文链接](https://www.zerohedge.com/geopolitical/swiss-patient-dies-shortly-after-receiving-pfizer-covid-vaccine)
+(3）在迅速传播“弥天大谎”的同时，极权主义中共国采用强大的中共国防火墙功能来阻止互联网访问，允许中共国旅行者（尤其是农历新年度假者）将疾病传播到异国或本国 — 但始终是人类生物活动的国际场所。
+
+这些决定和行动是种族灭绝的打算还是通常的独裁者的无能？ 那不是最关键的问题。请读者注意：我最初写的是“战略问题”，而不是“杀手问题”，然后才意识到“战略问题”是一种相对委婉的说法。
+
+**杀手问题: 生物 – 经济袭击首先针对每个人的生命，其次是钱包。所以你在疾病中幸存下来。而你的国家在食品和健康方面遭受沉重打击。**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/olp2bB8IQFB3I/images/46015468-54cb-449e-83c2-0a913f3f4932.jpg?asset_id=a80e528e-796f-41d1-ae65-a33c6e79dc84&amp;img_etag=%2287ea4078da7163758a580c6bfd945707%22&amp;size=2560)](https://spark.adobe.com/page/olp2bB8IQFB3I/images/46015468-54cb-449e-83c2-0a913f3f4932.jpg?asset_id=a80e528e-796f-41d1-ae65-a33c6e79dc84&amp;img_etag=%2287ea4078da7163758a580c6bfd945707%22&amp;size=1024)
+
+1月初，中共独裁政权面临着这一战略性问题：一场将损害中共国经济的国内传染病。
+
+***事实：中共国残酷的独裁者们依靠经济上的成功来安抚那些心怀不满的公民，这些公民知道如何翻过强大的防火墙，因此知道中共下令实施了1989年的天安门大屠杀，曾杀死了2000多名中共国公民。经济成功？ 可解释为：用小型电动汽车和手机等物质进行收买。***
+
+这个独裁国家做了什么？ 它决定输出这种传染病。
+
+**独裁政权的残酷分析：武汉病毒大流行危及中共控制世界的战略计划。事实上，中共不能让中共国经济独自遭受武汉病毒的打击。输出这种流行病会减缓中共国自由市场和意识形态竞争对手的经济。额外的好处：它可能引起社会不满，尤其是在美国，在那里，行动自由被视为一项权利。**
+
+中共国的独裁者们掩盖了其感染地球的无情决定。它利用其全球政治、经济、学术和情报机构的资源迅速部署了一场宣传和谎言战运动。
+
+中共国的共产主义独裁者决定对全人类世界发动一场新型的生物-经济战争。
+
+要特别注意（受贿赂的批评家和中共魔鬼将不会注意）。**我并不是争论病毒是军事和医学定义的对动物或植物进行生物攻击的一种生物武器。我在争辩的是，中共领导层允许这种病毒传播到中国以外，这样其他每个国家都将遭受这种疾病带来的医疗、经济和社会后果。**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/olp2bB8IQFB3I/images/43fc19fe-e5bb-41d1-8d2c-c87cbade1abc.jpg?asset_id=662bd8d6-ee43-4459-82ff-55c65e1a12ae&amp;img_etag=%227cc1daab5c229ac362544848a9202e0f%22&amp;size=2560)](https://spark.adobe.com/page/olp2bB8IQFB3I/images/43fc19fe-e5bb-41d1-8d2c-c87cbade1abc.jpg?asset_id=662bd8d6-ee43-4459-82ff-55c65e1a12ae&amp;img_etag=%227cc1daab5c229ac362544848a9202e0f%22&amp;size=1024)
+
+**这项决定等于对非中共国的人群及其经济发动了生物 -经济战，从富裕国家到悲惨的贫穷国家。**
+
+目前，武汉病毒在撒哈拉以南非洲国家肆虐。在过去四周，联合国机构已发出有关南苏丹饥饿状况的警告。该流行病抑制了南苏丹的食物分配。因此，中国共产党的生物 -经济战杀死了穷人中最穷的人。肤浅的媒体没关注到这个故事，也没注意到武汉病毒与饥饿的联系。
+
+也许错过这个故事不是无意的。受中共国影响的组织，尤其是学术界和媒体领域的组织，为2020年的“弥天大谎”做出了贡献。美国加利福尼亚州民主党众议员埃里克•斯瓦尔威尔（Eric Swalwell）显然是一个被中共腐化的政治人物。
+
+**随着2021年的到来，CCP的掩盖行为将继续。因质疑中共2020年初的虚假谎言，中共一家法院刚刚判处公民记者张展入狱。**
+
+张展将因说出中共国大谎言的真相而入狱四年。
+
+[原文链接](https://www.zerohedge.com/geopolitical/2020s-bio-economic-world-war-communist-china-lied-millions-humans-died?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
 
 [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
@@ -40,8 +76,8 @@
 
 [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/e90bj5DNPFzf6/)
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/olp2bB8IQFB3I/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/e90bj5DNPFzf6/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/e90bj5DNPFzf6/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/olp2bB8IQFB3I/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/olp2bB8IQFB3I/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
-+1
+0

@@ -1,59 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 苹果从中国区商店下架39000款游戏应用
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/709725/)
+## 马克·莱因Mark Levin:共和党人要维护美国宪法
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/710088/)
 
-新闻来源：Reuters《路透社》； 作者：Pei Li； 发布时间：2020年12月31日
+![]()![](https://gnews.org/wp-content/uploads/2021/01/cropped_image1.png)图片来自网络
+保守派大V马克·莱因（Mark Levin）敦促共和党人忽视“懦弱且不可依赖的”共和党领导人，并支持阿拉巴马州众议员莫·布鲁克斯（Mo Brooks）在1月6日的投票中挑战几个州的选票，以确认选举团的结果。
 
-*翻译/简评：MikeHua；校对：SilverSpurs7；审核：万人往；Page：小雨*
+“对共和党人来说，我们对他们的要求并不高，他们都宣誓过要捍卫美国宪法。维护第二修正案。他们必须代表美国人民，很鲜明的告诉民主党人：美国人民相信我们，我们是不会让美国人民失望的。” 他在TheBlaze专栏中写道。
 
-**简评：**
+他敦促共和党议员不要理睬参议院多数党领袖米奇·麦康奈尔（Mitch McConnell）等人的接受选举结果，而不顾明显的选举欺诈。和对特朗普总统的不公的行为。
 
-苹果公司为了能够进入中国庞大的市场对中共政权俯首叩头，没有一丁点尊严，完全受中共的控制。中共利用美国这些大公司软弱贪财的本性，再加上14亿中国人民的勤劳创造出来的市场对美国进行要挟恐吓，收买控制政客，还要偷盗美国大选企图颠覆美国，这样的日子必须结束了。
+他认为1月6日以后，无论共和党人是赢，平局，还是输。都不能消极。绝不和民主党人与媒体同流合污。己经有太多的共和党人变节，包括共和党领袖米奇，麦康奈尓。参议员约翰，图森。众议员亚当，金津格。毫无疑问，在面临有组织的暴民时，有人会退缩。
 
-中共做的一切恶都是未来我们灭共最好的证据。现在中共仍然在地球上肆虐，病毒没有一点转好的迹象。但是我们都很清楚，世界不会允许中共继续这样肆虐下去，2021年一定是全世界奋起反击的一年，不然人类将会失去一切。只有消灭共产党，人类才有未来。Take down the CCP，灭掉共产党！
+但是我们不能被那些故意操纵政治和法律来破坏我们的宪法秩序的人吓倒。他们是一定会受到应有的惩罚。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/6OtK2JczRvcAs/images/55776140-970c-4e42-ad24-2273db10b4d7.jpg?asset_id=bf03289c-5372-40d3-aa63-403a81e2b010&amp;img_etag=%229b735ec29b0d3c9d8bbd8731f2c87687%22&amp;size=2560)](https://spark.adobe.com/page/6OtK2JczRvcAs/images/55776140-970c-4e42-ad24-2273db10b4d7.jpg?asset_id=bf03289c-5372-40d3-aa63-403a81e2b010&amp;img_etag=%229b735ec29b0d3c9d8bbd8731f2c87687%22&amp;size=1024)
+然后他列出了15种方法，民主党在宾夕法尼亚州，密歇根州，威斯康星州和佐治亚涉嫌操纵或改变规则，以帮助总统当选人拜登。
 
-# **苹果从中国区应用商店移除39000款到期游戏**
+例如，在宾夕法尼亚州，他说民主党人确保2016年大选后，新任州最高法院的三名法官是自由主义者。 他还说，规则已更改，以符合投票要求，选票上的邮戳以及匹配签名的最终要求。 他还说，投票截止日期已延长。
 
-香港（路透社） – 苹果周四下架了其中国区商店的39000款游戏应用，创下单日下架规模之最。年底是所有游戏发行商获得授权的最后期限。.
+在密歇根州，他说更改了投票申请规则，取消了签名验证，更改了投票截止日期，仅邮寄了大约700万张选票。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/6OtK2JczRvcAs/images/16e283af-785a-4937-85b8-dd250604dbd6.png?asset_id=b0c400d4-c91e-4215-98f7-891107bdffbb&amp;img_etag=%22c81aa0cee38a6f47abc91e0753d7c79d%22&amp;size=2560)](https://spark.adobe.com/page/6OtK2JczRvcAs/images/16e283af-785a-4937-85b8-dd250604dbd6.png?asset_id=b0c400d4-c91e-4215-98f7-891107bdffbb&amp;img_etag=%22c81aa0cee38a6f47abc91e0753d7c79d%22&amp;size=1024)
+在威斯康星州，投票箱放置在民主党地区，教民主党人如何避免签署规则。
 
-*档案图片：苹果公司在其加州库比蒂诺总部一次活动中展示的logo，2019年9月10日。路透社/Stephen Lam。*
+他说，在佐治亚州，投票签名规则发生了变化，挑战性投票的巨大新障碍也已到位。 他还指出，敦促民意调查官员接受民主党起草的培训。 他补充说，各州无视美国最高法院的裁决。
 
-此次大规模下架应用程序正值中共政府大面积封杀未授权游戏之际。
+“因此，在这四个战场州中的每个州中-还有其他州-无论是通过行政命令还是诉讼，州选举法的关键（如果不是核心的）方面都发生了根本性的变化，这违反了赋予州议会的权力， 同时也违反了联邦宪法和指导选举选民的程序。”
 
-周四苹果总共移除了46000个应用程序，其中包括39000款游戏。根据七麦公司的数据，被下架的游戏包括育碧的“刺客信条”和“NBA 2K20”。
+很快就到1月6日的国会投票日，每一位参议员，众议员都到了检验他们有没有违背他们当初的誓言的时候，也是检验他们真的是代表他们的选民还是只代表他们个人的利益。这是他们政治生涯中的一次最重要的选择。全美国人民看着你们，全世界人民看着你们，上帝也看着你们。
 
-七麦公司同时表示，排名最前的1500个付费游戏中只有74款幸存了下来。
+[原文链接](https://www.washingtonexaminer.com/washington-secrets/mark-levins-list-15-ways-democrats-stole-the-election)
 
-苹果没有立刻做出回应。
+翻译报道：正常人
+校对整理：非正常人
 
-苹果最初要求游戏发行商在6月底的最后期限前提交政府颁发的授权号，允许用户在全球最大的游戏市场进行应用内购买。
-
-苹果之后把截止日期延长至12月31日。
-
-中共国的安卓应用商店一直遵守有关牌照的规定。目前还不清楚苹果今年为什么会更加严格地执行这些规定。
-
-分析人士表示，此举并不令人意外，因为苹果正在继续填补漏洞，以符合中共国内容监管机构的要求，而且不会像之前的移除那样直接影响苹果的利润。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/6OtK2JczRvcAs/images/42c101b0-ddff-4cf6-9c54-122ed6dcd438.jpg?asset_id=6d2bab4a-5182-4aae-9404-a38e0b65b30b&amp;img_etag=%227fae99d74d5a542fe565e3c103926838%22&amp;size=2560)](https://spark.adobe.com/page/6OtK2JczRvcAs/images/42c101b0-ddff-4cf6-9c54-122ed6dcd438.jpg?asset_id=6d2bab4a-5182-4aae-9404-a38e0b65b30b&amp;img_etag=%227fae99d74d5a542fe565e3c103926838%22&amp;size=1024)
-
-“然而，这种只接受拥有游戏授权的付费游戏的转变，再加上今年中共国批准的外国游戏授权数量极低，可能会导致更多游戏开发商在中国区版本中转向广告支持模式”，帮助海外公司公司发布应用程序的公司AppInChina的市场经理托德•库恩斯 (Todd Kuhns) 说。
-
-[原文链接](https://presentdangerchina.org/2020/12/release-stop-mnuchins-perfidious-effort-to-eviscerate-trump-order-barring-indexes-etf-underwriting-of-malign-ccp-companies/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/6OtK2JczRvcAs/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/6OtK2JczRvcAs/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/6OtK2JczRvcAs/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
-+1
+0
