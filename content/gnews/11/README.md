@@ -1,27 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》每日简报晚间版 2020.12.30&#8211;NewYork Time
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/706374/)
+## 中共在阿富汗对美军悬赏，塔利班持有中共国制造的武器
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/712334/)
 
-出品《路德社》 编辑：路德社精选新闻专栏组
-![]()![](https://gnews.org/wp-content/uploads/2021/01/1230-PM-ZH-scaled.jpg)
-1230晚路德社简报
+新闻来源：《布赖特巴特》； 作者： IAN HANCHETT； 发布时间：January , 1,2021 /2021年1月1日
 
-美情报部门通过媒体披露，中共付赏金给塔利班成员袭击美国军队。
+*翻译/简评：Linda B；校对：Beicy-数学老师；审核：万人往；Page：Daoiii*
 
-两名高级官员告诉阿克西奥斯新闻网，川普政府正在对未经证实的情报解密，该情报最近已告知川普总统，中共付赏金给塔利班组织成员袭击美国军队。12月25日，阿富汗政府抓到10名中国公民，因涉嫌间谍活动和经营恐怖组织而被拘留，还被指控在喀布尔经营恐怖牢房。塔利班之所以能活下来就是因为中共不断给钱。
+[!\[\]()!\[\](https://spark.adobe.com/page/cqtWhblKYcak3/images/7c5af920-402e-4803-91cf-49e6969ee34e.jpg?asset_id=350bf523-88bd-41a5-bacc-388628a1f56e&amp;img_etag=%22c765ba1ca12847254e93744120282df7%22&amp;size=1024)](https://spark.adobe.com/page/cqtWhblKYcak3/images/7c5af920-402e-4803-91cf-49e6969ee34e.jpg?asset_id=350bf523-88bd-41a5-bacc-388628a1f56e&amp;img_etag=%22c765ba1ca12847254e93744120282df7%22&amp;size=1024)
 
-掩盖中共勾兑恐怖组织，纽约时报虚假报道
+***简评：***
 
-今年6月，白宫新闻秘书凯利·麦肯尼抨击纽约时报，因为纽约时报发布说俄罗斯支付赏金给塔利班袭击美军，麦肯尼说这是假情报。路德社说纽约时报绝对是中共让他们这样报道的，把矛头指向俄罗斯。
+**随着美国总统川普对情报解密的进行，中共在阿富汗花钱悬赏对美军进行攻击的情报曝光。2019年6月21日，中共高调宣布塔利班首席谈判代表到北京。塔利班与中共苟合不是秘密。中共除了发动病毒这个生物武器来攻击美国，还在阿富汗利用恐怖组织来挑起争端。中共不但供给塔利班这个恐怖组织武器，还给大笔金钱鼓励他们对美军攻击。**
 
-班农在作战室定义闫博士改变人类历史进程
+**习近平却冠冕堂皇地说：“中共不输出革命，不输出意识形态。”中共这个组织其实就是一个撒谎的流氓组织，如果没有中共，世界就不会有CCP病毒带来的灾难。看今天的全球各国在疲于应付病毒大流行带来的冲击，中共却在利用塔利班来为美国制造更多的矛盾，如果中共不被消灭，未来的世界上将会发生更多的瘟疫流行和战争。**
 
-今天闫丽梦博士接受班农战斗室采访说，中共早期噤声李文亮，掩盖病毒严重程度，就是因为这是中共的生物武器，在他们的目的还没达到前，他们不想让人知道。班农说，闫博士已经改变了人类历史进程！川普总统第二任期一开始的焦点就是对中共在病毒上的所作所为追责！路德社说闫博士改变世界的三次，第一次1月19日通过路德社节目爆料病毒真相，第二次，两份关于中共病毒的报告，第三次上美国媒体全英文传播中共病毒真相！
+**原文翻译：**
 
-文案：《路德社》简报组：瓦者，为自由
-审核校对：玫瑰天空
-上传排版：青葫芦娃
+#### 
+
+#### 共和党众议员沃尔茨谈中共赏金情报：“经常”看到塔利班手中有中共国制造的武器，我“要求”通报。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/cqtWhblKYcak3/images/cd43ab41-b6bd-4204-a4d6-e87c3f8ad257.png?asset_id=d7f7c074-1ad7-4e56-b2be-81bc380429b6&amp;img_etag=%22ef12244fe1d7ec9ec528654f4b1e4c14%22&amp;size=2560)](https://video.foxnews.com/v/6219585996001)
+
+[【点击查看视频】](https://video.foxnews.com/v/6219585996001)
+
+
+
+在周五福克斯新闻频道（Fox News Channel）的“福克斯与朋友（Fox＆Friends）”广播中，众议员迈克尔·沃尔茨（R-FL）对解密的情报做出了反应，暗示中共对在阿富汗的美军悬赏，指出他在阿富汗服务期间“经常看到崭新的中共国制造的武器”在塔利班的手里，并说他要求对该情报进行通报。
+
+
+
+沃尔茨说，{相关评论在7分15秒时开始}“当我们抓获了塔利班的人时，我们经常看到全新的中共国制造的武器到处都是。在那时我们一直不能够确认这些武器是从黑市购买的或者是由中共政府提供。我要求通报。如果这个情报是真实的，我想看到行动。”
+
+[原文链接](https://www.breitbart.com/clips/2021/01/01/gop-rep-waltz-on-china-bounty-intel-regularly-saw-chinese-made-weapons-in-hands-of-taliban-im-demanding-briefing/)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】Edited by：【Himalaya Hawk Squad】
+[!\[\]()!\[\](https://spark.adobe.com/page/cqtWhblKYcak3/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/cqtWhblKYcak3/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
 
 0

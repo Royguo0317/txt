@@ -1,32 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒疫苗不管用的问题的解答
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/711432/)
+## 《路德社》精选主题专栏：懦夫，叛徒变污点证人？川普的终极王炸！
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/708983/)
 
-台湾农场(筹备)文旦
+《路德社》精选主题专栏组出品
 
-中共病毒爆发至今，从1月19号的路德访谈中，可以知道他是一个生化武器，在未来让人类面临灾害性的挑战，在英雄科学家阎丽梦博士，的2份论文，更能了解此病毒，是生化武器，并拿来使用作为超限战武器，影响世界，经济秩序及大选，藉由病毒影响大选程序，干预大选，藉由病毒影响人民，进而控制人民，实施封锁的其他措施。
+昨日2/1/2021美国国务卿彭培奥的推特连推了几位有争议政治人物的照片，姆努卿，吉娜, 巴尔等，这些人都曾因为没有尽忠职守成为爱国者们眼中的负面人物。但是今天彭培奥每30分钟接连推送他们的照片，并配上同一文字“巨大的挑战，伟大的团队，保卫美国的自由。”标签“昂首阔步”（Big challenges. Great team. Securing Americans’ freedom. [#Swagger](https://twitter.com/hashtag/Swagger?src=hashtag_click) ）
 
-现在中共病毒疫苗已开始被研究出来，但这些疫苗会有效用吗?，在路德访谈这些历史影片，能够得知，为什么疫苗为无效。
+彷佛为彭培奥的推特打广告，特朗普法律团队大律师林伍德提前一个小时发推：请用辨别力关注彭培奥发的照片，他说的都是真的。
 
-因为病毒有ADE效应、ACE2结合、细胞因子风暴，三大致命因素，其中ACE2是由石正丽发现的，并且至今没有冠状病毒的疫苗被研发成功，ADE的问题也没有被解决，如过公布有ADE效应就不会让药厂要进行开发疫苗，需要拥有病毒的原始数据才能够做出真正的疫苗，并且当初做的疫苗，因为被加强改造成现在在右出现的变异疫苗，阎博士说过，病毒不会只有一种病毒株，所以疫苗才不会有效，A型、B型、C型……型等等，这就是灾难，现在有1月29号路德访谈就提供的硫酸羟氯喹，能够预防，并有效预防该三大致命因素，希望大家能够传播真相，传播给更多人，一人理解将拯救更多人，愿大家能够平安。
 
-以上根据路得访德直播内容为主。
 
-参考资料:
+> Secretary of State Mike Pompeo [@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw) is a truth-giver. When Sec. Pompeo speaks, listen carefully.
+> 
+> Today is a very good day to visit home page of Sec. Pompeo & read his tweets very carefully. View his posted photos with discernment.
+> 
+> Happy New Year!
+> — Lin Wood (@LLinWood) [January 1, 2021](https://twitter.com/LLinWood/status/1345083716465524737?ref_src=twsrc%5Etfw)
 
-1/29 25:00 [https://www.youtube.com/watch?v=m3PQss3oMkg&t=2863s](https://www.youtube.com/watch?v=m3PQss3oMkg&amp;t=2863s)
 
-3/19  11:12 [https://www.youtube.com/watch?v=e9VhosORHts](https://www.youtube.com/watch?v=e9VhosORHts)
 
-5/22 15:00 [https://www.youtube.com/watch?v=X7vRcuWP9Rs](https://www.youtube.com/watch?v=X7vRcuWP9Rs)
+要想拥有这个辨别力还真是不容易，美国大选发展到今天已经成了顶级烧脑大片。这些照片都是老照片，比如美国中央情报局（CIA ）局长吉娜.哈斯佩尔的照片是2018年她就任宣誓时拍的片。推特中文大V西行小宝用了当时的另外一张照片做对比，引发了人们的猜想。这另外的照片是吉娜举手宣誓，面对她的是引领宣誓词的副总统**彭斯**。“彭培奥的照片少了副总统彭斯”，“重点不在照片中的人，而在于不在照片中的人”。跟推的很多读者都发现了，这个标签“昂首阔步“的系列照片中都没有出现副总统彭斯。
 
-8/30  42:14 [https://www.youtube.com/watch?v=bH\_PfkfcV0E](https://www.youtube.com/watch?v=bH_PfkfcV0E)
+作为特朗普的竞选搭档，副总统彭斯尽管在12月23日仍大声呼吁人们继续为选举而战，“直到每一个合法的投票被点算，直到每一张非法选票被剔除”，却成功“错过”12月23日推翻7个摇摆州有争议选举结果的最后期限，而且在12月31日指责一些[共和党](https://www.aboluowang.com/tag/%E5%85%B1%E5%92%8C%E5%85%9A-1.html)人为推翻大选结果，要求法院赋予他在1月6日联邦议会上，可以无视部分州选举人票的诉讼毫无意义。
 
-8/31  37:52 [https://www.youtube.com/watch?v=D4oR6MbWBKQ](https://www.youtube.com/watch?v=D4oR6MbWBKQ)
 
-- [https://www.youtube.com/watch?v=tsKKZfnbvbU](https://www.youtube.com/watch?v=tsKKZfnbvbU)
 
+> 1/1 国务卿彭培奥在告诉人们什么？也许另一张照片摆在一起才能更明白。👇第一张是彭培奥先生发的，第二张是哈斯佩尔宣誓参与人的完整照片。原来少了彭斯副总统！哦，这就是这个推的真实含义，焦点不在照片中的人，而在于不在照片中的人。妙，妙，妙！彭培奥确信关于选举一切都会真相大白！等待1月6号‼️ [https://t.co/uRCvLEEhuL](https://t.co/uRCvLEEhuL) [pic.twitter.com/waFqnMKhKl](https://t.co/waFqnMKhKl)
+> — 西行小宝 (@htommy998) [January 2, 2021](https://twitter.com/htommy998/status/1345197531660124160?ref_src=twsrc%5Etfw)
+
+
+
+因此“彭斯牌”成了一个不确定的问号，所以特朗普竞选团队打出了“吉娜牌” “姆努卿牌“， “巴尔牌”？！这些曾经的“懦夫”和“叛徒”要做污点证人了吗？一位推友跟推评论道：“我听说吉娜在法兰克福服务器争夺战中被逮个正着，然后她就和盘托出了特朗普大选真实的数据。”还有评论写道：“她真的做了污点证人，真的太好了”。
+
+但也有推友深究文字，保卫=逮捕，“这些人进监狱，美国才有自由”。
+
+美国大选目前进入无声的战斗，明面上拜登仍然是媒体口中“新当选的美国总统”，正因为疫情原因，考虑低调进行20/1/2021 的总统任职大典；而全世界的目光仍然聚焦在现任总统特朗普身上，不仅因为他顽强地继续着大选欺诈案的起诉，而且因为他志在必得的信心，2021年1月1日，他在推文里说，大量选举欺诈证据将在1月6日国会联席会议上公之于众， “我们已经赢得大选，大胜！”。
+
+强者用实力说话，这些污点证人是否就是特朗普总统的1月6日杀手锏团队？如果曾经的影子政府成员亲身指证拜登窃国阴谋，谁还能硬生生认证非法的选举人票？那不是当着200万挺川队伍面犯罪吗？还有比这样的人证物证俱在的公之于众更有说服力吗！文贵先生昨日提醒战友们，看美国的政坛就要看实力，就看能不能把对方的人变成自己人。在强大的民意面前，在特朗普总统爱国者团队多年的精心布局下，就算曾经被金钱美色买断，这些人也会在实力面前倒向正义一面，让我们拭目以待，1月6日的正邪终极之战。
+
+【文章仅限作者个人观点】
+
+本文作者：Sherryok水云间
+审核校对：玫瑰天空
+上传排版：糖果儿
 
 +1
