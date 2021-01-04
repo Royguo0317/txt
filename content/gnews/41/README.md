@@ -1,25 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 不同于路德先生这期节目的另一种观点
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/712011/)
+## 川普说COVID死亡人数被大大夸大——他一定是在说他们扔在名单上的所有因中毒和枪击死亡的人数
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/713370/)
 
-作者：小毛牛  校对：pv0
+翻译：康州盘古农场 – Bruce
+校对：康州盘古农场 –烟波浩淼
+审核：康州盘古农场 – V
 
-我提出如下两点不同于路德先生这期节目中，关于这次大选最终会是以妥协为结果的看法：
+周日上午，美国总统川普发布了一条关于美国疾控中心（CDC）夸大COVID数字的推特。
 
-1, 1876年的大选并没有如今隐藏在政治人物后面强大的制造鳄鱼池和养鳄鱼的人。是他们首先的觉醒才有川普总统2016年的当选。他们是决定美国未来走向的人。
+川普总统。中共病毒的病例数和死亡人数在美国被远远夸大，因为CDC的判定方法比其他国家可笑，很多国家的报告，都是故意的，很不准确，很低。”有疑问就叫COVID” 假新闻!
 
-为什么川普有2016年当选的迫切需要，请参阅：https://gnews.org/zh-hans/692478/
 
-2，1876年的美国社会中并没有如今的美国社会所面临的来自极左共产主义思潮的威胁，这种共产主义思潮如果不借助此次大选将其彻底遏制，只会越来越壮大，最终将再次对美国形成致命威胁。尤其是现在的左派当权者不被送进监狱或者赶下台，各种层出不穷的滋生滋养极左思潮的法案将会被陆续推出。
 
-总的来说，这次的大选之所以要将隐藏的鳄鱼暴露出来，以及唤醒美国的民意让美国人民认清这些人根本不在意美国的国家利益，意图就是要将这股随时可能颠覆美国的黑暗力量清除干净。
+> The number of cases and deaths of the China Virus is far exaggerated in the United States because of [@CDCgov](https://twitter.com/CDCgov?ref_src=twsrc%5Etfw)’s ridiculous method of determination compared to other countries, many of whom report, purposely, very inaccurately and low. “When in doubt, call it Covid.” Fake News!
+> — Donald J. Trump (@realDonaldTrump) [January 3, 2021](https://twitter.com/realDonaldTrump/status/1345720107255926784?ref_src=twsrc%5Etfw)
 
-这次侥幸因为有文贵先生2016年之前带着大量的实锤情报才拯救了美国免遭ccp以及ccp控制下的鳄鱼的颠覆。如果不借助此次大选将ccp以及已经形成风潮的左派思潮彻底铲除，下一次恐怕不会再那么幸运有文贵先生这样的人站出来了。
 
-此次大选关乎人类文明的走向，而人类的文明势必是要向前走的！！！
+*唐纳德·J·川普@realDonaldTrump*： *在美国，中国病毒的病例数和死亡数被大大夸大了，原因是与其他国家相比@CDCgov的荒谬的确定方法，其中许多国家故意，非常不准确且报道很低。 “如果有疑问，请称其为Covid。”假新闻！*
+川普是对的。
 
-（文章仅代表作者个人观点）
+最新的疾控中心每周冠状病毒数字列出了294,884人因冠状病毒而死亡。
 
-+3
+这是列表
+![]()![](https://gnews.org/wp-content/uploads/2021/01/covid-deaths-US-1.jpg)source：https://www.cdc.gov/nchs/nvss/vsrr/covid\_weekly/index.htm, table 3. 
+但是，如果你仔细看这些数字，其中：
+
+10,874人死于故意和无意伤害、中毒和 “其他不良事件”。
+
+11,554人是由于阿尔茨海默氏病。
+
+47,351人是由于糖尿病
+
+33,367人心脏病发作
+
+14,350人癌症患者
+
+几个月来，医生和调查记者都想知道为什么美国冠状病毒死亡人数包括摩托车事故、凶杀、出生缺陷、枪伤和成千上万的故意伤害以及中毒都计入美国冠状病毒死亡总数。
+
+而在新加坡和其他国家，医学专家遵循世界卫生组织的指引，不把非肺炎冠状病毒的死亡人数计算在内。
+
+所以，当然，他们的数字比美国低得多。
+
+**那么真实的数字是多少呢？**
+
+原文作者：吉姆·霍夫特（Jim Hoft）
+
+发布时间：2021年1月3日 上午7:46
+
+文章链接：
+
+[https://www.thegatewaypundit.com/2021/01/trump-says-covid-deaths-greatly-exaggerated-must-talking-poisonings-shootings-threw-list/](https://www.thegatewaypundit.com/2021/01/trump-says-covid-deaths-greatly-exaggerated-must-talking-poisonings-shootings-threw-list/)
+
++1

@@ -1,33 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 缺粮、缺电、缺水、缺钱、病毒再爆发，最坏的时候还没到来
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/712568/)
+## CRISPR 基因剪辑技术是什麽？
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/713941/)
 
-新闻简述：郭先生在12月28日的第二个Getter视频中告诉墙内的战友中国最坏的日子还有到来，接下来会有缺粮、缺电、缺水、缺钱和病毒再爆发。他承诺他和法治基金、法制社会将给救助了墙内战友的花费予以报销。
-视频来源：[https://gtv.org/getter/5fea109787fabe2daf2c1375](https://gtv.org/getter/5fea109787fabe2daf2c1375)
-**中英文对照文本**
+撰文：Yumi
 
-Another thing, about the many BIAs living in China who are in trouble. Their families have been kept from going outdoors and their residence areas have been completely cut off [by lockdown], that is to say, they can’t go outside, buy food, or make phone calls. Beloved brothers and sisters, for the BIAs I can help, I will say no more here. Those BIAs I can’t reach out to and help, to my brothers or sisters who are watching this video: if that BIA in trouble needs help, and you truly can provide the help that they need, no matter if it’s food, or medicine, or money you have helped them with, as long as it has really happened, Brother Seven, the ROLF and the ROLS will do our utmost to reimburse you.
+编辑：光耀华夏 视频剪辑：Trump2020
+![]()![](https://gnews.org/wp-content/uploads/2021/01/配图.jpg)图片来源：Twitter
+吵得沸沸扬扬的CCP病毒让整个世界引起的封锁和经济的萧条，让人们开始怀疑CCP 生物武器的意图？藉这机会让我们来了解什麽是CRISPR。它是一种合成生物学用于修改或创建生物有机体的概念、工具和方法，也是合成生物学的最新突破，是一种被称为CRISPR-Cas9的基因工程技术。就是存在于细菌当中的一种基因，这一类的基因组中含有曾经攻击过此种细菌的病毒的基因片段。细菌透过这些基因片段来侦测并抵抗相同病毒的攻击，并摧毁其DNA。这类基因组是细菌免疫系统的关键组成部分。透过这些基因组，人类可以准确且有效地编辑生命体内的部分基因，也就是CRISPR-Cas9基因编辑技术。
 
-另外一个，关于国内很多[遭难的]战友。就是[那些]在疫区，[他们自己]或者家人被关起来[的]。[他们所在的]小区所有的[与外界的沟通渠道]被封锁，已及[出现了]不能出门，不能买粮食，不能打电话等[情况]……亲爱的兄弟姐妹们，我能帮助的战友们，我就不在这[里]多说了。不能帮的和帮不到的，能看到这个视频的兄弟姐妹们，如果有战友需要帮助的话，[而且]你真的能帮助咱们战友的话。[你们帮的东西]无论是食品，无论是药，无论是钱。只要是事实，七哥，和法治基金、法制社会，会尽全力给你们报销。
+“American Secure Project”作者Nicholas Cropper说就以第一次基因工程实验在老鼠的身上要花好几个月完成，又花几百万美元但效果不见得满意。CRISPR-Cas9 改变了所有的看法，这个基因编辑工程提供了一个相对简单、低成本、快速的基因改造工具。CRISPR-Cas9已经变得如此民主化，任何人都可以得到一切，他们只需要执行一个简单的基因改变交付到他们，花费不到300美元。
 
-Remember the words I’ve just said. Sincere and genuine help does not include additional living costs. If you buy diapers or video games, that doesn’t count. Things that count are medicines given when someone is in imperative conditions, or helping the BIA with other practical and effective measures, like the type of cost for caring and rescuing. As long as [the person you help is] a donator of ROLF or ROLS, or an investor of G Series, or a BIA who has been supporting the Whistleblower Movement for a long period of time, if you have helped these people who are in trouble, come to Brother Seven for your reimbursement. For contact information, check out Himalaya Embassy group’s Discord server, okay?
+但这个尖端的生物工具可以用在生物医学食品等等基因改造工程。可是缺乏对这些工具的监督可能对人类构成危险，尤其在不对等战争用低成本，低调，潜在的灾难性大规模杀伤性武器：生化武器——基因工程生物技术。
 
-记住我现在说的话。真心的帮助，不包括生活设施。你买尿不湿，你打游戏机了，这不算数。[算数是指]在危机时刻的药，和对战友切实有效的帮助，包括救死扶伤的这[类]成本。只要是法治基金、法治社会的捐款者，和G系列的投资者，和长期支持爆料革命的战友。只要你帮助这些人，到七哥这[里]来报销。联络方式，到Discord喜马拉雅大使馆群，好不好？
+在美国安全项目网站上提到CRISPR-Cas9的技术提高基因工程的可用性，降低了一般人在经济上和技术上的入门槛。CRISPR-Cas9可以在您的厨房完成，操作佔用空间相当小。那如何把CRISPR-Cas9特定应用被用作武器的可能性，美国国家科学院的科学家已经将潜在的应用分类为相对程度的关注。迈克尔·艾因斯考夫上校在为美国空军空战学院写的论文中强调了生化武器的威胁：“生物技术仅利用设计小规模特别行动就能造成大规模伤亡，这种行动可以逃避侦查，以避免报复。在非对称战争中，生物武器被视为‘伟大的平衡者’。”
 
-As long as you can get in touch with the BIAs in trouble, one-on-one and confidentially. If both parties can confirm that it has happened, and you also have testimony of a witness and physical evidence, Brother Seven will think of ways to reimburse you. Is that okay? What has especially touched me was that some BIAs really wanted to help, but they didn’t have the money or the resources needed, and some even had to pay out of pocket. The money spent will be reimbursed by Brother Seven, but like what I’ve just said, it must follow the standards I’ve just set. Do remember clearly.
+反思这次CCP 製造的COVID-19 病毒造成的危机用CRISPR 来完成，如有兴趣可参考闫丽梦博士拆穿中共病毒的蝙蝠女石正丽自然学说的谎言。里面有个有趣的福林酶切位点的相同手法的暴露，在过了一年的大流行又一波新的变异病毒开始时，是不是要回头看看CCP 病毒的来源？
+视频来源：Youtube
+参考文章来源：
 
-你只要联系上[落难战友]以后，单对单的，在保密的情况下。[如果]能证实，双方证实，有证据有人证，七哥想办法负责，中不中？特别让我感动[的是]，有些战友确实想帮，但没钱、没资源，有些要垫上。垫上的，七哥付。但是我说的是[这样]，一定是[按照]刚才的标准，记清楚啊。
+[https://www.americansecurityproject.org/crispr-is-making-bioweapons-more-accessible/](https://www.americansecurityproject.org/crispr-is-making-bioweapons-more-accessible/)
 
-The good days have long gone, and only when the new China comes shall they return. The bad days haven’t begun yet! The shortage of food, power, water and money, as well as the future outbreaks of the virus [will all come]. The worst time hasn’t come yet. Be mentally prepared for that!
+[https://zh.wikipedia.org/wiki/CRISPR](https://zh.wikipedia.org/wiki/CRISPR)
 
-好日子，早就过去啦。只有新中国到来的时候，才能回到好日子。坏日子，还没有开始呐！缺粮、缺电、缺水、缺钱，和病毒[的]再爆发[都可能来]。这个时候，最坏的时候，还没有到来呢。做好心理准备吧！
+[http://scimonth.blogspot.com/2015/12/crisprcas9.html](https://scimonth.blogspot.com/2015/12/crisprcas9.html)
 
-鸣谢：感谢彩虹桥的汉语听写： [https://gnews.org/zh-hans/693481/](https://gnews.org/zh-hans/693481/)
+[https://mobile.twitter.com/drlimengyan1/status/1341744977827811328?s=29](https://mobile.twitter.com/drlimengyan1/status/1341744977827811328?s=29)
 
-翻译：【gavinguo(文钦)】校对：【BruhM】【Isaiah4031】字幕：【Pamila（文明）】解码：【恒久忍耐】编辑：【Isaiah4031】
+澳喜文章: [https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
 
-喜马拉雅玫瑰园小队出品
-
-+1
+欢迎加入澳喜农场：
+[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/澳喜图标2.jpg)
+0

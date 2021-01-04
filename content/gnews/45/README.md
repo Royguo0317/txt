@@ -1,21 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中国三大电信商下周起将被纽约交易所除牌（玫瑰看新闻2021.01.03第30期）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/711701/)
+## 彭斯接受国会议员的选举挑战
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/713348/)
 
-编辑：玫瑰天空；制作：新西兰伊甸农场玫瑰新闻组
+翻译：康州盘古农场 – Bruce
+校对：康州盘古农场 – 烟波浩淼
+审核：康州盘古农场 – V
 
-本期焦点新闻摘要：
+彭斯说，他与数百万美国人一样，对选举舞弊感到担忧。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/mp.png)图片：GETTY
+副总统迈克·彭斯（Mike Pence）周六接受了共和党议员的努力， 反对乔·拜登（Joe Biden）的选民，并在国会周三开会认证选举结果时出示舞弊证据。
 
-\*众院通过国防授权法 川普行使否决权首遭推翻
+彭斯的幕僚长马克·肖特(Marc Short)在预计下周将举行有争议的国会会议之前，也就是在特德·克鲁兹(Ted Cruz)和乔希·霍利(Josh Hawley)为首的11名参议员宣布将在国会会议上对11月选举结果提出质疑之后几个小时，发表了一份声明。
 
-\*麦康奈尔无视特朗普要求 推迟就提高疫情纾困支票金额进行表决
+肖特代表副总统的声明说：”副总统彭斯与数百万美国人一样，对上次选举中的选民欺诈和违规行为感到担忧。”
 
-\*美国发现英国变种新冠病例，CDC称总统就职日美国新冠死亡将达40万人
+声明还说：”副总统欢迎参众两院议员利用法律赋予的权力提出反对意见，并在1月6日向国会和美国人民出示选举舞弊证据的努力。”
 
-\*中国三大电信商下周起将被纽约交易所除牌
+原文作者：约翰·萨洛蒙（John Solomon）
 
-感谢收看本期玫瑰新闻，欢迎点赞订阅及分享
+发布时间：2021年1月2日 下午10:26 更新
 
-+1
+文章链接： [https://justthenews.com/politics-policy/elections/pence-embraces-election-challenge-members-congress](https://justthenews.com/politics-policy/elections/pence-embraces-election-challenge-members-congress)
+
+0
