@@ -1,55 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021-1-4 康州盘古农场本日新闻热点
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/714284/)
+## 郭先生谈什么叫政治家及老百姓和政治家的关系，川普总统一定赢
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/714336/)
 
-新闻采集：康州盘古农场-竹本人   
-新闻编辑：康州盘古农场-轰炸机
-审核：康州盘古农场-辛苦
-![]()![](https://gnews.org/wp-content/uploads/2021/01/速报-2.jpg)
-**一、数百万委内瑞拉选民投票要求恢复民主：委内瑞拉海内外的选民挺身而出支持民主，反对非法的马杜罗政权为控制国民议会选举采取的专制手段**
+摘要：在2020年12月14日的GTV直播中，郭文贵先生阐述了老百姓和政治家的关系，以及政治家的游戏规则。他建议战友们不要把政治家的游戏和一些表面现象当真，大选的最终结果一定是川普总统胜利。郭先生希望大家更多关注这个过程将对灭共和承认新中国联邦带来的正面影响。
+视频来源: [https://gtv.org/video/id=5fd7fa9e09267020eb51302e](https://gtv.org/video/id=5fd7fa9e09267020eb51302e) (00:26:42 – 00:30:26)
+**中英文对照全文**
 
-通过“人民的选票”运动，数百万委内瑞拉人采取现场投票和网上投票的方式强烈地表达他们的呼声，要求结束尼古拉斯·马杜罗非法政权，举行自由和公正的总统大选及立法机构选举。这次投票是委内瑞拉人在国内言论自由受到压制 ，数百万人为改善生活逃离恶劣处境之际发出自己声音的一个途径。美国国务卿迈克尔·蓬佩奥（Michael R. Pompeo）在12月16日表示，“这种情况说明数百万委内瑞拉人为促进变革进行组织和动员的力量，再次更广泛地掀起要求委内瑞拉实现自由和公正的总统选举和议会选举的运动。美国将继续支持委内瑞拉人民为自己的国家恢复民主和繁荣进行的斗争。”这次投票按照委内瑞拉宪法举行。为了保证选务人员和选民的安全，临时政府为现场投票站提供了个人防护设备。
+There is a particularly important saying in political relations. What is a politician? A politician is someone that plays with, takes advantage of, and balances the opinions and wills of the majority of the ruled. Ultimately, they are protecting their own rights, positions and interests. Playing, playing, and balancing, ok? Now they also have the large media on a global scale called media guidance. In the past, the media controlled whereas now it guides. This is called a politician.
 
-**二、英国连续****6****天日增确诊超过****5****万例 首相约翰逊警告可能实施更严格防控**
+政治关系学里面有一句特别重要的话。什么叫政治家？就政治家是，玩弄和利用、平衡绝大多数的被统治者的想法、和意志的，最终还是维护自己的权力和自己的地位、和利益。玩弄啊，玩弄平衡。现在又加上一个大媒体，全世界的叫媒体引导。过去是控制媒体，现在是引导。这叫政治家。
 
-法新社援引英国卫生部门周日通报，英国新增确诊近5万5000例，这已经是连续第六天新增确诊超过5万例。单日新增死亡454例，英国也是欧洲新冠病毒死亡病例最多的国家之一，累计达到7万5024例。英国首相约翰逊周日接受英国广播公司访问时说，随着新增病例上升，不排除未来几周实施比4级防控更严格的防疫限制措施；但强约翰逊强调学校是安全地方，在允许复课的地区，学生应该上学。
+But what is the relationship between common people and politicians? [Common people] really want politicians to listen to them, always. They also really enjoy politicians being overthrown by them and politicians taking actions after listening to them. In fact, this is the biggest trick that politicians can play on you. The game of politicians listening to you or being overthrown by you is nothing more than a camouflage. Politicians alternate. We won’t mention the CCP’s dictatorship. It doesn’t allow alternation at all, which is even more indecent.
 
-**三、日本可能在本周宣布东京地区进入紧急状态**
+但是老百姓是跟政治家是啥关系呢？非常想、永远地想，去让政治家听自己的，包括很享受政治家被自己推翻，和政治家听了自己话所采取的行动，实际上这是政治家跟你玩儿的最大花招儿。所谓的听你的，或者政治家被你推翻了的游戏，只不过是一个障眼法。政治家轮替更换，咱就别提那共产党的那独裁了，它就根本就不让你换，那更流氓了。
 
-日本富士电视台4日报道称，由于新冠肺炎新增病例不断攀升，医疗系统面临巨大压力，日本政府正考虑最早于本周宣布首都东京及周边三个县进入紧急状态。如果此次宣布紧急状态，将是日本部分地区自新冠肺炎疫情暴发以来第二次进入紧急状态。去年，第一次紧急状态持续了一个多月时间，学校和非必要企业全部关闭。
+The alternation in the West is to let out your anger. It gives you a new hope by changing another person. [The politicians] satisfy your vanity by seemingly listening to you. What politicians want and their principle have never changed. It is always to play with the wills of the people and to balance the so-called requests and interests of the majority of the common people.
 
-**四、希腊已在最近从英国旅行的人中检测到四例新的冠状病毒变种病例**
+西方的更换就是把你的气儿给解掉，然后再换一个人上来，给你一个新的希望。满足了你的虚荣心，所谓听了你的话。从来政治家要求的、和原则没改过，始终是玩弄民意，平衡老百姓的所谓绝大多数人的要求和利益。
 
-当地时间1月3日晚，希腊国家电视台消息，有四名抵达希腊的旅客在实验室检测中确诊为变异新冠病毒感染者。该四人陆续乘坐去年12月21日、22日的航班由英国抵达希腊，在机场的新冠肺炎病毒快速检测中结果呈阳性。随后的实验室检测中发现，该四人感染的均为变异新冠病毒，与在英国发现的变异病毒一致。他们年龄均在三十岁以下，且均为无症状感染者。
+Therefore, when we, common people worry about these guys, you go to the streets, you support someone or appeal for something, it is all being exploited. We are all tools being used. As long as you enter the political circle, you have to play according to its rules. President Trump is not an insider, which is his weakness. Gaining people’s support is his strength. But in the end, he must play according to the rules of the politicians. So, brothers and sisters, do not worry. I saw some brothers-in-arms as anxious as a back-seat driver. You are truly, truly worried because you don’t understand … you are innocent and you are … too kind because you take these games and superficial stuff seriously. You regard the smoke exhaled as clouds.
 
-**五、****60****岁以上老年人群、高血压患者和糖尿病患排除在接种人群之外****  ****中共国产疫苗效力引严重怀疑**
+所以咱们老百姓你替这些人操心的时候，你上街、你支持谁、你呼吁，都是被利用的，都是利用的工具。只要你入了政治圈儿，你就得按照政治圈儿的游戏规则来。川普总统非圈儿内人，这是他的劣势。得到了人民的欢心这是他的优势，但是他最后他还必须按政治家的游戏规则玩儿。所以说兄弟姐妹们，千万你们别着急。我看到有些战友们，真是太监…皇帝不急太监比他急得着急得很，而且是用心的急、用心的急、真捉急。因为你不（懂啊）…无知啊，还有个你很…太善良了。因为你把游戏，你把这些表面东西当成了真的。你把这吸出的烟（指郭先生自己手里燃着的雪茄）当成了云彩了，千万不要。
 
-目前正在美欧接种的辉瑞疫苗，年龄设定为16岁至85岁。欧美国家已全面开始接种疫苗，接种疫苗都是先接种老弱人群和危险人群，前者指老人和身体基础弱的人群，后者多指因常常接触病毒的医护人员等一线人员。北京当局在12月31日批准尚未完成第三阶段实验的国药集团研发的新冠灭活疫苗上市，与国外的做法不同，疫苗既然已获批上市，最需要优先接种的是老年人，现在却不能给他们打疫苗。官方的解释是有待“进一步临床试验”。 中国国产疫苗因为没有完成第三期实验，加之没有公布完整数据，一致引起外界对其疫苗安全性和有效性的怀疑。
+Do not think this way. The final result is just lying there. There is absolutely no way that Biden will win. Trump will win for sure. [It’s a matter of] how he wins, by how much he wins, and when he wins, as well as what price the American country and its people will pay and whether he is more determined to take down the CCP during his course of winning. Or, in other words, whether he upholds justice and rule of law more firmly. This is a rule that politicians have to play to and follow. [Focus on] what we want, brothers-in-arms and don’t worry about other things. Don’t attempt to become an expert on politics. You won’t make it. We only care about whether he is more determined to take down the CCP with us. We hope the American country and its rule of law to be stronger, which will be beneficial for the future of our Chinese. After the CCP is eliminated, there will be more people standing with us. What we want is for the NFSC to be acknowledged, the CCP to be taken down, and our future currency system and all strategic partners of the G series to be acknowledged.
 
-**六、美代理国防部长米勒命令****“****尼米兹****”****号航母打击群停止返回母港的旅程，留在海湾地区继续控制伊朗及周边局势**
+最终的结果都在那摆着呢，绝对没有任何可能是拜登赢，一定川普赢。赢的方式、赢的结果、和赢得时间，和美国国家、和人民付出什么样的代价，还有一个他是在赢的过程当中，是否更坚定的灭共。或者说他更坚定的，坚持正义和法治，这是个政治家要玩儿的规则，他遵守的规则。我们想要的，战友们，你就别管其他的了。你别成为这个政治专家了，你也成不了。咱只在乎他是否在过程当中，更坚定的与咱灭共，咱更希望的是美国的法治和国家的强大，它有利于我们中国人的未来。灭掉中共以后有更多的人，会跟我们站在一起。我们要的是新中国联邦被承认，灭掉共产党。承认我们未来的货币系统，和整个G系列所有的战略合作者。
 
-据美联社1日报道，美国国防部此前决定将唯一部署在中东的航母“尼米兹”号调动回国，以减少在该地区的军事部署。据悉，“尼米兹”号航母原定2020年年底前返回，但出于对伊朗“潜在威胁”等担忧，返回计划被推迟。
+翻译：【雷鸣（文鸣）】校对：【BruhM】字幕：【相机过热啊】选题：【Embracer牙牙】听写：【鹰(文言)】视频解码：【恒久忍耐】编辑：【Isaiah4031】
 
-**七、南希****·****佩洛西众议员星期天当选为美国众议院议长，这是她第四次当选**
+喜马拉雅玫瑰园小队出品
 
-南希·佩洛西众议员星期天当选为美国众议院议长，这是她第四次当选。民主党在众议院的多数席位收窄，未来将面临挑战。这位来自加利福尼亚州的民主党人在周日下午的投票中超过了必要的多数票。民主党在美国众议院新一届第117届国会中占据微弱多数，民主党222人，共和党211人。一些成员因为新冠病毒检测呈阳性或有其他健康问题而无法投票。
-
-**八、西班牙政府宣布，将对拒绝接种疫苗的民众进行登记。登记不会对外公开，但是这些数据有可能提供给其它****“****欧洲伙伴****“**
-
-西班牙卫生部长萨尔瓦多·伊拉（Salvador Illa）在西班牙La Sexta电视台公布将根据相关疫苗接种时间表与每位公民预约接种。虽然免疫接种属于自愿，但对拒绝预约接种者将进行登记。登记不会对外公开，但是这些数据有可能提供给其它”欧洲伙伴”。根据国家社会学研究中心的一项调查，西班牙拒绝接种疫苗者的比例最近明显下降：一周前，在12月仅有28%的受访者拒绝接种疫苗。此前的11月份，这一比例为47%。同时，西班牙人接种疫苗的意愿也从不足37%上升到40%以上。
-
-**九、香港民意研究所****12****月进行的年终调查显示，特首林郑月娥的民望持续低迷，四成受访者给零分**
-
-民研在12月18日至22日之间针对18岁或以上、讲粤语的香港居民进行随机抽样电话访问，共取得1014个成功样本。调查结果显示，香港特首林郑月娥去年的民望低落，评分为29.7分，其中44%受访者给与她0分，其支持率仅为18%，反对率则高达69%，民望净值为负51个百分点。
-
-**十、对于中共想参加跨太平洋伙伴全面进步协定（****CPTPP****）一事，日本首相菅义伟表示，以中共国现行的政经体制很难参加**
-
-中国想加入跨太平洋伙伴全面进步协定CPTPP一事，菅义伟表示，CPTPP的规定要求成员国必须具有非常高水准的市场开放，所以这对中国而言，门槛相当高，以中共现行的政治和经济体制很难参加。评论家樱井良子也表示，中国20年前加入世界贸易组织（WTO），对国际社会承诺会遵守智慧财产权的保护等，结果却没信守承诺。她也认为加入CPTPP的门槛高，中国很难加入，但中共的作法就是以外交「诈欺伎俩」取得成果。
-
-**十一、中共经过修改的《国防法》****1****月****1****日正式生效，新修订的中共国国防法首次将****“****分裂****”****和保护****“****发展利益****”****作为动员部署军队和预备役部队的理由添加到立法中，反应中共国防张力的扩充，以及对外战略姿态的巨大转变**
-
-有观察人士注意到，“发展利益”四个字在这部新修订的法律中一共出现四次，反应出中国国防张力的扩充，以及对外战略姿态的巨大转变。“发展利益”在该法中第一次出现是在总则第二条，即“国家为防备和抵抗侵略，制止武装颠覆和分裂，保卫国家主权、统一、领土完整、安全和发展利益所进行的军事活动，以及与军事有关的政治、经济、外交、科技、教育等方面的活动，适用本法”。 分析人士认为，中国通过修订国防法扩大习近平领导的军队的权利。这也就意味着，如果中国的“发展利益”受到威胁，将可能主动发起战争。中国将可能展现出更多的战争主动性。
+*以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。*
 
 0

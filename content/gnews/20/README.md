@@ -1,51 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蒂芙尼护士接种辉瑞新冠疫苗后，一度晕倒！种种迹象让人质疑？（一）
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/714117/)
+## 中共国能否摆脱对澳大利亚铁矿石的依赖
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/714406/)
 
-撰稿：Baizi   编辑：MG1
-![]()![](https://gnews.org/wp-content/uploads/2021/01/402.png)截图来源
-https://web.archive.org/web/20201220134350/https://www.searchquarry.com/namesearch/results?trackstat=homepage-&fname=Tiffany%20&Iname=Dover&recordtype=Death&state=AL
+撰稿：  澳大利亚悉尼澳喜农场三只松鼠
 
-2020年12月17日，一位名叫Tiffany Dover的护士在直播现场接受辉瑞新冠疫苗的注射，随后接受媒体采访，在回答了几句话的时间，即注射疫苗17分钟后出现头晕，继而晕倒在地上。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/403.png)截图来源
+审稿：Jim 大叔 编辑：MG1
+![]()![](https://gnews.org/wp-content/uploads/2021/01/屏幕截图-2021-01-04-154634.png)图片来自google
+大家都知道，当前中共国与澳大利亚之间关系已经达到了冰点。之前，因为澳大利亚率先将华为排除在其5G网络外，对中国侵犯新疆和香港人权等一系列行为提出严厉的批评。随后，中共国对澳大利亚进行了一系列的具有侵略性的打压举动，包括对澳大利亚葡萄酒加征关税、暂停进口澳大利亚产品、向澳大利亚媒体提出的14项“罪状”，以及中国外交官在推特上发电脑合成图批评澳大利亚在阿富汗战争罪行等等。
 
+但是，有一项产品，不管中共国怎么打口炮或采取一些实质性举动，对从澳洲进口需求仍然不可或缺，那就是澳大利亚铁矿石。用数据说话，2019年全年中共国进口铁矿10.38亿吨，其中来自澳洲的就有6.6亿吨，达到63.58%；2020年1月至10月进口铁矿总计9.75亿吨，来自澳洲的比重也达到62%。![]()
 
-据Channel 3 WRCB-TV报道，Tiffany Dover在恢复清醒后接受了记者的采访，她解释自己有迷走神经反应过度的病史，因此 “如果我因任何东西（如指甲被刮到）而感到疼痛，或者趾头被扎到，我就会晕倒。” 她简单的说明了当时注射疫苗后晕倒前的情形，并表示自己现在感觉良好。此外她还提到在过去的六周里，她有大概发生了六次的晕厥，因此对于她来说是很寻常的事。当被问道是否后悔接受疫苗注射，她说“没有”。 好说到这里，如果大家在看了Tiffany Dover晕倒的视频，正常的反应一定会对这个辉瑞新冠疫苗的潜在副作用和安全性产生疑问。因此就有了Tiffany Dover清醒后接受媒体采访的第二个视频，从Tiffany Dover晕倒的原因，我想提出几个问题。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/404.png)截图为Tiffany Dover清醒后接受采访的第二个视频
-https://www.youtube.com/watch?v=tOH7XLHI2mo&t=7s
+同时，让我们感到意外的是，中共国其实是全球最大的铁矿石生产国，澳洲是世界上最大的铁矿石出口国。为什么中共国还要从澳洲进口这么多铁矿石呢？原因有三：一、澳洲铁矿石品质好。澳洲铁矿石的含铁量在55%至65%之间，而中共国的只有30%左右；二、澳洲铁矿石开采成本低。由于澳洲铁矿石巨头全面将矿山开采智能化，包括他们的运输网络非常先进，运输成本显著下降，工人们在上千公里外的城市中喝着咖啡就能完成操作，吨矿的单位开采成本可以降到40美元甚至更低。而中共国由于开采方式和运输方式的落后，开采的成本一直居高不下，达到70美金甚至更高；三、中共国经济要复苏，基建项目要大规模开设，中国90%左右钢材由铁矿石炼制，对铁矿石的需求只会进一步增加。预计2020年进口量肯定超过2019年。
 
-第一，她解释说是因为她有迷走神经反应过度的病史，而且还在过去六周内晕倒过六次之多，我想在这里打个“问号”，Tiffany Dover作为一个注册的重症监护护士，每天接触针孔和照顾病人，如果她有如此频繁的晕厥史，请问她如何胜任护士长（Nurse Manager）的工作？（请参考
-![]()![](https://gnews.org/wp-content/uploads/2021/01/屏幕截图-2021-01-04-142028.png)截图来源
-https://www.youtube.com/watch?v=tOH7XLHI2mo&t=7s
+目前，针对中共国的无耻嘴脸，澳大利亚开始强势反击了。国际铁矿石市场的价格突然出现了大幅度上扬。进入12月以来，铁矿石价格上涨300元，比上半年涨了近100%。大家都知道，澳大利亚掌握着铁矿石的定价权。由于中共国每年需从海外进口10 多亿吨铁矿石，一年因涨价就将损失超过3000亿元。在2019年-2020年期间，澳洲对中共国出口的铁矿石占其出口总量的87%，交易额超过了1000亿澳元。铁矿石价格如果上涨10%就足以弥补中共国所有其它对澳洲产品的抵制。除了经济外，就业和民生也必须考虑。没有铁矿石，就意味着钢厂停工，工人下岗。
 
-第二，既然她自己本人知道有这个病史，为何还选择在镜头前注射疫苗，难道她的同事对于她的迷走神经反应过度的病史一无所知，如此频繁的在过去六周发生了六次晕倒，不可能周围的人不知道啊。而从视频现场来看，所有人都没有预料到会放生晕倒的事件。 第三，从Tiffany Dover对她的这个病史的描述，“如果我因任何东西（如指甲被刮到）而感到疼痛，或者趾头被扎到，我就会晕倒”，问题就来了，她为何不是在注射的那一瞬间，因针扎的疼痛而晕倒？而是在疫苗注射后的17分钟开始头晕，然后倒下？事实反映这个晕倒并不像是迷走神经反应过度导致的，那会是什么原因导致的？大家思考一下。。。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/屏幕截图-2021-01-04-142112.png)截图来源
-https://www.youtube.com/watch?v=tOH7XLHI2mo&t=7s
+所以，中共国对澳洲的需要就像澳洲对他们的一样多，至少在未来的10年都将如此。世界主要铁矿石供应掌握在澳大利亚及巴西手中，并且主导了铁矿石价格。中共国完全是打肿脸充胖子，最终受到巨大损失的将是他们自己，他们根本不能实质性摆脱对澳洲铁矿石的依赖，就是打打口炮威胁一下澳洲政府而已。
 
-此外，从Tiffany Dover清醒后被采访的表现来看，她的状态并不特别好，整个肢体语言都不是很自然，大家可以自己去感觉和判断。
+（本文纯属个人观点）
 
-下篇文章我会重点追踪一下Tiffany Dover当天注射完疫苗之后到底发生什么了，为何她的脸书在直播晕倒事件后一度无法浏览后又出现了？为何她的Instagram在12月15日之后就再没更新了？ 关于她的死亡记录是否存在？我们下回再说！
+摘自：
 
-本文仅代表个人观点
-
-参考链接：
-
-” TIFFANY PONTES DOVER FAINTS IN 17 MINS, DEAD IN 10 HOURS [2020-12-24] (VIDEO)“ [https://www.bitchute.com/video/as1rvnNFNaQQ/](https://www.bitchute.com/video/as1rvnNFNaQQ/)
-
-（Tiffany Dover现场接受辉瑞疫苗注射后晕倒的原视频在Channel 3 WRCB-TV的官网和YouTube Channel 3 WRCB-TV的账号均无法查找。）
-
-“Nurse faints after getting COVID vaccine “
-
-
-
-” Critical care nurse at CHI Memorial explains her fainting after COVID-19 vaccine “
-
-
-
-“Tiffany Dover biography: 13 things about Chattanooga, Tennessee nurse”[https://conandaily.com/2020/12/19/tiffany-dover-biography-13-things-about-chattanooga-tennessee-nurse/](https://conandaily.com/2020/12/19/tiffany-dover-biography-13-things-about-chattanooga-tennessee-nurse/)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/澳喜图标2.jpg)
+[https://www.oliview.com.au/post/探讨-中澳关系紧张，中国是否会限制澳大利亚铁矿石（一）](https://www.oliview.com.au/post/探讨-中澳关系紧张，中国是否会限制澳大利亚铁矿石（一）)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/403.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/澳喜图标2.jpg)
 
 
 0
