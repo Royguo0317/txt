@@ -1,39 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美国第117届国会开幕祈祷闹笑话
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/714400/)
+## 中共病毒的源头
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/714443/)
 
-作者：香草山写作组 村北
+台湾农场(筹备)文旦
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
+根据《每日邮报》（Daily Mail）1月3日消息，博明是在一个与英国官员的网络会议上说这番话的。
 
+有越来越多的证据证明，实验室可能是这个病毒的最可信的来源。 」他表示，美国最新的情报显示，这个病毒是从实验室因「泄露或者事故」而从离距离武汉水产品市场11英里的实验室中传播出来的。
 
+「甚至连北京的建制人物都公开地否认了关于海鲜市场的故事。」博明补充说。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/MOS0902-【热点播报】美国第117届国会开幕祈祷闹笑话.png)
+中共病毒爆发至今，都没有探讨过，即立即的去实施调查，病毒源头，这到底是为什么呢?，到底为什么要隐瞒疫情，阻止调查病毒源头，难道不想让真正有效的疫苗出现吗?，还是另有其他更大的原因或是阴谋。
 
-美东时间1月3日，在美国第117届国会开幕仪式上，密苏里州第五区众议员Emanuel Cleaver带领全体议员进行例行祈祷。按照多种宗教的习惯，在祈祷结束时会以一个古拉丁词汇“Amen”（意为真诚的，实在的，诚心的）结束，以表达真诚之意。
+延迟一年都未去的调查，真正的证据是否被销毁，真正的证据是否被伪造，实验室是否被重建或是改造，实验的日志是否被修改等等更多可能被改变的证据，这一年让真正的阴谋者有修改的机会，让真正的阴谋者有销毁证据的机会，这一连贯的问题到现在都没得到真正的解释，病毒感染受灾的人数越来越高，死亡的人数也越来越高，引发的经济灾害也越来越高，也改变了大家的生活习惯，也改变了大家的生活。
 
-令人瞠目结舌的是，基督教循道宗牧师出身的民主党众议员Cleaver将其说成“Amen and Awomen”，居然将Amen一词中的一半当作“男人”的意思来解释，把祈祷结束语添上一个独创的Awomen（带有“women”女人一词），以示男女平等的政治正确。该祈祷的视频引起了推特上的一片取笑，以“傻”和“蠢”来形容这个用词，并对国家被这样的政客领导表示震惊。
+真相呼之欲出，传播真相是你我的必须，真正的病毒源头”中共”，也将面临它该面对的刑责，不能让它用栽赃、陷害、推诿、欺骗并使用媒体、科学界来引导将事实带到他们想要的结果，每一个传播都是重要的，每一个传播缺你不可，你的一小步，将是灭共的一大步，病毒真相是必须的，也是未来真正疫苗必须的条件，愿大家快乐平安。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/MOS0902-【热点播报】美国第117届国会开幕祈祷闹笑话-1.png)
+参考资料:
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/MOS0902-【热点播报】美国第117届国会开幕祈祷闹笑话-2.png)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/MOS0902-【热点播报】美国第117届国会开幕祈祷闹笑话-3.png)
-
-此事件结合两天前众议院议长佩洛西和规则委员会主席詹姆斯·麦戈文共同推出的第117届众议院规则中，不允许使用任何带有性别特点的词汇（如父亲，母亲，儿子，女儿），显示了民主党将男女平等的政治正确牌打到了极致。
-
-参考链接：
-
-[https://www.breitbart.com/politics/2021/01/01/nancy-pelosi-bans-gender-terms-like-mother-daughter-father-son-in-house-rules/](https://www.breitbart.com/politics/2021/01/01/nancy-pelosi-bans-gender-terms-like-mother-daughter-father-son-in-house-rules/)
+- [https://www.epochtimes.com/b5/21/1/4/n12664977.htm](https://www.epochtimes.com/b5/21/1/4/n12664977.htm)
 
 
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

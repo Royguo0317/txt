@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 01/02/2021 美国媒体福克斯：美国大選在1月6日沒法決定時，众议院投票选举总统，参议院投票选举副总统，众议院按州投票，自19世纪80年代以来就一直如此。
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/714478/)
+## 01/03/2021 郭文贵：为何彭斯副总统在哈德逊演讲后再无反共举动。
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/714500/)
 
 By: 【秘密翻譯組G-Translators】
 
