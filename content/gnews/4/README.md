@@ -1,51 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蒂芙尼护士接种辉瑞新冠疫苗后，一度晕倒！种种迹象让人质疑？（一）
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/714117/)
+## 中共病毒的源头
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/714443/)
 
-撰稿：Baizi   编辑：MG1
-![]()![](https://gnews.org/wp-content/uploads/2021/01/402.png)截图来源
-https://web.archive.org/web/20201220134350/https://www.searchquarry.com/namesearch/results?trackstat=homepage-&fname=Tiffany%20&Iname=Dover&recordtype=Death&state=AL
+台湾农场(筹备)文旦
 
-2020年12月17日，一位名叫Tiffany Dover的护士在直播现场接受辉瑞新冠疫苗的注射，随后接受媒体采访，在回答了几句话的时间，即注射疫苗17分钟后出现头晕，继而晕倒在地上。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/403.png)截图来源
+根据《每日邮报》（Daily Mail）1月3日消息，博明是在一个与英国官员的网络会议上说这番话的。
 
+有越来越多的证据证明，实验室可能是这个病毒的最可信的来源。 」他表示，美国最新的情报显示，这个病毒是从实验室因「泄露或者事故」而从离距离武汉水产品市场11英里的实验室中传播出来的。
 
-据Channel 3 WRCB-TV报道，Tiffany Dover在恢复清醒后接受了记者的采访，她解释自己有迷走神经反应过度的病史，因此 “如果我因任何东西（如指甲被刮到）而感到疼痛，或者趾头被扎到，我就会晕倒。” 她简单的说明了当时注射疫苗后晕倒前的情形，并表示自己现在感觉良好。此外她还提到在过去的六周里，她有大概发生了六次的晕厥，因此对于她来说是很寻常的事。当被问道是否后悔接受疫苗注射，她说“没有”。 好说到这里，如果大家在看了Tiffany Dover晕倒的视频，正常的反应一定会对这个辉瑞新冠疫苗的潜在副作用和安全性产生疑问。因此就有了Tiffany Dover清醒后接受媒体采访的第二个视频，从Tiffany Dover晕倒的原因，我想提出几个问题。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/404.png)截图为Tiffany Dover清醒后接受采访的第二个视频
-https://www.youtube.com/watch?v=tOH7XLHI2mo&t=7s
+「甚至连北京的建制人物都公开地否认了关于海鲜市场的故事。」博明补充说。
 
-第一，她解释说是因为她有迷走神经反应过度的病史，而且还在过去六周内晕倒过六次之多，我想在这里打个“问号”，Tiffany Dover作为一个注册的重症监护护士，每天接触针孔和照顾病人，如果她有如此频繁的晕厥史，请问她如何胜任护士长（Nurse Manager）的工作？（请参考
-![]()![](https://gnews.org/wp-content/uploads/2021/01/屏幕截图-2021-01-04-142028.png)截图来源
-https://www.youtube.com/watch?v=tOH7XLHI2mo&t=7s
+中共病毒爆发至今，都没有探讨过，即立即的去实施调查，病毒源头，这到底是为什么呢?，到底为什么要隐瞒疫情，阻止调查病毒源头，难道不想让真正有效的疫苗出现吗?，还是另有其他更大的原因或是阴谋。
 
-第二，既然她自己本人知道有这个病史，为何还选择在镜头前注射疫苗，难道她的同事对于她的迷走神经反应过度的病史一无所知，如此频繁的在过去六周发生了六次晕倒，不可能周围的人不知道啊。而从视频现场来看，所有人都没有预料到会放生晕倒的事件。 第三，从Tiffany Dover对她的这个病史的描述，“如果我因任何东西（如指甲被刮到）而感到疼痛，或者趾头被扎到，我就会晕倒”，问题就来了，她为何不是在注射的那一瞬间，因针扎的疼痛而晕倒？而是在疫苗注射后的17分钟开始头晕，然后倒下？事实反映这个晕倒并不像是迷走神经反应过度导致的，那会是什么原因导致的？大家思考一下。。。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/屏幕截图-2021-01-04-142112.png)截图来源
-https://www.youtube.com/watch?v=tOH7XLHI2mo&t=7s
+延迟一年都未去的调查，真正的证据是否被销毁，真正的证据是否被伪造，实验室是否被重建或是改造，实验的日志是否被修改等等更多可能被改变的证据，这一年让真正的阴谋者有修改的机会，让真正的阴谋者有销毁证据的机会，这一连贯的问题到现在都没得到真正的解释，病毒感染受灾的人数越来越高，死亡的人数也越来越高，引发的经济灾害也越来越高，也改变了大家的生活习惯，也改变了大家的生活。
 
-此外，从Tiffany Dover清醒后被采访的表现来看，她的状态并不特别好，整个肢体语言都不是很自然，大家可以自己去感觉和判断。
+真相呼之欲出，传播真相是你我的必须，真正的病毒源头”中共”，也将面临它该面对的刑责，不能让它用栽赃、陷害、推诿、欺骗并使用媒体、科学界来引导将事实带到他们想要的结果，每一个传播都是重要的，每一个传播缺你不可，你的一小步，将是灭共的一大步，病毒真相是必须的，也是未来真正疫苗必须的条件，愿大家快乐平安。
 
-下篇文章我会重点追踪一下Tiffany Dover当天注射完疫苗之后到底发生什么了，为何她的脸书在直播晕倒事件后一度无法浏览后又出现了？为何她的Instagram在12月15日之后就再没更新了？ 关于她的死亡记录是否存在？我们下回再说！
+参考资料:
 
-本文仅代表个人观点
-
-参考链接：
-
-” TIFFANY PONTES DOVER FAINTS IN 17 MINS, DEAD IN 10 HOURS [2020-12-24] (VIDEO)“ [https://www.bitchute.com/video/as1rvnNFNaQQ/](https://www.bitchute.com/video/as1rvnNFNaQQ/)
-
-（Tiffany Dover现场接受辉瑞疫苗注射后晕倒的原视频在Channel 3 WRCB-TV的官网和YouTube Channel 3 WRCB-TV的账号均无法查找。）
-
-“Nurse faints after getting COVID vaccine “
+- [https://www.epochtimes.com/b5/21/1/4/n12664977.htm](https://www.epochtimes.com/b5/21/1/4/n12664977.htm)
 
 
-
-” Critical care nurse at CHI Memorial explains her fainting after COVID-19 vaccine “
-
-
-
-“Tiffany Dover biography: 13 things about Chattanooga, Tennessee nurse”[https://conandaily.com/2020/12/19/tiffany-dover-biography-13-things-about-chattanooga-tennessee-nurse/](https://conandaily.com/2020/12/19/tiffany-dover-biography-13-things-about-chattanooga-tennessee-nurse/)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/澳喜图标2.jpg)
 
 
 0

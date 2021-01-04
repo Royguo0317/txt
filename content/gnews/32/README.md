@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 01/02/2021 美国媒体OAN：国际货币基金组织表示将使用网络历史记录来评估信用评分。
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/713831/)
+## 01/01/2021 奈杰·法拉吉: 2021年开始我的下一场征战，那就是确保我们不再依赖中共国。
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/713881/)
 
 By: 【秘密翻譯組G-Translators】
 
-+2
++1

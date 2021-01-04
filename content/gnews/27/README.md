@@ -1,9 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 01/02/2021 彼得·纳瓦罗： 如果需要的话，我们可以把决定大选的日期延后到1月20号以后。
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/713895/)
+## 【每日快讯】03/01/2021:习近平完成脑瘤手术 彭斯被证实不是战友
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/714035/)
 
-By: 【秘密翻譯組G-Translators】
+**制作:Cantonese工作室**
+播报：鱼摆摆 资料整理：蚁蚁（文依）郁金香 鱼摆摆
+PPT：文静 视频制作：Shawn 海报制作：文绉绉
 
-0
+**摘要:**
+
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210103-zhCN-01.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210103-zhCN-02.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210103-zhCN-03.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210103-zhCN-04.jpg)
+5.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210103-zhCN-05.jpg)
+6.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210103-zhCN-06.jpg)
++1

@@ -1,26 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】内蒙古拟建43座方舱医院应对随时到来的疫情大爆发
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/714294/)
+## 【热点播报】美国第117届国会开幕祈祷闹笑话
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/714400/)
 
-作者：香草山写作组 Wilson 校对/发稿：飞虹
+作者：香草山写作组 村北
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
 
 
 
-据《自由时报》2021年1月3日报道，中国大陆的中共病毒疫情有加速蔓延之势，为了应对随时到来的疫情大爆发，内蒙古自治区呼和浩特市已经成立由565人组成的“消杀队”，并拟定建设43座方舱医院。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/phpqqjgCh.jpg)武汉方舱医院 图片来源：美联社
-内蒙古卫健委主任许宏智在新闻发布会上强调，已经组建122支共4077人的医疗队伍，另有医疗后备人员5645人、后勤保障人员1261人随时待命。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/MOS0902-【热点播报】美国第117届国会开幕祈祷闹笑话.png)
 
-许宏智介绍，已拟定征用体育馆、展览馆等大型公共场所方案，同时，378家饭店、宾馆被安排用作隔离场所。
+美东时间1月3日，在美国第117届国会开幕仪式上，密苏里州第五区众议员Emanuel Cleaver带领全体议员进行例行祈祷。按照多种宗教的习惯，在祈祷结束时会以一个古拉丁词汇“Amen”（意为真诚的，实在的，诚心的）结束，以表达真诚之意。
 
-短评：过去的一年，中国同时发生了严重的天灾人祸，大幅产粮区遭遇水灾和蝗灾，中共放毒又造成百业凋零，内外交困。
+令人瞠目结舌的是，基督教循道宗牧师出身的民主党众议员Cleaver将其说成“Amen and Awomen”，居然将Amen一词中的一半当作“男人”的意思来解释，把祈祷结束语添上一个独创的Awomen（带有“women”女人一词），以示男女平等的政治正确。该祈祷的视频引起了推特上的一片取笑，以“傻”和“蠢”来形容这个用词，并对国家被这样的政客领导表示震惊。
 
-两个月以来，中共病毒在中国大陆特别是北方地区蔓延迅速，内蒙古大规模的应对举措，反映了真实疫情已十分严峻。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/MOS0902-【热点播报】美国第117届国会开幕祈祷闹笑话-1.png)
 
-如果中共不交出制造病毒的所有原始资料，就无法研制出有效应对病毒的疫苗，地球上所有的人都将遭受中共病毒的死亡威胁。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/MOS0902-【热点播报】美国第117届国会开幕祈祷闹笑话-2.png)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/MOS0902-【热点播报】美国第117届国会开幕祈祷闹笑话-3.png)
+
+此事件结合两天前众议院议长佩洛西和规则委员会主席詹姆斯·麦戈文共同推出的第117届众议院规则中，不允许使用任何带有性别特点的词汇（如父亲，母亲，儿子，女儿），显示了民主党将男女平等的政治正确牌打到了极致。
+
+参考链接：
+
+[https://www.breitbart.com/politics/2021/01/01/nancy-pelosi-bans-gender-terms-like-mother-daughter-father-son-in-house-rules/](https://www.breitbart.com/politics/2021/01/01/nancy-pelosi-bans-gender-terms-like-mother-daughter-father-son-in-house-rules/)
 
 
 
