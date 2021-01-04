@@ -1,25 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统连发五推的视频 (上）
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/713833/)
+## 01/02/2021 美国媒体OAN：中共统战机构中美交流基金会通过向美国主流媒体关键人物提供免费旅游和晚宴。
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/713855/)
 
-川普总统发推五次并发文让大家必须看的视频内容是关于什么的呢？
+01/02/2021 美国媒体OAN：中共统战机构中美交流基金会通过向美国主流媒体关键人物提供免费旅游和晚宴，拉拢和消除潜在的反对中共当局和政策的源头，并换取对中共有利的报道。
 
-想知道川普总统对大选、中共、病毒的看法？
 
-想知道川普总统会采取什么行动吗？
 
-视频会告诉你一切。
-
-视频编辑字幕： 美好的时光
-
-原创观点文章 – 2020/01/03
-
-温哥华圆成农场
-
-* * *
-
-视频来源：[https://www.youtube.com/watch?v=rXtGItm1bvQ](https://www.youtube.com/watch?v=rXtGItm1bvQ)
+By: 【秘密翻譯組G-Translators】
 
 +2

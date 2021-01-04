@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 01/01/2021 奈杰·法拉吉: 2021年开始我的下一场征战，那就是确保我们不再依赖中共国。
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/713881/)
+## 01/02/2021 彼得·纳瓦罗： 如果需要的话，我们可以把决定大选的日期延后到1月20号以后。
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/713895/)
 
 By: 【秘密翻譯組G-Translators】
 
-+1
+0

@@ -1,37 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生谈什么叫政治家及老百姓和政治家的关系，川普总统一定赢
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/714336/)
+## 蒂芙尼护士接种辉瑞新冠疫苗后，一度晕倒！种种迹象让人质疑？（一）
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/714117/)
 
-摘要：在2020年12月14日的GTV直播中，郭文贵先生阐述了老百姓和政治家的关系，以及政治家的游戏规则。他建议战友们不要把政治家的游戏和一些表面现象当真，大选的最终结果一定是川普总统胜利。郭先生希望大家更多关注这个过程将对灭共和承认新中国联邦带来的正面影响。
-视频来源: [https://gtv.org/video/id=5fd7fa9e09267020eb51302e](https://gtv.org/video/id=5fd7fa9e09267020eb51302e) (00:26:42 – 00:30:26)
-**中英文对照全文**
+撰稿：Baizi   编辑：MG1
+![]()![](https://gnews.org/wp-content/uploads/2021/01/402.png)截图来源
+https://web.archive.org/web/20201220134350/https://www.searchquarry.com/namesearch/results?trackstat=homepage-&fname=Tiffany%20&Iname=Dover&recordtype=Death&state=AL
 
-There is a particularly important saying in political relations. What is a politician? A politician is someone that plays with, takes advantage of, and balances the opinions and wills of the majority of the ruled. Ultimately, they are protecting their own rights, positions and interests. Playing, playing, and balancing, ok? Now they also have the large media on a global scale called media guidance. In the past, the media controlled whereas now it guides. This is called a politician.
+2020年12月17日，一位名叫Tiffany Dover的护士在直播现场接受辉瑞新冠疫苗的注射，随后接受媒体采访，在回答了几句话的时间，即注射疫苗17分钟后出现头晕，继而晕倒在地上。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/403.png)截图来源
 
-政治关系学里面有一句特别重要的话。什么叫政治家？就政治家是，玩弄和利用、平衡绝大多数的被统治者的想法、和意志的，最终还是维护自己的权力和自己的地位、和利益。玩弄啊，玩弄平衡。现在又加上一个大媒体，全世界的叫媒体引导。过去是控制媒体，现在是引导。这叫政治家。
 
-But what is the relationship between common people and politicians? [Common people] really want politicians to listen to them, always. They also really enjoy politicians being overthrown by them and politicians taking actions after listening to them. In fact, this is the biggest trick that politicians can play on you. The game of politicians listening to you or being overthrown by you is nothing more than a camouflage. Politicians alternate. We won’t mention the CCP’s dictatorship. It doesn’t allow alternation at all, which is even more indecent.
+据Channel 3 WRCB-TV报道，Tiffany Dover在恢复清醒后接受了记者的采访，她解释自己有迷走神经反应过度的病史，因此 “如果我因任何东西（如指甲被刮到）而感到疼痛，或者趾头被扎到，我就会晕倒。” 她简单的说明了当时注射疫苗后晕倒前的情形，并表示自己现在感觉良好。此外她还提到在过去的六周里，她有大概发生了六次的晕厥，因此对于她来说是很寻常的事。当被问道是否后悔接受疫苗注射，她说“没有”。 好说到这里，如果大家在看了Tiffany Dover晕倒的视频，正常的反应一定会对这个辉瑞新冠疫苗的潜在副作用和安全性产生疑问。因此就有了Tiffany Dover清醒后接受媒体采访的第二个视频，从Tiffany Dover晕倒的原因，我想提出几个问题。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/404.png)截图为Tiffany Dover清醒后接受采访的第二个视频
+https://www.youtube.com/watch?v=tOH7XLHI2mo&t=7s
 
-但是老百姓是跟政治家是啥关系呢？非常想、永远地想，去让政治家听自己的，包括很享受政治家被自己推翻，和政治家听了自己话所采取的行动，实际上这是政治家跟你玩儿的最大花招儿。所谓的听你的，或者政治家被你推翻了的游戏，只不过是一个障眼法。政治家轮替更换，咱就别提那共产党的那独裁了，它就根本就不让你换，那更流氓了。
+第一，她解释说是因为她有迷走神经反应过度的病史，而且还在过去六周内晕倒过六次之多，我想在这里打个“问号”，Tiffany Dover作为一个注册的重症监护护士，每天接触针孔和照顾病人，如果她有如此频繁的晕厥史，请问她如何胜任护士长（Nurse Manager）的工作？（请参考
+![]()![](https://gnews.org/wp-content/uploads/2021/01/屏幕截图-2021-01-04-142028.png)截图来源
+https://www.youtube.com/watch?v=tOH7XLHI2mo&t=7s
 
-The alternation in the West is to let out your anger. It gives you a new hope by changing another person. [The politicians] satisfy your vanity by seemingly listening to you. What politicians want and their principle have never changed. It is always to play with the wills of the people and to balance the so-called requests and interests of the majority of the common people.
+第二，既然她自己本人知道有这个病史，为何还选择在镜头前注射疫苗，难道她的同事对于她的迷走神经反应过度的病史一无所知，如此频繁的在过去六周发生了六次晕倒，不可能周围的人不知道啊。而从视频现场来看，所有人都没有预料到会放生晕倒的事件。 第三，从Tiffany Dover对她的这个病史的描述，“如果我因任何东西（如指甲被刮到）而感到疼痛，或者趾头被扎到，我就会晕倒”，问题就来了，她为何不是在注射的那一瞬间，因针扎的疼痛而晕倒？而是在疫苗注射后的17分钟开始头晕，然后倒下？事实反映这个晕倒并不像是迷走神经反应过度导致的，那会是什么原因导致的？大家思考一下。。。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/屏幕截图-2021-01-04-142112.png)截图来源
+https://www.youtube.com/watch?v=tOH7XLHI2mo&t=7s
 
-西方的更换就是把你的气儿给解掉，然后再换一个人上来，给你一个新的希望。满足了你的虚荣心，所谓听了你的话。从来政治家要求的、和原则没改过，始终是玩弄民意，平衡老百姓的所谓绝大多数人的要求和利益。
+此外，从Tiffany Dover清醒后被采访的表现来看，她的状态并不特别好，整个肢体语言都不是很自然，大家可以自己去感觉和判断。
 
-Therefore, when we, common people worry about these guys, you go to the streets, you support someone or appeal for something, it is all being exploited. We are all tools being used. As long as you enter the political circle, you have to play according to its rules. President Trump is not an insider, which is his weakness. Gaining people’s support is his strength. But in the end, he must play according to the rules of the politicians. So, brothers and sisters, do not worry. I saw some brothers-in-arms as anxious as a back-seat driver. You are truly, truly worried because you don’t understand … you are innocent and you are … too kind because you take these games and superficial stuff seriously. You regard the smoke exhaled as clouds.
+下篇文章我会重点追踪一下Tiffany Dover当天注射完疫苗之后到底发生什么了，为何她的脸书在直播晕倒事件后一度无法浏览后又出现了？为何她的Instagram在12月15日之后就再没更新了？ 关于她的死亡记录是否存在？我们下回再说！
 
-所以咱们老百姓你替这些人操心的时候，你上街、你支持谁、你呼吁，都是被利用的，都是利用的工具。只要你入了政治圈儿，你就得按照政治圈儿的游戏规则来。川普总统非圈儿内人，这是他的劣势。得到了人民的欢心这是他的优势，但是他最后他还必须按政治家的游戏规则玩儿。所以说兄弟姐妹们，千万你们别着急。我看到有些战友们，真是太监…皇帝不急太监比他急得着急得很，而且是用心的急、用心的急、真捉急。因为你不（懂啊）…无知啊，还有个你很…太善良了。因为你把游戏，你把这些表面东西当成了真的。你把这吸出的烟（指郭先生自己手里燃着的雪茄）当成了云彩了，千万不要。
+本文仅代表个人观点
 
-Do not think this way. The final result is just lying there. There is absolutely no way that Biden will win. Trump will win for sure. [It’s a matter of] how he wins, by how much he wins, and when he wins, as well as what price the American country and its people will pay and whether he is more determined to take down the CCP during his course of winning. Or, in other words, whether he upholds justice and rule of law more firmly. This is a rule that politicians have to play to and follow. [Focus on] what we want, brothers-in-arms and don’t worry about other things. Don’t attempt to become an expert on politics. You won’t make it. We only care about whether he is more determined to take down the CCP with us. We hope the American country and its rule of law to be stronger, which will be beneficial for the future of our Chinese. After the CCP is eliminated, there will be more people standing with us. What we want is for the NFSC to be acknowledged, the CCP to be taken down, and our future currency system and all strategic partners of the G series to be acknowledged.
+参考链接：
 
-最终的结果都在那摆着呢，绝对没有任何可能是拜登赢，一定川普赢。赢的方式、赢的结果、和赢得时间，和美国国家、和人民付出什么样的代价，还有一个他是在赢的过程当中，是否更坚定的灭共。或者说他更坚定的，坚持正义和法治，这是个政治家要玩儿的规则，他遵守的规则。我们想要的，战友们，你就别管其他的了。你别成为这个政治专家了，你也成不了。咱只在乎他是否在过程当中，更坚定的与咱灭共，咱更希望的是美国的法治和国家的强大，它有利于我们中国人的未来。灭掉中共以后有更多的人，会跟我们站在一起。我们要的是新中国联邦被承认，灭掉共产党。承认我们未来的货币系统，和整个G系列所有的战略合作者。
+” TIFFANY PONTES DOVER FAINTS IN 17 MINS, DEAD IN 10 HOURS [2020-12-24] (VIDEO)“ [https://www.bitchute.com/video/as1rvnNFNaQQ/](https://www.bitchute.com/video/as1rvnNFNaQQ/)
 
-翻译：【雷鸣（文鸣）】校对：【BruhM】字幕：【相机过热啊】选题：【Embracer牙牙】听写：【鹰(文言)】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+（Tiffany Dover现场接受辉瑞疫苗注射后晕倒的原视频在Channel 3 WRCB-TV的官网和YouTube Channel 3 WRCB-TV的账号均无法查找。）
 
-喜马拉雅玫瑰园小队出品
+“Nurse faints after getting COVID vaccine “
 
-*以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。*
+
+
+” Critical care nurse at CHI Memorial explains her fainting after COVID-19 vaccine “
+
+
+
+“Tiffany Dover biography: 13 things about Chattanooga, Tennessee nurse”[https://conandaily.com/2020/12/19/tiffany-dover-biography-13-things-about-chattanooga-tennessee-nurse/](https://conandaily.com/2020/12/19/tiffany-dover-biography-13-things-about-chattanooga-tennessee-nurse/)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/澳喜图标2.jpg)
+
 
 0
