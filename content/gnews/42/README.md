@@ -1,25 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】03/01/2021:习近平完成脑瘤手术 彭斯被证实不是战友
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/714035/)
+## 【路德时评粤语快报】01.03：习近平手术成功对于爆料革命是好事 彭斯受制于中共
+` GM42` [轉載自GNews](https://gnews.org/zh-hans/714053/)
 
-**制作:Cantonese工作室**
-播报：鱼摆摆 资料整理：蚁蚁（文依）郁金香 鱼摆摆
-PPT：文静 视频制作：Shawn 海报制作：文绉绉
+制作团队：【喜马拉雅粤语组】流光飞舞、sad3mom、鬼五
 
-**摘要:**
+上传：流光飞舞
 
-1.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210103-zhCN-01.jpg)
-2.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210103-zhCN-02.jpg)
-3.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210103-zhCN-03.jpg)
-4.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210103-zhCN-04.jpg)
-5.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210103-zhCN-05.jpg)
-6.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210103-zhCN-06.jpg)
-+1
+
+
+摘要:
+
+习近平手术成功对于爆料革命是好事；彭斯不是战友而是私底下跟中共有联系；麦康纳尔跟川普总统谈判要再给中共两年时间；
+
+[【路德时评】原视频链接](https://youtu.be/vFr1EO7WA50)
+
+0
