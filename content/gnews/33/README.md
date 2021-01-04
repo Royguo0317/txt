@@ -1,56 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “我一定会去的！”- 川普宣布将参加1月6日的 “历史性 ”集会
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/714285/)
+## 【热点播报】美国第117届国会开幕祈祷闹笑话
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/714400/)
 
-翻译：康州盘古农场-黎明的光芒
+作者：香草山写作组 村北
 
-校对：康州盘古农场-Antsee-GTV
-
-审核：康州盘古农场—Truemanman
-![]()![](https://gnews.org/wp-content/uploads/2021/01/president-Trump-900x506-1.png)
-美国总统唐纳德·川普周日表示，他将在国会联席会议召开统计选举人团结果时参加周三的集会和游行。
-
-川普几周来一直在敦促他的支持者参加这次活动。
-
-“我会去的。历史性的一天！”总统在周日上午10点半左右（的推特）写道。这是川普首次表示他将在1月6日加入活动。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
 
 
 
-> I will be there. Historic day! [https://t.co/k6LStsWpfy](https://t.co/k6LStsWpfy)
-> — Donald J. Trump (@realDonaldTrump) [January 3, 2021](https://twitter.com/realDonaldTrump/status/1345753534168506370?ref_src=twsrc%5Etfw)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/MOS0902-【热点播报】美国第117届国会开幕祈祷闹笑话.png)
+
+美东时间1月3日，在美国第117届国会开幕仪式上，密苏里州第五区众议员Emanuel Cleaver带领全体议员进行例行祈祷。按照多种宗教的习惯，在祈祷结束时会以一个古拉丁词汇“Amen”（意为真诚的，实在的，诚心的）结束，以表达真诚之意。
+
+令人瞠目结舌的是，基督教循道宗牧师出身的民主党众议员Cleaver将其说成“Amen and Awomen”，居然将Amen一词中的一半当作“男人”的意思来解释，把祈祷结束语添上一个独创的Awomen（带有“women”女人一词），以示男女平等的政治正确。该祈祷的视频引起了推特上的一片取笑，以“傻”和“蠢”来形容这个用词，并对国家被这样的政客领导表示震惊。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/MOS0902-【热点播报】美国第117届国会开幕祈祷闹笑话-1.png)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/MOS0902-【热点播报】美国第117届国会开幕祈祷闹笑话-2.png)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/MOS0902-【热点播报】美国第117届国会开幕祈祷闹笑话-3.png)
+
+此事件结合两天前众议院议长佩洛西和规则委员会主席詹姆斯·麦戈文共同推出的第117届众议院规则中，不允许使用任何带有性别特点的词汇（如父亲，母亲，儿子，女儿），显示了民主党将男女平等的政治正确牌打到了极致。
+
+参考链接：
+
+[https://www.breitbart.com/politics/2021/01/01/nancy-pelosi-bans-gender-terms-like-mother-daughter-father-son-in-house-rules/](https://www.breitbart.com/politics/2021/01/01/nancy-pelosi-bans-gender-terms-like-mother-daughter-father-son-in-house-rules/)
 
 
 
-*我会去的* *历史性的一天！*
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-1月1日，川普确认了活动的更多细节。“华盛顿特区的大型抗议集会将于1月6日上午11时举行……停止偷窃！” 川普在推特上写道，并补充说，这 “将起到重要作用”。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-华盛顿特区警察部门表示，鉴于集会和活动，市中心将有多条街道封闭。
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-根据警察局提供的地图，关闭范围将主要集中在国家广场和白宫周围。
-
-“限制车辆的决定将基于公共安全，在安全的情况下，如果车辆在执行必要的业务或往返住所，将被允许进入限制区域。” 华盛顿特区警方在1月1日的新闻发布会上说。
-
-美国公园警察向《今日美国》证实，集会和游行所需的一些许可证已经全部获批。
-
-“公园警察致力于与其合作伙伴共同通过为获得批准的活动和其它第一修正案（规定的）活动确保安全来保护公众和国家公园服务资源，” 该机构在12月31日的一份声明中说。
-
-右翼团体 “骄傲男孩 ”也宣布将参加集会，并将身着全黑服装，效仿与他们经常发生冲突的无政府共产主义组织 “安提法”。
-
-“骄傲男孩 ”将在1月6日以创纪录的人数出现，但这次有一个变化……我们将不穿我们传统的黑黄相间的衣服。我们将隐身以小队形式分布在华盛顿市中心。谁知道呢….我们可能会穿上一身黑色的衣服。骄傲男孩（团体的）主席恩里克·塔里奥（Enrique Tarrio）在Parler上说：“这个夜晚需要一个适合本次活动的装扮”。
-
-国会联席会议将有来自参众两院的反对者。周末，约有十几名参议员与参议员乔希·霍利（Josh Hawley/密苏里州共和党人）一起宣布，他们将反对各州的选举人投票，此前，至少有50名众议院代表在众议员莫·布鲁克斯（Mo Brooks/阿拉巴马州共和党人）的带领下承诺也将这样做。
-
-这项挑战至少需要一名众议员和一名参议员来执行，如此会引发每个州两小时的辩论。然后，要推翻一个州的选举人票，需要参众两院的多数票。
-
-周日，布鲁克斯告诉福克斯新闻，挑战选举人票的势头看起来在国会正不断增长。
-
-“抗击选举欺诈和选举盗窃的势头正在迅速增强，” 布鲁克斯周日说。“在这种情况下，昨天支持我们的人数尽然已经在今天和第二天就得到了补充增援。”
-
-作者 杰克·菲利普斯  2021年1月3日
-
-原文链接：[https://www.theepochtimes.com/i-will-be-there-trump-announces-hell-join-historic-rally-on-jan-6\_3641579.html](https://www.theepochtimes.com/i-will-be-there-trump-announces-hell-join-historic-rally-on-jan-6_3641579.html)
-
-+1
+0

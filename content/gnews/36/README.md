@@ -1,41 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 打脸病毒自然说：中共军事专家五年前就提到基因工程改造病毒
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/714148/)
+## 郭先生谈什么叫政治家及老百姓和政治家的关系，川普总统一定赢
+` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/714336/)
 
-撰稿：Gradient Boost
+摘要：在2020年12月14日的GTV直播中，郭文贵先生阐述了老百姓和政治家的关系，以及政治家的游戏规则。他建议战友们不要把政治家的游戏和一些表面现象当真，大选的最终结果一定是川普总统胜利。郭先生希望大家更多关注这个过程将对灭共和承认新中国联邦带来的正面影响。
+视频来源: [https://gtv.org/video/id=5fd7fa9e09267020eb51302e](https://gtv.org/video/id=5fd7fa9e09267020eb51302e) (00:26:42 – 00:30:26)
+**中英文对照全文**
 
-审稿：Jenny
-![]()![](https://gnews.org/wp-content/uploads/2021/01/003.jpg)图片制作：澳喜农场©森森
-近日，一段来自2016年中共国军事类节目《东南军情》的截取片段成为了网络上的热点话题之一。在这一段当年2月27日拍摄的视屏当中，中共国军事专家陈虎在面对主持人有关基因工程武器化的问题时，强调了该技术可以如何与原子弹即氢弹相媲美。也许当年如果你看到这一期节目的首次播送，大概只会觉得这位专家所说不过是为了节目效果而夸夸其谈。然而到了2021年我们回看这一期节目时，却又似乎有了新的体会：中共国或许很久以前就对基因改造病毒及细菌这样的技术产生了兴趣并开始着手研究。
+There is a particularly important saying in political relations. What is a politician? A politician is someone that plays with, takes advantage of, and balances the opinions and wills of the majority of the ruled. Ultimately, they are protecting their own rights, positions and interests. Playing, playing, and balancing, ok? Now they also have the large media on a global scale called media guidance. In the past, the media controlled whereas now it guides. This is called a politician.
 
-仔细思考其实也不难理解，如果一个人对某一事物缺乏认知了解甚至从来没有思考过该事物，那么这个人大概很难针对围绕对该事物的相关话题进行点评和答疑。然而节目片段中的军事专家的发言不仅逻辑清晰谈吐流畅，甚至对于其威力（杀伤不亚于原子弹）和可能的应用途径（如针对特定族群的攻击）都似乎有深刻的认识，很难想象中共国军方当时对于基因生物武器没有经过系统的研究及评估。
+政治关系学里面有一句特别重要的话。什么叫政治家？就政治家是，玩弄和利用、平衡绝大多数的被统治者的想法、和意志的，最终还是维护自己的权力和自己的地位、和利益。玩弄啊，玩弄平衡。现在又加上一个大媒体，全世界的叫媒体引导。过去是控制媒体，现在是引导。这叫政治家。
 
-病毒在世界范围内开始传播的早期，墙内媒体以及科学机构都发声说病毒不可能是人造，其中一个理由就是目前的基因工程水平无法完成中共病毒的改造。这个观点在闫博士发布的第一篇报告中就被驳回，并且闫博士的报告还对病毒的可能合成路径及实验室方案做了详细描述。报告摘要中，闫博士也提到在实验室中进行改造事实上非常方便，只需要大概六个月的时间就能完成。没想到比闫博士更早打脸这些墙内宣传机器的，竟然是中共国自己的节目，早在2016年我们的陈虎专家就毫不避讳地明示加暗示：这个基因工程武器化威力很大，而且技术方面已经成熟。
+But what is the relationship between common people and politicians? [Common people] really want politicians to listen to them, always. They also really enjoy politicians being overthrown by them and politicians taking actions after listening to them. In fact, this is the biggest trick that politicians can play on you. The game of politicians listening to you or being overthrown by you is nothing more than a camouflage. Politicians alternate. We won’t mention the CCP’s dictatorship. It doesn’t allow alternation at all, which is even more indecent.
 
-然而虽然技术成熟，但也并非是天衣无缝，甚至事实上漏洞百出。中共病毒就如同雪莱小说中的科学怪人一样：虽然成功地将尸块拼接在一起并使其有了生命，但那终究是一个人造的怪物，一看就知道不是自然生长的正常人类。在War Room 306期的节目中，闫博士就将中共病毒形容成“一头牛有着鹿头、兔耳以及猴子的双手”，即任何行业内人士应该一眼就能发现蹊跷，因为问题实在太明显，它就像是一头大象在房间里，只是被中共蓝金黄收买的学者们决定昧着良心默不作声罢了。
-视频节选自 War Room 第306期
-最后想再谈一下中共对于超限战的认识。笔者大概是在2019年岁末阅读了中共国空军少将乔良以及中共国空军大校王湘穗的《超限战与反超限战》一书，没有想到释卷一个多月之后中共病毒就开始向全球蔓延。这本书最早的版本是在1999年发布的，即当笔者阅读到这本书时，“超限战”这个理念已经出现二十年的时间。书中提及的“金融战”、“网络战”、“舆论战”到现在看来的确是为中共国近二十年来的全球邪恶扩张行动做出了关键指导，并且现在看来这些超限战的部署都有很好地被完成：例如掌握海外主流媒体、勾兑华尔街、蓝金黄海外政客、偷窃知识产权技术等等。
+但是老百姓是跟政治家是啥关系呢？非常想、永远地想，去让政治家听自己的，包括很享受政治家被自己推翻，和政治家听了自己话所采取的行动，实际上这是政治家跟你玩儿的最大花招儿。所谓的听你的，或者政治家被你推翻了的游戏，只不过是一个障眼法。政治家轮替更换，咱就别提那共产党的那独裁了，它就根本就不让你换，那更流氓了。
 
-生物武器在笔者看来，完全可以算作是超限战中的超限战，一举便对金融、民生、经济、社会、文化、政治、舆论几乎所有的军事外领域造成了不可逆的严重影响。这是中共的绝招或者说保留节目，是魔鬼在预见自己有被消灭的危险时做出的挣扎，企图拉全世界人民一同下水。中共必将被消灭，但现在还并不是诸位战友能够松懈的时候，请大家持续关注病毒问题进展，传播病毒来源真相，远离病毒危害，千万不能轻敌大意。
+The alternation in the West is to let out your anger. It gives you a new hope by changing another person. [The politicians] satisfy your vanity by seemingly listening to you. What politicians want and their principle have never changed. It is always to play with the wills of the people and to balance the so-called requests and interests of the majority of the common people.
 
-（本文纯属个人观点）
+西方的更换就是把你的气儿给解掉，然后再换一个人上来，给你一个新的希望。满足了你的虚荣心，所谓听了你的话。从来政治家要求的、和原则没改过，始终是玩弄民意，平衡老百姓的所谓绝大多数人的要求和利益。
 
-参考新闻链接：
+Therefore, when we, common people worry about these guys, you go to the streets, you support someone or appeal for something, it is all being exploited. We are all tools being used. As long as you enter the political circle, you have to play according to its rules. President Trump is not an insider, which is his weakness. Gaining people’s support is his strength. But in the end, he must play according to the rules of the politicians. So, brothers and sisters, do not worry. I saw some brothers-in-arms as anxious as a back-seat driver. You are truly, truly worried because you don’t understand … you are innocent and you are … too kind because you take these games and superficial stuff seriously. You regard the smoke exhaled as clouds.
 
-[Gnews（闫博士的第一份报告中文版）](https://gnews.org/zh-hans/359379/)
+所以咱们老百姓你替这些人操心的时候，你上街、你支持谁、你呼吁，都是被利用的，都是利用的工具。只要你入了政治圈儿，你就得按照政治圈儿的游戏规则来。川普总统非圈儿内人，这是他的劣势。得到了人民的欢心这是他的优势，但是他最后他还必须按政治家的游戏规则玩儿。所以说兄弟姐妹们，千万你们别着急。我看到有些战友们，真是太监…皇帝不急太监比他急得着急得很，而且是用心的急、用心的急、真捉急。因为你不（懂啊）…无知啊，还有个你很…太善良了。因为你把游戏，你把这些表面东西当成了真的。你把这吸出的烟（指郭先生自己手里燃着的雪茄）当成了云彩了，千万不要。
 
-[维基百科（中文）](https://zh.wikipedia.org/wiki/%E8%B6%85%E9%99%90%E6%88%98)
+Do not think this way. The final result is just lying there. There is absolutely no way that Biden will win. Trump will win for sure. [It’s a matter of] how he wins, by how much he wins, and when he wins, as well as what price the American country and its people will pay and whether he is more determined to take down the CCP during his course of winning. Or, in other words, whether he upholds justice and rule of law more firmly. This is a rule that politicians have to play to and follow. [Focus on] what we want, brothers-in-arms and don’t worry about other things. Don’t attempt to become an expert on politics. You won’t make it. We only care about whether he is more determined to take down the CCP with us. We hope the American country and its rule of law to be stronger, which will be beneficial for the future of our Chinese. After the CCP is eliminated, there will be more people standing with us. What we want is for the NFSC to be acknowledged, the CCP to be taken down, and our future currency system and all strategic partners of the G series to be acknowledged.
 
-[新华网（中共国党媒网站）](http://www.xinhuanet.com/world/2020-04/22/c_1125891652.htm)
+最终的结果都在那摆着呢，绝对没有任何可能是拜登赢，一定川普赢。赢的方式、赢的结果、和赢得时间，和美国国家、和人民付出什么样的代价，还有一个他是在赢的过程当中，是否更坚定的灭共。或者说他更坚定的，坚持正义和法治，这是个政治家要玩儿的规则，他遵守的规则。我们想要的，战友们，你就别管其他的了。你别成为这个政治专家了，你也成不了。咱只在乎他是否在过程当中，更坚定的与咱灭共，咱更希望的是美国的法治和国家的强大，它有利于我们中国人的未来。灭掉中共以后有更多的人，会跟我们站在一起。我们要的是新中国联邦被承认，灭掉共产党。承认我们未来的货币系统，和整个G系列所有的战略合作者。
 
-[新浪网（中共国墙内媒体网站）](https://news.sina.com.cn/c/2020-02-04/doc-iimxyqvz0223659.shtml)
+翻译：【雷鸣（文鸣）】校对：【BruhM】字幕：【相机过热啊】选题：【Embracer牙牙】听写：【鹰(文言)】视频解码：【恒久忍耐】编辑：【Isaiah4031】
 
-[中国新闻网（中共国墙内新闻网站）](http://www.chinanews.com/gn/2020/05-24/9193181.shtml)
+喜马拉雅玫瑰园小队出品
 
-[澳喜文章](https://gnews.org/zh-hans/author/aujenny/)
+*以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。*
 
-[欢迎加入澳喜农场](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews.org/wp-content/uploads/2020/12/IMG_1836-1-1.jpg)
 0

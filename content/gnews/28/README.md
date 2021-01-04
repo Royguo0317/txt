@@ -1,51 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蒂芙尼护士接种辉瑞新冠疫苗后，一度晕倒！种种迹象让人质疑？（一）
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/714117/)
+## 中国共产党：正威胁着全球和平与安全
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/714466/)
 
-撰稿：Baizi   编辑：MG1
-![]()![](https://gnews.org/wp-content/uploads/2021/01/402.png)截图来源
-https://web.archive.org/web/20201220134350/https://www.searchquarry.com/namesearch/results?trackstat=homepage-&fname=Tiffany%20&Iname=Dover&recordtype=Death&state=AL
+翻译：康州盘古农场 – Mike Li
 
-2020年12月17日，一位名叫Tiffany Dover的护士在直播现场接受辉瑞新冠疫苗的注射，随后接受媒体采访，在回答了几句话的时间，即注射疫苗17分钟后出现头晕，继而晕倒在地上。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/403.png)截图来源
+校对：康州盘古农场 – Antsee-GTV
 
+编辑：康州盘古农场 – Rose
 
-据Channel 3 WRCB-TV报道，Tiffany Dover在恢复清醒后接受了记者的采访，她解释自己有迷走神经反应过度的病史，因此 “如果我因任何东西（如指甲被刮到）而感到疼痛，或者趾头被扎到，我就会晕倒。” 她简单的说明了当时注射疫苗后晕倒前的情形，并表示自己现在感觉良好。此外她还提到在过去的六周里，她有大概发生了六次的晕厥，因此对于她来说是很寻常的事。当被问道是否后悔接受疫苗注射，她说“没有”。 好说到这里，如果大家在看了Tiffany Dover晕倒的视频，正常的反应一定会对这个辉瑞新冠疫苗的潜在副作用和安全性产生疑问。因此就有了Tiffany Dover清醒后接受媒体采访的第二个视频，从Tiffany Dover晕倒的原因，我想提出几个问题。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/404.png)截图为Tiffany Dover清醒后接受采访的第二个视频
-https://www.youtube.com/watch?v=tOH7XLHI2mo&t=7s
+美国国务院
 
-第一，她解释说是因为她有迷走神经反应过度的病史，而且还在过去六周内晕倒过六次之多，我想在这里打个“问号”，Tiffany Dover作为一个注册的重症监护护士，每天接触针孔和照顾病人，如果她有如此频繁的晕厥史，请问她如何胜任护士长（Nurse Manager）的工作？（请参考
-![]()![](https://gnews.org/wp-content/uploads/2021/01/屏幕截图-2021-01-04-142028.png)截图来源
-https://www.youtube.com/watch?v=tOH7XLHI2mo&t=7s
+中国共产党（CCP）是我们这个时代的核心威胁，它破坏世界的稳定，它只为自己的霸权主义野心服务。尽管中共努力为其恶行辩护，但中共控制下的中华人民共和国（PRC）并不是一个世界公民的典范。在习近平总书记的统治下，中共以牺牲他人利益为代价扩大自己的权力和影响力，至少表現在六个方面：
 
-第二，既然她自己本人知道有这个病史，为何还选择在镜头前注射疫苗，难道她的同事对于她的迷走神经反应过度的病史一无所知，如此频繁的在过去六周发生了六次晕倒，不可能周围的人不知道啊。而从视频现场来看，所有人都没有预料到会放生晕倒的事件。 第三，从Tiffany Dover对她的这个病史的描述，“如果我因任何东西（如指甲被刮到）而感到疼痛，或者趾头被扎到，我就会晕倒”，问题就来了，她为何不是在注射的那一瞬间，因针扎的疼痛而晕倒？而是在疫苗注射后的17分钟开始头晕，然后倒下？事实反映这个晕倒并不像是迷走神经反应过度导致的，那会是什么原因导致的？大家思考一下。。。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/屏幕截图-2021-01-04-142112.png)截图来源
-https://www.youtube.com/watch?v=tOH7XLHI2mo&t=7s
+**掠夺性的经济行为**
 
-此外，从Tiffany Dover清醒后被采访的表现来看，她的状态并不特别好，整个肢体语言都不是很自然，大家可以自己去感觉和判断。
+中共国通过向其支持的公司提供大量补贴、盗窃知识产权、强制技术转让以及腐败的贸易和投资行为，违反了其在世界贸易组织的承诺和国际规范与标准。中共控制的企业通过低价销售来获得不公平的市场准入。中共国的 “一带一路 倡议”（BRI或OBOR）无视全球劳动力和环境标准，并通过不可持续和腐败的贷款掠夺其他国家。中共国伤害了东道国的经济，破坏其法治，侵犯其主权，使中共国工人和企业不公平地受益，并利用经济杠杆在无关的政治和战略问题上霸凌东道国政府。
 
-下篇文章我会重点追踪一下Tiffany Dover当天注射完疫苗之后到底发生什么了，为何她的脸书在直播晕倒事件后一度无法浏览后又出现了？为何她的Instagram在12月15日之后就再没更新了？ 关于她的死亡记录是否存在？我们下回再说！
+**印度洋-太平洋地区的军事侵略行动**
 
-本文仅代表个人观点
+中共国的军民融合战略提出，通过占有国内外先进的民用技术将人民解放军在2049年前建设成为 “世界一流军队”。解放军试图通过“一带一路”倡议和军事合作协议在全球建立军事基地来投射力量，既要主导印太地区，又要在全球范围内挑战美国。北京继续秘密加速其核武器建设，有可能在十年内将其核武库规模增加三倍。从南中国海到喜马拉雅山，北京利用军事手段霸凌邻国，威胁海上航道，破坏边界稳定，从而增加了冲突的风险。
 
-参考链接：
+**破坏全球规范和价值观**
 
-” TIFFANY PONTES DOVER FAINTS IN 17 MINS, DEAD IN 10 HOURS [2020-12-24] (VIDEO)“ [https://www.bitchute.com/video/as1rvnNFNaQQ/](https://www.bitchute.com/video/as1rvnNFNaQQ/)
+中共国无视自己的承诺，通过操纵国际组织来推进自己的单边战略目标，包括建立一个由中共主导的国际新秩序，从而削弱全球秩序。中共国在多边文件中采用（他们的）惯用文字，以推进中共的独裁意识形态和政策目标，并威胁对其意识形态抵制的国家。“一带一路”和中共国的其他倡议助长了腐败，破坏了国际贸易的良好发展，并给受援国造成了无法支撑的债务负担。
 
-（Tiffany Dover现场接受辉瑞疫苗注射后晕倒的原视频在Channel 3 WRCB-TV的官网和YouTube Channel 3 WRCB-TV的账号均无法查找。）
+**国外的胁迫性战术**
 
-“Nurse faints after getting COVID vaccine “
+中共控制的媒体在全球范围内进行宣传，同时操纵外国新闻和娱乐媒体来推进其统战思想。中共的统战部和附属代理人向外国各级政府官员、华侨华人和商业利益集团施压与之合作，要求他们对中共的错误言论表示支持，并回避中共认定为尴尬的话题。中共在海外校园的存在颠覆了学术自由，同时通过诱使外国研究人员为中共国的经济、科学和军事利益从事欺骗性的非法活动，这些行为破坏了国际研究事业的完整性和安全性。中共补贴华为和中兴等中共国的5G供应商，然后用欺负和贿赂的手段迫使其他国家选择他们，这样中共就可以获得个人数据、知识产权和关键基础设施的控制权。
 
+**无视人权**
 
+在马列主义意识形态和帝国主义怀旧思想的驱使下，中共压制不同意见，限制中国公民的权利和自由，包括强制人口控制、任意拘留、审查、强迫劳动、侵犯宗教自由，以及普遍的媒体和互联网审查。中共持续对维吾尔人、基督徒和其他宗教和少数民族实施虐待行为。中共对西藏保持铁腕统治，同时持续在香港对外国批评者实行控制和压制。中共操纵国际组织、民选政府和公司来掩盖其在国内外的侵犯人权行为。
 
-” Critical care nurse at CHI Memorial explains her fainting after COVID-19 vaccine “
+**环境污染**
+
+中共国的环境记录非常糟糕。中共国是世界上每年排放温室气体和海洋废弃物最多的国家；是世界上最大的高灰煤厂的建造者和出资者；是非法、无报备和无管制捕捞活动最严重的国家；是世界上最大的非法野生动植物和木材产品的消费国，这仅仅是举几个例子。北京以不可持续的开采自然资源的方式和通过“一带一路倡议”输出的对环境的肆意漠视，威胁着世界经济和公众健康。
 
 
 
-“Tiffany Dover biography: 13 things about Chattanooga, Tennessee nurse”[https://conandaily.com/2020/12/19/tiffany-dover-biography-13-things-about-chattanooga-tennessee-nurse/](https://conandaily.com/2020/12/19/tiffany-dover-biography-13-things-about-chattanooga-tennessee-nurse/)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/澳喜图标2.jpg)
-
+文章链接：[https://www.state.gov/the-chinese-communist-party-threatening-global-peace-and-security/](https://www.state.gov/the-chinese-communist-party-threatening-global-peace-and-security/)
 
 0
