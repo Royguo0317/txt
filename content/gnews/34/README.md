@@ -1,13 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中国军事专家陈虎，早在东南卫视《东南军情》2016年的节目中就公开地谈到中共早就开始了生化战
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/714387/)
+## 01/03/2021 郭文贵：某大律师因收了25万美元的支票，被虚假信息所哄骗。
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/714509/)
 
-中国军事专家陈虎，早在东南卫视《东南军情》2016年的节目中就公开地谈到中共早就开始了生化战，只是西方人的天真和无知，被利益所左右，泯灭现实，这是对人类最大的公然威胁
+By: 【秘密翻譯組G-Translators】
 
-
-
-By: 【秘密翻译组 G-Translators】
-
-0
++1

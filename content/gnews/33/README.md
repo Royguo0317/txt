@@ -1,39 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美国第117届国会开幕祈祷闹笑话
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/714400/)
+## 《路德社》精选新闻快讯：霍利议员将在1月6日对选举人团结果投反对票
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/714515/)
 
-作者：香草山写作组 村北
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/MOS0902-【热点播报】美国第117届国会开幕祈祷闹笑话.png)
-
-美东时间1月3日，在美国第117届国会开幕仪式上，密苏里州第五区众议员Emanuel Cleaver带领全体议员进行例行祈祷。按照多种宗教的习惯，在祈祷结束时会以一个古拉丁词汇“Amen”（意为真诚的，实在的，诚心的）结束，以表达真诚之意。
-
-令人瞠目结舌的是，基督教循道宗牧师出身的民主党众议员Cleaver将其说成“Amen and Awomen”，居然将Amen一词中的一半当作“男人”的意思来解释，把祈祷结束语添上一个独创的Awomen（带有“women”女人一词），以示男女平等的政治正确。该祈祷的视频引起了推特上的一片取笑，以“傻”和“蠢”来形容这个用词，并对国家被这样的政客领导表示震惊。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/MOS0902-【热点播报】美国第117届国会开幕祈祷闹笑话-1.png)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/MOS0902-【热点播报】美国第117届国会开幕祈祷闹笑话-2.png)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/MOS0902-【热点播报】美国第117届国会开幕祈祷闹笑话-3.png)
-
-此事件结合两天前众议院议长佩洛西和规则委员会主席詹姆斯·麦戈文共同推出的第117届众议院规则中，不允许使用任何带有性别特点的词汇（如父亲，母亲，儿子，女儿），显示了民主党将男女平等的政治正确牌打到了极致。
-
-参考链接：
-
-[https://www.breitbart.com/politics/2021/01/01/nancy-pelosi-bans-gender-terms-like-mother-daughter-father-son-in-house-rules/](https://www.breitbart.com/politics/2021/01/01/nancy-pelosi-bans-gender-terms-like-mother-daughter-father-son-in-house-rules/)
+> Millions of voters concerned about election integrity deserve to be heard. I will object on January 6 on their behalf [pic.twitter.com/kTaaPPJGHE](https://t.co/kTaaPPJGHE)
+> — Josh Hawley (@HawleyMO) [December 30, 2020](https://twitter.com/HawleyMO/status/1344307458085412867?ref_src=twsrc%5Etfw)
 
 
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+乔希·霍利议员美东时间2020年12月30日上午10点40分，发推表示，上百万的投票人担心着2020年总统大选是否是公正的，他认为投票人的声音应当被听到。1月6日他将投出反对票，反对选举人团认定的、乔·拜登胜选的结果。
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+霍利议员认为在2004年和2016年大选后，在确认选举人团投票结果的过程中，民主党人投了反对票，原因就是关切选举的公正性问题。他们当时的举动受到了民主党领导人和主媒的盛赞。他们被赋予了这样做的权力。但是现在，共和党中的一些人也认为这次大选存在是否公正的问题，也同样被赋予了权力，也可以这样做。
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+他说：“在一些州中，特别是宾夕法尼亚州中，他们没有遵从他们自己州的州法律。在没有把事实澄清之前，我不会在1月6日对于选举人团的结果认同并投票的。” 他指出，包括脸书和推特在内的大科技巨头，为了支持拜登当选，严重干预了此次大选，这是始料未及的。在没有指出他们的所作所为之前，他不会认定选举人团的投票结果的。最起码，国会应该调查对投票人舞弊的指控，并采取措施确保总统大选的公正性。他认为国会的行动是相当失败的。
+
+霍利议员作为第一位有勇气站出来维护美国大选公正性、并公开表示要在1月6日认定选举人团结果的过程中投反对票的年轻共和党议员，这是给所有缺乏斗志和决心的共和党议员以及共和党议员建制派的当头棒喝。美国这个伟大的国家只要能够跟随美国人民追求真相和公正，反对欺骗和罪恶的诚挚之心，必将突破中共布下的天罗地网。正如1776年华盛顿率领部下，面对着困窘和痛苦，承受着严寒和饥饿，在圣诞节跨越了特拉华河一样，美国人民必将取得最终的胜利！
+
+【文章仅代表作者个人观点】
+
+本文作者：铜豌豆
+审核校对：玫瑰天空
+上传排版：糖果儿
 
 0
