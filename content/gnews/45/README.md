@@ -1,209 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要每日推特重要信息汇总 （2021.1.1）
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/713315/)
+## 深度解读1619项目，认识其反普世价值所带来的危害
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/713333/)
 
-信息汇总采编：战鹰团编辑部；Page：拱卒
+*作者：*此心不变*；校对：*西川Stanly*；审核：海阔天空；Page：Daoiii*
 
-经授权转载自：
+[!\[\]()!\[\](https://spark.adobe.com/page/tQbipGu9nU6hJ/images/fd6c28c6-5413-4f69-b77d-76692b9a065d.jpg?asset_id=02d95a9b-9c27-4594-b430-905d5f71864a&amp;img_etag=%228e88e91a577b744d094bd5fcc3455cd2%22&amp;size=2560)](https://spark.adobe.com/page/tQbipGu9nU6hJ/images/fd6c28c6-5413-4f69-b77d-76692b9a065d.jpg?asset_id=02d95a9b-9c27-4594-b430-905d5f71864a&amp;img_etag=%228e88e91a577b744d094bd5fcc3455cd2%22&amp;size=1024)
 
-- 川普彭斯等政要…直譯推[twitter：https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
-- 川普彭斯等政要…直譯推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
-- 川普彭斯等政要…直译推GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
+在大选前夕，川普总统签署了一个行政命令，成立一个叫“1776委员会”的组织，来促进美国学生从小认识美国，从而发自内心地爱上美国。成立1776委员会有很多目的，其中之一就是对抗1619项目。
 
+那么“1619项目”是什么？“1619项目”是由《纽约时报》杂志记者妮可‧汉娜‧琼斯（Nikole Hannah-Jones）创建。首先，她就用下面这张画，写了篇序言，说有十几个黑奴，在1619年登陆美国，说这个就是美国的开始，美国的历史并不始于1776年美国独立宣言，而是始于1619年，因为1619年就有20个黑奴抵达北美，于是一段血腥残暴的奴隶制度历史就此展开，这就是美国的元年，她还因此拿了普立兹奖。其次，她便找人来写文章，这就是1619项目，包括十篇讲奴隶制的种族主义对美国生活和各方面的影响，简单来说她认为美国每一方面都因为奴隶制而有了独特文化，无论饮食、音乐，这个痕迹无所不在，这十篇文章是由当代黑人作者创作的关于历史事件的散文、诗歌、小说等内容；然后，她还和史密森学会下属的国家非洲裔黑人历史文化博物馆合作，以视觉形式展示奴隶历史；最后，他们便用这个做基础，向学生教育，广泛传播这些事物。**下面就是1619项目的序言：**
 
-## 朱利安尼（川普律师）：
+[!\[\]()!\[\](https://spark.adobe.com/page/tQbipGu9nU6hJ/images/ab10bea5-d2fd-4094-8a17-afc720028bb9.png?asset_id=30cc851c-2dd3-45c6-adc0-941b7ee1a97a&amp;img_etag=%227e9f1631e5b86fcc98aaa7bb6ea5a0e9%22&amp;size=2560)](https://spark.adobe.com/page/tQbipGu9nU6hJ/images/ab10bea5-d2fd-4094-8a17-afc720028bb9.png?asset_id=30cc851c-2dd3-45c6-adc0-941b7ee1a97a&amp;img_etag=%227e9f1631e5b86fcc98aaa7bb6ea5a0e9%22&amp;size=1024)
 
-是时候拿掉有问题的像坎普和他的小叛国集团这样的共和党人的手套了。为什么他们给一个外国公司1亿1千万，让他们把选票发到德国？猜一下？
+1619年8月，即清教徒抵达普利茅斯的前一年，也就是美国建国之前的157年，詹姆斯敦殖民者从英国海盗那里购买了20-30名非洲黑奴。之后无数的黑人背井离乡被贩卖到了美洲。这些人及其后代将这片土地改造成大英帝国最成功的殖民地。通过辛勤的劳动，他们耕种东南部的土地，教殖民者种水稻。他们种植生产的棉花，占美国所有出口的一半，是当时最有价值的商品。他们建立了乔治·华盛顿，托马斯·杰斐逊和詹姆斯·麦迪逊的种植园，其物产种类繁多 。他们奠定了白宫和国会大厦的基础，甚至用不自由的双手将自由女神像放在国会大厦的圆顶上。被窃取的黑人劳力利润帮助这个年轻国家偿还了战争债务，并为建立一些最负盛名的大学提供了资金。残酷的奴隶买卖市场常年运作，靠着奴隶的肉体被出卖，血汗劳动被榨取成为经济融资的来源，华尔街才可能拥有繁荣的银行，保险和贸易部门，纽约才会成为世界金融之都。在南方炎热的种植庄园里，黑奴们过着猪狗不如的日子。棉花，蔗糖这些产业充分显示出资本主义的残忍压榨。美国民主在建立之初就完全忽略了这样一个前提：一部分人拥有高于他人的特殊权力。
 
+美国是一个立足于理想和谎言的国家。 1776年7月4日签署的《独立宣言》宣告“人人平等”和“其创造者赋予某些人不可剥夺的权利”。但是起草这些词的白人不相信这些词对其中成千上万的黑人是真实的。 “生活，自由和对幸福的追求”不适用于整个国家的五分之一。黑人通过抗争帮助这个国家实现了建国理想。黑人不仅为了自己，还为其他平权运动铺平了道路，包括妇女和同性恋权利，移民权利和残障权利。没有黑人艰苦执着的爱国主义努力，我们今天的民主看上去很可能非常不同，可能根本都没有民主。
 
+我们的建国神话轻而易举地删掉了一个事实，即殖民者决定宣布脱离英国独立的主要原因之一是因为他们想保护奴隶制。无独有偶，前12位总统中有10位是奴隶蓄奴的，可以这样解释：这个国家并未建立在民主政治之上，而是建立在奴隶制之上。《独立宣言》中没有提到奴隶制。同样，11年后，起草宪法的时候也没有提到奴隶制。
 
-> It’s time to take off the gloves with questionable Republicans like Kemp and his little group of quislings. Why give $110m to a foreign company to send votes to Germany?
-> Guess?
-> — Rudy W. Giuliani (@RudyGiuliani) [January 1, 2021](https://twitter.com/RudyGiuliani/status/1344876003840176128?ref_src=twsrc%5Etfw)
+到了十九世纪五十年代，这场内战对林肯来说进展不顺利。英国正在考虑是否要代表南部美利坚联盟进行干预。林肯因为召不够白人志愿兵，被迫收回自己以前的主张，允许美国黑人为自己的解放而战。这项声明还将允许曾经的黑奴加入联盟军并与他们以前的“主人”作战。但是林肯担心这一激进措施的后果。像许多白种美国人一样，他反对奴隶制是残酷的制度，与美国的理想背道而驰，但他也反对黑人平等。他认为，自由的黑人是“麻烦的存在”，与白人的民主制度格格不入。
 
+摘自[https://gnews.org/zh-hans/362828/](https://gnews.org/zh-hans/362828/)
 
+[!\[\]()!\[\](https://spark.adobe.com/page/tQbipGu9nU6hJ/images/cc63c92b-944f-4c0b-9cf7-a13b3b6ba367.jpg?asset_id=6419c37c-ddc5-43df-9ec6-1b2fa59e7206&amp;img_etag=%22d9ff097356020ba88e3353ce245a394e%22&amp;size=1024)](https://spark.adobe.com/page/tQbipGu9nU6hJ/images/cc63c92b-944f-4c0b-9cf7-a13b3b6ba367.jpg?asset_id=6419c37c-ddc5-43df-9ec6-1b2fa59e7206&amp;img_etag=%22d9ff097356020ba88e3353ce245a394e%22&amp;size=1024)妮可‧汉娜‧琼斯（Nikole Hannah-Jones）来源网络
 
-## 国务卿彭佩奥：
+**这个项目一出来就受到了历史学家的广泛抨击，为什么呢？因为她那几篇讲历史的论文涉及到三大主要事件，一个是美国独立，一个是美国内战，以及人权争取的进步。**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/i0rzNdFr8FeiT/images/3776298b-d37e-40ce-94e4-0016f230b565.jpg?asset_id=f019531c-713e-45ba-a9ac-3fbb20023ce1&amp;img_etag=%223d01e7323e3c951ade5c67d8452fb053%22&amp;size=2560)](https://spark.adobe.com/page/i0rzNdFr8FeiT/images/3776298b-d37e-40ce-94e4-0016f230b565.jpg?asset_id=f019531c-713e-45ba-a9ac-3fbb20023ce1&amp;img_etag=%223d01e7323e3c951ade5c67d8452fb053%22&amp;size=1024)
+**首先，历史考证1619年有20个奴隶去美国是假的。**美国的历史通常由两个点作为开始，一个点就是1607年五月花号清教徒到美国，这是第一批英国移民，是美国的前期历史，然后另一个点，就是1776年独立宣言。如果纯粹从历史角度来看，还有两种方法可以来说美国历史的开端。第一种方法就是人类的历史，就是用考古学追溯回通古斯族人，穿过白令海峡去美洲开始说起，正确地说，应该这才是美国的开始，后来北欧维京人也去过美洲，这对美洲影响很大，因为通古斯人去了之后一百年美洲的巨兽全部死光，长毛象、剑齿虎等全部失踪了，这才是完整的美国历史，除了自然历史之外，人的历史也是这样计算。第二种方法可以追溯到哥伦布1492年登陆美洲，因为这段历史对之后的历史有很深的影响，然后100年才有英格兰人坐五月花去北美。如果再收窄一点，也就是我们读的美国历史，就从独立战争开始说起，这个就是1776年。
 
-国务卿彭佩奥：我们今天比四年前安全多了。在接下来的几天里，我将列出(我们未来的)一揽子任务、（我们取得的)巨大胜利、个人故事等等。只有我，迈克。
+**第二，人权问题。**1619项目的序言说: “Our democracy‘s founding ideas were false when they were written. Black Americans have fought to make them true.” 意思就是，美国的独立宣言里面所说的话全都是谎言，它写出来的那一刻就已经是谎言，是黑人的奋斗才使它们成真。我们来看看美国独立宣言（Declaration of Independence）主张的是什么：“我们认为下面这些真理是不证自明的：人人生而平等，造物主赋予他们若干不可剥夺的权利，其中包括生命权、自由权和追求幸福的权利。为了保障这些权利，人们才在他们之间建立政府，而政府之正当权力，则来自被统治者的同意。”通篇宣言没有一个字是说到民主，它说的全是自由，而且仅仅只是一个自由概念而已，根本没有涉及到人权的具体问题，即有些人的人权是不平等。那么我要问，在宣言那一刻来说，它是不是有扩大到人权？还没有。然后在有扩大到人权的时候，即你对这个思想付诸实践那一刻，你会被什么绑住？一定会被当时的文化和社会现实给绑住，别说黑人会不会接受，就说妇女要平权，当时的妇女会接受吗？不会马上接受，这都需要一个发展过程。所以他们的这个概念，这个宣言只说是一个概念，而没说那个概念在那一刻是可以完全实现，在实践的过程中一定会为当时的文化和社会现实所束缚，这样的不平等只是平等主义仍未发展到很成熟的程度，而不是1619项目里说的那样，起草《独立宣言》那一刻，建国者的印象中是觉得奴隶不是天生出来，而是和他们不同的，于是就没将人权、平等的概念推及给奴隶。1619项目里说独立宣言这帮人（即Jefferson这些人）是车大炮、全心说大话，这是完全不能够接受的。还有那个人权概念也是不停develop（发展）的，即便去到今天也还曾没有完善。
 
+[!\[\]()!\[\](https://spark.adobe.com/page/tQbipGu9nU6hJ/images/c7ed1e2d-63b7-4304-b9d6-c20f0dd14ac4.jpg?asset_id=352ee069-e26a-4c8e-b337-0018b37ff1b9&amp;img_etag=%2290e5c94aa6f896fbb57128da8bda9895%22&amp;size=1024)](https://spark.adobe.com/page/tQbipGu9nU6hJ/images/c7ed1e2d-63b7-4304-b9d6-c20f0dd14ac4.jpg?asset_id=352ee069-e26a-4c8e-b337-0018b37ff1b9&amp;img_etag=%2290e5c94aa6f896fbb57128da8bda9895%22&amp;size=1024)
 
+**第三，民主进程。**第二句话“Black Americans have fought to make them true”更是错得无以复加。黑人到现在都只占美国总人口的百分之十几，以前更少，现在有百分之十几是因为白人生小孩很少，黑人生得多，但是这二、三十年，黑人也生得少了。你可以想像到内战时候，黑人只有百分之几的美国人口，独立战争时候就更少。内战时候比较多是因为当时要种棉花，因为种棉花和烟草需要大量奴隶，才引入大量奴隶工。譬如香港，有很多印度的警察在香港工作，在香港的文化遗迹都是很明显。香港有句俗话：“大头绿衣追不到人吹BB”，那个大头绿衣就是讲锡克教的警察，或者香港人很多人喜欢吃咖喱，你是很明显地看见他们在这里留下文化痕迹，但你不会说香港的历史是围绕印度人而建立的。同样，美国的历史是不会围绕只有百分之几的奴隶制度来作为其中心，说“是黑人的奋斗才使民主理念成真”这完全是歪曲美国历史，以至于有二十几个学者联名要求取消Hannah-Jones的普立兹奖。
 
-> We’re so much safer today than four years ago. Over the coming days, I’m going to lay out the mission set, the huge wins, personal stories, and a lot more. Just me, Mike. [pic.twitter.com/zTqEdBhfpz](https://t.co/zTqEdBhfpz)
-> — Secretary Pompeo (@SecPompeo) [January 1, 2021](https://twitter.com/SecPompeo/status/1344999315048181761?ref_src=twsrc%5Etfw)
+**第四，美国独立的目的。**1619项目认为美国革命是因为美国怕英国解放奴隶，为了保护这个奴隶制度，所以便要独立。这个完全颠覆了我们对历史的认知，于是很多历史学家跳出来，这些全部是独立战争的专家，或者内战的专家，因为1619项目说的那个1772年英国普通法有不支持奴隶制度的裁决，当时的北美殖民地根本没人知道，还有伦敦根本没有出现过呼吁废除奴隶贸易的声音，英国从来没有威胁过北美奴隶制度，这简直是彻底歪曲历史。
 
+[!\[\]()!\[\](https://spark.adobe.com/page/tQbipGu9nU6hJ/images/b7b8b5b7-343a-4a06-a41e-334fdcad0a6a.jpg?asset_id=5199fcd9-0bd2-4c5f-a600-e07aefa9d9eb&amp;img_etag=%229b5b978ca7499ac42019c0dec721c372%22&amp;size=1024)](https://spark.adobe.com/page/tQbipGu9nU6hJ/images/b7b8b5b7-343a-4a06-a41e-334fdcad0a6a.jpg?asset_id=5199fcd9-0bd2-4c5f-a600-e07aefa9d9eb&amp;img_etag=%229b5b978ca7499ac42019c0dec721c372%22&amp;size=1024)波士顿茶叶事件——独立战争始于北美十三殖民地为了对抗英国压迫性的经济政策
 
+**第五，林肯不想放黑奴。**虽然美国内战不是因为解放黑奴，而是因为想维持美国的统一，但是美国内战确实是围绕黑奴这个问题。她说他们不想解放黑奴，这个是的，但是美国为什么分裂就是因为准不准畜奴这个问题，而林肯的当选是因为他反对畜奴。
 
-## 国务卿彭佩奥：
+**1619项目是批判性种族主义项目**，它用这种角度去回顾美国的历史，否定了很多传统历史的看法。1619项目认为，美国人有两个原罪，第一是对原居民的原罪，第二是对黑奴的原罪，美国是这些东西所奠定的，这种主张就属于批判性种族主义。什么是批判性种族主义理论？举例来说，它认为：“美国是建立在种族主义、奴隶制和压迫的基础上；美国的宪法结构、《独立宣言》中的文字、甚至今天的法律，只是种族压迫和支配霸权的幌子而已。“ 批判性种族主义来自法兰克褔学派——新马克思主义理论。传统的马克思主义以经济为轴心来划分，把世界分成压迫性的资本家阶级和受到压迫的无产阶级。但是1950年代以后，他们认为由于工业和科技的发展，资本主义社会已逐渐变成“富裕社会”、“发达的工业社会”，传统的马克思主义工人阶级贫困化理论已经过时，以经济为轴心的划分不适合了，所以新马克思主义不再是分配财产，而是分配社会上的不公义，包括了对女人，少数民族等的不公义，他们认为，马克思思想在现代是用来纠正这些对少数族裔的不公义。这些人不明白我们所谓的普世价值不是一出生就是一套完整的论述，有人发明了这套普世价值，然后我们去做，普世价值是逐步拓展的，而在整个历史里面，有好多以前道德上觉得没问题的事到了今天我们道德上就觉得有问题，我们不能用今天的尺度去审度古人。我举几个例子。中国有没有奴隶？中国虽然没有奴隶社会，但是一直存在着奴隶，比如婢女，而中共去支持这个1619项目，去批评川普和蓬佩奥，说他们令人作呕，中共很喜欢拿这些原居民、黑奴的议题来说事，他们这样做的目的众所周知，我这里就不离题去谈了。在古代社会全部国家都有奴隶制，希腊是发明、实行民主的地方，希腊就有奴隶，希腊的奴隶很多，可以多过良民。奴隶也不是黑人独有的，什么人在中古时代做奴隶做得最多？是白种人，中亚民族会去欧洲捉白种人回去做奴隶，这些人就叫slav，slave（奴隶）这个词就是这样来的。美国几时开始有奴隶？美国有奴隶是因为那些大庄园没有充足的劳动力，种植东西需要使用奴隶，但是奴隶的数量始终不多，开始时只有贵族才拥有奴隶，后来在南部引入奴隶，是因为印地安人染病大量死亡，而那些贵族要种植，就大量引入非洲奴隶。那么那些非洲奴隶又是怎么来的？是跟非洲人买回来的，也就是说，非洲人一样买卖非洲人做奴隶。以前在古代人类打仗打赢第二个种族，就会命令战败种族全部变成奴隶，我们的祖先商代就有很多这样的奴隶，纣王失败很大的原因就是因为被奴隶反对。斯巴达克斯在罗马也是奴隶……这么多例子都可以说明，奴隶制不是美国独有的东西，而且绝无可能是由黑人奴隶创造了美国，这是谎言。直到今天，黑人仍然只占美国人口的12-13%，今日美国的平等是由奴隶主战斗而来的，美国内战是由白种人为黑人战斗，在战场上为了解放奴隶而死的大部分是白种人。
 
-美国是一股向善的力量，一个历史上前所未有的非凡的国家。第一个承认每个人都有上帝赋予的权利的国家。是一座真正的闪耀的山上之城
+**1619项目是历史定论主义。**在这里我必须先讲讲卡尔·波普尔（Karl Popper）和他的《The Open Society and its enemies开放社会及其敌人》。《开放社会及其敌人》是理解近代西方民主思想最重要的作品之一，作者卡尔・波普尔（Karl Popper, 1902-1994）被誉20世纪最重要的哲学家之一。1937年，他为逃避纳粹迫害，移民纽西兰，1946年二次大战结束后迁居英国。波普尔原本主要的研究领域是科学哲学，但从1938年开始直到冷战结束，他将关注转至政治哲学，尤其着眼于如何对抗、批判纳粹德国、苏维埃主义等极权思想，《开放社会及其敌人》便在这样的背景下诞生。1945年出版后，旋即轰动西方学界，也奠立了波普尔无论在左派或右派都屹立不摇的划时代地位。在书中，波普批判了三位西方传统的思想巨人──柏拉图、黑格尔与马克思。波普认为他们的思想构成了当代极权主义的起源，也是20世纪种种暴行的基础；黑格尔、马克思的历史定论主义，更否定了人们改变与做出选择的可能性。什么是历史定论主义？即是讲历史是有轨迹可循，历史会跟着这条轨迹去进步。马克思的历史决定论即讲历史一定是这样发生，由奴隶主义变封建主义，封建主义变资本主义，资本主义变社会主义，社会主义变共产主义。这个历史定论主义就是卡尔·波普尔所说的开放社会的大敌。1619项目这种历史定论主义完全是错的，即你把美国历史再从你的角度去修正一次，这样做完全是错误的，因为历史是受无数的factor影响，绝对不是一个单一factor可以影响，我们必须用广阔的角度去看历史，以前他们忽视了奴隶，现在我们可以再讲黑人对美国历史的影响，但是绝不能把美国历史修正为围绕黑人而旋转。
 
-（清教徒相信上帝与他们有个契约，并挑选他们成为世界的典范。约翰·温斯罗普1630引用圣经马太福音5:14将马萨诸塞湾的宗教领地描绘成”山巅之城”。）
+[!\[\]()!\[\](https://spark.adobe.com/page/tQbipGu9nU6hJ/images/392cf3e6-a135-45b9-8591-1846461612b6.jpg?asset_id=52990826-b011-4684-8bf4-b7817bd8f921&amp;img_etag=%22ebcf61c6078a61eb599f16a933e53bbc%22&amp;size=3281)](https://spark.adobe.com/page/tQbipGu9nU6hJ/images/392cf3e6-a135-45b9-8591-1846461612b6.jpg?asset_id=52990826-b011-4684-8bf4-b7817bd8f921&amp;img_etag=%22ebcf61c6078a61eb599f16a933e53bbc%22&amp;size=1024)波普尔（1902—1994）
 
+**1619项目已变成一种宗教**。其实今日创建1619项目的人就是马克思主义者，这套理论就是法兰克褔学派新马克思主义。它和相对文化论这些新左派讲的理论一样，都是反对普世价值，它们是普世价值的敌人。譬如相对文化论认为，中国人因为中国的传统文化而实行独裁和美国实行民主一样，没有分别，所以他们可以容忍中国的独裁，这其实是舍弃了普世文化，是普世文化的一个异端，而它是反对普世文化的精神，但却成了政治正确，然后他们把这套政治正确发挥到同宗教一个级别，而这种宗教不准其他人有异议，任何人讲一句不中听的说话就会被他们攻击到下台。比如，不可以讲merry Christmas圣诞快乐，要讲happy holiday假期快乐。这套政治正确已经到了全然排他境界，这其实违反了美国的宪法宗教自由，这是我们绝对不能接受的，即是你喜欢怎样是你的事，你不能用你那一套的道德去规范所有人去到这么严格的地步。1619项目这套理论也是一样，它已变成一种宗教，并嵌入到美国学校的教科书里。它让美国小朋友觉得美国有原罪，美国的过去是一种耻辱，不再为美国人对自由民主人权奋斗而觉得骄傲，不再为自己的祖辈而觉得骄傲；它还让美国人背上了原罪，觉得要赎罪，加州已有人建议每个黑人要赔偿35万美金。
 
+1619项目已把美国毒害成这样子，川普总统能不心痛吗？能不气愤吗？川普总统呼应了联邦参议员汤姆‧科顿（Tom Cotton）在7月提出的一项法案中所述观点。该法案提议，拒绝向任何在课程中使用“1619项目”的学校提供联邦资金。同时川普颁布行政命令马上成立1776委员会，以对抗“1619项目”，任重而道远。
 
-> America is a force for good – an exceptional nation like none other in history. First country ever to recognize that every human being has God-given rights. Truly a shining city on a hill. [pic.twitter.com/PZjPw4jX2O](https://t.co/PZjPw4jX2O)
-> — Secretary Pompeo (@SecPompeo) [January 1, 2021](https://twitter.com/SecPompeo/status/1345014445395877888?ref_src=twsrc%5Etfw)
+[!\[\]()!\[\](https://spark.adobe.com/page/tQbipGu9nU6hJ/images/7e837308-09c1-4d26-a945-dedd5cf832d4.jpg?asset_id=745cbf66-504e-488c-9edc-f2cbbe463c8c&amp;img_etag=%2221bd62bbc55f9f98bdf8163689be44b0%22&amp;size=1024)](https://spark.adobe.com/page/tQbipGu9nU6hJ/images/7e837308-09c1-4d26-a945-dedd5cf832d4.jpg?asset_id=745cbf66-504e-488c-9edc-f2cbbe463c8c&amp;img_etag=%2221bd62bbc55f9f98bdf8163689be44b0%22&amp;size=1024)
 
+卡尔·波普尔主张：理想的社会，应是一个建立在自由讨论与理性批评之上的开放社会，而开放社会的敌人，即是不容异见的独裁专制，以及伴随暴力手段的乌托邦理想。后者甚至可能毁灭人类文明，重返极权的部落主义。他也强调：开放社会的敌人，同样会打着“开放”旗帜，而行专制之实。只有清晰分辨这种虚伪，肯定理性与自由，才能在政治、社会制度以及种种问题上，求得实际合理的根本解决，并创造出更理想的未来。
 
-
-## 国务卿彭佩奥：
-
-#Heros #英雄们
-
-
-
-> [#Heroes](https://twitter.com/hashtag/Heroes?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/TaofKhdhdD](https://t.co/TaofKhdhdD)
-> — Secretary Pompeo (@SecPompeo) [January 1, 2021](https://twitter.com/SecPompeo/status/1345032030757687297?ref_src=twsrc%5Etfw)
-
-
-
-## 川普总统：
-
-参议员乔什·霍利抨击沃尔玛（官方）推特称他为“输不起的失败者” （据[email protected]新闻网报道）美国为乔什和加入他的许多其他人感到自豪。美国不能进行欺诈性选举！
-
-（附Breitbart @BreitbartNews 新闻网报道）
-
-
-
-> Sen. Josh Hawley Slams Walmart Tweet Calling Him a ‘Sore Loser‘ [https://t.co/wmShnPcrzj](https://t.co/wmShnPcrzj) via [@BreitbartNews](https://twitter.com/BreitbartNews?ref_src=twsrc%5Etfw) America is proud of Josh and the many others who are joining him. The USA cannot have fraudulent elections!
-> — Donald J. Trump (@realDonaldTrump) [January 1, 2021](https://twitter.com/realDonaldTrump/status/1344853996977197056?ref_src=twsrc%5Etfw)
-
-
-
-## 川普总统：
-
-大型抗议集会将于1月6日上午11:00点，在华盛顿特区举行。 有关地点的详细信息将后续公布。 #停止窃取大选！ #StopTheSteal！
-
-
-
-> The BIG Protest Rally in Washington, D.C., will take place at 11.00 A.M. on January 6th. Locational details to follow. StopTheSteal!
-> — Donald J. Trump (@realDonaldTrump) [January 1, 2021](https://twitter.com/realDonaldTrump/status/1345095714687377418?ref_src=twsrc%5Etfw)
-
-
-
-## 川普总统：
-
-海量的（选举舞弊）证据将会在一月六号展现。我们赢了，巨大的胜利！
-
-【转参议员乔什·霍利12月30号的推文：成百上千万关心选举诚信的选民们值得倾听。我会代表他们在一月六号否决（选举人团的认证）。(附乔什·霍利的声明)】
-
-
-
-> Massive amounts of evidence will be presented on the 6th. We won, BIG! [https://t.co/ymncRrNR5t](https://t.co/ymncRrNR5t)
-> — Donald J. Trump (@realDonaldTrump) [January 1, 2021](https://twitter.com/realDonaldTrump/status/1345100089505755139?ref_src=twsrc%5Etfw)
-
-
-
-## 国会议员保罗·戈萨尔（Paul Gosar）：
-
-每个想要反对科技政变并保护选举合法胜利者的美国人都应该加入我们的行列。拜登是非法的篡夺者。
-
-【附川普总统的推文：大型抗议集会将于1月6日上午11:00点，在华盛顿特区举行。 有关地点的详细信息将后续公布。 #停止窃取大选！ #StopTheSteal！】
-
-
-
-> Every American who wants to take a stand against a Techology Coup and protect the lawful victor of the election should join us. Biden is an illegitimate usurper. [https://t.co/rqNdcZXkIB](https://t.co/rqNdcZXkIB)
-> — Paul Gosar (@DrPaulGosar) [January 1, 2021](https://twitter.com/DrPaulGosar/status/1345106735145623554?ref_src=twsrc%5Etfw)
-
-
-
-## 川普总统：
-
-我们的共和党参议院刚刚错过了摆脱230条款的机会，该条款赋予了大科技公司无限的权力。可悲！！！现在，他们希望给遭受 #中共国病毒 袭击的人们600美元，而不是他们急需的2000美元。不公平也不聪明！
-
-
-
-> Our Republican Senate just missed the opportunity to get rid of Section 230, which gives unlimited power to Big Tech companies. Pathetic!!! Now they want to give people ravaged by the China Virus $600, rather than the $2000 which they so desperately need. Not fair, or smart!
-> — Donald J. Trump (@realDonaldTrump) [January 1, 2021](https://twitter.com/realDonaldTrump/status/1345111621430091777?ref_src=twsrc%5Etfw)
-
-
-
-## 参议员泰德·克鲁兹：
-
-今天我投票反对参议院试图否决川普总统否决国防预算案 #NDAA
-
-请看我的声明全文：
-
-（附泰德·克鲁兹的声明：大意：他否决的理由有三：军事基地改名；限制了快速反应的军事能力；没有取消230）
-
-
-
-> Today I voted against the Senate’s attempt to override [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw)’s veto of the [#NDAA](https://twitter.com/hashtag/NDAA?src=hash&amp;ref_src=twsrc%5Etfw).
-> 
-> Read my full statement here ⬇️ [pic.twitter.com/cSjByGSw9h](https://t.co/cSjByGSw9h)
-> — Senator Ted Cruz (@SenTedCruz) [January 1, 2021](https://twitter.com/SenTedCruz/status/1345138825790705664?ref_src=twsrc%5Etfw)
-
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/i0rzNdFr8FeiT/images/2918dca3-9cfb-4056-b307-12b333714aa8.jpg?asset_id=cd271129-2b2c-4fe8-a0af-02eb16172adb&amp;img_etag=%22ca0bc3927973b9d4195980f2cc7cdbfc%22&amp;size=2560)](https://spark.adobe.com/page/i0rzNdFr8FeiT/images/2918dca3-9cfb-4056-b307-12b333714aa8.jpg?asset_id=cd271129-2b2c-4fe8-a0af-02eb16172adb&amp;img_etag=%22ca0bc3927973b9d4195980f2cc7cdbfc%22&amp;size=1024)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/i0rzNdFr8FeiT/images/9d0129cd-2961-4495-8a42-ce5b2d3ce03b.jpg?asset_id=7daa9d65-c8d6-4880-896e-a3c06254ca3a&amp;img_etag=%22d638c6098c825e660bb79a53a1c54419%22&amp;size=3231)](https://spark.adobe.com/page/i0rzNdFr8FeiT/images/9d0129cd-2961-4495-8a42-ce5b2d3ce03b.jpg?asset_id=7daa9d65-c8d6-4880-896e-a3c06254ca3a&amp;img_etag=%22d638c6098c825e660bb79a53a1c54419%22&amp;size=1024)
-[!\[\]()!\[\](https://spark.adobe.com/page/i0rzNdFr8FeiT/images/2b591956-9c14-4552-b7ed-c07390d858bd.jpg?asset_id=681418e0-8caf-40b1-b63f-e29d2c02ec30&amp;img_etag=%224f03632385d675c7dea3fb2012b2e028%22&amp;size=1024)](https://spark.adobe.com/page/i0rzNdFr8FeiT/images/2b591956-9c14-4552-b7ed-c07390d858bd.jpg?asset_id=681418e0-8caf-40b1-b63f-e29d2c02ec30&amp;img_etag=%224f03632385d675c7dea3fb2012b2e028%22&amp;size=1024)
-## 国务卿蓬佩奥：
-
-王夕越 @XiyueWang（普林斯顿历史学博士研究生）在2016年进行历史研究时，伊朗政权逮捕了他，将他定为间谍罪，并判处他10年徒刑。我们一直在争取他的自由，直到该政权在2019年将他释放–没有支付一堆现金。#美国人优先 #AmericansFirst
-
-
-
-> .[@XiyueWang9](https://twitter.com/XiyueWang9?ref_src=twsrc%5Etfw) was conducting historical research in 2016 when the Iranian regime arrested him, convicted him of espionage, and sentenced him to 10 years in prison. We pressed for his freedom until the regime released him in 2019 – with no pallets of cash in return. [#AmericansFirst](https://twitter.com/hashtag/AmericansFirst?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/VxTi1fEEld](https://t.co/VxTi1fEEld)
-> — Secretary Pompeo (@SecPompeo) [January 1, 2021](https://twitter.com/SecPompeo/status/1345142761335345152?ref_src=twsrc%5Etfw)
-
-
-
-## 川普总统律师纽约前市长朱利安尼：
-
-民主党怎样从根子里与你为敌！
-
-请观看鲁迪·朱利安尼的分析：
-
-
-
-> How DEMOCRATS Are Rooting AGAINST YOU! 
-> 
-> Watch Rudy Giuliani’s Analysis HERE: [https://t.co/OO09nBFLxX](https://t.co/OO09nBFLxX) [pic.twitter.com/IuVtI6VWD8](https://t.co/IuVtI6VWD8)
-> — Rudy W. Giuliani (@RudyGiuliani) [January 1, 2021](https://twitter.com/RudyGiuliani/status/1345143890358185985?ref_src=twsrc%5Etfw)
-
-
-
-## 川普总统：
-
-一月六号，华盛顿特区见。(转发“窃取美国的阴谋”The Plot to Steal America视频)
-
-
-
-> January 6th. See you in D.C. [https://t.co/vynZTv9lHb](https://t.co/vynZTv9lHb)
-> — Donald J. Trump (@realDonaldTrump) [January 1, 2021](https://twitter.com/realDonaldTrump/status/1345152408591204352?ref_src=twsrc%5Etfw)
-
-
-
-## 参议员瑞克·斯科特：
-
-我很高兴纽约证券交易所（NYSE）采取了这一重要的措施，移除了和 #中共国 军方有关联的公司。这些公司不遵从美国的法律的规章，并且被当作增长中共国在全世界的影响的工具。
-
-【转推华尔街，NYSE将中国三家大通信运营商除名，遵从了美国政府禁止美国人投资帮助中共军方的公司的命令】
-
-
-
-> I’m glad the NYSE is taking this important measure to remove companies that are tied to the Chinese military. 
-> 
-> These companies do not follow American laws and regulations and are used as tools to grow China’s influence around the world. [https://t.co/Xk1hvVEjIb](https://t.co/Xk1hvVEjIb)
-> — Rick Scott (@SenRickScott) [January 2, 2021](https://twitter.com/SenRickScott/status/1345373583472799744?ref_src=twsrc%5Etfw)
-
-
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/i0rzNdFr8FeiT/)
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/tQbipGu9nU6hJ/)
 
 [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
 [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
 [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/i0rzNdFr8FeiT/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/i0rzNdFr8FeiT/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
-0
+[!\[\]()!\[\](https://spark.adobe.com/page/tQbipGu9nU6hJ/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/tQbipGu9nU6hJ/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
++2
