@@ -14,144 +14,144 @@
 
 ---
 
-### [【热点播报】美参议员特德·克鲁兹直言谷歌是“地球上最危险的公司”](/content/gnews/1/README.md)
+### [从军事科学院2017年10月招收公告剖析其生化战体系及人员构成](/content/gnews/1/README.md)
+ ` NewFOC`
+
+### [视频12/31/2021 Zhang Haochang: 美国情报工作在奥巴马政府时期受到极大的削弱和破坏。](/content/gnews/2/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [打脸病毒自然说：中共军事专家五年前就提到基因工程改造病毒](/content/gnews/3/README.md)
+ ` Himalaya Australia`
+
+### [郭文贵先生今日动态（2021年1月3日）](/content/gnews/4/README.md)
+ ` Fightforthetrue`
+
+### [博明告诉世界病毒来自武汉实验室,众议院少数党领袖支持克鲁兹声明](/content/gnews/5/README.md)
+ ` 恩典农场`
+
+### [【热点播报】美参议员特德·克鲁兹直言谷歌是“地球上最危险的公司”](/content/gnews/6/README.md)
  ` 纽约香草山农场`
 
-### [川普总统在周三的国会审计中处于&#8221;非常有利的位置&#8221;](/content/gnews/2/README.md)
+### [川普总统在周三的国会审计中处于&#8221;非常有利的位置&#8221;](/content/gnews/7/README.md)
  ` 首尔喜韩农场`
 
-### [《路德时评》重磅解读：美国副国家安全顾问申明病毒来自中共实验室](/content/gnews/3/README.md)
+### [《路德时评》重磅解读：美国副国家安全顾问申明病毒来自中共实验室](/content/gnews/8/README.md)
  ` GM141`
 
-### [寒风尚料峭，何处寄哀思？&#8212;](/content/gnews/4/README.md)
+### [寒风尚料峭，何处寄哀思？&#8212;](/content/gnews/9/README.md)
  ` 东京樱花团-Tokyo Sakura Group`
 
-### [为什么加州医院超过一半的医护人员拒绝接种疫苗？](/content/gnews/5/README.md)
+### [为什么加州医院超过一半的医护人员拒绝接种疫苗？](/content/gnews/10/README.md)
  ` gnewscanada`
 
-### [【文字版】郭文贵2020.12.30直播：郭先生为”G Forever我是音雄全球跨年晚会”录制视频第二弹](/content/gnews/6/README.md)
+### [【文字版】郭文贵2020.12.30直播：郭先生为”G Forever我是音雄全球跨年晚会”录制视频第二弹](/content/gnews/11/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [视频【路德时评粤语快报】01.03：习近平手术成功对于爆料革命是好事 彭斯受制于中共](/content/gnews/7/README.md)
+### [视频【路德时评粤语快报】01.03：习近平手术成功对于爆料革命是好事 彭斯受制于中共](/content/gnews/12/README.md)
  ` GM42`
 
-### [视频【路德时评粤语快报】01.03：习近平手术成功对于爆料革命是好事 彭斯受制于中共](/content/gnews/8/README.md)
+### [视频【路德时评粤语快报】01.03：习近平手术成功对于爆料革命是好事 彭斯受制于中共](/content/gnews/13/README.md)
  ` GM42`
 
-### [视频【每日快讯】03/01/2021:习近平完成脑瘤手术 彭斯被证实不是战友](/content/gnews/9/README.md)
+### [视频【每日快讯】03/01/2021:习近平完成脑瘤手术 彭斯被证实不是战友](/content/gnews/14/README.md)
  ` GM132 每日快訊`
 
-### [英国首相鲍里斯-约翰逊新年发表推文支持大重置](/content/gnews/10/README.md)
+### [英国首相鲍里斯-约翰逊新年发表推文支持大重置](/content/gnews/15/README.md)
  ` gnewscanada`
 
-### [视频CRISPR 基因剪辑技术是什麽？](/content/gnews/11/README.md)
+### [视频CRISPR 基因剪辑技术是什麽？](/content/gnews/16/README.md)
  ` Himalaya Australia`
 
-### [至暗穹顶（二十）——股市中的蒙昧一代](/content/gnews/12/README.md)
+### [至暗穹顶（二十）——股市中的蒙昧一代](/content/gnews/17/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [视频01/02/2021 彼得·纳瓦罗： 如果需要的话，我们可以把决定大选的日期延后到1月20号以后。](/content/gnews/13/README.md)
+### [视频01/02/2021 彼得·纳瓦罗： 如果需要的话，我们可以把决定大选的日期延后到1月20号以后。](/content/gnews/18/README.md)
  ` 秘密翻译组G-Translators`
 
-### [视频01/01/2021 奈杰·法拉吉: 2021年开始我的下一场征战，那就是确保我们不再依赖中共国。](/content/gnews/14/README.md)
+### [视频01/01/2021 奈杰·法拉吉: 2021年开始我的下一场征战，那就是确保我们不再依赖中共国。](/content/gnews/19/README.md)
  ` 秘密翻译组G-Translators`
 
-### [肆意贷款给底层，中共意欲何为？](/content/gnews/15/README.md)
+### [肆意贷款给底层，中共意欲何为？](/content/gnews/20/README.md)
  ` Himalaya Australia`
 
-### [视频01/02/2021 美国媒体OAN：中共统战机构中美交流基金会通过向美国主流媒体关键人物提供免费旅游和晚宴。](/content/gnews/16/README.md)
+### [视频01/02/2021 美国媒体OAN：中共统战机构中美交流基金会通过向美国主流媒体关键人物提供免费旅游和晚宴。](/content/gnews/21/README.md)
  ` 秘密翻译组G-Translators`
 
-### [视频川普总统连发五推的视频 (上）](/content/gnews/17/README.md)
+### [视频川普总统连发五推的视频 (上）](/content/gnews/22/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [视频01/02/2021 美国媒体OAN：国际货币基金组织表示将使用网络历史记录来评估信用评分。](/content/gnews/18/README.md)
+### [视频01/02/2021 美国媒体OAN：国际货币基金组织表示将使用网络历史记录来评估信用评分。](/content/gnews/23/README.md)
  ` 秘密翻译组G-Translators`
 
-### [不吐不快（一）开“顶风船”](/content/gnews/19/README.md)
+### [不吐不快（一）开“顶风船”](/content/gnews/24/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [班农战斗室WARROOM精选 620期 霍利参议员勇于公开挑战麦康奈尔 乔·拜登已不再在黄金时段讲话因其无法再吸引听众](/content/gnews/20/README.md)
+### [班农战斗室WARROOM精选 620期 霍利参议员勇于公开挑战麦康奈尔 乔·拜登已不再在黄金时段讲话因其无法再吸引听众](/content/gnews/25/README.md)
  ` 喜群文月`
 
-### [视频01/02/2021 班农：2021年，新中国联邦，与郭文贵先生和爆料革命一起将继续为中国人民和美国人民的自由而奋斗，直到中共从地球上被消灭为止。](/content/gnews/21/README.md)
+### [视频01/02/2021 班农：2021年，新中国联邦，与郭文贵先生和爆料革命一起将继续为中国人民和美国人民的自由而奋斗，直到中共从地球上被消灭为止。](/content/gnews/26/README.md)
  ` 秘密翻译组G-Translators`
 
-### [视频01/02/2021 冠博士: 中共推广的CCP抗疫模式是及其糟糕的。](/content/gnews/22/README.md)
+### [视频01/02/2021 冠博士: 中共推广的CCP抗疫模式是及其糟糕的。](/content/gnews/27/README.md)
  ` 秘密翻译组G-Translators`
 
-### [关于中欧投资协定冠博士有话说](/content/gnews/23/README.md)
+### [关于中欧投资协定冠博士有话说](/content/gnews/28/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [1月6日的彭斯会有什么表现](/content/gnews/24/README.md)
+### [1月6日的彭斯会有什么表现](/content/gnews/29/README.md)
  ` 秘密翻译组G-Translators`
 
-### [2021年CCP冠状病毒大流行第331集](/content/gnews/25/README.md)
+### [2021年CCP冠状病毒大流行第331集](/content/gnews/30/README.md)
  ` eyer`
 
-### [中共对美国的威胁是确实存在的！](/content/gnews/26/README.md)
+### [中共对美国的威胁是确实存在的！](/content/gnews/31/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【看七哥视频】只有消灭共产党这个邪恶的体制，中国老百姓才有希望！](/content/gnews/27/README.md)
+### [【看七哥视频】只有消灭共产党这个邪恶的体制，中国老百姓才有希望！](/content/gnews/32/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [美国出台法案保护达赖喇嘛转世](/content/gnews/28/README.md)
+### [美国出台法案保护达赖喇嘛转世](/content/gnews/33/README.md)
  ` 秘密翻译组G-Translators`
 
-### [万恶的户口本](/content/gnews/29/README.md)
+### [万恶的户口本](/content/gnews/34/README.md)
  ` 东京樱花团-Tokyo Sakura Group`
 
-### [美国之殇](/content/gnews/30/README.md)
+### [美国之殇](/content/gnews/35/README.md)
  ` 秘密翻译组G-Translators`
 
-### [班农战斗室WARROOM精选 621期 闫丽梦博士讲述第一个站出来的吹哨人李文亮医生的故事 中共有意在防护装备短缺情况下 让他到门诊前线去送死并故意拖延对他的治疗](/content/gnews/31/README.md)
+### [班农战斗室WARROOM精选 621期 闫丽梦博士讲述第一个站出来的吹哨人李文亮医生的故事 中共有意在防护装备短缺情况下 让他到门诊前线去送死并故意拖延对他的治疗](/content/gnews/36/README.md)
  ` 喜群文月`
 
-### [法国最知名主流媒体将病毒来源引向武汉实验室泄露](/content/gnews/32/README.md)
+### [法国最知名主流媒体将病毒来源引向武汉实验室泄露](/content/gnews/37/README.md)
  ` gnewscanada`
 
-### [视频中国共产党的血债](/content/gnews/33/README.md)
+### [视频中国共产党的血债](/content/gnews/38/README.md)
  ` 东京樱花团-Tokyo Sakura Group`
 
-### [深度解读1619项目，认识其反普世价值所带来的危害](/content/gnews/34/README.md)
+### [深度解读1619项目，认识其反普世价值所带来的危害](/content/gnews/39/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [视频01/01/2021 文贵先生直播:我们要靠着新中国联邦合法地创造财富](/content/gnews/35/README.md)
+### [视频01/01/2021 文贵先生直播:我们要靠着新中国联邦合法地创造财富](/content/gnews/40/README.md)
  ` 秘密翻译组G-Translators`
 
-### [视频01/01/2021 文贵先生直播:不要用中国人固有的观念看美国](/content/gnews/36/README.md)
+### [视频01/01/2021 文贵先生直播:不要用中国人固有的观念看美国](/content/gnews/41/README.md)
  ` 秘密翻译组G-Translators`
 
-### [加拿大正考虑为因度假而隔离的旅行者提供补助金](/content/gnews/37/README.md)
+### [加拿大正考虑为因度假而隔离的旅行者提供补助金](/content/gnews/42/README.md)
  ` gnewscanada`
 
-### [视频01/01/2021 文贵先生直播:现在出来砸爆料革命的人吃相如此难看,但没有原则的糊涂蛋比真正的坏人还坏](/content/gnews/38/README.md)
+### [视频01/01/2021 文贵先生直播:现在出来砸爆料革命的人吃相如此难看,但没有原则的糊涂蛋比真正的坏人还坏](/content/gnews/43/README.md)
  ` 秘密翻译组G-Translators`
 
-### [持续追踪病毒来源 中共已无暇遮掩](/content/gnews/39/README.md)
+### [持续追踪病毒来源 中共已无暇遮掩](/content/gnews/44/README.md)
  ` 秘密翻译组G-Translators`
 
-### [美国政要每日推特重要信息汇总 （2021.1.1）](/content/gnews/40/README.md)
+### [美国政要每日推特重要信息汇总 （2021.1.1）](/content/gnews/45/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [川普说COVID死亡人数被大大夸大——他一定是在说他们扔在名单上的所有因中毒和枪击死亡的人数](/content/gnews/41/README.md)
+### [川普说COVID死亡人数被大大夸大——他一定是在说他们扔在名单上的所有因中毒和枪击死亡的人数](/content/gnews/46/README.md)
  ` 康州盘古喜马拉雅农场`
 
-### [视频01/01/2021 文贵先生直播:能把中共放出来的蛇、燕子变成“我们的人”是高人](/content/gnews/42/README.md)
+### [视频01/01/2021 文贵先生直播:能把中共放出来的蛇、燕子变成“我们的人”是高人](/content/gnews/47/README.md)
  ` 秘密翻译组G-Translators`
-
-### [塔克-卡尔森史诗般的独白强调了真实的重要性](/content/gnews/43/README.md)
- ` gnewscanada`
-
-### [在中共国的西方资本恐将被消失](/content/gnews/44/README.md)
- ` 秘密翻译组G-Translators`
-
-### [彭斯接受国会议员的选举挑战](/content/gnews/45/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [美国国务院发布《中国共产党：威胁全球和平与稳定》的公告](/content/gnews/46/README.md)
- ` 喜馬拉雅的文雅 Himalaya Wenya`
-
-### [一年回顾&#8212;２０２０美国灭共大事记](/content/gnews/47/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
