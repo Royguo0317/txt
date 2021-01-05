@@ -1,25 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭文贵先生今日动态（2021年1月4日）
-` Fightforthetrue` [轉載自GNews](https://gnews.org/zh-hans/716475/)
+## 中共或已放棄“不首先使用核武器”政策—華春瑩發推洩露重大核戰略轉變
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/717441/)
 
-摘要组
+- 编辑：Victor Torres
 
-【持续更新】购买Gdollar支票的处理方式；请VOG和凤凰基地战友们积极与喜马拉雅联盟委员会对好账，为下一步行动做好准备，真正的战友之家就是战友的农场和喜马拉雅联盟委员会！
-![]()![](https://gnews.org/wp-content/uploads/2021/01/image-34.png)
-00:01 尊敬的战友们好啊，还是2021年1月4号，刚才直播当中有两个问题忘了给战友们汇报了。
 
-00:10 第一个，大家买Gdollar的所有的支票，大概，我们有很多很多张，很多张，大概也就快上千万美元了。我们并没有入账。这些支票我们要么给你退回去，要么就是撕毁，要么就是你自己主动要求给你寄回去。都可以，但是前提你一定和喜马拉雅联盟委员会老班长、长岛哥、还有现在的草根小哥，大卫兄弟，他们联盟委员会来联系，把你的支票给你处理好。如何处理细节，请跟他们联系。好不好，希望全球各农场战友尽快把这事处理好。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-00:51 第二个事情，兄弟姐妹们，我再一次拜托，兄弟姐妹们，任何人现在跟VOG和凤凰基地对账的战友们，请和我们的喜马拉雅联盟委员会，他们是做义工组织，是帮助战友的，采取法律行动是另外一回事。请你们配合好，和他们尽快联系，为下一步为你们争取到，和采取法律行动，做好一切的准备，请对好账，对好账，兄弟姐妹们。
+**西班牙2021年1月5日电/西喜社—**
 
-01:24 一定要记住，别以为七哥承担责任了，你就不管了，那也不中啊。是吧。拜托了，兄弟姐妹们，赶快跟喜马拉雅联盟委员会，把账对好，然后希望能得到你们授权的时候，会跟你们联系，然后希望你们配合的时候，希望你们高度配合。好不好。美国是个法律社会，绝不是你嘴想说什么就说什么的，一切是靠你的实力，和你的证据，兄弟姐妹们，放心吧，有七哥在，没事没事。这个咱们喜马拉雅联盟委员会，是一个战友之间的家庭组织，真正的战友之家就是你们的农场和喜马拉雅联盟委员会。
+中共國外交部發言人華春瑩1月5日發推質問美國:
 
-02:07 唔该晒了，兄弟姐妹们，唔该晒。
+“中國是唯一一個無條件承諾不對無核武器國家或無核武器區使用或威脅使用核武器的核武器國家。美國能做出這樣的承諾嗎？”
 
-（视频结束）
+據中共國外交部網站原發布的核戰略措辭為：“中國一貫主張最終全面禁止和徹底銷毀核武器，堅定奉行自衛防禦的核戰略，始終恪守在任何時候和任何情況下不首先使用核武器政策，明確承諾無條件不對無核武器國家和無核武器區使用或威脅使用核武器。”
+比較可以發現，中共或已放棄“自衛防禦”核戰略、“不首先使用核武器”政策。
 
-更多信息请点：[https://gtv.org/getter/5ff343e787fabe2daf30672c](https://gtv.org/getter/5ff343e787fabe2daf30672c)
 
+
+> China is the only nuclear-weapon state that has unconditionally committed itself not to use or threaten to use nuclear weapons against non-nuclear-weapon states or nuclear-weapon-free zones. Can the [#US](https://twitter.com/hashtag/US?src=hash&amp;ref_src=twsrc%5Etfw) make such a commitment?
+> — Hua Chunying 华春莹 (@SpokespersonCHN) [January 5, 2021](https://twitter.com/SpokespersonCHN/status/1346402223748599809?ref_src=twsrc%5Etfw)
+
+
+
+参考资料：[https://www.fmprc.gov.cn/web/ziliao\_674904/tytj\_674911/zcwj\_674915/t119261.shtml](https://www.fmprc.gov.cn/web/ziliao_674904/tytj_674911/zcwj_674915/t119261.shtml)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 0

@@ -1,78 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 会计，财报，审计入门基础与介绍（八）
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/716014/)
+## 彭斯副总统1月6日前最新动向
+` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/717036/)
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/WX20201228-134452@2x.png)
-Picture Source: https://www.groomassocies.com
+2021年1月4日，彭斯副总统在乔治亚州当地社区做动员选举集会活动上，他的讲话引起台下阵阵热烈的掌声，他在推文中称：
 
-在第八篇中是继续详细展示财务审计与分析过程中所涉及的股权分析及资产负债表中各项目内容。有助于投资人或审计师依照富有逻辑且合理的顺序对于财务报表中可以影响股权的项目进行逐一检阅。
+谢谢你，乔治亚州！再过一天，我们需要你**守住阵地**！我们需要这个伟大的州有信仰的人民为两位支持生命、信仰和自由的领导人站台助阵! 我们需要你投票支持
+@Perduesenate和 @KLoeffler （乔治亚州挺川议员）！
+![]()![](https://gnews.org/wp-content/uploads/2021/01/thank-you-GA.png)
+彭斯副总统在几个小时后，转发了川普总统在乔治亚州集会演讲时的视频。不出意外，在场支持者人山人海，场面热烈。我们看到川普总统在当地演讲时，一改过去统一使用红色“共和党”颜色的标识，很多广告和旗帜使用了蓝色，再次佐证了，美国总统竞选活动到了现在的阶段，已经不是共和党和民主党之间的角逐，因为党派已经不是严格支持川普总统的界限，更重要的是民意表明，美国竞选早已发展成为捍卫宪法、支持公平和正义与从事舞弊造假的邪恶势力之间的斗争，川普总统团结一切可以团结的力量，将见证美国人民取胜的历史时刻。
 
-1. Current Liability 当前债务
-    - Trade Payable = Account Payable 应付账款
-    - Accrued Liability 应计负债
-    - 已经记录在Income Statement， 并未体现在Balance Sheet
-    - Account payable包含Accrued，但是Accrued 不一定等于Account payable
-    - Deferred Income = Deferred Revenue = Unearned Revenue
-    - 在交付商品或服务之前，就已经收到了款项
-    - Cash Received 计做资产
-    - Unearned revenue 计做负债，履约后消除负债，
-2. Non-Current Asset 非当前资产
-3. Property, Plant and Equipment 财产，工厂，设备
-    - IFRS：允许使用Cost Model / Revaluation Model
-    - US GAAP：仅限Cost Model
-4. Investment Property
-    - 不生产商品，服务，或管理的目的
-    - 出租收入或资本得利为目的（PPE和Inventory都含有Cost of Sales）
-5. Intangible Asset 无形资产 不含实物，可辩别（合同，法律权力。特权），非货币资产
-6. Identifiable Intangibles
-    - 根据IFRS / US GAAP，要求可辨认无形资产和资产负债表分开呈现
-    - IFRS： Research Stage计做Expensed / Income statement，
-    - Development Stage直接资本化Capitalized
-    - USGAAP：两个阶段全部计做 Expensed / Income statement
-7. Goodwill 声誉
-    - IFRS / USGAAP二者一致要求资本化，根据每年的测试在收入中进行增减
-    - 在计算Financial Ratio / Operating Trend 均会被排除
-8. Financial Assets
+- ![]()![](https://gnews.org/wp-content/uploads/2021/01/tomorrow-our.png)
+
+议员David Perdue称: @唐纳德-川普 总统说了： “明天我们整个国家都指望着乔治亚州的人民！”
+明天去投票，乔治亚州！#乔州议员 #乔州选举
+[https://twitter.com/Perduesenate/status/1346300517790711808?s=20](https://twitter.com/Perduesenate/status/1346300517790711808?s=20)
 
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture-0104-1.jpg)
+- ![]()![](https://gnews.org/wp-content/uploads/2021/01/its-election-day-1.png)
 
+1月5日议员Kelly Loeffler 称：“今天是投票日，乔治亚州，出去投票！” 
+[https://twitter.com/KLoeffler/status/1346426289532628994?s=20](https://twitter.com/KLoeffler/status/1346426289532628994?s=20)
+1月5日清晨，彭斯副总统继续以个人账号发推表示：
 
-1. 如何在股东权益中呈现金融资产未实现的损益？
-    - Classified as Trading security=Flow through income into retained earning。
-    - Classified as Available for sale = Accumulated other comprehensive income
-    - Classified as Held for mature = Not Recognized
-2. Deferred Tax Assets
-    - 预计未来可用抵税的资产（例如政府鼓励的定向投资）
-    - 会产生Income Tax Payable &gt; Tax Expense
-    - 造成税前利润下跌的情况下通过税收补偿，净利润也会大幅度上升（Net Profit /税后）
-3. Non-Current Liability 非当前债务
-4. Long-term Financial Liabilities 长期金融债务
-5. Deferred Tax Liabilities 递延所得税
-    - Income Tax Payable &lt; Tax Expense
-6. Component of Equity 权益组成
-    - Capital Contributed by Owners ：投资人向实体注入的资本，
-    - 通过普通股证明，且公司必须披露Authorized / Issued / Outstanding
-    - Preferred Shares：优先于普通股的权力
-    - Treasury Shares：公司回购并以库存方式持有，而不是注销。
-    - 若重新发行库存股票则不会在损溢表中确认任何损益
-    - Retained Shares存留股份
-    - Accumulated other Comprehensive Income
-    - Non-Controlling Interest：子公司的少数股东，虽被母公司合并，但不控制
-7. Statement of changes in Equity
-    - IFRS要求权益变动中以下几点
-    - Comprehensive Income 综合收入表
-    - Effects of any Accounting Change
-    - Capital Transaction 资本转让
-    - US GAAP：根据SEC在资产负债表中提供一份股东权益变动分析
+今天是乔治亚州的选举日! 走出去，去捍卫大多数人! 为@Perduesenate 和 @KLoeffler投票！
+#守住阵地
 
+- ![]()![](https://gnews.org/wp-content/uploads/2021/01/its-election-day.png)
 
-Author：搞笑排行榜
-
-Original opinion article by Himalaya G-farm Vancouver
-
-2021/01/04
-
-0
+[https://twitter.com/Mike\_Pence/status/1346442463095959552?s=20](https://twitter.com/Mike_Pence/status/1346442463095959552?s=20)
++1
