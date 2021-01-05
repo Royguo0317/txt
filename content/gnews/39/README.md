@@ -1,83 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 再一次争取民主！人民的呐喊，今日的委内瑞拉，明日的中华大地
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/714638/)
+## 英国脱欧领袖法拉奇：下一步要终结英国对中共国的依赖
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/715235/)
 
-作者：康州盘古农场—轰炸机
+新闻来源：BRAITBART《布莱特巴特》； 作者：Kurt Zindulka； 发布时间：2021年1月2日
 
-审核：康州盘古农场—Truemanman
+*翻译/简评：MikeHua；校对：X-Wing飞得更高；审核：万人往；Page：小雨*
 
+[!\[\]()!\[\](https://spark.adobe.com/page/fRZbaNUDaLC1N/images/eee06fbb-7347-4d63-a24b-7958abf3ef08.jpg?asset_id=fe900a98-87ab-4b5e-bb64-973ddfc7fcf4&amp;img_etag=%22e7de364e13cf91794cb0d21d632548db%22&amp;size=2560)](https://spark.adobe.com/page/fRZbaNUDaLC1N/images/eee06fbb-7347-4d63-a24b-7958abf3ef08.jpg?asset_id=fe900a98-87ab-4b5e-bb64-973ddfc7fcf4&amp;img_etag=%22e7de364e13cf91794cb0d21d632548db%22&amp;size=1024)
 
+**简评：**
 
-2020年12月12日，委内瑞拉燃起了希望，以美国承认的合法临时总统胡安·瓜伊多（Juan Guaidó）为首的委内瑞拉反对派成功地举行了以“人民的选票”（ people’s vote）为口号的全民公投。这次投票于12月7日至12日举行，数百万选民上街投票，用行动表示要恢复民主。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/图片18.png)
-美国国务卿迈克尔·蓬佩奥（Michael R. Pompeo）12月16日表示：
+法拉奇是英国脱欧的主导力量，现任首相约翰逊则是被中共收买的政客。这次法拉奇出面直接点名中共，并且要让英国减少以至结束对中共国的依赖，说白了就是要英国和中共脱钩。法拉奇也十分清楚中共与中国人的区别，要对抗的是中共，中国人民也是中共政权的受害者。这次英国表态站队美国，已经说明了全世界联合灭共、八十国联军铲平中共的行动即将到来。
 
-“这种情况说明数百万委内瑞拉人为促进变革进行组织和动员的力量，再次更广泛地掀起要求委内瑞拉实现自由和公正的总统选举和议会选举的运动。美国将继续支持委内瑞拉人民为自己的国家恢复民主和繁荣进行的斗争。”
+全世界因为此次中共病毒所承受的生命、经济和其他各种损失都源于中共的邪恶，中共不仅没有在此收手，反而还要偷盗美国大选，用疫苗进一步控制全世界。中共这样的疯狂一定会引来全人类的反抗。新中国联邦在这次灭共浪潮中把中共和中国人民分开，让联军瞄准中共而减少中国人民的损失。中华民族一定会在这次危机中新生，走向世界！共产党你完了！
 
-委内瑞拉是一个美丽的国家，名字Venezuela是取自意大利文，有“小威尼斯”的含义。从2000年一直到2010年间，GDP突飞猛进，从$117Billion增长到$393Billion。2012年中共支持的马杜罗上台后，GDP下降到$316Billion，在随后几年因为有中共的支持，在2015年又上升到了$482Billion（GDP产值）。但是这个数据是用委内瑞拉人民的自由换来的，与中共一样，用虚假的业绩粉饰了整个国家。自2018年起因为马杜罗的独裁专政造成了该国政治不稳定，经济崩溃。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/图片19.png)
+**原文翻译：**
 
+# **法拉奇：我下一波政治行动要结束英国对中共国的依赖**
 
-这样说你可能没有概念，下面请看物价：
+**英国脱欧领袖奈杰尔•法拉奇 (Nigel Farage)称在完成他的“一生杰作”让英国从欧盟中获取独立之后，他的下一个重大政治行动将会减少英国对中共国的依赖。**
 
-在委内瑞拉首都加拉加斯，
+[!\[\]()!\[\](https://spark.adobe.com/page/fRZbaNUDaLC1N/images/30e01aa4-9b6a-4f64-b9a0-7ddecc1e9657.png?asset_id=9ae4a3c9-8383-4e3d-b454-04423981b020&amp;img_etag=%22d62e268ccf77d71e9df1b239229fd94c%22&amp;size=2560)](https://spark.adobe.com/page/fRZbaNUDaLC1N/images/30e01aa4-9b6a-4f64-b9a0-7ddecc1e9657.png?asset_id=9ae4a3c9-8383-4e3d-b454-04423981b020&amp;img_etag=%22d62e268ccf77d71e9df1b239229fd94c%22&amp;size=1024)
 
-一只重2.4公斤的鸡（约合2.22美元），共花费14,600,000玻利瓦尔
+中文视频链接：[https://gtv.org/video/id=5ff0444a87fabe2daf2f3734](https://gtv.org/video/id=5ff0444a87fabe2daf2f3734)
 
-一卷厕纸的价格是2,600,000 玻利瓦尔
+法拉奇先生说中国共产党(CCP)是一个“更大的挑战”，也是一个“对英国独立性以及对我们生活方式的更大威胁”，中共对自由的威胁比欧盟更大。
 
-一公斤大米花费2,500,000 玻利瓦尔
+“中共国正在尽全力控制全世界；他们扼杀香港的民主，他们也会在全世界各地这么做。中共已经在非洲抢走了许多资源”，脱欧领袖法拉奇在他的Youtube频道上说，目前英国脱欧党正向着“英国改革党”的方向重新树立品牌。
 
-一包卫生巾，需要3,500,000 玻利瓦尔
+“中国共产党对世界和人类的自由造成了严重威胁，中共威胁我们的生活方式”，法拉奇警告称。
 
-一公斤番茄，价格为5,000,000玻利瓦尔
+法拉奇说他下一步的政治行动，就是要提高英国民众对中共独裁政权邪恶本质的认识，让人们意识到中共国对世界自由和民主产生的威胁。
 
-一公斤肉需要9,500,000玻利瓦尔
+“我们需要认识到中共国对世界的威胁，2021年我会开始我下一个政治行动，就是要确保我们不再依赖中共国”，法拉奇在周五说。
 
-2020年4月，委内瑞拉将最低工资提高到80万主权玻利瓦尔，按今天（2021-1）的汇率(USDVES) 1104430比1计算，月最低工资为0.72美金。
+在疫情初期，法拉奇先生说这次疫情危机暴露出西方对中共国产业链依赖的严重程度，特别是医疗防护用具(PPE)这类产业。
 
-（以上物价，工资，汇率为不同月份的数据，贬值速度飞快）
+[!\[\]()!\[\](https://spark.adobe.com/page/fRZbaNUDaLC1N/images/d165c543-de5a-43d7-bb60-2c557be7d58b.jpg?asset_id=38376fce-47a8-4173-8f50-f7ec1de9d051&amp;img_etag=%2246e2951ff7a2896ca67ce5704a30e646%22&amp;size=2560)](https://spark.adobe.com/page/fRZbaNUDaLC1N/images/d165c543-de5a-43d7-bb60-2c557be7d58b.jpg?asset_id=38376fce-47a8-4173-8f50-f7ec1de9d051&amp;img_etag=%2246e2951ff7a2896ca67ce5704a30e646%22&amp;size=1024)
 
-在这约十年中，委内瑞拉劳动者最低月收入的降幅达到了97.6%。这就在10年内让委内瑞拉从世界上最幸福的国家之一成为世界上最贫困的国家之一，对于所有委内瑞拉百姓来说，这就是“哭泣的十年”。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/图片20.png)
-郭文贵先生在2019年1月24日直播说：（摘选部分）
+“中共国如何利用这次他们自己制造的危机以影响世界的未来和深度影响欧洲的行径，应该让大家感到脊背一凉”，他在三月写道。
 
-我向大家先报告两个小事， 报告两个小事。大家看到委内瑞拉事情发生以后啊要深刻地思考。 这委内瑞拉对咱们的启发有多大啊？ 人民只要走向街头，他的哪个政府的军队和政府人员跟老百姓比，他的数量都是少数，甚至是极少数的。
+和川普总统不同，川普总统在任期内直接和中共在关键问题上正面冲突，法拉奇先生警告称，中共一想到拜登要当选就开始“垂涎三尺”。
 
-这个委内瑞拉这些被压迫的老百姓走向了街头，得到了美国总统第一个认可等于背书，全世界马上跟着那么多国家背书，这对我们启迪太深了。
+“川普总统可能要离开白宫，连路都走不稳的拜登要准备入驻，看起来中共统治全世界的计划又在实施了。这简直是个灾难”。法拉奇说。
 
-我在最早时候两年前爆料时候我就说，我就说过如果说北京城，不要说别的，就老百姓上街开车停车了，没油了，我啥也不说，我车就停下来，北京城一星期就垮了。 啥都不用干。那个时候军队里边，现在绝大多数军队都是八零后九零后，这些孩子们会去为他们去杀我们吗？ 不可能的。
+法拉奇先生称，中国共产党应该为释放病毒和掩盖疫情付出代价，他们杀死了数百万的生命，摧毁了全世界的经济。
 
-所以委内瑞拉这件事情的最重要的意义，就是让我们借鉴可以和平地不流血地合法地改变政府。这是一个国家民族走向民主法治，和信仰自由最基本的就不是暴力性的革命，它才能延续， 这太重要了。 不搞清算，不搞暴力，让老百姓说了算。老百姓说了算推翻了政府，老百姓选出来的政府，老百姓就接受一切结果。这就是我们追求的。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/图片21.png)
+“这场大流行过去是、现在也是中共国的错，西方应该要求对它给世界造成的混乱进行赔偿”，他上月说道。
 
+[原文链接](https://www.breitbart.com/europe/2021/01/02/farage-my-next-campaign-will-be-to-end-britains-dependence-on-china/)
 
-中国经济腾飞了20年，在我们敬爱的习总加速师的带领下，妄图控制美国，用病毒威慑全世界，犯下了不可磨灭的错误。同时在高压下我们的人权达到了历史低点（虽然这70年也没有啥人仅），随着世界看清CCP的本质，查清病毒是中共实验室制造的，将对中共经济体进行制裁，我们人民很快会过上委内瑞拉那样的生活。
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-在1989年6月4日，随着改革开放醒来的无数民主先辈，人民第一次在天安门前争取自由，被中共用重武器血腥屠杀。
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-有幸，我们现在有机会可以选择不流血的民主方式，改变这片土地，加入新中国联邦，改变中华。不由得又想起了那个片段，去游行，天安门广场。为什么？因为这是我的职责。
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-【本文章仅代表作者观点】
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/fRZbaNUDaLC1N/)
 
-参考资料：
+[!\[\]()!\[\](https://spark.adobe.com/page/fRZbaNUDaLC1N/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/fRZbaNUDaLC1N/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
-2020-12 公投
-
-[https://share.america.gov/zh-hans/millions-of-venezuelans-vote-for-democracy/](https://share.america.gov/zh-hans/millions-of-venezuelans-vote-for-democracy/)
-
-BBC 价格新闻
-
-[https://www.bbc.com/zhongwen/simp/world-45257801](https://www.bbc.com/zhongwen/simp/world-45257801)
-
-七哥2019-1-24 直播
-
-[https://www.youtube.com/watch?v=M0ScVf\_W3P8](https://www.youtube.com/watch?v=M0ScVf_W3P8)
-
-国家银行GDP数据
-
-[https://www.google.com/publicdata/explore?ds=d5bncppjof8f9\_&met\_y=ny\_gdp\_mktp\_cd&idim=country%3AVEN%3ACOL%3APER&hl=zh\_CN&dl=zh\_CN#!ctype=l&strail=false&bcs=d&nselm=h&met\_y=ny\_gdp\_mktp\_cd&scale\_y=lin&ind\_y=false&rdim=world&idim=country:VEN:COL:PER&ifdim=world&tstart=-315388800000&tend=1514995200000&hl=zh\_CN&dl=zh\_CN&ind=false](https://www.google.com/publicdata/explore?ds=d5bncppjof8f9_&amp;met_y=ny_gdp_mktp_cd&amp;idim=country%3AVEN%3ACOL%3APER&amp;hl=zh_CN&amp;dl=zh_CN#!ctype=l&amp;strail=false&amp;bcs=d&amp;nselm=h&amp;met_y=ny_gdp_mktp_cd&amp;scale_y=lin&amp;ind_y=false&amp;rdim=world&amp;idim=country:VEN:COL:PER&amp;ifdim=world&amp;tstart=-315388800000&amp;tend=1514995200000&amp;hl=zh_CN&amp;dl=zh_CN&amp;ind=false)
-
-0
++1

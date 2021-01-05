@@ -1,22 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 01/04/2021 财经快讯: 中共回应三大运营商被摘牌, 称将采取必要措施; 比特币再创新高, 突破30,000美元
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/715181/)
+## 參议员汤姆，科顿的声明
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/715943/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture34.png)图片来源： https://news.stcn.com
-2.路透社1月3日电 – 因有越来越多的交易员和投资者押注比特币将成为主流支付手段，数字货币比特币周六继续刷新纪录高位，在新年伊始首次升破30,000美元大关。
-[https://www.reuters.com/article/cryto-currency-idUSKBN2970FF](https://www.reuters.com/article/cryto-currency-idUSKBN2970FF)
+翻译： 正常人
 
-3.伊拉克与中共国企业达成石油提前支付协议，总价值约20亿美元。受新冠疫情影响，作为欧佩克第二大石油出口国的伊拉克急需达成这笔需要提前支付的交易，这是其首次提出原油预付款交易。
-[https://pedfire.com/iraq-boosts-coffers-by-2bn-in-chinese-prepaid-oil-deal/](https://pedfire.com/iraq-boosts-coffers-by-2bn-in-chinese-prepaid-oil-deal/)
+审稿：Bruce(文远) 编辑：MG1
+![]()![](https://gnews.org/wp-content/uploads/2021/01/501（1）.png)图片来自网络
+在联合会议上参议员汤姆，科顿的声明：“我同许多阿肯色州人一样担心总统选举中的违规行为，特别是在那些通过改变选举规则的违宪行为。我 也对选举结果感到失望，而且共和党贏得乔治亚州后，参议院应举办更多的关于这次选举的听证会。人民有权力知道情况。因此，我支持一个委员会来研究上次选举并提出改革措施，以保护我们的选举的完整性。
 
-4.美国智库门石研究发文表示中共国的经济比表面上看起来更糟糕，其全面复苏所需的疫苗仍在研发中，远远落后于美国的疫苗。同时，中共国政府对CCP病毒的反应，包括对美国的抹黑，正导致它失去全世界的朋友。
-[https://www.gatestoneinstitute.org/16902/china-covid-economy](https://www.gatestoneinstitute.org/16902/china-covid-economy)
+先父将我们的选举主要委托给各州，而不是国会。 他们将选举产生的总统的权力付给人民，是通过选举中心而非国会进行的。 他们将选举纠纷的裁决交给法院，而不是国会。 根据《宪法》和联邦法律，国会的权力仅限于计算各州提交的选举人票。
 
-5.元旦后银行房贷额度不松反紧。往年1月份银行房贷额度相对充裕，2021年情况却有所变化。近日，一位大中型银行支行行长向证券时报·券商中国记者表示，2021年该行的房贷额度不会宽松。这个表述的背景是2020年12月31日央行和银保监会出台了金融机构房地产贷款集中度管理通知，根据该通知，各家银行的个人住房贷款占比，最高不能超过32.5%，规模越小的银行，个人住房贷款业务的上限越低。
-[https://finance.sina.com.cn/roll/2021-01-04/doc-iiznezxt0404561.shtml](https://finance.sina.com.cn/roll/2021-01-04/doc-iiznezxt0404561.shtml)
+如果国会声称要推翻选举团的选举结果，那么它不仅会超越选举的权力，也破了先例。 首先，国会将剥夺人民选出总统的权力，这实质上不是人民选总统，而是将权力交由控制国会的任何一方掌握。 其次，国会減少像阿肯色州这样的小州在总统选举中的发言权。 民主党可以用拒绝数未来选举人票的方法，去除共和党选举人的票。 第三，国会将朝着将选举法联邦化迈出一大步，这就让共和党永远处于劣势。
 
-By 【Financial Team-Rosy Cloud】
+因此，我不会反对在1月6日对合格的选举人票进行计数。我感谢总统在过去四年中取得的成就，这就是为什么我为竞选连任而进行了积极的竞选。 但是，反对通过核证的选举人不投票川普第二任期，这只会纵容那些违宪的民主党人。
 
-0
+连接 [https://www.cotton.senate.gov/news/press-releases/cotton-statement-on-joint-session-of-congress-](https://www.cotton.senate.gov/news/press-releases/cotton-statement-on-joint-session-of-congress-)
+
+2021年1月3日
+![]()![](https://gnews.org/wp-content/uploads/2021/01/澳喜图标2.jpg)
++1

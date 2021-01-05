@@ -1,41 +1,78 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发【茧新闻】海内专题：习近平签署中央军委2021年1号命令&#8211;向全军发布开训动员令
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/715023/)
+## 会计，财报，审计入门基础与介绍（八）
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/716014/)
 
-作者：玫瑰天空
+![]()![](https://gnews.org/wp-content/uploads/2020/12/WX20201228-134452@2x.png)
+Picture Source: https://www.groomassocies.com
 
-据中共国官媒新华社北京1月4日电中共国总书记，中共中央军委主席习近平4日签署中央军委2021年1号命令，向[全军发布开训动员令。全文如下](https://www.toutiao.com/a6913780875381441037/)：
-![]()![](https://gnews.org/wp-content/uploads/2021/01/截屏2021-01-05-03.41.36.png)
-「2021年，全军要坚持以习近平新时代中国特色社会主义思想为指导，贯彻习近平**强军思想**，贯彻**新时代军事战略方针**，贯彻中央军委军事训练会议精神，加强党对军事训练工作的领导，**聚焦备战打仗**，深入**推进军事训练转型**，构建新型军事训练体系，全面提高**训练实战化水平和打赢能力**。
+在第八篇中是继续详细展示财务审计与分析过程中所涉及的股权分析及资产负债表中各项目内容。有助于投资人或审计师依照富有逻辑且合理的顺序对于财务报表中可以影响股权的项目进行逐一检阅。
 
-**深化实战实训**，坚持以战领训、以训促战，加强战争和作战问题研究，加强实案化对抗性训练，加强应急应战专攻精练，加强军事斗争一线练兵，推动战训深度耦合，实现作战和训练一体化，**确保全时待战、随时能战**。
+1. Current Liability 当前债务
+    - Trade Payable = Account Payable 应付账款
+    - Accrued Liability 应计负债
+    - 已经记录在Income Statement， 并未体现在Balance Sheet
+    - Account payable包含Accrued，但是Accrued 不一定等于Account payable
+    - Deferred Income = Deferred Revenue = Unearned Revenue
+    - 在交付商品或服务之前，就已经收到了款项
+    - Cash Received 计做资产
+    - Unearned revenue 计做负债，履约后消除负债，
+2. Non-Current Asset 非当前资产
+3. Property, Plant and Equipment 财产，工厂，设备
+    - IFRS：允许使用Cost Model / Revaluation Model
+    - US GAAP：仅限Cost Model
+4. Investment Property
+    - 不生产商品，服务，或管理的目的
+    - 出租收入或资本得利为目的（PPE和Inventory都含有Cost of Sales）
+5. Intangible Asset 无形资产 不含实物，可辩别（合同，法律权力。特权），非货币资产
+6. Identifiable Intangibles
+    - 根据IFRS / US GAAP，要求可辨认无形资产和资产负债表分开呈现
+    - IFRS： Research Stage计做Expensed / Income statement，
+    - Development Stage直接资本化Capitalized
+    - USGAAP：两个阶段全部计做 Expensed / Income statement
+7. Goodwill 声誉
+    - IFRS / USGAAP二者一致要求资本化，根据每年的测试在收入中进行增减
+    - 在计算Financial Ratio / Operating Trend 均会被排除
+8. Financial Assets
 
-**深化联战联训**，坚持以联合训练引领军兵种训练、以军兵种训练支撑联合训练，突出全局性重大问题研练，突出联合指挥训练，突出跨领域跨军兵种联合专项训练，突出军地联合训练，发展我军特色联合训练体系，加速**提升一体化联合作战能力**。
 
-**深化科技强训**，强化科技是核心战斗力思想，加强现代科技特别是军事高技术知识学习，加强新装备新力量新领域训练和融入作战体系训练，加强模拟化、网络化、对抗性手段建设，探索“科技+”“网络+”等训练方法，**大幅提高训练科技含量**。
-
-**深化依法治训**，推进训练管理变革，强化训练规划计划统筹，完善训练法规标准，创新训练内容方法，严格按纲施训，加强和改进训练监察，健全训练考核评估，抓好训练安全防控，**实现严格训练、科学训练、安全训练相统一**。
-
-全军指战员要坚决贯彻党中央和中央军委决策指示，发扬**一不怕苦、二不怕死战斗**精神，端正训练作风，磨砺战斗意志，锤炼过硬本领，坚决完成党和人民赋予的新时代使命任务，以优异成绩迎接中国共产党成立100周年。
-
-编者按：
-
-以上2021年1号命令，中共向[全军发布开训动员令](https://www.toutiao.com/a6913780875381441037/)：等同于吹响了战前总动员集结号！正式进入全军备战状态。文中明确指出：一切旨在确保「全时待战，随时能战」！字里行间显示出急于提高战斗中的「**打赢能力**」。实则透露出CCP其内心虚弱完全没有自信，不具备「打赢能力」的真实心理状态,「纸老虎」心态一览无余。看来，「一尊」果然是术后出山虚弱无力。2021一号动员令归纳起来关键之处就是缺乏以下四种军事能力和战斗素质，解读如下：
-
-其所强调的「**聚焦备战打仗**」「**训练实战化水平和打赢能力**」，也恰恰是CCP完全没有信心和目前内外交困，无法聚焦精神所不具备的那些能力：
-
-1.「**深化实战实训**」:**确保全时待战、随时能战**；（无法全时待战，需要深化实战训练）
-
-2.「**深化联战联**」：**提升一体化联合作战能力**；（不具备一体化联合作战能力还需深化）
-
-3.「**深化科技强**」：**大幅提高训练科技含量**；（目前训练科技含量低下有待提高）
-
-4.「**深化依法治训**」：**实现严格训练、科学训练、安全训练相统一**。（目前训练不够严格，科学和安全，已经需要依法进行强制训练的程度）
-
-[援引原文](http://www.xinhuanet.com/politics/2021-01/04/c_1126944155.htm)
+- ![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture-0104-1.jpg)
 
 
+1. 如何在股东权益中呈现金融资产未实现的损益？
+    - Classified as Trading security=Flow through income into retained earning。
+    - Classified as Available for sale = Accumulated other comprehensive income
+    - Classified as Held for mature = Not Recognized
+2. Deferred Tax Assets
+    - 预计未来可用抵税的资产（例如政府鼓励的定向投资）
+    - 会产生Income Tax Payable &gt; Tax Expense
+    - 造成税前利润下跌的情况下通过税收补偿，净利润也会大幅度上升（Net Profit /税后）
+3. Non-Current Liability 非当前债务
+4. Long-term Financial Liabilities 长期金融债务
+5. Deferred Tax Liabilities 递延所得税
+    - Income Tax Payable &lt; Tax Expense
+6. Component of Equity 权益组成
+    - Capital Contributed by Owners ：投资人向实体注入的资本，
+    - 通过普通股证明，且公司必须披露Authorized / Issued / Outstanding
+    - Preferred Shares：优先于普通股的权力
+    - Treasury Shares：公司回购并以库存方式持有，而不是注销。
+    - 若重新发行库存股票则不会在损溢表中确认任何损益
+    - Retained Shares存留股份
+    - Accumulated other Comprehensive Income
+    - Non-Controlling Interest：子公司的少数股东，虽被母公司合并，但不控制
+7. Statement of changes in Equity
+    - IFRS要求权益变动中以下几点
+    - Comprehensive Income 综合收入表
+    - Effects of any Accounting Change
+    - Capital Transaction 资本转让
+    - US GAAP：根据SEC在资产负债表中提供一份股东权益变动分析
+
+
+Author：搞笑排行榜
+
+Original opinion article by Himalaya G-farm Vancouver
+
+2021/01/04
 
 0
