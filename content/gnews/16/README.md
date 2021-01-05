@@ -1,32 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共或已放弃“不首先使用核武器”政策—华春莹发推泄露重大核战略转变
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/717334/)
+## 沈阳出现“毒王” 中共国北方疫情告急
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/717809/)
 
-- 编辑：Victor Torres
+加拿大多伦多枫叶农场  丁过
 
+校对 上传 小鸥
+![]()![](https://gnews.org/wp-content/uploads/2021/01/S.jpg)图片来自 Bloomberg Quint
+去年10月以来，相继传出青岛、乌鲁木齐、北京等地疫情严重的消息，由于中共封锁信息，疫情真相世人知之甚少。 由《自由时报》分别于1月3日和4日报道的两则最新中共国疫情，牵动了无数海外华人的心。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+第一则是为了应对随时到来的疫情大爆发，内蒙古自治区拟定建设43座方舱医院。内蒙古卫健委主任许宏智介绍，已组建4077人的医疗队伍，5645人的后备医疗人员、1261名综合保障人员。已拟定征用体育馆、展览馆等大型公共场所；378家饭店、宾馆被安排用作隔离场所。
 
-**西班牙2021年1月5日电/西喜社—**
+第二则是辽宁沈阳、大连的疫情相继告急。大连市民政局局长汤易在4日的新闻发布会上承认，此次爆发的疫情特点为“潜伏期长，传播速度快，情况复杂”。竟然有感染者做了11次检测才验出阳性反应，部分地区也有检测第6次才确诊的病例。
 
-中共国外交部发言人华春莹1月5日发推质问美国:
+沈阳有一位尹姓感染者第4次检测才被确诊，其间和她有过接触的27人全部被感染，其中的一位和尹太太不认识，仅在同一家医院同时候诊即被感染，由此医生判断，这位被称为“毒王”的患者疑感染了变异病毒，传染性非常非常强。
 
-“中国是唯一一个无条件承诺不对无核武器国家或无核武器区使用或威胁使用核武器的核武器国家。美国能做出这样的承诺吗？”
+在中共病毒肆虐愈演愈烈，全球掀起灭共大潮之际，中共为了逃避罪责和甩锅，邀请和中共狼狈为奸的世卫组织调查组前往武汉调查冠状病毒起源。在世卫组织成行前，中共外长王毅即否认这款冠状病毒发端于武汉，他的表态似乎为本次调查定了调子。王毅1月2日向中共两大喉舌新华社与中广视表示，越来越多研究表明，新型肺炎疫情很可能是全球多地多点暴发。不难想象，中共随后将拿出无中生有的各种假证据、伪论文来攻击闫丽梦博士。
 
-据中共国外交部网站原发布的核战略措辞为：“中国一贯主张最终全面禁止和彻底销毁核武器，坚定奉行自卫防御的核战略，始终恪守在任何时候和任何情况下不首先使用核武器政策，明确承诺无条件不对无核武器国家和无核武器区使用或威胁使用核武器。”
-比较可以发现，中共或已放弃“自卫防御”核战略、“不首先使用核武器”政策。
+截至今天，全球中共病毒感染人数已突破8600万人，死亡人数近186万人(以上数据不包含中共国瞒报部分)。美国的死亡人数达361478人，逼近两次世界大战美国的总阵亡人数407700人。
 
+自英国宣布发现强变异病毒至今不到20天，全球5大洲均出现了这种变异病毒，按照这么快的变异传播速度，正如闫丽梦博士警告的，恐怕几乎所有的人都将无一幸免病毒的侵害。 因为我们拿不到中共造毒的原始基因资料，就不能研发出有效疫苗，而病毒在自主进行可怕的变异，中共再次放毒的可能性又仍然存在。
 
+在人类面临病毒生存威胁日愈加剧的危难时刻，王毅仍然企图掩盖中共发动生物战的犯罪事实，表明中共这个恶魔不会自动放下屠刀，因此，只有消灭它才能人类才能得救。
 
-> China is the only nuclear-weapon state that has unconditionally committed itself not to use or threaten to use nuclear weapons against non-nuclear-weapon states or nuclear-weapon-free zones. Can the [#US](https://twitter.com/hashtag/US?src=hash&amp;ref_src=twsrc%5Etfw) make such a commitment?
-> — Hua Chunying 华春莹 (@SpokespersonCHN) [January 5, 2021](https://twitter.com/SpokespersonCHN/status/1346402223748599809?ref_src=twsrc%5Etfw)
+参考链接：
 
+[https://news.ltn.com.tw/news/world/breakingnews/3401253](https://news.ltn.com.tw/news/world/breakingnews/3401253)
 
+[https://news.ltn.com.tw/news/world/breakingnews/3400275](https://news.ltn.com.tw/news/world/breakingnews/3400275)
 
-参考资料：[https://www.fmprc.gov.cn/web/ziliao\_674904/tytj\_674911/zcwj\_674915/t119261.shtml](https://www.fmprc.gov.cn/web/ziliao_674904/tytj_674911/zcwj_674915/t119261.shtml)
+[https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210102-%E7%8E%8B%E6%AF%85-%E6%96%B0%E5%9E%8B%E8%82%BA%E7%82%8E%E5%BE%88%E5%8F%AF%E8%83%BD%E6%98%AF%E5%85%A8%E7%90%83%E5%A4%9A%E5%9C%B0%E5%90%8C%E6%97%B6%E6%9A%B4%E5%8F%91](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210102-%E7%8E%8B%E6%AF%85-%E6%96%B0%E5%9E%8B%E8%82%BA%E7%82%8E%E5%BE%88%E5%8F%AF%E8%83%BD%E6%98%AF%E5%85%A8%E7%90%83%E5%A4%9A%E5%9C%B0%E5%90%8C%E6%97%B6%E6%9A%B4%E5%8F%91)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
-
-+1
++3

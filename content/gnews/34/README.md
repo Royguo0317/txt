@@ -1,35 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【史海今钩】人性与社会制度的关系浅谈（一）
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/717066/)
+## 中共多地疫情严重 再现超级传播者
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/717535/)
 
-作者：香草山写作组 Kathy （文艺）
+俄罗斯莫斯科喀秋莎农场   文强
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
+校对上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/unnamed-file.jpg)Times of India
+近日中共病毒疫情在中共国多地爆发，并再度出现超级传播者。仅辽宁大连市一名患者就传染了44人，沈阳一名患者也传染了22人，有沈阳医生在微信群警告说：“现在不要瞎跑，疫情异常严重，传播速度非常快，传染性非常非常强。”上海、广州也相继出现英国变异病毒病例。
 
+北京、天津、成都、大连、石家庄等多地先后宣布进入战时状态，充分说明中共病毒在多地加剧恶化。本轮疫情爆发不仅出现超级传播者，还再度出现去年武汉爆发疫情时的家庭群聚感染，一家人全部被传染的恐怖情形。北京市疾控中心通报，1月2日北京顺义区一个8月大的女婴检测为阳性，患儿母亲和祖母均被确诊。
 
+根据中共官媒报道：中共大陆疫情防控风险地区从12月25日的11个骤然升到目前的49个，其中7个在北京、4个在河北、32个在辽宁、6个在黑龙江。2019年12月武汉爆发疫情时，中共当局从上到下隐瞒疫情，加上春节期间人口大范围流动，导致疫情迅速在中共各地蔓延，并扩散至全球。2020年中华传统节日春节即将来临，国内人口流动恐再次带来“武汉惨剧重演”。
 
-近代在谈到文化启蒙时，往往从两个层面上谈，一是从国家民族的层面，即打破国家一家一族的封建皇权大一统的观念。二是从个体的人性自由层面谈，即建立起个体的公民权益概念，契约精神等普世价值观念体系。在大众批评国人的价值道德观念崩坏时，有一种看法，即认为中国人素质低下，甚至基因有问题。这就牵涉到一个问题，即到底是制度决定人性，还是人性决定制度的鸡与蛋谁先存在的问题。
+截至今日，这场中共生物病毒超限战引发的世界疫情大流行已造成全球逾8,468万人感染，超过183万人死亡。而且病毒还在快速变异扩散，将再度出现疫情高峰，恐导致更多人面临生命危险。
 
-今天的人们往往在享受着物质文明的高度发达的成果的同时，无不缅怀先人们的社会秩序的美好，及传统意义上的人际关系。我们就从这个角度来看到底是鸡生蛋还是蛋生鸡。
+参考链接：
 
-在那个百花齐放的年代，中西哲人先贤们几乎同时思考着人与天（自然）的关系时，出现了一批人类历史上最伟大的思想家们。由于还未来得及分科，统一叫作哲学。那种哲学思考是迷人的，启示性的，全方位的。以至于“旧约圣经”在最后一卷书之后，（其成书年代几乎也在先秦时期），沉默了400年，直到耶稣出生的公元元年，才开始说话。
+[https://new.qq.com/rain/a/20210104A017BC00](https://new.qq.com/rain/a/20210104A017BC00)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/MOS0912-【史海今钩】人性与制度的关系浅谈（-）-3.jpg)
+[https://www.bannedbook.org/bnews/cbnews/20210104/1460762.html](https://www.bannedbook.org/bnews/cbnews/20210104/1460762.html)
 
-中国的先秦，西方的古希腊，无不飘散着自由的清新。那是真正的自由教育下，人性自由光辉的闪耀。自由教育即唤醒个体的内在自由与卓越。现代西方的民主制度就是建立在此基础之上，合乎人性自由的高贵的理性的需求的制度。反观中华，却在先秦的灿烂文明之后，产生了秦大一统的专制制度，以及为之服务的独尊的儒家思潮。自此，中华文明就在这种大一统的皇家极权里打转，直到共产主义思潮的清洗。从“朕即国”，到“爹亲娘亲不如党亲”，从家文化一步步演变成党文化的洗脑模式，你说国人还有逃得开被洗成脑残的可能吗？
+[http://society.people.com.cn/n1/2020/1227/c1008-31980012.html](http://society.people.com.cn/n1/2020/1227/c1008-31980012.html)
 
-西方的保守主义思潮就是遵守着人性的自律与追求自由卓越的普世价值前提下，建立起了民主政治体系的架构。这种对人性的肯定是建立在“上帝的绝对命令存在于每个人的心灵之中”的观念秩序的假设前提下。中华文明也有先秦时期对人性极为了不起的思考，若能与西方普世价值体系结合，不是一味的高唱狭隘民粹的大一统，封建集权的【大秦赋】，儒家国学，汉赋等。中华真正崛起的时刻才会到来。
+[https://m.21jingji.com/article/20201208/herald/144594e57ee4b6597e4dccc6c51af0f9.html](https://m.21jingji.com/article/20201208/herald/144594e57ee4b6597e4dccc6c51af0f9.html)
 
-（文章仅代表作者个人观点。）
+[https://baijiahao.baidu.com/s?id=1687951210904910155&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1687951210904910155&amp;wfr=spider&amp;for=pc)
 
+[http://society.people.com.cn/n1/2020/1227/c1008-31980012.html](http://society.people.com.cn/n1/2020/1227/c1008-31980012.html)
 
+[http://www.zsnews.cn/news/index/view/cateid/37/id/658456.html?platform=mobile](http://www.zsnews.cn/news/index/view/cateid/37/id/658456.html?platform=mobile)
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+[https://www.163.com/dy/article/FVEOUTJS0545B4DS.html](https://www.163.com/dy/article/FVEOUTJS0545B4DS.html)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+[https://www.163.com/dy/article/FVG58GG80516M3GT.html](https://www.163.com/dy/article/FVG58GG80516M3GT.html)
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+[https://baijiahao.baidu.com/s?id=1687023292911341054&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1687023292911341054&amp;wfr=spider&amp;for=pc)
 
-0
++3
