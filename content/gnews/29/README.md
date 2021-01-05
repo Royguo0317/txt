@@ -1,43 +1,78 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】商道：病毒肆虐下的零售业之个体店铺
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/715534/)
+## 会计，财报，审计入门基础与介绍（八）
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/716014/)
 
-作者：香草山写作组  如水 校对/发稿：飞虹
+![]()![](https://gnews.org/wp-content/uploads/2020/12/WX20201228-134452@2x.png)
+Picture Source: https://www.groomassocies.com
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
+在第八篇中是继续详细展示财务审计与分析过程中所涉及的股权分析及资产负债表中各项目内容。有助于投资人或审计师依照富有逻辑且合理的顺序对于财务报表中可以影响股权的项目进行逐一检阅。
 
-
-
-零售业是指通过买卖形式将工农业生产者生产的产品直接售给居民作为生活消费用或售给社会集团供公共消费用的商品销售行业。它作为商业服务业的重要组成部分，在各国国民经济和社会发展中扮演着重要的角色。
-
-零售业是一个国家最重要的行业之一，它是反映一个国家或地区经济运行状况的晴雨表，也是一个国家和地区的主要就业渠道，很多国家甚至把扶持发展零售业作为解决就业问题的一项经济政策。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/图片19-1.png)
-零售业在整个商业体系里面有他独特的特点的，和生产商、中间商是完全不一样的，同时零售业也是产品服务从设计生产到最后消费完成中不可缺少的一环，没有零售，产品流通链条就无法进行下去，整个流通就会中断，经济也就处于封冻状态。
-
-2020年春天，新冠病毒的爆发肆虐了全球。在病毒的影响下，各行各业都受到了不同程度的影响，中大型企业凭借着庞大的资金支持还能在病毒期间支撑自己的运营。但一些中小型企业，尤其是零售行业由于疫情期间的出台的政策而被迫暂时关闭门店或减少门店营业时间，这对于那些以零售为主的企业来说无疑是巨大的损失。
-
-病毒的突然爆发，对于很多线下的零售商来说，是一个突如其来的巨大打击。几乎一夜之间零售门店的客流量达到近乎冰封的状态，已经不能用“腰斩”来形容。首当其冲的就是餐饮、酒店、旅游、电影娱乐、终端店铺、物流运输、制造等行业。
-
-零售业的问题集中表现在：销售大幅度下降，实体店很多店铺闭店，基本无销售，线上电商订单也在下滑，全球消费水平、消费力在急速下降；现金流压力巨大，销售无流入，人工与租金成本则天天流出，造成负现金流；复工困难，走到各个地方，举目望去，一片关闭的店铺，门可雀罗的商超。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/图片20-1.png)
-病毒肆虐下，贷款可以说是个体户等零售业的“救命稻草”，但贷不上款或成“夺命稻草”。由于经营规模小、财务制度不健全、抗风险能力较弱，且缺少固定资产抵押物，个体户等零售业在金融市场中相对弱势，融资可得性差。所以贷款对他们来说可能性几乎为零。
-
-位于赤峰市翁牛特旗最繁华的一条商业街，短短不到500米的一条街，贴出“撤店”“转兑”“出租”“跳楼价清仓处理”等字样的店铺多达25家……，其中一个老板说：她开店不到一个月，房租、装修、进货等共投资40余万元，借了不少外债，本想着春节期间糖果干品大卖，尽快回笼资金，没想到经营还没满月，就相当于关门了，恢复营业后，店里几乎没有生意，每天要亏两三百，越干越亏，无奈只能关店。
-
-和这条街的商铺一样，“亏损”成了疫情之后小微企业、个体户的普遍遭遇，少则几万元，多则近百万元。尽管一些地区疫情时间时间不长，但是整体影响还是非常大的。一家平价实惠店铺，货真价实，非常吸引大众的眼球，最受消费者喜爱，但是现在即便购物高峰期的季节，昔日的人山人海也变成了孤独只影，每天 几乎只有老板一个人坐着发愁发呆。
-
-一家通信店铺老板用“惨淡”形容今年的生意：每个月手机的销量，是正常销量的十分之一。虽然营业额锐减，但店铺房租照交，员工工资减半发放，每个月亏损多达12万元。
-
-比亏损更让人担忧的，是随之而来的辞工和开门难。“年前公司好几车地往外卸货，疫情一来货车全不动弹了。”做商贸流通生意的某家门店老板说，受疫情影响，公司资金链断裂，拖欠36名员工14万元工资。“现在账户余额只剩下18000元，只要一发工资，公司彻底破产。”为了挺过难关，只好辞退了公司的15名员工。
-
-我们随处可以看到，餐饮、服装、住宿、小日用百货等各类零售店铺普遍受到病毒影响，小店铺在复工复产中走入“越小越难”的窘境，一批个体户零售店不得已腾空店铺，合上锁头，关门转兑。
-
-这些店铺的情况基本就是国内个体零售店的形象写照。
-
-详解请关注：香草山之声《商道》第20期
+1. Current Liability 当前债务
+    - Trade Payable = Account Payable 应付账款
+    - Accrued Liability 应计负债
+    - 已经记录在Income Statement， 并未体现在Balance Sheet
+    - Account payable包含Accrued，但是Accrued 不一定等于Account payable
+    - Deferred Income = Deferred Revenue = Unearned Revenue
+    - 在交付商品或服务之前，就已经收到了款项
+    - Cash Received 计做资产
+    - Unearned revenue 计做负债，履约后消除负债，
+2. Non-Current Asset 非当前资产
+3. Property, Plant and Equipment 财产，工厂，设备
+    - IFRS：允许使用Cost Model / Revaluation Model
+    - US GAAP：仅限Cost Model
+4. Investment Property
+    - 不生产商品，服务，或管理的目的
+    - 出租收入或资本得利为目的（PPE和Inventory都含有Cost of Sales）
+5. Intangible Asset 无形资产 不含实物，可辩别（合同，法律权力。特权），非货币资产
+6. Identifiable Intangibles
+    - 根据IFRS / US GAAP，要求可辨认无形资产和资产负债表分开呈现
+    - IFRS： Research Stage计做Expensed / Income statement，
+    - Development Stage直接资本化Capitalized
+    - USGAAP：两个阶段全部计做 Expensed / Income statement
+7. Goodwill 声誉
+    - IFRS / USGAAP二者一致要求资本化，根据每年的测试在收入中进行增减
+    - 在计算Financial Ratio / Operating Trend 均会被排除
+8. Financial Assets
 
 
+- ![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture-0104-1.jpg)
+
+
+1. 如何在股东权益中呈现金融资产未实现的损益？
+    - Classified as Trading security=Flow through income into retained earning。
+    - Classified as Available for sale = Accumulated other comprehensive income
+    - Classified as Held for mature = Not Recognized
+2. Deferred Tax Assets
+    - 预计未来可用抵税的资产（例如政府鼓励的定向投资）
+    - 会产生Income Tax Payable &gt; Tax Expense
+    - 造成税前利润下跌的情况下通过税收补偿，净利润也会大幅度上升（Net Profit /税后）
+3. Non-Current Liability 非当前债务
+4. Long-term Financial Liabilities 长期金融债务
+5. Deferred Tax Liabilities 递延所得税
+    - Income Tax Payable &lt; Tax Expense
+6. Component of Equity 权益组成
+    - Capital Contributed by Owners ：投资人向实体注入的资本，
+    - 通过普通股证明，且公司必须披露Authorized / Issued / Outstanding
+    - Preferred Shares：优先于普通股的权力
+    - Treasury Shares：公司回购并以库存方式持有，而不是注销。
+    - 若重新发行库存股票则不会在损溢表中确认任何损益
+    - Retained Shares存留股份
+    - Accumulated other Comprehensive Income
+    - Non-Controlling Interest：子公司的少数股东，虽被母公司合并，但不控制
+7. Statement of changes in Equity
+    - IFRS要求权益变动中以下几点
+    - Comprehensive Income 综合收入表
+    - Effects of any Accounting Change
+    - Capital Transaction 资本转让
+    - US GAAP：根据SEC在资产负债表中提供一份股东权益变动分析
+
+
+Author：搞笑排行榜
+
+Original opinion article by Himalaya G-farm Vancouver
+
+2021/01/04
 
 0
