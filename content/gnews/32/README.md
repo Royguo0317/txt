@@ -1,31 +1,78 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【信仰】决定未来？还是【实力】决定未来？
-` GM30` [轉載自GNews](https://gnews.org/zh-hans/715959/)
+## 会计，财报，审计入门基础与介绍（八）
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/716014/)
 
-**作者：缘布施**
+![]()![](https://gnews.org/wp-content/uploads/2020/12/WX20201228-134452@2x.png)
+Picture Source: https://www.groomassocies.com
 
-尊者达赖喇嘛说过；“我们有真理的力量，中共有枪炮的力量。长远来看，真理的力量要比枪炮强大得多。”
+在第八篇中是继续详细展示财务审计与分析过程中所涉及的股权分析及资产负债表中各项目内容。有助于投资人或审计师依照富有逻辑且合理的顺序对于财务报表中可以影响股权的项目进行逐一检阅。
 
-“离苦得乐”是佛教的宗旨，也是上帝的意愿。是一切众生追求的目标，从一只蚂蚁到任何人，包括中共，朝鲜，伊朗等独裁国家的领导；没有人类违反这个原则。只不过因为他们的眼界与智慧；达不到未来的高度而偏离了方向。二战日本虽战败投降，但战败后的日本在美国的很多城市种下了樱花，樱花就是武士道精神，这是日本未来一定要占领美国的意志。但是今天的日本却民主、谦卑，繁荣，昌盛。与美国等西方国家和谐相处。中共战胜了国军，但是今天的中国却礼乐崩坏，国在山河破。正所谓：福兮祸所依，祸兮福所倚。这句话就是最高实力与算力的公式。
+1. Current Liability 当前债务
+    - Trade Payable = Account Payable 应付账款
+    - Accrued Liability 应计负债
+    - 已经记录在Income Statement， 并未体现在Balance Sheet
+    - Account payable包含Accrued，但是Accrued 不一定等于Account payable
+    - Deferred Income = Deferred Revenue = Unearned Revenue
+    - 在交付商品或服务之前，就已经收到了款项
+    - Cash Received 计做资产
+    - Unearned revenue 计做负债，履约后消除负债，
+2. Non-Current Asset 非当前资产
+3. Property, Plant and Equipment 财产，工厂，设备
+    - IFRS：允许使用Cost Model / Revaluation Model
+    - US GAAP：仅限Cost Model
+4. Investment Property
+    - 不生产商品，服务，或管理的目的
+    - 出租收入或资本得利为目的（PPE和Inventory都含有Cost of Sales）
+5. Intangible Asset 无形资产 不含实物，可辩别（合同，法律权力。特权），非货币资产
+6. Identifiable Intangibles
+    - 根据IFRS / US GAAP，要求可辨认无形资产和资产负债表分开呈现
+    - IFRS： Research Stage计做Expensed / Income statement，
+    - Development Stage直接资本化Capitalized
+    - USGAAP：两个阶段全部计做 Expensed / Income statement
+7. Goodwill 声誉
+    - IFRS / USGAAP二者一致要求资本化，根据每年的测试在收入中进行增减
+    - 在计算Financial Ratio / Operating Trend 均会被排除
+8. Financial Assets
 
-信仰是人类智慧的结晶，是长远的实力，是人类活着最优化的方案……当年毛泽东在没有拿下江山的时候对天下说尽了好话，他说过中国未来要走美国的民主道路等等。这七十年来，中共倒行逆施，无恶不作。西方世界被中共麻醉。全世界的洋垃圾都运回中国。中国既是一个垃圾场，大工地。也是一个奴隶国，有多少中国人过着连美国黑奴都不如的日子。而全世界都在安乐中狂欢，中国有句老话：恩里生害，害里生恩。中共就是要用“安乐”这杯毒药毒死西方世界。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/从心理学角度分析科学信仰与宗教信仰（一）-AOMGnews.jpg)
+- ![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture-0104-1.jpg)
 
-这一次全球大瘟疫，如不是正义的中国人站出来为世界预警，2020的世界就被中共拿下了，美国的教堂就像中国的庙宇要开始收费了，这世间的任何实力都是相生相克；阴阳交替的。1995年95岁的宋美龄受邀在美国国会演讲说：“美国的政客们会知道是他们的短视与误判导致我们的溃败，未来美国将为他们的选择付出沉重的代价。”
 
-今天的世界政治生态是过去的因形成的果，并不是孤立的！今天世界遭受大瘟疫；就是当年西方世界绥靖政策的果报。一个国家没有信仰或者弄权者利用了信仰，都是国家的灾难。当年共产党的实力大过国民党，但是共产党的信仰是邪恶的。而蒋公中正是正统的中华血脉传承。美国当时选择了实力派。但是今天中共尾大不掉，就是当年美国短视的选择造成的；正如宋美龄说的；美国将为他们的选择付出沉重的代价。
+1. 如何在股东权益中呈现金融资产未实现的损益？
+    - Classified as Trading security=Flow through income into retained earning。
+    - Classified as Available for sale = Accumulated other comprehensive income
+    - Classified as Held for mature = Not Recognized
+2. Deferred Tax Assets
+    - 预计未来可用抵税的资产（例如政府鼓励的定向投资）
+    - 会产生Income Tax Payable &gt; Tax Expense
+    - 造成税前利润下跌的情况下通过税收补偿，净利润也会大幅度上升（Net Profit /税后）
+3. Non-Current Liability 非当前债务
+4. Long-term Financial Liabilities 长期金融债务
+5. Deferred Tax Liabilities 递延所得税
+    - Income Tax Payable &lt; Tax Expense
+6. Component of Equity 权益组成
+    - Capital Contributed by Owners ：投资人向实体注入的资本，
+    - 通过普通股证明，且公司必须披露Authorized / Issued / Outstanding
+    - Preferred Shares：优先于普通股的权力
+    - Treasury Shares：公司回购并以库存方式持有，而不是注销。
+    - 若重新发行库存股票则不会在损溢表中确认任何损益
+    - Retained Shares存留股份
+    - Accumulated other Comprehensive Income
+    - Non-Controlling Interest：子公司的少数股东，虽被母公司合并，但不控制
+7. Statement of changes in Equity
+    - IFRS要求权益变动中以下几点
+    - Comprehensive Income 综合收入表
+    - Effects of any Accounting Change
+    - Capital Transaction 资本转让
+    - US GAAP：根据SEC在资产负债表中提供一份股东权益变动分析
 
-为什么说蒋公中正是中华正统的传承，自宋儒倡研理学、讲究孔孟心法的动心忍性，见之于事功，用之于行事之间的，除了宋代的文天祥、明代的王阳明、清朝的名臣曾国藩之际，到了蒋公中正时，他的修养心得有两句名言：“穷理于事物始生之际，研几于心意初动之时。”推开蒋公的功过等不谈，如果公平谈论儒家理学修养的心得，老实说，这两句名言的造诣，当世再也无人可及了。他在世的时候一天静坐三次，每次大约两个钟头。对于心性的修养，尤其对于邵康节的研究，属于他自己总结的心得。这是他在传记里提到过的。
 
-蒋公中正这样修养的人怎么会像中共那样无底限，无节气，无节操的对美国人，苏联人跪舔。尤其是美国二战刚刚胜利，正如日中天。自古以来，千穿万穿，马屁不穿，正所谓智者千虑必有一失，美国人当时选择了中共这个实力派！后果不言而喻！今天美国的选择正确与否，我们不知道，但世间无非一个因果规律。没有对错，只有因果。
+Author：搞笑排行榜
 
-每个人来到这个世间都有两个母亲，一个是基因传达的生母，还有一个是慧母。佛家讲的佛母，佛就是智慧。如果一个人在这个世间没有福报，最多是要饭，顶天了是饿死。但一个人如果失去了慧母，权利越大，福报越大，做恶越大。中共就是有福无慧啊！罪大恶极！未来的果报不可思议？中国人为什么要灭共？因为国家的文字与文化信仰被无明的蛮夷篡改！这就是有人在强奸你的母亲，而你从小被喂了狼奶，失去了伦理，伙同中共强奸自己的母亲而不自知，这是何等的荒唐与悲哀啊！看看那些五毛，老少粉红，从小接受过中共教育的人。很多人都在帮着中共用山寨文字，骂祖宗，轻慢圣贤，消遣儒家文化，玩弄佛法等。当中共在灭绝内蒙古，新疆，西藏等少数民族的文字与文化的时候，没有人发声，有的还在助纣为虐。他们终有一天会明白自己做了多大的恶业，必然羞愧难当！忏悔都来不及，只能糊里糊涂的喊“无我”了！反正最后都空了嘛！殊不知万法皆空，因果不空！而灭共的理由已经浓缩在[剿共檄文](https://gnews.org/zh-hans/72922/)  [https://gnews.org/zh-hans/72922/](https://gnews.org/zh-hans/72922/)  的古文里。
+Original opinion article by Himalaya G-farm Vancouver
 
-国者，人之积；人者，心之器。中国文化累积全国人心上下数千年经验和思想，方能构成一个文化的大系。今天的美国，仅是西方文化零落中的一颗经天彗星，它是科学文明的实验场，并非是整个人文文化的指标。从这几十年来看美国人的选择是迷茫的，短视的。论实力也是伪命题！因为实力是能量，能量是动态的。美国误判了中共！而中国人也要换一个角度思考问题，如果台湾有大陆的一切资源，这个星球不一定谁是最高的人类文明？子曰：“揖让而升，下而饮，其争也君子。”持强不凌弱，持弱不惧强！就是在争，也始终保持君子的风度。而人世间说到底谦卑与信仰才是最高的实力……
+2021/01/04
 
-（文章内容仅代表作者观点）
-
-+1
+0

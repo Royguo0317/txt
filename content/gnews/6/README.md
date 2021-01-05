@@ -1,27 +1,97 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友观点】爆料革命能灭共匪，也能灭心中之贼
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/716459/)
+## 超七成的共和党选民希望他们的议员们能像川普总统那样
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/716494/)
 
-作者：威廉
+翻译：康州盘古农场-黎明的光芒
 
-编辑：翼族
-![]()![](https://gnews.org/wp-content/uploads/2021/01/a1.jpg)
-图片来源：墨尔本雅典娜农场设计组
+校对：康州盘古农场-Antsee-GTV
 
-笔者2000年后曾在国内某企业工作过几年，这家公司的老板经常喜欢下班后给大家开会，美其名曰“培训”，重点讲中国式管理。我也不明就里，就仔细听，后来为了搞透这套中国式管理的精髓，还特地买全了曾仕强很多关于中国式管理的书，但是仔细研究了好几年也没有搞清楚，一直就是云里雾里。再后来我出国了，通过上网了解才知道曾仕强所著的管理方面的书籍来自于易经，于是我开始研究易经，为了研究易经我又研究了国学，但是这些学问实在是太高深了，20年来我也一直没有搞懂它们，再加上在大学里读了马克思的历史唯物主义和黑格尔的辩证法，脑子里就越来越浆糊了。
+编辑：康州盘古农场-Rose
+![https://zh-prod-1cc738ca-7d3b-4a72-b792-20bd8d8fa069.storage.googleapis.com/s3fs-public/styles/inline_image_mobile/public/inline-images/President-Trump-1.png?itok=4sy5QIt5](https://lh3.googleusercontent.com/BjQx52M98eCWUjdIENJb8FvT7PVcXMCqs69AI0kVuBa5MtQSglX26svwu84I6x89jQ0x1jNCHgJlo7ubWggOxN4bWQ4Q5u1VEFVjxaeS6ROkxrHbZjFlH2j_IrlzrhhprSg1g54OKWHQ2PUw6Q)
+拉斯穆森(Rasmussen)的一项新调查显示，72%的共和党选民希望他们的议员更像川普总统。
 
-直到遇到爆料革命，我才一下子恍然大悟：原来这些所谓的易经国学管理学，其实都是统治阶级给人洗脑用的，细思极恐。凡是在大陆流行的学术或者学说基本上都是有利于专制统治的，而不利于专制统治的学术或者学说基本上都是很难流行。这也是为什么从小学到大学从没有读到过胡适所著的文章，因为这些书都和专制集权相抵触，中共怎么可能会让老百姓看到，怎么可能允许出版发行和刊登，怎么可能在图书馆里出现，又怎么可能出现在网络社交媒体上？凡是我们能看到的，都只不过是他们允许我们看到的东西罢了。
+实际上，在他们看来，川普是比大多数国会议员都要出色的榜样。
 
-胡适先生终生追求美国式的民主，所以难怪会在1949年离开大陆，因为他是一个明白人。他说过：“美国人来了，有面包，有自由；苏联人来了，有面包，无自由；共产党来了，无面包、无自由。”而且他还有很经典的一段话：“我觉得世界上二、三百年来有一种公开的趋向，朝科学民主这个方向上走，朝新的科学方法走，科学是一个方法，民主是一种生活习惯，是一种生活方式。”今天读来依然感慨万千。
+拉斯穆森报告说：”这项全国电话和网络调查发现，72%的共和党选民认为他们的政党应该更像川普，而不是像普通的共和党国会议员。
 
-到了今天，我也渐渐明白了鲁迅式的呐喊，为什么鲁迅先生会说，年轻人最好不要读中国书，满嘴的仁义道德，本质都是吃人。以前上学的时候课本里还有鲁迅的文章，那是因为鲁迅的文章批判国民党政府，有利于共产党的统治。但现在共产党政府贪污腐朽还不如民国政府，于是乎鲁迅的文章就慢慢地被移出了中学课本，一切都是维稳的需要。中学里学的语文课、历史课和政治课，其实都是一门课，就是党课，一切都是为了党的伟光正而设立的洗脑课。所有的电影电视娱乐其实也是党文化的一种。
+相比之下，24%的人认为国会中的普通共和党人是他们党派的更好榜样。
 
-西方体制的伟大就是承认人性是自私的，权力不能私有化，财富不能公有化。华盛顿之所以伟大，就是一开始就知道权利需要制衡，担心司法和立法制衡不了权力，又安排媒体监督，但是又担心媒体腐败，故而赋予人民拥枪权，只有枪能保卫民主法制和信仰自由。
+总的来说，选民对 “普通国会议员 “（评价好）的比例为45%，而对总统（评价好）的比例仅为40%。
 
-而共产主义就是要泯灭人性，将财富公有化，将权力私有化，只有爆料革命才能灭共，能灭共产主义文化，更能灭心中之贼。相信爆料革命推翻中共之后，会有千千万万个鲁迅胡适站出来，所以灭共是维护正义的必须！
 
-（文章内容仅代表作者观点）
 
-+3
+> 72 Percent of Republicans See Trump as Model for Future of GOP[https://t.co/P1eJFOxOjJ](https://t.co/P1eJFOxOjJ) [pic.twitter.com/00Pf9rNgTw](https://t.co/00Pf9rNgTw)
+> — HYVE (@HYVEE7) [December 29, 2020](https://twitter.com/HYVEE7/status/1343944902758051840?ref_src=twsrc%5Etfw)
+
+
+
+*72%**的共和党人认为特朗普是**GOP**未来的典范。*
+
+共和党选民希望国会更像川普。
+
+共和党选民希望看到他们的国会代表向川普看齐，一个真正为人民而战的政治局外人，这其实并不令人惊奇。
+
+虽然由于民主党控制的媒体（的抹黑），他的支持率很糟糕，但共和党人对川普总统的爱戴程度轻松超过国会议员们。
+
+事实上，在2020年，他甚至比奥巴马更受人敬仰。
+
+盖洛普报告说：“川普去年与前总统奥巴马并列获得这一荣誉，但今年却打败了他的前任”。
+
+报告还说：”川普的当选终结了奥巴马连续12年当选（与德怀特·艾森豪威尔并列史上最多）最令人尊敬的人的记录。”
+
+
+
+> Gallup: President Trump is most admired man of 2020. Ends Barack Obama's 12-year most-admired run. [https://t.co/k1E8VufMMe](https://t.co/k1E8VufMMe) [pic.twitter.com/XoXx6OaO9f](https://t.co/XoXx6OaO9f)
+> — Byron York (@ByronYork) [December 29, 2020](https://twitter.com/ByronYork/status/1343906276426870784?ref_src=twsrc%5Etfw)
+
+
+
+*盖洛普：川普总统是**2020**年最令人尊敬的人。结束了巴拉克·奥巴马（Barack Obama）连续12年当选最受人尊敬的纪录。*
+
+与此同时，国会在最近的一项要求美国人按照其诚实和道德对职业进行排名的调查中，其结果要糟糕得多。
+
+国会议员获得的评价与汽车销售人员持平，仅有8%的人给予好评，甚至广告从业人员的评价都要比（他们）更好，达到10%。
+
+排名低的群体中，企业高管占17%，律师占21%，记者占28%。
+
+
+
+> Nurses, medical doctors, grade-school teachers and pharmacists top Gallup’s annual Honesty and Ethics of Professions poll. [https://t.co/iLaJiqqX6D](https://t.co/iLaJiqqX6D)
+> — GallupNews (@GallupNews) [December 22, 2020](https://twitter.com/GallupNews/status/1341383049712447488?ref_src=twsrc%5Etfw)
+
+
+
+*护士、医生、小学教师和药剂师在盖洛普的年度诚实和职业道德调查中名列前茅*。
+
+2024年川普继续？（这里民调假设认为川普今年没有当选）
+
+依然，拉斯穆森指出，52%的共和党选民认为他们的党派应该在2024年推举新的候选人进入总统候选人名单，而33%的选民则认为共和党应该推举一名已在参选的候选人（指川普总统）。
+
+在12月的圣诞派对上，总统暗示，他将在2024年重返白宫。
+
+在俄克拉荷马州前共和党主席帕姆·波拉德（Pam Pollard）的直播中，听到川普说：”这是令人惊叹的四年。”。
+
+“我们正在努力再争取四年，”总统继续说，”否则，四年后再见。”
+
+
+
+> Trump at the White House Christmas party: "It's been an amazing four years. We're trying to do another four years, otherwise I'll see you in four years."
+> 
+> h/t [@ZekeJMiller](https://twitter.com/ZekeJMiller?ref_src=twsrc%5Etfw), [@colvinj](https://twitter.com/colvinj?ref_src=twsrc%5Etfw) [pic.twitter.com/72Q3bVY3jP](https://t.co/72Q3bVY3jP)
+> — Andrew Solender (@AndrewSolender) [December 2, 2020](https://twitter.com/AndrewSolender/status/1333983214197747715?ref_src=twsrc%5Etfw)
+
+
+
+*川普在白宫圣诞晚会上。”这是一个惊人的四年。我们正努力再干四年，否则四年后再见。*“
+
+六年前拉斯穆森的一项类似调查显示，共和党选民吵着要找一个新面孔来竞选总统。
+
+那张新面孔原来就是唐纳德·川普，当时他在共和党初选期间轻松击败建制派政客，并且最终也击败了另一个根深蒂固的沼泽生物希拉里·克林顿。
+
+2024年，是否有谁可能以类似的方式给人带来惊喜，并脱颖而出？
+
+原文链接：[https://www.zerohedge.com/political/over-70-republican-voters-want-their-lawmakers-be-more-trump](https://www.zerohedge.com/political/over-70-republican-voters-want-their-lawmakers-be-more-trump)
+
+0
