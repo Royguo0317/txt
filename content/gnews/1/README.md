@@ -1,78 +1,87 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 会计，财报，审计入门基础与介绍（八）
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/716014/)
+## 《路德时评》爆料彭斯发生重大转变，解读班农专访大主教及三桶油将被踢出美国股市
+` GM141` [轉載自GNews](https://gnews.org/zh-hans/716067/)
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/WX20201228-134452@2x.png)
-Picture Source: https://www.groomassocies.com
-
-在第八篇中是继续详细展示财务审计与分析过程中所涉及的股权分析及资产负债表中各项目内容。有助于投资人或审计师依照富有逻辑且合理的顺序对于财务报表中可以影响股权的项目进行逐一检阅。
-
-1. Current Liability 当前债务
-    - Trade Payable = Account Payable 应付账款
-    - Accrued Liability 应计负债
-    - 已经记录在Income Statement， 并未体现在Balance Sheet
-    - Account payable包含Accrued，但是Accrued 不一定等于Account payable
-    - Deferred Income = Deferred Revenue = Unearned Revenue
-    - 在交付商品或服务之前，就已经收到了款项
-    - Cash Received 计做资产
-    - Unearned revenue 计做负债，履约后消除负债，
-2. Non-Current Asset 非当前资产
-3. Property, Plant and Equipment 财产，工厂，设备
-    - IFRS：允许使用Cost Model / Revaluation Model
-    - US GAAP：仅限Cost Model
-4. Investment Property
-    - 不生产商品，服务，或管理的目的
-    - 出租收入或资本得利为目的（PPE和Inventory都含有Cost of Sales）
-5. Intangible Asset 无形资产 不含实物，可辩别（合同，法律权力。特权），非货币资产
-6. Identifiable Intangibles
-    - 根据IFRS / US GAAP，要求可辨认无形资产和资产负债表分开呈现
-    - IFRS： Research Stage计做Expensed / Income statement，
-    - Development Stage直接资本化Capitalized
-    - USGAAP：两个阶段全部计做 Expensed / Income statement
-7. Goodwill 声誉
-    - IFRS / USGAAP二者一致要求资本化，根据每年的测试在收入中进行增减
-    - 在计算Financial Ratio / Operating Trend 均会被排除
-8. Financial Assets
+直播视频：
 
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture-0104-1.jpg)
+
+《路德时评》2021年1月4日晚节目主要内容：
+
+一、三桶油即将被美国强制退市
+
+Business Standard 1月4日报道[1]：中共国电信公司被强制退市后，中国石油巨头可能成为美国目标。彭博资讯（Bloomberg Intelligence）分析师海尼克·冯（Henik Fung）表示，中国最大的海上石油生产商中海油（Cnooc Ltd.）可能受到的威胁最大，因为五角大楼声称它被列入中国军方拥有或控制的公司名单。石油天然气股份有限公司和中国石油化工股份有限公司统称为中石化。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/三桶油.jpg)[图片地址](https://gnews.org/wp-content/uploads/2021/01/capture-7.jpg)
+路德社评论：
+
+1、毫无疑问，这三家公司铁定会被美国强制退市；
+
+2、这三家石油企业被强制退市对中共的杀伤力比三家电信公司更大：
+
+（1）电信公司涉及的领域比较单一，三桶油本身市值巨大，而石油企业被制裁将波及整个中共国工业产业，中海油主要从事海上钻探采油工作，中石化主要做石油采购、贸易，所涵盖的产业链还涉及汽油、柴油及衍生出的各种产业链（化工、纺织、汽车等）；
+
+（2）企业上市最重要的目的就是融资，通过拉抬股价，利用杠杆作用进行海外收购和扩张，发行美元债券，一旦股价暴跌或被强制退市，这些企业的金融泡沫将快速破裂；
+
+（3）这三家企业已经被美国认定为被中共军方控制的企业，即将被认定为“一致行动人”，所有投资出现亏损的投资人都可以对该公司进行起诉要求赔偿，一旦三桶油拒绝赔偿或无能力赔偿，其在国际的各种贸易和金融交易都将被美国制裁。
+
+二、彭斯副总统承诺6日将听取真相
+
+彭斯福总统乔治亚州最新演讲[2]，他承诺将在1月6日听取证据，揭露真相的决心。我们将听到反对意见，将听到证据！
 
 
-1. 如何在股东权益中呈现金融资产未实现的损益？
-    - Classified as Trading security=Flow through income into retained earning。
-    - Classified as Available for sale = Accumulated other comprehensive income
-    - Classified as Held for mature = Not Recognized
-2. Deferred Tax Assets
-    - 预计未来可用抵税的资产（例如政府鼓励的定向投资）
-    - 会产生Income Tax Payable &gt; Tax Expense
-    - 造成税前利润下跌的情况下通过税收补偿，净利润也会大幅度上升（Net Profit /税后）
-3. Non-Current Liability 非当前债务
-4. Long-term Financial Liabilities 长期金融债务
-5. Deferred Tax Liabilities 递延所得税
-    - Income Tax Payable &lt; Tax Expense
-6. Component of Equity 权益组成
-    - Capital Contributed by Owners ：投资人向实体注入的资本，
-    - 通过普通股证明，且公司必须披露Authorized / Issued / Outstanding
-    - Preferred Shares：优先于普通股的权力
-    - Treasury Shares：公司回购并以库存方式持有，而不是注销。
-    - 若重新发行库存股票则不会在损溢表中确认任何损益
-    - Retained Shares存留股份
-    - Accumulated other Comprehensive Income
-    - Non-Controlling Interest：子公司的少数股东，虽被母公司合并，但不控制
-7. Statement of changes in Equity
-    - IFRS要求权益变动中以下几点
-    - Comprehensive Income 综合收入表
-    - Effects of any Accounting Change
-    - Capital Transaction 资本转让
-    - US GAAP：根据SEC在资产负债表中提供一份股东权益变动分析
+
+> 🔥彭斯福总统乔治亚最新演讲，承诺他1月6日听取证据，揭露真相的决心
+> VP Pence at the GA rally: I promise you, this Wednesday we will have our day in congress. We will hear the objection. We will hear the evidences! [pic.twitter.com/SjPPEBgR0V](https://t.co/SjPPEBgR0V)
+> — 雙囍展 (@Global\_XiZhan) [January 5, 2021](https://twitter.com/Global_XiZhan/status/1346252106487848960?ref_src=twsrc%5Etfw)
 
 
-Author：搞笑排行榜
 
-Original opinion article by Himalaya G-farm Vancouver
+路德社评论：
 
-2021/01/04
+1、彭斯副总统此时表态将在6日听取大选舞弊的证据，这表明他已经反转，坚定支持川普总统；
+
+2、彭斯前段时间曾计划5日前往以色列，6日就不参加大会，原先计划不参加这场乔治亚演讲，现在之所以前往乔治亚发表演讲，取消以色列形成，这巨大的转变背后都与爆料革命息息相关，也与路德之前放出的他与文贵先生的语音信息有关；
+
+3、美国政治从来不讲情怀，背后都是利益的交易，包括彭斯的转向与科顿议员的表态都与背后的利益有关。
+
+三、班农先生专访维加诺大主教
+
+班农先生在1月1日采访梵蒂冈大主教维加诺先生[3]，他此前是梵蒂冈驻美国大使，在梵蒂冈负责纪律检查，此次采访的中文版翻译已经在Gnews上发表。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/维加诺.jpg)[图片地址](https://gnews.org/wp-content/uploads/2021/01/capture-7.jpg)
+
+
+1、川普总统在去年6月10日发推提及维加诺大主教给川普总统写信，这三封信都被公开，维加诺大主教在信中鼓励川普总统代表“光明之子”继续战斗；
+
+2、班农先生可以采访到维加诺大主教，这足以说明他的影响力以及新中国联邦的实力；
+
+3、中共与梵蒂冈教廷从来都是水火不容，但是近几年梵蒂冈教皇与中共深度勾兑，这引起世界高层的关注，中共已经渗透到天主教的最高层，现在已经是光明与黑暗的“终极之战”；
+
+4、梵蒂冈以耶稣的大门徒彼得为起始至今延续两千多年，经历上千年的动荡后依然有28亿信徒，同时也留下巨额财富和产业，教会同时也掌握全球最机密的情报信息网络；
+
+5、路德社此前在节目中提及“圣殿骑士团”，如果认真查考就能明白教皇的权力非常大，他们掌控着“地球认证体系”，例如他可以直接认证某地的组织，然后该组织就可以免税，非常容易借此进行洗钱；
+
+6、“地球认证体系”可以将资产合法化，教皇也拥有赦罪的权力，由此可以想象梵蒂冈天主教廷的实力何等强大；
+
+7、犹太人在全球流浪数千年，他们留有强大的资金实力和信仰体系，同时也有一套完整的系统来延续和认证犹太人的财富，这帮助他们再次回归以色列；
+
+8、维加诺大主教在梵蒂冈天主教廷拥有极大的权力和影响力，他与班农先生关系非常紧密，同时也支持灭共，因为中共不但要颠覆美国，还要透过渗透颠覆梵蒂冈天主教廷两千多年的传承，最终掌控全世界，另一方面，美国沼泽地和华尔街与梵蒂冈天主教廷都有密切联系，现在梵蒂冈教廷已经开始醒悟；
+
+9、美国大选落地之后，全世界将关注两个方向，一个是中共病毒真相，另一个就是梵蒂冈教皇的选举，极可能出现一场新的宗教战争，就是中共控制的邪恶力量与正义力量的较量；
+
+10、**路德社爆料彭斯副总统的转变与此有非常大关系，一方面，他的心结已被打开，另一方面，他会坚定支持川普总统，但是中共肯定会采用其他招数应对。**
+
+点击观看往期《路德时评》节目总结文章
+
+参考文章：
+
+[1]https://www.business-standard.com/article/international/china-oil-majors-may-be-us-target-after-delisting-of-telecom-firms-121010400756\_1.html
+
+[2]https://twitter.com/Global\_XiZhan/status/1346252106487848960
+
+[3]https://gnews.org/zh-hans/715367/
+
+文章撰写：【重生】  编辑：【GM141】
 
 0

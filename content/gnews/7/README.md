@@ -1,21 +1,78 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本将全面暂时停止外国人新入境，但持有在留资格的外国人可再入国
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/715938/)
+## 会计，财报，审计入门基础与介绍（八）
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/716014/)
 
-【日本大阪方舟农场】翻译：小李在大阪 校对：文拓
-![]()![](https://gnews.org/wp-content/uploads/2021/01/図1-10.png)
-据日本朝日新闻1月5日报道，多位日本政府相关人士透露日本将暂时全面停止外国人新入境。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/WX20201228-134452@2x.png)
+Picture Source: https://www.groomassocies.com
 
-此前，日本的外国人入境政策暂停了大部分外国人新入境，只允许中国、韩国等11个国家及地区的商务人士新入境。但是随着中共病毒疫情的蔓延以及新变种的出现，日本国内正在准备发布紧急状态宣言，在这种背景下，日本将再次收紧外国人入境政策并全面暂停外国人新入境。
+在第八篇中是继续详细展示财务审计与分析过程中所涉及的股权分析及资产负债表中各项目内容。有助于投资人或审计师依照富有逻辑且合理的顺序对于财务报表中可以影响股权的项目进行逐一检阅。
 
-日本政府开始时打算停止已发现中共病毒变种的国家的外国人新入境，菅义伟首相也在1月4日的记者招待会上发表了相同的内容，但是由于在野党的反对，日本政府不得不改变了政策。全面停止外国人入境的政策的持续时间确定，但至少在日本国内处于紧急状态期间会维持该政策。
+1. Current Liability 当前债务
+    - Trade Payable = Account Payable 应付账款
+    - Accrued Liability 应计负债
+    - 已经记录在Income Statement， 并未体现在Balance Sheet
+    - Account payable包含Accrued，但是Accrued 不一定等于Account payable
+    - Deferred Income = Deferred Revenue = Unearned Revenue
+    - 在交付商品或服务之前，就已经收到了款项
+    - Cash Received 计做资产
+    - Unearned revenue 计做负债，履约后消除负债，
+2. Non-Current Asset 非当前资产
+3. Property, Plant and Equipment 财产，工厂，设备
+    - IFRS：允许使用Cost Model / Revaluation Model
+    - US GAAP：仅限Cost Model
+4. Investment Property
+    - 不生产商品，服务，或管理的目的
+    - 出租收入或资本得利为目的（PPE和Inventory都含有Cost of Sales）
+5. Intangible Asset 无形资产 不含实物，可辩别（合同，法律权力。特权），非货币资产
+6. Identifiable Intangibles
+    - 根据IFRS / US GAAP，要求可辨认无形资产和资产负债表分开呈现
+    - IFRS： Research Stage计做Expensed / Income statement，
+    - Development Stage直接资本化Capitalized
+    - USGAAP：两个阶段全部计做 Expensed / Income statement
+7. Goodwill 声誉
+    - IFRS / USGAAP二者一致要求资本化，根据每年的测试在收入中进行增减
+    - 在计算Financial Ratio / Operating Trend 均会被排除
+8. Financial Assets
 
-据日本出入国在留管理厅统计，去年12月14日至12月20日，基于针对上述11个国家及地区的外国人新入境政策，从中共国、越南及韩国入境日本的人数分别为3830人、3390人及340人。
 
-目前日本允许持有在留资格的外国人再入境、以及出于人道考虑的特例入境。
+- ![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture-0104-1.jpg)
 
-参考网站：[https://news.yahoo.co.jp/articles/bf918561f3646427f5c30626dfcadd48166ee30f](https://news.yahoo.co.jp/articles/bf918561f3646427f5c30626dfcadd48166ee30f)
 
-+1
+1. 如何在股东权益中呈现金融资产未实现的损益？
+    - Classified as Trading security=Flow through income into retained earning。
+    - Classified as Available for sale = Accumulated other comprehensive income
+    - Classified as Held for mature = Not Recognized
+2. Deferred Tax Assets
+    - 预计未来可用抵税的资产（例如政府鼓励的定向投资）
+    - 会产生Income Tax Payable &gt; Tax Expense
+    - 造成税前利润下跌的情况下通过税收补偿，净利润也会大幅度上升（Net Profit /税后）
+3. Non-Current Liability 非当前债务
+4. Long-term Financial Liabilities 长期金融债务
+5. Deferred Tax Liabilities 递延所得税
+    - Income Tax Payable &lt; Tax Expense
+6. Component of Equity 权益组成
+    - Capital Contributed by Owners ：投资人向实体注入的资本，
+    - 通过普通股证明，且公司必须披露Authorized / Issued / Outstanding
+    - Preferred Shares：优先于普通股的权力
+    - Treasury Shares：公司回购并以库存方式持有，而不是注销。
+    - 若重新发行库存股票则不会在损溢表中确认任何损益
+    - Retained Shares存留股份
+    - Accumulated other Comprehensive Income
+    - Non-Controlling Interest：子公司的少数股东，虽被母公司合并，但不控制
+7. Statement of changes in Equity
+    - IFRS要求权益变动中以下几点
+    - Comprehensive Income 综合收入表
+    - Effects of any Accounting Change
+    - Capital Transaction 资本转让
+    - US GAAP：根据SEC在资产负债表中提供一份股东权益变动分析
+
+
+Author：搞笑排行榜
+
+Original opinion article by Himalaya G-farm Vancouver
+
+2021/01/04
+
+0
