@@ -1,41 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共多地疫情严重 再现超级传播者
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/717535/)
+## 参议院的席位绝对不能向左派让步
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/718103/)
 
-俄罗斯莫斯科喀秋莎农场   文强
+![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-11.jpg)图片来源： Salon
+据华盛顿时报 《The Washington Times》1月4日报道，本周初在佐治亚州举行的参议院议员的选举关乎到参议院的权利平衡，对川普总统的再次当选事关重要。
 
-校对上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/01/unnamed-file.jpg)Times of India
-近日中共病毒疫情在中共国多地爆发，并再度出现超级传播者。仅辽宁大连市一名患者就传染了44人，沈阳一名患者也传染了22人，有沈阳医生在微信群警告说：“现在不要瞎跑，疫情异常严重，传播速度非常快，传染性非常非常强。”上海、广州也相继出现英国变异病毒病例。
+川普本人以及副总统彭斯亲自到佐治亚州举行动员会，号召民众为共和党的两位候选人，大卫·珀杜（David Perdue）和 凯莉·洛夫勒（Kelly Loeffler）投出关键一票。彭斯副总统讲话时肯定了两位共和党的参选人是川普总统坚定的支持者，并表示会赢得佐治亚州从而最终拯救美国。
 
-北京、天津、成都、大连、石家庄等多地先后宣布进入战时状态，充分说明中共病毒在多地加剧恶化。本轮疫情爆发不仅出现超级传播者，还再度出现去年武汉爆发疫情时的家庭群聚感染，一家人全部被传染的恐怖情形。北京市疾控中心通报，1月2日北京顺义区一个8月大的女婴检测为阳性，患儿母亲和祖母均被确诊。
+共和党和民主党双方各有两位参与参议院议员竞选。共和党必须将参议院拿下，否则极左派会将美国推入深渊。川普总统也表示，这次参议院的选举牵扯到巨大的利害关系，并警告称，民主党的参议院竞选人只会成为极左政治家的橡皮图章，简单说就是受左派控制的傀儡。佐治亚州的参议院席位，决定了佐治亚州人民是否会受到左翼社会主义者、共产主义者和马克思主义者的摆布。
 
-根据中共官媒报道：中共大陆疫情防控风险地区从12月25日的11个骤然升到目前的49个，其中7个在北京、4个在河北、32个在辽宁、6个在黑龙江。2019年12月武汉爆发疫情时，中共当局从上到下隐瞒疫情，加上春节期间人口大范围流动，导致疫情迅速在中共各地蔓延，并扩散至全球。2020年中华传统节日春节即将来临，国内人口流动恐再次带来“武汉惨剧重演”。
+候选人凯莉·洛夫勒表示，美国正处于危险之中。如果共和党人 “不在佐治亚州守住阵地”，将导致美国税收增加、警费削减、社会活动停滞、以及军费支出减少，美国人民将生活在社会主义经济制度下。另一候选人大卫·珀杜对最近布拉德·拉芬斯佩格 (Brad Raffensperger)泄露与总统谈话音频一事谈了看法，他认为一个共和党人设局坑害同为共和党的总统，把对话内容泄露给媒体是一件令人恶心的事情。佐治亚州共和党战略家杰伊·威廉姆斯 (Jay Williams)也表示，这事只是给大选制造更多的噪音，使民众无法更多地了解民主党的腐败，因而不能意识到民主党人掌权会带来多大的风险。
 
-截至今日，这场中共生物病毒超限战引发的世界疫情大流行已造成全球逾8,468万人感染，超过183万人死亡。而且病毒还在快速变异扩散，将再度出现疫情高峰，恐导致更多人面临生命危险。
+川普总统在多地起诉选举欺诈，并要求共和党人布拉德·拉芬斯佩格和布赖恩·肯普 (Brian Kemp)辞职。这一切行动已经引起了大量民众的响应，一些人已经开始质疑自己的选票是否被窃取，另一些人则呼吁抵制选举从而惩罚共和党对川普总统的背叛。大卫和凯莉表示支持川普总统挑战选举结果和要求布拉德下台。
 
-参考链接：
+**评论**： 原报道总提来看并非站在川普总统一方，从文中不再称呼川普和彭斯为“总统”和“副总统”的小细节就可以窥见一斑。同时，文中有大量篇幅攻击川普总统团队。并且文中提到“抵制选举惩罚共和党”，译者认为这在当前是不可取的，因为如果参议院被左派拿下，不仅是对共和党，对整个美国来说都是一场灾难。对于谈话泄露事情，译者相信就像杰伊所说的，这只是噪音，暂时转移了对民主党的讨论，但是却从另一面证明了民主党对美国产生的威胁性，而且对共和党也是一次大清洗。现在我们应该关注参议院的选举，看看参议院的选举是否再被动手脚。
 
-[https://new.qq.com/rain/a/20210104A017BC00](https://new.qq.com/rain/a/20210104A017BC00)
+[原文链接](https://www.washingtontimes.com/news/2021/jan/4/georgia-senate-runoffs-stars-try-seal-deal/)
 
-[https://www.bannedbook.org/bnews/cbnews/20210104/1460762.html](https://www.bannedbook.org/bnews/cbnews/20210104/1460762.html)
+翻译者：Chris
 
-[http://society.people.com.cn/n1/2020/1227/c1008-31980012.html](http://society.people.com.cn/n1/2020/1227/c1008-31980012.html)
+校对：沙拉猫
 
-[https://m.21jingji.com/article/20201208/herald/144594e57ee4b6597e4dccc6c51af0f9.html](https://m.21jingji.com/article/20201208/herald/144594e57ee4b6597e4dccc6c51af0f9.html)
-
-[https://baijiahao.baidu.com/s?id=1687951210904910155&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1687951210904910155&amp;wfr=spider&amp;for=pc)
-
-[http://society.people.com.cn/n1/2020/1227/c1008-31980012.html](http://society.people.com.cn/n1/2020/1227/c1008-31980012.html)
-
-[http://www.zsnews.cn/news/index/view/cateid/37/id/658456.html?platform=mobile](http://www.zsnews.cn/news/index/view/cateid/37/id/658456.html?platform=mobile)
-
-[https://www.163.com/dy/article/FVEOUTJS0545B4DS.html](https://www.163.com/dy/article/FVEOUTJS0545B4DS.html)
-
-[https://www.163.com/dy/article/FVG58GG80516M3GT.html](https://www.163.com/dy/article/FVG58GG80516M3GT.html)
-
-[https://baijiahao.baidu.com/s?id=1687023292911341054&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1687023292911341054&amp;wfr=spider&amp;for=pc)
-
-+3
++1

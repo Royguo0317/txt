@@ -1,23 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国际旅游业受中共病毒疫情打击一蹶不振
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/717661/)
+## 佐治亚州：秘密摄像头显示上千非法选票被登记，投票人来自同一地址
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/718148/)
 
-*加拿大多伦多枫叶农场 文怡*
+```
+整理：旦旦
+校对/发稿人: Ting Guo
+```
 
-*校对 辛丑 发稿 文怡*
-![]()![](https://gnews.org/wp-content/uploads/2021/01/111639730_index_world_lockdownj_976.jpg)
-在受中共病毒疫情打击的行业中，旅游业尤甚。在2020年底，旅行仍受严重限制， 世界旅游组织（UNWTO） 预计，2020年国际入境游客人数将比2019年下降70％至75％，相当于减少了大约10亿国际游客，航空业回到了1990年的水平。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-04-at-9.04.51-PM-800x444-1.png)图片来源: The National Pulse
+根据The National Pulse在2021年1月4日的报道，在佐治亚州参议员决选的前一天，该州被爆出几千选民登记的地址为同一个：201 Washington St，此地址为该州首府亚特兰大的外联宣传中心，该中心的主要职责是预防无家可归人员的情况发生，但并不提供收留服务。该中心发言人Kimberly Parker说：因为他们服务的选民大多没有地址，所以才让他们用中心的地址选票登记。
 
-在中共病毒爆发前，全球旅游业几十年来保持着几乎不间断的增长。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/21793-5.jpeg)
-自1980年以来，国际入境人数从2.77亿猛增至2019年的近15亿。如Statista的图表所示，过去几十年中两次最大的危机是2003年的SARS流行和2009年的全球金融危机。与中共病毒疫情相比，跌幅算很小。
+乔治亚州秘书长Brad Raffensberger与其秘书Gabriel Sterling都试图掩盖此事，后者甚至在与川普总统的通话中强调选举是完美真实的。然而，上千人用同一地址登记选票，已经违反乔治亚州当地刑法，最高可判10年监禁。
 
-据世界旅游组织估计，该行业将需要两年半到四年时间才能恢复大流行之前国际游客人数的水平。但笔者的看法比这悲观，因为爆料革命已经揭示了中共病毒将对世界的伤害，2020年底肯定还没有见底，疫情之后的生活方式会与之前有很大变化。首先，中共病毒导致死亡人数上升，人口基数减少；其次，大量感染中共病毒者生活质量下降，出游意愿降低，未感染的人也因怕被感染而产生出行顾虑；再就是疫情重创经济，有钱有闲出行的人数锐减。
+**评论**：因为与中共的勾兑，部分美国民主党人也学会欺上瞒下，用谎言甚至触犯刑事法的手段来践踏美国的民主与法治。亚特兰大外联宣传中心隶属该市中心长老会教区（Central Presbyterian Church），其初衷也是为了慈善，帮助无家可归的人。但是他们竟利用这一职能来摧毁美国的民主选举，这是同时在法律与信仰上犯下错误的双罪，着实令人愤怒，但更多的是悲痛。望读者们能够在宣传真相的同时，团结身边的人，一起发声，传播真相。只要正义能够得到伸张，我们必将战胜邪恶。
 
-目前中共病毒仍在全球肆虐，并已有变异毒株出现，多国实施封城禁令，旅游业复苏无望。全球旅游业大萧条是中共病毒疫情造成次生灾害的典型。
+参考文链接：[https://thenationalpulse.com/breaking/watch-hidden-camera-reveals-activists-illegally-registered-thousands-at-the-same-address-in-georgia/](https://thenationalpulse.com/breaking/watch-hidden-camera-reveals-activists-illegally-registered-thousands-at-the-same-address-in-georgia/)
 
-*[原文链接](https://www.zerohedge.com/markets/tourism-tumbles-1990-levels-pandemic-halts-travel)*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21093249/image4-3.jpg)*[**https://discord.gg/77fCxw5mFv**](https://discord.gg/77fCxw5mFv)
+[**https://**](https://https//discord.gg/77fCxw5mFv)[**gab.com/himalaya\_italy**](https://gab.com/himalaya_italy)*
 
-+2
++1

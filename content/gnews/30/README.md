@@ -1,55 +1,93 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中国共产党，你的名字出卖了你
-` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/717452/)
+## 拜登提名高级官员曾参与中美交流基金会赞助的访华之旅
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/718117/)
 
-作者：美国纽约七星会农场写作组｜BLACK 5
+新闻来源：The National Pulse《国家脉动》； 作者：Natalie Winters； 发布时间：2021年1月2日
 
-编辑、美工：灭共小宇宙
-![]()![](https://www.gnews.org/wp-content/uploads/2021/01/中共-名字.jpg)
-共产主义踏入中国之日起，“共产党共产共（公）妻”的传言便如影随形，中国各阶层视其为洪水猛兽。中共便使尽浑身解数堵截该“谣言”：
+翻译/简评：MikeHua；校对：X-Wing飞得更高；审核：万人往；Page：小雨
 
-一、中共文人宣称“共产共（公）妻”并非共产主义产物，清末革命党人便因“共产共（公）妻”为人所诟病；或一再强调中共未以官方形式推行“共产共（公）妻”。
+[!\[\]()!\[\](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/bafa5e54-061f-4b93-bb0d-b61dd28a9986.jpg?asset_id=976de62a-5258-4682-bcb7-043d625cd4ae&amp;img_etag=%223ef7a6217ec140085c58a84552e4369a%22&amp;size=1024)](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/bafa5e54-061f-4b93-bb0d-b61dd28a9986.jpg?asset_id=976de62a-5258-4682-bcb7-043d625cd4ae&amp;img_etag=%223ef7a6217ec140085c58a84552e4369a%22&amp;size=1024)
 
-二、毛泽东亲自上阵，在其《丢掉幻想，准备斗争》一文中直指国民党以“共产共（公）妻”污名中共。
+**简评：**
 
-三、中共红军专门翻印《俘虏工作须知》，专门指导如何驳斥“共产共（公）妻”传闻。
+大量的奥巴马政府官员在退休后为三瓜俩枣给中共站台，替中共吆喝，出卖美国的国家利益，政治的丑恶在这些人身上体现得淋漓尽致。这些人并不只局限于奥巴马政府，或者整个民主党，共和党也不乏这样肮脏的政客。本文曝光了被乔•拜登提名的重要内阁成员曾经参与亲北京团体赞助的访华旅行，甚至和大外宣机构共同发布报告。
 
-为了解真相，我们不仅要听其言，更应观其行。回溯中共百年历史，其所作所为是最好的证据，谣言与否，不辨自明。
+这些人的存在是美国政治生态的一部分，自然界并不是所有动物都是雄鹰或狮子，还有沼泽地和鳄鱼，每个部分都是生态的一环。如何利用这个生态圈有利于我们中国人民，有利于中华民族的未来。爆料革命和新中国联邦的智慧、勇气、实力足以让这次美国大选所带来的危机矛头指向中共。新中国联邦作为拯救美国的重大贡献者将会成为最大的赢家，让共产党彻底消失！
 
-曾有哲学家说过：“成功的造反就是革命，失败的革命就是造反。”中共在城市暴动中屡次受挫，便将力量向农村、山区集结，“农村包围城市”是封建制流寇造反的新型提法，“新民主主义革命”是中共开历史倒车的改朝换代之举。
+**原文翻译：**
 
-井冈山上红旗漫卷无非是毛泽东率众聚啸山林，故而偷袭火并王佐也不足为奇。招兵买马依赖钱粮，“无产者”手擎大刀长矛，地主宅院走一遭，无需质押，不论信用，一张借据换来银元粮食。地主后人即便侥幸存活，其手中的借据也沦为千年不赖、万年不还的“永续债”。
+## 拜登“挑选”的领导团队参与了亲北京组织赞助的访华之旅，并共同撰写报告
 
-中共的“抱负”远非于此，落草仅是权宜之计。如何将割据势力迅速做大做强？以往简单粗暴的“借贷”无法满足其扩张需求，物质基础和上层建筑双管齐下，经济上从农业最重要的生产资料——土地入手，瓜分田地，烧毁地契；制度上打破农村早已成熟的社会管理体系，以此保障中共生存发展的稳定性、长远性。
+**《国家脉动》今天曝光，拜登团队选择的高级政府官员同时运行着一个组织，该组织曾经参与中共大外宣机构领导的计划，甚至和大外宣机构共同发布报告。**
 
-在此其间，充斥着挑动、引领、指导人民斗人民，借刀杀人，其心可诛。参与“土改”的人员及其后人可曾料到数十年的辛劳却是为他人做嫁衣裳？数代人为之疯狂的土地从地主手中最终转为“集体所有”，而“集体”为何物？说不清，道不明，神一般存在。
+[!\[\]()!\[\](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/d5ebb7f5-4c26-417f-891f-19d9127cca17.png?asset_id=3c56bb01-c45a-4377-a953-c2071362913a&amp;img_etag=%22daf96e992581c05c70634f4971731efa%22&amp;size=1024)](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/d5ebb7f5-4c26-417f-891f-19d9127cca17.png?asset_id=3c56bb01-c45a-4377-a953-c2071362913a&amp;img_etag=%22daf96e992581c05c70634f4971731efa%22&amp;size=1024)
 
-今日的土地承包人、失地农民与当年的佃户何其相似，他们身上不断重演着地主曾经的遭遇，全国土地强征、房屋强拆于各处涌现。
+据报道以及多份跨11年的记录指出，基于华盛顿的“美国进步中心” (Center for American Progress, CAP)——通常被指出“紧密站队”奥巴马—拜登政府——多次参与中美交流基金会(China-United States Exchange Foundation, CUSEF)赞助的访华旅行。
 
-中共窃取国家政权后，其目标转移至城市工商业，政治运动屡次三番将资本家推为众矢之的；巧借“公私合营”之名对私有财产巧取豪夺。
+现在，该组织的领导人是拜登钦点美国行政管理和预算局 (United States Office of Management and Budget)局长的人选，假设虚假选举结果被认证，乔•拜登当选总统的话。
 
-早年加入同盟会，后拥护中共的一代船王卢作孚在中共“三反”、“五反”运动中遭受迫害，1952年2月于重庆吞服安眠药自杀。
+CUSEF由中共统战部门“最高监督机构”的副主席创立，该组织被“美中经济与安全评估委员会”(United States-China Economic and Security Review Commission)认定为试图“收买和消除可能对反对中共政策和中共霸权，中共统治的源头”并“影响海外华人社区、外国政府部门以及任何个人以让他们采取行动或者站队支持北京政权”。
 
-1952年4月，冠生园创始人冼冠生先生不堪逼供，于冠生园楼上跳下，毙于上海南京路，冠生园旋即为中共当局接管。
+由西方游说公司支持，CUSEF完成了“有效地向媒体、关键影响人员和意见领袖以及公众散布中共国正面信息”，司法部外国代理人登记法 (Foreign Agents Registration Act, FARA)的档案显示。
 
-积极响应“公私合营”，将三百年产业、秘方合盘上缴给中共的同仁堂掌门人乐松山在文革中亦未能幸免……
+《国家脉动》此前揭露了CUSEF和主流媒体公司以及其他美国政客的联系，这解释了为什么中共宣传机构从来没有报道拜登和CAP的关系。
 
-在中共如潮一般的政治运动中，惨遭谋财害命的民族资本家不计其数，以上诸位只是沧海一粟。
+[!\[\]()!\[\](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/33449aa7-b783-4b63-8964-2580b4f058aa.jpg?asset_id=65ce3030-8ec1-4d9f-85b4-5379197093e9&amp;img_etag=%2273453320b1304bde805faab597787c07%22&amp;size=1024)](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/33449aa7-b783-4b63-8964-2580b4f058aa.jpg?asset_id=65ce3030-8ec1-4d9f-85b4-5379197093e9&amp;img_etag=%2273453320b1304bde805faab597787c07%22&amp;size=1024)
 
-更为可悲和危险的是——如今“公私合营”卷土重来，中共谓之“混合所有制改革”。中共各级国资委、财政局制定计划、指标、任务，伺机寻找当地优质企业，目标基本为非上市公司，以便其非透明操作，无须承担公示义务。
+**年度代表团**
 
-目标企业实际控制人如有反对意见，中共当局便会采用一切手段使目标企业就范：边控、监视居住企业实际控制人；指使银行抽贷，不惜将企业逼至破产，哪怕殃及上下游企业，也无所顾忌。而其他原有股东的权利和转让价格议价空间，更丝毫不在中共眼中。先富起来的人不过是中共待宰的羔羊。
+自2009年开始，CAP在CUSEF项目下向中共国派遣访问代表团。
 
-先富起来的人尚且如此，“弱势群体”的不幸更为沉痛。国有制改革一夜之间将资产财富纳入少数人口袋，而创造财富的广大国有企业员工被分流下岗，三瓜两枣买断工龄，无情推向社会边缘。医疗、教育、住房等一系列改革又是雪上加霜。
+与中共政府有联系组织的手册显示，CAP代表团讨论了“大量的问题，包括地缘政治合作、军事合作、气候变化、能源安全、贸易平衡和全球金融危机”。
 
-中共治下的工人阶级成了真正的无产者。 无论是有产者，还是无产者，其生杀予夺均为中共牢牢掌控，任由中共翻手为云，覆手为雨。中国共产党，你的所作所为无愧你的名字。
+“两国必须互相承诺和下决心，在未来建立正面、合作和全面的中美关系”，代表团领袖总结发言道，奥巴马顾问、克林顿政府幕僚长约翰•波德斯塔 (John Podesta)出席。
 
-更多精彩内容请关注：
+[!\[\]()!\[\](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/cfe80222-27d5-4c7f-b52d-0edde03193b2.png?asset_id=d1d59dab-6f05-4b7c-bf9f-367a0a13bf6a&amp;img_etag=%225514ccaafedee04ca3b05827e500bc2c%22&amp;size=1024)](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/cfe80222-27d5-4c7f-b52d-0edde03193b2.png?asset_id=d1d59dab-6f05-4b7c-bf9f-367a0a13bf6a&amp;img_etag=%225514ccaafedee04ca3b05827e500bc2c%22&amp;size=1024)*2009 CUSEF宣传材料*
 
-- [美国纽约七星会农场（为子孙爱七哥）GTV](https://gtv.org/user/5e986b24b005bd6d929820bd)
-- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
+2011年的照片显示代表团在中国共产党的“人民大会堂”出席会议。一个中共驻外大使馆对此活动的报道描述了当时中共官员如何“敦促美国正确处理台湾问题，以及将重心放在中共关心的事情上”。
 
-![]()![](https://www.gnews.org/wp-content/uploads/2020/12/七星会底栏-2.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/941da38c-3333-485a-8ee0-2340c95442a0.png?asset_id=e71de8a5-f39e-4c22-b8a9-30b5a7eb94ef&amp;img_etag=%222461da6b16211a6bb6a2335a0aa24fc4%22&amp;size=2560)](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/941da38c-3333-485a-8ee0-2340c95442a0.png?asset_id=e71de8a5-f39e-4c22-b8a9-30b5a7eb94ef&amp;img_etag=%222461da6b16211a6bb6a2335a0aa24fc4%22&amp;size=1024)*波德斯塔在2011年*
+
+CUSEF同时在他们网站上鼓吹2016年“来自CAP的专家代表团访问了北京”，经常是在波德斯塔（Podesta）的领导下，波德斯塔是CAP的主席。同时与会的有中共解放军总参谋长和其他中共领导人，还有洛杉矶市市长埃里克•加塞蒂 (Eric Garcetti)。
+
+一份摘要指出:“随着美国大选开始，许多人对这次及时的访问特别感兴趣。”
+
+![]()![](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/fff6352f-109a-4c16-9330-e5f2cd23fb3f.png?asset_id=18c7586f-5c1e-40fb-8280-679f037a694f&amp;img_etag=%2205d1bb21185c5f4c07708609a03a22c9%22&amp;size=1024)*2016年代表团和中共解放军官员*
+
+**共同作者**
+
+2013年代表团访华之后，CAP和CUSEF共同发布了一份110页的报告，关于未来中美关系，敦促更加紧密的经济联系和军事合作。
+
+“两国官员和专家都需要更加有效地就中美关系的重要性和两国旨在防止问题和实现目标的新型关系进行民间对话”，回忆录鼓励称。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/90ed9516-2dd9-41d6-b2a5-915f0e52f2ae.jpg?asset_id=ecd58a7a-f295-4394-bbe9-a9d9ed723cec&amp;img_etag=%228f945366c807f53af7b8e46748051e59%22&amp;size=1024)](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/90ed9516-2dd9-41d6-b2a5-915f0e52f2ae.jpg?asset_id=ecd58a7a-f295-4394-bbe9-a9d9ed723cec&amp;img_etag=%228f945366c807f53af7b8e46748051e59%22&amp;size=1024)*CAP和CUSEF共同作者*
+
+该报告还显示，奥巴马—拜登政府的遗老在14人的代表团里分量颇重，报道指出所有参与人员“都对九月的对话有重要贡献”。
+
+副总统拜登的前副国家安全顾问朱丽安•史密斯(Julianne Smith)，美国卫生与公众服务部高级顾问莱斯利•达克(Leslie Dach)，奥巴马2012竞选团队亚洲政策副主任妮娜•八吉安(Nina Hachigian)，和其他奥巴马政府遗老都在代表团名单里。
+
+但是CAP和拜登的关系更深：CAP的现任主席和资金团队主席尼拉•坦登(Neera Tanden)近期被民主党总统竞选人乔•拜登提名为美国行政管理和预算局局长，假如虚假的选举结果被认证，乔•拜登当选的话。
+
+**暴利的游说**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/3a77a6bc-468b-43bb-bea6-8e5f9211e2c6.jpg?asset_id=0fd4898e-0bd4-42e7-ac21-b3231675664e&amp;img_etag=%222199311126f20647b0ad0f77f947b120%22&amp;size=1024)](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/3a77a6bc-468b-43bb-bea6-8e5f9211e2c6.jpg?asset_id=0fd4898e-0bd4-42e7-ac21-b3231675664e&amp;img_etag=%222199311126f20647b0ad0f77f947b120%22&amp;size=1024)
+
+由波德斯塔的兄弟托尼创立的游说公司——波德斯塔集团——也在2017年与CUSEF签署了一份暴利的游说合同。为了每年获得30万美元，这家目前已经停止运行的公司保证游说两院的政府官员支持“中美关系”。
+
+最新的报道会进一步引发中国共产党被拜登政府优先对待的关注，并且引起人们怀疑北京政府操控2020大选以便让他们喜欢的人当选。
+
+[原文链接](https://thenationalpulse.com/exclusive/biden-omb-director-think-tank/)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】-[点击saprk adobe版](https://spark.adobe.com/page/QRkGCWt3uaAuM/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
 0
